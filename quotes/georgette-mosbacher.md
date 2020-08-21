@@ -1,0 +1,22 @@
+ - The difference between a calculated risk and rolling the dice can be expressed in one word: homework.
+ - Success is the process of not accepting failure.
+ - Just because you made a mistake doesn’t mean you are a mistake.
+ - Fear of failure and fear of the unknown are always defeated by faith. Having faith in yourself, in the process of change, and in the new direction that change sets will reveal your own inner core of steel.
+ - Feminine force is that inner strength, that power, that will to face down any negative circumstances in life and defeat them.
+ - What separates the winners from the losers is that winners are able to handle problems and crises that they never imagined would occur. You hit the floor, but what counts is how fast you can get up and regroup. Failure is simply part of the equation.
+ - Swallowing your pride isn’t lethal. It might upset your stomach for a few minutes, but the ultimate result may be the life of your dreams. And that’s a result that’s worth every rejection you encounter.
+ - You’re never too young or too old to make your own kind of mark in your own kind of time. You’re never the wrong age to release the power within you to create the life you deserve.
+ - I don’t wase time thinking, ‘Am I doing it right?’ I say, ‘Am I doing it?’
+ - A man who isn’t generous with his money isn’t generous with his love and affection.
+ - To create the life you deserve, you have to go after it. The universe that you inhabit flows from you – you don’t flow from it.
+ - Cash is cold comfort under these circumstances. But make no mistake about it; It is some comfort.
+ - Everyone wants a hug and kiss. It translates into any language.
+ - My appearance is talking and I like what it is saying.
+ - Real guts are nothing more than developing your inner voice to the point where it is louder and stronger than the voice of your fear.
+ - Nine times out of ten you take the first step in creating your own universe by picking up the phone.
+ - Failure may be just a step toward your eventual goal.
+ - In our family, being powerful means you never, ever apologize for being a woman.
+ - In the end, raising money is basically a matter of going out there and asking. There are no shortcuts.
+ - Reality is the only place you can deal from. If you’re still worrying about the way things should be, you haven’t even approached the starting line.
+
+20 quotes

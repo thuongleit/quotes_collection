@@ -1,0 +1,74 @@
+ - But there’s always a first time for everything.
+ - Black is the color of night. White is the true color of death.
+ - I don’t need anything to get high. I’m high on life.
+ - Do not cry for me, Azrael. Do not waste your tears. You made your decision. And this is mine. Sacrifice seems to be my destiny. A funny thing for a selfish man, isn’t it? They always called me weak back then...
+ - Dude you scare me sometimes! You’re all vampire superwoman.
+ - Because love was not the answer to every question. Because real love meant sacrifice. Sometimes love means letting go.
+ - I lived for those moments when we were together, those few times in my life that I actually felt alive.
+ - I love her because she has become something more to me. She become my life.
+ - A bad boy can be very good for a girl.
+ - Tonight the world is yours, as am I.
+ - Love. It’s so close to hate, it’s almost indistinguishable.
+ - The world in your mind is as real as the world outside of it.
+ - I’m tired of being your best friend. I’m tired of being second best. I won’t settle for that anymore. It’s all or nothing, Schuyler. You have to decide. Him or me. – Oliver Hazzard-Perry.
+ - Love. It’s so close to hate, it’s almost indistinguishable. But this is how it was for the two of them. Love and hate. Life and death. Joy and anguish.
+ - If she loved him the way she said she did, she wanted him whole. Maybe this was what love meant after all: sacrifice and selflessness. It did not mean hearts and flowers and a happy ending, but the knowledge that another’s well-being is more important than one’s own.
+ - I still love you. I will always love you, and that is all that matters. I will forgive you anything, and I will forgive you this.
+ - Remember all fairy tales end at some point.
+ - I don’t want to make the same mistakes I’ve made before. I want to be free. I want to be with you. We will be together. I believe I will have less to live for, if I am not with you.
+ - I am not sorry for a moment. It was worth every moment, every second we were together. I would not change it for an immortal lifetime.
+ - Now that she decided she knew exactly what she wanted –him- she couldn’t wait to break the news. And if he didn’t want her, she could live with that – what she wouldn’t be able to live with was if she never told him.
+ - Schuyler pulled Oliver close and hugged him tightly. “Thank you,” she whispered. Thank you for loving me enough to let me go.
+ - Thank you for loving me enough to let me go.
+ - A mind is like a puzzle; you must unlock it to read its hidden secrets.
+ - Memories were moving pictures in which meaning was constantly in flux. They were stories people told themselves.
+ - You cannot be with someone just because you don’t want to hurt him. You have your own happiness to think about.
+ - He was like a shooting star you tried to catch with your hands. She would only get burned.
+ - Never trust a shiny surface. They hide a multitude of flaws.
+ - Evil was seductive and easy, and virtue was difficult and unappreciated.
+ - You have punished me long enough, you have punished yourself long enough. Return to me. I beg.
+ - Instead of fearing the future, I should live and enjoy the present, she told herself.
+ - Who knew that the path to a womans heart was through the soul of an honest man?
+ - When their lips met, and their tongues touched, it was like they were kissing in a hundred different places, and her senses were flooded with new sensations and old memoires. He kissed her, and their souls melted into each other in a melody older than time.
+ - I know you. I know this isn’t you. And even if it is, I still love you. As much as I always have. You will always be mine. I will always love you, I promised you that when you left, and it’s true now.
+ - The more things change, the more they stay different.
+ - One minute you could be getting a smoke in the alley on the Lower East Side with your friends, having drinks and dancing on tables in a popular nightclub. And the next minute, you could be dead.
+ - Looking for Narnia? You’re in the wrong universe.
+ - You made a sacrifice. And heaven rewarded you.
+ - It was maddening how your best friend could twist the knobs inside of you so much that it hurt.
+ - Bonds are like rules, they’re meant to be broken.
+ - She could not trust herself to hope – but without hope, she realized, she had no reason to go on.
+ - It is good to be busy. Being busy takes our mind off being in love at the wrong time, in the wrong place and with the wrong guy.
+ - I’m up for it. Whatever it is. As long as it means I’ll always be with you.
+ - Maybe she’d been drinking too much of the super-sweet Mexican Coca-Cola they had down here. Or maybe she was just tired, alone, and far from home. Because somewhere in the brittle, concrete center of Azrael’s dark heart, something was melting.
+ - When she reached the shallow end, Kingsley held out his hand and pulled her up, but she lost her step and fell into his arms, her body crushing momentarily against his.
+ - Had pretended to be Abbadon of the Dark, when always he had been working for the Light.
+ - Oliver liked to play the part of disaffected youth, but he liked shopping in SoHo even more.
+ - Maybe weakness is a strength of a kind.
+ - Time did not mean anything to those who had too much of it, but it was even more precious once it was limited.
+ - He’s too much for Schuyler. They’re wrong for each other. Anyone can see that. And when he leaves her, I’ll be there. However long it takes, I’ll still be there for her. Waiting.
+ - It was so nice just to live in the moment, to enjoy holding him so closely, to pretend for a little while that they were merely two young people in love and nothing else.
+ - Death was just the beginning of a journey that everyone took at some point.
+ - He kissed her, and their souls melted into each other in a melody older than time.
+ - He knew what it was like to love one who did not – or could not – love you back. But he’d had no choice. None of them did.
+ - You’ve got to stop thinking everyone’s problems can be solved by falling in love.
+ - I don’t trust an organization that would make policy out of fear.
+ - Schuyler put a gentle hand on Abbadon’s feathered extensions, feeling the majestic power underneath their silky weight. She had been frightened once, to see him in this light, but now that she saw his terrifying face, she found it beautiful.
+ - Jack leaped over the gate, his sword aflame. To vanquish his foe and rescue his love.
+ - It didn’t help that she was painfully shy and kept to herself, because then they just thought she was stuck-up, which she wasn’t. She was just quiet.
+ - Kingsley did the same, except he also removed his T-shirt, showing off his broad chest, tan and smooth. When had Kingsley had time to work on his tan? Mimi wondered.
+ - If you think we’ll get in, we’ll get in. It’s all about confidence, trust me.
+ - White for light. White for love. White for forever.
+ - One should not seek those who do not wish to be found.
+ - It’s said a friend is a person who walks in when everyone else walks out.
+ - Once you start telling people you’re famous, they believe you.
+ - As an author you hope your characters have sparks but truly in the end they have minds of their own!
+ - Kingsley, ever the joker, had his Venator mark tattooed near his unmentionables.
+ - That was the thing about pictures – they were worth a thousand words, but sometimes they weren’t the right ones.
+ - He wasn’t perfect, but he was perfect for her.
+ - I haven’t paid for anything since I became famous.
+ - A picture is worth a thousand texts.
+ - And Kingsley being Kingsley, he smiled as he pretended to pull the trigger.
+ - Not that they were there to have fun – although with Kingsley Martin around, fun was never far from the agenda.
+
+72 quotes

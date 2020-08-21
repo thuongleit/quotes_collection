@@ -1,0 +1,30 @@
+ - The only way an artist can communicate with the world at large is on the level of feeling.
+ - To be a painter now is to be part of a very small, endangered species.
+ - I am happy for people to talk about my pictures, but I wish devoutly that I was not expected to talk about them myself.
+ - Collecting has been my great extravagance. It’s a way of being. I collect for the same reason that I eat too much-I’m one of nature’s shoppers.
+ - In England, it’s thought to be morally suspect to worry about what your surroundings look like.
+ - In the United States there has been a kind of a structure in the Modern art world. The New York School was nearly a coherent thing-for a minute.
+ - I don’t look at the work of my contemporaries very much; I tend to look at pictures by dead artists. It’s much easier to get near their paintings.
+ - When I finish a painting, it usually looks as surprising to me as to anyone else.
+ - My language is what I use, and if I lost that, I wouldnt be able to say anything.
+ - I think words come between the spectator and the picture.
+ - My friends tend to be writers. I think writers and painters are really all the same-we just sit in our rooms.
+ - I think that words are often extraneous to what I do.
+ - It takes a long time for the gleam in the eye to turn into something solid.
+ - I’m vulnerable to criticism. Any artist is, because you work alone in your studio and, until recently, critics were the only way you’d get any feedback.
+ - I don’t really have a historical overview of my work at all. I’m not an art historian. I don’t see that there’s this period and that period.
+ - My pictures really finish themselves.
+ - The picture surface recedes just as much in the 20th century as it did in the 15th. The techniques of making pictures have hardly changed.
+ - Passion lies between one mark and the next, and also within all of them.
+ - A collection makes its own demands. Many artists have been collectors. I think of it rather as an illness. I felt it was using up too much energy.
+ - I am isolated as an artist, not as a person.
+ - A painting is finished when the subject comes back, when what has caused the painting to be made comes back as an object.
+ - I want my pictures to be things. I want them to be made up of marks that are physically and individually self-sufficient.
+ - I find old copies of National Gallery catalogues, which are written in the dryest possible prose, infinitely soothing.
+ - I never think that anything I do is courageous.
+ - You keep on balancing and balancing and balancing until the picture wins, because then the subject’s turned into the picture.
+ - It is simply impossible to control a large painting with the edge in the same way that you can control a small one.
+ - Eventually, a collection ceases to be a personal indulgence and assumes its own identity. In fact, it becomes a thing in its own right – rather like Frankenstein’s monster.
+ - I’m very envious of the few artists who are any good and still do portraits.
+
+28 quotes

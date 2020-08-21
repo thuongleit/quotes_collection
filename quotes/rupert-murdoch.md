@@ -1,0 +1,78 @@
+ - The world is changing very fast. Big will not beat small anymore. It will be the fast beating the slow.
+ - Don’t let’s lose sight of what creates wealth. It is open markets, it is capitalism.
+ - Money is not the motivating force. It’s nice to have money, but I don’t live high. What I enjoy is running the business.
+ - I’m a catalyst for change. You can’t be an outsider and be successful over 30 years without leaving a certain amount of scar tissue around the place.
+ - We have no intention of failing. The only question is how great a success we’ll have.
+ - If you want to judge my thinking, look at The Sun.
+ - Successful workers will be those who embrace a lifetime of learning. Those who don’t will be left behind.
+ - I felt that it’s best just to be as transparent as possible.
+ - Climate change poses clear, catastrophic threats. We may not agree on the extent, but we certainly can’t afford the risk of inaction.
+ - So long as I can stay mentally alert – inquiring, curious – I want to keep going. I love my wife and my children, but I don’t want to sit around at home with them. We go on safaris and things like that. I can do that for a couple of weeks a year. I’m just not ready to stop, to die.
+ - I would like to be remembered, if I am remembered at all, as being a catalyst for change in the world, change for good.
+ - Monopoly is a terrible thing, till you have it.
+ - In motivating people, you’ve got to engage their minds and their hearts. I motivate people, I hope, by example – and perhaps by excitement, by having productive ideas to make others feel involved.
+ - I can go into restaurants and a whole table will get up and clap if they recognize me, because they love Fox News. Other places – or even the same place – people will turn the other way.
+ - When you’re a catalyst for change, you make enemies – and I’m proud of the ones I’ve got.
+ - We’ve got to get rid of the fear of failure in this country. In America, people start things, fail and shake themselves down and start things again. The animal spirit of capitalism is stronger there.
+ - The buck stops with the guy who signs the checks.
+ - Why is Jewish owned press so consistently anti-Israel in every crisis?
+ - The current days of the Internet will soon be over.
+ - You can’t build a strong corporation with a lot of committees and a board that has to be consulted every turn. You have to be able to make decisions on your own.
+ - Our reputation is more important than the last hundred million dollars.
+ - Most newspaper companies still have their heads in the sand, but other media companies are aggressive.
+ - The buck stops with me, but I can tick off dozens of very good senior executives that are responsible for hundreds or thousands of people who work for me.
+ - No one’s going to be able to operate without a grounding in the basic sciences. Language would be helpful, although English is becoming increasingly international. And travel. You have to have a global attitude.
+ - Can we change the world? No, but hell, we can all try.
+ - We could make a difference just by holding our emissions steady as our businesses continue to grow. But that doesn’t seem to be enough: we want to go all the way to zero. Today, I am announcing our intention to be carbon neutral, across all our businesses, by 2010.
+ - It’s a libel to say that I use my newspapers to support my other business interests. The fact is, I haven’t got any other business interests.
+ - I’ve always been more interested in the content of our newspapers, political positions day to day, the thrill of communicating with people through words that I am in the pure business aspects.
+ - One thing I resent is the slur that I just support political candidates because of the business.
+ - CNN is pretty consistently on the left, if you look at their choice of stories, what they play up. It’s not what they say. It’s what they highlight.
+ - I’m not an economist and we all know economists were created to make weather forecasters look good.
+ - The Internet has been the most fundamental change during my lifetime and for hundreds of years.
+ - My father left me with a clear sense that the media was something different.
+ - I challenge anybody to show me an example of bias in Fox News Channel.
+ - Climate change and energy use are global problems. News Corp is a global company. Our operations affect the environment all over the world.
+ - I think a newspaper should be provocative, stir ’em up, but you can’t do that on television. It’s just not on.
+ - I did not come all this way not to interfere.
+ - You’ve got to look for a gap, where competitors in a market have grown lazy and lost contact with the readers or the viewers.
+ - The Internet has been the most fundamental change during my lifetime and for hundreds of years. Someone the other day said, “It’s the biggest thing since Gutenberg,” and then someone else said “No, it’s the biggest thing since the invention of writing.”
+ - Content is not just king, it is the emperor of all things electronic.
+ - Advances in the technology of telecommunications have proved an unambiguous threat to totalitarian regimes everywhere.
+ - All forms of government ultimately are not going to succeed in trying to control or censor the Internet.
+ - Imagine if we succeed in inspiring our audiences to reduce their own impacts on climate change by just one percent. That would be like turning the State of California off for almost two months.
+ - I’m not a knee-jerk conservative. I passionately believe in free markets and less government, but not to the point of being a libertarian.
+ - Satellite broadcasting makes it possible for information-hungry residents of many closed societies to bypass state-controlled television channels.
+ - People are reading news for free on the web, that’s got to change.
+ - Since when are Egyptians not white? All I know are.
+ - Journalists should think of themselves as outside the Establishment, and owners can’t be too worried about what they’re told at their country clubs.
+ - Look, the whole world wants to modernize, and when you look to what they mean by modernizing, they mean Americanize. Would a modern Greek prefer to live in Orange County than Piraeus? Yes. Absolutely.
+ - As with all politically lead governments, foreign investment is the slowest in the media section. Politicians are somewhat paranoid about the media but we still think it’s worthwhile.
+ - Everybody at home speaks mandarin except me.
+ - I was absolutely shocked, appalled and ashamed when I heard about the Milly Dowler case only two weeks ago.
+ - Keith Olbermann is trying to make a business out of destroying Bill O’Reilly. He’s done certain things to Bill O’Reilly that I believe were way over the line. I think that’s bad behavior. But it’s okay for him to criticize Bill. And Bill shouldn’t be so sensitive. He should ignore that.
+ - When I hear something going wrong, I insist on it being put right.
+ - Endemic is a very hard, a very wide ranging word. I also have to be very careful not to prejudice the course of justice that is taking place now.
+ - There is so much media now with the Internet and people, and so easy and so cheap to start a newspaper or start a magazine, there’s just millions of voices and people want to be heard.
+ - I feel that people I trusted – I don’t know who, on what level – have let me down, and I think they have behaved disgracefully, and it’s for them to pay. And I think, frankly, that I’m the best person to see it through.
+ - We must have sweeping, generous immigration reform, make existing law- abiding Hispanics welcome. Most are hard working family people.
+ - I think you have a danger of regulating, putting regulations in place which will mean there will be no press in 10 years to regulate.
+ - We’re not a manufacturer, or an airline, but we do use energy. Printing and publishing newspapers, producing films, broadcasting television signals, operating 24-hour newsrooms. It all adds carbon to the atmosphere.
+ - As an immigrant, I chose to live in America because it is one of the freest and most vibrant nations in the world. And as an immigrant, I feel an obligation to speak up for immigration policies that will keep America the most economically robust, creative and freedom-loving nation in the world.
+ - Elections are when you have to make a choice. Perfection not often attainable!
+ - If the head man in a company is not working 12 hours a day, doing things, taking risks, but also standing with his people in the trenches at the most difficult of times, then the company loses something.
+ - I think the important thing is that there be plenty of newspapers, with plenty of different people controlling them, so that there are a variety of viewpoints, so there is a choice for the public. This is the freedom of the press that is needed.
+ - Why would I spend $5 billion for something in order to wreck it?
+ - I am amazed that CNN can’t get its act together.
+ - I’m a strange mixture of my mother’s curiosity; my father, who grew up the son of the manse in a Presbyterian family, who had a tremendous sense of duty and responsibility; and my mother’s father, who was always in trouble with gambling debts.
+ - I’ve operated and launched newspapers all over the world.
+ - I’m not ashamed of any of my papers at all and I’m rather sick of snobs that tell us that they’re bad papers, snobs who only read papers that no one else wants. I doubt if they read many papers at all.
+ - I have never asked a prime minister for anything.
+ - My worry about the New York Times is that it’s got the only position as a national elitist general-interest paper. So the network news picks up its cues from the Times. And local papers do too. It has a huge influence. And we’d love to challenge it.
+ - Much of what passes for quality on British television is no more than a reflection of the narrow elite which controls it and has always thought that its tastes were synonymous with quality.
+ - The UK desperately needs less government and freer markets.
+ - The reality is that we’ve seen the last of any serious price wars for a long time. I don’t think any of the others could afford it, certainly not on a long-term basis.
+ - We’ve got to lift our game tremendously. We’ll sell our business news and information in print, we’ll sell it to anyone who’s got a cable system, and we’ll sell it on the Web.
+ - Size and synergies between the different segments of the company matter. As far as we are concerned, the Internet is broadening our opportunity, as well as for other big media companies with huge resources in sports, entertainment and news. There’s just more opportunity.
+
+76 quotes

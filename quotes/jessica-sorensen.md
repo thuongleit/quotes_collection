@@ -1,0 +1,78 @@
+ - Seize the day, take hold of it, and make it whatever you want.
+ - But we all make mistakes. It’s how we fix them that makes us who we are.
+ - It’s amazing how the things you remember forever are the things you’d rather forget and the things you desperately want to grasp onto seem to slip away like sand in the wind.
+ - You don’t forget. You just move past it. Let go. Be who you were supposed to be instead of who they make you feel like you should be.
+ - I love you, Ella May and nothing will ever change that. You can push me away -run away – and I will still love you.
+ - But sometimes stuff happens and we find ourselves lost, and suddenly we’re standing in a place we don’t recognize and can’t remember walking-or falling-there, and we’re unsure how to get back or if we even want to.
+ - The first time I’d ever felt happy-and I mean ever-was when I’d been lying in my bed, staring out my window, watching the stars shine harmoniosly with one another.
+ - I write the word solitude on my wall and then below it: Do you know me at all? Are my words just air? Is my heart easy to spare?
+ - In the existence of our lives, there is a single coincidence that brings us together and for a moment, our hearts beat as one.
+ - So I let my shame own me, kill me, wilt me away into a thousand dead flakes, knowing if I kept it all in, she would never have to learn the dirtiness that was forever inside me – the bad, the ugly, the twisted. She could go on living her life happy, just like she deserved.
+ - Because people fear those who are different. And fear can make people do stupid things.
+ - Isn’t everyone hiding something?
+ - You’ve always had a good grasp on what’s right and wrong. You just have a hard time admitting that sometimes you choose the wrong.
+ - Just because it’s broken doesn’t mean it loses its importance.
+ - There is something about someone trusting you enough with their secrets that it makes it easier to trust them. It’s like they’re opening their heart and in return yours should open up to them, too.
+ - You can’t just change who you are on the outside and expect it to change who you are on the inside.
+ - I cling to him like he’s what keeps me thriving. Because he is.
+ - You left me, ripped out my heart, and then came back acting like a robot, and you know what? We made it through. You and I, good or bad, belong together. We make each other whole.
+ - I just let the pain take over, allowing it to numb the pain of being left behind.
+ - I take my time because I love how it feels to carry her, the way she needs me, the way I need to protect her.
+ - I swear love is the most powerful emotion thats ever existed. It owns people, devours them, tears them open and bleeds them out from the inside, making them defenseless to everything. Hate is the same way. Hate takes your levelheadedness and even your sanity away from you.
+ - I’ve never felt like this before, with anyone. It’s against the rules of surviving.
+ - Love you more than life itself, more than the sun and the air. You own my soul, Ella May. Micha.
+ - Once a blooming red rose, full of streaming life in its veins. Now a wilting black petal rupturing with death and pain.
+ - Please don’t go. I just got you back.
+ - I’m pretty certain my worthless heart shatters inside my chest, and she steals one of the pieces. If it didn’t already belong to someone else I probably would have handed her all the pieces right then and there.
+ - It’s a moment I’ll remember forever, because it belongs to me.
+ - Sometimes the best things are the ones that aren’t planned, the decisions made while living in the moment.
+ - I sometimes feel like life is just one big test to see how long we can survive.
+ - So she searches for light, only to realize it’s in her, like an ember equipped to ignite.
+ - Even though I knew she wasn’t going to jump, seeing her standing on the ledge made me realize that I want and need her in my life forever. She challenges me, pushes me, and pisses me off, but I wouldn’t have it any other way.
+ - It’s what’s buried deep inside that frightens me because it’s broken, like a shattered mirror.
+ - I walk out the door with a heavy feeling in my heart as another secret falls on top of it.
+ - It hurts to be around life. People don’t understand how close death is, right over their shoulders, around the block, at the end of a street. It’s everywhere.
+ - The vertical lines that run down his forearms are the most disturbing, thick and jagged as if someone took a razor to his skin. I wish I could run my fingers along them and remove the pain and memories that are attached to them.
+ - Maybe if I try hard enough, we’ll fall into each other and become one single person and we can share our pain instead of carrying it by ourselves.
+ - But I trusted him once and I decide to do it again. I just pray to God he doesn’t shove me down and break me, because I’m already in too many pieces and I just don’t know how much more breaking I can take.
+ - You think that just because you left, it would change how I feel? Well, guess what? You’re wrong. I can’t help how I feel. I’m still in-.
+ - In the midst of a foggy field, the answers are hidden But the impossible journey deems them forbidden. The Reaper of Death, the Angel of Life. They walk together in day and night.
+ - That’s you. Callie, you’re the only person that’s ever made me feel happy about anything. That night you saved me, you changed something in me – you made me want to live.
+ - And I don’t want you to be anywhere but here.
+ - Like a feather in a dust storm, with no direction The Raven flies through life, helpless and omitted Until night declares and the wind expires. Then it flies to the land of stones and etchings And becomes an Ember, breaking away.
+ - I fall down and my palms split open against the gravel. Injuries on the outside are easy to endure and I get up without hesitation.
+ - Blinded by the opaque veil of mortality, her eyes are always sealed, like a tomb She wants to know- wants to feel that fire, the brightness of the moon So she searches for light, only to realize its in her, like an ember equipped to ignite.
+ - The cemetery is my sense of comfort, my sanctuary in a world of darkness, the one piece of light that i have in my life.
+ - Just because it’s broken doesn’t mean it loses its importance. And I figured I’d give it to you one day when you realized it was okay to make mistakes.
+ - No one has ever needed me before because I’ve never let anyone that far in.
+ - I realize that even through the hard times I’m sure we’ll face, I’ll never be able to walk away from her. -Micha.
+ - I’m conflicted. On one hand, I want to stay in and catch up on The Vampire Diaries, but there’s this really awesome restaurant I’ve been wanting to try out.
+ - I’ve missed you, Ella May.
+ - Death. It’s around more than people realize. Because no one wants to talk about it or hear about it. It’s too sad. Too painful. Too hard. The list of reasons is endless.
+ - Pretend all you want, pretty girl. You and I know that deep down you’re secretly glad to be pressed up to my body.
+ - Everyone will hurt you if you let them in.
+ - Come with me somewhere. Please. I’ve been waiting eight months to talk to you.
+ - People are running to and from class and I just want to yell, Slow down and wait for the world to catch up!
+ - When his lips return to mine, it’s not just about lust or desire – it’s about making us whole.
+ - When it all comes down to it, it’s just me and her against the world. Always has been.
+ - When he inches into me, I feel the pain, but I also feel the invisible chains around my wrists break and shatter.
+ - Are you talking to her or me, because I just can’t tell.
+ - I can handle scars, especially one’s on the outside.
+ - He knows what I’m about to say – he always does. He is my best friend, my soul mate. In a perfect world, full of roses and sunshine we’d be together, but this is full of broken.
+ - I think the people who go through more can end up stronger in the long run. They have insight in to what a lot of people don’t have and a better understanding – they can be more open-minded. – Ella’s mother.
+ - I thought I’d saved Kayden that night at the pool house, but I was wrong. I just bought him time until the next windstorm swept through.
+ - There are no accusations with writing, no judgment, no shame, only freedom.
+ - I look into his eyes, no longer afraid what’s in them, but afriad I’ll lose what they carry.
+ - Always ask for the truth. Just make sure the time is right.
+ - I don’t believe that. I don’t believe that there are bad things about you. Only things that you think are bad.
+ - I’ve been at the place where it seems like the only way left is down.
+ - No. I just never wanted to throw them away. Even if they were broken. I still loved them.
+ - He tastes like mint and need, as he overpowers me with his tongue.
+ - I’ve never walked home wearing just a pink robe and a pair of slippers.
+ - I’m with you because I want to be with you.
+ - How am I supposed to move forward in life when everything important to me is motionless?
+ - You’re like my favorite song, Nova. The one that I never want to forget. That I want to play over and over again.
+ - I often wonder what drives people to do things. Whether it’s put into their minds at birth, or if it is learned as they grow. Maybe it’s even forced upon them by circumstances that are out of their hands. Does anyone have control over their lives or are we all helpless?
+ - I just don’t see the point of talking unless there’s something to say.
+
+76 quotes

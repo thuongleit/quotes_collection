@@ -1,0 +1,34 @@
+ - It’s amazing how a little tomorrow can make up for a whole lot of yesterday.
+ - I think a playwright must be his own dramaturg. I believe in a theater where the director and the playwright work together to create what they need.
+ - We’re all where we come from. We all have our roots.
+ - You can read ten books and finally come across one detail, and it’s like, “now everything else makes sense. Now I know where I am.”
+ - I believe that the imagination is the passport we create to take us into the real world. I believe the imagination is another phrase for what is most uniquely us.
+ - You don’t push the button that says “Now I will write something that resonates in time.” You don’t know. It’s what happens after a play is finished.
+ - The Atlantic Ocean was something then.
+ - I think that every year that the New York City Ballet is alive is worthy of celebration. Because otherwise the terrible thing is just that we take it for granted.
+ - The life of a dancer is tragically short. What is remarkable about the New York City Ballet is that it makes us forget that. Because it keeps the ballet alive.
+ - However, the moral center of New York City, I believe, is the New York City Ballet.
+ - I mean New York City is the financial capital of the world. It’s where all the money passes through, the Dow Jones, whatever, that’s where all the money goes.
+ - And it is always Easter Sunday at the New York City Ballet. It is always coming back to life. Not even coming back to life – it lives in the constant present.
+ - All the New York City Ballet does is hit beautiful home runs.
+ - Avoiding humiliation is the core of tragedy and comedy.
+ - Does any art have a practical value? People love to talk about how expensive a painting is. That’s the only way we can talk about paintings in this century.
+ - Ballet is always about the realm of possibilities, the realm of what the human body can do, what the human spirit can do. And it’s about listening, it’s about listening to remarkable music and how we respond to that.
+ - I don’t think about taking a risk. I think about how far can I go. How can I make myself. What are the risks I must create.
+ - People go to see beautiful paintings to see how much they cost. Wow. The practical value is that it shows you what the human spirit can do.
+ - What we’re dealt with hopefully is two arms, two eyes, two legs, a head, a heart. The variations, the extensions, the possibilities of the human body, what that can do.
+ - Sometimes you have to protect the life of the play. It seems like spelling out mysterious, musical details can destroy a play by making the motivations too clear, too simplex.
+ - You cannot write to resonate twenty or thirty or forty years from now. You only can write for that very day, but whatever happens is all gravy.
+ - The rich live hand-to-mouth too-just on a higher level.
+ - There’s no American playwright after 1945 who wasn’t profoundly affected – who didn’t have their DNA changed by Tennessee Williams.
+ - And what would be great numbers in a Broadway show are now on stage of the New York City Ballet.
+ - Does the New York City Ballet affect other places? Yeah, it lets people know they should come to New York.
+ - Show business offers more solid promises than Catholicism.
+ - I think of the New York City Ballet as the Yankees without George Steinbrenner.
+ - We live in a world where amnesia is the most wished-for state. When did history become a bad word?
+ - Oh, I never use a seat belt. I don’t believe in gravity.
+ - You can’t kind of take away, you either do or you don’t. If you kind of take away something you’re a failure.
+ - The only riots were the people trying to get tickets.
+ - I wanted to be a Bride of Christ but I guess now I’m a young divorcee.
+
+32 quotes

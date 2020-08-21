@@ -1,0 +1,23 @@
+ - I’m too tired to speak in English...
+ - Football will always be my foremost passion.
+ - The prospect of going home is very appealing.
+ - It never ceases to amaze me the lengths that some people will go to to try and speak to me or meet me.
+ - I am hoping to film another ad in the summer for Carte Noire.
+ - I have been keeping myself fit. I am going on holiday next week in the Mediterranean so that I can really unwind after the football season and have a rest.
+ - I played at the Sainte Maxime Beach Soccer Tournament, which was brilliant fun as usual.
+ - I am feeling razor-sharp. Training sessions are really good. I feel that I am in peak condition. I know that I am ready for action.
+ - I have found a flat on Merseyside and am settling down here. If I can keep playing and get back to full match fitness, I know I have a lot to offer still.
+ - I have been looking after the children. My wife has taken time off.
+ - To spread a nice and good message to restore confidence among the fans around the world, because the fans are the most important thing.
+ - I loved being back out on the pitch. Although I have not been in full training, I felt pretty good.
+ - White Hart Lane was always a place where I felt I belonged.
+ - I am still feeling my calf strain, so I have been unable to train this week. I will again have to sit out the weekend action, but the lads are climbing ever higher to safety.
+ - Nice, the club where I started my career in 1983, want me to see out my playing days there.
+ - I know the game wasn’t a classic, but the night was about more than that-it was about bringing back the memories and raising money for former heroes who have now fallen on hard times.
+ - I have been inundated with offers to move into a career in television or film, and these, too, are tempting.
+ - I went see the horror thriller, Hannibal. I am a massive fan of Anthony Hopkins. He is superb in the film.
+ - English football has just had a transfer window imposed for the first time, so it will be interesting to see how managers cope with the squads they have until it re-opens.
+ - I have recently started acting lessons in south France, and I intend to commence acting lessons at Rada.
+ - I have shaved my head. My flowing locks are now quite a bit shorter.
+
+21 quotes

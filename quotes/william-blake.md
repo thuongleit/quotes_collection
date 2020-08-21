@@ -1,0 +1,370 @@
+ - To see a world in a grain of sand and heaven in a wild flower Hold infinity in the palms of your hand and eternity in an hour.
+ - If the doors of perception were cleansed everything would appear to man as it is, infinite.
+ - Think in the morning. Act in the noon. Eat in the evening. Sleep in the night.
+ - I must create a system or be enslaved by another mans; I will not reason and compare: my business is to create.
+ - You never know what is enough unless you know what is more than enough.
+ - What is now proved was once only imagined.
+ - He who desires, but acts not, breeds pestilence.
+ - He who binds to himself a joy Does the winged life destroy; But he who kisses the joy as it flies Lives in eternity’s sun rise.
+ - Hindsight is a wonderful thing but foresight is better, especially when it comes to saving life, or some pain!
+ - Some are born to sweet delight, Some are born to endless night.
+ - Gratitude is heaven itself.
+ - You become what you behold.
+ - Holy, holy, holy is the Lord God Almighty !
+ - The road of excess leads to the palace of wisdom.
+ - The fool who persists in his folly will become wise.
+ - In the universe, there are things that are known, and things that are unknown, and in between, there are doors.
+ - This life’s dim windows of the soul Distorts the heavens from pole to pole And leads you to believe a lie When you see with, not through, the eye.
+ - The world of imagination is the world of eternity. It is the divine bosom into which we shall all go after death of the vegetative body.
+ - Every Night and every Morn Some to Misery are born. Every Morn and every Night Some are born to Sweet Delight, Some are born to Endless Night.
+ - It is easier to forgive an enemy than to forgive a friend.
+ - The true method of knowledge is experiment.
+ - Tyger! Tyger! burning bright In the forests of the night, What immortal hand or eye Could frame thy fearful symmetry?
+ - In your own bosom you bear your heaven and earth, And all you behold, though it appears without, It is within, in your imagination, Of which this world of mortality is but a shadow.
+ - The imagination is not a state: it is the human existence itself.
+ - Execution is the chariot of genius.
+ - Energy is eternal delight.
+ - Gratitude is heaven itself; there could be no heaven without gratitude.
+ - The busy bee has no time for sorrow.
+ - Prisons are built with stones of Law. Brothels with the bricks of religion.
+ - Each man must create his own system or else he is a slave to another mans.
+ - A robin redbreast in a cage Puts all heaven in a rage.
+ - How can a bird that is born for joy Sit in a cage and sing?
+ - No bird soars too high if he soars with his own wings.
+ - For everything that lives is holy, life delights in life.
+ - Do what you will, this world’s a fiction and is made up of contradiction.
+ - Nature has no outline. Imagination has.
+ - Why stand we here trembling around, calling on God for help, and not ourselves, in whom God dwells?
+ - One Power alone makes a Poet: Imagination. The Divine Vision.
+ - To generalize is to be an idiot.
+ - The man who never alters his opinions is like standing water, and breeds reptiles of the mind.
+ - Without Unceasing Practice nothing can be done. Practice is Art. If you leave off you are lost.
+ - Eternity is in love with the productions of time.
+ - The eye altering, alters all.
+ - I see through my eyes, not with them.
+ - Love is weak when there is more doubt than there is trust, but love is most strong when you learn to trust even with all the doubts. If a thing loves, it is infinite.
+ - I have conversed with the spiritual Sun. I saw him on Primrose Hill.
+ - As a man is, so he sees.
+ - A truth that’s told with bad intent beats all the lies you can invent.
+ - God is the poetic genius in each of us.
+ - I am in you and you in me, mutual in divine love.
+ - The eagle never lost so much time as when he submitted to learn of the crow.
+ - Knowledge is Life with wings.
+ - He who kisses joy as it flies by will live in eternity’s sunrise.
+ - Enlightenment means taking full responsibility for your life.
+ - And we are put on this earth a little space that we might learn to bear the beams of love.
+ - Art is the tree of life. Science is the tree of death.
+ - The roaring of lions, the howling of wolves, the raging of the stormy sea, and the destructive sword, are portions of eternity, too great for the eye of man.
+ - A fool sees not the same tree that a wise man sees.
+ - Celebrate your existence!
+ - For the Eye altering alters all; The Senses roll themselves in fear And the flat Earth becomes a Ball.
+ - Improvement makes strait roads, but the crooked roads without Improvement, are roads of Genius.
+ - I myself do nothing. The Holy Spirit accomplishes all through me.
+ - Pride is a personal commitment. It is an attitude which separates excellence from mediocrity.
+ - Man was made for joy and woe Then when this we rightly know Through the world we safely go. Joy and woe are woven fine A clothing for the soul to bind.
+ - Great things are done when men and mountains meet.
+ - He who has few things to desire cannot have many to fear.
+ - Love seeketh not itself to please, nor for itself hath any care, but for another gives its ease, and builds a Heaven in Hell’s despair.
+ - Opposition is true friendship.
+ - They who forgive most shall be most forgiven.
+ - God only acts and is, in existing beings or men.
+ - Joy and woe are woven fine, A clothing for the soul divine. Under every grief and pine Runs a joy with silken twine.
+ - I was angry with my friend: I told my wrath, my wrath did end. I was angry with my foe: I told it not, my wrath did grow.
+ - For Mercy has a human heart Pity, a human face: And Love, the human form divine, And Peace, the human dress.
+ - When I tell the truth, it is not for the sake of convincing those who do not know it, but for the sake of defending those that do.
+ - When a sinister person means to be your enemy, they always start by trying to become your friend.
+ - Bring me my bow of burning gold: Bring me my arrows of desire: Bring me my spear: O clouds, unfold! Bring me my chariot of fire.
+ - Imitation is criticism.
+ - Man has no Body distinct from his Soul; for that called Body is a portion of Soul discerned by the five Senses, the chief inlets of Soul in this age.
+ - If a thing loves, it is infinite.
+ - The Woman that does not love your Frowns Will never embrace your smiles.
+ - How can the bird that is born for joy Sit in a cage and sing? How can a child, when fears annoy, But droop his tender wing, And forget his youthful spring?
+ - What is grand is necessarily obscure to weak men. That which can be made explicit to the idiot is not worth my care.
+ - We are led to believe a lie When we see not through the eye.
+ - The thankful receiver bears a plentiful harvest.
+ - Innocence dwells with Wisdom, but never with ignorance...
+ - If the Sun and Moon should ever doubt, they’d immediately go out.
+ - To generalize is to be an idiot. To particularize is the alone distinction of merit. General knowledge are those knowledge that idiots possess.
+ - God appears, and God is Light, to those poor souls who dwell in Night; but does a Human Form display to those who dwell in realms of Day.
+ - In every cry of every man, In every infant’s cry of fear, In every voice, in every ban, The mind-forg’d manacles I hear.
+ - Those who restrain their desires, do so because theirs is weak enough to be restrained.
+ - Children of the future age Reading this indignant page Know that in a former time Love, sweet love, was thought a crime.
+ - Prudence is a rich, ugly, old maid courted by incapacity.
+ - The nakedness of woman is the work of God.
+ - I will not cease from mental fight Nor shall my sword sleep in my hand.
+ - I cry, Love! Love! Love! happy happy Love! free as the mountain wind!
+ - Where others see but the dawn coming over the hill, I see the soul of God shouting for joy.
+ - He whose face gives no light, shall never become a star.
+ - The ruins of time build mansions in eternity.
+ - Excessive sorrow laughs. Excessive joy weeps.
+ - Such, such were the joys When we all, girls and boys, In our youth time were seen On the Echoing Green.
+ - The Goddess Fortune is the devil’s servant, ready to kiss any one’s ass.
+ - The fox condemns the trap, not himself.
+ - All the destruction in Christian Europe has arisen from deism, which is natural religion.
+ - The cut worm forgives the plow.
+ - You’ve always had the power right there in your shoes, you just had to learn it for yourself.
+ - To some people a tree is something so incredibly beautiful that it brings tears to the eyes. To others it is just a green thing that stands in the way.
+ - The Sick Rose O Rose, thou art sick. The invisible worm That flies in the night In the howling storm Has found out thy bed Of crimson joy, And his dark secret love Does thy life destroy.
+ - Expect poison from the standing water.
+ - First thought is best in Art, second in other matters.
+ - You cannot have Liberty in this world without what you call Moral Virtue, and you cannot have Moral Virtue without the slavery of that half of the human race who hate what you call Moral Virtue.
+ - You throw the sand against the wind and the wind blows it back again.
+ - One thought fills immensity.
+ - I give you the end of a golden string, Only wind it into a ball, It will lead you in at Heaven’s gate Built in Jerusalem’s wall.
+ - The naked women’s body is a portion of eternity too great for the eye of man.
+ - A dog starved at his master’s gate Predicts the ruin of the state.
+ - Listen to the fool’s reproach! It is a kingly title!
+ - Exuberance is beauty.
+ - The fox provides for himself, but God provides for the lion.
+ - The worship of God is, Honouring his gifts in other men each according to his genius, and loving the greatest men best; those who envy or calumniate great men hate God, for there is no other God.
+ - Every wolf’s and lion’s howl Raises from Hell a human soul.
+ - O God, protect me from my friends, that they have not power over me. Thou hast giv’n me power to protect myself from thy bitterest enemies.
+ - May God us keep From Single vision and Newton’s sleep.
+ - The tigers of wrath are wiser than the horses of instruction.
+ - For I dance And drink and sing, Till some blind hand Shall brush my wing. If thought is life And strength and breath And the want Of thought is death Then am I A happy fly If I live Or if I die.
+ - If you have form’d a circle to go into, Go into it yourself, and see how you would do. They said this mystery never shall cease: The priest promotes war, and the soldier peace.
+ - Without contraries is no progression. Attraction and repulsion, reason and energy, love and hate, are necessary to human existence.
+ - Everything is beautiful in its own way. Exuberance is beauty.
+ - Truth can never be told so as to be understood and not be believed.
+ - The reason Milton wrote in fetters when he wrote of Angels and God, and at liberty when of Devils and Hell, is because he was a true poet and of the Devil’s party without knowing it.
+ - Work up imagination to the state of vision.
+ - I have no name: I am but two days old. What shall I call thee? I happy am, Joy is my name. Sweet joy befall thee!
+ - And I watered it in fears, Night and morning with my tears; And I sunned it with smiles, And with soft deceitful wiles.
+ - The weak in courage is strong in cunning.
+ - If Christianity was morality, Socrates would be the Saviour.
+ - Without contraries there is no progression.
+ - Where mercy, love, and pity dwell, there God is dwelling too.
+ - Little Lamb, who made thee? Dost thou know who made thee?
+ - Time is the Mercy of Eternity.
+ - Nothing is real beyond imaginative patterns men make of reality.
+ - To Mercy, Pity, Peace and Love All pray in their distress, And to these virtues of delight Return their thankfulness.
+ - When the stars threw down their spears, and watered heaven with their tears, did he smile his work to see? Did he who made the Lamb make thee?
+ - Nothing can be more contemptible than to suppose Public Records to be true.
+ - Better to shun the bait than struggle in the snare.
+ - If you would help another man, you must do so in minute particulars.
+ - To be an Error and to be Cast out is a part of God’s Design.
+ - As the caterpillar chooses the fairest leaves to lay her eggs on, so the priest lays his curse on the fairest joys.
+ - Hold infinity in the palm of your hand.
+ - I thought Love lived in the hot sunshine, But O, he lives in the moony light! I thought to find Love in the heat of day, But sweet Love is the comforter of night.
+ - The crow wished everything was black, the Owl, that everything was white.
+ - The pride of the peacock is the glory of God. The lust of the goat is the bounty of God. The wrath of the lion is the wisdom of God. The nakedness of woman is the work of God.
+ - The most sublime act is to set another before you.
+ - Drive your cart and plow over the bones of the dead.
+ - Heaven is in a grain of sand.
+ - Art can never exist without naked beauty displayed.
+ - There is a smile of love, And there is a smile of deceit, And there is a smile of smiles In which these two smiles meet.
+ - Dip him in the river who loves water.
+ - Prepare your hearts for Death’s cold hand! prepare Your souls for flight, your bodies for the earth; Prepare your arms for glorious victory; Prepare your eyes to meet a holy God! Prepare, prepare!
+ - In seed time learn, in harvest teach, in winter enjoy.
+ - Does the Eagle know what is in the pit Or wilt thou go ask the Mole? Can Wisdom be put in a silver rod, Or Love in a golden bowl?
+ - The soul of sweet delight, can never be defiled.
+ - The hours of folly are measured by the clock; but of wisdom, no clock can measure.
+ - The foundation of empire is art and science. Remove them or degrade them, and the empire is no more. Empire follows art and not vice versa as Englishmen suppose.
+ - Mere enthusiasm is the all in all.
+ - For all eternity, I forgive you and you forgive me.
+ - Mans desires are limited by his perceptions; none can desire what he has not perceived.
+ - Always be ready to speak your mind, and a base man will avoid you.
+ - He loves to sit and hear me sing, Then, laughing, sports and plays with me; Then stretches out my golden wing, And mocks my loss of liberty.
+ - Little fly, thy summer’s play My thoughtless hand has brushed away. Am not I a fly like thee? Or art not thou a man like me? For I dance and drink and sing, Till some blind hand shall brush my wing!
+ - Does a firm persuasion that a thing is so, make it so?
+ - Energy is the only life, and is from the body; and reason is the bound or outward circumference of energy. Energy is eternal delight.
+ - Kill not the moth nor butterfly, For the Last Judgement draweth nigh.
+ - And I made a rural pen, And I stained the water clear, And I wrote my happy songs Every Child may joy to hear.
+ - Since all the riches of this world May be gifts from the Devil and earthly kings, I should suspect that I worshipp’d the Devil If I thank’d my God for worldly things.
+ - And did those feet in ancient time Walk upon England’s mountains green? And was the holy Lamb of God On England’s pleasant pastures seen?
+ - He who makes his law a curse, by his own law shall surely die.
+ - Why a tender curb upon the youthful burning boy? Why a little curtain of flesh on the bed of our desire?
+ - The atoms of Democritus And Newton’s particles of light Are sands upon the Red Sea shore, Where Israel’s tents do shine so bright.
+ - The cistern contains: The fountain overflows.
+ - Active Evil is better than Passive Good.
+ - Every mortal loss is an immortal gain.
+ - The eye sees more than the heart knows.
+ - Joys impregnate. Sorrows bring forth.
+ - The hand of Vengeance found the Bed To which the Purple Tyrant fled The iron hand crush’d the tyrant’s head And became Tyrant in his stead.
+ - It is an easy thing to talk of patience to the afflicted.
+ - Abstinence sows sand all over The ruddy limbs and flaming hair, But desire gratified Plants fruits of life and beauty there.
+ - I was in a Printing-house in Hell, and saw the method in which knowledge is transmitted from generation to generation.
+ - My mother groaned, my father wept, into the dangerous world I leapt.
+ - England! awake! awake! awake! Jerusalem thy sister calls! Why wilt thou sleep the sleep of death And close her from thy ancient walls?
+ - O Winter! bar thine adamantine doors: The north is thine; there hast thou build thy dark, Deep-founded habitation. Shake not thy roofs, Nor bend thy pillars with thine iron car.
+ - The human mind cannot go beyond the gift of God, the Holy Ghost. To suppose that art can go beyond the finest specimens of art that are now in the world is not knowing what art is; it is being blind to the gifts of the spirit.
+ - When thou seest an eagle, thou seest a portion of genius; lift up thy head!
+ - He who would do good to another must do it in Minute Particulars: general Good is the plea of the scoundrel, hypocrite, and flatterer, for Art and Science cannot exist but in minutely organized Particulars.
+ - Piping down the valleys wild, Piping songs of pleasant glee, On a cloud I saw a child, And he laughing said to me: “Pipe a song about a Lamb.” So I piped with merry cheer; “Piper, pipe that song again.” So I piped; he wept to hear.
+ - The vision of Christ that thou dost see Is my vision’s greatest enemy.
+ - A musician, an artist, an architect: the man or woman who is not one of these is not a Christian.
+ - The bird a nest, the spider a web, man friendship.
+ - Time is the mercy of Eternity; without Time’s swiftness Which is the swiftest of all things, all were eternal torment.
+ - Come o’er the eastern hills, and let our winds Kiss thy perfumed garments; let us taste Thy morn and evening breath; scatter thy pearls Upon our love-sick land that mourns for thee.
+ - He who loves his enemies betrays his friends; this surely is not what Jesus meant.
+ - Then my verse I dishonor, my pictures despise, my person degrade and my temper chastise; and the pen is my terror, the pencil my shame; and my talents I bury, and dead is my fame.
+ - What seems to be, is, to those to whom it seems to be, and is productive of the most dreadful consequences to those to whom it seems to be, even of torments, despair, eternal death.
+ - Wisdom is sold in a desolate marketplace where none can come to buy.
+ - O Earth, O Earth, return! Arise from out the dewy grass; Night is worn; And the morn Rises from the slumbrous mass.
+ - Desperate remorse swallows the present in a quenchless rage.
+ - Rhetoric completes the tools of learning. Dialectic zeros in on the logic of things, of particular systems of thought or subjects. Rhetoric takes the next grand step and brings all these subjects together into one whole.
+ - General knowledges are those knowledges that idiots possess.
+ - A dead body revenges not injuries.
+ - For everything exists and not one sigh nor smile nor tear, one hair nor particle of dust, not one can pass away.
+ - The stars are threshed, and the souls are threshed from their husks.
+ - The best wine is the oldest, the best water the newest.
+ - The look of love alarms Because ’tis filled with fire; But the look of soft deceit Shall sin the lover’s hire.
+ - Struggling in my father’s hands, Striving against my swaddling bands, Bound and weary, I thought best To sulk upon my mother’s breast.
+ - The moon, like a flower in heaven’s high bower, with silent delight sits and smiles on the night.
+ - The child’s toys and the old man’s reasons are the fruits of two seasons.
+ - To create a little flower is the labour of ages.
+ - As a man is, so he sees. As the eye is formed, such are its powers.
+ - For where’er the sun does shine, And where’er the rain does fall, Babe can never hunger there, Nor poverty the mind appall.
+ - If the lion was advised by the fox, he would be cunning.
+ - Pay attention to minute particulars. Take care of the little ones. Generalization and abstraction are the plea of the hypocrite, scoundrel, and knave.
+ - Sooner strangle an infant in its cradle than nurse unacted desires.
+ - When my mother died I was very young, And my father sold me while yet my tongue Could scarcely cry weep weep weep weep. So your chimneys I sweep, and in soot I sleep.
+ - Reason, or the ratio of all we have already known, is not the same that it shall be when we know more.
+ - I have mental joys and mental health, Mental friends and mental wealth, I’ve a wife that I love and that loves me; I’ve all but riches bodily.
+ - Imagination is the real and eternal world of which this vegetable universe is but a faint shadow.
+ - A good local pub has much in common with a church, except that a pub is warmer, and there’s more conversation.
+ - Without minute neatness of execution, the sublime cannot exist! Grandeur of ideas is founded on precision of ideas.
+ - The countless gold of a merry heart, The rubies and pearls of a loving eye, The indolent never can bring to the mart, Nor the secret hoard up in his treasury.
+ - One law for lion and ox is oppression.
+ - The Old and New Testaments are the Great Code of Art.
+ - More! More! is the cry of a mistaken soul.
+ - Lo! now the direful monster, whose skin clings To his strong bones, strides o’er the groaning rocks: He withers all in silence, and his hand Unclothes the earth, and freezes up frail life.
+ - He who has suffered you to impose on him knows you.
+ - The Bat that flits at close of Eve Has left the Brain that won’t believe. The Owl that calls upon the Night Speaks the Unbeliever’s fright.
+ - As I was walking among the fires of Hell, delighted with the enjoyments of Genius; which to Angels look like torment and insanity, I collected some of their Proverbs.
+ - He who does not imagine in stronger and better lineaments, and in stronger and better light than his perishing and mortal eye can see, does not imagine at all.
+ - The lamb misused breeds public strife And yet forgives the butcher’s knife.
+ - The generations of men run on in the tide of time, but leave their destined lineaments permanent for ever and ever.
+ - The man who never in his mind and thoughts travel’d to heaven is no artist.
+ - Where lambs have nibbled, silent moves the feet of angels bright; unseen they pour blessing, and joy without ceasing, on each bud and blossom, and each sleeping bosom.
+ - Innate ideas are in every man, born with him; they are truly himself. The man who says that we have no innate ideas must be a fool and knave, having no conscience or innate science.
+ - Angels are happier than men and devils, because they are not always prying after good and evil in one another, and eating the tree of knowledge for Satan’s gratification.
+ - Every thing possible to be believ’d is an image of truth.
+ - The apple tree never asks the beech how he shall grow, nor the lion, the horse, how he shall take his prey.
+ - Praises reap not! Joys laugh not! Sorrows weep not!
+ - Bring me an axe and spade, Bring me a winding-sheet; When I my grave have made Let winds and tempests beat: Then down I’ll lie as cold as clay. True love doth pass away!
+ - The spirits of the air live on the smells Of fruit; and joy, with pinions light, roves round The gardens, or sits singing in the trees...
+ - Art degraded, Imagination denied.
+ - When the sun rises, do you not see a round disc of fire somewhat like a guinea? O no, no, I see an innumerable company of the heavenly host crying Holy, Holy, Holy is the Lord God Almighty.
+ - Why cannot the ear be closed to its own destruction? Or the glistening eye to the poison of a smile?
+ - What is the price of experience? Do men buy it for a song? Or wisdom for a dance in the street? No, it is bought with the price of all the man hath, his house, his wife, his children.
+ - Shame is pride’s cloak.
+ - Mutual forgiveness of each vice. Such are the Gates of Paradise.
+ - The vision of Christ that thou dost see is my vision’s greatest enemy. Both read the Bible day and night, but thou read’st black where I read white. His seventy disciples sent against religion and government .
+ - A tyrant is the worst disease, and the cause of all others.
+ - The fields from Islington to Marybone, To Primrose Hill and Saint John’s Wood, Were builded over with pillars of gold; And there Jerusalem’s pillars stood.
+ - When nations grow old the Arts grow cold And commerce settles on every tree.
+ - Dear Mother, dear Mother, the Church is cold, But the Ale-house is healthy and pleasant and warm.
+ - I am under the direction of messengers from Heaven daily and nightly.
+ - Silent as despairing love, and strong as jealousy...
+ - There is a place where Contrarieties are equally True...
+ - If you trap the moment before it’s ripe, The tears of repentence you’ll certainly wipe; But if once you let the ripe moment go You can never wipe off the tears of woe.
+ - Poetry fettered, fetters the human race. Nations are destroyed or flourish in proportion as their poetry, painting, and music are destroyed or flourish.
+ - All wholesome food is caught without a net or trap.
+ - Like a fiend in a cloud, With howling woe After night I do crowd And with night will go; I turn my back to the east, From whence comforts have increased; For light cloth seize my brain With frantic pain.
+ - I love hanging and drawing and quartering Every bit as well as war and slaughtering.
+ - My silks and fine array, My smiles and languished air, By love are driv’n away And mournful lean Despair Brings me yew to deck my grave: Such end true lovers have.
+ - The Man who pretends to be a modest enquirer into the truth of a self-evident thing is a Knave.
+ - There can be no Good Will. Will is always Evil; it is persecution to others or selfishness.
+ - Poetry fettered fetters the human race.
+ - Knowledge of ideal beauty is not to be acquired. It is born with us. Innate ideas are in every man, born with him; theyare truly himself.
+ - Fun I love, but too much fun is of all things the most loathsome. Mirth is better than fun, and happiness is better than mirth.
+ - My mother bore me in the southern wild, And I am black, but O! my soul is white; White as an angel is the English child, But I am black as if bereaved of light.
+ - The Vision of Christ that thou dost see, Is my vision’s greatest enemy. Thine is the Friend of all Mankind, Mine speaks in Parables to the blind. Thine loves the same world that mine hates, Thy heaven-doors are my hell gates.
+ - The strongest poison ever known came from Caesar’s laurel crown.
+ - He who pretends to be either painter or engraver without being a master of drawing is an imposter.
+ - What is it men in women do require: The lineaments of gratified desire. What is it women do in men require: The lineaments of gratified desire.
+ - Since the French Revolution Englishmen are all intermeasurable one by another, certainly a happy state of agreement to which I forone do not agree.
+ - Both read the Bible day and night, but thou read black where I read white.
+ - Travelers repose and dream among my leaves.
+ - The grave is Heaven’s golden gate, And rich and poor around it wait; O Shepherdess of England’s fold, Behold this gate of pearl and gold!
+ - He who shall hurt the little wren Shall never be beloved by men.
+ - Tools were made and born were hands, Every farmer understands.
+ - Each man is haunted until his humanity awakens.
+ - But to go to school in a summer morn, O! It drives all joy away; Under a cruel eye outworn, The little ones spend the day In sighing and dismay.
+ - Christianity is art and not money. Money is its curse.
+ - There is no mistake so great as the mistake of not going on.
+ - The Errors of a Wise Man make your Rule Rather than the Perfections of a Fool.
+ - We are not meant to resolve all contradictions but to live with them and rise above them.
+ - The inquiry in England is not whether a man has talents and genius, but whether he is passive and polite and a virtuous ass and obedient to noblemen’s opinions in art and science. If he is, he is a good man. If not, he must be starved.
+ - It is not because angels are holier than men or devils that makes them angels, but because they do not expect holiness from one another, but from God only.
+ - To Chloe’s breast young Cupid slily stole, But he crept in at Myra’s pocket-hole.
+ - The person who does not believe in miracles surely makes it certain that he or she will never take part in one.
+ - Sweet babe, in thy face Soft desires I can trace, Secret joys and secret smiles, Little pretty infant wiles.
+ - Enthusiastic Admiration is the first Principle of Knowledge and its last.
+ - You smile with pomp and rigor, you talk of benevolence and virtue; I act with benevolence and virtue and get murdered time after time.
+ - If others had not been foolish, we should be so.
+ - The little ones leaped, and shouted, and laugh’d And all the hills echoed.
+ - He who doubts from what he sees Will ne’er believe, do what you please.
+ - God keep me from the divinity of Yes and Nothe Yea Nay Creeping Jesus, from supposing Up and Down to be the same thing as allexperimentalists must suppose.
+ - Error is created; truth is eternal.
+ - He who replies to words of doubt doth put the light of knowledge out.
+ - How do you know but ev’ry Bird that cuts the airy way, Is an immense world of delight, clos’d by your senses five?
+ - Mercy is the golden chain by which society is bound together.
+ - How have you left the ancient love That bards of old enjoyed in you! The languid strings do scarcely move! The sound is forced, the notes are few!
+ - Although wine when it is read somewhat lacks the savour of wine when it is drunk, wine remains a very pleasant thing both to read about and to chat about.
+ - How sweet I roamed from field to field, And tasted all the summer’s pride, Till I the prince of love beheld, Who in the sunny beams did glide!
+ - Thou art a man God is no more Thy own humanity Learn to adore.
+ - Every man who is not an artist is a traitor to his own nature.
+ - Think not thou canst sigh a sigh And thy maker is not by; Think not thou canst weep a tear And thy maker is not near.
+ - Where any view of money exists, art cannot be carried on.
+ - Joy and woe are woven fine.
+ - Love seeketh only self to please, To bind another to its delight, Joys in another’s loss of ease, And builds a Hell in Heaven’s despite.
+ - The Fool shall not enter into Heaven let him be ever so Holy.
+ - That the Jews assumed a right exclusively to the benefits of God will be a lasting witness against them and the same will it be against Christians.
+ - Where cheating is, there’s mischief there.
+ - Can I see another’s woe, and not be in sorrow too? Can I see another’s grief, and not seek for kind relief?
+ - Then cherish pity, lest you drive an angel from your door.
+ - To the eyes of the man of imagination, nature is imagination itself.
+ - I heard an Angel singing; When the day was springing, Mercy, Pity, Peace; Is the world’s release.
+ - Embraces are comminglings from the head even to the feet, And not a pompous high priest entering by a secret place.
+ - Where there is money there is no art.
+ - God forbid that Truth should be confined to Mathematical Demonstration!
+ - Mysteries are not to be solved. They eye goes blind when it only wants to see why.
+ - O why was I born with a different face? Why was I not born like the rest of my race?
+ - They solved the problem of coexistence through the use of individual stereo headphones.
+ - Let every Christian, as much as in him lies, engage himself openly and publicly, before all the World, in some mental pursuit for the Building up of Jerusalem.
+ - Can I see a falling tear, And not feel my sorrow’s share?
+ - When Sir Joshua Reynolds died All Nature was degraded; The King dropped a tear in the Queen’s ear, And all his pictures faded.
+ - The gulfing whale was like a dot in the spell. Yet look upon it, and ’twould size and swell To its huge self, and the minutest fish Would pass the very hardest gazer’s wish, And show his little eye’s anatomy.
+ - He who shall teach the child to doubtThe rotting grave shall ne’er get out.
+ - He who wants, but doesn’t act, is a pest.
+ - When Sir Joshua Reynolds died All Nature was degraded.
+ - To cast aside from Poetry, all that is not Inspiration.
+ - O white-robed Angel, guide my timorous hand to write as on a lofty rock with iron pen the words of truth, that all who pass may read.
+ - Men are admitted into heaven not because they have curbed or governed their passions, but because they have cultivate their understandings.
+ - Harmony of colouring is destructive of art? it is like the smile of a fool.
+ - Life delights in life.
+ - None but blockheads copy each other.
+ - The glory of Christianity is to conquer by forgiveness.
+ - Let men do their duty and the women will be such wonders; the female lives from the light of the male: see a male’s female dependants, you know the man.
+ - What has reasoning to do with painting?
+ - Thou fair-hair’d angel of the evening, Now, whilst the sun rests on the mountains, light Thy bright torch of love; thy radiant crown Put on, and smile upon our evening bed!
+ - I’m sure this Jesus will not do Either for Englishman or Jew.
+ - The difference between a bad artist and a good one is: the bad artist seems to copy a great deal; the good one really does.
+ - But if at church they would give some ale. And a pleasant fire our souls to regale. We’d sing and we’d pray all the live long day, Nor ever once from the church to stray.
+ - Mercy, pity, and peace, Are the world’s release.
+ - Naught can deform the human race Like to the armor’s iron brace.
+ - On no other ground Can I sow my seed Without tearing up Some stinking weed.
+ - To the eyes of a miser a guinea is more beautiful than the sun, and a bag worn with the use of money has more beautiful proportions than a vine filled with grapes.
+ - The ignorant Insults of Individuals will not hinder me from doing my duty to my Art.
+ - Thy friendship oft has made my heart to ache: do be my enemy for friendship’s sake.
+ - Every harlot was a virgin once.
+ - General good is the plea of the scoundrel, hypocite, flatterer.
+ - If you cannot imagine with the mind’s eye much more than you can see with the mortal eye, you have a very poor imagination indeed.
+ - He who sees the Infinite in all things sees God.
+ - But when he has done this, let him not say that he knows better than his master, for he only holds a candle in sunshine.
+ - Every tear from every eyeBecomes a babe in eternity.
+ - Colouring does not depend on where the colours are put, but on where the lights and darks are put, and all depends on form and outline, on where that is put.
+ - And is he honest who resists his genius or conscience only for the sake of present ease or gratification.
+ - Invention depends altogether upon execution or organization; as that is right or wrong so is the invention perfect or imperfect.
+ - Father, O father! what do we here In this land of unbelief and fear?
+ - It is the greatest of crimes to depress true art and science.
+ - I am going to that country which I have all my life wished to see.
+ - Painters are noted for being dissipated and wild.
+ - Lives in eternity’s sun rise.
+ - She who dwells with me whom I have loved with such communion, that no place on earth can ever be solitude to me.
+ - Christ’s crucifix shall be made an excuse for executing criminals.
+ - Works of Art can only be produc’d in Perfection where the Man is either in Affluence or is Above the Care of it.
+
+368 quotes

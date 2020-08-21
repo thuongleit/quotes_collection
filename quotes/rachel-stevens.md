@@ -1,0 +1,40 @@
+ - Having a bad haircut can be quite traumatic!
+ - I am quite a private person.
+ - Being able to laugh is sexy in a man or woman.
+ - I am really passionate about my career and my music and I am so lucky to be able to do what I do for a job, so for all the early morning starts and long days, I could never trade it all in.
+ - I would love a bowl of Frosties, but I start the day with something healthier like a bowl of yoghurt or berries.
+ - I can be very passionate but I also have a bit of a hot temper – when pushed.
+ - A lot of my childhood memories involve walking home in floods of tears. At that age, feeling unpopular is difficult to handle.
+ - It’s not what you wear it’s how you wear it, is what I say.
+ - I do love being solo because I can have more of my own creative input to every aspect of my career.
+ - At that age, feeling unpopular is difficult to handle. It’s a hard feeling to shake off. Feeling comfortable in my own skin has never been easy for me.
+ - I think it’s certainly natural to try new things as you grow up and get older!
+ - Songs like Reach and S Club Party are pop classics. I’m really proud that I had a part in them.
+ - I was always very determined and ambitious, and I knew I would do something that would let me travel and stuff, but I didn’t know really know what I would do to get there.
+ - I really do feel now that the way I dress onstage and for work is a true reflection of my own sense of style as well.
+ - Ideally, I would love to mix singing and acting, but you can only be a pop star for so many years. I mean, at 30 it’s a little bit sad, right?
+ - I know it sounds a bit corny, but I do think that beauty and sexiness come from within.
+ - Having a clone would make it so much easier – it would be great to send a clone to a TV station when I have to get up at 4am.
+ - I’m a cereal girl. I have always loved my cereal ever since I was a kid.
+ - I never really hated any particular sport but out of all the sports, I used to prefer the team games to running and sprinting and those types of things.
+ - I studied fashion at the London College of Fashion. I get involved in it as part of my own styling, so if I wasn’t a pop star maybe a fashion buyer or a stylist.
+ - When people recognise me they just kind of go ‘Hi how are you,’ really kind of cool you know.
+ - I’d love the opportunity to do something where I could really give my opinion, my feisty side – it’d be fun!
+ - Just because you’ve been on stage doesn’t mean you can dance.
+ - I am very patriotic and grew up in a house with football fans.
+ - I’m so programmed to getting up early that I like to make the most of the day.
+ - I think having children is the most amazing thing.
+ - I love movies, and if the right thing comes along I’m so interested.
+ - Be true to yourself and go with your instincts – don’t be somebody you’re not just to fit in.
+ - There are so many great artists and most of them are women, but that’s good – the more the merrier!
+ - Of course it’s fantastic to have bands formed in garages, but there is a market for other types of music.
+ - In S Club I played a role in a band, but now I can go off and be me – My horizon’s wide open now. It’s scary and it’s daunting, but it’s an absolute thrill. I feel brand new!
+ - I would love to work with someone like Kevin Spacey as he could pass on what I need to learn.
+ - Basically, I love films where everything is great and life is good.
+ - I’d love to break America, like all artists do. It’s a lot of work but, you know, it’s got to be done!
+ - I never felt popular as a child and never had best friends.
+ - My personal trainer is an ex-dancer so we do a lot of ballet and jazz.
+ - I’m not normally the kind of person who holds on to grudges, I’m really not.
+ - I’d rather stay out of the limelight until I’ve done something I feel proud of.
+
+38 quotes

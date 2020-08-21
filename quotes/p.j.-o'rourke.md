@@ -1,0 +1,416 @@
+ - Everybody wants to save the Earth; nobody wants to help Mom do the dishes.
+ - B students work for C students. A students teach.
+ - Mercedes Benz : A mechanical device that increases sexual arousal in women.
+ - When you think of the good old days, think one word: dentistry.
+ - No one has ever had a fantasy about being tied to a bed and sexually ravished by someone dressed as a liberal.
+ - No drug, not even alcohol, causes the fundamental ills of society. If we’re looking for the source of our troubles, we shouldn’t test people for drugs, we should test them for stupidity, ignorance, greed and love of power.
+ - Always read stuff that will make you look good if you die in the middle of it.
+ - You know, if government were a product, selling it would be illegal. Government is a health hazard. Governments have killed many more people than cigarettes or unbuckled seat belts ever have.
+ - Personally, I believe a rocking hammock, a good cigar, and a tall gin-and-tonic is the way to save the planet.
+ - It’s better to spend money like there’s no tomorrow than to spend tonight like there’s no money.
+ - Although computer-generated artificial intelligence eludes us, artificial stupidity has been perfected.
+ - The French are sawed-off sissies who eat snails and slugs and cheese that smells like people’s feet. Utter cowards who force their own children to drink wine, they gibber like baboons even when you try to speak to them in their own wimpy language.
+ - Commies love concrete.
+ - Smoking crack is a way for people who couldn’t afford college to study the works of Charles Darwin.
+ - There’s a whiff of the lynch mob or the lemming migration about any overlarge concentration of like-thinking individuals, no matter how virtuous their cause.
+ - Microeconomics is about money you don’t have, and macroeconomics is about money the government is out of.
+ - We’ll run this planet as we please, and if you don’t like it, go back where we came from.
+ - A fruit is a vegetable with looks and money. Plus, if you let fruit rot, it turns into wine, something brussel sprouts never do.
+ - Everybody knows how to raise children, except the people who have them.
+ - With Epcot Center, the Disney corporation has accomplished something I didn’t think possible in today’s world. They have created a land of make-believe that’s worse than regular life.
+ - You know your children are growing up when they stop asking you where they came from and refuse to tell you where they’re going.
+ - Idealism is based on big ideas. And, as anybody who has ever been asked “What’s the big idea?” knows, most big ideas are bad ones.
+ - You can’t get good chinese takeout in China and cuban cigars are rationed in Cuba. That’s all you need to know about communism.
+ - Politics is the business of getting power and privilege without possessing merit.
+ - America is not a wily, sneaky nation. We don’t think that way. We don’t think much at all, thank God. Start thinking and pretty soon you get ideas, and then you get idealism, and the next thing you know you’ve got ideology, with millions dead in concentration camps and gulags.
+ - Cleanliness becomes more important when godliness is unlikely.
+ - Golf combines two favorite American pastimes: taking long walks and hitting things with a stick.
+ - Republicans are the party that says government doesn’t work, and then they get elected and prove it.
+ - Because of their size, parents may be difficult to discipline properly.
+ - It is a popular delusion that the government wastes vast amounts of money through inefficiency and sloth. Enormous effort and elaborate planning are required to waste this much money.
+ - When buying and selling are controlled by legislation, the first things to be bought and sold are legislators.
+ - And worrying is less work than doing something to fix the worry. This is especially true if we’re careful to pick the biggest possible problems to worry about. Everybody wants to save the earth; nobody want to help Mom do the dishes.
+ - Tabasco sauce is to bachelor cooking what forgiveness is to sin.
+ - When a thing defies physical law, there’s usually politics involved.
+ - During the mid-1980s dairy farmers decided there was too much cheap milk at the supermarket. So the government bought and slaughtered 1.6 million dairy cows. How come the government never does anything like this with lawyers?
+ - Neither conservatives nor humorists believe man is good. But left-wingers do.
+ - There is parody, when you make fun of people who are smarter than you; satire, when you make fun of people who are richer than you; and burlesque, when you make fun of both while taking your clothes off.
+ - If the Japanese want to be taken seriously as world financial powers, they’d better quit using the same tailor as variety show chimps.
+ - Guns are always the best method for a private suicide. They are more stylish looking than single-edged razor blades and natural gas has got so expensive. Drugs are too chancy. You might miscalculate the dosage and just have a good time.
+ - A woman should dress to attract attention. To attract the most attention, a woman should be either nude, or wearing something as expensive as getting her nude is going to be.
+ - El Salvador has the scenery of northern California and the climate of southern California plus – and this was a relief – no Californians.
+ - Never Refuse Wine. It is an odd but universally held opinion that anyone who doesn’t drink must be an alcoholic.
+ - Smoking is very bad for you and should only be done because it looks so good. People who don’t smoke have a terrible time finding something polite to do with their lips.
+ - Good manners are a combination of intelligence, education, taste and style mixed together so that you don’t need any of those things.
+ - Liberalism is just Communism sold by the drink.
+ - Marijuana is self-punishing. It makes you acutely sensitive, and in this world, what worse punishment could there be?
+ - Any random group of thirty Vietnamese women will contain a dozen who make Julia Roberts look like Lyle Lovett.
+ - I remember thinking cocaine was subtle until I noticed I’d been awake for three weeks and didn’t know any of the naked people passed out around me.
+ - A firm, hearty handshake gives a good first impression, and you’ll never be forgiven if you don’t live up to it.
+ - Never do anything to a clitoris with your teeth that you wouldn’t do to an expensive waterproof wristwatch.
+ - Giving money and power to government is like giving whiskey and car keys to teenage boys.
+ - Family love is messy, clinging, and of an annoying and repetitive pattern, like bad wallpaper.
+ - Some women want the strong silent type, so they can tell him to shut up and rearrange the furniture.
+ - Man developed in Africa. He has not continued to do so there.
+ - Name me, if you can, a better feeling than the one you get when you’ve half a bottle of Chivas in the bag with a gram of coke up your nose and a teenage lovely pulling off her tube top in the next seat over while you’re doing a hundred miles an hour in a suburban side street.
+ - The Tenth Commandment sends a message to socialists, to egalitarians, to people obsessed with fairness, to American presidential candidates in the year 2000 – to everyone who believes that wealth should be redistributed. And that message is clear and concise: Go to Hell.
+ - The weirder you’re going to behave, the more normal you should look. It works in reverse, too. When I see a kid with three or four rings in his nose, I know there is absolutely nothing extraordinary about that person.
+ - Walt is dead. And, after a couple of hours at Epcot, you’ll wish you were, too.
+ - People will tell you anything but what they do is always the truth.
+ - The Middle Eastern states aren’t nations; they’re quarrels with borders.
+ - In general, life is better than it has ever been, and if you think that, in the past, there was some golden age of pleasure and plenty to which you would, if you were able, transport yourself, let me say one single word : Dentistry.
+ - There are a lot of mysterious things about boats, such as why anyone would get on one voluntarily.
+ - It remains to be seen which program will cause greater societal damage: China’s one-child policy or America’s one-parent policy.
+ - Let’s reintroduce corporal punishment in the schools – and use it on the teachers.
+ - The old woman was not only ugly with the ugliness age brings us all but showed signs of formidable ugliness by birth – pickle-jar chin, mainsail ears and a nose like a trigonometry problem. What’s more, she had the deep frown and snit wrinkles that come from a lifetime of bad character.
+ - Hubris is one of the great renewable resources.
+ - The Soviet constitution guarantees everyone a job. A pretty scary idea, I’d say.
+ - At Epcot Center the Disney corporation has focused its attention on two things greatly in need of Disneyfication: the tedious future and the annoying whole wide world.
+ - Seriousness is stupidity sent to college.
+ - My Grandmother wouldn’t even speak the word Democrat if there were children in the room, she’d say Bastards instead.
+ - The neo-hippie-dips, the sentimentality-crazed iguana anthropomorphizers, the Chicken Littles, the three-bong-hit William Blakes- thank God these people don’t actually go outdoors much, or the environment would be even worse than it is already.
+ - All change is bad. But sometimes it has to be done.
+ - The commies are the only people on earth who think Star Wars will work. If they’re that gullible, maybe we should have held the summit at Atlantic City and let them lose all their missiles playing Keno.
+ - The sport of skiing consists of wearing three thousand dollars worth of clothes and equipment and driving two hundred miles in the snow in order to stand around at a bar and get drunk.
+ - People shouldn’t be treated like objects. They aren’t that valuable.
+ - Even a band of angels can turn ugly and start looting if enough angels are unemployed and hanging around the Pearly Gates convinced that all the succubi own all the liquor stores in Heaven.
+ - Last year, on a long car trip, I was listening to Rush Limbaugh shout. I usually agree with Rush Limbaugh; therefore I usually don’t listen to him. I listen to NPR: “World to end-poor and minorities hardest hit.” I like to argue with the radio.
+ - In case we have to shoot Democrats. It happened during the Civil War, and it could happen again.
+ - All lies are told with a straight face. It is truth that’s said with a dismissive giggle.
+ - When I became a man, I put away childish things and got more elaborate and expensive childish things from France and Japan.
+ - The very existence of the bicycle is an offense to reason and wisdom.
+ - The mystery of government is not how Washington works but how to make it stop.
+ - Adam Smith’s huge failure was the fact that he did not foresee the industrial revolution.
+ - Who does Bill Clinton think got off the boat and stepped on Plymouth Rock? Peace Corps volunteers?
+ - What use is it to endure the Dutch Rubs and Indian Rope Burns that are politics if you can’t obtain mastery over people and give them noogies back?
+ - Predicting innovation is something of a self-canceling exercise: the most probable innovations are probably the least innovative.
+ - Detroits industrial ruins are picturesque, like crumbling Rome in an 18th-century etching.
+ - Wearing a hat implies that you are bald if you are a man and that your hair is dirty if you are a woman.
+ - Politicians are wonderful people as longa as they stay away from things they don’t understand, such as working for a living.
+ - We need a government, alas, because of the nature of humans.
+ - Whatever the occasion, do not neglect alcohol. No other refreshment will do. Yes, alcohol kills brain cells, but it’s very selective. It only kills the brain cells that contain good sense, shame, embarrassment, and restraint.
+ - The body is forever teaching us lessons. There are all sorts of things that we can’t do, shouldn’t do, had better not do very often or do for too long as we get older. The body makes its presence known.
+ - Ideology, politics and journalism, which luxuriate in failure, are impotent in the face of hope and joy.
+ - Gay marriage acceptance is happening in the blink of an eye.
+ - It’s better to make fun of yourself because you’ve always got someone around to make fun of, and they can’t sue you.
+ - As a libertarian I believe we should have a federal government simple and circumscribed enough to be run by an average, dull, normal American. With George W. Bush we have half the equation in place.
+ - We should never hesitate to listen to a fool about life because life is pretty foolish as far as I can tell.
+ - Coffee and cigarettes are much better if you want an instant breakfast.
+ - Rich parents are famous both for miserliness and astonishing longevity. And, when they finally do die, you’ll find they’ve left their estate in inviolate trust to the golden retrievers.
+ - Where self-interest is suppressed, it is replaced by a burdensome system of bureaucratic control that dries up the wellsprings of initiative and creativity.
+ - Taxi drivers all over the world, by the way, are under Newspaper Guild contract to give easy quotes to foreign correspondents.
+ - The Democrats planned to fiddle while Rome burned. The Republicans were going to burn Rome, then fiddle.
+ - There is only one basic human right: the right to do as you please, without causing others harm. With it comes our only basic human duty: the duty to accept the consequences of our actions.
+ - Masochists are people that have pleasure confused with pain. In a world that has television confused with entertainment, doritoes confused with food, and Dan Quayle confused with a national political leader, masochists are clearly less mixed-up than the rest of us.
+ - If a journalist shows a facility for praise he’s liable to be offered a job in public relations or advertising and the next thing you know he’s got a big office, a huge salary and is living in a fine home with a lovely wife and swell kids – another career blown to hell.
+ - The poor of the world cannot be made rich by the redistribution of wealth. Poverty can’t be eliminated by punishing people who’ve escaped poverty, taking their money and giving it as a reward to people who have failed to escape.
+ - How did an allegedly free people spawn a vast, rampant cuttlefish of dominion with its tentacles in every orifice of the body politic?
+ - There are plenty of problems in the world, and doubtless climate change – or whatever the currently voguish phrase for it all is – certainly is one of them. But it’s low on my list.
+ - Drugs have taught an entire generation of kids the metric system.
+ - I suppose I should get a VCR, but the only thing I like about television is its ephemerality.
+ - Veal is a very young beef and, like a very young girlfriend, it’s cute but boring and expensive.
+ - The only really good vegetable is Tabasco sauce. Put Tabasco sauce in everything. Tabasco sauce is to bachelor cooking what forgiveness is to sin. The next best vegetable is the jalapeno pepper. It has the virtue of turning salads into practical jokes.
+ - The Democrats said, “We don’t know what’s wrong with America, but we can fix it.” The Republicans said, “There’s nothing wrong with America, and we can fix that.”
+ - Never steal anything so small that you’ll have to go to an unpleasant city jail for it instead of a minimum-security federal tennis prison.
+ - Little islands of human happiness, peace, and prosperity are so exceptional at this point in history that I’m not even sure we can draw lessons from them.
+ - There are artists with palettes and easels selling the kind of modern art that Soviet art critics used to critique with bulldozers. Judging by the paintings I saw, the Soviets were right the first time.
+ - The Republican convention, an event with the intellectual content of a Guns’n’Roses lyric attended by every ofay insurance brokerin America who owns a pair of white shoes.
+ - I do have to travel a lot for speaking engagements.
+ - I didn’t see any NRA officials killing babies in Waco...
+ - The motorcycle is a device created by the team of God and Darwin to rid the world of useless young males.
+ - You can’t get something for nothing. Everybody remembers this except politicians.
+ - Maybe a vague president and an incompetent and somewhat corrupt administration is what the nation needs.
+ - Worshiping the earth is more fun than going to church. It’s also closer.
+ - In theory, taxes should be like shopping. What I buy is government services. What I pay are my taxes.
+ - Popular culture has become engorged, broadening and thickening until it’s the only culture anyone notices.
+ - Moscow has changed. I was here in 1982, during the Brezhnev twilight, and things are better now. For instance, they’ve got litter. In 1982 there was nothing to litter with.
+ - There’s a certain kind of behavior in the Arab world that, to me, resembles the way young men behave when there is no significant influence from women in their lives.
+ - A very quiet and tasteful way to be famous is to have a famous relative. Then you can not only be nothing, you can do nothing too.
+ - Just as some things are too strange for fiction, others are too true for journalism.
+ - Southern California is a nice place, if you could cut out the show-business cancer. It just keeps spreading.
+ - If we want the whole world to be rich, we need to start loving wealth. In the difference between poverty and plenty, the problem is the pverty, not the difference. Wealth is good.
+ - God has no role to play in politics except to make sure politicians go where they belong. To hell.
+ - The proper behavior all through the holiday season is to be drunk. This drunkenness culminates on New Year’s Eve, when you get so drunk you kiss the person you’re married to.
+ - To mistrust science and deny the validity of the scientific method is to resign your job as a human. You’d better go look for work as a plant or wild animal.
+ - Abstract anger is great for rhetorical carrying on. You can go on endlessly about the post office, but it doesn’t mean you’re mad at your mailman.
+ - The great thing about starting golf in your forties is that you can start golf in your forties. You can start other things in your forties but generally your wife makes you stop them, as Bill Clinton found out.
+ - The Greenpeace booth at all the rock and roll shows nowadays are akin to the old sorcerers who used to stand in the middle of villages warning of danger, ‘When night wolf swallows mother moon, there will be great famine.’
+ - Anything that makes your mother cry is fun.
+ - Passover is my idea of a perfect holiday. Dear God, when you’re handing out plagues of darkness, locusts, hail, boils, flies, lice, frogs, and cattle murrain, and turning the Nile to blood, and smiting firstborn, give me a pass, and tell me when it’s over.
+ - Only one way to cover a story like this, and make that a double, bartender, please.
+ - I’m a rather decisive type.
+ - When politics are used to allocate resources, the resources all end up being allocated to politics.
+ - The French are a smallish, monkey-looking bunch and not dressed any better, on average, than the citizens of Baltimore. True, you can sit outside in Paris and drink little cups of coffee, but why this is more stylish than sitting inside and drinking large glasses of whiskey I don’t know.
+ - I am no stranger to loud music. I’ve been to a Mitch Ryder and the Detroit Wheels concert. I once dated a woman with two kids.
+ - Finland is a rich country. What have they got? They got Nokia phones and plywood. How’d they get so rich? Because they’re free.
+ - I’ve been a New Yorker for ten years, and the only people who are nice to us turn out to be Moonies.
+ - Every generation finds the drug it needs.
+ - The only time a bachelor’s bed is made is when it’s in the factory.
+ - Germans respond well to lies. At least, they always have historically.
+ - Humor is, by its nature, more truthful than factual.
+ - Never fight an inanimate object.
+ - The good news is that, according to the Obama administration, the rich will pay for everything. The bad news is that, according to the Obama administration, you’re rich.
+ - Because of their cuisine, Germans don’t consider farting rude. They’d certainly be out of luck if they did.
+ - A hat should be taken off when you greet a lady and left off for the rest of your life. Nothing looks more stupid than a hat.
+ - The people I see on bicycles look like organic-gardening zealots who advocate federal regulation of bedtime and want American foreign policy to be dictated by UNICEF. These people should be confined.
+ - Actually, there is no way of making vomiting courteous. You have to do the next best thing, which is to vomit in such a way that the story you tell about it later will be amusing.
+ - People think the free market is a philosophy, they think that it is a creed. It is none of those things. Free market is a bathroom scale, it is a measuring tape, it’s simply a measurement.
+ - Fortunately, I’m married to someone who’s a pretty excellent parent!
+ - You can’t shame or humiliate modern celebrities. What used to be called shame and humiliation is now called publicity.
+ - Journalists are notoriously easy to kid. All you have to do is speak to a journalist in a very serious tone of voice, and he will be certain that you are either telling the truth or a big, important lie.
+ - The American political system is like fast food – mushy, insipid, made out of disgusting parts of things and everybody wants some.
+ - It’s the squares who know how to fly the fighter planes and operate the missiles and the bombs and work the M-16s. Liberals would still be fumbling with the federally mandated trigger locks.
+ - France in August when you can travel through the entire country without encountering a single pesky Frenchman or being bothered with anything that’s open for business.
+ - Government proposes, bureaucracy disposes. And the bureaucracy must dispose of government proposals by dumping them on us.
+ - Writing this book required an enormous amount of help from friends. To them goes the credit. I’ll take the money.
+ - One of the reporters must have flunked journalism school because he asked a question that went straight to the point.
+ - Each child is biologically required to have a mother. Fatherhood is a well-regarded theory, but motherhood is a fact.
+ - People are always angry at America. They’re absolutely certain that America either caused their problems or is deliberately not fixing their problems. But the anger is always directed at America and never at Americans.
+ - Watching Republicans in Washington is like watching lemmings, if lemmings jumped into cesspools instead of off cliffs. Splash! There goes Mark Foley!
+ - Very little is known of the Canadian country since it is rarely visited by anyone but the Queen and illiterate sport fishermen.
+ - There’s nothing more oily and cynical in politics than telling the truth.
+ - Nobody likes insurance companies, especially health insurance companies.
+ - This country was founded by religious nuts with guns.
+ - One of the annoying things about believing in free will and individual responsibility is the difficulty of finding somebody to blame your problems on. And when you do find somebody, it’s remarkable how often his picture turns up on your driver’s license.
+ - We won’t dispassionately investigate or rationally debate which drugs do what damage and whether or how much of that damage is the result of criminalization. We’d rather work ourselves into a screaming fit of puritanism and then go home and take a pill.
+ - East Germany was so total in its totalitarianism that everything was banned which wasn’t compulsory.
+ - We had a choice between Democrats who couldn’t learn from the past and Republicans who couldn’t stop living in it...
+ - Cats possess so many of the same qualities as some poeple that it is often hard to tell the people and the cats apart.
+ - Gossip is what you say about the objects of flattery when they aren’t present.
+ - The day was warm and clear. Kids were playing soccer in the parking lots and women were sunning their babies and having their tea all over the lawns. The scene was entirely too cheery for journalism.
+ - Imagine a weight-loss program at the end of which, instead of better health, good looks, and hot romantic prospects, you die. Somalia had become just this kind of spa.
+ - One thing talk can’t accomplish is communication. This is because everybody’s talking too much to pay attention to what anyone is saying.
+ - I’m here as a radio journalist but am not even sure which part of a tape recorder takes the pictures.
+ - If you are young and you drink a great deal it will spoil your health, slow your mind, make you fat – in other words, turn you into an adult.
+ - Something is worth what somebody will pay for it. Nothing else, nothing more, nothing less.
+ - My wife and I both come from Irish families. There are two kinds of Irish families: the hitting kind and the kidding kind. If you’re fortunate – and both of us are – you come from the kidding kind of Irish family.
+ - People have a right to my food, a right to my housing, and a right to my good job for my decent pay.
+ - America wasn’t founded so that we could all be better. America was founded so we could all be anything we damned well pleased.
+ - Lust, Pride, Sloth, and Gluttony, or, as we call them these days, “getting in touch with your sexuality,” “raising your self-esteem,” “relaxation therapy,” and “being a recovered bulimic.”
+ - Automobiles are free of egotism, passion, prejudice and stupid ideas about where to have dinner. They are, literally, selfless. A world designed for automobiles instead of people would have wider streets, larger dining rooms, fewer stairs to climb and no smelly, dangerous subway stations.
+ - Ann Coulter to me is someone who says things that I say all the time, but I say them at three in the morning when I’m drunk as a monkey. She says them at three in the afternoon stone sober in bright daylight.
+ - Some jobs are worse than actual wives. Ad agency vs. Matrimony, for instance: Even the most capricious and demanding spouse is not going to divorce you for refusing to spend forty hours a week making up lies about toilet paper.
+ - Generally it’s not a good idea to wear Banana Republic – type khaki journalist clothes in a war zone. You might look too much like something that’s supposed to be shot, such as a journalist.
+ - The weirder you’re going to behave, the more normal you should look.
+ - I have, of all the inglorious things, a malignant hemorrhoid. What color bracelet does one wear for that? And where does one wear it? And what slogan is apropos? Perhaps that slogan can be sewn in needlepoint around the ruffle on a cover for my embarrassing little doughnut buttocks pillow.
+ - Of course, the humans in Haiti have hope. They hope to leave.
+ - It is a law of governance that democracies have to spend themselves dizzy. Citizens of democracies can, after all, tell their government to give them things.
+ - Daniel Patrick Moynihan is the archetypal extremely smart person who went into politics anyway instead of doing something worthwhile for his country.
+ - The inherent purpose of American government is let people seek their own goals and to encourage them to be responsible on the various adventures they have on their way to those goals, good, bad, and otherwise.
+ - I like making things. I have a wood shop at home. I am a terrible carpenter but I love doing it.
+ - The real truth about children is they don’t speak the language very well. They’re physically uncoordinated. And they are ignorant of our elaborate ideas about right and wrong.
+ - I can think of a number of areas in New York where three acres of nuclear waste would make the neighborhood safer to walk around in than it is now, and better lit.
+ - Then there was LSD, which was supposed to make you think you could fly. I remember it made you think you couldn’t stand up, and mostly it was right.
+ - The Australian language is easier to learn than boat talk. It has a vocabulary of about six words.
+ - How a peaceful, uncrowded place with ample wherewithal stays poor is hard to explain. How a conflict-ridden, grossly over-populated place with no resources whatsoever gets rich is simple. The British colonial government turned Hong Kong into an economic miracle by doing nothing.
+ - Everybody in 15th century Spain was wrong about where China was and as a result, Columbus discovered Caribbean vacations.
+ - Who, other than a crazy person, does anything besides hang up on a robo-call? Any call, any person, anywhere, under any circumstances.
+ - Violence is interesting. This is a great obstacle to world peace and also to more thoughtful television programming.
+ - There is a remarkable breakdown of taste and intelligence at Christmastime. Mature, responsible grown men wear neckties made of holly leaves and drink alcoholic beverages with raw egg yolks and cottage cheese in them.
+ - The free market is ugly and stupid, like going to the mall; the unfree market is just as ugly and just as stupid, except there is nothing in the mall and if you don’t go there they shoot you.
+ - Soldiers are not policemen, and it’s very unfair, even for those soldiers who have some police training, to burden them with police duties. It’s not what they’re trained for, or equipped for.
+ - One of these suburbs is actually named Stalingrad, which goes to show that the French have learned nothing about politics since they guillotined all the smart people in 1793.
+ - I believe that Western civilization, after some disgusting glitches, has become almost civilized. I believe it is our first duty to protect that civilization. I believe it is our second duty to improve it. I believe it is our third duty to extend it if we can.
+ - Everything on a boat has a different name than it would have if it weren’t on a boat. Either this is ancient seafaring tradition or it’s how people who mess around with boats try to impress the rest of us who actually finished college.
+ - I read good. I was an English major.
+ - Smoking cigarettes seems to alarm peace activists much more than voting for Reagan does.
+ - Politics should be limited in scope to ware, protection of property, and the occasional precautionary beheading of a member of the ruling class.
+ - Never serve oysters in a month that has no paycheck in it.
+ - The complexity of economics can be calculated mathematically. Write out the algebraic equation that is the human heart and multiply each unknown by the population of the world.
+ - That doesn’t mean that you should just sit back and just let accidents happen to you. No, you have to go out and cause them yourself. That way you’re in control of the situation.
+ - Good manners consist of doing precisely what everyone thinks should be done, especially when no one knows quite what that is.
+ - A little government and a little luck are necessary in life, but only a fool trusts either of them.
+ - The idea of a news broadcast once was to find someone with information and broadcast it. The idea now is to find someone with ignorance and spread it around.
+ - The difference between corporations and governments is governments have a monopoly on force. It’s a lot easier to vote with your feet or your wallet than it is to change a government with your vote.
+ - I don’t think I’ll ever be a real boat reporter. My Rolex isn’t big enough.
+ - Newsmen believe that news is a tacitly acknowledged fourth branch of the federal system. This is why most news about government sounds as if it were federally mandated – serious, bulky and blandly worthwhile, like a high-fiber diet set in type.
+ - The political process consists entirely of politicians talking out of their butts.
+ - The average IQ in America is – and this can be proven mathematically – average.
+ - Creative writing teachers should be purged until every last instructor who has uttered the words ‘Write what you know’ is confined to a labor camp. Please, talented scribblers, write what you don’t. The blind guy with the funny little harp who composed The Iliad, how much combat do you think he saw?
+ - African famine is not a visitation of fate. It is largely man-made, and the men who made it are largely Africans.
+ - Fretting about overpopulation, is a perfect guilt-free – indeed, sanctimonious – way for progressives to be racists.
+ - Vegetables are something God invented to let women get even with their children.
+ - You can keep the dining room clean by eating in the kitchen.
+ - Fiscal conservatism is just an easy way to express something that is a bit more difficult, which is that the size and scope of government, and really the size and scope of politics in our lives, has grown uncomfortable, unwieldy, intrusive and inefficient.
+ - Children must be considered in a divorce considered valuable pawns in the nasty legal and financial contest that is about to ensue.
+ - The idea of capitalism is not just success but also the failure that allows success to happen.
+ - Wherever there’s injustice, oppression, and suffering, America will show up six months late and bomb the country next to where it’s happening.
+ - Gambling is so pervasive in Nevada that maybe the state should just go the whole hog. There’d be gum machines that dispensed chewing tobacco if you lost. You could gamble for the toilet paper in public bathroom stalls. And fill out Keno cards in an attempt to win cancer therapy at the hospital.
+ - Human problems are complex. If something isn’t complex it doesn’t qualify as problematic. Very simple bad things are not worth troubling ourselves about.
+ - I think it’s been hard for people to understand how Islam can be a good religion, and yet the Islamists are evil. Those of us who have had experience with Islam understand this, just as we understand the difference between snake handlers and people going to church on Sunday morning.
+ - Fashionably amusing table manners are a matter of breaking the right rule at the right time.
+ - In Japan people drive on the left. In China people drive on the right. In Vietnam it doesn’t matter.
+ - The key ingredient of politics is the idea that all of society’s ills can be cured politically. It’s like a cookbook where the recipe for everything is to fry it. The fruit cocktail is fried.
+ - Each American embassy comes with two permanent features – a giant anti-American demonstration and a giant line for American visas. Most demonstrators spend half their time burning Old Glory and the other half waiting for green cards.
+ - Happy hour is slightly different in the Soviet Union. There are no ice cubes or orange-peel twists in the vodka. Also, it lasts all day.
+ - A world government run by the UN will be like getting an old, purblind, half-deaf substitute teacher.
+ - I don’t even know which end of a computer one is supposed to gaze into. I’ve never used a computer.
+ - The real alternative to power of the rich is not power of the poor. It’s just plain power.
+ - There is one thing women can never take away from men. We die sooner.
+ - If Disney still wants to make Epcot Center futuristic, they could do so by blowing the place up with an atom bomb.
+ - If you spend seventy-two hours in a place you’ve never been, talking to people whose language you don’t speak about social, political, and economic complexities you don’t understand, and you come back as the world’s biggest know-it-all, you’re a reporter.
+ - This is the most elaborate and luxurious method of convincing others that you can cook. Take everybody out on your yacht until they’re green in the face. Then you can rave for weeks about your sauce marinara and no one will gainsay you...
+ - I was told to hand over my disposable lighter, to prevent, I suppose, any threat of “Do what I say or I’ll light this Marlboro and you’ll all die – in thirty years due to inhalation of secondhand smoke.”
+ - To really enjoy drugs you’ve got to want to get out of where you are. But there are some wheres that are harder to get out of than others. This is the drug-taking problem for adults. Teenage Weltscbmerz is easy to escape. But what drug will get a grown-up out of, for instance, debt?
+ - One of the problems with being a writer is that all of your idiocies are still in print somewhere. I strongly support paper recycling.
+ - There is only one basic human right, the right to do as you damn well please.
+ - In the Third World, honk your horn only under the following circumstances: 1. When anything blocks the road. 2. When anything doesn’t. 3. When anything might. 4. At red lights. 5. At green lights. 6. At all other times.
+ - It had never occurred to us that the Kremlin’s new anti-booze campaign would apply to journalists. Now, that’s a human-rights violation.
+ - I rarely meet a politician that I don’t like personally. They are generally well endowed with charm. Therein lies the danger.
+ - Zen martini: A martini with no vermouth at all. And no gin, either.
+ - In Washington journalists can afford to live almost as well as people who work for a living.
+ - Greatest generation came through some stuff that we can’t even imagine – the Depression, World War I – and all they wanted after that was a breather and a calm and a quiet life, and they get us.
+ - Humor is a terrific tool for explaining things, especially when what you’re explaining is frightening or dull and complicated.
+ - I’m a registered Republican and consider socialism a violation of the American principle that you shouldn’t stick your nose in other people’s business except to make a buck.
+ - Whenever people tell you they are going to wipe the slate clean, it’s your slate they mean to wipe.
+ - Many reporters, when they go to work in the nation’s capital, begin thinking of themselves as participants in the political process instead of glorified stenographers.
+ - There are a number of mechanical devices which increase sexual arousal, particularly in women. Chief among these is the Mercedes-Benz 380SL convertible.
+ - If you say a modern celebrity is an adulterer, a pervert and a drug addict, all it means is that you’ve read his autobiography.
+ - Russian cars are silly. They look like imports drawn by a cartoonist for a UAW newsletter.
+ - I arrived in the middle of a press conference – as boring a thing to sit through if you don’t know the language as it is if you do.
+ - Rich white Protestant men have held on to some measure of power in America almost solely by getting women, blacks, and other disadvantaged groups to wear crippling foot fashions. This keeps them too busy with corns and bunions to compete in the job market.
+ - Sloths move at the speed of congressional debate but with greater deliberation and less noise.
+ - War will exist as long as there’s a food chain.
+ - The interesting thing about staring down a gun barrel is how small the hole is where the bullet comes out, yet what a big difference it would make in your social schedule.
+ - West Germans are tall, pink, pert and orthodontically corrected, with hands, teeth and hair as clean as their clothes and clothes as sharp as their looks. Except for the fact that they all speak English pretty well, they’re indistinguishable from Americans.
+ - Journalists aren’t supposed to praise things. It’s a violation of work rules almost as serious as buying drinks with our own money or absolving the CIA of something.
+ - I’m a political conservative.
+ - You may be surprised to discover you’re rich, especially if you’re broke.
+ - Intelligence collection has been given an additional bureaucracy to correct the problems created by too much bureaucracy in intelligence collection.
+ - That happy sense of purpose people have when standing up for a principle they haven’t really been knocked down for yet.
+ - The Chinese had gunpowder, but it didn’t occur to them to put it in a gun. They possessed the compass but didn’t go anywhere. They invented paper, printing, and a written form of their language, but hardly anyone in China was taught to read.
+ - A dugout is much superior to a conventional manufactured canoe because you can get soaking wet without bothering to capsize it.
+ - If I give up drinking, smoking, and fatty foods, I can add ten years to my life. Trouble is, I’ll add it to the wrong end.
+ - No government proposal more complicated than “This note is legal tender for all debts, public and private” ever works.
+ - And, by the way, how come all the people who were so in favor of unilateral nuclear disarmament are so opposed to unilateral protection against nukes?
+ - Authority has always attracted the lowest elements in the human race.
+ - Social Security is a government program with a constituency made up of the old, the near old and those who hope or fear to grow old. After 215 years of trying, we have finally discovered a special interest that includes 100 percent of the population. Now we can vote ourselves rich.
+ - I can understand why mankind hasn’t given up war. During a war you get to drive tanks through the sides of buildings and shoot foreigners – two things that are usually frowned on during peacetime.
+ - Civilization is an enormous improvement on the lack thereof.
+ - If we do our deficit spending on weapons, at least we get weapons. Then if we need weapons, we have them. If we don’t need them, no harm is done.
+ - Crazy old people are our entire source of polling information.
+ - What would annoy the most people most often? That is the true left-wing test of government intervention.
+ - Remember, your body needs 6 to 8 glasses of fluid daily. Straight up or on the rocks.
+ - Visiting Future World is like opening a Chinese fortune cookie to read, “Soon you’ll be finished with dinner.”
+ - A girl who is really pretty – whether she wraps herself in an abayah, a nun’s habit, or the front hall rug – never wraps herself so that the world can’t tell.
+ - Politics doesn’t work. Look at the parts of America where government has had the most power, where government has spent the most money. Look at the housing projects we’ve got the poor people in.
+ - Jewishness cropped up and has never successfully been put down since.
+ - When Adam Smith was being incomprehensible, he didn’t have the luxury of brief, snappy technical terms as a shorthand for incoherence.
+ - There’s one more terrifying fact about old people: I’m going to be one soon.
+ - Whatever it is that the government does, sensible Americans would prefer that the government does it to somebody else. This is the idea behind foreign policy.
+ - I like to do my principal research in bars, where people are more likely to tell the truth or, at least, lie less convincingly than they do in briefings and books.
+ - There are just two rules of governance in a free society: Mind your own business. Keep your hands to yourself.
+ - In the American political system, you’re only allowed to have real ideas if it’s absolutely guaranteed that you can’t win an election.
+ - Sometimes you need a B-2 bomber and sometimes you need your mother.
+ - Haitians weren’t screwed-up, but everything political, intellectual, and material around them is.
+ - Your money does not cause my poverty. Refusal to believe this is at the bottom of most bad economic thinking.
+ - Government conspiracy? They can’t even deliver our mail and it’s got our address on it and everything!
+ - Well the planet I’ve got a chance to visit is Earth, and Earth’s principal features are chaos and war. I think I’d be a fool to spend years here and never have a look.
+ - Not being a liberal, I have very little grasp of things that I know nothing about.
+ - I’ve always figured that if God wanted us to go to church a lot He’d have given us bigger behinds to sit on and smaller heads to think with.
+ - Jesse Jackson was spending time with his family, or families.
+ - Satan probably wouldn’t have talked so big if God had been his wife.
+ - There isn’t much room for an outsider point of view in print any more.
+ - I’m really tired of virtue.
+ - Everything that’s fun in life is dangerous. And everything that isn’t fun is dangerous too. It’s impossible to be alive and safe.
+ - There’s something about Marxism that brings out warts; the only kind of growth this economic system encourages.
+ - The purpose of the Senate is to keep 100 middle aged knuckleheads out of the private sector where they can do real harm.
+ - People who are wise, good, smart, skillful, or hardworking don’t need politics, they have jobs.
+ - Don’t send funny greeting cards on birthdays or at Christmas. Save them for funerals when their cheery effect is needed.
+ - A humorist doesn’t really do that much note-taking.
+ - Good manners can replace morals. It may be years before anyone knows if what you are doing is right. But if what you are doing is nice, it will be immediately evident.
+ - In our brief national history we have shot four of our presidents, worried five of them to death, impeached one and hounded another out of office. And when all else fails, we hold an election and assassinate their character.
+ - To grasp the true meaning of socialism, imagine a world where everything is designed by the post office, even the sleaze.
+ - Armenians and Azerbaijanis in Stepanakert, capital of the Nagorno-Karabakh autonomous region, rioted over much needed spelling reform in the Soviet Union.
+ - Industrialization came to England but has since left.
+ - In Western Australia they don’t even know how to make that vital piece of sailboating equipment, the gin and tonic.
+ - Making fun of born-again Christians is like hunting dairy cows with a high powered rifle and scope.
+ - Nothing bad is going to happen to us. If we get fired, it’s not failure; its a midlife vocational reassessment.
+ - Thanksgiving is so called because we are all so thankful that it only comes once a year.
+ - Politicians are always interested in people. Not that this is always a virtue. Fleas are interested in dogs.
+ - Dates used to be made days or even weeks in advance. Now dates tend to be made the day after. That is, you get a phone call from someone who says, “If anyone asks, I was out to dinner with you last night, okay?”
+ - The America’s Cup is like driving your Lamborgini to the Gran Prix track to watch the charter buses race.
+ - I’m a member of the working press; you’d think I’d know better than to listen to journalists.
+ - Never wear anything that panics the cat.
+ - Fishing is a sport invented by insects and you are the bait.
+ - Satire doesn’t effect change.
+ - The college idealists who fill the ranks of the environmental movement seem willing to do absolutely anything to save the biosphere, except take science courses and learn something about it.
+ - If government were a product, selling it would be illegal.
+ - The whole idea of our government is this: If enough people get together and act in concert, they can take something and not pay for it.
+ - Humans have trouble with economics, as you may have noticed, and not just because economic circumstances sometimes cause them to starve. Humans seem to have an innate inability to pay attention to economic principles.
+ - Government does not cause affluence. Citizens of totalitarian countries have plenty of government and nothing of anything else.
+ - There was an austerely dignified award ceremony. By that I mean we had to buy our own drinks – in clear violation of the international journalists’code of truth, fairness and an open bar.
+ - Feeling good about government is like looking on the bright side of any catastrophe. When you quit looking on the bright side, the catastrophe is still there.
+ - Any person who has spent time outdoors actually doing something, such as hunting and fishing as opposed to standing there with a doobie in his mouth, knows nature is not intrinsically healthy.
+ - You can always reason with a German. You can always reason with a barnyard animal, too, for all the good it does.
+ - There’s not a woman in the book, the plot hinges on unkindness to animals, and the black characters mostly drown by Chapter 29.
+ - The founding fathers, in their wisdom, devised a method by which our republic can take one hundred of its most prominent numbskulls and keep them out of the private sector where they might do actual harm.
+ - Keeping house is as unpleasant and filthy as coal mining, and the pay’s a lot worse.
+ - The question nowadays is not what makes government work. The question is how do we make it stop.
+ - One of the enduring problems with certain societies in the world – and this is certainly true of a lot of places in the Middle East – is that the capacity for self-governance and self-organizing just isn’t there. It has to do with history.
+ - These were people who believed everything about the Soviet Union was perfect, but they were bringing their own toilet paper.
+ - I like to think of my behavior in the sixties as a ‘learning experience.’ Then again, I like to think of anything stupid I’ve done as a ‘learning experience.’ It makes me feel less stupid.
+ - The purpose of a funeral service is to comfort the living. It is important at a funeral to display excessive grief. This will show others how kind-hearted and loving you are and their improved opinion of you will be very comforting.
+ - That is the really great thing about being an adult male, once you get married and have children the whole decision-making process is taken out of your hands, and I for one am extremely grateful.
+ - A careful reading of 50 Simple Things leaves you wondering whether you’re going to die from environmental disaster or intellectual annoyance. Failing either, you can worry yourself to death.
+ - How much fame, money and power does a woman have to achieve on her own before you can punch her in the face?
+ - Stay away from girls who cry a lot or who look like they get pregnant easily or have careers.
+ - Term limits aren’t enough. We need jail.
+ - Women are successful in the business world because the business world was created by men. Men are babies. And women areGood With Kids.
+ - A charity ball is like a dance except it’s tax deductible.
+ - The problem isn’t a Congress that won’t cut spending or a president who won’t raise taxes. The problem is an American public with a bottomless sense of entitlement to federal money.
+ - You can’t get rid of poverty by giving people money.
+ - You can smoke or drink on a golf course without interrupting the game, and you can take a leak – something you can’t do on a squash court and shouldn’t do in a swimming pool.
+ - Long conversations with pals when neither you nor they have had a drink can be a test of palship.
+ - Children from the age of five to ten should watch more television. Television depicts adults as rotten SOB’s given to fistfights, gunplay, and other mayhem. Kids who believe this about grownups aren’t likely to argue about bedtime.
+ - Then there’s politics. Just imagine politics with its dumbbell element subtracted. There would be no Republican candidates. There would be no Democratic voters. The whole system would collapse.
+ - If the wind is blowing like stink and everything is working right, a twelve-meter sailboat can go eleven and a half or twelve miles an hour, the same speed at which a bond lawyer runs around the Cental Park Reservoir.
+ - Liberals have a quaint and touching faith that truth is on their side and an even quainter faith that journalists are on the side of truth.
+ - Even very young children need to be informed about dying. Explain the concept of death very carefully to your child. This will make threatening him with it much more effective.
+ - If we’re free to do what we want, why does government always have a plan for us?
+ - Political systems are run by self-selecting politicians. We don’t draft people; it’s not jury duty.
+ - You can learn all about the human condition from covering the crime beat in a big city – you don’t need to go to Beirut for that – but a foreign correspondent begins to understand poverty from a different perspective.
+ - Humans are the only animals that have children on purpose with the exception of guppies, who like to eat theirs.
+ - I try to ONLY ridicule people who’s efforts are sincere. Very little trouble has been caused in the world by insincere efforts. An occasional seduction maybe. There were very few insincere Stalinists or Nazis.
+ - Poverty can’t be eliminated by punishing people who’ve escaped poverty.
+ - Australia is not very exclusive. On the visa application they still ask if you’ve been convicted of a felony – although they are willing to give you a visa even if you haven’t been.
+ - A nation with a goofy foreign policy needs a very serious policy of defense.
+ - When a couple decides to divorce, they should inform both sets of parents before having a party and telling all their friends. This is not only courteous but practical. Parents may be very willing to pitch in with comments, criticism, and malicious gossip of their own to help the divorce along.
+ - Cats are to dogs what modern people are to the people we used to have. Cats are slimmer, cleaner, more attractive, disloyal, and lazy. It’s easy to understand why the cat has eclipsed the dog as modern America’s favorite poet. People like poets to possess the same qualities they do.
+ - You don’t despair about something like the Middle East, you just do the best you can.
+ - Politics are for foreigners with their endless wrongs and paltry rights. Politics are a lousy way to get things done. Politics are, like God’s infinite mercy, a last resort.
+ - Never be unfaithful to a lover, except with your wife.
+ - Staying married may have long-term benefits. You can elicit much more sympathy from friends over a bad marriage than you ever can from a good divorce.
+ - I wonder if it changes the nature of a society for beauty to be so common. Maybe in Vietnam “She has a wonderful personality” really means something. But I couldnt figure out a polite way to ask.
+ - Some people are better imagined in one’s bed than found there in the morning.
+ - Harvard has been almost as important to the American Jewish community as the pork-sausage industry.
+ - Fish is the only food that is considered spoiled once it smells like what it is.
+ - What would be a road hazard anywhere else, in the Third World is probably the road.
+ - The sky was so clear that the starlight cast shadows, and so many sparkles and glitters and glints appeared above us that it looked like something really expensive had been dropped and shattered in heaven – God’s Steuben ashtray, maybe.
+ - Every pleasure you forgoe on Earth is a pleasure you won’t get in heaven.
+ - No humorist is under any obligation to provide answers and probably if you were to delve into the literary history of humour it’s probably all about not providing answers because the humorist essentially says: this is the way things are.
+ - After all, what is your host’s purpose in having a party? Surely not for you to enjoy yourself; if that were their sole purpose, they’d have simply sent champagne and women over to your place by taxi.
+ - There are no kinder or better people in the world than those who listen to you when you are 18.
+ - Christmas begins about the first of December with an office party and ends when you finally realize what you spent, around April fifteenth of the next year.
+ - Italy is not technically part of the Third World, but no one has told the Italians.
+ - Imagine having journalists in your own home and not even covering the furniture with plastic sheets first.
+ - Anyone who thinks he has a better idea of what’s good for people than people do is a swine.
+ - Modern air travel means less time spent in transit. That time is now spent in transit lounges.
+ - Never strike anyone so old, small or weak that verbal abuse would have sufficed.
+ - The wonder is that communism lasted so long. But then again, modern poetry lasted a long time, too.
+ - Government subsidies can be critically analyzed according to a simple principle: You are smarter than the government, so when the government pays you to do something you wouldn’t do on your own, it is almost always paying you to do something stupid.
+ - Some people are worried about the difference between right and wrong. I’m worried about the difference between wrong and fun.
+ - I suspect the soviets never did want to use those bombs. The most Stalinist of Soviet hard-liners – Stalin, for example – must have realized a nuclear war would be a hard thing to clean up after.
+ - So what if I don’t agree with the Democrats? What’s to disagree with? They believe everything. And what they don’t believe, the Republicans do. Neither of them stands for anything they believe in, anyway.
+ - I’m old enough to remember when the air over American cities was a lot dirtier than it is now.
+ - Zero-sum thinking is an obsession of mine, but mostly in economics.
+ - Anyhow, all mankind’s ideas and interests, all human aims and motives, are exhibited, fully formed, in a three-year-old child. The kid is just operating on a smaller scale and lacks the advantage of having made enormous soft-money campaign contributions to political candidates.
+ - For toddlers I suggest leaving their mittens on year-round, indoors and out. That way they can’t get into aspirin bottles, liquor cabinets, or boxes of kitchen matches.
+ - Distracting a politician from governing is like distracting a bear from eating your baby.
+ - The young are adept at learning, but even more adept at avoiding it.
+ - The Italians have had 2,000 years to fix up the Forum and just look at the place!
+ - Maybe a nation that consumes as much booze and dope as we do and has our kind of divorce statistics should pipe down about “character issues.”
+ - If you think health care is expensive now, wait until you see what it costs when it’s free.
+ - In the past a man was expected to give his seat on a bus to a woman. Today it would be much more courteous for that man to give her his job.
+
+414 quotes

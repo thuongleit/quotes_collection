@@ -1,0 +1,36 @@
+ - Every time you are not practicing someone else is.
+ - I can’t change history, I don’t want to change history. I can only change the future. I’m working on that.
+ - Girls are a distraction and can easily cost points.
+ - I didn’t start a war. Nobody died.
+ - I want to be a hero, a small and good kind of hero, even though I know heroes have very short lives.
+ - I drew my strength from fear. Fear of losing. I don’t remember the games I won, only the games I lost.
+ - The fifth set is not about tennis, it’s about nerves.
+ - I love the winning, I can take the losing, but most of all I love to play.
+ - I believe that everything in life happens for a reason.
+ - I go to London, my favourite city in the world, and I feel at home.
+ - I don’t really care what the man on the street thinks. I never did anything to please him in the first place, and I’m not going to start now.
+ - I was in the tennis bubble. I wasn’t thinking about the big picture. I didn’t notice what they said on television, I wasn’t reading any papers. I had a coach and a manager, and they kept me in the bubble.
+ - So this is it. Match point for eternity.
+ - I haven’t lost a war. No one got killed. I just lost a tennis match.
+ - The boys are so powerful off of the baseline now that they don’t have to come to the net to finish points. That’s the reason we went to the net. To finish the point. Nowadays, even the big guys can hit winners four feet behind the baseline.
+ - I lost in the second round of the French Open and had 10 days off. I went to the Hard Rock Cafe. It was exciting to be away from my parents, to stay in a hotel. Hotels at 17 meant freedom.
+ - I don’t know how many millions of photographs have been taken of me.
+ - I met with my lawyers. They gave me all the wrong advice. For a long time I refused to accept the child was mine. I should have met her, arranged a DNA test and accepted my responsibility.
+ - For a year, I had all sorts of weirdos coming on to me.
+ - I’m not a God, I make mistakes.
+ - Winning is a way of expressing yourself.
+ - The suit-and-tie job is very nice, but it’s not really who I am in my heart.
+ - How do you build a relationship when you’ve hardly shared a word but suddenly share a child? How do you love a daughter you don’t see for nearly two years? When does she become your daughter? How does she become your daughter?
+ - I believed in raising my children as I had been raised.
+ - A few years after my first son was born, he wanted to know how we chose his name, so I began reading him the story of Noah’s Ark.
+ - The eyes of some of the fans at Davis Cup matches scare me. There’s no light in them. Fixed emotions. Blind worship. Horror. It makes me think of what happened to us long ago.
+ - Its silly to say it about a tennis player, but Im an unbelievable hero in Germany. And Germany needs heroes more than any place.
+ - When you are thrown onto the stage at 17 in such an enormous way, it becomes living on the edge because every step you take, every word you speak, every action you do becomes headline news. And it became, for me, life or death.
+ - If I go into a club now, all the blonde girls leave my corner and all the black girls come into my corner. It’s as if I’m racist towards white girls!
+ - An autobiography is not about pictures; it’s about the stories; it’s about honesty and as much truth as you can tell without coming too close to other people’s privacy.
+ - Thats the hard part about sport: as men we havent started to be in our prime, but as athletes we are old people. I needed support. I lost trust and did stupid things.
+ - Where do you go when you’re the best in the world? What’s next?
+ - Does anyone ask their parents how they are conceived?
+ - Andre Sa is playing close to his potential – maybe even above it.
+
+34 quotes

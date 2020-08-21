@@ -1,0 +1,43 @@
+ - Never underestimate the power of denial.
+ - Once Everton has touched you nothing will be the same.
+ - It’s a great thing when you realize you still have the ability to surprise yourself. Makes you wonder what else you can do that you’ve forgotten about.
+ - I’m a huge freak, and always have been. I spent the first part of my life trying really desperately not to be one, and it was just a waste of time.
+ - Sometimes I feel like I’m seeing it all at once and it’s too much. My heart fills up like a balloon that’s about to burst.
+ - Beauty is in the strangest places. A piece of garbage floating in the wind. And that beauty exists in America. It exists everywhere. You have to develop an eye for it and be able to see it.
+ - Life is too mysterious to try to map it out. I’ve certainly lived long enough to know it will take you places you never thought it would take you – and some of those places are kind of wonderful.
+ - We live in a time where there’s an alienation factor. There’s a certain disconnection. We don’t have any real sense of community anymore.
+ - My own belief is that people can come back from anything. It doesn’t mean that it won’t come at a huge cost.
+ - You have no idea what I’m talking about, I’m sure.
+ - I think the world is a place for oddballs and freaks. I’m only interested in oddballs and freaks as characters.
+ - I’m 53. I don’t care about high school students. I find them irritating and uninformed.
+ - I was conveniently bisexual for a long time, and then I went, ‘Come on, who am I kidding?’ And I have to say, it was the single biggest step I took toward emotional well-being, to stop feeling like I had to hide who I am.
+ - I definitely see the good in people. Certainly in my own life I strive to be somebody who is functional and well adjusted and can face conflict in a non-emotional and non-destructive way, and those are the people I try to surround myself with in my life. But as characters, they bore me.
+ - Racism is ridiculous no matter where it’s coming from.
+ - I really love storytelling, and I love the stories as they reveal themselves. It’s an incredibly nourishing process; it’s probably the closest I come to having a religion.
+ - We live in a patriarchal culture. It’s okay for women to be objectified but not for men.
+ - I’m not a believer in luck, but I do believe you need it.
+ - It’s a lot harder to find fault with the mundane details of daily existence when you really, really know on a cellular level that you’re going to go, and that this moment, right now, is life. Life isn’t what happens to you in 20 years. This moment, right now, is your life.
+ - I believe forgiveness is possible for everybody, for everything, but I’m a Buddhist.
+ - There is a fetishization of victimization in our culture. And I just am not interested in victimhood.
+ - I think all writers are armchair psychologists to some degree or another, and I think a character’s sexuality is fascinating. It’s a great way to really get at the root of their identity, because it’s such a personal thing.
+ - As a culture, we are not comfortable with mortality. We do not accept it the way other cultures do. We cling to youth, and we don’t want to die. It’s like, ‘Well, too bad, we do.’
+ - I need to feel like the work I’m doing is not necessarily important, but meaningful, at least to me, because otherwise it just becomes a day job. It just becomes factory work and I get really frustrated.
+ - The fact that we die, that makes life important. It’s hard to take, but it’s the truth.
+ - Happy relationships are boring. We all want them in our own life. But I don’t want to watch them on TV.
+ - I felt pride, wonderful pride, when I was captain. It was an honour to take over from Labby. Anybody who has ever captained a big club, which Everton are, will tell you it’s a great honour.
+ - The ego is kind of a big, unwieldy thing. It’s not so easily tamed or subdued.
+ - Directing is physically exciting because there’s a ticking clock, you’re working with people, it’s very social, it’s very enjoyable.
+ - I always choose to look, as much as one can, at the supernatural not being something that exists outside of nature, but a deeper, fundamental heart of nature that perhaps humans have lost touch with. It’s a more primal thing than perhaps we are attuned to in our modern, self-aware way of life.
+ - The important thing is that he shook hands with us over the phone.
+ - I think it’s very difficult, and it requires a tremendous amount of spiritual integrity and discipline, to not be a narcissist in a culture that encourages it every step of the way.
+ - I’m aware of ‘Twilight,’ but I’ve never seen the movies or read any of the books. Frankly, the story leaves me cold – why do a vampire story about abstinence?
+ - I would say try to tell stories that you care about as opposed to stories that you think will sell.
+ - I certainly believe that what we perceive as humans is just the tip of the iceberg. I don’t necessarily believe in vampires or werewolves or that kind of thing, but I believe there is definitely a realm we don’t necessarily have access to.
+ - Television viewing has become for me a completely different experience, because I don’t watch shows on a weekly basis. I wait until the DVD or I TiVo everything and wait until the end of a season and watch it all over a weekend. For me that’s a really satisfying experience, like reading a book.
+ - I’m a Buddhist, so one of my biggest beliefs is, ‘Everything changes, don’t take it personally.’
+ - There are times when I am directing, and there are a couple of moments I didn’t get the way I wanted, but I know I still have other angles to shoot and I have to be done by noon; I move on.
+ - A lot of times, the choice of the right song will save a scene. Or there will be a scene that’s a little flat and you put in the right song and somehow it just comes alive.
+ - I guess in America we’re so sold on this ideal of the perfect, well-adjusted family that is able to confront any conflict and, with true love and understanding, work things through. I’m sure they do exist, but I never knew any of them.
+ - Not everything is going to be successful. To strive for that is really naive. You just do the best you can do.
+
+41 quotes

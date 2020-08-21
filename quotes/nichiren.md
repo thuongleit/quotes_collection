@@ -1,0 +1,26 @@
+ - Nam-myoho-renge-kyo is the greatest joy for all humankind.
+ - One should become the master of one’s mind rather than let one’s mind master him.
+ - Winter always turns into Spring. Never, from ancient times on, has anyone heard or seen of winter turning back to autumn.
+ - Suffer what there is to suffer, enjoy what there is to enjoy. Regard both suffering and joy as facts of life, and continue chanting Nam-myoho-renge-kyo, no matter what happens. How could this be anything other than the boundless joy of the Law?
+ - It is the heart that is important.
+ - If you light a lantern for another, it will also brighten your own way.
+ - Summoning up the courage to take action is always the same regardless of how seemingly big or small the challenge. What may look like a small act of courage is courage nonetheless. The important thing is to be willing to take a step forward.
+ - That which you give to another will become your own sustenance; if you light a lamp for another, your own way will be lit.
+ - Do not go about complaining how hard it is to live in this world. such behavior is entirely unworthy of a real man.
+ - Faith Alone is what really matters.
+ - Could there ever be a more wonderful story than your own?
+ - Life in this world is limited. Never be in the least bit afraid!
+ - The treasures of the heart are most valuable of all.
+ - A coward cannot have any prayer answered.
+ - More valuable than treasures in a storehouse are the treasures of the body. The most valuable of all are the treasures of the heart.
+ - Buddhism is reason. Reason will win over your lord.
+ - Whether one has wealth or not, no treasure exceeds the one called life.
+ - Life is the most precious of all treasures. Even one extra day of life is worth more than ten million ryo of gold.
+ - If you care anything about your personal security, you should first of all pray for order and tranquility throughout the four quarters of the land...
+ - When a tree has been transplanted, though fierce winds may blow, it will not topple if it has a firm stake to hold it up. But even a tree that has grown up in place may fall over if its roots are weak.
+ - A person of wisdom is not one who practices Buddhism apart from worldly affairs but, rather, one who thoroughly understands the principles by which the world is governed.
+ - Never let life’s hardships disturb you. No one can avoid problems, not even saints or sages.
+ - By an increase in anger, warfare arises. By an increase of greed, famine arises. By an increase of stupidity, pestilence arises. Because these three calamities occur, the people’s earthly desires grow all the more intense, and their false views thrive and multiply.
+ - Flint has the potential to produce fire, and gems have intrinsic value. We ordinary people can see neither our own eyelashes, which are so close, nor the heavens in the distance. Likewise, we do not see that the Buddha exists in our own hearts.
+
+24 quotes

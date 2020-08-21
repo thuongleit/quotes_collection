@@ -1,0 +1,29 @@
+ - They have accepted me as an individual, as a personality, as an entity. I belong! I am important! I am somebody!
+ - Maybe the new me will be different.
+ - I’m really cracking. No, I’m beyond cracking. I’m shattered. I’m lost. I’m fragmented.
+ - I’ve got to sleep. Sleep is my only way to escape.
+ - I guess I’ll never measure up to anyone’s expectations. I surely don’t measure up to what I’d like to be.
+ - I’m afraid to live and afraid to die.
+ - I would like to stay stoned all the time, it scares me it’s so good. I would like to stay stoned every minute of every day for the rest of my life.
+ - Sometimes fantasies are better than life.
+ - I’m not really sure which parts of myself are real and which parts are things I’ve gotten from books.
+ - They don’t think “I care,” “I hurt,” or “I have feelings.” It just seems like I’m always “wrong,” always “selfish,” always “self-centered” and everything else that’s negative and destructive.
+ - Alone. The saddest word in the world.
+ - It’s a good thing most people bleed on the inside or this would be a gory, blood-smeared earth.
+ - Why is life so difficult? Why can’t we be just ourselves and have everyone accept us the way we are?
+ - I feel like Alice in Wonderland. Maybe Lewis G Carroll was on drugs too.
+ - I really am only one infinitely small part of an aching humanity.
+ - She didn’t know whether she was running away from something or running to something, but she admitted that deep in her heart she wanted to go home.
+ - The same old dumb teachers teaching the same old dumb subjects in the same old dumb school. I seem to be kind of losing interest in everything. At first I thought high school would be fun but it’s just dull. Everything’s dull. Maybe it’s because I’m growing up and life is becoming more blase.
+ - This morning when I left Mom’s parting words were, “Come straight home after school.” Wow! Like I’m going to get stoned at 3:30 – it doesn’t sound so bad at that.
+ - I can’t believe that I changed so little. I expected to look old and hollow and gray, but I guess it’s only me on the inside that has shriveled and deteriorated.
+ - How can thoughts hurt so much when they aren’t even physical?
+ - My biggest mistake: not wanting to help myself into thinking I am happy, that change would come about without really trying to change, or wanting to change. Procrastinating about changing. I do want to change.
+ - I pretend I’ve got lots of confidence and I’m a big jock and like that but deep inside I’m a frightened, insecure, can’t-make-it failure.
+ - I bet the pill is harder to get than drugs – which shows how screwed up this world really is!
+ - The complete bottom has fallen out of my life.
+ - Nobody’s talking to me, but nobody’s hassling me either. I guess you can’t have everything.
+ - How is it possible for me to be so miserable and embarrassed and humiliated and beaten an function still talk and smile and concentrate?
+ - Lying – remembering beauty in truth.
+
+27 quotes

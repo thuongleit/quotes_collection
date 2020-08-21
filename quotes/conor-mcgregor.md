@@ -1,0 +1,66 @@
+ - There's no talent here, this is hard work. This is an obsession. Talent does not exist, we are all equal as human beings. You could be anyone if you put in the time. You will reach the top, and that is that. I am not talented, I am obsessed.
+ - We’re not just here to take part, we’re here to take over.
+ - I fear no man. If you breathe oxygen, I do not fear you.
+ - Doubt is only removed by action. If you’re not working then that’s when doubt comes in.
+ - I believe in myself so much that nothing is going to stop me.
+ - Real champions fight through adversity.
+ - I work hard and fight easy.
+ - Look out for those who look out for you. Loyalty is everything.
+ - Failure is not an option for me. Success is all I envision.
+ - At the end of the day you gotta feel some way. So why not feel unbeatable? Why not feel untouchable.
+ - I stay ready so I don’t have to get ready.
+ - I’m cocky in prediction, I’m confident in preparation, but I am always humble in victory or defeat.
+ - I am comfortable in the uncomfortable.
+ - You must improvise, adapt, and overcome.
+ - It’s not really that much big of a deal – you brush it off and you come back. Defeat is the secret ingredient to success.
+ - Excellence is not a skill, excellence is an attitude.
+ - I’m just going to keep doing what I’m doing. Keep proving people wrong and proving myself right.
+ - I don’t relax, I don’t celebrate. I sit and plot.
+ - I have never encountered a winner that held hate towards something.
+ - Be passionate, be optimistic, be grateful.
+ - Pressure is an illusion, but I like that illusion of pressure.
+ - I’m definitely on the pursuit of perfection. I will always be learning.
+ - All that matters is how you see yourself.
+ - Smart work pays best. Trust it.
+ - You sleep on a win and you’ll wake up with a loss.
+ - Don’t impersonate. Innovate.
+ - My success isn’t a result of arrogance. It’s a result of belief.
+ - An injury is not just a process of recovery it’s a process of discovery.
+ - Do I hate my opponents? How can I hate someone who has the same dreams as me?
+ - Keep positive and keep pushing on and things will turn good.
+ - You are either the best. Or you are the worst. There is no in between.
+ - I don’t worry about my opponent or their game, I worry about my game.
+ - I have visualised my imagination so clearly and so consistently that it has manifested itself into my reality.
+ - I pursue this dream and carry on. I don’t dwell too much on the outside, I just focus on the inside.
+ - I keep having vivid dreams of success. Then it’s time to sleep.
+ - I plot my ascent daily.
+ - Movement for me is meditation.
+ - Know yourself, to know others.
+ - If you are the best, you must go that extra mile.
+ - I studied every move, I became fascinated by thinking what I could have done differently. And I take that approach now as a professional. I am on it, all the time, never stop thinking, learning. You don’t get to be world champion unless you do that.
+ - Always be civil, but with a plan to neutralise everyone in the room.
+ - Speed is the essence of war.
+ - Appreciate your surroundings and be grateful for it and that’s when good things happen.
+ - Be spontaneous, be creative, go out and have fun, let things happen naturally.
+ - Face adversity head on in your training and you will conquer it smoothly in your fight.
+ - There’s a Celtic saying, “Many a time a man’s mouth broke his nose.”
+ - The support gets me to the gym but the doubt keeps me there.
+ - One thing I believe that’s a key to success is celebrate your surroundings.
+ - I don’t feel negative emotions. I feel calm, composed and ready. And as it goes on I get better at it. By the time the fight is on, I don’t feel any emotions at all.
+ - There’s two things I really like to do and that’s whoop ass and look good. I’m doing one of them right now and on Saturday night, I’m doing the other.
+ - There’s people that focus on the game and forget about the art. There’s that specific special individual that can do both.
+ - Every little detail to every little movement must be perfect. Perfection in movement.
+ - You can’t enter a contest emotionally charged. It clouds your judgment, it clouds your reaction.
+ - When I’m in there I’m just in my zone. What people think about when they’re looking at me, that’s their business. If there is a bit of that, I am fine with it, each to his own.
+ - Think street, train sport.
+ - Victorious. I feel that is why I did all the training, why I make the sacrifices, that is why I got into the shape I am in. I feel I have won, that’s millions more coming my way, I feel great.
+ - I move in many ways. I can adapt and overcome to any situation.
+ - I don’t just want the belt, I want every one of their heads on a plate.
+ - I mean I love movement. I mean the energy that comes from the way I move. We get energy from how we move. I mean the control I get from knowing everything about how my body feels and how it is working.
+ - Wherever it goes is my best position. Wherever it goes I am comfortable.
+ - I’ve read a lot of books on the laws of attraction, and in my home I have a big book on Muhammad Ali, which I’ve read, because he is like a hero of mine, but other than that, no, I’m not a big reader.
+ - I whoop people for truckloads of cash.
+ - Golf isn’t a sport, it’s a game. I’m not saying it’s not a difficult game, with lots of mental stuff. But it’s not a sport like mine. Where is the combat, the intensity of what we do?
+ - Boxing is going to have to catch up with the kind of things UFC is doing. They’re getting left behind.
+
+64 quotes

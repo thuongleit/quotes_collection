@@ -1,0 +1,30 @@
+ - I think I’d be a good pimp cuz I’d never beat my ho’s.
+ - I can’t sit still for 10 minutes.
+ - I love the smell of a woman’s armpit when she’s not wearing deodorant.
+ - My whole body is a wreck. I’ve injured myself so many times with jujitsu, skateboarding, football. I guess I like to live hard.
+ - There are 6 billion people in the world. It’s hard to find the one person who’s right for you.
+ - When I was 17-years-old, I was in the music business.
+ - To me, theater is the mecca; if you really love to act, that’s where it’s the most fun, by a long shot.
+ - I feel I should be doing stupid stuff, but I’m not going to.
+ - I don’t want to sound pretentious, but you could hire a bunch of monkeys to be on a TV show, and if it’s successful, then everything’s perfect and everybody’s happy.
+ - Men should have rough hands and be strong.
+ - I want to struggle and make films. It’s not a financial thing, it’s more of a who-I-am thing.
+ - I want to create a little chaos and make people’s heads turn.
+ - I had that thing of wanting to prove I was a tough kid.
+ - If you don’t have any fight in you, you might as well be dead.
+ - I never planned on being a plumber.
+ - Now my drug is writing or acting, being creative.
+ - When I was a kid, I was always an athlete. I played a lot of sports. I played football, basketball, baseball and soccer.
+ - I was the bad kid in school. I was usually in trouble.
+ - If you love acting and you’ve ever experienced theater, then you know that in a movie it’s almost impossible to live out that experience, unless you’re a Pacino or a De Niro or somebody who gets to pick their parts.
+ - I was raised right. I dig who I am.
+ - I’m kind of like the goofy number-seven guy in a lot of movies.
+ - The reason I started writing movies was because I kept getting parts that I just kind of stepped into. I didn’t have to do a lot of work and I ended up getting sort of bored.
+ - I was a scam artist in high school for a while.
+ - Good, bad mediocre or whatever it is, if a director wants me in his movie, I take it as a compliment.
+ - In the end, the work shows if you’re good.
+ - But with writing, all you need is a pad of paper.
+ - I liked being in the spotlight.
+ - I mean, what do you do in Las Vegas? You gamble – and you go to strip clubs.
+
+28 quotes

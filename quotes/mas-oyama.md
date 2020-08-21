@@ -1,0 +1,39 @@
+ - If you do not overcome your tendency to give up easily, your life leads to nothing.
+ - Always remember that the true meaning of Budo is that soft overcomes hard, small overcomes large.
+ - One becomes a beginner after 1000 days of training. One becomes a master after 10,000 days of practice.
+ - Reading good books implants good ideas in the mind, develops good aspirations, and leads to the cultivation of good friends.
+ - Human beings are capable of virtually limitless degradation; they are also capable of virtually limitless improvement and achievement. Success depends on goals and on diligence in pursuing them.
+ - If you have confidence in your own words, aspirations, thoughts, and actions and do your very best, you will have no need to regret the outcome of what you do. Fear and trembling are lot of the person who, while stinting effort, hopes that everything will come out precisely as he wants.
+ - No matter how strong the rival, the just will always win.
+ - Subjecting yourself to vigourous training is more for the sake of forging a resolute spirit that can vanquish the self than it is for developing a strong body.
+ - One must try, everyday, to expand one’s limits.
+ - The path of Martial Arts begins and ends with courtesy. So be genuinely polite on every occasion.
+ - True courage is born only when it is accompanied by justice.
+ - A human life gains lustre and strength only when it is polished and tempered.
+ - I realized that perseverence and step-by-step progress are the only ways to reach a goal along a chosen path.
+ - Until the day I die, I never want to be separated from my dogi; I never want to cease my training efforts in the dojo.
+ - Karate is not a game. It is not a sport. It is not even a system of self-defense. Karate is half physical exercise and half spiritual. The karateist who has given the necessary years of exercise and meditation is a tranquil person. He is unafraid. He can even be calm in a burning building.
+ - 1-2 out of every 100 students reach Black Belt and of those only 1 out of every 1,000 achieves his 2nd Dan.
+ - Power is no more than a part, no more than the tip of the iceberg of limitless profundity and sublimate of Karate.
+ - Personal greed and egoism are things that cause human beings to forget respect for others and to violate rules that have been established for the sake of peace and friendship.
+ - Each of us has his cowardice. Each of us is afraid to lose, afraid to die. But hanging back is the way to remain a coward for life. The Way to find courage is to seek it on the field of conflict. And the sure way to victory is willingness to risk one’s own life.
+ - If someone asked me what a human being ought to devote the maximum of his life to, I would answer: training. Train more than you sleep.
+ - Although it is important to study and train for skill in techniques, for the man who wishes to truly accomplish the way of budo, it is important to makehis whole life in training and therefore not aiming for skill and strength alone, but also for spiritual attainment.
+ - In the martial arts, introspection begets wisdom. Always see contemplation on your actions as an opportunity to improve.
+ - A man who understands decorum and the courtesies is a great treasure; I hope to train and send into society as many such men as I can.
+ - Come ye trials and challanges; come life’s big waves, for I am ready?
+ - Karate is Budo and if Budo is removed from Karate it is nothing more than sport karate, show karate, or even fashion karate-the idea of training merely to be fashionable.
+ - My Way is the Way of Karate, which is also the Way of humanity, and which is consequently related to the Way of Heaven.
+ - Studying the martial Way is like climbing a cliff: keep going forward without rest. Resting is not permissible because it causes recessions to old adages of achievement. Persevering day in, day out improves techniques, but resting one day causes lapses. This must be prevented.
+ - The most important are the eyes. In a fight if you look down out of fear you’ll certainly be defeated.
+ - One living daily in the Way carries their head low and their eyes high; reserved in speech and possessing a kind heart, they steadfastly continue in their training efforts.
+ - Sice Karate exists for cultivating the spirit and training the body, it must be a moral way surpassing mere techniques...
+ - I have not permitted myself to be ignorant of any martial art that exists. Why? Such ignorance is a disgrace to someone who follows the path of the martial arts.
+ - Behind each triumph are new peaks to be conquered.
+ - Courtesy should be apparent in all our actions and words and in all aspects of daily life. But be courtesy, I do not mean rigid, cold formality. Courtesy in the truest sense is selfless concern for the welfare and physical and mental comfort of the other person.
+ - The fastest way to attain courage is to follow the chosen Way and be willing to abandon life itself for the sake of justice.
+ - As far as possible, I want nothing more than to don my training gi and teach Karate.
+ - It is possible for even the smallest of accolades of achievement to be truly worthwhile without tears and toil?
+ - The most significant life is the one lived on the basis of a personal sense of justice and the desire to see justice realized everywhere.
+
+37 quotes

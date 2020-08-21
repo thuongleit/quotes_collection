@@ -1,0 +1,23 @@
+ - Oh it’s TRUE, it’s DAMN true.
+ - Undertaker, if that is your real name...
+ - Your Olympic Hero is scheduled to wrestle a match against the man they call the big red retard; not that I have anything against retarded people cause I don’t. As a matter of fact, I have a lot of retarded fans out there that admire and respect your Olympic Hero, and I wish them well.
+ - Children love me, dammit!
+ - Oh its real, its damn real.
+ - Pro wrestling is not fake; it’s sports entertainment. We go out there and we perform, and a lot of what we do out there is real, but we’re not going to insult anyone’s intelligence – there is a predetermined winner. It’s just the fans don’t know who it is, and that’s what makes it so intriguing.
+ - I became the first ever Euro-continental champion in WWF history. Well, besides D-Lo Brown, but he doesn’t count.
+ - You can prance and you can dance, but when it comes to relations, keep it in your pants.
+ - You do not boo an Olympic Gold Medalist. I’m the best in the world. I came here for you. You don’t boo me.
+ - Not to mention our former tag team champions lost their titles after my good friend Christian was hit in the genitals with a hockey stick by a midgit! I mean enough is enough.
+ - Hey, I drank milk that was a DAY past its expiration date. Now THAT is extreme!
+ - I feel like a real cowboy! Yippi Ki Yay!
+ - If your Olympic Hero were to use the Worm in the 1996 Olympic Games, it would be so embarassing to all the other atheletes – and our country, mind you- that the USA would have finished behind Guam.
+ - I love Vince McMahon. He came up with the character. He ran with it, and then I was able to run with it. I thank him for the opportunity he gave me. Vince McMahon was one of my best friends, period.
+ - You can turn a giant into a mouse just by getting him fatigued. That was my whole game plan.
+ - I hear your chants. I hear your cat calls. And yes it’s true. I’m obsessed with other men’s balls. WORD!
+ - Believe it or not, I kind of went into professional wrestling so I could get an avenue into acting.
+ - You don’t BOO an Olympic Gold Medalist!
+ - Ive been chastised for going into mixed martial arts and backing out. But the reason I backed out was the terms – they wanted me ready to fight in four weeks, but youve got to be out of your mind. So I decided to go back to my roots, back to wrestling.
+ - You want ME in the ring? Now I know you’ve been drinking.
+ - Im in professional wrestling, which is what I do for a living. I coordinate stunts. I memorize them.
+
+21 quotes

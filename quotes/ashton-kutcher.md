@@ -1,0 +1,153 @@
+ - Everything around us that we call life was made up by people that are no smarter than you.
+ - I’m continually trying to make choices that put me against my own comfort zone. As long as you’re uncomfortable, it means you’re growing.
+ - I believe that opportunity looks a lot like hard work.
+ - Build a life. Don’t live one!
+ - Be smart, be thoughtful, be generous.
+ - The sexiest thing in the entire world is being really smart. And being thoughtful and being generous. Everything else is crap. I promise you. It’s just crap that people try to sell to you to make you feel like less. So don’t buy it. Be smart. Be thoughtful and be generous.
+ - I don’t believe that old cliche that good things come to those who wait. I think good things come to those who want something so bad they can’t sit still.
+ - I never quit my job until I had my next job.
+ - There’s something advantageous about having people underestimate your intellect, insomuch as a lot of things are revealed to you. They assume you don’t know what you’re talking about, then all of a sudden, you do. And the next thing you know, you have information you wouldn’t normally have.
+ - There’s no text that can replace a loving touch when someone we love is hurting.
+ - Always roll up the sleeves on your shirt. It gives the impression that you’re working, even if you’re not.
+ - Vulnerability is the essence of romance. It’s the art of being uncalculated, the willingness to look foolish, the courage to say, ‘This is me, and I’m interested in you enough to show you my flaws with the hope that you may embrace me for all that I am but, more important, all that I am not.’
+ - When it comes to love, everyone wants to receive it, but at the end of the day, you don’t get to receive it until you start to give it. That goes for everything. What you give is what you receive. If you want the drug, you have to give the drug.
+ - My parents couldn’t give me a whole lot of financial support, but they gave me good genes. My dad is a handsome son-of-a-gun, and my mom is beautiful. And I’ve definitely been the lucky recipient. So, thank you, Mom and Dad.
+ - I woke up many mornings not knowing what I’d done the night before. I’m amazed I’m not dead.
+ - We all have that desire for something special, something committed. We all want to be The One.
+ - I’ve learned the hard way how valuable privacy is. And I’ve learned that there are a lot of things in your life that really benefit from being private. And relationships are one of them.
+ - Working hard, and being thoughtful, and generous, and smart; it’s a path to a better life.
+ - You think you know how much you can love another person, and then you have a child and you realize you didn’t know. It’s infinitely rewarding.
+ - Looks fade, don’t get too attached.
+ - I’ll watch a Keanu Reeves movie and I’ll go, ‘Wow, he’s really not a very good actor!’
+ - Scars are reminders of the obstacles we’ve overcome. Wear them proudly.
+ - Your shoes have to match your belt. That’s rule number one for guys. You can’t put the brown shoes with the black belt. Or a brown belt with a black wristwatch. Just don’t do it! Also, I don’t like boots with suits. And when you wear sneakers, make sure they go with your shirt.
+ - I really think that you have to find a partner that compliments you and is somebody that pushes you and is better at some things than you are, so they can push you to improve yourself as a person.
+ - I never thought in my life, I never really thought I would get married. I watched my parents go through a divorce, and I thought, like, this is just not something people are supposed to do.
+ - I don’t think opposites attract. I think like attracts like. So I don’t think that they do attract, opposites. Only when you’re talking about magnetic poles.
+ - I hate Valentine’s Day. I think every day should be a day of romance. Then, on Valentine’s Day, you should get to tell whoever you hate that you cannot stand them. There would be one day of hating, and 364 days of love.
+ - I mean, everyone has to calm down sometime. I’ll still smoke up and party, but yeah, eventually you gotta settle down and be an adult. But still have fun. Demi’s helped me sort of like, understand that down the road it’ll just happen.
+ - Don’t settle for what life gives you; make life better and build something.
+ - The scruffier your beard, the sharper you need to dress.
+ - A lot of the characters I play are very naive, and I don’t think I’m like that. And I’m not stupid!
+ - In e-commerce, your prices have to be better because the consumer has to take a leap of faith in your product.
+ - If you really want to make a relationship work, at some point in time, you’re going to have to make some sacrifices and do some things that are a little bit uncomfortable.
+ - Modeling is the best because you have to look hot, which comes easy to me, you know. I’m blessed with that.
+ - My mom’s whole side of the family, they’re all Packers fans. My mom’s a Bears fan. My stepdad is a Vikings guy. So that gets ugly. My mom sits upstairs watching the Bears game; he sits in the basement. They can’t watch it together. Football’s a violent anger in our family dynamic.
+ - A lot of people use social media to share mundane things or for self-glorification. I try to use it to share interesting things with people.
+ - I gave up smoking, I never gave up the drinking. But it’s hard to smoke and swim at the same time. You’d get to the edge of the pool and all you’d be wanting is a cigarette when all you actually really want is oxygen. So I traded the smoke for the oxygen.
+ - The power of a handwritten letter is greater than ever. It’s personal and deliberate and means more than an e-mail or text ever will. It has a unique scent. It requires deciphering. But, most important, it’s flawed.
+ - I would say probably my most alpha quality is my competitive nature. I’m very competitive, and it tends to bring out very much the man in me.
+ - The bigger thing with bitcoin is not bitcoin itself, but what does that decentralized technology really do?
+ - I certainly don’t think I’m deserving of taking up space forever as a human. There’s a whole generation of people yet to be born that are going to be so much more evolved than I am. I don’t want to take up space. They’re going to be better equipped to make the world a better place than I am.
+ - Your best T-shirt should be like your bed; it just feels like you are home when you are in it.
+ - Wear a belt! It’s an easy way to pull together your outfit. Just be sure to match it to your shoes.
+ - Although I considered putting my eight years of Boy Scout experience and love for our nation to the test by joining the military, I did not want to put myself in a position where I might be commanded to take the life of another, and quickly ended my flirtation with military service.
+ - I fail frequently – I just try to keep it quiet.
+ - I live my life like anybody else, and people choose to write about mine. And what they write I can’t control – when they write lies at least – because the laws can’t really protect you unless you can prove malicious intent. So I just choose not to read it.
+ - The number of lines in your forehead tells how many lives you’ve lived.
+ - My teacher says that everything that you want in the world is one step away, you just have to figure out which direction to step in.
+ - Acting can be so much fun that it’s easy to forget that what you’re doing is a job. But if I’ve got my tie on, I’m going to work.
+ - I love life, I love people and I love sharing, so I would say that I’m romantic.
+ - There are a lot of perks that come with fame, and with every positive there’s a negative, and then it all kind of balances out.
+ - Anyone who has tried to build something that changes people’s lives sometimes finds life to be a distraction, and finds people who don’t care as much as they do to be annoying.
+ - I’m very tech-forward. However, I also think hitting the pause button is not a bad thing, and really connecting with people one-to-one viscerally, having a connection with someone, is really important.
+ - There’s no sense in making life seem like it’s a struggle, because that doesn’t make anybody feel better.
+ - I would just like a woman someday, somewhere, at some point in my life to say to me, ‘You’re a great listener.’ Haven’t heard it yet, and that’s a superior compliment to get from a woman. But I’m going to work on it.
+ - I’m happy wherever I go, whatever I do. I’m happy in Iowa, I’m happy here in California.
+ - Ultimately there’s a dirty secret about the Internet, which is nothing disappears. All these companies have all your information. They have your search history.
+ - If you want to be a real entrepreneur you have to be the cause, you have to be the creator of someone else’s new realty. Which eliminates time, space, motion, and friction.
+ - Whether you like it or not, the digital age has produced a new format for modern romance, and natural selection may be favoring the quick-thumbed quip peddler over the confident, ice-breaking alpha male.
+ - Entertainment, really, is a dying industry.
+ - I wanted to be a genetic engineer. That was my goal in college. I wanted to figure out what the codon sequence was that causes replication in a cardio myopathic virus. That was my goal.
+ - Women have a level of outward compassion that a lot of men don’t necessarily have. Guys feel as deeply as women, but they don’t share it as much.
+ - When your wife calls, you have to take it, no matter what you’re doing.
+ - I really think that technology has the greatest potential to accelerate happiness of most things in the world.
+ - When I was 13, I had my first job with my dad carrying shingles up to the roof. And then I got a job washing dishes at a restaurant. And then I got a job in a grocery store deli. And then I got a job in a factory sweeping Cheerio dust off the ground.
+ - The reality is that we communicate with every part of our being, and there are times when we must use it all. When someone needs us, he or she needs all of us. There’s no text that can replace a loving touch when someone we love is hurting.
+ - I think love is one of the most elusive things in the world. I don’t know that there’s a perfect formula for it and that’s what makes the stories interesting.
+ - Romance is sort of an island right next to care. When you care about someone and you listen to them and you hear them and you can feel them and you know just what’s right, and generally it’s something that will be very unimpressive to a room of strangers.
+ - I trust my government. I actually have a trust for my government with my data, and I trust them to protect me. They’ve protected me – they’ve made the best efforts to protect me my whole life.
+ - My mom was more into the yelling. She was the enforcer. She was the one that laid down the law. My dad made up the rules, but my mom laid down the law. It’s not her words, it’s her tone that sticks with me.
+ - Steve Jobs had something like a 90% approval rating from his employees. You hear stories about him being this short-tempered, aggressive person, which he was. But he was in the pursuit of making people around him better, so the product they created would be better.
+ - I think people know Steve Jobs the showman. I think people know the guy who stood up and gave the keynotes. The magician. The salesman.
+ - I’m serious when I’m talking to the press because I’m always on guard because I never know what you’re going to ask and I never know how you’re going to construe my answer, so I try to maintain a pretty even pace when I’m speaking with the media.
+ - I love efficiencies and I love solving big problems, and I love working with people who create efficiencies. I love creating efficiencies in my own life on a day-to-day basis.
+ - I’ll probably never be the best actor in Hollywood, but I hope to be the hardest working.
+ - I think at all social networks, be it Facebook or Twitter or whatever it is, there’s an ecosystem that exist there. But there’s also an ego system that exists there.
+ - Sharing love and light while in Israel.
+ - All the really successful, happy relationships that I know of, the people that are together are friends, anyways.
+ - I’m from Iowa, we don’t know what cool is!
+ - There is some argument about who actually invented text messaging, but I think it’s safe to say it was a man. Multiple studies have shown that the average man uses about half as many words per day as women, thus text messaging. It eliminates hellos and goodbyes and cuts right to the chase.
+ - From a purely entertainment point of view, to create a movie with a female lead that is empowered with her own sexuality I think is a really powerful thing.
+ - When it comes to getting dressed, men are a little bit more important than handbags but less important than shoes.
+ - When you do movies, it’s you have a 3-month family and then everybody goes away and then joins another family, you know?
+ - I try to make good decisions as decisions come up.
+ - The truth is that I’m an idiot. I am. I don’t do things by the rules sometimes. I say things that I probably shouldn’t say. I push buttons. I deserve to be made fun of. And I feel like, as soon as you can make fun of something, it instantly removes the fear.
+ - I didn’t come from the worst of situations, and I didn’t come into the best of situations. But I’ve appreciated the best situations. And I’ve made the best of the worst situations. I’m lucky to be where I am.
+ - Whether it’s being a leading man, making TV shows, being with my family, I’ve learned a lot.
+ - I like a high boot on a girl.
+ - I’m very awkward when I have time off. I don’t know what to do with myself. It’s weird not to work.
+ - I think we’ve all been in the middle of doing something we cared about, when someone coming in the room and saying ‘hello’ was annoying. I personally can understand that, as someone who tries to create.
+ - I didn’t even know guys modeled before that. I thought Fabio was the only male model, and I really didn’t fit that bill.
+ - How does somebody know what they want if they haven’t even seen it?
+ - I wouldn’t say you have an online life and a real life. I think technology is just mapping and organizing what already exists.
+ - The goal is not to get into a relationship; the goal is to be in a relationship.
+ - Steve Jobs was a pretty complicated character and somewhat a psychologically complicated guy.
+ - I can’t grow a mustache. It’s pretty sad if I attempt to.
+ - I think you’re sort of always waiting, wondering when the word “cut” is going to be said when you’re doing a scene. Like you’re there and you’re doing the scene and you’re always sort of like, “OK, are they going to cut it? How far are we taking this, or are they going to cold cut?”
+ - What I’ve become good at is bringing things that aren’t necessarily mainstream to the mainstream. What I did see on Twitter was a potential for mass publication; it’s a mainstream consumer broadcasting device. It transforms customers and companies. You have to be transparent or you fail.
+ - I really think that technology has the greatest potential to accelerate happiness of most things in the world. The companies that will ultimately do well are the companies that chase happiness. If you find a way to help people find love, or health or friendship, the dollar will chase that.
+ - People used to behave morally because they thought God was always watching – in some ways God today is the collective, and the collective is watching.
+ - I think privacy is valuable. You don’t have to share everything, and it’s healthy to occasionally hit the pause button and ask yourself if you’re oversharing. But at the end of the day, if you’re not doing anything wrong, you don’t have anything to hide.
+ - I don’t have to act for work anymore; I can act for passion. That’s freeing, but it’s also a prison of its own. When you can do anything you want, you’re really responsible to do something great. And that’s scary.
+ - I want to be like Tom Cruise from ‘The Outsiders’ and go on and do amazing movies for a long time.
+ - Americans think that they have a history, but it’s nothing compared to Europe.
+ - I could never be with a woman who felt like she needs to change me.
+ - It’s hard to appreciate success in modeling, because it’s not something you feel like you’ve earned, so there is a little bit of bread of shame that comes with that. It’s like somebody giving you a puzzle that’s already put together.
+ - I’ve constantly done my best to get the best material I can get with the best directors I can get to direct me.
+ - For me, the most entertaining evening would be to go sit with entrepreneurs and talk with them about how they’re building their companies and how we can help to make them better. That’s the one thing in the world – well, I love doing that.
+ - See you on the other side, kid.
+ - I learned what a Birkin bag is from the price tag. You’ll never forget what it is once you’ve paid for one.
+ - I’ve had some really, really wild fun nights in Vegas. I ended up on stage once with this band, The Digital Underground, doing the Humpty Dance.
+ - And every job that I had was a stepping stone to my next job and I never quit my job until I had my next job. And so opportunities look a lot like work.
+ - I’ve usually found that the greatest rewards in my life come from taking on things that are a little bit scary.
+ - I think guys wind up after a while not wanting another guy sleeping with the girl they’re with. But eventually everyone wants something more. We all have that desire for something special, something committed. We all want to be The One.
+ - One of the things I’ve become immune to is people talking about market cap and social media platforms.
+ - I think I probably think about myself as an actor, which is the way most people do. I think I’m good, I don’t think I’m great. I think I would hire somebody else to play me in the movie about me.
+ - As marriage goes, I think most people sort of set being – you know getting married as the goal as opposed to being married.
+ - You know, photo conversations are replacing verbal conversations. I don’t know if that’s a bad thing. A photo is worth a thousand words.
+ - If you believe the good stuff that people say then you have to believe the bad stuff and then you allow yourself to be on a roller coaster of what other people think. So I think you try to find the good in the bad and the bad in the good and balance yourself and stay on an even keel.
+ - I think Ryan Gosling is a really great actor who’s meticulous about his work. And I’d love to have the guts that Johnny Depp has to actually go outside the box on a character. When he plays a character, he plays it in a way that nobody else would.
+ - I say whatever I think and whatever is on my mind, and I just hope that it comes out good. I just try to have a lot of fun.
+ - If Facebook gets your entire social graph, you don’t necessarily want to share everything with your entire social graph. You might wanna parse that social graph. So there’s a company called PASS that is a private social network that I personally use for my friends and my family.
+ - It’s really easy, once somebody passes away, for the tales about them to become taller, the good ones and the bad ones.
+ - I think that when we start thought-policing people and idea-policing people, then that’s crossing a line. And I think, you know, everybody’s so afraid of this imaginary line of thought police that they forget their own personal safety.
+ - My mom is still yelling at me because she needs more autographed pictures.
+ - I didn’t really go the starving-artist route. I kind of went and did massive, commercial things.
+ - The film industry brings people together, and so does technology. I see them as similar platforms.
+ - The thing that enchants me the most is the ability women have to feel other people’s pain. The total empathy that women have is extraordinary.
+ - I don’t read the magazines that make things up about people. I know what the truth is. I don’t sort of indulge in my own fodder. I don’t really care what they write about me.
+ - I actually used to be a front for the largest national sports-betting syndicate in America.
+ - I think directing yourself is a monumental task. Just to self edit as an actor, you work for some directors who don’t give you a lot of feedback so you have to do that. That’s a difficult thing to do as an actor.
+ - I like being what the girls call MOD-“my other Dad.” What I’ve learned in the past year is that every kid is different. But as long as you love them and never forget that love, then you have the key. I think it’s all about just being there and loving them because kids feel that every single day.
+ - My goal is to embrace the people, the ‘natural resources’ of Israel, and to build businesses with the creative Israelis.
+ - I would say I’m 90 percent collaborative in everything I do, and 10 percent of the time I just make the call.
+ - There was a point in time where I was doing movies to be able to afford to live in a certain way.
+ - I’m a guy’s guy. I don’t comb my hair unless I have to, and I don’t use lotions or fancy shampoos.
+ - I think that romance sort of coincides with effort, so you can fall flat on your face, but as long as you’re making a great effort, I think it comes off as romantic. So it can be something as simple as, like, if you’re someone who doesn’t cook, you can make a meal.
+ - I definitely believe that if you stop working at relationships, they go away.
+ - I am only young once, who cares if I’m a goofball!
+ - I think the reward for doing comedy is doing the comedy itself. You get to go to work everyday and laugh and make other people laugh and to me there’s no greater reward than that.
+ - The failures that we have are sometimes expensive educations.
+ - I guess I really haven’t thought much about winning an Oscar, but if I had the opportunity, I’m sure I would like it.
+ - The people here are amazing – the young people here are amazing. The entrepreneurs here are incredible.
+ - What I’ve become good at is bringing things that aren’t necessarily mainstream to the mainstream.
+ - After ‘Punk’d,’ my company Katalyst did a deal with AOL to produce short-form content for the Web. At that time it was a different game. If you got front-page coverage on any popular website, you could probably get a push.
+ - Everyone loved Steve Jobs and the idea of Steve Jobs. Like a lot of people, I loved a man I never knew.
+ - One of the things about being on Twitter, for me, is mostly about just being on the pulse of what people are interested in, what people are doing and what people are looking for. I look at entertainment projects and storytelling, and I really try to think about what people want.
+ - I think that the way that Steve Jobs sought after love was to create products that people loved. And when people loved his products, in turn they – he felt like they loved him.
+ - We’re all living in a casino. It’s just Vegas. Everything is on camera. Everything is being recorded. Everything is on audio. The truth is we all have access to everybody else’s information.
+ - I think about the automobile, I think about like, when I was a kid, you know, the invention of the answering machine, which I was like, ‘Wow.’ Or call waiting, which was, like, very big. It was a very big thing. Call waiting was a very big thing. And these incremental innovations happen constantly.
+ - As an actor, I know that any feelings you’re showing are manufactured. But I still don’t want to fool my mind into thinking my wife’s into another guy.
+
+151 quotes

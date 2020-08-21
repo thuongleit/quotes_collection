@@ -1,0 +1,82 @@
+ - Abuse of power comes as no surprise.
+ - Remember you always have freedom of choice.
+ - Everyone’s work is equally important.
+ - A sense of timing is the mark of a genius.
+ - Raise boys and girls the same way.
+ - You are a victim of the rules you live by.
+ - Lack of charisma can be fatal.
+ - Knowing yourself lets you understand others.
+ - Protect me from what I want.
+ - Being happy is more important than anything else.
+ - Romantic love was invented to manipulate women.
+ - Drama often obscures the real issues.
+ - Slipping into madness is good for the sake of comparison.
+ - All things are delicately interconnected.
+ - I try to excite myself so I stay crazy.
+ - Boredom makes you do crazy things.
+ - Going with the flow is soothing but risky.
+ - Fear is the most elegant weapon, your hands are never messy.
+ - Use what is dominant in a culture to change it quickly.
+ - A little knowledge can go a long way.
+ - My arrogance knows no bounds and I will make no peace today, and you should be so lucky to find a woman like me.
+ - Enjoy yourself because you can’t change anything anyway.
+ - The most profound things are inexpressible.
+ - It’s fun wandering around other people’s minds.
+ - Stupid people shouldn’t breed.
+ - It is in your self-interest to find a way to be very tender.
+ - A positive attitude means all the difference in the world.
+ - It’s better to be a good person than a famous person.
+ - Alienation produces eccentrics or revolutionaries.
+ - Expressing anger is necessary.
+ - At times inactivity is preferable to mindless functioning.
+ - Usually going places makes me feel optimistic. And I’m a hillbilly, so heading to the countryside made sense a number of ways.
+ - When you start liking pain things start to get interesting.
+ - Deviants are sacrificed to increase group solidarity.
+ - Anger or hate can be a useful motivating force.
+ - Savor kindness because cruelty is always possible later.
+ - If you have many desires your life will be interesting.
+ - Expiring for love is beautiful but stupid.
+ - I am not free because I can be exploded anytime.
+ - Any surplus is immoral.
+ - There’s a fine line between information and propaganda.
+ - Killing is unavoidable but is nothing to be proud of.
+ - Sloppy thinking gets worse over time.
+ - Turn soft and lovely any time you have a chance.
+ - I wanted to support things that are helpful to people and maybe bash what I think is dangerous. So I switched from being everybody to being myself.
+ - At times your unconsciousness is truer than your conscious mind.
+ - Exceptional people deserve special concessions.
+ - I was hesitant to approach people. I’m socially awkward. But I was working on a number of memorials, and finally it dawned on me: These are memorials to people who wrote, so I should use their writing. That’s how I started to quit.
+ - I wasn’t sure I was an artist, so I thought maybe I just was throwing ideas out for people to consider.
+ - A sense of duty imprisons you.
+ - One of the glories and terrors of working in public is that you do see if your output means anything to anyone.
+ - A lot of professionals are crackpots.
+ - Disgust is the appropriate response to most situations.
+ - Hands on your breast can keep your heart beating.
+ - Someone else’s body is a place for your mind to go.
+ - On the worst days, I don’t feel like an artist.
+ - I used language because I wanted to offer content that people – not necessarily art people – could understand.
+ - How do you resign yourself to something that will never be? You stop wanting just that thing. You go numb. Or you kill the agent of desire.
+ - It’s good to be employable, but I hope to show the truth. The paintings seem true because nobody wants me to do them.
+ - Being alone with yourself is increasingly unpopular.
+ - It can be kind of gruesome at times, making things alone. I don’t want to be too dramatic, but it’s hard. It’s necessary to start most work alone.
+ - Ensure that your life stays in flux.
+ - I really like doing the laundry, because I succeed at it. But I loathe putting it away. It is already clean.
+ - That’s the test of street art – to see if anybody stopped. People would cross out ones they didn’t like and would star others. I liked that people would engage with them.
+ - The epiphany for me was that I wasnt a writer, and I had to do something with these texts. I put them in the streets as posters.
+ - When my daughter was young, she thought all electronic signs were mine.
+ - It’s important to keep life simple, and if I’m traveling, I only can do a couple of things, and those are the things that I’m meant to be doing.
+ - The desperate things seem to require attention, the lovely things seem to elicit celebration. If I had to choose, I would go to the awful in the hope that doing something could yield a happier result.
+ - Faithfulness is a social not a biological law.
+ - I’m always trying to bring unusual content to a different audience – a non-art-world audience.
+ - If you are an artist and you are honest, you are never good enough.
+ - It is embarrassing to be caught and killed for stupid reasons.
+ - It can be kind of gruesome at times, making things alone.
+ - I seldom have my stuff up unless I’m testing it. If I’m worrying about a painting, I put it up and see if I detest it quickly or slowly. Otherwise I have things by other artists.
+ - I wanted to be an abstract painter, but I was rotten at it.
+ - It’s necessary to start most work alone. But I’m tickled to death when I can pull somebody in or join someone, whether it’s borrowing poetry or traveling with an associate.
+ - I moved to New York in the 1970s and started writing when I was at the Whitney Museum Independent Study Program.
+ - I’d been doing projects outdoors for the public. I made pigeons eat geometry by putting bread out in rhomboids and triangles. I don’t know if this activity made sense, but the work was available.
+ - I think of a piece, and then people who are competent fabricate it. But lately I’ve started finger painting, which probably should be a joke but isn’t!
+ - A name means a lot just by itself.
+
+80 quotes

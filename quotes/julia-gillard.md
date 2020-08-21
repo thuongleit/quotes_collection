@@ -1,0 +1,34 @@
+ - My guiding principle is that prosperity can be shared. We can create wealth together. The global economy is not a zero-sum game.
+ - If we change the way the electricity sector operates, we can bring down our levels of carbon pollution, and continue the crucial task of tackling climate change. Putting a price on carbon would do this.
+ - I know reform is never easy. But I know reform is right.
+ - Try harder every day to be better than the day before.
+ - In my view, the ideal prime minister is patient, hard-working, compassionate and has a clear vision, driven by the fair go.
+ - One of my prized possessions is still the prefect’s tie that I got in this school. I keep it with me. It was the first leadership position I ever had.
+ - In politics there’s never a magic wand.
+ - He will always know as we know now that in the heat of battle he did not fail when mateship and duty called.
+ - At the end of the day government is about teamwork and partnership and we will be proving that by working together.
+ - The great thing about music is that whatever you’re into, you see new possibilities.
+ - So in many ways for me, having lived through what I’ve lived through, and endured what I’ve endured, I’ve got more confidence that I can do the next bit – and there’s something sustaining about that.
+ - I’m on the record as saying things like I think it’s important for people to understand their Bible stories, not because I’m an advocate of religion – clearly, I’m not – but once again, what comes from the Bible has formed such an important part of our culture.
+ - Afghanistan must never again be a safe haven for terrorism.
+ - Here in Australia we do get impacted by global economic events. But we should have some confidence that our economy has got strong underlying fundamentals.
+ - Any sort of political correctness needs to be swept out of the way.
+ - In Australia, average temperatures have risen almost one degree since 1910, and each decade since the 1940s has been warmer than the one before. That warming is real. Its consequences are real. And it will change our lives in real and practical ways.
+ - There will be no carbon tax under the government I lead.
+ - In the quest for comparative advantage, investment will flow towards those countries that can offer more output for fewer emissions. Inaction will cost jobs. Action will support jobs.
+ - There are some things that can’t be measured.
+ - Australians can trust me to get the job done. They can have the confidence that in the heart of the circumstances I will win through in their interests no matter how relentlessly negative the leader of the opposition is.
+ - The Prime Minister seems now to be basing his re-election campaign on this plot line. He is saying to the Australian people, look out, the baddies behind you – hiss, boo and whatever you do, don’t vote Labor. This political parody of pantomime is looking and sounding desperate.
+ - Through hard work and education, we can deliver a strong economy and opportunity for all.
+ - The first film I remember seeing was Bambi. It has stayed with me because it was so sad.
+ - We encourage China to engage as a good global citizen and we are clear-eyed about where differences do lie.
+ - Those of you who have spent time with Australians know that we are not given to overstatement. By nature we are laconic speakers and by conviction we are realistic thinkers.
+ - The caricature of my own face always makes me laugh.
+ - I know people are looking at whats happening in Washington and then they also look at events in Europe, in Greece and Portugal and other places and worry about that.
+ - Our nation is well equipped to make the transition. We have an abundance of natural resources like wind, natural gas, solar and geothermal.
+ - The cartoon absolutely captures something that acres and acres of copy can’t. And even photographs can’t.
+ - I’m angry and I understand why Australians paying mortgages are angry.
+ - There’s not a sense that the person who is waiting on the table is somehow a lesser person that the person who is eating in the restaurant.
+ - The global economic outlook remains fragile and uncertain. Global economic imbalances persist and we must address them or risk future instability.
+
+32 quotes

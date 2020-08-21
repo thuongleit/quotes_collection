@@ -1,0 +1,27 @@
+ - Scientific progress on a broad front results from the free play of free intellects, working on subjects of their own choice, in the manner dictated by their curiosity for exploration of the unknown.
+ - Publication has been extended far beyond our present ability to make real use of the record.
+ - Basic scientific research is scientific capital.
+ - There will always be plenty of things to compute in the detailed affairs of millions of people doing complicated things.
+ - The camera hound of the future wears on his forehead a lump a little larger than a walnut.
+ - To pursue science is not to disparage things of the spirit.
+ - Science has a simple faith, which transcends utility. It is the faith that it is the privilege of man to learn to understand, and that this is his mission.
+ - I say, technically, I don’t think anyone in the world knows how to do such a thing. and I feel confident it will not be done for a very long period to come. I think we can leave that out of our thinking. I wish the American public would leave that out of their thinking.
+ - Give these people money, let them play, and they’ll come up with something.
+ - Thus science may implement the ways in which man produces, stores, and consults the record of the race.
+ - As long as scientists are free to pursue the truth wherever it may lead, there will be a flow of new scientific knowledge to those who can apply it to practical problems.
+ - Presumably man’s spirit should be elevated if he can better review his shady past and analyze more completely and objectively his present problems.
+ - A record, if it is to be useful to science, must be continuously extended, it must be stored, and above all it must be consulted.
+ - To pursue science is not to disparage the things of the spirit. In fact, to pursue science rightly is to furnish the framework on which the spirit may rise.
+ - On the wisdom with which we bring science to bear in the war against disease, in the creation of new industries, and in the strengthening of our Armed Forces depends in large measure our future as a nation.
+ - The scene changes but the aspirations of men of good will persist.
+ - Wholly new forms of encyclopedias will appear, ready made with a mesh of associative trails running through them, ready to be dropped into the memex and there amplified.
+ - The world has arrived at an age of cheap complex devices of great reliability, and something is bound to come of it.
+ - Associative indexing, the basic idea of which is a provision whereby any item may be caused at will to select immediately and automatically another. This is the essential feature of the Memex. The process of tying two items together is the important thing.
+ - The difficulty seems to be, not so much that we publish unduly in view of the extent and variety of present -day interests, but rather that publication has been extended far beyond our present ability to make real use of the record.
+ - A belief may be larger than a fact.
+ - If scientific reasoning were limited to the logical processes of arithmetic, we should not get very far in our understanding of the physical world.
+ - Science can be effective in the national welfare only as a member of a team, whether the conditions be peace or war. But without scientific progress no amount of achievement in other directions can insure our health, prosperity, and security as a nation in the modern world.
+ - A belief may be larger than a fact. A faith that is overdefined is the very faith most likely to prove inadequate to the great moments of life.
+ - Science can give mankind a better standard of living, better health and a better mental life, if mankind in turn gives science the sympathy and support so essential to its progress.
+
+25 quotes

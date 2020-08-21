@@ -1,0 +1,23 @@
+ - The magic gets lost in translation.
+ - Living in the past is a Jethro Tull album, not a smart poker strategy.
+ - I’m a lifelong bachelor, but that doesn’t mean I wouldn’t marry the right woman.
+ - Men’s magazines often feature pictures of naked ladies. Women’s magazines also often feature pictures of naked ladies. This is because the female body is a beautiful work of art, while the male body is hairy and lumpy and should not be seen by the light of day.
+ - Equilibrium is enjoyably classy trash.
+ - When we root-root-root for the home team, we’re rooting for our home as much as the team.
+ - You’re not allowed to give yourself a nickname. This holds true in life as well as in poker.
+ - Becca Gardner is wonderful as the good-hearted little Griff who refuses to be daunted by all the heart-ache and resentment on dad’s ranch and this young actress proves there’s another young child actress in Hollywood besides Dakota Fanning.
+ - The truth is that our way of celebrating the Christmas season does spring from myriad cultures and sources, from St. Nicholas to Coca-Cola advertising campaigns.
+ - I grew up in Dolton, just south of Chicago, about a 20-minute drive from old Comiskey Park.
+ - Wal-Mart doesn’t really care about your faith. Wal-Mart cares if you have money to spend, and it is going to be as generic as possible in exploiting the holiday season for every buck it can make.
+ - I loved watching classics such as ‘Casablanca’ and goofball comedies such as ‘How To Murder Your Wife’ on WGN-TV.
+ - Whether it’s viewers of the show or readers of my columns and books, I’m consistently impressed with their wit, humor and insight. That goes for about 95 percent of the audience. The other five percent are why the ‘Delete’ option and restraining orders were invented.
+ - Well, I think one of the reasons Chicago became so popular as a filmmaker location is because New York had been used so many times that Chicago, I think, was rediscovered maybe in the late ’60s, early ’70s for a long time as a new location.
+ - I’ve been playing Texas Hold ’em and other forms of poker since I was about 12.
+ - On first blush, Hold ’em seems like a ridiculously simple game.
+ - Sometimes a 3-1 favorite loses. That’s why they call it gambling, and that’s why they keep flipping over the cards.
+ - That’s why I’ve always been appreciative of truly creative radio commercials.
+ - You can’t take up golf on a whim and find yourself competing against Tiger Woods in the Masters six months later.
+ - There’s a lot of vitriolic ranting out there, but there are literally hundreds of critics on the web who care deeply about film and having something to say about it.
+ - Even though we’re a week and a half away from Thanksgiving, it’s beginning to look a lot like Christmas.
+
+21 quotes

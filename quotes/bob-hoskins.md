@@ -1,0 +1,23 @@
+ - It’s your life, live it your way.
+ - What we do does not define who we are. What defines us is how well we rise after falling.
+ - The Holy Spirit accompanies God’s Word to bring revelation of Christ, resulting in transformation.
+ - It’s not easy to walk out on a marriage and two young kids, and it’s the most difficult thing I’ve ever had to do.
+ - I realised one day that men are emotional cripples. We cant express ourselves emotionally, we can only do it with anger and humour. Emotional stability and expression comes from women.
+ - One of the things I’ve realised is that I am very simple. My wife asked me once if I loved her. I said: ‘Look love, I’m a simple man. I love you. End of story.’ But I guess you gotta keep saying it with women. I guess she needed reassurance.
+ - Quantum physics is a bit of a passion of mine. It’s extraordinary. There’s a branch of mathematics that is based on lunacy, and that’s wonderful.
+ - I’m Winnie the Pooh – that’s as sexy as I am. I meet ladies and they talk about their family and I talk about my family. It’s about as sexy as a bag of Brussel sprouts.
+ - Actors are just entertainers, even the serious ones. That’s all an actor is. He’s like a serious Bruce Forsyth.
+ - Monogamy is a possibility – and a necessity. Kids have got to have something they can rely on. You have got to have something you rely on.
+ - I am fairly rich. Money’s very handy, let’s face it.
+ - I’ve played so many historical characters because most horrible dictators are short, fat, middle-aged men.
+ - I’m a feminist, yes! Very strongly.
+ - I started my career by becoming a stalker, watching women in the street, the way they greet each other. I thought if I could capture some of that expression, that depth of emotion, it will make me interesting to watch as an actor.
+ - Before Michael Caine you had to have been in the RAF to be an actor.
+ - Most dictators were short, fat, middle-aged and hairless. Besides Danny Devito, there’s only me to play them.
+ - I’ve watched films and even forgotten I’m in them.
+ - I’d say I am partial to women.
+ - I’m very romantic. I’ve emptied flower shops.
+ - If you are going to do a film properly you have to give yourself completely to it.
+ - What would I have done if I wasn’t an actor? Probably rob banks.
+
+21 quotes

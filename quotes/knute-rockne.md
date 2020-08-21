@@ -1,0 +1,45 @@
+ - All the world loves a winner and has no time for a loser.
+ - One man practicing sportsmanship is far better than a hundred teaching it.
+ - Win or lose, do it fairly.
+ - Build up your weaknesses until they become your strong points.
+ - Make the present good, and the past will take care of itself.
+ - Show me a gracious loser and I’ll show you a failure.
+ - The secret of winning is working more as a team, less as individuals.
+ - Let’s win one for the Gipper.
+ - I don’t like to lose, and that isn’t so much because it is just a football game, but because defeat means the failure to reach your objective.
+ - Winning to often is as disastrous as losing too often. Both get the same results, the falling off of the public’s enthusiasm.
+ - There is not economy in getting cheap service or equipment. Buy the best and cry only once.
+ - The secret is to work less as individuals and more as a team. As a coach, I play not my eleven best, but my best eleven.
+ - Courage means being afraid to do something, but still doing it.
+ - Play like you’re positive on the victory, even though they’re leading big now.
+ - Drink the first. Sip the second slowly. Skip the third.
+ - The best thing I ever learned in life was that things have to be worked for. A lot of people seem to think there is some sort of magic in making a winning football team. There isn’t, but there’s plenty of work.
+ - The only qualifications for a lineman are to be big and dumb. To be a back, you only have to be dumb.
+ - At home we’re the hosts, and I never liked the idea of being embarrassed in front of our friends.
+ - I’ve found that prayers work best when you have big players.
+ - An automobile goes nowhere efficiently unless it has a quick, hot spark to ignite things, to set the cogs of the machine in motion. So I try to make every player on my team feel he’s the spark keeping our machine in motion.
+ - When you were riding on the crest of a wave, youwere most likely to be missing out on something.
+ - If I flop, let ’em pan me.
+ - On the road we’re somebody else’s guests – and we play in a way that they’re not going to forget we visited them.
+ - The morning we left South Bend, every student and professor was out of bed long before breakfast and marched downtown accompanying the team to the railroad station. It was the first time I’d seen anything like this mass hysteria generated on the Notre Dame campus over a football game.
+ - No star playing, just football.
+ - The essence of football was blocking, tackling, and execution based on timing, rhythm and deception.
+ - We count on winning. And if we lose, don’t beef. And the best way to prevent beefing is – don’t lose.
+ - One loss is good for the soul, Too many losses is not good for the coach.
+ - You know, I’ve been attending so many banquets that I know what they’re going to serve before I get there.
+ - If the coach insists upon hard play, but clean play, the team will do likewise.
+ - Yes, I know that you feel you are not strong enough. That’s what the enemy thinks, too. But we’re gonna fool them.
+ - A coach’s greatest asset is his sense of responsibility – the reliance placed on him by his players.
+ - It isn’t necessary to see a good tackle. You can hear it.
+ - If we’re a hit, let ’em say anything they want.
+ - We can all be geniuses because one definition of genius is the infinite capacity for taking pains.
+ - Football is a game played with arms, legs and shoulders but mostly from the neck up.
+ - I enjoy talking to my football men and my chemistry classes and I feel sure that they are quite interested in what I have to say.
+ - Boards, boards, boards.
+ - There is no need for me continuing unless I’m able to improve.
+ - Generalities don’t count and won’t help you in football.
+ - Never tell ’em how many lettermen you’ve got coming back. Tell ’em how many you lost.
+ - Four years of football are calculated to breed in the average man more of the ingredients of success in life than almost any academic course he takes.
+ - I’m getting sick and tired of doing anything half-way.
+
+43 quotes

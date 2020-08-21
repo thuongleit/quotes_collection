@@ -1,0 +1,28 @@
+ - Behind me is infinite power, before me is endless possibility, around me is boundless opportunity.
+ - Dream big dreams, but never forget that realistic short-term goals are the keys to your success.
+ - You can’t fake passion. It is the fuel that drives any dream and makes you happy to be alive.
+ - Belief fuels passion, and passion rarely fails.
+ - Find what makes your heart sing and create your own music.
+ - The difference is that raving fans, unlike satisfied customers, become part of your sales force. They tell friends, family and co-workers about your services and your products. And, of course, good things will happen!
+ - People are like sticks of dynamite. The power is on the inside, but nothing happens until the fuse gets lit.
+ - No matter how bad things are, they could always be worse. Start finding gratitude for what might have happened, but didn’t.
+ - Gratitude is not a fair weather virtue. True gratitude means appreciating your life no matter what the storms may bring. Is simply being alive gift enough for you to feel grateful?
+ - Your dreams are the blueprints of your soul. They should take you by the hand and lead you toward your life’s purpose and passion. They are one of, if not the greatest, source of self-motivation that you have. So nurture them and feed them inspiration whenever you can.
+ - Laugh loud, and laugh often. It’ll keep you happy, keep you healthy, and keep your attitude headed in a positive direction.
+ - I’ve come to realize that the difference in success or failure is not how you look, how you dress, or how you’re educated. It’s how you think !
+ - It’s not the things we get but the hearts we touch that will determine our success in life.
+ - By the choices we make, by the attitudes we exhibit, we are influencing lives every day in positive or negative ways.
+ - Passion – it’s the driving force that you just can’t ignore. It’s what will make your new adventure seem more like fun, than work. It’s the difference between wanting to start a business and craving it.
+ - We all seek purpose in life. Most of us wonder how we can make a positive difference during our brief time on earth. But asking and doing are different things.
+ - What happens when you believe something with all your heart? Belief fuels enthusiasm, and determined enthusiasm explodes into passion. It fires our souls and lifts our spirits.
+ - If I am happy inside, then I live in paradise no matter where my residence is.
+ - Never underestimate the power of belief when it comes to fulfilling your dreams. I can say with no hesitation that every person I’ve ever met who has achieved any degree of success has one thing in common: they believed with all their heart they could do it.
+ - If employees feel you don’t trust them to do their jobs correctly and well, they’ll be reluctant to do much without your approval. On the other hand, when they feel trusted, that you believe they’ll do the right things well, they’ll naturally want to do things well and be deserving of your trust.
+ - Never forget, organizational values start and end with you, the leader. Whether your example is good or bad, expect most employees to follow your lead.
+ - Attitudes truly are contagious, and from time to time we need to ask ourselves, ‘Is mine worth catching?’
+ - From the moment we wake up each morning to the time we hit the pillow at night, we hear what people have to say, but are we really listening?
+ - One of the most wonderful things about having a positive attitude is the number of people it touches, many times in ways you’ll never know.
+ - In order to accomplish more than you ever have before, you must do more than you have ever done before.
+ - An individual’s yearning to reach outside his life is a seed of greatness waiting for a stream of inspiration. Carving that stream to people’s hearts is a simpler task if the endeavor you are leading them into is attached to a bigger story.
+
+26 quotes

@@ -1,0 +1,42 @@
+ - When God knows you’re ready for the responsibility of commitment, He’ll reveal the right person under the right circumstances.
+ - The right thing at the wrong tme is the wrong thing.
+ - Every relationship for a Christian is an opportunity to love another person like God has loved us.
+ - The joy of intimacy is the reward of commitment.
+ - Intimacy without commitment, like icing without cake, can be sweet, but it ends up making us sick.
+ - God gave people 2 ears and 1 mouth because He wants us to listen twice as much as we talk.
+ - The most romantic things a man can do for a woman are the little things that let her know that she’s on his mind and in his heart.
+ - Just because lips have met doesn’t mean hearts have joined. And just because two bodies are drawn to each other doesn’t mean two people are right for each other. A physical relationship does not equal love.
+ - A defining reality for me is what Scripture teaches in Hebrews 12, that God is our father, and that a sign that he loves us is that he disciplines us, he takes us through hardship to build character in us that could not be shaped apart from difficulty.
+ - What we say we believe makes very little difference until we act on our belief.
+ - Wisdom in relationships involves a selfless desire to do what’s best for the other person.
+ - Purity doesn’t happen by accident; it requires obedience to God.
+ - During courtship, guarding each other’s purity and refraining from intimacy are the acts of lovemaking.
+ - If you want to grow, find men who provoke you.
+ - If you’re not ready to consider marriage or you’re not truly interested in marrying a specific person, it’s selfish and potentially harmful to encourage that person to need you or ask him or her to gratify you emotionally or physically.
+ - I’m not saying dating is sinful, and I’m not saying a guy and a girl should never spend time alone together. I’m saying let’s wait until we can be purposeful, so there’s a reason behind our relationship, and we’re not just stirring up passion for the sake of a good time.
+ - I’m looking for someone who will light candles, not just curse the darkness.
+ - When you dress and behave in a way that is designed primarily to arouse sexual desire in men, you are committing pornography with your life.
+ - The doctrine of Scripture teaches us about the authority of God’s Word. Scripture must be the final rule of faith and practice for our lives. Not our feelings or emotions. Not signs or prophetic words or hunches.
+ - True purity, however, is a direction, a persistent, determined pursuit of righteousness. This direction starts in the heart, and we express it in a lifestyle that flees opportunities for compromise.
+ - When we define our happiness by some point in the future, it will never arrive. We’ll keep waiting until tomorrow. If we allow impatience to govern us, we will miss the gift of the moment. We’ll arrive at that point in time we expected to provide fulfillment and find it lacking.
+ - God will make right all that is wrong, He will take away the lingering effect of sin and what’s not right in our lives. He knows how painful life in this world can be.
+ - I am a sucker for romance and I love girls and that is a terrible combination, because romance has the ability to overwhelm your perspective.
+ - I’ve come to learn that theology matters. It matters not because we want to impress people, but because what we know about God shapes the way we think and live. Theology matters because if we get it wrong then our whole life will be wrong.
+ - We express true love in obedience to God and service to others- not reckless or selfish behavior- and we choose these behaviors.
+ - I won’t stick around to see how much temptation I can take. God is not impressed with my ability to stand up to sin. He is more impressed by the obedience I show when I run from it.
+ - We can each rest in the knowledge that God is sovereign over our life’s situation. No matter where we are today or what mistakes we’ve made in the past, He has given us everything we need to glorify Him right now.
+ - But remember, continuing a wrong relationship only increases the pain when it finally does end.
+ - We want to stay on the straight and narrow path and serve God, yet we continue a practice that often pulls us in the wrong direction.
+ - You get up and you preach a sermon and people walk away thinking what a great guy – and that’s a failure as a pastor. Our job is to proclaim Christ.
+ - Having a girlfriend was no longer my greatest need. Knowing and obeying Him was. I wanted to please Him in my relationships even if it meant looking radical and foolish to other people – even if it meant kissing dating goodbye.
+ - Women need to remember that if nature has made them plain, grace can make them beautiful, and if nature has made them beautiful, good deeds can add to their beauty. Grace will make you beautiful and will attract truly godly men to you. Make godliness and inward beauty your priority.
+ - Just because something is good doesn’t mean we should pursue it right now. We have to remember that the right thing at the wrong time is the wrong thing.
+ - Terms don’t define our lives; our lives define our terms.
+ - Dating now is a lot like going shopping when you don’t have any money. Even if you find the right thing, you can’t do anything about it.
+ - The technology for a clothing printer exists but is not packaged in a form that would be suitable for consumer use. With the future potential of printing technology, an at-home clothing printer is a definite possibility. Our challenge was to define the experience.
+ - When you let God be God you can let humans be humans. When we place God in His rightful place in our lives, we don’t struggle so much when human relationships let us down.
+ - You are so amazed by grace, you’re not picking a fight with anyone, you’re just crying tears of amazement that should lead to a heart for lost people, that God does indeed save, when he doesn’t have to save anybody.
+ - Our hearts lie. Something can ‘feel’ right and be completely wrong.
+ - The thing about relationships is, when you are in the middle of one, they consume your focus.
+
+40 quotes

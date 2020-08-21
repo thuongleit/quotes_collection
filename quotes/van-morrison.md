@@ -1,0 +1,125 @@
+ - And I want to rock your gypsy soul Just like way back in the days of old And magnificently we will fold into the mystic.
+ - Sartre said that hell is other people, I believe that most of them are.
+ - You gotta fight every day to keep mediocrity at bay...
+ - Have I told you lately that I love you, have I told you lately there’s no one above you. Fill my heart with gladness, take away all my sadness, ease my troubles, that’s what you do.
+ - If you live the life you love, you get the blessing from above.
+ - Smell the sea and feel the sky.
+ - These are the days of the endless summer, these are the days, the time is now. There is no past, there’s only future, there’s only here, there’s only now.
+ - No guru, no method, no teacher, just you and I and nature, and the father in the garden.
+ - Let your soul and spirit fly.
+ - Spiritual hunger and spiritual thirst But you got to change it On the inside first To be satisfied.
+ - Go up to the mountain, go up to the glen, where silence will touch you, and heartbreak will mend.
+ - At the end of the day, we should give thanks and pray, to the one, to the one.
+ - The wild night is calling.
+ - Music to me is spontaneous, writing is spontaneous and it’s all based on not trying to do it. From beginning to end, whether it’s writing a song, or playing guitar, or a particular chord sequence, or blowing a horn, it’s based on improvisation and spontaneity.
+ - I’m a dweller of the threshold and I’m waiting at the door, and I’m standing in the darkness, I don’t want to wait no more.
+ - When all the dark clouds roll away And the sun begins to shine I see my freedom from across the way And it comes right in on time Well it shines so bright and it gives so much light And it comes from the sky above Makes me feel so free makes me feel like me And lights my life with love.
+ - Once in a blue moon someone like you comes along.
+ - Making love in the green grass behind the stadium with you my brown eyed girl.
+ - You can’t stop us on the road to freedom, you can’t stop us cause our eyes can see.
+ - Sometimes, when the spirit moves me I can do many wondrous things I wanna know when the spirit moves you Did ye get healed?
+ - In deep confusion, in great despair, when I reach out for him, he is there. When I am lonely as I can be, then I know God shines his light on me.
+ - Let go into the Mystery, let yourself go. You’ve got to open up your heart, that’s all I know. Trust what I say and do what you’re told, and baby, all your dirt will turn into gold.
+ - Let go into the mystery. Let yourself go. And when you open up your heart, you get everything you need. Baby there’s a way and a mystic road. You’ve got to have some faith to carry on, you’ve got to open up your heart to the Son.
+ - It’s a marvelous night for a moondance!
+ - I educated myself. To me, school was boring.
+ - I have seen without perceiving I have been another man Let me pierce the realm of glamour So I know just what I am.
+ - Common one, my illuminated one, oh my high in the art of suffering. Take a walk with me.
+ - I’m a working man in my prime cleaning windows.
+ - There’s always stress involved in any genre or art form, there’s always going to be a struggle. If there’s no struggle, you wouldn’t do anything. What are you going do? Retire?
+ - If my heart could do my thinking, would my brain begin to feel?
+ - It will make you feel good, and it will make you feel whole, when the spirit moves you and it fills you through and through.
+ - Music is spiritual. The music business is not.
+ - If you never hear from me that just means I would rather not.
+ - Way over on the railroad, Tomorrow all the tipping trucks will unload together, Every scrapbook stuck with glue, And I’ll stand beside you, Beside you, child.
+ - Leave your thoughtlessness behind you then you may begin to understand. Clear the emptiness around you with the waving of your hand.
+ - My thinking musically has always been more advanced – it is difficult to get it down onto paper sometimes, even now.
+ - I do see value in music criticism. Most of the criticism I have received over the years has been very good.
+ - Men saw the stars at the edge of the sea They thought great thoughts about liberty Poets wrote down words that did fit Writers wrote books Thinkers thought about it.
+ - The fog of illusion, the fog of confusion is hanging all over the world.
+ - Well I’ve got to get out of the rat-race now I’m tired of the ways of mice and men And the empires all turning into rust again. Out of everything nothing remains the same That’s why I’m cloud hidden Cloud hidden Whereabouts unknown.
+ - In order to win you must be prepared to lose sometime. And leave one or two cards showing.
+ - All the girls walk by dressed up for each other, and the boys do the boogie woogie on the corner of the street.
+ - Love of the simple is all that I need, I’ve no time for schism or lovers of greed.
+ - If I ventured in the slipstream between the viaducts of your dreams, where immobile steel rims crack and the ditch in the back roads stop. Could you find me?
+ - When the ghost comes round at midnight Well you both can have some fun He can drive you mad, he can make you sad He can keep you from the sun When they take him down, he’ll be both safe and sound And the hand does fit the glove And no matter what they tell you, There’s good and evil in everyone.
+ - Become enraptured by the sights and sounds in intrigue of nature and beauty, come along with me and take it all in. Come here my love.
+ - A fantabulous night to make romance.
+ - You come into my dreams from a whisper to a scream.
+ - In the gentle evening freeze, by the whispering shady trees I will find sanctuary in the Lord.
+ - When I started studying tenor saxophone as a kid in Belfast, I did so with a guy named George Cassidy, who was also a big inspiration.
+ - Jackie Wilson said it was Reet-Petite, kind of love you got knock me off my feet.
+ - Enlightenment, don’t know what it is. It’s up to you, the way you think.
+ - Enlightenment says the world is nothing Nothing but a dream, everything’s an illusion And nothing is real.
+ - When heart is open, you will change just like a flower slowly opening.
+ - Going down the old mine with a transistor radio.
+ - A famous person to themselves, they don’t get up in the morning and think, I’m famous. I’m not famous to me. Famous is a perception.
+ - I never, ever said that I was a nice guy.
+ - From the dark end of the street – To the bright side of the road – We’ll be lovers once again on the – Bright side of the road.
+ - I forgot that love existed, troubled in my mind. Heartache after heartache, worried all the time. I forgot that love existed Then I saw the light Everyone around me make everything alright.
+ - Don’t want to discuss it, I think it’s time for a change You may get disgusted, some think that I’m strange In that case I’ll go underground, get some heavy rest Never have to worry, about what is worst and what is best.
+ - I had my eyes closed in the dark, I sighed a million sighs, I told a million lies, to myself, to myself.
+ - I just need somewhere to dump all my negativity.
+ - Ambition will take you And ride you too far and Conservatism bring you to boredom once more Sit down by the river And watch the stream flow Recall all the dreams That you once used to know The things you’ve forgotten That took you away To pastures not greener but meaner.
+ - Memories, how they linger in the twilight and in the wee small hours sometimes just before dawn.
+ - There’s always got to be a struggle. What else is there? That’s what life is made of. I don’t know anything else. If there is, tell me about it.
+ - I’ve got love in my life, as well as trouble and strife.
+ - Someone once described me as a maverick and that’s what I would say. I’m a maverick not by choice but by conviction.
+ - You can’t stay the same. If you’re a musician and a singer, you have to change, that’s the way it works.
+ - Laying underneath the stars Can be so much fun Especially when you’re feeling good When you’re with the one you love.
+ - Skiffle was blues featuring a washboard and acoustic instruments. It encompassed blues, with elements of folk, jazz, and, at times, American country-and-western music.
+ - There is no black-and-white situation. It’s all part of life. Highs, lows, middles.
+ - Let me purify my thoughts and words and deeds that I may be a vehicle for thee.
+ - I’ve never felt like I was born with a silver spoon at all, although I’ve felt like howling at the moon a lot of times!
+ - The blues – there’s no black and white – it’s the truth.
+ - Singing is my profession – there is no plan B.
+ - There’s an angel that’s watching right over you All your trials have not been in vain Won’t you lift your head up to the starry night Finding strength in the things that remain.
+ - I shall drive my chariot down your street and cry hey it’s me.
+ - I learnt from Armstrong on the early recordings that you never sang a song the same way twice.
+ - It was really strange for me when I started to play concerts in America where the audiences were all sitting down.
+ - Way across the country where the hillside mountains glide, the dynamo of your smile caressed the barefoot virgin child.
+ - You know what they’re writing about Baby you know what they’re writing about It’s a thing called love down through the ages Makes you wanna cry sometimes Makes you feel like you wanna lay down and die sometimes Makes you high sometimes But when you really get in it lifts you right up.
+ - You’ve got to separate the singer and the songs.
+ - If it’s what you do and you can do it, then you do it.
+ - Large audiences did not suit my low-key approach.
+ - I never paid attention to what was contemporary or what was commercial, it didn’t mean anything to me.
+ - I understood jazz, I understood how it worked. That’s what I apply to everything.
+ - Every performance is different. That’s the beauty of it.
+ - I’d love to live in Ireland but I’d like to live as me, not what someone thinks I am. People don’t understand – I lived there before I was famous.
+ - These days politics, religion, media seem to get all mixed up. Television became the new religion a long time back and the media has taken over.
+ - See the man on the TV with a phony smile. Bring you up, bring you down, he can turn your head around.
+ - I don’t feel comfortable doing interviews. My profession is music, and writing songs. That’s what I do. I like to do it, but I hate to talk about it.
+ - I went back to Belfast and started a club, the Maritime. No one had thought about doing a blues club, so I was the first.
+ - I deliberately try not to cater for the commercial market, so I can’t see myself in competition, you know, with second or third generation rock stars.
+ - If you get into introspective blues or something where you’re stretching out a bit, large audiences don’t respond to this, so you have to give them what they want, basically.
+ - I am about the arrangements and the layers of depth in the music.
+ - If you’re a pop singer, you don’t need to evolve. You just get a set together, have some hit songs and play them over and over.
+ - You take stuff from different places, and sometimes you stick a line in because it rhymes, not because it makes sense.
+ - Even today, skiffle is a defining part of my music. If I get the opportunity to just have a jam, skiffle is what I love to play.
+ - I think Paul McGuinness and U2 created the Irish music industry. It certainly wasn’t there before that.
+ - I’m very lucky, I’m happy with life because my experiences led me to do what I had to do. I don’t have any regrets whatsoever.
+ - When I started you were more in touch with the people you were playing to. There wasn’t the distance or the separation that there is now.
+ - I always record far more than I can use. There’s probably twice as much recorded as comes out.
+ - Skiffle was a name that was attached to what was, in essence, American folk music with a beat.
+ - As a developing musician, skiffle became a platform for me to start playing music.
+ - You have to understand a bit about the poetry of the blues to know where the references are coming from.
+ - When the spirit moves me, I can do many wondrous things.
+ - I’m not a rock singer and I don’t want to be a rock singer. I’m not interested. It doesn’t seem to get across.
+ - The first piece of music that captured my imagination was probably Ray Charles Live At Newport.
+ - Being famous was extremely disappointing for me. When I became famous it was a complete drag and it is still a complete drag.
+ - The way I was singing the songs was jazz.
+ - My ambition when I started out was to play two or three gigs a week. And that’s what I’m doing.
+ - Hearing the blues changed my life.
+ - It’s all complete instinct and intuition, and that’s extremely difficult to teach.
+ - For a long time, I couldn’t actually deal with playing concerts; it was a totally alien concept to me, ’cause I was used to playing in clubs and dance halls.
+ - You learn to read the audiences after a while, and there are all different kinds of gigs.
+ - When it’s not always raining there’ll be days like this. When there’s no one complaining there’ll be days like this. When everything falls into place like the flick of a switch. Well my mama told me there’ll be days like this.
+ - I write songs. Then I record them. And later, maybe I perform them on stage. That’s what I do. That’s my job. Simple.
+ - I never bought the commercial thing, at any stage of the game.
+ - This Hollywood ain’t no good, I would rather be like Robin Hood.
+ - Did you ever hear about the rock and roll singer who got 3 or 4 Cadillacs, saying power to the people, dance to the music, wants you to pat him on the back.
+ - I don’t think nostalgia has to be negative.
+ - The point of jazz is, you do something and then you go on.
+ - Meet them halfway with love, peace, and persuasion, and expect them to rise for the occasion.
+
+123 quotes

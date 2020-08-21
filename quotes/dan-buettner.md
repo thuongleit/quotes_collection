@@ -1,0 +1,30 @@
+ - The people you surround yourself with influence your behaviors, so choose friends who have healthy habits.
+ - Singapore is the happiest place in Asia.
+ - Eat your vegetables, have a positive outlook, be kind to people, and smile.
+ - So learning to play a new instrument, learning a new language – those sorts of things will pay dividends for years or decades to come.
+ - Having a purpose and knowing exactly what your values are will add additional years to your life.
+ - True happiness involves the pursuit of worth goals; without dreams, without risks, only a trivial semblance of living can be achieved.
+ - The longest-lived people eat a plant-based diet. They eat meat but only as a condiment or a celebration. Nothing they eat has a plastic wrapper.
+ - Deepen your existing spiritual commitment.
+ - Drink without getting drunk Love without suffering jealousy Eat without overindulging Never argue And once in a while, with great discretion, misbehave.
+ - A long healthy life is no accident. It begins with good genes, but it also depends on good habits.
+ - Have fun, be active. Ride a bike instead of driving, for example.
+ - Inconvenience yourself: ditch the remote, the garage door opener, the leaf-blower; buy a bike, broom, rake, and snow shovel.
+ - Diet and supplements and exercise programs aren’t what is achieving longevity. Having a faith-based community can add four to 14 years.
+ - The more things for which you develop a fondness the richer the life you live.
+ - Kids in a home with grandparents are healthier.
+ - So setting up automatic savings plans, and buying insurance as opposed to buying a new thing. The newness effect of a new thing wears off in nine months to a year, but financial security can last a lifetime.
+ - Walking is the only way proven to stave off cognitive decline – it works.
+ - Select your friendships carefully. Gather people around you who will reinforce your lifestyle.
+ - You rarely get satisfaction sitting in an easy chair. If you work in a garden on the other hand, and it yields beautiful tomatoes, that’s a good feeling.
+ - Gratitude always comes into play; research shows that people are happier if they are grateful for the positive things in their lives, rather than worrying about what might be missing.
+ - I live on the water. I live in a neighborhood that’s consummately connected to my neighbors. I bump into them every day. I can bike to work.
+ - A doctor may know more than a peasant, but a peasant and a doctor know more together.
+ - Serve yourself, put the food away, then eat.
+ - Exercise, from a public health perspective, is an unmitigated failure. The world’s longest-lived people live in environments that nudge them into more movement. They don’t use power tools, they do their own yard work, they grow a garden.
+ - You have to know why you get up every morning.
+ - If you’re eating vegetables you are probably pushing unhealthier food out of your diet.
+ - The brutal reality about aging is that it has only an accelerator pedal. We have yet to discover whether a brake exists for people.
+ - Life expectancy in America is about 79, we should be able to live to 92. Somewhere along the line, we’re leaving 13 years on the table. So my quest is – how do we get those extra 13 years? And how do we make those extra 13 years good years?
+
+28 quotes

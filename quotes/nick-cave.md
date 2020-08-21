@@ -1,0 +1,160 @@
+ - Love is a state that I would like to exist in continuously.
+ - Most people wait for the muse to turn up. That’s terribly unreliable. I have to sit down and pursue the muse by attempting to work.
+ - I want to write songs that are so sad, the kind of sad where you take someone’s little finger and break it in three places.
+ - Your limitations make you the wonderful disaster you most probably are.
+ - The love song must be born into the realm of the irrational, absurd, the distracted, the melancholic, the obsessive, the insane for the love song is the noise of love itself and love is, of course, a form of madness.
+ - I’m very happy to hear that my work inspires writers and painters. It’s the most beautiful compliment, the greatest reward. Art should always be an exchange.
+ - You’re one microscopic cog in his catastrophic plan.
+ - I look at you and you look at me and deep in our hearts know it That you weren’t much of a muse, but then I weren’t much of a poet.
+ - If you took love out of the equation, I wouldn’t know what else to write about.
+ - I can control the weather with my moods. I just can’t control my moods.
+ - I just want to leave this world with a massive catalog of songs.
+ - My biggest fear is losing memory because memory is what we are. Your very soul and your very reason to be alive is tied up in memory.
+ - I am not interested in anything that doesn’t have a genuine heart to it. You’ve got to have soul in the hole. If that isn’t there, I don’t see the point.
+ - If you look around, complacency is the great disease of your autumn years, and I work hard to prevent that.
+ - It’s a wonderful life if you can find it.
+ - There’s always pain around. That’s one thing you can guarantee in life – there will always be a surplus of pain.
+ - Guns are part of the American psyche, aren’t they? This is collateral damage for having a Wild West mentality. It’s intrinsic to the American psyche. It’s never going to change.
+ - At the end, we’re kind of observers – creative people, I mean. I feel like an observer, and I’m pretty much able to step out of things and see how things are playing out.
+ - I used to believe that if I could do certain things – write a book or be a successful musician – that I’d be transformed into a happy person, but it doesn’t work that way.
+ - A gentleman never talks about his tailor.
+ - Into the mercy seat I climb My head is shaved, my head is wired And like a moth that tries To enter the bright eye I go shuffling out of life Just to hide in death awhile And anyway I never lied.
+ - I suspect the older you get the more invisible you become.
+ - I’m hugely self-critical in the morning.
+ - Hamlet got a gun now.
+ - I’ve spent my life butting my head against other people’s lack of imagination.
+ - Said 2,000 years of Christian history, baby And you ain’t learned to love me yet?
+ - I don’t believe in an interventionist God.
+ - The secret to longevity in the music business is to change, and to be able to change. An actor has to assume other people’s identities. A rock star doesn’t need to do that. But change is important.
+ - I have things that I’m interested in, and I’m not really interested in writing about anything that I’m not interested in. But it’s important to me to be able to see it from a different perspective, and add something new to the whole picture.
+ - Sorrow’s child grieves not what has passed, but all the past still yet to come.
+ - Rock music is the province of the young, and it should be made by young people. I’m not running around in a pair of spandex tights trying to reclaim my youth.
+ - Kylie Minogue is the greatest thing that has happened to Australian music.
+ - Death looms large I guess because it should. It’s the one thing that we as human beings from birth have a right to. It’s the only thing we’ve really got, and I don’t mean to sound bleak about this, but it’s a unifying factor amongst us all.
+ - I’ve never been interested in being relevant.
+ - You don’t meet a lot of people that you really like. I don’t anyway.
+ - An artist’s duty is rather to stay open-minded and in a state where he can receive information and inspiration. You always have to be ready for that little artistic Epiphany.
+ - It’s very important that the music has a sense of adventure to it, and that it’s done by the seat of your pants. There’s a kind of nervy element about it.
+ - The artistic process seems to be mythologized quite a lot into something far greater than it actually is. It is just hard labor.
+ - I’m kind of old-school and love nothing more than sitting, opening a book, and reading it. But I also love listening to audio books.
+ - The blues is instilled in every musical cell that floats around your body.
+ - God is in everything whether I’m mentioning him or not.
+ - I always thought my records were number one; it’s just the charts didn’t think so.
+ - Everybody tends to overplay live. That’s just the nature of playing live. And that can be great, but it can also kill something that’s special, and intimate, about a recorded version of a song. You find out very quickly which songs you can play, and which songs you do damage to by playing them live.
+ - The writer who refuses to explore the darker regions of the heart will never be able to write convincingly about the wonder, the magic and the joy of love for just as goodness cannot be trusted unless it has breathed the same air as evil.
+ - Texting is apocalyptic on some level. It’s a reduction of things.
+ - All of our days are numbered. We cannot afford to be idle. To act on a bad idea is better than to not act at all, because the worth of an idea never becomes apparent until you do it.
+ - I’ve watched ‘Oprah Winfrey.’ And I’m proud. I don’t care what anybody says! I don’t know whether I’ve watched it. I’ve been in the room while it’s been on.
+ - If you got a trumpet, get on your feet, brother, and blow it!
+ - I don’t know, maybe Australian humour isn’t supposed to be funny. It’s as dry as the Sahara, and I think people miss that.
+ - At some point you start seeing the difference between what you really want, and what is your priority order. I feel that today I know what I want. That’s the problem with perspective, as well as focus and concentration.
+ - After a while, you just don’t do things you don’t wanna do – that’s the great freedom you get, the older you get. You learn what to do and what not to do, and what will be a waste of time and what won’t be a waste of time.
+ - People often can’t separate, or can’t understand, that to be funny is to be serious; it’s a way of pulling people in and not scaring them off. I think a lot of the funny stuff, underneath it, there’s a deep anxiety going on.
+ - In getting older, I find myself becoming progressively more ineffectual in a lot of different ways, and part of that is down to no longer having the youthful feeling that what you’re doing has any true impact.
+ - Inspiration is a word used by people who aren’t really doing anything. I go into my office every day that I’m in Brighton and work. Whether I feel like it or not is irrelevant.
+ - Out of sorrow entire worlds have been built out of longing great wonders have been willed they’re only little tears darling let them spill and lay your head upon my shoulder.
+ - I don’t really do Japanese interviews. I don’t think there’s much call for me in Japan.
+ - No wonder sorrow doesn’t smile much. No wonder sadness is so sad.
+ - And she moves among the sparrows. And she floats upon the breeze. She moves among the flowers. She moves something deep inside of me.
+ - To my undying shame, I do read reviews. I don’t read them all, but I like to get some kind of idea how things are going.
+ - Most of the time, feelings just seem to get in the way. They’re a luxury for the idle, a bourgeois concept. Feelings are overrated.
+ - I have a very strange relationship in general with women around my music. There’s some that understand it and some that think there should be a law against it.
+ - Brother, be a brother, fill this tiny cup of mine. And please, sir, make it whiskey: I have no head for wine!
+ - I’m not a misogynist, so you can dispense with that. I think I’ve done wonders for the feminist movement.
+ - I’ve got some words of wisdom.
+ - People think I’m a miserable sod but it’s only because I get asked such bloody miserable questions.
+ - If I’m hanging around too much, my wife and kids say, ‘Hey, why don’t you go downstairs and start a new novel?’
+ - It’s always a risky business inviting somebody on stage. You never know what they’re going to do. I try to avoid letting people join me onstage because it can be very distracting, and overly theatrical.
+ - And I kissed away a thousand tears My lady of the Various Sorrows Some begged, some borrowed, some stolen Some kept safe for tomorrow.
+ - If you’re Australian, you feel it in your bones because you’re at odds with everybody else, except other Australians, in the sense that people always seem to be behaving strangely. People always seem to be behaving the wrong way, in a different way. You say things and there are silences.
+ - Who knows their own story? It certainly makes no sense when you’re in the middle of it.
+ - I think there’s a certain numbness in modern society, that accepts certain kinds of violence, but represses other kinds of violence.
+ - The more settled I’ve become, the more problematic my characters have become. There was a period when I wrote sensitive and gentle songs and these came at a time when life was at its most destructive. I think you write about what you need, on some level.
+ - I’m a big fan of teatowels and am always on the lookout for a good one.
+ - Musicians are at the bottom of the creative pyramid and authors are at the top, and many people think it’s unacceptable for someone to attempt to jump from the bottom to the top of the pyramid.
+ - I’ve always worn suits. To me they’re a very practical kind of thing to wear. You put one on and don’t really have to think about what you’re going to wear.
+ - I’m not saying this in a condescending kind of way, but it’s quite simple: The making of America was a heroic thing. Australia has a much murkier, much more complex view of its history. It’s just full of all these open wounds we don’t really know what to do with.
+ - The rock star is dying. And it’s a small tragedy. Rock stars have blogs now. I have no use for that kind of rock star.
+ - I’m not in the business of telling people what to do. I’m much more in the business of describing things, situations and stuff like that and leaving them out there, and you can make up your minds about them.
+ - I love being manipulated by what I see. I love weepies and romantic comedies where you’re reaching for the Kleenex at the right moment.
+ - I have an armchair interest in gardening, but I don’t like to get my knees dirty. I don’t have a garden.
+ - You searched through all my poets, From Sappho through to Auden, I saw the book fall from your hands, As you slowly died of boredom.
+ - I’m a kind of hard-wired pessimist. I can’t help but see the world in a certain kind of way.
+ - Getting married, for me, was the best thing I ever did. I was suddenly beset with an immense sense of release, that we have something more important than our separate selves, and that is the marriage. There’s immense happiness that can come from working towards that.
+ - You can’t trust an artist that just makes good records.
+ - It’s an Australian thing to be dismissive. We find that endearing. Americans don’t. They believe what you say.
+ - I write a lot, and very often I write a couple of lines that are particularly revealing in some kind of way. And then as a few more lines get added and a piece gets added, eventually the song pretty much takes over and you can’t really find a way to change those things.
+ - There’s an element to songwriting that I can’t explain, that comes from somewhere else. I can’t explain that dividing line between nothing and something that happens within a song, where you have absolutely nothing, and then suddenly you have something. It’s like the origin of the universe.
+ - Writing screenplays makes me a better musician because it clears my head. After writing a movie, I go running back to music as fast as I can.
+ - This is how it essentially is for Bunny Junior. He loves his dad. He thinks there is no dad better, cleverer, or more capable, and he stands there beside him with a sense of pride – he’s my dad – and he also, of course, stands beside him because he has nowhere else to go.
+ - I became a script writer with absolutely no idea of how to write a script whatsoever. I still feel a bit of an outsider in that regard. If I can maintain that approach to screenwriting, it can continue to be enjoyable.
+ - I see it as my duty in some way is to be out in the world as an Australian putting forward what I consider to be authentic Australian music.
+ - Songwriting, I have to take myself away from everybody to do. It’s an unsightly act.
+ - The older I get, the more I feel those kinds of ghosts – especially the women in my life – moving out of the shadows a bit more and becoming more present in my life.
+ - A rock musician’s career is short-lived. To extend it, you need to do other things to keep yourself fresh.
+ - I don’t feel I’m thrown around by the winds of taste and fashion.
+ - I’m always sort of looking for projects that I can sort of put out into the world, into the public sphere, and to somehow cause an effect. I want to be able to create projects that sort of are going to make people think and think in this sort of magical, sort of fantastical way.
+ - If you’re involved with imagination and the creative process, it’s not such a difficult thing to believe in a God. But I’m not involved in any religions, and I’ve never intended to make religious records or records that preach some kind of point of view.
+ - The more information you have, the more human our heroes become and consequently the less mysterious and godlike. They need to be godlike.
+ - I know when I sit with my band members and we’re playing back a song that we’ve done, I know that they’re experiencing it in a completely different way and hearing stuff that they’re alerted to because the way the interpret the world is through their ears. Mine is through my eyes.
+ - Accessible local libraries are vital to communities and to children.
+ - The problem with books, now that I’ve written one, is that the idea of adaptation is so much easier than sitting down to write something new.
+ - I get criticized for a lot of what I write about, but as far as I’m concerned I’m actually standing up and having a look at what goes on in the minds of men, and I have the authority to talk about it because I’m a man.
+ - I think it’s an essential fact for any performer or artist to fail as poignantly as they can succeed.
+ - I think I have always had a pretty strong creative impulse. And that has probably saved me from abandoning myself completely.
+ - I write hate lyrics really well. It’s not every day you can use them, really.
+ - Moving to the country is a very bold thing to do. You can have vague romantic notions about doing that, but in actuality, it can be a terrifying thing.
+ - I feel very much a part of what I’m writing about, and I’m writing about things that concern me on a daily basis. I’m not really interested in writing musical diaries, if you know what I mean.
+ - When I’m singing ‘Deanna,’ for example, which I sing pretty much every night, it brings forward a kind of imagined, romanticized lie about this particular person, which I find really comforting and exciting to sing about.
+ - I think there is a certain perversity in my music in that I continue, you know, to eat at the same ball of vomit year after year.
+ - I was reading The Bible a lot through my 20s, mostly the Old Testament, just because I was knocked out by the language and the stories. I felt that the God being talked about there, who was this insane, vindictive patriarch – it was kind of thrilling, and titillated something in me at the time.
+ - Sometimes the song isn’t strong enough to contain the fiction, because memories are fictions.
+ - The actualising of God through the medium of the love song remains my prime motivation as an artist.
+ - Some people, myself in particular, have an adversarial relationship with the camera, and it sprouts up in every photograph.
+ - I’ve always had an obligation to creation, above all.
+ - Being a parent can make you a horrible person at times, because you’re pushed to the limit constantly.
+ - I don’t write happy songs. Who does? I don’t know anybody who writes happy songs, really.
+ - Most screen violence is tedious.
+ - Film seems to be a medium designed for betrayal and violence.
+ - That’s what I like about watching a movie: you enter an imagined world that’s more interesting, more engaging than your own. Or less painful than your own.
+ - I’m a believer. I don’t go to church. I don’t belong to any particular religion, but I do believe in God. I couldn’t write what I write about and be creative without a certain form of belief.
+ - What you’re really after when you see a film or listen to a song is a singular vision, and I’m not sure how much of that you really get in Hollywood.
+ - You write a scene, and it works or it doesn’t. It’s immediate.
+ - Despite what people might think, I’m not interested in being dark all the time. I’m actually searching for some kind of light, and I’m always very happy when I can achieve that.
+ - Oh, a passing, skeptical kind of interest. I’m a hammer-and-nails kind of guy.
+ - I’ve always hated narrative songs. I hate those songs where, basically, it’s an unfolding of a story.
+ - There are methods to creating a mayhem that sounds different from your usual mayhem. Because mayhem and a heavy drum backbeat end up sounding like Green Day or something. But if you put a different beat within it to create some air and lightness, the chaos comes through better.
+ - As Australians, we see the law as inherently bad. We have a real inherent distaste for authority in our makeup.
+ - There are times when I think I can sing it better, but usually I find that I can’t.
+ - To sustain hatred is a very difficult thing to do, year after year. It’s exhausting.
+ - No fish can swim until the King is born, until the King is born in Tupelo.
+ - Look, when I look back, from 20 onwards, I was actually having a pretty good time, I have to say.
+ - I’m an Australian, and when I grew up much of my influences were American – blues music and country music, all that sort of thing.
+ - My muse is my wife. It’s not some vague thing that flutters around the astrosphere or wherever it is. Sometimes as a songwriter you need something to hang a song on, to give it some kind of presence and form. For me, Susie is that.
+ - I consider myself to be first and foremost a comic writer. The way I entertain myself – especially in those long and grim hours in the office – is to write stuff I find funny.
+ - I have a particular dislike for children’s films. I’m way past the novelty aspect.
+ - I’ve always been at war with the guitar. All vocalists are fighting a war with the electric rhythm guitar.
+ - My records are basically a litany of complaints against the world, and I’m quite like that in real life as well.
+ - Writing is a necessary thing for me, just to keep myself level. It has beneficial effects on my life.
+ - God has matured. He is not the impulsive, bowel-less being of the Testaments – the vehement glory-monger, with His bag of cheap carny tricks and his booming voice – the fiery huckster with his burning bushes and his wonder wands. Nowadays God knows what He wants and He knows who He wants.
+ - The work ethic at art school is completely different than the work ethic amongst people who get into music. People who paint, it’s an honorable thing to spend all day and all night in front of your canvas – that is the romantic vision of the painter.
+ - I’m not religious, and I’m not a Christian, but I do reserve the right to believe in the possibility of a god.
+ - I don’t really care who collects my work, black, white, red, yellow. You have to also be consciously aware of, what does this mean in your home? And how are you supporting this work and the message behind the work?
+ - At school I was an anti-magnet for women.
+ - A is for Answering all your prayers, N is for kNowing that your loverman’s going to be the answer...
+ - I still feel very much an imposter in the whole music scene, which I’m quite happy about to be honest.
+ - I don’t think Hollywood makes many good films anymore. How many directors can you really trust to have an artistic vision, not a corporate vision or a watered-down communal one?
+ - Well, as anyone who actually writes knows, if you sit down and are prepared, then the ideas come. There’s a lot of different ways people explain that, but, you know, I find that if I sit down and I prepare myself, generally things get done.
+ - The band is a living, breathing thing. It grows in the same way we do as human beings and if it doesn’t, it dies. It’s important to feed the organism, and one way of doing that is to set musical challenges that keep it alive.
+ - I love rock-n-roll. I think it’s an exciting art form. It’s revolutionary. Still revolutionary and it changed people. It changed their hearts. But yeah, even rock-n-roll has a lot of rubbish, really bad music.
+ - Certainly being proficient in an instrument does have its problems. Because the better you get, the more you just start sounding like an ordinary guitarist. There are certainly guitarists that transcend that and do really find their sound and all that sort of stuff.
+ - You’re collaborating with people you don’t even know, when you’re making a film. You’re collaborating with people you’ve never seen. So, the collaborative process is very, very different than when you’re collaborating on a record with the musicians you’ve worked with all your life.
+ - It’s always a pleasure on a personal note for me to come back to Australia.
+ - The body becomes the carrier for the work. It’s not really about the physical body; it really becomes the apparatus that carries and moves the work. I don’t really consider the body as much; I look at it as a tool.
+ - My responsibility as an artist is to turn up at the page or the piano or the microphone. The rest is up to God.
+ - My music has to do with beauty, and it’s intended to, if not lift the spirits, then be a kind of a balm to the spirits.
+ - The big problem with songwriting for me is starting a new song. It’s the thing where all the anguish exists, not in the writing of the song, but the starting of the new song.
+ - I love performing. I can get to be that person I always wanted to be – godlike.
+ - Songs need to have the ability to change and to grow for sure. They take on lives of their own. Some songs just don’t have that capacity. They’re locked within a period of time. And as soon as you take them out of that period of time, they die very quickly.
+
+158 quotes

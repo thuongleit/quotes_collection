@@ -1,0 +1,86 @@
+ - Talent can’t be taught, but it can be awakened.
+ - Be proud of every scar on your heart, each one holds a lifetime’s worth of lessons.
+ - There is a sense in which we are all each other’s consequences.
+ - National parks are the best idea we ever had. Absolutely American, absolutely democratic, they reflect us at our best rather than our worst.
+ - American individualism, much celebrated and cherished, has developed without its essential corrective, which is belonging.
+ - It is love and friendship, the sanctity and celebration of our relationships, that not only support a good life, but create one. Through friendships, we spark and inspire one another’s ambitions.
+ - We write to make sense of it all.
+ - It is the beginning of wisdom when you recognize that the best you can do is choose which rules you want to live by, and it’s persistent and aggravated imbecility to pretend you can live without any.
+ - Water is the true wealth in a dry land.
+ - We are the most dangerous species of life on the planet, and every other species, even the earth itself, has cause to fear our power to exterminate. But we are also the only species which, when it chooses to do so, will go to great effort to save what it might destroy.
+ - Fossil energy is the worst discovery man ever made, and his disruption of the carbon-oxygen cycle is the greatest of his triumphs over nature. Through thinner and thinner air we labor toward our last end, conquerors finally of even the earth chemistry that created us.
+ - You have to get over the color green; you have to quit associating beauty with gardens and lawns; you have to get used to an inhuman scale; you have to understand geological time.
+ - That is all the National Parks are about. Use, but do no harm.
+ - This early piece of the morning is mine.
+ - The brook would lose its song if we removed the rocks.
+ - Home is a notion that only nations of the homeless fully appreciate and only the uprooted comprehend.
+ - Whatever landscape a child is exposed to early on, that will be the sort of gauze through which he or she will see all the world afterwards.
+ - Every green natural place we save saves a fragment of our sanity and gives us a little more hope that we have a future.
+ - Floating upward through a confusion of dreams and memory, curving like a trout through the rings of previous risings, I surface. My eyes open. I am awake.
+ - I gave my heart to the mountains the minute I stood beside this river with its spray in my face and watched it thunder into foam, smooth to green glass over sunken rocks, shatter to foam again. I was fascinated by how it sped by and yet was always there; its roar shook both the earth and me.
+ - The Westerner is less a person than a continuing adaptation. The West is less a place than a process.
+ - You’ll do what you think you want to do, or what you think you ought to do. If you’re very lucky, luckier than anybody I know, the two will coincide.
+ - We were going to leave a mark on the world but instead the world left marks on us.
+ - There is nothing like a doorbell to precipitate the potential into the kinetic.
+ - Expose a child to a particular environment at this susceptible time and he will perceive in the shapes of that environment until he dies.
+ - Most things break, including hearts. The lessons of life amount not to wisdom, but to scar tissue and callus.
+ - Have a chance to create a society to match its scenery.
+ - Death is a convention, a certification to the end of pain, something for the vital statistics book, not binding upon anyone but the keepers of graveyard records.
+ - Youth hasn’t got anything to do with chronological age. It’s times of hope and happiness.
+ - The life we all live is amateurish and accidental; it begins in accident and proceeds by trial and error toward dubious ends.
+ - It is somethingit can be everything-to have found a fellow bird with whom you can sit among the rafters while the drinking and boasting and reciting and fighting go on below.
+ - Towns are like people. Old ones often have character, the new ones are interchangeable.
+ - Faith can reclaim deserts as well as move mountains.
+ - We are fossils in the making.
+ - Salt is added to dried rose petals with the perfume and spices, when we store them away in covered jars, the summers of our past.
+ - I may not know who I am, but I know where I am from.
+ - The perfect weather of Indian Summer lengthened and lingered, warm sunny days were followed by brisk nights with Halloween a presentiment in the air.
+ - In a way, it is beautiful to be young and hard up. With the right wife, and I had her, deprivation became a game.
+ - Hard writing makes easy reading.
+ - There it was, there it is, the place where during the best time of our lives friendship had its home and happiness its headquarters.
+ - No place is a place until things that have happened in it are remembered in history, ballads, yarns, legends, or monuments. Fictions serve as well as facts.
+ - I think, don’t you, that a girl with any delicacy of feeling couldn’t bring herself to marry a man indirectly responsible for her father’s death. No matter how much she was in love with him.
+ - When I was twenty I was in love with words, a wordsmith. I didn’t know enough to know when people were letting words get in their way. Now I like the words to disappear, like a transparent curtain.
+ - Are writers reporters, prophets, crazies, entertainers, preachers, judges, what?
+ - Thanks to the growing strength of environmental organizations, there will always be some back country to provide us with a touch of wonder and a breath of fresh air.
+ - Hope was always out ahead of fact, possibility obscured the outlines of reality.
+ - To have so little, and it of so little value, was to be quaintly free.
+ - A political animal can be defined as a body that will go on circulating a petition even with its heart cut out.
+ - No place is a place until it has found its poet.
+ - We made plenty of mistakes, but we never tripped anybody to gain an advantage, or took illegal shortcuts when no judge was around. We have all jogged and panted it out the whole way.
+ - Human lives seldom conform to the conventions of fiction. Chekhov says that it is in the beginnings and endings of stories that we are most tempted to lie. I know what he means, and I agree.
+ - You achieve stature only by being good enough to deserve it, by forcing even the contemptuous and indifferent to pay attention, and to acknowledge that human relations and human emotions are of inexhaustible interest wherever they occur.
+ - It is almost impossible to write fiction about the Mormons, for the reason that Mormon institutions and Mormon society are so peculiar that they call for constant explanation.
+ - I am impressed by how much of my grandparent’s life depended on continuities, contacts, connections, friendships, and blood relationships.
+ - She had rooms in her mind that she would not look into.
+ - In fiction I think we should have no agenda but to tell the truth.
+ - Largeness is a lifelong matter. You grow because you are not content not to. You are like a beaver that chews constantly because if it doesn’t, it’s teeth grow long and lock. You grow because you are a grower; you’re large because you can’t stand to be small.
+ - Every action is an idea before it is an action, and perhaps a feeling before it is an idea, and every idea rests upon other ideas that have preceded it in time.
+ - If you’re going to get old, you might as well get as old as you can get.
+ - I shall be richer all my life for this sorrow.
+ - You can’t retire to weakness – you’ve got to learn to control strength.
+ - I balked at nothing, I was above nothing. Everything had something to teach me.
+ - I was shaped by the west and have lived most of my life in it, and nothing would gratify me more than to see it in all its subregions and subcultures both prosperous and environmentally healthy, with a civilization to match its scenery.
+ - Some are born in their place, some find it, some realize after long searching that the place they left is the one they have been searching for.
+ - Largeness is a lifelong matter – sometimes a conscious goal, sometimes not. You enlarge yourself because that is the kind of individual you are. You grow because you are not content not to.
+ - It is the abiding concern of thinking people to preserve what keeps men human-to save our contact with nature of which we are a part.
+ - History is not the proper midden for digging up novelties. Perhaps that is one reason why a nation bent on novelty ignores it.
+ - If we don’t know where we are, we don’t know who we are.
+ - No one who has studied Western history can cling to the belief that the Nazis invented genocide.
+ - We do not write what we know; we write what we want to find out.
+ - A teacher enlarges people in all sorts of ways besides just his subject matter.
+ - Young writers should be encouraged to write, and discouraged from thinking they are writers.
+ - Do we respond only to people who seem to find us interesting?
+ - I consider the integrity of the material to be of greater value than any message I might want to get across.
+ - If you avoid the killer diseases and keep the degenerative ones under control with sensible diet and exercise and whatever chemotherapy you need to stay in balance, you can live nearly forever.
+ - Creation is a knack which is empowered by practice, and like almost any skill, it is lost if you don’t practice it.
+ - We are the only species which, when it chooses to do so, will go to great effort to save what it might destroy.
+ - After a day and a half or so the traveler will realize that crossing the continent by Interstate he gets to know the country about as well as a cable messenger knows the sea bottom.
+ - The meeting of writer and reader is an intimate act, and it properly takes place in private.
+ - Are you a reader? If you aren’t a reader, you might as well forget trying to be a writer.
+ - No life goes past so swiftly as an eventless one, no clock spins like a clock whose days are all alike.
+ - By his very profession, a serious fiction writer is a vendor of the sensuous particulars of life, a perceiver and handler of things. His most valuable tools are his sense and his memory; what happens in his mind is primarily pictures.
+ - Values, both those that we approve and those that we don’t, have roots as deep as creosote rings, and live as long and grow as slowly.
+ - Any life will provide the material for writing, if it is attended to.
+
+84 quotes

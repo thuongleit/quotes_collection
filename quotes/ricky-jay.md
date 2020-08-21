@@ -1,0 +1,26 @@
+ - The book says we may be through with the past but the past ain’t through with us.
+ - Magic is a powerful art that can support a weak performer.
+ - I love amazing people. I love dazzling them. That’s why I think performing magic is one of the greatest things a person can do.
+ - I grew up like Athena – covered with playing cards instead of armor – and, at the age of seven, materialized on a TV show, doing magic.
+ - If it sounds too good to be true, it always is.
+ - For me, the most exciting thing is to create good magic that’s entertaining for an audience, and it would be lovely if a magician was fooled as well.
+ - Every acting gig isn’t the same, every writing job isn’t the same, every live performance isn’t the same – the challenge is the level of difficulty or ease, and that may vary.
+ - The pain is bad magicians ripping off good ones, doing magic badly, and making a mockery of the art.
+ - I certainly was performing before my writing was published, because I was performing when I was very young. And the thing is I’m very comfortable on stage, so a large portion of my act did come from ad-libs.
+ - Not only do I lie, I take real pleasure in lying, in the transmission of magic effects.
+ - Writing is the only thing in my life that doesn’t get easier. It just doesn’t.
+ - Dai Vernon, the greatest sleight of hand figure in the history of the art, rarely performed. But he invented magic and had an enormous influence on the whole range of sleight of hand. And so often, the magic he was doing was to fool other magicians.
+ - Theft annoys me more than anything else. The purloining of effects from another magician. Some people think it’s massive to steal the secrets of nuclear reactors, but to steal a card move is trivial. They’re wrong.
+ - My father was the Formica King of Long Island, and my mother was the daughter of a Bengal Lancer in India.
+ - In the winters, I enrolled in the hotel management program at Cornell University. I naively thought that I knew something about sleight-of-hand, entertainment and food, and that would be all I needed.
+ - I never talk much about my family, but my grandfather was friendly with these guys, with magicians and ventriloquists on the highest levels, and I was just interested.
+ - That’s one of the ways language evolved, by some very obscure form becoming common usage. And I must say that I’m very intrigued by use of language and slang, and criminal underground terms.
+ - I know absolutely nothing about the 20th Century.
+ - I’m probably the only kid in history whose parents made him stop taking music lessons. They made me stop studying the accordion.
+ - I suppose that if I could only do one thing, a solid card effect would be pretty high on the list. That’s the root of it all, sleight-of-hand. It’s certainly the thing I feel most comfortable with.
+ - Unlike other Jewish families, we didn’t go out for Chinese food on Sundays, but we spent our time in a world of baking powder biscuits and the best shrimp cocktails that ever were.
+ - I always read what I write out loud, and I did that long before any radio thing. My editor finds that unusual.
+ - I started doing radio pieces with no clear, preconceived idea, except that I have a tendency to be theatrical.
+ - I think the toughest thing about being an actor in a film is to be with a director who doesn’t know what they want. And that can be really, really frustrating.
+
+24 quotes

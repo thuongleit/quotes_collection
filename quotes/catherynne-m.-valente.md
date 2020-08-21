@@ -1,0 +1,153 @@
+ - She was beautiful and terrifying, savage and pure.
+ - Everyone is a criminal! We are beset on all sides by antirevolutionary forces. Naturally, then, humans fall into three categories: the criminal, the not-yet-criminal, and the not-yet-caught.
+ - Never put your faith in a Prince. When you require a miracle, trust in a Witch.
+ - We all have someone we think shines so much more than we do that we are not even a moon to their sun, but a dead little rock floating in space next to their gold and their blaze.
+ - She is so stubborn, her heart has an argument with her head every time it wants to beat.
+ - A book is a door, you know. Always and forever. A book is a door into another place and another heart and another world.
+ - I am selfish. I am cruel. My mate cannot be less than I.
+ - It is such hard work to keep your heart hidden! And worse, by the time you find it easy, it will be harder still to show it. It is a terrible magic in this world to ask for exactly the thing you want. Not least because to know exactly the thing you want and look it in the eye is a long, long labor.
+ - You’re not in love if you keep your own heart bricked up behind your bones. You’re only playing.
+ - After love, no one is what they were before.
+ - How I adore you, Marya. How well I chose. Scold me; deny me. Tell me you want what you want and damn me forever. But don’t leave me.
+ - But her heart was so cold that she could hold ice in her mouth and it would never melt.
+ - Hats have power. Hats can change you into someone else.
+ - You will always fall in love, and it will always be like having your throat cut, just that fast.
+ - I’m not lost, because I haven’t any idea where to go that I might get lost on the way to. I’d like to get lost, because then I’d know where I was going, you see.
+ - Death hath no dominion.
+ - She did not want to read this book from start to finish, or rather, she thought perhaps it did not want her to. Instead she practiced the art of bibliomancy, trusting the book to show her what it wanted her to know.
+ - A library is never complete. That’s the joy of it. We are always seeking one more book to add to our collection.
+ - September could see it. She did not know what is was she saw. That is the disadvantage of being a heroine, rather than a narrator. She knew only that a red light glowed and went dark, glowed and went dark.
+ - You are going to break your promise. I understand. And I hold my hands over the ears of my heart, so that I will not hate you.
+ - Fierce was her needle, and she wore it like a sword.
+ - If you want to kill yourself, do not use us as your knife.
+ - Do not ruin today with mourning tomorrow.
+ - Metamorphosis is the most profound of all acts.
+ - That’s Venus, September thought. She was the goddess of love. It’s nice that love comes on first thing in the evening, and goes out last in the morning. Love keeps the light on all night.
+ - September knew a number of curse words, most of which she heard the girls at school saying in the bathrooms, in hushed voices, as if the words could make things happen just by being spoken, as if they were fairy words, and had to be handled just so.
+ - Respect me. Be proud, and if you love me, a little afraid, because love so often looks like fear. We are alike. We are alike.
+ - I burn, I freeze; I am never warm. I am rigid; I forgot softness because it did not serve me.
+ - That’s what happens to friends, eventually. They leave you. It’s practically what they’re for.
+ - I am freedom and I will eat your heart.
+ - Even if you’ve taken off every stitch of clothing, you still have your secrets, your history, your true name. It’s hard to be really naked. You have to work hard at it. Just getting into a bath isn’t being naked, not really. It’s just showing skin.
+ - Well enough. I won’t ask you if your love is true or any of that rot – it’s not my place to judge. After all, I’m a naked woman chained to a wall; I’ve no business questioning the lifestyles of wine-makers or anyone else.
+ - Funny how “question” contains the word “quest” inside it, as though any small question asked is a journey through briars.
+ - Bad luck relies on absolutely perfect timing.
+ - I will not let her speak because I love her, and when you love someone, you do not make them tell war stories. A war story is a black space. On the one side is before and on the other side is after, and what is inside belongs only to the dead.
+ - When one is traveling, everything looks brighter and lovelier. That does not mean it IS brighter and lovelier; it just means that sweet, kindly home suffers in comparison to tarted-up foreign places with all their jewels on.
+ - Family is a transitive property.
+ - I do not tolerate a world emptied of you. I have tried. For a year I have called every black tree Marya Morevna; I have looked for your face in the patterns of the ice. In the dark, I have pored over the loss of you like pale gold.
+ - What is the world but a boxing ring where fools and devils put up their fists?
+ - I am a practical girl, and a life is only so long. It should be spent in as much peace and good eating and good reading as possible and no undue excitement. That is all I am after.
+ - In both marriage and war you must cut up the things people say like a cake and eat only what you can stomach.
+ - The future is a messy, motley business, little girl.
+ - I’ve always had enough, even if my enough and your enough are as different as an elephant and a minaret.
+ - Blue is for cruel bargains; green is for daring what you oughtn’t; violet is for brute force. I will say to you: Coral coaxes; pink insists; red compels. I will say to you: You are dear to me as attar of roses. Please do not get eaten.
+ - As all mothers know, children travel faster than kisses. The speed of kisses is, in fact, what Doctor Fallow would call a cosmic constant. The speed of children has no limits.
+ - It is well known that reading quickens the growth of a heart like nothing else.
+ - No, not like this, when I have not seen you without your skin on, when I know nothing, when I am not safe. Not you, whose name all my nightmares know.
+ - And if they thought her aimless, if they thought her a bit mad, let them. It meant they left her alone. Marya was not aimless, anyway. She was thinking.
+ - I wish you the best that can be hoped for, and no worse than can be expected.
+ - Never trust anyone under one hundred!
+ - So most people go around with grimy machinery, when all it would take is a bit of spit and polish to make them paladins once more, bold knights and true.
+ - If I stop, I shall sink and die. That’s the way I’m made. I have to keep going always, and even when I get where I’m going, I’ll have to keep on. That’s living.
+ - Maidens stand still, they are lovely statues and all admire them. Witches do not stand still. I was neither, but better that I err on the side of witchery, witchery that unlocks towers and empties ships.
+ - She who invented words, and yet does not speak; she who brings dreams and visions, yet does not sleep; she who swallows the storm, yet knows nothing of rain or wind. I speak for her; I am her own.
+ - Her heart ached as though a knife had quietly slipped between her ribs.
+ - I can’t imagine a decent maze that would be caught dead without a minotaur. It’s not done! You don’t go out of your house without any clothes on, and a minotaur doesn’t go into the world without a labyrinth to keep him warm.
+ - Magic does that. It wastes you away. Once it grips you by the ear, the real world gets quieter and quieter, until you can hardly hear it at all.
+ - She sounds like someone who spends a lot of time in libraries, which are the best sorts of people.
+ - All things are strange which are worth knowing.
+ - I am the Walker and the Maze.
+ - A labyrinth, when it is big enough, is just the world.
+ - Husbands lie, Masha. I should know; I’ve eaten my share. That’s lesson one. Lesson number two: among the topics about which a husband is most likely to lie are money, drink, black eyes, political affiliation, and women who squatted on his lap before and after your sweet self.
+ - There must be blood, the girl thought. There must always be blood. The Green Wind said that, so it must be true. It will be all hard and bloody, but there will be wonders, too, or else why bring me here at all? And it’s the wonders I’m after, even if I have to bleed for them.
+ - He tried to reconstruct the story in his mind, but it kept getting confused, bleeding into itself like watercolors.
+ - Children make prayers so thoughtlessly, building them up like sand castles – and they are always surprised when suddenly the castle becomes real, and the iron gate grinds shut.
+ - The smell of loving is a difficult one to describe, but if you think of the times when someone has held you close and made you safe, you will remember how it smells just as well as I do.
+ - You were so near death that ghosts crowded around you, weeping silver tears, waiting for you with such smiles. You humans, you know, whoever built you sewed irony into your sinews.
+ - Oh, quit that. Blushing is for virgins and Christians.
+ - But if you must be clever, then be clever. Be brave. Sleep with fists closed and shoot straight.
+ - He missed you like a fish in a bowl misses the open sea.
+ - And it’s the wonders I’m after, even if I have to bleed for them.
+ - Readers will always insist on adventures, and though you can have grief without adventures, you cannot have adventures without grief.
+ - Everybody’s strange everywhere. Most of the trick of being a social animal is pretending you’re not. But who do you fool? Nobody worth talking to.
+ - Stories have a way of changing faces. They are unruly things, undisciplined, given to delinquency and the throwing of erasers. This is why we must close them up into thick, solid books, so they cannot get out and cause trouble.
+ - Monsters almost always are culture’s way of working out their fears.
+ - The storm ate up September’s cry of despair, delighted at its mischief, as all storms are.
+ - Whenever one does extraordinary things, someone is bound to try to repeat them for themselves. It’s the way of the world.
+ - We all just keep moving, September. We keep moving until we stop.
+ - If one did not have at least a little luck, one would never survive childhood. But luck can be spent, like money; and lost, like a memory; and wasted, like a life.
+ - September had never been betrayed before. She did not even know what to call the feeling in her chest, so bitter and sour. Poor child. There is always a first time, and it is never the last time.
+ - And as we watched, the Tsar of Death lifted up his eyelids like skirts and began to dance in the streets of Leningrad.
+ - First, the avid student must be aware that when the world was young it knew only seven things: water, life and death, salt, night, birds and the length of an hour.
+ - We all live inside the terrible engine of authority, and it grinds and shrieks and burns so that no one will say: lines on maps are silly.
+ - How much better if life were more like books, if life lied a little more, and gave up its stubborn and boring adherence to the way things can be, and thought a little more imaginatively about the way things might be.
+ - Every morning is a battle between the superego and the id, and I am a mere foot soldier with mud and a snooze button on her shield.
+ - But lost children always find each other, in the dark, in the cold. It is as though they are magnetized, and can only attract their like.
+ - At the snowy summit of all these things, however, is the fact that you simply cannot go about locking your siblings in towers when they misbehave. It is unseemly and betrays a sad lack of creativity.
+ - Just tell yourself a story that’ll satisfy you and pretend he told it.
+ - An equation is a prophecy that always comes true.
+ - Love, I’ve never been anyone’s mother; I don’t know how to talk to young or old. But don’t stop smiling just because I flap my mouth and say something that’s not dressed around the edges like a lace tablecloth. Thicken up and we’ll get along fine.
+ - Things that are unsightly: birthmarks, infidelity, strangers in one’s kitchen. Too much sunlight. Stitches. Missing teeth. Overlong guests.
+ - Love rarely waits for permission.
+ - I have tried to write stories that go into the underworld of myth and bring out life and fire – where the old world looked at a woman alone and immortal and said: she must long to die, I have tried to say: look at her live!
+ - Temptation likes best those who think they have a natural immunity, for it may laugh all the harder when they succumb.
+ - You humans, you know, whoever built you sewed irony into your sinews.
+ - We like the wrong sorts of girls, they wrote. They are usually the ones worth writing about.
+ - There is no such thing as a people who are all wicked or even all good. Everyone chooses. But even they, even they looked at people and saw only tools. No one is a cup for another to drink from.
+ - That’s what a map is, you know. Just a memory.
+ - However wretched her origins, she chose freely to continue her crimes against us from the moment she woke to this life. It is easy to forgive beautiful women, especially when they lay a sorrowful tale before you like a sugar-dusted meal. It does not mean they deserve forgiveness.
+ - In his own country, Death can be kind.
+ - Where there is a Key, there is yet hope.
+ - Death stands behind every bride, every groom.
+ - I wouldn’t even consider it if I were you. But then if I were you, I would not be me, and if I were not me, I would not be able to advise you, and if I were unable to advise you, you’d do as you like, so you might as well do as you like and have done with it.
+ - The great blessing and great cruelty of youth is that there seems to be time enough.
+ - You will live as you live anywhere. With difficulty, and grief. Yes, you are dead. And I and my family and everyone, always, forever. All dead, like stones. But what does it matter? You still have to go to work in the morning. You still have to live.
+ - September did not want to feel for the Marquess. That’s how villains get you, she knew. You feel badly for them, and next thing you know, you’re tied to train tracks. But her wild, untried heart opened up another bloom inside her, a dark branch heavy with fruit.
+ - Some girls have to go to college to discover what they are good at; some are born doing what they must without even truly knowing why. I felt a hole in my heart shaped like a dark door I needed to guard.
+ - All stories must end so, with the next tale winking out of the corners of the last pages, promising more, promising moonlight and dancing and revels, if only you will come back when spring comes again.
+ - When little ones say they want to go home, they almost never mean it. They mean they are tired of this particular game and would like to start another.
+ - Close up your head; your brain is getting loose.
+ - She felt as she often did in class when she was nearly sure she had the right answer, but could not always make herself raise her hand.
+ - I know you loved both he and I, the way a mother can love two sons. And no one should be judged for loving more than they ought, only for loving not enough.
+ - Your past’s a private matter, sweetheart. You just keep it locked up in xbox where it can’t hurt anyone.
+ - You should always listen to minotaurs. Anybody with four stomachs has to have a firm grip on reality.
+ - It’s Latin, which is an excellent language for mischief-making, which is why governments are so fond of it.
+ - Perhaps all a Tsaritsa is is a beautiful cold girl in the snow, looking down at someone wretched, and not yielding.
+ - I perceive that you have a cruel heart, my child. It lies within your breast like a smoldering blade, hissing steam at me.
+ - I have all the books I could need, and what more could I need than books?
+ - You and I, being grown-up and having lost our hearts at least twice or thrice along the way, might shut our eyes and cry out: Not that way, child! But as we have said, September was Somewhat Heartless, and felt herself reasonably safe on that road. Children always do.
+ - Temperament, you’ll find, is highly dependent on time of day, weather, frequency of naps, and whether one has had enough to eat.
+ - The worst thing in the world is having to go back to the dark you shook off.
+ - Just remember that the only question in a house is who is to rule. The rest is only dancing around that, trying not to look it in the eye.
+ - Well, very splendid and very frightening. But splendid things are often frightening. Sometimes, it’s the fright that makes them splendid at all.
+ - I’ve a devil of a habit for being right.
+ - We treat our stone wives with much more care than they treat their warm ones, anyway. I personally dust mine once a week, and I know Khaamil gives them presents when I am not looking. These are yours – they are in your care, and you must be faithful.
+ - This is what comes of having a heart, even a very small and young one. It causes no end of trouble, and that’s the truth.
+ - Humanity lived many years and ruled the earth, sometimes wisely, sometimes well, but mostly neither.
+ - It is true that novelists are shameless and obey no decent law, and they are not to be trusted on any account, but some Mysteries even they must honor.
+ - I looked at this man and thought: Oh, how we are going to hurt each other.
+ - All jobs are odd, or they would be games or naps or picnics.
+ - It is best in the end to let women see to their own vengeance.
+ - Marya pinned out her childhood like a butterfly. She considered it the way a mathematician considers an equation.
+ - It appeals to the higher nature of the self to put aside food which once lived – I do not consider myself food, why should I ask all other creatures to consider themselves so?
+ - Do you know, Masha, how revelation comes? Like death. So sudden, though you knew all along it must occur. A revelation is always the end of something. It might even be cause for grief.
+ - Hearts set about finding other hearts the moment they are born, and between them, they weave nets so frightfully strong and tight that you end up bound forever in hopeless knots, even to the shadow of a beast you knew and loved long ago.
+ - You only had to choose which me to talk to, for, you know, we all change our manners, depending on who has come to chat. One doesn’t behave at all the same way to a grandfather as to a bosom friend, to a professor as to a curious niece.
+ - I want to keep on living forever and watching heroes and fools and knights go up and down, into the world and out. I want to keep being myself and mind the work that minds me. Work is not always a hard thing that looms over your years. Sometimes, work is the gift of the world to the wanting.
+ - No one is now what they were before the war. There’s just no getting any of it back.
+ - I savor bitterness – it is born of experience. It is the privilege of one who has truly lived.
+ - You can never know how your clock runs. But it does run – and always faster than you think.
+ - When the world changes, it stashes us away where we can’t make it run the other way again.
+ - She was not filled up with the sight of him, the way she had seen her sisters fill up, like silk balloons, like wineskins. Instead, he seemed to land heavily within her, like a black stone falling.
+ - You know how we can be about things which sparkle and shine. We imagine they will put back something of what has been lost.
+ - It was at thirteen years old that Marya Morevna learned how to keep a secret, and that secrets are jealous things, permitting no fraternization.
+ - There’s more than one way between your world and ours. There’s the changeling road, and there’s the Ravishing, and there’s those that Stumble through a gap in the hedgerows or a mushroom ring or a tornado or a wardrobe full of winter coats.
+ - Tell it fast before you get scared and silence yourself. You’ll never wish you’d held back a little more.
+ - I believe we have an utterly unique specimen on our hands: a child who listens.
+ - I hope, in years to come, I shall hold my heart up and it will be a pane of clear glass, through which I see all, but nothing is distorted.
+ - A girl in want of a Leopard still has feet.
+ - When one is traveling, everything looks brighter and lovelier.
+ - You cannot escape where you come from, September. Some part of it remains inside you always, like the slender white heart in the center of the thickest onion.
+
+151 quotes

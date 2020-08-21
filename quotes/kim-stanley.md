@@ -1,0 +1,34 @@
+ - Money equals power; power makes the law; and law makes government.
+ - First you fall in love with Antarctica, and then it breaks your heart.
+ - Below the 40th latitude there is no law; below the 50th no god; below the 60th no common sense and below the 70th no intelligence whatsoever.
+ - The invisible hand never picks up the check.
+ - Every moment an epiphany arrives and cleaves the mountain asunder.
+ - It’s too bad we only had the courage to live our lives fully in dreams.
+ - Logic was to cognition as geometry was to landscape.
+ - In the beginning was the dream, and the work of disenchantment never ends.
+ - An excess of reason is itself a form of madness.
+ - Sad but true: individual intelligence probably peaked in the Upper Paleolithic, and we have been self-domesticated creatures ever since.
+ - The command to be free is a double bind.
+ - It was a world of acts, and words had no more influence on acts than the sound of a waterfall has on the flow of the stream.
+ - Each of us have a gift, you see, given us freely by the universe. And each of us with every breath gives something back.
+ - We are here to inscribe ourselves on the universe, and it is not inappropriate to remind ourselves of this when blank slates are given us.
+ - Habits begin to form at the very first repetition. After that there is a tropism toward repetition, for the patterns involved are defenses, bulwarks against time and despair.
+ - Historical analogy is the last refuge of people who can’t grasp the current situation.
+ - The distinguishing mark of true adventures, is that it is often no fun at all while they are actually happening.
+ - Very few people ever bother to find out what other people really think. They are willing to accept whatever they are told about anyone sufficiently distant.
+ - What kind of Dv would it take to escape history, to escape an inertia that powerful, and carve a new course? The hardest part is leaving Earth behind.
+ - You can never properly predict the future as it really turns out. So you are doing something a little different when you write science fiction. You are trying to take a different perspective on now.
+ - A lot of scientists act on their beliefs and so do things that look crazy to the rest of us.
+ - The idea that each corporation can be a feudal monarchy and yet behave in its corporate action like a democratic citizen concerned for the world we live in is one of the great absurdities of our time –.
+ - We should conceive of ourselves not as rulers of Earth, but as highly powerful, conscious stewards: The Earth is given to us in trust, and we can screw it up or make it work well and sustainably.
+ - You can’t get any movement larger than five people without including at least one flippin idiot.
+ - Whistling together. Some kind of performance. I mean, not just a conversation, but a performance.
+ - It was not power that corrupted people, but fools who corrupted power.
+ - Many of the technologies we’ve invented are necessary to keep 6.5 billion people alive. We can’t go back from that, so we need to decarbonize really rapidly.
+ - It’s fragile what we know. It’s gone every time we forget. Then someone has to learn it all over again.
+ - It was a mistake to speak one’s mind at any time, unless it perfectly matched your political purpose; and it never did.
+ - Reincarnation is a story we tell; then in the end it’s the story itself that is the reincarnation.
+ - None of us know our real names.
+ - The only part of an argument that really matters is what we think of the people arguing.
+
+32 quotes

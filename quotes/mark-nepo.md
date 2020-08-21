@@ -1,0 +1,125 @@
+ - To listen is to lean in, softly, with a willingness to be changed by what we hear.
+ - The flower doesn’t dream of the bee. It blossoms and the bee comes.
+ - Birds learn how to fly, never knowing where flight will take them.
+ - Repetition is not failure. Ask the waves, ask the leaves, ask the wind.
+ - All the buried seeds crack open in the dark the instant they surrender to a process they can’t see.
+ - The mystery is that whoever shows up when we dare to give has exactly what we need hidden in their trouble.
+ - As the seed buried in the earth cannot imagine itself as an orchid or hyacinth, neither can a heart packed with hurt imagine itself loved or at peace. The courage of the seed is that once cracking, it cracks all the way.
+ - If I dare to hear you I will feel you like the sun And grow in your direction.
+ - The life of expression is the tuning fork by which we find our way to the sacred.
+ - No amount of thinking can stop thinking.
+ - Whatever opens us is not as important as what it opens.
+ - The key to knowing joy is being easily pleased.
+ - We are all continually asked to learn how to ask for what we need, only to practice accepting what we’re given.
+ - To love by admitting our connection to everything is how we stay well.
+ - To listen is to continually give up all expectation and to give our attention, completely and freshly, to what is before us, not really knowing what we will hear or what that will mean. In the practice of our days, to listen is to lean in, softly, with a willingness to be changed by what we hear.
+ - Those who truly love us will never knowingly ask us to be other than we are.
+ - Whatever truth we feel compelled to withhold, no matter how unthinkable it is to imagine ourselves telling it, not to is a way of spiritually holding our breath. You can only do it for so long.
+ - No bird can fly without opening its wings, and no one can love without exposing their hearts.
+ - The sun doesn’t stop shining because some people are blind.
+ - To journey without being changed is to be a nomad. To change without journeying is to be a chameleon. To journey and be transformed by the journey is to be a pilgrim.
+ - Walk long enough and we all trade places.
+ - Rather than finding heaven on earth, we are asked to release heaven by living on earth.
+ - We think that accomplishing things will complete us, when it is experiencing life that will.
+ - Like roots finding water, we always wind up moving towards what sustains us.
+ - I looked a hundred times and all I saw was dust. The sun broke through and flecks of gold filled the air.
+ - What we reach for may be different, but what makes us reach is the same.
+ - We are broken open, or we willfully shed.
+ - A love astounds us or a pain consumes us and we forget that we glow on our own.
+ - If we devote ourselves to the life at hand, the rest will follow. For life, it seems, reveals itself through those willing to live. Anything else, no matter how beautiful, is just advertising.
+ - Before we can count we are taught to be grateful for what others do. As we are broken open by our experience, we begin to be grateful for what is, and if we live long enough and deep enough and authentically enough, gratitude becomes a way of life.
+ - To listen also means to stay in relationship, the central challenge of our time, and this requires us to constantly minimize whatever stands between us and life.
+ - Perhaps the hardest thing I’ve learned, and still struggle with, is that I don’t have to be finished in order to be whole.
+ - Doing small things with love is the atom of bravery.
+ - Whatever difficulty you face, there are time-tried ways you can listen your way through. Because listening is the doorway to everything that matters. It enlivens the heart the way breathing enlivens the lungs. We listen to awaken our heart. We do this to stay vital and alive.
+ - The things that can restore us have to get in, too. This is what the wisdom of an open heart is all about. All the spiritual traditions speak of this but I love the Tibetan tradition: “A spiritual warrior always has a crack in his heart because that is how the mysteries can get in.”
+ - It has always amazed and humbled me to how the risk to bloom can seem so insurmountable beforehand and so inevitably freeing once the threshold of suffering is crossed.
+ - A successful creative expression is one in which the person who has expressed it was transformed for having encountered it.
+ - Tragedy stays alive by feeling what’s been done to us, while peace comes alive by living with the results.
+ - Our job is not to expose the mystery but to participate in it.
+ - Intuitive listening requires us to still our minds until the beauty of things older than our minds can find us.
+ - The broken door lets in the light. The broken heart lets in the world.
+ - When we don’t get what we want, there’s a legitimate grieving, and then the spiritual journey truly begins, because not getting what we want breaks our self-reference; and once that is broken, we are aware that we are a part of a larger whole. It changes everything.
+ - To be broken is no reason to see all things as broken.
+ - When the sweet ache of being alive, lodged between who you are and who you will be, is awakened, befriend this moment. It will guide you. Its sweetness is what holds you. Its ache is what moves you on.
+ - Live loud enough in your heart and there is no need to speak.
+ - The greedy one gathered all the cherries, while the simple one tasted all the cherries in one.
+ - I think happiness is overrated, but joy is the key to the thousands of possible moods we can feel. And when we can rest in that joy, then peace is the moment of openness that holds all feeling.
+ - Light is in both the broken bottle and the diamond.
+ - We work so hard to get somewhere, to realize a dream, to arrive at some destination, that we often forget that though some satisfaction may be waiting at the end of our endurance and effort, there is great and irreplaceable aliveness in the steps along the way.
+ - When we heal ourselves, we heal the world.
+ - The extraordinary is waiting quietly beneath the skin of all that is ordinary.
+ - The glassblower knows: while in the heat of beginning, any shape is possible. Once hardened, the only way to change is to break.
+ - Every human has an unfathomable gift that only meeting life head on will reveal.
+ - In life as in water, when we curl up or flail we sink. When we spread and go still, we are carried by the largest sea of all: the sea of grace that flows steadily beneath the turmoil of events. And just as fish can’t see the ocean they live in, we can’t quite see the spirit that sustains us.
+ - I’ve learned that loving your self requires a courage unlike any other. It requires us to believe in and stay loyal to something no one else can see that keeps us in the world – our own self worth.
+ - I started out wanting to write great poems, then wanting to discover true poems. Now, I want to be the poem.
+ - Love and grief enable us to feel how we’re all at heart the same. In love and grief, which is always very personal, the distinctions that separate us melt away.
+ - Part of the blessing and challenge of being human is that we must discover our own true nature.
+ - We need to meet, embrace and work with what we’re given. For what we want and what we’re given often serve two different gods. And how we respond to their meeting determines our path.
+ - I would rather be fooled than not believe.
+ - The fully engaged heart is the antibody for the infection of violence.
+ - We are born with only one obligation – to be completely who we are.
+ - Each of us is born with an incorruptible spot of grace.
+ - One of the most challenging ways is to slow down enough to relax our heart and feel what is nearest. It could be the sun reflecting off of broken glass in an alley. It could be the shine on a crow. It could be snow on a lamp post.
+ - When we are forced to stop the noise around us and in us, we begin to hear everything that is not us, and this is the beginning of humility and the renewal of our soul’s energy; as only by listening to all that is larger than us can we discover and feel our place in the Universe.
+ - I had over twenty years ago damaged the cilia in my ears. This has taught me many things. One thing I learned, paradoxically, is that there is much to be heard in silence.
+ - Even when clouds grow thick, the sun still pours its light earthward.
+ - Even if one glimpses God, there are cuts and splinters and burns along the way.
+ - We can never be prepared for everything. No one person can anticipate all of life. In fact, overpreparation is yet another way to wall ourselves in from life.
+ - If you truly hold a stone, you can feel the mountain it came from.
+ - To walk quietly until the miracle in everything speaks is poetry, whether we write it down or not.
+ - We need to give up what no longer works and find new ways of being that keeps us close to what matters.
+ - I have found that life is alive and we are requested to have a friendship with it, to have a conversation with life and that conversation is restorative and healing and always nearby.
+ - For being human, we remember and forget. We stray and return, fall down and get up, and cling and let go, again and again. But it is this straying and returning that makes life interesting, this clinging and letting go – damned as it is – that exercises the heart.
+ - This is the ongoing purpose of full attention: to find a thousand ways to be pierced into wholeness.
+ - Everything in life opens and closes, sheds and renews. We are no different. Listening in its endless forms is the way we stay open, the way we stay in relationship, the way we refresh who we are and what we’re doing here.
+ - For though we stubbornly cling, believing in our moment of hunger that there is no other possibility of love, we only have to let go of what we want so badly and our life will unfold. For love is everywhere.
+ - In a world that lives like a fist mercy is not more than waking with your hands open.
+ - We travel so far only to land where we are. We imagine other lives, only to meet who we are. We seek out love in special ways, only to find everyone is special. Humbly, we can’t avoid this journey...
+ - The simplest and bravest way to counter the plight of disheartenment is to move toward what is precious.
+ - When we keep choosing between right and wrong. We spend our energy sorting life rather than living it.
+ - The humility of wonder opens everything.
+ - Through the opened heart, the world comes rushing in, the way oceans fill the smallest hole along the shore. It is the quietest sort of miracle: by simply being who we are, the world will come to fill us, to cleanse us, to baptize us, again and again.
+ - In a world where the great technologies enable us to record, replay, cut and paste, zoom in, and delete, listening is the crucial commitment to keep the heart touchable.
+ - As nature erodes the earth into magnificent forms, life through endless experience opens us further and further to the essence of what matters. Each time I’ve been opened further, the way I experience life and receive things has changed.
+ - In truth, the more we lean into life, the more we authentically interact with the world, the brighter our flame.
+ - Just opening quietly for moments everyday can create a path by which life can reach us, the way rain carves a little stream in the earth by which the smallest flowers are watered.
+ - Accepting what we’re given is a practice in being present to everything beyond us that lets us become intimate with the nature of life.
+ - I was a very driven person, wanting to help and to do good, hopefully to write and teach in a meaningful way – wanting to make change. And I discovered humbly that life was changing me.
+ - To distance ourselves from our experience makes our feelings a liability, while staying in conversation with our experience makes our feelings a resource.
+ - Wakefulness is not a destination but a song the human heart keeps singing, the way birds keep singing at the first sign of light.
+ - My friends are the beings through whom God loves me.
+ - Living is the original art. As a young man I wanted to be a poet and I learned along the way that I already was a poet.
+ - Meditation, in all its forms and traditions, is an invitation to listen, to open, to quietly enlist the courage to be touched and formed by life.
+ - When wiggling through a hole the world looks different than when scrubbed clean by the wiggle and looking back.
+ - In the way that I experience life, the physical world is really just the tip of the iceberg of reality. Whether it’s trees or stones or water or animals or stars, everything has an ineffable interior quality.
+ - Keeping a commitment to listening has led me to my own growth, beyond any imagined dreams I may have had throughout the years.
+ - Mysteriously, as elusive as it is, this moment – where the eye is what it sees, where the heart is what it feels – this moment shows us that what is real is sacred.
+ - Who’s to say the effort to be real isn’t the beginning of wings?
+ - In daily terms, the work of listening is to be constantly worn free of our preconceptions and preferences so that nothing stands in the way of our direct experience of life.
+ - Joy in what we do is not an added feature; it is a sign of deep health.
+ - The greatest thing we can do to be closer to our own lives and to the freshness of living is to open up again.
+ - Whether you find it through mediation or sighing over tea or just turning all your devices off for five minutes, listening is an ancient lifeline by which we are awakened time and again. Once reawakened, we more easily find our way to each other, and so help each other live.
+ - The practice of listening is one of the most mysterious, luminous, and challenging art forms on Earth.
+ - Listening reminds me how precious it is to be here at all. And so, listening is the first step to peace, both inner peace and the compassion that connects people.
+ - I didn’t know the language of my own wisdom. I wanted to be loved and after all the various relationships I went through, I finally realized I am love. I carry love.
+ - We’re quietly aching for something to celebrate.
+ - In the same way that we have to clean wax from our ears and dirt from our eyes, we’re all asked to clean out our conclusions and judgments, which block our heart from meeting the world.
+ - We are love. But in an everyday setting we have to make choices. We have limits. We can love everyone and we can’t love everyone.
+ - When we deny what comes through us, it defines us. When we honestly face what comes through us, then who we are grows.
+ - We tend to make the thing in the way the way.
+ - What is not ex-pressed is de-pressed.
+ - Let’s be in awe which doesn’t mean anything but the courage to gape like fish at the surface breaking around our mouths as we meet the air.
+ - Truth is a seed hidden in the days until watered by what life brings us.
+ - If we are to access the resources of life, we must listen with our common heart to the cries of the world.
+ - The journey is made easier when we can accept that the process of living is designed for what matters to come through us tenderly.
+ - Let the miracles, even the ones we don’t want or see, unfold.
+ - By our very nature, we are a human paradox. We are a human being. The being is infinite and the human is very finite. We walk around like lightening in a bottle.
+ - There is no getting around the fundamental fact that we need to interact with everything in order to manifest the wholeness we are born with.
+ - The resource of life is everywhere, even in the smallest of things and we’re never very far from it.
+ - Anything or anyone that asks you to be other than yourself is not holy, but is trying only to fill its own need.
+ - The many ways to listen have been reaching into me for years. To enter deep listening, I’ve had to learn how to keep emptying and opening, how to keep beginning. I’ve had to lean into all I don’t understand, accepting that I am changed by what I hear.
+ - Grief can be a slow ache that never seems to stop rising, yet as we grieve, those we love mysteriously become more and more a part of who we are.
+
+123 quotes

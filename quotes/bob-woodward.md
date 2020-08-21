@@ -1,0 +1,78 @@
+ - Good work is always done in defiance of management.
+ - Rawhide Down is full of spectacular, original reporting.
+ - I believe there’s too little patience and context to many of the investigations I read or see on television.
+ - There are people who take rumors and embellish them in a way that can be devastating. And this pollution has to be eradicated by people in our business as best we can.
+ - The central dilemma in journalism is that you don’t know what you don’t know.
+ - The fact of the Watergate cover-up is not nearly as interesting as the step into making the cover-up. And when you understand the step, you understand that Richard Nixon lied. That he was a criminal.
+ - There is a garbage culture out there, where we pour garbage on people. Then the pollsters run around and take a poll and say, do you smell anything?
+ - Many people have their reputations as reporters and analysts because they are on television, batting around conventional wisdom. A lot of these people have never reported a story.
+ - We’re not going to have another Watergate in our lifetime. I’m sure.
+ - In Haig’s presence, Kissinger referred pointedly to military men as “dumb, stupid animals to be used” as pawns for foreign policy.
+ - Getting up in the morning and having work you love is what makes life different for people. If you get into a position where you don’t love what you’re doing, get off it.
+ - The legislator learns that when you talk a lot, you get in trouble. You have to listen a lot to make deals.
+ - If there’s one thing that Trump does, he never quits.
+ - The Washington Times wrote a story questioning the authenticity of some of the suggestions made about me in Silent Coup. But as a believer in the First Amendment, I believe they have more than a right to air their views.
+ - The biggest rap on me is that I don’t find a Watergate every couple of years. Well, Watergate was unique. It’s not something Carl Bernstein, I, or the Washington Post caused.
+ - The source known as Deep Throat provided a kind of road map through the scandal. His one consistent message was that the Watergate burglary was just the tip of the iceberg.
+ - Suppose Watergate had not been uncovered? I’d still be on the City Desk.
+ - Deep Throat did serve the public interest by providing the guidance and information to us.
+ - Nixon had some large achievements in foreign affairs. They will be remembered. But a president probably gets remembered for one thing, and Watergate will head the Nixon list, I suspect.
+ - I recently did the David Letterman Show about my book. He was very serious and made no jokes and it caught me off guard a little bit. He was much more serious than some of the joke shows that journalists get on.
+ - We need to police ourselves in the media.
+ - Deep Throat was a very unfortunate name given to the source by the managing editor of The Washington Post.
+ - It was accountability that Nixon feared.
+ - The cloud of doubt that surrounds political figures tends to remain and never dissipate or be clarified.
+ - Newspapers that are truly independent, like The Washington Post, can still aggressively investigate anyone or anything with no holds barred.
+ - Not a season passes without new disclosures showing Nixon’s numerous attempts at criminal use of his presidential powers and in fact the scorn he held for the rule of law.
+ - I have gone on the air and announced my telephone number at the Washington Post. I go into the night, talking to people, looking for things. The great dreaded thing every reporter lives with is what you don’t know. The source you didn’t go to. The phone call you didn’t return.
+ - I think there are people out there who just kind of say, let’s repot the plant. Let’s give somebody else a chance. And it’s not just anger or disappointment in their lives, it’s the sense of, let’s shake this up. And no one is shaking it up as much as Trump.
+ - Some newspapers have a hands-off policy on favored politicians. But it’s generally very small newspapers or local TV stations.
+ - The failure of the system to deal quickly was attributable to Nixon’s lying, stonewalling and refusal to come clean. So it took 26 months for the final truth to be known.
+ - When you see how the President makes political or policy decisions, you see who he is. The essence of the Presidency is decision-making.
+ - After Nixon resigned in 1974, he engaged in a very aggressive war with history, attempting to wipe out the Watergate stain and memory. Happily, history won, largely because of Nixon’s tapes.
+ - The number of illegal activities were so large that one was bound to come out and lead to the uncovering of the others. Nixon was too willing to use the power of government to settle scores and get even with enemies.
+ - I believe Watergate shows that the system did work. Particularly the Judiciary and the Congress, and ultimately an independent prosecutor working in the Executive Branch.
+ - Way before Watergate, senior administration officials hid behind anonymity.
+ - They need to review this secret world. We have an incredibly powerful government that gets on automatic pilot.
+ - I think journalism gets measured by the quality of information it presents, not the drama or the pyrotechnics associated with us.
+ - Using these unnamed sources, if done properly, carefully and fairly, provides more accountability in government.
+ - I don’t think there will ever be a permanent truce, but I believe the media needs to be more careful and be willing to count to 10 before rushing on the air or into print.
+ - Deep Throat’s information, and in my view, courage, allowed the newspaper to use what he knew and suspected.
+ - A reporter’s ability to keep the bond of confidentiality often enables him to learn the hidden or secret aspects of government.
+ - There’s hostility to lying, and there should be.
+ - I recently read some of the transcripts of Nixon’s Watergate tapes, and they spent hours trying to figure out who was leaking and providing information to Carl and myself.
+ - When you practice reporting for as long as I have, you keep yourself at a distance from True Believers. Either conservatives or liberals or Democrats or Republicans.
+ - Certain political figures think when you call them and ask them for a comment; that you are somehow doing something that you shouldn’t be doing.
+ - Nixon’s grand mistake was his failure to understand that Americans are forgiving, and if he had admitted error early and apologized to the country, he would have escaped.
+ - I think that everyone is kind of confused about the information they get from the media and rightly so. I’m confused about the information I get from the media.
+ - Clinton feels a profound alienation from the Washington culture here, and I happen to agree with him.
+ - There may yet be another Watergate book. I have thought a book about the aftermath of Watergate and its impact could be done, perhaps by me or someone else.
+ - It would seem that the Watergate story from beginning to end could be used as a primer on the American political system.
+ - Reporters may believe they control the story, but the story always controls the reporters.
+ - Lawyers didn’t seriously get involved in the Watergate stories until quite late, when we realized we were on to something.
+ - I have written things that Republicans and Democrats and all kinds of figures have either hated or felt very uncomfortable about. Because in doing these long projects and books, you get close to the bone. And they’re not calling me up and asking me for dinner.
+ - When you hear in the tape recordings Nixon’s own voice saying, We have to stonewall, We have to lie to the Grand Jury, We have to pay burglars a million dollars, it’s all too clear the horror of what went on.
+ - I don’t think voters give a hoot about the character of their political advisors, except to the extent that character reflects on the candidates.
+ - Any suggestion that I’m writing about political operatives because I’m interested in political operatives misses the entire point.
+ - It would be absurd for me or any other editor to review the authenticity or accuracy of stories that are nominated for prizes.
+ - I always am very aggressive and putting out much more than people would like, but that’s the business I’m in.
+ - I think people are smart enough to sort it out. They know when they’re watching one of these food fight shows where journalists sit around and yell and scream at each other, versus serious issue reporting.
+ - I’m not going to name some of my colleagues who are very well-known for their television presentation, but they wouldn’t know new information or how to report a story if it came up and bit them.
+ - People like to pigeonhole and say, Well, I’m a Washington insider, and you know, that’s quite silly. What does that even mean?
+ - Watergate is not the sort of issue that changes the vote. I don’t know anyone who has changed their vote because of it.
+ - Even now there is no evidence that anyone involved in the Nixon operation was going to threaten us.
+ - If information is true, if it can be verified, and if it’s really important, the newspaper needs to be willing to take the risk associated with using unidentified sources.
+ - If you interviewed 1,000 politicians and asked about whether the media’s too soft or too hard, about 999 would say too hard.
+ - I don’t think it’s useful for somebody to argue with reviews.
+ - I give lectures for money, but all the money goes to charity. So, I make no money from it.
+ - I have found people don’t want to be told. That they can figure it out.
+ - I suspect there have been a number of conspiracies that never were described or leaked out. But I suspect none of the magnitude and sweep of Watergate.
+ - Watergate provides a model case study of the interaction and powers of each of the branches of government. It also is a morality play with a sad and dramatic ending.
+ - Nixon’s attempts to order subversion of various departments was bound to come out in some form.
+ - Because of Watergate in part, I am kind of a magnet for calls and information and suggestions.
+ - Watergate is an immensely complicated scandal with a cast of characters as varied as a Tolstoy novel.
+ - I think the problem in the Republican Party is really not money. I think they’ve got lots of it. I think it is theory of the case – why are we here, what is our message, how to connect to the real world.
+ - I deal with first-hand sources. And give the people, even John Sununu, the opportunity to respond to what I’ve been told by first-hand sources.
+ - I gave my word that this source would not be identified unless he changed his mind. He has not.
+
+76 quotes

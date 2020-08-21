@@ -1,0 +1,21 @@
+ - I am always successful in my work.
+ - I will do nothing for 89 minutes, but score in the 90th.
+ - They say I do not have the qualifications to be president, that I do not have education. Well, I would never divide the Liberian people.
+ - When I was growing up in Monrovia, the capital of Liberia, I sold doughnuts, popcorn and Kool Aid every day after school so that my family had some money and I could pay my school fees. It was a tough life.
+ - I will go on my knees and ask the Liberian people to participate in bringing peace and stability to our country.
+ - I believe education should be a right for every child, but tragically in many parts of world it is a privilege for certain children whose parents have money. There are 72 million children in the world who don’t go to school and many of them are in Africa.
+ - In America there is a public library in every community. How many public libraries are there in Africa? Every day there are new books coming out and new ideas being discussed. But these new books and ideas don’t reach Africa and we are being left behind.
+ - I have proven to the world that I am articulate, I am very intelligent, I’m well exposed.
+ - It can’t be Sunday every day. There are also Mondays and Tuesdays.
+ - Once you take care of people, people respect you.
+ - I am the elected president of Liberia, not Ellen Sirleaf. They stole my victory, and I am here to say loud and clear that I am the winner of the elections.
+ - I can see in your eyes, I can see in your faces, I can see you cry. But what I want to say, there’s no reason to cry. Do not, in the name of peace, go in the streets and riot.
+ - My father died when I was young and I was raised by my grandmother, Emma Klonjlaleh Brown. We could afford to eat chicken just once a year, on Christmas.
+ - Around 80% of Liberians are unemployed and only half of all children go to primary school. Just one in 20 go on to secondary school. Young children are on the streets instead of in the classrooms. We are not giving them the opportunity to learn and they will struggle to get jobs when they grow up.
+ - The whole thing about elections in Liberia – it’s not about the way you take care of people, it’s not about the heart, it’s about education, according to the perception of some people.
+ - If I say I am not a politician, it is because I did not go to school to do political science. But at the end of the day, I think we are all born politicians. It’s practical. All you gotta do is practice.
+ - My fellow revolutionaries, liberation is a noble cause. We must fight to obtain it.
+ - I ask Liberians to pray so that God will bring peace and stability, and bring about unification to ourselves.
+ - My government will be open. Anyone found guilty of corruption will be dealt with in accordance with the law. If you are corrupt you will have to hang your boots.
+
+19 quotes

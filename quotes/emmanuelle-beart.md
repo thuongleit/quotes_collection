@@ -1,0 +1,30 @@
+ - I keep reading that I’m cold. But I’m not, I’m shy. And I play a lot of women of fire and sexuality like an animal – so I’m cold on one side and fiery on the other.
+ - You may think of me as an object of desire and I’m going to tell you that I can be in front of you naked and not be erotic.
+ - I just decided that I would not put my professional life on hold to raise children. I know that sounds selfish to a lot of people and I don’t know if what I’m doing is the right thing. But that’s the way I’m doing it.
+ - If I have one thing perfect, it’s my eyebrows. And my feet. I love my feet. They’re like Japanese feet. The rest I would like to hide. Especially my freckles. I feel ridiculous.
+ - I don’t see my old films, but I think of the characters I played as friends, like the women I meet in my life who made strong impressions on me. I remember them and they are part of me.
+ - My looks mean nothing to me. If anything, they are a hindrance.
+ - My parents sent me to Montreal because I kept getting kicked out of school in France.
+ - There is a phrase in French, which means ‘to miss.’ To pass by. To not be able to stop. You love someone and someone loves you, but it just can’t work for different reasons.
+ - Today I would say, ‘I am against plastic surgery.’ It’s a grave act. An act that touches our soul. It was frightening.
+ - For me, I don’t feel it is a success in the career to be the pretty woman; career success comes from being characters who tell us something about the truth.
+ - The body is an actor’s tool, like the face, malleable. I never thought that being naked was immoral or outrageous.
+ - I’m trying my best to keep my private life guarded. It’s not easy at all. Non, non, non.
+ - I had my mouth done when I was 27. It was a botched job. Obviously, if I had liked my mouth I wouldn’t have had it re-done.
+ - Very often with an American movie, the end is very happy and you just feel good when you go out. When you go to a French movie, it’s kind of like, oh!, and you can’t go out; you’re stuck in your chair. It goes so deeply inside of the heart.
+ - Sometimes you feel more naked when you’re totally dressed than the other way around.
+ - I feel better in my body now than when I was 20. Why not?
+ - I dream about singing. I would love to sing and write.
+ - If a man or woman has something redone it is because he or she can no longer live with that part of their body, it is no longer bearable. Either they get help and find the strength to fight or they proceed with the act.
+ - I was a very bad student. I didn’t know what I wanted to do, but I knew I didn’t want to go farther in school. I hated school and was always the bad one; I was always insulting the teachers.
+ - When you are happy and in love and when you have children, then maybe you are beautiful.
+ - The press follow me. I sue them. That’s the deal.
+ - My looks haven’t prevented me from playing prostitutes or people broken by life. But when they need a token blonde with big breasts, that’s OK, too. It’s part of the game.
+ - In Hollywood there’s no real material. They would send me stuff, but I hadn’t even seen the director. If I don’t see the director’s eyes, I’m not going. I’m not even going to pack my bags.
+ - I think my best work has been in France with great men. It’s been my great fortune to work with really great men – with Olivier Assayas, Raoul Ruiz, Jacques Rivette. I am tutored by them.
+ - Once I opened my eyes to the realities of life, I couldn’t close them.
+ - Often, when you see yourself on the screen, you feel like a sweater that’s been put through the washing machine. You have the impression of having done something full and luminous, and suddenly, when you see it on the screen, it’s turned back into a tiny little thing.
+ - I wouldn’t say I was a rebel as such, but I certainly wasn’t right at school.
+ - When I’m playing a part, I can feel all my body playing it; it’s like really making love.
+
+28 quotes

@@ -1,0 +1,236 @@
+ - Creativity is a wild mind and a disciplined eye.
+ - The cure for boredom is curiosity. There is no cure for curiosity.
+ - What fresh hell is this?
+ - Of course I talk to myself. I like a good speaker, and I appreciate an intelligent audience.
+ - Never throw mud: you can miss the target, but your hands will remain dirty.
+ - Writing well is the best revenge.
+ - I give her sadness and the gift of pain, a new moon madness and a love of rain.
+ - If you don’t have anything nice to say, come sit by me.
+ - Art is a form of catharsis emotional release, purging, cleansing, purifying.
+ - Never complain, never explain.
+ - I hate writing, I love having written.
+ - Don’t look at me in that tone of voice.
+ - Women and elephants never forget.
+ - The best way to avoid a hangover is to stay drunk.
+ - The first thing I do in the morning is brush my teeth and sharpen my tongue.
+ - They sicken of the calm who know the storm.
+ - You can lead a horticulture, but you can’t make her think.
+ - My first love was Cinderella, but she ran off with another man.
+ - Heterosexuality is not normal, it’s just common.
+ - Time may be a great healer, but it’s a lousy beautician.
+ - Don’t feel bad when I die; I’ve been dead for a long time.
+ - Honesty means nothing until you are tested under circumstances where you are sure you could get away with dishonesty.
+ - I require only three things of a man. He must be handsome, ruthless and stupid.
+ - The sweeter the apple, the blacker the core. Scratch a lover and find a foe!
+ - I’m not a writer with a drinking problem, I’m a drinker with a writing problem.
+ - Genius can write on the back of old envelopes but mere talent requires the finest stationery available.
+ - A hangover is the wrath of grapes.
+ - I don’t know much about being a millionaire, but I’ll bet I’d be darling at it.
+ - Travel, trouble, music, art, a kiss, a frock, a rhyme – I never said they feed my heart, but still they pass my time.
+ - By the time you swear you’re his, Shivering and sighing. And he vows his passion is, Infinite, undying. Lady make note of this – One of you is lying.
+ - Be you wise and never sad, You will get your lovely lad. Never serious be, nor true, And your wish will come to you – And if that makes you happy, kid, You’ll be the first it ever did.
+ - Every year, back comes Spring, with nasty little birds yapping their fool heads off and the ground all mucked up with plants.
+ - Writing is the art of applying the ass to the seat.
+ - The sun’s gone dim, and the moon’s gone black. For I loved him, and he didn’t love back.
+ - Newton’s Fourth Law: Every action has an equal and opposite satisfaction.
+ - The best way to keep children at home is to make the home atmosphere pleasant, and let the air out of the tires.
+ - That woman speaks eighteen languages, and can’t say ‘No’ in any of them.
+ - Oh, life is a glorious cycle of song, a medley of extemporanea, And love is a thing that can never go wrong, and I am Marie of Romania.
+ - Years are only garments, and you either wear them with style all your life, or else you go dowdy to the grave.
+ - If love is blind, why is lingerie so popular?
+ - Quick!! Act as if nothing has happened!
+ - You think You’re frightening me with Your hell, don’t You? You think Your hell is worse than mine.
+ - Trapped like a trap in a trap.
+ - Three be the things I shall never attain: Envy, content, and sufficient champagne.
+ - Take care of the luxuries and the necessities will take care of themselves.
+ - That would be a good thing for them to cut on my tombstone: Wherever she went, including here, it was against her better judgment.
+ - It serves me right for putting all my eggs in one bastard.
+ - Bewildered is the fox who lives to find that grapes beyond reach can be really sour.
+ - Brevity is the soul of lingerie.
+ - My love runs by like a day in June, And he makes no friends of sorrows. He’ll tread his galloping rigadoon In the pathway of the morrows. He’ll live his days where the sunbeams start, Nor could storm or wind uproot him. My own dear love, he is all my heart, – And I wish somebody’d shoot him.
+ - Most good women are hidden treasures who are only safe because nobody looks for them.
+ - Los Angeles: Seventy-two suburbs in search of a city.
+ - The definition of eternity is two people and a ham.
+ - Dear Mary: We all knew you had it in you.
+ - Eternity is a ham and two people.
+ - Men seldom make passes at girls who wear glasses.
+ - Once, when I was young and true. Someone left me sad – Broke my brittle heart in two; And that is very bad. Love is for unlucky folk, Love is but a curse. Once there was a heart I broke; And that, I think, is worse.
+ - The Monte Carlo casino refused to admit me until I was properly dressed so I went and found my stockings, and then came back and lost my shirt.
+ - This is me apologizing. I am a fool, a bird-brain, a liar and a horse-thief. I wouldn’t touch a superlative again with an umbrella.
+ - But I don’t give up; I forget why not.
+ - Oh, seek, my love, your newer way; I’ll not be left in sorrow. So long as I have yesterday, Go take your damned tomorrow!
+ - And if my heart be scarred and burned, The safer, I, for all I learned.
+ - Civilization is coming to an end, you understand.
+ - What ever beauty may be it has for its basis order and for its essence unity Beauty is only skin deep, but ugly goes clean to the bone.
+ - Guns aren’t lawful; nooses give; gas smells awful. So you might as well live.
+ - I was always sweet, at first. Oh, it’s so easy to be sweet to people before you love them.
+ - Where’s the man that could ease a heart like a satin gown?
+ - If I should labor through daylight and dark, Consecrate, valorous, serious, true, Then on the world I may blazon my mark; And what if I don’t, and what if I do?
+ - A liberal is a man who leaves the room before the fight starts.
+ - Speech to American Horticultural Society; when challenged to use horticulture in a sentence: You can lead a horticulture, but you can’t make her think.
+ - If you’re going to write, don’t pretend to write down. It’s going to be the best you can do, and it’s the fact that it’s the best you can do that kills you.
+ - Her mind lives tidily, apart from cold and noise and pain. And bolts the door against her heart, out wailing in the rain.
+ - Some men break your heart in two, Some men fawn and flatter, Some men never look at you; And that cleans up the matter.
+ - At birth the Devil touched my tongue.
+ - I wish, I wish I were a poisonous bacterium.
+ - Now I know the things I know, and I do the things I do; and if you do not like me so, to hell, my love, with you!
+ - People are more fun than anyone.
+ - There’s a hell of a distance between wisecracking and wit. Wit has truth in it; wisecracking is simply calisthenics with words.
+ - I like to think of my shining tombstone. It gives me, as you might say, something to live for.
+ - This must be a gift book. That is to say a book, which you wouldn’t take on any other terms.
+ - Tonstant Weader fwowed up.
+ - Somewhere, there, is an analogy, in a small way, if you have the patience for it. But I guess it isn’t a very good anecdote. I’m better at animal stories.
+ - I hate almost all rich people, but I think I’d be darling at it.
+ - Scratch a lover, and find a foe.
+ - I’d rather have a bottle in front of me than a frontal lobotomy.
+ - Love is like quicksilver in the hand. Leave the fingers open and it stays. Clutch it and it darts away.
+ - Gratitude – the meanest and most snivelling attribute in the world.
+ - If you want to know what God thinks about money, just look at the people He gives it to.
+ - The only dependable law of life – everything is always worse than you thought it was going to be.
+ - Summer makes me drowsy. Autumn makes me sing. Winter’s pretty lousy, but I hate Spring.
+ - If I didn’t care for fun and such, I’d probably amount to much, but I shall stay the way I am, because I do not give a damn.
+ - She was pleased to have him come and never sorry to see him go.
+ - Now, look, baby, ‘Union’ is spelled with 5 letters. It is not a four-letter word.
+ - Ducking for apples – change one letter and it’s the story of my life.
+ - The two most beautiful words in the English language are ’cheque enclosed.
+ - Woman wants monogamy; Man delights in novelty. Love is woman’s moon and sun; Man has other forms of fun. Woman lives but in her lord; Count to ten, and man is bored. With this the gist and sum of it, What earthly good can come of it?
+ - Age before beauty, and pearls before swine.
+ - Nevil Shute’s On the Beach is no Christmas carol, but it seems to me a remarkably fine novel, one which I read, in the peculiarly repulsive phrase, with my eyes glued to the page.
+ - The cleverest woman on earth is the biggest fool on earth with a man.
+ - Sometimes I think I’ll give up trying, and just go completely Russian and sit on a stove and moan all day.
+ - I misremember who first was cruel enough to nurture the cocktail party into life. But perhaps it would be not too much to say, in fact it would be not enough to say, that it was not worth the trouble.
+ - Why is it no one sent me yet one perfect limousine, do you suppose? Ah no, it’s always just my luck to get one perfect rose.
+ - Flowers are heaven’s masterpiece.
+ - If you wear a short enough skirt, the party will come to you.
+ - Yet, as only New Yorkers know, if you can get through the twilight, you’ll live through the night.
+ - Sorrow is tranquility remembered in emotion.
+ - Go to the Martin Beck Theatre and watch Katherine Hepburn run the gamut of emotions from A to B.
+ - Prince or commoner, tenor or bass, Painter or plumber or never-do-well, Do me a favor and shut your face – Poets alone should kiss and tell.
+ - I wouldn’t touch a superlative again with an umbrella.
+ - Vice is nice, but liquor is quicker.
+ - I can’t write five words but that I change seven.
+ - Friends come and go but I wouldn’t have thought you’d be one of them.
+ - Where unwilling dies the rose; buds the new another year.
+ - Somebody was using the pencil.
+ - His voice was as intimate as the rustle of sheets.
+ - She can sit up and beg, and she can give her paw – I don’t say she will, but she can.
+ - On being told of the death of former President Calvin Coolidge: How could they tell?
+ - I like to have a martini, Two at the very most. After three I’m under the table, after four I’m under my host.
+ - If all the young ladies who attended the Yale promenade dance were laid end to end, no one would be the least surprised.
+ - Guido Natso is natso guido.
+ - Q: What’s the difference between an enzyme and a hormone? A: You can’t hear an enzyme.
+ - Should they whisper false of you, Never trouble to deny; Should the words they say be true, Weep and storm and say they lie.
+ - This play John Drinkwater’s Abraham Lincoln holds the season’s record, thus far, with a run of four evening performances and one matinee. By an odd coincidence, it ran just five performances too many.
+ - Four be the things I’d have been better without: love, curiosity, freckles and doubt.
+ - I’m never going to accomplish anything; that’s perfectly clear to me. I’m never going to be famous. My name will never be writ large on the roster of Those Who Do Things. I don’t do anything. Not one single thing. I used to bite my nails, but I don’t even do that any more.
+ - You can’t teach an old dogma new tricks.
+ - Money cannot buy health, but I’d settle for a diamond-studded wheelchair.
+ - A girl’s best friend is her mutter.
+ - Take me or leave me; or, as is the usual order of things, both.
+ - I like best to have one book in my hand, and a stack of others on the floor beside me, so as to know the supply of poppy and mandragora will not run out before the small hours.
+ - There is entirely too much charm around, and something must be done to stop it.
+ - Every fashion, the fashion before: in a duller dress.
+ - Then if my friendships break and bend, There’s little need to cry The while I know that every foe Is faithful till I die.
+ - I like to have a martini, Two at the very most.
+ - Three highballs, and I think I’m St. Francis of Assisi.
+ - It is that word ‘hunny,’ my darlings, that marks the first place in The House at Pooh Corner at which Tonstant Weader fwowed up.
+ - This is not a novel to be tossed aside lightly. It should be thrown with great force.
+ - If you have any young friends who aspire to become writers, the second-greatest favor you can do them is to present them with copies of The Elements of Style. The first-greatest, of course, is to shoot them now, while they’re happy.
+ - Those who have mastered etiquette, who are entirely, impeccably right, would seem to arrive at a point of exquisite dullness.
+ - Excuse me, everybody, I have to go to the bathroom. I really have to telephone, but I’m too embarrassed to say so.
+ - Salary is no object: I want only enough to keep body and soul apart.
+ - This living, this living, this living Was never a project of mine.
+ - London is satisfied, Paris is resigned, but New York is always hopeful. Always it believes that something good is about to come off, and it must hurry to meet it.
+ - Anthologists are lazy fellows who like to spend a quiet evening at home raiding good books.
+ - There was nothing separate about her days. Like drops on the window-pane, they ran together and trickled away.
+ - The affair between Margot Asquinth and Margot Asquinth will live as one of the prettiest love stories in all literature.
+ - When you have to apologize, it is well, I suppose, to get the thing over quickly...
+ - Hollywood money isn’t money. It’s congealed snow, melts in your hand, and there you are.
+ - It’s not the tragedies that kill us; it’s the messes.
+ - All I have to be thankful for in this world is that I was sitting down when my garter busted.
+ - Hell’s afloat in lover’s tears.
+ - All I say is, nobody has any business to go around looking like a horse and behaving as if it were all right. You don’t catch horses going around looking like people, do you?
+ - Benchley and I had an office in the old Life magazine that was so tiny, if it were an inch smaller it would have been adultery.
+ - She will never win him, whose words had shown she feared to lose.
+ - Accursed from their birth they be Who seek to find monogamy, Pursuing it from bed to bed – I think they would be better dead.
+ - A little bad taste is like a nice dash of paprika.
+ - If, with the literate, I am Impelled to try an epigram, I never seek to take the credit; We all assume that Oscar said it.
+ - There was always something immensely comic to her in the thought of living elsewhere than New York. She could not regard as serious proposals that she share a western residence.
+ - And there was that poor sucker Flaubert rolling around on his floor for three days looking for the right word.
+ - She runs the gamut of emotions from A to B.
+ - He lies below, correct in cypress wood, And entertains the most exclusive worms.
+ - Just begin a story with such a phrase as ‘I remember Disraeli – poor old Dizz! – once saying to me, in answer to my poke in the eye,’ and you will find me and Morpheus off in a corner, necking.
+ - We were all imitative. We all wandered in after Miss Edna St. Vincent Millay. We were all being dashing and gallant, declaring we weren’t virgins, whether we were or not.
+ - It was written without fear and without research.
+ - I don’t mind anything that’s written about me, as long as it’s not true.
+ - The writer’s way is rough and lonely, and who would choose it while there are vacancies in more gracious professions, such as, say, cleaning out ferryboats?
+ - I’m of the glamorous ladies At whose beckoning history shook. But you are a man, and see only my pan, So I stay at home with a book.
+ - Now to me, Edith looks like something that would eat her young.
+ - There must be a magnificent disregard of your reader, for if he cannot follow you, there is nothing you can do about it.
+ - If you looked for things to make you feel hurt and wretched and unnecessary, you were certain to find them...
+ - Ah, clear they see and true they say That one shall weep, and one shall stray.
+ - They say of me, and so they should, It’s doubtful if I come to good.
+ - Maybe it is only I, but conditions are such these days, that if you use studiously correct grammar, people suspect you of homosexual tendencies.
+ - Money is only congealed snow.
+ - Telegram to a friend who had just become a mother after a prolonged pregnancy: Good work, Mary. We all knew you had it in you.
+ - The only useful thing I ever learned in school was that if you spit on your eraser it erased ink.
+ - Oh, life is a glorious cycle of song.
+ - Now that you’ve got me right down to it, the only thing I didn’t like about The Barrets of Wimplole Street was the play.
+ - I don’t want to review books any more. It cuts in too much on my reading.
+ - People Who Do Things exceed my endurance; God, for a man that solicits insurance!
+ - Yes, well, let me tell you that if nobody had ever learned to quote, very few people would be in love with La Rochefoucauld. I bet you I don’t know ten souls who read him without a middleman.
+ - The ones I like are ‘cheque’ and ‘enclosed.’
+ - Constant use had not worn ragged the fabric of their friendship.
+ - Said after she had been seriously ill: The doctors were very brave about it.
+ - The only “ism” Hollywood believes in is plagiarism.
+ - The Swiss are a neat and an industrious people, none of whom is under seventy-five years of age.
+ - People ought to be one of two things, young or dead.
+ - Hollywood is one place in the world where you can die of encouragement.
+ - Her big heart did not, as is so sadly often the case, inhabit a big bosom.
+ - The plot is so tired that even this reviewer, who in infancy was let drop by a nurse with the result that she has ever since been mystified by amateur coin tricks, was able to guess the identity of the murderer from the middle of the book.
+ - Four things I am wiser to know: Idleness, sorrow, a friend, and a foe.
+ - Out in Hollywood, where the streets are paved with Goldwyn...
+ - I was the toast of two continents: Greenland and Australia.
+ - Mrs. Ewing was a short woman who accepted the obligation borne by so many short women to make up in vivacity what they lack in number of inches from the ground.
+ - Because your eyes are slant and slow, Because your hair is sweet to touch, My heart is high again; but oh, I doubt if this will get me much.
+ - Daily dawns another day; I must up, to make my way. Though I dress and drink and eat, Move my fingers and my feet, Learn a little, here and there, Weep and laugh and sweat and swear, Hear a song, or watch a stage, Leave some words upon a page, Claim a foe, or hail a friend- Bed awaits me at the end.
+ - There’s life for you. Spend the best years of your life studying penmanship and rhetoric and syntax and Beowulf and George Eliot, and then somebody steals your pencil.
+ - It’s easier to write about those you hate – just as it’s easier to criticize a bad play or a bad book.
+ - Work is the province of cattle.
+ - There are times when images blow to fluff, and comparisons stiffen and shrivel.
+ - I know this will come as a shock to you, Mr. Goldwyn, but in all history, which has held billions and billions of human beings, not a single one ever had a happy ending.
+ - Misfortune, and recited misfortune especially, can be prolonged to the point where it ceases to excite pity and arouses only irritation.
+ - Love is like quicksilver in the hand.
+ - Art is a form of catharsis.
+ - All I need is room enough to lay a hat and a few friends.
+ - I know that an author must be brave enough to chop away clinging tentacles of good taste for the sake of a great work. But this is no great work, you see.
+ - A list of authors who have made themselves most beloved and therefore, most comfortable financially, shows that it is our national joy to mistake for the first-rate, the fecund rate.
+ - I’ve finally gotten to the bottom of things.
+ - I might repeat to myself, slowly and soothingly, a list of quotations beautiful from minds profound; if I can remember any of the damn things.
+ - Hold your pen and spare your voice.
+ - Innocence is a desirable thing, a dainty thing, an appealing thing, in its place; but carried too far, it is merely ridiculous.
+ - One more drink and I’d have been under the host.
+ - Of Orson Welles: It’s like meeting God without dying.
+ - And I’ll stay off Verlaine too; he was always chasing Rimbauds.
+ - Men don’t like nobility in woman. Not any men. I suppose it is because the men like to have the copyrights on nobility – if there is going to be anything like that in a relationship.
+ - He is a writer for the ages, the ages of four to eight.
+ - It takes me six months to do a story. I think it out and write it sentence by sentence – no first draft. I can’t write five words but that I can change seven.
+ - Why, after all, should readers never be harrowed? Surely there is enough happiness in life without having to go to books for it.
+ - There was a reason for the cost of those perfectly plain black dresses.
+ - Everybody’s got their troubles.
+ - And where does she find them?
+ - Money was made, not to command our will, But all our lawful pleasures to fulfill. Shame and woe to us, if we our wealth obey; The horse doth with the horseman away.
+ - I’d like to have money. And I’d like to be a good writer. These two can come together, and I hope they will, but if that’s too adorable, I’d rather have money.
+ - It turns out that, at social gatherings, as a source of entertainment, conviviality, and good fun, I rank somewhere between a sprig of parsley and a single ice-skate.
+ - I wanted to be cute. That’s the terrible thing. I should have had more sense.
+ - If I had any decency, I’d be dead. Most of my friends are.
+ - On lady novelists: As artists they’re rot, but as providers they’re oil wells; they gush. Norris said she never wrote a story unless it was fun to do. I understand Ferber whistles at her typewriter.
+ - Authors and actors and artists and such – Never know nothing, and never know much.
+ - All those writers who write about their childhood! Gentle God, if I wrote about mine you wouldn’t sit in the same room with me.
+ - When your bank account is so overdrawn that it is positively photographic, steps must be taken.
+ - The House Beautiful is the play lousy.
+ - I know that there are things that never have been funny, and never will be. And I know that ridicule may be a shield, but it is not a weapon.
+ - His books are exciting and powerful and – if I may filch the word from the booksy ones – pulsing.
+ - You do what you can, and you do it because you should. But all you can do is all you can do.
+
+234 quotes

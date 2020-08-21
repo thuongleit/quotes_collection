@@ -1,0 +1,36 @@
+ - History is the autobiography of a madman.
+ - We think the purpose of a child is to grow up because it does grow up. But its purpose is to play, to enjoy itself, to be a child. If we merely look to the end of the process, the purpose of life is death.
+ - To build a city where it is impossible to build a city is madness in itself, but to build there one of the most elegant and grandest of cities is the madness of genius.
+ - I believe in nothing here, except a handful of people, a few ideas, and the fact that one cannot arrest movement.
+ - Compassionate love may be strong. It sobs, it burns, then it wipes away its tears – and it does nothing.
+ - Slavery is the first step towards civilization. In order to develop it is necessary that things should be much better for some and much worse for others, then those who are better off can develop at the expense of others.
+ - It is possible to lead astray an entire generation, to strike it blind, to drive it insane, to direct it towards a false goal. Napoleon proved this.
+ - Life has taught me to think, but thinking has not taught me to live.
+ - What breadth, what beauty and power of human nature and development there must be in a woman to get over all the palisades, all the fences, within which she is held captive!
+ - We have wasted our spirit in the regions of the abstract and general just as the monks let it wither in the world of prayer and contemplation.
+ - History knocks at a thousand gates at every moment, and the gatekeeper is chance. We shout into the mist for this one or that one to be opened for us, but through every gate are a thousand more. We need wit and courage to make our way while our way is making us.
+ - There is nothing in the world more stubborn than a corpse: you can hit it, you can knock it to pieces, but you cannot convince it.
+ - Strong drink stupefies a man and makes it possible for him to forget; it gives him an artificial cheeriness, an artificial excitement; and the pleasure of this state is increased by the low level of civilization and the narrow empty life to which these men are confined.
+ - I have served one idea, marched under one banner – war against all imposed authority – against every kind of deprivation of freedom, in the name of the absolute independence of the individual.
+ - It must not be thought that the cowardly feeling of caution and uneasy self-preservation is innate in the English character. It is the consequence of a corpulence derived from wealth and of the training of all thoughts and passions for acquisitiveness.
+ - The liberty of the individual is the greatest thing of all, it is on this and this alone that the true will of the people can develop.
+ - Liberalism, austere in political trifles, has learned ever more artfully to unite a constant protest against the government with a constant submission to it.
+ - All religions have based morality on obedience, that is to say, on voluntary slavery. That is why they have always been more pernicious than any political organization. For the latter makes use of violence, the former – of the corruption of the will.
+ - Human development is a form of chronological unfairness, since late-comers are able to profit by the labors of their predecessors without paying the same price.
+ - The world will not know liberty until all that is religious and political is transformed into something simple and human and made susceptible to criticism and denial.
+ - You can no more bridle passions with logic than you can justify them in the law courts. Passions are facts and not dogmas.
+ - Modern Western thought will pass into history and be incorporated in it, will have its influence and its place, just as our body will pass into the composition of grass, of sheep, of cutlets, and of men.
+ - False gods must be repudiated, but that is not all: The reasons for their existence must be sought beneath their masks.
+ - Would it be possible to stand still on one spot more majestically – while simulating a triumphant march forward – than it is done by the two English Houses of Parliament?
+ - If nations always moved from one set of furnished rooms to another – and always into a better set – things might be easier, but the trouble is that there is no one to prepare the new rooms. The future is worse than the ocean – there is nothing there. It will be what men and circumstances make it.
+ - I am truly horrified by modern man. Such absence of feeling, such narrowness of outlook, such lack of passion and information, such feebleness of thought.
+ - We could hardly believe that after so many ordeals, after all the trials of modern skepticism, there was still so much left in our souls to destroy.
+ - One must open men’s eyes, not tear them out.
+ - Unaware of the absurdity of it, we introduce our own petty household rules into the economy of the universe for which the life of generations, peoples, of entire planets, has no importance in relation to the general development.
+ - Science, which cuts its way through the muddy pond of daily life without mingling with it, casts its wealth to right and left, but the puny boatmen do not know how to fish for it.
+ - Never was Catholicism, never were the ideas of chivalry, impressed on men so deeply, so multifariously, as the bourgeois ideas.
+ - Everything in Italy that is particularly elegant and grand borders upon insanity and absurdity or at least is reminiscent of childhood.
+ - Laws to suppress tend to strengthen what they would prohibit. This is the fine point on which all legal professions of history have based their job security.
+ - The people is always expressive of the truth. The life of a people cannot be a lie.
+
+34 quotes

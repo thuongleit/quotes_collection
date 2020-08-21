@@ -1,0 +1,502 @@
+ - What comes into our minds when we think about God is the most important thing about us.
+ - Christian liberty is freedom from sin, not freedom to sin.
+ - When we have the Holy Spirit we have all that is needed to be all that God desires us to be.
+ - If worship bores you, you are not ready for heaven.
+ - I don’t want the world to define God for me. I want the Holy Spirit to reveal God to me.
+ - The most important thing about you is what comes to your mind when you think of God.
+ - If your life does not worship God, your lips do not worship God either.
+ - Time is a resource that is non-renewable and non-transferable. You cannot store it, slow it up, hold it up, divide it up or give it up. You can’t hoard it up or save it for a rainy day – when it’s lost it is unrecoverable. When you kill time, remember that it has no resurrection.
+ - Compare yourself only with Jesus.
+ - Prayer will become effective when we stop using it as a substitute for obedience.
+ - Outside of the will of god, there is nothing I want. And in the will of god there is nothing I fear.
+ - If the Holy Spirit was withdrawn from the church today, 95 percent of what we do would go on and no one would know the difference. If the Holy Spirit had been withdrawn from the New Testament church, 95 percent of what they did would stop, and everybody would know the difference.
+ - Worship is no longer worship when it reflects the culture around us more than the Christ within us.
+ - God never uses anyone greatly until He tests them deeply.
+ - A low view of God is the cause of a hundred lesser evils. A high view of God is the solution to ten thousand temporal problems.
+ - Jesus Christ knows the worst about you. Nonetheless, He is the one who loves you the most.
+ - Sometimes when we get overwhelmed we forget how big God is.
+ - Only a disciple can make a disciple.
+ - God’s Word is true whether we believe it or not. Human unbelief cannot alter the character of God.
+ - Without worship, we go about miserable.
+ - A whole new generation of Christians has come up believing that it is possible to ‘accept’ Christ without forsaking the world.
+ - What’s closest to your heart is what you talk about, and if God is close to your heart, you’ll talk about Him.
+ - God is looking for those with whom He can do the impossible – what a pity that we plan only the things that we can do by ourselves.
+ - Whom God would use greatly He will hurt deeply.
+ - The church that can’t worship must be entertained. And leaders who can’t lead a church to worship must provide the entertainment.
+ - If God gives you a few more years, remember, it is not yours. Your time must honor God, your home must honor God, your activity must honor God, and everything you do must honor God.
+ - I claim the holy right to disappoint men in order to avoid disappointing God.
+ - The best way to prove that a stick is crooked is to set a straight one beside it. No words need to be spoken.
+ - The most critical need of the church at this moment is men, bold men, free men. The church must seek, in prayer and much humility, the coming again of men made of the stuff of which prophets and martyrs are made.
+ - In coming to Christ we don’t bring our old life up to a higher plane; we leave it at the cross.
+ - A scared world needs a fearless church.
+ - Complacency is the deadly enemy of spiritual progress. The contented soul is the stagnant soul.
+ - Refuse to be average.
+ - The Bible was written in tears, and to tears it yields its best treasures.
+ - Complacency is a deadly foe of all spiritual growth. Acute desire must be present or there will be no manifestation of Christ to His people. He waits to be wanted. Too bad that with many of us He waits so long, so very long, in vain.
+ - Listen to no man who has not listened to God.
+ - Whatever may befall us, God knows and cares as no one else can.
+ - When we make a choice today, we are deciding who we will be tomorrow.
+ - The victorious Christian neither exalts nor downgrades himself. His interests have shifted from self to Christ. What he is or is not no longer concerns him. He believes that he has been crucified with Christ and he is not willing either to praise or deprecate such a man.
+ - Sermonettes make Christianettes.
+ - When I understand that everything happening to me is to make me more Christlike, it resolves a great deal of anxiety.
+ - Trust God in the dark until the light returns.
+ - God is not silent. It is the nature of God to speak. The second person of the Holy Trinity is called “The Word.” The Bible is the inevitable outcome of God’s continuous speech. It is the infallible declaration of His mind.
+ - To be entirely safe from the devil’s snares the man of God must be completely obedient to the Word of the Lord. The driver on the highway is safe, not when he reads the signs but when he obeys them.
+ - Most Christians don’t hear God’s voice because we’ve already decided we aren’t going to do what He says.
+ - The glory of God always comes at the sacrifice of self.
+ - The Spirit-filled life is not a special, deluxe edition of Christianity. It is part and parcel of the total plan of God for His people.
+ - When men no longer fear God, they transgress His laws without hesitation. The fear of consequences is no deterrent when the fear of God is gone.
+ - We can be in our day what the heroes of faith were in their day – but remember at the time they didn’t know they were heroes.
+ - A satisfying prayer life elevates and purifies every act of body and mind and integrates the entire personality into a single spiritual unit. In the long pull we pray only as well as we live.
+ - Most Christians are satisfied living as common Christians, without an insatiable hunger for the deeper things of God.
+ - We Christians must simplify our lives or lose untold treasures on earth and in eternity. Modern civilization is so complex as to make the devotional life all but impossible. The need for solitude and quietness was never greater than it is today.
+ - To know the Creator and the God of all the universe is to revere Him. It is to bow down before Him in wonder and awesome fear.
+ - Repentance isn’t only sorrow for past sins, it’s also a determination to now do the will of God as He reveals it to us.
+ - You can’t truly rest until every area in your life rests in God.
+ - For it is not mere words that nourish the soul, but God Himself, and unless and until the hearers find God in personal experience they are not the better for having heard the truth.
+ - It’s time for us to rise up, get out of the rut and routine, and begin to take our Christian faith seriously.
+ - One compromise here, another there and soon enough the so-called Christian and the man in the world look the same.
+ - It takes simplicity and humility to worship God acceptably.
+ - God’s plan will continue on God’s schedule.
+ - Every ransomed man owes his salvation to the fact that during his days of sinning, God kept the door of mercy open.
+ - A man by his sin may waste himself, which is to waste that which on earth is most like God. This is man’s greatest tragedy and God’s heaviest grief.
+ - To regain her lost power the Church must see heaven opened and have a transforming vision of God.
+ - Go to church once a week and nobody pays attention. Worship God seven days a week and you become strange!
+ - Self is the opaque veil that hides the face of God from us.
+ - If you do not worship God seven days a week, you do not worship Him on one day a week. There is no such thing known in heaven as Sunday worship unless it is accompanied by Monday worship and Tuesday worship and so on.
+ - God dwells in the heart where praise is.
+ - God never hurries. There are no deadlines against which he must work. Only to know this is to quiet our spirits and relax our nerves.
+ - Nothing bothers the devil more than a Christian delighting in God’s presence.
+ - I have found God to be cordial and generous and in every way easy to live with.
+ - Gratitude is an offering precious in the sight of God, and it is one that the poorest of us can make and be not poorer but richer for having made it.
+ - God’s justice and God’s mercy do not quarrel with each other.
+ - If we cooperate with Him in loving obedience, God will manifest Himself to us, and that manifestation will be the difference between a nominal Christian life and a life radiant with the light of His face.
+ - The man who comes to a right belief about God is relieved of ten thousand temporal problems...
+ - The victorious Christian neither exalts nor downgrades himself. His interests have shifted from self to Christ.
+ - You can blame circumstances, but backsliding always begins in the heart.
+ - Christ dazzles me and stirs within me such feelings of amazement that I can never get over Him.
+ - Refuse to be average. Let your heart soar as high as it will.
+ - Jesus came not to condemn, but to reclaim.
+ - The unattended garden will soon be overrun with weeds; the heart that fails to cultivate truth and root out error will shortly be a theological wilderness.
+ - A pharisee is hard on others and easy on himself, but a spiritual man is easy on others and hard on himself.
+ - Silence is often the most eloquent answer to our critics.
+ - God dwells in His creation and is everywhere indivisibly present in all His works. He is transcendent above all His works even while He is immanent within them.
+ - Leadership requires vision, and whence will vision come except from hours spent in the presence of God in humble and fervent prayer?
+ - To pray without expectation is to misunderstand the whole concept of prayer and relationship with God.
+ - The ideal leader is one who hears the voice of God, and beckons on as the voice calls him and them.
+ - Much of our difficulty as seeking Christians stems from our unwillingness to take God as He is and adjust our lives accordingly. We insist upon trying to modify Him and bring Him nearer to our own image.
+ - When we allow God to be exalted in our difficulties we are in the perfect place to smell the fragrance of His Presence.
+ - Many Christians are satisfied with their destination but they neglect the journey.
+ - You can be straight as a gun barrel theologically, and as empty as one spiritually.
+ - It is doubtful whether God can bless a man greatly until He has hurt him deeply.
+ - Faith is not merely a journey for the feet, but it is also a journey for the heart.
+ - The true Christian ideal is not to be happy but to be holy.
+ - To escape the error of salvation by works we have fallen into the opposite error of salvation without obedience.
+ - The Christian is a holy rebel loose in the world with access to the throne of God.
+ - There are rare Christians whose very presence incites others to be better Christians. I want to be that rare Christian.
+ - The meek man will attain a place of soul rest. As he walks on in meekness he will be happy to let God defend him. The old struggle to defend himself is over. He has found the peace which meekness brings.
+ - The man who has God for his treasure has all things in one.
+ - The essence of idolatry is the entertainment of thoughts about God that are unworthy of Him.
+ - There is a restlessness within us that cannot be satisfied until we rest fully in God.
+ - We must meet the uncertainties of this world with the certainty of the world to come.
+ - We have been snared in the coils of a spurious logic which insists that if we have found Him we need no more seek Him.
+ - He had everything, but he possessed nothing. There is the spiritual secret.
+ - The grace of God is infinite and beyond our ability to measure. His grace has no beginning and therefore no end.
+ - The most dangerous trap is just living and forgetting that God exists.
+ - Acquaint thyself with God.
+ - Salvation is from our side a choice, from the divine side it is a seizing upon, an apprehending, a conquest by the Most High God. Our ‘accepting’ and ‘willing’ are reactions rather than actions. The right of determination must always remain with God.
+ - Pseudo faith always arranges a way out to serve in case God fails it. Real faith knows only one way and gladly allows itself to be stripped of any second way or makeshift substitutes. For true faith, it is either God or total collapse.
+ - We can take whatever path in worship we choose, but not all paths will end at the feet of Jesus.
+ - It is necessary for God to use the hammers, the file, and the furnace in His holy work of preparing a saint for true sainthood. It is doubtful whether God can bless a man greatly until He has hurt him deeply.
+ - True worship, worship that is pleasing to God, radiates throughout a person’s entire life.
+ - O God, I have tasted Thy goodness, and it has both satisfied me and made me thirsty for more. I am painfully conscious of my need for further grace.
+ - God spares us because He is good, but He could not be good if He were not just.
+ - The heart that is constantly overflowing with gratitude will be safe from those attacks of resentfulness and gloom that bother so many persons.
+ - The complacency of Christians is the scandal of Christianity.
+ - I’m not afraid of the devil. The devil can handle me – he’s got judo I never heard of. But he can’t handle the One to whom I’m joined; he can’t handle the One to whom I’m united; he can’t handle the One whose nature dwells in my nature.
+ - The more fascinated we become with the toys of this world, the more we forget that there’s another world to come.
+ - May not the inadequacy of much of our spiritual experience be traced back to our habit of skipping through the corridors of the Kingdom like children in the market place, chattering about everything, but pausing to learn the value of nothing.
+ - Trying to be happy without a sense of God’s presence is like trying to have a bright day without the sun.
+ - Keep my eyes fixed on You, Lord. Help me to stop tinkering and realize my total inability to change. I look to You to change me and give me victory as I focus on Your friendly eyes looking lovingly at me. Amen.
+ - For millions of Christians, nevertheless, God is no more real than He is to the non-Christian. They go through life trying to love an ideal and be loyal to a mere principle.
+ - If faith is the gaze of the heart at God, and if this gaze is but the raising of the inward eyes to meet the all-seeing eyes of God, then it follows that it is one of the easiest things possible to do.
+ - It is God who works in and through us, if only we would let God do His work.
+ - It is a high Christian privilege to pray for one another within each local church body and then for other believers throughout the world. As a Christian minister, I have no right to preach to people I have not prayed for. That is my strong conviction.
+ - It is because of the hasty and superficial conversation with God that the sense of sin is so weak and that no motives have power to help you to hate and flee from sin as you should.
+ - When we yield ourselves completely to God, He gives Himself completely to us.
+ - Modern civilization is so complex as to make the devotional life all but impossible. It wears us out by multiplying distractions and beats us down by destroying our solitude, where otherwise we might drink and renew our strength before going out to face the world again.
+ - Nothing less than a whole Bible can make a whole Christian.
+ - Walking in humility isn’t focusing on what we are NOT; rather, it’s declaring what God is.
+ - We must never rest until everything inside us worships God.
+ - Always, everywhere God is present, and always He seeks to discover Himself to each one.
+ - The world is perishing for lack of the knowledge of God and the Church is famishing for want of His Presence.
+ - The world is waiting to hear an authentic voice, a voice from God- not an echo of what others are doing and saying, but an authentic voice.
+ - God takes that which is nothing and makes something out of it. When you become a Christian, you cannot patch your Christianity onto your old life. You are to start over. Accept God’s call as a promotion. Burn the old bridges and fix it so you cannot go back ; then serve God with all your heart.
+ - The true follower of Christ will not ask, “If I embrace this truth, what will it cost me?” Rather he will say, “This is truth. God help me to walk in it, let come what may!”
+ - The goodness of God is infinitely more wonderful than we will ever be able to comprehend.
+ - As the excellence of steel is strength, and the excellence of art is beauty, so the excellence of mankind is moral character.
+ - Christianity is hard when we try to serve God in man’s way instead of serving God in God’s way.
+ - God’s voice speaking tenderly to our hearts today is the same voice that powerfully called creation into being.
+ - The essence of surrender is getting out of God’s way so that He can do in us what He also wants to do through us.
+ - We have full confidence in Jesus Christ. Our confidence rises as the character of God becomes greater and more trustworthy to our spiritual comprehension. The One with whom we deal is the One who embodies faithfulness and truth-the One who cannot lie.
+ - It is dangerous to be so busy that you have no time to wait on God.
+ - Jesus Christ our Lord surrendered in order that He might win; He destroyed His enemies by dying for them and conquered death by allowing death to conquer Him.
+ - God may allow His servant to succeed when He has disciplined him to a point where he does not need to succeed to be happy. The man who is elated by success and is cast down by failure is still a carnal man. At best his fruit will have a worm in it.
+ - By nature, worship is not some performance we do, but a presence we experience.
+ - God did not write a book and send it by messenger to be read at a distance by unaided minds. He spoke a Book and lives in His spoken words, constantly speaking His words and causing the power of them to persist across the years.
+ - What has the church gained if it is popular but there is no conviction, no repentance, no power?
+ - Come near to the holy men and women of the past and you will soon feel the heat of their desire after God. They mourned for Him, they prayed and wrestled and sought for Him day and night, in season and out, and when they found Him, the finding was all the sweeter for the long seeking.
+ - Let a man set his heart only on doing the will of God and he is instantly free. No one can hinder him.
+ - What is needed desperately today is prophetic insight. Scholars can interpret the past; it takes prophets to interpret the present.
+ - Everything God does has purpose and intention behind that design. It is a master design, and every little thing has its proper place and function.
+ - The believing man does not claim to understand. He falls to his knees and whispers, “God.” The man of earth kneels also, but not to worship. He kneels to examine, to search, to find the cause and the how of things.
+ - We please God most, not by frantically trying to make ourselves good, but by throwing ourselves into His arms.
+ - Oh, if we would only remember who God is!
+ - Let a man set his heart only on doing the will of God and he is instantly free. If we understand our first and sole duty to consist of loving God supremely and loving everyone, even our enemies, for God’s dear sake, then we can enjoy spiritual tranquility under every circumstance.
+ - Faith is not a once-done act, but a continuous gaze of the heart at the Triune God.
+ - Always the most revealing thing about the church is her idea of God.
+ - The idea that God will pardon a rebel who has not given up his rebellion is contrary both to the Scriptures and to common sense.
+ - To pray with your fists closed means you’re hanging onto something. Let it go. Open your hands to God.
+ - The pain of sacrificing our old selves is nothing compared to the joy of Christ living in us in our transformed lives.
+ - Light means nothing to a blind man.
+ - Among the plastic saints of our times, Jesus has to do all the dying, and all we want to hear is another sermon about his dying.
+ - Holiness, as taught in the Scriptures, is not based upon knowledge on our part. Rather, it is based upon the resurrected Christ in-dwelling us and changing us into His likeness.
+ - As we come to the Bible, we can come with the holy anticipation of actually meeting with God.
+ - We taste Thee, O Thou Living Bread, And long to feast upon Thee still: We drink of Thee, the Fountainhead And thirst our souls from Thee to fill.
+ - The importance of coming into God’s presence is worth overcoming all obstacles along the way.
+ - The average Christian is so cold and so contented with His wretched condition that there is no vacuum of desire into which the blessed Spirit can rush in satisfying fullness.
+ - Tens of thousands, perhaps millions, have come into some kind of religious experience by accepting Christ, and they have not been saved.
+ - The body becomes stronger as its members become healthier. The whole church of God gains when the members that compose it begin to seek a better and a higher life.
+ - I can’t sing a lick but that’s nobody’s business. God listens when I sing to Him and He thinks I am an opera star.
+ - I like Easter. But let’s remember that Christ’s resurrection is not truer at Easter than at any other time of the year.
+ - Holiness has nothing to do with what we know and everything to do with Who we know.
+ - Let any man turn to God in earnest, let him begin to exercise himself unto godliness, let him seek to develop his powers of spiritual receptivity by trust and obedience and humility, and the results will exceed anything he may have hoped in his leaner and weaker days.
+ - The church can have light only as it is full of the Spirit, and it can be full only as the members that compose it are filled individually.
+ - You can delegate many things, but prayer is not one of them.
+ - The sacred page is not meant to be the end, but only the means toward the end, which is knowing God Himself.
+ - No matter what the circumstances, we Christians should keep our heads. God has not given us the spirit of fear, but of power, of love and of a sound mind. It is a dismal thing to see a son of heaven cringe in terror before the sons of earth.
+ - Man must choose his world.
+ - Many things about our salvation are beyond our comprehension, but not beyond our trust.
+ - Christians aren’t finished products. We’re God’s sons and daughters in process.
+ - You win them to what you win them with.
+ - Christian theology teaches the doctrine of prevenient grace, which briefly stated means this, that before a man can seek God, God must first have sought the man.
+ - Our most pressing obligation is to do all in our power to obtain a revival that will result in a reformed, revitalized, purified church. Each generation of Christians is the seed of the next, and degenerate seed is sure to produce a degenerate harvest.
+ - The atonement in Jesus Christ’s blood is perfect; there isn’t anything that can be added to it. It is spotless, impeccable, flawless. It is perfect as God is perfect.
+ - When the eyes of the soul looking out meet the eyes of God looking in, heaven has begun right here on earth.
+ - The abuse of a harmless thing is the essence of sin.
+ - Left to ourselves we tend immediately to reduce God to manageable terms.
+ - To be right with God has often meant to be in trouble with men.
+ - Whoever seeks God as a means toward desired ends will not find God. The mighty God, the maker of heaven and earth, will not be one of many treasures, not even the chief of all treasures. He will be all in all or He will be nothing. God will not be used.
+ - God’s purpose in redemption is to make worshipers out of rebels.
+ - All great Christians have been wounded souls.
+ - You cannot study the Bible diligently and earnestly without being struck by an obvious fact-the whole matter of personal holiness is highly important to God!
+ - True obedience is the refusal to compromise in any regard our relationship with God, regardless of the consequences.
+ - Judas Iscariot was not a greatly wicked person, just a common money-lover, and like most money-lovers, he did not understand Christ.
+ - The meek man is not a human mouse afflicted with a sense of his own inferiority. He has accepted God’s estimate of his own life: In himself, nothing; In God, everything. He knows well that the world will never see him as God sees him and he has stopped caring.
+ - Keep your heart with all diligence and God will take care of the universe.
+ - If the envious, the defamers and the backbiters were taken out of the average church, there would be revival overnight.
+ - At the heart of the Christian message is God Himself waiting for His redeemed children to push in to conscious awareness of His Presence.
+ - To be right with God has often meant to be in trouble with men. This is such a common truth that one hesitates to mention it, yet it appears to have been overlooked by the majority of Christians today.
+ - The way to deeper knowledge of God is through the lonely valleys of soul poverty and abnegation of all things. The blessed ones who possess the Kingdom are they who have repudiated every external thing and have rooted from their hearts all sense of possessing. These are the ‘poor in spirit.’
+ - For the Christian, humility is absolutely indispensable. Without it there can be no self-knowledge, no repentance, no faith and no salvation.
+ - All the problems of heaven and earth, though they were to confront us together and at once, would be nothing compared with that overwhelming problem of God: That He is; what He is like; and what we as moral beings must do about Him.
+ - God loves you not because you are worthy, but because He is God and you are a fixture in His mind.
+ - Unselfish love does not exploit its object and it does not ask for anything in return.
+ - God often hides His blessing in trouble or trial, which makes it all the sweeter when it comes our way.
+ - With the goodness of God to desire our highest welfare, the wisdom of God to plan it, and the power of God to achieve it, what do we lack? Surely we are the most favored of all creatures.
+ - Pay no heed to the passing religious vogue. Go back to the grass roots. Open your hearts and search the Scriptures. Bear your cross, follow your Lord. The masses are always wrong. In every generation the number of the righteous is small. Be sure you are among them.
+ - The veil of money has never been about how much money you have but about how much money has you.
+ - Yes, worship of the loving God is man’s whole reason for existence.
+ - God formed us for His pleasure, and so formed us that we as well as He can in divine communion enjoy the sweet and mysterious mingling of kindred personalities. He meant us to see Him and live with Him and draw our life from His smile.
+ - Real faith invariably produces holiness of heart and righteousness of life.
+ - Faith is seeing the invisible, but not the nonexistent.
+ - As mercy is God’s goodness confronting human misery and guilt, so grace is his goodness directed toward human debt and demerit.
+ - True and absolute freedom is only found in the presence of God.
+ - Jesus our Lord is Prophet, Priest, and King. The concept is not new, yet many preachers never preach it, and many congregations never hear it.
+ - The vague and tenuous hope that God is too kind to punish the ungodly has become a deadly opiate for the consciences of millions.
+ - To fear and not be afraid- that is the paradox of faith.
+ - We boast in the Lord but watch carefully that we never get caught depending on Him.
+ - We might be wise to follow the insight of the enraptured heart rather than the more cautious reasoning of the theological mind.
+ - As long as we think we own anything, that thing owns us. As soon as we know that we own nothing, then God owns us.
+ - It will cost you everything to follow the Lord. And it will cost you even more to be His man for this hour.
+ - Those who seek the deeper Christian life and those who want the riches that are in Christ Jesus the Lord seek no place, no wealth, no things, only Christ.
+ - No religion has ever been greater than its idea of God.
+ - Faith is not in itself a meritorious act; the merit is in the One to Whom it is directed.
+ - God is trying to call us back to that for which He created us, to worship Him and to enjoy Him forever.
+ - When people sugarcoat Christianity, arrange it all nicely, they have, in effect, taken away the Cross.
+ - Men may flee from the sunlight to dark and musty caves of the earth, but they cannot put out the sun. So men may in any dispensation despise the grace of God, but they cannot extinguish it.
+ - The man who has made God his dwelling place will always have a safe habitation.
+ - Any doctrine that makes the world your friend is not your friend.
+ - The essence of idolatry is the entertainment of thoughts about God that are unworthy of Him. The heaviest obligation lying upon the Christian Church today is to purify and elevate her concept of God until it is once more worthy of Him.
+ - Plain horse sense ought to tell us that anything that makes no change in the man who professes it makes no difference to God, either.
+ - Rules for Self Discovery: 1. What we want most; 2. What we think about most; 3. How we use our money; 4. What we do with our leisure time; 5. The company we enjoy; 6. Who and what we admire; 7. What we laugh at.
+ - I think a new world will arise out of the religious mists when we approach our Bible with the idea that it is not only a book which was once spoken, but a book which is now speaking.
+ - The Bible is a supernatural book and can be understood only by supernatural aid.
+ - The unbelieving mind would not be convinced by any proof, and the worshiping heart needs none.
+ - Only after all the noise has spent itself do we begin to hear in the silence of our heart, the still, small, mighty voice of God.
+ - An honest man with an open Bible and a pad and pencil is sure to find out what is wrong with him very quickly.
+ - It appears that too many Christians want to enjoy the thrill of feeling right but are not willing to endure the inconvenience of being right.
+ - When a man of God dies, nothing of God dies.
+ - The impulse to pursue God originates with God, but the outworking of that impulse is our following hard after Him.
+ - Distractions must be conquered or they will conquer us. So let us cultivate simplicity; let us walk in the Spirit...
+ - We have learned to live with unholiness and have come to look upon it as the natural and expected thing.
+ - We Christians must simplify our lives or lose untold treasures on earth and in eternity.
+ - God wants worshipers before workers; indeed the only acceptable workers are those who have learned the lost art of worship.
+ - America is laughing her way to Hell.
+ - Dare to contend without being contentious. Preserve the truth without hurting people. Love and be charitable.
+ - Religious externals may have meaning for the God-inhabited soul; for any others they are not only useless but may actually become snares, deceiving them into a false and perilous sense of security.
+ - God loves us for ourselves. He values our love more than he values galaxies of new created worlds.
+ - Truth is a glorious but hard mistress. She never consults, bargains or compromises.
+ - Pray; and as you pray, surrender; and as you surrender, believe.
+ - Apart from God nothing matters. We think that health matters, that freedom matters, or knowledge or art or civilization. And but for one insistent word they would matter indeed. That word is eternity.
+ - Deliverance can come to us only by the defeat of our old life. Safety and peace come only after we have been forced to our knees. God rescues us by breaking us, by shattering our strength and wiping out our resistance.
+ - The shallowness of our inner experience, the hollowness of our worship, and that servile imitation of the world which marks our promotional methods all testify that we, in this day, know God only imperfectly, and the peace of God scarcely at all.
+ - The neglected heart will soon be a heart overrun with worldly thoughts; the neglected life will soon become a moral chaos.
+ - The cross stands high above the opinions of men and to that cross all opinions must come at last for judgment.
+ - May God grant us a desire for God that supersedes all other desires.
+ - Progress in the Christian life is exactly equal to the growing knowledge we gain of the Triune God in personal experience.
+ - The love of God is one of the great realities of the universe, a pillar upon which the hope of the world rests. But it is a personal, intimate thing too. God does not love populations, He loves people. He loves not masses, but men.
+ - To understand a Bible text it takes an act of the Holy Spirit equal to the act that inspired the text in the first place. A revelation of the Holy Spirit in one glorious flash of inward illumination would teach you more of Jesus than five years in a theological seminary.
+ - I believe that entertainment and amusements are the work of the Enemy to keep dying men from knowing they’re dying; and to keep enemies of God from remembering that they’re enemies.
+ - Men are free to decide their own moral choices, but they are also under the necessity to account to God for those choices.
+ - Any spirit that permits compromise with the world is a false spirit. Any religious movement that imitates the world in any of its manifestations is false to the cross of Christ and on the side of the devil.
+ - I am looking for the fellowship of the burning heart – for men and women of all generations everywhere who love the Savior until adoration becomes the music of their soul until they don’t have to be fooled with and entertained and amused. Jesus Christ is everything, all-in-all.
+ - God rescues us by breaking us, by shattering our strength and wiping out our resistance.
+ - It is scarcely possible in most places to get anyone to attend a meeting where the only attraction is God.
+ - No one can know the true grace of God who has not first known the fear of God.
+ - What else should we do with the Word of God but obey?
+ - When God justifies a sinner, everything in God is on the sinner’s side. All the attributes of God are on the sinner’s side. It isn’t that mercy is pleading for the sinner and justice is trying to beat him to death. All of God does all that God does.
+ - We must of necessity be servant to someone, either to God or to sin. The man who surrenders to Christ exchanges a cruel slave driver for a kind and gentle master whose yoke is easy and whose burden is light.
+ - Have you noticed how much praying for revival has been going on of late – and how little revival has resulted? I believe the problem is that we have been trying to substitute praying for obeying, and it simply will not work.
+ - Grace is the good pleasure of God that inclines him to bestow benefits on the undeserving.
+ - To have found God and still to pursue Him is the soul’s paradox of love, scorned indeed by the too-easily-satisfied religionist, but justified in happy experience by the children of the burning heart.
+ - The weakness of so many modern Christians is that they feel too much at home in the world.
+ - Nothing in or of this world measures up to the simple pleasure of experiencing the presence of God.
+ - The man who remains in his sin will be damned just as surely as the sun comes up in the east and goes down in the west.
+ - The man that believes will obey; failure to obey is convincing proof that there is no true faith present. To attempt the impossible God must give faith or there will be none, and He gives faith to the obedient heart only.
+ - We are in an age of religious complexity. The simplicity which is in Christ is rarely found among us. In its stead are programs, methods, organizations, and a world of nervous activities which occupy time and attention but can never satisfy the longing of the heart.
+ - If your Christianity depends upon a pastor’s preaching, then you’re a long way from being where you should be.
+ - O God and Father, I repent of my sinful preoccupation with visible things. The world has been too much with me. Thou hast been here and I knew it not. I have been blind to Thy Presence. Open my eyes that I may behold Thee in and around me. For Christ’s sake, Amen.
+ - Let us practice the fine art of making every work a priestly ministration. Let us believe that God is in all our simple deeds and learn to find Him there.
+ - A true and safe leader is likely to be one who has no desire to lead, but is forced into a position of leadership by the inward pressure of the Holy Spirit and the press of the external situation.
+ - God’s redemptive revelation in Scripture is necessary to saving faith and peace with God. Faith in a risen Savior is necessary if the vague stirrings toward immortality are to bring us to restful and satisfying communion with God.
+ - God must do everything for us. Our part is to yield and trust.
+ - I can safely say, on the authority of all that is revealed in the Word of God, that any man or woman on this earth who is bored and turned off by worship is not ready for heaven.
+ - The low view of God entertained almost universally among Christians is the cause of a hundred lesser evils everywhere among us. A whole new philosophy of the Christian life has resulted from this one basic error in our religious thinking.
+ - One thing the young Christian should be taught as quickly as possible after his conversion is that Jesus Christ is all he needs.
+ - We who live in this nervous age would be wise to meditate on our lives and our days long and often before the face of God and on the edge of eternity. For we are made for eternity as certainly as we are made for time, and as responsible moral beings we must deal with both.
+ - Are you satisfied being filled with good information about God, or do you long to burst into His manifest presence?
+ - In many churches Christianity has been watered down until the solution is so weak that if it were poison it would not hurt anyone, and if it were medicine it would not cure anyone.
+ - Promoting self under the guise of promoting Christ is currently so common as to excite little notice.
+ - Religion has accepted the monstrous heresy that noise, size, activity and bluster make a man dear to God.
+ - There is a better way. It is to repudiate our own wisdom and take instead the infinite wisdom of God.
+ - As long as you set yourself up as a little god to which you must be loyal there will be those who will delight to offer affront to your idol.
+ - When a person, yielding to God and believing the truth of God, is filled with the Spirit of God, even his faintest whisper will be worship.
+ - Some people’s lives would drastically change if they would obey God as strictly as they obey their doctors.
+ - God is looking for men in whose hands His glory is safe.
+ - We must break the evil habit of ignoring the spiritual. We must shift our interest from the seen to the unseen.
+ - Holy is the way God is. To be holy He does not conform to a standard. He IS that standard.
+ - It is altogether doubtful whether any man can be saved who comes to Christ for His help with no intention to obey Him.
+ - Only as He is faithful will His covenants stand and His promises be honored. Only as we have complete assurance that He is faithful may we live in peace and look forward with assurance to the life to come.
+ - If a man has only correct doctrine to offer me, I am sure to slip out at the first intermission to seek the company of someone who has seen for himself how lovely is the face of Him who is the Rose of Sharon and the Lily of the Valley. Such a man can help me, and no one else can.
+ - The reason why many are still troubled, still seeking, still making little forward progress is because they haven’t yet come to the end of themselves. We’re still trying to give orders, and interfering with God’s work within us.
+ - Always God’s goodness is the ground of our expectation.
+ - Abounding sin is the terror of the world, but abounding grace is the hope of mankind.
+ - It is either all of Christ or none of Christ! I believe we need to preach again a whole Christ to the world – a Christ who does not need our apologies, a Christ who will not be divided, a Christ who will either be Lord of all or will not be Lord at all!
+ - The heart of the world is breaking under this load of pride and pretense. There is no release from our burden apart from the meekness of Christ.
+ - Faith creates nothing; it simply reckons upon that which is already there.
+ - May God deliver us from the easygoing, smooth, comfortable Christianity that never lets the truth get hold of us.
+ - Our gifts and talents should also be turned over to Him. They should be recognized for what they are, God’s loan to us, and should never be considered in any sense our own.
+ - Come to the Word with a spirit of longing with devotion and humble expectation. Be determined to know God.
+ - All things as they move toward God are beautiful, and they are ugly as they move away from Him.
+ - If you want to be holy then you must give time to God and not just intend to.
+ - For myself, I long ago decided that I would rather know the truth than be happy in ignorance. If I can not have both truth and happiness, give me truth. We’ll have a long time to be happy in heaven.
+ - You can see God from anywhere if your mind is set to love and obey Him.
+ - People who are crucified with Christ have three distinct marks: 1. they are facing only one direction, 2. they can never turn back, and 3. they no longer have plans of their own.
+ - Only the blood of Jesus can cleanse us, yet if we withhold ourselves from that blood, we will be unclean forever.
+ - The natural man must know in order to believe; The spiritual man must believe in order to know.
+ - In almost everything that touches our everyday life on earth, God is pleased when we’re pleased. He wills that we be as free as birds to soar and sing our maker’s praise without anxiety.
+ - If we make provision for sinning tomorrow, we will be sinning tomorrow.
+ - God works as long as His people live daringly; He ceases when they no longer need His aid.
+ - An idol of the mind is as offensive to God as an idol of the hand.
+ - The man who has been taught by the Holy Spirit will be a seer rather than a scholar. The difference is that the scholar sees and the seer sees through; and that is a mighty difference indeed.
+ - Jesus Christ never thinks about what we have been! He always thinks about what we are going to be.
+ - Justice is not something God has. Justice is something that God is.
+ - While we are looking at God we do not see ourselves-blessed riddance.
+ - We get our moral bearings by looking at God. We must begin with God. We are right when, and only when, we stand in a right position relative to God, and we are wrong so far and so long as we stand in any other position.
+ - The true Christian is one who is kind of sick of this world. If I find anybody who is settled down too snugly into this world, I am made to doubt whether he’s ever truly been born again.
+ - The key to prayer is simply praying.
+ - What good is all our busy religion if God isn’t in it? What good is it if we’ve lost majesty, reverence, worship-an awareness of the divine? What good is it if we’ve lost a sense of the Presence and the ability to retreat within our own hearts and meet God in the garden?
+ - God has not bowed to our nervous haste nor embraced the methods of our machine age. The man who would know God must give time to Him...
+ - We are called not to adjust ourselves to each other, but to adjust ourselves to God.
+ - We get the odd notion that God is showing mercy because Jesus died. No. Jesus died because God is showing mercy.
+ - We modern Christians are long on talk and short on conduct.
+ - The degree of blessing enjoyed by any man will correspond exactly with the completeness of God’s victory over him.
+ - Let her love God as He is in Himself, and not as her imagination says He is, and pictures Him.
+ - The man who preaches truth and applies it to the lives of his hearers will feel the nails and the thorns. He will lead a hard life, but a glorious one. May God raise up many such prophets. The church needs them badly.
+ - The notion that the careless sinner is the smart fellow and the serious-minded Christian, though well-intentioned, is a stupid dolt altogether out of touch with life will not stand up under scrutiny. Sin is basically an act of moral folly, and the greater the folly the greater the fool.
+ - God is so vastly wonderful, so utterly and completely delightful that He can, without anything other than Himself, meet and overflow the deepest demands of our total nature, mysterious and deep as that nature is.
+ - Christians should be the boldest people in the world-not cocky and sure of ourselves, but sure of Him.
+ - If God takes away from us the old, wrinkled, beat-up dollar bill we have clutched so desperately, it is only because He wants to exchange it for the whole Federal mint, the entire treasury! He is saying to us, ‘I have in store for you all the resources of heaven. Help yourself.’
+ - Religion today is not transforming people; rather it is being transformed by the people. It is not raising the moral level of society; it is descending to society’s own level, and congratulating itself that it has scored a victory because society is smilingly accepting its surrender.
+ - The kingdom of God is not in words. Words are only incidental and can never be fundamental. When evangelicalism ceased to emphasize fundamental meanings and began emphasizing fundamental words, and shifted from meaning to words and from power to words, they began to go down hill.
+ - Satan hates God for His own sake, and everything that is dear to God he hates for the very reason that God loves it.
+ - Whenever you see confusion, you can be sure that something is wrong. Disorder in the world implies that something is out of place. Usually, at the heart of all disorder you will find man in rebellion against God. It began in the Garden of Eden and continues to this day.
+ - Wherever we turn in the church of God, there is Jesus. He is the beginning, middle and end of everything to us...
+ - We understand and acknowledge that the Resurrection has placed a glorious crown upon all of Christ’s sufferings!
+ - Christians must understand most emphatically that the world around us is in conflict with the Word within us.
+ - Christ calls us to carry the Cross; churches call us to have fun in His name.
+ - With a sacred expectation, I look for God in ALL of the circumstances of my day.
+ - The inner life must overcome the flesh or the flesh will overcome and destroy the inner life.
+ - Though the cross of Christ has been beautified by the poet and the artist, the avid seeker after God is likely to find it the same savage implement of destruction it was in the days of old. The way of the cross is still the pain-wracked path to spiritual power and fruitfulness.
+ - The fruit is what really matters, not how gnarly or beautiful the apple tree is.
+ - The sovereign God wants to be loved for Himself and honoured for Himself, but that is only part of what He wants. The other part is that He wants us to know that when we have Him we have everything – we have all the rest.
+ - God is never impressed with what a man can do. He is more concerned with what a man is.
+ - To be effective the preacher’s message must be alive; it must alarm, arouse, challenge; it must be God’s present voice to a particular people.
+ - The only Christian you want to listen to is the one who gives you more of a hunger for God.
+ - You will never please everybody. Some men will say you have gone too far. Other men will say you haven’t gone far enough. I just compromise and say I won’t please anybody.
+ - There is scarcely anything so dull and meaningless as Bible doctrine taught for its own sake. Truth divorced from life is not truth in its Biblical sense, but something else and something less.
+ - Constantly practice the habit of inwardly gazing upon God. You know that something inside your heart sees God. Even when you are compelled to withdraw your conscious attention in order to engage in earthly affairs, there is within you a secret communion always going on.
+ - The faith of Christ offers no buttons to push for quick service. The new order must wait the Lord’s own time, and that is too much for the man in a hurry. He just gives up and becomes interested in something else.
+ - The Word of God well understood and religiously obeyed is the shortest route to spiritual perfection. And we must not select a few favorite passages to the exclusion of others. Nothing less than a whole Bible can make a whole Christian.
+ - The purpose of good works isn’t to change us or save us; rather, it’s the demonstration of the change within us.
+ - The labor of self-love is a heavy one indeed. Think whether much of your sorrow has not arisen from someone speaking slightingly of you. As long as you set yourself up as a little god to which you must be loyal, how can you hope to find inward peace?
+ - Nowhere in the Word of God is there any text or passage or line that can be twisted or tortured into teaching that the organic living church of Jesus Christ just prior to His return will not have every right and every power and every obligation that she knew in that early part of the book of Acts.
+ - The Cross is not responsible for God’s love; rather it was His love that conceived the Cross.
+ - There cannot be two absolutely free beings in the universe, for sooner or later two completely free wills must collide.
+ - We are saved to worship God. All that Christ has done in the past and all that He is doing now leads to this one end.
+ - Every man is as holy as he really wants to be.
+ - We can seek God and find him! God is knowable, touchable, hearable, seeable, with the mind, the hands, the ears and the eyes of the inner man.
+ - No man should desire to be happy who is not at the same time holy. He should spend his efforts in seeking to know and do the will of God, leaving to Christ the matter of how happy he should be.
+ - Nothing that God has ever said about Himself will be modified; nothing the inspired prophets and apostles have said about Him will be rescinded. His immutability guarantees this.
+ - The blessed and inviting truth is that God is the most winsome of all beings and in our worship of Him we should find unspeakable pleasure.
+ - The fact of God is necessary for the fact of man. Think God away and man has no ground of existence.
+ - This is the tragedy and woe of the hour – that we neglect the most important One who could possibly be in our midst – the Holy Spirit of God. Then, in order to make up for His absence, we have to do something to keep up our own spirits.
+ - If God is the Supreme good then our highest blessedness on earth must lie in knowing Him as perfectly as possible.
+ - What is wrong with Christians today is that we have the gifts of God but have forgotten the God of the gifts.
+ - I do not know why God does some things, but I am convinced that nothing is accidental in his universe.
+ - Our identification with Christ should be that whatever He is we also want to become.
+ - To great sections of the church the art of worship has been lost entirely, and in its place has come that strange and foreign thing called the ‘program.’ This word has been borrowed from the stage and applied with sad wisdom to the type of public service which now passes for worship among us.
+ - I can trust the One who has my best interest in mind.
+ - The cross where Jesus died became also the cross where His apostle died. The loss, the rejection, the shame, belong both to Christ and to all who in very truth are His. the cross that saves them also slays them, and anything short of this is a pseudo-faith and not true faith at all.
+ - Too often we are Christians by assumption, manipulation or instruction, rather than Christians by regeneration.
+ - Shall it be a religion or shall it be Christ? Shall it be churchianity or shall it be Jesus Christ? Shall it be pride or shall it be humility in Jesus Christ?
+ - The author squares man’s depravity with still being made in the image of God with this word picture. A vase that has held beautiful roses though now broken, will nevertheless hold something of the fragrance it once contained.
+ - The man who is seriously convinced that he deserves hell is not likely to go there, while the man who believes that he is worthy of heaven will certainly never enter that blessed place.
+ - We need to learn that truth consists not in correct doctrine, but in correct doctrine plus the inward enlightenment of the Holy Spirit.
+ - The desire to fulfill the purpose for which we were created is a gift from God.
+ - True religion is removed from diet and days, from garments and ceremonies, and placed where it belongs – in the union of the spirit of man with the Spirit of God.
+ - There are such things as consecrated griefs, sorrows that may be common to everyone but which take on a special character when accepted intelligently and offered to God in loving submission.
+ - Nothing is complete in itself but requires something outside itself in order to exist.
+ - We need never shout across the spaces to an absent God. He is nearer than our own soul, closer than our most secret thoughts.
+ - It’s hard to rest knowing that millions of people merely carry on religious traditions but don’t actually reach God.
+ - When we become too glib in prayer we are most surely talking to ourselves.
+ - To become effective men of God, then, we must know and acknowledge that every grace and every virtue proceeds from God alone, and that not even a good thought can come from us except it be of Him.
+ - Thinking carries a moral imperative. The searcher for truth must be ready to obey truth without reservation or it will elude him.
+ - There is a strain of loneliness infecting many Christians, which only the presence of God can cure.
+ - Love is both a principle and an emotion; it is something both felt and willed. It is capable of almost infinite degrees. Love in the human heart may begin so modestly as to be hardly perceptible and go on to become a raging torrent that sweeps its possessor before it in total helplessness.
+ - If in our Saturday pursuits we’re far from God’s presence, we’re not in very good shape to worship Him on Sunday.
+ - Is it ever possible to overdo the talking about the glory of Christ? Is it ever too often to be in God’s presence?
+ - Mans nature indicates that he was created for three things: To think, to worship and to work. But thinking is not enough. Men are made to worship also, to bow down and adore in the presence of the Mystery inexpressible.
+ - Without doubt, the mightiest thought the mind can entertain is the thought of God, and the weightest word in any language is its word for God.
+ - The task of the church is twofold: to spread Christianity throughout the world and to make sure that the Christianity she spreads is the pure New Testament kind.
+ - As Christians, we are not to be people without feelings.
+ - One of the most popular current errors, and the one out of which springs most of the noisy, blustering religious activity in evangelical circles, is the notion that as times change the church must change with them.
+ - To know that God thinks about me is the beginning of my journey of faith.
+ - In every generation the number of the righteous is small. Be sure you are among them.
+ - God’s Kingdom isn’t divided into areas of important people and areas of little people. In God’s sight, everyone’s needful.
+ - Any faith that must be supported by the evidence of the senses is not real faith.
+ - The devil loves it when we say we believe then prioritize everything in our lives ahead of God.
+ - What I was saved to is much more important than what I was saved from.
+ - The various elements of truth stand in perpetual antithesis, sometimes requiring us to believe apparent opposites while we wait for the moment when we shall know as we are known.
+ - God created our souls to be satisfied only with the divine everlastingness of the Word made flesh.
+ - Let the seeking man reach a place where life and lips join to say continually, “Be thou exalted,” and a thousand minor problems will be solved at once. His Christian life ceases to be the complicated thing it had been before and becomes the very essence of simplicity.
+ - The KEY to disciplining ourselves in the area of obedience is always keeping in mind to whom we are being obedient.
+ - The labor of self-love is a heavy one indeed.
+ - To expose our hearts to truth and consistently refuse or neglect to obey the impulses it arouses is to stymie the motions of life within us and, if persisted in, to grieve the Holy Spirit into silence.
+ - Faith is an organ of knowledge, and love an organ of experience.
+ - One hundred religious persons knit into a unity by careful organizations do not constitute a church any more than eleven dead men make a football team. The first requisite is life, always.
+ - We are sent to bless the world, but we are never told to compromise with it.
+ - If Jesus Christ isn’t the central figure in our lives and in our churches, we’re only fooling ourselves.
+ - Powerless religion may put a man through many surface changes and leave him exactly what he was before.
+ - Labor in the Lord is not in vain. Labor outside the Lord may well be in vain. We labor in the Lord when we labor using His enablement for His glory.
+ - We have become so engrossed in the work of the Lord that we have forgotten the Lord of the work.
+ - Wherever faith has eyes to see, there is a smiling presence of the Son of God.
+ - Christians don’t tell lies they just go to church and sing them.
+ - When a man falls on his knees and stretches his hands heavenward, he is doing the most natural thing in the world.
+ - Next to the Holy Scriptures, the greatest aide to the life of faith may be Christian biographies.
+ - Were we able to extract from any man a complete answer to the question, “What comes into your mind when you think about God?” we might predict with certainty the future of that man.
+ - It requires a serious mind and a determined heart to pray past the ordinary into the unusual.
+ - Nothing twists and deforms the soul more than a low or unworthy conception of God.
+ - Our problem is that we go from toy to toy rather than from glory to glory.
+ - God doesn’t need anything nevertheless He wants worshipers.
+ - Most of us go through life praying a little, planning a little, jockeying for position, hoping but never being quite certain of anything, and always secretly afraid that we will miss the way. This is a tragic waste of truth and never gives rest to the heart.
+ - Faith is a re-directing of our sight, a getting out of the focus of our own vision and getting God into focus.
+ - God dwells in eternity but time dwells in God. He has already lived all our tomorrows as He has lived all our yesterdays.
+ - Worship is why we are born and why we are born again.
+ - It is no sin to doubt some things but it may be fatal to believe everything.
+ - Hardly anything else reveals so well the fear and uncertainty among men as the length to which they will go to hide their true selves from each other and even from their own eyes.
+ - I fear that for the most part people are worshiping worship rather than worshiping God and communing with Him.
+ - Some morning, get up and allow the power of God to come on you, and allow Him to bless you.
+ - God desires to reveal to us that His capacity to forgive is bigger than our capacity to sin.
+ - Because we are the handiwork of God, it follows that all our problems and their solutions are theological.
+ - Failure to get a right viewpoint in the beginning of our Christian lives may result in weakness and sterility for the rest of our days!
+ - It is time for us to seek again the leadership of the Holy Spirit. Man’s lordship has cost us too much...
+ - Honesty that can be trusted and respected is a very fragrant flower in the life of a Christian.
+ - No one need fear to listen to the voice of God unless he has already made up his mind to resist it.
+ - If I understand this correctly Christ taught here the alarming doctrine that the desire for honor among men made belief impossible.
+ - The burden borne by mankind is a heavy and a crushing thing. The word Jesus used means a load carried or toil borne to the point of exhaustion. Rest is simply release from that burden. It is not something we do, it is what comes to us when we cease to do. His own meekness, that is the rest.
+ - God does not love us because we are hard or easy to love, He loves us because He is God.
+ - I accomplish more when I rest wholly in the labor of Jesus than I do when I frantically try to do the work for Him.
+ - When the Spirit illuminates the heart, then a part of the man sees which never saw before; a part of him knows which never knew before, and that with a kind of knowing which the most acute thinker cannot imitate.
+ - When we are enjoying the conscious presence of God, we are fulfilling the tenets of our salvation.
+ - Any faith that does not command the one who holds it is not a real belief; it is a pseudo belief only. And it might shock some of us profoundly if we were brought suddenly face to face with our beliefs and forced to test them in the fires of practical living.
+ - The Christian’s heart must be soaked in prayer before the true spiritual fruits begin to grow.
+ - Before there can be fullness there must be emptiness. Before God can fill us with Himself we must first be emptied of ourselves.
+ - Everything is wrong until Jesus sets it right.
+ - God tells us to make a sanctuary of our thoughts in which He can dwell.
+ - Men are not revived because they sing; they sing because they are revived.
+ - Very few things in life matter.
+ - How utterly terrible is the current idea that Christians can serve God at their own convenience.
+ - Hope is the music of the whole Bible, the heartbeat, the pulse and the atmosphere of the whole Bible.
+ - We pursue God because, and only because, He has first put an urge within us that spurs us to the pursuit.
+ - Unsaintly saints are the tragedy of Christianity.
+ - If we take away any of the attributes of God, we do not weaken God but we weaken our concept of God.
+ - God expects of us only what He Himself has supplied.
+ - No one can long worship God in spirit and in truth before the obligation to holy service becomes too strong to resist.
+ - I have no doubt that historians will conclude that we of the twentieth century had intelligence enough to create a great civilization but not the moral wisdom to preserve it.
+ - In an effort to get the work of the Lord done we often lose contact with the Lord of work.
+ - God wants us to know that when we have Him, we have everything.
+ - Problems patiently endured will work for our spiritual perfecting.
+ - Be thankful, but be careful that you don’t become so enamored of God’s good gifts that you fail to worship the giver.
+ - What I am anxious to see in Christian believers is a beautiful paradox. I want to see in them the joy of finding God while at the same time they are blessedly pursuing Him. I want to see in them the great joy of having God yet always wanting Him.
+ - Perhaps it takes a purer faith to praise God for unrealized blessings than for those we once enjoyed or those we enjoy now.
+ - An infinite God can give all of Himself to each of His children. He does not distribute Himself that each may have a part, but to each one He gives all of Himself as fully as if there were no others.
+ - The Bible recognizes no faith that does not lead to obedience, nor does it recognize any obedience that does not spring from faith. The two are at opposite sides of the same coin.
+ - When the Holy Spirit is in full control of our lives, He will expect our obedience to the written Word of God. But it is part of our human problem that we would like to be full of the Spirit and yet go on and do as we please!
+ - I cannot recall, in any of my reading, a single instance of a prophet who applied for the job.
+ - It is doubtful we can be Christian in anything unless we are Christian in everything.
+ - We tend by a secret law of the soul to move towards our mental image of God.
+ - No man has any right to speak to men about God who has not first spoken to God about men.
+ - Prayer is the most sacred occupation a person could engage in.
+ - The good news isn’t that God is victorious. How can He not be victorious? The good news is we can be victorious, too.
+ - Our Lord told His disciples that love and obedience were organically united. The final test of love is obedience.
+ - Jesus will never qualify or compromise anything he has said.
+ - When you kill time, remember that it has no resurrection.
+ - What is wisdom? It is the skill to achieve the perfect means by the perfect ends.
+ - Man appears for a little while to laugh and weep, to work and play, and then to go to make room for those who shall follow him in the never-ending cycle.
+ - What do we value most? What would we most hate to lose? What do our thoughts turn to most frequently when we are free to think of what we will? And finally, what affords us the greatest pleasure?
+ - We wonder why we don’t have faith; the answer is, faith is confidence in the character of God and if we don’t know what kind of God God is, we can’t have faith.
+ - The devil is a better theologian than any of us and is a devil still.
+ - To men and women everywhere Jesus says, “Come unto me, and I will give you rest.” The rest He offers is the rest of meekness, the blessed relief which comes when we accept ourselves for what we are and cease to pretend.
+ - The purpose of God isn’t to save us from Hell. The purpose of God is to make us like Christ.
+ - In trying to count our many blessings the difficulty is not to find things to count, but to find time to enumerate them all.
+ - The man who would truly know God must give time to Him.
+ - A spiritual kingdom lies all about us, enclosing us, embracing us, altogether within reach of our inner selves, waiting for us to recognize it. God Himself is here awaiting our response to His presence. This eternal world will come alive to us the moment we begin to reckon upon its reality.
+ - Beauty is in the eye of the Creator.
+ - Faith in faith is faith astray.
+ - The main thing is this: we should never blame anyone or anything for our defeats. No matter how evil their intentions may be, they are altogether unable to harm us until we begin to blame them and use them as excuses for our own unbelief.
+ - The history of mankind will probably show that no people has ever risen above its religion, and man’s spiritual history will positively demonstrate that no religion has ever been greater than its idea of God.
+ - God is running the universe. We ought not think like scientists, but think like psalmists.
+
+500 quotes

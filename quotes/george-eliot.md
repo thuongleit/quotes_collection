@@ -1,0 +1,502 @@
+ - It is never too late to be what you might have been.
+ - Don’t judge a book by its cover.
+ - History repeats itself.
+ - A friend is one to whom one may pour out the contents of one’s heart, chaff and grain together, knowing that gentle hands will take and sift it, keep what is worth keeping, and with a breath of kindness, blow the rest away.
+ - What do we live for, if not to make life less difficult for each other?
+ - Go forward with joyful confidence.
+ - Animals are such agreeable friends – they ask no questions; they pass no criticisms.
+ - What greater thing is there for two human souls than to feel that they are joined – to strengthen each other – to be at one with each other in silent unspeakable memories.
+ - Adventure is not outside man; it is within.
+ - It is a narrow mind which cannot look at a subject from various points of view.
+ - The strongest principle of growth lies in the human choice.
+ - No man can be wise on an empty stomach.
+ - Failure after long perseverance is much grander than never to have a striving good enough to be called a failure.
+ - What loneliness is more lonely than distrust?
+ - I think I should have no other mortal wants, if I could always have plenty of music. It seems to infuse strength into my limbs and ideas into my brain. Life seems to go on without effort, when I am filled with music.
+ - Our dead are never dead to us, until we have forgotten them.
+ - No evil dooms us hopelessly except the evil we love, and desire to continue in, and make no effort to escape from.
+ - A fool or idiot is one who expects things to happen that never can happen.
+ - Any coward can fight a battle when he’s sure of winning; but give me the man who has the pluck to fight when he’s sure of losing.
+ - The important work of moving the world forward does not wait to be done by perfect men.
+ - Friendship is the inexpressible comfort of feeling safe with a person, having neither to weigh thoughts nor measure words.
+ - Our deeds determine us, as much as we determine our deeds.
+ - Cruelty, like every other vice, requires no motive outside of itself; it only requires opportunity.
+ - Only in the agony of parting do we look into the depths of love.
+ - It is a common sentence that knowledge is power; but who hath duly considered or set forth the power of ignorance? Knowledge slowly builds up what ignorance in an hour pulls down.
+ - We could never have loved the earth so well if we had had no childhood in it.
+ - It is always good to know, if only in passing, charming human beings. It refreshes one like flowers and woods and clear brooks.
+ - The beauty of a lovely woman is like music.
+ - Pride helps us; and pride is not a bad thing when it only urges us to hide our own hurts – not to hurt others.
+ - Hear Everything and judge for yourself.
+ - But what we call our despair is often only the painful eagerness of unfed hope.
+ - Iteration, like friction, is likely to generate heat instead of progress.
+ - No great deed is done by falterers who ask for certainty.
+ - It is as useless to fight against the interpretations of ignorance as to whip the fog.
+ - Keep true, never be ashamed of doing right.
+ - All meanings, we know, depend on the key of interpretation.
+ - Hold up your head! You were not made for failure, you were made for victory. Go forward with a joyful confidence.
+ - If we had a keen vision of all that is ordinary in human life, it would be like hearing the grass grow or the squirrel’s heart beat, and we should die of that roar which is the other side of silence.
+ - She was no longer struggling against the perception of facts, but adjusting herself to their clearest perception.
+ - The law and medicine should be very serious professions to undertake, should they not? People’s lives and fortunes depend on them.
+ - Falsehood is easy, truth so difficult.
+ - Receptiveness is a rare and massive power, like fortitude.
+ - You must love your work and not always be looking over the edge of it wanting your play to begin.
+ - Affection is the broadest basis of a good life.
+ - Say “I love you” to those you love. The eternal silence is long enough to be silent in, and that awaits us all.
+ - I will to make life less bitter for a few within my reach.
+ - Decide on what you think is right, and stick to it.
+ - The human heart finds nowhere shelter but in human kind.
+ - A peasant can no more help believing in a traditional superstition than a horse can help trembling when be sees a camel.
+ - There is one order of beauty which seems made to turn heads. It is a beauty like that of kittens, or very small downy ducks making gentle rippling noises with their soft bills, or babies just beginning to toddle.
+ - I flutter all ways, and fly in none.
+ - The pride of the body is a barrier against the gifts that purify the soul.
+ - Joy and sorrow are both my perpetual companions, but the joy is called Past and the sorrow Present.
+ - After all, the true seeing is within.
+ - That golden sky, which was the doubly blessed symbol of advancing day and of approaching rest.
+ - Those who trust us educate us.
+ - There is no private life which has not been determined by a wider public life.
+ - A woman’s hopes are woven of sunbeams; a shadow annihilates them.
+ - Fine old Christmas, with the snowy hair and ruddy face, had done his duty that year in the noblest fashion, and had set off his rich gifts of warmth and color with all the heightening contrast of frost and snow.
+ - For we all of us, grave or light, get our thoughts entangled in metaphors, and act fatally on the strength of them.
+ - It’s a father’s duty to give his sons a fine chance.
+ - A good horse makes short miles.
+ - Blessed is the influence of one true, loving human soul on another.
+ - Blessed is the man, who having nothing to say, abstains from giving wordy evidence of the fact.
+ - Life seems to go on without effort when I am filled with music.
+ - Sweet Truth is a queen proud and mighty – Her throne is in heaven above.
+ - We mortals, men and women, devour many a disappointment between breakfast and dinner-time; keep back the tears and look a little pale about the lips, and in answer to inquiries say, “Oh, nothing!” Pride helps; and pride is not a bad thing when it only urges us to hide our hurts – not to hurt others.
+ - A proud heart and a lofty mountain are never fruitful.
+ - I beg your pardon: correct English is the slang of prigs who write history and essays. And the strongest slang of all is the slang of poets.
+ - And, of course men know best about everything, except what women know better.
+ - I would not creep along the coast but steer Out in mid-sea, by guidance of the stars.
+ - I like not only to be loved, but also to be told I am loved.
+ - So our lives glide on: the river ends we don’t know where, and the sea begins, and then there is no more jumping ashore.
+ - Every man who is not a monster, a mathematician, or a mad philosopher, is the slave of some woman or other.
+ - In our spring-time every day has its hidden growths in the mind, as it has in the earth when the little folded blades are getting ready to pierce the ground.
+ - Justice is like the kingdom of God – it is not without us as a fact, it is within us as a great yearning.
+ - It is a wonderful subduer, this need of love-this hunger of the heart-as peremptory as that other hunger by which Nature forces us to submit to the yoke, and change the face of the world.
+ - The beginning of hardship is like the first taste of bitter food – it seems for a moment unbearable; yet, if there is nothing else to satisfy our hunger, we take another bite and find it possible to go on.
+ - Vague memories hang about the mind like cobwebs.
+ - There is a sort of jealousy which needs very little fire; it is hardly a passion, but a blight bred in the cloudy, damp despondency of uneasy egoism.
+ - Life began with waking up and loving my mother’s face.
+ - Perspective, as its inventor remarked, is a beautiful thing. What horrors of damp huts, where human beings languish, may not become picturesque through aerial distance!
+ - I’ve never any pity for conceited people, because I think they carry their comfort about with them.
+ - Effective magic is transcendent nature.
+ - A proud woman who has learned to submit carries all her pride to the reinforcement of her submission, and looks down with severe superiority on all feminine assumption as unbecoming.
+ - I carry my unwritten poems in cipher on my face!
+ - Rome – the city of visible history, where the past of a whole hemisphere seems moving in funeral procession with strange ancestral images and trophies gathered from afar.
+ - There is no despair so absolute as that which comes with the first moments of our first great sorrow, when we have not yet known what it is to have suffered and be healed, to have despaired and have recovered hope.
+ - Love has a way of cheating itself consciously, like a child who plays at solitary hide-and-seek; it is pleased with assurances that it all the while disbelieves.
+ - Our dead are never dead to us until we have forgotten them: they can be injured by us, they can be wounded; they know all our penitence, all our aching sense that their place is empty, all the kisses we bestow on the smallest relic of their presence.
+ - The beginning of an acquaintance whether with persons or things is to get a definite outline of our ignorance.
+ - People are almost always better than their neighbors think they are.
+ - Death was not to be a leap: it was to be a long descent under thickening shadows.
+ - The beginning of compunction is the beginning of a new life.
+ - Gossip is a sort of smoke that comes from the dirty tobacco-pipes of those who diffuse it: it proves nothing but the bad taste of the smoker.
+ - Every man’s work, pursued steadily, tends to become an end in itself, and so to bridge over the loveless chasms of his life.
+ - After all, people may really have in them some vocation which is not quite plain to themselves, may they not? They may seem idle and weak because they are growing. We should be very patient with each other, I think.
+ - Time, like money, is measured by our needs.
+ - We learn words by rote, but not their meaning; that must be paid for with our life-blood, and printed in the subtle fibres of our nerves.
+ - Plainness has its peculiar temptations quite as much as beauty.
+ - If troubles were put up to market, I’d sooner buy old than new. It’s something to have seen the worst.
+ - We look at the one little woman’s face we love, as we look at the face of our mother earth, and see all sorts of answers to our own yearnings.
+ - There is nothing that will kill a man so soon as having nobody to find fault with but himself.
+ - If I could only fancy myself clever, it would be better, but to be a failure of Nature and to know it is not a comfortable lot. It is the last lesson one learns, to be contented with one’s inferiority – but it must be learned.
+ - Let my body dwell in poverty, and my hands be as the hands of the toiler; but let my soul be as a temple of remembrance where the treasures of knowledge enter and the inner sanctuary is hope.
+ - I don’t want the world to give me anything for my books except money enough to save me from the temptation to write only for money.
+ - Perhaps the wind Wails so in winter for the summers dead, And all sad sounds are nature’s funeral cries For what has been and is not.
+ - Will not a tiny speck very close to our vision blot out the glory of the world, and leave only a margin by which we see the blot? I know no speck so troublesome as self.
+ - The best augury of a man’s success in his profession is that he thinks it the finest in the world.
+ - The happiest women, like the happiest nations, have no history.
+ - Poetry and art and knowledge are sacred and pure.
+ - Life is too precious to be spent in this weaving and unweaving of false impressions, and it is better to live quietly under some degree of misrepresentation than to attempt to remove it by the uncertain process of letter-writing.
+ - What sunshine is to flowers, smiles are to humanity.
+ - It is a very good quality in a man to have a trout-stream.
+ - One couldn’t carry on life comfortably without a little blindness to the fact that everything has been said better than we can put it ourselves.
+ - Leisure is gone, – gone where the spinning-wheels are gone, and the pack-horses, and the slow wagons, and the peddlers, who brought bargains to the door on sunny afternoons.
+ - It is always chilling, in friendly intercourse, to say you have no opinion to give.
+ - Childhood has no forebodings; but then, it is soothed by no memories of outlived sorrow.
+ - The reward of one duty is the power to fulfill another.
+ - What quarrel, what harshness, what unbelief in each other can subsist in the presence of a great calamity, when all the artificial vesture of our life is gone, and we are all one with each other in primitive mortal needs?
+ - Opposition may become sweet to a man when he has christened it persecution.
+ - There is hardly any contact more depressing to a young ardent creature than that of a mind in which years full of knowledge seem to have issued in a blank absence of interest or sympathy.
+ - An ingenious web of probabilities is the surest screen a wise man can place between himself and the truth.
+ - If I got places, sir, it was because I made myself fit for ’em. If you want to slip into a round hole, you must first make a ball of yourself; that’s where it is.
+ - Where Jack isn’t safe, Tom’s in danger.
+ - The years between fifty and seventy are the hardest. You are always being asked to do things, and yet you are not decrepit enough to turn them down.
+ - These gems have life in them: their colors speak, say what words fail of.
+ - Might, could, would – they are contemptible auxiliaries.
+ - Sane people did what their neighbors did, so that if any lunatics were at large, one might know and avoid them.
+ - There are some cases in which the sense of injury breeds not the will to inflict injuries and climb over them as a ladder, but a hatred of all injury.
+ - It will never rain roses: when we want to have more roses we must plant more trees.
+ - The darkest night that ever fell upon the earth never hid the light, never put out the stars. It only made the stars more keenly, kindly glancing, as if in protest against the darkness .
+ - To an old memory like mine the present days are but as a little water poured on the deep.
+ - Family likeness has often a deep sadness in it.
+ - I like not only to be loved, but also to be told that I am loved. I am not sure that you are of the same mind. But the realm of silence is large enough beyond the grave. This is the world of light and speech, and I shall take leave to tell you that you are very dear.
+ - The very truth hath a colour from the disposition of the utterer.
+ - The memory has as many moods as the temper, and shifts its scenery like a diorama.
+ - To manage men one ought to have a sharp mind in a velvet sheath.
+ - What makes life dreary is the want of a motive.
+ - A man falling into dark waters seeks a momentary footing even on sliding stones.
+ - A patronizing disposition always has its meaner side.
+ - Miss Brooke had that kind of beauty which seems to be thrown into relief by poor dress.
+ - With a single drop of ink for a mirror, the Egyptian sorcerer undertakes to reveal to any chance comer far-reaching visions of the past. This is what I undertake to do for you, reader.
+ - The strength of the donkey mind lies in adopting a course inversely as the arguments urged, which, well considered, requires as great a mental force as the direct sequence.
+ - Do we not all agree to call rapid thought and noble impulse by the name of inspiration? After our subtlest analysis of the mental process, we must still say that our highest thoughts and our best deeds are all given to us.
+ - I protest against any absolute conclusion.
+ - No story is the same to us after a lapse of time; or rather we who read it are no longer the same interpreters.
+ - We reap what we sow, but nature has love over and above that justice, and gives us shadow and blossom and fruit, that spring from no planting of ours.
+ - Solomon’s Proverbs, I think, have omitted to say, that as the sore palate findeth grit, so an uneasy consciousness heareth innuendos.
+ - Sympathetic people often don’t communicate well, they back reflected images which hide their own depths.
+ - A man deep-wounded may feel too much pain To feel much anger.
+ - It’s but little good you’ll do a-watering the last year’s crops.
+ - Hobbies are apt to run away with us, you know; it doesn’t do to be run away with. We must keep the reins.
+ - Selfish – a judgment readily passed by those who have never tested their own power of sacrifice.
+ - Our words have wings, but fly not where we would.
+ - That farewell kiss which resembles greeting, that last glance of love which becomes the sharpest pang of sorrow.
+ - There’s no disappointment in memory, and one’s exaggerations are always on the good side.
+ - Falsehood is so easy, truth so difficult. Even with no motive to be false, it is very hard to say the exact truth.
+ - Deep, unspeakable suffering may well be called a baptism, a regeneration, the initiation into a new state. Suffering can be likened to a baptism – the passing over the threshold of pain and grief and anguish to claim a new state of being.
+ - Anger and jealousy can no more bear to lose sight of their objects than love.
+ - In every parting there is an image of death.
+ - Delicious autumn! My very soul is wedded to it, and if I were a bird I would fly about the earth seeking the successive autumns.
+ - What novelty is worth the sweet monotony where everything is known, and loved because it is known?
+ - If Art does not enlarge men’s sympathies, it does nothing morally.
+ - It’s no use filling your pocket with money if you have got a hole in the corner.
+ - Speech is but broken light upon the depth Of the unspoken.
+ - God, immortality, duty – how inconceivable the first, how unbelievable the second, how peremptory and absolute the third.
+ - Every limit is a beginning as well as an ending.
+ - The responsibility of tolerance lies with those who have the wider vision.
+ - When God makes His presence felt through us, we are like the burning bush: Moses never took any heed what sort of bush it was – he only saw the brightness of the Lord.
+ - Strong souls Live like fire-hearted suns to spend their strength In farthest striving action; breathe more free In mighty anguish than in trivial ease.
+ - Shall we, because we walk on our hind feet, assume to ourselves only the privilege of imperishability?
+ - I desire no future that will break the ties with the past.
+ - Destiny stands by sarcastic with our dramatis personae folded in her hand.
+ - Our deeds still travel with us from afar, and what we have been makes us what we are.
+ - Oh, sir, the loftiest hopes on earth Draw lots with meaner hopes: heroic breasts, Breathing bad air, run risk of pestilence; Or, lacking lime-juice when they cross the Line, May languish with the scurvy.
+ - In the vain laughter of folly wisdom hears half its applause.
+ - Souls live on in perpetual echoes.
+ - The first sense of mutual love excludes other feelings; it will have the soul all to itself.
+ - A woman’s lot is made for her by the love she accepts.
+ - Net the large fish and you are sure to have the small fry.
+ - Those bitter sorrows of childhood! – when sorrow is all new and strange, when hope has not yet got wings to fly beyond the days and weeks, and the space from summer to summer seems measureless.
+ - Character is not cut in marble – it is not something solid and unalterable. It is something living and changing, and may become diseased as our bodies do.
+ - Life is like a game of whist. I don’t enjoy the game much; but I like to play my cards well, and see what will be the end of it.
+ - Best friend, my well-spring in the wilderness!
+ - Do we not all agree to call rapid thought and noble impulse by the name of inspiration?
+ - I’ll tell you what’s the greatest power under heaven, and that is public opinion-the ruling belief in society about what is right and what is wrong, what is honourable and what is shameful. That’s the steam that is to work the engines.
+ - All our ignorance brings us closer to death.
+ - All passion becomes strength when it has an outlet.
+ - There is no killing the suspicion that deceit has once begotten.
+ - It is good to be helpful and kindly, but don’t give yourself to be melted into candle grease for the benefit of the tallow trade.
+ - No soul is desolate as long as there is a human being for whom it can feel trust and reverence.
+ - Hurt, he’ll never be hurt – he’s made to hurt other people.
+ - Excellence encourages one about life generally; it shows the spiritual wealth of the world.
+ - As to people saying a few idle words about us, we must not mind that, any more than the old church steeple minds the rooks cawing about it.
+ - Among all forms of mistake, prophecy is the most gratuitous.
+ - What destroys us most effectively is not a malign fate but our own capacity for self-deception and for degrading our own best self.
+ - Nothing is so good as it seems beforehand.
+ - Imagination is a licensed trespasser: it has no fear of dogs, but may climb over walls and peep in at windows with impunity.
+ - The best fire doesna flare up the soonest.
+ - We long for an affection altogether ignorant of our faults. Heaven has accorded this to us in the uncritical canine attachment.
+ - But human experience is usually paradoxical, that means incongruous with the phrases of current talk or even current philosophy.
+ - The first condition of human goodness is something to love; the second, something to reverence.
+ - This is a puzzling world, and Old Harry’s got a finger in it.
+ - Often the soul is ripened into fuller goodness while age has spread an ugly film, so that mere glances can never divine the preciousness of the fruit.
+ - Friendships begin with liking or gratitude- roots that can be pulled up.
+ - Education is an asset no man can take away.
+ - A woman’s heart must be of such a size and no larger, else it must be pressed small, like Chinese feet; her happiness is to be made as cakes are, by a fixed recipe.
+ - Our passions do not live apart in locked chambers but dress in their small wardrobe of notions, bring their provisions to a common table and mess together, feeding out of the common store according to their appetite.
+ - Where women love each other, men learn to smother their mutual dislike.
+ - Men and women make sad mistakes about their own symptoms, taking their vague uneasy longings, sometimes for genius, sometimes for religion, and oftener still for a mighty love.
+ - The stars are golden fruit upon a tree all out of reach.
+ - It seems to me we can never give up longing and wishing while we are thoroughly alive. There are certain things we feel to be beautiful and good, and we must hunger after them.
+ - It is a vain thought to flee from the work that God appoints us, for the sake of finding a greater blessing, instead of seeking it where alone it is to be found – in loving obedience.
+ - Breed is stronger than pasture.
+ - Confound you handsome young fellows! You think of having it all your own way in the world. You don’t understand women. They don’t admire you half so much as you admire yourselves.
+ - Our impartiality is kept for abstract merit and demerit, which none of us ever saw.
+ - Art is the nearest thing to life; it is a mode of amplifying experience and extending our contact with our fellow men beyond the bounds of our personal lot.
+ - Whatever may be the success of my stories, I shall be resolute in preserving my incognito, having observed that a nom de plume secures all the advantages without the disagreeables of reputation.
+ - Human longings are perversely obstinate; and to the man whose mouth is watering for a peach, it is of no use to offer the largest vegetable marrow.
+ - Life is measured by the rapidity of change, the succession of influences that modify the being.
+ - Marriage must be a relation either of sympathy or of conquest.
+ - Among all the many kinds of first love, that which begins in childish companionship is the strongest and most enduring: when passion comes to unite its force to long affection, love is at its spring-tide.
+ - We have had an unspeakably delightful journey, one of those journeys which seem to divide one’s life in two, by the new ideas they suggest and the new views of interest they open.
+ - Mighty is the force of motherhood! It transforms all things by its vital heat.
+ - I’d sooner have one real grief on my mind than twenty false. It’s better to know one’s robbed than to think one’s going to be murdered.
+ - One can begin so many things with a new person! – even begin to be a better man.
+ - The devil tempts us not – ’tis we tempt him, Reckoning his skill with opportunity.
+ - The light can be a curtain as well as the darkness.
+ - I trust you as holy men trust God; you could do nought that was not pure and loving, though the deed might pierce me unto death.
+ - A suppressed resolve will betray itself in the eyes.
+ - For pain must enter into its glorified life of memory before it can turn into compassion.
+ - Perfect love has a breath of poetry which can exalt the relations of the least-instructed human beings.
+ - Childhood is only the beautiful and happy time in contemplation and retrospect: to the child it is full of deep sorrows, the meaning of which is unknown.
+ - Souls have complexions too: what will suit one will not suit another.
+ - Plain women he regarded as he did the other severe facts of life, to be faced with philosophy and investigated by science.
+ - The saints were cowards who stood by to see Christ crucified: they should have flung themselves Upon the Roman spears, and died in vain – The grandest death, to die in vain – for love Greater than sways the forces of the world!
+ - A man’s a man. But when you see a king, you see the work of many thousand men.
+ - How unspeakably the lengthening of memories in common endears our old friends!
+ - Miserliness is a capital quality to run in families; it’s the safe side for madness to dip on.
+ - The best part of a woman’s love is worship; but it is hard to her to be sent away with her precious spikenard rejected, and her long tresses, too, that were let fall, ready to soothe the wearied feet.
+ - Genius at first is little more than a great capacity for receiving discipline.
+ - My childhood was full of deep sorrows – colic, whooping-cough, dread of ghosts, hell, Satan, and a Deity in the sky who was angry when I ate too much plumcake.
+ - Nothing at times is more expressive than silence.
+ - Strange, that some of us, with quick alternate vision, see beyond our infatuations, and even while we rave on the heights, behold the wide plain where our persistent self pauses and awaits us.
+ - Susceptible persons are more affected by a change of tone that by unexpected words.
+ - Grant folly’s prayers that hinder folly’s wish, And serve the ends of wisdom.
+ - O the anguish of the thought that we can never atone to our dead for the stinted affection we gave them.
+ - Those only can thoroughly feel the meaning of death who know what is perfect love.
+ - Ignorant kindness may have the effect of cruelty; but to be angry with it as if it were direct cruelty would be an ignorant unkindness.
+ - It’s rather a strong check to one’s self-complacency to find how much of one’s right doing depends on not being in want of money.
+ - As leopard feels at home with leopard.
+ - He had the superficial kindness of a good-humored, self-satisfied nature, that fears no rivalry, and has encountered no contrarieties.
+ - We are overhasty to speak as if God did not manifest himself by our silent feeling, and make his love felt through ours.
+ - It is possible to have a strong self-love without any self-satisfaction, rather with a self-discontent which is the more intense because one’s own little core of egoistic sensibility is a supreme care.
+ - No compliment can be eloquent, except as an expression of indifference.
+ - It is seldom that the miserable of the world can help regarding their misery as a wrong inflicted by those who are less miserable.
+ - Would not love see returning penitence afar off, and fall on its neck and kiss it?
+ - We are all of us born in moral stupidity, taking the world as an udder to feed our supreme selves.
+ - Boots and shoes are the greatest trouble of my life.
+ - It is a sad weakness in us, after all, that the thought of a man’s death hallows him anew to us; as if life were not sacred too.
+ - Unwonted circumstances may make us all rather unlike ourselves: there are conditions under which the most majestic person is obliged to sneeze, and our emotions are liable to be acted on in the same incongruous manner.
+ - There is a mercy which is weakness, and even treason against the common good.
+ - Don’t you meddle with me, and I won’t meddle with you.
+ - If you are not proud of your cellar, there is no thrill of satisfaction in seeing your guest hold up his wineglass to the light and look judicial.
+ - Consequences are unpitying.
+ - You may try but you can never imagine what it is to have a man’s form of genius in you, and to suffer the slavery of being a girl.
+ - No man is matriculated to the art of life till he has been well tempted.
+ - Teach love, for that is what you are.
+ - Human feeling is like the mighty rivers that bless the earth: it does not wait for beauty – it flows with resistless force and brings beauty with it.
+ - I have the conviction that excessive literary production is a social offence.
+ - Every year strips us of at least one vain expectation, and teaches us to reckon some solid good in its stead.
+ - When you’ve been used to doing things, and they’ve been taken away from you, it’s as if your hands had been cut off, and you felt the fingers as are of no use to you.
+ - The years seem to rush by now, and I think of death as a fast approaching end of a journey-double and treble reason for loving as well as working while it is day.
+ - What is opportunity to a man who can’t use it.
+ - There is a great deal of unmapped country within us.
+ - I shall do everything it becomes me to do.
+ - The mother’s love is at first an absorbing delight, blunting all other sensibilities; it is an expansion of the animal existence.
+ - Her little butterfly soul fluttered incessantly between memory and dubious expectation.
+ - Quarrel? Nonsense; we have not quarreled. If one is not to get into a rage sometimes, what is the good of being friends?
+ - Kisses honeyed by oblivion.
+ - The perpetual mourner – the grief that can never be healed – is innocently enough felt to be wearisome by the rest of the world. And my sense of desolation increases. Each day seems a new beginning – a new acquaintance with grief.
+ - People glorify all sorts of bravery except the bravery they might show on behalf of their nearest neighbors.
+ - We are all humiliated by the sudden discovery of a fact which has existed very comfortably and perhaps been staring at us in private while we have been making up our world entirely without it.
+ - A prig is a fellow who is always making you a present of his opinions.
+ - The finest language is mostly made up of simple unimposing words.
+ - The golden moments in the stream of life rush past us, and we see nothing but sand; the angels come to visit us, and we only know them when they are gone.
+ - Wear a smile and have friends; wear a scowl and have wrinkles.
+ - But that intimacy of mutual embarrassment, in which each feels that the other is feeling something, having once existed, its effect is not to be done away with.
+ - Delicious autumn! My very soul is wedded to it.
+ - Don’t let us rejoice in punishment, even when the hand of God alone inflicts it. The best of us are but poor wretches, just saved from shipwreck. Can we feel anything but awe and pity when we see a fellow-passenger swallowed by the waves?
+ - To have suffered much is like knowing many languages. Thou hast learned to understand all.
+ - It is painful to be told that anything is very fine and not be able to feel that it is fine – something like being blind, while people talk of the sky.
+ - Errors look so very ugly in persons of small means -one feels they are taking quite a liberty in going astray; whereas people of fortune may naturally indulge in a few delinquencies.
+ - The difficult task of knowing another soul is not for young gentlemen whose consciousness is chiefly made up of their own wishes.
+ - Self-consciousness of the manner is the expensive substitute for simplicity.
+ - Some people are born to make life pretty, and others to grumble that it is not pretty enough.
+ - History, we know, is apt to repeat itself, and to foist very old incidents upon us with only a slight change of costume.
+ - We hand folks over to God’s mercy, and show none ourselves.
+ - We must not sit still and look for miracles; up and doing, and the Lord will be with thee. Prayer and pains, through faith in Christ Jesus, will do anything.
+ - The purifying influence of public confession springs from the fact, that by it the hope in lies is forever swept away, and the soul recovers the noble attitude of simplicity.
+ - The only failure one should fear, is not hugging to the purpose they see as best.
+ - One can say everything best over a meal.
+ - We have all got to exert ourselves a little to keep sane, and call things by the same names as other people call them by.
+ - If we use common words on a great occasion, they are the more striking, because they are felt at once to have a particular meaning, like old banners, or everyday clothes, hung up in a sacred place.
+ - I love not to be choked with other men’s thoughts.
+ - If the past is not to bind us, where can duty lie? We should have no law but the inclination of the moment.
+ - I am not resigned: I am not sure life is long enough to learn that lesson.
+ - There is a great deal of unmapped country within us which would have to be taken into account in an explanation of our gusts and storms.
+ - Our consciousness rarely registers the beginning of a growth within us any more than without us; there have been many circulation of the sap before we detect the smallest sign of the bud.
+ - Blameless people are always the most exasperating.
+ - In Rome it seems as if there were so many things which are more wanted in the world than pictures.
+ - How will you find good? It is not a thing of choice; it is a river that flows from the foot of the Invisible Throne and flows by the path of obedience.
+ - Impatient people, according to Bacon, are like the bees, and kill themselves in stinging others.
+ - I am not imposed upon by fine words; I can see what actions mean.
+ - The poverty of our imagination is no measure of say the world’s resources. Our posterity will no doubt get fuel in ways that we are unable to devise for them.
+ - Hatred is like fire, it makes even light rubbish deadly.
+ - Well, well, my boy, if good luck knocks at your door, don’t you put your head out at window and tell it to be gone about its business, that’s all.
+ - There is no feeling, perhaps, except the extremes of fear and grief, that does not find relief in music, – that does not make a man sing or play the better.
+ - We mortals, men and women, devour many a disappointment between breakfast and dinnertime.
+ - A woman dictates before marriage in order that she may have an appetite for submission afterwards.
+ - Habit is the beneficent harness of routine which enables silly men to live respectfully and unhappy men to live calmly.
+ - Oh may I join the choir invisible Of those immortal dead who live again In minds made better by their presence.
+ - There are many victories worse than a defeat.
+ - You should read history and look at ostracism, persecution, martyrdom, and that kind of thing. They always happen to the best men, you know.
+ - Resolve will melt no rocks. But it can scale them.
+ - A difference of taste in jokes is a great strain on the affections.
+ - The idea of duty – that recognition of something to be lived for beyond the mere satisfaction of self – is to the moral life what the addition of a great central ganglion is to animal life.
+ - Death is the only physician, the shadow of his valley the only journeying that will cure us of age and the gathering fatigue of years.
+ - In all private quarrels the duller nature is triumphant by reason of dullness.
+ - Power of generalizing gives men so much the superiority in mistake over the dumb animals.
+ - Particular lies may speak a general truth.
+ - It is always fatal to have music or poetry interrupted.
+ - I hold it a blasphemy to say that a man ought not to fight against authority: there is no great religion and no great freedom that has not done it, in the beginning.
+ - In the love of a brave and faithful man there is always a strain of maternal tenderness; he gives out again those beams of protecting fondness which were shed on him as he lay on his mother’s knee.
+ - Jealousy is never satisfied with anything short of an omniscience that would detect the subtlest fold of the heart.
+ - He who rules must fully humor as much as he commands.
+ - Love is frightened at the intervals of insensibility and callousness that encroach by little and little on the domain of grief, and it makes efforts to recall the keenness of the first anguish.
+ - A toddling little girl is a centre of common feeling which makes the most dissimilar people understand each other.
+ - When the soul is just liberated from the wretched giant’s bed of dogmas on which it has been racked and stretched ever since it began to think, there is a feeling of exultation and strong hope.
+ - Nature has her language, and she is not unveracious; but we don’t know all the intricacies of her syntax just yet, and in a hasty reading we may happen to extract the very opposite of her real meaning.
+ - The troublesome ones in a family are usually either the wits or the idiots.
+ - Our virtues are dearer to us the more we have had to suffer for them. It is the same with our children. All profound affection entertains a sacrifice. Our thoughts are often worse than we are, just as they are often better.
+ - There are robberies that leave man or woman forever beggared of peace and joy, yet kept secret by the sufferer.
+ - Even success needs its consolations.
+ - When one is grateful for something too good for common thanks, writing is less unsatisfactory than speech-one does not, at least, hear how inadequate the words are.
+ - I couldn’t live in peace if I put the shadow of a willful sin between myself and God.
+ - There is much pain that is quite noiseless; and vibrations that make human agonies are often a mere whisper in the roar of hurrying existence.
+ - Music sweeps by me as a messenger – Carrying a message that is not for me.
+ - A girl of eighteen imagines the feelings behind the face that has moved her with its sympathetic youth as easily as primitive people imagined the humors of the gods in fair weather. What is she to believe in if not in this vision woven from within?
+ - Those old stories of visions and dreams guiding men have their truth; we are saved by making the future present to ourselves.
+ - Old men’s eyes are like old men’s memories; they are strongest for things a long way off.
+ - Play not with paradoxes. That caustic which you handle in order to scorch others may happen to sear your own fingers and make them dead to the quality of things.
+ - There are answers which, in turning away wrath, only send it to the other end of the room, and to have a discussion coolly waived when you feel that justice is all on your own side is even more exasperating in marriage than in philosophy.
+ - To judge wisely, we must know how things appear to the unwise.
+ - Oh, child, men’s men: gentle or simple, they’re much of a muchness...
+ - There is heroism even in the circles of hell for fellow-sinners who cling to each other in the fiery whirlwind and never recriminate.
+ - It is hard to believe long together that anything is “worth while,” unless there is some eye to kindle in common with our own, some brief word uttered now and then to imply that what is infinitely precious to us is precious alike to another mind.
+ - The sons of Judah have to choose that God may again choose them. The divine principle of our race is action, choice, resolved memory.
+ - Under every guilty secret there is hidden a brood of guilty wishes, whose unwholesome infecting life is cherished by the darkness.
+ - Religion, like all things, begins with self, And naught is known, until one knows himself.
+ - A mother’s yearning feels the presence of the cherished child even in the degraded man.
+ - Steady work turns genius to a loom.
+ - Opinions: men’s thoughts about great subjects. Taste: their thoughts about small ones: dress, behavior, amusements, ornaments.
+ - No anguish I have had to bear on your account has been too heavy a price to pay for the new life into which I have entered in loving you.
+ - It was one of those dangerous moments when speech is at once sincere and deceptive – when feeling, rising high above its average depth, leaves flood-marks which are never reached again.
+ - There is no general doctrine which is not capable of eating out our morality if unchecked by the deep-seated habit of direct fellow-feeling with individual fellow-men.
+ - Education was almost always a matter of luck usually ill luck in those distant days.
+ - What is your religion? I mean-not what you know about religion but the belief that helps you most?
+ - We cannot reform our forefathers.
+ - There are new eras in one’s life that are equivalent to youth-are something better than youth.
+ - The intense happiness of our union is derived in a high degree from the perfect freedom with which we each follow and declare our own impressions.
+ - You know nothing about Hope, that immortal, delicious maiden forever courted forever propitious, whom fools have called deceitful, as if it were Hope that carried the cup of disappointment, whereas it is her deadly enemy, Certainty, whom she only es.
+ - Surely it is not true blessedness to be free of sorrow while there is sorrow and sin in the world. Sorrow is a part of love and love does not seek to throw it off.
+ - There are men whose presence infuses trust and reverence.
+ - The dew-bead Gem of earth and sky begotten.
+ - Many an irritating fault, many an unlovely oddity, has come of a hard sorrow.
+ - Does any one suppose that private prayer is necessarily candid – necessarily goes to the roots of action! Private prayer is inaudible speech, and speech is representative: who can represent himself just as he is, even in his own reflections?
+ - Starting a long way off the true point by loops and zigags, we now and then arrive just where we ought to be.
+ - There is so much to read and the days are so short! I get more hungry for knowledge every day, and less able to satisfy my hunger.
+ - In so complex a thing as human nature, we must consider it is hard to find rules without exception.
+ - What a wretched lot of old shrivelled creatures we shall be by-and-by. Never mind – the uglier we get in the eyes of others, the lovelier we shall be to each other; that has always been my firm faith about friendship.
+ - Having once embarked on your marital voyage, it is impossible not to be aware that you make no way and the sea is not within sight; that in fact, you are exploring an enclosed basin.
+ - What is opportunity to the man who can’t use it? An unfecundated egg, which the waves of time wash away into nonentity.
+ - I am not magnanimous enough to like people who speak to me without seeming to see me.
+ - There is no sense of ease like the ease we felt in those scenes where we were born.
+ - In the first moments when we come away from the presence of death, every other relation to the living is merged, to our feeling, in the great relation of a common nature and a common destiny.
+ - I like trying to get pregnant. I’m not so sure about childbirth.
+ - A medical man likes to make psychological observations, and sometimes in the pursuit of such studies is too easily tempted into momentous prophecy which life and death easily set at nought.
+ - Religion can only change when the emotions which fill it are changed; and the religion of personal fear remains nearly at the level of the savage.
+ - Wine and the sun will make vinegar without any shouting to help them.
+ - For what is love itself, for the one we love best? An enfolding of immeasurable cares which yet are better than any joys outside our love.
+ - The most solid comfort one can fall back upon is the thought that the business of one’s life is to help in some small way to reduce the sum of ignorance, degradation and misery on the face of this beautiful earth.
+ - Fatally powerful as religious systems have been, human nature is stronger and wider, and though dogmas may hamper they cannot absolutely repress its growth.
+ - People who write finely must not expect to be left in repose; they will be molested with thanks, at least.
+ - Acting is nothing more or less than playing. The idea is to humanize life.
+ - If you deliver an opinion at all, it is mere stupidity not to do it with an air of conviction and well-founded knowledge. You make it your own in uttering it, and naturally get fond of it.
+ - As they who make Good luck a god count all unlucky men.
+ - The fact is, both callers and work thicken – the former sadly interfering with the latter.
+ - Her own misery filled her heart – there was no room in it for other people’s sorrow.
+ - There was no gleam, no shadow, for the heavens, too, were one still, pale cloud; no sound or motion in anything but the dark river that flowed and moaned like an unresting sorrow.
+ - The worst of all hobbies are those that people think they can get money at. They shoot their money down like corn out of a sack then.
+ - The right word is always a power, and communicates its definiteness to our action.
+ - The tendency toward good in human nature has a force which no creed can utterly counteract, and which insures the ultimate triumph of that tendency over all dogmatic perversions.
+ - If a man goes a little too far along a new road, it is usually himself that he harms more than any one else.
+ - It is necessary to me, not simply to be but to utter, and I require utterance of my friends.
+ - Boots and shoes are the greatest trouble of my life. Everything else one can turn and turn about, and make old look like new; but there’s no coaxing boots and shoes to look better than they are.
+ - In high vengeance there is noble scorn.
+ - That by desiring what is perfectly good, even when we don’t quite know what it is and cannot do what we would, we are part of the divine power against evil – widening the skirts of light and making the struggle with darkness narrower.
+ - More helpful than all wisdom is one draught of simple human pity that will not forsake us.
+ - Perhaps his might be one of the natures where a wise estimate of consequences is fused in the fires of that passionate belief which determines the consequences it believes in.
+ - Unhappily the habit of being offensive ‘without meaning it’ leads usually to a way of making amends which the injured person cannot but regard as a being amiable without meaning it.
+ - It is well known to all experienced minds that our firmest convictions are often dependent on subtle impressions for which words are quite too coarse a medium.
+ - It is easy to say how we love new friends, and what we think of them, but words can never trace out all the fibers that knit us to the old.
+ - I like breakfast-time better than any other moment in the day. No dust has settled on one’s mind then, and it presents a clear mirror to the rays of things.
+ - We all remember epochs in our experience when some dear expectation dies, or some new motive is born.
+ - But what we strive to gratify, though we may call it a distant hope, is an immediate desire; the future estate for which men drudge up city alleys exists already in their imagination and love.
+ - I cherish my childish loves – the memory of that warm little nest where my affections were fledged.
+ - We have all our secret sins; and if we knew ourselves we should not judge each other harshly.
+ - There is hardly any mental misery worse than that of having our own serious phrases, our own rooted beliefs, caricatured by a charlatan or a hireling.
+ - We are all apt to believe what the world believes about us.
+ - How oft review; each finding, like a friend, Something to blame, and something to commend.
+ - The vainest woman is never thoroughly conscious of her beauty till she is loved by the man who sets her own passion vibrating in return.
+ - To know intense joy without a strong bodily frame, one must have an enthusiastic soul.
+ - Subtle impressions for which words are quite too coarse a medium.
+ - Who can know how much of his most inward life is made up of the thoughts he believes other men to have about him, until that fabric of opinion is threatened with ruin?
+ - Surely there was something taught her by this experience of great need; and she must be learning a secret of human tenderness and long-suffering, that the less erring could hardly know?
+ - A blush is no language; only a dubious flag – signal which may mean either of two contradictories.
+ - The tread Of coming footsteps cheats the midnight watcher Who holds her heart and waits to hear them pause, And hears them never pause, but pass and die.
+ - When one is five-and-twenty, one has not chalk-stones at one’s finger-ends that the touch of a handsome girl should be entirely indifferent.
+ - Ingenious philosophers tell you, perhaps, that the great work of the steam-engine is to create leisure for mankind. Do not believe them; it only creates a vacuum for eager thought to rush in.
+ - Brothers are so unpleasant.
+ - Vanity is as ill at ease under indifference as tenderness is under a love which it cannot return.
+ - Whether happiness may come or not, one should try and prepare one’s self to do without it.
+ - Memory, when duly impregnated with ascertained facts, is sometimes surprisingly fertile.
+ - Speech may be barren; but it is ridiculous to suppose that silence is always brooding on a nestful of eggs.
+ - You must learn to deal with the odd and even in life, as well as in figures.
+ - Pity that consequences are determined not by excuses but by actions!
+ - Her heart went out to him with a stronger movement than ever, at the thought that people would blame him. Maggie hated blame; she had been blamed her whole life, and nothing had come of it but evil tempers.
+ - Somebody put a drop under a magnifying-glass and it was all semicolons and parentheses.
+ - She hates everything that is not what she longs for.
+ - A good solid bit of work lasts.
+ - The sublime delight of truthful speech to one who has the great gift of uttering it, will make itself felt even through the pangs of sorrow.
+ - Deeds are the pulse of Time, his beating life, And righteous or unrighteous, being done, Must throb in after-throbs till Time itself Be laid in stillness, and the universe Quiver and breathe upon no mirror more.
+ - But how little we know what would make paradise for our neighbours! We judge from our own desires, and our neighbours themselves are not always open enough even to throw out a hint of theirs.
+ - Life would be no better than candlelight tinsel and daylight rubbish if our spirits were not touched by what has been.
+ - Saints and martyrs had never interested Maggie so much as sages and poets.
+ - College mostly makes people like bladders-just good for nothing but t’hold the stuff as is poured into ’em.
+ - I have no courage to write much unless I am written to. I soon begin to think that there are plenty of other correspondents more interesting – so if you all want to hear from me you know the conditions.
+ - Yes, Isaac Taylor, who has just published ‘The World of Mind,’ is the Isaac Taylor, author of the ‘Natural History of Enthusiasm.’ I dare say by this time there is a want of fatty particles in his brain.
+ - To think of the part one little woman can play in the life of a man, so that to renounce her may be a very good imitation of heroism, and to win her may be a discipline.
+ - The scornful nostril and the high head gather not the odors that lie on the track of truth.
+ - It had already occurred to him that books were stuff, and that life was stupid.
+ - I am feeling easy now, and you will well understand that after undergoing pain this ease is opening paradise. Invalids must be excused for being eloquent about themselves.
+ - Perhaps the most delightful friendships are those in which there is much agreement, much disputation, and yet more personal liking.
+ - I’m not one of those that can see the cat in the dairy and wonder what she’s there for.
+ - Trouble comes to us all in this life: we set our hearts on things which it isn’t God’s will for us to have, and then we go sorrowing.
+ - The desire to conquer is itself a sort of subjection.
+ - There are various orders of beauty, causing men to make fools of themselves in various styles.
+ - There’s good chances and bad chances, and nobody’s luck is pulled only by one string.
+ - A bachelor’s children are always young: they’re immortal children – always lisping, waddling, helpless, and with a chance of turning out good.
+ - The egoism which enters into our theories does not affect their sincerity; rather, the more our egoism is satisfied, the more robust is our belief.
+ - In the man whose childhood has known caresses and kindness, there is always a fiber of memory that can be touched to gentle issues.
+ - Beauty is part of the finished language by which goodness speaks.
+ - A picture of human life such as a great artist can give, surprises even the trivial and the selfish into that attention to what is apart from themselves, which may be called the raw material of moral sentiment.
+ - There is only one failure in life possible, and that is not to be true to the best one knows.
+ - I think I dislike what I don’t like more than I like what I like.
+ - We judge other according to results; how else? – not knowing the process by which results are arrived at.
+ - But, bless us, things may be lovable that are not altogether handsome, I hope?
+ - The best travel is that which one can take by one’s own fireside. In memory or imagination.
+ - One must be poor to know the luxury of giving!
+ - In poor Rosamond’s mind there was not room enough for luxuries to look small in.
+ - It is a wonderful subduer-this need of love, this hunger of the heart.
+ - I take a dose of mathematics every day to prevent my brain from becoming quite soft.
+ - Knowledge slowly builds up what Ignorance in an hour pulls down.
+ - Eros has degenerated; he began by introducing order and harmony, and now he brings back chaos.
+ - A supreme love, a motive that gives a sublime rhythm to a woman’s life, and exalts habit into partnership with the soul’s highest needs, is not to be had where and how she wills.
+ - Enveloped in a common mist, we seem to walk in clearness ourselves, and behold only the mist that enshrouds others.
+ - Little children are still the symbol of the eternal marriage between love and duty.
+ - What a different result one gets by changing the metaphor!
+ - Men outlive their love, but they don’t outlive the consequences of their recklessness.
+ - So shall I join the choir invisible Whose music is the gladness of the world.
+ - Nature repairs her ravages, – repairs them with her sunshine and with human labor.
+ - Our vanities differ as our noses do: all conceit is not the same conceit, but varies in correspondence with the minutiae of mental make in which one of us differs from another.
+ - Every woman is supposed to have the same set of motives, or else to be a monster.
+ - It’s well known there’s always two sides, if no more.
+ - There is no sorrow I have thought more about than that-to love what is great, and try to reach it, and yet to fail.
+ - Better a false belief than no belief at all.
+ - I think I should have no other mortal wants, if I could always have plenty of music.
+ - One soweth and another reapeth is a verity that applies to evil as well as good.
+ - But certain winds will make men’s temper bad.
+ - When you see fair hair Be pitiful.
+ - When I married Humphrey I made up my mind to like sermons, and I set out by liking the end very much. That soon spread to the middle and the beginning, because I couldn’t have the end without them.
+ - Things don’t happen because they’re bad or good, else all eggs would be addled or none at all, and at the most it is but six to the dozen. There’s good chances and bad chances, and nobody’s luck is pulled only by one string.
+ - The commonest man, who has his ounce of sense and feeling, is conscious of the difference between a lovely, delicate woman and a coarse one. Even a dog feels a difference in her presence.
+ - Awful Night! Ancestral mystery of mysteries.
+ - I am open to conviction on all points except dinner and debts. I hold that the one must be eaten and the other paid.
+ - Human experience is usually paradoxical.
+ - The select natures who pant after the ideal, and find nothing in pantaloons or petticoats great enough to command their reverence and love, are curiously in unison with the narrowest and pettiest.
+ - Half the sorrows of women would be averted if they could repress the speech they know to be useless-nay, the speech they have resolved not to utter.
+
+500 quotes

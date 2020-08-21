@@ -1,0 +1,39 @@
+ - Don’t look for excuses to lose. Look for excuses to win.
+ - I don’t exaggerate – I just remember big.
+ - I am a millionaire today and my wife deserves all of the credit. Before I met her I was a multi-millionaire.
+ - I’m getting so old, I don’t even buy green bananas anymore.
+ - No one has as much luck around the greens as one who practices a lot.
+ - A golf ball is like a clock. Always hit it at 6 o’clock and make it go toward 12 o’clock. But make sure you’re in the same time zone.
+ - I’m playing like Tarzan-and scoring like Jane.
+ - The sweetest two words are ‘next time.’ The sourest word is ‘if.’
+ - Putting isn’t golf, greens should be treated almost the same as water hazards: you land on them, then add two strokes to your score.
+ - Remember you have to be comfortable. Golf is not a life or death situation. It’s just a game and should be treated as such. Stay loose.
+ - I read the greens in Spanish, but I putt in English.
+ - They claim red meat is bad for you. But I never saw a sick-looking tiger.
+ - Playing golf is not hot work. Cutting sugar cane for a dollar a day – that’s hot work. Hotter than my first wrist watch.
+ - Somebody give me a banana. I’m playing like a monkey, so I might as well eat like one.
+ - I don’t fear death, but I sure don’t like those three-footers for par.
+ - I have 13 dependents. All of them have 140 IQ or better, except me. I’m under 100 IQ, and I support them all.
+ - Jack Nicklaus is a legend in his spare time.
+ - When you’re having trouble and topping the ball, it means the ground is moving on you.
+ - Maintain a childhood enthusiasm for the game of golf.
+ - Golf is the most fun you can have with out taking your clothes off.
+ - When a man retires, his wife gets twice the husband but only half the income.
+ - After all these years, it’s still embarrassing for me to play on the American golf tour. Like the time I asked my caddie for a sand wedge and he came back ten minutes later with a ham on rye.
+ - I’ve heard people say putting is 50 percent technique and 50 percent mental. I really believe it is 50 percent technique and 90 percent positive thinking, see, but that adds up to 140 percent, which is why nobody is 100 percent sure how to putt.
+ - He told me just to keep the ball low.
+ - The first time I played the Masters, I was so nervous I drank a bottle of rum before I teed off. I shot the happiest 83 of my life.
+ - Golf is the only sport that a professional can enjoy playing with his friends.
+ - I never prayed that I would make a putt. I prayed that I would react well if I missed.
+ - If you buy a book on golf instruction buy the thinnest book you can find. The thinner the book, chances are the easier and more elementary the instruction. It can do one of two things: help you more or hurt you less. Both are good compared to the alternative.
+ - Then Lee Trevino and Jack Nicklaus come in. I’ll caddie for Jack.
+ - Only fools live in the past or carry envy to the present.
+ - Take less time to read the scorecard and more time to read the hole.
+ - I was on the dance floor but I couldn’t hear the band.
+ - Red meat is not bad for you. Now blue-green meat, that’s bad for you!
+ - When Lee and Jack win, it is good for golf. When I win, it is better.
+ - Golf is a thinking man’s game. You can have all the shots in the bag, but if you don’t know what to do with them, you’ve got troubles.
+ - When I used to gamble, I looked for players with head covers on their irons. Those guys I could beat.
+ - Trevino is in a league by himself. We don’t even count him. We figure when you come in second, you’re a winner.
+
+37 quotes

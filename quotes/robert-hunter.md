@@ -1,0 +1,36 @@
+ - Ain’t no time to hate, barely time to wait.
+ - Once in awhile you get shown the light, in the strangest of places if you look it right.
+ - Without love in a dream it will never come true.
+ - Well, the first days are the hardest days, don’t you worry anymore. When life looks like Easy Street there is danger at your door.
+ - Inspiration, move me brightly, light the song with sense and color, hold away despair.
+ - Wake up to find out that you are the eyes of the world.
+ - The storyteller makes no choice, soon you will not hear his voice, his job is to shed light, and not to master.
+ - Walk out of any doorway feel your way, feel your way like the day before Maybe you’ll find direction around some corner where it’s been waiting to meet you.
+ - Let there be songs to fill the air.
+ - You who choose to lead must follow. But if you fall, you fall alone.
+ - The sky was yellow and the sun was blue...
+ - Destroy yourself physically and morally and insist that all true brothers do likewise as an expression of unity.
+ - Crippled but free, I was blind all the time I was learning to see.
+ - One man gathers what another man spills.
+ - It’s better to wear seaweed socks than stick a melon in your brother’s ear.
+ - Don’t waste the breath to save your face, When you have done your best, And even more is asked of you, Let fate decide the rest.
+ - Wake up to find out that you are the eyes of the world, but the heart has its beaches, its homeland, and thoughts of its own. Wake now, discover that you are the song that the morning brings, but the heart has its seasons its evenings, and songs of its own.
+ - Sometimes we live no particular way but our own.
+ - Let my inspiration flow, in token lines suggesting rhythm, that will not forsake me, till my tale is told and done.
+ - But I would rather be with you, somewhere in San Francisco on a back porch in July, just looking up to Heaven, at this crescent in the sky.
+ - When I was just a little young boy, Papa said Son, you’ll never get far, I’ll tell you the reason if you want to know, ’cause child of mine, there isn’t really very far to go.
+ - There are things you can replace, and others you cannot. The time has come to weigh those things, this space is getting hot.
+ - In wickedness of pride is lost the light to understand how little grace is earned and how much given.
+ - Outside major darkness where the circle is complete there’s no fear that lovers born will ever fail to meet.
+ - But never give your love, my friend, Unto a foolish heart.
+ - The best architects feel it to be their duty to make the path to the hole as free as possible from annoying difficulties for the less skillful golfers, while at the same time presenting to the scratch players a route calling for the best shots at their command.
+ - Poised for flight, Wings spread bright, Spring from night into the Sun.
+ - Everything you gather is just one that you can lose.
+ - At the top of the cycle you write policies for everybody, no matter how bad, and at the bottom you cancel everybody, no matter how good. It’s a manic-depressive cycle.
+ - Being in a floodplain is like sitting down in a bathtub.
+ - I feel I’ve got 10 books in me.
+ - There are times when you get hit upon, Try hard but you cannot give. Other times you’d gladly part, With what you need to live.
+ - When you get ready to vote, make sure you know what you are doing.
+ - Counting stars by candlelight all are dim but one is bright; the spiral light of Venus rising first and shining best, from the northwest corner of a brand-new crescent moon crickets and cicadas sing a rare and different tune.
+
+34 quotes

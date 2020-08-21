@@ -1,0 +1,54 @@
+ - You miss 100% of the shots you don’t take.
+ - The day I stop giving is the day I stop receiving. The day I stop learning is the day I stop growing. You miss 100% of the shots you don’t take.
+ - A good hockey player plays where the puck is. A great hockey player plays where the puck is going to be.
+ - Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy.
+ - Maybe it wasn’t the talent the Lord gave me-maybe it was the passion.
+ - Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don’t take the shot.
+ - No matter who you are, we’re creatures of habit. The better your habits are, the better they will be in pressure situations.
+ - I heard people say, ‘Why would he want to do this?’ My answer is ‘Why not?’ It is what I love. It’s what I know.
+ - I don’t think any one person will ever be bigger than the game.
+ - I knew at a young age, whether I was playing baseball or hockey or lacrosse, that my teammates were counting on me, whether it be to strike the last batter out in a baseball game or score a big goal in a hockey game.
+ - The highest compliment that you can pay me is to say that I work hard every day, that I never dog it.
+ - The greatest thing about playing obviously is winning, and you can’t replace that experience with anything.
+ - I don’t like my hockey sticks touching other sticks, and I don’t like them crossing one another, and I kind of have them hidden in the corner. I put baby powder on the ends. I think it’s essentially a matter of taking care of what takes care of you.
+ - I couldn’t beat people with my strength; I don’t have a hard shot; I’m not the quickest skater in the league. My eyes and my mind have to do most of the work.
+ - One hundred percent of shots not taken don’t go in.
+ - When I was 5 and playing against 11-year-olds, who were bigger, stronger, faster, I just had to figure out a way to play with them.
+ - People talk about skating, puck handling and shooting, but the whole sport is angles and caroms, forgetting the straight direction the puck is going, calculating where it will be directed, factoring in all the interruptions. Basically, my whole game is angles.
+ - Hockey is a unique sport in the sense that you need each and every guy helping each other and pulling in the same direction to be successful.
+ - You’ll never catch me bragging about goals, but I’ll talk all you want about my assists.
+ - The Power of WHO provides great lessons about how to succeed in business and in life. If you surround yourself with quality people and great friends, the sky’s the limit.
+ - I played everything. I played lacrosse, baseball, hockey, soccer, track and field. I was a big believer that you played hockey in the winter and when the season was over you hung up your skates and you played something else.
+ - Not doing it is certainly the best way to not getting it.
+ - I have absolutely no complaints about my life. But people think I got handed everything, all this kind of fell in my lap, that I was just God-gifted with all this talent. I wanted people to realize it’s a lot tougher than just waking up one day and you’re in the NHL.
+ - If I had to pick three players to start a franchise, I’d choose Hasek, Peter Forsberg and Eric Lindros.
+ - When emotions are high, things are said, things are done. Ultimately, these players want to play. I know too many of them love the game too much.
+ - Skating alone is an art. Doing it on a substance? I don’t know. That’s got to be tough.
+ - There’s no perfect coach in the world. Coaches are human, too. Mistakes are made. But, fundamentally, if you’re sound, you eliminate as many mistakes as possible.
+ - I think sports for kids is the greatest thing in the world because it teaches you how to share, about winning and losing and pressure. But I don’t think you should force your kid to become a professional athlete.
+ - Thankfully, in my youth I had the best financial advisor a son could ask for: my dad Walter. When I got that first signing bonus in 1978, Dad took my cheque, announced, ‘This is what we’re going to do,’ and bought an annuity with it.
+ - One of the key qualities that you need to be a great hockey player is fantastic anticipation and feel for the game – if you know where the puck is going before it is hit, that is half the battle.
+ - At the end of the day everybody lost. We almost crippled our industry. It was very disappointing what happened.
+ - Most people marry their mother. I married my father.
+ - He brings something special. I don’t know what it is, but if you ask him, you couldn’t understand his answer.
+ - Listen, everything I have in my life is because of the NHL and because of hockey, and I love the game and I loved every minute of being a player, I loved coaching, I loved being involved in the NHL.
+ - We’re in a tough situation because of teenage children, and then we have a 2-year-old and a 5-year-old, so my family and my responsibilities is sort of a juggle.
+ - I wasn’t naturally gifted in terms of size and speed; everything I did in hockey I worked for, and that’s the way I’ll be as a coach.
+ - It’s kind of ironic when I broke in at 17, I was told I was too small, too slow and I wouldn’t make the NHL.
+ - The only shot I ALWAYS miss, is the one I don’t take!
+ - Hullie’s a lot like a garbage can. You step on the pedal with your foot and the top opens up.
+ - I’m very proud of our NHL players. I think they all handle themselves extremely well and they all work really hard.
+ - It’s an honour and a thrill and a privilege just to play in the NHL.
+ - By no means could I play at the level of these kids who play in the NHL now but as 50-year-olds go, I feel really good and I feel blessed that I’m still healthy.
+ - It’s just amazing how many companies suddenly want you to hold up their products after you’ve held up the Stanley Cup.
+ - Growing up, I was always the small guy.
+ - People in general want to build somebody up and then try to knock them down. They always root for the underdog.
+ - Everything I did in hockey, I worked for.
+ - I’m probably the only guy in hockey who can win a scoring title and everybody is saying I had a bad year. I don’t worry about it.
+ - And people who know me would tell you that away from hockey I’m really not that competitive.
+ - A lot of times, I can turn and pass without even looking.
+ - When I broke into professional hockey at 17 I was told that I was too small and too slow and I wouldn’t make the NHL. Now it’s kind of flip-flopped and the sense is I can’t be a good coach because I was a great athlete.
+ - My kids are no different than anyone else’s – they tend to disagree with everything I say!
+ - Eight days ago, we were the toast of the town. Eight days later we’re Thanksgiving turkeys.
+
+52 quotes

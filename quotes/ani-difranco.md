@@ -1,0 +1,218 @@
+ - I don’t need anyone to hold me, I can hold my own.
+ - I know there is strength in the differences between us. I know there is comfort where we overlap.
+ - The world is my oyster. The road is my home. And I know that I’m better off Alone.
+ - God help you if you are a phoenix and you dare to rise up from the ash a thousand eyes will smolder with jealousy while you are just flying past.
+ - I am a work in progress Dressed in the fabric of a world unfolding Offering me intricate patterns of questions Rhythms that never come clean And strengths that you still haven’t seen.
+ - Smile pretty and watch your back.
+ - But as bad as I am, I’m proud of the fact that I’m worse than I seem.
+ - Let’s grow old and die together. Let’s do it now.
+ - I am 32 flavors and then some.
+ - I envy your ignorance, I hear that it’s bliss.
+ - I’m an all powerful amazon warrior, not just some sniveling girl.
+ - Let’s show them all how it’s done, let’s do it all imperfectly.
+ - I walk like I’m on a mission ’cause that’s the way I groove. I got more and more to do and less and less to prove.
+ - Any tool is a weapon if you hold it right.
+ - What doesn’t bend, breaks.
+ - The world owes us nothing; we owe each other the world.
+ - I will not be afraid to let my talent shine.
+ - I don’t take good pictures ’cause I have the kind of beauty that moves.
+ - Squint your eyes and look closer I’m not between you and your ambition I am a poster girl with no poster I am thirty-two flavors and then some And I’m beyond your peripheral vision So you might want to turn your head Cause someday you might find you’re starving and eating all of the words you said.
+ - I’d rather suffer the consequences of truth than of silence.
+ - I am a work in progress dressed in the fabric of a world unfolding.
+ - In any marginalized community, whether people identify themselves or not affects us all.
+ - Maybe you can keep me from never being happy, but you’re not going to stop me from HAVING FUN!
+ - Those who call the shots are never in the line of fire.
+ - If you’re not angry, then you’re just stupid, you don’t care. How else can you react when something’s so unfair?
+ - What makes you so lavish that you can afford to spend every sober moment feeling angry and bored?
+ - Goldfish have no memory, I guess their lives are much like mine. And the little plastic castle is a surprise everytime.
+ - Every time I say something they find hard to hear, they chalk it up to my anger, and never to their own fear.
+ - When I was four years old they tried to test my IQ, they showed me this picture of three oranges and a pear. They asked me which one is different and does not belong; they taught me different was wrong.
+ - There’s a paradox in every paradigm.
+ - I cannot name this, I cannot explain this, and I really don’t want to so just call me shameless.
+ - Why do you think I write these feminist songs, to try and teach myself to respect myself. You know, it’s not because I’m a hero.
+ - Maybe we are both good people who’ve done some bad things.
+ - Actually I don’t know if honesty is a strength or some kind of weakness.
+ - Some people wear their heart up on their sleeve. I wear mine underneath my right pant leg, strapped to my boot.
+ - Taken out of context I must seem so strange.
+ - All the wrong people have the power of suggestion and the freedom of the press is meaningless if nobody asks a question.
+ - You’re trying to fight gravity on a planet that insists that love is like falling, and falling is like this.
+ - Somedays the line I walk turns out to be straight – Other days the line tends to deviate.
+ - I mean, playing music at home and writing and hanging out with my guitar is kind of medicinal for me, but when I bring the songs to people on stage, it’s very joyous.
+ - I don’t always feel lucky, but I’m smart enough to try.
+ - My songs are just little letters to me.
+ - When everything else seems unclear, at least I’ll know I do it for the joy it brings.
+ - It’s not important to be defined, it’s only important to use your time well.
+ - Art is why I get up in the morning but my definition ends there. You know I don’t think its fair that I’m living for something I can’t even define.
+ - If you don’t live what you sing about, your mirror is gonna fade.
+ - You broke me bodily. The heart ain’t the half of it, And I’ll never learn to laugh at it In my good natured way. In fact, I’m laughing less in general, But I learned a lot at my own funeral. And I knew you’d be the death of me, So I guess that’s the price I pay.
+ - I turned my pain into art and my hard work into a career. Helping myself has helped others. helping others has helped me.
+ - We are wise women, we are giggling girls. We both carry a smile to show when we’re pleased, we both carry a switchblade in our sleeves.
+ - We are taught to view pain as an enemy, not a teacher. But pain is the right hand of growth and transformation. Pain is in the history of all human wisdom.
+ - I don’t care if they eat me alive, I’ve got better things to do then survive.
+ - I know men are delicate origami creatures who need women to unfold them, hold them when they cry. But I am tired of being your savior and I am tired of telling you why.
+ - A little bird told me that jumping is easy and the falling is fun, right up until you hit sidewalk shivering and stunned.
+ - If I’m gonna go down I’m gonna do it with style. You won’t hear me surrender, you won’t hear me confess cause you’ve left me with nothing but I have worked with less.
+ - Patriarchy is like the elephant in the room that we don’t talk about, but how could it not affect the planet radically when it’s the superstructure of human society.
+ - You are so lame. You always disappoint me. It’s kind of like our running joke but it’s really not funny and I just want you to live up to the image of you I create.
+ - I just hope it was okay, I know it wasn’t perfect, I hope in the end we can laugh and say it was all worth it.
+ - And this vague little smile is my all purpose expression the meaning of which I will leave to your discretion.
+ - Life is a sleazy stranger, who looks vaguely familiar; flirting with a bimbo named disaster at the end of the bar.
+ - Who says I like right angles? These are not my laws, these are not my rules.
+ - To split yourself in two is just the most radical thing you can do.
+ - Birth is the epicenter of women’s power.
+ - Privilege is a headache, that you don’t know that you don’t have.
+ - I can jump ship and swim – that the ocean will hold me, that there’s got to be more than this boat I’m in.
+ - When I need to wipe my face, I use the back of my hand, And I like to take up space just because I can, And I use my dress to wipe up my drink. I care less and less what people think.
+ - There’s a crowd of people harbored in each person There are so many roles that we play.
+ - God forbid you be an ugly girl, ’course too pretty is also your doom, ’cause everyone harbors a secret hatred for the prettiest girl in the room.
+ - You rhapsodize about beauty, and my eyes glaze. Everything that I love is ugly. I mean really, you would be amazed. Just do me a favor, it’s the least that you can do, just don’t treat me like I am something that happened to you.
+ - In a man’s world, I am a woman by birth and after 19 times around I have found – they will stop at nothing once they know what you are worth.
+ - I always wanted to be commander-in-chief of my one-woman army, But I can envision the mediocrity of my finest hour.
+ - Up up up up up up points the spire of the steeple but god’s work isn’t done by god it’s done by people.
+ - People used to make records, as in the record of an event, the event of people playing music in a room, and now everything’s cross-marketing, its about sunglasses and shoes, or guns and drugs that you choose.
+ - You can’t start with imbalance and end with peace, be that in your own body, in an ecosystem or between a government and its people. What we need to strive for is not perfection, but balance.
+ - If you like it, let it be, and if you don’t please do the same.
+ - I would like to perfect the art of being studiously aloof.
+ - Strangers are exciting, their mystery never ends. But, there’s nothing like looking at your own history in the faces of your friends.
+ - It seems that different people have an idea of what I am, and what I should be. And then there’s me.
+ - When I look down, I miss all the good stuff And when I look up, I just trip over things...
+ - I am not a pretty girl. I don’t want to be a pretty girl. No, I want to be more than a pretty girl.
+ - The windows of my soul are made of one-way glass, don’t bother looking into my eyes if there’s something you want to know, just ask.
+ - Just let me go, we have to be able to criticize what we love, to say what we have to say ’cause if you’re not trying to make something better, then as far as I can tell, you are just in the way.
+ - Stepped out into the cold, collar high, under the slate gray sky. The air was smoking and the streets were dry, and I wasn’t joking when I said goodbye.
+ - Outside sleep’s open window, between the drops of rain, history is writing a recipe book for every earthly pain.
+ - I’m the color me happy girl, Miss live and let live. And when they’re out for blood, I always give.
+ - I’ll walk the plank and I’ll jump with a smile, cause if I’m gonna go down I’m gonna do it with style.
+ - If you want to challenge the system, don’t go to bed with it.
+ - I love all those great ‘f’ words – feminism, folk music...
+ - People talk about my image like I come in two dimensions, like lipstick is a sign of my declining mind, like what I happen to be wearing the day that someone takes my picture is my new statement for all womankind.
+ - I always feel I have to take a stand, And there’s always someone on hand To hate me for standing there. I always feel I have to open my mouth, And every time I do, I offend someone, somewhere.
+ - I know the biggest crime is just to throw up your hands and say ‘This has nothing to do with me, I just want to live as comfortably as I can.’
+ - We get a little further from perfection, each year on the road, I guess that’s what they call character, I guess that’s just the way it goes, better to be dusty than polished, like some store window mannequin, why don’t you touch me where i’m rusty, let me stain your hands.
+ - Life is a B Movie: it’s stupid and it’s strange, it’s a directionless story, the dialogue is lame, but in the ‘he said she said’ sometimes there’s some poetry, if you turn your back long enough and let it happen naturally.
+ - When you sit right down in the middle of yourself you’re gonna wanna have a comfortable chair.
+ - Sometimes the beauty is easy. Sometimes you don’t have to try at all. Sometimes you can hear the wind blow in a handshake. Sometimes there’s poetry written right on the bathroom wall.
+ - I seriously hate pop music and all things super-commercial.
+ - Art may imitate life, but life imitates TV.
+ - I am writing graffiti on your body. I am drawing the story of how hard we tried.
+ - I’d rather be able to face myself in the bathroom mirror than be rich and famous.
+ - Maybe you don’t like your job, maybe you didn’t get enough sleep, well nobody likes their job, nobody got enough sleep. Maybe you just had the worst day of your life, but you know, there’s no escape, there’s no excuse, so just suck up and be nice.
+ - Words are hotter than flames. Words are wetter than water.
+ - We have a complete void of progressive politics in this country right now. The will of the people goes ignored and unrealized. I’m searching for the people that can enter the political system, a strong third party. We need to consolidate.
+ - I do believe that music has an intense power to connect us together, to inspire us to become ourselves.
+ - Self-Preservation is a full-time occupation.
+ - I know my mind is made of matter but I need to know exactly what is the matter at it’s core? Because my heart is just a muscle and simply put, it’s sore.
+ - I’m sounding out the silence, avoiding all the words.
+ - I was attracted to a lot of different art forms – dancing, painting. But there’s something about music that people hold so close. It’s such a powerful art form, and that’s why I live for it.
+ - I still define myself by the places that I’ve been.
+ - Someone’s got to be interested in how I feel, just because I’m here and I’m real.
+ - While out in TV Nation, under darkening skies, the resistance is just waiting to be organized.
+ - You’ve got your whole life to do something, And that’s not very long. So why don’t you give me a call When you’re willing to fight For what you think is real, For what you think is right.
+ - I used to be a superhero; no one could touch me, not even myself. You are like a phone booth I somehow stumbled into, and now look at me – I am just like everybody else.
+ - We negotiate with chaos for some sense of satisfaction.
+ - I did not design this game; I did not name the stakes. I just happen to like apples; and I am not afraid of snakes.
+ - I’m searching, as we all are, for ways to feel good about myself. Certainly, looking in the mirror doesn’t do it!
+ - A good brain ain’t diddley, if you don’t have the facts.
+ - Lying in bed, you know, you don’t seem so tall.
+ - I’ve been saying the Occupy Movement has got the ball rolling, and now we need to take the fight to the great indoors!
+ - I had a little bit of resistance to the idea of taking energy away from my work, and the baby comes along and, lo and behold, that’s exactly what happens.
+ - You’ve decided to love me for eternity, I’m still deciding who I want to be today.
+ - Virtue is relative at best, there’s nothing worse than a sunset when your driving due West.
+ - I think I’m a very solitary person. To actually not be anonymous is a bit claustrophobic for me.
+ - I don’t hate being compared with female musicians. I don’t mind that at all. I have no problem with seeing connections between women’s work.
+ - But in the garden of simple, where all of us are nameless, you were never anything but beautiful to me.
+ - You got to look outside- your eyes- you got to think outside- your brain- you got to walk outside- your life- to where the neighborhoods change.
+ - I was blessed with a birth and a death, and I guess I just want some say in between.
+ - I’ve been waiting for sleep to offer up the day with both hands.
+ - I can’t wait to get back to New York City where at least when I walk down the streat, no one ever hesitates to tell me exactly what they think of me.
+ - I think the gay community should get smart and drop the word marriage. Do you really need to change every right-wing Christian to make sure you get your equal rights? Eyes on the prize, we should be sticking to getting equal rights.
+ - Love is a piano dropped from a fourth story window, and you were in the wrong place at the wrong time.
+ - At night when you’re asleep, self-hatred’s going to creep in. And you can blame it on the devil, the one who’s bed you sleep in.
+ - I wonder what you look like under your t-shirt. I wonder what you sound like when you’re not wearing words. I wonder what we have when we’re not pretending...
+ - So many of us, myself included, need to keep our sense of personal outrage in check. Each human beings position on the planet is one of intense humility.
+ - Taking me seriously is a big mistake. I certainly wouldn’t.
+ - We’ve got ego’s like hairdos.
+ - Playing show after show is like my bread and butter.
+ - The old farm roads a four lane that leads to the mall, and our dreams are all guillotines waiting to fall.
+ - I use my dress to wipe up my drink, I care less and less what people think.
+ - My life may not be something special But it’s never been lived before.
+ - Emptiness has its solace in that there’s nothing left to take.
+ - I am getting nowhere with you and I can’t let you go and I cant get through.
+ - And I was shocked to see the mistakes of each generation will just fade like a radio station, if we drive out of range.
+ - Art is why I get up in the morning, but my definition ends there.
+ - I see a lot of connections between folk and punk music just because they’re both subcorporate music – I mean, traditionally.
+ - How come I can pick my ears but not my nose?
+ - Feminism is not only for women It’s something everyone can participate in, and evolve together, as the first step in the right direction. I see feminism as a tool to achieve that balance and peace.
+ - I mean, I think it’s hard enough to find somebody you can stand for more than ten minutes, so, like, you shouldn’t narrow your options.
+ - People need something or someone to fasten themselves to in order to reassure themselves that they are real.
+ - Love isn’t over when the sheets are stained.
+ - There isn’t much I have to say, that I wouldn’t rather just shut up and do.
+ - There’s this brutal imperial power, that my passport says I represent. But it will never represent where my heart lives, only vaguely where it went.
+ - I don’t like my language watered down, I don’t like my edges rounded off.
+ - I’m pretty much a workaholic, but when you’re doing what you love it’s hard to think of a reason to stop.
+ - My idea of feminism is self-determination, and it’s very open-ended: every woman has the right to become herself, and do whatever she needs to do.
+ - They can call me crazy if I fail, all the chance that I need, is one-in-a-million and they can call me brilliant if I succeed.
+ - Well, it’s really gratifying to me to have a stage and some bright lights and a microphone. They’re tools and opportunities, and to be able to just pull somebody up on stage with me and point at them is a great feeling.
+ - Feel free to listen, feel free to stare.
+ - It’s just hard to travel in the shadow of regret. In fact, it’s so hard that I actually haven’t left yet.
+ - I never try to imagine the future. I kinda think it’s a waste of time. I live in the now.
+ - I think it is very useful to know ourselves, but when we start naming and labeling, that is dangerous, that gets problematic. It negates that things are always changing. Besides, it’s hard to pin a label onto something that’s always moving.
+ - Patriarchy is a fundamental imbalance underlying society And it’s one we rarely address because it’s so universal. But as I get older, I see that peace is a product of balance.
+ - Take away our play stations and we are a third world nation.
+ - If you think you know what I’m doing wrong well you’re gonna have to get in line...
+ - If you don’t ask the right question, every answer seems wrong -.
+ - My distraction’s my defense against this lack of inspiration Against this slow deflation Yeah the further the horizon The more it holds my gaze The foreground’s out of focus but you know I kinda hope it’s just a phase Just a phase.
+ - I’m recording our history now on the bedroom wall, and when we leave the landlord will come and paint over it all.
+ - Why do our kids have to show us what gun control is all about?
+ - Too much is how I love you, but too well is how I know you.
+ - And if there’s anything I do it’s change and grow. I’m just a living being. Every year of my life I seem to learn that everything I know is wrong.
+ - Science chases money, and money chases its tail, and the best minds of my generation cannot make bail.
+ - We barely have time to react in this world, let alone rehearse.
+ - Don’t treat me like I am something that happened to you.
+ - I would rather have these things weigh on my mind. At the end of this tunnel of guilt and shame, there must be a light of some kind.
+ - Promiscuity does not scare me as long as she is savvy and self possessed when puberty comes to call. My aim is to simply raise my daughter to be secure in her self worth and capable of happiness all on her own.
+ - When all you can think of is your own personal problems, you have nothing to give to your society. If you’re trying to figure out where your next meal is coming from, you can’t go march on Washington.
+ - The stronger I am in my personal life, the more energy I have to look outward, to address my society.
+ - Subtract out the impact and the fall is all you get. So here’s two beers to remember why and three more to forget.
+ - We are wise, wise women. We are giggling girls.
+ - Someday you’re going to get hungry and eat most of the words you just said.
+ - I am still praying for revolution.
+ - I knew naturally as a child not to forfeit my creativity to a world that’s all laid out for me. I’ll look at everything around me and vow to keep in mind that alla this is just someone’s idea. It could have just as well been mine.
+ - Love sets fire to your schedule, And then calls an end to time.
+ - I have earned my disillusionment.
+ - Don’t tell me what they did to you as though you had no choice. Tell me, isn’t that your picture? Isn’t that your voice.
+ - Now let’s get talking: reefer madness. Like some arrogant government can’t, By any stretch of the imagination, outlaw a plant.
+ - There’s a certain window of time in the middle of the night out in Middle America where there’s no bar open and nothing on TV. If you don’t want to do too many drugs, you have to start bodily mutilation.
+ - In order to keep anything cultural, logical, or ideological, you have to reinvent the reality of it.
+ - There is no alternative. A Democrat is a Republican is a big businessman, and we’re all consumers instead of citizens. It just manifests in the culture, in the music, in the art. I feel a little panicky about it.
+ - I was supposed to be cool about this, yeah, I remember – cool was the plan. Tried to keep it all under wraps, but the wraps kept going slack. I keep turning round, I keep coming back.
+ - Having more exposure is kind of a bittersweet thing for me, honestly, because it’s nice to have a little more job security in life now.
+ - Imagine you’re a girl, just trying to finally come clean, knowing full well they’d prefer you were dirty and smiling.
+ - What bugs me is that you believe what you’re saying. What bothers me is that you don’t know how you feel. What scares me is that while you’re telling me stories, you actually believe that they are real.
+ - I did a lot of work with myself over the course of being pregnant and the first few months of being pregnant. It’s nice, the pace of being pregnant; it gives you a long time to not just germinate a baby but germinate the mother that you’re gonna be.
+ - No one’s gonna sympathize when we crash, they’ll say you hit what you head for, you get what you ask.
+ - When I was like sixteen, I was a total chick I had big hair. I was seen as this attractive girl, and I would get all this attention. And then I just cut off my hair, and I quit playing that game.
+ - Time is not a thing that’s ours to lose.
+ - Then I show up steady ready and proud and I find I’ve forgotten how to talk out loud. Isn’t it just like you to bring me to my knees?
+ - If more people were screamin’, I could relax.
+ - Men make angry music and it’s called rock-and-roll; women include anger in their vocabulary and suddenly they’re angry and militant.
+ - It’s great being your own boss, but then, you know, you make your own mistakes, you know, and you own them. You know, so it’s empowering, and it’s also humbling along the way.
+ - Music has as many roles as people make it.
+ - They taught me different was wrong.
+ - We’re led by denial like lambs to slaughter, serving empires of style and carbonated sugar water.
+ - I’ve been a long time coming, and I’ll be a long time gone. You’ve got your whole life to do something, and that’s not very long.
+ - I have something to prove, as long as I know there’s something that needs improvement, and you know that everytime I move, I make a woman’s movement.
+ - All of youth culture is packaged and sold back to us at this furious rate these days. I think it’s part and parcel to this corporate encroachment on our lives in general.
+ - My country tis of thee, to take swings at each other on talk show TV.
+ - They see me as a symbol, and not a human being. That way they can kill me, say it’s not murder it’s a metaphor.
+ - One of my rules is: Never TRY to do anything. Just do it.
+ - How come I can pick my ears, but not my nose? Who made up that rule anyway? How can you say that’s the way it is, that’s just the way it goes, why don’t you decide fore yourself what you can do?
+ - We get a little further from perfection each year. I think that’s called character. I think that’s just how it goes.
+ - And thoughts of no other man but you could possibly get through the picket lines to enter into my mind.
+ - Love was always the goal, and my point every step of the way was that nothing is wrong with love, no matter what flavor it comes in.
+ - I’ve been collecting some more high-end guitars. I have an old Martin D28 from the ’60s, a beautiful, classic Martin that I know I played on ‘Mariachi.’
+ - I don’t know if there are artists out there who love their own records. I haven’t met any, and I’m kind of extreme in the other direction, but therein lies the impetus to keep working and keep making new songs and new records.
+ - First decide what you got to do, then go out and do it. All we can do is to see each other through it.
+ - Now I wonder who is gonna be president: Tweedle Dumb, or Tweedle Dumber – And who is gonna have the big block buster box office this summer.
+
+216 quotes

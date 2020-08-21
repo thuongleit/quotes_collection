@@ -1,0 +1,33 @@
+ - There is something delicious about writing the first words of a story. You never quite know where they’ll take you.
+ - Thank goodness I was never sent to school; it would have rubbed off some of the originality.
+ - The shorter and the plainer the better.
+ - We cannot stay home all our lives, we must present ourselves to the world and we must look upon it as an adventure.
+ - I do so hate finishing books. I would like to go on with them for years.
+ - What heaven can be more real than to retain the spirit-world of childhood?
+ - Thank God I have the seeing eye, that is to say, as I lie in bed I can walk step by step on the fells and rough land seeing every stone and flower and patch of bog and cotton pass where my old legs will never take me again.
+ - With opportunity the world is very interesting.
+ - I cannot rest, I must draw, however poor the result, and when I have a bad time come over me it is a stronger desire than ever.
+ - For quiet, solitary and observant children create their own world and live in it, nourishing their imaginations on the material at hand.
+ - Don’t go into Mr. McGregor’s garden: your Father had an accident there; he was put in a pie by Mrs. McGregor.
+ - I am worn to a raveling.
+ - I hold that a strongly marked personality can influence descendants for generations.
+ - Once upon a time there were four little Rabbits, and their names were – Flopsy, Mopsy, Cottontail, and Peter.
+ - This is a fierce bad rabbit; look at his savage whiskers, and his claws and his turned-up tail.
+ - I think prejudice and tradition count for three-quarters in matters of religion.
+ - Peter lost one of his shoes among the cabbages, and the other shoe amongst the potatoes.
+ - All outward forms of religion are almost useless, and are the causes of endless strife. Believe there is a great power silently working all things for good, behave yourself and never mind the rest.
+ - Once upon a time there were three kittens, and their names were Mitten, Tom Kitten, and Moppet. They had dear little fur coats of their own; and they tumbled about the doorstep and played in the dust.
+ - In the time of swords and periwigs and full-skirted coats with flowered lappets – when gentlemen wore ruffles, and gold-laced waistcoats of paduasoy and taffeta – there lived a tailor in Gloucester.
+ - I hold an old-fashioned notion that a happy marriage is the crown of a woman’s life.
+ - It sometimes happens that the town child is more alive to the fresh beauty of the country than a child who is country born.
+ - Thank goodness my education was neglected.
+ - I have just made stories to please myself, because I never grew up.
+ - I think if she lived in A little shoe-house That little old woman was Surely a mouse!
+ - Here comes Peter Cottontail right down the bunny trail...
+ - What we call the highest and the lowest in nature are both equally perfect. A willow bush is as beautiful as the human form divine.
+ - I remember I used to half believe and wholly play with fairies when I was a child. What heaven can be more real than to retain the spirit-world of childhood, tempered and balanced by knowledge and common-sense.
+ - So much perfection argues rottenness somewhere.
+ - Most people, after one success, are so cringingly afraid of doing less well that they rub all the edge off their subsequent work.
+ - I fear that we shall be obliged to leave this pudding.
+
+31 quotes

@@ -1,0 +1,471 @@
+ - Management is doing things right; leadership is doing the right things.
+ - Whenever you see a successful business, someone once made a courageous decision.
+ - You can’t manage what you don’t measure.
+ - If you want something new, you have to stop doing something old.
+ - It’s more important to do the right thing than to do things right.
+ - The entrepreneur always searches for change, responds to it, and exploits it as an opportunity.
+ - Quality in a service or product is not what you put into it. It is what the client or customer gets out of it.
+ - Business has only two basic functions – marketing and innovation.
+ - Do what you do best, and outsource the rest.
+ - The greatest danger in times of turbulence is not the turbulence; it is to act with yesterday’s logic.
+ - Strategy is a commodity, execution is an art.
+ - Results are obtained by exploiting opportunities, not by solving problems.
+ - The most important thing in communication is to hear what isn’t being said.
+ - Only three things happen naturally in organizations: friction, confusion, and underperformance. Everything else requires leadership.
+ - Follow effective action with quiet reflection. From the quiet reflection will come even more effective action.
+ - Efficiency is doing better what is already being done.
+ - If you want to predict the future create it.
+ - There are only two things in a business that make money – innovation and marketing, everything else is cost.
+ - The race for Quality has no finish line – so technically, it’s more like a death march. Efficiency is doing things right; effectiveness is doing the right things.
+ - If you can’t measure it, you can’t change it.
+ - The task of leadership is to create an alignment of strengths so strong that it makes the system’s weaknesses irrelevant.
+ - A man should never be appointed into a managerial position if his vision focuses on people’s weaknesses rather than on their strengths.
+ - People learn the most when teaching others.
+ - Efficiency, which is doing things right, is irrelevant until you work on the right things.
+ - What’s measured improves.
+ - The ultimate resource in economic development is people. It is people, not capital or raw materials that develop an economy.
+ - Management by objective works – if you know the objectives. Ninety percent of the time you don’t.
+ - Marketing is not a function, it is the whole business seen from the customer’s point of view.
+ - Until we can manage time, we can manage nothing else.
+ - Plans are only good intentions unless they immediately degenerate into hard work.
+ - The aim of marketing is to know and understand the customer so well the product or service fits him and sells itself.
+ - Long range planning does not deal with future decisions, but with the future of present decisions.
+ - Because its purpose is to create a customer, the business has two and only two functions: Marketing and Innovation. Marketing and Innovation produce results. All the rest are costs.
+ - Plans are worthless, but planning is invaluable.
+ - Mission defines strategy, and strategy defines structure.
+ - You cannot build performance on weaknesses. You can build only on strengths.
+ - If you want it, measure it. If you can’t measure it, forget it.
+ - Unless commitment is made, there are only promises and hopes; but no plans.
+ - The real achiever do one thing at a time.
+ - Marketing is the distinguishing, unique function of the business.
+ - The critical question is not “How can I achieve?” but “What can I contribute?”
+ - If there is any one secret of effectiveness, it is concentration. Effective executives do first things first and they do one thing at a time.
+ - There is nothing worse than doing the wrong thing well.
+ - Leadership is lifting a person’s vision to high sights, the raising of a person’s performance to a higher standard, the building of a personality beyond its normal limitations.
+ - Leadership is an achievement of trust.
+ - The purpose of a business is to create a customer.
+ - Rank does not confer privilege or give power. It imposes responsibility.
+ - The single most important thing to remember about any enterprise is that there are no results inside its walls. The result of a business is a satisfied customer.
+ - The aim of marketing is to make selling superfluous.
+ - Making changes to better appeal to customer is INNOVATION.
+ - Time is the scarcest resource and unless it is managed nothing else can be managed.
+ - The customer rarely buys what the company thinks it’s selling.
+ - What is the major problem? It is fundamentally the confusion between effectiveness and efficiency that stands between doing the right things and doing things right. There is surely nothing quite so useless as doing with great efficiency what should not be done at all.
+ - The most serious mistakes are not being made as a result of wrong answers. The true dangerous thing is asking the wrong question.
+ - The essence of management is to make knowledge productive.
+ - Effective leadership is not about making speeches or being liked; leadership is defined by results not attributes.
+ - The most common source of mistakes in management decisions is the emphasis on finding the right answer rather than the right question.
+ - One cannot manage change. One can only be ahead of it.
+ - Great wisdom not applied to action and behavior is meaningless data.
+ - Innovation is the specific tool of entrepreneurs, the means by which they exploit change as an opportunity for a different business or a different service.
+ - The organization is, above all, social. It is people.
+ - If you have more than five goals, you have none.
+ - Don’t solve problems. Pursue opportunities.
+ - Marketing and innovation make money. Everything else is a cost.
+ - The purpose of information is not knowledge. It is being able to take the right action.
+ - The relevant question is not simply what shall we do tomorrow, but rather what shall we do today in order to get ready for tomorrow.
+ - Knowledge applied is productivity.
+ - One can either work or meet. One cannot do both at the same time.
+ - Our job in life is to make a positive difference, not prove we’re right.
+ - What the customer buys and considers value is never a product. It is always utility, that is, what a product or a service does for the customer.
+ - People who don’t take risks generally make about two big mistakes a year. People who do take risks generally make about two big mistakes a year.
+ - There are two types of people in the business community: those who produce results and those who give you reasons why they didn’t.
+ - Entrepreneurs believe that profit is what matters most in a new enterprise. But profit is secondary. Cash flow matters most.
+ - Profit for a company is like oxygen for a person. If you don’t have enough of it, you’re out of the game. But if you think your life is about breathing, you’re really missing something.
+ - The most effective way to manage change is to create it.
+ - The great challenge to management today is to make productive the tremendous new resource, the knowledge worker. This, rather than the productivity of the manual worker, is the key to economic growth and economic performance in today’s society.
+ - Adequacy is the enemy of excellence.
+ - It takes far less energy to move from first-rate performance to excellence than it does to move from incompetence to mediocrity.
+ - You can either take action, or you can hang back and hope for a miracle. Miracles are great, but they are so unpredictable.
+ - No executive has ever suffered because his subordinates were strong and effective.
+ - Knowledge has become the key economic resource and the dominant-and perhaps even the only-source of competitive advantage.
+ - For new technology to replace old, it has to have at least ten times the benefit.
+ - Organizations are no longer built on force, but on trust.
+ - One does not “manage” people. The task is to lead people.
+ - Managing innovation will increasingly become a challenge to management, and especially to top management, and a touchstone of its competence.
+ - The fewer data needed, the better the information. And an overload of information, that is, anything much beyond what is truly needed, leads to information blackout. It does not enrich, but impoverishes.
+ - We live in an age of unprecedented opportunity: If you’ve got ambition and smarts, you can rise to the top of your chosen profession, regardless of where you started out.
+ - More business decisions occur over lunch and dinner than at any other time, yet no MBA courses are given on the subject.
+ - Business enterprise is an organ of society. There is only one valid definition of business purpose: to create a customer.
+ - The productivity of people requires continuous learning, as the Japanese have taught us. It requires adoption in the West of the specific Japanese Zen concept where one learns to do better what one already does well.
+ - There is a point at which a transformation has to take place.
+ - In the knowledge economy everyone is a volunteer, but we have trained our managers to manage conscripts.
+ - Leaders grow; they are not made.
+ - Nobody in the world is as good at making decisions as the Japanese.
+ - Information is the manager’s main tool, indeed the manager’s capital, and it is he who must decide what information he needs and how to use it.
+ - The productivity of work is not the responsibility of the worker but of the manager.
+ - To make knowledge productive, we will have to learn to see both forest and tree. We will have to learn to connect.
+ - The tool user, provided the tool is made well, need not, and indeed should not, know anything about the tool.
+ - The enterprise that does not innovate ages and declines. And in a period of rapid change such as the present, the decline will be fast.
+ - Conductors do not know how the oboe does its work, but they know what the oboe should contribute.
+ - Meetings are a symptom of bad organization. The fewer meetings the better.
+ - The only definition of a leader is someone who has followers.
+ - Effective people are not problem minded; they’re opportunity-minded. They feed opportunities and starve problems. They think preventively.
+ - Change is the norm; unless an organization sees that its task is to lead change, that organization will not survive.
+ - The days of the ‘intuitive’ manager are numbered.
+ - There’s nothing so useless than executing a task efficiently when it actually never should have been executed at all.
+ - Doing the right thing is more important than doing the thing right.
+ - Knowledge has to be improved, challenged, and increased constantly, or it vanishes.
+ - The need to manage oneself is creating a revolution in human affairs.
+ - All economic activity is by definition “high risk.” And defending yesterday – that is, not innovating – is far more risky than making tomorrow.
+ - Charisma becomes the undoing of leaders. It makes them inflexible, convinced of their own infallibility, unable to change.
+ - Every single social and global issue of our day is a business opportunity in disguise.
+ - The better a man is, the more mistakes he will make, for the more new things he will try.
+ - Do first things first, and second things not at all.
+ - Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you.
+ - Entrepreneurship is neither a science nor an art. It is a practice.
+ - To survive and succeed, every organization will have to turn itself into a change agent.
+ - Inside an organization there are only cost centers. The only profit center is a customer whose check has not bounced.
+ - Planning is actually incompatible with an entrepreneurial society and economy. Planning is the kiss of death of entrepreneurship.
+ - Profitability is the sovereign criterion of the enterprise.
+ - The only thing we know about the future is that it will be different.
+ - Every enterprise is learning and teaching institution. Training and development must be built into it on all levels, training and development that never stop.
+ - Business, that’s easily defined – it’s other people’s money.
+ - There’s an enormous number of managers who have retired on the job.
+ - The most valuable assets of a 20th-century company were its production equipment. The most valuable assets of a 21st-century institution, whether business or nonbusiness, will be its knowledge, workers, and their productivity.
+ - Use feedback analysis to identify your strengths. Then go to work on improving your strengths. Identify and eliminate bad habits that hinder the full development of your strengths. Figure out what you should do and do it. Finally, decide what you should not do.
+ - What we need is an entrepreneurial society in which innovation and entrepreneurship are normal, steady and continuous.
+ - Profit is not a cause but a result-.
+ - Company cultures are like country cultures. Never try to change one. Try, instead, to work with what you’ve got.
+ - The concept of profit maximization is, in fact, meaningless.
+ - Luck never built a business. Prosperity and growth come only to the business that systematically finds and exploits its potential.
+ - Success in the knowledge economy comes to those who know themselves – their strengths, their values, and how they best perform.
+ - Since we live in an age of innovation, a practical education must prepare a man for work that does not yet exist and cannot yet be clearly defined.
+ - Spontaneity is an infinite number of rehearsed possibilities.
+ - An effective executive builds on strengths – their own strengths, the strengths of superiors, colleagues, subordinates, and on the strength of the situation.
+ - Every few hundred years in Western history there occurs a sharp transformation. Within a few short decades, society – its worldview, its basic values, its social and political structures, its art, its key institutions – rearranges itself. We are currently living through such a time.
+ - Most of what we call management consists of making it difficult for people to get their work done.
+ - Cultivate a deep understanding of yourself – not only what your strengths and weaknesses are but also how you learn, how you work with others, what your values are, and where you can make the greatest contribution. Because only when you operate from strengths can you achieve true excellence.
+ - Meetings are by definition a concession to a deficient organization. For one either meets or one works. One cannot do both at the same time.
+ - Trust is congruence between what you say and what you do.
+ - Every organization must be prepared to abandon everything it does to survive in the future.
+ - The manager who comes up with the right solution to the wrong problem is more dangerous than the manager who comes up with the wrong solution to the right problem.
+ - Everybody has accepted by now that change is unavoidable. But that still implies that change is like death and taxes – it should be postponed as long as possible and no change would be vastly preferable. But in a period of upheaval, such as the one we are living in, change is the norm.
+ - Universities won’t survive. The future is outside the traditional campus, outside the traditional classroom. Distance learning is coming on fast.
+ - Working with people is difficult, but not impossible.
+ - The only things that evolve by themselves in an organization are disorder, friction and malperformance.
+ - Vision without execution is delusion. The joy is in the results.
+ - We spend a lot of time teaching leaders what to do. We don’t spend enough time teaching leaders what to stop. Half the leaders I have met don’t need to learn what to do. They need to learn what to stop.
+ - In most organizations, the bottleneck is at the top of the bottle.
+ - Most leaders don’t need to learn what to do. They need to learn what to stop.
+ - Entrepreneurship is “risky” mainly because so few of the so-called entrepreneurs know what they are doing.
+ - Strategic management is not a box of tricks or a bundle of techniques. It is analytical thinking and commitment of resources to action. But quantification alone is not planning. Some of the most important issues in strategic management cannot be quantified at all.
+ - Knowledge is power. In post-capitalism, power comes from transmitting information to make it productive, not hiding it.
+ - The question that faces the strategic decision maker is not what his organisation should do tomorrow. It is, what do we have to do today to be ready for an uncertain tomorrow?
+ - No institution can possibly survive if it needs geniuses or supermen to manage it. It must be organized in such a way as to be able to get along under a leadership composed of average human beings.
+ - Leadership is defined by results not attributes.
+ - Replace your pursuit of success with the pursuit of contribution.
+ - Nothing is less productive than to make more efficient what should not be done at all.
+ - People in any organization are always attached to the obsolete – the things that should have worked but did not, the things that once were productive and no longer are.
+ - By themselves, character and integrity do not accomplish anything. But their absence faults everything else.
+ - Nobody can predict the future; the idea is to have a firm grasp of the present.
+ - There is the risk you cannot afford to take, and there is the risk you cannot afford not to take.
+ - Balance Sheets are meaningless. Our accounting systems are still based on the assumption that 80% of costs are manual labor.
+ - Strong people have strong weaknesses.
+ - The first organization structure in the modern West was laid down in the canon law of the Catholic Church eight hundred years ago.
+ - The task of management is to make people capable of joint performance, to make their strengths effective and their weaknesses irrelevant.
+ - The purpose of an organization is to enable ordinary humans beings to do extraordinary things.
+ - Results is all that separates one company from another.
+ - As a manager you’re paid to be uncomfortable. If you’re comfortable, it’s a sure sign you’re doing things wrong.
+ - Unless strategy evaluation is performed seriously and systematically, and unless strategists are willing to act on the results, energy will be used up defending yesterday.
+ - When it rains manna from heaven, some people put up an umbrella. Others reach for a big spoon.
+ - The talk you hear about adapting to change is not only stupid, it’s dangerous. The only way you can manage change is to create it.
+ - The leader of the past was a person who knew how to tell. The leader of the future will be a person who knows how to ask.
+ - Communism is evil. Its driving forces are the deadly sins of envy and hatred.
+ - My greatest strength as a consultant is to be ignorant and ask a few questions.
+ - Promotion should not be more important than accomplishment, or avoiding instability more important than taking the right risk.
+ - You cannot prevent a major catastrophe, but you can build an organization that is battle-ready, where people trust one another. In military training, the first rule is to instill soldiers with trust in their officers – because without trust, they won’t fight.
+ - Every success creates new opportunities. So does every failure.
+ - Leadership is all hype. We’ve had three great leaders in this century-Hitler, Stalin, and Mao.
+ - Whenever anything is being accomplished, it is being done, I have learned, by a monomaniac with a mission.
+ - Business is society’s change agent.
+ - Accept the fact that we have to treat almost anybody as a volunteer.
+ - There is no perfect strategic decision. One always has to pay a price. One always has to balance conflicting objectives, conflicting opinions, and conflicting priorities. The best strategic decision is only an approximation – and a risk.
+ - Business purpose and business mission are so rarely given adequate thought is perhaps the most important cause of business frustration and failure.
+ - The leader sees leadership as responsibility rather than as rank and privilege.
+ - Above all, innovation is not invention. It is a term of economics rather than of technology.
+ - A business is not defined by its name, statutes, or articles of incorporation. It is defined by the business mission. Only a clear definition of the mission and purpose of the organization makes possible clear and realistic business objectives.
+ - In todays economy, the most important resource is no longer labor, capital or land; it is knowledge.
+ - Objectives are not commands; they are commitments.
+ - Morale in an organization does not mean that “people get along together”; the test is performance not conformance.
+ - There are just two questions to ask to attain success in business: First, “What business am I in?” Second, “How’s business?”
+ - There is a point of complexity beyond which a business is no longer manageable.
+ - Every three or four years I pick a new subject. It may be Japanese art; it may be economics. Three years of study are by no means enough to master a subject but they are enough to understand it. SO for more than 60 years I have kept studying one subject at a time.
+ - What can I contribute that will significantly affect the performance and the results of the institution I serve?
+ - Work is an extension of personality. It is achievement. It is one of the ways in which a person defines himself, measures his worth, and his humanity.
+ - To improve communications, work not on the utter, but the recipient.
+ - To make the future demands courage. It demands work. But it also demands faith.
+ - Objectives are not fate; they are direction. They are not commands; they are commitments. They do not determine the future; they are a means to mobilize resources and energies of the business for the making of the future.
+ - Innovation is the specific instrument of entrepreneurship. The act that endows resources with a new capacity to create wealth.
+ - A manager sets objectives – A manager organizes – A manager motivates and communicates – A manager, by establishing yardsticks, measures – A manager develops people .
+ - Any time I have seen someone accomplishing something magnificent, they have been a monomaniac with a mission. A single-minded individual with a passion.
+ - Successful people know they need to get many things done-and done effectively. Therefore, they concentrate their time and energy on doing one thing at a time-and on doing first things firs.
+ - One cannot hire a hand; the whole man always comes with it.
+ - To make a living is no longer enough. Work also has to make a life.
+ - All good strategy eventually degenerates into work.
+ - An executive should be a realist; and no one is less realistic than the cynic.
+ - It’s amazing how many things busy people are doing that never will be missed.
+ - The strength of the computer lies in its being a logic machine. It does precisely what it is programed to do. This makes it fast and precise. It also makes it a total moron; for logic is essentially stupid.
+ - Technology is not about tools, it deals with how Man works.
+ - Management has authority only as long as it performs.
+ - It is more productive to convert an opportunity into results than to solve a problem – which only restores the equilibrium of yesterday.
+ - People are effective because they say ‘no,’ because they say, ‘this isn’t for me.’
+ - Management means, in the last analysis, the substitution of thought for brawn and muscle, of knowledge for folkways and superstition, and of cooperation for force. It means the substitution of responsibility for obedience to rank, and of authority of performance for the authority of rank.
+ - Erroneous assumptions can be disastrous.
+ - Progress is obtained only by exploiting opportunities, not by solving problems. When you solve problems, all you do is guarantee a return to normalcy.
+ - Ideas are cheap and abundant; what is of value is the effective placement of those ideas into situations that develop into action.
+ - Succession planning often results in the selection of a weaker representation of yourself.
+ - A person can perform only from strength. One cannot build performance on weakness, let alone on something one cannot do at all.
+ - The monomaniac is unlikely to succeed. Most leave only their bleached bones in the roadless desert. But the rest of us, with our multiple interests instead of a single mission, are certain to fail and have no impact at all.
+ - Time is totally perishable and cannot be stored. Yesterday’s time is gone forever, and will never come back. Time is always in short supply. There is no substitute for time. Everything requires time.
+ - If you have too many problems, maybe you should get out of business. There is no law that says a company must last forever.
+ - Decision making is the specific executive task.
+ - Knowledge is the source of Wealth. Applied to tasks we already know, it becomes Productivity. Applied to tasks that are new, it becomes Innovation...
+ - The really important things are said over cocktails and are never done.
+ - We know nothing about motivation. All we can do is write books about it.
+ - Defending yesterday is far more risky than making tomorrow.
+ - No financial man will ever understand business because financial people think a company makes money. A company makes shoes, and no financial man understands that. They think money is real. Shoes are real.
+ - Innovation opportunities do not come with the tempest but with the rustling of the breeze.
+ - Teamwork is neither “good” nor “desirable.” It is a fact. Wherever people work together or play together they do so as a team. Which team to use for what purpose is a crucial, difficult and risky decision that is even harder to unmake. Managements have yet to learn how to make it.
+ - The individual needs the return to spiritual values, for he can survive in the present human situation only by reaffirming that man is not just a biological and psychological being but also a spiritual being, that is creature, and existing for the purposes of his Creator and subject to Him.
+ - We now accept the fact that learning is a lifelong process of keeping abreast of change. And the most pressing task is to teach people how to learn.
+ - Objectives can be compared to a compass bearing by which a ship navigates. A compass bearing is firm, but in actual navigation, a ship may veer off its course for many miles. Without a compass bearing, a ship would neither find its port nor be able to estimate the time required to get there.
+ - What managers decide to stop doing is often more important than what they decide to do.
+ - Far too much reorganization goes on all the time. Organizitis is like a spastic colon.
+ - If the feudal knight was the clearest embodiment of society in the early Middle Ages, and the “bourgeois” under Capitalism, the educated person will represent society in the post-capitalist society in which knowledge has become the central resource.
+ - As soon as you move one step up from the bottom, your effectiveness depends on your ability to reach others through the spoken and written word.
+ - An employer has no business with a man’s personality. The task is not to change personality, but to enable a person to achieve and to perform.
+ - They wrongly believe that good intentions move mountains. Bulldozers move mountains. But there are exceptions.
+ - A business exists because the consumer is willing to pay you his money. You run a business to satisfy the consumer. That isn’t marketing. That goes way beyond marketing.
+ - We’ve spent the last 30 years focusing on the T in IT, and we’ll spend the next 30 years focusing on the I.
+ - Elephants have a hard time adapting. Cockroaches outlive everything.
+ - Successful leaders don’t start out asking, ‘What do I want to do?’ They ask, ‘What needs to be done?’ Then they ask, ‘Of those things that would make a difference, which are right for me?’
+ - Never underrate the boss! The boss may look illiterate. He may look stupid. But there is no risk at all in overrating a boss. If you underrate him he will bitterly resent it or impute to you the deficiency in brains and knowledge you imputed to him.
+ - The experience of the human race indicates strongly that the only person in abundant supply is the universal incompetent.
+ - The dilemma of modern society: the conflict between the need for capital formation at a high rate and the popular condemnation of interest and dividends as “unearned income” and “capitalist,” if not as sinful and wicked.
+ - The single minded ones, the monomaniacs, are the only true achievers.
+ - Ideas are like frog eggs: you’ve got to lay a thousand to hatch one.
+ - The young knowledge worker whose job is too small to challenge and test his abilities either leaves or declines rapidly into premature middle age, soured, cynical, unproductive.
+ - Do not measure your life by your goals but what you are doing to achieve them.
+ - All great change in business has come from outside the firm, not from inside.
+ - The paradox of the prophet: his very success is his failure. The prophet whose time has come no longer shocks; he entertains.
+ - Most Americans do not know what their strengths are. When you ask them, they look at you with a blank stare, or they respond in terms of subject knowledge, which is the wrong answer.
+ - No one learns as much about a subject as one who is forced to teach it.
+ - During periods of discontinuous, abrupt change, the essence of adaptation involves a keen sensitivity to what should be abandoned – not what should be changed or introduced. A willingness to depart from the familiar has distinct survival value.
+ - The problem in my life and other people’s lives is not the absence of knowing what to do but the absence of doing it.
+ - The most probable assumption is that no currently working ‘business theory’ will be valid 10 years hence.
+ - To satisfy the customer is the mission and purpose of every business.
+ - The job of a professional manager is not to like people. It is not to change people. It is to put their strengths to work.
+ - For the social ecologist language is not “communication.” It is not just “message.” It is substance. It is the cement that holds humanity together. It creates community and communication. Social ecologists need not be “great” writers; but they have to be respectful writers, caring writers.
+ - We can’t make people better by trying to eliminate their weaknesses, but we can help then perform better by building on their strengths.
+ - Mother Teresa’s numerical results were not her greatest contribution. Instead, she made the world-and especially India-conscious of compassion.
+ - Teaching 23-year-olds in an MBA programme strikes me as largely a waste of time. They lack the background of experience. You can teach them skills – accounting and what have you – but you can’t teach them management.
+ - The fruit of your work grows on other people’s trees.
+ - One does not start with facts. One starts with opinions.
+ - To be effective, every knowledge worker, and especially every executive, therefore needs to dispose of time in fairly large chunks. To have small dribs and drabs of time at his disposal will not be sufficient even if the total is an impressive number of hours.
+ - Without institution there is no management. But without management there is no institution.
+ - Culture eats Christianity for breakfast.
+ - The final test of greatness in a CEO is how well he chooses a successor and whether he can step aside and let the successor run the company.
+ - What you have to do and the way you have to do it is incredibly simple. Whether you are willing to do it is another matter.
+ - The manager is a servant. His master is the institution he manages and his first responsibility must therefore be to it.
+ - Large organizations cannot be versatile. A large organization is effective through its mass rather than through its agility. Fleas can jump many times their own height, but not an elephant.
+ - If general perception changes from seeing the glass as ‘half-full’ to seeing it as ‘half empty’ there are major innovative opportunities.
+ - Brilliant men are often strikingly ineffectual. They fail to realize that the brilliant insight is not by itself achievement. They never have learned that insights become effectiveness only through hard systematic work.
+ - Managers are the basic and scarcest resource of any business enterprise.
+ - The Pertinent Question is NOT how to do things right – but how to find the right things to do, and to concentrate resources and efforts on them.
+ - In the Western tradition, we have focused on teaching as a skill and forgotten what Socrates knew: teaching is a gift, learning is a skill.
+ - Once the facts are clear the decisions jump out at you.
+ - Don’t take on things you don’t believe in and that you yourself are not good at. Learn to say no. Effective leaders match the objective needs of their company with the subjective competencies. As a result, they get an enormous amount of things done fast.
+ - Don’t try to innovate for the future. Innovate for the present!
+ - Production is not the application of tools to materials, but logic to work.
+ - Quality of character doesn’t make a leader, but the lack of it flaws the entire process.
+ - Education gives you neither experience nor wisdom.
+ - Suppliers and especially manufacturers have market power because they have information about a product or a service that the customer does not and cannot have, and does not need if he can trust the brand. This explains the profitability of brands.
+ - Here I am, fifty-eight, and I still don’t know what I’m going to be when I grow up.
+ - Success always obsoletes the very behavior that achieved it.
+ - An established company which, in an age demanding innovation, is not able to innovation, is doomed to decline and extinction.
+ - Free enterprise cannot be justified as being good for business. It can be justified only as being good for society.
+ - Shoes are real. Money is an end result.
+ - The only real difference between one organization and another is the performance of its people.
+ - I no longer think that learning how to manage people, especially subordinates, is the most important for executives to learn. I am teaching above all else, how to manage oneself.
+ - Not to innovate is the single largest reason for the decline of existing organizations. Not to know how to manage is the single largest reason for the failure of new ventures.
+ - Important decisions are risky. They should be controversial. Acclamation means that nobody has done the homework.
+ - Work is a process, and any process needs to be controlled. To make work productive, therefore, requires building the appropriate controls into the process of work.
+ - The large organization has to learn to innovate, or it won’t survive.
+ - The computer actually may have aggravated management’s degenerative tendency to focus inward on costs.
+ - Businesses are not paid to reform customers. They are paid to satisfy customers.
+ - Institutions mistake good intentions for objectives. They say “health care”; that’s an intention, not an objective.
+ - No other area offers richer opportunities for successful innovation than the unexpected success.
+ - We do not need more laws. No country suffers from a shortage of laws. We need a new model .
+ - Tomorrow always arrives. It is always different. And even the mightiest company is in trouble if it has not worked on the future. Being surprised by what happens is a risk that even the largest and richest company cannot afford, and even the smallest business need not run.
+ - The moment people talk of “implementing” instead of “doing,” and of “finalizing” instead of “finishing,” the organization is already running a fever.
+ - Follow effective action with quiet reflection.
+ - The honest work of yesterday has lost its social status, its social esteem.
+ - The individual is the central, rarest, most precious capital resource of our society.
+ - Almost everybody today believes that nothing in economic history has ever moved as fast as, or had a greater impact than, the Information Revolution. But the Industrial Revolution moved at least as fast in the same time span, and had probably an equal impact if not a greater one.
+ - If a business is to be considered a continuous process, instead of a series of disjointed stop-and-go events, then the economic universe in which a business operates-and all the major events within it-must have rhyme, rhythm, or reason.
+ - Communication always makes demands. It always demands that the recipient become somebody, do something, believe something. It always appeals to motivation.
+ - The Welfare State, which begun in Imperial Germany for the truly indigent and disabled, has now become “everybody’s entitlement” and an increasing burden on those who produce.
+ - I’m better about things than about people. I’m more interested in people, but I’m better at ideas.
+ - History has been written not by the most talented but by the most motivated.
+ - The building of a personality beyond its normal limitations.
+ - Providing more desirable products, services, and customer experiences is vital to the continued existence of any business. And that is INNOVATION.
+ - In areas where they are simply incompetent, smart executives don’t make decisions or take actions. They delegate.
+ - Customers pay only for what is of use to them and gives them value. Nothing else constitutes quality.
+ - It is commonly believed that innovations create changes – but few ever do. Successful innovations exploit changes that have already happened.
+ - Economists talk about profit motive, but nothing motivates modern man more than a chance to avoid taxes!
+ - Look upon every obstacle as part payment towards your success.
+ - The computer is a moron.
+ - A management decision is irresponsible if it risks disaster this year for the sake of a grandiose future.
+ - In the managerial organization, the top people sit in judgment; in the innovative organization it is their job to encourage ideas, no matter how unripe or crude.
+ - Miracles are great, but they’re so damn unpredictable.
+ - Capital formation is shifting from the entrepreneur who invests in the future to the pension trustee who invests in the past.
+ - With Christianity, freedom and equality became the two basic concepts of Europe; they are themselves Europe.
+ - Keep your eye on the task, not on yourself. The task matters, and you are a servant.
+ - Salvation by society failed the most where it promised the most, in the communist countries. But it also failed in the West. Practically no government program enacted since the 1950s in the Western world – or in the communist countries – has been successful.
+ - We can ill afford to have activities conducted as “non-profit,” that is, as activities that devour capital rather than form it, if they can be organized as activities that form capital, as activities that make a profit.
+ - There is one qualification the manager cannot acquire but must bring to the task. It is not genius; it is character.
+ - You must accept that if the computer is a tool, it is the job of tool user to know what to use it for.
+ - Of those things that would make a difference, which are right for me?
+ - Management is not being brilliant. Management is being conscientious.
+ - When a subject becomes totally obsolete we make it a required course.
+ - All companies are service companies; some also manufacture products.
+ - Adversarial power relationships only work if you never have to see or work with the bastards again.
+ - The company is not and must never claim to be home, family, religion, life or fate for the individual. It must never interfere in his private life or his citizenship. He is tied to the company through a voluntary and cancellable employment contract, not through some mystical or indissoluble bond.
+ - It is better to pick the wrong priority than none at all.
+ - Now that knowledge is taking the place of capital as the driving force in organizations worldwide, it is all too easy to confuse data with knowledge and information technology with information.
+ - Effective organizations put people in jobs in which they can do the most good. They place people – and allow people to place themselves – according to their strengths.
+ - People who need certainty are unlikely to make good entrepreneurs.
+ - One either meets or one works.
+ - We no longer even understand the question whether change is by itself good or bad. We start out with the axiom that it is the norm. We do not see change as altering the order. We see change as being order itself-indeed the only order we can comprehend today is a dynamic, a moving, a changing one.
+ - Growth that adds volume without improving productivity is fat. Growth that diminishes productivity is cancer.
+ - The critical factor of a problem is the element that has to be changed before anything else can be changed.
+ - The correct assumption is that what individuals have learned by age twenty-one will begin to become obsolete five to ten years later and will have to be replaced-or at least refurbished-by new learning, new skills, new knowledge.
+ - For the first four years, no new enterprise produces profits. Even Mozart didn’t start writing music until he was four.
+ - Education can no longer be the sole property of the state.
+ - The most efficient way to produce anything is to bring together under one management as many as possible of the activities needed to turn out the product.
+ - I have been saying for many years that we are using the word ‘guru’ only because ‘charlatan’ is too long to fit into a headline.
+ - If a manager spends more than 10 percent of his time on “human relations” the group is probably too large.
+ - There are no creeds in mathematics.
+ - Management and entrepreneurship are only two different dimensions of the same task. An entrepreneur who does not learn how to manage will not last long. A management that does not learn to innovate will not last long.
+ - The one person to distrust is the one who never makes a mistake. Either he is a phony, or he stays with the safe, the tried, and the trivial.
+ - To be a manager requires more than a title, a big office, and other outward symbols of rank. It requires competence and performance of a high order.
+ - Nothing else, perhaps, distinguishes effective executives as much as their tender loving care of time.
+ - Everything must degenerate into work if anything is to happen.
+ - All earlier pluralist societies destroyed themselves because no one took care of the common good. They abounded in communities but could not sustain community, let alone create it.
+ - When the business grows, the person who founded it is incredibly busy. Rapid growth puts an enormous strain on a business. You outgrow your production facilities. You outgrow your management capabilities.
+ - Management and union may be likened to that serpent of the fables who on one body had two heads that fighting each other with poisoned fangs, killed themselves.
+ - The three most charismatic leaders in this century inflicted more suffering on the human race than almost any trio in history: Hitler, Stalin, and Mao. What matters is not the leader’s charisma. What matters is the leader’s mission.
+ - The knowledge that we consider knowledge proves itself in action. What we now mean by knowledge is information in action, information focused on results.
+ - The healthier a new venture and the faster it grows, the more financial feeding it requires.
+ - We can say with certainty – or 90% probability – that the new industries that are about to be born will have nothing to do with information.
+ - If a government commission had worked on the horse, you would have the first horse that could operate its knee joint in both directions. The trouble is it couldn’t have stood up.
+ - As to the idea that advertising motivates people, remember the Edsel.
+ - Absolute size by itself is no indicator of success and achievement, let alone of managerial competence. Being the right size is.
+ - It is willingness of people to give of themselves over and above the demands of the job that distinguishes the great from the merely adequate.
+ - Wherever an impact can be eliminated by dropping the activity that causes it, this is therefore the best-indeed the only truly good-solution.
+ - No business can do everything. Even if it has the money, it will never have enough good people. It has to set priorities. The worst thing to do is a little bit of everything. This makes sure that nothing is being accomplished. It is better to pick the wrong priority than none at all.
+ - That people even in well paid jobs choose ever earlier retirement is a severe indictment of our organizations – not just business, but government service, the universities. These people don’t find their jobs interesting.
+ - The worker’s effectiveness is determined largely by the way he is being managed.
+ - Managers are agents of transformation, converting the workforce in developed countries from one of manual workers to one of highly educated knowledge workers.
+ - If something fails despite being carefully planned, carefully designed, and conscientiously executed, that failure often bespeaks underlying change and, with it, opportunity.
+ - Unless a decision has degenerated into work, it is not a decision; it is at best a good intention.
+ - A primary task of management in the developed countries in the decades ahead will be to make knowledge productive.
+ - Business exists to supply goods and services to customers and economic surplus to society, rather than to supply jobs to workers and managers or even dividends to shareholders.
+ - Organizationally what is required – and evolving – is systems management.
+ - In business school classrooms they construct wonderful models of a non- world.
+ - It’s up to you to carve out your place, to know when to change course, and to keep yourself engaged and productive during a work life that may span some 50 years.
+ - The only industries that function well are the industries that take responsibility for training. The Japanese, you know, assume that when you first come to work you know absolutely nothing. School isn’t preparation for work and never was.
+ - The new always looks so puny-so unpromising-next to the reality of the massive, ongoing business.
+ - A superior who works on his own development sets an almost irresistible example.
+ - The enterprise, by definition, must be capable of producing more or better than all the resources that comprise it.
+ - And no matter how serious an environmental problem the automobile poses in today’s big city, the horse was dirtier, smelled worse, killed and maimed more people, and congested the streets just as much.
+ - Any organisation develops people; it either forms them or deforms them.
+ - The arts alone give direct access to experience. To eliminate them from education – or worse, to tolerate them as cultural ornaments – is antieducational obscurantism. It is foisted on us by the pedants and snobs of Hellenistic Greece who considered artistic performance fit only for slaves...
+ - The corporation is the “master”, the employee is the “servant”. Because the corporation owns the means of production without which the employee could not make a living, the employee needs the corporation more than vice versa.
+ - The success and ultimately the survival of every business, large or small, depends in the last analysis on its ability to develop people. This ability is not measured by any of our conventional yardsticks of economic success; yet, is the final measurement.
+ - Most innovators are successful to the extent to which they define risks and confine them.
+ - Capitalism is being attacked not because it is inefficient or misgoverned but because it is cynical. And indeed a society based on the assertion that private vices become public benefits cannot endure, no matter how impeccable its logic, no matter how great its benefits.
+ - Understanding our strengths, articulating our values, knowing where we belong – these are also essential to addressing one of the great challenges of organizations: improving the abysmally low productivity of knowledge workers.
+ - The computer, being a mechanical moron, can handle only quantifiable data.
+ - Checking the results of a decision against its expectations shows executives what their strengths are, where they need to improve, and where they lack knowledge or information.
+ - The most important decisions in organizations are people decisions, and yet only the military, and only recently, has begun to ask, “If we assign this general to lead this base, what do we expect him to accomplish?”
+ - Decisions exist only in the present.
+ - Yet there is nothing more dangerous than to be premature in exploiting a change in perception.
+ - Most of what you hear about entrepreneurshi p is all wrong. It’s not magic; it’s not mysterious; and it has nothing to do with genes. It’s a discipline and, like any discipline, it can be learned.
+ - Schools will change more in the next 30 years than they have since the invention of the printed book.
+ - The basic definition of the business and of its purpose and mission have to be translated into objectives.
+ - Teaching is the only major occupation of man for which we have not yet developed tools that make an average person capable of competence and performance. In teaching we rely on the ‘naturals,’ the ones who somehow know how to teach.
+ - The subordinate’s job is not to reform or reeducate the boss, not to make him conform to what the business schools or the management book say bosses should be like. It is to enable a particular boss to perform as a unique individual.
+ - If you want to improve how you manage time – stop doing what doesn’t need to be done!
+ - We have only one alternative: either to build a functioning industrial society or see freedom itself disappear in anarchy and tyranny.
+ - No society can function as a society, unless it gives the individual member social status and function, and unless the decisive social power is legitimate.
+ - Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window.
+ - Today knowledge has power. It controls access to opportunity and advancement.
+ - Executives owe it to the organization and to their fellow workers not to tolerate nonperforming individuals in important jobs.
+ - In a rural society communities are “given” for the individual. Community is a fact, whether family or religion, social class or caste.
+ - The fundamental reality for every worker, from sweeper to executive vice-president, is the eight hours or so that he spends on the job. In our society of organizations, it is the job through which the great majority has access to achievement, to fulfillment, and to community.
+ - Effective innovations start small. They are not grandiose. They try to do one specific thing.
+ - The first step toward making the worker achieving is to make work productive.
+ - I find more and more executives less and less well informed about the outside world, if only because they believe that the data on the computer printouts are ipso facto information.
+ - We have tried to substitute mass for purpose. We have tried to regain military potency of defense by making it gigantic, unwieldy, complex. It never works.
+ - The enterprise can fulfill its human and social functions only if it prospers as a business.
+ - There is every indication that the period ahead will be an innovative one, one of rapid change in technology, society, economy, and institutions .
+ - The society of organizations is new-only seventy years ago employees were a small minority in every society.
+ - The world political system is till based on the concept of the national sovereign state. For the first time therefore, in three hundred years economy and sovereignty are becoming divorced from each other.
+ - No one has ever failed to find the facts they are looking for.
+ - Every time you do something that is important, write down what you expect will happen.
+ - In the modern corporation the decisive power, that of the managers, is derived from no one but the managers themselves controlled by nobody and nothing and responsible to no one. It is in the most literal sense unfounded, unjustified, uncontrolled and irresponsible power.
+ - Unless the power of the corporation can be organized on an accepted principle of legitimacy, it will be taken over by a Central government.
+ - Never ask who’s right. Start out by asking what is right. And you find that out by listening to dissenting, disagreeing opinions.
+ - When Henry Ford said, “The customer can have a car in any color as long as it’s black,” he was not joking.
+ - Management must take the lead in making obsolete its own products and services rather than waiting for a competitor to do so.
+ - A success that has outlived its usefulness may, in the end, be more damaging than failure.
+ - Knowledge has become the key resource of the world economy.
+ - The fault is in the system and not in the men.
+ - I’m a writer. I could not or would not ever run a business. I don’t even have a secretary. And contrary to some of the stereotypes, entrepreneurs are not loners. I am.
+ - Leadership is all about getting results.
+ - A business enterprise must continue beyond the lifetime of the individual or of the generation to be capable of producing its contributions to economy and to society.
+ - In the next economic downturn there will be an outbreak of bitterness and contempt for the supercorporate chieftains who pay themselves millions. In every major economic downturn in US history the villains have been the heroes during the preceding boom.
+ - Look at government programs for the past fifty years. Every single one – except warfare – achieved the exact opposite of its announced goal.
+ - We will have to learn to lead people rather then to contain them.
+ - The most critical case in a corporation, especially a big one, is when everything goes well, when you have accomplished your objectives. When the temptation is to work twice as hard instead of saying, “We have accomplished our objectives, we have to think again.”
+ - Executives do many things in addition to making decisions. But only executives make decisions. The first managerial skill is, therefore, the making of effective decisions.
+ - No single piece of macroeconomic advice given by the experts to their government has ever had the results predicted.
+ - Some of the best business and nonprofit CEOs I’ve worked with over a sixty-five-year consulting career were not stereotypical leaders. They were all over the map in terms of their personalities, attitudes, values, strengths, and weaknesses.
+ - Do not believe that it is very much of an advance to do the unnecessary three times as fast.
+ - The person who will make the greatest contribution to a company is the mature person-and you cannot have maturity if you have no life or interest outside the job.
+ - A fundamental responsibility of leadership is make sure that everybody knows the mission, understands it, lives it.
+ - The rule should be to minimize the need for people to get together to accomplish anything.
+ - Thus, for those who are willing to go out into the field, to look and to listen, changing demographics is both a highly productive and a highly dependable innovation opportunity.
+ - Too many leaders try to do a little bit of 25 things and get nothing done. They are very popular because they always say yes. But they get nothing done.
+ - In book subjects a student can only do a student’s work. All that can be measured is how well he learns, rather than how well he performs. All he can show is promise.
+ - The key to greatness is to look for people’s potential and spend time developing it.
+ - Making good decisions is a crucial skill at every level.
+ - An organization which just perpetuates today’s level of vision, excellence, and accomplishment has lost the capacity to adapt.
+ - Our society has become an employee society.
+ - A manager is responsible for the application and performance of knowledge.
+ - Systematic change requires a willingness to look on change as an opportunity.
+ - I have no interest in celebrities. If all the superrich disappeared, the world economy would not even notice. The superrich are irrelevant to the economy.
+ - One of the great movements in my lifetime among educated people is the need to commit themselves to action. Most people are not satisfied with giving money; we also feel we need to work.
+ - I would hope that American managers-indeed, managers worldwide-continue to appreciate what I have been saying almost from day one: that management is so much more than exercising rank and privilege, that it is much more than “making deals.” Management affects people and their lives.
+ - We always remember best the irrelevant.
+ - No decision has been made unless carrying it out in specific steps has become someone’s work assignment and responsibility.
+ - It has been said, and only half in jest, that a tough, professionally led union is a great force for improving management performance. It forces the manager to think about what he is doing and to be able to explain his actions and behavior.
+ - Profit is not the purpose of a business, but rather the test of its validity.
+ - One has to make a decision when a condition is likely to degenerate if nothing is done.
+ - If “socialism” is defined as “ownership of the means of production” – and this is both the orthodox and the only rigorous definition – then the United States is the first truly Socialist country.
+ - As with every phenomenon of the objective universe, the first step toward understanding work is to analyze it.
+ - It does not matter whether the worker wants responsibility or not, The enterprise must demand it of him.
+ - When a resource is scarce, you increase its yield.
+ - People alone of all the resources can grow and develop.
+ - Of all the decisions an executive makes, none is as important as the decisions about people, because they determine the performance capacity of the organization.
+ - It is easier to raise the performance of one leader than it is to raise the performance of a whole mass.
+ - In all recorded history there has not been one economist who has had to worry about where the next meal would come from.
+ - A manager’s task is to make the strengths of people effective and their weakness irrelevant – and that applies fully as much to the manager’s boss as it applies to the manager’s subordinates.
+ - What we are good at comes easy, and we believe that unless it comes hard, it can’t be very good.
+ - Economists think the poor need them to tell them that they are poor.
+ - Tomorrow everybody – or practically everybody – will have had the education of the upper class of yesterday, and will expect equivalent opportunities. That is why we face the problem of making every kind of job meaningful and capable of satisfying every educated man.
+ - Knowledge is being applied to knowledge itself. It is now fast becoming the one factor in production, sidelining both capital and labour.
+
+469 quotes

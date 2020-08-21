@@ -1,0 +1,87 @@
+ - The best years of your life are the ones in which you decide your problems are your own. You do not blame them on your mother, the ecology, or the president. You realize that you control your own destiny.
+ - People and things do not upset us. Rather, we upset ourselves by believing that they can upset us.
+ - There are three musts that hold us back: I must do well. You must treat me well. And the world must be easy.
+ - By honestly acknowledging your past errors, but never damning yourself for them, you can learn to use your past for your own future benefit.
+ - You mainly feel the way you think.
+ - If human emotions largely result from thinking, then one may appreciably control one’s feelings by controlling one’s thoughts – or by changing the internalized sentences, or self-talk, with which one largely created the feeling in the first place.
+ - People don’t just get upset. They contribute to their upsetness.
+ - Happiness is experienced largely in striving towards a goal, not in having attained things, because our nature is always to want to go on to the next endeavor.
+ - Whatever may be, I am still largely the creator and ruler of my emotional destiny.
+ - Stop shoulding on yourself.
+ - Rational beliefs bring us closer to getting good results in the real world.
+ - The trouble with most therapy is that it helps you feel better. But you don’t get better. You have to back it up with action, action, action.
+ - Convince yourself that worrying about many situations will make them worse rather than improve them.
+ - Being assertive does not mean attacking or ignoring others feelings. It means that you are willing to hold up for yourself fairly-without attacking others.
+ - You have considerable power to construct self-helping thoughts, feelings and actions as well as to construct self-defeating behaviors. You have the ability, if you use it, to choose healthy instead of unhealthy thinking, feeling and acting.
+ - Reality is not so much what happens to us; rather, it is how we think about those events that create the reality we experience. In a very real sense, this means that we each create the reality in which we live.
+ - Strong feelings are fine; it’s the overreactions that mess us up.
+ - To err is human; to forgive people and yourself for poor behavior is to be sensible and realistic.
+ - Lack of forgiveness of others breeds lack of self-forgiveness.
+ - People are terrified of other people or difficult projects because they tell themselves that they could fail or be rejected. Failure can lead to sorrow, regret, frustration and annoyance-all healthy feelings without which people couldn’t exist.
+ - Thinking rationally is often different from “positive thinking,” in that it is a realistic assessment of the situation, with a view towards rectifying the problem if possible.
+ - By not caring too much about what people think, I’m able to think for myself and propagate ideas which are very often unpopular. And I succeed.
+ - The art of love is largely the art of persistence.
+ - Needing leads to bleeding – to almost all inevitable suffering.
+ - If people stopped looking on their emotions as ethereal, almost inhuman processes, and realistically viewed them as being largely composed of perceptions, thoughts, evaluations, and internalized sentences, they would find it quite possible to work calmly and concertedly at changing them.
+ - The easy way out is often just that-the ‘easy’ way out of the most rewarding lifestyle.
+ - Even when people act nastily to you, don’t condemn them or retaliate.
+ - And just as two wrongs don’t make a right, rage against offenders is probably the worst way to try to correct them.
+ - Failure doesn’t have anything to do with your intrinsic value as a person.
+ - Worry itself is one of the most painful conditions.
+ - The emotionally mature individual should completely accept the fact that we live in a world of probability and chance, where there are not, nor probably ever will be, any absolute certainties, and should realize that it is not at all horrible, indeed – such a probabilistic, uncertain world.
+ - Whenever you avoid alarming situations, you almost always increase your anxiety about them.
+ - The great majority of the things we now make ourselves panicked about are self-created ‘dangers’ that exist almost entirely in our own imaginations.
+ - The attitude of unconditional self-acceptance is probably the most important variable in their long-term recovery.
+ - Even injustice has it’s good points. It gives me the challenge of being as happy as I can in an unfair world.
+ - The goal of all life is to have a ball.
+ - Religious fanaticism has clearly produced, and in all probability will continue to produce, enormous amounts of bickering, fighting, violence, bloodshed, homicide, feuds, wars, and genocide.
+ - People got insights into what was bothering them, but they hardly did a damn thing to change.
+ - If something is irrational, that means it won’t work. It’s usually unrealistic.
+ - People could rationally decide that prolonged relationships take up too much time and effort and that they’d much rather do other kinds of things. But most people are afraid of rejection.
+ - Much of what we call emotion is nothing more or less than a certain kind – a biased, prejudiced, or strongly evaluative kind – of thought.
+ - If the Martians ever find out how human beings think, they’ll kill themselves laughing.
+ - Most things worth having require some sacrifice, usually more than you expect.
+ - You have only to exist as you do and to live your life as best you can.
+ - Religious creeds encourage some of the craziest kinds of thoughts, emotions, and behaviors and favor severe manifestations of neurosis, borderline personality states, and sometimes even psychosis.
+ - There’s no evidence whatsoever that men are more rational than women. Both sexes seem to be equally irrational.
+ - Most people would have given up when faced with all the criticism I’ve received over the years.
+ - So I’d better stop my whining and help myself cope better with even the worst Adversities.
+ - Is self-esteem a sickness? That’s according to the way you define it. In the usual way it is defined by people and by psychologists, I’d say that it is probably the greatest emotional disturbance known to man and woman.
+ - People have motives and thoughts of which they are unaware.
+ - In fact most of what we call anxiety is overconcern about what someone thinks of you.
+ - As a result of my philosophy, I wasn’t even upset about Hitler. I was willing to go to war to knock him off, but I didn’t hate him. I hated what he was doing.
+ - Self-esteem is the greatest sickness known to man or woman because it’s conditional.
+ - If you would stop, really stop, damning yourself, others, and unkind conditions, you would find it almost impossible to upset yourself emotionally – about anything. Yes, anything.
+ - I started to call myself a rational therapist in 1955; later I used the term rational emotive. Now I call myself a rational emotive behavior therapist.
+ - The more sinful and guilty a person tends to feel, the less chance there is that he will be a happy, healthy, or law-abiding citizen. He will become a compulsive wrong-doer.
+ - Worrying about dying will hardly help you live.
+ - You never truly need what you want. That is the main and thoroughgoing key to serenity.
+ - Neurosis is just a high-class word for whining.
+ - Acceptance is not love. You love a person because he or she has lovable traits, but you accept everybody just because they’re alive and human.
+ - I had used eclectic therapy and behavior therapy on myself at the age of 19 to get over my fear of public speaking and of approaching young women in public.
+ - You largely constructed your depression. It wasn’t given to you. Therefore, you can deconstruct it.
+ - I think it’s unfair, but they have the right as fallible, screwed-up humans to be unfair; that’s the human condition.
+ - This, perhaps, goes to show that conditional self-esteem, as I have said for many years, is an insidious, real sickness, so much so that even Buddhists carelessly sneak it in and sometimes encourage their clients to achieve it.
+ - I think the future of psychotherapy and psychology is in the school system. We need to teach every child how to rarely seriously disturb himself or herself and how to overcome disturbance when it occurs.
+ - The individual is taught that there is nothing that he as a total person is to feel ashamed of or self-hating for.
+ - Eating is always a decision, nobody forces your hand to pick up food and put it into your mouth.
+ - We can actually put the essence of neurosis in a single word: blaming – or damning.
+ - Attempts to help humans eliminate all self-ratings and views self-esteem as a self-defeating concept that encourages them to make conditional evaluations of self. Instead, it teaches people unconditional self-acceptance.
+ - We teach people that they upset themselves. We can’t change the past, so we change how people are thinking, feeling and behaving today.
+ - I regret that I’ve been so busy with clinical work that I haven’t been able to spend much time on experiments and outcome studies.
+ - I hope to die in the saddle seat.
+ - For that again, is what all manner of religion essentially is: childish dependency.
+ - I’m very happy. I like my work and the various aspects of it – going around the world, teaching the gospel according to St. Albert.
+ - I would have liked having children to some degree, but frankly I haven’t got the time to take the kids to the goddamn ballgame.
+ - Freud had a gene for inefficiency, and I think I have a gene for efficiency.
+ - Let’s suppose somebody abused you sexually. You still had a choice, though not a good one, about what to tell yourself about the abuse.
+ - Whining about your own, others’, or the world’s failings is a main element in what we usually call neurosis.
+ - Unless, of course, you insist on identifying yourself with the people and things you love; and thereby seriously disturb yourself.
+ - I thought foolishly that Freudian psychoanalysis was deeper and more intensive than other, more directive forms of therapy, so I was trained in it and practiced it.
+ - I get people to truly accept themselves unconditionally, whether or not their therapist or anyone loves them.
+ - If I had been a member of the academic establishment, I could have done other experiments.
+ - Many psychoanalysts refused to let me speak at their meetings. They were exceptionally vigorous because I had previously been an analyst and they were very angry at my flying the coop.
+ - I wrote several articles criticizing psychoanalysis, but the analysts weren’t listening to my objections. So I finally quit after practicing it for six years.
+ - In the old days we used to get more referrals, because people had insurance that paid for therapy. Now they belong to HMOs, and we can only be affiliated with a few HMOs.
+
+85 quotes

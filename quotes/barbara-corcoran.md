@@ -1,0 +1,95 @@
+ - People imitate their leader. Lead by example.
+ - Always choose attitude over experience. Always.
+ - The difference between successful people and others is how long they spend time feeling sorry for themselves.
+ - My best successes came on the heels of failures.
+ - Don’t be afraid to go for positions, jobs or take on clients just outside of your knowledge base. It’s when you’re uncomfortable that you learn and grow the most.
+ - Insecurity is a wonderful motivator.
+ - I have a theory and I really believe it. I think your worst weakness can become your greatest single strength.
+ - Buyers decide in the first eight seconds of seeing a home if they’re interested in buying it. Get out of your car, walk in their shoes and see what they see within the first eight seconds.
+ - Confidence is overrated. It’s when we’re uncomfortable and looking for answers that we learn and grow the most.
+ - When you feel stuck and can’t seem to move ahead, always remember that you don’t have to get it right, you just have to get it going!
+ - Stop putting it off! Procrastination breeds guilt, guilt breeds depression, and depression breeds failure.
+ - All the best things that happened to me happened after I was rejected. I knew the power of getting past no.
+ - Home staging used to be optional. Today, it’s a necessity in selling a house.
+ - A funny thing happens in real estate. When it comes back, it comes back up like gangbusters.
+ - Don’t get cocky just because you’ve had a good run. You can lose your business as fast as you’ve earned it.
+ - Don’t you dare underestimate the power of your own instinct.
+ - Leaders come in two flavors, expanders and containers. The best leadership teams have a mix of both.
+ - The biggest challenge in business is not the competition, it’s what goes on inside your own head.
+ - The power of publicity is more important than advertising.
+ - A complainer is like a Death Eater because there’s a suction of negative energy. You can catch a great attitude from great people.
+ - Innovation and creativity are the juiciest parts of running a business.
+ - Money is not the only thing that motivates employees. It’s about making them happy.
+ - Taking chances almost always makes for happy endings.
+ - If you stand back and analyze the best way to do something, you’ll be standing there forever. Follow your gut and jump right in!
+ - The story of my billion-dollar business starts like this. I borrowed $1,000 from a friend.
+ - Refinancing doesn’t reduce your debt, it just restructures it, so be clear about what you want to achieve with a refi.
+ - You may not like the idea of putting money into a home when you’re moving out. But it’s demanded by the market. You need to show it off. You don’t have to rip out the kitchen and bathroom. But maybe replace the tiles or the countertops. Get professional advice.
+ - I was a hot-dog stand lady, I was an orphan housemother, I was a waitress 3 or 4 times. All of those jobs did not have good bosses. They basically told you what to do, when to do and when to hop. And I just didn’t like that very much.
+ - My mother is an amazing woman. Not only did she manage the entire household, she noticed a gift in each of her kids and instilled confidence in all of us that that gift would take us wherever we wanted to go.
+ - I love myself. Anything that has my name I’m tickled to death.
+ - My mother’s genius was to put her finger on the gifts she saw in each of us, and make every one of us believe that that gift was uniquely ours.
+ - If you’re having fun, you wind up innovating.
+ - I hadn’t learned to read by third grade, which wasn’t unusual for some kids. I knew something was wrong because I couldn’t see or understand the words the way the other kids did. I wasn’t the least bit bothered – until I was sent back to the second-grade classroom for reading help after school.
+ - I have found, whether you have a tiny business or a big business, if you don’t jump on something right away, it’s like a bird flying by-it flies off.
+ - When you’re building a business, you’re either all in, or you’re not.
+ - In business, you’re the Chief Salesman. Create a sense of demand, rather than waiting to have demand.
+ - I think of my business and investments as extension of my family.
+ - What people ask for has nothing to do with the value of a property. You might see a listing for $300,000 and think you should make a $250,000 bid. But hyper-focus on what the house is worth. You should know what the house is worth by looking at comparable properties. Base your bid on that.
+ - Failure is my specialty.
+ - That ability to pop back up is true of anyone who succeeds in their field.
+ - I’ve never had a really creative idea sitting at my desk. All the big ideas that made a difference happened when I was playing outside.
+ - It’s rumored that doing well in real estate is to be able to close a deal. I did not find that to be the case for myself, I was probably the worst closer out there and I didn’t find that was true of my top super stars either.
+ - Every single thing I learned about marketing and building my business, I learned from my mom, and she had never been in the workforce. She just had great practical sense.
+ - Figure out what past efforts amounted to nothing and label them your “not to do” list. Post the list where you’ll see it.
+ - I gave up years ago on the concept that you could actually have balance in your life, I think it’s a phantom chase.
+ - Instead of assuming everything you’re being told is the truth, ask plenty of questions.
+ - I was well motivated. What I wanted to do was work for myself. I had twenty two jobs before I started my business at the age of twenty three and I didn’t want one more boss telling me what to do. So I was motivated simply because I didn’t want a boss.
+ - Harebrained schemes often lead to great discoveries.
+ - A good organization is like a box of crayons. You need different colors of the spectrum, but all the crayons should fit in the box.
+ - Shark Tales: How I turned $1,000 into a Billion Dollar Business.
+ - People want to do business with someone they like. If people like you, they’re going to want to do business with you. And if they don’t you’re going to have an almost insurmountable obstacle to overcome.
+ - Buy with your heart, not your head. You can look at all the aspects that make a purchase practical, but that kind of thinking makes it an investment rather than a home.
+ - Home staging is no longer optional in this real estate market, it is a must!
+ - My husband had a very strong identity and was successful in his life. Thank God for that. There’s no way I can control him. I wouldn’t stay married to him if I felt I could. I can readily take my business personality into the home. But he forces me to be a partner rather than the boss.
+ - You can’t study to be an entrepreneur. Sometimes, you just have to jump.
+ - If someone doesn’t fit in your company, you have an obligation to get rid of them, because you’re holding them back from excelling elsewhere.
+ - I became a larger than life figure for one reason only. When you’re quoted in the ‘Wall Street Journal,’ the ‘New York Times,’ constantly as the expert in the business people assume you’re a lot bigger than you are. And then I had to run like hell to catch up with my own image.
+ - If I could set a world record, it would be that I have 150 business partners, all with thriving businesses of their own that started with nothing and I made the difference to make them all billionaires.
+ - Especially if you’re over 40, shortening the term of your loan to pay it off sooner could make you mortgage-free in retirement.
+ - The wheels of justice – they’re square wheels.
+ - Your people smarts will prove ten times more valuable than all the book smarts you can’t get.
+ - A whopping 89 percent of buyers start their home search online. How your house looks online is the modern equivalent of ‘curb appeal.’ Rent a wide-angle lens and good lighting, get rid of your clutter and post at least eight great photos to win the beauty contest.
+ - Refinancing your mortgage usually makes sense if you can lower your interest rate by at least two points. But the most important question to ask yourself is, how long will it take you to break even?
+ - I hate entrepreneurs with beautiful business plans.
+ - Make sure you pick good people to build your business with, as they’ll determine 80 percent of your success.
+ - The most effective way to build a brand is not by spending millions in advertising, but by finding a clever way to keep your name in the press.
+ - I did everything in my power to give my brokers brand identity and clout in the market. I saw my job as parent to build them up and if I took care of them, then they would take care of their customer.
+ - In New York City, the meek don’t inherit the earth. The big mouth does.
+ - When you have chemistry with a potential hire, they will most likely become a great employee.
+ - If a house is priced appropriately, make a bid 10 percent below that amount.
+ - The most expensive hobby a rich man could have is a boat, and the second most expensive hobby he could have is a very old house.
+ - If you want to be noticed, dress the part.
+ - I don’t invest anymore in entrepreneurs who don’t have charisma.
+ - Good salesmanship is nothing more than maximizing the positive and minimizing the negative.
+ - I had probably seven agents by the time I became a legitimate real estate broker.
+ - Everybody thinks that they’re going to time the market, they’re going to sharpshoot the market, and buy right at the bottom. The truth of the matter is that nobody is good at it.
+ - I’m never in control of my time during the workday.
+ - I got along with people very well at every job I had, people liked me and I liked them and I loved being on my feet.
+ - Become better at firing than hiring – it’s crucial for building a business.
+ - The most influential factor in selling a home is always price. Don’t build ‘wiggle room’ into the asking price. There’s a price war out there and you have to win it from the get-go.
+ - Take some time to sit down and figure out how your big rival is promoting their brand and plan something smarter and more creative for yours!
+ - I sat down and collected all of our eleven sales for the past six months and I added them all together and divided by eleven. I then took that average and presented it as the average price for a Manhattan apartment. The media ate it up.
+ - Don’t teach talent that isn’t there.
+ - If you get labeled a winner, people come along for the ride. Might as well enjoy it and they should too.
+ - The best time to expand is when people are asleep at the wheel.
+ - Your business is a part of yourself. Should it be? Who knows, but it sure feels that way. You can never really leave it.
+ - Most great entrepreneurs I know are nothing like the other kids. They’re almost like tangent lines – those lines that seem to go nowhere. Nothing connects them, until they get out in the real world. Then they connect just fine.
+ - No loan is free. The costs are in your loan somewhere, maybe rolled into the amount to be refinanced or even coming at a higher interest rate.
+ - If you want to have a creative culture, you can’t get it by reading books. You get it by example.
+ - If your house has been on the market for more than four months, take it off the market and re-list it in two months as ‘new.’
+ - When you’re in business, if you have some sort of gimmick it’s a huge advantage.
+ - I wanted to be a 150% entrepreneur and a 150% mom, and I found that I was having a very hard time doing both. I was about 75% and 75% – still better than 100%, but not what I was accustomed to at work.
+ - I’ve seen innovation come from something as simple as a resourceful multibillionaire who wanted to make even more money.
+
+93 quotes

@@ -1,0 +1,77 @@
+ - Ideas don’t make you rich. The correct execution of ideas does.
+ - You’ll never get rich by working for your boss.
+ - Without self belief nothing can be accomplished. With it, nothing is impossible.
+ - Teamwork is the glue which binds losers together.
+ - Say to yourself: The world is full of money. Some of it has my name on it. All I have to do is collect it.
+ - You have to persuade yourself that you absolutely don’t care what happens. If you don’t care, you’ve won. I absolutely promise you, in every serious negotiation, the man or woman who doesn’t care is going to win.
+ - Anyone not busy learning is busy dying.
+ - Good ideas are like Nike sports shoes. They may facilitate success for an athlete who possesses them, but on their own they are nothing but an overpriced pair of sneakers. Sports shoes don’t win races. Athletes do.
+ - If you are unwilling to fail, sometimes publicly and even catastrophically, you will never be rich.
+ - Most of the worst errors I made in my life came from forgetting to act small.
+ - I think having a great idea is vastly overrated. I know it sounds kind of crazy and counterintuitive. I don’t think it matters what the idea is, almost. You need great execution.
+ - You have an advantage that neither education nor upbringing can buy – you have almost nothing. And therefore you have almost nothing to lose.
+ - Obviously, waste disposal is an enormous and fantastic industry.
+ - Fear not. For fear itself is fed by fear, and all fears pass. Did no one tell you so? Come take my hand, my friend, and we will peer into this fear’s abyss. And jump! And know.
+ - The belief that you have a great idea is not worth cuckoo spit. Ideas are ten a penny while the ability to execute counts for a great deal more.
+ - When you come across real talent, it is sometimes worth allowing them to create the structure in which they choose to labor. In nine cases out of ten, by inviting them to take responsibility and control for a new venture, you will motivate them to do great things.
+ - I couldn’t care less what anyone’s ‘perception’ of me is. I’m too long in the tooth to care.
+ - Making money is certainly the one addiction I cannot shake.
+ - America is not the center of the universe.
+ - Whatever qualities the rich may have, they can be acquired by anyone with the tenacity to become rich.
+ - This modern mania for interfering in other’s lives, usually under the guise of health and safety concerns, is highly irritating and counterproductive. Down with the nanny state.
+ - I don’t take investment advice from wealth managers. I have grown several businesses from scratch and amassed many millions from my publishing empire – why would I take advice from someone who has never experienced that?
+ - It’s kind of a crazy thing to decide that you’re going to be worth tens and tens and tens of millions of dollars and set out to do that. It doesn’t suit everybody.
+ - I love the business of business; I love the risk raking.
+ - Unless you are completely retired, earning money is the best form of wealth preservation.
+ - I have one talent, and that’s figuring out what people want about two minutes before they know it themselves.
+ - Having a great idea is simply not enough. The eventual goal is vastly more important than any idea. It is how ideas are implemented that counts in the long run.
+ - Knowing isn’t doing; doing isn’t knowing. Nothing but the knowing and the doing gets it done.
+ - The beginnings of a forest is one of the ugliest things on the planet. It’s bleak and your neighbours hate you.
+ - Human beings are definitely changing the planet, but how much impact they are having on climate, I don’t know and I don’t care.
+ - I have an over-attachment to precision, which is why I’ve sold more magazines than any man alive.
+ - I’m an entrepreneur, a businessman. I’ve got a lot of money, and that doesn’t go very well with the whole ‘starving artist in a garret’ routine.
+ - I cannot abide being bored.
+ - America is an empire. I hope you know that now. All empires, by definition, are bumbling, shambolic, bullying, bureaucratic affairs, as certain of the rightness of their cause in infancy, as they are corrupted by power in their dotage.
+ - If the influence of luck is a delusion, then all I can say is that the delusion is virtually universal.
+ - For me, temptation is life and I have a gargantuan appetite for everything.
+ - The key to successful business is self belief and application.
+ - I should have liked to get married, but over many decades I have lived essentially alone. I go to sleep when I’m tired, get up when I wake up, have my food prepared when I’m hungry. I can’t bear the thought that I’d have to coincide, make an effort.
+ - False praise is worse than no praise.
+ - Sometimes, to ensure that a talented individual will work for you, or will stay working with you, you need to be flexible. Money is not always the great motivator here. Talented people want a good salary, of course, but surprisingly often they are more attracted to new opportunities and challenges.
+ - Few things in life are certain except death and being taxed.
+ - It’s a long, slow sunset for ink-on-paper magazines, but sunsets can produce vast sums of money.
+ - Poetry is one of the oldest of all art forms, and one of its powers for shamans and tribal leaders was the mnemonic.
+ - I loathe and detest movies and television and don’t watch any. I do not have the time.
+ - Native trees are so important to our ecosystem.
+ - No woman or girl is going to want to spend time looking at pretty dresses on the Internet. Vogue is going to be around for a long time to come.
+ - As with the onset of sudden celebrity, for the newly rich, the world often becomes a darker, narrower, less generous place; a paradox that elicits scant sympathy, but is nonetheless true.
+ - I want to prove that if you write in strict meter and rhyme about subjects people care about, they will buy poetry.
+ - Discourse has ended in America. It’s all just shouting and ranting and demonization. Do you know how the rest of the world laughs at you guys? Have you got any idea? They’re just rocking with laughter night and day.
+ - Poetry forces a writer to condense and crystallise his thoughts and often represents a short cut to truths unsuspected by the author himself.
+ - No poetry that I’m aware of, however bad or glorious, has ever left somebody a worse person than they were before they read it.
+ - I only buy a computer when it’s two years old, after the glitches have been worked out.
+ - I hear poets complaining: ‘We face what our forebears did not face. We face TV. We face radio. We face this and that.’
+ - I am absolutely convinced that my life was redeemed by poetry.
+ - Very, very few entrepreneurs who accept a 51 percent partner in a new venture will get rich if they are also expected to run it. Control is mandatory.
+ - With a poetry book I can send 100 copies out to reviewers and other people, and even do it in advance and get their response. It’s difficult with iPad: how do you send it out for free, and how do you even disseminate it before it goes into their store?
+ - Publishing magazines for yourself is not good business, man.
+ - I never sue journalists. I employ journalists. I employ too many of them. I don’t sue journalists.
+ - Computers are wasteful of paper and time. Once, we’d get documents with a few errors. Now, people make hundreds of copies until each sheet is flawless and memos are duplicated endlessly. Managers get swamped with emails.
+ - Rich people always have a certain degree of debt. Apparently it helps to reduce taxes. I’m not so hot on the bean-counting side.
+ - It’s very difficult to be continuously charitable in a capitalistic society. You’ve also got to make sure that you can pay everyone who works for you.
+ - There are as many forms of happiness as sorrow, though most prove fleeting.
+ - Everything I publish is for my readers.
+ - I have been portrayed by actors in three television documentaries, two plays, one musical and a film. It’s no fun watching yourself being traduced and imitated by an actor.
+ - You can actually be bored stiff while you’re dying.
+ - People who get trapped in the tunnel vision of making money think that is all there is to life.
+ - When I was young, I wanted to be the greatest blues singer of all time. I wrecked my education and left home for it.
+ - People really do not have time to read all the newspapers in the world and all the sites that we now commonly use on the web. There is no possibility of keeping up.
+ - I thoroughly object to getting old. If you could let me be 16 again, I’d give you everything I’ve got and everything I’ll ever have.
+ - You don’t have to live in a garage to write great poetry.
+ - I’ve always noted with some awe the reading habits of the Australian public. Australians read more newspapers and magazines per head of population than almost any other country in the world.
+ - The age of celebrity editors and monstrous staffing are over.
+ - America, ladies and gentlemen, has done more for me financially than Britain ever has, or ever could have done.
+ - Do not be shy to call customers who owe you money. It works.
+ - With the greatest of respect, I have watched Apple from the day it started. I was publishing magazines about the Apple II before most people had ever heard what a personal computer was.
+
+75 quotes

@@ -1,0 +1,26 @@
+ - The average man can’t prove most of the things that he chooses to speak of, and still won’t research and find out the root of the truth that you seek of.
+ - Your body’s just a vehicle, transporting the soul. It’s what’s inside of people, is beauty to behold.
+ - Did you know the pen is stronger than the knife: they can kill you once but they can’t kill you twice.
+ - Everyone is related to Africa; everyone comes from Africa. We are all distant relatives.
+ - Did you know that I exist before the earth and did you know my eyes are windows to the world.
+ - We take for granted electricity, water, even concerts. Count your blessings.
+ - Did you know destruction of the soul is not the ending to life: Fear not of the Antichrist.
+ - The victory’s found in truth, like innocence found in youth Self defeat is your own dispute.
+ - It’s not like I go into the studio and say I’m going to try to make music to prove to somebody that I can make music.
+ - I used to buy records in high school. Mainly dancehall: Super Cat, Buju Banton.
+ - Some boy nuh know dis, dem only come around like tourist. On the beach with a few club sodas. Bedtime stories, and pose like dem name Chuck Norris and don’t know the real hardcore.
+ - Poverty breeds a lot of things. When people are desperate and trying to survive, they do drastic things.
+ - Body have to physically strong and sturdy. Spiritually balanced fi clean and purge me. Mentally advanced fi always urge me. Read a couple books and challenge the clergy. Read a couple psalms up in the morning early.
+ - A revolution is to bring on change and we’re spiritual people trying to bring on spiritual change. It might sound like I’m a dreamer, but economic models have reached their height of evolution. Technology has evolved. What hasn’t evolved is mankind’s spirituality; everything is from 3,000 years ago.
+ - Toasting is basically what you call rapping. It came off of playing the beats at the parties, however it be. You find a space in the beat, and you have somebody live just basically saying rhymes over the beat.
+ - My father has been a voice of encouragement in times of desperation for so many people. But he died when I was so young that, for me, his music has been a way for me to get to know him better.
+ - I like singing all songs, really, but I find that writing social commentary comes naturally.
+ - Music is an expression of what’s inside of you. And that’s how I make music.
+ - Everything I’ve experienced, things that my friends have experienced and we talk about, things that are on the news – all aspects of life are in my message.
+ - Politicians need to stop the violence because it has become a way of life in Jamaica. It’s the thing to do – be violent in Jamaica.
+ - I would never say that being Bob Marley’s son has been a pressure. It has been a door opener.
+ - Music is not like sports, where you can go and do a hundred reps in a gym and come out and be all buffed up.
+ - I record all night and sleep all day.
+ - Every one of my father’s songs is a lesson.
+
+24 quotes

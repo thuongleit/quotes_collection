@@ -1,0 +1,35 @@
+ - Sometimes, the most profound of awakenings come wrapped in the quietest of moments.
+ - But I like it Because it is bitter, And because it is my heart.
+ - A mysterious fraternity born out of smoke and danger of death.
+ - The man had arrived at that stage of drunkenness where affection is felt for the universe.
+ - Mother, whose heart hung humble as a button the bright splendid shroud of your son, Do not weep. War is kind.
+ - It was not well to drive men into final corners; at those moments they could all develop teeth and claws.
+ - It was surprising that Nature had gone tranquilly on with her golden process in the midst of so much devilment.
+ - Doubtless there are other roads.
+ - Let me into the darkness again.
+ - Over the river a golden ray of sun came through the hosts of leaden rain clouds.
+ - A MAN FEARED A man feared that he might find an assassin; Another that he might find a victim. One was more wise than the other.
+ - Perhaps an individual must consider his own death to be the final phenomenon of nature.
+ - The red sun was pasted in the sky like a wafer.
+ - The cold passed reluctantly from the earth, and the retiring fogs revealed an army stretched out on the hills, resting. As the landscape changed from brown to green, the army awakened, and began to tremble with eagerness at the noise of rumors.
+ - A serious prophet upon predicting a flood should be the first man to climb a tree. This would demonstrate that he was indeed a seer.
+ - When it came night, the white waves paced to and fro in the moonlight, and the wind brought the sound of the great sea’s voice to the men on shore, and they felt that they could then be interpreters.
+ - Half of tradition is a lie.
+ - And it was as if fate had betrayed the soldier. In death it exposed to his enemies that poverty which in life he had perhaps concealed from his friends.
+ - Tell her this And more, – That the king of the seas Weeps too, old, helpless man. The bustling fates Heap his hands with corpses Until he stands like a child With surplus of toys.
+ - When it occurs to a man that nature does not regard him as important, and that she feels she would not maim the universe by disposing of him, he at first wishes to throw bricks at the temple, and he hates deeply the fact that there are no bricks and no temples.
+ - He saw that it was an ironical thing for him to be running thus toward that which he had been at such pains to avoid.
+ - A man with a full stomach and the respect of his fellows had no business to scold about anything that he might think to be wrong in the ways of the universe, or even with the ways of society. Let the unfortunates rail; the others may play marbles.
+ - Tradition, thou art for suckling children, Thou art the enlivening milk for babes, But no meat for men is in thee.
+ - In the swirling rain that came at dusk the broad avenue glistened with that deep bluish tint which is so widely condemned when it is put into pictures.
+ - If I am going to be drowned – if I am going to be drowned – if I am going to be drowned, why in the name of the seven mad gods who rule the sea, was I allowed to come thus far and contemplate land and trees?
+ - Every sin is the result of collaboration.
+ - The word is clear only to the kind who on peak or plain, from dark northern ice-fields to the hot wet jungles, through all wine and want, through lies and unfamiliar truth, dark or light, are governed by the unknown gods, and though each man knows the law, no man may give tongue to it.
+ - I saw a man pursuing the horizon.
+ - Two or three angels Came near to the earth. They saw a fat church. Little black streams of people Came and went in continually. And the angels were puzzled To know why the people went thus, And why they stayed so long within.
+ - Everything is bicycle.
+ - He vaguely desired to walk around and around the body and stare; the impulse of the living to try to read in dead eyes the answer to the Question.
+ - It perhaps might be said – if any one dared – that the most worthless literature of the world has been that which has been written by the men of one nation concerning the men of another.
+ - Such an assemblage of the spraddle-legged men of the middle class, whose hands were bent and shoulders stooped from delving and constructing, had never appeared to an Asbury Park summer crowd, and the latter was vaguely amused.
+
+33 quotes

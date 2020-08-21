@@ -1,0 +1,30 @@
+ - Unhappiness lies in that gap between our talents and our expectations.
+ - People either hate me or dislike me – but I realized that people aren’t against you, they are for themselves. We’re all prejudiced in favor of ourselves.
+ - I like fat girls. A woman can never be too poor or too fat. I’d take a poor fat girl over a rich thin girl like Kate Moss.
+ - A woman is supposed to have curves like an old Bentley, not like some old bike.
+ - Being well-dressed gives a feeling of inward tranquility which psychoanalysis is powerless to bestow.
+ - There’s a lot of noise about me that stops a lot of people from listening, but the good side is if you expose yourself like that, you’re left with only good people who can see through you-you get rid of all the wankers.
+ - I might be old, but I’m still desirable.
+ - It’s better to be quotable than honest, I don’t speak, I quote. I am a fraud. I have cobbled together my personality from hundreds of little bits. I am simultaneously the most genuine and the most artificial person you will ever meet.
+ - Everyone says Oscar Wilde was a dandy, but he wasn’t, he was an aesthete. He took pleasure in food and stuff like that. Dandyism is much more austere-much more Calvinistic, more neurotic – it oscillates between narcissism and neurosis.
+ - The function of music is to release us from the boredom of existence.
+ - People are obsessed by happiness, but there are a lot of other invigorating experiences available.
+ - I am desperate for attention. But everyone else is too. Everyone has fantasies of fame and greatness. Life for most people is a process of shedding those fantasies.
+ - To be worthy of assassination takes more than some crappy little book.
+ - I don’t really know what Americans are like. I’ve no idea. I know a few things about them. In my imagination, they have warm peachy hearts, whereas the English have horrible spiteful withered hearts – success in England inspires envy – in America, it inspires hope.
+ - My only criticism about Quentin Crisp is that the subversive must be ready to subvert themselves. I may dress for myself, but I undress for everybody else, whereas he never did that – he was never prepared to drop a bomb on everything he did.
+ - I am half-Byronic, half-moronic; part-shaman, part-showman.
+ - We build our character as a carapace to keep away the fear of the abyss. That’s what our character is for.
+ - I didn’t want to tell Mother I worked as a journalist. She thought I was a prostitute. Locking yourself in a room and inventing characters and conversations which do not exit is no way for a grown man to behave.
+ - I have wanted only one thing to make me happy. That thing is everything.
+ - If I hear that people are litigious, I immediately dismiss them.
+ - Self-pity is the most destructive of all narcotics.
+ - The problem I’ve got is that I really, really like drugs. I love everything about them. It is horrific being sober all the time-utterly awful.
+ - One of the many troubles of growing older is that it gets progressively harder to find a famous historical figure who hadn’t yet amounted to anything by the time he was your age.
+ - I don’t think I’m known for my gifts – I’m known for my gall. I don’t want to be just a famous person – I’m too old.
+ - It’s really interesting because 50 years ago, if you didn’t wear a hat everyone looked at you. It just proves that everything is fashion.
+ - My one concession to American sensibilities was to remove my nail polish.
+ - But really death seems the least awful thing that can happen to someone.
+ - I keep the shutters closed because I like to work in a hermetic environment. I like mirrors. When you look out of the window, all you see is ugliness, but when you look in the mirror all you see is beauty.
+
+28 quotes

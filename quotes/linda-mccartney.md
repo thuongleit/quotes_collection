@@ -1,0 +1,22 @@
+ - I don’t need a lot of money. Simplicity is the answer for me.
+ - If slaughterhouses had glass walls, everyone would be vegetarian. We feel better about ourselves and better about the animals, knowing we’re not contributing to their pain.
+ - If you see something that moves you, and then snap it, you keep a moment.
+ - My mother was killed in a plane crash, so I hate travelling in planes. Death is so unexpected. I would actually rather stay at home and not go anywhere.
+ - We moved there a year ago, just as a weekend place. Then we decided to move out of London completely. We will eventually have to work it out a bit more, because you can’t have a little boy living with his sisters like that, can you? But we like the idea of closeness.
+ - Anyone who cares about the Earth – really cares – must stop eating animals.
+ - Oppression won’t win, the light comes from within.
+ - I had daydreams and fantasies when I was growing up. I always wanted to live in a log cabin at the foot of a mountain. I would ride my horse to town and pick up provisions. Then return to the cabin, with a big open fire, a record player and peace.
+ - We spent last night listening to Liverpool football team on the radio, wanting them to win so badly. Paul supports Liverpool. He was Everton for a while because of his family – but it’s all Liverpool now.
+ - I would travel only by horse, if I had the choice.
+ - But I wanted marriage for myself. I was not calculating about it. I wish I was more calculating.
+ - There’s the feeling, and the right reading – that’s all you really need to know; the right light and the feeling.
+ - Cooking for six people every day is like having a cafe.
+ - He is not in the least arrogant. The last album was written in a room in Sussex. He was like a mad professor, spending all day writing and then coming out with brilliant tunes.
+ - When I first toured with Wings things that were said about me were true – I did sing out of tune.
+ - I think hard drugs are disgusting. But I must say, I think marijuana is pretty lightweight.
+ - Our kids haven’t any airs about them. I don’t like posh kids who don’t like dirty dolls or expect a chauffeur every time they go out.
+ - We think we want to do something and when it comes to it, we don’t. We don’t like to commit.
+ - Most people if I like their music, I can get good pictures.
+ - I won’t be having any more kids, though. Four is enough.
+
+20 quotes

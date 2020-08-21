@@ -1,0 +1,25 @@
+ - Never let life impede on your ability to manifest your dreams. Dig deeper into your dreams and deeper into yourself and believe that anything is possible, and make it happen.
+ - Never let life impede on your ability to manifest your dreams.
+ - I did private study for about a month, five days a week, six hours a day. I came to understand the character in ways that I never would’ve previous to that. I was so innocent in respect to ways of creating characters.
+ - I have my ethics and morals. I have my anchor point of what is right and wrong in real life, but I’m not afraid to entertain any and every aspect of personality in relationship to creating a character.
+ - What motivates me in art is the ugly and beautiful nature of the truth. It has to be truthful and honest, even if it is ugly and grotesque.
+ - Stargate by far is the top of the pile when it comes to Sci-Fi. The quality is great. They have really good writers, production design, lighting, wardrobe.
+ - Every role varies greatly, just as emotions vary greatly.
+ - I got to do a whole slew of TV movies playing the bad guy, including an episode of Smallville. That would never have happened if I hadn’t done the Stand.
+ - Art is about expressing the true nature of the human spirit in whatever way one wishes to express it. If it is honest, it is beautiful. If it is not honest, it is obvious.
+ - I try to find what is closest to me in the character. There’s many sides to personality, but it’s a matter of, do you entertain those specific areas of your personality, or are you afraid to entertain them?
+ - I very rarely get nervous as an actor. Very rarely.
+ - I like good stories. Quality products and character are what’s important. Even if the script isn’t that strong, if I challenge myself with a great character, I’ll go for it.
+ - I can’t sing. Definitely no ambition in that area.
+ - In LA, too many people want to go the quickest route from A to B. Method acting offers them that.
+ - I decided I’d never do a series again, but I was offered a pilot for a series through Eddy Murphy Productions, and that was the gig that got me Parker Lewis.
+ - I’ve done a number of readings at poetry lounges in Vancouver and Los Angeles. I’ve compiled a book of poetry that’s completed, and two others I’m working on.
+ - Even though I was theatrically trained, learning to develop a character was an awesome experience.
+ - There were time when I was into method acting that I did have moments of residual character emotions, because the method bases your emotional responses as a character on emotional experiences from your real life.
+ - I had the benefit of experiencing a hundred times more than the average kid. I don’t look back with regret at all. It was the best life ever.
+ - It would be far to general a statement to try and describe the daily life of an actor in Hollywood, but I am quite certain that cappucinos have something to do with it.
+ - I’d just gotten into Los Angeles from Texas, where I live, and the phone rang and it was the guy calling about the Willie Nelson video. I was totally excited about it.
+ - Emmanuel Lewis was amazing to work with. I’ll love that guy to the end of time.
+ - My favorite episode of Stargate? All of them! My favorite episode of Parker Lewis? All of them!
+
+23 quotes

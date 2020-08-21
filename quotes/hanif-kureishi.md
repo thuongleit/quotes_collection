@@ -1,0 +1,43 @@
+ - If you want something badly enough, you make arrangements. If you don’t want it badly enough, you make excuses.
+ - Dear God, teach me to be careless.
+ - And silence, like darkness, can be kind; it, too, is a language.
+ - Soon we will be strangers. No, we can never be that. Hurting someone is an act of reluctant intimacy. We will be dangerous acquaintances with a history.
+ - At the same time, you have to find the right distance between people. Too close, and they overwhelm you, too far and they abandon you. How to hold them in the right relation?
+ - I can’t sleep with you tonight, baby, my head’s all messed up, you’ve no idea. It’s somewhere else and it’s full of voices and songs and bad things...
+ - You don’t stop loving someone just because you hate them.
+ - Anna Karenina is just a story about a woman falling in love with a bloke who is not her husband. Its gossip, rubbish – on the other hand, its the deepest story there could be about social transgression, about love, betrayal, duty, children.
+ - Our lives can only be lived forward and understood backwards. Living a life and understanding it occupy different dimensions.
+ - How disturbing it is that our illusions are often our most important beliefs.
+ - If jealousy was the vindaloo of love, I’d imagined her tongue burning, and such a fire forcing her to spill her truth.
+ - What a quality of innocence people have when they don’t expect to be harmed.
+ - Being in love means being at the mercy of someone’s childhood.
+ - You can’t spend your life beating yourself up for something that happened yesterday. You die if you don’t follow your desire.
+ - I don’t want to be loved. I want to be desired. Love is safety, but desire is foul.
+ - No amount of promises can guarantee love.
+ - Without love, most of life remains concealed. Nothing is as fascinating as love, unfortunately.
+ - I’m always writing. I’m an obsessive. It’s not because I’m a disciplined person. It’s because I’m crazy about it.
+ - One would hope, as well that intimacy would leave more of a mark, that more of it would remain. But it doesn’t. You just end up thinking, who is this person?
+ - Security and safety were the reward of dullness.
+ - Fundamentalism is dictatorship of the mind.
+ - Nothing can be repaired or advanced but only accepted.
+ - I guess writing is a kind of therapy in the sense that there are things you need to say and you say them, and better out than in.
+ - Love cannot be measured by its duration...
+ - But in love each moment is magnified, and every gesture, word and syllable is examined like a speech by the President.
+ - My pleasures disappeared with my vices.
+ - Almost certainly I will not tell her my intentions this evening or tonight. I will put it off. Why? Because words are actions and they make things happen. Once they are out you cannot put them back.
+ - At the deepest level people are madder than they want to believe. You will find that they fear being eaten, and are alarmed by their desire to devour others.
+ - I’m interested in philosophical psychology, people like Nietzsche, Freud, Alcan, Foucault, Derrida.
+ - Falling in love was simple; one had only to yield. Digesting another person, however, and sustaining love, was bloody work, and not a soft job.
+ - I began to enjoy my own generosity; I felt the pleasure of pleasing others, especially as this was accompanied by money-power. I was paying for them; they were grateful, they had to be; and they could no longer see me as a failure.
+ - My guess is that she is uncomfortable in such an intransigent world but is unable to live accordingly to her own desire.
+ - The vocation of each writer is to describe the world as he or she sees it; anything more than that is advertising.
+ - If you get depressed, you can be stuck for months; if you have an analyst, you at least have a chance of getting out of it faster.
+ - My father was a civil servant, so having a regular job, being respectable is a big deal for me. Respectable in the sense that I support my family. That’s what I mean by respectability.
+ - Like you, she will have been with other people, but I’ve got a feeling there’s something between you.
+ - It seemed to me that the real philosophical breakthroughs of the 20th century were in terms of the understanding of language. What is language? Where does it come from, how does it work, what does it do?
+ - I’ve never had any desire to be good. I don’t like goodness particularly.
+ - Children, who have yet to learn our ways, are notoriously promiscuous in their affection. They’ll sit on anyone’s knee.
+ - The cruellest thing you can do to Kerouac is reread him at thirty-eight.
+ - I am determined to live without illusions. I want to look at reality straight. Without hiding.
+
+41 quotes

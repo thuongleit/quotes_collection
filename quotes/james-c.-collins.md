@@ -1,0 +1,104 @@
+ - You need self-control in an out-of-control world.
+ - Discipline is consistency of action.
+ - Great vision without great people is irrelevant.
+ - Good is the enemy of great.
+ - Greatness is not a function of circumstance. Greatness, it turns out, is largely a matter of conscious choice, and discipline.
+ - Get the right people on the bus and in the right seat.
+ - Good is the enemy of great. That’s why so few things become great.
+ - You must maintain unwavering faith that you can and will prevail in the end, regardless of the difficulties, AND at the same time, have the discipline to confront the most brutal facts of your current reality, whatever they might be.
+ - A culture of discipline is not a principle of business, it is a principle of greatness.
+ - People need BHAGs – big hairy audacious goals.
+ - Bad decisions made with good intentions, are still bad decisions.
+ - Level 5 leaders are a study in duality: modest and willful, humble and fearless.
+ - If you have more than three priorities then you don’t have any.
+ - The moment you feel the need to tightly manage someone, you’ve made a hiring mistake. The best people don’t need to be managed. Guided, taught, led-yes. But not tightly managed.
+ - Building a visionary company requires one percent vision and 99 percent alignment.
+ - For, in the end, it is impossible to have a great life unless it is a meaningful life. And it is very difficult to have a meaningful life without meaningful work.
+ - Greatest danger is not failure, but be successful and not know why.
+ - You can’t manufacture passion or “motivate” people to feel passionate. You can only discover what ignites your passion and the passions of those around you.
+ - How can we do better tomorrow than we did today?
+ - The signature of mediocrity is not an unwillingness to change. The signature of mediocrity is inconsistency.
+ - We are not imprisoned by circumstances, setbacks, mistakes or staggering defeats, we are freed by our choices.
+ - The essence of profound insight is simplicity.
+ - The x factor of a great leader is humility combined with will.
+ - Start a ‘Stop Doing’ list. I’ll leave it as an existential dilemma on whether to put that task on your To Do list.
+ - The signature of mediocrity is chronic inconstancy. The signature of greatness is a disciplined and consistent focus on the right things.
+ - The difference between a good leader and a great leader is humility.
+ - That good is the enemy of great is not just a business problem. It is a human problem.
+ - A company should limit its growth based on its ability to attract enough of the right people.
+ - Not one of the good-to-great companies focused obsessively on growth.
+ - Dreams make you click, juice you, turn you on, excite the living daylights out of you. You cannot wait to get out of bed to continue pursuing your dream. The kind of dream I’m talking about gives meaning to your life. it is the ultimate motivator.
+ - Whether you prevail or fail depends more on what you do to yourself than on what the world does to you.
+ - How can you succeed by helping others succeed? We succeed at our very best only when we help others succeed.
+ - In determing “the right people,” the good-to-great companies placed greater weight on character attributes than on specific educational background, practical skills, specialized knowledge, or work experience.
+ - Comparison, a great teacher once told me, is the cardinal sin of modern life. It traps us in a game that we can’t win. Once we define ourselves in terms of others, we lose the freedom to shape our own lives.
+ - Look, I don’t really know where we should take this bus. But I know this much: If we get the right people on the bus, the right people in the right seats, and the wrong people off the bus, then we’ll figure out how to take it someplace great.
+ - In a world of constant change, the fundamentals are more important than ever.
+ - I am not failing – I am growing! Do you have the ability to reframe failure as growth in order to achieve your goals?
+ - True leadership has people who follow when they have the freedom not to.
+ - Those who build great companies understand that the ultimate throttle on growth for any great company is not markets, or technology, or competition, or products. It is one thing above all others: the ability to get and keep enough of the right people.
+ - Profit is like oxygen, food, water, and blood for the body; they are not the point of life, but without them, there is no life.
+ - Faith in the endgame helps you live through the months or years of buildup.
+ - Companies that change best over time know first and foremost what should not change.
+ - By definition, it is not possible to everyone to be above the average.
+ - The challenge is not just to build a company that can endure; but to build one that is worthy of enduring.
+ - The only way to remain great is to keep on applying the fundamental principles that made you great.
+ - Some managers are uncomfotable with expressing emotion about their dreams, but it’s the passion and emotion that will attract and motivate others.
+ - The only way to deliver to the people who are achieving is to not burden them with the people who are not achieving.
+ - Level 5 leaders are fanatically driven, infected with an incurable need to produce sustained results. They are resolved to do whatever it takes to make the company great, no matter how big or hard the decisions.
+ - An organization is not truly great, if it cannot be great without you.
+ - I can just let my curiosity wander unleashed.
+ - Good-to-great companies set their goals and strategies based on understanding; comparison companies set their goals and strategies based on bravado.
+ - The drive for progress doesn’t wait for the external world to say “It’s time to change.”
+ - In a truly great company profits and cash flow become like blood and water to a healthy body: They are absolutely essential for life but they are not the very point of life.
+ - Great companies foster a productive tension between continuity and change.
+ - I see the Baldrige process as a powerful set of mechanisms for disciplined people engaged in disciplined thought and taking disciplined action to create great organizations that produce exceptional results.
+ - There is a sense of exhilaration that comes from facing head-on the hard truths and saying, “We will never give up. We will never capitulate. It might take a long time, but we will find a way to prevail.”
+ - Managing your problems can only make you good, whereas building your opportunities is the only way to become great.
+ - Most people will look back and realize they did not have a great life because it’s just so easy to settle for a good life.
+ - Level 5 leaders channel their ego needs away from themselves and into the larger goal of building a great company. It’s not that Level 5 leaders have no ego or self-interest. Indeed, they are incredibly ambitious-but their ambition is first and foremost for the institution, not themselves.
+ - Change your practices without abandoning your core values.
+ - The greatest leaders build organizations that, in the end, don’t need them.
+ - The only mistakes you can learn from are the ones you survive.
+ - A visionary company doesn’t simply balance between idealism and profitability: it seeks to be highly idealistic and highly profitable.
+ - Creativity dies in an indisciplined environment.
+ - Mediocrity results first and foremost from management failure, not technological failure.
+ - If we only have great companies, we will merely have a prosperous society, not a great one. Economic growth and power are the means, not the definition, of a great nation.
+ - Resilency, not perfection, is the signature of greatness.
+ - Focusing solely on what you can potentially do better than any other organization is the only path to greatness.
+ - Be rigorous about your HR decisions. There is a difference between rigorous and ruthless.
+ - Not all time in life is equal. How many opportunities do you get to talk about what your life is going to add up to with people thinking about the same question?
+ - It may seem odd to talk about something as soft and fuzzy as “passion” as an integral part of a strategic framework. But throughout the good-to-great companies, passion became a key part of the Hedgehog Concept.
+ - Indeed, the real question is not, “Why greatness?” but “What work makes you feel compelled to try to create greatness?” if you have to ask the question, “Why should we try to make it great? Isn’t success enough?” then you’re probably int he wrong line of work.
+ - We learned that a former prisoner of war had more to teach us about what it takes to find a path to greatness than most books on corporate strategy.
+ - First figure out your partners, then figure out what ideas to pursue. The most important thing isn’t the market you target, the product you develop or the financing, but the founding team.
+ - Throw leaders into an extreme environment, and it will separate the stark differences between greatness and mediocrity.
+ - Genuine confidence is what launches you out of bed in the morning, and through your day with a spring in your step.
+ - The critical question is not whether you’ll have luck, but what you do with the luck that you get.
+ - The people who don’t have a great life are the ones who settle for a good one.
+ - Consider the idea that charisma can be as much a liability as an asset. Your strength of personality can sow the seeds of problems, when people filter the brutal facts from you.
+ - Smart people instinctively understand the dangers of entrusting our future to self-serving leaders who use our institutions, whether in the corporate or social sectors, to advance their own interests.
+ - The secret to a successful retirement is to find your retirement sweet spot. The sweet spot is where your passions, what you do best, and what people will pay you to do overlap.
+ - You absolutely must have the discipline not to hire until you find the right people.
+ - Leaders who led their organizations quietly and humbly, were much more effective than flashy, charismatic high profile leaders.
+ - Just because a company falls doesn’t invalidate what we can learn by studying that company when it was at its historical best.
+ - The purpose of bureaucracy is to compensate for incompetence and lack of discipline.
+ - Not every financial company toppled during the 2008 crisis, and some seized the opportunity to take advantage of weaker competitors in the midst of the tumult.
+ - Those who turn good organizations into great organizations are motivated by a deep creative urge and an inner compulsion for sheer unadulterated excellence for its own sake.
+ - If your company disappeared, would it leave a gaping hole that could not easily be filled by any other enterprise on the planet?
+ - A great company will have many once-in-a-liftetime opportunities.
+ - I am completely Socratic.
+ - Discipline should amplify creativity rather than stifle it.
+ - It took Einstein ten years of groping through the fog to get the theory of special relativity, and he was a bright guy.
+ - If we allow the celebrity rock-star model of leadership to triumph, we will see the decline of corporations and institutions of all types. The twentieth century was a century of greatness, but we face the very real prospect that the next century will see very few enduring great institutions.
+ - If I’m going really, really fast, I can do a page of finished text a day, on average.
+ - Get keep right people.
+ - It’s what you do before you are in trouble, so that you can be strong when people most need you.
+ - Recruit entrepreneurial leaders and give them freedom to determine the best path to achieving their objectives. On the other hand, individuals must commit fully to the system you use and be held rigorously accountable for their objectives. You give them freedom, but freedom within a framework.
+ - If you have a charismatic cause you don’t need to be a charismatic leader.
+ - A dream is a feeling that sticks – and propels.
+ - Those fortunate enough to find or create a practical intersection of the three circles have the basis for a great work life.
+ - It is more important to know who you are than where you are going, for where you are going will change as the world around you changes.
+ - Don’t take care of your career. Take care of your people. They will take care of your career.
+
+102 quotes

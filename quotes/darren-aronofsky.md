@@ -1,0 +1,31 @@
+ - My god is narrative filmmaking.
+ - I was a TV junkie as a kid. I am the Sesame Street generation.
+ - I couldn’t sleep one night and I was sitting in my office and I realized that I was an independent filmmaker.
+ - I think people are people and if their feelings are real and truthful they can connect.
+ - I’ve always wanted to introduce hip-hop filmmaking to film. There’s hip-hop art, dance, music, but there really isn’t hip-hop film. So I was trying to do that.
+ - I grew up in a family with two very strong women, my mother and my older sister, and they were big influences on my life. I’ve spent a life loving women, and studying them as much as I can, or am allowed to.
+ - I think video games and that stuff should be as violent as possible, but age-appropriate. It should be realistic. When it’s not realistic you run into kids running around shooting people and not realizing the consequences.
+ - Classical scores go up and down; they’re kind of hysterical in a way. And movie scores are much more – they just drive and move forward, and they build and can’t go up and down at that same speed. It’s a big job to turn that into something that pushes the movie along.
+ - I’m Godless. I’ve had to make my God, and my God is narrative filmmaking.
+ - I hope that Requiem is better than Pi. I hope that Pi is better than my student films, and I’m hoping that I’m getting better as I get older.
+ - I’ve spent a life loving women and studying them as much as I can, or am allowed to.
+ - As filmmakers, we can show where a person’s mind goes, as opposed to theater, which is more to sit back and watch it.
+ - Comic books and graphic novels are a great medium. It’s incredibly underused.
+ - I don’t make films that are easy to market, unfortunately. I think that ‘Pi’ was the easiest one, because we had that symbol to stick up everywhere, so that was a good gimmick, and created a good mystery, and we didn’t have to do huge scale.
+ - Every film had its own grammar. And it’s your job as a director to basically figure out a language to tell a story.
+ - I only want to work with actors that really get it and make it work. I didn’t want it to be a star-driven thing anymore.
+ - Right after I did ‘The Fountain,’ I wanted to go make a documentary or something that was less constructed – more natural. I was searching for a project, and sniffing around, ‘The Wrestler’ fit right in.
+ - Turning 30 was when my parents both got cancer and were fighting it and beat it, but their mortality started to get to me. Everything wasn’t as hunky-dory like it was.
+ - I wasn’t a big fan of social anthropology. And, luckily, that created room for me to work in visual arts because I sort of ignored my requirements. I think I was attracted to social anthropology because I liked to travel and was always interested in far-off places.
+ - I think people are people and, if their feelings are truthful, they can connect. It doesn’t matter if you’re an aging, 50-something wrestler at the end of his career, or an ambitious, 20-something ballet dancer.
+ - When I go to movies I generally want to be taken to another world.
+ - I have a team, the same team of filmmakers I worked with on Pi and Requiem. Which is my cameraman, and my composer, and my producer. We’ve all worked together for a number of films.
+ - I think it’s my nature to try and make original content, and that’s what I’ve done, is just try and approach things in an original way, and do things differently.
+ - You hear stories about directors using manipulation to get actors to do certain things, but I think when you’re working with professional actors, it’s all about trust. They can do anything you want, it’s just a matter of them understanding what you’re looking for, and the reason why.
+ - But steady-cams are very different than hand-helds, because hand-held gives you that verite feel.
+ - I think that there’s an infinite amount of places where you can stick a camera. There’s an infinite amount of choices of what could be going on. There’s an infinite amount of places for so many things, so you have to figure out how to do your job.
+ - It’s not that much of a difference. Basically, your job is the same as a film director. It’s a triangle between creativity, money, and time. But they don’t really change. You’re ultimately trying to get the most creativity and time with the money that you have.
+ - At the end of Requiem all I wanted to do was get a DV camera and just do a small film. But then the hunger comes back.
+ - These wrestlers aren’t organized. They have no union, no pension and no insurance. You meet wrestler after wrestler who sold out Madison Square Garden ten years ago, basically running on fumes today. There’s a lot of drama there.
+
+29 quotes

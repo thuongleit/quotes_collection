@@ -1,0 +1,24 @@
+ - Yesterday is history, tomorrow is a mystery, today is a gift of God, which is why we call it the present.
+ - Oh simple thing, where have you gone? I’m getting old and I need something to rely on So tell me when you’re gonna let me in I’m getting tired and I need somewhere to begin.
+ - They invented hugs to let people know you love them without saying anything.
+ - OF COURSE I’d like to be the ideal mother. But I’m too busy raising children.
+ - A hug is like a boomerang – you get it back right away.
+ - Goal begins with “GO.”
+ - Lovesick, bitter and hardened heart. Aching, waiting for life to start.
+ - I didn’t always spell my name Bil. My parents named me Bill, but when I started drawing cartoons on the wall, they knocked the ‘L’ out of me.
+ - I don’t just try to be funny.
+ - Sometimes I get the feeling that I’m stranded in the wrong time where love is just a lyric in a children’s rhyme.
+ - God put Santa Claus on earth to remind us that Christmas is ’sposed to be a happy time.
+ - I don’t have to come up with a ha-ha belly laugh every day, but drawings with warmth and love or ones that put a lump in the throat. That’s more important to me than a laugh.
+ - A peaceful home is as sacred a place as any chapel or cathedral.
+ - Mommy would never divorce Daddy. He’s just like one of the family.
+ - I never studied art, but taught myself to draw by imitating the New Yorker cartoonists of that day, instead of doing my homework.
+ - In Roslyn, Pennsylvania, we started our real-life family circus. They provided the inspiration for my cartoons. I provided the perspiration.
+ - Many of my cartoons are not a belly laugh. I go for nostalgia, the lump in the throat, the tear in the eye, the tug in the heart.
+ - We are, in the comics, the last frontier of good, wholesome family humor and entertainment.
+ - On radio and television, magazines and the movies, you can’t tell what you’re going to get. When you look at the comic page, you can usually depend on something acceptable by the entire family.
+ - I think it’s a novelty for cartoon characters to cross over into another strip or panel occasionally.
+ - I like to feel that what I’m doing portrays this: a family where there is love between mother, father and the kids. It’s a subject that is near and dear to me.
+ - When I was in high school at Northeast Catholic in Philadelphia in the late ’30s, I found that drawing caricatures of the teachers and satirizing the events in the school, then having them published in our school magazine, got me some notoriety.
+
+22 quotes

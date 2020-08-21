@@ -1,0 +1,43 @@
+ - Believe in yourself, work hard, work smart and passionately present your best self to the world.
+ - Fundamentally, we all want the same thing. We want to love. We want to be loved, and we want to matter.
+ - Money is simply a tool to give you choices.
+ - I think the number one safe haven where people put their money is to invest in yourself first.
+ - Change happens from the bottom up – all of us as individuals deciding that we will and we do have an impact.
+ - I’m not the biggest star in the world, but I do have a platform, and if I can use that platform to help somebody else, why wouldn’t I?
+ - You can’t build anything with a flimsy foundation. Friendship is the foundation.
+ - I believe that love expands. As you give love out, it’s received and reciprocated and it grows. That’s the beauty of it.
+ - If you have a debt issue or credit card issue, start dealing with it. If you have a tax issue, don’t just say, ‘I’m not going to file.’ There are ways to deal with these things, but you must communicate with your creditors, whether it’s a credit card company or tax department.
+ - Love is an energy. You can feed it to people, and they in turn feed it to others, and eventually it comes back.
+ - All work and no play make any forensic pathologist a dull boy.
+ - I’ve read a number of relationship books out there. A lot are written towards women.
+ - Gabrielle Union is my best friend.
+ - The best way to protect young black, brown, men of color, women of color, is to actually stop profiling, stop the prejudice, and stop the judgment first.
+ - I will not reach my full potential as a man unless I find my partner.
+ - Credit card interest payments are the dumbest money of all.
+ - Here’s the deal: I believe – and I attempt to live my life this way – we all have more time than we think we do. We all waste so much time.
+ - There will always be crazy things that happen in our lives, but love is the central connector. If we commit to love and partnership, the other stuff doesnt matter.
+ - If you can’t get excited about living life, then what are you doing?
+ - It’s not enough to do the tasks that are expected or required of us. We have to give more, do more, be more.
+ - The most impactful place that Ive been to where I was just completely awestruck, happy, moved is Victoria Falls between Zambia and Zimbabwe. It is probably the most beautiful and romantic place in the world.
+ - I love being athletic and doing things that are active, even when I’m traveling.
+ - All of us have to figure out our own passion, our own journey. Follow your heart.
+ - I’m not excusing crime or those who bring poison into the community, but I do want brothers and sisters in prison to know someone cares.
+ - Health is actually the foundational tool to help us live the life.
+ - You can live a healthy lifestyle and do the best to be aware of your body and conscious, and thats what I attempt to do.
+ - I love making films, but the best roles are hard to come by.
+ - I’m not telling anyone, ‘Quit your job and be homeless to go for your dream.’
+ - You can’t be free if the cost of being you is too high.
+ - Since Im in the entertainment business, I think I have to hold a mirror up to myself and say, Am I complicit in miseducating and misinforming our youth by participating in this business, or can I use this business to re-educate and uplift?
+ - I’ve made money in real estate, hotel, and restaurant investments.
+ - I believe that reality TV should be called ‘not reality’ TV; it’s fiction.
+ - In acting class, teachers talk about how the ‘givens’ of a situation help define a character.
+ - I think, without question, the way someone plays sports shows something about inherently who they are, you know?
+ - You cant have justice unless you have truth.
+ - At the end of a down day on Wall Street, we all need to be able to sleep peacefully at night. That comfort won’t come from our bank balance.
+ - We all have different timetables in reaching and realizing that being in healthy partnership is better than being on our own.
+ - I studied theater in college, and I absolutely knew that I loved acting, and I knew that I loved theater.
+ - People are afraid of an unorganized, wasteful government.
+ - I don’t want the George Clooney lifelong bachelorhood. If I found the right person, I would commit in a minute.
+ - This world is vast enough to handle anything you dare to dream.
+
+41 quotes

@@ -1,0 +1,36 @@
+ - The only true currency in this bankrupt world is what you share with someone else when you’re uncool.
+ - Rock ‘n’ roll is an attitude, it’s not a musical form of a strict sort. It’s a way of doing things, of approaching things. Writing can be rock ‘n’ roll, or a movie can be rock ‘n’ roll. It’s a way of living your life.
+ - Style is originality; fashion is fascism. The two are eternally and unalterably opposed.
+ - I can guarantee you one thing, we will never agree on anything as we agreed on Elvis.
+ - Music, you know, true music not just rock ‘n’ roll, chooses you.
+ - I’ve always believed the New Left is rank.
+ - The Mekons are the most revolutionary group in the history of rock ‘n’ roll.
+ - Sometimes I think nothing is simple but the feeling of pain.
+ - I think that if most guys in America could somehow get their fave-rave poster girl in bed and have total license to do whatever they wanted with this legendary body for one afternoon, at least 75 percent of the guys in the country would elect to beat her up.
+ - The first mistake of art is to assume that it’s serious.
+ - John Lennon at his best despised cheap sentiment and had to learn the hard way that once you’ve made your mark on history those who can’t will be so grateful they’ll turn it into a cage for you.
+ - Nothing ever quite dies, it just comes back in a different form.
+ - The whole point of American culture is to pick up any old piece of trash and make it shine with more facets than the Hope Diamond.
+ - The only questions worth asking today are whether humans are going to have any emotions tomorrow, and what the quality of life will be if the answer is no.
+ - All the proliferating falsifications of what I and everyone I know experienced once in what it is now so convenient to call the “fifties” or “sixties,” as if life was really measured or lived in arbitrary decades, when the history books are sold like comix.
+ - The real question is what to live for. And I can’t answer it. Except another one of your records. And another chance for me to write. Art for art’s sake, corny as that sounds.
+ - Rock is for everybody; it should be so implicitly anti-elitist that the question of whether somebody’s qualified to perform it should never even arise.
+ - The ultimate sin of any performer is contempt for the audience.
+ - Realizing that life is precious the natural tendency is to trample on it, like laughing at a funeral.
+ - Sexual chaos reigns currently, but out of chaos may flow true understanding and harmony, and either way Elvis almost singlehandedly opened the floodgates.
+ - I’m not saying that all college students are subhuman – I’m just saying that if you aim to spend a few years mastering the art of pomposity, these are places where you can be taught by undisputed experts.
+ - I mean the interesting thing I think would be if something happened like, what happened in England where all these kids that all of a sudden can’t afford the ticket prices.
+ - As far as a truly radical conscience, you have to take it as part of a larger thing, that it was sort of historical inevitability that with the coming of a leaguer society people would start to use drugs a lot more then they had before.
+ - They wouldn’t be heroes if they were infallible, in fact they wouldn’t be heroes if they weren’t miserable wretched dogs, the pariahs of the earth, besides which the only reason to build up an idol is to tear it down again.
+ - All blues singers are great liars.
+ - The great thing about The Clash of course is that they keep searching for answers beyond that.
+ - A hero is a goddam stupid thing to have in the first place and a general block to anything you might wanta accomplish on your own.
+ - I mean Iggy and The Stooges first couple of albums I think sold twenty five thousand between the two of them you know and so to talk in terms of an underground I mean you have to go really to the independent labels and things like that.
+ - In fact I think now we’ve reached a point now, where the powers that be really have sort of vested interest in all of us being stoned out as much as possible all the time so we don’t know what’s going on, and we don’t care.
+ - I mean it’s easier to be in a demonstration if it’s a trip that’s one of the reasons why the whole thing fell apart in 1971, because it wasn’t a trip any longer.
+ - The extravagant and ostentatious lifestyles that pass for charisma in a time when almost anybody talks about charisma but if you think about it there’s precious little to be seen.
+ - I don’t see that there are any particular changes in popular music.
+ - I’m really schizophrenic about that, because on the one hand I would say, yes there is, there’s something inherently, even violent about it, it’s wild and raw and all this.
+ - The thing is that, they all had real strong personalities and real distinct identities, and I don’t find most of the groups that are coming out now really do.
+
+34 quotes

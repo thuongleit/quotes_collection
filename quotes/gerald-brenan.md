@@ -1,0 +1,27 @@
+ - Old age takes away from us what we have inherited and gives us what we have earned.
+ - We are closer to the ants than to the butterflies. Very few people can endure much leisure.
+ - We soon cease to feel the grief at the deaths of our friends, yet we continue to the end of our lives to miss them. They are still with us in their absence.
+ - Do not believe those persons who say they have never been jealous. What they mean is that they have never been in love.
+ - A bad memory is the mother of invention.
+ - Intellectuals are people who believe that ideas are of more importance than values. That is to say, their own ideas and other people’s values.
+ - Words are as recalcitrant as circus animals, and the unskilled trainer can crack his whip at them in vain.
+ - The cliche is dead poetry.
+ - Marriage is an arrangement by which two people start by getting the best out of each other and often end by getting the worst.
+ - Those who have money think that the most important thing in the world is love. The poor know it is money.
+ - The more we feel sorry for ourselves, the less sorry others will feel for us. People don’t waste their small store of sympathy on those who can provide it so richly for themselves.
+ - Everyone is a bore to someone. That is unimportant. The thing to avoid is being a bore to oneself.
+ - Wisdom is keeping a sense of fallibility of all our views and opinions.
+ - Poets and painters are outside the class system, or rather they constitute a special class of their own, like the circus people and the Gypsies.
+ - You generally hear that what a man doesn’t know doesn’t hurt him, but in business what a man doesn’t know does hurt.
+ - The only test of work of literature is that it shall please other ages than its own.
+ - It is by sitting down to write every morning that he becomes a writer. Those who do not do this remain amateurs.
+ - Middle age snuffs out more talent than even wars or sudden death.
+ - Every writer and artist wonders what in the world people of other professions can find to live for.
+ - When I write a page that reads badly I know that it is myself who has written it. When it reads well it has come through from somewhere else.
+ - As Coleridge said, “We receive but what we give.” The happy life is a life of continual generosity in which we go out to meet and acclaim the world.
+ - We should all live as if we were never going to die, for it is the deaths of our friends that hurt us, not our own.
+ - Everyone alters and is altered by everyone else. We are all the time taking in portions of one another or else reacting against them, and by these involuntary acquisitions and repulsions modifying our natures.
+ - We confess our bad qualities to others out of fear of appearing naive or ridiculous by not being aware of them.
+ - One of the marks of a great poet is that he creates his own family of words and teaches them to live together in harmony and to help one another.
+
+25 quotes

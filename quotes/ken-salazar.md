@@ -1,0 +1,27 @@
+ - I think the future for solar energy is bright.
+ - Each and every Notary Public plays a crucial role in combating identity theft. They serve as our front line of defense and the public is safer because of the job they do.
+ - Nothing in life and nothing that we do is risk-free.
+ - On the Native American front, we have turned a new page in the 400-year history of the interface between the American settlers of this country and the nation’s first Americans. That’s included a new relationship where the sovereignty of tribes is in fact recognized.
+ - For some in Washington, it’s become sport to pick on the federal workforce. I think they do so unjustly. The very foundation of a stable America is having a government that functions well. Many countries have dysfunctional governments, because they don’t have a good government workforce.
+ - Hydraulic fracking is very much a necessary part of the future of natural gas.
+ - Barack Obama was not born into wealth or privilege, yet today his is president of these United States of America. Barack Obama has lived the American Dream. He has walked in our shoes.
+ - Growing up in a very rural and remote area in Colorado’s San Luis Valley – one of the poorest counties in the United States – essentially created the framework of values from which I operate. I stand up for the little guy. I fight discrimination at all levels. I fight for an inclusive America.
+ - My family has spent 400 years farming on the banks of the Rio Grande. We know the value of hard work, love of the community, love for water and land.
+ - In the West, you take people at their word.
+ - While it is important to maintain a balanced approach to solving our nation’s energy problems, we must commit ourselves to recognize some areas as ‘off limits,’ and the Artic National Wildlife Reserve is a national symbol of that commitment.
+ - Shale gas has provided the United States the opportunity to have 100 years of supply that is domestically produced. If we are going to develop natural gas from shale, it has to be done in a safe and responsible manner.
+ - Liability does apply with respect to the amount of the oil spill.
+ - I’m proud that Colorado delivered a victory to Barack Obama in 2008 and we will do so again in 2012.
+ - President Obama and our all-of-the-above energy strategy is the real deal. We are proud of the fact that we are importing less oil than at any time in modern history, and it has been because of the president’s vision and courage.
+ - Americans pay up to 1,000 percent more to fill their prescriptions than consumers in other countries – that is an alarming statistic.
+ - We are talking about institutionalizing a program on solar development that will outlast the Obama administration.
+ - I don’t believe that the American dream should be reserved for those who are born into the elite or somehow have been given an advantage over others. My growing-up experience is probably the most important thing that guides my priorities and my work today.
+ - Dr. Martin Luther King Jr. is one of my personal heroes.
+ - I don’t think anyone can speculate what will happen with respect to oil prices and gas prices because they are set on the global economy.
+ - Meth is a major problem not only in our urban areas, but in most of the rural areas of Colorado. No region has been immune from this scourge and it is getting larger.
+ - With leading research universities, the National Renewable Energy Laboratory and private companies like Blue Sun working on developing alternative fuels, Colorado is poised to become an international leader in clean energy.
+ - Too often in Washington special interests urge us to fight one another just because we belong to different parties. It is time for this to stop and for Washington to focus on what needs to be done.
+ - I want all the interested parties to come together and develop a solution that provides additional water and helps the lower Arkansas River communities thrive again.
+ - I think Gov. Romney and Congressman Ryan are living in a fairly tale land on their energy policy.
+
+25 quotes

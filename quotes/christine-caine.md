@@ -1,0 +1,81 @@
+ - Let your dreams be bigger than your fears and your actions louder than your words...
+ - Life is too short, the world is too big and God’s love is too great to live ordinary.
+ - The giant in front of you is never bigger than the God who lives in you.
+ - A commitment to growth is a commitment to risk, courage, faith, strength, hope, and a willingness to make mistakes, get back up and try again.
+ - Christian life isn’t a one-person race. It’s a relay. You are not alone; you’re part of a team assembled by our unstoppable God to achieve his eternal purposes.
+ - Obedience is less painful than regret.
+ - God uses rescued people to rescue people.
+ - Allow God to continually soften your heart so that it beats for what his heart beats for – people.
+ - Don’t allow any set back to become bigger than your come back.
+ - There is no promise too hard for God to fulfill. No prayer is too big for Him to answer!
+ - The only love language is ‘die to self.’
+ - God is able to take the mess of our past and turn it into a message. He takes the trials and tests and turns them into a testimony.
+ - Your talent will open the door but only your character can keep you there.
+ - To step into tomorrow’s possibilities you must let go of yesterday’s realities. Be careful of your choices between what was, is and will be. It is very hard to fully step into your destiny while you are still holding on to your history.
+ - We need to replace the lies of the enemy with the truth of God; to do so we need to know the truth of God.
+ - No weapon formed against you will prosper. But make no mistake, the weapon will be formed.
+ - Love gives up the right to get even.
+ - If the light that is on you is brighter than the light that is in you, the light that is on you will destroy you.
+ - Your history does not need to define your destiny.
+ - Light works most effectively in darkness.
+ - When there is a fight between your heart and your head, experience has taught me that the best thing you can do is pick up your Bible and remind yourself of what God says.
+ - Compassion is never compassion until you cross the street and go do something about it.
+ - Until we choose to deal with our yesterday today, we’re never going to step into tomorrow.
+ - Believe the truth of God’s Word over the facts of your circumstances.
+ - God uses the tension, complexity, and challenge of doing His kingdom work to transform us into champions.
+ - The same God who brought you here is the same God that will take you there! Stop worrying about how and trust Him. He who promised is faithful!
+ - As you give God your time, your gifts, your resources and talents, He will use them to have a critically important and eternal impact on this world.
+ - Until we care more about what God thinks than what other people think we are never truly free.
+ - Spend more time building your character than trying to build your platform.
+ - Our relationship with God flows out of our love for God.
+ - Nothing about my birth – or yours – was random or accidental. I was born for this time – and so were you. We were each chosen for a particular, cosmically important task that can be done by no one else.
+ - We have a responsibility to carry the baton of faith to the next generation.
+ - Replace what you don’t know about the future with what you do know about God!
+ - We need to stop making what people did to us bigger than what Jesus did for us.
+ - If we don’t build our Spiritual Core our world is going to collapse.
+ - When we feed our faith, we starve our doubts.
+ - Our faith is really proven in the way we talk to ourselves. The loudest human voice you will listen to is your own. Choose your words wisely.
+ - The pain of recovery is sometimes worse than the pain of the injury. Allow Jesus Christ to heal your soul.
+ - Often the very things that you think have disqualified you are the ones that qualify you to do what God has called you to do.
+ - The biblical model is that God deliberately chooses imperfect vessels – those who have been wounded, those with physical or emotional limitations. Then he prepares them to serve and sends them out with their weakness still evident, so that his strength can be made perfect in that weakness.
+ - What God has asked you to do is not just difficult, it is impossible. He is well able!
+ - It is one thing to be awakened to injustice and quite another to be willing to be inconvenienced and interrupted to do something about it.
+ - If you are marked by God, you don’t need to be marketed by man.
+ - A pair of skinny jeans and a tattoo does not make you a leader.
+ - The long series of disappointments you accumulate in a lifetime can stop you from moving forward into all the goodness God has planned for you – and that means they’ll be stopping not only you, but also all those God has destined you to reach along your life journey.
+ - Jesus didn’t come to make us safe. He came to make us dangerous to the kingdom of darkness.
+ - God never consults your past to make your future.
+ - If we don’t put our faith to work we will soon discover that we have a faith that doesn’t work!
+ - Spending time in the presence of Jesus is a non-negotiable. Don’t wait until you have time to do it. MAKE time.
+ - Greater is He that is in you than anything that surrounds you.
+ - At the threshold of every transition in our lives the devil send a spirit of fear. Therefore be strong and very courageous!
+ - We were never created to settle for mere religion. Jesus did not die so that we could have a religious belief system – but rather a life-giving relationship with our Father.
+ - When you are not sure what to do now just keep doing what God told you to do last!
+ - It’s impossible to get to the end if you quit in the middle.
+ - It’s not possible to be close to God without thinking about the lost. They never leave His mind.
+ - God prunes us when He is about to take us into a new season of growth and expansion.
+ - Praying the sinners prayer does not heal you. It saves you.
+ - Being faithful doesn’t mean you are fearless. It just means that your faith is greater than your fear.
+ - Sometimes, all you need to do is pull back a little to protect your heart, not turn your back entirely.
+ - When you care more about what others think of you than what God knows about you, you’ve lost perspective on what really matters.
+ - If you entrust God with your ‘here,’ He will take you ‘there.’ If you give Him your ‘now,’ He will take care of ‘then.’
+ - Even though I only just found out that I was adopted, God has always known, and he has always loved me. And since that has never changed, therefore nothing has essentially changed. I may not be who I thought I was, but I still am who he says I am. I am more. I am loved. I am his.
+ - Even if people have disappointed you or circumstances have not turned out as you had hoped or prayed, know that God is with you, cares for you, and loves you. He is working all these things together for your good right at this very moment.
+ - Thoughts are like a train, they’ll take us somewhere. Protect by filling with the word of God.
+ - Our sense of calling should be like an unfolding epic adventure.
+ - Just as God gave Moses exactly what he needed to accomplish great things, he will equip us in the same way. If he calls us to slay giants, he will make us into giant slayers.
+ - As leaders, it all comes down to trust. Do you trust the sovereignty of God?
+ - Knowing what is right is not the same as doing what is right.
+ - Fulfilling our destiny and realizing our potential all begins in our mind. That’s why the devil tries to bombard our thinking.
+ - We’re not a product of time. We are a product of eternity.
+ - If Jesus isn’t enough for the church, why would he be enough for the world?
+ - I don’t want to just live delivered but I want to live free.
+ - We also need to be willing to make room in our lives for the impending birth of our dreams.
+ - Even when I cannot see him, I can hear the beautiful gallop of God’s heartbeat for humanity.
+ - When God has assigned you, He knows where and when to find you.
+ - We have so many Christians who want to change the world, but they don’t want to change themselves.
+ - In Christianity, nobody wins until everybody crosses the line.
+ - We have been created for God and by God to transform the world around us.
+ - You do what you want to for Passion, you do what you have to for Obligation.
+
+79 quotes

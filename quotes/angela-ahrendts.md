@@ -1,0 +1,26 @@
+ - I got my MBA at Burberry, but I will get my PhD at Apple.
+ - The thing is, I don’t want to be sold to when I walk into a store. I want to be welcomed.
+ - I grew up in a physical world, and I speak English. The next generation is growing up in a digital world, and they speak social.
+ - I am not in favour of quotas. Just put the best person into the job. It is not about gender; it is about experience, leadership and vision.
+ - If you aren’t building a social enterprise, I don’t know what your business model will be in 5 years.
+ - Everyone talks about building a relationship with your customer. I think you build one with your employees first.
+ - Our greatest weakness is lack of self-confidence.
+ - We live by what we believe not but what we see.
+ - I’m nearly always at home at the weekends; that’s important for every working woman today, not just me. I don’t encourage people to come in at the weekend and work; I encourage people to go home and create great families.
+ - My dad would always say, ‘When you look at a photo do you see yourself last?’
+ - We have always said actually this isn’t about money, it’s not about price. This can be an experience. It doesn’t have to be about buying something.
+ - When you have trust and you get that trust in place throughout the company, people are empowered – people are free.
+ - Everyone in the world should have a trench coat, and there should be a trench coat for everyone in the world. It does not matter your age; it doesn’t matter your gender.
+ - I think if I’m guilty of anything, I’m guilty of always being incredibly focused on the task at hand. So wherever I’ve worked, I’ve just always tried to do my best, achieve my best, build a great team around me.
+ - We wanted to be led by our mission and to embed our values throughout the world.
+ - In China, you’ve got six people buying for one child. But the thing is, you’ve got the largest rising upper-middle class in the world.
+ - The experience would be that a customer would have total access to Burberry across any device, anywhere, and they would get exactly the same feeling of the brand, feeling of the culture, regardless of where, when, how they were accessing the brand.
+ - I work through teams. It’s the only way I know how to work.
+ - I don’t want to be a great executive without being a great mom and a great wife. I don’t want to look back and say I wish I had done things differently. ‘Balance’ is a really big word for me.
+ - For any CEO that is skeptical at all: you have to create a social enterprise today!
+ - You have to realise that I am the third out of six children, and I am raised with very strong core values and a very strong upbringing. I always put myself in other people’s shoes.
+ - Forget luxury; as a great company you have to keep evolving.
+ - I don’t want to be a great chief executive without being a great mum and a great wife.
+ - I hadn’t grown up always aspiring to be a CEO.
+
+24 quotes

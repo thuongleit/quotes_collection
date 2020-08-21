@@ -1,0 +1,42 @@
+ - Difficult roads often lead to beautiful destinations. The best is yet to come. ~~Zig Ziglar
+ - Who looks outside, dreams; who looks inside, awakes. ~~C.G. Jung
+ - Always remember, you are beautiful. ~~Demi Lovato
+ - Because of your smile, you make life more beautiful. ~~Nhat Hanh
+ - Life is like a beautiful melody, only the lyrics are messed up. ~~Hans Christian Andersen
+ - Be soft. Do not let the world make you hard. Do not let pain make you hate. Do not let the bitterness steal your sweetness. Take pride that even though the rest of the world may disagree, you still believe it to be a beautiful place. ~~Kurt Vonnegut
+ - Life is beautiful. It’s about giving. It’s about family. ~~Walt Disney
+ - As soon as you trust yourself, you will know how to live. ~~Johann Wolfgang von Goethe
+ - You are not special. You are not a beautiful or unique snowflake. You’re the same decaying organic matter as everything else. ~~Chuck Palahniuk
+ - I don’t love studying. I hate studying. I like learning. Learning is beautiful. ~~Natalie Portman
+ - There may be more beautiful times, but this one is ours. ~~Jean-Paul Sartre
+ - You the people have the power to make this life free and beautiful, to make this life a wonderful adventure... ~~Charlie Chaplin
+ - Elegance is when the inside is as beautiful as the outside. ~~Coco Chanel
+ - We have to continually be jumping off cliffs and developing our wings on the way down. ~~Kurt Vonnegut
+ - God gives us the ugliness so we don’t take the beautiful things in life for granted. ~~Colleen Hoover
+ - She was beautiful, but she was beautiful in the way a forest fire was beautiful. ~~Neil Gaiman
+ - When the pain overtakes you, reach inside. Gather the broken pieces, and hand them to God. Ask Him to remake your heart. Different, this time. Stronger. More beautiful. This is how we are made, and remade by the Maker. ~~Yasmin Mogahed
+ - Beautiful things don’t ask for attention. ~~James Thurber
+ - Endless forms most beautiful and most wonderful have been, and are being evolved. ~~Charles Darwin
+ - You can be the most beautiful woman in the world and see yourself as hideous. You must love yourself. To look in the mirror and tell yourself that you’re a rock star. ~~Demi Lovato
+ - Marriage: If you want something to last forever, you treat it differently. You shield it and protect it. You never abuse it. You don’t expose it to the elements. You don’t make it common or ordinary. If it ever becomes tarnished, you lovingly polish it until it gleams like new. It becomes special because you have made it so, and it grows more beautiful and precious as time goes by. ~~F. Burton Howard
+ - For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone. ~~Audrey Hepburn
+ - Do not fear mistakes. There are none. ~~Miles Davis
+ - I know that I’ve been put on this Earth to make people happy, to inspire people, and to uplift people. That’s a beautiful thing. ~~DJ Khaled
+ - Talent hits a target no one else can hit; Genius hits a target no one else can see. ~~Arthur Schopenhauer
+ - There are always flowers for those who want to see them. ~~Henri Matisse
+ - The most beautiful people we have known are those who have known defeat, known suffering, known struggle, known loss, and have found their way out of the depths.  ~~Elisabeth Kübler-Ross
+ - A man should hear a little music, read a little poetry, and see a fine picture every day of his life, in order that worldly cares may not obliterate the sense of the beautiful which God has implanted in the human soul. ~~Johann Wolfgang von Goethe
+ - All the poems have wolves in them. All but one. The most beautiful one of all. She dances in a ring of fire and throws off the challenge with a shrug. ~~Jim Morrison
+ - If shaytan has entered into your heart – evil will look beautiful to you and good will seem tiring and exhausting. ~~Nouman Ali Khan
+ - The earth is like a beautiful bride who needs no manmade jewels to heighten her loveliness... ~~Khalil Gibran
+ - Humanity is never so beautiful as when praying for forgiveness, or else forgiving another. ~~Jean Paul
+ - We are all wonderful, beautiful wrecks. That’s what connects us – that we’re all broken, all beautifully imperfect. ~~Emilio Estevez
+ - In nature, nothing is perfect and everything is perfect. Trees can be contorted, bent in weird ways, and they’re still beautiful. ~~Alice Walker
+ - Every time you smile at someone, it is an action of love, a gift to that person, a beautiful thing. ~~Mother Teresa
+ - No one realizes how beautiful it is to travel until he comes home and rests his head on his old, familiar pillow. ~~Lin Yutang
+ - Some people look for a beautiful place, others make a place beautiful. ~~Hazrat Inayat Khan
+ - To be human is to be broken and broken is its own kind of beautiful. ~~Drake
+ - Nothing makes a woman more beautiful than the belief that she is beautiful. ~~Sophia Loren
+ - No matter how plain a woman may be, if truth and honesty are written across her face, she will be beautiful. ~~Eleanor Roosevelt
+
+40 quotes

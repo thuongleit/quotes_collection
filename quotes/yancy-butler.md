@@ -1,0 +1,32 @@
+ - I’m the oldest 26-year-old I know. A lot of experience has been crammed into a short amount of time. Some days I feel a good 65, 70. Like I want to lie down.
+ - I dig science fiction, though it was never really my thing.
+ - I’ve spent a lot of time and money trying to keep my anger in control.
+ - I hope I don’t just sit around moping for two years.
+ - I’ve always played strong women who are doing their own thing.
+ - I had to skydive for the movie and I was terrified. Like everybody, I thought it was going to be one of those experiences that changes your life. It didn’t.
+ - Don’t we all just really try to fake it well?
+ - I grew up in Greenwich Village. Dad was friends with John Lennon and Yoko Ono.
+ - I’ll try anything once.
+ - I pretty much make time for that weekly manicure.
+ - Yancy is actually a Native-American name, but I’m Irish. Go figure.
+ - I am so happy to be on a show with writing I wanted to participate in.
+ - I’m just an actress. They try to give me as little information as possible.
+ - I don’t know that I’d necessarily want to see into the future. I don’t want to know what’s happening next.
+ - My taste in music and entertainment is quite eclectic.
+ - I can be extremely vulnerable. People are tough on me because they think I can handle it.
+ - My grandfather was a cop in Long Island. I often try to draw on things that I’ve heard about him.
+ - Women have been kicking ass for centuries.
+ - My mother’s side of the family was in the production side of theatre. My grandfather, Jose Vega, was a general manager for Neil Simon shows on Broadway.
+ - I think seeing some of the past can be helpful, especially if you’re into crime solving.
+ - Whether it goes to series or stands by itself, I’m proud of what we did with it, not only from the standpoint of what it could have been, but for itself.
+ - I love old movies. The ’40s theatre pace is fantastic.
+ - Once you get into a part, and someone sees you, you get asked to do it again.
+ - My junior high was dreadful. I see a lot of my fellow alumni on America’s Most Wanted.
+ - To say I’m the easiest person to live with would be a lie.
+ - I never worked less than 16-hour days on South Beach.
+ - I’m open to sci-fi, but I was never a diehard fan. I have no idea why it keeps following me. I’m extremely lucky, I guess; it’s a lucrative venue.
+ - A comic can be aesthetically beautiful. I think they captured it beautifully and accurately.
+ - People just kind of associate me with kicking some ass.
+ - I think sometimes women who are supposed to be strong are also written as mean and vindictive.
+
+30 quotes

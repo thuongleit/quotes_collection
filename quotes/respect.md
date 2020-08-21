@@ -1,0 +1,42 @@
+ - You can easily judge the character of a man by how he treats those who can do nothing for him. ~~Johann Wolfgang von Goethe
+ - Knowledge will give you power, but character respect. ~~Bruce Lee
+ - Respect for ourselves guides our morals, respect for others guides our manners. ~~Laurence Sterne
+ - One of the most sincere forms of respect is actually listening to what another has to say. ~~Bryant McGill
+ - Blessed is he who has learned to admire but not envy, to follow but not imitate, to praise but not flatter, and to lead but not manipulate. ~~William Arthur Ward
+ - The bond that links your true family is not one of blood, but of respect and joy in each other’s life. ~~Richard Bach
+ - Respect a man, and he will do all the more. ~~John Wooden
+ - Respect your efforts, respect yourself. Self-respect leads to self-discipline. When you have both firmly under your belt, that’s real power. ~~Clint Eastwood
+ - Let us develop respect for all living things. Let us try to replace violence and intolerance with understanding and compassion. And love. ~~Jane Goodall
+ - Walk tall, or baby don’t walk at all. ~~Bruce Springsteen
+ - The true measure of a man is how he treats someone who can do him absolutely no good. ~~Samuel Johnson
+ - Human kindness has never weakened the stamina or softened the fiber of a free people. A nation does not have to be cruel to be tough. ~~Franklin D. Roosevelt
+ - Any religion or philosophy which is not based on a respect for life is not a true religion or philosophy. ~~Albert Schweitzer
+ - We are an intelligent species and the use of our intelligence quite properly gives us pleasure. In this respect the brain is like a muscle. When we think well, we feel good. Understanding is a kind of ecstasy. ~~Carl Sagan
+ - Respect yourself and others will respect you. ~~Confucius
+ - I care not so much what I am to others as what I am to myself. I will be rich by myself, and not by borrowing. ~~Michel de Montaigne
+ - Respect commands itself and can neither be given nor withheld when it is due. ~~Eldridge Cleaver
+ - When I was young there was no respect for the young, and now that I am old there is no respect for the old. ~~Clint Eastwood
+ - Love, friendship and respect do not unite people as much as a common hatred for something. ~~Anton Chekhov
+ - In order to acquire a growing and lasting respect in society, it is a good thing, if you possess great talent, to give, early in your youth, a very hard kick to the right shin of the society that you love. After that, be a snob. ~~Salvador Dalí
+ - With my old man I got no respect. When he took me hunting he gave me a three minute head start. Then on the way home he tied me to the fender and put the deer in the car. ~~Rodney Dangerfield
+ - One should respect public opinion insofar as is necessary to avoid starvation and keep out of prison, but anything that goes beyond this is voluntary submission to an unnecessary tyranny. ~~Bertrand Russell
+ - I can win an argument on any topic, against any opponent. People know this, and steer clear of me at parties. Often, as a sign of their great respect, they don’t even invite me. ~~Dave Barry
+ - There can be no failure to a man who has not lost his courage, his character, his self respect, or his self-confidence. He is still a King. ~~Orison Swett Marden
+ - We abuse land because we regard it as a commodity belonging to us. ~~Aldo Leopold
+ - I have a respect for manners as such, they are a way of dealing with people you don’t agree with or like. ~~Margaret Mead
+ - When there is a respect for small things, there will be an even greater respect towards the bigger things. When there is no respect for small things, then neither will there be for the bigger ones. This is how the Fathers maintained Tradition. ~~Elder Paisios of Mount Athos
+ - I dress up a certain way because I respect the music. ~~Wynton Marsalis
+ - Respect for self is the beginning of cultivating virtue in men and women. ~~Gordon B. Hinckley
+ - Great authors are admirable in this respect: in every generation they make for disagreement. Through them we become aware of our differences. ~~André Gide
+ - With girls I get no respect. A belly dancer told me I turned her stomach. ~~Rodney Dangerfield
+ - When I was a kid I got no respect. I played hide-and-seek. They wouldn’t even look for me. ~~Rodney Dangerfield
+ - Impiety. Your irreverence toward my deity. ~~Ambrose Bierce
+ - Tolerance, a term which we sometimes use in place of the words respect, mercy, generosity, or forbearance, is the most essential element of moral systems; it is a very important source of spiritual discipline and a celestial virtue of perfected people. ~~Fethullah Gulen
+ - There exist only three beings worthy of respect: the priest, the soldier, the poet. To know, to kill, to create. ~~Charles Baudelaire
+ - Never esteem anything as of advantage to you that will make you break your word or lose your self-respect. ~~Marcus Aurelius
+ - When I was a kid I got no respect. I told my mother, I’m gonna run away from home. She said, On your mark... ~~Rodney Dangerfield
+ - Only those who respect the personality of others can be of real use to them. ~~Albert Schweitzer
+ - Wise guidance never violates people’s Free Will. A superior who demands obedience of his subordinates should show respect for their capacity to understand, and also for their Innate Right to their own Free Will. ~~Paramahansa Yogananda
+ - Only that in you which is me can hear what I’m saying. ~~Ram Dass
+
+40 quotes

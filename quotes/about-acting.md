@@ -1,0 +1,41 @@
+ - Acting is behaving truthfully under imaginary circumstances. ~~Sanford Meisner
+ - The function of the actor is to make the audience imagine for the moment that real things are happening to real people. ~~George Bernard Shaw
+ - People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. ~~Franklin D. Roosevelt
+ - Acting is not talking, it’s living off the other fellow!!! ~~Sanford Meisner
+ - Listen to me. We’re here to make a dent in the universe. Otherwise why even be here? ~~Steve Jobs
+ - Everyone is acting from his own level of consciousness. This is all we can ask of ourselves or anyone else. However hurtful someone is, he is doing the best he can, given the limits of his consciousness. ~~Deepak Chopra
+ - Remember: there are no small parts, only small actors. ~~Konstantin Stanislavski
+ - Do not wait until the conditions are perfect to begin. Beginning makes the conditions perfect. ~~Alan Cohen
+ - The basic essential of a great actor is that he loves himself in acting. ~~Charlie Chaplin
+ - A warrior lives by acting, not by thinking about acting, nor by thinking about what he will think when he has finished acting. ~~Carlos Castaneda
+ - Mindfulness must be engaged. Once there is seeing, there must be acting. Otherwise, what’s the use of seeing? ~~Nhat Hanh
+ - The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. You can do anything you decide to do. You can act to change and control your life; and the procedure, the process is its own reward. ~~Amelia Earhart
+ - No one likes to feel that he or she is being sold some-thing or told to do a thing. We much prefer to feel that we are buying of our own accord or acting on our own ideas. We like to be consulted about our wishes, our wants, our thoughts. ~~Dale Carnegie
+ - If you’re not acting on your beliefs, then they probably aren’t real. ~~Edward Snowden
+ - Do the thing and you will have the power. ~~Ralph Waldo Emerson
+ - Have a bias toward action – let’s see something happen now. You can break that big plan into small steps and take the first step right away. ~~Indira Gandhi
+ - The foundation of acting is the reality of doing. ~~Sanford Meisner
+ - Acting takes a degree of mutual trust and respect. ~~Tom Hiddleston
+ - You think when you don’t want to do anything. Thinking is a poor alternative to acting. Your thinking is consuming all your energy. Act, don’t think! ~~U.G. Krishnamurti
+ - Thoughts lead to feelings. Feelings lead to actions. Action leads to results. ~~T. Harv Eker
+ - Kids need love the most when they’re acting most unlovable. ~~Erma Bombeck
+ - The geographical pilgrimage is the symbolic acting out an inner journey. The inner journey is the interpolation of the meanings and signs of the outer pilgrimage. One can have one without the other. It is best to have both. ~~Thomas Merton
+ - An actor has to burn inside with an outer ease. ~~Michael Chekhov
+ - While some of us act without thinking, too many of us think without acting. ~~Dan Millman
+ - None of us, acting alone, can achieve the success. ~~Nelson Mandela
+ - It’s not about women acting like man, it’s about women acting like woman and being sucsessful. ~~Zooey Deschanel
+ - We are always complaining that our days are few, and acting as though there would be no end to them. ~~Seneca the Younger
+ - This whole religion revolves around knowing the truth and acting by it, and action must be accompanied by patience. ~~Ibn Taymiyyah
+ - Don’t let yourself be lulled into inaction. ~~Bill Gates
+ - Acting without thinking is like shooting without aiming. ~~B.C. Forbes
+ - Actors search for rejection. If they don’t get it they reject themselves. ~~Charlie Chaplin
+ - By not knowing, not hoping to know and not acting like we know what’s happening, we begin to access our inner strength. ~~Pema Chödrön
+ - If we consistently act on the optimistic hypothesis, this hypothesis will tend to be realised; whilst by acting on the pessimistic hypothesis we can keep ourselves for ever in the pit of want. ~~John Maynard Keynes
+ - Confidence is a habit that can be developed by acting as if you already had the confidence you desire to have. ~~Brian Tracy
+ - The best way of successfully acting a part is to be it. ~~Arthur Conan Doyle
+ - Acting is not very good for relationships – but very good for when they are over. ~~Hugh Dancy
+ - It isn’t enough to think outside the box. Thinking is passive. Get used to acting outside the box. ~~Tim Ferriss
+ - Be willing to be a beginner every single morning. ~~Meister Eckhart
+ - Introverts are capable of acting like extroverts for the sake of work they consider important, people they love, or anything they value highly. ~~Susan Cain
+
+39 quotes

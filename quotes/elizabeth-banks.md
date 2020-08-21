@@ -1,0 +1,39 @@
+ - I love stories about misfits and underdogs.
+ - There’s never enough money, there’s never enough time, there’s never enough reliable help around, anything you plan always goes wrong – it’s just hard to be human, isn’t it?
+ - My number one advice to high school girls is birth control. You want to keep all your options open for as long as possible? Birth control.
+ - I am not afraid of much. I kill all the spiders in my house, and I’m planning to go skydiving. I am into girl power, and I’m very self-sufficient.
+ - When I was in college I was accused of being a goody two-shoes. But every goody two-shoes has a bad side.
+ - As an actor myself, the opportunity to sing and dance and be dramatic and be funny – it’s really irresistible to actors. You get to show all sides of your talent.
+ - People ask me how I stay thin, and I’m like, ‘When you go to the grocery store, buy more bananas than cookies.’
+ - I love physical comedy. I love Oscar Wilde, I love Shakespeare comedies, I love improv.
+ - I’m sort of the bossiest sister.
+ - I love working with a stylist but I also love having personal relationships with designers. A stylist is great for pulling together an entire outfit, accessories included, and for shaking me out of my comfort zone.
+ - Every once in a while I play a true idiot, and they’re really fun to play.
+ - As an actor, you go through life thinking “This stop is the last stop,” so you just put your heart and soul into everything and do your best work.
+ - I think people respond to me as a down-to-Earth, girl-next-door person, because I am one of those people. That’s something I don’t have to act very hard at.
+ - I got Twitter identity theft.
+ - It’s really hard to stay healthy over the long term of making a movie so that’s why those things matter when you’re trying to keep your health, literally.
+ - I imagine, in the future, life expectancy is long and they use crazy plastic surgery. Who the hell knows what’s going on?
+ - I actually think that secrets are just a part of human nature and that everybody should have some.
+ - So knowing that you can actually help yourself stay healthy over a long shoot where you get no sleep and what you eat really matters. It really mattered that there was a juice bar. You know?
+ - I’m not interested in making movies only with female protagonists. I think it’s ridiculous to think that a female director can’t direct men. That makes no sense to me.
+ - You have got to have an agent. Its a business. But I think there is a way to be artful and commercial at the same time.
+ - I’m really interested in making movies that people see: I’ve made a lot of independent films and it’s really depressing when no one sees them.
+ - I play Rock Band, which is Guitar Hero times ten. You can play with four people, so when you have parties, you have a real band. Nobody ever wants to sing, so I’m always the one throwing down on the mic.
+ - I really enjoy the direct dialogue with the fans. I’m very cognizant of my audience. I’m a trained storyteller and entertainer, and I know I wouldn’t be able to work at the level I work at if people didn’t enjoy what I did.
+ - I’m perfectly happy to have the reputation as a comedian. I love comedies, I would love to be doing more comedies. But I also feel like I hit the limit on playing the girlfriend type in a lot of rom-coms that aren’t actually rom-coms, but guy movies that happen to have girls in them.
+ - I love the finality of film. When you make a movie, you know the beginning, middle, and end.
+ - It’s pretty easy to hear what people are physically responding to versus what’s just flat as a pancake in the room when it comes to jokes.
+ - When you live in a leading lady’s body, which I do, you have to constantly prove that you are funny.
+ - I am never embarrassed by something that makes people laugh.
+ - If I ever complain about yachting around the Mediterranean with Madonna, who I just idolized as a child, I should be slapped across the face.
+ - I’m lucky to have worked with great actors, my whole career.
+ - I do want to work on a larger scale with bigger budgets partially as a way to prove that women can do that, for sure. I definitely feel a bit of a responsibility to do that.
+ - I think it is really important to put out what you want so the world knows what to give you.
+ - You don’t realize how easy one is until you have two. Now I’m really a mom. Oh, I am a mom now! This is for serious – I am responsible for two people now.
+ - I like my coffee light.
+ - I’m actively looking for things to direct again. I had such an amazing experience on this. I really am spoiled.
+ - It’s really fun to watch yourself disappear in the movie every day.
+ - I’m always reaching to find something that will challenge me and make me do my best.
+
+37 quotes

@@ -1,0 +1,63 @@
+ - I am the innovator. I am the originator. I am the emancipator. I am the architect of rock ‘n’ roll!
+ - God is omnipotent, He is omniscient, and He is ever present.
+ - I thank God for Elvis Presley. I thank the Lord for sending Elvis to open the door so I could walk down the road...
+ - I only wore makeup when I went onstage.
+ - It was a way out of poverty. It was a way to success. It was a way to education. And it was a way to a brighter day for me.
+ - I also think that what’s wrong with all of us is that we don’t show enough love toward each other.
+ - I thank God for making me a man.
+ - And I’d like to give my love to everybody, and let them know that the grass may look greener on the other side, but believe me, it’s just as hard to cut.
+ - Greed has taken the whole universe, and nobody is worried about their soul.
+ - Rock ‘n’ roll doesn’t glorify God. You can’t drink out of God’s cup and the devil’s cup at the same time. I was one of the pioneers of that music, one of the builders. I know what the blocks are made of because I built them.
+ - Black people lived right by the railroad tracks, and the train would shake their houses at night. I would hear it as a boy, and I thought: I’m gonna make a song that sounds like that.
+ - We’re gonna have some fun tonight.
+ - Elvis may be the King of Rock and Roll, but I am the Queen.
+ - I got a girl named Bony Maronie, she’s as skinny as a stick of macaroni.
+ - I think people who don’t believe in God are crazy. How can you say there is no God when you hear the birds singing these beautiful songs you didn’t make?
+ - I think God made a woman to be strong and not to be trampled under the feet of men. I’ve always felt this way because my mother was a very strong woman, without a husband.
+ - That’s what Tina Turner did, too – sang blues up-tempo – and they called it rock ‘n’ roll.
+ - It’s not the size of the ship; it’s the size of the waves.
+ - They shoulda called me Little Cocaine, I was sniffing so much of the stuff! My nose got big enough to back a diesel truck in, unload it, and drive it right out again.
+ - I don’t give the devil credit for creating nothing.
+ - When you sit down and think about what rock ‘n’ roll music really is, then you have to change that question. Played up-tempo, you call it rock ‘n’ roll; at a regular tempo, you call it rhythm and blues.
+ - I try to be a guide for people, to make their darkness bright and to make the pathway light, and never to condemn or control or criticize.
+ - I just want the world to know that God is present, that he’s alive for ever more.
+ - Rock ‘n’ roll offered me a platform to speak what I felt. It also offered me a platform to support my mama and my brothers and sisters – twelve children.
+ - Gay people are the sweetest, kindest, most artistic, warmest and most thoughtful people in the world. And since the beginning of time all they’ve ever been is kicked.
+ - God gives us the ability, but rock ‘n’ roll was created by men.
+ - Now they have banging guitar and no bass and call it rock, but that’s not what I call rock.
+ - I don’t think a woman has to act like a man to show that she has strength.
+ - I’ve never seen the devil create music.
+ - I never heard nobody in my audience call me any kind of names.
+ - I was really kind of shy as a child. But I would do things for attention.
+ - I got fame and fortune, and I lost my sense of reasoning.
+ - I decided to come back and teach goodness in this business. To teach love, because music is the universal language. We are God’s bouquet, and through music we become one.
+ - I think they saw me as something like a deliverer, a way out. My means of expression, my music, was a way in which a lot of people wished they could express themselves and couldn’t.
+ - I don’t think that you have to be effeminate to be sensitive.
+ - I always knew I was a man, always felt that I was a man, always wanted to be a man.
+ - But men are so full of greed today, they’ll sell anything for a little piece of money.
+ - I would wear flamboyant clothes and long hair, and most singers at the time didn’t.
+ - I think that a man should be caring.
+ - Plus I love Tanya Tucker and I love country music.
+ - I came from a family where my people didn’t like rhythm and blues. Bing Crosby – “Pennies from Heaven” – Ella Fitzgerald, was all I heard.
+ - And I don’t get down on nobody else for doing whatever else they do. To each his own.
+ - I also like the banging piano – that old good-time piano.
+ - I never accepted the idea that I had to be guided by some pattern or blueprint.
+ - I’m very much a gentleman in what I do.
+ - But when I went on the stage to do a show, I would put on makeup because I felt that it enhanced my act; it drew attention to what I was doing.
+ - I let people know that it was all right to do the kinds of things I did.
+ - I tried to look presentable for a show, but not for sexual attraction. It was strictly for show business.
+ - No, I’ve never truly been a minister.
+ - I did what I felt, and I felt what I did, at all costs.
+ - But I’m a rock ‘n’ roll singer; that’s my livelihood, my occupation.
+ - I saw Uncle John with Long Tall Sally, he saw Aunt Mary coming and he ducked back in the alley.
+ - Like, my mother would have company over, and I would sing so they’d pay attention to me.
+ - But I was singing loud, and most singers weren’t singing loud.
+ - A-bop-bop-a-loom-op-a-lop-bop-boom.
+ - It’s hard to have a friend when your name’s a household word.
+ - I love God, and I’m a follower.
+ - And I think a woman should find it a joy to be female because God made both male and female.
+ - I’m a conductor of revivals. The only minister in the whole package. Little Richard, the evangelist.
+ - To me, true rock ‘n’ roll has a lot of bottom in it.
+ - A lot of songs I sang to crowds to get their reaction. That’s how I knew they’d hit.
+
+61 quotes

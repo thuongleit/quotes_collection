@@ -1,0 +1,32 @@
+ - Our survival depends on the healing power of love, intimacy and relationships. As individuals. As communities. As a country. As a culture. Perhaps even as a species.
+ - People who are lonely and depressed are three to 10 times more likely to get sick and die prematurely than those who have a strong sense of love and community. I don’t know any other single factor that affects our health – for better and for worse – to such a strong degree.
+ - Joy of living is sustainable; fear of dying is not.
+ - Stress is not so much what you do, but how you react to what you do.
+ - We all know we’re going to die one day, but who wants to think about it? What’s sustainable is joy, pleasure and freedom.
+ - When I use the word spirituality, I don’t necessarily mean religion; I mean whatever it is that helps you feel connected to something that is larger than yourself.
+ - At a time when 20% of people in the US go to bed hungry each night and almost 50% of the world’s population is malnourished, choosing to eat more plant-based foods and less red meat is better for all of us-ourselves, our loved ones, and our planet.
+ - People don’t dislike change, they dislike being changed.
+ - Even more than feeling healthy, most people want to feel free and in control.
+ - An educated patient is empowered; thus, more likely to become healthy.
+ - The need for love and intimacy is a fundamental human need, as primal as the need for food, water, and air.
+ - Awareness-mindfulness-is the first step in healing. In Counterclockwise, Dr. Ellen Langer eloquently describes how becoming more aware of our beliefs and expectations allows us to powerfully transform our lives for the better. A pioneering, beautifully-written book.
+ - The healing power of love and relationships has been documented in an increasing number of well-designed scientific studies involving hundreds of thousands of people throughout the world.
+ - Meaning is malleable: take it out, you get nihilism and despair. Put it in, you get sacredness and something most special.
+ - In general, losing weight is a good thing for those who are overweight, but it’s important to lose weight in a way that enhances your health rather than one that may compromise it.
+ - The Internet has transformed many parts of our daily lives, touching everything from how we find information to how we go shopping, get directions, and even stay in touch with friends and family.
+ - Poor health is not caused by something you don’t have; it’s caused by disturbing something that you already have. Health is not something you need to get, it’s something you have already if you don’t disturb it.
+ - I don’t understand why asking people to eat a well-balanced vegetarian diet is considered drastic, while it is medically conservative to cut people open and put them on cholesterol lowering drugs for the rest of their lives.
+ - When I talk about forgiveness, I mean letting go, not excusing the other person or reconciling with them or condoning the behavior. Just letting go of your own suffering.
+ - Although scientists can often be as resistant to new ideas as anyone, the process of science ensures that, over time, good ideas and theories prevail.
+ - I am as non-accepting of medical quackery and unscientific approaches as anybody else. I’ve grown up as a card-carrying scientist, and I know the power of science to answer questions, and for many questions I don’t know of anything better than scientific approaches to answer them.
+ - Curious patients are more receptive to new ideas, and those who engage their health practitioners in a dialogue are much more likely to adhere to these recommendations.
+ - I’m a big admirer of Walter Willett’s work. I think he’s done some really important research. He and I agree on most things.
+ - Whether you’re six or sixty, if you go on a diet and lifestyle program and feel constrained, you’re likely to go off it sooner or later. Offering a spectrum of choices is much more effective; then, you feel free and empowered.
+ - Real power is not given to us or even created; real power is realized. It comes from realizing an inner sense of peace, self-worth, and happiness.
+ - I usually find that the process of discovery is more interesting than the answers.
+ - I’ve found that if I tell somebody ‘Eat this and don’t do that,’ it’s not only not helpful, it’s counterproductive because even more than being healthy, we want to feel free and in control, and as soon as somebody tells us to do something, there’s a tendency to do just the opposite.
+ - I grew up in Texas, eating meat five times a day, and I liked meat. But I began being a vegetarian when I was 19 because I found that I felt better.
+ - When most people think about my work, they think about diet. To me, diet has always been the least interesting part of it.
+ - With everything that you can imagine at our fingertips, many of the social interactions that help tie people together in a community have faded away. Are communities traditionally built on relationships, trust and familiarity a thing of the past?
+
+30 quotes

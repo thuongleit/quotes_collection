@@ -1,0 +1,35 @@
+ - You have to fall in love with the process of becoming great.
+ - Some people are so poor, all they have is their money.
+ - Take care of your body from the inside out.
+ - Sometimes you get lucky – you don’t put much work in and you’re successful anyway. But over the course of time, if you really want to shape your path, I think it’s about the quality of the time you put in.
+ - You always want to be better than you are. No matter what, I think that’s important.
+ - Energy is something you can control, in everything you do, you’re going to face people more talented than you. I set myself apart by bringing more energy than they do.
+ - The sincerity with which you do things, that’s what shapes your life.
+ - If you love the game and you love playing, just have fun and enjoy it. Work hard and don’t get bogged down by it.
+ - People can’t measure the amount of heart you have and how much you’re willing to fight for something.
+ - This has been a dream for me.
+ - I’m not a huge fan of plastic surgery, for either guys or girls.
+ - The people that are surrounding me have my best interest.
+ - Grandparents get older and they can’t do things for themselves anymore. I’m gonna struggle with that. Because I hate depending on people to do anything for me.
+ - Once you become complacent and once you’re happy with your performance or whatever it is, I don’t think you’ll get better as quickly.
+ - This must be how the guys in Space Jam felt when MJ gave them their powers back through that old basketball.
+ - After you have a big game, you can’t just say, ‘That’s it, I’ve arrived,’ by any means. I’m always pushing it to be better. You always want to be better than you are, no matter what. I think that’s important.
+ - Teams want me to do something stupid. You want to get to the point where nothing affects you, where you control them.
+ - It’s cool to actually have my own trading card.
+ - If you read a label and just look up the ingredients, you’ll be able to figure out really easily what’s good for you and what’s bad.
+ - The best part is if you dunk on someone at home and they show it on the replay!
+ - Basketball has always and will always come first to me but it’s also given me the chance to do really fun things and work with really fun people and its something I’m lucky to have.
+ - I guess it’s good in a sense that it stops any of it from happening, but now you’re telling me if it’s Game 7 of the NBA Finals and a guy has a chance to make a play he’s going to be like, ‘Well, do I want this $10,000 or do I want a championship?’
+ - It seemed like we were losing every night for a different reason. Now we’re winning a different way every time. It’s a great feeling.
+ - When I was younger, I was just always looking for this hot, so hot, like super-hot girl. And then, as I’ve gotten older, different things are really important to me, like just honesty. Being able to sit down and have a conversation.
+ - They really just taught me at an early age the values of hard work. Both my parents are two of the hardest working people that I know, so that was a big foundation for me and something I really cherish and it really helped me to grow up in that kind of household.
+ - I’m thankful for some of bad experiences I’ve had. They helped me with the way I view people and see them for who they really are.
+ - I was always chasing Taylor, trying to keep up with him.
+ - I wanted to play in the NBA, I wanted to play sports, I wanted to do all this. And I have. I think I am becoming a man.
+ - I followed Taylor everywhere. I was always trying to catch up after him or go with him.
+ - We’re not going to think about what’s happened in the past.
+ - My goal is to let people see who I am as a person, not just a basketball player. Many people see athletes in a certain way – flat and one dimensional. I want to change that view.
+ - I’m going to be working on my shot. Working on extending my range. Keep working on everything, and really studying the game.
+ - College. I didn’t even realize it was carefree at the time, but looking back, that was the most carefree time ever.
+
+33 quotes

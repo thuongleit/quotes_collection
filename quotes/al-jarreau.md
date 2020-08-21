@@ -1,0 +1,29 @@
+ - Once you discover that you can, then you must.
+ - Before I get out of bed, I am saying thank you. I know how important it is to be thankful.
+ - Jazz brought this sense of democracy where four guys come together and your name may be on the marquee, but in this moment, when you’re the soloist, it’s you, and we follow you. We follow you.
+ - Once you discover that you can, then you must. And it’s not easy. You have to take direct steps. You really have to count your blessings and you have to make a decided effort to not get seduced by the blues.
+ - These songs are old friends I have entertained myself with when I’m washing the dishes, driving to the store and walking down the aisles. The ones that you sing when you’re driving in the car and as a singer you always go back to them.
+ - I know more polkas than Frankie Yankovic. I grew up next door to the Polka Tavern in Milwaukee. I can sing some polkas. And proud of that.
+ - It’s all background experience and listening and exposure. That’s why it’s so important for people today and during any time to expose your children to lots of different kinds of things.
+ - My eyes went blank, and I stared off, and the music started. It was raining, and the sun was shining at the same time, and there were these big bay windows, and there was the blue in the sky, and the sun on the trees, and it was drizzling.
+ - I came here with something in me that I inherited from my folks. So I’m going to do something called life and times.
+ - I did a concert at five years old in the garden of one of the church members, and we raised some money to buy a new piano in our little church.
+ - I’m walking every day and just staying kind of fit, and try not to have too many bad habits. Keep it minimal.
+ - I was age six or seven, and singing, “Jesus wants me for her son, beep, to shine for him,” and people smiled and pinched my cheeks till the blood vessels broke, and I knew I was doing something right.
+ - To sing the ballad with a knowingness about what you are talking about. If it’s somebody else’s lyric, and the message is a little unusual for you, it requires that you learn that new message.
+ - I’ve been saying for almost 20 years that I need to do a jazz project and it ought to be either big band or I should do some jazz songs with a trio or quartet.
+ - I kind of knew something was going on, and my older brothers and sisters were singing be-boppish kinds of stuff in the living room, and I was listening. I started singing, warmer than a summer night, at seven or eight years old.
+ - I don’t know where we got the notion that God wants us to suffer. Every living thing tends toward the good or we would have been gone a long time ago.
+ - I sang do-wop on the street corner before it was called do-wop.
+ - I sat on the piano bench next to my mother in church. Something happened before I set foot on this planet. I was crawling around inside of her. She was a church pianist. My dad was a brilliant singer. I was hearing it.
+ - You have to make a decided effort to not get seduced by the Blues.
+ - Every day is Thanksgiving for me, man. Yeah, I still have an audience, and they ask the local promoter, “When is Al coming back?” .
+ - That’s the way I try to live. I think it’s the only way for human beings at this point in our evolution as souls, where everyone in their lifetime is going through stuff.
+ - I watched Elvis Presley become – I listened to Elvis Presley. I watched Chuck Berry become. I listened to Little Richard. I heard that music, and it was part of my upbringing.
+ - Obviously given good health, and a continuing audience and a record company that allows me to do music. So given those things yes, I’m introducing some new music that people haven’t really heard me do in quite this fashion.
+ - Al and Tommy and I sharing the biggest laugh because it was predicted by everything we did in the first three or four records in my career. It was predicted in the grooves that we would be here sometime later on down the road.
+ - I would still be singing, because it’s part of my heart and my soul, and it lifts me up. Find something you would do for free.
+ - I think a singer is an athlete. I’ve always tried to stay fit. Until my knee said, “Uh-uh,” I was jogging. Then I started walking. They don’t like walking a lot, but I’ll push them.
+ - I really do see it as the start of the second half of my career.
+
+27 quotes

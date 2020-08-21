@@ -1,0 +1,24 @@
+ - If initiative is the ability to do the right thing, then efficiency is the ability to do the thing right.
+ - I see that the path of progress has never taken a straight line, but has always been a zigzag course amid the conflicting forces of right and wrong, truth and error, justice and injustice, cruelty and mercy.
+ - Genius has no age, no country, no race; it belongs to mankind.
+ - Exaggerated self-importance is deemed an individual fault, but a racial virtue.
+ - Those who become incoculated with the virus of race hatred are more unfortunate than the victim of it. Race hatred is the most malignant poison that can afflict the mind. It freezes up the fount of inspiration and chills the higher faculties of the soul.
+ - For a century after the reign of Frederick, Prussia remained the most prominent Germanic state in Europe.
+ - With Germany herself falling, it is not strange that the nations leagued with her also went down to defeat.
+ - In 1917 – as we have seen, – Italy suffered a great reverse, losing 200,000 soldiers and immense supplies.
+ - To meet the shortage of supplies from America, due to lack of shipping, the representatives of the different supply departments were constantly in search of available material and supplies in Europe.
+ - Having achieved such signal successes in the east, Russia and Roumania being both disposed of, the German leaders planned a campaign designed to crush Italy.
+ - The eventual place the American army should take on the western front was to a large extent influenced by the vital question of communication and supply.
+ - The collapse of Russia was the second great event of 1917.
+ - All great people glorify their history and look back upon their early attainments with a spiritualized vision.
+ - No American can read the story of the part America took in the war without experiencing a glow of patriotic feeling. Every Allied nation can say the same thing.
+ - In the early days of his reign, Bismarck confided to a friend that it would some day be necessary for Germany to confine William II in an insane asylum.
+ - Germany expected that at the most a day or so would see Belgian resistance broken and the dash on Paris begun. It was not safe to start such a forward rush with Belgium unconquered.
+ - The Best of the artist’s art, which will one day be in a Museum wall, the Painting that sets the artist apart of all other artist artists.
+ - The year 1915 was one of meager results, the advantages remaining on the side of the Central Powers, with this understanding, however: The Allies were growing stronger because Great Britain was making rapid progress in marshaling her resources for war.
+ - Racial and denominational schools impart to the membership of their communities something which the general educational institution is wholly unable to inculcate.
+ - The success of the Allies in the west was in a measure offset by Teutonic victories in the east. When the invasion of Belgium began, Russia made immediate efforts to counteract by invasion of East Prussia.
+ - Civilization is not a spontaneous generation with any race or nation known to history, but the torch to be handed from race to race from age to age.
+ - Moreover, broad plans commensurate with our national purpose and resources would bring conviction of our power to every soldier in the front line, to the nations associated with us in the war, and to the enemy.
+
+22 quotes

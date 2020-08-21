@@ -1,0 +1,73 @@
+ - A government big enough to give you everything you want is big enough to take everything you have.
+ - Extremism in the defense of liberty is no vice. And moderation in the pursuit of justice is no virtue.
+ - Forced integration is just as wrong as forced segregation.
+ - Government should stay the hell out of people’s business.
+ - I do not undertake to promote welfare, for I propose to extend freedom. My aim is not to pass laws but to repeal them.
+ - I have little interest in streamlining government or in making it more efficient, for I mean to reduce its size.
+ - When fraternities are not allowed, Communism flourishes. Young men who are inexperienced but have faith are more useful than older, experienced men without faith. The fraternity system is a bastion of American strength.
+ - Any pilot can describe the mechanics of flying. What it can do for the spirit of man is beyond description.
+ - The Conservative knows that to regard man as part of an undifferentiated mass is to consign him to ultimate slavery.
+ - There’s no greater service to this country than the defense of its freedom.
+ - My aim is not to pass laws, but to repeal them.
+ - We shall return to proven ways – not because they are old, but because they are true.
+ - I am a conservative Republican, but I believe in democracy and the separation of church and state. The conservative movement is founded on the simple tenet that people have the right to live life as they please as long as they don’t hurt anyone else in the process.
+ - I’ve always said I have nothing against a woman doing anything a man can do as long as she gets home in time to cook dinner.
+ - The income tax created more criminals than any other single act of government.
+ - The constitution is an instrument, above all, for LIMITING the functions of government.
+ - I won’t say that the papers misquote me, but I sometimes wonder where Christianity would be today if some of those reporters had been Matthew, Mark, Luke and John.
+ - I am frankly sick and tired of the political preachers telling me as a citizen that if I want to be a moral person, I must believe in A, B, C, and D. Just who do they think they are? And from where do they presume to claim the right to dictate their moral beliefs to me?
+ - You don’t have to be straight to be in the military; you just have to be able to shoot straight.
+ - When white and black and brown and every other color decide they’re going to live together as Christians, then and only then are we going to see an end to these troubles.
+ - It is impossible to maintain freedom and order and justice without religious and moral sanctions.
+ - Throughout history, government has proved to be the chief instrument for thwarting man’s liberty.
+ - We cannot allow the American flag to be shot at anywhere on earth if we are to retain our respect and prestige.
+ - A man from the west will fight over three things: water, women and gold, and usually in that order.
+ - You’ve got to forget about this civilian. Whenever you drop bombs, you’re going to hit civilians.
+ - Extremism in defense of Liberty is no vice.
+ - The time has come to recognize the United Nations for the anti-American, anti-freedom organization that it has become. The time has come for us to cut off all financial help, withdraw as a member, and ask the United Nations to find headquarters location outside the United States that is.
+ - Small men, seeking great wealth or power, have too often and too long turned even the highest levels of public service into mere personal opportunity.
+ - To disagree, one doesn’t have to be disagreeable.
+ - In your heart you know he’s right.
+ - I fear Washington and centralized government more than I do Moscow.
+ - While I am a great believer in the free enterprise system and all that it entails, I am an even stronger believer in the right of our people to live in a clean and pollution-free environment.
+ - I have characterized Nixon as a loner, a cold man with great self-confidence and a one-track mind centered on the advancement of Richard Nixon.
+ - I think every good Christian ought to kick Falwell right in the ass.
+ - Equality, rightly understood as our founding fathers understood it, leads to liberty and to the emancipation of creative differences; wrongly understood, as it has been so tragically in our time, it leads first to conformity and then to despotism.
+ - If everybody in this town connected with politics had to leave town because of chasing women and drinking, you would have no government.
+ - Women are hard enough to handle now without giving them a gun!
+ - I have the unmitigated gall to think that I could lead men anywhere, business, politics or combat.
+ - I made an effort to find out what was in the building at Wright Patterson Air Force Base where the information is stored that has been collected by the Air Force, and I was understandably denied this request. It is still classified above Top Secret.
+ - I will offer a choice, not an echo.
+ - I certainly believe in aliens in space, and that they are indeed visiting our planet. They may not look like us, but I have very strong feelings that they have advanced beyond our mental capabilities.
+ - Conservatism therefore looks upon the enhancement of man’s spiritual nature as the primary concern of political philosophy. Liberals, on the other hand, – in the name of a concern for “human beings” – regard the satisfaction of economic wants as the dominant mission of society.
+ - Some programs have been theatrical masterpieces, but all we’re seeing is the negative side of nuclear war.
+ - I think some highly secret government UFO investigations are going on that we don’t know about – and probably never will unless the Air Force discloses them.
+ - Whether in families or in politics, a good observation: “One can disagree without being disagreeable.”
+ - I understand Jacqueline Kennedy has redone the White House in eighteenth-century style. Why, then, I’d fit in perfectly.
+ - The Republicans have a positive talent for self-destruction.
+ - Unlimited campaign spending eats at the heart of the democratic process.
+ - I’ve played everything – baseball, football, basketball. I can still swim a mile a day. That’s why I can’t walk.
+ - I thought of something my old coach at Staunton had often said: ‘We win some, we lose some, and some get rained out; but we always suit up.’
+ - Religious factions will go on imposing their will on others unless the decent people connected to them recognize that religion has no place in public policy. They must learn to make their views known without trying to make their views the only alternatives.
+ - And here we encounter the seeds of government disaster and collapse – the kind that wrecked ancient Rome and every other civilization that allowed a sociopolitical monster called the welfare state to exist.
+ - I’m the most underdog underdog there is.
+ - Without the National Federation of Republican Women, there would be no Republican Party.
+ - Nixon was the most dishonest individual I have ever met in my life. He lied to his wife, his family, his friends, his colleagues in the Congress, lifetime members of his own political party, the American people and the world.
+ - The only summit meeting that can succeed is the one that does not take place.
+ - I could have ended the war in a month. I could have made North Vietnam look like a mud puddle.
+ - To my mind the single essential element on which all discoveries will be dependent is human freedom.
+ - Can any of us refute the wisdom of Madison and the other framers? Can anyone look at the carnage in Iran, the bloodshed in Northern Ireland or the bombs bursting in Lebanon and yet question the dangers of injecting religious issues into the affairs of state?
+ - I think the President ought to bring everybody that’s in American uniform back because we’re headed for war.
+ - Most Americans have no real understanding of the operation of the international money lenders. The accounts of the Federal Reserve System have never been audited. It operates outside the control of Congress and manipulates the credit of the United States.
+ - The fellow has absolutely no principles.“Money and gall” is all he has.
+ - When I’m not a politician, I’ll be dead.
+ - It’s political Daddyism and it’s as old as demagogues and despotism.
+ - If the Conservative is less anxious than his Liberal brethren to increase Social Security ‘benefits,’ it is because he is more anxious than his Liberal brethren that people be free throughout their lives to spend their earnings when and as they see fit.
+ - The best thing Clinton could do – I think I wrote him a letter about this, but I’m not sure – is to shut up. He has no discipline.
+ - I say that when you elect a president you want a man to manage the legitimate business of your government. The government that is big enough to give you everything you want is big enough to take it away.
+ - American business has just forgotten the importance of selling.
+ - Hubert Humphrey talks so fast that listening to him is like trying to read Playboy magazine with your wife turning the pages.
+ - I think any man in business would be foolish to fool around with his secretary. If it’s somebody else’s secretary, fine.
+ - Trade unions infringe upon the property rights of company owners.
+
+71 quotes

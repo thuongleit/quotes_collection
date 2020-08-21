@@ -1,0 +1,40 @@
+ - My children without a doubt are my greatest accomplishment. If I did nothing else I would feel just having and raising them would be enough. The rest is icing.
+ - Do I really need to prove anything to anybody? I don’t feel that I have to prove anything. The only thing that I have to prove is to myself, that I have value.
+ - I love learning, and I think that curiosity is a wonderful gift.
+ - Everybody needs to laugh and have fun and feel good.
+ - I always say that kindness is the greatest beauty that you can have.
+ - I love the idea of living a life that is completely humble and quiet.
+ - A man who opens a door for a woman or gives up his seat for her-even offering to carry something! Those are country manners that never go out of style.
+ - I define sexy as a real salt-of-the-earth woman who knows who she is, who feels strong and powerful.
+ - There is a comfortable feeling in small towns. It is salubrious.
+ - As a single mother of four, my mother taught me that you always want to show up strong for the moments that really matter with family, friends, and community. I now recognize how her strength helped shape the person I am today and the mother that I have become.
+ - In my next life, I’d like to come back five foot, two inches, with the best ass and tits you’ve ever seen.
+ - I’m in an unusual stage right now, because I haven’t dated in so long. The sense of isolation turns it all into a bigger deal. Just taking the risk of opening that door is really hard for me right now.
+ - I loved dancing as a young girl.
+ - If you carry around anger and ugly emotions it will show on your face.
+ - I love being an advocate for women as we get older so that we can feel comfortable with ourselves. It’s all about being healthy for me now.
+ - My life in Montana is so diverse from my Hollywood life that it even feels odd for me to go from one life to the other.
+ - I can usually tell when a woman is going through a divorce because they look so gaunt and tired and sad. It’s just a huge sadness. It’s horrible. It’s like death. You mourn, but the person’s still there.
+ - I like to work out every day. I run, walk, do machines. I’m not neurotic about food. My rule is, don’t let yourself get over a certain weight. If you gain 5lb, stop before it gets worse.
+ - I tried to tell them about the dating process because I’m single now and how horrible it is and how many foolish experiences I had had dating. So I was really selling him hard, but the whole time he really wanted me!
+ - I think hidden underneath a lot of teachers are very sexy women.
+ - I always think I look better after a yoga class. It’s the same as a massage. We look so amazing after a massage because we’re relaxed.
+ - When your kids are their hungriest, put out raw vegetables and dip – simple. It takes two seconds. We did it before dinner at 5 o’clock. Then when dinnertime comes, they’ve already eaten vegetables.
+ - Some women are naturally thin. But there needs to be an appreciation for a variety of types of women because we don’t all come in one package. We’re not pre-destined to all be a size six.
+ - It’s helped my outlook, how I interact with people. It’s made me more conscious. It’s helped me be able to focus, make better decisions, think on my feet. I don’t know what I’d do without it. It’s my sanctuary.
+ - I think sometimes I intimidate people. I’ve been told that. But I feel I’m the least intimidating person possible.
+ - I must be thankful that I get to do intense dramatic roles, because it takes so much more, whereas I’ve been doing L’Oreal forever, and I can do that in my sleep.
+ - I think the human body is beautiful, and I don’t really have a huge problem in dealing with it, but it’s the context, the environment and what I feel about it that that makes the difference for me.
+ - I think women have an innate ability to be intuitive with people that they truly love, but they have to trust that inner voice, and I think it is there. I think we are more intuitive than men.
+ - My biggest regret is rolling in regret. It is best to pick yourself up, dust yourself off and move on.
+ - I lived in Paris when I was 20 and 21, and actually knew people that worked for the government there, that talked about terrorism in the country 20 years ago.
+ - My favourite thing is to be somebody else, no longer be me.
+ - When I was 23, basically I stopped modelling and started going to school, and was able to study with wonderful teachers.
+ - People that are 40, they don’t sit around at talk about gray hair and how it covers their hair. They talk about highlighting, of course they’re covering gray, but they don’t talk about it that way. They’re going to get their colors because they need a little lightening.
+ - Dancers work really hard, they don’t make any money. It’s hard.
+ - I think sometimes we seem to obsess on negativity.
+ - During Katherine Hepburn’s time when she was just coming into her own at 40.
+ - We can sit around and go, okay, is there really a plan, does somebody really know what’s happening, is it all planned out, because sometimes it just seems too remarkable to me the things that have happened to me.
+ - I had a whole bunch of very successful movies. I have worked with some incredible people – incredible.
+
+38 quotes

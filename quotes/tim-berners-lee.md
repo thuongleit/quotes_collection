@@ -1,0 +1,102 @@
+ - We need diversity of thought in the world to face the new challenges.
+ - Data is a precious thing and will last longer than the systems themselves.
+ - You affect the world by what you browse.
+ - The Semantic Web isn’t inherently complex. The Semantic Web language, at its heart, is very, very simple. It’s just about the relationships between things.
+ - To be a hacker – when I use the term – is somebody who is creative and does wonderful things.
+ - The Web does not just connect machines, it connects people.
+ - WorldWideWeb: Proposal for a HyperText Project.
+ - The dream behind the Web is of a common information space in which we communicate by sharing information.
+ - Innovation is serendipity, so you don’t know what people will make.
+ - Anyone who has lost track of time when using a computer knows the propensity to dream, the urge to make dreams come true and the tendency to miss lunch.
+ - There are billions of neurons in our brains, but what are neurons? Just cells. The brain has no knowledge until connections are made between neurons. All that we know, all that we are, comes from the way our neurons are connected.
+ - Acceptance is the spiritual hammock.
+ - You can’t propose that something be a universal space and at the same time keep control of it.
+ - Intellectual property is an important legal and cultural issue. Society as a whole has complex issues to face here: private ownership vs. open source, and so on.
+ - I hope we will use the Net to cross barriers and connect cultures.
+ - Any good software engineer will tell you that a compiler and an interpreter are interchangeable.
+ - Things can change so fast on the internet.
+ - Any enterprise CEO really ought to be able to ask a question that involves connecting data across the organization, be able to run a company effectively, and especially to be able to respond to unexpected events. Most organizations are missing this ability to connect all the data together.
+ - The goal of the Web is to serve humanity. We build it now so that those who come to it later will be able to create things that we cannot ourselves imagine.
+ - I don’t believe in the sort of “Eureka!” moment idea. I think it’s a myth. I’m very suspicious that actually Archimedes had been thinking about that problem for a long time.
+ - AI is not just heading for our industry, it will radically change the machinery we use in marketing.
+ - When it comes to professionalism, it makes sense to talk about being professional in IT. Standards are vital so that IT professionals can provide systems that last.
+ - When something is such a creative medium as the web, the limits to it are our imagination.
+ - The concept of the Web is of universal readership.
+ - The Web as I envisaged it, we have not seen it yet. The future is still so much bigger than the past.
+ - What I do has to be a function of what I can do, not a function of what people ask me to do.
+ - I think in general it’s clear that most bad things come from misunderstanding, and communication is generally the way to resolve misunderstandings, and the Web’s a form of communications, so it generally should be good.
+ - If you are not on the web, you will have problems accessing services.
+ - If different cultures connect with each other, they are less likely to want to shoot each other.
+ - E-mail is interesting. We can’t live with it, and you can’t live without it.
+ - Computers might not find the solutions to our problems, but they would be able to do the bulk of the legwork required, assist our human minds in intuitively finding ways through the maze.
+ - It’s mine – you can’t have it. If you want to use it for something, then you have to negotiate with me. I have to agree, I have to understand what I’m getting in return.
+ - When I invented the web, I didn’t have to ask anyone’s permission. Now, hundreds of millions of people are using it freely. I am worried that that is going end in the USA.
+ - Cool URIs don’t change.
+ - Celebrity damages private life.
+ - We can’t blame the technology when we make mistakes.
+ - The world’s urban poor and the illiterate are going to be increasingly disadvantaged and are in danger of being left behind. The web has added a new dimension to the gap between the first world and the developing world. We have to start talking about a human right to connect.
+ - I don’t know whether machine translation will eventually get good enough to allow us to browse people’s websites in different languages so you can see how they live in different countries.
+ - IT professionals have a responsibility to understand the use of standards and the importance of making Web applications that work with any kind of device.
+ - The search button on the browser no longer provides an objective search, but a commercial one.
+ - The story of the growth of the World Wide Web can be measured by the number of Web pages that are published and the number of links between pages. The Web’s ability to allow people to forge links is why we refer to it as an abstract information space, rather than simply a network.
+ - The web is more a social creation than a technical one. I designed it for a social effect – to help people work together – and not as a technical toy.
+ - The Web is now philosophical engineering. Physics and the Web are both about the relationship between the small and the large.
+ - It is the the duty of a Webmaster to allocate URIs which you will be able to stand by in 2 years, in 20 years, in 200 years.
+ - Universality has been the key enabler of innovation on the Web and will continue to be so in the future.
+ - Freedom of connection with any application to any party is the fundamental social basis of the internet. And now, is the basis of the society built on the internet.
+ - The internet explodes when somebody has the creativity to look at a piece of data that’s put there for one reason and realise they can connect it with something else.
+ - The ultimate goal of the Web is to support and improve our web-like existence in the world. We clump into family, association, and companies.
+ - The amount of control you have over somebody if you can monitor internet activity is amazing.
+ - Technology innovation is starting to explode and having open-source material out there really helps this explosion. You get students and researchers involved and you get people coming through and building start ups based on open source products.
+ - I suppose it’s amazing when you think how many things people get involved in that don’t work.
+ - When you go onto the internet, if you really rummage around randomly then how do you hope to find something of any of value?
+ - The Google algorithm was a significant development. I’ve had thank-you emails from people whose lives have been saved by information on a medical website or who have found the love of their life on a dating website.
+ - Imagine that everything you are typing is being read by the person you are applying to for your first job. Imagine that it’s all going to be seen by your parents and your grandparents and your grandchildren as well.
+ - I myself feel that it is very important that my ISP supplies internet to my house like the water company supplies water to my house. It supplies connectivity with no strings attached.
+ - My own personal preference is that the consumer, the individual person should be protected because individual people and the difference between individual people and the diversity we have between people on the planet is so important.
+ - I think when you have a lot of jumbled up ideas they come together slowly over a period of several years.
+ - Whatever the device you use for getting your information out, it should be the same information.
+ - I think a lot of great software has been written by people who are scratching a short-term itch, something which has been niggling them for ages, but in the back of their mind they’ve got a wonderful long-term plan.
+ - In many ways, people growing up with the Web and now the Semantic Web take the power at their fingertips for granted.
+ - We shouldn’t build a technology to colour, or grey out, what people say. The media in general is balanced, although there are a lot of issues to be addressed that the media rightly pick up on.
+ - The nice thing about programming at the RDF level is that you can just say, I’ll ask for all the books. You can ask for all the shelves. You can ask for a given shelf whether a book was on it. And you’re not worrying so much about the underlying syntax.
+ - I invented the Web just because I needed it, really, because it was so frustrating that it didn’t exit.
+ - On the web the thinking of cults can spread very rapidly and suddenly a cult which was 12 people who had some deep personal issues suddenly find a formula which is very believable.
+ - The most important thing that was new was the idea of URI-or URL, that any piece of information anywhere should have an identifier, which will allow you to get hold of it.
+ - Now, if someone tries to monopolize the Web, for example pushes proprietary variations on network protocols, then that would make me unhappy.
+ - Web applications will become more and more ubiquitous throughout our human environment, with walls, automobile dashboards, refrigerator doors all serving as displays giving us a window onto the Web.
+ - We should work toward a universal linked information system, in which generality and portability are more important than fancy graphics techniques and complex extra facilities.
+ - Most larger companies now see that for the market to grow, Web infrastructure must be royalty-free.
+ - The Semantic Web is not a separate Web but an extension of the current one, in which information is given well-defined meaning, better enabling computers and people to work in cooperation.
+ - I want to know if I look up a whole lot of books about some form of cancer that that’s not going to get to my insurance company and I’m going to find my insurance premium is going to go up by 5% because they’ve figured I’m looking at those books.
+ - It’s the whole cat and mouse game between the readers and writers that makes the web work.
+ - It’s a new medium, it’s a universal medium and it’s not itself a medium which inherently makes people do good things, or bad things. It allows people to do what they want to do more efficiently.
+ - In ’93 to ’94, every browser had its own flavor of HTML. So it was very difficult to know what you could put in a Web page and reliably have most of your readership see it.
+ - Customers need to be given control of their own data-not being tied into a certain manufacturer so that when there are problems they are always obliged to go back to them.
+ - Web users ultimately want to get at data quickly and easily. They don’t care as much about attractive sites and pretty design.
+ - The Mobile Web Initiative is important – information must be made seamlessly available on any device.
+ - What is a Web year now, about three months? And when people can browse around, discover new things, and download them fast, when we all have agents – then Web years could slip by before human beings can notice.
+ - As more and more people awaken to the threats against our basic rights online, we must start a debate – everywhere – about the web we want.
+ - We need to look at the whole society and think, “Are we actually thinking about what we’re doing as we go forward, and are we preserving the really important values that we have in society? Are we keeping it democratic, and open, and so on?”
+ - Sites need to be able to interact in one single, universal space.
+ - Physicists analyze systems. Web scientists, however, can create the systems.
+ - It’s time to recognise the Internet as a basic human right, that means guaranteeing affordable access for all, ensuring Internet packets are delivered without commercial or political discrimination, and protecting the privacy and freedom of Web users regardless of where they live.
+ - I basically wrote the code and the specs and documentation for how the client and server talked to each other.
+ - I’m an optimist about humanity in general, I suppose.
+ - I should be able to pick which applications I use for managing my life, I should be able to pick which content I look at, and I should be able to pick which device I use, which company I use for supplying my internet, and I’d like those to be independent choices.
+ - I think IT projects are about supporting social systems – about communications between people and machines. They tend to fail due to cultural issues.
+ - I’m very aware there are lots of other people who are just bright and working just as hard, with just the same dedication to make the world a good place.
+ - Anyone who slaps a “this page is best viewed with Browser X” label on a Web page appears to be yearning for the bad old days, before the Web, when you had very little chance of reading a document written on another computer, another word processor, or another network.
+ - Compared even to the development of the phone or TV, the Web developed very quickly.
+ - I don’t mind being, in the public context, referred to as the inventor of the World Wide Web. What I like is that image to be separate from private life, because celebrity damages private life.
+ - It was really hard explaining the Web before people just got used to it because they didn’t even have words like click and jump and page.
+ - Software companies should take more responsibility for security holes, especially in browsers and e-mail clients. There are some straightforward things the industry should be doing right now to fix things, and I don’t know why they haven’t been done yet.
+ - What we believe, endorse, agree with, and depend on is representable and, increasingly, represented on the Web. We all have to ensure that the society we build with the Web is the sort we intend.
+ - That idea of URL was the basic clue to the universality of the Web. That was the only thing I insisted upon.
+ - Everybody who runs a Web site knows we’re not assured of compatibility, and we could end up with a split.
+ - I’m not a fan of giving a website a simple number like an IQ rating because like people they can vary in all kinds of different ways. So I’d be interested in different organisations labelling websites in different ways.
+ - I have built a moat around myself, along with ways over that moat so that people can ask questions.
+ - People keep asking me what I think of it now that it’s done. Hence my protest: The Web is not done!
+ - There are converging web-related issues cropping up, like privacy and security, that we currently have no way of thinking about. Nobody has thought to look at how people and the web combine as a whole – until now.
+
+100 quotes

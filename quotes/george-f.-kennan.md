@@ -1,0 +1,34 @@
+ - There is more respect to be won in the opinion of this world by a resolute and courageous liquidation of unsound positions than by the most stubborn pursuit of extravagant or unpromising objectives.
+ - War is a highly overrated tool of foreign policy.
+ - The nuclear bomb is the most useless weapon ever invented. It can be employed to no rational purpose. It is not even an effective defense against itself.
+ - The Russian leaders are keen judges of human psychology, and as such they are highly conscious that loss of temper and of self-control is never a source of strength in political affairs.
+ - We should cease to talk about vague and unreal objectives such as human rights, the raising of the living standards, and democratization. The day is not far off when we are going to have to deal in straight power concepts. The less we are then hampered by idealistic slogans, the better.
+ - It is clear that the main element of any United States policy toward the Soviet Union must be that of long-term, patient but firm and vigilant containment of Russian expansive tendencies.
+ - Do people ever reflect, one wonders, that the best way to protect against the penetration of one’s secrets by others is to have the minimum of secrets to conceal?
+ - It is an undeniable privilege of every man to prove himself right in the thesis that the world is his enemy; for if he reiterates it frequently enough and makes it the background of his conduct he is bound eventually to be right.
+ - Whenever you have a possibility of going in two ways, either for peace or for war, for peaceful methods of for military methods, in the present age there is a strong prejudice for the peaceful ones. War seldom ever leads to good results.
+ - Russia, Russia-unwashed, backward, appealing Russia, so ashamed of your own backwardness, so orientally determined to conceal it from us by clever deceit.
+ - Were the Soviet Union to sink tomorrow under the waters of the ocean, the American military-industrial establishment would have to go on, substantially unchanged, until some other adversary could be invented. Anything else would be an unacceptable shock to the American economy.
+ - The very concept of history implies the scholar and the reader. Without a generation of civilized people to study history, to preserve its records, to absorb its lessons and relate them to its own problems, history, too, would lose its meaning.
+ - The truth is sometimes a poor competitor in the market place of ideas – complicated, unsatisfying, full of dilemmas, always vulnerable to misinterpretation and abuse.
+ - The jealous and intolerant eye of the Kremlin can distinguish, in the end, only vassals and enemies, and the neighbors of Russia, if they do not wish to be one, must reconcile themselves to being the other.
+ - Instruments of coercion, once created, have a tendency to find their own natural masters.
+ - Above all, it behooves us to repress, and if possible to extinguish once and for all, our inveterate tendency to judge others by the extent to which they contrive to be like ourselves.
+ - A foreign policy aimed at the achievement of total security is the one thing I can think of that is entirely capable of bringing this country to a point where it will have no security at all.
+ - The best thing we can do if we want the Russians to let us be Americans is to let the Russians be Russian.
+ - This is a big world. Billions – rapidly increasing billions – of people live outside our borders. Obviously, a great number of them, being much poorer than they think most of us are, look enviously over those borders and would like, if they could, to come here.
+ - A political society does not live to conduct foreign policy; it would be more correct to say that it conducts foreign policy in order to live.
+ - Forms of government are forged mainly in the fire of practice, not in the vacuum of theory. They respond to national character and to national realities.
+ - We should not lose ourselves in vainglorious sohemes for changing human nature all over the planet. Rather, we should learn to view ourselves with a sense of proportion and Christian humility before the enormous complexity of the world in which it has been given us to live.
+ - Perfect discipline requires recognition of infallibility. Infallibility requires the observance of discipline.
+ - Not only the studying and writing of history but also the honoring of it both represent affirmations of a certain defiant faith a desperate, unreasoning faith, if you will but faith nevertheless in the endurance of this threatened world faith in the total essentiality of historical continuity.
+ - War has a momentum of its own and it carries you away from all thoughtful intentions when you get into it. Today, if we went into Iraq, like the president would like us to do, you know where you begin. You never know where you are going to end.
+ - Fig leaves of democratic procedure to hide the nakedness of Stalinist dictatorship.
+ - Bearing all this in mind, we see that there is no Russian national understanding which would permit the early establishment in Russia of anything resembling the private enterprise system as we know it.
+ - The best an American can look forward to is the lonely pleasure of one who stands at long last on a chilly and inhospitable mountaintop where few have been before, where few can follow and where few will consent to believe he has been.
+ - A guest of one’s time and not a member of the household.
+ - Public opinion, or what passes for public opinion, is not invariably a moderating force in the jungle of politics.
+ - The United States should not jump around like an elephant frightened by a mouse.
+ - Heroism is endurance for one moment more.
+
+32 quotes

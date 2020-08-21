@@ -1,0 +1,26 @@
+ - Don’t cater to the audience. Inspire the audience.
+ - Art is completely subjective. It’s up to the viewer to judge whether or not it has merit.
+ - Learn to nurture and trust your instincts as well as your conscious reasoning. Often, one’s instincts will offer the better judgment.
+ - Creative expression and visual comprehension are really the handmaidens of art. One cannot thrive without the other.
+ - Without art, we’re handicapped, and living a stifled, barren existence.
+ - Art is a necessity – an essential part of our enlightenment process. We cannot, as a civilized society, regard ourselves as being enlightened without the arts.
+ - Art is a necessity, an essential part of our enlightenment process.
+ - Desire is everything, not talent. It’s the degree of one’s desire that will dictate the extent of one’s success, in any endeavour.
+ - I must have the personal dialogue, the private time, with each painting in progress. I can’t share it with anyone until it’s done.
+ - Without good drawing, the foundation of a painting will collapse.
+ - As an artist, my concern is toward the synthesizing of all the visual elements at my disposal – at the exclusion of none.
+ - There’s nothing like a little fear or hunger to motivate one’s inspiration. To take that away from a young artist can offer quite a disservice.
+ - Emulation and imitation can legitimately influence one’s development, but ultimately the artist must find his own path – and be true to himself.
+ - We do not see with our eyes, but through them.
+ - In painting, detail for the sake of itself is useless. It must have relevance to the whole.
+ - My paintings don’t simply represent what I see; they present viewers with what I want them to see.
+ - Abstraction and realism work best together.
+ - Regardless of the importance of known evidence to the contrary, the arts are generally regarded as being so much entertaining fluff, a commodity that isn’t a priority in the traditional program of learning. This is unacceptable in a so-called ‘enlightened’ society.
+ - Whenever I’m asked to identify my best work, or my favorite, my answer has always been the same – ‘My next one!’
+ - The role of the artist is like that of an explorer and a teacher – a teacher of seeing. No one is more capable of conveying this enlightenment than the artist.
+ - The human condition is not served by our technical ability to transmit a televised image around the world – if that image is totally inane.
+ - The degree to which the arts are included in our educational curriculum is totally inadequate. The arts are just as important as math and science in an education and just as important as any other endeavour in our lives.
+ - Understand who you are and who you want to be, and thereby learn how you may best relate to others.
+ - Today, we’re encouraged to believe that we should have a verbal interpretation for what we view as art – when in fact the words are an intrusion on the experience.
+
+24 quotes

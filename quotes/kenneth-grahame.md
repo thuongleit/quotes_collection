@@ -1,0 +1,45 @@
+ - Believe me, my young friend, there is nothing – absolutely nothing – half so much worth doing as simply messing about in boats.
+ - The clever men of Oxford, know all that there is to be knowed but they none of them know one half as much as intelligent Mr. Toad.
+ - Everything seems asleep, and yet going on all the time. It is a goodly life that you lead, friend; no doubt the best in the world, if only you are strong enough to lead it!
+ - Spring was moving in the air above and in the earth below and around him, penetrating even his dark and lowly little house with its spirit of divine discontent and longing.
+ - Good, bad, and indifferent – It takes all sorts to make a world.
+ - The past was like a bad dream; the future was all happy holiday as I moved Southwards week by week, easily, lazily, lingering as long as I dared, but always heeding the call!
+ - After all, the best part of a holiday is perhaps not so much to be resting yourself, as to see all the other fellows busy working.
+ - There was the noise of a bolt shot back, and the door opened a few inches, enough to show a long snout and a pair of sleepy blinking eyes.
+ - Here today, up and off to somewhere else tomorrow! Travel, change, interest, excitement! The whole world before you, and a horizon that’s always changing!
+ - Secrets had an immense attraction to him, because he never could keep one, and he enjoyed the sort of unhallowed thrill he experienced when he went and told another animal, after having faithfully promised not to.
+ - An errant May-fly swerved unsteadily athwart the current in the intoxicated fashion affected by young bloods of May-flies seeing life. A swirl of water and a ‘cloop!’ and the May-fly was visible no more.
+ - O what a flowery track lies spread before me, henceforth! What dust clouds shall spring up behind me as I speed on my reckless way! What carts I shall fling carelessly into the ditch in the wake of my magnificent onset!
+ - All this he saw, for one moment breathless and intense, vivid on the morning sky; and still, as he looked, he lived; and still, as he lived, he wondered.
+ - The strongest human instinct is to impart information, the second strongest is to resist it.
+ - The Wild Wood is pretty well populated by now; with all the usual lot, good, bad, and indifferent – I name no names. It takes all sorts to make a world.
+ - I’m such a clever Toad.
+ - Footprints in the snow have been unfailing provokers of sentiment ever since snow was first a white wonder in this drab-coloured world of ours.
+ - Badger hates Society, and invitations, and dinner, and all that sort of thing.
+ - For my life, I confess to you, feels to me today somewhat narrow and circumscribed.
+ - Home! That was what they meant, those caressing appeals, Those soft touches wafted through the air, those invisible little hands pulling and tugging, all one way.
+ - Brain against brute force – and brain came out on the top – as its bound to do.
+ - There seemed to be no end to this wood, and no beginning, and no difference in it, and, worse of all, no way out.
+ - Well, well, perhaps I am a bit of a talker. A popular fellow such as I am – my friends get round me – we chaff, we sparkle, we tell witty stories – and somehow my tongue gets wagging. I have the gift of conversation. I’ve been told I ought to have a salon, whatever that may be.
+ - Toad talked big about all he was going to do in the days to come, while stars grew fuller and larger all around them, and a yellow moon, appearing suddenly and silently from nowhere in particular, came to keep them company and listen to their talk.
+ - As a rule, indeed, grown-up people are fairly correct on matters of fact; it is in the higher gift of imagination that they are so sadly to seek.
+ - No animal, according to the rules of animal-etiquette, is ever expected to do anything strenuous, or heroic, or even moderately active during the off-season of winter.
+ - Weasels – and stoats – and foxes – and so on. They’re all right in a way – I’m very good friends with them – pass the time of day when we meet, and all that – but they break out sometimes, there’s no denying it, and then – well, you can’t really trust them, and that’s the fact.
+ - Don’t, for goodness’ sake, keep on saying ‘Don’t’; I hear so much of it, and it’s monotonous, and makes me tired.
+ - The Mole had long wanted to make the I acquaintance of the Badger. He seemed, by all accounts, to be such an important personage and, though rarely visible, to make his unseen influence felt by everybody about the place.
+ - Independence is all very well, but we animals never allow our friends to make fools of themselves beyond a certain limit; and that limit you’ve reached.
+ - A careful inspection showed them that, even if they succeeded in righting it by themselves, the cart would travel no longer. The axles were in a hopeless state, and the missing wheel was shattered into pieces.
+ - Well, very long ago, on the spot where the Wild Wood waves now, before ever it had planted itself and grown up to what it now is, there was a city – a city of people, you know.
+ - The Rat, meanwhile, was busy examining the label on one of the beer-bottles. “I perceive this to be Old Burton,” he remarked approvingly. “Sensible Mole! The very thing! Now we shall be able to mull some ale. Get the things ready, Mole, while I draw the corks.”
+ - You are brave! For my sake, do not be rash!
+ - Banquets are always pleasant things, consisting mostly, as they do, of eating and drinking; but the specially nice thing about a banquet is, that it comes when something’s over, and there’s nothing more to worry about, and to-morrow seems a long way off.
+ - It is the restrictions placed on vice by our social code which makes its pursuit so peculiarly agreeable.
+ - He had got down to the bones of it, and they were fine and strong and simple.
+ - Animals when in company walk in a proper and sensible manner, in single file, instead of sprawling all across the road and being of no use or support to each other in case of sudden trouble or danger.
+ - Onion sauce! Onion Sauce!
+ - It’s not the sort of night for bed, anyhow.
+ - Monkeys who very sensibly refrain from speech, lest they should be set to earn their livings.
+ - Why can’t fellows be allowed to do what they like when they like and as they like, instead of other fellows sitting on banks and watching them all the time and making remarks and poetry and things about them?
+ - The whole wood seemed running now, running hard, hunting, chasing, closing in round something or – somebody? In panic, he began to run too, aimlessly, he knew not whither.
+
+43 quotes

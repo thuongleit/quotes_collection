@@ -1,0 +1,62 @@
+ - Do the best you can until you know better. Then when you know better, do better. ~~Maya Angelou
+ - Integrity is doing the right thing, even when no one is watching. ~~C. S. Lewis
+ - If you don’t stand for something you will fall for anything. ~~Malcolm X
+ - Integrity is choosing your thoughts and actions based on values rather than personal gain. ~~Chris Karcher
+ - Don’t try to be different. Just be good. To be good is different enough. ~~Arthur Freed
+ - If you tell the truth, you don’t have to remember anything. ~~Mark Twain
+ - It takes less time to do a thing right than to explain why you did it wrong. ~~Henry Wadsworth Longfellow
+ - Do what you feel in your heart to be right – for you’ll be criticized anyway. ~~Eleanor Roosevelt
+ - Image is what people think we are; integrity is what we really are. ~~John C. Maxwell
+ - Try not to become a man of success. Rather become a man of value. ~~Albert Einstein
+ - There is no pillow so soft as a clear conscience. ~~French Proverb
+ - Wisdom is knowing what to do next; virtue is doing it. ~~David Starr Jordan
+ - Everyone makes mistakes, but only a person with integrity owns up to them. ~~Nicole Guillaume
+ - A great man is always willing to be little. ~~Ralph Waldo Emerson
+ - Goodness is the only investment that never fails. ~~Henry David Thoreau
+ - Nearly all men can stand adversity, but if you want to test a man’s character, give him power. ~~Abraham Lincoln
+ - The trouble with most of us is that we would rather be ruined by praise than saved by criticism. ~~Norman Vincent Peale
+ - The world is a dangerous place to live, not because of the people who are evil, but because of the people who don’t do anything about it. ~~Albert Einstein
+ - Waste no more time arguing about what a good man should be. Be one. ~~Marcus Aurelius
+ - Wisdom is knowing the right path to take. Integrity is taking it. ~~M.H. McKee
+ - The truth is more important than the facts. ~~Frank Lloyd Wright
+ - What is left when honor is lost? ~~Publilius Syrus
+ - To be persuasive we must be believable; to be believable we must be creditable; to be credible we must be truthful. ~~Edward R. Murrow
+ - Somebody once said that in looking for people to hire, you look for three qualities: integrity, intelligence, and energy. And if you don’t have the first, the other two will kill you. You think about it; it’s true. If you hire somebody without integrity, you really want them to be dumb and lazy. ~~Warren Buffett
+ - Honesty and integrity are absolutely essential for success in life – all areas of life. The really good news is that anyone can develop both honesty and integrity. ~~Zig Ziglar
+ - Character is much easier kept than recovered. ~~Thomas Paine
+ - Integrity without knowledge is weak and useless, and knowledge without integrity is dangerous and dreadful. ~~Samuel Johnson
+ - If you look into your own heart, and you find nothing wrong there, what is there to worry about? What is there to fear? ~~Confucius
+ - Integrity never goes out of style. ~~Jim George
+ - Men acquire a particular quality by constantly acting in a particular way. ~~Aristotle
+ - Lead your life so you wouldn’t be ashamed to sell the family parrot to the town gossip.  ~~Will Rogers
+ - The measure of a man’s real character is what he would do if he knew he never would be found out. ~~Thomas Babington Macaulay
+ - If you have integrity, nothing else matters. If you don’t have integrity, nothing else matters. ~~Alan Simpson
+ - Courage without conscience is a wild beast. ~~Robert G. Ingersoll
+ - The greatness of a man is not in how much wealth he acquires, but in his integrity and his ability to affect those around him positively. ~~Bob Marley
+ - If we believe a thing to be bad, and if we have a right to prevent it, it is our duty to try to prevent it and damn the consequences. ~~Lord Milner
+ - Real integrity stays in place whether the test in adversity or prosperity. ~~Charles R. Swindoll
+ - There is no such thing as a minor lapse of integrity. ~~Tom Peters
+ - Be always sure you’re right, then go ahead. ~~David Crockett
+ - You don't luck into integrity. You work at it. ~~Betty White
+ - The most important persuasion tool you have in your entire arsenal is integrity. ~~Zig Ziglar
+ - Look for intelligence and judgment and, most critically, a capacity to anticipate, to see around corners. Also look for loyalty, integrity, a high energy drive, a balanced ego and the drive to get things done. ~~Colin Powell
+ - Integrity is the ability to stand by an idea. ~~Ayn Rand
+ - A good conscience is a continual Christmas. ~~Benjamin Franklin
+ - Integrity, the choice between what’s convenient and what’s right. ~~Tony Dungy
+ - The supreme quality for leadership is integrity. ~~Dwight D. Eisenhower
+ - It’s more important to do the right thing than to do things right. ~~Peter F. Drucker
+ - There is no better test of a man’s integrity than his behavior when he is wrong. ~~Marvin Williams
+ - In the end, your integrity is all you’ve got. ~~Jack Welch
+ - Excellence is the result of habitual integrity. ~~Lennie Bennett
+ - To give real service you must add something which cannot be bought or measured with money, and that is sincerity and integrity. ~~Douglas Adams
+ - Live your life as though your every act were to become a universal law. ~~Immanuel Kant
+ - Trust is the byproduct of integrity. ~~Zig Ziglar
+ - It is true that integrity alone won’t make you a leader, but without integrity you will never be one. ~~Zig Ziglar
+ - Honesty and integrity are by far the most important assets of an entrepreneur. ~~Zig Ziglar
+ - Good values are easier caught than taught. ~~Zig Ziglar
+ - Integrity is the most valuable and respected quality of leadership. Always keep your word. ~~Brian Tracy
+ - Exercise integrity in the moment of truth. ~~Stephen R. Covey
+ - Integrity is the first step to true greatness. ~~Charles Simmons
+ - Without integrity, no company can have positive word of mouth. ~~Jay Abraham
+
+60 quotes

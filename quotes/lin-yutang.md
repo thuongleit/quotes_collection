@@ -1,0 +1,111 @@
+ - No one realizes how beautiful it is to travel until he comes home and rests his head on his old, familiar pillow.
+ - Besides the noble art of getting things done, there is the noble art of leaving things undone. The wisdom of life consists in the elimination of non-essentials.
+ - When Small men begin to cast big shadows, it means that the sun is about to set.
+ - If you can spend a perfectly useless afternoon in a perfectly useless manner, you have learned how to live.
+ - Peace of mind is that mental condition in which you have accepted the worst.
+ - Where there are too many policemen, there is no liberty. Where there are too many soldiers, there is no peace. Where there are too many lawyers, there is no justice.
+ - Happiness for me is largely a matter of digestion.
+ - True peace of mind comes from accepting the worst. Psychologically, I think it means a release of energy.
+ - There is something in the nature of tea that leads us into a world of quiet contemplation of life.
+ - The wisdom of life consists in the elimination of non-essentials.
+ - The wise man reads both books and life itself.
+ - It is that unoccupied space which makes a room habitable, as it is our leisure hours which make life endurable.
+ - Those who are wise won’t be busy, and those who are too busy can’t be wise.
+ - I have done my best. That is about all the philosophy of living one needs.
+ - Art is both creation and recreation. Of the two ideas, I think art as recreation or as sheer play of the human spirit is more important.
+ - It is important that man dreams, but it is perhaps equally important that he can laugh at his own dreams.
+ - Even in despair, man must laugh.
+ - Creative work carries with it a form of intense love.
+ - This I conceive to be the chemical function of humor: to change the character of our thought.
+ - Let him cry whoever feels like crying, for we were animals before we became reasoning beings, and the shedding of a tear, whether of forgiveness or of pity or of sheer delight at beauty, will do him a lot of good.
+ - The busy man is never wise and the wise man is never busy.
+ - If one’s bowels move, one is happy, and if they don’t move, one is unhappy. That is all there is to it.
+ - Hope is like a road in the country; there was never a road, but when many people walk on it, the road comes into existence.
+ - Of all the rights of women, the greatest is to be a mother.
+ - All human beings are like travelers floating down the eternal river of time, embarking at a certain point and disembarking again at another point in order to make room for others waiting below the river to come aboard.
+ - Nothing matters to a man who says nothing matters.
+ - All I know is that if God loves me only half as much as my mother does, he will not send me to Hell.
+ - Everything has its place and time. We men of the nineteen-forties can smile at the mistakes of the nineteen-thirties, and, in turn, the men of the nineteen-fifties will laugh at the mistakes of the nineteen-forties. It is this historical perspective that shall save us.
+ - In contrast to logic, there is common sense, or still better, the Spirit of Reasonableness.
+ - There is so much to love and to admire in this life that it is an act of ingratitude not to be happy and content in this existence.
+ - Few men who have liberated themselves from the fear of God and the fear of death are yet able to liberate themselves from the fear of man.
+ - A good traveller is one who does not know where he is going to, and a perfect traveller does not know where he came from.
+ - What is patriotism but the love of the food one ate as a child?
+ - The human mind is a curious thing. It can take just so much and no more.
+ - Art is both creation and recreation.
+ - All women’s dresses, in every age and country, are merely variations on the eternal struggle between the admitted desire to dress and the unadmitted desire to undress.
+ - All human happiness is sensuous happiness.
+ - Our lives are not in the lap of the gods, but in the lap of our cooks.
+ - If there is anything we are serious about, it is neither religion nor learning, but food.
+ - No child is born with a really cold heart, and it is only in proportion as we lose that youthful heart that we lose the inner warmth in ourselves.
+ - The man who has not the habit of reading is imprisoned in his immediate world.
+ - China is the greatest mystifying and stupefying fact in the modern world.
+ - Sometimes it is more important to discover what one cannot do, than what one can do.
+ - There is no proper time and place for reading. When the mood for reading comes, one can read anywhere.
+ - Neckties strangle clear thinking.
+ - Society can exist only on the basis that there is some amount of polished lying and that no one says exactly what he thinks.
+ - There is nothing more beautiful in this world than a healthy, wise old man.
+ - Instead of holding on to the Biblical view that we are made in the image of God, we come to realize that we are made in the image of the monkey.
+ - A man who has to be punctually at a certain place at five o’clock has the whole afternoon ruined for him already.
+ - Not until we see the richness of the Hindu mind and its essential spirituality can we understand India.
+ - Such is human psychology that if we don’t express our joy, we soon cease to feel it.
+ - To glorify the past and paint the future is easy, to survey the present and emerge with some light and understanding is difficult.
+ - I rather despise claims to objectivity in philosophy; the point of view is the thing.
+ - My faith in human dignity consists in the belief that man is the greatest scamp on earth. Human dignity must be associated with the idea of a scamp and not with that of an obedient, disciplined and regimented soldier.
+ - Only he who handles his ideas lightly is master of his ideas, and only he who is master of his ideas is not enslaved by them.
+ - A tendency to fly too straight at a goal, instead of circling around it, often carries one too far.
+ - The most bewildering thing about man is his idea of work and the amount of work he imposes upon himself, or civilization has imposed upon him. All nature loafs, while man alone works for a living.
+ - What threatens civilization today is not war, but the changing conception of life values entailed by certain political doctrines. Only by recapturing the dream of human freedom and restoring the importance of the common man’s liberties can that undermining threat to modern civilization be averted.
+ - Happiness has always seemed like a bluebird, and consists of moments.
+ - Today we are afraid of simple words like goodness and mercy and kindness. We don’t believe in the good old words because we don’t believe in good old values anymore. And that’s why the world is sick.
+ - A solemn funeral is inconceivable to the Chinese mind.
+ - O wise humanity, terribly wise humanity! How inscrutable is the civilization where men toil and work and worry their hair gray to get a living and forget to play!
+ - Since the invention of the flush toilet and the vacuum carpet cleaner, the modern man seems to judge a man’s moral standards by his cleanliness, and thinks a dog the more highly civilized for having a weekly bath and a winter wrapper round his belly.
+ - Anyone who reads a book with a sense of obligation does not understand the art of reading.
+ - We should not expect people to be good, but should make it impossible for them to be bad.
+ - By association with nature’s enormities, a man’s heart may truly grow big also.
+ - Simplicity is the outward sign and symbol of depth of thought.
+ - I distrust all dead and mechanical formulas for expressing anything connected with human affairs and human personalities. Putting human affairs in exact formulas shows in itself a lack of the sense of humor and therefore a lack of wisdom.
+ - If man be sensible and one fine morning, while he is lying in bed, counts at the tips of his fingers how many things in this life truly will give him enjoyment, invariably he will find food is the first one.
+ - However vague they are, dreams have a way of concealing themselves and leave us no peace until they are translated into reality, like seeds germinating underground, sure to sprout in their search for the sunlight.
+ - Winter in Peking is insurpassable, unless indeed it is surpassed by the other seasons in that blessed city. For Peking is a city clearly marked by the seasons, each perfect in its own way and each different from the others.
+ - There is a great probability that our loss of capacity for enjoying the positive joys of life is largely due to the decreased sensibility of our senses and our lack of full use of them. All human happiness is sensuous happiness.
+ - I do not think that any civilization can be called complete until it has progressed from sophistication to unsophistication, and made a conscious return to simplicity of thinking and living.
+ - The three great American vices seem to be efficiency, punctuality, and the desire for achievement and success. They are the things that make the Americans so unhappy and so nervous.
+ - There is more hope in a heather rose than in all the tons of Teutonic philosophy.
+ - He who is afraid to use an “I” in his writing will never make a good writer.
+ - Any good practical philosophy must start out with the recognition of our having a body.
+ - The greater success a man has made, the more he fears a climb down.
+ - Let us face ourselves bravely as we are. For only a philosophy that recognizes reality can lead us into true happiness, and only that kind of philosophy is sound and healthy.
+ - A vague uncritical idealism always lends itself to ridicule and too much of it might be a danger to mankind, leading it round in a futile wild-goose chase for imaginary ideals.
+ - There are no books in this world that everybody must read, but only books that a person must read at a certain time in a given place under given circumstances and at a given period of his life.
+ - The dog which remembers only to bark and not to bite, and is led through the streets as a lady’s pet, is only a degenerate wolf.
+ - No man is inherently respectable, but all women are by nature.
+ - A cocktail party is a place where you talk with a person you do not know about a subject you have no interest in.
+ - Alas, our rulers are not gods, but puny, fallible men, like the kings who constantly forget their parts, and we common men should be their prompters.
+ - I have a hankering to go back to the Orient and discard my necktie. Neckties strangle clear thinking.
+ - Life is too short to make an over-serious business out of it.
+ - In the West, the insane are so many that they are put in an asylum, in China the insane are so unusual that we worship them.
+ - And if the reader has no taste for what he reads, all the time is wasted.
+ - The end of living is the true enjoyment of it.
+ - Best behavior means the same thing as the most uncomfortable behavior.
+ - Probably the difference between man and the monkeys is that the monkeys are merely bored, while man has boredom plus imagination.
+ - The best that we can hope for in this life is that we shall not have sons and grandsons of whom we need to be ashamed.
+ - The age calls for simple statements and restatements of simple truths. The prophets of doom are involved, those who would bring light must be clear.
+ - Business men who are busy the whole day and immediately go to bed after supper, snoring like cows, are not likely to contribute anything to culture.
+ - It is not dirt but the fear of dirt which is the sign of man’s degeneration, and it is dangerous to judge a man’s physical and moral sanity by outside standards.
+ - An educated man is one who has the loves and hatreds together.
+ - It is not so much what you believe in that matters, as the way in which you believe it and proceed to translate that belief into action.
+ - Of all the unhappy people in the world, the unhappiest are those who have not found something they want to do.
+ - Nobody is ever misunderstood at a fireside; he may only be disagreed with.
+ - Why should man bother himself so much about salvation, unless he has a feeling of being doomed?
+ - Now it is characteristic of play that one plays without reason and there must be no reason for it. Play is its own good reason.
+ - Men resort to talking only when they haven’t the power to enforce their convictions upon others.
+ - As for international understanding, I feel that macaroni has done more for our appreciation of Italy than Mussolini.
+ - When we demand liberty of a person as a constitutional right, we are taking away from the officials their liberty to chop off people’s heads.
+ - I feel, like all modern Americans, no consciousness of sin and simply do not believe in it. All I know is that if God loves me only half as much as my mother does, he will not send me to Hell. That is a final fact of my inner consciousness, and for no religion could I deny its truth.
+ - The fonder you are of your ideals, the greater your heartbreaks.
+ - The Chinese do not draw any distinction between food and medicine.
+ - The more we justify our beliefs, the more narrow-minded we become.
+
+109 quotes

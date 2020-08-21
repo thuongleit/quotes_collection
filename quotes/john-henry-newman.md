@@ -1,0 +1,94 @@
+ - God has created me to do Him some definite service; He has committed some work to me which He has not committed to another. I have my mission.
+ - To be deep in history, is to cease to be Protestant.
+ - Lead, kindly light, amid the encircling gloom, lead thou me on.
+ - May He support us all the day long, till the shades lengthen, and the evening comes, and the busy world is hushed, and the fever of life is over, and our work is done! Then in His mercy may He give us a safe lodging, and a holy rest, and peace at the last.
+ - A man would do nothing if he waited until he could do it so well that no one could find fault.
+ - Such is the constitution of the human mind, that any kind of knowledge, if it be really such, is its own reward.
+ - Health of body and mind is a great blessing, if we can bear it.
+ - Growth is the only evidence of life.
+ - Fear not that thy life shall come to an end, but rather fear that it shall never have a beginning.
+ - Calculation never made a hero.
+ - Life passes, riches fly away, popularity is fickle, the senses decay, the world changes. One alone is true to us; One alone can be all things to us; One alone can supply our need.
+ - Prayer is to the spiritual life what the beating of the pulse and the drawing of the breath are to the life of the body.
+ - To the irreligious person heaven would be hell.
+ - The reason why Christ is unknown today is because His Mother is unknown.
+ - When you feel in need of a compliment, give one to someone else.
+ - I toast the Pope, but I toast conscience first.
+ - How can we understand forgiveness if we haven’t recognized the depth of our sin?
+ - I wonder what day I shall die on – one passes year by year over one’s death day, as one might pass over one’s grave.
+ - A science is not mere knowledge, it is knowledge which has undergone a process of intellectual digestion. It is the grasp of many things brought together in one, and hence is its power; for, properly speaking, it is Science that is power, not Knowledge...
+ - Faith is illuminative, not operative; it does not force obedience, though it increases responsibility; it heightens guilt, but it does not prevent sin. The will is the source of action.
+ - What can this world offer comparable with that insight into spiritual things, that keen faith, that heavenly peace, that high sanctity, that everlasting righteousness, that hope of glory, which they have, who in sincerity love and follow our Lord Jesus Christ?
+ - Thought and speech are inseparable from each other. Matter and expression are parts of one; style is a thinking out into language.
+ - Good is never accomplished except at the cost of those who do it, truth never breaks through except through the sacrifice of those who spread it.
+ - Let us put ourselves into His hands, and not be startled though He leads us by a strange way, a mirabilis via, as the Church speaks. Let us be sure He will lead us right, that He will bring us to that which is, not indeed what we think best, nor what is best for another, but what is best for us.
+ - Man is emphatically self-made.
+ - Virtue is its own reward, and brings with it the truest and highest pleasure; but if we cultivate it only for pleasure’s sake, we are selfish, not religious, and will never gain the pleasure, because we can never have the virtue.
+ - Animals have done us no harm and they have no power of resistance. There is something so very dreadful in tormenting those who have never harmed us, who cannot defend themselves, who are utterly in our power.
+ - We should ever conduct ourselves towards our enemy as if he were one day to be our friend.
+ - Reason is one thing and faith is another and reason can as little be made a substitute for faith, as faith can be made a substitute for reason.
+ - All that is good, all that is true, all that is beautiful, all that is beneficent, be it great or small, be it perfect or fragmentary, natural as well as supernatural, moral as well as material, comes from God.
+ - All men have a reason, but not all men can give a reason.
+ - To discover and to teach are distinct functions; they are also distinct gifts, and are not commonly found united in the same person.
+ - Learn to do thy part and leave the rest to Heaven.
+ - The ears of the common people are holier than the hearts of the priests.
+ - There is a knowledge which is desirable, though nothing come of it, as being of itself a treasure, and a sufficient remuneration of years of labor.
+ - If we are intended for great ends, we are called to great hazards.
+ - Knowledge is one thing, virtue is another.
+ - Literature stands related to Man as Science stands to Nature; it is his history.
+ - It is mutual respect which makes friendship lasting.
+ - Praise to the Holiest in the height, And in the depth be praise; In all His words most wonderful, Most sure in all His ways.
+ - A universityeducates the intellect to reason well in all matters, to reach out towards truth, and to grasp it.
+ - Men will die upon dogma but will not fall victim to a conclusion.
+ - True religion is slow in growth, and, when once planted, is difficult of dislodgement; but its intellectual counterfeit has no root in itself: it springs up suddenly, it suddenly withers.
+ - Somehow I am necessary for God’s purpose, as necessary in my place as an archangel in his.
+ - Purity prepares the soul for love, and love confirms the soul in purity.
+ - Courage does not consist in calculation, but in fighting against chances.
+ - We can believe what we choose. We are answerable for what we choose to believe.
+ - Egotism is true modesty. In religious enquiry each of us can speak only for himself.
+ - An academical system without the personal influence of teachers on pupils, is an arctic winter; it will create an icebound, petrified, cast-iron University, and nothing else.
+ - With Christians, a poetical view of things is a duty. We are bid to color all things with hues of faith, to see a divine meaning in every event.
+ - It is not God’s way that great blessings should descend without the sacrifice first of great sufferings. If the truth is to be spread to any wide extent among the people, how can we dream, how can we hope, that trial and trouble shall not accompany its going forth.
+ - It is almost a definition of a gentleman to say that he is one who never inflicts pain.
+ - Conscience is the aboriginal Vicar of Christ.
+ - This is what the Church is said to want, not party men, but sensible, temperate, sober, well-judging persons, to guide it through the channel of no-meaning, between the Scylla and Charybdis of Aye and no.
+ - The love of our private friends is the only preparatory exercise for the love of all men.
+ - Flagrant evils cure themselves by being flagrant.
+ - By a garden is meant mystically a place of spiritual repose, stillness, peace, refreshment, delight.
+ - And with the morn those angel faces smile Which I have loved long since and lost awhile.
+ - Time hath a taming hand.
+ - The attributes of God, though intelligible to us on their surface yet, for the very reason that they are infinite, transcend our comprehension, when they are dwelt upon, when they are followed out, and can only be received by faith.
+ - To holy people the very name of Jesus is a name to feed upon, a name to transport. His name can raise the dead and transfigure and beautify the living.
+ - I shall drink to the Pope, if you please, still, to conscience first, and to the Pope afterwards.
+ - Faith is the result of the act of the will, following upon a conviction that to believe is a duty.
+ - To take up the cross of Christ is no great action done once for all; it consists in the continual practice of small duties which are distasteful to us.
+ - Reason is God’s gift, but so are the passions. Reason is as guilty as passion.
+ - It is often said that second thoughts are best. So they are in matters of judgment but not in matters of conscience.
+ - I see nothing in the theory of evolution inconsistent with an Almighty Creator and Protector.
+ - Stuffing birds or playing stringed instruments is an elegant pastime, and a resource to the idle, but it is not education.
+ - Regarding Christianity: Ten thousand difficulties do not make one doubt.
+ - When men understand what each other mean, they see, for the most part, that controversy is either superfluous or hopeless.
+ - There is in stillness oft a magic power To calm the breast when struggling passions lower, Touched by its influence, in the soul arise Diviner feelings, kindred with the skies.
+ - It is very difficult to get up resentment towards persons whom one has never seen.
+ - Religion indeed enlightens, terrifies, subdues; it gives faith, it inflicts remorse, it inspires resolutions, it draws tears, it inflames devotion, but only for the occasion.
+ - Evil has no substance of its own, but is only the defect, excess, perversion, or corruption of that which has substance.
+ - Great things are done by devotion to one idea.
+ - Nothing is more common than for men to think that because they are familiar with words they understand the ideas they stand for.
+ - The world is content with setting right the surface of things.
+ - A great memory does not make a mind, any more than a dictionary is a piece of literature.
+ - It is as absurd to argue men, as to torture them, into believing.
+ - Satan is inconsistent. He persuades a man not to go to a synagogue on a cold morning; yet when the man does go, he follows him into it.
+ - In this world no one rules by love; if you are but amiable, you are no hero; to be powerful, you must be strong, and to have dominion you must have a genius for organizing.
+ - We must make up our minds to be ignorant of much, if we would know anything.
+ - Go down again – I dwell among the people.
+ - It is God himself who can be discovered in the beauty of sensible things.
+ - Two and two only supreme and luminously self-evident beings, myself and my Creator.
+ - Where good and ill together blent, Wage an undying strife.
+ - From the age of fifteen, dogma has been the fundamental principle of my religion: I know no other religion; I cannot enter into the idea of any other sort of religion; religion, as a mere sentiment, is to me a dream and a mockery.
+ - Cruelty to animals is as if humans did not love God.
+ - You must make up your mind to the prospect of sustaining a certain measure of pain and trouble in you’r passage through life.
+ - Let us act on what we have, since we have not what we wish.
+ - There is such a thing as legitimate warfare: war has its laws; there are things which may fairly be done, and things which may not be done.
+ - Living Nature, not dull art Shall plan my ways and rule my Heart.
+
+92 quotes

@@ -1,0 +1,36 @@
+ - The patience and forbearance of the poor are among the strongest bulwarks of the rich.
+ - The rich are only defeated when running for their lives.
+ - The cruelties of property and privilege are always more ferocious than the revenges of poverty and oppression. For the one aims at perpetuating resented injustice, the other is merely a momentary passion soon appeased.
+ - In the last quarter of the eighteenth century bourgeois Europe needed to emancipate itself from that combination of feudalism and commercial capitalism which we know as mercantilism.
+ - I must say the idea of a United Africa was nonsense.
+ - Cricket is first and foremost a dramatic spectacle. It belongs with theatre, ballet, opera and the dance.
+ - When history is written as it ought to be written, it is the moderation and long patience of the masses at which men will wonder, not their ferocity.
+ - Dissimulation is the refuge of the slave.
+ - The race question is subsidiary to the class question in politics, and to think of imperialism in terms of race is disastrous. But to neglect the racial factor as merely incidental is an error only less grave than to make it fundamental.
+ - Property-owners are the most energetic flag-waggers and patriots in every country, but only so long as they enjoy their possessions: to safeguard those they desert God, King and Country in a twinkling.
+ - The most striking development of the great depression of 1929 is a profound skepticism of the future of contemporary society among large sections of the American people.
+ - It is not only that Germany has been defeated in the war, Kaiser Wilhelm’s Germany was defeated.
+ - Today, in American imperialism, the commodity has reached its most grandiose historical manifestation.
+ - All peoples are entangled in the net of the world market.
+ - The Paris Commune was first and foremost a democracy. The government was a body elected by universal suffrage.
+ - Technological discoveries are the spermatozoa of social change.
+ - In World War II the hostility and the exasperation resulting from the statification of the economy and the strain of the war have been directed as much against the government as against private capital.
+ - My father was a teacher, and there were teachers all around, his friends, they were working for the Government and their behaviour was within strictly limited areas.
+ - Capitalism has socialized production. It has brought thousands of people together in the factory and involved them in new social relationships.
+ - If you are not their slaves, you are rebels.
+ - The international proletariat first appeared on the scene in the early Thirties of the nineteenth century, and its first great action was the French Revolution of 1848.
+ - After World War I the resentment of the working class against all that it had to suffer was directed more against Morgan, Wall Street and private capital than the government.
+ - I had formed a black movement, so I would speak for the Trotskyist movement and then walk about a hundred yards to where the black movement was speaking.
+ - It is in revolutionary periods that the culmination of previous trends and the beginning of new ones appear.
+ - An army is a miniature of the society which produces it.
+ - The late development of mass industrial organization in the United States has both stimulated and retarded the political development of the American working class.
+ - The home stands in contrast to all other capitalist institutions as the last stronghold of pre-capitalist isolation.
+ - The country has undergone a profound social upheaval, the greatest the proletariat has ever known.
+ - First of all, Bolshevism represents revolution and the revolutionary struggle.
+ - There can be raw pain and bleeding where so many thousands see the inevitable ups and downs of only a game.
+ - I was a Labour Party man but I found myself to the left of the Labour party in Nelson, militant as that was. I came to London and in a few months I was a Trotskyist.
+ - One of the surest signs of the estimated changes in the consciousness of the American proletariat is to be found in the character of the demands now being put forward by the leadership.
+ - All the world has been converted and Washington is the modem Mecca.
+ - I had a national and international reputation. I had written the history and articles. So I brought to the Trotskyist movement some international reputation.
+
+34 quotes

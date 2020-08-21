@@ -1,0 +1,25 @@
+ - Art is a language, an instrument of knowledge, an instrument of communication.
+ - For me, insanity is super sanity. The normal is psychotic. Normal means lack of imagination, lack of creativity.
+ - When I want to draw a camel I no longer limit myself, as I once did, to looking only at camels.
+ - There is no art without intoxication. But I mean a mad intoxication! Let reason teeter! Delirium!
+ - Man’s need for art is absolutely primordial, as strong as, and perhaps stronger than, our need for bread. Without bread, we die of hunger, but without art we die of boredom.
+ - Personally, I believe very much in values of savagery; I mean: instinct, passion, mood, violence, madness.
+ - Mud, rubbish and dirt are man’s companions all his life; shouldn’t they be precious to him, and isn’t one doing man’s service to remind him of their beauty?
+ - Our culture is like a garment that does not fit us, or in any case no longer fits us. This culture is like a dead language that no longer has anything in common with the language of the street. It is increasingly alien to our lives.
+ - I would like people to see my work as a rehabilitation of scorned values and, in any case, make no mistake about it, a work of ardent celebration.
+ - Normal means lack of imagination and creativity.
+ - Dancing is the last word in life. In dancing one draws nearer to oneself.
+ - What I expect from any work of art is that it surprises me, that it violates my customary valuations of things and offers me other, unexpected ones.
+ - Unless one says goodbye to what one loves, and unless one travels to completely new territories, one can expect merely a long wearing away of oneself and an eventual extinction.
+ - Art should be born from the materials.
+ - What interests me about thoughts is not the moment when it crystallises into formal ideas but its earlier stages.
+ - Art addresses itself to the mind, and not to the eyes. It has always been considered in this way by primitive peoples, and they are right.
+ - I have always been haunted by the feeling that the painter has much to gain from making use of the forces that tend to work against his action.
+ - There is no such thing as abstract art, or else all art is abstract, which amounts tot the same thing. Abstract art no more exists than does curved art yellow art or green art.
+ - Art is the most frenzied orgy man is capable of.
+ - Caprice, independence and rebellion, which are opposed to the social order, are essential to the good health of an ethnic group. We shall measure the good health of this group by the number of its delinquents. Nothing is more immobilizing than the spirit of deference.
+ - Art doesn’t go to sleep in the bed made for it. It would sooner run away than say its own name: what it likes is to be incognito. Its best moments are when it forgets what its own name is.
+ - What culture lacks is the taste for anonymous, innumerable germination. Culture is smitten with counting and measuring; it feels out of place and uncomfortable with the innumerable; its efforts tend, on the contrary, to limit the numbers in all domains; it tries to count on its fingers.
+ - The State has but one face for me: that of the police. To my eyes, all of the State’s ministries have this single face, and I cannot imagine the ministry of culture other than as the police of culture, with its prefect and commissioners.
+
+23 quotes

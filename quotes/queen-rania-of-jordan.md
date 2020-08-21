@@ -1,0 +1,45 @@
+ - Good teachers teach. Great teachers transform.
+ - In education, technology can be a life-changer, a game changer, for kids who are both in school and out of school. Technology can bring textbooks to life. The Internet can connect students to their peers in other parts of the world. It can bridge the quality gaps.
+ - My role models are people who can do things; I say to myself, ‘I wish I could do that.’
+ - You cannot kill an ideology with a bullet. You can only kill it with a better idea.
+ - Educate a woman and you educate her family. Educate a girl and you change the future.
+ - We shouldn’t judge people through the prism of our own stereotypes.
+ - If one girl with courage is a revolution, imagine what feats we can achieve together.
+ - I want to be that person who could sacrifice everything for others.
+ - I believe that if we want our children to understand the world beyond their classroom, we must bring the world into their classroom.
+ - I work in areas related to child protection and family safety, women’s empowerment, the creation of opportunities for youth, and culture and tourism. Daunting? Yes. Impossible? No. In fact, such challenges energize me.
+ - For many, the hijab represents modesty, piety and devotion to God, and I truly respect that. But the hijab should not be used as a means of applying social pressure on people.
+ - At the end of the day, the position is just a position, a title is just a title, and those things come and go. It’s really your essence and your values that are important.
+ - I don’t lose sleep over failures. I worry about the successes and how they can be replicated.
+ - Travelers are the greatest ambassadors of tolerance.
+ - Everybody’s social life in Jordan revolves around family.
+ - Social media are a catalyst for the advancement of everyone’s rights. It’s where we’re reminded that we’re all human and all equal. It’s where people can find and fight for a cause, global or local, popular or specialized, even when there are hundreds of miles between them.
+ - Of course democracy is good, but it is a process, not a prescription.
+ - I don’t think people by nature are extremists. You will never find a population of extremists. Extremists have existed throughout the centuries on all religions. And what happens is, extremists start to have more leverage when the situation is bad.
+ - Children keep us in check. Their laughter prevents our hearts from hardening. Their dreams ensure we never lose our drive to make ours a better world. They are the greatest disciplinarians known to mankind.
+ - Being popular comes when you have everything. But to be liked, it means that you must be treating people with respect and you must be showing kindness toward them.
+ - When you educate a girl, you kick-start a cycle of success. It makes economic sense. It makes social sense. It makes moral sense. But, it seems, it’s not common sense yet.
+ - Religion and modernity are not necessarily mutually exclusive.
+ - Learning to read and write changes lives; it means jobs, money, health, and dreams fulfilled.
+ - By its very nature, hard-line ideology is self-serving and self-perpetuating; its primary goal is to survive – and that precludes everything.
+ - I’m amazed by the misconceptions about Muslim women and the Arab world that I hear, and that really does hurt me.
+ - I think generally, in life, I try to always ensure that there are periodic moments where I do venture out of my comfort zone, because that’s what keeps you alive. That’s what keeps you from getting stale.
+ - Maybe clothes are a form of creative expression for me. An outlet. Because I don’t get to express myself creatively through my official duties.
+ - Look at any country that’s plagued with poverty, disease or violence; the antidote is girls. Girls are the antibodies to many of society’s ills.
+ - Being queen is overrated.
+ - Well, my husband is supportive of my work, like advocating for dialogue between cultures on YouTube.
+ - When girls are educated, you get effects that cascade throughout society.
+ - I’d rather be dealt with as a person than a persona.
+ - Holy scripture does not hold women back. It’s the people that decide to interpret it in such a way for their own, sometimes political, agendas.
+ - Values are the shields that you carry throughout life and it protects you from whatever life throws at you.
+ - We’re programmed to believe that time is the enemy, that it takes away from us or that it diminishes us. I have found that it’s done the opposite to me. Life is in perfect balance. It’s just that our perception of it isn’t.
+ - I really feel that political will is born out of popular will.
+ - It isn’t often that the logic behind a policy is so clear. But when it comes to the value of educating girls, the evidence speaks for itself.
+ - Of course, I tweet. Tweeting is a very personal form of expression. Who else could talk about my son refusing to wear a suit to meet the Pope, my husband flying a helicopter, or take a twitpic from our home?
+ - I’ve learned to take things a little more easily, to be a little more forgiving of myself.
+ - The more time goes on, the closer I am to the ground. I’ve been exposed to so many issues and people living under different pressures. It’s helped me realize that a lot of glamorous things that people prioritize really don’t matter.
+ - Twitter’s a great way to tell people across the world what I care about and, hopefully, motivate them to join me in furthering my causes. It’s also a fantastic medium to hear the ideas and opinions of people I might not otherwise get to meet.
+ - I don’t know if I’d put labels on myself, but I do feel that when women are empowered, they have the power to transform society.
+ - To achieve a lasting peace in the Middle East takes guts, not guns.
+
+43 quotes

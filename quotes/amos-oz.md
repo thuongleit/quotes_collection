@@ -1,0 +1,31 @@
+ - Fundamentalist s live life with an exclamation point. I prefer to live my life with a question mark.
+ - A conflict begins and ends in the hearts and minds of people, not in the hilltops.
+ - When people have peace, they hate it and long for excitement, and when they have excitement, they want peace.
+ - Never cut loose from your longings.
+ - Do not cut lose from your longings – for what are we without our longings?
+ - Writing a poem is like having an affair, a one-night stand; a short story is a romance, a relationship; a novel is a marriage-one has to be cunning, devise compromises, and make sacrifices.
+ - Out there, in the world, all the walls were covered with graffiti: Yids, go back to Palestine, so we came back to Palestine, and now the worldatlarge shouts at us: Yids, get out of Palestine.
+ - Words create conceptions and self-conceptions and ultimately nations. They can start and stop wars. They can would and heal. Choosing words carefully is a moral responsibility.
+ - Imagination needs food like every dog and every cat and every bird and every fish.
+ - The kibbutz way of life is not for everyone. It is meant for people who are not in the business of working harder than they should be working, in order to make more money than they need, in order to buy things they don’t really want, in order to impress people they don’t really like.
+ - One of the things I wanted to introduce in The Same Sea beyond transcending the conflict, is the fact that deep down below all our secrets are the same.
+ - Two children of same cruel parent look at one another and see in each other the image of the cruel parent or the image of their past oppressor. This is very much the case between Jew and Arab: It’s a conflict between two victims.
+ - I find the family the most mysterious and fascinating institution in the world.
+ - If you steal from one book you are condemned as a plagiarist, but if you steal from ten books you are considered a scholar, and if you steal from thirty or forty books, a distinguished scholar.
+ - If we don’t stop somewhere, if we don’t accept an unhappy compromise, unhappy for both sides, if we don’t learn how to unhappily coexist and contain our burned sense of injustice – if we don’t learn how to do that, we end up in a doomed state.
+ - I have seen for the first time in 100 years of conflict, the two peoples – the Israeli people and the Palestinian people – are ahead of their leaderships.
+ - I wrote a novel about Israelis who live their own lives on the slope of a volcano. Near a volcano one still falls in love, one still gets jealous, one still wants a promotion, one still gossips.
+ - I was born and bred in a tiny, low-ceilinged ground-floor apartment.
+ - Well, my definition of a tragedy is a clash between right and right.
+ - I wrote The Same Sea not as a political allegory about Israelis and Palestinians. I wrote it about something much more gutsy and immediate. I wrote it as a piece of chamber music.
+ - Israel of the coastal plain, where eight out of ten Israeli Jews live far removed from the occupied territories, from the fiery Jerusalem, from the religious and nationalistic conflicts, is unknown to the outside world, almost unknown to itself.
+ - I recommend the art of slow reading.
+ - The actual gap between Labor, Likud and the new central party is microscopic.
+ - In many ways, I regard Sharon and Arafat as birds of a feather.
+ - All of my novels are democracies.
+ - On my parents scale of values, the more Western something was, the more cultured it was considered.
+ - If you change your diet, someone will call you a traitor.
+ - Every single pleasure I can imagine or have experienced is more delightful, more of a pleasure, if you take it in small sips, if you take your time. Reading is not an exception.
+ - But for 30 years, Orthodox leaders have tipped the balance between hawks and doves, and have been in a position to determine who forms a coalition and who runs the country.
+
+29 quotes

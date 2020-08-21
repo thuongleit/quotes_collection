@@ -1,0 +1,31 @@
+ - Merely looking at the world around us is immensely different from seeing it.
+ - While drawing grasses I learn nothing ‘about’ grass, but wake up to the wonder that there is grass at all.
+ - Art is neither a profession nor a hobby. Art is a way of being.
+ - If you still have to talk about Ultimate Reality See how it manifests itself nakedly in Every thing!
+ - I have learned that what I have not drawn I have never really seen, and that when I start drawing an ordinary thing, I realize how extraordinary it is, sheer miracle.
+ - You are not copying nature, but responding to nature in full awareness, to the way nature expresses itself in that object.
+ - Illusion is the mantle of the Real.
+ - I and the Father are not-two!
+ - When the eye wakes up to see again, it suddenly stops taking anything for granted.
+ - I have learned that what I have not drawn, I have never really seen.
+ - It is not that things are delusory but their separateness in the fabric of the Whole that is illusory...
+ - What is spiritual experience? A snowflake melting, a bee sucking honey, a fat man at a traffic light. Trivia.
+ - The cross of the Cruxifixion without the cross of the Resurrection is the symbol of a mutilated Christianity.
+ - The eye awakened is the eye in love.
+ - The religions are delusional constructs formed around an infallible core.
+ - Do you believe in God? I, I believe in nothing but God!
+ - The sinner’s ego is crude that of the saint refined, distilled. Careful! It may be more poisonous!
+ - To see the human condition in the old woman, in the child, in the model on the stand, in that particular human being, and to let the hand trace it, this act of adoration is called, ’drawing from life.
+ - The Tao cannot be divided, it cannot be shared.
+ - This apple tree is not the first one I draw, but perhaps the thousandth. I feel the sap rise to its spreading branches. I feel in my toes how its roots grip the earth.
+ - In this twentieth century, to stop rushing around, to sit quietly on the grass, to switch off the world and come back to the earth, to allow the eye to see a willow, a bush, a cloud, a leaf, is an unforgettable experience.
+ - I am neither I nor Other, both I and other...
+ - Drawing is the discipline by which I constantly rediscover the world.
+ - The clearsighted eye turns the light back to see its own Original Nature...
+ - In the beginngless beginning there was the Meaning.
+ - For you can look at things while talking or with a radio going full blast, but you can see only when the chatter stops.
+ - When the Christ says I: it is the I of all the Masters: the Way, the Truth, the Life.
+ - They do not see what they look at, hence they know not what they do.
+ - Life ends with the previous thought It is resurrected with the subsequent One.
+
+29 quotes

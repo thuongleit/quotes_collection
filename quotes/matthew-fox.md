@@ -1,0 +1,57 @@
+ - Sustainability is another word for justice, for what is just is sustainable and what is unjust is not.
+ - The only way to learn compassion is through your heart; you have to back up and pass through your own pain.
+ - When the Sacred Masculine is combined with the sacred feminine inside each of us, we create the ‘sacred marriage’ of compassion and passion in ourselves.
+ - When our inner self connects to our work and our work to our inner self, the work knows no limit, for the inner self knows no limit.
+ - Awe is the beginning of wisdom. Awe is the beginning of education.
+ - A global awakening can only happen from a spiritual awakening that is of global dimensions.
+ - Beauty saves. Beauty heals. Beauty motivates. Beauty unites. Beauty returns us to our origins, and here lies the ultimate act of saving, of healing, of overcoming dualism.
+ - Humor and paradox are often the only ways to respond to life’s sorrow with grace.
+ - The whole purpose of letting pain be pain is this: to let go of pain. By entering into it, we see that we are strong enough and capable enough to move through it. We find out that it ultimately has a gift for us.
+ - A lot of people want to see this idealized version of heroism, all pretty and perfect, and I’m not interested in playing the goody-goody hero at all.
+ - By cutting ourselves off from the rest of creation, we are left bereft of awe and wonder and therefore of reverence and gratitude. We violate our very beings, and we have nothing but trivia to teach our young.
+ - I don’t think that fundamentalism has anything to do with Jesus Christ. They call themselves Christians, but if that’s Christian, count me out. Fundamentalism is built on fear and greed. They’re telling you to give them your money otherwise you’re going to hell.
+ - We honor life when we work. The type of work is not important: the fact of work is. All work feeds the soul if it is honest and done to the best of our abilities and if it brings joy to others.
+ - To connect with the great river we all need a path, but when you get down there there’s only one river.
+ - Do not confuse beauty with beautiful. Beautiful is a human judgment. Beauty is All. The difference is everything.
+ - I’m really enjoying the process of learning to fly. How it will fit into my life down the road – I’m looking forward to discovering that.
+ - The universe is in the habit of making beauty. There are flowers and songs, snowflakes and smiles, acts of great courage, laughter between friends, a job well done, the smell of fresh baked bread. Beauty is everywhere.
+ - Work should be in order to live. We don’t live in order to work. That shift in awareness is necessary.
+ - I’m not saying I want a film career because I think I’m too good for television. I’m simply saying I want more control over my life.
+ - The system is not working. That is how a paradigm shift begins: the established way of seeing the world no longer functions.
+ - Pain destroys the illusions of false, that is, elitist pleasures. It burns from the inside out. It, therefore, sensitizes us to what is truly beautiful in life.
+ - I’m sorry, but I can’t make a movie with the blonde from ‘ER’ who is starring in every single bad romantic comedy.
+ - There is no end to the beauty for the person who is aware. Even the cracks between the sidewalk contain geometric patterns of amazing beauty.
+ - Creation is all space, all time – all things past, present, and future.
+ - Animals teach us about the animals in ourselves. We need their spirits.
+ - I think you’ve got to take your time and make sure you’re making choices that are smart for you.
+ - To create is always to learn, to begin over, to begin at zero.
+ - I think that there’s a hidden darkness in all of us!
+ - What is of most moment of compassion is not feelings of pity but feelings of togetherness.
+ - Im not really a tropical paradise kind of person.
+ - We must work on our souls, enlarging and expanding them. We do so by experiencing all of life-the beauty and the joy as well as the grief and pain. Soul work requires paying attention to life, to the laughter and the sorrow, the enlightening and the frightening, the inspiring and the silly.
+ - Having a studio tell you when to jump and how high eight months of the year for six years is not a relationship I want to get into again.
+ - Big-heartednes s is the most essential virtue on the spiritual journey.
+ - A job is something we do to get a paycheck and pay our bills. Jobs are legitimate, at times, but work is why we are here in the universe. Work and calling often go together.
+ - Soul is our appetite, driving us to eat from the banquet of life. People filled with the hunger of soul take food from every dish before them, whether it be sweet or bitter.
+ - A lot of the time I hate acting. It has a lot to do with the way I was brought up in a world where showing your emotions is frowned upon. It’s just not manly. I don’t do anything in life because I love doing it. It’s because I want to be good at it.
+ - It is precisely the despair of our times that convinces me that a renaissance is right around the corner.
+ - I’m an actor. I try to play a character in a really cool story, the very best I can.
+ - I directed an episode of ‘Party of Five’ toward the very end of that show. It was a great experience.
+ - If you look closely at a tree you’ll notice it’s knots and dead branches, just like our bodies. What we learn is that beauty and imperfection go together wonderfully.
+ - Today’s Catholic church seems to reward authoritarian personalities who are clearly ill, violent, sexually obsessed and unable to remember the past.
+ - Our self-expression is meant to be a manifestation of the silence of our hearts.
+ - I’m either going to have the career I want doing films, or I’ll do something else – I’ll be gone.
+ - I am a Westerner. We’re not going to change the West by going East. The East has a lot to teach us, but essentially it’s like a mirror, saying, hey, can’t you see what’s here in your own religion, what are you, stupid?
+ - I didn’t learn to swim until I was 21 or something because I grew up in the mountains in Wyoming and all the water is glacier runoff and cold.
+ - I enjoy a four-seasonal climate and wide-open spaces, so being on an island 2,500 miles into the South Pacific made me feel a little claustrophobic.
+ - I played football for a huge portion of my life, all the way through college actually.
+ - I’ll put it to you this way: I never, ever think about the things that I get involved with on a macro means-to-an-ends scale.
+ - We are in the cosmos and the cosmos is in us.
+ - Filmmaking is always sort of building a mosaic of this arc of what the character is going through.
+ - Prayer is essentially about making the heart strong so that fear cannot penetrate there.
+ - Cars are part of our genetic makeup. It’s unavoidable.
+ - I turn a lot of stuff down – big, big movies, the kind I wouldn’t want to go to the cinema to see.
+ - When it comes to wilderness animals we have to make an effort to preserve what areas we can that they can be themselves in. Its come to a point though, clearly, where some species have to be cared for by humans if they are not going to disappear altogether.
+ - To recover a spiritual tradition in which creation, and the study of creation, matters would be to inaugurate new possibilities between spirituality and science that would shape the paradigms for culture, its institution, and its people.
+
+55 quotes

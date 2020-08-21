@@ -1,0 +1,58 @@
+ - You do not have to be fearless, just don’t let fear stop you.
+ - You cannot let a fear of failure or a fear of comparison or a fear of judgment stop you from doing what’s going to make you great. You cannot succeed without this risk of failure. You cannot have a voice without the risk of criticism and you cannot love without the risk of loss.
+ - I don’t think you should just do what makes you happy. Do what makes you great.
+ - I eat stickers all the time dude!
+ - Don’t wait for your break, make your break. Go make it happen for yourself.
+ - Sometimes even hearing a bad idea is a great way to get to a good idea.
+ - I always have my best thoughts on the toilet.
+ - I love Queen. Not all of it. Some of it, I can’t get into. But “Don’t Stop Me Now” is a pretty hilarious song. It’s a good pick-me-up in the car.
+ - Everyone feels like an underdog, at some point in their life. Even the best-looking people and the most athletic probably have a phase in their life – a year or two – where they’re awkward or they have braces.
+ - I have expanded my mind and destroyed my liver but I didn’t give up.
+ - Both of my parents are actually music teachers. I think I got to a certain age where I decided I’d rather be a baseball player than a musician. Now, like most kids, I regret it.
+ - My parents are more likely to know who Franz Liszt is than Snooki.
+ - I was the world’s smallest man, covered in freckles with a squeaky, scratchy voice. And I still am, but I’ve learned to love myself.
+ - I didn’t know that it was going to launch a quote-unquote comedic career. I just wanted to do anything other than wait tables.
+ - Thinking of Plan B muddies up your chances of succeeding at Plan A.
+ - Everyone knows what it’s like to feel like the underdog. Everyone wants to be accepted. Ultimately, everybody wants to be loved.
+ - You’re responsible for your own character to a degree, because when it comes to the final draft of the script, you might say, “Well, I think maybe I could add this here, add that there.” But I find that I write just as well for the other characters as I do for myself. I think.
+ - I think people are surprised when I string two sentences together. But I had a fiercely academic upbringing.
+ - Hot soup at table is very vulgar; it either leads to an unseemly mode of taking it, or keeps people waiting too long whilst it cools. Soup should be brought to table only moderately warm.
+ - As an actor, sometimes you feel a pressure to change yourself from time to time.
+ - I waited tables in New York, and when you’re in that line of work, you often have a horrible boss.
+ - I think I, like most people, enjoy a wide variety of music. Yeah, I like some country stuff – old country stuff. I might not enjoy Billy Ray Cyrus or anything. But, you know, Patsy Cline, Willie Nelson, early Johnny Cash – absolutely.
+ - Growing up in Rhode Island, my friends would have strung me up if I had been a Yankees fan.
+ - As an actor, I think every moment in your life is giving you a new set of tools. You’re constantly absorbing new information that you can put back onto the screen.
+ - It is not elegant to gnaw Indian corn. The kernels should be scored with a knife, scraped off into the plate, and then eaten with a fork. Ladies should be particularly careful how they manage so ticklish a dainty, lest the exhibition rub off a little desirable romance.
+ - Writing is like pulling your hair out. You have nothing, and you can’t think of anything, but you have to think of something.
+ - Well, you know, I don’t think anyone who writes a television series has a master plan from the beginning, and knows all the character traits, and everything that’s going to happen.
+ - I don’t know any songs. People have asked me to play a song, and I say, “I don’t know anything.”
+ - For the people who don’t know, my character could described, in a nutshell, as the bar dumb-dumb.
+ - In my theater days I assumed that you had to get rid of yourself to do a character well, and I don’t think I was a very good actor when I did that.
+ - There are certain episodes that on the page I thought, “Oh boy, this is going to be the funniest episode.” And there are other ones that went in, fingers crossed, saying, “Oh well, let’s hope something good comes out of it.” Oftentimes, those ones wind up being the best ones.
+ - Occasionally it can be a little disappointing to see rock gods in their 60s or 70s up on stage.
+ - I had my own insecurities, which a lot of my comedy would come from, about not being able to live up to their academic expectations. Acting out those insecurities was a way of confronting them, like, “Let me just lean into being a guy who can’t read or write.”
+ - I was a theater guy growing up and I wanted to be Al Pacino, and I think I just looked and sounded too funny.
+ - I’m always in the elements, it seems like it’s pouring rain on me a lot and there’s crowds of people pushing me around, and it feels very real. Which is great as a actor, you don’t have to come up with too much of it. I’m always amazed.
+ - Actors put ourselves in awkward positions all the time.
+ - Cats do not abide by the laws of nature.
+ - I am a Patsy Cline fan.
+ - The idea of doing stand-up is terrifying to me.
+ - I always was a funny guy, the class clown. I had a very funny dad and an extremely funny grandmother.
+ - It doesn’t really matter to me whether the 7-year-olds are big fans of my work. I’m happy just to be working at all. I do think it will be nice to have a movie that my son can watch.
+ - I never saw myself as a comedian. I saw myself as a guy who can act funny.
+ - Still when I go on talk shows, I worry that I have to live up to a comedic persona.
+ - I think we’re all guilty of mistaking the actors we’ve seen over and over again – we think we know them.
+ - I went to college to be a jock and to play on the baseball team. And then, I got cut and realized that that was it for that. I was really small. The other guys were really big, on that team. I was a bit of a theater nerd, and I was an art history major.
+ - Both of my parents are actually music teachers.
+ - Starting out, I bet I didn’t get a lot of parts because of my strange voice. I’m not consciously thinking, ‘Hey, sound like a squeaky dog toy mixed with a bagful of rusty nails.’ It’s just what my voice has done.
+ - I find that the majority of the year, I don’t spend acting. I spend it either writing or editing or producing, or putting things together. So it’s as shocking as it is tragic. I really enjoy it. It’s a valuable skill set. I certainly feel like more of a grownup.
+ - Technically, I’m a New Yorker.
+ - People are demanding so much of me. They really want to pigeonhole me.
+ - Knowing that I’m not a model and I’m never going to be has relieved me of the pressure of looking good. If you don’t establish yourself as McDreamy then you don’t have to live up to it.
+ - You’re happy that people are seeing your work. As for the critics, it really hurts when they knock you.
+ - I am a classical fan. I like Debussy a lot, so I was trying to learn it on the piano. I’ve learned like a third of it, but I think I’m getting to a section that may be beyond my skill level.
+ - Yeah, I’ve always considered myself a musical person.
+ - Never trust a man whom you know to have acted like a scoundrel to others, whatever friendliness he may profess to feel towards yourself, however plausible he may be, or however kindly he may behave; be sure that, the moment he has anything to gain by so doing, he will “throw you over.”
+ - I’ve never written anything that wasn’t somewhat of a collaboration. I don’t know how people do it on their own.
+
+56 quotes

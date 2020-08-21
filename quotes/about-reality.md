@@ -1,0 +1,42 @@
+ - The bridge between reality and a dream is work. ~~Jared Leto
+ - I’m not strange, weird, off, nor crazy, my reality is just different from yours. ~~Lewis Carroll
+ - Thoughts become perception, perception becomes reality. Alter your thoughts, alter your reality. ~~William James
+ - Nothing is more expensive than a missed opportunity. ~~H. Jackson Brown Jr.
+ - If you want to go somewhere, it is best to find someone who has already been there. ~~Robert T. Kiyosaki
+ - The future is unwritten. ~~Joe Strummer
+ - Make your life a dream, and a dream a reality. ~~Antoine de Saint-Exupéry
+ - Never let someone’s opinion become your reality. Never sacrifice who you are because someone else has a problem with it. Love who you are inside and out. ~~Les Brown
+ - Disappointment is the gap that exists between expectation and reality. ~~John C. Maxwell
+ - Everything is Energy and that is all there is to it. Match the frequency of the reality you want and you can not help but get that reality. It can be no other way. This is not philosophy. This is physics. ~~Albert Einstein
+ - Perception precedes reality. ~~Andy Warhol
+ - Science is the poetry of reality. ~~Richard Dawkins
+ - Many of the things that seem impossible now will become realities tomorrow. ~~Walt Disney
+ - Beauty is simply reality seen with the eyes of love. ~~Rabindranath Tagore
+ - Do not take life’s experiences too seriously. For in reality they are nothing but dream experiences. Play your part in life, but never forget that it is only a role. ~~Paramahansa Yogananda
+ - Feet, what do I need you for when I have wings to fly? ~~Frida Kahlo
+ - Today’s scientists have substituted mathematics for experiments, and they wander off through equation after equation, and eventually build a structure which has no relation to reality. ~~Nikola Tesla
+ - Engineers turn dreams into reality. ~~Hayao Miyazaki
+ - Only psychos and shamans create their own reality. ~~Terence McKenna
+ - Synchronicity is an ever present reality for those who have eyes to see. ~~C.G. Jung
+ - Our subconscious minds have no sense of humor, play no jokes and cannot tell the difference between reality and an imagined thought or image. What we continually think about eventually will manifest in our lives. ~~Robert Collier
+ - Your longing for ME is my message to you, All your attempts to reach ME, Are in reality MY attempts to reach you. ~~Rumi
+ - A person who thinks all the time has nothing to think about except thoughts. So he loses touch with Reality, and lives in a world of illusion. ~~Alan Watts
+ - Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become a reality. ~~Earl Nightingale
+ - Time is the fire in which we burn. ~~Gene Roddenberry
+ - Language creates reality. Words have power. Speak always to create joy. ~~Deepak Chopra
+ - Geologists have a saying – rocks remember. ~~Neil Armstrong
+ - The reality of the other person is not in what he reveals to you, but in what he cannot reveal to you. Therefore, if you would understand him, listen not to what he says but rather to what he does not say. ~~Khalil Gibran
+ - In mindfulness one is not only restful and happy, but alert and awake. Meditation is not evasion; it is a serene encounter with reality. ~~Nhat Hanh
+ - The lower you fall, the higher you’ll fly. ~~Chuck Palahniuk
+ - Change your thinking. Change your life! Your thoughts create your reality. Practice positive thinking. Act the way you want to be, and soon you will be the way you act. ~~Les Brown
+ - Words have no power to impress the mind without the exquisite horror of their reality. ~~Edgar Allan Poe
+ - The important thing is not to stop questioning. Curiosity has its own reason for existing. One cannot help but be in awe when he contemplates the mysteries of eternity, of life, of the marvelous structure of reality. It is enough if one tries merely to comprehend a little of this mystery every day. Never lose a holy curiosity. ~~Albert Einstein
+ - I see you everywhere, in the stars, in the river, to me you’re everything that exists; the reality of everything. ~~Virginia Woolf
+ - There are two ways to be happy: improve your reality, or lower your expectations. ~~Jodi Picoult
+ - One of the hardest things in life is having words in your heart that you can’t utter. ~~James Earl Jones
+ - Reality is negotiable. ~~Tim Ferriss
+ - I don’t consider myself a pessimist. I think of a pessimist as someone who is waiting for it to rain. And I feel soaked to the skin. ~~Leonard Cohen
+ - We have no right to express an opinion until we know all of the answers. ~~Kurt Cobain
+ - Water is the driving force of all nature. ~~Leonardo da Vinci
+
+40 quotes

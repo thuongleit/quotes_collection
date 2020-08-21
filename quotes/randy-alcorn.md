@@ -1,0 +1,91 @@
+ - In Heaven, to look into God’s eyes will be to see what we’ve always longed to see: the person who made us for His own good pleasure. Seeing God will be like seeing everything else for the first time.
+ - God prospers me not to raise my standard of living, but to raise my standard of giving.
+ - For Christians this present life is the closest they will come to Hell. For unbelievers, it is the closest they will come to Heaven.
+ - Teach your children gratefulness. Do all you can to deliver them from our culture’s poisonous entitlement mentality.
+ - He who lays up treasures in heaven looks forward to eternity.
+ - Abundance isn’t God’s provision for me to live in luxury. It’s his provision for me to help others live. God entrusts me with his money not to build my kingdom on earth, but to build his kingdom in heaven.
+ - It is by serving God and others that we store up heavenly treasures. Everyone gains; no one loses.
+ - You can’t take it with you – but you can send it on ahead.
+ - Real gold fears no fire.
+ - Many Christians dread the thought of leaving this world. Why? Because so many have stored up their treasures on earth, not in heaven. Each day brings us closer to death. If your treasures are on earth, that means each day brings you closer to losing your treasures.
+ - Hell is not evil; it’s a place where evil gets punished. Hell is not pleasant, appealing, or encouraging. But Hell is morally good, because a good God must punish evil.
+ - What we love about this life are the things that resonate with the life we were made for. The things we love are not merely the best this life has to offer – they are previews of the greater life to come.
+ - To procrastinate obedience is to disobey God.
+ - A disciple does not ask, “How much can I keep?” but, “How much more can I give?” Whenever we start to get comfortable with our level of giving, it’s time to raise it again.
+ - God is the greatest giver in the universe, He won’t let you outgive Him.
+ - Not only will we see His face and live, but we will likely wonder if we ever lived before we saw His face!
+ - The greatest deterrent to giving is the illusion that this earth is our home.
+ - Someday this upside-down world will be turned right side up. Nothing in all eternity will turn it back again. If we are wise, we will use our brief lives on earth positioning ourselves for the turn.
+ - Ironically, many people can’t afford to give precisely because they’re not giving. If we pay our debt to God first, then we will incur His blessing to help us pay our debts to men. But when we rob God to pay men, we rob ourselves of God’s blessing.
+ - Cheap grace replaces truth with tolerance, lowering the bar so everyone can jump over it and we can all feel good about ourselves.
+ - Five minutes after we die, we’ll know exactly how much we should have given rather than kept.
+ - Jesus tells you exactly how to get it. Put your money in missions-and in your church and the poor-and your heart will follow.
+ - God doesn’t look at just what we give. He also looks at what we keep.
+ - When our eyes are set on eternity, the news that someone has come to know the Savior means a great deal more than the news of a salary raise or the prospect of getting the latest high-tech gadget.
+ - The currency of this world will be worthless at our death or at Christ’s return, both of which are imminent.
+ - Jesus didn’t tell us not to store up treasures. On the contrary, he commanded us to. He simply said, “Stop storing them up in the wrong place, and start storing them up in the right place.”
+ - Something nonhuman doesn’t become human by getting older and bigger; whatever is human is human from the beginning.
+ - We are all theologians, either good ones or bad ones. I’d rather be a good one. Wouldn’t you?
+ - Seeking happiness apart from a right relationship God is like trying to turn on a light that’s unplugged.
+ - Earth is a in-between world touched by both Heaven and Hell. Earth leads directly into Heaven or directly into Hell, affording a choice between the two. The best of life on Earth is a glimpse of Heaven; the worst of life is a glimpse of Hell.
+ - In the midst of prosperity, the challenge for believers is to handle wealth in such a way that it acts as a blessing, not a curse.
+ - Christians are God’s delivery people, through whom he does his giving to a needy world. We are conduits of God’s grace to others. Our eternal investment portfolio should be full of the most strategic kingdom-building projects to which we can disburse God’s funds.
+ - God gives us abundant material blessing so that we can give it away, and give it generously.
+ - Giving is the safety valve that releases the excess pressure of wealth.
+ - Unless we learn how to humbly tell each other our giving stories, our churches will not learn to give.
+ - Don’t forget that the most effective form of child abuse is giving a child everything they want.
+ - Giving jump starts our relationship with God. It opens our fists so we can receive what God has for us.
+ - Those who know their unworthiness seize grace as a hungry man seizes bread: the self-righteous resent grace.
+ - Are you winning the battle against materialism?
+ - Whenever we have excess, giving should be our natural response. It should be the automatic decision, the obvious thing to do in light of Scripture and human need.
+ - It’s dangerous faith in our untamed Savior that leads us to the joy we crave.
+ - What you do with your resources in this life is your autobiography.
+ - Wealth is a relational barrier. It keeps us from having open relationships.
+ - For the Christian, death is not the end of adventure but a doorway from a wold where dreams and adventures shrink, to a world where dreams and adventures forever expand.
+ - As you go through life, don’t let your feelings-real as they are-invalidate your need to let the truth of God’s words guide your thinking. Remember that the path to your heart travels through your mind. Truth matters.
+ - God is grooming us for leadership. He’s watching to see how we demonstrate our faithfulness. He does that through his apprenticeship program, one that prepares us for Heaven. Christ is not simply preparing a place for us; he is preparing us for that place.
+ - If you’re a child of God, you do not just “go around once” on Earth. You don’t get just one earthly life. You get another-one far better and without end. You’ll inhabit the New Earth! You’ll live with the God you cherish and the people you love as an undying person on an undying Earth.
+ - I imagine our first glimpse of Heaven will cause us to gasp in amazement and delight. That first gasp will likely be followed by many more as we continually encounter new sights in that endlessly wonderful place.
+ - Whenever I see an unmarried woman carrying a child, my first response is one of respect. I know she could have taken the quick fix without anyone knowing, but she chose instead to let an innocent child live.
+ - Grace and truth are spiritual DNA, the building blocks of Christ-centered living.
+ - What is good about Good Friday? Why isn’t it called Bad Friday? Because out of the appallingly bad came what was inexpressibly good. And the good trumps the bad, because though the bad was temporary, the good is eternal.
+ - Countless mistakes in marriage, parenting, ministry, and other relationships are failures to balance grace and truth. Sometimes we neglect both. Often we choose one over the other.
+ - Any concept of grace that makes us feel more comfortable sinning is not biblical grace. God’s grace never encourages us to live in sin, on the contrary, it empowers us to say no to sin and yes to truth.
+ - Parents who spoil their children out of ‘love’ should realize that they are performing acts of child abuse. Although there are no laws against such abuse – no man-made laws anyway – this spiritual mistreatment may result in as much long-term personal and social damage as the worst physical abuse.
+ - You and I are characters in God’s Story, handmade by Him. Every character serves a purpose.
+ - This is one of the great paradoxes of suffering. Those who don’t suffer much think suffering should keep people from God, while many who suffer a great deal turn to God, not from him.
+ - The grace that has freed us from bondage to sin is desperately needed to free us from our bondage to materialism.
+ - You are made for a person and a place. Jesus is the person. Heaven is the place.
+ - The everyday choices I make regarding money will influence the very coarse of eternity.
+ - Messin with me, is like wearing cheese underwear down rat alley. Ollie Chandler in Deception.
+ - Worry is momentary atheism crying out for correction by trust in a good, sovereign God. Suffering breaks self-reliance.
+ - Sin and death and suffering and war and poverty are not natural – they are the devastating results of our rebellion against God. We long for a return to Paradise – a perfect world, without the corruption of sin, where God walks with us and talks with us in the cool of the day.
+ - It’s a law of life: the tyranny of things.
+ - Tomorrow’s character is made out of today’s thoughts. Temptation may come suddenly, but sin does not.
+ - The cost of redemption cannot be overstated. The wonders of grace cannot be overemphasized. Christ took the hell He didn’t deserve so we could have the heaven we don’t deserve.
+ - To turn the tide of materialism in the Christian community, we desperately need bold models of kingdom-centered living. Despite our need to do it in a way that doesn’t glorify people, we must hear each other’s stories about giving or else our people will not learn to give.
+ - If we can keep ourselves from interfering with the natural laws of life, mistakes can be our child’s finest teachers.
+ - Grace never ignores the awful truth of our depravity; in fact it emphasizes it. The worse we realize we are the greater we realize God’s grace.
+ - But isn’t it wrong to be motivated by reward? No, it isn’t. If it were wrong, Christ wouldn’t offer it to us a motivation.
+ - When my thirst for joy is satisfied by Christ, sin becomes unattractive.
+ - God loves a great story, and all of us who know Him will recall and celebrate and continue to live in that story for all eternity.
+ - Christ offers us the incredible opportunity to trade temporary goods and currency for eternal rewards.
+ - Am I getting braver, or just getting accustomed to being terrified?
+ - Because satan hates us, he’s determined to rob us of the joy we’d have if we believed what God tells us about the magnificent world to come.
+ - Fiction has subversive potential. People let it into their minds, like the Trojan Horse. They don’t know what’s inside. You hook them with the story, and God can work below the level of their consciousness. Fiction can be propaganda for evil or convey a theme that impacts people for good.
+ - Shouldn’t we suppose that many of our most painful ordeals will look quite different a million years from now, as we recall them on the New Earth? What if one day we discover that God has wasted nothing in our life on Earth? What if we see that every agony was part of giving birth to an eternal joy?
+ - Heaven isn’t an extrapolation of earthly thinking; Earth is an extension of Heaven, made by the Creator King.
+ - By trusting Christ’s redemptive work for us, we can enter into what we long for: the happiness found only in God.
+ - It’s not just what Christian fiction lacks I appreciate – it’s what it offers. The variety is vast: contemporary, historical, suspense, mysteries, adventure, young adult, romance, fantasy, science fiction.
+ - My purpose as a writer is to communicate in such a way as to challenge the thinking of readers and touch their hearts.
+ - There’s a throne in each life big enough for only one. Christ may be on that throne, or money may be. But both cannot occupy it.
+ - Compassion for the mother is extremely important, but is never served through destroying the innocent.
+ - I read secular fiction, but also enjoy novels with a Christian worldview.
+ - Are we truly obeying the command to love our neighbor as ourselves if we’re storing up money for potential future needs when our neighbor is laboring today under actual present needs?
+ - If we get it wrong about Jesus, it doesn’t matter what else we get right.
+ - The repentant man rightfully loses trust in himself. He recognizes his self-dependence as the source of his problems, not the solution.
+ - Why ask for your daily bread when you own the bakery?
+ - Contrary to common belief, Christian fiction did not begin with Catherine Marshall, Janette Oke, or Frank Peretti.
+ - How we spend our time verifies what we value most: TV, the Internet, or God’s Word?
+
+89 quotes

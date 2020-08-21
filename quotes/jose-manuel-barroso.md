@@ -1,0 +1,25 @@
+ - There is no stability without solidarity and no solidarity without stability.
+ - In the age of globalisation, pooled sovereignty means more power, not less.
+ - Climate action is central for the future of our planet.
+ - I don’t know why my son was born conservative.
+ - Let us not forget that the European Community started as a project for peace after the terrible Second World War. And today people take for granted the freedom to travel, to study, to work abroad. And the citizens of one country have almost exactly the same rights as another country.
+ - Internal protectionism in Europe would be deadly, really a disaster for European economies.
+ - I say to my friends, ‘Don’t just listen to the vuvuzelas; look at who scores the goals.’ And this is the important thing.
+ - At least in Europe, we consider the right to privacy a fundamental right, and it is a very serious matter.
+ - I have full confidence in the IMF. It is a very strong international institution.
+ - Governments are not always right.
+ - Growth based on debt is unsustainable, artificial.
+ - Smart, sustainable, inclusive growth is the key to job-creation and the future prosperity of Europe.
+ - I believe that Europe without Britain at the heart will be less reform-driven, less open, less international Europe.
+ - I am a very committed European.
+ - Decisions taken by the most democratic institutions in the world are very often wrong.
+ - If we say leaders are incompetent, we are going to fuel extremist, populist, xenophobic and ultra-nationalist parties.
+ - The Eurogroup decisions are always taken unanimously.
+ - By the way, the European Union Member States together – even the euro area Member States together – are by far the biggest contributors to the IMF.
+ - I’ll put it frankly – Britain has more influence in China than Norway or Switzerland, with all respect for the other countries.
+ - The euro area must not be treated as an ‘opt out’ from the European Union.
+ - Even when governments take the right steps to reform, these can be negatively impacted by events outside their control.
+ - Financial transaction tax raises problems of competition.
+ - I think diversity can also be a resource, an asset, especially in a world that is becoming globalized, to deal with difference, to deal with variety, to deal with complexity.
+
+23 quotes

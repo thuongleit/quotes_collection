@@ -1,0 +1,31 @@
+ - A product is usually created to improve people’s lives; otherwise, why buy it? I’m no genius, but I am an American, and gosh-darnit, I consume, so I know what I’m talking about.
+ - A nation is not a budget, no matter how much ideologues want it to be so.
+ - The right-wing just loves making a big entrance.
+ - Social media has created a legion of social delinquents, billions of people speaking not their minds but their spleens, venting everything from the gum-cracking snark befitting a hair-twisting mallrat to the froth-flecked rage of a bell tower marksman.
+ - The guard rails on a highway may restrict some folks from driving the way they want, but those rules mostly end up saving the lives of those other drivers who understand that living in a society means behaving in a commonly beneficial way.
+ - Anyone who thinks they stand apart from society and defies all which govern its existence has less in common with the lone wolf patriot standing up to dystopic forces of oppression – a myth – and more in common with the disease known as cancer – a harsh reality.
+ - If you have to lie, cheat, steal, obstruct and bully to get your point across, it must not be a point capable of surviving on its own merits.
+ - It’s easy to break things. Much, much easier, it seems, than building them.
+ - We have as a nation been duped by those who use our guilt about how we treated the innocent pawns in the Vietnam War game – the soldiers – into missing the point once again about the utter senselessness that is war.
+ - Right-wing extremism is all about patience. That is, until it makes its move, and then it is sudden and explosive.
+ - What’s hard, it seems, is living up to the expectations Democracy imposes upon those who would participate in society.
+ - The fact is, presidential politics has become a game of inches.
+ - Fantasy-based ideologies invariably have neat happy endings where all the bad people and all the bad behavior goes away when the volume is turned up and enough force is applied.
+ - If only Coca-Cola had had the kind of message to accompany its addictive deliciousness that Fox News has, we’d all be speaking Cokelish today.
+ - I’ve been a fan of the Marvel Universe since I was a little child.
+ - I know it’s sappy, but I bet there’s a market for civility and niceness out there that, while probably not as titillating as a junkyard scrap between shirtless adversaries, it’d sure be healthier.
+ - Everything sells. Like integrity. Like democracy. Like truth. Like deeds.
+ - I tend to be very relaxed on stage, but the nerves have to come out somehow.
+ - From the moment America went full-on industrial, it seems like it’s been a steady path towards people never having to be physically present in order to satisfy their needs.
+ - The irony is that the people we tend to vote for actually look down on voters and voting. That’s just idiotic, right? That’s like a snake eating its own tail! A wolf in a trap gnawing off its own head to escape!
+ - My experience tells me that any time you hear people laughing on a sitcom, it’s the writers who happen to be closest to the microphones – not the audience.
+ - The spectacle of insensitivity that is the gun lobby and its outspoken, out-of-their-mind apparatchiks, is the apotheosis of what the Republican Party has allowed itself to become.
+ - A culture cannot lie down with dogs and not become utterly infested with fleas. The dogs, in this case, are the mongrel media and the corporate overlords who have grown fat on manufactured controversy and fear mongering.
+ - In the corporate-owned media, men dressed like Ronald Reagan and women dressed like Rita Hayworth disseminate grotesque exaggerations and gossip in authoritative tones.
+ - We fight wars from progressively great heights and distances, the blessings of technology steadily removing the personal human element from what was historically an extremely personal experience.
+ - The flaw in, say, austerity, is that its success is predicated on the relative exactitude of math rather than the shifting, liquid imperfection of peoples lives.
+ - I’ve rarely gotten a good review in my life, yet, to paraphrase Noel Coward, I am happy to console myself with the bitter palliative of commercial success.
+ - The element which is conveniently missing from today’s Republican Party is the human one. People’s hopes and realities become numbers and words, devoid of personality and easy to erase.
+ - What’s hard, it seems, is living up to the words spoken by Jesus Christ, who preached naught but love and mercy and justice and humility.
+
+29 quotes

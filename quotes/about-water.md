@@ -1,0 +1,42 @@
+ - Water is the driving force of all nature. ~~Leonardo da Vinci
+ - Water can flow, or it can crash. Be water, my friend. ~~Bruce Lee
+ - If you let cloudy water settle, it will become clear. If you let your upset mind settle, your course will also become clear. ~~Buddha
+ - Writing is magic, as much the water of life as any other creative art. The water is free. So drink. Drink and be filled up. ~~Stephen King
+ - Empty your mind, be formless, shapeless – like water. ~~Bruce Lee
+ - Be like water making its way through cracks. Do not be assertive, but adjust to the object, and you shall find a way round or through it. If nothing within you stays rigid, outward things will disclose themselves. ~~Bruce Lee
+ - Body is purified by water. Ego by tears. Intellect is purified by knowledge. And soul is purified with love. ~~Ali ibn Abi Talib
+ - Let yourself be silently drawn by the stronger pull of what you really love. In the depths there is a spring with all the water your heart is thirsty for. ~~Rumi
+ - In the abundance of water – the fool is thirsty. ~~Bob Marley
+ - Desires achieved increase thirst like salt water. ~~Milarepa
+ - Save water. Shower with your girlfriend. ~~Anonymous
+ - Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. ~~Buddha
+ - So a military force has no constant formation, water has no constant shape: the ability to gain victory by changing and adapting according to the opponent is called genius. ~~Sun Tzu
+ - The idea is that flowing water never goes stale, so just keep on flowing. ~~Bruce Lee
+ - God has equipped you to handle difficult things. In fact, He has already planted the seeds of discipline and self-control inside you. You just have to water those seeds with His Word to make them grow! ~~Joyce Meyer
+ - The mind is like an iceberg, it floats with one-seventh of its bulk above water. ~~Sigmund Freud
+ - Water adopts the shape of its receptacle, it is sometimes a trickle and sometimes a wild sea. ~~Miyamoto Musashi
+ - Its good to leave each day behind, like flowing water, free of sadness. Yesterday is gone and its tale told. Today new seeds are growing. ~~Rumi
+ - Christians should live in the world, but not be filled with it. A ship lives in the water; but if the water gets into the ship, she goes to the bottom. So Christians may live in the world; but if the world gets into them, they sink. ~~D.L. Moody
+ - Doesn’t matter if the glass is half-empty or half-full. All that matters is that you are the one pouring the water. ~~Mark Cuban
+ - Water seeks its own level and water rises collectively. ~~Julia Cameron
+ - God is the color of water. Water doesn’t have a color. ~~James McBride
+ - The only thing that endures over time is the ‘Law of the Farm.’ You must prepare the ground, plant the seed, cultivate, and water if you expect to reap the harvest. ~~Stephen R. Covey
+ - Practice, practice, practice in speaking before an audience will tend to remove all fear of audiences, just as practice in swimming will lead to confidence and facility in the water. You must learn to speak by speaking. ~~Dale Carnegie
+ - All things flow, nothing abides. You cannot step into the same river twice, for the waters are continually flowing on. Nothing is permanent except change. ~~Heraclitus
+ - Not I, nor anyone else can travel that road for you. You must travel it by yourself. It is not far. It is within reach. Perhaps you have been on it since you were born, and did not know. Perhaps it is everywhere – on water and land. ~~Walt Whitman
+ - Claiming there is no other life in the universe is like scooping up some water, looking at the cup and claiming there are no whales in the ocean. ~~Neil deGrasse Tyson
+ - The truth is: the natural world is changing. And we are totally dependent on that world. It provides our food, water and air. It is the most precious thing we have and we need to defend it. ~~David Attenborough
+ - May we live like the lotus, at home in muddy water. ~~Buddha
+ - If you want to walk on water, you have to get out of the boat. ~~John Ortberg Jr.
+ - How long does it take for a broken spirit to kill a body that has food, water and shelter? ~~Yann Martel
+ - Now that we have learned to fly the air like birds, swim under water like fish, we lack one thing – to learn to live on earth as human beings. ~~George Bernard Shaw
+ - The Dunya is like the ocean and our heart is like the ship. If a ship allows the water to enter, it will sink. Just like when we allow the Dunya to enter our heart. ~~Yasmin Mogahed
+ - You will always find an answer in the sound of water. ~~Zhuangzi
+ - It was like trying to bail out an ocean of water with a teaspoon. ~~Jodi Picoult
+ - There will be water if God wills it. ~~Stephen King
+ - Daisies in water are the longest lasting flower you can give to someone. Fact. Buy daisies. Not roses. ~~Anne Sexton
+ - Come hell or high water you will never take me back to the place I was before. I have been through too much to let life whoop me again. My faith is stronger than it’s ever been, my mind is more tenacious than it’s ever been, my soul is more absolute. ~~T.D. Jakes
+ - Muddy water is best cleared by leaving it alone. ~~Alan Watts
+ - Be like water, my friend. ~~Bruce Lee
+
+40 quotes

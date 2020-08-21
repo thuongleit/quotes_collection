@@ -1,0 +1,22 @@
+ - It’s true that I tend to daydream. I’m the same person in business as I am in music: I can be distracted and absentminded. It’s my style.
+ - My father was so much more than an accomplished businessman.
+ - I want to make the world better.
+ - Nicolette, Kendalle, and Alexandra are my children. Their mother, Cynthia Beck, and I, love them very much.
+ - Both parents were very encouraging – especially my father. My father thought the sun rose and set with me. Neither one had a musical background or any musical talent. They liked classical music, but neither could carry a tune.
+ - I don’t think events in your life affect your music.
+ - I’ve had every advantage in the world, despite the 18 years of silence which were nobody’s fault but mine.
+ - The Getty family has been fully supportive throughout this situation, and for that, I am very grateful.
+ - I was in Paris at an English-language bookstore. I picked up a volume of Dickinson’s poetry. I came back to my hotel, read 2,000 of her poems and immediately began composing in my head. I wrote down the melodies even before I got to a piano.
+ - Either your understanding of the meaning of music is there from the beginning or it is not.
+ - I personally do not write highbrow music. If I do, it’s by accident.
+ - I see only adaptations – not revolutions.
+ - My music is all about an idealistic human personality. I have 19th-century ideals.
+ - I’m a terrible singer, but it helps when I have to call a taxi.
+ - There is no change – I’m as deep or as shallow as I ever was. What’s new is on-the-job experience. This is what you gain with years.
+ - When my opera Plump Jack was performed in 1989, my first piano teacher sent me something that I’d composed when I was four. I remember I played it, and it still sounded like me. I’m the same composer I was then.
+ - I just have to take my chances like any other composer.
+ - If you have more money than you need, you have to give it away. It’s a duty. I get to choose whom to sponsor, and I like to give to the areas that I know something about.
+ - I do not think that music keeps evolving. It evolved through Bach; since then, in my humble opinion, all the innovations added nothing.
+ - Ive managed to dodge the curse. Not all my family have. Of course, music helped me – music is all about civilization, about something worthwhile. Its all about ideas.
+
+20 quotes

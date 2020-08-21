@@ -1,0 +1,45 @@
+ - Punctuation marks are the traffic signals of language: they tell us to slow down, notice this, take a detour, and stop.
+ - Panda. Large black-and-white bear-like mammal, native to China. Eats, shoots and leaves.
+ - The reason to stand up for punctuation is that without it there is no reliable way of communicating meaning.
+ - The rule is: don’t use commas like a stupid person. I mean it.
+ - There are people who embrace the Oxford comma and those who don’t, and I’ll just say this: never get between these people when drink has been taken.
+ - The way people behave towards each other is a measure of their value as human beings.
+ - Proper punctuation is both the sign and the cause of clear thinking.
+ - I am not against marriage. I lived with someone for 11 years. But we weren’t in love, and I thought that was quite important.
+ - Oh, the illusion of choice in the modern world – don’t get me started. But don’t you agree that the Internet has softened our brains and made us forget that ‘choice’ used to mean something different from selecting options from menus?
+ - I hate to be treated as if I’m invisible. I get incensed when people talk across me or refuse to catch my eye in a restaurant or shop.
+ - Texting is a fundamentally sneaky form of communication, which we should despise, but it is such a boon we don’t care. We are all sneaks now.
+ - Punctuation is a courtesy designed to help readers to understand a story without stumbling.
+ - What the semicolon’s anxious supporters fret about is the tendency of contemporary writers to use a dash instead of a semicolon and thus precipitate the end of the world. Are they being alarmist?
+ - Texting is a supremely secretive medium of communication – it’s like passing a note – and this means we should be very careful what we use it for.
+ - In the family of punctuation, where the full stop is daddy and the comma is mummy, and the semicolon quietly practises the piano with crossed hands, the exclamation mark is the big attention-deficit brother who gets overexcited and breaks things and laughs too loudly.
+ - Evidently an A level in English is a sacred trust, like something out of “The Lord of the Rings”. You must go forth with your A level and protect the English language with your bow of elfin gold.
+ - As with email, the recipient of a texted question seems to have the option to ignore it, while nevertheless saying, ‘Hello, lovely day,’ and so on.
+ - If we looked inside ourselves and remembered how insignificant we are, just for a couple of minutes a day, respect for other people would be an automatic result.
+ - I used to help my dad with a stall selling eggs when I was about 12. People were so hard up they would ask for one egg. But mostly no one came by at all. It was very demoralising.
+ - The main advantage of working at home is that you get to find out what cats really do all day.
+ - All writers learn this, in time: don’t show your work to other people until it’s safely finished. Even discussing your unborn book in quite general terms can be such an undermining experience that, afterwards, you give it up and go to live in Guatemala.
+ - My favorite thing in the world is a quiz show, ‘University Challenge,’ so you can see what kind of sad person I am.
+ - The advent of the mobile phone was a disaster. We are forced to listen, open-mouthed, to other people’s intimate conversations. Increasingly, we are all in our virtual bubbles when we are out in public, whether we are texting, listening to iPods, reading or just staring dangerously at other people.
+ - Nice clothes fall apart. Nice clocks don’t work. Bits fall off the nice cooker. It is hard to accept that pricing is unrelated to quality, but it’s plainly true. Nowadays, we pay the price that satisfies our particular personality type; and then we live with the painful consequences.
+ - Manners are about imagination, ultimately. They are about imagining being the other person.
+ - The idea of withholding a massive secret is obviously quite exciting to some people. It is also the basis of much classic drama, of course, from Sophocles onwards.
+ - No one else understands us 7th sense people. They regard us as freaks. When we point out illiterate mistakes, we are often aggressively instructed to ‘get a life’ by people who, interestingly, display no evidence of having lives themselves.
+ - Why did the Apostrophe Protection Society not have a militant wing? Could I start one? Where do you get balaclavas?
+ - After university, I got a job sub-editing and for years I was a literary editor.
+ - If you still persist in writing, “Good food at it’s best”, you deserve to be struck by lightning, hacked up on the spot and buried in an unmarked grave.
+ - What one discovers in life, I find, is that one’s personality defects don’t come and go.
+ - What I have always liked about Brighton is its impersonality. Since the 18th century, people have come, used the place and gone home again.
+ - Sticklers never read a book without a pencil at hand, to correct the typographical errors. In short, we are unattractive know-all obsessives who get things out of proportion and are in continual peril of being disowned by our exasperated families.
+ - To some people, the fact that I am not married, or don’t have children, would be the reason I have written a book on punctuation.
+ - It used to be just CIA agents with ear-pieces who walked round with preoccupied, faraway expressions, and consequently regarded all the little people as irrelevant scum. Now, understandably, it’s nearly everybody.
+ - When you by nature subscribe to the view that everyone except yourself is a berk or a wanker, it is hard to bond with anybody in any rational common cause.
+ - I do needlepoint from kits. I give them as gifts to people in the form of cushion covers and they are often speechless with horror.
+ - Writers and painters alike are in the business of consulting their own imaginations, and stimulating the imaginations of others. Together, and separately, they celebrate the absolute mystery of otherness.
+ - One of the things that all authors of fiction must learn to judge is whether – and in what detail – to describe the face of a character.
+ - Old radio comedy makes me laugh, as well as ‘I’m Sorry I Haven’t a Clue’ and comedians like Paul Merton.
+ - You don’t want to make an enemy of Piers Morgan.
+ - We read privately, mentally listening to the author’s voice and translating the writer’s thoughts. The book remains static and fixed; the reader journeys through it.
+ - Don’t pessimism and caution naturally go hand in hand?
+
+43 quotes

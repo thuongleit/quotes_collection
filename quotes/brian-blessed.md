@@ -1,0 +1,32 @@
+ - My parents taught me honesty, truth, compassion, kindness and how to care for people. Also, they encouraged me to take risks, to boldly go. They taught me that the greatest danger in life is not taking the adventure.
+ - You can’t call it an adventure unless it’s tinged with danger. The greatest danger in life, though, is not taking the adventure at all. To have the objective of a life of ease is death. I think we’ve all got to go after our own Everest.
+ - Wishing kindness and compassion to all living creatures.
+ - I do everything I can for wild animals because they have such a bloody awful time.
+ - My parents were so proud when I got a scholarship to go to theatre school – it was unheard of that a coal-miners son should go to drama school.
+ - The greatest danger in life is not taking chances. There are so many negative people wanting to grind you down, but you can’t let them. If people say you are mad, you know you’re on the right track.
+ - I’m a fully trained cosmonaut and have completed 800 hours training, which has made me the No. 1 civilian reserve ready to visit the International Space Station. I am determined to go up, and I want to explore the Moon, Mars and beyond!
+ - In the Arctic I met some Russian sailors on a submarine and they chorused, “Gordon’s alive!”
+ - I love Scotland – I was made an honorary Wallace after my work on ‘Braveheart,’ you know. If I have two or three days off, I love nothing more than driving up there and climbing around Glencoe.
+ - My brother Alan – who was seven years younger than me – died from leukemia when he was 52. He never knew a day’s good health – I wish I could have given him some of my good health. But he was always so cheerful and sweet.
+ - The misapprehension about me is that I am some loud, rampant maniac. I am actually very pensive and quiet.
+ - I have marvelous dreams! I meet Buddha, I meet Jesus, I meet Mohammed. I constantly dream of space, stars and planets: we are the children of stardust.
+ - I can’t retire from life. I love life too much and I cannot wait to start the day.
+ - My dad was opening fast bowler for Yorkshire’s second team and I couldn’t believe he could die. He wasn’t going to get better for at least six months, so I left school early to become the family breadwinner.
+ - When I was in Downing Street, David Cameron saw me and said, “Please, shout it all around and let it penetrate to my cabinet meeting.” So I bellowed: “Gordon’s alive!”
+ - I’ve completed half of my space training at Space City in Moscow. I love adventure, and I’ve been training in a centrifuge and MiG Fighter with a view to going into space and being a spokesman for space exploration!
+ - I’ve always hated it when people overspend, are spoilt or throw their money away.
+ - My dream is to own a Hockney – I’m a Yorkshireman, and his vibrant colours are a good example of how the north-country people are vibrant and colourful.
+ - I’ve always been generous and like giving to charities and people in need.
+ - I wasn’t good at examinations, but I went to a very good secondary school – Bolton-on-Dearne – with wonderful teachers, who taught me drama and encouraged me in every way.
+ - In the news this week, the polls continue to slide for Gordon Brown and some people are saying he’s dead and buried. But I think the opposite – I say GORDON’S ALIVE!
+ - When I was 11, I played the part of Rumpelstiltskin, and my teacher told me I would make a great actor.
+ - Ninety nine per cent of the time, for anyone who wins or makes money, it makes them happy.
+ - I’ll never retire. The new millennium is the age of adventure as far as I am concerned. I’m going up a volcano and off into space.
+ - Life is a re-discovery.
+ - We had a food store at the theatre and I used to pinch food. I pinched some trousers and shirts to keep me going but they would wear out. I was virtually on the breadline.
+ - I’ve become quite a serious explorer: I’ve been to Everest three times; I’m the oldest man to reach the North Pole; and I’ve just been to the lost world of Venezuela.
+ - There will be no funeral! Before I get too old and ill, I’ll go to South America and live among the Pemon people and meditate. When the time is right, they can throw my body into the volcano.
+ - People talk about the difference between radio acting, TV acting and stage acting, but I think it’s all the same. For instance, when I played Vultan in ‘Flash Gordon,’ I put as much energy into it as I would with ‘King Lear’ – it’s all part of the same thing.
+ - I went to drama school but it was very hard to get work until I was made assistant stage manager.
+
+30 quotes

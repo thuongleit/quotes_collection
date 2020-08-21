@@ -1,0 +1,71 @@
+ - Compassion is an action word with no boundaries.
+ - I’m a Jehovah’s Witness.
+ - There’s always a rainbow at the end of every rain.
+ - Every day I feel is a blessing from God. And I consider it a new beginning. Yeah, everything is beautiful.
+ - Real music lovers are actually my favourite kind of people because they like to know, rather than just be told what to think.
+ - Repetition is beautiful.
+ - Despite everything, no one can dictate who you are to other people.
+ - There’s a dark side to everything.
+ - A real friend or mentor isn’t on your payroll.
+ - Don’t hate me because I’m fabulous.
+ - Time is a mind construct. It’s not real.
+ - A strong spirit transcends rules.
+ - Sometimes it takes years for a person to become an overnight success.
+ - When i want to hear new music, i make it.
+ - There’s something about having people around you giving you support that is – it’s motivating, and once I got that support from people then I believed I could do anything.
+ - As human beings we suffer from an innate tendency to jump to conclusions; to judge people too quickly and to pronounce them failures or heroes without due consideration of the actual facts and ideals of the period.
+ - I’ve grown up, everyone’s got to grow up. But there’s something inside me, I’m always going to have that little sort of – how do you say? – child streak.
+ - Success can also cause misery. The trick is not to be surprised when you discover it doesn’t bring you all the happiness and answers you thought it would.
+ - Ownership, that’s what you give your kids. That’s your legacy.
+ - I ain’t got no money – But I’m rich on personality.
+ - Cool means being able to hang with yourself. All you have to ask yourself is ‘Is there anybody I’m afraid of? Is there anybody who if I walked into a room and saw, I’d get nervous?’ If not, then you’re cool.
+ - It’s a hurtful place, the world, in and of itself. We don’t need to add to it. And we’re in a place now where we all need one another, and it’s going to get rougher.
+ - Act your age, not your shoe size.
+ - The key to longevity is to learn every aspect of music that you can.
+ - I am a firm believer in reincarnation for people who either have more work to do or have so much debt to pay back that they have to be here.
+ - No child is bad from the beginning, they just imitate their atmosphere.
+ - But life is just a party, and parties weren’t meant to last.
+ - Like books and black lives – albums still matter. Tonight and always.
+ - Now where I come from We don’t let society Tell us how it’s supposed to be Our clothes, our hair We don’t care It’s all about being there Everybody’s going Uptown That’s where I wanna be Uptown Set your mind free.
+ - Pop life Everybody needs a thrill Pop life We all got a space 2 fill Pop life Everybody can’t be on top But life it ain’t real funky Unless it’s got that pop Dig it.
+ - I don’t really care so much what people say about me because it usually is a reflection of who they are. For example, if people wish I would sound like I used to sound, then it says more about them than it does me.
+ - Money won’t buy you happiness, but it’ll pay for the search.
+ - The voice that U hear is the alchemy of Ur mind.
+ - I do enjoy running down a ditch full of mud, firing bullets. It’s the way I am. I love it.
+ - Hard to say what’s right when all I wanna do is wrong.
+ - I have a very thick skin. I take everything that comes and let it bounce right off me because I know the time will come when nobody will be able to speak falsely.
+ - I’m still very much a kid inside myself.
+ - As long as I do not take myself too seriously I should not be too badly off.
+ - Love isn’t love until it’s past.
+ - If you see a man opening a car door for a woman, it means one of two things: it’s either a new woman or a new car!
+ - There is something that happens when you get emancipated. You approach life differently. You eat differently. You respect yourself more. You respect the gift you have been given.
+ - It’s 2 o’clock in the morning and I just can’t sleep Outside the rain is pourin’, I’m lonely as can be Maybe 2night’ll be different than the nights before I need 2 feel someone beside me, I can’t be alone no more.
+ - When everyone recognizes Jehovah’s name, then everyone will be happy because everyone will know what to do and how to do it.
+ - Michael Jackson’s album was only called Bad because there wasn’t enough room on the sleeve for Pathetic.
+ - Black people still call me Prince. Sometimes I ask them, “Why do you call me Prince?” And people say, “Because you are a prince to us.” Usually when they say that, you know my heart goes out and I have to say, “I don’t mind your calling me that.”
+ - Trees are worth more alive than dead.
+ - When I found out that there was eight Presidents before George Washington, I wanted to smack somebody.
+ - God’s a funky little dude because everyone’s looking for Him and no one can find Him.
+ - I have written a song that says: If you ever lose someone dear to you, never say the words, “They’re gone,” and they’ll come back.
+ - I’ve longed for kids since I was very, very young.
+ - Record contracts are just like – I’m gonna say the word, slavery.
+ - Why party like it is 1999 when you can party like it is your birthday?
+ - The internet is completely over.
+ - I don’t believe in singles. The singles market has changed. I am trying to get back to the old days of releasing albums at will, like Star Wars coming out again.
+ - Everything has changed for me since I’ve changed my name. It’s one thing to be called Prince but it’s better to actually be one. I have such a reverence for life.
+ - I’m going down 2 Alphabet Street I’m gonna crown the first girl that I meet I’m gonna talk so sexy She’ll want me from my head 2 my feet.
+ - Don’t know what 2 say about Dunk-a-roos. They’re just good! Sometimes you want a food that is comfortable and takes you back. For me, it’s those crazy little kangaroo crackers.
+ - Hip-hop is very diverse, but if you only focus on one aspect of it, then what you get is this image of Black America that is completely contrary to what actually goes on.
+ - All these non-singing, non-dancing, wish-I-had-me-some-clothes fools who tell me my albums suck. Why should I pay any attention to them?
+ - There’s this thing called compulsory licensing law that allows artists through the record companies to take your music at will without your permission.
+ - I really believe in finding new ways to distribute my music.
+ - You can judge the success of a man by his bodyguards!
+ - You can always tell when the groove is working or not.
+ - At one time, MTV was hip and suddenly it became outdated.
+ - All realities, all dimensions are open to me!
+ - What people have to realize is that if one has a firm belief in God and the spirit then one does not make statements that are negative and untrue.
+ - There’s a lot of times that both myself and my brother wish, obviously, that we were just completely normal.
+ - I want to win, so sometimes I get a little overanxious.
+ - The Internet’s completely overThe Internet’s like MTV. At one time MTV was hip and suddenly it became outdated. Anyway, all these computers and digital gadgets are no good. They just fill your head with numbers and that can’t be good for you.
+
+69 quotes

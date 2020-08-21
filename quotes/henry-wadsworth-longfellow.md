@@ -1,0 +1,502 @@
+ - Music is the universal language of mankind.
+ - The heights by great men reached and kept were not attained by sudden flight, but they, while their companions slept, were toiling upward in the night.
+ - It takes less time to do a thing right than to explain why you did it wrong.
+ - Every man has his secret sorrows which the world knows not; and often times we call a man cold when he is only sad.
+ - If we could read the secret history of our enemies we should find in each man’s life sorrow and suffering enough to disarm all hostility.
+ - Lives of great men all remind us We can make our lives sublime, And departing, leave behind us Footprints on the sands of time.
+ - Great is the art of beginning, but greater is the art of ending.
+ - Simplicity in character, in manners, in style; in all things the supreme excellence is simplicity.
+ - Life is real! Life is earnest! And the grave is not its goal; Dust thou art, to dust returnest, Was not spoken of the soul.
+ - Trust no future, however pleasant! Let the dead past bury its dead! Act – act in the living Present! Heart within and God overhead.
+ - Silence is a great peacemaker.
+ - Don’t cross the bridge til you come to it.
+ - Silence and solitude, the soul’s best friends.
+ - For age is opportunity no less Than youth itself, though in another dress, And as the evening twilight fades away The sky is filled with stars, invisible by day.
+ - Look not mournfully into the past, it comes not back again. Wisely improve the present, it is thine. Go forth to meet the shadowy future without fear and with a manly heart.
+ - Ships that pass in the night, and speak each other in passing, only a signal shown, and a distant voice in the darkness; So on the ocean of life, we pass and speak one another, only a look and a voice, then darkness again and a silence.
+ - The great tragedy of the average man is that he goes to his grave with his music still in him.
+ - In the world’s broad field of battle, In the bivouac of Life, Be not like dumb, driven cattle! Be a hero in the strife!
+ - Be still, sad heart! and cease repining; Behind the clouds is the sun still shining; Thy fate is the common fate of all, Into each life some rain must fall.
+ - Success is not something to wait for, it is something to work for.
+ - Let the dead Past bury its dead!
+ - Perseverance is a great element of success. If you only knock long enough and loud enough at the gate, you are sure to wake up somebody.
+ - However things may seem, no evil thing is success and no good thing is failure.
+ - And when she was good she was very very good. But when she was bad she was horrid.
+ - Joy, temperance, and repose, slam the door on the doctor’s nose.
+ - Though the mills of God grind slowly, yet they grind exceeding small; Though with patience He stands waiting, with exactness grinds He all.
+ - Not enjoyment, and not sorrow, Is our destined end or way; But to act, that each tomorrow Find us farther than today.
+ - I will be a man among men; and no longer a dreamer among shadows.
+ - Art is long, and time is fleeting, And our hearts, though stout and brave, Still, like muffled drums, are beating Funeral marches to the grave.
+ - The love of learning, the sequestered nooks, And all the sweet serenity of books.
+ - Let us then be up and doing, With a heart for any fate, Still achieving, still pursuing, Learn to labor and to wait.
+ - The best thing one can do when it’s raining is to let it rain.
+ - No man is so poor as to have nothing worth giving; as well might the mountain streamlets say they have nothing to give the sea because they are not rivers. Give what you have. To someone it may be better than you dare to think.
+ - In this world a man must either be anvil or hammer.
+ - Kind hearts are the gardens, Kind thoughts are the roots, Kind words are the flowers, Kind deeds are the fruits, Take care of your garden And keep out the weeds, Fill it with sunshine, Kind words, and Kind deeds.
+ - A single conversation across the table with a wise man is better than ten years mere study of books.
+ - Defeat may be victory in disguise.
+ - Behind the clouds is the sun still shining.
+ - Learn to labour and to wait.
+ - The human voice is the organ of the soul.
+ - The life of a man consists not in seeing visions and in dreaming dreams, but in active charity and in willing service.
+ - The heart, like the mind, has a memory. And in it are kept the most precious keepsakes.
+ - Stay, stay at home, my heart and rest; Home-keeping hearts are the happiest, For those that wander they know not where Are full of trouble and full of care; To stay at home is best.
+ - There are things of which I may not speak; There are dreams that cannot die; There are thoughts that make the strong heart weak, And bring a pallor into the cheek, And a mist before the eye.
+ - Nothing that is can pause or stay.
+ - They who go Feel not the pain of parting; it is they Who stay behind that suffer.
+ - The talent of success is nothing more than doing what you can do, well.
+ - The holiest of holidays are those kept by ourselves in silence and apart; The secret anniversaries of the heart.
+ - We judge ourselves by what we feel capable of doing, while others judge us by what we have already done.
+ - We have not wings we cannot soar; but, we have feet to scale and climb, by slow degrees, by more and more, the cloudy summits of our time.
+ - Noble souls, through dust and heat, rise from disaster and defeat the stronger.
+ - The leaves of memory seemed to make A mournful rustling in the dark.
+ - Silently, one by one, in the infinite meadows of heaven, Blossomed the lovely stars, the forget-me-nots of the angels.
+ - Youth, hope, and love: To build a new life on a ruined life, To make the future fairer than the past, And make the past appear a troubled dream.
+ - When a great man dies, for years the light he leaves behind him, lies on the paths of men.
+ - Every dew-drop and rain-drop had a whole heaven within it.
+ - In the elder days of art Builders wrought with greatest care Each minute and unseen part, For the Gods are everywhere.
+ - Listen my children and you shall hear, Of the midnight ride of Paul Revere.
+ - By the shore of Gitche Gumee, By the shining Big-Sea-Water, At the doorway of his wigwam, In the pleasant Summer morning, Hiawatha stood and waited.
+ - O suffering, sad humanity! O ye afflicted ones, who lie Steeped to the lips in misery, Longing, yet afraid to die, Patient, though sorely tried!
+ - I heard the bells on Christmas Day Their old, familiar carols play, And wild and sweet The words repeat Of peace on earth, good-will to men!
+ - The dawn is not distant, nor is the night starless; love is eternal.
+ - Such was the wreck of the Hesperus, In the midnight and the snow! Christ save us all from a death like this, On the reef of Norman’s Woe!
+ - Look, then, into thine heart, and write!
+ - Give what you have. To some one, it may be better than you dare to think.
+ - And the night shall be filled with music, And the cares, that infest the day, Shall fold their tents like the Arabs, and silently steal away.
+ - Wisely improve the Present. It is thine.
+ - The day is done, and the darkness Falls from the wings of Night, As a feather is wafted downward From an eagle in his flight.
+ - Books are sepulchres of thought.
+ - Then read from the treasured volume the poem of thy choice, and lend to the rhyme of the poet the beauty of thy voice.
+ - I will be a man among men; and no longer a dreamer among shadows. Henceforth be mine a life of action and reality! I will work in my own sphere, nor wish it other than it is. This alone is health and happiness.
+ - Into each life some rain must fall.
+ - The twilight is sad and cloudy, The wind blows wild and free, And like the wings of sea-birds Flash the white caps of the sea.
+ - Nature paints not; In oils, but frescoes the great dome of heaven; With sunsets, and the lovely forms of clouds; And flying vapors.
+ - Talk not of wasted affection – affection never was wasted.
+ - Let us then, be up and doing.
+ - The sky is filled with stars, invisible by day.
+ - It is Lucifer, The son of mystery; And since God suffers him to be, He too, is God’s minister, And labors for some good By us not understood.
+ - Art is long, and Time is fleeting.
+ - The world loves a spice of wickedness.
+ - Resolve and thou art free.
+ - Life like an empty dream flits by.
+ - Look not mournfully into the past. It comes not back again.
+ - Man is unjust, but God is just; and finally justice triumphs.
+ - Age is opportunity no less than youth itself.
+ - Nothing useless is, or low; Each thing in its place is best; And what seems but idle show Strengthens and supports the rest.
+ - Fortune comes well to all that comes not late.
+ - The highest exercise of imagination is not to devise what has no existence, but rather to perceive what really exists, though unseen by the outward eye-not creation, but insight.
+ - It is autumn; not without But within me is the cold. Youth and spring are all about; It is I that have grown old.
+ - I dislike an eye that twinkles like a star. Those only are beautiful which, like the planets, have a steady lambent light, are luminous, but not sparkling.
+ - There are moments in life, when the heart is so full of emotion That if by chance it be shaken, or into its depths like a pebble Drops some careless word, it overflows, and its secret, Spilt on the ground like water, can never be gathered together.
+ - There is no death! What seems so is transition; this life of mortal breath is but a suburb of the life elysian, whose portal we call Death.
+ - All your strength is in union, all your danger is in discord.
+ - My soul is full of longing for the secret of the sea, and the heart of the great ocean sends a thrilling pulse through me.
+ - The tide rises, the tide falls, The twilight darkens, the curlew calls; The little waves, with their soft, white hands, Efface the footprints in the sands, And the tide rises, the tide falls.
+ - I shot an arrow into the air, it fell to earth, I knew not where.
+ - Nature is a revelation of God; Art a revelation of man.
+ - Magnificent autumn! He comes not like a pilgrim, clad in russet weeds; not like a hermit, clad in gray; but like a warrior with the stain of blood in his brazen mail.
+ - O gift of God! O perfect day: Whereon shall no man work, but play; Whereon it is enough for me, Not to be doing, but to be!
+ - Sail on ship of state, sail on, I union, strong and great! Humanity with all its fears, with all its hopes of future years, is hanging on thy fate!
+ - Art is the child of Nature.
+ - Ah, Nothing is too late, till the tired heart shall cease to palpitate.
+ - A feeling of sadness and longing, That is not akin to pain, And resembles sorrow only As the mist resembles the rain.
+ - The course of my long life hath reached at last in fragile bark over a tempestuous sea the common harbor, where must rendered be account for all the actions of the past.
+ - Sunday is the golden clasp that binds together the volume of the week.
+ - Most people would succeed in small things if they were not troubled with great ambitions.
+ - Gone are the living, but the dead remain, And not neglected; for a hand unseen, Scattering its bounty like a summer rain, Still keeps their graves and their remembrance green.
+ - Tis always morning somewhere.
+ - O little souls! as pure as white And crystalline as rays of light Direct from heaven, their source divine; Refracted through the mist of years, How red my setting sun appears, How lurid looks this soul of mine!
+ - O Music! language of the soul, Of love, of God to man; Bright beam from heaven thrilling, That lightens sorrow’s weight.
+ - And when the echoes had ceased, like a sense of pain was the silence.
+ - How beautiful is youth! how bright it gleams with its illusions, aspirations, dreams! Book of Beginnings, Story without End, Each maid a heroine, and each man a friend!
+ - I hear the wind among the trees Playing the celestial symphonies; I see the branches downward bent, Like keys of some great instrument.
+ - O beautiful, awful summer day, what hast thou given, what taken away?
+ - One, if by land, and two, if by sea; And I on the opposite shore will be, Ready to ride and spread the alarm Through every Middlesex village and farm For the country folk to be up and to arm.
+ - We are all architects of faith, ever living in these walls of time.
+ - I love the season well When forest glades are teeming with bright forms, Nor dark and many-folded clouds foretell The coming of storms.
+ - Sail on, O Ship of State! Sail on, O Union, strong and great.
+ - He that respects himself is safe from others. He wears a coat of mail that none can pierce.
+ - Round about what is, lies a whole mysterious world of might be, a psychological romance of possibilities and things that do not happen.
+ - Not chance of birth or place has made us friends, Being oftentimes of different tongues and nations, But the endeavor for the selfsame ends, With the same hopes, and fears, and aspirations.
+ - Is this is a dream? O, if it be a dream, Let me sleep on, and do not wake me yet!
+ - The thoughts of Youth are long, long thoughts.
+ - The rapture of pursuing is the prize the vanquished gain.
+ - There is no light in earth or heaven but the cold light of stars; and the first watch of night is given to the red planet Mars.
+ - The soul never grows old.
+ - Don Quixote thought he could have made beautiful bird-cages and toothpicks if his brain had not been so full of ideas of chivalry. Most people would succeed in small things if they were not troubled with great ambitions.
+ - There is no grief like the grief that does not speak.
+ - Not in the clamor of the crowded street, not in the shouts and plaudits of the throng, but in ourselves, are triumph and defeat.
+ - Every author has the whole past to contend with; all the centuries are upon him. He is compared with Homer, Dante, Shakespeare, Milton.
+ - Every man must patiently bide his time. He must wait – not in listless idleness but in constant, steady, cheerful endeavors, always willing and fulfilling and accomplishing his task, that when the occasion comes he may be equal to the occasion.
+ - Stars of earth, these golden flowers; emblems of our own great resurrection; emblems of the bright and better land.
+ - A Lady with a Lamp shall stand In the great history of the land, A noble type of good, Heroic womanhood.
+ - God’s voice was not in the earthquake, Not in the fire, nor the storm, but it was in the whispering breezes.
+ - Read from some humbler poet, Whose songs gushed from his heart, As showers from the clouds of summer, Or tears from the eyelids start.
+ - Method is more important than strength, when you wish to control your enemies.
+ - No action, whether foul or fair, Is ever done, but it leaves somewhere A record, written by fingers ghostly, As a blessing or a curse, and mostly In the greater weakness or greater strength Of the acts which follow it.
+ - Every man has his secret sorrows...
+ - Three silences there are: the first of speech, the second of desire, the third of thought.
+ - The natural alone is permanent.
+ - Go forth to meet the shadowy future without fear and with a manly heart.
+ - Let us, then, be what we are; speak what we think; and in all things keep ourselves loyal to truth.
+ - Death is better than disease.
+ - Labor with what zeal we will, Something still remains undone, Something uncompleted still Waits the rising of the sun.
+ - The prayer of Ajax was for light.
+ - The happy should not insist too much upon their happiness in the presence of the unhappy.
+ - The story, from beginning to end, I found again in a heart of a friend.
+ - Our hearts, our hopes, our prayers, our tears, our faith triumphant o’er our fears, are all with thee – are all with thee!
+ - Critics are sentinels in the grand army of letters, stationed at the corners of newspapers and reviews, to challenge every new author.
+ - Then stars arise, and the night is holy.
+ - The spring came suddenly, bursting upon the world as a child bursts into a room, with a laugh and a shout and hands full of flowers.
+ - I stay a little longer, as one stays, to cover up the embers that still burn.
+ - Between the dark and the daylight, When the night is beginning to lower, Comes a pause in the day’s occupations, That is known as the Children’s Hour.
+ - If I am not worth the wooing, I am surely not worth the winning.
+ - The morrow was a bright September morn; The earth was beautiful as if newborn; There was nameless splendor everywhere, That wild exhilaration in the air, Which makes the passers in the city street Congratulate each other as they meet.
+ - As I gaze upon the sea! All the old romantic legends, all my dreams, come back to me.
+ - Build today, then strong and sure, With a firm and ample base; And ascending and secure. Shall tomorrow find its place.
+ - A word that has been said may be unsaid-it is but air. But when a deed is done, it cannot be undone, nor can our thoughts reach out to all the mischiefs that may follow.
+ - If a woman shows too often the Medusa’s head, she must not be astonished if her lover is turned into stone.
+ - The day is dark and cold and dreary; it rains, and the wind is never weary.
+ - The secret anniversaries of the heart.
+ - Our ingress into the world Was naked and bare; Our progress through the world Is trouble and care.
+ - Each day is a branch of the Tree of Life laden heavily with fruit. If we lie down lazily beneath it, we may starve; but if we shake the branches, some of the fruit will fall for us.
+ - O little feet! that such long years Must wander on through hopes and fears, Must ache and bleed beneath your load; I, nearer to the wayside inn Where toil shall cease and rest begin, Am weary, thinking of your road!
+ - These stars of earth, these golden flowers.
+ - Enthusiasm begets enthusiasm.
+ - No tears Dim the sweet look that Nature wears.
+ - Love gives itself; it is not bought.
+ - Youth comes but once in a lifetime.
+ - The Nile, forever new and old, Among the living and the dead, Its mighty, mystic stream has rolled.
+ - Sit in reverie and watch the changing color of the waves that break upon the idle seashore of the mind.
+ - Like a French poem is life; being only perfect in structure when with the masculine rhymes mingled the feminine are.
+ - Standing, with reluctant feet, Where the brook and river meet, Womanhood and childhood fleet!
+ - So Nature deals with us, and takes away Our playthings one by one, and by the hand Leads us to rest so gently, that we go, Scarce knowing if we wish to go or stay, Being too full of sleep to understand How far the unknown transcends the what we know.
+ - Big words do not smite like war-clubs, Boastful breath is not a bow-string, Taunts are not so sharp as arrows, Deeds are better things than words are, Actions mightier than boastings.
+ - Know how sublime a thing it is to suffer and be strong.
+ - After a day of cloud and wind and rain Sometimes the setting sun breaks out again, And touching all the darksome woods with light, Smiles on the fields until they laugh and sing, Then like a ruby from the horizon’s ring, Drops down into the night.
+ - The surest pledge of a deathless name Is the silent homage of thoughts unspoken.
+ - Love is the root of creation; God’s essence; worlds without number Lie in his bosom like children; he made them for this purpose only. Only to love and to be loved again.
+ - Enjoy the Spring of Love and Youth, to some good angel leave the rest; For Time will teach thee soon the truth, there are no birds in last year’s nest!
+ - An enlightened mind is not hoodwinked; it is not shut up in a gloomy prison till it thinks the walls of its dungeon the limits of the universe, and the reach of its own chain the outer verge of intelligence.
+ - Ah, how good it feels! The hand of an old friend.
+ - In ourselves are triumph and defeat.
+ - Ah, yes, the sea is still and deep, All things within its bosom sleep! A single step, and all is o’er, A plunge, a bubble, and no more.
+ - It has done me good to be somewhat parched by the heat and drenched by the rain of life.
+ - The rays of happiness, like those of light, are colorless when unbroken.
+ - The nearer the dawn the darker the night.
+ - Where’er a noble deed is wrought, Where’er is spoken a noble thought, Our hearts in glad surprise To higher levels rise.
+ - Feeling is deep and still; and the word that floats on the surface Is as the tossing buoy, that betrays where the anchor is hidden.
+ - Through woods and mountain passes The winds, like anthems, roll.
+ - But oftentimes celestial benedictions Assume this dark disguise.
+ - Ambition is so powerful a passion in the human breast, that however high we reach we are never satisfied.
+ - Time has a doomsday book, upon whose pages he is continually recording illustrious names. But as often as a new name is written there, an old one disappears. Only a few stand in illuminated characters never to be effaced.
+ - If you would hit the mark, you must aim a little above it: Every arrow that flies feels the pull of the earth.
+ - Yes, we must ever be friends; and of all who offer you friendship Let me be ever the first, the truest, the nearest and dearest.
+ - With useless endeavour Forever, forever, Is Sisyphus rolling His stone up the mountain!
+ - Oh the long and dreary Winter! Oh the cold and cruel Winter!
+ - Whatever poet, orator, or sage may say of it, old age is still old age.
+ - Build me straight. O worthy Master! Staunch and strong, a goodly vessel That shall laugh at all disaster, And with wave and whirlwind wrestle!
+ - The air of summer was sweeter than wine.
+ - Welcome, my old friend, Welcome to a foreign fireside.
+ - In the long, sleepless watches of the night, A gentle face the face of one long dead Looks at me from the wall, where round its head The night-lamp casts a halo of pale light.
+ - The lamps are lit, the fires burn bright. The house is full of life and light.
+ - No man is so poor as to have nothing worth giving.
+ - Glorious indeed is the world of God around us, but more glorious the world of God within us.
+ - Being all fashioned of the self-same dust, let us be merciful as well as just.
+ - A coquette is a young lady of more beauty than sense, more accomplishments than learning, more charms not person than graces of mind, more admirers than friends, mole fools than wise men for attendants.
+ - Ah me! what wonder-working, occult science Can from the ashes in our hearts once more The rose of youth restore? What craft of alchemy can bid defiance To time and change, and for a single hour Renew this phantom-flower?
+ - I am weary of your quarrels, Weary of your wars and bloodshed, Weary of your prayers for vengeance, Of your wranglings and dissensions.
+ - When you ask one friend to dine, Give him your best wine! When you ask two, The second best will do!
+ - Happy art thou, as if every day thou hadst picked up a horseshoe.
+ - Be noble in every thought And in every deed!
+ - Kind messages, that pass from land to land; Kind letters, that betray the heart’s deep history, In which we feel the pressure of a hand, – One touch of fire, – and all the rest is mystery!
+ - As Unto the bow the the cord is, So unto the man is woman; Though she bends him, she obeys him, Though she draws him, yet she follows: Useless each without the other.
+ - I do not believe anyone can be perfectly well, who has a brain and a heart.
+ - And so we plough along, as the fly said to the ox.
+ - I saw the long line of the vacant shore, The sea-weed and the shells upon the sand, And the brown rocks left bare on every hand, As if the ebbing tide would flow no more.
+ - It was Autumn, and incessant Piped the quails from shocks and sheaves, And, like living coals, the apples Burned among the withering leaves.
+ - Autumn arrives like a warrior with the stain of blood upon his brazen mail. His crimson scarf is rent. His scarlet banner drips with gore. His step is like a flail upon the threshing floor.
+ - This is the place. Stand still, my steed,- Let me review the scene, And summon from the shadowy past The forms that once have been.
+ - An angel visited the green earth, and took a flower away.
+ - See yonder fire! It is the moon slow rising o’er the eastern hill. It glimmers on the forest tips, and through the dewy foliage drips In little rivulets of light, and makes the heart in love with night.
+ - Maiden, that read’st this simple rhyme, Enjoy thy youth, it will not stay; Enjoy the fragrance of thy prime, For oh, it is not always May!
+ - Chill air and wintry winds! My ear has grown familiar with your song; I hear it in the opening year, I listen, and it cheers me long.
+ - Oh, what a glory doth this world put on, for him who with a fervent heart goes forth under the bright and glorious sky, and looks on duties well performed, and days well spent.
+ - Sometimes we may learn more from a man’s errors, than from his virtues.
+ - The young may die, but the old must!
+ - There rises the moon, broad and tranquil, through the branches of a walnut tree on a hill opposite. I apostrophize it in the words of Faust; “O gentle moon, that lookest for the last time upon my agonies!” – or something to that effect.
+ - Everyone says that forgiveness is a lovely idea until he has something to forgive.
+ - Mercy more becomes a magistrate than the vindictive wrath which men call justice.
+ - Where should the scholar live? In solitude, or in society? in the green stillness of the country, where he can hear the heart of Nature beat, or in the dark, gray town where he can hear and feel the throbbing heart of man?
+ - The mind of the scholar, if he would leave it large and liberal, should come in contact with other minds.
+ - Buried was the bloody hatchet; Buried was the dreadful war-club; Buried were all warlike weapons, And the war-cry was forgotten. Then was peace among the nations.
+ - Among the noblest in the land – Though man may count himself the least – That man I honor and revere, Who without favor, without fear, In the great city dares to stand, The friend of every friendless beast.
+ - The hearts of some women tremble like leaves at every breath of love which reaches them, and they are still again. Others, like the ocean, are moved only by the breath of a storm, and not so easily lulled to rest.
+ - The setting of a great hope is like the setting of the sun. The brightness of our life is gone.
+ - A great sorrow, like a mariner’s quadrant, brings the sun at noon down to the horizon, and we learn where we are on the sea of life.
+ - When we walk towards the sun of Truth, all shadows are cast behind us.
+ - The talent of success is nothing more than doing what you can do well, and doing well whatever you do without thought of fame. If it comes at all it will come because it is deserved, not because it is sought after.
+ - Out of the bosom of the Air, Out of the cloud-folds of her garments shaken, Over the woodlands brown and bare, Over the harvest-fields forsaken, Silent, and soft, and slow Descends the snow.
+ - Tomorrow is the mysterious, unknown guest.
+ - Beautiful in form and feature, lovely as the day, can there be so fair a creature formed of common clay?
+ - In youth all doors open outward; in old age all open inward.
+ - He spoke well who said that graves are the footprints of angels.
+ - There’s nothing in this world so sweet as love. And next to love the sweetest thing is hate.
+ - In December ring Every day the chimes; Loud the gleemen sing In the streets their merry rhymes. Let us by the fire Ever higher Sing them till the night expire!
+ - Under a spreading chestnut-tree The village smithy stands; The smith, a mighty man is he, With large and sinewy hands; And the muscles of his brawny arms Are strong as iron bands.
+ - Rule by patience, Laughing Water!
+ - The country is lyric, the town dramatic. When mingled, they make the most perfect musical drama.
+ - Let him not boast who puts his armor on as he who puts it off, the battle done.
+ - A torn jacket is soon mended; but hard words bruise the heart of a child.
+ - There’s nothing fair nor beautiful, but takes Something from thee, that makes it beautiful.
+ - Take them, O Death! and bear away Whatever thou canst call thine own! Thine image, stamped upon this clay, Doth give thee that, but that alone!
+ - The gentle wind, a sweet and passionate wooer, Kisses the blushing leaf.
+ - What else remains for me? Youth, hope and love; To build a new life on a ruined life.
+ - The men that women marry, And why they marry them, will always be A marvel and a mystery to the world.
+ - Death is the chillness that precedes the dawn; We shudder for a moment, then awake In the broad sunshine of the other life.
+ - Stay, stay at home, my heart and rest; Home-keeping hearts are happiest.
+ - It is folly to pretend that one ever wholly recovers from a disappointed passion. Such wounds always leave a scar. There are faces I can never look upon without emotion, there are names I can never hear spoken without almost starting.
+ - If the great Captain of Plymouth is so very eager to wed me, Why does he not come himself, and take the trouble to woo me? If I am not worth the wooing, I surely am not worth the winning!
+ - When she had passed, it seemed like the ceasing of exquisite music.
+ - As the heart is, so is love to the heart. It partakes of its strength or weakness, its health or disease.
+ - Ripe in wisdom was he, but patient, and simple, and childlike.
+ - And as she looked around, she saw how Death the consoler, Laying his hand upon many a heart, had healed it forever.
+ - How beautiful the silent hour, when morning and evening thus sit together, hand in hand, beneath the starless sky of midnight!
+ - Never idle a moment, but thrifty and thoughtful of others.
+ - Youth comes but once a life time. Perhaps, but it remains strong in many for their entire lives.
+ - When Christ ascended Triumphantly from star to star He left the gates of Heaven ajar.
+ - So Nature deals with us, and takes away Our playthings one by one, and by the hand Leads us to rest.
+ - Ambition’s cradle oftenest is its grave.
+ - Whenever nature leaves a hole in a person’s mind, she generally plasters it over with a thick coat of self-conceit.
+ - The smoking flax before it burst to flame Was quenched by death, and broken the bruised reed.
+ - God sifted a whole nation that he might send choice grain over into this wilderness.
+ - Ye are better than all the ballads That ever were sung or said; For ye are living poems, And all the rest are dead.
+ - No one is so accursed by fate, no one so utterly desolate, but some heart though unknown responds unto his own.
+ - To be strong is to be happy!
+ - Man is always more than he can know of himself; consequently, his accomplishments, time and again, will come as a surprise to him.
+ - The bells themselves are the best of preachers, Their brazen lips are learned teachers, From their pulpits of stone, in the upper air, Sounding aloft, without crack or flaw, Shriller than trumpets under the Law, Now a sermon and now a prayer.
+ - Method is more important than strength, when you wish to control your enemies. By dropping golden beads near a snake, a crow once managed To have a passer-by kill the snake for the beads.
+ - I have an affection for a great city. I feel safe in the neighborhood of man, and enjoy the sweet security of the streets.
+ - A noble type of good. Heroic womanhood.
+ - Dreams or illusions, call them what you will, they lift us from the commonplace of life to better things.
+ - O flower-de-luce, bloom on, and let the river Linger to kiss thy feet! O flower of song, bloom on, and make forever The world more fair and sweet.
+ - Well I know the secret places, And the nests in hedge and tree; At what doors are friendly faces, In what hearts are thoughts of me.
+ - Live up to the best that is in you: Live noble lives, as you all may, in whatever condition you may find yourselves.
+ - Therefore trust to thy heart, and to what the world calls illusions.
+ - Great men stand like solitary towers in the city of God.
+ - There is nothing holier in this life of ours than the first consciousness of love, the first fluttering of its silken wings.
+ - The star of the unconquered will, He rises in my breast, Serene, and resolute, and still, And calm, and self-possessed.
+ - Thus, seamed with many scars Bursting these prison bars, Up to its native stars My soul ascended! There from the flowing bowl Deep drinks the warrior’s soul, Skoal! to the Northland! skoal! Thus the tale ended.
+ - Men of genius are often dull and inert in society; as the blazing meteor, when it descends to earth, is only a stone.
+ - Make not thyself the judge of any man.
+ - Weak minds make treaties with the passions they cannot overcome, and try to purchase happiness at the expense of principle; but the resolute will of a strong man scorns such means, and struggles nobly with his foe to achieve great deeds.
+ - Sang in tones of deep emotion Songs of love and songs of longing.
+ - Gorgeous flowerets in the sunlight shining, Blossoms flaunting in the eye of day, Tremulous leaves, with soft and silver lining, Buds that open only to decay.
+ - The country is not priest-ridded, but press-ridden.
+ - See yonder little cloud, that, borne aloft So tenderly by the wind, floats fast away Over the snowy peaks!
+ - I venerate old age; and I love not the man who can look without emotion upon the sunset of life, when the dusk of evening begins to gather over the watery eye, and the shadows of twilight grow broader and deeper upon the understanding.
+ - All things come round to him who will but wait.
+ - In old age our bodies are worn-out instruments, on which the soul tries in vain to play the melodies of youth. But because the instrument has lost its strings, or is out of tune, it does not follow that the musician has lost his skill.
+ - All are architects of Fate, Working in these walls of Time; Some with massive deeds and great, Some with ornaments of rhyme.
+ - To charm, to strengthen, and to teach: these are the three great chords of might.
+ - The Mormons make the marriage ring, like the ring of Saturn, fluid, not solid, and keep it in its place by numerous satellites.
+ - Intelligence and courtesy not always are combined; Often in a wooden house a golden room we find.
+ - Gone are the birds that were our summer guests.
+ - Down sank the great red sun, and in golden, glimmering vapors Veiled the light of his face, like the Prophet descending from Sinai.
+ - Thought takes man out of servitude, into freedom.
+ - Write on your doors the saying wise and old. “Be bold!” and everywhere – “Be bold; Be not too bold!” Yet better the excess Than the defect; better the more than less sustaineth him and the steadiness of his mind beareth him out.
+ - Art is the child of nature in whom we trace the features of the mothers face.
+ - I am never indifferent, and never pretend to be, to what people say or think of my books. They are my children, and I like to have them liked.
+ - A spirit of criticism, if indulged in, leads to a censoriousness of disposition that is destructive of all nobler feeling. The man who lives to find faults has a miserable mission.
+ - What shall I say to you? What can I say Better than silence is?
+ - The Laws of Nature are just, but terrible. There is no weak mercy in them. Cause and consequence are inseparable and inevitable.
+ - Hope has as many lives as a cat or a king.
+ - I like that ancient Saxon phrase, which calls The burial-ground God’s-Acre! It is just; It consecrates each grave within its walls, And breathes a benison o’er the sleeping dust.
+ - I see, but cannot reach, the height That lies forever in the light.
+ - Sorrow and silence are strong, and patient endurance is godlike.
+ - To be left alone, and face to face with my own crime, had been just retribution.
+ - Think not because no man sees, such things will remain unseen.
+ - Softly the evening came. The sun from the western horizon Like a magician extended his golden want o’er the landscape; Trinkling vapors arose; and sky and water and forest Seemed all on fire at the touch, and melted and mingled together.
+ - Many have genius, but, wanting art, are forever dumb. The two must go together to form the great poet, painter, or sculptor.
+ - O thou sculptor, painter, poet! Take this lesson to thy heart: That is best which lieth nearest; Shape from that thy work of art.
+ - If we love one another, nothing, in truth, can harm us, whatever mischances may happen.
+ - Our blossoms of passion, gay and luxuriant flowers, are bright and full of fragrance, but they beguile us and lead us astray, and their odor is deadly.
+ - What discord should we bring into the universe if our prayers were all answered! Then we should govern the world, and not God. And do you think we should govern it better?
+ - Alas! it is not till time, with reckless hand, has torn out half the leaves from the Book of Human Life to light the fires of passion with from day to day, that man begins to see that the leaves which remain are few in number.
+ - But the nearer the dawn the darker the night, And by going wrong all things come right. Things have been mended that were worse, and the the worse, the nearer they are to mend.
+ - That which the fountain sends forth returns again to the fountain.
+ - Sweet April! many a thought Is wedded unto thee, as hearts are wed; Nor shall they fail, till, to its autumn brought, Life’s golden fruit is shed.
+ - O weary hearts! O slumbering eyes! O drooping souls, whose destinies Are fraught with fear and pain, Ye shall be loved again.
+ - The counterfeit and counterpart of Nature is reproduced in art.
+ - Dead he is not, but departed, for the artist never dies.
+ - Many a poem is marred by a superfluous word.
+ - Shepherds at the grange, Where the Babe was born, Sang with many a change, Christmas carols until morn.
+ - Very hot and still the air was, Very smooth the gliding river, Motionless the sleeping shadows.
+ - As to the pure mind all things are pure, so to the poetic mind all things are poetical.
+ - It was the schooner Hesperus, That sailed the wintry sea.
+ - Day, like a weary pilgrim, had reached the western gate of heaven, and Evening stooped down to unloose the latchets of his sandal shoon.
+ - Even the blackest of them all, the crow, Renders good service as your man-at-arms, Crushing the beetle in his coat of mail. And crying havoc on the slug and snail.
+ - But the good deed, through the ages Living in historic pages, Brighter grows and gleams immortal, Unconsumed by moth or rust.
+ - And in the wreck of noble lives Something immortal still survives.
+ - All the means of action – the shapeless masses – the materials – lie everywhere about us. What we need is the celestial fire to change the flint into the transparent crystal, bright and clear. That fire is genius.
+ - People of a lively imagination are generally curious, and always so when a little in love.
+ - And all the air is filled with pleasant noise of waters.
+ - In the mouths of many men soft words are like roses that soldiers put into the muzzles of their muskets on holidays.
+ - A man must be of a very quiet and happy nature, who can long endure the country; and, moreover, very well contented with his own insignificant person.
+ - How can I teach your children gentleness and mercy to the weak, and reverence for life, which in its nakedness and excess, is still a gleam of God’s omnipotence, when by your laws, your actions and your speech, you contradict the very things I teach?
+ - There is nothing perfectly secure but poverty.
+ - Were half the power that fills the world with terror, Were half the wealth bestowed on camps and courts, Given to redeem the human mind from error, There were no need of arsenals or forts.
+ - Difficulty on the way to victory is opportunity for God to work.
+ - The hooded clouds, like friars, Tell their beads in drops of rain.
+ - All things are symbols.
+ - All things are symbols: the external shows Of Nature have their image in the mind, As flowers and fruits and falling of the leaves.
+ - Something the heart must have to cherish, Must love and joy and sorrow learn; Something with passion clasp, or perish And in itself to ashes burn.
+ - As turning the logs will make a dull fire burn, so change of studies a dull brain.
+ - He had mittens, Minjekahwun, Magic mittens made of deer-skin; When upon his hands he wore them, He could smite the rocks asunder, He could grind them into powder.
+ - Many readers judge of the power of a book by the shock it gives their feelings – as some savage tribes determine the power of muskets by their recoil; that being considered best which fairly prostrates the purchaser.
+ - There’s not a ship that sails the ocean, But every climate, every soil, Must bring its tribute, great or small, And help to build the wooden wall!
+ - Youth wrenches the sceptre from old age, and sets the crown on its own head before it is entitled to it.
+ - We waste our best years in distilling the sweetest flowers of life into potions which, after all, do not immortalize, but only intoxicate.
+ - O holy trust! O endless sense of rest! Like the beloved John To lay his head upon the Saviour’s breast, And thus to journey on!
+ - The true poet is a friendly man. He takes to his arms even cold and inanimate things, and rejoices in his heart.
+ - The shadows of the mind are like those of the body. In the morning of life they all lie behind us; at noon we trample them under foot; and in the evening they stretch long, broad, and deepening before us.
+ - Fair words gladden so many a heart.
+ - My own thoughts Are my companions.
+ - The atmosphere breathes rest and comfort, and the many chambers seem full of welcomes.
+ - Perseverance is a great element of success.
+ - Many people do not allow their principles to take root, but pull them up every now and then, as children do the flowers they have planted, to see if they are growing.
+ - We see but dimly through the mists and vapors; Amid these earthly damps What seem to us but sad, funereal tapers May be heaven’s distant lamps.
+ - Ne speaketh not; and yet there lies a conversation in his eyes.
+ - Ah, the souls of those that die Are but sunbeams lifted higher.
+ - Bell, thou soundest merrily, When the bridal party To the church doth hie! Bell, thou soundest solemnly, When, on Sabbath morning, Fields deserted lie!
+ - The pleasant books, that silently among Our household treasures take familiar places, And are to us as if a living tongue Spake from the printed leaves or pictured faces!
+ - The sun is set; and in his latest beams Yon little cloud of ashen gray and gold, Slowly upon the amber air unrolled, The falling mantle of the Prophet seems.
+ - Sculpture is more than painting. It is greater To raise the dead to life than to create Phantoms that seem to live.
+ - People demand freedom only when they have no power.
+ - A boy’s will is the wind’s will.
+ - The student has his Rome, his Florence, his whole glowing Italy, within the four walls of his library. He has in his books the ruins of an antique world and the glories of a modern one.
+ - It is curious to note the old sea-margins of human thought! Each subsiding century reveals some new mystery; we build where monsters used to hide themselves.
+ - Saint Augustine! well hast thou said, That of our vices we can frame A ladder, if we will but tread Beneath our feet each deed of shame.
+ - All sense of hearing and of sight enfold in the serene delight and quietude of sleep.
+ - Now to rivulets from the mountains Point the rods of fortune-tellers; Youth perpetual dwells in fountains, Not in flasks, and casks, and cellars.
+ - It is difficult to know at what moment love begins; it is less difficult to know that it has begun.
+ - Prayer is innocence’s friend; and willingly flieth incessant ’twist the earth and the sky, the carrier-pigeon of heaven.
+ - Into a world unknown,-the corner-stone of a nation!
+ - One half the world must sweat and groan that the other half may dream.
+ - Ah, to build, to build! That is the noblest of all the arts.
+ - Who ne’er his bread in sorrow ate, Who ne’er the mournful midnight hours Weeping upon his bed has sate, He knows you not, ye Heavenly Powers.
+ - For bells are the voice of the church; They have tones that touch and search The hearts of young and old.
+ - The day is done; and slowly from the scene the stooping sun upgathers his spent shafts, and puts them back into his golden quiver!
+ - The morning pouring everywhere, its golden glory on the air.
+ - The poor too often turn away unheard, From hearts that shut against them with a sound That will be heard in heaven.
+ - With many readers, brilliancy of style passes for affluence of thought; they mistake buttercups in the grass for immeasurable gold mines under ground.
+ - A thought often makes us hotter than a fire.
+ - Our hearts are lamps for ever burning...
+ - Would you learn the secret of the sea? Only those who brave its dangers, comprehend its mystery!
+ - You would attain to the divine perfection.
+ - If the mind, that rules the body, ever so far forgets itself as to trample on its slave, the slave is never generous enough to forgive the injury, but will rise and smite the oppressor.
+ - Midnight! the outpost of advancing day! The frontier town and citadel of night!
+ - It is the heart and not the brain, That to the highest doth attain.
+ - Ah! What would the world be to us If the children were no more? We should dread the desert behind us Worse than the dark before.
+ - At first laying down, as a fact fundamental, That nothing with God can be accidental.
+ - When one is truly in love, one not only says it, but shows it.
+ - Evil is only good perverted.
+ - But ah! what once has been shall be no more! The groaning earth in travail and in pain Brings forth its races, but does not restore, And the dead nations never rise again.
+ - We often excuse our own want of philanthropy by giving the name of fanaticism to the more ardent zeal of others.
+ - Southward with fleet of ice Sailed the corsair Death; Wild and fast blew the blast, And the east-wind was his breath.
+ - Our pleasures and our discontents, Are rounds by which we may ascend.
+ - The strength of criticism lies in the weakness of the thing criticized.
+ - The trees are white with dust, that o’er their sleep Wave their broad curtains in the south-wind’s breath, While underneath such leafy tents they keep The long, mysterious Exodus of Death.
+ - Time, like a preacher in the days of the Puritans, turned the hour-glass on his high pulpit, the church belfry.
+ - The twilight that surrounds the border-land of old romance.
+ - I know not how it is, but during a voyage I collect books as a ship does barnacles.
+ - The swallow is come! The swallow is come! O, fair are the seasons, and light Are the days that she brings, With her dusky wings, And her bosom snowy white!
+ - The greatest grace of a gift, perhaps, is that it anticipates and admits of no return.
+ - A sermon is no sermon in which I cannot hear the heartbeat.
+ - O lovely eyes of azure, Clear as the waters of a brook that run Limpid and laughing in the summer sun!
+ - Some poems are like the Centaurs – a mingling of man and beast, and begotten of Ixion on a cloud.
+ - There is no flock, however watched and tended, but one dead lamb is there! There is no fireside howsoe’er defended, but has one vacant chair.
+ - Will without power is like children playing at soldiers.
+ - Love makes its record in deeper colors as we grow out of childhood into manhood; as the Emperors signed their names in green ink when under age, but when of age, in purple.
+ - It is a beautiful trait in the lover’s character, that they think no evil of the object loved.
+ - Safe from temptation, safe from sin’s pollution, She lives whom we call dead.
+ - Dost thou know what a hero is? Why, a hero is as much as one should say, a hero.
+ - Whoever benefits his enemy with straightforward intention that man’s enemies will soon fold their hands in devotion.
+ - Fear is the virtue of slaves; but the heart that loveth is willing.
+ - Some must follow and some command, through all are made oclay.
+ - I like that ancient Saxon phrase, which calls, The burial-ground God’s-Acre.
+ - I love thee, as the good love heaven.
+ - Morality without religion is only a kind of dead reckoning – an endeavor to find our place on a cloudy sea by measuring the distance we have run, but without any observation of the heavenly bodies.
+ - And the wind plays on those great sonorous harps, the shrouds and masts of ships.
+ - The secret studies of an author are the sunken piers upon which is to rest the bridge of his fame, spanning the dark waters of oblivion. They are out of sight, but without them no superstructure can stand secure.
+ - Fame comes only when deserved, and then is as inevitable as destiny, for it is destiny.
+ - The Wreck of the Hesperus But the father answered never a word, A frozen corpse was he.
+ - They are dead; but they live in each Patriot’s breast, And their names are engraven on honor’s bright crest.
+ - To say the least, a town life makes one more tolerant and liberal in one’s judgment of others.
+ - Our faith triumphant o’er our fears.
+ - Burn, O evening hearth, and waken Pleasant visions, as of old! Though the house by winds be shaken, Safe I keep this room of gold!
+ - History casts its shadow far into the land of song.
+ - My Book and Heart Shall never part.
+ - Thinking the deed, and not the creed, Would help us in our utmost need.
+ - By unseen hands uplifted in the light Of sunset, yonder solitary cloud Floats, with its white apparel blown abroad, And wafted up to heaven.
+ - Then fell upon the house a sudden gloom, a shadow on those features fair and thin. And softly, from the hushed and darkened room, two angels issued, where but one went in.
+ - How like they are to human things!
+ - Love is a bodily shape; and Christian works are no more than animate faith and love, as flowers are the animate springtide.
+ - Think of your woods and orchards without birds! Of empty nests that cling to boughs and beams As in an idiot’s brain remembered words Hang empty ’mid the cobwebs of his dreams!
+ - Oh, how short are the days! How soon the night overtakes us!
+ - In the long run men hit only what they aim at.
+ - There are favorable hours for reading a book, as for writing it.
+ - He looks the whole world in the face for he owes not any man.
+ - Spake full well, in language quaint and olden, One who dwelleth by the castled Rhine, When he called the flowers, so blue and golden, Stars, that in earth’s firmament do shine.
+ - That tree is very old, but I never saw prettier blossoms on it than it now bears. That tree grows new wood each year. Like that apple tree, I try to grow a new little wood each year.
+ - Each new epoch in life seems an encounter. There is a tussle and a cloud of dust, and we come out of it triumphant or crest-fallen, according as we have borne ourselves.
+ - They who live in history only seemed to walk the earth again.
+ - Every man is in some sort a failure to himself. No one ever reaches the heights to which he aspires.
+ - Nothing is or can be accidental with God.
+ - Truly, this world can get on without us, if we would but think so.
+ - It is true, that it is not at all necessary to love many books, in order to love them much.
+ - The first pressure of sorrow crushes out from our hearts the best wine; afterwards the constant weight of it brings forth bitterness, the taste and stain from the lees of the vat.
+ - Like black hulks the shadows of the great trees ride at anchor on the billowy sea of grass.
+ - Out of the shdows of night The world rolls into light.
+ - Love keeps the cold out better than a cloak.
+ - Day of the Lord, as all our days should be!
+ - Every great poem is in itself limited by necessity, but in its suggestions unlimited and infinite.
+ - Many readers judge of the power of a book by the shock it gives their feelings.
+ - The Helicon of too many poets is not a hill crowned with sunshine and visited by the Muses and the Graces, but an old, mouldering house, full of gloom and haunted by ghosts.
+ - None but yourself who are your greatest foe.
+ - I am more afraid of deserving criticism than of receiving it.
+ - For next to being a great poet is the power of understanding one.
+ - You know I say just what I think, and nothing more and less. I cannot say one thing and mean another.
+ - I love an author the more for having been himself a lover of books.
+ - The things that have been and shall be no more, The things that are, and that hereafter shall be, The things that might have been, and yet were not, The fading twilight of joys departed.
+ - Authors must not, like Chinese soldiers, expect to win victories by turning somersets in the air.
+ - Every human heart is human.
+ - The bravest are the tenderest.
+ - Two ways the rivers Leap down to different seas, and as they roll Grow deep and still, and their majestic presence Becomes a benefaction to the towns They visit, wandering silently among them, Like patriarchs old among their shining tents.
+ - Many critics are like woodpeckers, who, instead of enjoying the fruit and shadow of a tree, hop incessantly around the trunk, pecking holes in the bark to discover some little worm or other.
+ - Today is the blocks with which we build.
+ - A solid man of Boston; A comfortable man with dividends, And the first salmon and the first green peas.
+ - No literature is complete until the language it was written in is dead.
+ - Each morning sees some task begin, each evening sees it close.
+ - Look upon the errors of others in sorrow, not in anger.
+ - It is foolish to pretend that one is fully recovered from a disappointed passion. Such wounds always leave a scar.
+ - My soul is full of longing for the secret of the sea.
+ - Trouble is the next best thing to enjoyment; there is no fate in the world so horrible as to have no share in either its joys or sorrows.
+ - Life is the gift of God, and is divine.
+ - All that is best in the great poets of all countries is not what is national in them, but what is universal.
+ - Let us be merciful as well as just.
+ - The market-place, the eager love of gain, Whose aim is vanity, and whose end is pain!
+ - A town that boasts inhabitants like me Can have no lack of good society.
+ - What child has a heart to sing in this capricious clime of ours, when spring comes sailing in from the sea, with wet and heavy cloud-sails and the misty pennon of the east-wind nailed to the mast.
+ - A life that is worth writing at all is worth writing minutely.
+ - The picture that approaches sculpture nearest Is the best picture.
+ - Fame grows like a tree if it have the principle of growth in it; the accumulated dews of ages freshen its leaves.
+ - The heaven of poetry and romance still lies around us and within us.
+ - The air is full of farewells to the dying. And mournings for the dead.
+ - Every man has a paradise around him till he sins, and the angel of an accusing conscience drives him from his Eden.
+ - If you once understand an author’s character, the comprehension of his writings becomes easy.
+ - Peace! and no longer from its brazen portals The blast of War’s great organ shakes the skies! But beautiful as songs of the immortals, The holy melodies of love arise.
+ - From labor there shall come forth rest.
+
+500 quotes

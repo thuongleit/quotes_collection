@@ -1,0 +1,29 @@
+ - I have a vision of the world as a global village, a world without boundaries.
+ - May your future be limited only by your dreams!
+ - Reach for it. Push yourself as far as you can.
+ - What are we doing here? We’re reaching for the stars!
+ - I really don’t want to say goodbye to any of you people.
+ - Space is for everybody. It’s not just for a few people in science or math, or for a select group of astronauts. That’s our new frontier out there, and it’s everybody’s business to know about space.
+ - You have to dream. We all have to dream. Dreaming is OK. Imagine me teaching from space, all over the world, touching so many peoples lives. Thats a teachers dream! I have a vision of the world as a global village, a world without boundaries. Imagine a history teacher making history!
+ - I have the LIFE magazine of the men walking on the moon.
+ - When I’m 60, maybe, I’ll look at my pile of papers and wonder, What really happened that year?
+ - I cannot join the space program and restart my life as an astronaut, but this opportunity to connect my abilities as an educator with my interests in history and space is a unique opportunity to fulfill my early fantasies.
+ - Just as the pioneer travelers of the Conestoga wagon days kept personal journals, I, as a pioneer space traveler, would do the same.
+ - If anything happened, I think my husband would have to deal with that as the time came.
+ - My sympathies have always been for working-class people.
+ - I will go around the space shuttle and give a guided tour of the major areas and describe what is done in each area. This will be called The Ultimate Field Trip.
+ - Every shuttle mission’s been successful.
+ - Space is going to be commonplace.
+ - Sometimes when things get kind of frantic, it helps to call my husband Steve, because I think he’s got a real good sense of where everything’s gonna be in a few years.
+ - I can remember in early elementary school when the Russians launched the first satellite. There was still so much unknown about space. People thought Mars was probably populated.
+ - NASA was going to pick a public school teacher to go into space, observe and make a journal about the space flight, and I am a teacher who always dreamed of going up into space.
+ - No teacher has ever been better prepared to teach a lesson.
+ - I will have a one-hour program called the Mission Watch, where I will describe details of the mission and give additional information about the lessons from space.
+ - My job in space will be to observe and write a journal. I am also going to be teaching a class for students on earth about life in space and on the space shuttle and conducting experiments.
+ - It’s not the Olympics. It’s Concord, New Hampshire, and a homecoming should reflect the community I’m part of.
+ - The president felt that it was important to send an ordinary citizen to experience the excitement of space travel as a representative for all Americans.
+ - I told them how excited I would be to go into space and how thrilled I was when Alan Shepard made his historic flight, and when John Kennedy announced on the news that the men had landed safely on the moon, and how jealous I was of those men.
+ - If I can get some student interested in science, if I can show members of the general public what’s going on up there in the space program, then my job’s been done.
+ - If anything, the overriding emotion is gonna just be excitement.
+
+27 quotes

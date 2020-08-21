@@ -1,0 +1,157 @@
+ - Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway.
+ - We become what we think about.
+ - Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become a reality.
+ - Everything begins with an idea.
+ - If you spend an extra hour each day of study in your chosen field you will be a national expert in that field in five years or less.
+ - Success is the progressive realization of a worthy goal or ideal.
+ - We become what we think about most of the time, and that’s the strangest secret.
+ - Dream what you dare to dream. Go where you want to go. Be what you want to be.
+ - Don’t let the fear of the time it will take to accomplish something stand in the way of your doing it. The time will pass anyway; we might just as well put that passing time to the best possible use.
+ - Don’t wait for change. You change.
+ - Most people tiptoe their way through life, hoping they make it safely to death.
+ - People with goals succeed because they know where they’re going.
+ - All you need is the plan, the road map, and the courage to press on to your destination.
+ - The strangest secret in the world is that you become what you think about.
+ - Control your thoughts. Decide about that which you will think and concentrate upon. You are in charge of your life to the degree you take charge of your thoughts.
+ - Learn to enjoy every minute of your life. Be happy now.
+ - Success is not the result of making money; earning money is the result of success – and success is in direct proportion to our service.
+ - Instead of competing, all we have to do is create.
+ - Your world is a living expression of how you are using and have used your mind.
+ - Our attitude towards others determines their attitude towards us.
+ - We are all self-made, but only the successful will admit it.
+ - Luck is when preparedness meets opportunity.
+ - A great attitude is not the result of success; success is the result of a great attitude.
+ - Perseverance is another word for faith!
+ - Excellence always sells.
+ - Preparation for life is so important. Luck is what happens when preparedness meets opportunity. Opportunity is all around us. Are you prepared?
+ - All you have to do is hold your goal before you and everything else will take care of itself.
+ - Our rewards in life will always be in exact proportion to the amount of consideration we show toward others.
+ - Our environment, the world in which we live and work, is a mirror of our attitudes and expectations.
+ - Visualization is the human being’s vehicle to the future – good, bad, or indifferent. It’s strictly in our control.
+ - If a person will spend one hour a day on the same subject for five years, that person will be an expert on that subject.
+ - We will receive not what we idly wish for but what we justly earn. Our rewards will always be in exact proportion to our service.
+ - Your rewards in life are in direct proportion to your service.
+ - Be happy now. Don’t wait for something outside of yourself to make you happy in the future.
+ - If the average person realized the power he wields over his life and destiny, he would live in a perpetual state of wonder and thanksgiving.
+ - Your world and everything in it is a reflection of your own mental attitude toward yourself.
+ - Watch what everyone else does – do the opposite. The majority is always wrong.
+ - The picture you have of yourself, your self-esteem, will have a profound effect on the way you see the world and the way your world sees you.
+ - Never compete, create.
+ - By being persistent, you’re demonstrating faith. Persistence is simply another word for faith. If you didn’t have faith, you’d never persist.
+ - Everything that’s really worthwhile in life comes to us free – our minds, our souls, our bodies, our hopes, our dreams, our intelligence, our love of family and friends and country. All of these priceless possessions are free.
+ - One thing a goal must do is fill us with positive emotion when we think about it. The more intensely we feel about a goal the more progressively we’ll move toward it.
+ - Your rewards, all the years of your life, will be in precise proportion to your service. You are here to serve others, just as they serve you.
+ - People don’t have great attitudes because of great success, they have great success largely because of great attitudes.
+ - Ask yourself every morning, ‘how can I increase my service today?’
+ - Chance does not work. Only choice will work. Your choice!
+ - The mind moves in the direction of our currently dominant thoughts.
+ - Your rewards will be determined by the extent of your contribution, that is your service to others.
+ - We are all creatures of habit. We can do most things without even thinking about them; our bodies take charge and do them for us.
+ - The more intensely we feel about an idea or a goal, the more assuredly the idea, buried deep in our subconscious, will direct us along the path to its fulfillment.
+ - Every one of us is the sum total of his own thoughts.
+ - Whatever the majority of people is doing, under any given circumstances, if you do the exact opposite, you will probably never make another mistake as long as you live.
+ - Your problem is to bridge the gap which exists between where you are now and the goal you intend to reach.
+ - Attitude is the reflection of a person, and our world mirrors our attitude.
+ - What’s going on in the inside shows on the outside.
+ - Strange and marvelous things will happen with constant regularity as you alter your life and begin living in harmony with the laws of the universe.
+ - How can I be of the greatest service doing that which I most enjoy doing?
+ - All you have to do is know where you’re going. The answers will come to you of their own accord.
+ - Don’t take the attitude of waiting for people to be nice to you – be nice to them. Don’t sit in front of a cold stove waiting for the heat. Put in the fuel. Act first.
+ - The greatest thing on earth is a good idea!
+ - The amount of money we receive will always be in direct ratio to the demand for what we do; our ability to do it; and the difficulty in replacing us.
+ - Happiness comes to those who are moving toward something they want very much to happen. And it almost always involves making someone else happy.
+ - You can’t get rich unless you EN-rich.
+ - A great attitude does much more than turn on the lights in our worlds; it seems to magically connect us to all sorts of serendipitous opportunities that were somehow absent before the change.
+ - Goals reflect your choice of destination.
+ - Problems are challenges to creative minds. Without problems, there would be little reason to think at all.
+ - Shooting for the top will bring out the best that’s in you.
+ - Without a goal we are much like the man with a boat and nowhere to go. Goals give us the drive and energy we need to remain on track long enough for their accomplishment.
+ - Be positive, cheerful, grateful and expectant.
+ - Getting rich, or becoming outstanding at anything is all a matter of attitude. You must make up your mind once and for all – you commit yourself – and then just stay with it until you finally have what you set out to get.
+ - We tend to live up to our expectations.
+ - Get into a line that you will find to be a deep personal interest, something you really enjoy spending twelve to fifteen hours a day working at, and the rest of the time thinking about.
+ - A rut is a grave with the ends kicked out.
+ - I’m grateful for the opportunity to live on this beautiful and astonishing planet Earth. In the morning, I wake up with a sense of gratitude.
+ - If the grass is greener on the other side it’s probably getting better care. Success is a matter of sticking to a set of common sense principles anyone can master.
+ - The man who succeeds above his fellows is the one who early in life clearly discerns his object, and towards that object habitually directs his powers.
+ - In doing that which we most enjoy, we will probably make our most significant contribution to society, and the contribution we make to society determines our rewards.
+ - Security isn’t what the wise person looks for; it’s opportunity. And once we begin looking for that, we find it on every side. You can measure opportunity with the same yardstick that measures the risk involved. They go together.
+ - No man can get rich himself unless he enriches others.
+ - Wherever there is danger, there lurks opportunity; whenever there is opportunity, there lurks danger. The two are inseparable. They go together.
+ - Each of us creates his or her own life largely by our attitude.
+ - As in all successful ventures, the foundation of a good retirement is planning.
+ - A person who does not read is no better than one cannot read.
+ - To acheive happiness, we should make certain that we are never without an important goal.
+ - Everything you and I will ever have will come to us as the result of the way we use our minds, the one thing we possess that makes us different from all other creatures.
+ - It’s never too late, for with a purpose, a worthy goal and a motivation to reach those upper layers on the pyramid, a person can travel further in a few years than he might otherwise travel in a lifetime.
+ - The only person who succeeds is the person who is progressively realizing a worthy ideal. That’s the person who says, ‘I’m going to become this’ and then begins to work toward that goal.
+ - Money is the harvest of our production and service. We in turn use it to obtain the production and service of others.
+ - You are responsible for how your life turns out, and your attitude shapes that life for better or worse.
+ - Every great accomplishment of mankind has been preceded by an extended period, often over many years, of concentrated effort.
+ - To give oneself is the only way of becoming oneself.
+ - Any person who contributes to prosperity must prosper in turn.
+ - Do what experts since the dawn of recorded history have told you you must do: pay the price by becoming the person you want to become. It’s not nearly as difficult as living unsuccessfully.
+ - Mistakes are a natural part of growing up. They’re to be expected and made light of. But children bloom like spring flowers under praise. They want so much to be noticed and appreciated, to excel and have that excellence noticed.
+ - Real evils can be either cured or endured; it is only imaginary evils that make people anxiety-ridden for a lifetime.
+ - Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace.
+ - Executive ability is deciding quickly and getting somebody else to do the work.
+ - To become successful and outstanding at something, we don’t have to come up with something new; we need only find ways of doing it better.
+ - The person with just one good idea is a thousand times better off than the person with no good ideas.
+ - If we can augment our gift giving by giving more of ourselves to those we love, all the time and in various ways, we will have a good chance of helping them and ourselves live happier, better lives.
+ - Most people begin their day in neutral. They will simply react to whatever confronts them.
+ - The biggest mistake that you can make is to believe that you are working for somebody else. Job security is gone. The driving force of a career must come from the individual. Remember: Jobs are owned by the company, you own your career!
+ - You are, at this moment, standing, right in the middle of your own ‘acres of diamonds.’
+ - If you don’t have a good model for success, just look at what everybody else is doing and do the opposite.
+ - Picture yourself in your minds eye as having already achieved this goal. See yourself doing the things you’ll be doing when you’ve reached your goal.
+ - What happens inside always appears outside.
+ - Whenever we’re afraid, it’s because we don’t know enough. If we understood enough, we would never be afraid.
+ - Each of us must live off the fruit of his thoughts in the future, because what you think today and tomorrow, next month and next year, you will mold your life and determine your future. You are guided by your mind.
+ - We may avoid the laws of man, but there are greater laws that can’t be broken.
+ - People can and do change.
+ - We can help others in the world more by making the most of yourself than in any other way.
+ - When the days are too short, chances are you are living at your best.
+ - We can let circumstances rule us, or we can take charge and rule our lives from within.
+ - The key that unlocks energy is desire. It’s also the key to a long and interesting life. If we expect to create any drive, any real force within ourselves, we have to get excited.
+ - Most people think they want more money than they really do, and they settle for a lot less than they could get.
+ - Successful people form the habit of doing what failures don’t like to do. They like the results they get by doing what they don’t necessarily enjoy.
+ - Creativity is a natural extension of our enthusiasm.
+ - Achievement requires more than a vision – it takes courage, resolve and tenacity. All you have got to do is plant that seed in your mind, care for it, work steadily toward your goal, and it will become a reality.
+ - You must radiate success before it’ll come to you.
+ - Self-pity is an acid which eats holes in happiness.
+ - You’ll find boredom where there is the absence of a good idea.
+ - The biggest mistake that you can make is to believe that you are working for somebody else.
+ - We must radiate success before it will come to us. We must first become mentally, from an attitude standpoint, the people we wish to become.
+ - Am I motivated by what I really want out of life – or am I mass-motivated?
+ - People are where they are because that is exactly where they really want to be – whether they will admit that or not.
+ - We’ve got to be of service first before we can expect money.
+ - If you’ll begin to develop and maintain an attitude that says yes to life and the world, you’ll be astonished at the changes you’ll see.
+ - If we only knew that we could have anything we wanted we would set more goals.
+ - Everything that’s really worthwhile in life comes to us.
+ - You can control your attitude. Set it each morning.
+ - That’s the secret: be interesting. If you can’t be interesting, shut up. There’s nothing wrong with silence.
+ - The only thing about a man that is a man is his mind.
+ - Open your ears before you open your mouth, it may surprise your eyes!
+ - Always keep that happy attitude. Pretend that you are holding a beautiful fragrant bouquet.
+ - Every minute should be enjoyed and savored.
+ - If a person is working toward a predetermined goal and knows where to go, then that person is successful. If a person does not know which direction they want to go in life, then that person is a failure.
+ - With every adversity, there is an equal or greater gift. Keep looking for the gift.
+ - Everything in the world we want to do or get done, we must do with and through people.
+ - Ideas are elusive, slippery things. Best to keep a pad of paper and a pencil at your bedside, so you can stab them during the night before they get away.
+ - A single thought can revolutionize your life as it did mine. A single thought can make you rich or it can land you in prison for the rest of your life.
+ - If honesty did not exist, it would have to be invented, as it is the surest way of getting rich.
+ - With courage you can stay with something long enough to succeed at it.
+ - It is in the expectations of happiness that much of happiness itself is found. And it takes courage to expect happiness.
+ - Find what you can do best that renders service to others and do it with all your might.
+ - If your attitude toward the world is good, you will obtain good results. If your attitude is excellent, excellent will your results.
+ - Don’t catch the bad and infectious attitudes of others.
+ - The key that unlocks energy is desire.
+ - These people get to the top because they have to, because inside them burns a dream too big, too ever present, too demanding to be denied.
+ - Just one great idea can completely revolutionize your life.
+ - The best way to help a man increase his output is to help build the man. Help him increase his stature as a man, and he will just naturally do better-on the job and off.
+ - Security isn’t what the wise person looks for – it’s opportunity.
+ - Every-time we use a product or service, someone is serving us.
+ - A success is anyone who is doing deliberately a pre-determined job, because that’s what he decided to do deliberately. But only one out of twenty does that.
+ - The big thing is that you know what you want.
+ - There is no limit on earnings.
+
+155 quotes

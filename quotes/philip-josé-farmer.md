@@ -1,0 +1,32 @@
+ - Imagination is like a muscle. I found out that the more I wrote, the bigger it got.
+ - Confucius once said that a bear could not fart at the North Pole without causing a big wind in Chicago.
+ - By this he meant that all events, therefore, all men, are interconnected in an unbreakable web. What man does, no matter how seemingly insignificant, vibrates through the strands and affects every man.
+ - Despite my vast interest in other universes and new ideas and space, travel and time travel, which by the way I think is impossible, the basic thing is human character, which is the main thing of most writers.
+ - Everybody should fear only one person, and that person should be himself .
+ - All the human beings I met were either sure that there would be no afterlife or else that they would get preferential treatment in the hereafter.
+ - Tomorrow changes the face of reality.
+ - The brain, knowing that a person can’t live forever in this world, rationalizes a future, or other-dimensional, world in which immortality is possible. In other words, religion is the earliest form of science fiction.
+ - As science pushes forward, ignorance and superstition gallop around the flanks and bite science in the rear with big dark teeth.
+ - Human beings are part of nature. Anything they do is natural. It’s impossible for anything in nature to do anything unnatural.
+ - Can imagination act Perpendicular to fact? Can it be a kite that flies Till the Earth, umbrella-wise, Folds and drops away from sight?
+ - Sawbeaked epitome of bodiless Idea, tossed by gusts of ether, dive Through abstract mists and raid the sea of fact Eat rich strange fish, grow long bright feathers, press Form’s flesh around thought’s rib, and so derive From the act of beauty, beauty of the act.
+ - Resurrection, like politics, makes strange bedfellows.
+ - This story is about love, which means that it is also about hate.
+ - Give us power, give us light To holdall love within our breast’s small space.
+ - Reader, pray that soon this Iron Age Will crumble, and Beauty escape the rusting cage.
+ - Now we have lit a candle to the power Of atoms; now we know we’re heirs of light Itself...
+ - It was a shameful thing that she had nothing of which to be ashamed.
+ - Burton did not believe in miracles. Nothing happened that could not be explained by physical principles if you knew all the facts .
+ - Dullard: Someone who looks up a thing in the encyclopedia, turns directly to the entry, reads it, and then closes the book.
+ - Strong blasphemers thrive only when strong believers thrive.
+ - Burton, though an infidel, made it his business to investigate thoroughly every religion. Know a man’s faith, and you knew at least half the man. Know his wife, and you knew the other half.
+ - The stars above will be below when man has Love.
+ - By now you must have accepted the fact that your religion, in fact, none of the Earthly religions, truly knew what the afterlife would be. All made guesses, and then established these as articles of faith. Though, in a sense, some were near the mark, if you accept their revelations as symbolic .
+ - Miles above the Earth we know, Fancy’s rocket roars. Below, Here and Now are needles which Sew a pattern black as pitch, Waiting for the rocket’s light.
+ - Nature is an experimenter.
+ - Let those who think the soul is shallow rail, They must be warned before they dare to leap They’ll plunge into the twilight depths where sweep In ceaseless thirst great teeth too swift to fail.
+ - Caught Beauty, held to light, now apes A good, now evil, thing the shifting sign And spectrum of archaic, psychic shapes.
+ - There are Universes begging for Gods, yet he hangs around this one looking for work.
+ - Dreams haunted The Riverworld.
+
+30 quotes

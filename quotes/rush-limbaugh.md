@@ -1,0 +1,502 @@
+ - The American dream has now morphed into an expectation. And if it isn’t provided, or if it doesn’t happen, then people feel cheated.
+ - If you want to make a Conservative angry, tell him a lie. If you want to make a Liberal angry, tell him the truth.
+ - America guarantees equal opportunity, not equal outcome.
+ - Character matters; leadership descends from character.
+ - The Democrats need poor, dependent people if they’re gonna stay in business. And if we don’t have enough poverty at home, we’ll import it. That’s what our open-borders policy is: It’s about importing poverty and importing the number of potential registered voters for the Democrat party.
+ - There’s no such thing as equality. No two people are the same. You will not have the same clothes.
+ - To change the media, you’re gonna have to totally throw out every journalism school and get rid of everybody in every newsroom, and then you’re gonna have to change the grade school and middle school and high school curriculum.
+ - There is one other business where the customer is always wrong and that’s the media.
+ - Liberals attempt through judicial activism what they cannot win at the ballot box.
+ - We had had mass immigration from the late 1800s all the way through the early 1900s to the 1920s, and we had to pause the immigration in order to for the new arrivals to assimilate, to become Americans, to learn English, for one thing. The one thing – or not the one; there are many different things.
+ - People who stand in the “middle-of-the-road” get run over.
+ - Poverty is not the root cause of crime.
+ - Innocent people never deserve to die no matter what.
+ - In my mind, there’s nothing wrong with it. I don’t instinctively know what’s wrong with it. There is a language of the ghetto. There is a language of the barrio. And it’s not good. There is an attitude. There is a behavior. There is a mindset and we wouldn’t anybody to be stuck in it.
+ - President Erdogan is aiming Turkey at a Sharia nation. That’s where he wants to go. He is a Sharia law, full-fledged, one percent Islamist.
+ - How can people be so stupid? I marvel at that. See, I think you have to work as being ignorant – and if you’re gonna work at being ignorant, why not work at being informed?
+ - What we need to do is stop global warming; that’s the only way to stop your peanut butter cups from melting. And if that doesn’t do the trick, then put them in the fridge. Or better yet, eat them.
+ - The world’s biggest problem is the unequal distribution of capitalism. If there were capitalism everywhere, you wouldn’t have food shortages.
+ - They’re 12 percent of the population. Who the hell cares?
+ - Everything about the left is perception, manipulation, and lies. Everything. Everything is ‘Wag the Dog.’ Everything is a structured deception.
+ - No nation ever taxed itself into prosperity.
+ - Basic Economics 101. It’s the most complicated simple subject there is.
+ - The cookie-cutter liberal, the standard operating procedure liberal, is really a giant ignoramus. I mean that seriously. They’re really ignorant.
+ - Compassion is no substitute for justice.
+ - Liberals get credit for good intentions, and that’s about it, because everything they do fails.
+ - The only way liberals win national elections is by pretending they’re not liberals.
+ - That’s the definition of ‘success’ for the modern Democrat Party. As many people dependent on government as possible is the objective.
+ - What about feeling sorry for those who pay the taxes? Those who are people that no one feels sorry for. They are asked to give and give until they have no more to give. And when they say ‘enough,’ they are called selfish.
+ - This is a hallmark trait of the left. There is never any effort to elevate anybody. Liberalism is all about tearing down. Liberalism is all about lowering. It is all about destroying ’em.
+ - Feminists want to be treated as equals, but at the same time they want special treatment.
+ - I have to tell you, every day is a roller coaster.
+ - If you’re going to run around, Ms. Pelosi, and you’re going to say Republicans like the war, then can we also assume that Democrats like killing babies? Put that in whatever it is you smoke, Ms. Pelosi, and have fun with it.
+ - A United States collapse would be much different than a Greece collapse. Greece can collapse, and there’s a ripple. We collapse, and the world feels it.
+ - Do you know what the primary infrastructure of the United States actually is, ladies and gentlemen? It’s freedom – freedom and liberty – and that infrastructure certainly does need some rebuilding.
+ - Most men would love to be stared at by women. Don’t doubt me on this. And my guess is that most women are actually intrigued by it and have developed techniques and skills for dealing with it. Don’t doubt me.
+ - Cholesterol has nothing to do with heart disease. Nothing wrong with saturated fats.
+ - Kurt Cobain was, ladies and gentleman, I just – he was a worthless shred of human debris...
+ - Throwing money at problems never solved anything!
+ - Styrofoam and plastic milk jugs are biodegradable! Do you know what isn’t biodegradable? Paper!
+ - We’re not sexists, we’re chauvinists – we’re male chauvinist pigs, and we’re happy to be because we think that’s what men were destined to be. We think that’s what women want.
+ - Being stuck is a position few of us like. We want something new but cannot let go of the old – old ideas, beliefs, habits, even thoughts. We are out of contact with our own genius. Sometimes we know we are stuck; sometimes we don’t. In both cases we have to DO something.
+ - People have called Christopher Columbus horrible, racist, a psycho-maniac killer and a slave owner.
+ - The truth of anything doesn’t matter anymore. What’s right doesn’t matter. What makes economic common sense doesn’t matter. I’m blue in the face over it.
+ - I tell people don’t kill all the liberals. Leave enough so we can have two on every campus – living fossils – so we will never forget what these people stood for.
+ - Money is the mother’s milk of everything, and it certainly is the mother’s milk of politics.
+ - I have no interest in being wrong, so if I am, please correct me. I don’t want to be wrong. There’s nothing in it for you or for me to be wrong.
+ - Capitalism is always evaluated against dreams. Utopia is a dream. It doesn’t exist.
+ - We’re throwing money down a rat hole drain of public education! We lead the world in public education spending. We lead the world in getting the least for it.
+ - Why doesn’t pope say to every Mexican living in America, “Go back to Mexico! That’s your home! Socialism is preferable.” Why does he want them to stay? Because they are going to convert this place, folks. That’s what this is all about.
+ - The Democrats, the left has this 30-year playbook of how to destroy conservatives by simply exposing the horrible, the mean-spirited, insensitive things they say, but that isn’t going to work on Trump the way it works on conservatives, for a whole host of reasons.
+ - Football is like life and I know life.
+ - He’s one fry short of a Happy Meal.
+ - Even when I think I’m wrong I’m right. I am all-knowing.
+ - The only way to reduce the number of nuclear weapons is to use them.
+ - From 1924 to 1965, 41 years, essentially, there was no immigration. Try telling people that in the midst of this debate and they won’t believe you. They’ll think you’re making it up. They’ll think you’re lying about it.
+ - Our leaders today cannot be honest about Islam with us. They will not even use the term “Islamic terrorism,” “radical Islam.”
+ - Morality is not defined and cannot be defined by individual choice.
+ - The truth does not require a majority to prevail, ladies and gentlemen. The truth is its own power. The truth will out. Never forget that.
+ - Children need love and discipline. They need mothers and fathers. A welfare check is not a husband. The state is not a father.
+ - I don’t have an ego that makes me believe the world revolves around me. I am not self-absorbed.
+ - I don’t care if they’re Republican liberals or Democrat liberals, they’re still liberals. They’re not ‘moderates.’ Don’t hit me with that. There’s no such thing as a moderate. A moderate is just a liberal disguise.
+ - The culture war is between the winners and those who think they’re losers who want to become winners. The losers think the only way they can become winners is by banding together all the losers and them empowering a leader of the losers to make things right for them.
+ - Socks is the White House cat. But did you know there is also a White House dog?
+ - If you hit minorities they’re gonna blame conservatives, Second Amendment, guns, and the terrorists won’t get their due credit. So from now on acts of terror, only hit white people, because hate crimes against them are permitted, and the media will play it up.
+ - I love being a conservative. We conservatives are proud of our philosophy. Unlike our liberal friends, who are constantly looking for new words to conceal their true beliefs and are in a perpetual state of reinvention, we conservatives are unapologetic about our ideals.
+ - What’s the difference between a liberal and a conservative? A liberal will interpret the constitution, a conservative will quote it!
+ - Radical feminism, male lesbians, transsexuals, musical condoms with suspenders, and lotsa drummers drumming are all manifestations of a political agenda with roots in the 1960s. This is all fruit we are reaping from the sexual revolution.
+ - The attitude of the Democrat Party is that wherever there are Republicans they are so bad, they are so discriminatory, they are so racist, they’re so bigoted, they’re just such reprobates that we can’t afford to let them have any say whatsoever in what’s happening.
+ - The NAACP should have riot rehearsal. They should get a liquor store and practice robberies.
+ - Love is the only human emotion that cannot be controlled.
+ - Feminism was established to allow unattractive women easier access to the mainstream.
+ - What better way to head off more oil drilling, nuclear plants, than by blowing up a rig? I’m just noting the timing, here.
+ - We live in a world of intolerance masked as tolerance.
+ - Liberalism is a scourge. It destroys the human spirit. It destroys prosperity. It assigns sameness to everybody. And wherever I find it, I oppose it.
+ - Immigration, as promoted by the Democrat Party, really is a voter registration drive, pure and simple. It is a desire by the Democrat Party to find another way to remain in perpetual power, by creating as many dependent voters as they can.
+ - Let me tell you who we conservatives are: we love people. When we look out over the United States of America, when we are anywhere, when we see a group of people, such as this or anywhere, we see Americans. We see human beings. We don’t see groups. We don’t see victims.
+ - I don’t have time to beat around the bush. The health-care plan as proposed by Mrs. Clinton is socialism. There’s no soft way to peddle it. There is not other way to describe it.
+ - Rights are either God-given or evolve out of the democratic process. Most rights are based on the ability of people to agree on a social contract, the ability to make and keep agreements.
+ - I’m a huge supporter of women. What I’m not is a supporter of liberalism. Feminism is what I oppose. Feminism has led women astray. I love the women’s movement – especially when walking behind it.
+ - I’m talking about just as an ongoing, everyday matter of daily life, one of the most destructive things if not the most is radical liberalism, leftism. And it is clear that they are making great strides in corrupting once-great institutions and once-great traditions.
+ - Most people grow up thinking everybody wants to come to America because America is the sweet spot of the planet. America is the greatest place in the world – which it is – and everybody wants to be here.
+ - The Democrats can engage in the most reprehensible, mean-spirited, vile, vicious verbal attacks known in politics, and they get praised for it.
+ - American exceptionalism, in the broad sense, is not a bunch of braggadocious words people say, “Yeah, we’re better people. We have a better country. We are higher class people.” That’s not what it is. America was the exception to the way human beings prior to America, most of which lived.
+ - Columbus saved the Indians from themselves.
+ - Trump is an internet troll.
+ - You do not have to incriminate yourself. But once you assert your innocence, and once you say you didn’t do anything wrong, you can’t then use the Fifth Amendment to say, ‘I’m not answering questions.’
+ - There isn’t anything you can expose Trump on that people don’t already know and haven’t already accepted.
+ - You want at least 5% of the population being serious. That five, 6% of the population carries the rest of the people. You’ve heard that old axiom: 5% of the people pull the wagon; 95% are in it.
+ - Why do I think the polls were wrong? People were relying on the pollsters. There was “the Brexit Effect.” I think there’s a Trump Effect, too. I think people are lying to the pollsters about Trump. There isn’t any question about it.
+ - Any new gun control is simply gonna infringe on the law-abiding ability to exercise constitutional rights. There’s not a single law that could be written, that has been written, that could be passed that would stop Omar Mateen from getting a gun and shooting people up.
+ - Do you know we have more acreage of forest land in the United States today than we did at the time the Constitution was written.
+ - There are more American Indians alive today than there were when Columbus arrived or at any other time in history. Does this sound like a record of genocide?
+ - Ladies, if you want a happy marriage, then do whatever your husband tells you without questioning his authority.
+ - She sounds like a screeching ex-wife.
+ - Liberals like to achieve fairness by spreading the misery. Conservatives seek to expand opportunity.
+ - I used to have a phrase: Liberalism is spreading misery equally. And now the ruling class throughout Washington seems to have adopted this.
+ - Young people, those who think they’re experts in science, there’s no doubt. They just believe it, and so there has to be an explanation – and whatever man is doing has caused the jet stream to slow down, and that is permitting the polar vortex.
+ - There are smart people on our side of the aisle who have known as early as I did who Obama was and should have been saying ‘I hope this guy fails’ right along with me. There should have been opposition to this guy all along.
+ - Would you pull the lever for yourself, Ben Affleck? What has Barack Obama meant to your movie career, Ben?
+ - The more dependent you are, the more ignorant you must be, and that’s how they want you.
+ - When a poll is really, really out of whack with what I want to happen, I do have a tendency to disregard it.
+ - Nobody gives you money for nothing, and that’s the lesson with the Clintons. Nobody gives you money because they like you.
+ - Cap and trade is a sledge hammer to freedom.
+ - If you compare charitable donations, you name it, religious tithing, giving, Americans trump citizens of the world hands down.
+ - Every aspect of Obamacare is an affront to the very founding of this country.
+ - Why is freedom such a hard sell? That’s the question. In this country, why has the idea of individual liberty and responsibility become such a hard sell? That’s something I never thought would happen here.
+ - Banning prayer in school in effect made God unconstitutional.
+ - The Founding Fathers are not just some people that happened to get mad a long time ago and want their freedom. They were special people in addition to what their natural yearnings were.
+ - Here comes the pope saying, “Well, that may be true about Cruz, but you build walls, and we Christians don’t do that. So you’re not a Christian, either.” Sometimes all you can do is chuckle. I mean, you need a break from it some. You just can’t be intense and wadded up all the time here, folks.
+ - I must be honest. I can only read so many paragraphs of a New York Times story before I puke.
+ - I am addicted to prescription pain medication.
+ - Liberals want the government to get bigger, and they want you to drive smaller cars, and they want to dictate the way you live.
+ - Look it, let me put it to you this way. The NFL all too often looks like a game between the Bloods and the Crips without any weapons. There, I said it.
+ - The idea of going back to college scares me, and I didn’t even go. I went to college for one year, two semesters. If you add up the total time, I probably didn’t even go one semester.
+ - If Recep Tayyip Erdogan cannot placate ISIS, how are we ever gonna be able to? And placate is clearly what John Kerry, who once served in Vietnam, and Barack Hussein O and Hillary Clinton think is the only thing we have to do is placate them. Because we’re at fault, see.
+ - Liberals don’t believe that ordinary people can do extraordinary things. If they promoted that, there’d be no need for liberalism.
+ - Liberals are some of the most arrogant, condescending smart alecks, but they’re just pure ignorant, and they fit the bill of people who have no love and no respect for the founding of this country.
+ - A Democrat hypocrite will never get harmed.
+ - I’ll say something else about Christine O’Donnell. You ready? I’d rather look at her than Mike Castle. I think she’s kind of cute. I think she’s kind of refreshing. She’s a conservative. What’s the problem?
+ - Illegal immigrants are people that have very little education. They are mostly people who are very poor. They arrive needing government assistance from the get-go, and the Democrat Party is right there to provide it, while telling them that the Republican Party wants to kick ’em out.
+ - Obama is a clown. You don’t have to be a scientist to know that the President doesn’t know what he’s talking about when he says fossil fuels are the energy of the past. We have more oil than we need. We’ll never run out of it. It’s all we’ve got.
+ - You know how old I am? I’m so old, I remember when Letterman used to be funny and it was presidents who were serious. That’s how old I am.
+ - To some people, bankers – code word for Jewish – and guess who Obama’s assaulting? He’s assaulting bankers. He’s assaulting money people. And a lot of those people on Wall Street are Jewish. So I wonder if there’s starting to be some buyer’s remorse there.
+ - I want the largest audience I can get, because that’s how I can charge the highest advertising rate. Which means what else do I want? Money. I am trying to earn a profit. It’s capitalism.
+ - The silent majority, that’s actually an invention of Richard Nixon’s.
+ - The way liberals are interpreting the First Amendment today is that it prevents anyone who is religious from being in government.
+ - Try to always stay focused on the objectives that are possible and the positive – and on having fun outside of the stuff that’s going on in Washington.
+ - If people are violating the law by doing drugs, they ought to be accused and they ought to be convicted and they ought to be sent up.
+ - There’s a negative connotation to internet trolls, but at the same time this is becoming mainstream. This kind of speech pattern, the way people speak, this is common on the internet.
+ - Most people have this protective view of the presidency. Anybody who holds the office is always gonna get the benefit of the doubt unless the media spends four years destroying them like they did Bush, and with Bush not returning fire.
+ - You know I have always tried to be honest with you and open about my life, so I need to tell you that part of what you have heard and read is correct. I am addicted to prescription pain medication.
+ - There’s such cultural rot taking place, such a disintegration throughout our culture. Values, morality, you name it. Standards have been relaxed, and people are not being held to them. People’s intentions, if they’re said to be good and honorable, that’s all that matters.
+ - As far as the media’s concerned, Mrs. Obama deserves this. Look at the sordid past. Look at our slave past, look at the discriminatory past. It’s only fair that people of color get their taste of the wealth of America too.
+ - In the first place, bureaucracies never become efficient; they’re never going to get rid of administrative costs; they’re never going to reduce them. That’s not the purpose of bureaucracies. It’s to increase those things.
+ - The president of the United States is a pretty important position, and it’s the ideas and policies that matter to me, not the color of their skin.
+ - If you commit a crime, you’re guilty.
+ - Isn’t protecting our legal citizens from an invading army of illegal aliens who are using our services and taking our jobs, isn’t that a basic notion of fairness? Isn’t that in the Constitution? Where is the fairness to American citizens here?
+ - In NFL preseason, the coaches don’t use 10% of the playbook. They don’t game plan. They do nothing. They don’t give anything away for the regular season. They try to get everybody safely through it without anybody getting hurt.
+ - The First Amendment doesn’t give anybody the right to be heard. People don’t have to listen to you.
+ - What they want can never work. Their dreams can never even get close to reality. Their hopes can never, ever be realized. It isn’t humanly possible for liberalism to succeed.
+ - If you’re healthy, if you don’t get sick much, if you don’t go to the doctor much or use your health insurance much, you are a genetic lottery winner. It has nothing to do with the way you live, nothing to do with doing the right things. It’s just sheer luck, and you are gonna pay for that.
+ - I am just stupefied here. The left has officially stamped it now: Oil is a villain. Now, please ask yourselves: When did this start?
+ - If Romney would go ideological in explaining Obama, it would help. We gotta stop the, ‘He’s a nice guy’ stuff. Nice guys don’t do what Obama is doing. Nice guys don’t say and do and act the way Obama is saying, doing, and acting.
+ - Nobody in a leadership level in American politics is trying to inspire the American people. Everybody needs to be goosed. The vast majority of people are not self-starters.
+ - Emotional roller coasters tend to emphasize the lows, tend to be more affected by the low, by the dip in an emotional roller coaster than when you are at the peak.
+ - If you feed them, if you feed the children, three square meals a day during the school year, how can you expect them to feed themselves in the summer? Wanton little waifs and serfs dependent on the State. Pure and simple.
+ - When do we ask the Sierra Club to pick up the tab for this leak?
+ - The Constitution limits the role of government. The Constitution enumerates the freedoms of the people and enforces those freedoms against government, making sure government cannot encroach.
+ - When you talk about taxing the rich, you’re taxing capital, and taxing capital results in damage to more than just the wealthy.
+ - Free speech gives us the ability to react vigorously with effective arguments and expose the weakness and misdirection of the other side’s claims.
+ - The pool of illegal immigrants is like a qualified bunch of people. You don’t have to do surveys. You don’t have to interview them. You know they are ready-made Democrat voters. Not only that, they are readymade Democrat constituents.
+ - Everybody in life is pursuing money: left, right, charity, nonprofits, everybody’s pursuing money. Everybody wants a raise. Everybody wants to improve their standard of living. Everybody wants to be rich, and especially those that go to Washington.
+ - Erdogan wants an old-fashioned Islam, if you will, for lack of a better term.
+ - Legal immigration is a much tougher group of people to stereotype and to identify as potential new Democrat voters.
+ - The ocean will take care of this on its own if it was left alone and left out there. It’s natural. It’s as natural as the ocean water is.
+ - Women still live longer than men because their lives are easier.
+ - How many of you guys, in your own experience with women, have learned that no means yes if you know how to spot it?
+ - The most beautiful thing about a tree is what you do with it after you cut it down.
+ - Folks, the most insidious part of this whole health care scheme is that all of these vast medical expenditures will become nothing more than government budget items. We individuals will no longer exist. The relationship between a government and citizen will change forever.
+ - It’s too easy to find people who’ve failed and are embittered. The best thing you can do is hang around people who’ve succeeded and are happy doing what you want to do. Learn from them.
+ - Every liberal on the campaign trail has a plan to deliver free, socialized medicine, but no country on earth, folks, can possibly pay for every test for everybody without going bankrupt.
+ - Saudi Arabia might proceed toward Sharia slower than Al-Qaeda wants. Al-Qaeda wants pedal-to-the-metal, nothing else in focus, we’re heading to Sharia, and the Saudis might not be going there fast enough, so Al-Qaeda hits them.
+ - Some people would say we’re already under attack by aliens – not space aliens, but illegal aliens.
+ - The Eighties proved we don’t need liberals.
+ - I think cigars are just a tremendous addition to the enjoyment of life.
+ - People are pursuing happiness, but they’re pursuing things that will never, ever make them happy, and they don’t know that. They’ve got a distorted view of what will make them happy, what happiness is, and it’s based on what they see on television.
+ - Liberty and freedom were the primary reason that people wanted to come here. They wanted to escape bondage, slavery, tyranny, poverty, whatever, where they lived. It was America that promised a much better life.
+ - Admitted to Playboy in 1993 that he smoked marijuana twice.
+ - You could afford your house without the government if it weren’t for the government.
+ - Liberalism has consequences. It has never worked, folks! It has never worked. And it has never fulfilled its promise.
+ - If we can have record high unemployment, record job loss, and just an absolutely anemic economic recovery because of Obama’s policies, and he’s not blamed for it, what makes anybody think he’s gonna get blamed when an insurance company starts doubling their premiums?
+ - Obama’s an angry guy. He’s got a chip on his shoulder.
+ - I’m rarely wrong but I could be. There might be a third party. I just think that the realization that Hillary Clinton, the Democratic Party posed the greatest threat to our future, children, grandchildren, all of that, is going to bring everybody back to reality.
+ - Immigration law’s already settled. That’s why we have people known as illegal immigrants, because the law is very clear. They’re not being called illegal immigrants because people are biased and prejudiced.
+ - Conservatism is not the problem. Conservatism is the founding of this country, essentially. Conservatism isn’t even really an ideology. Conservatism is just what is right, proper, decent, and moral. That’s all it is.
+ - Peter Schweizer’s book, Clinton Cash, is not discredited. It has been quoted on the front page of the New York Times and the Washington Post.
+ - Ladies and gentlemen, the economic disaster, the tailspin, the destruction of the greatest economic engine in the history of the world, these policies of Barack Obama’s, which have led us to this point, are precisely why I fearlessly said and still say, I hope he fails.
+ - I’ve always wondered how in the hell we conservatives became denoted by red. That’s a commie color! It is! The liberals have always been red!
+ - Really think hard about what you want to do, because when you’re doing what you want to do is probably when you’ll be doing your best. And pray it is not a hobby so they’ll pay you for it.
+ - I say what I mean. I don’t speak in code. That’s why I am a star and ace communicator.
+ - The school curriculum today, particularly American history, is a shame.
+ - Is it a coincidence that in 1998, Barack Obama talks about a majority coalition of welfare recipients and in 2012 we got a record number of Americans on food stamps while he’s president? I don’t think it’s a coincidence.
+ - Obama’s entire economic program is reparations.
+ - There is no immigration policy in the US that is permitting what’s happening. What’s happening here is happening outside the law, that our leaders do not wish to enforce or acknowledge. And the same thing happened in the UK.
+ - I go back and forth as to whether I think Nancy Pelosi’s really this dumb or not. Although, every time I hear her speak I get closer and closer to concluding that she is this dumb.
+ - Everybody assumes I know everything, so they send me these notes sometimes, and I don’t know what they’re talking about.
+ - Look, the communists have tried to corrupt our education system. They’ve tried to corrupt any number of institutions. Why wouldn’t they try to corrupt the Catholic Church? It is a big enemy.
+ - Legal immigration is a process. You learn everything about the people coming in. You find out how many of ’em are prone to vote Republican. You don’t ask ’em this; you just learn.
+ - I know it when I don’t know it. Sometimes I know it when I don’t think I know it. I need to trust myself in these moments, these rare moments of self-doubt.
+ - The law exists for a reason. There is a dominant American culture that people used to want to preserve. That’s going by the wayside, too. But if it’s now okay for an illegal alien to practice law in California, then can anybody else who’s broken the law get a law license? And if not, why not?
+ - Slavery built the South. I’m not saying we should bring it back; I’m just saying it had its merits. For one thing, the streets were safer after dark.
+ - The Los Angeles riots were not caused by the Rodney King verdict. The Los Angeles riots were caused by rioters.
+ - The Democrats have to be stopped and that’s going to be what ultimately brings us everybody back to sobriety here.
+ - I’d get up in the morning, get ready to go to school, and I would dread it. I hated it. My mother would have the radio on. And the guy on the radio sounded like he was having so much fun. And I knew, when his program was over, he wasn’t going to go to school.
+ - The human condition for the vast majority of people on this planet for the entire time of what humanity has been here has been bondage and tyranny, dictatorship, pestilence. That’s really what American exceptionalism is, when you get right down to it.
+ - That Bill Clinton. He probably doesn’t know how to log on to the Internet.
+ - Feminism is just a way for ugly women to get into the mainstream of America.
+ - The way to improve our schools is not more money, but the reintroduction of moral and spiritual values, as well as the four R’s: reading, ’riting, ’rithmatic, and Rush.
+ - That cracker made a lot of African-American millionaires.
+ - I sometimes wish I weren’t as logical as I am and I wish I weren’t as smart as I am, because I’d be happy.
+ - Most people’s historical perspective begins with the day of their birth.
+ - I’m part German and part Irish. In fact, there’s even a town in Germany that was named after my family, Limbach or so forth. And I don’t know. I might even have some Indian blood in there.
+ - The Obama camp, the White House, and the media all condemned Romney before they condemned the attacks. Obama thought it more worthwhile to hit Romney for what he was doing than the terrorists for what they did. Romney got hit first.
+ - Ladies and gentlemen, even my own staff challenges me. When I issue edicts, commands, orders, ideas, you would think that there would be overwhelming blanket acquiescence, approval, and support.
+ - Communists disavow the existence of God and religion. They hate it, because it’s a competitor.
+ - Jeff Sessions is the lone voice in the Senate...
+ - When a nominee for the Supreme Court, one of only nine lifetime appointments, makes an overtly brazen racist comment about tens of millions of American citizens, we don’t need lectures. What we need to do is to confront her with what she said and what it says about her.
+ - I’m not going to assume liberals are stupid, as they do with conservatives. No, I’ll attribute it instead to more fraud and deceit.
+ - Liberals measure compassion by how many people are given welfare. Conservatives measure compassion by how many people no longer need it.
+ - I wouldn’t want to spend every waking hour asking people for money. A, I can’t do it, it’s just not my nature.
+ - Racial relations in this country are plummeting. Racial strife is rising. All the while, Obama is out there talking about unity and bringing us together.
+ - I think passion is the magnet to anything.
+ - Citizen service is a repudiation of the principles upon which our country was based. We are all here for ourselves.
+ - If you don’t like going to the DMV, imagine if the only place you could go to resolve a health care problem is some government agency.
+ - I was not wrong. I was just misinformed.
+ - The journalists are so devoted to Obama. They are such sycophants that they’re worried about access.
+ - The future is not Big Government. Self-serving politicians. Powerful bureaucrats. This has been tried, tested throughout history. The result has always been disaster. President Obama, your agenda is not new. It’s not change, and it’s not hope.
+ - Our immigration law sucks, and we need to redo the whole thing, comprehensive immigration reform. And what that’s gonna be is anybody who wants to come and vote Democrat, we’re gonna send ’em a limousine and bring ’em in.
+ - We’re led to believe everybody opposes it and disagrees with political correctness, but yet everybody’s scared to death of it. So who is it? Well, it’s the power structure wherever you happen to be.
+ - It’s also hard to believe, because people alive today, immigration’s been a daily event and a daily topic for their whole lives. They can’t conceive of a period of time where there was no immigration.
+ - Ted Cruz is a nice guy, a likeable guy. He’s not crazy. He’s not nasty. And he certainly is not – he’s not a liar. He’s a down – down the middle guy that I – anybody could trust. He has got plenty of integrity.
+ - Republican primary voters, whether they’re close primaries or open, are voting for anybody but candidates attached to the Republican establishment.
+ - United States foreign policy, which includes national security, is literally disintegrating before our eyes.
+ - An undeniable truth is that while Obama and Pelosi and George Soros and whoever else tell you and me to get off oil, they won’t – they’re the elites. They’re smarter, they’re running the world, and they have to be able to get to where they have to go.
+ - The Republican establishment may in fact be so desirous of getting rid of the Tea Party as its base, they may be willing to lose some elections in order to get rid of their base and put up a new base.
+ - The United States is guilty. We’re not treating people fairly. We’re not treating people with dignity. Building a wall is an affront and an insult, and we have no right.
+ - The danger with mentioning names is that you hurt the feelings of people that you leave out.
+ - Keep in mind that the Iraqis are not telling us anything we don’t already know or can’t prove. This is what makes this whole inspection process and all the rigmarole surrounding it a total farce.
+ - The vast majority of the rich in this country did not inherit their wealth; they earned it. They are the country’s achievers, producers, and job creators.
+ - Another thing the Democrats have grown accustomed to is their candidate is untouchable.
+ - The last thing they want is a revitalized economy now. I’m not saying the Democrats don’t want a strong economy. Don’t misunderstand. They just don’t want it now.
+ - What incredible arrogance to believe that we limited human beings can destroy that which we cannot even begin to understand – much less create on our own – and that is earth and all of its glories.
+ - No two things are equal. No two people are equal. Nobody can guarantee equal outcomes unless everybody’s poor.
+ - If you get rich in the name of the poor, fine and dandy. The problem is when you earn it. If you earn the money in the private sector by starting a business and hiring a lot of people, that’s when you become the enemy.
+ - This is real. This is not a phase. This is not a temper tantrum. The average American who I believe makes this country work thinks the Republican Party is actually oriented against its interests and does not understand or believe the crisis they think the country’s in.
+ - They’re out there protesting what they actually wish would happen to them sometimes.
+ - You have to ask yourself a question: “What’s the purpose of the private sector – to support government?” And if the answer is, “Yes, it is,” then you’re a Democrat.
+ - I never turn on the news over the weekend, short of a nuclear detonation somewhere. I just don’t. I don’t learn anything from it anymore.
+ - Barack Obama doesn’t think this country should be number one. If it were number 35 it’d be fine with him.
+ - I still am amazed by the reaction I get from people when I tell them that there was zero immigration in this country from 1924 to 1965. And the reason that people don’t know that, A, they just don’t know it, it’s not reported, it’s never been part of history class, history education.
+ - There is no country on earth that has done more for our own poor and for the poor around the world. We are not the ones that need to be targeted.
+ - I think clear heads will prevail and the correct enemy will be identified, political enemy will be identified, and efforts will come together to defeat whoever it is they throw up – Democrats, I mean.
+ - Have you noticed that when it comes to immigration we ride herd on legal immigration pretty damn hard, and who is it that really is subject to most of the limits there? Have to say it’s white immigrants.
+ - Obamacare won’t just bankrupt the country. It may bankrupt small businesses. It may bankrupt individuals.
+ - Canada has an immigration policy you might want to emulate. They want more skilled and educated immigrants. In fact, that’s all they take. But, see, since nobody’s watching them, and they’re not a superpower, nobody really cares. So they are allowed to act in their best interests.
+ - Young people have this almost romantic attachment to civil rights, liberties, emancipating people from oppression, etc. The idea that such oppression exists in this country offends me, but it’s able to be pushed and sold because education in this country is so woefully incompetent and inept.
+ - Donald Trump did question Ted Cruz’s evangelical credentials. Remember when Trump said, “How can somebody who lies as much as Ted Cruz lies be an evangelical Christian?”
+ - Guess what? Faisal Shahzad is a registered Democrat. I wonder if his SUV had an Obama sticker on it.
+ - Freedom without virtue isn’t freedom – it will eventually destroy a society.
+ - The value of money comes from the private sector in the form of price for product, services rendered, what people are willing to pay for something they want or need. That’s where value happens. Government has nothing to do with that.
+ - Barack Obama’s enemies are the people who make this country work. Barack Obama’s enemies are those who succeed. Those are the people whose income he wants to redistribute. Those are the people whose income he wants to take, using the power and the force of the federal government to do it.
+ - Have you ever noticed how all composite pictures of wanted criminals resemble Jesse Jackson?
+ - The battle for freedom and liberty really never is over, and there are really low points in it, but I’m not giving up, and I’m not gonna engage in phony pep talks, either.
+ - I’m just wondering, folks, if I gave a speech on anti-capitalism, do you think I could be named Person of the Year by ‘TIME Magazine?’
+ - Sorry to interrupt myself, but it’s the only way I stop talking.
+ - My friend Michael Reagan has given us the blueprint for a new Reagan revolution- and he has given Ronald Reagan back to us again. Read it, learn it, live it, love it!
+ - The Limbaugh Theorem was not about me giving me credit for something. It was simply sharing with you when the light went off.
+ - You cannot keep your plan and have Obamacare at the same time. Obamacare, by definition, gets rid of your plan and replaces it with health care run by the federal government.
+ - Young people never do have a clue. There are some young people that do, but they’ve always been the exception. They always all grow up at some point. The problem is that they’re all being indoctrinated by stupid leftists.
+ - People always break the law, but for the most part the rule of law triumphed and illegal immigrants were found and deported. The case was not made for them to stay.
+ - I’m amazed at the Democrats and the media who do not know what’s going on in my world. I know what’s going on in theirs. I study ’em. I watch ’em every day.
+ - Obama might think of himself as one, but he is not a dictator. We are not a banana republic yet. This is not an authoritarian form of government. This is a constitutional republic, and the president doesn’t allow or disallow. The president can’t buy or purchase.
+ - The Democrats cannot find Romney fingerprints on what’s happening to this country. Every fingerprint is Barack Obama’s, Joe Biden’s, Nancy Pelosi’s, Harry Reid’s, Barney Frank’s, you name it, Eric Holder.
+ - Talent cannot be learned, it can only be developed.
+ - I’m not opposed to the protection of animals. But the best way to do that is to make sure some human being owns them.
+ - The NAACP should have riot rehearsals.
+ - If I sound like I’m enjoying myself, it’s not artificial. It’s real.
+ - Government stimulates the democrat party.
+ - Apple is to the United States government what Clarence Thomas was to the civil rights coalition. How dare you get this big sidestepping us.
+ - Washington is politics! Somehow if people have political objectives, then those objectives are automatically disqualified? If that’s the case, the Democrats have no business being legitimized about anything because everything they do is political.
+ - There are a lot of Democrats that tell me that they are just distressed over what Obama has done to the health care industry and to jobs. They are afraid to say anything about it because of recriminations, because this regime fights back.
+ - Conservative ideas are alive and dynamic, the result of a free and intellectually honest vision for the country. As long as conservatism is strong, the future of a strong America is assured.
+ - I’ve had some Democrat African-American leaders tell me they’re really not all that comfortable with Obama as the lead at the MLK festivities ’cause he’s not down for the struggle. He does not have that in his roots.
+ - Obama’s gonna play Santa Claus with the minimum wage. He’s got no successes to brag about. He cannot talk about a robust job market. In fact, the very fact he’s talking about the minimum wage is evidence there is no robust job market.
+ - Most liberals I know do not consider themselves to even be liberals. They just think of you and me as conservatives, and that means, therefore, we’re odd and we’re kooks and maybe extreme and maybe mean.
+ - Look at Jeb Bush, $115 million and Jeb actually stated in December 2014 that he was going to win this primary by not winning it. He was going to win it without winning base voters. They have made it clear they want nothing of their base. They’re embarrassed of their base.
+ - I’m like anybody else that’s in media. I’ve got my opinions. I share them. I’m not afraid of them.
+ - The leaders of these moments know full well they’re never gonna live next to these newly arriving immigrants. They’re gonna live in gated communities. They’re gonna continue to be rich.
+ - If any race of people should not have guilt about slavery, it’s Caucasians.
+ - Every Republican is on record as saying Obamacare is unacceptable, intolerable, and they’re gonna do everything they could to keep it from happening. But, at the moment of truth, they’re not.
+ - Militant feminists are pro-choice because it’s their ultimate avenue of power over men. And believe me, to them it is a question of power. It is their attempt to impose their will on the rest of society, particularly on men.
+ - The media says, “How in the world can you do this? You’re here, you’re in Great Britain, you’re in the UK, and they just had the Brexit vote, and you’re talking about your golf course?” Trump says, “Yeah, and you know what? The falling pound is even gonna help my business here.”
+ - Conservatism solves problems libralism blows em up.
+ - The love had just vanished. We’re still friendly.
+ - The Democrats are incapable of even being accused of violating political correctness, so they don’t even worry about it. The Democrats have really grown accustomed, however, to Republicans not attacking, not criticizing them.
+ - Liberalism isn’t change. It has to be imposed.
+ - Scandals never stop an administration unless the media wants them to stop an administration, which means that no scandal is ever gonna stop Obama.
+ - We can take this country back. All we need is to nominate the right candidate. It’s no more complicated than that.
+ - The administration is out lying through its teeth about all these people signing up and how great Obamacare is now. Meanwhile, Obama continues to break the law each and every day with executive actions – not even executive orders, executive actions – and proclamations.
+ - The media has been trying to protect Obama. The media has been trying to shield Obama. Several in the Republican establishment in the so-called conservative media have even been trying to shield Obama.
+ - When the United States of America does things in its best interests, it is hated. I’m sorry, that just ticks me off.
+ - The public school system doesn’t get everybody. Every generation has its rebels.
+ - It’s very rare that you have a liberal run as an unabashed liberal. They have to lie about it. They have to mask who they are. And in order for them to survive and thrive, they have to keep that up.
+ - I’ve been around so long, I can remember when it was a rhetorical question to ask, “Is the pope Catholic?” Now it’s a legit question.
+ - My family is all lawyers. Most people when they come on shows like this, “I’m proud of the first member of my family to get a college education.”
+ - I come from a long ago era where men could be men and stereotypical humor didn’t offend anybody.
+ - The polls are just being used as another tool of voter suppression. The polls are an attempt to not reflect public opinion, but to shape it. Yours. They want to depress the heck out of you.
+ - As far as I’m concerned, the people who aren’t paying taxes don’t get to run around claiming that they built everything, that the built the roads and that they built the bridges and so forth.
+ - Donald Trump happened to be in Scotland on the very day, the morning after the Brexit vote. He’s there to open his golf course in Turnberry, and, lo and behold, the first thing he talked about was not the Brexit vote.
+ - What do Obama and God have in common? Neither has a birth certificate. How do they differ? God does not think he’s Obama.
+ - Now, what is the left’s worldview in general? What is it? If you had to attach not a philosophy but an attitude to a leftist worldview, it’s one of pessimism and darkness, sadness. They’re never happy, are they? They’re always angry about something. No matter what they get, they’re always angry.
+ - I’m all for education. Education ideally happens every moment of the day for people. Education is something that should never stop. The Limbaugh Institute, there are no graduates and no degrees ’cause the learning never stops here. You know, education’s a pretty big umbrella.
+ - It’s impossible to go through life not offending people. All you have to do is basically have an opinion on anything, and you’re gonna offend people.
+ - Did you know that the White House drug test is multiple choice?
+ - There are children in America who are going to be separated from their parents ’cause their parents are going to be deported while the children who were born here can stay. We are forgetting the human beings.
+ - I don’t need equal time, I am equal time!
+ - What is Obamacare doing? It’s destroying the only kind of plans people without insurance ever get. And nobody seems to be noticing except the people who are being canceled and then can’t find a replacement because it’s too expensive.
+ - It is not about promoting a distinct and great American culture because today’s Democrat Party does not believe in one.
+ - If you want to know what the biggest thing in your way to an improved standard of living, higher pay, a more rewarding career is: Barack Obama and the Democrat Party and their economic policies. They are the roadblock.
+ - Ronald Reagan and Margaret Thatcher did more to liberate people by defeating the Soviet Union and freeing eastern Europe than the Obamas, the Clintons, and Kerrys of this world ever have. They were all on the wrong side of that debate.
+ - So much value has been lost in the housing market that people are now buying. If there’s any activity in the housing market, it’s because values have plummeted to such depths that the 47% can now afford to live in a government-purchased house, or something like that.
+ - Have you seen the Vatican wall? It’s over 50-feet high. It’s over 50-feet high. It’s not even the kind of wall Trump’s talking about building.
+ - If people are speaking about something passionately and if they have a level of intelligence about it and if they’re sufficiently informed, it’s going to be like a magnet to people.
+ - When WOMEN got the right to vote is when it all went downhill. Because that’s when votes started being cast with emotion and uh, maternal instincts that government ought to reflect...
+ - Money is the fuel that makes political victory possible. Sadly, folks, in many cases it’s more important than ideas. And this is what turns off so many people to politics.
+ - By the way, I don’t mean to pick nits here, but Obama has just ordered the flag at half-mast for 10 days for Mandela. He did not order the flag at half-mast at all for Lady Thatcher.
+ - Governments are out of control, irresponsible, never have enough money, never tighten their own belts, and when they are forced to, they always threaten to shut down police departments and teachers and all these things.
+ - And don’t forget, Sherrod Brown is black. There’s a racial component here, too. And now, the newspaper that I’m reading all this from is The New York Times, and they, of course, don’t mention that.
+ - We’ve always known that Democrats are anti-war, and we’ve always known that we can’t really count on them when it comes to national defense. But we have finally seen with whom they will go to war: the American people who disagree with them.
+ - I thought it was excellent, to tell you the truth.
+ - If I wanted to be president, and if I were ever serious about it, the biggest thing I would have going for me is that I’m a conservative.
+ - Nationalizing businesses, nationalizing banks, is not a solution for the democratic party, it’s the objective.
+ - As a professional broadcaster, I can tell you that over the course of my career, there is an adage: don’t ever apologize.
+ - We keep waiting for the American people to wake up, and they keep hitting the snooze bar. But something, folks, someday, will wake them up. Of that I’m confident.
+ - You know when people start talking about freedom they have to be old. They gotta be old-fashioned and really out of touch. Freedom? Well, what’s that? Who needs any of that?
+ - If liberalism discredited itself, Obama woulda never gotten elected, and the New Deal woulda gone by the wayside, and LBJ woulda never gotten the Great Society. Liberalism does not discredit itself. It has to be explained and beaten back.
+ - The thought that so many people get their news from social media really is scary.
+ - Obama’s not down for the civil rights struggle, and he certainly wasn’t down for the apartheid struggle, but he’s clearly gonna take advantage of it and insert himself in such a way as to make it look like he is single-handedly responsible for apartheid going by the wayside.
+ - Ted Cruz just in a different league. He understands conservatism because he is.
+ - I would feel much the way I feel when anybody is elected. You deal with what you end up getting.
+ - You know why there’s a Second Amendment? In case the government fails to follow the first one.
+ - Obama and the Democrats are not focused on the moderates. They’re focused on getting their base out, and they’re trying to expand that base by forming sympathetic, empathetic alliances with the downtrodden, and there are a lot of downtrodden because Obama has made them that way via his policies.
+ - I reject the notion that America is in a well-deserved decline, that she and her citizens are unexceptional. I do not believe America is the problem in the world. I believe America is the solution to the world’s problems.
+ - As soon as I learned what the smell of bacon was, I learned how to make it.
+ - Let the unskilled jobs that take absolutely no knowledge whatsoever to do – let stupid and unskilled Mexicans do that work.
+ - This health-care plan is all about the destruction of the creation of wealth in America and the socialization of this country, and it won’t work – never has anywhere else – and we’re going to go to the mat here to see to it that they don’t succeed.
+ - I am not going to tell people what I don’t believe.
+ - I’ve always believed in the old-fashioned way: When you’ve got scoundrels in office, you vote ’em out.
+ - I live in Realville, and my problem is that I’m governed by logic. And some of the claims that are made by people on the left just don’t hold up.
+ - Liberals always exempt themselves from the rules that they impose on others.
+ - So what is so strange about saying I want Barack Obama to fail if his mission is to reconstruct and reform this nation so that capitalism and individual liberty are not its foundation? I want the country to survive. I want the country to succeed.
+ - Folks, just a few minutes of my voice can change a life.
+ - Who in the world wants to run a country where the new norm is one where there are no jobs?
+ - Why do we start immigration in 1965? Guess whose idea it was? Ted Kennedy. Ted Kennedy, 1965, we needed to reinstitute the immigration laws. It wasn’t based in humanity, although that’s the way it was sold. It was rooted in registering voters.
+ - When you don’t behave the way liberals think you should, their effort and their intention to control you compounds.
+ - The Republican leadership thinks the best way to avoid losing elections is to let the Democrats win every controversial issue.
+ - It doesn’t benefit me to lie to people. They’re eventually going to find out the truth, and then where am I? That’s the problem with liberalism and socialism, by the way: it has to be propped up by lies.
+ - My primary objective, my desire would be to see the Democrat Party get shellacked in every election, to never see the Democrats ever win one again, as currently constituted.
+ - Liberalism, socialism, whatever, it is such a corrupting, destructive thing. And I believe it’s the most destructive force in the world today, outside of, militarized weaponry and that kind of thing.
+ - I don’t think looking at things through the prism of fear is going to accomplish anything.
+ - We’re all born pessimists. It takes effort to be optimistic.
+ - One of the reasons MSNBC is plummeting is that I, not long ago, refused to play any content from them. I figured, why? I mean, it’s genuine depraved partisan politics insanity, genuine extremist radical ignoramuses on that network.
+ - The difference between Los Angeles and yogurt is that yogurt comes with less fruit.
+ - Health care’s like any other product or service: if the consumer is in charge of spending his money on it, then the market will make sure that it is affordable.
+ - I do not believe that Obama is smarter than anybody else. I do not believe he has cut a new path and is a politician unlike any we’ve ever seen regarding his intellect. I don’t believe any of this hocus-pocus. I didn’t believe it when they said it about Hillary, Smartest Woman in the World.
+ - Right. So you go into Darfur and you go into South Africa, you get rid of the white government there. You put sanctions on them. You stand behind Nelson Mandela – who was bankrolled by communists for a time, had the support of certain communist leaders. You go to Ethiopia. You do the same thing.
+ - You just gotta be who you are, and I think it’s time to get rid of this whole National Basketball Association. Call it the TBA, the Thug Basketball Association, and stop calling them teams. Call ’em gangs.
+ - Women were doing quite well in this country before feminism came along.
+ - The vast majority of Muslim residents of the United Kingdom voted to stay in the EU. And the balance of the British population voted to leave the European Union.
+ - If you want a successful marriage, let your husband do what he wants to do.
+ - We have the most liberal, the most leftist candidate who has ever run for president in my lifetime; he’s a sitting duck. This guy’s policies are aimed at destroying the age of American greatness.
+ - Journalists are simply leftists disguised as reporters. They’re political activists disguised as reporters.
+ - I want Obama to have to weigh in on Ben Affleck as Batman. It’s about time Obama went to work.
+ - The media is a like any other group of people. Their universe is all that matters.
+ - Obamacare can’t work, folks. It just cannot.
+ - Liberal Democrats are inexorably opposed to tax cuts, because tax cuts give people more power, and take away from the role of government.
+ - Let me tell you the polls that count, and those are the polls a couple of weeks before the election. That’s when the pollsters worry about holding onto their credibility. Those are the polls that everybody remembers.
+ - I don’t think it is deniable: whenever we, I, conservative media, are really interested in something, the mainstream media purposely avoid it.
+ - Collective solutions to individual problems is very seductive. It’s how Obama gets elected, by the way.
+ - When you talk about change, you know what makes it really tough for people is on the one hand you’ve got tradition, and on the other hand you’ve got change; in many people’s mind, change equals modernization. Tradition, however. I’m a big tradition guy.
+ - There is no news media. There’s simply a bunch of people on television and in newspapers who are ranking members of the Democrat Party.
+ - Self-reliance – that’s a dirty word to Democrats. They want people to believe that self-reliance means you don’t do anything with anybody. They don’t want it thought of as accepting responsibility for one’s life. Enterprise. Imagination. Independence. Entrepreneurism.
+ - Has the pope questioned the faith of any communist leaders? He spends a lot of time in communist countries.
+ - I think we’re going to have a nominee, whoever it is, and we’ll have support for the nominee.
+ - The media uses polls to create news stories. I think polls are just an extension of the editorial page, an excuse to get them on the front page. You can ask any question you want, get any answer you want, and then run around with that as a news story.
+ - If Thomas Jefferson thought taxation without representation was bad, he should see how it is with representation.
+ - This is a frightening statistic. More people vote in ‘American Idol’ than in any US election.
+ - I will be the first to admit that getting votes and getting an audience are two different things. For example, a politician really can’t be elected if he’s hated by half the people. A talk show host, however, can be an overwhelming national phenomenon while being hated by half the people.
+ - Everybody wants to be loved by everybody, and they’ll do everything they can to be loved, including not be who they really are, from person to person.
+ - It is wonderful to be in solidarity with another big group of people.
+ - I don’t consider myself an offensive guy. I am just a harmless lovable little fuzzball.
+ - Liberals are constantly wrong. In fact, that’s how you rise to the top in liberalism, by being wrong. If you are wrong, and if you are consistently wrong, it’s even better. You’re really one of them if you’re really wrong all the time. Look at Jimmy Carter.
+ - Obama has been saying for years now – he said it again on Sunday – that climate change is the biggest threat facing the planet, all the while he knew that Iran is just a couple months away from a nuclear bomb.
+ - There is no law in the world – there is no law unwritten, there’s no law on the books – that’s gonna stop a criminal from getting a gun.
+ - I suppose we’re not supposed to judge people.
+ - The left has been able to destroy conservatives, dispatch conservatives, to ruin conservatives simply on the basis of accusing them or illustrating them supposedly violating political correctness, by virtue of exposing what they think or say.
+ - Great presidents don’t just fight good fights – they win them.
+ - There was a time when the United States government earned the trust of its people. There was a time when most people believed that the United States government was protecting them.
+ - You take a 30-year-old. To him, history began the day he was born. He doesn’t know how cold it was 70 years ago unless he’s told. He doesn’t care. He thinks what’s happening now is either the best or the worst, whatever it is, ever. Everybody thinks that.
+ - Obamacare is not about improved health care or cheaper insurance or better treatment or insuring the uninsured, and it never has been about that. It’s about statism. It’s about expanding the government. It’s about control over the population. It is about everything but health care.
+ - It isn’t humanly possible for the things radical leftists want to bring about the desired results that they choose. They claim they want a utopian happiness, and they are further and further away from it the more successful they are.
+ - If we take the pope at his word and socialism is highly preferable to capitalism and he was really concerned about these people, he would demand they go home. He would demand they return to their homelands wherever they are, if they were socialist.
+ - For government to give, it must first take away.
+ - Democrats don’t have reasons for people to vote for them. They’re just trying to gin up anger and resentment for their opposition. And it’s just not working anymore.
+ - Reagan won because he was real. He believed in America. He told people he was gonna make it great again coming out of a disastrous four years of Jimmy Carter and Watergate before that.
+ - George W. Bush attended the intelligence briefing every day. Obama has not even attended half of them. He sends surrogates. That to me is significant.
+ - The UK population became, for lack of a better term, Balkanized. And then all of a sudden Sharia mosques started popping up all over the place. And before you knew it, the most popular or frequent male baby name was Mohammed.
+ - I’m going to tell you, what’s good for al Qaeda is good for the Democratic Party in this country today.
+ - Saudi Arabia cannot go pedal-to-the-metal on the way toward Sharia, although some might say they’re there, because they have a relationship with the United States that must continue. And they can’t make that relationship difficult for the US, so they moderate, and therefore they proceed.
+ - The Democrats really are not interested in keeping guns out of the hands of terrorists. They’re interested in keeping you from being able to get guns.
+ - I never try to get noticed. It just happens. I never try.
+ - Standards are declining left and right, and it doesn’t matter. It’s whatever is necessary to prop up Obama.
+ - Look, 85% percent of Democrats think the economy’s fine. What does that tell you about these people?
+ - It’s easy to be negative.
+ - Wouldn’t it be great if our national news media had standards as high as the National Football League’s?
+ - The Republicans have bought into the idea that people hate them because they’re opposed to everything.
+ - Obama isn’t just too big to fail. He’s too big to know. Obama is so vital to the country and to the world, he must be kept out of the loop in order to save him from his failed presidency.
+ - What is the pope doing inserting himself – he’s the Vicar of Christ. He is the worldwide leader of the Catholic faith. What is he doing inserting himself into the American political system this way? That to me is the larger question.
+ - Don’t jump down – folks, contraception in the Catholic Church is a thing.
+ - In a country of children where the option is Santa Claus or work, what wins?
+ - What is it with all of these young, single white women? Overeducated- doesn’t mean intelligent.
+ - Holocaust? Ninety million Indians? Only four million left? They all have casinos – what’s to complain about?
+ - I can’t figure Twitter out. The way Twitter is formatted, I can’t tell who is saying something and who’s replying to something. I don’t know who the tweeter is and who’s responding to the twit.
+ - Women should not be allowed on juries where the accused is a stud.
+ - Liberals measure compassion by counting the number of people receiving government help.
+ - It’s beyond me how anybody can look at these protestors and call them anything other than what they are: anti-American, anticapitalist, pro-Marxist communists.
+ - The fact that we’re spending $700 billion a year on oil is actually a good thing; it means we have the prosperity to do it. It means that oil’s being used, and oil is the fuel for the engine of freedom.
+ - Journalists should have been the first to tell people what Obamacare would mean to them. They are now the last to figure all of this out.
+ - I just wanted to be a guy on the radio and I wanted to succeed, and I wanted a situation where I could be honest.
+ - The number of people, the labor force, has shrunk by nine million human beings since Obama took office.
+ - Obamacare is making people divorce so they can afford it. And divorce hurts women and the children, and that is Obamacare and their War on Women.
+ - Obama is a statist. He’s an authoritarian. He doesn’t want to govern; he wants to rule.
+ - Events sometimes are the biggest teachers, as opposed to words, lectures, and that kind of thing.
+ - This immigration business has been going on in the UK much in advance of the European Union making an issue of it.
+ - You have to understand the way the liberal looks at something working. Their purpose here is not to provide you health care cheaply, affordably and plentifully. That’s not what this is about to them.
+ - There isn’t one thing the federal government does that anybody in Big Business would emulate, at least not in the profit sector.
+ - Obama is not the messiah any longer. He is now your standard, ordinary, everyday politician who lies, who breaks promises, who’s in it for himself, who can’t do anything on his own. He’s not qualified. All of this is becoming known, sadly, too late.
+ - I’m just warning you here: Don’t anybody ask about the president’s religion! Don’t even get close to going there. Don’t do it. That is a forbidden area. You cannot even ask about it.
+ - The American people have worn out their patience being told by their so-called bettors that you don’t know how to live your lives the right way. We need to arrange things for you so you can do things better than you would do yourself.
+ - Most of my critics don’t even listen to me; they are clueless. They just go to Web sites that report what I say out of context.
+ - The country will survive Obama, but it cannot survive the abject ignorance that elected him.
+ - The Republican Party, I really believe, suffers from post-traumatic stress disorder from years and years of bullying and taunting. The Republican Party is Jonathan Martin. The Democrat Party and the media are Richie Incognito.
+ - Unions are the result of profit seekers. Unions are the way the average guy gets even with evil corporateers. The unions are godsends. The unions have a special status, because they represent the rising up of the average man against the evil corporateers and profiteers.
+ - The Democratic Party does not want anybody to have a photo ID because that would have a very negative impact on cheating! If you require a photo ID, that pretty much shuts out cheating. Well, it doesn’t shut it out. It just makes it harder, and that’s why they don’t want it.
+ - Why would we expect the French to fight to liberate the Iraqis when they wouldn’t fight to liberate themselves?
+ - One thing that I don’t know if people have come to grips with yet is just how serious ISIS is, just how serious militant Islamists are about Sharia. There is no compromise. There is no halfway. There is no mutual cohabitation plan.
+ - Liberalism is a series of grievances in addition to everything else that it is.
+ - The German birthrate is below replacement levels, meaning the population is shrinking, meaning fewer and fewer people of age to join the labor force.
+ - The Kennedy lifestyle is something that is looked upon favorably by the elites throughout our culture, both political and social.
+ - Obama is from this group that resents the private sector, resents the capitalistic means of production.
+ - Human nature fascinates me.
+ - Barack Obama happens to be the first African-American, and so criticism of him is and always was gonna be racism, and therefore not permitted.
+ - There’s a reason people are not going to Obamacare. They find out what it’s gonna cost ’em, and they go somewhere else. And in the process, they’re undermining the very foundation of Obamacare, all of which was predictable.
+ - The way Obama voters and non-Obama voters deal with unemployment are a very different.
+ - One of the reasons that the Senate was structured and founded the way it is, as opposed to the House, it was designed for gridlock. It was designed to stop massive new laws being passed and voted on daily. It was designed to stop the growth of government.
+ - Obama had the audacity to say, ‘I have unequivocally prohibited the use of torture by the United States.’ Ladies and gentlemen, torture in the United States has always been illegal.
+ - That’s why they’re in the problem – having the problem they’re having. They’re not conservative. They’re being run by their donors.
+ - I think this reason why girls don’t do well on multiple choice tests goes all the way back to the Bible, all the way back to Genesis, Adam and Eve. God said, ‘All right, Eve, multiple choice or multiple orgasms, what’s it going to be?’ We all know what was chosen.
+ - I’m whispering so that the media doesn’t hear me.
+ - There’s a simple way to solve the crime problem: obey the law; punish those who do not.
+ - It was some UN agency that issued a report saying we’re beyond the point of return here. And there was a picture of a polar bear on a little, tiny block of ice, which is a fraudulent – there are more polar bears than ever. The arctic ice caps are not melting. There’s so much garbage out there.
+ - I am opposed to Obama’s efforts to destroy the American economy. I’m opposed to Obama’s efforts to so-called fix the health care system. I’m opposed to the way Obama wants to go about fixing unemployment.
+ - Do you realize, when Mandela was inaugurated president, he invited as his special guests the white jailers from his Robben Island prison? He literally did forgive everybody.
+ - A loyal liberal can get away with anything with other liberals, as long as that loyal liberal is liberal and attacks conservatives left and right, spouts the right words, they get away with anything.
+ - I don’t want to be THE president, but I would like to have A president.
+ - I don’t think immigration is what’s happening in our country. I think an invasion is what is happening, particularly southern border.
+ - I’ll just say this: The last problem Paris Hilton has is being in a John McCain ad.
+ - I’ve given up on being accurately portrayed in the media.
+ - This has been the left’s technique. The technique is to portray a political enemy of the left as this outrageous caveman or whatever decrepit form of humanity that you can describe, and then assume that everybody else agrees, and then cover the story as though everybody agrees.
+ - Enraging liberals is simply one of the more enjoyable side effects of my wisdom.
+ - That thing, multiculturalism, has basically taken over the curriculum, or what is taught in the public school system.
+ - To somebody like Obama, substantive opposition is not tolerable. The objective is to eliminate all opposition – be it a political party, be it media, or what have you.
+ - The effort to combine the general population of this country with the current burgeoning numbers of illegal immigrants is outrageous, simply outrageous.
+ - Obama just announced Americans don’t consider themselves victims, or entitled. Actually, the vast majority of Obama supporters believe exactly that. They believe exactly that.
+ - Liberals talk about the ‘income inequality’ and the ‘unfairness’ and the disparity of the haves and the have-nots in New York City. Who has been running that city for all this time? Who has created the underclass in this country? It’s the Democrat Party.
+ - I think it’s Greek Orthodox – who totally believes in the pope, not anything about attacking the United States, which needs to be because we’re not recognizing the dignity of all people.
+ - Well, the chairman of Federal Reserve just made his move to rescue Barack Obama. We’re gonna have QE3. We’re gonna print some more money.
+ - I am the Doctor of Democracy. I am America’s Truth Detector. And as the Doctor of Democracy, the deal you have with your doctor isn’t changing. You get to keep your doctor. You get to keep your plan. You get to keep your station. Nothing’s changing, and it really never was gonna change.
+ - A bunch of liberals wanted to outlaw men gazing at women because the gaze was said to objectify women. Sorry, liberals, it can’t be helped among the heterosexual crowd.
+ - Feminism is liberalism, and look at what it’s doing, look at what it’s promoting, look at what it’s condoning. All the while, we have to live in this lie that there’s some sort of Republican War on Women. We don’t do this to women! We don’t objectify women like this.
+ - We’ve arrived at a point where the President of the United States is going to lead a war on traditional marriage.
+ - When you’ve got Roger Ailes on your side, you do not lose.
+ - Our founding fathers never intended that Congress be a career.
+ - There’s nothing to Obama – nothing but platitudes. When it’s time to get to the substance, we get contradictions and confusions. We don’t think that he knows what he’s talking about because it’s true: He doesn’t.
+ - The real issue, as far as Democrats are concerned, is the number of people receiving something from the government. This is exactly what Franklin Delano Roosevelt had in mind when he created this monster. And Clinton is planning to expand it beyond Roosevelt’s wildest dreams.
+ - I’m not afraid of having an agenda. I do have an agenda. It’s a positive agenda.
+ - I’m a member of the media. I’m America’s Anchorman.
+ - Some Trumpsters asked me if it was really a problem that Trump doesn’t have money to run commercials now. And I said he doesn’t have the money, just doesn’t have the money. “That’s not good. He needs to be running commercials.”
+ - We are hated because we are free. We are hated because of the idea that is the United States of America. We are hated because of our Constitution.
+ - I hate charts. I just despise ’em.
+ - There’s nobody who cares more about you than you, and there’s nobody better equipped to take care of you than you.
+ - There’s a void of leadership in a lot of Washington. I think one of the reasons why there’s so much angst across the country.
+ - Obama hasn’t lost his standing because of tricks played by the Republicans. He hasn’t lost his standing because the media’s not fair to him. He hasn’t lost his standing or his approval number because the media spent four years attacking him like they did George W. Bush. This is all on him.
+ - We’re talking tens of thousands, millions, nobody gives you that kind of money without an expectation for it. It has to be paid back somehow. You pay it back with policy.
+ - The pope can go ahead and claim that Trump is not a Christian, but you can’t go there when we talking about the president of the United States.
+ - A lot of people disagree with me on this, but the people who want somebody not of Washington, it’s serious this time. It’s – the disconnect between the Republican Party establishment and the Democrat establishment and the people of this country is longer, broader, wider than I’ve ever seen it.
+ - And one of the things that makes me happiest and proudest is that the talk radio venue, the whole market has expanded. There are all kinds of people doing it.
+ - There are people who want to import the dregs of the world into this country in order to cut this country down to size. Do not doubt me on this. I know it sounds hard to believe. Those people will be found somewhere on the political spectrum, and they vote Democrat.
+ - Liberals sit from this lofty perch of pomposity, but they are the champions of ignorance. They don’t know what they’re talking about.
+ - You can go out and you can run ads all day long on Donald Trump and what he says about women, and you haven’t even gotten close to separating his supporters from him, ’cause that’s not why they’re there.
+ - I want anyone who believes in life, liberty, pursuit of happiness to succeed. And I want any force, any person, any element of an overarching Big Government that would stop your success, I want that organization, that element or that person to fail. I want you to succeed.
+ - Being a conservative union member is almost like being an actor in Hollywood: You don’t dare say it, or you might be injured on the job, or you might be laid off, or your family might have something happen to them.
+ - The left has total control over the public education system, all the way up to the university level. It’s something they own, and it’s going to have to change.
+ - They oughtta change Black History Month to Black Progress Month and start measuring it.
+ - Bigot: A person who wins an argument with a liberal.
+ - Not my political ideas. Conservatism didn’t buy this house. First and foremost I’m a businessman. My first goal is to attract the largest possible audience so I can charge confiscatory ad rates. I happen to have great entertainment skills, but that enables me to sell airtime.
+ - Every Democrat constituency group has at least two things in common. They hate us. They despise opposition. That’s why they created political correctness. Speech censorship. They hate opposition and they’ll do anything they can to eliminate it.
+ - In life or in football, touchdowns rarely take place in seventy yard increments. Usually it’s three yards and a cloud of dust.
+ - Seriously, he is just a voice on the radio, unlike the ones in your head, you don’t have to do what he tells you to do.
+ - In the old days, the media is who held people accountable when they lied in politics. That isn’t happening anymore.
+
+500 quotes

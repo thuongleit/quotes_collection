@@ -1,0 +1,54 @@
+ - You must never believe everything they say about a person. Generally speaking, most of it will be lies, half-truths at best.
+ - I am mad, I think. I am mad therefore I think. I am mad therefore I think I am.
+ - Whatever happens to you, embrace it, the good and the bad equally. Death is just one more thing to be embraced.
+ - Ethics are not necessarily to do with being law-abiding. I am very interested in the moral path, doing the right thing.
+ - The beginning is the word and the end is silence. And in between are all the stories.
+ - What if we had a chance to do it again and again, until we finally did get it right? Wouldn’t that be wonderful?
+ - Life wasn’t about becoming, was it? It was about being.
+ - Most people muddled through events and only in retrospect realized their significance.
+ - No point in thinking, you just have to get on with life. We only have one after all, we should try and do our best. We can never get it right, but we must try.
+ - Fairy tales opened up a door into my imagination – they don’t conform to the reality that’s around you as a child. I started reading when I was three and read everything, but I wanted to be an actress.
+ - It was a long time ago now. And it was yesterday.
+ - Become such as you are, having learned what that is.
+ - When you chopped logs with the ax and they split open they smelled beautiful, like Christmas. But when you split someone’s head open it smelled like abattoir and quite overpowered the scent of the wild lilacs you’d cut and brought into the house only this morning, which was already another life.
+ - I’ve always loved mysteries, the something there that you didn’t know, and with ‘Case Histories’ I just decide to make that more up-front.
+ - She was a terrible mother, there was no doubt about it, but she didn’t even have the strength to feel guilty.
+ - Perhaps we are on an insula ex machina, an artificial place not in the real world at all – a backdrop for the stories we must tell.
+ - When I’m writing, my neural pathways get blocked. I can’t read. I can barely hold a conversation without forgetting words and names. I wish I could wear the same clothes and eat the same food each day.
+ - I feel as if I’m waiting for something dreadful to happen, and then I realize it already has.
+ - Time was a thief, he stole your life away from you and the only way you could get it back was to outwit him and snatch it right back.
+ - I was on the verge of something numinous and profound and in one more second the universe was going to crack open and arcana would rain down on my head like grace and all the cosmic mysteries were going to be revealed.
+ - Sometimes it was harder to change the past than it was the future.
+ - They said love made you strong, but in Louise’s opinion it made you weak. It corkscrewed into your heart and you couldn’t get it out again, not without ripping your heart to pieces.
+ - He was born a politician. No, Ursula thought, he was born a baby, like everyone else. And this is what he has chosen to become.
+ - The past is a cupboard full of light and all you have to do is find the key that opens the door.
+ - As I watch, the sky fills with clouds of snow feathers from every kind of bird there ever was and even some that only exist in the imagination, like the bluebirds that fly over the rainbow.
+ - Hindsight’s a wonderful thing. If we all had it there would be no history to write about.
+ - If people believed in eternal damnation they might not be seizing the day quite so much.
+ - I did feel when my mother died if anyone was going to haunt me it would be her. And she hasn’t, so I think it is possibly the end.
+ - Alternate history fascinates me, as it fascinates all novelists, because ‘What if?’ is the big thing.
+ - She should have done science, not spent all her time with her head in novels. Novels gave you a completely false idea about life, they told lies and they implied there were endings when in reality there were no endings, everything just went on and on and on.
+ - Ursula craved solitude but she hated loneliness, a conundrum that she couldn’t even begin to solve.
+ - You can step in the same river but the water will always be new.
+ - What did you do when the worst thing that could happen to you had already happened – how did you live life then? You had to hand it to Theo Wyre, just carrying on living required a strength and courage that most people didn’t have.
+ - My father was an autodidact. It wasn’t a middle-class house. Shopkeepers are aspirant. He paid for me to go to private school. He was denied an education – he had a horrible childhood. He got a place at a grammar school and wasn’t allowed to go.
+ - I find the past so fascinating. Photographs are strange, almost surreal, almost here yet gone. I slip into thinking what the past must have been like and I enjoy creating that ambience and atmosphere – 1730 to around 1870 is the most interesting period.
+ - Feminism is such an incredibly awkward word for us these days, isnt it? Not to be feminist would be bizarre, wouldnt it?
+ - In the end, it is my belief, words are the only things that can construct a world that makes sense.
+ - Not being published would be great. When I say that to other writers they look at me as if I’m totally insane.
+ - If you don’t have a unique voice, then you’re not really a writer.
+ - The great thing about writing compared to life is getting to tie things up.
+ - Oh, God. What was happening to her, she was turning into a normal person.
+ - The past is what you take with you.
+ - Men had no purpose on earth whereas women were gods walking unrecognized among them.
+ - Jennifer had never liked the pain of remembering what had happened, but for Theo it was the pain that kept Laura alive in his memory. He was afraid that if it ever began to heal she would disappear.
+ - I spent four years doing a doctorate in postmodern American literature. I can recognize it when I see it.
+ - Probably not needing to be published would give me more time to think about a book.
+ - I had a novel in the back of my mind when I won an Ian St James story competition in 1993. At the award ceremony an agent asked me if I was writing a novel. I showed her four or five chapters of what would become ‘Behind the Scenes at the Museum’ and to my surprise she auctioned them off.
+ - Sylvia loved secrets and even if she didn’t have any secrets she made sure that you thought she did. Amelia had no secrets, Amelia knew nothing. When she grew up she planned to know everything and to keep it all a secret.
+ - If they would all sleep all the time she wouldn’t mind being their mother.
+ - It’s been said that the men in my books have been absent, or weak, or creepy.
+ - Love was the hardest thing. Don’t let anyone ever tell you different.
+ - I don’t have goals when writing books, apart from getting to the end. I have rather vague ideas about how I want things to feel, I’m big on ambience. I have a title, a beginning and a probable ending and go from there.
+
+52 quotes

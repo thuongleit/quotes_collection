@@ -1,0 +1,70 @@
+ - The source of genius is imagination alone, the refinement of the senses that sees what others do not see, or sees them differently.
+ - Nature is a dictionary; one draws words from it.
+ - If I haven’t fought for my country at least I’ll paint for her.
+ - Nourish yourself with grand and austere ideas of beauty that feed the soul Seek solitude.
+ - The so-called conscientiousness of the majority of painters is only perfection applied to the art of boring.
+ - If one considered life as a simple loan, one would perhaps be less exacting. We possess actually nothing; everything goes through us.
+ - A fine suggestion, a sketch with great feeling, can be as expressive as the most finished product.
+ - To be understood a writer has to explain almost everything.
+ - We work not only to produce, but to give value to time.
+ - The first virtue of a painting is to be a feast for the eyes.
+ - If you are not skillful enough to sketch a man jumping out of a window in the time it takes him to fall from the fourth storey to the ground, you will never be able to produce great works.
+ - Nature creates unity even in the parts of a whole.
+ - The artist who aims at perfection in everything achieves it in nothing.
+ - The outcome of my days is always the same; an infinite desire for what one never gets; a void one cannot fill; an utter yearning to produce in all ways, to battle as much as possible against time that drags us along, and the distractions that throw a veil over our soul.
+ - What is real for me are the illusions I create with my paintings. Everything else is quicksand.
+ - A picture is nothing but a bridge between the soul of the artist and that of the spectator.
+ - I believe it safe to say that all progress must lead, not to further progress, but finally to the negation of progress, a return to the point of departure.
+ - I live in company with a body, a silent companion, exacting and eternal. He it is who notes that individuality which is the seal of the weakness of our race. My soul has wings, but the brutal jailer is strict.
+ - God is that inner presence which makes us admire the beautiful and consoles us for not sharing the happiness of the wicked.
+ - Mythological subjects always new. Modern subjects difficult because of the absence of the nude and the wretchedness of modern costume.
+ - Everyone knows that yellow, orange, and red suggest ideas of joy and plenty. I can paint you the skin of Venus with mud, provided you let me surround it as I will.
+ - Give me some mud, and I will paint you a woman’s flesh.
+ - I have told myself a hundred times that painting – that is, the material thing called a painting – is no more than a pretext, the bridge between the mind of the painter and the mind of the spectator.
+ - I am carrying out my plan, so long formulated, of keeping a journal. What I most keenly wish is not to forget that I am writing for myself alone. Thus I shall always tell the truth, I hope, and thus I shall improve myself. These pages will reproach me for my changes of mind.
+ - The source of genius is imagination alone.
+ - Criticism is like many other things, it drags along after what has already been said and doesn’t get out of its rut.
+ - Seeing artistically does not happen automatically. We must constantly develop our powers of observation.
+ - One always has to spoil a picture a little bit, in order to finish it.
+ - I go to work as others rush to see their mistresses, and when I leave, I take back with me to my solitude, or in the midst of the distractions that I pursue, a charming memory that does not in the least resemble the troubled pleasure of lovers.
+ - I live in company with a body, a silent companion, exacting and eternal.
+ - The only ones who can really benefit by consulting the model are those who can produce their effect without a model.
+ - Perfect beauty implies perfect simplicity, a quality that at first sight does not arouse the emotions which we feel before gigantic works, objects whose very disproportion constitutes an element of beauty.
+ - The contour should come last, only a very experienced eye can place it rightly.
+ - Talent does whatever it wants to do. Genius does only what it can.
+ - One never paints violently enough.
+ - Cold exactitude is not art; ingenious artifice, when it pleases or when it expresses, is art itself.
+ - Do not be troubled for a language, cultivate your soul and she will show herself.
+ - Of which beauty will you speak? There are many: there are a thousand: there is one for every look, for every spirit, adapted to each taste, to each particular constitution.
+ - Every time I await a model, even when I am most pressed to time, I am overjoyed when the time comes and I tremble when I hear the key turn in the door.
+ - Even when we look at nature, our imagination constructs the picture.
+ - Painters who are not colorists produce illumination, not painting.
+ - Perhaps the sketch of a work is so pleasing because everyone can finish it as he chooses.
+ - At a distance this fine oak seems to be of ordinary size. But if I place myself under its branches, the impression changes completely: I see it as big, and even terrifying in its bigness.
+ - The things one experiences alone with oneself are very much stronger and purer.
+ - One should not be too difficult. An artist should not treat himself like an enemy.
+ - Curiously enough, the Sublime is generally achieved through want of proportion.
+ - In abandoning the vagueness of the sketch the artist shows more of his personality by revealing the range but also the limitations of his talent.
+ - What makes sovereign ugliness are our conventions.
+ - All painting worth its name, unless one is talking about black and white, must include the idea of color as one of its necessary supports, in the same way that it includes chiaroscuro, proportion, and perspective.
+ - Do all the work you can; that is the whole philosophy of the good way of life.
+ - The more an object is polished or brilliant, the less you see its own color and the more it becomes a mirror reflecting the color of its surroundings.
+ - The secret of not having worries, for me at least, is to have ideas.
+ - Experience alone can give, even to the greatest talent, that confidence in having done all that could be done.
+ - Real beauty in the arts is eternal and would be accepted at all periods; but it wears the dress of its century: something of that dress clings to it, and woe to the works which appear in periods when the general taste is corrupted.
+ - Draughtsmen may be made, but colourists are born.
+ - Experience has two things to teach. The first is that we must correct a great deal and the second, that we must not correct too much.
+ - When a thing bores you, do not do it.
+ - One must learn to be grateful for one’s own findings.
+ - The living model never answers well the idea or impressions the painter wishes to express; one must, therefore, learn to do without one, and for that, you must acquire facility, furnish one’s memory to the point of infinitude, and make numerous drawings after the old masters.
+ - Not only can color, which is under fixed laws, be taught like music, but it is easier to learn than drawing, whose elaborate principles cannot be taught.
+ - It is only possible to speak in the language and in the spirit of one’s time.
+ - A wife of your own stature is the greatest of all blessings.
+ - What moves those of genius, what inspires their work is not new ideas, but their obsession with the idea that what has already been said is still not enough.
+ - How can this world, which is so beautiful, include so much horror?
+ - Remember the enemy of all painting is gray: a painting will almost always appear grayer than it is, on account of its oblique position under the light.
+ - A taste for simplicity cannot last for long.
+ - If painters left nothing of themselves after their deaths, so that we were obliged to rank them as we do actors according to the judgment of their contemporaries, how different their reputations would be from what posterity has made them!
+ - What I have done cannot be taken from me.
+
+68 quotes

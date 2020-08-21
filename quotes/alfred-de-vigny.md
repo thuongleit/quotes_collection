@@ -1,0 +1,46 @@
+ - Fainthearted animals move about in herds. The lion walks alone in the desert. Let the poet always walk thus.
+ - The true God, the mighty God, is the God of ideas.
+ - Invisible is real. Souls have their own world.
+ - No writer, no matter how gifted, immortalizes himself unless he has crystallized into expressive and original phrase the eternal sentiments and yearnings of the human heart.
+ - A calm despair, without angry convulsions or reproaches directed at heaven, is the essence of wisdom.
+ - Only silence is great; all else is weakness.
+ - I love the majesty of human suffering.
+ - History is a novel for which the people is the author.
+ - The acts of the human race on the world’s stage have doubtless a coherent unity, but the meaning of the vast tragedy enacted will be visible only to the eye of God, until the end, which will reveal it perhaps to the last man.
+ - What is a great life? It is the dreams of youth realised in old age.
+ - Doubt is the freedom of thought. Any claim to truth can be doubted.
+ - The loveliest Muse in the world does not feed her owner; these girls make fine mistresses but terrible wives.
+ - But it is the province of religion, of philosophy, of pure poetry only, to go beyond life, beyond time, into eternity.
+ - Hope is the biggest of our foolish things.
+ - Every man has seen the wall that limits his mind.
+ - On the day when man told the story of his life to man, history was born.
+ - An army is a nation within a nation, it is one of the vices of courage.
+ - The existence of the soldier, next to capital punishment, is the most grievous vestige of barbarism which survives among men.
+ - What is the use of theorizing as to wherein lies the charm that moves us?
+ - Hope is the greatest madness. What can we expect of a world that we enter with the assurance of seeing our fathers and mothers die? A world where, if two beings love each other and give their lives to each other, both can be sure that one will watch the other perish?
+ - I think, then, that man, after having satisfied his first longing for facts, wanted something fuller – some grouping, some adaptation to his capacity and experience, of the links of this vast chain of events which his sight could not take in.
+ - We live in an age of universal investigation, and of exploration of the sources of all movements.
+ - Honour is manly decency. The shame of being found wanting in it means everything to us. Is this, then, the indefinable, the sacred thing?
+ - Perform your long and heavy task with energy, treading the path to which Fate has been pleased to call you.
+ - I have a private theory, Sir, that there are no heroes and no monsters in this world. Only children should be allowed to use these words.
+ - Of what use is the memory of facts, if not to serve as an example of good or of evil?
+ - One might almost reckon mathematically that, having undergone the double composition of public opinion and of the author, their history reaches us at third hand and is thus separated by two stages from the original fact.
+ - The events I sought were never as great as I needed them to be.
+ - What it values most of all is the sum total of events and the advance of civilization, which carries individuals along with it; but, indifferent to details, it cares less to have them real than noble or, rather, grand and complete.
+ - We shall find in our troubled hearts, where discord reigns, two needs which seem at variance, but which merge, as I think, in a common source – the love of the true, and the love of the fabulous.
+ - Do you know that charming part of our country which has been called the garden of France – that spot where, amid verdant plains watered by wide streams, one inhales the purest air of heaven?
+ - From this, without doubt, sprang the fable. Man created it thus, because it was not given him to see more than himself and nature, which surrounds him; but he created it true with a truth all its own.
+ - What is a great life but a youthful intention carried out in maturity?
+ - The study of social progress is to-day not less needed in literature than is the analysis of the human heart.
+ - Poetry is the disease of the brain.
+ - France, for example, loves at the same time history and the drama, because the one explores the vast destinies of humanity, and the other the individual lot of man.
+ - Do you not see with your own eyes the chrysalis fact assume by degrees the wings of fiction?
+ - The first among mankind will always be those who make something imperishable out of a sheet of paper, a canvas, a piece of marble, or a few sounds.
+ - To hold power has always meant to manipulate idiots and circumstances; and those circumstances and those idiots, tossed together, bring about those coincidences to which even the greatest men confess they owe most of their fame.
+ - Of what use were the arts if they were only the reproduction and the imitation of life?
+ - Art ought never to be considered except in its relations with its ideal beauty.
+ - The human mind, I believe, cares for the True only in the general character of an epoch.
+ - Just as we descend into our consciences to judge of actions which our minds can not weigh, can we not also search in ourselves for the feeling which gives birth to forms of thought, always vague and cloudy?
+ - Oh, I have a habit of letting myself be lectured on the things I know best. I like to see if they are understood in the same way I understand; for there are many ways of knowing the same thing.
+
+44 quotes

@@ -1,0 +1,96 @@
+ - When you start to develop your powers of empathy and imagination, the whole world opens up to you.
+ - It helps me chill out and focus.
+ - I believe in using words, not fists.
+ - I look forward to being older, when what you look like becomes less and less an issue and what you are is the point.
+ - Happiness is the true beauty weapon.
+ - We’ve legalized marijuana recently. Medical marijuana, but the rest will come.
+ - I hate the assumption that once you’re committed to someone you stop treating each other like individuals. I like getting up knowing I am choosing to be with that person.
+ - I’ll always rather be in a ship that’s got a captain that has some vision.
+ - Sometimes what happens is that, when you micromanage actors and moments, it just doesn’t quite live.
+ - Children reinvent your world for you.
+ - I’ve tried them all, I really have, and the only church that truly feeds the soul, day in, day out, is the Church of Baseball.
+ - Making love is like hitting a baseball. You just gotta relax and concentrate.
+ - Like most parents in the US, they are trying, with a little help from UNICEF, to do the best they can to help their children reach their full potential...
+ - Everyone has a responsibility towards this larger family of man, but especially if you’re privileged, that increases your responsibility.
+ - By the time I went to the Catholic University of America, which was the time the priests were all leaving with the nuns, the more I studied about the Bible and how it came about, the more I lost my faith.
+ - I just want my kids to love who they are, have happy lives and find something they want to do and make peace with that. Your job as a parent is to give your kids not only the instincts and talents to survive, but help them enjoy their lives.
+ - I try to live my life every day in the present, and try not to turn a blind eye to injustice and need.
+ - I feel my family’s needs are a priority. I’m not comfortable with the idea of serving the many and ignoring my family.
+ - The only time I’ve really been away from my kids to do work was doing Shall We Dance because they both were in camp and it was the first time in twenty years that I haven’t been with my kids.
+ - I feel I’ve always been on the outside and always on the edge of an abyss. The women I portray, and the woman I am, are ordinary but maybe find themselves in extra-ordinary circumstances, and what they do is at great cost.
+ - At a time when everything seems so out of control and the people you’ve elected are bogus and there’s so much random violence and hatred, it fills you with such hope and admiration to even be part for a short time in a community where people have connected to strangers to try to put out a hand.
+ - Never root for a team whose uniforms have elastic stretch waistbands.
+ - When my children wake up in the morning they know they will eat breakfast, get hugs from their parents, go to a good, safe school. Plates are full and store windows are glittering. But at the same time the great majority of the world’s children and women stand – no – shiver on the precipice.
+ - What I like about The Meddler style of movie is that it’s a fairly lighthearted romantic comedy, but there are hidden moments where something happens that’s unexpected, that hopefully have some kind of emotional resonance that you didn’t see coming. I love when a film does that.
+ - That’s the thing about independently minded children. You bring them up teaching them to question authority, and you forget that the very first authority they question is you.
+ - At the end of your life, you are going to want to know that you made some kind of difference.
+ - I don’t think there’s a petty system of heaven and hell. The love of God is much more forgiving. I’m not a believer in a wrathful God at all.
+ - There is no shortcut to grieving.
+ - When I tell people I’m a comedian they say, ‘Oh, are you funny?’ I say, ‘No, it’s not that kind of comedy.’
+ - When I grew up in the church, we were praying because the Communists were going to come over and hang you upside down on a cross, and I so wanted to be a good person, and I had these rosary beads that I would sleep with every night, and I just wanted the blessed Virgin to be on my side.
+ - Now, Tim has been really, really busy, and it’s been my job now to kind of deal with everything. And trying to figure out how we balance that, logistically it’s a nightmare. But these little jobs make it much easier.
+ - If sexuality means saying yes to life, then you should be able to remain sexual until the day you die.
+ - This Catholic thing, I think what it does is it makes a place for mystery in a person. And even when the faith goes away, there’s that space where you crave something bigger than yourself. For me, that’s kind of where art came in, after that.
+ - To know that once you decide to look at life outside of the narrow limits of just your world and start to understand that you can make a difference in very simple ways – in volunteering and all the way up to bigger world problems.
+ - I think it’s very hard to be naked in a scene and not be upstaged by your nipples.
+ - I always had a problem with original sin; I always had a problem with the exclusivity of the church and a lot of the things that the nuns taught me.
+ - This is an amazing country, for all of its faults. My feeling is, dig in and let’s try to change the world. Dissent is not only your right, it’s your duty.
+ - To each person, their own way of death – with dignity.
+ - I got married to Chris Sarandon, who was a graduate student, and he knew everything at that point, I thought, because he was older. He introduced me to poetry and black-and-white movies.
+ - I think sometimes what happens is that all of this feeling out of control manifests itself in trying to control your body; whether it’s an eating disorder or talking about getting your nose fixed, as if that’s going to be the solution to all the pressure.
+ - You create this situation where you are so dependent on each other. That’s especially true for film. In theater, the actor has much more say, much more control, for better or worse.
+ - Certainly, if more people were smoking instead of drinking, people don’t get mean on weed, don’t beat up their wives on weed, and don’t drive crazy on weed. They just get hungry, don’t go out of the house, or laugh a lot. I think it would make for a much more gentle world.
+ - When Alan Rickman, a dear friend of mine, played villains, he always made it complicated. He didn’t redeem what they did, but he made you feel that it was hard for them to be so horrible.
+ - It’s a miracle when something actually turns out well because there are so many ways for it to go wrong.
+ - One night I looked down and my rosary beads were glowing. And I realized that I did not want to see the blessed Virgin – I was terrified.
+ - Somebody can be the captain of the ship, which allows you to make big mistakes.
+ - If you always have to be watching yourself and judging, I don’t think you’re as free.
+ - With the help of folks like you and me, Heifer International tackles the problem of hunger one family at a time with gifts of renewable resources – farm animals that are ongoing sources of food and income.
+ - There wasn’t space to mood-up. I think Rose Byrne was just extraordinary. Talk about a character that could be really unsympathetic at times. She just jumped in these scenes that go from anger to hysteria to crying to laughing and back to anger. I just marveled.
+ - If you walk down the street and see someone in a box, you have a choice. That person is either the other and you’re fearful of them, or that person is an extension of your family.
+ - Before our kids start coming home from Iraq in body bags and women and children start dying in Baghdad, I need to know, what did Iraq do to us?
+ - On parochial school I was told I had an overabundance of original sin.
+ - I’m happy to be considered desirable. I love it!
+ - The trouble with being an activist is you end up like Eve and you get kicked out of the Garden of Eden. You know, Eve was the first person who thought for herself. And she still gets a bad rap. I named my daughter after her.
+ - I think I’m an actor because I have very strong imagination and empathy. I never studied acting, but those two qualities are exactly the qualities that make for an activist.
+ - I can’t speak for other people, but for me, it never really worked to think something like, “What Beatle did she like in high school?” or those kinds of elaborate backstories.
+ - If Wes Anderson has a very strong cast, he can direct the minutia of that story and still manage to have something that lives and breathes.
+ - I think you have to be ready to switch gears and go with the team as a director, as opposed to superimposing your own strict idea of the story. There are very few directors that can micromanage and still come out with something that’s living and breathing on a page. Wes Anderson is one of those .
+ - That’s one of my little expressions. I never really studied acting so I kind of kiddingly talk about “building your circle” and “mooding up,” because I really didn’t learn any technique.
+ - Kurt Vonnegut wasn’t a chatty guy, but when he spoke, it was always clear and very funny, in the way that he wrote, in a very specific kind of combination of word groupings and expressions that lived somewhere else.
+ - The only thing I can talk about is just forgiving yourself, because I do not have everything together. And so I tell people: No, you should see my house, it’s a mess.
+ - New York is very user-friendly if you don’t want to be in a car all the time. It can also provide you with surprises because it’s so compressed – if you walk around, you just find things.
+ - With the most interesting directors, the cast comes together to make something magical that nobody counted on.
+ - It’s ridiculous that we continue to incarcerate anyone for using a substance that actually causes far less damage than alcohol. No one goes out looking for fights on marijuana. No one dies from marijuana intoxication. And no one should be jailed for possessing marijuana.
+ - I don’t like to plan. Very often, for me, acting is like loving; it’s using the muscle that you use in loving, in that your heart feels open. Physically, you feel open. And so therefore your job is to enter, open, and listen. And see what happens.
+ - Acting is kind of a forced compassion, where you learn that given certain circumstances, you can feel and do things that you never thought yourself capable of. And so it stops you from being super-judgmental.
+ - Being a Catholic, I was drawn to the mystery of the Latin and the smoke and the mirrors and all of that. That part of my disposition definitely did lend itself to finding my way to the back door of some artistic pursuit.
+ - It never really worked for me to have long arguments about motivation.
+ - If you’re upset with how you look at 25, life’s going to be tough.
+ - You have to take away the idea that something you do is right or wrong. I don’t think there’s a right or a wrong; I think there’s an “it works” or “it doesn’t work” for the whole. And that’s why you need a director you trust, so you can just keep throwing out suggestions.
+ - I hesitate to direct even though I feel I contribute a lot on a set.
+ - He has a very strong vision of what he wants.
+ - I’d have conversations with the camera crew about what was going on in the scene, so that they were prepared to shoot it. I love the fact that when you work, you create this tribe.
+ - I’m tired of being labelled anti-American because I ask questions.
+ - How will the bombing of Baghdad, a city of five million, accomplish a regime change?
+ - Sometimes when you have to go into something, unless you’re gifted and can just turn it on and off like a jukebox, you find someplace where there’s nothing going on to get yourself into whatever state your character is entering into.
+ - It’s still not easy to find roles that offer more complex images of women.
+ - To become a lapsed Catholic, first go to a Catholic university.
+ - It’s a very exciting time in the history of this country, to even see people responding to a different way of doing business and really wanting to make a change.
+ - So I would hope they would develop some kind of habit that involves understanding that their life is so full they can afford to give in all kinds of ways to other people. I consider that to be baseline spirituality.
+ - The directors I consider really great have the ability to recognize when something’s going in an unexpected direction and see it as a bonus and be able to go with it, as opposed to locking down what they thought was going to happen.
+ - I’m kind of a nerd, so whenever I get a chance to talk to an artist I really admire, I tend to gravitate to process.
+ - Just because I haven’t yet had any project surgery, I’m not going to knock it, because I think women have the right to do whatever they want to their bodies that make them feel good about themselves.
+ - It will be great when it’s not such a big deal when a woman gets a good job.
+ - I’m a native New Yorker. Everything to do with New York feels like my family.
+ - If you can just see all the children of the world as your own, all the mothers of the world as you are, we can make a huge difference.
+ - We stand a chance of getting a president who has probably killed more people before he gets into office than any president in the history of the United States.
+ - When you run into someone in NY it is usually a pleasant surprise. When you run into someone in LA you usually had a car accident.
+ - I think looking at your own life, on- and offscreen, you can motivate anything, or you can delude yourself into anything.
+ - It is a different world than when I was growing up, and you started to just kind of maintain at thirty-five and just hope you can hope it together. People are a lot more vital than I am and doing all kinds of things and leading really important movements.
+ - It’s really hard to find stuff that is original. You pick up scripts and in four pages you know where it’s going and the same thing when you are sitting in a theatre, I just rejoice when something unfolds in a way that I’m not conducive...
+ - I had school debt I had to pay off. Sometimes I would do commercials to get me through. And so I kept bumping along like that and learning different things. I knew I wanted to get out on my own. I was just super-curious, and I was a good listener. And that got me through.
+ - It’s important to just keep wanting whatever it is you want and fight for it, desperately.
+ - My intent is to speak on behalf of those whose voices are less readily heard – children and women at risk.
+
+94 quotes

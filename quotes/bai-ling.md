@@ -1,0 +1,39 @@
+ - I think I’m like a free spirit.
+ - You have to accept the storms and the rainy days and the things in life that you sometimes don’t want to face.
+ - The definition of love is giving.
+ - Boundaries, and countries, if we don’t have that we are all brothers and sisters, we can all have love and joy and compassion for each other: the world would be much more beautiful.
+ - Storms and darkness scared me, but somehow it encouraged me to learn about nature and I think nothing’s dark, dark is beautiful too.
+ - I’m one of the best actresses. One day I will win an Oscar.
+ - I went to South Africa on safari and came eye to eye with a beautiful leopard. We were so close; I was staring at him for a long time and I felt a recognition with my own nature.
+ - I indulged the wild child inside of me – the one that’s not aware of danger or fear – for the purity of existence for that character in that film. Of course, behind me they’re saying, ‘She’s crazy!’
+ - I think we all have our own mission, duty, fate in life so for me somehow I think I am always walking on the edge of life and take risks.
+ - You have to be proud of who you are.
+ - I’m a romantic, and I like guys to bring flowers and buy some gifts – not expensive things, just romantic things.
+ - I think sometimes I’m more fond of doing the research for the character because you learn so much. Sometimes shooting is really difficult because you wake up early and you’re always hurrying. And sometimes I don’t know what I’m doing. I’m here and there.
+ - Yeah, well my name is Bai Ling. That means white spirit, and I really feel like sometimes I’m not existing.
+ - Every woman should shave her head once in her life, to experience what it feels like.
+ - I hate shopping. I don’t go shopping. If I do, I run in and out.
+ - I also like to follow nature’s rhythm. In times or places, they have their own rhythm. So you cannot push it. So we must accept that as well. Wherever we’re born at this time, we just live it.
+ - The partner that you have is supposed to make you a better person, and when you’re happy, you’re a better person.
+ - I think I’m known as an adventuress. Even generally in life, I have no fear. It’s not that I’m not afraid of things, but when I am afraid of something, I don’t back away – I approach it and try to understand what makes me afraid.
+ - English is my second language, but in Hong Kong, they don’t know that I’m from China. They think I’m from Hollywood because all the films they see are from here. China and Hong Kong are very different places, but they’re starting to merge. Still the culture is very different.
+ - Johnny Depp is one of my favorite actors because he takes chances.
+ - When you’re challenged, you’re totally alive and totally dealing with reality, particularly if it could be dangerous. And that excites me!
+ - I’m very private in person. I’m very sensitive and shy with men individually. But when I’m talking, maybe there’s this other channel or this other side and other way of working in my mind, and I convert and become carefree.
+ - Basically, I have a gift as an actress, and I want to present the sophisticated side of me as an actress and a person.
+ - When you don’t get what you want, it just makes you accept real life.
+ - I think I’m open to adventures and surprises. As a performer, I’m really just naturally talented. And those roles may not look as good on paper, but I know how to create them on screen. I like to have fun and interpret my roles in my own way.
+ - Like, you can find your dream, if you firmly believe. You have to have the innocence, and you have to have the daringness to trust.
+ - Well I think always, when you remake films, I always think the first one is most original, authentic.
+ - I guess I feel like it’s a gift to meet those talented artists like George Lucas and Oliver Stone, Spike Lee and Richard Kelly. Even if it’s a small role, it’s a gift to be working that closely with them.
+ - Acting to me is real life – I don’t act.
+ - I had heard about how people struggle and how hard it is to get into acting. But I did not care because it’s something I love.
+ - I’m not superstitious.
+ - I’m a person that doesn’t have that many goals or plans. I feel like I’m the wind and I blow through life; it’s whatever comes to me. I very much respect nature. Whatever happens to me, I’m happy and I embrace it.
+ - What I like about being an actress is that it keeps you feminine. Being a director and producer makes you manly and very masculine and I don’t like that quality in a woman. But I’ll do it when the film is very close to me.
+ - And also, I know I have this responsibility or mission to show people, to encourage them to live their dream, too.
+ - You never know what’s going to happen. That’s why I like acting. It’s precious to me to be able to live more than one life.
+ - I have a blog in Chinese, which you can follow, Chinese signs. But I don’t even update at all, often I don’t.
+ - Wong Kar-wai and Ang Lee are two Asian directors I’m really fond of.
+
+37 quotes

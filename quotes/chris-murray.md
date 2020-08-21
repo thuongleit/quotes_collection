@@ -1,0 +1,51 @@
+ - Mark my words. Perception is reality and how someone perceives you is their reality.
+ - Make sure everyone who works with you or for you, feels the need to tell others about the incredible experience.
+ - In this world of half-jobs and liars, I will prevail.
+ - There can be no success in sales without tenacity.
+ - Understand why you are different and how you help, recognise your target market, and give them something they might not even realise they are missing.
+ - Perception number one, how you want people to think about you when you arrive and perception number two, how you want them to talk about you once you have left.
+ - That which is currently beyond your capabilities now, does not have to be so forever.
+ - It’s not how I view being a salesman. It’s how I live being a salesman.
+ - Like an ant, I will find my way round any obstacle. Like a child, I will persevere with pinpoint focus.
+ - Listening is a discipline. It’s all about being present at that moment in time.
+ - Ready? No one is ever ready, my boy. But some do what they plan to do and some never will. The difference between the two is that the first group understand that they need to start somewhere, so they do so. Straight away.
+ - If you honestly know how you help people, then you should become passionate about sharing it, spread the good news, give everyone a chance to share in the solutions that you can provide.
+ - People submit too easily to change from others. And yet, for some reason, whenever they consider changing themselves, the focus is always on what they are giving up, never what they are about to gain.
+ - Each step of your current journey will take you to new and interesting worlds of opportunity and as every intrepid explorer knows, when one visits strange new lands one must be aware of their customs.
+ - You can only see your current horizon. Every time you move nearer to your desired destination, new horizons will become clear. New, previously hidden, opportunities will come into view.
+ - Remember this. We are always looking for problems to solve, and to solve problems we need to be ready for clues. And you will never be in the receiving frame of mind if you – never – shut – up!
+ - Until you take the first step forward, failure remains reassuringly impossible.
+ - The choices you make from this day forward will lead you, step by step, to the future you deserve.
+ - You – help – people. You are an expert in your field, who genuinely helps other human beings. Take pride in that, stop hawking your wares, and get a bit of respect for your profession, and earn some from your prospects.
+ - Plans are easy to make, dreams are easy to dream. But putting your back into it? A little bit of hard graft and discipline? That is just too scary and far too much effort for the masses.
+ - You look green, immature. A young boy playing at business, dressing up in the manner in which he believes an actual grown-up would. Your viewpoint of business attire is one of wide-eyed wonder from the nursery door.
+ - Fascinatingly resilient the tenacity of a child. Not yet conditioned by society to give up when instructed to do so.
+ - I should become happier at what I do and leave others happier than before they’d met me.
+ - Don’t allow your imagination to colour events as lesser men would, and see movement in motionless things.
+ - It has nothing to do with the time being right or wrong. Storms just happen.
+ - If you wish to sell to anyone you must earn the right to do so.
+ - Spend your time designing the greatest reputation a man could possess.
+ - Why do so many salespeople talk to customers about the product and not the result?
+ - You can’t plough a field by turning it over in your mind. Either you get out there and plough it or it doesn’t get done.
+ - No one can mock your meagre achievements or inability to accomplish the simplest of tasks, if they remain figments of your imagination. You can revel, again and again, in the glory of a fairy tale doomed never to appear in reality.
+ - Listen to people from your heart, as if your life depended on it, and you will find that in turn people will listen to you with all of theirs.
+ - Nobody ever kicked a dog wagging its tail.
+ - Seeking those elusive individuals is like mining for rare gems. It will take hard work, patience, and a persistent attitude. To find that rich seam of colourful stones, you will have to chip through dirt and rock. You will have to learn how to hold rubble in your hands and see the fortune inside.
+ - Men constantly miscalculate what they can do in a day, and grossly underestimate what can be achieved in a year.
+ - Currently, you are approaching each opportunity with a single possible outcome and when that doesn’t happen you fool yourself that there was nothing more that you could have done.
+ - Destiny and fate are of one’s own making, and riches and happiness are rarely found at the end of an easily-traversed path.
+ - But without a need, even the finest piece of beef is merely a piece of dead bull is it not?
+ - This next nugget of salesmanship cannot be perfected in a single afternoon. However, once you have it mastered, your competition will continuously believe you possess some mystical customer attracting formula.
+ - Let your customers and prospects recommend you to each other and let you competition wish they were you. That is our mission.
+ - The future is a fabulous place to bury your success.
+ - Everything you desire is always just outside your comfort zone, dear boy. If it wasn’t you would already possess it, would you not?
+ - And so it must be with the energy you muster for your own work. Get out there and convert the unconverted. Save them all from the charlatans and the nearly-men.
+ - Young man, your problem and the reason so many like you fail, is simply because you allow yourself to give up far too early.
+ - In short, the difference between you and your doctor is that he has a well-designed reputation and you do not.
+ - Dreaming and becoming are completely separate parts of the process. However, they are both as important as each other. Never discount how powerful your dreams are. If you cannot visualise what it is you wish to become, then the brain doesn’t have the first clue how to get you there.
+ - What you deserve will be down to you, and you alone.
+ - You see continuous movement is the important thing here. Those who remain in one position and then lie to themselves about their progress are the ones in real trouble.
+ - I will ask questions that are so wide and open they will feel the need to speak for a week. Then from the information that they give to me, I will mould solutions designed specifically for them.
+ - Trust me. If you do not decide where you are heading, and refuse to take the appropriate action, you will end up being shaped into what others would have you become. Then any change will not be made for your benefit but for theirs.
+
+49 quotes

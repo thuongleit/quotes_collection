@@ -1,0 +1,41 @@
+ - Stubborn people get themselves in a lot of trouble, but they also get things done.
+ - Everything about being a teenager and not feeling like you fit in is just magnified by being a mutant!
+ - I’m Anna Paquin. I’m bisexual and I give a damn.
+ - One hate crime is committed approximately every hour of every day in this country.
+ - Maybe I’m misjudging people, but I feel like a lot of people still have an image of me in a bonnet at nine years old.
+ - I just do what feels right. I think the great thing about getting to do what I do is that you can try out being a different person without having to screw up your life to do it.
+ - It’s great to have the freedom to enjoy your work and not feel like you’re leaving your other life behind.
+ - If I don’t do laundry today, I’m gonna have to buy new clothes tomorrow.
+ - I think it’s an amazing quality to be able to roll with the punches and not be totally ruined as a person because life’s been rough for you. That’s a really admirable way to go through your life.
+ - I work out like a maniac and I spray tan a lot. Genetics were kind, but I work very hard.
+ - I’m just living my life. I’m incredibly disciplined and I work incredibly hard. I show up for things on time, I do my homework, and I work my ass off. I’ve had a lot of luck, but I work really, really hard.
+ - We do ritualistic animal sacrifice. We host orgies on our trampoline, every other Sunday. You didn’t get our Twitter feed on that? I’m really sorry! And then, every once in awhile, we run through the city and drain people and drink their blood. It’s really very romantic.
+ - I’m drawn to doing interesting stuff at work. And some of the time with the supernatural, you get to do really crazy, fun things. But I’m not a big genre-fantasy gal, particularly.
+ - Acting is pretending to be someone else.
+ - There are very few films or plays or anything about really happy people with perfect lives.
+ - I don’t know what it is that I’m doing, but I’m really enjoying myself. And I’m free to do it as much as I want.
+ - Well, the years from 10 to 20, when your body, mind and everything is like changing every five minutes, can be pretty torturing. And most of the interesting characters, I think, are somewhat tortured or torturous. I’m 20 now, so I’m only just an adult.
+ - People are incredibly literal sometimes in how they view you. You have dark hair and pale skin? You must be brooding. The second you dye your hair blond and get a spray tan, people treat you as if you’re a bit stupider and happier.
+ - I still don’t really think about acting that much. I just do it.
+ - I like shows or films or books that have messages but don’t beat people over the head with them.
+ - There’s nothing more exciting as an actor than getting to do something that you’re not entirely sure that anyone would let you do, and getting to take a big jump in a completely different direction.
+ - I’d really like to get to do some fighting, some martial arts training, because I think that would be really fun I do gymnastics and ballet, and I’m very, very into the physically acrobatic end of sport.
+ - I have a really, really, really normal family. And by normal I mean we’re all nuts on some level. I think you’ve gotta be a little nuts to pursue any kind of creative job. I was also a really good kid. I know that sounds really dull, but I didn’t rebel in the traditional sense.
+ - You find happiness where you find it.
+ - I really liked the idea of focusing on one thing for, hopefully, a long time to come. I also like the idea of a consistent lifestyle, as opposed to not really knowing where on the planet you’re going to be at any given moment.
+ - Just because I do what I do doesn’t mean I escaped adolescence, all the bumps and bruises that go along with it.
+ - I was never overexposed and work never became a chore. I was a very good girl wanting to do a good job.
+ - I’m so organised. I never screw up. I’ve done it maybe twice before. I check my calendar seven times a day.
+ - There are very few films or plays or anything about really happy people with perfect lives. Everyone is usually screwed up in some way and that is usually where the work comes in – figuring out how to make it believable and make it real to present someone...
+ - I get paid to do the thing I love most, and maybe that makes blending into the crowd impossible sometimes, but I wouldnt trade it for the world.
+ - I’ve never really been one of those girls who’s scared of showing a bit of flesh.
+ - You gain and lose different things in different mediums or different sectors of different mediums. There are liberties you get on tiny indie films in terms of not having to be designed toward a marketing demographic.
+ - None of the characters I’ve played are really like me. That would be boring. It wouldn’t be acting.
+ - The only thing I can definitely say is that you cease to be self-conscious after you’ve had to kiss somebody on-camera with 30 people watching.
+ - My sexuality is something I’m completely comfortable with and open about. There’s a lot of prejudice toward us but the more people talk about it, the less of a big deal it will be. And that will be better for everyone.
+ - I was honestly never a huge school person.
+ - I don’t know when acting came to be more about awards than about the work. Judging who’s better than the other person shouldn’t be part of why we’re doing this job. It should be about entertaining people.
+ - I think that in itself is kind of an amazing achievement to be able to say that your full-time career is in any creative arts, let alone a show that has kept people interested for coming on four seasons and hopefully more.
+ - I think, generally, most people can’t maintain anything that’s particularly strict for very long. I watch people trying and failing to do that a lot.
+
+39 quotes

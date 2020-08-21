@@ -1,0 +1,30 @@
+ - I want to run every race with a big heart.
+ - I’m constantly searching for the truth amidst a sea of confusion and uncertainty.
+ - I don’t go to the start line expecting to win. I go to the start believing this could be the day when incredible things happen.
+ - Nothing is worth your integrity. Not success, not money, not fame. Nothing.
+ - The best way to become a mentally tough runner is to believe that you’re a mentally tough runner.
+ - It takes faith and the courage to risk failure in order to realize one’s destiny. Having had my share of failures throughout my career I know that it is well worth the risk.
+ - I was a runner who happened to be a Christian. I needed to become a Christian who happened to be a runner.
+ - I constantly remind myself that resting takes confidence. Anyone can train like a mad man but to embrace rest and to allow all the hard training to come out takes mental strength.
+ - I don’t think about the miles that are coming down the road, I don’t think about the mile I’m on right now, I don’t think about the miles I’ve already covered. I think about what I’m doing right now, just being lost in the moment.
+ - I have my own unique road that has had many exciting ups and heart-breaking downs, but one thing I know is that my journey is not over and the best is yet to come.
+ - I’d want to have the power of mind control. If I had that one skill you’d always see at the bank loading up bags full of cash.
+ - It’s kind of nice in some ways having an Olympic Trials where I finished second. You can kind of go in more under the radar facing a 2:03 guy and facing a lot of dudes who are faster than I am, whereas, before Beijing, I had one of the top 10 times in the field, or something like that.
+ - Suffering is an extraordinary teacher.
+ - But it is nice to know that you have other races lined up, because sometimes you can get so focused on your next marathon that it can become kind of unhealthy in some ways. So it’s nice to have something else to slap you in the face and say, all right, there is life after the Olympics.
+ - You dream about the Olympics for so long and you have that one day, then it’s over, and when you don’t run well there is this huge letdown. It took me years to deal with that. I feel like I almost had to cleanse myself of that experience.
+ - I think some of the most celebrated moments in human achievement should be those times when everything is going against a person and they are down in the dumps but they simply choose to get up. That’s real greatness!
+ - I don’t know how you keep the world record holder off your team.
+ - More than the time, it’s about how you feel – you want to be strong throughout the race.
+ - It took years, honestly, to deal with the disappointment of Beijing.
+ - I think sometimes you can study guys and build them into giants that they are not.
+ - I’ve always said that racing in New York is performing on the big stage.
+ - I don’t really study the guys that I’m racing against.
+ - I try to avoid the temptation with time as a total indicator for what my possibilities are for the marathon. It’s the not the best indicator, but it’s more how you feel, how you cover the distance and how you are able to do the training afterward.
+ - I race kind of sparingly.
+ - For most of the track world, the Olympic year is such a huge year, and it’s a big year for us marathoners too.
+ - I may not drink an electrolyte beverage during the race. If I am running in an hour, I won’t need one. But if you’re running an hour-and-a-half to two hours or more, maybe you need a little bit of the electrolytes.
+ - I couldn’t be more excited to return to the ING New York City Marathon.
+ - The big thing is hydrating the day before the race. I will have 20 ounces of water right when I get up in the morning the day before, and I’ll drink throughout the day.
+
+28 quotes

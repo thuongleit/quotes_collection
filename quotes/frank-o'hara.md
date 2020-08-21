@@ -1,0 +1,41 @@
+ - Now I am quietly waiting for the catastrophe of my personality to seem beautiful again, and interesting, and modern.
+ - Kerouac: You’re ruining American poetry, O’Hara. O’Hara: That’s more than you ever did for it, Kerouac.
+ - I wouldn’t want to be faster or greener than now if you were with me O you were the best of all my days!
+ - I embraced a cloud but when I soared it rained.
+ - I love you. I love you, but I’m turning to my verses and my heart is closing like a fist.
+ - I’m becoming the street. Who are you in love with? me? Straight against the light I cross.
+ - It is easy to be beautiful; it is difficult to appear so. I admire you, beloved, for the trap you’ve set. It’s like a final chapter no one reads because the plot is over.
+ - My eyes are vague blue, like the sky, and change all the time; they are indiscriminate but fleeting, entirely specific and disloyal, so that no one trusts me. I am always looking away. Or again at something after it has given me up.
+ - Destroy yourself, if you don’t know!
+ - And always embrace things, people earth sky stars, as I do, freely and with the appropriate sense of space.
+ - I am ashamed of my century, but I have to smile.
+ - It may be that poetry makes life’s nebulous events tangible to me and restores their detail; or conversely, that poetry brings forth the intangible quality of incidents which are all too concrete and circumstantial. Or each on specific occasions, or both all the time.
+ - When I die, don’t come, I wouldn’t want a leaf to turn away from the sun – it loves it there. There’s nothing so spiritual about being happy but you can’t miss a day of it, because it doesn’t last.
+ - I am the least difficult of men. All I want is boundless love.
+ - The stars fell one by one into his eyes and burnt.
+ - Leaf! you are so big! How can you change your color, then just fall! As if there were no such thing as integrity!
+ - There is a geography which holds its hands just so far from the breast and pushes you away, crying so.
+ - That’s not a run in your stocking, it’s a hand on your leg.
+ - Mothers of America let your kids go to the movies! get them out of the house so they won’t know what you’re up to it’s true that fresh air is good for the body but what about the soul that grows in darkness, embossed by silvery images and when you grow old as grow old you must they won’t hate you.
+ - Even trees understand me! Good heavens, I lie under them, too, don’t I? I’m just like a pile of leaves.
+ - I can’t even enjoy a blade of grass unless I know there’s a subway handy, or a record store or some other sign that people do not totally regret life. It’s more important to confirm the least sincere. The clouds get enough attention as it is...
+ - I don’t think I want to win anything I think I want to die unadorned.
+ - The poem is at last between two persons instead of two pages. In all modesty, I confess that it may be the death of literature as we know it.
+ - I wonder if the course of narcissism through the ages would have been any different had Narcissus first peered into a cesspool. He probably did.
+ - There should be so much more, not of orange, of words, of how terrible orange is and life.
+ - Pain always produces logic, which is very bad for you.
+ - I’ve got to get out of here. I choose a piece of shawl and my dirtiest suntans. I’ll be back, I’ll re-emerge, defeated, from the valley; you don’t want me to go where you go, so I go where you don’t want me to.
+ - I loved her fright, which was against me into the air! and the diamond white of her forelock which seemed to smart with thoughts as my heart smarted with life! and she’d toss her head with the pain and paw the air and champ the bit, as if I were Endymion and she, moon-like, hated to love me.
+ - You just go on your nerve.
+ - It may be the coldest day of The year, what does he think of That? I mean, what do I? And if I do, Perhaps I am myself again.
+ - And don’t worry about your lineage poetic or natural.
+ - I wish I weren’t reeling at all.
+ - The artificial is always innocent.
+ - I have been to lots of parties and acted perfectly disgraceful but I never actually collapsed oh Lana Turner we love you get up.
+ - O my enormous piano, you are not like being outdoors.
+ - A man was the cause of it. An unarmed man with a weapon.
+ - See how free we are! as a nation of persons.
+ - There were occasionally rifts in the cloud where the face of a woman appeared, frowning.
+ - I dislike a great deal of contemporary poetry – all of the past you read is usually quite great – but it is a useful thorn to have in one’s side.
+
+39 quotes

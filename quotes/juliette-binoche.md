@@ -1,0 +1,58 @@
+ - If you have everything, then you don’t want to go on. It’s the lacking that makes you search for something better.
+ - What I love most about this crazy life is the adventure of it.
+ - I like independence, I like creating my own world, not being in a system. There are more possibilities, I think.
+ - The strong is not the one who can put on the blades at a glance, and the one who is able to raise a smile from his knees!
+ - I’ve been changed watching films or reading books or hearing music, and that helps you to live your life.
+ - For me, habit is just a synonym for death.
+ - Movies are open doors, and at every door, I change character and life.
+ - Acting is like peeling an onion. You have to peel away each layer to reveal another.
+ - I’m very down-to-earth and accessible, I think.
+ - I was so happy when they cast me in Chocolat, because it’s one of my vices.
+ - Changing someone’s life is not the best, is not wanting to change the other life. It is being who you are that changes another’s life. Do you understand?
+ - Ive never thought of my characters as being sad. On the contrary, they are full of life. They didnt choose tragedy. Tragedy chose them.
+ - I would say I’m humanly engaged.
+ - You make your own path as an actor. Nobody does it for you, so you have to invent yourself.
+ - I love the unknown. I think because it brings fear, and to embrace fear is the best feeling.
+ - My aim was never to be an American star; otherwise, I would have moved to Los Angeles.
+ - I have been proposed to four times. Twice at the beginning of a relationship and twice at the end of a relationship. I’ve never said no. I just didn’t give an answer!
+ - I don’t like films giving me answers. I like films that are provoking me, that are making me feel not only being in an easy place.
+ - The best mother is the mother who adapts, and the best children are the children who adapt as well.
+ - I’m not even aware of my success. Success is such an illusion.
+ - I’m very patient and always willing to try things but I have some resistance as well because I have my own vision. I have resistance sometimes because I see a director who’s freaking out and wants to have control and they sometimes anticipate about what I’m going to be doing or not.
+ - I’m a fighter as a mother. I’m fighting to be a mother, but I cannot say no to my passion because it’s me, as well.
+ - If you told me tomorrow that I couldn’t act anymore, it wouldn’t bother me. I have only one wish: to meet the man of my life.
+ - Each new film is like a trial. Before I step in front of the camera, I do not know whether I am going to fall or whether I am going to fly – and that is exactly the way I want it to stay.
+ - My experience has nothing to do with creation, I don’t think, even though maturity is helpful. In a creation process, there’s an intuition that takes you and if it’s nourished with awareness and experience, it’s great.
+ - I was used to theatre classes. I studied with my mother; she was a theatre teacher and directed, too, so it was very family-like. Then I studied with a great teacher in Paris, and she was wonderful; she pushed me, but she was a warm soul.
+ - My ambition is to have beautiful encounters, not to make money.
+ - I think acting is about forgetting yourself in order to give the best of yourself. It’s passing through you more than you’re creating it. You’re not the flower, but the vase which holds the flower.
+ - A director could be 20 years old and an actor 60, or vice versa; it doesn’t matter. It’s about connecting sensibility and energy together, and having a vision that goes together and anchors the film as you go along.
+ - I have stories that I’d like to maybe one day consider directing, but you need a lot of time to write and put it together.
+ - Sometimes I call directors. Sometimes I just meet with them. It just happens. It’s not that I’m pushy. It comes naturally. But I go ahead. I don’t stay in my armchair, waiting for the phone to ring.
+ - Maybe it’s because my mother divorced and my grandmother divorced, so maybe I’m frightened deep down. But then I also feel there is no real need. Why do I need to get married? To reassure me? No I don’t need reassurance.
+ - It’s not a struggle to be on a diet. You feel lighter, and your spirit is lighter, too. But I love chocolate, and I allow myself to have chocolate. That doesn’t go against a diet for me.
+ - George Clooney is trying his own way but he’s struggling too because he has to deal with America. Yet, if he has a foot in Europe, it’s not for nothing.
+ - When you really put your heart in the work, you don’t think of how you look. And I think that’s the beauty of it.
+ - Fighting the ageing process just doesn’t work. I think that actresses, ultimately, are responsible for the faces we give to women.
+ - I want to make films that are political and social. Films with a message or an idea. Films that dare to ask.
+ - There was probably something as a child I wanted to express, something unsaid that I needed to share.
+ - I wanted to work with people from the world, with different minds and different visions.
+ - It’s challenging as an actor to let go but I had some pleasure out of it too. To not have the effort of having to present myself is quite liberating.
+ - I would have loved to have met Marilyn Monroe and have dinner with her.
+ - I think the world would be much better if you always started the morning by calling the person you dreamt of during the night.
+ - I never felt being an actor or making a movie was an easy thing to do.
+ - The thing is that I never felt beautiful. I really never did. I think I can change my looks and be different things, but I’ve never thought of myself as this face.
+ - But, you know, when I choose a film I need to believe in it and believe I can do something special with it, and after a while that means not trying to judge or analyze why I should do it. You have to follow this intuition thing, which is a mystery to me.
+ - As an actress we don’t beat one another. It’s whoever’s right for the part.
+ - I like travelling and if I have to come to Hollywood to make a movie I will, but otherwise I’d never move there. It’s very much an industry town and that doesn’t really interest me.
+ - I like being a mother, and I want to be involved in my work, so I have to make choices. If you’re a film actress, your career is from 20 to 45, but you can still dream.
+ - I really don’t think that the Oscar changed my career much because I didn’t want it to.
+ - I try to see my films just once. it’s like a dream you’ve been through when it’s been intense, and you just have to go through it once more just to make sure you’ve had it.
+ - But I’ve never felt that being an actress is being in a comfortable place. It’s seen from the outside that we’re being driven in big cars and having these gorgeous suites and all of that. But come on, it’s not about that.
+ - I won’t do something just for the sake of working.
+ - Before I thought there was a common denominator between my films – as if all my characters were sisters – but I’m not so sure now.
+ - My only ambition is to be true every moment I am living.
+ - I am not a woman staying at home.
+ - When you make a film, it’s a bet. You don’t know how the film is going to be, anyway.
+
+56 quotes

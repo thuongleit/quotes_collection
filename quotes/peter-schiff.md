@@ -1,0 +1,32 @@
+ - Greed is normally balanced by fear.
+ - Printing money is merely taxation in another form. Rather than robbing citizens of their money, government robs their money of its purchasing power.
+ - There is simply no way to sustain an economy based on consumer credit.
+ - Mutual funds are an overrated investment heavily promoted by Wall Street.
+ - I don’t want the technology of the 1950s, but I want the free market of the 1950s.
+ - Keynesians are to economics what witch doctors are to medicine.
+ - The government can’t create jobs; they’ll destroy jobs trying to do it. The government doesn’t have any money; all they have is a printing press. We need to free markets to create jobs; if the government wants to help, they should reduce their burden on the economy.
+ - Gold is not overvalued at $500, and gold will not be overvalued at $1,500 or $2,000. The real money is buying gold and putting it away.
+ - All those commodities are going to have to rise in value as we are in short supply and we are printing too much money.
+ - You don’t drive an economy by consuming – the consumer is not the engine, the consumer is the caboose.
+ - What got us out of the depression was capitalism, and we would have gotten out a lot quicker had the government not intervened.
+ - Perhaps the most important reason to be skeptical of government inflation numbers is that the government, like a fox campaigning to guard a hen house, has many reasons to be disingenuous. As the world’s largest debtor, the Federal Government is inflation’s primary beneficiary.
+ - Fifty-dollar oil is just another stop on the road to much higher crude prices.
+ - Printing money creates inflation, which weakens an economy. Unfortunately, this kind of common-sense thinking never seems to penetrate academic circles.
+ - The real bubble in China is in US Treasuries, in US dollars.
+ - People should have an escape valve for their money, their assets. If you have substantial financial assets, the government is going to confiscate the purchasing power of those assets and spend it.
+ - The Fed is the biggest enemy of this economy. In fact, Ben Bernanke, as far as I’m concerned, he’s public enemy No. 1. We’re never going to have a recovery while this guy’s in charge.
+ - We share management’s vision that the recent regulatory changes, the large presence of Sprint Nextel in the 2.5 GHz band, and the near-term implementation of 4G systems make Oneida the right company in the right place at the right time.
+ - One day we’re going to look back at $1,700 with nostalgia. People are going to be shocked at how inexpensive gold was when it could be snapped up for such a bargain price.
+ - Minimum wage laws make it illegal for a worker to accept a job that pays less, even if the worker needs that job.
+ - The president says we need to raise the debt ceiling because America pays its bills. No if we paid our bills we wouldn’t have all this debt. The reason we have to raise the debt ceiling is because we can’t pay our bills and we have to borrow money because we don’t have any money to pay our bills.
+ - Often President Obama’s worst critics are Senator Obama and candidate Obama.
+ - The strength in gold is revealing the general weakness in the dollar.
+ - At some point, the dollar has to give. You can’t just keep printing money, and monetizing debt, and buying bonds, without the dollar imploding.
+ - Printing money is merely taxation in another form.
+ - You’re worth what you’re worth.
+ - Confidence by itself, unless it has a valid basis, can get us into trouble.
+ - The Philadelphia Feds manufacturers report for September revealed that despite a sharp slowdown, its prices paid index surged 257 points.
+ - It is production that creates purchasing power, not the printing press!
+ - The only way to buy more is to produce more.
+
+30 quotes

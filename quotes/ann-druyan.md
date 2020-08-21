@@ -1,0 +1,31 @@
+ - Ten long trips around the sun since I last saw that smile, but only joy and thankfulness that on a tiny world in the vastness, for a couple of moments in the immensity of time, we were one.
+ - Knowing a deep thing well, which is what science asks of its practitioners, is an empowerment that is very profound. It’s a liberation.
+ - A lot of people have this ego need that makes them want to believe that Earth is the center of the universe and humans are the most important species, the supreme expression of creation.
+ - As a species, we tend to lie quite a bit – to ourselves and to each other. It’s a primate thing. So, a reason to go into a career in science and technology, or to learn more about these subjects, is to become a more powerful person.
+ - My knowledge of science came from being with Carl, not from formal academic training. Carl gave me a thrilling tutorial in science and math that lasted the 20 years we were together.
+ - I don’t have any faith, but I have a lot of hope, and I have a lot of dreams of what we could do with our intelligence if we had the will and the leadership and the understanding of how we could take all of our intelligence and our resources and create a world for our kids that is hopeful.
+ - The greatest thing that science teaches you is the law of unintended consequences.
+ - If you have a beating heart, that’s good enough.
+ - Science is nothing more than a neverending search for the truth.
+ - For most of the history of our species we were helpless to understand how nature works. We took every storm, drought, illness and comet personally. We created myths and spirits in an attempt to explain the patterns of nature.
+ - If you are searching for sacred knowledge and not just a palliative for your fears, then you will train yourself to be a good skeptic.
+ - Carl took on the military-industrial complex. He campaigned around the world for an end to the production of weapons of mass destruction. To him it was a perversion of science.
+ - The only gratification that science denies to us is deception.
+ - I found that it was easiest to convey the information in the context of the life of the scientist or in the context of our own personal experience, and there was no idea that was too complicated that couldn’t be explained clearly and directly.
+ - And what greater might do we possess as human beings than our capacity to question and to learn?
+ - No single step in the persuit of enlightenment should ever be considered sacred; only the search was.
+ - It is a great tragedy that science, this wonderful process for finding out what is true, has ceded the spiritual uplift of its central revelations: the vastness of the universe, the immensity of time, the relatedness of all life, and life’s preciousness on our tiny planet.
+ - Well, I actually grew up in the sixties. I feel very lucky, actually, that that was my slice of time that I was dealt. Let’s remember that the real motivation in the sixties, and even in the fifties, was the Cold War.
+ - In the 1970s, I think that there was probably a higher degree of respect for science, of hope about the future, and the future-oriented vision.
+ - Science has the cold facts, but lacks religion’s social organization and ability to inspire that moves people to act.
+ - The Universe revealed by science is one of far more awesome grandeur than any religion has ever posited.
+ - I guess I so desperately want to see us put this planet right. It’s so horrifying to me that a fifth of us are starving every night, and that forty thousand children die every single day.
+ - We batter this planet as if we had someplace else to go.
+ - All of science to me, everything that we have learned, is important to the extent that it brings us to our senses.
+ - Science reserves the highest reward for those of you who disprove our most cherished beliefs. At any moment someone from any walk of life could come forward and be responsible for a complete revision of our view of everything.
+ - This planet seems to be in such sorry shape. And I can’t ever think about the rest of the universe without coming back home and thinking what the implications for life here would be if we were to really have some definitive proof of extraterrestrial life.
+ - I’ve been thinking about the distorted view of science that prevails in our culture. I’ve been wondering about this, because our civilization is completely dependent on science and high technology, yet most of us are alienated from science.
+ - People think that if you are a scientist you have to give up that joy of discovery, that passion, that sense of the great romance of life. I say thats completely opposite of the truth.
+ - We may be living at that moment, on the cusp, when we go from being a species that feels a kind of loneliness in the cosmos to actually one sometime in the not too distant future being able to confirm the existence of other intelligent life.
+
+29 quotes

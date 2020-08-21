@@ -1,0 +1,94 @@
+ - Be the most ethical, the most responsible, the most authentic you can be with every breath you take, because you are cutting a path into tomorrow that others will follow.
+ - There is intersubjectivity woven into the very fabric of the Kosmos at all levels.
+ - Whenever we moderns pause for a moment, and enter the silence, and listen very carefully, the glimmer of our deepest nature begins to shine forth, and we are introduced to the mysteries of the deep, the call of the within, the infinite radiance of a splendor that time and space forgot.
+ - Nobody is smart enough to be wrong all the time.
+ - To understand the whole it is necessary to understand the parts. To understand the parts, it is necessary to understand the whole. Such is the circle of understanding.
+ - Authentic spirituality is revolutionary. It does not legitimate the world, it breaks the world; it does not console the world, it shatters it. And it does not render the self content, it renders it undone.
+ - Put bluntly, the ego is not an obstruction to Spirit, but a radiant manifestation of Spirit. All Forms are not other than Emptiness, including the form of the ego. It is not necessary to get rid of the ego, but simply to live with it a certain exuberance.
+ - I rise to taste the dawn, and find that love alone will shine today.
+ - The understanding of “evolutionary consciousness” is perhaps the most important thing lacking in spiritual practices today. Evolution means growth and development. This means that there are aspects of reality that have not yet arisen in our consciousness. But they will arise if we grow.
+ - Boundary lines, of any type, are never found in the real world itself, but only in the imagination of the mapmakers.
+ - What is it in you that brings you to a spiritual teacher in the first place? It’s not the spirit in you, since that is already enlightened, and has no need to seek. No, it is the ego in you that brings you to a teacher.
+ - And resting in the ocean, dipped into the sea, I find glimmers of One Taste everywhere.
+ - The integral sage, the nondual sage, is here to show us otherwise. Known generally as “Tantric,” these sages insist on transcending life by living it. They insist on finding release by engagement, finding nirvana in the midst of samsara, finding total liberation by complete immersion.
+ - The mystics ask you to take nothing on mere belief. Rather, they give you a set of experiments to test in your own awareness and experience. The laboratory is your own mind, the experiment is meditation.
+ - Do you even recognize your own consciousness?
+ - We must forgive each other our arising, for our existence always torments others. The golden rule in the midst of this mutual misery has always been, not to do no harm, but as little as possible; and not to love one another, but as much as you can.
+ - There is a way out, but the way out is really a way within.
+ - Evolution does not isolate us from the rest of the Kosmos, it unites us with the rest of the Kosmos: the same currents that produced birds from dust and poetry from rocks produce egos from ids and sages from egos.
+ - In the dream state, the mind and soul are set free to create as they please, to imagine vast worlds not tied to gross sensory realities but reaching out, almost magically, to touch other souls, other people and far-off places, wild and radiant images cascading to the rhythm of the heart’s desire.
+ - I don’t have to agree with everything you say, but I should attempt at least to understand it, for the opposite of mutual understanding is, quite simply, war.
+ - Freedom is an endless meeting.
+ - This is the world of One Taste, with no inside and no outside, no subject and no object, no in here versus out there, without means, without path and without goal. And this, as Ramana said, is the final truth.
+ - The truth will not necessarily set you free, but truthfulness will.
+ - I have one major rule: Everybody is right. More specifically, everybody – including me – has some important pieces of truth, and all of those pieces need to be honored, cherished, and included in a more gracious, spacious, and compassionate embrace.
+ - Saving the biosphere depends first and foremost on human beings reaching mutual understanding and unforced agreement as to common ends. And that intersubjective accord occurs only in the noosphere. Anything short of that noospheric accord will continue to destroy the biosphere.
+ - Love is a time-honored way to transcend the separate-self sense and leap into the sublime; Treya and I held hands, closed our eyes, and jumped.
+ - Prana is implicate to matter but explicate to mind; mind is implicate to prana but explicate to soul; soul is implicate to mind but explicate to spirit; and the spirit is the source and suchness of the entire sequence.
+ - Meditation, then, is not so much a part of this or that particular religion, but rather part of the universal spiritual culture of all humankind – an effort to bring awareness to bear on all aspects of life. It is, in other words, part of what has been called the perennial philosophy.
+ - The nondual universe of One Taste arises as a spontaneous gesture of your own true nature.
+ - A natural hierarchy is simply an order of increasing wholeness, such as: particles to atoms to cells to organisms, or letters to words to sentences to paragraphs. The whole of one level becomes part of the whole of the next. In other words, natural hierarchies are composed of holons.
+ - One’s sanctions for truth and goodness are established largely by individual preferences.
+ - The more I go into I, the more I fall out of I.
+ - Science is clearly one of the most profound methods that humans have yet devised for discovering truth, while religion remains the single greatest force for generating meaning.
+ - An integral approach acknowledges that all views have a degree of truth, but some views are more true than others, more developed, more evolved, more adequate.
+ - The truth is an arbitrary, shifting, culturally relative, and historically molded phenomenon.
+ - Spirit slumbers in nature, awakens in mind, and finally recognizes itself as Spirit in the transpersonal domains.
+ - The Self doesn’t live forever in time, it lives in the timeless present prior to time, prior to history, change, succession. The Self is present as Pure Presence, not as everlasting duration, a rather horrible notion.
+ - The integral vision embodies an attempt to take the best of both worlds, ancient and modern. But that demands a critical stance willing to reject unflinchingly the worst of both as well.
+ - As Aurobindo and Teilhard de Chardin knew, the future of humankind is God-consciousness.
+ - It is flat-out strange that something-that anything-is happening at all. There was nothing then a Big Bang, then here we all are. This is extremely weird.
+ - You cannot have exterior development without interior development to hold it in place.
+ - Religion is just coded spirituality.
+ - Unhappiness and dissatisfaction with life are not signs of mental illness, but of growing intelligence.
+ - If you really want to change the world, you must first understand it adequately, or all you will do is reproduce in larger numbers your own ignorance.
+ - What’s my philosophy? In a word, integral. And what on earth – or in heaven – do I mean by integral? The dictionary meaning is fairly simple: comprehensive, balanced, inclusive, essential for completeness. Short definition, tall order.
+ - Eternity is not ever-lasting time but the real, unfading, indestructible, and timeless Present, for, as Schroedinger said, the present is the only thing that has no end.
+ - When the thunder roars, do you not hear your Self? When the lightening cracks, do you not see your Self? When clouds float quietly across the sky, is this not your very own limitless Being, waving back at you?
+ - Subpersonalities can exist at different levels or memes, however, so that one can indeed have a purple subpersonality, a blue subpersonality, and so on. These often are context-triggered, so that one can have quite different types of moral responses, affects, needs, etc., in different situations.
+ - Being completely and totally present and at every single point of space and time, It is fully and completely present here and now, thus we can no more attain immanent Spirit then we could, say, attain our feet.
+ - As you you deeply into your own awareness, and relax the self-contraction, and dissolve into the empty ground of your own primordial experience, the simply feeling of Being-right now, right here-is it not obvious at once?
+ - There are several different meanings of the words religion and spirituality, all of which are important. The whole point about an integral or comprehensive approach is that it must find a way to believably include all of those important meanings in a coherent whole.
+ - Some forms of truth are really forms of social power and oppression.
+ - Global consciousness is not an objective belief that can be taught to anybody and everybody, but a subjective transformation in the interior structures that can hold belief in the first place, which itself is the product of a long line of inner consciousness development.
+ - In Democracy, man exploits man; in Communism, it’s the other way round.
+ - Physics is the most fundamental, and least significant, of the sciences.
+ - There is nothing but God, nothing but the Goddess, nothing but Spirit in all directions, and not a grain of sand, not a speck of dust, is more or less Spirit than any other.
+ - Meditation was invented as a way for the soul to venture inward, there ultimately to find supreme identity with Godhead. Whatever else it does, and it does many beneficial things, meditation is first and foremost a search for the God within.
+ - So spirit is both the highest “level” in the holarchy, but it’s also the paper on which the entire holarchy is written. It’s the highest rung in the ladder, but it’s also the wood out of which the entire ladder is made.
+ - I’m not nearly the saint some of my fans imagine and I’m nowhere near the devil my detractors wish, so you simply take both of those with a grain of salt.
+ - Few of us have lost our minds, but most of us have long ago lost our bodies.
+ - It is not quite right to describe One Taste as a “consciousness” or an “awareness,” because that’s a little too heady, too cognitive. It’s more like the simple Feeling of Being. You already feel this simple Feeling of Being: it is the simple, present feeling of existence.
+ - I can focus on writing, or I can get lost in wonderfully fun but endless conversations and produce nothing new at all. I count on those people who enjoy my work to understand this.
+ - The point is to unify the opposites, both positive and negative, by discovering a ground which transcends and encompasses both.
+ - Like going to the dentist, where you write: “Dental appointment today. All of the dentists in Boulder are ‘holistic.’ They can’t fill a cavity but they’re good for your soul. Your teeth rot, but apparently your spirit prospers.”
+ - Each stage of development, remember, has a dialectic of progress – in plain language, every new development is good news, bad news.
+ - For authentic transformation is not a matter of belief but of the death of the believer; not a matter of translating the world but of transforming the world; not a matter of finding solace but of finding infinity on the other side of death. The self is not made content; the self is made toast.
+ - Bad Gardens copy, good gardens create, great gardens transcend.
+ - A full-spectrum approach to human consciousness and behavior means that men and women have available to them a spectrum of knowing -a spectrum that includes, at the very least, the eye of flesh, the eye of mind, and the eye of spirit.
+ - The Yoga of the Dream State has always held to be one of the fastest, most efficient ways of reaching a plateau experience of subtle and causal realms, thus quickly opening the door to stable adaptation at – and transcendence of – those realms.
+ - The Big Bang has made Idealists out of almost anybody who thinks. First there was absolutely nothing, then Bang! Something. This is beyond weird. Out of sheerest Emptiness, manifestation arises.
+ - On my tombstone, I really hope that someday they will write: He was true but partial...
+ - Change of state is not the point; recognizing the Changeless is the point, recognizing primordial Emptiness is the point, and if you are breathing and vaguely awake, that state of consciousness will do just fine.
+ - Both the old and new physics were dealing with shadow-symbols, but the new physics was forced to be aware of that fact – forced to be aware that it was dealing with shadows and illusions, not reality.
+ - And as for baby-boomer parents cluck-clucking about illegal substances, ah, gimme a break. Still, I think I’ll pass on the rave. But more power to ’em, I say.
+ - Most of us are only willing to call 5% of our present information into question any one point.
+ - I went to Duke University in the medical track. And then I decided I wanted to do something more creative, so I switched to biochemistry at Nebraska.
+ - Truth, in the broadest sense, means being attuned with the real. To be authentically in touch with the true, and the good and the beautiful. Yes?
+ - Was it someone else? Was it not you yourself?
+ - And through the opening or clearing in your own awareness may come flashing higher truths, subtler revelations, profound connections. For a moment you might even touch eternity.
+ - Society forces you to conform.
+ - You are not the one who experiences liberation; you are the clearing, the opening, the emptiness, in which any experience comes and goes, like reflections on the mirror. And you are the mirror, the mirror mind, and not any experienced reflection.
+ - I think I was a born scientist.
+ - God does not lie in our collective past, God lies in our collective future; the Garden of Eden is tomorrow, not yetsterday; the Golden Age lies down the road, not up it.
+ - There is nothing in the universe but matter.
+ - I don’t talk about consciousness. I talk about interiority.
+ - What’s my philosophy? In a word, integral.
+ - The Enlightenment was an attempt to liberate myth and base truth claims on evidence, not just dogma. But when science threw out the church, they threw out the baby with the bath water.
+ - I believe that evidence shows that there is a real spirit, a real Beach, but it is beneath no pavement whatsoever, for all pavements arise within it: Spirit is all-encompassing. It transcends everything, it includes everything.
+ - The only justifications for belief have the form “justified for me”.
+ - Most of us, I suspect, prefer our teachers to be of the Nice Guy variety.
+ - Is this a topic whose time has truly come? The integration of science and religion? Or have I just written a clever book that temporarily impressed a few people and will otherwise go as quickly as it came?
+ - There are spiritual patterns at work in the universe and these announce themselves with impressive regularity wherever human minds and hearts attempt to attune themselves to the cosmos in all its radiant dimensions.
+
+92 quotes

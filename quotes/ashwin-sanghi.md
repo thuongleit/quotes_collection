@@ -1,0 +1,44 @@
+ - Battles are won and lost before they are fought.
+ - Vish, the creator; and Shiv, the destroyer, are simply two faces of the very same coin.
+ - Worry is like a rocking chair; it keeps you in motion but gets you nowhere.
+ - O Rakshas, everything is always all right in the end. If it isn’t all right, then it isn’t the end.
+ - If there is one city apart from Mumbai where I would love to settle down, it has to be Chennai.
+ - There has to be a protagonist who has to overcome challenges, and there will be a race to finish.
+ - To remain standing one often has to fall.
+ - It may sound very strange, but I love the freedom that writing a novel gives me. It is an unhindered experience. If I come after a bad day, I can decide that my protagonist will die on page 100 of my novel in a 350-page story.
+ - A myth is a lie that conceals or reveals a truth. But if it reveals even a strand of history or truth, that’s what gets my adrenaline going.
+ - What I have found is that, in a family business structure, sometimes what is needed is a sense of discipline rather than creativity. You have to take everyones ideas and make it work. When you are dealing with money, there is a limitation on how creative you can be.
+ - We don’t need to dumb down our stuff. And it’s important to know how far we can push readers.
+ - I like to joke that I probably hold the world record for rejection letters. Yes, the truth is that I was fed up of being rejected repeatedly, and self-publicatio n was an act of defiance at traditional publishing. But life works in strange ways.
+ - What I would not like is to be ignored. I write from the heart. I don’t write for me. I write for my readers.
+ - Writing helps me create a different world that I can escape to.
+ - Winning an award is a great feeling but winning the Vodafone Crossword Popular Choice Award is particularly exhilarating because it is based upon public voting. I find it a strange quirk of fate that Chanakya’s Chant, a political tale, should end up winning an election!
+ - I am a part of the old school where I feel that purity of the language should be retained. But English is a constantly evolving language where new words are being added to the dictionary, so I don’t see any harm in experimenting with the language. Only poor editing standards need to be improved.
+ - Character is what you are. Reputation is what people think you are.
+ - In order to become the master, a ruler must profess to be a servant of the people.
+ - When working on a period, it is the finer details that evoke imagery that helps in cinematic adaptations.
+ - Writing is a intensely personal activity. I can pen down my best thoughts when Im alone. But when one is elevated into the stature of an author, you have to think about your books in terms of their business angle.
+ - I was passionate about reading from an early age, and I would always be carrying a different book each week.
+ - I want my writing to reach people. I don’t write for a market. I write from my heart, something that appeals to me. The marketing, segmenting etc., can be done by your publisher, not you.
+ - Oral storytelling goes back so long ago, and those stories that were told orally were always layered and changed with time.
+ - I am a businessman at the end of the day. I have grown up with Excel sheets. I start out writing my novel with spreadsheets and the milestones in each chapter highlighted.
+ - My attention span is very limited, and I watch just one or two movies a year.
+ - Writing was my route to creative expression, and I needed to write about the things that interested me.
+ - I want to make sure that my writing grips the reader from the word ‘go.’
+ - The reality of the writer’s world is that you set yourself up for future disappointment with every success that you deliver because you end up raising your audience’s expectations.
+ - Though it is very easy to do valuations, eyeballs and brand prominence surveys, you should never allow any of them to influence the balance sheet.
+ - I want to be remembered as a storyteller more than someone who had something meaningful to say.
+ - A book and a movie are different animals. You need a cinematic perspective to be involved in the motion pictures. And this is something I lack.
+ - Writing is incidental to my primary objective, which is spinning a good yarn. I view myself as a storyteller more than a writer. The story – and hence the extensive research that goes into each one of my books – is much more important than the words that I use to narrate it.
+ - I don’t care if my books don’t sell abroad; we have a large enough market in our country. I write for Indian readers.
+ - What is divine? It is simply that which man has not been able to understand. Once you do, it loses its divinity.
+ - Our country has the oldest tradition of storytelling, and this was much before writing stories even became a norm.
+ - I believe that every writer evolves with every successive novel. I view myself as work-in-progress.
+ - I was learning book-keeping at the age of 12, but it never stopped me from pursuing literature. Over the years, I grew to love the written word.
+ - After writing each novel, I would spend days poring over suggestions from my editor.
+ - I was a businessman for 16 years of my life, so when I started writing, I wanted to keep my literary identity separate.
+ - While growing up, I always had to depend on foreign authors for page-turners. I think of myself as a commercial writer, and my job is simple to entertain you.
+ - Admiration from my readers inspire me, and the only ‘formula’ I believe in towards making a good writer is: ‘to thine own self be true!’
+ - In the Sanghi family, there is no one who has undertaken intellectual pursuits.
+
+42 quotes

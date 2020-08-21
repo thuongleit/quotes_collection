@@ -1,0 +1,37 @@
+ - Dating a tennis player is risky – love means nothing to us.
+ - God gives all to those, who get up early.
+ - Why are people afraid of getting older? You feel wiser. You feel more mature. You feel like you know yourself better. You would trade that for softer skin? Not me!
+ - I hate my muscles. I’m not Venus Williams. I’m not Serena Williams, I don’t want to look like they look.
+ - I am beautiful, famous and gorgeous.
+ - I’ve been judged my whole life. People always expected amazing things from me.
+ - When I’m happy inside, that’s when I feel most sexy.
+ - It’s not really a shorter skirt, I just have longer legs.
+ - I’m like the most expensive, exotic item on a gourmet menu. People can wonder about the sensuous delights of the dish, but they can’t afford such an expensive luxury.
+ - There are a lot of pretty girls. I am a tennis player first of all, that is why I am here, and if wasn’t producing results no one would notice me.
+ - The world believes all blondes are stupid and brunettes are smarter. Well, I disagree.
+ - Judgment is judgment, whether you’re obese, or too skinny, or not athletic enough.
+ - You don’t think people would go on about my looks if I was No. 500 in the world instead of No.12, do you? Anyway, as I keep telling everyone, you can’t blame me for looking like this on purpose.
+ - I have a lot of boyfriends, I want you to write that. Every country I visit, I have a different boyfriend. And I kiss them all.
+ - It’s that I have a good personality and am a good tennis player.
+ - I believe in commitment. I believe in being open and trusting each other and respecting each other completely.
+ - At 16, 17, you have no fear. You don’t think or analyze. You just play on automatic. You can get smarter as you get older, but in sports you can be too smart, you know?
+ - Boyfriends have to understand my needs. I shower four times a day.
+ - I enjoyed my time on the Biggest Loser ranch. Although I will not be returning as a full-time trainer on season 13, I will always be a part of The Biggest Loser family and my commitment to bettering lives through health and fitness will continue.
+ - A court is like a scene, people want to see attractive people.
+ - My manager wants me to dress like a nun and I want to dress like a teenager.
+ - There’s time for a boyfriend in my life. But he would have to be understanding. He would have to understand that often I will be travelling and playing.
+ - I worked very hard and I earned all the attention I’m getting.
+ - Like any young person, I do what I want.
+ - I don’t know what better teenage life you could get than going around the world doing what you love to do.
+ - I think it’s really important for me not to forget where I came from.
+ - I enjoy every win that I have. Every win gives me satisfaction, because all the girls are competitive and the tour is so even and tough.
+ - It’s true I always try to be as seductive as possible but I wouldn’t be here if I couldn’t play tennis.
+ - Well, I’m playing for the fans so whenever they come and ask for autographs I always try to give it to everybody because I’m out there for the people.
+ - I absolutely want to have children, whether I have my own or adopt.
+ - People don’t get to see the unglamourous side.
+ - Boyfriends have to understand me and my needs. They have to know what I want out of my life and about my strict regime. I go to bed at 10pm and not later. I separate my professional and private lives.
+ - I think that tennis is a lady’s sport, so we should look out there like ladies.
+ - When I play, I feel like in a theatre, why should I look ugly then, because I’m a tennis player?
+ - At this year’s Open, I’ll have five boyfriends.
+
+35 quotes

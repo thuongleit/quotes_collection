@@ -1,0 +1,86 @@
+ - You always have to remember to take care of yourself first and foremost, because when you stop taking care of yourself you get out of balance and you really forget how to take care of others.
+ - Don’t trap yourself with the desire of wanting to be liked.
+ - Worry about being respected, never worry about being liked because that’s the trap.
+ - I’m extremely ambitious. I don’t know why people are afraid to say that. I won’t sell my soul to the devil, but I do want success and I don’t think that’s bad.
+ - Women, you can have it all – a loving man, devoted husband, loving children, a fabulous career.
+ - Love and honesty are the things that make a good wife and mother.
+ - When I’m tired, I rest. I say, ‘I can’t be a superwoman today.’
+ - Don’t take your health for granted. Don’t take your body for granted. Do something today that communicates to your body that you desire to care for it. Tomorrow is not promised.
+ - Will and I are yin and yang. He’s all sky, vast and bright and soaring, and I’m all earth. I’m here to ground him, and he’s here to help me fly.
+ - I try my best to confront situations because I know, at the end of the day, you can deal with it or it will deal with you. I’ve had enough experience to know that that’s how it goes down. There’s no going around it.
+ - You know, as I get older, personal happiness is all about love. It’s all about love. You know, how I’m loved and how I love my family and my husband. That to me is happiness, when I feel like I am loved and I have a place to love deeply. That to me is happiness.
+ - I would say Will came at a time in my life where he saw beauty in me that I didn’t see in myself at the time. And, you know, he saw a diamond in the rough and kind of, picked me up and blew off all the dust and said, ‘I’m telling you, I’m going to make you shine, girl.’
+ - I do a lot of reading, meditating, and praying to stay as grounded as I can be in this crazy world.
+ - We don’t back off obstacles and tough situations, we use them to make us stronger.
+ - Good mothers make all kinds of choices. Making a decision that might sound selfish does not make a woman a bad mother.
+ - How can we ask for our young stars to have a high level of responsibility if we are not demonstrating that same level of responsibility towards them?
+ - I can’t cook! It’s genetic. My grandmother can’t cook, my mother can’t cook. I was raised to believe you eat because your body needs fuel for energy, so I eat super foods.
+ - It’s very important to prioritize. I know, for me, my family comes first. That makes every decision very easy.
+ - People love in different ways. You may have a man who brings you flowers every Monday but doesn’t give two hooty-hoots about Valentine’s Day. Just because he doesn’t give you a valentine doesn’t mean he doesn’t love you!
+ - My belief is that communication is the best way to create strong relationships.
+ - Oh, I laugh hard every day. I mean, my husband is Will Smith! I’m telling you, that’s one of the joys of being married to him. My life full of laughter. Thank God I have him. My life is full of laughter because of that man.
+ - I don’t get afraid in talking about subject matter that may spark controversy, and I’m not afraid to not be liked. I think that sometimes people pay too much attention to being liked, and it’s paralyzing.
+ - Will is a very interesting, unique man, and I’ll tell you why. He makes love like a woman. He loves to touch, massage and feel. He makes love like he’s in touch with himself, who he is. And he’s a very sensual, incredible lovemaker.
+ - I have been affected by gossip and I know people who have been, too. I’ve seen marriages destroyed by gossip. It is cruel. At the end of the day, all that matters is: Do you love what you see when you look in the mirror? That is it, baby.
+ - I never stop being a mother and I never stop being an artist. You understand? Which is probably why my kids are so creative, because it’s not separated.
+ - When my husband of almost 20 years can’t take his eyes off me? That’s amazing. But the number one reason I go to the gym is because it keeps me sane; I can deal with whatever’s coming at me.
+ - I just think, as women, we have to give ourselves room to be individuals. So when a woman makes a decision for herself, we as women shouldn’t set those hardcore boundaries for another woman. Just like we don’t want men setting hardcore boundaries for us.
+ - You can be committed to somebody because of ego: ‘I said I was going to be with this joker for the rest of my life, so I’m just going to do it.’ Or you can be committed because you have a deeply rooted connection.
+ - I learned that surrounding myself with people who are able to help me is like being surrounded by tangible godliness.
+ - What makes Will the best father in the world to me is that he’s there, not just there in a way that’s traditional. The emotional support he offers his children is immeasurable.
+ - Tupac and I were just close friends because we had such an insatiable drive and passion for acting and entertainment.
+ - I’m the glue that keeps it all together. I’m the nucleus of an entertainment family. My day-to-day is making decisions to keep life above water.
+ - Lack of confidence is what makes you want to change somebody else’s mind. When you’re OK, you don’t need to convince anyone else in order to empower yourself.
+ - I’m not one about trying to slow things down. What I try to do is create an atmosphere for my family where we can pretty much have whatever.
+ - What you’re willing to sacrifice is the measurement of how you love – at least it is for me.
+ - It’s not about what you tell your children, but how you show them how to live life.
+ - When we met, I never thought in a million years that Will Smith and I would be together.
+ - I’m scared of clowns.
+ - I met my husband, Will Smith, when I was 19 and auditioned to be his date on ‘The Fresh Prince of Bel-Air.’ They said I was too short to play the part.
+ - I think that with marriages, people have to understand that you have to look at your marriage and understand what is needed in your marriage – not what people think your marriage should be or what people want your marriage to be.
+ - I like a lot of metal music. So that’s really what I listen to a lot. Or I listen to a lot of kind of off the cuff, like I love artists like Santigold, or Gold Frapp. Yeah. Pelican. Yeah.
+ - As I get older, personal happiness is all about love. It’s all about love.
+ - When I believe in something, I’m very passionate. I don’t take ‘no’ for an answer.
+ - At 3 years old, I was telling people that I was going to be a star. I never had a plan B. And I’ve never compromised my integrity to get what I have.
+ - As I’ve gotten older, and now that my kids are starting to do what they do, I am now really focusing on sharing my knowledge and insights with them to help guide them on their journeys.
+ - Love is what sometimes holds us and binds us when we’re not so happy.
+ - When I look in the mirror, I see about a thousand different Jadas.
+ - I feel like, to me, art is a ladder to God, in my own opinion, you know. And so, for me, the more people that I can reach through many different artistic avenues, the better.
+ - Know this, if someone has cheated on you who truly loves you, they have hurt themselves as much as they have hurt you.
+ - That to me is happiness when I feel like I am loved and I have a place to love deeply. That to me is happiness.
+ - I feel a real responsibility to my community and so right now there has been this bizarre myth in our community how our vote doesn’t count. I’m trying to get out there and re-educate on how the government works and break that myth and talk about the importance of being involved.
+ - I think that old school style of ‘I’m your parent and I’m greater than you’ doesn’t work. What I establish with my children is a partnership.
+ - I think, as women, we have to stop being scared to be the women we want to be and we have to raise our daughters to be the women they want to be – not the women we think they should be.
+ - I’ve always been a caretaker; I think a lot of women are. We take care of everybody else first, and very rarely do we think about ourselves.
+ - I don’t think I’ve made my favorite film yet. But I loved ‘Bamboozled.’ ‘Bamboozled’ to me is off the chain. It’s definitely in the ranking. I loved ‘Bamboozled.’
+ - I don’t have to go around trying to save everybody anymore; that’s not my job.
+ - I would say being deeply involved in the art world would help keep a young artist on track. Doing what you love, so that your focus is your artistry.
+ - When I was growing up, my mother only put her foot down once: She said, ‘You are going to college.’ And that was a lifesaving moment. But she never talked to me about my clothes or hair. So I learned how to parent my kids through her.
+ - I have a thing for doors. I always think of them as a threshold to something new.
+ - I find fame to be quite unnatural. Humans are not built for extreme adoration.
+ - My music is like my freedom space.
+ - I feel that when a child has self-worth and purpose, that’s what keeps them grounded.
+ - Human spirit, things that aren’t tangible, fascinate me, so I’m always researching mind, spirit, soul.
+ - I love religion and have contemplated going back to school to get a world religion degree.
+ - You’ve got to be happy in your own skin.
+ - I don’t really cook much. I’m more of a baker. My favorite things to bake that everybody loves, and I can only keep in the house for about ten minutes, are 7-Up cake and Pineapple Upside-Down cake.
+ - I’m not here to – as a parent, I believe we are specifically here to help our children mature in the way that they can take on their own lives. I’m not here to live their lives for them. That’s not my job.
+ - Controversy is always a beautiful thing. I love controversy and I try to fan it as much as I can without having my husband’s head pop off!
+ - Women need to attack those negative voices they have in their head.
+ - I don’t think it’s easy to be married to anyone.
+ - What is the thing that Will could do to make me not love him? That would make me abandon him? I can’t think of one. I’m sorry. Except if he did something bad to the kids. Now we’ve got a problem.
+ - I think women who lead full lives are better mothers.
+ - I’ve always wanted to have the ability to do what I want to do. And there are so many things that I want to do because I love acting, I love directing, I love producing, I love being a mother, I love being a wife. If I had to choose one, just would put me in the crazy house.
+ - I’m in this whole flow of doing certain art pieces without commerce.
+ - I do call upon a little Fish Mooney energy sometimes, believe it or not.
+ - I really look at children as being little people and not necessarily things or people to control.
+ - For people to be able to sit down together and have a conversation, that’s the power of love.
+ - I just want pieces of the world.
+ - I had to get into a place for myself of thinking what I would create for myself if I didn’t have to worry about making money.
+ - I might get some more animals or something, but I’m done with the kids. I got a boy, I got a girl, and I got an older boy. I’m straight.
+ - Art should never be limited – the beauty of art is that it gives us the freedom to go places where we wouldn’t go to in our normal lives. Inside, I’m just so many different people. I go from the pretty girl on the red carpet to the singer at Ozzfest, spitting in the crowd. That’s Jada.
+ - I grew up in a neighborhood in Baltimore that was like a war zone, so I never learned to trust that there were people who could help me.
+ - Willow and I definitely talked about doing a collaboration. She really loves rock music, so she wants to come on and get crazy with me on a track. Which I would love, because she has a fantastic voice.
+ - Take responsibility about what you have on your TV, and about what you are out there supporting.
+
+84 quotes

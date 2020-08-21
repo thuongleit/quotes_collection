@@ -1,0 +1,53 @@
+ - From the pain comes the dream. From the dream comes the vision. From the vision come the people. From the people comes the power. From this power come the change.
+ - With no guilt and no shame, no sorrow or blame. Whatever it is, we are all the same.
+ - Surround yourself with brilliance.
+ - You can blow out a candle, but you can’t blow out a fire.
+ - We’ve got to get in to get out.
+ - Fear, she’s the mother of violence.
+ - With this darkness all around me, I like to be liked. In this emptiness and fear, I want to be wanted. Cause I love to be loved.
+ - I get lost, sometimes. Days pass and this emptiness fills my heart.
+ - I stood in this unsheltered place, ’til I could see the face behind the face.
+ - The outside world is black and white with only one color dead.
+ - With the man in the woman, and the woman in the man. In the blood of Eden lie the woman and the man.
+ - I hold the line, the line of strength that pulls me from the fear.
+ - Deadlines are things that we pass through on the way to finishing.
+ - Whenever we defend democracy we find oil.
+ - I come to you defenses down with the trust of a child.
+ - Dream big and surround yourself with brilliance, even if you end up dressed up like a flower or a sexually transmitted disease.
+ - The book of love has music in it In fact that’s where music comes from Some of it is just transcendental Some of it is just really dumb.
+ - At the heart, it is world music that I do. It’s all connections. Ultimately, we’re all connected.
+ - It’s only in uncertainty that we’re naked and alive.
+ - Music is a spiritual doorway its power comes from the fact that it plugs directly into the soul, unlike a lot of visual art or textual information that has to go through the more filtering processes of the brain.
+ - Once the flames begin to catch the wind will blow it higher, oh Biko, Biko.
+ - The rhythm is below me, the rhythm of the heat. The rhythm is around me, the rhythm has control. The rhythm is inside me, the rhythm has my soul.
+ - In your eyes I see the doorway to a thousand churches.
+ - People have the strength to overcome their bodies. Their beauty is in their minds.
+ - The dream is a world in which anyone who has anything bad happen to them has a chance of getting their story uploaded, being seen, being watched.
+ - Concerning iTunes, the deals have mainly been done with the record companies. But the artists, with some exceptions, haven’t been very well-represented. This is partly because the record companies have largely been copyright owners.
+ - Those of us who have the eyes and ears of the media have a responsibility to amplify the voices of the voiceless.
+ - One doubt, one voice, one war, one truth, one dream...
+ - They think so small, they use small words. But not me, I’m smarter than that, I’ve worked it out. I’m stretching my mouth to let those big words come on out.
+ - Everybody nose dive, hold your breath, count to five. Back slap, booby trap, cover it up in bubble wrap. Room shake, earth quake, find a way to stay awake. It’s going to blow, it’s going to break, this is more than I can take.
+ - Letting go, it’s so hard The way it’s hurting now To get this love untied So tough to stay with this thing ’cos if I follow through I face what I denied I’ll get those hooks out of me And I’ll take out the hooks that I sunk deep in your side Kill that fear of emptiness, that loneliness I hide.
+ - The earthly power sucks shadowed milk from sleepy tears undone, from nippled skin as smooth as silk the bugles blown as one.
+ - I like the touch and the smell of all the pretty dresses you wear.
+ - I think it is the weak and the young and the minorities that you need to look after to get a healthy creative environment – to get a lot of choices, a lot of different styles of music, a lot experimental stuff that everyone else feeds off.
+ - One thing that really appeals to me is this idea of music being a living thing that has an evolution that, in a way, enables the artist to sell a process rather than a piece of product.
+ - Artists everywhere steal mercilessly all the time and I think this is healthy.
+ - Self-conscious, uncertain, I’m showered by the dust. But the spirit enters into me and I submit to trust.
+ - I love 5.1. Sometimes you can’t squeeze everything in comfortably into a stereo picture. There is a lot more space in a 5.1 environment.
+ - Having lots of people talking highly of you and respecting your art and your work, this is one of the best feelings that you can have.
+ - There has always been a strong relationship between music and religion. It is because they both plug directly into the heart and can have real power for good or evil.
+ - I think another thing is that we don’t really want exclusivity. We accept that it is in the artist’s interest to be on sale in every place where they sell music.
+ - I look at the time with you to keep me awake and alive.
+ - Whenever there’s a camera around, a video or film camera, it’s a great deal harder for those in power to bury the story.
+ - I think that you get the mood of a song stronger if you get it right that way. On the other hand, you put some songs out live and they don’t catch flight. They just flop. It is hard to tell until they are out there.
+ - I think one of the things about writing in the studio is that the song hasn’t matured, if you like, so quite often the vocals are early attempts. Whereas once you’ve taken it out on the road a bit, you learn more about a song.
+ - I was introduced to lots of great music through my local record store. It was a place where people knew music and they knew me, and could make great suggestions and discoveries. Whether it is in the physical world or on-line, the value of a great and knowledgeable record store has not gone away.
+ - I’m a bit cynical that it ever will be addressed properly. I think it is healthy to get some sort of copyright protection. But some of it has gone on forever.
+ - When we started OD2 in 1999, we were really expecting to work more with independents and so on because the major labels were spending millions on their own Pressplay and equivalents online, which haven’t been very successful.
+ - Whistling tunes we’re kissing baboons in the jungle.
+ - Holding still for a moment, what a moment this is, Oh for a moment of forgetting, a moment of bliss.
+ - Yeah, in the digital world, it is so much easier to put stuff out without a great deal of paraphernalia and fanfare.
+
+51 quotes

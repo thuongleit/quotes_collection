@@ -1,0 +1,29 @@
+ - If you want something done right, you have to do it yourself. This especially includes your health care.
+ - Use vitamins in place of drugs. This takes some moxie to do, for we have been taught to be consumers of medicine. We have been taught that anything cheap and safe cannot possibly be effective.
+ - Good health makes a lot of sense, but it does not make a lot of dollars.
+ - Self-care means accepting some risk, and accepting much responsibility. It is not for all people or all cases.
+ - It’s unreasonable to expect medical doctors and pharmaceutical companies to tell you how to avoid their services by trying the alternatives.
+ - I wish there were easy answers to people’s health questions. There aren’t. There are answers, all right, but they are not easy.
+ - Doctors frequently get it wrong. One out of five patients today is in the hospital because incorrect treatment by a physician put him or her there.
+ - Medicine is aptly described as an art, not a science. To this end, four different doctors may have up to four different diagnoses or prescriptions.
+ - To think the needle is going to protect you is as silly as thinking that drugs will make you healthy.
+ - We need total health more than medically approved health. Our wellness should not be limited to our doctor’s experience, but enhanced by our own experience.
+ - This is America, and you have the right to remain sick. If you choose to treat yourself and your family, that is within your rights, and is necessarily your sole decision based on what you know to be best.
+ - A hospital patient can expect one medical error every single day of any hospital stay. Malpractice suits are numerous enough that one may reasonably conclude that there is certainly no guarantee of proper health care by contracting it out.
+ - We can take more time and interest, and give more attention to our personal health than a hired professional can. We have learned to go get medical help, not to give it. We have learned to relay our body’s needs to another, not to provide them ourselves.
+ - Much of the fear of doing something wrong vanishes when we are knowledgeable about what we are doing.
+ - No person knows your body better than you. The world’s most sophisticated and sensitive diagnostic apparatus is your own body’s feelings.
+ - I believe that alternative healing methods are much more than just temporary or half measures.
+ - If we learn more than the doctor in areas of value to our health, it is our duty to apply this knowledge to the betterment of ourselves and our families.
+ - We have been taught to “just eat a balanced diet.” We have been taught wrong. The truth is natural healing works.
+ - If you are not highly educated, you will need to abandon your anxiety and fear of reading and doing research.
+ - If you are well educated, and especially if you are a health professional, you will have to unlearn much of what you’ve been taught and start afresh with the rather disruptive thought that natural healing may actually work.
+ - Healing is too big a topic for any one person to know it all.
+ - Change your life. If you want to get better, that is what you have to do.
+ - If you want to be productive, follow leads and dig. Whether it is for oil, gold or information, it requires action – your action. Question authority. Do it yourself.
+ - It is a distinguishing feature of natural therapies that they are straightforward and reliable enough to safely do on your own, at home.
+ - Modern medicine has created more co-dependents even than co-pays. We’ve learned to hold out for a magic bullet such as a new miracle drug, breakthrough surgical procedure or new organ transplant. What rubbish.
+ - It is possible to learn more than your doctor knows, particularly in key areas that specifically apply to you. In fact, you may discover material that your doctor never saw, or did see and never investigated.
+ - Most medical personnel remain largely unfamiliar with non-medical treatments, and tend to dismiss them without knowing about what they’re dismissing. This is a great loss to the doctor as well as to the public.
+
+27 quotes

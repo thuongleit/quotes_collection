@@ -1,0 +1,337 @@
+ - To find yourself, think for yourself.
+ - The secret of change is to focus all of your energy, not on fighting the old, but on building the new.
+ - Strong minds discuss ideas, average minds discuss events, weak minds discuss people.
+ - The only true wisdom is in knowing you know nothing.
+ - Be kind, for everyone you meet is fighting a hard battle.
+ - The unexamined life is not worth living.
+ - Wonder is the beginning of wisdom.
+ - I cannot teach anybody anything. I can only make them think.
+ - No man has the right to be an amateur in the matter of physical training. It is a shame for a man to grow old without seeing the beauty and strength of which his body is capable.
+ - There is only one good, knowledge, and one evil, ignorance.
+ - The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less.
+ - Contentment is natural wealth, luxury is artificial poverty.
+ - What screws us up the most in life is the picture in our head of what it’s supposed to be.
+ - Know thyself.
+ - Education is the kindling of a flame, not the filling of a vessel.
+ - When the debate is lost, slander becomes the tool of the loser.
+ - The easiest and noblest way is not to be crushing others, but to be improving yourselves. 
+ - Prefer knowledge to wealth, for the one is transitory, the other perpetual.
+ - Be as you wish to seem.
+ - We cannot live better than in seeking to become better.
+ - Silence is a profound melody, for those who can hear it above all the noise.
+ - Wisdom is knowing how little we know.
+ - Why should we pay so much attention to what the majority thinks?
+ - There is no learning without remembering.
+ - Every action has its pleasures and its price.
+ - I only know one thing, and that is I know nothing.
+ - Do not be angry with me if I tell you the truth.
+ - We can easily forgive a child who is afraid of the dark; the real tragedy of life is when men are afraid of the light.
+ - A multitude of books distracts the mind.
+ - The years wrinkle our skin, but lack of enthusiasm wrinkles our soul.
+ - Do not go through life like leaf blown from here to there believing whatever you are told.
+ - Only the knowledge that comes from inside is the real Knowledge.
+ - Be the kind of person that you want people to think you are.
+ - I shall never fear or avoid things of which I do not know...
+ - Our lives are but specks of dust falling through the fingers of time. Like sands of the hourglass, so are the days of our lives.
+ - I am a Citizen of the World, and my Nationality is Goodwill.
+ - To be uncertain is to be uncomfortable, but to be certain is to be ridiculous.
+ - Envy is the ulcer of the soul.
+ - Smart people learn from everything and everyone, average people from their experiences, stupid people already have all the answers.
+ - To know, is to know that you know nothing. That is the meaning of true knowledge. For a man who claims to have knowledge, while actually knowing nothing, is less smarter than you, who claim to know nothing.
+ - Thou shouldst eat to live; not live to eat.
+ - The fewer our wants the more we resemble the Gods.
+ - Knowledge is our ultimate good.
+ - Better to do a little well, then a great deal badly.
+ - Be true to thine own self.
+ - I know you won’t believe me, but the highest form of Human Excellence is to question oneself and others.
+ - Do not grieve over someone who changes all of the sudden. It might be that he has given up acting and returned to his true self.
+ - Death may be the greatest of all human blessings.
+ - Sometimes you put walls up not to keep people out, but to see who cares enough to break them down.
+ - Wisest is he who knows he knows not.
+ - Death offers mankind a full view of truth.
+ - He is a man of courage who does not run away, but remains at his post and fights against the enemy.
+ - Once made equal to man, woman becomes his superior.
+ - The misuse of language induces evil in the soul.
+ - If one knows what is right, he will do it; nobody wants to be evil.
+ - All men’s souls are immortal, but the souls of the righteous are immortal and divine.
+ - The really important thing is not to live, but to live well. And to live well meant, along with more enjoyable things in life, to live according to your principles.
+ - The greatest blessing granted to mankind come by way of madness, which is a divine gift.
+ - What a lot of things there are a man can do without.
+ - I soon realized that poets do not compose their poems with knowledge, but by some inborn talent and by inspiration, like seers and prophets who also say many fine things without any understanding of what they say.
+ - Beware the barrenness of a busy life.
+ - It is a disgrace to grow old through sheer carelessness before seeing what manner of man you may become by developing your bodily strength and beauty to their highest limit.
+ - The hour of departure has arrived and we go our ways; I to die, and you to live. Which is better? Only God knows.
+ - Are you not ashamed of your eagerness to possess as much wealth, reputation, and honors as possible, while you do not care for nor give thought to wisdom or truth, or the best possible state of your soul?
+ - Happiness is unrepented pleasure.
+ - Ordinary people seem not to realize that those who really apply themselves in the right way to philosophy are directly and of their own accord preparing themselves for dying and death.
+ - The right way to begin is to pay attention to the young, and make them just as good as possible.
+ - It is best and easiest not to discredit others but to prepare oneself to be as good as possible.
+ - Creation is man’s immortality and brings him nearest to the gods.
+ - True perfection is a bold quest to seek. Only the willing and true of heart will seek the betterment of many.
+ - See one promontory, one mountain, one sea, one river and see all.
+ - Get not your friends by bare compliments but by giving them sensible tokens of your love.
+ - Nobody knows anything, but I, knowing nothing, am the smartest man in the world.
+ - The perfect human being is all human beings put together, it is a collective, it is all of us together that make perfection.
+ - As to marriage or celibacy, let a man take which course he will, he will be sure to repent.
+ - The hardest task needs the lightest hand or else its completion will not lead to freedom but to a tyranny much worse than the one it replaces.
+ - Think not those faithful who praise all thy words and actions, but those who kindly reprove thy faults.
+ - All of the wisdom of this world is but a tiny raft upon which we must set sail when we leave this earth. If only there was a firmer foundation upon which to sail, perhaps some divine word.
+ - The life of which meaning one never ponders is not worth living.
+ - Obscurity is dispelled by augmenting the light of discernment, not by attacking the darkness.
+ - Some have courage in pleasures, and some in pains: some in desires, and some in fears, and some are cowards under the same conditions.
+ - There is a doctrine whispered in secret that a man is a prisoner who has no right to open the door and run away; this is a great mystery which I do not quite understand.
+ - Whatever authority I may have rests solely on knowing how little I know.
+ - In every one of us there are two ruling and directing principles, whose guidance we follow wherever they may lead; the one being an innate desire of pleasure; the other, an acquired judgment which aspires after excellence.
+ - The greater the power that deigns to serve you, the more honor it demands of you.
+ - You will know that the divine is so great and of such a nature that it sees and hears everything at once, is present everywhere, and is concerned with everything.
+ - How can you wonder your travels do you no good, when you carry yourself around with you?
+ - Are not all things which have opposites generated out of their opposites?
+ - Fellow citizens, why do you burn and scrape every stone to gather wealth and take so little care of your children to whom you must one day relinquish all?
+ - Though flattery blossoms like friendship, yet there is a vast difference in the fruit.
+ - The tongue of a fool is the key of his counsel, which, in a wise man, wisdom hath in keeping.
+ - The end of life is to be like unto God; and the soul following God, will be like unto Him; He being the beginning, middle, and end of all things.
+ - It seems that God took away the minds of poets that they might better express His.
+ - Our purpose in founding the city was not to make any one class in it surpassingly happy, but to make the city as a whole as happyas possible.
+ - I have good hope that there is something remaining for the dead.
+ - Malice drinketh up the greater part of its own poison.
+ - To use words and phrases in an easygoing manner without scrutinizing them too curiously is not in general a mark of ill-breeding. On the contrary, there is something low-bred in being too precise. But sometimes there is no help for it.
+ - It has been shown that to injure anyone is never just anywhere.
+ - I only wish that ordinary people had an unlimited capacity for doing harm; then they might have an unlimited power for doing good.
+ - Living or dead, to a good man there can come no evil.
+ - Neither I nor any other man should, on trial or in way, contrive to avoid death at any cost.
+ - Either I do not corrupt the young or, if I do, it is unwillingly.
+ - The more I learn, the less I realize I know.
+ - Wisdom begins in wonder.
+ - He who is not contented with what he has, would not be contented with what he would like to have.
+ - Athletics have become professionalized.
+ - Understanding a question is half an answer.
+ - Pride divides the men, humility joins them.
+ - I know nothing except the fact of my ignorance.
+ - True knowledge exists in knowing that you know nothing. And in knowing that you know nothing, that makes you the smartest of all.
+ - Beloved Pan and all ye other gods who haunt this place, give me beauty in the inward soul; and may the outward and the inward man be one.
+ - When you want success as badly as you want the air, then you will get it. There is no other secret of success.
+ - All things in moderation, including moderation.
+ - I swear it upon Zeus an outstanding runner cannot be the equal of an average wrestler.
+ - I am a fool, but I know I’m a fool and that makes me smarter than you.
+ - It is better to suffer an injustice than to commit one.
+ - Falling down is not a failure. Failure comes when you stay where you have fallen.
+ - I know that I am intelligent, because I know that I know nothing.
+ - One thing I know, that I know nothing. This is the source of my wisdom.
+ - In every person there is a sun. Just let them shine.
+ - By all means marry; if you get a good wife, you’ll become happy; if you get a bad one, you’ll become a philosopher.
+ - Man must rise above the Earth – to the top of the atmosphere and beyond – for only thus will he fully understand the world in which he lives.
+ - By far the greatest and most admirable form of wisdom is that needed to plan and beautify cities and human communities.
+ - If what you want to tell me is neither True nor Good nor even Useful, why tell it to me at all.
+ - If you want to be wrong then follow the masses.
+ - I am a citizen, not of Athens, or Greece, but of the world.
+ - To be is to do.
+ - An honest man is always a child.
+ - Talk in order that I may see you.
+ - Be slow to fall into friendship, but when you are in, continue firm and constant.
+ - Beauty comes first. Victory is secondary. What matters is joy.
+ - The greatest way to live with honor in this world is to be what we pretend to be.
+ - When our feet hurt, we hurt all over.
+ - From the deepest desires often come the deadliest hate.
+ - To move the world we must move ourselves.
+ - All thinking begins with wondering.
+ - True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us.
+ - You never know a line is crooked unless you have a straight one to put next to it.
+ - What a lot of things I don’t need.
+ - Worthless people live only to eat and drink; people of worth eat and drink only to live.
+ - The nearest way to glory a shortcut, as it were is to strive to be what you wish to be thought to be.
+ - One who is injured ought not to return the injury, for on no account can it be right to do an injustice.
+ - Let the questions be the curriculum.
+ - The beginning of wisdom is a definition of terms.
+ - Anybody can be a hellene, by his heart, his mind, his spirit...
+ - Do it because it’s in your heart. Not because you want something in return. Employ your time in improving yourself by other men’s writings, so that you shall gain easily what others have labored hard for.
+ - I decided that it was not wisdom that enabled poets to write their poetry, but a kind of instinct or inspiration, such as you find in seers and prophets who deliver all their sublime messages without knowing in the least what they mean.
+ - Four things belong to a judge: to hear courteously, to answer wisely, to consider soberly, and to decide impartially.
+ - Nothing is to be preferred before justice.
+ - Bad men live that they may eat and drink, whereas good men eat and drink that they may live.
+ - Follow the argument wherever it leads.
+ - Not life, but good life, is to be chiefly valued.
+ - He is the richest who is content with the least.
+ - He who is unable to live in society, or who has no need because he is sufficient for himself, must be either a beast or a god.
+ - Living well and beautifully and justly are all one thing.
+ - Sometimes you have to let go to see if there was anything worth holding onto.
+ - The heart of the person before you is a mirror. See there your own form.
+ - Children today are tyrants. They contradict their parents, gobble their food, and tyrannize their teachers.
+ - There is no solution; seek it lovingly.
+ - In all of us, even in good men, there is a lawless wild-beast nature, which peers out in sleep.
+ - If the whole world depends on today’s youth, I can’t see the world lasting another 100 years.
+ - It is not living that matters, but living rightly.
+ - What is happening to our young people? They disrespect their elders, they disobey their parents. They ignore the law. They riot in the streets inflamed with wild notions. Their morals are decaying. What is to become of them?
+ - The soul, like the body, accepts by practice whatever habit one wishes it to contact.
+ - This sense of wonder is the mark of the philosopher. Philosophy indeed has no other origin.
+ - Be of good hope in the face of death. Believe in this one truth for certain, that no evil can befall a good man either in life or death, and that his fate is not a matter of indifference to the gods.
+ - Remember, no human condition is ever permanent. Then you will not be overjoyed in good fortune nor too scornful in misfortune.
+ - No man has a right to be an amateur in the matter of physical training.
+ - There is no difference between knowledge and temperance; for he who knows what is good and embraces it, who knows what is bad and avoids it, is learned and temperate.
+ - Where there is reverence there is fear, but there is not reverence everywhere that there is fear, because fear presumably has a wider extension than reverence.
+ - How many things are there which I do not want.
+ - The best seasoning for food in hunger; for drink, thirst.
+ - To fear death, gentlemen, is no other than to think oneself wise when one is not, to think one knows what one does not know.
+ - The shortest and surest way to live with honor in the world, is to be in reality what we would appear to be, all human virtues increase and strengthen themselves by the practice and experience of them.
+ - The body cannot be cured without regard for the soul.
+ - Man’s life is like a drop of dew on a leaf.
+ - The understanding of mathematics is necessary for a sound grasp of ethics.
+ - Fame is the perfume of heroic deeds.
+ - Fear of women love more than hate the man.
+ - I don’t care what people say about me. I do care about my mistakes.
+ - If you would seek health, look first to the spine.
+ - I was afraid that by observing objects with my eyes and trying to comprehend them with each of my other senses I might blind my soul altogether.
+ - The first key to greatness is to be in reality what we appear to be.
+ - The greatest flood has the soonest ebb; the sorest tempest the most sudden calm; the hottest love the coldest end; and from the deepest desire oftentimes ensues the deadliest hate.
+ - All wars are fought for the acquisition of wealth.
+ - In childhood be modest, in youth temperate, in adulthood just, and in old age prudent.
+ - The Delphic Oracle said that I was the wisest of all the Greeks. It is because I alone of all the Greeks know that I know nothing.
+ - If a man comes to the door of poetry untouched by the madness of the Muses, believing that technique alone will make him a good poet, he and his sane compositions never reach perfection, but are utterly eclipsed by the performances of the inspired madman.
+ - The wise man seeks death all his life, and for this reason death is not terrifying to him.
+ - Be of good cheer about death and know this as a truth, that no evil can happen to a good man, either in life or after death.
+ - It is never right to do wrong or to requite wrong with wrong, or when we suffer evil to defend ourselves by doing evil in return.
+ - To harm another is to harm oneself.
+ - I pray Thee, O God, that I may be beautiful within.
+ - I love to go and see all the things I am happy without.
+ - Only the extremely ignorant or the extremely intelligent can resist change.
+ - Men of Athens, I honor and love you; but I shall obey God rather than you, and while I have life and strength I shall never cease from the practice and teaching of philosophy.
+ - The highest realms of thought are impossible to reach without first attaining an understanding of compassion.
+ - They are not only idle who do nothing, but they are idle also who might be better employed.
+ - To know, is to know that you know nothing.
+ - The noblest worship is to make yourself as good and as just as you can.
+ - We can do nothing without the body, let us always take care that it is in the best condition to sustain us.
+ - Regard your good name as the richest jewel yoou can possibly be possessed of.
+ - Why do you wonder that globetrotting does not help you, seeing that you always take yourself with you? The reason that set you wandering is ever at your heels.
+ - Are you not ashamed of heaping up the greatest amount of money and honor and reputation, and caring so little about wisdom and truth and the greatest improvement of the soul?
+ - Those who want the fewest things are nearest to the gods.
+ - Improve yourself by other men’s writings thus attaining effortlessly what they acquired through great difficulty.
+ - Whenever, therefore, people are deceived and form opinions wide of the truth, it is clear that the error has slid into their minds through the medium of certain resemblances to that truth.
+ - The poets are only the interpreters of the Gods.
+ - Nothing is so well learned as that which is discovered.
+ - How many things I can do without!
+ - You are wrong, sir, if you think that a man who is any good at all should take into account the risk of life or death; he should look to this only in his actions, whether what he does is right or wrong, whether he is acting like a good or a bad man.
+ - If he who does not know kept silent, discord would cease.
+ - One ought not to return injustice, nor do evil to anybody in the world, no matter what one may have suffered from them.
+ - True wisdom lies in one’s confession about the limits of one’s knowledge.
+ - False language, evil in itself, infects the soul with evil.
+ - Trust not a woman when she weeps, for it is her nature to weep when she wants her will.
+ - The difficulty, my friends, is not in avoiding death, but in avoiding unrighteousness; for that runs faster than death.
+ - Our prayers should be for blessings in general, for God knows best what is good for us.
+ - I call that man idle who might be better employed.
+ - The children now love luxury. They have bad manners, contempt for authority; they show disrespect for elders and love chatter in place of exercise.
+ - It is not the purpose of a juryman’s office to give justice as a favor to whoever seems good to him, but to judge according to law, and this he has sworn to do.
+ - A disorderly mob is no more an army than a heap of building materials is a house.
+ - No man undertakes a trade he has not learned, even the meanest; yet everyone thinks himself sufficiently qualified for the hardest of all trades, that of government.
+ - Just as you ought not to attempt to cure eyes without head or head without body, so you should not treat body without soul.
+ - Virtue does not come from wealth, but wealth, and every other good thing which men have comes from virtue.
+ - Such as thy words are, such will thy affections be esteemed; and such will thy deeds be as thy affections and such thy life as thy deeds.
+ - The comic and the tragic lie inseparably close, like light and shadow.
+ - Nobody is qualified to become a statesman who is entirely ignorant of the problem of wheat.
+ - Through your rags I see your vanity.
+ - An education obtained with money is worse than no education at all.
+ - People learn more on their own rather than being force fed.
+ - I was really too honest a man to be a politician and live.
+ - There is no possession more valuable than a good and faithful friend.
+ - Every pleasure or pain has a sort of rivet with which it fastens the soul to the body and pins it down and makes it corporeal, accepting as true whatever the body certifies.
+ - Beauty is the bait which with delight allures man to enlarge his kind.
+ - A system of morality that is based on relative emotional values is a mere illusion, a thoroughly vulgar conception that has nothing sound in it and nothing true.
+ - I am that gadfly which God has attached to the state, and all day long and in all places am always fastening upon you, arousing and persuading and reproaching you.
+ - I prefer to be refuted than to refute, for it is a greater good for oneself to be freed from the greatest evil than to free another.
+ - This is a universe that does not favor the timid.
+ - By means of beauty all beautiful things become beautiful.
+ - To express oneself badly is not only faulty as far as the language goes, but does some harm to the soul.
+ - It is better to make a mistake with full force of your being than to carefully avoid mistakes with a trembling spirit.
+ - A good man cannot be harmed either in life or in death.
+ - If you can do only a little. Do what you can. What you cannot enforce, do not command.
+ - If at first you don’t succeed, avoid skydiving.
+ - Slanderers do not hurt me because they do not hit me.
+ - The friend must be like money, that before you need it, the value is known.
+ - Let he who would move the world, first complete an environmental impact assessment and a 90-day public comment period.
+ - I am very conscious that I am not wise at all.
+ - If you want to be a good saddler, saddle the worst horse; for if you can tame one, you can tame all.
+ - Exercise till the mind feels delight in reposing from the fatigue.
+ - One should never do wrong in return, nor mistreat any man, no matter how one has been mistreated by him.
+ - The envious person grows lean with the fatness of their neighbor.
+ - Marry a good woman, and be happy the rest of your life. Or, marry a bad, and become a good philosopher.
+ - To need nothing is divine, and the less a man needs the nearer does he approach to divinity.
+ - When a woman is allowed to become a man’s equal, she becomes his superior.
+ - And I say let a man be of good cheer about his soul. When the soul has been arrayed in her own proper jewels – temperance and justice, and courage, and nobility and truth – she is ready to go on her journey when the hour comes.
+ - There’s no good answer to a question you didn’t hear.
+ - It is not difficult to avoid death. It is much more difficult to avoid wickedness, for it runs faster than death.
+ - She soars on her own wings.
+ - God does not deal directly with man: it is by means of spirits that all the intercourse and communication of gods with men, both in waking life and in sleep, is carried on.
+ - If a man is proud of his wealth, he should not be praised until it is known how he employs it.
+ - Aren’t you ashamed to be concerned so much about making all the money you can and advancing your reputation and prestige, while for truth and wisdom and the improvement of your souls you have no thought or car?
+ - Wisdom adorneth riches and casteth a shadow over poverty.
+ - Since I am convinced that I wrong no one, I am not likely to wrong myself.
+ - Beauty is a short-lived tyranny.
+ - The same wind is blowing, and yet one of us may be cold and the other not.
+ - For this fear of death is indeed the pretense of wisdom, and not real wisdom, being the appearance of knowing the unknown; since no one knows whether death, which they in their fear apprehend to be the greatest evil, may not be the greatest good.
+ - If all misfortunes were laid in one common heap whence everyone must take an equal portion, most people would be contented to take their own and depart.
+ - The warm love has the coldest end.
+ - Why should I resent it when an ass kicks me?
+ - My divine sign indicates the future to me.
+ - Listen not to a tale-bearer or slanderer, for he tells thee nothing out of good-will; but as he discovereth of the secrets of others, so he will of thine in turn.
+ - Marry or marry not, in any either case you’ll regret it.
+ - Whoever would have his body supple, easy and healthful should learn to dance.
+ - I have not sought during my life to amass wealth and to adorn my body, but I have sought to adorn my soul with the jewels of wisdom, patience, and above all with a love of liberty.
+ - To Believe without evidence and demonstration is an act of ignorance and folly.
+ - What most counts is not merely to live, but to live right.
+ - I will not yield to any man contrary to what is right, for fear of death, even if I should die at once for not yielding.
+ - Wars and revolutions and battles are due simply and solely to the body and its desires.
+ - It was far too cold. The second I got out I had this incredible headache, I’m just not used to it. The last time I saw snow was years and years ago.
+ - Wind buffs up empty bladders; opinion, fools.
+ - Has a philosopher like you failed to discover that our country is more to be valued and higher and holier far than mother or father or any ancestor, and more to be regarded in the eyes of the gods and of men of understanding?
+ - May the outward and inward man be at one.
+ - How can you call a man free when his pleasures rule over him.
+ - Is it not, then, better to be ridiculous and friendly than clever and hostile?
+ - It is possible that a man could live twice as long if he didn’t spend the first half of his life acquiring habits that shortens the other half.
+ - My belief is that to have no wants is divine.
+ - Remember what is unbecoming to do is also unbecoming to speak of.
+ - Is there anyone to whom you entrust a greater number of serious matters than your wife? And is there anyone with whom you have fewer conversations?
+ - To them, I said, the truth would be literally nothing but the shadows of the images.
+ - The rest of the world lives to eat, while I eat to live.
+ - There is no illness of the body except for the mind.
+ - There is no greater magnificence than to defeat oneself. That is the magnificence...
+ - May I consider the wise man rich, and may I have such wealth as only the self-restrained man can bear or endure.
+ - He who has lived as a true philosopher has reason to be of good cheer when he is about to die, and that after death he may hope to receive the greatest good in the other world.
+ - The reason why we have to acquire wealth is the body, because we are slaves in its service.
+ - I know what I do not know.
+ - All that I know is nothing – I’m not even sure of that.
+ - The greatest of all mysteries is the man himself.
+ - Flattery is like friendship in show, but not in fruit.
+ - In every sort of danger there are various ways of winning through, if one is ready to do and say anything whatever.
+ - A man should inure himself to voluntary labor, and not give up to indulgence and pleasure, as they beget no good constitution of body nor knowledge of mind.
+ - Often when looking at a mass of things for sale, he would say to himself, ‘How many things I have no need of!’
+ - No one does wrong voluntarily.
+ - Before the birth of Love, many fearful things took place through the empire of necessity; but when this god was born, all things rose to men.
+ - Wars and revolutions and battles are due simply and solely to the body and its desires. All wars are undertaken for the acquisition of wealth; and the reason why we have to acquire wealth is the body, because we are slaves in its service.
+ - The partisan when he is engaged in a dispute, cares nothing about the rights of the question, but is anxious only to convince his hearers of his own assertions.
+ - For who is there but you? Who not only claim to be a good man and a gentleman, for many are this, and yet have not the power of making others good. Whereas you are not only good yourself, but also the cause of goodness in others.
+ - The soul is cured of its maladies by certain incantations; these incantations are beautiful reasons, from which temperance is generated in souls.
+ - The man who is truly wise knows that he knows very little.
+ - Get married, in any case. If you happen to get a good mate, you will be happy; if a bad one, you will become philosophical, which is a fine thing in itself.
+ - A man can no more make a safe use of wealth without reason than he can of a horse without a bridle.
+ - The individual leads in order that those who are led can develop their potential as human beings and thereby prosper.
+ - If I can assign names as well as pictures to objects, the right assignment of them we may call truth, and the wrong assignment of them falsehood.
+ - Do not do to others what angers you if done to you by others.
+ - If I had engaged in politics, O men of Athens, I should have perished long ago, and done no good either to you or to myself.
+ - The uninitiated are those who believe in nothing except what they can grasp in their hands, and who deny the existence of all that is invisible.
+ - Go wherever the facts lead.
+ - When you propose ridiculous things to believe, too many men will choose to believe nothing at all.
+ - In my investigation in the service of the god I found that those who had the highest reputation were nearly the most deficient, while those who were thought to be inferior were more knowledgeable.
+ - I am confident that there truly is such a thing as living again, that the living spring from the dead, and that the souls of the dead are in existence.
+ - A free soul ought not to pursue any study slavishly, for nothing that is learned under compulsion stays with the mind.
+ - You think that upon the score of fore-knowledge and divining I am infinitely inferior to the swans. When they perceive approaching death they sing more merrily than before, because of the joy they have in going to the God they serve.
+ - But already it is time to depart, for me to die, for you to go on living; which of us takes the better course, is concealed from anyone except God.
+ - To give either to any public matter of interest or to any concern of my own, but I am in utter poverty by reason of my devotion to the god .
+ - If thou continuous to take delight in idle argumentation thou mayest be qualified to combat with the sophists, but will never know how to live with men.
+ - There are two kinds of disease of the soul, vice and ignorance.
+ - Flattery is like a painted armor; only for show.
+ - Not I, but the city teaches.
+ - One cannot come closer to the gods than by bringing health to his Fellow Man.
+ - The bad one is that way because of the ignorance, therefore he can be healed with wisdom.
+ - The beginning is the most important part, especially when dealing with anything young and tender.
+ - Laws are not made for the good.
+ - If you will be guided by me, you will make little account of Socrates, and much more of truth.
+
+335 quotes

@@ -1,0 +1,25 @@
+ - If you believe what you say, words will become reality.
+ - Once you don’t have freedom and you’re obliged to do many things you don’t want, and it becomes a routine, then your identity is at stake because you can feel that you are not anymore yourself, that you are what they want you to be – and you can lose yourself.
+ - It’s important for me to fight for principles. But I am not willing to cope with the nastiness of politics anymore and the endless destructive confrontations that it leads to.
+ - Before I was abducted, I think that happiness was related to success. Nowadays happiness is related, for me, to rest, peace, serenity.
+ - After six years without seeing one, I love just seeing a smile – every smile I see gives me hope.
+ - I was discovering that the most precious gift someone can give us is time, because what gives time its value is death.
+ - Nothing that I can encounter today can be as bad as what is behind me. There are small things that used to upset me, but now I just think: Who cares?
+ - Sometimes I’m fragile, sometimes too emotional, but I’m putting everything I can on my side to be a happy person.
+ - I knew of no instruction manual for reaching a higher level of humanity and a greater wisdom. But I felt intuitively that laughter was the beginning of wisdom, as is was indispensable for survival.
+ - People need space to survive.
+ - It is said that the compensation for the effort courage, tenacity, and endurance displayed during the journey was not happiness. Nor glory. What God offered as a reward was only rest.
+ - In this condition of the most devastating humiliation, I still possessed the most precious of liberties, that no-one could take away from me: that of deciding who I wanted to be.
+ - Hostages want to survive – they are very focused on their own little view of things.
+ - I think there is this sensation of being deprived of something that you are entitled to have.
+ - Sometimes you hear in the United States that in Columbia there is a war between rich and poor, between people that are defending the poor and the rich.
+ - Our life capital is measured in seconds. Once those seconds are gone, we never get them back!
+ - In Colombia today we have 16% of the population, which is a very small amount of the population owning 90% of the land and 20 years ago it wasn’t like that.
+ - I no longer knew whether it was raindrops or my own tears that were flowing down my cheeks, and I hated to have to drag along this relic of a sniveling child.
+ - I think that the security in the cities is a lot better, but I think that outside the cities the peasants have no security, have no protection of the justice, so that I think is something we have to address.
+ - Whatever you could do with your hands was important because it kept you in a motion of being able to produce something, and producing something kept you balanced in a way.
+ - I think that for example as a prisoner of course I was pressured to become very submissive and in a way the syndrome of Stockholm is when you shift position and then you become like you’re supposed to act, which is accepting the authority of those who have abducted you.
+ - I think there is limits to the assumption that wherever you are, the situation in a way tells you how to behave.
+ - What we have in Colombia is a war against the poor and the guerillas from the left side are against the poor.
+
+23 quotes

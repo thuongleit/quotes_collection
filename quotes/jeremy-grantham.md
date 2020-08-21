@@ -1,0 +1,32 @@
+ - The stock market is overpriced. Everything is overpriced. Junk is king.
+ - It is better to be lucky than good, but of course appropriate to aspire to both.
+ - Modern agriculture has been accurately described as a way of turning oil into food. As the price of oil continues to rise, so will the price of food.
+ - There is no single theory that is used in economics that considers the finite nature of resources. Its shocking.
+ - Market timing, by the way, is a tag some buy-and-hold investors use to put down anything that involves using your brain. These are the same people who like to watch the locomotive coming and get run down in the name of discipline.
+ - The world is using up its natural resources at an alarming rate, and this has caused a permanent shift in their value. We all need to adjust our behavior to this new environment. It would help if we did it quickly.
+ - We live on a finite planet. We have finite resources, and we’re running out of good, arable land.
+ - I believe the only things that really matter in investing are the bubbles and the busts.
+ - The language ‘It’s too late’ is very unsuitable for most environmental issues. It’s too late for the dodo and for people who’ve starved to death already, but it’s not too late to prevent an even bigger crisis. The sooner we act on the environment, the better.
+ - Profit margins are probably the most mean-reverting series in finance, and if profit margins do not mean-revert, then something has gone badly wrong with capitalism. If high profits do not attract competition, there is something wrong with the system and it is not functioning properly.
+ - Although value is a weak force in any single year, it becomes a monster over several years. Like gravity, it slowly wears down the opposition.
+ - You don’t get rewarded for taking risk; you get rewarded for buying cheap assets. And if the assets you bought got pushed up in price simply because they were risky, then you are not going to be rewarded for taking a risk; you are going to be punished for it.
+ - By background I’m both a Quaker and a Yorkshireman, which I like to call double jeopardy.
+ - You can’t run the economy on BMWs alone. If the average person is in a pickle, how do you have a healthy economy?
+ - The potential for alternative energy sources, mainly solar and wind power, to completely replace coal and gas for utility generation globally is, I think, certain. The question is only whether it takes 30 years or 70 years.
+ - The individual is far better-positioned to wait patiently for the right pitch while paying no regard to what others are doing, which is almost impossible for professionals.
+ - Equities are boring; bonds are disgusting.
+ - At least us old men remember what a real bear market is like, and the young men haven’t got a clue.
+ - Volatility is a symptom that people have no idea of the underlying value.
+ - I think I’m right-brained, incapable of managing my way out of a brown paper bag.
+ - Think how weird profit margins are: We’ve got high unemployment and financial crises – and world record profit margins. People think the American market is very cheap. We don’t. The market quite incorrectly gives full credit to today’s earnings.
+ - I like to be right. I try not to miss the big ideas, forget the little ones, and try to get them right. End of job description.
+ - Remember that history always repeats itself. Every great bubble in history has broken. There are no exceptions.
+ - I would say that financial markets are very inefficient, and capable of extremes of being completely dysfunctional.
+ - Americans are just about the worst at dealing with long-term problems, down there with Uzbekistan, but they respond to a market signal better than almost anyone. They roll the dice bigger and quicker than most.
+ - If stocks are attractive and you don’t buy, you don’t just look like an idiot, you are an idiot.
+ - I find the parallels between how some investors refuse to recognise the trends and our reaction to some of our environmental challenges very powerful. There is an unwillingness to process unpleasant data.
+ - Capitalism believes that its remit is exclusively to make maximum short-term profits.
+ - Battering down solar cells on the roofs of Wal-Marts in California. I think that will be some of the highest-return investments that anyone ever makes.
+ - The pure administration of Graham-and-Doddery really needs a long-term lock-up like Warren Buffett has, or it will have occasional quite dreadful client problems.
+
+30 quotes

@@ -1,0 +1,21 @@
+ - La mera verdad es que la verdad no existe, todo depende del punto de vista.
+ - Keeping secrets will always lead to unhappiness and communication is the key to love.
+ - Necesito una respuesta en este momento, el amor no se piensa, se siente o no se siente.
+ - Tita knew through her own flesh how fire transforms the elements, how a lump of corn flour is changed into a tortilla, how a soul that hasn’t been warmed by the fire of love is lifeless, like a useless ball of corn flour.
+ - You don’t have to think about love; you either feel it or you don’t.
+ - Take care to chop the onion fine.
+ - Words travel as swiftly as desire, so it is possible to send a message of love without them.
+ - Then she cried without tears, which is said to hurt even more like dry labor.
+ - No one who loves life can ignore literature, and no one who loves literature can ignore life.
+ - To the table or to bed, you must come when you are bid.
+ - To know how to produce a work of art is to know how to discard the extraneous.
+ - There are some things in life that shouldn’t be given so much importance, if they don’t change what is essential.
+ - No matter how successful a relationship may be, both sexually and emotionally, the lack of money can hamper and undermine, little by little, even the greatest passion.
+ - When you’re told there’s no way you can marry the woman you love and your only hope of being near her is to marry her sister, wouldn’t you do the same?
+ - It was very pleasant to savor its aroma, for smells have the power to evoke the past, bringing back sounds and even other smells that have no match in the present. -Tita.
+ - Gertrudis got on her horse and rode away. She wasn’t riding alone – she carried her childhood beside her, in the cream fritters she had enclosed in a jar in her saddlebag.
+ - I like vibrant colors.
+ - The trouble with crying over an onion is that once the chopping gets you started and the tears begin to well up, the next thing you know you just can’t stop!
+ - As a teacher I realize that what one learns in school doesn’t serve for very much at all, that the only thing one can really learn is self understanding and this is something that can’t be taught.
+
+19 quotes

@@ -1,0 +1,59 @@
+ - A lot of people can’t be on their own. They get frightened. Isolation doesn’t bother me at all. It gives me a sense of security.
+ - I’m just looking for an angel with a broken wing.
+ - Let’s just say I’m like a ship passing through storms, resting in ports now and then until it’s time to continue the journey. I once told a friend, ‘I’m just looking for an angel with a broken wing – one that couldn’t fly away.’
+ - I may not believe in myself, but I believe in what I’m doing.
+ - I’m at my best when I’m exhausted and under pressure.
+ - Music is the one thing that has been consistently there for me. It hasn’t let me down.
+ - I believe every guitar player inherently has something unique about their playing. They just have to identify what makes them different and develop it.
+ - My favorite guitar solo of all time was Elliot Randall’s on ‘Reelin’ In The Years’.
+ - I have a voracious appetite for all things, worldly and unworldly.
+ - Every record is a portrait of the band at that time.
+ - No. I usually rest in my satin-lined coffin, actually. I’m not allowed out in daylight hours.
+ - I don’t deal in technique. I deal in emotions.
+ - I can communicate far better on a guitar than I can through my mouth.
+ - There is far more sensitivity in acoustic guitar players than could ever be compared to any synthesizer. That’s a personal point of view but that’s the way I see it. I think that’s what it’s all about. The drive, the fire, the passion – it all comes out on the guitar.
+ - I do not worship the devil. But magic does intrigue me. Magic of all kinds. I bought Crowley’s house to go up and write in. The thing is, I just never get up that way. Friends live there now.
+ - My guitar style was developed during that 10-year period. That’s me. That’s the way I play, and I don’t wish to play any other way. Our own individual identities are firmly stamped on this album.
+ - Crowley didn’t have a very high opinion of women, and I don’t think he was wrong.
+ - My finger picking is sort of a cross between Pete Seeger, Earl Scruggs, and total incompetence.
+ - I’m trying to photosynthesize like a plant. I’m off eating. Although I am making a lot of banana daiquiries in my room in the blender I’ve got, with lots of powdered vitamins in them. This tour I’m going to get some Afghani hangings and put them in my room, so that my hotel rooms look like mosques.
+ - If you are on to something creative, school can also inhibit you. The wrong teacher, man, can really mess you up.
+ - The greatest satisfaction is not the decoration. It is knowing that I am able to help someone who needs help.
+ - The idea of a hypnotic riff as the prime mover of a piece of music has been around for a long time, whether you’re talking about the Delta blues or music from Middle Eastern and African cultures.
+ - But if you want me to knock Kingdom Come, all I will say is that I heard the guitarist said he’d never heard my playing, and I’d defy any guitarist in American not to have heard Led Zeppelin.
+ - I bet you can’t play slide piano.
+ - There is no way I would play guitar like a tour de force like I did in Led Zeppelin. John Bonham, phenomenal drummer, young man with his technique, but do you think he would ever have the opportunity to play like that in another band? Of course he hadn’t.
+ - Right from the first time we went to America in 1968, Led Zeppelin was a word-of-mouth thing. You can’t really compare it to how it is today.
+ - I don’t like to tell people what format they can get things in, or say, “I’m only going to release this on vinyl and nothing else. You have to come to my world.” I don’t like to say that to people either. But, I do think there’s a loss of romance.
+ - Actually, I’m getting one made up with eight necks and I’m going to get a wheelwright to make a big rim around it and then I can do cartwheels off the stage.
+ - I always thought the good thing about the guitar was that they didn’t teach it in school.
+ - Almost the moment he died, they put him in Playboy as one of the greatest drummers, which he was – there’s no doubt about it. There’s never been anybody since. He’s one of the greatest drummers that ever lived.
+ - My vocation is more in composition really than anything else – building up harmonies using the guitar, orchestrating the guitar like an army, a guitar army.
+ - Many people in the neighborhood liked hip-hop and house music, and I couldn’t play that. You can’t perform that on guitar or drums, which was what I was playing, at the time. But, I got so much from mariachi bands that were constantly playing in the neighborhood.
+ - Once I get onstage the tension explodes and I’m fine. I’m in another world – in a trance almost, doing what I love best, expressing myself through guitar.
+ - There’s so much that can be done on the guitar. And that’s what is so good about the guitar – everyone can really enjoy themselves on it and have a good time, which is what it’s all about.
+ - I love playing. If it was down to just that, it would be utopia.
+ - I suggested back in 1980 to do a chronological live album, but there wasn’t that much enthusiasm for it.
+ - Every musician wants to do something which will hold up for a long time, and I guess we did it with ‘Stairway to Heaven.’
+ - I do really believe that all guitarists have a different character that comes through, that’s a strong character, the stronger the person is.
+ - Artists say that paintings are never done. I sort of feel the same way about music. I would never say something is perfect. There are performances that can generate a lot of emotion in me when I hear them, but I can’t say if anything is perfect.
+ - Just because you play bass, doesn’t mean you have no presence.
+ - You absorb so much from whatever your environment is, as an artist, and you learn to take from it what can help you create.
+ - I played guitar all my life, all the way through the Yardbirds, but I knew that for me this was going to be a guitar vehicle, because that’s what I wanted it to be.
+ - Let me explain something about guitar playing. Everyone’s got their own character, and that’s the thing that’s amazed me about guitar playing since the day I first picked it up. Everyone’s approach to what can come out of six strings is different from another person, but it’s all valid.
+ - I really don’t like showing people how I play things; it’s a little embarrassing because it always looks so simple to me.
+ - The gut-strung guitar, the classical guitar, that is a whole different world on its own. When you think what the guitar can do and what every individual player does with a guitar, everyone has their own identity coming through the guitar.
+ - From the classical guitar right through to the furthest electrical experiments and everything in-between, it’s amazing what the guitar can actually do. I mean, when one thinks about sounds.
+ - Live Aid did feel like one hour’s rehearsal after several years, but to be part of Live Aid was wonderful. It reall was.
+ - The beauty of the band was you never knew what was going to come out next.
+ - I think it was that we were really seasoned musicians. We had serious roots that spanned different cultures, obviously the blues.
+ - I can only listen to what I’m working on, at the time. I can’t listen to anything else because I don’t want to copy it.
+ - But to put out a greatest hits on one CD was totally impossible, I just couldn’t do it. The best compromise was to put out two CDs – Early Days – which is what it is – and Latter Days.
+ - Music can always be a life-changing experience, for musicians and fans, or at least life-affecting, but it depends on to what degree.
+ - There’s always music that moves me. It doesn’t necessarily mean that it’s within the parenthesis of rock or blues, or whatever. It’s usually far more reaching than that. It can be in many different genres.
+ - When I went over to the States to promote Outrider, everyone was telling me I was a blues guitarist. I’m not a bloody blues guitarist. I’m a guitarist.
+ - Once I got a guitar that was relatively user-friendly, but not super-duper easy, I really came on as a guitarist, at that point. It helped. It was a super-expensive guitar either, but something needs to steer you a bit, if you’re playing an instrument that is really hard.
+ - There’s music that can affect people in their lives, and they will always relate to the point that they heard it and experienced it, either if you’re playing it or you’re receptive, as an audience.
+ - I always felt if we were going in to do an album, there should already be a lot of structure already made up so we could get on with that and see what else happened.
+
+57 quotes

@@ -1,0 +1,21 @@
+ - The life of a Repo Man is always intense.
+ - I only eat so that I can smoke and stay alive.
+ - I play myself all the time, on camera and off. What else can I do?
+ - I sing and play guitar and harmonica. I’ve been doing it for a long time.
+ - You want people walking away from the conversation with some kernel of wisdom or some kind of impact.
+ - I just want to say, good night, sweet prince, may flights of angels sing thee to thy rest.
+ - I’m not really into religion.
+ - I really liked the Mariachi singing in Westerns.
+ - I took speech training. I took a few voice lessons in college.
+ - Heisenberg, Max Plank and Einstein, they all agreed that science could not solve the mystery of the universe.
+ - I like to stay home and watch television. The Game Show channel, mostly.
+ - I don’t believe in singing lessons. You can sing or you can’t.
+ - I have a good ear for languages.
+ - I’ve received a lot of compliments. People come right up to me on the street. They recognize me.
+ - I’ve never been ambitious about recording.
+ - Speech lessons probably did more for my singing voice – they teach you breathing, resonance.
+ - California is full of Mexican culture and Mexican music.
+ - I hate flying, taking my clothes off, and going through the whole security.
+ - The band I’ve played with for 10 or 12 years now, we’ve been all over, but we mostly play in LA.
+
+19 quotes

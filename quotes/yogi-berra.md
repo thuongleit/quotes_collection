@@ -1,0 +1,167 @@
+ - If you don't know where you are going, you'll end up someplace else.
+ - In theory, there is no difference between theory and practice. But in practice, there is.
+ - It ain't over till it's over.
+ - Without a plan, even the most brilliant business can get lost. You need to have goals, create milestones and have a strategy in place to set yourself up for success.
+ - Doing the little things can make a big difference.
+ - It’s like deja-vu, all over again.
+ - You can observe a lot just by watching.
+ - The future ain't what it used to be.
+ - If the world were perfect, it wouldn't be. 
+ - It’s tough to make predictions, especially about the future.
+ - 90% of the game is half mental.
+ - When you come to a fork in the road, take it.
+ - Keep trying. Stay humble, Trust your instincts. Most importantly, act. When you come to a fork in the road, take it.
+ - That’s too coincidental to be a coincidence.
+ - You’ve got to be very careful if you don’t know where you are going, because you might not get there.
+ - Cut my pie into four pieces, I don’t think I could eat eight.
+ - We made too many wrong mistakes.
+ - Make a game plan and stick to it. Unless it’s not working.
+ - If you don’t set goals, you can’t regret not reaching them.
+ - Nobody comes here anymore, it's too crowded.
+ - Little League baseball is a very good thing because it keeps the parents off the streets.
+ - I never said most of the things I said.
+ - Nothing is like it seems, but everything is exactly like it is.
+ - Always go to other people's funerals, otherwise they won't come to yours.
+ - You better cut the pizza in four pieces because I’m not hungry enough to eat six.
+ - You stand up for your teammates. Your loyalty is to them. You protect them through good and bad, because they’d do the same for you.
+ - Life is a learning experience, only if you learn.
+ - Somethings don’t always work out the way you plan. The main thing is to keep trying, do better next time, and deal with disappointment if it comes.
+ - If I had to do it all over again, I would do it all over again.
+ - Losing is a learning experience. It teaches you humility. It teaches you to work harder. It’s also a powerful motivator.
+ - Prediction is very hard, particularly when it’s about the future.
+ - Deja Vu All Over Again.
+ - Its getting late early.
+ - I’d give my right arm to be ambidextrous.
+ - Laughter is the shock absorber that eases the blows of life.
+ - We’re lost, but we’re making good time.
+ - You can’t think and hit the ball at the same time.
+ - Anyone who understands Jazz knows that you can’t understand it. It’s too complicated. That’s what’s so simple about it.
+ - If you ask me anything I don’t know, I’m not going to answer.
+ - Records and achievements are made to be broken.
+ - I wish I had an answer to that because I’m tired of answering that question.
+ - I knew I was going to take the wrong train, so I left early.
+ - Whatever you do, you should do it with feeling.
+ - Little things are big.
+ - I tell the kids, somebody’s gotta win, somebody’s gotta lose. Just don’t fight about it. Just try to get better.
+ - I can’t concentrate when I’m thinking.
+ - Listen up, because I’ve got nothing to say and I’m only gonna to say it once.
+ - The hardest thing is to get started, but the really hardest thing is to finish.
+ - Failure is just another opportunity to start over.
+ - He hits from both sides of the plate. He’s amphibious.
+ - You don’t have to swing hard to hit a home run. If you got the timing, it’ll go.
+ - It ain’t the heat, it’s the humility.
+ - If you’re feeling good, don’t worry. You’ll get over it.
+ - Anybody who can’t hear the difference between a ball hitting wood and a ball hitting concrete must be blind.
+ - There are some people who, if they don’t already know, you can’t tell ’em.
+ - Pitching always beats batting – and vice-versa.
+ - Swing at the strikes.
+ - He can run anytime he wants. I’m giving him the red light.
+ - It was impossible to get a conversation going, everybody was talking too much.
+ - It was pretty good. Even the music was nice.
+ - If I didn’t wake up I’d still be sleeping.
+ - Half the lies they tell about me aren’t true.
+ - Slump? I ain’t in no slump... I just ain’t hitting.
+ - Why don’t you pair’em up in threes?
+ - Every time I see him, he’s not there.
+ - We were over-whelming underdogs.
+ - A good time to hit is with men on base, because the pitcher ain’t got no place to put you. He’s going to get that ball around there somewhere. He don’t want to walk you.
+ - I really didn’t say everything I said.
+ - Why buy good luggage? You only use it when you travel.
+ - I couldn’t tell if the streaker was a man or a woman because it had a bag on it’s head.
+ - I love baseball, I really do. I always told my Dad, I’m not gonna make it working... I like to play ball too much. Which I did. I played hard. You gotta work at this game. You really do. And its fun doing it if you do it the right way.
+ - I’m lucky. Usually you’re dead to get your own museum, but I’m still alive to see mine.
+ - 50% of all married people are women.
+ - What a house – nothin’ but rooms!
+ - Well, I used to look like this when I was young and now I still do.
+ - Almost every Monday I have a charity thing. I like that. I do.
+ - If my father was alive to hear that, he’d turn over in his grave.
+ - If there’s one pitch you keep swinging at and keep missing, stop swinging at it.
+ - A home opener is always exciting, no matter if it’s home or on the road.
+ - When the waitress asked if I wanted my pizza cut into four or eight slices, I said, ‘Four. I don’t think I can eat eight.’
+ - It ain’t like football. You can’t make up no trick plays.
+ - Nobody can be all smiley all the time, but having a good positive attitude isn’t something to shrug off.
+ - I don’t mean to be funny.
+ - I’ve always felt real blessed, especially to live in this country. If you dream hard and work hard, anything can happen here-I’m perfect proof.
+ - Buy a stock, if it goes up, sell it, if it goes down, don’t buy it.
+ - I take a two hour nap between 1PM and 3PM.
+ - The other teams could make trouble for us if they win.
+ - The game is supposed to be fun. If you had a bad day, don’t worry. You can’t expect to get a hit every game.
+ - I think Little League is wonderful. It keeps the kids out of the house.
+ - How long have you known me, Jack? And you still don’t know how to spell my name.
+ - I guess I’ve got a smart wife.
+ - Yogi saw three of his players in the locker room wearing Cone Head hats. Yogi said, Those guys make a pair.
+ - If you get a guy that can play a couple positions, it helps you out a real lot.
+ - When giving directions to Joe Garagiola to his New Jersey home, which is accessible by two routes: “When you come to a fork in the road, take it.”
+ - I enjoy now doing what I do... playing golf, relaxing a little, enjoying life.
+ - The ballparks have gotten too crowded. That’s why nobody goes to see the game anymore.
+ - If people don’t want to come to the ballpark, how are you going to stop them? -Yogi Berra, The Yogi Book, to baseball commissioner Bud Selig about lagging baseball attendance Ninety percent of the game is half mental.
+ - If you can’t imitate him, don’t copy him.
+ - A lot of guys go, ‘Hey, Yog, say a Yogi-ism.’ I tell ‘em, ‘I don’t know any.’ They want me to make one up. I don’t make ’em up. I don’t even know when I say it. They’re the truth. And it is the truth. I don’t know.
+ - It is a disturbing conundrum that true free will cannot exist without the possibility of suicide. Then again, it ain’t over ’til it’s over!
+ - Never answer an anonymous letter.
+ - A nickel ain’t worth a dime anymore.
+ - On why he no longer went to Ruggeri’s, a St. Louis restaurant: “Nobody goes there anymore because it’s too crowded.”
+ - Texas has a lot of electrical votes.
+ - Losing’s a great motivator.
+ - In theory, practice should work like theory. In practice, it doesn’t.
+ - I’m not going to buy my kids an encyclopedia. Let them walk to school like I did.
+ - The game was two hours, with the commercials. I wish they did that now.
+ - What the hell is wrong with him now?
+ - It’s fun; baseball’s fun.
+ - Yeah? For what paper?
+ - I never blame myself when I’m not hitting. I just blame the bat and if it keeps up, I change bats. After all, if I know it isn’t my fault that I’m not hitting, how can I get mad at myself?
+ - Everything should be built top-down, except the first time.
+ - I’m glad I was in the Navy.
+ - Thanks, you don’t look so hot yourself.
+ - If you’re going to cheat, it’s better if you don’t get caught.
+ - I’m a lucky guy and I’m happy to be with the Yankees. And I want to thank everyone for making this night necessary.
+ - You can’t win all the time. There are guys out there who are better than you.
+ - I don’t blame the players today for the money. I blame the owners. They started it. They wanna give it to ’em? More power to ’em.
+ - What makes a good man?
+ - You wouldn’t have won if we’d beaten you.
+ - All pitchers are liars or crybabies.
+ - You have to give 100 percent in the first half of the game. If that isn’t enough, in the second half, you have to give what’s left.
+ - I was in the invasion of Normandy in southern France.
+ - The only color I don’t have is navy brown.
+ - The towels were so thick there I could hardly close my suitcase.
+ - In baseball, you don’t know nothing.
+ - Every entrepreneur deals with fears of failure. However, the truly successful know how to face these fears and keep on working.
+ - I’ve been with the Yankees 17 years, watching games and learning. You can see a lot by observing.
+ - If the fans don’t wanna come out to the ballpark, no one can stop ’em.
+ - He must have made that before he died.
+ - You gotta call a blacksmith.
+ - Anyone who is popular is bound to be disliked.
+ - I hate to see it go, I’ll tell you that. I played here all my life. Eighteen years I played here and I’m sorry to see it go.
+ - It was hard to have a conversation with anyone, there were so many people talking.
+ - Bill Dickey learned me all his experience.
+ - I’d find the fellow who lost it, and, if he was poor, I’d return it.
+ - I don’t know if it’s good for baseball, but it sure beats the hell out of rooming with Phil Rizzuto!
+ - So I’m ugly. So what? I never saw anyone hit with his face.
+ - I usually take a two-hour nap from one to four.
+ - Cut that pizza into six slices instead of eight, I ain’t that hungry.
+ - Ninety percent of all mental errors are in your head.
+ - Ninety percent of putts that are short, don’t go in.
+ - Responding to a question about remarks attributed to him that he did not think were his: “I really didn’t say everything I said.”
+ - Third ain’t so bad if nothin’ is hit to you.
+ - Baseball player: “What time is it?” “You mean now?”
+ - Baseball is ninety percent mental and the other half is physical.
+ - I just want to thank everyone who made this day necessary.
+ - It’s never happened in the World Series competition, and it still hasn’t.
+ - I didn’t know much about golf growing up.
+ - It’s pretty far, but it doesn’t seem like it.
+ - Referring to the bad sun conditions in left field at the stadium: It gets late out there early.
+ - How come it rains every Hall of Fame weekend? They need to move it to a different weekend.
+ - I’d say he’s done more than that.
+ - When asked what would he do if he found $1 million, Yogi responded, If the guy was poor, I’d give it back.
+ - You can have everything you want as long as you don’t want it badly enough.
+ - You can’t make anybody do anything, if they don’t want to.
+ - How can a you hit and think at the same time?
+ - I don’t like seeing myself on television. I don’t like it.
+ - What difference does the uniform make? You don’t hit with it.
+ - I don’t see how he lost five games during the season.
+ - Nobody did nothin’ to nobody.
+ - Man was not made to travel faster than a baseball.
+ - Congratulstions on breaking my record. I always thought the record would stand until it was broken.
+ - I don’t know. How hot is it supposed to be?
+
+165 quotes

@@ -1,0 +1,92 @@
+ - If you want it and believe you can have it, you will.
+ - Genius awaits him who listens. The messages of genius are for the Soul of man. The senses of man comprehend them not.
+ - You must love anything you must do. Do it not only cheerfully, but also lovingly and the very best way you know how. That love of the work which you must do anyhow will vitalize your body and keep you from fatigue.
+ - Meditation transports one from the transient world of matter to the real world of dreamings, visions, and imaginings where idea is and concepts are born.
+ - Every genius thinks INWARDLY toward his Mind instead of outwardly toward his senses.
+ - The universe gives to those who ask without favor. The electric plug which connects you is desire.
+ - To know the mechanics of the wave, is to know the entire secret of Nature.
+ - The cardinal error of science lies in shutting the Creator out of His Creation.
+ - The essence of strategy is to align your ends with your means: to match your goals and your resources.
+ - I have no limitations. Unlimited power is mine within that which is universal.
+ - In the wave lies the secret of creation.
+ - My joy will be in serving.
+ - I am a patient God. All men will come to Me in due time, but the agony of awaiting that day shall be theirs alone. And that day shall not come until man himself shall cleanse himself from his own unbalanced thinking.
+ - I will do today that which is of today and pay no heed to the tomorrow; nor waste regrets on that which was yesterday.
+ - Do not attempt to accomplish greater results by a greater effort of your little understanding, but by a greater understanding of your little effort. The greater your understanding of the power within yourself, the less effort you need to make in order to achieve.
+ - The true measure of greatness of a human being is their ability to express love in relationship.
+ - When our knowing exceeds our sensing, we will no longer be deceived by the illusions of our senses.
+ - I have absolute faith that anything can come to one who trusts to the unlimited help of the Universal Intelligence that is within, so long as one works within the law, always gives more to others than they expect, and does it cheerfully and courteously.
+ - Equal interchange of goods and service between buyer and seller is the keynote of tomorrow’s business world when the vision of the modern business man awakens him to the wisdom of writing that policy into his code of ethics.
+ - All motion is curved and all curvature is spiral.
+ - I believe that mediocrity is self-inflicted and that genius is self-bestowed.
+ - The electric energy which motivates us is not within our bodies at all. It is a part of the universal supply which flows through us from the Universal Source with an intensity set by our desires and our will.
+ - There is no necessity for a technique or formula for meditation. Inner feeling, or inner knowing, is the silent voice of inspiration.
+ - Tilth is something every farmer can recognize but no scientist can measure.
+ - When one trusts this inner universal power, it automatically draws forth the trust of the people one deals with.
+ - My today is what I will to make it. I will to make it perfect...
+ - Grief is selfish. It is indulged in for self-gratification, not for love. Cosmic man knows the beauty and unreality of death.
+ - Lock yourself up in your room or go out in the woods where you an be alone. When you are alone the universe talks to you in flashes of inspiration.
+ - Every action in Nature is voided as it occurs, is repeated as it is voided, and is recorded as it is repeated.
+ - The keystone of the entire structure of the spiritual and physical universe is Rhythmic Balanced Interchange between all opposites.
+ - ALL KNOWLEDGE is possible for anyone – and the Cosmos gives it to him who asks, but all information is impossible.
+ - Knowledge is cosmic. It does not evolve or unfold in man. Man unfolds to an awareness of it. He gradually discovers it.
+ - The Life Triumphant is that which places what a man gives to the world in creative expression far ahead of that which he takes from it of the creations of others.
+ - The healing principle is within man himself. Man’s power to heal himself, or extend his healing power to others, is measured by his awareness of God in him.
+ - The great lesson to learn of life is the need of giving out from the abundance of one’s self in order to be ever abundant within one’s self.
+ - To get back to the real substance of all things, you must get back into the thought world. Until one knows that the thought-energy is the cause of which is back of all things, and the product only the effect, then he is tied to the effect and is limited by it.
+ - I will keep my body charged with energy for fulfillment of my purpose, in accord with that which is commanded of me...
+ - I believe that such constant realization ennobles one automatically. One’s stature is greater, one’s step more elastic, one’s aura more powerful; and it makes other people see that Light in one’s eyes which attracts people to him who has it.
+ - The Russell Cosmogony with its new concepts of light, matter, energy, electricity and magnetism is a simple yet complete, consistent and workable cosmogony which will enable future scientists to visualize the universe as a unified whole, and will open the door to the New Age of Transmutation.
+ - Knowledge in not acquired from without but merely recollected from within. The recollection of knowledge from within is an electro-magnetic process of thinking Mind...
+ - A menial task which must be mine, that shall I glorify and make an art of it.
+ - I will see beauty and goodness in all things. From all that is unlovely shall my vision be immune.
+ - Inspiration comes only to those who seek it with humility toward their own achievements and reverence toward the achievements of God.
+ - Cooling bodies gravitate and heat as they gravitate-heating bodies radiate, and cool as they radiate.
+ - How can one call that a defeat? There is no such thing.
+ - And that is what radio-activity is, a quick return to the state of rest which underlies the spiritual or invisible universe.
+ - I never let the thought of failure enter my mind. My knowledge of my unity with the Universal One and the fact that I must do this thing, and the inspired belief I should do it as a demonstration of my belief in man’s unlimited power, made me ignore the difficulties that lay in the way.
+ - The cube and the sphere are the sole working tools of creation.
+ - Jesus was the consummate scientist. He knew the omnipresence of Light which we have expressed in radio, radar and television, but all He could say in His day was: “I have yet many things to say unto you, but ye cannot bear them now.”
+ - Unity of man has always been impossible in a world of fear and discontent where every man fears every other man as an enemy.
+ - In the business world, unwise men take more that they give. They do not realize that they are breaking the Universal Law which will eventually break them to an equal extent. It may not be balanced in the form of dollars and cents but in the loss of good-will upon which their future business depends.
+ - My day shall be filled to overflowing, yet shall I not haste the day; nor shall I waste the day.
+ - The personal ego must be suppressed and replaced with the ‘universal ego.’
+ - He who cultivates that quiet, unobtrusive ecstasy of inner joyousness can scale any heights and be a leader in his field, no matter what that field is.
+ - You may command nature to the extent only in which you are willing to obey her.
+ - Action and reaction are equal and opposite, and are expressed simultaneously. Sequentially they are repeated in reverse, the reaction becoming the action and the action the reaction.
+ - The taint of arrogance will I not know...
+ - In motion alone is the answer to all of the mysteries of matter.
+ - Down deep in his heart he knew that we all have the same promise of the unlimited help of the Universal Intelligence that guides all things. If we want it, we only have to plug into it with the master keys of desire and trust.
+ - I believe sincerely that every man has consummate genius within him.
+ - Women, are a map, Avik. You’ve got to understand their longitude, and how much latitude you can take.
+ - The greatest asset of man is man. The wealth of any man is dependent upon the wealth of every other man. Abundance for one is impossible in an impoverished world.
+ - Happy salesmen not only multiply their volume of business and their income, they also multiply themselves.
+ - There is no use for energy of any kind whatsoever unless there is a plan back of it.
+ - By ecstasy I mean inner joyousness, and by inner joyousness I mean those inspirational fires which burn within the consciousness of great geniuses, fires which give to them an inconquerable vitality of spirit which breaks down all barriers as wheat bends before the wind.
+ - Until one learns to lose one’s self he cannot find himself.
+ - So that I may meet the day with the knowledge to build the day I will look into my soul while it still dawn, before the morning breaketh...
+ - When the human race learns how to give and regive equally each will be enriched. He who withholds that which he should give to another impoverishes both himself and the other.
+ - I do not recognize these as defeats. They are but interesting experiences of life. They are valuable stepping stones to success.
+ - Security and contentment can come only through interdependence of every man upon every other man.
+ - I learned to cross the threshold of my studio with reverence, as though I were entering a shrine set apart for me to become co-creator with the Universal Thinker of all things.
+ - He who seeks possessions for himself will never find them-until he begins to give of the abundance of possessions which he already has.
+ - You can become a great creator or a little one as the intensity of your desire is little or great.
+ - He claims he has never known fatigue while obeying the law, but when he does break it he feels a sense of guilt in discovering the slightest evidence of fatigue which tells him that he has broken it.
+ - The very foundation of the living of life lies in the desire of every man to give service to fulfill the needs of his neighbor.
+ - Courtesy will be in my heart to give to all.
+ - They know how to work without waste of energy. In order to get the best that is within themselves, they learn to eliminate from their thoughts and actions everything which subtracts from their purposes.
+ - The thinking of creative and successful men is never exerted in any direction other than that intended. That is why great men produce such a prodigious amount of work, seemingly without effort and without fatigue. The amount of work such men leave to posterity is amazing.
+ - Force I will meet with gentleness; impatience with patience.
+ - The sum total of each man’s giving determines the standard of man’s civilization.
+ - When I arrived at the point where I received public acclaim, I felt the most lowly, because I knew within myself that I had but begun to tap my inner resources.
+ - Science has great skills, great reasoning and great intelligence in combining effects. It knows HOW to do many things but it admittedly does not know the WHY of anything.
+ - All of man’s wars are based upon TAKING. There could be no war based upon GIVING.
+ - A UNITED civilization is possible only when human relations are balanced in all transactions which have to do with the distribution of the values of life which all men persistently and constantly seek.
+ - Those things that I must do I shall desire to do.
+ - It was then given me to know that the power of revitalization of my body was mine, and I, who had been pronounced dead by man, lived strongly in the body.
+ - There should be no distasteful tasks in one’s life. If you just hate to do a thing, that hatred for it develops body-destructive toxins, and you become fatigued very soon.
+ - If we think we are tired or ill, it is only because we have done something to unbalance the bodily conductivity of the universal electric current which motivates it.
+ - Every man should be master of anything he does and should do it in a masterly manner, with love, no matter what it is, whether hard physical work, menial or boring work, or inspirational work.
+ - Every thought and action of anyone affects everyone.
+
+90 quotes

@@ -1,0 +1,55 @@
+ - We don’t make mistakes, just happy little accidents.
+ - Whatever makes you happy, you put in your world.
+ - It’s so important to do something every day that will make you happy.
+ - Ever make mistakes in life? Let’s make them birds. Yeah, they’re birds now.
+ - Talent is a pursued interest. Anything that you’re willing to practice, you can do.
+ - We have no limits to our world. We’re only limited by our imagination.
+ - Put light against light – you have nothing. Put dark against dark – you have nothing. It’s the contrast of light and dark that each give the other one meaning.
+ - There’s nothing wrong with having a tree as a friend.
+ - Let’s build us a happy, little cloud that floats around the sky.
+ - It’s the imperfections that make something beautiful, that’s what makes it different and unique from everything else.
+ - You can do ANYTHING you want to do-This is your World.
+ - No pressure. Just relax and watch it happen.
+ - You do your best work if you do a job that makes you happy.
+ - I guess I’m a little weird. I like to talk to trees and animals. That’s okay though; I have more fun than most people.
+ - Happy painting and God Bless, my friend.
+ - I believe, I believe every day is a good day when you paint.
+ - Everyone is going to see things differently – and that’s the way it should be.
+ - Just let go – and fall like a little waterfall.
+ - The secret to doing anything is believing that you can do it. Anything that you believe you can do strong enough, you can do. Anything. As long as you believe.
+ - People might look at you a bit funny, but it’s okay. Artists are allowed to be a bit different.
+ - Trees don’t grow even, they don’t grow straight just however it makes them happy.
+ - It’s hard to see things when you’re too close. Take a step back and look.
+ - I don’t know if anything in nature ever grows exactly the same, but they are always exactly as the way it should be, perfectly itself.
+ - Remember, you can do anything in your world that you want to.
+ - Never think about the mistakes you made. Think about the mistakes you will make.
+ - The secret to doing anything is believing you can do it.
+ - There’s nothing in the world that breeds success like success.
+ - Talk to the tree, make friends with it.
+ - Possessing talent is nothing more than the continuous pursuit of a life-long interest.
+ - In painting, you have unlimited power. You have the ability to move mountains. You can bend rivers. But when i get home the only thing i have power over is the garbage.
+ - Think about a cloud. Just float around and be there.
+ - Oooh, if you have never been to Alaska, go there while it is still wild. My favorite uncle asked me if I wanted to go there, Uncle Sam. He said if you don’t go, you’re going to jail. That is how Uncle Sam asks you.
+ - Trees cover up a multitude of sins.
+ - I can’t think of anything more rewarding than being able to express yourself to others through painting. Exercising the imagination, experimenting with talents, being creative; these things, to me, are truly the windows to your soul.
+ - The least little bit can do so much.
+ - I stay hidden. I’m sort of hard to find.
+ - We don’t laugh because we feel good; we feel good because we laugh.
+ - If you do too much it’s going to lose its effectiveness.
+ - We artists are a different breed of people. We’re a happy bunch.
+ - All you need to paint is a few tools, a little instruction, and a vision in your mind.
+ - I started painting as a hobby when I was little. I didn’t know I had any talent. I believe talent is just a pursued interest. Anybody can do what I do.
+ - People look at me like I’m a little strange, when I go around talking to squirrels and rabbits and stuff. That’s ok. That’s just ok.
+ - I really believe that if you practice enough you could paint the ‘Mona Lisa’ with a two-inch brush.
+ - Everybody has dreams. You are living the American dream, what’s wrong with pushing to secure it for everyone?
+ - If I paint something, I don’t want to have to explain what it is.
+ - Use absolutely no pressure. Just like an angel’s wing.
+ - Little more black, little more blue. And we’ll just put that in using little crisscross strokes or – or little X’s, whatever you want to call them. Whatever.
+ - I never turn down requests for interviews. I’m just rarely asked.
+ - Most painters want recognition, especially by their peers.
+ - There are thousands of very, very talented artists who will never be known, even after they are dead.
+ - I have to paint fast on television because of the limited time, but I don’t want people to see what I’m showing them as work, something to worry and fret over. This is supposed to be fun.
+ - Within one hour of touching the brush to canvas for the first time, my students have a total, complete painting.
+ - Traditionally, art has been for the select few.
+
+53 quotes

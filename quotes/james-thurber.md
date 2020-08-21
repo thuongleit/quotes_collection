@@ -1,0 +1,134 @@
+ - Walter Mitty: To see the world, things dangerous to come to, to see behind walls, draw closer, to find each other, and to feel. That is the purpose of life.
+ - Beautiful things don’t ask for attention.
+ - It is better to know some of the questions than all of the answers.
+ - Don’t get it right, just get it written.
+ - Let us not look back in anger, nor forward in fear, but around in awareness.
+ - All men should strive to learn before they die, what they are running from, and to, and why.
+ - There is no exception to the rule that every rule has an exception.
+ - There are two kinds of light – the glow that illuminates, and the glare that obscures.
+ - Two is company, four is a party, three is a crowd. One is a wanderer.
+ - It takes that je ne sais quoi which we call sophistication for a woman to be magnificent in a drawing-room when her faculties have departed but she herself has not yet gone home.
+ - Human Dignity has gleamed only now and then and here and there, in lonely splendor, throughout the ages, a hope of the better men, never an achievement of the majority.
+ - Humor and pathos, tears and laughter are, in the highest expression of human character and achievement, inseparable.
+ - Americans want to go to heaven without dying.
+ - The act of writing is either something the writer dreads or actually likes, and I actually like it. Even re-writing’s fun. You’re getting somewhere, whether it seems to move or not.
+ - Love is what you’ve been through with somebody.
+ - If you wonder which is the stronger sex, watch which one twists the other around her little finger.
+ - Humor is emotional chaos remembered in tranquility.
+ - Man has gone long enough, or even too long, without being man enough to face the simple truth that the trouble with man is man.
+ - A false or misunderstood word may create as much disaster as a sudden thoughtless act.
+ - Why do you have to be a nonconformist like everybody else?
+ - A husband should not insult his wife publicly, at parties. He should insult her in the privacy of the home.
+ - Women are wiser than men because they know less and understand more.
+ - You might as well fall flat on your face as lean over too far backward.
+ - Don’t count your boobies until they are hatched.
+ - The dog has got more fun out of Man than Man has got out of the dog, for the clearly demonstrable reason that Man is the more laughable of the two animals.
+ - The Old Man ain’t afraid of hell.
+ - The pounding of the cylinders increased: ta-pocketa-pocketa-pocketa-pocketa-pocketa.
+ - Well, if I called the wrong number, why did you answer the phone?
+ - History is replete with proofs, from Cato the Elder to Kennedy the Younger, that if you scratch a statesman you find an actor, but it is becoming harder and harder, in our time, to tell government from show business.
+ - I myself have known some profoundly thoughtful dogs.
+ - Somebody has said that woman’s place is in the wrong. That’s fine. What the wrong needs is a woman’s presence and a woman’s touch. She is far better equipped than men to set it right.
+ - A drawing is always dragged down to the level of its caption.
+ - The trouble with the lost generation is that it didn’t get lost enough.
+ - Mutual suspicions of mental inadequacy are common during the first year of any marriage.
+ - Dogs are obsessed with being happy.
+ - Speed is scarcely the noblest virtue of graphic composition, but it has its curious rewards. There is a sense of getting somewhere fast, which satisfies a native American urge.
+ - I do not have a psychiatrist and I do not want one, for the simple reason that if he listened to me long enough, he might become disturbed.
+ - I always begin at the left with the opening word of the sentence and read toward the right and I recommend this method.
+ - Nowadays men lead lives of noisy desperation.
+ - I was seized by the stern hand of Compulsion, that dark, unreasonable Urge that impels women to clean house in the middle of the night.
+ - The difference between our decadence and the Russians is that while theirs is brutal, ours is apathetic.
+ - I am not a cat man, but a dog man, and all felines can tell this at a glance – a sharp, vindictive glance.
+ - Boys are beyond the range of anybody’s sure understanding, at least when they are between the ages of 18 months and 90 years.
+ - For one thing, she pronounced flowers ‘flars’ and I couldn’t let it slide.
+ - One martini is all right. Two are too many, and three are not enough.
+ - She wasn’t much to look at but she was something to think about.
+ - I have lived in the East for nearly thirty years now, but many of my books prove that I am never very far away from Ohio in my thoughts, and that the clocks that strike in my dreams are often the clocks of Columbus.
+ - Time is for dragonflies and angels. The former live too little and the latter live too long.
+ - The most dangerous food is wedding cake.
+ - Columbus is a town in which almost anything is likely to happen, and in which almost everything has.
+ - Quick, name some towns in New Jersey.
+ - A woman’s place is in the wrong.
+ - A pinch of probability is worth a pound of perhaps.
+ - I could have killed Gregory Fitzhurst at three hundred feet with my left hand.
+ - Looks can be deceiving; it’s eating that’s believing.
+ - Women deserve to have more than 12 years between 28 and 40.
+ - The past is an old armchair in the attic, the present an ominous ticking sound, and the future is anybody’s guess.
+ - A word to the wise is not sufficient if it doesn’t make sense.
+ - There is no safety in numbers, or in anything else.
+ - It’s a naive domestic Burgundy without any breeding, but I think you’ll be amused by its presumption.
+ - Where most of us end up there is no knowing, but the hellbent get where they are going.
+ - Sanity, soundness, and sincerity, of which gleams and strains can still be found in the human brain under powerful microscopes, flourish only in a culture of clarification, which is now becoming harder and harder to detect with the naked eye.
+ - Until a man can quit talking loudly to himself in order to shout down the memories of blunderings and gropings, he is in no shape for the painstaking examination of distress.
+ - I don’t remember any blue poodles.
+ - If you are a police dog, where’s your badge?
+ - Last night I dreamed of a small consolation enjoyed only by the blind: Nobody knows the trouble I’ve not seen!
+ - A burden in the bush is worth two on your hands.
+ - If I have any beliefs about immortality, it is that certain dogs I have known will go to heaven, and very, very few persons.
+ - Progress was all right. Only it went on too long.
+ - We all have faults, and mine is being wicked.
+ - I hate women because they have brought into the currency of our language such expressions as “all righty” and “yes indeedy” and hundreds of others.
+ - Man is troubled by what might be called the Dog Wish, a strange and involved compulsion to be as happy and carefree as a dog.
+ - Hundreds of hysterical persons must confuse these phenomena with messages from the beyond and take their glory to the bishop rather than the eye doctor.
+ - These are the days of bootleg love.
+ - My drawings have been described as pre-internationalist, meaning that they were finished before the ideas for them had occurred to me. I shall not argue the point.
+ - I can feel a thing I cannot touch and touch a thing I cannot feel. The first is sad and sorry, the second is your heart.
+ - The laughter of man is more terrible than his tears, and takes more forms -hollow, heartless, mirthless, maniacal.
+ - With sixty staring me in the face, I have developed inflammation of the sentence structure and definite hardening of the paragraphs.
+ - Sixty minutes of thinking of any kind is bound to lead to confusion and unhappiness.
+ - Most of the faint intimations of immortality of which we are occasionally aware would seem to arise out of Art or the materials of Art.
+ - He knows all about art, but he doesn’t know what he likes.
+ - I drew pictures rapidly and with few lines, because I had to write most of the pieces, too, and couldn’t monkey long with the drawings. The divine urge was no higher than that.
+ - Comedy has to be done en clair. You can’t blunt the edge of wit or the point of satire with obscurity. Try to imagine a famous witty saying that is not immediately clear.
+ - A wet dog is lovingest.
+ - The paths of glory at least lead to the Grave, but the paths of duty may not get you Anywhere.
+ - Let the meek inherit the earth – they have it coming to them.
+ - I write humor the way a surgeon operates, because it is a livelihood, because I have a great urge to do it, because many interesting challenges are set up, and because I have the hope it may do some good.
+ - At forty my faculties may have closed up like flowers at evening, leaving me unable to write my memoirs with a fitting and discreet inaccuracy, or, having written them, unable to carry them to the publisher.
+ - In the pathways between office and home and home and the houses of settled people there are always, ready to snap at you, the little perils of routine living, but there is no escape in the unplanned tangent, the sudden turn.
+ - I love the idea of there being two sexes, don’t you?
+ - The wit makes fun of other persons; the satirist makes fun of the world; the humorist makes fun of himself.
+ - I’m sixty-five and I guess that puts me in with the geriatrics, but if there were fifteen months in every year, I’d only be forty-eight.
+ - There is something about a poet which leads us to believe that he died, in many cases, as long as 20 years before his birth.
+ - Writers of comedy have outlook, whereas writers of tragedy have, according to them, insight.
+ - Laughter need not be cut out of anything, since it improves everything.
+ - American girls often marry someone they can’t stand to spite someone they can.
+ - If I have sometimes seemed to make fun of Woman, I assure you it has only been for the purpose of egging her on.
+ - The sanity of the average banquet speaker lasts about two and a half months; at the end of that time he begins to mutter to himself, and calls out in his sleep.
+ - Though statisticians in our time have never kept the score, Man wants a great deal here below and Woman even more.
+ - Comedy has ceased to be a challenge to the mental processes. It has become a therapy of relaxation, a kind of tranquilizing drug.
+ - Muggs was always sorry, Mother said, when he bit someone, but we could never understand how she figured this out. He didn’t act sorry.
+ - The appreciative smile, the chuckle, the soundless mirth, so important to the success of comedy, cannot be understood unless one sits among the audience and feels the warmth created by the quality of laughter that the audience takes home with it.
+ - It had only one fault. It was kind of lousy.
+ - Humor is a serious thing. I like to think of it as one of our greatest earliest natural resources, which must be preserved at all cost.
+ - I never quite know when I’m not writing. Sometimes my wife comes up to me at a party and says, “Dammit, Thurber, stop writing.” She usually catches me in the middle of a paragraph.
+ - When man gives up on reforming and inspiring society he also gives up his freedom.
+ - Man is flying too fast for a world that is round. Soon he will catch up with himself in a great rear end collision.
+ - He who hesitates is sometimes saved.
+ - I think that maybe if women and children were in charge we would get somewhere.
+ - But what is all this fear of and opposition to Oblivion? What is the matter with the soft Darkness, the Dreamless Sleep?
+ - This is the posture of fortunes slave: one foot in the gravy, one foot in the grave.
+ - The dog has seldom been successful in pulling man up to its level of sagacity, but man has frequently dragged the dog down to his.
+ - Remember laughter. You’ll need it even in the blessed isles of Ever After.
+ - The things we laugh at are awful while they are going on, but get funny when we look back. And other people laugh because they’ve been through it too. The closest thing to humor is tragedy.
+ - Ours is a precarious language, as every writer knows, in which the merest shadow line often separates affirmation from negation, sense from nonsense, and one sex from the other.
+ - All men kill the thing they hate, too, unless, of course, it kills them first.
+ - I have the reputation for having read all of Henry James. Which would argue a misspent youth and middle age.
+ - The only rules comedy can tolerate are those of taste, and the only limitations those of libel.
+ - Love is blind, but desire just doesn’t give a good goddamn.
+ - It was Lisa, aged five, whose mother asked her to thank my wife for the peas we had sent them from our garden. ‘I thought the peas were awful, I wish you and Mrs. Thurber were dead, and I hate trees,’ said Lisa.
+ - Some American writers who have known each other for years have never met in the daytime or when both were sober.
+ - Men are more interesting than women, but women ae more fascinating.
+ - Discussion in America means dissent.
+ - If a playwright tried to see eye to eye with everybody, he would get the worst case of strabismus since Hannibal lost an eye trying to count his nineteen elephants during a snowstorm while crossing the Alps.
+ - When all things are equal, translucence in writing is more effective than transparency, just as glow is more revealing than glare.
+ - Surely no other American institution is so bound around and tightened up by rules, strictures, adages, and superstitions as the Broadway theatre.
+ - Youcanfooltoomanyofthepeopletoomuchofthetime. See Lincoln 510:35.
+ - No male can beat a female in the long run because they have it over us in sheer, damn longevity.
+ - Art – the one achievement of man which has made the long trip up from all fours seem well advised.
+ - Unless artists can remember what it was to be a little boy, they are only half complete as artist and as man.
+ - So much has already been written about everything that you can’t find out anything about it.
+ - My opposition to Interviews lies in the fact that offhand answers have little value or grace of expression, and that such oral give and take helps to perpetuate the decline of the English language.
+
+132 quotes

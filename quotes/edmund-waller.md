@@ -1,0 +1,46 @@
+ - Go, lovely rose, Tell her that wastes her time and me, That now she knows, When I resemble her to thee, How sweet and fair she seems to be.
+ - Tea does our fancy aid, Repress those vapours which the head invade And keeps that palace of the soul serene.
+ - Stronger by weakness, wiser men become.
+ - Small is the worth Of beauty from the light retired: Bid her come forth, Suffer herself to be desired, And not blush so to be admired.
+ - Vexed sailors cursed the rain, for which poor shepherds prayed in vain.
+ - The soul’s dark cottage, batter’d and decay’d, Lets in new light through chinks that Time has made. Stronger by weakness, wiser men become As they draw near to their eternal home: Leaving the old, both worlds at once they view That stand upon the threshold of the new.
+ - The seas are quiet when the winds give o’er; So calm are we when passions are no more!
+ - What use of oaths, of promise, or of test, where men regard no God but interest?
+ - All human things Of dearest value hang on slender strings.
+ - Fade, flowers, fade! Nature will have it so; ’tis but what we in our autumn do.
+ - Poets that lasting marble seek Must come in Latin or in Greek.
+ - Happy the innocent whose equal thoughts are free from anguish as they are from faults.
+ - The fear of Hell, or aiming to be blest, Savors too much of private interest. This moved not Moses, nor the zealous Paul, Who for their friends abandoned soul and all.
+ - And as pale sickness does invade, Your frailer part, the breaches made, In that fair lodging still more clear, Make the bright guest, your soul, appear.
+ - Thrice happy is that humble pair, Beneath the level of all care! Over whose heads those arrows fly, Of sad distrust and jealousy.
+ - Illustrious acts high raptures do infuse, And every conqueror creates a muse.
+ - For all we know Of what the blessed do above Is, that they sing, and that they love. While I listen to thy Voice.
+ - If its length be not considered a merit, it hath no other.
+ - The rising sun complies with our weak sight, First gilds the clouds, then shows his globe of light At such a distance from our eyes, as though He knew what harm his hasty beams would do.
+ - Music so softens and disarms the mind That not an arrow does resistance find.
+ - That eagle’s fate and mine are one, Which, on the shaft that made him die, Espied a feather of his own, Wherewith he wont to soar so high.
+ - The lark that shuns on lofty boughs to build, Her humble nest, lies silent in the field.
+ - And keeps the palace of the soul.
+ - A narrow compass! and yet there Dwelt all that ’s good, and all that ’s fair; Give me but what this riband bound, Take all the rest the sun goes round.
+ - Circle are praised, not that abound, In largeness, but the exactly round.
+ - With wisdom fraught; not such as books, but such as practice taught.
+ - Others may use the ocean as their road; Only the English make it their abode.
+ - The chain that’s fixed to the throne of Jove, On which the fabric of our world depends, One link dissolved, the whole creation ends.
+ - Gods, that never change their state, vary oft their love and hate.
+ - Virtue’s a stronger guard than brass.
+ - Under the tropic is our language spoke, And part of Flanders hath receiv’d our yoke.
+ - Since thou wouldst needs, bewitched with some ill charms, Be buried in those monumental arms: As we can wish, is, may that earth lie light Upon thy tender limbs, and so good night.
+ - Soft words, with nothing in them, make a song.
+ - Give us enough but with a sparing hand.
+ - When religion doth with virtue join, it makes a hero like an angel shine.
+ - Poets lose half the praise they should have got, Could it be known what they discreetly blot.
+ - His love at once and dread instruct our thought; As man He suffer’d and as God He taught.
+ - Lampoons, like squibs, may make a present blaze; but time and thunder pay respect to bays.
+ - How small a part of time they share, That are so wondrous sweet and fair!
+ - Happy is she that from the world retires, and carries with her what the world admires.
+ - All things but one you can restore; the heart you get returns no more.
+ - So must the writer, whose productions should Take with the vulgar, be of vulgar mould.
+ - But virtue too, as well as vice, is clad in flesh and blood.
+ - Ingenious to their ruin, every age improves the art and instruments of rage.
+
+44 quotes

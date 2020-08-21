@@ -1,0 +1,84 @@
+ - My work is about giving voice to the unheard, and reiterating the voice of the heard in such a way that you question, or re-examine, what is the truth.
+ - I happen to be a hopeaholic. I tend to look at problems as an opportunity to do some work.
+ - Do you want to be an artist so that the whole world will look at you, or do you want to be an artist because you would like to use your ability to attract attention, to have the world see itself through you differently?
+ - Each person has a literature inside them.
+ - What you are will show, ultimately. Start now, every day, becoming, in your actions, your regular actions, what you would like to become in the bigger scheme of things.
+ - Learning is a tunnel experience that makes us think more broadly.
+ - Discipline – both mental and physical – is crucial.
+ - Your desire to communicate must be bigger than your relationship with the chaotic and unfair realities.
+ - Art should take what is complex and render it simply. It takes a lot of skill, human understanding, stamina, courage, energy, and heart to do that.
+ - We spend so much time bantering about the words when the real open conversations might very well be our actions. I worry about our rhetoric.
+ - Friendship is a wildly underrated medication.
+ - Listening is not just hearing what someone tells you word for word. You have to listen with a heart. I don’t want that to sound touchy-feely; it is not. It is very hard work.
+ - Then everyone leaves, and you are left, each night, to your own devices with a crowd of interesting people – most of whom you don’t know – sitting in the dark.
+ - I think what I am is a “convener”; I like to convene people around ideas.
+ - Self-esteem does not come from surrounding yourself with people and things that seem to increase your value. Real self-esteem is an integration of an inner-value with things in the world around you.
+ - If you say a word often enough it becomes you.
+ - Identity is an assemblage of constellations.
+ - My main concern is theater, and theater does not reflect or mirror society. It has been stingy and selfish, and it has to do better.
+ - You can’t teach talent. You can’t teach inspiration. You can teach people critical facilities. You can give them techniques. You can teach discipline. And you can teach them about the business.
+ - I’m interested when things are upside down – because there are so many possibilities in that one moment. There is a lot that is exposed.
+ - I went as far away from home as possible in terms of the development of my imagination.
+ - Even jealousy is based on fantasies: a fantasy that someone else has what belongs to you.
+ - Confidence is the mark of a hopeful disposition.
+ - Be more than ready. Be present in your discipline. Remember your gift. Be grateful for your gift and treat it like a gift. Cherish it, take care of it, and pass it on.
+ - You know if we were to look back and how we were in 1955 living in Jim Crow, living in segregation, living in segregated schools, its hard to believe that it was America, but it really was.
+ - Art simply can’t be stopped.
+ - Artists are the people that no matter what, pick up the pen, pick up a paintbrush. They take the time to translate what is happening to create something that resonates deeply with the rest of the people that are caught in the middle of their own reality.
+ - You hang around actors, or dancers, the minute you sneeze, everybody has a remedy, and we’re all on a million different kinds of diets, and different kinds of things that we do for exercise.
+ - If you think about what acting is supposed to be, my job is to disappear.
+ - I call the language of political figures, pundits and administrators ‘the haute couture of language.’
+ - Hope is when you look out the window and you go, ‘It doesn’t look good at all, but I’m going to go beyond what I see to give people visions of what could be.’
+ - Those in the margins are always trying to get to the center, and those at the center, frequently in the name of tradition, are trying to keep the margins at a distance.
+ - People who are sick, or who have been sick, or have come close to death have a lot to say – and they want you to hear it.
+ - President Obama called for a ‘we’ nation in his Inauguration Address. Art convenes. It is not just inspirational. It is aspirational. It pricks the walls of our compartmentalized minds, opens our hearts and makes us brave. And that’s what we need most in our country today.
+ - You are an explorer. You understand that every time you go into the studio, you are after something that does not yet exist.
+ - I was a mimic when I was a child. I mimicked the teacher and made friends that way, actually. That was a very subversive activity, because I was a goody-goody who never got in trouble. But if I went off in the corner and mimicked the teacher, people loved it.
+ - I am not myself; I am the potential of myself.
+ - I am lucky: I have fantastic doctors and a fantastic dentist.
+ - People in power have to be careful about what comes out of their mouth. They have to find exactly the right word that can’t be attacked.
+ - Perhaps art is a quest for the perfect, or even the imperfect. Reality always falls short on both sides.
+ - A lot of acting techniques are very self-oriented.
+ - I see myself first and foremost as a student of expression.
+ - You know, interesting minds usually do hold more than one idea at a time.
+ - Each person has a literature inside them. But when people lose language, when they have to experiment with putting their thoughts together on the spot-that’s what I love most. That’s where character lives.
+ - I feel like my work has been my path to freedom from having grown up in a segregated environment.
+ - I love studying how people are. Not just what they’re saying, but how they are, what they’re doing.
+ - I see myself as not a typical theater person, but a person who uses the theater as a place to meet people and explore ideas.
+ - Suddenly in high school, I’m in a predominantly Jewish atmosphere. Jewish people were my gate to white America.
+ - Some people study a text very deeply. The people are my text. I study their words and what their words sound like, over and over again.
+ - I have never been in a violent movie or television show.
+ - I think as a kid I always liked to listen to people. I loved hearing stories.
+ - I think some of our most talented people are not going to pick the arts as a way that they’re going to spend their lives.
+ - In my profession, I’m around a lot of people whose bodies are their instruments in one way or another.
+ - Commit to finding the true nature of art. Go for that thing no one can teach you.
+ - When I was a kid, my grandfather said that “if you say a word often enough, it becomes you.” Thinking of that later in life gave me this idea that I could try to become America by learning the words of people from many aspects of the country.
+ - Movies, as evidenced by a chorus of protesting and celebrating Americans, influence broader trends.
+ - Probably the person who said the only color in Los Angeles is green was right.
+ - I would love to have been a documentary filmmaker; I just didn’t have the resources to do that.
+ - What my work is, is my approach to it. It’s the practice. And my work is about the effort that I make to get there. And I think if there’s anything artistic, it’s in that middle space.
+ - I never know when somebody’s going to knock on the door of my own unconscious in a way that I wouldn’t have anticipated.
+ - My job in my work is not to acquire power; it’s to question power.
+ - I think it’s really important to give yourself a very big question that you’re working on that you can come home to.
+ - When I got out of acting school, I was lucky to have gotten any job at all. A lot of people hiring African American actresses – it was right after ‘Roots,’ and for society, not me, it was great. Nice richly dark-skinned people was the fashion, and I was not.
+ - I think that art is supposed to be ahead of the times.
+ - You know, real artists, we expose our flaws. We long for intimacy.
+ - I don’t talk a lot when I interview. My job is to get out of the way.
+ - I have a lot of optimism about new doctors because I think it’s really clear that it’s a lot of hard work and no guarantee of a lot of money.
+ - Use your time to bathe yourself in the gift. Move your hand across the canvas. Go to museums. Make this into an obsession.
+ - If I do three interviews in a day, I can be exhausted, because the process of hearing everyone requires that I empty out myself. While I’m listening, my own judgments and prejudices certainly come up. But I know I won’t get anything unless I get those things out of the way.
+ - Making your life is ultimately an extraordinarily creative endeavor.
+ - Racism has been for everyone like a horrible, tragic car crash, and we’ve all been heavily sedated from it. If we don’t come into consciousness of this tragedy, there’s going to be a violent awakening we don’t want. The question is, can we wake up?
+ - Somehow we can’t live outside the politics of race. There’s something very deep in all of us, that is taught to us when we are very, very little. Which is the disrespect and fear of the other.
+ - I remember from my father’s funeral that the minister kept using a metaphor about life of a prism. And I took that away like a cherished image.
+ - For me, first of all, I love people, I love ideas.
+ - Poverty makes it very difficult in an already competitive world for kids to get on a straight track where they can actually love learning.
+ - That artists are called to be more responsible and ‘true’ is a tip of hat to their power.
+ - Many people are afraid to talk about race because it’s so emotionally loaded. We don’t have the vocabulary to talk about it. Every day, our vocabulary seems more and more inadequate.
+ - I think we need leadership that helps us remember that part of what we are about is caring about more than the person right next to us, but the folks across the way.
+ - I mean, I think a healthy country is a country where people are healthy physically, and a smart country is a country where people are educated.
+ - I am interested in personal stories because that’s when people become expressive, spontaneous and heartfelt.
+ - The American idea is as promising, imaginative, and full of the unexpected as the land itself. The land represents freedom – the frontier, the ability to make a new future with your own bare hands.
+ - I mean, I think that – as an actress, in particular, I’m basically a fool, and I see the world upside down.
+
+82 quotes

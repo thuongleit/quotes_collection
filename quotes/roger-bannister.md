@@ -1,0 +1,48 @@
+ - Sport, like all of life, is about taking your chances.
+ - Just because they say it’s impossible doesn’t mean you can’t do it.
+ - We run, not because we think it is doing us good, but because we enjoy it and cannot help ourselves.
+ - My concentration was really on getting to university and becoming a doctor. My parents let me know that school marks were important. Achievement was something which came by hard work.
+ - Doctors and scientists said breaking the four-minute mile was impossible, that one would die in the attempt. Thus, when I got up from the track after collapsing at the finish line, I figured I was dead.
+ - Sport is not about being wrapped up in cotton wool. Sport as about adapting to the unexpected and being able to modify plans at the last minute. Sport, like all life, is about taking risks.
+ - My introduction to track racing was through the background of cross country running, which is not a sport perhaps as popular in America as it is in England.
+ - It is the brain, not the heart or lungs, that is the critical organ.
+ - It’s amazing that more people have climbed Mount Everest than have broken the 4-minute mile.
+ - The human spirit is indomitable. No one can ever say you must not run faster than this or jump higher than that. There will never be a time when the human spirit will not be able to better existing records.
+ - I think that is a universal adolescent feeling, trying to find your place. The adolescent who is perfectly adjusted to his environment, I’ve yet to meet.
+ - The essence of sports is that while you’re doing it, nothing else matters, but after you stop, there is a place, generally not very important, where you would put it.
+ - Beating John Landy was my defining race.
+ - The mile has all the elements of a drama.
+ - No longer conscious of my movement, I discovered a new unity with nature. I had found a new source of power and beauty, a source I never dreamt existed.
+ - Our house was bombed, and the roof fell in. We were sitting under the stairs of the basement, and we were quite safe, but it brought home the realization. In two nights 400 people were killed in small town.
+ - Whether we athletes liked it or not, the 4-minute mile had become rather like an Everest: a challenge to the human spirit, it was a barrier that seemed to defy all attempts to break it, an irksome reminder that men’s striving might be in vain.
+ - I was always a great bundle of energy. As a child, instead of walking, I would run. And so running, which is a pain to a lot of people, was always a pleasure to me because it was so easy.
+ - You get very tired, and there was a certain amount of pain and you slow up. Your legs are so tired that you are in fact slowing. If you don’t keep running, keep your blood circulating, the muscles stop pumping the blood back and you get dizzy.
+ - My family actually lived in the same village for about 400 years. They had great stability until the last century. People lived and intermarried in small villages.
+ - Life was very simple. My parents had come from the North of England, which is a fairly rugged, bleak, hard-working part of England, and so there was not the expectation of luxury.
+ - I couldn’t touch my toes with straight legs, but I could break 4 minutes for the mile.
+ - I couldn’t disappoint people. I did not want to fail and exhaust myself, because I was the kind of runner who trained so little that I couldn’t race again within another 10 days.
+ - If a man coaches himself, then he has only himself to blame when he is beaten.
+ - It is a paradox to say the human body has no ‘limit.’ There must be a limit to the speed at which men can run. I feel this may be around 3:30 for the mile. However, another paradox remains – if an athlete manages to run 3:30, another runner could be found to marginally improve on that time.
+ - May is a very early time in the year and the weather is usually bad. You cannot run a fast mile race if there is a strong wind, because it makes your running uneven.
+ - Without the concentration of the mind and the will, performance would not result.
+ - Our concept of a family holiday was going to a guest house in the Lake district or Wales where walking was part of the holiday.
+ - Your spikes, which were really quite long then, would catch the material of the track and your shoe would get heavier. I was simply filing them down and rubbing some graphite on the spikes. I thought I would run more effectively.
+ - Mothers, unless they were very poor, didn’t work. Both of my parents had to leave education. My mother had to work in a cotton mill until 18 or 19, when she took some training in domestic science.
+ - I found longer races boring. I found the mile just perfect.
+ - I trained for less than three-quarters of an hour, maybe five days a week – I didn’t have time to do more. But it was all about quality, not quantity – so I didn’t waste time jogging, ever.
+ - My athleticism was really the core to social acceptance, because in those days the overwhelming number of students came from more of a public school background than I did.
+ - It had always been a British preoccupation to hold this mile record.
+ - If I faltered, there would be no arms to hold me and the world would be a cold and forbidding place.
+ - Every time I ran the mile I was aware of my own weakness, there was some opponent who could give me a hell of a fight, so I never went into a race with a sense of invincibility. I always had that feeling of fragility and nerves which made me run faster.
+ - I was playing rugby and the other games English school children do, and there was an event in which races were run, and I won these by a considerable margin.
+ - I lived on the top of one hill and the school was at the top of another hill. Nobody ever went to school by car – we didn’t have any cars during the war. So that to and from school was itself a training.
+ - The reason sport is attractive to many of the general public is that it’s filled with reversals. What you think may happen doesn’t happen. A champion is beaten, an unknown becomes a champion.
+ - When I was about to break a world record and become well known, my mother used to say that for her the important thing was for me to become a doctor – a career which had not been possible in her generation and in her society. Sport was something to be set aside.
+ - I’ve always been very impatient. At age 10 I frankly found life boring, and I can remember age 9 having the awful thought, as it seems now looking back on it, A war! That should liven things up a bit!
+ - It seems quite impossible to walk in America.
+ - I was involved in music, acting, and some running, but my firm wish was to become a doctor. That was the formative age when I had decided on the pattern of my career.
+ - I came from such a simple origin, without any great privilege, and I would say I also wanted to make a mark. It wasn’t until I was about 15 that I appeared in a race.
+ - The man who goes on, even when it’s the hardest to be the winner.
+ - The Athletic Association competed against the University. So there was an event. You cannot break world records unless it is an established event, and you have three timekeepers, and the whole thing is organized.
+
+46 quotes

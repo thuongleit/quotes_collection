@@ -1,0 +1,50 @@
+ - Being stubborn can be a good thing. Being stubborn can be a bad thing. It just depends on how you use it.
+ - God continues to work miracles in my life.
+ - God gives me the children’s ministry heart and patience. This is what He wants. It’s awesome. I don’t know where He’s gonna take it – but God is building this thing.
+ - I got married at a very young age, and of course, for all the wrong reasons, and ended up divorced and lost everything. It was a very difficult time in my life.
+ - My wife bought an extra life insurance policy on me.
+ - Pray for your mate. Ask God to soften your heart and show you ways to be a better spouse.
+ - I’ve always been pretty tough in that way, where if you tell me I can’t do something, I will prove you wrong.
+ - I tell kids that people will let them down and people will hurt them. But Jesus Christ will never let them down and never hurt them.
+ - We produce programs that honor God and impact our world.
+ - It’s easy to be led astray when you’re so broken. People take advantage of you.
+ - I think people who are artists, actors, singers, great songwriters, they tend to have a hyper state of emotion where they feel things very, very deeply, probably more deeply than the average person walking down the street where it may affect them, but not to the same extent.
+ - I had older brothers and sisters who were high achievers, and I felt different, misunderstood by my family. That’s not my family’s fault; it was my perception.
+ - I spent six years in Bible study because I needed to get grounded. People really need to spend time in the Bible getting to know the God they claim to love.
+ - Nobody makes me laugh like my wife.
+ - There are things God does for me daily, and it throws me into brain lock, because I know in my heart I don’t deserve that kind of grace. I don’t deserve that break.
+ - I never thought I was particularly talented, and to be honest with you, I still don’t.
+ - They did interviews with my wife and daughter-they were genuinely in fear of me having a heart attack, working 20 hours a day, eating fast food.
+ - I wanted to leave Eight Is Enough for the Navy.
+ - It’s good that kids know the Scripture. It’s best that they know the Scripture and get the concept. All I can say is, it’s working.
+ - I lived to make Scott Baio laugh.
+ - I remember thinking, That’s what I need – and that hope was in Jesus Christ.
+ - I had never really pictured myself working in children’s ministries. I always figured I would be more comfortable with maybe teens or adult ministries.
+ - When you’re a celebrity, people think they know you, but they don’t have a clue.
+ - I suppose what’s unique about our presentation is the amount of Scripture that kids get.
+ - I realized there was very little in Hollywood I would ever feel comfortable doing. If I kept one foot there and one foot in my Christianity, I would never grow.
+ - If I’m going to follow a god, why would I want to follow a god of my creation? That would be an alcoholic idiot nitwit jerk god!
+ - When somebody comes to your front door, and they’re screaming obscenities at you and telling you to come outside, and you’ve had your life threatened several times, you take it pretty seriously. It’s the reason I have a Rottweiler.
+ - I’m cleaning toilets for $30 a day, because I needed that $30, and people are pointing at me, saying, Look at the big movie star. Look where he is now. I just said, I’m where God put me.
+ - When youre in that scene, you really wonder if this is all youre ever going to be. You know how vile and filthy you are inside.
+ - This show has been a major revitalization of my family life and personal life. It gave my family an avenue to speak to me honestly.
+ - Being a teen idol or being a heartthrob on all the magazines, with Shaun Cassidy, Leif Garrett, and Scott Baio – it was embarrassing! I never understood it. I mean, why me? I never really got it.
+ - We’ve both been married before and our previous experiences made us fearful of commitment.
+ - I didn’t want to be the typical teen idol. I didn’t want to be Leif Garrett. I didn’t want to be Shaun Cassidy, David Cassidy or Parker Stevenson. I wanted to do my own thing.
+ - I want kids to understand that strength doesn’t come from what goes on around you. It comes from inside you, and that comes from Jesus Christ.
+ - I had a lot of growing and a lot of denying of self to do. I am not easily won over, but when I am, I am completely won over.
+ - Hollywood has always been good to me. I’ve never blamed Hollywood for my problems.
+ - This is not what I would have chosen. But I have a heart to be obedient.
+ - If there’s comfort involved, it’s probably not for me.
+ - I didn’t become an actor because I wanted to act. Actually, I wanted to become a marine biologist. But most of all, I wanted to be accepted.
+ - I never thought of myself as handsome.
+ - I always felt as though, ‘If nothing else, I have a successful marriage.’
+ - I started running away when I was five years old. It wasn’t until I was an adult that I realized what I really wanted was somebody to come after me when I was running away.
+ - I don’t think you need to go looking for the enemy. He’s going to look for you.
+ - My pastor said, Just because you were a celebrity doesn’t mean you’re supposed to be a celebrity now.
+ - We’re seeing how the videos translate to the live shows and how the technology is really reaching kids.
+ - No matter how I might feel about myself or my self-image, there is still a part of me that wants to fight to the end.
+ - I think that in the Christian community, we’re lacking a lot of things, and I don’t know that it’s just children’s role models.
+ - I get scared to death when I see people who say they’ve found Jesus Christ, and they’re out there, and I wonder, who’s teaching them? Who’s mentoring them?
+
+48 quotes

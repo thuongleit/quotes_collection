@@ -1,0 +1,75 @@
+ - God loves you enough to receive you as you are. He loves you too much to keep you as you are.
+ - You can’t meet Jesus and not change. If you haven’t changed, you haven’t met the real Jesus.
+ - Everyone has something to teach you if you are humble enough to learn.
+ - Past: Jesus saved us from the penalty of sin. Present: He saves us from the power of sin. Future: He will save us from the presence of sin.
+ - Work like an Arminian, sleep like a Calvinist.
+ - Everything may not be OK but if God is with you, you will be OK.
+ - Fear in the mind causes stress in the body.
+ - If you really want to be a rebel get a job, cut your grass, read your bible, and shut up. Because no one is doing that.
+ - Stop looking for the path of least resistance and start running down the path of greatest glory to God and good to others, because that’s what Jesus, the Real Man, did.
+ - Truthless times need timeless truths.
+ - The Bible is not a book of principles to live by but rather a Person to live for.
+ - The inevitable result of borrowed faith is lost faith. People born into a family anchored in Christendom tend to assume they’re right with God, regardless of whether they personally turn from sin and trust in Jesus.
+ - Our identity is not in our joy, and our identity is not in our suffering. Our identity is in Christ, whether we have joy or are suffering.
+ - Jesus, could you please rapture the charismaniac lady who brings her tambourine to church?
+ - Ladies, use a loving voice, use a respectful voice, use a godly voice, but don’t lose your voice.
+ - Study the Bible like a soldier on a mission, not a scholar on a sabbatical.
+ - A pacifist has a lot of difficulty reconciling pacifism with scripture.
+ - Sometimes prayer moves the hand of God, and sometimes prayer changes the heart of the person who is praying.
+ - Spirituality, without the Holy Spirit, is demonic.
+ - I am not ashamed of the Gospel.
+ - Faith only grows through suffering.
+ - Forgiveness is both a decision and a process.
+ - Don’t believe false teaching that says you won’t suffer if you really love Jesus. Jesus will end all suffering eventually, but on earth he suffered more than anyone.
+ - I study the Bible all week, pray to the Lord, and then I speak from my heart. It’s all about brutal honesty.
+ - The problem with criticism today is that is instant, constant, global and permanent.
+ - The only thing worse than dying is living a boring life.
+ - We don’t name God; God reveals His name to us. We don’t have the right to exercise authority over God. God copyrights, He trademarks, He patents His name.
+ - Much of spirituality today is an effort to change God to suit us. But he’s not going to become more like us, we need to become more like him.
+ - Faith is not just what we believe internally. It’s how we behave externally.
+ - This world needs more than good works. It needs good news. Good works come out of the good news.
+ - Looking for a word from the Lord? Believe that he has already spoken, and read what he’s already written.
+ - You don’t need to beat yourself up in order to make God love you. Jesus already took your beating.
+ - An animal will conquer others. A Spirit-filled man conquers himself – self-discipline, self-control.
+ - Those who only seek friends without seeking to be a good friend are selfishly needy and demanding. And those who only want to be a good friend but do not wisely seek good friends are bound to be taken advantage of, abused, neglected, and suffer from their foolish friend choices.
+ - Everyone is sinning, so it’s no longer rebellious to sin. You’re just a conformist if you’re drunk; and naked; driving around in a loud motorcycle; smoking cigarrettes; breaking commandments; getting pregnant out of wedlock. Everyone’s done that. That’s so tired!
+ - A lot of people are using the Church, but not a lot of people are loving the Church.
+ - Anxiety is not to be managed it is a sin that needs to be repented of.
+ - I cannot worship the hippie, diaper, halo Christ because I cannot worship a guy I can beat up.
+ - Did think you were here to kill time listening to Christian music until you go to heaven? We’ve got work to do.
+ - The church was custom built by Jesus, and we are all works in progress. We do not expect people to get their sin in order before attending church any more than a hospital expects people to get healed before they show up.
+ - There are some women who are a good time and there are some women who are a good legacy.
+ - I know who made the environment and he’s coming back and going to burn it all up. So yes, I drive an SUV.
+ - Every great cause was initiated by someone whose heart was broken.
+ - Worship is living our life individually and corporately as continuous living sacrifices to the glory of a person or thing.
+ - God is tolerant in that He asks everyone to repent.
+ - Some will tell you that there are multiple worldviews. The Bible says we have only 2: the Truth and the Lie.
+ - Everything in the service needs to preach – architecture, lighting, songs, prayers, fellowship, the smell – it all preaches. All five senses must be engaged to experience God.
+ - I’ll preach anywhere. If it’s a round trip ticket to preach in hell, I’ll take it-as long as it’s round trip.
+ - Fear is vision without hope.
+ - You have to laugh at yourself. Otherwise you’ll waste all that great material.
+ - If you’re not a Christian, you’re going to hell. It’s not unloving to say that. it’s unloving not to say that.
+ - Sin is not just action. It’s life direction.
+ - We’re not to follow our hearts, we’re to guard our hearts.
+ - We need to pay attention to the questions non-Christians are asking, and the conversations that Christians are having.
+ - I want to live with autonomy. That’s the essence of sin.
+ - Who you think you are is what compels you to do what you do!
+ - Fear is not always a sin but it always is an opportunity.
+ - Any religious person who says he does not really need human friends because God is his Friend is calling God a liar because He’s the One Who says we also need human friends.
+ - Ultimately I think the difference between reading the Bible and studying it is making the connections between who Jesus is and what he’s done.
+ - Tragically, we live in a day when offense to God doesn’t matter nearly as much as offense to others.
+ - Gentleman, it is a terrifying thing for a woman to trust a sinful man.
+ - The goal of Christian dating is not to have a boyfriend or girlfriend but to find a spouse. Have that in mind as you get to know one an- other, and if you’re not ready to commit to a relationship with the end goal of marriage, it’s better not to date but simply to remain friends.
+ - Being single is not easy. But neither is being married. They are just difficult in different ways as God uses everything in our life to make us more like Jesus, who happened to live a perfect life while single.
+ - Married life can seem as if it’s only five days long. The first day you meet, the second day you marry, the third day your raise your children, the fourth day you meet your grandchildren, and the fifth day you die first or bury your spouse to go home alone for the first time in many years.
+ - Idols tend to be good things that you have turned into god things, which therefore become bad things.
+ - A wife who lets herself go and is not sexually available to her husband in the ways that the Song of Songs is so frank about is not responsible for her husband’s sin, but she may not be helping him either.
+ - Women will be saved by going back to that role that God has chosen for them. Ladies, if the hair on the back of your neck stands up it is because you are fighting your role in the scripture.
+ - My desire as a Christian pastor is to see churches raised up as communities of grace ruled by Jesus and led by his gloriously masculine men who work their jobs, eat their meat, drink their beer, romance their wives, study their Bible, and raise their kids in glory and joy.
+ - It is imperative that Christians be like Jesus, by living freely within the culture as missionaries who are as faithful to the Father and His gospel as Jesus was in His own time and place.
+ - You aren’t what’s been done to you but what Jesus has done for you. You aren’t what you do but what Jesus has done. What you do doesn’t determine who you are. Rather, who you are in Christ determines what you do.
+ - Tribes must be our homes, not our prisons.
+ - If my words don’t flow out of a heart that rests in God’s control, sovereignty, then they come out of the heart that seeks control so I can get what I want.
+ - Repentance keeps sin from condemning us because Jesus died and scorned the shame.
+
+73 quotes

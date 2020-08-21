@@ -1,0 +1,22 @@
+ - Some guy once told me that skydiving is like cutting your throat and seeing if you can get to the doctor before you bleed to death.
+ - Will a day come when our cars have carbon-fiber tubs, 18,000-rpm V-10 engines, and ground-effects tunnels? Perhaps, about the same time we have condos on the moon.
+ - I have spent – or wasted – my life around motor racing: driving, promoting, and writing about what Ernest Hemingway once linked with mountain climbing and bull fighting as the only true sports. The rest, he sniffed, are merely games.
+ - Racing is bulging at the seams with pure nutball characters, men who can drink more, screw more, fight more, laugh more, joke more, than practically any collection of people in the world.
+ - A written regulation in NASCAR is about as reliable as an Egyptian immigration law.
+ - I admit to wasting my life messing around with fast cars and motorcycles.
+ - If any vestige of the American automobile industry is to survive, it must involve state-of-the-art vehicles that are not equal to but surpass the best imports in every way.
+ - They still talk about the night that Augie Pabst, a fresh-faced heir to the brewing fortune, drove a rented Falcon into the swimming pool of the Mark Thomas Inn in Monterey, California. His reviews were so good that he repeated the act at a Howard Johnson’s outside Denver.
+ - The automobile, both a cause and an effect of this decentralization, is ideally suited for our vast landscape and our generally confused and contrary commuting patterns.
+ - I have four grown children and two tiny grandchildren.
+ - More books, more racing and more foolishness with cars and motorcycles are in the works.
+ - Don’t get me wrong, I think bikes are terrific. I own several of my own, including a trendy mountain style, and ride them for pleasure and light exercise.
+ - As the saying goes, truth is stranger than fiction. But only when the reality has not been subsumed by foamy legends and fantasies that radiate outward from the actual event.
+ - Had I been more responsible I might have made something of myself as a junk bond trader, long-haul trucker or perhaps a plumbing contractor.
+ - The bicycle is a former child’s toy that has now been elevated to icon status because, presumably, it can move the human form from pillar to post without damage to the environment.
+ - If the numbers mean anything, they tell us that vastly more life is left in the reviled internal-combustion engine than any of the blue-state lefties could imagine. First, that madman Bush wins, and now this news. How depressing.
+ - The early 1970s was a time when illegal acts were in style. Everybody was going nuts with causes, most of them against the law.
+ - Everything at a NASCAR event carries a corporate logo except the lavatory stalls.
+ - Regardless, I did rise to the editorship before embarking on a freelance career in the late ’60’s.
+ - If one is looking for cultural testosterone and raging off-the-wall competition in the world of communications, Manhattan was – and is – home plate.
+
+20 quotes

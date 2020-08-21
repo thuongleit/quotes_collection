@@ -1,0 +1,57 @@
+ - Life has a very simple plot: first you’re here and then you’re not.
+ - Of the sparkling wines, the most famous is Perth Pink. This is a bottle with a message in, and the message is “beware”. This is not a wine for drinking; this is a wine for laying down and avoiding.
+ - Never do things for money. It’s always the things you do for love that turn out to pay the best.
+ - Talent is always more interesting – ambition is not interesting. If you have talent, you have to find ways of expressing it, but you may not be a success in the world’s terms.
+ - I pay taxes in three countries, but can’t vote in any of them.
+ - I believe in the separation of church and planet.
+ - Pattycake, pattycake, baker’s man; good morning, madam, I’m a psychiatrist.
+ - Life doesn’t make any sense, and we all pretend it does. Comedy’s job is to point out that it doesn’t make sense, and that it doesn’t make much difference anyway.
+ - A lot has been said about politics; some of it complimentary, but most of it accurate.
+ - Bear in mind the simple rule, X squared to the power of two minus five over the seven point eight three times nineteen is approximately equal to the cube root of MCC squared divided by X minus a quarter of a third percent. Keep that in mind, and you can’t go very far wrong.
+ - Sticks and stones may break my bones, but words will make me go in a corner and cry by myself for hours.
+ - I will jump on anybody’s private plane at the drop of a hat. I’m an old-fashioned lower-middle-class boy.
+ - Typical Hollywood crowd – all the kids are on drugs, and all the adults are on roller skates.
+ - I used to have a house in London, but couldn’t face 20 more years of St John’s Wood in the rain.
+ - No day of my life passes without someone saying the words ‘Monty Python’ to me. It’s not bad.
+ - I love being an older comic now. It’s like being an old soccer or an old baseball player. You’re in the Hall of Fame and it’s nice, but you’re no longer that person in the limelight on the spot doing that thing.
+ - Know what I mean? Eh, eh, Nudge nudge, Say no more?
+ - My wife, Tania, is very big on dogs, so I’m always paying out to animal charities.
+ - When I was 23 I started writing for I’m Sorry I’ll Read That Again and was paid three guineas for every minute’s airtime.
+ - I’ve got soggy thighs. It must be dinner time.
+ - I think you often learn from failure. Success just teaches you how great you were, but in fact it’s knowing what will fail that will help you to make the right choices.
+ - A nod’s as good as a wink to a blind bat!
+ - Life is a comedy when watching and a tragedy when experiencing. I try and share anything I have.
+ - To me, the musical is best when it’s a musical comedy. So if you have a very, very funny show, and very good, funny songs, that’s what the musical does best.
+ - I don’t invest in the stock market, but I have pension funds – some in America and the UK.
+ - Life took over 4 billion years to evolve into you, and you’ve about 70 more years to enjoy it. Don’t just pursue happiness, catch it.
+ - Elvis saved my life when I was 13 or 14. He saved all our lives.
+ - Nobody gets irony anymore, as we are now living in the post-ironic age. Once George Bush gets a library, our irony is dead.
+ - The dreadful thing about getting older is you cry at the drop of a hat.
+ - You initially become funny as a kid because you’re looking for attention and love. Psychologists think that’s all to do with mother abandonment. I think John Cleese has his depressions, and Terry Gilliam’s the same. All of us together make one completely insane person.
+ - What’s brown and sounds like a bell? DUNG!
+ - I’m not careful with my money at all these days. I buy people a lot of dinners!
+ - I like being a foreigner. For me, to live in California is very pleasant – I’m more comfortable not feeling a part of everything, not feeling responsible for the government or the roads or the health system.
+ - I won’t read scripts because I have a limited amount of time. Why should I help other people do lame stuff when I can just go out and put on lame stuff of my own?
+ - People can tell the truth much more freely when they’re apparently lying.
+ - You could write a joke in the pub at lunchtime and watch it performed on television that evening.
+ - My first professional job was appearing in a disastrous theatre production of Oh, What a Lovely War in Leicester Rep, shortly after leaving Cambridge.
+ - I never think in terms of target audience. I try to write what makes me laugh, so I’m the target audience. I guess I just hope there’s another person in America like me.
+ - Reading Alan Zweibel makes me laugh out loud. And yet it is not a particularly funny name.
+ - I got used to dealing with groups of boys and getting on with life in unpleasant circumstances and being smart and funny and subversive at the expense of authority.
+ - Many years ago I also bought a house in Provence for about 70,000 francs. It had no electricity or running water, and no road leading to the house, but gradually we made improvements. It’s my escape and I love it.
+ - John Cleese once told me he’d do anything for money. So I offered him a pound to shut up, and he took it.
+ - Having little money to spend was a valuable learning experience. My schooling also shaped my work ethic because while other children were listening to the Goons, I was studying, which enabled me to go to Cambridge University.
+ - People who are interested in money are really uninteresting people. They look like Donald Trump.
+ - The Minister of Transport issued this appeal to motorists: Can anyone give him a lift to Leicester?
+ - I’ve always found bad films more enjoyable than good ones.
+ - When, in 1966, I progressed to The Frost Report, I was paid ten guineas a minute. I was guaranteed three minutes a week, so this was good money.
+ - I used to collect Persian rugs and real estate – you should be able to walk on and live in your money. I had to give up the rugs because I’m allergic to mould.
+ - I like the idea of being out there regularly with an audience and with a funny gang of people. That’s what I grew up with – doing television, doing shows every week.
+ - If anything can survive the probe of humour it is clearly of value, and conversely all groups who claim immunity from laughter are claiming special privileges which should not be granted.
+ - Writers tend to suffer from back problems because they spend their time bent over a desk.
+ - I never pay any attention to figures.
+ - Well we were lucky because we started in Canada where everybody has a sense of humour! We flirted a little while with Josh Groban. He was personally interested in it. He said oh I’d love to do something different, and I said well it’s pretty different! But in the end the dates didn’t work out.
+ - Americans like to think ‘Python’ is how English people really are. There is an element of truth to that.
+ - If the studios paid the artists, how would they ever be able to afford the executives?
+
+55 quotes

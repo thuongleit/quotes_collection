@@ -1,0 +1,85 @@
+ - Hustle, Loyalty, Respect.
+ - I never back down and I never quit!
+ - A man’s character is not judged after he celebrates a victory, but by what he does when his back is against the wall.
+ - Live fast, fight hard, no regrets!
+ - You want some? Come get some!
+ - Never Quit, Never backdown.
+ - There are moments in life where it gets so hectic that time becomes a blur. Keep calm and never give up.
+ - Nobody remembers second place.
+ - To succeed, i have to believe every night, in my heart, that i am the best.
+ - Time management is the key. Although it seems hectic, as long as you manage your time properly you can get everything done.
+ - I am a champion who makes an impact.
+ - If you don’t learn from your mistakes, then they become regrets.
+ - I fear nothing and I regret less.
+ - This is my life, this is my passion, this is all I got.
+ - A true champion is not judged by how much he or she is admired, but by how well they can stand at the face of adversity.
+ - You can run I will chase you. You can hide I will find you. We’re gonna fight and I’m gonna hurt you.
+ - When people show loyalty to you, you take care of those who are with you. It’s how it goes with everything. If you have a small circle of friends, and one of those friends doesn’t stay loyal to you, they don’t stay your friend for very long.
+ - Whether fighting or spitting, my discipline is unforgiving!
+ - I don’t play a character. It’s totally just an extension of myself.
+ - My life is being ruined by the internet!
+ - You want The Next Big Thing? Let me take my pants off!
+ - Thank you guys. Thank you for never giving up on me.
+ - I admire the military. I guess in a world of villains and heroes, they’re my heroes. Their dedication, their commitment, their discipline, their code of ethics.
+ - Fashion advice from the Tooth Fairy, that’s great.
+ - Me Brock Lesnar. Here comes the pain. God built me strong. Forget to give me brain.
+ - When the day comes when you don’t believe in yourself there’s the door, get the hell out.
+ - You smell like crap so I know you don’t like soap.
+ - When I hear people boo, that just makes me want to go out there and work harder.
+ - I would say luck and preparation. I didn’t dominate WWE when I first started, it was a slow process. I wasn’t labelled the golden child from day one, it’s been a very long road.
+ - I literally wake up and try to tackle every day the best I can and do my best to try to make life as productive and positive as I can.
+ - There’s those who talk about it. And there’s those who BE about it!
+ - Baloney fudging mustard!
+ - Well John Cena’s like a pinwheel, so you can go ahead and blow me.
+ - For me, I don’t go in the backdoor. That’s the one thing I don’t do.
+ - For the past 9 years, the WWE has been my home!
+ - I don’t doll myself up for TV because I want people to accept me for who I am.
+ - I take pride in the fact that a lot of little kids dig what I do.
+ - I think everybody you know, we all have a sense of humor and I’m not one to take myself too seriously.
+ - Paul Bearer was very influential in the early stages of my career. He constantly hounded me and I just think he realized the potential that was there. He convinced me that I was in the right place and doing the right thing.
+ - Yes I have a belt. I wear big pants because my ass is huge. So I can’t go to a store by off the rack a size that is appropriate for my waist because they don’t fit my ass!
+ - Thank you for letting idiots like me, come out and live this wonderful wonderful dream. I love you to death. Lets go home.
+ - You get my point now? Coz before I thought you missed it. I’ma viagra triple shot, you just a limp bizkit. WORD LIFE.
+ - CeNation. Wwe reports that last night at approximatley 9pm est. It terminated its contract with cousin of john cena, juan. The wwe wishes juan the best of luck in his future endeavors.
+ - What we do is entertainment. They wouldn’t go to Tom Cruise and ask if his movies are fake. We provide entertainment. I would rather someone tell me I am not entertaining than ask if what we do is fake.
+ - My home is at the WWE. I truly do love performing. The atmosphere here isn’t like anything else. It’s truly where I belong.
+ - Welcome to Smackdown. This is where the franchise plays. That’s Tazz, he’s a thug. And that’s Michael Cole, he’s gay.
+ - Winning the Royal Rumble is as big an accomplishment as anything.
+ - We in the Great White North but you can bite my White South!
+ - Heath Slater, or the chick from Wendy’s.
+ - Ladies and Gentlemen, King of the Stupid Question: Todd Grisham!
+ - A lot of the stuff that I say doesn’t even make TV because it gets cut out. So if you’re at the live events you get to hear what I have to say, but if you’re watching on TV, you’re only getting about 50% of it.
+ - I hate any match that isn’t a traditional Tag Team Match or a traditional Singles Match, because anything can happen. It’s truly one of those deals where it’s all about being in the right place at the right time.
+ - And at points in the movie, John Cena is actually impervious to bullets!
+ - The last time the three of us were in the ring together, it was pretty awesome. Vickie, we had a sweet, sexy, passionate make-out session. Dolph you remember! You were there! You were cool with it.
+ - I haven’t backed down from a fight in my life, and I won’t start tonight.
+ - And right now, you two jackwagons are right in the middle of my living room and I’m coming to take out the trash.
+ - Lita on the other hand, she’s rated NC-17, which means No Cold sores in 17 days.
+ - What I want to do is, I want to put together a nice list of those guys who I really did admire when I was growing up, listening to names like Lord Finesse.
+ - Welcome to the New Raw!
+ - Vickie is so fat that her baby pictures were taken via satellite.
+ - Ric Flair is one of the most entertaining guys to sit down with and by entertaining I don’t mean he has catchy phrases, but that he’s been through so much and his experiences are so genuine I could listen to him talk all day.
+ - I don’t have any elaborate uniforms; I come to the ring in a T-shirt, a pair of sneakers and some shorts.
+ - They were enjoying it. Whether they were faking or not, they were enjoying it.
+ - Ahhh, Wade. Wade, you’re just so stupid.
+ - Whether you like me or you don’t, I still dig showing up for work.
+ - But I’ve been freestyling and messing around with rhyming since I was 13. That’s when I really started listening to hip-hop music.
+ - Son of a mustard sandwich, that ends tonight!
+ - I don’t wanna wrestle Big Show tonight because I’m scared that he’s gonna eat me!
+ - By the time I was 15 and I stepped in the high school gym, I was just stronger than everybody.
+ - There’s no way I can tag team with Randy Orton; he just wears too much baby oil!
+ - I know a lot of actors who live with kind of a soundtrack in their lives, even to go to the market. I’m not that kind of actor. I don’t listen to songs. I actually like quiet.
+ - I hang out with a lot of the people I did when I was in high school, when I was in college, and I have a strong unit of people around me, whether it be friends or family, and if my head gets too big, they will definitely check me immediately.
+ - Thou fail to perceive mineself!
+ - When you see me on TV, that’s about as close to my real personality as you can get.
+ - 15 steel chairs? That’s insane. It was 23 steel chairs.
+ - You’re dressed up like the flag, somebody get him a pole! Oh, no, no, no, I know how you can get one. Go on a date, with Michael Cole.
+ - This must be Monday Night RAW, we just got a Wendy’s chant.
+ - It’s unrated, which means it’s too confusing to possibly put a rating on.
+ - Easy, Curious George! Get your grubby hands off of that wheel!
+ - I’ve been very true to know that I have a base of fans and I’m extremely loyal and extremely supportive to that base of fans. To the rest of them, I enjoy the fact that they fill the arenas and tell me to go to hell.
+ - Vince McMahon owns me.
+ - I’m the white Mohammad Ali.
+ - I think I’m not uber into the comedy scene, but I love to laugh, especially in our business, where you’re always front and center over an extremely, sometimes overly-critical live audience. I think it helps to laugh.
+
+83 quotes

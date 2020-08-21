@@ -1,0 +1,45 @@
+ - I’m so moved to hear Celia Johnson again, so lovely.
+ - Don’t be defeatist, dear, it’s very middle class.
+ - I like the ephemeral thing about theatre, every performance is like a ghost – it’s there and then it’s gone.
+ - There is a kind of invisible thread between the actor and the audience, and when it’s there it’s stunning, and there is nothing to match that.
+ - The last couple of years have been a write-off, though I’m beginning to feel like a person now. My energy is coming back.
+ - Theres a difference between solitude and loneliness.
+ - Try not to cry too much because it can be pretty heart-breaking and pretty hard.
+ - People say it gets better but it doesn’t. It just gets different, that’s all.
+ - The drama school was in Oxford – and it’s funny to think of it, but in those days when I started out the University was nearly all male. And they certainly weren’t mixed.
+ - I had a very good English teacher who said to me that she thought I ought to do it. She – I don’t know, she saw something thank goodness because I think if it hadn’t been encouraged by somebody that serious, I’m not sure what would’ve happened to me.
+ - It’s funny to be pigeonholed so late in life but there we are.
+ - I’d done “Gosford Park,” a film that Julian Fellowes had written that Robert Altman directed.
+ - Sort of what you do in drama school when asked to play something way out of your reach. Anyway, we used to laugh a lot about that. I used to say I’m not going to act old, Penelope. I’ll just be myself.
+ - I just did adore Daniel – Daniel Radcliffe, who I had worked with before “Harry Potter” and spent a long time telling all the producers they had to see him because I thought he was so terrific. And it’s been sad thinking about it because of Alan Rickman.
+ - I believe that I am past my prime. I had reckoned on my prime lasting till I was at least fifty.
+ - I am just surprised to be doing anything at my age actually. When you think of where I am now and where I’ve come from, I am very pleased and very grateful to be standing up and delivering Julian’s great lines.
+ - Listen, I must be 110 by now. Granny is going to kick the bucket at some point.
+ - The thing is, often press people ask questions that are so personal that even your nearest and dearest wouldn’t ask them.
+ - I like being outside and working with the elements. The elemental aspects of it. The physicality of it.
+ - One went to school, one wanted to act, one started to act, and one’s still acting.
+ - The chemotherapy was very peculiar, something that makes you feel much worse than the cancer itself, a very nasty thing. I used to go to treatment on my own, and nearly everybody else was with somebody. I wouldn’t have liked that. Why would you want to make anybody sit in those places?
+ - I think there’s always great tension because there never seems to be enough – there is always pressure. There’s always pressure because there isn’t enough time. There’s never enough time for a movie, it seems to me. Never.
+ - I don’t think films about elderly people have been made very much.
+ - I don’t think films about elderly people have been made very much. I think of Cocoon and Driving Miss Daisy. But they always seem to be fairly successful, so it’s a bit baffling as to why everybody has to be treated as if they were five-years-old.
+ - I think everybody who was in it thought they were all going to be Eartha Kitt or be big stars. That didn’t happen, but it was a wake-up call to have one’s first professional job on Broadway, I must say.
+ - I said ‘It can’t go on’ and he said ‘No, it can’t.’ Honestly, I don’t think I could have mattered less to him by then. But by then, nothing mattered to him.
+ - People think of you differently if you’ve been in their homes. They think they own you because they watched you while they were eating dinner, or they can turn you up or down, or even freeze you.
+ - It’s true I don’t tolerate fools but then they don’t tolerate me, so I am spiky. Maybe that’s why I’m quite good at playing spiky elderly ladies.
+ - Chris and Toby are far too sane to be upset any more.
+ - I’m hopeless – all I know is that time is going past so fast.
+ - An actor is somebody who communicates someone else’s words and emotions to an audience. It’s not me. It’s what writers want me to be.
+ - It was – it’s always very nice to be somebody rather grand.
+ - My career is chequered. Then I think I got pigeon-holed in humour; Shakespeare is not my thing.
+ - It seems to me there is a change in what audiences want to see. I can only hope that’s correct, because there’s an awful lot of people of my age around now and we outnumber the others.
+ - I had been feeling a little rum. I didn’t think it was anything serious because years ago I felt a lump and it was benign. I assumed this would be too. It kind of takes the wind out of your sails, and I don’t know what the future holds, if anything.
+ - The performances you have in your head are always much better than the performances on stage.
+ - I know there is something out there and like most people, I tend to believe in it more when things go bad.
+ - There were male colleges, and there were very few female colleges.
+ - I tend to head for what’s amusing because a lot of things aren’t happy. But usually you can find a funny side to practically anything.
+ - Where you get people who want to take a picture of you or take a picture of them with you.
+ - When you get into the granny era, you’re lucky to get anything.
+ - I’m far, far, far from that. But of course, that’s one of the joys of acting is that you can move up in the world, even if – you know, in the characters that you’re playing, even if you don’t.
+ - There was nobody in the family who had ever done anything like that before. My brothers – I had two brothers. They were twins. They both became architects. They were both six years older.
+
+43 quotes

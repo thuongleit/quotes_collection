@@ -1,0 +1,45 @@
+ - Men are like wine – some turn to vinegar, but the best improve with age.
+ - Consult not your fears but your hopes and your dreams. Think not about your frustrations, but about your unfulfilled potential. Concern yourself not with what you tried and failed in, but with what it is still possible for you to do.
+ - What unites us, is much greater than what divides us.
+ - The whole world is my family.
+ - Prayer is the raising of the mind to God. We must always remember this. The actual words matter less.
+ - See everything, overlook a great deal, correct a little.
+ - Consult not your fears, but your hopes and your dreams.
+ - I want to throw open the windows of the Church so that we can see out and the people can see in.
+ - Whoever has a heart full of love always has something to give.
+ - If God created shadows it was to better emphasise the light.
+ - Do not walk through time without leaving worthy evidence of your passage.
+ - Before everything else, fidelity to the Church: One, Holy, Catholic, and Apostolic. Jesus did not found several churches, but one single Church.
+ - I live by the mercy of Jesus, to whom I owe everything and from whom I expect everything.
+ - A peaceful man does more good than a learned one.
+ - It often happens that I wake up at night and begin to think about a serious problem and decide I must tell the Pope about it. Then I wake up completely and remember that I am the Pope.
+ - To keep me from sin and straying from Him, God has used devotion to the Sacred Heart of Jesus in the Blessed Sacrament. My life vows destined to be spent in the light irradiating from the tabernacle, and it is to the Heart of Jesus that I dare go for the solution of all my problems.
+ - Born poor, but of honored and humble people, I am particularly proud to die poor.
+ - The Rosary is a magnificent and universal prayer for the needs of the Church, the nations and the entire world.
+ - Never Hesitate to hold out your hand; never hesitate to accept the outstretched hand of another.
+ - The social progress, order, security and peace of each country are necessarily connected with the social progress, order, security and peace of all other countries.
+ - Here I am at the end of the road and at the top of the heap.
+ - It is now for the Catholic Church to bend herself to her work with calmness and generosity. It is for you to observe her with renewed and friendly attention.
+ - The family is the first essential cell of human society.
+ - We supplicate all rulers not to remain deaf to the cry of mankind. Let them do everything in their power to save peace. By so doing they will spare the world the horrors of a war that would have disastrous consequences, such as nobody can foresee.
+ - When I eat alone I feel like a seminarian being punished. I tried it for one week and I was not comfortable. Then I searched through Sacred Scripture for something saying I had to eat alone. I found nothing, so I gave it up and it’s much better now.
+ - It is easier for a father to have children than for children to have a real father.
+ - I have looked into your eyes with my eyes. I have put my heart near your heart.
+ - Prudent is he who can keep silent that part of truth which may be untimely, and by not speaking it, does not spoil the truth of what he said.
+ - The Catholic Church has a dignity far surpassing that of every merely human society, for it was founded by Christ the Lord. It is altogether fitting, therefore, that the language it uses should be noble, majestic, and non-vernacular.
+ - I am able to follow my own death step by step. Now I move softly towards the end.
+ - The true and solid peace of nations consists not in equality of arms, but in mutual trust alone.
+ - The Rosary is a school for learning true Christian perfection.
+ - The council now beginning rises in the Church like the daybreak, a forerunner of most splendid light.
+ - Anybody can be Pope; the proof of this is that I have become one.
+ - I am made to tremble and I fear!
+ - The nations of the world are becoming more and more dependent on one another and it will not be possible to preserve a lasting peace so long as glaring economic and social imbalances persist.
+ - Every man has the right to life, to bodily integrity.
+ - Italians come to ruin most generally in three ways, women, gambling, and farming. My family chose the slowest one.
+ - The feelings of my smallness and my nothingness always kept me good company.
+ - An angel of Paradise, no less, is always beside me, wrapped in everlasting ecstasy on his Lord. So I am ever under the gaze of an angel who protects and prays for me.
+ - The conviction that all men are equal by reason of their natural dignity has been generally accepted. Hence racial discrimination can no longer be justified.
+ - Justice comes before charity.
+ - Think not about your frustrations, but about your unfullfilled potential.
+
+43 quotes

@@ -1,0 +1,70 @@
+ - Don’t do anything stupd. And don’t waste money. Let everybody else waste money and do stupid things; then we’ll buy them.
+ - My daughter asked me when she came home from school, “What’s the financial crisis?” and I said, it’s something that happens every five to seven years.
+ - And if you’re going to be a leader, you know what I ask myself? Would I want to work for you in this job? Would I let my children work for you? Would I give you this job if I wasn’t there to provide oversight? If you went to run another company, would I, as an investor, invest in that company?
+ - Finance went from being a small business, effectively, to being a big business. In part, that’s the growth of the world’s wealth. That’s called savings.
+ - We use technology to make it cheaper, better, and faster for the client. And then if you have the most flow, you can win. Now, having said that, Silicon Valley wants to take on this business. They think they see an opening.
+ - I am not embarrassed to be a banker. I am not embarrassed to be in business.
+ - I don’t think you’re going to have one bank. Big companies aren’t going to give us all their business. So they can pick and choose – by product, by country, whatever. We have major competition across every product in every place we operate.
+ - The government has the right to change laws and rules and regulations.
+ - Companies that grow for the sake of growth or that expand into areas outside their core business strategy often stumble. On the other hand, companies that build scale for the benefit of their customers and shareholders more often succeed over time.
+ - You don’t run a business hoping you don’t have a recession.
+ - If you look at the banking business over many years, it’s always been a huge user of technology. This has been going on my whole life, that people have been adding technology, digitizing services.
+ - My operating assumption is we will always have very tough competition. And even with some European banks struggling right now, some of them can reemerge – and maybe even stronger.
+ - Businesses can be opaque. They are complex. You don’t know how aircraft engines work either.
+ - If business doesn’t thrive, it hurts America. We need improved relations, more collaboration, more thought and more consistency as we go about trying to make sure we have the best country in the world. Not scapegoating and finger-pointing.
+ - No one can forecast the economy with certainty.
+ - We have built a very good company, and we’re proud of it. We also recognize that much of it has been built on the shoulders of the thousands of employees and leaders who have worked here before us.
+ - I’ve asked our people, “Why don’t we just put a revolver on top of our basic loan?” Make it easier for the client.
+ - If I ran the whole place like it was my way or the highway, we would not be as good a company. I’m going to have mistakes – they’ll be made on my watch and will embarrass me. But I’ll also make sure the company learns from them so it can become a better company.
+ - Our global corporate investment bank competes with Goldman Sachs, Citibank, and a bunch of other banks that are in those businesses. We may have slightly different products or services, but so what? That’s always been true in American business.
+ - We got a lot of excellent people and businesses from Bear and WaMu. But Bear definitely was more painful. WaMu got us into Florida, California, and other states, which was a huge benefit – to expand and grow and add middle-market, private banking, investment banking, and other products, too.
+ - The term ‘too big to fail’ must be excised from our vocabulary.
+ - We’re going to do the right thing for the company and our customers, all things considered.
+ - Just because we’re stupid doesn’t mean everybody else was.
+ - I hate the word universal, because I don’t know exactly what it means. The question is, does it work for the client? Travelers was a diversified, financial conglomerate that did very well. The businesses had nothing to do with each other.
+ - A democracy is a compromise by its nature. It’s not a dictatorship.
+ - If you’re making all your money simply betting on interest rates, that’s not a business. Flow is a business. On the outside, they look the same for a while. But when you dig into them, no, they weren’t exactly the same.
+ - Economies of scale are a good thing. If we didn’t have them, we’d still be living in tents and eating buffalo.
+ - When you walk into a store and you want to buy something, you give them cash and they sell it to you. But very often, you walk into our “store” and you want something – a credit card, maybe, or a loan – and very often the answer is “No,” even if you’re a large corporation.
+ - As countries get wealthier – all of them, together – you’re going to have financial assets. That is a good thing. You could argue the assets were traded too much, or that they’re too highly valued, or too leveraged.
+ - It’s great that people get together and collaborate, talk about the facts and the analysis, all in the interest of having a great financial system.
+ - It might be harder for us to charge a higher interest rate, like they do, so it might not be as profitable for us. But we can either compete or partner, like we’ve announced with On Deck, which does some of the stuff we just spoke about.
+ - I don’t think you could have a banker serving in a major role in Washington in the next 10 years. I just don’t think it’s going to happen – it’s just not politically feasible – so I don’t spend much time thinking about it. Do I think I could do a good job? Maybe. It’s possible.
+ - If you were a corporation needing financial services, and I can give you something better, faster, and cheaper across 12 products as opposed to eight, that’s business. I’m doing it because I’m serving you; I’m not doing it because I want to be universal.
+ - People need to understand: Businesses are going to make mistakes. They shouldn’t be shot and hung every time. We should apologize for it. We should make up for it. My shareholders paid for it. No customer was hurt, which is critical to me. But I hurt my shareholders, and I wish I hadn’t.
+ - Remember that banks aren’t markets. The market is amoral. The market doesn’t care who you are. You’re a trade to the market. The market will sell you if they think you’re riskier. Banks didn’t do that.
+ - You can design a mortgage system that is different without a Fannie and Freddie, but there are principles you have to have, to have a good system.
+ - You read constantly that banks are lobbying regulators and elected officials as if this is inappropriate. We don’t look at it that way.
+ - The United States has the best, deepest, widest, and most transparent capital markets in the world which give you, the investor, the ability to buy and sell large amounts at very cheap prices. That is a good thing.
+ - No one has the right to not assume that the business cycle will turn! Every five years or so, you have got to assume that something bad will happen.
+ - Unraveling the euro is a terrible thing. This is a 50-year endeavor to get this continent together and that’s a wonderful endeavor.
+ - Our plate is full. We have a lot to do building our company organically and that is our key focus.
+ - From my point of view, the American financial system – including banks and investment banks – is far safer because of capital and liquidity requirements. Despite all the turbulence so far this year, I don’t think anyone’s questioning our system. And that, obviously, is a good thing.
+ - It’s good for America when the rest of the world grows, because you can sell more to the rest of the world.
+ - Look, every institution will make mistakes. I acknowledge we make mistakes, and they can hurt my reputation and our company’s. But you also must be willing to let go a little bit, trust others, and not always be so stringent, provided you have robust controls.
+ - I hope the story of 2011 is that America gets its mojo back. You’ve got to remember that America has the best universities; it’s got some of the best businesses. It’s got an unbelievable work ethic, rule of law. The story of 2011 will be America blossoming again.
+ - I think one could argue that there’s more political input into the regulatory side, and on the regulatory side there seem to be fewer people with financial and banking experience – there are more lawyers, academics, economists, maybe politicians now.
+ - Well, if you were the American public, you saw a catastrophe. In general, you would say, “The biggest institutions of America – Washington, broadly, and Wall Street, broadly – they’re to blame.” And, broadly, they’re right.
+ - If the economy grows, housing gets better, quicker.
+ - JP Morgan always has higher capital liquidity, that is partially to make up for mistakes and problems and obviously its a tough economy. We support an oversight committee, we supported some of the compensation, new compensation rules, though we already follow most of them. We support a lot of it.
+ - When the government gets involved in pricing, I don’t think it’s the right way to look at a business.
+ - We don’t think there are cases where people were evicted out of homes when they shouldn’t have been.
+ - All businesses tend to pass costs onto customers.
+ - I’ve been regulated my whole life. We have progressive taxes. It’s not a free-market free-for-all. I completely understand that society has a perfectly legitimate right to put in structures and regulations and rules that make it fairer, better, cleaner.
+ - The government isn’t going to say, “We’re going to regulate banks, but we’ll leave these other companies alone.” I think the regulators want to make sure that they have some form of regulation on anything systemic. We like our hand. But, you know, honestly, who owns the future?
+ - You cannot prove this in real time, but when economists 20 years from now write a book on the recovery, it may well be entitled, It could have been much better.
+ - I don’t like the term “universal bank.” The Chinese government legitimately wants to have a very strong economy. When they talk about SOE reform, they know that’s part of it.
+ - I was a normal human being, but I did like that. I read a lot. I also liked math and science.
+ - I think the free-enterprise system has been great for society. That doesn’t mean it’s completely perfect. And also, when people say capitalism, I’m not really sure what they mean.
+ - Capping the size of American banks won’t eliminate the needs of big businesses; it will force them to turn to foreign banks that won’t face the same restrictions.
+ - But in general, as countries get wealthier, there’s going to be more savings, which means you’re going to have intermediation. So part of it is just the huge growth in wealth, and part of it was globalization – these companies, these clients getting much bigger and much more global.
+ - It is vital for officials and regulators to have input from people within our businesses who understand the intricacies of how financial markets operate and the consequences of certain policy decisions.
+ - Banks also have to say no to customers. We can’t always give clients what they want; it may not be in the client’s best interest.
+ - One of the issues with some of these lenders is going to be, where will their provider of credit be when there’s a crisis? That’s why some of these smarter services, to support their operations, are courting more permanent capital. They want a source of longer-term funding that can survive a crisis.
+ - If you have the choice, it’s far better to say, “That person has the job, and they really don’t need that much of my oversight.” Maybe they don’t need any of it.
+ - Just because you have a good hand today doesn’t mean it’s good tomorrow. And some of the things we’re doing may become very disadvantageous at some point.
+ - I’m not going to name anybody, but I think there are about five to 10 global institutions that will emerge as our primary competitors across the board. They’re adjusting to this new world, like we are.
+ - The transaction reflects our disciplined strategy of investing capital in core businesses where we can leverage scale and expertise for competitive advantage. In addition to being a great strategic fit, the deal is compelling financially.
+ - I think what you’ve seen them do recently in the markets is what most of us learn doesn’t ultimately work. But I think everyone has to figure that on their own.
+
+68 quotes

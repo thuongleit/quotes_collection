@@ -1,0 +1,27 @@
+ - The only thing that stops a bad guy with a gun is a good guy with a gun.
+ - Here’s a summary for the time or attention challenged: Never surrender freedom for laws that can’t affect criminals; they disobey laws for a living.
+ - The presence of a firearm makes us all safer.
+ - We cannot make ourselves safer by making ourselves less free.
+ - One hundred percent of the time, no plea bargain, no bail, you’re going to the penitentiary – – that will change the atmosphere in this culture of violence the president talks about, .
+ - Guns don’t kill people. Video games, the media and Obama’s budget kill people.
+ - Laws can’t control the lawless.
+ - I think every school needs a protection plan with a either police officer or certified armed security.
+ - Freedom is never an achieved state; like electricity, we’ve got to keep generating it or the lights go out.
+ - We think it’s reasonable to provide mandatory, instant criminal background checks for every sale at every gun show. No loopholes anywhere for anyone.
+ - Isn’t fantasizing about killing people as a way to get your kicks really the filthiest form of pornography?
+ - For someone attacked by criminals to be victimized a second time by a second-guessing legal system is wrong.
+ - There exists in this country, sadly, a callous, corrupt and corrupting shadow industry that sells and stows violence against its own people through vicious and violent video games.
+ - The danger isn’t that Big Brother may storm the castle gates. The danger is that Americans don’t realize that he is already inside the castle walls.
+ - We, the American people, clearly see the daunting forces we will undoubtedly face: terrorists, crime, drug gangs, the possibility of Euro-style debt riots, civil unrest or natural disaster.
+ - If it’s crazy to call for putting police and armed security in our school to protect our children, then call me crazy.
+ - We need to have every single school in America immediately deploy a protection program proven to work – and by that I mean armed security.
+ - What we’ve seen in Louisiana – the breakdown of law and order in the aftermath of disaster – is exactly the kind of situation where the Second Amendment was intended to allow citizens to protect themselves.
+ - I think the air is out of the gun control balloon, and I think what popped the balloon is politics and elections.
+ - I don’t think you should have firearms where people are drinking.
+ - Everybody, every American starts to have – needs to start having a security plan. We need to be able to protect ourselves.
+ - The Democratic National Committee is virtually 100 percent anti-firearms ownership, and the Republican National Committee stands on the side of the freedom.
+ - Hillary Rodham Clinton will bring a permanent darkness of deceit and despair forced upon the American people to endure.
+ - Lawful residents of San Francisco are being stripped of their freedom because of an illegal measure that defies common sense. I believe that we will prevail.
+ - Law-abiding people need to be able to own firearms to protect themselves.
+
+25 quotes

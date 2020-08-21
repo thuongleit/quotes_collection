@@ -1,0 +1,34 @@
+ - Everyone has an addiction, mine happens to be you.
+ - Australia is about as far away as you can get. I like that.
+ - What’s cooler than being cool?
+ - Sometimes nostalgia is a cage.
+ - Nothing lasts forever, so what makes love the exception.
+ - I think a lot of African-American kids don’t have fathers to teach them how to dress, so you end up being taught by pictures in magazine and movies. You see cowboys, Indians, old Hollywood films, Cary Grant. It has an effect on you.
+ - I don’t freestyle, but when I’m writing and thinking, sometimes things pop up – that’s basically a freestyle.
+ - I’m a thinker; I think too much. So for me to freestyle rap, it’s like I’m thinking three, four time steps ahead, and I hate it.
+ - If models are made for modeling, thick girls are made for cuddling.
+ - I rarely drink, I don’t smoke, so my vice is probably creating. I’m addicted to creating. And women.
+ - I had six silly tattoos done when I was young and I bitterly regret them. I’ve thought about laser surgery, but that leaves a scar, so I’m just leaving them.
+ - I think it’s real important to show style now. The majority of style right now is to act like you don’t have style at all, so most companies are getting rich off clothes that look torn, clothes that look worn.
+ - But I am a lover of all kinds of art. And I just can’t stick to one thing. I guess I could if I made myself, but I’d always be looking the other way, for other things.
+ - To be honest, I don’t necessarily think you have to be an actor to act. You don’t have to be a musician to make great music. If it comes along and you put your all into it, the outcome is what’s important.
+ - I’m a vegan, but I like to look good, too.
+ - Those people online are analyzing everything both of you do. Andre, every new song you’re on gets scrutinized.
+ - Sometimes your fans are way deeper than you are. They think you meant something like this big power-of-the-world thing that you said, but really you were just trying to find a word to rhyme with another word.
+ - As a rapper, your verses are like a window in to who you are.
+ - I just try things. And the things I like, sometimes they work, and sometimes they don’t. You can look at pictures where I just look terrible. But the older I get, the more I know what works. It’s for the better.
+ - When I’m shooting a film, I don’t look at playback. I don’t go and do a scene and then hurry up and watch what I just did. I never look at it so I haven’t seen any of it.
+ - The rap game has to save itself. Everybody’s saving it. People like Lil Wayne is saving it. He’s bringing energy to it.
+ - People see you on screen and they like you, but they never really get a chance to meet you. When you’re doing music, you know you have to go sit at in-stores, and you’re actually in the street, so there’s more of a hands-on kind of thing.
+ - Look at Scottish guys wearing kilts – you could look at them and laugh, but the way they carry themselves, how can you? You can wear some of the weirdest things and be cool. If you believe in it, that’s what makes it cool.
+ - I’ve learned that I’m most powerful when I’m doing my art.
+ - You look in the mirror everyday and you see the same thing. As an entertainer, you wanna see something new.
+ - I’m a fan of making things that I’ve seen but couldn’t purchase, or things I bought that didn’t fit the way I like.
+ - With music, you can portray a certain thing, but in film, sometimes you have to let yourself go to a point where that can be attractive to a person, that you’re willing to let yourself go that much. It works both ways.
+ - It’s harder to be a success, globally, and be artistic. Harder to have that balance than just to be artistic when nobody understands you.
+ - If you look at old football pictures, the jerseys were hanging, the sleeves were dangling, but now everything is tucked and tailored.
+ - A lot of people think that you easily get roles because you do music. I mean, you could knock on the door faster than anybody, but it doesn’t necessarily get you in...
+ - When the OutKast sound changed and I started producing my own records, I would mirror what I thought that character doing that music would look like. As the sound got a little wilder, freakier and funkier, so did the clothes. Then when the sound got more sophisticated, the clothes changed again.
+ - As a rapper, I don’t freestyle. I used to freestyle when I used to get drunk, and it didn’t matter.
+
+32 quotes

@@ -1,0 +1,82 @@
+ - Anything worth having is worth fighting for.
+ - Celebrate the success of others. High tide floats all ships.
+ - Don’t dare a person who has nothing else left to lose.
+ - What are you gonna do, angel face? Stab me with your eyebrow pencil?
+ - Pride had kept her running when love had betrayed her.
+ - Chasing after a guy who’s not interested in you will rip the hell out of your self-respect. Better to face facts now because the longer you put it off, the harder it’ll be.
+ - If you were a sane woman, I would, of course, behave in a more rational fashion. Since you are a lunatic, however, this is the only way.
+ - Losing isn’t as bad as not fighting at all.
+ - I married a damned cereal killer.
+ - You have a college degree? You can barely talk.
+ - She’s as plastic as you are. If you ever have kids, they’ll come out of the birth canal with Fisher-Price stamped on their butts.
+ - There’s nothing sexier in a man than intelligence.
+ - I love you, Daisy. I love you so much I hurt.
+ - Mummy’s coming home late tonight. It’ll be just we guys, so we can get drunk and watch porn.
+ - If you think I’m going to cry all over your chest because you don’t feel the same way, you’re wrong. I don’t beg for anybody’s love.
+ - You’re the most important thing in the world to me. I know you don’t believe it, but I’m going to prove it to you.
+ - Why don’t I just hand you my panties and be done with it.
+ - If you want me, you’ll have to earn me. And, mister, I don’t come cheap.
+ - Gracie: You have an unusual house. Have you lived here long? Bobby Tom: A couple of years. I don’t much like it myself, but the architect is real proud of it. She calls it urban Stone Age with a Japanese Tahitian influence. I sort of just call it ugly.
+ - I happen to be immature, undisciplined, and self-centered, pretty much a little boy in a man’s body, although I’d appreciate it if you didn’t quote me on that. -Bobby Tom.
+ - I’m not living in the shadows anymore. I want to walk in the sun. But I can’t do that without you.
+ - You can’t do extraordinary things in the world if you’re spending time criticizing others because they don’t look or behave the way you think they should.
+ - We’re all works in progress, honey. And believe me when I tell you that I’ve had to work harder than most.
+ - You try spending six months sitting at somebody’s bedside, waiting for them to die and then tell me that the happy-ending love story isn’t one of God’s good gifts.
+ - Here’s the life lesson I’ve learned, Fifi: Some people are born to play the hero, and some are born to play the bad guy. Fighting your destiny only makes life harder than it needs to be. Besides, people remember the villain long after they’ve forgotten the hero.
+ - Don’t mess with me, Calvin. You’ll only get hurt.
+ - Fear goes hand-in-hand with artistic creation, and no amount of success will make the fear go away entirely.
+ - Try to live with a generous heart. Doing anything else is too hard.
+ - Something brushed his leg, and he gazed down into the face of Pippi Tucker. The theme from Jaws raced through his head.
+ - Did anybody tell you that you’re a few french fries short of a Happy Meal?
+ - When you’ve been around a snake long enough, you learn how to crawl in the dirt.
+ - His writer’s words poured over her like poetry, and she couldn’t find a single wisecrack to put up between them.
+ - Nobody else can demean me. I can only demean myself.
+ - I’m just very, very slow. I would not make it as a journalist, I’ve got to tell you. I sweat bullets over every sentence, and sometimes, you know, a day will pass and I’ve written one paragraph, and I’ve been at the computer for four hours.
+ - I finally figured out that not every crisis can be managed. As much as we want to keep ourselves safe, we can’t protect ourselves from everything. If we want to embrace life, we also have to embrace chaos.
+ - I don’t care how much evidence the state presented. I’ve never for one moment believed he murdered that waitress.
+ - I don’t need to be fixed anymore. That job’s already been done. I love you, Annabelle. -Heath Champion-.
+ - It was a kiss made in lonely dreams. A kiss that took its time. A kiss that felt so right she couldn’t remember all the reasons it was wrong.
+ - You remind me of someone with a bad toothache who’s hitting herself in the head with a hammer to distract herself from the pain in her mouth.
+ - There’s no accounting for the mysteries of the human heart.
+ - It runs in the family. And don’t expect me to be ashamed. Yankees lock away loony relatives, but down here, we prop ’em up on parade floats and march ’em through the middle of town.
+ - Now, now. Southern ladies don’t French-kiss and tell.
+ - As far as I’m concerned, men like you were put on this world to entertain women like me.
+ - I hate to admit this, but some days hearing about other people’s problems actually cheers me up.
+ - When it’s your fourth marriage, you tend to lose faith in superstitions.
+ - If I told you, you might be forced to lie about it. Not that you aren’t really good at it, but why put an old man in that position?
+ - When male authors write love stories, the heroine tends to end up dead.
+ - Hey, everybody, Jerry Maguire’s here.
+ - I write romance, women’s fiction, chicklit. I think it all fits very comfortably under the same umbrella. Basically, I write books for women – books about relationships, books that make you laugh and sometimes make you cry a little.
+ - In case you still haven’t figured it out, he loves you. Your tiger will be back in the morning, and you can thank me anytime. Now, do I have to paint another picture for you, or do you think you can take it from here by yourself without screwing up?
+ - A villain always preferred luring the heroine to his lair.
+ - Disagreements over money are the biggest cause of divorce.
+ - Librarians and romance writers accomplish one mission better than anyone, including English teachers: we create readers for life – and what could be more fulfilling than that?
+ - Writing is hard for everybody except fools.
+ - If I could put my brain in her body, the world would be mine for the taking.
+ - She reached into the pocket of her dress and threw the small stack of bills at him. They fluttered to the ground like broken dreams. “I hope you choke on every penny.” “Pick that up.” She drew back her arm and slapped him as hard as she could.
+ - Okay, so I’ll admit I’m curious. Big deal. We both know what that leads to. Dead cat.
+ - Who needs food? Your smile alone is enough to nourish me for weeks.
+ - He settled his hat back into position. She was a rookie in her first big game, and he’d never let her see how close she’d come to unseating a champion.
+ - Be the best at what you’re good at.
+ - Everybody’s afraid of something.
+ - Sugar Beth detected the movement and shot him a look that challenged not only his manhood but also his very right to exist on the planet.
+ - Everybody won’t like everything you write. Some people won’t like anything you write. Get over it.
+ - He should have seen this coming, but he hadn’t. Of course she wouldn’t want to move back to Wynette after everything that had happened to her there. But what about his family, his friends, his roots, which stretched so deep into that rocky soil he’d become part of it?
+ - My website bulletin board is the place I interact with my readers.
+ - Old radicals never changed. They just got law degrees and updated their bag of tricks.
+ - Honey lamb, there are a lot of things in this world I feel insecure about. Religion. Our national economic policies. What color socks to wear with a blue suit. But I’ve got to tell you that my performance in that hotel room last night isn’t one of them.
+ - Be quiet, or I swear to God I’ll take you right here.
+ - For a moment he could have sworn he smelled violets, which was very peculiar, since he had no idea what violets smelled like, except somehow he knew they smelled just like Lady Emma.
+ - I take every opportunity I can to speak to librarians.
+ - I always want to try to bring something fresh to every book. It’s getting harder instead of easier. I feel like I work harder with each book. But I don’t want it to show on the pages, that’s for sure.
+ - E-mail creates the illusion that you’re writing. You’re not.
+ - Bobby Tom: You’re supposed to be my assistant, not a baby-sitter! Gracie: One and the same.
+ - Was there some basic flaw in her makeup that made her keep falling in love with this man who couldn’t love her back?
+ - I write about the men you want to read about but don’t necessarily want to be married to.
+ - I can’t chitchat and make breakfast at the same time. You could help, you know, instead of standing there like the Queen of England. Although you’re a lot better-looking.
+ - Dallas, is it remotely possible for you to carry on a conversation that’s not loaded down with manure?
+ - At some point people either had to throw off the wounds of their childhood or go through life permanently crippled.
+ - He could deal with his guilt all by himself. Guilt didn’t add up to love, an emotion she was done with forever.
+ - The final cover for Heroes Are My Weakness feels exactly right. It reflects the cold, wintry setting of an isolated island off the coast of Maine and the feisty spirit of a heroine who refuses to give up, even when the odds are stacked against her.
+
+80 quotes

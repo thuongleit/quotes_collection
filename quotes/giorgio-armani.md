@@ -1,0 +1,61 @@
+ - I love things that age well – things that don’t date, that stand the test of time and that become living examples of the absolute best.
+ - Elegance is not catching somebody’s eyes, it’s staying in somebody’s memory.
+ - The difference between style and fashion is quality.
+ - Elegance doesn’t mean being noticed, it means being remembered.
+ - Acknowledge the elegance of simplicity.
+ - Remain true to yourself and your philosophy.
+ - Emphasize comfort without compromise.
+ - I like to think that I can introduce people to the idea of simplicity and elegance.
+ - The human body is something that I truly love, above all else.
+ - There are so many things to take into account – your ambition, your ego, the press, the consumers. You can never be sure that you’ll be on top of the pile again.
+ - The world is changing and so is fashion.
+ - If people want to change, they will. If they don’t want to, it’s hard to make them do so. The current interest in the environment is a good thing. The best way to make a contribution in fashion is to promote the idea that a fundamental interest in preserving the environment is itself fashionable.
+ - The confident artist is a fool.
+ - I wanted to dress the woman who lives and works, not the woman in a painting.
+ - A perfume is more than an extract it is a presence in abstraction. A perfume, for me, is a mystique.
+ - From the elitism of luxury to the democracy of beauty.
+ - Being famous very often means sacrificing your privacy and that of others. You have to impose on those close to you a pace and lifestyle that might be a bigger sacrifice for others than it is for you.
+ - Accessories are important and becoming more and more important every day.
+ - My success was also owed to career women who maybe had big legs or ample thighs, who felt well-protected by my fluid clothing that hid their flaws.
+ - I was an observer. I liked to listen rather than openly express myself. This trait is something that I’ve retained over the years.
+ - The secret is to remain true to your aesthetic vision, so that people can see that you really believe passionately in what you are doing. That way, they can relate to your style. At the same time, you experiment-you try new things.
+ - I don’t like women who follow fashion in the sense of becoming victims of it. I like women who have elegance, who have allure, who use fashion, rather than the other way around.
+ - When I was younger, I never laughed. I was always sour. If I look at pictures of me from the past, I never see a smile. I think it came out of my insecurity. I had a lot of complexes.
+ - I think that everyone has the right to fall in love at any age. But in life you have to learn how to control your emotions. You must know self-discipline.
+ - A woman should always dress to be remembered, not simply to be noticed.
+ - Never in my wildest dreams did I entertain the idea that I would become a fashion designer.
+ - My philosophy has always been to help women and men feel comfortable and confident through the clothes they wear.
+ - Eliminate the superfluous.
+ - Individual style is the correct balance of knowing who you are, what works fro you, and how to develop your own personality.
+ - I’ve always worked. I have always been too responsible. But I don’t know how to live any other way. I think that this discipline was also demanded of me by my work.
+ - In the beginning, I thought that women needed protection, on a style level, to have the right impact to let them realize their desire for success. Now, many years later, women no longer need a masculine uniform. Women have changed.
+ - There are always protests, whether you do something good or bad. Even if you do something beneficial, people say you do it because it’s advertising.
+ - The essence of style is a simple way of saying something complex.
+ - I didn’t have a happy childhood.
+ - Style is having the courage of one’s choices and the courage to say no. It’s good taste and culture.
+ - It is difficult to talk about fashion in the abstract, without a human body before my eyes, without drawings, without a choice of fabric – without a practical or visual reality.
+ - Why do I put myself in a position to be cast aside or not considered as I would like to? Because I am a creative mind, because I still aspire to be one.
+ - The creative universe begins with its essentiality, and, whatever path the imagination takes, ends with its purity.
+ - Remain true to yourself and your philosophy. Changing in the face of adversity will in fact diminish your credibility with your customers.
+ - War taught me that not everything is glamorous.
+ - I design for real people. I think of our customers all the time. There is no virtue whatsoever in creating clothing or accessories that are not practical.
+ - Anyone who is passionate about what they do will have a better chance of connecting with future generations than those who simply follow transient trends. At least their work will have a distinctive character, and this is what people respond to, I believe.
+ - You have to have doubts. I have collaborators I work with. I listen and then I decide. That’s how it works.
+ - Working with Cate Blanchett, on and off the screen, has always been a highlight for me. She embodies the perfect combination of consummate actor and world-class fashion icon.
+ - The goal I seek is to have people refine their style through my clothing without having them become victims of fashion.
+ - For me, couture is the kingdom of imagination, creativity and experimentation, and this is how I approach it. I do, however, remain pragmatic and realistic.
+ - It would be very hard for me to do things somebody else’s way.
+ - China approaches fashion with strong enthusiasm. And I believe that this enthusiasm can be translated into something interesting, economically speaking. Not only for my brand, but also for other brands.
+ - I’ve tried to find a new elegance. It’s not easy because people want to be shocked. They want explosive fashion. But explosions don’t last, they disappear immediately and leave nothing but ashes.
+ - My strong sense of discipline has always been with me, and it also gave me the need for deep affection. I have never been satisfied with acquaintances who are superficial, volatile, or quick to change. I have surrounded myself with people with whom I am in total complicity.
+ - I know that people who have been closely involved with my work for many years are terrified of having to answer to someone else, someone who is not me, and that it won’t be me to help them in their problems. This is my real problem.
+ - Movies always fascinated me. They are an endless source of inspiration. There are countless images by great directors that made a profound impression on me, and I see film as a sublime example of teamwork.
+ - I find that fashion recently has been a little too hasty. Often times, it’s put together quickly to catch the attention of the media, and I didn’t want to do that.
+ - I sensed that women wanted to be a little different. My fluidity gave them a way of interpreting their bodies in a more personal, individual way.
+ - Luxury is obviously the direction that interests me the most, but there is a lot of confusion between luxury and exhibitionism. For me, the concept of luxury is more traditional, more exclusive, more sophisticated than luxury for the masses.
+ - Anyhow, even though I have this home theater, I love going out to the movies. Movies are meant to be experienced together.
+ - When I go on my boat or to my vacation houses, where I still unfortunately spend very little time, I don’t go with the celebrities I know but with a close group of friends and people who have worked with me for a long time.
+ - I believe that my clothes can give people a better image of themselves – that it can increase their feelings of confidence and happiness.
+ - Remember that, in the end, the customer doesn’t know, or care, if you are small or large as an organization – she or he only focuses on the garment hanging on the rail in the store.
+
+59 quotes

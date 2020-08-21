@@ -1,0 +1,312 @@
+ - Leaders who refuse to listen, will eventually be surrounded by people who have nothing helpful to say.
+ - We don’t drift into good directions. We discipline and prioritize ourselves there.
+ - Your friends will determine the quality and direction of your life.
+ - Direction, not intention determines your destination.
+ - Your greatest accomplishment may not be something you do but someone you raise.
+ - Vision is a mental picture of what could be, fueled by a passion that it should be.
+ - Next generation leaders are those who would rather challenge what needs to change and pay the price than remain silent and die on the inside.
+ - Greed is not a financial issue. It’s a heart issue.
+ - Success is remaining faithful to the process God has laid out for you.
+ - Lord, give me the wisdom to know what’s right and the courage to do what’s right-even when it’s hard.
+ - The value of a life is always measured by how much of it is given away.
+ - When your memories exceed your dreams, the end is near.
+ - Giving up something now for something better later is not a sacrifice. It is an investment.
+ - Creating breathing room financially may lower your standard of living but raise your quality of life.
+ - Where there’s no progress, there’s no growth. If there’s no growth, there’s no life. Environments void of change are eventually void of life.
+ - If a man can predict his own death and resurrection, and pull it off, I just go with whatever that man says.
+ - Do for one what you wish you could do for everyone.
+ - Priority determines capacity.
+ - If we want to reach the people that no one else is reaching, we’ve got to do things that no one else is doing.
+ - Stop looking for solutions to problems and start looking for the right path.
+ - Leadership is stewardship, it’s temporary and you’re accountable!
+ - God’s extravagant generosity toward us compels us to be extravagantly generous toward others.
+ - To be the best next-generation leader you can be, you must enlist the help of others. Self-evaluation is helpful, but evaluation from someone else is essential. You need a leadership coach. Coaching enables a leader to go further faster.
+ - Jealous leaders measure their success by the failure of others.
+ - A good coach always coaches to a leader’s potential, not his current level of performance. A good leadership coach will see the potential in you and inspire you accordingly.
+ - What breaks your heart is part of a divine design to bring change!
+ - Past boldness is no assurance of future boldness. Boldness demands continual reliance on God’s spirit.
+ - Jesus is the hope of the world and the local church is the vehicle of expressing that hope to the world.
+ - Whenever there is fear, there is opportunity. When there is great fear, there is great opportunity.
+ - Your devotion to God is illustrated, demonstrated, and authenticated by your love for others.
+ - Greed is the assumption that it is all for my consumption.
+ - Only do what only you can do.
+ - You have no idea what hangs in the balance of your decision on what to do with the burden God put in your heart.
+ - You make PEACE with your past by owning your PIECE of the past.
+ - God uses broken-hearted leaders.
+ - Where there is no uncertainty, there is no longer the need for leadership. The greater the uncertainty, the greater the need for leadership. Your capacity as a leader will be determined by how well you learn to deal with uncertainty.
+ - As counterintuitive as it seems, generosity begins wherever you are. It is important to make generosity a priority.
+ - Will I allow my fear to bind me to mediocrity?
+ - One of the most difficult tasks of visioneering is distinguishing between good ideas and God ideas.
+ - If you feed an appetite, it grows. Satisfying an appetite does not diminish it. It expands it. To diminish an appetite, you have to starve it.
+ - The more conscious I am of the work God has yet to do in me, the less critical I am about what he has yet to do in you.
+ - The Church must stop expecting outsiders to act like insiders while insiders act like outsiders.
+ - Jesus did not come to strike a balance between grace and truth. He brought the full measure of both.
+ - Purpose should determine approach. At the end of the day, it’s what we do, not what we purposed to do, that defines our lives and reputations.
+ - Do you think God can be trusted? Or do yo think you need to take things into your own hands?
+ - Everything now will prepare you for the next step. Don’t run from adversity; lean into it with all your heart and God will make you a leader worth following.
+ - People who blame things rarely change things. Blame is an unassailable change-avoidance strategy.
+ - Dreamers dream about things being different. Visionaries envision themselves making a difference.
+ - At the end of the day, God’s love for me, for you, and for the world is settled at the cross.
+ - The Church is a family expecting guests.
+ - The greatest motivator of change is a crystal-clear vision of what the future should look like.
+ - If you’re a Christian you can’t have an “I’m better than” attitude toward anyone because everybody is somebody for whom Jesus died.
+ - It takes a habit to break a habit. You can pray every day for a generous heart, but until you start acting in that direction, nothing’s going to change.
+ - What is your one-sentence job description?
+ - To understand why, submit and apply.
+ - What is this generation of students worth? It’s worth everything.
+ - Here’s something to think about: If God appeared to you and asked, “Why should I let you into heaven?” how would you answer?
+ - Resources follow vision.
+ - Courage is essential to leadership.
+ - The insecure leader will interpret critical thinking as critiscism.
+ - People without clear vision are easily distracted, have a tendency to drift from one idea to another and often make foolish decisions that rob them of their dreams.
+ - Money comes, money goes. But your story stays with you the rest of your life.
+ - What God originates, God orchestrates.
+ - There are many things I can do, but I have to narrow it down to the one thing I must do. The secret of concentration is elimination.
+ - Guilt rarely results in positive behavior. But gratitude? Great things flow from a heart of gratitude.
+ - I believe one of the best preparations for marriage is participating in a small group. If a person has learned to be intimate and honest with a few friends before they get married, they will have less reason to fear intimacy after they are married.
+ - Leaders fix things that are broken.
+ - It doesn’t really matter what time it is if you haven’t determined what to do with your time.
+ - Your character is who you really are.
+ - I can’t make people fall in love with Jesus, but I can arrange dates.
+ - People pray in one direction but they walk in a different direction, and direction always determines where we end up.
+ - Authority does not equal competency. Pass decisions down to those who can best handle them.
+ - Leadership is not always about getting things done ‘right.’ Leadership is about getting things done through other people.
+ - A leader should never risk their ability to make a difference by making an unnecessary point.
+ - This is why we give up on things that break our heart because it requires change.
+ - Somehow, what’s in our hearts, good or bad is eventually translated into words and deeds.
+ - Your response to opportunities, adversities and calling, determine the type of leader you become.
+ - Divine direction begins with unconditional submission.
+ - Jesus healed people one at a time because God cares about individual people.
+ - When you start thinking you’re a big shot, you wash more feet.
+ - The God of Christianity never claims to be fair. He goes beyond fair. The Bible teaches that he decided not to give us what we deserve- that’s mercy. In addition, God decided to give us exactly what we didn’t deserve- we call that grace.
+ - One of the exciting things about being a believer is watching God unveil His plan for our lives.
+ - There is no cramming for a test of character. It always comes as a pop quiz.
+ - Actions don’t only speak louder than words; actions should be used to interpret words.
+ - You will never maximize your potential in any area without coaching. It is impossible. You may be good. You may even be better than everyone else. But without outside input you will never be as good as you could be.
+ - Acknowledging weakness doesn’t make a leader less effective. On the contrary, in most cases it is simply a way of expressing that he understands what everyone else has known for some time. When you acknowledge your weaknesses to the rest of your team, it is never new information.
+ - Nothing has stolen more dreams, dashed more hopes, broken up more families, and messed up more people psychologically than our propensity to disregard God’s commands regarding sexual purity.
+ - No matter how rich or poor you might feel, right now is the time to be generous.
+ - The more you expect from a volunteer the more you get.
+ - Pencil in your plans but write your visions in ink.
+ - If you capture someone’s heart, you will eventually get his hands and feet as well.
+ - Appetites have only one word in their vocabulary – MORE. Appetites are never fully and finally satisfied. Even after the most satisfying meal imaginable, we eventually find ourselves rummaging through the pantry for a snack.
+ - Rebellion never goes without consequences.
+ - The sermon begins in the parking lot.
+ - Progress requires change.
+ - As long as you are carrying a secret, as long as you are trying to ease your conscience by telling God how sorry you are, you are setting yourself up to repeat the past.
+ - When Nehemiah’s heart was broken he paid attention to his broken heart.
+ - Try to do for the next generation of church leaders what the previous generation of church leaders has not done for you.
+ - Our fear of not mattering much has the potential to draw us away from what matters most.
+ - People do not plan to mess up their lives. They just don’t plan not to.
+ - Leaders are made one response at a time.
+ - Without courage we will simply accumulate a collection of good ideas and regrets.
+ - The health of your marriage tomorrow will be determined by the decisions you make today.
+ - I’ve concluded that while nobody plans to mess up their life, the problem is that a few of us plan not to. That is, we don’t put the necessary safeguards in place to ensure a happy ending.
+ - When you make giving a priority, something happens inside of you. Especially when it’s financially challenging to do so. It’s like you loosen your grip on a value system whose motto says, “Money is the key to life and happiness and safety.”
+ - When happiness points in one direction while wisdom, truth, integrity, and common sense point in another, that’s when really smart people start doing really stupid things.
+ - Leadership is all about taking people on a journey. The challenge is that most of the time, we are asking people to follow us to places we ourselves have never been.
+ - Saying a prayer won’t make you a Christian. Placing your faith in Christ as your savior makes you a Christian.
+ - You can’t resist the will of God and receive the grace of God at the same time.
+ - A single act of courage is often the tipping point for extraordinary change.
+ - The goal of leadership is not to eradicate uncertainty but rather to navigate it.
+ - The root of anger is the perception that something has been taken. Something is owed you, and now a debt to debtor relationship has been established.
+ - We hurt most who we love the most. Bad grammar, painful truth.
+ - Don’t strive to be a well-rounded leader. Instead, discover your zone and stay there. Then delegate everything else.
+ - It’s OK to offend people with the Gospel, but, good grief- let’s don’t offend them with something else.
+ - If you don’t clarify your goal, you’ll never identify the best approach.
+ - Yes, God uses the uneducated to confound the wise. But that doesn’t make ignorance a virtue.
+ - No matter how much money we have or make, we will probably never consider ourselves rich. The biggest challenge facing rich people is that they’ve lost they’re ability to recognize that they’re rich.
+ - Our culture highlights all the trouble, all the drama, all the affairs and all the junk. Do not believe for a minute that any of that reflects reality. That does not have to be your future. The handwriting is not written on the wall.
+ - There is an appropriate way to use your story, not as an excuse but as a testimony to God’s ability to free you from the past.
+ - Two primary ways to keep volunteers motivated – Food and T-shirts.
+ - When I count other people’s blessings I lose sight of mine.
+ - A fool is a person who knows the difference between right and wrong, and chooses to do wrong.
+ - Two things make a relationship providential: when we hear from God through someone and when we see God in someone.
+ - There is something insincere about a man or woman who repeatedly tells God how much he or she loves Him while refusing to obey Him.
+ - Good excuses rarely collect dust. We use them, and use them, and use them.
+ - Success means your options multiply. Size increases complexity, and complexity can confuse vision.
+ - When people are convinced you want something FOR them rather than something FROM them, they are less likely to be offended when you challenge them.
+ - I’ve talked to many individuals who want to discuss their problems. But they don’t really have problems. They have chosen to live in the wrong direction. They don’t need a solution. They need a new direction.
+ - You can’t influence people you refuse to associate with.
+ - Every arena of life intersects with what’s going on in our hearts. Everything passes through on its way to wherever it’s going. Everything.
+ - Leaders, if you allow wonder to shut down in you, you will shut it down in everyone around you.
+ - Leaders love progress.
+ - Learning never takes place while you’re talking.
+ - You are where you are because the generation before you paid attention to their broken heart.
+ - The primary reason we do too much is that we have never taken the time to discover that portion of what we do that makes the biggest difference.
+ - Be who you are. But be the very best communicator you can possibly be. To do that you must be willing to sacrifice what’s comfortable-what has become part of your style-for the sake of what is effective.
+ - Communicators need to figure out how well do they engage people, and they should not talk one word longer than people are engaged.
+ - Leaders make things better and that requires change.
+ - Spiritual maturity is measured in terms of persevering faith, not perfect behavior.
+ - In leadership there are always problems to be solved and tensions to be managed. When you try to solve a tension, you create a problem.
+ - Devoting a little of yourself to everything means committing a great deal of yourself to nothing.
+ - God doesn’t want to take your money. He just doesn’t want your money to take you.
+ - Greed is supported by an endless cast of what-ifs. Greedy people can never have enough to satisfy the need they feel in light of every conceivable eventuality.
+ - Selfless, generous, compassionate living is unassailable.
+ - The moment a leader steps away from his core competencies, his effectiveness as a leader diminishes.
+ - A good coach will evaluate your performance against your potential. A coach helps you measure your performance against your strengths instead of against someone else’s. A coach will know what you are capable of and will push you to your limit.
+ - Blessed is the man who gets the opportunity to devote his life to something bigger than himself and who finds himself surrounded by friends who share his passion.
+ - In the shadow of my hurt, forgiveness feel like a decision to reward my enemy. But in the shadow of the cross, forgiveness is merely a gift from one undeserving soul to another.
+ - Here’s a question every angry man and woman needs to consider: How long are you going to allow people you don’t even like – people who are no longer in your life, maybe even people who aren’t even alive anymore – to control your life? How long?
+ - Loyalty publicly results in leverage privately.
+ - If you’re not looking forward to church this morning perhaps it’s time to look for a church.
+ - People are not on a truth quest; they are on a happiness quest. They will continue to attend your church – even if they don’t share your beliefs – as long as they find the content engaging and helpful.
+ - Jesus doesn’t take sides; He takes over.
+ - Who are you and what breaks your heart?
+ - As your organizational authority increases, your organizational IQ decreases.
+ - Your talent and giftedness as a leader have the potential to take you farther than your character can sustain you. That ought to scare you.
+ - Complexity is the enemy of clarity.
+ - Vision rarely require immediate action. It requires patience.
+ - Grace is inviting to the unrighteous and threatening to the self-righteous.
+ - Peace is a fruit of the Spirit, not the byproduct of accumulated wealth.
+ - Fixing things requires change and change always creates conflict. But that is why you are a leader.
+ - For reasons known only to him, God has chosen to work through men and women who are willing to make sacrifices for the sake of the “thing” he has placed in their hearts to do. If God bas birthed a vision in you, it is only a matter of time until you will come upon the precipice of sacrifice.
+ - I’m concerned about the plight of children. But I’m not on a mission to get all the available orphans in the world adopted into Christian homes.
+ - The more successful you are the less accessible you will become.
+ - You won’t take risk without courage.
+ - Every time I stand to communicate, I want to take one simple truth and lodge it in the heart of the listener. I want them to know that one thing and know what to do with it.
+ - Celebrate what God has given others. Leverage what God has given you.
+ - Blame is a change-avoidance strategy.
+ - Asking doesn’t mean you lack wisdom – it’s evidence of wisdom.
+ - Personal Vision is often the catalyst for wise decisions.
+ - As leaders, we are never responsible for filling anyone else’s cup. Our responsibility is to empty ours.
+ - My high school science teacher once told me that much of Genesis is false. But since my high school teacher did not prove he was God by rising from the dead, I’m going to believe Jesus instead.
+ - As a believer just because you gain more fame or authority doesn’t mean anything, this means you have more feet to wash.
+ - One never accomplishes the will of God by breaking the law of God, violating the principles of God, or ignoring the wisdom of God.
+ - Generosity helps us make a concerted effort to keep the needs of others in the forefront of our thinking. Not for guilt’s sake, but for the sake of being good stewards of the resources we have been privileged to manage.
+ - Most of us are married to a model of ministry and we flirt with the Great Commission.
+ - Being a sinner does not disqualify you from following Jesus. It’s a prerequisite.
+ - As you give to fund God’s needs, are you forced to trust Him to provide for yours? That’s what a growing faith is about. And over the long haul, it’s not enough just to commit to a percentage. Growth means reviewing your giving goals and occasionally increasing the percentage you give.
+ - Forgiveness is simply a decision to cancel a debt.
+ - Vions are born in the soul of a man or woman who is consumed with the tension between what is and what could be.
+ - Most of us wake up every day and make decision that will make us happy, and generally decisions that will make us happy right then in the moment or that day. We are not really on a truth quest.
+ - What percentage should you give? I tell people to start with 10 percent because the Bible writers have a lot to say about the tithe, which means, “tenth.” For some people, that’s extremely uncomfortable. But so is a colonoscopy, and those save countless lives.
+ - If you don’t conquer your fear, you are going to miss out on some great things in life.
+ - In our minds, rich is always the other person, the other family. Rich is having more than you currently have. If that is the case, you can be rich and not feel it. You can be rich and not know it.
+ - Uncertainty in a leader is always magnified in the heart of the follower.
+ - Christianity teaches that when man sinned, God opted for forgiveness rather than fairness. He opted for grace and mercy rather than justice.
+ - Jesus raised the standard high so we would realize we couldn’t possibly do it without a savior.
+ - My kids think you are always supposed to be in a small group and lead one.
+ - Preaching on Sunday mornings is such a simple thing, and by complicating it, I think we all do ourselves and the audience a disservice. It is very simple. Here is the model: Make people feel like they need an answer to a question.
+ - We rob ourselves when we make decisions in the moment with no thought of how those decisions will impact our futures.
+ - Sometimes it is the destinations out of reach that create the circumstances God uses to remind that we are never out of his reach.
+ - If we were able to rewrite the script for the reputation of Christianity, I think we would put the emphasis on developing relationships with non-believers, serving them, loving them, and making them feel accepted, only then would we earn the right to share the gospel.
+ - Generosity won’t happen unless you make it a priority. The best way to make giving a priority is to make it the very first check you write every month. Before the mortgage. Before groceries or clothing. Before saving. Whatever the amount, do it first.
+ - Grace is not reserved for good people; grace underscores the goodness of God.
+ - People are far more interested in what works than what’s true.
+ - I can go further and faster with someone coaching me than I can on my own.
+ - Here’s a scary thought: What if God called you to give beyond your comfort level? Would you be afraid? Would you try to explain it away or dismiss it as impractical? And in the process, would you miss out on a harvest opportunity for which God had explicitly prospered you in the first place?
+ - Preachers prepare with this fear: ‘Am I going to be able to fill the time?’ The audience never worries about that.
+ - Praying for revival equates to blaming God for the condition of your local church.
+ - Preaching for life changes requires far less information and more application. Less explanation and more inspiration.
+ - In a volunteer organization there has to be time for community.
+ - Nobody at home should feel like they are competing with somebody at work.
+ - If you see your brother in need, it doesn’t matter if you already gave somewhere else. You should be open to the idea of God using you to meet your brother’s unexpected need.
+ - When a plan or strategy fails, people are tempted to assume it was the wrong vision. Plans and strategies can always be changed and improved. But vision doesn’t change. Visions are simply refined with time.
+ - God, I want what you want more than I want what I want.
+ - Rich people have the potential to reach a point where they see money as the source of their safety and security.
+ - Imagine a world where unbelievers were critical of what we believed but envious of how well we treated one another.
+ - If you want to know what Jesus meant by what Jesus said, pay attention to that Jesus did.
+ - The reason we’re here today is because years ago God broke Reggie Joiner’s heart over the state of children.
+ - Something I’ve noticed. Church planters don’t pray for revival. They pray for opportunity, favor with the unchurched and leaders.
+ - Is Christianity fair? It is certainly not fair to God. Christians believe that God sent His Son to die for your sins and mine. Fairness would demand that we die for our own sins.
+ - Knowledge alone makes Christians haughty. Application makes us holy.
+ - While generosity may be the antidote for the dizzying effects of wealth, your appetite for more may function as an antidote against God-honoring generosity. Your appetite for more stuff, status, and security has the potential to quash your efforts to be generous. And that’s a problem.
+ - Any fear associated with giving to God’s kingdom is irrational. It’s on par with a farmer who, out of fear of losing his seed, refuses to plant his fields.
+ - When the house is on fire, don’t tell me what your spiritual gift is. Just grab a hose and put out the fire.
+ - The followers of Jesus did not die for what they believed – they died for what they claim to have seen.
+ - What would bring about a revival of epic proportion?
+ - Vision evokes emotion. There is no such thing as an emotionless vision.
+ - We begin selling ourselves on what we want to do rather than what we ought to do. We listen to ourselves until we believe our own lies, and the we opt for happiness.
+ - It’s ok for people to feel bad about the wrong things they’ve done.
+ - Jesus did not predict a place. Jesus predicted a people.
+ - Why create churches for 50-year-olds and let culture have the students?
+ - If you are a local church or non-profit, you live and die with volunteers.
+ - Preacher’s kids need another consistent voice in their lives over the years.
+ - The issue is: how do you engage the audience? And one of the things I talk to our communicators about is: The outline is great; the stories are great. But how do you engage them? How do you make it feel like we are on a journey, not you are just up there giving me information.
+ - We ask our volunteers, “Do you work here?” They say, “Not yet.”
+ - I want people to help me reanchor the church to undeniable, mind-boggling, culture-shifting demonstration of compassion and generosity. Because, generosity was the hallmark of the early church.
+ - Authority does not equal competency.
+ - There are some rich people who, no matter how much God sends their way, never seem to put their hope in their riches.
+ - Environments are the messages before the message.
+ - What does it say about us that we are rarely perplexed by the good things that come our way, only the bad?
+ - What breaks my heart is in the United States hundreds of thousands wake up on a Sunday and church never crosses their mind.
+ - Leaders learn to leverage the problems that never go away in a way to create progress for the organization.
+ - On day one, the Church wasn’t for church people because there weren’t any church people.
+ - It is my judgment, therefore, that we should not make it difficult for the Gentiles who are turning to God.
+ - Many years from now, what would you like people to line up and thank you for?
+ - If you want to know if I’m a Godly man, follow me home.
+ - Intervention giving is emotional and the results are measurable.
+ - Guys that preach verse-by-verse through books of the Bible – that is just cheating. It’s cheating because that would be easy, first of all. That isn’t how you grow people. No one in the Scripture modeled that.
+ - There is a big difference between being a leader and actually leading.
+ - Not the one who knows the most, but the one who loves faithfully and consistently the most, is a true follower of Jesus.
+ - Charisma on stage is not necessarily evidence of the Holy Spirit.
+ - As believers, we all have the responsibility to leverage our wealth for kingdom purposes.
+ - If your leadership isn’t all about you, it will live beyond you.
+ - We want time in with our kids not time out.
+ - Believe what you want But don’t dumb down what Jesus said.
+ - The great challenge is how to marry creativity with discipline so that discipline amplifies creativity without destroying it.
+ - Every story of change there is always someone who didn’t have the resources or the network they needed and did something anyway.
+ - Nothing is more honoring to your heavenly Father than making life decisions based upon what he has claimed about himself.
+ - One of the most compelling arguments for the Christian faith is the simple fact that it survived.
+ - If a volunteer can help us with an immediate need, we can put them in a place to make their greatest contribution.
+ - Uncertainty is a permanent part of the leadership landscape. It never goes away.
+ - How you live your life on this side of the grave determines what happens next.
+ - If there is a perceived difference between what you expect from others and what you expect from yourself, it will eventually erode your influence.
+ - It is when our hearts are stirred that we become most aware of what they contain.
+ - Leaders are all about what isn’t and what-needs-to-be be.
+ - If a leader goes with their gut, it should be after listening first to people they trust.
+ - If you’re the only hot dog stand in town, you’re hot dogs don’t have to be good.
+ - If fear causes you to retreat from your dreams, you will never give the world anything new.
+ - The church must capture and keep the minds and hearts of students.
+ - Broken-hearted leaders change things that go beyond their generation.
+ - What people pray for will tell you more than anything else whether they are locked into the vision and priorities of the church.
+ - The starting block for people who are going to stay in love is mutual submission.
+ - We’re so absorbed in the effort to get rich, we no longer recognize when we are rich.
+ - It isn’t about who is ‘for’ or ‘against’ you, it’s about who you are for.
+ - Designing and implementing a strategy for change is a waste of time until you have discovered and embraced the current reality. If you don’t know where you really are, it is impossible to get where you need to be.
+ - Uncertainty is not an indication of poor leadership; it underscores the need for leadership.
+ - Me and Sandra are thoroughly satisfied customers as parents of kids who came through this Orange model.
+ - When you harness your leadership skill to your broken heart change happens.
+ - When you acknowledge your weaknesses to the rest of the team, it is never new information.
+ - Every local church has a leader but it seems so few local churches are being led.
+ - Strange as it may sound, it is more difficult to maintain a faith walk when we begin to see our dreams come true. When hopes become realities it is easy to shift our faith onto the thing we have dreamed of and off of the One who was the source of our provision.
+ - Generosity helps us cultivate awareness of things that really matter. Opportunities that make a real difference in the world.
+ - If you’re a preacher’s kid, you see the church differently.
+ - Leadership is about uncertainty. Deal with it.
+ - You have not been called to change the world, but you have been called to change something.
+ - If we start to dumb down what has been made clear, where does that stop?
+ - Why? Why did God provide me with more than I need?
+ - Don’t be fair, be engaged.
+ - Telling someone they’re wrong is not the same as leading or inspiring them to do what’s right.
+ - You have no idea the numbers of people that God may want to influence through you.
+ - Your beliefs shape your attitudes!
+ - We always have more ideas than we can fund.
+ - We are not all leaders. We are called leaders.
+ - My hope is not in riches but in him who richly provides.
+ - The love of Christ comes from simple people who love simple people. Never be fooled by the spiritual leader who knows a lot but doesn’t love a lot.
+ - God is a God of systems and predictability and order, and God honors planning.
+ - God often showcases his power on the stage of human weakness.
+ - If it suddenly became impossible for us to cover up all the junk we normally hide from the rest of humanity, I have a feeling we would all get real motivated to deal with the source of what ails us.
+ - Blame enables us to smuggle our issues into our future.
+ - Success is an intoxicant, and intoxicated people seldom have a firm grasp on reality.
+ - There’s a monumental difference in believing in God and believing God.
+ - Jesus did not come to be right. He came to make disciples.
+ - Your leadership development strategy is perfectly designed to produce the caliber of leader you currently have.
+ - I’m not a philanthropist. While I care about the poor, the issue of local or global poverty doesn’t keep me up at night.
+ - Life is filled with problems to be solved and tensions to be managed. Sometimes it helps to know which is which.
+ - What could be and should be can’t be until God is ready for it to be.
+ - No one ever has the resources they need.
+ - Good people don’t go to heaven. Forgiven people go to heaven.
+ - You cannot communicate complicated information to large groups of people. As you increase the number of people, you have to decrease the complexity of the information.
+ - What you fear most will determine whether you merely save for the future or give for the future.
+ - If the Old and New Testament teach us anything, they teach us that nothing is too difficult for God. What he originates, he orchestrates.
+ - As a pastor, I’ve spent 30 years talking to people and heard every kind of story imaginable.
+ - T-shirts create a sense of “We”. Food says, “We don’t mind spending money on you.”
+ - The leader who refuses to move until the fear is gone will never move. Consequently, he will never lead.
+ - Jesus never allowed His theology to get in the way of His ministry.
+ - Maintaining peace with God is more important than keeping pace with someone else.
+ - Leadership isn’t making all the decisions. It is making sure the right decisions are made.
+ - A principle is a principle, and God created all the principles.
+
+310 quotes

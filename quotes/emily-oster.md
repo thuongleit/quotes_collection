@@ -1,0 +1,25 @@
+ - All’s fair in love and purchasing.
+ - For many women – myself included – pregnancy brings on tremendous anxiety and confusion, along with the joy.
+ - The key to good decision making is evaluating the available information – the data – and combining it with your own estimates of pluses and minuses. As an economist, I do this every day.
+ - Every time you have a carrot instead of a cookie, every time you go to the gym instead of going to the movies, that’s a costly investment in your health. But how much you want to invest is going to depend on how much longer you expect to live in the future, even if you don’t make those investments.
+ - Prenatal testing is a complicated decision for many women, forcing us to confront concerns about a disabled child and risks of miscarriage.
+ - Even if you are planning a birth with an epidural, the evidence suggests that a doula can help make things go much more smoothly.
+ - Because economics is all about optimising, doing the best you can with what you have – it’s usually the first place you should look for answers if you want to maximise your happiness.
+ - Being pregnant was a lot like being a child again. There was always someone telling you what to do.
+ - No one likes doing chores. In happiness surveys, housework is ranked down there with commuting as activities that people enjoy the least. Maybe that’s why figuring out who does which chores usually prompts, at best, tense discussion in a household and, at worst, outright fighting.
+ - There is some risk to increase birth defects if you do a lot of outdoor gardening when you are pregnant. That can increase rates of toxoplasmosis.
+ - Economists typically think that your happiness goes up as you get more money, but the more you have, the less each additional dollar matters. This means that you value money most in times when you have less income and more expenses.
+ - I think we’ve moved to thinking of parenting and pregnancy as something in which you should lose yourself.
+ - In short, humans are programmed to get bored.
+ - One of the big take-aways from a lot of economic theory is that people should engage in consumption smoothing.
+ - I travel a fair amount, read on the plane, and I read fast.
+ - As people do a task, they improve at it.
+ - Good household decision-making often relies on thinking about your household like a firm.
+ - Adhering to budgeting rules shouldn’t trump good decision-making.
+ - When I meet people on airplanes and they find out I’m an economist, they usually ask about stock tips.
+ - You work hard for your income, and that hard work is what fuels the economy.
+ - Talking to women about birth can be polarizing.
+ - Economists actually disagree about whether there are significant economic returns from attending an elite college versus a less-selective one.
+ - The basic idea that incentives can be used to motivate behavior is a powerful one. It works for employees, and it has a clear place in parenting, as anyone who has tried to potty-train a recalcitrant toddler with sticker rewards knows.
+
+23 quotes

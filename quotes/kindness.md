@@ -1,0 +1,42 @@
+ - Instead of condemning people, let’s try to understand them. Let’s try to figure out why they do what they do. That’s a lot more profitable and intriguing than criticism; and it breeds sympathy, tolerance and kindness. ~~Dale Carnegie
+ - Kindness is the light that dissolves all walls between souls, families, and nations. ~~Paramahansa Yogananda
+ - One person can make a difference, and everyone should try. ~~John F. Kennedy
+ - Cleverness is a gift, kindness is a choice. ~~Jeff Bezos
+ - And you can always, always, give kindness. ~~Anne Frank
+ - Don’t ever mistake my silence for ignorance, my calmness for acceptance or my kindness for weakness. Compassion and tolerance are not a sign of weakness, but a sign of strength. ~~Dalai Lama XIV
+ - Kindness – that simple word. To be kind – it covers everything, to my mind. If you’re kind that’s it. ~~Roald Dahl
+ - Be kinder to yourself. And then let your kindness flood the world. ~~Pema Chödrön
+ - Some believe it is only great power that can hold evil in check, but that is not what I have found. It is the small everyday deeds of ordinary folk that keep the darkness at bay. Small acts of kindness and love. ~~J. R. R. Tolkien
+ - A part of kindness consists in loving people more than they deserve. ~~Joseph Joubert
+ - Stop. Take 3 deep breaths and smile everywhere in your body, observing what’s happening in your body. Proceed now with kindness and understanding. ~~Deepak Chopra
+ - You will learn a lot about yourself if you stretch in the direction of goodness, of bigness, of kindness, of forgiveness, of emotional bravery. Be a warrior for love. ~~Cheryl Strayed
+ - No one has ever become poor by giving. ~~Anne Frank
+ - Love, joy, peace, patience, kindness, goodness, faithfulness, gentleness, and self-control. To these I commit my day. ~~Max Lucado
+ - Constant kindness can accomplish much. As the sun makes ice melt, kindness causes misunderstanding, mistrust, and hostility to evaporate. ~~Albert Schweitzer
+ - Human kindness has never weakened the stamina or softened the fiber of a free people. A nation does not have to be cruel to be tough. ~~Franklin D. Roosevelt
+ - I believe in kindness. Also in mischief. Also in singing, especially when singing is not necessarily prescribed. ~~Mary Oliver
+ - I think probably kindness is my number one attribute in a human being. I’ll put it before any of the things like courage or bravery or generosity or anything else. ~~Roald Dahl
+ - I think we need more love in the world. We need more kindness, more compassion, more joy, more laughter. I definitely want to contribute to that. ~~Ellen DeGeneres
+ - Be kind to unkind people. They need it the most. ~~Ashleigh Brilliant
+ - Our lives are not our own. We are bound to others, past and present, and by each crime and every kindness, we birth our future. ~~David Mitchell
+ - Today, give a stranger one of your smiles. It might be the only sunshine he sees all day. ~~H. Jackson Brown Jr.
+ - Forget injuries, never forget kindnesses. ~~Confucius
+ - I believe in the kindness of strangers. And when I’m at war with myself I ride, I just ride. ~~Lana Del Rey
+ - Kind words do not cost much. Yet they accomplish much. ~~Blaise Pascal
+ - It takes a lot of courage to show your dreams to someone else. ~~Erma Bombeck
+ - From what we get, we can make a living; what we give, however, makes a life. ~~Arthur Ashe
+ - A warm smile is the universal language of kindness. ~~William Arthur Ward
+ - Don’t just show kindness in passing or to be courteous. Show it in depth, show it with passion, and expect nothing in return. Kindness is not just about being nice; it’s about recognizing another human being who deserves care and respect. ~~Colin Powell
+ - For beautiful eyes, look for the good in others; for beautiful lips, speak only words of kindness; and for poise, walk with the knowledge that you are never alone. ~~Audrey Hepburn
+ - Carry out a random act of kindness, with no expectation of reward, safe in the knowledge that one day someone might do the same for you. ~~Princess Diana
+ - Give a bowl of rice to a man and you will feed him for a day. Teach him how to grow his own rice and you will save his life. ~~Confucius
+ - A single act of kindness throws out roots in all directions, and the roots spring up and make new trees. ~~Amelia Earhart
+ - A person who is nice to you, but rude to the waiter, is not a nice person. ~~Dave Barry
+ - Kindness is always fashionable. ~~Amelia E. Barr
+ - Warmth is the vital element for the growing plant and for the soul of the child. ~~C.G. Jung
+ - Real love means loving kindness and compassion, the kind of love that does not have any conditions. ~~Nhat Hanh
+ - I’m a kind person, I’m kind to everyone, but if you are unkind to me, then kindness is not what you’ll remember me for. ~~Al Capone
+ - When you start to develop your powers of empathy and imagination, the whole world opens up to you. ~~Susan Sarandon
+ - Grace means undeserved kindness. It is the gift of God to man the moment he sees he is unworthy of God’s favor. ~~D.L. Moody
+
+40 quotes

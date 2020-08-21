@@ -1,0 +1,32 @@
+ - Determination becomes obsession and then it becomes all that matters.
+ - There’s nothing nicer than coming back to your village, where people like my mum’s friends take the mick out of me. I prefer that to the craziness of Hollywood.
+ - I’m not scared of animals, except for rats. I’ll break down in tears if I see a rat!
+ - I think in this world and this industry, if you let it, it does. And I feel that the people who don’t have good friends and family around them are the ones who get a little funny. But I’m very lucky. I have good friends and good family and if I ever stepped out of line, my mom would take me down!
+ - The work my mum does, a lot of it is re-housing homeless people, that’s a real job. I play make-believe and dressing up for a living!
+ - I’d love to get fat on camera. Wouldn’t that be great? I’ll tell you what’s almost as hard though, getting bulked up, getting that big. Here we are in LA and you see guys walking down the street and everyone looks like Arnold Schwarzenegger. That’s really quite grim, if you haven’t done it before.
+ - I think that among my friends I’m known as being a hard worker; I think if you want to be an actor, there can’t be any compromise. You have to work all day, every day. It’s not a 9-5 job. There’s always something to learn.
+ - Each year we go to the Cannes film festival and I tend to have all my friends pile in the back of my car and we’ll drive from London. The poor production company think they’re only putting me up and suddenly they’ve got eight people sleeping on my hotel room floor.
+ - I collect old first and second World War artifacts and things. I’m a little secret history nerd. I’ve been lucky enough to do quite a few war movies too so I’ve taken little things off each film.
+ - I like doing stuff with my friends.
+ - I like being outdoors a lot, and I come from a small village that’s fairly remote.
+ - For work, I have to be living in cities, I really cherish the time when I get to be out in the countryside.
+ - On the whole, British actors star in theater, and I think there’s something quite grounding about that.
+ - When I find a look that I like, that’s my entire wardrobe.
+ - I feel arrogant trying to give people advice.
+ - I had a lot of time before I actually got my break so to speak. I was building websites for other actors. I worked in a grocery store back in the little village where I grew up but I found it mind-numbingly boring.
+ - I’m the biggest Chekov fan – there’s something that he does that not many other writers do.
+ - The only mistake guys can make is to try too hard with their appearance. There’s something very unmanly about it.
+ - I went to an all-boys school and hated feeling like one of the crowd.
+ - I wouldn’t want to see any animal in pain, no matter what.
+ - I think most actors will tell you the same thing; when you’re not working you put 100 percent into every audition.
+ - All actors have to change their name.
+ - You can be the best actor in the world, but if you don’t have that one lucky moment, it kind of doesn’t matter. There are a lot of amazing actors who will never get the chance to prove themselves because they won’t have that one lucky moment.
+ - I think camping is one of those things where if you’re forced into it as a child, you’ll probably hate it as an adult.
+ - My bedroom’s like an armoury.
+ - I had a great drama teacher, and he sort of made out drama school as this incredibly difficult thing to get into: 6,000 people apply every year, and some of the schools only have 12 places. It’s a phenomenally difficult thing to get into. And that excited me – I wanted that challenge.
+ - If a horse doesn’t want to do something, you’re not going to make him do it. They’re incredibly powerful animals.
+ - I actually collect old First and Second World War memorabilia.
+ - I’ve always been into dark colours.
+ - I always wonder whether I’ll get treated differently with a different accent.
+
+30 quotes

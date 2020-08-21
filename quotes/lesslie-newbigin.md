@@ -1,0 +1,27 @@
+ - I am neither an optimist nor a pessimist. Jesus Christ is risen from the dead.
+ - Live in the kingdom of God in such a way that it provokes questions for which the gospel is the answer.
+ - The reign of God is his reign over all things.
+ - The church is not meant to call men and women out of the world into a safe religious enclave but to call them out in order to send them back as agents of God’s kingship.
+ - To be elect in Christ Jesus, and there is no other election, means to be incorporated into his mission to the world, to be the bearer of God saving purpose for his whole world, to be the sign and the agent and the firstfruit of his blessed kingdom which is for all.
+ - Do things that will get people asking questions, the answer to which is the Gospel.
+ - The Church must be seen as the company of pilgrims on the way to the end of the world and the ends of the earth.
+ - Congregational life wherein each member has his opportunity to contribute to the life of the whole body, those gifts with which the Spirit endows him, is as much of the essence of the Church as are ministry and sacraments.
+ - Christ is the clue to all that is.
+ - The victory of the Church over the power which was embodied in the Roman imperial system was not won by seizing the levers of power: it was won when the victims knelt down in the Colosseum and prayed in the name of Jesus for the Emperor.
+ - A society which believes in a worthwhile future saves in the present so as to invest in the future. Contemporary Western society spends in the present and piles up debts for the future, ravages the environment, and leaves its grandchildren to cope with the results as best they can.
+ - The business of the church is to tell and embody a story.
+ - It has never at any time been possible to fit the resurrection of Jesus into any world view except a world view of which it is the basis.
+ - The missionary calling has sometimes been interpreted as a calling to stem this fearful cataract of souls going to eternal perdition. But I do not find this in the center of the New Testament representation of the missionary calling.
+ - It is less important to ask a Christian what he or she believes about the Bible than it is to inquire what he or she does with it.
+ - The Church, wherever it is, is not only Christ’s witness to its own people and nation, but also the home-base for a mission to the ends of the earth.
+ - Through the repeated hammer blows of defeat, destruction, and deportation, interpreted by the faithful prophets, Israel has to learn that election is not for comfort and security but for suffering and humiliation.
+ - Likewise, the world of action, of politics, is reduced to a conflict of views about how to keep the cycle of production and consumption going. Questions of ultimate purpose are excluded from the public world.
+ - God’s grace is not limited by any ecclesiastical barriers.
+ - The living God is a God of justice and mercy and He will be satisfied with nothing less than a people in whom his justice and mercy are alive.
+ - If the biblical story is true, the kind of certainty proper to a human begin will be one which rests on the fidelity of God, not upon the competence of the human knower. It will be a kind of certainty which is inseparable from gratitude and trust.
+ - The relativism which is not willing to speak about truth but only about ‘what is true for me’ is an evasion of the serious business of living. It is the mark of a tragic loss of nerve in our contemporary culture. It is a preliminary symptom of death.
+ - To make the improving of our own character our central aim is hardly the highest kind of goodness. True goodness forgets itself and goes out to do the right thing for no other reason than that it is right.
+ - The whole attempt to advance the kind of consumer society that depends for its growth on the ceaseless stimulation of unlimited covetousness among the rich, while the poor majority rot in their poverty-this is surely something against which a Christian should be a nonconformist.
+ - Modern capitalism has created a world totally different from anything known before.
+
+25 quotes

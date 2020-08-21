@@ -1,0 +1,34 @@
+ - Don’t keep your own schedule – that will eat too much of your time keeping your own schedule. And when you are tired, stop. Because if you are too tired, you become not productive, and you are wasting time.
+ - I’m an aggressive woman who gets things done, and that’s the way it is, and I’ve never been embarrassed about the fact that I am pushy.
+ - I really believe, when you come out of hiding, in whatever way you’re hiding, you get to go out into the sunlight.
+ - At the end of the day, somebody someday is going to say something about you. At least you can look back and say you lived the way you wanted to.
+ - I have always said I’ve had a big personality, and I’ve always said I’m a pushy broad, and I’ve always said I want to get things done.
+ - If you don’t like me, life goes on, you know what I mean? But I hope you do like me. Because I think that in addition to being pushy, I’m nice.
+ - I couldn’t be more proud of my work as a progressive.
+ - Chick-fil-A is not welcome in New York City as long as the company’s president continues to uphold and promote his discriminatory views.
+ - My mother would organize huge parties for my elementary school classmates. To prepare, she would go back to the bakery in her old neighborhood of Inwood and get special shamrock cookies. Hawaiian Punch was served and we had shamrock napkins. It was a lot of fun.
+ - I understand that not everyone agrees with my perspective on Ray Kelly. But what you gotta look at here is somebody like Bill de Blasio talking out of both sides of his mouth and trying to have it both ways on a really critical issue like stop-and-frisk.
+ - I hope there is nothing about me that people have a big problem with. You know, I like to think of myself as lovable.
+ - At times, you need to be forceful to get things that are stuck unstuck.
+ - We all think people deserve second chances. None of us are perfect.
+ - Being an activist is about getting things done. It’s not about standing around shaking your fist in anger.
+ - When you stand up there and do a press conference, it’s a very preoccupied moment. You’re standing in front of cameras; people are watching you; it’s not so easy to be at ease.
+ - Cliven Bundy is breaking the law. He’s breaking the law and he wants all of us to pay for his cattle while he’s ranting about people who are part of social welfare programs.
+ - All I wanted was to be involved in politics and government.
+ - I have a tendency toward being a micromanager.
+ - I just want people to know you can get through stuff. I hope people can see that in what my life has been and where it is going.
+ - I’m not about talking and finger-pointing and complaining. I’m about getting things done.
+ - I have a tendency toward being a micromanager. Which, the bigger the project you’re involved in, the harder that becomes.
+ - For better or worse, when you’re running for mayor, there’s a little bit of a spotlight on you.
+ - I want to be a better Chris Quinn. I don’t want to be a different Chris Quinn.
+ - People used to feel oddly empowered to tell me all the reasons I couldn’t win. Because I was a woman. Because I was a lesbian. Because I was from the West Side of Manhattan.
+ - It would be thrilling, obviously, to be able to have a woman and an openly LGBT person as the mayor of New York City.
+ - I’m going to do whatever I have to do to help a New Yorker, whether it’s a girl on the street or a tenant in a housing development.
+ - The library of my elementary school had this great biography section, and I read all of these paperback biographies until they were dog-eared. The story of Eleanor Roosevelt and Madame Curie and Martin Luther King and George Washington Carver and on and on and on.
+ - I’m in a position where, if you have the ability, you should use it well. To get things done.
+ - Anybody that I can work with that will help improve the lives of New Yorkers, I will work with that person.
+ - I’m just not gonna let up until I know I’ve done absolutely everything I can for New Yorkers.
+ - I couldn’t describe how little interest I have in men. Or I could – but I don’t think that it would be appropriate.
+ - I think it’s really important to realize that small businesses are often the portal for immigrants into the New York City economy.
+
+32 quotes

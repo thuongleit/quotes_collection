@@ -1,0 +1,142 @@
+ - Number rules the universe.
+ - As long as man continues to be the ruthless destroyer of lower living beings he will never know health or peace. For as long as men massacre animals, they will kill each other.
+ - The highest goal of music is to connect one’s soul to their Divine Nature, not entertainment.
+ - Man know thyself; then thou shalt know the Universe and God.
+ - Learn to be silent. Let your quiet mind listen and absorb.
+ - God built the universe on numbers.
+ - In anger we should refrain both from speech and action.
+ - No one is free who has not obtained the empire of himself. No man is free who cannot command himself.
+ - Concern should drive us into action and not into a depression. No man is free who cannot control himself.
+ - Silence is better than unmeaning words.
+ - Learn silence. With the quiet serenity of a meditative mind, listen, absorb, transcribe, and transform.
+ - A stone is frozen music.
+ - Let exercise alternate with rest.
+ - If there be light, then there is darkness; if cold, heat; if height, depth; if solid, fluid; if hard, soft; if rough, smooth; if calm, tempest; if prosperity, adversity; if life, death.
+ - The oldest, shortest words – ‘yes’ and ‘no’ – are those which require the most thought.
+ - Be silent or let thy words be worth more than silence.
+ - Number is the ruler of forms and ideas, and the cause of gods and demons.
+ - The beginning of every government starts with the education of our youth.
+ - Above the cloud with its shadow is the star with its light. Above all things reverence thyself.
+ - Rest satisfied with doing well, and leave others to talk of you as they please.
+ - No man is free who cannot control himself.
+ - If you’re asked: What is the silence? Respond: It is the first stone of the Wisdom’s temple.
+ - None but God is wise.
+ - Friendship is one soul in two bodies.
+ - The stars in the heavens sing a music, if only we had ears to hear.
+ - Do not go to bed until you have gone over the day three times in your mind. What wrong did I do? What good did I accomplish? What did I forget to do?
+ - Some are slaves of ambition or money, but others are interested in understanding life itself. These give themselves the name of philosophers, and they value the contemplation and discovery of nature beyond all other pursuits.
+ - Reason is immortal, all else mortal.
+ - There is no word or action but has its echo in Eternity.
+ - Number is the within of all things.
+ - Each celestial body, in fact each and every atom, produces a particular sound on account of its movement, its rhythm or vibration. All these sounds and vibrations form a universal harmony in which each element, while having it’s own function and character, contributes to the whole.
+ - It is better to be silent, than to dispute with the Ignorant.
+ - Don’t try to cover your mistakes with false words. Rather, correct your mistakes with examination.
+ - Astonishing! Everything is intelligent!
+ - But respect yourself most of all.
+ - Salt is born of the purest parents: the sun and the sea.
+ - As soon as you awake, in order Lay the actions to be done the coming day.
+ - The wise man should be prepared for everything that does not lie within his control.
+ - A thought is an idea in transit.
+ - Speak not nor act before thou hast reflected.
+ - The soul of man is divided into three parts, intelligence, reason, and passion. Intelligence and passion are possessed by other animals, but reason by man alone.
+ - There is a good principle which created order, light, and man, and an evil principle which created chaos, darkness, and woman.
+ - Anger begins in folly, and ends in repentance.
+ - The wind is blowing. Adore the wind.
+ - There is geometry in the humming of the strings, there is music in the spacing of the spheres.
+ - Do not talk a little on many subjects, but much on a few.
+ - Alas, what wickedness to swallow flesh into our own flesh, to fatten our greedy bodies by cramming in other bodies, to have one living creature fed by the death of another!
+ - Hate and fear breed a poison in the blood, which if continued, affects eyes, ears, nose and the organs of digestion. Therefore, it is not wise to hear and remember the unkind things others might say about you.
+ - A man is never as big as when he is on his knees to help a child.
+ - Choose always the way that seems the best, however rough it may be; custom will soon render it easy and agreeable.
+ - Choose rather to be strong of soul than strong of body.
+ - Wisdom, thoroughly learned, will never be forgotten.
+ - Thought is an Idea in transit, which when once released, never can be lured back, nor the spoken word recalled.
+ - Do not despise anyone: an atom shadowing.
+ - When the wise man opens his mouth, the beauties of his soul present themselves to the view, like the statues in a temple.
+ - Friends are as companions on a journey, who ought to aid each other to persevere in the road to a happier life.
+ - Don’t disarrange my circles!
+ - Don’t eat your heart.
+ - Assist a man in raising a burden; but do not assist him in laying it down.
+ - Let not sleep fall upon thy eyes till thou has thrice reviewed the transactions of the past day. Where have I turned aside from rectitude? What have I been doing? What have I left undone, which I ought to have done?
+ - Animals share with us the privilege of having a soul.
+ - If you have a wounded heart, touch it as little as you would an injured eye. There are only two remedies for the suffering of the soul: hope and patience.
+ - Write in the sand the flaws of your friend.
+ - Practice restraint over the following: appetite, first, as well as sleep, lust, and anger.
+ - It is better wither to be silent, or to say things of more value than silence. Sooner throw a pearl at hazard than an idle or useless word; and do not say a little in many words, but a great deal in a few.
+ - There are in woman’s eyes two sorts of tears, – the one of grief, the other of deceit.
+ - Music is the harmonization of opposites; the conciliation of warring elements.
+ - Geometry is knowledge of the eternally existent.
+ - We ought so to behave to one another as to avoid making enemies of our friends, and at the same time to make friends of our enemies.
+ - Step not beyond the beam of the balance.
+ - Educate the children and it won’t be necessary to punish the men.
+ - He is not rich, that enjoyeth not his own goods.
+ - Government exists only for the good of the governed.
+ - We ought not to quit our post without the permission of Him who commands; the post of man is life.
+ - The octave formed a circle and gave our noble earth its form.
+ - Allow not sleep to close your eyes before three times reflecting on Your actions of the day. What deeds Done well, what not, what left undone?
+ - Govern your tongue before all other things, following the gods.
+ - As soon as laws are necessary for men, they are no longer fit for freedom.
+ - Wealth is a weak anchor, and glory cannot support a man; this is the law of God, that virtue only is firm, and cannot be shaken by a tempest.
+ - Having departed from your house, turn not back; for the furies will be your attendants.
+ - Truth is so great a perfection, that if God would render himself visible to men, he would choose light for his body and truth for his soul.
+ - The earth affords a lavish supply of richess of innocent foods, and offers you banquets that involve no bloodshed or slaughter; only beasts satisfy their hunger with flesh, and not even all of those, because horses, cattle, and sheep live on grass.
+ - Above all have respect for yourself.
+ - Abstain from animals.
+ - I would have to say the probability of us dying seems extremely high.
+ - Remind yourself that all men assert that wisdom is the greatest good, but that there are few who strenuously seek out that greatest good.
+ - Strength of mind rests in sobriety; for this keeps your reason unclouded by passion.
+ - A blow from your friend is better than a kiss from your enemy.
+ - As the sea-crab swimmeth always against the stream, so doth wit always against wisdom.
+ - Do not spend in excess like one who is careless of what is good, nor be miserly; the mean is best in every case.
+ - Respect gods before demigods, heroes before men, and first among men your parents; but respect yourself most of all.
+ - Disbelieve nothing wonderful concerning the gods, nor concerning divine dogmas.
+ - Declining from the public ways, walk in unfrequented paths.
+ - Dear youths, I warn you cherish peace divine, And in your hearts lay deep these words of mine.
+ - Power is the near neighbour of necessity.
+ - Ability and necessity dwell near each other.
+ - Numbers have a way of taking a man by the hand and leading him down the path of reason.
+ - Every man has been made by God in order to acquire knowledge and contemplate.
+ - Bless us, divine number, who generated gods and men. Number contains the root and source of eternally flowing creation.
+ - It is only necessary to make war with five things; with the maladies of the body, the ignorances of the mind, with the passions of the body, with the seditions of the city and the discords of families.
+ - Practice justice in word and deed, and do not get in the habit of acting thoughtlessly about anything.
+ - Love that shines from within cannot be darkened by obstacles of the world of consequences!
+ - Wind indeed increases fire, but custom love.
+ - Truth is to be sought with a mind purified from the passions of the body. Having overcome evil things, thou shalt experience the union of the union mortal divinity with the mortal man.
+ - A good Soul hath neither too great joy, nor too great sorrow: for it rejoiceth in goodness; and it sorroweth in wickedness. By the means whereof, when it beholdeth all things, and seeth the good and bad so mingled together, it can neither rejoice greatly; nor be grieved with over much sorrow.
+ - There are men and gods, and beings like Pythagoras.
+ - Let a man use great reverence and manners to himself.
+ - You should help a man to take up a burden, but you should not help him put it back down.
+ - It is requisite to defend those who are unjustly accused of having acted injuriously, but to praise those who excel in a certain good.
+ - Despise all those things which when liberated from the body you will not want; invoke the Gods to become your helpers.
+ - We come from God. As the tree from the root and the stream from the spring; that’s why we should always be in contact with Him, as the trunk from the root. Because the stream dries up when it is separated from the spring and the tree dies when is uprooted.
+ - Neither will the horse be adjudged to be generous, that is sumptuously adorned, but the horse whose nature is illustrious; nor is the man worthy who possesses great wealth, but he whose soul is generous.
+ - It is difficult to walk at one and the same time many paths of life.
+ - In this theater of man’s life, it is reserved only for God and angels to be lookers-on.
+ - A stranger, if just, is not only to be preferred before a countryman, but a kinsman.
+ - You will know that wretched men are the cause of their own suffering, who neither see nor hear the good that is near them, and few are the ones who know how to secure release from their troubles.
+ - Without Justice, no realm may prosper.
+ - He buries gold who hides the truth.
+ - Lust weakens both body and mind.
+ - It is required to find the infinitely big inside what’s infinitely small to feel the presence of God.
+ - None can be free who is a slave to, and ruled by, his passions.
+ - Instruct thyself for time and patience favor all.
+ - So in life, some enter the services of fame and others money, but the best choice is that of those few who spend their time in the contemplation of nature, and as lovers of wisdom.
+ - So tutor youth that the sins of age be not imputed to thee.
+ - The experience of life in a finite, limited body is specifically for the purpose of discovering and manifesting supernatural existence.
+ - Time is the soul of this world.
+ - Many words befall men, mean and noble alike; do not be astonished by them, nor allow yourself to be constrained.
+ - Meditate upon my counsels; love them; follow them; To the divine virtues will they know how to lead thee. I swear it by the One who in our hearts engraved The sacred Tetrad, symbol immense and pure, Source of Nature and model of the Gods.
+ - Envy has been, is, and shall be, the destruction of many. What is there, that Envy hath not defamed, or Malice left undefiled? Truly, no good thing.
+ - Do not even think of doing what ought not to be done.
+ - When going to the temple to adore Divinity neither say nor do any thing in the interim pertaining to the common affairs of life.
+ - You should make great things, not promising great things.
+ - Thou shalt likewise know that according to Law, the nature of this universe is in all things a like.
+ - Consider before acting, to avoid foolishness: It is the worthless man who speaks and acts thoughtlessly.
+ - Begin thus from the first act, and proceed; and, in conclusion, at the ill which thou hast done, be troubled, and rejoice for the good.
+ - He who knoweth not what he ought to know, is a brute beast among men; he that knoweth no more than he hath need of, is a man among brute beasts; and he that knoweth all that may be known, is as a God among men.
+ - Those alone are dear to Divinity who are hostile to injustice.
+ - One must choose in all things a mean just and good.
+ - Let no one persuade you by word or deed to do or say whatever is not best for you.
+ - To cognize the Divine Essence – this is the highest purpose of soul, sent by the Creator to the Earth!
+
+140 quotes

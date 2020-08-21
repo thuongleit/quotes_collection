@@ -1,0 +1,28 @@
+ - Power is not a material possession that can be given, it is the ability to act. Power must be taken, it is never given.
+ - Treat any and all drugs with respect, for most of the time they are stronger than you are.
+ - Cultivate solitude and quiet and a few sincere friends, rather than mob merriment, noise and thousands of nodding acquaintances.
+ - My friends have stood by me marvelously in the ups and downs of my career. I don’t believe there is anything more worthwhile in life than friendship. Friendship is a far better thing than love, as it is commonly accepted.
+ - If I could come out in this book and advocate complete revolution and the violent overthrow of the United States of America, without being thrown in jail, I would not have written The Anarchist Cookbook, and there would be no need for it.
+ - Prison does strange things to men. Although its purpose is to break the free spirit of a man, in many cases it just adds fuel to the fire that has never been and will never be extinguished.
+ - I can fully appreciate the fury and anger that a person can feel when put through a humiliating experience by a cop, but I would recommend strongly that a person maintain his cool, and in no circumstances lose his temper. If you lose your temper, you are playing right into the cop’s hands.
+ - I do not hold that because the author did a bad job of writing the player need trump it with the same kind of acting. When I go into a picture I have only one character to look after. If the author didn’t do him justice, I try to add whatever the creator of the part overlooked.
+ - Dessert is probably the most important stage of the meal, since it will be the last thing your guests remember before they pass out all over the table.
+ - There is only one purpose in hand-to-hand combat, and that is to kill. Never face an enemy with the idea of knocking him out. The chances are extremely good that he will kill you.
+ - Why did God make so many dumb fools and Democrats?
+ - I highly recommend worrying. It is much more effective than dieting.
+ - Since shotguns are not military weapons, your local sporting goods dealer will have good information about them, as long as you aren’t black, Spanish, or a white freak.
+ - The only laws a man can truly respect are the ones he makes for himself.
+ - It seems acceptable today to scream for revolution, without any concept of what will follow it. This is just what the forces at large want, for who will follow a man who doesn’t know where he’s going?
+ - I detest symbolic protest, as it is an outcry of weak, middle-of-the-road, liberal eunuchs. If an individual feels strongly enough about something to do something about it, then he shouldn’t prostitute himself by doing something symbolic. He should get out and do something real.
+ - If a man is to be a man, a free spirit unto himself, he must arm himself not only with weapons but with ideals and concepts he is willing to die for.
+ - One of the greatest myths of all time is that so-called civilized man is no longer an animal, and for that reason can strive to disarm himself and grow fat with false concepts.
+ - Have you noticed that the people who actually make the laws, the people in power, never make laws for themselves?
+ - I would warn against holsters with devices for quick-draw. Devices always fail when you need them most.
+ - A word of advice: If you get the choice between the upper and lower bunks in a cell, choose the lower. Prisons do not turn off their lights at night, and I spent a sleepless night, without a mattress, with a five-hundred-watt bulb shining directly into my eyes.
+ - It has got to the point in this country where men believe they are men, just because that is their birthright. If that is true, then, by the same logic, an animal held captive in a zoo is still a free wild beast.
+ - Never before have self-suffiency and education been so important, and they are virtually inseparable from survival.
+ - Every person, whether in wartime or not, should keep a pistol and rifle in his house at all times. If a person is not going to protect himself, and wishes the government to do it for him, how can he complain when the government decides to protect itself against him, and executes him?
+ - Believe it or not, bananas do contain a small quantity of Musa Sapientum bananadine, which is a mild, short-lasting psychedelic.
+ - A government creates its own revolution. There can be no revolt without it.
+
+26 quotes

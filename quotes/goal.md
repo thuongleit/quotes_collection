@@ -1,0 +1,43 @@
+ - A goal without a plan is only a dream. ~~Brian Tracy
+ - Make at least one definite move daily toward your goal. ~~Bruce Lee
+ - Stay focused, ignore the distractions, and you will accomplish your goals much faster. ~~Joel Osteen
+ - If you want to reach your goals and dreams, you cannot do it without discipline. ~~Lee Kuan Yew
+ - Goals may give focus, but dreams give power. ~~John C. Maxwell
+ - Review your goals twice every day in order to be focused on achieving them. ~~Les Brown
+ - Cut your excuses in half and double your actions around your goals. ~~Robin S. Sharma
+ - Set your target and keep trying until you reach it. ~~Napoleon Hill
+ - No wind blows in favor of a ship without direction. ~~Seneca the Younger
+ - The first step to achieving your goal, is to take a moment to respect your goal. Know what it means to you to achieve it. ~~Dwayne Johnson
+ - Its not about the goal. Its about growing to become the person that can accomplish that goal. ~~Tony Robbins
+ - When you are not pursuing your goal, you are literally committing spiritual suicide. ~~Les Brown
+ - Without a plan, even the most brilliant business can get lost. You need to have goals, create milestones and have a strategy in place to set yourself up for success. ~~Yogi Berra
+ - You can’t hit a target you cannot see, and you cannot see a target you do not have. ~~Zig Ziglar
+ - A person should set his goals as early as he can and devote all his energy and talent to getting there. ~~Walt Disney
+ - Make a wish with all your heart and chase every dream you have. Only you can reach your goals. No one else can achieve them for you. ~~Demi Lovato
+ - I’m a firm believer in goal setting. Step by step. I can’t see any other way of accomplishing anything. ~~Michael Jordan
+ - Make each day count by setting specific goals to succeed, then putting forth every effort to exceed your own expectations. ~~Les Brown
+ - Achieve self-mastery over your thoughts, and constantly direct them toward your goals and objectives. Learn to focus your attention on the goals that you want to achieve and on finding ways to achieve those goals. ~~Napoleon Hill
+ - God’s wealth circulates in my life, it flows to me in avalanches of abundance. All my needs, desires and goals are met instantaneously, for I am one with God and he is everything! ~~Tony Robbins
+ - Money is not the goal. Money has no value. The value comes from the dreams money helps achieve. ~~Robert T. Kiyosaki
+ - To be someone’s inspiration is the biggest goal in my life. ~~Demi Lovato
+ - If you can mentally see the end of the journey, then your body will physically find a way to achieve that goal. ~~Greg Plitt
+ - Get out of your own way. Often, we’re our own worst enemy when working towards our goals. ~~Robert T. Kiyosaki
+ - Setting goals helps bring your future into your present and the present is the only time we can take action. ~~Zig Ziglar
+ - Goals give you more than a reason to get up in the morning; they are an incentive to keep you going all day. ~~Harvey MacKay
+ - Set a goal to become a millionaire for what it makes of you to achieve it. Do it for the skills you have to learn and the person you have to become. ~~Jim Rohn
+ - When a goal matters enough to a person, that person will find a way to accomplish what at first seemed impossible. ~~Nido R. Qubein
+ - Failing to plan means planning to fail. What are your goals? ~~Brian Tracy
+ - One should not pursue goals that are easily achieved. One must develop an instinct for what one can just barely achieve through one’s greatest efforts. ~~Albert Einstein
+ - Stop setting goals. Goals are pure fantasy unless you have a specific plan to achieve them. ~~Stephen R. Covey
+ - Happiness, wealth, and success are by-products of goal setting, they cannot be the goal themselves. ~~Denis Waitley
+ - My dreams are worthless, my plans are dust, my goals are impossible. All are of no value unless they are followed by action. ~~Og Mandino
+ - I’m not a big believer in long-term planning and far-off goals. In fact, I generally set 3-month and 6-month dreamlines. The variables change too much and in-the-future distance becomes an excuse for postponing action. ~~Tim Ferriss
+ - Lacking an external focus, the mind turns inward on itself and creates problems to solve, even if the problems are undefined or unimportant. If you find a focus, an ambitious goal that seems impossible and forces you to grow, these doubts disappear. ~~Tim Ferriss
+ - Paradoxical as it may seem, the purposeful life has no content, no point. It hurries on and on, and misses everything. Not hurrying, the purposeless life misses nothing, for it is only when there is no goal and no rush that the human senses are fully open to receive the world. ~~Alan Watts
+ - The goal of all life is death. ~~Sigmund Freud
+ - The goal of early childhood education should be to activate the child’s own natural desire to learn. ~~Maria Montessori
+ - Our goal is to find an outstanding business at a sensible price, not a mediocre business at a bargain price. ~~Warren Buffett
+ - Missions is not the ultimate goal of the church. Worship is. Missions exists because worship doesn’t. ~~John Piper
+ - Do more of what works. ~~Stay Focused
+
+41 quotes

@@ -1,0 +1,36 @@
+ - For certain, you have to be lost to find a place that can’t be found.
+ - I always had a fantasy of being a chef, because I like kitchen life.
+ - People tend to think of Brisbane as a sleepy, sub-topical place. I don’t know. It’s like Baltimore or something. I don’t know. You would hear the family dramas going on behind closed doors.
+ - I often thought I was in the wrong business. I was pretty seriously thinking of tossing it in before I shot Shine. I do not know why. I was pretty restless, I had been through a bad period of stress induced anxiety – panic attacks – and I was not sure of what I wanted to do.
+ - My kids started school, so having a strong base in Melbourne has been a key priority. I’m not daunted by the travel. People say, ‘It’s so far to Australia,’ and I say, ‘You get on the plane, you eat well, you sleep, you wake up – and you’re there.’
+ - I do love perusing the dictionary to find how many words I don’t use – words that have specific, sharp, focused meaning. I also love the sound of certain words. I love the sound of the word pom-pom.
+ - You had to be into sport and, sad to say, I’m a traitor to my country because I don’t have a sporting bone in my body.
+ - I like roles that are on the extreme ends of the spectrum, and there’s special appeal in exploring these slightly forgotten plays that people might think of as subjects for academic term papers instead of live theater.
+ - Nobody ever said that growing old would be easy. Just having to hold the newspaper out in your forties and then hair growing out of unusual parts of your body in your fifties. It’s tough on the ego.
+ - Someone told me that there’s a connection to Superman, that in an early edition of the Green Lantern comics, Tomar Re was the envoy to Krypton. That was fascinating to me.
+ - Most films I’ve worked on have had large casts, but they’ve been wonderful people. I think the monkey in Pirates of the Caribbean is the most temperamental costar I’ve had. It would throw tantrums like you wouldn’t believe.
+ - People are intrigued and fascinated, almost obsessed with the private lives of great public personalities.
+ - I didn’t know the Green Lantern comics at all. I was a Superman reader.
+ - Yeah, well, the F-bomb – it’s become as ubiquitous as the word ‘like.’ People just throw the word ‘like’ around as punctuation. And I think in a lot of everyday speech, the F-bomb has become a kind of dash or a comma.
+ - Freedom is the kind of essence of being a pirate: You’re away from land-locked Europe. You’re not part of the society. You’re part of the brotherhood of the sea, Your ship is your sense of identity. So when you approach the wheel, that’s what you own.
+ - This is what happens when you are on the wrong side of 40. Young adults, who could be your children, are now working with you. I was playing their parents or mentor. I started to think: Oh, I am not part of that group any more.
+ - What I appreciated was the fact that the script delved into how Australians were – and still are – condescended to by the English.
+ - I die in almost every film I’ve been in.
+ - I was never a leading man. I’ve always been in the outer concentric circles in the company, being a character actor, which is a good place to be. It gives you that diversity.
+ - But as my voice coach keeps saying, if we actually spoke the way they imagine the Elizabethan voice might have been, we wouldn’t be able to understand it.
+ - Yes, anally retentive men are my forte!
+ - I suddenly became aware over the last couple of years that I’m in my sixties. I never thought about it. I thought I’d better start acting my age or find roles that are going to be interesting to me in the sexagenarian repertoire, because it’s not what you do in your forties or fifties.
+ - I think that Ionesco’s greatest weapon is that he’s able to make us laugh at the darkest corners of our souls.
+ - There’s four biggies. There was Elizabeth I, George III, Victoria, and the current queen, who really dominated four eras.
+ - I always felt thrilled and amazed that I could put actor on my tax form.
+ - I would always slip away to the cinema. I always found something absolutely extraordinary about the fact that these actors were always kind of kicking hard at some new dimension they were doing on film.
+ - I did not want to put myself on the line, as an Australian playing Britains greatest comic actor. The fans of Sellers are obsessive, possessive – and aggressive. I did not want to risk their anger – or my own reputation.
+ - When you are playing an egomaniac running a fantastical ship, you don’t want him to be too suburban. Naturalism doesn’t work on the high seas.
+ - I’ve discovered I prefer to prepare a few notes or actually write the speech so I can really hone it down to hopefully be entertaining, try and get a laugh at least by the second line, and then say what you need to say.
+ - I knew all about Edward VIII’s abdication, George VI becoming the king and having a stammer, but nothing about how he got rid of it.
+ - More people have a fear of speaking than a fear of death. So at a funeral, most people would want to be the person in the coffin rather than the person delivering the eulogy!
+ - I wouldn’t mind meeting some of the people I’ve attempted to portray from the olden, olden days. They probably would all have really terrible skin and horrible bad breath, and I’d have to give them an Altoid.
+ - I guess I’ve been fortunate in having an ongoing film career while being based in Melbourne. I’m happy to commute. A day on a plane. Come on. It’s easy.
+ - When people come and tell me I was terrific in this or that, I do not want to fall flat on my face next time. But, tough, I have fallen flat before. You just get up and dust yourself off.
+
+34 quotes

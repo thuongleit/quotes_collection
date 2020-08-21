@@ -1,0 +1,21 @@
+ - I think everything depends on money.
+ - The moon is very rugged.
+ - Test pilots have a litmus test for evaluating problems. When something goes wrong, they ask, “Is this thing still flying?” If the answer is yes, then there’s no immediate danger, no need to overreact.
+ - I feel like everyone who goes to The University of Texas is blessed and lucky to be there because they’re getting a chance to be as good as they can be.
+ - Frequently on the lunar surface I said to myself, ‘This is the Moon, that is the Earth. I’m really here, I’m really here!’
+ - I can remember walking on the moon.
+ - It seems farther away now because there are no rockets getting there. Nobody is going.
+ - Eventually there are going to be cities in space.
+ - I feel like there’s too many paintings left unpainted that I just don’t want to take the time away.
+ - As the centuries unfold, millions of artists will live on the moon and paint the moon and Mars as we go out into the universe.
+ - It’s hard not to be excited when you’re going to find a way to land on the moon.
+ - One of the great things about the universe is that it’s fair.
+ - I find color schemes that I just like and that just feel right.
+ - I have the nicest life in the world.
+ - History has spurts and then is steady, and then maybe even backing up a step, and then forward again.
+ - I found I have to stay painting.
+ - But I found that being an artist and doing accurate work is very difficult.
+ - We knew it was going to be difficult to get to the moon. We didn’t know how difficult.
+ - But I’m the only one who can paint the moon, because I’m the only one who knows whether that’s right or not.
+
+19 quotes

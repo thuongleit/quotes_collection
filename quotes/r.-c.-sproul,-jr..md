@@ -1,0 +1,34 @@
+ - We must remember who we are by remembering Whose we are.
+ - The true gospelstands before the throne of God declaring, ‘Jesus did it all.’
+ - Every idol, if you scratch it, is a mirror. We worship ourselves.
+ - We do not homeschool to avoid wicked people. We homeschool so we wicked people can talk all day about the one Man who wasn’t wicked.
+ - The kingdom of God is like a mustard seed, beginning as the smallest of seeds but growing until the birds of the air make their nests therein. There are old worlds and new ones. There are earthy worlds and cyber worlds. But one truth remains the same now and forever, that Jesus rules them all.
+ - The gates of hell did not prevail before me. They will not prevail after me. The Kingdom, I pray will use me but it doesn’t need me.
+ - I am not accusing God of sinning; I am suggesting that he created sin.
+ - Thinking that education is something different from discipling our children is a sure sign that we have been ‘educated’ by the state. Education is discipleship.
+ - Nostalgia is the aching realization that you can’t go back again. The longing, no matter how intense, can never be met.
+ - Just so we’re clear the words “free will” are not actually in the Bible. Predestination, on the other hand...
+ - Neither marriage’s heart nor adventure are found in the banner days, those events we record and look back on. The glory is the ordinary.
+ - Sanctification is the process in which we become more aware of how sinful we are.
+ - To acknowledge that I am yet a sinner is not to deny that I am a saint but to acknowledge how I became one, by grace.
+ - It is false to say that what we don’t know can’t hurt us, especially when it comes to the Bible. If ever there were anything we need to know, it is the very Word of God. That said, what is in all likelihood worse than what we don’t know about the Bible is what we do know that just isn’t so.
+ - We do not fear the loss of God’s favor, for either we have it not. We cannot lose it. What we fear is the loss of our idols.
+ - Our treasure is what we fear losing, and I fear that we fear losing our treasure. We are lovers of money.
+ - As Christians continue to be vilified let us continue to rejoice and be exceedingly glad. It means we are salt, light and with Him.
+ - In fact, the Devil is delighted when we spend our time and energy defending the Bible, as long as we do not get around to actually reading the Bible.
+ - He didn’t love me because I’m valuable. Because He loved me, I became valuable.
+ - I hope that we will learn from each other, but most of all that we would learn from God’s Word, which equips us for every good work, including our calling to suffer for the glory of God and for the building of His kingdom.
+ - Now that Hillary Clinton is officially running for President I am officially not going to vote for her. It’s official.
+ - The One who knows the fullness of my sin loves me as my Father right now.
+ - Because He freely owned my guilt I may freely own my sin. Guilty as charged, and yet, not guilty at all.
+ - Regeneration is the cause of faith, not faith the cause of regeneration.
+ - Things are not as they should be. Because He’s not finished yet. They will be. Rest assured.
+ - Creeds are definitions of what it means to be a Christian. They are fences that, albeit imperfectly, seek to separate sheep from goats.
+ - No matter what obeisance the state may demand, we who serve the King are free indeed.
+ - The utter destruction of our culture isn’t just around the corner. It has been here for some time.
+ - Is it possible that we never feel grown-up because, as our capabilities increased with age, so increased our responsibilities?
+ - God’s own foolishness is stronger than men. Do we believe that?
+ - The truth is that the sole reason we don’t see the world all around us as magic is that we are jaded, too cool for the school of wonder.
+ - God’s pleasure with me is grounded in the accomplishment of Christ, not my own accomplishment.
+
+32 quotes

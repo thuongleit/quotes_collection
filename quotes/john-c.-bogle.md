@@ -1,0 +1,40 @@
+ - Time is your friend; impulse is your enemy.
+ - The stock market is a giant distraction to the business of investing.
+ - Don’t look for the needle in the haystack. Just buy the haystack!
+ - The miracle of compounding returns is overwhelmed by the tyranny of compounding costs.
+ - Learn every day, but especially from the experiences of others. It’s cheaper!
+ - Investing is not nearly as difficult as it looks. Successful investing involves doing a few things right and avoiding serious mistakes.
+ - Reversion to the mean is the iron rule of the financial markets.
+ - If you have trouble imagining a 20% loss in the stock market, you shouldn’t be in stocks.
+ - Your success in investing will depend in part on your character and guts, and in part on your ability to realize at the height of ebullience and the depth of despair alike that this too shall pass.
+ - Surprise! The returns reported by mutual funds aren’t actually earned by mutual fund investors.
+ - Speculation leads you the wrong way. It allows you to put your emotions first, whereas investment gets emotions out of the picture.
+ - You know the rule of 72, divide the number into 72, any number you want, and that’s how long it will take your money to double.
+ - The historical data support one conclusion with unusual force: To invest with success, you must be a long-term investor.
+ - If your fund doesn’t last for the long term, how can you invest for the long term?
+ - The mistakes we make as investors is when the market’s going up, we think it’s going to go up forever. When the market goes down, we think it’s going to go down forever. Neither of those things actually happen. Doesn’t do anything forever. It’s by the moment.
+ - If the data do not prove that indexing wins, well, the data are wrong.
+ - Managed funds are astonishingly tax-inefficient.
+ - The mutual fund industry has been built, in a sense, on witchcraft.
+ - Index funds eliminate the risks of individual stocks, market sectors, and manager selection. Only stock market risk remains.
+ - It’s 1450 out of 1500 ETF funds that I just wouldn’t touch because they’re not diversified enough. Or they have some huge speculative twist to them that if you can guess the markets right you will do very well for a day or two but who can do that? Nobody.
+ - The principal role of the mutual fund is to serve its investors.
+ - The grim irony of investing, then, is that we investors as a group not only don’t get what we pay for, we get precisely what we don’t pay for. So if we pay for nothing, we get everything.
+ - The courage to press on regardless – regardless of whether we face calm seas or rough seas, and especially when the market storms howl around us – is the quintessential attribute of the successful investor.
+ - It’s amazing how difficult it is for a man to understand something if he’s paid a small fortune not to understand it.
+ - Hint: money flows into most funds after good performance, and goes out when bad performance follows.
+ - Successful investing is about owning businesses and reaping the huge rewards provided by the dividends and earnings growth of our nation’s – and, for that matter, the world’s – corporations.
+ - My biggest prediction for the future is that people are going to start looking after individual investors.
+ - Rely on the ordinary virtues that intelligent, balanced human beings have relied on for centuries: common sense, thrift, realistic expectations, patience, and perseverance.
+ - On balance, the financial system subracts value from society.
+ - In the long run, investing is not about markets at all. Investing is about enjoying the returns earned by businesses.
+ - Fund investors are confident that they can easily select superior fund managers. They are wrong.
+ - The transfer of Wall Street from private ownership to public ownership has been a big step backward.
+ - We need a mutual fund industry with both vision and values; a vision of fiduciary duty and shareholder service, and values rooted in the proven principles of long-term investing and of trusteeship that demands integrity in serving our clients.
+ - I will create value for society, rather than extract it.
+ - Income earned by the sweat of your brow should be taxed at the lowest rates, not the highest. Capital gains should be taxed at a higher rate.
+ - I think it’s gone much too far. Most of them are not worth the powder to blow them to hell.
+ - In Las Vegas we all know that it’s the croupiers who win. At the race track, it’s those who control the handle who win. State lotteries, does anybody think the participants in the lottery win? No. The state wins.
+ - The multiple failings of our flawed financial sector are jeopardizing, not only the retirement security of our nation’s savers but the economy in which our entire society participates.
+
+38 quotes

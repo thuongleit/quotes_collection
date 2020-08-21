@@ -1,0 +1,125 @@
+ - I am still learning.
+ - The greater danger for most of us lies not in setting our aim too high and falling short; but in setting our aim too low, and achieving our mark.
+ - Genius is eternal patience. 
+ - If people knew how hard I had to work to gain my mastery, it would not seem so wonderful at all.
+ - If you knew how much work went into it, you wouldn’t call it genius. 
+ - Every block of stone has a statue inside it and it is the task of the sculptor to discover it.
+ - Lord, grant that I may always desire more than I accomplish.
+ - Read the heart and not the letter for the pen cannot draw near the good intent.
+ - Only God creates. The rest of us just copy.
+ - I created a vision of David in my mind and simply carved away everything that was not David.
+ - Your greatness is measured by your horizons.
+ - To touch is to give life.
+ - Draw, Antonio; draw, Antonio; draw and don’t waste time.
+ - The idea is there locked inside. All you have to do is remove the excess stone.
+ - Trifles make perfection, and perfection is no trifle.
+ - I couldn’t give you something mediocre even if that’s all you asked for.
+ - Gazing on beautiful things acts on my soul.
+ - No one has mastery, Before he is at the end, Of his art and his life.
+ - If we have been pleased with life, we should not be displeased with death, since it comes from the hand of the same master.
+ - Perfection is no small thing, but it is made up of small things.
+ - It is necessary to keep one’s compass in one’s eyes and not in the hand, for the hands execute, but the eye judges.
+ - There is no greater harm than that of time wasted.
+ - The true work of art is but a shadow of the divine perfection.
+ - I saw the angel in the marble and carved until I set him free.
+ - Lord free me of myself, so I can please you!
+ - No great work of art is ever finished.
+ - The sculpture is already complete within the marble block, before I start my work. It is already there, I just have to chisel away the superfluous material.
+ - As you give out, so shall you receive.
+ - To know each other is the best way to understand each other. To understand each other is the only way to love each other.
+ - Carving is easy, you just go down to the skin and stop.
+ - Do not fret, for God did not create us to abandon us.
+ - Art is a jealous thing; it requires the whole and entire man.
+ - Death and love are the two wings that bear the good man to heaven.
+ - An artist must have his measuring tools not in the hand, but in the eye.
+ - The great tragedy of life is not that people set their sights too high and fail to achieve their goals but that they set their sights too low and do.
+ - The mind, the soul, becomes ennobled by the endeavour to create something perfect, for God is perfection, and whoever strives after perfection is striving for something devine.
+ - He who follows another will never overtake him.
+ - Souls will never ascend to Heaven until the sight of beauty lifts them there.
+ - A great sculpture can roll down a hill without breaking.
+ - And who is so barbarous as not to understand that the foot of a man is nobler than his shoe, and his skin nobler than that of the sheep with which he is clothed.
+ - Art lives on constraint and dies of freedom.
+ - A man paints with his brains and not with his hands.
+ - Critique by creating.
+ - After four tortured years, more than 400 over life-sized figures, I felt as old and as weary as Jeremiah. I was only 37, yet friends did not recognize the old man I had become.
+ - Many believe – and I believe – that I have been designated for this work by God. In spite of my old age, I do not want to give it up; I work out of love for God and I put all my hope in Him.
+ - The hand that follows intellect can achieve.
+ - If I am more alive because love burns and chars me, as a fire, given wood or wind, feels new elation, it’s that he who lays me low is my salvation, and invigorates the more, the more he scars me.
+ - Poets and painters have the power to dare, I mean to dare to do whatever they may approve of...
+ - Your gifts lie in the place where your values, passions and strengths meet. Discovering that place is the first step toward sculpting your masterpiece, Your Life.
+ - I give my soul to God, my body to the earth, and my worldly possessions to my nearest of kin, charging them to remember the sufferings of Jesus Christ.
+ - I am a poor man and of little worth, who is laboring in that art that God has given me in order to extend my life as long as possible.
+ - Every beauty which is seen here by persons of perception resembles more than anything else that celestial source from which we all are come.
+ - It is not sufficient merely to be a great master in painting and very wise, but I think that it is necessary for the painter to be very moral in his mode of life, or even, if such were possible, a saint, so that the Holy Spirit may inspire his intellect.
+ - The more the marbles wastes, the more the statue grows.
+ - Heaven-born, the soul a heavenward course must hold; beyond the world she soars; the wise man, I affirm, can find no rest in that which perishes, nor will he lend his heart to ought that doth time depend.
+ - Sculpture is made by taking away, while painting is made by adding.
+ - Let whoever may have attained to so much as to have the power of drawing know that he holds a great treasure.
+ - Beauty is the purgation of superfluities.
+ - With few words I shall make thee understand my soul.
+ - A beautiful thing never gives so much pain as does failing to hear and see it.
+ - Do not be concerned that you might set a target too high and fail. Be concerned that you will set it too low and succeed.
+ - My soul can find no staircase to Heaven unless it be through Earth’s loveliness.
+ - In every block of marble I see a statue as plain as though it stood before me, shaped and perfect in attitude and action. I have only to hew away the rough walls that imprison the lovely apparition to reveal it to the other eyes as mine see it.
+ - I have never felt salvation in nature. I love cities above all.
+ - The best of artists has no conception that the marble alone does not contain within itself.
+ - Even if you are divine, you don’t disdain male consorts.
+ - No thought is born in me that does not bear the image of death.
+ - In my opinion painting should be considered excellent in proportion as it approaches the effect of relief, while relief should be considered bad in proportion as it approaches the effect of painting.
+ - The promises of this world are, for the most part, vain phantoms; and to confide in one’s self, and become something of worth and value is the best and safest course.
+ - Nature did all things well.
+ - I am no artist – please come and help me.
+ - Serene I fold my hands and wait.
+ - Perchance that I might learn what pity is, That I might laugh at erring men no more.
+ - Painters are not in any way unsociable through pride, but either because they find few pursuits equal to painting, or in order not to corrupt themselves with the useless conversation of idle people, and debase the intellect from the lofty imaginations in which they are always absorbed.
+ - There is an angel imprisoned in it and I must set it free.
+ - Is it any wonder, since, when near the fire, I was melted and burned, if now that it’s extinguished outside me, it besets and consumes me inside, and bit by bit reduces me to ashes?
+ - I live and love in God’s peculiar light.
+ - The art of creation lies in the gift of perceiving the particular and generalizing it, thus creating the particular again. It is therefore a powerful transforming force and a generator of creative solutions in relation to a given problem.
+ - The best of artists hath no thought to show which the rough stone in its superfluous shell doth not include; to break the marble spell is all the hand that serves the brain can do.
+ - He who does not master the nude cannot understand the principles of architecture.
+ - I feast on wine and bread, and feasts they are.
+ - If it be true that any beautiful thing raises the pure and just desire of man from earth to God, the eternal fount of all, such I believe my love.
+ - Love is a beautiful image Imagined or seen within the heart, The friend of virtue and gentility.
+ - It is therefore indisputable that the limbs of architecture are derived from the limbs of man.
+ - I serve for the love of God and in Him have all my hope.
+ - So take care of your life and take notice and be observant, for the number of widows is always far greater than the number of widowers.
+ - Painting and sculpture, labour and good faith, have been my ruin and I continually go from bad to worse. Better it would have been for me if I had set myself to making matches in my youth. I should not be in such distress of mind.
+ - If the wine is not good, then throw it out!
+ - I live in sin, to kill myself I live; no longer my life my own, but sin’s; my good is given to me by heaven, my evil by myself, by my free will, of which I am deprived.
+ - Already at sixteen, my mind was a battlefield: my love of pagan beauty, the male nude, at war with my religious faith. A polarity of themes and forms: one spiritual, the other earthly.
+ - If there is some good in me, it is because I was born in the subtle atmosphere of your country of Arezzo. Along with the milk of my nurse I received the knack of handling chisel and hammer, with which I make my figures.
+ - Good painting is the kind that looks like sculpture.
+ - The power of one fair face makes my love sublime, for it has weaned my heart from low desires.
+ - Do you know that women who are chaste remain much fresher than those who are not?
+ - It is better decoration when, in painting, some monstrosity is introduced for variety and a relaxation of the senses and to attract the attention of mortal eyes, which at times desire to see that which they have never seen...
+ - I was never the kind of painter or sculptor who kept a shop.
+ - What spirit is so empty and blind, that it cannot recognize the fact that the foot is more noble than the shoe, and skin more beautiful than the garment with which it is clothed?
+ - From such a gentle thing, from such a fountain of all delight, my every pain is born.
+ - What one has most to work and struggle for in painting is to do the work with a great amount of labour and sweat in such a way that it may afterward appear, however much it was laboured upon, to have been done almost quickly and almost without any labour, and very easily, although it was not.
+ - The goods of Fortune, even such as they really are, still need taste to enjoy them. It is the enjoying no the possessing, that makes us happy.
+ - I cannot live under pressures from patrons, let alone paint.
+ - Forgiveness is divine, but never pay pull price for late pizza.
+ - It is well with me only when I have a chisel in my hand.
+ - True art is made noble and religious by the mind producing it.
+ - If in my youth I had realized that the sustaining splendour of beauty of with which I was in love would one day flood back into my heart, there to ignite a flame that would torture me without end, how gladly would I have put out the light in my eyes.
+ - Dear to me is sleep: still more, being made of stone, While pain and guilt still linger here below, Blindness and numbness – these please me alone; Then do not wake me, keep your voices low.
+ - The greatest risk to man is not that he aims to high and misses, but that he aims to low and hits.
+ - Good painting is nothing else but a copy of the perfections of God and a reminder of His painting. Finally, good painting is a music and a melody which intellect only can appreciate, and with great difficulty.
+ - Why do You Send Fools To judge My Work?
+ - Art is the gift of God, and must be used unto His glory. That in art is highest which aims at this.
+ - The best artist has that thought alone Which is contained within the marble shell; The sculptor’s hand can only break the spell To free the figures slumbering in the stone.
+ - I criticise by creation, not by finding fault.
+ - Beauty depends on purpose. It is in the elements best suited to their purpose or aim that beauty shines forth most strongly.
+ - The greatest artist has no conception which a single block of white marble does not potentially contain within its mass, but only a hand obedient to the mind can penetrate to this image.
+ - However rich I may have been, I have always lived like a poor man.
+ - Faith in oneself is the best and safest course.
+ - A good artist ought never to allow impatience to overcome his sense of the main end of art – perfection.
+ - Lord, make me see thy glory in every place.
+ - If I love in thee, beloved, only what thou lovest most, do not be angry; for so one spirit is enamoured of another.
+ - I sometimes set myself thinking and imagining that I find amongst men but one single art or science, and that is drawing or painting, all others being members proceeding therefrom.
+ - An artist does his most difficult work when he steps back from the blank canvas and thinks about what he is going to create.
+ - The marble not yet carved can hold the form of every thought the greatest artist has.
+ - Can’t you see the angel imprisoned in the block of stone trying to get out? I am trying to free him.
+
+123 quotes

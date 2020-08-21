@@ -1,0 +1,31 @@
+ - Cinema can fill in the empty spaces of your life and your loneliness.
+ - The 1980s really ended for me in 1992 with the film Kika.
+ - I was born at a bad time for Spain, but a really good one for cinema.
+ - A dead love never dies.
+ - After the enormous success of All About my Mother, all the awards and everything, I wanted to start a movie in exactly the same place that I used to be before. I wanted to show that all of the success had not changed my perception.
+ - I think that the consciousness of passion makes you act very differently.
+ - The silent film has a lot of meanings. The first part of the film is comic. It represents the burlesque feel of those silent films. But I think that the second part of the film is full of tenderness and emotion.
+ - The Flower of My Secret is definitely more based in true emotions. I also wanted to make something more realistic, but not naturalistic or simple.
+ - I used this line to demonstrate how important colors are in movies: It’s not a caprice.
+ - I don’t want to imitate life in movies; I want to represent it. And in that representation, you use the colors you feel, and sometimes they are fake colors. But always it’s to show one emotion.
+ - I think that there is always a part of utopia in any romantic relationship.
+ - I was always storytelling, since I was a child. I remember myself at 10 years old telling stories to my sisters and brother. This is something I did through my adolescence and even through my twenties.
+ - I am partly not conscious of structure with my movies, but this is when I am writing. I leave my mind very free, and then I correct it after.
+ - I’m really a nightmare for the fashion designer because I take away all of his authority, and I become the authority, and I turn him into my assistant. You could say I intervene, and I intervene in a very determining way in all the aspects that have to do with the visual construction of the film.
+ - If I had not been successful as a director, then I’m sure I would still be telling stories. I would have continued on 16mm or found a different medium through which to tell them. Maybe they would have been less glamorous than films, but I would continue to tell stories.
+ - Anything that is not autobiography is plagiarism.
+ - I make movies for my needs. My goal has never, never, never been to make shocking movie.
+ - Never again work in the same conditions in whichyou made your first film. It’s good to take risks, but not thatmuch risk.
+ - Even though I love my mother, I didn’t want to make an idealized portrait of her. I’m fascinated more by her defects – they are funnier than her other qualities.
+ - There is a mysterious stillness and intimacy of a woman doing her hair and make-up which attracts me.
+ - I’m more interested to show the darkest places of myself, and I don’t joke about it.
+ - When I’m writing, I don’t put faces on the characters. When I finish the first draft of the script, I start visualizing, and sometimes then I think about one actor.
+ - Each actor is a very different person, and each one has to be directed very differently.
+ - When I start writing, the first line might come from reality, but the second and the third one, I have to write it. So this is the genesis of my creation. If I want to know what happens, if I want to find out the secret, I have to write it.
+ - The challenge to me as a director was for the audience to see the film as going on in a straight line, so that they did not sense all of these break-ups. I did not want a film to be a collage of all these images.
+ - When I was young I thought: when I am 60 my necessities will be very different. As I get near that age, I realise they are similar to what they were when I was 25.
+ - Cukor is one of my favorite directors. He was a master at directing women.
+ - It’s a pity that I can never really enjoy my movies because, after the mixing, your capacity as a spectator just disappears. I have to think about what I felt just before the mixing.
+ - When I was very young, I was already a fabulador. I loved to give my own version of stories that everybody already knew. When I got out of a movie with my sisters, I retold them the whole story. In general they liked my version better than the one they had seen.
+
+29 quotes

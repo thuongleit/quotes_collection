@@ -1,0 +1,28 @@
+ - The Seventh Day Adventist Church believes that it was specially chosen by God to prepare the world for the Second Coming of His Son Jesus.
+ - I decided to take God and organized religion seriously, and to reject the secular life which in my teens had looked attractive because it allowed me to act in any way that I wanted.
+ - Everything we do affects other people.
+ - I did not want to reject religion as nonsense because life seemed to have no ultimate purpose without it, and most of the good people I knew were Christians.
+ - I learned from my Adventist upbringing that the biggest sins were sexual.
+ - Acting in anger and hatred throughout my life, I frequently precipitated what I feared most, the loss of friendships and the need to rely upon the very people I’d abused.
+ - I now attend non-orthodox synagogues, and study little during the secular week.
+ - Looking back, I wince at the careless way I tossed out my opinions.
+ - My habit of glorifying things far away in space and time, also contributed to my social isolation.
+ - One in 150 kids is autistic these days. The autism spectrum is growing.
+ - I’ve had horror movies thrown at me and I just don’t want to do any because violence isn’t really good for society.
+ - Judaism is much more communal, and partly as a consequence of my religious switch, I am increasingly more suspicous of my previous view that what people do in the privacy of their own home is their business alone.
+ - I knew in my gut that there was something wrong with a system that couldn’t fire its incompetents, and I had my share of incompetent college teachers.
+ - I’m one of the guys who wants to watch the film completely done, with special effects, sound and music, because I tend to get disappointed if I watch it not fully done.
+ - I’ve often thought that my lack of intimacy with those around me is the fault of those around me.
+ - I have decided to follow in my sinful ways, and have largely abandoned the increasingly religious life I was leading over the previous months, including several hours of Talmudic study a day.
+ - Whether you do a play in front of 100 people or a movie that one billion people see, you’re still affecting people.
+ - At the time I perceived most religious men, particularly the pastors with all their talk about love, faith and relationship, as effeminate.
+ - I loved history, particularly of the British, American and Old Testament kind.
+ - If ‘Black Balloon’ had come out before ‘The Mummy,’ casting agents wouldn’t have been able to see me for the first time in ‘The Mummy.’ But now that ‘The Mummy’ has come out before ‘The Black Balloon,’ that’s a very good combination.
+ - I believed that English-speaking people had a divine mission to civilize the world by making it western, democratic and Christian.
+ - In my right-wing politics of the time, I held that unemployment was usually the fault of the unemployed.
+ - I teethed on books of heroes such as Winston Churchill, Abraham Lincoln and King David.
+ - At times during high school and college I wished to be a sportswriter.
+ - I’m not jumping into anything fast. I’m an actor that likes to choose my work and there’s an element of good taste to my work.
+ - The thing about me is I have a great little acting school. I teach about 125 students.
+
+26 quotes

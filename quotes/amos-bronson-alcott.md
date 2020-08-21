@@ -1,0 +1,134 @@
+ - Prudence is the footprint of Wisdom.
+ - Stay is a charming word in a friend's vocabulary.
+ - Health, longevity, beauty, are other names for personal purity; and temperance is the regimen for all.
+ - Good books, like good friends, are few and chosen; the more select, the more enjoyable.
+ - Love is the key to felicity, nor is there a heaven to any who love not. We enter Paradise through its gates only.
+ - Creeds, like other goods, pass by inheritance to descendants.
+ - Debate is masculine, conversation is feminine.
+ - Ignorance is innocence – stupidity comes with experience.
+ - Who loves a garden, still his Eden keeps, Perennial pleasures plants, and wholesome harvests reaps.
+ - Debate is angular, conversation circular and radiant of the underlying unity.
+ - The true teacher defends his pupils against his own personal influence.
+ - Our bravest and best lessons are not learned through success, but through misadventure.
+ - Conversation is an abandonment to ideas, a surrender to persons.
+ - That is a good book which is opened with expectation, and closed with delight and profit.
+ - Experience converts us to ourselves when books fail us.
+ - One’s outlook is a part of his virtue.
+ - A candid spirit is mightier than the most persistent dogmatism.
+ - Yet the deepest truths are best read between the lines, and, for the most part, refuse to be written.
+ - Books are the most mannerly of companions, accessible at all times, in all moods, frankly declaring the author’s mind, without offense.
+ - Hold fast, therefore, O circular philosopher, to thy centre, and drive the globe along its orbit by the momentum of thy thought.
+ - Fullness is always quiet; agitation will answer for empty vessels only.
+ - Sleep on your writing; take a walk over it; scrutinize it of a morning; review it of an afternoon; digest it after a meal; let it sleep in your drawer a twelvemonth; never venture a whisper about it to your friend, if he be an author especially.
+ - Who loves a garden still his Eden keeps.
+ - Time is one’s best friend, teaching best of all the wisdom of silence.
+ - Whatsoever stirs the stagnant currents, setting these flowing in wholesome directions, promotes brisk spirits and productive thinking. The less of routine, the more of life.
+ - Without a mythology, faith is impersonal and heartless.
+ - The traveled mind is the catholic mind educated from exclusiveness and egotism.
+ - Cleanse the fountain if you would purify the streams.
+ - While one finds company in himself and his pursuits, he cannot feel old, no matter what his years may be.
+ - Equanimity is the gem in virtue’s chaplet, and St. Sweetness the loveliest in her calendar.
+ - Good discourse sinks differences and seeks agreements.
+ - Of books in our time the variety is so voluminous, and they follow so fast from the press, that one must be a swift reader to acquaint himself even with their titles, and wise to discern what are worth reading.
+ - Egotists cannot converse, they talk to themselves only.
+ - Nor is a day lived if the dawn is left out of it, with the prospects it opens. Who speaks charmingly of nature or of mankind, like him who comes bibulous of sunrise and the fountains of waters?
+ - A happy childhood is the pledge of a ripe manhood.
+ - The head best leaves to the heart what the heart alone divines.
+ - When one becomes indifferent to women, to children, and young people., he may know that he is superannuated, and has withdrawn from whatsoever is sweetest and purest in human existence.
+ - Sympathy wanting, all is wanting; its personal magnetism is the conductor of the sacred spark that lights our atoms, puts us m human communion, and gives us to company, conversation, and ourselves.
+ - Of gifts, there seems none more becoming to offer a friend than a beautiful book.
+ - One must be a wise reader to quote wisely and well.
+ - Plans made in the nursery Can change the course of history.
+ - One must be rich in thought and character to owe nothing to books.
+ - Genius has oftenest been the pariah of his time, the unhoused god whom none cared for, unnamed till they whom he first promoted, enriched and honored, found it honorable to own their benefactor.
+ - Like birds of passage, the instincts drift the soul adventurously beyond the horizon of sensible things, as if intent on convoying it to the mother country from whence it had flown.
+ - Children are illuminated text-books, breviaries of doctrine, living bodies of divinity, open always and inviting their elders to peruse the characters inscribed on the lovely leaves.
+ - Man must have some recognized stake in society and affairs to knit him lovingly to his kind, or he is wont to revenge himself for wrongs real or imagined.
+ - Where there is a mother in the home, matters go well.
+ - An age deficient in idealism has ever been one of immorality and superficial attainment, since without the sense of ideas, nobility of character becomes of rare attainment, if possible.
+ - Many are those who can argue; few are those who can converse.
+ - Right is the royal ruler alone; and he who rules with least restraint comes nearest to empire.
+ - Education may work wonders as well in warping the genius of individuals as in seconding it.
+ - Time ripens the substance of a life as the seasons mellow and perfect its fruits. The best apples fall latest and keep longest.
+ - One must espouse some pursuit, taking it kindly at heart and with enthusiasm.
+ - The eyes have a property in things and territories not named in any title-deeds, and are the owners of our choicest possessions.
+ - The more one endeavors to sound the depths of his ignorance the deeper the chasm appears.
+ - Genius – the free and harmonious play of all the faculties of a human being.
+ - Where women are, the better things are implied if not spoken.
+ - The books that charmed us in youth recall the delight ever afterwards; we are hardly persuaded there are any like them, any deserving our equal affections.
+ - My favorite books have a personality and complexion as distinctly drawn as if the author’s portrait were framed into the paragraphs and smiled upon me as I read his illustrated pages.
+ - Evil is retributive: every trespass slips fetters on the will, holds the soul in durance till contrition and repentance restore it to liberty.
+ - Heaven trims our lamps while we sleep.
+ - Enthusiasm is essential to the successful attainment of any high endeavor.
+ - One does not see his thought distinctly till it is reflected in the image of another’s.
+ - Enthusiasm imparts itself magnetically and fuses all into one happy and harmonious unity of feeling and sentiment.
+ - A birthday is a good time to begin a new; throwing away the old habits, as you would old clothes, and never putting them again.
+ - Thought means life, since those who do not think so do not live in any high or real sense. Thinking makes the man.
+ - An author who sets his reader on sounding the depths of his own thoughts serves him best.
+ - Who knows, the mind has the key to all things besides.
+ - The best teachers don’t allow their own personal views to influence their teaching.
+ - Friendship is a plant that loves the sun, thrives ill under clouds.
+ - Wherever comes man comes tragedy and comedy also.
+ - Man is a living lie – a bitter jest Upon himself – a conscious grain of sand Lost in a desert of unconsciousness.
+ - The mind is fast emancipating itself from the dominion of man and of matter. It has let loose fearful forces on the world.
+ - If the ancients left us ideas, to our credit be it spoken that we moderns are building houses for them – structures which neither Plato nor Archimedes had dreamed possible.
+ - None can teach admirably if not loving his task.
+ - A good style fits like a good costume.
+ - A chaste generation would restore Paradise.
+ - Ideas in the head set hands about their several tasks.
+ - As education becomes inclusive, introspective, cosmic, promoting whole populations to power and privilege, it enthrones a vast, invisible, personal rule over the common mind.
+ - Truth is inclusive of all the virtues, is older than sects and schools, and, like charity, more ancient than mankind.
+ - One must be rich in thought and character to owe nothing to books, though preparation is necessary to profitable reading; and the less reading is better than more; – book-struck men are of all readers least wise, however knowing or learned.
+ - There is virtue in country houses, in gardens and orchards, in fields, streams and groves, in rustic recreations and plain manners, that neither cities nor universities enjoy.
+ - Your real influence is measured by your treatment of yourself.
+ - Sloth is the tempter that beguiles and expels from paradise.
+ - Many can argue – not many converse.
+ - All unrest is but the struggle of the soul to reassure herself of her inborn immortality.
+ - Modesty is bred of self-reverence. Fine manners are the mantle of fair minds.
+ - A sip is the most than mortals are permitted from any goblet of delight.
+ - The wisest and best are repulsive, if they are characterized by repulsive manners. Politeness is an easy virtue, costs little, and has great purchasing power.
+ - A man defines his standing at the court of chastity by his views of women.
+ - Nor do we accept, as genuine the person not characterized by this blushing bashfulness, this youthfulness of heart, this sensibility to the sentiment of suavity and self-respect. Modesty is bred of self-reverence. Fine manners are the mantle of fair minds. None are truly great without this ornament.
+ - I consider it the best part of an education to have been born and brought up in the country.
+ - Truth is sensitive and jealous of the least encroachment upon its sacredness.
+ - Civilization degrades many in order to exalt the few.
+ - Anger is the resentment of the animal, and gentle blood alone makes the gentleman.
+ - Action and blood now get the game. Disdain treads on the peaceful name.
+ - Would Shakespeare and Raleigh have done their best, would that galaxy have shone so bright in the heavens had there been no Elizabeth on the throne?
+ - A state, a community, caring first for all its children, providing amply for their spiritual as for their temporal well-being, has organized the primitive Eden.
+ - Life is one, religion one, creeds are many and diverse.
+ - A check on itself, evil subserves the economies of good, as it were a condiment to give relish to good.
+ - Despair snuffs the sun from the firmament.
+ - Every sin provokes its punishment.
+ - A friendship formed in childhood, in youth, – by happy accident at any stage of rising manhood, – becomes the genius that rules the rest of life.
+ - The passions refuse to be organized on a basis of their own; hostile to personal freedom and one another, they rush precipitately into anarchy and mob rule.
+ - One’s life should be sufficiently interesting to furnish entertainment in the record.
+ - Who speaks to the instincts speaks to the deepest in mankind, and finds the readiest response.
+ - Travel makes all men countrymen, makes people noblemen and kings, every man tasting of liberty and dominion.
+ - Memory marks the horizon of our consciousness, imagination its zenith.
+ - No one is promiscuous in his way of dying. A man who has decided to hang himself will never jump in front of a train.
+ - Friends are the leaders of the bosom, being more ourselves than we are, and we complement our affections in theirs.
+ - The richest minds need not large libraries.
+ - We climb to heaven most often on the ruins of our cherished plans, finding our failures were successes.
+ - The finer literature, indeed, is characterized by a certain suffusion of the feminine flavor, the finer, the more ideal, thought plumed with sentiment; even science loves to spring from its feet, philosophy affect the clouds to inspire and edify.
+ - I find my past in my present, and from these forecast my future.
+ - Dignity of manner always conveys a sense of reserved force.
+ - Divination seems heightened and raised to its highest power in woman.
+ - Our friends interpret the world and ourselves to us, if we take them tenderly and truly.
+ - A work of real merit finds favor at last.
+ - Modesty, that perennial flower planted instinctively in the human breast, blooms therein only as continence guards and virtue keeps.
+ - Traveling is no fool’s errand to him who carries his eyes and itinerary along with him.
+ - Cities with all their advantages have something hostile to liberal learning, the seductions are so subtle and accost the senses so openly on all sides.
+ - Pleasure, that immortal essence, the beauteous bead sparkling in the cup, effervesces soon and subsides.
+ - Every noble life becomes a revelation of the spirit which the love and joy of mankind cannot let perish from remembrance.
+ - There are truths that shield themselves behind veils, and are best spoken by implication. Even the sun veils himself in his own rays to blind the gaze of the too curious starer.
+ - Inspiration must find answering inspiration.
+ - Every dogma embodies some shade of truth to give it seeming currency.
+ - A good book is fruitful of other books; it perpetuates its fame from age to age, and makes eras in the lives of its readers.
+ - Opposition strengthens the manly will.
+ - Devotees of grammatical studies have not been distinguished for any very remarkable felicities of expression.
+ - Pity the mother who assumes the name without being all this implies!
+ - Labor humanizes, exalts.
+ - Our favorites are few; since only what rises from the heart reaches it, being caught and carried on the tongues of men wheresoever love and letters journey.
+
+132 quotes

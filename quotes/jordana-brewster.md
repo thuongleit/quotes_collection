@@ -1,0 +1,32 @@
+ - I like having a routine, because everything else is so unpredictable.
+ - My dream car would be a Maserati. That would be amazing.
+ - I think escapism is really important.
+ - I feel like directing is an innate talent.
+ - I will not go on a blind date.
+ - I moved to New York when I was 10, from Rio de Janeiro. So there was no need for driving: I took the subway, cabs and the bus.
+ - I already have a production company called J Squared and we’re working on two projects.
+ - I like action more than anything touchy-feely.
+ - I think the play on words for ‘Punky’ Brewster has definitely played itself out.
+ - I once owned a really, really ugly pair of white leather boots. They were so bad. It was back in the ’80s! It was just a really tacky fashion choice when I was in middle school, and I thought it was cool. I’m really embarrassed.
+ - I love working out, but I need my brain to be someplace else as my body does the work.
+ - I’m saying my rosary every day.
+ - Even now that I’m married and 28, my room’s still intact the way it was when I went to high school.
+ - When I do my own makeup, I keep things pretty simple.
+ - There was one day when I just didn’t feel like I could do weight training after my cardio, so I didn’t. You do have to know when to stop, or you can hurt yourself.
+ - I had to take driving lessons in New York, which were really weird because it’s not the safest thing in the world.
+ - I meditate, which I really like. Just 20 minutes twice a day and that really helps.
+ - At school, I basically wear one pair of jeans and sneakers for months on end.
+ - Women always want to be what they’re not: If you’re the pretty girl, you want to be the quirky girl. If you’re the smart girl, you want to be the pretty girl.
+ - I’d love to be a Bond girl. I mean, if you’re going to be stereotyped, there are worse things to be stereotyped as.
+ - I work out with a trainer five days a week.
+ - I miss the anonymity that comes with New York because everyone around you is so immersed in their own journey.
+ - I think that unless you grew up in New York or Chicago or Los Angeles, you’re sheltered.
+ - People spend so much time in their cars, and it’s a legal way to have fun by speeding a little bit or testing yourself a little bit, and you get to invest in your car. For some people, it becomes their baby.
+ - I like working consistently. I like working for four months at a time, which is why cable was so attractive. You work for four months, and then you get to do something else, whether it’s doing a movie or just being at home with your husband and eventually having a family.
+ - Oscar night is a ridiculous night where you go to these parties and you see everyone that you’ve ever wanted to work with and admire.
+ - I think movies should illuminate and teach, but that’s for a certain genre.
+ - Also, when you think about a show that you used to watch as a kid or as a teenager, you look at it through sort of rose colored glasses when you remember it.
+ - I’ve always been kind of picky because I’ve always been interested in lots of different things. I chose to take three years off and go to school, and that helped keep me sane. Hollywood can make you crazy, if all you’re thinking about is your next job.
+ - When I was really young. My sister and I would create different characters with our Barbie dolls – I’d be the crazy diva Barbie and she’d be the homeless Barbie.
+
+30 quotes

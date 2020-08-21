@@ -1,0 +1,292 @@
+ - If you love someone, set them free. If they come back they're yours; if they don't they never were.
+ - You teach best what you most need to learn.
+ - True love stories never have endings.
+ - The bond that links your true family is not one of blood, but of respect and joy in each other’s life.
+ - What the caterpillar calls the end of the world the master calls a butterfly.
+ - To bring anything into your life, imagine that it’s already there.
+ - A professional writer is an amateur who didn’t quit.
+ - Argue for your limitations, and sure enough they’re yours.
+ - You’re never given a dream without the power to make it true.
+ - I do not exist to impress the world. I exist to live my life in a way that will make me happy.
+ - Perspective: use it or lose it.
+ - Can miles truly separate you from friends... If you want to be with someone you love, aren’t you already there?
+ - Here is the test to find whether your mission on Earth is finished: if you’re alive, it isn’t.
+ - Don’t be dismayed by good-byes. A farewell is necessary before you can meet again. And meeting again, after moments or lifetimes, is certain for those who are friends.
+ - Remember where you came from, where you’re going, and why you created this mess you got yourself into in the first place.
+ - Did you ever feel that you were missing someone you had never met?
+ - A tiny change today brings a dramatically different tomorrow.
+ - Mistakes – call them unexpected learning experiences.
+ - You are never given a wish without also being given the power to make it come true. You may have to work for it, however.
+ - The only thing that matters, at the end of a stay on earth, is how well did we love, what was the quality of our love?
+ - Our soulmate is someone who shares our deepest longings, our sense of direction. When we’re two balloons, and together our direction is up, chances are we’ve found the right person. Our soulmate is the one who makes life come to life.
+ - Overcome space, and all we have left is Here. Overcome time, and all we have left is Now.
+ - If you want to meet someone who can fix any situation you don’t like, who can bring you happiness in spite of what other people say or believe, look in a mirror, then say this magic word: ‘Hello.’
+ - Your only obligation in any lifetime is to be true to yourself.
+ - In order to win, you must expect to win.
+ - Learning is finding out what you already know. Doing is demonstrating that you know it. Teaching is reminding others that they know just as well as you. You are all learners, doers, teachers.
+ - A soulmate is someone who has locks that fit our keys, and keys to fit our locks.
+ - Don’t fear change. It’s always for the best.
+ - Of course there’s destiny, but destiny doesn’t push you where you don’t want to go. You’re the ones who choose. Destiny is up to you.
+ - Your life is a treasure and you are so much more than you know.
+ - Any powerful idea is absolutely fascinating and absolutely useless until we choose to use it.
+ - Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years.
+ - The more I want to get something done, the less I call it work.
+ - Cherish yesterday, Dream tomorrow, Live today.
+ - You are always free to change your mind and choose a different future, or a different past.
+ - Every problem has a gift for you in its hands.
+ - Our soulmate is the one who makes life come to life.
+ - Life does not listen to your logic; it goes on its own way, undisturbed. You have to listen to life.
+ - The big thing about writing is three commands: Have fun. Don’t think. Don’t care.
+ - If your happiness depends on what somebody else does, I guess you do have a problem.
+ - The simplest questions are the most profound. Where were you born? Where is your home? Where are you going? What are you doing? Think about these once in a while and watch your answers change.
+ - There is no such thing as a problem without a gift for you in its hands. You seek problems because you need their gifts.
+ - The opposite of Loneliness is not Togetherness, It’s Intimacy.
+ - The best way to pay for a lovely moment is to enjoy it.
+ - Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you.
+ - Pain and adversity are powerful vehicles to promote personal growth. Nothing helps you learn, grow, and evolve more quickly. Nothing offers you as big an opportunity to reclaim more of your authentic power as a person.
+ - When you have come to the edge of all the light you have And step into the darkness of the unknown Believe that one of the two will happen to you Either you’ll find something solid to stand on Or you’ll be taught how to fly!
+ - In order to live free and happily you must sacrifice boredom. It is not always an easy sacrifice.
+ - Fly free and happy beyond birthdays and across forever, and we’ll meet now and then when we wish, in the midst of the one celebration that never can end.
+ - Your only obligation in any lifetime is to be true to yourself. Being true to anyone else or anything else is not only impossible, but the mark of a fake messiah.
+ - Your conscience is the measure of the honesty of your selfishness. Listen to it carefully.
+ - Avoid problems, and you’ll never be the one who overcame them.
+ - I relax my body completely, relax my mind completely, and then imagine myself at a level where anything can happen.
+ - Don’t believe what your eyes are telling you. All they show is limitation. Look with your understanding, find out what you already know, and you’ll see the way to fly.
+ - To fly as fast as thought, to anywhere that is, you must begin by knowing that you have already arrived.
+ - For most gulls it was not flying that matters, but eating. For this gull, though, it was not eating that mattered, but flight.
+ - There are no mistakes. The events we bring upon ourselves, no matter how unpleasant, are necessary in order to learn what we need to learn; whatever steps we take, they’re necessary to reach the places we’ve chosen to go.
+ - Every gift from a friend is a wish for your happiness.
+ - We’re the bridge across forever, arching above the sea, adventuring for our pleasure, living mysteries for the fun of it, choosing disasters triumphs challenges impossible odds, testing ourselves over and again, learning love and love and love!
+ - The river delights to lift us free, if only we dare let go.
+ - Within each of us lies the power of our consent to health and sickness, to riches and poverty, to freedom and to slavery. It is we who control these, and not another.
+ - The worst lies are the lies we tell ourselves.
+ - Ask yourself the secret of your success. Listen to your answer, and practice it.
+ - One school is finished, and the time has come for another to begin.
+ - I do everything myself, from engine start to engine shutdown. In a war, I will face alone the missiles and the flak and the small-arms fire over the front lines. If I die, I will die alone.
+ - No matter how qualified or deserving we are, we will never reach a better life until we can imagine it for ourselves and allow ourselves to have it.
+ - You wait a lifetime to meet someone who understands you, accepts you as you are. At the end, you find that someone, all along, has been you.
+ - You will begin to touch heaven, Jonathan, in the moment that you touch perfect speed. And that isn’t flying a thousand miles an hour, or a million, or flying at the speed of light. Because any number is a limit, and perfection doesn’t have limits. Perfect speed, my son, is being there.
+ - Learning is finding out what you already know.
+ - We design our lives through the power of choices.
+ - Compelling reason will never convince blinding emotion.
+ - We magnetize into our lives whatever we hold in our thought.
+ - There’s no disaster that can’t become a blessing, and no blessing that can’t become a disaster.
+ - He who argues for his limitations gets to keep them.
+ - Numbers are limits, and perfection doesn’t have limits.
+ - If we want to end this lifetime higher than we began, we can expect an uphill road.
+ - The original sin is to limit the Is. Don’t.
+ - An easy life doesn’t teach us anything. In the end it’s the learning that matters: what we’ve learned and how we’ve grown.
+ - The gull sees farthest who flies highest.
+ - Don’t turn away from possible futures before you’re certain you don’t have anything to learn from them.
+ - Wrong turns are as important as right turns. More important, sometimes.
+ - Never stop feeling and seeing and being excited with great things like air and engines and sounds of sunlight within you.
+ - I’m here not because I am supposed to be here, or because I’m trapped here, but because I’d rather be with you than anywhere else in the world.
+ - Bad things are not the worst things that can happen to us. Nothing is the worst thing that can happen to us!
+ - Hell is a place, a time, a consciousness, in which there is no love.
+ - Jonathan sighed. The price of being misunderstood, he thought. They call you devil or they call you god.
+ - Nobody comes to Earth to dodge problems. We come here to take ’em on.
+ - If perfection is stagnation, then Heaven is a swamp.
+ - Life tells you nothing, it shows you everything.
+ - You don’t want a million answers as much as you want a few forever questions. The questions are diamonds you hold in the light. Study a lifetime and you see different colors from the same jewel.
+ - If you want magic, let go of your armor. Magic is so much stronger than steel.
+ - Most gulls don’t bother to learn more than the simplest facts of flight – how to get from shore to food and back again.
+ - When we come to the last moment of this lifetime and we look back across it, the only thing that’s going to matter is ‘What is the quality of our love?’
+ - You can’t solve problems for someone whose problem is that they don’t want problems solved.
+ - What matters is how I use what I know, every minute of every day; how I use it to remember, in the midst of the game.
+ - If it’s never our fault, we can’t take responsibility for it. If we can’t take responsibility for it, we’ll always be its victim.
+ - Perspective – Use It or Lose It. If you turned to this page, you’re forgetting that what is going on around you is not reality. Think about that.
+ - I take the paraglider to the mountain or I roll Daisy out of her hangar and I pick the prettiest part of the sky and I melt into the wing and then into the air, till I’m just soul on a sunbeam.
+ - Grief is no more necessary when we understand death than fear is necessary when we understand flying.
+ - Reputation is what people think you are. Character is who you really are. Take care of your character and your reputation will take care of itself. The more I want to get something done, the less I call it work.
+ - Live never to be ashamed if anything you say or do is published around the world, even if what is said is not true.
+ - Strong beliefs win strong men, and then make them stronger.
+ - Whatever enchants also guides and protects.
+ - We design our lives through the power of our choices. We feel most helpless when we’ve made choices by default, when we haven’t designed our lives on our own.
+ - Listen to what you know instead of what you fear.
+ - We can lift ourselves out of ignorance, we can find ourselves as creatures of excellence and intelligence and skill.
+ - Responsible is Able to respond, Able to answer for the way we choose to live. There’s only one person we have to answer to, of course, and that is ourselves.
+ - That’s what learning is, after all; not whether we lose the game, but how we lose and how we’ve changed because of it, and what we take away from it that we never had before, to apply to other games. Losing, in a curious way is winning.
+ - In the path of our happiness shall we find the learning for which we have chosen this lifetime.
+ - Choose a love and work to make it true, and somehow, something will happen, something you couldn’t plan, will come along to move like to like, to set you loose, to set you on the way to your next brick wall.
+ - There is something to astrology for those who believe in astrology, as there is something to medicine for those who believe in medicine. Every system works when we give our heart to it.
+ - Fear not, nor be dismayed at the appearance that is darkness, at the disguise that is evil, at the empty cloak that is death, for you have picked these for your challenges. They are stones on which you choose to whet the keen edge of your spirit.
+ - By your choice dwell you now in the world which you have created. What you hold in your heart shall be true, and what you most admire, that shall you become.
+ - One of the cosmic laws, I think, is that whatever we hold in our thought will come true in our experience.
+ - The one thing we fear most is the one thing that is not possible: We cannot die, we cannot be destroyed.
+ - An airplane stands for freedom, for joy, for the power to understand, and to demonstrate that understanding.
+ - You are life, inventing form. No more can you die on sword or years than you can die on doorways through which you walk, one room into another. Every room gives its word for you to speak, every passage its song for you to sing.
+ - Sometimes when you say goodbye, that’s the right thing to do in a relationship.
+ - If you will practice being fictional for a while, you will understand that fictional characters are sometimes more real than people with bodies and heartbeats.
+ - For pilots sometimes see behind the curtain, behind the veil of gossamer velvet, and find the truth behind man, the force behind a universe.
+ - It was morning, and the new sun sparkled gold across the ripples of a gentle sea.
+ - She didn’t mean to be sexy that moment, but even a winter nightgown couldn’t hide that lovely outline. When will I outgrow my simple-minded fascination with the form she had happened to choose for her body? Never, I thought.
+ - There is no such thing as a problem without a gift.
+ - When you’re flying, an airplane doesn’t care who you are; it doesn’t care how much money you make or don’t make. All it cares about is: How well do you fly? How well do you know the airplane? How well do you know the sky?
+ - We thought humble and proud at the same time, all at once in love again with this painful bittersweet lovely thing called flight.
+ - You don’t love hatred and evil, of course. You have to practice and see the real gull, the good in every one of them, and to help them see it in themselves. That’s what I mean by love.
+ - That she won the game startled me cold. The way she won, the pattern of her thought on the chessboard, charmed me warm again and then some.
+ - Boredom between two people doesn’t come from being together physically. It comes from being apart mentally and spiritually.
+ - He was not bone and feather but a perfect idea of freedom and flight, limited by nothing at all.
+ - Reality lies far beyond space and time, and I need to know why.
+ - Thanks to you, I always am so happy. Now I want to give you all the happiness on your birthday.
+ - We’re all the sons of God, or children of the Is, or ideas of the Mind, or however else you want to say it.
+ - Next to God, love is the word most mangled in every language. The highest form of regard between two people is friendship, and when love enters, friendship dies.
+ - The simplest things are often the truest.
+ - That’s why love stories don’t have endings! They don’t have endings because love doesn’t end.
+ - Dying is like diving into a deep lake on a hot day. There’s the shock of that sharp, cold change, the pain of it for a second, and then accepting is a swim in reality. But after so many times, even the shock wears off.
+ - It is by not always thinking of yourself, if you can manage it, that you might somehow be happy. Until you make room in your life for someone as important to you as yourself, you will always be searching and lost.
+ - Anybody who’s ever mattered, anybody who’s ever been happy, anybody who’s ever given any gift into the world has been a divinely selfish soul, living for his own best interest. No exceptions.
+ - All we see of someone at any moment is a snapshot of their life, there in riches or poverty, in joy or despair. Snapshots don’t show the million decisions that led to that moment.
+ - You are led through your lifetime by the inner learning creature, the playful spiritual being that is your real self.
+ - Some choices we live not only once but a thousand times over, remembering them for the rest of our lives.
+ - Rarely do members of the same family grow up under the same roof.
+ - If we must lose wife or husband when we live to our highest right, we lose an unhappy marriage as well, and we gain ourselves. But if a marriage is born between two already self-discovered, what a lovely adventure begins, hurricanes and all.
+ - Nothing good is a miracle, nothing lovely is a dream.
+ - The meaning I picked, the one that changed my life: Overcome fear, behold wonder.
+ - Laughing on the way to your execution is not generally understood by less-advanced life forms, and they call you crazy.
+ - Without my airplane I am an ordinary man, and a useless one – a trainer without a horse, a sculptor without marble, a priest without a god. Without an airplane I am a lonely consumer of hamburgers...
+ - Not being known doesn’t stop the truth from being true.
+ - I gave my life to become the person I am right now. Was it worth it?
+ - You can achieve a goal; you never really achieve your purpose, because your purpose is ongoing. It never stops.
+ - Sometimes when learning comes before experience It doesn’t make sense right away.
+ - The world is your exercise book, the pages on which you do your sums. It is not reality, though you may express reality there if you wish. You are also free to write lies, or nonsense, or to tear the pages.
+ - Every step in every proud life is a run from safety to the dark, and the only thing to trust is what we think is true.
+ - Everything is exactly as it is for a reason. The crumb on your table is no mystical reminder of this morning’s cookie, it is there because you have chosen not to remove it. No exceptions.
+ - Real integrity is doing the right thing, knowing that nobody’s going to know whether you did it or not. Sooner or later, those who win are those who think they can.
+ - If you’re always looking at someone else, trying to imitate them, how can your natural gifts ever emerge?
+ - Mortalhood is a fine state to visit, but you’d better not call it home.
+ - You are led, when you share your loves, to an enchanted life of inner happiness, which unsharing others cannot know.
+ - One must first learn to fall if one would fly...
+ - You choose, you live the consequences. Every yes, no, maybe, creates the school you call your personal experience.
+ - Your harshest truths are dreams, and your gentlest dreams are true.
+ - To learn anything, you must put aside the safety of your ignorance.
+ - You are not the child of the people you call mother and father, but their fellow-adventurer on a bright journey to understand the things that are.
+ - Hate is love without enough data.
+ - The only way to avoid all frightening choices is to leave society and become a hermit, and that is a frightening choice.
+ - When you dream, all the scenery, characters, events, perils, and outcomes are built from your own consciousness, the darks and oppressions as well as the delights. Same with the world awake, though it takes you longer to build it.
+ - How can we resent the life we’ve created for ourselves? Who’s to blame, who’s to credit, but us? Who can change it, any time we wish, but us?
+ - Silly ideas, worth the admission price in smiles, but they’re true. Is high-energy physics interesting because it’s true or because it’s crazy?
+ - We don’t have rights until we claim them.
+ - The space for what you want is already filled with what you settled for instead.
+ - No one does anything uncharacteristic of who they are.
+ - Reality is divinely indifferent.
+ - Does anybody learn writing, or do they just touch someone who lets them see the power of the deleted word?
+ - Two thousand years ago, five thousand, they didn’t have a word for imagination, and faith was the best they could come up with for a pretty solemn bunch of followers.
+ - Having made the decision to love, had I chosen life instead of death?
+ - How easy it is to be compassionate when it’s yourself you see in trouble.
+ - Live enough of what you’ve always dreamed of doing, and there’s no room left for feeling bad.
+ - Books arent written on whim or promises. Books are written on years turned inside out by ideas that never let go until you get them in print, and even then writings a last resort, a desperate ransom you pay to get your life back.
+ - The first prerequisite of an advanced being is a sense of humor.
+ - Humanity is not a gift of nature, it is a spiritual achievement to be earned.
+ - Reason and intellect are opening wedges in an understanding of reality.
+ - Whatever We Hold in Thought Comes True in Our Experience; Like Attracts Like; we experiment with the Law of Changing Appearances, to make our outer world reflect our inner.
+ - The great thing about writing is, if you don’t like the world, we’ll create a different one.
+ - A drug for everything is madness. Legal or not, prescribed or not, over-counter under-counter bought for blood on street-corners-every pill separates us from knowing our own completion and from being taught by what’s true.
+ - When we put up with any situation we don’t have to put up with, it’s not because we’re dumb. We put up with it, because we want the lesson only that situation can teach, and we want it more than freedom myself.
+ - We know nothing until intuition agrees.
+ - I do not enjoy writing at all. If I can turn my back on an idea, out there in the dark, if I can avoid opening the door to it, I won’t even reach for a pencil.
+ - I don’t think any of my books tell the reader anything new. But they do remind, in a time that is strident and screeching about the limitations of this world and all the trouble we can get ourselves into.
+ - Only a few people are interested in what you have to say, but that is all right. You don’t have to tell the quality of a master by the size of his crowds.
+ - As long as we believe in sequential time, we see becoming instead of being. Beyond time, we are all one.
+ - Two things I do value a lot, intimacy and the capacity for joy, didn’t seem to be on anyone else s list. I felt like the stranger in a strange land, and decided I’d better not marry the natives.
+ - I’m a writer as rarely as possible, when forced by an idea too lovely to let die unwritten.
+ - I don’t think creativity is mine to maintain. It automatically comes when we declare that “I am an expression of life, and life will express itself through me in the most playful and wonderful of ways, if I let it.”
+ - My way of writing a book is completely disorganized – to hurl myself at the problem, over and over.
+ - Anything we need to know, we can learn it from a book.
+ - There’s this wonderful and very important event when we’re born, and we forget everything that’s gone before, or else we’d be such a mass of rememberings that we couldn’t operate successfully on this planet.
+ - Jonathan Seagull discovered that boredom and fear and anger are the reasons that a gull’s life is so short, and with those gone from his thought, he lived a long fine life indeed.
+ - When one individual writer sings her song of beauty, she changes the lives of a million others.
+ - Happiness is the reward we get for living to the highest right we know.
+ - Do you ever have the feeling you’re a tourist on earth?
+ - Look in the mirror and one thing is sure: what we see is not who we are.
+ - Were we, also, hiking along some cosmic journal page? Were the events about us all part of a message we could understand, if only we found the right perspective from which to read them? Somehow, with our long series of miracles, I thought so.
+ - Allow the world to live as it chooses, and allow yourself to live as you choose.
+ - Navigate by the same star, unwilling to change, and you find yourself not only off-course but lost.
+ - I’ve learned that it is what I do not know that I fear, and I strive, outwardly from pride, inwardly from the knowledge that the unknown is what will finally kill me, to know all there is to be known about my airplane. I will never die.
+ - With every choice you risk the life you would have had; with every decision, you lose it.
+ - The only thing that shatters dreams is compromise.
+ - Two words: Love leads. Listen to that ring of love within. If we follow that leading of love we’ll be guaranteed an adventurous, positive, joyful life.
+ - You are free to smile in the midst of massive tests and challenges, knowing that you have chosen to play this game, and that you have dominion over all the appearances of earth.
+ - How is it we’re the lucky ones, living a life that the children-we-were took for dreams?
+ - Why fly? Simple. I’m not happy unless there’s some room between me and the ground.
+ - How can a deer tell when a leaf falls silent in the forest? She hears it breathing differently.
+ - Sense of family is enormously important to me. In the larger sense, we’re all of us family; we’re all of us soulmates.
+ - Whatever it is that calls us, that’s our path. And as we walk that path, we have a chance to shine forth who we are. It affects other people around us.
+ - The gulls who scorn perfection for the sake of travel go nowhere, slowly. Those who put aside travel for the sake of perfection go anywhere, instantly.
+ - If we agree that the world is not what it seems, then we have an important question: What shall we do about it?
+ - In the highest sense, we are all creatures of light. And I have a very difficult time talking with people who are cynical about the world. “The world is no damn good, and we’re all animals,” and that kind of thing. Well, I’m an animal.
+ - Shop for security over happiness and we buy it at that price.
+ - Everything in this book may be wrong. – The Savior’s Manual.
+ - I like that you can open up any one of my books anywhere and immediately be lost. I just love them so much.
+ - You’d chosen to be an upright biped on the surface of a small planet of a minor sun on the edge of a minor galaxy of one of the multiple trillions of universes. That’s OK. It doesn’t matter what form you take.
+ - My airplane is quiet, and for a moment still an alien, still a stranger to the ground, I am home.
+ - Judge not by the form of the messenger, but the form of the message.
+ - The highest art form of all is a human being in control of himself and his airplane in flight, urging the spirit of a machine to match his own.
+ - What I love doing is basically two things: I love flying airplanes and I love communication.
+ - And like no other sculpture in the history of art, the dead engine and dead airframe come to life at the touch of a human hand, and join their life with the pilot’s own.
+ - Before you’ll change, something important must be at risk.
+ - It’s easy to live the expected and conventional. It’s when you live the unexpected that you start having fun with your life.
+ - Fail at love, and the other tests don’t matter.
+ - I’ll quote the truth wherever I find it thank you.
+ - Flyers have a sense of adventures yet to come, instead of dimly recalling adventures of long ago as the only moments in which they truly lived.
+ - Know that ever about you stands the reality of love, and each moment you have the power to transform your world by what you have learned.
+ - You seek problems because you need their gifts.
+ - We choose our next world through what we learn in this one. Learn nothing, and the next world is the same as this one, all the same limitations and lead weights to overcome.
+ - Why had such a promising world been crucified on the tree of obligation, thorned by duties, hanged by hypocrisy, smothered by customs?
+ - The only enlightened masters I know are the people that I see every day and the people that I’ve seen through my life who have had the understanding, at some level, that we’re here to express love.
+ - What would our lives be like without tests, odds against us, adventure, risk?
+ - Thought plus belief equals manifestation.
+ - The ideas behind the words are simple ones that work in everyday life; find what we most want to do; do it, no matter what; and in the doing be guaranteed a very difficult and a very happy lifetime.
+ - Respect for sovereignity, for privacy, for total independence. Gentle alliances against loneliness, they were, cool rational love-affairs without the love.
+ - It’s not when you start that makes your success in the world, but when you quit.
+ - I want to be very close to someone I respect and admire and have somebody who feels the same way about me.
+ - I have always wanted an adventurous life. It took a long time to realize that I was the only one who could make an adventurous life happen to me.
+ - If we believe that we’re separated from someone, though they stand in the same room with us, we’re separated. If we believe that we’re together, if we believe that they are with us, if we listen through our inner senses, there’s a chance we’ll hear.
+ - Flying prevails whenever a man and his airplane are put to a test of maximum performance.
+ - Character comes from following our highest sense of right, from trusting ideas without being sure they’ll work.
+ - Get this in mind early: We never grow up.
+ - Think about these once in awhile, and watch your answers change.
+ - Build an inner place to protect your truth.
+ - One way to pick a future is to believe it’s inevitable.
+ - Testing ourselves over and again, learning love and love and LOVE.
+ - There are grand rewards for those who pick the high hard roads, but those rewards are hidden by years.
+ - Good and evil are not what our parents told us, not what our church tells us, or our country, not what anybody else tells us! All of us decide good and evil for ourselves, automatically, by choosing what we want to do!
+ - I think our learning lies along the path of whatever it is we love.
+ - Our disasters have been some of the best things that ever happened to us. And what we swore were blessings have been some of the worst.
+ - Rebuilding us. Isn’t that what the spirit requires, when we climb over the wreckage of our lives, sometimes, we go on to make our lives our own affirmation? We are perfect expressions of perfect Love, here and now. There is no permanent injury.
+ - This kind of thinking, he found, is not the way to make one’s self popular with other birds. Even his parents were dismayed as Jonathan spent whole days alone, making hundreds of low-level glides, experimenting.
+ - Just because somebody drops in on you from another dimension, don’t assume they’re wiser than you about anything at all, or that they can do anything better than you can do yourself. Discarnate or mortal, what matters about people is what they know.
+ - Like everything else, Fletcher. Practice.
+ - We love action and adventure, but we use it to go out and start wars and kill people.
+ - Flyers fell a certain kinship with the sight of the earth unencrusted by humanity, they want to see it that way in one sweeping view, in reassurance that nature still exists on her own, without a chain-link fence to hold her.
+ - Believe you know all the answers, and you know all the answers. Believe you’re a master, and you are.
+ - I think there’s an invisible principle of living too. If we believe we’re guided through every step of our lives, we are. It’s a lovely sight, watching it work.
+ - Why? What is so wonderful about mass murder that nobody in the history of the world has ever fond any smarter solution to problems than killing everybody who doesn’t agree? Is that the limit of human intelligence?
+ - How much to learn if we could spend one hour, spend twenty minutes, with the us we will become! How much could we say to the us we were.
+ - What a delighted fascination it is, to stand aside and watch our dearest friend perform on stage without us.
+ - Do you have any idea how many lives we must have gone through before we even got the first idea that there is more to life than eating, or fighting, or power in the Flock? A thousand lives, Jon, ten thousand!
+ - All of us are called by something in this world that attracts us. And it doesn’t matter what it is – you can be an engine mechanic or an aviator or you can be someone who loves their flower garden or the world of commerce or sailboats.
+ - Care about understanding and before you know it, in just a few decades, you’ll have a system of thinking that gives you answers whenever you ask.
+ - Everything you’ve said, everything you want to believe is already true. You may not find some of it for a while, and some of it might take longer than that, but that doesn’t stop it from being true this minute!
+ - There’s so much to learn! And just when we think, “I’ve got it. I really understand what’s going on,” we’re shown a whole new stage set on which to play.
+ - There is a sense of oneness that from time to time I’m aware of in my life. Certainly not all the time, and there are times when I get frightened and when I get upset. But at the best of times, it’s a personal oneness.
+ - How can we resent the life we’ve created for ourselves?
+ - The world’s crazy, when it comes to beauty.
+ - Jonathan is that brilliant little fire that burns within us all, that lives only for those moments when we reach perfection.
+ - Sooner I’d try to change history than turn political, than try convincing others to write letters or to vote or to march or to do something they didn’t already feel like doing.
+ - The creative, loving-something life is also the healthy one. There is healing and protection in doing what makes you happy.
+ - Anything we need to know, we can learn it from a book. Reading, careful study, a little practice, and we’re throwing knives expertly, overhauling engines, speaking Esperanto like natives.
+ - That which most concerns and worries you – your survival – is the only certainty you have.
+ - Every real teacher is myself in disguise.
+ - The way to tell if your job is done: if you’re alive, you’ve got a job.
+ - I have a way of finding what is true for me, and it’s not finished yet.
+ - Individuals somehow are led to find my books at times that are important to them. The mail that I get very, very often will say, “I was at a difficult time in my life, and someone gave me a copy.”
+ - Through default or intention, unaware or by design, we not only choose but create the visible outer conditions that are most resonant to our inner state of being...
+ - I had experiences along the way that helped me to realize that letting go was the way that worked for me to find something that I, personally, as a reader, love to read.
+ - I don’t want to do business with those who don’t make a profit, because they can’t give the best service.
+ - There is something that is transcendental about when we are immersed in that which we most love.
+ - As you believe, so it is for you.
+ - If you don’t want to be a teacher, you’d better get off this planet.
+ - Everything of this life as a mortal is fiction. It seems real, but...
+
+290 quotes

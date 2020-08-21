@@ -1,0 +1,37 @@
+ - Isn’t it a little racist to call it Black Friday?
+ - I want a man in my life, not in my house.
+ - I feel bad for young people. The 20s are a nightmare also. The 20s are hard to do.
+ - You know, I’m a comedian the same as Bill Maher and Jon Stewart. We all came up the same way. The three of us have interest in politics; I call us fundits, we’re fundits! We’re not pundits!
+ - I’ve been through many years of psychotherapy, psycho-drama, I’ve taken risks in my life. I’ve had trials and tribulations just like every body else. You have to really think about who you are. You can’t just go through life and sail threw.
+ - If you have trouble with finding things you should get into some kind of therapy with a good therapist if you need, I mean I just believe in therapy for everybody. I really do. I don’t think any body can escape it.
+ - I’m Italian, but some people think I’m Jewish because I work the Yiddish. I also work the Italian, by the way.
+ - I don’t profess to be an expert on anything, or have the memory for who ran in 1952. I am an informed American citizen, that’s my position.
+ - I think it’s interesting to me to talk to people who don’t agree with me all the time.
+ - It’s not interesting enough if you don’t know who you are, what you want. You need to make educated decisions about your moves and talk to people who care about you. And you need to have people who will have your back.
+ - Comedians usually are rooting for the underdog. I mean to take a shot at an underdog I think is really stupid and low and not funny.
+ - A better thing to grow up with is to be funny I think, and if I had, if I had my choice I would still pick that.
+ - I keep my stand-up comedy notes in a pile on my desk. I don’t organize my act. I keep myself in a state of confusion. It stresses me out, but I prefer creative chaos.
+ - You can see a lot of politics on a lot of different channels. I’m not interested, really, in talking in some wonky conversation about politics, though. It’s not my speed. I’m not interested in the ins and outs of health care.
+ - It’s a completely useless emotion – jealousy. I don’t go there.
+ - It seemed like the right time. You reach a point when you say to yourself, ‘Do I want to keep doing this?’ There are other things on my plate I want to do – I’ve been writing a play, I’ve been neglecting my standup.
+ - I think that comedy is a good defense for a child. Because you know childhood is a nightmare as it is. And so why not use comedy and being funny as a defense to get through your life as opposed to drugs, alcohol and good looks? Because those things are dangerous when your young.
+ - Madeleine Albright, when you see her, she’s not a beautiful woman and she’s getting older. But you’re saying that woman has gravitas. She knows what she’s talking about.
+ - Republican Party hasn’t been black friendly over the many centuries in this country.
+ - I am comfortable with myself, and this is how I am. I am not really interested in having an acrimonious fight with somebody.
+ - Never eat at a Chinese restaurant named Mama Teresa’s Trattoria.
+ - I think looks do matter on television.
+ - Statistically, skinny women die younger than fat women. Why? Because fat women are killing them.
+ - I want to do an intelligent talk show where you have room to breathe.
+ - I do like talk shows. I’m interested in talking to people.
+ - As Socrates I believe said the unexamined life is not worth living. I believe that’s true. I do believe that.
+ - When people heckle me, I have the microphone. And the press has the microphone.
+ - I interviewed Ann Coulter when I was sitting in for Larry King a couple of times, and we have a rapport. I like to talk to her.
+ - I don’t want to do just a liberal show.
+ - I feel like when being raised in New York City I have a particular perspective on things like Gay issues maybe, because I’m in the middle of Manhattan.
+ - You really have to know who you are. It takes, uh it’s not that easy.
+ - I don’t need a diet pill. I need something that gives you an electric shock when you reach for food.
+ - He’s a terrorist. Rush Limbaugh is a terrorist.
+ - Monogamy is monotonous, but it’s safe you know. And that’s my philosophy. And I like to convey that to people.
+ - The Republicans do not have feeling for people who are in bad shape.
+
+35 quotes

@@ -1,0 +1,90 @@
+ - Just don’t let the human factor fail to be a factor at all.
+ - Playing the violin and singing and whistling are just three different ways of making sound.
+ - I just pay attention to what’s in my head. That’s my number-one rule.
+ - The anti-aging advert that I would like to see is a baby covered in cream saying, ‘Aah, I’ve used too much’
+ - Pretty much any given day, barring some major distraction, I get melodies coming to me. Lyrics don’t come quite as easily. So I’ve been inventing little projects and challenges to sort of kick my ass with the lyrics.
+ - I guess I’m attracted to more archaic words because they can be imbued with more meaning, because their definition is elusive.
+ - Some of my earlier songs are kind of more about mental illness.
+ - What’s cool about indie rock is that one band can do effectively the same thing as another band, and one band nails it, and the other one doesn’t. I like that elusiveness.
+ - I’ve always found that whatever you say about indie rock, it is the most inclusive genre or title for anything. It doesn’t pin you down too much, like other labels would. It’s just newer, it has less baggage.
+ - With the words, a lot of things start with questions. Some word kind of piques my interest, and I love the way it sounds, but I really don’t know what it means. And I honestly don’t care for a while.
+ - Sometimes I just think we’re not meant to fly halfway around the world in a day. That some kind of mutation is going to happen.
+ - I’m a terrible Scrabble player.
+ - There’s kind of this unequaled thrill of playing a half-finished song, it’s kind of sense of slight embarrassment; like you’re blushing. I like doing that. I did that with “Eyeoneye” and it was almost a curse on the song for a while; I debuted it when it was half-finished in a very public way.
+ - I also don’t believe that “everything happens for a reason,” which is in a similar category of world-views.
+ - I think I’m still a little too intense for my own good sometimes.
+ - I’ve always felt that dark lyrics with dark music is pretty useless. Maybe that’s a strong statement – not useless, but for me, it’s just boring.
+ - Some of your best songs come from a desperate attempt to escape, so sitting in an airport for hours I can just start pulling out little fragments of songs from my head. A lot of times a melody will just occur to me and be my companion for a couple of months.
+ - The weirdest time is when I’m having to explain myself all day to journalists, and then I don’t perform, so there’s no release, just a lot of self-consciousness. Then what do you do with that at the end of the day? How do you release your brain from talking about yourself all day?
+ - My favorite literature to read is fairly dry history. I like the framework, and my imagination can do the rest.
+ - Melodies are just honest. They can only be what they are. Words have the capacity for deception. Theyre all full of subtext, and some of them are cliche and overused and vernacular. Theyre tricky. All I can say is, words are tricky.
+ - A day off after a show with no agenda in a foreign city is about the most fertile creative situation I can imagine. Just walking with nothing to do, killing time and hearing the sights and sounds of an unfamiliar place.
+ - I’m not a home-studio guy. I spend a lot of time working by myself developing songs, but I really need some other counterpart to help me pull it all together, because you go nuts working if I had to finish an entire project all within my own head.
+ - Every time I get up in the morning, melodies occur to me and I start trying to shape lyrics to melodies.
+ - I still play solo shows. And some of those shows are still some of the best, most gratifying shows.
+ - You can build up expectations for a song before you record it, and then it’s like nothing’s good enough in the studio.
+ - I think any songwriter or record, no matter how good it is, can become tedious if it’s the same person’s point of view. After four tracks, you start to get worn down no matter how good it is. It can be relentlessly good, but it’s still going to wear you out.
+ - When I start asking my friends, “What do you think this means?” And it leads to way more interesting conversations than what it actually ends up meaning in the dictionary. Like “apocryphal,” for instance.
+ - Honestly, I didn’t have the patience for biology or history in an academic sense, but I always liked the kind of big questions.
+ - What you see at the Field Museum is only like, 10 percent of the collection. It’s birds of paradise and passenger pigeons and in all these drawers that pull out, these specimens come out and it’s spectacular. And it worked out.
+ - Sometimes I think I don’t have much choice in the matter. It’s just what happens, and I’m following my instincts the whole time.
+ - I didn’t have the patience for the research, or anything like that. I just like how it sets the imagination off. It’s just an area that’s very fertile for great words. Great metaphors, potentially.
+ - Guitars are kind of just, you know, sexy, especially old vintage ones.
+ - Norman is a very up-close, personal, character drama and I’d like to do something more zoomed out, a little more pastoral, some sweeping epic. I’d like to try something different.
+ - When I’m onstage, I’m completely comfortable, and I feel very vital and alive.
+ - I have some irrepressible pop impulses to write an appealing, concise song. And I also have some irrepressible kind of restlessness as well, and I need to keep myself interested. When I’m left to my own devices, there’s a struggle.
+ - A good espresso to me is a little bit salty; you just become used to a good taste. Anytime I go into a new place and they don’t clean their machine properly or the water temperature isn’t right, it tastes awful.
+ - Music as a social conduit has always been important to me.
+ - I think life is a wondrous thing. I’m happy to try pretty hard.
+ - Playing the violin and singing and whistling are just three different ways of making sound. It’s not trying to replace a band, per se. It’s become a completely different thing. And it’s not just simply an effect. It’s just a very surprisingly intuitive thing.
+ - The music that I write is often not necessarily full of doom and gloom. You’ll notice in most of the darkest songs, the music is actually pretty peaceful and lulling.
+ - There’s always a tension between wanting to write a really concise, instant gratification type song that gets under your skin the first time you hear it, and wanting to really stretch out. I think it’s a healthy tension.
+ - I still kind of believe this absurd line that if you have to write it down, it’s not worth remembering.
+ - There’s songs that could either be taken as a conversation between two people, like “The Privateers,” or “Why,” from a much earlier record. Or “Glass Figurine.” That’s my version of a relationship song.
+ - I’m coming from a place that’s more experimental and indulgent already, so for the last 10 years, it’s been more like, “How can I defend my own sensibilities by writing a nugget of a little catchy pop song?” That’s how I’m stretching myself, by writing something really simple.
+ - I’ve done my share of busking, and it’s fun until it isn’t. There are musicians in the subways that will make you cry, they’re so good.
+ - Every time I make a record, it’s kind of like scarification or something. You work 15 hours until you’re stupid. You’re just kind of all jittery.
+ - I can’t relate to the process of just disappearing and writing a record, all at the same time, followed by the sort of drudgery of going out on tour and trying to recreate the record, playing the same 12 songs every night.
+ - I really like the sound of analog things where clearly there’s something being touched. You can sense that something is handmade. So much with digital, there’s a disconnect.
+ - I don’t write poetry and then strum some chords and then fit the words on top of the chords.
+ - With digital sound just becomes simply information, not the sum of its parts.
+ - There is something comforting about going into a practice room, putting your sheet music on a stand and playing Bach over and over again.
+ - The orchestra’s an amazing instrument, but I don’t want to just arrange my songs for it. I think that might be kind of boring and a little bit overdramatic, perhaps. I’m still just having too much fun doing it my way, for the time being.
+ - Sometimes the word dictated the melody.
+ - I put a lot into my records, and I won’t release anything I’m not totally thrilled with.
+ - Well, my main instrument is violin, but I think of myself as a songwriter who happens to play violin.
+ - I’ve literally opened it up to suggestions and it’s totally chaotic and kind of a bad idea. You don’t need the actual feedback to get a sense. When you’re showing a song for the first time, people can feel that newness.
+ - The way I work, I’m not a confessional singer-songwriter.
+ - It’s like you don’t know you’re making a record unless you’re half-killing yourself.
+ - The melodies come out so strong that I’m like, “Oh, crap.” It’s really better if they could both be kind of able to compromise, but the melodies, even more recently, they come out very fully cast and formed.
+ - I create little challenges for myself, like, ‘Okay, whatever you do in this song, you’ve got to somehow work in Greek Cypriots,’ or something like that.
+ - No, it’s not dissatisfaction that inspires me to tinker with my songs, it’s just restlessness.
+ - What you see with your eyes when you’re making music is going to have a profound effect on what you hear.
+ - There’s been this perception that Europeans still hold on to, that they discover the real talented ones in American culture and give them proper credit and that’s not true anymore – it used to be. A lot of jazz musicians would get respect in Europe.
+ - Anyway, I’m digressing, but this is just kind of this 10-and-a-half-minute, ambient – you hear cicadas and birds and the wind outside and crickets as I’m swelling the piece. I could never do that on a pop record. I could, but why would I want to be agitating?
+ - Songwriters can sort of get away with murder. You can throw out crazy theories and not have to back it up with data or graphs or research.
+ - The idea of writing songs because you’re depressed and you need to communicate it somehow, that isn’t really true for me.
+ - People who are thinking about your music almost as much as you are, that almost never happens.
+ - I definitely have to give myself permission, like on “Master Swarm,” to rip a lead on that. Just play a violin solo that’s – it’s a bit showoff-y, but it’s fun, so who cares?
+ - All the folks I play with come from jazz backgrounds or at least appreciate spontaneity within the parameters of a pop song.
+ - The first notes I still play when I start a sound check are classical. Those are my roots.
+ - The real drag is trying to fly from country to country, day of show, with all your gear. You get hassled all the time. It’s hard trying to keep it together.
+ - It’s not set in stone. I like to keep it rolling and changing, and so I am like, “Great, I get to remake my song.”
+ - I write a lot more when I’m happy, because you’re hopeful, you’re motivated.
+ - I’m just trying to get my body in shape so that I can handle it. It’s a very physically demanding thing. I’ve been doing it for 16 years, so I know what I’m going into now. I’m trying to stay calm and not panic.
+ - The earth almost looks like it’s packed down and dense from so many feet treading over it.
+ - The instrumental record is a bit subtler. It’s the kind of stuff on sound check, when I first pick up my violin and start to play, the kind of melodies that just pour out of me. Some of them sound very classical. Some of them sound experimental, polyrhythmic loops that I make.
+ - Most of the songs that I appreciate are lyrically vague.
+ - I really believe there’s more honesty in one live show than there may be in my whole output.
+ - If you take a little time, let’s say three weeks off, after recording a song, and you listen to it every other day, you’re just going to know eventually.
+ - I don’t like super-descriptive modern fiction. I like, “Here’s what was happening in 1582 all over the planet.” Then that gets my imagination going.
+ - I am, in some sense, a writer. Even though I kinda downplay the word thing, I do enjoy writing sometimes.
+ - I think when I was pretty young I got really into the tone of my instrument and I remember just playing one note for an hour to just kind of feel the resonance of the violin.
+ - I haven’t had that many people onstage for a while, and I’m looking forward to that. They’re all such creative musicians in their own right. They’re all complete individuals. They’re not just a pick-up band. They all have their own thing going on.
+ - I’ve never approached classical music in a formal way, ever. I couldn’t read very well. I’d have to play every piece and internalize it, almost as if I had written it myself.
+ - The problem is, when you’re working with orchestras, you only get the orchestra for about two hours before the performance to pull it all together, and that doesn’t sound like a real collaboration.
+ - There’s a lot of interesting words, nomenclatures, in science.
+ - Songwriting requires some sort of ceremony to even get the process started, and it can be somewhat arbitrary.
+ - I don’t like to disappear between records. I like to play shows while I’m making the record.
+
+88 quotes

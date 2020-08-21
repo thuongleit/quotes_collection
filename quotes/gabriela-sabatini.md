@@ -1,0 +1,35 @@
+ - Perfect harmony of body and mind are my key to personal balance and happiness.
+ - Tennis has had a very positive impact on my life.
+ - In Argentina at various tournaments, it’s great. Every day it’s full, everybody’s crazy about tennis, everybody wants to play tennis.
+ - When I lose a match, I know that I lose on the court and not in life.
+ - I played Mary Joe Fernandez in the semifinals. She was winning the first set. Second set was very close. I started to play this aggressive game. I think I surprised them.
+ - I was a very shy and introverted person, and it was hard for me to talk to people and make relationships.
+ - It came so soon and so fast. It’s just overwhelming. Every time I think about it, I just can’t believe it.
+ - Now I have the bravery to do fine things.
+ - It was so easy to play tennis, so easy.
+ - I carried through well with my tennis. I got the respect by usage of the tennis racket.
+ - It’s amazing, it doesn’t feel like it has been 10 years since retirement.
+ - For me retiring wasn’t hard once I knew that that was the decision I was going to make.
+ - I was feeling a lot of confidence, so I wanted to take advantage of that and keep playing.
+ - I didn’t know what was going through my mind.
+ - When I got to match point in the final I was afraid I’d be a little nervous, but I just said, You have to stay focused, just think about what you have to do.
+ - It’s a great moment for Argentinean tennis, more on the men’s side. I would like to see more on the women’s side. I think we have to work a little bit more on that.
+ - I can’t laugh, be happy, present myself at any prize and also win on the centre court.
+ - It was very hard for me to practice and enjoy my tennis, and I didn’t know the why, so I worked with psychologists to try and see what was happening. They pushed me really hard.
+ - I want children, but at the moment the liberty I have now finally, has a far too high value.
+ - The difficult part was to tell the world that I was finishing.
+ - I think in the lifetime of a tennis player there are many times where you feel that tremendous confidence.
+ - I’m following the players, and it’s great. We’ve never had so many Top 10 big players like now. There’s so many out there that are very close.
+ - Regarding the Hall of Fame, when they decided I was going to be one of the possible candidates, when I heard that, I was so thrilled. You’re always hoping for something like that.
+ - I lost more then 6 kilograms when I ceased with the top sport. That were all muscles. They are now gone.
+ - I work out in a studio. Every day, regardless where I am, at least two hours. I need it. I can’t cease it.
+ - I was formerly so stuck into plans. I can now live more spontaneously. This I want not yet to give away.
+ - I travel a lot to promote the perfumes and to do the commercials.
+ - I have an office in Argentina, I go there every day, so I work.
+ - I’m having a good time. Managing my things takes a lot of time.
+ - I never thought tennis was going to give me so much satisfaction.
+ - What I’m doing, with my image, I have my perfumes. I’ve had that for almost 20 years, and I have like 14, 15 different perfumes now.
+ - I want not, that everybody hears about. Then I can’t longer be myself.
+ - That was one of those moments where I felt so confident. I played three matches in the same day.
+
+33 quotes

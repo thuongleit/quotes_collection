@@ -1,0 +1,60 @@
+ - Hands that serve are holier than lips that pray.
+ - No joy can equal the joy of serving others.
+ - Selfless service alone gives the needed strength and courage to awaken the sleeping humanity in one’s heart.
+ - Life is a song-sing it. Life is a game-play it. Life is a challenge-meet it. Life is a dream-realize it. Life is a sacrifice-offer it. Life is love-enjoy it.
+ - Character is the most precious gift of education.
+ - The end of knowledge is wisdom The end of culture is perfection The end of wisdom is freedom The end of education is character. And character consists of eagerness to renounce one’s selfish greed.
+ - It is only in the depths of silence that the voice of God can be heard.
+ - The education system today makes and educated person selfish. It makes that person a slave to the senses and as a consequence the person forgets their own divine nature.
+ - You seek too much information and not enough transformation.
+ - The universe is a great university.
+ - Science without discrimination Human existence without discipline Friendship without gratitude Music without melody A society without morality and justice Cannot be of benefit to the people.
+ - Everyone’s God is One.
+ - Unity of minds, natural love and co-operation, are the qualities we have to develop today. Education is not for securing university degrees.
+ - Man seeks to change the foods available in nature to suit his tastes, thereby putting an end to the very essence of life contained in them.
+ - Let love flow so that it cleanses the world. Then man can live in peace, instead of the state of turmoil he has created through his past ways of life, with all those material interests and earthly ambitions.
+ - Education must promote peace, security and happiness.
+ - Education must open the eyes and enable them to recognise the One behind the many.
+ - The nation can prosper and be happy only when education develops in an atmosphere of Truth, Love and Reverence.
+ - A college which does not confer the knowledge of the Spiritual Reality to the students who are engaged in the pursuit of various material studies, is as barren as the sky without the moon, or a heart without peace, or a nation without reference to law.
+ - The ideal of service and the urge to practice it form the very heart of education.
+ - There is no use if knowledge grows while desires multiply. It makes one a hero in words and a zero in action.
+ - Modern education develops the intellect and imparts skills, but does not promote qualities in any way.
+ - Education must assume full responsibility to enter the moral and spiritual lives of pupils.
+ - The sign of a person who has had an education is good manners.
+ - Education must award self-confidence, the courage to depend on one’s own strength.
+ - Education has to cultivate humility and discipline, but today it is yielding a harvest of pride and envy.
+ - Humility, reverence, compassion, forbearance, sacrifice and self-control are the qualities that reveal the outcome of the true education.
+ - Learning to earn a living is only half the job. The other half is to make life worthwhile and meaningful.
+ - Wisdom flashes like lightening amidst the clouds of the inner sky; one has to foster the flash, and preserve the light. That is the true sign of the ‘educated’ person.
+ - Education today is a process of filling the mind with the contents of books, emptying the contents in the examination hall and returning empty-headed.
+ - Education should serve to enlarge the vision and broaden the outlook of the people.
+ - You must be a lotus, unfolding its petals when the sun rises in the sky, unaffected by the slush where it is born or even the water which sustains it!
+ - True beauty lies in true education.
+ - I am the slave of those who hunger and thirst after me and treat everything else as unimportant.
+ - True education consists in the cultivation of the heart.
+ - Education does not mean the imparting of verbal knowledge alone.
+ - College education gives you the chance to earn money and live thereupon. But, umless it destroys certain illusions that are nourished by the common level of mankind, your lives will not be happy.
+ - The learned man’s life itself shines as the message for mankind.
+ - The objective of education should be impressed on the children’s minds. The academic education of today is shallow and useless because it has no value orientation.
+ - Education confers humility, endows one with the authority to command, that will entitle one to affluence. With the help of charity and compassion this affluence can be made fruitful, and by this means, happiness in this world and peace in the next can be won.
+ - Whatever creature comes to you, human or otherwise, treat it with consideration.
+ - Real education should enable one to utilise the knowledge one has acquired to meet the challenges of life and to make all human beings happy as far as possible.
+ - Education is not acquisition of burdensome information regarding objects and men. It is the awareness of the immortal spirit within,, which is the spring of joy, peace and courage.
+ - To every one of us there must come a time when the whole universe will be found to have been a dream, when we find the soul is infinitely better than its surroundings. It is only a question of time, and time is nothing in the infinite.
+ - It is essential to practice spiritual disciplines along with academic studies.
+ - You are not educated if all you have achieved is the study of ten books.
+ - Education today does not impart to the students the capacity or grit to face the challenges of daily life. The educational field has become the playing ground of ignorance.
+ - What the head thinks, should be examined critically in the heart and this right decision should be carried out by the hands. This should be the primary product of the educational process.
+ - Education must be orientated towards the attainment of character for leading clean simple lives.
+ - True knowledge is that which establishes harmony and synthesis between ience on the one hand and spirituality and ethics on the other.
+ - The father, the mother and the teacher are the three primarily responsible for moulding the future of the country.
+ - The cultivation of Love is the greatest need today.
+ - Education has to endow you with an eagerness to surrender.
+ - Education has to be welcomed as a Spiritual Practice for the establishment of Peace in the individual heart as well as in society including the human commonwealth.
+ - Education should ennoble the students, but instead it is debasing them. Instead of shaping the young into diamonds, it is turning them into coals. It is not bringing transformation in them, It is not bestowing wisdom.
+ - What the world needs today is neither a new order, a new education, a new system, a new society nor a new religion. The remedy lies in a mind and a heart filled with holiness.
+ - Not living for food, but living for the sake of an ideal, that is the goal of education.
+ - Unless knowledge is transformed into wisdom, and wisdom is expressed in character; education is a wasteful process.
+
+58 quotes

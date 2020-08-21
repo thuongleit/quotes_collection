@@ -1,0 +1,34 @@
+ - I read; I travel; I become.
+ - The English language is nobody’s special property. It is the property of the imagination: it is the property of the language itself.
+ - Love After Love all your life, whom you have ignored for another, who knows you by heart. Take down the love letters from the bookshelf, the photographs, the desperate notes, peel your own image from the mirror. Sit. Feast on your life.
+ - For every poet it is always morning in the world; history a forgotten, insomniac night. The fate of poetry is to fall in love with the world in spite of history.
+ - To change your language you must change your life.
+ - What are men? Children who doubt.
+ - Peel your own image from the mirror. Sit. Feast on your life.
+ - Any serious attempt to try to do something worthwhile is ritualistic.
+ - The time will come when, with elation, you will greet yourself arriving at your own door, in your own mirror, and each will smile at the other’s welcome.
+ - The future happens. No matter how much we scream.
+ - Break a vase, and the love that reassembles the fragments is stronger than that love which took its symmetry for granted when it was whole.
+ - I too saw the wooden horse blocking the stars.
+ - In Eden who sleeps happiest? The serpent.
+ - The classics can console. But not enough.
+ - I have never separated the writing of poetry from prayer. I have grown up believing it is a vocation, a religious vocation.
+ - I try to forget what happiness was, and when that don’t work, I study the stars.
+ - The sigh of History rises over ruins, not over landscapes, and in the Antilles there are few ruins to sigh over, apart from the ruins of sugar estates and abandoned forts.
+ - I come from a place that likes grandeur; it likes large gestures; it is not inhibited by flourish; it is a rhetorical society; it is a society of physical performance; it is a society of style.
+ - I know when dark-haired evening put on her bright silk at sunset, and, folding the sea sidled under the sheet with her starry laugh, that there’d be no rest, there’d be no forgetting. Is like telling mourners round the graveside about resurrection, they want the dead back.
+ - Time is the metre, memory the only plot.
+ - The personal vocabulary, the individual melody whose metre is one’s biography, joins in that sound, with any luck, and the body moves like a walking, a waking island.
+ - Visual surprise is natural in the Caribbean; it comes with the landscape, and faced with its beauty, the sigh of History dissolves.
+ - She’s a rare vase, out of a cat’s reach, on its shelf.
+ - A culture, we all know, is made by its cities.
+ - Art is History’s nostalgia, it prefers a thatched roof to a concrete factory, and the huge church above a bleached village.
+ - The English language is nobody’s special property.
+ - The voice does go up in a poem. It is an address, even if it is to oneself.
+ - Memory that yearns to join the centre, a limb remembering the body from which it has been severed, like those bamboo thighs of the god.
+ - If you know what you are going to write when you’re writing a poem, it’s going to be average.
+ - How can I turn from Africa and live?
+ - We make too much of that long groan which underlines the past.
+ - Damn wind shift sudden as a woman mind.
+
+32 quotes

@@ -1,0 +1,74 @@
+ - It seems to me that the natural world is the greatest source of excitement; the greatest source of visual beauty; the greatest source of intellectual interest. It is the greatest source of so much in life that makes life worth living.
+ - Instead of controlling the environment for the benefit of the population, perhaps we should control the population to ensure the survival of our environment.
+ - What humans do over the next 50 years will determine the fate of all life on the planet.
+ - No one will protect what they don’t care about, and no one will care about what they have never experienced.
+ - How could I look my grandchildren in the eye and say I knew what was happening to the world and did nothing.
+ - The truth is: the natural world is changing. And we are totally dependent on that world. It provides our food, water and air. It is the most precious thing we have and we need to defend it.
+ - The World is full of wonders, but they become more Wonderful, not less Wonderful when Science looks at them.
+ - I like animals. I like natural history. The travel bit is not the important bit. The travel bit is what you have to do in order to go and look at animals.
+ - Crying wolf is a real danger.
+ - Bringing nature into the classroom can kindle a fascination and passion for the diversity of life on earth and can motivate a sense of responsibility to safeguard it.
+ - Many individuals are doing what they can. But real success can only come if there is a change in our societies and in our economics and in our politics.
+ - Anyone who believes in indefinite growth on a physically finite planet is either mad or an economist.
+ - If we and the rest of the back-boned animals were to disappear overnight, the rest of the world would get on pretty well. But if the invertebrates were to disappear, the world’s ecosystems would collapse.
+ - Nothing in the natural world makes sense – except when seen in the light of evolution.
+ - We can now destroy or we can cherish-the choice is ours.
+ - Reptiles and amphibians are sometimes thought of as primitive, dull and dimwitted. In fact, of course, they can be lethally fast, spectacularly beautiful, surprisingly affectionate and very sophisticated.
+ - The human population can no longer be allowed to grow in the same old uncontrollable way. If we do not take charge of our population size, then nature will do it for us and it is the poor people of the world who will suffer most.
+ - Can a growing human population still leave space for wildlife?
+ - That people will object very much to seeing a predator killing its prey, and yet, in the news, will accept showing shots of people shooting one another.
+ - Dealing with global warming doesn’t mean we have all got to suddenly stop breathing. Dealing with global warming means that we have to stop waste, and if you travel for no reason whatsoever, that is a waste.
+ - All life is related. And it enables us to construct with confidence the complex tree that represents the history of life.
+ - One in eight plant species face extinction.
+ - It is curiosity, quite right-a divine curiosity. A characteristic of the gods is curiosity.
+ - I’m not over-fond of animals. I am merely astounded by them.
+ - We can now manipulate images to such an extrodinary extent that there’s no lie you cannot tell.
+ - Until humanity manages to sort itself out and get a co-ordinated view about the planet, it’s going to get worse and worse.
+ - Do we really require so many gardening programmes, makeover programmes or celebrity chefs?
+ - The correct scientific response to something that is not understood must always be to look harder for the explanation, not give up and assume a supernatural cause.
+ - I’m not an animal lover if that means you think things are nice if you can pat them, but I am intoxicated by animals.
+ - I’m no longer sceptical. I no longer have any doubt at all. I think climate change is the major challenge facing the world.
+ - The savage, rocky shores of Christmas Island, 200 miles south of Java, in the Indian Ocean. It’s November, the moon is in its third quarter, and the sun is just setting. In a few hours from now, on this very shore, a thousand million lives will be launched.
+ - You can cry about death and very properly so, your own as well as anybody else’s. But it’s inevitable, so you’d better grapple with it and cope and be aware that not only is it inevitable, but it has always been inevitable, if you see what I mean.
+ - Life is not all high emotion. Some of the most interesting things are when its not highly emotional: little details of relationships and body language.
+ - The fundamental issue is the moral issue.
+ - To suggest that God specifically created a worm to torture small African children is blasphemy as far as I can see. The Archbishop of Canterbury doesn’t believe that.
+ - I have no doubt that the fundamental problem the planet faces is the enormous increase in the human population.
+ - People talk about doom-laden scenarios happening in the future: they are happening in Africa now. You can see it perfectly clearly. Periodic famines are due to too many people living on land that can’t sustain them.
+ - I find it far more awesome, wonderful, that creation; our appearance in the world; should be the culmination, or at least one of the latest products of 3,000 Million years of organic evolution, than a kind of country trick, taking a rib out of a man’s side in a trance.
+ - Children start off reading in books about lions and giraffes and so on, but they also-if theyre lucky enough and have reasonable privileges of any human being-are able to go into a garden and turn over stone and see a worm and see a slug and see an ant.
+ - It never really occurred to me to believe in God.
+ - Before the BBC, I joined the Navy in order to travel.
+ - Everyone likes birds. What wild creature is more accessible to our eyes and ears, as close to us and everyone in the world, as universal as a bird?
+ - Its about cherishing the woodland at the bottom of your garden or the stream that runs through it. It affects every aspect of life.
+ - In the Baboon community, it is not how strong you are that is important, but who you know that counts.
+ - I don’t like rats, but there’s not much else I don’t like. The problem with rats is they have no fear of human beings, they’re loaded with foul diseases, they would run the place given half the chance, and I’ve had them leap out of a lavatory while I’ve been sitting on it.
+ - The notion of ever more old people needing ever more young people, who in turn will grow old and need ever more young people and so on, ad infinitum, is an obvious ecological Ponzi scheme.
+ - All we can hope for is that the thing is going to slowly and imperceptibly shift. All I can say is that 50 years ago there were no such thing as environmental policies.
+ - When I was a boy in the 1930s, the carbon dioxide level was still below 300 parts per million. This year, it reached 382, the highest figure for hundreds of thousands of years.
+ - Since when has Finland been a rotten place to live in?
+ - If you watch animals objectively for any length of time, you’re driven to the conclusion that their main aim in life is to pass on their genes to the next generation.
+ - Nature isn’t positive in that way. It doesn’t aim itself at you. It’s not being unkind to you.
+ - Trade is a proper and decent relationship, with dignity and respect on both sides.
+ - Birds are the most accomplished aeronauts the world has ever seen. They fly high and low, at great speed, and very slowly. And always with extraordinary precision and control.
+ - I mean, it is an extraordinary thing that a large proportion of your country and my country, of the citizens, never see a wild creature from dawn ’til dusk, unless it’s a pigeon, which isn’t really wild, which might come and settle near them.
+ - I remember when we were in the World Cup in Australia and I had to win the singles against Tony Payne, best of seven legs, to win it. I was 2-0 down but ended up beating him I suffer much less than many of my colleagues. I am perfectly able to go to Australia and film within three hours of arrival.
+ - I’m swanning round the world looking at the most fabulously interesting things. Such good fortune.
+ - I’m against this huge globalisation on the basis of economic advantage.
+ - The climate, the economic situation, rising birth rates; none of these things give me a lot of hope or reason to be optimistic.
+ - I’ve been bitten by a python. Not a very big one. I was being silly, saying: ‘Oh, it’s not poisonous’ Then, wallop! But you have fear around animals.
+ - It was regarded as a responsibility of the BBC to provide programs which have a broad spectrum of interest, and if there was a hole in that spectrum, then the BBC would fill it.
+ - It is vital that there is a narrator figure whom people believe. That’s why I never do commercials. If I started saying that margarine was the same as motherhood, people would think I was a liar.
+ - I am an ardent recycler. I would like to think that it works. I don’t know whether it does or not.
+ - The reverse side of the coin in having this extraordinary ability to go anywhere, is that no one anywhere is remote any more.
+ - I often get letters, quite frequently, from people who say how they like the programmes a lot, but I never give credit to the almighty power that created nature.
+ - You can only get really unpopular decisions through if the electorate is convinced of the value of the environment. That’s what natural history programmes should be for.
+ - The process of making natural history films is to try to prevent the animal knowing you are there, so you get glimpses of a non-human world, and that is a transporting thing.
+ - Warm-bloodedness is one of the key factors that have enabled mammals to conquer the Earth, and to develop the most complex bodies in the animal kingdom. In this series, we will travel the world to discover just how varied and how astonishing mammals are.
+ - There are perfectly good independent small nations.
+ - I think we’re lucky to be living when we are, because things are going to get worse.
+ - The more you go on, the less you need people standing between you and the animal and the camera waving their arms about.
+ - You know, it is a terrible thing to appear on television, because people think that you actually know what you’re talking about.
+ - Now, I find that very difficult to reconcile with notions about a merciful God.
+
+72 quotes

@@ -1,0 +1,53 @@
+ - Food is my drug of choice.
+ - To live exhilaratingly in and for the moment is deadly serious work, fun of the most exhausting sort.
+ - There are no original ideas. There are only original people.
+ - Insanity is a lack of proportion.
+ - Beware of people carrying ideas. Beware of ideas carrying people.
+ - In memory Venice is always magic.
+ - Porches are America’s lost rooms.
+ - Kindness and intelligence don’t always deliver us from the pitfalls and traps: there are always failures of love, of will, of imagination. There is no way to take the danger out of human relationships.
+ - Nothing is more democratic, less judgmental, than water. Water doesn’t care whether flesh is withered or fresh; it caresses aged flesh and firm flesh with equal love.
+ - Italians do not regard food as merely fuel. They regard it as medicine for the soul, one of life’s abiding pleasures.
+ - I love cloisters, which are the architectural equivalent of a theological concept: perfect freedom within set boundaries.
+ - I love medieval cities; they do not clamor for attention; they possess their souls – their riches – in quiet; formal, courteous, they reveal themselves slowly, stone by stone, garden by garden; hidden treasures wait calmly to be loved and yield to introspective wandering.
+ - Facts mean nothing to wounded feelings...
+ - Rome is all things high and low. It is like God, it accommodates so much.
+ - Great unhappiness is incompatible with the belief that it will ever end.
+ - All acts performed in the world begin in the imagination.
+ - Autobiography is a preemptive strike against biographers.
+ - Every generation reinvents the wheel – and in the process it often adds to rather than subtracts from a woman’s burdens.
+ - The dream police will not let me have sexual fantasies.
+ - There is no way to take the danger out of human relationships.
+ - My mother was my first jealous lover...
+ - I made the mistake of thinking that if you add up the past, you sum up the future; I forgot how frequently life astonishes us.
+ - Women’s propensity to share confidences is universal. We confirm our reality by sharing.
+ - Belief sometimes precedes understanding; faith sometimes precedes scientific evidence.
+ - The best work is a fusion of love and praise.
+ - One can be tired of Rome after three weeks and feel one has exhausted it; after three months one feels that one has not even scratched the surface of Rome; and after six months one wishes never to leave it.
+ - I don’t think I know a single woman who knows what she looks like.
+ - Italy offers one the most priceless of all one’s possessions – one’s own soul.
+ - It’s the perpetually unfinished quality of housework that makes it oppressive – it never ends, like bad psychoanalysis, or a dream interrupted. It is paradoxically true that it is exactly this daily re-creation of the world that lends housekeeping its nobility and romance.
+ - There is something worse than dying, and that is humiliation – at least so it seemed to me...
+ - Our awesome responsibility to ourselves, to our children, and to the future is to create ourselves in the image of goodness, because the future depends on the nobility of our imaginings.
+ - The most painful moral struggles are not those between good and evil, but between the good and the lesser good.
+ - Silence is the garment of light.
+ - In the face of evil, detachment is a dubious virtue.
+ - Children hold us hostage; they represent our commitment to the future.
+ - Every house we have lived in, every building to which our hands have lent their work, belongs to us by virtue of love or of regret.
+ - How do you think it would feel to be obliged to ask for a seat-belt extender on an airplane? For the unfashionably bulgy, life is a series of small humiliations.
+ - The past is a sorry country.
+ - All our loves are contained in all our other loves.
+ - Desire creates its own object.
+ - Weather creates character.
+ - Fantasies are more than substitutes for unpleasant reality; they are also dress rehearsals, plans. All acts performed in the world begin in the imagination.
+ - The past can be tamed and controlled.
+ - Violence is its own anesthetist. The numbness it induces feels very much like calm.
+ - If there is one lesson Rome teaches, it is that matter is good; in Rome the holy and the homely rise and converge.
+ - Unhappiness makes beggars or accountants of us all.
+ - Persecution always acts as a jell for members of cults; it proves to them, in the absence of history, liturgy, tradition, and doctrine, that they are God’s chosen.
+ - All is waiting and all is work; all is change and all is permanence.
+ - What you desire you call into being...
+ - One feels a quickening of the pulse when one crosses a border.
+ - There are places one comes home to that one has never been to...
+
+51 quotes

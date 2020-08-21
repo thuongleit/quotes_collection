@@ -1,0 +1,79 @@
+ - I don’t know what the future holds. Anything is possible.
+ - I just don’t fit into the box.
+ - I can feel it in my bones: I’m gonna spend my whole life alone.
+ - Love is nothing, nothing, nothing like they say.
+ - Nothing feeds a hunger like a thirst.
+ - The license said you had to stick around until I was dead, but if you’re tired of looking at my face I guess I already am.
+ - It’s nice to be liked, but it’s better by far to get paid.
+ - Well, if you’ve got a one-in-a-million girl don’t let her get away; cause the next one-in-a-million girl is a million girls away...
+ - I’m really happy with my life now, but there’s a lot of stuff I feel very sad about in ways I can’t even control.
+ - I have my head screwed on right. I haven’t been this way in a long time.
+ - Madonna is the speedboat, and the rest of us are just the Go-Gos on water skis.
+ - I was trying to break out of the suburbs, and when I did break out, I don’t think I took my whole self with me – I think I played a role of being too cool and hip.
+ - I don’t have the same access or time to gain access to music the way I used to.
+ - I am a feminist, and I define myself: Be yourself, because if you can get away with it, that is the ultimate feminist act.
+ - I’ve lost touch with a lot of that boutique-type music just because of my age, and raising my son and the multiple jobs I have at this point.
+ - I don’t mind people not liking me as long as there’s mutual respect.
+ - I don’t think you can spend too much time as an artist believing what other people think.
+ - I love stretching myself musically.
+ - I don’t always trust my own instincts. It would be nice if someone else would tell me what I should do with my life!
+ - I just want to hear the true voices of women self-expressing – smart ones, stupid ones, ugly ones, beautiful ones, good ones, bad ones, fat ones, thin ones, all of it – until the profound silence that has resounded throughout history is filled with a healthy chorus coming from our side of the aisle.
+ - I am just like you and everyone else. I am trying to live my life as best I can.
+ - Women artists need to break barriers in order for women’s experience to be valuable.
+ - Women’s bodies are used to sell anything and everything because it works, it grabs people’s attention, and advertisers aren’t going to stop using something that works.
+ - Music is sound. It’s a wave. It’s going out and coming back, and it’s bouncing off.
+ - I prefer to be reclusive and private about my creation and then, once I’m finished, present it to people.
+ - It seems to me like the Internet allows you to break that structure a little bit. You know, here’s your CD that’s going into stores, here’s your EP that you offer online, here’s a subscription for songs you recorded on the road, here’s your live stuff streaming.
+ - I don’t know; it just seemed like the cooler guys are playing Xbox. At least the ones I know.
+ - I don’t like being approached by people who look at me too intensely, who needed something from me that I didn’t have. I don’t represent anything.
+ - I’m competitive, so I don’t like to feel marginalized by the people who sell a lot of records.
+ - I don’t think anything I do in life is planned. Sometimes I regret that and I feel like I try to take ahold of the wheel, but I’m also always super excited when things pop up spontaneously and when I’m a little bit out of my depth. I just find that that thrills me.
+ - I’m very cerebral. I like to think things through.
+ - And, you know, I still haven’t been contacted by Mick Jagger, either!
+ - Composing gives me a chance to work in multiple dimensions and helps me pare down my melodies into what is essential. Learning new skills has always energized me and scoring has opened up a world of sonic possibilities.
+ - When I was young, I used to need other people’s albums and I got very involved with their music and it meant a lot to me.
+ - I prance around and dance by myself to hip-hop songs in the mirror.
+ - I’m really happy to be a mom, and I’m proud of the phase I’m in.
+ - All parents gush about what it’s like to be a parent. I love it.
+ - It was a source of shame for my family that I was in rock and roll, which is so blue-collar. It just isn’t done. And I felt it, too.
+ - I knew that collaborating on songwriting would be difficult for a lot of people, because I was known very much, for my independence and the fact that I wrote these quirky songs that were not typical structure, not typical sound – you know, really original stuff.
+ - The big news already broke. The file-sharing and all that stuff, it’s a done deal. And I think figuring out how to make that a fair exchange for the people that make music is still an issue.
+ - Picture being forced to talk endlessly about your feelings and listen and care when what you needed was just to get something done.
+ - I just want to make music and make a living. I just have to find the means of doing that.
+ - Just to prove i was right that it’s harder to be friends than lovers and you shouldn’t try and mix the two, cause if you do and then you’re still unhappy, then you know that the problem is you.
+ - Young kids don’t have their identity, so everything is so important. Now I’m mature. I know who I am and I know what my thing is and I know what I’m bringing. It’s very clear and defined.
+ - What does it mean when something changes how it’s always been?
+ - So how does Liz Phair feel about Lana Del Rey? Well, as a recording artist, I’ve been hated, I’ve been ridiculed, and conversely, hailed as the second coming. All that matters in the end is that I’ve been heard.
+ - I am comfortable performing now. I love it!
+ - You been around enough to see that if you think you’re it, you better check with me.
+ - When it’s me in my living room, it’s pretty pure, and then what gets recorded involves more people, and it keeps escalating from there.
+ - I always give the encore over to chaos, so people can yell out requests and I can hack my way through a song that I don’t really know anymore.
+ - I’d like to do a tour with a bunch of people where it’s just them and their guitars. It would be like Lilith Fair – only everyone plays alone, and it would be competitive.
+ - I think good art happens on that edge between comfortable and in a lot of pain, you know what I mean?
+ - I would argue that the uncomfortable feelings she elicits are simply the by-product of watching a woman wanting and taking like a man.
+ - I love scoring. Putting music to picture is a rewarding challenge and one that relies on interpretation of emotion – as in, what is the pivotal feeling in a scene and which character’s point of view is driving it at any given moment?
+ - After my first record came out, I read everything. I was so amazed that I was in the press.
+ - Like, I kind of developed my musical style in a vacuum. Even though I listen to a lot of stuff, the way I wrote was in my bedroom, really privately. It’s still the way I write, actually.
+ - I grew up with a lot of brothers and male cousins, so I had to worm my way in to get heard. But that’s sort of what excites me.
+ - You’re really creative when you’re in an environment that you don’t know how to handle. So collaborating was like that for me. I think that was one of the reasons why I knew I was gonna get a challenging reaction.
+ - I probably had some impact, because everyone keeps telling me that I did. I like to feel like I’m coming out with something to try to make room for other young women to make their art.
+ - The other day I was reading a blog and I linked over to Streisand’s Web site, and it was amazing politically. She’s so insightful and incisive. And she also says whatever she wants.
+ - When you love what you do, you’re happy just doing it.
+ - That’s exactly what’s exciting for me – the idea of infiltrating the male structure and affecting change from within.
+ - I remember even getting kicked out of a bar once because I was too loud and obnoxious.
+ - I mean, I think about it, but I don’t design my record to get a certain public response.
+ - Wearing a veneer of perfection never did me any good.
+ - I can’t say I don’t get nervous, but I really kind of enjoy performing now.
+ - When I use the Internet, it’s pretty much strictly for music. Checking out other people’s web sites, what’s going on, listening to music. It’s pretty much a musical thing for me.
+ - I try to see interviewing as performance art, and just take it as it comes.
+ - No. You know what really bugs me about my videos? When they can’t figure out what to do, they just have me change clothes five times.
+ - Now, in music, it seems more like the popular crowd suppresses anyone who is different.
+ - I don’t know why it surprises people that I surprise them.
+ - My identity has everything to do with me and my instrument. It doesn’t have to do with what production style I use, or how many people played on it, whether it’s sparse or grandiose or whatever. And I’m social, frankly.
+ - I blend my green drink every morning. I also fix my son a full-on American breakfast with bacon and toast.
+ - People hang their hopes on you fitting into their CD collection in way that they have made a space for, but I’m playing a longer game than that.
+ - You have to do what you need to do as an artist. You have to have that courage.
+ - Yeah, I like to be the maker of the art. And I like and want the money. But I don’t really dig being famous.
+ - I wear clothes that most people in the Midwest would probably deem inappropriate at my age. And I rock a bikini all summer long. I know that it’s not normal, but I just don’t care. I live once.
+
+77 quotes

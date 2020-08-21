@@ -1,0 +1,22 @@
+ - Oh lord, it’s hard to be humble when your perfect in every way. I can’t wait to look in the mirror, cause I get better looking each day.
+ - Elvis was just like a big old kid. It was like he never got past 19, I don’t think, in a lotta ways.
+ - Baby, baby, don’t get hooked on me, cause I’ll just use you then I’ll set you free.
+ - There was a chance for me to write one song for the section where Elvis sat in his black leather outfit and sang the old hits. At eight oclock the next morning I had written Memories.
+ - Don’t Cry Daddy is a pretty sad song. He got to the end of it and it was just real quiet and Elvis says, I’m gonna cut that someday for my daddy. And, by God, he did. He lived up to his word.
+ - Before you went to work this morning in the city, did you spend some time with your family? Did you kiss your wife and tell her that she’s pretty?
+ - One of my real goals was to hear someone whistling a song I’d written.
+ - In the Ghetto, I’d been trying to write for years.
+ - I was out on the golf course, a guy came riding out in a golf cart and said, Did you know that Elvis died? And I just said, Well, there you go. It was like I had kinda been expecting it.
+ - Who discreetly whispers you forgot to zip up your pants? You babe, you’re my bestest friend.
+ - First time I saw Elvis was at the Lubbock County fairgrounds in Lubbock, Texas. He was on the back end of a truck. There was about 1500 screaming kids.
+ - It’s pretty amazing to me that my first hit record was an Elvis Presley record.
+ - Bought all the Beatle records, I sounded just like Paul.
+ - I had always wanted to write a song called, The Vicious Circle. I always thought it was like, the kids are born there, they grow up there, they die there.
+ - Folks say I’m egotistical. Hell, I don’t even know what it means.
+ - If it was just me and Elvis one on one, which only happened once or twice in the times that I did see him, it was a really comfortable. He was a cool guy. Easy laugh, nice guy.
+ - I’m sure that Elvis was happy for me. I think he was the kind of guy that enjoyed other people’s success, especially if he had something to do with it.
+ - I worked for a publishing company in Hollywood.
+ - I didn’t have a lot of communication with Elvis. You had to go through a barricade to get to Elvis. It was people hanging on every word, and I felt very uncomfortable a lot of times.
+ - Every performer who ever performed in rock and roll or even close to it is lying if they tell you that they weren’t influenced in some way or another by Elvis Presley. He turned the world around.
+
+20 quotes

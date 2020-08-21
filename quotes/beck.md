@@ -1,0 +1,71 @@
+ - I’m a loser baby, so why don’t you kill me?
+ - The limitations are limitless.
+ - You can’t write if you can’t relate.
+ - Two men look out the same prison bars; one sees mud and the other stars.
+ - Let the desert wind cool your aching head. Let the weight of the world – drift away instead.
+ - There’s some quality you get when you’re not totally comfortable. When you’re not doing what you’re used to, you could completely fall on your face. You could completely blow it.
+ - When you say ‘state’ you mean ‘national.’ National Socialism. That is what Mussolini and Hitler did. National Socialism. State Capitalism. They’ve changed the name.
+ - In Japan, you get on the bullet train or the airplane, and I loved the little speeches the stewardesses would do. They even do little speeches before you play gigs.
+ - You just want to go back to those 70s albums. Even a lot of the 90s indie records were still done on tape, and you hear the difference.
+ - When my nephew was 3 and 4, he would say the most genius things. He said, You’re hammer macho with FBI dogs. I thought it was just one of those great lines.
+ - There’s 40 or 50 songs that nobody’s heard that I’ve done in between albums. There’s a whole evolution from Midnite Vultures to Sea Change that’s never been released.
+ - I’m always working on my own music, too. I’ve been working on a record for a few years.
+ - Live the principles and the values. Almost nobody in America is living them. Learn the truth. Live the life of our founders. Be a decent, righteous, forthright honest man or woman.
+ - With modern recording techniques, and living in the Pro Tools era, the process gets really drawn-out, and it can become painstaking.
+ - Originally, the lyrics to “Girl” were really upbeat, and then it didn’t work for me somehow. You need the dichotomy. If you’re doing something happy and light, you need the shadows.
+ - I’m more critical of my songwriting than anybody, but I’ve worked really hard in the last five to 10 years to improve.
+ - I’ve said for years to wives and mothers, you must start to see yourself as Sarah Connor. You must equip your children with the information they need to survive an ever-changing world.
+ - There’s more well-known artists who aren’t making as good songs as people who are just coming out of nowhere. That seems to be more typical in the last few years than ever.
+ - Sea Change was so specific. From the beginning it was set what it was going to be. All the other ideas that I had at the time I had to put to the side.
+ - It’s so easy to criticize your own time, and I see that as a problem, even for myself, as a listener.
+ - Just out of curiosity, I wonder what makes music or culture or taste go in certain directions. Who knows what the forces are behind it.
+ - Your heart is a drum keeping time with everyone.
+ - I do think music sounds better when it’s on tape and more simply recorded.
+ - I grew up I guess you’d say in the cassette era.
+ - I’ve done so many albums where I’ve been in the studio for 14 hours a day for six months just trying to come up with things on my own. It’s a nice change helping other people with their music and not being all about what I’m trying to do myself.
+ - I know my own limitations. And if somebody says, “I need songs for a cartoon garage band – they look like this and they should sound like this,” it gives you a direction. I like having that kind of assignment.
+ - I didn’t want to be on a major label. I wanted all the attention and the noise to go away because I wanted to be something a little bit more substantial.
+ - There are plenty of Minutemen. People willing to be Minutemen. Where are the people that want to be George Washington? Where are the Benjamin Franklins? Where is Sam Adams? Where is John Adams?
+ - I think it’s interesting being American, the expectations for an American guy, and the image that has to be projected. ‘Oh, I can’t wear pink,’ that kind of stuff. There’s none of that in Europe.
+ - I remember you would record a guitar part, and we would have to sit there for 15 or 20 minutes waiting for the computer to process it. You’d see the little wheel spinning on the computer, and you’d be praying that the hard drive didn’t crash and you didn’t lose the performance.
+ - Set your guitars and banjos on fire and before you write a song smoke a pack of whiskey and it’ll all take care of itself.
+ - I have for four years now been ringing the bell. Economic Holocaust is coming. Economic day of reckoning is coming.
+ - Back then, Pro Tools only had four or eight tracks, so we couldn’t actually hear all the tracks. We could only hear eight at a time, so if a song had 25 or 30 tracks, we wouldn’t be able to hear it until we went into the studio an put it all on tape. The process was a little bit backwards.
+ - There’s an infinite amount of possibilities and detours and things that can distract you from actually just performing the song and having whatever emotion that’s invested into the song come through in the recording.
+ - Whether you’re aware of it or not, any kind of collage idea becomes a part of how you see the world once you incorporate media and internet and video games and all these things.
+ - I enjoy the collaboration. I always envied people in bands who got to have that interaction.
+ - I enjoy recording live better, but I think by the nature of it you are going to end up with something that’s a little bit more traditional.
+ - Sometimes, reissues can be revelatory, or put the original record in a different light, but those are rare.
+ - You have to shelve a lot of your inspiration. There’s only so much you can do with one record.
+ - Somebody else is satisfied by five Bentleys. I’m satisfied by a beautiful string arrangement.
+ - I don’t remember half of the new bands, though – and I think that’s kind of where we’re going. It’s turning into just a big derby of songs. May the best song win.
+ - When you use some of the more modern recording devices and Pro Tools, when you get into the technology, you are aching to get into some territory.
+ - I try not to do email; I try to talk to people on the phone.
+ - I’ve been arguing with people for 10 years about tape versus digital, and I believe tape is absolutely essential in getting the sound that’s conducive to the enjoyment of music.
+ - It gets a little bit troublesome when you have something that’s overcompressed that shouldn’t be.
+ - The years keep going by and you realize, Wow. Doing these records is such a process: going on tour for a year and a half, then you get home and you want to do other things.
+ - I would love to do an electronic record. There’s just so much to see and do and try. And life goes by.
+ - Sometimes, I think the way the music business has been destructive and the way the fans are been put through it and try to navigate through it, so much is so foreign to what musicians would actually want to do or what would be natural to them.
+ - As music becomes more computer-based, it’s lost some emotional impact.
+ - I’ve been practicing for years, trying to figure out how to record an entire band live.
+ - There are certain records that you love because the songs are great, but you don’t go to them as an example of great production.
+ - It was disturbing to me that an idea or a song could become something so different from what you originally intended. It’s like if a friend took a stupid picture of you at a party on their phone, and the next thing you knew, it was on every billboard.
+ - There’s a perception that if an artist produces another artist, they’re going to imprint on them. But I’m the opposite.
+ - Anything goes. You always find interesting things that way.
+ - Whatever you do has to be commercial and it can’t be too distracting – it has to be background music, basically.
+ - I didn’t even have a computer until like 10 years ago. I was still using a typewriter until 2002.
+ - When I pull out vinyl – which isn’t that often anymore – it’s undeniable that I get a different feeling. There’s a different physiology happening between the sound waves and the body that doesn’t happen with music playing off the computer.
+ - You must see yourself as guardian, somebody who will preserve what is true and pass it on. Be a guardian. We don’t need militants or revolutionaries. We need guardians. We need leaders.
+ - Sometimes things in life take a few years to digest, and they find their way into the work later on. Sometimes I’m writing about things from eight years ago-they just took a long time to distill and come out in the appropriate way.
+ - Technology was something I avoided when I started out – I didn’t even have electric guitars. Only played acoustic.
+ - The only way I was allowed to play was by convincing bands to let me do a few songs while they set up. That went on for years.
+ - When I did “Top of the Pops” for the first time, Ace of Base was one of the other bands, and I have a memory of them on a small stage next to me in the TV studio. A memory of their performance is burned into my mind. Seared.
+ - It’s hard to make music knowing that it’s not going to be received by the listener in the way that it should be.
+ - With my own music, I try to get away from things that are familiar and things that would be easy for me to go to.
+ - Eventually, if you’re experimenting with a sound that’s unfamiliar, it gets absorbed, and somebody comes and does it better, and it becomes part of a vocabulary.
+ - I’m always looking for older equipment and ways of recording, but you can’t escape the fact that it’s all going to be digitized and reduced.
+ - I’m sure the music is going to come out. I’m not sure if I’m going to put out 12"s or put the songs on my website. I just have to get them done.
+ - There are a lot of technical studio things I’ve learned or figured out, and I feel like I could use those things to help other people with what they’re doing.
+ - There are people who’ve prepared their whole lives for real heavy success and bask in it. They’re so good at it and they obviously love it. I’m just happy to be making a record.
+
+69 quotes

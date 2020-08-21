@@ -1,0 +1,36 @@
+ - No one had ever done a swimming movie before so we just made it up as we went along. I ad-libbed all my own underwater movements.
+ - Victor Mature was a big man; he had a great swagger. I liked him and I knew we’d be good together on screen.
+ - I was all in gold sequins for Million Dollar Mermaid, 50 feet in the air.
+ - The wisdom acquired with the passage of time is a useless gift unless you share it.
+ - The animus is symbolized by male figures appearing in a womans dreams and fantasies, as a husband, son, father, lover, Prince Charming.
+ - Somehow I kept my head above water. I relied on the discipline, character, and strength that I had started to develop as that little girl in her first swimming pool.
+ - I think it’s so funny when people think they can’t control a movie star. They can. We’re just women, you know.
+ - I ended up buying a restaurant. Already we had invested in a gas station and a metal products plant.
+ - Howard Hughes himself was a regular at the restaurant, and in a way it became his headquarters, too. Howard had recently relocated to Las Vegas, so when he wanted to do business in Los Angeles, he went into the back of our restaurant to use the telephone.
+ - It appeared as if I had invited the audience into the water with me, and it conveyed the sensation that being in there was absolutely delicious.
+ - Even though I had a lucrative contract with MGM, I had a husband who was drinking and gambling our money away faster than I could make it.
+ - I took a job at the pool in order to earn the five cents a day it cost to swim. I counted wet towels. As a bonus, I was allowed to swim during lunchtime.
+ - I never walked the streets of New York hoping to be a musical comedy star. For one thing, they would have thought I was too tall, because l was five feet eight and a half, and they were all little bitty things running around in the studio at that time.
+ - My training in Science of Mind had begun with my mother. She took me to a different church every Sunday, and she encouraged me to question the minister afterward.
+ - Everything about my teenage life was almost ideal.
+ - No one can avoid a challenge in life without breeding regret, and regret is the arsenic of life.
+ - I took my daily swim at the Beverly Hills Hotel pool despite the presence of onlookers.
+ - I always took it for granted that there would be life after Hollywood.
+ - I was the only swimmer in movies. Tarzan was long gone, and he couldn’t have done them anyway; he could never have gotten into my bathing suit.
+ - Clark Gable was the first to have called me a mermaid.
+ - The newspapers loved pinup pictures of pretty young swimmers, and as a national champion, I got more than my share of space in the sports pages.
+ - Traveling to swimming meets took me beyond my small-town existence, gave me a hint of the exciting world outside of my own home.
+ - Life magazine ran a page featuring me and three other girls that was clearly the precursor of Sports Illustrated swimsuit issues.
+ - I remember when I first walked into Mayer’s cavernous office. You had to walk 50 yards to get to him, and in that time he could really study everything about you.
+ - I was 15, and the years of hard swimming had packed muscle on my frame and made me very strong. Not as strong as a football player, but strong enough to inflict heavy damage.
+ - There was a policy at Hughes against drinking at lunch, but the men ignored it.
+ - What the public expects and what is healthy for an individual are two very different things.
+ - Three events. Three gold medals. I was news, big news, in the sports world.
+ - I gave my eardrums to MGM. And it’s true: I really did.
+ - By the time I got home at night, my eyes were so chlorinated I saw rings around every light.
+ - When you’re out of sight for as long as I was, there’s a funny feeling of betrayal that comes over people when they see you again.
+ - I always felt that if I made a movie, it would be one movie; I didn’t see how they could make 26 swimming movies.
+ - Marriage to Fernando offered shelter and security, but the shackle was the price I’d pay.
+ - We can’t all win Olympic medals. Even I never won one.
+
+34 quotes

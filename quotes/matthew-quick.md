@@ -1,0 +1,50 @@
+ - I am so happy. I am so impossibly happy.
+ - If clouds are blocking the sun, there will always be a silver lining that reminds me to keep on trying.
+ - I am practicing being kind over being right.
+ - She looks sad. She looks angry. She looks different from everyone else I know – she cannot put on that happy face others wear when they know they are being watched. She doesn’t put on a face for me, which makes me trust her somehow.
+ - I feel like I’m broken – like I don’t fit together anymore. Like there’s no more room for me in the world or something. Like I’ve overstayed my welcome here on Earth, and everyone’s trying to give me hints about that constantly. Like I should just check out.
+ - You’re different. And I’m different too. Different is good. But different is hard. Believe me, I know.
+ - I don’t want to stay in the bad place, where no one believes in silver linings or love or happy endings.
+ - The only way to beat my crazy was by doing something even crazier. Thank you. I love you. I knew it from the moment I saw you. I’m sorry it took me so long to catch up.
+ - When life reaches out with a moment like this, it’s a sin if you don’t reach back.
+ - People should be nice to you, Leonard. You’re a human being. You should expect people to be nice.
+ - You need to make time for your family no matter what happens in your life.
+ - Life is not a PG feel-good movie. Real life often ends badly...
+ - So I’m thinking this is the part of my movie where things appear as if nothing is going to work out. I have to remind myself that all movie characters go through this sort of dark period before they find their happy ending.
+ - I’m trying to let him know what I’m about to do. I’m hoping he can save me, even though I realize he can’t.
+ - I want to believe that happiness might at least be possible later on in life for people prone to sadness.
+ - That’s basically the mantra of Herr Silverman’s teaching – think for yourself and do what’s right for you, but let others do the same.
+ - You can lose yourself in repetition – quiet your thoughts; I learned the value of this at a very young age.
+ - Life is not a PG feel-good movie. Real life often ends badly. Literature tries to document this reality, while showing us it is still possible for us to endure nobly.
+ - Not letting the world destroy you. That’s a daily battle.
+ - When she needed help most, she was abandoned – and only when she offered help to others was she beloved.
+ - The problem with the stigma around mental health is really about the stories that we tell ourselves as a society. What is normal? That’s just a story that we tell ourselves.
+ - You need to know it’s your actions that will make you a good person, not desire.
+ - Tiffany and I are great friends, and I appreciate all that she is doing for me now. But she is not you. I still love you, Nikki. And you can’t control or alter true love.
+ - It hurts to look at the clouds, but it also helps, like most things that cause pain.
+ - I think it’s strange to live in a house with someone you cannot talk to-especially when that someone is your father-and the thought makes me a little sad.
+ - Air goes in and out of my nose, throat, lungs, blood, heart brain – and so I am.
+ - You may exist in this world – but I exist too and I will not yield.
+ - There will always be a part of me that is dirty and sloppy, but I like that, just like all the other parts of myself.
+ - Most people lose the ability to see silver linings or even though they are always there above us.
+ - I can be a very valuable friend to you, but you do not want me as an enemy.
+ - Although once when we were talking after class, Herr Silverman told me that when someone rises up and holds himself to a higher standard, even when doing so benefits others, average people resent it, mostly because they’re not strong enough to do the same.
+ - What is reality if it isn’t how we feel about things?
+ - My other friends are in music relaxation class, which I do not attend, because smooth jazz makes me angry sometimes.
+ - I’m a screwed-up person who no longer knows how to communicate with the people I love. But I meant everything I told you in my letter. If I were your Nikki, I would have come back to you on Christmas Day, but I’m not Nikki. I know. And I’m sorry.
+ - Fly! There’s a lot of sky out there for brave birds.
+ - Haven’t you ever noticed that life is like a series of movies?
+ - Looking into another person’s eyes for an extended period of time proved to be a powerful thing. And if you don’t believe me, try it yourself.
+ - Soon I am seeing the blue-and-yellow flags that line the campus streets, and it makes me feel happy and sad at the same time to be back at La Salle – almost like looking at old pictures of people who have either died or with whom you have lost contact.
+ - Your mother is risking a lot, because she believes in you.
+ - I think all it really takes for different people to get along is a common rooting interest and a few beers.
+ - When she needed help most, she was abandoned.
+ - When I run, I always pretend I am running toward Nikki, and it makes me feel like I am decreasing the amount of time I have to wait until I see her again.
+ - I opened up to you and you judge me.
+ - Miracles happen on Christmas, Pat. Everybody knows that.
+ - After I returned to New Jersey, I thought I was safe, because I did not think Kenny G could leave the bad place, which I realize is silly now – because Kenny G is extremely talented and resourceful and a powerful force to be reckoned with.
+ - Also, I sort of let my appearance go, to the point where I was maybe ten to seventy pounds overweight...
+ - You better watch out, or you’re going to be defeated by pessimism!
+ - I can always look up at the cosmos and marvel, no matter what happens. And when I look up at it, I feel as though my problems are small. I don’t know why, but it always makes me feel better.
+
+48 quotes

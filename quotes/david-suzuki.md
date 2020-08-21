@@ -1,0 +1,127 @@
+ - In nature there is no such thing as waste. In nature nothing is wasted; everything is recycled.
+ - We all live downstream.
+ - If we pollute the air, water and soil that keep us alive and well, and destroy the biodiversity that allows natural systems to function, no amount of money will save us.
+ - We’re in a giant car heading towards a brick wall and everyone’s arguing over where they’re going to sit.
+ - Unless we are willing to encourage our children to reconnect with and appreciate the natural world, we can’t expect them to help protect and care for it.
+ - I can’t imagine anything more important than air, water, soil, energy and biodiversity. These are the things that keep us alive.
+ - Conventional economics is a form of brain damage. Economics is so fundamentally disconnected from the real world, it is destructive.
+ - It is not too late to take another path.
+ - Change is never easy, and it often creates discord, but when people come together for the good of humanity and the Earth, we can accomplish great things.
+ - There is a gyre of discarded floating plastic the size of the continental USA in the ocean. In it, plastic trash outweighs plankton 40 to 1.
+ - The environment is so fundamental to our continued existence that it must transcend politics and become a central value of all members of society.
+ - Every breath is a sacrament, an affirmation of our connection with all other living things, a renewal of our link with our ancestors and a contribution to generations yet to come. Our breath is a part of life’s breath, the ocean of air that envelopes the earth.
+ - The human brain had a vast memory storage. It made us curious and very creative. Those were the characteristics that gave us an advantage – curiosity, creativity and memory. And that brain did something very special. It invented an idea called ‘the future.’
+ - Just as fossil fuels from conventional sources are finite and are becoming depleted, those from difficult sources will also run out. If we put all our energy and resources into continued fossil fuel extraction, we will have lost an opportunity to have invested in renewable energy.
+ - All those hours exploring the great outdoors made me more resilient and confident.
+ - The increasing frequency of extreme weather events, droughts and floods is in line with what climate scientists have been predicting for decades – and evidence is mounting that what’s happening is more severe than predicted, and will get far worse still if we fail to act.
+ - Conventional economics is a form of brain damage.
+ - Our personal consumer choices have ecological, social, and spiritual consequences. It is time to re-examine some of our deeply held notions that underlie our lifestyles.
+ - Doing all we can to combat climate change comes with numerous benefits, from reducing pollution and associated health care costs to strengthening and diversifying the economy by shifting to renewable energy, among other measures.
+ - Plastic bags are bad and for the most part unnecessary.
+ - And that, quite simply, is the issue. We live in a finite world with finite resources. Although it may sometimes seem quite big, earth is really very small – a tiny blue and green oasis of life in a cold universe.
+ - Our choices at all levels-individual, community, corporate and government-affect nature. And they affect us.
+ - Water is our most precious resource, but we waste it, just as we waste other resources, including oil and gas.
+ - Human beings are often at their best when responding to immediate crises – car accidents, house fires, hurricanes. We are less effective in the face of enormous but slow-moving crises such as the loss of biodiversity or climate change...
+ - We are playing Russian roulette with features of the planet’s atmosphere that will profoundly impact generations to come. How long are we willing to gamble?
+ - Our planet has not seen an extinction crisis as serious as the one in progress for 65 million years.
+ - We have much to learn by studying nature and taking the time to tease out its secrets.
+ - On December 7, 1941, an event took place that had nothing to do with me or my family and yet which had devastating consequences for all of us – Japan bombed Pearl Harbour in a surprise attack. With that event began one of the shoddiest chapters in the tortuous history of democracy in North America.
+ - Our identity includes our natural world, how we move through it, how we interact with it and how it sustains us.
+ - The medical literature tells us that the most effective ways to reduce the risk of heart disease, cancer, stroke, diabetes, Alzheimer’s, and many more problems are through healthy diet and exercise. Our bodies have evolved to move, yet we now use the energy in oil instead of muscles to do our work.
+ - More than a billion people lack adequate access to clean water.
+ - Love is the force that makes us fully human.
+ - We are upsetting the atmosphere upon which all life depends. In the late 80s when I began to take climate change seriously, we referred to global warming as a “slowmotion catastrophe” one we expected to kick in perhaps generations later. Instead, the signs of change have accelerated alarmingly.
+ - Protecting the biosphere should be our highest priority or else we sicken and die.
+ - When I was a kid, being outside was the norm. Rain or shine, our parents would tell us to get out of the house.
+ - Debating the best way to do something we shouldn’t be doing in the first place is a sure way to end up in the wrong place.
+ - But human borders mean nothing to air, water, windblown soil or seeds or migrating fish, birds or mammals.
+ - I see a world in the future in which we understand that all life is related to us and we treat that life with great humility and respect.
+ - With an estimated population of nine billion people by 2050, we cannot continue to consume resources at the same rate and maintain our quality of life.
+ - It’s not unexpected that shooting massive amounts of water, sand, and chemicals at high pressure into the earth to shatter shale and release natural gas might shake things up. But earthquakes aren’t the worst problem with fracking.
+ - Thanks to evolution, our bodies have powerful ways to ward off illness and infection and enable us to live long and healthy lives. Why, then, do health costs continue to climb at unsustainable and frightening rates?
+ - If we continue to set human borders and the economy as our highest priorities, we will never come to grips with the destructiveness of our activities and institutions.
+ - Outright bans on plastic bags may not be the best solution, but education and incentives to get people to stop using them are necessary.
+ - Some argue we should get coal, oil and gas out of the ground as quickly as possible, build more pipelines and make as much money as we can selling it here and abroad. Their priorities are the economy and meeting short-term energy needs so we can live the lives to which we’ve become accustomed.
+ - Canada, more than any nation, will be affected by rising sea levels from global warming.
+ - A book is like a single tree in a forest, in that it exists in conjunction with and because of a great many others around it.
+ - With the world’s human population now at seven billion and growing, and the demand for technology and modern conveniences increasing, we can’t control all our negative impacts. But we have to find better ways to live within the limits nature and its cycles impose.
+ - We humans have become dependent on plastic for a range of uses, from packaging to products. Reducing our use of plastic bags is an easy place to start getting our addiction under control.
+ - Any scientist who tells you they know that GMOs are safe and not to worry about it, is either ignorant of the history of science or is deliberately lying. Nobody knows what the long-term effect will be.
+ - How you imagine the world determines how you live in it.
+ - The voluntary approach to corporate social responsibility has failed in many cases.
+ - Our beliefs, our values shape the way we look out at the world and the way we treat it. If we believe that we were here, placed here by God, that this – all of this creation is for us, it’s for us to go and occupy, dominate and exploit, then we will proceed to do that.
+ - Nature surrounds us, from parks and backyards to streets and alleyways. Next time you go out for a walk, tread gently and remember that we are both inhabitants and stewards of nature in our neighbourhoods.
+ - The damage that climate change is causing and that will get worse if we fail to act goes beyond the hundreds of thousands of lives, homes and businesses lost, ecosystems destroyed, species driven to extinction, infrastructure smashed and people inconvenienced.
+ - Conserving energy and thus saving money, reducing consumption of unnecessary products and packaging and shifting to a clean-energy economy would likely hurt the bottom line of polluting industries, but would undoubtedly have positive effects for most of us.
+ - We must reinvent a future free of blinders so that we can choose from real options.
+ - We can’t blame children for occupying themselves with Facebook rather than playing in the mud. Our society doesn’t put a priority on connecting with nature. In fact, too often we tell them it’s dirty and dangerous.
+ - It’s time we stopped ignoring the environment. Let’s not let another election go by without making this a high priority.
+ - If we want to move towards a low-polluting, sustainable society, we need to get consumers to think about their purchases.
+ - Each time I visit Japan, I am reminded of how Canadian I am and how little racial connection matters.
+ - What about our children and grandchildren and their children and grandchildren? Do we not want them to live healthy and happy lives?
+ - My earliest memory from childhood is of fishing with my father. And I remember vividly we were in a store, and we were buying a pup tent to go on our first camping trip.
+ - Aboriginal people are key because they have a different sense of where we belong and how we interact with nature.
+ - Faced with the evidence, many deniers have started to admit that global warming is real, but argue that humans have little or nothing to do with it.
+ - We have become a force of nature.
+ - The truth is, as most of us know, that global warming is real and humans are major contributors, mainly because we wastefully burn fossil fuels.
+ - Just as human activity is upsetting Earth’s carbon cycle, our actions are altering the water cycle.
+ - Environmentalism isn’t a discipline or specialty. It’s a way of seeing our place in the world. And we need everybody to see the world that way. Don’t think ‘In order to make a difference I have to become an environmentalist.’
+ - One of the joys of being a grandparent is getting to see the world again through the eyes of a child.
+ - The human brain now holds the key to our future. We have to recall the image of the planet from outer space: a single entity in which air, water, and continents are interconnected. That is our home.
+ - If we humans are good at anything, it’s thinking we’ve got a terrific idea and going for it without acknowledging the potential consequences or our own ignorance.
+ - The failure of world leaders to act on the critical issue of global warming is often blamed on economic considerations.
+ - If Canada, one of the richest nations in the world, can’t meet Kyoto targets, why should China or India give any considerations for meeting the targets?
+ - Ultimately we need to recognize that while humans continue to build urban landscapes, we share these spaces with others species.
+ - So now the challenge is to imagine a different world where our wealth is in human relations and the things we do together, and we learn to live in balance with the rest of nature.
+ - Japan is a model already to the lie that economic growth is the key to our future. If they can really show an alternative to nukes and fossil fuels, then they will be the poster boy for the renewable energy for the future.
+ - We must pay greater attention to keeping our bodies and minds healthy and able to heal. Yet we are making it difficult for our defences to work. We allow things to be sold that should not be called food. Many have no nutritive value and lead to obesity, salt imbalance, and allergies.
+ - Many organic practices simply make sense, regardless of what overall agricultural system is used. Far from being a quaint throwback to an earlier time, organic agriculture is proving to be a serious contender in modern farming and a more environmentally sustainable system over the long term.
+ - Humanity is facing a challenge unlike any we’ve ever had to confront. We are in an unprecedented period of change.
+ - Planting native species in our gardens and communities is increasingly important, because indigenous insects, birds and wildlife rely on them. Over thousands, and sometimes millions, of years they have co-evolved to live in local climate and soil conditions.
+ - Humans are an infant species, a mere 150,000 years old. But, armed with a massive brain, we’ve not only survived, we’ve used our wits to adapt to and flourish in habitats as varied as deserts, Arctic tundra, tropical rainforests, wetlands and high mountain ranges.
+ - So we draw lines around our property, our counties, our cities, our states, our countries. And, boy, do we act as if those lines are important. I mean, we go to war. We will kill and die to protect those boundaries. Nature couldn’t give two hoots about our national boundaries...
+ - As parents, grandparents, uncles and aunts we need to start getting out into nature with the young people in our lives. Families play a key role in getting kids outside.
+ - For the sake of our health, our children and grandchildren and even our economic well-being, we must make protecting the planet our top priority.
+ - Hydraulic fracturing requires massive amounts of water. Disposing of the toxic wastewater, as well as accidental spills, can contaminate drinking water and harm human health.
+ - Beyond reducing individual use, one of our top priorities must be to move from fossil fuels to energy that has fewer detrimental effects on water supplies and fewer environmental impacts overall.
+ - Other things, like capitalism, free enterprise, the economy, currency, the market, are not forces of nature, we invented them. They are not immutable and we can change them.
+ - For the first time since life appeared on earth, one species- us- is single-handedly altering the physical, chemical and biological nature of earth. We have become a force of nature.
+ - Each of us has the ability to act powerfully for change; together we can restore that ancient and sustaining harmony.
+ - What permaculturists are doing is the most important activity that any group is doing on the planet.
+ - Environmentali sm is really about seeing our place in world in a way that humans have always known up until very recently – that we are part of nature-utterly dependent on the natural world for our well being and survival.
+ - You would have thought that our first priority would be to ask what the ecologists are finding out, because we have to live within the conditions and principles they define. Instead, we’ve elevated the economy above ecology.
+ - Some solutions are relatively simple and would provide economic benefits: implementing measures to conserve energy, putting a price on carbon through taxes and cap-and-trade and shifting from fossil fuels to clean and renewable energy sources.
+ - From year to year, environmental changes are incremental and often barely register in our lives, but from evolutionary or geological perspectives, what is happening is explosive change.
+ - The current economic system is fundamentally flawed and inevitably destructive.
+ - Pearl Harbor was the defining event in my life. It shaped who I am, and all of my hang-ups and my drives, I think, stem from that.
+ - Treaties, agreements and organizations to help settle disputes may be necessary, but they often favor the interests of business over citizens.
+ - Come on Canada, it’s time to kick our bad habits and get into shape!
+ - We have altered the physical, chemical and biological properties of the planet on a geological scale. We have left no part of the globe untouched.
+ - I’ve always been more interested in organisms that can move on their own than in stationary plants. But when I canoe or hike along the edge of lakes or oceans and see trees that seem to be growing out of rock faces, I am blown away. How do they do it?
+ - Over and over, we hear politicians say they can’t spend our tax dollars on environmental protection when the economy is so fragile.
+ - Less than 10% of the fuel energy burned in automobiles is translated into forward motion of the vehicle and even then most of this energy is needed to move the vehicle itself, which typically weighs 20 times more than its passengers.
+ - Even meeting Kyoto targets barely makes a dent in what we have to achieve.
+ - The event of creation did not take place so many eons ago, astronomically or biologically speaking. Creation is taking place every moment of our lives.
+ - Think about a seed. Once it lands, it’s stuck. It can’t move to find better soil, moisture or sunlight. It’s able to create every part of itself to grow and reproduce with the help of air, water and sun.
+ - More than any other time in history, the 1990s will be a turning point for human civilization.
+ - Because countries often have differing political and economic systems, agreements are needed to protect those invested in trade.
+ - Humans are now the most numerous mammal on the planet. There are more humans than rats or mice. Humans have a huge ecological footprint, magnified by their technology.
+ - Birds are, especially canaries, are super sensitive to hydrogen sulfide and sour gas.
+ - If we have any hope of finding ways for seven billion people to live well on planet with finite resources, we have to learn to use our resources efficiently. Plastic bags are neither efficient nor environmentally friendly.
+ - Most North Americans know that human-caused global warming is real, even if political leaders don’t always reflect or act on that knowledge.
+ - Global trade has advantages. For starters, it allows those of us who live through winter to eat fresh produce year-round. And it provides economic benefits to farmers who grow that food.
+ - Rapid population growth and technological innovation, combined with our lack of understanding about how the natural systems of which we are a part work, have created a mess.
+ - There are some things in the world we can’t change...
+ - We can no longer tolerate what’s going on in Ottawa and Edmonton. What I would challenge you to do is to put a lot of effort into trying to see whether there’s a legal way of throwing our so-called leaders into jail because what they’re doing is a criminal act.
+ - Feeding our energy appetite is top of mind for many people these days.
+ - Education has failed in a very serious way to convey the most important lesson science can teach: skepticism.
+ - Perhaps the whole world is actually a banquet, to which every living thing is invited. First you come as guests: then eventually you’re on the menu.
+ - Japanese people cut their energy use by 25 percent immediately after Fukushima. They showed there was huge opportunity there. And instead, the government simply wants to get those plants up and running again.
+ - The one thing I feel is very hopeful, however, is the overwhelming participation of women in the movement for change.
+ - If America wants to retain its position as a global power, its president must listen to the people and show strong leadership at this turning point in human history.
+ - In the environmental movement, every time you lose a battle it’s for good, but our victories always seem to be temporary and we keep fighting them over and over again.
+ - The terrible part of this looming catastrophe is that people have been working on solutions for years and have developed concrete steps to massively reduce our energy use, while stimulating whole new industries and technologies that are more efficient and affordable.
+ - We now have access to so much information that we can find support for any prejudice or opinion.
+ - Many instances of persecution and killing have occurred in countries with atrocious human rights records such as Sri Lanka, Guatemala and the Democratic Republic of Congo.
+
+125 quotes

@@ -1,0 +1,58 @@
+ - Faith is the refusal to panic.
+ - Have you realized that most of your unhappiness in life is due to the fact that you are listening to yourself instead of talking to yourself?
+ - The worst thing that can happen to a man is to succeed before he is ready.
+ - A revival means days of heaven upon earth.
+ - Always respond to every impulse to pray. The impulse to pray may come when you are reading or when you are battling with a text. I would make an absolute law of this: always obey such an impulse.
+ - The whole man is involved, the mind, the heart and the will, and a common cause of spiritual depression is the failure to realize that the Christian life is a whole life, a balanced life.
+ - There is nothing which so certifies the genuineness of a man’s faith as his patience and his patient endurance, his keeping on steadily in spite of everything.
+ - Spiritual depression or unhappiness in the Christian life is very often due to our failure to realize the greatness of the gospel.
+ - The eternal everlasting God has become our Father and the moment we realize that, it transforms everything.
+ - You are either a Christian or you are not a Christian; you cannot be partly a Christian. You are either “dead” or “alive”; you are either “born” or “not born”.
+ - The devil’s one object is so to depress God’s people that he can go to the man of the world and say: There are God’s people. Do you want to be like that?
+ - The Gospel is open to all; the most respectable sinner has no more claim on it than the worst.
+ - The ultimate test of our spirituality is the measure of our amazement at the grace of God.
+ - You must go on to remind yourself of God – who God is, and what God is, and what God has done, and what God has pledged Himself to do.
+ - We must re-grasp the idea of church membership as being the membership of the body of Christ and as the biggest honour which can come man’s way in this world.
+ - The Christian faith is ultimately not only a matter of doctrine or understanding or of intellect, it is a condition of the heart.
+ - I am not asking whether you know things about Him but do you know God, are you enjoying God, is God the centre of your life, the soul of your being, the source of your greatest joy? He is meant to be.
+ - Man is at his greatest and highest when upon his knees he comes face to face with God.
+ - To be a Christian is not only to believe the teaching of Christ, and to practice it; it is not only to try to follow the pattern and example of Christ; it is to be so vitally related to Christ that His life and His power are working in us. It is to be “in Christ,” it is for Christ to be in us.
+ - We should go into His presence as a child goes to his father. We do it with reverence and godly fear, of course, but we should go with a childlike confidence and simplicity.
+ - The nearer a man gets to God, the greater he sees his sin.
+ - There is no happiness finally, there is no peace, there is no joy except we be right with God. The miserable Christian is wrong in his ideas as to how this rightness with God is to be obtained.
+ - If you doubt your sins have been forgiven, that in itself is sin.
+ - We must cease to think of the church as a gathering of institutions and organizations, and we must get back to the notion that we are the people of God.
+ - What is the chief end of preaching? I like to think it is this: It is to give men and women a sense of God and His presence.
+ - A Christian is something before he does anything; and we have to be Christian before we can act as Christians.
+ - The gospel is not something partial or piecemeal: it takes in the whole life, the whole of history, the whole world. It tells us about creation and the final judgment and everything in between.
+ - If we only spent more of our time in looking at Him we should soon forget ourselves.
+ - Man was never meant to be a god, but he is forever trying to deify himself.
+ - The very God whom we have offended has Himself provided the way whereby the offense has been dealt with. His anger, His wrath against sin and the sinner, has been satisfied, appeased and He therefore can now thus reconcile man unto Himself.
+ - Prayer, in many ways, is the supreme expression of our faith in God.
+ - The Christian is a man who can be certain about the ultimate even when he is most uncertain about the immediate.
+ - The ultimate cause of spiritual depression is unbelief. For if it were not for unbelief, even the devil could do nothing. It is because we listen to the devil instead of listening to God that we go down before him and fall before his attacks.
+ - The devil is so subtle that he dominates man and persuades him at the same time that he is not being dominated.
+ - Human will-power alone is not enough. Will-power is excellent and we should always be using it; but it is not enough. A desire to live a good life is not enough. Obviously we should all have that desire, but it will not guarantee success.
+ - Conviction is not repentance; conviction leads to repentance. But you can be convicted without repentance.
+ - You can have knowledge, and you can be meticulous in your preparation; but without the unction of the Holy Spirit you will have no power, and your preaching will not be effective.
+ - To love to preach is one thing; to love to whom you preach is quite another.
+ - Grace is favor shown to people who do not deserve any favor at all.
+ - There is nothing more foolish or self-defeating than for a Christian to say that he is not interested in doctrines.
+ - The introduction is the first and best chance to win the attention of people who otherwise would not care. The first thing you have to do is make people believe that what you have to say is relevant and important.
+ - People are often unhappy in the Christian life because they have thought of Christianity, and the whole message of the gospel, in inadequate terms.
+ - If you look at your past and are depressed it means that you are listening to the devil.
+ - The glory of the gospel is that when the church is absolutely different from the world, she invariably attracts it.
+ - Faith always shows itself in the whole personality.
+ - The terrible, tragic fallacy of the last hundred years has been to think that all man’s troubles are due to his environment, and that to change the man you have nothing to do but change his environment. That is a tragic fallacy. It overlooks the fact that it was in Paradise that man fell.
+ - Preaching the Word is the primary task of the Church, the primary task of the leaders of the Church, the people who are set in this position of authority; and we must not allow anything to deflect us from this, however good the cause, however great the need.
+ - Though we claim to believe the whole of Scripture, in practice we frequently deny much of it by ignoring it.
+ - All teaching and all truth and all doctrine must be tested in the light of the scriptures.
+ - There are powers that can counterfeit almost everything in the Christian life.
+ - If you can explain what is happening in a church, apart from the sovereign act of God, it is not revival.
+ - First of all, the evangelical is one who is entirely subservient to the Bible. This is true of every evangelical. He is a man of one book; he starts with it; he submits himself to it; this is his authority.
+ - If in a Christian pulpit you have no business saying, “I suggest to you” No! “These things I declare to you.”
+ - The gospel is meant to control and govern everything in our lives.
+ - People who think that once they are converted all will be happy, have forgotten Satan.
+ - There is a very real danger of our putting our faith in our sermon rather than in the Spirit. Our faith should not be in the sermon, it should be in the Holy Spirit Himself.
+
+56 quotes

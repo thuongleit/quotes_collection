@@ -1,0 +1,100 @@
+ - Each night as you sleep I destroy the world.
+ - We’re not in Wonderland anymore Alice.
+ - Look down at me and you see a fool, Look up at me and you see a god, Look straight at me and you see yourself.
+ - The mind is endless. You put me in a dark solitary cell, and to you that’s the end, to me it’s the beginning, it’s the universe in there, there’s a world in there, and I’m free.
+ - Don’t treat the dogs like people. Treat the dogs like dogs. They are better than people.
+ - Fear of vikings build castles.
+ - Death is the greatest form of love.
+ - Paranoia is just a kind of awareness, and awareness is just another form of love.
+ - Pain’s not bad, it’s good. It teaches you things. I understand that.
+ - No sense makes sense.
+ - Total paranoia is just total awareness.
+ - You got to realize; you’re the Devil as much as you’re God.
+ - If you’re going to do something, do it well. And leave something witchy.
+ - Believe me, if I started murdering people there’d be none of ya left.
+ - You know, a long time ago being crazy meant something. Nowadays everybody’s crazy.
+ - I am the man in the mirror, anything you see in me is in you, I am you, and when you can admit that you will be free. I am just a mirror.
+ - We’re all our own prisons, we are each all our own wardens and we do our own time. I can’t judge anyone else. What other people do is not really my affair unless they approach me with it. Prison’s in your mind. Can’t you see I’m free?
+ - The real strong have no need to prove it to the phonies.
+ - Air is God, because without air we do not exist.
+ - As long as there’s hate in your heart, there’ll be hate in the world. You can’t fight for peace and you cannot capture freedom.
+ - Sanity is a small box; insanity is everything.
+ - I treat everyone just like I would myself. If you treat me right, I’ll treat you right.
+ - Living is what scares me. Dying is easy.
+ - Do you feel blame? Are you mad? Uh, do you feel like wolf kabob Roth vantage? Gefrannis booj pooch boo jujube; bear-ramage. Jigiji geeji geeja geeble Google. Begep flagaggle vaggle veditch-waggle bagga?
+ - Maybe I should have killed four, five hundred people. Then I would have felt better. Then I would have felt like I really offered society something.
+ - You know what they’re doing to your Constitution? They’re making a joke out of your Constitution. Love’s not in your court room. And God is not in your heart.
+ - My philosophy is: Don’t think.
+ - Good for some may not be the same for others.
+ - The truth is ugly, so we put our prophets in prison.
+ - The music speaks to you every day, but you are too deaf, dumb, and blind to even listen to the music. You are too deaf, dumb, and blind to stop what you are doing.
+ - From the world of darkness I did loose demons and devils in the power of scorpions to torment.
+ - The way out of a room is not through the door. Just don’t want out. And you’re free...
+ - If I haven’t seen it, it’s new to me.
+ - I’m not your executioner. I’m not your devil and I’m not your God. I’m Charles Manson.
+ - I can’t judge any of you. I have no malice against you and no ribbons for you. But I think that it is high time that you all start looking at yourselves, and judging the lie that you live in.
+ - I never thought I was normal, never tried to be normal.
+ - Let’s clap our hands for the president and Jesus Christ and did I mention Charlie Manson and everybody else, who was nice.
+ - Animals shouldn’t be hunted and nature shouldn’t be disturbed, even destroyed, to benefit the whims of mankind.
+ - You can convince anyone of anything if you just push it at them 100% of the time. They may not believe it completely, but they will still use it to form opinions, especially if they have nothing else to draw on.
+ - My life is not important here.
+ - If I had a desire, it would be to be free from desire.
+ - In my mind’s eye my thoughts light fires in your cities.
+ - Progress? There’s no such thing as progress. There’s only change. You dig a hole in the ground, you build up a city, and you fight a war, and you call it progress?
+ - I’m Jesus Christ, whether you want to accept it or not, I don’t care.
+ - There’s nothing wrong with being incompetent. It just means you don’t have to do as much.
+ - How the hell did I brainwash 35 girls in less than a year? That’s impossible. You’re making me out to do the impossible. You don’t understand you are making me a legend.
+ - To save the people from themselves it would take a greater fear than the earth has ever seen.
+ - I’m probably one of the most dangerous men in the world if I want to be. But I never wanted to be anything but me.
+ - Now I am too beautiful to be set free.
+ - You are not you, you are just reflections, you are reflections of everything that you think you know, everything that you have been taught.
+ - I was crazy back when being crazy really meant something...
+ - I’m involved in too many things. I have a Web site I’m working on.
+ - If it wasn’t for the publicity, I would’ve been out of here and gone a long time ago.
+ - You eat meat with your teeth and you kill things that are better than you are, and in the same respect you say how bad and even killers that your children are. You make your children what they are.
+ - Anything you see in me is in you. If you want to see a vicious killer, that’s who you’ll see, do you understand that? If you see me as your brother, that’s what I’ll be. It all depends on how much love you have. I am you, and when you can admit that, you will be free. I am just a mirror.
+ - All you fakers are in for it. I begged you on my knees and you didn’t listen and now I can’t hear you.
+ - Remorse for what? You people have done everything in the world to me. Doesn’t that give me equal right?
+ - I am not in jail. There is no jail.
+ - I was a beatnik in the ’50s before the hippies came along.
+ - You know who your enemy is? You’re the enemy. You sit there fat, sloppy, you watch your TV, and you kick back and you judge everybody as being wrong and bad, but you.
+ - To get yourself together you need not to even think there is anyone else in this world. I don’t need to look down on, or get off on, or get over on. The hardest thing to overcome is our own lies, confusion and our jealousy.
+ - If I wanted to kill somebody, I’d take this book and beat you to death with it, and I wouldn’t feel a thing.
+ - A baby is born into this world in a state of fear. Total paranoia and awareness. He sees the world with eyes not used yet. As he grows up, his parents lay all this stuff on him. They tell him, when they should be letting him tell them. Let the children lead you.
+ - My reality is my reality, and I stand within myself on my reality.
+ - These children that come at you with knives, they are your children. You taught them. I didn’t teach them. I just tried to help them stand up.
+ - I know and understand you are much more than what I think you are but first I must deal with you the way I think you even if that’s only my own thinking and not you.
+ - The Charlie Manson that you’ve created, that’s not me. That’s only an illusion in your minds, it hasn’t got anything to do with me.
+ - Most of the people at the ranch were just people you did not want, people that were alongside the road.
+ - I’m in jail because people wanna keep me in jail. It ain’t got nothing to do with the law.
+ - If I could get angry at you, I would try to kill every one of you. If that’s guilt, I accept it.
+ - I have killed no one and I have ordered no one to be killed.
+ - What do the animals do in the zoo? That’s the same thing that I do in my cell. I play with myself. I make little string dolls. I talk to roaches. I’m in jail for nine counts of murder, and I didn’t do it. I’m in solitary confinement, may I add.
+ - I play music. People are affected by the music I play. That doesn’t mean I direct traffic! That doesn’t mean I put a knife in anybody’s hand and tell ’em to go kill somebody!
+ - So for you people who are filled with fear that I might someday be released: breathe easy, I don’t see it happening.
+ - I was so smart when I was a kid that I learnt that I was dumb fast.
+ - I have X’d myself from your world.
+ - In fact, it makes me mad when someone kills snakes or dogs or cats or horses. I don’t even like to eat meat – that is how much I am against killing...
+ - You people would convict a grilled cheese sandwich of murder and the people wouldn’t question it.
+ - Time and circumstance made me into this Manson guy, Satan. Society wanted to buy this evil, mass-murdering-devil-fiend. I’m nobody. I’m the hobo in line. Give me a bottle of wine and put me on a train. I don’t fit into the world you guys live in, so I live over there in the shadows of it.
+ - We use the word God. God hooks all the other words up. I’m the pope. I’m ten times the pope. I’m sixty times the pope. But I’m the pope in the hills and in the mountains.
+ - I loved my mother, she’s a good girl.
+ - I never had long hair before I got busted. I never had a beard before I got busted.
+ - Just give me my rights. All I want is the same rights that my fathers died for If I don’t deserve no rights, then who does deserve rights? I didn’t break no law.
+ - I’ve done nothing I’m ashamed of. Nothing I couldn’t face God with. I wouldn’t kill a bug.
+ - I know what I would say now and I don’t lie, so I know I what I would say then. And I certainly wouldn’t tell nobody to go in and do nothing to anybody that I wouldn’t want done to me.
+ - I told them that anything they do for their brothers and sisters is good if they do it with a good thought...
+ - I don’t want parole; I’m too busy working on my web site...
+ - You are upset because one of your actors got on the wrong lane doing something with the wrong people. And you want to blame somebody else for it. And you got to dig up some poor-ass idiot that don’t have the brain of a retarded spastican and make him a cult leader!
+ - Just because you’re convicted in a court room doesn’t mean you’re guilty of something.
+ - How old am I? I’m as old as my mother told me. How’s that?
+ - I ain’t got no magical powers and mystical trips and all that kind of crap. It’s kind of silly.
+ - You invented the words, and you gave me a dictionary and you said, ‘These are what the words mean.’ Well, this is what they mean to you, but to someone else, they have got a different dictionary.
+ - Getting up every day and going through this again and again is hard.
+ - I will have you removed if you don’t stop. I have a little system of my own.
+ - There is no way that you can know the taste of water unless you drink it or unless it has rained on you or unless you jump in the river.
+ - I’m not very wise to many things.
+ - You see, you can send me to the penitentiary, it’s not a big thing. I’ve been there all my life anyway. What about your children? These are just a few, there is many, many more coming right at you.
+ - Why couldn’t we put on a defense? I had seventeen witnesses standing outside the door. They just dropped the defense and went on to the penalty phase. Like everything was cut and dry before it went off to martini land.
+
+98 quotes

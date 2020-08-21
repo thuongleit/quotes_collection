@@ -1,0 +1,34 @@
+ - The paradox of Reality is that no image is as compelling as the one which exists only in the mind’s eye.
+ - The mark of a true crush Is that you fall in love first And grope for reasons afterward.
+ - Evolution is fascinating to watch. To me it is the most interesting when one can observe the evolution of a single man.
+ - Mind and body are not to be taken lightly. Their connection is intimate and mysterious, and better mapped by poets than pornographers.
+ - Hair brings one’s self-image into focus; it is vanity’s proving ground. Hair is terribly personal, a tangle of mysterious prejudices.
+ - In a nation of celebrity worshipers, amid followers of the cult of personality, individual modesty becomes a heroic quality. I find heroism in the acceptance of anonymity, in the studied resistance to the normal American tropism toward the limelight.
+ - At Gatling-gun tempo word-perfect the first time out. the journalistic equivalent of a high-wire front somersault without a net.
+ - How is the newcomer to deal with Rome? What is one to make of this marble rubble, this milk of wolves, this blood of Caesars, this sunrise of Renaissance, this baroquery of blown stone, this warm hive of Italians, this antipasto of civilization?
+ - As a general rule, fans and idols should always be kept at arm’s length, the length of the arm to be proportionate to the degree of sheer idolatry involved. Don’t take a Beatle to lunch. Don’t wait up to see if the Easter Bunny is real. Just enjoy the egg hunt.
+ - The real trouble with the doctor image in America is that it has been grayed by the image of the doctor-as-businessman, the doctor-as-bureaucrat, the doctor-as-medical-robot, and the doctor-as-terrified-victim-of-malpractice-suits.
+ - I don’t believe man is woman’s natural enemy. Perhaps his lawyer is.
+ - When two people marry they become in the eyes of the law one person, and that one person is the husband.
+ - Americans ought to be the best-traveled, most cosmopolitan people on earth, not only because experience of the world is desirable in its own right, but because as a people acquires a great concentration of power, worldliness becomes a moral imperative.
+ - Between the two poles of whole-truth and half-truth is slung the chancy hammock in which we all rock.
+ - Letters are expectation packaged in an envelope.
+ - A handwritten, personal letter has become a genuine modern-day luxury, like a child’s pony ride.
+ - Tourists moved over the piazza like drugged insects on a painted plate...
+ - Rumor and gossip, like sound itself, appear to travel by wave-effect, sheer preposterosity being no barrier.
+ - This is what holidays, travels, vacations are about. It is not really rest or even leisure we chase. We strain to renew our capacity for wonder to shock ourselves into astonishment once again.
+ - Ireland is not at all a simple place, and in many ways it is spare and sad. It has no wealth, no power, no stability, no influence, no fashion, no size. Its only real arts are song and drama and poem. But Limerick alone has two thousand ruined castles and surely that many practicing poets.
+ - The notion that the great artist requires a great patron has been around since the Pharaohs. That the born patron also needs an artist to patronize is a less-studied phenomenon.
+ - Ballet’s image of perfection is fashioned amid a milieu of wracked bodies, fevered imaginations, Balkan intrigue and sulfurous hatreds where anything is likely, and dancers know it.
+ - Faithful horoscope-watching, practiced daily, provides just the sort of small but warm and infinitely reassuring fillip that gets matters off to a spirited start.
+ - Natural villains are hard to come by, what with all the shrinks and social-scientist types threatening to understand everybody into the ground...
+ - Good drama should sandpaper the mind.
+ - I reserve my greatest admiration for those who continue to struggle to embrace the whole impossible tangle of snakes that is our society; those who fight to identify and strengthen human connections, and defeat polarizing forces that strain to drive us apart.
+ - Rome’s riches are in too immediate juxtaposition. Under the lid of awful August heat, one moves dizzily from church to palace to fountain to ruin, a single fly at a banquet, not knowing where to light.
+ - Roughly speaking, the President of the United States knows what his job is. Constitution and custom spell it out, for him as well as for us. His wife has no such luck. The First Lady has no rules; rather each new woman must make her own.
+ - Californians tend to be outspoken. When the great migration began, the more timid people must have stayed home, and the bolder ones headed west.
+ - What troubles me is not that movie stars run for office, but that they find it easy to get elected. It should be difficult. It should be difficult for millionaires, too.
+ - Huge herds of vigorous, curious, open-eyed Americans freely roaming the world are, it seems to me, quite possibly a vital national resource today as at no other time in our history.
+ - The difficulty with becoming a patient is that as soon as you get horizontal, part of your being yearns, not for a doctor, but for a medicine man.
+
+32 quotes

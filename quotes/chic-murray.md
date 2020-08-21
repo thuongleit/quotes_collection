@@ -1,0 +1,29 @@
+ - The boat was so old; it must have been launched when Long John Silver had two legs and an egg on his shoulder.
+ - If something’s neither here nor there, where the hell is it?
+ - I first met my wife in the tunnel of love. She was digging it at the time.
+ - My father was a simple man; my mother was a simple woman; you see the result standing in front of you, a simpleton.
+ - She’s a classy girl though, at least all her tattoos are spelt right.
+ - A luxury meal was prairie sandwiches – two slices of bread with wide-open spaces between them.
+ - After I told my wife that black underwear turned me on, she didn’t wash my Y-fronts for a month.
+ - My mother was so house proud that when my father got up to sleepwalk she had the bed made by the time he got back.
+ - My wife went to a beauty parlor and got a mudpack; for two days she looked nice, then the mud fell off.
+ - My parents never understood me; they were Japanese.
+ - My father was from Aberdeen, and a more generous man you couldn’t wish to meet. I have a gold watch that belonged to him. He sold it to me on his deathbed. I wrote him a cheque for it, post dated of course.
+ - This friend of mine had a terrible upbringing. When his mother lifted him up to feed him, his father rented the pram out. Then, when they came into money later, his mother hired a woman to push the pram – and he’s been pushed for money ever since.
+ - I felt as out of place as a left-handed violinist in a crowded string section.
+ - We were so poor; the ultimate luxury in our house at the time was ashtrays without advertisements.
+ - I met this cowboy with a brown paper hat, paper waistcoat and paper trousers. He was wanted for rustling.
+ - A Scot is a man who keeps the Sabbath, and everything else he can lay his hands on.
+ - A neighbour put his budgerigar in the mincing machine and invented shredded tweet.
+ - There’s a new slimming course just out where they remove all your bones. Not only do you weigh less, but you also look so much more relaxed.
+ - The police stopped me when I was out in my car. They told me it was a spot check. I admitted to two pimples and a boil.
+ - I won’t say I was slow developer, but our teacher was quite pleased to have someone her own age in the class to talk to.
+ - I dreamt I was forced to eat 25lb of marshmallows. When I woke up, my pillow was missing.
+ - I was out walking the other evening. This fellow accosted me, and asked if that was the moon up there in the sky. I replied that I had no idea, as I was a stranger there myself.
+ - We’ve got stained glass windows in our house; it’s those damned pigeons.
+ - Kippers : fish that like a lot of sleep.
+ - I got up this morning. I like to get up in the morning; it gives me the rest of the day to myself. I crossed the landing and went down stairs. Mind you, if there had been no stairs, I wouldn’t even have attempted it.
+ - I was taking my dog out the other day and I met this chap who asked me where I was going. The dog is foaming at the mouth, so I explained that I was on my way to the vet to have it put down. He asked if it was mad, to which I replied that it wasn’t exactly pleased about it.
+ - It was a pretty posh place. They were so used to fur coats that two bears strolled in and ordered lunch and nobody even noticed.
+
+27 quotes

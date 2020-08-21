@@ -1,0 +1,105 @@
+ - Do not pray for easy lives. Pray to be stronger men! Do not pray for tasks equal to your powers. Prayer is not conquering God’s reluctance, but taking hold of God’s willingness.
+ - Nothing lies beyond the reach of prayer except that which lies outside the will of God.
+ - Tomb, thou shalt not hold Him longer; Death is strong, but Life is stronger; Stronger than the dark, the light; Stronger than the wrong, the right; Faith and Hope triumphant say Christ will rise on Easter Day.
+ - You must learn, you must let God teach you, that the only way to get rid of your past is to make a future out of it. God will waste nothing.
+ - Bear with the faults of others as you would have them bear with yours.
+ - Let every man and woman count himself immortal. Let him catch the revelation of Jesus in his resurrection. Let him say not merely, “Christ is risen,” but “I shall rise.”
+ - Character may be manifested in the great moments, but it is made in the small ones.
+ - I do not pray for a lighter load, but for a stronger back.
+ - Pray for powers equal to your tasks.
+ - The trouble is that I’m in a hurry, but God isn’t.
+ - Do not dare to live without some clear intention toward which your living shall be bent. Mean to be something with all your might.
+ - Christ is the Word of God. It is not in certain texts written in the New Testament, valuable as they are; it is not in certain words which Jesus spoke, vast as is their preciousness; it is in the Word, which Jesus is, that the great manifestation of God is made.
+ - Stand up, on this Thanksgiving Day, stand upon your feet. Believe in man. Soberly and with clear eyes, believe in your own time and place. There is not, and there never has been a better time, or a better place to live in.
+ - The truest help we can render an afflicted man is not to take his burden from him, but to call out his best energy, that he may be able to bear the burden.
+ - Preaching is truth through personality.
+ - Life is too short to nurse one’s misery. Hurry across the lowlands so that you may spend more time on the mountain tops.
+ - Think of life as a voyage. The truest liver of the truest life is like a voyager who, as he sails, is not indifferent to all the beauty of the sea around him.
+ - Be courageous. Be independent. Only remember where the true courage and independence come from.
+ - Faith says not, ‘I see that it is good for me, so God must have sent it,’ but, ‘God sent it, and so it must be good for me.’ Faith, walking in the dark with God, only prays Him to clasp its hand more closely.
+ - We may say that on the first Good Friday afternoon was completed that great act by which light conquered darkness and goodness conquered sin. That is the wonder of our Saviour’s crucifixion.
+ - While mortals sleep, the angels keep their watch of wondering love.
+ - Anger is self-immolation.
+ - The best advisers, helpers and friends, always are not those who tell us how to act in special cases, but who give us, out of themselves, the ardent spirit and desire to act right, and leave us then, even through many blunders, to find out what our own form of right action is.
+ - Set yourself earnestly to see what you are made to do, and then set yourself earnestly to do it.
+ - We are haunted by an ideal life, and it is because we have within us the beginning and the possibility of it.
+ - Go and try to save a soul, and you will see how well it is worth saving, how capable it is of the most complete salvation. Not by pondering about it, nor by talking of it, but by saving it, you learn its preciousness.
+ - Obedience completes itself in understanding.
+ - The man, who has begun to live more seriously within, begins to live more simply without.
+ - Only the soul that with an overwhelming impulse and a perfect trust gives itself up forever to the life of other men, finds the delight and peace which such complete self-surrender has to give.
+ - There are two ways of defending a castle; one by shutting yourself up in it, and guarding every loop-hole; the other by making it an open centre of operations from which all the surrounding country may be subdued. Is not the last the truest safety?
+ - There is such a difference between coming out of sorrow merely thankful for belief, and coming out of sorrow full of sympathy with, and trust in, Him who has released us.
+ - For the Christ-child who comes is the Master of all; No palace too great, no cottage too small.
+ - To whatever world He carries our souls when they shall pass out of these imprisoning bodies, in those worlds these souls of ours shall find themselves part of the same great temple; for it belongs not to this earth alone.
+ - Very strange is this quality of our human nature which decrees that unless we feel a future before us we do not live completely in the present.
+ - O, do not pray for easy lives...
+ - To say ’well done’to any bit of good work is to take hold of the powers which have made the effort and strengthen them beyond our knowledge.
+ - The earth has grown old with its burden of care, but at Christmas it always is young.
+ - Where charity stands watching and faith holds wide the door the dark night wakes – the glory breaks, Christmas comes once more.
+ - You may look through the streets of heaven, asking each how they came to b there, and you will look in vain everywhere for a person who is morally and spiritually strong, whose strength did not come to him in struggle. There is no exception anywhere. Every true strength is gained in struggle.
+ - Pray the largest prayers. You cannot think a prayer so large that God, in answering it, will not wish you had made it larger. Pray not for crutches but for wings.
+ - Those who help a child help humanity with an immediateness which no other help given to human creature in any other stage of human life can possibly give again.
+ - Feed on Christ, and then go and live your life, and it is Christ in you that lives your life, that helps the poor, that tells the truth, that fights the battle, and that wins the crown.
+ - It is not pride when the beech-tree refuses to copy the oak. The only chance of any healthy life for it is to be as full a beech-tree as it can be.
+ - How silently, how silently The wonderous gift is given! So God imparts to human hearts The blessings of his heaven. No ear may hear his coming, But in this world of sin, Where meek souls will receive him still, The dear Christ enters in.
+ - Christmas day is a day of joy and charity. May God make you very rich in both.
+ - Society does not exist for itself, but for the individual; and man goes into it, not to lose, but to find himself.
+ - The solution to sin is not to impose an ever-stricter code of behavior. It is to know God.
+ - Self-confidence is either a petty pride in our own narrowness, or the realization of our duty and privilege as God’s children.
+ - We never become truly spiritual by sitting down and wishing to become so. You must undertake something so great that you cannot accomplish it unaided.
+ - Greatness is not so much a certain size as a certain quality in your life.
+ - The ideal life is in our blood and never will be still.
+ - It is God’s world still. It has been given to man not absolutely, but in trust, that man may work out in it the will of God; given-may we not say?-just as a father gives a child a corner of his great garden, and says, “There, that is yours; now cultivate it.”
+ - To believe in the God over us and around us and not in the God within us – that would be a powerless and fruitless faith.
+ - Wherever souls are being tried and ripened, in whatever commonplace and homely way, there God is hewing out the pillars for His temple.
+ - Character cannot be made except by a steady, long-continued process.
+ - Christ will rise on Easter day!
+ - The place where two friends first met is sacred to them all through their friendship, all the more sacred as their friendship deepens and grows old.
+ - No one who has come to true greatness has not felt in some degree that his life belongs to the people, and what God has given them he gives it for mankind.
+ - We do not want to lose our grief, because our grief is bound up with our love and we could not cease to mourn without being robbed of our affections.
+ - It never frightened a Puritan when you bade him stand still and listen to the speech of God. His closet and his church were full of the reverberations of the awful, gracious, beautiful voice for which he listened.
+ - Greatness after all, in spite of its name, appears to be not so much a certain size as a certain quality in human lives. It may be present in lives whose range is very small.
+ - Never fear to bring the sublimest motive to the smallest duty, and the most infinite comfort to the smallest trouble.
+ - The Saviour comes in the strength of righteousness. Righteousness is at the bottom of all things. Righteousness is thorough; it is the very spirit of unsparing truth.
+ - Wherever, in any world, a soul, by free-willed obedience, catches the fire of God’s likeness, it is set into the growing walls, a living stone.
+ - So shall we join the disciples of our Lord, keeping faith in Him in spite of the crucifixion, and making ready, by our loyalty to Him in the days of His darkness, for the time when we shall enter into His triumph in the days of His light.
+ - Joy in one’s work is the consummate tool.
+ - The glory of the star, the glory of the sun – we must not lose either in the other. We must not be so full of the hope of heaven that we cannot do our work on the earth; we must not be so lost in the work of the earth that we shall not be inspired by the hope of heaven.
+ - Much as we deplore our condition in life, nothing would make us more satisfied with it than the changing of places, for a few days, with our neighbors.
+ - Never be afraid to bring the transcendent mysteries of our faith, Christ’s life and death and resurrection, to the help of the humblest and commonest of human wants.
+ - No one ever fell under the burden of the day; it is only when the burden of tomorrow is added that the load becomes unbearable.
+ - There is no life so humble that, if it be true and genuinely human and obedient to God, it may not hope to shed some of His light. There is no life so meager that the greatest and wisest of us can afford to despise it. We cannot know at what moment it may flash forth with the life of God.
+ - Death is strong, but Life is stronger...
+ - It is good for us to think that no grace or blessing is truly ours till we are aware that God has blessed some one else with it through us.
+ - It is almost as presumptuous to think you can do nothing as to think you can do everything.
+ - Every sermon must have a solid rest in Scripture, and the pointedness which comes of a clear subject, and the conviction which belongs to well-thought argument, and the warmth that proceeds from earnest appeal.
+ - If man is man and God is God, to live without prayer is not merely an awful thing: it is an infinitely foolish thing.
+ - Pray for and work for fullness of life above every thing; full red blood in the body; full honesty and truth in the mind; and the fullness of a grateful love for the Saviour in your heart.
+ - We anticipate a time when the love of truth shall have come up to our love of liberty, and men shall be cordially tolerant and earnest believers both at once.
+ - Christianity knows no truth which is not the child of love and the parent of duty.
+ - The man who goes through life with an uncertain doctrine not knowing what he believes, what a poor, powerless creature he is! He goes around through the world as a man goes down through the street with a poor, wounded arm, forever dodging people be meets on the street for fear they may touch him.
+ - Heaven is not to sweep our truths away, but only to turn them till we see their glory, to open them till we see their truth, and to unveil our eyes till for the first time we shall really see them.
+ - No man ever yet thought whether he was preaching well without weakening his sermon.
+ - Everywhere the flower of obedience is intelligence. Obey a man with cordial loyalty and you will understand him.
+ - Heaven does not make holiness, but holiness makes heaven.
+ - The lives of men who have been always growing are strewed along their whole course with the things they have learned to do without.
+ - There is a necessary limit to our achievement, but none to our attempt.
+ - Be such a man, and live such a life, that if every man were such as you, and every life a life like yours, this earth would be God’s Paradise.
+ - The more man becomes irradiated with the Divinity of Christ, the more, not the less, truly he is man.
+ - The form of godliness may exist with secret and with open wickedness, but the power of godliness cannot.
+ - Call your opinions your creed, and you will change them every week.
+ - Genius, by its very intensity, decrees a special path of fire for its vivid power.
+ - The faith which you keep must be a faith that demands obedience, and you can keep it only by obeying it.
+ - There are passages of the Bible that are soiled forever by the touches of the hands of ministers who delight in the cheap jokes they have left behind them.
+ - If we could sweep intemperance out of the country, there would be hardly poverty enough left to.
+ - Everything keeps its best nature only by being put to its best use.
+ - Get the pattern of your life from God, then go about your work and be yourself.
+ - Let us beware of losing our enthusiasms. Let us ever glory in something, and strive to retain our admiration for all that would ennoble, and our interest in all that would enrich and beautify our life.
+ - The absence of sentimentalism in Christ’s relations with men is what makes His tenderness so exquisitely touching.
+ - He who thinks that he is being released from the work, and not set free in order that he may accomplish that work, mistakes the Christ from whom the freedom comes, mistakes the condition into which his soul is invited.
+ - Call your opinions your creed, and you will change them every week. Make your creed simply and broadly out of the revelation of God, and you will keep it to the end.
+ - When you discover you’ve been leading only half a life, the other half is going to haunt you until you develop it.
+ - To find his place and fill it is success for a man.
+ - Devotion is like the candle which Michael Angelo used to take in his pasteboard cap, so as not to throw his shadow upon the work in which he was engaged.
+
+103 quotes

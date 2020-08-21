@@ -1,0 +1,57 @@
+ - If you want peace, work for justice.
+ - Somebody should tell us, right at the start of our lives, that we are dying. Then we might live life to the limit, every minute of every day. Do it! I say. Whatever you want to do, do it now! There are only so many tomorrows.
+ - All life demands struggle. Those who have everything given to them become lazy, selfish, and insensitive to the real values of life. The very striving and hard work that we so constantly try to avoid is the major building block in the person we are today.
+ - Never reach out your hand unless you’re willing to extend an arm.
+ - No more war, war never again! Peace, it is peace which must guide the destinies of people and of all mankind.
+ - No more war! Never again war! If you wish to be brothers, drop your weapons.
+ - The international trading system was devised by the rich to suit their needs; it ignores those of the poor.
+ - Jesus in the Blessed Sacrament is the Living Heart of each of our parishes.
+ - The Mass is the most perfect form of prayer.
+ - A dimple on the chin, the devil within.
+ - Every mother is like Moses. She does not enter the promised land. She prepares a world she will not see.
+ - Of all human activities, man’s listening to God is the supreme act of his reasoning and will.
+ - The work of art, just like any fragment of human life considered in its deepest meaning, seems to me devoid of value if it does not offer the hardness, the rigidity, the regularity, the luster on every interior and exterior facet, of the crystal.
+ - This pious practice, by which the Blessed Virgin Mary is honored and the Christian people enriched with spiritual gifts, gladdens and consoles us. Mary remains ever the path that leads to Christ. Every encounter with her can only result in an encounter with Christ himself.
+ - In youth the days are short and the years are long. In old age the years are short and day’s long.
+ - Excessive economic, social and cultural inequalities among peoples arouse tensions and conflicts, and are a danger to peace.
+ - Are there memories left that are safe from the clutches of phony anniversaries?
+ - This world in which we live needs beauty in order not to sink into despair. It is beauty, like truth, which brings joy to the heart of man and is that precious fruit which resists the year and tear of time, which unites generations and makes them share things in admiration.
+ - We see in these swift and skillful travelers a symbol of our life, which seeks to be a pilgrimage and a passage on this earth for the way of heaven.
+ - For peace is not simply the absence of warfare, based on a precarious balance of power; it is fashioned by efforts directed day after day toward the establishment of the ordered universe willed by God, with a more perfect form of justice among men.
+ - Through some crack the smoke of satan has entered into the Church of God.
+ - I met a hundred men going to Delhi and everyone is my brother.
+ - Anger is as a stone cast into a wasp’s nest.
+ - Justice is not always an open and shut case – sometimes we have to work for it. If you want peace, you must work for justice.
+ - Physics does not change the nature of the world it studies, and no science of behavior can change the essential nature of man, even though both sciences yield technologies with a vast power to manipulate the subject matters.
+ - The hungry nations of the world cry out to the peoples blessed with abundance. And the Church, cut to the quick by this cry, asks each and every man to hear his brother’s plea and answer it lovingly.
+ - Satan’s smoke has made its way into the Temple of God through some crack.
+ - Lord, to whom should we go? Thy words are the words of eternal life.
+ - We consider Christmas as the encounter, the great encounter, the historical encounter, the decisive encounter, between God and mankind. He who has faith knows this truly; let him rejoice.
+ - True humanism points the way toward God and acknowledges the task to which we are called, the task which offers us the real meaning of human life. Man is not the ultimate measure of man. Man becomes truly man only by passing beyond himself.
+ - Technological society has succeeded in multiplying the opportunities for pleasure, but it has great difficulty in generating joy.
+ - We must see to it that enthusiasm for the future does not give rise to contempt for the past.
+ - The freedom or immunity from coercion in matters religious, which is the endowment of persons as individuals, is also to be recognized as their right when they act in community. Religious communities are a requirement of the social nature both of man and of religion itself.
+ - If evils increase, the devotion of the People of God should also increase.
+ - Liturgy is like a strong tree whose beauty is derived from the continuous renewal of its leaves, but whose strength comes from the old trunk, with solid roots in the ground.
+ - Christ did not found an abstract religion, a mere school of religious thought. He setup a community of apostles, of teachers, with the task of spreading His message and so giving rise to a society of believers: His Church. He promised the Spirit of truth to His Church and then sent Him.
+ - Individual initiative alone and the mere free play of competition could never assure successful development. One must avoid the risk of increasing still more the wealth of the rich and the dominion of the strong, whilst leaving the poor in their misery and adding to the servitude of the oppressed.
+ - No member of the faithful could possibly deny that the Church is competent in her magisterium to interpret the natural moral law.
+ - The older the fiddler, the sweeter the tune.
+ - Never give advice in a crowd.
+ - Idleness or boredom has no place in the life of a Christian.
+ - The Eucharistic mystery stands at the heart and center of the liturgy since it is the fount of life by which we are cleansed and strengthened to live not for ourselves but for God and to be united in love among ourselves.
+ - Two conditions render difficult this historic situation of mankind: It is full of tremendously deadly armament, and it has not progressed morally as much as it has scientifically and technically.
+ - Twenty-two martyrs were recognized, but there were many more, and not only Catholics. There were also Anglicans and some Mohammedans.
+ - Having rationally endeavored to control nature, is he not now becoming the slave of the objects which he makes?
+ - We would also like you to know that the Church recognizes the riches of the Islamic faith – a faith that binds us to the one God.
+ - The important role of union organizations must be admitted: their object is the representation of the various categories of workers, their lawful collaboration in the economic advance of society, and the development of the sense of their responsibility for the realization of the common good.
+ - The transmission of human life is a most serious role in which married people collaborate freely and responsibly with God the Creator.
+ - The pope is becoming a missionary, you will say. Yes, the pope is becoming a missionary, which means a witness, a shepherd, an apostle on the move.
+ - You must strive to multiply bread so that it suffices for the tables of mankind, and not rather favor an artificial control of birth, which would be irrational, in order to diminish the number of guests at the banquet of life.
+ - It is called the real presence, not in an exclusive sense, as though other forms of presence were not real, but by reason of its excellence. It is the substantial presence by which Christ is made present without doubt, whole and entire, God and man.
+ - Failing to be there when a man wants her is a woman’s greatest sin, except to be there when he doesn’t want her.
+ - If you believe in peace it is possible. If it is possible it is a duty.
+ - The pope-and we know this well-is without doubt the most serious obstacle on the ecumenical road.
+ - Peace is not simply the absence of warfare.
+
+55 quotes

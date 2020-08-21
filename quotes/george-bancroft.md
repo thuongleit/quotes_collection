@@ -1,0 +1,26 @@
+ - Where the people possess no authority, their rights obtain no respect.
+ - Conscience is the mirror of our souls, which represents the errors of our lives in their full shape.
+ - The exact measure of the progress of civilization is the degree in which the intelligence of the common mind has prevailed over wealth and brute force.
+ - Beauty is but the sensible image of the infinite. Like truth and justice, it lives within us; like virtue and the moral law, it is a companion of the soul.
+ - Libraries collect the works of genius of every language and every age.
+ - The fears of one class of men are not the measure of the rights of another.
+ - I find the name of Jesus Christ written on the top of every page of modern history.
+ - The measure of progress of civilization is the progress of the people.
+ - Truth is not exciting enough to those who depend on the characters and lives of their neighbors for all their amusement; and if a story is told of more than common interest, ennui is sure to have its joy in adding embellishments. If hours did not hang heavy, what would become of scandal?
+ - The friendship between me and you I will not compare to a chain; for that the rains might rust, or the falling tree might break.
+ - By common consent, gray hairs are a crown of glory: the only object of respect that can never excite envy.
+ - Avarice is the vice of declining years.
+ - The public is wiser than the wisest critic.
+ - Ennui is the desire of activity without the fit means of gratifying the desire.
+ - Style is the gossamer on which the seeds of truth float through the world.
+ - Sedition is bred in the lap of luxury and its chosen emissaries are the beggared spendthrift and the impoverished libertine.
+ - The best government rests on the people, and not on the few, on persons and not on property, on the free development of public opinion and not on authority.
+ - The charities of life are scattered everywhere, enameling the vales of human beings as the flowers paint the meadows. They are not the fruit of study, nor the privilege of refinement, but a natural instinct.
+ - Institutions may crumble and governments fall, but it is only that they may renew a better youth, and mount upwards like the eagle.
+ - Dishonesty is so grasping it would deceive God himself, were it possible.
+ - If reason is a universal faculty, the decision of the common mind is the nearest criterion of truth.
+ - In 1688 England contracted to the Netherlands the highest debt that one nation can owe to another. Herself not knowing how to recover her liberties, they were restored by men of the United Provinces.
+ - If hours did not hang heavy, what would become of scandal?
+ - Not in vain has Lincoln lived, for he has helped to make this republic an example of justice, with no caste but the caste of humanity.
+
+24 quotes

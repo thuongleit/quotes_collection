@@ -1,0 +1,42 @@
+ - Happiness is not a noun or a verb. It’s a conjunction. Connective tissue.
+ - We can’t love a place or a person if we always have one foot out the door.
+ - A confused mind is one that is open to the possibility of change.
+ - Joseph Campbell, who when asked what spiritual practice he followed said, “I underline books.” Me too.
+ - If you walk into a coffee shop in 1903 Vienna, you might find at the same table the artist Gustav Klimt, Sigmund Freud, Leon Trotsky and possibly Adolf Hitler, who lived in Vienna at the same time.
+ - Money matters but less than we think and not in the way that we think. Family is important. So are friends. Envy is toxic. So is excessive thinking. Beaches are optional. Trust is not. Neither is gratitude.
+ - I’ve always believed that happiness is just around the corner. The trick is fining the right corner.
+ - Haydn, Beethoven, Mozart, none of them were born in Vienna. They all moved there. It became a magnet, but what made it magnetized in the first place? There has to be a seed there. In the case of Vienna of about 1780, it was this deep-seated love of music.
+ - Perhaps it’s true you can’t go back in time, but you can return to the scene of a love, of a crime, of happiness, and of a fateful decision; the places are what remain, are what you can possess, are what is immortal.
+ - Some places are like family. They annoy us to no end, especially during the holidays, but we keep coming back for more because we know, deep in our hearts, that our destinies are intertwined.
+ - Psychologists call it “defocused attention,” where you broaden your horizons, let your mind float and drift a bit. Coffee keeps us sharp and alert. It’s great if you’re driving at 3 o’clock in the morning. It’s not so great if you’re trying to come up with the next violin concerto.
+ - Someone like Mozart moves from Salzburg to Vienna, where all of the sudden he finds this musical city that is not only asking for music, it’s demanding music of him.
+ - You look around the world at geniuses, and they don’t appear randomly, they appear in genius clusters. Athens in 50 BC, Florence 1500, Silicon Valley today. This is not a coincidence.
+ - It’s not what we believe that makes us happy but the act of believing. In anything.
+ - For me, a place unvisited is like an unrequited love. A dull ache that- try as you might to think it away, to convince yourself that she really wasn’t the right country for you- just won’t leave you in peace.
+ - Part of positive psychology is about being positive, but sometimes laughter and clowns are not appropriate. Some people don’t want to be happy, and that’s okay. They want meaningful lives, and those are not always the same as happy lives.
+ - There’s no one on the island telling them they’re not good enough, so they just go ahead and sing and paint and write.
+ - When you drink coffee, you become very focused, and in fact, the key to creative genius is to be defocused.
+ - Until the eighteenth century, people believed that biblical paradise, the Garden of Eden, was a real place. It appeared on maps – located, ironically, at the confluence of the Tigris and Euphrates rivers, in what is now modern-day Iraq.
+ - People don’t go to Starbucks for the coffee – of that I’m pretty sure – they go for the atmosphere, they go for the 70 decibels, they go for the Starbucks effect.
+ - I’ve spent most of my life trying to think my way to happiness, and my failure to achieve that goal only proves, in my mind, that I am not a good enough thinker. It never occurred to me that the source of my unhappiness is not flawed thinking but thinking itself.
+ - I’ve always been a big believer in the power of place. I believe that where we are affects who we are when it comes to happiness, spirituality, economics and creative genius.
+ - The coffeehouse is good for genius, and the Viennese coffeehouse is a classic case. Freud had his favorite coffee shop, and so did Gustav Klimt.
+ - Normally, we think of the religious as people who care more, not less than the rest of us. This is not true, not exactly. The truly religious care more deeply about fewer things and do’t give a hoot about the rest.
+ - God is not an exclamation point. He is, at his best, a semicolon, connecting people, and generating what Aldous Huxley called “human grace.” Somewhere along the way, we’ve lost sight of this.
+ - When you’re stuck on something creatively, you can’t solve a problem, you go to a coffee shop.
+ - Our happiness is completely and utterly intertwined with other people: family and friends and neighbors and the woman you hardly notice who cleans your office. Happiness is not a noun or verb. It’s a conjunction. Connective tissue.
+ - I’m interested in genius the way a hungry man is interested in Philadelphia cheesesteaks. I want something. I want a piece of it.
+ - We help other people because we can, or because it makes us feel good, not because we’re counting on some future payback. There is a word for this; love.
+ - I would love to think there is a direct relationship between coffee and genius, but they’ve done studies, and if anything, caffeine probably makes you a little less creative.
+ - A mystery is not a puzzle waiting to be solved, but rather something for which there is no human solution. Mystery’s offspring is not frustration but awe, and that sense of awe grows in tandem with knowledge.
+ - We are shaped not only by our current geography but by our ancestral one as well. Americans, for instance, retain a frontier spirit even though the only frontier that remains is that vast open space between the SUV and strip mall. We are our past.
+ - You need some reason why Beethoven, Mozart and Haydn in the 18th century all flocked to Vienna. What was it about Vienna? They must have known on some level that that is where they would flourish. It’s what biologists call “selective migration.”
+ - Genius is not only a what or a who, it is a where. It is grounded in a place every single time.
+ - A Mozart symphony is very much like a Pixar movie – in the sense that Pixar movies are hugely successful because they operate on several levels at the same time.
+ - Believing in everything looks a lot like believing in nothing.
+ - Compromise is a skill, and like all skills it atrophies from lack of use.
+ - Don’t forget that Mozart worked on commission. He almost always would write something if he knew exactly who was paying for it and where it would be performed. So you can’t really separate the creation of genius from the appreciation of it.
+ - What is the ideal audio atmosphere for creativity and it turns out it is not complete silence, and it is not a very loud atmosphere, it’s something about 70 decibels.
+ - I think we should have more coffeehouses, more cafes, more “third places.” More places where people can get together that’s not work, not home, and where they can interact with people who are different from them.
+
+40 quotes

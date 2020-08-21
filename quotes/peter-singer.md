@@ -1,0 +1,133 @@
+ - There is a growing movement called effective altruism. It’s important because it combines both the heart and the head.
+ - Pain is pain, and the importance of preventing unnecessary pain and suffering does not diminish because the being that suffers is not a member of our own species.
+ - We are, quite literally, gambling with the future of our planet- for the sake of hamburgers.
+ - Christianity is our foe. If animal rights is to succeed, we must destroy the Judeo-Christian religious tradition.
+ - If possessing a higher degree of intelligence does not entitle one human to use another for his or her own ends, how can it entitle humans to exploit non-humans?
+ - If it is in our power to prevent something bad from happening, without thereby sacrificing anything of comparable moral importance, we ought, morally, to do it.
+ - Scholars have long dreamed of a universal library containing everything that has ever been written.
+ - Personal purity isn’t really the issue. Not supporting animal abuse – and persuading others not to support it – is.
+ - I am not saying that factory farming is the same as the Holocaust or the slave trade, but it’s clear that there is an immense amount of suffering in it, and just as we think that the Nazis were wrong to ignore the suffering of their victims, so we are wrong to ignore the sufferings of our victims.
+ - What one generation finds ridiculous, the next accepts; and the third shudders when it looks back on what the first did.
+ - To be a utilitarian means that you judge actions as right or wrong in accordance with whether they have good consequences. So you try to do what will have the best consequences for all of those affected.
+ - Do business managers have a commitment to anything more than the success of their company and to making money? It would be hard to say that they do. Indeed, many business leaders deny that there is any conflict between self-interest and the interests of all.
+ - To give preference to the life of a being simply because that being is a member of our species would put us in the same position as racists who give preference to those who are members of their race.
+ - Of all the arguments against voluntary euthanasia, the most influential is the slippery slope: once we allow doctors to kill patients, we will not be able to limit the killing to those who want to die.
+ - The notion that human life is sacred just because it is human life is medieval.
+ - Remember that not everyone is as strong as you are. Be mindful of human weakness, and of the fact that it may be more important, in the long run, to get many people taking steps in the right direction than to have fewer achieving the ideal.
+ - We wait until Pandora’s box is opened before we say, “Wow, maybe we should understand what’s in that box.” This is the story of humans on every problem.
+ - All the arguments to prove man’s superiority cannot shatter this hard fact: in suffering the animals are our equals.
+ - More often there’s a compromise between ethics and expediency.
+ - Animal factories are one more sign of the extent to which our technological capacities have advanced faster than our ethics.
+ - So why don’t we make ourselves the last generation on earth? If we would all agree to have ourselves sterilized then no sacrifices would be required – we could party our way into extinction!
+ - Those who purchase meat, fur, and leather have no right to be shielded from the sights and sounds of the slaughterhouses from which these products were produced.
+ - By ceasing to rear and kill animals for food, we can make so much extra food available for humans that, properly distributed, it would eliminate starvation and malnutrition from this planet. Animal Liberation is Human Liberation too.
+ - Ethics seems a morass which we have to cross, but get hopelessly bogged in when we make the attempt.
+ - Hebrew word for “charity” tzedakah, simply means “justice” and as this suggests, for Jews, giving to the poor is no optional extra but an essential part of living a just life.
+ - The principles of ethics come from our own nature as social, reasoning beings.
+ - Cheats prosper until there are enough who bear grudges against them to make sure they do not prosper.
+ - If penicillin had been judged by its toxicity to guinea pigs, it might never have been used by man.
+ - Extreme poverty is not only a condition of unsatisfied material needs. It is often accompanied by a degrading state of powerlessness.
+ - Beginning to reason is like stepping onto an escalator that leads upward and out of sight. Once we take the first step, the distance to be traveled is independent of our will and we cannot know in advance where we shall end.
+ - Evolution has no moral direction. An evolutionary understanding of human nature can explain the differing intuitions we have when we are faced with an individual rather than with a mass of people, or with people close to us rather than with those far away, but it does not justify those feelings.
+ - Can we really believe that we are living a good life, an ethically decent life if we don’t do anything serious to help reduce poverty around the world and help save the lives of children or adults who are likely to die if we don’t increase the amount of aid we are giving.
+ - Becoming a vegan is a sure way of completely avoiding participation in the abuse of farmed animals. Vegans are a living demonstration of the fact that we do not need to exploit animals for food.
+ - Were we incapable of empathy – of putting ourselves in the position of others and seeing that their suffering is like our own – then ethical reasoning would lead nowhere. If emotion without reason is blind, then reason without emotion is impotent.
+ - Dolphins are social mammals, capable of enjoying their lives. They form close bonds with other members of their group.
+ - When fish experience something that would cause other animals physical pain, they behave in ways suggestive of pain, and the change in behaviour may last several hours.
+ - That’s a central part of philosophy, of ethics. What do I owe to strangers? What do I owe to my family? What is it to live a good life? Those are questions which we face as individuals.
+ - To turn the other cheek is to teach would-be cheats that cheating pays.
+ - Philosophy ought to question the basic assumptions of the age. Thinking through, critically and carefully, what most of us take for granted is, I believe, the chief task of philosophy, and the task that makes philosophy a worthwhile activity.
+ - My work is based on the assumption that clarity and consistency in our moral thinking is likely, in the long run, to lead us to hold better views on ethical issues.
+ - Philosophy is not politics, and we do our best, within our all-too-human limitations, to seek the truth, not to score points against opponents. There is little satisfaction in gaining an easy triumph over a weak opponent while ignoring better arguments against your views.
+ - There are a lot of weapons that we’ve developed which we’ve pulled back from – biological weapons, chemical weapons, etc. This may be the case with armed autonomous robotics, where we ultimately pull back from them.
+ - Human beings are social animals. We were social before we were human.
+ - The Internet, like the steam engine, is a technological breakthrough that changed the world.
+ - The traditional view of the sanctity of human life will collapse under pressure from scientific, technological and demographic developments.
+ - If we can put a man on the moon and sequence the human genome, we should be able to devise something close to a universal digital public library.
+ - According to the Dominant Western tradition, the natural world exists for the benefit of human beings...
+ - Human decision-making is complex. On our own, our tendency to yield to short-term temptations, and even to addictions, may be too strong for our rational, long-term planning.
+ - I’m a Utilitarian, so I don’t see the rule against lying as absolute; it’s always subject to some overriding utility which may prevent its exercise.
+ - Marx saw that capitalism is a wasteful, irrational system, a system which controls us when we should be controlling it. That insight is still valid; but we can now see that the construction of a free and equal society is a more difficult task than Marx realized.
+ - Killing a defective infant is not morally equivalent to killing a person. Sometimes it is not wrong at all.
+ - Knowing that we can control our own behaviour makes it more likely that we will.
+ - If we are concerned about the exploitation of human workers in countries with low standards of worker protection, we should also be concerned about the treatment of even more defenceless non-human animals.
+ - We should give the same respect to the lives of animals as we do to the lives of humans.
+ - We have a new generation of very rich people who want to do more with their money than buy a lot of expensive toys. They want to live meaningful lives.
+ - I don’t understand the notion that modern farming is anything do to with nature. It’s a pretty gross interference with nature.
+ - It is a mistake to assume that the law should always enforce morality.
+ - The prescription of the equality of human beings is not a description of an alleged actual equality among humans: it is a prescription of how we should treat human beings.
+ - Surely there will be some nonhuman animals whose lives, by any standards, are more valuable than the lives of some humans.
+ - We may feel the pain of falling back from a level of affluence to which we have grown accustomed, but most people in developed countries are still, by historical standards, extraordinarily well off.
+ - If governments did not mislead their citizens so often, there would be less need for secrecy, and if leaders knew they could not rely on keeping the public in the dark about what they are doing, they would have a powerful incentive to behave better.
+ - Every profession will have its rogues, of course, no matter what oaths are sworn, but many health care professionals have a real commitment to serving the best interests of their clients.
+ - It’s also much clearer how much damage the occupation of Iraq is doing to America’s reputation and prestige around the world; and that’s just starting now to hit home in the United States.
+ - We are not especially ‘interested in’ animals. Neither of us had ever been inordinately fond of dogs, cats, or horses in the way that many people are. We didn’t ‘love’ animals.
+ - Business ethics has always had problems that are distinct from those of other professions, such as medicine, law, engineering, dentistry, or nursing.
+ - There is no humane slaughter requirement for wild fish caught and killed at sea, nor, in most places, for farmed fish.
+ - If we all think only of our own interests, we are headed for collective disaster – just look at what we are doing to our planet’s climate.
+ - Of those who die from avoidable, poverty-related causes, nearly 10 million, according to UNICEF, are children under five. They die from diseases such as measles, diarrhoea, and malaria that are easy and inexpensive to treat or prevent.
+ - Torturing a human being is almost always wrong, but it is not absolutely wrong.
+ - At the descriptive level, certainly, you would expect different cultures to develop different sorts of ethics and obviously they have; that doesn’t mean that you can’t think of overarching ethical principles you would want people to follow in all kinds of places.
+ - If you’re buying animal products and can go to the farm and actually see how the animals are looked after, yes, that’s an important point. That’s definitely the best way of assuring yourself that the animals are being well treated.
+ - History is not going to look kindly on us if we just keep our head in the sand on armed autonomous robotics issue because it sounds too science fiction.
+ - I do not believe that it could never be justifiable to experiment on a brain-damaged human.
+ - People may hope that the meat they buy came from an animal who died without pain, but they do not really want to know about it. Yet those who, by their purchases, require animals to be killed do not deserve to be shielded from this or any other aspect of the production of the meat they buy.
+ - But I think the majority of cows, and even more so chickens and pigs, are leading pretty miserable lives.
+ - I don’t think there’s anything in the compromise that means that there’s a clash of ethics.
+ - Interest in business ethics courses has surged, and student activities at leading business schools are more focused than ever before on making business serve long-term social values.
+ - Sci-fi is often a metaphor. I think it’s more the themes and questions that science fiction raises rather than the exact predictions that should guide us.
+ - The future of the world depends on how well we meet it.
+ - I don’t think there’s much point in bemoaning the state of the world unless there’s some way you can think of to improve it. Otherwise, don’t bother writing a book; go and find a tropical island and lie in the sun.
+ - If we ever do find a better system, I’ll be happy to call myself an anti-capitalist.
+ - The idea that we can actually have an impact on places more or less instantly, too, by responding in some way or not responding, I think, also makes it true.
+ - In my world of the people who study war and defense issues, we simply did not talk about robotics. We do not talk about it because it’s seen as mere science fiction. It’s cold, hard, metallic reality.
+ - I believe that nationalism is a very strong force, but there are other forces operating; there are tendencies pushing towards a larger picture, especially in Europe, I think; but I still think nationalism is real.
+ - What is faith? If you believe something because you have evidence for it, or rational argument, that is not faith. So faith seems to be believing something despite the absence of evidence or rational argument for it.
+ - Science does not stand still, and neither does philosophy, although the latter has a tendency to walk in circles.
+ - The problem is not with the athletes, but with us. No matter how blatant the drug use may be, we don’t stop watching the Tour de France. Maybe we should just turn off the television and get on our own bikes.
+ - It is easy for us to criticize the prejudices of our grandfathers, from which our fathers freed themselves. It is more difficult to distance ourselves from our own views, so that we can dispassionately search for prejudices among the beliefs and values we hold.
+ - As we realize that more and more things have global impact, I think we’re going to get people increasingly wanting to get away from a purely national interest.
+ - Will we rise to the challenge and prove our capacity for genuine altruism by ending our ruthless exploitation of the species in our power, not because we are forced to do so by rebels or terrorists, but because we recognize that our position is morally indefensible?
+ - Probability is the guide of life, and of death, too.
+ - Forests and meat animals compete for the same land. The prodigious appetite of the affluent nations for meat means that agribusiness can pay more than those who want to preserve or restore the forest. We are, quite literally, gambling with the future of our planet – for the sake of hamburgers.
+ - Well the real concept of basic needs if you cut it right down are simply the physical needs that are unavoidable for all of us. So to have enough calories to keep our bodies going. Have shelter from extreme elements. To have water that is safe to drink, So I think that’s the core of it.
+ - If evolution is a struggle for survival, why hasn’t it ruthlessly eliminated altruists, who seem to increase another’s prospects of survival at the cost of their own?
+ - In a situation where many national leaders do the same thing and look out for national interests, and with an issue like global warming, you’re likely to get no solution, so I think you have to have some kind of ethical trump on some of those issues.
+ - We should aim for our children to be good people, and to live ethical lives that manifest concern for others as well as for themselves.
+ - I believe that in this new world that we live in, we often have a responsibility, you know, to actually go beyond the thou shalt nots – that is, the not harming others – and say we can help others and we should be helping others.
+ - The goal of maximizing the welfare of all may be better achieved by an ethic that accepts our inclinations and harnesses them so that, taken as a whole, the system works to everyone’s advantage.
+ - If we are prepared to take the life of another being merely in order to satisfy our taste for a particular type of food, then that being is no more than a means to our end.
+ - If you go back in time you’ll find tribes that were essentially only concerned with their own tribal members. If you were a member of another tribe, you could be killed with impunity.
+ - We see things like reciprocity which are fairly central to our view of ethics. But if you’re talking about a set of worked-out rules on what we are supposed to do then, yes, it is a human product.
+ - I honestly don’t know, but if America continues to refuse to reduce its greenhouse gas emissions, I see a bleak future not only for American society, but for the world as a whole. This is a global problem that is not going away, and the United States is an obstacle to solving it.
+ - If you earn a lot of money, you can give away a lot of money.
+ - We need to learn how to capture and kill wild fish humanely – or, if that is not possible, to find less cruel and more sustainable alternatives to eating them.
+ - The hope of Internet anarchists was that repressive governments would have only two options: accept the Internet with its limitless possibilities of spreading information, or restrict Internet access to the ruling elite and turn your back on the 21st century, as North Korea has done.
+ - Since ancient times, philosophers have maintained that to strive too hard for one’s own happiness is self-defeating.
+ - I don’t think nationalism is alone holding the field; it’s in contention with a lot of different things.
+ - What is there about the notion of a person, at law, that makes every living member of the species Homo sapiens a person, irrespective of their mental capacities, but excludes every nonhuman animal – again, irrespective of their mental capacities?
+ - So, basically, my view is I don’t want to support the exploitation of animals, and within reason, I will do what I can to avoid it, but it’s not like it’s a religion for me. It’s not like I consider I’m polluted if somehow some bit of milk or cheese or something passes my lips.
+ - At present scientists do not look for alternatives simply because they do not care enough about the animals they are using.
+ - Putting the AR movement directly in opposition to the environmental movement, which should be our natural allies in fighting human arrogance and domination of the planet.
+ - The new freedom of expression brought by the Internet goes far beyond politics. People relate to each other in new ways, posing questions about how we should respond to people when all that we know about them is what we have learned through a medium that permits all kinds of anonymity and deception.
+ - Everyday we act in ways that reflect our ethical judgements.
+ - Human social institutions can effect the course of human evolution. Just as climate, food supply, predators, and other natural forces of selection have molded our nature, so too can our culture.
+ - We need to recognise that what really matters isn’t buying more and more consumer goods, but family, friends, and knowing that we are doing something worthwhile with our lives. Helping to reduce the appalling consequences of world poverty should be part of that reassessment.
+ - In the sense that you’re not at the centre of power, like a president or prime minister of a major power, everyone is marginalised; my position doesn’t isn’t unique in that respect. I think there are different sorts of relevance in different contexts.
+ - I’m not overly alarmist about it, but I do think there are some worrying signs, like the growing accumulation of wealth by a very small proportion of the population, plus elections in the US are much more dominated by money than anywhere else calling itself a democracy.
+ - The capacity to reason is a special sort of capacity because it can lead us to places that we did not expect to go.
+ - I think ethics is always there; it’s not always a very thoughtful or reflective ethics.
+ - Herbert Spencer is little read now. Philosophers do not regard him as a major thinker. Social Darwinism has long been in disrepute.
+ - Should one break in and free the animals? That is illegal, but the obligation to obey the law is not absolute. It was justifiably broken by those who helped runaway slaves in the American South, to mention only one possible parallel.
+ - An animal experiment cannot be justifiable unless the experiment is so important that the use of a brain-damaged human would be justifiable.
+ - Ancient recipients of instant news probably couldn’t do very much about it, for instance. Xerxes would still need three months to get his army together, and he might not get home for years.
+ - Grain that is used to feed animals that end up on our tables as turkeys and hams could have gone to feed starving people.
+ - The newspapers do little better. Their coverage of nonhuman animals is dominated by “human interest” events like the birth of a baby gorilla at the zoo, or by threats to endangered species; but developments in farming techniques that deprive millions of animals of freedom of movement go unreported.
+ - Ethics is inescapable.
+ - What you could say, and what I do argue in the book, is that he doesn’t have as much concern for the lives of Iraqis as he does for the lives of Americans, or even frozen American embryos.
+ - There can be no brotherhood when some nations indulge in previously unheard of luxuries, while others struggle to stave off famine.
+ - I would like us to think about it more explicitly, and not take our intuitions as the given of ethics, but rather to reflect on it, and be more open about the fact that something is an ethical issues and think what we ought to do about it.
+ - I suppose what’s happened recently has confirmed suspicions I voiced in the book, and I think made clearer some of those things that I point out. For instance I have a section of the book where I talk about the possibility of torture.
+ - The Pentagon said that these prisoners were kept in accordance with the Geneva Convention, and of course I was not reassured by that, but I couldn’t prove that that was wrong; so we’re clearer about that.
+
+131 quotes

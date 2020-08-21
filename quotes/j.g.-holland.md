@@ -1,0 +1,132 @@
+ - Calmness is the cradle of power.
+ - God gives every bird its food, but He does not throw it into its nest.
+ - Geology gives us a key to the patience of God.
+ - The temple of art is built of words. Painting and sculpture and music are but the blazon of its windows, borrowing all their significance from the light, and suggestive only of the temple’s uses.
+ - Ideals are the world’s masters.
+ - Heaven is not reached at a single bound. But we build the ladder by which we rise. From the lowly earth to the vaulted skies, And we mount to its summit round by round.
+ - The secret of man’s success resides in his insight into the moods of people, and his tact in dealing with them.
+ - Patience, persistence, and power to do are only acquired by work.
+ - The most precious possession that ever comes to a man in this world is a woman’s heart.
+ - Gossip is always a personal confession either of malice or imbecility.
+ - God give us men. The time demands strong minds, great hearts, true faith and willing hands.
+ - The temple of art is built in words.
+ - Responsibility walks hand in hand with capacity and power.
+ - Life always take on the character of its motive.
+ - A mind grows by what it feeds on.
+ - It is only rogues who feel the restraints of law.
+ - Every man who strikes blows for power, for influence, for institutions, for the right, must be just as good an anvil as he is a hammer.
+ - God give us men! A time like this demands. Strong minds, great hearts, true faith, and ready hands; Men whom the lust of office does not kill; Men whom the spoils of office cannot buy; Men who possess opinions and a will; Men who have honor; men who will not die.
+ - Character lives in a man, reputation outside of him.
+ - There is no great achievement that is not the result of patient working and waiting.
+ - Blessed is that man who knows his own distaff and has found his own spindle.
+ - A woman in love is a very poor judge of character.
+ - In my judgment, a great mistake has been made by well meaning and zealous men, through treating error and infidelity with altogether too much respect.
+ - That which grows fast, withers as rapidly. That which grows slow, endures.
+ - A man who in the struggles of life has no home to retire to, in fact or in memory, is without life’s best rewards and life’s best defences.
+ - A noble deed is a step towards heaven.
+ - Who never walks save where he sees men’s tracks makes no discoveries.
+ - All things unrevealed belong to the kingdom of mystery.
+ - The idle man stands outside of God’s plan, outside of the ordained scheme of things; and the truest self-respect, the noblest independence, and the most genuine dignity, are not to be found there.
+ - No nation can be destroyed while it possesses a good home life.
+ - God gave every man individuality of constitution, and a chance for achieving individuality of character. He puts special instruments into every man’s hands by which to make himself and achieve his mission.
+ - A man may carry the whole scheme of Christian truth in his mind from boyhood to old age without the slightest effect upon his character and aims. It has had less influence than the multiplication table.
+ - It is better to be a self-made man, – filled up according to God’s original pattern, – than to be half a man, made after some other man’s pattern.
+ - Nature is the master of talents; genius is the master of nature.
+ - Perfect love holds the secret of the world’s perfect liberty.
+ - The moment that law is destroyed, liberty is lost, and men, left free to enter upon the domains of each other, destroy each other’s rights, and invade the field of each other’s liberty.
+ - The moment we recognize God as supreme in power and infinitely good and loving toward all His intelligent creatures, that moment we admit the doctrine of universal and special providence.
+ - Work and wait, work and wait is what God says to us in creation.
+ - If we will measure other people’s corn in our own bushel, let us first take it to the Divine standard, and have it sealed.
+ - The soul, like the body, lives by what it feeds on.
+ - Music is a thing of the soul-a roselipped shell that murmured of the eternal sea-a strange bird singing the songs of another shore.
+ - Man’s record upon this wild world is the record of work, and of work alone.
+ - Many men and women spend their lives in unsuccessful attempts to spin the flax God sends them upon a wheel they can never use.
+ - The secret of being loved is in being lovely; and the secret of being lovely is in being unselfish.
+ - Laws are the very bulkwarks of liberty; they define every man’s rights, and defend the individual liberties of all men.
+ - The cry of the soul is for freedom. It longs for liberty, from the date of its first conscious moments.
+ - We live in the future. Even the happiness of the present is made up mostly of that delightful discontent which the hope of better things inspires.
+ - A man who feels that his religion is a slavery has not begun to comprehend the real nature of religion.
+ - The man who loves home best, and loves it most unselfishly, loves his country best.
+ - A young man rarely gets a better vision of himself than that which is reflected from a true woman’s eyes; for God himself sits behind them.
+ - Idleness is the sepulchre of a living man.
+ - God gives every bird its food, but He does not throw it into the nest. He does not unearth the good that the earth contains, but He puts it in our way, and gives us the means of getting it ourselves.
+ - Play may not have so high a place in the divine economy, but is has as legitimate a place as prayer.
+ - Why will you be always sallying out to break lances with other people’s wind-mills, when your own is not capable of grinding corn for the horse you ride?
+ - We work and that is godlike.
+ - Assertion of truths known and felt, promulgation of truth from the high platform of truth itself, declaration of faith by the mouth of moral conviction – this is the New Testament method, and the true one.
+ - Life was intended to be so adjusted that the body should be the servant of the soul, and always subordinate to the soul.
+ - Childhood may do without a grand purpose, but manhood cannot.
+ - He that cannot paint must grind the colors.
+ - Labor is the instituted means for the methodical development of all our powers under the direction and control of the will.
+ - Preceptive wisdom that has not been vivified by life has in itself no affinity for life.
+ - Work was made for man, and not man for work. Work is man’s servant, both in its results to the worker and the world. Man is not work’s servant, save as an almost universal perversion has made him such.
+ - I know of but one garment which the fashionable social life of this country borrows of Christianity; it is that ample garment of charity which covers a multitude of sins – particularly fashionable sins.
+ - The gentleman is solid mahogany; the fashionable man is only veneer.
+ - The fact is that sin is the most unmanly thing in God’s world. You never were made for sin and selfishness. You were made for love and obedience.
+ - A man in whom religion is an inspiration, who has surrendered his being to its power, who drinks it, breathes it, bathes in it, cannot speak otherwise than religiously.
+ - Humanity is constitutionally lazy.
+ - There is no truth which personal vice will not distort.
+ - The choicest thing this world has for a man is affection.
+ - Everything good in a man thrives best when properly recognized.
+ - So I take my life as I find it, as a life full of grand advantages that are linked indissolubly to my noblest happiness and my everlasting safety. I believe that Infinite Love ordained it, and that, if I bow willingly, tractably, and gladly to its discipline, my Father will take care of it.
+ - What do you think God gave you more wealth than is requisite to satisfy your rational wants for, when you look around and see how many are in absolute need of that which you do not need? Can you not take the hint?
+ - There is nothing more precious to a man than his will; there is nothing which he relinquishes with so much reluctance.
+ - Communion is the law of growth, and homes only thrive when they sustain relations with each other.
+ - Fiction is most powerful when it contains most truth; and there is little truth we get so true as that which we find in fiction.
+ - Posts of honor are evermore posts of danger and of care.
+ - I softly sink into the bath of sleep: With eyelids shut, I see around me close The mottled, violet vapors of the deep, That wraps me in repose.
+ - There are crowds who trample a flower into the dust without thinking once that they have one of the sweetest thoughts of God under their heel.
+ - Life is before you,- not earthly life alone, but life- a thread running interminably through the warp of eternity.
+ - Immortality – twin sister of Eternity.
+ - How long must the church live before it will learn that strength is won by action, and success by work, and that all this immeasurable feeding without action and work is a positive damage to it – that it is the procurer of spiritual obesity, gout, and debility.
+ - To labor rightly and earnestly is to walk in the golden track that leads to God. It is to adopt the regimen of manhood and womanhood. It is to come into sympathy with the great struggle of humanity toward perfection. It is to adopt the fellowship of all the great and good the world has ever known.
+ - The hammer and the anvil are the two hemispheres of every true reformer’s character.
+ - Wants keep pace with wealth always.
+ - Every man who can be a first-rate something – as every man can be who is a man at all – has no right to be a fifth-rate something; for a fifth-rate something is not better than a first-rate nothing.
+ - God pity the man of science who believes in nothing but what he can prove by scientific methods; for if ever a human being needed divine pity, he does.
+ - Play is a sacred thing, a divine ordinance, for developing in the child a harmonious and healthy organism, and preparing that organism for the commencement of the work of life.
+ - Every man’s powers have relation to some kind of work; and whenever he finds that kind of work which he can do best – that to which his powers are best adapted – he finds that which will give him the best development, and that by which he can best build up, or make, his manhood.
+ - A fortune won in a day is lost in a day; a fortune won slowly, and slowly compacted, seems to acquire from the hand that won it the property of endurance.
+ - There are no twin souls in God’s universe.
+ - A nation is a thing that lives and acts like a man and men are the particles of which it is composed.
+ - He never said it would be easy, He just said He’d go with me.
+ - Ah! soul of mine! Ah! soul of mine! Thy sluggish senses are but bars That stand between thee and the stars, And shut thee from the world divine.
+ - Scholarship, save by accident, is never the measure of a man’s power.
+ - The love that gushes for all is the real elixir of life – the fountain of bodily longevity. It is the lack of this that always produces the feeling of age.
+ - Work for immortality if you will: then wait for it.
+ - The person who does not know how to live while they are making a living is a poorer person after their wealth is won than when they started.
+ - The faculties of our souls differ as widely as the features of our faces and the forms of our frames.
+ - Wealth is the least trustworthy of anchors.
+ - Artists are nearest God. Into their souls he breathes his life, and from their hands it comes in fair, articulate forms to bless the world.
+ - If you want learning, you must work for it.
+ - I account the office of benefactor, or almoner, to which God appoints all those whom he has favored with wealth, one of the most honorable and delightful in the world. He never institutes a channel for the passage of His bounties that those bounties do not enrich and beautify.
+ - A life in any sphere that is the expression and outflow of an honest, earnest, loving heart, taking counsel only of God and itself, will be certain to be a life of beneficence in the best possible direction.
+ - God be thanked that there are some in the world to whose hearts the barnacles will not cling.
+ - It is by work that man carves his way to that measure of power which will fit him for his destiny.
+ - The most beautiful sight this earth affords is a man or woman so filled with love that duty is only a name, and its performance the natural outflow and expression of the love which has become the central principle of their life.
+ - I have learned that to do one’s next duty is to take a step toward all that is worth possessing.
+ - Joys divided are increased.
+ - Doubtless the world is wicked enough; but it will not be improved by the extension of a spirit which self-righteously sees more to reform outside of itself than in itself.
+ - A fit of anger is as fatal to dignity as a dose of arsenic is to life.
+ - All who become men of power reach their estate by the same self-mastery, the same self-adjustment to circumstances, the same voluntary exercise and discipline of their faculties, and the same working of their life up to and into their high ideals of life.
+ - The theological systems of men and schools of men are determined always by the character of their ideal of Christ, the central fact of the Christian system.
+ - Whatever of true glory has been won by any nation of the earth; whatever great advance his been made by any nation in that which constitutes a high Christian civilization, has been always at the cost of sacrifice; has cost the price marked upon it in God’s inventory of national good.
+ - Of all the scamps society knows, the traditional good fellow is the most despicable.
+ - In the homes of America are born the children of America; and from them go out into American life, American men and women. They go out with the stamp of these homes upon them; and only as these homes are what they should be, will they be what they should be.
+ - This world of sense, built by the imagination – how fair and foul it is! Like a fairy island in the sea of life, it smiles in sunlight and sleeps in green, known of the world not by communion of knowledge, but by personal, secret discovery!
+ - The faculty of self-help is that which distinguished man from animals; that it is the Godlike element, or holds within itself the Godlike element, of his constitution.
+ - There is no point where art so nearly touches nature as when it appears in the form of words.
+ - It is the life in literature that acts upon life.
+ - Fashion is aristocratic-autocratic.
+ - Nothing so obstinately stands in the way of all sorts of progress as pride of opinion. While nothing is so foolish and baseless.
+ - No man ever feels the restraint of law so long as he remains within the sphere of his liberty – a sphere, by the way, always large enough for the full exercise of his powers and the supply of all his legitimate wants.
+ - Almost everywhere men have become the particular things which their particular work has made them.
+ - No genuine observer can decide otherwise than that the homes of a nation are the bulwarks of personal and national safety and thrift.
+ - Cost is the father and compensation the mother of progress.
+ - There is really nothing left to a genuine idle man, who possesses any considerable degree of vital power, but sin.
+ - All that has been done to weaken the foundation of an implicit faith in the Bible, as a whole, has been at the expense of the sense of religious obligation, and at the cost of human happiness.
+ - It is not a question how much a man knows, but what use he can make of what he knows.
+ - There is no well-doing, no Godlike doing, that is not patient doing.
+ - A man does not necessarily sin who does that which our reason and our conscience condemn.
+
+130 quotes

@@ -1,0 +1,26 @@
+ - I’m old enough to make my own decisions.
+ - You can’t suppress Bodily Functions.
+ - I guess one of the ways that karma works is that it finds out what you are most afraid of and then makes that happen eventually.
+ - I grew up half in South Central and half in the San Fernando valley.
+ - I was an altar boy and a choir member.
+ - We did six records, then six movies. Now we need to do six of something else, so we get 666 – and then our master Satan can return!
+ - Yeah, I’m the go-to guy for Mexican priests.
+ - You know you’re in a bad movie when the Catholic clergy is being played by Jews.
+ - Well, sometimes you need the fields to lie fallow in order to gain nutrients.
+ - I want my kids to grow up to be a useful citizen.
+ - Hey, I was raised in the church.
+ - What I look for when I see a piece of art for the first time is some kind of emotional, intellectual experience, that’s a combination of both of those things and is informed by my knowledge and something new that I see the artist doing.
+ - I always wanted to work with Betty White, because she is one of my heroes of all time, and I just love her.
+ - I was part of the draft resistance movement in LA where we did demonstrations at the draft centre and burned our cards and made a lot of trouble on campus.
+ - To do a comedy team, it requires so much extracurricular stuff, so much compromise, so much intuitiveness to know what the other guy is doing. That’s why it’s so hard to do it.
+ - Every medium has its own projection, and I find animation is much bigger than normal.
+ - Comedy teams are a real hard thing to do. That’s why you don’t see any of them.
+ - We are a multicultural country – always have been, and to our credit, always will be. It is something that we should be very proud of and embrace.
+ - People didn’t relate to me as being Chinese or white, just being a hippie, a long-haired hippie.
+ - Mexicans are quasi-legal.
+ - Rich white guys. That’s the true minority.
+ - I think you can directly link chihuahuas to Dow Jones.
+ - You can always tell when something is good, because the studio senses it has something good, and you can see them pour more and more resources into it. The promotion gets bigger and bigger.
+ - Convenience is the American way.
+
+24 quotes

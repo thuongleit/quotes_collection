@@ -1,0 +1,21 @@
+ - The notion is called wabi-sabi life, like the cherry blossom, it is beautiful because of its impermanence, not in spite of it, more exquisite for the inevitability of loss.
+ - All girls over age 14 remove pubic hair. The only touching is to remove hair. That’s grim.
+ - Effectively, it makes the greasepaint permanent, blurring the lines not only between public and private but also between the authentic and contrived self. If all the world was once a stage, it has now become a reality TV show: we mere players are not just aware of the camera; we mug for it.
+ - Sexualization is the performance of sexuality, the performance of sexiness. Girls are super good at that now.
+ - Girls are removing pubic hair before fully having it. They would say I feel cleaner, it’s for me, but then they’d say if a boy saw pubic hair down there they’d head for the hills.
+ - I’m watching my own daughter grow up. I see this overt sexual culture coming at her like a Mack truck. She’s in seventh grade.
+ - It’s not that pink is intrinsically bad, but it is such a tiny slice of the rainbow, and, though it may celebrate girlhood in one way, it also repeatedly and firmly fuses girl’s identity to appearance.
+ - Marketing to girls constantly presents a hypersexualized idea of girls; they’re expected to appear sexy but be cut off from their sexuality.
+ - Maybe I wanted children, maybe I didn’t, but I wanted the decision to be a choice, not a mandate. Last time I checked, childlessness was only supposed to be a condition of career advancement for nuns.
+ - The anesthetizing against caring really threw me for a loop. I was seeing it with 15-year-olds. It was how they were starting their intimate lives. It alarmed me.
+ - The point of creativity is to express and challenge yourself, to make meaning, to embrace your life.
+ - It’s particularly important as parents in our conversations with our daughters and our sons to consider ideas intimate justice when we talk about and set them going on their early formative experience.
+ - Sexualization is imposed from the outside as opposed to sexuality, an understanding of the body’s responses and desires and ability to communicate that, cultivated from within.
+ - Mothers are doing a better job talking about risk, danger, reproduction, consent, unwanted pregnancy. We’re not talking about how to balance the risks and joys and we’re really not talking about the joys.
+ - Intimate justice touches on ideas of gender inequity, violence, bodily integrity, physical and mental health. I don’t expect a 15-year-old girl to have that figured out; it’s hard enough to have it figured out when you’re 50.
+ - I talked to a junior in college, and she was fed up. She said, “I’m not doing other girls any favours by faking orgasms and not calling out guys when we’re having unequal experiences.”
+ - But it is Bella, not the supernaturals she falls in with, who is the true horror show here, at least as a female role model.
+ - Displaying yourself as sexy doesn’t do anything to increase sexual self-knowledge or pleasure.
+ - There is a way hook ups are serving young women. And it was important for me to always talk about how behaviours were serving girls, not just making them the victims.
+
+19 quotes

@@ -1,0 +1,42 @@
+ - He brought his great hand to rest on an early edition of Bram Stoker’s novel and smiled, but said nothing. Then he moved quietly away into another section.
+ - Today I will go to wait for her again, because I cannot help it, because my whole being seems now to be bound up in the being of one so different from myself and yet so exquisitely familiar that I can scarely understand what has happened.
+ - It was good to walk into a library again; it smelled like home.
+ - And how could anyone consent to give up the smell of open books, old or new?
+ - You are a total stranger and you want to take my library book.
+ - I’ve always been interested in foreign relations. It’s my belief that study of history should be our preparation for understanding the present rather than an escape from it.
+ - If there is any good in life, in history, in my own past, I invoke it now. I invoke it with all the passion with which I have lived.
+ - It’s funny; in this era of e-mail and voice mail and all those things that even I did not grow up with, a plain old paper letter takes on amazing intimacy.
+ - It touched me to be trusted with something terrible.
+ - There is nothing harder, at moments, than talking to someone who has all the power of silence.
+ - The problem is simply finding the right person. Ask Plato. Just make sure she finishes your thoughts and you finish hers. That’s all you need.
+ - I’ve read there is no such thing as a single tear, that old poetic trope. And perhaps there isn’t, since hers was simply a companion to my own.
+ - I was filled with angst in college, that I struggled with the question of my future, the meaning of my life – spoiled sheltered rich girl collides with great books and is devastated by her own banality.
+ - I wasn’t brought up to be dazzled by money or fame.
+ - I wondered why she craved this knowledge and found myself remembering that she was, after all, an anthropologist.
+ - Recently abandoned women can be complicated.
+ - I’ve noticed Dracula was often as practical a fellow as he was a nasty one.
+ - He can’t really love anyone, you know, and in the end such people are always alone, no matter how much other people once loved them.
+ - As a historian, I have learned that, in fact, not everyone who reaches back into history can survive it. And it is not only reaching back that endangers us; sometimes history itself reaches inexorably forward for us with its shadowy claws.
+ - As you know, human history is full of evil deeds, and maybe we ought to think of them with tears, not fascination.
+ - Bulgarians eat tarator every single day in summer. They think of it as salad although we’d call it a soup. You can make it as thick or thin as you like depending on how much water you add. It’s very practical in summer because yogurt cools the body faster than water, but the water hydrates you.
+ - We Gypsies know that where Jews are killed, Gypsies are always murthered too. And then a lot of other people, usually.
+ - For me, Dracula has always been associated with travel and beautiful historical places.
+ - It was not the brutality of what occurred next that changed my mind and brought home to me the full meaning of fear. It was the brilliance of it.
+ - My guess is that he remembers some of me, some of us together, and the rest rolled off him like topsoil in a flash flood.
+ - Sometimes people damage paintings or sculpture because they love it. They throw their arms around a statue in a fit of hysterical passion and it falls over.
+ - In those days, I still thoroughly enjoyed the romance I called “by myself”; I didn’t know yet how it gets lonely, picks up a sharp edge later on that ruins a day now and then – ruins more than that, if you’re not careful.
+ - In the end, I always act from the heart, even if I also value reason and tradition. I wish I could explain why, but I don’t know.
+ - No book that is written for an external purpose is going to be a passionately felt book for the writer or the reader. I don’t see the point in doing that.
+ - I think it’s important to recognise that ‘The Da Vinci Code’ opened up a vast new audience for a general readership interested in historical detective stories and research into history.
+ - I believe in walking out of a museum before the paintings you’ve seen begin to run together. How else can you carry anything away with you in your mind’s eye?
+ - These atheist cultures were certainly diligent in preserving the relics of their saints.
+ - For the first time, I had been struck by the excitement of the traveler who looks history in her subtle face.
+ - Faith is simply whatever is real to us.
+ - The heart does not go backward. Only the mind.
+ - When you handle books all day long, every new one is a friend and a temptation.
+ - I love to cook and I’ve cooked a lot of Bulgarian food over the years.
+ - The very worst impulses of humankind can survive generations, centuries, even millennia. And the best of our individual efforts can die with us at the end of a single lifetime.
+ - Boys mystified me, although I dreamed vaguely of men.
+ - Every writer hopes his or her book will be its own thing.
+
+40 quotes

@@ -1,0 +1,263 @@
+ - To teach is to learn twice.
+ - A part of kindness consists in loving people more than they deserve.
+ - Work like you don’t need the money.
+ - The aim of argument, or of discussion, should not be victory, but progress.
+ - Politeness is the flower of humanity.
+ - It is better to debate a question without settling it than to settle a question without debating it.
+ - Imagination is the eye of the soul.
+ - Children need models rather than critics.
+ - Mediocrity is excellent to the eyes of mediocre people.
+ - Genius begins great works; labor alone finishes them.
+ - The talkative man speaks from his mouth, the eloquent man speaks from his heart.
+ - Never cut what you can untie.
+ - All gardeners live in beautiful places because they make them so.
+ - The evening of a well spent youth brings it’s lamps with it.
+ - You want to talk to someone; first open your ears.
+ - Music has seven letters, writing has twenty-six notes.
+ - Without the spiritual world the material world is a disheartening enigma.
+ - We measure minds by their stature; it would be better to esteem them by their beauty.
+ - Those readiest to criticise are often least able to appreciate.
+ - You have to be like the pebble in the stream, keeping the grain and rolling along without being dissolved or dissolving anything else.
+ - Ask the young. They know everything.
+ - He who has imagination without learning has wings but no feet.
+ - A false mind is false in everything, just as a cross eye always looks askant. But one may err once, nay, a hundred times, without being double-minded. There can never be mental duplicity where there is sincerity.
+ - Education should be gentle and stern, not cold and lax.
+ - In temperance there is ever cleanliness and elegance.
+ - Illusion and wisdom combined are the charm of life and art.
+ - Close your eyes and you will see.
+ - Imitate time; it destroys everything slowly; it undermines, it wears away, it detaches, it does not wrench.
+ - When you give, give with joy and smiling.
+ - We live in an age in which superfluous ideas abound and essential ideas are lacking.
+ - If you would live happily, do not exaggerate life’s evils, nor slight her blessings.
+ - Tenderness is the rest of passion.
+ - There is in the soul a taste for the good, just as there is in the body an appetite for enjoyment.
+ - Before you use a fancy word, make room for it.
+ - The best remedy for a short temper is a long walk.
+ - What is true by lamplight is not always true by sunlight.
+ - Monuments are the grappling-irons that bind one generation to another...
+ - The ordinary true, or purely real, cannot be the object of the arts. Illusion on a ground of truth, – that is the secret of the fine arts.
+ - Let us be men with men, and always children before God; for in His eyes we are but children. Old age itself, in presence of eternity, is but the first moment of a morning.
+ - All disputation makes the mind deaf; and when people are deaf, I am dumb.
+ - It is an aspect of all happiness to suppose that we deserve it.
+ - Love and fear. Everything the father of a family says must inspire one or the other.
+ - Drawing is speaking to the eye; talking is painting to the ear.
+ - The beautiful invariably possesses a visible and a hidden beauty; and it is certain that no style is so beautiful as that which presents to the attentive reader a half-hidden meaning.
+ - The worst thing about new books is that they keep us from reading the old ones.
+ - Be saving, but not at the cost of all liberality. Have the soul of a king and the hand of a wise economist.
+ - When you go in search of honey you must expect to be stung by bees.
+ - A work is perfectly finished only when nothing can be added to it and nothing taken away.
+ - The punishment of those who have loved women too much is to love them always.
+ - Fully to understand a grand and beautiful thought requires, perhaps, as much time as to conceive it.
+ - Fate and necessity are unconquerable.
+ - The true character of epistolary style is playfulness and urbanity.
+ - To teach is to learn twice. About all some parents accomplish in life is to send a child to Harvard. The purpose of a liberal education is to make one’s mind a pleasant place to spend one’s leisure.
+ - He who cannot see the beautiful side is a bad painter, a bad friend, a bad lover; he cannot lift his mind and his heart so high as goodness.
+ - What can you possibly add to a mind that’s full, especially one that’s full of itself.
+ - The art of saying well what one thinks is different from the faculty of thinking. The latter may be very deep and lofty and far- reaching, while the former is altogether wanting.
+ - Beautiful works do not intoxicate, but they enchant.
+ - One can with dignity be wife and widow but once.
+ - When the painter wishes to represent an event, he cannot place before us too great a number of personages; but he cannot employ too few when he wishes to portray an emotion.
+ - I resemble the poplar, – that tree which, even when old, still looks young.
+ - How many people eat, drink, and get married; buy, sell, and build; make contracts and attend to their fortune; have friends and enemies, pleasures and pains, are born, grow up, live and die – but asleep!
+ - Virtue by calculation is the virtue of vice.
+ - Liquid, flowing words are the choicest and the best, if language is regarded as music. But when it is considered as a picture, then there are rough words which are very telling, they make their mark.
+ - In clothes clean and fresh there is a kind of youth with which age should surround itself.
+ - Whence? wither? why? how? – these questions cover all philosophy.
+ - All are born to observe order, but few are born to establish it.
+ - To be an agreeable guest one need only enjoy oneself.
+ - In the interchange of thought use no coin but gold and silver.
+ - Antiquity! I like its ruins better than its reconstructions.
+ - Necessity may render a doubtful act innocent, but it cannot make it praiseworthy.
+ - He who has not the weakness of friendship has not the strength.
+ - Science confounds everything; it gives to the flowers an animal appetite, and takes away from even the plants their chastity.
+ - Success serves men as a pedestal. It makes them seem greater when not measured by reflection.
+ - The Bible is to religion what the Iliad is to poetry.
+ - It is not my words that I polish, but my ideas. 102.
+ - Of the two, I prefer those who render vice lovable to those who degrade virtue.
+ - Happy is the man who can do only one thing; in doing it, he fulfills his destiny.
+ - What a man knows only through feeling can be explained only through enthusiasm.
+ - I do not call reason that brutal reason which crushes with its weight what is holy and sacred, that malignant reason which delights in the errors it succeeds in discovering, that unfeeling and scornful reason which insults credulity.
+ - Religion is the only metaphysic that the multitude can understand and adopt.
+ - The voice is a human sound which nothing inanimate can perfectly imitate. It has an authority and an insinuating property which writing lacks. It is not merely so much air, but air modulated and impregnated with life.
+ - The mind conceives with pain, but it brings forth with delight.
+ - Heaven is for those who think of it.
+ - Poetry is to be found nowhere unless we carry it within us.
+ - We should do good whenever we can and do kindness at all times, for at all times we can.
+ - Minds which never rest are subject to many digressions.
+ - All good verses are like impromptus made at leisure.
+ - Criticism even should not be without its charms. When quite devoid of all amenities, it is no longer literary.
+ - The God of metaphysics is but an idea. But the God of religion, the Maker of heaven and earth, the sovereign Judge of actions and thoughts, is a power.
+ - Those who never retract their opinions love themselves more than they love the truth.
+ - Words, like glasses, obscure everything they do not make clear. Before using a fine word, make a place for it.
+ - Justice is the right of the weakest.
+ - When my friends lack an eye, I look at them in profile.
+ - You will find poetry nowhere unless you bring some of it with you.
+ - I love prudence very little, if it is not moral.
+ - We must respect the past, and mistrust the present, if we wish to provide for the safety of the future.
+ - When credulity comes from the heart it does no harm to the intellect.
+ - I quit Paris unwillingly, because I must part from my friends; and I quit the country unwillingly, because I must part from myself.
+ - History needs distance, perspective. Facts and events which are too well attested cease, in some sort, to be malleable.
+ - Remorse is the punishment of crime; repentance, its expiation. The former appertains to a tormented conscience; the latter to a soul changed for the better.
+ - Know that morality is a curb, not a spur.
+ - Genuine bon mots surprise those from whose lips they fall, no less than they do those who listen to them.
+ - Good impulses are naught, unless they become good actions.
+ - Genius is the ability to see things invisible, to manipulate things intangible, to paint things that have no features.
+ - Tormented by the cursed ambition always to put a whole book in a page, a whole page in a sentence, and this sentence in a word. I am speaking of myself.
+ - There are those to whom one must advise madness.
+ - Today there are no more irreconcilable enmities, because there are no more disinterested emotions: that’s a good thing born from a bad thing.
+ - No one is mediocre who has good sense and good sentiments.
+ - If authorities were well organized, there would not be an Unknown Warrior.
+ - The sound of the drum drives out thought; for that very reason it is the most military of instruments.
+ - Grief – Happiness is to feel that one’s soul is good; there is no other, in truth, and this kind of happiness may exist even in sorrow, so that there are griefs perfable to every joy, and such as would be preferred by all those who have felt them.
+ - Logic works, metaphysics contemplates.
+ - Attention is like a narrow mouthed vessel; pour into it what you have to say cautiously, and, as it were, drop by drop.
+ - Xenophon wrote with a swan’s quill, Plato with a pen of gold, and Thucydides with a brazen stylus.
+ - A man who shows no defect is a fool or a hypocrite, whom we should mistrust. There are defects so bound to fine qualities that they announce them, – defects which it is well not to correct.
+ - Think that day lost whose descending sun, views from thy hand no noble action done.
+ - Grace imitates modesty, as politeness imitates kindness.
+ - Chance generally favors the prudent.
+ - Superstition is the only religion of which base souls are capable of.
+ - We know God easily, if we do not constrain ourselves to define him.
+ - Moderation consists in being moved as angels are moved.
+ - The breath of the mind is attention 128.
+ - The supreme sway of chastity over the senses makes her queenly.
+ - Logic is to grammar what the sense of words is to their sound.
+ - Only choose in marriage a man whom you would choose as a friend if he were a woman.
+ - The early and the latter part of human life are the best, or, at least, the most worthy of respect; the one as the age of innocence, the other of reason.
+ - Abuse of words is the foundation of ideology.
+ - Our life is woven wind.
+ - Of what delights are we deprived by our excesses!
+ - There are people who are virtuous only in a piece-meal way; virtue is a fabric from which they never make themselves a whole garment.
+ - One man finds in religion his literature and his science, another finds in it his joy and his duty.
+ - There is an admiration which is the daughter of knowledge.
+ - A fluent writer always seems more talented than he is. To write well, one needs a natural felicity and an acquired difficulty.
+ - A temperate style is alone classical.
+ - Misery is almost always the result of thinking.
+ - The soul paints itself in our machines.
+ - When one has too great a dread of what is impending, one feels some relief when the trouble has come.
+ - Thus, if the clarity of our thoughts comes through better in a play of words, then the wordplay is good. One must know how to enter the ideas of others and how to leave them.
+ - There are single thoughts that contain the essence of a whole volume, single sentences that have the beauties of a large work.
+ - Eyes raised toward heaven are always beautiful, whatever they be.
+ - Proverbs may be said to be the abridgment of wisdom.
+ - Thoughts there are, that need no embodying, no form, no expression. It is enough to hint at them vaguely; a word, and they are heard and seen.
+ - The evening of life brings with it its lamps.
+ - Religion is neither a theology nor a theosophy; it is more than that, it is a discipline, a law, a yoke, an indissoluble engagement.
+ - Nothing which does not transport is poetry. The lyre is a winged instrument.
+ - Words, like glass, obscure when they do not aid vision.
+ - It may be said that it is with our thoughts as with our flowers. Those whose expression is simple carry their seed with them; those that are double by their richness and pomp charm the mind, but produce nothing.
+ - God is the place where I do not remember the rest.
+ - The simple-hearted and sincere never do more than half deceive themselves.
+ - Genuine witticisms surprise those who say them as much as those who listen to them; they arise in us in spite of us, or, at least, without our participation, – like everything inspired.
+ - The dregs may stir themselves as they please; they fall back to the bottom by their own coarseness.
+ - God multiplies intelligence, which communicates itself, like fire, ad infinitum. Light a thousand torches at one touch, the flame remains always the same.
+ - Young authors give their brains much exercise and little food.
+ - In bringing up a child, think of its old age.
+ - All luxury corrupts either the morals or the taste.
+ - Grace is in garments, in movements, in manners; beauty in the nude, and in forms. This is true of bodies; but when we speak of feelings, beauty is in their spirituality, and grace in their moderation.
+ - We use up in the passions the stuff that was given us for happiness.
+ - The last word should be the last word. It is like a finishing touch given to color; there is nothing more to add. But what precaution is needed in order not to put the last word first.
+ - Taste has never been corrupted by simplicity.
+ - Haughty people seem to me to have, like the dwarfs, the stature of a child and the face of a man.
+ - The soul that is the abode of chastity acquires an energy which enables her to surmount with ease the obstacles that lie along the path of duty.
+ - Good maxims are the germs of all excellence.
+ - Speech is but the incorporation of thought.
+ - You arrive at truth through poetry; I arrive at poetry through truth.
+ - If fortune wishes to make a man estimable, she gives him virtues; if she wishes to make him esteemed, she gives him success.
+ - Which is more misshapen, – religion without virtue, or virtue without religion?
+ - Ornaments were invented by modesty.
+ - Ideas never lack for words. It is words that lack ideas. As soon as the idea has come to its last degree of perfection, the word blossoms.
+ - The Bible remained for me a book of books, still divine – but divine in the sense that all great books are divine which teach men how to live righteously.
+ - If you are poor, distinguish yourself by your virtues; if rich, by your good deeds.
+ - Space is to place as eternity is to time.
+ - God has commanded Time to console the unhappy.
+ - It is always our inabilities that vex us.
+ - Religion is fire which example keeps alive, and which goes out if not communicated.
+ - Ideas never lack for words. It is words that lack ideas.
+ - The joy which is caused by truth and noble thoughts shows itself in the words by which they are expressed.
+ - To the liberal ideas of the age must be opposed the moral ideas of all ages.
+ - TIME and truth are friends, though there are many moments hostile to truth.
+ - Virtue is the health of the soul. It gives a flavor to the smallest leaves of life.
+ - Men must be either the slaves of duty, or the slaves of force.
+ - Genuinely good remarks surprise their author as well as his audience...
+ - There was a time when the world acted on books; now books act on the world.
+ - Let your cry be for free souls rather than for freedom. Moral liberty is the only important liberty.
+ - We disjoint the mind like the body.
+ - A maxim is the exact and noble expression of an important and indisputable truth. Good maxims are the germs of all excellence; when firmly fixed on the memory, they nourish the will.
+ - National literature begins with fables and ends with novels.
+ - How many people make themselves abstract to appear profound. The most useful part of abstract terms are the shadows they create to hide a vacuum.
+ - Some superior minds are unrecognized because there is no standard by which to weigh them.
+ - The mind’s direction is more important than its progress.
+ - In these times gain is not only a matter of greed, but of ambition.
+ - To reason, to argue. It is to walk with crutches in search of the truth. We come to it with a leap.
+ - We always believe God is like ourselves, the indulgent think him indulgent and the stern, terrible.
+ - There are some men who are witty when they are in a bad humor, and others only when they are sad.
+ - Think of the ills from which you are exempt.
+ - We may convince others by our arguements, but we can only persuade them by their own.
+ - The essence of life consists in thinking, and being conscious of one’s soul.
+ - Men have torn up the roads which led to Heaven, and which all the world followed; now we have to make our own ladders.
+ - We should make ourselves loved, for men are only just towards those whom they love.
+ - Avoid singularity. There may often be less vanity in following the new modes than in adhering to the old ones. It is true that the foolish invent them, but the wise may conform to, instead of contradicting, them.
+ - Space is the stature of God.
+ - The essential thing is not that there be many truths in a work, but that no truth be abused.
+ - There is always some frivolity in excellent minds; they have wings to rise, but also stray.
+ - The paper is patient, but the reader is not.
+ - Life is a country that the old have seen, and lived in. Those who have to travel through it can only learn from them.
+ - A thought is a thing as real as a cannonball.
+ - Truth takes the stamp of the souls it enters. It is rigorous and rough in arid souls, but tempers and softens itself in loving natures.
+ - Be charitable and indulge to everyone, but thyself.
+ - How many people become abstract as a way of appearing profound.
+ - We find little in a book but what we put there. But in great books, the mind finds room to put many things.
+ - Everything that is exact is short.
+ - Old age takes from the man of intellect no qualities save those that are useless to wisdom.
+ - There is graciousness and a kind of urbanity in beginning with men by esteem and confidence. It proves, at least, that we have long lived in good company with others and with our selves.
+ - How many books there are whose reputation is made that would not obtain it were it now to make?
+ - Religion must be loved as a kind of country and nursing-mother. It was religion that nourished our virtues, that showed us heaven, that taught us to walk in the path of duty.
+ - Words become luminous when the poet’s finger has passed over them its phosphorescence.
+ - Strength is natural, but grace is the growth of habit. This charming quality requires practice if it is to become lasting.
+ - Sexes. One has the look of a wound, the other of something skinned.
+ - Politeness smooths wrinkles.
+ - Maxims are to the intellect what laws are to actions; they do not enlighten, but they guide and direct, and, although themselves blind, are protective.
+ - Man is born with the faculty of speech. Who gives it to him? He who gives the bird its song.
+ - Every legitimate authority should respect its extent and its limits.
+ - Living requires but little life; doing requires much.
+ - It is easier to be mistaken about the true than the beautiful.
+ - Our worries always come from our weaknesses.
+ - Who ever has no fixed opinions has no constant feelings.
+ - To be capable of respect is almost as rare as to be worthy of it.
+ - Never write anything that does not give you great pleasure. Emotion is easily transferred from the writer to the reader.
+ - How many weak shoulders have craved heavy burdens!
+ - Strength is not energy; some authors have more muscles than talent.
+ - There are some heads which have no windows, and the day can never strike from above; nothing enters from heavenard.
+ - Only just the right quantum of wit should be put into a book; in conversation a little excess is allowable.
+ - Contempt for private wrongs was one of the features of ancient morals.
+ - When a nation gives birth to a man who is able to produce a great thought, another is born who is able to understand and admire it.
+ - Credulity forges more miracles than trickery could invent.
+ - Let us have justice, and then we shall have enough liberty!
+ - Reason is a bee, and exists only on what it makes; his usefulness takes the place of beauty.
+ - Every modulated sound is not a song, and every voice that executes a beautiful air does not sing. Singing should enchant. But to produce this effect there must be a quality of soul and voice which is by no means common even with great singers.
+ - In order to be happy, think of the ills you have been spared.
+ - The passions of the young are vices in the old.
+ - Common sense suits itself to the ways of the world. Wisdom tries to confirm to the ways of heaven.
+ - Order is to arrangement what the soul is to the body, and what mind is to matter.
+ - In really good acting we should be able to believe that what we hear and see is of our own imagining; it should seem to be to us as a charming dream.
+ - We are all of us more or less echoes, repeating involuntarily the virtues, the defects, the movements, and the characters of those among whom we live.
+ - Old age was naturally more honored in times when people could not know much more than what they had seen.
+ - Children must be rendered reasonable, but not reasoners. The first thing to teach them is that it is reasonable for them to obey, and unreasonable for them to dispute.
+ - Lenity is a part of justice; but she must not speak too loud for fear of waking justice.
+ - The lively phraseology of Montesquieu was the result of long meditation. His words, as light as wings, bear on them grave reflections.
+ - To see the world is to judge the judges.
+ - Our ideals, like pictures, are made from lights and shadows.
+ - Questions show the mind’s range, and answers its subtlety.
+ - The ways suited to confidence are familiar to me, but not those that are suited to familiarity.
+ - Truth consists of having the same idea about something that God has.
+ - Luckily, I never feel at one time more than half my pains.
+ - Without duty, life is soft and boneless.
+ - Fear loves the idea of danger.
+ - It would be next to impossible to discover a handsome woman who was not also a vain woman.
+ - We do not do well except when we know where the best is and when we are assured that we have touched it and hold its power within us.
+ - When we love, it is the heart that judges.
+ - Pleasures are always children, pains always have wrinkles.
+ - The idea of the nest in the bird’s mind, where does it come from?
+ - We should always keep a corner of our heads open and free, that we may make room for the opinions of our friends. Let us have heart and head hospitality.
+
+261 quotes

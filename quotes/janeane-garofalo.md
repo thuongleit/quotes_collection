@@ -1,0 +1,101 @@
+ - I’m sorry for being me. I won’t ever do it again.
+ - I guess I just prefer to see the dark side of things. The glass is always half-empty. And cracked. And I just cut my lip on it. And chipped a tooth.
+ - All roads lead to my dogs, don’t they?
+ - I’m not a disciplined writer.
+ - I guess when your heart gets broken, you sort of start to see the cracks in everything.
+ - To me, there is no greater act of courage than being the one who kisses first.
+ - Also, as I’ve gotten older and more mature, I’ve become much more comfortable in my own skin. After 25 years of doing stand-up, that’s reflected onstage.
+ - It’s mentally exhausting, feeling bad about something you can do nothing about.
+ - People think that you are a nasty, selfish person if you don’t want to have children.
+ - My hell is going to be the stairmaster wing of Dante’s inferno, where they’re gonna tape my feet to the pedals and the only music I get is Michael Bolton karaoke style.
+ - Listen, young people, I understand narcissism – clearly. But at least I have the decency to hate myself. And that’s what’s missing from the young people. They don’t have the debilitating self-loathing and the second guessing.
+ - Rejection kills, disappointment only maims.
+ - I hate high fashion. I hate that we reward people for being genetic freaks. You hear the guys announcing the runway shows saying, ‘A pretty face is your best asset this season.’ And what? Ugly girls had a free ride last year?
+ - The Bible, I’ve said it before, is a beautifully written work of fiction.
+ - I don’t have a good work ethic. I have a real casual relationship with hours.
+ - You just need an opportunity and then you yourself have to do a good job, and then you hope that people go, ‘Oh yeah, I forgot about her.’
+ - Is being an idiot like being high all the time?
+ - The world would be better off with multiple superpowers. When Communist USSR was a superpower, the world was better off.
+ - We’re our own worst enemies a lot of the time, but I still blame men.
+ - I’m not religious anymore, but I think it’s like papal infallibility, which is a ridiculous man-made tenet, like what I believe most religious tenets to be, are man-made after the fact.
+ - German accents and Hassidic accents aren’t that romantic. They’re more harsh. Although Hebrew, when spoken by certain people, sounds beautiful. There’s this beautiful woman I know who speaks Hebrew, and when she speaks, it’s so attractive. Maybe it’s who’s speaking it.
+ - Boy, does that give you street cred for years after, if you tell people you were on ‘The Larry Sanders Show!’
+ - I got mugged. And they got my knapsack with my comedy notebook in it. So if anybody see two cholos bombing at the Funny Bone chain, that would be them. Just give me a jingle.
+ - Taking into account the public’s regrettable lack of taste, it is incumbent upon you not to fit in.
+ - Silence does not equal patriotism. Obedience is not the American way.
+ - Every year my family would pile into the car for our vacation and drive 80 trillion miles just to prove we couldn’t get along in any setting.
+ - A war is going to destroy our economy even further. It’s going to be a threefold humanitarian disaster.
+ - This dress exacerbates the genetic betrayal that is my legacy.
+ - I’m a sucker for any guy with an accent with any kind.
+ - Sage advice? If you’re drunk, stay away from the phone. You can’t get the answering machine message back.
+ - Here’s what the right-wing has in, there’s no shortage of the natural resources of ignorance, apathy, hate, fear. As long as those things are in the collective conscious and unconscious, the Republicans will have some votes.
+ - I think we all remember where we were when Rush Hour hit the water. That was an important day.
+ - Should have dogs before they have kids. Everybody.
+ - He said that faith is like a glass of water. When you’re young, the glass is small, and it’s easy to fill up. But the older you get, the bigger the glass gets, and the same amount of liquid doesn’t fill it anymore. Periodically, the glass has to be refilled.
+ - Without liberals we wouldn’t have unions. We wouldn’t have environmental protections. We wouldn’t have seat belts or birth control or the ACLU! Any of these things!
+ - I’m almost 46. You become no longer even regarded in a sexual way. As you get older you’re just taken out of that realm. So it’s not anything that particularly confronts me very much at all.
+ - It’s been hard in entertainment as a 45-year-old woman to find jobs. They get fewer and far between if you’re older, unless you’re one of the few lucky ones who work constantly, like Meryl Streep.
+ - Blood may be thicker than water, but it is still sticky, unpleasant and generally nauseating.
+ - Evil is in the face of every frat guy that ever raised a beer cup and went “whoooooo!”
+ - When I see the American flag, I go, ‘Oh my God, you’re insulting me.’
+ - Irrational crushes, infatuations, or obsessions. Whatever you want to label it, it’s important to reach out to others.
+ - I think I failed miserably on NewsRadio. I was very nervous because of the caliber of the cast – especially Dave Foley – so I think I did a terrible job.
+ - But let me ask you this though, first and foremost: who’s your favorite Spice Girl? Mine is Sporty Spice and I’ll tell you why. You know what? She might not be as aesthetically pleasant as the rest but she’ll do a backflip and steal your heart.
+ - I can’t wait for the next fad though, and I predict it’s going to be Pennsylvania dutch culture, very Amish. It’s going to be bonnets and butter churns.
+ - It is not crazy to think that powerful people do some pretty horrible things. And maybe they get out of hand. Maybe it just gets away from them. It snowballs.
+ - As actors, it is our responsibility to read the newspapers, and then say what we read on television like it’s our own opinion.
+ - I think that by staying out of shape at the age of 33 I’m doing myself a huge favor for my future. There will never be anyone commenting on how I’ve ‘let myself go.’ I’ve gone. It’s gone. It’s not going, it’s GONE.
+ - The media is supposed to be custodians of the facts and watchdogs of government. They have, for the most part, neglected to be either of those things.
+ - You young people with your twittering and your creating of content. Or what is it – queefing? I don’t know what you young people are calling it.
+ - I actually was class clown, but I don’t know how that happened because I’ve never been considered an outwardly funny person-as the people in this room will attest.
+ - Granted, not really a joke, but how often do you get a mic in your hand? You know? So. I am sorry but don’t anybody trip on my soap box on the way out. Don’t anybody trip over that. And the chip on my shoulder’s a little heavy. I have back problems now.
+ - You can tell a lot about a person by how excited they are to do the Macarena.
+ - I don’t hate myself, as a general rule. I’d say the best way to describe it is that I have moments of self-loathing at fairly regular intervals.
+ - To a right-winger, unions are awful. Why do right-wingers hate unions? Because collective bargaining is the power that a worker has against the corporation. Right-wingers hate that.
+ - Until as women we all say, No! We are not going to starve ourselves, nothing is going to change. We’re our own worse enemies sometimes but I still blame men.
+ - Men are allowed to age. Men are allowed to gain weight. Men are allowed to be quirky looking.
+ - For my stand-up, I always have my notebook with me and if something strikes me, I’ll write it down.
+ - For some reason I get advertised when I travel as a political comedian, which I’m not. Sometimes I talk about it and sometimes I don’t.
+ - I truly believe a woman’s weight is a political issue, and if one young woman out there can see me and not feel crummy about herself, that’s a good thing.
+ - I’m a walker. I enjoy walking, which I think psychologically expresses my feelings of wanting liberation without exerting myself too much.
+ - When I see guys in bars wearing the real fitted kind of Calvin Klein v-neck t-shirts I just want to go up to them and be like, ‘Oh, do you work out? Your tricep looks so great – thank you.’
+ - The term ‘celebrity’ makes my skin crawl.
+ - Historically the mainstream media has never been particularly friendly to any socially progressive ideas.
+ - I would prefer to be well-liked in any and all situations.
+ - Sometimes the critics review me harshly for not being critical of government but it’s not me who has said I was political.
+ - Pedestrian’s rights – because we live in California, I’ve got to address this issue. I don’t know where on the fence I am about that. I suppose if I’m walking, I’m all for it, but if I’m driving, that’s a whole other can of worms.
+ - TV, it’s a director’s medium, and they wanna make it look interesting. To be rehearsing mostly for the sake of where you’re standing so they can do the lighting, that’s what I don’t like.
+ - The reason a person is a republican is because something is wrong with them. Again, that’s science – that’s neuroscience. You cannot be well adjusted, open-minded, pluralistic, enlightened and be a republican.
+ - I despise in others my own characteristics.
+ - I’m grateful for any opportunity to act.
+ - I do not enjoy when people don’t like me.
+ - I don’t understand why, in entertainment, the hours are as long as they are. It seems like everything takes forever, and no one can tell you why exactly.
+ - If you aren’t overly effusive or really nicey-nice with the press, you get a reputation for being outspoken or difficult.
+ - I would have to say loneliness is next to uncleanliness.
+ - Iraq is a manufactured conflict for the sake of geopolitical dominance in the area.
+ - You know, I’ve had Botox. The woman who does it is very good, obviously. Very conservative.
+ - What has Iraq done to us?
+ - Tina Fey is part of a generation of women who have changed the face of comedy at ‘Second City,’ ‘SNL,’ in sitcoms and in film.
+ - To combat social awkwardness, I would just act like I couldn’t be bothered – that kind of aloof persona or aloof demeanor. It’s so off-putting.
+ - I can do most anything and not have a problem with it. The only time I have negative attention is when I run naked through the streets brandishing a handgun.
+ - I was thrilled to work opposite Carl Reiner and Robert De Niro. Mr. Reiner was very chatty and delightful, but I learned that if you want Robert De Niro to like you, don’t speak at all, and he’ll be friendly to you.
+ - I don’t think that the administration is being particularly honest with the American people about what this is going to cost in life and in dollars, what the dangers are, retaliatory strikes, once it happens. This is not a war that needs to happen immediately, if ever.
+ - I guess intractable right-wing ideologues are my mortal enemy.
+ - The handful of corporations that own most of the media outlets have an interest in reflecting establishment views.
+ - How is it that this debate has been twisted on its head, that somehow those that advocate peace and diplomacy are anti-American?
+ - No no no! Don’t clap! No no no, you make me seem like I’m like a prophet or something and I’m so not!
+ - I mostly get takeout, I have to admit – I don’t know if that’s something to be ashamed of. I’m not much of a cook.
+ - You can’t have cinema by committee if you’re trying to do it well.
+ - I guess I just prefer to see the dark side of things.
+ - I don’t know that I would need to be famous as a Middle East policy expert to see that unilateral imperialism is bad policy.
+ - Anybody who French bashes just might as well wear a badge that says ‘I am a follower! I don’t think for myself and I have no idea what I’m talking about.’ That would be a French basher.
+ - My dream would be to be on a show that shoots in New York, because I live here, and then I could walk to work.
+ - I would say just in general, in life, I’m more willing to be animated as a person, and so obviously onstage as well.
+ - So, apparently, if you are a pre-sentient mass of cells, this country will protect you and your rights to the n-th degree. If you have made the mistake of becoming an Iraqi citizen, apparently we can just drop bombs on you with impunity.
+ - If you don’t do any self-examinations or see a doctor ever, you’ll live forever. That’s how you do it. The diagnosis is what gets you. You just have a don’t ask, don’t tell policy with any and all bodily functions.
+ - Let’s be very honest about what this is about. It’s not about bashing Democrats, it’s not about taxes, they have no idea what the Boston tea party was about, they don’t know their history at all. This is about hating a black man in the White House. This is racism straight up.
+ - I say at this point, for different reasons, Bush and Hussein are both very threatening to world peace and to deny that is to be incredibly naive.
+ - Well I don’t know what the city of Hollywood knows about foreign policy, but do I know that a lot of people do learn and educate themselves about policy and I don’t have to be a policy expert to know that this will be a disaster.
+ - I absolutely realize that a celebrity spokesperson is not ideal.
+
+99 quotes

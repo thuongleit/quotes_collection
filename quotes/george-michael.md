@@ -1,0 +1,65 @@
+ - You’ll never find peace of mind until you listen to your heart.
+ - Be good to yourself ’cause nobody else has the power to make you happy.
+ - It’s the ones who resist that we most want to kiss, wouldn’t you say?
+ - I still believe that music is one of the greatest gifts that God gave to man.
+ - All we have to see is that I don’t belong to you, and you don’t belong to me.
+ - If someone really wants to hurt you, they’ll find a way whatever. I don’t want to live my life worrying about it.
+ - Change is a stranger you have yet to know.
+ - I went through a long period where I was afraid of doing things I wanted to do, and you get your courage back, which is what’s important.
+ - Stars are almost always people that want to make up for their own weaknesses by being loved by the public and I’m no exception to that.
+ - I’m surprised that I’ve survived my own dysfunction, really.
+ - I have never thought about my sexuality being right or wrong. To me it has always been a case of finding the right person.
+ - Only time will set you free, just like me.
+ - I have to believe that somebody up there thinks I’ve still got some work to do.
+ - Because of the media, the way the world is perceived is as a place where resources and time are running out. We’re taught that you have to grab what you can before it’s gone. It’s almost as if there isn’t time for compassion.
+ - It’s important to me that I should be free to express myself.
+ - Teacher, there are things that I don’t want to learn.
+ - Stupid cupid keeps on calling me, but I see nothing in his eyes. I miss my babe.
+ - The truth is my love life has been a lot more turbulent than I have let on.
+ - I had to walk away from America, and say goodbye to the biggest part of my career, because I knew otherwise my demons would get the better of me.
+ - When you shake you ass, they notice fast. And some mistakes were built to last.
+ - People, you can never change the way they feel. Better let them do what they will. For they will, if you let them, steal your heart.
+ - English people have seen me get through scandals.
+ - I’ve done too many stupid things for there not to be movies made about me when I’m dead, so I might as well write the script.
+ - I think the media is a real demon.
+ - Playing with Queen was the biggest moment of my career. It was like living a childhood fantasy.
+ - It was like I had a curse on me. I couldn’t believe how much God was piling on. There was so much death around me.
+ - I don’t really think that there is anyone in the modern pop business who I feel I want to spar with.
+ - Without despair, we will share, and the joys of caring will not be erased. What has been, must never end, the joys of caring will not be replace.
+ - I have the audience I deserve. Or at least I have the audience that represents the kind of people that I like.
+ - I define my sexuality in terms of the people that I love.
+ - I am a political person, though not with a big P.
+ - I’m the luckiest writer on earth.
+ - You can have my credit card, baby, but keep your red hot fingers off of my heart, lady.
+ - I am really not interested or excited by repeating former successes.
+ - I have never felt any ethnic connection between the Greeks and me other than how hairy I am.
+ - Even though it’s become a really cliched thing to see musicians working for charity, it’s still effective and it still has to be done.
+ - I think for most of us, our biggest frailties are sexual.
+ - I don’t have joy in watching myself, whereas, actually, I quite like listening to my own music.
+ - It’s absolutely essential that we have the same safeguards that straight couples do. But I want more than a 50 percent chance of success. I don’t want to emulate that.
+ - There’s not another drug in life that I’m glad I took but grass.
+ - Everything was going my way. I was happily marching into the history books. Then it all just fell apart.
+ - Yeah, I’m going to need a leather jacket for when I’m on my hog and need to go into a controlled slide.
+ - The whole business is built on ego, vanity, self-satisfaction, and it’s total crap to pretend it’s not.
+ - Say what you want about America – thirteen bucks can still get you a hell of a lot of mice!
+ - I don’t want to look at other people my age in leather. Why would I put it on?
+ - There is no such thing as a reluctant star.
+ - It’s almost required with major artists that there’s some duality. And I’ve got duality everywhere.
+ - With pop stars or film stars, we become the object of people’s self-definition, as well as the object of sexual definition.
+ - I’ve never done anything so political before. I’ve spent years shouting my mouth off about serious issues over dinner tables but never really had the confidence to express my views in a song.
+ - I left school at 17 and was a star by the time I was 18 – in certain parts of the world anyway.
+ - I probably owe an apology to fans that have been supportive and have not wanted to believe any of this was true. It takes a little bit of the sheen off of the mystique.
+ - I can’t bear Catholicism.
+ - I want to make a pop album – something more upbeat than my stuff was in the ’90s.
+ - I’m not anti-American. I’ve lived with Kenny, a Texan, for six years.
+ - Satire is used for political purposes all the time, but obviously there’s a time and a place. I think in the current climate, it can be very difficult to speak your mind, but sometimes, I believe, we’re all in danger and I think this discussion needs to be widened.
+ - I don’t consider Americans bullies, but I do consider the American government bullying.
+ - For a while I took Ecstacy when it was not very available over here. I took it simply because it made me feel that everything was wonderful.
+ - Your political system is actually too democratic. The fact that Americans vote on every bill and proposition can prolong bigotry indefinitely, especially where it is aimed at minority groups.
+ - I went to prison, I paid my bill.
+ - I’ve been very well remunerated for my talents over the years so I really don’t need the public’s money.
+ - I really have no plans for any kind of career in TV or anything, but if I wanted to become good at it, I could. But I don’t really think it’s in the cards.
+ - Celebrity and secrets don’t go together. The bastards will get you in the end.
+ - I spent years growing up being told what my sexuality was.
+
+63 quotes

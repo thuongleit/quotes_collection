@@ -1,0 +1,218 @@
+ - The only time you should look back in life, is to see how far you have come.
+ - Hard work and determination equals success. Nothing comes easy. Put your mind to something.
+ - Being humble matters.
+ - Everybody wants to be famous, but nobody wants to do the work. I live by that. You grind hard so you can play hard. At the end of the day, you put all the work in, and eventually it’ll pay off. It could be in a year, it could be in 30 years. Eventually, your hard work will pay off.
+ - Life is too short to worry about what others say about you. Have fun and give them something to talk about.
+ - My goals are so high that I don’t have time to relax, in any way shape or form.
+ - It all depends on what you’re willing to invest time and effort in and put your mind to. That’s what separates winners from losers. Winners are the ones who want the most out of their opportunities.
+ - Everybody wants to be famous, but nobody wants to put the work in!!
+ - The best feeling in the world is seeing the benefits and rewards of hard work.
+ - I love making people laugh. And I love laughing.
+ - I am who I am today because of my mother.
+ - I don’t care how busy I am – I will always make time for what’s most important to me.
+ - Relationships are like farting, If you push too hard things could get messy real fast.
+ - My experiences in life are getting bigger and better. The more stuff I do, the more stuff I talk about – having kids, traveling, going through relationship problems, dealing with things in my own family. All that stuff builds character.
+ - How the hell do you wake up dead?
+ - The day you stop doing the small things is the day you think you’re above everybody else.
+ - No matter what, people grow. If you chose not to grow, you’re staying in a small box with a small mindset. People who win go outside of that box. It’s very simple when you look at it.
+ - If you’re my bestfriend I shouldn’t have to ask you to lie for me.
+ - When people get married young, you don’t really understand the true definition of marriage.
+ - My business acumen is definitely growing.
+ - There’s a difference between who we love, who we settle for, and who we’re meant for.
+ - I don’t write material. Funny things happen to me in the course of a day, and I just make notes.
+ - I didn’t work hard to sit down and not work.
+ - Laughter heals all wounds, and that’s one thing that everybody shares. No matter what you’re going through, it makes you forget about your problems. I think the world should keep laughing.
+ - Some people love so hard that they can’t control those emotions when they’re at their deepest point.
+ - I took my daughter to the father-daughter dance and I cried like a little baby. She’s 11 years old, so seeing her get dressed up and pretty made me cry.
+ - I don’t use Twitter for bad.
+ - If you give up at the first sign of struggle, you’re really not ready to be successful.
+ - Really, I don’t like roller coasters.
+ - Because of what I do, it has to be an open book, but right now this is a book that is being written.
+ - People who eat with their mouth open should be punched in the face.
+ - I never do anything that I don’t want to do.
+ - I stayed true to my dreams and, eventually, they came true.
+ - Some sarcasm is best told simply.
+ - Believe it or not, I make myself laugh. Sometimes when I have thoughts or say some things that are funny, it just makes me laugh, and I don’t mind laughing at it before you guys do.
+ - My upbringing was solid because of the people I had around me.
+ - I want to be funny, but it has to be a believable funny.
+ - I love that I can tell the truth and have people laugh at it.
+ - Take me and my role seriously. Take my talent seriously.
+ - My goals are so high.
+ - It’s a well-known fact that tall people are evil.
+ - Success isn’t supposed to happen, no matter how hard you work. There’s no guarantee you’re going to succeed. There’s nothing set in stone.
+ - Everybody that’s successful lays a blueprint out.
+ - You do projects with the hope they will be big and hope they will go beyond what you imagine.
+ - My mom was very strict. She didn’t let me watch anything rated R or anything with cussing.
+ - I think if someone gets kicked in the face it is their fault – they watched the foot come towards their face.
+ - I’ve been known to preach.
+ - The second time around, I’ll understand that, as a husband, my wife doesn’t care about my opinions. I just need to tell her the things that will continue to help me stack the brownie points.
+ - I have good laugh every day. I enjoy life. I’m surrounded by love and positivity.
+ - Is everything funny? For me, yes. There’s a positive to every negative. Even my divorce? For me, yes. If you go back and look at it, why it happened or how it happened, there’s something in there that’ll make you laugh.
+ - I don’t want enemies. I want friends, and I want them in all shapes, sizes, and colors, and loving whoever they want to.
+ - My mum passing away wasn’t funny, but that funeral and what I went through, the things that happened, looking back at it, there were funny moments. You have to be strong enough to look back at it, to sit and assess the situation.
+ - I shouldn’t have to ask for your permission for me to put you in my lie!
+ - All men hate the nagging.
+ - What women need to understand is that men don’t communicate. It’s not intentional or on purpose. We’re just not as emotional. You ladies feel like you have to express yourselves.
+ - I am an angel. I was sent here from God to heal.
+ - I’m a businessman as well as an entertainer. The reason why is because I want to own whatever I’m doing. I don’t want to work for other people forever.
+ - People don’t want drama 365 days a year. I’m a sense of relief; it’s my job to take your mind off what’s bad for that brief second you’re in the room with me, regardless of shape, race, colour or anything. It brings people together, and it makes me feel good about what I’m doing.
+ - My daughter doesn’t even get my humor. She’s like, ‘Um, no. I don’t get it, Dad. Mmm, no, not that one, Dad.’
+ - The funny thing is, all my friends are short. I wasn’t aware of tall people till I got to high school. I didn’t know they existed. I was sheltered.
+ - You don’t have to treat people differently. You may be living a different lifestyle, but the person living that different lifestyle still can relate to anybody and have the same amazing personality of the guy from North Philly.
+ - When you’re coming up with new material, it’s not always gonna be good. The only way to learn is for it not to get a laugh, so you can adjust it and come back the next day to see if it’s working right. Next time, you might get a different laugh. You’re constantly rebuilding.
+ - I don’t think you get successful to brag and throw what you have in the world’s face. That’s all private.
+ - I’m never gonna step away from stand-up. I can’t. That’s what got me where I am, and that’s also my muse. That’s how I stay level-headed. That’s what keeps me going.
+ - I love being on stage, I love being able to tell a story, I love the fact that the audience listens and laughs at it. It makes me happy, and it’s what I live for.
+ - The sound of the headboard, that’s motivation.
+ - The original ‘About Last Night’ was phenomenal.
+ - The kind of poetry I write, lyric poetry, I think is really concerned with intimacy, with mystery. That needn’t be religious mystery, there are mysteries to do with everyday life.
+ - You get one life. I’m going to embrace mine.
+ - I love women with attitude.
+ - I only wanna go up the steps toward a different level of stardom. The BET Awards was one of those steps, the VMAs was another huge step. And the next step, eventually, hopefully, would be the Oscars.
+ - I don’t take pictures when I’m with my kids, for the sake of my kids. It’s important when you’re as busy as I am that you give your kids your time when you’re with them, and nothing compromises that. I’ve been lucky enough to have fans that understand that.
+ - I think death is not simply the last few moments of life, death is something that runs throughout the whole of life. Each of our moments is not only the possibility of affirmation, but it’s also we’re saying farewell at each moment to something.
+ - You’ve gotta understand that with branding and the way things are promoted, in our day and age, your older movie stars are not reachable or accessible because they’re not a part of the whole social media world.
+ - Hollywood has a way of making everything seem like an overnight success.
+ - Just because your environment or living space changes doesn’t mean that your attitude necessarily has to change.
+ - I’m very scary. I’m a menace.
+ - I’m trying to do what Eddie Murphy did for his generation. You have to show people, ‘I’m different. I’m not just a comedian.’ I’m trying to become a rock star.
+ - I’ve done auditions where the casting director is taking the paper out of my hand in the middle of reading.
+ - All I can do is try to create my own brand and have people appreciate me for that.
+ - The good thing about having chemistry is, when you get to the improv section of a scene, you’ve got somebody to feed off. It can go on and on and on, and the sky’s the limit.
+ - Barbra Streisand has accomplished so much, and Dustin Hoffman as well. They are down to earth and approachable. I admire that.
+ - I got a dog with a Napoleon complex. I have a Napoleon complex. We’re small. Anything big that we feel is threatening us, we want to fight. We’re not a pushover.
+ - When you work hard and you treat people great, regardless of what it is that you’re doing, naturally people want to help and do things.
+ - I can honestly say, after talking about my mom passing away, I got the biggest weight off of my chest. Comedy is my therapy. That’s how I deal with my problems, my personal battles. I talk about it. I give it to my fans. When they laugh at it, it’s a release, for lack of a better word.
+ - Men are like lions. We hunt.
+ - I know a dramatic role is going to happen, but you just got to be patient, you know? It’s going to happen when it’s supposed to happen. I’m not rushing it. I’m not trying to make it happen tomorrow.
+ - HartBeat Productions is a company established by me; it’s mine. I run it. I have employees.
+ - The thing about impressing your girlfriend is that when you do something like a private island in Fiji, it’s all downhill from that point.
+ - I’m pretty much an open book. I’ve pretty much talked about anything I’m going through onstage. Between interviews and curious fans, I’ve been asked everything. And I always give answers. I don’t shy away from anything.
+ - The two things in the world we all share in this world are laughter and pain. We’ve all got problems. The levels of those problems vary, but we’ve all got problems. When you can take things that are painful and make them funny, that’s a gift – to you and your audience.
+ - My kids are coming up in a different time then me. Interracial couples are of the norm. With me, it’s about making sure my kids understand the importance of education and having opportunities that I didn’t. My goal as a parent is to make sure they don’t take what they have for granted.
+ - I was the guy on the swim team entertaining the bus on the way to the meets.
+ - I think sometimes celebrities get so big, they’re not reachable.
+ - I just don’t believe people can tame animals.
+ - I feel like whatever you’ve done in your career, good or bad, it’s nothing but preparation for the big events to come.
+ - If you look at me in ‘Ride Along,’ even though I’m playing two different characters, my demeanor and my tone were not aggressive.
+ - I’m trying to maintain a level of realness that my fans can appreciate.
+ - I think poetry has started to take on a supplementary role of prayer for some people. The churches, I think, including my own, are terrible at teaching people how to pray. It may be that we need to learn from the ground up as religious people, whether Christian or not, how to pray.
+ - Every relationship should eventually become a long-term relationship. Any director that I meet now isn’t just a director. He’s potentially a friend, and someone I can call to do a project that I want or that I have. That’s what I mean when I say branding and developing yourself, as a business.
+ - The people around me haven’t changed. The people who have been in my life since the beginning are still in my life now. I think that has a lot to do with my staying grounded and humble despite the success I’ve achieved.
+ - Genuinely love doing standup and I’m a comedian first, so for me what makes my standup special is the fact that I don’t have to adapt or adjust. I am who I am. I appeal to everyone, hence in the movie doing a world tour.
+ - I like the fact that now my understanding for entertainment and the entertainment business is completely different from what it was when I first came in. I get the business side of it.
+ - When you’re supposed to be close and friends in the film, the moment you’re talking as friends off the set, it makes it that much better when you’re filming.
+ - I love soft-cotton white T-shirts.
+ - I think, first of all, I don’t think people understand Ice Cube’s body of work. Ice Cube is a, and I hate to use the word ‘urban’ but – when you think of Judd Apatow, and a person who’s launched so many careers, Ice Cube has done that for so many comedians, you know?
+ - Before I look stupid and not know what a word means or how to pronounce it, I’ll stop the whole production, “Hey, real quick, guys. Define this word for me. Somebody.”
+ - Men and women do think differently, and frankly, we don’t understand each other. Not at all! But that’s what makes relationships so amazing.
+ - A reputation as a hard worker is a good reputation to have.
+ - People like to hear the word ‘love.’
+ - Having other comedians complimenting my work is the biggest accolade that I can get.
+ - I’m a Buffalo wing magnet, a sandwich fanatic, a cheesesteak guy. But I’ll only get a cheesesteak in Philadelphia. No one else does it right.
+ - At the end of the day, I want to be part of the same conversation as Chris Rock, Eddie Murphy, Dave Chappelle, Bill Cosby and Richard Pryor.
+ - I learned from the guys before me – Bill Cosby, Eddie Murphy, Chris Rock, Richard Pryor, just to name a few. These are guys that let it all hang out. What they lived is what they took to the stage.
+ - If you want to appeal to everyone, you can’t do a world tour and expect black people to show up at every date – when you’re in Australia, when you’re in Dubai, when you’re in Indonesia.
+ - I’m a whopping 5 foot 4 inches tall. I’m not going to get any taller.
+ - You don’t want to pigeonhole yourself.
+ - At the end of the day, women are a distraction. Whether you realize it or not.
+ - Every poem that I write is, in a sense, trying to find adequate words for this unspeakable word, around which my entire life turns.
+ - Comedy’s about opening up and being unique, but to a point where the audience can relate to what you’re saying.
+ - I ain’t never called nobody no redskin. I’ve never been mad, like, ‘Get out of this restaurant, you redskin.’
+ - I’m more of a realist when it comes to life, and I’d much rather my mother be in a spiritual place in Heaven than in a bed, sick, fighting for her life.
+ - I am capable of holding the quote-unquote ‘title’ of leading man. Leading man just means people want to see you and assume that you can hold a film, carry a movie.
+ - As soon as we try to write the simplest sentence about God, we find ourselves in anxious perplexities, but when we stop trying to write about God and talk with God, God is there and we can talk with God.
+ - I’m sure everyone knows now that only a few have performed in Madison Square Garden. That list is so small. Now I’m on that list. I’m a part of a very small group, which is unbelievable. You relish in that moment for a second.
+ - I can get where some scientists would say comedians are crazy. What you have to understand: A lot of comedians are dealing with a dark passion. A lot of these are guys coming from a tumultuous life, including myself. Some people need outlets, a way to express yourself.
+ - I know how I get hard. Running on a treadmill behind women in a gym normally does it for me.
+ - I didn’t want to lift weights and get all big; I just wanted to get cut.
+ - My daughter has impressions that she does of me.
+ - I promise you, I will have something on the Internet that is game-changing. I can’t lose.
+ - Stand-up comedy is mine: it’s my entity; it’s my brand; I own it. I do it when I want to do it.
+ - I understand that being able to appeal to the public and having an amazing sense of humour is not something that comes easy. It’s definitely a gift and for which I’m thankful.
+ - My drive is other people’s success.
+ - I performed in a bowling alley before while people were still bowling. Cut the check, and I will perform anywhere.
+ - No man wants to settle down. It happens. Eventually you’re going to bump into somebody that makes you go, ‘Hmm, I don’t mind seeing this person every day.’
+ - I was probably tall as a child, but I just stopped growing.
+ - My goal is to make everyone and anyone a fan.
+ - My main goal is to be a self-made man and have control over what’s mine.
+ - The day Rick Ross dives into the crowd, is the day we find out who his true fans are.
+ - At the end of the day, your fans are the people who support you in and out. And their opinions matter.
+ - The movies and all that stuff are great, but the fact that I’m in a position to do what I want to do, however I want to do it and when I want to do it is bigger.
+ - Comedy Central was a great network, but ‘Chappelle’s Show’ took it to a completely different level. Other shows got bigger because so many viewers were watching the ‘Chappelle’ reruns. For BET, the ‘Real Husbands of Hollywood’ has that same potential.
+ - I go onstage and I talk, and I remember what I’m saying, and I track it.
+ - I make a lot of expressions constantly. I’m animated.
+ - People don’t want to hear about me having leather walls or gold toilets.
+ - The one thing about the business of entertainment is that you have to learn patience.
+ - My kids are the funniest two human beings there are.
+ - I don’t know about other people, but I love to work.
+ - I’ve pushed several women in front of violent situations. My rule is save myself first.
+ - The most important thing for a director is being able to communicate. When you communicate comfortably, regardless of what you’re saying, it can always be processed.
+ - I got a chance to work with Stallone and De Niro – pretty much sums it up for me. You can tell where you’re going in your career by the company you keep.
+ - I’ve turned down shows offering large amounts of money.
+ - Expect me to continue what I’ve been doing, which is trying to take over the world.
+ - I don’t have to change anything. I think that’s the secret to comedy. You want to be universal and appeal to everyone.
+ - I wanna produce, write, and direct my own projects, and eventually fund them. I wanna be a mogul.
+ - I’m a health nut, but when I eat, I go hard.
+ - My son is becoming me – just a silly, silly prankster guy.
+ - Here’s the thing. We do a movie with a predominantly black cast, and it’s put in a category of being a black film. When other movies are done with a predominantly white cast, we don’t call them a white film. I’m trying to remove the stigma off things they call black films.
+ - You can do the same thing with $20 million that you would do with $50 million. So at a certain point in your life and in your career, you realise that it’s not about the money.
+ - I think women go crazy for a reason. It’s not like it just happens.
+ - A lot of blood, sweat, and tears have gone into this career of mine.
+ - I don’t know if I’m at the relationship advice stage yet. I do have a lot of information to share, and a book is definitely in the works, but I don’t know whether it’ll be geared towards relationships.
+ - My rule is to save myself first.
+ - This younger generation that’s around, that’s tweeting, Facebooking and Vine-ing, the fans appreciate that because they feel like they can get to you.
+ - In comedy, my strengths are improvisation.
+ - I like playing basketball and going to the gym. I don’t box, but I’ll ride my bike and go jogging or running in the park. Sometimes my lady and I go hiking.
+ - I would spend absolutely every last minute with my kids, telling them how much I love them and how much I would do for them.
+ - If you look at me close enough, there’s a small resemblance to a chicken nugget. I don’t know if it’s my skin texture or my hair, but the resemblance is definitely there.
+ - I’m good friends with Jay Leno, good friends with Ed O’Neill, Melanie Fiona and Russell Simmons.
+ - I just want to be a great example to younger kids.
+ - My success comes in making fun of whatever you’re doing. That’s my way.
+ - Going through my divorce has changed who I am in my understanding of what’s good and bad in relationships.
+ - What you find I think in the mystical strain of Catholicism is that you’re put in relationship with God, and you have many opportunities not only of talking with God in petitionary prayer, but also of listening to God, being attentive to God, as happens in contemplation.
+ - On ‘Think Like a Man,’ they got the best out of me because they allowed me to bring my own cadences and opinions to the character that I was playing. I think we got the best of that particular character.
+ - I try to be funny and not ignorant.
+ - The beauty of me being on stage is I have a voice.
+ - Because I’m small, I’ve been called things from ‘Happy Feet’ to ‘Little Face.’
+ - Dialogue means debates and everyone’s point of view.
+ - I’m not the most attractive fella. I’m not a Billy Dee Williams. Personality is everything.
+ - My dad was never married. He was kind of a rolling stone. But he was never disrespectful. At the same time, even though he had women in his life when I was a kid, there wasn’t any consistency.
+ - In acting, you have to pull from real-life situations, from people, to help develop a character.
+ - It’s very rare that you get a director that lets you be creative and bring what you feel your character should do or should be.
+ - I feel like I have a job to do, like I constantly have to reinvent myself. The more I up the ante for myself, the better it is in the long run. I try to interact with my fans as much as possible. It’s good that the person I’m being onstage isn’t really an act. It’s really me.
+ - The racehorses assemble at the starting barrier in all the finery of a mediaeval pageant, the jockeys in silks like figures from a Tarot pack, the bookies in leather and tweeds standing beside their boards each confident that the future has been controlled.
+ - There’s so much you can achieve with a launching pad like stand-up comedy. You can literally go from acting to hosting to being a personality.
+ - I am in control of my career, and that’s what so many actors don’t take advantage of. You get to these successful points, and you continue to just work for other people. But, when you’re your own brand and you’re your own boss, the whole line of work changes. That’s my biggest turn on.
+ - Sports are basically our way of feeling sorry for ourselves. Most men can’t become athletes. We’re watching guys who actually made it. We see them dunking and making touchdowns. Then we think about ourselves when we were younger.
+ - I’m happy about working; I’m happy about gracing the stage and coming out and making people laugh. I never treat it like a job or feel that way. It’s the best thing ever to me, and I feel like a kid in a candy store.
+ - I’m not going to stop having problems.
+ - I love to pop up at the movie theaters. I love to treat the people who are there.
+ - People want to act like they know celebrities. They want to see pictures. They want to know where you’re going. They want to hear you talk about your family.
+ - My Twitter reflects what’s going on with me in my life.
+ - Almost anything can be funny if said the right way – but it has to be said the right way.
+ - Any hand that I’ve shaken, any person that I met when I was Joe Blow, now that I’m this guy, has come back. That’s why I treat everybody with respect. I’m always a nice pleasant guy to meet because when they come back to you, they remember.
+ - Did I try to embarrass other people? Now if it’s about other people, guilty guilty guilty guilty.
+ - I know how easy it is to put your foot in your mouth.
+ - I don’t think comedy will ever die.
+ - Chris Rock does the political thing really well, but that never worked for me.
+ - Bieber has 10 million fans – most are in middle schools, or standing at least 500 feet away from one.
+ - I can’t cook, but I can make a turkey and cheese sandwich like nobody else.
+ - Some sarcasm is best told simply. Some humor is best told big and some is best told small.
+ - I had one incident where my daughter said that a girl asked if she was a brown person. I said, ‘We’re black. You have black people, white people, Chinese people, Hispanic people; we’re all brought up differently.’
+ - When you have box-office results, Hollywood treats you different. Hollywood stands up. Once you get to the point where Hollywood sees that you create results, then the demand for you becomes higher.
+ - You might be the funniest guy in the world, but if you don’t have anything to talk about, people are eventually going to gravitate towards the guy that’s actually saying something.
+ - People see me on the street, and they point to me, and they’re like, ‘Hey! All right, all right, all right!’
+ - I don’t see how people are comfortable with seeing other people be great. You can be happy for anybody, but what is your excuse to not want to be great? These people are great because they just say, ‘I’ma do that,’ and they do it. That’s it. There’s no scientifical process.
+ - I’m not a big politics guy.
+ - Winners are the ones who want the most out of their opportunities.
+ - Stand-up can take you in so many different places, man. So many doors can be opened up from stand-up comedy, and the first one that was opened up for me was acting.
+ - I’m not Russell Crowe. I’m not going to do a period piece.
+ - For me, the way I stay consistent is through stand-up comedy.
+ - My lady makes me do it. I sang Whitney Houston’s “Bodyguard”.
+ - When I was married, I definitely went through a lying period.
+ - You see some of the weirdest people in Detroit casinos.
+ - The most important thing for a director is being able to communicate.
+ - Some people come to work and that’s exactly what it is – work.
+
+216 quotes

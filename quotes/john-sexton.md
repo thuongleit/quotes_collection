@@ -1,0 +1,41 @@
+ - So when I became interested in photography and further being inspired by the work that I saw of Ansel and others, it was a natural extension to go back to these places that I knew as a kid and explore them with my camera.
+ - The greatest compliment that I know how to pay another photographer is to say, ‘I never would have made that photograph myself. I’m sure glad you did.’ You hope along the way that maybe, once in a while, you do that for someone else.
+ - I took a workshop from him a few months after that. That experience changed my whole approach to photography. At that workshop in Yosemite in 1973 I decided I wanted to try and see if I could pursue this for myself, and I’m still trying.
+ - I make photographs and still make photographs of the natural environment. It’s a love because that was part of my life before I was involved in photography.
+ - It had rained on some vivid green ferns in Maine and it was quite beautiful. I was moving the camera slightly and studying the ground glass. Looking at those 20 square inches, trying to find out just what were the right elements to include.
+ - He was a very generous soul and was exceptionally dedicated to the medium of photography.
+ - In my mind I needed a symbol of today’s technology, and I realized that what I wanted to photograph was the Space Shuttle. And so that’s where Places of Power came into being.
+ - So to me it’s very similar in terms of trying to distill within the image, those elements that are gonna form, hopefully, a compelling visual statement.
+ - Pictures you have taken have an influence on those that you are going to make. That’s life!
+ - When I teach and meet a class for the first time, you realize that there are people there that have exceptional abilities or have the potential to do exceptional things and you never know who those people are. My job is to provide the best information I can.
+ - I support any procedure that allows photographers to express themselves, whether that involves color, black and white, platinum, palladium and digital technology.
+ - It was an experience that was exceptional. People frequently ask what it was like and it truly was inspiring. Sometimes during his lifetime, people would try and put him on a pedestal and that’s not where he wanted to be, but he was really a great individual.
+ - A photographer needs to be a good editor of negatives and prints! In fact, most of the prints I make are for my eyes only, and they are no good. I find the single most valuable tool in the darkroom is my trash can – that’s where most of my prints end up.
+ - We all start in this medium because of the magic and the challenge is to keep it going.
+ - When I’m about ready to press the cable release on the View camera, I’ve tried to anticipate some of the challenges I’m going to encounter in the darkroom.
+ - And the camera position, the organization, looking for repeating forms, shapes, trying to set up a visual rhythm seemed to come very natural. All of a sudden I was in a forest of aluminum and steel rather than a forest that we might think of in a traditional sense.
+ - I really don’t have any secrets. I’ve never met a photographer whose work I respected that had a secret because the secret lies within each and every one of us.
+ - It was amazing to watch him in the darkroom at an advanced age, still get excited when the results were pleasing. He still struggled like we all do in the darkroom and he struggled behind the camera, and when he had a success he was beaming.
+ - I find the single most valuable tool in my darkroom is my trash can.
+ - Whatever it takes to get the image to reach that level is what that photographer needs to do. And for me, I just have such a love of the tactile and sensuous quality of a black and white silver gelatin print.
+ - I think the greatest photographers are the amateur photographers who do it because they love it. Arnold Newman is a good example; he is a consummate professional, but he’s also an ‘amateur’ in the pure sense of the word.
+ - There is a considerable amount of manipulation in the printmaking from the straight photograph to the finished print. If I do my job correctly that shouldn’t be visible at all, it should be transparent.
+ - In 1979, I received a phone call from Ansel Adams asking me if I would be willing to consider coming to work for him. I was teaching photography in Southern California at that point.
+ - I’ve found even after nearly 30 years of doing this, there are all kinds of new surprises that rear their heads at various times and I truly believe that 51% of the images, success takes place in the darkroom.
+ - And then as I frequently do, some times I’ll peek out from underneath the focusing cloth and just look around the edges of the frame that I’m not seeing, see if there’s something that should be adjusted in terms of changing the camera position.
+ - It’s not a question of getting the opportunities, it’s a question of noticing that opportunities are there.
+ - Many photographers are consumed with the idea of making beautiful contact sheets. I am far more interested in making the best final print I can.
+ - And friends of mine that had photography class in high school would develop the film and make prints and I’d take them back to the track and give ‘em away or try and sell them. Much to my parents’ dismay, I majored in photography in college.
+ - I’ve never seen a surface that I think is more seductive in image making.
+ - Obviously, we can see what was in front of the camera, but if a photograph is honestly made, it’s a bit of a self-portrait. I think it’s impossible for a photographer who is working honestly to keep this from happening.
+ - I find the surface of a photograph a thing of beauty in and of itself, and it is this surface that makes a photograph unique relative to other two-dimensional media.
+ - Having photographed the landscape for a number of years and specifically working with trees and in the forest I found, without consciously thinking about it, that it was a great learning experience for me in terms of organizing elements.
+ - To me, photography is 90% a retrospective experience. There’s the part of pursuing the image, and exposing the film, but once you make the exposure, you’re always looking backwards in time. I like that aspect of photography.
+ - The first day at the power plant I found myself photographing some steam vents on the roof of the structure. And I remember consciously thinking that they were just like trees but they were metal.
+ - The reason I do workshops is so I can learn, and I am fortunate that I’ve probably gained more from the whole experience of teaching than any one participant has. It is all about asking.
+ - For me the printing process is part of the magic of photography. It’s that magic that can be exciting, disappointing, rewarding and frustrating all in the same few moments in the darkroom.
+ - I remembered seeing it and it was this metallic turbine and I thought it was beautiful. I had never been in a power plant before, but I felt, without being overly dramatic, compelled to make photographs of this for myself.
+ - Today my passion is still black and white. Today if I have an array of cameras in front of me the one I would reach for that I would feel most comfortable with would be a 4 X 5 View camera. I was once working in a sort of soft light situation.
+ - And as part of my activity there, he had indicated he wanted me to work with him on that and conduct the various technical tests. And so a few months later I moved from Southern California up to the Monterey Peninsula where I still live today.
+
+39 quotes

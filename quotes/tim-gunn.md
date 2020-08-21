@@ -1,0 +1,125 @@
+ - Make it work.
+ - Life is not a solo act. It’s a huge collaboration, and we all need to assemble around us the people who care about us and support us in times of strife.
+ - Few activities are as delightful as learning new vocabulary.
+ - It’s so important to reach out to people you trust, and who can give you honest feedback, and keep those people close to you. You don’t want to surround yourself with enablers.
+ - You have no control over other people’s taste, so focus on staying true to your own.
+ - I’m constantly reminding myself that the world owes us nothing. We have to make our way and we have to work hard, persevere and make our own way in the world because the world isn’t waiting for us, so let’s let the world know we are here.
+ - Take the high road. No matter how much strife, and consternation, frustration and anger you might be confronted with – don’t go to that level.
+ - As I’ve matured, I’ve developed more confidence in pattern mixing and in having a slimmer fit and in taking some risks, and I enjoy it!
+ - Exude unconditional confidence.
+ - We can wear whatever we want and get away with it. Just be confident about being who you are and dressing for that person.
+ - Fashion it’s not just about learning how to draw pretty pictures, and how to sew, it’s everything that makes up your life.
+ - Frankly, from my perspective, the bomber jacket is such a classic item you can wear it even when it’s not on trend.
+ - We need to treat each other with consideration. In my world, the squeaky wheel does not get the grease.
+ - My advice to the 10 year old daughter is: fashion happens in a context. It’s societal, it’s cultural, it’s historic, it’s economic, and it’s political. So all of her studies, everything that is happening in the world, all needs to be channeled through her in order to be a good designer.
+ - It’s man’s impact on our world that appeals to me more than just nature running wild.
+ - Whoever’s designing for plus-size doesn’t get it. The entire garment needs to be reconceived. You can’t just take a size 8 and make it larger.
+ - I believe in the semiotics of clothes. They send a message about how the world perceives us. For me it goes beyond clothes, it’s grooming. It’s accessories. It’s the whole head to toe look.
+ - I am the anti-trend guy? I don’t believe in chasing trends. And before anyone shops, I believe you benefit from doing a closet inventory. Ask yourself what am I wearing, what am I not wearing, and you’ll probably discover things you didn’t even know you had.
+ - Life is a collaboration, it’s not a solo act.
+ - If you want to, you can share my teaching refrain: I can’t want you to succeed more than you do.
+ - Remember, channel your inner winner.
+ - I believe in letting karma do its thing. What comes around goes around.
+ - I’ve been in situations where I’ve said to young people: “You’re so personable, you’re so articulate, you’re clearly so bright, you’re so good-looking – feel better about yourself!” But if at the core if you don’t, all those words mean nothing. Absolutely nothing.
+ - I really cherish having my private time and being alone and being able to decompress. It’s my own version of meditating.
+ - When someone new walks into a room, the first thing we notice about that person is probably their gender. And the second things is what they’re wearing. And based on what they’re wearing, we start making certain assumptions about them.
+ - I believe that treating other people well is a lost art.
+ - I have one brand I go to, and it’s Suit Supply, and it’s fantastic. I was spending $3,500-$4000 on a suit, and the suit I’m wearing today was $500. And they last you forever. The shoulders are set in by hand, it’s phenomenal.
+ - The clothes we wear send a message about how the world perceives us.
+ - I learned from teaching. If you are perceived by the student to be belittling them or purely criticizing them without offering up words of encouragement and support, they shut down and discredit you.
+ - At all costs, avoid clothes that are too big. The more volume your clothes have, the more volume you appear to have.
+ - I hate crocs. May they please go away.
+ - I will say that the high road can get so high that you can get a nose bleed, in which case you have to get off the high road.
+ - I learned quickly that if the student’s perception is that you’re not listening to them, and not understanding them, they discredit you.
+ - Life is a big collaboration – and when you’re tackling something that is painful and troubling and is causing you such desperate grief that you think life’s not worth living – you need to reach out. To people who will reach back.
+ - Just the way it never rains when you have an umbrella, you’ll never run into people if you look fantastic. But go outside in pajamas, and you’ll run into every ex you have.
+ - Mood has a scuba section? Who knew?
+ - You can be too rich and too thin, but you can never be too well read or too curious about the world.
+ - If you’re wearing a jacket, as I always am, the sweater vest always needs to be buttoned, with the exception of the bottom button. But if you’re going sans jacket, you can leave it open.
+ - Most people wear clothing that is too big or too small for them. And “oversized” is the downfall for most of us. We have to be careful that we don’t look like we’re slipcovered!
+ - And I’m the first one to tell people to break the rules. But you can only break the rules once you know what the rules are. The other thing is, fashion is the last design discipline to actually have academic texts and historical analysis.
+ - I haven’t had a date in 26 years.
+ - When it comes to my vocabulary, I felt a responsibility when I was teaching to raise the bar of conversation in my classroom. And with my own students, I refused to let them use the phrase “I like” or “I don’t like” when we were engaged in a critique.
+ - I have my mantra about silhouette, proportion, and fit. I believe that when they are in harmony and balance, you’ll look great in anything.
+ - Everyone has a best feature, so find clothes and accessories to accentuate those, whether it’s your shoulders or your long legs!
+ - I found early on in teaching, if you’re too blunt an instrument, the students discredit you and think you’re just being mean. They’re not interested in what you have to say.
+ - I would never dream of telling people how to dress. but I do say to them, however you are dressing, accept responsibility for it. And also, unless asked, I don’t judge. And if asked to judge – I would approach it socratically, I would approach it with questions.
+ - I wouldn’t know what to do on a date. I don’t have the time. To make a relationship work, I’d have to give something up, and I’m not so sure I’m willing to do that.
+ - So perhaps the real secret to style is filling yourself to the absolute brim with engagement. Loving not wisely, but too well and all that.
+ - Whether it’s fashion or it’s home, it’s all about style. The clothes we wear send a message about how we are perceived, and our home does the same thing.
+ - I love shopping on a budget. I believe that more fashion mistakes are made by people with deep pockets than by those who shop on a budget.
+ - When it comes to dressing, comfort is overrated. A little discomfort probably means your clothes fit and they’re not pajamas.
+ - Leggings are everywhere, indeed. Personally, I’m not crazy about them, but they can look great with the right look, a tunic, for instance, or a long cardigan. Just don’t try to dress them up!
+ - Nothing makes me happier than working with real people in the real world.
+ - Does a man need to know what a peplum is? Probably not.
+ - The fashion industry at large has been the worst public relations vehicle for larger women and petite women, they are both maligned and neglected. And I honestly do believe it’s getting better.
+ - I had this wonderful career and thought I would retire as a teacher.
+ - If you had pockets, you were associated with a labor force. It meant you had things to carry yourself. Otherwise, your lady’s maid or your manservant would have done it for you.
+ - I say long and lean as opposed to tall, because you could be 5 four and look long and lean.
+ - I do things like hem a pair of pants, I do my own tailoring but I wouldn’t attempt a jacket.
+ - People believe that if you’re concerned about the clothes you’re wearing and the larger aspects of your appearance, that it’s anti-intellectual. I say “Hogwash!” The clothes we wear send a message about how the world perceives us.
+ - There’s nothing I like better than going to my apartment, closing the door, cooking my little dinner for one and just tuning out. My apartment really is my haven. It’s a nest where I go to heal.
+ - Most designers want to show apparel that makes the wearer look as long and lean as possible. And most people who buy clothes want to look as long and lean as possible.
+ - With fashion, you really need to understand the aspects of construction. Not just design on an iPad.
+ - If you are going to be catty, you have to be careful with whom you do it, and in what manner! It’s the kind of behavior that is best kept behind closed doors.
+ - I just think the Kardashians have an absence of taste and I don’t think that that should be perpetuated. I’m sorry I’m sounding like an old farty, snob, but it bothers me.
+ - I’ve made more bad decisions at 3 in the morning then I can list!
+ - A couple of things for the not-so-diminutive man: avoid any prints that are large scale, because you will look like the print is wearing you, as opposed to you wearing the print.
+ - The element of fashion I’d like to see more often? Clothes that fit people well. For me it’s not so much about the clothes.
+ - I have a couple of thousand books in my personal library. Choosing a favorite is next to impossible. But I do love the written word.
+ - I don’t believe in the scraping of stuff. Take the existing condition, offer up a diagnosis for what’s wrong, and a prescription for making it work.
+ - On my first day teaching my own classroom, I threw up before I entered the building.
+ - I would say this to my students all the time, it’s about 30% you as the teacher and 70% about them. They tend to think that their role is to be the baby bird in a nest and you’re going to feed them? They’re going to feed themselves, or they’re going to starve.
+ - What’s interesting about textiles is that they are determined about three seasons in advance, that’s why when you walk into a store you think “Gee, everything looks about the same.”
+ - I’ve never mentioned this, but when I was at Parsons teaching, the other design disciplines, they don’t like fashion design. They see it as very nineteenth-century.
+ - People put on certain clothes for certain reasons, I assume, when their closet is filled with clothes.
+ - We all had to search for more words to describe things.
+ - I’m very budget-minded myself, and it serves me well.
+ - When I’m working in the real world with real women and we’re shopping, we find that fashion seems to end when you get any larger than a size 12. How ridiculous is that?
+ - I would certainly rather the industry not go broke, but if that’s what it takes for everyone to acquire some values and lose that sense of entitlement, maybe a little belt-tightening wouldn’t be so tragic.
+ - We shop out of boredom, for release, for excitement, for a sense of achievement, for a sense of control over our unruly existences. And every so often, we shop because we need something to wear.
+ - Staples are only good if they truly suit our lifestyle.
+ - If you don’t have experience sewing, start with that, because that will inform what you are able to design.
+ - In a manner of speaking. I certainly never want to lose my voice as an educator.
+ - I have my flaws and my issues, past and present and who knows what will happen in the future. I want people to know Im vulnerable too and each one of us is.
+ - All the magazines contradict each other because it is so diverse. Know what you like, know what looks good on you and keep doing it, no reason to chase trends.
+ - My manners also came from when I was in college and began participating in critiques. You have to speak with someone respectfully about their work and be honest and open, without hurting them.
+ - If I had to choose a single destination where I’d be held captive for the rest of my time in New York, I’d choose the Metropolitan Museum of Art.
+ - I don’t know if people have gotten ruder or if my tolerance level has declined.
+ - Don’t give up! You’re too talented. You’re too good!
+ - People come up to me and share very personal and intimate things with me, and I am so touched by all the trust they have in me.
+ - It’s not an area where designers want to focus or pay attention – women who are larger than a size 12.
+ - There’s one thing I will not do, ever: I will never talk to you about things you cannot change. It plants a negativity in the head of a designer or the student, and it’s a distraction.
+ - I love Modern Family but it’s among a handful of favorite shows.
+ - The fit of jeans can be worlds apart from brand to brand. If you can find the right fit, skinny jeans can be very flattering.
+ - Success needs to be measured according to the ambitions and the resources of each designer. And many aren’t interested in being a megabrand.
+ - I learned early on in teaching how easy it is to hurt a young person and that’s never my intention.
+ - Why must she dress that way? I think she’s confused about her gender.
+ - From my own experience, there are so many people who believe that the individual can change. The individual doesn’t have to be LGBT.
+ - If you told me when I was a teen that I would end up being a teacher, I would have said you’re out of your mind, because quite frankly I hated school.
+ - Call me a schoolmarm, but few things make me angrier than people not taking good care of library materials.
+ - Remember someone is going to be out, so don’t make it you.
+ - I just don’t like conspicuous consumption. I find it distasteful.
+ - Frankly, I think that fur on a man is difficult to pull off. If it’s the warmth you’re after, then I’d go with a fur-lined coat – it won’t show.
+ - Being in the moment is everything. So being in the moment for me is just letting the narrative play out, listening to the designers and giving them helpful feedback about what they’re doing.
+ - I pretty much stay true to myself and try to find the good in people and not be snarky.
+ - If you have to ask if a clothing item is a dress or a top, it is always a top.
+ - If you want to write an angry e-mail, write it but don’t send it. It’s based on my experience that whenever I have acted out in some manner, I have always regretted it.
+ - Trying and acheiving are two different things.
+ - And Brooke Elliott is a great actress.
+ - As long as we have Netfix, Turner Classic Movies, Amazon, YouTube, and bookstores, there is no excuse ever to lack inspiration.
+ - I don’t know why I’ve always been so captivated by architecture.
+ - I believe women do the best womenswear.
+ - I’m honest about expressing my opinions. At the same time, I’m diplomatic in how I do critique things if I have a negative response.
+ - When it comes to Project Runway, for me the most memorable look ever presented goes back to season one, episode one, when Austin Scarlett created a ravishing cocktail dress out of cornhusks. It was really amazing.
+ - It was very challenging to mentor the mentors, and yes, you do see more sides of my personality.
+ - I have to have my coffee. I probably have three cups a day, but only before noon.
+ - I always say I have a Socratic approach to most things that I do. I pummel people with questions, because I need to know what they’re thinking, what they’re trying to achieve, what they believe the final outcome is going to be.
+ - If I could predict the trends, they would already be there.
+ - Models come in all sizes and shapes.
+ - Whenever people tell me they don’t know how to get inspired, I say “What’s the matter with you?! I could stay in my apartment and be inspired!”
+ - I’m one of the biggest introverts you could ever meet.
+ - I’m really not a trend promoter because I feel that people push trends on people they shouldn’t.
+ - I want to say to anyone who works in a drone workplace, raise the bar! There’s no reason why you have to dress to the lowest common denominator.
+
+123 quotes

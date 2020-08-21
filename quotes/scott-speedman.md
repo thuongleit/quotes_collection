@@ -1,0 +1,30 @@
+ - I was a swimmer growing up. I was a miler – like long, long distance. So I was in the water for four or five hours a day. That’s not the way you want to spend your teenage years.
+ - There’s such good writing now on television and I don’t see a lot of great writing on films sadly.
+ - I’m not as eager to go just work to work. I have another life outside of it, and if I’m pretty sure the movie’s not going to have a life, or if it’s not a director I believe in, then I probably will say no.
+ - I can walk down the street all day and people look at me, but they don’t talk to me or stop me.
+ - I mean, I love California, but LA to me is still a strange place.
+ - And once you cease to be a real person, you stop being a good actor.
+ - I remember listening to Cube’s music when I was like 14 years old, my friends listening to it up in Toronto.
+ - I don’t see the point in signing on to do something and then leaving.
+ - I went to the University of Toronto for a year, and I’m always trying to get across what university is really like.
+ - I had dropped out of theater school after six months and was just staying on my mom’s couch at home in Toronto.
+ - I’d rather not make films than make bad ones.
+ - Well, when I did Underworld 2, I was in Vancouver for five months and I was reminiscent to be back up there.
+ - Obviously, in this day and age, with the TV shows, there are some really interesting ones. I’m not that interested in going and doing a network show, but like everybody else, trying to find something good.
+ - I don’t think I would be getting any of these movies without that show, and that’s a strong show, a great fan base and it’s helped me out a lot. It took me out of Canada and brought me down to the states and gave me my career basically.
+ - And when I have lived elsewhere, every two weeks I have to fly back to LA. Even New York directors go there to audition. So I have to be there to a degree.
+ - I think Canada, our industry is still somewhat based in America’s industry.
+ - I’m not a guy that loves a lot of rehearsal, but it depends. It depends what it would be.
+ - I didn’t really know what I wanted to do, and then I got this call from a casting director in Los Angeles. She remembered me from something years before, and she called my mom wanting me to audition for this thing.
+ - I can’t swim at the level I used to. I had to retire because of an injury to my shoulder.
+ - I mean, I grew up an athlete training and training and training. So I kind of have that mentality.
+ - If you don’t live a normal life, how do you relate to people?
+ - I just would like to spend more time in New York City.
+ - I bought a house in LA, hanging out there and spending a lot of time in Toronto, but not much.
+ - Duets is about six people, so it’s like three different movies – three different duets. I was on the set 18 days, spread out over three and a half or four weeks.
+ - You’ve got to just go do what you do – you can’t really worry about who was attached to the movie before.
+ - Every movie is different. Sometimes with movies, there are roles you should just leave alone and relax with and keep it light. And there are other ones where you want to work with an acting coach and really delve in there.
+ - I’d like to do the young cadet thing again for sure, but that’s why I wanted to do this, to see if I could do it. I took the scenes out of the script and put them together and read them as one little arc, story and that seemed to work.
+ - It’s really difficult to have a challenging male-driven show, and certain networks take off because they have their own mandate about what they want to do.
+
+28 quotes

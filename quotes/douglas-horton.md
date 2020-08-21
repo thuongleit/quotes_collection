@@ -1,0 +1,59 @@
+ - If you love something let it go free. If it doesn’t come back, you never had it. If it comes back, love it forever.
+ - Action cures fear, inaction creates terror.
+ - Be your own hero, it’s cheaper than a movie ticket.
+ - We may not always get what we want, but surely we will get what we deserve.
+ - The art of simplicity is a puzzle of complexity.
+ - While seeking revenge, dig two graves – one for yourself.
+ - Burning desire is the eternal flame.
+ - We are all serving a life sentence, and good behavior is our only hope for a pardon.
+ - Drive slow and enjoy the scenery – drive fast and join the scenery.
+ - Materialism is the only form of distraction from true bliss.
+ - Beauty is variable, ugliness is constant.
+ - Thinking good thoughts is not enough, doing good deeds is not enough, seeing others follow your good examples is enough.
+ - Live to learn, learn to live, then teach others.
+ - Being sorry is the highest act of selfishness, seeing value only after discarding it.
+ - Remember only the good, the bad will never forget you.
+ - Happiness in the present is only shattered by comparison with the past.
+ - Smile, it’s better than a poke in the eye.
+ - If wishes were fishes we’d all be throwing nets. If wishes were horses we’d all ride.
+ - Money is good, love is wealth.
+ - Life is good when we think it’s good. Life is bad when we don’t think.
+ - He stands erect by bending over the fallen. He rises by lifting others.
+ - Death is feared as birth is forgotten.
+ - Born to be wild – live to outgrow it.
+ - The more we are filled with thoughts of lust the less we find true romantic love.
+ - Desperation is like stealing from the Mafia: you stand a good chance of attracting the wrong attention.
+ - Thought precedes action, action does not always precede thought.
+ - Thoughts are the gun, words are the bullets, deeds are the target, the bulls-eye is heaven.
+ - Death is the final wake-up call.
+ - The key to heaven’s gate cannot be duplicated.
+ - Born a saint, die a sinner – born a sinner, die a saint.
+ - First rule of Economics 101: our desires are insatiable. Second rule: we can stomach only three Big Macs at a time.
+ - Change occurs in direct proportion to dissatisfaction, but dissatisfaction never changes.
+ - Love is seeing without eyes, hearing without ears; hatred is nothing.
+ - Conscience is the window of our spirit, evil is the curtain.
+ - If food were free, why work?
+ - Why ask why? If it’s raining it just is.
+ - If the destination is heaven, why do we scramble to be first in line for hell?
+ - Growing old is not growing up.
+ - To hit bottom is to fall from grace.
+ - Search for meaning, eat, sleep. Search for meaning, eat, sleep. Die, search for meaning, search for meaning, search for meaning.
+ - Sherrill On Easter Day the veil between time and eternity thins to gossamer.
+ - As the fly bangs against the window attempting freedom while the door stands open, so we bang against death ignoring heaven.
+ - No one can drive us crazy unless we give them the keys.
+ - The art of giving is perfected through anonymity.
+ - Strong words are required for weak principles.
+ - Boring people are a reflection of boring people.
+ - It’s not a question of happiness, it’s a requirement. Consider the alternative.
+ - Seeing the light is a choice, not seeing the light is no choice.
+ - Man worships because God lays His hand to the dust of our experience, and man miraculously becomes a living soul – and knows it and wants to worship.
+ - Buying a lie is one thing, giving it away for free is quite another.
+ - Good ideas are a dime a dozen, bad ones are free.
+ - To awake from death is to die in peace.
+ - To buy happiness is to sell soul.
+ - Love is a given, hatred is acquired.
+ - There is no bad in good.
+ - Although it is generally known, I think it’s about time to announce that I was born at a very early age.
+ - Perfection is perfectly simple; fouling things up requires true skill.
+
+57 quotes

@@ -1,0 +1,261 @@
+ - Judging a person does not define who they are. It defines who you are.
+ - Hate me for who I am, I don’t care. At least I’m not pretending to be someone I’m not.
+ - I have no idea what I’m doing, and that’s kind of how I love it.
+ - I think it’s ridiculous that you need to look a certain way to be conventionally pretty.
+ - You have to be OK with your own fears. If you’re an honest person, you’ll make mistakes, but that’s when the most interesting things happen.
+ - If you didn’t have anxiety, then you wouldn’t have passion for anything. The reason we have anxiety is because you care and you’re thoughtful.
+ - You don’t need to give reasons for the things you do- you just have to do what you want. And sometimes the thing that seems messed up to everyone else is what’s right for you. You have to do it and not be ashamed of it.
+ - Nobody lived my life. Nobody cried my tears. So don’t judge me.
+ - I don’t pretend to be perfect. I want people to see me as I am.
+ - There are always a lot of leading questions and opinions. Of course, our work is creative, and it’s subjective.
+ - If you follow your heart, you’re never going to regret anything, even if you completely mess up constantly.
+ - Sometimes you have to be selfish to get what you want and move forward in life.
+ - It almost makes the secrets more important, those few things you actually do choose to keep to yourself.
+ - Success is always something completely different to people. I feel like I’ve succeeded, if I’m doing something that makes me happy and I’m not lying to anybody.
+ - Sure, ‘Twilight’ is really huge right now and everybody’s freaking out over it, but it will go away soon and I will be back to doing what I’m used to doing: weird little movies that nobody sees.
+ - I’m asked all the time in interviews about who I am, and I know a few people my age who have a strong sense of self, but I couldn’t say I know myself and sum it up and give it to you in a little package. I don’t know myself at all yet.
+ - Maybe I’m completely different from everyone else. There are a lot of girls who can’t wait to get married and plan their wedding a long time in advance. I’m not like that. I do want to start a family at some point, but I don’t know when.
+ - I love people and want to be good to people. If I’m in restaurant and somebody doesn’t treat a waitress right, I literally will leave. I will unfriend you. You are not my friend anymore.
+ - Hateful, racist and ignorant remarks. When I hear people criticize without knowing the context, it makes me boil inside.
+ - I was just fighting dwarves then hit my knee really hard.
+ - Sincerity seems to be a problem today. I’d rather be true and hated than be false and fool people.
+ - I don’t talk to anybody about my personal life, and maybe that perpetuates it, too. But it’s really important to own what you want to own and keep it to yourself.
+ - I’m not ready to get married, but I have a pretty great family and I’d like that too, someday.
+ - I’ve been doing things myself in the sense that I haven’t had a night nurse or anything like that, so I’ve spent every night with baby except for the nights that I’ve had to travel.
+ - Beauty is more than just shining for others. You don’t need to have the perfect face to be beautiful. Being ugly or beautiful is a matter of energy, and true beauty comes from the heart.
+ - I’ve always had an aversion to looking sexy, but I’ve grown out of it.
+ - Girls are scary. Large groups of girls scare the crap out of me.
+ - Really, I’m incredibly disjointed and not candid. Just in general, my thoughts tend to come out in little spurts that don’t necessarily connect. If you hang around long enough, you can find the linear path. But it will take a second. That is why these interviews never go well for me.
+ - People think that I’m really untouchable, and that’s also translated into a lot of people thinking that I’m super-ungrateful.
+ - I’m going to stop smoking. I’m not such a good smoker, anyway. It’s not in my bones. I’m gonna drop it.
+ - My mother found a letter, though, that I wrote her when I was 8 years old and it was a letter where I asked if she could take me to the orphanage because I would like to adopt a little baby.
+ - If you respect yourself and you love yourself, that’s the only way anybody else is going to.
+ - I don’t exercise. I’m skinny fat. I worry about being too skinny. You should see my brother, he’s, like, emaciated. We both just happen to be really skinny.
+ - I can’t wait to be a mom, but I can wait.
+ - Everyone wants to know about the gold ring. Everyone knows already – it’s ridiculous.
+ - There’s nothing stronger than a woman protecting her child.
+ - You easily close yourself off to certain things because you want to seem like you know it all, or you’re not weak – emotion is often confused as weakness – so when emotions are undeniably physically affecting you, I think it’s a gift.
+ - My best friend just had a baby, and she’s my age. So I’m a godmom now, which is crazy.
+ - I do not approach my life tactfully at all, i’m incredibly impulsive and I am definitely an intense weirdo. I love living and I love people. They trip me out and I want to know more about them all the time. That isn’t something I can turn off and on.
+ - I think there were moments on Snow White where I wished there was a little bit more of a sick humor toward Ravenna. But maybe the tone of the movie couldn’t really support that. So you always have to kind of figure out where you are and adapt to it.
+ - Times have changed, but people don’t change. That’s why ON THE ROAD has never been irrelevant.
+ - I play music but only for myself. For my ears only.
+ - People are obsessed. There’s an incredibly large group of people that spend most of their time considering other people’s lives. It’s strange to me.
+ - Pity is a really odd thing with abused women. You don’t want anyone to think that you feel bad – even though you might.
+ - I guarantee whenever I get married or have a baby, everyone is going to want to know my kid’s name and I’m not going to say it for ages. That’s just the way I want to do it. It’ll come out but it won’t have come from me.
+ - There’s no reason to regret anything. Regret is a waste.
+ - I am quite shy and people think I’m aloof.
+ - What really kills me – it really rips me up – is when people think I’m abrasive, inconsiderate or ungrateful because I don’t go outside in a bikini and wave to the paparazzi. Come on!
+ - I think romance is anything honest. As long as it’s honest, it’s so disarming.
+ - I want a cheeseburger so badly, but I have to be a vampire in a few weeks.
+ - This wasn’t a choice between you and Jacob. It was a choice between who I am and who I should be.
+ - I am thrilled. I love movies. I don’t have those nagging, regretful feelings about either of them, it is a miracle.
+ - You can’t really be too calculated about everything in life.
+ - After my final Breaking Dawn scene, I felt like I could shoot up into the night sky and every pore of my body would shoot light. I felt lighter than I’ve ever felt in my life.
+ - You can make a movie that’s more focused on the jokes, but Young Adult was not that kind of movie.
+ - An actor gives voice to the many multitudes that we all contain. That’s why we love the movies, why we love TV shows: we watch different people portray an aspect of ourselves, maybe even one we don’t like.
+ - I have brothers, and that so-called boyish quality was something that I was deathly self-conscious about when I was younger.
+ - I like being in movies that have a great story. I’m not so interested in being a Hollywood star. It’s a job, you know. When you wake up at six in the morning every day for a week, it feels like hard work.
+ - Anybody who’s ever been broken up with, or had their heart stepped on or ripped out of them; you question everything you’ve based your whole life on. It’s like, is anything real? Cause nothing ’s more real than that, and now it’s gone.
+ - Once you have done with school, you realise that it is just a smaller version of life, and really I have felt that I should have been an adult since I was aged about five.
+ - I don’t say I’m not magnetic to try and sound self-deprecating. I’m just not. Though I actually love people. I would like to meet more people. I know no one.
+ - I have some friends who are actors. I’ve watched them work. And I would say that of all the arts, acting is the most grueling, thankless. Never apologize for your work.
+ - I do things very impulsively; I don’t really like to plan things at all. If I am passionate about something then I will do it.
+ - There are days when I definitely look in the mirror and go, “All right, I need to find a cream.” I can’t foresee myself ever going under the knife, but then again, I’m only in my mid-thirties. Maybe it’s different when you’re in your mid-sixties.
+ - I think that I have a pretty varied taste in music I think. And it is primarily rock music big umbrella that I am, I am not into hip-hop. But, I do like both.
+ - I’m 19, and, being a public figure, I’m supposed to present myself in a certain way, but it’s hard and you’re never going to be able to tell people who you are through the media.
+ - It’s very counterintuitive to boil down something so personal, something that requires privacy. All of a sudden, you open it up to the world and put it in a context where you could easily trivialize what you’ve done. If people sense that discomfort, they’re not wrong.
+ - Both my parents work in film. They’re crew. I love movies, and I just wanted to be involved. I got really lucky. I auditioned for a while and then started making films.
+ - I can only play characters that I feel like are real people and in a complete way and in such a whole way that if I fake any aspect of it I will have failed them and literally they’re slaughtered.
+ - I say whatever I want, I look whatever I want. That doesn’t mean I don’t question myself and feel insecure.
+ - As soon as I stopped trying to control everything that came out of my mouth and every picture that came out, that’s when I became so much happier.
+ - I think it went Twilight, Welcome to the Rileys, New Moon, Runaways, then Eclipse, so it was like one of those movies between each Twilight movie.
+ - When I stopped going to school, I got the strongest dose of perspective. When you’re a kid, your friends, your school, your teachers, your family – that’s your whole world, your whole existence. And then when I stopped going, I lost all my friends but the few that were really close to me.
+ - I don’t think that there’s much hiding that actors can do. If you’re doing good work, you’re showing a part of yourself to someone.
+ - When you love something, you get to know it. Then you feel the ownership and if it changes, you only love it as far as you know it because then you’re like, “What is this?”
+ - Some people are good at performing in front of people like that, but I’m uncomfortable at it. I think maybe that’s the difference between acting and being a performer. I don’t think I’m a natural performer.
+ - The strangest part about being famous is you don’t get to give first impressions anymore. Everyone already has an impression of you before you meet them.
+ - I think I’m a bit less inhibited, and not thinking too much before speaking. It’s not about being shameful, I’m just a bit more unabashedly myself because of this thing, and it probably started at age 15. I can be around people and say what I think without fear.
+ - Asian horror is really setting a trend. The Pang brothers are from Hong Kong, so they just bring a whole different sensibility to a horror movie. In Hong Kong, they’re actually doing stuff that’s very artistic and pushing boundaries.
+ - I’m about to play an emaciated pregnant vampire, so I’ve stopped using as much butter as Paula Deen – just until ‘Breaking Dawn’ is over.
+ - Despite what people think, I was such a rule follower at school.
+ - But I’m glad I’m not one of those actresses who is just so ready to open up for everyone.
+ - Females want other females to be really strong, so there are a whole lot of scripts that are basically just male parts renamed as a girl.
+ - I don’t exercise. I’m skinny-fat. I worry about being too skinny.
+ - It’s hard to generalize about that subject because the women I’ve worked with have all been so different. But if there’s one consistency, it might be that you do have to handle yourself differently on a set. Women can be more emotional – at least they sometimes show it more.
+ - I’m just not made for that kind of live audience where you don’t create a fourth wall.
+ - I don’t want to make movies for kids, and I don’t want to make movies for adults either.
+ - Just don’t hold back. Don’t be afraid to make mistakes and stuff...
+ - Anytime I hear that somebody’s really rich, the first question is, ‘Do you do anything with it? Or do you, like, chill? You just sit on it?’
+ - My brother’s a grip. My mom’s a scriptwriter. My dad’s a director. So it’s like, at heart, I’m a below-the-line girl.
+ - I like making pies. I have a bunch of fruit trees in my backyard. My loquat tree sprouted, and I like making loquat pie. They’re really hard to peel and everything, and it took me forever, but they make the best pies. They’re amazing.
+ - The point is to stumble upon things in your life, and not plan them out.
+ - There’s an idea about who I am that’s eternally projected onto me, and then I almost feel like I have to fulfill that role. Even when things come out of my mouth, I want to be sure I’m saying exactly what I mean.
+ - Acting was my classroom in many ways and I always believed and I still do that acting is not just about pretending to be someone else, it’s also about discovering yourself and reaching deeper inside yourself.
+ - Everyone’s really different. I’ve worked with women who I’ve never wanted to tell anything about myself to, and I’ve worked with guys who have been pouring wells of emotion. So emotional availability is not a gender-specific thing.
+ - Women inevitably have to work a little bit harder to be heard. Hollywood is disgustingly sexist. It’s crazy.
+ - I want to make books. I want to take pictures and then write all over the pictures. And then I don’t have to say a complete story, because I have the picture, and I have just a word.
+ - I just happened to have enough time to be able to take other parts between those first few Twilight films. But it wasn’t about proving to people that I had something else to give.
+ - I think to be a good director you have to be a good person and you have to care about people.
+ - I just want the fans of the book to be happy. I don’t necessarily care about anyone else.
+ - I did two commercials, one for Porsche, but I was definitely not the type of child one would cast in a commercial or any TV that you’d typically go out for as a young kid. I wasn’t the type of kid who would be in stuff that kids watch. I wasn’t cutesy.
+ - I think we want to be around people that kind of push us and inspire us and maybe teach us.
+ - As long as you care as much as I care, you can’t be ashamed of anything.
+ - You should never step outside of your life and look at it like it’s this malleable thing you can shape so that people view it a certain way.
+ - If I could read any person’s mind, it would be my cat’s.
+ - Look at a picture of me before I was 15. I am a boy. I wore my brother’s clothes, dude!
+ - I’ve just grown into not having to care so much and to not try to think that I’m going to be able to plan out the way that everyone perceives me. There are no false impressions. Everyone’s impression of you is going to be what it is in that isolated moment.
+ - I learn a lot with actors that I don’t think are good. Every experience shapes you. I’ve had experiences with actresses – and I say actresses because there’s just a woman thing – that have achieved what she’s achieved, by means that I can’t understand.
+ - It’s funny when you can actually relate to the fans on a human level and it happens all the time. People assume that’s impossible. So when that happens it’s a cool thing.
+ - If you fall in love, it’s because it captures you and sweeps you off your feet.
+ - I’m a fan of movies and television shows, and I don’t expect anything from actors and actresses, or anyone, but good work. What they do. I don’t feel like I deserve a piece of their personal life, or even what they think about the work they do.
+ - One of the greatest struggles of becoming an adult is figuring out what you want to do and what makes you happy. The courageous thing is to stick with it and see it through and see if you were correct.
+ - I’m definitely never going to be a biker. I’m scared of cars so the idea of riding a motorcycle is just never going to be something that I’m into.
+ - I also have that desire to blurt stuff out, but I’ve learned I can’t do that. Not when you realise the whole world is listening. That’s why perhaps I look so uncomfortable in interviews at times.
+ - I’ve actually always been interested in following a character more long term, but the only place to really do that as an actor is on a TV series.
+ - I think maybe the key to having a long relationship is really appreciating that person’s life and not trying to own it. It’s like just stop trying. We all do it.
+ - I don’t want to make statements about where I’m gonna be in 30 years. But as of right now, I definitely have a different relationship with the way I look. It’s not all-consuming.
+ - I don’t want to be Angelina Jolie. Not that Angelina Jolie is not the most talented, beautiful, successful, amazing, admirable person who does good things for the world, but I don’t want to be a movie star like that.
+ - I want to be an actor, I am just not very comfortable talking about myself.
+ - I think our need to be loved is so great that it’s the thing that damages us the most. I think that’s something we can find in any person, though some people are more in tune with it or accepting of it or have moved past it and dealt with it or have a healthier thought process about it than others.
+ - I always say every single moment that has led me to this moment has made me who I am.
+ - As soon as you start claiming you can be someone that you are not, you are crazy.
+ - I think I’ve gone through my life with the understanding that you’ve got to let go and you can’t think that you’re going to control your destiny.
+ - I prefer to be hated than be false and fool people.
+ - When you’re a teenager, a year can be crippling to maneuver through. Some things happen when you’re like 13. All of a sudden you go from being this really confident, no-worry little kid to having all these weird insecurities for no reason.
+ - If you like yourself, other people will like you.
+ - If the movie is good then great, but if it’s not then God, I feel so bad for that person with their face fifty feet tall, all blown up. Some people would be happy with that, that as long as their face was out there they’re stoked about it. I’m not like that.
+ - Because the Pang brothers are twins, they would rotate days on set. One of them would be editing, and one of them would be shooting.
+ - I went to public school up until junior high.
+ - Women have a faith in themselves that is unpragmatic and in each other that’s just emotional and f – ing strong. Both of those characters are criticized for being weak, for being subject to a man, but I think that that’s a really bold and natural thing that we all want.
+ - I don’t want to be a movie star like Angelina Jolie. Nothing about being a celebrity is desirable. I’m an actor. It’s bizarre to me that everybody’s so obsessive.
+ - I think there are a lot of actors who act because they have an impulse to do it and they can’t ignore it.
+ - I’m approaching the idea of taking on a responsibility as great as saying, “I’m good enough to be in your movie.” It’s a huge statement to make, and every time I do it, I think, “Is this the right choice?”
+ - I’m just going to let people watch whatever little movie they think our lives are and go for it.
+ - Masses of girls identified with Bella in a really profound way, for want of a better word. The connection that I’ve seen people have – I’ve seen it physically. It’s the characters they’re flipping for.
+ - It took me a long time to realise that I was a girl as a teenager. At that point I never really believed it. I looked like a boy for a long time. Now, finally, I feel like a woman.
+ - When actresses play actresses, or actors play actors, they have to find another level.
+ - I don’t know why anyone does the job without that pressure.
+ - Some people aren’t comfortable with being comfortable. Some people really want to be pushed and find people that they can pull something out of you that you didn’t know you had, and you can scare yourself.
+ - People have a hard time accepting when someone displays even the slightest amount of discomfort in the spotlight. You’re supposed to soak up every bit of fame like it’s sunshine.
+ - It’s impossible to always get across what I’m trying to say, but, if I just stay honest, then I’m not going to look back on any of these interviews and wonder what I was trying to do or be.
+ - I wouldn’t tell you anything about anybody I cared about because it becomes entertainment for other people, and it sort of just cheapens everything in your life. I would never tell you if I was dating anybody.
+ - I wouldn’t want to play a normal princess who always walks around in nice dresses. I never had a connection to it when I was a child, I preferred playing with plastic soldiers.
+ - You kind of go through situations that don’t work out, and then all of a sudden you have this baby in your hands and you forget about all of that. You forget about the last three years of your life. You just realize that everything unfolded exactly the way it was supposed to unfold.
+ - There are things that directors know about me that people shouldn’t know.
+ - Who knows why women aren’t – obviously, rock ‘n’ roll, I keep saying this, but aggressive and in a way that is sexually aggressive, like the singer is the aggressor. And people don’t want to see girls in that position. They would rather go after them.
+ - I think what I’ve come to now is, that fear is good; it’s what life is about. You need to be afraid because fear gives you the strength to carry on important tasks.
+ - I’m like, bursting. I should be working. I don’t want to take a break. It’s funny, on set, I don’t have to go to the bathroom, I don’t have anything wrong, I’m perfectly fine, so through-and-through. I’m not hungry. I’m literally not even in my own body.
+ - I’m particularly weird because I don’t even like being looked at.
+ - It’s okay’, you know? It’s okay to be you.
+ - Why is everything so easy for me?
+ - Hopefully my fan base doesn’t lock me into ‘Twilight,’ you lose yourself. You should do things for you, and I have been really lucky to have things that really rock me and really move me falling into my lap.
+ - I do want to work on writing, because writing’s a skill. Writing is something that you can train yourself to know better. To know yourself better. And it’s intimidating as hell.
+ - I hurt myself doing a fight scene with some dwarves.
+ - I start to lose my mind if I’m not working on something, like breaking my back on something.
+ - I love sitting down and having actual conversations. But I don’t do that sound-bite, be-candidly-funny thing.
+ - With every project, you feel like you’re trying to find your place to vent. For any actor, that’s typically the feeling that drives you to do it.
+ - You watch the interview afterwards, and they didn’t really say much, but it’s interesting, funny, and engaging. Whereas I sit there and look a little bit too serious, and as soon as that happens then you’re uncomfortable and you don’t want to watch.
+ - A lot of times, it gets weird when some guy is playing your dad. It feels weird to you. It feels like they’re forcing sentiment. It’s disgusting.
+ - For most actors, it’s such a struggle to get work. Once they have it, they feel that there’s an enormous amount of pressure on them to make it work, and have everyone love them.
+ - I grew up in a happy household.
+ - I never expected that this would be my life.
+ - There’s no way to eloquently put this. I just can’t go to the mall. It bothers me that I can’t be outside very often. And also to not ever be just ‘some girl’ again. Just being some chick at some place, that’s gone.
+ - Even while starting out I took things very seriously; I wasn’t the sort of kid that would do a doll commercial or do a series for Nickelodeon. They asked me to do silly things, and I wasn’t a silly kid.
+ - I am actually very well-organized. All I need to do is open my closet and just choose. But, you see, although I carry many different choices with me, I always end up wearing a tank top, jeans and sneakers.
+ - I don’t want to discredit people’s individuality, but I think people are pretty much the same. People are very similar. If you have a good enough imagination then you can feel things that you personally have never done before. That’s acting.
+ - If you are going to make something forever, you should be yourself.
+ - What I did suffer when I was young was because I was sort of a hick coming into New York City. I was made fun of by a lot of the Factory people. Even Andy Warhol thought I was a hick.
+ - I think we were promoting New Moon just as I was finishing The Runaways, and I remember going to Comic-Con with a Minor Threat T-shirt on. I was really happy and excited to be there, but I was so defensive and crazy.
+ - It’s weird talking about projects as an actor because you’re so in them. I would prefer to write a paper and deliver it to everyone via e-mail.
+ - Reading something for the first time and getting this feeling like the material provokes you on some level, and doing the movie is really just sort of defining and figuring out why exactly you felt certain things when you read it.
+ - I don’t believe in censorship.
+ - Sometimes your characters in films do things that you wouldn’t do. You’re not playing yourself all the time.
+ - I think by default I wanted to be an actor because, on a movie set as a little kid, the only thing that you can do is be an actor. And I was really enthralled by the whole process.
+ - Any good relationship that I’ve had with an actor has always been so emotional and personal. If you don’t have that then you’re just lying.
+ - I have really bad luck with my thumbs. It plagues me, actually. It drives me crazy! Both of them are very oddly shaped.
+ - I’m not sure if I’m most happy when I’m comfortable and content or when I’m pushing myself to the limits. There are such different versions of happy, and I really appreciate both.
+ - To me ‘they lived happily ever after’ means to be happy with yourself! My parents always taught me that being happy has to work without Prince Charming. My life is completed without a prince but it’s nice of course to have someone who loves you and fights for you.
+ - It’s amazing to realize that a lot of the insecurities I had when I was younger have pretty much disappeared.
+ - It’s this weird thing that I always feel like I have to gauge in myself, like, “Don’t come on too strong because you won’t get your way.”
+ - Do what you need to do and if it hurts too much obviously don’t do it.
+ - I put a lot of weight in what I do, and you and I can talk to each other in a certain way because that’s how people interact, but I don’t really know how to talk to the entire world.
+ - I really, specifically, love acting, and I think it’s a really cool thing to be really indulgent and follow that.
+ - Acting is such a personal thing, which is weird because at the same time it’s not. It’s for the consumption of other people. But in terms of creative outlets and expressing yourself, it’s just the most extreme version of that that I’ve ever found. It’s like running, it’s exertion.
+ - It’s not like I sit around watching my movies again and again, but I’ve never quite believed actors when they say they don’t watch themselves.
+ - And I like to keep whatever is mine remaining that way. It’s a funny little game to play and it’s a slippery slope. I always say to myself I’m never going to give anything away because there’s never any point or benefit for me.
+ - There’s no way to be prepared for a conversation with someone you don’t know about something that means the world to you.
+ - I stand by every mistake I’ve ever made, so judge away.
+ - I’ve realized how little sleep I actually need.
+ - My mom is a script supervisor. It’s like the family business. It never had that feeling of entertainment. It was always more like, “Eh, it’s just a movie,” with that crew mentality, which is, “We’ve done it before and we can do it again.”
+ - What I really mean is that actors do the interview process because they have to. It’s a good bargain: If I can do this part then I’ll sell it. I just wish it wasn’t me who had to do it because it feels very unnatural.
+ - Something happened to me and I became really successful at something at a young age, and that stunts you in every other aspect of your life because you feel like that’s what you’re good at and so that’s what you need to stay in.
+ - I like fashion because it’s sort of my job, so I’m into it when I have to be. But when I’m not working, I wear jeans and T-shirts. I go to vintage stores all the time to find funky T-shirts.
+ - A lot of actors think that what we do is so important, like we’re saving people’s lives or something.
+ - I want to go to college. I’m going to take four years off. I don’t want to miss that. I want to be a writer. I think that’d be awesome.
+ - I have been criticized a lot for not looking perfect in every photograph. I’m not embarrassed about it. I’m proud of it. If I took perfect pictures all the time, the people standing in the room with me, or on the carpet, would think, ‘What an actress! What a faker!’
+ - I love being on the periphery with a group of people who have the same values that I do. People who don’t get off on fame, who just like the process of making movies and thrive.
+ - I have a great family by the way, but you need to find people who can pull something out from you that might be otherwise unseen.
+ - A lot of artists are such narcissists.
+ - I went to do Eclipse right after The Runaways, and I think the director of that movie might have said to another cast member that he had to beat the Joan Jett out of me.
+ - People cultivate these fully formed personalities.
+ - I just really am trying, trying, all the time. But I like to be scared. I love to suddenly feel out of control.
+ - People say, ‘Just say who you’re dating. Then people will stop being so ravenous about it.’ It’s like, No they won’t! They’ll ask for specifics.
+ - This weird thing happens when you’re in a movie that has some level of success. People start offering you all kinds of things, and they just expect you to do them because they’ll be good for your career. It’s not about the project’s integrity or anything like that.
+ - A question that I can’t answer is: what do you want to do next? What’s your dream role? What are you really looking to do? Where do you see yourself? It doesn’t make any sense because that’s such an outsider’s perspective.
+ - You can assess a culture to a degree by the way they receive movies and how they receive a given celebrity.
+ - There’s nothing weak about being subject to something.
+ - I looked like a boy for a long time. Now I feel like a woman.
+ - I think I always knew that I wanted to adopt. It never meant that I didn’t want to have my own children – I always felt that if I were in the right circumstances then I would totally have my own children.
+ - Every movie that I’ve done, they don’t stand independently from one another because a little bit of me is in every single one of those, and it’s part of my own personal growth.
+ - When you can literally Google anything, you don’t feel like you have to go see it in person. You can do a lot of traveling in your bedroom, but you’re not touching anything and you’re not feeling it.
+ - I want to go to college for literature. I want to be a writer. I mean, I love what I do, but its not all I want to do-be a professional liar for the rest of my life.
+ - As long as you make your own decision and do thing because it feels good to you, there will always be people who agree and people who don’t.
+ - People sometimes actually get me to think I take things too seriously and maybe I’m too earnest and it’s coming across like I’m better than them.
+ - I would have been very happy just working from job to job, paying my rent one movie at a time. I never wanted to be this famous. I never imagined this life for myself.
+ - People who call me the Twilight girl and mean it. Please, pigeon hole me. That means I did it right.
+ - It is said that I’m distant and cold. I’m just someone who’s very shy. I’m not comfortable doing interviews because I have to talk about myself. To talk about yourself, you have to know yourself pretty well and I feel like there are still some shades in me that I don’t know about.
+ - I kind of like to look like a hobo.
+ - I think it’s the idea that beauty could be power, and that with power comes immortality, and with power comes control, and all of these other things are blocking her heart.
+ - It’s interesting how you can blur the line between acting and living and learn from your performances. I’m just trying to keep learning as much as I can and not get caught up in all the distractions that can play havoc with your mind.
+ - I think the way I approach things has something to do with growing up and seeing my parents go to work every day.
+ - It doesn’t matter if you’re doing a studio movie or you’re doing an independent movie. When you get to set and you’re doing a scene, it’s always going to be the same job.
+ - People are always going to find the ones with the weird like buzz-worthy thing about a movie and like run with it.
+ - It’s not hard for me to figure out who I like or who my friends are. I trust my energy meter, but I’m also not afraid to let people in who might hurt me.
+ - Appreciate what you’ve got and follow your heart and you’re all good. Don’t over-complicate things.
+ - I just can’t go to the mall. It bothers me that I can’t be outside very often.
+ - I would never cheapen my relationships by talking about them.
+ - You don’t always just have to do an indie movie to feel like you’re controlling it with a few people that you really have connected with, creatively. You can do it on a bigger scale.
+ - I like women who have an opinion one way or the other or who have a great sense of humor and a great sense of adventure. I can be friends with women who are not like that, but I don’t have that hard emotional connection.
+ - I went through an experience that taught me that as soon as you think that you know how your life is going to be, something in the universe will make you realize that you really are not that in control of it.
+ - Things don’t happen for no reason.
+ - I think it’s cool to come out of somewhere where you’re being pushed into this mold and then you figure out in that who you are.
+ - I know that people’s judgments are fast, and in a split second I will ruin it.
+ - I’ll decide to do a movie and then go oh, like “Twilight” fans are probably going to react to this or whatever. But that’s always an afterthought. Like I don’t plan things out based on other people’s opinions of how like I think they’re going to receive them. I do it like for the experience.
+ - When I dress up, I have to have a lot of help. I was in a T-shirt until a few minutes ago.
+ - What you don’t see are the cameras shoved in my face and the bizarre intrusive questions being asked, or the people falling over themselves, screaming and taunting to get a reaction.
+ - It’s a funny thing: You want so badly for people to see what you do – you’re proud of it – and I like the effect that movies have on people. But the attention can also make me uncomfortable.
+ - I really, specifically, love acting, and I think it’s a really cool thing to be really indulgent and follow that. I have a lot of ambitions in life, but for the next few years, I just want to be an actor. That’s a lucky opportunity, and that drives me to want to be good at that.
+ - Why would I want anything that’s private to become entertainment for other people?
+ - But, I’m kind of a control freak. I get really freaked out if I don’t know what’s going on and what’s going to happen.
+ - All I try to do in the press is to be honest about something that I really care about.
+ - Don’t let other people’s conversations about what you’re doing or you’ve done be part of your own conversation.
+ - I don’t know who said it, but it really kind of hit me hard in the stomach: “The only difference between all of us is that some of us were loved and some of us weren’t.”
+ - The best aspects of every vampire, with all of their gifts, what makes them really special is just an enhanced version of what they were when they were human.
+ - I know who I am. I have a very strong sense of self.
+ - I can’t do what my mother did, which is tell me every single day of my life about her labor and how long it was and how it was 36 hours of hell .
+ - Making movies is just as much of a game. They say Hollywood is like high school with money.
+ - Actors walk around wearing these little tool-belts of acting skills. And I just don’t find that interesting to watch. I never want to see someone who clearly can cry at the drop of a hat. That’s so uninteresting.
+ - I go outside, and I’m wearing a funky T-shirt and my hair is dirty, and people say, ‘What’s wrong with her? She needs to invest in a hairbrush.’
+ - I don’t expect to seem cool to everyone; nor do I want to be. I think that’s the opposite of the definition of cool. So I don’t care at all.
+ - I’m so grateful that I was raised by a mother who really instilled in me that my moral compass and achievements all had to come from a real place that had nothing to do with my beauty or how I looked. That was very big for her.
+ - You’re literally being an actor – you’re pretending – and that’s not what I like to do.
+ - I can’t draw a line between myself and stuff that I do. It’s funny, I don’t want to sound like it’s just about this, but really with everything I do, it’s hard for me to take myself out of it.
+ - I really don’t think about my career, in terms of planning it out and what any role does for me.
+ - Despite what people think, I was such a rule follower at school. I loved the whole slacker look, like, ‘Hey, I don’t care, whatever,’ but if I didn’t turn my homework in, I would panic.
+ - You know what? I don’t care. I’m going to do what I want to do.
+ - On the one hand I have very traditional values: I’m looking for love and want a baby one day. On the other hand, I have a secret and rebel side, that I maybe took from an Australian mom who handed down to me the love for adventure and freedom. And sometimes I feel a bit offbeat.
+ - As soon as there are 200 people in a theater watching me, I get really scared.
+ - I’m not the type of person that just needs to feel concrete and like nothing’s going to change. I revel in the change.
+
+259 quotes

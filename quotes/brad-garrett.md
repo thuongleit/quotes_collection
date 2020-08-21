@@ -1,0 +1,21 @@
+ - Anyone can cook but only the fearless can be great.
+ - You take away all the other luxuries in life, and if you can make someone smile and laugh, you have given the most special gift: happiness.
+ - I’m the type of guy that feels pressure when I have to order dinner. I’m just that type of guy but that’s my fuel. I work well with pressure.
+ - I think as any artist you always want to grow; you always want to get better.
+ - It’s all I have left in my life, caffeine and a poodle.
+ - My whole life, I’ve been telling jokes.
+ - I love strong women, not only in life but in craft.
+ - Broadway was without doubt the hardest I ever worked in my life and the highest highs I’ve ever had as an actor. The unadulterated fear was on a level that was hard to explain.
+ - I feel very, very grateful. I’m a lucky guy, you need a lot of luck, and then when the cameras roll, you have to have this group of writers, directors, and actors that just gel, and it seems to literally be happening more and more.
+ - I believe it’s a real tedious hostage negotiation to have a marriage be what it is.
+ - I come from the world of improv; I love any show or any vehicle that gives me an opportunity to be in the moment.
+ - I think I’m better wired for television. I love variety as far as a project. I’m easily bored and the schedule of a television show, it just keeps you going.
+ - Actually, I have my own charity that I started that helps supplement families with terminal children.
+ - But I believe that there are marriages where you can have your pool table and she can have her scrapbooking room or garden or whatever it is. But when everyone has what they want, it’s not funny. There’s no conflict.
+ - There’s a black man inside of me just trying to make bail.
+ - I was very, very large as a kid and never athletic, and my home life was a little upside down and I never felt comfortable.
+ - I think we love watching people that are flawed because we’re all flawed.
+ - It’s fun to play people who are flawed.
+ - I would probably be a teacher if I weren’t a comedian.
+
+19 quotes

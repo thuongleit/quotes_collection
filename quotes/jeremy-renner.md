@@ -1,0 +1,75 @@
+ - I’m a simple, simple man.
+ - I want to be a good human being.
+ - In the ‘Hurt Locker’ there’s a lot of me in there, a sense of humor, a man of few words and a lot of action.
+ - I live my life through fear. If I’m afraid of it I’ll do it just so I’m not afraid of it anymore.
+ - I love my small town, and I love going back there and supporting the community. But I could not have stayed there. No way.
+ - I don’t do well with expectation in my life. All I can do is do the best that I can do.
+ - Building a house is like producing a movie. There’s no right way to do it but a lot of wrong ways. You have to be flexible and creative. You have to move fast, be prepared – or it quickly becomes costly.
+ - What matters to me is learning and growing, and getting to do what I love to do. As long as I can do that, I’m happy.
+ - Getting to play with Thor’s hammer while he stroked my bow.
+ - I’m not very good at taking compliments. It’s better than getting slapped in the face, I suppose.
+ - I’m able to really enjoy the wonderful things happening to me and that’s a great blessing.
+ - Barton is a pretty brass tacks kind of guy. Kinda get the job done so I can go home. So I don’t think it’s very difficult for him to decide.
+ - I like to stay busy, I like to stay focused, and I like to stay creative. Without being creative I’d be dead.
+ - I have a bad sweet tooth. I’m pretty good when I have to eat well for work, but otherwise, I could eat a whole roll of raw cookie dough.
+ - I’ve got to be active in life, and it’s the same when I’m doing stunts in a movie: I’ll do anything.
+ - People love to yammer on about things that aren’t real.
+ - Yeah, yeah, it’s all fun and games until someone loses an eye type of thing. There’s that kind of irreverence to it the humor and in the reality of what’s really going on that plays into this movie.
+ - There is nothing new, from Greek mythology to Shakespeare to every romcom ever made, we’re just reimagining the same 12 story plots over and over again – so what makes people keep watching and listening? It’s all about the character.
+ - I’ll take any risk there is.
+ - The most experience I had in the criminology field is playing a thug as an actor. That was my first paid job. The police academy at the college was paying people to reenact the calls that potential cops would get. So I got to play thugs and people who were unruly.
+ - Oh, all those ridiculous people with zero talent who spend their lives making sure everyone knows their name. Those stupid, stupid people.
+ - I will never be in the stock market. It’s just gambling. I’m a gambler, but I’ll gamble on the practicality of things.
+ - When I was growing up, I wasn’t taught how to feel or communicate feelings.
+ - I love the idea of going to work and having to fight and learn a new skill set, whether it’s muay Thai or Kali or Filipino stick fighting. To me, it’s like college for life.
+ - So I take a little sleeping pill, pop it and realize nothing’s happening – but something else was happening.
+ - I think there’s a great connection between these two characters for sure. I mean, I don’t know if she’s coming over for dinner on the Barton ranch...
+ - I’m consciously aware, specifically with the comic book world, where there’s a built-in fanbase. But, there’s a little bit of leniency because there are a couple different universes.
+ - I love music. I do play. It’s like mathematics, and it’s also emotional. It’s nice to play, for no other reason than just to play.
+ - I don’t really think there’s much difference between a character actor and a leading man besides aesthetics.
+ - I was an athlete when I was growing up.
+ - I want my personal life to be personal.
+ - Aren’t we taught as kids that we’re beautiful because we feel beautiful and not because someone else says so? You don’t look like the model on the magazine cover but you can still be beautiful, so I can’t say I really want to change anything. I’m happy with the flaws I have.
+ - I know it’s a cliche but I never wanted to be famous. I don’t believe anybody wants to be famous.
+ - I like to play unpredictable characters, and I like to be unpredictable in what movie I’ll do.
+ - Music I do just for me.
+ - I do music because I can just pick up my guitar and sing, and completely satisfy, instant gratification. I don’t need a script, I don’t people, I don’t need anything, cameras, I just have myself and my guitar, or keyboard.
+ - I’m attracted to those kinds of roles that could be good or could be bad, and you just don’t know.
+ - I had to do a lot of work and allow myself to go places that were a little scary. You know when you play a guy like that it allows you the freedom to explore really weird parts about you. And it’s OK. In order to really get it, I’ve got to allow myself to go there.
+ - I guess gritty is the word that you said. But it has a different tone. We’re not flying around in different universes – it’s a bit more earthy.
+ - I’m just happy to be working.
+ - I feel connected to that idea of wanting to belong to something, to have a sense of purpose as a man on the planet.
+ - You have to wait for a big star to come in and generate interest on a project, and now that has become me, which is an amazing blessing.
+ - I was very shy when I was younger. But I did have a terrible temperament. I would get angry very quickly, but the rest of the time I was this big goofball, playing the drums in a band and making out with girls.
+ - You have a great road map when you play somebody that exists. That’s the amazing thing. But then you have great limitations from that road map. It’s hard to deviate from it creatively as an actor. It’s like, “Oh wait, he’d never do that.”
+ - I lived by the candlelight for two years because I couldn’t afford power. It was nice and romantic at the time, but if you can’t afford power you’re pretty broke. You endure it.
+ - Architecture and building is about how you get around the obstacles that are presented to you. That sometimes determines how successful you’ll be: How good are you at going around obstacles?
+ - I think it’s great to be a part of a franchise that is successful. Any franchise is successful because it’s a continuation and people have seen it.
+ - Accents can be a great tool to tell a story – but if you do it wrong, it pulls you right out of the movie.
+ - Marvel’s really smart about continuing the storylines of all the different movies from Ultron into this one and blah to blah to blah – it’s pretty seamless. So where we left off in Ultron is definitely picked up in Cap 3 here, pretty smoothly I think.
+ - The movie business is very difficult but the music business is just impossible. So I’ll play in bands and record and play songs with other people, but for me it’s a form of expression that all I need is me. I don’t need cameras or agents, I can just have a piano and sing and feel totally verified.
+ - I don’t change. The things around me change.
+ - It takes a lot out of you to do a stage play, but I’d love to do that. I’d love to continue to do challenging material, whatever shape or form that comes in.
+ - I was always a singer. But I was always focused on being an actor as my trade. Music I do just for me. The movie business is very difficult but the music business is just impossible.
+ - The star thing, the celebrity thing, is new to me.
+ - I think cinema should provoke thoughts, sure, but using it as I soapbox I think is the wrong place. I never want to be part of something like that, where there’s an agenda there that’s not about telling a story, where its someone getting on a soapbox and preaching their own beliefs onto somebody.
+ - I think cinema should provoke thoughts, sure, but using it as I soapbox I think is the wrong place.
+ - Yeah it feels a bit more tangible, I suppose, even though you’re in a green box for part of the time.
+ - I like to play unpredictable characters, and I like to be unpredictable in what movie I’ll do. I want to skip to work. I don’t want to repeat anything. What the future holds, I don’t know, but that’s what I like. I’ll take any risk there is.
+ - I guess I just have one of those resting faces that makes me look like I want to beat you up.
+ - Other people can think ahead all they want. I just focus on the task at hand and try to move on.
+ - I’m blessed to have cool roles in these big movies.
+ - There’s too much down time making movies. That leads to boredom. And that leads to trouble.
+ - When you get praise from someone that you really admire it’s really surreal.
+ - I used to hang out at karaoke bars all the time. It was the most fun you could have when you had no money.
+ - I know what I like and what I want, and I can sit and enjoy every 10 minutes that go by. And truly enjoy it.
+ - I like repressed characters. That gives me a lot of freedom to make a lot of different choices through subtleties.
+ - I light candles because I want to have candles lit, not because I need to see!
+ - I don’t want to play a bad guy who doesn’t have a bit of good in him.
+ - I’ll always build houses.
+ - I want to not do anything I’ve done before. That can come in any form.
+ - I need to react to a script, to feel strongly about it in some way. And I need it to be a complex character for sure. And also, I think a lot about what kind of audience there is for the film, what they’re looking for and ways to connect with them in the playing of a character.
+ - Not every actor gives their life to do this job. Some just do it as a job. Well, it’s my life.
+ - Fear is just not a part of my life – so much so that if it’s involved in somebody else’s life and they’re close to me, I won’t be around them.
+
+73 quotes

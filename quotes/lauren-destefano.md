@@ -1,0 +1,140 @@
+ - Things will get worse before they get better.
+ - Fall has always been my favorite season. The time when everything bursts with its last beauty, as if nature had been saving up all year for the grand finale.
+ - I miss something I never even had.
+ - Maybe hope isn’t the most dangerous thing a person can have. Maybe love is.
+ - To die trying would be better than to die without purpose.
+ - I shake my head, watching snow tumble and swirl from an all-white sky. The world seems so clean if you only look up.
+ - In another time, in another place, I wonder who they might have been.
+ - We destroy things with our curiosity. We shatter with our best intentions.
+ - It was a terrible decision, and I confess I’d make it again.
+ - Every star has been set in the sky. We mistakenly think they were put there for us.
+ - Most dystopian, classic and contemporary, paints a future world that puts a twist on present society – a future world that could plausibly happen.
+ - There is a dark place calling to me, but I will not go just yet. I know I can’t return from it.
+ - Ah, love. That’s what the world has lost. There’s no more love, only the illusion of it.
+ - In the distance I see a lighthouse. The light washes over us and continues on its rotation. This time, I don’t know where the light will guide us.
+ - Even things that aren’t broken can be fixed.
+ - Dystopian, by definition, promises a darker story.
+ - I don’t have too many books, I have too little shelving.
+ - But instead of tears, when I press my face against the pillow, a horrible, primal scream comes out of me. It’s unlike anything I thought myself capable of. Rage, unlike anything I’ve ever known.
+ - It isn’t a perfect place. There are no perfect places. But nobody cares about perfection when there are sand castles to build and kites to chase, children that are being born, old hearts that are giving in.
+ - Maybe it is desperation. Maybe we can’t let things fall apart without trying. We can’t let go of the people we love.
+ - I don’t dare touch her. Loss is a knowledge I’m sorry to have. Perhaps the only thing worse than experiencing it, is watching it replay anew in someone else – all the awful stages picking up like a chorus that has to be sung.
+ - It’s quiet for a while, and then Rowan says; “We could talk now. We’re alone out here. No walls.” “There are always walls.” I say.
+ - The trick was looking past the illusion, because the exit was never as far away as it seemed.
+ - There’s a world out there that nobody has bothered to promise her.
+ - The only characters I ever don’t like are ones that leave no impression on me. And I don’t write characters that leave no impression on me.
+ - I’ve done it all before, I tell myself, and I can do it again. Trust is the strongest weapon.
+ - He gathers me up and I’m weightless before he sets me on the railing. He’s the only thing keeping me from falling back, out of the reach of daylight. I’m not afraid of falling. I don’t fear the sky beyond the train tracks like I did before. I can go anywhere just so long as it’s with him.
+ - I think she’s brave. I think that nobody has ever believed what she could be capable of. All her life, nobody was listening.
+ - Maybe what frightens us about the edge isn’t our fear of morality, but the thoughts it leads us to have.
+ - I can almost see what Gabriel meant when he asked, ‘What has the free world got that you can’t get here?’ Almost. Freedom, Gabriel. That’s what you can’t get here.
+ - Linden just wants to protect her, is what I want to say. She’s all he has. I left him. I’m at arms reach, but I’ve left him.
+ - I like the idea of something greater than us. We destroy things with our curiosity. We shatter with our best intentions. We are no closer to perfection than we were one hundred years ago, or five hundred.
+ - There is no choice for him but to believe. He has nothing left to give in offering.
+ - My head is my favorite swimming pool.
+ - I always knew I was an excellent liar; I just didn’t know that I had it in me to fool myself.
+ - It was my fifth grade teacher who introduced the idea that writing could be more than a hobby for me.
+ - A party in the orange grove. The pain on Linden’s face is immediate. I am unwavering. He has cost me more pain than I will ever be able to repay.
+ - I’ll tell you something about true love. There’s no science to it. It’s as natural as the sky.
+ - We can change so many times in our lives. We’re born into a family, and it’s the only life we can imagine, but it changes. Buildings collapse. Fires burn. And the next second we’re someplace else entirely, going through different motions and trying to keep up with this new person we’ve become.
+ - Eventually I realize that I am holding on to him just as tightly as he holds on to me. And here we are: two small dying things, as the world ends around us like falling autumn leaves.
+ - There are so many of us, so many girls. The world wants us for our wombs or our bodies, or it doesn’t want us at all.
+ - I wonder if she has figured out that I’ll never love Linden, especially not in the way she does, and that he’ll never love anyone the way he loves her. I wonder if she realizes, despite all her efforts to train me, that I can never take her place.
+ - I think, in this strange world of beautiful things, there may be some humanity after all.
+ - Don’t forget how you got here. Don’t Forget.
+ - Time was our very first king. We all live our lives to the aggressive ticking of the clock. We don’t question that our lives are a grid of seconds; even our pulses oblige. No succeeding king can hope to hold this kind of power.
+ - When I am writing anything in general, I just want to tell the story that exists in my head; I don’t try to write a parable or make a point.
+ - She’s been conned, ruined, left for dead, and she’s not going to forgive any of it. She will soldier on, if only out of spite.
+ - Tell freedom I said hello.
+ - Gabriel’s voice can reach me anywhere. Even in a hurricane.
+ - I should not have loved my daughter as I did. Not in this world in which nothing lives for long. You children are flies. You are roses. You multiply and die.
+ - She’s beautiful and graceful, and she is very compassionate and loyal when you aren’t responsible for the murder of her family.
+ - You have a way of looking at things. You make it seem as though everything’s going to be okay. I can’t imagine a more dangerous thing to have than hope like yours.
+ - There’s a limit to how much living can be done in a life without freedom.
+ - I had this feeling like the solution to everything would be down there if only I could dig through all those clouds.
+ - There’s a sort of dead passion in him. A spark that, had he more years to live, would be a wildfire.
+ - Write words you’re willing to burn at the stake for. Write words you’d believe in even if the rest of the world didn’t.
+ - We are stronger than we’ve credited ourselves to be. We have been the victims and the witnesses. We have said a lifetime of good-byes.
+ - And everywhere girls, tumbling from trees like orange blossoms and hitting the earth with sickening thuds. They crack open.
+ - Sometimes we don’t know how afraid we are until we’ve reached a strange door and we don’t know what will be on the other side.
+ - Because even if the lie is beautiful, the truth is what you face in the end.
+ - The world seems so clean if you only looked up.
+ - So many of the things I’ve wanted are the things I’ve been taught to fear.
+ - The seeds are tiny, unborn things, and I resent them. They’ll be planted and they’ll grow into exactly what they’re meant to be.
+ - Did you tell freedom hello for me?
+ - He looks at me, and I don’t know what he sees. I used to think it was Rose. But she’s not here with us now, in this room. It’s just him and me, and the books. I feel like our lives are in those books. I feel like all the words on the pages are for us.
+ - But I know all the things you’re too sweet to know.
+ - No matter how lonely it makes me, and no matter how wide and horrific the loneliness, at least I remember who I am.
+ - But there’s no such thing as free. There are only different and more horrible ways to be enslaved.
+ - Her mind is a bird that’s trapped inside her skull, flapping and thrashing, never breaking free.
+ - It is the face of a girl who has seen the world, who realizes that it hates her, and who hates it in return.
+ - On tiptoes the redhead wouldn’t even reach my shoulders; she is clearly too young to be a bride. And the willowy girl is too forlorn. And I am too unwilling. Yet here we are.
+ - You’ve been captive for so long that you don’t even realize you want freedom anymore.
+ - Fate, I think, is a thief.
+ - You can’t be afraid. You can be sad if you like. You can be angry. But it’s the fear that’ll freeze you in place.
+ - When we’re alive, life consumes us. But when we die, all of the color and the motion is gone so quickly, it’s as though it can no longer stand to be wasted on us.
+ - A feeling can’t kill you.
+ - None of the wives mention the security guards by the door, who will probably tackle us to the ground if we try to leave without our husbands.
+ - We’ll squeeze every second that we can from our lives, because we’re young, and we have plenty of years to grow. We’ll grow until we’re braver. We’ll grow until our bones ache and our skin wrinkles and our hair goes white, and until our hearts decide, at last, that it’s time to stop.
+ - There is warmth shooting through my broken body where there should be pain, and I put my arms around the back of his neck and I hold on to him. I hold on because you never know in this place when something good will be taken away.
+ - We figure out what death means when we’re born, practically, and we live our whole lives in some kind of weird denial about it.
+ - I watch the ashes swim around like dandelion puffs, making swirls where bodies and walls once stood.
+ - I start trying to stay unconscious. The problem with this is that no amount of willpower can change the reality.
+ - I wonder what it’s like for her, looking so much like a dead girl.
+ - Kettle thingies. Yum.
+ - It doesn’t matter how much his mother loves him; love is not enough to keep any of us alive.
+ - He says one word, nodding into the daylight. “Look.” It’s an astounding word. It’s a gift.
+ - I was born into a world that was already dying; I belong to it.
+ - And if I have to die trying, I will get out of here.
+ - There’s a hazy smile on her lips that won’t go away, and her hair is a mess. It’s like a brushfire filled with casualties.
+ - Humans are the absolute worst thing to happen to this planet.
+ - Everyone should remember being born. It doesn’t seem fair that we only remember dying.
+ - The madness of youth made me unafraid.
+ - Vaughn is talking about the heat, and his voice is so excited that it breaks into whispers at times. He loves his madness the way a bird loves the sky.
+ - He sits next to me, careful to avoid my hair that’s splayed out around my head like blood. A bullet to the forehead, boom, blond waves everywhere.
+ - Times like this, when she slips her hand into mine and holds on tight, and our husband becomes just a shadow in the doorway.
+ - We writers are resilient souls.
+ - There is a silence so great that I can hear the ice crystals cracking and falling from eyelashes of girls who will never blink again.
+ - Forget who you are and what you think is there, and you’ll discover things that don’t exist to be known.
+ - I think humans have always been desperate. I think it has always been about doing something awful if it might help, when the only other option is death. Maybe that’s what being a parent is supposed to feel like.
+ - I can hear my brother’s voice in my head. Your problem is that you’re too emotional. But how can I not be emotional, Rowan? How can I not care?
+ - It’s never right to give up on someone.
+ - As I go, I hear her screaming my name, in a brutal, bloody way, like she’s being murdered, which maybe she is. But slowly. It will take her six years to die.
+ - I don’t know if it was love or an illusion. I don’t know if there’s ever a way to be certain.
+ - Bet you never eat, he says. Bet you drink up the oxygen like it’s butter. Bet you can go for days on nothing but thoughts.
+ - My worries always lead to dungeons; I can’t imagine a worse thing than to be imprisoned for the rest of one’s life, especially with so few years to enjoy what little there is.
+ - Love unrequited is violent. He loves you so much that he’s turned it into hate.
+ - I want to make the world into something better so that he can be okay.
+ - I think he’s beginning to understand, and understanding is a horrible thing.
+ - My sisters were in that van.
+ - I see an ocean that’s spilled out of a wineglass, its body clear and sparkling and folding over itself. I see a ribbon of sand.
+ - Hope, that risky, illustrious thing. It should have gone extinct by now, but we keep it alive.
+ - His three wives are huddled together on the bare mattress, one of them dying; when we’re together, we form an alliance he can’t touch. He’s scared to even try.
+ - There was a desperate undercurrent to our marriage – a feeling of being in a dream from which I couldn’t seem to awaken. A nagging sense that my life, laid out so neatly like the clothes Deirdre left on my divan, was no longer my own.
+ - Words like ‘unputdownable’ and ‘irresistible’ are simply not enough for Cat Winters’s In the Shadow of Blackbirds. Days after finishing this story, it remains the first thought I have in the morning, and the thing that haunts me until I sleep.
+ - Even the human race can’t claim to be natural anymore. We are fake, dying things. How fitting that I would end up in this sham of a marriage.
+ - The thing about hope is that it doesn’t go away even when it serves no purpose.
+ - A strange thing, words. Once they’re said, it’s hard to imagine they’re untrue.
+ - When we were first married, I thought he must have been the most heartless, hateful man I’d ever known, but he was just as much a prisonor as I was. Where Vaughn imprisoned me with walls, he imprisoned his son with ignorance.
+ - The sullen boy sitting before me is not my husband, and the girl he is fretting over isn’t me, will never be me.
+ - We accept gods that don’t speak to us. We accept gods that would place us in a world filled with injustices and do nothing as we struggle. It’s easier than accepting that there’s nothing out there at all, and that, in our darkest moments, we are truly alone.
+ - I wanted so badly to tell him, but something about that entire night seemed so beautiful, so bizarre, that I didn’t trust it with my secrets.
+ - The months fall to shards at my feet.
+ - Living in a place like this, she must have learned how to see all the monsters that can hide a person.
+ - I stare at her collarbone that’s framed with lace, the hollow of her throat, her shoulders that rise with each rise with the weight of her next breath. We’re fragile things. Our bones show through our skin. What would any god want with us?
+ - For males twenty-five is the fatal age. For women it’s twenty. We are all dropping like flies.
+ - I used to have only one name; it used to mean something.
+ - I liked just being with you. I liked the way you breathed when you were asleep. I liked when you took the champagne glass from my hand. I liked how your fingers were always too long for your gloves.
+ - It taught that there are three versions of things: the one I see in my mind, and the one that carries onto the paper, and then what it ultimately becomes.
+ - She has the majesty of hurricanes and explosions.
+ - Life is much different from the days when there were lilies in my mother’s garden, and all my secrets fit into a paper cup.
+ - I’m suddenly finding it hard to know the difference between nightmares and consciousness.
+ - Childhood is a long, long road, from which that dark whispering forest of death seems an impossible destination.
+ - We were his disposable things. Brought to him like cattle. Stripped of what made us sisters or daughters or children. There was nothing that he could take from us – our genes, our bones, our wombs – that would ever satisfy him. There was no other way that we would be free.
+ - It’s the silence I imagine in the rest of the world, the silence of an endless ocean and uninhabitable island, a silence that can be seen from space.
+ - She would do anything, anything to belong to his son after a lifetime of belonging to no one at all.
+ - She’s a commodity in a sea of broken girls.
+ - Rhine. The river that, somewhere out there, has broken free.
+ - Set fire to the broken pieces; start anew.
+
+138 quotes

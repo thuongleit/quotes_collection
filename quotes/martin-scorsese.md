@@ -1,0 +1,135 @@
+ - Music and film are inseparable. They always have been and always will be.
+ - Your job is to get your audience to care about your obsessions.
+ - There’s no such thing as simple. Simple is hard.
+ - The most important thing is the script.
+ - Now more than ever we need to talk to each other, to listen to each other and understand how we see the world, and cinema is the best medium for doing this.
+ - Cinema is a matter of what’s in the frame and what’s out.
+ - I always say that I’ve been in a bad mood for maybe 35 years now. I try to lighten it up, but that’s what comes out when you get me on camera.
+ - You’ve got to love something enough to kill it.
+ - When I’m making a film, I’m the audience.
+ - More than ninety percent of directing a picture is the right casting.
+ - There are times when you have to face your enemies, sit down and deal with it.
+ - My whole life has been movies and religion. That’s it. Nothing else.
+ - Always stay open to surprise.
+ - Popular music formed the soundtrack of my life.
+ - I love studying Ancient History and seeing how empires rise and fall, sowing the seeds of their own destruction.
+ - And as I’ve gotten older, I’ve had more of a tendency to look for people who live by kindness, tolerance, compassion, a gentler way of looking at things.
+ - Could you double-check the envelope?
+ - Because of the movies I make, people get nervous. They think of me as difficult and angry. I am difficult and angry, but they don’t expect a sense of humor. And the only thing that gets me through is a sense of humor.
+ - I’ve seen many, many movies over the years, and there are only a few that suddenly inspire you so much that you want to continue to make films.
+ - Movies touch our hearts, and awaken our vision, and change the way we see things. They take us to other places. They open doors and minds. Movies are the memories of our lifetime. We need to keep them alive.
+ - I look for a thematic idea running through my movies and I see that it’s the outsider struggling for recognition. I realize that all my life I’ve been an outsider, and above all, being lonely but never realizing it.
+ - It is not the most brilliant that excel in film, but the most patient!
+ - You don’t make pictures for Oscars.
+ - The most important thing is, how can I move forward towards something that I can’t articulate, that is new in storytelling with moving images and sound?
+ - If we just sit and exist, and understand that, I think it will be helpful in a world that seems like a record that’s going faster and faster, we’re spinning off the edge of the universe.
+ - Young film makers should learn how to deal with the money and learn how to deal with the power structure. Because it is like a battle.
+ - We cannot burn Mick Jagger. We want the effect, but we can’t burn him.
+ - If you don’t like the films of Samuel Fuller, then you just don’t like cinema.
+ - It seems to me that any sensible person must see that violence does not change the world and if it does, then only temporarily.
+ - Mean Streets dealt with the American Dream, according to which everybody thinks they can get rich quick, and if they can’t do it by legal means then they’ll do it by illegal ones.
+ - I don’t like being in houses alone.
+ - People have to start talking to know more about other cultures and to understand each other.
+ - Every scene is a lesson. Every shot is a school. Let the learning continue.
+ - If your mother cooks Italian food, why should you go to a restaurant?
+ - Watching a Kubrick film is like gazing up at a mountaintop. You look up and wonder, how could anyone have climbed that high?
+ - Our world is so glutted with useless information, images, useless images, sounds, all this sort of thing. It’s a cacophony, it’s like a madness I think that’s been happening in the past twenty-five years. And I think anything that can help a person sit in a room alone and not worry about it is good.
+ - Sometimes when you’re heavy into the shooting or editing of a picture, you get to the point where you don’t know if you could ever do it again.
+ - As you grow older, you change.
+ - I don’t think there is any difference between fantasy and reality in the way these should be approached in a film. Of course if you live that way you are clinically insane.
+ - During Prohibition, Atlantic City created the idea of the speakeasy, which turned into nightclubs and that extraordinary political complexity and corruption coming out of New Jersey at the time. The long hand that they had-and maybe still do-even had to do with presidential elections.
+ - Sometimes God picks you up and tells you, “You’ve been messing around now. You’re going to have to stop this, stop that, but I’ll give you another chance.” And you wonder why you’re given another chance. It must be for something; it must be to celebrate life.
+ - It’s interesting that these themes of crime and political corruption are always relevant.
+ - It did remind me of something out of Greek mythology – the richest king who gets everything he wants, but ultimately his family has a curse on it from the Gods.
+ - When I was growing up in the mid-’50s, the Roaring Twenties were a huge part of the culture. There were a number of films and a bunch of television shows that dealt with the mythology of the underworld from that period.
+ - There’s a way that the force of disappointment can be alchemized into something that will paradoxically renew you.
+ - Hong Kong cinema is something you can’t duplicate anyway.
+ - Food tells you everything about the way people live and who they are.
+ - I’m not a Hollywood director. I’m an in spite of Hollywood director.
+ - Basically, you make another movie, and another, and hopefully you feel good about every picture you make. And you say, ‘My name is on that. I did that. It’s OK.’ But don’t get me wrong, I still get excited by it all. That, I hope, will never disappear.
+ - The only way I was able to defend myself was to be able to take punishment. Then I got a lot of respect. They said, “Oh, he’s okay, he can take it. Don’t hit him.” The guys were pretty big, and I had asthma.
+ - I’m trying not to let the anger and the violence that erupt take over my life. I guess it comes with the growing process, I don’t know. A little mellowing.
+ - I grew up in the Lower East Side, an Italian American – more Sicilian, actually.
+ - Any film, or to me any creative endeavour, no matter who you’re working with, is, in many cases, a wonderful experience.
+ - When I was growing up, I don’t remember being told that America was created so that everyone could get rich. I remember being told it was about opportunity and the pursuit of happiness. Not happiness itself, but the pursuit.
+ - I’m not interested in a realistic look, not at all, not ever. Every film should look the way I feel.
+ - You gotta understand, when moving images first started, people wanted sound, color, big screen and depth.
+ - Being a father at a later age is different from when I had my other two daughters when I was in my 20s and 30s. If you’re in your 60s and you’re with the kid every day, you’re dealing with the mind of a child, so it opens up that childishness in you again.
+ - In truly great films – the ones that people need to make, the ones that start speaking through them, the ones that keep moving into territory that is more and more unfathomable and uncomfortable – nothing’s ever simple or neatly resolved. You’re left with a mystery.
+ - I always wanted to make a film that had this sort of Chinese-box effect, in which you keep opening it up and opening it up, and finally at the end you’re at the beginning.
+ - If I’m not complaining, I’m not having a good time, hah hah!
+ - I’m very phobic about flying, but I’m also drawn to it.
+ - The Five Points was the toughest street corner in the world. That’s how it was known. In fact, Charles Dickens visited it in the 1850s and he said it was worse than anything he’d seen in the East End of London.
+ - As a child I had terrible asthma.
+ - My working-class Italian-American parents didn’t go to school, there were no books in the house.
+ - Death comes in a flash, and that’s the truth of it, the person’s gone in less than 24 frames of film.
+ - You’ve got to protect whatever creative talent you have left.
+ - There are two kinds of power you have to fight. The first is the money, and that’s just our system. The other is the people close around you, knowing when to accept their criticism, knowing when to say no.
+ - I’m obsessed with New York. I just find it so remarkable. You really treasure this city when you go to different countries and you see that there is no mix. When you get back to the city, it’s such an exciting place.
+ - I’m going to be 60, and I’m almost used to myself.
+ - Every year or so, I try to do something; it keeps me refreshed as to what’s going on in front of the lens, and I understand what the actor is going through.
+ - There must be people who remember World War II and the Holocaust who can help us get out of this rut.
+ - If everything moves along and there are no major catastrophes we’re basically headed towards holograms.
+ - I’m in a different chapter of my life. As time goes by and I grow older, I find that I need to just be quiet and think. There have been periods when I’ve locked myself away for days, but now it’s different – I’m married and we have a daughter who is in my office the whole time.
+ - I do know that some Buddhists are able to attain peace of mind.
+ - My father had this mythological sense of the old New York, and he used to tell me stories about these old gangs, particularly the Forty Thieves in the Fourth Ward.
+ - I’m not videotaping my life, but in a way I am trying to put certain things about myself on canvas.
+ - I love movies – it’s my whole life, and that’s it.
+ - I think all the great studio filmmakers are dead or no longer working. I don’t put myself, my friends, and other contemporary filmmakers in their category. I just see us doing some work.
+ - I can’t really envision a time when I’m not shooting something.
+ - Film in the 20th century, it’s the American art form, like jazz.
+ - As a kid I watched the Academy Awards on television and always wanted one – or several – like one of my favorite directions, John Ford. He won six. On the other hand, Orson Welles, who’s on the top of my list, didn’t win any. Alfred Hitchcock didn’t win any. Howard Hawks didn’t win any.
+ - I’ve been thrown out of schools and fired from jobs. I don’t want to work. I can honestly say I haven’t done an honest day’s work in my life.
+ - What the Dalai Lama had to resolve was whether to stay in Tibet or leave. He wanted to stay, but staying would have meant the total destruction of Tibet, because he would have died and that would have ripped the heart out of his people.
+ - A panoramic vision of Bob Dylan, his music, his shifting place in American culture, from multiple angles. In fact, reading Sean Wilentz’s Bob Dylan in America is as thrilling and surprising as listening to a great Dylan song.
+ - Well, I think in my own work the subject matter usually deals with characters I know, aspects of myself, friends of mine – that sort of thing.
+ - I didn’t realize there are generations who do not know about the origins of film.
+ - Well the thing is that the New York of 1846 to 1862 was very different from downtown New York now. Really nothing from that period still exists in New York.
+ - I don’t agree with everything he did in his life, but we’re dealing with this Howard Hughes, at this point. And also ultimately the flaw in Howard Hughes, the curse so to speak.
+ - Vic Armstrong is, of course, a legend.
+ - I don’t think there’s a subject matter that can’t absorb 3-D; that can’t tolerate the addition of depth as a storytelling technique.
+ - The first element that I connected with was the emotion. Sorry, that’s how it goes.
+ - I accept all awards. I like them.
+ - Eradicating a religion of kindness is, I think, a terrible thing for the Chinese to attempt.
+ - Zombies, what are you going to do with them? Just keep chopping them up, shooting at them, shooting at them.
+ - The vampire thing always works for some reason. Always works.
+ - I still dislike phones, yeah!
+ - Working with HBO was an opportunity to experience creative freedom and ‘long-form development’ that filmmakers didn’t have a chance to do before the emergence of shows like ‘The Sopranos.’
+ - On the one hand, you’re the same person, but as you get older, you change somewhat, and you never know how it’s going to affect your work.
+ - Very often I’ve known people who wouldn’t say a word to each other, but they’d go to see movies together and experience life that way.
+ - I grew up within Italian-American neighborhoods, everybody was coming into the house all the time, kids running around, that sort of stuff, so when I finally got into my own area, so to speak, to make films, I still carried on.
+ - I also saw the Dalai Lama a few times.
+ - The problem with anger is that it’s so consuming. You’ve got to take it easy on yourself at a certain point.
+ - I go through periods, usually when I’m editing and shooting, of seeing only old films.
+ - Actually, I was rock climbing on this film at 7 in the morning. It was quite unique! But in any event, the colour of the leaves disturbed me so we had to work on that. On the other hand, I didn’t want to drench it in a kind of depressing tone.
+ - You have to put yourself in a situation, a lifestyle, that makes you do the work. Even if it’s a monastery.
+ - More personal films, you could make them, but your budgets would be cut down.
+ - My films really have to be a part of a whole body of work that says something to me.
+ - I just wanted to be an ordinary parish priest.
+ - Always get to the set or the location early, so that you can be all alone and draw your inspiration for the blocking and the setups in private and quiet.
+ - I certainly wasn’t able to get it when I was a kid growing up on the Lower East Side; it was very hard at that time for me to balance what I really believed was the right way to live with the violence I saw all around me – I saw too much of it among the people I knew.
+ - An interviewer once asked me to discuss my collaboration with Elmer Bernstein, and precisely why I chose to work with him. My first thought was: How could I not work with Elmer, when I had the chance? Simply put, he’s the best there is-the very best.
+ - The term ‘giant’ is used too often to describe artists. But in the case of Akira Kurosawa, we have one of the rare instances where the term fits.
+ - I would ask: Given the nature of free-market capitalism – where the rule is to rise to the top at all costs – is it possible to have a financial industry hero? And by the way, this is not a pop-culture trend we’re talking about. There aren’t many financial heroes in literature, theater or cinema.
+ - A lot of what I’m obsessed with is the relationship and the dynamics between people and the family, particularly brothers and their father.
+ - If you’re looking for the origins of film culture in America, look no further than Amos Vogel.
+ - There was always a part of me that wanted to be an old-time director. But I couldn’t do that. I’m not a pro.
+ - Alcohol decimated the working class and so many people.
+ - I love the look of planes and the idea of how a plane flies. The more I learn about it the better I feel; while I still may not like it, I have a sense of what is really happening.
+ - The tone of the picture and the atmosphere was in my head and in my blood in a way once I’d decided to make the picture. I had to find my way through that to choose, select, emphasise certain visual elements and sound.
+ - I’d like to do a number of films. Westerns. Genre pieces. Maybe another film about Italian Americans where they’re not gangsters, just to prove that not all Italians are gangsters.
+ - I’ve been to North Africa many times.
+ - The only thing I really wanted was the freedom to be able to get what I want on film. I’ve dealt with the MPAA since 1973, so I know how to renegotiate and rework.
+ - I have a desire to tell stories. And I’m never quite satisfied.
+ - I think what happened there was just the budget would be too big to build these sets because nothing really exists here in New York of that period; you have to build it all.
+ - I don’t know how else to tell the story except to utilise that vocabulary: the rain, the darkness, the mansions, the framing, etc, the lighting and that sort of thing.
+ - The bottom line is, I tend to be going back to older and older music.
+ - If it’s a modern-day story dealing with certain ethnic groups, I think I could open up certain scenes for improvisation, while staying within the structure of the script.
+ - I think there’s only one or two films where I’ve had all the financial support I needed. All the rest, I wish I’d had the money to shoot another ten days.
+ - All my life, I never really felt comfortable anywhere in New York, except maybe in an apartment somewhere.
+ - I was saying as a joke the other day that I love film editing, I know how to cut a picture, I think I know how to shoot it, but I don’t know how to light it. And I realize it’s because I didn’t grow up with light. I grew up in tenements.
+ - I loved the idea of seeing the world through a boy’s eyes.
+ - I know there were many good policemen who died doing their duty. Some of the cops were even friends of ours. But a cop can go both ways.
+ - I happen to like vampires more than zombies.
+
+133 quotes

@@ -1,0 +1,60 @@
+ - If you can’t fly then run, if you can’t run then walk, if you can’t walk then crawl, but whatever you do you have to keep moving forward. ~~Martin Luther King Jr.
+ - A winner is just a loser who tried one more time. ~~George Augustus Moore
+ - It always seems impossible until it's done. ~~Nelson Mandela
+ - I am a slow walker, but I never walk back. ~~Abraham Lincoln
+ - Success is the sum of small efforts, repeated day in and day out. ~~Robert Collier
+ - With ordinary talent and extraordinary perseverance, all things are attainable ~~Thomas Fowell Buxton
+ - Courage is not having the strength to go on; it is going on when you don’t have the strength. ~~Theodore Roosevelt
+ - The man who moves a mountain begins by carrying away small stones. ~~Confucius
+ - It's not that I'm so smart, it's just that I stay with problems longer. ~~Albert Einstein
+ - Once you learn to quit, it becomes a habit. ~~Vince Lombardi
+ - Most of the important things in the world have been accomplished by people who have kept on trying when there seemed to be no hope at all. ~~Dale Carnegie
+ - We will either find a way or make one. ~~Hannibal
+ - If you are going through hell, keep going. ~~Winston Churchill
+ - Our greatest glory is not in never failing, but in rising up every time we fail. ~~Ralph Waldo Emerson
+ - Never, never, never give in! ~~Winston Churchill
+ - Rivers know this: there is no hurry. We shall get there some day. ~~A. A. Milne
+ - When things go wrong, don’t go with them. ~~Elvis Presley
+ - It does not matter how slowly you go as long as you do not stop. ~~Confucius
+ - The difference between a successful person and others is not a lack of strength, not a lack of knowledge, but rather a lack in will. ~~Vince Lombardi
+ - Many of life’s failures are people who did not realize how close they were to success when they gave up. ~~Thomas A. Edison
+ - Hardships make or break people. ~~Margaret Mitchell
+ - Success is not final, failure is not fatal: it is the courage to continue that counts. ~~Winston Churchill
+ - A wise man will make more opportunities than he finds. ~~Francis Bacon
+ - When you get to the end of your rope. Tie a knot and hang on. ~~Franklin D. Roosevelt
+ - Champions keep playing until they get it right. ~~Billie Jean King
+ - Your first 10,000 photographs are your worst. ~~Henri Cartier-Bresson
+ - I'm a greater believer in luck, and I find the harder I work the more I have of it ~~Thomas Jefferson
+ - Never confuse a single defeat with a final defeat. ~~F. Scott Fitzgerald
+ - Constant dripping hollows out a stone. ~~Lucretius
+ - Success seems to be largely a matter of hanging on after others have let go. ~~William Feather
+ - The best way out is always through. ~~Robert Frost
+ - Perseverance and spirit have done wonders in all ages. ~~George Washington
+ - Sometimes even to live is an act of courage. ~~Seneca
+ - The difference between what we do and what we are capable of doing would suffice to solve most of the world’s problems. ~~Mahatma Gandhi
+ - Every strike brings me closer to the next home run. ~~Babe Ruth
+ - Big shots are only little shots who keep shooting. ~~Christopher Morley
+ - Great things come from hard work and perseverance. No excuses. ~~Kobe Bryant
+ - If you rest, you rust. ~~Helen Hayes
+ - It’s hard to beat a person who never gives up. ~~Babe Ruth
+ - If you have infinite patience and perseverance, success is bound to come. No mistake in that. ~~Swami Vivekananda
+ - Problems are not stop signs, they are guidelines. ~~Robert H. Schuller
+ - All great achievements require time. ~~Maya Angelou
+ - It’s always too early to quit. ~~Norman Vincent Peale
+ - Persistence is self-discipline in action. ~~Brian Tracy
+ - People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. ~~Andrew Carnegie
+ - Effort only fully releases its reward after a person refuses to quit. ~~Napoleon Hill
+ - Give me 100 percent. You can’t make up for a poor effort today by giving 110 percent tomorrow. You don’t have 110 percent. You only have 100 percent, and that’s what I want from you right now. ~~John Wooden
+ - The main thing is to keep the main thing the main thing. ~~Stephen R. Covey
+ - Let perseverance be your engine and hope your fuel. ~~H. Jackson Brown Jr.
+ - Wanting to win isn’t enough. You have to go through a process to improve. That takes patience, perseverance, and intentionality. ~~John C. Maxwell
+ - I long so much to make beautiful things. But beautiful things require effort and disappointment and perseverance. ~~Vincent van Gogh
+ - How long should you try? Until. ~~Jim Rohn
+ - Endurance is patience concentrated. ~~Thomas Carlyle
+ - The price of success is hard work, dedication to the job at hand, and the determination that whether we win or lose, we have applied the best of ourselves to the task at hand. ~~Vince Lombardi
+ - A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success. ~~Elbert Hubbard
+ - Perseverance, secret of all triumphs. ~~Victor Hugo
+ - If hard work, integrity, thrift, and perseverance have caused you to succeed, then you don’t owe anyone an apology for winning. ~~Dave Ramsey
+ - When nothing seems to help, I go look at a stonecutter hammering away at his rock perhaps a hundred times without as much as a crack showing in it. ~~Jacob August Riis
+
+58 quotes

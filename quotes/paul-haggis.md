@@ -1,0 +1,53 @@
+ - I miss my mother very, very much.
+ - If there’s magic in boxing, it’s the magic of fighting battles beyond endurance, beyond cracked ribs, ruptured kidneys and detached retinas. It’s the magic of risking everything for a dream that nobody sees but you.
+ - I’m a deeply broken person, and broken institutions fascinate me.
+ - United States could be a great country. It needs to be a great country. It’s our responsibility as citizens to make that happen, every single one of us.
+ - If you believe in someone enough, and you just don’t stop believing in them, mo matter what, no matter how much they push you away, and no matter how often they prove they’re only there to use you.
+ - We crash into each other just so we can feel something.
+ - I was trying to talk about where we are right now as a society, and talk about the fear we all live in, and certainly since 9-11, how it’s affected us and the world.
+ - If you’re in a relationship and you try to trust somebody who’s completely untrustworthy, when trust is the basis of any relationship and everyone else says not to trust, is love transformative.
+ - We think we know what’s right. With excessive pride comes blindness.
+ - Walk through Santa Monica and try to find somebody who knows a young man or woman who’s in this war. Here, war is an intellectual concept. If you lose your son or daughter, it’s no longer an intellectual matter.
+ - I like taking genres and subverting them. I did that with In the Valley of Elah. I said, Okay, this is just a murder mystery. Relax. And then, two thirds of the way through, I broke every convention of a murder mystery.
+ - The hope is what America represents to the world and has always represented – the hope for a better life and a better world. We have a duty to protect and support that hope with not just our words, but with our deeds.
+ - Unless I’m really uneasy with what I’m writing, I lose interest very quickly.
+ - Every 10 years, I know less about love and relationships. The smarter I get, the less I know.
+ - This is our fault. My fault as much as the next man’s, because even if I was against the war, I didn’t do enough to stop it.
+ - The wrong one will start saying things like “withdraw with honor.” We’ve heard phrases like that before, and they led to thousands and thousands of deaths. Democrats always want to look tough...
+ - When we’re threatened, it’s very easy to appeal to our basic natures.
+ - I just want to thank people who take big risks in their daily lives when there aren’t cameras rolling. I want to dedicate this award to people who stand up for peace and against injustice and intolerance.
+ - I don’t think writers should write about answers. I think writers should write about questions.
+ - You have to be careful of the advice you take.
+ - What I love about writing is the contradictions we all embody as human beings.
+ - I really wanted to make a nonpolitical political film. I wanted something that folks in red states and blue states could look at and not ask if this is the right thing to do to be in this war, but what this war is doing to the fabric of our society.
+ - I don’t think it’s the job of filmmakers to give anybody answers. I do think, though, that a good film makes you ask questions of yourself as you leave the theatre.
+ - I wanted to do a political film that is as nonpartisan as can be, because I wanted to do a story that was American. I wanted to tell an American tragedy.
+ - As a general rule, I don’t plan to travel with my Oscars, but we may have to make an exception.
+ - There are very few guys like me. I make a lot of money. I didn’t always...
+ - You’d be surprised how many writers, or how many actors, if they miss a paycheck or two, they’ve got nothing. As a writer or an actor you can have four or five jobs in one year and then have none for two years.
+ - As soon as you think you know Clint Eastwood, you don’t know Clint Eastwood.
+ - Always write from your gut, no matter what the project is.
+ - There’s something that’s so basically corrupt about any system in which a good and fair profit is not enough. There has to be more, every year, every quarter, because your stock price has to rise.
+ - I just always try to find an interesting story and tell it well. That’s a hard enough thing to do, whether it’s a piece of fiction or it’s a small piece of reality. I just look for good story.
+ - A creative person has to believe in the unseen and the untouched.
+ - I’ve lived in America for many years. I mean, I love being a Canadian, but I truly identify with America. I love America so much.
+ - I like to write about things about which I have no answers, questions that trouble me. These things trouble me.
+ - Right after we invaded Iraq, I put a sign on my lawn that said “War is not the answer.” That sign was either defaced, ripped up, or stolen every week. I had to replace that sign twelve times.
+ - I try not to think of actors as I’m writing because I think you do them a disservice by writing for things they’ve already done.
+ - We never did just one take. Multiple takes. Many. I did a bunch. Sometimes I do one take. Sometimes I did 20.
+ - I was in a cult for thirty-four years. Everyone else could see it. I don’t know why I couldn’t.
+ - We’re trying to reinvent Bond. He’s 28 – no Q, no gadgets.
+ - It turns out that good actors can make anything believable.
+ - I like to really respect the audience and let them come through on answers.
+ - We all have these tendencies in us that could go this way or that. I think that’s the real key in writing. To look at a character without judgment.
+ - If you change the right mind, then that person can perhaps change the world.
+ - I optioned the magazine article. That was end of 2003. It was a time when the war was incredibly popular here and everyone was driving around with flags on their car, if you remember not too long ago.
+ - You hear this story that we’re all on the left, but when there’s a demonstration, you count how many actors actually come out. If there’s a half dozen, that would be a big day.
+ - I just love actors, and I’ve always loved actors. I empathize with their job. Everyone thinks it’s easy, and it ain’t. To be that vulnerable and brave on camera is tough.
+ - Usually the characters are where I start. Then I continually ask myself, ‘What’s the worst thing that could happen to this character?’
+ - You don’t do pictures because the audience is ready for them. You do them because there’s something gnawing at you, something inside.
+ - It takes me awhile to find something that I’m passionate about. I’m reading a lot and thinking a lot, and torturing myself a lot because I’m feeling really guilty for not writing something today.
+ - What happens when these young men and women come home so scarred and so wounded? We are ignoring that fact. We’re just shoving them under the carpet.
+ - When I started to allow the characters to go where they wanted to go, I just had to follow.
+
+51 quotes

@@ -1,0 +1,24 @@
+ - Adulthood was invented to repair the wounds of childhood.
+ - Superstition is just fantasy with attitude; it’s a way of erroneously trying to control events.
+ - Infidelity, cheating is the easiest, stupidest, dumbest thing you can do.
+ - Take your hurt feelings and channel them into political activism.
+ - When in doubt, do the obvious.
+ - Getting enough of what you want without depriving anyone else is the ultimate act of selfishness and sanity.
+ - She’s an idiot. She’s looking at life through a selfish, lusty haze.
+ - When a guy says, “Don’t make a fuss over my birthday,” he means “Don’t make a fuss over my birthday”. When we say “Don’t make a fuss over my birthday,” we mean “Give me a surprise party. Do something lavish. Just don’t tell everyone my age.”
+ - A dedication to perfection means that we are doomed always to be just a heartbeat way – from exposure. Perfection is unchanging; lives are ongoing.
+ - Opposites attract – and then aggravate.
+ - If we give up the notion that everybody’s life is perfect but ours, we would be a lot happier. Nobody’s life is perfect.
+ - You don’t need a reason to divorce someone you can’t stand.
+ - How do you take something and make it special? The answer is a lot of hard work and a great deal of imagination.
+ - It’s not unusual for kids in their twenties to be mad at their parents.
+ - Just trying to do something – just being there, showing up – is how we get braver. Self-esteem is about doing.
+ - It does no good to be right, if what you’re craving is wrong.
+ - Charity always feels better to the donor than to the recipient.
+ - You’re much more interesting when you’re online – all of us are.
+ - The American notion of family is perhaps the most romanticized, deep-rooted, and misery-producing fantasy of the last hundred years.
+ - We’ve turned into a nation of mothers to our men. I think it’s a dreadful mistake that doesn’t benefit anybody.
+ - It is a lot harder to put something back together than to keep it running.
+ - You can certainly go to war about it, but to me it seems pointless.
+
+22 quotes

@@ -1,0 +1,99 @@
+ - Language is the blood of the soul into which thoughts run and out of which they grow.
+ - To reach a port we must sail, sometimes with the wind, and sometimes against it. But we must not drift or lie at anchor.
+ - Have the courage to act instead of react.
+ - It is the province of knowledge to speak, and it is the privilege of wisdom to listen.
+ - For the simplicity on this side of complexity, I wouldn’t give you a fig. But for the simplicity on the other side of complexity, for that I would give you anything I have.
+ - Even a dog knows the difference between being kicked and being stumbled over.
+ - Speak clearly, if you speak at all; carve every word before you let it fall.
+ - Many people die with their music still in them. Why is this so? Too often it is because they are always getting ready to live. Before they know it, time runs out.
+ - Where we love is home – home that our feet may leave, but not our hearts.
+ - Love is the master-key that opens the gates of happiness, of hatred, of jealousy, and, most easily of all, the gate of fear.
+ - Some people are so heavenly minded that they are no earthly good.
+ - It’s faith in something and enthusiasm for something that makes a life worth living.
+ - Take your needle, my child, and work at your pattern; it will come out a rose by and by. Life is like that – one stitch at a time taken patiently and the pattern will come out all right like the embroidery.
+ - Fresh air is good if you do not take too much of it; most of the achievements and pleasures of life are in bad air.
+ - I think that, as life is action and passion, it is required of a man that he should share the passion and action of his time at peril of being judged not to have lived.
+ - A moment’s insight is sometimes worth a life’s experience.
+ - The Amen of nature is always a flower.
+ - A few can touch the magic string, and noisy fame is proud to win them: Alas for those that never sing, but die with all their music in them!
+ - The morning cup of coffee has an exhilaration about it which the cheering influence of the afternoon or evening cup of tea cannot be expected to reproduce.
+ - To be seventy years young is sometimes far more cheerful and hopeful than to be forty years old.
+ - Nothing is so common as the desire to be remarkable.
+ - There is no friend like an old friend who has shared our morning days, no greeting like his welcome, no homage like his praise.
+ - Youth fades, love droops, the leaves of friendship fall; A mother’s secret hope outlives them all.
+ - Build thee more stately mansions, O my soul, As the swift seasons roll! Leave thy low-vaulted past! Let each new temple, nobler than the last, Shut thee from heaven with a dome more vast, Till thou at length art free, Leaving thine outgrown shell by life’s unresting sea!
+ - Put not your trust in money, but put your money in trust.
+ - Stillness of person and steadiness of features are signal marks of good breeding.
+ - Don’t you stay at home of evenings? Don’t you love a cushioned seat in a corner, by the fireside, with your slippers on your feet?
+ - The sound of a kiss is not so loud as that of a cannon, but its echo lasts a great deal longer.
+ - Insanity is often the logic of an accurate mind overtasked.
+ - Beware how you take away hope from another human being.
+ - Wisdom is the abstract of the past, but beauty is the promise of the future.
+ - Controversy equalizes fools and wise men in the same way – and the fools know it.
+ - Rough work, iconoclasm, but the only way to get at truth.
+ - You may have genius. The contrary is, of course, probable.
+ - Truth is tough. It will not break, like a bubble, at a touch; nay, you may kick it about all day like a football, and it will be round and full at evening.
+ - The books we read should be chosen with great care, that they may be, as an Egyptian king wrote over his library,’The medicines of the soul.
+ - Leverage is everything-don’t begin to pry until you’ve got the long arm on your side.
+ - Without wearing any mask we are conscious of, we have a special face for each friend.
+ - Love prefers twilight to daylight.
+ - Yes, child of suffering, thou may’st well be sure He who ordained the Sabbath loves the poor!
+ - Man has his will, but woman has her way.
+ - We are all tattooed in our cradles with the beliefs of our tribe; the record may seem superficial, but it is indelible. You cannot educate a man wholly out of the superstitious fears which were implanted in his imagination, no matter how utterly his reason may reject them.
+ - The Indian is but a sketch in red crayon of a rudimental manhood. To the problem of his relation to the white race, there is one solution: extermination.
+ - Do not be bullied out of your common sense by the specialist; two to one, he is a pedant.
+ - Memories, imagination, old sentiments, and associations are more readily reached through the sense of smell than through any other channel.
+ - But friendship is the breathing rose, with sweets in every fold.
+ - To obtain a man’s opinion of you, make him mad.
+ - A woman never forgets her sex. She would rather talk with a man than an angel, any day.
+ - The real religion of the world comes from women much more than from men – from mothers most of all, who carry the key of our souls in their bosoms.
+ - Learn the sweet magic of a cheerful face.
+ - The mind of a bigot to the pupil of the eye; the more light you pour on it, the more it contracts.
+ - Sweet is the scene where genial friendship plays the pleasing game of interchanging praise.
+ - Man is born a predestined idealist, for he is born to act. To act is to affirm the worth of an end, and to persist in affirming the worth of an end is to make an ideal.
+ - Memory is a net: one that finds it full of fish when he takes it from the brook, but a dozen miles of water have run through it without sticking.
+ - The best servant does his work unseen.
+ - I like children; I like ’em, and I respect ’em. Pretty much all the honest truth-telling there is in the world is done by them.
+ - The very aim and end of our institutions is just this: that we may think what we like and say what we think.
+ - Most people are willing to take the Sermon on the Mount as a flag to sail under, but few will use it as a rudder by which to steer.
+ - A goose flies by a chart which the Royal Geographical Society could not mend.
+ - I firmly believe that if the whole material medica, as now used, could be sunk to the bottom of the sea, it would be better for mankind-and all the worse for the fishes.
+ - What a blessed thing it is, that Nature, when she invented, manufactured, and patented her authors, contrived to make critics out of the chips that were left!
+ - A child’s education should begin at least one hundred years before he is born.
+ - The sea drowns out humanity and time. It has no sympathy with either, for it belongs to eternity; and of that it sings its monotonous song forever and ever.
+ - Stupidity often saves a man from going mad.
+ - A pun does not commonly justify a blow in return. But if a blow were given for such cause, and death ensued, the jury would be judges both of the facts and of the pun, and might, if the latter were of an aggravated character, return a verdict of justifiable homicide.
+ - Science is a first-rate piece of furniture for a man’s upper chamber, if he has common sense on the ground-floor. But if a man hasn’t got plenty of good common sense, the more science he has, the worse for his patient.
+ - We call those poets who are first to mark, Through earth’s dull mist the coming of the dawn, Who see in twilight’s gloom the first pale spark, While others only note that day is gone.
+ - Apology is only egotism wrong side out.
+ - A person is always startled when he hears himself seriously called an old man for the first time.
+ - What we most want to ask of our Maker is an unfolding of the divine purpose in putting human beings into conditions in which such numbers of them would be sure to go wrong.
+ - Our brains are seventy-year clocks. The Angel of Life winds them up once for all, then closes the case, and gives the key into the hand of the Angel of the Resurrection.
+ - America is the only place where man is full-grown!
+ - The world’s great men have not commonly been great scholars, nor its great scholars great men.
+ - Truth, when not sought after, rarely comes to light.
+ - Why can’t somebody give us a list of things that everybody thinks and nobody says, and another list of things that everybody says and nobody thinks?
+ - Don’t flatter yourselves that friendship authorizes you to say disagreeable things to your intimates. On the contrary, the nearer you come into relation with a person, the more necessary do tact and courtesy become.
+ - Youth longs and manhood strives, but age remembers.
+ - No families take so little medicine as those of doctors, except those of apothecaries.
+ - When I think of talking, it is of course with a woman. For talking at its best being an inspiration, it wants a corresponding divine quality of receptiveness, and where will you find this but in a woman?
+ - For nothing burns with such amazing speed, As the dry sticks of a religious creed.
+ - Life as we call it, is nothing but the edge of the boundless ocean of existence when it comes upon soundings.
+ - Science is the topography of ignorance.
+ - Don’t be ‘consistent,’ but be simply true.
+ - Cupid “the little greatest enemy.”
+ - Every library should try to be complete on something, if it were only the history of pinheads.
+ - A man may fulfill the object of his existence by asking a question he cannot answer, and attempting a task he cannot achieve.
+ - What refuge is there for the victim who is oppressed with the feeling that there are a thousand new books he ought to read, while life is only long enough for him to attempt to read a hundred?
+ - The man who is always worrying about whether or not his soul would be damned generally has a soul that isn’t worth a damn.
+ - Trouble makes us one with every human being in the world – and unless we touch others, we’re out of touch with life.
+ - Whatever comes from the brain carries the hue of the place it came from, and whatever comes from the heart carries the heat and color of its birthplace.
+ - It is a good plan to have a book with you in all places and at all times. If you are presently without, hurry without delay to the nearest shop and buy one of mine.
+ - Chicago sounds rough to the maker of verse. One comfort we have – Cincinnati sounds worse.
+ - I hate facts. I always say the chief end of man is to form general propositions – adding that no general proposition is worth a damn.
+ - I would never use a long word, even, where a short one would answer the purpose.
+ - Civilization is the process of reducing the infinite to the finite.
+ - Every event that a man would master must be mounted on the run, and no man ever caught the reins of a thought except as it galloped past him.
+ - Nothing is more common than the wish to be remarkable ~~Oliver Wendell Holmes Sr.
+
+97 quotes

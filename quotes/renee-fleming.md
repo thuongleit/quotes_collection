@@ -1,0 +1,75 @@
+ - I’m lucky – I can do two things at once.
+ - Well, any time Im preparing for a performance or even a rehearsal, its as if in a way, like any other athletes, these are muscles that support the vocal cords which are just I believe cartilage. It demands a kind of constant warming up and a constant feeling of where is the voice today.
+ - In a way, being an opera singer is like being a very romantic sixteen-year-old who falls in love with great passion and conviction every month.
+ - Music enabled me as a fragile young person to give voice to emotions I could barely name, and how it enables me to give my voice the unique and mysterious power to speak to others.
+ - I was constantly being pushed toward a European ideal of what it means to be a classical or opera singer, let’s say in the Renata Tebaldi mode. I reject that.
+ - No voice teacher can be all things to all people. You have to gain information from whatever sources you can. You have to listen.
+ - Fostering creativity in children is as important as any other part of the school curriculum because it feeds the soul. A daily dose of creativity helps children imagine a better world and then create it.
+ - For years, I had no time for exploratory travel.
+ - I’ve lived in New York all my life, and we went to the Mormon Pageant each year in upstate New York. It still is a wonderful production. I remember going and seeing the performance and listening to the music. My father had Mormon Tabernacle Choir music, and we would listen to it and sing with it.
+ - I don’t want to be somebody who stands still and sings pretty. Each song is a world. Each song is a story. I don’t achieve nearly what I want.
+ - I think opera has gained a kind of glamorous appeal. It’s a live performance that aligns all of the arts, and when it is represented in the media, in film in particular, it is presented as something that is really a special event, whether it’s a great date or something that’s just hugely romantic.
+ - My worry is that opera will become an historic art form as opposed to a living, breathing thing.
+ - I cannot imagine a more satisfying calling than my own: beauty, humanity, and history every day, combined with the cathartic joy of singing.
+ - I do everything in the third person. Performance is about being someone else.
+ - You finally have to learn to pull all the different kinds of teaching and training and coaching together on you own, so that your voice and body and technique for a sound that is consistent and solid.
+ - Very few opera singers in history have been able to cross into popular music.
+ - My parents discussed singing every night over the dinner table; I had a tremendous music education.
+ - We sing with the entire body. The sounds that we make emanate not just from the head, but from the whole heart and soul, and, most important, the gut.
+ - I’m not a reactionary.
+ - Because everything about the voice interests me, I felt it would be fascinating to learn a completely different style of singing.
+ - Perfection often creates such a flawless surface that there’s no place for the audience to enter into a piece, while the idiosyncrasies of individual style are like windows into the singer’s heart.
+ - My mother was the worst kind of stage mother. She would make me and my younger sister and brother little duckling costumes and put us in kiddie shows.
+ - Every singer eventually gets around to a Christmas disc.
+ - I have had a very difficult time with stage fright; it undermines your well-being and peace of mind, and it can also threaten your livelihood.
+ - Certainly, jazz has become more of a niche, which is surprising, because it’s our music. It’s the national music of America.
+ - I think singing it when its done well is extremely natural. It feels great.
+ - A lot of bad behavior in singers is caused by nerves.
+ - Among the important realizations I had in my own days in the practice room was that if any one route to any one phrase didn’t work after days of trying, then the exact opposite route should at least be explored, as well as every alternative in between, as counterintuitive as that often seemed.
+ - I have a noble history of being rejected by a lot of places, only to discover that the one that finally lets me in is in fact the perfect fit.
+ - I was always a very good student.
+ - I have a certain image that’s more classic, and I’m happy to stay out of the fray.
+ - I haven’t really been able to transfer into that extraordinarily other worldly creature, other than I hope on stage.
+ - I don’t like to sing loud.
+ - The reason that some singers go on to become great artists has very little to do with their voices, but rather with the fact that they have used their instruments as tools for detailed communication.
+ - The more you put into it, the more you and the audience will get out of it.
+ - Being steeped in the process of learning and exploring keeps me from becoming too nervous. Partly it’s about not getting bored.
+ - Singers can also get away with a lot based on youth, strength and enthusiasm, only to find ten years later that what was once just a niggling problem has brought their careers to an end.
+ - When I sing, the sound is a totally different range, color, all of it. It’s all about the breath. You take in a breath and you make a sound.
+ - I want to get out of the major opera houses.
+ - I would love to do more private concerts.
+ - For a while it was hard for me to say no to work.
+ - One of my timesaving habits is to save all of my magazines and junk mail for airplane trips. I walk on the plane with a very heavy bundle, but by the time the trip is over, it can all be thrown away.
+ - It is our responsibility to learn how to speak to an audience that is less informed about music, to give it a reason to want to come and see us instead of going to the movies.
+ - I have not changed with the accomplishments. I’ve remained the same. If I had changed, great. You know, but I haven’t.
+ - We are unique, each human voice, not because we are completely self-generated, but because of who we choose to assemble the countless factors that made us.
+ - I am so envious of my colleagues from 100 years ago who only sang new works, they hardly ever sang revivals.
+ - I want to keep my voice young, with nothing heavy.
+ - When a human being without amplification makes a sound that is high and loud, it is almost unworldly.
+ - If I have to hold a note for a long time, I imagine it as moving and spinning, for the note has to have life. In a way, a singer actually refreshes a note with every beat that it’s held.
+ - A lot of performers don’t want to leave the circuit, the European opera house circuit, partly because most singers don’t sing many concerts, or at least not while they are in their prime.
+ - With classical singing you have to put out so much air – you project, you emit force.
+ - My philosophy is that the people around us are there doing as much work if not more work behind the scenes and they’re the last people you would ever be unkind to, so I hope I’m not a diva off stage.
+ - While it’s a fact that a voice begins with natural talent, any talent must be nurtured, cajoled, wrestled with pampered, challenged, and, at every turn, examined.
+ - The first thing I did when I made a little bit of money as a singer was to buy myself an amber necklace. This is often the way we put together our lives, adding the striking qualities of others into our own character.
+ - I don’t want to record anything unless it can be great and genuinely interesting.
+ - Contrary to the norm, as my technique improved my voice became higher.
+ - Having to travel so much plays havoc with your personal life.
+ - For my own singing, I used to be attracted by the baroque, the flashier the better, but now I prefer a simpler, purer style.
+ - I’m reserved, so I’ve always needed to find a way of opening up. Jazz helped me do that.
+ - I’m not exactly an angry young person.
+ - The student’s job is to stay open-minded, to quell the knee-jerk defensiveness we all possess in the face of suggestions for improvement, and to maintain patience when faced with a process that is often slow, confusing, and frustrating.
+ - I’ve spent hours and hours doing research into Appalachian folk music. My grandfather was a fiddler. There is something very immediate, very simple and emotional, about that music.
+ - I think singing is one of the most natural things that human beings do, but it’s difficult.
+ - I listen to archival and historic recordings. I love watching singers. I learned a lot from watching videos.
+ - I learned so many roles so quickly as a young singer, I thought it was time to come back to them and make them better – deeper, more nuanced.
+ - An interpretation exists because of what we find between the notes.
+ - I’m American. I’m eclectic. I’m going to follow my musical passions. And if people don’t like it, and it hurts my legacy, I’m not going to worry about that.
+ - I’ve always been inspired by artists who have shown musical and intellectual curiosity and the courage to take risks.
+ - I enjoy the more floaty, exposed, elegant singing.
+ - My whole career I played these girls sort of 18 to 23.
+ - Someone once said that there are probably seven naturally good singing days in a year-and those are days you won’t be booked. What we must learn is how to sing through all the other days.
+ - So much can be gained from watching other singers, seeing what they do and what they don’t do, seeing how they look when they breathe, how wide they open their mouths for a high note.
+ - There’s no performance where I never have to think about setting up a phrase or making a technical adjustment while I’m performing.
+
+73 quotes

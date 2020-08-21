@@ -1,0 +1,21 @@
+ - Death always wins.
+ - You can touch me, but you can’t hurt me.
+ - In love. In love with the stoic, the sullen, the eternally morose Varen Nethers? He would never allow it.
+ - When there is no way, you must make a way.
+ - They know you lied.
+ - You never give up, even when you should.
+ - Just because I live in the sunlight, enjoy being blond, and wear a cheerleading uniform, that doesn’t mean I’m stupid. I’m so sick of that.
+ - My beautiful, my Isobel. My Love. You ask me to wait. And so I wait. For all of this, I know, is but a dream. And when, in sleep, at last we wake, I will see you again.
+ - Just because I wear black and keep a private journal, that doesn’t mean I’m going to blow up the school. Or terrorize mindless cheerleaders, for that matter.
+ - Her fingertips reached to trace the damage, but he grasped her hand with his own. He leaned down, far enough that the dark ends of his hair brushed feather-light against her face, caught in her lashes.
+ - He clutched the watch hard in his fist, determined to destroy it, to prove that it couldn’t be real. That she hadn’t come here because of him, for him. That he hadn’t done what he knew he had.
+ - As much as he was different from other guys, he still had that stupid male pride thing.
+ - There is always that fine line between doing what we want and doing what we’re told.
+ - Words, Isobel, have always held the dangerous power to conjure things into being. Remember that.
+ - The more this guy talked, the more he sounded like a fortune cookie.
+ - It is naught but pain and regret when we think of the things and people we will never have, the opportunities we may never get.
+ - She had just enough time to take in a breath, to blink, to part her lips before he took them with his own.
+ - Holy granola. He’s coming over here.
+ - She’d never been kissed like that before – like the shell of her soul had evaporated.
+
+19 quotes

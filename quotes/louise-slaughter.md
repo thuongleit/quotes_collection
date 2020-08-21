@@ -1,0 +1,23 @@
+ - Let’s clean up our environment. Let’s clean up our bodies, but most importantly, let’s not permit our babies of the future to be polluted before they are even born.
+ - The Second Amendment only protects the people who want all the guns they can have. The rest of us, we’ve got no Second Amendment. What are we supposed to do?
+ - While other industries have suffered, the nonprofit arts world continues to build in strength while it encourages the growth of innumerable small businesses on its periphery, thereby creating more jobs.
+ - For most women, including women who want to have children, contraception is not an option; it is a basic health care necessity.
+ - As a microbiologist, I am particularly concerned with Mr. Bush’s blatant disregard for science.
+ - Our girls have learned that sweat is sexy, brawn is beautiful and a little dirt never hurt anyone.
+ - Half of all women who are sexually active, but do not want to get pregnant, need publicly funded services to help them access public health programs like Medicaid and Title X, the national family planning program.
+ - Honesty, integrity, and accountability, the values, which should be the hallmark of this government, have instead been thrown under the bus by an arrogant majority, casualties in a misguided campaign to shield from accountability those who abuse this House.
+ - This House cannot function without an open, accountable, and independent ethics process; and the molestation of that process by the majority is an abuse of power that cannot stand.
+ - Women in the service put themselves in harms way to protect us and our Nation from threats at home and abroad. The least we can do is ensure they are protected when facing a horrible tragedy.
+ - The Defense Department must do a better job of providing the best possible care for service women who are victims of sexual assault.
+ - Credit card companies pay college students generously to stand outside dining halls, dorms, and academic buildings and encourage their fellow students to apply for credit cards.
+ - Challenge America grants go to the towns and hamlets of this sprawling country, where big touring companies will rarely go, and major actors, actresses, writers and artists may never appear in person.
+ - That we have children coming into this world already polluted, at the same time we don’t know what the effects of that pollution will be on their mental and physical development, is both bad policy and immorally wrong.
+ - Susan B. Anthony formed the Equal Rights Association, refuted ideas that women were inferior to men, and fought for a woman’s right to vote.
+ - And whether it is equal pay, health care, Social Security, or family leave, this Congress has refused to address issues critical to hard-working American women.
+ - We have a responsibility to promote stem cell research which could lead to treatments and cures for diseases affecting millions of Americans.
+ - Surely the Department of Defense can and needs to do a better job of training new and existing first responders to respond to sexual assaults occurring in the military.
+ - We all know that girls who compete in sports perform better in school, are physically healthier and have a stronger self-esteem.
+ - Many poor and low-income women cannot afford to purchase contraceptive services and supplies on their own.
+ - We have record high temperatures and record high energy prices across the country, and we’ve seen the dangerous effects caused by extreme temperatures in the past.
+
+21 quotes

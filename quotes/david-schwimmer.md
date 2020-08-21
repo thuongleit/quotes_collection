@@ -1,0 +1,34 @@
+ - I like to challenge myself. I like to learn – so I like to try new things and try to keep growing.
+ - You’re only as good as the sum of your parts, and one person can’t be a team.
+ - Being generous or doing things for others actually makes me feel good so I don’t do it because I hope karma will come round and get me and I’ll benefit from it.
+ - Ive always been pretty energetic.
+ - If there’s something I want, I go for it. I just think about how I’m going to go for it.
+ - I had a mustache when I was 13.
+ - I spend half my time just living my life, and the other half analyzing it.
+ - My parents from a very young age raised my sister and I under a pressure to achieve. Theyre both attorneys. So good marks, getting through university, there was a huge emphasis and pressure to do well and keep going.
+ - At this age – I’m 44 – I think life’s too short. I want it to mean something to me, if I’m going to spend that much time doing it.
+ - I love helping someone else tell their story, but I like being the storyteller sometimes.
+ - I find America falling in love with a TV show flattering and interesting, but at the same time a little sad.
+ - When I was six years old, my parents took me to this farmers market with a petting zoo. They put me on a pony and, for some reason, it took off at a run and they had to chase it down. They tell me it was kind of traumatic.
+ - I was a geek in high school.
+ - And, again, I’m the first one to say that I’m not going be successful at everything.
+ - I’m fiercely loyal to my friends, and I really cherish my friendships.
+ - Can I tell you how strange it is to look in your rearview mirror and see guys in cars tailing you?
+ - It’s really important to me not to be known as Ross when I’m 60.
+ - And the thing is, every time you start a new show or do a new series, you’re committing to another six years.
+ - I would say acting on stage is my first love.
+ - If someone doesn’t believe enough in your product to put money in to it, then you should rethink how good the product is.
+ - I’m very goal oriented.
+ - Our imagination often is more horrifying than being shown something.
+ - If I were given a choice between two films and one was dark and explored depraved, troubled or sick aspects of our culture, I would always opt for that over the next romantic comedy.
+ - There is a danger, if you cast someone who is 18, 19 or 20 to play 14 or 15, that very subtly, almost unconsciously, the audience is, “Oh, this isn’t so bad.”
+ - I don’t think I responded very well to the sudden celebrity, the sudden fame, and the loss of privacy.
+ - If I’m going to do something, I really put everything into it and I want it to mean something to me.
+ - I think the other honest attraction was that I just grew up loving watching TV and loving watching film, and there’s so many directors and actors that I dreamed of working with, I just really wanted to take a crack at it and see if I could ever work with some of those.
+ - There are days when I think: what if I just checked out? What if I grew a beard and went off to live somewhere remote? I have often wondered about the freedom that would bring.
+ - I think I’m a very very nice director. Very supportive, very nurturing. I definitely try to challenge my actors but I think I’m very supportive.
+ - I think it was really crucial that the actress was age appropriate. There are films, such as An Education, where that wasn’t the case, and I think that really affects how you receive what you’re watching.
+ - A lot of a movie is locations, frankly.
+ - Sometimes I’ve felt that the industry has typecast me as a certain kind of character. But then I think all it really takes is one role, the right role, to shake that up and change that perception.
+
+32 quotes

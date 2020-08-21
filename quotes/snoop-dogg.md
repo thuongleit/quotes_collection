@@ -1,0 +1,121 @@
+ - My mind on my money, my money on my mind.
+ - Drop it like it’s hot.
+ - There’ll be ups and downs, smiles and frowns.
+ - You don’t get respect if you don’t deserve it.
+ - If you stop at general math, you’re only going to make general math money.
+ - The more medicated the more dedicated.
+ - It ain’t no fun if the homies can’t have none.
+ - If it’s flipping hamburgers at McDonald’s, be the best hamburger flipper in the world. Whatever it is you do you have to master your craft.
+ - I’m here to impress only one man. He don’t live here with us. He’s on top. So that’s all I’m concerned about. My work is not for the public or for man to view or make judgment on me, I work for one person...
+ - Everybody wants to be a winner. Winning for you is everything, right? Wrong, winning is the only thing!
+ - Don’t get upset girl, that’s how it goes. I don’t love you hoes, I’m out the door.
+ - Be your own leader, be your own self, step out of my shadows and be your own person.
+ - You might not have a car or a big gold chain, stay true to yourself and things will change.
+ - If the ride is more fly, then you must buy.
+ - With so much drama in the L-B-C, It’s kinda hard bein Snoop D-O-double-G.
+ - Growing up, I didn’t dream of being nothing, of living in the ghetto my whole life. I wanted to get out.
+ - Why do people carry guns? Protection, right? To protect me and myself. Whether it’s home protection or street protection.
+ - You’ve got to always go back in time if you want to move forward.
+ - You’re turned in to the biggest balls of them all, DJ Suk T Nutts.
+ - Trump says he wants to run for president. Why not? It wouldn’t be the first time he pushed a black family out of their home.
+ - It’s old white ladies, old black ladies, old black men, who don’t even listen. Everyone else, everyone who understands, likes Snoop Dogg. They like my music.
+ - If you’re trying to get somebody and this might be the only time you’re going to catch him, but he is holding his baby and with his mama, you ain’t gonna let that chance go by. That’s the mentality of the streets. If you let that chance go by, he might catch your ass.
+ - So don’t blame me for the problems. You can’t fault me for it. You can’t blame me. You want to blame me but I’m just trying to express what is going on, and trying to keep America open to it.
+ - Love goes unappreciated a lot of times, but you still gotta keep giving it.
+ - It’s an unexplainable feeling, an expression. It’s a touch, it’s a feel. Once you feel it, it’s like no other thing in the world.
+ - Sometimes if you’re lucky, someone comes into your life who’ll take up a place in your heart that no one else can fill, someone who’s tighter than a twin, more with you than your own shadow, who gets deeper under your skin than your own blood and bones. -SNOOP DOG.
+ - It’s natural. I freestyle, meaning that I just rap. I might put words on paper, but I just put a beat on my rap, and go off the top of my head. It’s something I’ve been able to do for a long time.
+ - When I turned 16, I thought I was a man. I needed the money. When you don’t have it, crazy thoughts go through your mind.
+ - I’m so sick and tired of all this violence, this gun violence. And how could I speak on it – you know – being one who has advocated violence and gun violence? The only way I could do it was through a song that spoke from the heart.
+ - What people don’t understand is joining a gang ain’t bad, it’s cool, it’s fine. When you in the hood, joining a gang it’s cool because all your friends are in the gang, all your family’s in the gang. We’re not just killing people every night, we’re just hanging out, having a good time.
+ - I’m not complicated at all. I say raps that your two-year-old son can learn.
+ - Your only gain is to try to get me to fall down to your level. Man, you worser than devils.
+ - Sometimes a loss is the best thing that can happen. It teaches you what you should have done next time.
+ - I used to get stressed out all the time when I thought winning was important. I wanted to try to win and help my kids win. Once I figured out it wasn’t about winning or losing, it was about teaching these kids about being men, that’s when I started to relax.
+ - Now people think it’s cool to have a baby, but it ain’t cool to take care of it. We have to change that. You make your life for that baby. That’s the future.
+ - Just giving the people a great show, leaving it all on the stage. Like when I’m finished I don’t want to go home with nothing, I want to leave it all there on the stage, that’s what I’m thinking about before I hit the stage.
+ - Drugs bring in guns. They bring in all these black-on-black crimes.
+ - I’m a smoker, my name is Snoop Dogg, and I’m a stoner.
+ - The fact is, the truth will come out. The truth will come out when it’s time.
+ - There’s no such thing as losing touch. You can take me out of the ghetto, but you can’t take the ghetto out of me.
+ - When you’re dead, you don’t breathe, you don’t see, you don’t feel, you don’t love.
+ - It makes me feel the way I need to feel.
+ - When I was a small boy, if we had a problem, we would fight about it with our fists. We wouldn’t shoot somebody, killing them or wounding them. That’s not hard to do. I would like people to put down the guns. If you have a problem, talk about it or fight about it.
+ - Trouble comes looking for you. Lots of times I just stay in the house and enjoy my family. I try to be a father to my child, I’ll stay out of trouble if I can, because I have lots to do. Other folks have different hardships. It’s hard for a black man to raise a family.
+ - People don’t understand that you can actually lose your life going to jail. There’s more violence in the jail-house than there is on the streets.
+ - This is for my G’s, this is for my Hustlas.
+ - You won’t hear any more alcohol songs from Snoop Dogg – unless I stumble upon some Hennessy.
+ - They legalized alcohol, they legalized tobacco. What is it gonna hurt to legalize this medicinal, medical marijuana that’s used for purposes of cataracts?
+ - That’s why I’m so successful because peace is my main thing, it’s not about money. It’s about making sure everybody is having a good time and loving and living and enjoying life.
+ - It’s hard for a black man to raise a family.
+ - I tell the truth. And I know what I’m talking about. That’s why I’m a threat.
+ - Anytime you’re with somebody, you become a reflection of that person. I believe the first five years of our relationship was me grooming her, getting her tough and getting her ready for all of this and how to deal with it. The last was just her being a strong Black woman who has her man’s back.
+ - Drugs are so easy to get in the ghetto. They might not be easy to get in nice areas like Beverly Hills, but in Long Beach and Compton and South Central they’re easy to get.
+ - It’s hard to say goodbye to the streets. It’s all how you do it. You can pass by and say, ‘What’s happening?’ and keep it moving, but it’s a certain element that’ll never be able to roll with you once you get to this level, because that’s the separation of it all.
+ - I would like people to put down the guns. If you have a problem, talk about it or fight about it.
+ - When I’m not longer rapping, I want to open up an ice cream parlor and call myself Scoop Dogg.
+ - I’m looking for a deal from one of you TV networks to give Snoop Dogg his own hood TV show where I can find America’s hottest hood artists.
+ - King of tha westcoast.
+ - The red carpet is a beautiful situation for people. I think everybody appreciates it and loves it and honors it. Nobody really acts a fool because they know this is a one-time thing.
+ - People who don’t know me are so negative about me. When they finally meet me, they change that negative into a positive.
+ - My liberty is about living. It’s about spreading more love. Even though I was always a peaceful, loving individual, my music sometimes didn’t reflect that. But now it’s different. My music is reflecting the way I feel.
+ - I was like the class clown in school so I guess I would say I did like the attention. In church I did a lot of plays, my mother made me play characters, do a lot of drama and acting, trying to become someone else. So it helped me create who I am, to create Snoop Dogg.
+ - I used to be focused on being the dopest rapper in the game, and then once that became what I was, I wanted something different, and I wanted to become the best businessman in the game. I wanted to learn how to master the business like I mastered the rap.
+ - On ‘Old School,’ I was not an actor, I was Snoop Dogg, so I came to the set with a whole different vibe, and a different crew of people. And on ‘Starsky and Hutch,’ I was more of an actor. I wasn’t Snoop Dogg, the rapper.
+ - I make music that makes you dance, so I mean, it’s appropriate, you know what I’m saying? I make the kind of music that DJs can grab a hold of and spin the record and people just love rocking out to the big Snoop D O double G.
+ - In the black culture, certain kids are given nicknames that they roll with forever; the nicknames outweigh their real names. I’m one of those scenarios.
+ - They say I’m greedy, but I still want more, cause my eyes want to journey.
+ - The biggest nuts and guess what? He is I and I am him.
+ - Snoop Scorsese, that’s my director name.
+ - I love making music and I’m falling in love with making records, so it’s like having two girlfriends. But I can handle it.
+ - I’m not rapping, I’m conversing. It’s just a conversation between me and you.
+ - That’s how we do it in the black community; we give back to the people who made us who we are. We never forget that.
+ - Ain’t nothing greater than an x-rater with a nickname like Vibrator.
+ - My trigger finger itching, positioned at your dome, one twitch and it’s on. No remorse or second thoughts.
+ - Look at music for what it’s worth around the world and not just America. In other countries, people are still buying CDs and going to record stores. But in America, it’s all about digital. The game is breaking down. But, look at me, you need to know how to play the game the right way.
+ - An older guy, he’s going to show you things that a young man can’t show you. He’s going to show you how to stay alive. He’s going to show you how to turn corners where your young friends will show you how to turn right into that wall, you know what I’m saying?
+ - I move with the time. Whatever’s happening in time, I’m in.
+ - The most important decision I’ve made in business? The choices of people I have around me. When I first started I brought everybody with me, my homies from the neighborhood, criminals. I just said, ‘Come on everybody, we made it.’ Then I had to realize we didn’t make it. I made it.
+ - I’m a business first and foremost so whatever my business is, it’s separate from my personal. It’s like whatever I do business wise, it’s done in the business fashion whether it’s promoting, marketing, whatever I’m doing.
+ - You got two black folk representing us through the Sixties. One of them was for violence, one was against it, and they both are dead.
+ - I think people understand me, me as a person and what I went through because I kept it on the plate. I never hid nothing. I was never in the closet. I smoked dope, I gang banged, I did this, I did that; whatever I did it was always out.
+ - There’s certain classes you have to take, certain things you have to do, certain money you must have. Then, if you listen to the counselors and social workers and everybody else talking at you, you would think that once you got out of high school and college, life would be beautiful. But it’s not.
+ - A song ain’t why people kill cops.
+ - The ‘American Idol’ and ‘X Factor’ shows, they’re great shows. But I think I need to make a show like that, directed straight to the hood, to the artists that don’t get the attention, that don’t have the money to make themselves representable.
+ - The process for doing voice work goes by much quicker as opposed to shooting a feature. You can pretty much go in and knock it out in a day or two. It feels very natural for me to express myself using only my voice, so it wasn’t too difficult.
+ - Well, hip-hop is what makes the world go around.
+ - What I try to push and promote is peace through the whole music industry.
+ - Nobody needs a movie to give them an idea.
+ - I like going to areas where the murder rate is high and dropping it.
+ - My younger son, Cordell, aka Lil Snoop, loves me like a fan loves Snoop Dogg. He’s inspired by making me happy. My older son, Corde, aka Spank, does everything I say, with effort and determination – but he does it for himself. He gets his thrill out of seeing his own results on the football field.
+ - I don’t want anybody shooting, but I can’t stop it.
+ - I learned how to take other people’s mechanisms of promoting their stuff through me as opposed to promoting my own stuff, as far as getting Snoop DeVilles, SnoopDeGrills, Snoop Doggy Dogg biscuits, Snoop Dogg record label, Snoop Dogg bubble gum, Snoop Youth Football League.
+ - Nobody likes not having freedom.
+ - As a black man, I have to respect myself and have nice things. As a man in general.
+ - So many people representing different sections of our community are taken down one way or another. The system was designed to break us down. The three-strike rule is to break down a black man.
+ - There are so many people in the closet, and we are giving them an opportunity to come out of the closet and just admit they like to smoke.
+ - I love Benny Hill. He one of my favourites of aaall time. Like, the way Benny did it, he was just amazing. Just seeing how he put songs together and comedy and the timing and the sketches. He was way ahead of his time.
+ - I’m destined to live and say things.
+ - You got to be who you are when you are.
+ - I just change with the times. I really don’t have a say in what’s going on. Music was here before me.
+ - Know when to lie to your kids.
+ - People get killed every ten or 20 minutes. When we die, we are just another statistic.
+ - I really don’t do anything to break myself. As far as the damages to my body, I’m not a drinker. I let the gin and juice alone.
+ - There’s so much that I want to do. I feel like I’m the Magic Johnson of rap. You know, Magic was great on the basketball court, but he’s bigger as a businessman.
+ - My mama couldn’t give me what I wanted. I had all right clothes, but the people I was with had better clothes. I felt that I had to have better clothes.
+ - A lot of people don’t know that I love to love. To have a different kind of mask on me where people feel like I’m not a loving individual. I just love to love, I love everything and everybody, I’m about peace that’s my spirit.
+ - Black folks don’t have a chance, so they are in the hood, dealing drugs, in a shoot-out. They do it again and one more time they are out.
+ - That’s how we do it in the black...
+ - A lot of brands, you can’t touch them. When you’re dealing with Snoop Dogg, he brings you closer to the brand and it feels like it’s a part of you.
+ - I went out and got little jobs. I was selling candy as a teenager, selling newspapers. But as I got older, I didn’t want to sell that anymore. I wanted to make more money.
+ - When I heard the royal family wanted to have me perform in celebration of Prince William’s marriage, I knew I had to give them a little something. ‘Wet’ is the perfect anthem for Prince William or any playa to get the club smokin’.
+ - I’m a musician – I’m always making music. Kobe Bryant is always playing ball. Well, Snoop Dogg is always recording.
+ - Nobody cared about the riot until they thought it might spill into their nice neighborhoods. Then they got scared and called the National Guard.
+ - If they would have put positive opportunities in front of me to make $1000 a week, I would have done it. But they didn’t. They put $1000 in front of me and an illegal way to make it. And they expect me not to do it because they say it’s wrong.
+ - Barack Obama makes me feel good to be a black man.
+ - I’m just doing what I do best and that’s what makes good music, and that’s how you can relate to people.
+ - The more information you have, the better you will be.
+ - The message is always going to get through. Me being able to speak is a message in itself.
+ - Do what you feel is right, baby.
+
+119 quotes

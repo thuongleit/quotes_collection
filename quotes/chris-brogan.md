@@ -1,0 +1,53 @@
+ - The goal isn’t more money. The goal is living life on your terms.
+ - If you’re not writing your own story, you’re a character in someone else’s.
+ - Stories are how we learn best. We absorb numbers and facts and details, but we keep them all glued into our heads with stories.
+ - Content marketing is weaponized storytelling.
+ - The key is, no matter what story you tell, make your buyer the hero.
+ - Cultivate visibility because attention is currency.
+ - Don’t settle. Don’t finish crappy books. If you don’t like the menu, leave the restaurant. If you’re not on the right path, get off it.
+ - Your day is your week is your month is your year.
+ - You might be the “little drummer boy,” worried that what you have to say isn’t worthy. Everyone has something to contribute, especially if you remember to be the real you and not a copy of others you feel are successful.
+ - Marketers need to build digital relationships and reputation before closing a sale.
+ - Bravery comes when you commit to doing the work.
+ - Your excuses will never be as good as the story of how you got it done.
+ - Own your words. Your words are the maps to your intentions.
+ - When the people who support and are a part of your community, the community you have the pleasure and power and opportunity to serve, that’s where all the best business happens.
+ - You can’t fake community, you can’t force it, either.
+ - To trust agents, hyperlinks are the twenty-first-century equivalent of the name-dropper.
+ - Social media puts the “public” into PR and the “market” into marketing.
+ - Don’t ever think that somebody isn’t important or not good enough, because you never know which way the road will take you.
+ - Email is a system that delivers other people’s priorities to your attention. It’s up to you to decide when that priority should be managed into your world. It’s not the other way around.
+ - Celebrate small victories often. Mourn failures quickly. Do what’s necessary without fanfare.
+ - Ask yourself this question CONSTANTLY: where can I add the most value to what matters most to me and the people who care about me?
+ - If you can’t find your own center and love for yourself, nothing else works.
+ - If we don’t support the people who support us, what are we going to do?
+ - Never try to be a thought leader. There’s no value in that. Instead, try to add value.
+ - For every day we don’t unlock our own value, we remain plugged into our other identity.
+ - If you’re not on the right path, get off it.
+ - Ideas have a shelf-life. Share yours, let others collaborate, and you’ll get new ones.
+ - To truly know what works, you have to learn what doesn’t work first.
+ - What’s required is a kind of social media sherpa, who can find you the audience you seek, who can reach to them on the platforms where they are already congregating, and who can help promote in tasteful ways that fit the sensitivities of the networks where your audiences are found.
+ - There’s no value to working hard on being really popular.
+ - No matter what, the very first piece of Social Media Real Estate I’d start with is a blog.
+ - Any opportunity to be helpful is an opportunity to earn money.
+ - Surrounded yourself with brilliant people. You can’t HELP but grow when that happens.
+ - People who connect and build fluid relationships are trust agents.
+ - If you accept all the praise, you have to accept all the critics.
+ - An inventor creates something that works. An entrepreneur creates something that others will buy.
+ - Fear is at the heart of most of our worst choices.
+ - In a way, the web is like your Hollywood agent: It speaks for you whenever you are not around to comment.
+ - Treat praise like criticism: refuse to accept either.
+ - Business is about belonging which means inclusion is the new black.
+ - The inbox is the perfect delivery system of other people’s priorities.
+ - The difference between PR and social media is that PR is about positioning, and social media is about becoming, being and improving.
+ - Don’t treat your customers like a bunch of purses and wallets.
+ - We exist to serve our community. That’s the most important mind-set to maintain.
+ - Walt Disney believed in himself instead of worrying what others were saying.
+ - Try to help people rather than focusing on what’s in it for me.
+ - An owner is someone who chooses to own their life, own their choices, and own their future.
+ - My bank does not accept likes.
+ - Complexity serves nothing but our ego. Be able to say what you do in a way that people can understand.
+ - Guide them where you want them to interact with you.
+ - While face-to-face is just as important as it ever was, now that we’ve got all kinds of new tools, let us tighten bonds in between those in-person moments.
+
+51 quotes

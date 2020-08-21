@@ -1,0 +1,33 @@
+ - Definitely trust yourself. Work hard. Be honest with yourself. And life can be joyful. It is joyful. Just give it your all and it’s all going to work out.
+ - I’m free of an abusive cult, based on money and power that worships a fictional deity and safely back with the Catholic Church.
+ - I’ve found the man of my dreams. From the moment I met him it just felt like I’d known him forever. I was blown away. He’s the most incredible man. He’s so generous and kind, and he helps so many people, and, um, he makes me laugh like I’ve never laughed, and he’s a great friend.
+ - Pretty, and you may be talented, but nobody will remember that if you’re mean.
+ - We all keep dreaming, and luckily, dreams come true.
+ - Becoming a mother has been the most amazing experience-in an instant you become strong. You have to be a little bit wiser; it’s the most important job you have in the world.
+ - I’m not the easiest person to live with. I’m kind of a slob. So for me to consider a roommate, it would have to be one of my sisters or something.
+ - I’m really into my running workout. Running really helps me clear my head and makes me feel good, especially when I’m stressed.
+ - I’m so spoiled – I must have a Starbucks vanilla latte every day. Otherwise, it’s going to be a bad day. I also love Jelly Bellies. But that’s bad. Don’t tell my mom.
+ - Definitely being a mom changes your perspective on everything.
+ - I feel very lucky. I have a husband and baby that I adore. I have a career I really love. When I sit back and reflect, it’s, like, wow! I am very grateful.
+ - I did Phone Booth, and that was shot very, very quickly, but that was Joel Schumacher, who’s shot so many movies that, if anybody can figure out how to do it in a couple of days, it’s him.
+ - I got caught kissing. Like by my parents. It was so horrible. It’s so embarrassing, I’m blushing.
+ - I’m not computer literate. I e-mail. I know how to get on the Web, but I haven’t crossed over into the internet world. I’m old-fashioned, I guess.
+ - It’s kind of fun being the cute, little one. In fact, I’m finding it hard to grow out of that.
+ - It’s nice to do something about something that scares you rather than just run from it and hope that someone saves you. I like seeing strong female characters and somebody who doesn’t run away screaming when scared, but confronts the monsters.
+ - It’s actually great to shoot far away from Hollywood because we don’t have the distractions of the parties and premieres and all that. And, of course, you can save money – there are no good shoe stores.
+ - What I love about watching classic horror films is that they take you on a ride and they obviously make you scared because you’re so invested in the characters, you’re almost forgetting that oh my God, this is about to scare me.
+ - I’m not the easiest person to live with. I’m kind of a slob.
+ - How do you know you told a good punch line, a good joke? It’s because they laugh. How do you know you’ve got a good scary punch line? It’s because they jump out of the seat or scream. So the best reward is one you can listen to.
+ - Any time I break up with Dawson or question him, viewers turn against me.
+ - I’m so spoiled – I must have a Starbucks vanilla latte every day.
+ - I wasn’t very funny or flashy, I was kind of boring.
+ - I think I want to pursue a movie career and maybe even pursue some theatre.
+ - I love all of his movies. I love all his movies. I love Tom.
+ - I’m not strictly vegetarian, but meat doesn’t play a big part in my diet.
+ - I find that usually when I watch something like horror film, I’m constantly thinking no, it’s not going to happen.
+ - I’m just going to say that I met somebody last year, I fell in love, I had my first love, and it was something so incredible and indescribable.
+ - We had such a wonderful set of circumstances in Wilmington. Yes, the four of us became famous literally overnight, but we were in a small town and we always knew when people were coming down. We always knew when to behave.
+ - I like being part of good movies and telling stories that mean something to me. I also like playing characters that I look up to.
+ - I used to get so worried that if a scene didn’t go a certain way, then it was horrible. But then I realized that it was better to give the director options in the editing room than just being locked into how it’s supposed to be.
+
+31 quotes

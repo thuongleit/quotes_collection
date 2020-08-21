@@ -1,0 +1,72 @@
+ - Modesty never rages, never murmurs, never pouts; when it is ill-treated, it pines, it beseeches, it languishes.
+ - Whenever you commend, add your reasons for doing so; it is this which distinguishes the approbation of a man of sense from the flattery of sycophants and admiration of fools.
+ - A Daughter: The companion, the friend, and the confidant of her mother, and the object of a pleasure something like the love between the angels to her father.
+ - Fire and swords are slow engines of destruction, compared to the tongue of a Gossip.
+ - Nothing is more silly than the pleasure some people take in “speaking their minds.” A man of this make will say a rude thing for the mere pleasure of saying it, when an opposite behavior, full as innocent, might have preserved his friend, or made his fortune.
+ - Simplicity of all things is the hardest to be copy.
+ - A modest person seldom fails to gain the goodwill of those he converses with, because nobody envies a man who does not appear to be pleased with himself.
+ - Vanity makes people ridiculous, pride odious, and ambition terrible.
+ - It is a certain sign of an ill heart to be inclined to defamation. They who are harmless and innocent can have no gratification that way; but it ever arises from a neglect of what is laudable in a man’s self.
+ - I know of no manner of speaking so offensive as that of giving praise, and closing it with an exception.
+ - Violins are the lively, forward, importunate wits, that distinguish themselves by the flourishes of imagination, sharpness of repartee, glances of satire, and bear away the upper part in every consort.
+ - Pleasure, when it is a man’s chief purpose, disappoints itself; and the constant application to it palls the faculty of enjoying it.
+ - There are so few who can grow old with a good grace.
+ - I love to consider an Infidel, whether distinguished by the title of deist, atheist, or free-thinker.
+ - The world is grown so full of dissimulation and compliment, that men’s words are hardly any signification of their thoughts.
+ - No woman is capable of being beautiful who is not incapable of being false.
+ - The fool within himself is the object of pity, until he is flattered.
+ - He that has sense knows that learning is not knowledge, but rather the art of using it.
+ - It is a secret known but to few, yet of no small use in the conduct of life, that when you fall into a man’s conversation, the first thing you should consider is, whether he has a greater inclination to hear you, or that you should hear him.
+ - The married state, with and without the affection suitable to it, is the completest image of heaven and hell we are capable of receiving in this life.
+ - Pride destroys all symmetry and grace, and affectation is a more terrible enemy to fine faces than the small-pox.
+ - Nothing can atone for the lack of modesty; without which beauty is ungraceful and wit detestable.
+ - A healthy old fellow, who is not a fool, is the happiest creature living.
+ - Such is the weakness of our nature, that when men are a little exalted in their condition they immediately conceive they have additional senses, and their capacities enlarged not only above other men, but above human comprehension itself.
+ - Whether a pretty woman grants or withholds her favors, she always likes to be asked for them.
+ - The world will never be in any manner of order or tranquility until men are firmly convinced that conscience, honor and credit are all in one interest.
+ - It is an endless and frivolous Pursuit to act by any other Rule than the Care of satisfying our own Minds in what we do.
+ - People spend their lives in the service of their passions instead of employing their passions in the service of their lives.
+ - It is an impertinent and unreasonable fault in conversation for one man to take up all the discourse.
+ - It has been a sort of maxim, that the greatest art is to conceal art; but I know not how, among some people we meet with, their greatest cunning is to appear cunning.
+ - There is no Pleasure like that of receiving Praise from the Praiseworthy.
+ - Will. Honeycomb calls these over-offended ladies the outrageously virtuous.
+ - The survivorship of a worthy man in his son is a pleasure scarce inferior to the hopes of the continuance of his own life.
+ - A man advanced in years that thinks fit to look back on his former life, and calls that only life which was passed with satisfaction and enjoyment, excluding all parts which were not pleasant to him, will find himself very young, if not in infancy.
+ - It is the duty of a great person so to demean himself, as that whatever endowments he may have, he may appear to value himself upon no qualities but such as any man may arrive at.
+ - Praise from an enemy is the most pleasing of all commendations.
+ - There can hardly, I believe, be imagined a more desirable pleasure than that of praise unmixed with any possibility of flattery.
+ - When a man has no design but to speak plain truth, he may say a great deal in a very narrow compass.
+ - Whoever would be wise should read the Proverbs; whoever would be holy should read the Psalms.
+ - It is to beoted that when any part of this paper appears dull there is a design in it.
+ - I look upon it as a Point of Morality, to be obliged by those who endeavour to oblige me.
+ - The praise of an ignorant man is only good-will, and you should receive his kindness as he is a good neighbor in society, and not as a good judge of your actions in point of fame and reputation.
+ - That man never grows old who keeps a child in his heart.
+ - Among all the diseases of the mind there is not one more epidemical or more pernicious than the love of flattery.
+ - It is a very melancholy reflection that men are usually so weak that it is absolutely necessary for them to know sorrow and pain to be in their right senses.
+ - Zeal for the public good is the characteristic of a man of honor and a gentleman, and must take the place of pleasures, profits and all other private gratifications.
+ - Since we cannot promise our selves constant health, let us endeavour at such temper as may be our best support in the decay of it.
+ - Though very troublesome to others, anger is most so to him that has it.
+ - I cannot think of any character below the flatterer, except he who envies him.
+ - The person, whom you favored with a loan, if he be a good man, will think himself in your debt after he has paid you.
+ - A favor well bestowed is almost as great an honor to him who confers it as to him who receives it.
+ - The insupportable labor of doing nothing.
+ - Of all the affections which attend human life, the love of glory is the most ardent.
+ - You see, among men who are honored with the common appellation ogentleman, many contradictions to that character.
+ - It may be remarked in general, that the laugh of men of wit is for the most part but a feint, constrained kind of half-laugh, as such persons are never without some diffidence about them; but that of fools is the most honest, natural, open laugh in the world.
+ - When a man is not disposed to hear music, there is not a more disagreeable sound in harmony than that of the violin.
+ - It is a wonderful thing that so many, and they not reckoned absurd, shall entertain those with whom they converse by giving them the history of their pains and aches and imagine such narrations their quota of conversation.
+ - Readings is to the mind what exercice is to the body.
+ - A woman seldom writes her mind but in her postscript.
+ - Mutual good humor is a dress we ought to appear in wherever we meet, and we should make no mention of what concerns ourselves, without it be of matters wherein our friends ought to rejoice.
+ - Many take pleasure in spreading abroad the weakness of an exalted character.
+ - A lie is troublesome, and sets a man’s invention upon the rack, and one trick needs a great many more to make it good.
+ - One common calamity makes men extremely affect each other, though they differ in every other particular.
+ - How few there are who are furnished with abilities sufficient to recommend their actions to the admiration of the world, and distinguish themselves from the rest of mankind.
+ - Since our persons are not of our own making, when they are such as appear defective or uncomely, it is, methinks, an honest and laudable fortitude to dare to be ugly.
+ - Conversation never sits easier upon us than when we now and then discharge ourselves in a symphony of laughter, which may not improperly be called the chorus of conversation.
+ - Though her mien carries much more invitation than command, to behold her is an immediate check to loose behaviour; to love her was a liberal education.
+ - A man cannot have an idea of perfection in another, which he was never sensible of in himself.
+ - There is hardly that person to be found who is not more concerned for the reputation of wit and sense, than honesty and virtue.
+ - A little in drink, but at all times your faithful husband.
+
+70 quotes

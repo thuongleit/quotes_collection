@@ -1,0 +1,68 @@
+ - Growth is never by mere chance; it is the result of forces working together.
+ - Responsibilities are given to him on whom trust rests. Responsibility is always a sign of trust.
+ - The art of effective listening is essential to clear communication, and clear communication is necessary to management success.
+ - Every great business is built on friendship.
+ - Courteous treatment will make a customer a walking advertisement.
+ - No business can succeed in any great degree without being properly organized.
+ - The best teamwork comes from men who are working independently toward one goal in unison.
+ - The well-satisfied customer will bring the repeat sale that counts.
+ - Our very living is selling. We are all salespeople.
+ - Honor bespeaks worth. Confidence begets trust. Service brings satisfaction. Cooperation proves the quality of leadership.
+ - The best way to stop a bad habit is never to begin it.
+ - I learned that all things come to those who wait-provided they hustle while they wait.
+ - Luck is always the last refuge of laziness and incompetence.
+ - Change is vital, improvement the logical form of change.
+ - A store’s best advertisement is the service its goods render, for upon such service rest the future, the good-will, of an organization.
+ - I do not believe in excuses. I believe in hard work as the prime solvent of life’s problems.
+ - It is the service we are not obliged to give that people value most.
+ - The friendly smile, the word of greeting, are certainly something fleeting and seemingly insubstantial. You can’t take them with you. But they work for good beyond your power to measure their influence. It is the service we are not obliged to give that people value most.
+ - Theory is splendid but until put into practice, it is valueless.
+ - The Golden Rule finds no limit of application in business.
+ - Success cannot come from standstill men. Methods change and men must change with them.
+ - Clock watchers never seem to be having a good time.
+ - No man can climb the ladder of success without first placing his foot on the bottom rung.
+ - It is always the start that requires the greatest effort.
+ - Responsibility is always a sign of trust.
+ - Success in business does not depend upon genius. Any young man of ordinary intelligence who is normally sound and not afraid to work should succeed in spite of obstacles and handicaps if he plays the game fairly and keeps everlastingly at it.
+ - The greatest teacher I know is the job itself.
+ - How can we expect our children to know and experience the joy of giving unless we teach them that the greater pleasure in life lies in the art of giving rather than receiving.
+ - Every man must decide for himself whether he shall master his world or be mastered by it.
+ - Salesmanship, too, is an art; the perfection of its technique requires study and practice.
+ - Exchange ideas frequently.
+ - Men are not great or small because of their material possessions. They are great or small because of what they are.
+ - Do not primarily train men to work. Train them to serve willingly and intelligently.
+ - I never trust an executive who tends to pass the buck. Nor would I want to deal with him as a customer or a supplier.
+ - The five separate fingers are five independent units. Close them and the fist multiplies strength. This is organization.
+ - I cannot remember a time when the Golden Rule was not my motto and precept, the torch that guided my footsteps.
+ - No serious-minded man should have time for the mediocre in any phase of his living.
+ - The keystone of successful business is cooperation. Friction retards progress.
+ - A merchant who approaches business with the idea of serving the public well has nothing to fear from the competition.
+ - The public is not greatly interested in saving a little money on a purchase at the expense of service.
+ - Determine to do some thinking for yourself. Don’t live entirely upon the thoughts of others. Don’t be an automaton.
+ - There’s no better friend to any merchant than a fair competitor.
+ - I believe in trusting men, not only once but twice – in giving a failure another chance.
+ - Selling is our No. 1 job. Never get away from selling a lot of merchandise personally. The more you sell the more you learn.
+ - Honor bespeaks worth Confidence begets trust.
+ - Intelligence is the effort to do the best you can at your particular job; the quality that gives dignity to that job, whether it happens to be scrubbing a floor or running a corporation.
+ - The best of merchandise will go back to the shelf unless handled by a conscientious, tactful salesman.
+ - Business is no longer a matter of profits alone. Profits must come through public confidence, and public confidence is given to any merchant in proportion to the service which he gives to the public.
+ - I believe a man is better anchored who has a belief in the Supreme Being.
+ - We can serve our customers well only if our buying jobs are right. You cannot sell if you haven’t ordered wanted goods into your store.
+ - The disciplined are free.
+ - As a rule, we find what we look for; we achieve what we get ready for.
+ - No matter what his position or experience in life, there is in everyone more latent than developed ability; far more unused than used power.
+ - I will have no man work for me who has not the capacity to become a partner.
+ - It was always my practice to train salespeople under my direct supervision, and to treat children with the utmost consideration.
+ - They serve best who give most of themselves. Self is forgotten by the one who serves, for such a one rejoices to see success coming to others through his or her efforts.
+ - The thought in my mind was that I must be a good merchant. If I were a good merchant, the rest would probably take care of itself.
+ - Success will always be measured by the extent to which we serve the buying public.
+ - There has never been a time when a career in the Penney Company was not a challenge that brought out the best in a man.
+ - No company can afford not to move forward. It may be at the top of the heap today but at the bottom of the heap tomorrow, if it doesn’t.
+ - I was long brought up to think that it was nothing short of a crime to miss a sale.
+ - My definition of an executive’s job is brief and to the point. It is simply this: Getting things done through other people.
+ - In retailing, the formula happens to be a basic liking for human beings, plus integrity, plus industry, plus the ability to see the other fellow’s point of view.
+ - The problem with the bronco is to get on and stay on. This is the problem with the Golden Rule-to understand and apply.
+ - Too many would-be executives are slaves of routine.
+ - The men who have furnished me with my greatest inspiration have not been men of wealth, but men of deeds.
+
+66 quotes

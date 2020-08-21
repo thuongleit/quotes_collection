@@ -1,0 +1,22 @@
+ - Adolescence is a new birth, for the higher and more completely human traits are now born.
+ - Adolescence is when the very worst and best impulses in the human soul struggle against each other for possession.
+ - The teens are emotionally unstable and pathic. It is a natural impulse to experience hot and perfervid psychic states, and it is characterized by emotionalism. We see here the instability and fluctuations now so characteristic. The emotions develop by contrast and reaction into the opposite.
+ - Man is largely a creature of habit, and many of his activities are more or less automatic reflexes from the stimuli of his environment.
+ - Adolescence as the time when an individual ‘recapitulates’ the savage stage of the race’s past.
+ - Being an only child is a disease in itself.
+ - Muscles are in a most intimate and peculiar sense the organs of the will.
+ - Gross well says that children are young because they play, and not vice versa; and he might have added, men grow old because they stop playing, and not conversely, for play is, at bottom, growth, and at the top of the intellectual scale it is the eternal type of research from sheer love of truth.
+ - Puberty for a girl is like floating down a broadening river into an open sea.
+ - Modern man was not meant to do his best work before forty but is by nature, and is becoming more so, an afternoon and evening worker.
+ - The man of the future may, and even must, do things impossible in the past and acquire new motor variations not given by heredity.
+ - Normal children often pass through stages of passionate cruelty, laziness, lying and thievery.
+ - Dancing is imperatively needed to give poise to the nerves, schooling to the emotions, strength to the will, and to harmonize the feelings and the intellect with the body that supports them.
+ - Of all work-schools, a good farm is probably the best for motor development.
+ - The years from about eight to twelve constitute a unique period of human life.
+ - Abundance and vigor of automatic movements are desirable, and even a considerable degree of restlessness is a good sign in young children.
+ - Precisely what menstruation is, is not yet very well known.
+ - Civilization is so hard on the body that some have called it a disease, despite the arts that keep puny bodies alive to a greater average age, and our greater protection from contagious and germ diseases.
+ - Constant muscular activity was natural for the child, and, therefore, the immense effort of the drillmaster teachers to make children sit still was harmful and useless.
+ - Oneness with Nature is the glory of childhood; oneness with childhood is the glory of the Teacher.
+
+20 quotes

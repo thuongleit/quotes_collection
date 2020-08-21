@@ -1,0 +1,78 @@
+ - We need a doer, not a talker.
+ - Immigration without assimilation is an invasion.
+ - My background is in health care.
+ - My parents are proud of their Indian heritage, but they came halfway across the world so their children could be born here, raised here as Americans. They came legally, but they came here in search of the American dream, in search of freedom and opportunity.
+ - We must stop being the stupid party.
+ - We are an aspirational society. We believe that circumstances of your birth do not determine your outcome. You shouldn’t have to be born to wealthy parents or the right zip code to be successful and do great things in our country!
+ - I’m not running for president to be somebody, I’m running for president to do something!
+ - The American dream means that you have the chance to work hard, get an education and do great things for yourself, for your kids. The great thing in American is it doesn’t matter what your last name is, doesn’t matter if you’re wealthy.
+ - I’m so tired of the left trying to divide us by race. One of the things I said today in my speech, we’re not Indian-Americans, African-Americans, Irish-Americans, rich Americans, poor Americans. We’re all Americans.
+ - Peace through strength works. We’ve got the greatest military in the world. I want them to dominate any potential conflict.
+ - On Thanksgiving I will stop to give thanks that my family is safe and healthy, especially because I realize that, following the tragedies of this year, it is all too real a possibility that they might not have been.
+ - We should increase our development of alternative fuels, taking advantage of renewable resources, like using corn and sugar to produce ethanol or soybeans to produce biodiesel.
+ - I’m tired of hyphenated Americans.
+ - Hillary Clinton, President Obama, they’re trying to turn the American dream into the European nightmare. We need to rescue the country from socialism.
+ - Weakness actually is a provocative to evil. You don’t beat evil with weakness. You don’t beat evil with concessions. You don’t beat radical Islam by giving them more territory, giving them more money. You beat evil by strength.
+ - Unfortunately, we are finding the bureaucratic inefficiencies and red tape have a tendency to slow the efforts of individuals and communities working to rebuild.
+ - The threat of terrorism is great and with today’s porous borders, someone could bring a biological weapon into our country or sneak a dirty bomb across unmanned portions of our borders.
+ - We need to break our dependency on foreign sources of oil, which leaves us at the mercy of foreign powers. To do that, we should increase domestic energy production.
+ - The recent riots in France demonstrate the problem European countries face where second and third generation immigrants still do not consider themselves French, German, or English.
+ - Who among us would ask our children for a loan, so we could spend money we do not have on things we do not need?
+ - When a law enforcement officer apprehends an illegal immigrant, it makes no sense to simply release that individual who has been breaking our laws with no threat of sanction or penalty.
+ - As we embrace the American dream and the freedoms it represents, we must also ensure that those who wish to enjoy those freedoms become a part of our society and learn to speak our language.
+ - Anybody who spends time off of Louisiana’s shores can recognize that these oysters are not endangered. To classify them as such risks great harm to not only fishermen who make their living collecting oysters in the Gulf, but also to Louisiana’s economy in total.
+ - I am tired with hyphenated Americans! We are not Indian-Americans, or African-Americans.
+ - The Nation needs to take a new approach to our energy problems.
+ - In my home State of Louisiana, several institutions of higher education have been impacted by both Hurricanes Katrina and Rita, literally dozens across the entire State.
+ - I think viewing people by the color of their skin is one of the dumbest ways to view people.
+ - India, in particular, is looking to develop nuclear power for domestic, commercial use, and we should work with them. This is a good deal for both countries.
+ - We want to rescue the American dream.
+ - I’ve got the courage to apply our conservative principles. I can’t do it alone. With your help, with God’s grace, we can save the idea of America before it’s too late.
+ - Here’s an idea: How about just ‘Americans?’ That has a nice ring to it, if you ask me. Placing undue emphasis on our ‘separateness’ is a step backward. Bring back the melting pot.
+ - It’s time to update traditional public schools, charter schools, home schools, online schools and parochial schools. Let the dollars follow the child instead of forcing the child to follow the dollars, so that every child has the opportunity to attain an education.
+ - I think it is wrong for the federal government to force Christian individuals, businesses, pastors, churches to participate in wedding ceremonies that violate our sincerely held religious beliefs. We have to stand up and fight for religious liberty. That’s where this fight is going.
+ - Please deal with the Radical Islamic Threat today.
+ - People say both Obama and I have trouble laughing at ourselves. We can’t laugh at ourselves. That would be racist!
+ - To succeed, we have to be the party of change, we have to root out corruption in our own ranks and we have to be the party of solutions.
+ - I think that local school districts – not the federal government – should make the decision about how they teach science, biology, economics. I want my kids to be taught about evolution; I want my kids to be taught about other theories.
+ - The United States didn’t create religious liberty. Religious liberty created the United States of America. It’s the reason we are here today. This is an essential freedom and an essential right and I don’t think you give up this right by simply taking a job.
+ - We need an equal opportunity society, one in which government does not see its job as picking winners and losers. Where do you go if you want special favors? Government. Where do you go if you want a tax break? Government. Where do you go if you want a handout? Government. This must stop.
+ - Thirty percent of the Nation’s energy comes off the gulf coast.
+ - The gist of what Mayor Giuliani said – that the President has shown himself to be completely unable to speak the truth about the nature of the threats from these ISIS terrorists – is true.
+ - If we want to save some money, let’s just get rid of the court.
+ - If I were to run for president, it’s because I believe in our country.
+ - President Obama was the most liberal and most incompetent president in my lifetime ever since Jimmy Carter.
+ - In the aftermath of September 11th, it is critical to secure our borders.
+ - Police officials routinely execute search warrants on private homes and offices, and Congressional offices should not be treated any differently. There cannot be one set of rules for elected officials and another set of rules for everyone else.
+ - My Christian faith teaches me marriage is between man and a woman. I’m not evolving with the polls. I’m not changing like Hillary Clinton or Barack Obama.
+ - Here’s what I’ve found in Louisiana: The voters want to know what you believe, what you stand for, and what you plan to do, not what shade your skin is.
+ - I’m not running to manage the decline of this great country. I’m running to make real changes.
+ - Every Republican will tell you they are for school choice, shrinking government, cutting the government workforce and getting rid of Common Core. But talk is cheap. Talk is just talk. I haven’t just talked about these things. I’ve actually done these things.
+ - I want to create a culture of life where every innocent human life is welcome to the world. I know those are difficult cases, but I am prolife. And I understand we’ve got to go through the Supreme Court.
+ - Finally, we should help developing nations like China and India curb their exponentially increasing consumption of oil and natural gas, which is driving world prices higher.
+ - America is the most compassionate country in the entire world. We do more for folks around this world. And that’s the nature of the American people.
+ - It has become fashionable in Washington to argue that Obamacare cannot be reversed. That is nonsense. It’s a fight worth waging, and a fight which can be won.
+ - Higher taxes still does not create prosperity for all. And, more government still does not grow jobs.
+ - A lot of Republican candidate will tell you they’ll protect innocent human life and they’ll hunt down ISIS and get rid of Common Core, but we’re actually doing things in our state. We need a doer, not a talker.
+ - The day that we’ve been fearing is upon us.
+ - The Obama presidency, and liberalism in general, are based on not trusting the American people – a belief that big government is better for people.
+ - Containment is a strategy for losers! But as General George S. Patton famously observed, Americans play to win all the time. Americans don’t play to lose.
+ - The Republican party does have a lot of work to do. But changing our principles is not a winning strategy. We need to modernize, not moderate.
+ - As everyone in Louisiana knows, there was often no communication or coordination between the state and federal government in the aftermath of Hurricanes Katrina and Rita.
+ - We don’t measure our people’s success in how they’re doing in government. We measure how they are doing in the real world and the private sector economy.
+ - A job for your family, a paycheck in your mailbox – they’re the ultimate proof that your state is doing things right!
+ - I’m not for amnesty. I’ve never been for amnesty, will never be for amnesty.
+ - I’m not worried about where Barack Obama is from. I’m worried about where he’s going.
+ - There has been failure, particularly with the effort to protect our coast and our marsh. And that was the biggest topic of discussion in a very frank meeting we had with the president.
+ - I remember when TV networks believed in the First Amendment. It is a messed up situation when Miley Cyrus gets a laugh, and Phil Robertson gets suspended.
+ - It’s not controversial to say that human activity is contributing in some way. The question is how serious that is.
+ - When I ran for Congress I promised to help make health care affordable again.
+ - When the Republican Party is no longer the party of fiscal conservatism then clearly I would argue that we’ve lost our way.
+ - We will stop Iran from becoming a nuclear power. We will stop that nuclear arms race that could happen in the Middle East. We will also make that Putin knows we have brigades in eastern Europe to make sure we deter his aggression. Peace through strength works.
+ - The shell fishing industry represents a major part of Louisiana’s economy.
+ - Members of Congress must live according to the same laws as everyone else.
+ - The politically correct crowd is tolerant of all viewpoints, except those they disagree with.
+ - I think the president can set a tone and say we’re not divided by gender, age, race. We’re all Americans and want the same things. We want the best things for our kids. We want the rules to be fair. If they work hard, get a great education, they should be able to join the middle class.
+ - Louisiana loses 30 miles a year off our coast. We lost 100 miles last year off our coast thanks to Hurricanes Katrina and Rita. We have lost a size of land equivalent to the entire state of Rhode Island.
+
+76 quotes

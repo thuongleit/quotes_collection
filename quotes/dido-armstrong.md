@@ -1,0 +1,29 @@
+ - It’s too late and it’s too bad, don’t think of me.
+ - Life for rent means that my life isn’t really my own, I only rented it for a while, but if I don’t manage to buy it, to own it, then nothing of what I think is mine is really mine.
+ - I’m so lonely I don’t even want to be with myself anymore.
+ - Inside everybody’s hiding something.
+ - I feel really lucky to have found musical success before I’m 30, to be doing absolutely what I want to do. I would be quite happy if I died tomorrow.
+ - I feel very warm towards Mum and Dad for giving us the independence they did. My childhood, and the fact we didn’t have a TV, gave me a boundless imagination.
+ - I’m too much of a control freak.
+ - I get up, go shopping, clean the flat, cook my boyfriend’s dinner. It’s great selling records, but it doesn’t mean you have to turn into a freak.
+ - It’s much better when I go out with my mates and we stop talking about me like I’m some sort of egomaniac. It’s great when we can just have a drink.
+ - I haven’t ever really found a place that I call homeI never stick around quite long enough to make itI apologize that once again I’m not in loveBut it’s not as if I mindthat your heart ain’t exactly breaking.
+ - I always want to bring emotion across in a straightforward way. I don’t want to get histrionic when I’m singing. For me that’s just not interesting; it goes too far down one road.
+ - It’s great to just disappear, grab a suitcase, switch the answering machine on and just go somewhere else.
+ - To me, there’s nothing worse than going to a concert and you’re so looking forward to hearing your favorite song and they never play it. You’re gutted.
+ - If you gave me just a coin for every time we say goodbyeWell I’d be rich beyond my dreams, I’m sorry for my weary lifeI know I’m not perfect but I can smileand I hope that you see this heart behind my tired eyes.
+ - I love feeding off the audience, and to me, what’s the point if you’re not going to think of the fans. Anyone can play music in their house, but you put it out because you want interact with your fans. And, as an artist, you get so much from your fans.
+ - Thirty is not an age for a woman anymore.
+ - The older you get, the more you realize you’re drifting toward a direction, and sometimes your significant other drifts into an opposite direction. You can’t blame anybody for it.
+ - It’s great to go on your own and discover new things just for yourself, to meet new people and all that. If you’re all on your own, then there is nobody there to guide you and you have to make all the decisions for yourself. It’s quite liberating in a way.
+ - In fact, I’d just like to own something. Everyone thinks I’m glamorous, rich and famous but all I’ve got is some recording equipment and a battered old BMW.
+ - I spent a lot of my childhood in my own head, making up stories. I didn’t have a lot of outside influences, so I was able to make my own decisions about what I wanted to do.
+ - It’s all right to make mistakes, you’re only humanInside everybody’s hiding something.
+ - Looking back, I think that’s why I did music. I’d get home from school and the house would be so quiet.
+ - You never forget where you were when you write a song; it’s a very proper memory, so I knew exactly where I was and what I was doing for each track. It was like going into a time machine.
+ - My dad’s Irish music was such a huge influence.
+ - I write about the things I feel strongly about.
+ - And we danced, and we drankAnd I’ve seen something you probably never got the chance to seeDon’t worry, MaryCause I’m taking care of DannyAnd he’s taking care of me.
+ - I went to study some orchestration stuff because I got so inspired working with all the orchestras.
+
+27 quotes

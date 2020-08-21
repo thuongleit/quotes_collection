@@ -1,0 +1,22 @@
+ - When stuck, hit the road.
+ - You are nobody, and I might have been somebody, and the road to each of us is love.
+ - Almighty God, I am sorry I am now an atheist, but have You read Nietzsche?
+ - Ask the dust on the road! Ask the Joshua trees standing alone where the Mojave begins. Ask them about Camilla Lopez, and they will whisper her name.
+ - Ah, Los Angeles! Dust and fog of your lonely streets, I am no longer lonely. Just you wait, all of you ghosts of this room, just you wait, because it will happen, as sure as there’s a God in heaven.
+ - Well, this is good for me, this is experience, I am here for a reason, these moments run into pages, the seamy side of life.
+ - I have wanted women whose very shoes are worth all I have ever possessed.
+ - Los Angeles, give me some of you! Los Angeles come to me the way I came to you, my feet over your streets, you pretty town I loved you so much, you sad flower in the sand, you pretty town!
+ - I felt his hot tears and the loneliness of man and the sweetness of all men and the aching haunting beauty of the living.
+ - For your information, a good novel can change the world. Keep that in mind before you attempt to sit down at a typewriter. Never waste time on something you don’t believe in yourself.
+ - The bible is a source of great inspiration to me. It is a textbook of metaphysics. Within the bible are keys to personal growth, and lessons in personal actualization. The bible is a spiritual masterpiece.
+ - If there is work there is warmth, that when a man has freedom of movement it is enough, for then his blood is hot too.
+ - Arturo Bandini: -What does happiness mean to you Camilla? Camilla: -That you can fall in love with whoever you want to, and not feel ashamed of it.
+ - Look at the people who review. Look at their commitment to being “right” and “safe”. If I had listened to my critics I would have given up years ago.
+ - Sick in my soul I tried to face the ordeal of seeking forgiveness. From whom? What God, what Christ? They were myths I once believed and now they were beliefs I felt were myths.
+ - When I go into a bookstore I always look for books by John Fante. If they are out-of-stock on one of his titles, I tell the clerk to order what is missing. I do it because I want people to read my father’s work.
+ - We talked, she and I. She asked about my work and it was a pretense, she was not interested in my work. And when I answered, it was a pretense. I was not interested in my work either. There was only one thing that interested us, and she knew it. She had made it plain by her coming.
+ - Someday, as an exercise, you might ask a writer to give himself the questions he wants to answer. If you really want a writer’s opinions, you have to ask for them. What you read might surprise you.
+ - So it happened at last: I was about to become a thief, a cheap milk-stealer. Here was your lash-in-the-pen genius, your one story-writer: a thief.
+ - I write every morning. Two hours. Then I take a break and become my own secretary for a few hours. If I am “hot” I write in the afternoon and at night too.
+
+20 quotes

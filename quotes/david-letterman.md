@@ -1,0 +1,502 @@
+ - Life experience is the best teacher.
+ - Let’s stop for a moment to admire the rotating pies.
+ - You’ve got to be careful smoking weed. It causes memory loss. And also, it causes memory loss.
+ - Everyone has a purpose in life. Perhaps yours is watching television.
+ - I hate decaffeinated coffee. It’s useless brown water.
+ - I’m a wiseass and a smartass, and I always have been.
+ - Valentine’s Day money-saving tip: Break up on February 13th, get back together on the 15th.
+ - You’ll never catch a nudist with his pants down.
+ - For the love of God, folks, don’t try this at home.
+ - Weak coffee is the greatest sin against humanity.
+ - Midnight, and the kitties are sleeping.
+ - Fifteen years ago tomorrow I had open heart surgery, a quintuple bypass surgery. Thanks to all of my doctors. Because of them, in 15 years of life I’ve been able to experience, well, acid reflux, short-term memory loss, and erectile dysfunction. Thanks for all your work. It’s great to be alive.
+ - The last time the French asked for ‘more proof’ it came marching into Paris under a German flag.
+ - United Airlines: Passengers are our worst enemy. We’re not too fond of luggage either.
+ - Halloween is the beginning of the holiday shopping season. That’s for women. The beginning of the holiday shopping season for men is Christmas Eve.
+ - I just heard George W. Bush’s new plan for airline security. From here on out, every plane will now have its own hockey dad.
+ - At the Apple store, the people waiting in line for the iPhone 6 were trampled by the people waiting for the iPhone 7.
+ - While I was gone, I had quintuple bypass surgery on my heart. Plus, I got a haircut.
+ - According to a new survey, people who get divorced die early. People who stay married live longer. The difference is they just wish they were dead.
+ - Here’s what we know about Santa. He sees you when you’re sleeping. He knows when you’re awake. He knows if you’ve been bad or good. I think he’s with the NSA.
+ - In just a few minutes, my son will have completed his first trip around the sun.
+ - He opened a window in my heart, and the light of the world shined in.
+ - Last Halloween I ran out of candy and I had to give the kids nicotine gum.
+ - Theres not a man, woman or child on the face of the earth who doesnt enjoy a tasty beverage.
+ - Everyday is a compromise.
+ - I’m an environmentalist. Most of my jokes are recycled.
+ - You can email me, but I prefer letters that come through conventional mail. I like letters that have been licked by strangers.
+ - Scientists have discovered a black hole that is 12 billion times the size of our sun. It’s full of Hillary Clinton emails.
+ - New York City has 2 million rats. We used to have 8 million rats. Now we’re down to 2 million. You know what that means? We lose four electoral votes.
+ - Them bats is smart. They use radar!
+ - Here in New York City, it’s cold. It’s so cold the Republicans want to use the Keystone Pipeline to deliver soup.
+ - St. Patrick’s Day is the fourth biggest drinking day in America. It’s not the biggest. It’s right behind New Year’s Eve, Fourth of July, or any Secret Service party.
+ - Tomorrow is Election Day. It’s what they call the midterm elections, and you can cut the indifference with a knife. It’s the day Americans leave work early and pretend to vote.
+ - There just isn’t enough televised Chess.
+ - The oil spill is getting bad. There is so much oil and tar now in the Gulf of Mexico, Cubans can now walk to Miami.
+ - Welcome to the program. My name is Dave Letterman, and tonight I’m giving my two-week notice.
+ - They say there are about 12 million illegal immigrants in this country. But if you ask a Native American, that number is more like 300 million.
+ - Stocks are at an all-time high today. I don’t have any money in the stock market. I don’t have the stomach for the ups and downs. So about 20 years ago I put all of my money and liquid assets into videotape rewind machines.
+ - It was so cold in New York City today that the Statue of Liberty had her torch under her dress.
+ - Love: You can’t start it like a car, you can’t stop it with a gun.
+ - Here’s the plot of ‘Interstellar.’ Refugees – they’re known as Democrats – they’re looking for a new planet.
+ - In Hollywood, Oscar is king.
+ - Don’t worry. It’s just a flesh wound.
+ - Traffic signals in New York are just rough guidelines.
+ - I’m so excited for my son. On Christmas morning I want to see his face, to be there when he opens the gifts. I want the see what my assistants got him for Christmas.
+ - When I was a kid in Indiana, we thought it would be fun to get a turkey a year ahead of time and feed it and so on for the following Thanksgiving. But by the time Thanksgiving came around, we sort of thought of the turkey as a pet, so we ate the dog. Only kidding. It was the cat!
+ - There’s only one requirement of any of us, and that is to be courageous. Because courage, as you might know, defines all other human behavior. And, I believe – because I’ve done a little of this myself – pretending to be courageous is just as good as the real thing.
+ - When you go to the mind reader, do you get half price?
+ - Fall is my favorite season in Los Angeles, watching the birds change color and fall from the trees.
+ - I’ll be 50 years old tomorrow and that means, among other things, that now Bob Dole can start telling jokes about me.
+ - You know what I love best about baseball? The pine tar, the resin, the grass, the dirt – and that’s just in the hot-dogs.
+ - Mary Keitany from Kenya won the women’s race at the New York City Marathon. You can tell she was fast because guys on the street didn’t even have time to finish their catcalls.
+ - They say the oil spill has the potential to kill more wildlife than a Sarah Palin hunting trip.
+ - Don’t forget it’s daylight savings time. You spring forward, then you fall back. It’s like Robert Downey Jr. getting out of bed.
+ - Child labor, not a problem. Censorship, not a problem. Torture, not a problem. Chewing gum in China – oh, my God! You better not be over here chewing gum.
+ - Sometimes when you look in his eyes you get the feeling that someone else is driving.
+ - Congratulations are in order for Woody Allen – he and Soon Yi have a brand new baby daughter. It’s all part of Woody’s plan to grow his own wives.
+ - Obama took a tour of the Great Wall of China and said, ‘We need one of these things around the White House.’
+ - Donald Trump may be running for president. He said he is sick and tired of the rest of the world laughing at the United States. Well, President Trump will certainly put an end to that.
+ - If it wasn’t for coffee, I’d have no discernible personality at all.
+ - Thanksgiving is the day when you turn to another family member and say, ‘How long has Mom been drinking like this?’ My Mom, after six Bloody Marys looks at the turkey and goes, ‘Here, kitty, kitty.’
+ - Happy birthday to evil North Korean dictator Kim Jong Un. He gathered family and friends together and celebrated by executing a few close friends.
+ - Pepsi has a new Doritos-flavored Mountain Dew. No, we don’t have an Ebola vaccine, but we do have the Doritos-flavored Mountain Dew.
+ - This Osama bin Laden, now they say he has had plastic surgery. They say he sneaked across the border into Pakistan, which by the way is the place to go to have plastic surgery. He looks great. A tourist came up to him earlier this week and said, ‘May I have your autograph, Mr. Hasselhoff?’
+ - New York City subways are now getting high speed Internet. How about some high speed subway trains?
+ - Unusual weather for New York City. Today it was 68 and foggy. No, wait a minute, that’s me. I’m sorry, that’s me.
+ - It’s disappointing when you finally get to meet someone you admire and he conducts himself as a jerk.
+ - Has the mathematical abilities of a Clydesdale.
+ - Everyone has this sense of togetherness right now. For example, one guy on the subway today, he wanted to share my pants.
+ - Fine art and pizza delivery: what we do falls neatly in between.
+ - Donald Trump is attacking President Obama’s background. And I said, ‘Wait a minute, Trump also is from a mixed background. He’s half jack and half ass.’
+ - You have Kim Jong Il, and you have his brother, Menta Lee Il.
+ - It was stupid behaviour. And you take a look at the explosion, and it knocks you down and you wake up every morning and you’re scared and you’re depressed and sad, and you kind of got to let that knock you down and knock you down.
+ - I vote Democrat because I’m way too irresponsible to own a gun, and I know that my local police are all I need to protect me from murderers and thieves. I am also thankful that we have a 911 service that gets police to your home in order to identify your body after a home invasion.
+ - Father’s Day: When you get that lethal combination of alcohol and new power tools.
+ - Today Mitt Romney is 68 years old. It’s kind of sad, a 68-year-old guy with no job, no future – wait a minute, that’s me.
+ - The world’s oldest woman passed away at 116. They keep dying. I think that title may be cursed.
+ - Don’t kid yourself. Global warming is no joke. Here’s how serious global warming has gotten to be in the United States. In this country global warming is so bad, we are now actually starting to warm up to Barry Bonds.
+ - When Martha gets out she’ll be under house arrest in her big $40 million mansion in Bedford. Boy, that’ll teach her. She’s only allowed out of the house for doctors visits, grocery shopping, or to dump more stock.
+ - Today is Earth Day. The way I see it, as humans the very least we can do is recycle. A lot of recycling is going on this year. For example, Bushes and Clintons.
+ - I wouldn’t give my troubles to a monkey on a rock.
+ - People say New Yorkers can’t get along. Not true. I saw two New Yorkers, complete strangers, sharing a cab. One guy took the tires and the radio; the other guy took the engine.
+ - Every year when it’s Chinese New Year here in New York, there are fireworks going off at all hours. New York mothers calm their frightened children by telling them it’s just gunfire.
+ - The reason I vote Democrat is because I think it’s better to pay billions for oil to people who hate us, but not drill our own because it might upset some endangered beetle, gopher, or fish here in America. We don’t care about the beetles, gophers, or fish in those other countries.
+ - Finally we got some good news about the economy. Barack Obama got $800 billion to rescue the economy. All I can say is, ‘Thank you, Oprah.’
+ - What we know about Osama Bin Laden is this: he’s worth $300 million, he has five wives and twenty-six kids – and he hates Americans for their “excessive” lifestyle.
+ - I cannot sing, dance or act; what else would I be but a talk show host.
+ - Vladimir Putin said the tanks that you see rolling through the streets are just part of the closing ceremonies of the Olympics.
+ - Donald Trump has a great campaign slogan: ‘A complex world demands complex hair.’
+ - The best part about holiday parties is the alcohol. You have a couple of drinks and you tell your coworkers and your superiors what you really think about them. And then the fun begins.
+ - Bad news, it’s going to be a huge environmental disaster, the oil rig down there in the Gulf of Mexico. The good news is they think now that the oil spill will be diluted by the melting ice caps.
+ - I was Christmas shopping and ran into a guy on the street. I noticed his watch and said that it runs slow. He said, “So does the guy I stole it from.”
+ - Congratulations to Ohio State, your new college football champions. Coach Urban Meyer may be the greatest football coach of all time. Don’t confuse him with New York Mayor Bill de Blasio. That’s urban quagmire.
+ - Mayor de Blasio wants to eliminate garbage. He believes New York City produces way too much garbage. Well, heck, forget about producing too much garbage. What about late-night talk shows?
+ - I vote Democrat because I love the fact that I can now marry whatever I want. I’ve decided to marry my German Shepherd.
+ - In the last 48 hours King Abdullah from Saudi Arabia passed away. I have a moral dilemma. The king passed away three or four days ago. Is it too soon to hit on Queen Latifah?
+ - Yesterday was not only daylight saving time, but also International Women’s Day. What better way to address the issue of inequality for women than giving them a day that’s missing an hour.
+ - That’s the first thing they teach you in bowling, by the way. Don’t press the ball against your nose. The other one is don’t lick the pins.
+ - I like Halloween. It gives you a chance to dress up like something you’re not, you know? Like when the Miami Dolphins put on football uniforms.
+ - Kim Jong Un shaved his eyebrows and got his hair sticking right up. How would you like the leader of your country looking like Lady Gaga? Even Dennis Rodman told him he looks weird.
+ - Today is the anniversary of the Gettysburg Address. President Lincoln wrote it on his way to the site of the speech on the back of an envelope. One guy on the back of an envelope wrote the great Gettysburg Address – while every night it takes six guys to write this crap!
+ - You folks feeling the economic pinch? Are you a little fed up with the economic news? It’s bad. The department stores, this holiday season, no Santa Claus. They’re laying off department-store Santa Clauses. So more bad news for John McCain.
+ - Because you think an explosion has taken place and you’re looking at the shards and you say, ‘Well, can we put this back together?’ And by God, maybe you can put it back together. And maybe it won’t be the same, but maybe it will be different, and maybe it can even be better in a different way.
+ - Here in New York City you can now walk around smoking weed and all they will do if they see you is write you a ticket. Unfortunately, the ticket will be to a Jets game.
+ - Honey, what happened to “ladies first”? Husband replies, “That’s the reason why the worlds a mess today, because a lady went first!”
+ - Remember evil Russian dictator Vladimir Putin? He vanished for 10 days. He had disappeared and there were a lot of rumors. One rumor was he had disappeared because he had himself executed.
+ - Tip to out-of-town visitors. If you buy something here in New York and you want to have it shipped home, be suspicious if the clerk tells you they don’t need your name and address.
+ - Did you hear this? They say now Osama bin Laden and his buddy Mullah Omar have left Afghanistan dressed as women. They dressed up as women and went across the border into Pakistan. I think they’re going to make a movie about it. They’re going to call it ‘Some like it Jihad.’
+ - You know Kim Jong Un, the evil dictator of North Korea? Apparently, a guy in his inner circle used his ashtray while smoking and Kim Jong Un had him executed. I remember the same thing happened when a guy used Martha Stewart’s personal lemon zester.
+ - Incredible experience, watching a baby birth on the internet. It’s now my screensaver.
+ - Obesity is now a problem in the navy. They’ve created a new rank: Really Big Rear Admiral.
+ - Illinois is the only state where the present governor rides around in a car whose license plate was made by a previous governor.
+ - One of the dogs in the competition, a Portuguese Water Dog, is related to President Obama’s dog, Bo. But they only see each other at funerals and weddings.
+ - Let’s see what’s going on over in Iraq. A Burger King has opened up and prostitutes are back on the street of Baghdad after 20 years. Fast food and hookers – they are truly living the American Dream.
+ - There are a lot of New York City Thanksgiving traditions. For example, a lot of New Yorkers don’t buy the frozen Thanksgiving turkey. They prefer to buy the bird live and then push it in front of a subway train.
+ - Congratulations to Saddam Hussein on being elected to another seven-year term. It was very close. He received 99 percent of the vote, and one percent of the vote went for last-minute candidate Frank Lautenberg.
+ - Bill Clinton may in fact be moving back into the White House. And coincidentally I’m thinking about moving back into my mother’s house.
+ - If I can be serious now, and I have the feeling I can.
+ - Everybody was upset that Vladimir Putin was missing. He was in Switzerland with his girlfriend. She had a baby in Switzerland because in Russia childbirth is not covered by Putin-care.
+ - And how about that Barack Obama? You know what they’re saying? For the first time he’s starting to slip in the polls. Barack Obama is starting to slip in the polls. Don’t worry. He’s got a plan. He’s going to be to campaigning in Europe.
+ - Every day is President’s Day when you have an intern!
+ - Airport screeners are now scanning holiday fruitcakes. Not even the scanners can tell what those little red things are.
+ - How about those Olympics, ladies and gentlemen. Didn’t London look like the place to be? New York City was in the running for this Olympics. But here’s what happened. We got outbribed.
+ - Enron CEO Kenneth Lay has apparently just slipped across the border into Pakistan.
+ - But I was thinking about this, the Obamas want to adopt a stray dog from the pound. And I think that is admirable. I believe the last president to bring a stray dog into the White House got impeached.
+ - I can hardly wait until Donald Trump announces his celebrity cabinet.
+ - I got my lips chewed off by a dingo!
+ - The new CIA torture report is 6 million pages long. It’s almost as long as a George Clooney pre-nup.
+ - Public service announcement: In case of a terrorist attack, bottled water and duct tape are not going to do a damn thing. So do what Homeland Security Dir. Tom Ridge does: Get really drunk, and pick up a hooker.
+ - Arnold is now the front runner. Everyone was snickering about it a month ago, now it looks like he will be the next governor of California. He is so confident he has already chosen a body oil for the inauguration.
+ - John Kerry went duck hunting and he’s doing that to fulfill his campaign pledge to hunt down the ducks and kill them wherever they are! Kerry did pretty well; he came back with four ducks and three Purple Hearts.
+ - Have you seen a copy of Tax Tips for Billionaires?
+ - This warning from the New York City Department of Health Fraud: Be suspicious of any doctor who tries to take your temperature with his finger.
+ - Say what you will about Leona Helmsley, when it comes to standing trial, she’s twice the man Jim Bakker is.
+ - We inadvertently bombed the Chinese Embassy. But Clinton now is working very hard. He has sent a letter of apology to the Chinese. And, he’s also given them a gift certificate for future nuclear secrets.
+ - How about that oil slick in the Gulf of Mexico. And you know, the oil slick is going everywhere. So the next time somebody lands on the Hudson, it won’t be that big a deal.
+ - Compared to Clinton, I feel like a loser. I can’t even get the intern to make me coffee!
+ - Paul Ryan announced that after a lot of thought, and talking it over with family and friends, that he is not going to run for president in 2016. I’m telling you, this announcement sent shock waves through no one.
+ - Sunday is the Academy Awards. Every time an actor says, ‘I didn’t expect this,’ Ruth Bader Ginsburg will do a shot.
+ - BP has put more birds in oil than Colonel Sanders.
+ - Right after the show tonight, I’m going to the New York City car show. You get to see the models that will be crashed next year by drunken Secret Service agents.
+ - About half an hour before air time – that’s when I become hyper. I put everything else out of my mind and just let that nervous energy surge through my body. I start talking faster and louder. My confidence comes up. It’s actually a great feeling.
+ - A small handgun makes any TV remote control.
+ - Once you’re president, you can’t go anywhere without causing trouble. President Obama shows up in China, he’s chewing gum, they go crazy. A big stink because the president’s chewing gum. And you think, the Chinese are so easygoing about human rights. What’s the problem?
+ - Now in Utah if you get the death sentence, they have the firing squad. In Russia, they call that early retirement.
+ - I’m nothing if not an optimist.
+ - President Obama is in China. Also in China is evil Russian dictator Vladimir Putin. They’re both in China at the same time. It’s like running into your ex-girlfriend on vacation.
+ - Barack Obama is putting his team together to take over the Administration. So far, he’s got his mother-in-law, who is going to be living with him, and they are talking about Hillary for Secretary of State. You have your mother-in-law and Hillary Clinton. Sounds like smooth sailing to me.
+ - The White House is giving George W. Bush intelligence briefings. You know? some of these jokes just write themselves.
+ - By accident Jeb Bush announced that he was running for president. And then he said, ‘No, not yet. OK, I made a mistake.’ And then later in the day, by accident, he called Hillary and congratulated her.
+ - I feel like Bush presidencies are like “Godfather” films. You should stop at two.
+ - It’s the first day of spring. That means this weekend I’ll take down my Christmas lights.
+ - Doritos-flavored Mountain Dew is coming. You drink it, you get a combination of type 1 and type 2 diabetes.
+ - There’s a rumor that President George Bush had a nose job, that he had some kind of plastic surgery, that he actually had a nose job. If this is true, that’s the first new job he’s created since taking office.
+ - The post office is raising the price of stamps again. I heard that and said to myself, ‘If only there was an inexpensive electronic way of communicating.’
+ - Night clubs scare me. They’re dark and they stink and they’re dangerous and everybody’s drunk.
+ - Political pundits are saying President George W. Bush has made gains in two key states: dazed and confused.
+ - Here’s why Sarah Palin says she won’t be running for president. She says she can be more effective at getting others elected by not running. And I thought, well, that’s true, because in 2008 she got Obama elected.
+ - Reasons why members of Congress deserve a pay raise: Many big corporations are cutting back on bribes; nearly half the members have never been indicted.
+ - George Clooney is on the program tonight. Next week at this time I will be in a hardware store watching them mix paint.
+ - America is the only country where a significant proportion of the population believes that professional wrestling is real but the moon landing was faked.
+ - Happy Cinco de Mayo. In honor of Cinco de Mayo, mayor Bill de Blasio is filling all New York City potholes with guacamole.
+ - Barack Obama’s busy moving into the White House. Earlier today, John McCain was blowing on his soup.
+ - John Kerry says that foreign leaders want him to be president, but that he can’t name the foreign leaders. That’s all right, President Bush can’t name them either.
+ - I love the protests. And if you think about it, what better way to send a message to Wall Street than by sitting in a pup tent banging on a drum.
+ - They found a scrapbook with photos of Osama bin Laden from the ’90s, and they’re studying each and every photo very, very closely. My favorite shot of Osama bin Laden was right between the eyes.
+ - Rick Perry is now saying he thinks that Barack Obama’s birth certificate is fake. I think Perry may have faked his driver’s license.
+ - The senator got so tired on the campaign trail that he started kissing hands and shaking babies.
+ - My good friend Paul Shaffer and I are going to continue in show business. Next month Paul and I will debut our new act at Caesar’s Palace with our white tigers.
+ - Kim Jong Il made his staff call him “dear” and spent the day drinking cognac. It’s like I have a twin, ladies and gentlemen.
+ - You probably heard about the big prisoner swap with Cuba. A man who has been incarcerated in Havana for five years is back home in the United States. And we sent them some prisoners. The deal still has to be approved by President Obama and Bud Selig.
+ - Ted Kennedy is endorsing John Kerry and I’m wondering, do you really want the endorsement of a guy with a Bloody Mary mustache?
+ - Osama bin Laden was living in that compound with three wives. It’s like he was Newt Gingrich.
+ - Are we sure this is a good time to take God out of the Pledge of Allegiance?
+ - Obama said they’ve had some glitches with the Affordable Care website. I’ll tell you something. If you order a pair of pants online and they send you the wrong color, that’s a glitch. This is like a Carnival cruise, for God’s sake!
+ - Hookers in Times Square, God bless ’em, are offering a Mitt Romney Special. For an extra $20 they’ll change positions.
+ - I knew that if I woke up hung over, I couldn’t do the best possible job on the show, so I had to quit. Also, I’d consumed a lot of beer for a lot of years, and I thought, That’s enough. I’ve had my fun and I’m glad I quit.
+ - Experts say that Iraq may have nuclear weapons. That’s bad news – they may have a nuclear bomb. Now the good news is that they have to drop it with a camel.
+ - John McCain turned 72 years old last Friday, but the Chinese are making him a birth certificate that says he’s only 33 and then he’ll be ready to go.
+ - Pamela Anderson is a great dancer considering she can’t see her feet.
+ - Today coming to work, I saw one of those only in New York scenes. It was a rat who had passed out after choking on a pretzel.
+ - Tim Tebow may be back in the NFL with the Philadelphia Eagles. As you remember, he was thrown out of the league when he landed his gyrocopter on the White House lawn.
+ - Last night, President Bush gave a prime-time press conference. It was such a big deal that Fox decided to preempt American Idol. Which made sense to me, you don’t want too many amateurs on in one night.
+ - John Kerry says the ‘W’ in George W. Bush stands for ‘Wrong.’ But he still can’t explain what John Kerry stands for.
+ - Well, we’re just a couple of weeks from new President Barack Obama being sworn in. And he’s been very busy naming a lot of cabinet positions. And today he announced that he wants the surgeon general to be TV Dr. Sanjay Gupta. That was the kid on ‘American Idol,’ wasn’t it?
+ - Some good news. Finally, President Bush is going to do something about global warming. He became alarmed when another chunk of ice fell off his mother.
+ - Here’s some news from Afghanistan. We’re sending more troops to seal up the borders. Can we try that here? Three months, 12,000 pounds of bombs and billions and billions of dollars and the highest ranking enemy we’ve captured so far is an American.
+ - Final installment of Things More Fun Than Reading the Sarah Palin Memoir: Driving into a tree, microwaving your head, and getting stabbed in the eye with a carrot.
+ - Hillary went to a Chipotle in a tortilla pantsuit.
+ - So the guy who shot Gadhafi was wearing a Yankees cap. Did you see that? If he’d had a Boston Red Sox hat on he probably would have missed.
+ - You know, Barack Obama the last ten days was traveling overseas campaigning in Europe and everywhere. It was so successful, campaigning abroad, that he is actually thinking about campaigning here in the United States.
+ - Have you seen the Olympic uniforms? It’s for the American Olympic team and it’s berets. To me, nothing says America like a guy in a beret. Look at our founding fathers, they all wore berets.
+ - I think the number one public-relations blunder Osama has made is that he lives in a cave-fortress and if there’s one thing we’ve learned from it’s that you can’t trust a guy who lives in a cave-fortress – Lex Luther, Captain Nemo, Dr. Evil. I’m telling you the list goes on.
+ - Experts say this global warming is serious, and they are predicting now that by the year 2050, we will be out of party ice.
+ - I’m very resourceful. I’d be good in prison. I’d be good in a shipwreck. I’d make a great hostage.
+ - President Obama is sending a couple hundred troops to Iraq. We spent six years trying to figure a way to get out of Iraq. And now we’re back. But this time there is an exit strategy. Barack Obama has an exit strategy. In 2016, he’s gone.
+ - Sarah Palin’s book is big, 400 pages. She wrote the book herself and agonized over every word, and so will you.
+ - We have defeated Saddam Hussein and Iraq. The good news is Iraq is ours, and the bad news is Iraq is ours.
+ - I don’t like stand-up comedy that requires a lot of props. I really respect people who can walk out onstage alone and with no other tool but their own minds and can make you laugh and maybe even think a little.
+ - Lesbians have never been more popular.
+ - There’s a turkey shortage. Are you aware of that fact? There’s also a gravy shortage. It’s up to $4 a gallon. Governor Chris Christie wants to build a gravy pipeline.
+ - Did you hear what the Republicans have said about Hillary Clinton? They say she’s too angry to be president. Hillary Clinton, Senator Hillary Clinton, too angry to be president. When she heard this, Hillary said, ‘Oh yeah? I’ll rip your throats out, you bastards.’
+ - Prince William and Kate Middleton are in New York City. We have got to do something about immigration.
+ - I don’t know what they are protesting at Occupy Wall Street but I’m on their side. But 10,000 protestors and one Porta Potty?
+ - Mitt Romney said he’s not concerned about the very poor. What he means is people making less than a million.
+ - I went to the beach a couple of times in New York City. Tough summer out there, but I was pretty excited. I found what I thought at the time was a very rare seashell. And I took it to a friend of mine who works in a museum. And I was really disappointed. It turned out to be just a human ear.
+ - Mitt Romney, two-time Republican presidential candidate, is going to fight Evander Holyfield for charity. I hope they save some of that money for funeral expenses.
+ - Kim Jong Un’s sister got married. That sounds like another Seth Rogen movie, doesn’t it?
+ - Do you remember when you found out there was no Santa Claus? I was so upset I didn’t think I’d be able to do the show.
+ - Today is tax day. A lot of people are hoping they get refunds. And that’s just the folks here in the audience.
+ - Hillary Clinton, our junior senator from New York, announced that she has no intentions of ever, ever running for office of the President of the United States. Her husband, Bill Clinton, is bitterly disappointed. He is crushed. There go his dreams of becoming a two-impeachment family.
+ - The United States has launched airstrikes against ISIS. It’s being called ‘Operation Approval Ratings.’
+ - How would Trump travel as president? Obviously, he’d use Hair Force One.
+ - Mitt Romney is quite a guy. At one point he and his wife bought a zoo and fired all the animals.
+ - Did you see Howard Dean ranting and raving? Here’s a little tip Howard – cut back on the Red Bull.
+ - Newt Gingrich’s campaign is broke. All the money gone. So now he’s charging $50 for a photo. And for $100 you can marry him.
+ - The White House says that the vacation in Texas will give President Bush the chance to unwind. My question is, when does the guy wind?
+ - It was announced that President Obama and his wife, when they’re finished in Washington, are moving to New York City. The guy just can’t get enough gridlock.
+ - At the White House, they caught another fence jumper earlier today. It was Obama trying to get out.
+ - Mitt Romney, two-time Republican presidential hopeful, boxed former heavyweight champion of the world Evander Holyfield for charity. It was a horrible moment when Romney bit off Holyfield’s other ear.
+ - We make a lot of fun at President Clinton’s expense. But this transition is going to be tough because it’s been 25 years since this guy has gotten laid in the private sector.
+ - Herman Cain has suspended his presidential campaign, but he has asked the Secret Service if they could continue to provide him protection, at least until his wife cools off.
+ - Two things you need to know about taxes. They’ve extended the deadline to April 18, and when you write your check, just make it out to China.
+ - Iraq’s elite Republican Guard is doing so badly they’re changing their name to the Democratic Guard.
+ - Keep in mind that your individual vote doesn’t mean anything.
+ - To label Jason Randal a magician does a disservice. You’ll think the laws of physics, nature, the universe itself have been suspended. He’s as good as Houdini was at his best!
+ - Bronco Rick Perry is the first candidate I’ve ever heard say he’s not doing well because he’s sleepy. You know, we criticized George W. Bush a lot, but there was one thing he was very disciplined about, and that was getting his full eight years of sleep.
+ - You know, Sarah Palin is the Governor of Alaska, you know that. And she’s a lifelong member of the National Rifle Association. So great, is what I’m thinking, another vice president that shoots a drinking buddy; just get ready.
+ - What a day. It’s 53 and gloomy – like President Obama.
+ - President Obama is sending troops back to Iraq. He said, ‘Don’t worry, we should not be there any longer than a Kardashian marriage.’
+ - Do I think there is a heaven? Uh, yeah I do. Like a really big gymnasium. How do I see myself there? With really bad seats.
+ - You like science? You enjoy science? Always use it for good, never for evil. Can you promise me that?
+ - President Bush announced that the war in Iraq has been won. It’s all over, it’s been won. I believe this would be Bush’s first uncontested victory.
+ - President Obama is going to take two weeks to unwind, as opposed to President Bush, who never wound.
+ - Newt Gingrich wants to repeal child labor laws. Ladies and gentlemen, this is the man that we need to lead us into the 18th century.
+ - People are kind of upset with British Petroleum CEO Tony Hayward. Over the weekend, he was out on his yacht. And when President Obama found out that Tony Hayward was on his yacht, he was so angry, he missed a putt.
+ - Last night the United States dropped four 2,000 pound bombs on Saddam Hussein. I don’t know anything about explosives, but, my God, do those things even need to explode?
+ - Over the weekend Mitt Romney went body surfing. He has not body surfed since the ’90s when he starred on ‘Baywatch.’
+ - It’s tax season. When I woke this morning and realized it was tax season, I said, My God, didn’t we just pay taxes last year?
+ - President Obama’s trying to work out a nuclear deal with Iran, and the Republicans are steamed. They got together and sent Iran a letter about the nuclear deal. They said if this doesn’t work, by God, they’re going to send Seth Rogen and James Franco.
+ - I saw a robin redbreast in Central Park today, but it turned out to be a sparrow with an exit wound.
+ - Tomorrow is our final show. That is unless it rains, and then there will be a rain delay. We’ll probably make it up in a doubleheader around Labor Day.
+ - Holyfield won the fight. It’s not the first time Romney has been knocked out by a black guy.
+ - The Catholic Church has a tough new policy on child molestors: three strikes and you’re a cardinal.
+ - Recently a guy was having trouble with his computer. So he unplugs it, takes it out in the alley, pulls out a gun, and shoots it eight times. Coincidentally, that’s how Hillary got rid of her emails.
+ - New Republican Presidential candidate Jon Huntsman is fluent in Chinese. In a short period of time the Republicans have come quite a long way. The last Republican president wasn’t even fluent in English.
+ - A new survey indicates that Obama supporters love iPhones. So if you have an iPhone, chances are you are going to be supporting President Obama. In a related story, if you support Governor Chris Christie from New Jersey, chances are you love IHOP.
+ - Number one: Don’t frisk me. Don’t hurt me physically. Don’t get anywhere near my neck. And don’t call me Regis.
+ - You know who’s also joining the Wall Street protesters? Kanye West. That’s a real good idea – a guy with diamonds in his teeth protesting greed.
+ - People say we need royalty. We have royalty in the United States – the Kardashians.
+ - Mitt Romney had a horse competing in the Olympics. He didn’t win. But next year, he’ll be competing in ‘Dancing with the Stars.’
+ - President Bush announced he has a five-point strategy for getting out of Iraq. Points six through 10 will be handled by the Kerry administration.
+ - And tar is washing up onto the beaches – big globs of tar. And people are saying, ‘Is that going to ruin our summer at the beach?’ No, of course not. You take the big blobs of tar and you use them to hold down your blanket.
+ - It’s interesting what former presidents do when they leave office. Bush is now working as a motivational speaker. And if you want to be motivated, who better to turn to than the guy who invaded the wrong country and started a depression.
+ - I’m having trouble warming up to Mitt Romney. He looks like the guy in the restaurant that comes to your table to make sure everything’s all right.
+ - It’s official, Arnold said he will enter the race for governor. At least that’s what everybody thinks he said.
+ - Republicans are having trouble luring Gov. Chris Christie into the presidential race. They should try pie.
+ - I vote Democrat because I believe liberal judges need to rewrite the Constitution every few days to suit fringe kooks who would never get their agendas past the voters.
+ - Hillary is in Iowa to listen to what the people are saying – because if you want her to speak, that will cost you $200,000. So she’s there listening.
+ - Do you know what I’m going to do when I retire? I hope to become the new face of Scientology.
+ - I’m just trying to make a smudge on the collective unconscious.
+ - Senate Minority Leader Harry Reid says he will not seek re-election. Harry said he wants to spend more time with his family. As I always say, check with your family.
+ - It’s so warm now, and Thanksgiving came so early – is it just me, or does it not really feel like Ramadan?
+ - You folks like TV, you watch a lot of TV? There’s a show right here on CBS, it’s a huge hit. It’s called the “Mentalist.” And it’s about this guy who has a heightened sense of observation. It’s miraculous; he’s the only guy in the world who can tell the difference between Sarah Palin and Tina Fey.
+ - Economists believe there are three reasons why the Russian economy is doing so poorly. One, economic sanctions are working. Number two, low-price oil. And number three, Lindsay Lohan has quit drinking vodka.
+ - Rick Perry has now accused Mitt Romney of hiring illegal aliens to work on his hair.
+ - Here’s what the kids get. They get free McDonald’s and Kentucky Fried Chicken for a year, and 52 six-packs of Pepsi. And I’m thinking, well, actually, it might be healthier if they were taking steroids.
+ - CBS News finally received anthrax in the mail. As usual, we’re number three.
+ - The first presidential debate was down in Florida. Residents spent all day putting plywood on their televisions.
+ - Howard Dean was endorsed by former Vice President Al Gore and now he is getting advice from Al Gore. And I’m thinking, who better to give advice than the guy who couldn’t even get elected with the most votes?
+ - You all know Newt Gingrich. Newt is short for Newton. People say if that’s the case, what is Mitt short for? It’s short for ‘Mittens.’
+ - Wherever we’ve travelled in this great land of ours, we’ve found that people everywhere are about 90% water.
+ - I vote Democrat because I believe the government will do a better job of spending the money I earn than I would.
+ - This Hillary Clinton scandal has to do with emails. All I get are emails for Canadian Viagra.
+ - John Boehner is a member of a country club in Ohio. It turns out that the bartender was plotting to poison Boehner. Now wait a minute. Isn’t that the movie with Seth Rogen and James Franco?
+ - You can now buy a pack of beer containing 99 cans. A 99-can pack of beer. Who says America has lost its competitive edge?
+ - Mayor de Blasio said that whenever he goes to a Yankee game he gets sick and tired of people booing and giving him the finger. Hey, what do you want? You’re the mayor of New York City. It comes with the gig, pal.
+ - Happy Birthday to Fay Wray, a wonderful actress. She was, of course, in the movie ‘King Kong’ and would have been 99-years-old today. She was famous because of her love interest with a giant ape, and, wait a minute, that’s Maria Shriver.
+ - Martha Stewart is getting out of prison so today the terror alert was raised from orange to pesto.
+ - I spend most of my free time under the house.
+ - Congratulations to Bill and Hillary Clinton: this weekend, 33rd wedding anniversary. How about that? And you thought the Iraqi war was a never-ending conflict.
+ - Sarah Palin is joining Fox News. The new slogan is ‘hair and unbalanced.’
+ - I believe I have voted for both Democrats and Republicans. Am I either one? Absolutely not. Ladies and gentlemen, I am an American.
+ - President Obama is in China. Today he visited the kids who make our cellphones.
+ - A lot of issues were on the ballots. In New York City there was Proposition 14. That would put a ceiling on the number of late-night talk shows. And California passed Proposition 21. That would change guacamole officially to guac.
+ - President Obama went to India, South Korea, then Japan. He’s going to keep travelling until he finds his birth certificate.
+ - Former President Bush, to celebrate his 80th birthday, jumped out of an airplane. And if you’ve seen the polls, you know he’s not the only Bush in freefall.
+ - There are so many flavors of Coke now – Coke with lemon, Coke with vanilla, Coke with lime, Cherry Coke, and they’ve just brought out another new flavor – Coke with Pepsi.
+ - The latest polls show that Arnold Schwarzenegger is trailing Lieutenant Governor Cruz Bustamante in the polls. That’s insane. I mean, think about it, this guy Cruz Bustamante has never even been in a movie.
+ - Yesterday was Chinese New Year. It’s the Year of the Rabbit. And here’s how dumb I am. I’m still writing the Year of the Pig on my checks.
+ - President Bush has said that he does not need approval from the UN to wage war, and I’m thinking, well, hell, he didn’t need the approval of the American voters to become president, either.
+ - If you didn’t believe it before – and it’s easy to understand how you might have been sceptical on this point – if you didn’t believe it before, you can absolutely believe it now: New York City is the greatest city in the world.
+ - Hillary’s trying to appear downhome. Earlier today she was sitting on the front porch of a general store whittling a pantsuit.
+ - I always liked Mitt Romney. He looks like the salesman who follows you around at Brooks Brothers.
+ - Now all of us can talk to the NSA – just by dialing any number.
+ - In pop culture news, Lady Gaga got married. And yes, she was wearing white meat.
+ - Don’t worry about me. I plan to continue to be in show business. I have already been booked to be in a production of ‘The Sunshine Boys’ with Jay Leno.
+ - Back when we started this show, the hottest program on television was ‘Keeping Up With the Gabors.’
+ - Somebody threw a book at President Obama. If you’re trying to scare a president by throwing a book at him, you’re one president too late.
+ - Kids in Washington every year have the big Easter egg roll on the White House lawn. The kids found 300 Easter eggs. They also found about 10,000 missing Hillary emails.
+ - There’s no business like show business, but there are several businesses like accounting.
+ - I pulled a hamstring during the New York City Marathon. An hour into the race, I jumped off the couch...
+ - I like my cinema gritty, I like my eggs gritty.
+ - Quiet down, we don’t want to wake the Russians.
+ - A pair of ruby red slippers worn by Judy Garland in The Wizard of Oz have been stolen. The thief is described as being armed and fabulous.
+ - Due to budget crunches, Bush has had to scale some of the programs. He has a new program, ‘Leave A Couple of Kids Behind.’
+ - The CIA special unit that was searching for Osama bin Laden has been disbanded. So I guess, mission accomplished.
+ - The big debate right now is if Saddam is alive or dead. He’s dead, then he’s alive, then dead, then alive. It’s just confusing. Today they showed videotape, and Saddam was speaking at his own funeral.
+ - President Bush wants to build a space station on the moon. And from the moon, he wants to launch people to Mars. You know what this means. He’s been drinking again.
+ - The campaign for the White House is heating up with John Kerry taking heat for throwing his Vietnam medals away, getting a $1000 haircut, and wearing a 1970s wig known as ‘the Leno.’ There are really two sides to this story. And America can’t wait for Kerry to present both of them.
+ - Over in Afghanistan, Osama stuck his head out of the cave and saw a shadow. So, that means six more weeks of bombing.
+ - President Obama says he wants to put an end to the policy, ‘Don’t Ask, Don’t Tell.’ Yeah, in the military. This is not to be confused with George Bush’s policy, ‘Don’t Know, Don’t Care.’ That’s a whole different deal.
+ - Newt Gingrich wants to build a colony on the Moon. OK, you say, but why? Well, he wants to be the first American to get divorced on the Moon.
+ - President Bush has been silent on Schwarzenegger. Of course, he can’t pronounce Schwarzenegger.
+ - The candidates at the Republican debate looked like a town council that was outlawing dancing. They looked like a board of directors that was lying about poisoning a river.
+ - Hillary Clinton is driving across Iowa in a van. It’s to get to know the people she’ll never, ever see again in her life.
+ - Today was opening day for the new Congress in Washington. And Vice President Joe Biden swore in the new batch of White House fence jumpers.
+ - I wish the iPhone people would design one that’s black and has two pieces, and it plugs into the wall and you can pick one piece up and talk into it. I tell you, the whole time I had one of those old-fashioned plug-in phones, not once did I misplace it.
+ - Last night we had Bill Clinton, the former president. Security was as tight as Governor Christie’s yoga pants.
+ - Mitt Romney has asked Todd Akin to step down. That’s too bad. Todd Akin was the guy to lead the Republican Party into the 16th century.
+ - Have you been following the big oil spill in the Gulf of Mexico? Or as we call it now, the Dead Sea.
+ - Everybody is wondering what Paris Hilton will be doing next, and hell, I’m wondering what she did before.
+ - They’re talking about putting a woman on the $20 bill. And Hillary said, ‘I’m available.’
+ - The weather here is gorgeous. It’s mild and feels like it’s in the eighties. The hot dog vendors got confused because of the weather and thought it was spring, so they accidentally changed the hot dog water in their carts.
+ - Insiders say that Trump is running for president as a publicity stunt. That’s not the Donald Trump I know.
+ - I’m still here. I knocked off another competitor.
+ - Rick Perry, started out like a ball of fire from Texas and then he started to drop and now he’s retooling. He’s adding advisers to his campaign team. This guy had advisers? Really?
+ - The Japanese Prime Minister has apologized for Japan’s part in World War II. However, he still hasn’t mentioned anything about karaoke.
+ - There was an embarrassing moment in the White House earlier today. They were looking around while searching for George Bush’s military records. They actually found some old Al Gore ballots.
+ - There’s already been some trouble for Osama bin Laden in the afterlife. There was a mix up and he was greeted by 72 vegans.
+ - Al Gore has endorsed Howard Dean for president. That’s pretty fitting, the guy that didn’t beat Bush endorsing the guy who won’t beat Bush.
+ - Mitt Romney and his family have a big two-day weekend plan. They’re going to hike to the top of his money.
+ - I vote Democrat because Freedom of Speech is fine as long as nobody is offended by it.
+ - Hillary has now erased all of her emails, and she also had all of her pantsuits dry cleaned.
+ - Jeb Bush has to distance himself from what they call the Bush brand. So he keeps saying, ‘I am my own man.’ But when Governor Chris Christie is out on the campaign trail, he’s always saying, ‘I’m my own man, plus another guy.’
+ - Mitt Romney is running for president again. That will be attempt No. 3. Well, everybody needs a hobby. He’s almost certainly running, and I’m almost certainly retiring, so I don’t care.
+ - The Academy Awards are passed out on Sunday. It’s voted by members of the Academy of Motion Pictures Arts and Sciences. Or as I call them, 50 shades of white.
+ - Security here in New York City is still very tight. Hookers in Times Square now are demanding two forms of fake ID.
+ - A guy in Pennsylvania was arrested because he was drunk in his golf cart going from bar to bar. So they arrested him. I said: Wait a minute. Isn’t that golf?
+ - All comedians are preoccupied with one thing and with one thing only-themmm-selllves. It’s a horrible lot in life.
+ - Next in importance to having a good aim is to recognize when to pull the trigger.
+ - Mayor de Blasio has legalized ferrets. Now you can legally own ferrets in New York City. I want to tell you something. If I want to see anymore beady-eyed little weasels, I’ll just keep riding the subway.
+ - There’s some kind of a thing where when she was Secretary of State she was using her own e-mail instead of the State Department, and I thought finally, a Clinton scandal the entire family can enjoy.
+ - Did you hear about this genius that got on a plane and set fire to his feet? Turns out he had bombs in his shoes and the problem all started when the flight attendants asked him nicely to extinguish his feet. He was wearing exploding sneakers. The new Nike Air-Jihads!
+ - Iraq is so bad that President Obama phoned Hillary Clinton and asked her if she could start early.
+ - So they caught Gadhafi in a storm sewer and shot him. Or as they call it in the Middle East, an orderly transfer of power.
+ - The European countries are really hoping to do well in the Olympics. If they win gold medals, they can use them as cash.
+ - Yesterday was the New York City Marathon. Republicans won in a landslide.
+ - Bush explained his strategy for transfer of power. It’s a two part plan. Part one: clean out his desk. Part two: rent a U-Haul.
+ - Trump says that if he’s elected, he won’t let the presidency interfere with the Miss Universe pageant.
+ - The White House has announced that they no longer recognize Fox as a news organization, which puts them about eight years behind the rest of us.
+ - I haven’t reached nirvana yet, but I’ve been to Detroit.
+ - It’s two days until tax time. I know it’s late, but there is still time to deduct this show as a loss.
+ - Donald Trump is talking about running for president. He hasn’t made an announcement, but I want to tell you something. The fake suspense is killing me.
+ - Presidential hopeful Jeb Bush has released all of his emails. I’d like to release all of my emails. I’ve got nothing but emails about low-cost funerals and Viagra.
+ - Today would have been the birthday of Osama bin Laden. It makes me remember when Seal Team 6 threw him a surprise party.
+ - Donald Trump is on the show tonight. Donald is a big man, I think 230 pounds – 235 with cologne.
+ - Hillary Clinton is running for president. This time around, she promises to be warm and approachable. Like me.
+ - They have dog food for constipated dogs. If your dog is constipated, why screw up a good thing? Stay indoors and let ’em bloat!
+ - New York now leads the world’s great cities in the number of people around whom you shouldn’t make a sudden move.
+ - New Orleans: The least annoying French place on Earth.
+ - You know who’s upset now with ISIS? Al Qaeda. It’s because ISIS is getting more attention than Al Qaeda. So now, Saturday night will be Ayman al-Zawahiri bobblehead night.
+ - Are you excited about the recall election? Arnold’s campaign has a new slogan: ‘Win one for the groper.’
+ - The Pope also said that while he’s in town he would like to go see ‘The Book of Mormon.’
+ - President Obama has two years left as president. I wouldn’t be surprised if he gets to appoint two new Kardashian husbands.
+ - We’re learning more about Osama bin Laden. His father was married 16 times, and he has five wives. I think we’re getting to the root of his intense anger. And they say bin Laden never spends the night in the same place twice. No, wait a minute, that’s Clinton.
+ - Arnold Schwarzenegger met with President Bush. It’s amazing if you think about it. It was the Terminator and the One-Term-inator.
+ - Bill Clinton has a brand new book coming out in a few months and the Democrats are worried that the Clinton book might upstage the Kerry campaign. I’m thinking, hell, day-old meat loaf could upstage that campaign.
+ - Osama bin Laden has ten look-alikes to fool us Americans. Ten look-alikes, and he’s married to five of them.
+ - John McCain said that Sarah Palin is still a force in the Republican Party. Then he got in his car and backed over his mailbox.
+ - Mitt Romney said that he liked to fire people. Well, there’s a pretty good message to send to Middle America. When Rick Perry heard that, he said, ‘Well that’s nothing. I like to execute people.’
+ - You’re not really drinking coffee unless you drink it black, don’t you think? Oh, no? You like to monkey with it?
+ - President Bush says he needs a month off to unwind. Unwind? When the hell does this guy wind?
+ - Have you seen these Republican presidential candidates? I bet Obama is sorry now that he spent all that money on the new birth certificate.
+ - Hillary Clinton is now in Iowa. She’s spending every waking minute of her day meeting ordinary people, and it’s to prepare her for a job in which she will never again meet an ordinary person.
+ - Instead of reading vows at the wedding ceremony, they read hacked Sony emails.
+ - Congratulations to Chelsea Clinton. Over the weekend, she gave birth to a baby girl. The baby girl will not confirm or deny whether she’s running in 2056.
+ - Bring Your Child to Work Day – that’s how we got George W. Bush.
+ - I have nothing against the North Koreans but this Kim Jong Un has got a screw loose. A member of his cabinet, his security minister, nods off, falls sleep. We’ve all done it. Kim Jong Un takes the guy out and has him executed, just for just falling asleep. Oh, and he was also deflating footballs.
+ - When we started the show, there were mixed responses. Half of the people said, ‘That show doesn’t have a chance.’ The other half said, ‘That show doesn’t have a prayer.’
+ - Yesterday, the Senate voted to approve President Clinton’s decision to send troops to Bosnia. And they voted to change the name of that mission to “Operation Forget About Whitewater”.
+ - I have talents aplenty. Unfortunately, precious few of them have any redeeming social value.
+ - Mitt Romney is doing what he can. He’s trying very hard. He wants to unite America, the rich with the wealthy, the poor with the indigent, and the white with the Caucasian.
+ - Now how about this, ladies and gentlemen? The Governor of Alaska, Sarah Palin, has announced she is stepping down. She will no longer be the Governor of Alaska. First thing, she woke up and went out on her porch and waved goodbye to Russia.
+ - Those North Korean hackers are at it again. Earlier today they leaked Santa’s naughty list.
+ - Moammar Gadhafi was found hiding in a storm sewer with a gold-plated gun. That’s me in retirement, ladies and gentlemen.
+ - But down in Florida in the early voting, there were computer glitches, confusing ballots, long lines and chaos. And when President Bush heard about this, he said, ‘Mission accomplished!’
+ - President Bush says now he is sticking to his plan for handing over power to the Iraqis on June 30. It’s also part of his plan to hand over power to John Kerry on January 20.
+ - Newt Gingrich had a horrible week in the Iowa caucuses. Only 13 percent of his ex-wives voted for him.
+ - Presidential candidate Howard Dean is now being attacked for dodging the draft. I never knew this about the guy – but now I know this guy is presidential material.
+ - I was talking to a friend about Santorum. He said, ‘For all my years in the State Department, I know one thing. Terrorists, what they fear most is a guy in a sweater vest.’
+ - And now the really difficult part: We have to rebuild Iraq into a strong and independent nation that will one day hate the United States.
+ - You know, we had the elections earlier in the week, and a dead woman, in Pennsylvania, somehow was on the ballot and she was elected to city council. A dead woman actually elected! And I’m thinking, well, I guess there is still hope for Al Gore.
+ - Last month Mitt Romney raised $76 million. He found it in an old sport-coat pocket.
+ - Texas Senator Ted Cruz announced he is running for president. Ted Cruz was born in Canada, his father fled to the United States from Cuba, and yet Ted Cruz is against immigration. Isn’t that odd?
+ - They’re doing everything they can to tighten security at the White House. Today, on the roof of the White House, they added one of those fake owls.
+ - Scientists have proven beyond a shadow of a doubt that there is life after death – though they say it’s virtually impossible to get decent Chinese food.
+ - Why we are here: To tremble at the terrible beauty of the stars, to shed a tear at the perfection of Beethoven’s symphonies, and to crack a cold one now and then.
+ - The White House is saying Donald Trump has ‘zero percent chance’ of being elected. Isn’t that a little high?
+ - Jeb Bush may run for President. Bush presidencies are like ‘Caddyshack’ movies. They should have stopped with one.
+ - President Obama, by the way, is, I think, making his first presidential European trip. And while he’s there in Europe, he plans to fire the CEO’s of BMW and Volkswagen.
+ - Donald Trump announced that he is not running for president. He would rather spend his time making Gary Busey sell Snapple on the street.
+ - You folks been following the big British Petroleum oil spill in the Gulf of Mexico? I’m telling you, British Petroleum has put more birds in oil than Colonel Sanders.
+ - North Korean dictator Kim Jung Il may be stepping down. Yeah, experts in the State Department say he could be replaced by his son, Menta Li Ill.
+ - During the debate, Palin winked, wrinkled her nose, and gave a shout-out to a third-grade class. Well, you know, that says commander-in-chief to me right there. You betcha!
+ - The Democrats were crushed in the midterm elections. The Republican juggernaut pounded the Democrats, and the pundits say they will not really know what happened to the Democrats until they find the black box.
+ - The night before the Olympics opening ceremony, my son, who is eight years old, gets very excited and likes to put out a plate of cookies and some milk for Bob Costas.
+ - When I stopped smoking cigars it was the biggest mistake I made in my life. So my resolution for 98 is Im going to start smoking cigars again. I gave them up about a year and a half ago, and I now realize that it may have been my one last fun, interesting thing to do.
+ - The National Association of Theater Concessionaires reported that in 1986, 60% of all candy sold in movie theaters was sold to Roger Ebert.
+ - Did you folks see President Bush’s State of the Union Address? How about that surprise announcement? Howard Dean has been captured and he’s in the hands of interrogators.
+ - Since 1980, there have been 91 breaches of security at the White House. Well, 92 if you count George Bush.
+ - Sometimes something worth doing is worth overdoing.
+ - To save energy, New York City is now dimming the lights of the skyscrapers and the skyline at night. There’s a bad side to this. If you need Batman, you have to text him.
+ - Mitt Romney is not going to be running for president. So you know what that means. We are getting closer and closer to ‘President Trump.’
+ - Because Utah is largely Mormon country, the firing squad’s a little different. You’re blindfolded but no cigarette.
+ - There was a flight from Cleveland to New York City with just two people on board. There hasn’t been two people on an airplane since the Wright brothers.
+ - Don’t use your bedroom for work, unless you’re a prostitute.
+ - This will be Michelle Obama’s last opportunity to try to get me to eat kale.
+ - Sarah Palin had a big op-ed piece in the Wall Street Journal, and she said she’s against death panels. And I thought, ‘Really? She’s the one who pulled the plug on the McCain campaign.’
+ - Number one way life would be different if dogs ran the world: All motorists must drive with head out window.
+ - Let’s have some wine, go upstairs, and look at my money.
+ - They’re saying President Obama doesn’t have any friends. The problem is that he can’t get Congress to approve one.
+ - John Boehner – doesn’t he look like every guy you’ve ever seen at a hotel bar? He looks like the kind of guy who licks his thumb when he counts his money.
+ - Today is Veterans Day. Thank you to all our men and women who have served the United States armed forces. In honor of Veterans Day we are marching out a few jokes that have already served.
+ - We thought New York City was home to 8 million rats. Turns out, that’s a little high. The actual number is 2 million rats. That explains the light turnout for the midterm elections.
+ - Yesterday was Election Day. If we have any Democrats in the audience, I’m sorry but you’re going to have to give up your seats.
+ - I’ve had nothing but great friendship to help me through this.
+ - According to the recent polls, Bush has a slight lead over John Kerry. So today, Bush hung a banner over the White House saying, ‘Mission Accomplished.’
+ - John Kerry told Tom Ridge he was too busy to receive a Homeland Security briefing. I thought that was odd, since you’re not supposed to ignore terrorist threats until after you become president.
+ - This isn’t brain surgery; it’s just television.
+ - The Mars Polar Lander has been quieter than George W. Bush after a foreign policy question.
+ - Overall Bush’s European trip has been an overwhelming success. Not once has he gotten separated from his group.
+ - USA Today has come out with a new survey – apparently, three out of every four people make up 75% of the population.
+ - Gays are now allowed to serve openly in the military. So maybe our next war could be a musical.
+ - Mitt Romney has a fund-raiser. He’s going to get in the ring and fight Evander Holyfield. This is the dumbest thing Republicans have done since they wrote that open letter to Iran.
+ - Good luck finding a place to park in New York City. And when you do, good luck figuring out the parking signs, restrictions, and prohibitions. It is so complicated. It has gotten so bad, I never park my car without a lawyer.
+ - Here’s my problem. On Valentine’s Day the flowers are wilting and so am I.
+ - Former President Bill Clinton is on the program tonight. He says that while his wife runs for president, he would like to stay out of the limelight. Well, he’s certainly come to the right place. He’ll be fine here.
+ - Bill Murray is on the show tonight. Next week I’ll be Goggling ‘foods that improve prostate health.’
+ - I’d do a podcast about guys wearing shorts when it’s too cold.
+ - Privately I think that I’m not really somebody who has a network television show. Celebrities are other people – Johnny Carson and Sylvester Stallone. I’m just a kid trying to make a living is the way I feel.
+ - Childhood. I wish I had something to complain about.
+ - Two creative spirits in a relationship, I don’t think that’s the best way to go.
+ - After my bypass surgery I knew I had to change my lifestyle, and then it occured to me – I don’t have a lifestyle.
+ - I got some good news earlier today before the show. Thanks to Alex Rodriguez, I am no longer the most overpaid disappointment in New York City.
+ - How many people saw Arnold’s speech last night? I haven’t seen that many Kennedys in one place since their last trial.
+ - I have found that the only thing that does bring you happiness is doing something good for somebody who is incapable of doing it for themselves.
+ - The Russian economy is tanking. It’s gotten so bad that today Vladimir Putin had to pawn his stolen Super Bowl ring. And Putin will finance his next invasion on Kickstarter.
+ - Guess who’s running for president? Jeb Bush. Jeb was governor of Florida and he speaks fluent Spanish, which raises the question: What language did his brother speak? What was that?
+ - They found a cave once lived in by Osama bin Laden and the only thing in the cave were some boxer undershorts, and macaroni. I’m telling you, you add an old stack of Playboys, this could be my place. It’s like I have a twin.
+ - President Bush says he is looking forward to the testimony of Condoleezza Rice. Yes, he is very excited about Condoleezza Rice’s testimony before Congress. Well, it makes perfect sense – he wants to know what was going on, too.
+ - Iraqi’s minister of information did not show up for his press conference today. However, he claims he was there and he said it went very well.
+ - President Obama and his family are spending the holidays in Hawaii, and while they’re gone, they got a fence jumper to house sit. Tomorrow, he will be in Hawaii playing golf with Raul Castro and the Pope.
+ - Newt Gingrich has criticized ‘New York elites’ who ride the subway. One of those subway elites threw up on my pants this morning.
+ - A priest in New York City was arrested on gun possession. These days, you better be happy that the bulge in his pocket is a .38.
+ - Bush met with former President Jimmy Carter. Jimmy Carter is 76 years old, or as Democrats call him ‘their bright new star of the future.’
+ - Newt Gingrich says he wants to get rid of Social Security. Who is more qualified to give this country financial advice than a guy who ran up a half-million dollar bill at Tiffany?
+ - I vote Democrat because I think illegal aliens have a right to free health care, education, and Social Security benefits, and we should take away Social Security from those who paid into it.
+ - Ted Cruz could be president of the United States. If you thought the Secret Service was drinking before.
+ - Tim Tebow has been on the bench longer than Ruth Bader Ginsburg.
+ - Do you know who is ready to go with the presidential campaign? Jeb Bush. Jeb already has plans to end the war in Iraq that his brother started. All he needs is a hot tub time machine.
+ - Meryl Streep is on the program tonight. I like to throw her a little work whenever I can.
+ - It turns out that President Obama has acid reflux. He had a sore throat, went to the hospital, and they diagnosed it as acid reflux. Talk about irony – it’s not covered by Obamacare.
+ - Earlier today, we got a call from Stephen Hawking. He’s a genius, and after 6,028 shows he ran the numbers and he said it works out to about eight minutes of laughter.
+ - Ladies and gentlemen, after what I’ve been through, I am happy just to be wearing clothes that open in the front.
+ - I vote Democrat because I’m not concerned about millions of babies being aborted so long as we keep all death row inmates alive and comfy.
+ - I vote Democrat because I believe oil companies profits of 4% on a gallon of gas are obscene, but the government taxing the same gallon at 15% isn’t.
+ - The winner of the Westminster Dog Show gets to drink champagne – out of the toilet.
+ - It looks like President Bush will be handing over power to the Iraqis by June 30th. That’s amazing and not only that, but it looks like he’ll be handing over power to the Democrats by November 2nd.
+ - Arnold Schwarzenegger got into a huge debate with Arianna Huffington about immigration – going back and forth – finally immigration came in and hauled them both away.
+ - President Bush is going to establish elections there in Iraq. He’s going to rebuild the infrastructure. He’s going to create jobs. He said if it works there, he’ll try it here.
+ - Delta: We never make the same mistake three times.
+ - Tourists – have some fun with New york’s hard-boiled cabbies. When you get to your destination, say to your driver, “Pay? I was hitchhiking.”
+ - Have you folks been following the controversy with John Kerry and his service in Vietnam and the Swift Boat campaign? It all took place in Vietnam and now it just won’t go away. I was thinking about this – if John Kerry had just ducked the war like everybody else he wouldn’t have this trouble.
+ - God forbid I should be the last one to criticize, but I think may be Howard Dean has a bit of a problem because earlier today during a debate in New Hampshire, he bit off Joe Lieberman’s ear.
+ - Sarah Palin made her debut as a Fox News analyst. They finally found a job that she’s not under-qualified for.
+ - As you know now, Rush Limbaugh is the new face of the Republican Party, but they’ll probably go with a different body.
+ - Dingoes, jackals, skunks, vipers and weasel are now illegal in New York City. Well great, who’s going to run CBS?
+ - My retirement plan was in place but Bernie Maidoff with my money.
+ - I went through one period when I smoked a surprising, a really breath-taking, amount of grass almost every night.
+ - President Obama and his wife are going to Kenya. Donald Trump said, ‘While you’re there, pick up your birth certificate.’
+ - Mitt Romney is not going to run for president. Mitt said it’s time for fresh faces. So that’s good news for Bruce Jenner.
+ - Did you get the new iPhone yet? The iPhone that I have is outdated. It has two pieces and a hand crank.
+ - The new ‘Mad Max’ movie takes place in a post-apocalyptic world. I have a small part in ‘Mad Max.’ I play the old geezer who remembers what steak tasted like.
+ - Well, the manhunt continues for that elusive evil mastermind, but I’m telling you Enron CEO Kenneth Lay remains at large.
+ - Some Secret Service guys crashed a car into the White House. And they had been drinking when it happened. Actually, they hit a barrier trying to get to the White House. It’s the same thing that is happening to Hillary.
+ - Donald Trump had a university. Well, the state attorney general decided that the Donald Trump University was an unlicensed sham. And I thought, you know you’re at a bad university when your commencement speaker is Whitey Bulger.
+ - I know these jokes aren’t great, ladies and gentlemen, see this is the problem you run into when you’re between impeachments.
+ - I heard this rumor that al Qaeda is merging with Hamas. Yeah, I got that tip from Martha Stewart.
+ - A lot of folks are still demanding more evidence before they actually consider Iraq a threat. For example, France wants more evidence. And you know I’m thinking, the last time France wanted more evidence they rolled right through Paris with the German flag.
+ - Herman Cain said, starting today, if you buy into his 9-9-9 plan, he’ll throw in a free 32-ounce soda.
+ - Mitt Romney looks like an American President in a Canadian movie.
+ - I think you can use some of those words on TV. But one thing you can’t do is throw coffee, I’ve said it over and over again!
+ - The general election’s taking place today in Iraq, so I guess that means we’re one step closer to being there for another 10 years.
+ - Snooki is now a published author. I’m blaming Sarah Palin. She lowered the bar.
+ - I had no idea this thing was televised. Boy, is my face red.
+ - The 2016 presidential campaign is heating up. Can you feel the indifference, the apathy?
+ - President Bush says he now wants to simplify the tax code. Only those in the blue states will pay.
+ - A lot of people think I’m retiring, but I’ve been telling a fib. I’ve been forced to leave this job because I gave $75,000 to the Clinton Foundation.
+ - Are you getting a big kick out of the Enron scandal? I find this interesting that whenever a big crisis starts, people start showing up in church. So, Ken Lay shows up in church this weekend. Church officials are still looking for the collection plates.
+
+500 quotes

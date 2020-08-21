@@ -1,0 +1,23 @@
+ - I’m not going to be anybody’s punching bag.
+ - Midterm elections for first-term presidents are notoriously difficult.
+ - I just want to serve people. I know it sounds like a simple cliche.
+ - I think if you run away from who you are, that you’re a Democrat and you’re proud to be a Democrat, it’s foolish. And the reason it’s foolish is you’ve got a lot to be proud of.
+ - The best way to deal with the deficit is through economic growth.
+ - I say we are climbing out of a ditch and we are climbing up.
+ - If faith is your motivation, share that.
+ - My sense is that economic anxiety means electoral volatility.
+ - You have got to connect your land use decisions with transportation decisions.
+ - My sense is, as governor I’ve gotten a lot of stuff done.
+ - When I talk to people outside the beltway, I don’t think people are that divided.
+ - No couples in Virginia can adopt other than a married couple – that’s the right policy.
+ - Gay individuals should be able to adopt.
+ - Race to race, the Republicans are putting up candidates that are quite far out of the mainstream in terms of should we have passed the Civil Rights Act or does Social Security need to exist.
+ - The American economy has always been the innovator in the world, and we’re starting to see some tremendous increases in innovation, especially in the clean energy sector.
+ - I’m not going to give a courtesy gift to a person who’s going to win, and I’m not going to give a sympathy gift to a person who’s going to lose.
+ - We spend at least $5 for remedial education right now for every dollar we put in early childhood education. All the studies on early childhood education show this is going to pay for itself.
+ - I will always be a partner with the president of the United States.
+ - But people ought to be proud to be Democrats right now. You know, we’re a happy warrior party. And this Congress has every reason to be very, very proud of the heavy lifting that they have done.
+ - I was the legal counsel in the effort to amend the Virginia Constitution to give Virginians the right to hunt and fish constitutionally, and we are one of the few states in the country to protect that right.
+ - The current situation in Iraq is ultimately a crisis of governance, which has allowed extremist groups to take advantage of disillusioned segments of the Iraqi population.
+
+21 quotes

@@ -1,0 +1,136 @@
+ - There is only one happiness in this life, to love and be loved.
+ - We cannot tear out a single page of our life, but we can throw the whole book in the fire.
+ - Work is not man’s punishment. It is his reward and his strength and his pleasure.
+ - Vanity is the quicksand of reason.
+ - The intellect seeks, the heart finds.
+ - Where there is no longer love, there is no longer anything.
+ - Writing a journal means that facing your ocean you are afraid to swim across it, so you attempt to drink it drop by drop.
+ - It is love, not faith, that moves mountains.
+ - The brain is a tool that gets rusty without constant, albeit moderate, exercise.
+ - Try to keep your soul young and quivering right up to old age, and to imagine right up to the brink of death that life is only beginning. I think that is the only way to keep adding to one’s talent, and one’s inner happiness.
+ - Simplicity is the essence of the great, the true, and the beautiful in art.
+ - A cigar numbs sorrow and fills the solitary hours with a million gracious images.
+ - We must have a passion in life.
+ - Happiness lies in the consciousness we have of it.
+ - Simplicity is the most difficult thing to secure in this world; it is the last limit of experience and the last effort of genius.
+ - He who draws noble delights from sentiments of poetry is a true poet, though he has never written a line in all his life.
+ - Believe in no other God than the one who insists on justice and equality among men.
+ - The world will know and understand me someday. But if that day does not arrive, it does not greatly matter. I shall have opened the way for other women.
+ - God abandons only those who abandon themselves, and whoever has the courage to shut up his sorrow within his own heart is stronger to fight against it than he who complains.
+ - God has written in the law of nature that when two people are joined in love or friendship, one must always give his heart more perfectly than the other.
+ - The artist vocation is to send light into the human heart.
+ - My strength has not equaled my mad ambition. I have remained obscure; I have done worse – I have touched success, and allowed it to escape me.
+ - Art for art’s sake is an empty phrase. Art for the sake of truth, art for the sake of the good and the beautiful, that is the faith I am searching for.
+ - You can bind my body, tie my hands, govern my actions: you are the strongest, and society adds to your power; but with my will, sir, you can do nothing.
+ - Let us accept truth, even when it surprises us and alters our views.
+ - To forgive a fault in another is more sublime than to be faultless one’s self.
+ - I’m not full of virtues and noble qualities. I love, but I love strongly, exclusive, stedfasty.
+ - It is always the best friends who are neglected and ignored.
+ - Nothing resembles selfishness more closely than self-respect.
+ - The whole secret of the study of nature lies in learning how to use one’s eyes...
+ - Not to love is to cease to live.
+ - Charity degrades those who receive it and hardens those who dispense it.
+ - We must love stupid people better than ourselves; are they not the really unfortunate ones of this world? Do not people without taste and without ideal grow constantly weary, rejoicing in nothing, and being quite useless here below?
+ - To eat together is one of the greatest promoters of intimacy. It is the satisfaction in common of a material necessity of existence, and if you seek a loftier meaning in it, it is a communion...
+ - You may impose silence upon me, but you can not prevent me from thinking.
+ - The trade of authorship is a violent, and indestructible obsession.
+ - Unrequited love is as different from the mutual love as the error from the truth.
+ - Life is a slate where all our sins are written; from time to time we rub the sponge of repentance over it so we can begin sinning again.
+ - The prayers of a lover are more imperious than the menaces of the whole world.
+ - The old woman I shall become will be quite different from the woman I am now. Another I is beginning.
+ - Life in common among people who love each other is the ideal of happiness.
+ - One approaches the journey’s end. But the end is a goal, not a catastrophe.
+ - A child motivated by competitive ideals will grow into a man without conscience, shame, or true dignity.
+ - Simplicity, a delicate silence about oneself, increases their worth and makes one love those whom one admires.
+ - One is happy once one knows the necessary ingredients of happiness: simple tastes, a certain degree of courage, self denial to a point, love of work, and above all, a clear conscience.
+ - Fame and admiration weigh not a feather in the scale against friendship and love, for the heart languishes all the same.
+ - Punctuation has its own philosophy, just as style does, although not as language does. Style is a good understanding of language, punctuation is a good understanding of style.
+ - I would rather believe that God did not exist than believe that he was indifferent.
+ - No one makes a revolution by himself; and there are some revolutions which humanity accomplishes without quite knowing how, because it is everybody who takes them in hand.
+ - Oblivion is the flower that grows best on graves.
+ - It is a mistake to regard age as a downhill grade toward dissolution. The reverse is true. As one grows older, one climbs with surprising strides.
+ - O heart! love is thy bane and thy antidote.
+ - Women love always: when earth slips from them, they take refuge in heaven.
+ - Sorrow makes us very good or very bad.
+ - Admiration and familiarity are strangers.
+ - These tears do me good, they have watered the parched place; perhaps my heart will grow again there!
+ - Learned women are ridiculed because they put to shame unlearned men.
+ - Nowadays it seems that moral education is no longer considered necessary. Attention is wholly centered on intelligence, while the heart life is ignored.
+ - I have no enthusiasm for nature which the slightest chill will not instantly destroy.
+ - Experience is always a trustworthy guide; it may not tell you everything, but it never lies.
+ - You, stupid one, who believe in laws which punish murder by murder...
+ - Ever since time began the world has seemed stupid to those who aren’t stupid themselves. It was to avoid that annoyance that I became stupid myself, as fast as ever I could. Sheer egoism, no doubt.
+ - I have an object, a task, let me say the word, a passion. The profession of writing is a violent and almost indestructible one.
+ - Our work can never be better than we are ourselves.
+ - When mental sickness increases until it reaches the danger point, do not exhaust yourself by efforts to trace back to original causes. Better accept them as inevitable and save your strength to fight against the effects.
+ - Genius, whether locked up in a cell or roaming at large, is always solitary...
+ - You see what stupid folk my publishers are; but they are all alike.
+ - To be made evident, truth must be sought for; for of itself it is slow to appear, and between ourselves and God the obstacles are so many!
+ - Humanity is outraged in me and with me.
+ - No religion can be built on force.
+ - Masterpieces are only lucky attempts.
+ - No place is ugly to those who understand the virtues and sweetness of everything that God has made.
+ - One wastes so much time, one is so prodigal of life, at twenty! Our days of winter count for double. That is the compensation of the old.
+ - Nature distributes her favors unequally.
+ - No human creature can give orders to love.
+ - Talent, will and genius are natural phenomena like the lake, the volcano, the mountain, the wind, the star, the cloud.
+ - Whoever has loved knows all that life contains of sorrow and joy.
+ - When I tried to draw near, you dissolved into air before my lips could touch you...
+ - The life of great geniuses is nothing but a sublime storm.
+ - Party politics is now a real farce.
+ - Ah! that Senate is a world of ice and darkness! It votes the destruction of peoples as the simplest and wisest thing; for its members themselves are moribund.
+ - As far as I am concerned I would rather spend the rest of my life in prison than marry again.
+ - Time is always wanting to me, and I cannot meet with a single day when I am nut hurried along, driven to by wits’-end by urgent work, business to attent do or some service to render.
+ - Know how to replace in your heart, by the happiness of those you love, the happiness that may be wanting to yourself.
+ - Anything we destroy in ourselves we destroy in others. Our falls lower others and throw them down; we owe it to our fellows to keep upright, in order that they too may keep their feet.
+ - Lying, like license, has its degrees.
+ - The cigar is the perfect complement to an elegant lifestyle.
+ - Guard well within yourself that treasure, kindness. Know how to give without hesitation, how to lose without regret, how to acquire without meanness.
+ - Vanity is the most despotic and iniquitous of masters, and I can never be the slave of my own vices.
+ - Try to keep your soul young and quivering right up to old age.
+ - Immodest creature, you do not want a woman who will accept your faults, you want the one who pretends you are faultless – one who will caress the hand that strikes her and kiss the lips that lie to her.
+ - Young love needs dangers and barriers to nourish it.
+ - Humanity is outraged in me and with me. We must not dissimulate nor try to forget this indignation, which is one of the most passionate forms of love.
+ - Sex is the most respectable and holy thing in all creation, the most serious act in life.
+ - There is only one sex. A man and a woman are so entirely the same thing that one can scarcely understand the subtle reasons for sex distinctions with which our minds are filled.
+ - Butterflies are but flowers that blew away one sunny day when Nature was feeling at her most inventive and fertile.
+ - No human being can control love, and no one is to blame either for feeling it or for losing it. What alone degrades a woman is falsehood.
+ - Gossiping is the plague of little towns.
+ - There are no more thorough prudes than those who have some little secret to hide.
+ - You don’t have to write to me if you don’t feel like it. There’s no real friendship without absolute freedom.
+ - I needn’t tell you that success and failure prove nothing – the whole thing is a lottery. It’s pleasant to succeed; but for a philosophic mind it oughtn’t to be very upsetting to fail.
+ - Faith is an excitement and an enthusiasm: it is a condition of intellectual magnificence to which we must cling as to a treasure, and not squander on our way through life in the small coin of empty words, or in exact and priggish argument.
+ - A man is not a wall, whose stones are crushed upon the road; or a pipe, whose fragments are thrown away at a street corner. The fragments of an intellect are always good.
+ - Life resembles a novel more often than novels resemble life.
+ - The capacity of passion is both cruel and divine.
+ - Where love is absent there can be no woman.
+ - Discouragement seizes us only when we can no longer count on chance.
+ - There is but on virtue – the eternal sacrifice of self.
+ - The smoke of glory is not worth the smoke of a pipe.
+ - Travelling is like a novel: it’s what happens that counts.
+ - The beauty that addresses itself to the eyes is only the spell of the moment; the eye of the body is not always that of the soul.
+ - The masses are still ungrateful or ignorant. They prefer murder, poisonings, and crimes generally to a literature possessed of style and feeling.
+ - Love without reverence and enthusiasm is only friendship.
+ - If people were not wicked I should not mind their being stupid; but, to our misfortune, they are both.
+ - I see upon their noble brows the seal of the Lord, for they were born kings of the earth far more truly than those who possess it only from having bought it.
+ - The most honest of men is the one who thinks and acts best, but the most powerful is the one who writes and speaks best.
+ - Life is a succession of afflictions for the heart.
+ - The lessons of experience are always learned too late.
+ - Some say that cats are devils, but they behave badly only when they are alone. When they are among us cats are angels.
+ - Weeds are omnipresent; errors are to be found in the heart of the most lovable.
+ - And I refused to make any sacrifices; for nothing on earth seemed more valuable than my peace of mind, my pleasure and my acclaim.
+ - When they are among us cats are angels.
+ - Every historian discloses a new horizon.
+ - It is extraordinary how music sends one back into memories of the past...
+ - The more you lose the right to be jealous, the more so you become!
+ - The marriage vow is an absurdity imposed by society.
+ - One never knows how much a family may grow; and when a hive is too full, and it is necessary to form a new swarm, each one thinks of carrying away his own honey.
+ - I say, I believe, that one must love with all of one’s being...
+ - Years do not always make age.
+ - The publication of a book only brings very paltry results to its author.
+ - It is high time that we had lights that are not incendiary torches.
+ - Weakness is oftentimes so palpable as to be equivalent to wickedness.
+ - No one makes a revolution by himself.
+ - Heavens! whatever possesses us, here below, that we mutually torment ourselves, sourly reproach our mutual faults, and mercilessly condemn all that is not cut according to our pattern?
+
+134 quotes

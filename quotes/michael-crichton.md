@@ -1,0 +1,147 @@
+ - Keep working. Don’t wait for inspiration. Work inspires inspiration. Keep working.
+ - If you don’t know history, then you don’t know anything. You are a leaf that doesn’t know it is part of a tree.
+ - Life will find a way.
+ - All human behavior has a reason. All behavior is solving a problem.
+ - Social control is best managed through fear.
+ - All major changes are like death. You can’t see to the other side until you are there.
+ - Life is wonderful. It’s a gift to be alive, to see the sun and breathe the air. And there isn’t really anything else.
+ - In the information society, nobody thinks. We expect to banish paper, but we actually banish thought.
+ - Everyone has a hidden agenda. Except me!
+ - At forty, I was too old to work as a programmer myself anymore; writing code is a young person’s job.
+ - Books aren’t written – they’re rewritten. Including your own. It is one of the hardest things to accept, especially after the seventh rewrite hasn’t quite done it.
+ - Absence of proof is not proof of absence.
+ - Do you want to understand how to swim, or do you want to jump in and start swimming? Only people who are afraid of the water want to understand it. Other people jump in and get wet.
+ - Working inspires inspiration. Keep working. If you succeed, keep working. If you fail, keep working. If you are interested, keep working. If you are bored, keep working.
+ - It’s better to die laughing than to live each moment in fear.
+ - Living systems are never in equilibrium. They are inherently unstable. They may seem stable, but they’re not. Everything is moving and changing. In a sense, everything is on the edge of collapse.
+ - You can answer your own question. You already know the answer, if you can just gain access to it.
+ - The people in Hollywood are fabulously stupid.
+ - The greatest scientists in history are great precisely because they broke with the consensus. There is no such thing as consensus science. If it’s consensus, it isn’t science. If it’s science, it isn’t consensus. Period.
+ - Do you know what we call opinion in the absence of evidence? We call it prejudice.
+ - I am certain there is too much certainty in the world.
+ - The purpose of life is to stay alive. Watch any animal in nature – all it tries to do is stay alive. It doesn’t care about beliefs or philosophy. Whenever any animal’s behavior puts it out of touch with the realities of its existence, it becomes exinct.
+ - That’s human nature. Nobody does anything until it’s too late.
+ - Historically, the claim of consensus has been the first refuge of scoundrels; it is a way to avoid debate by claiming that the matter is already settled.
+ - Even if you don’t believe in God, you still have to believe in something that gives meaning to your life, and shapes your sense of the world. Such a belief is religious.
+ - Exercise invigorates the body and sharpens the mind.
+ - The characteristic human trait is not awareness but conformity, and the characteristic result is religious warfare.
+ - Nobody dares to solve the problems-because the solution might contradict your philosophy, and for most people clinging to beliefs is more important than succeeding in the world.
+ - Writing a book is a bit like going on location for a movie. You’re absent from your life, your family, and your friends. You’re psychologically gone, so you might as well be physically gone.
+ - No one escapes from life alive.
+ - Science is as corruptible a human activity as any other.
+ - Men under stress are fools, and fool themselves.
+ - Harassment is about power – the undue exercise of power by a superior over a subordinate.
+ - Cut off from direct experience, cut off from our own feelings and sometimes our own sensations, we are only too ready to adopt a viewpoint or perspective that is handed to us, and is not our own.
+ - Morality must keep up with technology because if a person is faced with the choice of being moral and dead or immoral and alive, they’ll choose life everytime.
+ - At the edge of chaos, unexpected outcomes occur. The risk to survival is severe.
+ - Although personally, I think cyberspace means the end of our species.
+ - If you gamble long enough, you’ll always lose – the gambler is always ruined.
+ - I believe my life has a value, and i don’t want to waste it thinking about clothing. I don’t want to think about what i will wear in the morning. Truly, can you imagine anything more boring than fashion?
+ - In other centuries, human beings wanted to be saved, or improved, or freed, or educated. But in our century, they want to be entertained. The great fear is not of disease or death, but of boredom. A sense of time on our hands, a sense of nothing to do. A sense that we are not amused.
+ - In a media-saturated world, persistent hype lends unwarranted credulity to the wildest claims.
+ - I think every writer should have tattooed backwards on his forehead, like ambulance on ambulances, the words ’everybody needs an editor.
+ - For our own species, evolution occurs mostly through our behavior. We innovate new behavior to adapt.
+ - In science consensus is irrelevant. What is relevant is reproducible results.
+ - One of the most difficult things for a writer in this business to accept is the uncertain fate of one’s work.
+ - Most areas of intellectual life have discovered the virtues of speculation, and have embraced them wildly. In academia, speculation is usually dignified as theory.
+ - Without question, the notion of the doctor as a legitimate fee-for-service entrepreneur, making his fortune from misfortunes of his patients, is old-fashioned, distasteful, and doomed.
+ - Consensus is invoked only in situations where the science is not solid enough.
+ - To give up responsibility for our lives is not healthy.
+ - Friendships are nice. So is competence.
+ - Science is the most exciting and sustained enterprise of discovery in the history of our species. It is the great adventure of our time. We live today in an era of discovery that far outshadows the discoveries of the New World five hundred years ago.
+ - All your life, other people will try to take your accomplishments away from you. Don’t you take it away from yourself.
+ - Readers probably haven’t heard much about it yet, but they will. Quantum technology turns ordinary reality upside down.
+ - The rules of grammar exist in large part to permit readers and writers to operate from a shared set of expectations.
+ - God creates dinosaurs, God kills dinosaurs, God creates man, man kills God, man brings back dinosaurs.
+ - The planet has survived everything, in its time. It will certainly survive us.
+ - No man is so good as to be free from all evil, nor so bad as to be worth nothing.
+ - Increasingly, the mathematics will demand the courage to face its implications.
+ - Let’s be clear. The planet is not in jeopardy. We are in jeopardy. We haven’t got the power to destroy the planet – or to save it. But we might have the power to save ourselves.
+ - We all live every day in virtual environments, defined by our ideas.
+ - We need to get environmentalism out of the sphere of religion. We need to stop the mythic fantasies, and we need to stop the doomsday predictions. We need to start doing hard science instead.
+ - He prays because he knows he doesn’t control it. He’s at the mercy of it.
+ - I can tell you that second hand smoke is not a health hazard to anyone and never was, and the EPA has always known it.
+ - They didn’t understand what they were doing. I’m afraid that will be on the tombstone of the human race.
+ - It’s not easy to cut through a human head with a hacksaw.
+ - Safety is the last refuge of the scoundrel!
+ - The extreme positions of the Crossfire Syndrome require extreme simplification – framing the debate in terms which ignore the real issues.
+ - Praise not the day until evening has come, a woman until she is burnt, a sword until it is tried, a maiden until she is married, ice until it has been crossed, beer until it has been drunk.
+ - Scientific power is like inherited wealth; attained without discipline. You read about what others have done, and you take the next step. You can do it very young. You can make progress very fast.
+ - Auschwitz exists because of politicized science.
+ - And entertainment has nothing to do with reality. Entertainment is antithetical to reality.
+ - Raising children is, in a sense, the reason the society exists in the first place. It’s the most important thing that happens, and it’s the culmination of all the tools and language and social structure that has evolved.
+ - I tended to faint when I saw accident victims in the emergency ward, during surgery, or while drawing blood.
+ - Although knowledge of how things work is sufficient to allow manipulation of nature, what humans really want to know is why things work. Children don’t ask how the sky is blue. They ask why the sky is blue.
+ - You’ve never heard of Chaos theory? Non-linear equations? Strange attractors? Ms. Sattler, I refuse to believe you’re not familiar with the concept of attraction.
+ - It’s hard to decide who’s truly brilliant; it’s easier to see who’s driven, which in the long run may be more important.
+ - There is always a cause for fear. The cause may change over time, but the fear is always with us.
+ - In the corner store we pulled fat bottles of water from the shelves. No one thinks it’s weird that we have to buy clean water, and that’s how I know we’re going to hell.
+ - Nobody smart knows what they want to do until they get into their twenties or thirties.
+ - In our modern complex world, fundamentalism is dangerous because of its rigidity and its imperviousness to other ideas.
+ - When I sit down in front of a Windows machine, I can’t write; when I sit down in front of my Mac, I can write. So I only use Macs.
+ - The system didn’t screw you. The system revealed you.
+ - Discovery, they believe, is inevitable. So they just try to do it first. That’s the game in science.
+ - Nobody is driven by abstractions like ’seeking truth.
+ - We think we know what we are doing. We have always thought so.
+ - This novel is fiction, except for the parts that aren’t.
+ - The American media produce a product of very poor quality. Its information is not reliable, it has too much chrome and glitz, its doors rattle, it breaks down almost immediately, and it’s sold without warranty. It’s flashy, but it’s basically junk.
+ - Science is the business of generating testable hypotheses.
+ - When you have a strongly held belief, don’t you think it’s important to express that belief accurately?
+ - Caring is irrelevant. Desire to do good is irrelevant. All that counts is knowledge and results.
+ - All your life people will tell you things. And most of the time, probably ninety-five percent of the time, what they’ll tell you will be wrong.
+ - The academic world was marching toward ever more specialized knowledge, expressed in ever more dense jargon.
+ - Increasingly, people perceive no difference between the narcissistic self-serving reporters asking questions, and the narcissistic self-serving politicians who evade them.
+ - False fears are a plague, a modern plague!
+ - Today, one of the most powerful religions in the Western World is environmentalism. Environmentalism seems to be the religion of choice for urban atheists.
+ - Conventional wisdom is invariably out of date. Because in the time it has taken to become conventional – to become what everyone believes – the world has moved on. Conventional wisdom is a remnant of the past.
+ - The doctor is not a miracle worker who can magically save us but, rather, an expert adviser who can assist us in our own recovery.
+ - If true computer music were ever written, it would only be listened to by other computers.
+ - They always say they didn’t. I never heard of one who said, ‘You know, I deserve this.’ Never happens.
+ - Sneaking up on it sometimes helps: I’ve found I can be very productive for an hour before dinner, because there obviously isn’t enough time to really do anything, so I can tell myself I’m just screwing around.
+ - Nobody wants to feel they’re not a rebel.
+ - The rock, for its part, is not even aware of our existence because we are alive for only a brief instant of its lifespan. To it, we are like flashes in the dark.
+ - Often I feel I go to some distant region of the world to be reminded of who I really am.
+ - You can’t get decent Mexican food in DC.
+ - Sometimes women scare the hell out of me.
+ - Extrapolating from the statistical growth of the legal profession, by the year 2035 every single person in the United States will be a lawyer, including newborn infants.
+ - Nobody believes a weather prediction twelve hours ahead. Now we’re being asked to believe a prediction that goes out 100 years into the future? And make financial investments based on that prediction? Has everybody lost their minds?
+ - To apply general tools to specific problems is to fail.
+ - A man can see by starlight, if he takes the time.
+ - Good novels are not written, they’re rewritten!
+ - The minute we look, we cease being afraid.
+ - You know, at times like this one feels, well, perhaps extinct animals should be left extinct.
+ - We cause our diseases. We are directly responsible for any illness that happens to us.
+ - Anyone who says he knows God’s intention is showing a lot of very human ego.
+ - When I get sick, I go to my doctor like everyone else. A doctor has powerful tools that may help me. Or those tools may hurt me, make me worse. I have to decide. It’s my life. It’s my responsibility.
+ - Theories are just fantasies. And they change.
+ - Power is neither male or female.
+ - One may even suspect that there is more to reality than measurements will ever reveal.
+ - Science can’t tell you why anything happens.
+ - Right now, scientists are in exactly the same position as Renaissance painters, commissioned to make the portrait the patron wants done, And if they are smart, they’ll make sure their work subtly flatters the patron. Not overtly. Subtly.
+ - We are one of only three species on our planet that can claim to be self-aware, yet self-delusion may be a more significant characteristic of our kind.
+ - Cure the symptoms, cure the disease.
+ - Geniuses never pay attention.
+ - In science, the old men are usually wrong. But in politics, the old men are wise, counsel caution, and in the end are often right.
+ - Real life isn’t a series of interconnected events occurring one after another – like beads strung on a necklace. Life is actually a series of encounters in which one event may change those that follow in a wholly unpredictable, even devastating way.
+ - I want a news service that tells me what no one knows but is true nonetheless.
+ - They don’t have intelligence. They have what I call ‘thintelligence.’ They see the immediate situation. They think narrowly and they call it ‘being focused.’ They don’t see the surround. They don’t see the consequences.
+ - Whenever you hear the consensus of scientists agrees on something or other, reach for your wallet, because you’re being had.
+ - They are focused on whether they can do something. They never think whether they should do something.
+ - This fascination with computer models is something I understand very well. Richard Feynmann called it a disease. I fear he is right.
+ - It takes enormous effort to avoid all theories and just see.
+ - Human intelligence was more trouble than it was worth. It was more destructive than creative, more confusing than revealing, more discouraging than satisfying, more spiteful than charitable.
+ - Sometimes I look around my living room, and the most real thing in the room is the television. It’s bright and vivid, and the rest of my life looks drab. So I turn the damn thing off. That does it every time. Get my life back.
+ - That is the danger we now face. And this is why the intermixing of science and politics is a bad combination, with a bad history. We must remember the history, and be certain that what we present to the world as knowledge is disinterested and honest.
+ - You are the reason why he exists on this earth. You don’t have the right to abandon him just because he’s inconvenient or has trouble in school.
+ - It is especially difficult for modern people to conceive that our modern, scientific age might not be an improvement over the prescientific period.
+ - I was raised with the idea that if you’re not smart enough to do science you can do politics.
+ - I was certain that some people, whether by accident of birth or some pecularity of training, could tune in to another source of information and could know things about people we didn’t think were possible to know.
+ - Reality is always greater – much greater – than what we know, than whatever we can say about it.
+ - Personally, I don’t deal much in theory. I have to deal with the facts. And on the basis of facts, I don’t see much difference in the behavior of men and women.
+ - I hadn’t traveled with the intention of learning about anything except myself. And the real point of all this travel was not what I had come to believe or disbelieve about the wider world, but what I had learned about myself.
+ - The nasty little apes that call themselves human beings can do nothing except run and hide.
+ - There isn’t any delusion. It is absolutely clear that this body energy is a genuine phenomenon of some kind.
+ - Like all trial attorneys, he knew the importance of not dressing too well.
+ - Expectation works in mysterious ways – and totally unconsciously.
+
+145 quotes

@@ -1,0 +1,32 @@
+ - I think, in a weird way, the reason I was drawn to screenwriting and the reason I really love doing it is because I love writing dialogue.
+ - The secret to winning a woman is calculated neglect.
+ - This is good, life must continue, we are fighting barbarians, but we must remain human.
+ - I was half asleep but I smiled. In spite of all his irritating qualities, I couldn’t help liking a man who despised a fictional character with such passion.
+ - Perhaps a hero is someone who doesn’t register his own vulnerability. Is it courage, then, if you’re too daft to know you’re mortal?
+ - She leaned forward and kissed me on the lips. He mouth was cold, her lips rough from the winter wind, and if the mystics are right and we are doomed to repeat our squalid lives ad infinitum, at least I will always return to that kiss.
+ - Truth might be stranger than fiction, but it needs a better editor.
+ - I was like a well trained pianist who knows which note to hit, but can’t make the music his own.
+ - The fire was silent, the little houses collapsing into the flames without complaint, flocks of sparks rising to the sky. At a distance it seemed beautiful, and I thought it was strange that powerful violence is often so pleasing to the eye...
+ - Contrary to popular belief, the experience of terror does not make you braver. Perhaps though, it is easier to hide your fear when you’re afraid all the time.
+ - There are a few moments in your life when you are truly and completely happy, and you remember to give thanks. Even as it happens you are nostalgic for the moment, you are tucking it away in your scrapbook.
+ - I’ve always envied people who sleep easily. Their brains must be cleaner, the floorboards of the skull well swept, all the little monsters closed up in a steamer trunk at the foot of the bed.
+ - Every adaptation requires that the screenwriter make difficult choices – and in particular, difficult cuts.
+ - Every time something bad happens, like we lose a day because of weather or an actor gets injured or anything else happens, the schedule has to change. It’s the most challenging Tetris puzzle.
+ - There’s never been a fantasy movie of the epic battle of good versus evil that ended with evil winning.
+ - I’ve never flown a kite.
+ - You don’t like the girl. You don’t know what color eyes she has, you don’t like her.
+ - I like having my own story remain my story.
+ - Once you realise that heroes die, everything becomes that much more terrifying.
+ - To shoot a decent fight, you need to cover all the different angles, and it ends up eating a lot of days.
+ - You’re a writer. Make it up.
+ - I’m just not a natural teacher.
+ - The eternal challenge for screenwriter adapters is figuring out how to make something work on screen, when so much of what made it work in the book were the thoughts of the character, and obviously wanting to avoid voiceover.
+ - And I didn’t grow up wanting to be a director. I grew up wanting to be a writer, so for me, that was always the goal – to be a novelist, not a screenwriter. And I think, again, if I didn’t have the novels, maybe I’d be much more frustrated by not having directed yet.
+ - Fiction novels, that’s my game.
+ - It is actually a lot harder to sit down and write from A to Z. But for me at least, it’s the only way I can do it, at this point, with any moderate success.
+ - A certain luxury when you get to writing a novel is to have the space to have your characters just banter.
+ - Hollywood screenwriters tend to have the longevity of NFL running backs. So the truth is no one can put more pressure on us than we put on ourselves.
+ - Everyone knew this was the episode that was going to make or break the season.
+ - With the movies, people are not going to wait around. The deadline is a deadline. In publishing it’s more a polite suggestion.
+
+30 quotes

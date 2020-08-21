@@ -1,0 +1,46 @@
+ - Keep on shining, keep on smiling, don’t lose faith, and don’t lose heart. When you’re crying, just keep trying to remind yourself, you’re a shining star, yes you are.
+ - You can’t break what’s broken already.
+ - I will love you all my life and when I die I will still love you through eternity and beyond.
+ - Commitment. Someone who’ll go the distance. I need somebody with staying power who’ll make me go weak in the knees. Commitment. And everything that goes with it. I need honor and love in my life from somebody who’s playing for keeps...
+ - Like mercy from heaven’s gate, there’s a freedom in your arms that carries me through. I need you.
+ - I believe above the storm, the smallest prayer will still be heard. I believe that someone in that great somewhere hears every word.
+ - I never, ever in my heart want to hurt anyone.
+ - I don’t care if I’m in too deep.
+ - People are so quick to judge and make decisions for themselves about situations they know absolutely nothing about.
+ - There’s no way to explain, but all the pleasure is worth all the pain.
+ - A good friend just told me that the key to a successful marriage was to argue naked! I’m gonna do that from now on, when that rarely happens.
+ - Without you, there’d be no sun in my sky, there would be no love in my life, there’d be no world left of me.
+ - My dogs are about unconditional love. It’s so wonderful to walk in the door from a long day and all they want to do is be loved and to give and give...
+ - It’s wonderful to have money. But It’s good that I know what the other side is like. I don’t take for granted what I have now.
+ - I should try to be strong, but baby, you’re the right kind of wrong.
+ - What no woman or man needs is anyone telling them they are ‘too fat’ or ‘too skinny.’ That just adds to the many stereotypes out there about a person’s weight.
+ - I believe for everyone who goes astray, someone will come to show the way.
+ - The Holy Spirit said I was blessed and was going to touch hearts everywhere.
+ - I’m not gonna apologize for who I am and what I’ve gone through.
+ - I’m living life as best I can – but I’m not exempt from failure and making bad choices.
+ - As a singer and songwriter, I have great admiration for many of the budding stars who come to try their hand at performing and can relate to the hopes and aspirations of all the contestants, no matter how good or bad.
+ - There comes a time in every life we find the heart we’re looking for.
+ - I never really had any friends my age. I’ve grown up in the adult world all my life.
+ - Janis Joplin is definitely one of my biggest influences. She taught me how to feel music, and I don’t think there’s anyone like her that could bring such pain and emotion to a song.
+ - Everyday something new pops into my mind: I could do this next or I could do that next. I want to grow more and more and show people different sides of myself, whether it’s different kinds of music, different kinds of movies, or different kinds of television.
+ - The world when I was 13 wasn’t truly driven by tabloid magazines and social media and reality shows. I was able to have a little more of a private life.
+ - Hopefully people will grow with me, because I’m definitely not going to be stuck in one place all my life.
+ - I don’t earn my money from trying to hurt people or get in the tabloids.
+ - I know you can’t go back, so I try to do all the things other teenagers do.
+ - I am constantly working out-circuit training, jumping rope, and stair-stepping, and sticking to 1200 calories a day. It can’t be something that you’re doing to lose weight, and then once you do, you’re done. I do it every day of my life.
+ - Keep your sense of self; don’t get caught up in what people want you to be.
+ - What I enjoy most about going out on stage is seeing all my fans react to my music.
+ - I think singing traditional country is wonderful, because I’m bringing it to my generation and to the younger kids.
+ - I don’t want to wake up and not truly be enjoying my life and these amazing things around me.
+ - When I first came out with Blue, everyone compared me to Patsy Cline, which is the biggest honor, ’cause I’ve always looked up to her.
+ - I need honor in my life from somebody playing for keeps.
+ - What people don’t understand is that it wasn’t about Dean or Eddie, it was about whether or not I was in the right place.
+ - I had some wonderful times in my 20s, but your 20s are hard.
+ - We definitely set out to make a great ‘radio’ record. We set out to write great hooky choruses-but with verses that said something.
+ - I needed to become something besides the star everybody had built me up to be.
+ - Reba McEntire came through town when I lived in Texas. She had this amazing theatrical show with, like, 13 different wardrobe changes. I was eight and I was like, Wow, I wanna do that!
+ - Online bullying has to stop.
+ - I need somebody with staying power who will make me go weak in the knees.
+ - Im Southern, so alligator tail is pretty interesting and yummy.
+
+44 quotes

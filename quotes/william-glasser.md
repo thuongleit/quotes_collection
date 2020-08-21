@@ -1,0 +1,50 @@
+ - The ultimate use of power is to empower others.
+ - We almost always have choices, and the better the choice, the more we will be in control of our lives.
+ - We are driven by five genetic needs: survival, love and belonging, power, freedom, and fun.
+ - Education is the process in which we discover that learning adds quality to our lives. Learning must be experienced.
+ - The day we stop playing will be the day we stop learning.
+ - It is almost impossible for anyone, even the most ineffective among us, to continue to choose misery after becoming aware that it is a choice.
+ - What we get, and all we ever get, from the outside is information; how we choose to act on this information is up to us.
+ - Caring for but never trying to own may be a further way to define friendship.
+ - Effective teaching may be the hardest job there is.
+ - We may be up against a stone wall, but we don’t have to bloody our heads against it unless we choose to.
+ - Without pay, no human being will work up to their ability if he or she is not cared for and respected.
+ - If you want to change attitudes, start with a change in behavior. In other words, begin to act the part, as well as you can, of the person you would rather be, the person you most want to become. Gradually, the old, fearful person will fade away.
+ - To counter the avoidance of intellectual challenge and responsibility, we must reduce the domination of certainty in education.
+ - What students lack in school is an intellectual relationship or conversation with the teacher.
+ - Using no control and using humor will build a relationship and make a dent to where the client puts the counselor in their quality world and then begins to relate and seek out the counselor. Effective therapy begins with the acceptance of the therapist into the client’s quality world.
+ - Unlike the weak, the strong neither give up nor are driven by pain into rash or stupid behavior. They don’t like pain any more than anyone else, but they are not willing to settle for short-term relief if it means reducing their options later. They don’t rob Peter to pay Paul, they face reality now.
+ - If everyone could learn that what is right for me does not make it right for anyone else, the world would be a much happier place.
+ - The faster you go, the more students you leave behind. It doesn’t matter how much or how fast you teach. The true measure is how much students have learned.
+ - No human being will work hard at anything unless they believe that they are working for competence.
+ - Told that the passing grade is a B or competence and that we will help you to get there, students do competent work. The lowest passing grade in the real world is competence. Why do schools accept so much less?
+ - Today much of what we call education is merely knowledge gathering and remembering. Problem solving and thinking, never strong parts of our educational system, have been downgraded in all but a few scientific subjects.
+ - We can teach a lot of things, but if the teacher can’t relate by talking to a group of friendly students, he’ll never be a competent teacher.
+ - The Compassionate Classroom is a fabulous book! If teachers will read it, they can transform their classrooms.
+ - Too many of us fail to fulfill our needs because we say no rather than yes, yes when we should say no.
+ - We can pay teachers a hundred thousand dollars a year, and we’ll do nothing to improve our schools as long as we keep the A, B, C, D, F grading system.
+ - There is plenty of competition in a Glasser Quality School in that there is winning but no losing.
+ - There are only two places in the world where time takes precedence over the job to be done. School and prison.
+ - What happened in the past that was painful has a great deal to do with what we are today, but revisiting this painful past can contribute little or nothing to what we need to do now.
+ - Good or bad, everything we do is our best choice at that moment.
+ - As long as acquiring knowledge is the educational goal of schools, educational opportunities will be limited, as they are now, to affluent families.
+ - Since there will be no one left to talk peace after the next war, it makes good sense to break with tradition and hold the peace conference first.
+ - To be depressed or neurotic is passive. It happened to us; we are its victim, and we have no control over it.
+ - They have this big book called the ‘DSM-IV,’ you know, that is supposedly written about crazy people, but I think it is a book that is written by crazy people!
+ - Every single major push in education has made it worse and right now it’s really bad because everything we’ve done is de-humanizing education. It’s destroying the possibility of the teacher and the student having a warm, friendly, intellectual relationship.
+ - In a Glasser Quality School there is no such thing as a closed book test. Students are told to get out their notes and open their books. There is no such thing as being forbidden to ask the teacher or another student for help.
+ - A friend of mine, a dedicated golfer, shot a hole in one playing by himself. Disaster.
+ - If you improve education by teaching for competence, eliminating schooling, and connecting with students, the test scores will improve.
+ - Everybody needs one essential friend.
+ - I think education is both using and improving knowledge and that changes the whole picture.
+ - The answer lies in preventing failures not in looking for better ways to fix the children who are failing.
+ - If we had in this room a hundred teachers, good teachers from good schools, and asked them to define the word education, there would be very little general agreement.
+ - This is at the heart of all good education, where the teacher asks students to think and engages them in encouraging dialogues, constantly checking for understanding and growth.
+ - When we depress, we believe we are the victims of a feeling over which we have no control.
+ - Prior to being allowed to enter the profession, prospective teachers should be asked to talk with a group of friendly students for at least half an hour and be able to engage them in an interesting conversation about any subject the prospective teacher wants to talk about.
+ - I think it is totally wrong and terribly harmful if education is defined as acquiring knowledge.
+ - We don’t focus as much in schools on educational knowledge which requires thinking and application, as we do on acquiring facts.
+ - You can acquire a lot of knowledge without ever going to school.
+ - Running a school where the students all succeed, even if some students have to help others to make the grade, is good preparation for democracy.
+
+48 quotes

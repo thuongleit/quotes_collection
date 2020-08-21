@@ -1,0 +1,41 @@
+ - Live by faith and not by fear.
+ - Temporary setbacks are overshadowed by persistence.
+ - It is our faith in Jesus Christ that sustains us at the crossroads of life’s journey.
+ - The family is the most important unit in time and in eternity and is ordained of God.
+ - Persistence is the answer, and a sense of humor helps.
+ - Immersion in the scriptures is essential for spiritual nourishment.
+ - How we preserve time for family is one of the most significant issues we face in most cultures.
+ - God’s plan provides a way for family relationships to extend beyond the grave. We can return to the presence of God, eternally united with our families.
+ - Peace is not just safety or lack of war, violence, conflict and contention. Peace comes from knowing that the Savior knows who we are, knows that we have faith in Him, love Him, and keep His commandments, even and especially amid life’s devastating trials and tragedies.
+ - Husbands and wives are equal partners. They have different but complementary responsibilities.
+ - Some build their sense of personal worth by comparing themselves to others. That approach can lead to feelings of inadequacy or superiority. It is preferable to look directly to our Father for our sense of self-worth.
+ - The family is the foundation for love and for maintaining spirituality.
+ - The answer is the Savior who is the source and author of peace.
+ - It is important to rise above rationalizations and make the best choices.
+ - Some parents place undue priority on temporal and material possessions. Some are far less diligent in their efforts to immerse their children in the gospel of Jesus Christ. Remember that having religious observance in the home is as important as providing food, clothing and shelter.
+ - We can thrive and bloom if we are rooted in our love of the Savior.
+ - Sexual immorality and impure thoughts violate the standard established by the Savior. We were warned at the beginning of this dispensation that sexual immorality would be perhaps the greatest challenge. Such conduct will, without repentance, cause a spiritual drought and loss of commitment.
+ - Act in accordance with your true beliefs by spending your time on those things that will build and develop your character and help you become more Christlike. I hope none of you see life as primarily fun and games but rather as a time ‘to prepare to meet God.’
+ - Even worthwhile endeavors need evaluation in order to determine if they have become distractions from the best goals.
+ - When we follow the Savior of the world, the Son of God, we flourish and become glorious despite the many terrible circumstances that surround us.
+ - As servants of the Lord Jesus Christ, it is our sacred responsibility to teach His standard of morality, which is the same for all of His children.
+ - Always be grateful for your blessings, especially your heritage. When we are blessed with goodly parents, we should be grateful. This is the debt each of us owes for our heritage.
+ - What does it mean to be a Saint? In the Lord’s Church, the members are Latter-day Saints, and they attempt to emulate the Savior, follow His teachings, and receive saving ordinances in order to live in the celestial kingdom with God the Father and our Savior Jesus Christ.
+ - When we choose to follow Christ in faith rather than choosing another path out of fear, we are blessed with a consequence that is consistent with our choice.
+ - And whoso is found a faithful, a just, and a wise steward shall enter into the joy of his Lord, and shall inherit eternal life.
+ - The desire of our hearts, of course, is not only to acquire salvation and immortality but also to attain eternal life with a loving Father in Heaven and our Savior in the celestial kingdom with our families. We can obtain eternal life only through obedience to the laws and ordinances of the gospel.
+ - Parents must have the courage to say no, to defend truth, and to bear powerful testimony.
+ - Remember, we without our roots and branches cannot be saved.
+ - Even with the trials of life, because of the Savior’s Atonement and his grace, righteous living will be rewarded with personal peace.
+ - As you go forth and share our core beliefs and the fruits of our doctrines, misperceptions will dissolve, prejudices will diminish, and people will come to see Latter-day Saints as devout disciples of our Lord and Savior Jesus Christ.
+ - I have felt an urgency to counsel each of us to seek the higher ground – the refuge and eternal protection of the temple.
+ - It is vitally important that our children know they are loved and safe at home.
+ - Joy comes when we have the Spirit in our lives. When we have the Spirit, we rejoice in what the Savior has done for us.
+ - The Savior accomplished the Atonement, which resolves the most terrible burdens that can occur in this life.
+ - What we are speaks so loudly that our children might not hear what we say.
+ - When our commitment is diminished for any reason, part of the solution is repentance. Commitment and repentance are closely intertwined.
+ - Some have immersed themselves in internet materials that magnify, exaggerate, and in some cases invent shortcomings of early Church leaders. Then they draw incorrect conclusions that can affect testimony. Any who have made these choices can repent and be spiritually renewed.
+ - We rejoice in all the Savior has done for us. He has made it possible for each of us to gain our salvation and exaltation.
+ - One of your greatest protections against making bad choices is to not put on any mask of anonymity.
+
+39 quotes

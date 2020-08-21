@@ -1,0 +1,25 @@
+ - There’s fire in my fingers. I burn everything I touch.
+ - You’re not supposed to have iron bars around you – no one is supposed to have that. You’re supposed to fall down hills and get lonely, and find your own food and get wet when it rains. That’s what happens when you’re alive.
+ - Let me fly, let me see things that are hidden from other eyes.
+ - My life was pouring out my feet and seeping through cracks in the floor; yet still I knelt and did not move, for fear she’d let go my hands. Let me stay, I wanted to beg: Please don’t make me go.
+ - Love is like moonlight or thunder, or rain on a tin roof in the middle of the night; it is one of those things in life that is truly worth knowing.
+ - I am dying: it’s a beautiful word. Like the long slow sigh of the cello: dying. But the sound of it is the only beautiful thing about it.
+ - I thought about how stupid it is, that all of us are born destined to desire somebody else, though desire brings with it such disappointment and pain. Humankind’s history must be scored bloody with heartbreak. This hankering for affection is a blight upon us.
+ - Yeah, reflections! The same, but different. Like twins – like blood brothers! And when you need something bad done, like punishment or revenge, you’ll just ask me, and I will do it -.
+ - I suppose that’s what happens when you make other people’s lives miserable: life gets miserable back at you.
+ - Words on the page are never prisoners of the page.
+ - I would always be lonely, but no more alone.
+ - It is scary, sometimes, Tomas admitted. But the scary bits are what make you brave.
+ - Affection makes fools. Always, without exception, love digs a channel that’s sooner or later flooded by the briny water of despair.
+ - Life is lived on the inside. What’s outside doesn’t matter.
+ - Nothing was easy, and sometimes she failed, and sometimes she thought that the fairy stories were right, that there must indeed be easier ways of living happily ever after; but defeat is a poor ending to any tale, so she kept trying.
+ - A small town is nothing but eyes and gaping maw; it pecks at its own like a flock of vicious birds.
+ - She doesn’t understand that doors, walls, fences, ceilings – they’re helpless to keep out what determinedly desires to get in.
+ - More than this, I believe that the only lastingly important form of writing is writing for children. It is writing that is carried in the reader’s heart for a lifetime; it is writing that speaks to the future.
+ - A small town has as many eyes as a fly.
+ - Strange how love coexists with hate, how they render eachother mute, how the swilling of them together makes a new and softer, sympathetic thing.
+ - There is nothing that is more beautiful than everything else in the world.
+ - How does one craft happiness out of something as important, as complicated, as unrepeatable and as easily damaged as life?
+ - Every atom in me feels composed of lead. This is what dying is: a pull to the ground.
+
+23 quotes

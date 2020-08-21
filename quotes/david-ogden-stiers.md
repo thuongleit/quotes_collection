@@ -1,0 +1,29 @@
+ - Writing is hard work. Generating stories that catch people’s attention and holding it are very difficult.
+ - Family means no one gets left behind or forgotten.
+ - It’s really important to stay engaged and involved in the character.
+ - My father, who died a few years ago, was a good, simple, very honest man. His faith and affection for his family was just unassailable, without question.
+ - I’d forgotten I’d done the anime called Spirited Away, the English version of a Japanese film.
+ - I am certainly not a mainstream religious man.
+ - I love pulling people into concert halls who might not otherwise go and getting their ears tuned.
+ - We lament the speed of our society and the lack of depth and the nature of disposable information.
+ - Kids now are so used to surround sound and the power in theater speakers, that the concert hall is a disappointment to them.
+ - What we have to get clear to kids is that when you offer your stillness and open yourself to the experience of music, it pays you back more than you give.
+ - People are nice enough, but you can hear the giant tick of the second hand. People are so harried.
+ - A lot affects the outcome. It boils down to scheduling and the commitment of the network.
+ - I’ve played Lear three times, I would love to do it again.
+ - Every time I hear, Cut. Print, something cold and electrical goes off in my head, because I’m never going to change that film.
+ - Very often when I go in to meet for movies or pilots, I’m put on videotape. I hate the notion that that tape is going to sit on a shelf and never get better.
+ - Very often, I don’t make it through moments of recording because it is genuinely funny and absolutely ridiculous that a 60-year-old grown man is making these noises.
+ - I will never master this craft. Orchestras are very, very forthcoming with me.
+ - It’s rare to be treated like a friend you haven’t met in a Hollywood meeting.
+ - When something really extreme happens, you have to find a way to embrace that and include it in how you think about the character. Sometimes it’s not easy.
+ - You hear the same work by different orchestras, different conductors, violinists, pianists, singers, and slowly, the work reveals itself and begins to live deeper in you.
+ - There are a couple of roles I haven’t played that I want to. I would love to play Shiloh.
+ - In television you go in with this operating system that it is a crapshoot.
+ - I had a meeting in LA in which they took a really overstuffed hour and a half. It was as close to old Hollywood as I remembered it in the last 20 years.
+ - I am not a long-run actor. I admire actors who can do that.
+ - If it’s right and true, it’s listened to and accommodated.
+ - Because I don’t take money, I’ll go anywhere and do a benefit concert with almost any orchestra.
+ - Something happens to us all when we experience something as a unit that doesn’t occur when we’re on our couches or holding our little portable DVD players.
+
+27 quotes

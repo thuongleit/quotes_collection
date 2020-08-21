@@ -1,0 +1,35 @@
+ - I’m an old-school guy.
+ - I don’t worry about things I can’t control.
+ - I’ve been dealing with being overlooked my whole life.
+ - I think about my family first. I want my family to not want for anything. I would like to make sure they have no worries.
+ - I think every year you have something to prove.
+ - I think the Patriots actually live by the saying, ‘If you’re not cheating, you’re not trying.’
+ - I get stronger as the game goes on.
+ - I run with heart and determination, and that’s what you can’t measure-heart.
+ - I believe in working hard all the time. I have faith that working hard is going to get me where I want to go.
+ - Everything speeds up and it’s blurry for a minute. But you’ve got to have a little patience sometimes to just find a soft spot. There’s always a soft spot in the defense, and it’s your job to find it.
+ - Some people say I’m the best back in the NFL. That’s what drives you: You want everyone saying there’s no doubt who’s the best.
+ - Faith is a strong word in my life. That’s one thing my mother has always stressed to me.
+ - I want to have a family and teach them the way to live their lives, pretty much the way I was raised, with a lot of love and the Lord. I want them to stay off the streets, and to have goals and dreams.
+ - You don’t have the same type of focus when you are undefeated.
+ - You’ve got to earn respect as life goes on.
+ - I am just a player trying to do what Im told.
+ - God has really blessed me with the ability to put me ahead of the class.
+ - I want to win a championship. I can’t come on this team and demand to be a starter.
+ - Whenever something good happens to me, I try-it may sound kind of bad-to think a little negative. I just always try to keep myself grounded.
+ - I’ve still got a lot left in the tank. I think people are starting to see I’ve got a lot left in the tank.
+ - I’m passionate about the game of football.
+ - I’m inspired by my family, especially my mother.
+ - Rex brings out the macho talk and tells everyone this is what we’re going to be and what we’re going to do. And you see what happened. The players did it. It worked.
+ - In the NFL, everyone’s attacking, so you have to be quicker in your decisions.
+ - With my size and speed, my ability to make moves and great vision, I’m sometimes feel like it’s an unfair advantage over the defense.
+ - I like to think of myself as the running LT. I like to run up the middle and wear defenses down. It’s more exciting in between the tackles.
+ - I take being a role model seriously.
+ - I knew I had to go out and perform. I had a lot of fans watching!
+ - I know how to rebuild a team. I know how to step in and work hard.
+ - I would love to spend my whole career in Scan Diego because I accept the challenge of turning this team around.
+ - I have to fit in. Wherever they want to use me, that’s fine.
+ - I’m going to make the playoffs. You can believe that. To never play in the playoffs, that will not be my legacy.
+ - I keep my eyes wide open. Because trouble is out there.
+
+33 quotes

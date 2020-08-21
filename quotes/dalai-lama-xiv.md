@@ -1,0 +1,502 @@
+ - The goal is not to be better than the other man, but your previous self.
+ - Do not let the behavior of others destroy your inner peace.
+ - Choose to be optimistic, it feels better.
+ - Know the rules well, so you can break them effectively.
+ - If you think you are too small to make a difference, try sleeping with a mosquito.
+ - Be kind whenever possible. It is always possible.
+ - The true hero is one who conquers his own anger and hatred.
+ - Give the ones you love wings to fly, roots to come back and reasons to stay.
+ - Sleep is the best meditation.
+ - Happiness is not something ready made. It comes from your own actions.
+ - Share your knowledge. It is a way to achieve immortality.
+ - Judge your success by what you had to give up in order to get it.
+ - Our prime purpose in this life is to help others. And if you can’t help them, at least don’t hurt them.
+ - Love is the absence of judgment.
+ - An open heart is an open mind.
+ - A disciplined mind leads to happiness, and an undisciplined mind leads to suffering.
+ - I defeat my enemies when I make them my friends.
+ - We can never obtain peace in the outer world until we make peace with ourselves.
+ - If a problem can be solved it will be. If it can not be solved there is no use worrying about it.
+ - The very purpose of our life is to seek happiness.
+ - There are only two days in the year that nothing can be done. One is called Yesterday and the other is called Tomorrow. Today is the right day to Love, Believe, Do and mostly Live.
+ - If you want others to be happy, practice compassion. If you want to be happy, practice compassion.
+ - Compassion is the wish to see others free from suffering.
+ - Remember that the best relationship is one in which your love for each other exceeds your need for each other.
+ - When you talk you are only repeating something you already know. But, if you listen you may learn something new.
+ - Happiness is determined more by one's state of mind than by external events.
+ - Love and compassion are necessities, not luxuries. Without them, humanity cannot survive.
+ - A good friend who points out mistakes and imperfections and rebukes evil is to be respected as if he reveals the secret of some hidden treasure.
+ - My religion is kindness.
+ - Happiness mainly comes from our own attitude, rather than from external factors.
+ - Nothing is permanent.
+ - Only the development of compassion and understanding for others can bring us the tranquility and happiness we all seek.
+ - Just one small positive thought in the morning can change your whole day.
+ - Remember that sometimes not getting what you want is a wonderful stroke of luck.
+ - Silence is sometimes the best answer.
+ - Don’t ever mistake my silence for ignorance, my calmness for acceptance or my kindness for weakness. Compassion and tolerance are not a sign of weakness, but a sign of strength.
+ - Follow the three R’s: – Respect for self. – Respect for others. – Responsibility for all your actions.
+ - If you can cultivate the right attitude, your enemies are your best spiritual teachers because their presence provides you with the opportunity to enhance and develop tolerance, patience and understanding.
+ - People take different roads seeking fulfillment and happiness. Just because they’re not on your road doesn’t mean they’ve gotten lost.
+ - When you lose, don’t lose the lesson.
+ - True change is within. Leave the outside as it is.
+ - If there is no solution to the problem then don’t waste time worrying about it. If there is a solution to the problem then don’t waste time worrying about it.
+ - Old friends pass away, new friends appear. It is just like the days. An old day passes, a new day arrives. The important thing is to make it meaningful: a meaningful friend – or a meaningful day.
+ - Once a year go somewhere you have never been before.
+ - When you realize you’ve made a mistake, take immediate steps to correct it.
+ - Open your arms to change but don’t let go of your values.
+ - Take into account that great love and great achievements involve great risk.
+ - When we meet real tragedy in life, we can react in two ways – either by losing hope and falling into self-destructive habits, or by using the challenge to find our inner strength.
+ - Determination, with an optimistic attitude is the key to success.
+ - This is my simple religion. No need for temples. No need for complicated philosophy. Your own mind, your own heart is the temple. Your philosophy is simple kindness.
+ - A heart full of love and compassion is the main source of inner strength, willpower, happiness, and mental tranquility.
+ - There is a saying in Tibetan, ‘Tragedy should be utilized as a source of strength.’ No matter what sort of difficulties, how painful experience is, if we lose our hope, that’s our real disaster.
+ - All suffering is caused by ignorance. People inflict pain on others in the selfish pursuit of their own happiness or satisfaction.
+ - Peace does not mean an absence of conflicts; differences will always be there. Peace means solving these differences through peaceful means; through dialogue, education, knowledge; and through humane ways.
+ - We are visitors on this planet. We are here for one hundred years at the very most. During that period we must try to do something good, something useful, with our lives. if you contribute to other people’s happiness, you will find the true meaning of life.
+ - In the practice of tolerance, one’s enemy is the best teacher.
+ - It’s not enough to be compassionate. You must act.
+ - The past is past, and the future is yet to come. That means the future is in your hands – the future entirely depends on the present. That realization gives you a great responsibility.
+ - Smile if you want a smile from another face.
+ - Because we all share this planet earth, we have to learn to live in harmony and peace with each other and with nature. This is not just a dream, but a necessity.
+ - You need self-confidence and determination: feeling depressed and losing hope will never really help to correct any situation.
+ - I find hope in the darkest of days, and focus in the brightest. I do not judge the universe.
+ - Compassion and tolerance are not a sign of weakness, but a sign of strength.
+ - Look at situations from all angles, and you will become more open.
+ - In order to carry a positive action we must develop here a positive vision.
+ - Change only takes place through action, not through meditation and prayer.
+ - If a problem is fixable, if a situation is such that you can do something about it, then there is no need to worry. If it’s not fixable, then there is no help in worrying. There is no benefit in worrying whatsoever.
+ - A truly compassionate attitude toward others does not change even if they behave negatively or hurt you.
+ - If you have fear of some pain or suffering, you should examine whether there is anything you can do about it. If you can, there is no need to worry about it; if you cannot do anything, then there is also no need to worry.
+ - According to Buddhist psychology most of our troubles stem from attachment to things that we mistakenly see as permanent.
+ - Hard times build determination and inner strength. Through them we can also come to appreciate the uselessness of anger.
+ - It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others.
+ - Compassion is the radicalism of our time.
+ - Spend some time alone every day.
+ - The way to overcome negative thoughts and destructive emotions is to develop opposing, positive emotions that are stronger and more powerful.
+ - Generosity is the most natural outward expression of an inner attitude of compassion and loving-kindness .
+ - World peace must develop from inner peace. Peace is not just mere absence of violence. Peace is, I think, the manifestation of human compassion.
+ - If you want to be wisely selfish, care for others.
+ - By setting our motivation strongly in the morning when our mind is fresh and clear, we are much more likely to remember it during the day and act with that intention.
+ - Love and Compassion are the true religions to me. But to develop this, we do not need to believe in any religion.
+ - A thousand candles can be lit from one candle, however the life of the original candle is not shortened in the least.
+ - Overcoming negative tendencies and enhancing positive potential are the very essence of the spiritual path.
+ - If someone has a gun and is trying to kill you, it would be reasonable to shoot back with your own gun.
+ - The most important thing is to have a sense of responsibility, commitment, and concern for each of our fellow human beings.
+ - Tragedy should be utilized as a source of strength.
+ - In our concern for others, we worry less about ourselves.
+ - When we are motivated by compassion and wisdom, the results of our actions benefit everyone, not just our individual selves or some immediate convenience. When we are able to recognize and forgive ignorant actions of the past, we gain strength to constructively solve the problems of the present.
+ - The creatures that inhabit this earth – be they human beings or animals – are here to contribute, each in its own particular way, to the beauty and prosperity of the world.
+ - If one assumes a humble attitude, one’s own good qualities will increase. Whereas if one is proud, one will become jealous of others, one will look down on others, and due to that there will be unhappiness in society.
+ - The essence of all religions is love, compassion and tolerance. Kindness is my true religion. No matter whether you are learned or not, whether you believe in the next life or not, whether you believe in God or Buddha or some other religion or not, in day-to-day life you must be a kind person.
+ - Anger may bring extra energy, but it eclipses the best part of our brain: its rationality. The energy of anger is almost always unreliable.
+ - Like the lotus which thrives in mud, the potential for realization grows in the rich soil of everyday life.
+ - With genuine love and compassion, another person’s appearance or behavior has no affect on your attitude.
+ - Attachment constrains our vision so that we are not able to see things from a wider perspective.
+ - True enlightenment is nothing but the nature of one’s own self being fully realized.
+ - Irrespective of whether we are believers or agnostics, whether we believe in God or karma, moral ethics is a code which everyone is able to pursue.
+ - The purpose of all the major religious traditions is not to construct big temples on the outside, but to create temples of goodness and compassion inside, in our hearts.
+ - We can live without religion and meditation, but we cannot survive without human affection.
+ - If scientific analysis were conclusively to demonstrate certain claims in Buddhism to be false, then we must accept the findings of science and abandon those claims.
+ - Dangerous consequences will follow when politicians and rulers forget moral principles. Whether we believe in God or karma, ethics is the foundation of every religion.
+ - The planet does not need more successful people. The planet desperately needs more peacemakers, healers, restorers, storytellers, and lovers of all kinds.
+ - A lack of transparency results in distrust and a deep sense of insecurity.
+ - Never give up. No matter what is happening, no matter what is going on around you, never give up.
+ - Man sacrifices his health in order to make money. Then he sacrifices money to recuperate his health.
+ - Everyday, think as you wake up, today I am fortunate to be alive, I have a precious human life, I am not going to waste it.
+ - If it can be solved, there’s no need to worry, and if it can’t be solved, worry is of no use.
+ - Happiness is the highest form of health.
+ - The world will be saved by the western woman.
+ - What is the meaning of life? To be happy and useful.
+ - Calm mind brings inner strength and self-confidence, so that’s very important for good health.
+ - When educating the minds of our youth, we must not forget to educate their hearts.
+ - Just as ripples spread out when a single pebble is dropped into water, the actions of individuals can have far-reaching effects.
+ - Do something that scares you every day. You have nothing to lose but fear itself.
+ - Anything that contradicts experience and logic should be abandoned.
+ - If every 8 year old in the world is taught meditation, we will eliminate violence from the world within one generation.
+ - Mutual respect is the foundation of genuine harmony.
+ - Today, as we wish each other a Happy New Year, let us determine to be more sincere, compassionate, warm-hearted human beings, trying to make our world a more equal place. That way we’ll actually make it a happy year.
+ - With realization of one’s own potential and self-confidence in one’s ability, one can build a better world.
+ - The essence of all religions is love, compassion, and tolerance. Kindness is my true religion. The clear proof of a person’s love of God is if that person genuinely shows love to fellow human beings.
+ - The root of happiness is altruism – the wish to be of service to others.
+ - You’re happy when you help others become happy.
+ - I believe in justice and truth, without which there would be no basis for human hope.
+ - I’d rather be kind than right. You can always be kind.
+ - The nature of our motivation determines the character of our work.
+ - Everything you do has some effect, some impact.
+ - If you wish to experience peace, provide peace for another.
+ - See the positive side, the potential, and make an effort.
+ - Without technology humanity has no future, but we have to be careful that we don’t become so mechanised that we lose our human feelings.
+ - If we have a positive mental attitude, then even when surrounded by hostility, we shall not lack inner peace.
+ - The challenge today is to convince people of the value of truth, honesty, compassion and a concern for others.
+ - When our mind is calm, we’re better able to find peace of mind and live a joyful life.
+ - Values are related to our emotions, just as we practice physical hygiene to preserve our physical health, we need to observe emotional hygiene to preserve a healthy mind and attitudes.
+ - The very purpose of religion is to control yourself, not to criticise others.
+ - Altruism is the best source of happiness. There is no doubt about that.
+ - It is worth remembering that the time of greatest gain in terms of wisdom and inner strength is often that of greatest difficulty.
+ - A tree with strong roots can withstand the most violent storm, but the tree can’t grow roots just as the storm appears on the horizon.
+ - Time passes unhindered. When we make mistakes, we cannot turn the clock back and try again. All we can do is use the present well.
+ - A loving atmosphere in your home is the foundation for your life.
+ - The period of greatest gain in knowledge and experience is the most difficult period in one’s life.
+ - Kindness is the key to peace and harmony in family life.
+ - If you can do something about a situation, why worry? And if you can’t do something about a situation, why worry?
+ - Mental happiness is more important than physical comfort. Physical comfort comes from the material. But material facilities cannot provide you with peace of mind.
+ - The universe is a single atom: the convergence of science and spirituality.
+ - To remain indifferent to the challenges we face is indefensible. If the goal is noble, whether or not it is realized within our lifetime is largely irrelevant. What we must do therefore is to strive and persevere and never give up.
+ - The whole purpose of religion is to facilitate love and compassion, patience, tolerance, humility, and forgiveness.
+ - You are so anxious about the future that you do not enjoy the present. You therefore do not live in the present or the future. You live as if you are never going to die, and then die having never really lived.
+ - Don’t let a little dispute injure a great relationship.
+ - Where ignorance is our master, there is no possibility of real peace.
+ - A zero itself is nothing, but without a zero you cannot count anything; therefore, a zero is something, yet zero.
+ - It is lack of love for ourselves that inhibits our compassion toward others. If we make friends with ourselves, then there is no obstacle to opening our hearts and minds to others.
+ - Anger is the ultimate destroyer of your own peace of mind.
+ - Always embrace the common humanity that lies at the heart of us all.
+ - Life is as dear to a mute creature as it is to man. Just as one wants happiness and fears pain, just as one wants to live and not die, so do other creatures.
+ - Learning to forgive is much more useful than merely picking up a stone and throwing it at the object of one’s anger, the more so when the provocation is extreme. For it is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others.
+ - As you breathe in, cherish yourself. As you breathe out, cherish all Beings.
+ - The only way to fail is to quit.
+ - Peace is the Only Way for the survival of Humanity.
+ - A positive state of mind is not merely good for you, it benefits everyone with whom you come into contact, literally changing the world.
+ - In dealing with those who are undergoing great suffering, if you feel “burnout” setting in, if you feel demoralized and exhausted, it is best, for the sake of everyone, to withdraw and restore yourself. The point is to have a long-term perspective.
+ - Sometimes one creates a dynamic impression by saying something, and sometimes one creates as significant an impression by remaining silent.
+ - If science proves some belief of Buddhism wrong, then Buddhism will have to change.
+ - Without freedom, creativity cannot flourish. The right to freedom is crucial to progress in any society; and the context is having a sense of global responsibility.
+ - Most of our troubles are due to our passionate desire for and attachment to things that we misapprehend as enduring entities.
+ - Don’t compare me with Jesus. He is a great master, a great master...
+ - There is soul music, soul food, and soul love...
+ - Pain can change you, but that doesn’t mean it has to be a bad change. Take that pain and turn it into wisdom.
+ - When you are warm-hearted, there is no room for anger, jealousy or insecurity.
+ - We share the earth not only with our fellow human beings, but with all the other creatures.
+ - Don’t use Buddhism to become a Buddhist. Use Buddhism to become better at whatever else in your life you are doing already.
+ - It is our collective and individual responsibility to preserve and tend to the environment in which we all live.
+ - Death means change our clothes. Clothes become old, then time to come change. So this body become old, and then time come, take young body.
+ - The purpose of our lives is to be happy. We live in hope, which means looking forward to something good. And there are increasing scientific findings that both our physical and mental well-being depend on our peace of mind.
+ - The enemy is a very good teacher.
+ - The key point is kindness. With kindness one will have inner peace. Through inner peace, world peace can one day be a reality.
+ - Education is the way to achieve far-reaching results, it is the proper way to promote compassion and tolerance in society.
+ - Peace can only last where human rights are respected, where the people are fed, and where individuals and nations are free. True peace with oneself and with the world around us can only be achieved through the development of mental peace.
+ - Peace? starts within each one of us. When we have inner peace, we can be at peace with those around us.
+ - Anger is the real destroyer of our good human qualities; an enemy with a weapon cannot destroy these qualities, but anger can. Anger is our real enemy.
+ - Compassion, forgiveness, these are the real, ultimate sources of power for peace and success in life.
+ - There is nothing I can’t live without. I learned this attitude when I was a child.
+ - A generous heart and wholesome actions lead to greater peace.
+ - One of the most effective ways to overcome anxiety is to try to shift the focus of attention away from self and toward others.
+ - Human potential is the same for all. If you have will power, then you can change anything.
+ - As people alive today, we must consider future generations: a clean environment is a human right like any other. It is therefore part of our responsibility toward others to ensure that the world we pass on is as healthy, if not healthier, than we found it.
+ - Anger, jealousy, impatience, and hatred are the real troublemakers, with them problems cannot be solved.
+ - If you are honest, truthful, and transparent, people trust you. If people trust you, you have no grounds for fear, suspicion or jealousy.
+ - The colors of light are infinite through refraction, yet they all come from the same source. Thus I cannot detach myself from the wickedest soul, nor fail to identify with the most virtuous.
+ - When we feel love and kindness toward others, it not only makes others feel loved and cared for, but it helps us also to develop inner happiness and peace.
+ - The ultimate source of my mental happiness is my peace of mind. Nothing can destroy this except my own anger.
+ - The only clear thing is that we humans are the only species with the power to destroy the earth as we know it. The birds have no such power, nor do the insects, nor does any mammal. Yet if we have the capacity to destroy the earth, so, too, do we have the capacity to protect it.
+ - Women have the capacity to lead us to a more peaceful world with compassion, affection, and kindness.
+ - Ultimately, the decision to save the environment must come from the human heart. The key point is a call for a genuine sense of universal responsibility that is based on love, compassion and clear awareness.
+ - For material progress and physical well being, peace of mind is of utmost importance.
+ - Happiness doesn’t always come from a pursuit. Sometimes it comes when we least expect it.
+ - For change to happen in any community, the initiative must come from the individual.
+ - A truly peaceful mind is very sensitive, very aware.
+ - We can change society, change humanity by changing ourselves as individuals. By cultivating inner values, we can change our own lives and those of our families. This is how we can create a more peaceful world.
+ - I am open to the guidance of synchronicity, and do not let expectations hinder my path.
+ - Our purpose in life is to be happy. From the very core of our being, we simply desire contentment.
+ - All beings want to live in peace and happiness, undisturbed. Therefore the concept of human rights is universal.
+ - Just as compassion is the wish that all sentient beings be free of suffering, loving-kindness is the wish that all may enjoy happiness.
+ - Even a small act of compassion grants meaning and purpose to our lives.
+ - You must not procrastinate. Rather, you should make preparations so that even if you did die tonight, you would have no regrets. If you develop an appreciation for the uncertainty and imminence of death, your sense of the importance of using your time wisely will get stronger and stronger.
+ - It is natural that we face obstacles in pursuit of our goals. But if we remain passive, making no effort to solve the problems we meet, conflicts will arise and hindrances will grow. Transforming these obstacles into opportunities is a challenge to our human ingenuity.
+ - The greater the level of calmness of our mind, the greater our peace of mind, the greater our ability to enjoy a happy and joyful life.
+ - Helping others is not limited to providing food, shelter, and so forth, but includes relieving the basic causes of suffering and providing the basic causes of happiness.
+ - In the Buddha’s life story we see the three stages of practice: Morality comes first, then concentrated meditation, and then wisdom. And we see that the path takes time.
+ - The message of love and compassion will travel far and wide if all who follow a spiritual path work together in harmony and mutual respect.
+ - Happiness is a state of mind. With physical comforts if your mind is still in a state of confusion and agitation, it is not happiness. Happiness means calmness of mind.
+ - Once your mind is calm and full of love, there is no room for hatred or fear. Others will trust you because of your open heart.
+ - The jealousy that arises from another’s achievement is overcome by developing an awareness of and admiration for one’s own and other’s achievement.
+ - Human potential is the same for all. Your feeling, “I am of no value”, is wrong. Absolutely wrong. You are deceiving yourself. We all have the power of thought- so what are you lacking? If you have willpower, then you can change anything. It is usually said that you are your own master.
+ - Happiness comes through taming the mind; without taming the mind there is no way to be happy.
+ - If we wish to ensure everyone’s peace and happiness we need to cultivate a healthy respect for the diversity of our peoples and cultures, founded on an understanding of this fundamental sameness of all human beings.
+ - I believe all religions pursue the same goals, that of cultivating human goodness and bringing happiness to all human beings. Though the means may appear different, the ends are the same.
+ - All human beings have an innate desire to overcome suffering, to find happiness. Training the mind to think differently, through meditation, is one important way to avoid suffering and be happy.
+ - If there is a solution to a problem, there is no need to worry. And if there is no solution, there is no need to worry.
+ - Friends, genuine friends, are attracted by a warm heart, not money, not power. A genuine friend considers you as just another human being, as a brother or sister, and shows affection on that level, regardless of whether you are rich or poor, or in a high position; that is a genuine friend.
+ - We need to take action to develop compassion, to create inner peace within ourselves and to share that inner peace with our family and friends. Peace and warm-heartednes s can then spread through the community just as ripples radiate out across the water when you drop a pebble into a pond.
+ - Ignorance is the source of hatred, and the way to get rid of ignorance is realization.
+ - I believe that constant effort, tireless effort, pursuing clear goals with sincere effort is the only way.
+ - War is out of date, obsolete.
+ - I believe compassion to be one of the few things we can practice that will bring immediate and long-term happiness to our lives.
+ - Humans are not machines-we are something more. We have feeling and experience. Material comforts are not sufficient to satisfy us. We need something deeper-human affection.
+ - Be a good human being, a warm-hearted affectionate person. That is my fundamental belief. Having a sense of caring, a feeling of compassion will bring happiness of peace of mind to oneself and automatically create a positive atmosphere.
+ - It does not matter whether you are a theist or atheist, what matters is sincerity, forgiveness, and compassion.
+ - Hatred, jealousy, and fear hinder peace of mind. When you’re angry or unforgiving, for example, your mental suffering is constant. It is better to forgive than to spoil your peace of mind with ill feelings.
+ - True friendship develops not as a result of money or power but on the basis of genuine human affection.
+ - Conservation is not merely a question of morality, but a question of our own survival.
+ - To be aware of a single shortcoming in oneself is more useful than to be aware of a thousand in someone else.
+ - We need to learn how to want what we have NOT to have what we want in order to get steady and stable Happiness.
+ - To seek solitude like a wild animal. That is my only ambition.
+ - To conquer oneself is a greater victory than to conquer thousands in a battle.
+ - The more we care for the happiness of others, the greater is our own sense of well-being.
+ - More often than not, anger is actually an indication of weakness rather than of strength.
+ - If you are showing love to your fellow human beings, you are showing love to your God.
+ - Genuine happiness consists in those spiritual qualities of love, compassion, patience, tolerance and forgiveness and so on. For it is these which provide both for our happiness and others happiness.
+ - Ultimately, the human being is in the mercy of nature.
+ - In order to be happy we must first possess inner contentment; and inner contentment doesn’t come from having all we want; but rather from wanting and appreciating being grateful for all we have.
+ - Awareness of death is the very bedrock of the entire path. Until you have developed this awareness, all other practices are obstructed.
+ - Without the human community one single human being cannot survive.
+ - When we have inner peace, we can be at peace with those around us. When our community is in a state of peace, it can share that peace with neighboring communities.
+ - Better grounded emotionally through patience, we become stronger mentally and spiritually, and tend to be healthier physically.
+ - Disagreement is something normal.
+ - We are the creators of our own happiness and suffering, for everything originates in the mind.
+ - I believe that the very purpose of life is to be happy. From the very core of our being, we desire contentment. In my own limited experience I have found that the more we care for the happiness of others, the greater is our own sense of well-being.
+ - Try to remain truthful. The power of truth never declines. Force and violence may be effective in the short term, but in the long run it’s truth that prevails.
+ - Our life depends on others so much that at the root of our existence is a fundamental need for love. That is why it is good to cultivate an authentic sense of responsibility and concern for the welfare of others.
+ - There should be a balance between material and spiritual progress, a balance achieved through the principles based on love and compassion.
+ - A balanced and skillful approach to life, taking care to avoid extremes, becomes a very important factor in conducting one’s everyday existence.
+ - Love and compassion are the pillars of world peace.
+ - If you shift your focus from yourself to others, extend your concern to others, and cultivate the thought of caring for the well being of others, then this will have the immediate effect of opening up your life and helping you to reach out.
+ - Be gentle with the earth.
+ - The best way to resolve any problem in the human world is for all sides to sit down and talk.
+ - Most REAL change is slow. Happiness and joy are the purpose of life. If we know that the future will be very dark or painful, then we lose our determination to live. Therefore, life is something based on hope.
+ - Appreciate how rare and full of potential your situation is in this world, then take joy in it, and use it to your best advantage.
+ - Someone else’s action should not determine your response.
+ - I believe the very purpose of our life is to seek happiness. Whether one believes in religion or not, whether one believes in that religion or this religion, we are all seeking something better in life. So, I think, the very motion of our life is towards happiness...
+ - Compassion suits our physical condition, whereas anger, fear and distrust are harmful to our well-being. Therefore, just as we learn the importance of physical hygiene to physical health, to ensure healthy minds, we need to learn some kind of emotional hygiene.
+ - We don’t need more money, we don’t need greater success or fame, we don’t need the perfect body or even the perfect mate-right now, at this very moment, we have a mind, which is all the basic equipment we need to achieve complete happiness.
+ - The real destroyer of inner peace is fear and distrust. Fear develops frustration, frustration develops anger, anger develops violence.
+ - My message is always the same: to cultivate and practice love, kindness, compassion and tolerance.
+ - My overriding belief is that it is always possible for criminals to improve and that by its very finality the death penalty contradicts this.
+ - We all have the potential to be better than we are.
+ - You have to start giving first and expect absolutely nothing.
+ - It’s unrealistic to think that the future of humanity can be achieved only on the basis of prayer; what we need is to take action.
+ - Don’t become a Buddhist. The world doesn’t need Buddhist. Do practice Compassion. The world needs more compassion.
+ - If you help and serve others, you will ultimately gain.
+ - Always engage yourself positively with situations.
+ - I do not understand men. They spend their lives to use their health to make money and then they spend their money to restore their health.
+ - People assume that happiness stems from collecting things outside of yourself, whereas true happiness stems from removing things from inside of yourself.
+ - Infinite altruism is the basis of peace and happiness. If you want altruism, you must control hate and you must practice patience. The main teachers of patience are our enemies.
+ - Each individual has a universal responsibility to shape institutions to serve human needs.
+ - Kindness and a good heart are the foundation for success in this life, progress on the spiritual path, and the fulfillment of our aspirations. Our need for them is not limited to any specific time, place, society, or culture.
+ - The most compassionate form of giving is done with no thought or expectation of reward, and grounded in genuine concern for others.
+ - Under no circumstances should you lose hope.
+ - Because of lack of moral principle, human life becomes worthless. Moral principle, truthfulness, is a key factor. If we lose that, then there is no future.
+ - Constructiveness is the human way.
+ - Feelings of anger, bitterness, and hate are negative. If I kept those inside me, they would spoil my body and my health. The are of no use.
+ - Our enemies provide us with a precious opportunity to practice patience and love. We should have gratitude toward them.
+ - I think technology really increased human ability, but technology cannot produce compassion.
+ - We must each lead a way of life with self-awareness and compassion, to do as much as we can. Then, whatever happens we will have no regrets.
+ - My message is the practice of compassion, love and kindness.
+ - I believe deeply that we must find, all of us together, a new spirituality.
+ - In Buddhism, ignorance as the root cause of suffering refers to a fundamental misperception of the true nature of the self and all phenomena.
+ - As our own peace of mind grows, so the atmosphere around us becomes more peaceful.
+ - Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes.
+ - In disagreements with loved ones, deal only with the current situation. Don’t bring up the past.
+ - People need to climb the mountain not simple because it is there But because the soulful divinity needs to be mated with the spirit.
+ - Freedom is the real source of human happiness and creativity. Irrespective of whether you are a believer or nonbeliever, whether Buddhist, Christian, or Jew, the important thing is to be a good human being.
+ - The essence of compassion is a desire to alleviate the suffering of others and to promote their well-being.
+ - Limitless like the ocean are your excellent qualities.
+ - Happiness in simplicity can be achieved with a flexible mindset and nine hours sleep each night.
+ - Some people, sweet and attractive, and strong and healthy, happen to die young. They are masters in disguise teaching us about impermanence.
+ - Every morning when I wake up, I dedicate myself to helping others to find peace of mind. Then, when I meet people, I think of them as long term friends; I don’t regard others as strangers.
+ - Love is wanting others to be happy.
+ - If you have religious faith, very good, you can add on secular ethics, then religious belief, add on it, very good. But even those people who have no interest about religion, okay, it’s not religion, but you can train through education.
+ - Too much self-centered attitude, you see, brings, you see, isolation. Result: loneliness, fear, anger. The extreme self-centered attitude is the source of suffering.
+ - If one’s life is simple, contentment has to come. Simplicity is extremely important for happiness. Having few desires, feeling satisfied with what you have, is very vital: satisfaction with just enough food, clothing, and shelter to protect yourself from the elements.
+ - Human use, population, and technology have reached that certain stage where mother Earth no longer accepts our presence with silence.
+ - Even modern medical researchers have come to the conclusion that peace of mind is vital for good health.
+ - If the mind is tranquil and occupied with positive thoughts, the body will not easily fall prey to disease.
+ - If you contribute to other peoples happiness, you will find the true meaning of life. The key point is to have a genuine sense of universal responsibility.
+ - I am just one human being.
+ - I describe myself as a simple Buddhist monk. No more, no less.
+ - Basically we are all the same human beings with the same potential to be a good human being or a bad human being. The important thing is to realize the positive side and try to increase that; realize the negative side and try to reduce. That’s the way.
+ - A sense of contentment is a key factor for attaining happiness.
+ - Distrust brings frustration and fear. So therefore, the lonely feeling automatically come. So, lonely feeling is not creation of environment, but creation of your own mental attitude.
+ - The roots of all goodness lie in the soil of appreciation for goodness.
+ - Compassion is something really worthwhile. It is not just a religious or spiritual subject, not a matter of ideology. It is not a luxury, it is a necessity.
+ - You must not hate those who do wrong or harmful things; but with compassion, you must do what you can to stop them – for they are harming themselves, as well as those who suffer from their actions.
+ - The basis of human rights is happy life. Everyone wants to lead a happy life for which we need to have a holistic approach.
+ - We must openly accept all ideologies and systems as a means of solving humanity’s problems. One country, one nation, one ideology, one system is not sufficient.
+ - The more we are concerned for the well being of others, the closer we will feel to each other.
+ - We have a natural creative ability and it is very important to realize this.
+ - Only through kindness and love can peace of mind be achieved.
+ - The source of peace is within us; so also the source of war. And the real enemy is within us, and not outside. The source of war is not the existence of nuclear weapons or other arms. It is the minds of human beings who decide to push the button and to use those arms out of hatred, anger or greed.
+ - We need a little more compassion, and if we cannot have it, then no politician or even a magician can save the planet.
+ - Let us try to recognize the precious nature of each day.
+ - Brute force, no matter how strongly applied, can never subdue the basic human desire for freedom.
+ - Good human qualities-honesty, sincerity, a good heart-cannot be bought with money, nor can they be produced my machines, but only by the mind itself. We can call this the inner light, or God’s blessing, or human qualitity. This is the essence of mankind.
+ - Since we desire the true happiness that is brought about by a calm mind, and such peace of mind arises only from having a compassionate attitude, we need to make a concerted effort to develop compassion.
+ - Forget the failures. Keep the lessons.
+ - When I meet people from other cultures I know that they too want happiness and do not want suffering, this allows me to see them as brothers and sisters.
+ - Our visit to this planet is short, so we should use our time meaningfully, which we can do by helping others wherever possible. And if we cannot help others, at least we should try not to create pain and suffering for them.
+ - A mind committed to compassion is like an overflowing reservoir – a constant source of energy, determination, and kindness.
+ - I am the source of my own suffering, because of the habits of my mind.
+ - Anger or hatred is like a fisherman’s hook. It is very important for us to ensure that we are not caught by it.
+ - Afflictive emotions – our jealousy, anger, hatred, fear – can be put to an end. When you realize that these emotions are only temporary, that they always pass on like clouds in the sky, you also realize they can ultimately be abandoned.
+ - I am like a wounded animal in a remote isolated place – How wonderful! – How happy!
+ - Anger and hatred lead to fear; compassion and concern for others allow us to develop self-confidence, which breeds trust and friendship.
+ - There can be no peace as long as there is grinding poverty, social injustice, inequality, oppression, environmental degradation, and as long as the weak and small continue to be trodden by the mighty and powerful.
+ - It is very rare or almost impossible that an event can be negative from all points of view.
+ - Moving towards better rather than moving away from bad is an attitude of embracing life rather than rejecting it.
+ - We need to strengthen such inner values as contentment, patience and tolerance, as well as compassion for others. Keeping in mind that it is expressions of affection rather than money and power that attract real friends, compassion is the key to ensuring our own well-being.
+ - Without your own effort it is impossible for blessings to come.
+ - Through violence, you may ‘solve’ one problem, but you sow the seeds for another.
+ - Anger is the ultimate troublemaker. I feel you can express a strong disapproval or dislike of an object without losing your temper.
+ - In order to become prosperous, a person must initially work very hard, so he or she has to sacrifice a lot of leisure time.
+ - Compassion, tolerance, forgiveness and a sense of self-discipline are qualities that help us lead our daily lives with a calm mind.
+ - Our attitude towards suffering becomes very important because it can affect how we cope with suffering when it arises.
+ - Children are our greatest untapped resource.
+ - Whatever the intellectual quality of the education given our children, it is vital that it include elements of love and compassion, for nothing guarantees that knowledge alone will be truly useful to human beings.
+ - Samsara-our conditioned existence in the perpetual cycle of habitual tendencies and nirvana – genuine freedom from such an existence- are nothing but different manifestations of a basic continuum. So this continuity of consciousness us always present. This is the meaning of tantra.
+ - Peace in the world relies on individuals finding inner peace.
+ - Differences in religious beliefs, politics, social status, and position are all secondary. When we look at someone with compassion, we are able to see beyond these secondary differences and connect to the primary essence that binds all humans together as one.
+ - As human beings we have the same experience of destructive and constructive emotions. We also have a human mind capable of developing wisdom. We all have the same Buddha nature.
+ - The foundation of the Buddha’s teachings lies in compassion, and the reason for practicing the teachings is to wipe out the persistence of ego, the number-one enemy of compassion.
+ - By deceiving one another through false assumptions and misrepresentations there has been, in reality, a great lapse and delay in achieving the real goals.
+ - The question is not to know what is the meaning of life, but what meaning I can give to my life.
+ - The fact that there is always a positive side to life is the one thing that gives me a lot of happiness. This world is not perfect. There are problems. But things like happiness and unhappiness are relative. Realizing this gives you hope.
+ - When you encounter some problems, if you point your finger at yourself and not at others, this gives you control over yourself and calmness in a situation, where otherwise self-control becomes problematic.
+ - We are all basically the same human beings, who seek happiness and try to avoid suffering. Everybody is my peer group. Your feeling “I am of no value” is wrong. Absolutely wrong.
+ - In the final analysis, the hope of every person is simply peace of mind.
+ - The question of world peace, the question of family peace, the question of peace between wife and husband, or peace between parents and children, everything is dependent on that feeling of love and warmheartedness.
+ - When you hate someone intensely, 80% of what you think is delusion.
+ - I believe that whether a person follows any religion or not is unimportant, he or she must have a good heart, a warm heart.
+ - To foster inner awareness, introspection, and reasoning is more efficient than meditation and prayer.
+ - Inner darkness, which we call ignorance, is the root of suffering. The more inner light that comes, the more darkness will diminish. This is the only way to achieve salvation or nirvana.
+ - I think the person who has had more experience of hardships can stand more firmly in the face of problems than the person who has never experienced suffering. From this angle then, some suffering can be a good lesson for life.
+ - Sometimes religion becomes yet another source for more division and even open conflict. Because of that situation, I feel the different religious traditions have a great responsibility to provide peace of mind and a sense of brotherhood and sisterhood among humanity.
+ - If you utilize obstacles properly, then they strengthen your courage, and they also give you more intelligence, more wisdom.
+ - Basically, a human being is a social animal. So, if you create some short moment of happiness for people, you get deep satisfaction.
+ - God exists or God does not exist. Leave it for us. Your task is to learn how to live peacefully.
+ - We have to adopt a wider perspective, and always find common things between the people of north, east, south, and west. Conflict comes from the basis of differencs.
+ - People should not rush to change religions. There is real value in finding the spiritual resources you need in your home religion. Even secular humanism has great spiritual resources; it is almost like a religion to me.
+ - We must generate courage equal to the size of the difficulties we face.
+ - For a person who cherishes compassion and love, the practice of tolerance is essential, and for that, and enemy is indispinsable. So we should be grateful to our enemies, for it is they who can best help us to develop a tranquil mind.
+ - It is the enemy who can truly teach us to practice the virtues of compassion and tolerance.
+ - Inner disarmament, external disarmament; these must go together, you see. Peace is not just mere absence of violence – genuine peace must start in each individual heart.
+ - We believe in self creation. That’s why Buddhists believe in the Four Noble Truths.
+ - If we want to save the world, we must have a plan. But no plan will work unless we meditate.
+ - It is expressions of affection rather than money and power that attract real friends.
+ - To develop genuine devotion, you must know the meaning of teachings. The main emphasis in Buddhism is to transform the mind, and this transformation depends upon meditation. in order to meditate correctly, you must have knowledge.
+ - Since form is emptiness and emptiness is form, then instead of a hand grasping at nothing, it is better to grasp at someone’s nose because this is closer to reality.
+ - Happiness can be achieved through training the mind.
+ - Whatever forms of meditation you practice, the most important point is to apply mindfulness continuously, and make a sustained effort. It is unrealistic to expect results from meditation within a short period of time. What is required is continuous sustained effort.
+ - Genuine happiness comes from focusing on the happiness of others.
+ - Modern education is premised strongly on materialistic values. It is vital that when educating our children’s brains that we do not neglect to educate their hearts, a key element of which has to be the nurturing of our compassionate nature.
+ - My earnest request is that you practice love and kindness whether you believe in a religion or not.
+ - Compassion can be roughly defined in terms of a state of mind that is nonviolent, nonharming, and nonaggressive. It is a mental attitude based on the wish for others to be free of their suffering and is associated with a sense of commitment, responsibility, and respect towards others.
+ - When we are motivated by compassion and wisdom, the results of our actions benefit everyone, not just our individual selves.
+ - Easy times are the enemy, they put us to sleep. Adversity is our friend, it wakes us up.
+ - My Brain and My Heart are my Temples. My true Religion is Kindness.
+ - When you engage in fulfilling the needs of others, your own needs are fulfilled as a by-product.
+ - Ultimately, the reason why love and compassion bring the greatest happiness is simply that our nature cherishes them above all else. The need for love lies at the very foundation of human existence.
+ - Your friend, your enemy, your neutral all are equal. Genuine compassion is unbiased.
+ - If science proves facts that conflict with Buddhist understanding, Buddhism must change accordingly. We should always adopt a view that accords with the facts.
+ - I think in many ways narrow minded-attitudes lead to extreme thinking.
+ - Buddhism does not accept a theory of God, or a creator. According to Buddhism, one’s own actions are the creator, ultimately. Some people say that, from a certain angle, Buddhism is not a religion but rather a science of mind.
+ - Developing concern for others, thinking of them as part of us, brings self-confidence, reduces our sense of suspicion and mistrust, and enables us to develop a calm mind.
+ - A calm mind is good for our physical health, but it also enables us to see things more realistically.
+ - Today different ethnic groups and different nations come together due to common sense.
+ - Consider that not only do negative thoughts and emotions destroy our experience of peace, they also undermine our health.
+ - Peace does not come through prayer, we human beings must create peace.
+ - As far as social-economic theory is concerned, I am still a Marxist.
+ - Instead of wondering WHY this is happening to you, consider why this is happening to YOU.
+ - When a certain community is destroyed, in reality it destroys a part of all of us. So there should be a clear recognition that the entire humanity is just one family. Any conflict within humanity should be considered as a family conflict. We must find a solution within this atmosphere.
+ - If we can cultivate a concern for others, keeping in mind the oneness of humanity, we can build a more compassionate world.
+ - To defy the authority of empirical evidence is to disqualify oneself as someone worthy of critical engagement in a dialogue.
+ - Today, more than ever before, life must be characterized by a sense of Universal responsibility, not only nation to nation and human to human, but also human to other forms of life.
+ - Happiness that depends mainly on physical pleasure is unstable; one day it’s there, the next day it may not be.
+ - All major religious traditions carry basically the same message, that is love, compassion and forgiveness the important thing is they should be part of our daily lives.
+ - All sentient beings have the seed of the Buddha within them.
+ - If we lose our hope, that’s our real disaster!
+ - While it is all very well to distinguish happiness that is transient from that which is lasting, between ephemeral and genuine happiness, the only happiness it is meaningful to speak of when a person is dying from thirst is access to water.
+ - I remain convinced that most human conflicts can be solved through genuine dialogue conducted with a spirit of openness and reconciliation.
+ - All good qualities must be sown and cultivated. We can’t expect to change overnight from an ordinary person into one with high realizations.
+ - Our world is increasingly interdependent, but I wonder if we truly understand that our interdependent human community has to be compassionate; compassionate in our choice of goals, compassionate in our means of cooperation and our pursuit of these goals.
+ - The motivation of all religious practice is similar: love, sincerity, honesty. The way of life of practically all religious persons is consistent. The teachings of tolerance, love, and compassion are the same.
+ - Use your human intelligence in the best way you can; transform your emotions in a positive way.
+ - I do not judge the universe.
+ - Unfortunate events though potentially a source of anger and despair have equal potential to be a source of spiritual growth. Whether or not this is the outcome depends on your response.
+ - Our ancient experience confirms at every point that everything is linked together, everything is inseparable.
+ - I want to be just a pure spiritual leader.
+ - If there’s good, strong evidence from science that such and such is the case and this is contrary to Buddhism, then we will change.
+ - Although it is difficult to pinpoint the physical base or location of awareness, it is perhaps the most precious thing concealed within our brains. And it is something that the individual alone can feel and experience. Each of us cherishes it highly, yet it is private.
+ - Those who suffer from an exaggerated sense of their own ability and accomplishment are continually subject to frustration, disappointment, and rage when reality intrudes and the world doesn’t validate their idealized view of themselves.
+ - The very purpose of meditation is to discipline the mind and reduce afflictive emotions.
+ - If you have a great deal of knowledge, but you’re governed by negative emotions, then you tend to use your knowledge in negative ways. Therefore, while you are learning, don’t forget the importance of warmheartedness.
+ - Destructive thoughts and emotions undermine the very causes of peace and happiness. If you think clearly about it, it makes no sense to think you’re seeking happiness, if you do nothing to restrain angry, spiteful, and malicious thoughts and emotions.
+ - Even without a religion, we can become a good human being.
+ - My faith helps me overcome such negative emotions and find my equilibrium.
+ - We must cultivate a universal responsibility toward each other and extend it to the planet that we have to share.
+ - A mind that is characterized by unrest will not be tranquil even in the presence of great calm.
+ - Through awareness, you get a certain attitude. That’s the way, you see, to achieve more peaceful, more compassion, more friendship through that way.
+ - It is a question of our own peace and mental stability.
+ - The basic condition of human life is happiness.
+ - If you want change, create the causes.
+ - A new way of thinking has become the necessary condition for responsible living and acting. If we maintain obsolete values and beliefs, a fragmented consciousness and self-centered spirit, we will continue to hold onto outdated goals and behaviors.
+ - Sometimes, whether a desire is excessive or negative depends on the circumstances or society in which you live in.
+ - Passion is what gives sense to our life.
+ - If we looked down at the world from space, we would not see any demarcations of national boundaries. We would simply see one small planet, just one.
+ - If your mind is scattered, it is quite powerless.
+ - My own view, which does not rely solely on religious faith or even on an original idea, but rather on ordinary common sense, is that establishing binding ethical principles is possible when we take as our starting point the observation that we all desire happiness and wish to avoid suffering.
+ - A genuine smile touches something fundamental in us: our natural appreciation of kindness.
+ - Peace and the survival of life on earth as we know it are threatened by human activities which lack a commitment to humanitarian values. Destruction of nature and nature’s resources result from ignorance, greed and lack of respect for the earth’s living things.
+ - The natural environment sustains the life of all beings universally.
+ - Religion is like going out to dinner with friends. Everyone may order something different, but everyone can still sit at the same table.
+ - Real change in society must start from individual initiative.
+ - There is no way to escape death, it is just like trying to escape by four great mountains touching sky. There is no escape from these four mountains of birth, old age, sickness and death.
+ - All People and things are interdependent. The world has become so small that no nation can solve its problems alone, in isolation from others. That is why I believe we must all cultivate a sense of responsibility based on love and compassion for each other.
+ - I am a steadfast follower of the doctrine of non-violence which was first preached by Lord Buddha, whose divine wisdom is absolute...
+ - Appearance is something absolute, but reality is not that way – everything is interdependent, not absolute.
+ - Killing animals for sport, for pleasure, for adventure, and for hides and furs is a phenomena which is at once disgusting and distressing. There is no justification in indulging is such acts of brutality.
+ - Everybody wants a happy life and a peaceful mind, but we have to produce peace of mind through our own practice.
+ - We are born and reborn countless number of times, and it is possible that each being has been our parent at one time or another. Therefore, it is likely that all beings in this universe have familial connections.
+ - Inner values like friendship, trust, honesty and compassion are much more reliable than money – they always bring happiness and strength.
+ - So the smart brain must be balanced with a warm heart, a good heart -a sense of responsibility, of concern for the well-being of others.
+ - You use force, you create fear. Fear destroys trust. Trust is the basis of harmony. The hardliner believes harmony and unity can be brought by force. That’s totally unscientific, totally wrong.
+ - As human beings we each have a responsibility to care for humanity. Expressing concern for others brings inner strength and deep satisfaction. As social animals, human beings need friendship, but friendship doesn’t come from wealth and power, but from showing compassion and concern for others.
+ - Anger, hatred and jealousy never solve problems, only affection, concern and respect can do that.
+ - The proper way to create friends is to have a warm heart, not simply money or power. The friend of power and the friend of money are something different.
+ - If you focus only on yourself and neglect others, you will lose; but you will gain if you value others as much as you cherish yourself.
+ - It’s best not to get too excited or too depressed by the ups and downs of life.
+ - We should practice by showing one another love and helping one another. It is a mistake to pursue happiness and to seek to the avoid suffering by deceiving and humiliating other people. We must try to achieve happiness and eliminate suffering by being good-hearted and well-behaved.
+ - All religions try to benefit people, with the same basic message of the need for love and compassion, for justice and honesty, for contentment.
+ - We can hardly call a beggar an obstacle to generosity.
+ - I call the light and high aspects of my being spirit and the dark and heavy aspects soul.
+ - To develop patience, you need someone who willfully hurts you. Such people give us real opportunities to practice tolerance. They test our inner strength in a way that even our guru cannot. Basically, patience protects us from being discouraged.
+ - There needs to be understanding that anger never helps to solve a problem. It destroys our peace of mind and blinds our ability to think clearly. Anger and attachment are emotions that distort our view of reality.
+ - From a certain point of view our real enemy, the true troublemaker, is inside.
+ - If our tears do not lead us to act then we have lost the reason of our humanity, which is compassion.
+ - To reduce destructive emotions we need to strengthen constructive emotions. For example, to counter anger we cultivate love and compassion.
+ - Self-discipline is crucial to a simpler, more contented life.
+ - Although attempting to bring about world peace through the internal transformation of individuals is difficult, it is the only way.
+ - There is a saying in Tibetan that “at the door of the miserable rich man sleeps the contented beggar”. The point of this saying is not that poverty is a virtue, but that happiness does not come with wealth, but from setting limits to one’s desires, and living within those limits with satisfaction.
+ - True compassion is not just an emotional response but a firm commitment founded on reason.
+ - World belongs to humanity, not this leader, that leader or that king or prince or religious leader. World belongs to humanity.
+ - True friends share genuine closeness and remain friends irrespective of fluctuating fortunes.
+ - Compassion is of little value if it just remains an idea. It must motivate how we respond to others and be reflective in all our thoughts and actions.
+ - It seems that for some people the idea of compassion entails a complete disregard for or even a sacrifice of their own interests. This is not the case. In fact, you first of all have to have a wish to be happy yourself – if you don’t love yourself like that, how can you love others?
+ - A sense of concern for others gives our lives meaning; it is the root of all human happiness.
+ - A great rock is not disturbed by the wind; the mind of a wise man is not disturbed by either honor or abuse.
+ - Soul is at home in the deep, shaded valleys. Heavy torpid flowers saturated with black grow there. The rivers flow like warm syrup. They empty into huge oceans of soul.
+ - When we are caught up in a destructive emotion, we lose one of our greatest assets: our independence.
+ - Whether you believe in God or not does not matter much, whether you believe in Buddha or not does not matter so much; as a Buddhist, whether you believe in reincarnation or not does not matter so much. You must lead a good life.
+ - Compassion is not religious business, it is human business, it is not luxury, it is essential for our own peace and mental stability, it is essential for human survival.
+ - The more we feel concern for others and seek their well-being, the more friends we will have and the more welcome we will feel.
+ - Anger, hatred, fear, is very bad for our health.
+ - If we have no inner peace, we deceive ourselves into thinking that comfort and prosperity will bring happiness.
+ - When we develop a right attitude of compassion and gratitude, we take a giant step towards solving our personal and international problems.
+ - It is very wrong for people to feel deeply sad when they lose some money, yet when they waste the precious moments of their lives they do not have the slightest feeling of repentance.
+ - All religion teaches the virtues of love, altruism and patience, while showing us how to discipline and transform ourselves to achieve inner peace and a kind heart. Therefore, they are worthy of our respect.
+ - Fear, hatred, and suspicion narrow your mind – compassion opens it.
+ - Developing inner values is much like physical exercise. The more we train our abilities, the stronger they become. The difference is that, unlike the body, when it comes to training the mind, there is no limit to how far we can go.
+ - Just as we take for granted the need to acquire proficiency in the basic academic subjects, I am hopeful that a time will come when we can take it for granted that children will learn, as part of the curriculum, the indispensability of inner values: love, compassion, justice, and forgiveness.
+ - One interesting thing about greed is that although the underlying motive is to seek satisfaction, the irony is that even after obtaining the object of your desire you are still not satisfied. The true antidote of greed is contentment.
+ - Suffering increases your inner strength. Also, the wishing for suffering makes the suffering disappear.
+ - When reason ends, then anger begins. Therefore, anger is a sign of weakness.
+ - Anger and hatred are the real enemies that we must confront and defeat, not the ‘enemies’ who appear from time to time in our lives.
+ - I would like to explain the meaning of compassion, which is often misunderstood. Genuine compassion is based not on our own projections and expectations, but rather on the rights of the other: irrespective of whether another person is a close friend.
+ - Prayer alone will not make a happy life. A happy life must be built. You must act.
+ - Anger, pride and competence are our real enemies.
+ - A genuine, affectionate smile is very important in our day-to-day lives.
+ - For those who may not find happiness to exercise religious faith, it’s okay to remain a radical atheist; it’s absolutely an individual right, but the important thing is with a compassionate heart – then no problem.
+ - Every human should have the idea of taking care of the environment, of nature, of water. So using too much or wasting water should have some kind of feeling or sense of concern. Some sort of responsibility and with that, a sense of discipline.
+ - So, the tendency of our childish nature is to take small things too seriously and get easily offended, whereas when we are confronted with situations which have long-term consequences, we tend to take things less seriously.
+ - The main cause of suffering is egoistic desire for one’s own comfort and happiness.
+ - The Buddha gave equal opportunities to women. But we, even as followers of Buddha, neglected that.
+
+500 quotes

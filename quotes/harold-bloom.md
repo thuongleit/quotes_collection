@@ -1,0 +1,56 @@
+ - There is no method except yourself.
+ - Socrates, in Plato, formulates ideas of order: the Iliad, like Shakespeare, knows that a violent disorder is a great order.
+ - If we read the Western Canon in order to form our social, political, or personal moral values, I firmly believe we will become monsters of selfishness and exploitation.
+ - Reading well is one of the great pleasures that solitude can afford you.
+ - I think the Greek New Testament is the strongest and most successful misreading of a great prior text in the entire history of influence.
+ - There is a God, and his name is Aristophanes.
+ - We all fear loneliness, madness, dying. Shakespeare and Walt Whitman, Leopardi and Hart Crane will not cure those fears. And yet these poets bring us fire and light.
+ - How to read “Harry Potter and the Sorcerer’s Stone”? Why, very quickly, to begin with, and perhaps also to make an end. Why read it? Presumably, if you cannot be persuaded to read anything better, Rowling will have to do.
+ - The most beautiful prose paragraph yet written by any American.
+ - Personality, in our sense, is a Shakespearean invention.
+ - Everyone wants a prodigy to fail; it makes our mediocrity more bearable.
+ - Literature is achieved anxiety.
+ - Not a moment passes these days without fresh rushes of academic lemmings off the cliffs they proclaim the political responsibilities of the critic, but eventually all this moralizing will subside.
+ - Information is endlessly available to us; where shall wisdom be found?
+ - The idea of Herman Melville in a writing class is always distressing to me.
+ - What is supposed to be the very essence of Judaism – which is the notion that it is by study that you make yourself a holy people – is nowhere present in Hebrew tradition before the end of the first or the beginning of the second century of the Common Era.
+ - We read not only because we cannot know enough people, but because friendship is so vulnerable, so likely to diminish or disappear, overcome by space, time, imperfect sympathies, and all the sorrows of familial and passional life.
+ - Real reading is a lonely activity.
+ - Everything in life is arbitrary yet must be over-determined in literature. Jean McGarry knows how to tell a persuasive tale illuminating these truths.
+ - What matters in literature in the end is surely the idiosyncratic, the individual, the flavor or the color of a particular human suffering.
+ - No poem, not even Shakespeare or Milton or Chaucer, is ever strong enough to totally exclude every crucial precursor text or poem.
+ - Read deeply, not to believe, not to accept, not to contradict, but to learn to share in that one nature that writes and reads.
+ - In the finest critics one hears the full cry of the human. They tell one why it matters to read.
+ - I think Freud is about contamination, but I think that is something he learned from Shakespeare, because Shakespeare is about nothing but contamination, you might say.
+ - Shakespeare is the true multicultural author. He exists in all languages. He is put on the stage everywhere. Everyone feels that they are represented by him on the stage.
+ - People cannot stand the saddest truth I know about the very nature of reading and writing imaginative literature, which is that poetry does not teach us how to talk to other people: it teaches us how to talk to ourselves. What I.
+ - To be a poet did not occur to me. It was indeed a threshold guarded by demons.
+ - Shakespeare is universal.
+ - Indeed the three prophecies about the death of individual art are, in their different ways, those of Hegel, Marx, and Freud. I don’t see any way of getting beyond those prophecies.
+ - In fact, it is Shakespeare who gives us the map of the mind. It is Shakespeare who invents Freudian Psychology. Freud finds ways of translating it into supposedly analytical vocabulary.
+ - Reading well makes children more interesting both to themselves and others, a process in which they will develop a sense of being separate and distinct selves.
+ - It is hard to go on living without some hope of encountering the extraordinary.
+ - I am naive enough to read incessantly because I cannot, on my own, get to know enough people profoundly enough.
+ - We read, frequently if not unknowingly, in search of a mind more original than our own.
+ - I have never believed that the critic is the rival of the poet, but I do believe that criticism is a genre of literature or it does not exist.
+ - It is by extending oneself, by exercising some capacity previously unused that you come to a better knowledge of your own potential.
+ - No one yet has managed to be post-Shakespearean.
+ - Criticism in the universities, I’ll have to admit, has entered a phase where I am totally out of sympathy with 95% of what goes on. It’s Stalinism without Stalin.
+ - The very best of all Merwin: I have been reading William since 1952, and always with joy.
+ - More even than Southern Presbyterians and Southern Methodists, the Baptists provided the great mass of Confederate enlisted men.
+ - I would say that there is no future for literary studies as such in the United States.
+ - All that a critic, as critic, can give poets is the deadly encouragement that never ceases to remind them of how heavy their inheritance is.
+ - We read to find ourselves, more fully and more strangely than otherwise we could hope to find.
+ - At our present bad moment, we need above all to recover our sense of literary individuality and of poetic autonomy.
+ - The world gets older, without getting either better or worse and so does literature. But I do think that the drab current phenomenon that passes for literary studies in the university will finally provide its own corrective.
+ - The world does not get to be a better or a worse place; it just gets more senescent.
+ - I realized early on that the academy and the literary world alike.
+ - I take it that a successful therapy is an oxymoron.
+ - Sometimes one succeeds, sometimes one fails.
+ - Unless you have read and absorbed the best that can be read and absorbed, you will not think clearly or well.
+ - I don’t believe in myths of decline or myths of progress, even as regards the literary scene.
+ - What I think I have in common with the school of deconstruction is the mode of negative thinking or negative awareness, in the technical, philosophical sense of the negative, but which comes to me through negative theology.
+ - Criticism starts – it has to start – with a real passion for reading. It can come in adolescence, even in your twenties, but you must fall in love with poems.
+ - The second, and I think this is the much more overt and I think it is the main cause, I have been increasingly demonstrating or trying to demonstrate that every possible stance a critic, a scholar, a teacher can take towards a poem is itself inevitably and necessarily poetic.
+
+54 quotes

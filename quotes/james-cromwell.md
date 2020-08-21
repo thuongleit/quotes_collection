@@ -1,0 +1,38 @@
+ - If a kid ever realized what was involved in factory farming, they would never touch meat again.
+ - I’m an animal rights activist because I believe we won’t have a planet if we continue to behave toward other species the way we do.
+ - It’s a wonderful thing as time goes by, to be with someone who looks into your face when you’ve gotten old and still sees what you think you look like.
+ - Pets are humanizing. They remind us we have an obligation and responsibility to preserve and nurture and care for all life.
+ - We don’t need to eat anyone who would run, swim, or fly away if he could.
+ - You don’t just one day say, ‘That’s it, I’m doing this, I’m going to throw all my shoes out and I’m not eating honey and I won’t drive my car because there are animal bones in the tires’ because you’d drive yourself around the bend.
+ - What is magnificent about humans is when they decide to turn and stand. If they respond with non-violence on principle and hold their ground, they are really magnificent.
+ - Anybody can call me Jamie, and you have to watch it when you call me James. Then there’s going to be a problem.
+ - I always change my words in everything I do. I make the language fit, because I know the character from the inside out. Often character actors are not in a position to do that, but I do it. I don’t change any cue and I never change anybody else’s lines, but I make my own words fit my mouth.
+ - The last part of life is a spiritual concern. You need to find a context to put your life into, that will allow you to go through it with as much grace and balance as possible, even if there is rebellion and adventure and exploration and resistance.
+ - My friends joke because I will take my clothes off, at the drop of a hat.
+ - I say a lot of things I shouldn’t say.
+ - When I did ‘Babe’ I wanted to talk about animal rights without going through some convoluted justifications about using animal products.
+ - The person is a mystery. What I’m playing is the person so I really get to tell you and show you and communicate to you who I think the real person is and that real person is me. The most important thing is to play the human being you are creating, which is my job.
+ - Every day is perfect because there’s no other day! As a friend of mine said, “Ride the horse in the direction it’s going.” When you do that, you realize that every moment, every breath, every sound, every encounter is a gift. You bloody well better enjoy it.
+ - Pigs may not be as cuddly as kittens or puppies, but they suffer just as much.
+ - Studios are run by those who are way too old or mostly young, who don’t think creatively.
+ - Once a film is shot, the thing that mostly happens is that I go see all the things I would have fixed in my performance and sometimes, very rarely, I see a moment that surprise me and I go, “Oh, that’s not bad. That was nice.”
+ - Authority is the assumption that someone else knows better than you.
+ - Jamie’ is what my mother gave me, and that takes the onus off of being big. Somebody thinks, ‘Oh, Jamie – how threatening can he be?
+ - My definition of a character actor is – they never get the girl.
+ - As a character actor, I’ve learned that you have to watch yourself because nobody else is watching. Nobody is concerned with you.
+ - The attitude we have towards our personal pets as opposed to the animals that suffer under the factory farm is hypocritical and delusional.
+ - I auditioned for ‘Revenge Of The Nerds,’ and I so did not want the picture. I didn’t want it. I didn’t want be in anything that had nerds anywhere.
+ - There is something intrinsically, systemically wrong with white, western culture, and if we don’t fix it, it won’t continue.
+ - There are reasons to have rules and regulations. That I understand. Authority is a different thing. Authority is to maintain its own position by increasing its power and domination over those people it is supposedly protecting.
+ - Often we’re recreating what we think we’re supposed to be as human beings. What we’ve been told we’re supposed to be, instead of who we authentically are. The key about the creation of full self-expression is to be authentically who you are, to project that.
+ - I have a film called ‘A Lonely Place For Dying,’ which is the most watched film on the Internet, over 3 million hits, more than any of Hollywood’s films.
+ - All of them – my father, mother, step-mother, and grandmother – were all wonderful actors and performers and they are an inspiration to me, both in their craft and in their humanity.
+ - Usually, I’m the kind of actor where you show me once or twice, I can do it. I don’t do it creatively, but I know how to do the process.
+ - But if you really want to learn about life, get a cat. The way I think people should relate to animals is with a cat. Because the world is his.
+ - I don’t look like a leading man, whatever they look like. It’s changing a little.
+ - Until men learn to celebrate and operate on the feminine aspect of themselves and stop the oppression of women, children, the environment, other species, we don’t have a world to live in. It’s not a world that anyone chooses to live in.
+ - I play an 89-year-old man whose wife has Alzheimer’s in a movie called ‘Still.’ I play a World War II veteran, I acted with my son and it’s called ‘Memorial Day.’
+ - A vital film that needed to be made at this point in history and has been made magnificently.
+ - I started in theatre. I was at Cleveland and I went to London for the 400th anniversary of Shakespeare’s birth.
+
+36 quotes

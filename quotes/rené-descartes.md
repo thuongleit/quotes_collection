@@ -1,0 +1,118 @@
+ - I think therefore am.
+ - Doubt is the origin of wisdom.
+ - You just keep pushing. You just keep pushing. I made every mistake that could be made. But I just kept pushing.
+ - Conquer yourself rather than the world.
+ - We do not describe the world we see, we see the world we can describe.
+ - Mathematics is a more powerful instrument of knowledge than any other that has been bequeathed to us by human agency.
+ - It is not enough to have a good mind; the main thing is to use it well.
+ - If you would be a real seeker after truth, it is necessary that at least once in your life you doubt, as far as possible, all things.
+ - The reading of all good books is like a conversation with the finest minds of past centuries.
+ - Nothing comes out of nothing.
+ - De omnibus dubitandum.
+ - Except our own thoughts, there is nothing absolutely in our power.
+ - I can doubt everything, except one thing, and that is the very fact that I doubt. Simply put – I think, therefore I am.
+ - Science is practical philosophy.
+ - All is to be doubted.
+ - To know what people really think, pay attention to what they do, rather than what they say.
+ - The reading of all good books is indeed like a conversation with the noblest men of past centuries who were the authors of them, nay a carefully studied conversation, in which they reveal to us none but the best of their thoughts.
+ - It is possible that I am dreaming right now and that all of my perceptions are false.
+ - He who hid well, lived well.
+ - Divide each difficulty into as many parts as is feasible and necessary to resolve it.
+ - The only thing that I know, is that I know nothing.
+ - Wonder is the first of all the passions.
+ - An optimist may see a light where there is none, but why must the pessimist always run to blow it out?
+ - Any community that gets its laughs by pretending to be idiots will eventually be flooded by actual idiots who mistakenly believe that they’re in good company.
+ - With me, everything turns into mathematics.
+ - I know that I exist; the question is, What is this ‘I’ that ‘I’ know.
+ - Intuition is the undoubting conception of a pure and attentive mind, which arises from the light of reason alone, and is more certain than deduction.
+ - Each problem that I solved became a rule, which served afterwards to solve other problems.
+ - Whenever anyone has offended me, I try to raise my soul so high that the offense cannot reach it.
+ - The senses deceive from time to time, and it is prudent never to trust wholly those who have deceived us even once.
+ - I have concluded the evident existence of God, and that my existence depends entirely on God in all the moments of my life, that I do not think that the human spirit may know anything with greater evidence and certitude.
+ - But in my opinion, all things in nature occur mathematically.
+ - Reason is nothing without imagination.
+ - How can you be certain that your whole life is not a dream?
+ - Everything is self-evident.
+ - The chief cause of human errors is to be found in the prejudices picked up in childhood.
+ - When I consider this carefully, I find not a single property which with certainty separates the waking state from the dream. How can you be certain that your whole life is not a dream?
+ - Intuitive knowledge is an illumination of the soul, whereby it beholds in the light of God those things which it pleases Him to reveal to us by a direct impression of divine clearness.
+ - He lives well who is well hidden.
+ - Masked, I advance.
+ - To live without philosophizing is in truth the same as keeping the eyes closed without attempting to open them.
+ - Nothing is more fairly distributed than common sense: no one thinks he needs more of it than he already has.
+ - A state is better governed which has few laws, and those laws strictly observed.
+ - I desire to live in peace and to continue the life I have begun under the motto ’to live well you must live unseen.
+ - In order to improve the mind, we ought less to learn, than to contemplate.
+ - Few look for truth; many prowl about for a reputation of profundity by arrogantly challenging whichever arguments are the best.
+ - Your joy is your sorrow unmasked. And the self-same well from which your laughter rises was often-times filled with your tears.
+ - In God there is an infinitude of things which I cannot comprehend, nor possibly even reach in any way by thought; for it is the nature of the infinite that my nature, which is finite and limited, should not comprehend it.
+ - Illusory joy is often worth more than genuine sorrow.
+ - Omnia apud me mathematica fiunt.
+ - There is a great difference between mind and body insomuch as body is by nature always divisible, and the mind is entirely indivisible.
+ - The greatest minds are capable of the greatest vices as well as of the greatest virtues.
+ - There is a little gland in the brain in which the soul exercises its functions in a more particular way than in the other parts.
+ - Truths are more likely to be discovered by one man than by a nation.
+ - There is nothing more ancient than the truth.
+ - Perfect numbers like perfect men are very rare.
+ - The only secure knowledge is that I exist.
+ - We call infinite that thing whose limits we have not perceived, and so by that word we do not signify what we understand about a thing, but rather what we do not understand.
+ - Travelling is almost like talking with those of other centuries.
+ - For I found myself embarrassed with so many doubts and errors that it seemed to me that the effort to instruct myself had no effect other than th eincreasing discovery of my own ignorance.
+ - Now therefore, that my mind is free from all cares, and that I have obtained for myself assured leisure in peaceful solitude, I shall apply myself seriously and freely to the general destruction of all my former opinions.
+ - It is only prudent never to place complete confidence in that by which we have even once been deceived.
+ - The two operations of our understanding, intuition and deduction, on which alone we have said we must rely in the acquisition of knowledge.
+ - The principal use of prudence, of self-control, is that it teaches us to be masters of our passions, and to so control and guide them that the evils which they cause are quite bearable, and that we even derive joy from them all.
+ - I accept no principles of physics which are not also accepted in mathematics.
+ - So far, I have been a spectator in this theater which is the world, but I am now about to mount the stage, and I come forward masked.
+ - Even those who have the weakest souls could acquire absolute mastery over all their passions if we employed sufficient ingenuity in training and guiding them.
+ - Good sense is the most equitably distributed of all things because no matter how much or little a person has, everyone feels so abundantly provided with good sense that he feels no desire for more than he already possesses.
+ - There is nothing so far removed from us to be beyond our reach, or so far hidden that we cannot discover it.
+ - The object of music is a Sound. The end; to delight, and move various Affections in us.
+ - A person has two passions for love and abhorrence. A big disposition to excessiveness has just a love, because it is more ardent and stronger.
+ - Common sense is the most widely shared commodity in the world, for every man is convinced that he is well supplied with it.
+ - I am accustomed to sleep and in my dreams to imagine the same things that lunatics imagine when awake.
+ - It’s the familiar love-hate syndrome of seduction: “I don’t really care what it is I say, I care only that you like it.”
+ - I was convinced that our beliefs are based much more on custom and example than on any certain knowledge.
+ - Every man is indeed bound to do what he can to promote the good of others, and a man who is of no use to anyone is strictly worthless.
+ - Human wisdom remains always one and the same although applied to the most diverse objects and it is no more changed by their diversity than the sunshine is changed by the variety of objects which it illuminates.
+ - When writing about transcendental issues, be transcendentally clear.
+ - Although my knowledge grows more and more, nevertheless I do not for that reason believe that it can ever be actually infinite, since it can never reach a point so high that it will be unable to attain any greater increase.
+ - Give me extension and motion and I will construct the universe.
+ - And thus, the actions of life often not allowing any delay, it is a truth very certain that, when it is not in our power to determine the most true opinions we ought to follow the most probable.
+ - And I shall always hold myself more obliged to those by whose favour I enjoy uninterrupted leisure than to any who might offer me the most honourable positions in the world.
+ - But possibly I am something more than I suppose myself to be.
+ - It is best not to go on for great quest for truth, it will only make you miserable.
+ - For to be possessed of a vigorous mind is not enough; the prime requisite is rightly to apply it.
+ - Bad books engender bad habits, but bad habits engender good books.
+ - Common sense is the best distributed thing in the world, for we all think we possess a good share of it.
+ - Even if I were to suppose that I was dreaming and whatever I saw or imagined was false, yet I could not deny that ideas were truly in my mind.
+ - The entire method consists in the order and arrangement of the things to which the mind’s eye must turn so that we can discover some truth.
+ - For each of us there is a set limit to our intellectual powers which we cannot pass.
+ - For how do we know that the thoughts which occur in dreaming are false rather than those others which we experience when awake, since the former are often not less vivid and distinct than the latter?
+ - I should consider that I know nothing about physics if I were able to explain only how things might be, and were unable to demonstrate that they could not be otherwise.
+ - And thereby make ourselves, as it were, the lords and masters of nature.
+ - How do we know that anything really exists, that anything is really the way it seems ot us through our senses?
+ - Thus each truth discovered was a rule available in the discovery of subsequent ones.
+ - The principal effect of the passions is that they incite and persuade the mind to will the events for which they prepared the body.
+ - It is contrary to reasoning to say that there is a vacuum or space in which there is absolutely nothing.
+ - If I found any new truths in the sciences, I can say that they follow from, or depend on, five or six principal problems which I succeeded in solving and which I regard as so many battles where the fortunes of war were on my side.
+ - Common sense is the most fairly distributed thing in the world, for each one thinks he is so well-endowed with it that even those who are hardest to satisfy in all other matters are not in the habit of desiring more of it than they already have.
+ - The first precept was never to accept a thing as true until I knew it as such without a single doubt.
+ - Let whoever can do so deceive me, he will never bring it about that I am nothing, so long as I continue to think I am something.
+ - Neither divine grace nor natural knowledge ever diminishes freedom.
+ - Variant: When it is not in our power to follow what is true, we ought to follow what is most probable.
+ - I am indeed amazed when I consider how weak my mind is and how prone to error.
+ - At last I will devote myself sincerely and without reservation to the general demolition of my opinions.
+ - And as it is the most generous souls who have most gratitude, it is those who have most pride, and who are most base and infirm, who most allow themselves to be carried away by anger and hatred.
+ - Instead I ought to be grateful to Him who never owed me anything for having been so generous to me, rather than think that He deprived me of those things or has taken away from me whatever He did not give me.
+ - There is nothing so strange and so unbelievable that it has not been said by one philosopher or another.
+ - Sensations are nothing but confused modes of thinking.
+ - The mind effortlessly and automatically takes in new ideas, which remain in limbo until verified or rejected by conscious, rational analysis.
+ - I hope that posterity will judge me kindly, not only as to the things which I have explained, but also to those which I have intentionally omitted so as to leave to others the pleasure of discovery.
+ - Desire awakens only to things that are thought possible.
+ - The nature of matter, or body considered in general, consists not in its being something which is hard or heavy or coloured, or which affects the senses in any way, but simply in its being something which is extended in length, breadth and depth.
+ - It is to the body alone that we should attribute everything that can be observed in us to oppose our reason.
+ - Hence reason also demands that, since our thoughts cannot all be true because we are not wholly perfect, what truth they do possess must inevitably be found in the thoughts we have when awake, rather than in our dreams.
+ - In the matter of a difficult question it is more likely that the truth should have been discovered by the few than by the many.
+
+116 quotes

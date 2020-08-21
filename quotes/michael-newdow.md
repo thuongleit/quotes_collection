@@ -1,0 +1,23 @@
+ - I was considering running for political office.
+ - He’s a smart man, so I am assuming he will do it.
+ - A lot of God-loving people think that killing people who don’t agree with them is OK.
+ - Those who deny the existence of a supreme being have been turned into second-class citizens by a government that continuously sends messages that ‘real Americans’ believe in God.
+ - I choose to worship not believing in God and government should not thrust a religious idea down my throat.
+ - My daughter is in the lawsuit because you need that for standing.
+ - No person who denies the existence of a supreme being shall hold any office under this Constitution.
+ - Obviously, I’ll keep fighting to uphold the Constitution.
+ - There’s a principle here, and I’m hoping the court will uphold this principle so that we can finally go back and have every American want to stand up, face the flag, place their hand over their heart and pledge to one nation, indivisible, not divided by religion, with liberty and justice for all.
+ - I feel like I am not an American in the eyes of my government because of their religious beliefs. I think that is un-American.
+ - I brought this case because I am an atheist and this offends me, and I have the right to bring up my daughter without God being imposed into her life by her schoolteachers.
+ - Supreme Court Justice Anton Scalia should be commended for acknowledging that his views are so strong that – should the Pledge case reach the Supreme Court – he wouldn’t be able to maintain the requisite impartiality.
+ - I believe in the Constitution. The Constitution says that government isn’t supposed to be infusing religion into our society, and so I asked to have that upheld.
+ - Government needs to stay out of the religion business altogether.
+ - It’s one of the nice things about this nation that when the Constitution is violated, if it affects you, you can bring a suit.
+ - I think the Constitution has been upheld. I think they made the right decision.
+ - I have numerous people who have expressed a willingness to be plaintiffs.
+ - Most people I know I think agree and even many theists agree with this. We don’t want government involved. When atheists become the majority in this country, I don’t think the theists are going to be glad to have “one nation under no God” inserted in the Pledge of Allegiance.
+ - A federal judge did as he was supposed to do and upheld the Constitution. We should be thankful that we have judiciary that will do that.
+ - Most people I know I think agree and even many theists agree with this. We don’t want government involved.
+ - But in America, if you’re an atheist, you lose.
+
+21 quotes

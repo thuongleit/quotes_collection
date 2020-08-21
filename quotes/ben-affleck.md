@@ -1,0 +1,82 @@
+ - A sale is made on every call you make. Either you sell the client some stock or he sells you a reason he can’t. Either way a sale is made, the only question is: Who is gonna close?
+ - It doesn’t matter how you get knocked down in life, because that’s going to happen. All that matters is that you gotta get up.
+ - Affleck was the bomb in Phantoms.
+ - They say money can’t buy happiness? Look at the smile on my face. Ear to ear, baby!
+ - You wasted $150,000 on an education you could have got for a buck fifty in late charges at the public library.
+ - No matter how much you change, you still got to pay the price for the things you’ve done.
+ - Anybody tells you that money is the root of all evil doesn’t have any.
+ - Sometimes the people we meet change us forever.
+ - You have to be kind to people. Treat them decently. There’s no excuse for not.
+ - I’m not the type of guy who enjoys one-night stands. It leaves me feeling very empty and cynical. It’s not even fun sexually. I need to feel something for the woman and entertain the vain hope that it may lead to a relationship.
+ - On the day he had colonic irrigation: ‘I feel I lost my virginity that day in so many ways.’
+ - The best cure for a hangover is something one straight man can’t do for another straight man.
+ - I like that best as I am so hairy.
+ - I’ve seen high and lows. When things go well that doesn’t make me feel like some genius. Nor will I allow the next disappointment to make me feel like a complete failure.
+ - I want to thank my wife who I don’t normally usually associate with Iran. I want to thank you for working on our marriage for 10 Christmases. It’s good. It is work, but it’s the best kind of work, and there’s no one I’d rather work with!
+ - I have a promptness problem. I am a promptness-free zone.
+ - Well I’ve never used that phrase before, but yes she is bootylicious.
+ - Its not who you love. Its how.
+ - I don’t want to jump off the roof or jump for joy depending on my movie reviews, or whether it makes money. I think the larger, more meaningful things are family and the people you love.
+ - I think we all like to see ourselves as good dads, but there’s also that fear, ‘Oh, I don’t want to be like my father,’ or, ‘I hope my kid doesn’t turn out like me.’ You know, I have those feelings too. So the key is optimism.
+ - There are two things for a marriage to be good. One is to work hard on it. The other one is to marry above you. And I succeeded at both of those.
+ - Memories, all those little experiences make up the fabric of our lives and on balance, I wouldn’t want to erase any of them, tempting though it may be.
+ - I kinda see my current position like this: Here’s your five minutes in the toy store, so you gotta do all the good movies you can before ‘Chuck Woolery’ rings the bell.
+ - There is nothing worse that a thirteen-year-old boy. You’re embarrassed by your parents, and you’re trying to find your independance because, deep inside, you are so dependent on your mom.
+ - I grew up in a home environment where I wasn’t getting esteem for anything I did.
+ - Sometimes I get insecure about being a real director because I look at the great directors, and they have such command. But maybe that keeps me critical of myself. Maybe it keeps me moving forward.
+ - You get old, you slow down.
+ - I like the incongruity of how in Iran, these people we think of as being revolutionaries or fanatics or whatever are just as aware of Luke Skywalker and Darth Vader as our people are back home.
+ - When you hire great actors, you’re lucky, so you just try to create an atmosphere where they can succeed and relax and take risks. You’re happy that you get to watch them at the monitor and that your name is on the director’s chair.
+ - People ascribe a certain kind of silliness to the movie business. Everybody feels like, “In the movies, they do crazy stuff.”
+ - But when I felt like I had something to prove? Then I got up early every morning and worked all day long. I didn’t know if I had any more talent than anyone else directing, but I knew I could work hard at it, and so I did.
+ - No matter what you’re doing, if you’re trying to make a movie, you need to be working with people that are really good and who make you better.
+ - I have three women in the house. I get to be wrong three times a day.
+ - There’s a lot of noise in the world, and the internet magnifies that energy.
+ - I recognize that Hollywood is not about seniority. Often it’s not even a meritocracy. It’s about what you did yesterday. You have a couple of misses, and suddenly it’s impossible to find a hit. So the swings are gigantic. But I’ve always understood it as such, and navigated it as such.
+ - No actor forgets the times he couldn’t get a job. I think everyone doing this operates from that fear. You don’t want that momentum to stop when you get it.
+ - I simply asked if I could have a go at adapting a screenplay. But I did not want any money, in case I failed because I did not want a script out there with my name on it that might be completely dysfunctional.
+ - If you want to be able to use the powers of Flash and Wonder Woman and Cyborg, you have to have bad guys who are up to snuff and give them what they can really kind of get their cars out on the track and open up the accelerator a little bit.
+ - I’m terrible in the kitchen. I was mostly raised by my mother and she could cook, so I never perfected that skill. If I had to count on my own cooking to survive, I’d probably be thinner.
+ - I’m much more interested in what an actor has to say about something substantial and important than who they’re dating or what clothes they’re wearing or some other asinine, insignificant aspect of their life.
+ - People decided that I was the frat guy, even though I’ve never been inside a fraternity, or the guy who beat them up at school, even though that wasn’t me at all.
+ - One of the things it channelled in me was that experience that I’d had of wearing a big red leather thing on my upper torso in Daredevil with a mask I couldn’t see through and an outfit that completely inhibited movement, feeling humiliated and like a fool. I just recalled that.
+ - You know George M. Steinbrenner III is the center of all evil in the universe.
+ - A friend of my mom’s was a casting director so, really as kind of a lark, I had a couple of acting jobs that had just enough exposure to give me the option to continue if I wanted to. I followed through with it.
+ - I never really thought of myself as a beefcake kind of guy.
+ - Yes, I’m going to be the President of the United States. You know why? You think you can get chicks by being in the movies? You can really get chicks by being the President.
+ - Directing is monumentally complicated and it’s a function of all the time you pay to it. I think it would be great to do a movie I’m not in, I could just eat Fritos and just say, ‘yeah, it’s good!’ Some day.
+ - My mother went to Radcliffe, and rather than just trying to get rich, she wanted to be a teacher and taught for over 30 years in the public schools. She’s definitely got some war stories.
+ - After 2000 or so, I started to realize I wanted to be doing something else. I didn’t want to be in front of a camera. I was frustrated. I didn’t think I would stop acting, but I didn’t want to be seen.
+ - A lot of my shows in the past have been more theatrical than others, but you really get the bug for it when you direct on stage.
+ - When you are in your 20s and you’re not married with kids, you’re having fun. But when you’re in your 30s and you’re not married and don’t have kids, you begin to develop a Peter Pan complex. As you grow older, you have more responsibilities and you have to step up to them.
+ - If you think Hollywood is depressing and corrupt, politics is really depressing and corrupt – and fueled even more than Hollywood by money – if that’s possible.
+ - The thing about online gambling is that it’s never away, it’s always accessible. And so, if you have an issue with gambling, it’s designed to take advantage of that.
+ - Such a senseless and tragic day. My family and I send our love to our beloved and resilient Boston.
+ - I have definitely noticed that I care less about certain things. Other actors are like: “You can’t do that”, or “You can’t do this. This will position you in the wrong way.” That’s not my thing. And obviously so, because you can see I don’t craft or cultivate my career.
+ - I’ve got to work really hard and I know exactly what I’ve achieved because I know how hard I’ve worked, and I make sure to work as hard as I absolutely possibly can, because I know that’s the only shot I have at being successful.
+ - My mother gets all mad at me if I stay in a hotel. I’m 31-years-old, and I don’t want to sleep on a sleeping bag down in the basement. It’s humiliating.
+ - It wasn’t my childhood fantasy to work with Truffaut or be in obscure films. I like Midnight Run better than I like The Bicycle Thief. It was films like Die Hard and Bladerunner that made me want to be an actor.
+ - I don’t think the government should be involved in any way in people’s bedrooms or lives. With so much hatred and unpleasantness in the world, why would you want to get in the way of people who love each other marrying each other?
+ - I really think that everybody would like to be an actor. Why wouldn’t they? It’s great work if you can get it. The one thing that prevents most people from saying, ‘I’m just gonna go to Hollywood!’ is that it seems unrealistic.
+ - My father has positional vertigo, and if he flies he gets really dizzy, so he has to drive out to California, which he does a couple times a year. We talk, but we e-mail mostly.
+ - To answer the question, though: I didn’t always want to direct. I just liked the idea of it. If a friend was making a short and needed someone who knew screen direction, I would jump in. It would be horrible, but it led to a short, then another, and another. It was like student films.
+ - Online gambling is very seductive and very illusory. It can seem like a really good idea. It can seem like what people told you to work hard and get ahead, but when someone shows you something and it’s too good to be true, it probably is.
+ - I remember back when I was a kid there was a comic strip called Plastic Man. His body was elastic and he could make his extremities as long as he wanted. As a youngster I didn’t fully appreciate. But I’m now thinking Plastic Man was probably pretty popular with the ladies.
+ - Just because a lot of people know something nominal doesn’t make it important. A lot of people know what a pencil sharpener is, but that doesn’t make it the most important invention of the 20th century.
+ - I really feel that’s part of why audiences go to movies now is to take you to a world you have no access to, whether it’s the world of Avengers or Middle-earth or bars in Boston you would be afraid to go into. You see characters there – they aren’t hobbits but they’re close.
+ - I like roundtables because you can talk more directly to people. And you also can get kind of a vibe on what a journalist’s take is on something, and have a conversation with them more.
+ - You’re basically the sum of all the experiences you’ve ever had, and they’re sort of shaken up in you and reproduced in the things you create, and that includes seeing movies.
+ - I’m sure I can make a movie that doesn’t feel like a seventies movie! But the truth is, that’s my favorite era in American filmmaking. To me, those were the great years.
+ - Nobody goes to a movie and watches the script. There is a lot of other stuff going on.
+ - I thought I could rely on the plot in the novel and fill in the colour between the lines, but I made a mistake with that assumption. It was really, really hard because you pull a few things apart and then you realise how everything relies on everything else and it can all fall apart.
+ - If I could be somebody, it’d definitely be Brad Pitt. I love the way he looks.
+ - I’m in the worst place you can be. I sell magazines and not movie tickets.
+ - I’m not the most loathsome man in the world. I’ve dropped to number nine.
+ - You have to look also to the media, where you have a vast majority of the loudest and most influential political voices in America media from people who came from the entertainment world.
+ - The first Star Wars movie had come out in 1977 and had become this huge phenomenon with all the toys and everything – it just kind of swept America.
+ - My movies are unadorned, they’re not particularly fancy, I think they’re kind of workmanlike in some ways, focusing on the writing and the acting.
+ - Not that it entirely matters: There is a perception that all actors make their movies. A lot of people assume you’re responsible. George Clooney told me actors get all of the blame and all the credit.
+ - I like acting for myself as a director. I act and I know that I’ll have a chance to have some say in what gets used and that I’ll be able to give myself enough takes and be on the same page as myself about how the scene should play.
+ - Studios are used to have an investment in you, an actual, literal investment in an actor. You paid them some money, you had a contract with them and you were almost like a commodity.
+
+80 quotes

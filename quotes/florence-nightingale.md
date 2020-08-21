@@ -1,0 +1,89 @@
+ - I attribute my success to this – I never gave or took any excuse.
+ - Nursing is an art: and if it is to be made an art, it requires an exclusive devotion as hard a preparation as any painter’s or sculptor’s work.
+ - We are what we repeatedly do. Excellence, then, is not an act, but a habit. Aristotle How very little can be done under the spirit of fear.
+ - The very first requirement in a hospital is that it should do the sick no harm.
+ - Unless we are making progress in our nursing every year, every month, every week, take my word for it we are going back.
+ - Unnecessary noise is the most cruel abuse of care which can be inflicted on either the sick or the well.
+ - Never give nor take an excuse.
+ - Remember my name – you’ll be screaming it later.
+ - Live life when you have it. Life is a splendid gift-there is nothing small about it.
+ - So never lose an opportunity of urging a practical beginning, however small, for it is wonderful how often in such matters the mustard-seed germinates and roots itself.
+ - To understand God’s thoughts, one must study statistics, for these are the measure of His purpose.
+ - I use the word nursing for want of a better.
+ - I am not yet worthy; and I will live to deserve to be called a Trained Nurse.
+ - How very little can be done under the spirit of fear.
+ - I think one’s feelings waste themselves in words; they ought all to be distilled into actions which bring results.
+ - The most important practical lesson than can be given to nurses is to teach them what to observe.
+ - Apprehension, uncertainty, waiting, expectation, fear of surprise, do a patient more harm than any exertion.
+ - Nursing is a progressive art such that to stand still is to go backwards.
+ - If a patient is cold, if a patient is feverish, if a patient is faint, if he is sick after taking food, if he has a bed-sore, it is generally the fault not of the disease, but of the nursing.
+ - Women have no sympathy and my experience of women is almost as large as Europe.
+ - Rather, ten times, die in the surf, heralding the way to a new world, than stand idly on the shore.
+ - Nursing is one of the Fine Arts: I had almost said, the finest of Fine Arts.
+ - May we hope that, when we are all dead and gone, leaders will arise who have been personally experienced in the hard, practical work, the difficulties, and the joys of organizing nursing reforms, and who will lead far beyond anything we have done!
+ - Why have women passion, intellect, moral activity these, three and a place in society where no one of the three can be exercised?
+ - It is the unqualified result of all my experience with the sick that, second only to their need of fresh air, is their need of light; that, after a close room, what hurts them most is a dark room and that it is not only light but direct sunlight they want.
+ - Our first journey is to find that special place for us.
+ - A human being does not cease to exist at death. It is change, not destruction, which takes place.
+ - Mysticism: to dwell on the unseen, to withdraw ourselves from the things of sense into communion with God – to endeavour to partake of the Divine nature; that is, of Holiness.
+ - Passion, intellect, moral activity – these three have never been satisfied in a woman. In this cold and oppressive conventional atmosphere, they cannot be satisfied. To say more on this subject would be to enter into the whole history of society, of the present state of civilisation.
+ - I am of certain convinced that the greatest heroes are those who do their duty in the daily grind of domestic affairs whilst the world whirls as a maddening dreidel.
+ - Jesus Christ raised women above the condition of mere slaves, mere ministers to the passions of the man, raised them by His sympathy, to be Ministers of God.
+ - Poetry and imagination begin life. A child will fall on its knees on the gravel walk at the sight of a pink hawthorn in full flower, when it is by itself, to praise God for it.
+ - Patriotism is not enough, there must be no hatred or bitterness for anyone.
+ - The martyr sacrifices themselves entirely in vain. Or rather not in vain; for they make the selfish more selfish, the lazy more lazy, the narrow narrower.
+ - The night is given to us to take breath, to pray, to drink deep at the fountain of power.
+ - A nurse is to maintain the air within the room as fresh as the air without, without lowering the temperature.
+ - The next Christ will perhaps be a female Christ.
+ - Bismarck was a large persian cat owned by Florence Nightingale.
+ - In a sick-room or a bed-room there should never be shutters shut.
+ - The true foundation of theology is to ascertain the character of God. It is by the aid of Statistics that law in the social sphere can be ascertained and codified, and certain aspects of the character of God thereby revealed. The study of statistics is thus a religious service.
+ - The world is put back by the death of every one who has to sacrifice the development of his or her peculiar gifts to conventionality.
+ - You must go to Mahometanism, to Buddhism, to the East, to the Sufis Fakirs, to Pantheism, for the right growth of mysticism.
+ - I can expect no sympathy or help from my family.
+ - The time is come when women must do something more than the “domestic hearth,” which means nursing the infants, keeping a pretty house, having a good dinner and an entertaining party.
+ - The ‘kingdom of heaven is within,’ indeed, but we must also create one without, because we are intended to act upon our circumstances.
+ - The very elements of what constitutes good nursing are as little understood for the well as for the sick. The same laws of health, or of nursing, for they are in reality the same, obtain among the well as among the sick.
+ - For it may safely be said, not that the habit of ready and correct observation will by itself make us useful nurses, but that without it we shall be useless with all our devotion.
+ - Hospitals are only an intermediate stage of civilization.
+ - The amount of relief and comfort experienced by the sick after the skin has been carefully washed and dried, is one of the commonest observations made at a sick bed.
+ - Variety of form and brilliancy of color in the object presented to patients are an actual means of recovery.
+ - I stand at the altar of murdered men, and, while I live, I fight their cause.
+ - There is no part of my life, upon which I can look back without pain.
+ - Women should have the true nurse calling, the good of the sick first the second only the consideration of what is their ‘place’ to do – and that women who want for a housemaid to do this or the charwomen to do that, when the patient is suffering, have not the making of a nurse in them.
+ - People talk about imitating Christ, and imitate Him in the little trifling formal things, such as washing the feet, saying His prayer, and so on; but if anyone attempts the real imitation of Him, there are no bounds to the outcry with which the presumption of that person is condemned.
+ - The specific disease doctrine is the grand refuge of weak, uncultured, unstable minds, such as now rule in the medical profession. There are no specific diseases; there are specific disease conditions.
+ - For the sick it is important to have the best.
+ - Instead of wishing to see more doctors made by women joining what there are, I wish to see as few doctors, either male or female, as possible. For, mark you, the women have made no improvement they have only tried to be “men” and they have only succeeded in being third-rate men.
+ - The only English patients I have ever known refuse tea, have been typhus cases; and the first sign of their getting better was their craving again for tea.
+ - Woman has nothing but her affections, – and this makes her at once more loving and less loved.
+ - By mortifying vanity we do ourselves no good. It is the want of interest in our life which produces it; by filling up that want of interest in our life we can alone remedy it.
+ - Never underestimate the healing effects of beauty.
+ - The first possibility of rural cleanliness lies in water supply.
+ - That Religion is not devotion, but work and suffering for the love of God; this is the true doctrine of Mystics.
+ - All disease, at some period or other of its course, is more or less a reparative process, not necessarily accompanied with suffering: an effort of nature to remedy a process of poisoning or of decay, which has taken place weeks, months, sometimes years beforehand, unnoticed.
+ - The great reformers of the world turn into the great misanthropists, if circumstances or organization do not permit them to act.
+ - Moral activity? There is scarcely such a thing possible! Everything is sketchy. The world does nothing but sketch.
+ - Law is no explanation of anything; law is simply a generalization, a category of facts. Law is neither a cause, nor a reason, nor a power, nor a coercive force. It is nothing but a general formula, a statistical table.
+ - At present we live to impede each other’s satisfactions; competition, domestic life, society, what is it all but this?
+ - She said the object and color in the materials around us actually have a physical effect on us, on how we feel.
+ - Volumes are now written and spoken upon the effect of the mind upon the body. Much of it is true. But I wish a little more was thought of the effect of the body on the mind.
+ - Little as we know about the way in which we are affected by form, by color, and light, we do know this, that they have an actual physical effect.
+ - It is very well to say “be prudent, be careful, try to know each other.” But how are you to know each other?
+ - Never to allow a patient to be waked, intentionally or accidentally, is a sine qua non of all good nursing.
+ - No woman has excited “passions” among women more than I have. Yet I leave no school behind me.
+ - Asceticism is the trifling of an enthusiast with his power, a puerile coquetting with his selfishness or his vanity, in the absence of any sufficiently great object to employ the first or overcome the last.
+ - Starting a job and working hard is how to be successful.
+ - The account he gives of nurses beats everything that even I know of. This young prophet says that they are all drunkards, without exception, Sisters and all, and that there are but two whom the surgeon can trust to give the patients their medicines.
+ - Christ, if he had been a woman, might have been nothing but a great complainer.
+ - Can the “word” be pinned down to either one period or one church? All churches are, of course, only more or less unsuccessful attempts to represent the unseen to the mind.
+ - The family uses people, not for what they are, nor for what they are intended to be, but for what it wants them for- its own uses. It thinks of them not as what God has made them, but as the something which it has arranged that they shall be.
+ - There is a physical, not moral, impossibility of supplying the wants of the intellect in the state of civilisation at which we have arrived.
+ - Heaven is neither a place nor a time.
+ - There are no specific diseases only specific disease conditions.
+ - I can stand out the war with any man.
+ - We set the treatment of bodies so high above the treatment of souls, that the physician occupies a higher place in society than the school-master.
+ - A want of the habit of observing and an inveterate habit of taking averages are each of them often equally misleading.
+ - Perhaps, if prematurely we dismiss ourselves from this world, all may even have to be suffered through again – the premature birth may not contribute to the production of another being, which must be begun again from the beginning.
+
+87 quotes

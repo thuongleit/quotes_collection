@@ -1,0 +1,28 @@
+ - Live your Art. Don’t think about it.
+ - There is an invisible world out there, and we are living in it.
+ - Video artists being at the low end of the totem pole economically, one of the ways we survive is to go around showing work and giving these talks.
+ - It only takes a second for an impression to become a vision.
+ - There’s another world out there just beyond the world we’re in. It’s just on the other side of that translucent, semitransparent surface.
+ - Because we live in an industrialized, fast-paced world that prefers that the soul remain asleep.
+ - Since the time of St. Jerome, it was mandatory for any kind of scholar or thinker to spend time out in the desert in solitude. It’s no coincidence that the desert has been a major part of the visionary or mystical experience from the beginning of time.
+ - I like to keep the meanings in my work flowing and open.
+ - A doctor once told me that with crying you aren’t sure what its derivation is. If someone comes at you with a knife, you don’t cry: you scream, you try to run. When it’s over and you’re OK, that’s when you cry.
+ - Emotions are the key to many aspects of life. They are precisely the elements that make human beings human. I think the fact that emotions have been reduced and put off to the side in intellectual work, particularly in the 20th Century, is tragic.
+ - People have experiences in art museums today that they used to have in church.
+ - The electronic image is not fixed to any material base and, like our DNA, it has become a code that can circulate to any container that will hold it, defying death as it travels at the speed of light.
+ - I would prefer to be forgotten, then rediscovered in a different age.
+ - When I make my work, I am making what I hope to be something functional – a space for individual contemplation and reflection. I want my art to be useful.
+ - My works really begin in a very simple way. Sometimes it’s an image, and sometimes it’s words I might write, like a fragment of a poem.
+ - You are just as qualified as any expert to make a judgment and have a feeling or a response to any work of art.
+ - I spend a lot of time writing. I get inspiration from texts rather than images.
+ - The human brain is probably one of the most complex single objects on the face of the earth; I think it is, quite honestly.
+ - Art has always had as its test in the long term the ability to speak to our innermost selves.
+ - I don’t believe in originality in art. I think we exist on this earth to inspire each other, through our actions, through our deeds, and through who we are. We’re always borrowing.
+ - I think we’re in an age where artists really have an incredible range of materials at their command now. They can use almost anything from household items – Jackson Pollock used house paint – to, you know, advanced computer systems, to good old oil paint and acrylic paint.
+ - A lot of what making art is, is just being open, and empty. And putting yourself in the right place for things to, literally, come together.
+ - In the mid- to late ’60s to the mid-’70s, when I was a student, there was a major change in the thinking about what art can be and how art is made.
+ - Revolution is something that actually starts in individual hearts.
+ - I came of age at the end of the 1960s, just when video was also coming into the world. Companies such as Sony and Panasonic were starting to market it and we artists immediately knew how it could be used.
+ - I hope we’ll be able to see that in our lifetime: the end of the camera! When I’m in Paris, I’ll buy a big bottle of champagne and I’ll save it for that day, for the day when they’ll be no more camera.
+
+26 quotes

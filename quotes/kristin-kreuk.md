@@ -1,0 +1,32 @@
+ - Life is about change, sometimes it’s painful, sometimes it’s beautiful, but most of the time it’s both.
+ - I’d rather walk than drive a car. In Vancouver, where I am from, you can get to just about anywhere you need to go on foot. Even if it’s raining I’ll go out for a stroll. I just love that.
+ - Just because I don’t do bad things doesn’t mean I don’t have bad thoughts.
+ - It’s not that easy to find someone I can relate too. I’m tough to crack because I’m shy.
+ - When you have worked this hard to get this far, don’t let up because you finally got here. Finish with your heart and fulfill this moment the way you have dreamt of it for so long.
+ - I get uncomfortable in large groups of people and loud music.
+ - How we become moral and understand good and bad, and how we overcome our impulse towards violence, is all really important to me, as a person.
+ - In high school, I was the biggest procrastinator in the world.
+ - Your worth is not determined by your appearance, and your worth is not determined by what others think of you. I know those are easy words to say, and hard to feel. I am still working on this myself. But I am here working on it alongside you.
+ - I really don’t use that much make up – I’m pretty natural. I wear even less of it in the summer.
+ - I wasn’t raised with a specific religion. I wasn’t raised to judge people in any way.
+ - When I was in elementary school, I used to write letters to myself. I’d write letters and go ‘Dear Kristen-at-16-years-old, happy birthday. I hope you’re doing something.’
+ - I did gymnastics when I was growing up and to this day I can still do the splits.
+ - I don’t walk into a room with an authoritative stance. I tend to be a little more submissive, even though I think I have a certain amount of strength. So, it’s tough for me to play authority without feeling uncomfortable.
+ - I’d fly. I sit and watch the birds go by and say, I wish I could do that.
+ - I took piano for many years. I kicked and screamed through all of my lessons, but my mom really insisted.
+ - I can travel anywhere in the world and I can pretty much fit in.
+ - I didn’t play video games because my parents didn’t allow it. That was banned from my childhood experience.
+ - I was one of those kids who wanted to do everything, I wanted to be a marine biologist, an actress, a writer, an environmentalist, an activist.
+ - I love having messy hair. I put in a lot of effort to have it look as messy as possible.
+ - I love physical movement. Dance was my favorite thing, and I was a gymnast. I find that expression through movement is easier, in some ways, than expression through words.
+ - There isn’t a specific person in my mind that I’d want to play. Yet.
+ - If I like it, I’ll buy it; pure impulse shopping.
+ - Since I was a kid, I’ve been telling everyone about the rain forest and how it’s being destroyed.
+ - Basically I listen to just about everything except heavy metal.
+ - I think the education I’ve had as an actor I would never have had at university.
+ - I spill water on myself all the time at nice restaurants. I’ve run into poles and knocked myself out.
+ - I quit karate originally because it wasn’t something that I was initially passionate about.
+ - I never dreamed of being an actor, but I’m beginning to love it more and more because I like challenging myself. When I feel like I’m not learning or having fun anymore, then I’ll stop.
+ - I started doing martial arts when I was a kid. I don’t often get that kind of role, although I get to do it periodically, which is a lot of fun for me.
+
+30 quotes

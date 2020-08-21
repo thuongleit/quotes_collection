@@ -1,0 +1,45 @@
+ - In a time of destruction, create something.
+ - In a time of destruction, create something: a poem, a parade, a community, a school, a vow, a moral principle; one peaceful moment.
+ - I learned to make my mind large, as the universe is large, so that there is room for paradoxes.
+ - We’re all under the same sky and walk the same earth; we’re alive together during the same moment.
+ - A story can take you through a whole process of searching, seeking, confronting, through conflicts, and then to a resolution. As the storyteller and the listener, we go through a story together.
+ - To me success means effectiveness in the world, that I am able to carry my ideas and values into the world – that I am able to change it in positive ways.
+ - You can’t eat straight A’s.
+ - You’re too young to decide to live forever.
+ - Before we can leave our parents, they stuff our heads like the suitcases which they jam-pack with homemade underwear.
+ - It seems that writing chose me. I feel that because I know history, and I know the history of so many cultures; I have lived a large life.
+ - Gods you avoid won’t hurt you.
+ - Joy and life exist nowhere but the present.
+ - My job is my own only land.
+ - Adultery is extravagance.
+ - The work of preservation demands that the feelings playing about in one’s guts not be turned into action. Just watch their passing like cherry blossoms.
+ - I may be ugly and clumsy, but one thing I’m not, I’m not retarded.
+ - When you raise girls, you’re raising children for strangers.
+ - Reading Ngo Tu Lap’s poems, terrible nostalgia wells up in me- nostalgia for a lost time and a far-gone country, nostalgia for people I’ve loved, and for creatures of forests and rivers. I feel gratitude too. War is over. Peace arrives with these beautiful poems.
+ - Attraction eludes control so stubbornly that whole societies designed to organize relationships among people cannot keep order, not even when they bind people to one another from childhood and raise them together.
+ - Perhaps women were once so dangerous that they had to have their feet bound.
+ - Ocean people are very different from land people. The ocean never stops saying and asking into ears, which don’t sleep like eyes.
+ - Chinese Americans, when you try to understand what things in you are Chinese, how do you separate what is peculiar to childhood, to poverty, insanities, one family, your mother who marked your growing with stories, from what is Chinese? What is Chinese tradition and what is the movies?
+ - Hunger also changes the world – when eating can’t be a habit, then neither can seeing.
+ - The sweat of hard work is not to be displayed. It is much more graceful to appear favored by the gods.
+ - I’d like to go to New Society Village someday and find out exactly how far I can walk before people stop talking like me.
+ - People who can comfort the dead can also chase after them to hurt them further-a reverse ancestor worship.
+ - Do the right thing by whoever crosses your path. Those coincidental people are your people.
+ - No husband of mine will say, “I could have been a drummer, but I had to think about the wife and kids. You know how it is.” Nobody supports me at the expense of his own adventure.
+ - Not many women got to live out the daydream of women – to have a room, even a section of a room, that only gets messed up when she messes it up herself.
+ - Humans are basically good. That’s why it takes so much training to march march march kill kill kill kill.
+ - And I had to get out of hating range.
+ - There’s something in life that’s a curtain, and I keep trying to raise it.
+ - When I am composing, I try to clear my mind of having to publish, or having to sell a book or find readers. That kind of thinking gets in the way.
+ - I’m so proud that my offspring became a musician. I’m full of awe that we are able to have a whole family live the life of artists.
+ - Let my life as Poet begin. I want the life of the Poet. I have labored for over twelve years, one thousand pages of prose. Now, I want the easiness of poetry. The brevity of the poem.
+ - There can’t be a pure myth, especially when the myth has been handed down in the oral tradition. As the stories are told, they change. If the stories don’t change they just die.
+ - What does old look like? Sometimes I am wrinkled, sometimes not.
+ - The images of peace are ephemeral. The language of peace is subtle. The reasons for peace, the definitions of peace, the very idea of peace have to be invented, and invented again.
+ - I do not believe in old age. I do not believe in getting tired.
+ - Any merchant who advertises ‘Honest Scales’ must have been thinking about weighing them.
+ - How unlike a dead fish a live fish is.
+ - I learned to shoot more accurately because my teachers held the targets.
+ - I’ve been writing since I was 7, but before that, I was orally making stories.
+
+43 quotes

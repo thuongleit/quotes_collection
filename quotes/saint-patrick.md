@@ -1,0 +1,28 @@
+ - Christ beside me, Christ before me, Christ behind me, Christ within me, Christ beneath me, Christ above me.
+ - Christ be with me, Christ within me, Christ behind me, Christ before me, Christ beside me, Christ to win me, Christ to comfort me and restore me, Christ beneath me, Christ above me, Christ in quiet, Christ in danger, Christ in hearts of all that love me, Christ in mouth of friend and stranger.
+ - If I have any worth, it is to live my life for God...
+ - I pray to God to give me perseverance and to deign that I be a faithful witness to Him to the end of my life for my God.
+ - I arise today Through the strength of heaven: Light of sun, Radiance of moon, Splendour of fire. Speed of lightning, Swiftness of wind, Depth of sea, Stability of earth, Firmness of rock.
+ - Daily I expect to be murdered or betrayed or reduced to slavery if the occasion arises. But I fear nothing, because of the promises of heaven.
+ - Never trust a dog to watch your food.
+ - May the strength of God pilot us, may the wisdom of God instruct us, may the hand of God protect us, may the word of God direct us. Be always ours this day and for evermore.
+ - Before I was humiliated I was like a stone that lies in deep mud, and he who is mighty came and in his compassion raised me up and exalted me very high and placed me on the top of the wall.
+ - Let anyone laugh and taunt if he so wishes. I am not keeping silent, nor am I hiding the signs and wonders that were shown to me by the Lord many years before they happened, who knew everything, even before the beginning of time.
+ - I prayed in the woods and on the mountain, even before dawn. I felt no hurt from the snow or ice or rain.
+ - If I be worthy, I live for my God to teach the heathen, even though they may despise me.
+ - He who believes shall be saved, but he who does not believe shall be damned. God has spoken.
+ - I grieve for you, how I mourn for you, who are so very dear to me, but again I can rejoice within my heart, not for nothing have I labored, neither has my exile been in vain.
+ - Sufficient to say, greed is a deadly deed. You shall not covet your neighbor’s goods.
+ - The Lord opened the understanding of my unbelieving heart, so that I should recall my sins.
+ - I am not ignorant of what is said of my Lord in the Psalm: “You destroy those who speak a lie.” And again: “A lying mouth deals death to the soul.” And likewise the Lord says in the Gospel: “On the day of judgment men shall render account for every idle word they utter.”
+ - I am certain in my heart that all that I am, I have received from God.
+ - Christ in the heart of every man who thinks of me, Christ in the mouth of everyone who speaks of me, Christ in every eye that sees me, Christ in every ear that hears me.
+ - For after chastisement from God, and recognizing him, our way to repay him is to exalt him and confess his wonders before every nation under heaven.
+ - I am imperfect in many things, nevertheless I want my brethren and kinsfolk to know my nature so that they may be able to perceive my soul’s desire.
+ - So I live among barbarous tribes, a stranger and exile for the love of God.
+ - I am Patrick, yes a sinner and indeed untaught; yet I am established here in Ireland where I profess myself bishop. I am certain in my heart that ‘all that I am,’ I have received from God. So I live among barbarous tribes, a stranger and exile for the love of God.
+ - No one should ever say that it was my ignorance if I did or showed forth anything however small according to God’s good pleasure; but let this be your conclusion and let it so be thought, that – as is the perfect truth – it was the gift of God.
+ - I am Patrick, a sinner, most uncultivated and least of all the faithful and despised in the eyes of many.
+ - That which I have set out in Latin is not my words but the words of God and of apostles and prophets, who of course have never lied. He who believes shall be saved, but he who does not believe shall be damned. God has spoken.
+
+26 quotes

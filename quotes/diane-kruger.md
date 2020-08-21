@@ -1,0 +1,70 @@
+ - I don’t believe in marriage. I believe in a commitment that you make in your heart. There’s no paper that will make you stay.
+ - What you wear is such an expression of who you are. That’s like someone picking out who I’m going to date!
+ - It’s fun being one of the boys. It’s fun to have a character that’s rough and gets down and dirty and not to be this precious girl who just sits in the corner and just sort of stands by the action.
+ - I don’t want to live my life in a five-star hotel. That’s not real life to me. You can’t appreciate it.
+ - People should get married at the end of the road, not the beginning.
+ - I do give myself a break in my personal life but I think in work, if you don’t push yourself you get bored and want to do something else.
+ - The only song I can sing is Lady in Red so that must tell you how great it must have been.
+ - Berlin is still going through a transition since the Cold War – both in what used to be East and West Berlin. I can still sense the confusion and the struggle for identity there in the streets. There’s a pulse to it.
+ - I don’t want to let my life as a woman pass me by. There’s a time to work, there’s a time to be young and crazy, and there should be a time to enjoy motherhood. I’m actually looking forward to that.
+ - I never thought I would have an opportunity to act in the United States, and continue to expand my career outside of Europe. To be honest, my reality is bigger than I would have ever dared to dream.
+ - I love Nic Cage. He was so much fun to work with.
+ - With modeling, you pose. You want to look your best all the time. With acting, you have to be aware of the camera, but the more you show your imperfections, the better you’re going to be.
+ - I truly, genuinely like clothes. Making them is an art form, and wearing them is a form of self-expression. I find it very emotional because I can remember moments in my life – my mood, how I felt – through these clothes.
+ - I don’t know how you prepare for something like that. I cannot imagine living in a fishbowl like that. I don’t live here so I don’t know it will be that bad anyway because I live in Paris and we don’t have that sort of phenomenon there. So I don’t know, we’ll see what happens.
+ - You should be smart enough to know that you don’t know everything. But you have to believe in yourself. I certainly do.
+ - I feel as if sometimes women can’t deal with what’s going on and they have no one around who actually understands.
+ - I’m European, small, dainty – but I actually consider myself more of a tomboy.
+ - I like to stay fit by being generally active.
+ - Looking back at it now, I really feel like it was a gift because I don’t know if I have the talent to become a prima ballerina. It’s such a hard job to have. I don’t have any regrets about it.
+ - But quite honestly, personally, I was much more concerned – I mean, there’s not much I can do about my appearance obviously other than spending four hours in hair and makeup.
+ - Her beauty didn’t do her any good and she couldn’t use it in any positive way or manipulative way. I just hope that people will look and see and believe in that hope of love, that hope of freedom, even if it was just for a limited time.
+ - I don’t know about style. I know about my personal style.
+ - I really feel like the first day I went to drama school and I went up on stage, that I found my vocation. It’s kind of a cliched thing to say but I really feel like it was what I was meant to do.
+ - When you are in a relationship, you want the other person to appreciate the things you like. It sounds superficial, but it’s nice.
+ - I get offered a World War II movie at least once a week just because I speak German and was born there. I have always stayed away from it because I didn’t want to be put into that box.
+ - Family is becoming more and more important to me.
+ - Orlando’s a really cool guy. They hired him for ‘Lord of the Rings’ out of drama school. He’s very new at this still and doesn’t have a lot of experience. So we were in this together and we’ve tried to help each other out. We felt very equal which was good.
+ - I made a French film called ‘Merry Christmas’ which is a very European film. It’s a World War I piece.
+ - Above all, I dislike vulgarity.
+ - I’m not one of those women who thinks beauty is a curse.
+ - I am a better person when I let myself have the time for romance and for love.
+ - I grew up with classical music when I was a ballet dancer. Now when I have to prepare an emotional scene, to cry or whatever, I listen to sonatas. Vivaldi and stuff. It’s just beautiful to me.
+ - I realized through my personal travels how little I know about certain conflicts, because I was too vain or self-absorbed to ask the questions. That’s been the focus while I’m in my thirties – to become an accomplished woman, rather than some actress.
+ - It’s taken me a long time to realize that my own life is far more interesting than any part I’ll ever play.
+ - I know a lot of people think, ‘She’s so glamorous.’ But that’s really not me at all.
+ - I’m not a very good impersonator, my friends maybe, but not famous people.
+ - Being German, I think we don’t really express a lot of things.
+ - People always think I’m dainty when they meet me, but I’m really not. I’m very German – we’re not made out of sugar.
+ - I have three goddaughters – I’m not sure why they trust me, because I have no experience with children – but I try.
+ - You can learn any accent you want. It’s a fascinating thing.
+ - I dreamt of becoming a ballet dancer. I studied with the Royal Academy of London for 11 years, and that did not pan out, but my love for being on stage was born there. And then, I actually went to drama school in Paris, France. That’s where it first started.
+ - I only dance when I go out.
+ - I grew up loving actresses or actors who were very classy but who seemed a little bit mysterious because you couldn’t grasp what they’re really thinking. I mean, Grace Kelly always looked impossibly glamorous, yet you could always see there was something behind her eyes.
+ - I don’t have to work just to work anymore. More interesting parts come my way, so I can afford to say, ‘I don’t want to make that.’
+ - The real challenge is to give a really nuanced performance and really push myself, to make sure that we see a very complete picture of a woman living with Asperger’s. Of course, I’m always intrigued. I learn so much from the show about storylines that actually happen on the border.
+ - Every actor you learn from, take something from everyone – big actor or not. Whether they’re big movie stars or not doesn’t really matter.
+ - You have to have the passion. I could not live if I wasn’t an actor. If you’re just in it for beautiful dresses and movie stars, then I think you should not be an actor.
+ - A well-cut dress is my personal style. I definitely like it classic; less is more. The thing I despise most is vulgarity.
+ - What I really tried to do with Helen was make her show this sad side of her. She was married off at 16, was so young and living in this castle that can’t leave because of how she looks, and married to a man she hates and three times her age.
+ - My sport is biking. I’m not much of a gym person, but I like being outside – hiking, canoeing, camping.
+ - A lot of directors idealize their leading ladies or turn them into these objects of sexuality and beauty.
+ - I don’t make movies thinking: ‘Oh, this is going to be a huge box-office hit.’
+ - I have a kind of boring personal life, to the paparazzi anyway, and I don’t hang with the cool crowd.
+ - The ultimate art form of fashion is couture. I completely geek out when it comes to couture. It shows fashion as it used to be. I don’t know how many people can actually afford the clothes, but in a way, that’s beside the point.
+ - I would do anything for a part, nearly anything. Being in movies doesn’t mean being pretty.
+ - Sometimes you can write a great scene, but when you’re actually in a situation and it doesn’t work, you have to be flexible enough to make it work for you.
+ - I play a curator, the most American part you can think of. My work is to protect the Declaration of Independence. I work at the National Archives in Washington.
+ - I consider myself a ‘local’ actor in France. I started out in France, I went to drama school in France and the French film community was very welcoming to me when I was a young actress.
+ - I don’t obsess about my weight. I just know I’ve got to watch it when my pants feel tight.
+ - What counts in Hollywood is box office. It doesn’t really matter what people think of you as an actor because, as long as you have been in a movie that has made money, you will always get another job.
+ - Yeah, to me, acting is very therapeutic. I get out a lot of anger and frustration.
+ - I come from a very small rural village in northern Germany, and being an actor never even seemed like a possibility. I thought you would have to live in a big city, or be discovered somewhere, or be born into an artistic family, which I certainly wasn’t.
+ - I like the idea of accessibility, coming from a lower-middle-class background myself, I feel like beauty and products should be accessible to all women over the world.
+ - Hopefully, every character that I take on, as I grow older, becomes more interesting. Obviously, as I grow older, I have more to bring to the table and more experiences that I’ve lived myself, so I’m hoping that I can color my characters, more and more.
+ - I didn’t grow up watching a lot of TV.
+ - It’s quite a famous story that takes place on Christmas Eve, and the Germans, French, and Scottish are trying to make peace one night and they bury their dead and they play football. I play a German opera singer, in German, which I never have so I am really excited about that.
+ - I think they went with the idea that people know the story pretty much- knowing that he’s going to take her when she’s going to go with him. Also, the movie is really focused on Achilles and Hector and their battles.
+ - I do watch what I eat, but not for weight reasons.
+
+68 quotes

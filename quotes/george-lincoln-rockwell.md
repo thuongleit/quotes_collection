@@ -1,0 +1,21 @@
+ - Communism is as Jewish as the Mafia is Italian. It’s a fact that almost all of the convicted spies for communism have been atheist Jews like the Rosenbergs. And international communism was invented by the Jew Karl Marx and has since been led mostly by Jews – like Trotsky.
+ - It is not the evil itself which is horrifying about our times – it is the way we not only tolerate evil, but have made a cult of positively worshipping weakness, depravity, rottenness and evil itself.
+ - We must put an end to both economic freeloading and economic exploitation in America. There must be no place for parasites who draw their sustenance from society without giving anything in return.
+ - The color of your skin is your uniform in this ultimate battle for the survival of the West.
+ - We must never again let America be led into a fratricidal war like the last two world wars, for the sake of alien, minority interests.
+ - Revolution is a spectators sport. The majority will sit in the stands and watch the factions fight. At the end they will choose side with the team that is winning.
+ - Hitler produced a local “lab experiment”; he provided me with an ideology in the same way that Marx provided one for Lenin. My task is to turn this ideology into a world movement.
+ - White Man, let us stand together to secure the survival of your people and my people, for they are one and the same – they are our beloved, miraculous, wonderful, blessed and masterful white race!
+ - Being prepared to die is one of the great secrets of living.
+ - We are the new “barbarians”, forged in iron hardness in the fires of their hate and persecution. All over the world, we wait to pounce...
+ - I knew I would not live to see the victory which I would make possible. But I would not die before I would make that victory certain.
+ - I think the average Jew is probably sharper intellectually than the average gentile, because for years and years he’s had to live by his wits. Consequently, there has evolved a race of Jews who are more agile mentally than the rest of us.
+ - We must make it an imperative duty of our government to protect the gifts which Nature has bestowed on America and to insure the maintenance of a clean, healthy, wholesome environment for our people.
+ - Jews talk a lot about God. But actually their god, just like Marx said, is money. Cash!
+ - This time we’ll hate, alright – but we’ll hate the ENEMY – the vicious gang of colored scum attackers and Jewish-Communist traitors – rather than one part of our own people hating another part for the benefit of the Jews and their army of SCUM!
+ - I think it’s wrong, ladies and gentlemen, for anybody to to be terrorized out of investigating anything. You have the right to read any book. You have the right to hear any speaker and that includes the vile communist that I’d just as soon gas – but you ought to hear him before we gas him.
+ - We must have an America in which White men and women can live and work, in their homes and in the streets of our cities, without fear.
+ - I just think you people would be happier back in Africa where you came from.
+ - Evolution shows that in the long run, if the superior mixes with the inferior, the product is halfway between, and inferior to what you started with in the original superior group – in other words, mongrelized.
+
+19 quotes

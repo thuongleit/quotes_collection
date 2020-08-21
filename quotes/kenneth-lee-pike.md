@@ -1,0 +1,33 @@
+ - Outward failure may be a manifested variant of inward success.
+ - Language is a tool adequate to provide any degree of precision relevant to a particular situation.
+ - If language did not affect behavior, it could have no meaning.
+ - The price that one pays for refusing to act on the truth as one sees it, is to be led to believe untruth to avoid guilt.
+ - The view of the local scene through the eyes of a native participant in that scene is a different window.
+ - Identity in the form of continuity of personality is an extremely important characteristic of the individual.
+ - Acceptance of the power of God in one’s life lays the groundwork for personal commitment to both science and Christianity, which so often have been in conflict.
+ - When I conform to truth, I do not conform to an abstract principle; I conform to the nature of God.
+ - The marvelous thing is that even in studying linguistics, we find that the universe as a whole is patterned, ordered, and to some degree intelligible to us.
+ - Revelation and the nature of truth must be viewed in reference to the structure of language.
+ - If I were to adopt pure mechanism as a philosophy, there would be no way I could choose to be a scholar.
+ - Only when we have enough mental stress to force us to see our own bankruptcy of power, do we trust in God, and only when we trust in God can we make a contribution which will not collapse.
+ - Nobody is as good as he thinks he is.
+ - Verbal and nonverbal activity is a unified whole, and theory and methodology should be organized or created to treat it as such.
+ - Courage to continue comes from deeper sources than outward results.
+ - The deepest sins are camouflaged as holiness.
+ - Without a possibility of change in meanings human communication could not perform its present functions.
+ - All of salvation is to make us look good! We who are dirty, worn, broken, and sinful are to be the showcase of heaven.
+ - Fruitful discourse in science or theology requires us to believe that within the contexts of normal discourse there are some true statements.
+ - There is no truth without responsibility following in its wake.
+ - The detached observer’s view is one window on the world.
+ - The universe extends beyond the mind of man, and is more complex than the small sample one can study.
+ - Today’s practicality is often no more than the accepted form of yesterday’s theory.
+ - If the scholar feels that he must know everything about any topic, he is in trouble – and will not publish with a clear conscience.
+ - God cannot be reduced to a sample for analysis.
+ - Language is not merely a set of unrelated sounds, clauses, rules, and meanings; it is a total coherent system of these integrating with each other, and with behavior, context, universe of discourse, and observer perspective.
+ - Normal social behavior requires that we be able to recognize identities in spite of change. Unless we can do so, there can be no human society as we know it.
+ - Christianity stands or falls as a living program, a way of life, made concrete in the life of man by the life of God through the life of the concretely living Christ.
+ - With acknowledgement of residues, we can be more easily prepared to grant the unit of science, the overlapping of disciplines, and the total coherence of all facts.
+ - I wanted a theory that would allow one to live outside the office with the same philosophy one uses inside it.
+ - It is also, I would guess, a universal that in all societies people value respectability granted to them.
+
+31 quotes

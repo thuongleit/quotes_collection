@@ -1,0 +1,77 @@
+ - No one can take away your pain, so don’t let anyone take away your happiness.
+ - Healing takes time, and asking for help is a courageous step.
+ - You survived the abuse, you’re going to survive the recovery.
+ - No one can tell you who you are and what you are made of, only you yourself know what you are made of, and only you yourself can do the work to become who you want to be.
+ - Life begins at 40, and I’m living proof.
+ - It’s a life’s journey of finding ourselves, finding our power, and living for yourself, not for everyone else.
+ - By coming forward and sharing your story, you don’t know the countless lives you change.
+ - Being thin is not more important than enjoying life.
+ - I was lucky enough to have a father who said, ‘Don’t quit.’ So I just kept going.
+ - In life you have two choices. You can laugh or you can cry. You have to laugh, you have to.
+ - I don’t have to be an expert. I just have to care.
+ - Criminals are just regular people who didn’t have time to read all the laws.
+ - Losing my mother at such an early age is the scar of my soul. But I feel like it ultimately made me into the person I am today; I understand the journey of life. I had to go through what I did to be here.
+ - When my body is strong, I feel stronger inside. I feel more capable of handling emotional situations. Usually I’m more of a inside-out person, but this was a great case of me from the outside in.
+ - People who overcome their fears every day, without fanfare, without recognition. Quiet, everyday courage, that’s what I admire most.
+ - But trust can take you a long way. And my faith takes me a long way. And I think that our pains, our vulnerabilities, and our insecurities can fuel us to be better. To try harder. To dig deeper.
+ - I’m a big believer that your word is your wand. You know how people say things like, ‘Oh my gosh, I’m such an idiot.’ I don’t say things like that anymore. Those put-downs, even if they’re in jest, are little bullets of negativity that you don’t need in your life.
+ - I’m just grateful that my body is healthy. I want to be on this planet for a long time, so I try to eat things that make me feel good and make me strong. But I also love food and I love life: Some days having that extra bowl of pasta and a Reese’s Peanut Butter Cup means more to me than being thin.
+ - Just smiling at someone walking down the street can make the person’s day. It’s all about paying it forward.
+ - You’ve got to kick fear to the side, because the payoff is huge.
+ - I look at all the things life has allowed me to do, and I feel like the luckiest person in the world.
+ - Being sexy is just one part of being a woman and an actress. But if the part calls for sexy...
+ - Having a child changes everything. All of a sudden you have so much to lose, so much to live for.
+ - I am grateful that I didn’t let fear get the best of me. It only holds you back from possibilities and greatness.
+ - The experience of being cared for is profound, and it nourishes the soul as much as the food does the body.
+ - You know how you wake up in the morning and sometimes you look gorgeous and other times you look like you got hit by a mack truck? I realized that my mack truck is food. If I have no sugar, yeast or wine, I have no undereye bags and my skin is perfect.
+ - I wasn’t at all trying to be skinny, My Mom is Jayne Mansfield, I’m allowed to have curves.
+ - If I eat clean, I look 10 years younger.
+ - Chocolate is the first luxury. It has so many things wrapped up in it: Deliciusness in the moment, childhood memories, and that grin-inducing feeling of getting a reward for being good.
+ - I definitely have my days where I look like I got dressed in the dark.
+ - Every day is deeper and richer and more soulful.
+ - Sexual assault and domestic violence are difficult things to talk about. Talk about them anyway.
+ - Humor is about perspective, and hanging out with people who see life through a similar lens is so important.
+ - To me, the definition of sexy – at any age – is strength and confidence.
+ - We’re all connected. Helping another woman is helping yourself, your mother, your sister, your children.
+ - Sometimes things in life happen that allow us to understand our priorities very clearly. Ultimately you can see those as gifts.
+ - Adoption was a bumpy ride – very bumpy. But, God, was it worth the fight.
+ - I’m a water person; water heals.
+ - I realize that you have to show up for your life.
+ - They say that the average lifespan of an SVU detective is 4 years. People can’t do it longer than that because it’s so difficult.
+ - Just having someone make you laugh so hard that it hurts is so healing to me.
+ - I’m living every ten-year-old boy’s fantasy. The other day, Chris and I had this big scene where we had to pull out our guns, and I was thinking, ‘Here we are in New York City – a place where every actor wants to be – and we are literally playing cops and robbers. How great is that?’
+ - Italian culture is so deeply soaked in an appreciation of the good things in life.
+ - My Dad taught me that good health is all about living in gratitude.
+ - Fifty years ago my Mother stood on this stage accepting this award; She was fortunate enough to have my Dad with her. Fifty years later, I’m fortunate enough to have my Dad with me. I love you, Dad.
+ - Eric Lewis doesn’t play the piano, he devours it. He doesn’t play music, he channels the divine.
+ - I am proud to be a role model for my viewers. I am finding out that helping victims is as or more rewarding the all the awards I win.
+ - When I was pregnant, I was so huge and people on the bus would get up for me. That made me feel so precious and valued and valuable. I try to treat everyone like they’re pregnant.
+ - Surviving and thriving in the wake of my mothers loss, I learned to believe in God. He has a plan, if you pay attention to the signs. I am inspired by the absolute proof of miracles.
+ - I think because I became a mom later in life, everything in life means more.
+ - I’m a size 8, and I feel proud of that, because it’s healthy. I’ve never felt compelled to be a skinny actress.
+ - When I was in my early 20s, I had my hair permed. Bad Idea! It turned into total frizz. My advice to women is: if you have nice hair already, don’t get a perm, leave your hair alone.
+ - A guy at ABC told me to change my name and get a nose job. I said ‘You get a nose job.’
+ - Our early dating life consisted of trying to figure out whether we were dating.
+ - I think God runs the show. Completely. Life proves it every day: He runs the show.
+ - There’s so much that you can get mad about. Out of self-preservation, I focus on being grateful.
+ - It wasn’t really that hard to act when you see somebody holding a gun to your partner. It’s also believing the circumstances and I believed it.
+ - I have a more developed sense of my priorities. Life has so much more meaning now.
+ - My weekends are extremely precious.
+ - If I can play a little part in the world’s healing, and making it a better place than when I came, then I just thank God for that chance.
+ - I’ve got no problems with my age. I rejoice in the knowledge I have accrued and savor the greatest moments, because I know how fast it goes.
+ - I think people were expecting me to be that kind of glamorous sexpot. So they were always, Wow you’re not what I expected.
+ - I want to be a fun mom. Not a gasping for air mom.
+ - I get very excited about my double stroller. Every time I look at it, I get a shot of adrenaline and joy because I think, This is real!
+ - Golf made me feel like a loser. So I dismissed it.
+ - If you stop for one second and do something, everyone is happy. You pay it forward and it comes back to you twelve-fold.
+ - When I read the script sometimes, it’s like ‘Christ! Enough!’ I can’t sleep at night sometimes. There’s the occasional script that just hammers you, that you can’t shower off.
+ - It’s very difficult leaving the house anytime with my baby at home.
+ - I have so much love that I didn’t even know about.
+ - I have a nest egg, and I don’t buy above my means.
+ - As an actress, there were so many months, years even, when I didn’t get work, when I wanted to quit.
+ - You make sacrifices to become a mother, but you really find yourself and your soul.
+ - Becoming a parent erased many of my negative childhood feelings and filled them in with something new.
+ - I say to everybody, ‘Adoption is not for the faint of heart.’
+ - The only reason I have the career I have is that I didn’t quit.
+
+75 quotes

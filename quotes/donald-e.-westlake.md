@@ -1,0 +1,32 @@
+ - The trouble with real life is, there’s no reset button.
+ - As we struggle with shopping lists and invitations, compounded by December’s bad weather, it is good to be reminded that there are people in our lives who are worth this aggravation, and people to whom we are worth the same.
+ - When the phone rang, Parker was in the garage, killing a man.
+ - Nobody gets everything in this life. You decide your priorities and you make your choices. I’d decided long ago that any cake I had would be eaten.
+ - Sorry; I have no space left for advice. Just do it.
+ - Christmas shows us the ties that bind us together, threads of love and caring, woven in the simplest and strongest way within the family.
+ - In order to hold your faith intact be sure it’s kept unsullied by fact.
+ - When the guy with asthma finally came in from the fire escape, Parker rabbit-punched him and took his gun away.
+ - When Stark isn’t off sulking somewhere, or whatever he’s doing when he won’t return my calls, I alternate between the two. That usually works well, though occasionally an idea for the wrong guy drifts through my mind.
+ - Everybody in New York is looking for something. Once in a while, somebody finds it.
+ - Whenever things sound easy, it turns out there’s one part you didn’t hear.
+ - I make a note, set it aside, and hope it makes sense when the time comes to look at it again.
+ - The August sun, God’s blood-blister...
+ - All of the changes in publishing since 1960 are significant. There are far fewer publishers.
+ - Seem to be telling this, but really telling that. Three-dimensional writing, like three-dimensional chess. Nabokov was the other master of that. You could learn something from Nabokov on every page he ever wrote.
+ - Nothing about it interested me. Or about anything else, except making up stories. If literacy weren’t so nearly universal, God knows what I’d be. A drain on the State, I shouldn’t wonder.
+ - My work schedule has changed over the years. The one constant is, when at work on a novel, I try to work seven days a week, so as not to lose touch with that world. Within that, I’m flexible on hours and output.
+ - The fictioneer labors under the constraint of plausibility; his inventions must stay within the capacity of the audience to accept and believe. God, of course, working with facts, faces no limitation.
+ - Who’s a boy gonna talk to if not his mother?
+ - If you think of movie studio executives, say, as society, then I root for the independent producers.
+ - Once he became a series character, I made the conscious choice that he would never act like a series character, never wink at the reader, never pull his punches. Better for him, better for me.
+ - If Chester had a failing, it was that he believed people were what they thought they were.
+ - If it weren’t for received ideas, the publishing industry wouldn’t have any ideas at all.
+ - My mother believed in all superstitions, plus she made some up.
+ - I loved it, but social reality impeded. Now I wander in here at 9 in the morning or so, and come back for a while in the afternoon. I am a very lenient boss.
+ - I start with the story, almost in the old campfire sense, and the story leads to both the characters, which actors should best be cast in this story, and the language. The choice of words, more than anything else, creates the feeling that the story gives off.
+ - The many magazines, ranging from pulp to slick, that used to serve as both farm teams for writers and lures to readers, with hundreds of short stories every month, don’t exist. Most of the doors for new people have been sealed.
+ - Hoke Moseley is a magnificently battered hero. Willeford brings him to us lean and hard and brand-new.
+ - A friend of mine, now retired, was then a major exec at a major bank, and one of her jobs, the last four years, was the farewell interview.
+ - Eyes wide and blank as the buttons on a first Communion coat.
+
+30 quotes

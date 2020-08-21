@@ -1,0 +1,93 @@
+ - Every minute you spend with someone gives them a part of your life and takes part of theirs.
+ - Growing apart doesn’t change the fact that for a long time we grew side by side; our roots will always be tangled. I’m glad for that.
+ - The beauty of dystopia is that it lets us vicariously experience future worlds – but we still have the power to change our own.
+ - When we read dystopia, we root for these people to break free because we are these people; hoping and fighting against things that are bigger than ourselves.
+ - Once you want something, everything changes. Now I want everything. More and more and more.
+ - Reading the situation correctly is part of getting through it safely.
+ - We could have been happy. I know that, and it is perhaps the hardest thing to know.
+ - For what is the point of having something lovely if you never share it? It would be like having a poem, a beautiful wild poem that no one else has, and burning it.
+ - You cannot change your journey if you are unwilling to move at all.
+ - And it is strange that absence can feel like presence.
+ - There is something extraordinary about the first time falling.
+ - Theres nothing like reading about a world that feels dead to throw your own beautiful, colorful life into sharp relief.
+ - Do you think you could let someone go if you thought it was best for them?
+ - Remembering is part of thinking, but not all of it.
+ - Our time together feels like a storm, like a wild wind and rain, like something too big to handle but too powerful to escape.
+ - It is strange how we hold on to the pieces of the past while we wait for our futures.
+ - So in the middle of all the noise, I point to the sky. I hope he understands what I mean, because I mean so many things: My heart will always fly his name. I won’t go gentle. I’ll find a way to soar life the angels in the stories and I will find him.
+ - We don’t need to understand everything.
+ - I’m just a butterfly, a mourning cloak, sealed inside a cocoon with blnd eyes and stiky wings. And suddenly I wonder if the cocoons sometimes do not open, if the butterfly inside is ever simply not strong enough to break through.
+ - How can we appreciate anything fully when overwhelmed with too much?
+ - And I laugh at myself for thinking I could touch the sky.
+ - There is ebb and flow. Leaving and coming. Flight and fall. Sing and silent. Reaching and reached.
+ - Red is the first color of spring. It’s the real color of rebirth. Of beginning.
+ - I came up on the screen, too, Cassia. But he was the one you chose to see.
+ - I see his eyes, bright with life adnfire, and I know he won’t stop fighting. Even if it’s the kind of quiet fight on the inside that you can’t always see. And I won’t stop fighting either.
+ - In the end you can’t always choose what to keep. You can only choose how you let it go.
+ - I know how it feels when people look right through you, or worse, see you as something or someone other than what you are.
+ - I’m falling in love. I am in love. And it’s not with Xander, though I do love him. I’m sure of that, as sure as I am of the fact what I feel for Ky is something different.
+ - Two little dark figures, looking up. Are they looking at me? Is is him? This far away there’s only one way to know. I point to the sky.
+ - It’s been so long since I’ve let myself feel anger that I don’t just feel it. It covers my mouth and I swallow it down, the taste sharp and metal as though I’m gnawing through foilware.
+ - It is one thing to make a choice and it is another thing to never have the chance.
+ - When you can’t cry because all you are is pain, and if you let some of it out, you might cease to exist.
+ - And as the Society reminds us, there’s a difference between knowledge and technology. Knowledge doesn’t fail us.
+ - Being with Ky, being with Xander -both things feel like standing in the light. Different types of light, but neither feels dark.
+ - There’s a reason they didn’t keep this poem. This poem tells you to fight.
+ - Because I feel no anger toward my mother. Only loss, and loss is a feeling you can’t fight your way out of as easily.
+ - I want to reach out and grab his hand and hold it to me, right over my heart, right where it aches the most. I don’t know if doing that would heal me or make my heart break entirely, but either way this constant hungry waiting would be over.
+ - Is falling in love with someone’s story the same thing as falling in love with the person himself?
+ - Love changes what is probable and makes unlikely things possible.
+ - This is a cruel thing to do because when someone knows your story they know you. And they can hurt you. It’s why I give mine away in pieces, even to Cassia.
+ - It’s not knowing how to write that makes you interesting, it’s what you write.
+ - I run for her. I run for them. For me.
+ - Even if he didn’t live his story, enough of us have lives just like it. So it’s true anyway.
+ - No one should die alone.
+ - And I’ll tell her that I don’t want my life to be samples and scraps. A taste of everything but a meal of nothing.
+ - This is a difficult balance, telling the truth: how much to share, how much to keep, which truths will wound but not ruin, which will cut too deep to heal.
+ - Everyone has something of beauty about them.
+ - I never named anything I’ve written before no reason to since it would all have the same title anyway -for you- but I would call this one one night that night when we let the world be only you and only me we stood on it while it spun green and blue and red the music ended but we were still singing.
+ - Which one is the true one, I don’t ask, they don’t tell.
+ - Forgetting lets you live without the pain for a moment but remembering hits hard.
+ - Does loving someone mean you want them to be safe? Or that you want them to be able to choose?
+ - I think of how perhaps the best way to fly would be with hands full of earth, so you always remember where you came from.
+ - I wonder if I will ever have the strength to hold onto something. Or if I will always be someone who destroys.
+ - I realize now how much courage it takes to choose the life you want, whatever that might be.
+ - And it strikes me that this is how writing anything is, really. A collaboration between you who give the words and they who take them and find meaning in them, or put music behind them, or turn them aside because they were not what was needed.
+ - Words mean what you want them to mean.
+ - Some people think the stars must look closer from up here. They don’t. When your’e up here, you realize how distant they really are – how impossible to reach.
+ - If you let hope inside, it takes you over. It feeds on your insides and uses your bones to climb and grow. Eventually it becomes the thing that is your bones, that holds you together. Holds you up until you don’t know how to live without it anymore. To pull it out of you would kill you entirely.
+ - Cassia and I sit as near to each other as we can. She leans into me and I keep my arms around her. I don’t fool myself that I hold her together- she does that on her own- but holding her keeps me from flying apart.
+ - Ky can play this game. He can play all of their games, including the one in front of him that he just lost. He knows exactly how to play, and that’s why he loses every time.
+ - Sometimes paper is just paper, words are just words. Ways to capture the real thing. Don’t be afraid to remember that.
+ - Did the poet know how lucky he was, to have such beautiful words and a place to put them and keep them?
+ - Because either way, whichever life I build, has to be built on truth.
+ - None of that is supposed to matter. But somehow, it does.
+ - I love. The most reckless thing of all.
+ - Now that I’ve found the way to fly, which direction should I go into the night?
+ - In the absence of real thunder, he’s making his own.
+ - What is it about your voice that makes me want to hear you speak?
+ - His lips move silently, and I know what he says: the words of a poem that only two people in the world know.
+ - I wish I could have one without the other, but that’s the problem with being alive. You don’t usually get to choose the measure of suffering or the degree of joy you have.
+ - We can either try to change everything or just make the most of whatever time we have.
+ - Lightning. Once it has forked, hot-white, from sky to earth, there is no going back.
+ - It’s never really lost to you as long as you remember it.
+ - Because once you love, it is gone. You love and you cannot call it back.
+ - Everything I dream is something simple and plain and everyday. That’s how I know they are dreams. Because the simple and plain and everyday things are the ones that we can never have.
+ - He’s in pain. I am, too. It strikes me that perhaps this is part of what we are fighting to choose. Which pain we feel.
+ - Ky always acts as though someone watches him. And, apparently, he watches back.
+ - Why are some things easier to write than say?
+ - Oh yes. His voice has music.
+ - Only when I hold onto nothing can I be the best, only then can I be what they expect me to be.
+ - Of course, one person can be the world.
+ - I wonder if death will always taste this good.
+ - It’s all right to wonder.
+ - Long ago people used to say what they wanted out loud and hope that someone would give it to them. They called it praying.
+ - Caring about anyone leaves you vulnerable.
+ - Some things are created to be together.
+ - Being a teen is past for me. Worrying about the world and my place in it is not.
+ - I have tried to be righteous all my life. Yet I have never been content.
+ - I had really great parents who always gave me lots of opportunity for choice, but I didnt always realize how rare that was for a girl for them to say, You can be a mom or have a career or do both or do something we havent thought of yet.
+ - In a story, you can turn to the front and begin again and everyone lives once more. That doesn’t work in real life. And I love my real people the most.
+ - Teens find out a lot from other teens.
+
+91 quotes

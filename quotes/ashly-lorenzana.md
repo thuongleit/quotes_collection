@@ -1,0 +1,49 @@
+ - Sooner or later in life, we will all take our own turn being in the position we once had someone else in.
+ - The end of a relationship is not always a failure. Sometimes all the love in the world is not enough to save something. In these cases, it is not a matter of fault from either person. Some things cannot be, it’s as simple as that.
+ - By judging others, you make yourself easy to judge.
+ - Your whole life and the story of your journey is the landscape picture on the front of the box of a 1,000 piece puzzle. The pieces are each a small sticky note that ends in mid-sentence. You simply need to figure out where each one starts and ends.
+ - There will be a time when you are forced to follow your heart away from someone you love.
+ - Never do anything that you can’t admit doing, because if you are that ashamed of whatever it is, it’s probably wrong.
+ - The world is not ready for some people when they show up, but that shouldn’t stop anyone.
+ - Two wrongs don’t make a right, but neither does one. Revenge may seem petty by day, but on some nights she becomes Justice.
+ - It may be a man’s world, but men are easily controlled by women.
+ - It’s so hard to find the place somewhere in the middle of the best and worst I’ve felt.
+ - Drugs don’t really fix anything, except for everything.
+ - There is nothing wrong with revenge. The wrong has already been done, or there would be no need to even the score.
+ - The easiest way to gain someone’s trust is to deserve it. This should be pretty easy, assuming you’re just being you and being real. Minimal effort too.
+ - No original thought still exists. People are original, each one of them. The same ideas that others had before you are waiting for you to bring them back to life in a new way. The part of who you are that is left behind within these old ideas is what makes them original all over again.
+ - I don’t possess these thoughts I have – they possess me. I don’t possess these feelings I have – They obsess me.
+ - No one truly knows what they will do in a certain situation until they are actually in it. It’s very easy to judge someone else’s actions by what you assume your own would be, if you were in their shoes. But we only know what we THINK we would do, not what we WOULD do.
+ - I’m falling apart, one part after another. Falling down on the world like snow. Half of me is already on the ground, watching from below.
+ - A selfless act out of even the purest desire to do for others, will be selfish in the satisfaction and happiness it brings to one doing it.
+ - You cannot force things apart that are bound at the heart.
+ - People leave imprints on our lives, shaping who we become in much the same way that a symbol is pressed into the page of a book to tell you who it comes from. Dogs, however, leave paw prints on our lives and our souls, which are as unique as fingerprints in every way.
+ - You never know what lurks just beneath the surface of my fragile sanity.
+ - The only thing that feels worse than being stuck in a situation that makes you unhappy is realizing that you are not ready or willing to change whatever it is.
+ - Never try to do anything that is outside of who you are. A forced smile is a sign of what feels wrong in your heart, so recognize it when it happens. Living a lie will reduce you to one.
+ - Experience is the opposite of education.
+ - Anything that lights your world leaves it dark once it’s gone.
+ - If you’re going to do something, strive to do it better than anyone else. Do it all the way. If you’re going to half-ass it, why bother?
+ - If you love yourself the most at your happiest moments, there is no reason not to be fond of who you are in the dark.
+ - Anything at all is possible. Some things are unlikely. Some things will never happen. But they always could, at any time.
+ - It is through justification of one’s actions that a completely guiltless life is possible.
+ - How good something is should never be determined by its cost, designer, origin, or its perceived value by others.
+ - If somebody never gets enough of you, they will always want more.
+ - Dogs are how people would be if the important stuff is all that mattered to us.
+ - Most of the pain we feel is nothing more than a story that needs telling.
+ - Morality and legality have nothing to do with one another.
+ - Phones with numerical keypads worked best for dialing phone calls. Incidentally, phone calls tend to be the primary function of a phone. ‘Smartphones’ completely ignore these basic facts, resulting in some of the least intelligent devices I’ve seen yet. Oh the irony.
+ - We may seem fine, even when the pain remains right there beneath our surface.
+ - All we know is what were told.
+ - I don’t think I’ve ever dared to write down what I see in the ruins of me, or tell in any detail the scars and all their secrets.
+ - The only unique contribution you can offer the world is to be who you actually are and no one else.
+ - The parts of me that hurt the worst want me to write something for them, but I can’t. I don’t know what to say. I’m lost in all this sadness, and so are they.
+ - Some people like living in black and white worlds. Let them stay there. Appreciate all the colors you see in your world though.
+ - No one is fighting for my freedom unless they are doing it on my soil.
+ - I think there were times when I was so afraid of losing you that I forgot I even had you at all.
+ - You have to believe what you’re saying if you’re going to convince me. I just can’t break that rule, even if I want to.
+ - It’s hardly ever that I am hurt by something in only one dimension.
+ - Storytellers don’t show, they tell. I’m sticking with that.
+ - The fact of the matter is that you should really stop concerning yourself with writing a book because anyone can write a book that totally sucks. There is nothing special about that.
+
+47 quotes

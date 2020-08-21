@@ -1,0 +1,83 @@
+ - A heart’s a heavy burden.
+ - A fickle heart is the only constant in this world.
+ - I think we ought to live happily ever after.
+ - My shining dishonesty will be the salvation of me.
+ - To love someone enough to let them go, you had to let them go forever or you did not love them that much.
+ - Writing for adults, you have to keep reminding them of what is going on. The poor things have given up using their brains when they read. Children you only need to tell things to once.
+ - Being a hero means ignoring how silly you feel.
+ - If you take myth and folklore, and these things that speak in symbols, they can be interpreted in so many ways that although the actual image is clear enough, the interpretation is infinitely blurred, a sort of enormous rainbow of every possible colour you could imagine.
+ - Chrestomanci smiled and swept out of the room like a very long procession of one person.
+ - It does seem that a fantasy, working out in its own terms, stretching you beyond the normal concerns of your own life, gains you a peculiar charge of energy which inexplicably enriches you. At least, this is my ideal of a fantasy, and I am always trying to write it.
+ - A library is a place full of mouth-watering food for thought.
+ - All these things that crib and cab in your brain, in your imagination, are in fact things that might well in later life drive you insane.
+ - Pray use both cats as sponges if it pleases you, infatuated infantryman.
+ - I assure you, my friends, I am cone sold stober.
+ - Do you mind not being so kind and obedient? It makes me nervous.
+ - There is very seldom any true secret.
+ - Every man in Ingary is scared stiff of her. You ought to know how that feels, Sophie dear.
+ - You’ve no right to walk into people’s castles and take their guitars.
+ - If I give you a hint and tell you it’s a hint, it will be information.
+ - Sorry, I’ve had enough of running away, Sophie. Now I’ve got something I want to protect. It’s you.
+ - She said ‘Over my dead body!’ so I took her at her word.
+ - Yes, you are nosy. You’re a dreadfully nosy, horribly bossy, appallingly clean old woman. Control yourself. You’re victimizing us all.
+ - It is quite a risk to spank a wizard for getting hysterical about his hair.
+ - I mean one of the things about being alone is that you’ve no people to define yourself off, I mean, people are like all-round mirrors, because let’s face it, we don’t often see ourselves all round in a mirror anyway, do we.
+ - Things are going round and round in my head – or maybe my head is going round and round in things.
+ - Happiness isn’t a thing. You can’t go out and get it like a cup of tea. It’s the way you feel about things.
+ - And it’s a pity too that I’ve no right to open your letters. I hope you don’t get many, or my conscience will give me no peace.
+ - Only thin, weak thinkers despise fairy stories. Each one has a true, strange fact hidden in it, you know, which you can find if you look.
+ - Busy old fool, unruly Sophie.
+ - I’m going up to my room now, where I may die.
+ - I can’t abide people who go soft over animals and then cheat every human they come across!
+ - The truth between two people always cuts two ways.
+ - Settle for what you can get, but first ask for the World.
+ - It does not seem to me that I have the right to foist a story on people, most of whom are children who should be learning all the time, unless I am learning from it too.
+ - But I do think that when people say ‘a learning curve,’ they make a mistake. Learning to me always seems to go in a straight, ignorant line and then, every so often, takes a jump straight upward.
+ - Take it from me, Fate doesn’t care most of the time.
+ - What a strange family you are! Is your name Lettie too?
+ - Look. Survey. Inspect. My hair is ruined! I look like a pan of bacon and eggs!
+ - Nobody gets praised for the right reasons.
+ - It’s amazing the way one can take a step ten and a half miles long and still always land in a cowpat.
+ - Nobody can buy a hat without gossiping.
+ - Hope is the forward-looking part of memory.
+ - Controller Borasus sighed with relief. Libraries were not places of danger. It had to be a hoax.
+ - Interesting things did seem to happen, but always to somebody else.
+ - She was remorseless, but she lacked method.
+ - You must admit I have a right to live in a pigsty if I want.
+ - He picked up the skull and knocked an onion ring out of its eye socket. “I see Sophie has been busy again. Couldn’t you have restrained her, my friend?” The skull yattered its teeth at him. Howl put it down rather hastily.
+ - You have no right to make jigsaws of people.
+ - In the land of Ingary where such things as seven-league boots and cloaks of invisibility really exist, it is quite a misfortune to be born the eldest of the three. Everyone knows you are the one who will fail first, and worst, if the three of you set out to seek your fortunes.
+ - After that, he tried to go upstairs through the broom cupboard, and then the yard. This seemed to puzzle him a little. But finally he discovered the stairs, all except the bottom on, and fell up them on his face. The whole castle shook.
+ - Christopher discovered that you dealt with obnoxious masters and most older boys the way you dealt with governesses: you quite politely told them the truth in the way they wanted to hear it, so that they thought they had won and left you in peace.
+ - Things we are accustomed to regard as myth or fairy story are very much present in people’s lives. Nice people behave like wicked stepmothers. Every day.
+ - But I discovered that people like me – they do, you know, if you like them – and then it was all right.
+ - Doras II was a somewhat absentminded king, It is said, when Death came to summon him, Doras granted Death the usual formal audience and then dismissed him from his presence. Death was too embarrassed to return until many years later- Ka’a Orto’o, Gnomic Utterances.
+ - Typical! I break my neck trying to get here, and I find you peacefully tidying up!
+ - It’s a lucky child that knows that they’re a genius, unaimed and all that.
+ - I’m beginning to think I’ve led a much too sheltered life.
+ - A garden should be natural-seeming, with wild sections, including a large area of bluebells.
+ - I seem to have excalibured this knife.
+ - I hope your bacon burns.
+ - I do feel very strongly that this is one of the things which people need encouragement to sort out, because I have this very strong feeling that everybody is probably a genius at something, it’s just a question of finding this.
+ - But whoever heard of enchanted bacon anyway?
+ - I could cut a star out of paper and drop it.
+ - Fantasy for me as a kid was real, and I had a fantasy about what life was, whether it was sort of wicked and dire, or wholly normal, or whatever. Anything really close to home is not, it seems to me, what a good book should be about.
+ - One person ought to treat another person properly, even if the person’s himself.
+ - Mother Very Easily Made Jam Sandwiches Under No Protest.
+ - He scarcely saw his parents. When Christopher was small, he was terrified that he would meet Papa out walking in the Park one day and not recognize him.
+ - In addition, Master Twinkle seems convinced that someone is denying him a pair of stripey trousers.
+ - You cannot rob robbers with a kitten in your hat!
+ - I am a believer in free will. If my dog chooses to hate the whole human race except myself, it must be free to do so.
+ - I am a total zombie just after I wake up. It takes me half an hour even to get my eyes open. Ask anyone who knows me. I can’t see; I can’t talk properly; I can’t do anything without help. The only think I can do properly is think. And I know how to exploit my condition. I’ve had years of practice.
+ - If you must know, I-I had never in my life kissed a young lady, and you are far too beautiful to me to want to get it wrong!
+ - Oh! Polly thought. Why aren’t all girls locked up by law the year they turn fifteen? They do such stupid things!
+ - SAGE. A wise and Holy man who died a long time ago. No one modern qualifies.
+ - Sophie did not care to think how Howl might react if Fanny woke him by stabbing him with her parasol.
+ - But most dragons seem to have interesting personalities – besides probably having quite good reasons for what they do, if only one could understand them.
+ - It was only when Shona, in sheer fury, turned the carnivorous sheep among them that they moved. They ran, some of them with charming little white sheep attached to their legs or backsides and the rest shouting about monsters.
+ - As often happened, Charmain began to despair of getting her mother to understand. She’s not stupid, she just never lets her mind out, she thought.
+ - I’ve seen golems. They don’t behave like a real person.
+ - One does not want glory accepted as a matter of course. One wants to shock and astonish people with it.
+ - Beauty isn’t made of sugar.
+
+81 quotes

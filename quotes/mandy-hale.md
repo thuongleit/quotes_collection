@@ -1,0 +1,38 @@
+ - Ten years from now, make sure you can say that you CHOSE your life, you didn’t SETTLE for it.
+ - It’s OKAY to be scared. Being scared means you’re about to do something really, really brave.
+ - Toxic people will pollute everything around them. Don’t hesitate. Fumigate.
+ - Sometimes when you lose your way, you find YOURSELF.
+ - So you’re a little weird? Work it! A little different? OWN it! Better to be a nerd than one of the herd!
+ - Some steps need to be taken alone. It’s the only way to really figure out where you need to go and who you need to be.
+ - A busy, vibrant, goal-oriented woman is so much more attractive than a woman who waits around for a man to validate her existence.
+ - There is nothing more beautiful than someone who goes out of their way to make life beautiful for others.
+ - You will evolve past certain people. Let yourself.
+ - When you are your own best friend, you don’t endlessly seek out relationships, friendships, and validation from the wrong sources because you realize that the only approval and validation you need is your own.
+ - You will never gain anyone’s approval by begging for it. When you stand confident in your own worth, respect follows.
+ - Single is no longer a lack of options – but a choice. A choice to refuse to let your life be defined by your relationship status but to live every day Happily and let your Ever After work itself out.
+ - A season of loneliness and isolation is when the caterpillar gets its wings. Remember that next time you feel alone.
+ - Single moms: You are a doctor, a teacher, a nurse, a maid, a cook, a referee, a heroine, a provider, a defender, a protector, a true Superwoman. Wear your cape proudly.
+ - Celebrate the people in your life who are there because they love you for no other reason than because you are YOU.
+ - I would rather be alone with dignity than in a relationship that requires me to sacrifice my self respect.
+ - When something or someone is no longer bringing you up, but pulling you down – it’s time to let go. When something or someone is no longer adding to your life, but subtracting from it – it’s time to let go.
+ - No matter how much you stress or obsess about the past or future, you can’t change either one. In the present is where your power lies.
+ - We can let go of the person or love or friendship without letting go of the lesson.
+ - No matter how attractive a person’s potential may be, you have to date their reality.
+ - She has to have four arms, four legs, four eyes, two hearts, and double the love. There is nothing “single” about a single mom.
+ - True strength is knowing that you don’t have to be strong every single second of the day.
+ - You don’t need a significant other to lead a significant life.
+ - It is necessary, and even vital, to set standards for your life and the people you allow in it.
+ - It makes no sense to try to extend a friendship that was only meant to be a season into a lifetime.
+ - If there is a particular person in your life that is repeatedly choosing not to honor you and is causing you more sadness or pain than they are joy – it might be time to release that friendship back to God and trust that it is not where you belong.
+ - Figure out what makes you laugh, and do more of it. Figure out what makes you cry, and do less of it.
+ - Our friends have a way of reminding us of how fabulous we are when the rest of the world has forgotten.
+ - Not everyone has to ride off into the sunset with a man. Some of us just want a tan.
+ - If God closes a door AND a window, consider the fact that it might be time to build a whole new house.
+ - The right one for you will move mountains to be with you – he won’t hide behind them.
+ - Don’t pour a lifetime of effort into a seasonal relationship. Not everyone from the pilot belongs in the finale.
+ - The way you treat people who are in no position to help you, further you, or benefit you reveals the true state of your heart.
+ - Be a bit of a challenge; not because you’re playing games but because you realize you’re worth the extra effort.
+ - If a man WANTS to be with you, he will make his actions clear. There won’t be any questions, murkiness, cloudiness, or fear.
+ - There is no model, no actress, no Miss America contender that can outshine a happy, confident, secure woman.
+
+36 quotes

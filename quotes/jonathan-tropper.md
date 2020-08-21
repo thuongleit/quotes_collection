@@ -1,0 +1,54 @@
+ - You never know when it will be the last time you’ll see your father, or kiss your wife, or play with your little brother, but there’s always a last time. If you could remember every last time, you’d never stop grieving.
+ - Even under the best of circumstances, there’s just something so damn tragic about growing up.
+ - Get comfortable with being alone. It will empower you.
+ - She was smart and funny and vulnerable and just so goddamned beautiful, the kind of beautiful that was worth being shot down over.
+ - Life, for the most part, inevitably becomes routine, the random confluence of timing and fortune that configures its components all but forgotten. But every so often, I catch a glimpse of my life out of the corner of my eye, and am rendered breathless by it.
+ - Things have been a mess for so many years that trying to pin down a starting point is like trying to figure out where your skin starts.
+ - We are injured and angry, scared and sad. Some families, like some couples, become toxic to each other after prolonged exposure.
+ - It would be a terrible mistake to go through life thinking that people are the sum total of what you see.
+ - That’s the thing about life; everything feels so permanent, but you can disappear in an instant.
+ - I loved her for so long. Our past trails behind us like a comet’s tail, the future stretched out before us like the universe. Things happen. People get lost and love breaks.
+ - I loved her for the way she embraced the unknown, how she opened herself up to every experience. When I was with her, she opened me up, too, stirred my passion and heightened my every sensation. Which was great, until she left me and all my heightened senses to deal with the heartache of losing her.
+ - There are no happy endings, just happy days, happy moments. The only real ending is death, and trust me, no one dies happy. And the price of not dying is that things change all the time, and the only thing you can count on is that there’s not a thing you can do about it.
+ - You lost your wife, Douglas. My heartbreaks for you, it really does. But I lose my husband every day, all over again. And I don’t even get to mourn.
+ - At this point in my life, I’m not looking for any happy endings. I’m just looking to get things started.
+ - You’re terrified of being alone. Anything you do now will be motivated by that fear. You have to stop worrying about finding love again. It will come when it comes. Get comfortable with being alone. It will empower you.
+ - Sometimes it’s heartbreaking to see your siblings as the people they’ve become. Maybe that’s why we all stay away from each other as a matter of course.
+ - We don’t stop loving people just because we hate them, but we don’t stop hating them either.
+ - Everyone always wants to know how you can tell when it’s true love, and the answer is this: when the pain doesn’t fade and the scars don’t heal, and it’s too damned late.
+ - At some point, being angry is just another bad habit, like smoking, and you keep poisoning yourself without thinking about it.
+ - You can sit up here, feeling above it all while knowing you’re not, coming to the lonely conclusion that the only thing you can ever really know about anyone is that you don’t know anything about them at all.
+ - We are all smiling in the picture, three brothers having a grand old time just playing around in the living room, no agendas, no buried resentments or permanent scars. Even under the best of circumstances, there’s just something so damn tragic about growing up.
+ - Forgiveness has its comforts, but it can never give you back what you’ve lost.
+ - Love made us partners in narcissism, and we talked ceaselessly about how close we were, how perfect our connection was, like we were the first people in history to ever get it exactly right.
+ - Loneliness is the theme, and I play it like a symphony, in endless variations.
+ - I blame Hollywood for skewing perspectives. Life is just a big romantic comedy to them, and if you meet cute, happily ever-after is a forgone conclusion.
+ - And even if you didn’t fall in love in the eighties, in your mind it will feel like the eighties, all innocent and airbrushed, with bright colors and shoulder pads and Pat Benetar or the Cure on the soundtrack.
+ - As far as rapprochements go, it’s awkward and vague, but the advantage of being as emotionally inarticulate as we are is that it will do the trick.
+ - Pity, I’ve learned, is like a fart. You can tolerate your own, but you simply can’t stand anyone else’s.
+ - I’ve never been shot, but this probably what it feels like, that second of nothingness right before the pain catches up to the bullet.
+ - Silver is forty-four years old, if you can believe it, out of shape, and depressed – although he doesn’t know if you call it depression when you have good reason to be; maybe then you’re simply sad, or lonely, or just painfully aware, on a daily basis, of all the things you can never get back.
+ - I’m living in separate universes, and I have no idea where I actually belong.
+ - You have to look at what you have right in front of you, at what it could be, and stop measuring it against what you’ve lost. I know this to be wise and true, just as I know that pretty much no one can do it.
+ - Fate already warned us to pack it in. We just didn’t hear it in time.
+ - Don’t you think if I was able to make some changes, I would have already?
+ - The whole purpose of screenwriting is to convey everything through action and dialogue and not explanation and exposition. To me, there are movies where voiceover works really well because it does something more than exposition; it actually becomes a tonal element of the movie.
+ - Phillip is a repository of random snatches of film dialogue and song lyrics. To make room for all of it in his brain, he apparently cleared out all the areas where things like reason and common sense are stored.
+ - It’s hard to imagine her ever having felt lost, but it’s impossible to know the people your parents were before they were your parents.
+ - I may not be old but I’m too old to have this much nothing.
+ - We all start out so damn sure, thinking we’ve got the world on a string. If we ever stopped to think about the infinite number of ways we could be undone, we’d never leave our bedrooms.
+ - What it must feel like, I thought, to look at something, anything really, and know that it’s for the last time?
+ - I want to explain everything to him, show him that it’s really not as screwed up as it all sounds, but then I remember that it is.
+ - When I’m writing novels, even screenplays, it’s never an actor I have in mind; it’s always the version in my head of who the character is. Once somebody gets cast, I have to adjust a little bit to who they are.
+ - It’s sort of an organic process when you’re adapting any book, not even just your own. You want to preserve the heart of the story and you want to preserve who the characters are, but film requires a lot of compression.
+ - But the muse won’t always cooperate and she will never be coerced. Sometimes she’d rather take a nap or see a mid-afternoon movie.
+ - If only all our conflicts could be resolved with a few grunts and a smack in the ass.
+ - Childhood feels so permanent, like it’s the entire world, and then one day it’s over and you’re shoveling wet dirt onto your father’s coffin, stunned at the impermanence of everything.
+ - I’m really not a fan of voiceovers; I think they become a crutch.
+ - There are some people out there who don’t wait for what come next. They decide what should come next and they go and make it happen.
+ - Novel writing, to me, is all about language: choosing your words, finding the characters within the words and just really agonizing over every word. It’s really crafting this whole piece from nothing.
+ - Phillip is the Paul McCartney of our family: better-looking than the rest of us, always facing a different direction in pictures, and occasionally rumored to be dead.
+ - It’s amazing how harmless the world can sometimes seem.
+ - Screenwriting you don’t necessarily have to do the job of the costume designer and the prop master and the set designer. It’s more just about finding the visuals and finding these characters through dialogue.
+
+52 quotes

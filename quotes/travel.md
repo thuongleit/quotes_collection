@@ -1,0 +1,42 @@
+ - Wherever you go, go with all your heart. ~~Confucius
+ - To travel is to live. ~~Hans Christian Andersen
+ - I don’t know where I am going, but I am on my way. ~~Voltaire
+ - If you think adventure is dangerous, try routine; it is lethal. ~~Paulo Coelho
+ - The biggest adventure you can ever take is to live the life of your dreams. ~~Oprah Winfrey
+ - I haven’t been everywhere, but it’s on my list. ~~Susan Sontag
+ - Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do. So throw off the bowlines. Sail away from the safe harbor. Catch the trade winds in your sails. Explore. Dream. Discover. ~~H. Jackson Brown Jr.
+ - Not all who wander are lost. ~~J. R. R. Tolkien
+ - Experience, travel – these are an education in themselves. ~~Euripides
+ - Not until we are lost do we begin to understand ourselves. ~~Henry David Thoreau
+ - Listen – are you breathing just a little, and calling it a life? ~~Mary Oliver
+ - I always wonder why birds choose to stay in the same place when they can fly anywhere on the earth, then I ask myself the same question. ~~Harun Yahya
+ - Stuff your eyes with wonder, live as if you’d drop dead in ten seconds. See the world. It’s more fantastic than any dream made or paid for in factories. ~~Ray Bradbury
+ - Why do you go away? So that you can come back. So that you can see the place you came from with new eyes and extra colors. And the people there see you differently, too. Coming back to where you started is not the same as never leaving. ~~Terry Pratchett
+ - Man cannot discover new oceans unless he has the courage to lose sight of the shore. ~~André Gide
+ - A journey is best measured in friends, not in miles. ~~Tim Cahill
+ - Experience is not what happens to a man; it is what a man does with what happens to him. ~~Aldous Huxley
+ - To travel hopefully is a better thing than to arrive. ~~Robert Louis Stevenson
+ - We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far. ~~Swami Vivekananda
+ - The most important thing we can do is inspire young minds and to advance the kind of science, math and technology education that will help youngsters take us to the next phase of space travel. ~~John Glenn
+ - Once the travel bug bites there is no known antidote, and I know that I shall be happily infected until the end of my life ~~Michael Palin
+ - Travel makes one modest. You see what a tiny place you occupy in the world. ~~Gustave Flaubert
+ - Travel is fatal to prejudice, bigotry, and narrow-mindedness. ~~Mark Twain
+ - How we spend our days is, of course, how we spend our lives. ~~Annie Dillard
+ - We live in a wonderful world that is full of beauty, charm and adventure. There is no end to the adventures that we can have if only we seek them with our eyes open. ~~Jawaharlal Nehru
+ - Wherever you go becomes a part of you somehow. ~~Anita Desai
+ - To travel is to discover that everyone is wrong about other countries. ~~Aldous Huxley
+ - The real voyage of discovery consists not in seeking new landscapes, but in having new eyes. ~~Marcel Proust
+ - Nature is the art of God. ~~Dante Alighieri
+ - The purpose of education is to replace an empty mind with an open one. ~~Malcolm S. Forbes
+ - If you wish to travel far and fast, travel light. Take off all your envies, jealousies, unforgiveness, selfishness and fears. ~~Cesare Pavese
+ - There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. ~~Nelson Mandela
+ - Travel is fatal to prejudice, bigotry, and narrow-mindedness, and many of our people need it sorely on these accounts. Broad, wholesome, charitable views of men and things cannot be acquired by vegetating in one little corner of the earth all one’s lifetime. ~~Mark Twain
+ - I travel not to go anywhere, but to go. I travel for travel’s sake. The great affair is to move. ~~Robert Louis Stevenson
+ - I have found out that there ain't no surer way to find out whether you like people or hate them than to travel with them. ~~Mark Twain
+ - In nature, nothing is perfect and everything is perfect. Trees can be contorted, bent in weird ways, and they’re still beautiful. ~~Alice Walker
+ - What is that feeling when you’re driving away from people and they recede on the plain till you see their specks dispersing? – it’s the too-huge world vaulting us, and it’s good-bye. But we lean forward to the next crazy venture beneath the skies. ~~Jack Kerouac
+ - A lie can travel half way around the world while the truth is putting on its shoes. ~~Charles H. Spurgeon
+ - No one realizes how beautiful it is to travel until he comes home and rests his head on his old, familiar pillow. ~~Lin Yutang
+ - If adventures will not befall a young lady in her own village, she must seek them abroad. ~~Jane Austen
+
+40 quotes

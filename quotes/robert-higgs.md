@@ -1,0 +1,30 @@
+ - If anarchists are idealists, they may simply be likened to someone who finds himself swimming in a cesspool and, rather than paddling about looking for the area with the least amount of floating faeces, seeks to climb out of the pool completely.
+ - All nonstate threats to life, liberty, and property appear to be relatively petty and therefore can be dealt with. Only states can pose truly massive threats, and sooner or later the horrors with which they menace mankind invariably come to pass.
+ - The state is the most destructive institution human beings have ever devised – a fire that, at best, can be controlled for only a short time before it o’erleaps it’s improvised confinements and spreads its flames far and wide.
+ - The beginning of political wisdom is the realization that despite everything you’ve always been taught, the government is not really on your side; indeed, it is out to get you.
+ - In debates between anarchists and statists, the burden of proof clearly should rest on those who place their trust in the state. Anarchy’s mayhem is wholly conjectural; the state’s mayhem is undeniably, factually horrendous.
+ - No doubt, anarchy, once established, might not last forever. But if your house is on fire, the sensible course of action is to put out the fire, even though this extinguishment provides no guarantee that the house will never catch fire again.
+ - Of course, political leaders are much more ambitious than gangsters. The latter are content to take your money, whereas the former, besides taking far more of your money, have the effrontery to violate your just rights whenever their convenience dictates...
+ - This is the true lesson of our history: war, preparation for war, and foreign military interventions have served for the most part not to protect us, as we are constantly told, but rather to sap our economic vitality and undermine our civil and economic liberties.
+ - Intervene globally, lose freedom locally.
+ - Once a bureau is created, its staff becomes a tenacious political interest group, well placed to defend its budget and to make a case for expanding its activities.
+ - For members of the political class, the crucial question is always: how can we push out the frontier, how can we augment the government’s dominion and plunder, with net gain to ourselves the exploiters who live not by honest production and voluntary exchange, but by fleecing those who do so?
+ - It would take little more than $50 billion to raise every poor person above the official poverty line, yet the percentage of the population classified as poor hardly budges, while annual welfare spending amounts to four times that much. Where’s the money going?
+ - Income inequality has no necessary connection with poverty, the lack of material resources for a decent life, such as adequate food, shelter, and clothing. A society with great income inequality may have no poor people, and a society with no income inequality may have nothing but poor people.
+ - Without popular fear, no government would endure more than twenty-four hours.
+ - To continue on the road we Americans have traveled for the past century is ultimately to deliver ourselves completely into the hands of an unlimited government. We can have a free society or a welfare state. We cannot have both.
+ - Inflation is not a benign element in the economy’s operation. It is, as it has always been, the most dangerous and destructive form of taxation.
+ - True counselors of despair are those who hope against hope – and historical experience – that the government can and will act constructively.
+ - If I had to use a single word to describe what is fundamentally wrong with government today, I would use the word fraud.
+ - Any society that entails the strengthening of the state apparatus by giving it unchecked control over the economy, and re-unites the polity and the economy, is an historical regression. In it there is no more future for the public, or for the freedoms it supported, than there was under feudalism.
+ - Many anti-energy groups display little appreciation of the extent to which modern economies depend pervasively on the use of fossil fuels and petrochemical products.
+ - Since the end of the nineteenth century, if not earlier, presidents have misled the public about their motives and their intentions in going to war.
+ - But politicians who talk about failed policies are just blowing smoke. Government policies succeed in doing exactly what they are supposed to do: channeling resources bilked from the general public to politically organized and influential interests groups.
+ - The legacy of the New Del was, more than anything else, a matter of ideological change. Henceforth, nearly everyone would look to the federal government for solutions to problems great and small, real and imagined, personal as well as social.
+ - Ironically, in the full-fledged transfer society, where governments busy themselves redistributing income by means of hundreds of distinct programs, hardly anyone is better off as a result.
+ - Abetted by misguided or co-opted intellectuals, the rulers weave a cloak of legitimacy to disguise their theft and hence to ease their extraction of wealth from the rightful owners.
+ - By adopting programs to distribute substantial amounts of income, a nation guarantees that its government will become more powerful and invasive in other ways.
+ - When American presidents prepare for foreign wars, they lie.
+ - Transfer payments discourage the recipients from earning income in the present and from investing in their potential to earn income in the future. People respond to a reduced cost of idleness by choosing to be idle more often.
+
+28 quotes

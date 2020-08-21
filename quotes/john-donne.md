@@ -1,0 +1,193 @@
+ - No man is an island unto himself.
+ - No man is an island, entire of itself; every man is a piece of the continent.
+ - Any man’s death diminishes me, because I am involved in Mankind; And therefore never send to know for whom the bell tolls; it tolls for thee.
+ - For God’s sake hold your tongue, and let me love.
+ - No spring nor summer beauty hath such grace as I have seen in one autumnal face.
+ - Batter my heart, three-personed God, for you As yet but knock; breathe, shine, and seek to mend; That I may rise, and stand, o’erthrow me, and bend Your force to break, blow, burn, and make me new.
+ - Death comes equally to us all, and makes us all equal when it comes.
+ - Love built on beauty, soon as beauty, dies.
+ - Death, thou shalt die.
+ - In heaven it is always autumn.
+ - Death is an ascension to a better library.
+ - Death be not proud, though some have called thee Mighty and dreadful, for thou art not so. For, those, whom thou think’st thou dost overthrow. Die not, poor death, nor yet canst thou kill me.
+ - As he that fears God fears nothing else, so he that sees God sees everything else.
+ - When one man dies, one chapter is not torn out of the book, but translated into a better language.
+ - As God loves a cheerful giver, so he also loves a cheerful taker. Who takes hold of his gifts with a glad heart.
+ - Be more than man, or thou’rt less than an ant.
+ - But I do nothing upon myself, and yet I am my own executioner.
+ - Yesternight the sun went hence, And yet is here today.
+ - Be thine own palace, or the world’s thy jail.
+ - Only our love hath no decay; this, no tomorrow hath, nor yesterday, running it never runs from us away, but truly keeps his first, last, everlasting day.
+ - I am a little world made cunningly.
+ - Love’s mysteries in souls do grow, But yet the body is his book.
+ - One short sleep past, we wake eternally, And Death shall be no more; Death, thou shalt die.
+ - To be no part of any body, is to be nothing.
+ - Take me to you, imprison me, for I, except you enthrall me, never shall be free, nor ever chaste, except you ravish me.
+ - For love all love of other sights controls and makes one little room an everywhere.
+ - Pleasure is none, if not diversified.
+ - I throw myself down in my chamber, and I call in, and invite God, and his Angels thither, and when they are there, I neglect God and his Angels, for the noise of a fly, for the rattling of a coach, for the whining of a door.
+ - For I am every dead thing In whom love wrought new alchemy For his art did express A quintessence even from nothingness, From dull privations, and lean emptiness He ruined me, and I am re-begot Of absence, darkness, death; things which are not.
+ - Affliction is a treasure, and scarce any man hath enough of it. No man hath affliction enough that is not matured and ripened by it and made fit for God.
+ - I sing the progress of a deathless soul.
+ - Great sorrows cannot speak.
+ - Then love is sin, and let me sinful be.
+ - Whoever loves, if he do not propose The right true end of love, he’s one that goes To sea for nothing but to make him sick.
+ - And swear No where Lives a woman true, and fair.
+ - Our two souls therefore which are one, Though I must go, endure not yet A breach, but an expansion, Like gold to airy thinness beat.
+ - Busy old fool, unruly Sun, why dost thou thus through windows and through curtains call on us? Must to thy motions lovers seasons run?
+ - If ever any beauty I did see, Which I desired, and got, ’twas but a dream of thee.
+ - Come live with me, and be my love, And we will some new pleasures prove Of golden sands, and crystal brooks, With silken lines, and silver hooks.
+ - Who are a little wise the best fools be.
+ - Poetry is a counterfeit creation, and makes things that are not, as though they were.
+ - I will not look upon the quickening sun, But straight her beauty to my sense shall run; The air shall note her soft, the fire most pure; Water suggest her clear, and the earth sure; Time shall not lose our passages.
+ - All occasions invite His mercies, and all times are His seasons.
+ - Wicked is not much worse than indiscreet.
+ - More than kisses, letters mingle souls.
+ - The day breaks not, it is my heart.
+ - Though truth and falsehood be Near twins, yet truth a little elder is.
+ - The Phoenix riddle hath more wit By us, we two being one, are it. So to one neutral thing both sexes fit, We die and rise the same, and prove Mysterious by this love.
+ - If poisonous minerals, and if that tree, Whose fruit threw death on else immortal us, If lecherous goats, if serpents envious Cannot be damned; alas; why should I be?
+ - Solitude is a torment which is not threatened in hell itself.
+ - I long to talk with some old lover’s ghost, Who died before the god of love was born.
+ - If they be two, they are two so As stiff twin compasses are two, Thy soul the fixt foot, makes no show To move, but doth, if the other do.
+ - Nature’s great masterpiece, an elephant; the only harmless great thing.
+ - Sleep with clean hands, either kept clean all day by integrity or washed clean at night by repentance.
+ - To know and feel all this and not have the words to express it makes a human a grave of his own thoughts.
+ - How great love is, presence best trial makes, But absence tries how long this love will be.
+ - At the round earth’s imagined corners, blow your trumpets, angels.
+ - What if this present were the world’s last night?
+ - I observe the physician with the same diligence as the disease.
+ - I am two fools, I know, For loving, and for saying so.
+ - Let not thy divining heart Forethink me any ill; Destiny may take thy part, And may thy fears fulfill.
+ - A mathematical point is the most indivisble and unique thing which art can present.
+ - In the first minute that my soul is infused, the Image of God is imprinted in my soul; so forward is God in my behalf, and so early does he visit me.
+ - Other men’s crosses are not my crosses.
+ - I find no abhorring in my appetite.
+ - O Lord, never suffer us to think that we can stand by ourselves, and not need thee.
+ - The difference between the reason of man and the instinct of the beast is this, that the beast does but know, but the man knows that he knows.
+ - Love, all alike, no season knows, nor clime, nor hours, days, months, which are the rags of time.
+ - He that desires to print a book, should much more desire, to be a book.
+ - Commemoration of John Donne, Priest, Poet, 1631 He was the Word that spake it; He took the bread and brake it; And what that Word did make it I do believe, and take it.
+ - All our life is but a going out to the place of execution, to death.
+ - The rich have no more of the kingdom of heaven than they have purchased of the poor by their alms.
+ - I shall not live ’till I see God; and when I have seen Him, I shall never die.
+ - My love though silly is more brave.
+ - And who understands? Not me, because if I did I would forgive it all.
+ - Full nakedness! All my joys are due to thee, as souls unbodied, bodies unclothed must be, to taste whole joys.
+ - Thou art slave to fate, chance, kings, and desperate men, And dost with poison, war, and sickness dwell, And poppy, or charms, can make us sleep as well, And better than thy stroke. Why swell’st thou then?
+ - Doubt wisely; in strange way To stand inquiring right, is not to stray; To sleep, or run wrong, is.
+ - Eternity is not an everlasting flux of time, but time is as a short parenthesis in a long period.
+ - Good is not good, unless A thousand it possess, But doth waste with greediness.
+ - There is nothing that God hath established in a constant course of nature, and which therefore is done every day, but would seem a Miracle, and exercise our admiration, if it were done but once.
+ - Religion is not a melancholy, the spirit of God is not a damper.
+ - O how feeble is man’s power, that if good fortune fall, cannot add another hour, nor a lost hour recall!
+ - On a huge hill, Cragged, and steep, Truth stands, and hee that will Reach her, about must, and about must goo.
+ - So in a voice, so in a shapeless flame, Angels affect us often.
+ - Humiliation is the beginning of sanctification.
+ - So, so, break off this last lamenting kiss, Which sucks two souls, and vapors both away.
+ - Never start with tomorrow to reach eternity. Eternity is not being reached by small steps.
+ - Affliction is a treasure, and scarce any man hath enough of it.
+ - Whilst my physicians by their love are grown Cosmographers, and I their map, who lie Flat on this bed.
+ - Licence my roving hands, and let them go Before, behind, between, above, below.
+ - That subtle knot which makes us man So must pure lovers souls descend T affections, and to faculties, Which sense may reach and apprehend, Else a great Prince in prison lies.
+ - A man that is not afraid of a Lion is afraid of a Cat .
+ - I count all that part of my life lost which I spent not in communion with God, or in doing good.
+ - God affords no man the comfort, the false comfort of Atheism: He will not allow a pretending Atheist the power to flatter himself, so far, as to seriously think there is no God.
+ - As virtuous men pass mildly away, and whisper to their souls to go, whilst some of their sad friends do say, the breath goes now, and some say no.
+ - That soul that can reflect upon itself, consider itself, is more than so.
+ - Oh do not die, for I shall hate All women so, when thou art gone.
+ - Festive alcohol sometimes leads to an excess of honesty.
+ - It is too little to call man a little world; Except God, man is a diminutive to nothing.
+ - Sweetest love, I do not go, For weariness of thee, Nor in hope the world can show A fitter love for me; But since that I Must die at last, ’tis best, To use my self in jest Thus by feign’d deaths to die.
+ - I have done one braver thing than all the Worthies did, and yet a braver thence doth spring, which is, to keep that hid.
+ - There is no health; physicians say that we, at best, enjoy but neutrality.
+ - Poor intricated soul! Riddling, perplexed, labyrinthical soul!
+ - Man hath weaved out a net, and this net throwne upon the Heavens, and now they are his own.
+ - Kind pity chokes my spleen.
+ - But he who loveliness within Hath found, all outward loathes, For he who color loves, and skin, Loves but their oldest clothes.
+ - Verse hath a middle nature: heaven keeps souls, The grave keeps bodies, verse the fame enrols.
+ - I do not love a man, except I hate his vices, because those vices are the enemies, and the destruction of that friend whom I love.
+ - When God’s hand is bent to strike, it is a fearful thing to fall into the hands of the living God ; but to fall out of the hands of the living God is a horror beyond our expression, beyond our imagination.
+ - Keep us, Lord, so awake in the duties of our calling that we may sleep in thy peace and wake in thy glory.
+ - Reason is our soul’s left hand, Faith her right, By these we reach divinity.
+ - The flea, though he kill none, he does all the harm he can.
+ - The sun must not set upon anger, much less will I let the sun set upon the anger of God towards me.
+ - Let man’s soul be a sphere, and then, in this, The intelligence that moves, devotion is.
+ - God employs several translators; some pieces are translated by age, some by sickness, some by war, some by justice.
+ - Let me arrest thy thoughts; wonder with me, why plowing, building, ruling and the rest, or most of those arts, whence our lives are blest, by cursed Cain’s race invented be, and blest Seth vexed us with Astronomy.
+ - But think that we Are but turned aside to sleep.
+ - True and false fears let us refrain, Let us love nobly, and live, and add again Years and years unto years, till we attain To write threescore ; this is the second of our reign.
+ - All whom war, dearth, age, agues, tyrannies, Despair, law, chance, hath slain.
+ - He must pull out his own eyes, and see no creature, before he can say, he sees no God; He must be no man, and quench his reasonable soul, before he can say to himself, there is no God.
+ - To rage, to lust, to write to, to commend, All is the purlieu of the god of love.
+ - Sleep is pain’s easiest salve, and doth fulfill all the offices of death, except to kill.
+ - Filled with her love, may I be rather grown Mad with much heart, then idiot with none.
+ - How imperfect is all our knowledge!
+ - Nature’s lay idiot, I taught thee to love.
+ - Art is the most passionate orgy within man’s grasp.
+ - And to ’scape stormy days, I choose an everlasting night.
+ - Despair is the damp of hell, as joy is the serenity of heaven.
+ - From rest and sleep, which but thy pictures be, Much pleasure, then from thee much more, must flow, And soonest our best men with thee do go, Rest of their bones, and soul’s delivery.
+ - And what is so intricate, so entangling as death? Who ever got out of a winding sheet?
+ - Twice or thrice had I loved thee before I knew thy face or name, so in a voice, so in a shapeless flame, angels affect us oft, and worshiped be.
+ - That thou remember them, some claim as debt; I think it mercy, if thou wilt forget.
+ - To roam Giddily, and be everywhere but at home, Such freedom doth a banishment become.
+ - Women are like the arts, forced unto none, Open to all searchers, unprized, if unknown.
+ - If every gnat that flies were an archangel, all that could but tell me that there is a God; and the poorest worm that creeps tells me that.
+ - Oft from new truths, and new phrase, new doubts grow, As strange attire aliens the men we know.
+ - Yet nothing can to nothing fall, Nor any place be empty quite; Therefore I think my breast hath all Those pieces still, though they be not unite; And now, as broken glasses show A hundred lesser faces, so My rags of heart can like, wish, and adore, But after one such love, can love no more.
+ - Who knows his virtues name or place, hath none.
+ - The heavens rejoice in motion, why should I Abjure my so much loved variety.
+ - God himself took a day to rest in, and a good man’s grave is his Sabbath.
+ - Christ beats his drum, but he does not press men; Christ is served with voluntaries.
+ - As soon as there was two there was pride.
+ - Our critical day is not the very day of our death; but the whole course of our life.
+ - If I dream I have you, I have you, for all our joys are but fantastical.
+ - Young men mend not their sight by using old men’s spectacles.
+ - And new Philosophy calls all in doubt, the element of fire is quite put out; the Sun is lost, and the earth, and no mans wit can well direct him where to look for it.
+ - There is in every miracle a silent chiding of the world, and a tacit reprehension of them who require, or who need miracles.
+ - And dare love that, and say so too, And forget the He and She.
+ - Chastity is not chastity in an old man, but a disability to be unchaste.
+ - What gnashing is not a comfort, what gnawing of the worm is not a tickling, what torment is not a marriage bed to this damnation, to be secluded eternally, eternally, eternally from the sight of God?
+ - I wonder, by my troth, what thou and I Did, till we lov’d?
+ - If I lose at play, I blaspheme; if my fellow loses, he blasphemes. So, God is always the loser.
+ - Since you would save none of me, I bury some of you.
+ - The world is a great volume, and man the index of that book; even in the body of man, you may turn to the whole world.
+ - Love is strong as death; but nothing else is as strong as either; and both, love and death, met in Christ. How strong and powerful upon you, then, should that instruction be, that comes to you from both these, the love and death of Jesus Christ!
+ - True joy is the earnest which we have of heaven, it is the treasure of the soul, and therefore should be laid in a safe place, and nothing in this world is safe to place it in.
+ - Between these two, the denying of sins, which we have done, and the bragging of sins, which we have not done, what a space, what a compass is there, for millions of millions of sins!
+ - Our faults are not seen, But past us; neither felt, but only in The punishment.
+ - Nothing but man of all envenomed things, doth work upon itself, with inborn stings.
+ - Between cowardice and despair, valour is gendred.
+ - All other things to their destruction draw, Only our love hath no decay...
+ - Lust-bred diseases rot thee.
+ - Love is a growing, or full constant light; And his first minute, after noon, is night.
+ - I throw myself down in my chamber, and I call and invite God and his angels thither...
+ - Friends are ourselves.
+ - To an incompetent judge I must not lie, but I may be silent; to a competent I must answer.
+ - Old grandsires talk of yesterday with sorrow, And for our children we reserve tomorrow.
+ - Enjoyment always has a spoiling, otherwise it cannot be so.
+ - Thy face is mine eye, and mine is thine.
+ - The distance from nothing to a little, is ten thousand times more, than from it to the highest degree in this life.
+ - As peace is of all goodness, so war is an emblem, a hieroglyphic, of all misery.
+ - Nature hath no goal though she hath law.
+ - Doth not a man die even in his birth? The breaking of prison is death, and what is our birth, but a breaking of prison?
+ - Without outward declarations, who can conclude an inward love?
+ - That which attempts to elevate the ugly to the level of beauty becomes neither; but an obscenity.
+ - Sleep is pain’s easiest salve.
+ - My world’s both parts, and ’o! Both parts must die.
+ - How many times go we to comedies, to masques, to places of great and noble resort, nay even to church only to see the company.
+ - The Psalms foretell what I, what any shall do and suffer and say.
+ - There is hook in every benefit, that sticks in his jaws that takes that benefit, and draws him whither the benefactor will.
+ - Can there be worse sickness, than to know that we are never well, nor can be so?
+ - As states subsist in part by keeping their weaknesses from being known, so is it the quiet of families to have their chancery and their parliament within doors, and to compose and determine all emergent differences there.
+ - We love and understand talent; we wish it be within us. The truly gifted, those exceptional few, must wait for the world to catch up.
+ - Men have conceived a twofold use of sleep; it is a refreshing of the body in this life, and a preparing of the soul for the next.
+ - This only is charity, to do all, all that we can.
+ - Great sins are great possessions; but levities and vanities possess us too; and men had rather part with Christ than with any possession.
+ - Of all the commentaries on the Scriptures, good examples are the best.
+ - I did best when I had least truth for my subjects.
+ - In best understandings, sin began, Angels sinned first, then Devils, and then Man.
+ - Man is not only a contributory creature, but a total creature; he does not only make one, but he is all; he is not a piece of the world, but the world itself, and next to the glory of God, the reason why there is a world.
+
+191 quotes

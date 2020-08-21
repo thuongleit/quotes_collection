@@ -1,0 +1,32 @@
+ - Photography is a language more universal than words.
+ - Sometimes we work so fast that we don’t really understand what’s going on in front of the camera. We just kind of sense that, ‘Oh my God, it’s significant!’ and photograph impulsively while trying to get the exposure right. Exposure occupies my mind while intuition frames the images.
+ - One should not only photograph things for what they are but for what else they are.
+ - Be still with yourself until the object of your attention affirms your presence.
+ - At first glance a photograph can inform us. At second glance it can reach us.
+ - All photographs are self-portraits.
+ - Camera and eye are together a time machine with which the mind and human being can do the same kind of violence to time and space as dreams.
+ - Often while traveling with a camera we arrive just as the sun slips over the horizon of a moment, too late to expose film, only time enough to expose our hearts.
+ - When gifts are given to me through my camera, I accept them graciously.
+ - We emphasized the creativeness that happens at the moment of seeing over the kind that takes place in the dark room.
+ - Let the subject generate its own photographs. Become a camera.
+ - Students were taught by doing.
+ - No matter how slow the film, Spirit always stands still long enough for the photographer It has chosen.
+ - When you approach something to photograph it, first be still with yourself until the object of your attention affirms your presence. Then don’t leave until you have captured its essence.
+ - I have often photographed when I am not in tune with nature but the photographs look as if I had been. So I conclude that something in nature says, ‘Come and take my photograph.’ So I do, regardless of how I feel.
+ - Watching the way the current moves a blade of grass – sometimes I’ve seen that happen and it has just turned me inside out.
+ - If all your life means to you is water running over rocks, then photograph it, but I want to create something that would not have existed without me.
+ - There’s no particular class of photograph that I think is any better than any other class. I’m always and forever looking for the image that has spirit! I don’t give a damn how it got made.
+ - The development of a love of medium and a responsibility for one’s own pictures is an overall goal.
+ - When I looked at things for what they are I was fool enough to persist in my folly and found that each photograph was a mirror of my Self.
+ - I’m always mentally photographing everything as practice.
+ - To engage a sequence, we keep in mind the photographs on either side of the one in our eye.
+ - The photographer projects himself into everything he sees, identifying himself with everything in order to know it and to feel it better.
+ - Photographers who come up with power never get accused of imitating anyone else even though they photograph the same broom, same street, same portraits.
+ - When I look at pictures I have made, I have forgotten what I saw in front of the camera and respond only to what I am seeing in the photographs.
+ - We could teach photography as a way to make a living, and best of all, somehow to get students to experience for themselves photography as a way of life.
+ - In putting images together I become active, and excitement is of another order – synthesis overshadows analysis.
+ - It is curious that I always want to group things, a series of sonnets, a series of photographs; whatever rationalizations appear, they originate in urges that are rarely satisfied with single images.
+ - Before he has seen the whole, how unusually perceptive and imaginative the person must be to evolve the entire sequence by meditating on its single, pair or triplet of essential images.
+ - The camera is first a means of self-discovery and a means of self-growth. The artist has one thing to say – himself.
+
+30 quotes

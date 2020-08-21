@@ -1,0 +1,74 @@
+ - Fear is always a good motivator.
+ - Success is made of 99% failure.
+ - Manufacturing is more than just putting parts together. It’s coming up with ideas, testing principles and perfecting the engineering, as well as final assembly.
+ - As an engineer I’m constantly spotting problems and plotting how to solve them.
+ - What I’ve learned from running is that the time to push hard is when you’re hurting like crazy and you want to give up. Success is often just around the corner.
+ - There is no such thing as a quantum leap. There is only dogged persistence – and in the end you make it look like a quantum leap.
+ - I just think things should work properly.
+ - Enjoy failure and learn from it. You never learn from success.
+ - Life is a mountain of solvable problems and I enjoy that.
+ - In order to fix it, you need a passionate anger about something that doesn’t work well.
+ - Successes teach you nothing. Failures teach you everything. Making mistakes is the most important thing you can do.
+ - You need a stubborn belief in an idea in order to see it realised.
+ - Everyone has ideas. They may be too busy or lack the confidence or technical ability to carry them out. But I want to carry them out. It is a matter of getting up and doing it.
+ - Don’t listen to experts.
+ - The way the world is going, it’s technology driven. And it isn’t just driven by the old super powers, it’s driven by the far east and new emerging economies.
+ - Design and technology should be the subject where mathematical brainboxes and science whizzkids turn their bright ideas into useful products.
+ - Failure is an enigma. You worry about it, and it teaches you something.
+ - Engineering is treated with disdain, on the whole. It’s considered to be rather boring and irrelevant, yet neither of those is true.
+ - So I think the winners in recession are the people who produce new technology that does things better, which people really want.
+ - As a modern employer you have to treat people well.
+ - After the idea, there is plenty of time to learn the technology.
+ - If you want to do something different, you’re going to come up against a lot of naysayers.
+ - Everyone gets knocked back, no one rises smoothly to the top without hindrance. The ones who succeed are those who say, right, let’s give it another go.
+ - If you can’t be unconventional, be obtuse. Be deliberately obtuse, because there are 5 billion people out there thinking in train tracks, and thinking what they have been taught to think.
+ - I made 5,127 prototypes of my vaccum before I got it right. There were 5,126 failures. But I learned from each one. That’s how I came up with a solution. So I don’t mind failure.
+ - All our engineers are designers and all our designers are engineers.
+ - I think people are realizing that engineering and science are extremely good degrees to get and you’ll be very highly paid once you’ve got them.
+ - Designing aircraft and racing cars is an extremely exciting thing.
+ - I want entrepreneurs to be engineers and scientists and designers; they don’t necessarily have to be Internet entrepreneurs or retail entrepreneurs.
+ - Anyone developing new products and new technology needs one characteristic above all else: hope.
+ - At school, I enjoyed playing the bassoon. I was in the orchestra and played the melody when the other boys sang hymns at prayers time.
+ - The one size fits all approach of standardized testing is convenient but lazy.
+ - Stumbling upon the next great invention in an ‘ah-ha!’ moment is a myth.
+ - I was frustrated as a child when I had to use a vacuum. It had a screaming noise and the smell of stale dog and a lack of performance.
+ - Engineers are behind the cars we drive, the pills we pop and the way we power our homes.
+ - Britain’s great strength is its innovative, design and engineering natural ability and we’re not using it.
+ - If you invent something, you’re doing a creative act. It’s like writing a novel or composing music. You put your heart and soul into it, and money. It’s years of your life, it’s your house remortgaged, huge emotional investment and financial investment.
+ - If robots are to clean our homes, they’ll have to do it better than a person.
+ - I learned that the moment you want to slow down is the moment you should accelerate.
+ - The computer dictates how you do something, whereas with a pencil you’re totally free.
+ - Emerging markets are hugely important.
+ - Failure is so much more interesting because you learn from it. That’s what we should be teaching children at school, that being successful the first time, there’s nothing in it. There’s no interest, you learn nothing actually.
+ - We have to change our culture so you can create wealth from making things and don’t just try to make money out of money.
+ - Business is constantly changing, constantly evolving.
+ - When I started off, I was working in a shed behind my house. All I had was a drill, an electric drill. That was the only machine I had.
+ - Everybody recognizes that if you can make very efficient electric motors, you can make a quantum leap forward.
+ - In the digital age of ‘overnight’ success stories such as Facebook, the hard slog is easily overlooked.
+ - My interest in film is sort of catholic – apart from science fiction and horror movies, I’ll watch almost everything.
+ - Arbitrary benchmarks cheat kids out of a fulfilling education.
+ - Reality TV is anything but.
+ - I’ve fought court battles over my inventions before.
+ - The important thing is to learn from mistakes – something graduates are adept at. Our graduate engineers are working on new technology – from uncharted applications for our digital motor, to a new take on the hand dryer. With an unhindered mind, nothing is off limits.
+ - One of the most fun inventions of my lifetime is the Mini.
+ - Beauty can come in strange forms.
+ - Companies are not ingenious, it’s the people in them that are.
+ - Having a good idea is one thing, but persuading other people to buy it is quite another. Good inventors are polymaths: they think with their hands and their brains. They’re experts in design, engineering and business.
+ - The media thinks that you have to make science sexy and concentrate on themes such as rivalry and the human issues.
+ - Apartments are getting smaller on a whole. Houses are getting smaller. People don’t need great big vacuums anymore.
+ - Far too few designers put any thought into usability, ending up with a great product that’s completely inaccessible.
+ - Today, computers are almost second nature to most of us.
+ - Engineering undergraduates should not be charged fees. They should receive grants, not student loans, and the government will get the money back long-term from increased exports.
+ - If you really want to improve technology, if you want things to work better and be better, you’ve got to protect the person who spends a lot of effort, money, and time developing that new technology.
+ - I think the search engines are the new equivalent of publishing: an enabler of information.
+ - Children want the challenge of difficult tasks – just look how much better they are than their parents on a computer.
+ - Nobody wants the expenditure of a lease on a factory which lasts 21 years. You can’t plan 21 years ahead.
+ - We need to encourage investors to invest in high-technology startups.
+ - Cordless vacuums are designed for quick jobs, but you need enough power to do the job; you don’t want the power waning over time.
+ - When decisions on nuclear power stations and runways are delayed and the government dilly-dallies, people think they aren’t important.
+ - An inventor’s path is chorused with groans, riddled with fist-banging and punctuated by head scratches.
+ - I imported the first Mac into England in 1984; you know, the beige box. I imported what I think were the first four that came into England. I never opened the instruction manual. That was the best thing about it.
+ - The Web is fascinating and transformative, but it’s an easy, flashy, get-rich-quick option to the hard graft of proper industry.
+ - There’s nothing wrong with things taking time.
+
+72 quotes

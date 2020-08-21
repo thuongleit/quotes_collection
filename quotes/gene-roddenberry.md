@@ -1,0 +1,40 @@
+ - Space, the final frontier. These are the voyages of the starship Enterprise. Its five-year mission: to explore strange new worlds, to seek out new life and new civilizations, to boldly go where no man has gone before.
+ - Time is the fire in which we burn.
+ - The glory of creation is in its infinite diversity.
+ - If man is to survive, he will have learned to take a delight in the essential differences between men and between cultures. He will learn that differences in ideas and attitudes are a delight, part of life’s exciting variety, not something to fear.
+ - To be different is not necessarily to be ugly; to have a different idea is not necessarily to be wrong. The worst possible thing is for all of us to begin to look and talk and act and think alike.
+ - I believe in humanity. We are an incredible species. We’re still just a child creature, we’re still being nasty to each other. And all children go through those phases. We’re growing up, we’re moving into adolescence now. When we grow up – man, we’re going to be something!
+ - It is the struggle itself that is most important. We must strive to be more than we are. It does not matter that we will not reach our ultimate goal. The effort itself yields its own reward.
+ - Why are we now going into space? Well, why did we trouble to look past the next mountain? Our prime obligation to ourselves is to make the unknown known. We are on a journey to keep an appointment with whatever we are.
+ - We are on a journey to keep an appointment with whatever we are.
+ - The Strength of a civilization is not measured by its ability to fight wars, but rather by its ability to prevent them.
+ - We must question the story logic of having an all-knowing all-powerful God, who creates faulty Humans, and then blames them for his own mistakes.
+ - A man either lives life as it happens to him, meets it head-on and licks it, or he turns his back on it and starts to wither away.
+ - In the 24th century there will be no hunger, there will be no greed, and all the children will know how to read.
+ - I’m in a period of growth and expansion. I’m taking long, hard looks at the world and what’s happening in it, analyzing and thinking. I’m trying to become acquainted with the universe – with the part of it I occupy – and trying to settle, for myself, what my relationship with it is.
+ - It isn’t all over; everything has not been invented; the human adventure is just beginning.
+ - Star Trek says that it has not all happened, it has not all been discovered, that tomorrow can be as challenging and adventurous as any time man has ever lived.
+ - Religions vary in their degree of idiocy, but I reject them all.
+ - For Star Trek proves, as faulty as individual episodes could be, is that the much-maligned common man and common woman has an enormous hunger for brotherhood. They are ready for the twenty-third century now, and they are light-years ahead of their petty governments and their visionless leaders.
+ - For most people, religion is nothing more than a substitute for a malfunctioning brain.
+ - Ancient astronauts didn’t build the pyramids. Human beings built the pyramids, because they’re clever and they work hard.
+ - Matter of internal security – the age-old cry of the oppressor. Picard.
+ - We stress humanity, and this is done at considerable cost. We can’t have a lot of dramatics that other shows get away with – promiscuity, greed, jealousy. None of those have a place in ‘Star Trek.’
+ - If this is your God, he’s not very impressive. He has so many psychological problems; he’s so insecure. He demands worship every seven days. He goes out and creates faulty humans and then blames them for his own mistakes. He’s a pretty poor excuse for a Supreme Being.
+ - We have within reach, now, the attainment of almost every dream of mankind.
+ - The human race is a remarkable creature, one with great potential, and I hope that ‘Star Trek’ has helped to show us what we can be if we believe in ourselves and our abilities.
+ - In a better world, I can do anything. I’ll be there in a better world. In a better world, they will not laugh at me or look down their nose at me.
+ - When you get into an airplane by yourself and take off, you find yourself in this lovely, three-dimensional world where you can go in any direction. There is no feeling any more exciting than that.
+ - For me science fiction is a way of thinking, a way of logic that bypasses a lot of nonsense. It allows people to look directly at important subjects.
+ - They said God was on high and he controlled the world and therefore we must pray against Satan. Well, if God controls the world, he controls Satan. For me, religion was full of misstatements and reaches of logic that I just couldn’t agree with.
+ - I wish I had more control, more like Edgar Rice Burroughs had, but I’m a realist, too. I work in television. I don’t know that I would want to spend the rest of my life controlling my characters.
+ - Art is really people asking the eternal question, “What is it all about?”
+ - I think God is as much a basic ingredient in the universe as neutrons and positrons. This is the prime force, when we look around the universe.
+ - I have always been reasonably leery of religion because there are so many edicts in religion, ‘thou shalt not,’ or ‘thou shalt.’ I wanted my world of the future to be clear of that.
+ - They say that ninety per cent of TV is junk. But ninety per cent of everything is junk.
+ - There was much to put out of his mind. Why was it difficult to forget Chekov’s astonished delight which greeted him at the command airlock when he boarded. And on the bridge – Kirk! The mere name made Spock groan inwardly as he remembered what it had cost him to turn away from that welcome. T’hy’la!
+ - It has become a crusade of mine to demonstrate that TV need not be violent to be exciting.
+ - If ‘Trek’ is a hit, we’d love to do a series of films – a regular event. Look at James Bond’s films. They’ve been around since the early sixties.
+ - The present blitz about drugs – I think it looks very much like how we treated insane people 100 years ago – throw them in the cage – as if that’s the whole answer. And it’s not the whole answer.
+
+38 quotes

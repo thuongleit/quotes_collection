@@ -1,0 +1,118 @@
+ - I would rather wear out than rust out.
+ - Press forward. Do not stop, do not linger in your journey, but strive for the mark set before you.
+ - Let my name die everywhere, let even my friends forget me, if by that means the cause of the blessed Jesus may be promoted.
+ - God, give me a deep humility, a well-guided zeal, a burning love and a single eye, and then let men or devils do their worst!
+ - We are immortal till our work is done.
+ - It is a poor sermon that gives no offense; that neither makes the hearer displeased with himself nor with the preacher.
+ - How sweet is rest after fatigue! How sweet will heaven be when our journey is ended.
+ - I was honored today with having a few stones, dirt, rotten eggs, and pieces of dead cat thrown at me.
+ - Let the name of Whitefield perish, but Christ be glorified.
+ - We can preach the Gospel of Christ no further than we have experienced the power of it in our own hearts.
+ - You may have orthodox heads, and yet you may have the devil in your hearts.
+ - Other men may preach the gospel better than I, but no man can preach a better gospel.
+ - The Christian world is in a deep sleep; nothing but a loud shout can awaken them out of it!
+ - Christ is worth all, or he is worth nothing.
+ - You blame me for weeping, but how can I help it when you will not weep for yourselves, though your immortal souls are on the verge of destruction.
+ - I am tired in the Lord’s work, but not tired of it.
+ - If we once get above our Bibles and cease making the written Word of God our sole rule both as to faith and practice, we shall soon lie open to all manner of delusion and be in great danger of making shipwreck of faith and a good conscience.
+ - The fall of man is written in too legible characters not to be understood: Those that deny it, by their denying, prove it.
+ - A true faith in Jesus Christ will not suffer us to be idle. No, it is an active, lively, restless principle; it fills the heart, so that it cannot be easy till it is doing something for Jesus Christ.
+ - Jesus Christ came into the world to save sinners, even persecutors, the worst of sinners: his righteousness is sufficient for them; his Spirit is able to purify and change their hearts.
+ - Pray that I may be very little in my own eyes, and not rob my dear Master of any part of his glory.
+ - God forbid that I should travel with anybody a quarter of an hour without speaking of Christ to them.
+ - Though you have sinned much, that is no reason why you should despair, but only why you should love much, having so much forgiven.
+ - True repentance will entirely change you; the bias of your souls will be changed, then you will delight in God, in Christ, in His Law, and in His people.
+ - The care of the soul is ‘a matter of the highest importance;’ beyond any thing which can be brought into comparison with it.
+ - The renewal of our natures is a work of great importance. It is not to be done in a day. We have not only a new house to build up, but an old one to pull down.
+ - Congregations are lifeless because dead men preach to them.
+ - My prayer today is that God would make me an extraordinary Christian.
+ - I offer you salvation this day; the door of mercy is not yet shut, there does yet remain a sacrifice for sin, for all that will accept of the Lord Jesus Christ. He will embrace you in the arms of His love.
+ - I am never better than when I am on the full stretch for God.
+ - Ministers never write or preach so well as when under the cross.
+ - All I can say is I look for perpetual conflicts and struggles in this life, and I hope for no other peace, only a cross, while on this side of eternity.
+ - Be content with no degree of sanctification. Be always crying out, “Lord, let me know more of myself and of thee.”
+ - I began to read the Holy Scriptures upon my knees, laying aside all other books, and praying over, if possible, every line and word. This proved meat indeed and drink indeed to my soul. I daily received fresh life, light and power from above.
+ - True conversion means turning not only from sin but also from depending on self-made righteousness.
+ - Lord Jesus, I am weary in Thy work, but not of it. If I have not yet finished my course, let me go and speak for Thee once more in the field, seal Thy truth, and come home to die.
+ - I have just put my soul as a blank into the hand of Jesus, my Redeemer, and desired Him to write on it what He pleases; I know it will be His image.
+ - As God can send a nation or people no greater blessing than to give them faithful, sincere and upright ministers, so the greatest curse that God can possibly send upon a people in this world is to give them over to blind, unregenerate, carnal, lukewarm and unskilled guides.
+ - Mere heathen morality, and not Jesus Christ, is preached in most of our churches.
+ - The Lord Jesus sits in heaven, ruling over all, and causing all things to work for his children’s good.
+ - We must all have the spirit of martyrdom, though we may not all die martyrs.
+ - It is an undoubted truth that every doctrine that comes from God, leads to God; and that which doth not tend to promote holiness is not of God.
+ - Our food and our rest, our trades and our labors, are to be attended to, and all the offices of humanity performed in obedience to the will of God, for the glory of Christ...
+ - You might as reasonably expect to find a living man without breath, as a true Christian without the spirit of prayer and supplication.
+ - Nothing is more generally known than our duties which belong to Christianity; and yet, how amazing is it, nothing is less practiced?
+ - Why fear ye that the Lord Jesus Christ will not accept of you? Your sins will be no hindrance, your unworthiness no hindrance; if your own corrupt hearts do not keep you back, nothing will hinder Christ from receiving of you.
+ - If we are not inwardly wrought upon, and changed by the powerful operations of the Holy Spirit, and our moral actions proceed from a principle of a new nature, however we may call ourselves Christians, we shall be found naked at the great day.
+ - If you know Christ and him crucified, you know enough to make you happy, supposing you know nothing else. And without this, all your other knowledge cannot keep you from being everlastingly miserable.
+ - The reason why congregations have been so dead is because they have dead men preaching to them. How can dead men beget living children?
+ - Jesus was God and man in one person, that God and man might be happy together again.
+ - The true believer can no more live without prayer, than without food day by day.
+ - Lord help me to begin to begin.
+ - The sinner can no more raise himself from the deadness of sin than Lazarus, who had been dead four days, until Jesus came.
+ - For, if we have not charity, we are not Christians: charity is the great duty of Christians.
+ - Open your hearts as wide as ever you will, the Spirit of the Lord shall fill them.
+ - I got more true knowledge from reading the Book of God in one month, than I could ever have acquired from all the writings of men.
+ - Dare, dare, my dear brethren in Christ, to follow the Captain of your salvation, who was made perfect through sufferings.
+ - Thus was the King and the Lord of glory judged by man’s judgment, when manifest in flesh: far be it from any of his ministers to expect better treatment.
+ - It is very remarkable, that in the book of life, we find some almost of all kinds of occupations, who notwithstanding served God in their respective generations, and shone as so many lights in the world.
+ - Oh for a thousand lives to be spent in the service of Christ.
+ - God has condescended to become an author, and yet people will not read his writings. There are very few that ever gave this Book of God, the grand charter of salvation, one fair reading through.
+ - Know, by sad experience, what it is to be lulled to sleep with a false peace. Long was I lulled asleep; long did I think myself a Christian, when I knew nothing of the Lord Jesus Christ.
+ - O that unbelievers would learn of faithful Abraham, and believe whatever is revealed from God, though they cannot fully comprehend it! Abraham knew God commanded him to offer up his son, and therefore believed, notwithstanding carnal reasoning might suggest may objections.
+ - See that you feel the truths that you speak.
+ - What! Get to heaven on your own strength? Why, you might as well try to climb to the moon on a rope of sand!
+ - Left to himself, man is half beast and half devil.
+ - As Christ was born of the Virgin’s womb, so must He be spiritually formed in our hearts. As He died for sin, so must we die to sin. And as He rose again from the dead, so must we also rise to a divine life.
+ - The righteousness of Jesus Christ is one of those great mysteries, which the angels desire to look into, and seems to be one of the first lessons that God taught men after the fall.
+ - Though they have a Christ in their heads, they have no Christ in their hearts.
+ - Come poor, lost, undone sinner, come just as you are to Christ.
+ - Oh let us continually keep faith in exercise, till it be entirely swallowed up in the boundless ocean of beatific vision.
+ - Various are the pleas and arguments which men of corrupt minds frequently urge against yielding obedience to the just and holy commands of God.
+ - For in Jesus Christ there is neither male nor female, bond nor free; even you may be the children of God, if you believe in Jesus.
+ - I say salvation is the free gift of God. It is God’s free grace, I preach unto you, not of works, lest anyone should boast. Jesus Christ justifies the ungodly. Jesus Christ passed by and saw you polluted with your blood and bid you live.
+ - Oh that I was lowly in heart! Honor and dishonor, good report and evil report would then be alike, and prove a furtherance to me in my Christian cause.
+ - You see, my brethren, my heart is full; I could almost say it is too big to speak, and yet too big to be silent, without dropping a word to you.
+ - You need not fear the greatness or number of your sins.
+ - And now let me address all of you, high and low, rich and poor, one with another, to accept of mercy and grace while it is offered to you; Now is the accepted time, now is the day of salvation; and will you not accept it, now it is offered unto you?
+ - What could the Lord Jesus Christ have done for you more than he has? Then do not abuse his mercy, but let your time be spent in thinking and talking of the love of Jesus, who was incarnate for us, who was born of a woman, and made under the law, to redeem us from the wrath to come.
+ - As for the extraordinary operations of the Holy Ghost, such as working of miracles, or speaking with divers kinds of tongues, they are long since ceased.
+ - Had I a hundred hands, I could employ them all. The harvest is very great. I am ashamed I can do no more for him who has done so much for me.
+ - Following Christ means following him through life, following him in every word and gesture, following him out of one clime into another.
+ - Fight the good fight of faith, and God will give you spiritual mercies.
+ - Let us, therefore, not be weary of well-doing; for we shall reap an eternal harvest of comfort, if we faint not.
+ - Give diligent heed to the things that are spoken from the Word of God.
+ - The Judge is before the door: he that cometh will come, and will not tarry: his reward is with him.
+ - When our Lord says, we must be converted and become as little children, I suppose He means also, that we must be sensible of our weakness, comparatively speaking, as a little child.
+ - Although believers by nature are far from God, and children of wrath, even as others, yet it is amazing to think how nigh they are brought to him again by the blood of Jesus Christ.
+ - Would ministers preach for eternity! They would then act the part of true Christian orators, and not only calmly and cooly inform the understanding, but, by persuasive, pathetic address, endeavour to move the affections and warm the heart.
+ - There is not a thing on the face of the earth that I abhor so much as idleness or idle people.
+ - God enabled me to speak with the demonstration of the Spirit, and with power.
+ - The reason why the Son of God took upon him our nature was, the fall of our first parents.
+ - O my brethren, my heart is enlarge towards you. I trust I feel something of that hidden, but powerful presence of Christ, whilst I am preaching to you.
+ - It is God alone who can subdue and govern the unruly wills of sinful men.
+ - To preach more than half an hour, a man should be an angel himself or have angels for hearers.
+ - Whole days and weeks have I spent prostrate on the ground in silent or vocal prayer.
+ - Numberless marks does man bear in his soul, that he is fallen and estranged from God; but nothing gives a greater proof thereof, than that backwardness, which every one finds within himself, to the duty of praise and thanksgiving.
+ - This discourse, and the present frame of my mind, lead me rather to speak to those, who by feeling Satan’s fiery darts, know assuredly that there is a devil.
+ - The riches of His free grace cause me daily to triumph over all the temptations of the wicked one, who is very vigilant, and seeks all occasions to disturb me.
+ - For it pleased God, after he had made all things by the word of his power, to create man after his own image.
+ - If one evil thought, if one evil word, if one evil action, deserves eternal damnation, how many hells, my friends, do every one of us deserve, whose whole lives have been one continued rebellion against God!
+ - Speak every time my dear brother as if it were your last.
+ - There are many likewise, who go on in a round of duties, a model of performances, that think they shall go to heaven; but if you examine them, though they have a Christ in their heads, they have no Christ in their hearts.
+ - No, the religion of Jesus is a social religion.
+ - The great and important duty which is incumbent on Christians, is to guard against all appearance of evil; to watch against the first risings in the heart to evil; and to have a guard upon our actions, that they may not be sinful, or so much as seem to be so.
+ - I believe I never was more acceptable to my Master than when I was standing to teach those hearers in the open fields. I now preach to ten times more people than I would if I had been confined to the churches.
+ - All our afflictions, all our temptations are to make heaven more desirable, and earth more loathsome.
+ - But he is unworthy the name of a minister of the gospel of peace, who is unwilling, not only to have his name cast out as evil, but also to die for the truths of the Lord Jesus.
+ - Among the many reasons assignable for the sad decay of true Christianity, perhaps the neglecting to assemble ourselves together, in religious societies, may not be one of the least.
+ - Man is nothing: he hath a free will to go to hell, but none to go to heaven, till God worketh in him to will and to do his good pleasure.
+ - When you hear of a notorious sinner, instead of thinking you do well to be angry, beg of Jesus Christ to convert, and make him a monument of his free grace.
+ - I found by daily experience, the more I did, the more I might do for God.
+ - God is well pleased when all our actions proceed from love, love to Himself, and love to immortal souls.
+ - Be humble, talk little, think and pray much.
+ - Take care of your life and the Lord will take care of your death.
+ - If your souls were not immortal, and you in danger of losing them, I would not thus speak unto you; but the love of your souls constrains me to speak: methinks this would constrain me to speak unto you forever.
+
+116 quotes

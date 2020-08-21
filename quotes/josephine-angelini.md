@@ -1,0 +1,22 @@
+ - I don’t care how hard being together is, nothing is worse than being apart.
+ - Yes. I love them both. And I’d die for them both.
+ - I chose love – I chose you over everything that was offered to me.
+ - What the holy hand grenade was that?
+ - I made you a world.
+ - You and I are way to fabulous to be ordinary.
+ - Helen decided that the saying about “time healing all wounds” was a bunch of bull and probably only worked for people with very poor memories. The time she’s spent apart from Lucas hadn’t healed anything. The distance only made her miss him more.
+ - She decided that if Lucas was gay then she was going to have to get a sex change operation. He would be so worth it.
+ - I don’t know why you’re fighting it, Len. One, he’s frigging gorgeous. Two, he’s so frigging gorgeous you need to count it twice. Three, he saw you fall down and left practice to see if you were okay. That’s, like, devotion.
+ - And I don’t just WANT you, Helen. I LOVE you. Big difference.
+ - You’ve got the killer instincts of a houseplant.
+ - She had power over the most magnificent forces on Earth, but she still didn’t feel like she had power over the most important thing of all – her own heart.
+ - I could wait my whole life for you, and you’d still be in love with Lucas.
+ - So, what can’t you take? Decide which of the two options is harder, and do the other. That way, no matter how hard your choice turns out to be, at least you can find comfort in knowing you’re avoiding something even worse.
+ - He’s not going around telling everyone you’re monkey-butt crazy, so at least you brutalized a seriously sweet guy.
+ - The Gods know what it is to be eternal, and they love to toy with mortals who use absolutes.
+ - I was a little worried she might try to drag me off to hell and drain my essence at some point, but I figured that was still better than having Gretchen for a best friend.
+ - It’s not our talents that make us safe or dangerous, it’s our choices.
+ - She looked so cute wen she was apologizing that Helen couldn’t even pick up a grudge, let alone carry one.
+ - She would have to leave the country, or at least Nantucket, because there was no way she could live down the fact that she had tried to strangle the hottest boy on the island.
+
+20 quotes

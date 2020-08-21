@@ -1,0 +1,55 @@
+ - I don’t care what people say about me.
+ - I hope I die before I get old.
+ - I’m surrounded by good people. That’s the measure of a good life. All the rest is flotsam.
+ - I’m realistic about my age and realistic about the fact that there’s an awful lot less in front of me than there is behind me. I’ve always felt that music is an art form that deserves to live the life of the artist.
+ - When I sing, I try to live the song or live the emotion of the song. The space I’m in doesn’t exist. It’s another world.
+ - You can do too much and oversell your market.
+ - My place, your place, slapped face, rat race.
+ - I don’t have any illusions anymore. The illusion that rock ‘n’ roll could change anything – I don’t believe that. I’ve changed.
+ - I’m not always the most diplomatic person.
+ - I had me jaw broken, and so my chin stuck way out. That’s how I became tough – I learned to pick up anything and fight back.
+ - But contrary to what some people seem to think, I was never a bully. I was just a hard man.
+ - You’re better off being a brick layer if you’re going to play guitar than a sheet metal worker.
+ - We lived the life with Keith Moon. It was all Spinal Tap magnified a thousand times.
+ - I’ve always felt that music is an art form that deserves to live the life of the artist.
+ - No, I was two years older than the other guys. I was a war baby. My family were a lot poorer than they were. I’d had to fight too hard for anything I had in my life and to smash things up for me.
+ - I think if Keith Moon was here today and you asked him to recall most of his early life or most of his life, he wouldn’t be able to recall it.
+ - There is certainly more in the future now than back in 1964.
+ - I thought if I lost the band, I was dead. If I didn’t stick with the Who, I would be a sheet metal worker for the rest of my life.
+ - I’ve never wanted to be anyone other than who I am.
+ - I have to tell you, and I don’t mean this as sour grapes or anything, but it is hard to play for fans who see you all the time, makes it much harder.
+ - I don’t over-sing anymore, which I used to suffer from terribly because I couldn’t hear myself.
+ - I enjoy singing; being in touch with something that is inside of me.
+ - Fifty per cent of rock is having a good time.
+ - Part of the early Who career was all about knocking people’s confidences out.
+ - I call it fan fatigue. I went to see Bob Dylan last year, who I think is absolutely incredible, but he suffers from his audience.
+ - I used to take amphetamines until I realized that amphetamines didn’t go with being a good singer.
+ - I know without our fans and the devotion of our fans we wouldn’t be here. I don’t mean to put them down, but I’m just stating a fact that it is hard to play to people that see you all the time and it takes a lot of fun out of it in some ways.
+ - I don’t know many singers who actually do like the sound of their own voice.
+ - I wanted to be in a band that shared ideas and were in it together.
+ - We weren’t wealthy but we definitely weren’t poor. We were incredibly rich because there was a wonderful community in Shepherd’s Bush, where I grew up. All my friends were into villainy and crime.
+ - My love for the band is still there. It hasn’t changed, maybe that’s why it’s so painful these days.
+ - I know my faults, but I’m comfortable with me.
+ - I always used to develop a cold going into the studio.
+ - I live 50 miles from London and we’ve got some of the highest levels of teenage and childhood poverty in the country. It’s disgusting. Just because it’s a rural area, it gets forgotten.
+ - The Who would never have been successful without two special people, Kit Lambert and Chris Stamp.
+ - I don’t like Tommy on Broadway at all. I like the music, I’m pleased with Pete’s success but I don’t like what they’ve done to it.
+ - I love Adele. That’s a lead singer; that’s the real deal.
+ - Every generation of rock musician will understand that we wouldn’t be anywhere without the support of teenagers buying the records.
+ - Imagine if you could go watch Mozart today, even if it’s the last, crappiest show he ever played. What a thrill that would be.
+ - You know, I was a school rebel. Whatever they said do, I didn’t do. I was totally anti-everything.
+ - I struggled more than anything else to find a voice for this band.
+ - I never understood that if you sweat as much as I used to every night, you drain your body of salts. So I got very, very, seriously ill. I got to the stage where I was almost hospitalized with serious problems.
+ - My feeling was that I simply didn’t have the enthusiasm to do reinvention.
+ - First of all, you have to understand that I’m like anybody else. When I hear my voice on a record I absolutely loathe my voice. I cannot stand my voice.
+ - You have to keep fit being a singer – that’s part of the job. You can’t do it unless you have incredible stamina.
+ - Unless you’ve been touched personally, it’s difficult to see, but there are millions of people who have no voice whatsoever.
+ - I feel there must be an enormous amount of really talented songwriters out there who can’t sing.
+ - We tend to think of age only in time, but I don’t think it has much to do with time at all there’s a whole load of other things. I’ve met 16-year-olds who are old and 90-year-olds who are young.
+ - We were too rough at the edges to be a pop group.
+ - European fisheries are a disaster. The American fisheries are well-kept.
+ - Nikki Lamborn has the best female rock voice since Janis Joplin and I know what I’m talking about, I knew Janis.
+ - All you could do was to see them. We were backstage when the Beatles were on and you could just about hear a noise. It was just literally screaming.
+ - I used to be a great blues singer.
+
+53 quotes

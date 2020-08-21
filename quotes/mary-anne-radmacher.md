@@ -1,0 +1,166 @@
+ - Courage doesn’t always roar. Sometimes courage is the little voice at the end of the day that says I’ll try again tomorrow.
+ - Live with intention. Walk to the edge. Listen hard. Practice wellness. Play with abandon. Laugh. Choose with no regret. Appreciate your friends. Continue to learn. Do what you love. Live as if this is all there is.
+ - Live boldly. Laugh Loudly. Love Truly. Play as often as you can Work as smart as you are able. Share your heart as deeply as you can reach.
+ - As we work to create light for others, we naturally light our own way.
+ - Change of any sort requires courage.
+ - May your walls know joy, may every room hold laughter, and every window open to great possibility.
+ - Live with intention. Walk to the edge. Do what you love. Live as if this is all there is.
+ - At first glance it may appear too hard. Look again. Always look again.
+ - Unexpected events can set you back or set you up. It’s all a matter of – perspective.
+ - Have your new year’s resolutions been a new beginning for you or have they just been different words on the same old beginning? Maybe now’s the time to establish a new pattern of viewing your life fresh.
+ - Every possibility begins with the courage to imagine.
+ - Your success will shine as a light of hope and inspire numbers you cannot total.
+ - The jump is so frightening between where I am and where I want to be. Because of all I may become, I will close my eyes and leap.
+ - There is no small act of kindness. Every compassionate act makes large the world.
+ - The challenge before us is to savor the unknown and delight in the taste of possibility.
+ - In the garden of your days cultivate festivity, play and celebrations.
+ - Who were you before you put yourself last.
+ - The most important promises are the ones we make to ourselves. The promises we makes to ourselves are the things that assure us we have the capacity to keep our promises to others.
+ - Lean forward into your life. Begin each day as if it were on purpose.
+ - Fate makes us family. choice makes us friends.
+ - What if we just acted like everything was easy?
+ - My biggest dream is that my words will inspire heart, hope and personal responsibility in people around the globe long after my feet in these shoes aren’t walking the planet.
+ - Be guided by the stars which you place well on the canopy of your night sky.
+ - The boldness of endurance is the underline to almost every success.
+ - Find your balance and stand with it. Find your song and sing it out. Find your cadence and let it appear like a dance. Find the questions that only you know how to ask and The answers that you are content to not know.
+ - Expressing gratitude seems like a cosmic invitation for all kinds of thankfulness and appreciation to pour in.
+ - Nurturing is not complex. It’s simply being tuned in to the thing or person before you and offering small gestures toward what it needs at that time.
+ - When we have a circle of friends, we have more fun. We get more done, we feel and are stronger, and we really do celebrate the power of our ‘us.’
+ - Capture a shadow, dance with the wind, stand in a rainbow, begin at the end.
+ - Consider calling it a challenge rather than calling it a crisis.
+ - Yes! it takes courage to act upon your dreams.
+ - Consistent physical structures can allow unbounded intuitive clarity.
+ - Today is a gift I honor by fully living it.
+ - We laugh to survive. Then, with joy we thrive.
+ - It is not the easy or convenient life for which I search, but life lived to the edge of all that I may be.
+ - Listen to the compass of your heart. All you need lies within you.
+ - Vision stands on the shoulders of what is actual to get a better view of what is possible.
+ - In my own deepening understanding of myself I find my capacity to serve others is deepened as well. The better I am at self-care the more genuinely nurturing of others I am able to be.
+ - Your responsibility is to be an explorer, not a tourist in this adventure that is your life.
+ - Discover the tools to build your own vision.
+ - Live as if this is all there is.
+ - It takes courage to reinvent joys, to reinvent opportunities, to reinvent dreams, to reinvent connections, to reinvent hopes that you have set aside.
+ - Dare to dream of your great success.
+ - Best Friends: we’re a parade – even by ourselves!
+ - Belief fuels our decisions – even when we are not clearly aware of those beliefs.
+ - A Single Generosity Enlarges the World.
+ - USE this time of fresh beginnings. Use it as an impetus, the force or energy toward change. Become stronger, a better leader, more focused in your thoughts. Exert more influence over your dreams by bringing them closer to your thoughts, every day.
+ - We tell the real truth of our life by the stories we repeatedly tell.
+ - I wake up to profound perspective that allows me to celebrate the choices of my moments, of my life.
+ - Work as smart as you are able.
+ - In service, there is clarity and compassion.
+ - If you follow the trail of your own enthusiastically repeated stories, you will begin to rediscover the things that invigorate and enliven you.
+ - Some days are simply meant for playing.
+ - Protect your vision. Prevail over adversity. Persevere in the midst of turmoil. Passionately act upon your convictions. Purposely walk into the day.
+ - In choosing joy, the finish line dissolves into a different matter altogether.
+ - See stars in the changing season and dance among them, shining.
+ - Persevere. Plan. Strategize. Focus. Breathe. Write. Let go: relax. Forgive. All this failing: take a nap.
+ - In the quiet of this day may you know the greatness of your spirit and may your hopes fly on the wings of possibility.
+ - Take time to play! Ask for what you want. Laugh. Live loudly. Be avid. Learn a new thing. Be Yourself!
+ - Just stop it. Seriously. Whatever it is. Just stop it. If only for an hour, a day, a week. Stop doing it long enough to get a glimpse of what the change would actually look like.
+ - One whispered yes becomes the wind song over an ocean of no’s.
+ - There is no small act of kindness.
+ - It takes discipline and compassion to awaken the divine in ourselves long enough to recognize the divine in another.
+ - Distance cannot matter – ours is a friendship of the heart.
+ - Plant the seeds of your dreams and weed all the objections out.
+ - Go ahead. Weep for the rare, the never seen this way again, the excruciating, ineffable, unmitigated beauty of love.
+ - Extend your hand with the strongest reach.
+ - Your eyes must not determine what you see. pay attention.
+ - One unlikelihood entertained leads a parade of innovation.
+ - Change the conversation of the world by dwelling on what’s gone right.
+ - I am not the same having seen the moon shine on the other side of the world. Mary.
+ - Don’t Wait! Start on your dreams, your impulses, your longings, your special occasions today. Because this is your moment.
+ - The well-timed question is more impacting than an answer.
+ - My courage does not depend on the weather.
+ - Be avid. Create apart from perfection. Risk failure. Cover your words with sweat. Run a little Touch excruciatingly. Laugh until you cry. Dance with your eyes closed. Care. Understand you die a little in every moment. Be Enlivened.
+ - Facing a difficulty requires a willingness of heart.
+ - I wrap the potential for bitterness, resentment, martyrdom in the blanket of forgiveness and just set it down. Then it just melts in the warmth. And goes away.
+ - Your point of view sets you up well in advance for how you view the events as they unfold.
+ - I awakened. is that not a wonderful statement?
+ - If self-validation were our most significant societal measure – we would give trophies to ourselves.
+ - Find your way with the certain and gentle light of forgiveness.
+ - Just because it’s true, I say as often as I can in as many ways as I can form, “I sure love you.”
+ - May your season shine with delight and surprise.
+ - Begin as if you will finish. Let the story be told that you had the courage to begin.
+ - Ask yourself to slow down.
+ - Gardening is all about optimism. I put a seed in the ground. I consistently tend it, confident I will see the results, in time, of the nurture I have provided.
+ - It is of the small joys and little pleasures that the greatest of our days are built.
+ - In the midst of the flurry – clarity. In the midst of the storm – calm. In the midst of divided interests – certainty. In the many roads – a certain choice.
+ - Just another cold, misty morning inviting, “want to go again?”
+ - I will not be governed by the tyranny of immediacy.
+ - I will close my eyes and leap.
+ - Courage doesn’t always roar.
+ - A bird only flies. It does not turn to another bird and ask, am I doing this right?
+ - A life rooted deeply lives and grows in memory.
+ - Healthy choices thread through every aspect of life.
+ - I rest in the light of forgiveness.
+ - An “always been” does not mean I must choose “what must be.”
+ - In all my ways of seeing – may I use new glasses, a telescope and a microscope. And may I always allow myself to see a circumstance through the tender hearts of my friends.
+ - RESPONSIBILITY: Fulfill the obligations that the past posts to me. Embrace the opportunity for service based in love.
+ - Belief transcends ritual, structure and societal expectation. It is an enlivening, intensely personal core to our being. Our way of being.
+ - Great leadership is not the visit of an unexpected fate but rather a flame which is kept burning in spite of the winds of risk and opposition.
+ - Goes the song, “we change, we change.” But the music is still mine.
+ - What is it about sameness that so draws me, and how could I begin to have that same kind of attraction to change?
+ - In my prayers I never said I needed a home. I said I wanted a sanctuary.
+ - Dare to dream of your great success. Become intimate with those things which deeply motivate you and regularly work toward the realization of that mission.
+ - My husband melted my heart the day he asked me, “Can I participate in your wonder?” In whose wonder do you get to participate today?
+ - Choice impacts virtually every element of our life.
+ - One bold inspiration choreographs a dance with promise.
+ - I will reflect the finest qualities my friends offer me and remind them of all the promise I see in them.
+ - Pick up a stone that feels good to you and is small enough to hold in one hand. Consider how long that stone has been around and what enormous pressure it has experienced. Draw strength from its long history.
+ - What is our family? We touch our full hearts and see ourselves reflected whole in each other’s eyes.
+ - As you awaken, may your dreams greet you by name, and may you answer, “Yes!”
+ - Curiosity takes courage. The most important promises are the ones you make to yourself. Pay Attention. Appreciate. Listen. Imagine.
+ - I find motivation and inspiration and hope in information.
+ - Choose with no regret.
+ - Gift the love of your life with undistracted, untelevisioned, unhurried attentiveness.
+ - Judgment is discernment on a bad hair day.
+ - Even from the darkest night songs of beauty can be born.
+ - Take a deep breath and do the difficult thing first.
+ - How is it that one rails against that which is nearly a certainty?
+ - I will move with the wind.
+ - Recognize that on certain days the greatest grace is that the day is over and you get to close your eyes. Tomorrow comes more brightly.
+ - Our daily decisions create the scrapbook of our life.
+ - That I was born to this circle – I am blessed. That I choose to stand in this circle – I am proud.
+ - Know the best and highest choices for health and more often choose those things.
+ - One service to need heals an ancient wound.
+ - Sometimes the things you really want sneak in the back door. Notice.
+ - Forgiveness is really a gift to yourself – have the compassion to forgive others, and the courage to forgive yourself.
+ - The opportunity for greater courage comes in the most ordinary of moments.
+ - Laughter is what spills over the edge of an inspired life.
+ - May a thread of comfort be woven through your difficult days.
+ - I advocate speaking words of love with all the sincerity that can be mustered, as frequently as possible.
+ - Life is defined more by its contrasts than its samenesses; Life is defined more by its risks than the many securities.
+ - Shake structures. School yourself. Look twice at a thing, once upside down. Answer yourself clearly.
+ - Manage the remarkable balance between acting from your heart and close to your gifts with completing the obligations that your labor and tasks require of you. Leverage opportunity AND seize joy.
+ - What power there is in our service when our actions line up with our mission, skills and joy.
+ - It is a better thing to weigh and measure priorities in the illuminating light of your own mission than to have your activities formed by the impressions and expectations of others.
+ - One movement toward light becomes a clear signpost on a long road.
+ - A small compassionate act enlarges the scope of community.
+ - Tonight, late, when I’m still not done with the day but must comply with sleep, I can whisper, “There was done a little good today. Today I changed myself and the world, just a little. And yes, I loved.” Most days, that is enough.
+ - In all things and in all ways, choice impacts virtually every element of our life. It bears repeating that even those things which seem out of reach of our choice are governed by how we choose to perceive them.
+ - And just dance a little.
+ - At the end of a matter ask, “What will I learn from this to make me better?”
+ - Do not allow obligation or immediacy to bind you to physical things or specific actions.
+ - Judgment and weariness are foes to service and generosity.
+ - Wonder what opportunities you pass, unwittingly, because your hands are so busy clasping what you think you have always known.
+ - When I want friendship defined – I look at my friends.
+ - Share your heart as deeply as you can reach.
+ - Your informed, “no,” to a particular service allows another to offer their gifted and unreserved, “yes.”
+ - Loving is the most unmitigated and courageous act I perform in a day.
+ - I hear many people talk about their longing for a balanced life. What I think they are really expressing is a desire for a life with less pressure.
+ - If being good isn’t working – try being outrageous.
+ - What are the proper grounds for joy? Is it circumstance which will determine the stature of my spirit? Ah, no. It is choice. It is always a choice – in the face of any event – for joy.
+ - Celebration has many different outfits but she always wears the same beautiful dancing shoes.
+ - This day I see that pretty much all my correspondences are love letters.
+ - Play as often as you can.
+ - A holiday, the day I first named you, “friend.”
+ - Choose in ways that support your dreams.
+ - Gardening is all about optimism.
+ - Weariness comes, on some days, from lack of service to self.
+ - Balance happens when I invite it to happen with my intentional actions and my guided perspective.
+ - I recognize the delivery of grace to my day, even if I cannot identify a specific return address.
+ - This day boldness is manifested in a simple grace: gratitude.
+ - In whose wonder do you get to participate today?
+
+164 quotes

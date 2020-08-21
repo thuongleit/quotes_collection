@@ -1,0 +1,22 @@
+ - God grant me the courage not to give up what I think is right even though I think it is hopeless.
+ - Leadership consists of picking good men and helping them do their best.
+ - When you’re in command, command.
+ - Among the men who fought on Iwo Jima, uncommon valor was a common virtue.
+ - If you’re not making waves, you’re not under weigh.
+ - The Japanese had, in fact, already sued for peace. The atomic bomb played no decisive part, from a purely military point of view, in the defeat of Japan.
+ - The best that science can devise and that naval organization can provide must be regarded only as an aid, and never as a substitute for good seamanship.
+ - I have just taken on a great responsibility. I will do my utmost to meet it.
+ - The battle of Iwo Island has been won. The United States Marines by their individual and collective courage have conquered a base which is as necessary to us in our continuing forward movement toward final victory as it was vital to the enemy in staving off ultimate defeat.
+ - We shall never forget that it was our submarines that held the lines against the enemy while our fleets replaced losses and repaired wounds.
+ - Luck can be attributed to a well-conceived plan carried out by a well-trained and indoctrinated task group.
+ - Some of the best advice I’ve had comes from junior officers and enlisted men.
+ - The enemy of our games was always Japan, and the courses were so thorough that after the start of World War II, nothing that happened in the Pacific was strange or unexpected.
+ - By their victory, the 3rd, 4th and 5th Marine Divisions and other units of the Fifth Amphibious Corps have made an accounting to their country which only history will be able to value fully. Among the Americans who served on Iwo Island, uncommon valor was a common virtue.
+ - Hindsight is notably cleverer than foresight.
+ - A ship is always referred to as ‘she’ because it costs so much to keep one in paint and powder.
+ - No other island received as much preliminary pounding as did Iwo Jima.
+ - We must not again underestimate the Japanese.
+ - Our present control of the sea is so absolute that it is sometimes taken for granted.
+ - Through the skill and devotion to duty of their armed forces of all branches in the Midway area our citizens can now rejoice that a momentous victory is in the making.
+
+20 quotes

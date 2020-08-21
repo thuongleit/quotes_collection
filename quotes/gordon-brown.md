@@ -1,0 +1,65 @@
+ - My favourite sport at school was rugby. All sports are teamwork, but rugby particularly is about teamwork and I think teamwork is the essence of this.
+ - When the strong help the weak, it makes us all stronger.
+ - Our approach is to reject the old vicious circle of the ’80s-rising debt, higher long-term interest rates, higher debt repayment costs, lower growth, higher unemployment, then enforced cuts in public spending. That was the old boom and bust.
+ - Our new economic approach is rooted in ideas which stress the importance of macro-economics, post neo-classical endogenous growth theory and the symbiotic relationships between growth and investment, and people and infrastructure.
+ - We had lost the art of communication – but not, alas, the gift of speech.
+ - Take, therefore, what modern technology is capable of: the power of our moral sense allied to the power of communications and our ability to organize internationally. That, in my view, gives us the first opportunity as a community to fundamentally change the world.
+ - If our economies are to flourish, if global poverty is to be banished, and if the well-being of the world’s people enhanced – not just in this generation but in succeeding generations – we must make sure we take care of the natural environment and resources on which our economic activity depends.
+ - On this day I remember words that have stayed with me since my childhood and which matter a great deal to me today, my school motto: “I will try my outmost”. This is my promise to all of the people of Britain and now let the work of change begin.
+ - There is a golden thread which runs through British history of the individual, standing firm against tyranny and then of the individual participating in his society.
+ - The place of cycling in our society is set to grow, and I am committed to doing everything possible to encourage that.
+ - I’m a father; that’s what matters most. Nothing matters more.
+ - It is time to train British workers for the British jobs that will be available over the coming few years and to make sure that people who are inactive and unemployed are able to get the new jobs on offer in our country.
+ - Politics seems much less important today. When you see your young daughter smiling as she was, and moving around, it’s a superb feeling.
+ - Good strong banks are essential for every family and for every business in the country and extraordinary times call for the bold and far-reaching solutions that the Treasury has announced today.
+ - The House has noticed the Prime Minister’s remarkable transformation in the past few weeks, from Stalin to Mr. Bean.
+ - Tony Blair is the best friend I’ve had in politics.
+ - I believe there is a moral sense and a global ethic that commands attention from people of every religion and every faith, and people of no faith. But I think what’s new is that we now have the capacity to communicate instantaneously across frontiers right across the world.
+ - There is nothing that you could say to me now that I could ever believe.
+ - We can find common qualities and common values that have made Britain the country it is. Our belief in tolerance and liberty which shines through British history. Our commitment to fairness, fair play and civic duty.
+ - No one should be held back from realising their potential by fears that they will not be able to afford to go to university or that they will graduate with unmanageable levels of debt.
+ - Once government’s objectives were economic growth and social cohesion. Now they are prosperity, fairness and environmental care.
+ - Pop Idol, X Factor, Fame Academy, there’s so much talent out there. It’s great to see people getting the chance to show their potential.
+ - I admired and valued Robin as a colleague and friend and as one of the greatest parliamentarians of our time. His wife Gaynor and his two sons are in our thoughts and prayers.
+ - Britain was set to repeat the boom-bust cycle that led to 15 per cent. interest rates for one whole year in the early 1990s.
+ - Boom and bust is a term that applied to the Conservative years and two of the worst recessions in history.
+ - I take full responsibility for what happened. That’s why the person who was responsible went immediately.
+ - I don’t think Jeremy Corbyn’s going to stay, he’s going to go. He knows parliamentary party have no faith in him.
+ - I think people have got to understand when a murder is committed on British soil, when innocent people have been put at risk by the method that murder is committed then we expect authorities in other parts of the world to co-operate.
+ - I will listen and I will learn. I will strive to meet people’s aspirations. I want to lead a government humble enough to know its place – where I will always strive to be – and that is on people’s side.
+ - We must then build a proper relationship between the richest and the poorest countries based on our desire that they are able to fend for themselves with the investment that is necessary in their agriculture, so that Africa is not a net importer of food, but an exporter of food.
+ - Britain can be proud of its response to the tsunami appeal.
+ - I am not going to make decisions based on barricades and blockades, nor am I going to make decisions based on the short-term volatility of the oil price.
+ - I said that this would be a Budget based on prudence for a purpose and that guides us also in our approach to public spending.
+ - Under this Government, Britain will not return to the boom and bust of the past.
+ - To be a teacher you must be a prophet – because you are trying to prepare people for a world thirty to fifty years into the future.
+ - We’ve got to be explicit that the road to greater economic success does not lie in this cosy assumption that you can move from a single market through a single currency to harmonising all your taxes and then having a federal fiscal policy and then effectively having a federal State.
+ - You need in the long run for stability, for economic growth, for jobs, as well as for financial stability, global economic institutions that make sure that growth to be sustained has to be shared, and are built on the principle that the prosperity of this world is indivisible.
+ - I hope the Spice Girls will come back, although it may be beyond even Bob Geldof to get that to happen.
+ - Rigorous financial discipline that, together with monetary stability, ends once and for all the boom and bust that for 30 years has undermined stability.
+ - The vision of personalised public services – meeting the individual needs of all our citizens – requires continuing reform in the way services are delivered.
+ - I did maths for a year at university. I don’t think I was very good at it. And some people would say it shows.
+ - Each year India and China produce four million graduates compared with just over 250,000 in Britain.
+ - Jubilee 2000 is a broad coalition which has moved the earth.
+ - I don’t see politics as one or two people just making or delivering announcements – it’s also about winning public support and the public enthusiasm. You’ve got to win public support.
+ - So another challenge for our generation is to create global institutions that reflect our ideas of fairness and responsibility, not the ideas that were the basis of the last stage of financial development over these recent years.
+ - We are entering an era in which national government, instead of directing, enables powerful regional and local initiatives to work, where Britain becomes as it should be – a Britain of nations and regions.
+ - We are being tough in saying it is a duty on the unemployed in future not only to be available for work – and not to shirk work – but also to get the skills for work. That is a new duty we are introducing.
+ - Britain should be the world’s number one center for genetic and stem cell research, building on our world leading regulatory regime in the area.
+ - I am happy for there to be a leadership contest. I think there should be.
+ - This is a Budget for Britain’s future to secure fairness for each child and invest in every child.
+ - Britain does not want a return to boom and bust.
+ - America knows it has got to deal with its deficit problems so that it, too, can promise it is making its proper and best contributions to the world economy.
+ - My first rule – the golden rule – ensures that over the economic cycle the Government will borrow only to invest, and that current spending will be met from taxation.
+ - Indeed, Britain was set to repeat the old, familiar cycle of boom and bust. Since then, we have created and rigorously adhered to a new framework of modern economic management.
+ - Our mission is, in truth, historic and world changing – to build, over the next fifty years and beyond, a global low carbon economy. And it is not overdramatic to say that the character and course of the coming century will be set by how we measure up to this challenge.
+ - I think that’s a bit unfair. I’m a father with a 2-year-old child and I feel pretty young, actually.
+ - I understand that in the UK there have already been 10,000 complaints from viewers about these remarks, which people see, rightly, as offensive. I want Britain to be seen as a country of fairness and tolerance. Anything detracting from this I condemn.
+ - What has become clear is that Britain cannot trust the Conservatives to run the economy. Everyone knows that I’m all in favour of apprenticeships, but let me tell you this is no time for a novice.
+ - In the weeks and months ahead, my task is to show I have the new ideas, the vision and the experience to earn the trust of the British people.
+ - In 2005 we have a once in a generation opportunity to deliver a modern Marshall plan for the developing world.
+ - 56,000 companies have already benefited from the schemes that we have brought in. If we have taken the advice of the Conservative Party, no money would have been used. As Barack Obama said only yesterday, doing nothing is not an option.
+ - I’m a great supporter of the European Union. I didn’t support entry to the Euro, not because I’m against it in principle but because I didn’t think it was economically right for Britain. But that doesn’t make me any less pro-European.
+ - The IIFA Weekend has my unprecedented support. The relationship between India and the UK is long standing and one we would like to keep developing forever.
+
+63 quotes

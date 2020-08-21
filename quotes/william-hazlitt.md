@@ -1,0 +1,502 @@
+ - Those who are at war with others are not at peace with themselves.
+ - We do not see nature with our eyes, but with our understandings and our hearts.
+ - Prejudice is the child of ignorance.
+ - Silence is one great art of conversation.
+ - I’m not smart, but I like to observe. Millions saw the apple fall, but Newton was the one who asked why.
+ - The more we do, the more we can do.
+ - The soul of dispatch is decision.
+ - One of the pleasantest things in the world is going on a journey; but I like to go by myself.
+ - As is our confidence, so is our capacity.
+ - Man is the only animal that laughs and weeps; for he is the only animal that is struck with the difference between what things are, and what they ought to be.
+ - Prosperity is a great teacher; adversity is a greater. Possession pampers the mind; privation trains and strengthens it.
+ - The insolence of the vulgar is in proportion to their ignorance. They treat everything with contempt which they do not understand.
+ - Landscape painting is the obvious resource of misanthropy.
+ - There are no rules for friendship. It must be left to itself. We cannot force it any more than love.
+ - The soul of a journey is liberty, perfect liberty, to think, feel, do just as one pleases.
+ - Modesty is the lowest of the virtues, and is a real confession of the deficiency it indicates. He who undervalues himself is justly undervalued by others.
+ - Learning is its own exceeding great reward.
+ - Life is the art of being well deceived.
+ - When we forget old friends, it is a sign we have forgotten ourselves.
+ - The incentive to ambition is the love of power.
+ - A gentle word, a kind look, a good-natured smile can work wonders and accomplish miracles.
+ - I am then never less alone than when alone.
+ - The most silent people are generally those who think most highly of themselves.
+ - Pride erects a little kingdom of its own, and acts as sovereign in it.
+ - Poetry is the universal language which the heart holds with nature and itself. He who has a contempt for poetry, cannot have much respect for himself, or for anything else.
+ - I can enjoy society in a room; but out of doors, nature is company enough for me.
+ - Actors are the only honest hypocrites.
+ - Everything is in motion. Everything flows. Everything is vibrating.
+ - The way to procure insults is to submit to them. A man meets with no more respect than he exacts.
+ - Conceit is vanity driven from all other shifts, and forced to appeal to itself for admiration.
+ - Of all virtues, magnanimity is the rarest. There are a hundred persons of merit for one who willingly acknowledges it in another.
+ - True modesty and true pride are much the same thing: both consist in setting a just value on ourselves – neither more nor less.
+ - The only vice that cannot be forgiven is hypocrisy. The repentance of a hypocrite is itself hypocrisy.
+ - An honest man is respected by all parties.
+ - What I mean by living to one’s self is living in the world, as in it, not of it.
+ - Love and joy are twins or born of each other.
+ - Those who wish to forget painful thoughts do well to absent themselves for a while from, the ties and objects that recall them; but we can be said only to fulfill our destiny in the place that gave us birth.
+ - Experience makes us wise.
+ - The world dread nothing so much as being convinced of their errors.
+ - There is no flattery so adroit or effectual as that of implicit assent.
+ - The greatest pleasure in life is that of reading while we are young. I have had as much of this pleasure perhaps as any one.
+ - Common sense, to most people, is nothing more than their own opinions.
+ - The rule for traveling abroad is to take our common sense with us, and leave our prejudices behind.
+ - The seat of knowledge is in the head; of wisdom, in the heart. We are sure to judge wrong, if we do not feel right.
+ - A nickname is the hardest stone that the devil can throw at a man.
+ - Look up, laugh loud, talk big, keep the color in your cheek and the fire in your eye, adorn your person, maintain your health, your beauty and your animal spirits.
+ - A gentleman is one who understands and shows every mark of deference to the claims of self-love in others, and exacts it in return from them.
+ - Indolence is a delightful but distressing state; we must be doing something to be happy. Action is no less necessary than thought to the instinctive tendencies of the human frame.
+ - Asleep, nobody is a hypocrite.
+ - People addicted to secrecy are so without knowing why; they are not so for cause, but for secrecy’s sake.
+ - As we advance in life, we acquire a keener sense of the value of time. Nothing else, indeed, seems of any consequence; and we become misers in this respect.
+ - We dread life’s termination as the close, not of enjoyment, but of hope.
+ - Literature, like nobility, runs in the blood.
+ - Vice is man’s nature: virtue is a habit – or a mask.
+ - The great requisite for the prosperous management of ordinary business is the want of imagination.
+ - To be remembered after we are dead, is but poor recompense for being treated with contempt while we are living.
+ - Violent antipathies are always suspicious, and betray a secret affinity.
+ - A life of action and danger moderates the dread of death. It not only gives us fortitude to bear pain, but teaches us at every step the precarious tenure on which we hold our present being.
+ - We grow tired of everything but turning others into ridicule, and congratulating ourselves on their defects.
+ - It is better to drink of deep grief than to taste shallow pleasures.
+ - Walk groundly, talk profoundly, drink roundly, sleep soundly.
+ - A man knows his companion in a long journey and a little inn.
+ - Genius, like humanity, rusts for want of use.
+ - The pleasure of hating, like a poisonous mineral, eats into the heart of religion, and turns it to ranking spleen and bigotry; it makes patriotism an excuse for carrying fire, pestilence, and famine into other lands: it leaves to virtue nothing but the spirit of censoriousness.
+ - The art of conversation is the art of hearing as well as of being heard.
+ - The most learned are often the most narrow minded.
+ - Those who make their dress a principal part of themselves, will, in general, become of no more value than their dress.
+ - The art of life is to know how to enjoy a little and to endure very much.
+ - The surest hindrance of success is to have too high a standard of refinement in our own minds, or too high an opinion of the judgment of the public. He who is determined not to be satisfied with anything short of perfection will never do anything to please himself or others.
+ - Grace in women has more effect than beauty.
+ - Life is the art of being well deceived; and in order that the deception may succeed it must be habitual and uninterrupted.
+ - Poverty is the test of civility and the touchstone of friendship.
+ - Pure good soon grows insipid, wants variety and spirit. Pain is a bittersweet, which never surfeits. Love turns, with a little indulgence, to indifference or disgust. Hatred alone is immortal.
+ - Mankind are an incorrigible race. Give them but bugbears and idols – it is all that they ask; the distinctions of right and wrong, of truth and falsehood, of good and evil, are worse than indifferent to them.
+ - Zeal will do more than knowledge.
+ - Cunning is the art of concealing our own defects, and discovering other people’s weaknesses.
+ - When I am in the country, I wish to vegetate like the country.
+ - In some situations, if you say nothing, you are called dull; if you talk, you are thought impertinent and arrogant. It is hard to know what to do in this case. The question seems to be, whether your vanity or your prudence predominates.
+ - We go on a journey to be free of all impediments; to leave ourselves behind much more than to get rid of others.
+ - A man’s reputation is not in his own keeping, but lies at the mercy of the profligacy of others. Calumny requires no proof.
+ - Well I’ve had a happy life.
+ - Some people break promises for the pleasure of breaking them.
+ - To create an unfavorable impression, it is not necessary that certain things should be true, but that they have been said.
+ - The love of liberty is the love of others; the love of power is the love of ourselves.
+ - The imagination is of so delicate a texture that even words wound it.
+ - Without the aid of prejudice and custom, I should not be able to find my way across the room.
+ - If you think you can win, you can win. Faith is necessary to victory.
+ - Who likes not his business, his business likes not him.
+ - A life of action and danger moderates the dread of death.
+ - Within my heart is lurking suspicion, and base fear, and shame and hate; but above all, tyrannous love sits throned, crowned with her graces, silent and in tears.
+ - Man is a poetical animal, and delights in fiction.
+ - No man is truly great who is great only in his lifetime. The test of greatness is the page of history.
+ - Books let us into their souls and lay open to us the secrets of our own.
+ - To speak highly of one with whom we are intimate is a species of egotism. Our modesty as well as our jealousy teaches us caution on this subject.
+ - True friendship is self-love at second hand; where, as in a flattering mirror we may see our virtues magnified and our errors softened, and where we may fancy our opinion of ourselves confirmed by an impartial and faithful witness.
+ - The smallest pain in our little finger gives us more concern than the destruction of millions of our fellow beings.
+ - Of all eloquence a nickname is the most concise; of all arguments the most unanswerable.
+ - Corporate bodies are more corrupt and profligate than individuals, because they have more power to do mischief, and are less amenable to disgrace or punishment. They feel neither shame, remorse, gratitude, nor goodwill.
+ - A hair in the head is worth two in the brush.
+ - Those only deserve a monument who do not need one; that is, who have raised themselves a monument in the minds and memories of men.
+ - The most phlegmatic dispositions often contain the most inflammable spirits, as fire is struck from the hardest flints.
+ - A hypocrite despises those whom he deceives, but has no respect for himself. He would make a dupe of himself too, if he could.
+ - The essence of poetry is will and passion.
+ - One truth discovered, one pang of regret at not being able to express it, is better than all the fluency and flippancy in the world.
+ - To be capable of steady friendship or lasting love, are the two greatest proofs, not only of goodness of heart, but of strength of mind.
+ - Death cancels everything but truth; and strips a man of everything but genius and virtue. It is a sort of natural canonization.
+ - If mankind had wished for what is right, they might have had it long ago.
+ - Learning is, in too many cases, but a foil to common sense; a substitute for true knowledge.
+ - A strong passion for any object will ensure success, for the desire of the end will point out the means.
+ - The silence of a friend commonly amounts to treachery. His not daring to say anything in our behalf implies a tacit censure.
+ - Power is pleasure; and pleasure sweetens pain.
+ - Books wind into the heart.
+ - To display the greatest powers, unless they are applied to great purposes, makes nothing for the character of greatness.
+ - Our notions with respect to the importance of life, and our attachment to it, depend on a principle which has very little to do with its happiness or its misery. The love of life is, in general, the effect not of our enjoyments, but of our passions.
+ - Wrong dressed out in pride, pomp, and circumstance has more attraction than abstract right.
+ - Those who object to wit are envious of it.
+ - There are names written in her immortal scroll at which Fame blushes!
+ - Pride goes before a fall, they say, And yet we often find, The folks who throw all pride away Most often fall behind.
+ - I do not think there is anything deserving the name of society to be found out of London.
+ - The only impeccable writers are those who never wrote.
+ - The best part of our lives we pass in counting on what is to come.
+ - Fashion is gentility running away from vulgarity and afraid of being overtaken.
+ - The love of letters is the forlorn hope of the man of letters. His ruling passion is the love of fame.
+ - No really great man ever thought himself so.
+ - The definition of genius is that it acts unconsciously, and those who have produced immortal works have done so without knowing how or why.
+ - Envy is the deformed and distorted offspring of egotism; and when we reflect on the strange and disproportioned character of the parent, we cannot wonder at the perversity and waywardness of the child.
+ - Death is the greatest evil, because it cuts off hope.
+ - We are fonder of visiting our friends in health than in sickness. We judge less favorably of their characters when any misfortune happens to them; and a lucky hit, either in business or reputation, improves even their personal appearance in our eyes.
+ - Perhaps the best cure for the fear of death is to reflect that life has a beginning as well as an end. There was a time when we were not: this gives us no concern. Why, then, should it trouble us that a time will come when we shall cease to be?
+ - Reflection brakes men cowards. There is no object that can be put in competition with life, unless it is viewed through the medium of passion, and we are hurried away by the impulse of the moment.
+ - Vulgar prejudices are those which arise out of accident, ignorance, or authority; natural prejudices are those which arise out of the constitution of the human mind itself.
+ - Persons of slender intellectual stamina dread competition, as dwarfs are afraid of being run over in the street.
+ - The contemplation of truth and beauty is the proper object for which we were created, which calls forth the most intense desires of the soul, and of which it never tires.
+ - Talent is the capacity of doing anything that depends on application and industry and it is a voluntary power, while genius is involuntary.
+ - Love at first sight is only realizing an imagination that has always haunted us; or meeting with a face, a figure, or cast of expression in perfection that we have seen and admired in a less degree or in less favorable circumstances a hundred times before.
+ - I have known persons without a friend – never any one without some virtue. The virtues of the former conspired with their vices to make the whole world their enemies.
+ - When you find out a man’s ruling passion, beware of crossing him in it.
+ - Natural affection is a prejudice; for though we have cause to love our nearest connections better than others, we have no reason to think them better than others.
+ - No young man ever thinks he shall die.
+ - We find many things to which the prohibition of them constitutes the only temptation.
+ - The title of Ultracrepidarian critics has been given to those persons who find fault with small and insignificant details.
+ - Knowledge is pleasure as well as power.
+ - Wit is the salt of conversation, not the food.
+ - We are not hypocrites in our sleep.
+ - It is remarkable how virtuous and generously disposed every one is at a play.
+ - A grave blockhead should always go about with a lively one – they show one another off to the best advantage.
+ - Humour is the describing the ludicrous as it is in itself; wit is the exposing it, by comparing or contrasting it with something else. Humour is, as it were, the growth of nature and accident; wit is the product of art and fancy.
+ - Time, – the most independent of all things.
+ - Those people who are always improving never become great. Greatness is an eminence, the ascent to which is steep and lofty, and which a man must seize on at once by natural boldness and vigor, and not by patient, wary steps.
+ - There is no one thoroughly despicable. We cannot descend much lower than an idiot; and an idiot has some advantages over a wise man.
+ - Satirists gain the applause of others through fear, not through love.
+ - What are the publications that succeed? Those that pretend to teach the public that the persons they have been accustomed unwittingly to look up to as the lights of the earth are no better than themselves.
+ - The characteristic of Chaucer is intensity: of Spencer, remoteness: of Milton elevation and of Shakespeare everything.
+ - Mankind are so ready to bestow their admiration on the dead, because the latter do not hear it, or because it gives no pleasure to the objects of it. Even fame is the offspring of envy.
+ - The present is an age of talkers, and not of doers; and the reason is, that the world is growing old. We are so far advanced in the Arts and Sciences, that we live in retrospect, and dote on past achievement.
+ - Sincerity has to do with the connexion between our words and thoughts, and not between our beliefs and actions.
+ - Prosperity is a great teacher; adversity a greater.
+ - Great thoughts reduced to practice become great acts.
+ - To write a genuine familiar or truly English style is to write as anyone would speak in common conversation, who had a thorough command and choice of words, or who could discourse with ease, force, and perspicuity, setting aside all pedantic and oratorical flourishes.
+ - Envy among other ingredients has a mixture of the love of justice in it. We are more angry at undeserved than at deserved good-fortune.
+ - Wonder at the first sight of works of art may be the effect of ignorance and novelty; but real admiration and permanent delight in them are the growth of taste and knowledge.
+ - Repose is as necessary in conversation as in a picture.
+ - The greatest offence against virtue is to speak ill of it.
+ - There is some virtue in almost every vice, except hypocrisy; and even that, while it is a mockery of virtue, is at the same time a compliment to it.
+ - We prefer ourselves to others, only because we a have more intimate consciousness and confirmed opinion of our own claims and merits than of any other person’s.
+ - I like a friend the better for having faults that one can talk about.
+ - Our contempt for others proves nothing but the illiberality and narrowness of our own views.
+ - Humanity is to be met with in a den of robbers.
+ - The greatest reverses of fortune are the most easily borne from a sort of dignity belonging to them.
+ - Our energy is in proportion to the resistance it meets.
+ - There cannot be a surer proof of low origin, or of an innate meanness of disposition, than to be always talking and thinking of being genteel.
+ - Elegance is something more than ease; it is more than a freedom from awkwardness or restraint. It implies, I conceive, a precision, a polish, a sparkling, spirited yet delicate.
+ - A great mind is one that can forget or look beyond itself.
+ - If you give an audience a chance they will do half your acting for you.
+ - Those who have little shall have less, and that those who have much shall take all that others have left.
+ - Humour is the making others act or talk absurdly and unconsciously; wit is the pointing out and ridiculing that absurdity consciously, and with more or less ill-nature.
+ - I have a much greater ambition to be the best racket player than the best prose writer.
+ - We do not die wholly at our deaths: we have mouldered away gradually long before. Faculty after faculty, interest after interest, attachment after attachment disappear: we are torn from ourselves while living.
+ - I would like to spend the whole of my life traveling, if I could anywhere borrow another life to spend at home.
+ - People do not seem to talk for the sake of expressing their opinions, but to maintain an opinion for the sake of talking.
+ - Whatever interests is interesting.
+ - We are never so much disposed to quarrel with others as when we are dissatisfied with ourselves.
+ - Do not keep on with a mockery of friendship after the substance is gone – but part, while you can part friends. Bury the carcass of friendship: it is not worth embalming.
+ - There are some persons who never succeed from being too indolent to undertake anything; and others who regularly fail, because the instant they find success in their power, they grow indifferent, and give over the attempt.
+ - A Whig is properly what is called a Trimmer – that is, a coward to both sides of the question, who dare not be a knave nor an honest man, but is a sort of whiffing, shuffling, cunning, silly, contemptible, unmeaning negation of the two.
+ - Just as much as we see in others we have in ourselves.
+ - Man is a make-believe animal: he is never so truly himself as when he is acting a part.
+ - When one can do better than everyone else in the same walk, one does not make any very painful exertions to outdo oneself. The progress of improvement ceases nearly at the point where competition ends.
+ - The best way to make ourselves agreeable to others is by seeming to think them so. If we appear fully sensible of their good qualities they will not complain of the want of them in us.
+ - In love we do not think of moral qualities, and scarcely of intellectual ones. Temperament and manner alone, with beauty, excite love.
+ - A woman’s vanity is interested in making the object of her choice the god of her idolatry.
+ - One said a tooth drawer was a kind of unconscionable trade, because his trade was nothing else but to take away those things whereby every man gets his living.
+ - A scholar is like a book written in a dead language. It is not every one that can read in it.
+ - To-day kings, to-marrow beggars, it is only when they are themselves that they are nothing.
+ - Languages happily restrict the mind to what is of its own native growth and fitted for it, as rivers and mountains bond countries; or the empire of learning, as well as states, would become unwieldy and overgrown.
+ - He is a hypocrite who professes what he does not believe; not he who does not practice all he wishes or approves.
+ - If our hours were all serene, we might probably take almost as little note of them as the dial does of those that are clouded.
+ - To great evils we submit; yet we resent little provocations.
+ - The most rational cure after all for the inordinate fear of death is to set a just value on life.
+ - In public speaking, we must appeal either to the prejudices of others, or to the love of truth and justice. If we think merely of displaying our own ability, we shall ruin every cause we undertake.
+ - Nothing is more unjust or capricious than public opinion.
+ - Art must anchor in nature, or it is the sport of every breath of folly.
+ - A knave thinks himself a fool, all the time he is not making a fool of some other person.
+ - We never do anything well till we cease to think about the manner of doing it. This is the reason why it is so difficult for any but natives to speak a language correctly or idiomatically.
+ - So I have loitered my life away, reading books, looking at pictures, going to plays, hearing, thinking, writing on what pleased me best. I have wanted only one thing to make me happy, but wanting that have wanted everything.
+ - The affected modesty of most women is a decoy for the generous, the delicate, and unsuspecting; while the artful, the bold, and unfeeling either see or break through its slender disguises.
+ - Perhaps the best cure for the fear of death is to reflect that life has a beginning as well as an end.
+ - A proud man is satisfied with his own good opinion, and does not seek to make converts to it.
+ - A nickname is the heaviest stone that the devil can throw at a man. It is a bugbear to the imagination, and, though we do not believe in it, it still haunts our apprehensions.
+ - Nothing gives such a blow to friendship as the detecting another in an untruth. It strikes at the root of our confidence ever after.
+ - The most insignificant people are the most apt to sneer at others. They are safe from reprisals. And have no hope of rising in their own self esteem but by lowering their neighbors.
+ - The fear of approaching death, which in youth we imagine must cause inquietude to the aged, is very seldom the source of much uneasiness.
+ - Reflection makes men cowards.
+ - The corpse of friendship is not worth embalming.
+ - They are the only honest hypocrites, their life is a voluntary dream, a studied madness.
+ - The discussing the characters and foibles of common friends is a great sweetness and cement of friendship.
+ - Those people who are uncomfortable in themselves are disagreeable to others.
+ - Diffidence and awkwardness are antidotes to love.
+ - In exploring new and doubtful tracts of speculation, the mind strikes out true and original views; as a drop of water hesitates at first what direction it will take, but afterwards follows its own course.
+ - The only true retirement is that of the heart; the only true leisure is the repose of the passions. To such persons it makes little difference whether they are young or old; and they die as they have lived, with graceful resignation.
+ - The soil of friendship is worn out with constant use. Habit may still attach us to each other, but we feel ourselves fettered by it. Old friends might be compared to old married people without the tie of children.
+ - Or have I passed my time in pouring words like water into empty sieves, rolling a stone up a hill and then down again, trying to prove an argument in the teeth of facts, and looking for causes in the dark, and not finding them?
+ - The last sort I shall mention are verbal critics – mere word-catchers, fellows that pick out a word in a sentence and a sentence in a volume, and tell you it is wrong. The title of Ultra-Crepidarian critics has been given to a variety of this species.
+ - Dandyism is a species of genius.
+ - If the world were good for nothing else, it is a fine subject for speculation.
+ - To die is only to be as we were before we were born; yet no one feels any remorse, or regret, or repugnance, in contemplating this last idea.
+ - Hope is the best possession. None are completely wretched but those who are without hope. Few are reduced so low as that.
+ - By despising all that has preceded us, we teach others to despise ourselves.
+ - To the proud the slightest repulse or disappointment is the last indignity.
+ - Wit is the rarest quality to be met with among people of education, and the most common among the uneducated.
+ - A man in love prefers his passion to every other consideration, and is fonder of his mistress than he is of virtue. Should she prove vicious, she makes vice lovely in his eyes.
+ - It is only necessary to raise a bugbear before the English imagination in order to govern it at will. Whatever they hate or fear, they implicitly believe in, merely from the scope it gives to these passions.
+ - He who comes up to his own idea of greatness must always have had a very low standard of it in his mind.
+ - Spleen can subsist on any kind of food.
+ - Abuse is an indirect species of homage.
+ - Though familiarity may not breed contempt, it takes off the edge of admiration.
+ - We are not satisfied to be right, unless we can prove others to be quite wrong.
+ - We must be doing something to be happy.
+ - He who lives wisely to himself and his own heart looks at the busy world through the loopholes of retreat, and does not want to mingle in the fray.
+ - The difference between the vanity of a Frenchman and an Englishman seems to be this: the one thinks everything right that is French, the other thinks everything wrong that is not English.
+ - The more we do, the more we can do; the more busy we are, the more leisure we have.
+ - That which is not, shall never be; that which is, shall never cease to be. To the wise, these truths are self-evident.
+ - Man is an intellectual animal, and therefore an everlasting contradiction to himself. His senses centre in himself, his ideas reach to the ends of the universe; so that he is torn in pieces between the two, without a possibility of its ever being otherwise.
+ - To think justly, we must understand what others mean. To know the value of our thoughts, we must try their effect on other minds.
+ - Weakness has its hidden resources, as well as strength. There is a degree of folly and meanness which we cannot calculate upon, and by which we are as much liable to be foiled as by the greatest ability or courage.
+ - To think ill of mankind and not wish ill to them, is perhaps the highest wisdom and virtue.
+ - Success in business is seldom owing to uncommon talents or original power which is untractable and self-willed, but to the greatest degree of commonplace capacity.
+ - The ignorance of the world leaves one at the mercy of its malice.
+ - Men will die for an opinion as soon as for anything else.
+ - There is a secret pride in every human heart that revolts at tyranny. You may order and drive an individual, but you cannot make him respect you.
+ - Wit is, in fact, the eloquence of indifference.
+ - One shining quality lends a lustre to another, or hides some glaring defect.
+ - As hypocrisy is said to be the highest compliment to virtue, the art of lying is the strongest acknowledgment of the force of truth.
+ - What passes in the world for talent or dexterity or enterprise is often only a want of moral principle. We may succeed where others fail, not from a greater share of invention, but from not being nice in the choice of expedients.
+ - The admiration of power in others is as common to man as the love of it in himself; the one makes him a tyrant, the other a slave.
+ - Popularity is neither fame nor greatness.
+ - A great chessplayer is not a great man, for he leaves the world as he found it.
+ - The diffusion of taste is not the same thing as the improvement of taste.
+ - The youth is better than the old age of friendship.
+ - The chain of habit coils itself around the heart like a serpent, to gnaw and stifle it.
+ - Taste is nothing but an enlarged capacity for receiving pleasure from works of imagination.
+ - Men of the greatest genius are not always the most prodigal of their encomiums. But then it is when their range of power is confined, and they have in fact little perception, except of their own particular kind of excellence.
+ - The person whose doors I enter with most pleasure, and quit with most regret, never did me the smallest favor.
+ - We often forget our dreams so speedily: if we cannot catch them as they are passing out at the door, we never set eyes on them again.
+ - We uniformly applaud what is right and condemn what is wrong, when it costs us nothing but the sentiment.
+ - It is well there is no one without fault; for he would not have a friend in the world. He would seem to belong to s different species.
+ - While we desire, we do not enjoy; and with enjoyment desire ceases.
+ - Poetry is all that is worth remembering in life.
+ - Poverty, when it is voluntary, is never despicable, but takes an heroical aspect.
+ - None but those who are happy in themselves can make others so.
+ - There is no prejudice so strong as that which arises from a fancied exemption from all prejudice.
+ - The slaves of power mind the cause they have to serve, because their own interest is concerned; but the friends of liberty always sacrifice their cause, which is only the cause of humanity, to their own spleen, vanity, and self-opinion.
+ - Political truth is libel; religious truth, blasphemy.
+ - All is without form and void. Someone said of his landscapes that they were pictures of nothing and very like.
+ - We had rather do anything than acknowledge the merit of another if we can help it. We cannot bear a superior or an equal. Hence ridicule is sure to prevail over truth, for the malice of mankind, thrown into the scale, gives the casting weight.
+ - The player envies only the player, the poet envies only the poet.
+ - When I take up a book I have read before, I know what to expect; the satisfaction is not lessened by being anticipated. I shake hands with, and look our old tried and valued friend in the face, – compare notes and chat the hour away.
+ - You know more of a road by having traveled it than by all the conjectures and descriptions in the world.
+ - If a person has no delicacy, he has you in his power.
+ - The mind revolts against certain opinions, as the stomach rejects certain foods.
+ - Refinement creates beauty everywhere. It is the grossness of the spectator that discovers anything like grossness in the object.
+ - Habit is necessary to give power.
+ - If we wish to know the force of human genius, we should read Shakespeare. If we wish to see the insignificance of human learning, we may study his commentators.
+ - The fear of punishment may be necessary to the suppression of vice; but it also suspends the finer motives of virtue.
+ - There is a feeling of Eternity in youth which makes us amends for everything. To be young is to be as one of the Immortals.
+ - I am always afraid of a fool. One cannot be sure that he is not a knave as well.
+ - Learning is its own exceeding great reward; and at the period of which we speak, it bore other fruits, not unworthy of it.
+ - We prefer a person with vivacity and high spirits, though bordering upon insolence, to the timid and pusillanimous; we are fonder of wit joined to malice than of dullness without it.
+ - We learn to curb our will and keep our overt actions within the bounds of humanity, long before we can subdue our sentiments and imaginations to the same mild tone.
+ - He who does nothing renders himself incapable of doing any thing; but while we are executing any work, we are preparing and qualifying ourselves to undertake another.
+ - Greatness is great power, producing great effects. It is not enough that a man has great power in himself, he must shew it to all the world in a way that cannot be hid or gainsaid.
+ - People do not persist in their vices because they are not weary of them, but because they cannot leave them off. It is the nature of vice to leave us no resource but in itself.
+ - The best kind of conversation is that which may be called thinking aloud.
+ - One truth discovered is immortal, and entitles its author to be so; for, like a new substance in nature, it cannot be destroyed.
+ - Envy is littleness of soul.
+ - General principles are not the less true or important because from their nature they elude immediate observation; they are like the air, which is not the less necessary because we neither see nor feel it.
+ - Perhaps propriety is as near a word as any to denote the manners of the gentleman; elegance is necessary to the fine gentleman; dignity is proper to noblemen; and majesty to kings.
+ - We are governed by sympathy; and the extent of our sympathy is determined by that of our sensibility.
+ - Dr. Johnson was a lazy learned man who liked to think and talk better than to read or write; who, however, wrote much and well, but too often by rote.
+ - What is popular is not necessarily vulgar; and that which we try to rescue from fatal obscurity had in general much better remain where it is.
+ - Cant is the voluntary overcharging or prolongation of a real sentiment; hypocrisy is the setting up a pretension to a feeling you never had and have no wish for.
+ - We have more faith in a well-written romance while we are reading it than in common history. The vividness of the representations in the one case more than counterbalances the mere knowledge of the truth of facts in the other.
+ - Genius only leaves behind it the monuments of its strength.
+ - I hate to be near the sea, and to hear it roaring and raging like a wild beast in its den. It puts me in mind of the everlasting efforts of the human mind, struggling to be free, and ending just where it began.
+ - Society is a more level surface than we imagine. Wise men or absolute fools are hard to be met with, as there are few giants or dwarfs.
+ - Persons who undertake to pry into, or cleanse out all the filth of a common sewer, either cannot have very nice noses, or will soon lose them.
+ - It is the vice of scholars to suppose that there is no knowledge in the world but that of books.
+ - Language, if it throws a veil over our ideas, adds a softness and refinement to them, like that which the atmosphere gives to naked objects.
+ - Pride is founded not on the sense of happiness, but on the sense of power.
+ - Almost every sect of Christianity is a perversion of its essence, to accommodate it to the prejudices of the world.
+ - To give a reason for anything is to breed a doubt of it.
+ - Confidence gives a fool the advantage over a wise man.
+ - The amiable is the voluptuous in expression or manner. The sense of pleasure in ourselves is that which excites it in others; or, the art of pleasing is to seem pleased.
+ - He who would see old Hoghton right Must view it by the pale moonlight.
+ - Prejudice is never easy unless it can pass itself off for reason.
+ - The perfect joys of heaven do not satisfy the cravings of nature.
+ - Men are in numberless instances qualified for certain things, for no other reason than because they are qualified for nothing else.
+ - Our friends are generally ready to do everything for us, except the very thing we wish them to do.
+ - There is nothing more likely to drive a man mad, than the being unable to get rid of the idea of the distinction between right and wrong, and an obstinate, constitutional preference of the true to the agreeable.
+ - Those who speak ill of the spiritual life, although they come and go by day, are like the smith’s bellows: they take breath but are not alive.
+ - The secret of the difficulties of those people who make a great deal of money, and yet are always in want of it, is this-they throw it away as soon as they get it on the first whim or extravagance that strikes them, and have nothing left to meet ordinary expenses or discharge old debts.
+ - Comedy naturally wears itself out – destroys the very food on which it lives; and by constantly and successfully exposing the follies and weaknesses of mankind to ridicule, in the end leaves itself nothing worth laughing at.
+ - There are only three pleasures in life pure and lasting, and all derived from inanimate things-books, pictures and the face of nature.
+ - The world judge of men by their ability in their profession, and we judge of ourselves by the same test: for it is on that on which our success in life depends.
+ - There is something captivating in spirit and intrepidity, to which, we often yield as to a resistless power; nor can he reasonably expect, the confidence of others who too apparently distrusts himself.
+ - There is a quiet repose and steadiness about the happiness of age, if the life has been well spent. Its feebleness is not painful. The nervous system has lost its acuteness. But, in mature years we feel that a burn, a scald, a cut, is more tolerable than it was in the sensitive period of youth.
+ - As we are poetical in our natures, so we delight in fable.
+ - Every man depends on the quantity of sense, wit, or good manners he brings into society for the reception he meets with in it.
+ - Every one in a crowd has the power to throw dirt; none out of ten have the inclination.
+ - The true barbarian is he who thinks everything barbarous but his own tastes and prejudices.
+ - It is hard for any one to be an honest politician who is not born and bred a Dissenter.
+ - To be wiser than other men is to be honester than they; and strength of mind is only courage to see and speak the truth.
+ - A thought must tell at once, or not at all.
+ - Vice, like disease, floats in the atmosphere.
+ - When a thing ceases to be a subject of controversy, it ceases to be a subject of interest.
+ - The assumption of merit is easier, less embarrassing, and more effectual than the actual attainment of it.
+ - The severest critics are always those who have either never attempted, or who have failed in original composition.
+ - If we are long absent from our friends, we forget them; if we are constantly with them, we despise them.
+ - That which anyone has been long learning unwillingly, he unlearns with proportional eagerness and haste.
+ - There is nothing good to be had in the country, or if there is, they will not let you have it.
+ - Charity, like nature, abhors a vacuum. Next to putting it in a bank, men like to squander their superfluous wealth on those to whom it is sure to be doing the least possible good.
+ - A distinction has been made between acuteness and subtlety of understanding. This might be illustrated by saying that acuteness consists in taking up the points or solid atoms, subtlety in feeling the air of truth.
+ - There is evil poured upon the earth from the overflowings of corruption – Sickness, and poverty, and pain, and guilt, and madness, and sorrow; But, as the water from a fountain riseth and sinketh to its level, Ceaselessly toileth justice to equalize the lots of men.
+ - There are few things in which we deceive ourselves more than in the esteem we profess to entertain for our firends. It is little better than a piece of quackery. The truth is, we think of them as we please, that is, as they please or displease us.
+ - An honest man speaks the truth, though it may give offence; a vain man, in order that it may.
+ - To be happy, we must be true to nature and carry our age along with us.
+ - He who draws upon his own resources easily comes to an end of his wealth.
+ - One said he wondered that leather was not dearer than any other thing. Being demanded a reason: because, saith he, it is more stood upon than any other thing in the world.
+ - Those who are fond of setting things to rights, have no great objection to seeing them wrong.
+ - Genius is a native to the soil where it grows – is fed by the air, and warmed by the sun; and is not a hothouse plant or an exotic.
+ - Malice often takes the garb of truth.
+ - A mighty stream of tendency.
+ - To impress the idea of power on others, they must be made in some way to feel it.
+ - A thing is not vulgar merely because it is common.
+ - The expression of a gentleman’s face is not so much that of refinement, as of flexibility, not of sensibility and enthusiasm as of indifference; it argues presence of mind rather than enlargement of ideas.
+ - Painting gives the object itself; poetry what it implies. Painting embodies what a thing contains in itself; poetry suggests what exists out of it, in any manner connected with it.
+ - No man can thoroughly master more than one art or science.
+ - It is essential to the triumph of reform that it should never succeed.
+ - The last pleasure in life is the sense of discharging our duty.
+ - Liberty is the only true riches: of all the rest we are at once the masters and the slaves.
+ - A wise traveler never despises his own country.
+ - No act terminating in itself constitutes greatness.
+ - Despair swallows up cowardice.
+ - The objects that we have known in better days are the main props that sustain the weight of our affections, and give us strength to await our future lot.
+ - Anyone is to be pitied who has just sense enough to perceive his deficiencies.
+ - We are all of us, more or less, the slaves of opinion.
+ - There is not a more mean, stupid, dastardly, pitiless, selfish, spiteful, envious, ungrateful animal than the Public. It is the greatest of cowards, for it is afraid of itself.
+ - No one ever approaches perfection except by stealth, and unknown to themselves.
+ - In what we really understand, we reason but little.
+ - Believe all the good you can of everyone. Do not measure others by yourself. If they have advantages which you have not, let your liberality keep pace with their good fortune. Envy no one, and you need envy no one.
+ - The multitude who require to be led, still hate their leaders.
+ - People of genius do not excel in any profession because they work in it, they work in it because they excel.
+ - Friendship is cemented by interest, vanity, or the want of amusement; it seldom implies esteem, or even mutual regard.
+ - Familiarity confounds all traits of distinction; interest and prejudice take away the power of judging.
+ - A certain excess of animal spirits with thoughtless good-humor will often make more enemies than the most deliberate spite and ill-nature, which is on its guard, and strikes with caution and safety.
+ - There are many who talk on from ignorance rather than from knowledge, and who find the former an inexhaustible fund of conversation.
+ - We trifle with, make sport of, and despise those who are attached to us, and follow those that fly from us.
+ - When the imagination is continually led to the brink of vice by a system of terror and denunciations, people fling themselves over the precipice from the mere dread of falling.
+ - Death puts an end to rivalship and competition. The dead can boast no advantage over us, nor can we triumph over them.
+ - We may be willing to tell a story twice, never to hear it more than once.
+ - To expect an author to talk as he writes is ridiculous; or even if he did you would find fault with him as a pedant.
+ - Features alone do not run in the blood; vices and virtues, genius and folly, are transmitted through the same sure but unseen channel.
+ - By retaliating our sufferings on the heads of those we love, we get rid of a present uneasiness and incur lasting remorse. With the accomplishment of our revenge our fondness returns; so that we feel the injury we have done them, even more than they do.
+ - To be forward to praise others implies either great eminence, that can afford to, part with applause; or great quickness of discernment, with confidence in our own judgments; or great sincerity and love of truth, getting the better of our self-love.
+ - The vain man makes a merit of misfortune, and triumphs in his disgrace.
+ - We are very much what others think of us. The reception our observations meet with gives us courage to proceed, or damps our efforts.
+ - It is better to desire than to enjoy, to love than to be loved.
+ - Learning is the knowledge of that which none but the learned know.
+ - Rules and models destroy genius and art.
+ - Grace has been defined as the outward expression of the inward harmony of the soul.
+ - If I have not read a book before, it is, for all intents and purposes, new to me whether it was printed yesterday or three hundred years ago.
+ - We are thankful for good-will rather than for services, for the motive than the quantum of favor received.
+ - The devil was a great loss in the preternatural world. He was always something to fear and to hate; he supplied the antagonist powers of the imagination, and the arch of true religion hardly stands firm without him.
+ - You will hear more good things on the outside of a stagecoach from London to Oxford than if you were to pass a twelvemonth with the undergraduates, or heads of colleges, of that famous university.
+ - A lively blockhead in company is a public benefit. Silence or dulness by the side of folly looks like wisdom.
+ - Do not quarrel with the world too soon; for, bad as it may be, it is the best we have to live in, here. If railing would have made it better, it would have been reformed long ago.
+ - Men of gravity are intellectual stammerers, whose thoughts move slowly.
+ - We grow tired of ourselves, much more of other people.
+ - People are not soured by misfortune, but by the reception they meet with in it.
+ - Belief is with them mechanical, voluntary: they believe what they are paid for – they swear to that which turns to account. Do you suppose, that after years spent in this manner, they have any feeling left answering to the difference between truth and falsehood?
+ - Even in the common affairs of life, in love, friendship, and marriage, how little security have we when we trust our happiness in the hands of others!
+ - The way to get on in the world is to be neither more nor less wise, neither better nor worse than your neighbours.
+ - But of all footmen the lowest class is literary footmen.
+ - Those who have the largest hearts have the soundest understandings; and they are the truest philosophers who can forget themselves.
+ - The public is so in awe of its own opinion that it never dares to form any, but catches up the first idle rumour, lest it should be behindhand in its judgment, and echoes it till it is deafened with the sound of its own voice.
+ - The greatest grossness sometimes accompanies the greatest refinement, as a natural relief.
+ - Grace is the absence of everything that indicates pain or difficulty, hesitation or incongruity.
+ - A really great man has always an idea of something greater than himself.
+ - The most sensible people to be met with in society are men of business and of the world, who argue from what they see and know, instead of spinning cobweb distinctions of what things ought to be.
+ - Nothing precludes sympathy so much as a perfect indifference to it.
+ - Anyone who has passed though the regular gradations of a classical education, and is not made a fool by it, may consider himself as having had a very narrow escape.
+ - I am proud up to the point of equality; everything above or below that appears to me arrant impertinence or abject meanness.
+ - The safest kind of praise is to foretell that another will become great in some particular way. It has the greatest show of magnanimity and the least of it in reality.
+ - The number of objects we see from living in a large city amuses the mind like a perpetual raree-show, without supplying it with any ideas.
+ - Our opinions are not our own, but in the power of sympathy. If a person tells us a palpable falsehood, we not only dare not contradict him, but we dare hardly disbelieve him to his face. A lie boldly uttered has the effect of truth for the instant.
+ - We must overact our part in some measure, in order to produce any effect at all.
+ - Good temper is an estate for life.
+ - Mankind are a herd of knaves and fools. It is necessary to join the crowd, or get out of their way, in order not to be trampled to death by them.
+ - The humblest painter is a true scholar; and the best of scholars the scholar of nature.
+ - Old friendships are like meats served up repeatedly, cold, comfortless, and distasteful. The stomach turns against them.
+ - The measure of any man’s virtue is what he would do, if he had neither the laws nor public opinion, nor even his own prejudices, to control him.
+ - The book-worm wraps himself up in his web of verbal generalities, and sees only the glimmering shadows of things reflected from the minds of others.
+ - He who is as faithful to his principles as he is to himself is the true partisan.
+ - It is not fit that every man should travel; it makes a wise man better, and a fool worse.
+ - The wretched are in this respect fortunate, that they have the strongest yearning after happiness; and to desire is in some sense to enjoy.
+ - It is only those who never think at all, or else who have accustomed themselves to blood invariably on abstract ideas, that ever feel ennui.
+ - Envy is a littleness of soul, which cannot see beyond a certain point, and if it does not occupy the whole space feels itself excluded.
+ - A situation in a public office is secure, but laborious and mechanical, and without the great springs of life, hope and fear.
+ - Our energy is in proportion to the resistance it meets. We attempt nothing great but from a sense of the difficulties we have to encounter, we persevere in nothing great but from a pride in overcoming them.
+ - Cowardice is not synonymous with prudence. It often happens that the better part of discretion is valor.
+ - A man is a hypocrite only when he affects to take a delight in what he does not feel, not because he takes a perverse delight in opposite things.
+ - Avarice is the miser’s dream, as fame is the poet’s.
+ - Principle is a passion for truth.
+ - Few things tend more to alienate friendship than a want of punctuality in our engagements. I have known the breach of a promise to dine or sup to break up more than one intimacy.
+ - The art of pleasing consists in being pleased.
+ - We often choose a friend as we do a mistress – for no particular excellence in themselves, but merely from some circumstance that flatters our self-love.
+ - We do not attend to the advice of the sage and experienced because we think they are old, forgetting that they once were young and placed in the same situations as ourselves.
+ - Those are ever the most ready to do justice to others, who feel that the world has done them justice.
+ - There is nothing more to be esteemed than a manly firmness and decision of character.
+ - We all wear some disguise, make some professions, use some artifice, to set ourselves off as being better than we are; and yet it is not denied that we have some good intentions and praiseworthy qualities at bottom.
+ - The way to secure success is to be more anxious about obtaining than about deserving it.
+ - Habit in most cases hardens and encrusts by taking away the keener edge of our sensations: but does it not in others quicken and refine, by giving a mechanical facility and by engrafting an acquired sense?
+ - Religion either makes men wise and virtuous, or it makes them set up false pretenses to both.
+ - Many a man would have turned rogue if he knew how.
+ - The world loves to be amused by hollow professions, to be deceived by flattering appearances, to live in a state of hallucination; and can forgive everything but the plain, downright, simple, honest truth.
+ - One is always more vexed at losing a game of any sort by a single hole or ace, than if one has never had a chance of winning it.
+ - We do not like our friends the worse because they sometimes give us an opportunity to rail at them heartily. Their faults reconcile us to their virtues.
+ - Anyone must be mainly ignorant or thoughtless, who is surprised at everything he sees; or wonderfully conceited who expects everything to conform to his standard of propriety.
+ - Like a rustic at a fair, we are full of amazement and rapture, and have no thought of going home, or that it will soon be night.
+ - The truth is, we pamper little griefs into great ones, and bear great ones as well as we can.
+ - A great man la an abstraction of some one excellence; but whoever fancies himself an abstraction of excellence, so far from being great, may be sure that he is a blockhead, equally ignorant of excellence or defect of himself or others.
+ - We can bear to be deprived of everything but our self-conceit.
+ - He will never have true friends who is afraid of making enemies.
+ - There is a heroism in crime as well as in virtue. Vice and infamy have their altars and their religion.
+ - An accomplished coquette excites the passions of others, in proportion as she feels none herself.
+ - Those only deserve a monument who do not need one.
+ - Poverty, labor, and calamity are not without their luxuries, which the rich, the indolent, and the fortunate in vain seek for.
+ - Those who have had none of the cares of this life to harass and disturb them, have been obliged to have recourse to the hopes and fears of the next to vary the prospect before them.
+ - The dupe of friendship, and the fool of love; have I not reason to hate and to despise myself? Indeed I do; and chiefly for not having hated and despised the world enough.
+ - I like a person who knows his own mind and sticks to it; who sees at once what, in given circumstances, is to be done, and does it.
+ - Gallantry to women – the sure road to their favor – is nothing but the appearance of extreme devotion to all their wants and wishes, a delight in their satisfaction, and a confidence in yourself as being able to contribute toward it.
+ - The thing is plain. All that men really understand, is confined to a very small compass; to their daily affairs and experience; to what they have an opportunity to know, and motives to study or practice. The rest is affectation and imposture.
+ - We judge of others for the most part by their good opinion of themselves; yet nothing gives such offense or creates so many enemies, as that extreme self-complacency or superciliousness of manner, which appears to set the opinion of every one else at defiance.
+ - It is not the passion of a mind struggling with misfortune, or the hopelessness of its desires, but of a mind preying on itself, and disgusted with, or indifferent to all other things.
+ - It is easier taking the beaten path than making our way over bogs and precipices. The great difficulty in philosophy is to come to every question with a mind fresh and unshackled by former theories, though strengthened by exercise and information.
+ - Popularity disarms envy in well-disposed minds. Those are ever the most ready to do justice to others who feel that the world has done them justice. When success has not this effect in opening the mind, it is a sign that it has been ill deserved.
+ - The Princess Borghese, Bonaparte’s sister, who was no saint, sat to Canova as a reclining Venus, and being asked if she did not feel a little uncomfortable, replied, “No. There was a fire in the room.”
+ - Life is a continued struggle to be what we are not, and to do what we cannot.
+ - Good temper is one of the greatest preservers of the features.
+ - Books are a world in themselves, it is true; but they are not the only world. The world itself is a volume larger than all the libraries in it.
+ - Painting for a whole morning gives one as excellent an appetite for one’s dinner, as old Abraham Tucker acquired for his by riding over Banstead Downs.
+ - A man who is determined never to move out of the beaten road cannot lose his way.
+ - The confession of our failings is a thankless office. It savors less of sincerity or modesty than of ostentation. It seems as if we thought our weaknesses as good as other people’s virtues.
+ - We never do anything well till we cease to think about the manner of doing it.
+ - Habitual liars invent falsehoods not to gain any end or even to deceive their hearers, but to amuse themselves. It is partly practice and partly habit. It requires an effort in them to speak truth.
+ - It might be argued, that to be a knave is the gift of fortune, but to play the fool to advantage it is necessary to be a learned man.
+ - The origin of all science is the desire to know causes, and the origin of all false science is the desire to accept false causes rather than none; or, which is the same thing, in the unwillingness to acknowledge our own ignorance.
+ - One of the pleasantest things in the world is going on a journey; I can enjoy society in a room; but out of doors, nature is company enough for me. I am then never less alone than when alone.
+ - It may be made a question whether men grow wiser as they grow older, anymore than they grow stronger or healthier or honest.
+ - Virtue steals, like a guilty thing, into the secret haunts of vice and infamy, clings to their devoted victim, and will not be driven quite away. Nothing can destroy the human heart.
+ - Silence is one great art of conversation. He is not a fool who knows when to hold his tongue; and a person may gain credit for sense, eloquence, wit, who merely says nothing to lessen the opinion which others have of these qualities in themselves.
+ - Affectation is as necessary to the mind as dress is to the body.
+ - The look of a gentleman is little else than the reflection of the looks of the world.
+ - The vices are never so well employed as in combating one another.
+ - The temple of fame stands upon the grave: the flame that burns upon its altars is kindled from the ashes of great men.
+ - The idea of what the public will think prevents the public from ever thinking at all, and acts as a spell on the exercise of private judgment.
+ - The mind of man is like a clock that is always running down, and requires to be constantly wound up.
+ - Fame is the inheritance not of the dead, but of the living. It is we who look back with lofty pride to the great names of antiquity.
+ - Most of the methods for measuring the lapse of time have, I believe, been the contrivance of monks and religious recluses, who, finding time hang heavy on their hands, were at some pains to see how they got rid of it.
+ - The confined air of a metropolis is hurtful to the minds and bodies of those who have never lived out of it. It is impure, stagnant – without breathing-space to allow a larger view of ourselves or others – and gives birth to a puny, sickly, unwholesome, and degenerate race of beings.
+ - There is an unseemly exposure of the mind, as well as of the body.
+ - No man would, I think, exchange his existence with any other man, however fortunate. We had as lief not be, as not be ourselves.
+ - No wise man can have a contempt for the prejudices of others; and he should even stand in a certain awe of his own, as if they were aged parents and monitors. They may in the end prove wiser than he.
+ - The worst old age is that of the mind.
+ - It is a false principle that because we are entirely occupied with ourselves, we must equally occupy the thoughts of others. The contrary inference is the fair one.
+ - The love of fame is almost another name for the love of excellence; or it is the ambition to attain the highest excellence, sanctioned by the highest authority, that of time.
+ - If we use no ceremony towards others, we shall be treated without any. People are soon tired of paying trifling attentions to those who receive them with coldness, and return them with neglect.
+ - Vanity does not refer to the opinion a man entertains of himself, but to that which he wishes others to entertain of him.
+ - Fashion constantly begins and ends in the two things it abhors most, singularity and vulgarity.
+ - Truth from the mouth of an honest man and severity from a good-natured man have a double effect.
+
+500 quotes

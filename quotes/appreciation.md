@@ -1,0 +1,42 @@
+ - Don’t forget, a person’s greatest emotional need is to feel appreciated. ~~H. Jackson Brown Jr.
+ - Trade your expectations for appreciation and the world changes instantly. ~~Tony Robbins
+ - Happiness is found in the absence of expectation and a continuous focus on appreciation. ~~Tony Robbins
+ - That which we obtain too easily, we esteem too lightly. ~~Thomas Paine
+ - I celebrate myself, and sing myself. ~~Walt Whitman
+ - Don’t wait for an employer, friend, or mentor to show appreciation for your work. Take pride in your own efforts on a daily basis. ~~Denis Waitley
+ - Give Honest and Sincere Appreciation. ~~Dale Carnegie
+ - Giving thanks for abundance is sweeter than the abundance itself... ~~Rumi
+ - Flattery is from the teeth out. Sincere appreciation is from the heart out. ~~Dale Carnegie
+ - Once you have mastered time, you will understand how true it is that most people overestimate what they can accomplish in a year – and underestimate what they can achieve in a decade! ~~Tony Robbins
+ - Never take anything for granted. ~~Benjamin Disraeli
+ - To win in the marketplace you must first win in the workplace. ~~Douglas Conant
+ - If I had a prayer, it would be this: “God, spare me from the desire for love, approval, or appreciation. Amen.” ~~Byron Katie
+ - Whatever our individual troubles and challenges may be, it’s important to pause every now and then to appreciate all that we have, on every level. We need to literally ‘count our blessings,’ give thanks for them, allow ourselves to enjoy them, and relish the experience of prosperity we already have. ~~Shakti Gawain
+ - Begin with praise and honest appreciation. ~~Dale Carnegie
+ - Learn everything you can, anytime you can, from anyone you can – there will always come a time when you will be grateful you did. ~~Sarah Caldwell
+ - I am indebted to my father for living, but to my teacher for living well. ~~Alexander the Great
+ - You can’t really appreciate a work of art until you can understand how difficult it was to create. And that’s probably true of any work of art – a rock, a tree, a bird, a fish, a sunrise made of light and air. ~~Laurence Overmire
+ - When we serve others, we serve ourselves. Do not think, I will help others – think rather, I will help my own, my world, because I cannot otherwise be happy. ~~Paramahansa Yogananda
+ - Through education comes understanding. Through understanding comes true appreciation. All children are artists. The problem is how to remain an artist once he grows up. ~~Pablo Picasso
+ - Live your life that the fear of death can never enter your heart. ~~Tecumseh
+ - One looks back with appreciation to the brilliant teachers, but with gratitude to those who touched our human feelings. The curriculum is so much necessary raw material, but warmth is the vital element for the growing plant and for the soul of the child. ~~C.G. Jung
+ - The privilege of a lifetime is being who you are. ~~Joseph Campbell
+ - When I started counting my blessings, my whole life turned around. ~~Willie Nelson
+ - Dwell on the beauty of life. Watch the stars, and see yourself running with them. ~~Marcus Aurelius
+ - The curious paradox is that when I accept myself just as I am, then I can change. ~~Carl R. Rogers
+ - Results are obtained by exploiting opportunities, not by solving problems. ~~Peter F. Drucker
+ - In all affairs it’s a healthy thing now and then to hang a question mark on the things you have long taken for granted. ~~Bertrand Russell
+ - The art of teaching is the art of assisting discovery. ~~Mark Van Doren
+ - I believe an appreciation for simplicity, the everyday – the ability to dive deeply into the banal and discover life’s hidden richness – is where success, let alone happiness, emerges. ~~Joshua Waitzkin
+ - If you work in an urgent-only culture, the only solution is to make the right things urgent. ~~Seth Godin
+ - In a Nutshell – Fundamental Techniques In Handling People; Principle 1 – Don’t criticize, condemn or complain; Principle 2 – Give honest and sincere appreciation; Principle 3 – Arouse in the other person an eager want. ~~Dale Carnegie
+ - If some people are so hungry for a feeling of importance that they actually go insane to get it, imagine what miracle you and I can achieve by giving people honest appreciation this side of insanity. ~~Dale Carnegie
+ - Truly fertile Music, the only kind that will move us, that we shall truly appreciate, will be a Music conducive to Dream, which banishes all reason and analysis. One must not wish first to understand and then to feel. Art does not tolerate Reason. ~~Albert Camus
+ - It is good to look to the past to gain appreciation for the present and perspective for the future. ~~Gordon B. Hinckley
+ - It’s a misconception that Beauty is in the Eyes of beholder. In my view, Beauty must be in the Heart of beholder for her true appreciation. ~~Deodatta V. Shenai-Khatkhate
+ - Animation can explain whatever the mind of man can conceive. This facility makes it the most versatile and explicit means of communication yet devised for quick mass appreciation. ~~Walt Disney
+ - Thank you for the tragedy. I need it for my art. ~~Kurt Cobain
+ - It is not the failure of others to appreciate your abilities that should trouble you, but rather your failure to appreciate theirs. ~~Confucius
+ - It’s easy to make a buck. It’s a lot tougher to make a difference. ~~Tom Brokaw
+
+40 quotes

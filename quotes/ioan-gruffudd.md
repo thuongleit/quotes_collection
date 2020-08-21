@@ -1,0 +1,21 @@
+ - As long as you understand that you find happiness through family, friends and love, then money is just a nice bonus.
+ - Age and treachery will always overcome youth and skills.
+ - A few people have said that I should change my name and the spelling so that people can say it, but I don’t want to, I like it the way it is.
+ - To be honest, I think that I am a bit of a singer, coming from Wales; being Welsh, we are all very proud of our singing heritage.
+ - I’m not getting younger, so there’s a commitment to the cause that one has to make.
+ - You’re always going to be more judgmental about your own performance than anyone else.
+ - I’ve been brought up with the Christian faith with my family.
+ - I’m determined not to lose my name. It’s who I am. It has neither aided my progress nor hampered it. It’s just who I am.
+ - People in America and Hollywood are very good at pronouncing my name, to begin with. Socially, they’re very adept at listening to somebody’s name and repeating it, cleverly in the first couple of sentences so the name sticks to begin with.
+ - Being attractive, it’s not something I do consciously. It’s incredibly flattering that people think I appeal to women. But that was a gift from my parents.
+ - I know there are some actors who are just brilliant at improvising and brilliant at just being in the moment and doing it there and then. I’m not one of those actors.
+ - I’m really enjoying living in Los Angeles. It’s a great city to live in. I’m living a very suburban domesticated lifestyle out there – a two bedroomed little bungalow with two cars, and we’re just driving around, going to meetings here and there – it’s lovely!
+ - And I guess I have a face and a look that sort of lends itself to period costume!
+ - There’s a physicality and confidence to Americans; they’re very present. That’s something I enjoy being around because it rubs off on you.
+ - Television is what we’re all very attracted to because that’s where the best writing and the best characters are.
+ - As an actor, I’ve always said, half the audience is going to love you, half is going to hate you so just live with it. It’s easier that way.
+ - I’ve never been around pets. I didn’t have pets as a child.
+ - It’s interesting – an actor’s research is different to just historian’s research. I’m looking for things that I can actually physically use in the movie.
+ - I could do an American accent, if I were immersed in the accent, meaning if I were living back in Los Angeles and rehearsing and auditioning the whole time.
+
+19 quotes

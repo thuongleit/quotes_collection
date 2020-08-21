@@ -1,0 +1,34 @@
+ - You can’t teach people everything they need to know. The best you can do is position them where they can find what they need to know when they need to know it.
+ - You can’t think seriously about thinking without thinking about thinking about something.
+ - The role of the teacher is to create the conditions for invention rather than provide ready-made knowledge.
+ - I am convinced that the best learning takes place when the learner takes charge.
+ - A programming language is like a natural, human language in that it favors certain methaphors, images, and ways of thinking.
+ - Every maker of video games knows something that the makers of curriculum don’t seem to understand. You’ll never see a video game being advertised as being easy. Kids who do not like school will tell you it’s not because it’s too hard. It’s because it’s – boring.
+ - Rather than pushing children to think like adults, we might do better to remember that they are great learners and to try harder to be more like them.
+ - The goal is to teach in such a way as to produce the most learning from the least teaching.
+ - The reason most kids don’t like school is not that the work is too hard, but that it is utterly boring.
+ - Do away with curriculum. Do away with segregation by age. And do away with the idea that there should be uniformity of all schools and of what people learn.
+ - Often kids in a computer lab learn about word-processing, but if they want to write an essay, they write it by hand. This is exactly the opposite of what you want them to learn. They’re approaching the computer as just another abstract school subject.
+ - Nothing could be more absurd than an experiment in which computers are placed in a classroom where nothing else is changed.
+ - BASIC is to computer programming as QWERTY is to typing.
+ - There’s a tendency to make jazzy educational software that’s very uniform and therefore just like school. I’d like to see a company develop software for rebellious kids who don’t want to go to school.
+ - I prefer software where kids build something and run into problems they have to solve.
+ - I think Disney is a very interesting company, and it does have an extremely powerful means for projecting a certain way of thinking.
+ - Now more people are doing work that requires individual decision-making and problem-solving, and we need an educational system that will help develop those skills.
+ - Our goal in education should be to foster the ability to use the computer in everything you do, even if you don’t have a specific piece of software for the job.
+ - Similarly, computer literacy courses tend to produce computer people who know a lot about computers or a piece of software but they don’t help people become fluent with the machine.
+ - It’s not what you know about the computer that’s important, but your ability to do things with it. By studying French in an academic setting, you get to know a lot about it, but typically, you can’t express yourself well or have an interesting conversation with it.
+ - What the gears cannot do the computer might. The computer is the Proteus of machines. Its essence is its universality, its power to simulate.
+ - Adults have been brainwashed into thinking that they can’t really learn about computers without being taught, so it’s more difficult for them to feel comfortable with a computer. Deep down, I think they’re afraid of learning about computers.
+ - If children really want to learn something, and have the opportunity to learn it in use, they do so even if the teaching is poor. For example many learn difficult video games with no professional teaching at all!
+ - The first thing to note is that pornography and many abductions occur apart from the use of computers, and that most child abuse happens within the family. So I think the extra degree of danger that computers pose doesn’t justify the frenzy.
+ - If a kid really is retarded and can only come up to a certain level, he will still have more success if what he learns is connected with something important to him.
+ - I tell adults about the experiences of more than a hundred teachers I’ve interviewed. They tell me that allowing the child to help them learn helped them become better teachers. That’s because they no longer had to pretend they were the experts – not only about computers but about other things.
+ - I don’t like MTV, and I don’t like the culture that goes with it. It’s OK in very small doses, maybe. Nevertheless, it’s a social reality and has influenced how kids perceive things around them, the pace of life and the way people do things.
+ - Parents can learn that parental authority doesn’t depend on knowing everything. The more you pretend, the more risk that it’ll be traumatic and damaging to the kids and their relationship with you when they find out the truth.
+ - Working with the computer gives rise to many opportunities to transcend asocial behavior, because it produces exciting and visually interesting things to share, whether it’s by creating video games, computer art or sharing exciting Web sites.
+ - Corporate America needs to get its act together to see that the education system is changed so it produces what it needs. The educational system that teaches kids to be passive recipients of knowledge worked when most workers were sitting in assembly lines.
+ - I think schools generally do an effective and terribly damaging job of teaching children to be infantile, dependent, intellectually dishonest, passive and disrespectful to their own developmental capacities.
+ - I think we should allow for schools within schools, where 100 out of 500 kids may be organized by the way they work and what they do, and what they do often is more progressive. I would like to see a lot of kids of different ages, maybe even some adults, work together on a project.
+
+32 quotes

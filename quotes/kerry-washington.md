@@ -1,0 +1,51 @@
+ - Your life is your story, and the adventure ahead of you is the journey to fulfill your own purpose and potential.
+ - You can be the lead in your own life.
+ - Learn to embrace your own unique beauty, celebrate your unique gifts with confidence. Your imperfections are actually a gift.
+ - You and you alone are the only person that can live the life that writes the story that you were meant to tell. And the world needs your story because the world needs your voice.
+ - I don’t have to be perfect. All I have to do is show up and enjoy the messy, imperfect and beautiful journey of my life.
+ - I have a deep, deep love for sneakers.
+ - I’ll be honest with you. I’m a little bit of a loner. It’s been a big part of my maturing process to learn to allow people to support me. I tend to be very self-reliant and private. And I have this history of wanting to work things out on my own and protect people from what’s going on with me.
+ - You may not be thinking about politics, but politics is thinking about you.
+ - Today there are people trying to take away rights that our mothers, grandmothers and great-grandmothers fought for: our right to vote, our right to choose, affordable quality education, equal pay, access to health care. We the people can’t let that happen.
+ - Arts education must be part of our education solution because it works for all students.
+ - It is important to have friends and family around that I love and trust and who love and trust me.
+ - I’m not interested in living in a world where my race is not a part of who I am. I am interested in living in a world where our races, no matter what they are, don’t define our trajectory in life.
+ - There are so many untold stories when it comes to great women of color.
+ - My brain and my heart are really important to me. I don’t know why I wouldn’t seek help to have those things be as healthy as my teeth. I go to the dentist. So why wouldn’t I go to a shrink?
+ - The No. 1 reason women stay in abusive relationships – because they’re not able to take care of themselves financially. It’s also the No. 1 reason why women go back.
+ - As a young girl, my real dream was to be the woman in the shows at SeaWorld.
+ - From what I’ve been told, the scariest part of being part of a domestic abuse relationship is the idea that you cannot escape and you cannot get help, that feeling of being stuck.
+ - Look, I get it. Whether it’s school, work, family, we’ve all got a lot on our minds. People say to me, “I’m just too busy to think about politics.” But here’s the thing: You may not be thinking about politics, but politics is thinking about you.
+ - As long as anyone anywhere is being made to feel less human, our very definition of humanity is at stake, and we are all vulnerable.
+ - I didn’t grow up thinking I was pretty; there was always a prettier girl than me. So I learned to be smart and tried to be funny and develop the inside of me, because I felt like that’s what I had.
+ - I think my first big heartbreak made me more compassionate about other people’s heartaches. It enabled me to feel more for others when they are in moments of pain.
+ - I think all of us in our lives feel like we can’t make a difference or we can’t make a change or it’s too late or we’re too tired or we’re too scared.
+ - I’m here not just as an actress but as a woman, an African-American, a granddaughter of Ellis Island immigrants, a person who could not have afforded college without the help of student loans and as one of millions of volunteers working to re-elect President Obama!
+ - My understanding of Twitter was that it was a bunch of famous people telling you when they’re going to the bathroom. And, that was not something I wanted to be part of.
+ - You can never control how people respond to your work. You can only control your own work ethic.
+ - I come from the theater and I plan to always do theater. So I don’t really see myself not being able to act even if people don’t think I am sexy enough for film at 40, I’ll still be acting.
+ - I think sometimes in life we want to ignore the problems of society and just think about the good. I believe in positive thinking and affirmative living, I also think it’s really important to remember all of our disenfranchised members of society.
+ - We need to be willing to be uncomfortable, to be flawed, to be imperfect, to own our voice, to step into our light, so that we can continue to inspire other people and employ other people, and make room for more and more voices and presence.
+ - To meet somebody who’s able to harness the level of courage it takes to walk away and to choose your own life and your own health, the well-being of your family, is really inspiring.
+ - When somebody shows up at your job and jeopardizes your job, yelling and screaming, that’s financial abuse. It threatens your ability to take care of yourself.
+ - I think most people, when they think about the Black Panther Party, they think in very abstract, caricatured terms. They think about black fists in the air, but they don’t think about the actual people, and the families, and the relationships.
+ - I feel like any single woman of color who’s been onstage has a Shakespeare monologue in her back pocket, and a monologue from ‘For Colored Girls.’ It’s just part of what you should have, as a woman of color.
+ - You see the transformation that the arts have on young people. It changes their lives for the better. That’s where my engagement is.
+ - I’d figure out ways to use role-playing in the healing of people.
+ - I grew up in New York, so I fell in love with acting on a stage, not in front of a camera.
+ - People don’t think about the fact that when Barack Obama’s parents had him it was illegal for them to be married in several states in this country. So if we start making it okay that certain people can marry and other people can’t, it’s a slippery slope of civil rights.
+ - I don’t think I’m even close to fulfilling my potential. And I think also that, unlike a pianist or a flutist, an actor has an instrument that is constantly changing.
+ - I always prided myself on the fact that I could live out of milk crates forever. It was kind of my way of detaching from materialism.
+ - You’re able to make a real difference. If a woman’s able to step away financially, she’s able to begin to do all the other work.
+ - I am co-writing a screenplay now and I’m working on the rights to another story I want to do. So I plan to produce and direct. So, for me, I don’t really feel that I am vulnerable to that sad baggage that comes with the business of filmmaking.
+ - Sometimes it’s hard for me to tell the difference between independent filmmaking and studio filmmaking because all the studios have these little independent satellites. It’s interesting.
+ - I don’t gravitate toward any one designer because I think of fashion as the costume of the everyday woman.
+ - Every actor you work with has a different method, same with the director. You have to figure out what your shared language is and how to best support each other, and also take care of yourself.
+ - I’d never really heard of financial abuse, although it makes so much sense when you hear it defined.
+ - I’m doing this play right now, the new David Mamet play. It’s called ‘Race,’ and it’s very interesting how people really leave the theater filled with the desire to talk about the play and the issues and the characters, and how they’re all navigating their personal views around race.
+ - There are already a number of gatherings centered around women of color who are doing inspiring work.
+ - I wouldn’t just come home from school and watch TV everyday, they had me involved in lots of local theatre. I was a very dramatic, talkative child. And that was part of my mother’s creative solution – to put me in workshops and classes and children’s theatre programmes.
+ - I’ve always been a writer because I’ve always been a student. My mom’s a retired professor, so I come from a very academic background. I love writing, you know?
+ - I really love research. It’s one of the things I love most about my job. I feel like it’s me in the lab cooking up the character.
+
+49 quotes

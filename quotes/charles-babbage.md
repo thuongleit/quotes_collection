@@ -1,0 +1,42 @@
+ - What is there in a name? It is merely an empty basket, until you put something into it.
+ - The first steps in the path of discovery, and the first approximate measures, are those which add most to the existing knowledge of mankind.
+ - Another mode of accumulating power arises from lifting a weight and then allowing it to fall.
+ - On two occasions I have been asked, ‘Pray, Mr. Babbage, if you put into the machine wrong figures, will the right answers come out?’ I am not able rightly to apprehend the kind of confusion of ideas that could provoke such a question.
+ - You will be able to appreciate the influence of such an Engine on the future progress of science. I live in a country which is incapable of estimating it.
+ - The quantity of meaning compressed into small space by algebraic signs, is another circumstance that facilitates the reasonings we are accustomed to carry on by their aid.
+ - As soon as an Analytical Engine exists, it will neccessarily guide the future course of science.
+ - The economy of human time is the next advantage of machinery in manufactures.
+ - It will be readily admitted, that a degree conferred by an university, ought to be a pledge to the public that he who holds it possesses a certain quantity of knowledge.
+ - For one person who is blessed with the power of invention, many will always be found who have the capacity of applying principles.
+ - The errors which arise from the absence of facts are far more numerous and more durable than those which result from unsound reasoning respecting true data.
+ - It is difficult to estimate the misery inflicted upon thousands of persons, and the absolute pecuniary penalty imposed upon multitudes of intellectual workers by the loss of their time, destroyed by organ-grinders and other similar nuisances.
+ - Trimming consists of clipping off little bits here and there from those observations which differ most in excess from the mean, and in sticking them onto those which are too small; a species of ‘equitable adjustment,’ as a radical would term it, which cannot be admitted in science.
+ - As soon as an Analytical Engine exists, it will necessarily guide the future course of the science. Whenever any result is sought by its aid, the question will then arise – by what course of calculation can these results be arrived at by the machine in the shortest time?
+ - Perhaps the most important principle on which the economy of a manufacture depends, is the division of labour amongst the persons who perform the work.
+ - I have no desire to write my own biography, as long as I have strength and means to do better work.
+ - That science has long been neglected and declining in England, is not an opinion originating with me, but is shared by many, and has been expressed by higher authority than mine.
+ - No person will deny that the highest degree of attainable accuracy is an object to be desired, and it is generally found that the last advances towards precision require a greater devotion of time, labour, and expense, than those which precede them.
+ - A young man passes from our public schools to the universities, ignorant almost of the elements of every branch of useful knowledge.
+ - The difference between a tool and a machine is not capable of very precise distinction; nor is it necessary, in a popular explanation of those terms, to limit very strictly their acceptation.
+ - Whenever a man can get hold of numbers, they are invaluable: if correct, they assist in informing his own mind, but they are still more useful in deluding the minds of others. Numbers are the masters of the weak, but the slaves of the strong.
+ - In England, the profession of the law is that which seems to hold out the strongest attraction to talent, from the circumstance, that in it ability, coupled with exertion, even though unaided by patronage, cannot fail of obtaining reward.
+ - The tastes and pursuits of manhood will bear on them the traces of the earlier impressions of our education. It is therefore not unreasonable to suppose that some portion of the neglect of science in England, may be attributed to the system of education we pursue.
+ - Miracles may be, for anything we know to the contrary, phenomena of a higher order of God’s laws, superior to, and, under certain conditions, controlling the inferior order known to us as the ordinary laws of nature.
+ - An object is frequently not seen, from not knowing how to see it, rather than from any defect of the organ of vision.
+ - Perhaps it would be better for science, that all criticism should be avowed.
+ - Precedents are treated by powerful minds as fetters with which to bind down the weak, as reasons with which to mistify the moderately informed, and as reeds which they themselves fearlessly break through whenever new combinations and difficult emergencies demand their highest efforts.
+ - In turning from the smaller instruments in frequent use to the larger and more important machines, the economy arising from the increase of velocity becomes more striking.
+ - Forging differs from hoaxing, inasmuch as in the later the deceit is intended to last for a time, and then be discovered, to the ridicule of those who have credited it; whereas the forger is one who, wishing to acquire a reputation for science, records observations which he has never made.
+ - If we look at the fact, we shall find that the great inventions of the age are not, with us at least, always produced in universities.
+ - The Council of the Royal Society is a collection of men who elect each other to office and then dine together at the expense of this society to praise each other over wine and give each other medals.
+ - The public character of every public servant is legitimate subject of discussion, and his fitness or unfitness for office may be fairly canvassed by any person.
+ - That the state of knowledge in any country will exert a directive influence on the general system of instruction adopted in it, is a principle too obvious to require investigation.
+ - He will also find that the high and independent spirit, which usually dwells in the breast of those who are deeply versed in scientific pursuits, is ill adapted for administrative appointments; and that even if successful, he must hear many things he disapproves, and raise no voice against them.
+ - The triumph of the industrial arts will advance the cause of civilization more rapidly than its warmest advocates could have hoped, and contribute to the permanent prosperity and strength of the country far more than the most splendid victories of successful war.
+ - There are few circumstances which so strongly distinguish the philosopher, as the calmness with which he can reply to criticisms he may think undeservedly severe.
+ - The Church has been reproached with endeavouring to appropriate to itself all those professorships in our Universities which are connected with science: it is however certain that the larger portion of these ill-remunerated offices have been filled by clergymen.
+ - It can happen to but few philosophers, and but at distant intervals, to snatch a science, like Dalton, from the chaos of indefinite combination, and binding it in the chains of number, to exalt it to rank amongst the exact. Triumphs like these are necessarily ‘few and far between.’
+ - The accumulation of skill and science which has been directed to diminish the difficulty of producing manufactured goods, has not been beneficial to that country alone in which it is concentrated distant kingdoms have participated in its advantages.
+ - Whenever the work is itself light, it becomes necessary, in order to economize time, to increase the velocity.
+
+40 quotes

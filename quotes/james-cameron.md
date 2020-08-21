@@ -1,0 +1,83 @@
+ - Hope is not a strategy. Luck is not a factor. Fear is not an option.
+ - The future is not set. There is no fate but what we make.
+ - Failure is an option, fear is not.
+ - I am king of the world!
+ - Curiosity is the most powerful thing you own.
+ - The nation that leads in renewable energy will be the nation that leads the world.
+ - Sometimes your whole life boils down to one insane move.
+ - Your only competitors are your past achievements.
+ - Pick up a camera. Shoot something. No matter how small, no matter how cheesy, no matter whether your friends and your sister star in it. Put your name on it as director. Now you’re a director. Everything after that you’re just negotiating your budget and your fee.
+ - Your imagination can create a reality.
+ - People call me a perfectionist, but I’m not. I’m a rightist. I do something until it’s right, and then I move on to the next thing.
+ - What are you gonna do, talk the alien to death?
+ - Go home, pick up your video camera, and make a film.
+ - I love it when I have a nightmare to me that means I got my money’s worth out of that eight hours.
+ - A director’s job is to make something happen and it doesn’t happen by itself. So you wheedle, you cajole, you flatter people, you tell them what needs to be done. And if you don’t bring a passion and an intensity to it, you shouldn’t be doing it.
+ - It’s about human imagination and curiosity. What’s out there? What’s in the great beyond? What exists at levels we can’t see with our five senses?
+ - A woman’s heart is an ocean of deep secrets.
+ - Here’s my philosophy in life: If there’s a fire, you put it out. If there’s a flood, you fill sandbags and you build a dike. You roll up your sleeves and you get to work.
+ - I dreamed I was a soldier who could bring peace. Sooner or later, though, you always have to wake up.
+ - The universe is like a giant bank vault lock, where the tumblers are constantly moving and once in a while the tumblers line up and you have to listen for the click. So you must be prepared in that moment to step through the door.
+ - Tread softly upon the earth because the faces of the unborn look up at you.
+ - Old Rose: It’s been 84 years, and I can still smell the fresh paint. The china had never been used. The sheets had never been slept in. Titanic was called the Ship of Dreams, and it was. It really was.
+ - Jack: Where to, Miss? Rose: To the stars.
+ - When the ship docks, I’m getting off with you. This is crazy. I know it doesn’t make any sense, that’s why I trust it.
+ - You’re so stupid, Rose! – Jack Dawson.
+ - But failure has to be an option in art and in exploration – because it’s a leap of faith. And no important endeavor that required innovation was done without risk. You have to be willing to take those risks...
+ - I guess Titanic because it made the most money. No, I’m kidding. I don’t really have a favorite. Maybe Terminator because that was the film that was the first one back when I was essentially a truck driver.
+ - I do an awful lot of scuba diving. I love to be on the ocean, under the ocean. I live next to the ocean.
+ - Getting the audience to cry for the Terminator at the end of T2, for me that was the whole purpose of making that film. If you can get the audience to feel emotion for a character that in the previous film you despised utterly and were terrified by, then that’s a cinematic arc.
+ - So much of literary sci-fi is about creating worlds that are rich and detailed and make sense at a social level. We’ll create a world for people and then later present a narrative in that world.
+ - Writing a screenplay, for me, is like juggling. It’s like, how many balls can you get in the air at once? All those ideas have to float out there to a certain point, and then they’ll crystallize into a pattern.
+ - When you have the feeling that anything’s possible, sometimes you wind up acting on it.
+ - I’m hopeful that we’ll be able to study the ocean before we destroy it.
+ - The magic doesn’t come from within the director’s mind, it comes from within the hearts of the actors.
+ - If you wait until the right time to have a child you’ll die childless, and I think film making is very much the same thing. You just have to take the plunge and just start shooting something even if it’s bad.
+ - I actually started as a model builder and quickly progressed into production design, which made sense because I could draw and paint. But I kept watching that guy over there who was moving the actors around and setting up the shots.
+ - God wears white flannels.
+ - I don’t look at scripts. I just write them.
+ - If it was up to the studio, everything would be shot with a camcorder.
+ - You know, in the film making business no one ever gives you anything.
+ - If you want to move through a virtual reality it’s called a video game, it’s been around forever.
+ - It was long ago in my life as a simple reporter that I decided that facts must never get in the way of truth.
+ - Hate is a disease, and in 1930 I became sick with hatred.
+ - Jack: Rose! You’re so stupid. Why did you do that, huh? You’re so stupid, Rose. Why did you do that? Why? Rose: You jump, I jump, right? Jack: Right. Rose: Oh God! I couldn’t go. I couldn’t go, Jack. Jack: It’s all right. We’ll think of something. Rose: At least I’m with you.
+ - Rose: You have a gift Jack, you do. You see people. Jack: I see you. Rose: And? Jack: You wouldn’t have jumped.
+ - Don’t get seduced by your own stuff; work hard to keep a blank slate state of mind each time you watch your film.
+ - You can’t be an environmentalist, you can’t be an ocean steward without truly walking the walk and you can’t walk the walk in the world of the future, the world ahead of us, the world of our children, not eating a plant-based diet.
+ - Rose: You’re trembling. Jack: I’ll be alright.
+ - Every time you dive, you hope you’ll see something new – some new species. Sometimes the ocean gives you a gift, sometimes it doesn’t.
+ - To convince people to back your idea, you’ve got to sell it to yourself and know when it’s the moment. Sometimes that means waiting. It’s like surfing. You don’t create energy, you just harvest energy already out there.
+ - You can’t really call yourself an environmentalist if you’re still consuming animals. You just can’t.
+ - The new world will be a place of answers and no questions, because the only questions left will be answered by computers, because only computers will know what to ask.
+ - Nature’s not our enemy, it’s our sustenance; and we need it – and we need nature healthy for us to be healthy and to survive long term.
+ - I was always fascinated by engineering. Maybe it was an attempt maybe to get my father’s respect or interest, or maybe it was just a genetic love of technology, but I was always trying to build things.
+ - NASA, the National Aeronautics and Space Administration. Where else but in Texas would men set up to administer space?
+ - We have a great responsibility. Whatever we make will become the truth, the visual reality that a generation will accept.
+ - Rose: You’re crazy. Jack: That’s what everybody says but, with all due respect, Miss, I’m not the one hanging off the back of a ship here. Come on. C’mon, give me your hand. You don’t want to do this.
+ - It’s important for me to have hope because that’s my job as a parent, to have hope, for my kids, that we’re not going to leave them in a world that’s in shambles, that’s a chaotic place, that’s a dangerous place.
+ - You don’t rest well as long as you’re seeking vengeance. I feel sad justice wasn’t done, but it’s time to move on and sleep well.
+ - In writing the new films, I’ve come to realize that AVATAR’s world, story and characters have become even richer than I anticipated, and it became apparent that two films would not be enough to capture everything I wanted to put on screen.
+ - Usually, when you go to a movie, your consciousness floats above the film. 3D sucks you in and makes it a visceral experience.
+ - You have to not listen to the nay sayers because there will be many and often they’ll be much more qualified than you and cause you to sort of doubt yourself.
+ - It’s not a requirement to eat animals, we just choose to do it, so it becomes a moral choice and one that is having a huge impact on the planet, using up resources and destroying the biosphere.
+ - Action is a way of externalizing an emotional state. You might not be running, leaping, climbing and doing all that. But, the way you create that emotional state in a movie is by having the characters have physical jeopardy that they have to work against.
+ - I certainly didn’t think of myself as gifted. The standards for being gifted in my environment were if you were good in Little League or if you were good in football.
+ - I lived in a small town. It was 2,000 people in Canada. A little river that went through it and we swam in the – you know, there was a lot of water around. Niagara Falls was about four or five miles away.
+ - This is a vast frontier that’s going to take us awhile to understand. It was very lunar, desolated, isolated.
+ - Much of my life seems in retrospect to have been spent in the company of putative national leaders passing through the process of being denounced and imprisoned for sedition, as part of the inevitable progression towards the Prime Ministership and the ritual tea-party at Windsor Castle.
+ - The quickest way to destroy ocean science is to take human explorers out of the water.
+ - I always do makeup touch-ups myself, especially for blood, wounds, and dirt. It saves so much time.
+ - That worst evil of long dictatorships: the loss of all political experience.
+ - When Nikita Khrushchev wrapped himself in the bloody mantle of the Czars he broke Hungary, he broke the little Communist parties over the western world, and he broke the hearts of many honest men who had trusted a little too far, a little too long.
+ - It took me a long time to realize that you have to have a bit of an interlanguage with actors. You have to give them something that they can act with.
+ - Inspiration can hit you in the head at any time in any context. It could happen in a conversation. Talking to someone at a party, you can get an idea. But you’ve got to remember those inspirations.
+ - I watched a couple of really bad directors work, and I saw how they completely botched it up and missed the visual opportunities of the scene when we had put things in front of them as opportunities. Set pieces, props and so on.
+ - I don’t just want to be associated with a few good 3D movies and the audience is saying all of the other ones are crap.
+ - I’m certainly not a fan of conversion when you could shoot the movie in 3-D.
+ - I pick my feature film battles very carefully. They’re going to be personal and they’re going to take a lot of my energy. I’m not going to be some big production company and be Jerry Bruckheimer or something like that. It doesn’t interest me.
+ - Religions fulfill deep-seated psychological needs for people, and if you don’t get it from a specific religious doctrine, you’ll get it from the kind of films I like to make. A film like The Terminator is consciously meant to give a sense of empowerment to the individual.
+ - The films that influenced me were so disparate that there’s almost no pattern.
+ - I do not know why journalists insist on calling their stuff “pieces”, when they are in fact little entities, attempting to have beginnings, middles and endings.
+
+81 quotes

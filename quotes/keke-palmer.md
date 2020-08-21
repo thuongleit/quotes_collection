@@ -1,0 +1,39 @@
+ - You can do anything as long as you don’t stop believing. When it is meant to be, it will be. You just have to follow your heart.
+ - Sometimes things seem too good to be true.
+ - Don’t depend on a guy for your happiness. You have to live your own life and do your own thing. That’s when good things come around – when you do your own thing and you’re not worried about a man. It will happen in due time.
+ - I’m a workaholic, so I ignore the signs of fatigue and just keep going and going, and then conk out when I get home. It can be pretty stressful.
+ - It’s very fun to be single, because you know what happens? You find yourself. You understand what it means to love yourself, instead of putting all this energy into give-and-tug in a relationship.
+ - God is so good. Always follow your dreams, own your Purpose! Embrace God’s Anointing.
+ - Being of service is something that really makes me happy. Being able to tell young kids about something they might never have known without meeting someone with my experiences is what really what I feel it’s all about. I feel that’s the only way that you get fulfillment out of life.
+ - Giving back, doing motivational speeches and stuff like that, that’s always made me feel good. If you repeatedly go out there, and you are the change that you want to see, then that’s what you are.
+ - The one thing you absolutely need is the one thing you can never lose: God’s presence and love for you. Just have to talk to him.
+ - Actually, Keke is my nickname. When I was little, my sister was about four years old, and she had an imaginary friend named Keke. And she wanted my name to be Keke.
+ - Corbin Bleu was my first kiss in life. I was 12, and he was, like, my first kiss for TV It was on the lips!
+ - If you focus more on the inside, you’ll feel just as great about the outside. I feel attractive when I’m doing good and helping people.
+ - Something that was instilled in me by my parents at a very young age is that there is no happy life without a life of service. Over the course of my career, I’ve been fortunate to always encounter others who share that philosophy.
+ - I think people should have fun. And don’t get so down on yourself. Enjoy life and be the best person you can be.
+ - Singing was my first passion. Whenever I sing, I’m always so happy.
+ - As a kid growing up, the most simple things would make me so, so excited. I remember the first time my dad got a let-out couch; you could sleep in it like a bed and my sister and I just thought that was so magical.
+ - You should never look at somebody and say, ‘I wish I had their life,’ because you never really know what struggles they’re going through.
+ - I feel like you have to tell people who you are, but you don’t have to be disrespectful about it. But you also don’t have to be a shrinking violet.
+ - Often, kids don’t appreciate the choices available, as if it’s either the street or nothing.
+ - I love music and I love acting. I always keep that in the forefront, not all the other distractions around me.
+ - Doing motivational speeches and stuff like that, that’s always made me feel good.
+ - Not being happy really is my fear.
+ - I feel like I’ve reached a point where music has become just as much a priority to me as my acting, and I’m glad to feel that way.
+ - Learn to love yourself and all that other stuff will not matter.
+ - Like my little sister and brother, I always play them my music because I want people like them to be able to relate to my music. They always know what’s going on; they’re up on what’s new. For me, when they hear my music and they like it, I’m on the right track.
+ - Be true to your heart, and if you’re passionate about your dream, work towards it but don’t allow your idea of how you think it should manifest prevent what’s actually unfolding from happening.
+ - I changed the pressure from negative to positive. So, instead of thinking everybody wanted to see me fail, I decided everybody wanted to see me win, since I wanted to see myself win.
+ - Sometimes, when you grow up in one of these poverty-stricken neighborhoods where the educational system isn’t the best, you don’t realize that you have any choices.
+ - Follow your heart’s truth with no need for personal gain other than the feeling produced when doing what you truly love.
+ - Whenever I get to talk to young girls like me I always say, ‘The only difference between you and I is that I know that I’m special and you just don’t know that you are yet.’
+ - Someday I would really love to do a talk show. That’s something I’ve always been interested in. I like to talk, and I love to help people.
+ - I always try to set a positive example for my generation and promote confidence.
+ - I’ve always been who I’ve been. I’ve always been this person.
+ - If there’s a certain song that I want to reach a certain person or certain type of person, that’s when I play it for people.
+ - I work out. I’m getting toned, too. The Wii Fit really works your body. When I get off, I’m dying.
+ - I would love to direct videos and that’s what it keeps moving towards, but I have to stop being scared in order to do that.
+ - We need to stop separating ourselves by how dark or how light we are.
+
+37 quotes

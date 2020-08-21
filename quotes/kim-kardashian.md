@@ -1,0 +1,165 @@
+ - I’m an entrepreneur. ‘Ambitious’ is my middle name.
+ - I promote a healthy lifestyle.
+ - I’m the true definition of a workaholic.
+ - If i had known better, I would have done better.
+ - If you can fix a problem with money, it’s not really a problem.
+ - Remember, people only rain on your parade because they’re jealous of your sun and tired of their shade.
+ - I love when people underestimate me and then become pleasantly surprised.
+ - You never know what the future holds or where my life will take me.
+ - I don’t like big balls on a dog.
+ - If I don’t like something that’s going on in my life, I change it. And I don’t sit and complain about it for a year.
+ - I’ve always been a businesswoman.
+ - There’s a lot of baggage that comes along with our family, but it’s like Louis Vuitton baggage.
+ - I didn’t love school.
+ - You don’t put bumper stickers on a Bentley.
+ - Take and chance and don’t ever look back. Never have regrets, just lessons learned.
+ - Maybe I’ll just be a good aunt.
+ - Now is the one time in my life I can be 100% selfish. I’m not married; I don’t have kids; I can focus on my career.
+ - We are all blessed ones. Heaven is no longer in the clouds. It is right here, all around us, everywhere; we must only open our eyes to see it.
+ - When there’s so many haters and negative things, I really don’t care.
+ - I wanted to be a teacher.
+ - First and foremost, I married for love.
+ - My decision to end my marriage was such a risk to lose ratings and lose my fan base. I had to take that risk for my inner peace and to be happy with myself.
+ - I am fascinated by crime scene investigating. I swear, I wish I was a crime scene investigator sometimes!
+ - It just wasn’t the fairy tale I had hoped for.
+ - I buy myself a gift every year, so this year I bought everything I wanted.
+ - I might have a little bit of cellulite. I might not be toned everywhere. I might struggle in this area or that. But accepting that just empowers me.
+ - I spoke to a girl today who had cancer and we were talking about how this is such a hard thing for her, but it taught her a big lesson on who her friends are and so much about life. She’s 18. And I was like, that’s how I feel.
+ - I think you have different soulmates throughout your life.
+ - Maybe my fairy tale has a different ending than I dreamed it would. But that’s OK.
+ - I don’t even drink! I can’t stand the taste of alcohol. Every New Year’s Eve I try one drink and every time it makes me feel sick. So I don’t touch booze – I’m always the designated driver.
+ - Embrace your curves and who you are. I feel proud if young girls look up to me and say, “I’m curvy, and I’m proud of it now”.
+ - I have to be in a relationship in order to be intimate. I’m not the one-night-stand kind of girl. Despite the rumors.
+ - If I don’t feel confident about my body, I’m not going to sit at home and feel sorry for myself and not do something about it. It’s all about taking action and not being lazy. So you do the work, whether it’s fitness or whatever. It’s about getting up, motivating yourself and just doing it.
+ - People don’t understand the pressure on me to look perfect.
+ - I’m not trying to influence anyone else; I’m not saying, “Do what I do.” I think it’s a little pretentious to say, “I’m a role model”; I would never say that, and I don’t think of myself that way.
+ - Having lots of siblings is like having built-in best friends.
+ - There was at time in my life where all I wanted was a relationship, and I thought that was the most important thing.
+ - I’ve made mistakes in my life for sure.
+ - If no tender words are spoken, no tender hearts can be broken.
+ - The grass is greener where you water it- not always on the other side!
+ - Instagramming photos of food isn’t sexy.
+ - I Don’t Really Like Thanksgiving Food, I’m Not Worried About Overeating.
+ - I hate when women wear the wrong foundation color. It might be the worst thing on the planet when they wear their makeup too light.
+ - I urge people to learn from the mistakes of others. Please drink responsibly and it’s never acceptable to drink and drive!
+ - I’ll cry at the end of the day, not with fresh makeup.
+ - I think if I’m 40 and I don’t have any kids and I’m not married, I would have a baby artificially inseminated. I would feel like Mary – like Jesus is my baby.
+ - Leggings killed velour sweat suits! I used to only wear them until leggings came along.
+ - My mother has always been the social glue holding the family together.
+ - I love to eat – Kit Kats or cookies-and-cream ice cream. I need sugar like five times a day.
+ - For me, skinny is just a style of jeans – not a goal.
+ - I recommend that everyone have a Diaper Genie. Who can live without it?
+ - I am a huge Eminem fan and find it flattering that he would rap about me. Personally, I’m honored.
+ - I was like, ‘What’s Margiela?’ back then.
+ - It was always so important to my dad for us to understand about the Genocide and to know about our family history.
+ - Is that not ridiculous that people thought that Justin Bieber and I were on a vacation together, on a romantic vacation, in the Bahamas, and I just happened to wear a gown as my swimsuit and red lips and he’s dressed in a suit in the ocean? Seriously who would walk to the beach like that?
+ - I think I’m really feel I’ve done so much that I’m OK with not having everybody’s attention. Sometimes it’s overbearing. I used to think that I would never feel this way. Before, I used to buy all the tabloids and see if I was in them.
+ - But I do realize I’m going to have to go through the pregnancy again. Mine was a really difficult pregnancy. It’s tough. Of course I want to have another child. We’ll see. I’m going to have one more, and see what it’s like.
+ - The perfect date for me would be staying at home, making a big picnic in bed, eating Wotsits and cookies while watching cable TV.
+ - There’s more pressure to be famous for being yourself than if you’re being a character.
+ - I think as long as you learn from your mistakes, and don’t make them over and over again, you’re on the right path.
+ - I don’t find myself as sexy as everyone thinks. I’m a lot more insecure than people would assume, but with little stupid things. When I get dressed, I’m always so indecisive.
+ - You have to learn to accept your body. You have to learn to like what you see in the mirror. There are definitely times when I don’t feel like myself, but you have to fake it until you make it.
+ - I play into the perception of me, but it’s not really me.
+ - I would absolutely characterize myself as ambitious.
+ - I love that my friends are sometimes even 20, 30 years older than me – that I can just sit and enjoy their company and their experiences.
+ - It’s time to recognise the Armenian Genocide.
+ - I just feel my best when I’m all glammed up.
+ - I know people think we drive around in these nice cars and we do whatever we want and our parents will pay our credit cards, but that’s not the case. Sure, my parents were generous; I got a nice car at 16, but at 18 I was cut off. I’ve worked really hard. I opened the store myself.
+ - I was raised with a huge Armenian influence, always hearing stories of Armenia, celebrating Armenian holidays.
+ - It’s fun to have a partner who understands your life and lets you be you.
+ - I get letters from little girls begging me to adopt them.
+ - My twerking skills are for the bedroom, not for the club.
+ - If you ask her to do things on command, like clap or walk, she just shuts down. She does not want to perform.
+ - Shake what ya momma gave ya and most of all be sassy.
+ - Even an atheist finds God when they point at what they don’t believe in.
+ - We just started seeing a nutritionist who changes our diet every 10 days.
+ - I have cellulite. So what?
+ - A guy isn’t the only thing that will make me happy. If I never find romance or love, that will be okay. It’s what I want, but it doesn’t define me.
+ - Being on TV has changed my life because I get lots of free stuff!
+ - It would be really sexy to have George Clooney once. I think he is so sexy!
+ - Personally, I’ve always loved the curvy look.
+ - Believe it or not, fame is not as glamorous as it seems. I think it is much harder now with all of the media outlets, and people can be pretty nasty and harsh.
+ - I’m totally growing up.
+ - I would rather have been beaten up in the media than live a life that wasn’t happy.
+ - Why is it when you’re dieting, you crave everything?
+ - They say I look like a different ethnicity, and nobody’s been recognizing me.
+ - I am pretty honest about a lot of things that young girls question, like their body image.
+ - Me and my sisters all have such different body types.
+ - So far, designing is the most exciting thing. Ive done I have a vision of what I want the clothes to look like in my mind and its fun to see it come alive on paper.
+ - I was always really shy so I’d never try to get a guy’s attention.
+ - To look and feel my best, I watch my calories and exercise.
+ - I always put clothes and family photos under the mattress, in case the house burns down.
+ - I like to give great clothes. I only get kids clothes. And I know kids don’t like clothes, but I like to get them clothes.
+ - I definitely want kids and I want four kids, for sure. But I need to find a husband first!
+ - I went to college for four years.
+ - It’s called Seflish, which is fitting.
+ - You can’t really have like high end designers for everything.
+ - I would go to the doctor in Beverly Hills every day at five in the morning to get tested to see if I was ovulating. I was trying everything: I did acupuncture and got a nutritionist to eat healthier, thinking that was an issue.
+ - I know some people say it’s not the best to work with your family, but I have never understood that because it’s always worked so well for me.
+ - I am really cautious about what I say and do.
+ - I have sister issues and parent issues and all sorts of things.
+ - I’d be foolish not to take some of opportunities that are coming my way. We all know this can go away at any moment.
+ - I was okay with school. My sister Kourtney was extremely smart. I always read a little slower.
+ - I really see myself continuing to design clothes, fragrances.
+ - I couldn’t sacrifice my heart for a publicity stunt.
+ - Botox to me is not surgery.
+ - I think the most important thing is – I always liked help with feeding essentials like breastfeeding stuff, because it’s really tricky.
+ - I will say A Pea in the Pod saved my life – at the end of my pregnancy. I even wear their tanks now to work out in because they’re really long.
+ - I am confident and not trying to hide my bump. I actually want to accentuate it.
+ - I think each shoot has a different personality.
+ - I recommend hiding for a good year and having no pregnancy style. That’s what I recommend. If you can do it, hide. Never leave the house.
+ - I have cellulite, just like almost every other woman on the planet.
+ - You can use the same motto for everything in life. If you put that effort in, you’ll get what you want.
+ - Get to know me and see who I am.
+ - I think parents need to make sure they have parental controls and not have their credit card linked up to in-app purchases so their kids can just spend whenever they want to. They need to ask permission.
+ - I love meeting new people and telling them about my stories and my projects that I am working on.
+ - I always wanted what Mom and Dad had.
+ - I’m totally not against plastic surgery. I’ve tried Botox before. That’s the only thing that I’ve done.
+ - My reality is never going to be stick-skinny.
+ - I am hands-on in any project that I am associated with. I just don’t want to put my face or name and lend it to a product that I’m not behind a hundred percent.
+ - There are always going to be ridiculous rumours.
+ - I hate to talk about myself.
+ - I’m a little more shy and not comfortable dancing in front of a large crowd.
+ - If I look at the message I’m portraying, I think it definitely is be who you are, but be your best you.
+ - I used to be super trendy and totally sexy. But I look back now and I used to want everything short and low cut and you really can’t do it all.
+ - I remember when the wave of Jennifer Lopez, Salma Hayek and these beautiful Hispanic women came into light, and I looked up to them and I loved them, but I was like, ‘Where are Middle Eastern women?’
+ - I love to bake, especially cupcakes. I’m really good at it.
+ - EWW. I’m at lunch, the woman at the table next to me is breast feeding her baby with no coverup.
+ - My mom and I had the same vision, and we want the same things. We would always make a goal list every year.
+ - My balance is really bad. I just hope my clumsiness doesn’t show through.
+ - I do rely on having a full face on.
+ - Apparently, in the eyes of the law, my admiration of Justin Bieber is creepy.
+ - I am so stereotyped into being this Hollywood girl.
+ - Holidays are the best. I couldn’t imagine being from a small family.
+ - If I like a food, I’ll eat it, even if I know it’s not good for me.
+ - I started taking selfies since I was 4.
+ - I took on so many things and not everything was the right fit. If you do that, it can kill your brand. A partnership has to be real and authentic.
+ - I definitely think anything I’d be in now is a permanent relationship.
+ - When I gain a pound it’s in the headlines.
+ - The things I’m passionate about are beauty and fashion.
+ - When someone asks me, ‘What do you do?’ under my breath I want to say, ‘Ask my f – king bank account what I do,’
+ - I always say you shouldn’t weigh yourself. I don’t even have a set of scales in my house.
+ - I have a hit TV show.
+ - After five months I swore I’d never get pregnant again. I got so huge and it felt like someone had taken over my body.
+ - It’s such a trip how your body grows and changes, and at the end of the day, you have to wear what you are comfortable in and what you feel good in.
+ - It’s just so hard when you have a connection with someone and they just leave and you don’t know if you’ll ever see them again.
+ - I’ve always been the type to fall in love fast and, with every boyfriend, I plan out my wedding in my head.
+ - I learned how to cook and do a lot of marital things.
+ - Men are attracted to me because of my personality!
+ - I would say she’s definitely not shy, like her dad.
+ - I don’t really have goals as far as, I want to be on a cover or something like that.
+ - White is actually one of my favorite colors. I have a white car. I love white.
+ - It’s easier to just be single and not have a relationship.
+ - I love the sun but don’t have the time to get a good tan and keep it year-round, so I am a huge fan of tanning products.
+ - It doesn’t matter if you have a valentine or not – just love yourself and be your own.
+ - Everything family does is reflection on the other people.
+ - If you’re a basketball player and you don’t stop and take pictures with your fans, you can have an amazing game and everyone still loves you.
+ - I think when you know so deep in your heart that you just to listen to your intuition and follow your heart, theres no right or wrong thing to do.
+ - You make mistakes, but I don’t have any regrets. I’m the kind of person who takes responsibility for it and deals with it. I learn from everything I do. I work very hard, I have so many things going on in my life. Get to know me and see who I am.
+ - I’ve just had enough of people misrepresenting me. Get to know me and see who I am.
+ - I feel like I’m at a really happy, good space.
+ - I don’t care what the weather is, I will always wear my coats. I am always freezing, so it works out perfectly for me!
+ - People are recognizing that I am an entrepreneur and do more than be on a reality TV show.
+
+163 quotes

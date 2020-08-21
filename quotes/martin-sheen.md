@@ -1,0 +1,48 @@
+ - Stop going for the easy buck and start producing something with your life. Create, instead of living off the buying and selling of others.
+ - Golf is fundamentally about being honest. I see people hit eight shots and tell me they shot five. I never say a word. It is a reminder to me of what is at stake.
+ - The Irish tell the story of a man who arrives at the gates of heaven and asks to be let in St. Peter says, “Of course, just show us your scars.” The man says, “I have no scars”. St. Peter says, “What a pity was there nothing worth fighting for”?
+ - I think service to others is the real key to winning our own personal freedom and the road to our own happiness, our own personal contentment and fulfillment.
+ - My recovery is the single greatest accomplishment of my life. Without that, the rest of my life would have fallen apart.
+ - Money’s only something you need in case you don’t die tomorrow.
+ - If you are on an honest journey to find yourself, you’ll find God.
+ - Future generations are not going to ask us what political party were you in. They are going to ask what did you do about it, when you knew the glaciers were melting.
+ - Find something in your life worth fighting for.
+ - Oh you only fight the fights you can win? You fight the fights that need fighting!
+ - We are not asked to do great things. We are asked to do all things with great care.
+ - I still believe in the nonviolent Jesus and the basic human goodness present in all of us.
+ - I’m one of those cliff-hanging Catholics. I don’t believe in God, but I do believe that Mary was his mother.
+ - No father could ever be prouder of his son. I hold Charlie’s accomplishments dearer than my own. He has been through so much and overcome so much more. Even if he weren’t my son he’d still be my best friend.
+ - No matter what is going on, everything is grace.
+ - I don’t like scary films. I watched Psycho for the first time recently, alone in the house at night. That was a mistake. I had to call my friend to come over.
+ - I have been accused of being a traitor, and I have been accused of not supporting the military. Nothing could be further from the truth.
+ - I think the Church is a conduit to God. The Church is not God. And I think that from the very beginning Jesus taught us that.
+ - Nothing ever gets done unless it’s done by a fanatic.
+ - Jim Dean and Elvis were the spokesmen for an entire generation. When I was in acting school in New York, years ago, there was a saying that if Marlon Brando changed the way people acted, then James Dean changed the way people lived. He was the greatest actor who ever lived. He was simply a genius.
+ - While acting is what I do for a living, activism is what I do to stay alive.
+ - Those years on the golf course as a caddie, boy, those people were something. They were vulgar, some were alcoholics, racist, they were very difficult people to deal with. A lot of them didn’t have a sense of humor.
+ - I love The West Wing for many reasons. The show has been a fantasy. But we have offered a parallel universe to reality.
+ - Anybody who plays golf will tell you that you play against yourself.
+ - I am a very conscientious golfer. I count every stroke. I learned to play that way. That is the only way I can play. It taught me to be honest. There is no greater virtue than honesty.
+ - I love my country enough to suffer its wrath.
+ - People, although having their own cross to carry, can minister to others through their own pain.
+ - We have to fight for something. It has to cost us. Our lives, our faith, have to cost us something; otherwise we’re left to question its value.
+ - I act because I can’t seem to live with myself if I do not. I don’t know any other way to be. It isn’t something you can explain; it is just something that you do; it is something that you are.
+ - It doesn’t really matter how much of the rules or the dogma we accepted and lived by if we’re not really living by the fundamental creed of the Catholic Church, which is service to others and finding God in ourselves and then seeing God in everyone – including our enemies.
+ - The key word about The West Wing is show. It is not a reality show. It has nothing to do with reality.
+ - I sincerely believe that everything – everything – is grace, and you have to stick around long enough to see it through. I’m a very optimistic person.
+ - I don’t think that people in America are really given enough information about the Third World.
+ - This Administration has led us into an area without vision. Bush has no clear understanding of what is being asked of the citizens, and the military is under his direction.
+ - My first civil disobedience arrest for social justice was in 1986 for protesting the SDI.
+ - And there are so many people in the third world suffering so horribly right now, and we are so focused on ourselves and our culture that a lot of things are showing up in our culture that are making it impossible for us to focus on others. We’re so self-focused.
+ - Well, I think that Catholicism’s basic foundation of faith is personal conscience. I think it’s between you and God, not you and the Church.
+ - I honestly do not know if civil disobedience has any effect on the government. I can promise you it has a great effect on the person who chooses to do it.
+ - I just think that the only way we come to ourselves is through each other.
+ - I am still a journeyman actor and a peace and justice activist. I’m a pilgrim trying to win my freedom and serve as best I can in the time I have, with this gift I’ve been given.
+ - George W Bush is like a bad comic working the crowd, a moron, if youll pardon the expression.
+ - On the show, we are not trying to get people to eat their vegetables; we are not trying to get people to become Democrats. We are basically trying to encourage people to get involved with public life so that politics isn’t left to the wealthy and privileged.
+ - I am not the President. Instead, I hold an even higher office, that of citizen of the United States.
+ - The first world is going to have to account for this sort of horrible poverty in our midst. We have to, first of all, become aware of it. We have to take responsibility for it. And then we have to do something about it for our own freedom, for our own salvation, for our own humanity.
+ - We are the generation that brought the bomb in. We have got to be the generation that should take it out.
+ - There is no greater virtue than honesty.
+
+46 quotes

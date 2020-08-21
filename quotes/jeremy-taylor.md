@@ -1,0 +1,89 @@
+ - Revenge is like a rolling stone, which, when a man hath forced up a hill, will return upon him with a greater violence, and break those bones whose sinews gave it motion.
+ - Children, honor your parents in your hearts; bear them not only awe and respect, but kindness and affection: love their persons, fear to do anything that may justly provoke them; highly esteem them as the instruments under God of your being: for Ye shall fear every man his mother and his father.
+ - God hath given to man a short time here upon earth, and yet upon this short time eternity depends.
+ - It is impossible to make people understand their ignorance, for it requires knowledge to perceive it; and, therefore, he that can perceive it hath it not.
+ - Meditation is the tongue of the soul and the language of our spirit.
+ - The private and personal blessings we enjoy- the blessings of immunity, safeguard, liberty and integrity- deserve the thanksgiving of a whole life.
+ - Lust is a captivity of the reason and an enraging of the passions. It hinders business and distracts counsel. It sins against the body and weakens the soul.
+ - Prayer is the peace of our spirit, the stillness of our thoughts, the evenness of recollection, the seat of meditation, the rest of our cares and the calm of our tempest; prayer is the issue of a quiet mind, of untroubled thoughts, it is the daughter of charity, and the sister of meekness.
+ - All dreams reflect inborn creativity and ability to face and solve life’s problems.
+ - My life is blessed; I have held my children’s children.
+ - Faith is the root of all blessings. Believe, and you shall be saved; believe, and you must needs be satisfied; believe, and you cannot but be comforted and happy.
+ - Know that you are your greatest enemy, but also your greatest friend.
+ - The Holy Ghost is certainly the best preacher in the world, and the words of Scripture the best sermons.
+ - To be proud of learning is the greatest ignorance.
+ - Secrecy is the chastity of friendship.
+ - By friendship you mean the greatest love, the greatest usefulness, the most open communication, the noblest sufferings, the severest truth, the heartiest counsel, and the greatest union of minds which brave men and women are capable.
+ - Many are idly busy; Domitian was busy, but then it was in catching flies.
+ - I have seen the sun with a little ray of distant light challenge all the powers of darkness, and without violence and noise, climbing up the hill, hath made night so retire that its memory was lost in the joys and sprightliness of the morning.
+ - Friendship is the strongest bond in the world.
+ - A religion without mystery must be a religion without God.
+ - God is pleased with no music below so much as with the thanksgiving songs of relieved widows and supported orphans; of rejoicing, comforted, and thankful persons.
+ - Temperance is reason’s girdle and passion’s bridle, the strength of the soul and the foundation of virtue.
+ - Some friendships are made by nature, some by contract, some by interest, and some by souls.
+ - From David learn to give thanks for everything. Every furrow in the book of Psalms is sown with the seeds of thanksgiving.
+ - The best theology is rather a divine life than a divine knowledge.
+ - If thou has a bundle of thorns in thy lot, there is no need to sit down on it.
+ - God is everywhere present by His power. He rolls the orbs of heaven with His hand; He fixes the earth with His foot; He guides all creatures with His eye, and refreshes them with His influence; He makes the powers of hell to shake with His terrors, and binds the devils with His word.
+ - No man can hinder our private addresses to God; every man can build a chapel in his breast, himself the priest, his heart the sacrifice, and the earth he treads on, the altar.
+ - So are the early unions of an unfixed Marriage: watchful and observant, jealous and busy, inquisitive and careful, and apt to take alarm at every unkind word. For infirmities do not manifest themselves in the first Scenes, but in the succession of a long Society.
+ - A pure mind in a chaste body is the mother of wisdom and deliberation; sober counsels and ingenuous actions; open deportment and sweet carriage; sincere principles and unprejudiced understanding; love of God and self-denial; peace and confidence; hol.
+ - Impatience turns an ague into a fever, a fever to the plague, fear into despair, anger into rage, loss into madness, and sorrow to amazement.
+ - Love is friendship set on fire. Hate is friendship burned.
+ - Humility is like a tree, whose root when it sets deepest in the earth rises higher, and spreads fairer and stands surer, and lasts longer, and every step of its descent is like a rib of iron.
+ - Teach us to pray often, that we may pray oftener.
+ - It is impossible for that man to despair who remembers that his Helper is omnipotent.
+ - Laughing, if loud, ends with a deep sigh; and all pleasures have a sting in the tail, though they carry beauty in the face.
+ - The bodies of the damned shall be crowded together in hell, like grapes in a wine-press, which press one another till they burst; every distinct sense and organ shall be assailed with its own appropriate and most exquisite sufferings.
+ - To secure a contented spirit, measure your desires by your fortune, and not your fortune by your desires.
+ - A wise man shall overrule his stars, and have a greater influence upon his own content than all the constellations and planets of the firmament.
+ - Nothing is greater or more fearful sacrilege than to prostitute the great name of God to the petulancy of an idle tongue.
+ - He that is proud of riches is a fool. For if he is exalted above his neighbors because he has more gold, how much inferior is he to a gold mine.
+ - Faith gives new light to the soul, but it does not put our eyes out; and what God hathgivenusinournature could never be intended as a snare to Religion, or engage us to believe a lie.
+ - Covetousness teaches people to be cruel and crafty, industrious and evil, full of care and malice; and after all this, it is for no good to itself, for it dares not spend those heaps of treasure which it has snatched.
+ - A great fear, when it is ill-managed, is the parent of superstition; but a discreet and well-guided fear produces religion.
+ - Too quick a sense of constant infelicity.
+ - The Lord’s Prayer is short and mysterious, and, like the treasures of the Spirit, full of wisdom and latent senses: it is not improper to draw forth those excellencies which are intended and signified by every petition, that by so excellent an authority we may know what it is lawful to beg of God.
+ - Mistake not. Those pleasures are not pleasures that trouble the quiet and tranquillity of thy life.
+ - The body of our prayer is the sum of our duty; and as we must ask of God whatsoever we need, so we must watch and labor for all that we ask.
+ - Marriage is the mother of the world. It preserves kingdoms, and fills cities and churches, and heaven itself.
+ - In self-examination, take no account of yourself by your thoughts and resolutions in the days of religion and solemnity; examine how it is with you in the days of ordinary conversation and in the circumstances of secular employment.
+ - A celibate, like the fly in the heart of an apple, dwells in a perpetual sweetness, but sits alone, and is confined and dies in singularity.
+ - When you lie down with a short prayer, commit yourself into the hands of your Creator; and when you have done so, trust Him with yourself, as you must do when you are dying.
+ - Friendship is the allay of our sorrows, the ease of our passions, the discharge of our oppressions, the sanctuary to our calamities, the counselor of our doubts, the clarity of our minds...
+ - When thou receivest praise, take it indifferently, and return it to God, the giver of the gift, or blesser of the action.
+ - In matters of conscience that is the best sense which every wise man takes in before he hath sullied his understanding with the designs of sophisters and interested persons.
+ - All virtuous women, like tortoises, carry their house on their heads, and their chappel in their heart, and their danger in their eye, and their souls in their hands, and God in all their actions.
+ - Man and wife are equally concerned, to avoid all offence of each other, in the beginning of their conversation. Every little thing can blast an infant blossom.
+ - Ye shall fear every man his mother and his father.
+ - Drunkenness is an immoderate affection and use of drink. That I call immoderation that is besides or beyond that order of good things for which God hath given us the use of drink.
+ - He that loves not his wife and children feeds a lioness at home, and broods a nest of sorrows.
+ - Every act of virtue is an ingredient unto reward.
+ - God fails not to sow blessings in the furrows.
+ - The private devotions and secret offices of religion are like the refreshing of a garden with the distilling and petty drops of a waterpot; but addressed from the temple, they are like ram from heaven.
+ - The devil does not tempt people whom he finds suitably employed.
+ - Mercy is like the rainbow, which God hath set in the clouds; it never shines after it is night. If we refuse mercy here, we shall have justice in eternity.
+ - Whatsoever we beg of God, let us also work for it.
+ - So long as idleness is quite shut out from our lives, all the sins of wantonness, softness, and effeminacy are prevented; and there is but little room for temptation.
+ - He that does a base thing in zeal for his friend burns the golden thread that ties their hearts together.
+ - An unjust acquisition is like a barbed arrow, which must be drawn backward with horrible anguish, or else will be your destruction.
+ - It is a little learning, and but a little, which makes men conclude hastily. Experience and humility teach modesty and fear.
+ - Habits are the daughters of action, but then they nurse their mother, and produce daughters after her image, but far more beautiful and prosperous.
+ - Adultery itself in its principle is many times nothing but a curious inquisition after, and envy of another man’s enclosed pleasures: and there have been many who refused fairer objects that they might ravish an enclosed woman from her retirement and single possessor.
+ - Certain it is, that as nothing can better do it; so there is nothing greater, for which God made our tongues, next to reciting His praises, than to minister comfort to a weary soul.
+ - No man is poor who does not think himself so. But if in a full fortune with impatience he desires more, he proclaims his wants and his beggarly condition.
+ - Men are apt to prefer a prosperous error to an afflicted truth.
+ - He that is choice of his time will be choice of his company, and choice of his actions.
+ - This temporal fire is but a painted fire in respect of that penetrating and real fire in hell.
+ - To be perpetually longing and impatiently desirous of anything, so that a man cannot abstain from it, is to lose a man’s liberty, and to become a servant of meat and drink, or smoke.
+ - The thing framed says that nothing framed it; the tongue never made itself to speak, and yet talks against him that did; saying that which is made, is, and that which made it, is not. But this folly is infinite as hell, as much without light or bound as the chaos or the primitive nothing.
+ - Faith converses with the angels, and antedates the hymns of glory.
+ - Curiosity is the direct incontinence of the spirit.
+ - To preserve a man alive in the midst of so many chances and hostilities, is as great a miracle as to create him.
+ - The greatest evils, are from within us; and from ourselves also we must look for the greatest good.
+ - If anger proceeds from a great cause, it turns to fury; if from a small cause, it is peevishness; and so is always either terrible or ridiculous.
+ - Conscience in most men, is but the anticipation of the opinions of others.
+ - Dive on them and squash them if you must.
+ - Whoever is a hypocrite in his religion mocks God, presenting to Him the outside and reserving the inward for his enemy.
+
+87 quotes

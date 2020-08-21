@@ -1,0 +1,38 @@
+ - Just believe in your dreams.
+ - I think life throws enough curveballs that you shouldn’t make such a big deal out of everything.
+ - Yes. I’ve been asked to pose nude, but I never have, and I probably never will.
+ - When my husband kisses my ears. My ears turn me on like nothing else, they must be my most erogenous zone. Just having my ears kneaded is like a full body massage.
+ - I think to make any relationship work it just takes a tremendous amount of effort and accepting of one another.
+ - Sometimes I’m so tired, I look down at what I’m wearing, and if it’s comfortable enough to sleep in, I don’t even make it into my pajamas. I’m looking down, and I’m like, ‘T-shirt and stretchy pants? Yup, that’s fine. It’s pajama-y, good night.’
+ - I get really bad plane bloat. Your body and your face and everything swells. I could never get rid of it. It stays with you.
+ - I’m a diligent person, and that came directly from having hardworking parents.
+ - It’s pronounced ‘Romaine,’ like the lettuce.
+ - Breastfeeding is the very best diet I’ve been on.
+ - I know you’re not supposed to have TV in your room, but I like watching a little. I need something mindless.
+ - Sexy at the millennium means having a solid sense of self but never taking yourself too seriously.
+ - I’m not for gratuitous nudity, but if there’s humor, I don’t have a problem.
+ - I really like listening to music when I’m hiking or exercising. I don’t like hearing myself breathe.
+ - Eating apples is good on so many levels. There’s fiber in the skin that’s really good for you. It helps with digestion and helps you absorb all the nutrients of everything you’ve eaten that day. Apples are a really good thing.
+ - I think we felt the pressure more at first than this time around. But still you don’t want to let anyone down. I never even met Patrick until we had a Christmas party at Ian McKellen’s house on the first movie and then I didn’t see him again until the premiere.
+ - I’d never planned on being a model.
+ - That’s true, you don’t want to let anybody down and here are millions of people who’ve been waiting for their favorite characters to be brought to life and you don’t want to disappoint.
+ - Making people laugh is the greatest experience.
+ - Being a mom makes me feel whole and like I understand the meaning of life.
+ - I was never a girl who dreamed about what her wedding day would be like, but I’ve always dreamed about decorating my baby’s nursery.
+ - Luckily, I’m doing other things besides just modeling, because frankly, I’m a little bored with it.
+ - I think when you start messing with your own hormones, it’s crazy-making.
+ - T-shirt and stretchy pants? Yup, that’s fine. It’s pajama-y, good night.
+ - I’m a little top heavy, so I have to pay attention to that area. I think it was from my years of swimming in school when I was a kid and it just overdeveloped my upper body. In fact, when I started modeling, my back was so developed, I could not fit into any dresses.
+ - I try to break a sweat every day. It doesn’t always happen that way, but that’s the goal.
+ - I’ve been messing around in the studio the last couple of years. But I don’t want to worry about being taken seriously as a singer. It just really feels good to do it.
+ - Are you kidding? I’m a terrible cook, but John is a really great one. Literally, I never cook. The whole time we were dating, I prepared two officially romantic meals. Both of them were such disasters that he begs me never to go into the kitchen again.
+ - I’ve never been one to make plans, because I never wanted to disappoint myself.
+ - Hour-long TV is no joke. It tests you as a human being. It makes you a stronger person, but it’s really crazy.
+ - Living in Paris was a crash course in chic.
+ - I’m a jeans size up from where I usually am, but there’s nothing about it that freaks me out. I feel as sexy as I have ever felt. I’ve always said that sexy is having a really strong sense of yourself and never taking yourself too seriously.
+ - I love uplifting television.
+ - I guess I can be a little neurotic sometimes, but can’t everybody?
+ - Movie making is really, it’s a director’s medium, it’s not even so much an actor’s medium.
+ - I’d have to say that, in general, models take themselves too seriously. Basically, they are genetic freaks who spend a couple of hours in hair and makeup.
+
+36 quotes

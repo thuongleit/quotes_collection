@@ -1,0 +1,35 @@
+ - If you believe in Odin and Thor, people laugh themselves to death. While it’s okay to believe in a man who turned water into wine, and walked on water.
+ - I’m a beer man. I tried to drink whiskey and Scotch but I don’t get it. It smells like a girl who didn’t shower and just splashed a lot of perfume on.
+ - I became a dancer late and an actor late.
+ - If you’re playing the bad guy, you have to find what you like about them.
+ - I’ve always been extremely physical.
+ - I was a gymnast for many years before I was a dancer, so it comes in pretty handy when I do stunts.
+ - I choose work with the people I like to work with.
+ - I take my work enormously seriously. When I do something it has to feel right. Everything has to be right. I’m not ambitious about my career, but I am ambitious with each job. I can be fairly annoying to work with. No compromises. Let’s put it this way: compromises are from hell.
+ - I think the meaning of life is life itself. We don’t necessarily want to know what it is, but we want to live it. Hopefully, we’ll go out fast without knowing it.
+ - One thing I can say about the French language is that no one in the world loves their language as much as they do.
+ - I have a three-piece suit. I’m an art collector. I have a funny accent. So I’m probably the killer.
+ - I ask a million questions, and I insist on having answers. I think that is what we have to do. I have to know what the director wants. Some are very much in their head, and I need to force it out of them. I just can’t play around for eight hours and see if something happens.
+ - Once you do one bad guy, usually all you get offered is bad guys.
+ - If you’re not bruised up, then you’re not doing an action film in a real way.
+ - I’m a big fan of film for one reason: because it is visual.
+ - II know a little about Greek mythology. It’s not that far away from the Nordic mythology.
+ - The physicality of any character is always split up into fast, slow, high energy, low energy, what kind of personality he has. So that’s where the physicality comes in. And flying through the air is just something you have to do if they ask you.
+ - Sometimes you have a period piece where you have to research around it but, if the writers have done their homework well enough, the information is all in the script.
+ - I tend not to have any references to anything. I just jump into the script in front of me. If you reference too much, you have no idea if the performances are right.
+ - I have an enormous metabolism, so I’m lucky.
+ - Sometimes we misunderstand what films can do. We just throw a whole book in there, with people just talking, talking, and talking. The picture can tell, the frame can tell.
+ - Actors are very good at not revealing anything, so they’re safe.
+ - Danish film is spreading in a fantastic way.
+ - I’m terrified about psychic people who have their little shops.
+ - Machiavelli had some cold tricks for people who wanted to be demagogues and wanted to take over the world.
+ - I like to stay home with my family.
+ - Everybody wants a big crowd. You get amazed sometimes with certain things that millions of people are watching and you go, “Serious?! Really?!” And then, there are things that you really, really enjoy and not a lot of people are watching. It’s very, very hard to predict how it works.
+ - I’m not looking for a challenge, necessarily. I’m looking to make a really great film.
+ - When you do a TV show, there’s always the fear that it will become tired and you’ll know exactly what’s going to happen.
+ - I’m in a very lucky position. You have to remember that 95 percent of all actors aren’t working. I’m actually able to go to France and work. It’s a situation I couldn’t have dreamt up.
+ - I’m one of the actors who really enjoys working with kids and animals, which is always a no go. There’s something beautiful about it because you tend to forget yourself, as an actor.
+ - If you spend a week at a casino you will very easily see that people have a certain way of behaving in a casino.
+ - I’m not the kind of actor who runs around and insists on being called Stravinsky by everybody, and my family has to call me Igor. I’m not that kind of actor. I think that’s pretentious.
+
+33 quotes

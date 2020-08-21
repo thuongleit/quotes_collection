@@ -1,0 +1,48 @@
+ - All men dream: but not equally. Those who dream by night in the dusty recesses of their minds wake up in the day to find it was vanity, but the dreamers of the day are dangerous men, for they may act their dreams with open eyes, to make it possible.
+ - Dream your dreams with open eyes and make them come true.
+ - Your success will be proportioned to the amount of mental effort you devote to it.
+ - The printing press is the greatest weapon in the armoury of the modern commander.
+ - It is difficult to keep quiet when everything is being done wrong, but the less you lose your temper the greater your advantage. Also then you will not go mad yourself.
+ - Mankind has had ten-thousand years of experience at fighting and if we must fight, we have no excuse for not fighting well.
+ - I wrote my will across the sky, in stars.
+ - A skittish motorbike with a touch of blood in it is better than all the riding animals on earth, because of its logical extension of our faculties, and the hint, the provocation, to excess conferred by its honeyed untiring smoothness.
+ - Cling tight to your sense of humour. You will need it every day.
+ - He was old and wise, which meant tired and disappointed...
+ - To make war upon rebellion is messy and slow, like eating soup with a knife.
+ - As long as the arabs fight tribe against tribe, so long will they be a little people, a silly people, greedy, barbarous and cruel.
+ - I had dropped one form and not taken on the other, and was become like Mohammed’s coffin in our legend, with a resultant feeling of intense loneliness in life, and a contempt, not for other men, but for all they do.
+ - If you wear Arab things, wear the best. Clothes are significant among the tribes, and you must wear the appropriate, and appear at ease in them. Dress like a Sherif, if they agree to it.
+ - Many men would take the death-sentence without a whimper, to escape the life-sentence which fate carries in her other hand.
+ - This creed of the desert seemed inexpressible in words, and indeed in thought.
+ - Club Secretary: I say, Lawrence. You are a clown! Lawrence: We can’t all be lion tamers.
+ - Do not try and do too much with your own hands. Better the Arabs do it tolerably than you do it perfectly. It is their war, and you are to help them, not win it for them.
+ - All the revision in the world will not save a bad first draft: for the architecture of the thing comes, or fails to come, in the first conception, and revision only affects the detail and ornament, alas!
+ - Nine-tenths of tactics are certain, and taught in books: but the irrational tenth is like the kingfisher flashing across the pool, and that is the test of generals.
+ - Half a calamity is better than a whole one.
+ - To me an unnecessary action, or shot, or casualty, was not only waste but sin.
+ - To have news value is to have a tin can tied to one’s tail.
+ - The desert is an ocean in which no oar is dipped.
+ - The desert was held in a crazed communism by which Nature and the elements were for the free use of every known friendly person for his own purposes and no more.
+ - He feared his maturity as it grew upon him with its ripe thought, its skill, its finished art; yet which lacked the poetry of boyhood to make living a full end of life.
+ - Men have looked upon the desert as barren land, the free holding of whoever chose; but in fact each hill and valley in it had a man who was its acknowledged owner and would quickly assert the right of his family or clan to it, against aggression.
+ - Immorality, I know. Immortality, I cannot judge.
+ - There is an ideal standard somewhere and only that matters and I cannot find it. Hence the aimlessness.
+ - Some of the evil of my tale may have been inherent in our circumstances. For years we lived anyhow with one another in the naked desert, under the indifferent heaven.
+ - The Beduin of the desert, born and grown up in it, had embraced with all his sour this nakedness too harsh for volunteers, for the reason, felt but inarticulate, that there he found himself indubitably free.
+ - The people of England have been led in Mesopotamia into a trap from which it will be hard to escape with dignity and honor.
+ - An opinion can be argued with; a conviction is best shot. The logical end of a war of creeds is the final destruction of one, and Salammbo is the classical text-book instance.
+ - Isn’t it true that the fault of birth rests somewhat on the child? I believe it’s we who led our parents on to bear us, and it’s our unborn children who make our flesh itch.
+ - The Beduin could not look for God within him: he was too sure that he was within God.
+ - Misery, anger, indignation, discomfort-those conditions produce literature. Contentment-never. So there you are.
+ - I prefer lies to truth, especially when the lies are about me.
+ - I haven’t got a heart: only the former site of one, with a monument there to say that it has been removed and the area it occupied turned into a public garden, in pursuance of the slum-clearance scheme.
+ - The beginning and ending of the secret of handling Arabs is unremitting study of them.
+ - We lived always in the stretch or sag of nerves, either on the crest or in the trough of waves of feeling.
+ - A thick headcloth forms a good protection against the sun, and if you wear a hat your best Arab friends will be ashamed of you in public.
+ - The literature of disease is more interesting to me than all the healthy books.
+ - If I could talk it like Dahoum, you would never be tired of listening to me.
+ - It seemed that rebellion must have an unassailable base, something guarded not merely from attack, but from the fear of it: such a base as we had in the Red Sea Parts, the desert, or in the minds of the men we converted to our creed.
+ - The greatest commander is he whose intuitions most nearly happen.
+ - It seems to me that the conquest of the air is the only major task for our generation.
+
+46 quotes

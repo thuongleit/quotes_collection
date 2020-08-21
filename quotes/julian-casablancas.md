@@ -1,0 +1,71 @@
+ - Forgive them even if they are not sorry.
+ - Religion is never the problem; it’s the people who use it to gain power.
+ - Just slow it down enough to enjoy the ride.
+ - The best solutions are often simple, yet unexpected.
+ - Birth is a beautiful thing.
+ - Make sure your heart is singing right until the day it stops.
+ - When you first start writing a song, it’s fun, then when you start recording it, it’s fun, but by the time you’ve finished recording it, you’re sick of it.
+ - I over-think stuff a lot.
+ - I want to be one of those people, be they writers, poets, musicians, who leaves clues for the next generation. The really good people leave clues that help feed the human race. That’s my aspiration.
+ - Desire is individual. Happiness is common.
+ - It’s that feeling when you hear your favourite song. That feeling, whether you’re in a car, at a party or alone at home or in bed and you hear this song and it just hits you so strong – that’s what we aim for.
+ - I guess the best thing about marriage is the fact you’ve got the coolest partner you can imagine by your side for all the things you’re going to face in your life. So far, Juliet’s been there for me. She’s been good for my voice, good for my everything.
+ - Making an album can be like being pregnant: you want to pop that thing out and show everybody!
+ - Vanity can easily overtake wisdom. It usually overtakes common sense.
+ - I’m happy to feed the illusion that I’m a lazy recluse.
+ - If you’re in a bar and a certain song comes on and the vibe is just different, it evokes the kinds of things that you want to feel, and if music can do that it’s a very special thing.
+ - I’m really grateful. But I never had the rock star dream. I thought it would be cool to be a modern-day composer.
+ - I am a fan of ‘SNL’ and a big Jimmy Fallon fan, too.
+ - I enjoy songwriting. It’s slow-motion improvising.
+ - Working on music is the funnest thing for me, and I love it, and I could do it all day, all night.
+ - That it’s a lot harder to make a keyboard sound not-cheesy than a guitar.
+ - With a hundred ways to do a dozen things, why not try it all?
+ - The Strokes can play anything. They could play ‘Thriller,’ and it would just sound like ‘Thriller’ as played by the Strokes.
+ - If it doesn’t start with you, it dies with you.
+ - The best artists are the ones that work the hardest, and if you work hard enough, you’ll eventually experience the happy accidents that are art.
+ - If the choice is between doing something supercool and having no one hear it and doing something equally cool and tricking people into putting it on the radio, I don’t think the second option is some big sellout.
+ - I think a lot of people study the rules too much and then don’t know how to be creative.
+ - No one leaves an old friend unless they are ashamed.
+ - Who you are vs. who you wish you were: Who wins?
+ - I mean, I guess you could say I’m a bit of a perfectionist.
+ - Kids are always honest, ’cause they don’t think they’re ever going to die.
+ - I don’t shake at the site of alcohol anymore. I don’t feel the need for it. If anything I’ll get stoned. I always told myself if it got to the point that it was affecting my songwriting and music that I’d stop. And it did get to the point.
+ - Greed is the inventor of injustice as well as the current enforcer.
+ - You know some of the people in The Strokes, yeah, their parents had success – but we didn’t live like yuppies.
+ - I’m just going to try and be a good dad and not spoil the kid: give him love and encouragement but also discipline. Me and my woman, we don’t want him to feel too entitled.
+ - My parents separated when I was eight. I grew up with my mom alone.
+ - We’re so quick to point out our own flaws in others.
+ - Don’t you dare get to the top and not know what to do.
+ - Art is the image of life, it’s purpose simply to enhance it.
+ - A band is a great way to destroy a friendship, and a tour’s a great way to destroy a band.
+ - I don’t really care about clothes, but it’s about wearing something that gives you social confidence.
+ - Sometimes I’ve sat outside, not to tan, but as a result of that I ended up tanning slightly.
+ - In most cultures, you can have a kid at 18 and it’s not a big thing. It’s not like, ‘Oh, you’ve got to get a different haircut and move to the suburbs and act, like, 35.’
+ - I very often have night terrors. Just think of the worst possible situation, and it’s a regular thing for me. I’ve died in my sleep twenty-three different ways.
+ - I see myself out of my own eyes, which means I have no idea what’s going on the other way around. I just think I try to be a good person, and I fail.
+ - A band is a good way to break up a friendship.
+ - Doing heroin is like walking around with a terrorist as your friend. It’s like taking a terrorist around to parties You never know when it’s going to blow up on you.
+ - Can our mind evolve to be something other than an extension of our animal needs?
+ - I kinda like messing with perception a little bit. Kind of what drugs do sometimes, and drinking. I mean, you know, you mess with your mind a little bit to see life from different angles. Within reason, if you can handle it.
+ - It’s not like I wake up and songs flow out of me.
+ - I’d like to just get to a point where maybe we can say something that will be matterful. That’s definitely not a word, by the way.
+ - A tour is the most intense, stimulating way to hear music; it’s the best form to receive it. There’s genuine excitement from people. I feel like we’ve stepped up a level.
+ - I have to say, I’m good with gifts. If I find something perfect for a certain person, I’ll just get it and put it away in a kind of nook under my bed – a little gift hutch, if you prefer.
+ - Boarding school didn’t feel like my world, I felt like an alien; people there had a lot of money.
+ - The problem with touring isn’t the traveling and the shows, it’s the vegetal state you get into.
+ - It was 100,000 years before we figured out what to do with fire. Imagine cavemen, sitting in front of a fire, eating raw meat for 100 thousand years.
+ - Whenever I go to shows, I end up looking at what shoes the guy onstage is wearing and the jacket he’s got on. And when you know everything’s gonna be under scrutiny, it makes you feel more comfortable if you have cool stuff.
+ - The artistic element of Manhattan has kind of moved to Brooklyn. Has it changed it? Yeah. Has it ruined it? I would say no. It is what it is. I say better that than an urban war zone.
+ - The British press can be so annoying. They jerk you off with one hand and smack you with the other.
+ - The thing for me is I never had this burning desire to do a solo record my whole life.
+ - Compared to people in Africa, I think we’ve all had privileged upbringings.
+ - No matter who I’m talking to, I always talk like I’m doing an interview.
+ - I always want to make Strokes records and play Strokes shows.
+ - But it can be hard to experiment when you’re in a band.
+ - For a long time I didn’t want to do a solo thing, but there comes a point where everyone else is going outside of The Strokes and The Strokes filtering process.
+ - It find it funny how people from Boston and New York hate each other because of pro teams.
+ - I’m not a pop song lyric writer. I can’t just focus on one simple meaning or even a double entendre.
+ - People often put me in a V-neck tennis club sweater, driving a Bentley, but my life wasn’t like that.
+ - I think all of Manhattan has pretty much become a bar-slash-nightclub-slash-restaurant. There were always pockets of that. But now every corner of Manhattan is that.
+
+69 quotes

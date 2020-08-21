@@ -1,0 +1,84 @@
+ - A failure is not always a mistake, it may simply be the best one can do under the circumstances. The real mistake is to stop trying. 
+ - The real problem is not whether machines think but whether men do.
+ - Education is what survives when what has been learned has been forgotten.
+ - Give me a child and I’ll shape him into anything.
+ - Behavior is shaped and maintained by its consequences.
+ - We shouldn’t teach great books; we should teach a love of reading. Knowing the contents of a few works of literature is a trivial achievement. Being inclined to go on reading is a great achievement.
+ - A person who has been punished is not thereby simply less inclined to behave in a given way; at best, he learns how to avoid punishment.
+ - If freedom is a requisite for human happiness, then all that’s necessary is to provide the illusion of freedom.
+ - Do not intervene between a person and the consequences of their own behavior.
+ - What is love except another name for the use of positive reinforcement? Or vice versa.
+ - We are only just beginning to understand the power of love because we are just beginning to understand the weakness of force and aggression.
+ - The consequences of an act affect the probability of its occurring again.
+ - We shouldn’t teach great books; we should teach a love of reading.
+ - The way positive reinforcement is carried out is more important than the amount.
+ - A first principle not formally recognized by scientific methodologists: when you run into something interesting, drop everything else and study it.
+ - If you’re old, don’t try to change yourself, change your environment.
+ - That’s all teaching is; arranging contingencies which bring changes in behavior.
+ - The alphabet was a great invention, which enabled men to store and to learn with little effort what others had learned the hard way-that is, to learn from books rather than from direct, possibly painful, contact with the real world.
+ - I did not direct my life. I didn’t design it. I never made decisions. Things always came up and made them for me. That’s what life is.
+ - An important fact about verbal behavior is that speaker and listener may reside within the same skin.
+ - I will be dead in a few months. But it hasn’t given me the slightest anxiety or worry. I always knew I was going to die.
+ - The only geniuses produced by the chaos of society are those who do something about it. Chaos breeds geniuses. It offers a man something to be a genius about.
+ - I don’t believe in God, so I’m not afraid of dying.
+ - A self is a repertoire of behavior appropriate to a given set of contingencies.
+ - Science is a willingness to accept facts even when they are opposed to wishes.
+ - Must we wait for selection to solve the problems of overpopulation, exhaustion of resources, pollution of the environment and a nuclear holocaust, or can we take explicit steps to make our future more secure? In the latter case, must we not transcend selection?
+ - Twenty-five hundred years ago it might have been said that man understood himself as well as any other part of the world. Today he is the thing he understands least.
+ - Some of us learn control, more or less by accident. The rest of us go all our lives not even understanding how it is possible, and blaming our failure on being born the wrong way.
+ - A fourth-grade reader may be a sixth-grade mathematician. The grade is an administrative device which does violence to the nature of the developmental process.
+ - The major difference between rats and people is that rats learn from experience.
+ - The juvenile delinquent does not feel his disturbed personality. The intelligent man does not feel his intelligence or the introvert his introversion.
+ - We have seen that in certain respects operant reinforcement resembles the natural selection of evolutionary theory. Just as genetic characteristics which arise as mutations are selected or discarded by their consequences, so novel forms of behavior are selected or discarded through reinforcement.
+ - Many instructional arrangements seem “contrived,” but there is nothing wrong with that. It is the teacher’s function to contrive conditions under which students learn. It has always been the task of formal education to set up behavior which would prove useful or enjoyable later in a student’s life.
+ - I’ve often said that my rats have taught me much more than I’ve taught them.
+ - Unable to understand how or why the person we see behaves as he does, we attribute his behavior to a person we cannot see, whose behavior we cannot explain either but about whom we are not inclined to ask questions.
+ - Society already possesses the psychological techniques needed to obtain universal observance of a code – a code which would guarantee the success of a community or state. The difficulty is that these techniques are in the hands of the wrong people-or, rather, there aren’t any right people.
+ - Let men be happy, informed, skillful, well behaved, and productive.
+ - No one asks how to motivate a baby. A baby naturally explores everything it can get at, unless restraining forces have already been at work. And this tendency doesn’t die out, it’s wiped out.
+ - The simplest and most satisfactory view is that thought is simply behavior – verbal or nonverbal, covert or overt. It is not some mysterious process responsible for behavior but the very behavior itself in all the complexity of its controlling relations.
+ - Does a poet create, originate, initiate the thing called a poem, or is his behavior merely the product of his genetic and environmental histories?
+ - We admire people to the extent that we cannot explain what they do, and the word ‘admire’ then means ‘marvel at.’
+ - The human species took a crucial step forward when its vocal musculature came under operant control in the production of speech sounds. Indeed, it is possible that all the distinctive achievements of the species can be traced to that one genetic change.
+ - We do not choose survival as a value, it chooses us.
+ - Old age is rather like another country. You will enjoy it more if you have prepared yourself before you go.
+ - The world’s a poor standard. any society which is free of hunger and violence looks bright against that background.
+ - A culture must be reasonably stable, but it must also change, and it will presumably be strongest if it can avoid excessive respect for tradition and fear of novelty on the one hand and excessively rapid change on the other.
+ - A disappointment is not generally an oversight. It might just be the best one can do the situation being what it is. The genuine error is to quit attempting.
+ - At this very moment enormous numbers of intelligent men and women of goodwill are trying to build a better world. But problems are born faster than they can be solved.
+ - It is a surprising fact that those who object most violently to the manipulation of behaviour nevertheless make the most vigorous effort to manipulate minds.
+ - The problem of far greater importance remains to be solved. Rather than build a world in which we shall all live well, we must stop building one in which it will be impossible to live at all.
+ - The speaker does not feel the grammatical rules he is said to apply in composing sentences, and men spoke grammatically for thousands of years before anyone knew there were rules.
+ - Science, not religion, has taught me my most useful values, among them intellectual honesty. It is better to go without answers than to accept those that merely resolve puzzlement.
+ - The one fact that I would cry form every housetop is this: the Good Life is waiting for us – here and now.
+ - Death does not trouble me. I have no fear of supernatural punishments, of course, nor could I enjoy an eternal life in which there would be nothing left for me to do, the task of living having been accomplished.
+ - Society attacks early, when the individual is helpless.
+ - A vast technology has been developed to prevent, reduce, or terminate exhausting labor and physical damage. It is now dedicated to the production of the most trivial conveniences and comfort.
+ - A person’s genetic endowment, a product of the evolution of the species, is said to explain part of the workings of his mind and his personal history the rest.
+ - Was putting a man on the moon actually easier than improving education in our public schools?
+ - Men build society and society builds men.
+ - A permissive government is a government that leaves control to other sources.
+ - Problem-solving typically involves the construction of discriminative stimuli.
+ - In a world of complete economic equality, you get and keep the affections you deserve. You can’t buy love with gifts or favors, you can’t hold love by raising an inadequate child, and you can’t be secure in love by serving as a good scrub woman or a good provider.
+ - The real question is not whether machines think but whether men do. The mystery which surrounds a thinking machine already surrounds a thinking man.
+ - Except when physically restrained, a person is least free or dignified when he is under threat of punishment, and unfortunately most people often are.
+ - To require a citizen to sign a loyalty oath is to destroy some of the loyalty he could otherwise claim, since any subsequent loyal behavior may then be attributed to the oath.
+ - Going out of style isn’t a natural process, but a manipulated change which destroys the beauty of last year’s dress in order to make it worthless.
+ - Indeed one of the ultimate advantages of an education is simply coming to the end of it.
+ - If the world is to save any part of its resources for the future, it must reduce not only consumption but the number of consumers.
+ - It is not a question of starting. The start has been made. It’s a question of what’s to be done from now on.
+ - The extent to which human aggression exemplifies innate tendencies is not clear.
+ - Your liberals and radicals all want to govern. They want to try it their way- to show that people will be happier if the power is wielded in a different way or for different purposes. But how do they know? Have they ever tried it? No, it’s merely their guess.
+ - It is a mistake to suppose that the whole issue is how to free man. The issue is to improve the way in which he is controlled.
+ - Overcrowding can be corrected only by inducing people not to crowd, and the environment will continue to deteriorate until polluting practices are abandoned.
+ - Many social practices essential to the welfare of the species involve the control of one person by another, and no one can suppress them who has any concern for human achievements.
+ - When we say that a man controls himself, we must specify who is controlling whom.
+ - A scientist may not be sure of the answer, but he’s often sure he can find one. And that’s a condition which is clearly not enjoyed by philosophy.
+ - A piece of music is an experience to be taken by itself.
+ - The mob rushes in where individuals fear to tread.
+ - In the world at large we seldom vote for a principle or a given state of affairs. We vote for a man who pretends to believe in that principle or promises to achieve that state. We don’t want a man, we want a condition of peace and plenty – or, it may be, war and want – but we must vote for a man.
+ - We have not yet seen what man can make of man.
+ - Those who have had anything useful to say have said it far too often, and those who have had nothing to say have been no more reticent.
+ - Somehow people get the idea I think we should be given gumdrops whenever we do anything of value.
+
+82 quotes

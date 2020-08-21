@@ -1,0 +1,61 @@
+ - After a breakup, it takes a couple weeks for the fog to settle, but it’s always a period of self-priority and growth. Life presents you with so many decisions. A lot of times, they’re right in front of your face and they’re really difficult, but we must make them.
+ - If you can’t change your surroundings, change your hair color.
+ - Tired is not a word in my vocabulary.
+ - Sometimes we love people so much that we have to be numb to it. Because if we actually felt how much we love them, it would kill us. That doesn’t make you a bad person. It just means your heart’s too big.
+ - I’m a clean freak and a germaphobe – I have hand sanitizer in my pocket.
+ - I think if there’s something one needs to change with oneself, it doesn’t have to happen in the New Year. You can do that any time you please – not that it’s not a good inspirational tactic for the people that it works for.
+ - I am an eternal optimist. Being happy is a choice. And you can make that choice every day, if you want to.
+ - My singing voice isn’t like my speaking voice.
+ - Sticking to your values, listening to your instincts, making your own choices is so important.
+ - My dreams and aspirations when I was a child for as long as I can remember was to be an entertainer.
+ - I find this life so interesting.
+ - I take work very seriously and telling the truth in my job and professionalism.
+ - I’d do almost anything for love, within safe boundaries. I’ve flown to places to surprise people, even if it was just for a day. I think it’s so important to keep the romance alive and make sure the fun and spontaneity are there.
+ - Yeah, I’m a giver. I’ve learned to be selective of the people in my world, because if I love someone, I will give them my blood, whatever they need. In doing so, one can end up with little left for themselves.
+ - I’ve always seen myself as one of those ‘show people.’ My earliest memories are wanting and needing to entertain people, like a gypsy traveler who goes from place to place, city to city, performing for audiences and reaching people.
+ - I think the key to happiness is allowing ourselves to not feel bad or guilty for feeling it, and letting it be contagious. And to not be dependent on other people to create your own happiness.
+ - Cherish the good, learn from the bad.
+ - I did learn one great lesson from a past relationship, and that was to never talk about relationships in print again because I’d rather live my private life than read about it.
+ - Well, I lost my virginity in a car. But it wasn’t a very nice one.
+ - Everybody has difficult years, but a lot of times the difficult years end up being the greatest years of your whole entire life, if you survive them.
+ - I just always have to cry out a breakup, and then I can make peace with it pretty quickly.
+ - I’m a Christian. I go to church when I can. I was raised Baptist. I went to a Lutheran school. I’m a nondenominational practicing Christian. I have a lot of faith.
+ - I’ve grown environmentally. I’m far more cautious, although I always have been; but more now. And I have grown a lot professionally by working with George Miller.
+ - It’s easy to get wrapped up in sharing everyday life with a partner. It’s fun to get lost in love and romance. It’s the best. But holding on to yourself while doing that is the most important thing.
+ - I’m trying to figure out the trick of working to live as opposed to living to work, but I don’t know if I’ve quite stumbled upon it just yet.
+ - The older I get, the more I embrace my own idiosyncrasies.
+ - Home is where my mom is.
+ - Curiosity did kill the cat, but I’m very curious.
+ - I always wanted to be a young mom, but generations of women have worked so hard so we can have a career and wait to have children. So I say carpe diem – take advantage of that.
+ - You actually can make it, no matter what. I truly am a firm believer in that. Eminem’s living proof.
+ - If I could be a third of the woman that my mom is and have a third of the strength that she has, then I will have done good by this life.
+ - I never had a chance to learn how to drive.
+ - One day I got to meet him because he was teaching Broadway dance. It was a little after Tap came out and he was very young. He wouldn’t remember me, but it was quite amazing. And now I’ve met him as an adult!
+ - I definitely want to start a family, but that will happen when it’s supposed to.
+ - I don’t even take myself seriously, so how could I possibly take Hollywood seriously?
+ - It blows my mind the way Frank Miller can write.
+ - I love producing. My dream as a producer is to be able to build a company that can be a safe haven for artists, for directors and for writers and actors to do what they do best and let them have final edit. I’d like to build something to that effect.
+ - I’m not really a big candy eater.
+ - It’s always been my mom and I against the world.
+ - I’ve been trained in dancing and I used to be quite good, though I am a bit rusty right now. But I could probably brush up in a couple of months.
+ - I can play any instrument if you give me 20 minutes.
+ - I do sarcasm really poorly.
+ - My trouble is I talk first and think later.
+ - I don’t think Hollywood per se is supposed to be taken seriously, otherwise, dear Lord, that would be frightening.
+ - Anyone that has a music career and an acting career I think is pretty fantastic.
+ - I don’t really take myself very seriously.
+ - With all the technology we’re inventing and what they’re coming up with scientifically, people are having longer lifetimes. It’s scary, but in the same sense it’s also very exciting.
+ - I’ve never formally trained in acting, so I’m very instinctual and visceral with decisions.
+ - I ask a lot because I’m very curious – especially about ex-girlfriends. I’m pretty good at getting the answers, too.
+ - I come from a military family.
+ - I love being in love.
+ - And as much as I love the gritty characters, I like to play all sorts of characters. I’m an actor. I love to create.
+ - I think they should take everyone who works for The National Enquirer and the Star, and everyone who works for Us Weekly, and put them all to work looking for terrorists. I think they would find the terrorists. All of them. It would be genius!
+ - I consider myself a character actor.
+ - I am honored to be a part of that film. It has a really important message, embracing one’s individuality. It was the most universal film I’ve ever read.
+ - I’d love to be a man for a day, just to see what it’s like.
+ - I’m a really rotten liar. Generally, if I’ve tried to pull off a lie, it hasn’t worked out to my advantage.
+ - I’ve been singing my whole life, since I was a kid; but never formally as a career. I did it in plays when I was younger, and I sang all styles of music: everything from Italian opera to blues.
+ - To give Tinker Bell a voice for the first time in history is such an honor.
+
+59 quotes

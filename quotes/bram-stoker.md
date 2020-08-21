@@ -1,0 +1,92 @@
+ - We learn from failure, not from success!
+ - I will not let you go into the unknown alone.
+ - There are darknesses in life and there are lights, and you are one of the lights, the light of all lights.
+ - How blessed are some people, whose lives have no fears, no dreads; to whom sleep is a blessing that comes nightly, and brings nothing but sweet dreams.
+ - But we are strong, each in our purpose, and we are all more strong together.
+ - Enter freely and of your own free will!
+ - I am longing to be with you, and by the sea, where we can talk together freely and build our castles in the air.
+ - Though sympathy alone can’t alter facts, it can help to make them more bearable.
+ - There is a reason why all things are as they are.
+ - Remember my friend, that knowledge is stronger than memory, and we should not trust the weaker.
+ - There are bad dreams for those who sleep unwisely.
+ - We are all drifting reefwards now, and faith is our only anchor.
+ - The Dead travel fast.
+ - Souls and memories can do strange things during trance.
+ - No man knows where the Castle of King Death is. All men and women, boys and girls, and even little wee children should so live that when they have to enter the Castle and see the grim King, they may not fear to behold his face.
+ - I am all in a sea of wonders. I doubt; I fear; I think strange things, which I dare not confess to my own soul. God keep me, if only for the sake of those dear to me!
+ - I could not resist the temptation of mystifying him a bit, I suppose it is some taste of the original apple that remains still in our mouths.
+ - My revenge is just begun! I spread it over centuries, and time is on my side.
+ - It is wonderful what tricks our dreams play us, and how conveniently we can imagine.
+ - Nature in one of her beneficent moods has ordained that even death has some antidote to its own terrors.
+ - Listen to them, the children of the night. What music they make!
+ - Truly there is no such thing as finality.
+ - But a stranger in a strange land, he is no one. Men know him not, and to know not is to care not for.
+ - Ah, it is the fault of our science that it wants to explain all; and if it explain not, then it says there is nothing to explain.
+ - The only beautiful thing in the world whose beauty lasts for ever is a pure, fair soul.
+ - Take me away from all this Death.
+ - How good and thoughtful he is; the world seems full of good men – even if there are monsters in it.
+ - I’m a hard nut to crack, and I take it standing up.
+ - You yourself never loved; you never love! Yes, I too can love; you yourselves can tell it from the past. Is it not so?
+ - I have a sort of empty feeling; nothing in the world seems of sufficient importance to be worth the doing.
+ - It was like a miracle, but before our very eyes, and almost in the drawing of a breath, the whole body crumbled into dust and passed from our sight.
+ - Loneliness will sit over our roofs with brooding wings.
+ - She has man’s brain – a brain that a man should have were he much gifted – and woman’s heart. The good God fashioned her for a purpose, believe me when He made that so good combination.
+ - This man belongs to me, I want him!
+ - She is one of God’s women fashioned by His own hand to show us men and other women that there is a heaven where we can enter, and that its light can be here on earth.
+ - No man knows till he has suffered from the night how sweet and dear to his heart and eye the morning can be.
+ - I want to cut off her head and take out her heart.
+ - She was young and very beautiful, but pale, like the grey pallor of death.
+ - I sometimes think we must be all mad and that we shall wake to sanity in strait-waistcoats.
+ - It is really wonderful how much resilience there is in human nature. Let any obstructing cause, no matter what, be removed in any way, even by death, and we fly back to first principles of hope and enjoyment.
+ - No one but a woman can help a man when he is in trouble of the heart.
+ - There was one great tomb more lordly than all the rest; huge it was, and nobly proportioned. On it was but one word, DRACULA.
+ - For now, feeling as though my own brain were unhinged or as if the shock had come which must end in its undoing, I turn to my diary for repose. The habit of entering accurately must help sooth me.
+ - Within, stood a tall old man, clean shaven save for a long white moustache, and clad in black from head to foot, without a single speck of colour about him anywhere.
+ - I saw the Count lying within the box upon the earth, some of which the rude falling from the cart had scattered over him. He was deathly pale, just like a waxen image, and the red eyes glared with the horrible vindictive look which I knew so well.
+ - Even if she be not harmed, her heart may fail her in so much and so many horrors; and hereafter she may suffer – both in waking, from her nerves, and in sleep, from her dreams.
+ - Let me tell you, my friend, that there are things done today in electrical science which would have been deemed unholy by the very man who discovered electricity, who would themselves not so long before been burned as wizards.
+ - It is only when a man feels himself face to face with such horrors that he can understand their true import.
+ - No man knows till he experiences it, what it is like to feel his own life-blood drawn away into the woman he loves.
+ - We learn of great things by little experiences.
+ - Ah, we men and women are like ropes drawn tight with strain that pull us in different directions.
+ - And then away for home! Away to the quickest and nearest train! Away from this cursed land, where the devil and his children stil walk with earthly feet!
+ - I suppose that we women are such cowards that we think a man will save us from fears, and we marry him.
+ - Doctor, you don’t know what it is to doubt everything, even yourself. No, you don’t; you couldn’t with eyebrows like yours.
+ - Our toil must be in silence, and our efforts all in secret; for this enlightened age, when men believe not even what they see, the doubting of wise men would be his greatest strength.
+ - Because if a woman’s heart was free a man might have hope.
+ - And yet, unless my senses deceive me, the old centuries had, and have, powers of their own which mere ‘modernity’ cannot kill.
+ - Before I left the castle I so fixed its entrances that never more can the Count enter there Undead.
+ - There is a method in his madness, and the rudimentary idea in my mind is growing. It will be a whole idea soon, and then, oh, unconscious cerebration.
+ - A brave man’s hand can speak for itself, it does not even need a woman’s love to hear its music.
+ - The blood is the life!
+ - We are in Transylvania, and Transylvania is not England. Our ways are not your ways, and there shall be to you many strange things. Nay, from what you have told me of your experiences already, you know something of what strange things there may be.
+ - Oh, why must a man like that be made unhappy when there are lots of girls about who would worship the very ground he trod on?
+ - Safety and the assurance of safety are things of the past.
+ - For me, I say no, but then I am old, and life, with his sunshine, his fair places, his song of birds, his music and his love, lie far behind. You others are young. Some have seen sorrow, but there are fair days yet in store. What say you?
+ - It is ever thus that the things which we do wrong – although they may seem little at the time, and though from the hardness of our hearts we pass them lightly by – come back to us with bitterness.
+ - Whether it is the old lady’s fear, or the many ghostly traditions of this place, or the crucifix itself, I do not know, but I am not feeling nearly as easy in my mind as usual.
+ - I have been so long master that I would be master still, or at least that none other should be master of me.
+ - Let me be accurate in everything, for though you and I have seen some strange things together, you may at the first think that I, Van Helsing, am mad. That the many horrors and the so long strain on nerves has at the last turn my brain.
+ - The inscrutable laws of sex have so arranged that even a timid woman is not afraid of a fierce and haughty man.
+ - Sleep has no place it can call its own.
+ - Love is, after all, a selfish thing; and it throws a black shadow on anything between which and the light it stands.
+ - Good women tell all their lives, and by day and by hour and by minute, such things that angels can read.
+ - A house cannot be made habitable in a day; and, after all, how few days go to make up a century.
+ - I have always thought that a wild animal never looks so well as when some obstacle of pronounced durability is between us. A personal experience has intensified rather than diminished that idea.
+ - Despair has its own calms.
+ - I suppose a cry does us all good at times-clears the air as other rain does.
+ - And so we remained till the red of the dawn began to fall through the snow gloom. I was desolate and afraid, and full of woe and terror. But when that beautiful sun began to climb the horizon life was to me again.
+ - There are such beings as vampires, some of us have evidence that they exist. Even had we not the proof of our own unhappy experience, the teachings and the records of the past give proof enough for sane peoples.
+ - He may not enter anywhere at the first, unless there be some one of the household who bid him to come, though afterwards he can come as he please.
+ - But hush! No telling to others that make so inquisitive questions. We must obey, and silence is a part of obedience, and obedience is to bring you strong and well into loving arms that wait for you.
+ - Chasing an errant swarm of bees is nothing to following a naked lunatic when the fit of escaping is upon him!
+ - I do not, as you know, take sufficient interest in dress to be able to describe the new fashions. Dress is a bore.
+ - All men are mad in some way or the other, and inasmuch as you deal discreetly with your madmen, so deal with God’s madmen too, the rest of the world.
+ - The fame of an actor is won in minutes and seconds, not in years.
+ - The Stars are a long way off, and their words get somewhat dulled in the message.
+ - He means to succeed, and a man who has centuries before him can afford to wait and to go slow.
+ - Yes, there is some one I love, though he has not told me yet that he even loves me.
+ - There are mysteries which men can only guess at, which age by age they may solve only in part.
+ - As yet we know nothing of what goes to create or evoke the active spark of life.
+
+90 quotes

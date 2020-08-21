@@ -1,0 +1,42 @@
+ - The truth is that teamwork is at the heart of great achievement. ~~John C. Maxwell
+ - If everyone is moving forward together, then success takes care of itself. ~~Henry Ford
+ - Teamwork gives you the best opportunity to turn vision into reality. ~~John C. Maxwell
+ - By working together, pooling our resources and building on our strengths, we can accomplish great things. ~~Ronald Reagan
+ - Collaboration is multiplication. ~~John C. Maxwell
+ - Not finance. Not strategy. Not technology. It is teamwork that remains the ultimate competitive advantage, both because it is so powerful and so rare. ~~Patrick Lencioni
+ - No individual can win a game by himself. ~~Pelé
+ - If you think and achieve as a team, the individual accolades will take care of themselves. Talent wins games, but teamwork and intelligence win championships. ~~Michael Jordan
+ - A hundred thousand men, coming one after another, cannot move a Ton weight; but the united strength of 50 would transport it with ease. ~~George Washington
+ - Build for your team a feeling of oneness, of dependence on one another and of strength to be derived by unity. ~~Vince Lombardi
+ - There is no ‘i’ in team but there is in win. ~~Michael Jordan
+ - Teamwork makes the dream work, but a vision becomes a nightmare when the leader has a big dream and a bad team. ~~John C. Maxwell
+ - It is literally true that you can succeed best and quickest by helping others to succeed. ~~Napoleon Hill
+ - Synergy – the bonus that is achieved when things work together harmoniously. ~~Mark Twain
+ - A team is not made up of isolated individuals. Always stay in the game. Don’t be passive. Football is a team game. No one plays alone. Success depends on your whole team being a single unit. ~~Pelé
+ - To collaborative team members, completing one another is more important than competing with one another. ~~John C. Maxwell
+ - Think like a wise man but communicate in the language of the people. ~~William Butler Yeats
+ - Remember upon the conduct of each depends the fate of all. ~~Alexander the Great
+ - Team learning is the Process of aligning and developing the capacity of a team to create the results its members desire. It builds on the discipline of developing a shared vision. It also builds on personal mastery, for talented teams are made up of talented individuals. ~~Peter Senge
+ - No man is an island, entire of itself; every man is a piece of the continent. ~~John Donne
+ - In union there is strength. ~~Aesop
+ - Efficiency is doing better what is already being done. ~~Peter F. Drucker
+ - Ordinary people with commitment can make an extraordinary impact on the their world. ~~John C. Maxwell
+ - Without self-discipline, success is impossible, period. ~~Lou Holtz
+ - Confidence comes from being prepared. ~~John Wooden
+ - Interdependent people combine their own efforts with the efforts of others to achieve their greatest success. ~~Stephen R. Covey
+ - I know you’ve heard it a thousand times before. But it’s true – hard work pays off. If you want to be good, you have to practice, practice, practice. If you don’t love something, then don’t do it. ~~Ray Bradbury
+ - No team works out teamwork. ~~Dwyane Wade
+ - We’re going to turn this team around 360 degrees. ~~Jason Kidd
+ - The only thing that will redeem mankind is cooperation. ~~Bertrand Russell
+ - I don’t necessarily have to like my players and associates but as their leader I must love them. Love is loyalty, love is teamwork, love respects the dignity of the individual. This is the strength of any organization. ~~Vince Lombardi
+ - Anyone who imagines they can work alone winds up surrounded by nothing but rivals, without companions. The fact is, no one ascends alone. ~~Lance Armstrong
+ - A coach is someone who can give correction without causing resentment. ~~John Wooden
+ - No man or woman is an island. To exist just for yourself is meaningless. You can achieve the most satisfaction when you feel related to some greater purpose in life, something greater than yourself. ~~Denis Waitley
+ - I guess if a person didn’t quit when the going got tough, they wouldn’t have anything to regret for the rest of their life. ~~Lance Armstrong
+ - Let everyone sweep in front of his own door, and the whole world will be clean. ~~Johann Wolfgang von Goethe
+ - A self-reinforcing upward spiral: performance stimulating pride stimulating performance. ~~Rosabeth Moss Kanter
+ - When all is said and done, teaching is what I try to do for a living. ~~Jack Welch
+ - There can only be one state of mind as you approach any profound test; total concentration, a spirit of togetherness, and strength. ~~Pat Riley
+ - Yogi saw three of his players in the locker room wearing Cone Head hats. Yogi said, Those guys make a pair. ~~Yogi Berra
+
+40 quotes

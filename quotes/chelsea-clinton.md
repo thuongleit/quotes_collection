@@ -1,0 +1,57 @@
+ - Patience is a virtue, but impatience gets things done.
+ - Millennials are often portrayed as apathetic, disinterested, tuned out and selfish. None of those adjectives describe the Millennials I’ve been privileged to meet and work with.
+ - For most young Americans I know, ‘serving’ in the broadest sense now seems like the only thing to do.
+ - I loved working on Wall Street. I loved the meritocracy of it and the camaraderie of the trading floor.
+ - A tin roof is one of the greatest indicators of prosperity in the developing world.
+ - What inspires me most are people who imagine and implement solutions to challenges in their own lives, in their communities, in our country and around the world.
+ - I’m sorry, I don’t talk to the press. Even though I think you’re cute.
+ - Determination gets you a long way.
+ - I am so proud and grateful to be my mom’s daughter.
+ - He has always provided me a safe place to land and a hard place from which to launch.
+ - I unapologetically and unabashedly am deeply biased toward my mother.
+ - At the fourth grade level, girls at the same percentages of boys say they’re interested in careers in engineering or math or astrophysics, but by eighth grade that has dropped precipitously.
+ - I had seen people who had lost everything and everyone they loved to war, famine, and natural disasters.
+ - My parents were very firm about me always getting my homework done.
+ - I hope to make a positive, productive contribution, as cheesy as that may sound.
+ - I think that we need women role models everywhere. I think that it’s really hard to imagine yourself as something that you don’t see.
+ - When I first held my daughter, right after she was born, I felt like it was the moment I’d been waiting my whole life for, and it just felt even more miraculous than I ever could have imagined.
+ - We proved we could be safe and secure at home, and still have more allies and friends in the world.
+ - I know I’m late, but I’ve finally joined Facebook!
+ - Service is an opportunity for young women to really empower themselves.
+ - I think we need to care about the metrics of success in life, and I’m a pretty competitive person.
+ - It just seems so fundamental to me. I’m able to marry the person I wanted to marry. That’s the fundamental human imperative. Those of us who have been lucky enough should expand these rights to others.
+ - I hope that young people will also look to politics as a vehicle to not only have their voices heard, but actually to be the change makers that they want to see. They are disaffected, understandably, but I hope that young people will not only turn out to vote but also run for office.
+ - Caricatured as navel-gazers, Millennials are said to live for their ‘likes’ and status updates. But the young people I know often leverage social media in selfless ways.
+ - I’m a big believer in listening to my body’s cravings.
+ - I certainly believe that all of my friends should have the right, as Marc and I did, to marry their best friend. I certainly expect my straight friends to help us achieve that for all New Yorkers, for all Americans, and for the children that, at least, Marc and I hope to have someday.
+ - My mother has often said that the issue of women is the unfinished business of the 21st century. That is certainly true. But so, too, are the issues of LGBTQ rights the unfinished business of the 21st century.
+ - It is frustrating, because who wants to grow up and follow their parents?
+ - I’m a big health food freak and a vegetarian devotee.
+ - We need women who are at the head of a boardroom, like at the head of the White House, at the head of kind of major scientific enterprises so that little girls everywhere can then think, you know what? I can do that, I want to do that, I will do that.
+ - Fried chicken is my husband’s favorite food.
+ - For me it’s just so exciting to have a daughter because I do think she will have even more opportunities than I had, and I had more opportunities than certainly my grandmother had. It’s the arc of history, always bending toward justice and opportunity, and she will be part of that.
+ - You’d better talk to my dad. My mom’s pretty busy.
+ - I love the right words. I think economy and precision of language are important.
+ - My marriage is incredibly important to me. It’s the place from which I engage in the world every day, and the place to which I return every day.
+ - My parents have been incredibly supportive from perhaps the first real independent decision I made to become a vegetarian at 11, which was certainly not consistent with their diet at the time.
+ - I hope telling stories though ‘Making a Difference’ – as in my academic work and nonprofit work – will help me to live my grandmother’s adage of ‘Life is not about what happens to you, but about what you do with what happens to you.’
+ - I believe that engaging in the political process is part of being a good person.
+ - I can’t imagine anything that would make the world look more different than if women and girls were unequivocally enfranchised.
+ - Celebrate those who have the courage to be second, because I do think that often there really is this claustrophobic pressure to innovate instead of to adapt.
+ - My parents taught me to approach the world critically, but also to approach it with a sense of responsibility.
+ - I am excited to work with NBC News to continue to highlight stories of organizations and individuals who make their communities and our world healthier, more just and more humane.
+ - I do really well in the traditional board games: Backgammon, Checkers.
+ - My parents and my grandmother inspire me every day and, every day, in my work and personal life.
+ - My parents always asked me what I thought, listened to my opinions, articulated their diagnoses of our challenges at home and abroad, and shared their ideas for how to build a more equal and prosperous country. I always felt part of their call to serve and part of my father’s journey.
+ - Over the summer I thought that I would seek out non-Americans as friends, just for diversity’s sake. Now I find that I want to be around Americans – people who I know are thinking about our country as much as I am.
+ - I really believe that with a little bit of information, kids can make a big difference.
+ - I’d ask myself, ‘What do I think is really unjust?’ That should be a starting point for how you engage with the world.
+ - I have a boyfriend and a dog, and I still haven’t figured out what I want to be when I grow up.
+ - For most of my life, I deliberately led a private life in the public eye.
+ - Even during my father’s 1984 gubernatorial campaign, it was, ‘Do you want to grow up and be governor one day?’ ‘No. I am four.’
+ - Every day at some point I encounter some sort of anti-American feeling.
+ - I’ve always been incredibly proud of both of my parents and proud of the work I had done privately as a person, professionally and academically.
+ - When my father announced his campaign for president on Oct. 3, 1991, I had already cast my vote in favor of his candidacy.
+ - Thinking about the world writ large, I am more optimistic than not that we will tackle our most pressing challenges, whether poverty or equality for women and girls or climate change; but I also know we’ll only tackle them if people are really informed about the challenge and what’s proven to work.
+
+55 quotes

@@ -1,0 +1,21 @@
+ - Keep your dreams alive. Understand to achieve anything requires faith and belief in yourself, vision, hard work, determination, and dedication. Remember all things are possible for those who believe.
+ - Remember, all things are possible to those who believe!
+ - My life is a blessing every day that I get up. God saved my feet. How am I not going to use them?
+ - It’s not what other people believe you can do, it’s what you believe.
+ - You can never give up or get down on yourself. A true champion keeps his or her chin up and always takes life one race at a time.
+ - In my race, theres 10 hurdles, but in life, there is always a hurdle. There is always something you gotta get over, and its what you do, you know.
+ - Whenever faced with a challenge, I dig deep within myself and summon my spiritual and physical forces. This gives me the focus, determination, perseverance, and support I need to succeed.
+ - It is so important for young girls to be fit. I think sports is the key to success, because the challenges you face in sports prepare you for the rest of your life.
+ - I always said a prayer before I ran, and my prayer was to win. My prayer was that God would allow me to run my best on that day, or better than my best. So whatever the outcome is, I have to be satisfied with it if I know I gave it my best effort.
+ - I find motivation within myself. I run track not from a competitive Nature, but because I’m a very goal-oriented person.
+ - People talk about retiring. I never said that r-word. People though I went away after the Olympic Games. I took time off to do something I’ve always wanted to be – a mother.
+ - Looking back, I’m so proud to have gone to five Olympics – I believe only three other Americans have achieved that.
+ - People see me now and ask if I’m still running. I may look like I am, but I’m really not. People think I still run every day but I ran for 25 years and I deserve to not do anything but walk or ride the bike with my kids.
+ - I have to be cautious, have my thyroid levels checked, and as long as I do that, I’m fine.
+ - I was blessed with a long career where I won gold medals for myself and my country. Nothing stands out as a disappointment.
+ - I didn’t get nervous when I ran, but I get nervous watching other people now. I root for anybody with a USA on their chest.
+ - It’s totally different now, traveling to different meets and different cities and actually being able to enjoy the cities I’m in.
+ - I have a real passion for children. I always wanted to teach and only became an athlete because my parents told my brother Parenthesis and me that we should use any God-given talent we had.
+ - You have to find that love within yourself. If you love yourself, you feel good about yourself, and sports help you feel good about yourself.
+
+19 quotes

@@ -1,0 +1,42 @@
+ - Ask for help. Not because you are weak. But because you want to remain strong. ~~Les Brown
+ - We rise by lifting others. ~~Robert G. Ingersoll
+ - Helping hands are better than Praying Lips. ~~Mother Teresa
+ - You don’t need a reason to help people. ~~Zinedine Zidane
+ - Love all. Serve all. Help ever. Hurt never. ~~Sathya Sai Baba
+ - I will heighten my life by helping others heighten theirs. ~~Les Brown
+ - If you want to change the world, help the women. ~~Nelson Mandela
+ - Do one thing everyday that scares you. Those small things that make us uncomfortable help us build courage to do the work we do. ~~Eleanor Roosevelt
+ - Helping others is the way we help ourselves. ~~Oprah Winfrey
+ - Ultimately the greatest help is self-help. ~~Bruce Lee
+ - When you find yourself in a position to help someone, be happy because Allah is answering that person’s prayer through you. ~~Nouman Ali Khan
+ - Take sides. Neutrality helps the oppressor, never the victim. ~~Elie Wiesel
+ - Help yourself by helping others. ~~John Templeton
+ - Happiness is available. Please help yourself to it. ~~Nhat Hanh
+ - Happiness may be found only by helping others to find it. ~~Napoleon Hill
+ - Let difficulty transform you. And it will. In my experience, we just need help in learning how not to run away. ~~Pema Chödrön
+ - Money is not the goal. Money has no value. The value comes from the dreams money helps achieve. ~~Robert T. Kiyosaki
+ - Lord, help me to live this day, quietly, easily. To lean upon Thy great strength, trustfully, restfully. To wait for the unfolding of Thy will, patiently, serenely. To meet others, peacefully, joyously. To face tomorrow, confidently, courageously. ~~Francis of Assisi
+ - Often you will discover that the harder you work, and the more wisely you work, the luckier you get. But there is luck, and it helps. ~~Neil Gaiman
+ - If nobody will help you, do it alone. ~~Michael Jordan
+ - When jarred, unavoidably, by circumstance revert at once to yourself and don’t lose the rhythm more than you can help. You’ll have a better grasp of harmony if you keep going back to it. ~~Marcus Aurelius
+ - Setting goals helps bring your future into your present and the present is the only time we can take action. ~~Zig Ziglar
+ - There is power in understanding the journey of others to help create your own. ~~Kobe Bryant
+ - The meaning of my life is to help others find meaning in theirs. ~~Viktor E. Frankl
+ - It was in my heart to help a little because I was helped much. ~~Khalil Gibran
+ - Every second is of infinite value. ~~Johann Wolfgang von Goethe
+ - Happiness springs from doing good and helping others. ~~Plato
+ - The first step is to fill your life with positive faith that will help you through anything. The second step is to start where you are. ~~Norman Vincent Peale
+ - You cannot do everything at once, so find people you trust to help you. And don't be afraid to say no. ~~Jane Seymour
+ - I pray because I can’t help myself. I pray because I’m helpless. It doesn’t change God – it changes me. ~~C. S. Lewis
+ - Stop selling. Start helping. ~~Zig Ziglar
+ - If we can not smile, we cannot help other people to smile. ~~Nhat Hanh
+ - If we are strong, our strength will speak for itself. If we are weak, words will be of no help. ~~John F. Kennedy
+ - If we acknowledge our need for God, he will help us. ~~Ben Carson
+ - Lord help my poor soul. ~~Edgar Allan Poe
+ - Put your heart aside. Duty comes first. But when fulfilling your duty, put your heart into it. It helps. ~~Josemaría Escrivá
+ - The best help that benevolence and philanthropy can give is that which induces everybody to help himself. ~~Calvin Coolidge
+ - Government is never more dangerous than when our desire to have it help us blinds us to its great power to harm us. ~~Ronald Reagan
+ - Life is chaotic and meaningless, and you have to find your meaning. You must find the answer, you can’t just live. That’s the point of story: helping you find your meaning in life. ~~Robert McKee
+ - The scars of your love remind me of us they keep me thinking that we almost had it all the scars of your love they leave me breathless I can’t help feeling we could have had it all. ~~Adele
+
+40 quotes

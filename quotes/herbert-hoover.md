@@ -1,0 +1,163 @@
+ - Fishing is more than fish; it is the vitalizing lure to outdoor life.
+ - Engineering is a great profession.
+ - Be patient and calm; no one can catch fish in anger.
+ - Competition is not only the basis of protection to the consumer, but is the incentive to progress.
+ - When the outcome of a meeting is to have another meeting, it has been a lousy meeting.
+ - All men are equal before fish.
+ - The gods do not deduct from man’s allotted span the hours spent in fishing.
+ - Words without actions are the assassins of idealism.
+ - Sportsmanship, next to the Church, is the greatest teacher of morals.
+ - Prosperity is just around the corner.
+ - A boy has two jobs. One is just being a boy. The other is growing up to be a man.
+ - We are in danger of developing a cult of the Common Man, which means a cult of mediocrity.
+ - Older men declare war. But it is the youth that must fight and die.
+ - Being a politician is a poor profession. Being a public servant is a noble one.
+ - Engineering without imagination sinks to a trade.
+ - Love what is ahead by loving what has come before.
+ - When there is a lack of honor in government, the morals of the whole people are poisoned.
+ - Children are our most valuable natural resource.
+ - Never worry about anything that is past. Charge it up to experience and forget the trouble. There are always plenty of troubles ahead, so don’t turn and look back on any behind you.
+ - Bureaucracy is ever desirous of spreading its influence and its power. You cannot extend the mastery of the government over the daily working life of a people without at the same time making it the master of the people’s souls and thoughts.
+ - The supreme purpose of history is a better world.
+ - Truth alone can stand the guns of criticism.
+ - The whole inspiration of our civilization springs from the teachings of Christ and the lessons of the prophets. To read the Bible for these fundamentals is a necessity of American life.
+ - A splendid storehouse of integrity and freedom has been bequeathed to us by our forefathers. In this day of confusion, of peril to liberty, our high duty is to see that this storehouse is not robbed of its contents.
+ - Honest difference of views and honest debate are not disunity. They are the vital process of policy among free men.
+ - Next to prayer, Fishing is the most personal relationship of man.
+ - It is obvious that while science is struggling to bring Heaven to earth some men are using its materials in the construction of Hell.
+ - Fishing is much more than fish. It is the great occasion when we may return to the fine simplicity of our forefathers.
+ - I outlived the bastards.
+ - Children are the most wholesome part of the race, the sweetest, for they are the freshest from the hand of god.
+ - My country owes me nothing. It gave me, as it gives every boy and girl, a chance. It gave me schooling, independence of action, opportunity for service and honor.
+ - When we are sick, we want an uncommon doctor; when we have a construction job to do, we want an uncommon engineer, and when we are at war, we want an uncommon general. It is only when we get into politics that we are satisfied with the common man.
+ - To the engineer falls the job of clothing the bare bones of science with life, comfort, and hope.
+ - Engineering training deals with the exact sciences. That sort of exactness makes for truth and conscience. It might be good for the world if more men had that sort of mental start in life even if they did not pursue the profession.
+ - Freedom is the open window through which pours the sunlight of the human spirit and human dignity.
+ - Absolute freedom of the press to discuss public questions is a foundation stone of American liberty.
+ - The sole function of Government is to bring about a condition of affairs favorable to the beneficial development of private enterprise.
+ - Twenty million people are starving. Whatever their politics, they shall be fed!
+ - We are now speeding down the road of wasteful spending and debt, and unless we can escape we will be smashed in inflation.
+ - The use of the atomic bomb, with its indiscriminate killing of women and children, revolts my soul.
+ - Fishing is the chance to wash one’s soul with pure air. It brings meekness and inspiration, reduces our egoism, soothes our troubles and shames our wickedness. It is discipline in the equality of men – for all men are equal before fish.
+ - The sixth grade made my life successful by preparing me for the seventh and the seventh by preparing me for the eighth and so on. May it do the same for you.
+ - Prosperity cannot be restored by raids upon the public Treasury.
+ - Peace is not made at the council table or by treaties, but in the hearts of men.
+ - The spark of liberty in the mind and spirit of man cannot be long extinguished; it will break into flames that will destroy every coercion which seems to limit it.
+ - Let me remind you that credit is the lifeblood of business, the lifeblood of prices and jobs.
+ - Honor is not the exclusive property of any political party.
+ - We have gold because we cannot trust governments.
+ - A good many things go around in the dark besides Santa Claus.
+ - We must not be misled by the claim that the source of all wisdom is in the government.
+ - Fishing is a constant reminder of the democracy of life, of humility, and of human frailty. The forces of nature discriminate for no man.
+ - No great question will ever be settled in dollars and cents. Great questions must be settled on moral grounds and the tests of what makes free men.
+ - The worst evil of disregard for some law is that it destroys respect for all laws.
+ - In America today, we are nearer a final triumph over poverty than is any other land.
+ - The slogan of progress is changing from the full dinner pail to the full garage.
+ - The basis of successful relief in national distress is to mobilize and organize the infinite number of agencies of self help in the community. That has been the American way.
+ - The imperative need of this nation at all times is the leadership of Uncommon Men or Women.
+ - The fundamental business of the country, that is production and distribution of commodities, is on a sound and prosperous basis.
+ - The study of the Bible is a post-graduate course in the richest library of human experience.
+ - Along with currency manipulation, the New Deal introduced to Americans the spectacle of Fascist dictation to business, labor, and agriculture.
+ - The course of unbalanced budgets is the road to ruin.
+ - Children add to the wonder of being alive.
+ - Our individualism is rooted in our very nature. It is based on conviction born of experience. Equal opportunity, the demand for a fair chance, became the formula of American Individualism because it is the method of American achievement.
+ - Wisdom consists not so much in knowing what to do in the ultimate as in knowing what to do next.
+ - The rigid volunteer rules of right and wrong in sports are second only to religious faith in moral training.
+ - It is a paradox that every dictator has climbed to power on the ladder of free speech. Immediately on attaining power each dictator has suppressed all free speech except his own.
+ - No prosaic description can portray the grandeur of 40 miles of rugged mountains rising beyond a placid lake in which each shadowy precipice and each purple gorge is reflected with a vividness that rivals the original.
+ - National character cannot be built by law. It is the sum of the moral fiber of its individuals.
+ - It was the transcendent fortitude and steadfastness of these men who in adversity and in suffering through the darkest hour of our history held faithful to an ideal. Here men endured that a nation might live.
+ - It is those moral and spiritual qualities which rise alone in free men, which will fulfill the meaning of the word American. And with them will come centuries of further greatness to our country.
+ - Gentleman, you have come sixty days too late. The depression is over.
+ - We do not need to burn down the house to kill the rats.
+ - We have learned that social injustice is the destruction of justice itself.
+ - It is just as important that business keep out of government as that government keep out of business.
+ - Hunger is the mother of anarchy.
+ - Many women are now holding posts of grave responsibility in city and country and state and nation, and their number must be greatly increased.
+ - Freedom requires that government keep the channels of competition and opportunity open, prevent monopolies, economic abuse and domination.
+ - Free speech does not live many hours after free industry and free commerce die.
+ - The people have a vital interest in the conservation of their natural resources; in the prevention of wasteful practices.
+ - True American Liberalism utterly denies the whole creed of socialism.
+ - Next to religion, baseball has had a greater impact on our American way of life than any other American institution.
+ - New discoveries in science will continue to create a thousand new frontiers for those who still would adventure.
+ - America – a great social and economic experiment, noble in motive and far-reaching in purpose.
+ - I suppose I could have called in the whole of the Army, but what was the use? All I had to do was call in Main Street itself.
+ - Lots of people committed crimes during the year who would not have done so if they had been fishing. The increase of crime is among those deprived of the regenerations that impregnate the mind and character of the fisherman.
+ - I shall tell my doctors baseball has more curative powers than all their medicine.
+ - About the time we can make the ends meet, somebody moves the ends.
+ - Economic depression cannot be cured by legislative action or executive pronouncement. Economic wounds must be healed by the action of the cells of the economic body – the producers and consumers themselves.
+ - Every collectivist revolution rides in on a Trojan horse of EMERGENCY.
+ - The Constitution is America’s glue, Democracy is the Constitution’s glue.
+ - There are only three ways to meet the unpaid bills of a nation. The first is taxation. The second is repudiation. The third is inflation.
+ - With impressive proof on all sides of magnificent progress, no one can rightly deny the fundamental correctness of our economic system.
+ - There is no more cruel illusion than that war makes a people richer.
+ - We cannot change ideas in the minds of men and races with machine guns or battle ships.
+ - Any lack of confidence in the economic future or the basic strength of business in the United States is foolish.
+ - I come of Quaker stock. My ancestors were persecuted for their beliefs. Here they sought and found religious freedom. By blood and conviction I stand for religious tolerance both in act and in spirit.
+ - The structure of human betterment cannot be built upon foundations of materialism or business, but upon the bedrock of individual character in free men and women.
+ - The durability of free speech and free press rests on the simple concept that it search for the truth and tell the truth.
+ - The only problem with capitalism is the capitalists.
+ - Liberalism is a force truly of the spirit proceeding from the deep realization that economic freedom cannot be sacrificed if political freedom is to be preserved.
+ - Every generation has the right to build its own world out of the materials of the past, cemented by the hopes of the future.
+ - Economic depression can not be cured by legislative action or executive pronouncement.
+ - Along this road of spending, the government either takes over, which is Socialism, or dictates institutional and economic life, which is Fascism.
+ - Doctors think a lot of patients are cured who have simply quit in disgust.
+ - The recognition of Russia on November 16, 1933, started forces which were to have considerable influence in the attempt to collectivize the United States.
+ - Presidents have only two moments of personal seclusion. One is prayer; the other fishing – and they cannot pray all the time!
+ - The greatness of America has grown out of a political and social system and a method of control of economic forces distinctly its own – our American system.
+ - No public man can be just a little crooked. There is no such thing as a no-man’s land between honesty and dishonesty.
+ - The advancement of knowledge must be translated into increasing health and education for the children.
+ - I dare predict that the influence of the Treaty of Renunciation of War will be felt in a large proportion of all future international acts.
+ - The President is not only the leader of a party, he is the President of the whole people. He must interpret the conscience of America. He must guide his conduct by the idealism of our people.
+ - Once upon a time my political opponents honored me as possessing the fabulous intellectual and economic power by which I created a worldwide depression all by myself.
+ - While the crash only took place six months ago, I am convinced we have passed the worst and with continued unity of effort we shall rapidly recover.
+ - Somebody has inquired as to whether I will be going to the opening baseball game. I hope to have that pleasure.
+ - No greater nor more affectionate honor can be conferred on an American than to have a public school named after him.
+ - Truly every generation discovers the world all new again and knows it can improve it.
+ - When I decided to go into politics I weighed the costs. I would get criticism. But I went ahead. So when virulent criticism came I wasn’t surprised. I was better able to handle it.
+ - Through baseball we channel boys desire for exercise and let off their explosive violence without letting them get into the police court.
+ - A good fisherman can secure many regenerative hours in winter, polishing up the rods and reels.
+ - Bless the children, for the national debt is theirs.
+ - All progress and growth is a matter of change, but change must be growth within our social and government concepts if it should not destroy them.
+ - Self-government can succeed only through an instructed electorate.
+ - Blessed are the young for they shall inherit the national debt.
+ - I pride myself on being one of the oldest fans. I can certainly count up about seventy years of devotion.
+ - I’m the only person of distinction who has ever had a depression named for him.
+ - The job is nothing but a twenty-ring circus-with a whole lot of bad actors.
+ - I was for a short time on the baseball team as shortstop, where I was no good.
+ - There is no other book so various as the Bible, nor one so full of concentrated wisdom.
+ - Freedom conceives that the mind and spirit of man can be free only if he is free to pattern his own life, to develop his own talents, free to earn, to spend, to save, to acquire property as the security of his old age and his family.
+ - Governments know that the life of the world cannot be saved if the soul of the world is allowed to be lost.
+ - The glory of the nation rests in the character of her men. And character comes from boyhood. Thus every boy is a challenge to his elders.
+ - If the law is upheld only by government officials, then all law is at an end.
+ - Wisdom often consists of knowing what to do next.
+ - It is always possible that occasional individuals may have overstepped the law and humanity in treatment of criminals and those charged with crime, and if so, they should be severely punished.
+ - No public man can be just a little crooked.
+ - I am convinced that through these measures we have reestablished confidence.
+ - In its broad aspects, the proper feeding of children revolves around a public recognition of the interdependence of the human animal upon his cattle. The white race cannot survive without dairy products.
+ - Lewis Strauss is one of my best friends.
+ - One who brandishes a pistol must be prepared to shoot.
+ - You will expect me to discuss the late election. Well, as nearly as I can learn, we did not have enough votes on our side.
+ - In the great mass of our people there are plenty individuals of intelligence from among whom leadership can be recruited.
+ - In the larger view the major forces of the depression now lie outside of the United States, and our recuperation has been retarded by the unwarranted degree of fear and apprehension created by these outside forces.
+ - The priceless treasure of boyhood is his endless enthusiasm, his high store of idealism, his affections and his hopes. When we preserve these, we have made men. We have made citizens and we have made Americans.
+ - The joys of fishing are not confined to the hours near the water.
+ - Our social and economic system cannot march toward better days unless it is inspired by things of the Spirit. It is here that the higher purposes of individualism must find their sustenance.
+ - One of the primary necessities of the world for the maintenance of peace is the elimination of the frictions which arise from competitive armament.
+ - American business needs a lifting purpose greater than the struggle of materialism.
+ - So far as the personal side is concerned, the victory was to him who lost and the defeat to him who won. I can say that never in the last fifteen years have I had the peace of mind that I have since the election. I have almost a feeling of elation.
+ - I am sure I’d have made a better all-around man if I hadn’t lost so much time just making a living.
+ - Presidents cannot always kick evil-minded persons out of the front door. Such persons are often selected by the electors to represent them.
+ - It is well to remember that the office of Chief Executive is in part a symbol of the nation and that leaders in a nation may differ in their own house but they have instant solidarity in the presence of foreign attack.
+ - Baseball is the greatest of all team sports.
+ - Many years ago, I concluded that a few hair shirts were part of the mental wardrobe of every man. The president differs from other men in that he has a more extensive wardrobe.
+ - Above all, we know that although Americans can be led to make great sacrifices, they do not like to be driven.
+ - The pause between the errors and trials of the day and the hopes of the night.
+ - Eat plenty, wisely, without waste.
+ - The outlook of the world today is for the greatest era of commercial expansion in history. The rest of the world will become better customers.
+ - The more complex the problems of the Nation become, the greater is the need for more and more advanced instruction.
+ - Whatever doubt there may be as to the quality or purpose of our free speech we certainly have ample volumes in production.
+ - The thing I enjoyed most were visits from children. They did not want public office.
+ - If we could have but one generation of properly born, trained, educated, and healthy children, a thousand other problems of government would vanish.
+
+161 quotes

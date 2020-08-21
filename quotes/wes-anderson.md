@@ -1,0 +1,46 @@
+ - I don’t think any of us are normal people.
+ - I’m very sorry for your loss. Your mother was a terribly attractive woman.
+ - I don’t really look for challenges as much as I like adventures. Other than that I’m just trying to find stories I want to tell.
+ - Any romantic feelings for a 12-year-old are like entering into a fantasy world.
+ - You don’t do background music the way a lot of more conventional films do. The music is often kind of a character in your films to the extent that sometimes you stop and watch someone perform a song.
+ - That’s the kind of movie that I like to make, where there is an invented reality and the audience is going to go someplace where hopefully they’ve never been before. The details, that’s what the world is made of.
+ - With each movie I have a different set of inspirations.
+ - India is a place where one of the great pleasures for a foreigner is that you’re constantly surprised. Everywhere you look is something that is either funny, or very moving, but there is always so much that is so unexpected. That’s part of the reason why people who like it tend to love it.
+ - I wouldn’t say that I’m particularly bothered or obsessed with detail.
+ - I love working with actors. That’s what the set really is, for me. It’s my time with the actors.
+ - Usually when I’m making a movie, what I have in mind first, for the visuals, is how we can stage the scenes to bring them more to life in the most interesting way, and then how we can make a world for the story that the audience hasn’t quite been in before.
+ - The movies I make tend not to be quite reality but the characters are inspired by real people and they’re always very personal.
+ - The things that are more my own style are something that I don’t really have to think about. The only time I have to think about them is if I want to force myself not to do it the way I do it.
+ - A lot of people have said my movies are all the same. But I don’t actually make an effort to have a style. I’m usually just thinking of what can we do to make it funnier or more interesting or just kind of refine it and it ends up like that.
+ - I’ve always loved stop motion animation and I particularly wanted to do stop motion with puppets that have fur, for whatever reason that is.
+ - Paris is a place where, for me, just walking down a street that I’ve never been down before is like going to a movie...
+ - Anytime I make a movie, I really have absolutely no idea how it’s going to go over. I’ve had the whole range of different kinds of reactions.
+ - On Fantastic Mr. Fox, I got used to working with animated storyboards as a way of planning for the shoot. We did a lot of sequences that way with this movie. Partly as a result of that, I decided to build more sets in order to do certain shots.
+ - Some of the ideas are kind of inspired by the songs, and I always want to use music to tell the story and give the movie a certain kind of mood. That’s always essential to me.
+ - People often call and say: “Can you help me to get Bill Murray in our movie.” But I’m always like, “well I don’t know how to do that!” I’ve sometimes tried and not been able to get him but then I’ll suddenly be very surprised by the thing that he will suddenly decide to do.
+ - A prototype is always more expensive than anything.
+ - What happened to your hand? It got hit by a mirror. How’d that happen? I lost my temper at myself.
+ - I will say that Edward Norton, who plays the scout master, would be a first-rate Eagle Scout. He’s got all those techniques. If your plane crashes into the jungle somewhere, he would be the guy you would want to have with you.
+ - Kids are always open to anything. It’s very rare that a kid isn’t extremely eager to make you happy.
+ - Animating is a very slow, pain-staking process and the animators become the actors at that point.
+ - I just want to make films that are personal, but interesting to an audience.
+ - I guess when I think about it, one of the things I like to dramatise, and what is sometimes funny, is someone coming unglued. I don’t consider myself someone who is making the argument that I support these choices. I just think it can be funny.
+ - When you finish work, practically everybody in that place is going to watch a movie at night anyway. They’re tired. They have dinner. They go up to their room. They’re watching TV.
+ - Sometimes when you’re editing a movie, you have the thing that you don’t expect – which is you make it longer and longer as you go along.
+ - When I see the first dailies on any movie, I usually feel that I had no idea how this combination of ingredients was going to mix together, what it was going to produce.
+ - The subject of an outsider who becomes obsessed.
+ - I usually set aside a lot of time in advance of a movie with important roles for kids to search, but when you have great ones, they can be a real ace in the hole.
+ - The kids are the ones that have a clarity about what they want. They don’t have any wisdom, but they do have a clear understanding about what they want to have happen.
+ - I’ve never had a movie that got great reviews. I’ve had movies that got different levels of good and bad reviews, but you can more or less count on plenty of bad reviews.
+ - I would like to do a movie in space, but I think it would be difficult to do it on location.
+ - Working with kids is usually very fun. They get so into movie and they’re up for anything. Usually they’re having such an exciting experience, everybody feels that.
+ - I don’t know what is in store for the movie business any better than anybody else does, but it does seem like my kind of movies are a little trickier than it used to be – or maybe a lot trickier.
+ - I didn’t think so much of him at first. But now I get it: he’s everything that I’m not.
+ - One of the things I enjoyed the most is just working as an actor.
+ - The thing with animation is that you record the actors like a radio show and then the animators become actors in their own way because it’s their job to take this puppets and make them seem alive. They bring their own personalities to the way they move these puppets.
+ - When you’re doing a live-action movie, you have your day set up and you’re going to do this shot and this shot, and eventually the sun is going to go down. It’s a sequential race to whatever is going to end the day.
+ - Sometimes if the people are up for trying something that I’m interested in, it can be a great experience.
+ - I have always wanted to work in the theater. I’ve always felt the glamour of being backstage and that excitement, but I’ve never actually done it – not since I was in 5th grade, really. But I’ve had many plays in my films. I feel like maybe theater is a part of my movie work.
+ - The only thing that takes away from it is when they steal some music from one of my movies and put it in a TV commercial. I am not crazy about influencing TV commercials. But if I legitimately influence someone making a movie, I think that is really flattering.
+
+44 quotes

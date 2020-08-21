@@ -1,0 +1,65 @@
+ - Maybe the best definition of what a great partnership or great love is when people make each other grow in a better direction than they would have grown on their own.
+ - You are the sum total of the choices you make every day.
+ - I’m still a bit of a romantic and an idealist and hopelessly naive.
+ - Science fiction has a way of letting you talk about where we are in the world and letting you be a bit of a pop philosopher without being didactic.
+ - Living in Cuba made me unafraid of whatever could happen to me.
+ - Having spent a lot of time trying to figure out screenwriting, I do feel moved and I want to try to write good roles for women of every age.
+ - Life is beautiful because it doesn’t last.
+ - Human beings are flawed and complicated and messy.
+ - A lot of people think, ‘I’ll give acting or poetry or filmmaking a try. And if it doesn’t work out I’ll go get a law degree, do something else that’s more practical.’ For me I went the reverse way. I lived the back-up plan.
+ - Being a waitress can be a very brutal job sometimes, and I remember during the training, the person said to me, “The redder the lips, the better the tips,” and that was like the only advice she gave me.
+ - I totally love my job, and I wake up every day basically thinking about how can I do my job better. It never feels like a job. It’s hard, and it’s exhausting sometimes, but it never feels like – I would do this even if they didn’t pay me to do it. That’s a pretty amazing feeling.
+ - I’m really into rocks. I have a really serious rock collection. Rocks and feathers and shells and strange found things in nature. I have a lot of those kinds of collections.
+ - I get uncomfortable when people give me presents and watch me open them. I don’t have birthday parties, because the idea of a group of people singing and looking at me while I’m blowing out candles gives me hives.
+ - So at some point you realize that your life is not just going to start one day in the future, that you’re living it.
+ - I never want to repeat the same thing. I always want it to be different from what I’ve done, and to be not quite sure whether or not I can pull it off, until I hopefully do.
+ - Any man worth his salt loves a feminist. Only men who are afraid of the feminine in themselves are afraid of women.
+ - I feel like I’m a much better person when I’m developing my imagination and my innocence and my vulnerability. I like that version of me better than the version where I’m just working on my analytical mind.
+ - Modern life has gotten so strange, we all get 150 emails and text messages a day, and it’s hard when things are moving that quickly to keep that sense of wonder about being alive.
+ - As an actor, you have an accumulated knowledge base. But there’s also something about it that every time you really feel like you’re doing it for the first time; you have no idea whether you’re capable of it.
+ - Writing so that I can act became a way of having not more control over my future but not having to wait for permission. You can choose yourself. Hmm, who should play this part? I nominate me!
+ - Nothing seemed as scary as waking up at 40 and realizing that I had not lived a very courageous life.
+ - I wasn’t actually very naturally good at economics. My brain doesn’t work very well, in terms of mathematics.
+ - So much of the world is being brought up on these stories that Hollywood is coming up with and exporting all over. They have so much power and influence, so it’s really important that they represent women properly.
+ - I think sometimes big budget means explosions! CGI! CGI, the possibilities are so limitless that it begins to be impractical.
+ - People go to the cinema to be moved; they wanna laugh, they wanna cry, they wanna feel something deeply, especially if they’re not feeling deeply in their own lives.
+ - A couple of compromises in a row and suddenly you’re very far way from the person you thought you were.
+ - I feel like success to me is about feeling like I have done something in storytelling, where I’ve gotten close to articulating something intangible that I’m feeling, and I think I get closer every time, but I don’t know that I’ve done that yet.
+ - It doesn’t happen all the time, but in the moments where you really lose yourself and you fall into this character, it’s like time travel.
+ - I’ve found myself at one in the morning just sitting at my desk spending an hour returning emails from the day until like two in the morning. It’s ridiculous, I should be sleeping, or dreaming, or reading a novel.
+ - I think what’s so attractive about acting is that you get to live several lifetimes in one.
+ - I think movies do change people’s hearts.
+ - A whole film is just about arriving at a moment where you hopefully transfer some feeling to the audience.
+ - If you came from the future and you arrived here, what would you be like? Would your immune system be depressed from that travel? Would you be well? Would you be ill? Would you be affected by micro-organisms of the time period and be hiding out in a basement? How would it all work, practically?
+ - My brain doesn’t work very well, in terms of mathematics. I’m not one of those people who can just spout off numbers for things, if numbers are thrown at me.
+ - One of the great pleasures of acting is surrendering to someone else’s point of view of the world – living inside a character and a story that never would have come out of your mind or heart.
+ - But, it has something to do with having belief in a human future and what that human future is. What is the future of humanity? How does this whole experiment not self-destruct with the environment and everything else going on?
+ - When I’m sitting writing, I know that something works if I’ve made myself cry, or laugh, or have a visceral emotion.
+ - I think we’re always looking for an excuse to connect.
+ - I think one thing for sure that you learn the more films that you make is how important it is to choose your collaborators.
+ - I always feel like the editing room is like coming into the kitchen. What kind of a meal do you make from there? It can be anything.
+ - I didn’t understand how you could be an actor if you didn’t also study philosophy and study political science, astronomy. And also just go out and live life and have experiences.
+ - I think we’re scared of intimacy – all of us, a little bit.
+ - Sometimes big budget means explosions! CGI! CGI, the possibilities are so limitless that it begins to be impractical. I’m more interested in the kinds of movies where the science fiction world has a set series of rules and you operate in it because of, maybe, constraints in the budget.
+ - I think there is a general unrest or curiosity about what a human future is going to be like, and whether the way we’re living is even sustainable.
+ - I think I realized very early on that you can spend a lot of time constructing a really perfect scene in final draft and just end up throwing it away because you didn’t figure out that mathematics of the story first.
+ - I learned from my parents the idea that, if you are devoted enough and you want to study something enough, you can really teach yourself anything.
+ - When you’re reading Chekov, you’re in this world that he’s created. I never would have created that world. I don’t know anything about that time period or that setting or those groups of people or what those experiences were, but oh my gosh, it’s amazing to daydream on it and put yourself there.
+ - I’d love to do anything that is outside of my comfort zone, that I’ve never done before. Whenever I think about something that I want to take on, I like it if it makes me a bit nervous, or makes me feel like I don’t know exactly that I can pull it off.
+ - When I was a kid and going to the movies I was overwhelmed by the way women were always second-class citizens in the film.
+ - I think I am looking as an actor to find ways to push myself into places I haven’t been before as a human being.
+ - When I go into a pitch room and I’m pitching something with a writing partner, everybody tends to look at the guy, even if I’m doing a lot of the talking.
+ - The litmus test for whether I want to take on a role or not is usually fear. If Im afraid of it, then I want to do it.
+ - The most intoxicating thing about being an actor is to surrender to a story that you never would have come up with.
+ - There are so many filmmakers who are so talented, and actors and writers who work so hard, and it’s really hard to let your work enter the world.
+ - Then in college, besides economics, I also majored in studio art and got involved in photography and making short films and acting. But I didn’t know you could make a living that way.
+ - That’s the funny thing about cinema, it is an intellectual medium, but it’s also sort of anti-intellectual.
+ - I’d studied theater growing up and loved that, but didn’t have many examples of artists around me.
+ - Because we’re watching so many movies and are consumed by so many stories, science fiction lets you do something a bit fresh and that hasn’t been seen before.
+ - So writing became a way to get to act in things that I thought were meaningful, and hopefully write stronger roles for other women.
+ - One of the things that’s awesome about being an actor is that you get to do stories, live lives and have experiences that you never could have even conceived of, and that’s because you’re living in another writer’s imagination and another director’s imagination.
+ - The only thing that’s important is that every day I’m waking and doing something that I really love to do.
+ - Is there anything worse than being called the ‘It Girl?’ By definition, there will be a new one in two weeks.
+ - If you play it safe every time, then you’re missing the best part of acting. You haven’t learned anything about your humanity.
+
+63 quotes

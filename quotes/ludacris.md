@@ -1,0 +1,59 @@
+ - Keep in mind, when you hit rock bottom, there ain’t nowhere to go but up, baby.
+ - Lucifer, oh Lucifer, God of evil, you’re the god of pain, the darkness is where you find your light.
+ - I’m battling with myself and every day it’s a war.
+ - Feels like a midget is hanging from my necklace.
+ - My work is like my vacation, so in a way every day is like Saturday.
+ - It’s a ho wide world that we living in.
+ - My dad was dead, so these streets had to raise me.
+ - My toughest enemy is in the mirror – would you look at that.
+ - Somebody tell my fam I got a gambling problem.
+ - I’ve always had an affinity and a passion for cars and that whole car culture.
+ - Your fans, they count on you to make wise decisions and wise choices. That’s why they’re your fan base. If you continually let them down, they’re going to go find someone else to be fans of.
+ - I love technology. We can be our own DJs wherever we go.
+ - I’m ambidextrous, I slap ass with both hands.
+ - TV in the middle of my steering wheel.
+ - There’s nothing like trying to spoonfeed Tortellini Carbonara to a blindfolded naked giggling woman.
+ - Whips and chains, handcuffs, smack a little body up with my belt. Scream, help play my game, dracula man, I’ll get my fangs.
+ - I don’t want to be too over-exposed, but then at the same time I don’t want to be too out-of-sight-out-of-mind.
+ - A black man, but I feel so blue. So I smoke green and purple to my dreams come true. And my eyes turn red, the sky turns grey.
+ - I’m the light skinned version of Mandingo, I’ve seen more Beatles and Jagged Edges than Ringo.
+ - Once you start watching a television show that you love you can’t stop watching it.
+ - It’s a crooked system, but gin straight take the pain away.
+ - No matter how much money I ever get, I’m going to want to provide for my family and never have to go back to really struggling. You don’t ever want to go outside, you don’t ever want to be left in the cold. You want to be safe.
+ - Education is extremely important, especially in my business, the music business.
+ - I find myself eating different kinds of chicken each and every day, even if it’s by surprise.
+ - It’s a lot of crooked cops out there. They manipulate the system.
+ - Keep on complaining about slavery and that was over 40 to 50 years ago. You know, black folks need to move on.
+ - Spiritual is hooked up to the invisible umbilical cord of my Lord, Kumbiya.
+ - I made my first song when I was 9 years old. Just beating on garbage cans, having people beat box.
+ - A lot of beefs in the music industry are caused from miscommunication and just not really understanding what’s going on, having people in your ear saying this is what somebody did, or this is what somebody did to you.
+ - Get through the agony and anger, the pain and strife, and take the necessary steps to try to change my life.
+ - Some people put more into their cars than they put into their relationships.
+ - I’m just basically spillin’ out my emotions to the world. ‘Cause rap is about emotion. And I want you to feel what I’m feelin’, ’cause that’s what it’s all about.
+ - I love everything from old-school cars to whatever the latest muscle or luxury vehicles are.
+ - They call me Seymour Butts, cause I get more ass than most.
+ - Anytime I shoot a video, I just think of anything I can do to set myself apart from everybody in the music industry.
+ - Working through experience is best for me, just being there and trying to get into the mode.
+ - But it’s a blessing to be so successful within a year; it’s the greatest feeling in the world, making money and doing the things that I’m doing, and I definitely trying to continue doing what I’m doing.
+ - I’m a perfectionist, so I always feel there’s room for improvement.
+ - I used to be a video game freak, but I’ve kind of like eased back.
+ - Of course I have bills to pay, but at the same time, it’s more about the passion and the love, and I think that’s where music should come from, the heart, not necessarily just to cash a check.
+ - You don’t have that many women in the industry so the lane is wide open.
+ - Just me and my nuts, that’s all I got in this world.
+ - It don’t take a lot to make me happy. I’m not spoiled like that.
+ - It’s a drought in your brain.
+ - Im always in that mode – whenever I have a little free time, Im always recording songs, writing, whatever I gotta do. Its like my job is my vacation.
+ - I’m a part of the no-tight-jeans coalition.
+ - When you open up your mouth, everything of God comes out and it commands attention, it commands change. I’m talking about the power that’s inside of you.
+ - I think every album you have to stretch further and further, give people another piece of you. But then I always try to deviate from the norm.
+ - The hip-hop community is made up of a lot of hustlers. Everybody is trying to get theirs, and everybody is trying to eat.
+ - Why is everything that is bad for me feel so good?
+ - I’ve been trying to nail it into everyone’s heads that I feel like I am the most versatile rapper.
+ - I’ve never been a cocky individual, but I am very confident.
+ - I would show up at any venue that had an open mic.
+ - I really love when people come up to me on the street and say, ‘You’re my favorite rapper.’
+ - I think it does give me different stuff and I feel like television moves a lot faster than movie sets do. It’s kinda like they have to get things done within a certain timeframe. So do movies but it seems like, as far as television is concerned, it just moves a helluva lot faster.
+ - I always look for something that I haven’t necessarily done yet because I like to expand my body of work.
+ - Put them in position to make their wishes come true, so they can have multiple accounts that gain interest over night.
+
+57 quotes

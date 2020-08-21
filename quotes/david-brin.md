@@ -1,0 +1,56 @@
+ - When it comes to privacy and accountability, people always demand the former for themselves and the latter for everyone else.
+ - The best time to act on this was decades ago. The second best time is now.
+ - It is said that power corrupts, but actually it’s more true that power attracts the corruptible. The sane are usually attracted by other things than power.
+ - Creative people see Prometheus in a mirror, never Pandora.
+ - If you believe you can make a living as a writer, you already have enough ego.
+ - You don’t have conversations with microprocessors. You tell them what to do, then helplessly watch the disaster when they take you literally!
+ - Beware of assumptions that seem “obvious” in one decade. They may become quaint in the next.
+ - The fundamental premise of sci-fi is not spaceships and lasers – it’s that children can learn from the mistakes of their parents.
+ - Only people with full stomachs become environmentalists.
+ - Self-righteous people can talk themselves into forgetting they are part of a civilization. They can then feed on that culture, bringing it down. It’s happened many times in the past. It could happen to us.
+ - I like to be surprised. Fresh implications and plot twists erupt as a story unfolds. Characters develop backgrounds, adding depth and feeling. Writing feels like exploring.
+ - If you have other things in your life-family, friends, good productive day work-these can interact with your writing and the sum will be all the richer.
+ - If an outsider perceives ‘something wrong’ with a core scientific model, the humble and justified response of that curious outsider should be to ask ‘what mistake am I making?’ before assuming 100% of the experts are wrong.
+ - Ideologies are too seductive anyway. It does a man good to see things from a different point of view.
+ - Self-awareness is probably overrated. A complex, self-regulating system doesn’t need it in order to be successful, or even smart.
+ - Everything isn’t subjective. Reality also matters. Truth matters. It is still a word with meaning.
+ - In the book, America had already been weakened by bio terror plagues before waves of selfish violence took down the rest. But the real enemy was the kind of male human being who nurses fantasies of violent glory at the expense of his fellow citizens.
+ - The sane are usually attracted by other things than power.
+ - Patience is fine, but I’m not going to stop asking the Universe to make sense!
+ - Why must conversions always come so late? Why do people always apologize to corpses?
+ - Where subtlety fails us we must simply make do with cream pies.
+ - The village is coming back, like it or not.
+ - Petals floating by, Drift through my woman’s hand, As she remembers me.
+ - We already live a very long time for mammals, getting three times as many heartbeats as a mouse or elephant. It never seems enough though, does it?
+ - Fortunately, human beings are remarkably diverse models to work from.
+ - Change is the principal feature of our age and literature should explore how people deal with it. The best science fiction does that, head-on.
+ - Gaia spins on, silently contemplating what it means to be born into a sarcastic universe.
+ - Cultural contamination that is directed outward is always seen as ’enlightenment.
+ - When I begin a book, I inevitably discover many things along the way, about the characters, their past histories and the political intrigues that surround them. This discovery process is vital, and I would not prejudice it by deciding too much in advance.
+ - Many people have tried to define science fiction. I like to call it the literature of exploration and change. While other genres obsess upon so-called eternal verities, SF deals with the possibility that our children may have different problems. They may, indeed, be different than we have been.
+ - In the end, the work of diplomats continues even while others fight. So, it’s not necessarily true that everyone needs to march.
+ - Prison for the crime of puberty – that was how secondary school had seemed.
+ - My education and background thoroughly inform my writing.
+ - Science Fiction is the jazz of literature.
+ - What point was there in pursuing an ever-elusive popularity?
+ - With gritty action and realistic science, Peter Watts brings to life a dark and vivid world.
+ - It’s how creativity works. Especially in humans. For every good idea, ten thousand idiotic ones must first be posed, sifted, tried out, and discarded. A mind that’s afraid to toy with the ridiculous will never come up with the brilliantly original.
+ - The three basic material rights – continuity, mutual obligation, and the pursuit of happiness.
+ - A neurosis defends itself by coming up with rationalizations to explain away bizarre behavior.
+ - There’s no doubt that scientific training helps many authors to write better science fiction. And yet, several of the very best were English majors who could not parse a differential equation to save their lives.
+ - I find humans tremendously interesting.
+ - But honestly, if you do a rigorous survey of my work, I’ll bet you’ll find that biology is a theme far more often than physical science.
+ - But it is a delightful challenge to try to depict interesting aliens.
+ - One of the rules I try to follow is that normal people are going to be involved even in heroic events.
+ - Seldom does a storytelling talent come along as potent and fully mature as Mike Brotherton. His complex characters take you on a voyage that is both fiercely credible and astonishingly imaginative. This is Science Fiction.
+ - Change is the very fabric of our time.
+ - I would normally never set out to write a trilogy.
+ - In all of history, we have found just one cure for error – a partial antidote against making and repeating grand, foolish mistakes, a remedy against self-deception. That antidote is criticism.
+ - History and geology show what an eyeblink it’s been since our current, comfortable culture came about. And yet that culture is using up absolutely everything at a ferocious rate.
+ - Alas, criticism has always been what human beings, especially leaders, most hate to hear.
+ - Learn to control ego. Humans hold their dogmas and biases too tightly, and we only think that our opponents are dogmatic! But we all need criticism. Criticism is the only known antidote to error.
+ - I regret having been the bearer of ambiguous tidings.
+ - Anyone who wants simple, pat stories should buy another author’s product. The real universe ain’t that way, and neither are my fictive ones.
+ - It is a paradox of Life that all species breed past mere replacement. Any paradise of plenty soon fills to become paradise no more.
+
+54 quotes

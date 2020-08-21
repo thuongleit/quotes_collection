@@ -1,0 +1,215 @@
+ - Rare is the union of beauty and purity.
+ - Give them bread and circuses and they will never revolt.
+ - But who guards the guardians?
+ - Quis custodiet ipsos custodes? – Who will watch the watchers?
+ - A sound mind in a sound body is a thing to be prayed for.
+ - Revenge is always the weak pleasure of a little and narrow mind.
+ - Dare to do things worthy of imprisonment if you mean to be of consequence.
+ - Here we all live in a state of ambitious poverty.
+ - A lucky man is rarer than a white crow.
+ - Bad men hate sin through fear of punishment; good men hate sin through their love of virtue.
+ - Peace visits not the guilty mind.
+ - Never does nature say one thing and wisdom another.
+ - There is no reliance to be placed on appearance.
+ - Never does nature say one thing and Wisdom another. Variant: Wisdom and Nature! are they not the same? Variant: Nature and Wisdon always speak alike.
+ - You should pray for a healthy mind in a healthy body.
+ - Revenge is sweeter than life itself. So think fools.
+ - Astrology reveals the will of the gods.
+ - Everything is Greek, when it is more shameful to be ignorant of Latin.
+ - For women’s tears are but the sweat of eyes.
+ - An incurable itch for scribbling takes possession of many, and grows inveterate in their insane breasts.
+ - The pupil will eclipse his tutor, I warrant.
+ - Who watches the watchmen?
+ - The guilty are alarmed and turn pale at the slightest thunder.
+ - We are too quick to imitate depraved examples.
+ - No other protection is wanting, provided you are under the guidance of prudence.
+ - Let him love none and be by none beloved!
+ - If you are capable of submitting to insult you ought to be insulted.
+ - No one ever became thoroughly bad in one step.
+ - The itch of scribbling.
+ - It is difficult not to write satire.
+ - She knows no difference ’twixt head and privities who devours immense oysters at midnight.
+ - The greatest respect is owed to a child.
+ - A rare bird upon the earth and very much like a black swan.
+ - Now we suffer the evils of a long peace; luxury more cruel than war broods over us and avenges a conquered world.
+ - All wish to possess knowledge, but few, comparatively speaking, are willing to pay the price.
+ - One path alone leads to a life of peace. The path of virtue.
+ - Many commit the same crime with a very different result. One bears a cross for his crime; another a crown.
+ - Dat veniam corvis, vexat censura columbas. – Censure acquits the raven, but pursues the dove.
+ - Hold it the greatest sin to prefer existence to honour, and for the sake of life to lose the reasons for living.
+ - Like warmed-up cabbage served at each repast, The repetition kills the wretch at last.
+ - Be a gentleman farmer.
+ - Seldom do people discern eloquence under a threadbare cloak.
+ - The arrows are from her dowry.
+ - A man’s word Is believed just to the extent of the wealth in his coffers stored.
+ - Already long ago, from when we sold our vote to no man, the People have abdicated our duties; for the People who once upon a time handed out military command, high civil office, legions – everything, now restrains itself and anxiously hopes for just two things: bread and circuses.
+ - Many individuals have, like uncut diamonds, shining qualities beneath a rough exterior.
+ - Some men make money not for the sake of living, but ache In the blindness of greed and live just for their fortune’s sake.
+ - Poverty is bitter, but it has no harder pang than that it makes men ridiculous.
+ - Let the straight-limbed laugh at the club-footed, the white skinned at the blackamoor.
+ - Satire is what closes Saturday night.
+ - There’s no effrontery like that of a woman caught in the act; her very guilt inspires her with wrath and insolence.
+ - A man who has nothing can whistle in a robber’s face.
+ - Nature and wisdom always say the same.
+ - Who’d bear to hear the Gracchi chide sedition?
+ - A woman is most merciless when shame goads on her hate.
+ - It is unmistakable madness to live in poverty only to die rich.
+ - A child is owed the greatest respect; if you have ever have something disgraceful in mind, don’t ignore your son’s tender years.
+ - The greatest reverence is due to a child! If you are contemplating a disgraceful act, despise not your child’s tender years.
+ - It is sheer madness to live in want in order to be wealthy when you die.
+ - Make all fair allowance for the mistakes of youth.
+ - There is nothing worse than words of kindness that lie.
+ - Everything in Rome has its price.
+ - To gain a livelihood at the expense of all that makes life worth the having.
+ - A third heir seldom enjoys what has been dishonestly acquired.
+ - The greatest hardship of poverty is that it tends to make men ridiculous.
+ - Autumn is the harvest of greedy death.
+ - The fisherman could perhaps be bought for less than the fish.
+ - No man becomes bad all at once.
+ - A hairy body, and arms stiff with bristles, give promise of a manly soul.
+ - Wisdom triumphs over chance.
+ - There’s a lust in man, no charm can tame, of loudly publishing our neighbor’s shame.
+ - The sweetest pleasures soonest cloy, And its best flavour temperance gives to joy.
+ - Death alone discloses how insignificant are the puny bodies of men.
+ - Examples of vicious courses practiced in a domestic circle corrupt more readily and more deeply when we behold them in persons in authority.
+ - By his own verdict no guilty man was ever acquitted.
+ - Great power which incites great envy, hurls some men to destruction; they are drowned in a long splendid stream of honors.
+ - Luxury is more deadly than any foe.
+ - Seek not to shine by borrow’d lights alone.
+ - To lay down one’s life for the truth.
+ - Common sense among men of fortune is rare.
+ - Even savage animals can agree among themselves.
+ - Lost money is bewailed with deeper sighs Than friends, or kindred, and with louder cries.
+ - Wisdom is the winner over good luck.
+ - Give up all hope of peace so long as your mother-in-law is alive.
+ - Writing in the incurable itch that possesses many.
+ - No wicked man knows happiness, and least of all the seducer of others.
+ - All wish to know, but few the price will pay.
+ - Of what use are pedigrees, or to be thought of noble blood, or the display of family portraits, O Ponticus?
+ - Led on by impulse, and blind and ungovernable desires.
+ - There is hardly a case in which the dispute was not caused by a woman.
+ - Let nothing offensive to the ear or the eye enter these thresholds, within which youth dwells.
+ - Rare indulgence produces greater pleasure.
+ - Those who desire to become rich, desire it at once.
+ - What man have you ever seen who was contented with one crime only?
+ - Beasts of like kind will spare those of kindred spots.
+ - From the disease of one the whole flock perishes.
+ - Every crime will bring remorse to the man who committed it.
+ - Have the courage to do something which deserves transportation if you want to be somebody.
+ - Honesty is praised and left in the cold.
+ - Remote though your farm may be, It’s something to be the lord of one green lizard-and free.
+ - Now that no one buys our votes, the public has long since cast off its cares; for the people that once bestowed commands, consulships, legions, and all else, now meddles no more and longs eagerly for just two things – bread and circuses.
+ - All things may be bought in Rome with money.
+ - The love of money grows as the money itself grows.
+ - Wisdom overcomes fortune.
+ - He who meditates a crime secretly within himself has all the guilt of the act.
+ - Whenever fortune wishes to joke, she lifts people from what is humble to the highest extremity of affairs.
+ - Men who only live to eat.
+ - Many have an irresistible itch for writing.
+ - Be gentle with the young.
+ - What day is so festal it fails to reveal some theft?
+ - He who wishes to become rich wishes to become so immediately.
+ - Remorse is the fruit of crime.
+ - Nothing is so intolerable as a woman with a long purse.
+ - For He, who gave this vast machine to roll, Breathed Life in then, in us a Reasoning Soul; That kindred feelings might our state improve, And mutual wants conduct to mutual love.
+ - Refrain from doing ill; for one all powerful reason, lest our children should copy our misdeeds; we are all too prone to imitate whatever is base and depraved.
+ - Luck often raises vulgarity to a high position, to create mirth for the beholders.
+ - Travelers with naught sing in the robber’s face.
+ - The tongue is the vile slave’s vilest part.
+ - Man, wretched man, whene’er he stoops to sin, Feels, with the act, a strong remorse within.
+ - Rarely do we meet in one combined, a beauteous body and a virtuous mind.
+ - It is sheer folly when all is gone to lose even one’s passage money.
+ - An undying hatred, and a wound never to be healed.
+ - Tears ready to do duty at a minute’s notice.
+ - Every great house is full of haughty servants.
+ - Pleasures are enhanced by a moderate indulgence.
+ - Who is to guard the guards themselves?
+ - Few people can distinguish the genuinely good from the reverse.
+ - There will he nothing more that posterity can add to our immoral habits; our descendants must have the same desires and act the same follies as their sires. Every vice has reached its zenith.
+ - An excess of hoarded wealth is the death of many.
+ - There are many things which may not be uttered by men in threadbare coats.
+ - When your armour is on, it is too late to retreat.
+ - This is his first punishment, that by the verdict of his own heart no guilty man is acquitted.
+ - The act of God injures no one.
+ - They whose sole bliss is eating can give but that one brutish reason why they live.
+ - Today there’s more fellowship among snakes than among mankind. Wild beasts spare those with similar markings.
+ - We do not commonly find men of superior sense amongst those of the highest fortune.
+ - There is never a lawsuit but a woman is at the bottom of it.
+ - One gets a cross for his crime, the other a crown.
+ - When the mischief is done the door is shut.
+ - It is not easy for men to rise whose qualities are thwarted by poverty.
+ - In the present state of the world it is difficult not to write lampoons.
+ - I only feel, but want the power to paint.
+ - Drooping along the ground the vine misses its widowed elm.
+ - See the effect of commercial intercourse.
+ - The smell of profit is clean and sweet, whatever the source.
+ - The abuse of cabmen in a block.
+ - To have slaved so many years for nothing!
+ - The care of a large estate is an unpleasant thing.
+ - It is a wretched thing to rest upon the fame of others, lest, the supporting pillar being removed, the superstructure should collapse in ruin.
+ - The Sicilian tyrants never devised a greater punishment than envy.
+ - Nature confesses that she has bestowed on the human race hearts of softest mould, in that she has given us tears.
+ - No one every suddenly became depraved.
+ - The thirst after fame is greater than that after virtue; for who embraces virtue if you take away its rewards?
+ - He who wants to get rich wants to get rich quickly.
+ - Two things only the people actually desire: bread and circuses.
+ - O Poverty, thy thousand ills combined Sink not so deep into the generous mind, As the contempt and laughter of mankind.
+ - Conscience, the executioner, shaking her secret scourge.
+ - So much greater is our thirst for glory than for virtue.
+ - When great assurance accompanies a bad undertaking, such is often mistaken for confiding sincerity by the world at large.
+ - When did reason ever direct our desires or our fears?
+ - To keep up as good a cuisine as your father.
+ - Nothing is more audacious than these women when detected; they assume anger, and take courage from the very crime itself.
+ - The gods alone know, what kind of wife a man will have.
+ - I will have this done, so I order it done; let my will replace reasoned judgement.
+ - Do you expect, forsooth, that a mother will hand down to her children principles which differ from her own?
+ - Virture offers the only path in this life that leads to tranquility.
+ - It is a wretched thing to live on the fame of others.
+ - Only death reveals what a nothing the body of man is.
+ - Those things please more, which are more expensive.
+ - Majestic mighty Wealth is the holiest of our gods.
+ - But with what incessant and grievous ills is old age surrounded!
+ - The tongue is the worst part of a bad servant.
+ - Such men as fortune raises from a mean estate to the highest elevation by way of a joke.
+ - A pauper traveller will sing before a beggar.
+ - Of what avail are pedigrees?
+ - The examples of vice at home corrupt us more quickly and easily than others, since they steal into our minds under the highest authority.
+ - One globe seemed all too small for the youthful Alexander.
+ - The finishing stroke of all sorrow.
+ - Of the woes Of unhappy poverty, none is more difficult to bear Than that it heaps men with ridicule.
+ - Be rich for yourself and poor to your friends.
+ - What is more cruel than a tyrant’s ear?
+ - Every fault of the mind becomes more conspicuous and more guilty in proportion to the rank of the offender.
+ - The wise man sets bounds even to his innocent desires.
+ - Nature, in giving tears to man, confessed that he Had a tender heart; this is our noblest quality.
+ - The short bloom of our brief and narrow life flies fast away. While we are calling for flowers and wine and women, old age is upon us.
+ - It is but the weak and little mind that rejoices in revenge.
+ - Fond man! though all the heroes of your line Bedeck your halls, and round your galleries shine In proud display; yet take this truth from me – Virtue alone is true nobility!
+ - A third heir seldom profits by ill-gotten wealth.
+ - He will be the last to discover the disgrace of his house.
+ - Whatever is committed from a bad example, is displeasing even to its author.
+ - The face, not the woman is the attraction.
+ - Some men make fortunes, but not to enjoy them for, blinded by avarice, they live to make fortunes.
+ - No god is absent where prudence dwells.
+ - The man whose purse is empty can cheerfully sing before the robber.
+ - Many suffer from the incurable disease of writing, and it becomes chronic in their sick minds.
+ - Rarely they rise by virtue’s aid who lie plunged in the depth of helpless poverty.
+ - The love of popularity holds you in a vice.
+ - The only gain from the friendship of the great is a fine dinner.
+ - Vice deceives us when dressed in the garb of virtue.
+ - This is my wish, this is my command, my pleasure is my reason.
+ - From where can your authority and license as a parent come from, when you who are old, do worse things?
+ - This precept descended from Heaven: know thyself.
+ - Avarice increases with the increasing pile of gold.
+ - Yes, know thyself: in great concerns or small, be this thy care, for this, my friend, is all.
+ - All arts his own, the hungry Greekling counts; And bid him mount the skies, the skies he mounts.
+ - No one rejoices more in revenge than woman.
+ - When talent fails, indignation writes the verse.
+ - Few tyrants go down to the infernal regions by a natural death.
+ - The same dish cooked over and over again wears out the irksome life of the teacher.
+ - Savage bears agree with one another.
+ - The skilful class of flatterers praise the discourse of an ignorant friend and the face of a deformed one.
+ - Men who ape the saint and play the sinner.
+ - Where have you ever found that man who stopped short after the perpetration of a single crime?
+
+213 quotes

@@ -1,0 +1,74 @@
+ - My publicist told me not to talk about politics but, yes, I think we have a president who stole the election.
+ - Acting is like an addiction – once you start, you can’t stop.
+ - It’s good to overexpose yourself with work. But don’t expose yourself too much with the press.
+ - I grew up in the Lower East Side of New York.
+ - Pitching. You’re pitching yourself constantly which is probably why there are so many plays about sales. I think also it’s like life.
+ - I’m misrepresented as a scary person. I’m not. It’s all about my size and my eyebrows.
+ - I get panic attacks in big crowds.
+ - A lot of times in Hollywood you’re as good as your last job.
+ - Call me communist, but I think that’s something that everyone, regardless of their family’s income, has a right to, and I was fortunate enough to have a mother who felt that way as well.
+ - There’s the private persona and the public persona and the two shall never meet.
+ - I actually loved Winnipeg. Everyone told me I was going to hate it, but it was great.
+ - Flaws reveal a lot about a character and who people are. The flawed elements of a character are where I find their humanity. Those are the things I tend to identify with – the weaknesses. I don’t know why, but I identify with struggle more than with success.
+ - Don’t hit people; don’t let it get you too angry; remember that everything you do can and will be used against you. And take a breath and have some perspective.
+ - I am so used to being able to express myself from being an actor. So when people don’t understand me, I’m just completely lost.
+ - Someone very smart once said to me, “Steal, don’t borrow.” So if there’s anything good in anything anyone else does, it’s fair game. I think that everything I’ve ever done at some point is part of someone else’s legacy.
+ - I live with an 18-month-old Jack Russell named Chicken. He moved in about 15 months ago, and it was very hard at first because I work a lot and he doesn’t.
+ - I’m kind of an obsessive-compulsive person, like, neat obsessive.
+ - I’m drawn to people who share that sense of loss. All actors are trying to repair damaged relationships. I think that might be why I’ve been drawn to other actors.
+ - I think people respond to truthful, simple narrative, and the more you try to dress it up to try and do something else, the harder it is for people to relate to.
+ - The celebrity mill is so active these days that actors can make careers out of being themselves, and I don’t know that I want to. I think I’m just figuring out how to make a career out of not being myself. It’s hard.
+ - The funny thing is that I write and I act a lot about being Jewish, but I don’t really think about it as a regular person.
+ - I really don’t think there is anybody in the business with better eyes than Elijah Wood.
+ - Actors, you know, they’re often awkward people in real life.
+ - I think it’s really, really important to mix it up as an actor, to try to get as much kind of varied experience as you can, not only for your own personal growth as an actor but for the audience to keep them guessing about what you’re going to do.
+ - You watch a hockey game, and the hand-eye coordination and the speed is really miraculous; how those guys track the puck alone, just following it with their eyes.
+ - I was a writer. I just wasn’t a very good one. I was lucky enough to have a playwriting teacher who told me that I’d be a better actor than I would a playwright.
+ - Film is such a bizarre vehicle for acting. It’s such a bizarre experience. I don’t think you ever really get familiar with it. If you do get familiar with it, you’re probably not that good anymore.
+ - I want to forget what I’ve learned about the character, but the reality is that you can’t, because you’ve absorbed it. It’s there in that moment when you need it. The hard part is to trust it.
+ - No, I grew up admiring people who played ice hockey.
+ - And I think for me theres a lot of neurosis involved with where you should be or thinking about where you are all the time instead of being where you are.
+ - You always have to create the character from the ground up.
+ - You know, I have a deep, deep affinity for Dr. Suess.
+ - I’m not that interested in working with impervious people.
+ - If you are going to remake a film, you may as well remake a classic.
+ - I was always drawn to tough girls. I liked that domineering thing.
+ - I was always curious about motivation and intention, and really, that’s a lot of what acting is.
+ - If I’m doing my job as an actor, the audience knows everything I know about the character.
+ - I am struggling, though. It’s f-cking hard. So little sleep. It’s 23 hours and 59 minutes of exhaustion. They do one little thing in that last minute that is just so compelling and fascinating that it makes the other 23 hours and 59 minutes worthwhile.
+ - I’ve always been more interested in the audience than I have in the plays. I like that idea of all those people sitting in the dark together. It’s kind of fun.
+ - I don’t think I’ve ever been a huge target for the press, and I value that to a degree, because there’s a certain value for actors staying beneath the radar so they can play characters.
+ - And you know, I hate to admit this, but I don’t always think in terms of Shakespeare. When I eat, I do. When I’m at a restaurant, I’ll think, ‘Hmm, what would Macbeth have ordered?’
+ - I didn’t think that a career in theater was very realistic so I thought the only thing I could make money doing and still be somewhat artistic was, god help me, advertising.
+ - Where else do you find great directors? Acting is one of the places.
+ - Style, no matter how outrageous it is, is still an expression of someone’s personality. And my personality is somewhere stuck in the classics.
+ - If you fall in love with somebody you’re working with, fine, but wait till your project is over.
+ - Every girl I’ve gone out with has said something to me first.
+ - I find that the most interestingly written parts happen to be the bad guys.
+ - That’s one of the benefits of working on big budget films. You work with people who have a lot of experience and you get to learn a lot.
+ - Hamlet is a remarkably easy role. Physically it’s hard because it tends to be about three hours long and you’re talking the whole time. But it’s a simple role and it adapts itself very well, because the thing about Hamlet is, we all are Hamlet.
+ - I manage to hide in my movies.
+ - You can think about your career or you can think about your job. I like to think about my job.
+ - As soon as you know what you’re doing, you’re doing it wrong. That’s what I find with acting. As soon as it becomes padded, it becomes pat.
+ - Everyone assumes that novelists are smarter and more interesting. They’re generally smarter and more interesting, but they’re often very short. So it kind of cancels all the smart and interesting stuff out.
+ - I direct in the same way that I act, which is thinking about what the scene needs.
+ - Actors are as good as they allow themselves to be, and to portray life, you have to have as broad an experience of it as you possibly can, so everything’s worth it.
+ - I’m a typically lazy person. It is sort of characteristic of actors.
+ - I think New York will always be this incredible international crossroads, and I don’t think that will ever change.
+ - The best gig is the one you’ve got.
+ - Ever since I was a little kid I was obsessed with films, and I always wanted to make them.
+ - I am very good with dialects, but the two that I can’t do for some reason are the South African and Australian.
+ - I really do think that if you’re doing your job right, you’re never gonna be what the other actor was, but you can be influenced by his intelligence and his choices.
+ - I think that everything I’ve ever done at some point is part of someone else’s legacy.
+ - You should never ask actors about politics.
+ - I’m actually a very bad surfer, which is good because everybody likes a bad surfer. Nobody likes a good surfer.
+ - The skill set for hockey is so specific to skating and if you haven’t been skating as a kid it’s impossible to play – and I wasn’t a skater.
+ - Part of what I enjoy about the theatre and acting is that sense of history.
+ - I get very nervous around famous people and I get nervous around beautiful women.
+ - Some actors need to be rattled and some need to be focused.
+ - You are what you know, as an actor, so you gotta try to know as much as you possibly can.
+ - I love having that creative discussion where, at the end of the day, you both feel better for having done it. Maybe it’s a typically Jewish thing, where you sort of go at each other.
+ - Particularly with the plays I choose, they’re good parts, and they’re parts that have been around long before a bad actor played them, and will be around long after I play them. Part of what I enjoy about the theatre and acting is that sense of history.
+ - There’s something cathartic about swearing 150 times after spending ten hours in the editing room.
+
+72 quotes

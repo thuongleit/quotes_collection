@@ -1,0 +1,56 @@
+ - Watch to see where God is working and join Him in His work.
+ - Spiritual leadership is moving people on to God’s agenda.
+ - God is always at work around you.
+ - The reality is that the Lord never calls the qualified; He qualifies the called.
+ - If you feel weak, limited, ordinary, you are the best material through which God can work.
+ - To be loved by God is the highest relationship, the highest achievement, and the highest position in life.
+ - You cannot go with God and stay where you are.
+ - Missions is God finding those whose hearts are right with Him and placing them where they can make a difference for His kingdom.
+ - God’s commands are designed to guide you to life’s very best. You will not obey Him, if you do not believe Him and trust Him. You cannot believe Him if you do not love Him. You cannot love Him unless you know Him.
+ - Prayer is designed to adjust you to God’s will, not to adjust God to your will.
+ - God speaks through a variety of means. In the present God primarily speaks by the Holy Spirit, through the Bible, prayer, circumstances, and the church.
+ - It is impossible to worship God and remain unchanged.
+ - Revival is when God’s people return to God and God returns to them, and everyone sees the difference.
+ - You cannot stay where you are and go with God. You cannot continue doing things your way and accomplish God’s purpose in His ways. Your thinking cannot come close to God’s thoughts. For you to do the will of God, you must adjust your life to Him, His purposes, and His ways.
+ - If you know that God loves you, you should never question a directive from Him. It will always be right and best. When He gives you a directive, you are not just to observe it, discuss it, or debate it. You are to obey it.
+ - How you live your life is a testimony of what you believe about God.
+ - Jesus taught that your highest priority must be your relationship with Him. If anything detracts you from that relationship, that activity is not from God. God will not ask you to do something that hinders your relationship with Christ.
+ - We don’t choose what we will do for God; He invites us to join Him where He wants to involve us.
+ - If we function according to our ability alone, we get the glory; if we function according to the power of the Spirit within us, God gets the glory.
+ - When God spoke to Moses and others in the Old Testament, those events were encounters with God. An encounter with Jesus was an encounter with God for the disciples. In the same way an encounter with the Holy Spirit is an encounter with God for you.
+ - If you have trouble hearing God speak, you are in trouble at the very heart of your Christian experience.
+ - Don’t put labels on people. See them as people who Christ died for.
+ - When Holy God draws near in true revival, people come under terrible conviction of sin. The outstanding feature of spiritual awakening has been the profound consciousness of the Presence and holiness of God.
+ - If we walk with Him closely today, we’ll be in the center of His will tomorrow.
+ - The Christian never works toward victory, he always works FROM victory.
+ - All revival begins, and continues, in the prayer meeting. Some have also called prayer the “great fruit of revival.” In times of revival, thousands may be found on their knees for hours, lifting up their heartfelt cries, with thanksgiving, to heaven.
+ - We were not saved from our sin simply so that we would qualify for heaven. God delivered us so we would have a relationship with Him through which He could carry out His mission to redeem a lost world.
+ - You cannot stay the way you are and go with God.
+ - We’ve got to have a deep, intimate relationship with the Father if we’re going to lead like Jesus.
+ - Ultimately, leadership is more about ‘being’ than ‘doing.’
+ - It takes intentional effort to tune out every voice except God’s.
+ - What an incredible witness it is to a lost and fearful society when the Christian acts like a child of God, living under the loving sovereignty of the Heavenly Father.
+ - Revival is a divinely initiated work in which God’s people pray, repent of their sin, and return to a holy, Spirit-filled, obedient, love-relationship with God.
+ - We don’t realise how much the world has affected us. We put God in the background.
+ - A test of your love for God is to examine your love for others.
+ - God has a right to interrupt your life. He is Lord. When you accepted Him as Lord, you gave Him the right to help Himself to your life anytime He wants.
+ - The Christian needs to walk in peace, so no matter what happens they will be able to bear witness to a watching world.
+ - Nothing is more pathetic than having a small character in a big assignment. Many of us don’t want to give attention to our character, we just want the big assignment from God.
+ - Prayerless leaders are like ship captains without compasses; they can make their best guess at which direction to go, but they have no assurance they are heading the right way. Prayer keeps leaders focused on the one absolutely consistent factor in life – God.
+ - When we hear His call and respond accordingly, there will be no limit to what God can and will do through His people. But if we do not even recognize when He is speaking, we are in trouble at the very heart of our relationship to Him.
+ - Why is it that when we talk to God, it’s called ‘prayer,’ but when God speaks to us, it’s called schizophrenia?
+ - If things are getting darker, the problem is with us.
+ - The essence of sin is a shift from God centeredness to a self-centeredness. The essence of salvation is a denial of self, not an affirming of self.
+ - Regardless of what we say, it’s what we do that reveals what we as a church or individual actually believe about God and His will for us.
+ - God’s commands are designed to guide you to life’s very best.
+ - God doesn’t want people to do what they think is best: he wants them to do what he knows is best, and no amount of reasoning and intellectualizing will discover that.
+ - Wouldn’t it be a tragedy to get to the top of the ladder and find you placed it against the wrong wall?
+ - If you know that God loves you, you should never question a directive from Him.
+ - Teach yourself to thankfully receive all that God gives you as evidence of His love and faithfulness, and then you’ll find it easier to trust Him next time.
+ - The truth is that God can do anything He pleases through an ordinary person who is fully dedicated to Him.
+ - During true revival, thousands of lost people are suddenly swept into the Kingdom of God. Scenes of the lost coming to the Savior in great, and unprecedented numbers, are common.
+ - Our task is to relate our lives to God, and let Him work through us.
+ - People who make decisions based merely on what seems most advisable to them will inevitably choose something inferior to God’s best. Jesus, the ultimate model for the Christian life, did not rely on His own best thinking, but depended completely on His heavenly Father for wisdom in everything.
+ - Our difficulty is not that we don’t know God’s will. Our discomfort comes from the fact that we do know His will, but we do not want to do it.
+
+54 quotes

@@ -1,0 +1,29 @@
+ - Joy is not necessarily the absence of suffering, it is the presence of God.
+ - The ultimate goal of theology isn’t knowledge, but worship.
+ - God created us so that the joy He has in Himself might be ours. God doesn’t simply think about Himself or talk to Himself. He enjoys Himself! He celebrates with infinite and eternal intensity the beauty of who He is as Father, Son, and Holy Spirit. And we’ve been created to join the party!
+ - God is most glorified in us when our knowledge and experience of Him ignite a forest fire of joy that consumes all competing pleasures and He alone becomes the treasure that we prize.
+ - God created you for the first and greatest commandment, to be a lover of God.
+ - Grace ceases to be grace if God is compelled to bestow it in the presence of human merit.
+ - Enjoy the joy of being enjoyed by God.
+ - Everything without God is pathetically inferior to God without everything.
+ - God does not reveal information by communication: He reveals Himself by communion. Revelation is a personal meeting of God with man. It is a meeting of mind with mind or person with person.
+ - Self-image, the concept we have of ourselves, must begin not by looking in the mirror but by looking into the face of God.
+ - Grace is God satisfying our souls with His Son so that we’re ruined for anything else!
+ - The focus of Satan’s efforts is always the same: to deceive us into believing that the passing pleasures of sin are more satisfying than obedience.
+ - Whatever and whenever God blesses, Satan curses. What God creates, Satan counterfeits.
+ - I simply define glory as the beauty of God unveiled. Glory is the resplendent radiance of His power and His personality. Glory is all of God that makes God God, and shows Him to be worthy of our praise and our boasting and our trust and our hope and our confidence and our joy.
+ - Worship is not about my enjoyment. It is about my enjoyment of God. It is not about my pleasure or my delight or my satisfaction. It is about my pleasure, delight, and satisfaction in God. Worship is not simply about glorifying God. It is about glorifying God by enjoying Him forever.
+ - Where there is no fruit, there may be no root.
+ - God’s creative design was that your ravenous appetite for pleasure find fulfillment in Him, for nothing more wonderfully reveals His glory than the joy the creature has in its Creator.
+ - The essence of loving living as a follower of Jesus isn’t in trying harder but in enjoying more. I’m not saying you can change without trying. I’m saying that enjoyment empowers effort. Pleasure in God is the power for purity.
+ - The inspiration and authority of the Bible is the bedrock upon which our faith is built. Without it, we are doomed to uncertainty, doubt, and a hopeless groping in the darkness of human speculation.
+ - Sin turns ugly and is subject to defeat only when seen in the light of Christ’s beauty.
+ - If your reason for worshipping God is merely from a sense of moral duty, God would rather you not worship Him at all. To say that God is pleased with worship that lacks passion is to say God endorses hypocrisy.
+ - The only reason integrity should be a burden to you is if you enjoy being dishonest.
+ - Adultery is an obvious violation of the rights of another. You are stealing what doesn’t belong to you.
+ - To say that worship is either about glorifying God or finding personal satisfaction is to put asunder what God has joined together. His glory and your gladness are not separate tracks moving in opposite directions. Rather His glory is in your gladness in Him.
+ - Our giving is but a reflex of God’s giving.
+ - The single most important principle I ever discovered is this: the goal or purpose of the Christian is precisely the pursuit of happiness – in God. The reason for this is that there is no greater way to glorify God than to find in Him the happiness that my soul so desperately craves.
+ - You need never fear feeling too good about God.
+
+27 quotes

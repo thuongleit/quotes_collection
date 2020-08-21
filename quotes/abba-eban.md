@@ -1,0 +1,23 @@
+ - Tragedy is the difference between what is and what could have been.
+ - Palestinians never miss an opportunity to miss an opportunity.
+ - History teaches us that men and nations behave wisely once they have exhausted all other alternatives.
+ - If Algeria introduced a resolution declaring that the earth was flat and that Israel had flattened it, it would pass by a vote of 164 to 13 with 26 abstentions.
+ - Better to be disliked than pitied.
+ - You can’t achieve anything without getting in someone’s way. You can’t be detached and effective.
+ - Playing the game I have learned the meaning of humility. It has given me an understanding of futility of the human effort.
+ - A consensus means that everyone agrees to say collectively what no one believes individually.
+ - His ignorance is encyclopedic.
+ - Israel is not an aviary.
+ - The Jews are the living embodiment of the minority, the constant reminder of what duties societies owe their minorities, whoever they might be.
+ - A statesman who keeps his ear permanently glued to the ground will have neither elegance of posture nor flexibility of movement.
+ - Tragedy is not what men suffer but what they miss.
+ - I think that this is the first war in history that on the morrow the victors sued for peace and the vanquished called for unconditional surrender.
+ - Zionism is nothing more, but also nothing less, than the Jewish People’s sense of origin and destination in the Land linked eternally with its name. It is also the instrument whereby the Jewish Nation seeks an authentic fulfillment of itself.
+ - One of the chief tasks of any dialogue with the Gentile world is to prove that the distinction between anti-Semitism and anti-Zionism is not a distinction at all.
+ - Salvation, the prophets tell us, is preconditioned by repentance. The redeeming act of God waits upon man’s initiative.
+ - It is our experience that political leaders do not always mean the opposite of what they say.
+ - Lest Arab governments be tempted out of sheer routine to rush into impulsive rejection, let me suggest that tragedy is not what men suffer but what they miss.
+ - Consensus is what many people say in chorus but do not believe as individuals.
+ - A nation writes its history in the image of its ideal.
+
+21 quotes

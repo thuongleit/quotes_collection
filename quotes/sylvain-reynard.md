@@ -1,0 +1,48 @@
+ - Don’t wait too long. Life takes unexpected turns, and we don’t always have the time we think we have.
+ - I know you loved me. I just don’t understand why you didn’t love me enough to stay.
+ - You blossom under kindness, don’t you? Like a rose.
+ - For the rest of my life, I’ll dream of hearing your voice breathe my name.
+ - I love you far too much, I’m sure. But I don’t know how to love you any other way.
+ - I found my hope when I found you.
+ - I’ve always had a terrible weakness for beautiful but sad things.
+ - For if you truly believe that kindness is never wasted, you have to hold tightly to that belief even when the kindness is thrown back in your face.
+ - Never be ashamed to accept a gift when there are no strings attached.
+ - Everyone wants to know where evil comes from and why the world is riddled with it. Why doesn’t anyone ask where goodness comes from?
+ - Truth sets one free, but love casts out fear.
+ - I want to be your first and your last. I love you, Julianne. I offer you my heart and my life.
+ - If I have a soul, it’s yours.
+ - Gabriel kissed Julia as if he knew her, as if she belonged to him. His kiss was passionate and full of emotion, as if every fiber of his being had melted and spread itself on his lips only to be given to her.
+ - If you still believe, you must have hope. You must believe that happiness is possible for you too.
+ - I want to make love to you because I care about you. I want to worship your naked body with my own and learn all of your secrets. I want to please you, not for minutes, but for hours and even days. I want to see you arch your back in ecstasy and look into your eyes when I make you come.
+ - Look at me. I want to see your eyes when you come.
+ - Bad things happen to everyone. Not that this was an excuse or a justification for wronging another human being. Still, all humans had this shared experience – that of suffering. No human being left this world without shedding a tear, or feeling pain, or wading into the sea of sorrow.
+ - No relationship is absolutely reciprocal. Sometimes, when couples try to split everything in half, they discover that the relationship is not a partnership but a bean counting exercise. Striving for reciprocity in a relationship can be unhealthy.
+ - After all we’ve shared, I just want to hold you and be close. Rest in my arms and know that I love you.
+ - You are my sticky little leaf. My beautiful, sad, sticky little leaf, and I want to see you happy and whole.
+ - Love is doing a kindness for someone else, not expecting to receive anything in return.
+ - When a man kneels before a woman, it’s a gesture of chivalry. When a woman kneels before a man, it’s unseemly.
+ - Then you haven’t lost your soul. Only a creature with a soul can tell the difference between right and wrong. Yes, you’ve made mistakes, but you feel guilt. You feel remorse. And if you still have your soul, you haven’t lost your chance at redemption.
+ - You are my water. Making love with you is all I need to quench my thirst. Why would I throw this away for water from the ocean?
+ - I’ll love you forever Julianne, whether you love me or not. That’s my heaven. And my Hell.
+ - Scars might heal and we might forget about them in time, but they’re permanent. Not even Jesus lost his scars.
+ - I’m going to be thrown out of Paradise tomorrow, Beatrice. Our only hope is that you find me afterward. Look for me in Hell.
+ - I wandered in the darkness looking for something better, something real. I found you, and I’ll be damned if I’m going to lose you.
+ - Julianne Mitchell, I love you too.
+ - When I told you that I was intending to worship you with my body, I meant it. With all my heart. I will never take from you. I will only give. In my bed and outside of it.
+ - You can’t do it, can you? Your skin remembers me, and so does your heart. You told them to forget, but they can’t. Remember me, Beatrice. Remember your first.
+ - She is not my equal; she is my better. She is my sticky little leaf.
+ - My Dearest Julianne, Thank you for your immeasurable gift. The only thing I have of value is my heart. It’s yours, Gabriel.
+ - A lion in charge of wolves, she thought. How convenient.
+ - Being without you, Julianne, is like enduring an endless night without stars.
+ - Everything is up to you. You can rescue me or banish me with a single word.
+ - All believers are hypocrites because none of us live up to our beliefs.
+ - And the Angelfucker makes his move.
+ - Your the closest thing to an angel I’ll ever touch.
+ - My Dear Julianne, If you wish to know how I feel about you, just ask me. Yours, Gabriel.
+ - Who’s the Angelfucker now?
+ - Sin isn’t something that is attracted to a human being, Professor. It’s the other way around.
+ - I want you forever, not just for tonight.
+ - All the money in the world cannot pay for a life.
+ - That was before I decided to bring an angel to my bed.
+
+46 quotes

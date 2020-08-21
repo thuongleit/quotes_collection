@@ -1,0 +1,26 @@
+ - Education is essential to change, for education creates both new wants and the ability to satisfy them.
+ - Men in authority will always think that criticism of their policies is dangerous. They will always equate their policies with patriotism, and find criticism subversive.
+ - Whether history will judge this war to be different or not we cannot say. But this we can say with certainty: A government and a society that silences those who dissent is one that has lost its way.
+ - Change does not necessarily assure progress, but progress implacably requires change.
+ - Every effort to confine Americanism to a single pattern, to constrain it to a single formula, is disloyalty to everything that is valid in Americanism.
+ - The Bill of Rights was not written to protect governments from trouble. It was written precisely to give the people the constitutional means to cause trouble for governments they no longer trusted.
+ - History is a jangle of accidents, blunders, surprises and absurdities, and so is our knowledge of it, but if we are to report it at all we must impose some order upon it.
+ - Freedom is not a luxury that we can indulge in when at last we have security and prosperity and enlightenment; it is, rather, antecedent to all of these, for without it we can have neither security nor prosperity nor enlightenment.
+ - America was born of revolt, flourished on dissent, became great through experimentation.
+ - The English love for privacy is proverbial, and has not been exaggerated. A stranger who strikes up a conversation is looked upon with suspicion – unless he happens to be an American, when his ignorance of good manners is indulged.
+ - If our democracy is to flourish, it must have criticism; if our government is to function it must have dissent.
+ - And we wonder what can be that ‘philosophy of education’ which believes that young people can be trained to the duties of citizenship by wrapping their minds in cotton wool.
+ - To yearn for a single, and usually simple, explanation of the chaotic materials of the past, to search for a single thread in that most tangled of all skeins, is a sign of immaturity.
+ - We should not be surprised that the Founding Fathers didn’t foresee everything, when we see that the current Fathers hardly ever foresee anything.
+ - History is organized memory, and the organization is all important!
+ - Our best people don’t go into politics.
+ - Its awfully hard to be the son of a great man and also of a half-crazy woman.
+ - Censorship always defeats it own purpose, for it creates in the end the kind of society that is incapable of exercising real discretion.
+ - The justification and the purpose of freedom of speech is not to indulge those who want to speak their minds. It is to prevent error and discover truth. There may be other ways of detecting error and discovering truth than that of free discussion, but so far we have not found them.
+ - The greatest danger we face is not any particular kind of thought. The greatest danger we face is absence of thought.
+ - What every college must do is hold up before the young the spectacle of greatness.
+ - The Americans who framed our Constitution felt that without freedom of religion no other freedom counted.
+ - It is probably safe to say that over a long period of time, political morality has been as high as business morality.
+ - The greatest danger that threatens us is neither heterodox thought nor orthodox thought, but the absence of thought.
+
+24 quotes

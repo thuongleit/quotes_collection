@@ -1,0 +1,113 @@
+ - I believe in fate and what’s meant to be mine will be mine, and if it’s not in my lap, then it’s not mine.
+ - You screw me, I screw you back. I’m a lady like that.
+ - I’m honestly so grateful to have a job when I get a job, I’m always amazed – I just appreciate what I have when I get it.
+ - I think humor is the best gift, and if you can’t laugh at yourself, who can you laugh at?
+ - Convenience is not an acceptable foundational value for society. It’s a disease.
+ - I’d kiss a frog even if there was no promise of a Prince Charming popping out of it. I love frogs.
+ - I think we have to make our own rules. I don’t think we should live our lives in relationships based off of old traditions that don’t suit our world any longer.
+ - Your regrets aren’t what you did, but what you didn’t do. So I take every opportunity.
+ - I love to cry. It’s such a great release. If I’m just tired – jetlagged, I didn’t get any sleep, I want to cry. I think it’s important to cry.
+ - When I go out, I love steak and caviar.
+ - My Latin roots are very strong. All my life, because I’m blonde and blue-eyed, people who aren’t Hispanic can’t believe I am. And people who are Hispanic always think I’m not, because I don’t look like them. Being Latin is part of who I am and I bring that part to every role.
+ - I’m not ashamed of being a bubbly, funny person. I think that’s as valid as being the dark, brooding, tortured Oscar-nominated one.
+ - I love the feeling that you get when you can really laugh with a man and be natural and not always think that there’s a sexual element going on. For me, flirting with a man means making fun of myself and trying to open myself and be very unpretentious.
+ - I’ve been noticing gravity since I was very young.
+ - Comparison is a brutal assault upon one’s self. Once you compare yourself to someone else, what you’re really saying is that what you’re made of isn’t good enough.
+ - French fries. I love them. Some people are chocolate and sweets people. I love French fries. That and caviar.
+ - I think truth has no temperature.
+ - I’m living my life as a journey. My quest is to make it better every year.
+ - The last couple of years were hell. Like, I can’t even tell you, it was so hard. I didn’t know how to handle it. But I think I’m in a much better place now, because I stepped away for a second and took a breath. Hollywood is a funny place. It offers so much, but it can also take a lot away from you.
+ - I don’t say that I won’t do nudity for other people’s benefit. It has nothing to do with other people’s, it’s just what I’m comfortable with. I can’t say this enough, I’m totally comfortable with my body. I like my body, I don’t think it’s a bad thing, I think I have a nice body, I’m happy with it.
+ - It’s not talked about, but you know how girls, as you get older, your boobs sag? Well, as men get older, their balls hang lower. It’s called SBH: Senior Ball Hang. I think that’s God’s way of making sure guys get to feel insecure too.
+ - You don’t want to be photographed? You don’t want to be known? Then you don’t need to be out there peddling movies.
+ - What we women need to do, instead of worrying about what we don’t have, is just love what we do have.
+ - I don’t want to go to work and get into bed with someone else, not even Tom Cruise. It’s not like I enjoy it.
+ - Acting is something different to everybody. I just know that if you watch an actor or actress getting better and better, I think that’s them just understanding themselves better and better.
+ - I hate committing myself to anything. It’s probably the lack of discipline, honestly. I’m probably a spoiled brat worried about getting my way every time.
+ - I’m a jeans and T-shirt kind of girl.
+ - I don’t care how smart a kid you are. The only way you learn what’s not right is from experience.
+ - The British are so incestuous. They pass around partners like they’re passing popcorn at a movie.
+ - I think women are afraid to say that they don’t want children because they’re going to get shunned. But I think that’s changing too now. I have more girlfriends who don’t have kids than those that do. And honestly? We don’t need any more kids. We have plenty of people on this planet.
+ - We’ve all gone through some kind of betrayal, whether it’s with a boyfriend or a friend or a family member. That’s why this is so relatable to everybody because we all know what it feels like to feel that betrayal.
+ - It’s been nice not having a boyfriend. I could be in a relationship if I wanted to be, but I haven’t finished doing what I’m doing. I like boy, a lot. I’m boy crazy. That hasn’t changed since I was very young.
+ - It’s cute when you meet young boys and they’re bright red and breathing like they’ve run up the stairs, but they’re just sitting outside the door. I’ve had phone calls in the middle of the night when I stay at hotels.
+ - I will always want to do whatever it is that my heart is in, and whether I get paid for it or not means nothing. It doesn’t matter. I’ll do it if it means something to me and I want to be a part of it.
+ - I’m not really in any competition with anyone, I’m not in any race.
+ - I eat a cheeseburger with French fries almost every day.
+ - Every casting director I’ve met is a woman.
+ - I’ve pretty much behaved like a knucklehead my entire life.
+ - I have always had the same New Year resolutions: To stop smoking, to start wearing a bra, and to stop shopping.
+ - I have to remind my dad, ‘Journalists – no matter how many cigars they smoke with you – are not your friends, so don’t talk to them.’
+ - My dad always used to tell me that if they challenge you to an after-school fight, tell them you won’t wait-you can kick their ass right now.
+ - Intimacy starts with a relationship with yourself, an understanding of who you are.
+ - Grease is the only cure for a hangover.
+ - Sexuality and love can be different things. I can be attracted to a woman sexually, but it doesn’t mean I want to be in love with a woman. If I’m going to be with a woman sexually, it doesn’t mean I’m a lesbian. We put these restraints and definitions on people, but it’s hard to define.
+ - I believe there are many soul mates, because my soul has a lot of different facets and it needs a lot of different...
+ - I’m not looking for a husband or marriage or not not looking for that stuff. I’m living, not thinking what I should or shouldn’t be doing with my life.
+ - I want to be a big, fleshy voluptuous woman with curves. I want a big bum, but I don’t have one.
+ - There’s something about moonlight on the body and things happening sort of free and open. Outdoors is something I’m totally game and down for.
+ - I’m someone who loves to enjoy life and tries to focus on real things and real friendships. That’s why I live very simply.
+ - If you really want to torture me, sit me in a room strapped to a chair and put Mariah Carey’s records on.
+ - Don’t you know that when you sleep with someone, your body makes a promise whether you do or not.
+ - I’m like every other woman: a closet full of clothes, but nothing to wear: So I wear jeans.
+ - Crowds are the most difficult thing for me these days because I have to walk with my head down and my eyes averted. There’s still that part of me that wants to hold my head up, make eye contact and smile.
+ - For me, gratitude is the only attitude.
+ - You get kind of bored being in catalogues all the time.
+ - To me, that’s the wealth of my life: my friends and family and the experience I get to share with them.
+ - I had many years where I just worked from film to film to film. And then all of a sudden I went: “Where did I put my bags down? Where’s my little place I call home?”
+ - Acting allows me to tell a lot of stories, you know start at the beginning, finish at the end, and tell everything in between. Modelling is just an image.
+ - I have gratitude. I know myself better. I feel more capable than ever. And as far as the physicality of it, I feel better at 40 than I did at 25.
+ - Comparison is a brutal assault upon one’s self.
+ - You haven’t partied until you’ve partied at dawn in complete silence with Buddhist monks.
+ - When things are meant to come together, they come together.
+ - People think I’m trying to make a fashion statement because I never wear a bra. It’s really that I’m a tomboy at heart.
+ - I think that women are afraid to say they don’t want children because they’re going to get shunned.
+ - There’s a little part of you at all times that hopes to be somewhat objectified, and I think it’s healthy.
+ - Personally, I don’t like watching violence. I’d much rather see more skin.
+ - I would love a family. I’m at the age where the wish for a child gets stronger. But who knows.
+ - I think that anything that you do, any accomplishment that you make, you have to work for. And I’ve worked very hard in the last ten years of my life, definitely, and I can tell you that hard work pays off. It’s not just a cliche.
+ - I know that in my life my girlfriends are one of the most important relationships I have going through the good times and the bad times.
+ - I mean, I can get things done if I need to, but I can really be completely irresponsible and procrastinate until the very, very, very bitter end. In fact, sometimes I work better under pressure.
+ - Kids called me ‘Skeletor’ as a kid because I was so skinny.
+ - You have to really be able to trust the director. It’s about the filmmaker and whether or not I’m going to be able to have a relationship with them and want to follow them down that road, wherever it may lead.
+ - Women are capable of doing so many things these days, physically, emotionally, within relationships and career. There are so many things that women have evolved into and I feel really proud about where women are right now.
+ - The first country that I went to outside of America was Japan and I was completely shocked – especially since I was 16 and over there by myself. I was like: “I don’t get it; there’s nothing in English!”
+ - I’m a salty, greasy girl. I give every french fry a fair chance. Could you just lay some lard in my belly?
+ - Even if I loved the script, the director has to be right because it’s all about the filmmaker. It’s their vision. They’re the ones that go back into the editing room and reassemble the film.
+ - I think people get freaked out about getting married and spending 20 or 30 years sleeping with the same person, but if that’s the case, don’t do it. Have someone for 5 years and another person for another 5 years.
+ - I think story-telling is innate in human beings, it’s something that we’ve done since we scrawled across cave walls.
+ - I haven’t been worried about my image so much as I have been trying to find projects to push myself further than before.
+ - Friendships I think can also be soul mates.
+ - I think a lot of people are married to people that they’re not romantic with anymore. I just didn’t ever marry anybody that I then had to get divorced from. We break up. We move on.
+ - Sometimes I enjoy talking, but when it’s like people are trying to find something out about me, I don’t.
+ - I love Shirley Maclaine. Love that woman.
+ - I’m always jumping on a plane somewhere. With my lifestyle, I’m all over the place.
+ - I’m a pretty girl who’s a model who doesn’t suck as an actress.
+ - Believe me, you can get into a lot of trouble being sixteen years old in a foreign country with no adult telling you when to come home.
+ - I just love the fact that a man possesses something that a woman can never understand because we don’t have the experiences of it and that a woman possesses something that the man doesn’t understand because only she possesses it.
+ - I’ve always been a huge fan of Julia Roberts. Without her what would the world be like?
+ - Everything’s a risk, by the way, these days. Every film you make is a risk. There’s no guarantee.
+ - Usually, when it’s a story about three women all being involved with the same man, it ends in some eyeballs being scratched out and some weaves being snatched off.
+ - I was like, “Excuse me, guys. My ass is going to be facing this way. Do you mind maybe just standing over there during this take because something is going to happen.”
+ - One of the great things about being an actor is that you do get to indulge in someone else’s life.
+ - I grew up with a lot of boys. I probably have a lot of testosterone for a woman.
+ - What drives me is what I’m putting out into the world, and I like to make films that people can connect to, or they can escape in.
+ - It’s such a commitment, making a film, you’re really dedicated, it’s your life, that’s all you do for that period of your life.
+ - I can be attracted to a woman sexually, but it doesn’t mean I want to be in love with a woman.
+ - Garlicky chicken is the best breakfast in the world.
+ - I was a tough kid with the jeans, the concert shirt with the flannel over it, the comb in the back pocket and the feathered hair.
+ - Oftentimes, in fact I think this is to my fault, I look at usually scripts as a whole. I should probably pay more attention to the character that I’m going to play and what they do.
+ - I did all my heavy partying before I turned sixteen.
+ - I make films for myself, first and foremost, just because it is such a personal experience, and it’s something I really have to want to do and feel connected to.
+ - Script for an actor is like a bible. You carry it with you, you read it over and over, you go to your passages.
+ - Picking projects, it’s always director first and then script. Those two things are pretty much head-to-head.
+ - I don’t believe you should make fun of anyone but yourself.
+ - It’s really important in our society to tell stories, and I feel grateful and honoured that I get to do that in this day and age.
+ - I think I’ve become more comfortable about being a human being.
+ - I don’t even own a TV because I think it’s the devil.
+ - I do feel like there’s a spirit and a tone you can set that lets people know that they’re appreciated for being there. It’s a sense of spirit that I think every film should have.
+ - I’ve never been a fluffy sort of woman...
+ - I can’t wait to be that age and hanging out with a bunch of people hanging out all day playing golf and going to the beach, all my own age. We’d be laughing and having a good time and getting loopy on our prescription drugs. Driving golf carts around. I can’t wait.
+ - I never felt I had to prove myself with anything.
+
+111 quotes

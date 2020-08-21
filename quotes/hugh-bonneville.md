@@ -1,0 +1,22 @@
+ - I have an excellent internal compass.
+ - When you are in the eye of the storm, you are often not aware of the whiplash around you.
+ - At home I have a Tibetan terrier. I’m still not sure if he’s a genius or very thick. It’s a fine line.
+ - A typical Christmas is me shucking oysters. I love them and I always get them in at Christmas.
+ - I had girlfriends, but settling down was the last thing on my mind.
+ - I do realise how incredibly lucky I am.
+ - After World War II, the major estates really did collapse.
+ - I think any film that asks its audience a degree of tolerance and acceptance of those less fortunate than themselves isn’t a bad thing from whatever culture you’re in or from whatever part of any political spectrum.
+ - I certainly couldn’t run a big country house, nor could I organize the greatest show on earth.
+ - At 19, you know everything; by the time you’re 40, you haven’t got a clue.
+ - I’d love to retire somewhere like Winchester, where you have one foot on the pavement but a sense of being in the country as well.
+ - Am I athletic? In my dreams.
+ - Julian Fellowes doesn’t come to the set, except maybe once every six weeks, for whatever reason. He’s not a producer, in that sense. But if you write him a one-line question, he’ll write you a three-page answer.
+ - Certain stories that you want to see resolve in certain ways are, and some aren’t, but that’s life.
+ - The press mainly want to destroy a program by revealing what’s coming up. For some reason, soaps like doing that.
+ - I’ve often been the guy who doesn’t get the girl.
+ - I always try to look for the best in most places.
+ - I’ve had people come up to me in the past and say they enjoyed whatever show I’ve been in.
+ - Young people are so often dissed by the media.
+ - To go to the White House is a once-in-a-lifetime opportunity. In fact, the building is not that big.
+
+20 quotes

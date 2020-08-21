@@ -1,0 +1,23 @@
+ - I write like a two-year-old and I can’t spell.
+ - You couldn’t put a value on him, he’s on another planet. For me, Lionel Messi is undoubtedly the No.1 player in the world.
+ - Lionel Messi is the most amazing player I have ever seen.
+ - If you can’t pass the ball properly, a bowl of pasta’s not going to make that much difference!
+ - He’s disappeared to Azerbaijan, or somewhere ridiculous in the world.
+ - You come here to Anfield, you stand there and listen to that crowd, and it’s the greatest sight in football.
+ - It’s like being on the Titanic and seeing there’s only one lifeboat left.
+ - I don’t care about Christmas, we are going to train on Christmas Day.
+ - I’ve found myself on some days leaving home at three in the morning. I’m outside the training ground at five but they don’t open up until seven. I’m just sitting there, listening to the radio.
+ - I don’t think there is any place in football for drinking. I have said on several occasions to players: You don’t put diesel in a Ferrari.
+ - Samassi Abou don’t speak the English too good.
+ - I took Kanu on the Tuesday before the first game of the season because I never had any strikers. He said he hadn’t kicked a ball since last season and I asked him if he’d been training.
+ - David Bentley has got balls – and plenty of them.
+ - We’ve got sports scientists who insist it’s important for the lads to eat after games to refuel, even if it’s 2am. I used to refuel after games at West Ham until half past three in the morning in a different way – but then I’m old school.
+ - Luckily they had a stupid on their side too.
+ - What are they going to do, shoot me? It’s not war you know.
+ - He is not injured. He’s not fit. He’s not fit to play football, unfortunately. He played in a reserve game the other day and I could have run about more than he did. I can’t pick him.
+ - The only relaxed boss is Big Ron. He had me drinking pink champagne – before the match.
+ - When I heard the draw I was out on the golf course. I had an eight-iron in one hand and my mobile in the other. When we came out with United, my club went further than the ball.
+ - Paul Scholes should be included in England’s Euro 2012 squad.
+ - Thierry Henry is a fantastic professional and will be massive here in New York, i’m sure, he is world class.
+
+21 quotes

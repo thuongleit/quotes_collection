@@ -1,0 +1,28 @@
+ - Use soft words in hard arguments.
+ - Give and spend And God will send.
+ - Forgiveness is the noblest vengeance.
+ - Nature, time and patience are three great physicians.
+ - He that is master of himself will soon be master of others.
+ - He who knows himself best esteems himself least.
+ - He who has good health is young.
+ - Lawyers and painters can soon change white to black.
+ - Every potter praises his own pot.
+ - Every dog is a lion at home.
+ - A young trooper should have an old horse.
+ - Advantage is a better soldier than rashness.
+ - Business and action strengthen the brain, but too much study weakens it.
+ - He preacheth patience that never knew pain.
+ - Hunger finds no fault with the cookery.
+ - Friends are like fiddle strings; they must not be screwed too tight.
+ - Two blacks make no white; two wrongs do not make a right.
+ - Courage ought to have eyes as well as arms.
+ - A soldier is he whose blood makes the glory of the general.
+ - Good luck reaches farther than long arms.
+ - If you would wish the dog to follow you, feed him.
+ - He who commences many things finishes but few.
+ - The lawyer’s pouch is a mouth of hell.
+ - He that ceaseth to be a friend never was a good one.
+ - An inch in a man’s nose is much.
+ - Good is good, but better carrieth it.
+
+26 quotes

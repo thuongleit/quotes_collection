@@ -1,0 +1,43 @@
+ - Music is the silence between the notes.
+ - Works of art make rules; rules do not make works of art.
+ - Listen to no one's advice except that of the wind in the trees. That can recount the whole history of mankind.
+ - Art is the most beautiful deception of all. And although people try to incorporate the everyday events of life in it, we must hope that it will remain a deception lest it become a utilitarian thing, sad as a factory.
+ - Music is the arithmetic of sounds as optics is the geometry of light.
+ - There is nothing more musical than a sunset.
+ - Art is the most beautiful of all lies.
+ - I love music passionately. And because I love it I try to free it from barren traditions that stifle it.
+ - A beautiful sunset that was mistaken for a dawn.
+ - But music, don’t you know, is a dream from which the veils have been lifted. It’s not even the expression of a feeling, it’s the feeling itself.
+ - I wish to sing of my interior visions with the naive candour of a child.
+ - There is nothing is more musical than a sunset. He who feels what he sees will find no more beautiful example of development in all that book which, alas, musicians read but too little – the book of Nature.
+ - Music begins where words are powerless to express. Music is made for the inexpressible. I want music to seem to rise from the shadows and indeed sometimes to return to them.
+ - Anyone who calls my music “impressionist” is an imbecile.
+ - To complete a work is just like being present at the death of someone you love.
+ - There is no theory. You merely have to listen. Pleasure is the law.
+ - The century of airplanes has a right to its own music.
+ - People come to music to seek oblivion: is that not also a form of deception?
+ - Beauty seems to strike some people as a personal affront.
+ - Do not allow the accents in the brass to produce space between the notes.
+ - Music is the expression of the movement of the waters, the play of curves described by changing breezes.
+ - If I am not making music, I have no reason for existing.
+ - He was the incomparable painter of mystery, silence, and the infinite, of the passing cloud, and the sunlit shimmer of the waves-subleties which none before him had been capable of suggesting.
+ - Extreme complication is contrary to art.
+ - It is necessary to abandon yourself completely, and let the music do as it will with you. All people come to music to seek oblivion.
+ - On those who overanalyze his music: When you tear the wings off a butterfly, it is no longer a butterfly.
+ - In opera, there is always too much singing.
+ - Some people wish above all to conform to the rules, I wish only to render what I can hear. There is no theory. You have only to listen. Pleasure is the law.
+ - Collect impressions. Don’t be in a hurry to write them down. Because that’s something music can do better than painting: it can centralise variations of colour and light within a single picture a truth generally ignored, obvious as it is.
+ - Claude Debussy was a rare phenomenon a composer profoundly and subversively revolutionary...
+ - Beauty must appeal to the senses, must provide us with immediate enjoyment, must impress us or insinuate itself into us without any effort on our part.
+ - What I am trying to do is something different an effect of reality, but what some fools call Impressionism, a term that is usually misapplied, especially by the critics who don’t hesitate to apply it to Turner, the greatest creator of mysterious effects in the whole world of art.
+ - I am more and more convinced that music is not, in essence, a thing which can be cast into a traditional and fixed form. It is made up of colors and rhythms.
+ - The music I desire must be supple enough to adapt itself to the lyrical effusions of the soul and the fantasy of dreams.
+ - Is it not our duty to find the symphonic formula which fits our time, one which progress, daring and modern victory demand? The century of airplanes has a right to its own music.
+ - The age of automobiles and aeroplanes cannot express itself in the same manner as did the age of the diligence.
+ - First of all, ladies and gentlemen, you must forget that you are singers.
+ - How much has to be explored and discarded before reaching the naked flesh of feeling.
+ - The worship of Adonis is united with that of Christ .
+ - The century of aeroplanes deserves its own music. As there are no precedents, I must create anew.
+ - The attraction of the virtuoso for the public is very like that of the circus for the crowd. There is always the hope that something dangerous will happen.
+
+41 quotes

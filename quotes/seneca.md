@@ -1,0 +1,57 @@
+ - Luck is what happens when preparation meets opportunity.
+ - Throw me to the wolves and I will return leading the pack.
+ - We suffer more often in imagination than in reality.
+ - There is no genius without a touch of madness.
+ - While we wait for life, life passes.
+ - Associate with people who are likely to improve you.
+ - He who is brave is free.
+ - Difficulties strengthen the mind, as labor does the body.
+ - If a man knows not to which port he sails, no wind is favorable.
+ - Every new beginning comes from some other beginning’s end.
+ - Ignorance is the cause of fear.
+ - It is a rough road that leads to the heights of greatness.
+ - It’s not because things are difficult that we dare not venture. It’s because we dare not venture that they are difficult.
+ - No man was ever wise by chance.
+ - It is the power of the mind to be unconquerable.
+ - I am not born for one corner; the whole world is my native land.
+ - As long as you live, keep learning how to live.
+ - All cruelty springs from weakness.
+ - Only time can heal what reason cannot.
+ - Begin at once to live, and count each separate day as a separate life.
+ - Most powerful is he who has himself in his own power.
+ - Sometimes even to live is an act of courage.
+ - It is not the man who has too little, but the man who craves more, that is poor. 
+ - Life is long, if you know how to use it.
+ - Religion is regarded by the common people as true, by the wise as false, and by rulers as useful.
+ - You act like mortals in all that you fear, and like immortals in all that you desire.
+ - There is no easy way from the earth to the stars.
+ - As is a tale, so is life: not how long it is, but how good it is, is what matters.
+ - It is difficult to bring people to goodness with lessons, but it is easy to do so by example.
+ - What is harder than rock? What is softer than water? Yet hard rocks are hollowed out by soft water?
+ - Fate leads the willing and drags along the reluctant.
+ - Nothing is more honorable than a grateful heart.
+ - It is quality rather than quantity that matters.
+ - Enjoy present pleasures in such a way as not to injure future ones.
+ - Anger, if not restrained, is frequently more hurtful to us than the injury that provokes it.
+ - Life is like a play: it’s not the length, but the excellence of the acting that matters.
+ - To wish to be well is a part of becoming well.
+ - He suffers more than necessary, who suffers before it is necessary.
+ - It does not matter how many books you have, but how good the books are which you have.
+ - No man is crushed by misfortune unless he has first been deceived by prosperity.
+ - Injustice never rules forever.
+ - A sword never kills anybody; it is a tool in the killer’s hand.
+ - Wherever there is a human being, there is an opportunity for crisis.
+ - To be always fortunate, and to pass through life with a soul that has never known sorrow, is to be ignorant of one half of nature.
+ - Leisure without books is death, and burial of a man alive.
+ - He who spares the wicked injures the good.
+ - The best ideas are common property.
+ - If we could be satisfied with anything, we should have been satisfied long ago.
+ - Wealth is the slave of a wise man. The master of a fool.
+ - I shall never be ashamed of citing a bad author if the line is good.
+ - We cease to be so angry once we cease to be so hopeful.
+ - Hang on to your youthful enthusiasms – you’ll be able to use them better when you’re older.
+ - Everyone prefers belief to the exercise of judgement.
+ - A gift consists not in what is done or given, but in the intention of the giver or doer.
+ - The sun also shines on the wicked.
+
+55 quotes

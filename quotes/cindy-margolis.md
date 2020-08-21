@@ -1,0 +1,50 @@
+ - Infertility is this huge emotional roller coaster. If you want in your heart more than anything to have a baby, it’s the hardest thing you will ever go through physically, emotionally, and financially.
+ - There’s no such thing as an overnight success. It took me a long to get there.
+ - You have to believe in yourself, that you’re gonna succeed.
+ - I’m a Valley Girl. You can’t get me out of the Valley, I’m still here.
+ - So many celebrity websites you go to are so sterile that you know they just pay somebody to do it and there’s not even an ounce of them in it.
+ - Infertility costs an average of about $16-20,000 per procedure, and you don’t always get pregnant the first time. I had to go through it seven times. And adoption and surrogacy are not covered through insurance companies.
+ - You check the pregnancy test every month, and when it comes up negative it can start to wear on you.
+ - I have good feet but they always get cut off in photo shoots...
+ - A good photographer can make you look incredible, even when you’re not feeling very sexy.
+ - We have so many kids in America to be adopted, but it’s expensive. All these families that want children aren’t able to because of the financial aspect, and that, to me, is just the most disgusting thing ever.
+ - Makeup artists are always giving me their stuff. My favorite thing is free stuff. I’ll take anything.
+ - I really did put up all my wedding pictures on my website. And I swear to you, my wedding pictures got downloaded just as much as my bikini pictures.
+ - There’s so many celebrities now on the Internet and I feel that I was such a pioneer. Now everybody, your dog can have a website.
+ - I made my career off posing in swimsuits and doing all the swimsuit issues and posters.
+ - I hope every woman out there who wants to be a mother and is suffering with infertility, will explore all the options and know that if you choose the science route, it is okay.
+ - I think in vitro is a miracle and it has given me my precious little baby boy.
+ - I am spoiled, it’s true. I don’t even know how to use that thing in the kitchen with the burners.
+ - Nine million Americans a year, that we know of, struggle with infertility.
+ - It just kills me when these girls look at magazines and wish they could look like that. I try to tell them, ‘Nobody looks like that. Everything’s airbrushed.’
+ - The world of modelling can be hard; just as cruel as it is glamorous.
+ - You should see me without makeup.
+ - I was really stuck in the whole Farah Fawcett hairdo long after it was past being in fashion.
+ - When I’m asked what my girls will think when they grow up, I’ll tell them that they have to keep their clothes on till they’re 40. But when they’re 40, they can make their own decisions.
+ - I’ve lived my life in a way that I feel would be an example to young women and I’ve always given my best in everything I’ve tried.
+ - I have my loyal cyber-buddies out there, and I really do answer my e-mail. I’m in my pajamas at 3 in the morning with my zit medicine on. I owe everything to them.
+ - I married the man of my dreams in 1998.
+ - Yeah, baby! I didn’t get to keep the pink baby doll outfit, but I wish I did because people are always telling me I should wear it.
+ - Being on the cover of a magazine with my son is the best thing ever. It took me 18 years to get my first cover, he gets one at 8 months.
+ - My favorite meal is turkey and mashed potatoes. I love Thanksgiving, it’s just my favorite. I can have Thanksgiving all year round.
+ - To me, bigger is better.
+ - My bed is actually two king beds put together.
+ - I have been blessed in my career and I was able to afford the extra procedures and everything to have my children. Does that make me a better mother than someone who cannot afford it? No, of course not.
+ - When you’re modeling you’re actually acting for the camera and the photographer. It’s more fun, too because there are no lines to memorize.
+ - Our point is that America is so family oriented.
+ - I gained 80 pounds for my pregnancy so this is like my coming out party.
+ - Here in America we so are for family values, yet insurance companies do not cover all fertility procedures.
+ - There’s always someone following your next step.
+ - Having inner beauty is something you develop on your own, and I like to think I have that.
+ - I know I play into that image out there, but I try to say it is a fantasy. I look at my own pictures and wish I could look like that. There are probably five people in this whole entire world who actually look like that.
+ - My mom would have killed me before, but I’m an adult woman now, and I’m ready to show the world that you can have it all at 40 – be fabulous, 40, and pose for Playboy.
+ - You have to surround yourself with really good people and have a very thick skin.
+ - I call my children “My Hundred Thousand Dollar Babies Before They Were Even Born”!
+ - Gotham Games called me, and I could not be more thrilled. I’ve been waiting to be in a video game forever, so when they called there was no hesitation.
+ - I made my career off posing in swimsuits and doing all the swimsuit issues and posters, but I will tell you that that little bit of material on an itsy-bitsy bikini – taking that off was very nerve-racking the first time.
+ - That is very important to me, to make fertility mainstream so everyone understands it. If you want to have your miracle child, there are options: adoption, surrogacy, fertility procedures. It is also sadly very expensive, and not all insurance companies cover it.
+ - The more I learn and read about the 10th Muse i realize what a great fan base and cult following she has. I’m going to try to live up to the fantastic image of the 10th Muse!
+ - I felt proud of myself. I worked out really hard, and the reason I wanted to do it the most is because I am posing for a purpose: a portion of the proceeds from each issue sold is going to go to my charity.
+ - My pictures are airbrushed.
+
+48 quotes

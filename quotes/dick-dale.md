@@ -1,0 +1,33 @@
+ - Every song is like a painting.
+ - I’m a perfectionist. I’m not going to cheat the people.
+ - I met Leo Fender, who is the guru of all amplifiers, and he gave me a Stratocaster. He became a second father to me.
+ - There’s a saying. If you want someone to love you forever, buy a dog, feed it and keep it around.
+ - I’ll never die. I’ll just explode, right there before your eyes, onstage.
+ - As a little kid I had a girlfriend, and her boyfriend used to beat me up, so then I used to sing these songs, and that’s what it’s all about. Country music is all about your heart and your people and things like that.
+ - I don’t play pyrotechnic scales. I play about frustration, patience, anger. Music is an extension of my soul.
+ - I always felt people should live with animals.
+ - I’m constantly being influenced by the soul that’s directly in front of me.
+ - The kids called me King of the Surf Guitar. I surfed sunup to sundown.
+ - I’ll just tell you the way it is. You ask me what time it is and I’m gonna tell you how to build a clock.
+ - I’ve got holes in my guitar.
+ - When I start playing I’m just a rollercoaster of sound. I don’t know what’s coming next, I never do, and I sit and sign and talk to the people afterwards.
+ - My philosophy is the thicker the wood the thicker the sound, the bigger the string the bigger the sound. My smallest string is a 14 gauge.
+ - You can’t eat fish. It’s 6,000 parts DDT per million all over the world, not counting radiation.
+ - My aunt played the piano and I used to sit and listen to it.
+ - Music is an attitude. It’s a sensation to the average person, to the human being. And keep it simple, stupid. That’s always been my theory.
+ - My son now is 22 months old, he’s been playing since he was 12 months old and he gets standing ovations on the drums. He’s been with us since he was 10 weeks old, he’s been on the drums. He’s got blisters on his fingers before he can even talk.
+ - I grew a love for helpless, defenseless things. People would give me lions and jaguars. I had cheetahs, monkeys.
+ - My uncle gave me a trumpet, but I loved the Louis Armstrong sound and the Harry James sound and I played by ear and I played always soulful or very direct from the gut.
+ - I used to be a mean maniac. Someone once threw a firecracker at a show and I jumped off the side of the stage and whacked ’em on the side of the head.
+ - I always wanted a guitar. I always wanted to be a cowboy singer because I also listened to Hank Williams, and he would always sing these neat romantic songs.
+ - Every time I went into the studio some engineer tried to impress me with how they’re going to capture my sound with all kinds of tricks. But they limited the sound and never allowed me to play how I felt.
+ - I almost had to have my leg amputated because of an infection.
+ - I can play every instrument there is, every horn, I’ve played all the saxes and trumpets and everything and keyboards.
+ - I wanted to put a sheet in explaining what all the songs are about, but they didn’t do it.
+ - People just loved the sound because I kept it simple.
+ - I became stereotyped.
+ - Buddy Rich was one of the most incredible technicians in the world, on this planet, but the only people he could really impress, who knew what he was doing was another musician or another drummer.
+ - I don’t claim to be a musician, I didn’t go to Julliard.
+ - Jimi was a good guy ’til he got into drugs. That’s the way it is. I just tell it like it is.
+
+31 quotes

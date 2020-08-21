@@ -1,0 +1,27 @@
+ - Show me somebody who is always smiling, always cheerful, always optimistic, and I will show you somebody who hasn’t the faintest idea what the heck is really going on.
+ - It’s much harder to be a liberal than a conservative. Why? Because it is easier to give someone the finger than a helping hand.
+ - Anyone who gives a surgeon six thousand dollars for breast augmentation should give some thought to investing a little more in brain augmentation.
+ - Contrary to popular belief. It’s much wiser to take money from the poor than the rich.
+ - Hating the Yankees is as American as pizza pie, unwed mothers, and cheating on your income tax.
+ - For some people, being free means being free to keep their feet on someone else’s chest.
+ - When I asked him how long he had been driving a taxi, he said, Dree mouse.
+ - It’s unnatural for people to run around the city streets unless they are thieves or victims. It makes people nervous to see someone running. I know that when I see someone running on my street, my instincts tell me to let the dog go after him.
+ - God tipped the country and all the fruits and nuts rolled west.
+ - There is only one way to solve the alleged crisis of the erosion of ‘family values.’ And that is to get right down to the root cause of the problem.
+ - Why do you think the lottery is so popular? Do you think anybody would play if the super payoff was a job on the night shift in a meat-packing plant? People play it so if they win they can be rich and idle. Like I told you years ago – if work is so good, how come they have to pay us to do it?
+ - Reagan’s approach will achieve one of the basic goals of the conservative: Things remain basically the same. The rich stay rich and the poor stay poor, or even a little poorer.
+ - It’s been my policy to view the Internet not as an ‘information highway,’ but as an electronic asylum filled with babbling loonies.
+ - Newspapers, magazines and other publications have the constitutional right to be offensive, even disgusting. As evidence of that, just watch this space regularly.
+ - Whether one eats a cat or not is a personal choice, and I don’t want to sway anyone one way or another. But if you do, there is one obvious cooking tip: Always remember to remove the bell from the cat’s collar before cooking.
+ - The subject of criminal rehabilitation was debated recently in City Hall. It’s an appropriate place for this kind of discussion because the city has always employed so many ex-cons and future cons.
+ - A Pessimist sees the glass as half empty; A Cub Fan wonders when it’s gonna spill.
+ - Hollywood likes to boast that it can elevate the national conscience.
+ - Hollywood is right. A good and strong movie can have a more powerful social impact than any and all political speeches or newspaper editorials and columns.
+ - When Michael Jordan quit, I suddenly found myself without a sports hero.
+ - Forty years ago, we were on the tail of the Front Page era. There was a different point of view. Reporters and editors were more forgiving of public people. They didn’t think they had to stick someone in jail to make a career.
+ - I never went to a John Wayne movie to find a philosophy to live by or to absorb a profound message. I went for the simple pleasure of spending a couple of hours seeing the bad guys lose.
+ - It’s no coincidence that female interest in the sport of baseball has increased greatly since the ballplayers swapped those wonderful old-time baggy flannel uniforms for leotards.
+ - Hollywood has always been political. They consider it their right and duty to tell us what is politically good and right.
+ - Anyone who contributes to the defense fund of pornographers is a mental moonbeam.
+
+25 quotes

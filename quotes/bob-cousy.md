@@ -1,0 +1,38 @@
+ - Do your best when no one is looking. If you do that, then you can be successful at anything you put your mind to.
+ - But in fairness also to the idea of continuing success, you also have to exploit opportunities.
+ - The MVP award was very satisfying in terms of personal accomplishments, but the championship was the most important thing of all.
+ - Do your best when no one is looking.
+ - These days I smile benignly at the fights that I see in NBA games. There aren’t any broken noses or black eyes, which happened quite often when I played.
+ - It also didn’t take me long to decide that Tri-Cities wasn’t for me, and that I wasn’t going to go there to play basketball.
+ - Race wasn’t an issue. My family was French, but Yorkville was a melting pot of races and cultures.
+ - I was literally fabricated over in France and born about six months after the boat landed at Ellis Island. This was the heart of the Depression. For the first 12 years of my life we lived in a terrible ghetto on the East River.
+ - I once heard that Paul Seymour said as much as winning an NBA Championship, he’d like to see the Celtics lose a game after Auerbach brought out the cigar so he could go up to Arnold and stuff the cigar in his face.
+ - We hung out on the streets, played stickball, and did all of the things that other kids did.
+ - French was my first language.
+ - I had endured six years of frustration so I think winning it all meant more to me than most of the others on the team.
+ - I was the original socially depraved shy ghetto kid.
+ - The NBA wasn’t a big deal at that time, so it wasn’t really in my career plans.
+ - There were riots in just about every game we played with Syracuse.
+ - Every jock gets up and tells the world how lucky he is. But I feel that I may be the luckiest one of all in terms of timing and being at the right place at the right moment-even though, for the last 30 years, I was told I was born 20 years too soon, for obvious reasons.
+ - Cooper was my road roommate, and also happened to be the first African American player drafted by a National Basketball Association team.
+ - Kerner decided to trade my rights to the Chicago Stags, which sounded better to me than Tri-Cities, but the Stags folded up almost immediately.
+ - Indiana gets credit for having the most rabid basketball fans in the union, but Maine is a very, very active basketball state.
+ - I grew up in the heart of the Depression.
+ - We lived in Yorkville, which is located on the East End of Manhattan. It’s further east than Hell’s Kitchen, and back then it was the kind of place where the roaches and cockroaches were big enough to carry away small children.
+ - We lived in Yorkville until 1940, at which point we moved into the St. Albans neighborhood of Queens.
+ - Bob Brannum was my body guard on the court. He was 6?-6 and built like a bulldog.
+ - My family was poor, my father drove a cab for a living, but we felt normal because everybody else was in the same boat.
+ - Sports create a bond between comtemporaries that lasts a lifetime. It also gives your life structure, discipline and a genuine, sincere, pure fulfillment that few other areas of endeavor provide.
+ - We ran an up-tempo, transition-style of game at Boston College – very similar to what we ran when I played for Arnold.
+ - My biggest win was getting the meal money bumped from $5 to $7.
+ - I won the city scoring championship as a senior.
+ - Back then every small town had a gym, and if itseated more than 2,000 then we’d be interested in playing in it.
+ - We had a strong relationship with Walter Brown, and felt that he was the best owner in the league.
+ - We played every night. Sometimes we’d stay overnight after a game, but we’d usually drive on to our next destination.
+ - But as a coach I wanted to keep things from being too complicated.
+ - Russell joined the team in December, 1956, following the Olympics.
+ - That seemed to be the case with most of the teams based in the smaller towns – the fans were more rabid, and they wanted to literally kill the opposition.
+ - You have to remember that coaching wasn’t sophisticated back then – you didn’t have the camps, clinics and all the technical advances that are available today – so from that standpoint, playing with a cast on my arm was a fortunate event in my life.
+ - People have been killing because of racial differences since the time of Adam and Eve, but in this country racism has been primarily aimed at African Americans.
+
+36 quotes

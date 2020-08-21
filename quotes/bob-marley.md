@@ -1,0 +1,236 @@
+ - Some people feel the rain. Others just get wet.
+ - Love the life you live. Live the life you love.
+ - You never know how strong you are, until being strong is your only choice.
+ - The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for.
+ - Wake up and live.
+ - One good thing about music, when it hits you, you feel no pain.
+ - One love, one heart, one destiny.
+ - Money is numbers and numbers never end. If it takes money to be happy, your search for happiness will never end.
+ - Open your eyes, look within. Are you satisfied with the life you’re living?
+ - Don’t worry about a thing, every little thing is gonna be alright.
+ - None but ourselves can free our minds.
+ - The day you stop racing, is the day you win the race.
+ - Don’t gain the world and lose your soul; wisdom is better than silver or gold.
+ - Emancipate yourselves from mental slavery. None but ourselves can free our minds.
+ - Live for yourself and you will live in vain. Live for others and you will live again.
+ - The good times of today are the sad thoughts of tomorrow.
+ - The biggest coward of a man is to awaken the love of a woman without the intention of loving her.
+ - The greatness of a man is not in how much wealth he acquires, but in his integrity and his ability to affect those around him positively.
+ - Overcome the devils with a thing called love. 
+ - Herb is the healing of a nation, alcohol is the destruction.
+ - If she’s amazing, she won’t be easy. If she’s easy, she won’t be amazing.
+ - You say you love rain, but you use an umbrella to walk under it. You say you love sun, but you seek shelter when it is shining. You say you love wind, but when it comes you close your windows. So that’s why I’m scared when you say you love me.
+ - The most beautiful things are not perfect, they are special.
+ - The most beautiful curve on a woman’s body is her smile.
+ - Light up the darkness.
+ - Life is one big road with lots of signs. So when you riding through the ruts, don’t complicate your mind. Flee from hate, mischief and jealousy. Don’t bury your thoughts, put your vision to reality. Wake up and live!
+ - You can fool some people some times but you cant fool all the people all the time.
+ - Money can’t buy life.
+ - Complaints are prayers to the devil.
+ - Don’t Let them fool you or even try to school you.
+ - It’s the music. Your heart is in your ears.
+ - He’s not perfect. You aren’t either, and the two of you will never be perfect. But if he can make you laugh at least once, causes you to think twice, and if he admits to being human and making mistakes, hold onto him and give him the most you can.
+ - A foolish dog barks at a flying bird.
+ - Love would never leave us alone.
+ - Politics and church are the same. They keep the people in ignorance.
+ - Don’t shed no tears, no woman, no cry.
+ - I woke up this morning, smiled at the rising sun.
+ - You may not be her first, her last, or her only. She loved before she may love again. But if she loves you now, what else matters?
+ - Man can’t do without God. Just like you’re thirsty, you have to drink water. You just can’t go without God.
+ - I don’t know how to live good. I only know how to suffer.
+ - Better to die fighting for freedom then be a prisoner all the days of your life.
+ - Stop and think a little: Are you the victim of the system?
+ - My life is only important if i can help plenty of people.
+ - Football is Freedom, a whole universe.
+ - Every man gotta right to decide his own destiny.
+ - I’ll give you my phone number. When you worry, call me. I’ll make you happy.
+ - No chains around my feet, But I’m not free...
+ - In the abundance of water – the fool is thirsty.
+ - Experimentation is the key to ‘lively up’ the art.
+ - There’s a natural mystic blowing through the air. If you listen carefully now, you will hear.
+ - Forget your troubles and dance! Forget your sorrows and dance! Forget your sickness and dance! Forget your weakness and dance!
+ - Love hard when there is love to be had.
+ - You can’t find the right roads when the streets are paved.
+ - Nothing is wrong if it makes you happy.
+ - If you know your history, then you would know where you coming from, then you wouldn’t have to ask me, who the heck do I think I am.
+ - Get up, stand up, Stand up for your rights. Get up, stand up, Don’t give up the fight.
+ - Be humble because until the sun with all its grandeur, let the moon shine.
+ - So if you are the big tree, we are the small axe. Ready to cut you down, to cut you down.
+ - God created people in technicolor. God has never made a difference between black, white, blue, green or pink.
+ - Don’t complicate your mind. Flee from hate, mischief, and jealousy.
+ - Music is the only thing that doesn’t hurt when it hits you.
+ - You not supposed to feel down over whatever happen to you. I mean, you’re supposed to use whatever happen to you as some type of upper, not a downer.
+ - My music fights against the system that teaches to live and die.
+ - I don’t stand for black man’s side, I don’t stand for white man’s side, I stand for God’s side.
+ - Why drink and drive if I can smoke and fly?
+ - There will never be no love at all.
+ - The beauty of love. The love of beauty. The greener you are, the wiser you will be.
+ - True friends are like stars; you can only recognize them when it’s dark around you.
+ - My feet is my only carriage.
+ - Lively Up Yourself.
+ - My future is righteousness.
+ - Some Will Hate You Pretend They Love You Now Then Behind They Try To Eliminate You.
+ - Sometimes you have to fight with music.
+ - We don’t need no trouble! What we need is love!
+ - Excuse me while I light my spliff, Good God I gotta take a lift, From reality I just cant drift, That’s why I’m staying with this riff.
+ - Bob Marley isn’t my name. I don’t even know my name yet.
+ - As a man sow, shall he reap. and I know that talk is cheap. But the heat of the battle is as sweet as the victory.
+ - I believe in freedom for everyone, not just the black man.
+ - What does rasta mean? Righteousness.
+ - The lips of the righteous teach many, but fools die for want of wisdom.
+ - I don’t know what happiness is. I don’t know what sweet caress is. Still, I’m always laughing like a clown.
+ - The stone that the builder refused shall be the head corner stone.
+ - The more people smoke herb, the more Babylon fall.
+ - Football is a part of I. When I play, the world wakes up around me.
+ - Me never believe in marriage that muchmarriage is a trap to control me; woman is a coward. Man strong.
+ - Have pity on those whose chances grow thinner, there ain’t no hiding place from the Father of Creation.
+ - The sun shall not smite I by day, nor the moon by night, and everything that I do shall be upfull and right.
+ - If you wanna hear what the people are saying, you can hear what the Rastaman saying.
+ - In their presence, there’s no need for continuous conversation, but you find you’re quite content in just having them nearby.
+ - We know where we’re going cause we know where we’re from.
+ - My favorite herb – lamb’s bread. Kali. I like Hawaiian. But for some reason, you communicate better with Jamaican herb. The best Jamaican herb, it have more energy, more everything to it.
+ - Today they say that we are free, only to be chained in poverty.
+ - People want to listen to a message, word from Jah. This could be passed through me or anybody. I am not a leader. Messenger. The words of the songs, not the person, is what attracts people.
+ - I see you finally got a number to match your IQ.
+ - Prejudice is a chain, it can hold you. If you prejudice, you can’t move, you keep prejudice for years. Never get nowhere with that.
+ - We JAH people can make it work.
+ - You entertain people who are satisfied. Hungry people can’t be entertained – or people who are afraid. You can’t entertain a man who has no food.
+ - Me can’t be prejudice. Me can’t me no think of life that way. Because, me figure if you prejudice, that mean you have a hate. If you have a hate inside of you, you can’t be righteous.
+ - Life and Jah are one in the same. Jah is the gift of existence. I am in some way eternal, I will never be duplicated. The singularity of every man and woman is Jah’s gift. What we struggle to make of it is our sole gift to Jah. The process of what that struggle becomes, in time, the Truth.
+ - If you don’t start somewhere, you’re gonna go nowhere.
+ - The things that seem insignificant to most people such as a note, song or walk become invaluable treasures kept safe in your heart to cherish forever.
+ - The bars could not hold me. Force could not control me. They tried to keep me down, but Jah put I around. Yes, I’ve been accused. Wrongly abused. But through the powers of the Most High, they’ve got to turn me loose.
+ - You find that being vulnerable is the only way to allow your heart to feel true pleasure that’s so real it scares you. You find strength in knowing you have a true friend and possibly a soul mate who will remain loyal to the end.
+ - The hotter the battle the sweeter the victory.
+ - Do you have a record contract? I have a recording agreement. What’s the difference? One is an agreement and one is a contract! I am a man who deals by ear.
+ - Jah show every mon him hand, and Jah has show I mine.
+ - I’m gonna be Iron, like a Lion in Zion.
+ - Before pointing fingers make sure your hands are clean.
+ - The fittest of the fittest shall survive !
+ - Jah sitteth in Mount Zion, and rules all creation!
+ - When one door is closed, don’t you know, another is open.
+ - Make way for the positive day.
+ - God sent me on earth. He send me to do something, and nobody can stop me. If God want to stop me, then I stop. Man never can.
+ - Me can’t tell you how me know Rastafari. It is pure vision.
+ - It take many a year, mon, and maybe some bloodshed must be, but righteousness someday prevail.
+ - Don’t let them fool ya, or even try to school ya! Oh, no! We’ve got a mind of our own, so go to hell if what you’re thinking is not right!
+ - In this bright future you can’t forget your past.
+ - You can’t run away from yourself.
+ - Everyone in life is gonna hurt you, you just have to figure out which people are worth the pain.
+ - Bless my eyes this morning, Jah sun is on the rise once again.
+ - Only once in your life, I truly believe, you find someone who can completely turn your world around.
+ - One bright morning when my work is over I will fly away home.
+ - The people that are making this world worse don’t take a day off, how can I?
+ - You just can’t live that negative way. You know what I mean. Make way for the positive day. Cause it’s a new day...
+ - Every day the bucket a-go a well, one day the bottom a-go drop out.
+ - He who feels it, knows it more.
+ - Everything in life got its purpose. Find its reason in every season.
+ - Whose the cap fit, let them where it.
+ - Your life is worth much more than gold.
+ - Many more will have to suffer, many more will have to die, don’t ask me why !
+ - Sun is shining. Weather is sweet. Make you wanna move your dancing feet.
+ - Alcohol make you drunk, man. It don’t make you meditate, it just make you drunk. Herb is more a consciousness.
+ - The winds that sometimes take something we love, are the same that bring us something we learn to love. Therefore we should not cry about something that was taken from us, but, yes, love what we have been given. Because what is really ours is never gone forever.
+ - If something can corrupt you, you’re corrupted already.
+ - When the morning gathers the rainbow, want you to know I’m a rainbow too.
+ - Though the road’s been rocky it sure feels good to me.
+ - Tell the children the truth.
+ - It takes a revolution, to create a solution.
+ - Rise and take your stance once again.
+ - When You smoke herb it reveals you to yourself. All the wickedness you do is revealed by the herb – it’s you conscience and gives you an honest picture of yourself.
+ - Children are wonderful. It don’t take plenty y’know. Just a nice girl who don’t take birth control. Sexual intercourse is a lovely thing.
+ - When the cats away, the mice will play.
+ - Football is a whole skill to itself. A whole world. A whole universe to itself. Me love it because you have to be skilful to play it! Freedom! Football is freedom.
+ - The Truth An Offense But Not A Sin.
+ - The road to life is rocky, and you may stumble too. So while you point your fingers, someone else is judging you.
+ - Every need got an ego to feed.
+ - Trust the universe and respekt your hair.
+ - God, guide and protect us. When we’re wrong, please correct us.
+ - Dry your tears, have no fears.
+ - Who so ever diggeth the pit, shall fall in it.
+ - Don’t bury your thoughts, put your vision to reality.
+ - Judge not before you judge yourself. Judge not if you’re not ready for judgment.
+ - I want to give you some love, I want to give you some good good lovin.
+ - Free speech carries with it some freedom to listen.
+ - The biggest man you’re ever going to see was once a baby.
+ - Herb? Herb is the healing of the nation, seen? Once you smoke herb, you all must think alike. Now if you thinking alike, dat mean we ’pon the same track. If we ’pon the same track, that mean we gonna unite.
+ - Take that veil from off of your eyes, look into the future of realize.
+ - You open your heart knowing that there’s a chance it may be broken one day and in opening your heart, you experience a love and joy that you never dreamed possible.
+ - Love hard when there is love to be had. Because perfect guys don’t exist, but there’s always one guy that is perfect for you.
+ - Ziggy, when you go up bring me up and when you go down don’t let me down. Stephen, Money can’t buy you life.
+ - Could you be loved and be loved?
+ - I don’t have a religion, you know. This is what I am. I am a Rastaman; so this is not religion. This is life.
+ - It is better to win the peace and to lose the war.
+ - Let righteousness cover the earth like the water cover the sea!
+ - Men and people will fight you down when you see the light. Let me tell you if you are not wrong than everything is all right.
+ - Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections.
+ - Until the philosophy which holds one race superior and another inferior is finally and permanently discredited and abandoned everything is war.
+ - Most people think great god will come from the skies, take away everything, and make everybody feel high. But if you know what life is worth, you will look for yours on earth.
+ - Only Once In Your Life.
+ - Rise O fallen fighters, rise and take your stance again, He who fight and run away, Live to fight another day.
+ - Someone will have to pay for the innocent blood that they shed every day.
+ - We are the children of the Rastaman we are the children of the higher man.
+ - Me only have one ambition, y’know. I only have one thing I really like to see happen. I like to see mankind live together – black, white, Chinese, everyone – that’s all.
+ - How good and how pleasant it would be before God and man, yeah to see the unification of all Africans.
+ - You’re on a positive road. You have some type of direction where you’re going, so you have to just keep on going.
+ - A hungry mob is an angry mob.
+ - It is better to live on the house top than to live in a house full of confusion.
+ - When you smoke the herb, it reveals you to yourself.
+ - Never do they hurt your feelings or make you feel like you are not good enough, but rather they build you up and show you the things about yourself that make you special and even beautiful.
+ - My life nah important to me, but other people life important. My life is only important if me can help plenty people. If my life is just for me and my own security then me no want it. My life is for people. That’s way me is.
+ - Oh Mockingbird have you ever heard words that I’ve never heard.
+ - Give thanks and praise to the Lord and I will feel all right; Let’s get together and feel all right. Give thanks and praise to the Lord and I will feel all right; Let’s get together and feel all right.
+ - No man can lead mean, we have to have unity.
+ - Jah come to break downpression, rule equality, wipe away transgression, set the captives free.
+ - Judge not unless you judge yourself.
+ - There is never any pressure, jealousy or competition but only a quiet calmness when they are around. You can be yourself and not worry about what they will think of you because they love you for who you are.
+ - Why these people who want to do so much good for everyone, who call themselves government and this and that, why them say you must not use the herb? You see, them say you must not use the herb because it makes you a rebel. Against what?
+ - I’ve been here before and will come again, but I’m not going this trip through.
+ - Well, me don’t swim too tough so me don’t go in the water too deep.
+ - Today, people struggle to find what’s real. Everything has become so synthetic that a lot of people, all they want is to grasp onto hope.
+ - Stiff-necked fools, you think you are cool to deny me for simplicity.
+ - Don’t forget your history nor your destiny.
+ - Herb is the unification of mankind.
+ - Oh let Jah love come shining in into our lives again.
+ - Your recipe, darling, is so tasty, and you sure can stir your pot.
+ - This music is about struggle. Reggae is a vehicle to carry a message of freedom and peace.
+ - Me don’t dip on nobody’s side. Me don’t dip on the black man’s side, not the white man’s side. Me dip on God’s side, the one who create me and cause me to come from black and white.
+ - My music will go on forever. Maybe it’s a fool say that, but when me know facts me can say facts. My music will go on forever.
+ - I no have education. I have inspiration. If I was educated, I would be a damn fool.
+ - I pledged to work for righteousness. God’s given me inspiration. God’s the boss, he tell me what to do.
+ - I shot the sheriff, but I didn’t shoot no deputy.
+ - What we need is love, to guide and protect us on.
+ - Everything is political. I will never be a politician or even think political. Me just deal with life and nature. That is the greatest thing to me.
+ - They gave me star treatment when I was making a lot of money. But I was just as good when I was poor.
+ - Every time I plant a seed, He say kill it before it grow, he say kill it before they grow.
+ - It’s your own conscience That is gonna remind you That it’s your heart and nobody else’s That is gonna judge.
+ - They are not embarrassed to cry with you when you are hurting or laugh with you when you make a fool of yourself.
+ - I truly believe.
+ - When the race gets hard to run. It means you just can’t take the peace.
+ - One lifetime is not enough to live.
+ - I don’t believe in death, neither in flesh nor in spirit.
+ - Be not selfish in your doings: pass it on.
+ - Man is a universe within himself.
+ - Whose the spiritual people pon earth. The Black people. Dem a deal wit God. And God no let dem down.
+ - One and all have to face reality now.
+ - What important is man should live in righteousness, in natural love for mankind.
+ - Rastafari not a culture, it’s a reality.
+ - Jah would never give the power to a baldhead; run come crucify the Dread.
+ - I want to say ‘I Shot The Police’ but the government would have made a fuss so I said ‘I Shot The Sheriff’ insteadbut it’s the same idea: justice.
+ - If you get down and quarell everyday, you’re saying prayers to the devil, I say.
+ - Life seems completely different, exciting and worthwhile. Your only hope and security is in knowing that they are a part of your life.
+ - If you know what your life is worth, you will look for yours on earth.
+ - Life and Jah are one in the same. Jah is the gift of existence. I am in some way eternal, I will never be duplicated.
+ - Me is a common sense man. That mean when me explain things, me explain it in a very simple way; that mean if I explain it to a baby, the baby will understand too, you know.
+ - They will always tell you that you can’t do what you want to do, but you can do what you want to do. You just have to believe in yourself. The system is to bring you down, but you can rise up.
+ - So you think you’ve found the solution but it’s just another illusion.
+ - Look for things marked positive to you, like songs, because all dem things are right.
+ - One of my good friends said, in a reggae riddim, don’t jump in the water if you can’t swim...
+ - There comes a time as an artist, can’t follow the crowd. You have to do YOU, and make the crowd follow you.
+ - You have to be someone.
+ - And me, I know that there is a god. Cause I know who god is.
+ - Me personally as a man is nothing without the inspiration of JAH.
+ - Well I am always interested my people’s right. But I will push myself to a revolution without arms.
+ - What we struggle to make of it is our sole gift to Jah. The process of what that struggle becomes, in time, the Truth.
+
+234 quotes

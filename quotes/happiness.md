@@ -1,0 +1,103 @@
+ - Until you are happy with who you are, you will never be happy with what you have. ~~Zig Ziglar
+ - If you spend your whole life waiting for the storm, you’ll never enjoy the sunshine. ~~Morris L. West
+ - Think of all the beauty still left around you and be happy. ~~Anne Frank
+ - Happiness depends upon ourselves. ~~Aristotle
+ - There are two ways to be happy: improve your reality, or lower your expectations. ~~Jodi Picoult
+ - For every minute you are angry you lose sixty seconds of happiness. ~~Ralph Waldo Emerson
+ - They say a person needs just three things to be truly happy in this world: someone to love, something to do, and something to hope for. ~~Tom Bodett
+ - Don’t cry because it’s over, smile because it happened. ~~Dr. Seuss
+ - Happiness is when what you think, what you say, and what you do are in harmony. ~~Mahatma Gandhi
+ - Heaven on Earth is a choice you must make, not a place you must find. ~~Wayne W. Dyer
+ - The greatest discovery of all time is that a person can change his future by merely changing his attitude. ~~Oprah Winfrey
+ - If you want to be happy, be. ~~Leo Tolstoy
+ - Happiness and confidence are the prettiest things you can wear. ~~Taylor Swift
+ - The foolish man seeks happiness in the distance; the wise grows it under his feet. ~~James Oppenheim
+ - A day of worry is more exhausting than a week of work. ~~John Lubbock
+ - Everyone wants to live on top of the mountain, but all the happiness and growth occurs while you’re climbing it. ~~Andy Rooney
+ - Happiness is only real when shared. ~~Jon Krakauer
+ - Success is getting what you want. Happiness is wanting what you get. ~~Dale Carnegie
+ - Seek to do good, and you will find that happiness will run after you. ~~James Freeman Clarke
+ - Happiness mainly comes from our own attitude, rather than from external factors. ~~Dalai Lama XIV
+ - The time you enjoy wasting is not wasted time. ~~Bertrand Russell
+ - There is only one way to happiness and that is to cease worrying about things which are beyond the power of our will. ~~Epictetus
+ - Happiness is not something you postpone for the future; it is something you design for the present. ~~Jim Rohn
+ - Count your age by friends, not years. Count your life by smiles, not tears. ~~John Lennon
+ - Happiness is not a possession to be prized, it is a quality of thought, a state of mind. ~~Daphne du Maurier
+ - You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life. ~~Albert Camus
+ - Happiness is not a goal; it is a by-product. ~~Eleanor Roosevelt
+ - People don’t notice whether it’s winter or summer when they’re happy. ~~Anton Chekhov
+ - Happiness is not something ready made. It comes from your own actions. ~~Dalai Lama XIV
+ - There is no cosmetic for beauty like happiness. ~~Maria Mitchell
+ - The most important thing is to enjoy your life, to be happy. It’s all that matters. ~~Audrey Hepburn
+ - It’s so hard to forget pain, but it’s even harder to remember sweetness. We have no scar to show for happiness. We learn so little from peace. ~~Chuck Palahniuk
+ - Happiness in intelligent people is the rarest thing I know. ~~Ernest Hemingway
+ - Some cause happiness wherever they go; others whenever they go. ~~Oscar Wilde
+ - Happiness is the meaning and the purpose of life, the whole aim and end of human existence. ~~Aristotle
+ - You cannot protect yourself from sadness without protecting yourself from happiness. ~~Jonathan Safran Foer
+ - Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it. ~~William Feather
+ - The greatest happiness is to transform one’s feelings into action. ~~Madame de Stael
+ - Adopting the right attitude can convert a negative stress into a positive one. ~~Hans Selye
+ - Now and then it’s good to pause in our pursuit of happiness and just be happy. ~~Guillaume Apollinaire
+ - Every man has his secret sorrows which the world knows not; and often times we call a man cold when he is only sad. ~~Henry Wadsworth Longfellow
+ - Even a happy life cannot be without a measure of darkness, and the word happy would lose its meaning if it were not balanced by sadness. ~~C.G. Jung
+ - I’d far rather be happy than right any day. ~~Douglas Adams
+ - If you want others to be happy, practice compassion. If you want to be happy, practice compassion. ~~Dalai Lama XIV
+ - Sanity and happiness are an impossible combination. ~~Mark Twain
+ - There’s nothing like deep breaths after laughing that hard. Nothing in the world like a sore stomach for the right reasons. ~~Stephen Chbosky
+ - Folks are usually about as happy as they make their minds up to be. ~~Abraham Lincoln
+ - The two enemies of human happiness are pain and boredom. ~~Arthur Schopenhauer
+ - If more of us valued food and cheer and song above hoarded gold, it would be a merrier world. ~~J. R. R. Tolkien
+ - Morality is not the doctrine of how we may make ourselves happy, but how we may make ourselves worthy of happiness. ~~Immanuel Kant
+ - Wherever you go, go with all your heart. ~~Confucius
+ - One of the most powerful forces in human nature is our belief that change is possible. ~~Shawn Achor
+ - A disciplined mind leads to happiness, and an undisciplined mind leads to suffering. ~~Dalai Lama XIV
+ - You’re happy when you help others become happy. ~~Dalai Lama XIV
+ - Happiness is a mindset for your journey, not the result of your destination. ~~Shawn Achor
+ - Happiness inspires productivity. ~~Shawn Achor
+ - What is the meaning of life? To be happy and useful. ~~Dalai Lama XIV
+ - The primary cause of unhappiness is never the situation but your thoughts about it. ~~Eckhart Tolle
+ - The very purpose of our life is to seek happiness. ~~Dalai Lama XIV
+ - Optimism is a tool with a certain clear set of benefits: it fights depression, it promotes achievement and produces better health. ~~Martin E.P. Seligman
+ - I believe compassion to be one of the few things we can practice that will bring immediate and long-term happiness to our lives. ~~Dalai Lama XIV
+ - When you discover that all happiness is inside you, the wanting and needing are over, and life gets very exciting. ~~Byron Katie
+ - One of the best ways to make yourself happy is to make other people happy. One of the best ways to make other people happy is to be happy yourself. ~~Gretchen Rubin
+ - Happiness is such an incredible advantage in our life. When the human brain is positive, our intelligence rises, we stop diverting resources to think about anxiety. ~~Shawn Achor
+ - Your brain at positive is 31% more productive than your brain at negative, neutral or stressed. ~~Shawn Achor
+ - You must expect great things of yourself before you can do them. ~~Michael Jordan
+ - We are happy when we are growing. ~~Gretchen Rubin
+ - Happiness is the precursor to success. ~~Shawn Achor
+ - Most people keep waiting on happiness, putting off happiness until they’re successful or until they achieve some goal, which means we limit both happiness and success. That formula doesn’t work. ~~Shawn Achor
+ - What you’re believing in the moment creates your suffering or your happiness. ~~Byron Katie
+ - We become more successful when we are happier and more positive. ~~Shawn Achor
+ - Scientifically, happiness is a choice. It is a choice about where your single processor brain will devote its finite resources as you process the world. ~~Shawn Achor
+ - Happiness is not the belief that we don’t need to change; it’s the realization that we can. ~~Shawn Achor
+ - Happiness comes not from having more, not from having less, but from wanting what you have. ~~Gretchen Rubin
+ - Successful people see adversity as a stepping stone rather than a stumbling block. ~~Shawn Achor
+ - The greatest competitive advantage in our modern economy is a positive and engaged brain. ~~Shawn Achor
+ - It is by being fully involved with every detail of our lives, whether good or bad, that we find happiness, not by trying to look for it directly. ~~Mihaly Csikszentmihalyi
+ - It’s hard to find happiness after success if the goalposts of success keep changing. ~~Shawn Achor
+ - Happiness does not come about only due to external circumstances; it mainly derives from inner attitudes. ~~Dalai Lama XIV
+ - Positivity is such a high predicator of success rates. ~~Shawn Achor
+ - Only the development of compassion and understanding for others can bring us the tranquility and happiness we all seek. ~~Dalai Lama XIV
+ - Waiting to be happy limits our brain’s potential for success, whereas cultivating positive brains makes us more motivated, efficient, resilient, creative, and productive, which drives performance upward. ~~Shawn Achor
+ - A heart full of love and compassion is the main source of inner strength, willpower, happiness, and mental tranquility. ~~Dalai Lama XIV
+ - Each one of us is like that butterfly the Butterfly Effect. And each tiny move toward a more positive mindset can send ripples of positivity through our organizations our families and our communities. ~~Shawn Achor
+ - Changing the destructive things you say to yourself when you experience the setbacks that life deals all of us is the central skill of optimism. ~~Martin E.P. Seligman
+ - Life inflicts the same setbacks and tragedies on the optimist as on the pessimist, but the optimist weathers them better. ~~Martin E.P. Seligman
+ - We not only need to work happy, we need to work at being happy. ~~Shawn Achor
+ - Just as the good life is something beyond the pleasant life, the meaningful life is beyond the good life. ~~Martin E.P. Seligman
+ - The way we define happiness is the joy you feel striving toward your potential. ~~Shawn Achor
+ - You go into flow when your highest strengths are deployed to meet the highest challenges that come your way. ~~Martin E.P. Seligman
+ - Happiness is the overall experience of pleasure and meaning. ~~Tal Ben-Shahar
+ - There is one aspect of happiness that’s been well studied, and it’s the notion of flow. Ask yourselves, when for you does time stop? When are you truly at home, wanting to be no place else? ~~Martin E.P. Seligman
+ - If we just wanted positive emotions, our species would have died out a long time ago. ~~Martin E.P. Seligman
+ - Not only do happy people endure pain better and take more health and safety precautions when threatened, but positive emotions undo negative emotions. ~~Martin E.P. Seligman
+ - Study after study shows that happiness precedes important outcomes and indicators of thriving. ~~Shawn Achor
+ - Focusing on the good isn’t just about overcoming our inner grump to see the glass half full. It’s about opening our minds to the ideas and opportunities that will help us be more productive, effective, and successful at work and in life. ~~Shawn Achor
+ - The good life is using your signature strengths every day to produce authentic happiness and abundant gratification. ~~Martin E.P. Seligman
+ - Constantly scanning the world for the negative comes with a great cost. It undercuts our creativity, raises our stress levels, and lowers our motivation and ability to accomplish goals. ~~Shawn Achor
+ - Success does not mean happiness. Check out any celebrity magazine to look for examples to disabuse you of thinking that being beautiful, successful or rich will make you happy. ~~Shawn Achor
+ - Just as our view of work affects our real experience of it, so too does our view of leisure. If our mindset conceives of free time, hobby time, or family time as non-productive, then we will, in fact, make it a waste of time. ~~Shawn Achor
+ - Happiness equals reality minus expectations. ~~Tom Magliozzi
+
+101 quotes

@@ -1,0 +1,92 @@
+ - We’re dead as a species if we don’t tell stories, because then we don’t know who we are.
+ - Actors are agents of change. A film, a piece of theater, a piece of music, or a book can make a difference. It can change the world.
+ - There’s a voice inside you that tells you what you should do.
+ - And it’s a human need to be told stories. The more we’re governed by idiots and have no control over our destinies, the more we need to tell stories to each other about who we are, why we are, where we come from, and what might be possible.
+ - I think there’s some connection between absolute discipline and absolute freedom.
+ - You try to find things that are challenging and interesting and hopefully it will be the same to the audience.
+ - I don’t play villains, I play? very interesting people.
+ - I am the character you are not supposed to like.
+ - I am hellbent on defying your expectations, at every turn, and even if you don’t like what’s being done, I dare you to find it uninteresting.
+ - I have this feeling that if I could sort out what’s on my dining room table, everything would fall into place.
+ - If you could build a house on a trampoline, that would suit me fine.
+ - Acting touches nerves you have absolutely no control over.
+ - I mean, language fascinates me anyway, and different words have different energies and you can change the whole drive of a sentence.
+ - Maverick is a word which appeals to me more than misfit. Maverick is active, misfit is passive.
+ - I have every sympathy for writers. It’s a mystery to me what they do. I can edit. I can cross out and say, ‘I’m not saying that’ or, ‘How about we move this to here? Wouldn’t that make that bit of the story better?’ But where any of it comes from is beyond me. I will never write a play or a novel.
+ - I do take my work seriously and the way to do that is not to take yourself too seriously.
+ - I can only see my limitations. That’s just who I am.
+ - I suppose with any good writing and interesting characters, you can have that awfully overused word: a journey.
+ - It would be wonderful to think that the future is unknown and sort of surprising.
+ - That’s it then. Cancel the kitchen scraps for lepers and orphans, no more merciful beheadings, and call off Christmas.
+ - I love perfumes. Every morning when my girlfriend and I come down to the courtyard in our block of flats we’re assailed by the most delicious scent – jasmine round a doorway. It almost makes me swoon.
+ - Talent is an accident of genes – and a responsibility.
+ - I’ve never been able to plan my life. I just lurch from indecision to indecision.
+ - My idea of a real treat is Magic Mountain without standing in line.
+ - If only life could be a little more tender and art a little more robust.
+ - It’s a nightmare to sit and watch a film that I’m in. There’s a horrible inescapability to it.
+ - I think there should be laughs in everything. Sometimes, it’s a slammed door, a pie in the face or just a recognition of our frailties.
+ - I knew with Snape I was working as a double agent, as it turns out, and a very good one at that.
+ - I like it when stories are left open.
+ - Any actor who judges his character is a fool – for every role you play you’ve got to absorb that character’s motives and justifications.
+ - I approach every part I’m asked to do and decide to do from exactly the same angle: who is this person, what does he want, how does he attempt to get it, and what happens to him when he doesn’t get it, or if he does?
+ - One thing I will say – my job gets harder and harder. The more you understand about what you are capable of, the less the instrument can do it physically. It’s an inverse equation, if that’s the right phrase. I just slammed those two words together. It sounded right.
+ - Every so often you read a play and a character just speaks to you – almost seems to speak through you, in fact.
+ - The point about a great story is that it’s got a beginning, a middle and end.
+ - All I want to see from an actor is the intensity and accuracy of their listening.
+ - Give me a window and I’ll stare out it.
+ - I have a love-hate relationship with white silk.
+ - I always feel that when I come to Edinburgh, in many ways I am coming home.
+ - Los Angeles is not a town full of airheads. There’s a great deal of wonderful energy there.
+ - Mellow doesn’t describe me. I’m hungry every day.
+ - I have just returned from the dubbing studio where I spoke into a microphone as Severus Snape for absolutely the last time.
+ - If you spend any time in Los Angeles, there’s only one topic of conversation.
+ - Each character I play has different dimensions. I’m not interested in words that pull them together.
+ - I do feel more myself in America. I can regress there, and they have roller-coaster parks.
+ - I was 7, and I remember being given a part in a play and thinking, This is exciting.
+ - A lot of the time I hate the theater. You think, ‘I have to climb Mount Everest, again, tonight.’ Oh, the theater is a scary place to be.
+ - Those of you who are not aware of my brilliant career as a stand up comic, I’m not aware of it either so we might well wonder what we’re doing here.
+ - My definition of palatable might be slightly different from yours.
+ - A wounding tongue. I’m working on it. Perhaps its the Celt in me.
+ - I’m a lot less serious than people think, it’s probably because the way my face is put together.
+ - If people want to know who I am, it is all in the work.
+ - I never talk about ‘Harry Potter’ because I think that would rob children of something that’s private to them. I think too many things get explained, so I hate talking about it.
+ - Nothing gives me as much pleasure as travelling. I love getting on trains and boats and planes.
+ - You know, London is so sprawling, and you can sometimes forget that anybody else is on a stage anywhere else.
+ - The first time that I came to New York to work properly was the mid-’80s, but I was doing eight shows a week. You have no life. Going to a punk rock club – or whatever the music was at that time – would not have been on my agenda.
+ - I’m still living the life where you get home and open the fridge and there’s half a pot of yogurt and a half a can of flat Coca-Cola.
+ - I think worrying things are going on in England – a real apathy.
+ - I don’t think it’s right that everybody knows everything about me.
+ - I’m very aware that when one is acting in the theater, you do become kind of animal about it. And you’re reliant on instincts rather than tact a lot of the time.
+ - The audience should feel like voyeurs. Their response is absolutely crucial.
+ - My parents certainly didn’t have anything to do with the theater. I’m some kind of accident.
+ - It is an ancient need to be told stories. But the story needs a great storyteller. Thanks for all of it, Jo.
+ - England in the ’60s and the ’70s was everything that history has said; it was phenomenally exciting, musically.
+ - I love working in New York theater.
+ - I want to swim in both directions at once. Desire success, court failure.
+ - Originally, theater was my life. It was what I assumed I’d spend my working life doing – if I was lucky. Then along came movies.
+ - From my experience, I think that every actor has to make sure that they’re in charge of their own career somehow or other.
+ - Acting is mostly about listening. If you just focus in on what the other person is saying, acting takes care of itself to quite a large extent.
+ - Parts win prizes, not actors.
+ - I’m a quite serious actor who doesn’t mind being ridiculously comic.
+ - What’s interesting about the process of acting is how often you don’t know what you’re doing.
+ - One longs for a director with a sense of imagination.
+ - I think the thing about film is, as it gets proved by a lot of young filmmakers now, that the medium will just go on reinventing itself, and so you just hope to be a part of that and not a part of some kind of endless regurgitation or ‘Here I am doing what you know I do’ kind of thing.
+ - I’ve learned, having been on a lot of sets, the good news is that by definition you are surrounded by experts. They get fired if they’re not – unlike in the theatre!
+ - I think every English actor is nervous of a Newcastle accent.
+ - You can lull the paying customers as long as they get slapped.
+ - Who I am gets in the way of people looking innocently at the parts I play.
+ - When I get off the plane in England I always feel about two inches shorter.
+ - On film you put all your energies into a single glance.
+ - The difference between being an actor and a director is simple. The director has to hide his panic; the actor doesn’t.
+ - When I am asked about influences, I always say I bow down to Fred Astaire, because when you look at him dancing you never look at his extremities, do you? You look at his centre. What you never see is the hours of work that went into the routines, you just see the breathtaking spirit and freedom.
+ - The directors you trust the most are the ones, when you ask them a question, they’ve got the guts to say, ‘I don’t know.’
+ - One of the most, in a weird way, encouraging things a director can say to an actor – I know this as an actor – is when you ask them a question, they say, I don’t know – ’cause it means there’s some space there for you to find out. And it means that there’s going to be a process.
+ - What is it about actors? God knows I get bored with actors talking about themselves.
+ - Being on the stage in New York is always exciting because you feel like you’re part of the life of the city.
+ - Actors are actually very supportive of each other.
+ - Market forces impose certain rules before a film can actually get made.
+ - So you can’t judge the character you’re playing ever.
+ - I’m always aware of the camera and it feels like that’s the audience.
+ - In theater, you’ve got to be aware of your whole body because it involves stamina. It involves two-and-a-half hours and a sustained release of energy, maybe for six months.
+
+90 quotes

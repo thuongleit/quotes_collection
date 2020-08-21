@@ -1,0 +1,82 @@
+ - A line is a dot that went for a walk.
+ - One eye sees, the other feels.
+ - Becoming is superior to being.
+ - All art is a memory of age-old things, dark things, whose fragments live on in the artist.
+ - See with one eye, feel with the other.
+ - A drawing is simply a line going for a walk.
+ - One day I will lie nowhere with an angel at my side.
+ - I cannot be grasped in the here and now, For my dwelling place is much among the dead, As the yet unborn, Slightly closer to the heart of creation than usual, But still not close enough.
+ - Art should be like a holiday: something to give a man the opportunity to see things differently and to change his point of view.
+ - The work of art is above all a process of creation.
+ - Nature is garrulous to the point of confusion, let the artist be truly taciturn.
+ - A single day is enough to make us a little larger or, another time, a little smaller.
+ - Be winged arrows aiming at fulfillment and goal.
+ - I have a clear view of 12 years of history of my inner self. First the cramped self, that self with big blinkers, then the disappearance of the blinkers and the self, now gradually the reemergence of a self without blinkers.
+ - Color is the place where our brain and the universe meet.
+ - Spatial art does not begin with a poetic mood or idea, but with construction of one or more figures, with the harmonizing of several colors and tones, or with the devaluation of spatial relationships and so on.
+ - Everything vanishes around me, and works are born as if out of the void. Ripe, graphic fruits fall off. My hand has become the obedient instrument of a remote will.
+ - The creation lives as genesis beneath the visible surface of the work. All intelligent people see this after the fact, but only the creative see it before the fact – in the future.
+ - An active line on a walk, moving freely, without goal. A walk for a walk’s sake.
+ - To emphasize only the beautiful seems to me to be like a mathematical system that only concerns itself with positive numbers.
+ - When looking at any significant work of art, remember that a more significant one probably has had to be sacrificed.
+ - All the things an artist must be: poet, explorer of nature, philosopher!
+ - The painter should not paint what he sees, but what will be seen.
+ - Make chance essential.
+ - It is precisely the way which is productive – this is the essential thing; becoming is more important than being...
+ - My mirror probes down to the heart. I write words on the forehead and around the corners of the mouth. My human faces are truer than the real ones.
+ - My hand has become the obedient instrument of a remote will.
+ - We construct and keep on constructing, yet intuition is still a good thing.
+ - You adapt yourself to the contents of the paintbox.
+ - All is well with me. The rain doesn’t reach me, my room is well heated, what more can one ask for? There’s no shortage of work, either...
+ - Nothing can be rushed. It must grow, it should grow of itself, and if the time ever comes for that work, then so much the better!
+ - I paint in order not to cry.
+ - Polyphonic painting is superior to music in that there, the time element becomes a spatial element. The notion of simultaneity stands out even more richly.
+ - It is possible that a picture will move far away from Nature and yet find its way back to reality. The faculty of memory, experience at a distance produces pictorial associations.
+ - Everything passes, and what remains of former times, what remains of life, is the spiritual. In everything we do, the claim of the Absolute is unchanging.
+ - The beholder’s eye, which moves like an animal grazing, follows paths prepared for it in the picture.
+ - Children also have artistic ability, and there is wisdom in there having it! The more helpless they are, the more instructive are the examples they furnish us; and they must be preserved free of corruption from an early age.
+ - The artist of today is more than an improved camera, he is more complex, richer, and wider. He is a creature on the earth and a creature within the whole, that is, a creature on a star among stars.
+ - The creation of a work of art must of necessity, as a result of entering into the specific dimensions of pictorial art, be accompanied by distortion of the natural form. For, therein is nature reborn.
+ - Each energy calls for its complementary energy to achieve self-contained stability based on the play of energies.
+ - A line comes into being. It goes out for a walk, so to speak, aimlessly for the sake of the walk.
+ - Light and the rational forms are locked in combat; light sets them into motion, bends what is straight, makes parallels oval, inscribes circles in the intervals, makes the intervals active.
+ - In the final analysis, a drawing simply is no longer a drawing, no matter how self-sufficient its execution may be. It is a symbol, and the more profoundly the imaginary lines of projection meet higher dimensions, the better.
+ - A certain fire pretends to be alive; it awakens. Working its way along the hand as a conductor, it reaches the support and engulfs it; then a leaping spark closes the circle it was to trace, coming back to the eye and beyond.
+ - Sometimes I dream of a work of really great breadth, ranging through the whole region of object, meaning, and style. This, I fear, will remain a dream, but it is a good thing to bear the possibility occasionally in mind.
+ - My hand is entirely the implement of a distant sphere. It is not my head that functions but something else, something higher, something somewhere remote. I must have great friends there, dark as well as bright. They are all very kind to me.
+ - Art does not reproduce the visible; it makes visible.
+ - The art of mastering life is the prerequisite for all further forms of expression, whether they are paintings, sculptures, tragedies, or musical compositions.
+ - A tendency toward the abstract is inherent in linear expression: graphic imagery being confined to outlines has a fairy-like quality and at the same time can achieve great precision.
+ - Like people, a picture has a skeleton, muscles and skin.
+ - The way to form transcends its own destination, goes beyond the end of the way itself.
+ - It is the artistic mission to penetrate as far as may be toward that secret ground where primal law feeds growth.
+ - First of all, the art of living; then as my ideal profession, poetry and philosophy, and as my real profession, plastic arts; in the last resort, for lack of income, illustrations.
+ - Democracy with its semi-civilization sincerely cherishes junk. The artists power should be spiritual. But the power of the majority is material. When these worlds meet occasionally, it is pure coincidence.
+ - Everything vanishes round me and good works rise from me of their own accord.
+ - Color has got me. I no longer need to chase after it. It has got me for ever. I know it. That is the meaning of this happy hour.
+ - Color and I are one. I am a painter.
+ - He neither serves nor rules, he transmits. His position is humble and the beauty at the crown is not his own. He is merely a channel.
+ - One does not lash hat lies at a distance. The foibles that we ridicule must at least be a little bit our own. Only then will the work be a part of our own flesh. The garden must be weeded.
+ - Art makes something a lot more visible or audible.
+ - By using patches of color and tone it is possible to capture every natural impression in the simplest way, freshly and immediately.
+ - He has found his style, when he cannot do otherwise.
+ - I want to be as though new-born, knowing nothing, absolutely nothing about Europe.
+ - Satire must not be a kind of superfluous ill will, but ill will from a higher point of view. Ridiculous man, divine God. Or else, hatred against the bogged-down vileness of average man as against the possible heights that humanity might attain.
+ - For the understanding of a picture a chair is needed. Why a chair? To prevent the legs, as they tire, from interfering with the mind.
+ - The longer a line, the more of the time element it contains. Distance is time whereas a surface is apprehended more in terms of the moment.
+ - The worst state of affairs is when science begins to concern itself with art.
+ - It is a great difficulty and a great necessity to have to start with the smallest.
+ - Beauty is as relative as light and dark. Thus, there exists no beautiful woman, none at all, because you are never certain that a still far more beautiful woman will not appear and completely shame the supposed beauty of the first.
+ - I still come closest to success with drawing.
+ - Frightened, I jump up from the bank, the struggle begins anew. Bitterness has returned. I am not Pan in the reed, I am merely a human being and want to climb a few steps, but really climb them...
+ - Reduction! One wants to say more than nature and one makes the impossible mistake of wanting to say it with more means than she, instead of fewer.
+ - I must begin, not with hypothesis, but with specific instances, no matter how minute.
+ - The beautiful, which is perhaps inseparable from art, is not after all tied to the subject, but to the pictorial representation. In this way and in no other does art overcome the ugly without avoiding it.
+ - In my productive activity, every time a type grows beyond the stage of its genesis, and I have about reached the goal, the intensity gets lost very quickly, and I have to look for new ways.
+ - Gradually compositions make an appearance again. Political – satirical – conceits expressed in one figure or a few.
+ - It is interesting to observe how real the object remains, in spite of all abstractions.
+ - I still come closest to success with drawing. When I use color the results are dubious, for these painfully gained experiences bear less fruit.
+ - To achieve vital harmony in a picture it must be constructed out of parts in themselves incomplete, brought into harmony only at the last stroke.
+ - Genius is the error in the system.
+
+80 quotes

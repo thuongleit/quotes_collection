@@ -1,0 +1,24 @@
+ - As I hurtled through space, one thought kept crossing my mind – every part of this rocket was supplied by the lowest bidder.
+ - The most important thing we can do is inspire young minds and to advance the kind of science, math and technology education that will help youngsters take us to the next phase of space travel.
+ - Zero G and I feel fine.
+ - I suppose the one quality in an astronaut more powerful than any other is curiosity. They have to get some place nobody’s ever been.
+ - If there is one thing I’ve learned in my years on this planet, it’s that the happiest and most fulfilled people I’ve known are those who devoted themselves to something bigger and more profound than merely their own self interest.
+ - We have an infinite amount to learn both from nature and from each other.
+ - To sit back and let fate play its hand out and never influence it is not the way man was meant to operate.
+ - The moment of twilight is simply beautiful.
+ - Too many people, when they get old, think that they have to live by the calendar.
+ - There are times when you devote yourself to a higher cause than personal safety.
+ - I don’t know what you could say about a day in which you have seen four beautiful sunsets.
+ - By its very definition, civic responsibility means taking a healthy role in the life of one’s community. That means that classroom lessons should be complemented by work outside the classroom. Service-learning does just that, tying community service to academic learning.
+ - There is still no cure for the common birthday.
+ - I am a stranger. I come in peace. Take me to your leader and there will be a massive reward for you in eternity.
+ - I think a mentor gets a lot of satisfaction in a couple of ways. They’re doing something constructive, so they feel good about that. And when they see the results of this, with the young people they’re working with, it’s very, very rewarding.
+ - To get your name well enough known that you can run for a public office, some people do it by being great lawyers or philanthropists or business people or work their way up the political ladder. I happened to become known from a different route.
+ - You know, old folks can have dreams, too, as well as young folks, and then work toward them. And to have a dream like this come true for me is just a terrific experience.
+ - Just because I’m 77 doesn’t mean I don’t have a dream.
+ - When others kid me about being bald, I simply tell them that the way I figure it, the good Lord only gave men so many hormones, and if others want to waste theirs on growing hair, that’s up to them.
+ - That was a real fireball.
+ - I was sold on flying as soon as I had a taste for it.
+ - This is a day we have managed to avoid for a quarter of a century. We’ve talked about it before and speculated about it, and it finally has occurred. We hoped we could push this day back forever.
+
+22 quotes

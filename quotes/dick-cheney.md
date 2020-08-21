@@ -1,0 +1,107 @@
+ - Two days ahead of schedule, the world witnessed the arrival of a free and sovereign Iraq.
+ - You wake up every morning with a smile on your face because you’ve got a new day you never expected to have. And there’s a sense of wonderment. Nothing short of magical.
+ - It is easy to take liberty for granted, when you have never had it taken from you.
+ - I wake up every morning literally with a smile on my face, grateful for another day I never thought I’d see.
+ - Reagan proved deficits don’t matter.
+ - Principle is OK up to a certain point, but principle doesn’t do any good if you lose.
+ - Everyone knows that you’re not really a real man unless you own a gun.
+ - Simply stated, there is no doubt that Saddam Hussein now has weapons of mass destruction. There is no doubt he is amassing them to use against our friends, against our allies, and against us.
+ - My own belief is that the way we grow the economy, create jobs, create wealth is in the private sector. The government doesn’t do that.
+ - Direct threats require decisive action.
+ - As Vice President one of the things I spend time on is the continuity of government; that’s the main reason I’m here is a back up for the President if anything happens to him.
+ - It will be necessary for us to be a nation of men, and not laws.
+ - If you’re going to go increase taxes on small businesses, you’re going to slow down the extent to which we’re able to reduce unemployment. So I think it’s a serious mistake; the wrong time to raise taxes.
+ - Whoever controls the flow of Persian Gulf oil has a stranglehold not only on our economy but also on the other countries of the world as well.
+ - Unfortunately, we don’t have the option of marriage in our country. We could go to Britain or Spain or Argentina and do something symbolic, but that’s not what I want. I want to have the rights of anybody else in my home country. I don’t want to be a second-class citizen.
+ - In terms of asking questions, I plead guilty. I ask a hell of a lot of questions. That’s my job.
+ - I think you can not be blown off course by the fluctuations in the public opinion polls.
+ - The only thing left that shows I was a heart patient is I have a scar down the middle of my chest where they went in three times to do open heart surgery. I have a brand new heart inside, and all the mechanical and electronic gear and so forth is all gone.
+ - I got sick, hospitalized, had no insurance. And the money I had saved for our honeymoon went to pay medical bills. So I had been in the position of not having insurance when I needed health care.
+ - I’m more concerned with bad guys who got out and released than I am with a few that in fact were innocent.
+ - I’ve been extraordinarily fortunate that I’ve been able to go live a very active, stressful life. And I don’t believe that my heart disease changed me for the worst.
+ - Conservation may be a sign of personal virtue, but it is not a sufficient basis for a sound, comprehensive energy policy.
+ - I think we need a very, very serious effort, primarily through tax policy to provide incentives and encouragement for people to save and invest and expand their businesses and to create more jobs. The kind of thing we did in the early Reagan years, 30 years ago. I think that’s essential.
+ - I can’t think of a time when we’ve had a region emerge as suddenly to become as strategically significant as the Caspian.
+ - The good Lord didn’t see fit to put oil and gas only where there are democratically elected regimes friendly to the United States. Occasionally we have to operate in places where, all considered, one would not normally choose to go. But we go where the business is.
+ - We have great information. They’re going to welcome us. It’ll be like the American Army going through the streets of Paris. They’re sitting there ready to form a new government. The people will be so happy with their freedoms that we’ll probably back ourselves out of there within a month or two.
+ - I mean, it’s not just one day you get up, bang, and you got Osama bin Laden. It’s the kind of thing where an awful lot of people over a long period of time – thousands have worked this case and these issues and followed on the leads and captured bad guys and interrogated them and so-forth.
+ - We have to make America the best place in the world to do business.
+ - I had other priorities in the sixties than military service.
+ - The Iraqi forces are conducting the Mother of all Retreats.
+ - Except for the occasional heart attack, I never felt better.
+ - We must be prepared to face our responsibilities and be willing to use force if necessary.
+ - Instead, the terrorists see just what they were hoping for, our unity gone, our resolve shaken, our leaders distracted. In short, they see weakness and opportunity.
+ - I learned early on that if you don’t want your memos to get you in trouble someday, just don’t write any.
+ - I think it’s fair to say you can’t predict a straight line to victory. You know, there’ll be good days and bad days along the way.
+ - From kindergarten to graduation, I went to public schools, and I know that they are a key to being sure that every child has a chance to succeed and to rise in the world.
+ - I do not believe the President requires any additional authorization from the Congress before committing US forces to achieve our objectives in the Gulf.
+ - Obviously, it’s a big problem how do we provide quality care to the maximum number of people. And it’s not an easy problem to solve.
+ - Had the decision belonged to Senator Kerry, Saddam hussein would still be in power today in Iraq. In fact, Saddam Hussein would almost certainly still be in control of Kuwait.
+ - The Columbia is lost, but the dreams that inspired its crew remain with us.
+ - Westerners know the difference between a talker and the real deal. If Rick Perry wasn’t right to be governor of Texas, why should he be president?
+ - I have not seen Al Gore’s movie.
+ - I can think of a lot of words to describe Senator Kerry’s position on Iraq; ‘consistent’ is not one of them.
+ - We haven’t really had the time yet to pore through all those records in Baghdad. We’ll find ample evidence confirming the link, that is the connection if you will between al Qaida and the Iraqi intelligence services. They have worked together on a number of occasions.
+ - I think the record speaks for itself. These are two individuals who have been for the war when the headlines were good and against it when their poll ratings were bad.
+ - The Senator from Massachusetts has given us ample grounds to doubt the judgment and the attitude he brings to bear on vital issues of national security.
+ - When George Bush asked me to sign on, it obviously wasn’t because he was worried about carrying Wyoming. We got 70 percent of the vote in Wyoming, although those three electoral votes turned out to be pretty important last time around.
+ - You cannot be driven by the polls. The polls change all the time; they’re easily manipulated by whoever wants to ask those poll questions; they go up; they go down.
+ - What we did in Iraq was exactly the right thing to do. If I had it to recommend all over again, I would recommend exactly the same course of action.
+ - The plan was criticized by some retired military officers embedded in TV studios. But with every advance by our coalition forces, the wisdom of that plan becomes more apparent.
+ - We’ve had experiences where the president’s been shot, but never had a situation where the vice president shot somebody.
+ - I had a reputation of being somewhat moderate, partly, I think, because I wasn’t a ‘bomb thrower’ like some of my conservative colleagues, and partly because I got along with people all across the political spectrum.
+ - No, I’ve always been impressed with the tremendous resilience of the American economy. I think over the years, over the decades, it’s demonstrated this tremendous ability to take severe body blows, if you will, and bounce back.
+ - Like many Americans, I’ve always been intrigued by Bill Clinton. I obviously didn’t always agree with him – enjoyed running against his legacy in 2000, when Al Gore was his designated successor, but I don’t have anything negative I would say about Bill Clinton.
+ - Well, we’ve got a major effort under way to try to educate everybody, to let them know we have a zero tolerance policy where sexual assault is involved.
+ - My belief is we will, in fact, be greeted as liberators.
+ - I – obviously, I’m not a big fan of President Obama. I think he’s been one of our weakest presidents. I just fundamentally disagree with him philosophically.
+ - You know, in this business, you don’t have any control over what the press says and how they portray things. And that’s their prerogative. But I think anybody who looks at it objectively has trouble making the case that somehow this is a bad economy.
+ - I think things have gotten so bad inside Iraq, from the standpoint of the Iraqi people, my belief is we will, in fact, be greeted as liberators.
+ - I worship the ground Paul Ryan walks on.
+ - As a former secretary of defense, I think Donald Rumsfeld is the best secretary of defense the United States has ever had.
+ - There comes a time when deceit and defiance must be seen for what they are. At that point, a gathering danger must be directly confronted. At that point, we must show that beyond our resolutions is actual resolve.
+ - Another argument holds that opposing Saddam Hussein would cause even greater troubles in that part of the world, and interfere with the larger war against terror. I believe the opposite is true.
+ - I’m absolutely convinced that the threat we face now, the idea of a terrorist in the middle of one of our cities with a nuclear weapon, is very real and that we have to use extraordinary measures to deal with it.
+ - I’ve worked for four presidents and watched two others up close, and I know that there’s no such thing as a routine day in the Oval Office.
+ - Cheney, Cheney, you can’t hide, we charge you with genocide.
+ - The United States needs to be not so much loved as it needs to be respected. Sometimes, that requires us to take actions that generate controversy. I’m not at all sure that that’s what the Obama administration believes.
+ - I think Barack Obama is a one-term President.
+ - Sarah Palin is an attractive candidate, but based on her background, she only was governor for what, two years. I don’t think she passed that test.
+ - Under our plan you can build wealth, even if you don’t have a dollar to spare.
+ - There’s overwhelming evidence that there was a connection between Al Qaeda and the Iraqi government.
+ - I think we need to significantly reduce the regulatory burden on the private sector. The Obama administration is doing the opposite. They’re loading on more and more regulation on the private respect to how the economy functions.
+ - I’m not apologetic with respect to the policies of the Bush administration. I think we basically got it right.
+ - In our own country, we take democratic values seriously – and so we always have a vigorous debate on the issues. That’s part of the greatness of America, and we wouldn’t have it any other way.
+ - It’s a tougher program for tougher customers.
+ - We believe he has, in fact, reconstituted nuclear weapons.
+ - It’s clearly established in terms of training, provision of bomb-making experts, training of people with respect to chemical and biological warfare capabilities, that al-Qaeda sent personnel to Iraq for training and so forth.
+ - I think I was able to survive five heart attacks because I never postponed going to the hospital when something didn’t feel right.
+ - A little tough talk in the midst of a campaign or as part of a presidential debate cannot obscure a record of 30 years of being on the wrong side of defense issues.
+ - You’ve got a job to do, and because you’ve got a job to do, you’ve got to focus on that, so you don’t have time for personal considerations.
+ - In Iraq, a ruthless dictator cultivated weapons of mass destruction and the means to deliver them. He gave support to terrorists, had an established relationship with al Qaeda, and his regime is no more.
+ - We need to have a pro-growth policy put in place that offers people hope and offers the opportunity for businesses to expand and for them to have confidence in what the world is going to look like for the next two or three or four years with respect to economic policy.
+ - I don’t pay a lot of attention, frankly, to what Barack Obama says.
+ - How could any responsible leader have ignored the Iraqi threat? If we had not acted, Saddam Hussein and his sons would still be in power.
+ - In his years in Washington, Senator Kerry has been one vote of a hundred in the United States Senate – and fortunately on matters of national security he was very often in the minority.
+ - I think there’s no question but what the tail end of the Bush administration, Bush-Cheney administration, that we took steps specifically geared to try and free up the financial sector.
+ - That intelligence capability is enormously important to the United States, to our conduct of foreign policy, to defense matters, to economic matters. And I am a strong supporter of it.
+ - We know he’s been absolutely devoted to trying to acquire nuclear weapons, and we believe he has, in fact, reconstituted nuclear weapons.
+ - We urge all democratic nations and the United Nations to answer the Iraqi Governing Council’s call for support for the people of Iraq in making the transition to democracy.
+ - As I think about the future, I’m back where most people live their lives. Which is, death is not imminent, and that’s different.
+ - Let us rid ourselves of the fiction that low oil prices are somehow good for the United States.
+ - I think they’re in the last throes, if you will, of the insurgency.
+ - The question in my mind is how many additional American casualties is Saddam worth? And the answer is not very damned many.
+ - I do find that the mainstream media oftentimes is what I would consider off base or has a bias.
+ - Senator Kerry says he sees two Americas. It makes the whole thing mutual – America sees two John Kerrys.
+ - The Middle East, with two-thirds of the world’s oil and lowest cost, is still where the prize ultimately lies.
+ - And the fact of the matter is there were thousands of people that went through those training camps in Afghanistan. We know they are seeking deadlier weapons – chemical, biological and nuclear weapons if they can get it.
+ - We have no intention of ignoring or appeasing history’s latest gang of fanatics trying to murder their way to power.
+ - You got to have people at the top who respond to and are selected by presidents.
+ - His regime has had high-level contacts with al Qaeda going back a decade and has provided training to al Qaeda terrorists.
+ - There’s every reason to believe there will be further attacks attempted against the United States. For us to spend so much time patting ourselves on the back because we got bin Laden that we miss the next attack would be a terrible tragedy.
+ - The important thing here to understand is that the people that are at Guantanamo are bad people. I mean, these are terrorists for the most part.
+ - You can’t fall back on the private sector and say, ‘You take care of the nation’s banking system.’ That’s a fundamental function of the government, the Federal Reserve, the Treasury and the FDIC, etc. All of those agencies have a major role to play there.
+ - I did my 40 years in Washington, 40-plus, and it’s time to pause and reflect and think about what I’ve seen and done.
+ - Europeans know that their great experiment in building peace, unity and prosperity cannot survive as a privileged enclave, surrounded on its outskirts by breeding grounds of hatred and fanaticism.
+
+105 quotes

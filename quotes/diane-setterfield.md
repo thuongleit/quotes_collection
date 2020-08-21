@@ -1,0 +1,56 @@
+ - But silence is not a natural environment for stories. They need words. Without them they grown pale, sicken and die. And then they haunt you.
+ - There is something about words. In expert hands, manipulated deftly, they take you prisoner. Wind themselves around your limbs like spider silk, and when you are so enthralled you cannot move, they pierce your skin, enter your blood, numb your thoughts. Inside you they work their magic.
+ - Of course I loved books more than people.
+ - I shall start at the beginning. Though of coarse, the beginning is never where you think it is.
+ - There is something about words. In expert hands, manipulated deftly, they take you prisoner.
+ - She was a do-gooder, which means that all the ill she did, she did without realizing it.
+ - What better place to kill time than a library?
+ - What better way to get to know someone than through her choice and treatment of books?
+ - Everybody has a story. It’s like families. You might not know who they are, might have lost them, but they exist all the same. You might drift apart or you might turn your back on them, but you can’t say you haven’t got them. Same goes for stories.
+ - Sometimes when you open the door to the past, what you confront is your destiny.
+ - A good story is always more dazzling than a broken piece of truth.
+ - Emmeline didn’t call me anything. She didn’t need, for I was always there. You only need names for the absent.
+ - The funeral was over, at last I could cry. Except that I couldn’t. My tears, kept in too long, had fossilized. They would have to stay in forever now.
+ - My genius is not so frail a thing that it cowers from the dirty fingers of newspapernen.
+ - I don’t pretend reality is the same for everyone.
+ - In this cruel world kindness should always be repaid.
+ - The tears I gratified him with were fake ones. Ones that set off my green eyes the way diamonds set off emeralds. And it worked. If you dazzled a man with green eyes, he will be so hypnotized that he won’t notice there is someone inside the eyes spying on him. – Vida Winters Page 268.
+ - Fate, at first so amenable, so reasonable, so open to negotiation, ends up by exacting a cruel revenge for happiness.
+ - As for you, you are alive. But it’s not the same as living.
+ - Boys do not leave their boyhood behind when they leave off their school uniform.
+ - What good is truth, at midnight, in the dark, when the wind is roaring like a bear in the chimney?
+ - People whose lives are not balanced by a healthy love of money suffer from an appalling obsession with personal integrity.
+ - Reading can be dangerous.
+ - My mother and I were like two continents moving slowly but inexorably apart; my father, the bridge builder, constantly extending the fragile edifice he had constructed to connect us.
+ - Once upon a time there was a fairy godmother, but the rest of the time there was none. This story is about one of those other times.
+ - I still believe in stories. I still forget myself when I am in the middle of a good book. Books are for me, it must be said, the most important thing.
+ - But there can be no secrets in a house where there are children.
+ - Art, its completeness, its formedness, its finishedness, had no power to console. Words on the other hand, were a lifeline. They left their hushed rhythm behind, a counter to the slow in and out of Emmeline’s breathing.
+ - I have always been a reader; I have read at every stage of my life, and there has never been a time when reading was not my greatest joy.
+ - All children mythologise their birth. It is a universal trait. You want to know someone? Heart, mind and soul? Ask him to tell you about when he was born. What you get won’t be the truth: it will be a story. And nothing is more telling than a story.
+ - One gets so used to one’s own horrors, one forgets how they must seem to other people.
+ - Without the past to cast its long shadow, might you see the future more clearly?
+ - A story so cherished it has to be dressed in casualness to disguise its significance in case the listener turned out to be unsympathetic.
+ - Readers are fools. They believe all writing is autobiographical. And so it is, but not in the way they think. The writer’s life needs time to rot away before it can be used to nourish a work of fiction. it must be allowed to decay.
+ - There was no single moment when I thought, Aha! What a great idea! Rather there was a slow and gradual accumulation of numerous small ideas.
+ - There are too many books in the world to read in a single lifetime; you have to draw the line somewhere.
+ - People with ambition don’t give a damn what other people think of them.
+ - Do they sense it, these dead writers, when their books are read? Does a pinprick of light appear in their darkness? Is their soul stirred by the feather touch of another mind reading theirs? I do hope so.
+ - When one is nothing, one invents. It fills a void.
+ - The hours between eight in the evening and one or two in the morning have always been my magic hours. Against the blue candlewick bedspread the white pages of my open book, illuminated by a circle of lamplight, were the gateway to another world.
+ - Tragedy alters everything.
+ - I’ve nothing against people who love truth. Apart from the fact that they make dull companions.
+ - For me to see is to read. It has always been that way.
+ - I know there are people who don’t read fiction at all, and I find it hard to understand how they can bear to be inside the same head all the time.
+ - One needs no particular talent to be polite. On the contrary, being nice is what’s left when you’ve failed at everything else.
+ - Though my appetite for food grew frail, my hunger for books was constant.
+ - A birth is not really a beginning. Our lives at the start are not really our own but only the continuation of someone else’s story.
+ - When I was a child, books were everything. And so there is in me, always, a nostalgic, yearning for the lost pleasure of books. It is not a yearning that one ever expects to be fulfilled.
+ - But she had that laugh, and the sound of it was so beautiful that when you heard it, it was as if your eyes saw her through your ears and she was transformed.
+ - To anyone who took the trouble to look, I was plainly visible, but when people are expecting to see nothing, that is usually what they see.
+ - She could not read a book for fear of the feelings she might find in it.
+ - For it must be very lonely being dead.
+ - There are times when the human face and body can express the yearning of the heart so accurately that you can, as they say, read them like a book. Do not abandon me.
+ - Sometimes you can know things. Things about yourself. Things from before you can remember.
+
+54 quotes

@@ -1,0 +1,72 @@
+ - We’re all stories, in the end. Just make it a good one, eh?
+ - I am and always will be the optimist, the hoper of far-flung hopes and the dreamer of improblable dreams.
+ - In 900 years of time and space, I’ve never met anyone who wasn’t important.
+ - Be brave. Don’t be afraid to be stupid.
+ - When you think about it, we’re all different people all through our lives, and that’s okay, that’s good, you’ve got to keep moving so long as you remember all the people that you used to be.
+ - Kids should feel afraid of ‘Doctor Who.’ All the adults I’ve talked to remember fondly being afraid when they were kids. That’s part of the reason they remember it and love it. And if you’re afraid in a controlled way, you sort of appreciate fear in some respect.
+ - By not speaking you don’t get rid of the story, you just open up a silence, which can be just as loud.
+ - My palette contains a warm and cool of each primary, plus four modifiers: Yellow Ochre, Burnt Sienna, Blue-Violet and Phthalo Yellow-Green just mix as I go for each painting.
+ - Amy Pond, there’s something you’d better understand about me ’cause it’s important, and one day your life may depend on it: I am definitely a mad man with a box!
+ - I am a fan of a bright sock. They’re bold.
+ - A theocracy is a government ruled directly by God, and for us it means “Theocracy within”. In other words, trying to live by God’s principles instead of just living selfishly.
+ - If I was making a tea advert, I would want to communicate about tea is that it can console you, it can start your day, there is the warmth and the ritual, and you can share it; you make someone a cup of tea and you offer it to them.
+ - In the landscape, colors are more neutral than you may think. Pay close attention to this. Small areas of rich color can make the whole painting look colorful.
+ - Making people think about data outside of the office environment somehow makes it easier to connect with the issue you are trying to overcome within it.
+ - I’m not a tweeter or a Facebooker or a Grammer. I’m a real grump when it comes to technology. I’m like, come on, just write me a letter.
+ - We didn’t start Theocracy because we wanted to be cool like so-and-so and make money. Our songs aren’t trendy, and our lyrics hopefully make people think about certain concepts in a new way.
+ - It’s very rare that I play cool people. I’m not sure what that says about me.
+ - Time travel is such a magic concept.
+ - I’m not handsome enough to be James Bond. Maybe a villain, though.
+ - There’s rivalry between the Harry Potter fans and the Twilight fans. And Twilight fans think they’re much cooler than the Harry Potter fans. And I’m like, I dunno why, they’d all get their butts kicked by the Doctor Who fans.
+ - I started writing songs in high school and always wanted to have a band, and eventually my creative endeavors developed into Theocracy. So in some ways, you could say the vision has been there since I started writing songs.
+ - I think expectations of ‘Doctor Who’ should always be high, because it’s a show that must always progress and get better and better.
+ - I think, that if the world were a bit more like ComicCon, it would be a better place.
+ - Nothing can prepare you for the changes that take place in your life – for the changes, not only in my life, but my family’s. Nothing can prepare you for the enormity and the transition that you go through.
+ - I just love vampires.
+ - Lyrical content is very important to me. I’m always trying to make sure the lyrics and music complement each other perfectly.
+ - When I’m painting outdoors, I only have time to think about what I’m saying, not how I’m saying it.
+ - I am terribly clumsy, so there is a plethora of walking into lamp-posts, falling over, dropping things, and ruining sofas.
+ - I am a fancy dress grump, to be honest.
+ - When I started Doctor Who Steven Moffat said, “That’s it for the rest of your life.” I’ll be Doctor to a whole generation when they’re 50.
+ - There’s something very intimate about taking someone’s work, turning it over and unpicking it. In the same way people have unique handwriting people have a sewing style. You do start building a fantasy relationship with the person.
+ - Even now, I’m very superstitious, in silly ways. I always put my left boot on first. Or on set, I always tie my bow tie from right to left.
+ - I think that every artistic venture is a risk, and it has to be that way, so you do as much preparation as you can and make that as thorough as you can possibly make it, until you turn up on set. It’s about taking risks, and some might work and some might not, but that’s what makes it interesting.
+ - The majority of romantic comedy movies have nothing to do with love, but everything to do with infatuation.
+ - Being an actor is about having the courage to follow your instincts, and also having the discipline and dedication to sacrifice the things in your life that you need to sacrifice to get the best out of yourself artistically.
+ - At university I had a big coloured scarf and people would often say, ‘All right, Doctor Who?’ And, I thought, I rather liked that notion.
+ - There are great disciplines from being a sportsman that you can transfer into being an artist. The preparation, the sacrifice, the constant desire to improve.
+ - Apparently, as a kid, I used to eat spiders. Maybe there’s some Freudian significance behind that.
+ - I would be sitting in my flat watching TV, and ‘Doctor Who’ would be on with my flatmate there. I would have loved to share the fact that I was the new Doctor, but I couldn’t. I was going mad. My dad was rather flabbergasted. When I told him, he laughed. He was excited, elated and very proud.
+ - I’m not hugely technical with things, but I guess that the thing I use most is my iPhone, on a practical level.
+ - I think you can hear the struggles and hear a realness in Theocracy songs, a human element that you don’t get from a lot of the typical Christian stuff.
+ - I constantly watch ‘The Simpsons’ and an English cartoon called ‘The Raccoons’ and ‘Gummi Bears.’ I was obsessed with ninja films, and the ‘Teenage Mutant Nina Turtles,’ I used to love that as well.
+ - The storytelling in ‘Doctor Who’ is quite universal.
+ - I can’t think of anyone else I’d travel around the universe with than Amy Pond.
+ - You can eliminate color and still have a painting that works, but you must have drawing, value and design.
+ - I think Jennifer Saunders would be great in ‘Doctor Who.’
+ - The fact that you’ve got zombies in this movie allows you to make slightly bolder choices tonally.
+ - I think there are definite parallels between sport and art. There’s a real sense of sacrifice. There’s a real sense of dedication that is needed in sport that I think you can attribute to art. I think so much of it is about bravery and courage, being an actor.
+ - As an actor, you’ll have ten parts in 2015 – eight of them will go to the other actors above you and two of them you might be close to, and you try to make them as good as you can.
+ - I’m interested in how a lot of people pull objects together to form an environment that we feel reflects ourselves or makes us feel comfortable.
+ - If I could film, we’d film every episode of ‘Doctor Who’ in New York. I have an affinity with the city. It has some wonderful locations and it is devastatingly vast and huge. Central Park looks amazing on camera.
+ - I’ve always loved dinosaurs.
+ - History will only ever be partial, to a large extent history tells us what we think should be remembered and what should be forgotten, I find that really problematic.
+ - Actors, movie stars, rock stars, I can meet them with no worries – but with footballers I go weak at the knees. All of them.
+ - Directing made me realise what I do as an actor that’s extraneous, it focuses your mind on story, story, story.
+ - A lot of times, people have forgotten about an album by the time it’s released, because it leaked three months earlier. Very strange days we live in.
+ - I got injured when I was a kid, and it prevented me from becoming a footballer.
+ - As an actor I can sort of smell a duff note, that isn’t full of that much conviction. My worst thing with directors is when I know more than them about the character.
+ - I think Christians should be leaders in art, science, philanthropy, charity, and all kinds of good works. We should be good examples for everyone. Unfortunately though, that’s not often the case.
+ - As a kid, I knew all of the dinosaurs. It’s one of those tragedies that I’ve forgotten what dinosaurs are cool.
+ - I’m particularly inspired by pristine locations. I enjoy working in areas where one can travel for miles without seeing any human influence.
+ - As we get older – perhaps I’m just speaking for myself – we can get too cynical.
+ - It seems like there’s a real appetite for science fiction in the States.
+ - When I write, I’m writing as a fan, and trying to come up with songs that I would want to listen to.
+ - I always steal a pair of socks on every photo shoot I do. It’s my thing.
+ - There’s too much of everything – too many bands, too many albums, too much information all the time. You’re seeing fewer album releases treated as big events, because of the influx. It’s almost a “here this week, forgotten next week” thing.
+ - I used to love ninja movies. That was my thing.
+ - One of the exciting things about producing a comic is seeing the artist stamp his own interpretation on it.
+ - I am a terrible sleeper.
+ - Any actor worth his salt has a responsibility to reinvent himself from part to part.
+
+70 quotes

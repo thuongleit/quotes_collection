@@ -1,0 +1,54 @@
+ - A national language is a band of national union.
+ - The education of youth, an employment of more consequence than making laws and preaching the gospel, because it lays the foundation on which both law and gospel rest for success.
+ - Education is useless without the Bible. The Bible was America’s basic text book in all fields. God’s Word, contained in the Bible, has furnished all necessary rules to direct our conduct.
+ - All the miseries and evils which men suffer from vice, crime, ambition, injustice, oppression, slavery and war, proceed from their despising or neglecting the precepts contained in the Bible.
+ - The heart should be cultivated with more assiduity than the head.
+ - Almost all the civil liberty now enjoyed in the world owes its origin to the principles of the christian religion.
+ - The Moral Law is summarily contained in the Decalogue or Ten Commandments; written by the finger of God on two tablets of stone, and delivered to Moses on Mount Sinai.
+ - The Bible must be considered as the great source of all the truth by which men are to be guided in government as well as in all social transactions.
+ - The moral principles and precepts contained in the Scripture ought to form the basis of all our civil constitutions and laws.
+ - The Bible was America’s basic textbook in all fields.
+ - Language is not an abstract construction of the learned, or of dictionary makers, but is something arising out of the work, needs, ties, joys, affections, tastes, of long generations of humanity, and has its bases broad and low, close to the ground.
+ - In my view, the Christian religion is the most important and one of the first things in which all children, under a free government ought to be instructed.
+ - Language, as well as the faculty of speech, was the immediate gift of God.
+ - The causes which destroyed the ancient republics were numerous; but in Rome, one principal cause was the vast inequality of fortunes.
+ - The virtues of men are of more consequence to society than their abilities, and for this reason, the heart should be cultivated with more assiduity than the head.
+ - In selecting men for office, let principle be your guide. Regard not the particular sect or denomination of the candidate-look to his character.
+ - When you become entitled to exercise the right of voting for public officers, let it be impressed on your mind that God commands you to choose for rulers just men who will rule in the fear of God. The preservation of a republican government depends on the faithful discharge of this duty.
+ - The duties of men are summarily comprised in the Ten Commandments, consisting of two tables; one comprehending the duties which we owe immediately to God-the other, the duties we owe to our fellow men.
+ - Unaffected modesty is the sweetest charm of female excellence, the richest gem in the diadem of her honor.
+ - An immense effect may be produced by small powers wisely and steadily directed.
+ - Whenever a man is known to seek promotion by intrigue, by temporizing, or by resorting to the haunts of vulgarity and vice for support, it may be inferred, with moral certainty, that he is not a man of real respectability, nor is he entitled to public confidence.
+ - The liberty of the press, trial by jury, the Habeas Corpus Writ, even Magna Carta itself, although justly deemed the paladia of freedom, are all inferior considerations, when compared with the general distribution of real property among every class of people.
+ - Let the people have property and they will have power – a power that will forever be exerted to prevent the restriction of the press, the abolition of trial by jury, or the abridgment of any other privilege.
+ - In the formation of our constitution the wisdom of all ages is collected-the legislators of antiquity are consulted, as well as the opinions and interests of the millions who are concerned. It short, it is an empire of reason.
+ - Power is always right, weakness always wrong. Power is always insolent and despotic.
+ - Every child in America should be acquainted with his own country. He should read books that furnish him with ideas that will be useful to him in life and practice. As soon as he opens his lips, he should rehearse the history of his own country.
+ - Before a standing army can rule, the people must be disarmed, as they are in almost every country in Europe.
+ - To suppose that man without language taught himself to speak, seems to me as absurd as it would be to suppose that without legs he could teach himself to walk. Language, therefore, must have been the immediate gift of God.
+ - No truth is more evident to my mind than that the Christian religion must be the basis of any government intended to secure the rights and privileges of a free people.
+ - It is the sincere desire of the writer that our citizens should early understand that the genuine source of correct republican principles is the bible, particularly the New Testament or the Christian religion.
+ - Language is the expression of ideas, and if the people of one country cannot preserve an identity of ideas they cannot retain an identity of language.
+ - The principles of all genuine liberty, and of wise laws and administrations are to be drawn from the Bible and sustained by its authority. The man therefore who weakens or destroys the divine authority of that book may be assessory to all the public disorders which society is doomed to suffer.
+ - The ecclesiastical establishments of Europe which serve to support tyrannical governments are not the Christian religion but abuses and corruptions of it.
+ - There iz no alternativ. Every possible reezon that could ever be offered for altering the spelling of wurds, stil exists in full force; and if a gradual reform should not be made in our language, it wil proov that we are less under the influence of reezon than our ancestors.
+ - Treason is the highest crime of a civil nature of which a man can be guilty.
+ - The reasonableness of the command to obey parents is clear to children, even when quite young.
+ - When a citizen gives his suffrage to a man of known immorality he abuses his trust; he sacrifices not only his own interest, but that of his neighbor; he betrays the interest of his country.
+ - Compassion is a mixed passion, composed of love and sorrow.
+ - A pure democracy is generally a very bad government, It is often the most tyrannical government on earth; for a multitude is often rash, and will not hear reason.
+ - Discipline our youth in early life in sound maxims of moral, political, and religious duties.
+ - Let us reject the spirit of making proselytes to particular creeds by any other means than persuasion.
+ - There are two powers only which are sufficient to control men, and secure the rights of individuals and a peaceable administration; these are the combined force of religion and law, and the force or fear of the bayonet.
+ - Tyranny is the exercise of some power over a man, which is not warranted by law, or necessary for the public safety. A people can never be deprived of their liberties, while they retain in their own hands, a power sufficient to any other power in the state.
+ - It is admitted that all men have an equal right to the enjoyment of their life, property and personal security; and it is the duty as it is the object, of government to protect every man in this enjoyment.
+ - Where will you find any code of laws among civilized men in which the commands and prohibitions are not founded on Christian principles? I need not specify the prohibition of murder, robbery, theft, trespass.
+ - To exterminate our popular vices is a work of far more importance to the character and happiness of our citizens than any other improvements in our system of education.
+ - A military force, at the command of Congress, can execute no laws, but such as the people perceive to be just and constitutional; for they will possess the power, and jealousy will instantly inspire the inclination, to resist the execution of a law which appears to them unjust and oppressive.
+ - The laws are the sole guardians of right, and when the magistrate dares not act, every person is insecure.
+ - Ability is active power, or power to perform.
+ - In some countries the common people are not permitted to read the Bible at all. In ours, it is as common as a newspaper and in schools is read with nearly the same degree of respect.
+ - Might his last glance behold the glorious ensign of the Republic still full high advanced, its arms and trophies streaming in all their original lustre.
+ - The minds of youth are perpetually led to the history of Greece and Rime or to Great Britain; Boys are constantly repeating the declamations of Demosthenes and Cicero, or debates upon some political question in the British Parliament.
+
+52 quotes

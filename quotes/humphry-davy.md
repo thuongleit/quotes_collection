@@ -1,0 +1,29 @@
+ - Every discovery opens a new field for investigation of facts, shows us the imperfection of our theories. It has justly been said, that the greater the circle of light, the greater the boundary of darkness by which it is surrounded.
+ - Nothing is so dangerous to the progress of the human mind than to assume that our views of science are ultimate, that there are no mysteries in nature, that our triumphs are complete and that there are no new worlds to conquer.
+ - Nothing tends so much to the advancement of knowledge as the application of a new instrument.
+ - Language is not only the vehicle of thought, it is a great and efficient instrument in thinking.
+ - The ideal life is that which has few friends, but many acquaintances.
+ - Life is made up, not of great sacrifices or duties, but of little things, in which smiles and kindness, and small obligations given habitually, are what preserve the heart and secure comfort.
+ - I have learned more from my mistakes than from my successes.
+ - By science calmed, over the peaceful soul, Bright with eternal Wisdom’s lucid ray, Peace, meek of eye, extends her soft control, And drives the puny Passions far away.
+ - There are very few persons who pursue science with true dignity.
+ - Fortunately science, like that nature to which it belongs, is neither limited by time nor by space. It belongs to the world, and is of no country and no age. The more we know, the more we feel our ignorance; the more we feel how much remains unknown...
+ - It must always be borne in mind that the assumption of woman’s social superiority lies at the root of these rules of conduct.
+ - The most important of my discoveries have been suggested to me by failures.
+ - We must reason in natural philosophy not from what we hope, or even expect, but from what we perceive.
+ - The art galleries of Paris contain the finest collection of frames I ever saw.
+ - James Watt was equally distinguished as a natural philosopher and chemist; his inventions demonstrate his profound knowledge of those sciences, and that peculiar characteristic of genius – the union of them for practical application.
+ - The wealth and prosperity of the country are only the comeliness of the body, the fullness of the flesh and fat; but the spirit is independent of them; it requires only muscle, bone and nerve for the true exercise of its functions. We cannot lose our liberty, because we cannot cease to think.
+ - The ready apology covers a multitude of social sins.
+ - There may be beings, thinking beings, near or surrounding us, which we do not perceive, which we cannot imagine. We know very little; but, in my opinion, we know enough to hope for the immortality, the individual immortality, of the better part of man.
+ - This sentiment of self-contempt is a frequent one in young people of both sexes. Their valuation of themselves varies as much as the barometer, and is as much affected by outward causes.
+ - Gay-Lussac was quick, lively, ingenious and profound, with great activity of mind and great facility of manipulation. I should place him at the head of all the living chemists in France.
+ - Experimental science hardly ever affords us more than approximations to the truth; and whenever many agents are concerned we are in great danger of being mistaken.
+ - The three states of the caterpillar, larva, and butterfly have, since the time of the Greek poets, been applied to typify the human being, – its terrestrial form, apparent death, and ultimate celestial destination.
+ - What is politeness in the home but the outcome of affection and self-respect, and the suppression of all those natural instincts of self-seeking that, allowed their way, produce the worst manners in the world?
+ - Profound minds are the most likely to think lightly of the resources of human reason, and it is the superficial thinker who is generally strongest in every kind of unbelief.
+ - Consistency in opinion is the slow poison of intellectual life, the destroyer of its vividness and energy.
+ - I envy no quality of the mind or intellect in others; not genius, power, wit, nor fancy; but, if I could choose what would be most delightful, and, I believe, most useful to me, I should prefer a firm religious belief to every other blessing.
+ - When two elements combine and form more than one compound, the masses of one element that react with a fixed mass of the other are in the ratio of small whole numbers.
+
+27 quotes

@@ -1,0 +1,35 @@
+ - I always got great respect as a bass player.
+ - When I record in a studio I don’t use an amp. I go directly into the board, so I can get that very fat, full sound – which is my favorite sound.
+ - I’m not an upfront person. Being upfront is not my forte. I’m quite happy to stay in the back there with the drums, where I belong.
+ - I live in a house that was built in 1480. It has a moat around it. It is like a little baby castle.
+ - Onstage I like to play with a an 18-inch speaker, which very few bass players do. I need that fat, underneath sound, which I’ve always had. It suits me admirably to do it like that, and I can imitate that sound by plugging directly into the board in the studio.
+ - I’m not a musician, I just play bass.
+ - You could put Jerry Lee Lewis, Little Richard, Chuck Berry and Bo Diddley on one side of the stage, and James Brown on the other, and you wouldn’t even notice the others were there!
+ - I open events for museums and I do charity work and photography.
+ - Because of the fashion, the young people don’t have any access to the history of music, unless people like me revive it. There are very few people to revive it, because you can’t earn any money doing it.
+ - If you are any competent musician, if you have creative ideas, ideas of songs, of arrangements, in a band like the Stones, where these 2 people do all the things, there is no freedom.
+ - I didn’t want to stay in the Stones, and be stuck in a position having to play a music I didn’t like anymore and that restricted me from doing all the others things I’m interested in because of time.
+ - Everything had to be done in-between Stones time.
+ - My first record I owned was by Les Paul.
+ - I always listen to a lot of different music when I am working on a project.
+ - I am much more my own man than I was when I was with the Stones.
+ - You’re always frustrated, you don’t have the chance to do a song on the album, like the Beatles did with Ringo and George, or like Led Zeppelin, where everybody was given a chance to contribute. There never is a chance with the Stones.
+ - I don’t make any money.
+ - You never know what your next dig is going to find.
+ - I had a wonderful time with the Stones but after 31 years, I thought it was time to move on.
+ - I was listening to music long before rock ’n roll.
+ - It’s all right leaping about the stage when you’re 20 but when you get to 25 it gets a bit embarrassing.
+ - I’m always shy in front of an audience, so I’m always at the back, in the shadows, just doing it. I don’t like the front, the adulation.
+ - I have very interesting hobbies like archeology and photography.
+ - There are things that I am very proud of and there are things that you are not so proud of. But I think that applies to any musician.
+ - I love to play smaller crowds with the Rhythm Kings.
+ - But why is it that in music, anything more than 5 years old – apart from a few hits – is never played on radio to the young public?
+ - I can’t really sing and play live, because I can’t play bass efficiently and sing at the same time. If I concentrated on the vocals, I’d mess up the bass, and if I concentrated on the bass, I’d forget the lines.
+ - With the Rhythm Kings, I can involve myself in arranging and producing the music as well as the choice of songs.
+ - The Stones always tried to do the odd smaller gig when they could.
+ - I always say that I am very proud of the work that I did with the Rolling Stones and that I am also proud of what I have done with the Rhythm Kings.
+ - Companies spend twenty, thirty, forty percent of revenues on advertising to brand their product and to get, essentially, acquire customers cheaply. You get a lot of exposure on something like this.
+ - The first records I heard were from Dizzy Gillespie and people like that.
+ - All of my books are about researching. I do all the research and I give it to a writer who can put it in the written word better than I could.
+
+33 quotes

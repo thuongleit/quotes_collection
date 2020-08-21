@@ -1,0 +1,33 @@
+ - Dogs change lives. Half Buddha, half Bozo, they keep us tethered to the earth, and teach us to fly. Our dogs are our sanity keepers.
+ - I wanted her to see that the only life worth living is a life full of love; that loss is always part of the equation; that love and loss conjoined are the best opportunity we get to live fully, to be our strongest, our most compassionate, our most graceful selves.
+ - I’m always out looking for weird, beautiful things.
+ - People are supposed to accumulate, I thought, as they get older, but I seem to be sloughing off, like a person wrapped in a hundred layers of cellophane, tearing one layer off at a time, trying to get down to me.
+ - Traveling is my priority, because it drives the writing, so I teach around the travel, and sometimes the travel is the teaching.
+ - Movement helps keep me centered. I am a disaster, for instance, at sitting meditation, but I’m pretty decent at walking meditation.
+ - The Universe has a plan to make sure we don’t ever stop learning, not only in our minds, but also in our hearts.
+ - Life gives us what we need when we need it; receiving what it gives us is a whole other thing.
+ - It would have been so perfectly ironic if I had been killed by the dog, because I was petting a dog who was not used to being pet, because I think I’m some kind of dog whisperer, and I think I can make any dog love me.
+ - My parents were travelers. Every time my parents got ten dollars ahead they went somewhere. That’s what they did. So I got the bug from them.
+ - I always tell my students, about the biggest baddest things in life you must try to write small and light, save the big writing for the unexpected tiny thing that always makes or breaks a story.
+ - I’ve always said the toughest thing about learning to feel your feelings is that then you have to feel your feelings...
+ - One thing I’m always thinking about myself is what am I willing to make up? And the answer is not much.
+ - Sometimes I’m writing for magazines on assignment, but the university has to be patient with me. I mean, during the ten-week periods that I have a class, I’m there every Thursday night or whatever it is, but sometimes that’s all I’m there, because I’m somewhere else the rest of the time.
+ - When a book is in its final stages, I’ve just got to be home, looking at it seventeen hours a day, and that’s fine. But all that initial creation of the early drafts, I’d just as soon write it on the road in any extreme place. That’s sort of ideal.
+ - The more important question, of course, was what the new Lucy would do, and even though I was pretty sure the old Lucy wouldn’t be around much anymore, I was a little bit afraid the new Lucy hadn’t yet shown up.
+ - When I was a little kid, I used to walk miles and miles and miles and miles and miles and miles of railroad tracks.
+ - I’ve been to a lot of school and read a lot of thick books, but at my very core there’s a made-for-TV-movie mentality I don’t think i will ever shake.
+ - Stillness is a harder concept for me than ecstasy, but I can imagine it best when I am fully present and paying strict attention to a place I am moving through.
+ - Give me a labyrinth to walk and I can usually free my mind.
+ - For me, the shaping of the story is more important than accuracy.
+ - I’m not very interested in telling the facts. I have a lot of investment in telling the truth.
+ - I write really well on the road.
+ - There was something about the prairie for me – it wasn’t where I had come from, but when I moved there it just took me in and I knew I couldn’t ever stop living under that big sky.
+ - I always think, when I’m in motion, writing seems like the most natural thing.
+ - It’s September 21st, a day I love for the balance it carries with it.
+ - Cheryl Strayed is a courageous, gritty, and deceptively elegant writer.
+ - Being in the presence of the “other” seems to show me who I am in a way that is really important to me. I feel radically more comfortable in Laos, say, than I do in Pennsylvania.
+ - I’ve always traveled. I’m a professor in a limited way. I teach one class two quarters out of four, so I get traveling done.
+ - I write well on the road. I have the energy, I have the motivation to write. I’m happy when I’m on the road.
+ - I’m about going out in the world and noticing stuff, and going home and writing it down, and putting it next to other stuff I’ve noticed and seeing what happens.
+
+31 quotes

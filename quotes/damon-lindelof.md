@@ -1,0 +1,63 @@
+ - I’m not glass-half-full, glass-half-empty; I’m like, “There’s a glass?”
+ - Anger is not a real feeling. Every time in my life I’ve ever been angry, it’s because I was scared, or because I was sad and I didn’t know it. Anger doesn’t just come out of a vacuum.
+ - I’ve always been fascinated by Disneyland and Disney World, and my favorite part of the park was always Tomorrowland.
+ - I always remember liking school.
+ - Just put your best foot forward and hope for the best. You also have to acknowledge that you’re going to make mistakes.
+ - Suffice it to say, there are some very big ideas in Prometheus and, therefore, it covers a very vast expanse of time.
+ - There is no suspense in inevitability.
+ - My gravestone will say,’Here Lies Damon Lindelof – Or Does He?
+ - I love collaborating with different people.
+ - One of the things I’ve learned is there’s no lesson to be learned. You have to resign yourself to the fact that mistakes are going to be made at any time in the creative process.
+ - My father – until the day that my dad died – didn’t know how many points you scored in a touchdown. He could say there were nine innings in baseball, but no intricacies of the sport.
+ - The year that ‘Lost’ started and premiered was, without a doubt, the most miserable year of my life. The level of despair and anguish that I was feeling; I was clinically depressed, and anyone that you talked to who knew me at the time will tell you that.
+ - If you do something awesome, you should be proud of yourself.
+ - As a storyteller, you also don’t want to make people feel like they’re left out, like other people who have read the book have an interior knowledge of this show, and the degree of difficulty in watching it is much higher.
+ - I feel like great TED Talks are ones that are a little bit subject to interpretation, that do provoke further conversation – and potentially controversy.
+ - When someone says something that really hurts me, I have to retweet it to let it go.
+ - Connecting dots is not that rewarding of an experience.
+ - Reputation is a very interesting thing, and I always give people the benefit of the doubt, and I think that there’s a part of all of us, especially in a generation where a lot of the stuff gets recorded.
+ - I’ll never be immune to criticism, and that’s okay, and I’m very comfortable with that.
+ - I think ‘The Lord of the Rings’ trilogy has a very satisfying ending, and there’s not really that deep of a mythological construct.
+ - I’ve always been into having stories told to me. I was a voracious reader, my father was also a teller of tales; and the kind of Baron Munchausen proxy of a tall tale was much more interesting than a true tale.
+ - Hire people you get along with, and then let them do what they do best.
+ - Sometimes diehard fans expect so much that they’re never happy no matter what they get.
+ - I love finding new creative partnerships but then continuing the partnerships I’m already in.
+ - I would say that my fatal flaw, as a human being, is that I need people to like me, and if they don’t like me, I will obsess over it – and try to change my personality until they like me – even if they don’t like me for reasons that have nothing to do with me, and even if they’re strangers.
+ - Lost is a mystery show, so I think that would be stripping the franchise of sort of its essential nature.
+ - All great sci-fi is: Be careful what you wish for.
+ - There is a reason behind life. There is some connectivity between living beings. Whether you want to call that ‘God’ or ‘The Force’ or whatever word you use for it, I do believe in a spiritualized mechanism.
+ - When I saw ‘Blade Runner,’ my understanding was that ‘Blade Runner’ and ‘Alien’ were sequels to each other – or they were related. They were set in the same world.
+ - I’ve always been really interested in the future, and I feel like all of the movies that I’ve been exposed to, over the course of the last 20 to 30 years, have shown me a future that I don’t really want to be living in.
+ - For us, there’s an inherent process when you’re ending something to be thinking about the beginning, as writers.
+ - I have found, unfortunately, that if I take on too many projects at one time, there is a higher probability of those projects sucking.
+ - When someone says something in an interview, the beauty of Twitter is that it’s a platform for instantaneous response.
+ - I’ve always felt that really good prequels should be original movies.
+ - I don’t think anybody wants to see a dour ‘Star Trek’ movie.
+ - I think that ‘The Shield’ was a phenomenal series finale.
+ - At some point, you can’t take a risk just to take a risk because that’s a betrayal, in and of itself.
+ - A lot of writers whom I love, admire and call friends share this feeling, which is this fundamental idea that we’re frauds. That we will be pushed out on to the stage, and it will be revealed that the emperor has no clothes.
+ - Good twists are enormously hard to come by, and I think the best ones are earned ones. The idea that a story can take a left turn on you, it’s easy to do, but it has to be done very, very carefully, or else you risk losing the audience’s trust.
+ - The fundamental law of nature is to not know too much about yourself.
+ - Michael Arndt, that guy – you’re just supposed to say nice things about other writers, but I worship Michael Arndt.
+ - When you’re a writer and you’re a producer, traditionally the junkets are really focused on the beautiful people and nobody wants to talk to you.
+ - The fun thing about doing origin stories is you are introducing the audience to characters.
+ - I think the idea that television has evolved to this place of real thematic richness and the fact that you no longer have to get 10 million people to watch your show in order to propagate its survival are the best things that have ever happened to storytelling in this medium.
+ - I promised myself I would never be one of those people who complained about “Oh man, lots of people are interested in our movie and now I gotta talk about it.”
+ - Essentially, there’s no scientific evidence whatsoever that could ever be presented to me that would wipe out my fundamental spiritual beliefs.
+ - I make no distinction between writing and storytelling; I’ve always wanted to tell stories.
+ - From my own internal fanboy perspective, there’s nothing that I hate more than seeing a three minute trailer for a movie where I feel like it’s shown me the entire movie.
+ - The interpretive element of ‘Lost’ – the fact that you immediately need, as soon as the episode is over, to seek out a community of people to express your own thoughts about it, understand what they thought about it and form an opinion – that’s the bread and butter of the show.
+ - I don’t think it’s hubris for me to say I’m a Trek fan. So, I don’t treat Trek fans as somebody who’s separate than I am. The only thing that separates them is, I’m one of the people responsible for the story in this movie and they’re not. But we’re all Trek fans. I can hang.
+ - One person’s magical thinking is another person’s cynicism.
+ - I’m not sitting around thinking of ideas for TV shows.
+ - I remember what it was like to be doing ‘Lost’ and how creatively immersive it was. I just couldn’t really engage on anything else, other than ‘Lost;’ I was just thinking about it all the time, and then there was just the pure workload, the 70- or 80-hour weeks.
+ - If you’re constantly hamstrung by worry that people aren’t going to like it, you can’t do your job.
+ - I was born in 1973, so I did not see ‘Alien’ when it was released theatrically. I saw ‘Alien’ when it was on Home Box Office. I think I was probably 10.
+ - In television, I don’t feel constraints. I feel a lot freedom to maneuver.
+ - As cliched as it sounds, if you have an original voice and an original idea, then no matter what anybody says, you have to find a way to tell that story.
+ - In really, really good science fiction, the line between the science and the fiction is blurry.
+ - I’m a huge Star Trek fan. I’ve seen all the shows, I’ve seen all the movies, but ultimately I just want a 2-hour movie that takes me to another time and place – something that entertains me.
+ - Look, we can definitively agree that cable is far superior to network. That isn’t to say that there can’t be a great network drama or comedy that makes 20-plus episodes a year. We know that there are, and there have been.
+ - I look at myself more as a storyteller than a screenwriter, as pretentious as that may sound, but that’s what really attracts me to TED Talks. For me, the really effective ones are being presented by expert storytellers.
+
+61 quotes

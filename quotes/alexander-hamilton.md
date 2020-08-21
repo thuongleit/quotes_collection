@@ -1,0 +1,226 @@
+ - Those who stand for nothing fall for anything.
+ - People sometimes attribute my success to my genius; all the genius I know anything about is hard work.
+ - A well adjusted person is one who makes the same mistake twice without getting nervous.
+ - The loss of liberty to a generous mind is worse than death.
+ - Learn to think continentally.
+ - I have thought it my duty to exhibit things as they are, not as they ought to be.
+ - I never expect to see a perfect work from an imperfect man.
+ - Ambition without principle never was long under the guidance of good sense.
+ - When the sword is once drawn, the passions of men observe no bounds of moderation.
+ - Divide et impera must be the motto of every nation that either hates or fears us.
+ - Our countrymen have all the folly of the ass and all the passiveness of the sheep.
+ - It’s not tyranny we desire; it’s a just, limited, federal government.
+ - The art of reading is to skip judiciously.
+ - A promise must never be broken.
+ - A nation which can prefer disgrace to danger is prepared for a master, and deserves one.
+ - The people alone have an incontestable, unalienable, and indefeasible right to institute government and to reform, alter, or totally change the same when their protection, safety, prosperity, and happiness require it.
+ - Experience is the oracle of truth; and where its responses are unequivocal, they ought to be conclusive and sacred.
+ - There is a certain enthusiasm in liberty, that makes human nature rise above itself, in acts of bravery and heroism.
+ - Effective resistance to usurpers is possible only provided the citizens understand their rights and are disposed to defend them.
+ - Give all the power to the many, they will oppress the few. Give all the power to the few, they will oppress the many.
+ - Man is either governed by his own laws – freedom – or the laws of another – slavery. Are you willing to become slaves? Will you give up your freedom, your life and your property without a single struggle? No man has a right to rule over his fellow creatures.
+ - The Liberty of the press consists in the right to publish with impunity truth with good motives for justifiable ends, though reflecting on government, magistracy, or individuals.
+ - The sacred rights of mankind are not to be rummaged for among old parchments or musty records. They are written, as with a sunbeam, in the whole volume of human nature, by the hand of the divinity itself; and can never be erased.
+ - The deliberative sense of the community should govern.
+ - The honor of a nation is its life. Deliberately to abandon it is to commit an act of political suicide.
+ - Government is frequently and aptly classed under two descriptions-a government of force, and a government of laws; the first is the definition of despotism-the last, of liberty.
+ - Hard words are very rarely useful. Real firmness is good for every thing. Strut is good for nothing.
+ - Laws are a dead letter without courts to expound and define their true meaning and operation.
+ - It is the Press which has corrupted our political morals – and it is to the Press we must look for the means of our political regeneration.
+ - Can any reasonable man be well disposed toward a government which makes war and carnage the only means of supporting itself?
+ - A national debt if it is not excessive will be to us a national blessing; it will be powerfull cement of our union. It will also create a necessity for keeping up taxation to a degree which without being oppressive, will be a spur to industry;.
+ - What is the most sacred duty and the greatest source of our security in a Republic? An inviolable respect for the Constitution and Laws.
+ - Americans rouse – be unanimous, be virtuous, be firm, exert your courage, trust in Heaven, and nobly defy the enemies both of God and man!
+ - No person that has enjoyed the sweets of liberty can be insensible of its infinite value, or can reflect on its reverse without horror and detestation.
+ - Nobody expects to trust his body overmuch after the age of fifty.
+ - Industry is increased, commodities are multiplied, agriculture and manufacturers flourish: and herein consists the true wealth and prosperity of a state.
+ - The people are turbulent and changing; they seldom judge right or make good decision.
+ - Nothing could be more ill-judged than that intolerant spirit which has, at all times, characterized political parties.
+ - The citizens of America have too much discernment to be argued into anarchy. And I am much mistaken, if experience has not wrought a deep and solemn conviction in the public mind, that greater energy of government is essential to the welfare and prosperity of the community.
+ - Civil liberty is only natural liberty, modified and secured by the sanctions of civil society. It is not a thing, in its own nature, precarious and dependent on human will and caprice; but it is conformable to the constitution of man, as well as necessary to the well-being of society.
+ - We are attempting, by this Constitution, to abolish factions, and to unite all parties for the general welfare.
+ - You should not have taken advantage of my sensibility to steal into my affections without my consent.
+ - The civil jury is a valuable safeguard to liberty.
+ - A sacred respect for the constitutional law is the vital principle, the sustaining energy of a free government.
+ - The increasing remoteness of consanguinity is everyday diminishing the force of the family compact between France and Spain. And politicians have ever with great reason considered the ties of blood as feeble and precarious links of political connection.
+ - We are now forming a republican government. Real liberty is never found in despotism or the extremes of democracy, but in moderate governments.
+ - The passions of a revolution are apt to hurry even good men into excesses.
+ - Establish that a Government may decline a provision for its debts, though able to make it, and you overthrow all public morality, you unhinge all the principles that must preserve the limits of free constitutions.
+ - Necessity, especially in politics, often occasions false hopes, false reasonings, and a system of measures, correspondingly erroneous.
+ - I would die to preserve the law upon a solid foundation; but take away liberty, and the foundation is destroyed.
+ - Take mankind in general, they are vicious-their passions may be operated upon.
+ - To model our political system upon speculations of lasting tranquility, is to calculate on the weaker springs of the human character.
+ - Our great error is that we suppose mankind to be more honest than they are.
+ - The obscurity is more often in the passions and prejudices of the reasoner than in the subject.
+ - In all very numerous assemblies, of whatever character composed, passion never fails to wrest the sceptre from reason. Had every Athenian citizen been a Socrates, every Athenian assembly would still have been a mob.
+ - An over-scrupulous jealousy of danger to the rights of the people, which is more commonly the fault of the head than of the heart, will be represented as mere pretense and artifice, the stale bait for popularity at the expense of the public good.
+ - Foreign influence is truly the Grecian horse to a republic. We cannot be too careful to exclude its influence.
+ - A fondness for power is implanted in most men, and it is natural to abuse it when acquired.
+ - The local interest of a State ought in every case to give way to the interests of the Union. For when a sacrifice of one or the other is necessary, the former becomes only an apparent, partial interest, and should yield, on the principle that the smaller good ought never to oppose the greater good.
+ - That experience is the parent of wisdom is an adage the truth of which is recognized by the wisest as well as the simplest of mankind.
+ - A powerful, victorious ally is yet another name for master.
+ - We must make the best of those ills which cannot be avoided.
+ - Is it not time to awake from the deceitful dream of a golden age, and to adopt as a practical maxim for the direction of our political conduct, that we, as well as the other inhabitants of the globe, are yet remote from the happy empire of perfect wisdom and perfect virtue?
+ - After an unequivocal experience of the inefficacy of the subsisting federal government, you are called upon to deliberate on a new Constitution for the United States of America.
+ - If we incline too much to democracy, we shall soon shoot into a monarchy.
+ - The prosperity of commerce is now perceived and acknowledged by all enlightened statesmen to be the most useful as well as the most productive source of national wealth, and has accordingly become a primary object of their political cares.
+ - The truth is, after all the declamations we have heard, that the Constitution is itself, in every rational sense, and to every useful purpose, A BILL OF RIGHTS.
+ - Man is a reasoning rather than a reasonable animal.
+ - Opinion, whether well or ill-founded, is the governing principle of human affairs.
+ - No character, however upright, is a match for constantly reiterated attacks, however false.
+ - If we are in earnest about giving the Union energy and duration we must abandon the vain project of legislating upon the States in their collective capacities.
+ - The rights of neutrality will only be respected when they are defended by an adequate power. A nation, despicable by its weakness, forfeits even the privilege of being neutral.
+ - When a government betrays the people by amassing too much power and becoming tyrannical, the people have no choice but to exercise their original right of self-defense – to fight the government.
+ - The love for our native land strengthens our individual and national character.
+ - Men are rather reasoning than reasonable animals for the most part governed by the impulse of passion.
+ - A feeble executive implies a feeble execution of the government. A feeble execution is but another phrase for a bad execution; and a government ill executed, whatever may be its theory, must be, in practice, a bad government.
+ - I have a tender reliance on the mercy of the Almighty, through the merits of the Lord Jesus Christ. I am a sinner. I look to Him for mercy; pray for me.
+ - Remember civil and religious liberty always go together: if the foundation of the one be sapped, the other will fall of course.
+ - The natural cure for an ill-administration, in a popular or representative constitution, is a change of men.
+ - The great leading objects of the federal government, in which revenue is concerned, are to maintain domestic peace, and provide for the common defense.
+ - Responsibility, in order to be reasonable, must be limited to objects within the power of the responsible party, and in order to be effectual, must relate to operations of that power, of which a ready and proper judgment can be formed by the constituents.
+ - There are men who could neither be distressed nor won into a sacrifice of their duty; but this stern virtue is the growth of few soils: And in the main it will be found, that a power over a man’s support is a power over his will.
+ - The genius of the people will ill brook the inquisitive and preemptory spirit of excise laws.
+ - Though a wide ocean separates the United States from Europe, yet there are various considerations that warn us against an excess of confidence or security.
+ - If mankind were to resolve to agree in no institution of government, until every part of it had been adjusted to the most exact standard of perfection, society would soon become a general scene of anarchy, and the world a desert.
+ - In testimony of their Respect For The Patriot of incorruptible Integrity, The Soldier of approved Valour The Statesman of consummate Wisdom; Whose Talents and Virtues will be admired By Grateful Posterity Long after this Marble shall have mouldered into Dust.
+ - In politics, as in religion, it is equally absurd to aim at making proselytes by fire and sword. Heresies in either can rarely be cured by persecution.
+ - As to religion a moderate stock will satisfy me. She must believe in god and hate a saint.
+ - Those who do not industrialize become hewers of wood and hawkers of water.
+ - As to Taxes, they are evidently inseparable from Government. It is impossible without them to pay the debts of the nation, to protect it from foreign danger, or to secure individuals from lawless violence and rapine.
+ - Every nation ought to have a right to provide for its own happiness.
+ - Constitutions should consist only of general provisions; the reason is that they must necessarily be permanent, and that they cannot calculate for the possible change of things.
+ - A national debt, if it is not excessive, will be to us a national blessing.
+ - Even to observe neutrality you must have a strong government.
+ - To judge from the history of mankind, we shall be compelled to conclude, that the fiery and destructive passions of war, reign in the human breast, with much more powerful sway, than the mild and beneficent sentiments of peace.
+ - Schemes to subvert the liberties of a great community require time to mature them for execution.
+ - To my utter astonishment I saw an airship descending over my cow lot. It was occupied by six of the strangest beings I ever saw. They were jabbering together, but we could not understand a word they said...
+ - The same state of the passions which fits the multitude, who have not a sufficient stock of reason and knowledge to guide them, for opposition to tyranny and oppression, very naturally leads them to a contempt and disregard of all authority.
+ - The attributes of sovereignty are now enjoyed by every state in the Union.
+ - It is a singular advantage of taxes on articles of consumption that they contain in their own nature a security against excess. They prescribe their own limit, which cannot be exceeded without defeating the end purposed – that is, an extension of the revenue.
+ - In this distribution of powers the wisdom of our constitution is manifested. It is the province and duty of the Executive to preserve to the Nation the blessings of peace. The Legislature alone can interrupt those blessings, by placing the Nation in a state of War.
+ - If there are such things as political axioms, the propriety of the judicial power of a government being co-extensive with its legislative, may be ranked among the number.
+ - In the general course of human nature, A power over a man’s subsistence amounts to a power over his will.
+ - In a free government, the security for civil rights must be the same as that for religious rights. It consists in the one case in the multiplicity of interests, and in the other in the multiplicity of sects.
+ - And it proves, in the last place, that liberty can have nothing to fear from the judiciary alone, but would have everything to fear from its union with either of the other departments.
+ - To watch the progress of such endeavors is the office of a free press. To give us early alarm and put us on our guard against encroachments of power. This then is a right of utmost importance, one for which, instead of yielding it up, we ought rather to spill our blood.
+ - Let us recollect that peace or war will not always be left to our option; that however moderate or unambitious we may be, we cannot count upon the moderation, or hope to extinguish the ambition of others.
+ - Money is, with propriety, considered as the vital principle of the body politic; as that which sustains its life and motion, and enables it to perform its most essential functions.
+ - Government implies the power of making laws. It is essential to the idea of a law, that it be attended with a sanction; or, in other words, a penalty or punishment for disobedience.
+ - It is a just observation that the people commonly intend the Public Good. This often applies to their very errors. But their good sense would despise the adulator who should pretend they always reason right about the means of promoting it.
+ - Law is defined to be a rule of action; but how can that be a rule, which is little known and less fixed?
+ - I have carefully examined the evidences of the Christian religion, and if I was sitting as a juror upon its authenticity I would unhesitatingly give my verdict in its favor. I can prove its truth as clearly as any proposition ever submitted to the mind of man.
+ - It is far more rational to suppose that the courts were designed to be an intermediate body between the people and the legislature, in order, among other things, to keep the latter within the limits assigned to their authority.
+ - But as the plan of the convention aims only at a partial union or consolidation, the State governments would clearly retain all the rights of sovereignty which they before had, and which were not, by that act, EXCLUSIVELY delegated to the United States.
+ - Tyranny has perhaps oftener grown out of the assumptions of power, called for, on pressing exigencies, by a defective constitution, than out of the full exercise of the largest constitutional authorities.
+ - Here, sir, the people govern; here they act by their immediate representatives.
+ - A LAW, by the very meaning of the term, includes supremacy. It is a rule which those to whom it is prescribed are bound to observe. This results from every political association.
+ - These powers ought to exist without limitation, because it is impossible to foresee or to define the extent and variety of national exigencies, and the correspondent extent and variety of the means which may be necessary to satisfy them.
+ - I will venture to assert that no combination of designing men under heaven will be capable of making a government unpopular which is in its principles a wise and good one, and vigorous in its operations.
+ - It is evident from the state of the country, from the habits of the people, from the experience we have had on the point itself, that it is impracticable to raise any very considerable sums by direct taxation.
+ - And it is long since I have learned to hold popular opinion of no value.
+ - There is no position which depends on clearer principles than that every act of a delegated authority, contrary to the commission under which it is exercised, is void. No legislative act, therefore, contrary to the Constitution, can be valid.
+ - The Christian Constitutional Society, its object is first: The support of the Christian religion. Second: The support of the United States.
+ - When men, engaged in unjustifiable pursuits, are aware that obstructions may come from a quarter which bare apprehension of opposition from doing what they would with eagerness rush into if no such external impediments were to be feared.
+ - It is of the nature of war to increase the executive at the expense of the legislative authority.
+ - I trust that the proposed Constitution afford a genuine specimen of representative government and republican government; and that it will answer, in an eminent degree, all the beneficial purposes of society.
+ - When human laws contradict or discountenance the means, which are necessary to preserve the essential rights of any society, they defeat the proper end of all laws, and so become null and void.
+ - The awful discretion, which a court of impeachments must necessarily have, to doom to honor or to infamy the most confidential and the most distinguished characters of the community, forbids the commitment of the trust to a small number of persons.
+ - It is a singular capriciousness of the human mind, that after all the admonitions we have had from experience on this head, there should still be found men, who object to the new constitution for deviating from a principle which has been found the bane of the old.
+ - It was remarked yesterday that a numerous representation was necessary to obtain the confidence of the people. This is not generally true. The confidence of the people will easily be gained by a good administration. This is the true touchstone.
+ - There is at this present juncture, a certain fermentation of mind, a certain activity of speculation and enterprise which if properly directed may be made subservient to useful purposes; but which if left entirely to itself, may be attended with pernicious effects.
+ - If the representatives of the people betray their constituents, there is then no recourse left but in the exertion of that original right of self-defense which is paramount to all positive forms of government.
+ - The best we can hope for concerning the people at large is that they be properly armed.
+ - It will be well to advert to the proportion between the objects that will require a federal provision in respect to revenue; and those which will require a state provision. We shall discover that the former are altogether unlimited; and that the latter are circumscribed within very moderate bounds.
+ - The inquiry constantly is what will please, not what will benefit the people. In such a government there can be nothing but temporary expedient, fickleness, and folly.
+ - The laws of Congress are restricted to a certain sphere, and when they depart from this sphere, they are no longer supreme or binding.
+ - It may safely be received as an axiom in our political system, that the state governments will in all possible contingencies afford complete security against invasions of the public liberty by the national authority.
+ - It is astonishing that so simple a truth should ever have had an adversary; and it is one among a multitude of proofs, how apt a spirit of ill-informed jealousy, or of too great abstraction and refinement is to lead men astray from the plainest paths of reason and conviction.
+ - Hence, in a state of nature, no man had any moral power to deprive another of his life, limbs, property, or liberty; nor the least authority to command or exact obedience from him, except that which arose from the ties of consanguinity.
+ - Civil liberty is only natural liberty, modified and secured by the sanctions of civil society.
+ - It is presumable that no country will be able to borrow of foreigners upon better terms than the United States, because none can, perhaps, afford so good security.
+ - Common interest may always be reckoned upon as the surest bond of sympathy.
+ - It is the advertiser who provides the paper for the subscriber. It is not to be disputed, that the publisher of a newspaper in this country, without a very exhaustive advertising support, would receive less reward for his labor than the humblest mechanic.
+ - There may be in every government a few choice spirits, who may act from more worthy motives. One great error is that we suppose mankind more honest than they are. Our prevailing passions are ambition and interest...
+ - Let experience, the least fallible guide of human opinion, be appealed to for an answer to these inquiries.
+ - It is in vain to hope to guard against events too mighty for human foresight or precaution, and it would be idle to object to a government because it could not perform impossibilities.
+ - This power ought to be coextensive with all the possible combinations of such circumstances; and ought to be under the direction of the same councils which are appointed to preside over the common defense.
+ - In disquisitions of every kind there are certain primary truths, or first principles, upon which all subsequent reasoning must depend.
+ - By a steady adherence to the Union we may hope, erelong, to become the arbiter of Europe in America, and to be able to incline the balance of European competitions in this part of the world as our interest may dictate.
+ - States, like individuals, who observe their engagements, are respected and trusted: while the reverse is the fate of those who pursue an opposite conduct.
+ - The propriety of a law, in a constitutional light, must always be determined by the nature of the powers upon which it is founded.
+ - The true principle of government is this – make the system compleat in its structure; give a perfect proportion and balance to its parts; and the powers you give it will never affect your security.
+ - That there may happen cases in which the national government may be necessitated to resort to force, cannot be denied.
+ - As on the one hand, the necessity for borrowing in particular emergencies cannot be doubted, so on the other, it is equally evident that to be able to borrow upon good terms, it is essential that the credit of a nation should be well established.
+ - Those who have a tolerable knowledge of human nature will not stand in need of such lights.
+ - The circumstances that endanger the safety of nations are infinite, and for this reason no constitutional shackles can wisely be imposed on the power to which the care of it is committed.
+ - It is a general principle of human nature, that a man will be interested in whatever he possesses, in proportion to the firmness or precariousness of the tenure by which he holds it...
+ - Little more can reasonably be aimed at with respect to the people at large than to have them properly armed.
+ - The inhabitants of territories, often the theatre of war, are unavoidably subject to frequent infringements on their rights, which serve to weaken their sense of those rights; and by degrees, the people are brought to consider the soldiery not only as their protectors but as their superiors.
+ - Measures which serve to abridge the free competition of foreign Articles, have a tendency to occasion an enhancement of prices.
+ - To look for a continuation in harmony between a number of independent unconnected sovereignties, situated in the same neighborhood, would be to disregard the uniform course of human events, and to set at defiance the accumulated experience of ages.
+ - A garden, you know, is a very usual refuge of a disappointed politician. Accordingly, I have purchased a few acres about nine miles from town, have built a house, and am cultivating a garden.
+ - There is a contagion in example which few men have sufficient force of mind to resist.
+ - Its objects are CONTRACTS with foreign nations which have the force of law, but derive it from the obligations of good faith.
+ - Unless your government is respectable, foreigners will invade your rights; and to maintain tranquillity you must be respectable; even to observe neutrality you must have a strong government.
+ - In the usual progress of things, the necessities of a nation in every stage of its existence will be found at least equal to its resources.
+ - The Courts must declare the sense of the law; and if they should be disposed to exercise will instead of judgement; the consequences would be the substitution of their pleasure for that of the legislative body.
+ - And as the vicissitudes of Nations beget a perpetual tendency to the accumulation of debt, there ought to be in every government a perpetual, anxious, and unceasing effort to reduce that, which at any times exists, as fast as shall be practicable consistently with integrity and good faith.
+ - The system is the best that the present views and circumstances of the country will permit.
+ - The means ought to be proportioned to the end; the persons from whose agency the attainment of any end is expected ought to possess the means by which it is to be attained.
+ - To all general purposes we have uniformly been one people each individual citizen everywhere enjoying the same national rights, privileges, and protection.
+ - The Achaeans soon experienced, as often happens, that a victorious and powerful ally is but another name for a master.
+ - While the constitution continues to be read, and its principles known, the states, must, by every rational man, be considered as essential component parts of the union; and therefore the idea of sacrificing the former to the latter is totally inadmissible.
+ - There are seasons in every country when noise and impudence pass current for worth; and in popular commotions especially, the clamors of interested and factious men are often mistaken for patriotism.
+ - The practice of arbitrary imprisonments have been, in all ages, the favorite and most formidable instruments of tyranny.
+ - This process of election affords a moral certainty that the office of President will seldom fall to the lot of any many who is not in an eminent degree endowed with the requisite qualifications.
+ - The changes in the human condition are uncertain and frequent. Many, on whom fortune has bestowed her favours, may trace their family to a more unprosperous station; and many who are now in obscurity, may look back upon the affluence and exalted rank of their ancestors.
+ - A treaty cannot be made which alters the Constitution of the country, or which infringes and express exceptions to the power of the Constitution.
+ - The standard of good behavior for the continuance in office of the judicial magistracy is certainly one of the most valuable of the modern improvements in the practice of government.
+ - They are not rules prescribed by the sovereign to the subject, but agreements between sovereign and sovereign.
+ - Why has government been instituted at all? Because the passions of man will not conform to the dictates of reason and justice without constraint.
+ - Now, mark my words. So long as we are a young and virtuous people, this instument will bind us together in mutual interests, mutual welfare, and mutual happiness. But when we become old and corrupt, it will bind no longer.
+ - A government, the constitution of which renders it unfit to be trusted with all the powers which a free people ought to delegate to any government, would be an unsafe and improper depositary of the NATIONAL INTERESTS.
+ - No man in his senses can hesitate in choosing to be free, rather than a slave.
+ - The scheme of separate confederacies, which will always multiply the chances of ambition, will be a never failing bait to all such influential characters in the State administrations as are capable of preferring their own emolument and advancement to the public weal.
+ - Self-preservation is the first principle of our nature.
+ - The same rule that teaches the propriety of a partition between the various branches of power, teaches us likewise that this partition ought to be so contrived as to render the one independent of the other.
+ - Were it not that it might require too long a discussion, it would not be difficult to demonstrate that a large and well-organized republic can scarcely lose its liberty from any other cause than that of anarchy, to which a contempt of the laws is the high-road.
+ - If the end be clearly comprehended within any of the specified powers, and if the measure have an obvious relation to that end, and is not forbidden by any particular provision of the Constitution, it may safely be deemed to come within the compass of the national authority.
+ - Every individual of the community at large has an equal right to the protection of government.
+ - A republic of this kind, able to withstand an external force, may support itself without any internal corruptions. The form of this society prevents all manner of inconveniences.
+ - The reasonableness of the agency of the national courts in cases in which the state tribunals cannot be supposed to be impartial, speaks for itself. No man ought certainly to be a judge in his own cause, or in any cause in respect to which he has the least interest or bias.
+ - To cherish and stimulate the activity of the human mind, by multiplying the objects of enterprise, is not among the least considerable of the expedients, by which the wealth of a nation may be promoted.
+ - The institution of delegated power implies that there is a portion of virtue and honor among mankind which may be a reasonable foundation of confidence.
+ - Nothing is more natural to men in office, than to look with peculiar deference towards that authority to which they owe their official existence.
+ - Wherever indeed a right of property is infringed for the general good, if the nature of the case admits of compensation, it ought to be made; but if compensation be impracticable, that impracticability ought to be an obstacle to a clearly essential reform.
+ - A nation has a right to manage its own concerns as it thinks fit.
+ - Men often oppose a thing merely because they have had no agency in planning it, or because it may have been planned by those whom they dislike.
+ - Some reasonable term ought to be allowed to enable aliens to get rid of foreign and acquire American attachments; to learn the principles and imbibe the spirit of our government; and to admit of a probability at least, of their feeling a real interest in our affairs.
+ - The natural effect of low interest is to increase trade and industry; because undertakings of every kind can be prosecuted with greater advantage.
+ - The idea of restraining the legislative authority, in the means of providing for the national defense, is one of those refinements which owe their origin to a zeal for liberty more ardent than enlightened.
+ - The voice of the people has been said to be the voice of God; and, however generally this maxim has been quoted and believed, it is not true to fact. The people are turbulent and changing, they seldom judge or determine right.
+ - To attempt to enumerate the complicated variety of mischiefs in the whole system of the social economy, which proceed from a neglect of the maxims that uphold public credit, and justify the solicitude manifested by the House on this point, would be an improper intrusion on their time and patience.
+ - There can be no profit in the making or selling of things to be destroyed in war. Men may think that they have such profit, but in the end the profit will turn out to be a loss.
+ - There can be no time, no state of things, in which Credit is not essential to a Nation...
+ - War, like most other things, is a science to be acquired and perfected by diligence, by perserverance, by time, and by practice.
+ - Would they not fear that citizens not less tenacious than conscious of their rights would flock from the remotest extremes of their respective states to the places of election, to overthrow their tyrants, and to substitute men who would be disposed to avenge the violated majesty of the people?
+ - There can be no limitation of that authority which is to provide for the defense and protection of the community in any matter essential to the formation, direction, or support of the NATIONAL FORCES.
+ - The treaties of the United States, to have any force at all, must be considered as part of the law of the land.
+ - For my part, I sincerely esteem the Constitution, a system which without the finger of God, never could have been suggested and agreed upon by such a diversity of interests.
+ - Here sir, the people govern.
+ - A habit of labor in the people is as essential to the health and rigor of their minds and bodies as it is conducive to the welfare of the state.
+ - To answer the purpose of the adversaries of the Constitution, they ought to prove, not merely that particular provisions in it are not the best, which might have been imagined; but that the plan upon the whole is bad and pernicious.
+ - It is just observation that the people commonly intend the Public Good.
+ - Of those men who have overturned the liberties of republics, the greatest number have begun their career by paying an obsequious court to the people, commencing demagogues and ending tyrants.
+ - A government ought to contain in itself every power requisite to the full accomplishment of the objects committed to its care, and to the complete execution of the trusts for which it is responsible, free from every other control but a regard to the public good and to the sense of the people.
+ - Take mankind as they are, and what are they governed by? Their passions.
+ - The injury which may possibly be done by defeating a few good laws, will be amply compensated by the advantage of preventing a number of bad ones.
+ - It will follow that that government ought to be clothed with all powers requisite to complete execution of its trust.
+ - The Convention probably foresaw what it has been a principal aim of these papers to inculcate that the danger which most threatens our political welfare is, that the state governments will finally sap the foundations of the Union.
+ - CREDIT supposes specific and permanent funds for the punctual payment of interest, with a moral certainty of a final redemption of the principal.
+ - When you assemble from your several counties in the Legislature, were every member to be guided only by the apparent interest of his county, government would be impracticable. There must be a perpetual accomodation and sacrifice of local advantage to general expediency.
+ - Happy will it be for ourselves, and most honorable for human nature, if we have wisdom and virtue enough to set so glorious an example to mankind!
+ - The power of creating new funds upon new objects of taxation, by its own authority, would enable the national government to borrow as far as its necessities might require.
+
+224 quotes

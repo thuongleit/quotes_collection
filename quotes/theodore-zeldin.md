@@ -1,0 +1,33 @@
+ - When will we make the same breakthroughs in the way we treat each other as we have made in technology?
+ - Each person is an enigma. You’re a puzzle not only to yourself but also to everyone else, and the great mystery of our time is how we penetrate this puzzle.
+ - Conversation is a meeting of minds with different memories and habits. When minds meet, they don’t just exchange facts: they transform them, reshape them, draw different implications from them, engage in new trains of thought. Conversation doesn’t just reshuffle the cards: it creates new cards.
+ - A dream is what makes people love life even when it is painful.
+ - Change the way you think, and you are halfway to changing the world.
+ - All invention and progress comes from finding a link between two ideas that have never met.
+ - Forks and spoons have probably done more to reconcile people who cannot agree than guns and bombs ever did.
+ - People in this world of superficial communication find themselves isolated and lonely and have difficult in talking about personal things that really matter to them.
+ - The kind of conversation I like is one in which you are prepared to emerge a slightly different person.
+ - The French have made conversation their claim to civilisation.
+ - To be a catalyst is the ambition most appropriate for those who see the world as being in constant change, and who, without thinking that they can control it, wish to influence its direction.
+ - Conversation creates a new kind of network within organizations. Current networks are used for competitive advantage, but conversation is focused on encouraging people to realize their potential.
+ - Art is, nowadays, our new religion and museums are our cathedrals.
+ - Brilliant lecturers shouldn’t be wasted in lecture rooms: they should appear onTV. We need black market universities, in which people just help each other, and which don’t leave out the poor.
+ - The brain is full of lonely ideas, begging you to make some sense of them, to recognize them as interesting. The lazy brain just files them away in old pigeonholes, like a bureaucrat who wants an easy life. The lively brain picks and chooses and creates new works of art out of ideas.
+ - What we make of people, and what we see in the mirror when we look at ourselves, depends on what we know of the world, what we believe to be possible, what memories we have, and whether our loyalties are to the past, the present or the future.
+ - To idolise a person means you don’t get to know them, and the idea that you can become one is a myth, and it also means that you don’t need to talk to one another because you’re the same person.
+ - I think the hero in our generation is not the individual but the pair, two people who together add up to more than they are apart.
+ - The past is what provides us with the building blocks. Our job today is to create new buildings out of them.
+ - The English reputation for humour is a way by which people avoid revealing themselves and have superficial relationships, so that you can engage in banter without making yourself vulnerable.
+ - We should strive to be employed in such a way that we don’t realize that what we’re doing is work.
+ - Nothing influences our ability to cope with the difficulties of our existence so much as the context in which we view them; the more contexts we can choose between, the less do the difficulties appear to be inevitable and insurmountable.
+ - The violent have been victorious for most of history because they kindled the fear with which everyone is born.
+ - Only when people learn to converse will they begin to be equal.
+ - One of the great ambitions is to discover the diversity of the world, to discover who inhabits the world.
+ - We should abolish ‘work.’ By that I mean abolishing the distinction between work and leisure, one of the greatest mistakes of the last century, one that enables employers to keep workers in lousy jobs by granting them some leisure time.
+ - Breaking accepted rules does bring people together.
+ - The great thing about marriage is that it creates trust, the most precious of things.
+ - Never before have humans been so ambitious, have they thought that they could be much more than their parents were.
+ - Two individuals, conversing honestly, can be inspired by the feeling that they are engaged in a joint enterprise, aiming at inventing an art which has not been tried before.
+ - The institution of marriage, if you look at it over many centuries, has come and gone.
+
+31 quotes

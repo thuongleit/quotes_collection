@@ -1,0 +1,29 @@
+ - Sustainability takes forever. And that’s the point.
+ - The Stone Age did not end because humans ran out of stones. It ended because it was time for a re-think about how we live.
+ - Waste equals food, whether it’s food for the earth, or for a closed industrial cycle. We manufacture products that go from cradle to grave. We want to manufacture them from cradle to cradle.
+ - Don’t get me wrong: I love nuclear energy! It’s just that I prefer fusion to fission. And it just so happens that there’s an enormous fusion reactor safely banked a few million miles from us. It delivers more than we could ever use in just about 8 minutes. And it’s wireless!
+ - To eliminate the concept of waste means to design things-products, packaging, and systems-from the very beginning on the understanding that waste does not exist.
+ - If we think about things having multiple lives, cradle to cradle, we could design things that can go back to either nature or back to industry forever.
+ - You don’t filter smokestacks or water. Instead, you put the filter in your head and design the problem out of existence.
+ - How do we love all the children of all species for all time?
+ - Here’s where redesign begins in earnest, where we stop trying to be less bad and we start figuring out how to be good.
+ - The eco-effective future of industry is a world of abundance that celebrates the use and consumption of products and materials that are, in effect, nutritious – as safe, effective, and delightful as a cherry tree.
+ - We celebrate the cherry tree not for its efficiency but for its effectiveness – and for its beauty. Its materials are in constant flow, and all those thousands of useless cherry blossoms look gorgeous. Then they fall to the ground and become soil again, so there’s no problem.
+ - Our goal is a delightfully diverse, safe, healthy, and just world, with clean air, water, soil and power – economically, equitably, ecologically and elegantly enjoyed.
+ - If you don’t have an end game of something delightful, you’re just moving chess pieces around.
+ - Richard Meier told me, ‘Young man, solar energy has nothing to do with architecture,’
+ - If anybody here has trouble with the concept of design humility, reflect on this: It took us 5,000 years to put wheels on our luggage.
+ - Honor commerce as the engine of change.
+ - We achieved our mission to the moon. Let’s look home from that lofty perch and reimagine our mission on Earth – that is what we need to do here. Together, we can upcycle everything. The world will be better for our positive visions and actions.
+ - In planetary terms, we’re all downstream.
+ - I can’t imagine something being beautiful at this point in history if it’s destroying the planet or causing children to get sick. How can anything be beautiful if it’s not ecologically intelligent at this point?
+ - I think as designers we realize design is a signal of intention, but it also has to occur within a world and we have to understand that world in order to imbue our designs with inherent intelligence.
+ - We are proposing buildings that, like trees, are net energy exporters, produce more energy than they consume, accrue and store solar energy, and purify their own waste, water and release it slowly in a purer form.
+ - Modern culture appears to have adopted a strategy of tragedy. If we come here and say, I didn’t intend to cause global warning, it’s not part of my plan, then we realize it’s part of our defacto plan because it’s the thing that’s happening because we have no other plan.
+ - Designing renders visible our hopes and dreams. It is the first signal of human intentions.
+ - The surest way to heal an eco-system is to connect it to more of itself.
+ - Designers are inherently optimistic people who try to make the world a better place.
+ - Design is inherently optimistic. That is its power.
+ - Our concept of eco-effectiveness means working on the right things – on the right products and services and systems – instead of making the wrong things less bad. Once you are doing the right things, then doing them “right,” with the help of efficiency among other tools, makes perfect sense.
+
+27 quotes

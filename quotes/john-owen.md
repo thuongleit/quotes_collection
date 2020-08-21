@@ -1,0 +1,157 @@
+ - Be killing sin or it will be killing you.
+ - Do you mortify; do you make it your daily work; be always at it whilst you live; cease not a day from this work; be killing sin or it will be killing you.
+ - If the Word does not dwell with power in us, it will not pass with power from us.
+ - If private revelations agree with Scripture, they are needless, and if they disagree, they are false.
+ - There are two things that are suited to humble the souls of men, and they are, first, a due consideration of God, and then of themselves – of God, in His greatness, glory, holiness, power, majesty, and authority; of ourselves, in our mean, abject, and sinful condition.
+ - Fill your affections with the cross of Christ that there may be no room for sin.
+ - A minister may fill his pews, his communion roll, the mouths of the public, but what that minister is on his knees in secret before God Almighty, that he is and no more.
+ - For to pretend that men may live habitually sinful lives without any attempt by the Spirit to mortify sin in them, nor with any desire for repentance, is to deny the Christian religion.
+ - There is no death of sin without the death of Christ.
+ - If we do not abide in prayer, we will abide in temptation.
+ - We are never nearer Christ than when we find ourselves lost in a holy amazement at His unspeakable love.
+ - The greatest sorrow and burden you can lay on the Father, the greatest unkindness you can do to him is not to believe that he loves you.
+ - Mortification from a self-strength, carried on by ways of self-invention, unto the end of a self-righteousness, is the soul and substance of all false religion in the world.
+ - Leanness of body and soul may go together.
+ - Satan’s greatest success is in making people think they have plenty of time before they die to consider their eternal welfare.
+ - The first and principal duty of a pastor is to feed the flock by diligent preaching of the word.
+ - Set faith at work on Christ for the killing of thy sin. His blood is the great sovereign remedy for sin-sick souls. Live in this, and thou wilt die a conqueror; yea, thou wilt, through the good providence of God, live to see thy lust dead at thy feet.
+ - The purpose of our holy and righteous God was to save his church, but their sin could not go unpunished. It was, therefore, necessary that the punishment for that sin be transferred from those who deserved it but could not bear it, to one who did not deserve it but was able to bear it.
+ - Meditate on the Word in the Word.
+ - We all profess that we are bound for heaven, immortality, and glory: but is it any evidence that we really design it if all our thoughts are consumed about the trifles of this world, which we must leave behind us, and have only occasional thoughts of things above?
+ - See in the meantime that your faith brings forth obedience, and God in due time will cause it to bring forth peace.
+ - If we would talk less and pray more about them, things would be better than they are in the world: at least, we should be better enabled to bear them.
+ - There is no broader way to apostasy than to reject God’s sovereignty in all things concerning the revelation of himself and our obedience...
+ - Christ’s blood is the great sovereign remedy for sin-sick souls.
+ - Unless we are thoroughly convinced that without Christ we are under the eternal curse of God, as the worst of His enemies, we shall never flee to Him for refuge.
+ - To suppose that whatever God requireth of us that we have power of ourselves to do, is to make the cross and grace of Jesus Christ of none effect.
+ - For a man solemnly to undertake the interpretation of any portion of Scripture without invocation of God, to be taught and instructed by His Spirit, is a high provocation of him; nor shall I expect the discovery of truth from any one who thus proudly engages in a work so much beyond his ability.
+ - No man shall ever behold the glory of Christ by sight hereafter who does not in some measure behold it here by faith.
+ - We shall not benefit from reading the Old Testament unless we look for and meditate on the glory of Christ in its pages.
+ - When sin lets us alone we may let sin alone.
+ - There is a state of perfect peace with God which can be attained under imperfect obedience.
+ - Only what God has commanded in His word should be regarded as binding; in all else there may be liberty of actions.
+ - To some men it is hard seeing a call of God through difficulties; when if it would but clothe itself with a few carnal advantages, how apparent it is to them! They can see it through a little cranny.
+ - The seed of every sin is in every heart.
+ - He who prays as he ought will endeavor to live as he prays.
+ - In or towards whomsoever the Holy Spirit puts forth His power, or acts his grace for their regeneration, he removes all obstacles, overcomes all oppositions, and infallibly produces the intended effect.
+ - Let no man think to kill sin with few, easy, or gentle strokes. He who hath once smitten a serpent, if he follow not on his blow until it be slain, may repent that ever he began the quarrel. And so he who undertakes to deal with sin, and pursues it not constantly to the death.
+ - If Scripture has more than one meaning, it has no meaning at all.
+ - Temptations and occasions put nothing into a man, but only draw out what was in him before.
+ - Steadfastness in believing doth not exclude all temptations from without. When we say a tree is firmly rooted, we do not say the wind never blows upon it.
+ - Men think all things would be very glorious, it they might be done according their mind. Perhaps, indeed, they would-but with their glory, not the glory of God.
+ - The indulgence of one sin opens the door to further sins. The indulgence of one sin diverts the soul from the use of those means by which all other sins should be resisted.
+ - Let no man pretend to fear sin that does not fear temptation also! These two are too closely united to be separated. He does not truly hate the fruit who delights in the root.
+ - Free will is “corrupted nature’s deformed darling, the Pallas or beloved self-conception of darkened minds”
+ - It is a throne of grace that God in Christ is represented to us upon; but yet is is a throne still whereon majesty and glory do reside, and God is always to be considered by us as on a throne.
+ - Unless men see a beauty and delight in the worship of God, they will not do it willingly.
+ - When the Holy Spirit sanctifies believers, he does a complete work in them. He puts into their minds, wills and hearts a gracious, supernatural principle which fills them with a holy desire to live to God. The whole life and being of holiness lies in this. This is the new creation.
+ - Before the work of grace the heart is ‘stony.’ It can do no more than a stone can do to please God.
+ - Sin is never less quiet than when it seems to be most quiet.
+ - The more I see of the glory of Christ, the more the painted beauties of this world will wither in my eyes.
+ - Selfishness is the making a man’s self his own centre, the beginning and end of all he doeth.
+ - There is not a day but sin foils or is foiled, prevails or is prevailed upon. It will always be so while we live in this world. Sin will not spare for one day. There is no safety but in a constant warfare for those who desire deliverance from sin’s perplexing rebellion.
+ - The mortification of indwelling sin remaining in our mortal bodies, that it may not have life and power to bring forth the works or deeds of the flesh is the constant duty of believers.
+ - Hatred of sin as sin, not only as galling or disquieting, a sense of the love of Christ in the cross, lie at the bottom of all true spiritual mortification.
+ - Faith, if it be a living faith, will be a working faith.
+ - Then are we servants of God, then are we the disciples of Christ, when we do what is commanded us and because it is commanded us.
+ - All attempts, then, for mortification of any lust, without an interest in Christ, are vain.
+ - Now nothing can prevent this but mortification; that withers the root and strikes at the head of sin every hour, so that whatever it aims at it is crossed in.
+ - I do not understand how a man can be a true believer, in whom sin is not the greatest burden, sorrow and trouble.
+ - It is one thing to fear God as threatening, with a holy reverence, and another to be afraid of the evil threatened.
+ - A true saving knowledge of sin is to be had only in the Lord Christ: in him may we see the desert of our iniquities.
+ - Labour to grow better under all your afflictions, lest your afflictions grow worse, lest God mingle them with more darkness, bitterness and terror.
+ - The gospel shall be victorious. This greatly comforts and refreshes me.
+ - To those to whom Christ is the hope of future glory, he is also the life of present grace.
+ - The foundation of true holiness and true Christian worship is the doctrine of the gospel, what we are to believe. So when Christian doctrine is neglected, forsaken, or corrupted, true holiness and worship will also be neglected, forsaken, and corrupted.
+ - When the heart is once won to rest in God, to repose himself on him, he will assuredly satisfy it. He will never be as water that fails; nor hath he said at any time to the seed of Jacob, “Seek ye my face in vain.” If Christ be chosen for the foundation of our supply, he will not fail us.
+ - No heart can conceive that treasury of mercies which lies in this one privilege, in having liberty and ability to approach unto God at all times, according to his mind and will.
+ - In the divine Scriptures, there are shallows and there are deeps; shallows where the lamb may wade, and deeps where the elephant may swim.
+ - There wanted not some beams of light to guide men in the exercise of their Stocastick faculty.
+ - Christ did not die for any upon condition, if they do believe; but He died for all God’s elect, that they should believe.
+ - As rivers, the nearer they come to the ocean whither they tend, the more they increase their waters, and speed their streams; so will grace flow more fully and freely in its near approaches to the ocean of glory.
+ - You have your season, and you have but your season; neither can you lie down in peace, until you have some persuasion that your work as well as your life is at an end.
+ - That wisdom which cannot teach me that God is love, shall ever pass for folly.
+ - Nothing shall be lost that is done for God or in obedience to Him.
+ - The custom of sinning takes away the sense of it, the course of the world takes away the shame of it.
+ - It must be observed, that the best of men, the most holy and spiritually minded, may have, nay, ought to have, their thoughts of spiritual things excited, multiplied, and confirmed, by the preaching of the word.
+ - Christ by his death destroying the works of the devil, procuring the Spirit for us, hath so killed sin, as to its reign in believers, that it shall not obtain its end and dominion.
+ - Assurance encourateth us in our combat; it delivers us not from it. We may have peace with God when we have done from the assaults of Satan.
+ - Temptation is like a knife, that may either cut the meat or the throat of a man; it may be his food or his poison, his exercise or his destruction.
+ - Christ is our best friend, and ere long will be our only friend. I pray God with all my heart that I may be weary of everything else but converse and communion with Him.
+ - Without absolutes revealed from without by God Himself, we are left rudderless in a sea of conflicting ideas about manners, justice and right and wrong, issuing from a multitude of self-opinionated thinkers.
+ - A man may easier see without eyes, speak without a tongue, than truly mortify one sin without the Spirit.
+ - The house built on the sand may oftentimes be built higher, have more fair parapets and battlements, windows and ornaments, than that which is built upon the rock; yet all gifts and privileges equal not one grace.
+ - If I have observed anything by experience, it is this: a man may take the measure of his growth and decay in grace according to his thoughts and meditations upon the person of Christ, and the glory of Christ’s Kingdom, and of His love.
+ - All that may be known of God for our salvation, especially his wisdom, love, goodness, grace and mercy on which the life of our souls depends, are represented to us in all their splendour in and through Christ. No wonder then that Christ is glorious in the eyes of believers!
+ - The vigour, and power, and comfort of our spiritual life depends on the mortification of the deeds of the flesh.
+ - Did you never run for shelter in a storm, and find fruit which you expected not? Did you never go to God for safeguard, driven by outward storms, and there find unexpected fruit?
+ - When we have communion with God in the doctrine we contend for-then shall we be garrisoned by the grace of God against all the assaults of men.
+ - I did not hear what I should have listened to.
+ - Not to be daily mortifying sin, is to sin against the goodness, kindness, wisdom, grace, and love of God, who hath furnished us with a principle of doing it.
+ - Without a sincere and diligent effort in every area of obedience, there will be no sucessful mortification of any one besetting sin.
+ - He that hath slight thoughts of sin never had great thoughts of God.
+ - He that stands still and suffers his enemies to double blows upon him without resistance, will undoubtedly be conquered in the issue.
+ - The stronghold of the contemplation of Christ’s glory affords the soul rest, for it will be made evident that our troubles grow on the root of an over-valuation of temporal things. The mind is its own greatest troubler.
+ - A river continually fed by a living fountain may as soon end its streams before it come to the ocean, as a stop be put to the course and progress of grace before it issue in glory.
+ - The pretended desires of many to behold the glory of Christ in heaven, who have no view of it by faith while they are here in this world, are nothing but self-deceiving imaginations.
+ - Sin will be always acting, if we be not always mortifying, we are lost creatures...
+ - Temptation gains power where we see it prevail in others we know and we express neither shock or hatred of them and their ways nor pity and prayer for their deliverance.
+ - Indwelling sin always abides whilst we are in this world; therefore it is always to be mortified.
+ - There neither is, nor ever was, in the world, nor ever shall be, the least dram of holiness, but what, flowing from Jesus Christ, is communicated by the Spirit, according to the truth and promise of the gospel.
+ - Temptation gains power by persistent solicitations that beget thoughts that make evil less serious.
+ - We admit no faith to be justifying, which is not itself and in its own nature a spiritually vital principle of obedience and good works.
+ - The good Lord send out a spirit of mortification to cure our distempers, or we are in a sad condition!
+ - He that loves works out good to those that he loves, as he is able. God’s power and will are equal; what He wills He works.
+ - Christ is the meat, the bread, the food of our souls. Nothing is in him of a higher spiritual nourishment than his love, which we should always desire.
+ - He, then, that would mortify any disquieting lust: let him take care to be equally diligent in all parts of obedience, and know that every lust, every omission of duty, is burdensome to God, though only one be burdensome to him.
+ - We need to attend diligently to the state of our soul, and to deal fervently and effectively with God about it.
+ - By faith ponder on this, that though thou art no way able in or by thyself to get the conquest over thy distemper, though thou art even weary of contending, and art utterly ready to faint, yet that there is enough in Jesus Christ to yield thee relief...
+ - If our principal treasure be as we profess, in things spiritual and heavenly, and woe unto us if it be not so! on them will our affections, and consequently our desires and thoughts, be principally fixed.
+ - Whatever vices and corruptions men see in the lives of their ministers will not be attributed to the depravity of their old nature which still abides in them, but to the gospel.
+ - If we believe not with faith divine and supernatural, we believe not at all.
+ - Your state is not at all to be measured by the opposition that sin makes to you, but by the opposition you make to it.
+ - When sin lets us alone we may let sin alone; but as sin is never less quiet than when it seems to be most quiet, and its waters are for the most part deep when they are still, so ought our contrivances against it to be vigorous at all times and in all conditions, even where there is least suspicion.
+ - Christ so loves his people that he sings with joy over them.
+ - If a man teach uprightly and walk crookedly, more will fall down in the night of his life than he built in the day of his doctrine.
+ - God never intended for us to be left to pray on our own. God never changes His purpose, but He often does purpose a change.
+ - A natural man hath no such thing as free-will at all, if you take it for a power of doing that which is good and well-pleasing unto God in things spiritual.
+ - He works in us and with us, not against us or without us; so that his assistance is an encouragement to the facilitating of the work, and no occasion of neglect as to the work itself.
+ - Ignorance of God and of ourselves is the great principle and cause of all our disquietments; and, this ariseth mostly not from want of light and instruction, but for want of consideration and application.
+ - It is truth alone that capacitates any soul to glorify God.
+ - He that is more frequent in his pulpit to his people than he is in his closet for his people, is but a sorry watchman.
+ - We must not be concerned only with that which troubles us, but with all that troubles God.
+ - To say that we are able by our own efforts to think good thoughts or give God spiritual obedience before we are spiritually regenerate is to overthrow the gospel and the faith of the universal church in all ages.
+ - It is often those who are despised and trampled on that bear up the weight of a whole nation.
+ - It is not the glorious battlements, the painted windows, the crouching gargoyles that support a building, but the stones that lie unseen in or upon the earth. It is often those who are despised and trampled on that bear up the weight of a whole nation.
+ - It is evident that you contend against sin merely because of how it troubles you.
+ - As among all the doctrines of the gospel, there is none opposed with more violence and subtlety than that concerning our regeneration by the immediate, powerful, effectual operation of the Holy Spirit of grace.
+ - The most tremendous judgment of God in this world is the hardening of the hearts of men.
+ - We are taught in an especial manner to pray that God would give his Holy Spirit unto us, that through his aid and assistance we may live unto God in that holy obedience which he requires at our hands.
+ - And as men diversions increase from the world, so do their entanglements from Satan. When they have more to do in the world than they can well manage, they shall have more to do from Satan than they can withstand.
+ - Consider that it is not failing in this or that attempt to come to Christ, but a giving-over of your endeavors, that will be your ruin.
+ - When someone sets his affections upon the cross and the love of Christ, he crucifies the world as a dead and undesirable thing. The baits of sin lose their attraction and disappear. Fill your affections with the cross of Christ and you will find no room for sin.
+ - All other ways of mortification are vain, all helps leave us helpless; it must be done by the Spirit.
+ - Mortification is the soul’s vigorous opposition to self, wherein sincerity is most evident.
+ - All spiritual acts well-pleasing unto God, as faith, repentance, obedience, are supernatural; flesh and blood revealeth not these things.
+ - I wish thy lot, now bad, still worse, my friend, for when at worst, they say, things always mend.
+ - Every time we say we believe in the Holy Spirit, we mean we believe that there is a living God able and willing to enter human personality and change it.
+ - We ought as much to pray for a blessing upon our daily rod as upon our daily bread.
+ - There is only one way to be revived and healed from our backslidings so that we may become fruitful even in old age. We must take a steady look at the glory of Christ in His special character, in His grace and work, as shown to us in the Scripture.
+ - The choicest believers, who are assuredly freed from the condemning power of sin, ought yet to make it their business all their days to mortify the indwelling power of sin.
+ - Let, then, the word be preached, and the sins of men will be rebuked, lust will be restrained, and some oppositions will be made against sin, though that be not the effect aimed at.
+ - We speak much of God, and talk of him, his ways, his works; the truth is, we know very little of him.
+ - We can have no power from Christ unless we live in a persuasion that we have none of our own.
+ - We cannot enjoy peace in this world unless we are ready to yield to the will of God in respect of death. Our times are in His hand, at His sovereign disposal. We must accept that as best.
+ - The least grace is a better security for heaven than the greatest gifts or privileges whatsoever.
+ - The root of an unmortified course is the digestion of sin without bitterness in the heart.
+ - A man may be carried on in a constant course of mortification all his days; and yet perhaps never enjoy a good day of peace and consolation.
+ - Let not that man think he makes any progress in holiness who walks not over the bellies of his lusts. He who doth not kill sin in this way takes no steps toward his journey’s end.
+ - It is the Spirit alone that can mortify sin; he is promised to do it, and all other means without him are empty and vain. How shall he, then, mortify sin that has not the Spirit? A man may easier see without eyes, speak without a tongue, than truly mortify one sin without the Spirit.
+ - What do we want? What would we be at? What do our souls desire? Is it not that we might have a more full, clear, stable comprehension of the wisdom, love, grace, goodness, holiness, righteousness, and power of God, as declared and exalted in Christ unto our redemption and eternal salvation?
+ - This day was yesterday to-morrow nam’d: To-morrow shall be yesterday proclaimed: To-morrow not yet come, not far away, What shall to-morrow then be call’d? To-day.
+ - Pardon comes not to the soul alone; or rather, Christ comes not to the soul with pardon only! It is that which He opens the door and enters by, but He comes with a Spirit of life and power.
+ - There is not a day but sin foils or is foiled, prevails or is prevailed on; and it will be so whilst we live in this world.
+ - He can make the dry parched ground of my soul to become a pool and my thirsty barren heart as springs of water. Yes he can make this habitation of dragons this heart which is so full of abominable lusts and fiery temptations to be a place of bounty and fruitfulness unto Himself.
+ - So great an advantage is given to sin and Satan by your temper and disposition, that without extraordinary watchfulness, care, and diligence, they will prevail against your soul.
+
+155 quotes

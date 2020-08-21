@@ -1,0 +1,41 @@
+ - Fly me up to where you are beyond the distant star. I wish upon tonight to see you smile, if only for a while to know you’re there. A breath away’s not far to where you are.
+ - I know that life is a journey I must accept and that pain and confusion are temporary. I know that if I follow my heart, it will lead me where I belong.
+ - Don’t give up. It’s just the weight of the world.
+ - If there is one thing that is constant in this world, it is the power of music.
+ - When I feel confused or depressed, I remember back to junior high and I silently repeat, ‘This, too, shall pass.’
+ - Even with our differences There is a place we’re all connected Each of us can find each other’s light, There’s so much to be thankful for.
+ - My biggest blast-off hit was ‘You Raise Me Up.’ If you ever have a wedding or a funeral, it’s a good pick.
+ - I have to work hard to not look like a nerd all the time. My friends are the only people I know that don’t care about my image. I need to have people who treat me just as Josh, not as Josh the singer.
+ - Art matters because it is the one true great connector in a world that seems to be very unconnected.
+ - Let me fall. Let me climb. There’s a moment where fear and dream must collide.
+ - I think that my relationship with my fans has been very special from day one. It’s been very special in spite of the fact that I don’t think I would ever be able to call myself a press darling. I don’t think there’s ever been a superficial hype machine around me.
+ - Don’t try to be like me. Try to be like yourself. Try to be very good at being yourself.
+ - Music is what I always turn to when I’m feeling a certain way. It’s my reason for everything.
+ - I’m always so pleased when I can get a song or be given a song that really speaks to me and I can interpret, but if given the opportunity to really write from the heart and try and bring some personality to whatever this genre would be, it was a great opportunity for me.
+ - I get terrible butterflies. Before I go onstage, I’ll have to freak out for five minutes. I scream. It seems to help!
+ - My school life was very much a wandering experience. I was having trouble in school and I was not making a lot of friends. So coming home and actually improvising on the piano and just coming up with melodies was an escape for me.
+ - I believe That angels breathe And that love will live on and never leave.
+ - There’s no half-singing in the shower, you’re either a rock star or an opera diva.
+ - I did not practice hours a day for eighteen years to have my success attributed to a myth.
+ - I wanted to focus on songs that I was inspired by growing up. I love so many of them from the last 100 years, but I really wanted, for my first step forward, to choose material that has inspired me and got me into the world of musical theater.
+ - My life is an unfinished product, but instead of just saying, ‘How do I top what I’ve accomplished,’ I decided I wanted to move forward, express my growth and take a big step into the next chapter.
+ - No matter who we are, no matter what our circumstances, our feelings and emotions are universal.
+ - I like my hair long because I have really big ears.
+ - I still like to keep all the love songs for the Grobanites, I like to make sure that they know those are just for them.
+ - When it comes to the acting stuff, I like to show up for a couple days and kind of be outrageous and silly, and go back to my day job.
+ - When you’re walking in, basically like a kid a candy store, to a project where there’s an endless canon of material, you have to step back from it as a self-indulgence. You have to look at it neutrally.
+ - Acting was definitely half of what I loved about storytelling and about theater. So, when I get a chance to do a cameo in a show or do a movie, it’s a lot of fun and it’s always great stepping outside of yourself and either playing a bizarro version of yourself or playing a character.
+ - I was the boy who liked to sing his own songs at talent shows, and I was suddenly officially uncool.
+ - When I started in the music business, travel became a huge part of my world, where it hadn’t been at all. I visited parts of the world that I’d never been to and found that I was spending maybe 30 days at home a year.
+ - Music is so 100 percent for me that the idea of giving that up in any way, shape, or form would be terrifying to me.
+ - It wasn’t that I got pinned against my locker, but I was intensely aware that the things I valued weren’t shared by anyone. Girls didn’t like me, and I had few friends.
+ - Grobanite makes me think of a type of harmless crustacean.
+ - I try to have a real close connection with my fans. That’s extremely important. They are the ones that have been there from the beginning and proved everyone else wrong.
+ - Every day I lugged my backpack through the halls, waiting for the final bell. Then I’d race home and hole up in my room, playing the drums and the piano, composing music.
+ - I’ve been fascinated by music for as long as I can remember. I was the kid on the playground in the third grade who would tell other kids about Paul Simon or Depeche Mode.
+ - As a new artist there’s always outside influences trying to tell you how to make a song better for radio and how to do your hair.
+ - After using four different languages on an album, it’s tough to decide which one I’m gonna actually learn to speak. I always study the lyric, make sure I know what I’m singing, and try to get the pronunciation as perfect as possible.
+ - The songs that I sing and the songs that I write have always just been what I feel my voice does well, and what my inspirations have been and a kind of culmination of everything.
+ - Musically, between me and my fans and also me and my team, who between management and record label have always just let me be me, it’s fun to pave a path. It’s fun to feel like you’re doing things your own way. So in that regard I haven’t had to worry about any bar but my own.
+
+39 quotes

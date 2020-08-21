@@ -1,0 +1,118 @@
+ - Mistakes are a fact of life: It is the response to the error that counts.
+ - We are strong enough to stand tall tearlessly, we are brave enough to bend to cry, and we are sad enough to know that we must laugh again.
+ - The ability to take pride in your own work is one of the hallmarks of sanity.
+ - We love because it’s the only true adventure.
+ - A lot of people resist transition and therefore never allow themselves to enjoy who they are. Embrace the change, no matter what it is; once you do, you can learn about the new world you’re in and take advantage of it.
+ - We are better than we think and not yet what we want to be.
+ - If you don’t understand yourself you don’t understand anybody else.
+ - Once you know who you are, you don’t have to worry anymore.
+ - Black love is black wealth.
+ - Poems don’t have to rhyme. Poems are about beauty and emotion; in other words poems are about feelings.
+ - Some say we are responsible for those we love. Others know we are responsible for those who love us.
+ - I want to be clear about this. If you wrote from experience, you’d get maybe one book, maybe three poems. Writers write from empathy.
+ - We are less lonely when we connect. Art is connection.
+ - Life is a marvelous, transitory adventure.
+ - She knows who she is, because she knows who she isn’t.
+ - Who I am really keeps surprising me.
+ - Deal with yourself as a individual, worthy of respect and make everyone else deal with you the same way.
+ - I would put books on par with chocolate, because a good book is delicious.
+ - The unwillingness to try is worse than any failure.
+ - Art is not for the cultivated taste. It is to cultivate taste.
+ - Writing is a conversation with reading; a dialogue with thinking. All conversations with older people contain repetition. Some of the ideas mean a lot to me, just interesting, so I both embrace and attack the ideas because I found them, well, delightful.
+ - Black love is Black wealth and they’ll probably talk about my hard childhood and never understand that all the while I was quite happy.
+ - I am so hip even my errors are correct.
+ - Just as nature abhors a vacuum, humans resist change. Change will occur; vacuums will be filled.
+ - A white face goes with a white mind. Occasionally a black face goes with a white mind. Very seldom a white face will have a black mind.
+ - VISIBILITY – You’ve got to find a way to make people know you’re there.
+ - I appreciate and enjoy my age.
+ - Nothing is easy to the unwilling.
+ - If now isn’t a good time for the truth I don’t see when we’ll get to it.
+ - A lot of people refuse to do things because they don’t want to go naked, don’t want to go without guarantee. But that’s what’s got to happen. You go naked until you die.
+ - To write poems, I think it’s important to do research, and research mostly is going to come from books, so all of your reading is potentially helpful to your poetry.
+ - White people really deal more with God and black people with Jesus.
+ - Young people coming up who are having difficulty with their so-called celebrity need to get back into their lives. It’s your life and you can’t let the fact that you do something pretty good take away the joy of it.
+ - Love is the offspring of spiritual affinity and unless that affinity is created in a moment, it will not be created for years or even generations.
+ - I love you because no two snowflakes are alike, and it is possible, if you stand tippy-toe, to walk between the raindrops.
+ - Educational progress is a national concern; education is a private one.
+ - Everything will change. The only question is growing up or decaying.
+ - Death is a slave’s freedom.
+ - Show me someone not full of herself and I’ll show you a hungry person.
+ - Everybody that loves freedom loves Harriet Tubman because she was determined not only to be free, but to make free as many people as she could.
+ - It is not who you attend school with but who controls the school you attend.
+ - There are things you stand up for because it’s right.
+ - Poetry and music are very good friends. Like mommies and daddies and strawberries and cream – they go together.
+ - Being Black and poor is, I think, radically different from being anything else and poor. Poor, to most Blacks, is a state of mind. Those who accept it are poor; those who struggle are middle class.
+ - If you are sitting there waiting for someone to tell you how wonderful you are, you’ll never get anything done. Women need to get over being women. I’m tired of that socialization of women; that we are always supposed to be sitting around pleasing somebody.
+ - And you will understand all too soon That you, my children of battle, are your heroes.
+ - I am honest; I try to be truthful. I like people and wish us well. We are not always deserving of our own best wishes.
+ - I really don’t think life is about the I-could-have-beens. Life is only about the I-tried-to-do. I don’t mind the failure but I can’t imagine that I’d forgive myself if I didn’t try.
+ - I appreciate my my sleep In sleep my conversation is witty My home is dusted My office work is up to date The dog is even well behaved And food is on the table on time But then when I’m asleep I don’t have you to clutter and confuse My hungry heart.
+ - God knows it’s a sign of a really sick mind to see grown people, adults with responsibilities, wearing class rings.
+ - You must be unintimidated by your own thoughts because if you write with someone looking over you shoulder, you’ll never write.
+ - We all have our muses. My grandmother and my mother are the people I write for. I’ll never have to worry about who buys my work, or who likes it, and who doesn’t. The people who I want to be proud of me already are.
+ - If you were a pure bolt of fire-cutting the skies I’d touch you-risking my life-not because I’m brave or strong, but because I’m fascinated by what the outcome would be.
+ - Poetry is like air. It’s one of the necessary things. Everyone benefits from poetry. And as you know, poetry is international. There are only two things that are truly international, poetry and wine.
+ - Hip-hop is a cultural expression – it’s embracing.
+ - I am a huge fan of the Black woman. I never hesitate to recommend her when times are bad or things go wrong.
+ - The poet Melvin B. Tolson once said, ‘A civilization is judged only in its decline.’ That made sense to me. I would imagine the same is true for poets and tennis players.
+ - The trip to Mars can only be understood through Black Americans. I say, the trip to Mars can only be understood through Black Americans.
+ - Photographers direct the eye toward a particular object. We who write, one hopes, are directing the heart and the soul.
+ - Sacred cows make very poor gladiators.
+ - Don’t want to be near you for the thoughts we share but the words we never have to speak.
+ - Life is a process where people mix and match, fall apart and come back together.
+ - If you’re a writer, the answer to everything is yes.
+ - We eat up artists like there’s going to be a famine at the end.
+ - But nonviolence was never for the oppressor; it was for the oppressed.
+ - I move on feeling and have learned to distrust those who don’t.
+ - And like an unfaithful mate, once a car has let you down you never sort of trust it again.
+ - Poetry is music though, unfortunately, not all music is poetry. Because music has other carriers to take its message – beats, lyrics, singers, bass players – anyone in music can rise to make a major statement but in poetry there are only words to do the work. And they do sometimes have to sweat.
+ - I had a really nice childhood; I had great parents. I earned my allowance by washing dishes, and in the summer I earned my allowance by working in daddy’s garden.
+ - I hope that, reading ‘Rosa,’ people will remember their own family and friends and talk about what they did and did not do.
+ - I always loved English because whatever human beings are, we are storytellers. It is our stories that give a light to the future. When I went to college I became a history major because history is such a wonderful story of who we think we are. English is much more a story of who we really are.
+ - Baseball is already the world’s most tranquil sport. It is probably the only active sport where you are not seriously required to be alive to play.
+ - We write because we believe the human spirit cannot be tamed and should not be trained.
+ - There’re two people in the world that are not likeable: a master and a slave.
+ - Rage is to writers what water is to fish.
+ - Facts are only tools to gain control over yourself and other people.
+ - Favorite poems are like favorite children. We definitely have them but we never tell as the others would have their feelings hurt.
+ - The poet can only write the poems; it takes the reader to complete the meaning.
+ - I am proud of the hip hop generation. They are good business people and, actually, good people.
+ - A lot of people refuse to do things...
+ - We obviously need the truth. We’re living in a country of lies.
+ - If I can’t do what I want to do, then my job is to not do what I want to do. It’s not the same thing, but it’s the best thing I can do.
+ - Now, everything I do, I do because I want to. And I believe the best is yet to come.
+ - I am totally fascinated by people and our history as I understand and continue to explore it. People have so much to give and so far to go and yet we have given and gone a great distance. It’s really just interesting to ask: why not? And see where that takes me.
+ - You have to use what you have in order to get what you need and the people can not be rich unless somebody is rich. The Hip-Hop generation has carried more people with it than any other enterprise Black Americans have had.
+ - I have not tried to tell the people anything. I have shared my views with the people but I have not tried to lead or correct them, assuming they need correction.
+ - You’re only as good as your last book.
+ - I spend a lot of time learning about bird watching.
+ - The more you love someone the more he wants from you and the less you have to give since you’ve already given him your love.
+ - You must be unintimidated by your own thoughts...
+ - My work is a part of me and I know it. I have no reason to try to pick one part of me out from the rest. I only see my work, or rather I should say I see my work only telling my part of the human experience.
+ - If I could come back as anything – I’d be a bird, first, but definitely the command key is my second choice.
+ - For most of my life, I’ve thought of myself as pretty cool.
+ - All systems require myths for their longevity.
+ - There are some things we do simply because the doing is a success.
+ - Fanatics are, for one thing, boring and, for another, unreliable. They tend to burn out just when you need them.
+ - We believe ‘Peter Rabbit’ because Beatrix Potter believes it. You have to.
+ - I do not understand why any poet or writer would run for office; that’s a different sense of who you are. I’m just a poet. I am as truthful as I can be. That makes me an artist. I heed the people; I do not lead the people.
+ - I think speeches and fruit should always be fresh.
+ - The catchword I use with my classes is: The authority of the writer always overcomes the skepticism of the reader.
+ - The only way you can grow is to let yourself make mistakes and create contradictions. As we learn new things, some of our old attitudes will change.
+ - It’s really just interesting to ask: why not? And see where that takes me.
+ - Follow your image as far as you can no matter how useless you think it is. Push yourself.
+ - History is wonderful. We have so much we can learn if we would quit making ideology out of history, and just deal with what happened.
+ - Violence is like money in the bank; it’s only helpful if you don’t have to use it.
+ - Poetry is the most mistaught subject in any school because we teach poetry by form and not by content.
+ - No one needs to teach you to be mean; we need to be taught to be kind.
+ - I don’t have a life-style, I have a life.
+ - If everybody became a poet the world would be much better. We would all read to each other.
+ - One stands, in fact, in awe of the Constitution of the United States, though it is an idea and not quite a reality.
+ - You must invent your own games and teach us old ones how to play.
+ - Black Americans should be given credit for finding probably the perfect weapon; the weapon of the song. And that song continues. Most holocausts don’t, so they have this bitterness left over. The phenomenon of the world, as far as Black Americans are considered, is that we are not a bitter people.
+ - Poets can tell the truth as they see it. It’s the author’s story, the author’s voice.
+ - I think one of the nicest things that we created as a generation was just the fact that we could say, ‘Hey, I don’t like white people.’
+ - When younger, I thought one of the particulars of being “Homo sapiens” was to communicate. I have not learned not to, though I am cautious when I try.
+ - To become a poet, the most important thing is to pay attention. The next would probably be to read; it’s so important to pay attention. It keeps you from being bored, and I might add it keeps you from being boorish.
+
+116 quotes

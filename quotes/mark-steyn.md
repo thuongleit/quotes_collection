@@ -1,0 +1,79 @@
+ - The most basic of conservative principles is that if you reward bad behavior you get more of it.
+ - LBJ held up Detroit as a model of what the Great Society could accomplish. He was right.
+ - In Britain, everything is policed except crime.
+ - The Western front is the important one in this war – the intersection between Islam and a liberal democratic tradition so mired in self-loathing it would rather destroy our civilization just to demonstrate its multicultural bona fides.
+ - A big chunk of Western civilization, consciously or otherwise, has given the impression that it’s dying to surrender to somebody, anybody. Reasonably enough, Islam figures: Hey, why not us?
+ - When is the Democratic Party going to apologize for being the biggest slave-holding-supporting institution on the planet and sticking with racism for the century after the abolition of slavery?
+ - I believe Western culture – rule of law, universal suffrage, etc. – is preferable to Arab culture: that’s why there are millions of Muslims in Scandinavia, and four Scandinavians in Syria. Follow the traffic. I support immigration, but with assimilation.
+ - When the family dies, the nation follows...
+ - The first victims of poseur environmentalism will always be developing countries. In order for you to put biofuel in your Prius and feel good about yourself for no reason, real actual people in faraway places have to starve to death.
+ - If gun control bore any relation to homicide rates, Washington, DC would be the safest place in the country.
+ - General Motors, like the other two geezers of the Old Three, is a vast retirement home with a small money-losing auto subsidiary.
+ - Welfare culture is bad not just because, as in Europe, it’s bankrupting the state, but because it enfeebles the citizenry, it erodes self-reliance and resourcefulness.
+ - When is black America going to forgive white America for slavery?
+ - Sometimes societies become too stupid to survive. A nation that takes Barack Obama’s current rhetorical flourishes seriously is certainly well advanced along that dismal path.
+ - Big government makes small citizens.
+ - The Democratic Party is uniquely virulently racist and pro-slavery to a degree unseen anywhere in the English-speaking world!
+ - The spirit of the age is: Ask not what your country can do for you, demand it.
+ - Like most people, I have no wish to live in a community organized by community organizers.
+ - No family of an American hostage has ever been prosecuted for paying a ransom for the return of their loved ones. The last thing we should ever do is to add to a family’s pain.
+ - Big Government is erecting a panopticon state – one that sees everything, and regulates everything. It’s great “customer service,” except that you can never get out of the store.
+ - The long-term cost of a welfare society is the infantilization of the population.
+ - Europe by the end of this century will be a continent after the neutron bomb. The grand buildings will still be standing, but the people who built them will be gone.
+ - When you’re taxing bovine flatulence emissions, there’s nothing left to tax.
+ - If you’re 29, there has been no global warming for your entire adult life. If you’re graduating high school, there has been no global warming since you entered first grade. There has been no global warming this century. None.
+ - Every power grab is the new base camp for the next power grab.
+ - Appeasement is a vote to live in the present tense, to hold the comforts of the moment.
+ - How do you get to Carnegie Hall? Practice. How do you get away from it? Improvise.
+ - Only in America does ‘health’ ‘care’ ‘reform’ begin with the hiring of 16,500 new IRS agents tasked with determining whether your insurance policy merits a fine.
+ - We immigrants can sometimes sound a little hysterical about this because we come from places that have tried this and we know where it leads. Anybody who’s lived in countries with socialized health care knows that it becomes the dominant political issue.
+ - For Americans, the quickest way to understand modern Britain is to look at what LBJ’s Great Society did to the black family and imagine it applied to the general population.
+ - Absolute welfare corrupts absolutely.
+ - The essence of a government health care system – for people who have never lived under it and don’t know – is waiting, waiting, waiting. You wait for everything. You wait for years for operations that are routine in America.
+ - Unchecked, government social programs are a security threat because they weaken the ultimate line of defense: the free-born citizen whose responsibilities are not subcontracted to the government.
+ - The ‘Occupy’ movement has no real solutions, except more government, more spending, more regulation, more bureaucracy, more unsustainable lethargic pseudo-university with no return on investment, more more more of what got us into this hole.
+ - Government health care changes the relationship between the citizen and the state, and, in fact, I think it’s an assault on citizenship.
+ - I don’t think Donald Trump is a conservative. I think his line on China for example, that he’s going to talk tough to China. China didn’t create Social Security, Medicare. China isn’t spending a fifth of a billion dollars every hour that it doesn’t have.
+ - The law functions as formal embodiment of a moral code, not as free-standing substitute for it.
+ - America is the brokest country in history. We owe more money than anyone has ever owed anyone. And Obama and Reid say relax, that’s no reason not to spend more – because the world hasn’t yet concluded we have no intention of paying it back. When they do, the dollar will collapse.
+ - To expect the government to save you is to be a bystander in your own fate.
+ - Her Majesty’s government is engaging not merely in Orwellian Newspeak but in self-defeating Orwellian Newspeak. The broader message it sends is that ours is a weak culture so unconfident and insecure that if you bomb us and kill us our first urge is to find a way to flatter and apologize to you.
+ - It’s not that I place less value on Palestinian lives, but that Chairman Arafat and his chums in Hamas do.
+ - On the Continent and elsewhere in the West, native populations are aging and fading and being supplanted remorselessly by a young Muslim demographic.
+ - Once you accept you’re a child in the government nursery, why shouldn’t Nanny tell you what to do?
+ - In Europe, nothing is certain except death and welfare, and why let the former get in the way of the latter?
+ - But in reality the point of free speech is for the stuff that’s over the line, and strikingly unbalanced. If free speech is only for polite persons of mild temperament within government-policed parameters, it isn’t free at all. So screw that.
+ - Contemporary politics is all about phony energy, about running around slamming doors for the sake of it-or, more to the point, opening them and tossing through a huge sack of taxpayer dollars.
+ - Secretary of State Clinton dared Iran on Monday to let her hold a town hall meeting in Tehran. That’s telling ’em. If the ayatollahs had a sense of humor, they’d call her bluff.
+ - The story of the Western world since 1945 is that, invited to choose between freedom and government ‘security,’ large numbers of people vote to dump freedom every time – the freedom to make your own decisions about health care, education, property rights, and a ton of other stuff.
+ - Jesse Jackson’s living depends on the maintenance of an African-American victim culture.
+ - If you look at the range of Hollywood movies playing in most cities in the developing world, you’d hate the America they portray, too.
+ - There is no conceivable amount of money worth telling the world that you were beaten up by Liza Minnelli.
+ - The president has borrowed more money to spend to less effect than anybody on the planet.
+ - The senator’s actions in the hours and days after emerging from that pond tell us something ugly about Kennedy the man. That he got away with it tell us something ugly about American public life.
+ - For states in demographic decline with ever more lavish social programs, the question is a simple one: Can they get real? Can they grow up before they grow old? If not, then they’ll end their days in societies dominated by people with a very different worldview.
+ - Apparently the pro-choice types who jump up and down in the street demanding that you keep your rosaries off their ovaries are entirely relaxed about the government getting its bureaucratics all over your lymphatics.
+ - Reverend Jesse Jackson, President-for-Life of the People’s Republic of Himself.
+ - The best reason to diminish social programs is not to put more money in people’s pockets but to put more responsibility in people’s pockets.
+ - Those who can do. Those who can’t form a supercommittee.
+ - Question: How much do you have to invest in the future before you’ve spent it and no longer have one?
+ - One lesson of Sept. 11 is that a government that tries to do everything is likely to do most of it badly.
+ - Public interest criteria does not mean criteria that the public decides are in its interest. It means that the elite – via various appointed bodies – decide what the public’s interest is for them.
+ - The salient feature of America in the Age of Obama is a failed government class institutionally committed to living beyond its means, and a citizenry too many of whom are content to string along.
+ - But, once you get a taste for shutting people up, it’s hard to stop. Why bother winning the debate when it’s easier to close it down?
+ - Obama’s Nobel Peace Prize is an exquisite act of condescension from Norwegians, a dog biscuit and a pat on the head to the American hyperpower for agreeing to spay itself into a hyperpoodle.
+ - Once a fellow’s enjoying the fruits of government health care and all the rest, he couldn’t give a hoot about the general societal interest; he’s got his, and if it’s going to bankrupt the state of a generation hence, well, as long as they can keep the checks coming till he’s dead, it’s fine by him.
+ - There may be many things wrong with the United States but only a blind fool who hasn’t been paying attention for the last twenty years would hold up Europe as the alternative.
+ - America is now a land that rewards failure – at the personal, corporate, and state level.
+ - The trouble with the social-democratic state is that, when government does too much, nobody else does much of anything.
+ - It is surely only a matter of time before some federal judge finds the Constitution unconstitutional.
+ - We are the source of our problems not mysterious sinister foreigners overseas.
+ - The greatest crime of welfare isn’t that it’s a waste of money, but that it’s a waste of people.
+ - The Democrats smell blood and don’t want to be told that it’s their own.
+ - How ridiculous! You’re going to have the first black president apologize for slavery?
+ - Big Government is the small option: it’s the guarantee of smaller freedom, smaller homes, smaller cars, smaller opportunities, smaller lives.
+ - The minute health care becomes a huge, unwieldy, expensive government bureaucracy it’s a permanent feature of life and there’s nothing anyone can do about it.
+ - Anything that shifts power from the individual judgment of free citizens to government is a bad thing.
+ - Long before they slump into poverty, great powers succumb to a poverty of ambition.
+
+77 quotes

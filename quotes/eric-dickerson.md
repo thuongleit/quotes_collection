@@ -1,0 +1,28 @@
+ - I love being single. I can come and go as I please and stay out as late as I want to.
+ - I think I’m proudest of making my parents proud.
+ - I don’t give players a chance to hit me.
+ - It doesn’t matter if you want to be in the NFL or do something else. If you want something great, you won’t get it sitting around.
+ - I love golf. But do you know how I got good at golf? Because of Charles Barkley. I was playing with Charles, Michael Jordan and Roy Green, and Charles was talking so much trash. On every shot, he was talking trash. So I left the tournament, and I went and practiced for a year and half.
+ - I heard that all the time. ‘He makes it look too easy, he doesn’t run hard.’ It was always a slight on me.
+ - Running is so natural to me. When I was running track, people used to ask me, “When are you gonna start running hard?” The wind hits me in the face, and I feel so smooth – Man, I love to run!
+ - In the NFL they talk about ‘contracts,’ but it’s not really a contract, it’s a one year agreement. If you have a 10 year contract, it means nothing. If you get cut in the NFL, you get nothing. People don’t talk about that.
+ - I’m just not the outgoing bubble of energy. But if I know you, it’s different. Practical jokes. Have fun. I’m not looking for any new friends. I got my friends.
+ - I hated the goggles, don’t get me wrong, but I felt naked without them. Almost like playing without a helmet.
+ - I love the sport but it’s definitely taken a toll on me. The first two years after I retired I was in pain and couldn’t even sit in a chair for 2 years. 2 years! You want a sport that takes care of you the way you take care of the sport.
+ - I run upright mostly when I see daylight, so if you watch film you’ll see I don’t get hit in the chest much.
+ - Football isn’t who we are, it doesn’t necessarily define us. It’s part of our life and it always will be, but football won’t define us. Excellence does.
+ - She told me I wasn’t playing for the coach, I was playing for myself.
+ - When they have their hands on their knees, that’s when they’re tired.
+ - Most of the hits I take come on top of the shoulder pads.
+ - I’ll tell you one thing about me: I’m very private. I always have been private. People think I’m callous, arrogant. I didn’t like the media attention.
+ - I believe if I stay tall and run up high, I can see better.
+ - I don’t love football the way I once loved the game. I don’t look at it as fun anymore, and it definitely used to be fun. A lot of the fun has been taken away from it, I guess, because you go through so much on the field and off the field.
+ - I’ve stayed buddies with my old buddy Jackie Slater. I talk to Jackie Slater. I play golf with Marcus Allen a lot. I play golf with Marshall Faulk a lot. My buddy Craig Young, he lives up in New Mexico. I still talk to a lot of the guys.
+ - Playing the running back position, your legs, that’s your living, that’s how you make your living. You have to have great thighs, knees, everything.
+ - When I loved it, I loved it. It was nothing better.
+ - Them sportswriters don’t even know how to put uniforms on, most of ’em.
+ - Anything will worry me. I may not get a check for the light bill off in time and I just get to worrying. I’m a worrywart.
+ - I’d love to be in the Hall of Fame one day and win Super Bowl rings, or even one – and stay healthy.
+ - When you look at guys who get recruited, most of the best athletes, they come from poor families. I don’t forget. I was a junior looking through my mother’s stuff and looked at her bank statement, and we had $30 in the bank.
+
+26 quotes

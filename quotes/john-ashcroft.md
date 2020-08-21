@@ -1,0 +1,51 @@
+ - There is no priority higher than the prevention of terrorism.
+ - Only God, no other kings!
+ - A trustee has a responsibility to guard the assets of others with a higher degree of care than he does his own.
+ - The goal of terror is not traditional territorial enlargement; rather the war target of the terrorist is the dismemberment of the will of the community it terrorizes.
+ - To those who scare peace loving people with phantoms of lost liberty, my message is this: your tactics aid terrorists for they erode our national unity and diminish our resolve. They give ammunition to America’s enemies and pause to America’s friends.
+ - Doing what is right in the face of adversity is not always easy or popular. Critics may assail you, but the critics don’t always realize what they don’t know or don’t understand, because they don’t have access to all the information.
+ - What we learned on September 11 is that the unthinkable is now thinkable in the world.
+ - Just as the First and Fourth Amendment secure individual rights of speech and security respectively, the Second Amendment protects an individual right to keep and bear arms. This view of the text comports with the all but unanimous understanding of the Founding Fathers.
+ - Our priorities should be: recognizing the voice of God and responding to the voice of God.
+ - By tearing down the wall between law enforcement and the intelligence community, we have been able to share information in a way that was virtually impossible before the Patriot Act.
+ - Simply put, international terrorism made international cooperation mandatory rather than elective. Collective security has become the only real security against the hydra-headed monster of international terror.
+ - How sad, that the group with the most access to the truth chose in several strategic instances to look the other way.
+ - Do not allow your sorrow or your rage to become hostility toward people on the basis of their ethnicity or their religious views. That is unacceptable; it is out of bounds, and if you break the law, we will prosecute you for it.
+ - We are a nation called to defend freedom – a tradition that is not a grant of any government or document, but is an endowment from God.
+ - Nothing remains great without a capacity to change and to accommodate the conditions of a changing world.
+ - Sometimes the act of walking in the face of the elements helps us come to grips with reality. Or it simply exhausts us to the point of seeing the futility of resisting reality and the futility of denial.
+ - It doesn’t help to wait until something happens and then prosecute the offenders, especially if it’s the idea of the offender to extinguish himself in the commission of the crime.
+ - The Internet provides very serious challenges to our ability to keep from children the kinds of things that are destructive to them.
+ - To me, failure is not fatal unless you quit; getting knocked down is not embarrassing unless you allow it to keep you down.
+ - Prior to September 11, we thought the world beyond our shores was one world of risk and the world in our continent was another world of risk.
+ - I think all we should legislate is morality.
+ - There’s nothing more rewarding or important than to be involved in God’s work of redemption.
+ - The Patriot Act allows and provides a basis for an exchange of information.
+ - Every medium by which people communicate can be subject to exploitation by those with illegal intentions. Nevertheless, this is no reason to hand Big Brother the keys to unlock our e-mail diaries, open our ATM records, read our medical records, or translate our international communications.
+ - If America is to be great in the future, it will be if we understand that our source is not civic and temporal, but our source is godly and eternal.
+ - The liberties and freedoms which we hold dear and we recognize and cherish and respect guide the way we gather information in the United States.
+ - The FBI. is a massive culture. It’s been a culture that served America well, and it’s been focused on prosecution. But what we need in terms of terrorism is prevention.
+ - We’ve got to understand that the whole nature of the way American democracy guards its freedom has been changed.
+ - Civilized people – Muslims, Christians and Jews – all understand that the source of freedom and human dignity is the Creator.
+ - For the first time in a long time, our leaders in Washington understand what Americans of all religious backgrounds have long held to be true: through faith, all things are possible.
+ - We must embrace the power of faith, but we must never confuse politics and piety. For me, may I say that it is against my religion to impose my religion.
+ - The new rule says that the FBI has the right to go to public places on the same terms and conditions as other members of the public for counter-terrorism purposes.
+ - Unique among the nations, America recognized the source of our character as being godly and eternal, not being civic and temporal. And because we have understood that our source is eternal, America has been different. We have no king but Jesus.
+ - We need to strengthen our analytic capacity in Washington, we need to centralize the anti-terrorism effort.
+ - This view of the text comports with the all but unanimous understanding of the Founding Fathers...
+ - We have to think outside the box, inside the Constitution, find ways to do things that will elevate our security, reduce the risk of the incidence of terrorist attack.
+ - I don’t play full court anymore. I just play half-court.
+ - All of us want to have meaning in our lives and want to feel like we’re doing something that makes a difference. I believe we’re doing that in the Justice Department.
+ - The FBI has long been a part of the security for the nation’s banks because bank robberies have been a priority.
+ - The way the terrorist is trained to operate, especially the suicide terrorists, makes punishment and the threat of punishment far less valuable to those who would prevent the crime.
+ - Agents need to be free to pursue investigations in ways that they haven’t. There have been restraints that a reformed FBI needs to make sure we don’t impose.
+ - Nothing that we have authorized conflicts with any law regarding privacy or any provision of the constitution.
+ - I decided this early on at Justice: if the traditional way was the most effective way of doing something, then we’d maintain it. But if it was not functioning at optimum levels, we would be doing the country a disservice by continuing to do things “like we’ve always done them.”
+ - Christianity is a faith in which God sent his Son to die for you.
+ - People who commit crimes should be responsible for those crimes. It doesn’t matter whether they’re priests or ministers or atheists.
+ - The charges of the hysterics are revealed for what they are: castles in the air built on misrepresentation, supported by unfounded fear, held aloft by hysteria.
+ - Reasonable regulations regarding the ownership of weapons are appropriate.
+ - The worst mistake a boss can make is not to say ‘well done’.
+ - If necessity is the mother of invention, it’s the father of cooperation. And we’re cooperating like never before.
+
+49 quotes

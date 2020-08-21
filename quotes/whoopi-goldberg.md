@@ -1,0 +1,75 @@
+ - We’re here for a reason. I believe a bit of the reason is to throw little torches out to lead people through the dark.
+ - When you are kind to someone in trouble, you hope they’ll remember and be kind to someone else. And it’ll become like a wildfire.
+ - It you want to be somebody, If you want to go some where, you’ve got to wake up and pay attention.
+ - I am where I am because I believe in all possibilities.
+ - In the dark times, if you have something to hold on to, which is yourself, you’ll survive.
+ - I am the American Dream. I am the epitome of what the American Dream basically said. It said you could come from anywhere and be anything you want in this country. That’s exactly what I’ve done.
+ - That’s the thing about Mother Nature, she really doesn’t care what economic bracket you’re in.
+ - I used my imagination to make the grass whatever color I wanted it to be.
+ - Should I be worried about being a slave and being returned to slavery? Because certain things happened in the Constitution that had to change.
+ - I grew up in a time when it would never have occurred to anyone to tell me there was anything I couldn’t do.
+ - It never occurs to me that there are things I can’t do.
+ - You couldn’t always trust the history books. They told a diluted truth, a truth by committee.
+ - The art of acting is to be other than what you are.
+ - Sometimes experience trumps assumption.
+ - I don’t have pet peeves like some people. I have whole kennels of irritation.
+ - I don’t really view communism as a bad thing.
+ - If You don’t like Gay Marriage, Don’t Marry a Gay Person.
+ - You have to believe in yourself in spite of what other people believe.
+ - Her least favorite thing: VOLUNTARY IGNORANCE.
+ - Normal is in the eye of the beholder.
+ - Taliban-esque: Any behavior that imposes the beliefs of one person on everyone else. Conversations with the Taliban-esque are impossible. They aren’t even conversations. With them, it’s my way or no way.
+ - I have witnessed things the ancients would have called miracles, but they are not miracles. They are the products of someone’s dream, and they happen as the result of hard work.
+ - If you don’t look out for others, who will look out for you?
+ - Normal is nothing more than a cycle on a washing machine.
+ - When I was nine years old, Star Trek came on, I looked at it and I went screaming through the house, ‘Come here, mum, everybody, come quick, come quick, there’s a black lady on television and she ain’t no maid!’ I knew right then and there I could be anything I wanted to be.
+ - When I forget how talented God is, I look to the sea.
+ - Thank you, God, because I am lucky. Also let’s face it, it turns out I’m black. And I’m having a career quite different from lots of people, so I feel doubly lucky.
+ - I don’t look like Halle Berry. But chances are she’s going to end up looking like me.
+ - Art and life are subjective. Not everybody’s gonna dig what I dig, but I reserve the right to dig it.
+ - My family is Jewish, Buddhist, Baptist and Catholic. I don’t believe in man-made religions.
+ - I’d like somebody to get rid of the death tax. That’s what I want. I don’t want to get taxed just because I died. I just don’t think it’s right. If I give something to my kid, I already paid the tax. Why should I have to pay it again because I died?
+ - When I was 9 years old, Star Trek came on...
+ - What I am is a humanist before anything – before I’m a Jew, before I’m black, before I’m a woman. And my beliefs are for the human race – they don’t exclude anyone.
+ - Taking action is hard, but know what? Enduring a bad situation can be its own hell.
+ - No matter what you say to yourself, you do want to win. You try to look casual, like you’re not thinking, ‘oh, please pick me.’
+ - Just call me black, if you want to call me anything.
+ - An actress can only play a woman. I’m an actor, I can play anything.
+ - My mother’s great. She has the major looks. She could stop you from doing anything, through a closed door even, with a single look. Without saying a word, she has that power to rip out your tonsils.
+ - If you can handle the fact that people are going to be mad at you when you do what you think is right, you’ll be alright.
+ - I don’t like driving very much. That makes me very unhappy, because I scream a lot in the car, but other than that, life is actually pretty good.
+ - Sitting at the table during Color Purple and looking up and suddenly realizing I was acting in front of Steven Spielberg, was pretty cool. It was pretty good.
+ - You know, be an actor because you love to act. Don’t be an actor because you think you’re going to get famous, because that’s luck.
+ - I don’t believe that there is any good career move or bad career move. I believe there are only the things that make me happy.
+ - I’m as American as Chevrolet.
+ - The people who can be helping to make movies that have blacks and Latinos and women and all that – that movie doesn’t come to you. Because the idea is that there’s no place for black movies.
+ - If there wasn’t something called acting, they would probably hospitalize people like me.
+ - Actors have no color. That’s the art form.
+ - I dig being a mother...
+ - The Africans know I’m not an African. I’m an American.
+ - We’re born with success. It is only others who point out our failures, and what they attribute to us as failure.
+ - If every American donated five hours a week, it would equal the labor of twenty million full-time volunteers.
+ - If you get a little gassy, you’ve got to let it go. So people used to say to me, ‘You’re like a whoopee cushion.’
+ - All I really want to do is just keep acting, and some of it will stink, and some of it will be really good, and maybe when I’m 85 and presenting an Oscar like Bette Davis did, I can look back and say, ‘It was okay, I did all right.’
+ - It bums me out tremendously what the church has become, and if it’s got me bummed, imagine what Jesus Christ must be feeling.
+ - I’m fighting the label of ‘Black’ actress simply because it’s very limiting in people’s eyes, especially people who are making movies.
+ - I’m a big old egotistical baby and that’s okay. I can accept it.
+ - I want Carl Sagan to explain the sky to me.
+ - Most of all, I dislike this idea nowadays that if you’re a black person in America, then you must be called African-American. Listen, I’ve visited Africa, and I’ve got news for everyone: I’m not an African.
+ - There are times when I haven’t been proud of America or really proud. But there have been times that I’ve been incredibly proud of the country.
+ - I always wore sneakers when I wanted to. It was always about being comfortable and being myself.
+ - We’re dealing with old issues that aren’t ours. We carry them and we pass them on to those who come after us. I am hoping to crack some of those.
+ - When I was doing ensemble theater and comedy work, I felt I had some talents. But when I started doing my shows in Berkeley and found that I could be funny on my own, I was shocked.
+ - Did you know that we are the only people in the United States who have to have their voting rights okayed every couple of years?
+ - I eat eight bags of chips in one sitting, and then nothing for a day or two. I learned that my body thought it was starving, so it would hold on to fat.
+ - Who amongst us doesn’t want to be a hero?
+ - If you read to me I could tell you everything that was read. They didn’t know what it was. They knew I wasn’t lazy, but what was it?
+ - I have the strangest time to get cast in anything. ‘Ghost’ was the same thing. Six months I had to wait for them to decide they had seen everybody possible. Why not? What limits me? I’m black? Oh, am I black?
+ - Things happen to you out of luck, and if you get to stick around it’s because you’re talented.
+ - If I was doing a talk show, I would do the kind of show that comes on just once a month, with amazing guests.
+ - You’ve got to vote for someone. It’s a shame, but it’s got to be done.
+ - You don’t want to think something might be racist, but it might be, because your gut is telling you it is.
+ - Everything for me is visual. That’s just how my head works.
+ - For some reason, all artists have self-esteem issues.
+
+73 quotes

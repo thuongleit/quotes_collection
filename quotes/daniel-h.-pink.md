@@ -1,0 +1,68 @@
+ - Control leads to compliance; autonomy leads to engagement.
+ - The three things that motivate creative people – autonomy, mastery, purpose!
+ - Empathy is about standing in someone else’s shoes, feeling with his or her heart, seeing with his or her eyes. Not only is empathy hard to outsource and automate, but it makes the world a better place.
+ - Intrinsic motivation is conducive to creativity; controlling extrinsic motivation is detrimental to creativity.
+ - Asking “Why?” can lead to understanding. Asking “Why not?” can lead to breakthroughs.
+ - Money can extinguish intrinsic motivation, diminish performance, crush creativity, encourage unethical behavior, foster short-term thinking, and become addictive.
+ - The future belongs to a very different kind of person with a very different kind of mind – creators and empathizers, pattern recognizers and meaning makers.
+ - All of us want to be part of something bigger than ourselves, something that matters.
+ - Symphony is the ability to see the big picture, connect the dots, combine disparate things into something new. Visual artists in particular are good at seeing how the pieces come together. I experienced this myself by trying to learn to draw.
+ - Greatness and nearsightedness are incompatible. Meaningful achievement depends on lifting one’s sights and pushing toward the horizon.
+ - One of the best predictors of ultimate success in either sales or non – sales selling isn’t natural talent or even industry expertise, but how you explain your failures and rejections.
+ - For artists, scientists, inventors, schoolchildren, and the rest of us, intrinsic motivation-the drive to do something because it is interesting, challenging, and absorbing-is essential for high levels of creativity.
+ - One aspect of play is the importance of laughter, which has physiological and psychological benefits. Did you know that there are thousands of laughter clubs around the world? People get together and laugh for no reason at all!
+ - What’s important now are the characteristics of the brain’s right hemisphere: artistry, empathy, inventiveness, big-picture thinking. These skills have become first among equals in a whole range of business fields.
+ - Harness the power of peers.
+ - The future belongs to a different kind of person with a different kind of mind: artists, inventors, storytellers-creative and holistic ‘right-brain’ thinkers whose abilities mark the fault line between who gets ahead and who doesn’t.
+ - The ability to take another perspective has become one of the keys to both sales and non-sales selling. And the social science research on perspective-taking yields some important lessons for all of us.
+ - Goals may cause systematic problems for organizations due to narrowed focus, unethical behavior, increased risk taking, decreased cooperation, and decreased intrinsic motivation. Use care when applying goals in your organization.
+ - When the reward is the activity itself – deepening learning, delighting customers, doing one’s best – there are no shortcuts.
+ - I don’t think it’s a Western thing to really talk about intrinsic motivation and the drive for autonomy, mastery and purpose. You have to not be struggling for survival. For people who don’t know where their next meal is coming, notions of finding inner motivation are comical.
+ - Large companies are not going to disappear. Multinational companies with tens of thousands of employees are not going to disappear. In fact, many of them are getting larger because they can benefit from economies of scale.
+ - Anytime you’re tempted to upsell someone else, stop what you’re doing and upserve instead.
+ - The teacher showed us how to see proportions, relationships, light and shadow, negative space, and space between space – something I never noticed before! In one week, I went from not knowing how to draw to sketching a detailed portrait. It literally changed the way I see things...
+ - The right brain is finally being taken seriously.
+ - In many professions, what used to matter most were abilities associated with the left side of the brain: linear, sequential, spreadsheet kind of faculties. Those still matter, but they’re not enough.
+ - Today it’s economically crucial and personally rewarding to create something that is also beautiful, whimsical, or emotionally engaging.
+ - Were born to be players, not pawns.
+ - Rewards can deliver a short-term boost – just as a jolt of caffeine can keep you cranking for a few more hours. But the effect wears off – and, worse, can reduce a person’s longer-term motivation to continue the project.
+ - For many of us, the opposite of talking isn’t listening. It’s waiting. When others speak, we typically divide our attention between what they’re saying now and what we’re going to say next – and end up doing a mediocre job at both.
+ - The monkeys solved the puzzle simply because they found it gratifying to solve puzzles. They enjoyed it. The joy of the task was its own reward.
+ - Human beings have an innate inner drive to be autonomous, self-determined, and connected to one another. And when that drive is liberated, people achieve more and live richer lives.
+ - To sell well is to convince someone else to part with resources – not to deprive that person, but to leave him better off in the end.
+ - If you create something, whether it’s a painting or a company, I think if you care about it, you have some obligation to go out and tell people about it.
+ - Questions are often more effective than statements in moving others. Or to put it more appropriately, since the research shows that when the facts are on your side, questions are more persuasive than statements, don’t you think you should be pitching more with questions?
+ - Especially for fostering creative, conceptual work, the best way to use money as a motivator is to take the issue of money off the table so people concentrate on the work.
+ - The ultimate freedom for creative groups is the freedom to experiment with new ideas.
+ - A lot of white-collar work requires less of the routine, rule-based, what we might call algorithmic set of capabilities, and more of the harder-to-outsource, harder-to-automate, non-routine, creative, juristic – as the scholars call it – abilities.
+ - Carry a notebook and write down examples of good and poor design. After a week, you’ll begin to realize that nearly everything is the product of a design decision.
+ - Create some psychological space between you and your project by imagining you’re doing it for someone else or contemplating what advice you’d give to another person in your predicament.
+ - In large organizations there are discrete functions. I do this; you do that. I swim in my lane; you swim in your lane. That can be very effective for certain processes and in certain stable conditions. But it doesn’t work in unstable conditions.
+ - Human beings are natural mimickers. The more youre conscious of the other sides posture, mannerisms, and word choices – and the more you subtly reflect those back – the more accurate youll be at taking their perspective.
+ - I tend to pull nuggets out of many books – rather than having a handful of books that serve as guiding lights.
+ - What do artists do? Artists give people something they didn’t know they were missing: a dance, a piece of music, a painting, a piece of sculpture. Catering to that need is the best business strategy.
+ - I happen to be extremely left-brained; my instinct is to draw a chart rather than a picture. I’m trying to get my right-brain muscles into shape. I actually think this shift toward right-brain abilities has the potential to make us both better off and better in a deeper sense.
+ - Most of what we know about sales comes from a world of information asymmetry, where for a very long time sellers had more information than buyers. That meant sellers could hoodwink buyers, especially if buyers did not have a lot of choices or a way to talk back.
+ - The misuse of extrinsic rewards, so common in business, impedes creativity, stifles personal satisfaction and turns play into work.
+ - Tens of millions of people have iPods, whereas eight years ago, they didn’t know they were missing them.
+ - Financial firms are sending their back-office jobs overseas. But what do fine artists do? They create something new, unexpected, and delightful that changes the world. MFA abilities are harder to outsource and more important in an abundant world.
+ - Experimentalists never know when their work is finished.
+ - The problem with making an extrinsic reward the only destination that matters is that some people will choose the quickest route there, even if it means taking the low road. Indeed, most of the scandals and misbehavior that have seemed endemic to modern life involve shortcuts.
+ - I think the more important task for a young person than developing a personal brand is figuring out what she’s great at, what she loves to do, and how she can use that to leave an imprint in the world. Those are tough questions, but essential ones. Answer those – and the personal brand follows.
+ - A lot of times when you have very short-term goals with a high payoff, nasty things can happen. In particular, a lot of people will take the low road there. They’ll become myopic. They’ll crowd out the longer-term interests of the organization or even of themselves.
+ - Wikipedia represents a belief in the supremacy of reason and goodness of others.
+ - In economic terms, we’ve always thought of work as a disutility – as something you do to get something else. Now it’s increasingly a utility – something that’s valuable and worthy in its own right.
+ - We live in a world of breathtaking material plenty. That has freed hundreds of millions of people from day-to-day struggles and liberated us to pursue more significant desires: purpose, transcendence, and spiritual fulfillment.
+ - It’s a question we all ask ourselves. What have we done lately? It rattles us each birthday.
+ - Typically, if you reward something, you get more of it. You punish something, you get less of it. And our businesses have been built for the last 150 years very much on that kind of motivational scheme.
+ - The ultimate pitch for an era of short attention spans begins with a single word – and doesn’t go any further.
+ - Studying design has made me a much, much more astute observer of this aspect of business. And I’m working mightily to improve my empathic skills. I’ve dramatically improved my ability to read facial expressions – and I’m trying to be a better, more attentive listener.
+ - I think people get satisfaction from living for a cause that’s greater than themselves. They want to leave an imprint. By writing books, I’m trying to do that in a modest way.
+ - You know, I’m not a huge fan of the concept of ‘passion’ when it comes to careers. Instead of trying to answer the daunting question of ‘What’s your passion?’ it’s better simply to watch what you do when you’ve got time of your own and nobody’s looking.
+ - My generation’s parents told their children, ‘Become an accountant, a lawyer, or an engineer; that will give you a solid foothold in the middle class.’ But these jobs are now being sent overseas. So in order to make it today, you have to do work that’s hard to outsource, hard to automate.
+ - There’s an idea out there that salespeople have actually been obliterated by the Internet, which is just not supported by the facts.
+ - Do what you can’t and experience the beauty of the mistakes you make.
+ - In the past thirty years we have learned more about the workings of the human brain than in all of previous history.
+ - Now it’s easy for someone to set up a storefront and reach the entire world in very modest ways. So these technologies that we thought would dis-intermediate traditional sellers gave more people the tools to be sellers. It also changed the balance of power between sellers and buyers.
+
+66 quotes

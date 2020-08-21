@@ -1,0 +1,25 @@
+ - A new baby is like the beginning of all things – wonder, hope, a dream of possibilities.
+ - When we truly care for ourselves, it becomes possible to care far more profoundly about other people.
+ - When we cannot bear to be alone, it means we do not properly value the only companion we will have from birth to death-ourselves.
+ - Psychotherapy can be one of the greatest and most rewarding adventures, it can bring with it the deepest feelings of personal worth, of purpose and richness in living.
+ - A baby is like the beginning of all things: wonder, hope a dream of possibilities. In a world that is cutting down its trees to build highways, losing its earth to concrete, babies are almost the only remaining link in nature, with the natural world of living things from which we spring.
+ - A child can live with anything as long as he or she is told the truth and is allowed to share with loved ones the natural feelings people have when they are suffering.
+ - Education is in danger of becoming a religion based on fear; its doctrine is to compete. Our children are being led to believe that they are doomed to failure in a world which has room only for those at the top.
+ - It is strange but true that although we may have learned all sorts of important facts while raising our own children, when we become grandparents we still tend to forget a whole lot of things we knew.
+ - If I have learned anything in long years of introspection, it is that life requires a price if you want to be as fully alive as you can be. You need courage to pursue the truth of your life and yourself.
+ - All important progress made by the human race has its roots in daydreaming.
+ - Depression occurs when you are not being yourself. You’re probably doing things you don’t want to do.
+ - Our attitudes toward retirement, marriage, recreation, even our feelings about death and dying may make much more of an impression than we realize.
+ - If grandparents want to have a meaningful and constructive role, the first lesson they must learn is that becoming a grandparent is not having a second chance at parenthood!
+ - Every time a child is born, we have another chance.
+ - We have kept our children so busy with “useful” and “improving” activities that we are in danger of raising a generation of young people who are terrified of silence, of being alone with their own thoughts...
+ - One can develop new capacities and strengths with which to meet the natural vicissitudes of living; that one may gain a sense of inner peace through greater self-acceptance, through a more realistic perspective on one’s relationships and experiences.
+ - In all our efforts to provide advantages we have actually produced the busiest, most competitive, highly pressured and over-organized generation of youngsters in our history and possibly the unhappiest.
+ - Anxiety checks learning. A feeling of well being and respect stimulates an alert mind.
+ - If you are a parent it helps if you are a grown-up.
+ - Until every individual feels personally responsible for the careful planning and the preservation of natural resources, the inexorable destruction will go on.
+ - Although there are real hazards in saying yes to life, they are inconsequential when compared to the regrets that come with saying “no”.
+ - We all wanted babies – but did any of us want children?
+ - Excellence in life seems to me to be the way in which each human being makes the most of the adventure of living and becomes most truly and deeply himself, fulfilling his own nature in the context of a good life with other people.
+
+23 quotes

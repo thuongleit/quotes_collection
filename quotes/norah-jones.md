@@ -1,0 +1,99 @@
+ - If I were a painter I would paint my reverie If that’s the only way for you to be with me.
+ - My mom and I have always been very close. She is my best friend. She had to make a lot of sacrifices early on in my life to make sure I got to do what I wanted to do.
+ - I’ve always loved to read. But sometimes I go for a year without reading, because I forget to.
+ - Success and the art of making music are two different things for me.
+ - I’m not melancholy; I’m a happy-go-lucky person, kind of silly. I like funny things. I have a lot of energy. I tend to like music that’s mellow, though.
+ - Don’t go chasing after butterflies, when everything you want is right by your side.
+ - If I make a record I love, then somebody will like it. Maybe not everybody, but that won’t matter.
+ - I got stood up by the letter Y, he was hanging around with his X.
+ - I’ve learned now to talk, act or walk famous. I can still walk around New York, without being molested or bothered. I don’t mind autographs – that’s part of it. I just do not see the point of being “out there” or behaving outrageously. It will bring nothing but trouble.
+ - When something’s ending, you go through so many phases, and it can be frustrating. But once you’re out on the other side, it’s like you can really see all the crazy phases you went through.
+ - I don’t try to sound like anyone but me anymore. If something is out of my element, I try to avoid it.
+ - It’s important to keep indie record stores alive because their unique environments introduce music lovers to things in a very personal way.
+ - I think it’s important for people who love music to retain physical CDs or even vinyl, because it sounds so great and so much warmer than music over the internet.
+ - I love my dad and we have a very good relationship now.
+ - Your limitations create your sound.
+ - A lot of pop people out there are cool, but they overdo it.
+ - You would never catch me in a miniskirt.
+ - I could do without ‘cool’ publications calling me ‘mom jazz.’ But I laughed all the way to the bank, baby.
+ - I love film, and I would love to be a part of something that people universally love as a piece of film. Sure. Of course I would. And I would love to take acting lessons, and see that side of it someday. But I’m a musician.
+ - I’m in total control. I write the songs, decide what to sing and how to sing. I even control the recording process. But, with a film, there is no control at all.
+ - Without a piano I don’t know how to stand, don’t know what to do with my hands.
+ - A song will keep going round in my brain and keep me awake.
+ - When I moved to New York, I fell head over heels back into country music and probably ’cause I missed something about Texas.
+ - I love eggs so much. I feel like my day hasn’t started until I’ve had eggs. I’m probably gonna die from high cholesterol!
+ - Nobody can tell you you’re wrong for writing a song about how you feel – even if you don’t really feel that way.
+ - I don’t think it’s a bad thing to share how you feel, especially if people can relate to it.
+ - Maybe I’m genetically more inclined to music – but the music I make is so far removed from Indian classical music. I grew up in Texas!
+ - I think singing comes most naturally for me. Because it’s part of your body – it’s a natural thing. You can practice all you want but it’s part of your body.
+ - I like barbecuing because it’s easy.
+ - For me making music is part social, part interaction, part collaboration.
+ - I hope there are some audiophiles still out there.
+ - There are absolutely no problems between me, my dad and my sister. Obviously I grew up with just my mum, but my relationship with my dad is just fine.
+ - I genuinely don’t feel that anything that’s been written or said about me has overshadowed my music, and that’s the most important thing as far as I’m concerned.
+ - I should have a therapist. I have plenty to therapise about.
+ - Breaking up is just hard, even if you’re the one breaking up. It’s not fun. It can be dramatic and complicated. And then you get a little distance and you think, why did it have to be so complicated and dramatic?
+ - I feel like I’ve been lucky, because I don’t feel like I’ve ever tried to be somebody I’m not. People might disagree.
+ - I really love things with melody.
+ - I’m not a very dark person.
+ - I used to be a jazz snob, believe it or not. I sort of turned my nose up at anything more commercial.
+ - I’d done recordings, little demos, since I was in college, which I used to get gigs. But I never thought I’d have a record label.
+ - I want to check the record books and see how many fathers and daughters have won Grammys together.
+ - A lot of my music is slow and subtle. The subtly is what I enjoy about making music.
+ - I make a good fried chicken.
+ - You know, when you have a father who’s pretty well known but you don’t see him, the last thing you want to do is start talking about him all the time to people.
+ - God bless Ray Charles. It was such an honor to meet him and sing with him and actually just to watch him sing from just two feet away.
+ - People think I’m really melancholy and romantic and all whispery. I’m not at all. I’m very direct.
+ - A record is just a snapshot of where you are at any time.
+ - I don’t think I’m a great songwriter, but I think I’ve learned a lot about it, and I don’t think there’s any one way to do it. I don’t think I can control it at all. I can just kind of hope that it happens.
+ - Songs are about whatever you want them to be about. For me it might mean something completely different than what it means to you. So I’d say it’s about whatever the listener thinks it’s about.
+ - I like songs with a lot of heart and feeling and subtlety.
+ - The coolest thing I’ve gotten to do in the past few years is guest star on Sesame Street.
+ - For me, there’s a fine line between being a cheeseball and being a good performer.
+ - All is fair in love and songwriting.
+ - I didn’t think it was fair to my music to label me as the daughter of somebody – I didn’t think it described me very well and I didn’t think it had anything to do with my music.
+ - It’s true, there’s a lot of melancholy in my music. I don’t know why, I’m not a melancholy person. I’ve always been drawn to it. Ever since I was a kid, if I had an album I would play the ballads on repeat.
+ - My first two records are so simply constructed. The reason isn’t because I wanted to make simple music. It’s because I don’t really have the chops.
+ - Anyone can look pretty with hair and make-up.
+ - There was an enormous amount of pressure when my first album took off, and I struggled with the speed of everything and the exhaustion from the constant touring.
+ - During my first photo shoot, I was unhappy because they put so much makeup on me and straightened my hair. I’ve been stubborn ever since.
+ - It’s hard for me to pry with people I know.
+ - Making records is fun. It’s not some big statement. You’re allowed to make mistakes.
+ - I’m ballsy. Well, sometimes I’m ballsy.
+ - It’s fun to peek into other people’s worlds and see how they go about doing things.
+ - I’m a musician because I love it and it’s supposed to be fun.
+ - If you’re a female and you get asked by someone who shoots the most beautiful female scenes to be in their film, it’s kind of exciting.
+ - Designers send me clothes I wouldn’t feel comfortable wearing.
+ - There’s a lot of personal stuff that can go into songwriting but there’s also a lot of dramatization and fictionalization. You have to do that to make a good song.
+ - I’m not planning to jump off a bridge with no bungee.
+ - Nobody was listening when I learned how to play music. But there’s something about being on stage, talking to the audience, looking at them and smiling, that’s always been difficult for me. I’m a lot more comfortable now, but there are still moments of awkwardness.
+ - I just want to make my music, and I want it to stand on its own.
+ - I don’t like shopping, and I like my clothes to be comfortable.
+ - For a young artist to really make it and make money is a lot more difficult these days.
+ - I like records that flow really well and you don’t have to skip around because there’s lot of different jumps.
+ - I try to just make music that I love, and if I believe in it that’s all that matters.
+ - I don’t actually have a lot of discipline. I’ve worked hard at music. But I feel like you know, I felt like kind of natural at it. I always had a knack for it.
+ - I’ve been told the weirdest things: ‘Yeah, I love taking a bath to your music!’ or ‘I gave birth to my daughter while listening to your music.’
+ - On the first album I was saying, that’s just one part of me. And then I was thinking, well, am I going to hide the rest of me now just because I’m afraid of something? No. I’m just going to be myself.
+ - I like to be in control of things.
+ - In college I had a weekend gig at a restaurant, a solo thing that was the best practice I could have ever had. That’s where I learned to coordinate my singing and my piano playing.
+ - I wasn’t a trained Mickey Mouse club performer. I played in jazz clubs and restaurants.
+ - I just want to keep making music, recording and trying different things. I don’t want to do the same thing all the time.
+ - Songwriting is something I really need to work on. I don’t have very many songs but I really love it. I would love to be a great song writer some day.
+ - I’m not going to play lead guitar in a concert hall full of people, because I’m going to mess up a lot.
+ - I like my life. I like my friends. I don’t want to go anywhere else.
+ - I’m always going to do that – record and make music.
+ - I’m not trying to conquer Hollywood. I love my day job.
+ - The pop world is cool, but I never really thought of myself as part of it or wanting to be a part of it because I’m on a label that’s not really like that. They’re not trying to dress me up, they’re not trying to do things like that. I feel like I’m sort of separate from that, actually.
+ - I had very modest expectations when I first moved to New York. I didn’t even expect to get a record deal.
+ - I wasn’t very aware of pop music because I attended an arts school. For me, it was all about jazz.
+ - I always try to do something different. I don’t think I’ve made the same record over and over.
+ - I feel like all the songs are little scenes, different angles, of the feelings that come around something ending.
+ - Everyone in my high school was a bit nerdy. We didn’t even have a football team.
+ - I became a musician so I wouldn’t have to get up at 6 in the morning.
+ - I would love to make a real jazz album someday because I never have. But that’s something I’m not in a rush to do.
+ - I don’t want to be the next big anything. I just want to play for people and that’s it.
+ - Sometimes when you’re trying to do a record too close to home, you can get really distracted.
+ - Coffee gives me bad breath.
+
+97 quotes

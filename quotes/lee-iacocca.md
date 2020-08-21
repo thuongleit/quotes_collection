@@ -1,0 +1,110 @@
+ - The speed of the boss is the speed of the team.
+ - So what do we do? Anything. Something. So long as we just don’t sit there. If we screw it up, start over. Try something else. If we wait until we’ve satisfied all the uncertainties, it may be too late.
+ - The right decision is the wrong decision if it’s made too late.
+ - You can have brilliant ideas, but if you can’t get them across, your ideas won’t get you anywhere.
+ - No matter what you’ve done for yourself or for humanity, if you can’t look back on having given love and attention to your own family, what have you really accomplished?
+ - Management is nothing more than motivating other people.
+ - Don’t just stand there; make something happen.
+ - In a completely rational society, the best of us would aspire to be teachers and the rest of us would have to settle for something less, because passing civilization along from one generation to the next ought to be the highest honor and the highest responsibility anyone could have.
+ - The discipline of writing something down is the first step toward making it happen.
+ - Apply yourself. Get all the education you can, but then, by God, do something. Don’t just stand there, make it happen.
+ - Motivation is everything. You can do the work of two people, but you can’t be two people. Instead, you have to inspire the next guy down the line and get him to inspire his people.
+ - In the end, all business operations can be reduced to three words: people, product, and profits.
+ - If you want to make good use of your time, you’ve got to know what’s most important and then give it all you’ve got.
+ - If we wait until we’ve satisfied all the uncertainties, it may be too late.
+ - Your legacy should be that you made it better than it was when you got it.
+ - The only rock I know that stays steady, the only institution I know that works, is the family.
+ - The ability to concentrate and to use your time well is everything if you want to succeed in business – or almost anywhere else for that matter.
+ - I hire people brighter than me and then I get out of their way.
+ - Be creative. Use unconventional thinking. And have the guts to carry it out.
+ - When the product is right, you don’t have to be a great marketer.
+ - The affections are like lightning: you cannot tell where they will strike till they have fallen.
+ - Leadership means setting an example. When you find yourself in a position of leadership, people follow your every move.
+ - The one word that makes a good manager – decisiveness.
+ - Any supervisor worth his salt would rather deal with people who attempt too much than with those who try too little.
+ - To solve big problems you have to be willing to do unpopular things.
+ - There’s no great mystery to satisfying your customers. Build them a quality product and treat them with respect. It’s that simple.
+ - The great issues facing us today are not Republican issues or Democratic issues. The political parties can debate the means, but both parties must embrace the end objective, which is to make America great again.
+ - Mistakes are a part of life; you can’t avoid them. All you can hope is that they won’t be too expensive and that you don’t make the same mistake twice.
+ - If we screw it up, start over. Try something else.
+ - The most successful businessman is the man who holds onto the old just as long as it is good, and grabs the new just as soon as it is better.
+ - There is no substitute for accurate knowledge. Know yourself, know your business, know your men.
+ - Every business and every product has risks. You can’t get around it.
+ - I forgot to shake hands and be friendly. It was an important lesson about leadership.
+ - If you own up to your mistakes, you don’t suffer as much. But that’s a tough lesson to learn.
+ - In a corporation, there can only be one guy in the end: the CEO.
+ - A country’s competitiveness starts not on the factory floor or in the engineering lab. It starts in the classroom.
+ - Formal learning can teach you a great deal, but many of the essential skills in life are the ones you have to develop on your own.
+ - I learned about the strength you can get from a close family life. I learned to keep going, even in bad times. I learned not to despair, even when my world was falling apart. I learned that there are no free lunches. And I learned the value of hard work.
+ - The thing that lies at the foundation of positive change, the way I see it, is service to a fellow human being.
+ - To succeed today, you have to set priorities, decide what you stand for.
+ - If you set a good example you need not worry about setting rules.
+ - You, my friend, alone are equal to a hundred of such friends. Happy Birthday to you.
+ - In times of great stress or adversity, it’s always best to keep busy, to plow your anger and your energy into something positive.
+ - Life can be difficult for kids born with a gold spoon in their mouth, because they never really get to find out if they’re able to work hard and make it on their own.
+ - MBAs know everything but understand nothing.
+ - I always go back to Harry Truman: Should we drop an atomic bomb to save 100,000 lives? That’s a hell of a decision to make. Did he make that decision by himself? No, he had advisers.
+ - As you go through life, there are thousands of little forks in the road, and there are a few really big forks-those moments of reckoning, moments of truth.
+ - I’m still not sure what is meant by good fortune and success. I know fame and power are for the birds. But then life suddenly comes into focus for me. And, ah, there stand my kids.
+ - We’ve got to pause and ask ourselves: How much clean air do we need?
+ - Never rest on your oars as a boss. If you do, the whole company starts sinking.
+ - Start with good people, lay out the rules, communicate with your employees, motivate them and reward them. If you do all those things effectively, you can’t miss.
+ - There’s a world of difference between a strong ego, which is essential, and a large ego-which can be destructive.
+ - The ability to concentrate and to use time well is everything.
+ - I have found that being honest is the best technique I can use. Right up front, tell people what you’re trying to accomplish and what you’re willing to sacrifice to accomplish it.
+ - A major reason capable people fail to advance is that they don’t work well with their colleagues.
+ - Here’s what management is about: Pick good people and set the right priorities.
+ - What is it that you like doing? If you don’t like it, get out of it, because you’ll be lousy at it.
+ - My father used to say, ‘You can spend a lot of time making money. The tough time comes when you have to give it away properly.’ How to give something back, that’s the tough part in life.
+ - If I Had To Sum Up In One Word The Qualities That Make Up A Good Manager, I’d Say Decisiveness.
+ - People want economy, and they’ll pay any price to get it.
+ - If a guy is over 25 percent jerk, he’s in trouble. And Henry was 95 percent.
+ - The kind of people I look for to fill top management spots are the eager beavers, the mavericks. These are the guys who try to do more than they’re expected to do – they always reach.
+ - Listening can make the difference between a mediocre organization and a great one.
+ - I guess that’s one achievement I’m really proud of. Saving Chrysler was more than jobs, more than shareholder value. Saving Chrysler was a good idea for the whole country.
+ - That’s the American way. If little kids don’t aspire to make money like I did, what the hell good is this country?
+ - I don’t need a $100 million mistake. Try to make a $5 million mistake if you have to make one.
+ - Thanks to properly selecting the clients you will not be unnecessarily wasting time.
+ - Bad times are indelible. They stay with you forever.
+ - Why is our free-enterprise system so strong?- Not because it stands still, frozen in the past, but because it has always adapted to changing realities.
+ - We load up on oat bran in the morning so we’ll live forever. Then we spend the rest of the day living like there’s no tomorrow.
+ - I was at Ford for 32 years. I went to Chrysler in 1978, four or five months after I got canned by Henry Ford.
+ - Incompetency begets incompetency. The last thing a guy who isn’t sure of himself wants is a guy backing him up who is sure of himself.
+ - Business, after all, is nothing more than a bunch of human relationships.
+ - In the great undertakings, there is glory, even in failure.
+ - If you make believe that ten guys in pin-striped suits are back in a kindergarten class playing with building blocks, you’ll get a rough picture of what life in a corporation is like.
+ - They’ve got about as many lawyers as we have sumo-wrestlers.
+ - If I had to sum up in a word what makes a good manager, I’d say decisiveness. You can use the fanciest computers to gather the numbers, but in the end you have to set a timetable and act.
+ - I only wish I could find an institute that teaches people how to listen. Business people need to listen at least as much as they need to talk. Too many people fail to realize that real communication goes in both directions.
+ - Styling cars sells cars and safety does not.
+ - Greenmail, in case you’re wondering, is when a company pays a raider a premium for his holdings-if he’ll go away. What I think it really is is blackmail in a pin-striped suit.
+ - There are times when even the best manager is like the little boy with the big dog, waiting to see where the dog wants to go so he can take him there.
+ - The cement in our whole democracy today is the worker who makes $ 15 an hour. He’s the guy who will buy a house and a car and a refrigerator. He’s the oil in the engine.
+ - The only mistake I ever made was not listening to my gut.
+ - I was fortunate to get a scholarship when I went to Lehigh University and Princeton. They were both wonderful schools. Somebody was kind enough to spend their money to educate people that they would never get to know. That’s what I think philanthropy is about.
+ - I was good friends with Frank Sinatra, I heard Steve Kaufman painting his portrait, so I asked Steve to paint my portrait.
+ - Are we going to be a services power? The double-cheeseburger-hold-the-mayo kings of the world?
+ - I’ve got to get stop getting fired like this. People will start to think I’m a drifter.
+ - A guy named Charlie Beacham was my first mentor at Ford. He taught me the importance of the dealers, and he rubbed my nose in the retail business.
+ - The primary skill of a manager consists of knowing how to make assignments and picking the right people to carry out those assignments.
+ - I’d really love to meet the guy I’m supposed to be. I’d hire him in a second.
+ - I learned that monthly payments are the cornerstone of everything in the automobile business.
+ - Most people are looking for security, a nice, safe, prosperous future. And there’s nothing wrong with that. It’s called the American Dream.
+ - Here’s what we should be doing. We’ve got to get off fossil fuels.
+ - You can’t have a country or a city or a state that’s worth a damn unluss you govern within yourself in your day-to-day life.
+ - It was emotional when Chrysler sold out to the Germans.
+ - I’m sometimes described as a flamboyant leader and a hip-shooter, a fly-by-the-seat-of-the-pants operator. But if that were true, I could never have been successful in this business.
+ - In the old days, if a neighbors apples fell into your yard, you worked it out over the back fence or picked them up and made pies. Today, you sue.
+ - In business, I loved cars. I couldn’t wait to get to work in the morning. Only in America can you decide to get a good education and pursue what you like.
+ - Every little kid wants to grow up to be a cowboy, and I did.
+ - I guess I invented extended warranties, because that’s all we had to sell at Chrysler in those days.
+ - Chrysler builds great cars.
+ - My father always used to say that when you die, if you’ve got five real friends, then you’ve had a great life.
+ - The trick is to make sure you don’t die waiting for prosperity to come.
+ - I have always found that if I move with seventy-five percent or more of the facts that I usually never regret it. It’s the guys who wait to have everything perfect that drive you crazy.
+ - We at Chrysler borrow money the old-fashioned way. We pay it back.
+ - One of the things the government can’t do is run anything. The only things our government runs are the post office and the railroads, and both of them are bankrupt.
+ - A good deal is a state of mind.
+ - No matter how I’m doing financially, the Depression has never disappeared from my consciousness. To this day, I hate waste. When neckties went from narrow to wide, I kept all my old ones until the style went back to narrow.
+
+108 quotes

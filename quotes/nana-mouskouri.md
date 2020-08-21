@@ -1,0 +1,29 @@
+ - How you looked was not important. It was what you did and how you did it. Decide to do it and then do it the best way you can.
+ - I do believe that if you haven’t learnt about sadness, you cannot appreciate happiness.
+ - It’s nice to look good, but the most important thing is to be you.
+ - One of the most wonderful memories in my life was when I sang at the Opera House in Sydney. I will never forget that. It is one of the most beautiful Houses I have ever sung in my life.
+ - I have been so lucky to receive so much love from those who enjoy my music, that I feel I have to give as much of it as I can back to children.
+ - I like to cook, but mostly Greek. When I am confused or tired, I think about what I can cook. It takes you away from everything, as you are thinking only of your dish.
+ - I thought it was respectful to each country to sing in their language.
+ - I left the table where there were important people and had lunch with my husband and a few friends. The reception was organised in my honour, so it was rather amusing.
+ - For my convalescence, I had to exercise my voice only with vowels. It is a medical rule after a long loss of voice.
+ - When I was very young I was the ugly duckling. I had a lot of complexes. My sister was wonderful and I was nothing.
+ - Wherever you turn, there is always something wrong with the politicians. They have everything they need to save the world, and they don’t save it.
+ - Every time I would open my mouth to sing, everybody was paying attention to me. It became a habit.
+ - All children are my children.
+ - When I started to work with UNICEF, it was a new way of giving some love and care to the world.
+ - There were wonderful moments when I was singing for the first time in the Olympia Theatre and I was pregnant with my son, which was very, very strange for a singer.
+ - My energy to sing, I get it from my singing. Singing was not a reason to make a living. This is the only thing I wanted to do.
+ - UNICEF has made the most rewarding thing that I have ever done in my life.
+ - When I was singing, everybody liked me.
+ - When you want something very dearly, you make the time.
+ - The idea of the European community is never face a war again.
+ - I was born a singer. I need to do that.
+ - If I was sad or afraid, I would sit in a corner and sing. If I was happy I would jump into the middle of the room and sing. It was how I expressed my emotions.
+ - My friends gave me the first songs which was the first food in my soul for me.
+ - The Berlin Wall go down, that was the most wonderful thing that could happen, absolutely. I celebrated with everybody in Berlin that day when the Wall was down.
+ - With my songs I tried to prove that there is love.
+ - I grew up thinking that singing was my security.
+ - I think sometimes you are born with a song.
+
+27 quotes

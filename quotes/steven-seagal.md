@@ -1,0 +1,38 @@
+ - One must first learn to heal people to be great. To hurt people is easy.
+ - Any great warrior is also a scholar, and a poet, and an artist.
+ - What does it take to change the essence of a man?
+ - I have no fear of death. More important, I don’t fear life.
+ - I’m gonna take you to the bank, Senator Trent. To the blood bank!
+ - My philosophy is that the most important aspect of any religion should be human kindness. And to try to ease the suffering of others. To try to bring light and love into the lives of mankind.
+ - Everybody certainly has the right to defend themselves. That’s not to say that they should defy common sense by avoiding or diffusing confrontation. And that’s very, very important.
+ - Try to find the path of least resistance and use it without harming others. Live with integrity and morality, not only with people but with all beings.
+ - My CIA godfather told me he’d never heard any American speak Japanese so well.
+ - I’ve been a police officer for over 20 years, and I’ve investigated murders and all kinds of different crimes.
+ - People all over the world recognize me as a spiritual leader.
+ - It doesn’t work if the bad guys kill his mother’s uncle’s friend’s neighbor’s pet dog. You’ve got to make the stakes high.
+ - I have six children and I love all my kids more than anything in the world.
+ - As a lifelong practitioner of martial arts, I’m trained to remain calm in the face of adversity and danger.
+ - I’m very into the military and police stuff. Gear and technical gear is something that’s changing every day and every day you’re trying to be on the cutting edge and improve your stuff more and more because your life depends on it. And so, the guns and the gears are changing constantly.
+ - The secret is not to act, but to be.
+ - I was born in Detroit, in an all black neighborhood.
+ - I was born with a serious spiritual consciousness and for many years studied different paths.
+ - One of the reasons why people – particularly young people – love action movies is because what they are really looking for is justice.
+ - There was a time when I thought I was doing a good thing with good guys for a good cause. Looking back, I think I really wanted to be a warrior.
+ - I think people are frustrated in this society, where predators prey upon normal, law-abiding citizens, and you never see justice in the courtroom. In my films, the predators don’t get away with it.
+ - It is a lot harder now to be a police officer than what it used to be.
+ - Most of us have unhealthy thoughts and emotions that have either developed as a result of trauma or hardships in their childhood, or the way they were raised.
+ - I think the more diversity that one has in his life, the happier he can be, as long as he is able to do whatever he chooses to do at that given time well.
+ - I want to be able to work on a project that will give people around the world the chance to represent their own people, their own culture, their own stories, rather than just Hollywood – really, you know, dominated Hollywood. And that’s a dream of mine.
+ - I love getting out on the streets and helping people.
+ - To a police officer, a sawed off shotgun is the ultimate nightmare. You can blow someone in half!
+ - The most important seed I can sow in this life is my children, and the love and knowledge that I can bestow upon them and the help I can give them.
+ - Most of the kids that I meet in the street are serious hardened criminals that I meet in the street, never had a mother and a father to love them, to protect them, to teach them right from wrong and lead them out of crime and gangs and stuff like that.
+ - For a while, I had this uncontrollable urge – this addiction to danger. Now I look back and I think, ‘Gee, what an idiot. I was risking my life just for the sensation of it.’
+ - I myself am a very nonviolent person and only resort to violence when I absolutely have to.
+ - Action films are great, but an action film that has characters that are compelling and a story that people can care about is something even better. We love to see action heroes that are vulnerable, that are sensitive, that are family people, that are accessible.
+ - I think we’re living in a world where society is very difficult.
+ - You just realize that you can’t turn a lefthand corner in a right posture without exposing some part of your body, and so it was really me just noticing the exposure I had, and it made me start doing and practicing the switching.
+ - You can take away the money and the fame. I don’t look at myself as any of those things.
+ - I used to have a gun made every month; I would get another pistol made that I would design. I’m very into the military and police stuff like that.
+
+36 quotes

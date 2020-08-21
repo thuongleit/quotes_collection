@@ -1,0 +1,29 @@
+ - It’s difficult to keep in touch with someone when you’re moving around all the time. I’ve decided that you can have it all, but you can’t have it all, all of the time.
+ - I would rather do many small roles on TV, stage or film than one blockbuster that made me rich but had no acting.
+ - If I don’t believe in a role, I can’t pull it off.
+ - Feminism was a dirty word for a while.
+ - I’m not someone who can lie on a beach and do nothing. I am not sure what you are supposed to do, so I get bored. I prefer to have a purpose, such as going to Alaska to see orca whales.
+ - You cant please all the people all the time.
+ - Insecurity, commonly regarded as a weakness in normal people, is the basic tool of the actor’s trade.
+ - Why did I not stop to have children? I suppose because the opportunity didn’t present itself. Yes, many women feel they are not complete without having children, but I have different creative outlets.
+ - It makes me feel resilient when you tackle different things.
+ - You can have a laugh in Los Angeles, or you can weep in Los Angeles, depending on your attitude towards it.
+ - I wouldn’t want to go back to my 20s; they were pretty angst-laden times.
+ - I like people to be surprised by the turn of events. I don’t want things just to be pat and formulaic. If there’s some sort of internal combustion in the character or a desire to change the way things are going, that makes for conflict, which is the essence of drama.
+ - My phrase has always been that I am looking for the versatility of theatre in film. I think I have been quite lucky in that so far.
+ - I need my friends, I need my house, I need my garden.
+ - London keeps me grounded. We don’t get praised every time we open our gobs there.
+ - I like the personality of the Belgians. They’re deeply eccentric, which is something that comes across in their design – terrific.
+ - In my industry, everybody wants to know everything about you, and its just dumb. I think the only way of maintaining some of that mystique is by not giving away too much about yourself. It has served me well so far. I never want to feel up for grabs.
+ - And there’s no way I’m going to do Dame Edna.
+ - I carry music in my head, so I don’t need more. It drives me nuts that, in hotels or on boats, people seem to think you need music 24 hours a day.
+ - Somebody referred to me as a ringleader, which I wouldn’t have classed myself as, but anyway, there you go.
+ - I’ve never felt stigmatized in my profession, nor have I allowed myself to. I don’t feel either male or female, I feel I am just me, and I should be able to do whatever I like.
+ - My roots are still in Britain, that’s where I live, that’s the place where I come from.
+ - I hope that you walk around the corner and you get very surprised.
+ - I have no idea what my persona would be. As far as I’m concerned, I’m changing all the time.
+ - I don’t necessarily wait for that massive leading role. I want to keep the juices flowing.
+ - It sounds ideal, a sort of beach childhood. But it wasn’t really. I didn’t use the beach very much at all.
+ - For years, I never knowingly went on a holiday. When I travelled, it was for work. Now I am a huge advocate, particularly to places which have amazing wildlife, such as Antarctica, India and Patagonia.
+
+27 quotes

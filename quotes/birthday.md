@@ -1,0 +1,42 @@
+ - Youth has no age. ~~Pablo Picasso
+ - Every year on your birthday, you get a chance to start new. ~~Sammy Hagar
+ - Live as if you were to die tomorrow. Learn as if you were to live forever. ~~Mahatma Gandhi
+ - May you stay Forever Young. ~~Bob Dylan
+ - How old would you be if you didn’t know how old you are? ~~Leroy Satchel Paige
+ - Age is an issue of mind over matter. If you don’t mind, it doesn’t matter. ~~Mark Twain
+ - After all, tomorrow is another day. ~~Margaret Mitchell
+ - Be in love with your life, every detail of it. ~~Jack Kerouac
+ - Count your age by friends, not years. Count your life by smiles, not tears. ~~John Lennon
+ - Nature gives you the face you have at twenty; it is up to you to merit the face you have at fifty. ~~Coco Chanel
+ - Today you are you! That is truer than true! There is no one alive who is you-er than you! ~~Dr. Seuss
+ - Age is whatever you think it is. You are as old as you think you are. ~~Muhammad Ali
+ - Growing old is mandatory; growing up is optional. ~~Chili Davis
+ - An archaeologist is the best husband a woman can have. The older she gets the more interested he is in her. ~~Agatha Christie
+ - We turn not older with years but newer every day. ~~Emily Dickinson
+ - Men are like wine – some turn to vinegar, but the best improve with age. ~~Pope John XXIII
+ - Beautiful young people are accidents of nature, but beautiful old people are works of art. ~~Eleanor Roosevelt
+ - Every age can be enchanting, provided you live within it. ~~Brigitte Bardot
+ - It is not the years in your life that count, it’s the life in your years. ~~Abraham Lincoln
+ - Wrinkles should merely indicate where smiles have been. ~~Mark Twain
+ - A diplomat is a man who always remembers a woman's birthday but never remembers her age. ~~Robert Frost
+ - To keep the heart unwrinkled, to be hopeful, kindly, cheerful, reverent that is to triumph over old age. ~~Thomas Bailey Aldrich
+ - Some people try to turn back their odometers. Not me, I want people to know “why” I look this way. I’ve traveled a long way and some of the roads weren’t paved. ~~Will Rogers
+ - May you live every day of your life. ~~Jonathan Swift
+ - Be happy in the moment, that’s enough. Each moment is all we need, not more. ~~Mother Teresa
+ - If you can give your child only one gift, let it be enthusiasm. ~~Bruce Barton
+ - Whatever with the past has gone, the best is always yet to come. ~~Lucy Larcom
+ - Nobody grows old merely by living a number of years. We grow old by deserting our ideals. Years may wrinkle the skin, but to give up enthusiasm wrinkles the soul. ~~Samuel Ullman
+ - With mirth and laughter let old wrinkles come. ~~William Shakespeare
+ - Come grow old with me. The best is yet to be. ~~William Wordsworth
+ - Aging is not lost youth but a new stage of opportunity and strength. ~~Betty Friedan
+ - I think the person who takes a job in order to live – that is to say, for the money – has turned himself into a slave. ~~Joseph Campbell
+ - At fifty everyone has the face he deserves. ~~George Orwell
+ - I still find each day too short for all the thoughts I want to think, all the walks I want to take, all the books I want to read, and all the friends I want to see. ~~John Burroughs
+ - Very early, I knew that the only object in life was to grow. ~~Margaret Fuller
+ - It is not more surprising to be born twice than once; everything in nature is resurrection. ~~Voltaire
+ - The more you praise and celebrate your life, the more there is in life to celebrate. ~~Oprah Winfrey
+ - In the end, the love you take is equal to the love you make. ~~Paul McCartney
+ - The heyday of woman’s life is the shady side of fifty. ~~Elizabeth Cady Stanton
+ - Just remember, once you’re over the hill you begin to pick up speed. ~~Arthur Schopenhauer
+
+40 quotes

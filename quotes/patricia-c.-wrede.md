@@ -1,0 +1,32 @@
+ - Out here, it’s better safe than sorry, because generally speaking, too much of the time sorry means you’re dead.
+ - You can’t force folks to have good sense, even if they’re family. Maybe especially then.
+ - He wasn’t a medical doctor, just educated all the way up as far as you can get.
+ - May you and your triple cursed wash water turn purple with orange spots and fall down a bottomless pit!
+ - She who laughs last may not invariably laugh best, but she does laugh.
+ - Always be polite to a dragon. It’s harder than it sounds. Dragon etiquette is incredibly complicated, and if you make a mistake, the dragon eats you.
+ - Mendanbar took a deep breath. You could stay here. At the castle, I mean. With me. This wasn’t coming out at all the way he had wanted it to, but it was too late to stop now. He hurried on, As Queen of the Enchanted Forest, if you think you would like that. I would.
+ - Very well. You may help me to exterminate the society of wizards.
+ - Sometimes, though, you have to do things for family, even if you’d rather not.
+ - If you want to build a car, you don’t slap a bunch of iron ore, some sand, a rubber tree, and a couple of cows together and call it good.
+ - Ideas are the easy part. The hard part is writing them down.
+ - Murphy is a writer’s best friend, but you have to keep an eye on him, or he’ll steal the silver.
+ - Sometimes I couldn’t help thinking that the unluckiest thing about being the thirteenth child was having all those older brothers and sisters telling me what to do.
+ - Tell the story you want to tell, and let it be as long as it needs to be. Worry about marketing it later.
+ - Kim was more than a little inclined to snarl at him, but in the past few days she had learned that snarling at Mairelon did little good. He simply smiled and corrected her grammar.
+ - Humility is as good for the soul as it is for the memory.
+ - There is nothing that is quite so reassuring in an awkward situation as knowing that one is well turned-out, and while I hope I am not so fainthearted as to require such stratagems, I am not so foolish as to overlook their value.
+ - Nine times out of ten, talking is a way of avoiding doing things.
+ - One of the things everybody seems to want to ask writers is, “Where do you get your ideas?” When people ask me this, my usual response is, “Ideas are the easy part. The hard part is writing them down.”
+ - Well, of all the bacon-brained, sapskulled, squirish, buffle-headed nodcocks!
+ - I’d much rather have good teeth than have diamonds and roses drop out of my mouth whenever I said something.
+ - It took us most of the morning to put together the letter she sent to the Frontier Management Department, and I learned a lot about how to be frigidly polite and still leave somebody feeling like they’d been spanked.
+ - How can you know it’s the best, if you don’t learn about anything else?
+ - That is certainly one way to look at the matter. There are others.
+ - News of Daniel’s disappearance does not alarm me as it might have done a week ago. Given recent events, very little alarms me as it might have done a week ago. I feel as if my supply of alarm has been exhausted, at least temporarily.
+ - In short, if we wish to see anything sensible done about the situation, we will clearly have to do it ourselves.
+ - He pushed his glasses up on his nose and gave me a sidelong look, the one that meant he was so sure you were wrong that he could just wait and let you find out for yourself the hard way.
+ - She probably enjoys cutting up everyone’s happiness. Not to mention cutting up other parts of people; given her penchant for poisoning people and turning them into beech trees, I fail to see how she has reached thirty without leaving a trail of bodies behind her.
+ - Rennie didn’t quite dare to answer back, but she looked a whole book and a couple of extra chapters.
+ - In a lot of ways I was a generation ahead of my generation; I had a working mother wheneveryone else’s mother was staying at home.
+
+30 quotes

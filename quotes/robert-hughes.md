@@ -1,0 +1,44 @@
+ - Why wait for a call when you have a command?
+ - The greater the artist, the greater the doubt. Perfect confidence is granted to the less talented as a consolation prize.
+ - Confidence is the prize given to the mediocre.
+ - A determined soul will do more with a rusty monkey wrench than a loafer will accomplish with all the tools in a machine shop.
+ - It was the basilica of gossip, the Vatican of inside dope.
+ - One thing is sure: the Sagrada Familia is the first Catholic temple whose bacon was ever saved by Shinto tourism. Not even Gaudi, who believed in miracles, could have forseen that.
+ - Fishing largely consists of not catching fish; failure is as much a part of the sport as knee injuries are of football.
+ - The new job of art is to sit on the wall and get more expensive.
+ - It was van Gogh’s madness that prevented him from working; the paintings themselves are ineffably sane, if sanity is to be defined in terms of exact judgment of ends and means and the power of visual analysis.
+ - What strip mining is to nature the art market has become to culture.
+ - A Gustave Courbet portrait of a trout has more death in it than Rubens could get in a whole Crucifixion.
+ - In art there is no progress, only fluctuations of intensity.
+ - We want to create a sort of linguistic Lourdes, where evil and misfortune are dispelled by a dip in the waters of euphemism.
+ - In the Somme valley, the back of language broke. It could no longer carry its former meanings. World War I changed the life of words and images in art, radically and forever. It brought our culture into the age of mass-produced, industrialized death. This, at first, was indescribable.
+ - There is virtue in virtuosity, especially today, when it protects us from the tedious spectacle of ineptitude.
+ - I have never been against new art as such; some of it is good, much is crap, most is somewhere in between.
+ - There’s no geist like the Zeitgeist.
+ - It was a secular cathedral, dedicated to the rites of travel.
+ - We’ve got a recipe for disaster. It’s huge – this combination of body image issues and the drug’s weight loss appeal.
+ - The hallmark of the minor artist is to be obsessed with style as an end in itself.
+ - But the existence of a cult does not mean that images appropriate to it automatically follow.
+ - The greater the artist, the greater the doubt.
+ - Modernism is the protein of our cultural imagination.
+ - In America, nostalgia for things is apt to set in before they go.
+ - Political stress is always apt to shrink the private arena and attach it on to the public.
+ - It is the nature of carnivores to get power and then, having disposed of their enemies, to deploy the emollient powers of Great Art to make themselves look like herbivores.
+ - One gets tired of the role critics are supposed to have in this culture: It’s like being the piano player in a whorehouse; you don’t have any control over the action going on upstairs.
+ - Most of the time they buy what other people buy. They move in great schools, like bluefish, all identical. There is safety in numbers. If one wants Schnabel, they all want Schnabel, if one buys a Keith Haring, two hundred Keith Harings will be sold.
+ - It is an oldish question, but not perhaps a very interesting one, whether cooking is an art or not.
+ - Drawing never dies, it holds on by the skin of its teeth, because the hunger it satisfies – the desire for an active, investigative, manually vivid relation with the things we see and yearn to know about – is apparently immortal.
+ - No art goes unmediated by other art.
+ - We have entered a period of intolerance which combines, as it sometimes does in America, with a sugary taste for euphemism.
+ - Nothing they design ever gets in the way of a work of art.
+ - Popular in our time, unpopular in his. So runs the stereotype of rejected genius.
+ - Indeed, the idea that doubt can be heroic, if it is locked into a structure as grand as that of the paintings of Cezanne’s old age, is one of the keys to our century. A touchstone of modernity itself.
+ - Now that rates are moving up, we’re seeing more aggressive offerings from banks.
+ - Perhaps the rhinos and she-crocodiles whose gyrations between Mortimer’s and East Hampton gives us our vision of social eminence today are content to entrust their faces to Andy Warhol’s mingily cosmetic Polaroidising, but one would bet they would rather go to Sargent.
+ - Transportation made sublimation literal. It conveyed evil to another world.
+ - America is a construction of mind, not of race or inherited class or ancestral territory.
+ - Why should we expect modernist taste to be any smarter than premodernist or postmodernist?
+ - If you want to be successful in the gym, in the classroom, in college or when you get out and go into the world of work, that is going to be determined by how hard you are willing to work.
+ - What does one prefer? An art that struggles to change the social contract, but fails? Or one that seeks to please and amuse, and succeeds?
+
+42 quotes

@@ -1,0 +1,32 @@
+ - Do you wanna be really really awesome? Just keep watching me.
+ - I think it’s my motivation and my dedication to prove everyone wrong whenever they tell me I can’t do something.
+ - I’m The Miz and I’m awesome!
+ - Now I’m a little hurt. Let me check my tears in the reflection of my championship gold.
+ - You’re right John! I can’t see you! Your movies aren’t in theaters long enough!
+ - In my very first Wrestlemania match, I won. 17 wins from tying the Undertaker. Don’t laugh.
+ - I think all women have some sort of beauty in them.
+ - I don’t like giving or receiving gifts because I don’t like that initial reaction. Although I do enjoy the love and the family aspect of Christmas, and I love eating with my family and friends and reconnecting with them.
+ - You all sound like a bunch of ducks! What? What? What? What? Shut up while I’m talking!
+ - Today I was in the gym benching 400 pounds. A-Ry is my witness to this.
+ - I welcome anyone that wants to come into the WWE and try it, because, I was the type of person that was not welcome with open arms. People didn’t want me to come in because I was from a Reality background. But I’m the first person that says, bring anybody in.
+ - I had Alex Riley out there as well and he’s jumping up and down excited. You know, hugging me and the fans are going nuts and booing me.
+ - It was so cute and she was so shy. Someone told me that Randy Orton went up and hugged her and she wouldn’t let go. It was kind of cute.
+ - I felt myself getting teary eyed. And I was like, ‘Wait a second. You can’t do that. You’re the WWE Champion.’ Then I went out of the ring, Alex Riley was there and we both celebrated together. Feeling his excitement made me feel even more excited.
+ - Alex Riley is a star – he looks like a star, acts like a star. He is a star.
+ - I’m from Cleveland. I like thunderstorms; I like a little rain in my life.
+ - It’s not willing to settle for anything less than success.
+ - Some people said I was annoying, but now look how far we’ve come.
+ - Whenever I do a movie I always like to base my character off of a couple different characters.
+ - I’m actually even thinking of stealing the Walls of Jericho and turning in into the Walls of Miz.
+ - Michael Cole loves me and I love it!
+ - He also knows what king of protein I like, what T-shirts I like, how I like my dry cleaning to be done. He also knows how I like my stuff folded and put away into drawers.
+ - What does Justin Bieber have that I don’t?!
+ - I walked backstage, standing ovation. Everyone was backstage clapping.
+ - I’m the type of person that likes to give people a hard time, and I enjoy doing little pranks. If I see someone getting a little aroused I have to keep pushing that button.
+ - Relax, I’m going to be out there with you.
+ - If he wants some, come – well I don’t wanna say that!
+ - I mean, it blows me away that I have fans or I have people that know me in Iraq that are protecting me.
+ - Alex Riley does a lot of things for me. I teach him so many things.
+ - No, listen to me! Look in my eye. You need to beat Randy Orton.
+
+30 quotes

@@ -1,0 +1,45 @@
+ - Your talent is in your choice.
+ - You will only fail to learn if you do not learn from failing.
+ - Life beats down and crushes the soul and art reminds you that you have one.
+ - The theatre-acting, creating, interpreting – means total involvement, the totality of heart, mind and spirit.
+ - Growth as an actor and as a human being are synonymous.
+ - You act with your soul. That’s why you all want to be actors, because your souls are not used up by life.
+ - The imagination is closer to the actor than real life-more agreeable, more comfortable.
+ - Emotions aren’t doable. Actions are doable, and if you do them correctly, they prompt the feelings.
+ - Don’t use your conscious past. Use your creative imagination to create a past that belongs to your character. I don’t want you to be stuck with your own life. It’s too little.
+ - One way we can enliven the imagination is to push it toward the illogical. We’re not scientists. We don’t always have to make the logical, reasonable leap.
+ - The only excuse for not coming to a class or a performance is death.
+ - You cannot afford to confine your studies to the classroom. The universe and all of history is your classroom.
+ - The word theatre comes from the Greeks. It means the seeing place. It is the place people come to see the truth about life and the social situation.
+ - You’ll never really be great unless you aim high.
+ - To grow: that is your deepest and truest need when you say, ‘I want to be an actor.’
+ - It’s not important to know who you are. It’s important to know what you do, and then to do it like hercules!
+ - An addict is someone who uses their body to tell society that something is wrong.
+ - The play is not in the words, it’s in you!
+ - No actor is a success unless he feels inside himself, as long as he lives, that he is good.
+ - You’ll begin to act when you can forget your technique – when it is so securely inside you that you need not call upon it consciously.
+ - I would live in a communist country providing I was the Queen.
+ - Acting is in everything but the words.
+ - The ideas of the great playwrights are almost always larger than the experiences of even the best actors.
+ - Life is boring. The weather is boring. Actors must not be boring.
+ - In life, as on the stage, it’s not who I am but what I do that’s the measure of my worth and the secret of my success. All the rest is showiness, arrogance and conceit.
+ - The actor has to develop his body. The actor has to work on his voice. But the most important thing the actor has to work on is his mind.
+ - Actors need a kind of aggression, a kind of inner force. Don’t be only one-sided, sweet, nice, good. Get rid of being average. Find the killer in you.
+ - Happy children should not try to be artists. You have to be born with a broken heart and a sense of loneliness inside. I never had a happy moment as a child myself.
+ - Tell yourself that the world is outside, that it’s not to be hidden from you, that you are going to thrust yourself forward and be relaxed in the world. You have chosen a field where you’re going to be hurt to the blood. But to retreat from the pain is death.
+ - Acting can be the healthiest profession in the world, because it allows you to do things you can’t do in real life. It allows you to understand more than just what life provides you.
+ - Life in the theatre isn’t necessarily when you get money from performing. It isn’t when you sign a contract. It isn’t even when you are in a play. It’s when you understand it. If you understand it, you’ll know why you want to act.
+ - Your job as actors is to understand the size of what you say, to understand what’s beneath the word.
+ - If you can’t take both sides, it means you can only play yourself.
+ - The actor must be full of passion. If he’s too cool he’s better off as the manager of a company, not someone who appears on the stage.
+ - By taking elements you observe in life, you can develop qualities in your acting life that you don’t ordinarily call upon in your personal life.
+ - Be innocent, wise and ninety-five.
+ - The best author is a dead author, because he’s out of your way and you own the play. Take what he has given you and use it for what you need.
+ - It’s not enough to have talent. You have to have a talent for your talent.
+ - The ultimate aim of the training is to create an actor who can be responsible for his artistic development and achievement.
+ - You have to do something. If you do something, you become somebody. Even a daffodil does something, has a profession. It gives off scent, professionally.
+ - Our heritage as actors goes back thousands of years, and we have to feel as comfortable in the clothes, and the language of Sophocles as we do in our sneakers.
+ - When you most succeed, you do so by seeming not to act at all.
+ - The most important thing you can teach actors is to understand plays.
+
+43 quotes

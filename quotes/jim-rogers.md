@@ -1,0 +1,54 @@
+ - Buy low and sell high. It’s pretty simple. The problem is knowing what’s low and what’s high.
+ - I just wait until there is money lying in the corner, and all I have to do is go over there and pick it up. I do nothing in the meantime.
+ - My basic advise is don’t lose money.
+ - Most successful investors, in fact, do nothing most of the time.
+ - The last leg of a bull market always ends in hysteria; the last leg of a bear market always ends in panic.
+ - You will never get anywhere if you do not do your homework.
+ - If you want to be lucky, do your homework.
+ - I haven’t met a rich technician.
+ - The first loss is the best loss.
+ - Lady Luck smiles on those who continue their efforts.
+ - Following what everyone else is doing is rarely a way to get rich.
+ - If everyone thinks one way, it is likely to be wrong. If you can figure out that it is wrong, you are likely to make a lot of money.
+ - If you were smart in 1807 you moved to London, if you were smart in 1907 you moved to New York City, and if you are smart in 2007 you move to Asia.
+ - The biggest public fallacy is that the market is always right. The market is nearly always wrong. I can assure you of that.
+ - I was poor once, I didn’t like it, I don’t want to be poor again.
+ - There is no such thing as a paper loss. A paper loss is a very real loss.
+ - Historically, there has been a bull market in commodities every 20 or 30 years.
+ - Never act upon wishful thinking. Act without checking the facts, and chances are that you will be swept away along with the mob.
+ - History shows that people who save and invest grown and prosper, and the others deteriorate and collapse.
+ - If you want to make a lot of money, resist diversification.
+ - Teach your children or your grandchildren Chinese. It is going to be the most important language of their lifetimes.
+ - Beware of all politicians everywhere. They excelled at recess when they were in school but have excelled at little since.
+ - The Federal Reserve was not founded to bail out Bear Stearns or a few hedge funds. It was founded to keep a stable currency and maintain its value.
+ - If anybody laughs at your idea, view it as a sign of potential success!
+ - Debasing your currency sometimes works in the short term, it has never worked in the long term and does not even usually work in the medium term. Lots of politicians like to do it because it is an easy way.
+ - Do not buy the hype from Wall St. and the press that stocks always go up. There are long periods when stocks do nothing and other investments are better.
+ - You can no longer buy commodities at Merrill Lynch. My guess is many analysts and even executives are too young to know how profitable a hot commodities market can be. They will soon.
+ - You don’t train for only the 100-meter dash and you don’t practice only the excerpts. When I prepared for auditions, I spent most of my time each day on scales and exercises to be my best in basic musicianship, and only a half-hour or so on the actual excerpts I’d be playing.
+ - Tough times helped many commodities traders become lean and mean through consolidation, mergers and cost cutting. All that excess supply has been sopped up.
+ - Index investing outperforms active management year after year.
+ - Bottoms in the investment world don’t end with four-year lows; they end with 10- or 15-year lows.
+ - When things go wrong on a macroeconomic level, it’s almost always this way. People find someone to blame, whether it’s blacks, whites, Christians, Jews, Muslims-whoever.
+ - The City of London and Wall Street are not going to be great places to be in the next two or three decades. It’s going to be the people who produce real goods in charge – the farmers and the miners.
+ - The price of a commodity will never go to zero. When you invest in commodities futures, you’re not buying a piece of paper that says you own an intangible piece of company that can go bankrupt.
+ - They wouldn’t be politicians if they knew what they were doing.
+ - If you bail out every investment bank that gets in trouble, that’s not capitalism, that’s socialism for the rich.
+ - Paper money is made of cotton, and I’m long cotton, by the way. One reason I’m long cotton is because Dr. Bernanke is out there running the printing presses as fast as he can.
+ - Most of my thoughts, you couldn’t print.
+ - I don’t think there is a sound UK bank now, at least, if there is one I don’t know about it. The City of London is finished, the financial centre of the world is moving east. All the money is in Asia. Why would it go back to the West? You don’t need London.
+ - Not one country in existence today has had the same borders and government for as long as two hundred years. The world will continue changing.
+ - It’s a lot of fun finding a country that nobody knows about. The only thing better is finding a country everybody’s bullish on and shorting it.
+ - I think this is also a great time to invest in private equity, helping companies grow from the ground up.
+ - Unfortunately politicians are not very sound people or they wouldn’t be politicians.
+ - Get inside information from the president and you will probably lose half of your money. If you get it from the chairman of the board, you will lose all of it.
+ - I don’t think I own any US stocks, if I do its very few, so few I can’t even remember.
+ - I’ve got one shot going through this life. I want to make sure I do as much as I can.
+ - Many investors seem to have forgotten a hard reality: There are frequent periods when stock markets don’t do much.
+ - I cannot invest the way I want the world to be; I have to invest the way the world is.
+ - Right now I own shares of companies in 28 countries.
+ - Commodities tend to zig when the equity markets zag.
+ - If the current birth rate, which is the lowest in the major developed countries, continues, there will be no Japanese. Who will pay the enormous debt?
+ - The most sensible skill that I can give to somebody born in 2003 is a perfect command of Mandarin.
+
+52 quotes

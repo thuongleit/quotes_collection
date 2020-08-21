@@ -1,0 +1,56 @@
+ - Love has no age, no limit; and no death.
+ - Not the least hard thing to bear when they go from us, these quiet friends, is that they carry away with them so many years of our own lives.
+ - Idealism increases in direct proportion to one’s distance from the problem.
+ - It’s not life that counts but the fortitude you bring into it.
+ - By the cigars they smoke, and the composers they love, ye shall know the texture of men’s souls.
+ - If you do not think about the future, you cannot have one.
+ - A man is the sum of his actions, of what he has done, of what he can do, Nothing else.
+ - I am still under the impression that there is nothing alive quite so beautiful as a thoroughbred horse.
+ - Justice is a machine which, when someone has once given it the starting push, rolls on of itself.
+ - Beginnings are always messy.
+ - The value of a sentiment is the amount of sacrifice you are prepared to make for it.
+ - Dreaming is the poetry of Life, and we must be forgiven if we indulge in it a little.
+ - There is one rule for politicians all over the world: Don’t say in Power what you say in opposition; if you do, you only have to carry out what the other fellows have found impossible.
+ - The law is what it is-a majestic edifice, sheltering all of us, each stone of which rests on another.
+ - Life calls the tune, we dance.
+ - Love could never come to full fruition till it was destroyed.
+ - It was such a spring day as breathes into a man an ineffable yearning, a painful sweetness, a longing that makes him stand motionless, looking at the leaves or grass, and fling out his arms to embrace he knows not what.
+ - I drink the wine of aspiration and the drug of illusion. Thus I am never dull.
+ - It is an age of stir and change, a season of new wine and old bottles. Yet, assuredly, in spite of breakages and waste, a wine worth the drinking is all the time being made.
+ - Headlines twice the size of the events.
+ - Memory heaps dead leaves on corpse-like deeds, from under which they do but vaguely offend the sense.
+ - One’s eyes are what one is, one’s mouth is what one becomes.
+ - Only love makes fruitful the soul.
+ - Religion was nearly dead because there was no longer real belief in future life; but something was struggling to take its place – service – social service – the ants creed, the bees creed.
+ - The beginnings and endings of all human undertakings are untidy, the building of a house, the writing of a novel, the demolition of a bridge, and, eminently, the finish of a voyage.
+ - It isn’t enough to love people because they’re good to you, or because in some way or other you’re going to get something by it. We have to love because we love loving.
+ - The French cook; we open tins.
+ - We are all familiar with the argument: Make war dreadful enough, and there will be no war. And we none of us believe it.
+ - Slang is vigorous and apt. Probably most of our vital words were once slang.
+ - We are not living in a private world of our own. Everything we say and do and think has its effect on everything around us.
+ - Early morning does not mince words.
+ - He was afflicted by the thought that where Beauty was, nothing ever ran quite straight, which no doubt, was why so many people looked on it as immoral.
+ - It’s always worth while before you do anything to consider whether it’s going to hurt another person more than is absolutely necessary.
+ - Men are in fact, quite unable to control their own inventions; they at best develop adaptability to the new conditions those inventions create.
+ - The beginnings and endings of all human undertakings are untidy.
+ - Humanism is the creed of those who believe that in the circle of enwrapping mystery, men’s fates are in their own hands – a faith that for modern man is becoming the only possible faith.
+ - Love! Beyond meaure – beyond death – it nearly kills. But one wouldn’t have been without it.
+ - The young man who, at the end of September, 1924, dismounted from a taxicab in South Square, Westminster, was so unobtrusively American that his driver had some hesitation in asking for double his fare. The young man had no hesitation in refusing it.
+ - Wealth is a means to an end, not the end itself. As a synonym for health and happiness, it has had a fair trial and failed dismally.
+ - I think the greatest thing in the world is to believe in people.
+ - Beauty means this to one person, perhaps, and that to the other. And yet when any one of us has seen or heard or read that which to us is beautiful, we have known an emotion which is in every case the same in kind, if not in degree; an emotion precious and uplifting.
+ - Only out of stir and change is born new salvation. To deny that is to deny belief in man, to turn our backs on courage!
+ - Take modern courtships! They resulted in the same thing as under George the Second, but took longer to reach it, owing to the motor-cycle and the standing lunch.
+ - Once admit that we have the right to inflict unnecessary suffering and you destroy the very basis of human society.
+ - Essential characteristics of a gentleman: The will to put himself in the place of others; the horror of forcing others into positions from which he would himself recoil; and the power to do what seems to him to be right without considering what others may say or think.
+ - See what perils do environ those who meddle with hot iron.
+ - Public opinion’s always in advance of the law.
+ - Dawn has power to fertilise the most matter-of-fact vision.
+ - Matters change and morals change; men remain.
+ - He might wish and wish and never get it – the beauty and the loving in the world!
+ - As a man lives and thinks, so he will write.
+ - Light-heartedness always made Soames suspicious – there was generally some reason for it.
+ - It isnot good enough tospend time and ink indescribing the penultimate sensations and physical movements of people getting into a state of rut, we all know them so well.
+ - How to save the old that’s worth saving, whether in landscape, houses, manners, institutions, or human types, is one of our greatest problems, and the one that we bother least about.
+
+54 quotes

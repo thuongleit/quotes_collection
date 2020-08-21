@@ -1,0 +1,107 @@
+ - Never give up on anybody.
+ - The greatest gift of life is friendship, and I have received it.
+ - Never give in and never give up.
+ - More progress results from the violent execution of an imperfect plan than the perfection of a plan to violently execute.
+ - Freedom is hammered out on the anvil of discussion, dissent, and debate.
+ - It was once said that the moral test of government is how that government treats those who are in the dawn of life, the children; those who are in the twilight of life, the elderly; and those who are in the shadows of life, the sick, the needy and the handicapped.
+ - You can’t hoot with the owls and then soar with the eagles.
+ - We live by hope. We do not ever get all we want when we want it. But we have to believe that someday, somehow, some way, it will be better and that we can make it so.
+ - Peace is not passive, it is active. Peace is not appeasement, it is strength. Peace does not ‘happen,’ it requires work.
+ - The way we treat our children in the dawn of their lives and the way we treat our elderly in the twilight of their lives is a measure of the quality of a nation.
+ - If I believe in something, I will fight for it, with all I have. But I do not demand all or nothing. I would rather get something than nothing.
+ - The good old days were never that good, believe me. The good new days are today, and better days are coming tomorrow. Our greatest songs are still unsung.
+ - Life’s unfairness is not irrevocable; we can help balance the scales for others, if not always for ourselves.
+ - Behind every successful man is a proud wife and a surprised mother-in-law.
+ - There is a great deal of difference between living and surviving. You can survive in debauchery, even in sickness and despair. But you live with a spirit of vitality and a spirit of participation, of being wanted, and having something to contribute.
+ - My favorite sandwich is peanut butter, baloney, cheddar cheese, lettuce, and mayonnaise on toasted bread with catsup on the side.
+ - Compassion is not weakness, and concern for the unfortunate is not socialism.
+ - Each child is an adventure into a better life – an opportunity to change the old pattern and make it new.
+ - What we need are critical lovers of America – patriots who express their faith in their country by working to improve it.
+ - To err is human. To blame someone else is politics.
+ - This, then, is the test we must set for ourselves; not to march alone but to march in such a way that others will wish to join us.
+ - Our greatest songs are still unsung.
+ - When the dignity of one person is denied, all of us are denied.
+ - It is always a risk to speak to the press: they are likely to report what you say.
+ - It is not what they take away from you that counts. It’s what you do with what you have left.
+ - Surely anyone who has ever been elected to public office understands that one commodity above all others, namely the trust and confidence of the people, is fundamental in maintaining a free and open political system.
+ - In the minds and hearts of the American people, there is a great hunger for peace based on a universal recognition of the values of freedom and human dignity.
+ - Foreign policy is really domestic policy with its hat on.
+ - The impersonal hand of government can never replace the helping hand of a neighbor.
+ - The history of the labor movement needs to be taught in every school in this land. America is a living testimonial to what free men and women, organized in free democratic trade unions can do to make a better life. We ought to be proud of it!
+ - The time has arrived in America for the Democratic Party to get out of the shadows of states rights and walk forthrightly into the bright sunshine of human rights.
+ - The right to be heard does not automatically include the right to be taken seriously.
+ - We cannot use a double standard for measuring our own and other people’s policies. Our demands for democratic practices in other lands will be no more effective than the guarantees of those practiced in our own country.
+ - There are not enough jails, not enough police, not enough courts to enforce a law not supported by the people.
+ - Just be what you are and speak from your guts and heart – it’s all a person has.
+ - The gap between the rich and the poor is the most dangerous threat to world peace we have.
+ - We are in danger of making our cities places where business goes on but where life, in its real sense, is lost.
+ - Until racial justice and freedom is a reality in this land, our union will remain profoundly imperfect.
+ - Before people will do anything, they have got to eat. And if you are really looking for a way for people to lean on you and to be dependent on you, in terms of their cooperation with you, it seems to me that food dependence would be terrific.
+ - The ugliness of bigotry stands in direct contradiction to the very meaning of America.
+ - Peace of mind is another way of saying that you’ve learned how to love, that you have come to appreciate the importance of giving love in order to be worthy of receiving it.
+ - The difference between hearsay and prophecy is often one of sequence. Hearsay often turns out to have been prophecy.
+ - The road to freedom, here and everywhere, begins in the classroom.
+ - In real life, unlike in Shakespeare, the sweetness of the rose depends upon the name it bears. Things are not only what they are. They are, in very important respects, what they seem to be.
+ - I believe that each of us can make a difference. That what is wrong can be made right. That people possess the basic wisdom and goodness to govern themselves without conflict.
+ - There is a lot of difference between failure and defeat. Failure is when you are defeated and neither learn nor contribute anything.
+ - Unfortunately, our affluent society has also been an effluent society.
+ - There is in every American, I think, something of the old Daniel Boone – who, when he could see the smoke from another chimney, felt himself too crowded and moved further out into the wilderness.
+ - There are those who say to you – we are rushing this issue of civil rights. I say we are 172 years late.
+ - The President is the peoples lobbyist.
+ - I have seen in the Halls of Congress more idealism, more humanness, more compassion, more profiles of courage than in any other institution that I have ever known.
+ - There is no such thing as an acceptable level of unemployment, because hunger is not acceptable, poverty is not acceptable, poor health is not acceptable, and a ruined life is not acceptable.
+ - I wish to suggest that ample opportunity does exist for dissent, for protest, and for nonconformity. But I must also say that the right to be heard does not automatically include the right to be taken seriously.
+ - It is all too easy for a society to measure itself against some abstract philosophical principle or political slogan. But in the end, there must remain the question: What kind of life is one society providing to the people that live in it?
+ - My philosophy has always been that benefits should percolate up rather than trickle down.
+ - American public opinion is like an ocean, it cannot be stirred by a teaspoon.
+ - There can be no compromise on the right of personal security; there can be no compromise on securing of human rights.
+ - If there is dissatisfaction with the status quo, good. If there is ferment, so much the better. If there is restlessness, I am pleased. Then let there be ideas, and hard thought, and hard work. If man feels small, let man make himself bigger.
+ - Never answer a question from a farmer.
+ - I’ve never thought my speeches were too long; I’ve rather enjoyed them.
+ - The essence of statesmanship is not a rigid adherence to the past, but a prudent and probing concern for the future.
+ - This is the first generation in all of recorded history that can do something about the scourge of poverty. We have the means to do it. We can banish hunger from the face of the earth.
+ - If today there is a proper American “sphere of influence” it is this fragile sphere called earth upon which all men live and share a common fate – a sphere where our influence must be for peace and justice.
+ - Here we are the way politics ought to be in America; the politics of happiness, the politics of purpose and the politics of joy.
+ - There are incalculable resources in the human spirit, once it has been set free.
+ - Certainly one of the chief guarantees of freedom under any government, no matter how popular and respected, is the right of citizens to keep and bear arms.
+ - The Senate is a place filled with goodwill and good intentions, and if the road to hell is paved with them, then it’s a pretty good detour.
+ - Propaganda, to be effective, must be believed. To be believed, it must be credible. To be credible, it must be true.
+ - None of us would trade freedom of expression for the narrowness of the public censor. America is a free market for people who have something to say, and need not fear to say it.
+ - The measure of a civilization is how it treats those at the dawn of life, the margins of life and the twilight of life.
+ - National isolation breeds national neurosis.
+ - The leadership for civil rights has to take place in the White House or it is going to take place in the streets.
+ - To be realistic today is to be visionary. To be realistic is to be starry-eyed.
+ - Anyone who thinks that the vice-president can take a position independent of the president of his administration simply has no knowledge of politics or government. You are his choice in a political marriage, and he expects your absolute loyalty.
+ - Much of our American progress has been the product of the individual who had an idea; pursued it; fashioned it; tenaciously clung to it against all odds; and then produced it, sold it, and profited from it.
+ - For the first time in the history of mankind, one generation literally has the power to destroy the past, the present and the future, the power to bring time to an end.
+ - What do we want for people? Human dignity, personal expression and fulfillment, justice, freedom.
+ - Slumism is the pent-up anger of people living on the outside of affluence. Slumism is decay of structure and deterioration of the human spirit. Slumism is a virus which spreads through the body politic. As other “isms,” it breeds disorder and demagoguery and hate.
+ - What you do, what each of us does, has an effect on the country, the state, the nation, and the world.
+ - It is not enough to merely defend democracy. To defend it may be to lose it; to extend it is to strengthen it. Democracy is not property; it is an idea.
+ - I learned more about the economy from one South Dakota dust storm that I did in all my years of college.
+ - Leadership in today’s world requires far more than a large stock of gunboats and a hard fist at the conference table.
+ - I am not here to judge whether people are locked in poverty because of themselves or because of the society in which they live. All I know is that they are there and we are trying to do something about it.
+ - We need an America with the wisdom of experience. But we must not let America grow old in spirit.
+ - You can always debate about what you should have done. The question is what are you going to do?
+ - We will be remembered not for the power of our weapons but for the power of our compassion, our dedication to human welfare.
+ - It the Senator can find in Title VII any language which provides that an employer will have to hire on the basis of percentage or quota related to color, race, religion, or national origin, I will start eating the pages one after another, because it is not in there.
+ - Freedom is the most contagious virus known to man.
+ - In life it isn’t what you’ve lost, it’s what you’ve got left that counts.
+ - We will have to decide today whether we will design the future or resign ourselves to it.
+ - And it is to these rights – the right of law and order, the right of life, the right of liberty, the right of a job, the right of a home in a decent neighborhood, and the right to an education – it is to these rights that I pledge my life and whatever capacity and ability I have.
+ - It is better to gain a foot than to stand still, even when you seek to gain a mile.
+ - History teaches us that the great revolutions aren’t started by people who are utterly down and out, without hope and vision. They take place when people begin to live a little better – and when they see how much yet remains to be achieved.
+ - I am absolutely disgusted that anyone would put thousands of America’s boys at risk just to win a Political Campaign.
+ - Like many things in our national life, we miscalculated. We overestimated our ability to control events, which is one of the great dangers of a great power. Power tends to be a substitute for judgment and wisdom.
+ - The right of citizens to bear arms is just one guarantee against arbitrary government, one more safeguard against the tyranny which now appears remote in America, but which historically has proved to be always possible.
+ - Profit and morality are a hard combination to beat.
+ - Liberalism, above all, means emancipation – emancipation from one’s fears, his inadequacies, from prejudice, from discrimination, from poverty.
+ - I had no money to buy books, so between classes and work, I haunted the library. I even tutored in French with a sliding scale of payment: twenty dollars for an A, fifteen for a B, ten for a C, five for a D.
+ - I do not feel that we should allow a shortage of funds to prevent cities from financing needed projects.
+ - A politician never forgets the precarious nature of elective life. We have never established a practice of tenure in public office.
+ - You cannot tell a poor boy from a small country town on the plains of South Dakota who has had the opportunity to be a teacher, a mayor, a senator, and a vice president, that America is not a nation of promise.
+ - The pursuit of peace resembles the building of a great cathedral. It is the work of a generation. In concept it requires a mater-architect; in execution, the labors of many.
+ - We can not expect to breed respect for law and order among people who do not share the fruits of our freedom.
+ - The President has only 190 million bosses. The Vice President has 190 million and one.
+
+105 quotes

@@ -1,0 +1,77 @@
+ - Solar power is the last energy resource that isn’t owned yet – nobody taxes the sun yet.
+ - I can’t make you love me, if you don’t.
+ - Life gets mighty precious when there’s less of it to waste.
+ - Religion is for people who are scared to go to hell. Spirituality is for people who have already been there.
+ - I’ll close my eyes, so I won’t see, all of the love that you don’t feel for me.
+ - I hope I’m an integrous person who cleans up their messes when I’ve been a jerk.
+ - In blues, classical and jazz, you get more revered with age.
+ - In 1967 I entered Harvard as a freshman, confident – in the way that only 17-year-olds are – that I could change the world. My major was African Studies, and my plan was to travel to Tanzania, where President Julius Nyerere was creating a government based on democracy and socialism.
+ - I think my fans will follow me into our combined old age. Real musicians and real fans stay together for a long, long time.
+ - Ugly ducklings don’t turn into swans and glide off down the lake. Whether your sunglasses are on or off, you only see the world you make.
+ - I’m proud of the way I rearrange and put things together, like a chef who makes a great meal, or a filmmaker who puts together a story – it’s casting, editing, cinematography.
+ - One of the biggest obstacles I’ve overcome in my life was thinking I didn’t deserve to be successful. Artistically I’m not as much of a heavyweight as someone like Paul Simon or Joni Mitchell, because I’m not a creator of original music, and I worried about that for years.
+ - We can live in fear or act out of hope.
+ - I would rather feel things in extreme than not at all.
+ - I thought I had to live that partying lifestyle in order to be authentic, but in fact if you keep it up too long, all you’re going to be is sloppy or dead.
+ - I don’t think there’s ever been any music quite like what we came up with.
+ - With slide guitar, you’re just hanging this piece of glass on your hand. It’s a really beautiful instrument in that it’s so responsive, you’re just slipping your hand back and forth.
+ - Playing guitar was one of my childhood hobbies, and I had played a little at school and at camp. My parents would drag me out to perform for my family, like all parents do, but it was a hobby – nothing more.
+ - I’m glad I get singled out for my slide guitar-playing, which isn’t that difficult to do. I didn’t take guitar lessons, but I just love the way it sounds, almost like the human voice.
+ - We can choose, you know, we ain’t no amoeba.
+ - I don’t want to discredit people’s opinions of me, but you talk about the violin or the cello or lead guitar where you have to learn tons of chords, that’s much more difficult.
+ - We did a two month tour with Taj Mahal that was really healing and cathartic and a good distraction after my brother passed away. Then I knew I wanted to take a year off, and it was really nice to have that chance to fall apart.
+ - It’s incredible to see labor unions and environmentalists getting together to stop the corporate mentality that destroys both jobs and the environment.
+ - I’m in a relationship, and I’ve been in one in a while, but all the people I’ve been with at various points – and I’ve had sequentially monogamous relationships my whole life – were all the right people at the right time.
+ - I never saw music in terms of men and women or black and white. There was just cool and uncool.
+ - There’s nothing like living a long time to create a depth and soulfulness in your music.
+ - The generation I grew up in was the beginning of “stand up for yourself,” whether being a singer-songwriter or a feminist. In my college years, the feminist movement was really coming to fore, so we wouldn’t have put up with guys treating us less than equal.
+ - When you love a song so much you have to sing, you know how you feel – it releases something in you that resonates as true, whether it’s James Brown or Joni Mitchell.
+ - I think I’m a living embodiment of, ‘Don’t try to push me around or squash me,’ whether its how I talk to a record label or in my relationships.
+ - I don’t know that I’m unique in that people relate to my music, but I would hope people would say that I’m honest and that I do the best work I can possibly do instead of coasting.
+ - I’m honored when young people say they’ve gone to school on slide guitar with my records. But people get their influence from my live shows and records and YouTube, not me personally. I walk around with a hat on. People don’t know it’s me.
+ - I’m the same on stage as I am off stage. A lot of people who I admire – Bruce Springsteen, Jackson Browne – are not that different either. You hope that if you met them that they’d be as nice and well-rounded as they appear.
+ - My love was Bob Dylan, but as I got older I realized a good ballad was a good ballad.
+ - Some people are caricatures of themselves, and some people keep people coming back and keep themselves growing. Otherwise, the fans would get bored.
+ - I’ve watched my peers get better with age and hoped that would happen with me.
+ - People come up to me all the time who saw Dad in ‘Oklahoma!’ or ‘Pajama Game,’ and they say they’ll never forget it.
+ - I’m not that beautiful, and I don’t want to be a pop star.
+ - I’m certain that it was an incredible gift for me to not only be friends with some of the greatest blues people who’ve ever lived, but to learn how they played, how they sang, how they lived their lives, ran their marriages, and talked to their kids.
+ - There’s something about the Strat’s shape that is at once masculine and feminine.
+ - Pat Benatar might need a rock band, but I can just sit with a blues guitar for an hour and a half and do folk songs and great contemporary ballads, and not many people can pull that off.
+ - I finally learned to accept that I can’t make radio play blues any more than I could get Reagan out of the White House.
+ - I’ve been lucky enough that I can gather all sorts of experiences and find inspiration by traveling around and by spending time with people I admire.
+ - There were so many great music and political scenes going on in the late ’60s in Cambridge. The ratio of guys to girls at Harvard was four to one, so all of those things were playing in my mind.
+ - I just play the music that I love with musicians that I respect, and fortunately, I’m in a position where people are willing to play with me, and perhaps I can do something to help them.
+ - Finding great songs is the hard part of my gig – it’s not as hard as songwriting, that’s much more daunting – but I love playing other people’s music.
+ - My career is based on the slow build of an audience based on putting on a good show live and putting out a record every couple of years. I was already doing really well in terms of my goals, to keep my fans coming back.
+ - Since I was 20 years old, I’ve been a kind of corporation. I’d wake up in the morning and my job was to be ‘Bonnie Raitt’ in capital letters.
+ - The great thing about the arts, and especially popular music, is that it really does cut across genres and races and classes.
+ - I was offered to take over for Reba in ‘Annie Get Your Gun,’ but it wasn’t where I wanted to be. I think my fans would be upset if I confined my shows to one city for a long period of time.
+ - Nobody went out to pasture, and a lot of people are doing their best work. Bruce Springsteen, Tom Petty, and Sting are at the top of their game. I mean, Tony Bennett is the coolest guy I ever met! We have to figure out how to break out of this age ghetto.
+ - It’s so thrilling. And not just the music. The Internet is changing the future of fund-raising. I’m thrilled by the potential.
+ - I like to think I get better with age, but maybe absence makes the heart grow fonder.
+ - I think people must wonder how a white girl like me became a blues guitarist. The truth is, I never intended to do this for a living.
+ - One of the things that I’m glad about, though, is that regular people can relate to me.
+ - Maybe the idea of me is more powerful than I perceive myself being.
+ - I learned a lot about what it was like to have to use different hotels and not use the bathrooms, which made me more determined to be an activist.
+ - With the new ways of getting music out, you don’t need a label if you’re a legacy artist.
+ - The fifth member of my band is my non-profit work.
+ - I just want to be as good a person as I can be.
+ - It is still a surprise when people tell me that I’ve had an influence on them, particularly when it’s someone I really respect.
+ - I didn’t have to be a pop singer with a certain look. When I started, there was really a revolution in natural artists with blues and folk artists crossing over; otherwise, I wouldn’t have been able to get started.
+ - I would like to inspire a lot of people to be active and give back.
+ - I made my first album, and I guess it wasn’t a fluke, because now I’m on my 16th.
+ - Thank God for Occupy and thank God for ‘The Daily Show,’ Colbert and the rising up that’s going on around the world.
+ - The arts can be a great way to bring people together. I don’t preach from the stage. I try to stay positive on solutions.
+ - I have a really full life, both within music and outside it.
+ - You don’t have to look a certain way to have a hit record.
+ - A lot of political music to me can be rather pedantic and corny, and when it’s done right – like Bruce Springsteen or Jackson Browne or great satire from Randy Newman, there’s nothing better.
+ - The consolidation of the music business has made it difficult to encourage styles like the blues, all of which deserve to be celebrated as part of our most treasured national resources.
+ - Jazz and blues fests are everywhere now, and Americana is going strong on college radio. What I’m hearing is an appreciation of real music.
+ - I’m one of those people who just doesn’t plan my personal life. I plan my professional life.
+ - I speak my mind and come from a place of conscience, as well as have fun as a musician.
+ - How I measure success is getting to make another record and being able to the come back to the same town and play again cause you sold out the last time.
+ - I grew up in Los Angeles in a Quaker family, and for me being Quaker was a political calling rather than a religious one.
+ - Sometimes I’m more true when I’m up onstage than I’m able to be in my regular life. It’s not as exciting to be at home, but I’ve got to learn how to make that work, and then I will be an ordinary woman.
+
+75 quotes

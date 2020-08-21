@@ -1,0 +1,28 @@
+ - She works hard for the money so you better treat her right.
+ - I need you by me, beside me, to guide me, to hold me, to scold me, cause when I’m bad, I’m so, so bad.
+ - God had to create disco music so I could be born and be successful.
+ - German people get very uptight if you mention World War II. Germans today feel that what’s past is past, new generations don’t really remember it.
+ - Don’t try to change or tear your brother down, let him make his mistakes and he will come around.
+ - But I think that I’m just a normal girl, you know.
+ - Ahhh, I love to love you baby, ahhh.
+ - But I like to know that someone is stronger than I am. I want to be able to know that if I get tired, somebody is there to hold up the fort. I like knowing that I can’t pick a refrigerator alone. God did not make me strong enough to do that.
+ - I am sensual and very physical. I’m very erotic. But my sexuality exists on a sort of a fantasy level.
+ - My life was changed in one breath from God.
+ - Well, I’ll say I have an incredible ability to fantasize – I really do. I don’t have to have things tangible to be able to see them, and therefore I enjoy so many things, because they’re in my mind.
+ - You’ve got to maintain your level of self-esteem through everything. You are who you are, and nobody will ever be able to take that from you if you don’t let them.
+ - I don’t care if I’m beautiful; I don’t care what I am on the outside. It isn’t about the outside.
+ - I don’t keep a press agent because I think people need to have a break from you.
+ - I want a private life, I truly do. I’m not just pretending to want one like lots of celebrities.
+ - Nobody wants you to stop, obviously because you’re a moneymaking machine. But you have to make the decision and you have to move forward. So I took time off to have babies and do all that.
+ - Let’s say that, in reality, I’m basically very shy when it comes to men.
+ - Heaven knows, it’s not the way it could be.
+ - I don’t really try to predict what can and will happen with things. Sometimes you think something’s gonna be a huge success, and it isn’t. And sometimes you pay no attention to something whatsoever, and God just makes it into everything.
+ - When you see these people that are in the public eye all the time, it must get tiring.
+ - It would be nice if you have a hit. But I don’t think it’s necessary to continue with my career at this point.
+ - I realized that I had a serious problem with depression, and I went to a doctor and he gave me some medication.
+ - If you’ve never been to one of my concerts. I want you to know that it is OK to scream and yell.
+ - I haven’t really been recording in the last several years. I haven’t wanted to. And even though I had to deal with Sony and now I’m on Universal again, I will probably put out a new record soon.
+ - When I’m not working I try to stay out of the public eye as much as possible.
+ - A friend of mine called and said they’re interested in having you do a song for the new Pokemon. All my kids are grown up, so I’d heard of it, but I didn’t really know what it was.
+
+26 quotes

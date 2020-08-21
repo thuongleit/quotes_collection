@@ -1,0 +1,41 @@
+ - God gives us opportunity to serve him by serving humanity.
+ - Serve your parents if you expect your children to serve you when you are old.
+ - Be patient and keep faith. It will all fall into place.
+ - Do not expect too much from the world. We are here to give not to take.
+ - Love does not expect anything in return.
+ - The brightest stars emerge out of the blackest darkness.
+ - Never be proud but show humility towards others, true wisdom lies in being humble.
+ - Respect those elder to you in years, in knowledge and spiritual attainment and act with love and compassion with those who are younger or less fortunate than you.
+ - Live a virtuous life, help everyone and spread joy wherever you go.
+ - Surrender yourself to God and be at peace with him.
+ - Sincere prayer is answered by unfailing grace.
+ - Live every day as if it is a festival. Turn your life into a celebration.
+ - Don’t wait for the right conditions. All you need for your growth is available to you in this moment.
+ - Worship offered with stale flowers and an unclean mind is of no value.
+ - Love is the process of melting into the other.
+ - If you won’t improve yourself, who will?
+ - If you wish to enjoy a position, find ways of being useful, hard working and cooperative with the people whose favour has given you the position.
+ - To live in a peaceful home is to experience paradise on earth.
+ - The true value of a gift is the sentiment behind the gifting.
+ - Pray with a pure heart and pray from where you are. God will answer your prayers. There is no need to abandon the world or retreat to a jungle.
+ - Humility is more powerful than egoistic pride. Water is more powerful than the strongest cliff and Love is more powerful than might.
+ - Love is God, and the one that believes in love, believes in God.
+ - Do not desire a long life or an early death.
+ - Saints love all beings. They love even those who attempt to harm them.
+ - Constant remembrance of the Almighty will bring you everlasting happiness and peace.
+ - The secret of true happiness lies within unwavering devotion to God.
+ - God and devotee are bound for ever in ropes of love.
+ - Consider how blessed you are to have the things you do in life.
+ - When we disrespect a person, we disrespect God.
+ - The closer we are to God, the richer we are.
+ - Spiritual knowledge is fruitful only when it is applied.
+ - Seek not material wealth, seek the Lord who owns it all.
+ - Spiritual growth is the only real growth.
+ - Spiritual Practice involves being constantly aware.
+ - Money comes to those who act intelligently, and God to those who hunger for his grace.
+ - Fear exists because we do not have faith.
+ - The essence of right living is to do good to others.
+ - Know the one who wants nothing to be the wealthiest.
+ - By practicing compassion and forgiveness, one can control hatred.
+
+39 quotes

@@ -1,0 +1,49 @@
+ - I am an atheist because there is no evidence for the existence of God. That should be all that needs to be said about it: no evidence, no belief.
+ - There is joy in rationality, happiness in clarity of mind. Freethought is thrilling and fulfilling – absolutely essential to mental health and happiness.
+ - Asking, ‘If there is no God, what is the purpose of life?’ is like asking, ‘If there is no master, whose slave will I be?’ If your purpose of life is to submit as a slave, then your meaning comes from flattering the ego of a person whom you should detest.
+ - Basic atheism is not a belief. It is the lack of belief. There is a difference between believing there is no god and not believing there is a god – both are atheistic, though popular usage has ignored the latter.
+ - I’m proud to be an atheist – it helps me stand for so much more and fall for so much less.
+ - All you have to do is walk into any children’s hospital and you know there is no God. Prayer doesn’t make any difference. Those people pray for their beloved children to live and they die.
+ - Freethinkers reject faith as a valid tool of knowledge. Faith is the opposite of reason because reason imposes very strict limits on what can be true, and faith has no limits at all. A Great Escape into faith is no retreat to safety. It is nothing less than surrender.
+ - Please clean up after your dogma.
+ - The very concept of sin comes from the Bible. Christianity offers to solve a problem of its own making! Would you be thankful to a person who cut you with a knife in order to sell you a bandage?
+ - Freethought is respectable. Freethought is crucial. Freethought needs to be publicized.
+ - To think that the ruler of the universe will run to my assistance and bend the laws of nature for me is the height of arrogance.
+ - Truth does not demand belief...
+ - People are always asking, “What’s the purpose of life?” That’s easy. Relieve suffering. Create beauty. Make gardens.
+ - Some theists, observing that all ‘effects’ need a cause, assert that God is a cause but not an effect. But no one has ever observed an uncaused cause and simply inventing one merely assumes what the argument wishes to prove.
+ - Scientists do not join hands every Sunday and sing “Yes gravity is real! I know gravity is real! I will have faith! I believe in my heart that what goes up, up, up must come down, down, down. Amen!” If they did, we would think they were pretty insecure about the concept.
+ - You keep accusing me of blasphemy all of the time, but I cannot be convicted of a victimless crime.
+ - You can cite a hundred references to show that the biblical God is a bloodthirsty tyrant, but if they can dig up two or three verses that say “God is love” they will claim that you are taking things out of context!
+ - Prayer never changes the laws of nature.
+ - In any open question, we should argue from what we do know to what we do not know. We do know that fervent legends and stubborn myths arise easily and naturally. We do not know that dead people rise from the grave.
+ - The longer I have been an atheist, the more amazed I am that I ever believed Christian notions.
+ - As humanists, we urge today, as in the past that humans not look beyond themselves for salvation. We alone are responsible for our own destiny and the best we can do is muster our intelligence, courage, and compassion to realize our highest aspirations.
+ - Even if it is true that all cultures share a common morality, why does this prove a supreme intelligence? After all, don’t we humanists sometimes claim that there is a common thread of humanistic values running through history across cultural and religious lines?
+ - Love is not obedience, conformity, or submission. It is a counterfeit love that is contingent upon authority, punishment, or reward. True love is respect and admiration, compassion and kindness, freely given by a healthy, unafraid human being...
+ - We were blood brothers, pals forever. He was my very best friend. Nobody else could see him. I now know he was just pretend.
+ - I have an Easter challenge for Christians. My challenge is simply this: tell me what happened on Easter. I am not asking for proof. My straightforward request is merely that Christians tell me exactly what happened on the day that their most important doctrine was born.
+ - If the Prodigal Son’s a parable, and if Adam and Eve are metaphors, then maybe God is just figure of speech.
+ - There are many gods which Christians reject. I just believe in one less god then they do. The reasons that you might give for your atheism toward the Roman gods are likely the same reasons I would give for not believing in Jesus.
+ - I threw out all the bath water, and there was no baby there.
+ - Look at the posture of prayer. It is the posture of slavery, of bowing before your master. We are a proudly rebellious country. We kicked out the master. Now here comes the government telling us to humbly bow again.
+ - If faith is a valid tool of knowledge, then anything can be true ‘by faith,’ and therefore nothing is true. If the only reason you can accept a claim is by faith, then you are admitting that the claim does not stand on its own merits.
+ - It’s not easy to change world views. Faith has its own momentum and belief is comfortable. To restructure reality is traumatic and scary. That is why many intelligent people continue to believe: unbelief is an unknown.
+ - I took about a year to fully adjust. Like there’s a death at the family or a divorce, you don’t just snap your fingers and it’s over.
+ - Truth does not demand belief. Scientists do not join hands every Sunday, singing, ‘Yes, gravity is real! I will have faith!’
+ - You believe in a book that has sticks turning into snakes, and you say we are the ones that need help?
+ - Theology is a subject without an object.
+ - Without “The Law of Moses” would we all be wandering around like little gods, stealing, raping, and spilling blood whenever our vanity was offended?
+ - Atheists are suffering from bad PR. What if Sesame Street had an atheist character?
+ - For my money, I’ll bet on reason and humanistic kindness. Even if I am wrong I will have enjoyed my life, the existence of which is under little dispute.
+ - Most Christians are afraid that people will think for themselves; most atheists are afraid that they won’t.
+ - Not thinking critically, I assumed that the successful prayers were proof that God answers prayer while the failures were proof that there was something wrong with me.
+ - If the answers to prayer are merely what God wills all along, then why pray?
+ - It is a fact of history and of current events that human beings exaggerate, misinterpret, or wrongly remember events. They have also fabricated pious fraud. Most believers in a religion understand this when examining the claims of other religions.
+ - Faith is not the result of fuzy thinking. It is the cause of it.
+ - The trouble is that neutrality is confused with hostility. We’re not disrupting churches, or interrupting people’s prayers. We’re not fighting religion.
+ - Faith is a cop-out. If the only way you can accept an assertion is by faith, then you are conceding that it can’t be taken on its own merits. It is intellectual bankruptcy.
+ - It turns out that the word atheism means much less than I had thought. It is merely the lack of theism.
+ - Only sinners need saviors.
+
+47 quotes

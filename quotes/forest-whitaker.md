@@ -1,0 +1,33 @@
+ - The true wealth of a community is measured by how carefully it listens to its women and how sincerely it values their wisdom. Empowering women empowers us all.
+ - Stereotypes do exist, but we have to walk through them.
+ - I could never have gone to Africa another way and had the same experience. It was my job and my joy at the same time.
+ - And God, God who believes in us all. And who’s given me this moment, in this lifetime, that I will hopefully carry to the end of my lifetime into the next lifetime.
+ - We have to not just open our eyes to what’s going on in other places; we need to open our eyes to what’s going on right in front of us.
+ - Because I was playing Idi Amin, who dealt with the colonisation issue, I became aware of this internalised conflict of what it means to be torn between cultures, what it means to be taken over by other cultures.
+ - I really wasn’t even sure if I should continue acting. I would like try and figure out if I could be good enough to do it. It was like 10 or 12 years into my career before I felt like maybe I can do it. It was such a different time than now.
+ - Since Idi Amin was from the Sudanese section in the north of Uganda, he was darker skinned. He had more of a blue undertone. So, we did change the coloring of my skin to be closer to his. But otherwise, there were no transformations besides acting.
+ - I like to play complex characters and the duality, and trying to reach for the light, it’s more interesting really. I’ve gotten to play so many types of guys and I just try to find the humanity in each one of them the best I can.
+ - It is possible for a kid from east Texas, raised in south central LA and Carson, who believes in his dreams, commits himself to them with his heart, to touch them and to have them happen.
+ - There’s a thing you confront when you’re going into something new and you come to this sort of abyss, and then you push yourself. It makes you try different things.
+ - In a lot of films, they’re showing more complete, developed characters of diverse ethnic backgrounds. The larger concern is to be able to tastefully explore the stereotypes, and still move past them to see the core of people.
+ - Visit to Africa reshaped my point-of-view of colonialism. It reshaped my point-of-view of my own sense of source, and my own place of birth. It made it more organic inside of me, because it placed me in a position where my job was to understand and to become more African.
+ - I stay true, because whatever the project is, I’m still looking for inside of that character.
+ - I do look at that thematic of healing of humanity.
+ - I try to be like a forest: revitalizing and constantly growing.
+ - I care about people. In the end, I think they feel it. It comes across, regardless of the character I’m portraying.
+ - I’ve always wanted to do characters that would help me find my connection with others and connect all of us together. You always want the energy of the character, the spirit of the person, to enter you.
+ - I can play a man who’s despicable. But I’ll still look inside him to find a point of connection. If I can find that kernel, audiences will relate to me.
+ - I think the biggest thing that motivates me when I’m choosing a part is a role that will help me continue to grow as a person and as an artist, and a role that will deepen my understanding of humanity, and my connection to it.
+ - Until film is just as easily accessible as a pen or pencil, then it’s not completely an art form. In painting you can just pick up a piece of chalk, a stick or whatever. In sculpture you can get a rock. Writing you just need a pencil and paper.
+ - Trying to understand, inside, what it is to be Ugandan was crucial to the character, because there are Ugandan ways of doing things that I was trying to capture. Even if I had made this movie in South Africa, it would not have been the same, because it is so specific to Uganda.
+ - When I was a kid, the only way I saw movies was from the back seat of my family’s car at the drive-in.
+ - In my career, I’ve had people talking about different things many times, but then not get nominated.
+ - I’m just looking for characters that continue to make me stretch and grow and learn more about the human condition.
+ - It is important to make the best out of every generation.
+ - I went through two schools of acting but I learned more about acting from meditating and from my marshall arts teacher.
+ - I think the place fed me completely. Not only was I in Uganda, but I was around many people who had a personal relationship with Idi Amin. I was eating the food constantly. I was culturally hanging out with the people. You can’t help but absorb the energy, and try to get inside the culture.
+ - I try to serve the character all the time; this one took a lot of work and was consuming. It’s like climbing up a ladder and sometimes you’re afraid to face yourself so you make excuses; you avoid going to the top of the ladder and look in the mirror.
+ - I never acted in anything I’ve directed but I have produced a number of films and I have acted in some of the movies I’ve produced. Usually with first time filmmakers and pushing a move forward I have played a small role but never the lead.
+ - It’s a unique experience when you’re doing an independent film where you have one person who puts up all the funds to make the film.
+
+31 quotes

@@ -1,0 +1,25 @@
+ - Probability fractions arise from our knowledge and from our ignorance.
+ - Plutonium has a quite extraordinary relationship with people. They made it, and it kills them.
+ - Much early alchemy seems to have been adventure. You heated and mixed and burnt and pounded and to see what would happen. An adventure might suggest an hypothesis that can subsequently be tested, but adventure is prior to theory.
+ - Statistics began as the systematic study of quantitative facts about the state.
+ - Molecular biology has routinely taken problematic things under its wing without altering core ideas.
+ - Why should there be the method of science? There is not just one way to build a house, or even to grow tomatoes. We should not expect something as motley as the growth of knowledge to be strapped to one methodology.
+ - The best reaction to a paradox is to invent a genuinely new and deep idea.
+ - If you were just intent on killing people you could do better with a bomb made of agricultural fertiliser.
+ - Cutting up fowl to predict the future is, if done honestly and with as little interpretation as possible, a kind of randomization. But chicken guts are hard to read and invite flights of fancy or corruption.
+ - We favor hypotheses for their simplicity and explanatory power, much as the architect of the world might have done in choosing which possibility to create.
+ - Every once in a while, something happens to you that makes you realise that the human race is not quite as bad as it so often seems to be.
+ - Opinion is the companion of probability within the medieval epistemology.
+ - The final arbitrator in philosophy is not how we think but what we do.
+ - Acceptance means commitment, among other things.
+ - Thers is this wonderful iconoclast at Rutgers, Doron Zeilberger, who says that our mathematics is the result of a random walk, by which he means what WE call mathematics. Likewise, I think, for the sciences.
+ - By legend and perhaps by nature philosophers are more accustomed to the armchair than the workbench.
+ - I have this extraordinary curiosity about all subjects of the natural and human world and the interaction between the physical sciences and the social sciences.
+ - Until the seventeenth century there was no concept of evidence with which to pose the problem of induction!
+ - There are two ways in which a science develops; in response to problems which is itself creates, and in response to problems that are forced on it from the outside.
+ - Many modern philosophers claim that probability is relation between an hypothesis and the evidence for it.
+ - When land and its tillage are the basis of taxation, one need not care exactly how many people there are.
+ - From any vocabulary of ideas we can build other ideas by formal combinations of signs. But not any set of ideas will be instructive. One must have the right ideas.
+ - In each case you settle on an act. Doing nothing at all counts as an act.
+
+23 quotes

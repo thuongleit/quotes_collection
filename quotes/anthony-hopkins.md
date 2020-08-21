@@ -1,0 +1,197 @@
+ - We are dying from overthinking. We are slowly killing ourselves by thinking about everything. Think. Think. Think. You can never trust the human mind anyway. It’s a death trap.
+ - My philosophy is: It’s none of my business what people say of me and think of me. I am what I am and I do what I do. I expect nothing and accept everything. And it makes life so much easier.
+ - No expectations. Ask nothing, expect nothing and accept everything, and life is very well.
+ - I’m very much a loner. I don’t like long relationships with people and I always keep people at a distance.
+ - Keep low expectations and life gets pretty good.
+ - You still wake up sometimes. You wake up in the dark and hear the screaming of the lambs.
+ - Guilt is the thief of life.
+ - Life’s too short to deal with other people’s insecurities.
+ - I think the healthy way to live is to make friends with the beast inside oneself, and that means not the beast but the shadow. The dark side of one’s nature. Have fun with it and you know, is to accept everything about ourselves.
+ - How do you play Hannibal Lector? Well just don’t move. Scare people by being still.
+ - I’ve reached a happy stage in my life – you can call it “happy” – but I have no expectations anymore. I’m glad I’m not young anymore.
+ - I don’t waste time being soft. I’m not cold, but I don’t like being, wasting my time with-life’s too short.
+ - At my age, any day above ground and vertical is a good day.
+ - Once you accept the fact that there’s nothing to fear, you drill into the primal oil well. I believe when we do things without fear, we can do anything. As long as you don’t worry about the consequences...
+ - If you’re an alcoholic or a drug addict or something, we flirt with death. We pull ourselves to the brink of destruction and if we’re lucky we pull ourselves back. We all have that in us.
+ - I am a bit of a solitude person – a solitary personality. I like being on my own. I don’t have any major friendships or relationships with people.
+ - I’m devious, cruel, cunning and addictive.
+ - We are fascinated by the darkness in ourselves, we are fascinated by the shadow, we are fascinated by the boogeyman.
+ - Israel means war and destruction and we Americans are behind this war and I am ashamed of being American.
+ - You look closely enough, you’ll find that everything has a weak spot where it can break, sooner or later.
+ - I don’t have many friends; I’m very much a loner. As a child I was very isolated, and I’ve never been really close to anyone.
+ - I play piano and that’s my love. I read and I paint and I compose music, so I’ve got a pretty full creative life. And it’s not because, I’m obsessively creative.
+ - Non-expectation, non-acceptance because the expectation leads to resentment and depression, so I have no expectations.
+ - Things have changed so much now. Everything is downloaded onto computers. I’m not a computer-savvy guy, but with downloading the movie industry has changed.
+ - For me, time is the greatest mystery of all. The fact is that we’re dreaming all the time. That’s what really gets me. We have a fathomless lake of unconsciousness just beneath our skulls.
+ - I love the hour in makeup. It gives you time to think and have a cup of coffee. It’s my favorite part of the day.
+ - I don’t believe in nepotism. I don’t much like the idea of parents who interfere.
+ - I learn poetry, learn text, and that really keeps you alive.
+ - I don’t want to be anything else other than what I am. I can say that with passion. No regrets...
+ - We have a Boesendorfer piano that I play every day. It keeps my brain and my fingers active.
+ - If you do things, whether it’s acting or music or painting, do it without fear – that’s my philosophy. Because nobody can arrest you and put you in jail if you paint badly, so there’s nothing to lose.
+ - When you’re young, you’re very insecure. And if I could learn, if I could revisit my own past I could say to myself, don’t think too much, just get on and do it.
+ - Women never really care to face the truth when their hearts are involved.
+ - If you don’t follow through on your dreams, you might as well be a vegetable.
+ - If you don’t go when you want to go, when you do go, you’ll find you’ve gone.
+ - I have no education, I have no academic background in painting or in music, but I write music and I compose music and I write and I sell paintings, and my rule is, well, they can’t arrest me.
+ - Multiply it by infinity and take it to the depths of forever, and you will still have barely a glimpse of what I’m talking about.
+ - I enjoy painting. I don’t know if I’m good at it, but I paint. I paint very quickly.
+ - Ryan Gosling. He was a good kid, good actor. I like him very much. What was the name of the movie? I’ve forgotten it. Fracture.
+ - I don’t like mushiness. I’m a very emotional person but I hate sentimentality. I don’t like great demonstrations of emotion. But as I’m getting older, I’m getting much more open about all that.
+ - I have no illusions about my position in this world as an actor or anything like that. I’m very realistic. Reality is a very liberating thing.
+ - Why love if losing hurts so much? I have no answers anymore; only the life I have lived. The pain now is part of the happiness then.
+ - Beware the tyranny of the weak. They just suck you dry.
+ - Relish everything that’s inside of you, the imperfections, the darkness, the richness and light and everything. And that makes for a full life.
+ - I love to have a laugh. I like to tease people.
+ - Oh, the truth, oh yeah, lot of trouble that got us into, didn’t it, over the last maybe thousand years? Hitler knew the truth, so did Stalin, so did Mao Zedong, so did the Inquisition. They all knew the truth and that caused such horror. Certainty is the enemy.
+ - People don’t always tell you what they are thinking. They just see to it that you don’t advance in life.
+ - It’s such a pleasant surprise when you come on set and you find someone in charge like Ken Branagh or James Ivory. You know that you’re going to do a day’s work and at the end of it, it’s going to be good.
+ - Living with reality is a very good trick. It gives you tremendous freedom and it changes the structure of molecules of your soul by living through reality because you don’t expect anything anymore, which is a weird paradox.
+ - I like to work. I don’t like to disrupt my equilibrium. I don’t like to change my head. I’d rather be a third-rate actor. It’s a job, and I’m dedicated in my way. I enjoy it. I’m serious about it. But if it doesn’t come off, I’m not going to die.
+ - I’d like to wake up and look like Brad Pitt in the morning, but I don’t. I look in the mirror, and I see me.
+ - People ask, ‘Should I call you Sir Hopkins?’ But I say, ‘No. Call me Tony,’ because it’s too much of a lift-up.
+ - Acting is about listening and reacting. John Wayne was right: Acting is just reacting. You don’t have to do much – as long as you stay out of the way of others. That’s why it works.
+ - I’m the slowest driver in the world.
+ - I think all those actors from that generation, like Bogart – they were wonderful actors. They didn’t act. They just came on and they did it, and the characters were wonderful.
+ - There’s a thing that if you – somebody in faith is always troubled by doubt, and somebody by doubt is always wanted by faith. So it’s a kind of paradox.
+ - Working with Katherine Hepburn, she said to me, “Don’t act.” She said, “Read the lines. Just be. Just speak the lines.” I said, “Okay.” She said, “You look good. You got a good pair of shoulders, you got a good head, good face.”
+ - There’s many a good tune played by an old banjo.
+ - I visualized a lot of things happening to me, because I was a lonely kid because I didn’t understand anything about school.
+ - I’m not a health freak. I just work out every day.
+ - I love roller coasters. I don’t get a chance often, but I’ve gone to Magic Mountain and gone on the rides. I love roller coasters.
+ - When I was a young guy, I knew everything. Now I know very little. I know less and less as the time goes on.
+ - If I spent all my time criticising myself, I wouldn’t be able to function. There are actors who theorise till the cows come home. I haven’t the patience for them. It’s maybe shallow, but that’s why I’ll never be part of the acting set.
+ - Jonathan Demme is a very sharp editor of his movies.
+ - I have dual citizenship, it just so happens I live in America.
+ - I don’t have people following me around, like bodyguards. I don’t know how people live like that. Maybe the young movie stars have to live like that, I don’t know. But it seems a little crazy to me. I don’t think you need all that stuff.
+ - The reward is in the doing of it.
+ - I’ve been very lucky. I’ve had my problems in the past, I’ve had my troubles, but you move on. I had a great life and I am really thankful for it.
+ - I found a way into the acting business because I thought, well, it beats working for a living, and so that’s what I do. But I still feel like a bit of a stranger in it all. I’ve never really belonged anywhere.
+ - I could stay making nice safe BBC movies for the rest of my life, so I decided to risk it. It was a challenge, to work with Oliver Stone.
+ - In the theatre, people talk. Talk, talk until the cows come home about journeys of discovery and about what Hazlitt thought of a line of Shakespeare. I can’t stand it.
+ - I know how to be strong. I know how to be ruthless. It’s part of my nature. I wouldn’t be an actor if I wasn’t.
+ - I’ll do anything to keep everyone laughing. Things get too intense on film sets. I remember on The Elephant Man, I used to imitate a cat without moving my lips. David Lynch would say, “Cut! Sorry, we’ve got a noise somewhere on set.” Everyone would be looking around for this cat.
+ - Oh yes. I’m an actor, so I just learn my lines, and show up and do it. I gave it a little bit of thought.
+ - I’ve got a great sense of humor.
+ - Richard Burton came from the same town as me, so I thought I’d follow my nose, and follow my luck. I think I’ve been very lucky.
+ - Shakespeare’s so bloody difficult, and I don’t like failure. You can fail on film, but there’s nobody actually there in the flesh to watch you failing.
+ - I watched a film with a very famous, great, great actor, I won’t mention his name because everyone loves his memory, but I thought, “God he was acting a lot.” Great actor, but nonstop acting. Wall to wall, fitted-carpet acting.
+ - You have to be pretty tough to be an actor, and you have to be pretty certain what you want. You can’t waffle through this business.
+ - Some nights you might go through an entire performance and not feel a thing, and the audience may have a much better time, ’cause if you’re enjoying yourself on stage too much, they’re having a terrible time because they can’t hear you. And if you’re a woman your mascara’s running.
+ - I never make conscious decisions. If my agent says to me, “It’s a good script,” I’ll do it. I don’t plan. I’ve got a lot of things to do. I’m at the roulette table and my luck seems to be running at the moment. I might as well stay there until it runs out.
+ - Actors I admire? Ed Harris, or course, I think he’s terrific; because I know he always had to fight being what he looked like a lot, but I think he’s a terrific actor.
+ - I can’t stand directors who try to micro-manage everything. When it happens these days I just walk off set, saying if they don’t like the way I’m doing it they can get someone else.
+ - It was a challenge, to work with Oliver Stone.
+ - I was lousy in school. Real screwed-up. A moron. I was antisocial and didn’t bother with the other kids. A really bad student. I didn’t have any brains. I didn’t know what I was doing there. That’s why I became an actor.
+ - I still don’t know what the film was about because all I remember is a whole lot of technical dialogue about a body in a suitcase.
+ - When you’re younger you have so many ideas about yourself; everything is important. It’s not when you look back, nothing is that important. It’s only life.
+ - My life has been a kind of mystery to me. By all my logical, linear thinking I started out in school as a little boy, I didn’t have a clue about anything. What they were talking about in school, couldn’t play sports, couldn’t learn, and I was bottom of the class.
+ - There is nothing to be scared of in movies. It’s a bit scarier going on stage.
+ - I don’t know what acting is, but I enjoy it.
+ - I remember coming to New York in 1974 to do a play here called ‘Equis.’ And I remember the first morning getting up and walking around the streets, and I thought, ‘I’m home.’ I felt really at peace here.
+ - I love traveling. I like to keep moving. I love the big open spaces in America.
+ - I know that some actors and directors like to have intensity on set. I don’t, particularly. Certainly, if they want that, that’s fine, but I can’t work like that.
+ - And I love a scary movie. It makes your toes curl and it’s not you going through it.
+ - I’ve always liked to be a meat and potatoes kind of actor who doesn’t believe in any of the highfalutin stuff about acting, so I tend to be a little bit more cynical.
+ - The knighthood was a tremendous honour, I don’t dismiss it. But I feel embarrassed by the flowery, theatrical stuff that goes with being an actor.
+ - Well, everyone likes movies when they’re a little kid.
+ - I worked with Lawrence Olivier some years ago. He was a great mentor.
+ - That’s what happens if you don’t address the darkness in you. You become repressed and depressed and suicidal.
+ - I became an actor because I didn’t know what else to do. Academically, I wasn’t good.
+ - Oliver Stone is a great director and I’ve seen many films over the years, but I try to create stuff out of my own imagination. I want to break all the rules and mess about with it and make a different movie just for the fun of it.
+ - What is so liberating about this whole business is when you see that big movies are going to come out and then you see them up in Malibu in the little triplex theatre a week later and you think, this is show business. This is the great movie career. And it’s all funded in the shoe box.
+ - When I was a younger actor, I was very immersed in it, very “method” and all that. Now, I don’t give a hoot.
+ - I read a lot, that’s my main hobby. I’ve got an iPad which I store books on and I read voraciously. I’m a slow reader but I’m obsessive. I make references, underline things, cross-reference. I’m an autodidact.
+ - It’s very difficult to liberate yourself from what you’ve learned. You know it’s almost impossible because you learn in order to survive.
+ - Getting old ain’t for the faint of heart.
+ - I’ve had no contact with my daughter for years. That’s her choice. Anyway, you move on. If people don’t want to bother with me, fine. You know, God bless them, and move on.
+ - Sometimes I feel tired and think I ought to give it up, I don’t want to just retire. No, I enjoy it all and you just keep going until the day comes when you can’t do it anymore. And that’s what I want to do.
+ - I always liked to take the plunge, you know, I’d jump in at the deep end and hope that I’d find land somehow, or hope I’d float or survive. That’s more or less the way I’ve gone through my life.
+ - People forget that Mozart wrote for commissions. There’s a thing in psychology where they think if it’s popular, it can’t be serious.
+ - I’m interested in the dream and subconscious mind, the peculiar dream-like quality of our lives, sometime nightmare quality of our lives.
+ - I would like to go back to Wales. I’m obsessed with my childhood and at least three times a week dream I am back there.
+ - My life is not my own business.
+ - I just learn my lines, go on set. Do my preparation, whatever that is. Have a cup of coffee. Say hello to everyone. And be friendly. “Action” – and then do it.
+ - I’m composing and writing music.
+ - You’re not more than one generation from poor white trash, are you, Agent Starling?
+ - The art of acting is not to act. Once you show them more, what you show them, in fact is bad acting.
+ - I look in the mirror and I see the lines, but I don’t care. It’s a good time. I don’t know why it’s such a good time, but it’s a good time.
+ - A census taker once tried to test me. I ate his liver with some fava beans and a nice chianti.
+ - I was called ‘Dumbo,’ like the elephant, as a child because I couldn’t understand things at school.
+ - Acting is just a process of relaxation, actually. Knowing the text so well and trusting that the instinct and the subconscious mind, whatever you want to call it, is going to take over.
+ - I am not very good with relationships. With anyone. I can’t be locked up with anyone for too long.
+ - The whole point of courage, to overcome your fear. That’s the interesting thing, when courage bleeds through the fear.
+ - Once you begin to fall off the track and believe you breathe different air to everyone else, you’re doomed; you’re finished.
+ - My father was grounded, a very meat-and-potatoes man. He was a baker.
+ - You have to have humor. If you don’t have humor and you take yourself seriously, you’re dead in the water. You have to be jostled. I love it. You’ve gotta have a laugh. It’s better than working for a living.
+ - I’m one of the slowest drivers on the road. I mosey along. If you’re doing anything too fast, including living life too fast, that creates sudden death. If I have to be somewhere on time, I make sure I leave early enough.
+ - The magical, supernatural force that is with us every second is time. We can’t even comprehend it. It’s such an illusion, it’s such a strange thing.
+ - When you are at the right age to play Hamlet you are still to young and immature to play it. It is much later, when you get the life experience and the emotional power, that you understand Hamlet or Macbeth.
+ - I worked at the Steel Company Of Wales when I was 17. My job was to supply tools to the guys working the blast furnaces.
+ - I just wanted to be a composer; I became an actor by default, really. I got a scholarship to a college of music and drama, hoping to take a scholarship in music. But I ended up as an acting student, so I’ve stuck with that for the last 50-odd years.
+ - I hate taxing my mind with analysis. I’m not a good analyst. I cannot talk about acting. I hate talking about it. I hate talking about analyzing.
+ - What I do is just go over and over and over my lines and learn the script so well that I can just be easy and relaxed. That’s the way I always work.
+ - I know that the arts are important. I’m not denying that, but I can’t associate myself with all the claptrap that goes on around it.
+ - I always had a knack for improvisation. I can write down the notes I play, but never really had a proper academic musical background. I suppose I’m blessed and cursed by the fact I have that freedom.
+ - I never make conscious decisions.
+ - I tried acting, liked it, and stuck with it. I saw it as the way I would keep that promise to myself of getting back at those who had made my school life a misery.
+ - When you’re younger you’ve got a lot of ideas and you’re probably more insecure. I work with young actors now and I see their insecurities, and I make them laugh because I know exactly what they’re going through. When you get older you think, it’s only a movie after all, it’s not brain surgery.
+ - I play music – I write my own music, but I play music, just background music really, and just let it happen.
+ - I wouldn’t use the word ‘scared’ for my role as Hitchcock, but it was my most insecure. Taking on such a formidable, giant personality such as Hitchcock; he was one of the great geniuses of world cinema. Sheer genius.
+ - I never cling on to hope or certainty. They’re the enemies of peace.
+ - Acting is constricted because you have the lines. But I improvise with it and what I learn on the set. I improvise rhythms and just changes.
+ - On his Hannibal Lector mask: I’ve got it at home. I wear it to bed every night.
+ - When people call me Sir Anthony I just think oh, that’s a bit odd. But I’m not cynical about it. Um, I just feel more comfortable being called Tony or Mr. Hopkins, whatever name I’m called.
+ - I’ve been composing music all my life and if I’d been clever enough at school I would like to have gone to music college.
+ - It created in me a yearning for all that is wide and open and expansive. Something that will never allow me to fit in in my own country, with its narrow towns and narrow roads and narrow kindnesses and narrow reprimands.
+ - I am able to play monsters well. I understand monsters. I understand madmen.
+ - I’ve always been hopeless at everything when I was a kid. That’s why I became an actor – ’cause I couldn’t do anything else.
+ - As a Welshman that can’t sing, I never feel more proud to be Welsh than when I hear the Treorchy Male Choir – the Master Choir of them all. If I could sing I would apply for membership myself.
+ - My weak spot is that I don’t like analyzing so I tend to be a bit lazy; I tend to get bored quickly, which means I must be boring.
+ - The trick is not to get too fanatical about getting the accent too accurate because then that becomes a mask. What I try to do is just painting and sketching some of the sounds without obliterating my own voice.
+ - I always distrust the word art when it is applied to acting.
+ - We all dream. We dream vividly, depending on our nature. Our existence is beyond our explanation, whether we believe in God or we have religion or we’re atheist.
+ - I’m married. My wife, Stella – a beautiful woman. She’s brought a lot of peace to my life, a lot of wisdom.
+ - I was bullied as a boy – lots of kids are, but hopefully most of us get on with our lives and grow up.
+ - I don’t have a vast longing for the stage.
+ - A conductor can’t be too arrogant with an orchestra and try to impose himself too much.
+ - I think doubt is a very healthy way to live.
+ - I am young! Being creative and keeping your brain occupied is very sensible because if you don’t you die, slowly.
+ - My father wasn’t a cruel man. And I loved him. But he was a pretty tough character. His own father was even tougher – one of those Victorians, hard as iron – but my dad was tough enough.
+ - I’ve played a lot of parts. But I don’t look at my feeling is that this is a job. It’s given me a good living.
+ - My weak spot is laziness. Oh, I have a lot of weak spots: cookies, croissants.
+ - I’ve got no need to prove to myself that I can do Shakespeare. I’ve done it.
+ - I like the good life too much, I’m not good at going on stage night after night and on wet Wednesday afternoons.
+ - I’m glad I’m not young anymore. I don’t want to start all over again.
+ - People ask me how did you choose the part and how did you prepare for this work? I just learned the lines and showed up; I don’t know what else to say because that’s all I know how to do.
+ - The movie industry is full of crazy people who think that they are god.
+ - Every time I try to retire, or even think of retiring from acting, my agent comes up with a script.
+ - I wanted revenge; I wanted to dance on the graves of a few people who made me unhappy. It’s a pretty infantile way to go through life – I’ll show them – but I’ve done it, and I’ve got more than I ever dreamed of.
+ - Acting’s entertainment. It’s not brain surgery.
+ - I said once that if they gave me enough money to read the phone book, I’d do it. I live in a total state of non-expectation. I don’t expect things, and I keep my expectations very low about everything.
+ - I don’t push my luck. I don’t worry about the results and therefore everything seems to work out well. That’s something I’ve learnt over the years. The whole thing about the acting business is that it’s a hit-or-miss game so I keep my distance from it.
+ - My life turned out to be beyond my greatest dreams.
+ - Acting is a creative process, and directing and music. I think creative people – and I take myself as a creative person and it doesn’t mean you have to be an actor, a musician, or a painter – but I think if you are in a creative profession or a creative business you do have a heightened awareness.
+ - I think the first British actor who really worked well in cinema was Albert Finney. He was a back-street Marlon Brando. He brought a great wittiness and power to the screen. The best actor we’ve had.
+ - I spent two years in the military service, then I trudged around in repertory for quite a while. I somehow wound up at the National Theatre, though, and then I was definitely on my way.
+ - I’m more and more convinced that life is a dream. What has happened to me is surely a dream.
+ - I’m having a great life. And I’m 73 and they still phone me up and ask me to do a job here and there.
+ - If you’re in a successful play and the play is working well – I mean successful because the audiences like it, the audiences respond well – it’s a pleasure.
+ - I’m just an actor. It’s the way the script is written, and it’s easy. I don’t have think about it. When you receive the script, you know pretty well how to play it, apart from little technicalities like the accent.
+ - I wanted to be a musician but I didn’t have the talent for it, so I decided I wanted to be famous, so I became an actor.
+ - I’m fascinated by the fact that we can’t grasp anything about time.
+ - I don’t mind being a commodity. It’s given me a good life.
+ - My weak spot is laziness. I have a lot of weak spots – cookies, croissants; my wife is always lecturing me about this, I tend to put it all down as habit or it’s just acting.
+ - Certainty is the enemy of mankind. If you’re certain about everything, you have the Inquisition, you have Nazis and you have – that certainty is something to be guarded about.
+ - I’ve always liked American actors particularly. Because that was my first impression. I was very enamoured of America when I was a kid because we were surrounded by American soldiers during the war, the accent was very strange to me, it was very exotic and very captivating.
+ - I’ve felt like an outsider all my life. It comes from my mother, who always felt like an outsider in my father’s family. She was a powerful woman, and she motivated my father.
+ - Hitchcock was such a master of putting on screen things that made you uneasy. Somebody once asked him what frightened him most, and he said the police. He came from a poor background. I think he understood those fears.
+ - When I direct I try to keep it a unique design of my own. Naturally you’re influenced.
+ - I love life because what more is there?
+ - We’re all caught up in circumstances, and we’re all good and evil. When you’re really hungry, for instance, you’ll do anything to survive. I think the most evil thing – well, maybe that’s too strong – but certainly a very evil thing is judgment, the sin of ignorance.
+ - I drank a lot, but I wouldn’t have missed it. I look back on it as sort of dreary enjoyment, because I don’t have to be there anymore.
+ - I couldn’t say I ever dreamt of becoming a composer, a pianist, or anything else for that matter. I have the kind of brain where nothing is set in stone.
+ - If you have high expectations you’re going to get resentments and all kinds of tension.
+ - I’m not unfamiliar with music, and I really do write music. I’ve gotten a talent for it. I don’t have the technical skills, but I do plan to learn.
+
+195 quotes

@@ -1,0 +1,23 @@
+ - Concentrate on counting your blessings and you’ll have little time to count anything else.
+ - When it comes to God’s commands, the issue is not clarity; it’s commitment.
+ - Fervent prayers produce phenomenal results.
+ - Nothing is so sour that it can’t be sweetened by a good attitude.
+ - Glory in Christ and you can bask in His light forever.
+ - If our minds are stayed upon God, His peace will rule the affairs entertained by our minds. If, on the other hand, we allow our minds to dwell on the cares of this world, God’s peace will be far from our thoughts.
+ - There cannot be an answer until there is a prayer.
+ - When adultery walks in, everything worth having walks out.
+ - Quite honestly, most people are quick to “write someone off.” But our God is a God of the second chance. Learn from One who is patient with you, and you’ll learn to be patient with others.
+ - Tolerance is often championed by people who nothing to stand for.
+ - An attitude can murder just as easily as an ax.
+ - A moment of prayerful reflection can prevent a lifetime of bitter regret.
+ - Don’t settle for wishful thinking; make peace in your heart a reality.
+ - Prayer only works when the channels are open.
+ - Prayer is never complete until God has answered.
+ - Victory is never won alone.
+ - Treat the elderly as a nonrenewable resource; they care!
+ - Ultimately, all our complaints are directed against God.
+ - The prayer is up to us; the answer is up to God.
+ - He is a poor man who can only measure his wealth in dollars.
+ - Pray according to faith, not circumstances.
+
+21 quotes

@@ -1,0 +1,34 @@
+ - I got country music in me.
+ - I wanna chase down Denzel Washington, Jamie Foxx, Will Smith. I would love to start my film career.
+ - We never get enough of falling in love and believing in love.
+ - I don’t want to be an old dad.
+ - I hosted Soul train but I listen to everything.
+ - Celebrities have more influence to be able to reach out to people, but people are becoming famous on Facebook and social media every day.
+ - It’s okay to put your heart on your sleeve. Okay to have that softer side – the softer side in the sense of being able to listen, to deal with fear, to not always be so dominant.
+ - After eight years on ‘Young and the Restless’ and eight years on ‘Criminal Minds,’ I’m ready for that next phase of my career.
+ - I’m not a machine. I get really motivated, then I fall off the wagon and want to eat Chinese food and sit on my couch and gain five or 10 pounds!
+ - It was truly a lesson in don’t take something at face value. You know, so many of us do in life. Whether it’s because of how somebody looks or because of what they’re wearing or what have you, you kind of assess a person in the first five minutes before they even speak.
+ - It’s no accident that I’m not married and don’t have kids yet.
+ - I do like working out. I feel my best when I work out, but you know, I’m human. I like to ride my bicycle and lift weights and hike. When I am diligently working out, ideally, I like to work out four days a week. If I can do that, I feel good about myself.
+ - Well, you can’t compete with a six foot five man in a wig.
+ - Let a woman have her place, because as you provide foundation for her, she provides a foundation for you. And through that vulnerability comes strength.
+ - I still have shy qualities but nobody would believe that, just because we’re in the forefront and I can talk a lot of mess and I can run my mouth.
+ - I loved running. I can catch everything in the outfield. I could throw people out from the fence.
+ - But there are still good shows like 24, Boomtown and the Wire, the Shield.
+ - Acting is therapeutic.
+ - Television is in a different time because of reality television, so it’s not as exciting.
+ - Now that I’ve established myself in a drama, I’m plugging away, trying to get the attention of people who do the independent movies and the features.
+ - For me to bring a character to life, you’ve got to be able to find your own truth.
+ - I don’t see myself as a ‘black actor,’ I’m just Shemar Moore the actor.
+ - I admire Brad Pitt, honestly, just because of how he started and the obstacles he had to overcome to have the career that he’s had.
+ - Because I could throw so hard when I got to college, they made me a pitcher. If I had to it all over again, I would have stuck to playing in the outfield. I loved running. I can catch everything in the outfield. I could throw people out from the fence.
+ - I like to make money; I like to have nice things. But I love to act; I love to tell stories.
+ - Denzel has been that leading man, but it took him a while to get to Training Day and Hurricane Carter.
+ - But because I could throw so hard when I got to college they made me a pitcher.
+ - There’s a thing called game, and when you’re out and you’re trying to push up on a female and you’re going, “Yo, I want to be your knight in shining armor,” chances are you’re going to get a drink on your face.
+ - Each morning needs to start with a good sweat. I’m either working out at home or on set, depending on my call time.
+ - Baseball player. Yeah, that was my dream before acting, or alongside acting.
+ - I look at leading men because that’s ultimately what I’m aspiring to do. But I also look at character actors and people that I’m just in awe by, just because I can relate to it.
+ - I could run, but I was throwing 93 mph coming out of high school.
+
+32 quotes

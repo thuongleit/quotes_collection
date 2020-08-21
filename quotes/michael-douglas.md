@@ -1,0 +1,48 @@
+ - Greed, for lack of a better word, is good.
+ - It’s all about bucks, kid. The rest is conversation.
+ - Greed, for lack of a better word, is good. Greed is right. Greed works. Greed clarifies and cuts through to the essence of the evolutionary spirit.
+ - I’m impressed with the people from Chicago. Hollywood is hype, New York is talk, Chicago is work.
+ - Every empire eventually falls.
+ - Relationships are like bubbles – they’re fragile.
+ - Oh, I get it, it’s simple. PG means the hero gets the girl, 15 means that the villain gets the girl, and 18 means everybody gets the girl.
+ - Players never die – they just try their luck at another table.
+ - Cancer did not bring me to my knees, it brought me to my feet.
+ - Sometimes we spend more efforts with people that are strangers in terms of making an impression than the person that’s closest to us. And you just got to remember not to take for granted that person that’s closest to you.
+ - Never knew how poor I was until I started making money.
+ - Being single is pretty good. It’s a nice sense of irresponsibility.
+ - Cigar smoking by it’s very nature is much more reflective than interactive.
+ - Someone reminded me I once said, ‘Greed is good.’ Now it seems it’s legal.
+ - I am a Jew. Those are four words of pride. My Jewishness is as deep as my genes.
+ - My brain cannot conceive how old my body is.
+ - When I look at myself as a younger actor, I see what a tight ass I was. I had a pretty big shadow because of my father and the comparisons. I was self-conscious about that. Now I realize there was nothing to be worried about.
+ - Human Rights for everyone is the necessary foundation upon which all of us may build a world where everybody may live in peace and serenity and plenty.
+ - A fool and his money are lucky enough to get together in the first place.
+ - Money itself isn’t lost or made. It’s simply transferred from one perception to another.
+ - I went into rehab to save my marriage, but I wound up saving myself.
+ - There’s nothing like a family crisis, especially a divorce, to force a person to re-evaluate his life.
+ - When you’re making pictures out of heartfelt passion, it hurts when someone calls them a calculated business move.
+ - I’m not a big filmophile. I don’t watch movies a lot for a hobby. I spend all my time watching sporting events. Because, opposed to movies, you can never tell how they’re going to end.
+ - Chemotherapy takes its toll; the more you keep doing it, you lose your energy, and it gets more difficult to swallow.
+ - What’s worth doing is worth doing for money.
+ - Everybody knows about Las Vegas. It’s a state of mind. Some people want to come with their kids and have a great weekend. Some people want to shop. Some people want to find hookers. Some people want to eat. Some people just want to gamble. It’s a potpourri of decadence.
+ - Actresses have more fear of being disliked. I, on the other hand, revel in it.
+ - It’s a phenomenon that I see with young actors – a lot of American speaking parts going to British actors.
+ - That’s why I’m such a big sports fan, with sports you can never guess what’s gonna happen. Most movies you get halfway through and you can kind of guess the ending.
+ - You have to make entertaining movies. But like a good meal, it’s nice to have a little food for thought after you walk out of the theater rather than just wiling away a couple of hours.
+ - Out there is nothing but possibilities.
+ - A lot of actors get concerned about their own image, even going so far as to rewrite a movie to best serve that image. All I want to do is be in good movies.
+ - We must unite to make nuclear weapons a horror of the past.
+ - Even when you’re acting with a producing hat, when you’re in every scene, you’re really conscious of trying to make everybody as good as they are, because ultimately you’re trying to make the best movie possible.
+ - I’ve always tried to kind of stretch my wings as an actor and do things that are different.
+ - I thought I could never be the actor Dad was, so I avoided it for a while.
+ - Wherever arms flow, violence follows. Bullets replace ballots as the solution to political disputes.
+ - It’s difficult for me to meet women because my crowd is much older. I know that for some of the young women I do meet, a relationship with me can be envisioned as a benefit to their career.
+ - For an actor, its great fun to play one of these hungry white sharks. Audiences love to hate them.
+ - My entire career is contemporary based, not by choice, but just by character. So, all the movies I’ve done, except for one in 40 years, are contemporary. But I never did an effects movie. So, I’m also a producer and I was really curious about how this whole thing went together.
+ - The one thing that men and women have in common – they both like the company of men.
+ - With little knowledge of what it meant to be a Jew, I found myself passionately defending the Jewish people. Now, half a century later, I have to defend my son. Anti-Semitism, I’ve seen, is like a disease that goes dormant, flaring up with the next political trigger.
+ - Basketball is great; no one in Europe seems to believe just how close the spectators can sit to the players.
+ - Everything’s so repressive now – it’s the No generation. You can’t do anything, you can’t eat anything, you have to abstain.
+ - Suddenly you’ve worked yourself up to the top of the pecking order and you say to yourself, okay, this is going to be fun.
+
+46 quotes

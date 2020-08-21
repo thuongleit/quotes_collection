@@ -1,0 +1,41 @@
+ - I don’t feel the need to prove myself to others, but to prove myself to myself.
+ - Do not hate the people who are jealous because they recognize that you are the best.
+ - After love, the man sleeps, while the woman reflects.
+ - I believe that time destroys everything. You can take one beautiful apple, red. After a while, it becomes shrivelled and full of worms, just like what happens to us.
+ - We all need illusions. That’s why we love movies.
+ - When I eat with my friends, it is a moment of real pleasure, when I really enjoy my life.
+ - Love does not go away, it changes.
+ - Usually, I’m only sad when something sad happens. I am not a melancholic person. I like to live very much in the present. If I was an animal, I’d be a little cat. They like to live life.
+ - Envy is human nature.
+ - I am an agnostic, even though I respect and am interested in all religions. If there’s something I believe in, it’s a mysterious energy; the one that fills the oceans during tides, the one that unites nature and beings.
+ - If You want a man to notice you, just wear red lipstick.
+ - An actor works with their soul and their thought.
+ - I think the lawyers are such incredible actors. Can you imagine the performance they have to do every day?
+ - Instead of going to the gym, I dress in black – a lot more practical and much more fun.
+ - It’s not the Jews that killed Christ. It was a political situation, and it was the Romans who killed Jesus. They put Jesus on the cross, not the Jews.
+ - When a relationship doesn’t work anymore, it’s terrible to stay with someone that you don’t love.
+ - I’m not a movie star. I’m just an actress.
+ - Time destroys everything.
+ - Irreversible is not glamorous at all. I try to do different things because I want to grow as an actress and I like to take risks.
+ - I have always loved lipstick. For women, that love comes from our mother and grandmothers. It’s so natural for a woman to open up her mirror and apply lipstick.
+ - When people divorce, it’s always such a tragedy. At the same time, if people stay together it can be even worse.
+ - Beauty becomes alive and interesting when it’s habited.
+ - I’m a lucky person because I’ve been loved a lot. I have a great family.
+ - I have no idea how I’m perceived in America because I don’t live the reality of America.
+ - On her daughter Deva: I didn’t have familiarity with children. I’m learning day after day, with her. And what impress me the most is that she, Deva, is an individual person. But in miniature, she seems to be a special effect.
+ - When I have to go to Cannes, that is boring to me.
+ - Personally, I find it romantic not to be with someone all the time; you don’t get used to someone or take them for granted.
+ - In Italy, the concept of the family is very important.
+ - I feel fine and comfortable with myself, but not because I’m beautiful.
+ - In a couple, sometimes, one or both people have to give up their personal life, dreams and ambitions for the good of the family.
+ - When you see a silent movie, you understand everything that’s going on from the images because the images are so strong.
+ - I live in Paris but I feel I am a daughter of Europe.
+ - In acting process, it’s very difficult to explain. It’s something very intimate, very private.
+ - I come from a Catholic religion, but I’m not Catholic.
+ - People are very passionate in Italy. If you like something, you like something. If you hate something, you hate something. When you hate something, you are screaming.
+ - My career, at the moment, is very exciting, but love comes first because it balances me.
+ - Being an actress is the sublimation of feminity.
+ - When I make an American movie it’s going to come out all over the world-it doesn’t happen the same way for an Italian film or a French film.
+ - When you’re in front of the camera, for a small budget or a big budget movie, there’s no difference.
+
+39 quotes

@@ -1,0 +1,29 @@
+ - Nothing has existence unless you, I, or some living creature perceives it, and how it is perceived further influences that reality. Even time itself is not exempted from biocentrism.
+ - Time is not an absolute reality but an aspect of our consciousness.
+ - Without consciousness, space and time are nothing.
+ - Death is simply a break in our linear stream of consciousness.
+ - Our linear concept of time means nothing to nature.
+ - Amazingly when you add life and consciousness to the equation you can actually explain some of the biggest puzzles of science.
+ - In whatever form it takes, life sings because it has a song. The meaning is in the lyrics.
+ - We don’t have time to wait for President Bush to change his mind. How many breakthroughs have been missed as a result of this policy?
+ - Physics tells us observations can’t be predicted absolutely. Rather, there’s a range of possible observations each with a different probability.
+ - We take for granted how our mind puts everything together.
+ - Any universe that could have preceded consciousness only existed in a probability state.
+ - The laws of nature are structured so that we grow and change, and get to experience the full spectrum of biological existence.
+ - Sometime in the future, science will be able to create realities that we can’t even begin to imagine. As we evolve, we’ll be able to construct other information systems that correspond to other realities, universes based on logic completely different from ours and not based on space and time.
+ - That’s absolutely correct and in addition to that life just isn’t an accident of the laws of physics. There’s a long list of experiments that suggest just the opposite.
+ - Until we recognize the essential role of biology, our attempts to truly unify the universe will remain a train to nowhere.
+ - We have failed to protect science against speculative extensions of nature, continuing to assign physical and mathematical properties to hypothetical entities beyond what is observable in nature.
+ - For example, if the big bang had been one-part-in-a billion more powerful, it would have rushed out too fast for the galaxies to form and for life to begin.
+ - So for instance it becomes clear why space and time and even the properties of matter itself depend on the observer in consciousness. In fact when you take this point of view it even explains why the laws of the universe themselves are fine tuned for the existence of life.
+ - Space and time, not proteins and neurons, hold the answer to the problem of consciousness. When we consider the nerve impulses entering the brain, we realize that they are not woven together automatically, any more than the information is inside a computer.
+ - Today’s preoccupation with physical theories of everything takes a wrong turn from the purpose of science – to question all things relentlessly. Modern physics has become like Swift’s kingdom of Laputa, flying absurdly on an island above the earth and indifferent to what is beneath.
+ - Religion and science look at reality differently.
+ - When you turn from one room to the next, when your animal senses no longer perceive the sounds of the dishwasher, the ticking clock, the smell of a chicken roasting – the kitchen and all its seemingly discrete bits dissolve into nothingness – or into waves of probability.
+ - I do not think that there is a reputable scientist on this planet who would advocate using this technology to generate a human child as was just announced.
+ - So someday in the near future hopefully rather than having a foot or a leg amputated we’ll just give you an injection of the cells and restore the blood flow. We’ve also created entire tubes of red blood cells from scratch in the laboratory. So there are a lot of exciting things in the pipeline.
+ - Our intention is not to create cloned human beings, but rather to make lifesaving therapies for a wide range of human disease conditions, including diabetes, strokes, cancer, AIDS, and neurodegenerative disorders such as Parkinson’s and Alzheimer’s disease.
+ - Reality is observer-determined – it’s a spatio-temporal process, which fortunately means that things must change.
+ - Modern science cannot explain why the laws of physics are exactly balanced for animal life to exist.
+
+27 quotes

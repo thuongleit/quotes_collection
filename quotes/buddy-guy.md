@@ -1,0 +1,29 @@
+ - Blues musicians don’t retire. They drop.
+ - It’s kind of hard to keep going sometimes but you just have to believe in what you are and what you can do and that’s the way to success.
+ - Blues is like American Express. I don’t leave home without it.
+ - So here I am – a 75-year-old man sitting on a bar stool in a blues club, trying to figure out exactly how I got here. Any way you look at it, it’s a helluva story.
+ - I’ve never missed a gig yet. Music makes people happy, and that’s why I go on doing it – I like to see everybody smile.
+ - Once I was checking to hotel and a couple saw my ring with Blues on it. They said, ‘You play blues. That music is so sad.’ I gave them tickets to the show, and they came up afterwards and said, ‘You didn’t play one sad song.’
+ - I love what I’m doing. And the world is so mad at everybody. If I do something to make people smile, I’m going to say, I got you. For that moment, if it don’t last, I made you forget about the other thing you might have been thinking about.
+ - When you play the guitar, you don’t have to say nothing. The girls would say something to you.
+ - I’m gonna play something so funky you can smell it.
+ - Your mind is on vacation and your mouth is working overtime.
+ - When I went to Chicago, I’ll put it like this: I was looking for a dime and I found a quarter.
+ - I’m going through a divorce now. This is the second one, and like baseball, I’m not gonna get three strikes. I’ve been living by myself for five years and I’m very comfortable. I can play my guitar when I want to.
+ - If you don’t think you have the blues, just keep living.
+ - Standing between these two guys you’d have to be me to know how I’m feelin’!
+ - Listen to the lyrics – we’re singing about everyday life: rich people trying to keep money, poor people tying to get it, and everyone having trouble with their husband or wife!
+ - When you catch me playing something at home, it’s somebody else’s stuff where I can what we call steal licks from, and that’s how I taught myself how to play.
+ - What I do is when I go to the stage I forget about me.
+ - Even the disc jockeys are saying, if I play your record, I made you. You got to play for me free.
+ - I learn everything I play by listening to somebody else.
+ - I was denied a record contract for 15 years, so I’m not going to be too picky about what I do. I don’t have the juice to say no too many times.
+ - Everyone thinks because you’re from the south you know everyone down there, but it’s not like that; I never knew nothing about no Mississippi.
+ - If you don’t think you’ve got the blues, just keep living, and if you don’t think you’re drunk, just keep drinking what you’re drinking.
+ - Don’t be the best in town. Just try to be the best until the best come around.
+ - Why did they keep changing guitars and amplifiers when they were perfect? They did the same things with cars, if you ask me. They forgot how to make them right, because they focused on style and bells and whistles.
+ - The jazz and blues clubs are like the jazz and blues musicians – they’re disappearing.
+ - I can’t learn nothing from listening to me. That’s something I already know.
+ - I said, I’m going to stand up and somebody is going to pay attention to me.
+
+27 quotes

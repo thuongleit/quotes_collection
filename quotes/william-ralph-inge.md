@@ -1,0 +1,109 @@
+ - We have enslaved the rest of the animal creation, and have treated our distant cousins in fur and feathers so badly that beyond doubt, if they were able to formulate a religion, they would depict the Devil in human form.
+ - The happy people are those who are producing something; the bored people are those who are consuming much and producing nothing.
+ - The proper time to influence the character of a child is about a hundred years before he is born.
+ - What is originality? Undetected plagiarism.
+ - The enemies of freedom do not argue; they shout and they shoot.
+ - It is useless for the sheep to pass resolutions in favor of vegetarianism, while the wolf remains of a different opinion.
+ - Gambling is a disease of barbarians superficially civilized.
+ - The whole of nature, as has been said, is a conjugation of the verb to eat, in the active and in the passive.
+ - Democracy is only an experiment in government, and it has the obvious disadvantage of merely counting votes instead of weighing them.
+ - Literature flourishes best when it is half a trade and half an art.
+ - Faith is an act of self-consecration, in which the will, the intellect, and the affections all have their place.
+ - Bereavement is the deepest initiation into the mysteries of human life, an initiation more searching and profound than even happy love.
+ - Worry is interest paid on trouble before it comes due.
+ - We must cut our coat according to our cloth, and adapt ourselves to changing circumstances.
+ - The happy people are those who are producing something...
+ - The church that is married to the spirit of this age, becomes a widow in the next.
+ - Bereavement is the sharpest challenge to our trust in God; if faith can overcome this, there is no mountain which it cannot remove.
+ - If the universe is running down like a clock, the clock must have been wound up at a date which we could name if we knew it. The world, if it is to have an end in time, must have had a beginning in time.
+ - The game of life is worth playing, but the struggle is the prize.
+ - There are no rewards or punishments – only consequences.
+ - Nature takes away any faculty that is not used.
+ - The wealth of a soul is measured by how much it can feel; its poverty by how little.
+ - The whole of creation, with all of its laws, is a revelation of God.
+ - Don’t break the silence unless you can improve on it.
+ - A cat can be trusted to purr when she is pleased, which is more than can be said for human beings.
+ - In imperialism nothing fails like success. If the conqueror oppresses his subjects, they will become fanatical patriots, and sooner or later have their revenge; if he treats them well, and governs them for their good, they will multiply faster than their rulers, till they claim their independence.
+ - The happiest people seem to be those who have no particular cause for being happy except that they are so.
+ - Love remembered and consecrated by grief belongs, more clearly than the happy intercourse of friends, to the eternal world; it has proved itself stronger than death.
+ - Deliberate cruelty to our defenceless and beautiful little cousins is surely one of the meanest and most detestable vices of which a human being can be guilty.
+ - My dear, we live in an age of transition.
+ - Civilization is being poisoned by its own waste products.
+ - The fruit of the tree of knowledge always drives man from some paradise or other; and even the paradise of fools is not an unpleasant abode while it is habitable.
+ - The modern world belongs to the half-educated, a rather difficult class, because they do not realize how little they know.
+ - Philosophy means thinking things out for oneself. Ultimately, there can be only one true philosophy, since reason is one and we all live in the same world.
+ - Hatred toward any human being cannot exist in the same heart as love to God.
+ - The Devil deserves zero tolerance.
+ - Joy is the triumph of life; it is the sign that we are living our true life as spiritual beings.
+ - Beautiful thoughts hardly bring us to God until they are acted upon. No one can have a true idea of right until he does it.
+ - Civilization is a disease which is almost invariably fatal.
+ - No Christian can be a pessimist, for Christianity is a system of radical optimism.
+ - A man is never so truly and intensely himself as when he is most possessed by God. It is impossible to say where, in the spiritual life, the human will leaves off and divine grace begins.
+ - The great discovery of the nineteenth century, that we are of one blood with the lower animals, has created new ethical obligations which have not yet penetrated the public conscience. The clerical profession has been lamentably remiss in preaching this obvious duty.
+ - We tolerate shapes in human beings that would horrify us if we saw them in a horse.
+ - A good government remains the greatest of human blessings and no nation has ever enjoyed it.
+ - They who will live for others shall have great troubles, but they shall seem to them small. Those who will live for themselves shall have small troubles, but they shall seem to them great.
+ - The church is only a secular institution in which the half-educated speak to the half-converted.
+ - The wisdom of the wise is an uncommon degree of common sense.
+ - Let none of us delude himself by supposing that honesty is always the best policy. It is not.
+ - I have no fear that the candle lighted in Palestine years ago will ever be put out.
+ - The jealous man is so preoccupied with what he hasn’t got that he fails to appreciate the value of what he has got. He loses the ability to feel glad because the sun is shining. He doesn’t see the wonder and the newness of the beginning of spring.
+ - Religion is caught, not taught.
+ - A man may build himself a throne of bayonets, but he cannot sit on it.
+ - The world belongs to those who think and act with it, who keep a finger on its pulse.
+ - Experience is a good teacher, but her fees are very high.
+ - A nation is a society united by a delusion about its ancestry and by common hatred of its neighbours.
+ - Man, as we know him, is a poor creature; he is halfway between an ape and a god and he is travelling in the right direction.
+ - Nobody is bored when he is trying to make something that is beautiful or to discover something that is true.
+ - To become a popular religion, it is only necessary for a superstition to enslave a philosophy.
+ - Theater is, of course, a reflection of life. Maybe we have to improve life before we can hope to improve theater.
+ - Public opinion, a vulgar, impertinent, anonymous tyrant who deliberately makes life unpleasant for anyone who is not content to the average person.
+ - Don’t get up from the feast of life without paying for your share of it.
+ - Experience proves that none is so cruel as the disillusioned sentimentalist.
+ - We should think of the church as an orchestra in which the different churches play on different instruments while a Divine Conductor calls the tune.
+ - Patriotism varies, from a noble devotion to a moral lunacy.
+ - Faith always contains an element of risk, of venture; and we are impelled to make the venture by the affinity and attraction which we feel in ourselves.
+ - The effect of boredom on a large scale in history is underestimated. It is a main cause of revolutions, and would soon bring to an end all the static Utopias and the farmyard civilization of the Fabians.
+ - Take away fear, and the battle of Freedom is half won.
+ - Originality, I fear, is too often only undetected and frequently unconscious plagiarism.
+ - The wise man is he who knows the relative value of things.
+ - The greatest obstacle to progress is not man’s inherited pugnacity, but his incorrigible tendency to parasitism.
+ - Beneath the dingy uniformity of international fashions in dress, man remains what he has always been; a splendid fighting animal, a self-sacrificing hero, and a blood thirsty savage.
+ - I think middle-age is the best time, if we can escape the fatty degeneration of the conscience which often sets in at about fifty.
+ - Boredom is a certain sign that we are allowing our faculties to rust in idleness.
+ - Prayer gives a man the opportunity of getting to know a gentleman he hardly ever meets. I do not mean his maker, but himself.
+ - Every institution not only carries within it the seeds of its own dissolution, but prepares the way for its most hated rival.
+ - Our test is infallible. Whatever view of reality deepens our sense of the tremendous issues of life in the world wherein we move, is for us nearer the truth than any view which diminishes that sense.
+ - Events in the past may be roughly divided into those which probably never happened and those which do not matter.
+ - The object of studying philosophy is to know one’s own mind, not other peoples.
+ - The right use of leisure is no doubt a harder problem than the right use of our working hours. The soul is dyed the color of its leisure thoughts.
+ - Many people believe that they are attracted by God, or by Nature, when they are only repelled by man.
+ - Over-population is a phenomenon connected with the survival of the unfit, and it is a mechanism which has created conditions favourable to the survival of the unfit and the elimination of the fit.
+ - I have never understood why it should be considered derogatory to the Creator to suppose that he has a sense of humour.
+ - Christianity promises to make men free; it never promises to make them independent.
+ - Each generation takes a special pleasure in removing the household gods of its parents from their pedestals, and consigning them to the cupboard.
+ - The soul is dyed by the color of its leisure hours.
+ - Let us remember, when we are inclined to be disheartened, that the private soldier is a poor judge of the fortunes of a great battle.
+ - Admiration for ourselves and our institutions is too often measured by our contempt and dislike for foreigners.
+ - True faith is belief in the reality of absolute values.
+ - Man will never be entirely willing to give up this world for the next nor the next world for this.
+ - A monarch frequently represents his subjects better that an elected assembly; and if he is a good judge of character he is likely to have more capable and loyal advisers.
+ - In praising science, it does not follow that we must adopt the very poor philosophies which scientific men have constructed. In philosophy they have much more to learn than to teach.
+ - In dealing with Englishmen you can be sure of one thing only, that the logical solution will not be adopted.
+ - The vulgar mind always mistakes the exceptional for the important.
+ - The average man is rich enough when he has a little more than he has got.
+ - The statistics of suicide show that, for non-combatants at least, life is more interesting in war than in peace.
+ - It is becoming impossible for those who mix at all with their fellow-men to believe that the grace of God is distributed denominationally.
+ - All faith consists essentially in the recognition of a world of spiritual values behind, yet not apart from, the world of natural phenomena.
+ - All human love is a holy thing, the holiest thing in our experience.
+ - It is astonishing with how little wisdom mankind can be governed, when that little wisdom is its own.
+ - Action is the normal completion of the act of will which begins as prayer. That action is not always external, but it is always some kind of effective energy.
+ - It is quite natural and inevitable that, if we spend sixteen hours daily of our waking lives in thinking about the affairs of the world and five minutes in thinking about God and our souls, this world will seem two hundred times more real to us than God.
+ - When our first parents were driven out of Paradise, Adam is believed to have remarked to Eve, “My dear, we live in an age of transition.”
+ - There is no law of progress. Our future is in our own hands, to make or to mar. It will be an uphill fight to the end, and would we have it otherwise? Let no one suppose that evolution will ever exempt us from struggles. ‘You forget,’ said the Devil, with a chuckle, ’that I have been evolving too.
+ - Faith is an act of rational choice, which determines us to act as if certain things were true, and in the confident expectation that they will prove to be true.
+ - There is no limit to the noble aspirations which the words “my country” may evoke.
+ - No healthy civilization can ever be reared on a foundation of devitalized work.
+ - Consciousness is a phase of mental life which arises in connection with the formation of new habits. When habit is formed, consciousness only interferes to spoil our performance.
+
+107 quotes

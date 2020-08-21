@@ -1,0 +1,34 @@
+ - Not all of us are called to die a martyr’s death, but all of us are called to have the same spirit of self-sacrifice and love to the very end as these martyrs had.
+ - God is the Truth. The Bible is the truth about the Truth. Theology is the truth about the truth about the Truth.
+ - God will judge us not according to how much we endured, but how much we could love.
+ - A man really believes not what he recites in his creed, but only the things he is ready to die for.
+ - There was once a fiddler who played so beauitully that everybody danced. A deaf man who could not hear the music considered them all insane. Those who are with Jesus in suffering hear this music to which other men are deaf. They dance and do not care if they are considered insane.
+ - A faith that can be destroyed by suffering is not faith.
+ - We should never stop at having won a soul for Christ. By this, we have done only half the work. Every soul won for Christ must be made to be a soul-winner.
+ - A flower, if you bruise it under your feet, rewards you by giving you its perfume.
+ - We are weak little Davids. But we are stronger than the Goliath of atheism, because God is on our side. The truth belongs to us.
+ - What can we do to win these men to Christ?
+ - Our conscience illuminated by the Holy Spirit as we search the Scriptures will show us in every circumstance the right way.
+ - A Communist officer told a Christian he was beating, ‘I am almighty, as you suppose your God can be. I can kill you.’ The Christian answered, ‘The power is all on my side. I can love you while you torture me to death.’
+ - Jesus said, “Teach all nations.” He never said that we need governmental permission to evangelize. Faithfulness to God and the Great Commission compels us to reach beyond borders to people in restricted nations.
+ - Let us be on the side of those who sit in jails and are sentenced to death for their faith. Let us pray for them and help them.
+ - I have found truly jubilant Christians only in the Bible, in the Underground Church and in prison.
+ - Whoever wishes to meet Jesus must meet him in places where brothers and sisters of Jesus are hungry, thirsty, naked, unwanted, sick or in prison. Whoever keeps himself distant from these places remains distant from Jesus.
+ - If a Christian really believed that his neighbor will be tortured in all eternity in Hell, he should try day and night to persuade him to repent and believe. How sad that this doesn’t happen.
+ - When an engineer has built a bridge, the fact that a cat can pass over the bridge is no proof that the bridge is good. A train must pass over it to prove its strength.
+ - Consider as sin any minute of life spent on something other than saving souls for eternity from this world doomed to destruction.
+ - In prayer, something like an echo takes place. When you strike a note on the piano, corresponding strings in all the other pianos in the room start to vibrate. It is just the same when we express a pure wish in our ardent prayers: all around us we mobilize angels who are inspired by the same wish.
+ - The living Jesus will give you joy amid tribulation.
+ - The human heart by nature seeks after God. There is a spiritual vacuum in every man until it is filled by Christ.
+ - We cannot always judge man for only one part of his attitude. If we did so, we would be like the Pharisees in whose eyes Jesus was seen as bad, because He did not respect their rules about the Sabbath. They closed their eyes entirely to what would have lovable in Jesus, even in their sight.
+ - I have decided to denounce communism, though I love the Communists. I don’t find it to be right to preach the gospel without denouncing communism.
+ - Montefiore’s impression of Jesus was wrong. Jesus loved the Pharisees, although He denounced them publicly. And I love the Communists, as well as their tools in the Church, although I denounce them.
+ - We must win rulers; political, economic, scientific, artistic personalities. They are the engineers of souls. They mold the souls of men. Winning them, you win the people they lead and influence.
+ - As communist atheists allowed no place for Jesus in their hearts, I decided I’d leave not the smallest place for satan in mine.
+ - It was in prison that we found the hope of salvation for the Communists. It was there that we developed a sense of responsibility toward them. It was in being tortured by them that we learned to love them.
+ - Some tell me Preach the pure gospel! This reminds me that the Communist secret police also told me to preach Christ, but not to mention communism. Is it really so, that those who are for what is called a pure gospel are inspired by the same spirit as those of the Communist secret police?
+ - Some leaders of denominations are not of the Bride of Christ. They are leaders in a Church in which many have long since betrayed the Master. When they meet someone of the Underground Church, a martyr, they look at him strangely.
+ - Writers around the world protested when two Communist writers, Siniavski and Daniel, were sentenced to prison by their own comrades. But not even churches protest when Christians are put in prison for their faith.
+ - God must be very great to have created a world that leaves a mystery as to whether he created it.
+
+32 quotes

@@ -1,0 +1,37 @@
+ - Love changes everything. Days are longer, words mean more. Love changes everything. Pain is deeper than before. Love can turn your world around, and that world will last forever.
+ - No matter what they tell you, no matter what they do, no matter what they teach you, what you believe is true.
+ - What strikes me is that theres a very fine line between success and failure. Just one ingredient can make the difference.
+ - I often think of random melodies. And I pretty much hear in my head what I want to do with the orchestra as I’m writing on the piano.
+ - No more memories, no more silent tears. No more gazing across the wasted years. Help me say goodbye.
+ - You’re the luckiest person in the entire world if you know what you really want to do, which I was lucky enough to know when I was very young. And you’re the luckiest person in the world if you can then make a living out of it.
+ - People in Britain always think of ‘Jesus Christ Superstar’ as a musical – it wasn’t.
+ - In Evita I wasn’t really hugely involved with it. I gave a little bit of help but they needed a bit of technical help on the movie and so some of my music people went in at the end of the movie and helped out with it.
+ - I’m going to take the kids away over Christmas but I don’t, I’ve written 14 musicals now, I don’t want to rush into doing something just for the sake of doing it. I want to do it when I find a story.
+ - I don’t think I am that materialistic, actually. Obviously at home in the country the art collection is important, but we have one big room in the middle of the house where we do everything – the television, the kitchen, everything.
+ - Softly, deftly, music shall caress you. Hear it, feel it, Secretly possess you.
+ - I have lived and worked in Britain all my life. Not even in the dark days of penal Labour taxation in the Seventies did I have any intention of leaving the country of my birth.
+ - Surely, you go to the theater because you want to have a great evening in the theater.
+ - And it sort of jogged a memory of something that I read at school and I read it, and I thought God this is it. So you never can tell. I could find something this afternoon.
+ - Nobody seems to think it’s a good idea to mention mistakes, but I think it’s important to acknowledge the mistakes you’ve made in life, because it’s really through those that you learn things. I’ve made hundreds...
+ - We don’t have butlers. Obviously we have people who look after the houses, but I try not to run things formally.
+ - I guess the thing is that we remained huge friends after the original Phantom movie, when we decided it wouldn’t take place and we just saw each other socially over the years so we were friends.
+ - Corny answer is of course is that everyone who wants musicals are children in different ways, aren’t they? So you think of them in different ways. There are things of mine I’m sorry haven’t come here.
+ - If you know what you want to do, as I always loved musicals, and then to have been lucky enough to be successful with them, I think that’s all you can ask isn’t it? I think I don’t really think too much about it. I am a bit shy socially, yeah, I admit that.
+ - Music, architecture and pictures have always been my passions, and all that material wealth has meant for me, is being able to have some of the pictures I liked.
+ - The moment the doctor said he wanted to do a biopsy, in my heart I thought I’d probably got it. But I also know a lot of people who have also had prostate cancer, so I had a reasonably good idea what to expect.
+ - Negative things, and they were all deliberate and I’m not going to say who they were but I know who they were and it was in the business, and that’s not a good sign.
+ - Two years ago I hadn’t even thought of the Woman in White, and I was doing a television show and I said I hadn’t found a story and the next day somebody rang me and said have you ever thought of the Woman in White.
+ - Well we’d just seen Gerry. I think he wanted somebody who had that authority and was handsome. The thing is, he’s a big hunk isn’t he? All I can say, if you look at his chat line, or the Phantom website, it’s quite worrying. Because the girls really seem to love him.
+ - I knew nothing about film at all. I suppose the biggest surprise is all these things. In the theatre we sort of do, I might do two or three key interviews and that would be it.
+ - Love can make a summer fly, or a night seem like a lifetime.
+ - The regrets in the theatre have always been the shows that you know ought to have worked but for one reason or another haven’t.
+ - I would have gone right ahead but the only thing, the only phenomenon that’s going on now of course, which is different in my experiences, is that you are getting things planted in the Net by people about the Woman in White on the Net. That’s not a nice change.
+ - It doesn’t stand up to huge intellectual scrutiny.
+ - As a composer at a point where I can absolutely pick and choose what I want to do, I don’t want to write about anybody I don’t care about.
+ - I’ve got to find something and if I find something that I like, I’ll do it. If I don’t, I won’t.
+ - I guess we’ve had a very close relationship because I don’t pretend to know about cinema and I think I do know a bit about theatre but he does, he respected that and so we really just had a collaboration which went completely like this.
+ - The next few years are going to be horrendous in the UK. The last thing we need is a Somali pirate-style raid on the few wealth creators who still dare to navigate Britain’s gale-force waters.
+ - Superstar was made so early in my career I had nothing to do with it at all. The first time I saw it was the opening screening.
+ - All I’ve ever tried to do is get the best out of people and to bring a bit of humour into it. Unlike, say, ‘The X-Factor,’ which may be great TV, but has no humour at all.
+
+35 quotes

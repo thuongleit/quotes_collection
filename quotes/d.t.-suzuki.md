@@ -1,0 +1,66 @@
+ - I am an artist at living – my work of art is my life.
+ - Emptiness which is conceptually liable to be mistaken for sheer nothingness is in fact the reservoir of infinite possibilities.
+ - When we start to feel anxious or depressed, instead of asking, “What do I need to get to be happy?” The question becomes, “What am I doing to disturb the inner peace that I already have?”
+ - That’s why I love philosophy: no one wins.
+ - Life, according to Zen, ought to be lived as a bird flies through the air, or as a fish swims in the water.
+ - Dhyana is retaining one’s tranquil state of mind in any circumstance, unfavorable as well as favorable, and not being disturbed or frustrated even when adverse conditions present themselves one after another.
+ - Great works are done when one is not calculating and thinking.
+ - To live – is that not enough?
+ - Zen teaches nothing; it merely enables us to wake up and become aware. It does not teach, it points.
+ - Zen has no business with ideas.
+ - Technical knowledge is not enough. One must transcend techniques so that the art becomes an artless art, growing out of the unconscious.
+ - Who would then deny that when I am sipping tea in my tearoom I am swallowing the whole universe with it and that this very moment of my lifting the bowl to my lips is eternity itself transcending time and space?
+ - To be a good Zen Buddhist it is not enough to follow the teaching of its founder; we have to experience the Buddha’s experience.
+ - We do not realize that as soon as our thoughts cease and all attempts at forming ideas are forgotten the Buddha reveals himself before us.
+ - We teach ourselves; Zen merely points the way.
+ - Implicity, there should be something mysterious in every day.
+ - To point at the moon a finger is needed, but woe to those who take the finger for the moon...
+ - The truth of Zen is the truth of life, and life means to live, to move, to act, not merely to reflect.
+ - Fundamentally the marksman aims at himself.
+ - The ego-shell in which we live is the hardest thing to outgrow.
+ - Zen approaches it from the practical side of life-that is, to work out Enlightenment in life itself.
+ - Zen in it’s essence is the art of seeing into the nature of one’s being, and it points the way from bondage to freedom.
+ - The claim of the Zen followers that they are transmitting the essence of Buddhism is based on their belief that Zen takes hold of the enlivening spirit of the Buddha, stripped of all its historical and doctrinal garments.
+ - Facts of experience are valued in Zen more than representations, symbols, and concepts-that is to say, substance is everything in Zen and form nothing.
+ - When I say that Zen is life, I mean that Zen is not to be confined within conceptualization, that Zen is what makes conceptualization possible.
+ - Zen is the spirit of a man. Zen believes in his inner purity and goodness. Whatever is superadded or violently torn away, injures the wholesomeness of the spirit. Zen, therefore, is emphatically against all religious conventionalism.
+ - The waters are in motion, but the moon retains its serenity.
+ - You ought to know how to rise above the trivialities of life, in which most people are found drowning themselves.
+ - To Zen, time and eternity are one.
+ - Unless it grows out of yourself no knowledge is really yours, it is only borrowed plumage.
+ - Unless we die to ourselves, we can never be alive again.
+ - As soon as you raise a thought and begin to form an idea of it, you ruin the reality itself, because you then attach yourself to form.
+ - Zen wants us to acquire an entirely new point of view whereby to look into the mysteries of life and the secrets of nature. This is because Zen has come to the definite conclusion that the ordinary logical process of reasoning is powerless to give final satisfaction to our deepest spiritual needs.
+ - Zen Makes use, to a great extent, of poetical expressions; Zen is wedded to poetry.
+ - The intuitive recognition of the instant, thus reality is the highest act of wisdom.
+ - If I am asked If I am asked, then, what Zen teaches, I would answer, Zen teaches nothing. Whatever teachings there are in Zen, they come out of one’s own mind. We teach ourselves; Zen merely points the way.
+ - I raise my hand; I take a book from the other side of this desk; I hear the boys playing ball outside my window; I see the clouds blown away beyond the neighboring woods:-in all these I am practicing Zen, I am living Zen. No worldly discussion is necessary, or any explanation.
+ - We have two eyes to see two sides of things, but there must be a third eye which will see everything at the same time and yet not see anything. That is to understand Zen.
+ - Enlightenment is like everyday consciousness but two inches above the ground.
+ - A simple fishing boat in the midst of the rippling waters is enough to awaken in the mind of the beholder a sense of vastness of the sea and at the same time of peace and contentment – the Zen sense oof the alone.
+ - Unless we agree to suffer we cannot be free from suffering.
+ - Not to be bound by rules, but to be creating one’s own rules-this is the kind of life which Zen is trying to have us live.
+ - The contradiction so puzzling to the ordinary way of thinking comes from the fact that we have to use language to communicate our inner experience, which in its very nature transcends linguistics.
+ - Eternity is the Absolute present.
+ - The truth of Zen, just a little bit of it, is what turns one’s humdrum life, a life of monotonous, uninspiring commonplaceness, into one of art, full of genuine inner creativity.
+ - Among the most remarkable features characterizing Zen we find these: spirituality, directness of expression, disregard of form or conventionalism, and frequently an almost wanton delight in going astray from respectability.
+ - Zen has nothing to teach us in the way of intellectual analysis; nor has it any set doctrines which are imposed on its followers for acceptance.
+ - When mountain-climbing is made too easy, the spiritual effect the mountain exercises vanishes into the air.
+ - We can see unmistakeably that there is an inner relationship between Zen and the warrior’s life.
+ - The worst passion we mortals cherish is the desire to possess. Even when we know that our final destination is a hole not more than three feet square, we have the strongest craving.
+ - Personal experience, therefore, is everything in Zen. No ideas are intelligible to those who have no backing of experience.
+ - One has not understood until one has forgotten it.
+ - The meaning of service is to do the work assigned ungrudgingly and without thought of personal reward material or moral.
+ - The mind has first to be attuned to the Unconscious.
+ - Let the intellect alone, it has its usefulness in its proper sphere, but let it not interfere with the flowing of the life-stream.
+ - When traveling is made too easy and comfortable, its spiritual meaning is lost. This may be called sentimentalism, but a certain sense of loneliness engendered by traveling leads one to reflect upon the meaning of life, for life is after all a travelling from one unknown to another unknown.
+ - The right art is purposeless, aimless! The more obstinately you try to learn how to shoot the arrow for the sake of hitting the goal, the less you will succeed in the one and the further the other will recede.
+ - The fighter is to be always single-minded with one object in view: to fight, looking neither backward nor sidewise. To go straight forward in order to crush the enemy is all that is necessary for him.
+ - The mistake consists in our splitting into two what is really and absolutely one. Is not life one as we live it, which we cut to pieces by recklessly applying the murderous knife of intellectual surgery?
+ - If you have attained something, this is the surest proof that you have gone astray. Therefore, not to have is to have, silence is thunder, ignorance is enlightenment.
+ - Zen opens a man’s eyes to the greatest mystery as it is daily and hourly performed; it enlarges the heart to embrace eternity of time and infinity of space in its every palpitation; it makes us live in the world as if walking in the garden of Eden.
+ - The greatest productions of art, whether painting, music, sculpture or poetry, have invariably this quality-something approaching the work of God.
+ - Copying is slavery. The letter must never be followed, only the spirit is to be grasped. Higher affirmations live in the spirit. And where is the spirit? Seek it in your everyday experience, and therein lies abundance of proof for all you need.
+ - Art always has something of the unconscious about it.
+
+64 quotes

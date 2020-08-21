@@ -1,0 +1,112 @@
+ - You create your opportunities by asking for them.
+ - Every time you don’t follow your inner guidance, you feel a loss of energy, loss of power, a sense of spiritual deadness.
+ - The union of feminine and masculine energies within the individual is the basis of all creation.
+ - This or something better now manifests for me in totally satisfying and harmonious ways, for the highest good of all concerned.
+ - Assertiveness is not what you do, it’s who you are!
+ - Practice following your intuition in everyday things, trusting your gut feelings moment by moment and acting on them as best you can. As you learn to trust yourself in smaller matters, you will build power and confidence to take bigger risks and deal with the larger issues in your life successfully.
+ - Every moment presents a new opportunity and a new decision.
+ - Our bodies communicate to us clearly and specifically, if we are willing to listen to them.
+ - Spiritual healing occurs as we begin to consciously reconnect with our essential being – the wise, loving, powerful, creative entity that we are at our core.
+ - The universe will reward you for taking risks on its behalf.
+ - May you be blessed with everything your heart desires.
+ - All of us as human beings are connected by one energy and consciousness. So we all affect each other and everything that’s happening in the world affects us individually. And what we’re each doing as an individual affects what’s going on in the world.
+ - Whatever our individual troubles and challenges may be, it’s important to pause every now and then to appreciate all that we have, on every level. We need to literally ‘count our blessings,’ give thanks for them, allow ourselves to enjoy them, and relish the experience of prosperity we already have.
+ - When you see beauty anywhere, it’s a reflection of yourself.
+ - Learning to trust our intuition is an art form, and like all other art forms, it takes practice to perfect.
+ - One law of energy is this: energy of a certain quality or vibration tends to attract energy of a similar quality and vibration.
+ - Trusting your intuition means tuning in as deeply as you can to the energy you feel, following that energy moment to moment, trusting that it will lead you where you want to go and bring you everything you desire.
+ - Each one of us has all the wisdom and knowledge we ever need right within us. It is available to us through our intuitive mind, which is our connection with universal intelligence.
+ - The more light you allow within you, the brighter the world you live in will be.
+ - Eventually I lost interest in trying to control my life, to make things happen in a way that I thought I wanted them to be. I began to practice surrendering to the universe and finding out what “it” wanted me to do.
+ - When we consistently suppress and distrust our intuitive knowingness, looking instead for authority, validation, and approval from others, we give our personal power away.
+ - In order to cause a shadow to disappear, you must shine light on it.
+ - Every moment of your life is infinitely creative and the universe is endlessly bountiful.
+ - We avoid the things that we’re afraid of because we think there will be dire consequences if we confront them. But the truly dire consequences in our lives come from avoiding things that we need to learn about or discover.
+ - By learning to contact, listen to, and act on our intuition, we can directly connect to the higher power of the universe and allow it to become our guiding force.
+ - In order to heal themselves, people must recognize, first, that they have an inner guidance deep within and, second, that they can trust it.
+ - When you truly give up trying to be whole through others, you end up receiving what you always wanted from others.
+ - Our primary relationship is really with ourselves. Our relationships with other people constantly reflect exactly where we are in the process.
+ - It isn’t necessary to be perfect to be a channel for the universe. You just have to be real- be yourself. The more real, honest, and spontaneous you are, the more freely the creative force can flow through you.
+ - Spirit is the essence of consciousness, the energy of the universe that creates all things. Each one of us is a part of that spirit – a divine entity. So the spirit is the higher self, the eternal being that lives within us.
+ - When we finally give up the struggle to find fulfillment “out there,” we have nowhere to go but within. It is at this moment of total surrender that a new light begins to dawn.
+ - We may overcompensate for our feelings of powerlessness by attempting to control and manipulate other people and our environment. Or we may eventually burst forth with uncontrolled rage that is highly exaggerated and distorted by its long suppression.
+ - Following our inner guidance may feel risky and frightening at first, because we are no longer playing it safe, doing what we ‘should’ do, pleasing others, following rules, or deferring to outside authority.
+ - The more willing you are to surrender to the energy within you, the more power can flow through you.
+ - When you’re following your energy and doing what you want all the time, the distinction between work and play dissolves.
+ - Anything in life that we don’t accept will simply make trouble for us until we make peace with it.
+ - A deadness occurs in relationships when people are no longer willing to tell each other how they really feel.
+ - The process of change does not occur on superficial levels, through mere ‘positive thinking.’ It involves exploring, discovering, and changing our deepest, most basic attitudes toward life.
+ - Your intuition will tell you where you need to go; it will connect you with people you should meet; it will guide you toward work that is meaningful for you – work that brings you joy, work that feels right for you.
+ - You can love other people only to the degree that you’ve come to love and accept yourself.
+ - We always attract into our lives whatever we think about most, believe in most strongly, expect on the deepest level, and imagine most vividly.
+ - Ambition is an idol, on whose wings great minds are carried only to extreme; to be sublimely great or to be nothing.
+ - Imagining what you want as if it already exists opens the door to letting it happen.
+ - To whatever degree you listen and follow your intuition, you become a creative channel for the higher power of the universe.
+ - Problems are messages.
+ - Every one of us comes into this life with lessons to learn and gifts to give.
+ - The key point to understand is that prosperity is an internal experience, not an external state, and it is an experience that is not tied to having a certain amount of money.
+ - The most successful people are often very intuitive. Consciously or unconsciously, they follow their gut feelings. Following intuition puts us in the flow – a very alive, productive, and desirable state.
+ - Poverty on both a personal and worldwide level is supported by our collective belief in scarcity.
+ - Not being in touch with your vulnerability and not learning to own it and accept it and be comfortable with it leaves you in a position where you’re liable to look at and judge other people for being vulnerable because they’re reflecting that part of yourself that you’re not comfortable with.
+ - My true relationship is with myself – all others are simply mirrors of it.
+ - We can learn to move into the unknown with the confidence that we have a guiding force within us that is showing us the way.
+ - By viewing our relationships with friends, family, and co-workers as mirrors, as teachers – we see that they are reflecting back to us exactly what we most need to learn.
+ - We will discover the nature of our particular genius when we stop trying to conform to our own or other people’s models, learn to be ourselves, and allow our natural channel to open.
+ - I am convinced that life in a physical body is meant to be an ecstatic experience.
+ - When I’m trusting and being myself as fully as possible, everything in my life reflects this by falling into place easily, often miraculously.
+ - Most of us have considerable prosperity in our lives. Often, we are so busy pursuing our unmet desires that we are unable to enjoy all that we already have. Allowing ourselves to really appreciate the prosperity we have created is a big step toward opening to even greater fulfillment.
+ - While no amount of financial wealth can guarantee an experience of prosperity, it is possible to experience prosperity at almost any level of income, except when we are unable to meet our basic physical needs.
+ - As I learn to love myself, I recieve the love I desire from others.
+ - We don’t have in our culture a healthy understanding and respect for the value of Being, which is simply being present in the moment, not trying to go somewhere, not trying to accomplish anything but, just present.
+ - We live in a culture that doesn’t acknowledge or validate human intuition and doesn’t encourage us to rely on our intuitive wisdom.
+ - People who really want to be in a relationship are IN one.
+ - We all have within us a deep wisdom, but sometimes we don’t know we have it.
+ - If we look honestly at our relationships, we can see so much about how we have created them.
+ - If you constantly think of illness, you eventually become ill; if you believe yourself to be beautiful, you become so.
+ - I’m especially interested in relationships since that is a part of life that causes enormous pain for many people.
+ - We are attracted to people who express the qualities we deny or repress in ourselves.
+ - Much of the Western world emphasizes rationality and reason, but overlooks or ignores the enormous value of intuition and instinctive wisdom.
+ - No scoundrel is so stupid as to not find a reason for his vile conduct.
+ - My willingness to be intimate with my own deep feelings creates the space for intimacy with another.
+ - Freedom and relationship are polar opposites – they both exist on the same continuum. You DO want a relationship – and you DO want freedom – what you really want is BALANCE, you want wholeness.
+ - Since money is energy, our financial affairs tend to reflect how our life energy is moving. When your creative energy is flowing freely, often your finances are as well. If your energy is blocked, your money does too.
+ - We, as spiritual beings, created the physical world as a place to learn. It’s our school, our playground, our artist’s studio. I beleive that we’re here to master the process of creation – to learn how to consciously channel the creative energy of spirit into physical form.
+ - The people we are in relationships with are always a mirror, reflecting our own beliefs, and simultaneously we are mirrors, reflecting their beliefs.
+ - We shouldn’t ignore any guidance that comes from the mind – we should listen to our minds AND balance mental messages with intuitive messages. We need both to navigate our way through life.
+ - Our relationship to money reflects how we feel about our power to affect the world. Since money is a mirror of our consciousness, the more comfortable we are with being powerful, the more money we are likely to create in our lives.
+ - The universe will pay you to be yourself and do what you really love.
+ - Notice what happens when you follow your intuitive feelings. The result is usually increased energy and power, and a sense of things flowing.
+ - An affirmation is a strong, positive statement that something is already so.
+ - My inner guidance is there for me to call on anytime I need or want extra clarity, wisdom, knowledge, support, creative inspiration, love, or companionship.
+ - While prosperity is in some ways related to money, it is not caused by money.
+ - What I am actually saying is that we need to be willing to let our intuition guide us, and then be willing to follow that guidance directly and fearlessly.
+ - I believe that everybody needs to tell their story – to be heard, to be seen, to be acknowledged, to be understood. We all want that, deep down inside – and writing a book is a great way to make sense of your own experience and to share it with others.
+ - Everything in the universe wants to be loved and accepted. Our personal work is to find the love and acceptance within ourselves.
+ - When I wrote Living in the Light, I wanted to share about how I live my own life and to encourage people to tap into their own inner wisdom.
+ - When we create something, we always create it first in a thought form. If we are basically positive in attitude, expecting and envisioning pleasure, satisfaction and happiness, we will attract and create people, situations, and events which conform to our positive expectations.
+ - A painful time in our life is what I call a healing crisis. We are letting go of something old and opening to something new.
+ - As we begin to love and appreciate ourselves as we are, our channels open and we access the infinite vitality of life force.
+ - Your intuition is not the same thing as your mind. In fact, intuition is really the opposite of your mind – and you need to use BOTH in living your day-to-day life.
+ - Mind and intuition are at opposite ends of the same continuum and our goal is to strike a healthy balance between the two.
+ - In the Western world there isn’t much value given to the necessity for just being quiet. And just resting, and just being, without a focus or a goal. At least a certain amount in our lives – we don’t need to do half and half; it’s okay if we’re doing a lot of doing, we just need some being mixed in.
+ - Most of us are in touch with our intuition whether we know it or not, but we’re usually in the habit of doubting or contradicting it so automatically that we don’t even know it has spoken.
+ - Through lovingly embracing the full range of our experience- human and divine- we can heal the split that existed between the spirit and the form, in ourselves individually and in the whole world.
+ - The body is our primary feedback mechanism which can show us what is and isn’t working about our ways of thinking, expressing, and living. As we live our truth more fully and freely, our body grows healthier, stronger, and more beautiful.
+ - As long as we focus on the outside, there will always be that empty, hungry, lost place inside that needs to be filled.
+ - If I could identify one core problem about the world, it’s that we’ve been taught to distrust ourselves.
+ - The more we learn to operate in the world based on trust in our intuition, the stronger our channel will be and the more money we will have.
+ - I was looking for what the meaning of life was.
+ - All our relationships, especially the deep ones, stir up the deepest issues for us that we need to confront and work with.
+ - Change happens not by trying to make yourself change, but by becoming conscious of what’s not working.
+ - Very seldom do we receive any support for trusting ourselves, listening to our own sense of inner truth, and expressing ourselves in a direct and honest way.
+ - As human beings we have vulnerabilities. We also have power, but we can’t just be powerful all the time.
+ - I think in the Western world we have gotten overly identified with doing, and we’ve kind of forgotten about the art of being. And we don’t see value in it; we think that if you’re not doing something all of the time, being very active and producing something, then you’re sort of wasting your time.
+ - I believe we are all geniuses-each in our own unique way.
+ - Individually and collectively, we are shifting from a position of fear into surrender and trust of the intuitive. The power of the feminine energy is on the rise in our world.
+ - Everything that happens to us can be looked at as a gift. Although it’s quite difficult when you’re in the middle of a hard struggle with something, it’s hard to see it as a gift, but in retrospect, we can almost always look back and say, “Oh, I see why I had to go through that.”
+ - Your intuition will most likely push you gently toward taking some appropriate risks and trying new things.
+ - When you’re riding a bike you’re more connected to the outdoors and to other people than you are when you are stuck in your car.
+ - Our life is a reflection of what we believe we deserve. As we deepen our acceptance of and open ourselves to the Infinite love of the universe, a new power flows through us, releasing us from the bondage of our old way of life.
+ - We have to get good at being with ourselves before we can hope to be good at being in relationships with others.
+
+110 quotes

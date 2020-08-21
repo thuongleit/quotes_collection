@@ -1,0 +1,128 @@
+ - Education is freedom.
+ - Education is an act of love, and thus an act of courage.
+ - If the structure does not permit dialogue the structure must be changed.
+ - Because love is an act of courage, not of fear, love is a commitment to others. No matter where the oppressed are found, the act of love is commitment to their cause – the cause of liberation.
+ - Reading is not walking on the words; it’s grasping the soul of them.
+ - Washing one’s hands of the conflict between the powerful and the powerless means to side with the powerful, not to be neutral.
+ - Learning is a process where knowledge is presented to us, then shaped through understanding, discussion and reflection.
+ - Leaders who do not act dialogically, but insist on imposing their decisions, do not organize the people – they manipulate them. They do not liberate, nor are they liberated: they oppress.
+ - Reading the word and learning how to write the word so one can later read it are preceded by learning how to write the world, that is having the experience of changing the world and touching the world.
+ - Liberating education consists in acts of cognition, not transferrals of information.
+ - I cannot be a teacher without exposing who I am.
+ - Only through communication can human life hold meaning.
+ - The educator has the duty of not being neutral.
+ - Education is suffering from narration sickness.
+ - The oppressed, instead of striving for liberation, tend themselves to become oppressors.
+ - For apart from inquiry, apart from the praxis, individuals cannot be truly human. Knowledge emerges only through invention and re-invention, through the restless, impatient, continuing, hopeful inquiry human beings pursue in the world, with the world, and with each other.
+ - It would be extremely naive to expect the dominant classes to develop a type of education that would enable subordinate classes to perceive social injustices critically.
+ - Through dialogue, the teacher-of-the-students and the students-of-the-teacher cease to exist and a new term emerges: teacher-student with students-teachers.
+ - The greatest humanistic and historical task of the oppressed: to liberate themselves...
+ - Critical reflection on practice is a requirement of the relationship between theory and practice. Otherwise theory becomes simply “blah, blah, blah, ” and practice, pure activism.
+ - Dialogue cannot exist without humility.
+ - A revolutionary leadership must accordingly practice co-intentional education.
+ - In problem-posing education, people develop their power to perceive critically the way they exist in the world with which and in which they find themselves; they come to see the world not as a static reality, but as a reality in process, in transformation.
+ - If it is in speaking their word that people, by naming the world, transform it, dialogue imposes itself as the way by which they achieve significance as human beings.
+ - No one can be authentically human while he prevents others from being so.
+ - The teacher is of course an artist, but being an artist does not mean that he or she can make the profile, can shape the students. What the educator does in teaching is to make it possible for the students to become themselves.
+ - To study is not to consume ideas, but to create and re-create them.
+ - Looking at the past must only be a means of understanding more clearly what and who they are so that they can more wisely build the future.
+ - Reflection and action must never be undertaken independently.
+ - Without a minimum of hope, we cannot so much as start the struggle.
+ - Attempting to liberate the oppressed without their reflective participation in the act of liberation is to treat them as objects that must be saved from a burning building.
+ - No one is born fully-formed: it is through self-experience in the world that we become what we are.
+ - To speak a true word is to transform the world.
+ - Love is an act of courage.
+ - Whereas banking education anesthetizes and inhibits creative power, problem-posing education involves a constant unveiling of reality. The former attempts to maintain the submersion of consciousness; the latter strives for the emergence of consciousness and critical intervention in reality.
+ - Implicit in the banking concept is the assumption of a dichotomy between human beings and the world: a person is merely in the world, not with the world or with others; the individual is spectator, not re-creator.
+ - Liberation is a praxis: the action and reflection of men and women upon their world in order to transform it.
+ - The oppressed, having internalized the image of the oppressor and adopted his guidelines, are fearful of freedom.
+ - Education must begin with the solution of the teacher-student contradiction, by reconciling the poles of the contradiction so that both are simultaneously teachers and students.
+ - Within the word we find two dimensions-reflection and action. If one is sacrificed even in part, the other immediately suffers. To speak a true word is to transform the world.
+ - In order for the oppressed to be able to wage the struggle for their liberation, they must perceive the reality of oppression not as a closed world from which there is no exit, but as a limiting situation which they can transform.
+ - Dehumanization, although a concrete historical fact, is not a given destiny but the result of an unjust order that engenders violence in the oppressors, which in turn dehumanizes the oppressed.
+ - One of the methods of manipulation is to inoculate individuals with the bourgeois appetite for personal success.
+ - There is, in fact, no teaching without learning.
+ - Whoever teaches learns in the act of teaching, and whoever learns teaches in the act of learning.
+ - The behavior of the oppressed is a prescribed behavior, following as it does the guidelines of the oppressor.
+ - True generosity consists precisely in fighting to destroy the causes which nourish false charity.
+ - Being tolerant does not mean acquiescing to the intolerable; it does not mean covering up disrespect; it does not mean coddling the aggressor or disguising aggression. Tolerance is the virtue that teaches us to live with the different. It teaches us to learn from and respect the different.
+ - Dialogue cannot exist, however, in the absence of a profound love for the world and its people.
+ - Welfare programs as instruments of manipulation ultimately serve the end of conquest. They act as an anesthetic, distracting the oppressed from the true causes of their problems and from the concrete solutions of these problems.
+ - How can I be an educator if I do not develop in myself a caring and loving attitude toward the student, which is indispensable on the part of one who is committed to teaching and to the education process itself.
+ - People in communion liberate each other.
+ - The road to revolution involves openness to the people, not imperviousness to them; it involves communion with the people, not mistrust.
+ - It is only the oppressed who, by freeing themselves, can free their oppressors.
+ - Authentic thinking, thinking that is concerned about reality, does not take place in ivory tower isolation, but only in communication. If it is true that thought has meaning only when generated by action upon the world, the subordination of students to teachers becomes impossible.
+ - The role of the problem-posing educator is to create, together with the students, the conditions under which knowledge at the level of the doxa is superseded by true knowledge, at the level of the logos.
+ - It is in our incompleteness, of which we are aware, that education as a permanent process is grounded. Women and men are capable of being educated only to the extent that they are capable of recognizing themselves as unfinished.
+ - The atmosphere of the home is prolonged in the school, where the students soon discover thatin order to achieve some satisfaction they must adapt to the precepts which have ben set from above. One of these precepts is not to think.
+ - What if we discover that our present way of life is irreconcilable with our vocation to become fully human?
+ - Problem-posing education affirms men and women as beings in the process of becoming.
+ - The earliest language was body language and, since this language is the language of questions, if we limit the questions, and if we only pay attention to or place values on spoken or written language, then we are ruling out a large area of human language.
+ - It doesnt hurt to repeat here the statement, still rejected by many people in spite of its obviousness, that education is a political act.
+ - Sometimes a simple, almost insignificant gesture on the part of a teacher can have a profound formative effect on the life of a student.
+ - Freedom is acquired by conquest, not by gift. It must be pursued constantly and responsibly. Freedom is not an ideal located outside of man; nor is it an idea which becomes myth. It is rather the indispensable condition for the quest for human completion.
+ - The world is split between those who do not sleep because they are hungry and those who do not sleep because they are afraid of those who are hungry.
+ - For cultural invasion to succeed, it is essential that those invaded become convinced of their intrinsic inferiority.
+ - Experience teaches us not to assume that the obvious is clearly understood.
+ - The multitude is always in the wrong.
+ - The hope of remaking the world is indispensable in the struggle of oppressed men and women.
+ - No reality transforms itself.
+ - The oppressed find in the oppressors their model of ‘manhood.’
+ - How can the oppressed, as divided, unauthentic beings, participate in developing the pedagogy of their liberation?
+ - No matter how much someone may irritate me, I have no right to puff myself up with my own self-importance so as to declare that person to be absolutely incompetent, assuming a posture of disdain from my own position of false superiority.
+ - The oppressors develop a series of methods precluding any presentation of the world as a problem and showing it rather as a fixed entity, as something given – something to which people, as mere spectators, must adapt.
+ - This capacity to go beyond the factors of conditioning is one of the obvious advantages of the human person.
+ - The behavior and reactions of the oppressed, which lead the oppressor to practice cultural invasion, should evoke from the revolutionary a different theory of action. What distinguishes revolutionary leaders from the dominant elite is not only their objectives, but their procedures.
+ - It’s no sin to make a critical study of Brazil’s reality. A small percentage own land. Most people don’t.
+ - Every society needs to examine itself in relation to other societies.
+ - This pedagogy makes oppression and its causes objects of reflection by the oppressed, and from that reflection will come their necessary engagement in the struggle for their liberation. And in the struggle this pedagogy will be made and remade.
+ - I hope at least that the following will endure: my trust in the people, and my faith in men and women, and in the creation of a world in which it will be easier to love.
+ - Teacher preparation should go beyond the technical preparation of teachers and be rooted in the ethical formation both of selves and of history.
+ - Education as the exercise of domination stimulates the credulity of the students.
+ - Coherently democratic authority carries the conviction that true discipline does not exist in the muteness of those who have been silenced but in the stirrings of those who have been challenged, in the doubt of those who have been prodded, and in the hopes of those who have been awakened.
+ - To glorify democracy and to silence the people is a farce; to discourse on humanism and to negate people is a lie.
+ - It is essential for the oppressed to realize that when they accept the struggle for humanization they also accept, from that moment, their total responsibility for the struggle.
+ - It is not systematic education which somehow molds society, but, on the contrary, society which, according to its particular structure, shapes education in relation to the ends and interests of those who control the power in that society.
+ - The unfinished character of human beings and the transformational character of reality necessitate that education be an ongoing activity.
+ - This is the sense in which I am obliged to be a listener. To listen to the student’s doubts, fears, and incompetencies that are part of the learning process. It is in listening to the student that I learn to speak with him or her.
+ - In sum: banking theory and practice, as immobilizing and fixating forces, fail to acknowledge men and women as historical beings; problem-posing theory and practice take the people’s historicity as their starting point.
+ - The trust of the people in the leaders reflects the confidence of the leaders in the people.
+ - Faith in people is an a priori requirement for dialogue.
+ - In order for the oppressed to unite they must first cut the umbilical cord of magic and myth which binds them to the world of oppression; the unity which links them to each other must be of a different nature.
+ - In order to have the continued opportunity to express their “generosity” the oppressors must perpetuate injustice as well.
+ - Revolution is born as a social entity within the oppressor society.
+ - One cannot expect positive results from an educational or political action program which fails to respect the particular view of the world held by the people. Such a program constitutes cultural invasion, good intentions notwithstanding.
+ - To affirm that men and women are persons and as persons should be free, and yet to do nothing tangible to make this affirmation a reality, is a farce.
+ - I am dealing with people and not with things. And, because I am dealing with people, I cannot refuse my wholehearted and loving attention, even in personal matters, where I see that a student is in need of such attention.
+ - One cannot conceive of objectivity without subjectivity.
+ - Certain members of the oppressor class join the oppressed in their struggle for liberation.
+ - The intellectual activity of those without power is always characterized as non-intellectual.
+ - The oppressors do not perceive their monopoly on having more as a privilege which dehumanizes others and themselves. They cannot see that, in the egoistic pursuit of having as a possessing class, they suffocate in their own possessions and no longer are; they merely have.
+ - The oppressors do not favor promoting the community as a whole, but rather selected leaders.
+ - Any attempt to treat people as semihumans only dehumanizes them...
+ - Teachers who do not take their own education seriously, who do not study, who make little effort to keep abreast of events have no moral authority to coordinate the activities of the classroom.
+ - The role of the educator is one of tranquil possession of certitude in regard to the teaching of not only contents but also of ‘correct thinking.’
+ - Indeed, some “revolutionaries” brand as “innocents,” “dreamers,” or even “reactionaries”; those who would challenge this educational practice. But one does not liberate people by alienating them. Authentic liberation – the process of humanization – is not another deposit to be made in men.
+ - It is not possible to remake this country, to democratize it, humanize it, make it serious, as long as we have teenagers killing people for play and offending life, destroying the dream, and making love unviable. If education alone cannot transform society, without it society cannot change either.
+ - To teach is part of the very fabric of learning.
+ - It is absolutely essential that the oppressed participate in the revolutionary process with an increasingly critical awareness of their role as subjects of the transformation.
+ - I am an educator who thinks globally.
+ - Submission to suffering is a form of annihilation, but transformation of suffering rekindles a faith that gives life.
+ - One of my major preoccupations is the approximation between what I say and what I do, between what I seem to be and what I am actually becoming.
+ - Those truly committed to liberation must reject the banking concept in its entirety, adopting instead a concept of women and men as conscious beings and consciousness as consciousness intent upon the world.
+ - It is necessary that the weakness of the powerless is transformed into a force capable of announcing justice. For this to happen, a total denouncement of fatalism is necessary. We are transformative beings and not beings for accommodation.
+ - Just as it is important in Latin America to discuss ideas that come from North America, I think it is interesting for North Americans to discuss ideas that come from Latin America or Africa and do not insert themselves into capitalist interests.
+ - To simply think about the people, as the dominators do, without any self-giving in that thought, to fail to think with the people, is a sure way to cease being revolutionary leaders.
+ - I have never said, as is sometimes believed, or even suggested that lower-class children should not learn the so-called educated norm of the Portuguese language of Brazil. What I have said is that the problems of language always involve ideological questions and, along with them, questions of power.
+ - The more we become able to become a child again, to keep ourselves childlike, the more we can understand that because we love the world and we are open to understanding, to comprehension, that when we kill the child in us, we are no longer.
+ - Educators need to know what happens in the world of the children with whom they work. They need to know the universe of their dreams, the language with which they skillfully defend themselves from the aggressiveness of their world, what they know independently of the school, and how they know it.
+ - The revolutionary’s role is to liberate, and to be liberated, with the people – not to win them over.
+ - It is not suprising that the banking concept of education regards men as adaptable, manageable beings.
+ - A fact which is not denied but whose truths are rationalized loses its objective base. It ceases to be concrete and becomes a myth created in defense of the class of the perceiver.
+ - The more people participate in the process of their own education, and the more people participate in defining what kind of production to produce, and for what and why, the more people participate in the development of their selves. The more people become themselves, the better the democracy.
+ - There is no true word that is not at the same time a praxis. Thus, to speak a true word is to transform the world.
+ - It would be a contradiction in terms if the oppressors not only defended but actually implemented a liberating education.
+ - Individuals who were submerged in reality, merely feeling their needs, emerge from reality and perceive the causes of their needs.
+
+126 quotes

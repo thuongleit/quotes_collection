@@ -1,0 +1,61 @@
+ - The strength of the team is each individual member. The strength of each member is the team.
+ - Good teams become great ones when the members trust each other enough to surrender the Me for the We.
+ - Always keep an open mind and a compassionate heart.
+ - Leadership is not about forcing your will on others. It’s about mastering the art of letting go.
+ - You can’t force your will on people. If you want them to act differently, you need to inspire them to change themselves.
+ - Approach the game with no preset agendas and you’ll probably come away surprised at your overall efforts.
+ - Make your work your play and your play your work.
+ - If you meet the Buddha in the lane, feed him the ball.
+ - When the mind is allowed to relax, inspiration often follows.
+ - Not only is there more to life than basketball, there’s a lot more to basketball than basketball.
+ - My first act after being named head coach of the Bulls was to formulate a vision for the team. I had to take into account not only what I wanted to achieve, but how I was going to get there.
+ - Once you’ve done the mental work, there comes a point you have to throw yourself into the action and put your heart on the line. That means not only being brave, but being compassionate towards yourself, your teammates and your opponents.
+ - Remember, Team, surrender the me for the we.
+ - The ideal way to win a championship is step by step.
+ - Winning is important to me, but what brings me real joy is the experience of being fully engaged in whatever I’m doing.
+ - Love is the force that ignites the spirit and binds teams together.
+ - In basketball – as in life – true joy comes from being fully present in each and every moment, not just when things are going your way.
+ - The road to freedom is a beautiful system.
+ - The greatness of Michael Jordan is his competitive drive. The weakness of Michael Jordan is his competitive drive.
+ - The most we can hope for is to create the best possible conditions for success, then let go of the outcome. The ride is a lot more fun that way.
+ - No one plays this or any game perfectly. It’s the guy who recovers from his mistakes who wins.
+ - Coaching is about, “How do I get people to play at their peak level?” It is a spiritual quest. And if it’s not that, you don’t have a challenge, you don’t have a mission. Forming a brotherhood and trying to move it forward – that’s what coaching is.
+ - Wisdom is always an overmatch for strength.
+ - I gave it my body and mind, but I have kept my soul.
+ - Basketball is sharing.
+ - You’re only a success for the moment that you complete a successful act.
+ - I think the most important thing about coaching is that you have to have a sense of confidence about what you’re doing.
+ - My philosophy is that you can’t motivate players with speeches, you have motivated players that you draft. That’s where they come in and those are the guys that are competitive. You cannot teach competitiveness.
+ - Basketball is a simple game. Your goal is penetration, get the ball close to the basket, and there are three ways to do that. Pass, dribble and offensive rebound.
+ - Your problems never cease, they just change.
+ - Coaching is salesmanship. Coaching is winning players over and convincing them they have to play together. It takes a team conviction to play together to make things work.
+ - I don’t believe in curfews, because you can’t treat men like they were boys without forfeiting a certain level of trust.
+ - What moves me is watching young men bond together and tap into the magic that arises when they focus with their whole heart and soul on something greater than themselves. Once you’ve experienced that, it’s something you never forget.
+ - If we can accept whatever hand we’ve been dealt – no matter how unwelcome – the way to proceed eventually becomes clear.
+ - I won’t coach this team next year if he is still here. He won’t listen to anyone. I’ve had it with this kid.
+ - Yes, victory is sweet, but it doesn’t necessarily make life any easier the next season or even the next day.
+ - Basketball is a sport that involves the subtle interweaving of players at full speed to the point where they are thinking and moving as one.
+ - It takes a number of critical factors to win an NBA championship, including the right mix of talent, creativity, intelligence, toughness, and of course, luck. But if a team doesn’t have the most essential ingredient – love – none of those other factors matter.
+ - Basketball, unlike football with its prescribed routes, is an improvisational game, similar to jazz. If someone drops a note, someone else must step into the vacuum and drive the beat that sustains the team.
+ - I’m a patient person. I think that’s one thing that I feel comfortable I can deal with – the downfall and the errors, as long as I see progress and people trying.
+ - Like life, basketball is messy and unpredictable. It has its way with you, no matter how hard you try to control it. The trick is to experience each moment with a clear mind and open heart. When you do that, the game – and life – will take care of itself.
+ - He practiced against Kobe all of last year, so obviously it was sweet revenge for him. We deserved that. We didn’t know who he was, we gave him up to Charlotte, we had no idea how good a player he was.
+ - The bigger your head, the easier to fill your shoes.
+ - I’m not trying to find answers anymore. I’m trying to live what I know.
+ - I will have Derek Fisher wear all 5 of his rings the first time he comes in to talk to Carmelo.
+ - For us tall people, the whole key is that your hips and your knees should form a right angle when you sit down. That’s where backs and hips get to be problems for big guys.
+ - An acrobatic dunk will make it onto Sports Center. A simple, unspectacular bounce pass in the rhythm of the offense will not. System basketball has been replaced by players who want to be the system.
+ - A coach’s main job is to reawaken a spirit in which the players can blend together effortlessly.
+ - If you give the future all your attention, the present will pass you by.
+ - I thrive on challenges, and there is no more imposing challenge for someone in my profession than winning an NBA title.
+ - I think the most rewarding part of the job, and I think most coaches would say it, is practice. If you have it, a very good practice in which you have 12 guys participate, and they can really get something out of it, lose themselves in practice.
+ - Pau is one of the best big men in the game. I mean, Pau Gasol is going to be in the Hall of Fame.
+ - Tomorrow gives a beck’ning hand – I turn my face away; I’ll not invite her to my home – I only love Today.
+ - I played hockey in North Dakota growing up and watch a lot of that.
+ - I’m not going to coach again. I’ve done my coaching, and I think I can put that aside.
+ - The problem with trading dominant players of that size is you never get in return what you’ve bargained away.
+ - I think people forgot that there are still ways you can get the ball inside rather than just standing there and throwing the ball in. You have to have a system that makes all things work.
+ - I’m a sports-watcher. I played football and baseball, coached baseball. So I watch those things.
+ - Everybody has an opportunity to play a role, a playmaking role, so it makes it harder to coach. It takes a little more time.
+
+59 quotes

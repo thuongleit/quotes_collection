@@ -1,0 +1,66 @@
+ - You always have two choices: your commitment versus your fear.
+ - If you want to be the best, baby, you’ve got to work harder than anybody else.
+ - My handicap? Man, I am a one-eyed, black Jew! That’s my handicap!
+ - You have to be able to look back at your life and say, “Yeah, that was fun.”
+ - Sober up, and you see and hear everything you’d been able to avoid hearing before.
+ - The ultimate mystery is one’s own self.
+ - Savor the moments that are warm and special and giggly.
+ - On a scale of one to ten, I would rate Elvis eleven.
+ - You name it and I’ve done it. I’d like to say I did it my way. But that line, I’m afraid, belongs to someone else.
+ - I have to be a star like another man has to breathe.
+ - My home has always been show business.
+ - A man is not complete until he has seen the baby he has made.
+ - All I really had was my talent. Without that I wouldn’t be welcome at the White House.
+ - Real success is not on the stage, but off the stage as a human being, and how you get along with your fellow man.
+ - The manic pursuit of success cost me everything I could love: my wife, my three children, some friends I would have liked to grow old with.
+ - To appear on the stage drunk, to have them leave there and remember me making drunken mistakes, that was death.
+ - I was so opposed to the war in Vietnam that I initially refused President Nixon’s urgings for me to go there.
+ - I don’t have many easy songs.
+ - Everything Michael Jackson does on stage is exactly right.
+ - There’s nothing that can match Broadway for stature and dignity.
+ - You don’t swing where you sleep.
+ - Reality is never as bad as a nightmare, as the mental tortures we inflict on ourselves.
+ - Imitations only better the original.
+ - In terms of addiction, there is nothing more powerful than men’s toys.
+ - I’d learned a lot in the Army. I knew that above all things in the world I had to become so big, so strong that people and their hatred could never touch me.
+ - You can be in this business 50 years and still not know anything about it.
+ - The civil rights movement wasn’t easy for anybody.
+ - What have I got? No looks, no money, no education. Just talent.
+ - Ten million dollars after I’d become a star I was deeply in debt.
+ - Part of show business is magic. You don’t know how it happens.
+ - We can’t answer King’s assassination with violence. That would be the worst tribute we could pay him.
+ - The one thing you don’t want is that stale sound when you’ve done a line so much you can’t find a fresh approach to it. Drop it.
+ - There are lines that I know are going to get a belly laugh, but after a few shows I get sick of hearing myself say them so I drop them.
+ - Marilyn and I were rumored to be an item. We were friends. Nothing more. Marilyn was one of the sweetest creatures that ever lived.
+ - The success of the Rat Pack or the Clan was due to the camaraderie, the three guys who work together and kid each other and love each other.
+ - My mother was born in San Juan. So I’m Puerto Rican, Jewish, colored and married to a white woman. When I move into a neighborhood, people start running four ways at the same time.
+ - Wishing, hoping and regretting are the most common and dangerous tactics for evading the present.
+ - Alcohol gives you infinite patience for stupidity.
+ - Tap dancing all started with the old clog waltz.
+ - After I decided to become a Jew, only then did I learn that the Jews don’t have all the money. When I found out Rockefeller and Ford were goyim, I almost resigned.
+ - Most orgies that you go to, I have found, most of it is sad. All that wildness, all those laughs were like the shining silver and gold paper on packages, but there was nothing inside.
+ - I bought a house in the Hollywood Hills and brought my grandmother from Harlem to live in it with me.
+ - Once I get outside my house in the morning, I’m on.
+ - If you want to get known as a singer you hire five sexy chicks and let them fight over you onstage and for the cameras. That’s publicity, man.
+ - Sinatra is the essence of vocal style. This man has an innate quality of knowing what is good musically. You can sum that up best by saying that he has musical integrity. Even when he does a bad song, there’s a good quality in the presentation.
+ - When you lose a lover it’s like getting a bad haircut. It grows back in time.
+ - Bogart could have been color blind. He got to know a man before he decided if he liked him or not.
+ - May was young and beautiful, we were legally married, but she was caught in the prison of my skin.
+ - Being in public with May and the children was too heavy. I was irreversibly tuned in to everyone around us.
+ - Fame comes with its own standard. A guy who twitches his lips is just another guy with a lip twitch – unless he’s Humphrey Bogart.
+ - I had more clothes than I had closets, more cars than garage space, but no money.
+ - I didn’t hate being 60 as much as I had 50.
+ - I believed in Bobby Kennedy. Campaigning for him was an attempt to give back something to this country that has given me so much.
+ - There are certain romances that belong in certain cities, in a certain atmosphere, in a certain time.
+ - When Liza Minelli was a child, she used to sit on my lap and call me Uncle Sammy.
+ - The only person I ever hurt was myself and even that I did to the minimum. If you can do that and you’re still functioning, you’re the luckiest person in the world.
+ - I saw that my image was changing or fading. One of the reasons for taking a break from clubs was to be missed-not forgotten.
+ - I wasn’t anything special as a father. But I loved them and they knew it.
+ - Though I love the luxury of the Waldorf Towers, room service there doesn’t do soul food.
+ - I go to temple a lot less than I would like because when I do, people still look at me as if they think it’s a publicity stunt.
+ - I had traveled 10 states and played over 50 cities by the time I was 4.
+ - During three decades, along all the highways of my youth, Frank had always been there for me.
+ - I hadn’t been in Vegas 20 minutes when I got word that the bookmakers were offering three to one that Frank wouldn’t show for my wedding.
+ - With an ocean between you and your European friends, you have to keep them in your heart.
+
+64 quotes

@@ -1,0 +1,54 @@
+ - You never forget your first love.
+ - A painting is more than the sum of its parts.
+ - I am a runner. That’s what I do. That’s who I am. Running is all I know, or want, or care about.
+ - I had Flipped. -Bryce Loski.
+ - A painting is more than the sum of its parts,? he would tell me, and then go on to explain how the cow by itself is just a cow, and the meadow by itself is just grass and flowers, and the sun peeking through the trees is just a beam of light, but put them all together and you’ve got magic.
+ - Sometimes a little discomfort in the beginning can save a whole lot of pain down the road.
+ - Don’t sum up a person based on what you see, or what you don’t understand; get to know them.
+ - If chaos is a necessary step in the organization of one’s universe, then I was well on my way.
+ - Blue Face Disgusting taste Flush it Shush it Cold disgrace.
+ - It’s funny how you can think you know someone pretty well, and then something happens or they do something that makes you understand that you didn’t really know them at all.
+ - I had liked him for all the wrong reasons.
+ - Sometimes the things we really want are right in front of us. We just don’t see them.
+ - One’s character is set at an early age. The choices you make now will affect you for the rest of your life. I hate to see you swim out so far you can’t swim back.
+ - Somehow the silence seemed to connect us in a way like words never could.
+ - He tells us that life isn’t about what happens to you, it’s about what you do about what happens to you.
+ - Now, I know from experience that the trouble with one lie is that it usually takes more lies to cover it up. And if you don’t watch out, you wind up telling lies to cover up the lies that are covering up the original lie.
+ - It’s easy to look back and see it, and it’s easy to give the advice. But the sad fact is, most people don’t look beneath the surface until it’s too late.
+ - You told us over and over that you don’t think you could live without books, but the ironic thing is, you’d probably die before you’d think to rip pages out of one to start a fire. Am I right? Well, get over it already. Better to be warm then well-read.
+ - If the mind’s not strong, the body acts weak, even if it’s not. If the mind says it’s too cold or too rainy or too windy to run, the body will be more than happy to agree. If the mind says it would be better to rest or recover or cut practice, the body will be glad to oblige.
+ - I’d scale that monster sycamore if I could. Right to the top. And I’d yell her name across the rooftops for the whole world to hear. -Bryce.
+ - I wipe away my tears and nod, because the pain in my leg is nothing compare to the one in my heart.
+ - Proper lighting is everything, Julianna.
+ - Get beyond his eyes and his smile and the sheen of his hair – Look at what’s really there.
+ - But in my heart I knew that just like the new grass, I wasn’t strong enough yet to be walked on.
+ - It’s disturbing how fast weeds take root in my garden of worthiness. They’re so hard to pull. And grow back so easily.
+ - Sometimes I get so caught up in my own problems that I forget how amazing the world is.
+ - Turn down a chance to feel magic for fear of a little dirt?
+ - There’s nothing like a headstrong woman to make you happy to be alive.
+ - Was it so much to ask just to be left alone?
+ - Holly, I understand that you are upset because Gemma pulled down your ants, but why did you think pouring motor oil inside her backpack is the way to solve the problem?
+ - There’s no winning arguments with your parents, so why get all pumped up over them? It is way better to dive down and get out of the way than it is to get clobbered by some parental tidal wave.
+ - A million dollars sounds like a lot, I know. Especially when you’re young. But you can’t let money erode your principles or you’ll wind up with nothing.
+ - I just need some time to get over all those years of having liked him.
+ - I was slipping, man, and it was definetly time to get a grip.
+ - Surely, I thought, a few bushes and some dilapidated wood couldn’t stop someone’s best and brightest blessing! Surely not!
+ - But in my heart I knew the old Bryce was toast. There was no going back. Not to Garrett or Shelly or Miranda or any of the other people who wouldn’t understand. Juli was different, but after all these years that didn’t bother me anymore. I liked it. I liked her.
+ - There’s no winning arguments with your parents.
+ - I miss school. What’s wrong with me?
+ - It’s funny to hear priests and nuns argue with each other.
+ - It was beyond embarrassing or humiliating or even mortifying. It was ego-slaying!
+ - There was other stuff, too, like how something can be so much more than the parts it took to make it, and why people need things around them that lift them above their lives and make them feel the miracle of living.
+ - I write early in the morning at the computer, and people think Im crazy, but I still use my Mac-Classic even though we have a state-of-the-art PC. There are just less distractions with the simpler machine.
+ - I operate under the assumption that people don’t notice the good in me. That’s just how things always seem to play out. I get blamed, while con-artist kids like Venus, and Camille, and Gemma get believed. But the rescue lady noticed. In the background, just observing, she noticed.
+ - The room fell quiet. And as I read down the list of over one hundred and fifty eight-grade boys, I realized that to me, there had only ever been one boy.
+ - Julie always tried to stand beside me, or talk to me, or in some other way mortify me.
+ - As much as thinking this upsets me, I’m starting to see that I need the merry-go-round much more than it needs me, and in the end my choice is to hop back on or get left in the dust.
+ - What he did to my heart was sheer, inexplicable, magic.
+ - Okay that’s it. Now I’m torching this. I just need to score a match.
+ - I don’t think you’re aloud to be homeschooled if you don’t have a home.
+ - I’ve flown kites before and I know – sometimes they’re gone forever, and sometimes they’re just waiting in the middle of the road for you to rescue them. Kites can be lucky or they can be ornery. I’ve had both kinds, and a lucky kite is definitely worth chasing for.
+ - What I’m expecting is for you to behave like the gentleman I always thought you were.
+ - Maybe my mother’s right. Maybe there is more to Bryce Loski than I know. Maybe it’s time to meet him in the proper light.
+
+52 quotes

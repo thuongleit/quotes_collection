@@ -1,0 +1,127 @@
+ - Power tends to corrupt, and absolute power corrupts absolutely.
+ - Power tends to corrupt and absolute power corrupts absolutely. Great men are almost always bad men, even when they exercise influence and not authority: still more when you superadd the tendency or the certainty of corruption by authority.
+ - The finest opportunity ever given to the world was thrown away because the passion of equality made vain the hope for freedom.
+ - Great men are almost always bad men.
+ - Learn as much by writing as by reading.
+ - Liberty is not a means to a higher political end. It is itself the highest political end.
+ - A wise person does at once, what a fool does at last. Both do the same thing; only at different times.
+ - Liberty is the prevention of control by others.
+ - Men cannot be made good by the state, but they can easily be made bad. Morality depends on liberty.
+ - The mills of God grind slowly.
+ - Save for the wild force of Nature, nothing moves in this world that is not Greek in its origin.
+ - Every class is unfit to govern.
+ - It is easier to find people fit to govern themselves than people fit to govern others.
+ - Property is not the sacred right. When a rich man becomes poor it is a misfortune, it is not a moral evil. When a poor man becomes destitute, it is a moral evil, teeming with consequences and injurious to society and morality.
+ - I’m not a driven businessman, but a driven artist. I never think about money. Beautiful things make money.
+ - By liberty I mean the assurance that every man shall be protected in doing what he believes to be his duty against the influences of authority and majorities, custom and opinion.
+ - Liberty has not only enemies which it conquers, but perfidious friends, who rob the fruits of its victories: Absolute democracy, socialism.
+ - History is not a burden on the memory but an illumination of the soul.
+ - Despotic power is always accompanied by corruption of morality.
+ - Before men can find peace and harmony within themselves they must first fall in love with their country.
+ - Liberty is not the power of doing what we like, but the right of being able to do what we ought.
+ - The one pervading evil of democracy is the tyranny of the majority.
+ - There is not a more perilous or immoral habit of mind than the sanctifying of success.
+ - At all times sincere friends of freedom have been rare, and its triumphs have been due to minorities, that have prevailed by associating themselves with auxiliaries whose objects often differed from their own; and this association, which is always dangerous, has sometimes been disastrous.
+ - A generous spirit prefers that his country should be poor, and weak, and of no account, but free, rather than powerful, prosperous, and enslaved.
+ - A people averse to the institution of private property is without the first elements of freedom.
+ - The true guide of our conduct is no outward authority, but the voice of God, who comes down to dwell in our souls, who knows all our thoughts, to whom are owing all the truth we know, and all the good we do; for vice is voluntary, and virtue comes from the grace of the heavenly spirit within.
+ - History is not only a particular branch of knowledge, but a particular mode and method of knowledge in other branches.
+ - The issue which has swept down the centuries and which will have to be fought sooner or later is the people versus the banks.
+ - Liberty is the harmony between the will and the law.
+ - We are not sure we are right until we have made the best case possible for those who are wrong.
+ - A public man has no right to let his actions be determined by particular interests. He does the same thing as a judge who accepts a bribe. Like a judge he must consider what is right, not what is advantageous to a party or class.
+ - Judge talent at its best and character at its worst.
+ - Feudalism made land the measure and the master of all things.
+ - The strong man with the dagger is followed by the weak man with the sponge.
+ - History, to be above evasion or dispute, must stand on documents, not on opinions.
+ - Absolute power demoralizes.
+ - I have reached the end of my time, and have hardly come to the beginning of my task.
+ - Good and evil lie close together. Seek no artistic unity in character.
+ - Authority that does not exist for Liberty is not authority but force.
+ - Self-preservation and self-denial: the basis of all political economy.
+ - It is very easy to speak words of wisdom from a comfortable distance, when one sees no reality, no details, none of the effect on men’s minds.
+ - Great men are almost always bad men, even when they exercise influence and not authority.
+ - Moral precepts are constant through the ages and not obedient to circumstances.
+ - Everybody likes to get as much power as circumstances allow, and nobody will vote for a self-denying ordinance.
+ - Limitation is essential to authority. A government is legitimate only if it is effectively limited.
+ - I exhort you never to debase the moral currency or to lower the standard of rectitude, but to try others by the final maxim that governs your own lives, and to suffer no man and no cause to escape the undying penalty which history has the power to inflict on wrong.
+ - The common vice of democracy is disregard for morality.
+ - Before God, there is neither Greek nor barbarian, neither rich nor poor, and the slave is as good as his master, for by birth all men are free; they are citizens of the universal commonwealth which embraces all the world, brethren of one family, and children of God.
+ - The long term versus the short term argument is one used by losers.
+ - Socialism means slavery.
+ - The history of institutions is often a history of deception and illusions; for their virtue depends on the ideas that produce and on the spirit that preserves them, and the form may remain unaltered when the substance has passed away.
+ - There is no worse heresy than that the office sanctifies the holder of it.
+ - If the past has been an obstacle and a burden, knowledge of the past is the safest and the surest emancipation.
+ - Every thing secret degenerates, even the administration of justice; nothing is safe that does not show how it can bear discussion and publicity.
+ - Progress, the religion of those who have none.
+ - Those who have more power are liable to sin more; no theorem in geometry is more certain than this.
+ - The law of liberty tends to abolish the reign of race over race, of faith over faith, of class over class. It is not the realization of a political ideal; it is the discharge of a moral obligation.
+ - Liberty is the prevention of control by others. This requires self-control and, therefore, religious and spiritual influences; education, knowledge, well-being.
+ - And remember, where you have a concentration of power in a few hands, all too frequently men with the mentality of gangsters get control. History has proven that.
+ - In England Parliament is above the law. In America the law is above Congress.
+ - The danger is not that a particular class is unfit to govern: every class is unfit to govern.
+ - The possession of unlimited power corrodes the conscience, hardens the heart, and confounds the understanding.
+ - The light that has guided us is still unquenched, and the causes that have carried us so far in the van of free nations have not spent their power; because the story of the future is written in the past, and that which hath been is the same thing that shall be.
+ - Character is tested by true sentiments more than by conduct. A man is seldom better than his word.
+ - There is no error so monstrous that it fails to find defenders among the ablest men. Imagine a congress of eminent celebrities, such as More, Bacon, Grotius, Pascal, Cromwell, Bossuet, Montesquieu, Jefferson, Napoleon, Pitt, etc. The result would be an Encyclopedia of Error.
+ - Guard against the prestige of great names; see that your judgments are your own; and do not shrink from disagreement; no trusting without testing.
+ - Political differences essentially depend on disagreement in moral principles.
+ - Ink was not invented to express our real feelings.
+ - Government rules the present. Literature rules the future.
+ - The most certain test by which we judge whether a country is really free is the amount of security enjoyed by minorities.
+ - It is bad to be oppressed by a minority, but it is worse to be oppressed by a majority.
+ - Monarchy hardens into despotism. Aristocracy contracts into oligarchy. Democracy expands into the supremacy of numbers.
+ - Liberty is not a means to a higher political end. It is itself the highest political end. It is not for the sake of a good public administration that it is required, but for the security in the pursuit of the highest objects of civil society, and of private life.
+ - Live both in the future and the past. Who does not live in the past does not live in the future.
+ - The few have not strength to achieve great changes unaided; the many have not wisdom to be moved by truth unmixed.
+ - A man can be trusted only up to low-water mark.
+ - No public character has ever stood the revelation of private utterance and correspondence.
+ - If some great catastrophe is not announced every morning, we feel a certain void. Nothing in the paper today, we sigh.
+ - Democracy generally monopolizes and concentrates power.
+ - Many men can no more be kept straight by spiritual motives than we can live without policemen.
+ - There are many things the government cant do, many good purposes it must renounce. It must leave them to the enterprise of others. It cannot feed the people. It cannot enrich the people. It cannot teach the people. It cannot convert the people.
+ - Many things are better for silence than for speech: others are better for speech than for stationery.
+ - Advice to Persons About to Write History – Don’t.
+ - The true natural check on absolute democracy is the federal system, which limits the central government by the powers reserved, and the state governments by the powers they have ceded.
+ - Far from being the product of a democratic revolution and of an opposition to English institutions, the constitution of the United States was the result of a powerful reaction against democracy, and in favor of the traditions of the mother country.
+ - The fate of every democracy, of every government based on the sovereignty of the people, depends on the choices it makes between these opposite principles, absolute power on the one hand, and on the other the restraints of legality and the authority of tradition.
+ - Every error pronounces judgment on itself when it attempts to apply its rules to the standard of truth.
+ - There is not a soul who does not have to beg alms of another, either a smile, a handshake, or a fond eye.
+ - Do not turn yourself from an end into a means-one does not justify the other.
+ - It is dangerous, at any time, to multiply sources of weakness.
+ - Towns were the nursery of freedom.
+ - There should be a law to the People besides its own will.
+ - Writers the most learned, the most accurate in details, and the soundest in tendency, frequently fall into a habit which can neither be cured nor pardoned,-the habit of making history into the proof of their theories.
+ - False principles, which correspond with the bad as well as with the just aspirations of mankind, are a normal and necessary element in the social life of nations.
+ - The reward of history is that it releases and relieves us from present strife.
+ - Truth is the only merit that gives dignity and worth to history.
+ - The one pervading evil of democracy is the tyranny of the majority, or rather of that party, not always the majority, that succeeds, by force or fraud, in carrying elections.
+ - A government does not desire its powers to be strictly defined, but the subjects require the line to be drawn with increasing precision.
+ - The test of liberty is the position and security of minorities.
+ - Fanaticism displays itself in the masses; but the masses were rarely fanaticised; and the crimes ascribed to it were commonly due to the calculations of dispassionate politicians.
+ - Be not content with the best book; seek sidelights from the others; have no favourites.
+ - Opinions alter, manners change, creeds rise and fall, but the moral laws are written on the table of eternity.
+ - A history that should pursue all the subtle threads from end to end might be eminently valuable, but not as a tribute to peace and conciliation.
+ - From the absolute will of an entire people there is no appeal, no redemption, no refuge but treason.
+ - The man who prefers his country before any other duty shows the same spirit as the man who surrenders every right to the state. They both deny that right is superior to authority.
+ - A liberal is only a bundle of prejudices until he has mastered, has understood, experienced the philosophy of Conservatism.
+ - Piety sometimes gives birth to scruples, and faith to superstition, when they are not directed by wisdom and knowledge.
+ - Be generous before you are just. Do not temper mercy with justice.
+ - When you perceive a truth, look for the balancing truth.
+ - The will of the people cannot make just that which is unjust.
+ - Socialism easily accepts despotism. It requires the strongest execution of power – power sufficient to interfere with property.
+ - The form of government and the condition of society must always correspond. Social equality is therefore a postulate of pure democracy.
+ - Government by idea tends to take in everything, to make the whole of society obedient to the idea. Spaces not so governed are unconquered, beyond the border, unconverted, a future danger.
+ - Judge not according to the orthodox standard of a system religious, philosophical, political, but according as things promote, or fail to promote the delicacy, integrity, and authority of Conscience.
+ - History provides neither compensation for suffering nor penalties for wrong.
+ - There is no error so monstrous that it fails to find defenders among the ablest men.
+ - The passion for power over others can never cease to threaten mankind, and is always sure of finding new and unforseen allies in continuing its martyrology.
+ - When the last of the Reformers died, religion, instead of emancipating the nations, had become an excuse for the criminal art of despots. Calvin preached, and Bellarmine lectured; but Machiavelli reigned.
+ - Fanaticism in religion is the alliance of the passions she condemns with the dogmas she professes.
+ - Though oppression may give rise to violent and repeated outbreaks, like the convulsions of a man in pain, it cannot mature a settled purpose and plan of regeneration, unless a new notion of happiness is joined to the sense of present evil.
+ - Liberty, next to religion has been the motive of good deeds and the common pretext of crime...
+ - To develop and perfect and arm conscience is the great achievement of history.
+ - There are two things which cannot be attacked in front: ignorance and narrow-mindedness. They can only be shaken by the simple development of the contrary qualities. They will not bear discussion.
+ - Machiavelli’s teaching would hardly have stood the test of Parliamentary government, for public discussion demands at least the profession of good faith.
+
+125 quotes

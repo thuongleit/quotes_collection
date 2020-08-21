@@ -1,0 +1,30 @@
+ - Life should be great rather than long.
+ - Religion is for man and not man for religion.
+ - Learn to live in this world with self-respect.
+ - Freedom of mind is the proof of one’s existence.
+ - We are Indians, firstly and lastly.
+ - So long as you do not achieve social liberty, whatever freedom is provided by the law is of no avail to you.
+ - Constitution is not a mere lawyers document, it is a vehicle of Life, and its spirit is always the spirit of Age.
+ - Democracy is not a form of government, but a form of social organisation.
+ - If I find the constitution being misused, I shall be the first to burn it.
+ - Neither god nor soul can save society.
+ - Caste is not just a division of labour, it is a division of labourers.
+ - History shows that where ethics and economics come in conflict, victory is always with economics.
+ - If you believe in living a respectable life, you believe in self-help which is the best help!
+ - Indians today are governed by two different ideologies. Their political ideal set in the preamble of the Constitution affirms a life of liberty, equality and fraternity. Their social ideal embodied in their religion denies them.
+ - Unlike a drop of water which loses its identity when it joins the ocean, man does not lose his being in the society in which he lives. Man’s life is independent. He is born not for the development of the society alone, but for the development of his self.
+ - Man is mortal. Everyone has to die some day or the other. But one must resolve to lay down one’s life in enriching the noble ideals of self-respect and in bettering one’s human life. We are not slaves. Nothing is more disgraceful for a brave man than to live life devoid of self-respect.
+ - Equality may be a fiction but nonetheless one must accept it as a governing principle.
+ - There is a Difference Between Merely Living and Living Worthily.
+ - The Hindu civilisation is a diabolical contrivance to enslave humanity. Its proper name would be infamy.
+ - The question is not whether a community lives or dies, the question is on what plane does it live? There are different modes of survival. But all are not equally honorable.
+ - I want all people to be Indians first, Indian last and nothing else but Indians.
+ - The basic idea underlying religion is to create an atmosphere for the spiritual development of the individual. This being the situation, it is clear that you cannot develop your personality at all in Hinduism.
+ - Justice has always evoked ideas of Equality, of proportion of compensation. In short, Justice is another name of Liberty, Equality and Fraternity.
+ - A bitter thing cannot be made sweet. The taste of anything can be changed. But poison cannot be changed into nectar.
+ - My definition of democracy is – A form and a method of Government whereby revolutionary changes in the social life are brought about without bloodshed. That is the real test. It is perhaps the severest test. But when you are judging the quality of the material you must put it to the severest test.
+ - If you study carefully, you will see that Buddhism is based on reason. There is an element of flexibility inherent in it, which is not found in any other religion.
+ - For a successful revolution it is not enough that there is discontent. What is required is a profound and thorough conviction of the justice, necessity and importance of political and social rights.
+ - For an individual as well as a society, there is a gulf between merely living and living worthily. To fight in a battle and live in glory is one mode. To beat a retreat, to surrender and to live the life of a captive is also a mode of survival.
+
+28 quotes

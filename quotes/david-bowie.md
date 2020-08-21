@@ -1,0 +1,247 @@
+ - The greatest thing you’ll ever learn is just to love and be loved in return.
+ - Religion is for people who fear hell, spirituality is for people who have been there.
+ - If we could be heroes, if just for one day.
+ - I don’t know where I’m going from here, but I promise it won’t be boring.
+ - I’m a thinker not a talker.
+ - Turn and face the strange.
+ - There’s a starman waiting in the sky, he’d like to come and meet us, but he thinks he’d blow our minds.
+ - Ground control to Major Tom.
+ - Tomorrow belongs to those who can hear it coming.
+ - Time may change me, but I can’t trace time.
+ - I don’t make changes to confuse anyone. I’m just searching. That’s what causes me to change. I’m just searching for myself.
+ - Keep your ’lectric eye on me babe Put your ray gun to my head Press your space face close to mine, love Freak out in a moonage daydream, oh yeah!
+ - I’m afraid of Americans.
+ - Speak in extremes, it’ll save you time.
+ - The minute you know you’re on safe ground, you’re dead.
+ - Let the children use it, let the children lose it, let all the children boogie.
+ - Wham, bam, thank you Ma’am.
+ - No more free steps to heaven.
+ - For here, I’m sitting in a tin can, far above the world. Planet earth is blue, and there is nothing I can do.
+ - I’ve come to the realizations that I have absolutely no idea what I’m doing half the time.
+ - Style is about the choices you make to create the aspects of civilization that you wish to uphold.
+ - I’ll place my love beneath the stars.
+ - You can neither win nor lose if you don’t run the race.
+ - And I think my spaceship knows which way to go.
+ - If you come from art, you’ll always be art.
+ - You’d like to know me well, but I’ve got things inside my head that even I can’t face.
+ - Make the best of every moment. We’re not evolving. We’re not going anywhere.
+ - Nothing prepared me for your smile.
+ - Trust nothing but your own experience.
+ - This ain’t rock ‘n’ roll; this is genocide.
+ - Put on your red shoes, and dance the blues.
+ - I am a moderately good singer. I am not a great singer but I can interpret a song, which I don’t think is quite the same as singing it.
+ - I’ll stick with you baby for a thousand years.
+ - And it’s always the same kind of artist, I think, who has more enjoyment being slightly on the outside of things, who doesn’t want to be sucked into the tyranny of the mainstream. Because once you get sucked into that, you’re dead as an artist.
+ - Don’t let me hear you say life takes you nowhere, angel.
+ - If it works, it’s out of date.
+ - Making love with his ego.
+ - Fame puts you there where things are hollow.
+ - Once you lose that sense of wonder at being alive, you’re pretty much on the way out...
+ - Church on time, makes me party.
+ - I surrounded myself with people who indulged my ego. They treated me as though I was Ziggy Stardust or one of my characters, never realising that David Jones might be behind it.
+ - There’s just some dysfunctionalism with artists. There are good things and bad things about being an artist, and the good thing is, sometimes you get an inside line on what’s really happening. You develop these strange antennae that clue you in to what’s really going on.
+ - Don’t you love the Oxford Dictionary? When I first read it, I thought it was a really really long poem about everything.
+ - You can’t stand still on one point for your entire life.
+ - I had enormous self-image problems and very low self-esteem, which I hid behind obsessive writing and performing. It’s exactly what I do now, except I enjoy it now. I’m not driven like I was in my twenties. I was driven to get through life very quickly.
+ - I think music should be tarted up, made into a prostitute, a parody of itself. It should be the clown, the Pierrot medium.
+ - You should turn around at the end of the day and say I really like that piece of work, or that piece of work sucked. Not, was that popular or wasn’t it popular?
+ - I read the news today, oh boy.
+ - Rock’s always been the devil’s music.
+ - I have to take total control myself. I can’t let anybody else do anything, for I find that I can do things better for me. I don’t want to get other people playing with what they think that I’m trying to do.
+ - I’m drawn between the light and dark.
+ - If I never wake again, I certainly will have lived while I was alive.
+ - Hitler was the first superstar.
+ - I’ll paint you moments of gold, I’ll spin you Valentine evenings...
+ - My particular thing is discovering what can be done with media and how it can be used. You can’t draw people together like one big huge family, people don’t want that. They want isolation or a tribal thing.
+ - Rebel, rebel, you’ve torn your dress. Rebel, rebel, your face is a mess. Rebel, rebel, how could they know? Hot tramp, I love you so.
+ - Listen to me, don’t listen to me. Talk to me, don’t talk to me.
+ - I made a more mature approach to industrial music.
+ - Never bored, so I’ll never get old.
+ - I kind of miss that “becoming” stage, as most times you really don’t know what’s around the corner. Now, of course, I’ve kind of knocked on the door and heard a muffled answer. Nevertheless, I still don’t know what the voice is saying, or even what language it’s in.
+ - I think that the history of rock could be recycled in a different way and brought back into focus without the luggage that comes along with it.
+ - The only art I’ll ever study is stuff I can steal from.
+ - In your fear, seek only peace. In your fear, seek only love.
+ - He says he’s a beautician and sells you nutrition, and keeps all your dead hair for making underwear.
+ - Some people are marching together and some on their own. Others are running, the smaller ones crawl. But some sit in silence.
+ - I’m afraid of Americans; I’m afraid of the world; I’m afraid I can’t help it.
+ - I find only freedom in the realms of eccentricity...
+ - I wanted to prove the sustaining power of music.
+ - Why bother choosing a certain chair? Because that chair says something about you.
+ - I don’t live for the stage. I don’t live for an audience.
+ - I don’t like to read things that people write about me. I’d rather read what kids have to say about me, because it’s not their profession to do that.
+ - Strung out on lasers and slash back blazers.
+ - It’s true – I am a bisexual. But I can’t deny that I’ve used that fact very well. I suppose it’s the best thing that ever happened to me.
+ - Is it Nice in your snowstorm- freezing your brain? Do you think that your face looks the same?
+ - Oooh, fashion, we are the goon squad and were coming to town, beep beep.
+ - I don’t expect the human race to progress in too many areas. However, having a child with an ear infection makes one hugely grateful for antibiotics.
+ - I never really got the book together for the thing, so I had all the songs and the characters. But by the time we’d gotten it on the road and I’d been doing it for 18 months, oh God, I couldn’t wait to move on to something else.
+ - I woke up one day and realized I was a closet hetero.
+ - Having not really written any generational songs – I think maybe two or three of the songs that I’ve ever written have any bearing on the age of the listener. My stuff tends to be far more concerned with the spiritual and with subjects like isolation and being miserable.
+ - Always drawn to the theatric, Bowie also performed in stage productions of “The Elephant Man” and just recently collaborated on “Lazarus,” an off-Broadway musical that’s a sequel to his 1976 role in the film “The Man Who Fell To Earth.”
+ - I never really had much of an interest in fashion.
+ - We slit the Catholic throat, stoned the poor on such slogans as wish you could hear and love is all we need.
+ - It’s not the side-effects of the cocaine – I’m thinking that it must be love. It’s too late to be grateful, It’s too late to be hateful, It’s too late to be late again, The European cannon is here.
+ - Who’ll love Aladdin Sane? Battle cries and champagne just in time for sunrise.
+ - I believe in Beatles, I believe my little soul has grown.
+ - You would think that a rock star being married to a super-model would be one of the greatest things in the world. It is.
+ - We can’t stop trying til we break up our minds, til the sun drips blood on the seedy young knight.
+ - Pop stars are capable of growing old. Mick Jagger at 50 will be marvelous – a battered old roue – I can just see him. An aging rock star doesn’t have to opt out life. When I’m 50, I’ll prove it...
+ - I’m bemused by the whole Robbie Williams aspect of British pop. Posh Spice? It all looks like cruise ship entertainment to me.
+ - I want people to hear musicians like Joe Cuba. He has done things to whole masses of Puerto Rican people. The music is fantastic and important.
+ - I don’t have stylistic loyalty. That’s why people perceive me changing all the time. But there is a real continuity in my subject matter. As an artist of artifice, I do believe I have more integrity than any one of my contemporaries.
+ - There’s a thing that just as you go to sleep, if you keep your elbows elevated that you will never go below the dream stage. And I’ve used that quite a lot and it keeps me dreaming much longer than if I just relaxed.
+ - I can ask for cigarettes in every language.
+ - Sits like a man, but smiles like a reptile.
+ - I was told that it was cool to fall in love, and that period was nothing like that to me. I gave too much of my time and energy to another person and they did the same to me and we started burning out against each other. And that is what is termed love...
+ - You know, I don’t feel fifty. I feel not a day over forty-nine. It’s incredible. I’m bouncy, I feel bouncy.
+ - Some make you sing and some make you scream. One makes you wish that you’d never been seen. But there’s a shop on the corner that’s selling papier mache, making bullet-proof faces, Charlie Manson, Cassius Clay. If you want it, boys, get it here, thing.
+ - I think the only music I didn’t listen to was country and western, and that holds to this day.
+ - Secret thinker sometimes listening aloud.
+ - I think fame itself is not a rewarding thing. The most you can say is that it gets you a seat in restaurants.
+ - I’m rather kind of old school, thinking that when an artist does his work it’s no longer his.
+ - I think that we have created a new kind of person in a way. We have created a child who will be so exposed to the media that he will be lost to his parents by the time he is 12.
+ - The public, obviously, they takes things in a very simplest fashion and so they should. That’s why we have such wonderful television.
+ - Hey man, I gotta straighten my face. This mellow thighed chick just put my spine out of place.
+ - I don’t believe in proper cinema; it doesn’t have the strength of television. People having to go out to the cinema is really archaic. I’d much rather sit at home.
+ - It’s a compulsive need to wreck everything. You might notice there’s a pattern of stripping down and building back up again throughout my life. But I guess that’s how some of us conduct our lives.
+ - I was always accused of being cold and unfeeling. It was because I was intimidated about touching people.
+ - For me a chameleon is something that disguises itself to look as much like its environment as possible. I always thought I did exactly the opposite of that.
+ - She’s a total bam bam.
+ - Money goes to money heaven, body goes to body hell.
+ - The only real failure is trying to second-guess the taste of an audience. Nothing comes out of that except a kind of inward humiliation.
+ - Lou Reed is the most important definitive writer in modern rock. Not because of the stuff that he does, but the direction that he will take it.
+ - I went to a middle-class school, but my background is working class. I got the best of both worlds, I saw both classes, so I have a pretty fair idea of how people live and why they do it.
+ - I got a bad migraine that lasted 3 years, and the pills I took made by fingers disappear.
+ - I could never have done what I did without being involved with Lindsay Kemp’s company.
+ - If I put faith in medication, if I can smile a crooked smile, if I can talk on television, if I can walk an empty mile.
+ - I think everything that I learned about stagecraft and carrying through – creating a through point for a theatrical device.
+ - Bully for you, chilly for me, got to get a raincheck on pain.
+ - My father worked for a children’s home called Dr. Barnardo’s Homes. They’re a charity.
+ - Visions of swastikas in my head, plans for everyone. It’s in the Whites of my eyes.
+ - When I heard Little Richard, I mean, it just set my world on fire.
+ - I’m a phallus in pigtails, and there’s blood on my nose, and my tissue is rotting where the rats chew my bones. And my eye sockets empty, see nothing but pain, I keep having this brainstorm about twelve times a day.
+ - Would you carry a razor, in case, just in case of depression?
+ - I’m wary of the word glam because I think that became the all-inclusive term with for any bloke with lipstick on, which is fine, you know, and that’s what it is when it comes down to the public level.
+ - I guess, people like myself and Roxy Music that had a different agenda about taking up music.
+ - Elvis was a major hero of mine. I was probably stupid enough to believe that having the same birthday as him actually meant something.
+ - It always felt like you were trying too hard to look like the audience or something. That whole thing about the artistic integrity, which, of course, I’ve never bought into – with any artist. It’s just not a real thing.
+ - There’s a taste in my mouth and it’s no taste at all.
+ - The younger people get into the lyrics in a different way; there’s much more of a tactile understanding, which is the way I prefer it.
+ - My sexual nature is irrelevant. I’m an actor, I play roles, fragments of myself.
+ - You can’t go on stage and live – it’s false all the way. I can’t stand the premise of going out in jeans and a guitar and looking as real as you can in front of 18,000 people. I mean, it’s not normal!
+ - I think much has been made of this alter ego business. I mean, I actually stopped creating characters in 1975 – for albums, anyway.
+ - In order to look special wearing the chancy unique; it must be worn with your persona, and if the two don’t blend, then the look becomes pear-shaped.
+ - I think it all comes back to being very selfish as an artist. I mean, I really do just write and record what interests me and I do approach the stage shows in much the same way.
+ - I guess a certain contingent of the musicians in London at the beginning of the ’70s were fed up with denim and the hippies. And I think we kind of wanted to go somewhere else.
+ - A lot of people provide me with quotes. They suggest all kinds of things to say and I do, really, because I’m not very hip at all.
+ - I’m not at ease with the word “love.”
+ - There was a time in America not long ago when rock ‘n’ roll was called race music, and white kids who wanted to go see Chuck Berry were completely forbidden.
+ - My mother was a housewife. Both from – well, my father was from a farming family, agricultural family in the north of England. And my mother came from a very working class.
+ - People are always throwing things at me that I’ve said and I say that I didn’t mean anything.
+ - Someday, I’m gonna write a poem in a letter; Someday, I’m gonna get that faculty together.
+ - I’m not sure whether it is me changing my mind, or whether I lie a lot.
+ - Sexuality and where it is going is an extraordinary question, for I don’t see it going anywhere. It is with me, and that’s it.
+ - People look to me to see what the spirit of the Seventies is.
+ - What I do is I write mainly about very personal and rather lonely feelings, and I explore them in a different way each time. You know, what I do is not terribly intellectual. I’m a pop singer for Christ’s sake. As a person, I’m fairly uncomplicated.
+ - Rather than really have, like a close relationship to anything that’s coming out today, people are just, they’ve got it on as background music. It’s kind of the same way the cabdrivers use music; it’s very disposable.
+ - I think it’s rather a waste of time endlessly singing the same songs every night for a year, and it’s just not what I want to do.
+ - Once I’ve written something it does tend to run away from me. I don’t seem to have any part of it – it’s no longer my piece of writing.
+ - Illusion I will be, for I’ve never been a sinner.
+ - It took me a long time to reach the bottom and it went through various stages. I went from drugs into an alcohol stage. For a while, one feels, “Ah, I’ve kicked drugs,” but what I discovered was I had another addiction instead.
+ - Hear this Robert Zimmerman, I wrote a song for you, about a strange young man called Dylan with a voice like sand and glue.
+ - The end comes when the infinites arrive.
+ - You go through stages where you wonder whether you are Christ, or just looking for him.
+ - In fact, in Europe, I’m more kind of this bloke what writes lots of stuff.
+ - I guess Ziggy would have been the perfect vehicle to have done with.
+ - I liked rock music, I kind of moved into that sphere, somehow thinking that somewhere along the line I’d be able to put the two together. And I suppose I very nearly did with the Ziggy character.
+ - I met my wife because we were both going out with the same guy.
+ - Tony Visconti and I had been wanting to work together again for a few years now. Both of us had fairly large commitments and for a long time we couldn’t see a space in which we could get anything together.
+ - The coming together of people I find obscene as a principle. It is not human. It is not a natural thing as some people would have us believe.
+ - I guess, – a greater number of the 26 or so albums that I’ve made are known in Europe than they are in America.
+ - Ziggy played guitar, jamming good with Weird and Gilly.
+ - I can’t keep my fingers out of any pies.
+ - Songwriting as an art is a bit archaic now. Just writing a song is not good enough.
+ - Every time I’ve made a radical change it’s helped me feel buoyant as an artist.
+ - I’ve learned to relax and be my present age and my present position. I feel comfortable on my mid-thirties. It doesn’t seem such an alien place to be.
+ - It makes me sad when I see artists who come alive when they go onstage, because, gee, I really come alive when I’m home.
+ - There’s a terror in knowing what the world is about.
+ - She asked for my love and I gave her a dangerous mind.
+ - To be taken seriously about doing something creative and probably travel a lot. That was my motivation. I knew I was good, I knew I could write. I also knew you could get laid really easily.
+ - It’s odd but even when I was a kid, I would write about ‘old and other times’ as though I had a lot of years behind me. Now I do, so there is a difference in the weight of memory.
+ - When I was 9 years old, I wanted to be the baritone sax player in the Little Richard band.
+ - Time takes a cigarette, puts it in your mouth.
+ - If I wasn’t going through a thing where I was also being my characters offstage, uh, I’m much happier just wearing the most low-profile things that I can come up with just so I can get down the street...
+ - I always write well in New York.
+ - All art is unstable. Its meaning is not necessarily that implied by the author. There is no authoritative voice. There are only multiple readings.
+ - I don’t like talk and I don’t like talkers. Like Ma Barker. That’s what she always said, ‘Ma Barker doesn’t like talk and she doesn’t like talkers.’ She just sat there with her gun.
+ - I’m an instant star, just add water.
+ - Everything we look at and choose is some way of expressing how we want to be perceived.
+ - TV has eaten up everything else, and Warhol films are all that are left, which is fabulous. Pork could become the next I Love Lucy, the great American domestic comedy. It’s about how people really live, not like Lucy, who never touched dishwater. It’s about people living and hustling to survive.
+ - The sun machine is coming down, and we’re gonna have a party.
+ - I’ve made over 25 studio albums, and I think probably I’ve made two real stinkers in my time, and some not-bad albums, and some really good albums. I’m proud of what I’ve done. In fact it’s been a good ride.
+ - I’m quite certain that the audience that I’ve got for my stuff don’t listen to the lyrics.
+ - I think hip-hop is actually one of the most challenging things that’s happened in music in a long time.
+ - I’m not a natural performer. I don’t like performing very much.
+ - There have been times when I’ve written something and it goes out and it comes back in a letter from some kid as to what they think about it and I’ve taken their analysis to heart so much that I have taken up his thing. Writing what my audience is telling me to write.
+ - I turned myself to face me, but I’ve never caught a glimpse of how the others must see the faker.
+ - I’m very shy. That’s probably one of the reasons I got so heavily into drugs.
+ - The name Bowie just appealed to me when I was younger. I was into a kind of heavy philosophy thing when I was 16 years old, and I wanted a truism about cutting through the lies and all that.
+ - I think Lindsay Kemp really introduced me to the work of Jean Genet, and through that, I kind of kept re-educating myself about other prose writers and poets.
+ - The world that I inhabit in reality is probably very different world than the one people expect that I would be in. It is quite sedate. It’s far removed from a lot of what they would feel to be the limousine traveling rock existence, or whatever.
+ - He took it all too far, but boy could he play guitar.
+ - Some of us, I think, us small, pompous arty ones probably read too much George Steiner and kind of got the idea that we were entering to this kind of post-culture age and that we’d better do something postmodernist – quickly, before somebody else did.
+ - The moment you know you know you know.
+ - But I’m pretty good with collaborative thinking. I work well with other people.
+ - I’m English. I can’t accept happiness that easily. There’s got to be a trick in there somewhere.
+ - Radio in England is nonexistent. It’s very bad English use of a media system, typically English use.
+ - If you want it, boys, get it here, thing.
+ - People got extremely comfortable with being able to turn on their television and see MTV say, “This guy’s hot you should buy this record.”
+ - Since early middle ages when people generally taking away the barbarity of their like, were pretty content. Although it was all an illicit contentment, what with the slave systems all over the world, in England especially, the peasants and the master, etc. People were incredibly content.
+ - There seem to be a lot of black artists making very good videos that I’m surprised aren’t being used on MTV.
+ - Trying to tart the rock business up a bit is getting nearer to what the kids themselves are like, because what I find, if you want to talk in the terms of rock, a lot depends on sensationalism and the kids are a lot more sensational than the stars themselves.
+ - Fame, what you like is in the Limo. Fame, what you get is no tomorrow.
+ - Things have to hit for the moment. That’s one of the reasons I’m into video; the image has to hit immediately. I adore video and the whole cutting up of it.
+ - I don’t mind trying it out and making sure something seems to work well.
+ - It’s much easier for me to say that, the kind of music I didn’t listen to was pretty much that. I mean everything, from jazz to classical to popular. And Tibetan horns were a great part of it in 1966, ’67.
+ - You’ve got your mother in a whirl, she’s not sure if your a boy or a girl.
+ - I think that my fascination with clothes generally was motivated by trying to create the characters for the stage.
+ - Critics I don’t understand. They get too intellectual. They’re not very well-versed in street talk; it takes them longer to say it. So they have to do it in dictionaries and they take longer to say it.
+ - A career of nearly 40 years, is not very long.
+ - The media is either our salvation or our death.
+ - I couldn’t stand to be separated with my wife for months. It became quickly apparent to me that I needed to find a balance between my absolute work obsession and a private life that we could share without my disappearing all the time.
+ - I find it easier to write in these little vignettes; if I try to get any more heavy, I find myself out of my league.
+ - I really believe that Bob Dylan and others have speeded up the changes. Pacifism has found a voice at last.
+ - It is entirely possible to create something totally artificial within the realms of rock and roll.
+ - Sweet head, give you sweet head.
+ - I’m not actually a very keen performer. I like putting shows together. I like putting events together.
+ - The character thing really is sort of, for me, personally, rather ancient history.
+ - I didn’t say that wearing a glamorization of the rock artist was any truer from the other thing.
+ - I realized the other day that I’ve lived in New York longer than I’ve lived anywhere else. It’s amazing: I am a New Yorker. It’s strange; I never thought I would be.
+ - I had a fantasy that i’d drift up to Scotland and spend my life as a faux bodhisattua.
+ - I thought that I could do some kind of vehicle involving rock musicals and presenting rock and characters and storyline in a completely different fashion.
+ - The people who don’t know so much about me regard me more sexually.
+ - I’ve never responded well to entrenched negative thinking.
+ - I’ll ruin everything you are, I’ll give you television.
+ - People will keep the TV on even if a show is on that they hate – because, unfortunately, they’ve been programmed to do that.
+ - What I like doing is writing and recording and much more on the, I guess, the – on that creative level. It’s fun interpreting songs and all that, but I wouldn’t like it as a living.
+ - I’m really quite bipolar, and the depressed times, when everything felt like night, sometimes you get to such a low point that you physically beat at it until it bleeds – as you would say – bleeds till sunshine.
+ - I was studying Tibetan Buddhism when I was quite young, again influenced by Kerouac.
+ - The only time that I’ve adopted characterization again since that point, for my own albums, has been an album called “Outside” that I did with Brian Eno .
+ - I’d rather stay here with all the madmen than perish with the sadmen roaming free.
+ - There’s something about the style of living in the country that they feel, “This is what represents me.” So style is about the philosophy of how we create our civilization.
+ - The best DJs in the world know how to pull in music from all over the place and make it work as a cohesive whole.
+ - I wanted to rewrite how rock music was perceived.
+ - I’ve been putting out the fire with gasoline.
+ - I would like to believe that people knew what they were fighting for and why they wanted a revolution, and exactly what it was within that they didn’t like.
+ - I’m regarded quite asexually by a lot of people. And the people that understand me the best are nearer to what I understand about me.
+ - I usually don’t agree with what I say very much. I’m an awful liar.
+ - When you are an artist you can turn your hand to anything, in any style. Once you have the tools then all the artforms are the same in the end.
+ - I really wanted to do, more than anything else, up until I was around 16, 17, was write musicals.
+ - In fact, everything I do is about the conceptualizing and realization of a piece of work, whether it’s the recording or the performance side.
+ - It would be positively boring if minds were in tune.
+ - You can’t put down anybody. You can just try and understand. The emphasis shouldn’t be on revolution, it should be on communication. Because it’s just going to get more uptight. The more the revolution goes on, and there will be a civil war sooner or later.
+ - In my madness I see your face in mine.
+ - I never heard so many kids talk about just doing anything to be famous. I mean, yeah, fame is part of the deal when you’re a kid and you think, I wanna go into music, but everybody that I knew was really doing it because of their love for it. I don’t see so much of that anymore.
+ - Mine is really – Ziggy Stardust, characters, “Let’s Dance.” That’s me in the American.
+
+245 quotes

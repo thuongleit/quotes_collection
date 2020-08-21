@@ -1,0 +1,48 @@
+ - A dyslexic man walks into a bra.
+ - Two Eskimos sitting in a kayak were chilly; but when they lit a fire in the craft, it sank, proving once and for all that you can’t have your kayak and heat it too.
+ - Police arrested two kids yesterday, one was drinking battery acid, the other was eating fireworks. They charged one and let the other one off.
+ - I bought some HP sauce the other day. It’s costing me 6p a month for the next 2 years.
+ - Now you know those trick candles that you blow out and a couple of seconds later they come alight again, well the other day there was a fire at the factory that makes them.
+ - Went to the corner shop – bought 4 corners.
+ - So a man jumps into a taxi and says “King Arthur’s close” and the taxi driver says, “don’t worry we’ll lose him at the next lights”.
+ - I used to be indecisive but now I am not quite sure.
+ - Two fish in a tank, one says to the other – you drive I’ll man the guns.
+ - I’m on a whisky diet. I’ve lost 3 days already.
+ - A woman tells her doctor, ‘I’ve got a bad back.’ The doctor says, ‘It’s old age.’ The woman says, ‘I want a second opinion.’ The doctor says: ‘Okay – you’re ugly as well.’
+ - I went to the dentist. He said “Say Aaah.” I said “Why?” He said “My dog’s died.”
+ - I went window shopping today! I bought four windows.
+ - Two cannibals eating a clown. One asks the other, ‘Does this taste funny to you?’
+ - I inherited a painting and a violin which turned out to be a Rembrandt and a Stradivarius. Unfortunately, Rembrandt made lousy violins and Stradivarius was a terrible painter.
+ - So I went to the Doctor’s yesterday. He said, “What appears to be the problem?” I said, “I keep having this dream, night after night, beautiful girls rushing towards me and I keep pushing them away.” He said, “How can I help?” I said: “Break my arms.”
+ - Two peanuts walk into a rather rough bar, not looking for any trouble. Unfortunately, one was a salted.
+ - A man goes to a fancy dress party dressed only in his Y-fronts. A woman comes up to him and says “What are you supposed to be?” The man says “A premature ejaculation.” “What?” says the woman. The man explains “I’ve just come in my pants.”
+ - Our ice cream man was found lying on the floor of his van covered with hundreds and thousands. Police say that he topped himself.
+ - A man walks into a bar, and he said OUCH, cause it was an iron bar.
+ - A friend of mine drowned in a bowl of muesli. A strong currant pulled him in.
+ - So I was in Tesco’s and I saw this man and woman wrapped in a barcode. I said “Are you two an item?”
+ - A man came round in hospital after a serious accident. He shouted, “Doctor, doctor, I can’t feel my legs!” The doctor replied, “I know you can’t, I had to amputate your arms”
+ - A jump lead walks into a bar. The barman says “I’ll serve you, but don’t start anything.”
+ - I backed horse last week at ten to one. It came in at quarter past four.
+ - My wife had a go at me last night. She said, Youll drive me to my grave. I had the car out in thirty seconds.
+ - So a lorry-load of tortoises crashed into a train-load of terrapins, I thought “That’s a turtle disaster”.
+ - My dog was barking at everyone the other day. Still, what can you expect from a cross-breed.
+ - I went to the doctors the other day and I said, ‘have you got anything for wind?’ So he gave me a kite.
+ - You know, somebody actually complimented me on my driving today. They left a little note on the windscreen, it said ‘Parking Fine.’
+ - I had a ploughman’s lunch the other day. He wasn’t very happy.
+ - Well, my wife and I were married in a toilet – it was a marriage of convenience!
+ - And the back of his anorak was leaping up and down, and people were chucking money to him. I said ‘Do you earn a living doing that?’ He said ‘Yes, this my livelihood.’
+ - A policeman stopped me and said: Would you please blow into this bag, sir? I said: What for, officer? He said: My chips are too hot.
+ - I went to buy some camouflage trousers the other day but I couldn’t find any.
+ - A blind bloke walks into a shop with a guide dog. He picks the Dog up and starts swinging it around his head. Alarmed, a shop assistant calls out: ‘Can I help, sir?’ ‘No thanks,’ says the blind bloke. ‘Just looking.’
+ - Last night I dreamt I ate a ten pound marshmallow. When I woke up the pillow was gone.
+ - I cleaned the attic with the wife the other day. Now I can’t get the cobwebs out of her hair.
+ - So I rang up a local building firm, I said ‘I want a skip outside my house.’ He said ‘I’m not stopping you.’
+ - So I went to the Chinese restaurant and this duck came up to me with a red rose and says “Your eyes sparkle like diamonds”. I said “Waiter, I asked for a-ROMATIC duck”.
+ - A guy walks into a pub with a lump of asphalt on His shoulder, He says to the bar man give us a pint and one for the road.
+ - I’ve been on the whisky diet – I’ve already lost three days!
+ - I had a meal last night. I ordered everything in French, surprised everybody. It was a Chinese restaurant. I said to this Chinese waiter, ‘Look, this chicken I got here is cold.’ He said, ‘It should be, it’s been dead two weeks.’
+ - I went into a French restaraunt and asked the waiter, ‘Have you got frog’s legs?’ He said, ‘Yes,’ so I said, ‘Well hop into the kitchen and get me a cheese sandwich.’
+ - And an airplane of spittle dived into the sea, there were no salivas.
+ - I always sit in the tail end of a plane, always. You never hear of an plane backing into a mountain.
+
+46 quotes

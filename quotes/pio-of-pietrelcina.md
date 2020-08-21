@@ -1,0 +1,80 @@
+ - Pray, Hope, and Don’t Worry.
+ - Pray, hope and don’t worry. Anxiety doesn’t help at all. Our Merciful Lord will listen to your prayer.
+ - Peace is the simplicity of heart, serenity of mind, tranquility of soul, the bond of love.
+ - The Rosary is THE weapon.
+ - Prayer is the best weapon we possess. It is the key that opens the heart of God.
+ - Be content to progress in slow steps until you have legs to run and wings with which to fly.
+ - You must concentrate on pleasing God alone, and if He is pleased, you must be pleased.
+ - In books we seek God; in prayer we find him. Prayer is the key which opens God’s heart.
+ - Pray with perseverance, with faith, with calmness and serenity.
+ - It would be easier for the world to survive without the sun than to do so without the Holy Mass.
+ - Fear not because God is with you.
+ - Our Lord loves you and loves you tenderly.
+ - As gifts increase in you, let your humility grow, for you must consider that everything is given to you on loan.
+ - Prayer is the best weapon we have; it is the key to God’s heart. You must speak to Jesus not only with your lips, but with your heart. In fact on certain occasions you should only speak to Him with your heart.
+ - In all the events of life, you must recognize the Divine will. Adore and bless it, especially in the things which are the hardest for you.
+ - Why fly like a hen when you can soar like an eagle?
+ - We must empty purgatory with our prayers.
+ - Always stay close to this Heavenly Mother, because she is the sea to be crossed to reach the shores of Eternal Splendour.
+ - Love is the first ingredient in the relief of suffering.
+ - Always humble yourself lovingly before God and man, because God speaks to those who are truly humble of heart, and enriches them with His gifts.
+ - Oh, how precious time is! Blessed are those who know how to make good use of it. Oh, if only all could understand how precious time is, undoubtedly everyone would do his best to spend it in a praiseworthy manner!
+ - The life of a Christian is nothing but a perpetual struggle against self; there is no flowering of the soul to the beauty of its perfection except at the price of pain.
+ - Your tears were collected by the angels and were placed in a golden chalice, and you will find them when you present yourself before God.
+ - It is necessary to be strong, in order to become great: that is our duty. Life is a struggle, which we cannot avoid. We must triumph!
+ - Walk in the way of the Lord with simplicity and do not torment your spirit. You must hate your defects, but with a quiet hate, not troublesome and restless.
+ - Do not let your heart become troubled by the sad spectacle of human injustice. Even this has its value in the face of all else. And it is from this that one day you will see the justice of God rising with unfailing triumph.
+ - Humility and purity are the wings which carry us to God and make us almost divine.
+ - May the Child Jesus be the star that guides you through the desert of your present life.
+ - In the spiritual life, you must take one step forward each day in a vertical line, from the bottom up.
+ - The sacred gift of prayer is in the right hand of our Savior, and according to the measure that you empty yourself of yourself, that is of love of your senses and of your own will, and make progress in rooting yourself in holy humility, to that extent the Lord will speak to your heart.
+ - The Cross will not crush you; if its weight makes you stagger, its power will also sustain you.
+ - Never rise from the table without having given due thanks to the Lord. If we act in this way, we need have no fear of the wretched sin of gluttony.
+ - Some people are so foolish that they think they can go through life without the help of the Blessed Mother.
+ - In order to console a soul in it’s sufferings, point out to it all the good it can still do.
+ - I feel a great desire to abandon myself with greater trust to the Divine Mercy and to place my hope in God alone.
+ - Go to the Madonna. Love her! Always say the Rosary. Say it well. Say it as often as you can! Be souls of prayer. Never tire of praying, it is what is essential. Prayer shakes the Heart of God, it obtains necessary graces!
+ - The devil is like a rabid dog tied to a chain; beyond the length of the chain he cannot seize anyone. And you: keep at a distance. If you approach too near, you let yourself be caught. Remember that the devil has only one door by which to enter the soul: the will.
+ - The Church is the house of God. It is forbidden for men to enter with bare arms or in shorts. It is forbidden for women to enter in trousers, without a veil on their head, in short clothing, low necklines, sleeveless or immodest dresses.
+ - On this earth everyone has his cross. But we must act in such a way that we be not the bad, but good thief.
+ - The longer the trial to which God subjects you, the greater the goodness in comforting you during the time of trial and in the exaltation after the combat.
+ - Love Our Lady and make her loved; always recite the Rosary and recite it as often as possible.
+ - If the soul would know the merit which one acquires in temptations suffered in patience and conquered, it would be tempted to say: “Lord, send me temptations.”
+ - Through the study of books one seeks God; by meditation one finds him.
+ - Jesus himself wants my sufferings; He needs them for souls.
+ - In the spiritual life, he who does not advance goes backwards.
+ - If you have the courage to imitate Mary Magdalene in her sins, have the courage to imitate her penance!
+ - Jesus who cannot suffer long to keep you in affliction will come to relieve and comfort you by infusing fresh courage into your soul.
+ - We are the administrators of our money. We will have to give God an account of the use we make of it up to the last cent.
+ - The most beautiful act of faith is the one made in darkness, in sacrificing, and with extreme effort.
+ - Only in Heaven will everything be as beautiful as spring, as pleasant as autumn, and as full of love as summer.
+ - The more you are afflicted, the more you ought to rejoice, because in the fire of tribulation the soul will become pure gold, worthy to be placed and to shine in the heavenly palace.
+ - Our Lord loves you and loves you tenderly; and if He does not let you feel the sweetness of His love, it is to make you more humble and abject in your own eyes.
+ - Ahead! Courage! In the spiritual life he who does not advance goes backward. It happens as with a boat which always must go ahead. If it stands still the wind will blow it back.
+ - Some people are so foolish that they think they can go through life without the help of the Blessed Mother. Love the Madonna and pray the rosary, for her Rosary is the weapon against the evils of the world today. All graces given by God pass through the Blessed Mother.
+ - Since eternity means happiness for you, what does it matter if some of these passing moments are unpleasant?
+ - I remind you that I belong with great ardor to everyone and for this reason I am suffering immensely for all.
+ - Recommend me to the Lord and to the Virgin Mother because I am in extreme need of their help.
+ - In order to attract us, the Lord grants us many graces that we believe can easily obtain Heaven for us. We do not know, however, that in order to grow, we need hard bread: the cross, humiliation, trials and denials.
+ - The Mother of Sorrows is my confidante, my teacher, my counselor, and my powerful advocate.
+ - A thousand years of enjoying human glory is not worth even an hour spent sweetly communing with Jesus in the Blessed Sacrament.
+ - Joy, with peace, is the sister of charity. Serve the Lord with laughter.
+ - Faith guides even us and we follow its sure light on the way which conducts us to God and His homeland.
+ - It is true that God’s power triumphs over everything, but humble and suffering prayer prevails over God Himself.
+ - The Lord is a Father, the most tender and best of fathers. He cannot fail to be moved when His children appeal to Him.
+ - Be comforted with this divine thought that your spiritual and physical pains are the test of the Divine Will.
+ - May the Mother of Jesus and our Mother, always smile on your spirit, obtaining for it, from her Most Holy Son, every heavenly blessing.
+ - The Lord our King will hold the door of His heart open for anyone who wants to enter for an audience at any time.
+ - By the virtue of modesty the devout person governs all his exterior acts. With good reason, then, does St. Paul recommend this virtue to all and declare how necessary it is and as if this were not enough he considers that this virtue should be obvious to all.
+ - Your temptations are from the devil and from Hell; but your sufferings and afflictions are from God and Heaven.
+ - Let us bind ourselves tightly to the Sorrowful Heart of our Heavenly Mother and reflect on it’s boundless grief and how precious is our soul.
+ - Always remain close to the Catholic Church, because it alone can give you true peace, since it alone possesses Jesus in the Blessed Sacrament, the true Prince of Peace.
+ - Do you not see the Madonna always beside the tabernacle?
+ - I want to be only a poor friar who prays – if God sees blemishes even in the angels, can you imagine what He sees in me!
+ - Our Lord sends the crosses; we do not have to invent them.
+ - Time spent in honor of God for the salvation of souls is never badly spent.
+ - We must know how to confide. There is the fear of God and the fear of a Judas. Too much fear makes one labour without love, and too much confidence prevents from considering the danger which we must overcome.
+ - By suffering we are able to give something to God. The gift of pain, of suffering is a big thing and cannot be accomplished in Paradise.
+ - Let us remember that the Heart of Jesus has called us not only for our own sanctification, but also for that of other souls. He wants to be helped in the salvation of souls.
+
+78 quotes

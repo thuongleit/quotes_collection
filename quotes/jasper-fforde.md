@@ -1,0 +1,115 @@
+ - Religion isn’t the cause of wars, it’s the excuse.
+ - Failure concentrates the mind wonderfully. If you don’t make mistakes, you’re not trying hard enough.
+ - Books may look like nothing more than words on a page, but they are actually an infinitely complex imaginotransference technology that translates odd, inky squiggles into pictures inside your head.
+ - Growth purely for its own sake is the philosophy of cancer.
+ - Two minds with but a single thought, two hearts that beat as one.
+ - The barriers between reality and fiction are softer than we think; a bit like a frozen lake. Hundreds of people can walk across it, but then one evening a thin spot develops and someone falls through; the hole is frozen over by the following morning.
+ - If only life were that simple; if one could jump to the good parts and flick through the bad –.
+ - Defiance through compliance.
+ - Mr. McGregor’s a nasty piece of work, isn’t he? Quite the Darth Vader of children’s literature.
+ - Everything comes to an end. A good bottle of wine, a summer’s day, a long-running sitcom, one’s life, and eventually our species. The question for many of us is not that everything will come to an end but when. And can we do anything vaguely useful until it does?
+ - Sometimes choice is a luxury that fate does not afford us.
+ - If it weren’t for greed, intolerance, hate, passion and murder, you would have no works of art, no great buildings, no medical science, no Mozart, no Van Gough, no Muppets and no Louis Armstrong.
+ - Apart from the faint odor of ink that pervaded the scene, it might have been real.
+ - Lesson one in time travel, Thursday. First of all, we are all time travellers. The vast majority of us manage only one day per day.
+ - Without a yardstick sometimes the high points can be taken for granted.
+ - If the real world were a book, it would never find a publisher.
+ - Because there’s someone else here in East Carmin. Someone hopelessly unsuitable. It’s all a really bad idea and will lead to trouble of the worst sort. But no matter what, every minute in her presence makes my life a minute more complete.
+ - Fiction wouldn’t be much fun without its fair share of scoundrels, and they have to live somewhere.
+ - The fun one can have writing books about books is limitless, to be honest.
+ - Reality TV was to me the worst form of entertainment – the modern equivalent of paying sixpence to watch lunatics howling at the wall down at the local madhouse.
+ - The industrial age had only just begun; the planet had reached its Best Before date.
+ - Prejudice is a product of ignorance that hides behind barriers of tradition.
+ - Yes, and imagine a world where there were no hypothetical situations.
+ - Almost anything can be improved with the addition of bacon.
+ - Her majesty is one verb short of a sentence.
+ - Palindrome as well. My sister’s name is Hannah. Father liked word games. He was fourteen times World Scrabble Champion. When he died, we buried him at Queenzieburn to make use of the triple word score.
+ - Love and magic are like oil and water – they just don’t mix.
+ - Marriage, like spinach and opera, was something I had never thought I would like.
+ - He was, after all, the ultimate rebel – it takes a lot of cojones to stand up to Zeus.
+ - We all make mistakes at some time in our lives, some more than others. It is only when the cost is counted in human lives that people really take notice.
+ - Individual words, sounds, squiggles on paper with no meanings other than those with which our imagination can clothe them.
+ - Love is a wonderful thing, my dear, but it leaves you wide open for blackmail.
+ - To each our own Hamlet.
+ - Ill-fitting grammar are like ill-fitting shoes. You can get used to it for a bit, but then one day your toes fall off and you can’t walk to the bathroom.
+ - The cucumber and the tomato are both fruit; the avocado is a nut. To assist with the dietary requirements of vegetarians, on the first Tuesday of the month a chicken is officially a vegetable.
+ - Without unscrambled eggs, there was no time travel, no more depredation of the Now, and we could look to a brighter future of long-term thought – and more reading.
+ - History has rewritten itself so many times I’m not really sure how it was to begin with – it’s a bit like trying to guess the original color of a wall when it’s been repainted eight times.
+ - Pretend to be mad and talk a lot. Then – and this is the important bit – do nothing at all until you absolutely have to and then make sure everyone dies.
+ - I also read about Heathcliff’s unexpected three-year career in Hollywood under the name Buck Stallion and his eventual return to the pages of Wuthering Heights.
+ - I work very much on the principle that anything created by mankind has mischief and error hardwired into its inception.
+ - I got Oedipus off the incest charge – technicality, of course – he didn’t know it was his mother at the time.
+ - The safest course was actually the simplest-do nothing at all and hope everything turned out for the best. It wasn’t a great plan, but it had the benefits of simplicity and a long tradition.
+ - Don’t let anyone tell you the future is already written. The best any prophet can do is to give you the most likely version of future events. It is up to us to accept the future for what it is, or change it. It is easy to go with the flow; it takes a person of singular courage to go against it.
+ - Social mores change with time, like fashion – who knows where it might all end up? I especially like the idea that waste, impoliteness and overpopulation become “abominations,” although I’m not sure recycling one’s aunt will ever truly catch on.
+ - True and baseless evil is as rare as the purest good – and we all know how rare that is...
+ - Governments and fashions come and go but Jane Eyre is for all time.
+ - I was on HPD – Heathcliff Protection Duty – in Wuthering Heights for two years, and believe me, the ProCaths tried everything. I personally saved him from assassination eight times.
+ - Sometimes I don’t know whether I’m thening or nowing.
+ - The Kingdom of Hereford was unique in the Ununited Kingdoms for having driving tests based on maturity, not age, much to the chagrin of a lot of males, some of whom were still failing to make the grade at thirty-two.
+ - Okay, this is the wisdom. First, time spent on reconnaissanse is never wasted. Second, almost anything can be improved with the addition of bacon. And finally, there is no problem on Earth that can’t be ameliorated by a hot bath and a cup of tea.
+ - Quarkbeasts, for all their fearsome looks, are obedient to a fault. They are nine-tenths velociraptor and kitchen blender and one-tenth Labrador. It was the Labrador tenth that I valued most.
+ - Sometimes, a word succeeds beyond the wildest dreams of its creators, like a virus sent into the world to infect common speech.
+ - Aspects that we consider normal today could very well be repugnant in the future – eating animals, for one thing, or abundant choice, or invasive surgery. I was simply trying to demonstrate that what is acceptable today may not be acceptable forever, and vice-versa.
+ - The cleanest souls are the easiest to soil.
+ - People don’t change just because you know more about them.
+ - Ordinary adults don’t like children to speak of things that are denied them by their own gray minds.
+ - The universe always moves from an ordered state to a disordered one; that a glass may fall to the ground and shatter yet you never see a broken glass reassemble itself and then jump back on the table.
+ - Dead. Never been that before. Not even once.
+ - For an author just starting out, you’ve got to deliver the goods every year or sooner or people will forget you or you will lose momentum. There is a contract that exists between author and reader.
+ - Death and the end of one’s life are two very different things indeed.
+ - So my humor, I’d say, comes from a mixture of lowbrow comedy shows and highbrow theater. It’s an interesting mix.
+ - Librarying is a harder profession than the public realizes, he said. People think it’s all rubber stamps, knowing that Dewey 521 is celestial mechanics and saying ‘Try looking under fiction’ sixty eight times a day.
+ - Our notions of self-determination are, on the whole, something of a myth. We are governed almost exclusively by our own peculiar habits, which makes those who rail against them that much more remarkable.
+ - If the real world were a book, it would never find a publisher. Overlong, detailed to the point of distraction-and ultimately, without a major resolution.
+ - I shouldn’t believe anything I say, if I were you-and that includes what I just told you.
+ - Love isn’t sensible, Red. I think that’s the point.
+ - I could almost see common sense and denial fighting away at each other within her. In the end, denial won, as it so often does.
+ - You have many fine qualities that I admire. But you are out of time. You should have been born a century ago, when values such as yours meant something.
+ - The Goliath Corporation was to altruism what Genghis Khan was to soft furnishings.
+ - For a taste that’s a bit more distinct, eat a bird before it’s extinct.
+ - I still feel threatened by academics, but my books have a lot of academic in-jokes and everybody assumes I went to university and studied English.
+ - That’s the thing about destiny: It can’t be predicted, and it’s usually pretty odd.
+ - Personally I have a great deal of fun doing it, which is an inspiration in itself really. It really allows me to daydream, as in “schooldream” which is daydreaming with ink and get paid for it which is something I don’t say to schools when I go in and talk to them.
+ - I’ve never been averse to a little risk – after all, writing without risk is not really writing at all. Sometimes one has to just let fly with a high concept piece and see where the pieces fall. As it generally turns out, the central story is familiar, but just with different rules of engagement.
+ - I have a very varied taste in music. Everything from rap to classical to Latino to Rat Pack to jazz.
+ - How many people want to read about three disreputable pigs and a dopey wolf with a disposition towards house demolition?
+ - I didn’t set out to discover a truth. I was actually sent to the Outer Fringes to conduct a chair census and learn some humility. But the truth inevitably found me, as important truths often do, like a lost thought in need of a mind.
+ - There are a lot of idiots in this country, and they deserve representation as much as the next man.
+ - You see? I know where every single book used to be in the library. She pointed to the shelf opposite. Over there was Catch-22, which was a hugely popular fishing book and one of a series, I believe.
+ - Cash is always the deciding factor in such matters of moral politics; nothing ever gets done unless motivated by commerce or greed.
+ - I wished I could share my own optimism.
+ - Every book should have a romance.
+ - I suggest we depict penguins as callous and unfeeling creatures who insist on bringing up their children in what is little more than a large chest freezer.
+ - If it’s a chimera alert, we just follows the screams.
+ - Death, I had discovered long ago, was available in varying flavors, and none of them particularly palatable.
+ - If you even think about asking Harry Potter for an autograph, your day ends right now.
+ - Comedy was one of those genres that while appearing quite jolly was actually highly dangerous.
+ - I have the death sentence in seven genres.
+ - The government was to raise the duty on cheese to 83 percent, an unpopular move that would doubtless have the more militant citizens picketing cheese shops.
+ - I collect ex-boyfriends – and more than five, at last count.
+ - Humpty had always sat on walls, it was his way.
+ - There is a certain degree of steampunkishness that creeps into my books.
+ - Writing is a subtle art that is reached mostly by self-discovery and experimentation.
+ - I loved him, officer. More than any woman ever loved an egg.
+ - Marriage is an honorable estate and should not be used simply as an excuse for legal intercourse.
+ - Writing needs to be practiced; there is a limit to how much can be gleaned from a teacher or a manual. The true essence of writing is out there, in the world, and inside, within yourself. To write, you have to give.
+ - Agents and publishers only want one thing – good writing.
+ - We were developing a machine that used egg white, heat and sugar to synthesize methanol when a power surge caused an implosion. Owens was meringued. By the time we chipped him out the poor chap had expired.
+ - I would so hate to be a first-person character! Always on your guard, always having people read your thoughts!
+ - People who read my books have an open mind when it comes to new, bizarre, interesting and exciting ideas.
+ - I’ve got six months to sort out the hackers, get the Japanese knotweed under control and find an acceptable form of narcissus.
+ - Literary detection and firearms don’t really go hand in hand; pen mighter than the sword and so forth.
+ - To a great extent, I still write for myself, write what amuses me. Fortunately, I have a quirky sort of strange sense of humor that appeals to other people and that’s good. I still sort of write for myself though there are some areas of the book I feel I have to put in and I feel I have to deliver.
+ - It took me ten years and seven books to bag an agent – it took me that long to start writing good.
+ - We’re in a psuedoscientific technobabble.
+ - Scientific thought – indeed, any mode of thought, whether it be religious or philosophical or anything else – is just like the fashions that we wear – only much longer lived. It’s a little like a boy band.
+ - Anything devised by man has bureaucracy, corrpution and error hardwired at inception.
+ - Who do readers expect to see when they pick up this book? Who has won the Most Troubled Romantic Lead at the BookWorld Awards seventy-seven times in a row? Me. All me.
+ - Cats aren’t really friendly, they’re just cozying up to the dominant life-form as a hedge against extinction.
+ - Whereas story is processed in the mind in a straightforward manner, poetry bypasses rational thought and goes straight to the limbic system and lights it up like a brushfire. It’s the crack cocaine of the literary world.
+ - A good butler should save his employer’s life at least once a day.
+ - Death doesn’t care about personalities – he’s more interested in meeting quotas.
+ - If you expect me to believe that a lawyer wrote A Midsummer Night’s Dream, I must be dafter than I look.
+
+113 quotes

@@ -1,0 +1,30 @@
+ - Hope is the only thing stronger than fear. A little hope is effective. A lot of hope is dangerous. A spark is just fine as long as its contained.
+ - You’re on your own now. You are not helpless. You will find your way.
+ - The cruelest thing you can do to a person who’s living in panic is to offer him or her hope that turns out false. When the crash comes its intolerable.
+ - Blessed are the flexible for they will not allow themselves to become bent out of shape!
+ - Hope, perhaps the most dangerous of all emotions and perhaps the most necessary.
+ - What a man can’t remember doesn’t exist for him.
+ - Greater economic power will be in the hands of too few.
+ - I mean, we’re all trying to find out who the hell we are, aren’t we?
+ - The easiest thing in the world is to convince yourself that you’re right. As one grows old, it is easier still.
+ - It was important to keep moving. Certain struggles continued. Others had to be brought to a close. The wisdom was in deciding which.
+ - Credo quia absurdum – I believe because it is absurd.
+ - Hate and love are essentially the same in that the person who loves is as easily manipulated as a person who hates.
+ - Life is extremely complicated.
+ - Learn always but never appear to be learning.
+ - He wasn’t smart enough to see it, said Jason Bourne. He couldn’t think geometrically.
+ - Well, let me tell you, gentlemen, the games of the devil are not restricted to those confined to hell. Others can play them.
+ - Bourne concentrated on rest and mobility. From somewhere in his forgotten past he understood that recovery depended upon both and he applied rigid discipline to both.
+ - The success of any trap lies in its fundamental simplicity. The reverse trap by the nature of its single complication must be swift and simpler still.
+ - A man’s weaknesses may intrude on his faith but they do not diminish it.
+ - Visions of one powerful scene after another parade across his inner screen, each exploding with drama and meaning.
+ - Sundown. The distressed sloop, its mainmast shattered by lightning, its sails ripped by the winds of the open sea, drifted into the small, quiet beach of a private island in the Lesser Antilles.
+ - Characterization is integral to the theatrical experience.
+ - There’ll come a moment when you think you can make it, and you’ll try.
+ - Perhaps conscience did not always produce cowards. Sometimes it made a man feel better about himself.
+ - A theater person should know what holds an audience and what does not.
+ - I have always preferred conflict of individuals over the battle of extreme ideologies.
+ - Men and women walked casually about as they did on the main floor, every now and then stopping one another, exchanging pleasantries or scraps of relevantly irrelevant information. Gossip.
+ - I try as best I can to enter the realm of nuances of human behavior.
+
+28 quotes

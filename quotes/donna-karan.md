@@ -1,0 +1,75 @@
+ - Its all about finding the calm in the chaos.
+ - Every problem has a creative solution.
+ - Delete the negative; accentuate the positive!
+ - I believe in the power of women. As nurturers, we have a unique ability to care and share and make the world a better place. Women Who Inspire are women who are making a difference.
+ - Evening is a time of real experimentation. You never want to look the same way.
+ - For me, the soul is connected to a higher being. It’s not about religion; it’s about connecting to your true self – your truth, the truth inside of you, the one you were born with.
+ - Everything comes out of what works for me.
+ - I like the idea of having many different ways to express myself. There is a part of me as an artist and a creator who would like to express myself in many different ways. But then at the same time I know I have limited hours in the day, and I can only do so much successfully.
+ - I celebrate my people a lot and that’s why people stay with me as long as they do.
+ - Just take a breath and see what happens.
+ - You have to keep your eyes and heart open – there are always new things to discover, new problems to solve.
+ - Design is a constant challenge to balance comfort with luxe, the practical with the desirable.
+ - I love building spaces: architecture, furniture, all of it, probably more than fashion. The development procedure is more tactile. It’s about space and form and it’s something you can share with other people.
+ - I start my day with a mind, body, soul practice – yoga, Pilates or meditation.
+ - My biggest faux pas is not giving time for myself.
+ - I never see one woman when I design, it’s always a universe of women.
+ - Everything I do is a matter of heart, body and soul. For me, designing is an expression of who I am as a woman, with all the complications, feelings and emotions.
+ - I always need a support team, even at Donna Karan. I like collaborating. There is something in collaboration that is wonderful.
+ - I think I was always inspired by seeing a problem, and finding a solution.
+ - Everything I do is a matter of heart, body and soul.
+ - Every time I see the sunshine in the bright blue sky, I cannot help but think how blessed I really am to see another day. There are so many who may have not woken up to see it but I have been blessed.
+ - Smell is the primordial sense, more powerful, more primitive, more intimately tied to our memories and emotions than any other. A scent can trigger spiritual, emotional or physical peace and stimulate healing and wellness.
+ - I love Thieves, it is therapeutic, if you’re not feeling well. It has a very strong scent but is quite wonderful. I also use lavender. Peppermint, when my stomach is upset.
+ - I’m very involved in my business and with my family and my friends. I don’t play the social world very much, and not to promote my product. I do it for the philanthropic problems because there I feel that I’m making a difference, and that I’m helping. So I do it in a soulful way.
+ - I’ve been away and haven’t seen my family. I speak to them every day though. I miss them, but I love traveling.
+ - I’m not as obsessive-compulsive about certain things; I give a lot of latitude to people and support people. I know that I can’t do it myself and that you’re only as good as the people you have behind you.
+ - Fragrance is the first layer of dressing, a woman’s invisible body suit.
+ - I’m very involved with Pilates as well; you have to be careful. I can’t do headstands any more, I have a neck and a spinal problem, but I used to do it.
+ - It’s hard to keep the energy going sometimes, that’s why I like to go with a group of people who are meditating. I love meditating in groups, it’s fantastic.
+ - Basically, I was a hippie and still am a flower child.
+ - When I go to Bali, when I come to India and travel and see different cultures. I make sure I’m involved in the world out there, creatively, culturally.
+ - My New Years Resolution is to find the calm in the chaos. Practicing yoga is one of the greatest gifts you can give yourself. It’s where you connect mind, body and spirit.
+ - Today, fashion is really about sensuality-how a woman feels on the inside. In the ’80s women used suits with exaggerated shoulders and waists to make a strong impression. Women are now more comfortable with themselves and their bodies-they no longer feel the need to hide behind their clothes.
+ - One of our greatest gifts is out intuition. It is a sixth sense we all have – we just need to learn to tap into and trust it.
+ - I have tried to hold my philanthropic passion to fashion, because I think this is very important, and I realize I need to delve even deeper into it.
+ - I don’t feel burdened, but I do feel a little frustrated. Because I see the problem, and I can see the solution – but there are two strongly different points of view on this – like the Republicans and Democrats.
+ - With all the yoga and meditation that I do, when the chaos happens it happens. But I’m not as affected as a lot of people – I don’t react as much. I just let things drip off my back a little bit.
+ - Women are now more comfortable with themselves and their bodies-they no longer feel the need to hide behind their clothes.
+ - I would love to work with the artisans and take it to another dimension, the same way I did in Haiti.
+ - My bodysuit is how I start everyday. I wear a bodysuit everyday of my life. It’s how I start my yoga practice. It’s underneath it all. For me, what goes under the clothes is as important as what goes on top of the clothes. It’s a layering aspect, so it’s inside.
+ - A fashion victim is dressed in designer clothes from top to bottom.
+ - Now the industry is looking at the change in a very real way – to find ways of talking to the consumer much faster. Everything we have is changing with communication – from fashion to newspapers.
+ - Design and style should work toward making you look good and feel good without a lot of effort so you can get on with the things that matter.
+ - I did Urban Zen for myself, to make clothes for me and my friends, a similar philosophy to when I started Donna Karan. Except this time I hope it will stay that way so that I will be able to support young designers and mentor them.
+ - My favorite journey is anywhere I haven’t been.
+ - Business, numbers, negotiations, all that stuff I wouldn’t go near.
+ - I truly believe that philanthropy and commerce can work together.
+ - Accent your positive and delete your negative.
+ - I wanted to create something that would live on forever, beyond my time, and out of that came Cashmere Mist.
+ - Where there is creativity there is hope and Haiti is the most hopeful place I’ve experienced.
+ - If you look at the world today, there are as many solutions as there are problems. I think that is a big part of creativity. That’s why I started Urban Zen. Because I wanted to dress and address people.
+ - The most important thing any woman can do is promote her inner well-being.
+ - Usually I do a practice in the morning first and then meditate. I’m fortunate that I can do it in a car, in a bus, in a plane.
+ - I’d rather promote New York than anything else in this world because New York to me means the world.
+ - There was a time when we would pick up Women’s Wear Daily and couldn’t wait to see what it read. And now, you get it five minutes later on your iPad or your phone! The same has to apply to fashion.
+ - We’ve come a long way. Power dressing now is designed to let the woman inside us come through.
+ - I must say that the more you give, the more you get. Being able to find solutions, to help other people is extremely gratifying.
+ - I realized I needed to address people, not just dress them.
+ - Sometimes it takes a germ of an idea, which takes a long time to digest.
+ - I feel very strongly about dresses on every level – a dress feels like underpinning.
+ - Personal Style comes from within. It’s when the woman, her individuality and spirit come through. She uses clothes to express who she is and how she feels.
+ - I love working in the markets, I love working with fabric. So I’m not that conditioned to one thing.
+ - You don’t have that much choice in your life, which is one of the big lessons I’ve learned. I was going to be a designer whether I wanted to be a designer or not. So there I was.
+ - Its really easy to get colors right. Its really hard to get black – and neutrals – right. Black is certainly a color but its also an illusion.
+ - I look in my closet, and if I need it, I design it.
+ - Where there is creativity, there is hope.
+ - I wouldn’t be who I am without my husband, who handled the business end of Donna Karan so I could be creative.
+ - I was so overwhelmed by India when I first came – it still inspires me because I still go for the culture, I still go for the colors.
+ - That’s a journey I’ve been on for many years. I mean, being a working mother, realizing that I have to make and find my balance.
+ - I couldn’t live without something that touches my heart. No one should.
+ - The magic happens in the creative studios. But sometimes you’re inspired when you’re removed from it a little bit. That’s when the juice starts to percolate.
+ - It used to be only yoga, but now I do Pilates as well; I feel like I need the balance.
+ - I couldn’t stand the fact that anybody else was dressing like me. It was supposed to be for me and my friends, not my daughter and her friends!
+
+73 quotes

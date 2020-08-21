@@ -1,0 +1,21 @@
+ - For I think belief in God is not a matter of reason at all; I think it finally is a matter of love.
+ - The demon is a liar. He will lie to confuse us; but he will also mix lies with the truth to attack us. His attack is psychological, Damien. And powerful.
+ - But a myth, to speak plainly, to me is like a menu in a fancy French restaurant: glamorous, complicated camouflage for a fact you wouldn’t otherwise swallow, like maybe lima beans.
+ - Would you like to hear a nice definition of jealousy? It’s the feeling that you get when someone you absolutely detest is having a wonderful time without you.
+ - Procrastination is what we often call ’resistance.
+ - We mourn the blossoms of May because they are to whither; but we know that May is one day to have its revenge upon November, by the revolution of that solemn circle which never stops – which teaches us in our height of hope, ever to be sober, and in our depth of desolation, never to despair.
+ - What looked like morning was the beginning of endless night.
+ - God never talks. But the devil keeps advertising, Father. The devil does a lot of commercials.
+ - And the sad truth is that nobody wants me to write comedy. The Exorcist not only ended that career, it expunged all memory of its existence.
+ - I lived in Georgetown in the late 70s about four houses down from the steps.
+ - The terror drifted over georgetown like the sun over a blind mans eyes.
+ - When the filter is weakened by a powerful drug, what we see is not delusion but the truth.
+ - Earth is a homicide victim. We lose our children. There are wars. Disease. And God comes strolling by like a cosmic Billie Burke.
+ - I’m not aware that I was consciously influenced by any director, though these things often happen unnoticed, submerged in the unconscious.
+ - I tried to make every bit of it as creepy as I could. And I had the same response you do. I feel the same way. The hospital scenes, that procedure was so real.
+ - Your thoughts are too dull to entertain.
+ - I get cassettes near Academy Award time of every movie that’s made that thinks it has some kind of chance for a nomination – that’s when I watch my movies.
+ - Horror does not interest me, and so I know little of its practicioners, old or current.
+ - Like the brief doomed flare of exploding suns that registers dimly on blind men’s eyes, the beginning of the horror passed almost unnoticed; in the shriek of what followed, in fact, was forgotten and perhaps not connected to the horror at all.
+
+19 quotes

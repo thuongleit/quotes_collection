@@ -1,0 +1,43 @@
+ - Work hard, trust in God, and keep your bowels open.
+ - He who stops being better stops being good.
+ - Keep your faith in God, but keep your powder dry.
+ - Make the iron hot by striking it.
+ - No one rises so high as he who knows not whither he is going. Not only strike while the iron is hot, but make it hot by striking. Do not trust the cheering, for those persons would shout as much if you or I were going to be hanged.
+ - You have sat too long for any good you have been doing. Depart, I say, and let us have done with you. In the name of God, go!
+ - I have learned that if you fear God, you have no one else to fear.
+ - Paint me as I am. If you leave out the scars and wrinkles, I will not pay you a shilling.
+ - A man-of-war is the best ambassador.
+ - There isn’t a tree to hang a man, water to drown a man nor soil to bury a man.
+ - Subtlety may deceive you; integrity never will.
+ - Catholicism is more than a religion, it is a political power. Therefore I’m led to believe there will be no peace in Ireland until the Catholic Church is crushed.
+ - Our swords are in God’s hands, And our faith is in the Lord. Charge!
+ - I had rather have a plain, russet-coated Captain, that knows what he fights for, and loves what he knows, than that which you call a Gentle-man and is nothing else.
+ - I beseech you, in the bowels of Christ, think it possible you may be mistaken.
+ - A man never rises higher than when he does not know whither his path can still lead him.
+ - I desire not to keep my place in this government an hour longer than I may preserve England in its just rights, and may protect the people of God in such a just liberty of their consciences...
+ - No one rises so high as he who knows not whither he is going.
+ - Necessity has no law.
+ - Who can love to walk in the dark? But providence doth often so dispose.
+ - For that which you mention concerning liberty of conscience, I meddle not with any man’s conscience.
+ - Opportunity is sometimes hard to recognize if you’re only looking for a lucky break.
+ - Mr. Lely, I desire you would use all your skill to paint my picture truly like me, and not flatter me at all; but remark all these roughnesses, pimples, warts, and everything as you see me, otherwise I will never pay a farthing for it.
+ - Royalty is but a feather in a man’s cap; let children enjoy their rattle.
+ - A few honest men are better than numbers.
+ - What is all our histories, but God showing himself, shaking and trampling on everything that he has not planted.
+ - The State, in choosing men to serve it, takes no notice of their opinions. If they be willing faithfully to serve it, that satisfies.
+ - Nature can do more than physicians.
+ - On becoming soldiers we have not ceased to be citizens.
+ - Men have been led in dark paths, through the providence and dispensation of God. Why, surely it is not to be objected to a man, for who can love to walk in the dark? But providence doth often so dispose.
+ - I have not the particular shining bauble or feather in my cap for crowds to gaze at or kneel to, but I have power and resolution for foes to tremble at.
+ - I was by birth a gentleman, living neither in any considerable height nor yet in obscurity.
+ - Some people have food, but no appetite; others have an appetite, but no food. I have both. The Lord be praised.
+ - My desire is to make what haste I can to be gone.
+ - If any man whatsoever hath carried on the design of deposing the King and disinheriting his posterity; or if any man hath yet such a design he should be the greatest traitor and rebel in the world; but, since the Providence of God hath cast this upon us, I cannot but submit to Providence.
+ - Necessity hath no law. Feigned necessities, imaginary necessities, are the greatest cozenage men can put upon the Providence of God, and make pretences to break known rules by.
+ - I would have been glad to have lived under my wood side, and to have kept a flock of sheep, rather than to have undertaken this government.
+ - Your pretended fear lest error should step in, is like the man that would keep all the wine out of the country lest men should be drunk. It will be found an unjust and unwise jealousy, to deny a man the liberty he hath by nature upon a supposition that he may abuse it.
+ - That which brought me into the capacity I now stand in, was the Petition and Advice given me by you, who, in reference to the ancient Constitution, did draw me here to accept the place of Protector. There is not a man living can say I sought it, no not a man, nor woman, treading upon English ground.
+ - Does a man speak foolishly? – suffer him gladly, for you are wise. Does he speak erroneously? – stop such a man’s mouth with sound words that cannot be gainsaid. Does he speak truly? – rejoice in the truth.
+ - My prayer is that God give me no longer life than I shall be glad to use mine office in edification, and not in destruction.
+
+41 quotes

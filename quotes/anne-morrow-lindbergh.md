@@ -1,0 +1,152 @@
+ - It takes as much courage to have tried and failed as it does to have tried and succeeded.
+ - The most exhausting thing in life is being insincere.
+ - Good communication is just as stimulating as black coffee, and just as hard to sleep after.
+ - The wave of the future is coming and there is no fighting it.
+ - Only love can be divided endlessly and still not diminish.
+ - We tend not to choose the unknown, which might be a shock or a disappointment or simply a little difficult to cope with. An yet it is the unknown with all its disappointments and surprises that is the most enriching.
+ - My Life cannot implement in action the demands of all the people to whom my heart responds.
+ - Only with winter-patience can we bring the deep-desired, long-awaited Spring.
+ - To give without any reward, or any notice, has a special quality of its own.
+ - Go with the pain, let it take you. Open your palms and your body to the pain. It comes in waves like the tide and you must be open as a vessel lying on the beach, letting it fill you up and then, retreating, leaving you empty and clear...
+ - One can never pay in gratitude; one can only pay ‘in kind’ somewhere else in life.
+ - When the heart is flooded with love there is no room in it for fear, for doubt, for hesitation.
+ - And one perfect day can give clues for a more perfect life.
+ - We walk up the beach under the stars. And when we are tired of walking, we lie flat on the sand under a bowl of stars. We feel stretched, expanded to take in their compass. They pour into us until we are filled with stars, up to the brim.
+ - When one is out of touch with oneself, one cannot touch others.
+ - Perhaps I am a bear, or some hibernating animal underneath, for the instinct to be half asleep all winter is so strong in me.
+ - The web of marriage is made by propinquity, in the day to day living side by side, looking outward in the same direction. It is woven in space and in time of the substance of life itself.
+ - So many things we love are you!
+ - Men kick friendship around like a football, but it doesn’t seem to crack. Women treat it like glass and it goes to pieces.
+ - It isn’t for the moment you are struck that you need courage, but for that long uphill climb back to sanity and faith and security.
+ - It is only in solitude that I ever find my own core.
+ - To me there is something completely and satisfyingly restful in that stretch of sea and sand, sea and sand and sky – complete peace, complete fulfillment.
+ - A note of music gains significance from the silence on either side.
+ - Only when a tree has fallen can you take the measure of it. It is the same with a man.
+ - Too many people, too many demands, too much to do; competent, busy, hurrying people – It just isn’t living at all.
+ - The shape of my life is, of course, determined by many things; my background and childhood, my mind and its education, my conscience and its pressures, my heart and its desires.
+ - It is nice to think how one can be recklessly lost in a daisy!
+ - Everything today has been heavy and brown. Bring me a Unicorn to ride about the town.
+ - Who is not afraid of pure space – that breathtaking empty space of an open door?
+ - Grief can’t be shared. Everyone carries it alone. His own burden in his own way.
+ - One cannot collect all the beautiful shells on the beach. One can collect only a few, and they are more beautiful if they are few.
+ - The loneliness you get by the sea is personal and alive. It doesn’t subdue you and make you feel abject. It’s stimulating loneliness.
+ - Fame is a kind of death because it arrests life around the person in the public eye.
+ - Arranging a bowl of flowers in the morning can give a sense of quiet in a crowded day – like writing a poem or saying a prayer.
+ - A simple enough pleasure, surely, to have breakfast alone with one’s husband, but how seldom married people in the midst of life achieve it.
+ - I do not believe that sheer suffering teaches. If suffering alone taught, all the world would be wise, since everyone suffers. To suffering must be added mourning, understanding, patience, love, openness and the willingness to remain vulnerable.
+ - I must write it all out, at any cost. Writing is thinking. It is more than living, for it is being conscious of living.
+ - The artist knows he must be alone to create; the writer, to work out his thoughts; the musician, to compose; the saint, to pray. But women need solitude in order to find again the true essence of themselves.
+ - Only when one is connected to one’s inner core is one connected to others. And, for me, the core, the inner spring, can best be re-found through solitude.
+ - After all, I don’t see why I am always asking for private, individual, selfish miracles when every year there are miracles like white dogwood.
+ - By and large, mothers and housewives are the only workers who do not have regular time off. They are the great vacationless class.
+ - Forsythia is pure joy. There is not an ounce, not a glimmer of sadness or even knowledge in forsythia. Pure, undiluted, untouched joy.
+ - People talk about love as though it were something you could give, like an armful of flowers. And a lot of people give love like that – just dump it down on top of you, a useless strong-scented burden.
+ - Women need solitude in order to find again the true essence of themselves.
+ - It is terribly amusing how many different climates of feelings one can go through in one day.
+ - The most exhausting thing in life, I have discovered, is being insincere. That is why so much of social life is exhausting; one is wearing a mask. I have shed my mask.
+ - Don’t wish me happiness – I don’t expect to be happy it’s gotten beyond that, somehow. Wish me courage and strength and a sense of humor – I will need them all.
+ - Only in growth, reform, and change, paradoxically enough, is true security to be found.
+ - For happiness one needs security, but joy can spring like a flower even from the cliffs of despair.
+ - I want to be pure in heart – but I like to wear my purple dress.
+ - Flying was a very tangible freedom. In those days, it was beauty, adventure, discovery – the epitome of breaking into new worlds.
+ - One must lose one’s life in order to find it.
+ - The present is passed over in the race for the future; the here is neglected in favor of the there. Enjoy the moment, even if it means merely a walk in the country.
+ - This is what one thirsts for, I realize, after the smallness of the day, of work, of details, of intimacy – even of communication, one thirsts for the magnitude and universality of a night full of stars, pouring into one like a fresh tide.
+ - Woman must be the pioneer in this turning inward for strength. In a sense, she has always been the pioneer.
+ - For it is only framed in space that beauty blooms.
+ - Is there anything as horrible as starting on a trip? Once you’re off, that’s all right, but the last moments are earthquake and convulsion, and the feeling that you are a snail being pulled off your rock.
+ - I think best with a pencil in my hand.
+ - Life is a gift, given in trust – like a child.
+ - Perhaps this is the most important thing for me to take back from beach-living: simply the memory that each cycle of the tide is valid; each cycle of the wave is valid; each cycle of a relationship is valid.
+ - People talk about love as if it were something you could give, like an armful of flowers.
+ - Yesterday’s fairy tale is today’s fact. The magician is only one step ahead of his audience.
+ - The beach is not a place to work; to read, write or to think.
+ - I want a singleness of eye, a purity of intention, a central core to my life that will enable me to carry out these obligations and activities as well as I can.
+ - And if flying, like a glass-bottomed bucket, can give you that vision, that seeing eye, which peers down on the still world below the choppy waves – it will always remain magic.
+ - Marriage should, I think, always be a little bit hard and new and strange. It should be breaking your shell and going into another world, and a bigger one.
+ - The intellectual is constantly betrayed by his vanity. Godlike he blandly assumes that he can express everything in words; whereas the things one loves, lives, and dies for are not, in the last analysis completely expressible in words.
+ - The best marriages, like the best lives, were both happy and unhappy. There was even a kind of necessary tension, a certain tautness between the partners that gave the marriage strength, like the tautness of a full sail. You went forward on it.
+ - The collector walks with blinders on; he sees nothing but the prize. In fact, the acquisitive instinct is incompatible with true appreciation of beauty.
+ - It is only framed in space that beauty blooms; only in space are events, and objects and people unique and significant and therefore beautiful.
+ - For the most part, we, who could choose simplicity, choose complication.
+ - Beauty cannot disguise nor music melt A pain undiagnosable but felt.
+ - We must relearn to be alone.
+ - Certain environments, certain modes of life, and certain rules of conduct are more conducive to inner and outer harmony than others. There are, in fact, certain roads that one may follow. Simplification is one of them.
+ - Ideally, both members of a couple in love free each other to new and different worlds.
+ - For is it not possible that middle age can be looked upon as a period of second flowering, second growth, even a kind of second adolescence? It is true that society in general does not help one accept this interpretation of the second half of life.
+ - Woman can best refind herself by losing herself in some kind of creative activity of her own.
+ - I do not like talking casually to people – it does not interest me – and most of them are unwilling to talk at all seriously.
+ - I find there is a quality to being alone that is incredibly precious. Life rushes back into the void, richer, more vivid, fuller than before.
+ - Yesterday I sat in a field of violets for a long time perfectly still, until I really sank into it – into the rhythm of the place, I mean – then when I got up to go home I couldn’t walk quickly or evenly because I was still in time with the field.
+ - The ball of rumor and criticism, once it starts rolling, is difficult to stop.
+ - Purposeful giving is not as apt to deplete one’s resources; it belongs to that natural order of giving that seems to renew itself even in the act of depletion.
+ - I feel we are all islands – in a common sea.
+ - I can conceive of ‘falling in love’ over and over again. But ‘marriage,’ this richness of life itself, I cannot conceive of having again – or with anyone else. In this sense ‘marriage’ seems to me indissoluble.
+ - Why is it that you can sometimes feel the reality of people more keenly through a letter than face to face?
+ - God often used bitter experiences to make us better. Gold can be a helpful servant, but a cruel master.
+ - In our family an experience was not finished, nor truly experienced, unless written down and shared with another.
+ - What a crippling art writing is, no body to it, no craft, really. It’s all in the mind and you never see it or feel it – only sometimes hear it. It uses only such a small part of man. I wish I were a sculptor.
+ - How hard it is to have the beautiful interdependence of marriage and yet be strong in oneself alone.
+ - Why is life speeded up so? Why are things so terribly, unbearably precious that you can’t enjoy them but can only wait breathless in dread of their going?
+ - Duration is not a test of truth or falsehood.
+ - Can one make the future a substitute for the present? And what guarantee have we that the future will be any better if we neglect the present?
+ - Failures aren’t failures if you learn something from them...
+ - For it is not merely the trivial which clutters our lives but the important as well.
+ - Packing is chiefly planning – if it is.
+ - Certain springs are tapped only when you’re alone.
+ - Nothing feeds the center of being so much as creative work. The curtain of mechanization has come down between the mind and the hand.
+ - No new sect ever had humor; no disciples either, even the disciples of Christ.
+ - America, which has the most glorious present still existing in the world today, hardly stops to enjoy it, in her insatiable appetite for the future.
+ - For sleep, one needs endless depths of blackness to sink into; daylight is too shallow, it will not cover one.
+ - Rivers perhaps are the only physical features of the world that are at their best from the air.
+ - Lost time is like a run in a stocking. It always gets worse.
+ - Why do progress and beauty have to be so opposed?
+ - I have been overcome by the beauty and richness of our life together, those early mornings setting out, those evenings gleaming with rivers and lakes below us, still holding the last light.
+ - If I take the wings of the morning and dwell in the uttermost parts of the sea...
+ - But I want first of all- in fact, as an end to these other desires- to be at peace with myself.
+ - If you surrender completely to the moments as they pass, you live more richly those moments.
+ - When I cannot write a poem, I bake biscuits and feel just as pleased.
+ - One can get just as much exultation in losing oneself in a little thing as in a big thing. It is nice to think how one can be recklessly lost in a daisy.
+ - Frenchwomen just never look ungroomed, do they?
+ - Him that I love, I wish to be free – even from me.
+ - Eternally, woman spills herself away in driblets to the thirsty, seldom being allowed the time, the quiet, the peace, to let the pitcher fill up to the brim.
+ - My passport photo is one of the most remarkable photographs I have ever seen- no retouching, no shadows, no flattery-just stark me.
+ - There is no harvest for the heart alone. The seed of love must be eternally re-sown.
+ - Total freedom is never what one imagines and, in fact, hardly exists. It comes as a shock in life to learn that we usually only exchange one set of restrictions for another. The second set, however, is self-chosen, and therefore easier to accept.
+ - Certain springs are tapped only when we are alone. Women need solitude in order to find again the true essence of themselves; that firm strand which will be the indispensable center of a whole web of human relationships.
+ - Perhaps middle-age is, or should be, a period of shedding shells; the shell of ambition, the shell of material accumulations and possessions, the shell of the ego.
+ - If it is a woman’s function to give, she must be replenished, too.
+ - Great problems that face the world today in both the private and the public sphere cannot be solved by women – or by men – alone. They can only be surmounted by men and women side by side.
+ - Marriage is tough, because it is woven of all these various elements, the weak and the strong. “In love-ness” is fragile for it is woven only with the gossamer threads of beauty. It seems to me absurd to talk about “happy” and “unhappy” marriages.
+ - When the wedding march sounds the resolute approach, the clock no longer ticks, it tolls the hour. The figures in the aisle are no longer individuals, they symbolize the human race.
+ - People don’t want to be understood – I mean not completely. It’s too destructive. Then they haven’t anything left. They don’t want complete sympathy or complete understanding. They want to be treated carelessly and taken for granted lots of times.
+ - In the sheltered simplicity of the first days after a baby is born, one sees again the magical closed circle, the miraculous sense of two people existing only for each other.
+ - The sea does not reward those who are too anxious, too greedy, or too impatient. One should lie empty, open, choiceless as a beach – waiting for a gift from the sea.
+ - Travelers are always discoverers, especially those who travel by air. There are no signposts in the sky to show a man has passed that way before. There are no channels marked. The flier breaks each second into new uncharted seas.
+ - God may want you to be the answer to your own prayer.
+ - One must go through periods of numbness that are harder to bear than grief.
+ - Communication with another person – wasn’t it the realest thing in life?
+ - I believe that what woman resents is not so much giving herself in pieces as giving herself purposelessly.
+ - Geniuses were like storms or cyclones, pulling everything into their path, sticks and stones and dust.
+ - The punctuation of anniversaries is terrible, like the closing of doors, one after another between you and what you want to hold on to.
+ - What a commentary on our civilization, when being alone is considered suspect; when one has to apologize for it, make excuses, hide the fact that one practices it – like a secret vice!
+ - To be deeply in love is, of course, a great liberating force.
+ - I would like to achieve a state of inner spiritual grace from which I could function and give as I was meant to in the eye of God.
+ - Cut asparagus at night – in desperation. When one is very tired one always does one more thing.
+ - Woman’s normal occupations in general run counter to creative life, or contemplative life, or saintly life.
+ - You can’t just write and write and put things in a drawer. They wither without the warm sun of someone else’s appreciation.
+ - Can you write a book and have children at the same time? Yes, if you’re content to do it very very slowly.
+ - My father taught me that a bill is like a crying baby and has to be attended to at once.
+ - The nicest gifts are those left, nameless and quiet, unburdened with love, or vanity, or the desire for attention.
+ - How one hates to think of oneself as alone. How one avoids it. It seems to imply rejection or unpopularity.
+ - If one talks to more than four people, it is an audience; and one cannot really think or exchange thoughts with an audience.
+ - We are always bargaining with our feelings so that we can live from day to day.
+ - The fundamental magic of flying, a miracle that has nothing to do with any of its practical purposes – purposes of speed, accessibility, and convenience – and will not change as they change.
+ - Fame separates you from life.
+ - What release to write so that one forgets oneself, forgets one’s companion, forgets where one is or what one is going to do next to be drenched in sleep or in the sea. Pencils and pads and curling blue sheets alive with letters heap up on the desk.
+ - These bright roofs, these steep towers, these jewel-lakes, these skeins of railroad line – all spoke to her and she answered. She was glad they were there. She belonged to them and they to her.
+ - The world has been forced to its knees. Unhappily, we seldom find our way there without being beaten to it by suffering.
+ - It’s funny how you can be mad at someone one moment and want to hug them the next.
+ - Those fields of daisies we landed on, and dusty fields and desert stretches. Memories of many skies and earths beneath us – many days, many nights of stars.
+
+150 quotes

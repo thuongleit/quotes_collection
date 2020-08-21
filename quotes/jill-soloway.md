@@ -1,0 +1,29 @@
+ - As you grow and change, you become possibly someone else. You want to go back to your family of origin and say, ‘Do you still love me? Would you still love me if I become X or Y or Z? When will you stop loving me? Is this unconditional love and if not what are the conditions?’
+ - I think kids in general are much more capable of understanding the idea of being transgender than adults.
+ - I’m glad that Jewish kids are taught about the Holocaust and other stories in our history, but I wonder if there are ways that this information and narrative can be transmitted differently.
+ - I was talking to my friend who’s Israeli and she said that from the moment you’re born, you’re taught to hate the Palestinians. That’s it. That’s your life. That’s what you learn from day one.
+ - That was something that I learned from Alan Ball from “Six Feet Under.” He didn’t really like to have too many pop culture references because they don’t really hold up after a few years.
+ - I learned in grade-school that after WWII European politicians considered sending Jews to Madagascar instead of Palestine. At the time I thought: Madagascar would’ve been so great.
+ - Someone will say to me, Oh that’s so Jewish to interrupt. I say to myself, okay, is that code for you hate Jews? Or am I just being paranoid?
+ - I haven’t made art about Israel. There’s a covert subtext of Jewish identity in my artwork.
+ - There are a whole bunch of people – Republicans or sports fans or reality TV fans – who probably would never have recognized that they have trans people in their world. Caitlyn Jenner really is thinking about the movement and saving lives, so I know that her intentions are honorable.
+ - Fear of anti-Semitism almost is part of our religion. Throughout time Jewish people have experienced traumas that we relive in a lot of the things we celebrate.
+ - I said to my parents that I don’t even know if there should be an Israel. And they were just so upset and hurt.
+ - There are times when folks will point out certain characteristics I have, like me being an interruptor, and attribute them to my Jewish identity.
+ - I still see storytelling for men by men that is always reinforcing the male gaze.
+ - The only way things will change will be when we’re all wilder, louder, riskier, sillier, unexpectedly overflowing with surprise.
+ - By recognizing your own vulnerability you can recognize and identify with the vulnerability in others.
+ - It will feel boring when you’re bingeing.
+ - There is a real comfort with the position of the victim, which can either result in true empathy or deep paranoia.
+ - You have to totally change the way that society’s structured in order to being to heal.
+ - It’s really just a freedom that we have with Amazon to push ourselves creatively. It allowed me to say, you know, okay this is going to be a little half-hour film here to start the season.
+ - I’ve always wondered what it means to the Republican Party to be pro-Israel. My husband says that is is because certain sects of Christianity need Jews in Israel for the second coming.
+ - I think generational trauma also plays a big part in the reactions to Israeli politics.
+ - I have never wanted to claim I know what is best for Israel.
+ - I’ve been told by people I respect that flashbacks only work if they have their own narrative, but they can’t be part of the present narrative.
+ - One of the things that feels so challenging is how questioning Israel and the idea of a Jewish state somehow opens the door for other sorts of questions – and wounds.
+ - In my own work I am invested in art as a way to break through impasses, whether those impasses are personal, social, or political.
+ - If you go to Europe, public bathrooms have any-gender sink areas and stalls for everyone to use. This is completely reasonable. It potentially involves the destruction of the urinal industry, which I think people would be happy to see go away.
+ - My family gets incredibly tense and stressed out around traveling. There’s something really beautiful in that vulnerability.
+
+27 quotes

@@ -1,0 +1,188 @@
+ - Pressure makes diamonds. ~~George S. Patton Jr.
+ - May God have mercy for my enemies because I won’t. ~~George S. Patton Jr.
+ - I don't measure a man’s success by how high he climbs but how high he bounces when he hits bottom. ~~George S. Patton Jr.
+ - A good plan violently executed now is better than a perfect plan executed at some indefinite time in the future. ~~George S. Patton Jr.
+ - Lead me, follow me, or get out of my way. ~~George S. Patton Jr.
+ - Better to fight for something than live for nothing. ~~George S. Patton Jr.
+ - Accept the challenges so that you can feel the exhilaration of victory. ~~George S. Patton Jr.
+ - Never tell people how to do things. Tell them what to do and they will surprise you with their ingenuity. ~~George S. Patton Jr.
+ - An active mind cannot exist in an inactive body. ~~George S. Patton Jr.
+ - If everybody is thinking alike, then somebody isn’t thinking. ~~George S. Patton Jr.
+ - Courage is fear holding on a minute longer. ~~George S. Patton Jr.
+ - The object of war is not to die for your country but to make the other guy die for his. ~~George S. Patton Jr.
+ - The test of success is not what you do when you are on top. Success is how high you bounce when you hit the bottom. ~~George S. Patton Jr.
+ - Politicians are the lowest form of life on earth. Liberal Democrats are the lowest form of politicians. ~~George S. Patton Jr.
+ - If everyone is thinking alike, then somebody isn’t thinking. ~~George S. Patton Jr.
+ - Fatigue makes cowards of us all. ~~George S. Patton Jr.
+ - It is foolish and wrong to mourn the men who died. Rather, we should thank God that such men lived. ~~George S. Patton Jr.
+ - A pint of sweat will save a gallon of blood. ~~George S. Patton Jr.
+ - Anyone in any walk of life who is content with mediocrity is untrue to himself and to American tradition. ~~George S. Patton Jr.
+ - Always do more than is required of you. ~~George S. Patton Jr.
+ - Wars may be fought with weapons, but they are won by men. It is the spirit of men who follow and of the man who leads that gains the victory. ~~George S. Patton Jr.
+ - I am a Soldier, I fight where I am told, and I win where I fight. ~~George S. Patton Jr.
+ - Human beings are made up of flesh and blood, and a miracle fiber called courage. ~~George S. Patton Jr.
+ - All glory is fleeting. ~~George S. Patton Jr.
+ - In case of doubt, attack. ~~George S. Patton Jr.
+ - By perseverance, study, and eternal desire, any man can become great. ~~George S. Patton Jr.
+ - In case of doubt, push on just a little further and then keep on pushing. ~~George S. Patton Jr.
+ - Watch what people are cynical about, and one can often discover what they lack. ~~George S. Patton Jr.
+ - You fight like you train. ~~George S. Patton Jr.
+ - You must be single minded. Drive for the one thing on which you have decided. ~~George S. Patton Jr.
+ - Make the mind run the body. Never let the body tell the mind what to do. The body will always give up. ~~George S. Patton Jr.
+ - The real hero is the man who fights even though he is scared. ~~George S. Patton Jr.
+ - When in doubt, observe and ask questions. When certain, observe at length and ask many more questions. ~~George S. Patton Jr.
+ - If a man does his best, what else is there? ~~George S. Patton Jr.
+ - Duty is the essence of manhood. ~~George S. Patton Jr.
+ - A good battle plan that you act on today can be better than a perfect one tomorrow. ~~George S. Patton Jr.
+ - Say what you mean and mean what you say. ~~George S. Patton Jr.
+ - When a decision has to be made, make it. There is no totally right time for anything. ~~George S. Patton Jr.
+ - Take calculated risks. That is quite different from being rash. ~~George S. Patton Jr.
+ - Always advance. Never dig in. ~~George S. Patton Jr.
+ - Attack rapidly, ruthlessly, viciously, without rest, however tired and hungry you may be, the enemy will be more tired, more hungry. Keep punching. ~~George S. Patton Jr.
+ - A leader is a man who can adapt principles to circumstances. ~~George S. Patton Jr.
+ - Prepare for the unknown by studying how others in the past have coped with the unforeseeable and the unpredictable. ~~George S. Patton Jr.
+ - There is no such thing as luck, merely opportunity meeting preparedness. George S. Patton Jr. ~~George S. Patton Jr.
+ - You cannot be disciplined in great things and undisciplined in small things. ~~George S. Patton Jr.
+ - You’re never beaten until you admit it. ~~George S. Patton Jr.
+ - Fixed fortifications are a monument to the stupidity of man. ~~George S. Patton Jr.
+ - Good tactics can save even the worst strategy. Bad tactics will destroy even the best strategy. ~~George S. Patton Jr.
+ - No bastard ever won a war by dying for his country. He won it by making the other poor dumb bastard die for his country. ~~George S. Patton Jr.
+ - You need to overcome the tug of people against you as you reach for high goals. ~~George S. Patton Jr.
+ - We herd sheep, we drive cattle, we lead people. Lead me, follow me, or get out of my way. ~~George S. Patton Jr.
+ - America loves a winner, and will not tolerate a loser, this is why America has never, and will never, lose a war. ~~George S. Patton Jr.
+ - Wars are not won by fighting battles; wars are won by choosing battles. ~~George S. Patton Jr.
+ - Be willing to make decisions. That’s the most important quality in a good leader. ~~George S. Patton Jr.
+ - I read the Bible – every goddamn day. ~~George S. Patton Jr.
+ - No good decision was ever made in a swivel chair. ~~George S. Patton Jr.
+ - Success demands a high level of logistical and organizational competence. ~~George S. Patton Jr.
+ - When in doubt, ATTACK! ~~George S. Patton Jr.
+ - Do your duty as you see it, and damn the consequences. ~~George S. Patton Jr.
+ - I never take counsel of my fears. ~~George S. Patton Jr.
+ - Successful generals make plans to fit circumstances, but do not try to create circumstances to fit plans. ~~George S. Patton Jr.
+ - Fear kills more people than death. ~~George S. Patton Jr.
+ - When you have collected all the facts and fears and made your decision, turn off all your fears and go ahead! ~~George S. Patton Jr.
+ - Make your plans to fit the circumstances. ~~George S. Patton Jr.
+ - The most difficult thing about being humble is not being able to brag about it. ~~George S. Patton Jr.
+ - You shouldn’t underestimate an enemy, but it is just as fatal to overestimate him. ~~George S. Patton Jr.
+ - Take calculated risks. ~~George S. Patton Jr.
+ - To conquer, we must destroy our enemies. We must not only die gallantly; we must kill devastatingly. The faster and more effectively you kill, the longer you will live to enjoy the priceless fame of conquerors. ~~George S. Patton Jr.
+ - There is no such thing as a successful defense. ~~George S. Patton Jr.
+ - Never let the enemy pick the battle site. ~~George S. Patton Jr.
+ - Don’t fall victim to what I call the ready-aim-aim-aim-aim syndrome. You must be willing to fire. ~~George S. Patton Jr.
+ - My men don’t dig foxholes. I don’t want them to. Foxholes only slow up an offensive. Keep moving. And don’t give the enemy time to dig one either. ~~George S. Patton Jr.
+ - The fixed determination to have acquired the warrior soul, to either conquer or perish with honor, is the secret of victory. ~~George S. Patton Jr.
+ - Moral courage is the most valuable and usually the most absent characteristic in men. ~~George S. Patton Jr.
+ - A good solution applied with vigor now is better than a perfect solution applied ten minutes later. ~~George S. Patton Jr.
+ - Just drive down that road, until you get blown up. ~~George S. Patton Jr.
+ - No sane man is unafraid in battle, but discipline produces in him a form of vicarious courage. ~~George S. Patton Jr.
+ - The reason there are so many tree-lined boulevards in Paris is so the German army can march in the shade. ~~George S. Patton Jr.
+ - If I win I can’t be stopped! If I lose I shall be dead. ~~George S. Patton Jr.
+ - War is very simple, direct, and ruthless. It takes a simple, direct, and ruthless man to wage war. ~~George S. Patton Jr.
+ - Always do everything you ask of those you command. ~~George S. Patton Jr.
+ - If we aren’t victorious, let no man come back alive! ~~George S. Patton Jr.
+ - War is simple, direct, and ruthless. ~~George S. Patton Jr.
+ - You cannot be disciplined in great things and undisciplined in small things. Brave undisciplined men have no chance against the discipline and valour of other men. Have you seen a few policemen handle a crowd? ~~George S. Patton Jr.
+ - A real man will never let his fear of death overpower his honor, his sense of duty to his country, and his innate manhood. ~~George S. Patton Jr.
+ - In war the only sure defense is offense, and the efficiency of the offense depends on the warlike souls of those conducting it. ~~George S. Patton Jr.
+ - Most battles are won before they are ever fought. ~~George S. Patton Jr.
+ - War is the supreme test of man in which he rises to heights never approached in any other activity. ~~George S. Patton Jr.
+ - If you tell people where to go, but not how to get there, you’ll be amazed at the results. ~~George S. Patton Jr.
+ - Americans love to fight. All real Americans love the sting of battle. ~~George S. Patton Jr.
+ - I always believe in being prepared, even when I’m dressed in white tie and tails. ~~George S. Patton Jr.
+ - Success in war depends upon the golden rule of war. ~~George S. Patton Jr.
+ - If you can’t get them to salute when they should salute and wear the clothes you tell them to wear, how are you going to get them to die for their country? ~~George S. Patton Jr.
+ - We must guard against becoming so engrossed in the specific nature of the roots and bark of the trees of knowledge as to miss the meaning and grandeur of the forest they compose. ~~George S. Patton Jr.
+ - The leader must be an actor. ~~George S. Patton Jr.
+ - All men are frightened. The more intelligent they are, the more they are frightened. ~~George S. Patton Jr.
+ - Do your damnedest in an ostentatious manner all the time. ~~George S. Patton Jr.
+ - There is only one sort of discipline – PERFECT DISCIPLINE. Men cannot have good battle discipline and poor administrative discipline. ~~George S. Patton Jr.
+ - It is the cold glitter of the attacker’s eye not the point of the questing bayonet that breaks the line. ~~George S. Patton Jr.
+ - For years I have been accused of making snap judgments. Honestly, this is not the case because I am a profound military student and the thoughts I express, perhaps too flippantly, are the result of years of thought and study. ~~George S. Patton Jr.
+ - Let’s keep our boots polished, bayonets sharpened, and present a picture of force and strength to the Red Army. This is the only language they understand and respect. ~~George S. Patton Jr.
+ - The obvious thing for the cavalryman to do is to accept the fighting machine as a partner, and prepare to meet more fully the demands of future warfare. ~~George S. Patton Jr.
+ - The only way you get on in this profession is to have the reputation of doing what you are told as thoroughly as possible. ~~George S. Patton Jr.
+ - Keep going, someone must be on top, why not you? ~~George S. Patton Jr.
+ - Do as I have taught you, and you will stay alive. ~~George S. Patton Jr.
+ - A man must know his destiny. ~~George S. Patton Jr.
+ - Compared to war, all other forms of human endeavor shrink to insignificance. God help me, I do love it so. ~~George S. Patton Jr.
+ - Lack of orders is no excuse for inaction. ~~George S. Patton Jr.
+ - A man must know his destiny. if he does not recognize it, then he is lost. ~~George S. Patton Jr.
+ - Do not make excuses, whether it’s your fault or not. ~~George S. Patton Jr.
+ - The god of war hates those who hesitate. ~~George S. Patton Jr.
+ - I do not have to tell you who won the war. You know, the artillery did. ~~George S. Patton Jr.
+ - All very successful commanders are prima donnas and must be so treated. ~~George S. Patton Jr.
+ - The soldier is the Army. No army is better than its soldiers. The Soldier is also a citizen. In fact, the highest obligation and privilege of citizenship is that of bearing arms for one’s country. ~~George S. Patton Jr.
+ - So as through a glass, and darkly – The age long strife I see – Where I fought in many guises, – Many names, but always me. ~~George S. Patton Jr.
+ - There is only one sort of discipline, perfect discipline. ~~George S. Patton Jr.
+ - Now in war we are confronted with conditions which are strange If we accept them we will never win. Since being realistic, as in mundane combats fistic We will get a bloody nose and that’s a sin. ~~George S. Patton Jr.
+ - There is only one tactical principle which is not subject to change. It is to use the means at hand to inflict the maximum amount of wound, death, and destruction on the enemy in the minimum amount of time. ~~George S. Patton Jr.
+ - Remember wars are won by killing people. The more we kill, the quicker we’ll get out of this war. ~~George S. Patton Jr.
+ - There is a time to take counsel of your fears, and there is a time to never listen to any fear. ~~George S. Patton Jr.
+ - Americans play to win at all times. I wouldn’t give a hoot and hell for a man who lost and laughed. That’s why Americans have never lost nor ever lose a war. ~~George S. Patton Jr.
+ - To be a successful soldier, you must know history. ~~George S. Patton Jr.
+ - Wars may be fought with weapons, but they are won by men. ~~George S. Patton Jr.
+ - I’d rather have a German Division in front of me than a French one behind. ~~George S. Patton Jr.
+ - There’s only one way for a professional soldier to die. That’s from the last bullet of the last battle of the last war. ~~George S. Patton Jr.
+ - Battle is an orgy of disorder. ~~George S. Patton Jr.
+ - Success is how you bounce on the bottom. ~~George S. Patton Jr.
+ - If we take the generally accepted definition of bravery as a quality which knows no fear, I have never seen a brave man. All men are frightened. The more intelligent they are, the more they are frightened. ~~George S. Patton Jr.
+ - It is only by doing things others have not that one can advance. ~~George S. Patton Jr.
+ - The most vital quality a soldier can possess is self-confidence. ~~George S. Patton Jr.
+ - Have taken Trier with two divisions. What do you want me to do? Give it back? ~~George S. Patton Jr.
+ - Death can be more exciting than life. ~~George S. Patton Jr.
+ - Staff officers of inharmonious disposition, irrespective of their ability, must be removed. A staff cannot function unless it is a united family. ~~George S. Patton Jr.
+ - Discipline must be a habit so ingrained that it is stronger than the excitement of battle. ~~George S. Patton Jr.
+ - If I could have three wishes, one would be to take an ’88 and shove that barrel up Hitler’s ass so that cocksucker can cry like the little god-damned girl he is. And hell, after that, I wouldn’t need two more wishes. ~~George S. Patton Jr.
+ - In my opinion, the M1 rifle is the greatest battle implement ever devised. ~~George S. Patton Jr.
+ - To me it seems certain that the fatalistic teachings of Muhammad and the utter degradation of women is the outstanding cause for the arrested development of the Arab. He is exactly as he was around the year 700, while we have kept on developing. ~~George S. Patton Jr.
+ - The highest obligation and privilege of citizenship is bearing arms. ~~George S. Patton Jr.
+ - The duties of an officer are the safety, honor, and welfare of your country first; the honor, welfare, and comfort of the men in your command second; and the officer s own ease, comfort, and safety last. ~~George S. Patton Jr.
+ - When we land against the enemy, don’t forget to hit him and hit him hard. When we meet the enemy we will kill him. We will show him no mercy. ~~George S. Patton Jr.
+ - Perpetual peace is a futile dream. ~~George S. Patton Jr.
+ - My men don’t surrender. I don’t want to hear of any soldier under my command being captured unless he has been hit. Even if you are hit, you can still fight back. ~~George S. Patton Jr.
+ - If I do my full duty, the rest will take care of itself. ~~George S. Patton Jr.
+ - All men are timid on entering any fight. Whether it is the first or the last fight, all of us are timid. Cowards are those who let their timidity get the better of their manhood. ~~George S. Patton Jr.
+ - War is an art and as such is not susceptible of explanation by fixed formula. ~~George S. Patton Jr.
+ - This is a hell of a way to die. ~~George S. Patton Jr.
+ - Untutored courage is useless in the face of educated bullets. ~~George S. Patton Jr.
+ - A piece of spaghetti or a military unit can only be led from the front end. ~~George S. Patton Jr.
+ - My men can eat their belts, but my tanks have gotta have gas. ~~George S. Patton Jr.
+ - In war nothing is impossible, provided you use audacity. ~~George S. Patton Jr.
+ - Few men are killed by the bayonet, many are scared by it. Bayonets should be fixed when the fire fight starts. ~~George S. Patton Jr.
+ - When there is fear of failure, there will be failure. ~~George S. Patton Jr.
+ - Never in history has the navy landed an army at the planned time and place. But if you land us anywhere within 50 miles of Fedela and within 1 week of D-Day. I’ll go ahead and win. ~~George S. Patton Jr.
+ - Coward: someone who in a bad situation thinks with his feet. ~~George S. Patton Jr.
+ - There are three ways that men get what they want: by planning, by working, and by praying. ~~George S. Patton Jr.
+ - Those who live in fear die a thousand deaths. ~~George S. Patton Jr.
+ - War is a bloody, killing business. You’ve got to spill their blood, or they will spill yours. Rip them up the belly. Shoot them in the guts. ~~George S. Patton Jr.
+ - Many soldiers are led to faulty ideas of war by knowing too much about too little. ~~George S. Patton Jr.
+ - Remember praise is more valuable than blame. ~~George S. Patton Jr.
+ - There is no proof nor yet any denial. We were, we are, and we will be. ~~George S. Patton Jr.
+ - Battle is the most magnificent competition in which a human being can indulge. ~~George S. Patton Jr.
+ - You must do your damdest and win. ~~George S. Patton Jr.
+ - Never draw a gun on a man unless you intend to kill him. And believe me, if you do intend to kill him he will already know it. Then he will feel the cold breath of the tomb. ~~George S. Patton Jr.
+ - The courageous man is the man who forces himself, in spite of his fear, to carry on. ~~George S. Patton Jr.
+ - Sure, we want to go home. We want this war over with. The quickest way to get it over with is to go get the bastards who started it. ~~George S. Patton Jr.
+ - I have the utmost confidence that through your efforts we will eventually beat the hell out of those bastards – You name them; I’ll shoot them! ~~George S. Patton Jr.
+ - A civil servant is sometimes like a broken cannon – it won’t work and you can’t fire it. ~~George S. Patton Jr.
+ - A man is not measured by how much he can take and stand but by how fast he regains once fallen. ~~George S. Patton Jr.
+ - I wouldn’t give a hoot in hell for a man who lost and laughed! Gen. ~~George S. Patton Jr.
+ - Remember that the enemy is just as frightened as you are and probably more so. They are not supermen. ~~George S. Patton Jr.
+ - Officers must be made to care for their men. That is the sole duty of all officers. ~~George S. Patton Jr.
+ - Unless you do your best, the day will come when, tired and hungry, you will halt just short of the goal you were ordered to reach, and by halting you will make useless the efforts and deaths of thousands. ~~George S. Patton Jr.
+ - When I want my men to remember something important, to really make it stick, I give it to them double dirty. ~~George S. Patton Jr.
+ - Tanks are new and special weapon-newer than, as special, and certainly as valuable as the airplane. ~~George S. Patton Jr.
+ - The supreme measure of a man, is what he would risk his life for. ~~George S. Patton Jr.
+ - Close the playand keep the store open nights. ~~George S. Patton Jr.
+ - Why is it that all battles are fought in the middle of the night, in downpouring rain, and at the corners of four different maps? ~~George S. Patton Jr.
+ - It is rather interesting how you get used to death. ~~George S. Patton Jr.
+ - Many, who should know better, think that wars can be decided by soulless machines, rather than by the blood and anguish of brave men. ~~George S. Patton Jr.
+ - Let’s shoot the works and win! Yes win it all. ~~George S. Patton Jr.
+ - Often I have encountered in life that great disappointments have proved to be the road to future successes. ~~George S. Patton Jr.
+ - The publicity I have been getting, a good deal of which is untrue, and the rest of it ill considered, has done me more harm than good. ~~George S. Patton Jr.
+ - I am convinced that much more emphasis should be placed on history. The purpose of history is to learn how human beings react when exposed to the danger of wounds or death... ~~George S. Patton Jr.
+ - Sometimes I think your life and mine are under the protection of some supreme being or fate, because, after many years of parallel thought, we find ourselves in the positions we now occupy. ~~George S. Patton Jr.
+ - So let us do real fighting, boring in and gouging, biting. ~~George S. Patton Jr.
+ - If you go into a battle, it’s better to win the first time. ~~George S. Patton Jr.
+
+186 quotes

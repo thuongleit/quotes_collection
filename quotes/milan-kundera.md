@@ -1,0 +1,256 @@
+ - Business only has two functions – innovation and marketing.
+ - Two people in love, alone, isolated from the world, that’s beautiful.
+ - Humanity’s true moral test, its fundamental test consists of its attitude towards those who are at its mercy: animals.
+ - There is no perfection only life.
+ - At the end of true love is death, and only the love that ends in death is love.
+ - Speak truth to power.
+ - The first step in liquidating a people is to erase its memory. Destroy its books, its culture, its history.
+ - Her drama was a drama not of heaviness but of lightness. What fell to her lot was not the burden but the unbearable lightness of being.
+ - The Greek word for “return” is nostos. Algos means “suffering.” So nostalgia is the suffering caused by an unappeased yearning to return.
+ - When the heart speaks, the mind finds it indecent to object.
+ - In the sunset of dissolution, everything is illuminated by the aura of nostalgia, even the guillotine.
+ - I am not in favor of imposing happiness on people. Everyone has a right to his bad wine, to his stupidity, and to his dirty fingernails.
+ - There is a certain part of all of us that lives outside of time. Perhaps we become aware of our age only at exceptional moments and most of the time we are ageless.
+ - The greater the ambiguity, the greater the pleasure.
+ - Today I know this: when it comes time to take stock, the most painful wound is that of broken friendships; and there is nothing more foolish than to sacrifice a friendship to politics.
+ - I find myself fascinating.
+ - A person who longs to leave the place where he lives is an unhappy person.
+ - Love is a continual interrogation. I don’t know of a better definition of love.
+ - And what can life be worth if the first rehearsal for life is life itself?
+ - Chance and chance alone has a message for us. Everything that occurs out of necessity, everything expected, repeated day in and day out, is mute. Only chance can speak to us.
+ - Our dreams prove that to imagine – to dream about things that have not happened – is among mankind’s deepest needs.
+ - Metaphors are dangerous. Love begins with a metaphor.
+ - Children are the future, because mankind is moving more and more towards infancy.
+ - Yes, it’s crazy. Love is either crazy or it’s nothing at all.
+ - Modern stupidity means not ignorance but the nonthought of received ideas.
+ - There is a secret bond between slowness and memory, between speed and forgetting.
+ - On the surface, an intelligible lie; underneath, the unintelligible truth.
+ - The stupidity of people comes from having an answer for everything. The wisdom of the novel comes from having a question for everything.
+ - The longing for Paradise is man’s longing not to be man.
+ - Tereza knew what happens during the moment love is born: the woman cannot resist the voice calling forth her terrified soul; the man cannot resist the woman whose soul thus responds to his voice.
+ - Metaphors are dangerous. Love begins with a metaphor. Which is to say, love begins at the point when a woman enters her first word into our poetic memory.
+ - Only animals were not expelled from Paradise.
+ - In Tereza’s eyes, books were the emblems of a secret brotherhood.
+ - The degree of slowness is directionally proportional to the intensity of memory. The degree of speed is directionally proportional to the intensity of forgetting.
+ - Yes, if you’re looking for infinity, just close your eyes!
+ - A constant interrogation.
+ - I feel a frantic desire to free myself. To start all over again and in another way.
+ - He suddenly recalled from Plato’s Symposium: People were hermaphrodites until God split then in two, and now all the halves wander the world over seeking one another. Love is the longing for the half of ourselves we have lost.
+ - The struggle of man against power is the struggle of memory against forgetting.
+ - In the mind of a woman for whom no place is home the thought of an end to all flight is unbearable.
+ - Happiness is the longing for repetition.
+ - Unlike the puerile loyalty to a conviction, loyalty to a friend is a virtue – perhaps the only virtue, the last remaining one.
+ - The longing for order is at the same time a longing for death, because life is an incessant disruption of order.
+ - We pass through the present with our eyes blindfolded. We are permitted merely to sense and guess at what we are actually experiencing. Only later when the cloth is untied can we glance at the past and find out what we have experienced and what meaning it has.
+ - Two people in love, alone, isolated from the world, that’s very beautiful. But what would they nourish their intimate talk with? However contemptible the world may be, they still need it to be able to talk together.
+ - Before we are forgotten, we will be turned into kitsch. Kitsch is the stopover between being and oblivion.
+ - Mankind’s real moral test, a test so radical and so deep that it escapes our gaze, is probably the one of its relations with those that are the most at its mercy; the Animals.
+ - The source of anxiety lies in the future. If you can keep the future out of mind, you can forget your worries.
+ - The worst thing is not that the world is unfree, but that people have unlearned their liberty.
+ - Dreaming is not merely an act of communication; it is also an aesthetic activity, a game of the imagination, a game that is a value in itself.
+ - No love can survive muteness.
+ - To laugh is to live profoundly.
+ - Noise has one advantage. It drowns out words.
+ - To be mortal is the most basic human experience, and yet man has never been able to accept it, grasp it, and behave accordingly. Man doesn’t know how to be mortal. And when he dies, he doesn’t even know how to be dead.
+ - Dogs do not have many advantages over people, but one of them is extremely important: euthanasia is not forbidden by law in their case; animals have the right to a merciful death.
+ - The border between good and evil is terribly fuzzy.
+ - I have no mission. No one has.
+ - Man reckons with immortality, and forgets to reckon with death.
+ - But when the strong were too weak to hurt the weak, the weak had to be strong enough to leave.
+ - You can’t measure the mutual affection of two human beings by the number of words they exchange.
+ - A single metaphor can give birth to love.
+ - Flirting is a promise of sexual intercourse without a guarantee.
+ - The history of music is mortal, but the idiocy of the guitar is eternal.
+ - Attaching love to sex is one of the most bizarre ideas the Creator ever had.
+ - It does take great maturity to understand that the opinion we are arguing for is merely the hypothesis we favor, necessarily imperfect, probably transitory, which only very limited minds can declare to be a certainty or a truth.
+ - I want you to be weak. As weak as I am.
+ - We can never know what to want, because, living only one life, we can neither compare it with our previous lives nor perfect it in our lives to come.
+ - Einmal ist keinmal, says Tomas to himself. What happens but once, says the German adage, might as well not have happened at all. If we have only one life to live, we might as well not have lived at all.
+ - People fascinated by the idea of progress never suspect that every step forward is also a step on the way to the end.
+ - Those boobs of yours are ubiquitous – like God!
+ - A man who loses his privacy loses everything. And a man who gives it up of his own free will is a monster.
+ - Pain doesn’t listen to reason, it has it’s own reason, which is not reasonable.
+ - When we ignore the body, we are more easily victimized by it.
+ - There is nothing heavier than compassion. Not even one’s own pain weighs so heavy as the pain one feels for someone, for someone, pain intensified by the imagination and prolonged by a hundred echos.
+ - The beauty of New York is unintentional; it arose independent of human design, like a stalagmite cavern.
+ - All great novels, all true novels, are bisexual.
+ - Extremism means borders beyond which life ends, and a passion for extremism, in art and in politics, is a veiled longing for death.
+ - For a novelist, a given historic situation is an anthropologic laboratory in which he explores his basic question: What is human existence?
+ - The serial number of a human specimen is the face, that accidental and unrepeatable combination of features. It reflects neither character nor soul, nor what we call the self. The face is only the serial number of a specimen.
+ - For existential mathematics, which does not exist, would probably propose this equation: the value of coincidence equals the degree of its improbability.
+ - We can never establish with certainty what part of our relations with others is the result of our emotions – love, antipathy, charity, or malice – and what part is predetermined by the constant power play among individuals.
+ - He took over anger to intimidate subordinates, and in time anger took over him.
+ - Through the air floated only important words, and Flajsman said to himself that love has but one true measure, and that is death. At the end of true love is death, and only the love that ends in death is love.
+ - We live everything as it comes, without warning, like an actor going on cold.
+ - A worker may be the hammer’s master, but the hammer still prevails. A tool knows exactly how it is meant to be handled, while the user of the tool can only have an approximate idea.
+ - The difference between the university graduate and the autodidact lies not so much in the extent of knowledge as in the extent of vitality and self-confidence.
+ - She was experiencing the same odd happiness and odd sadness as then. The sadness meant: We are at the last station. The happiness meant: We are together. The sadness was form, the happiness content. Happiness filled the space of sadness.
+ - Let us consider the critic, therefore, as a discoverer of discoveries.
+ - Seeing is limited by two borders: Strong light, which blinds, and total darkness.
+ - There are metaphysical problems, problems of human existence, that philosophy has never known how to grasp in all their concreteness and that only the novel can seize.
+ - I am not worthy of my suffering. A great sentence. It suggests not only that suffering is the basis of the self, its sole indubitable ontological proof, but also that it is the one feeling most worthy of respect; the value of all values.
+ - A question with no answer is a barrier that cannot be breached. In other words, it is questions with no answers that set the limits of human possibilities, describe the boundaries of human existence.
+ - In the world of highways, a beautiful landscape means: an island of beauty connected by a long line with other islands of beauty.
+ - To rebel against being born a woman seemed as foolish to her as to take pride in it.
+ - Those who consider the Devil to be a partisan of Evil and angels to be warriors for Good accept the demagogy of the angels. Things are clearly more complicated.
+ - Ambition is a poor excuse for not having sense enough to be lazy.
+ - Looking out over the courtyard at the dirty walls, he realized he had no idea whether it was hysteria or love.
+ - The basis of shame is not some personal mistake of ours, but the ignominy, the humiliation we feel that we must be what we are without any choice in the matter, and that this humiliation is seen by everyone.
+ - A man is responsible for his ignorance.
+ - And therein lies the whole of man’s plight. Human time does not turn in a circle; it runs ahead in a straight line. That is why man cannot be happy: happiness is the longing for repetition.
+ - Believe me, nothing is more beautiful than to carry out crazy ideas. I’d like my whole life to be one single crazy idea.
+ - For he was aware of the great secret of life: Women don’t look for handsome men. Women look for men who have had beautiful women. Having an ugly mistress is therefore a fatal mistake.
+ - Art is the human disposition of sensible or intelligible matter for an esthetic end.
+ - Being in a foreign country means walking a tightrope high above the ground without the net afforded a person by the country where he has his family, colleagues, and friends, and where he can easily say what he has to say in a language he has known from childhood.
+ - When Don Quixote went out into the world, that world turned into a mystery before his eyes. That is the legacy of the first European novel to the entire subsequent history of the novel. The novel teaches us to comprehend the world as a question. There is wisdom and tolerance in that attitude.
+ - The goals we pursue are always veiled. A girl who longs for marriage longs for something she knows nothing about. The boy who hankers after fame has no idea what fame is. The thing that gives our every move its meaning is always totally unknown to us.
+ - Kitsch excludes everything from its purview which is essentially unacceptable in human existence.
+ - The only relationship that can make both partners happy is one in which sentimentality has no place and neither partner makes any claim on the life and freedom of the other.
+ - No one can give anyone else the gift of the idyll; only an animal can do so, because only animals were not expelled from Paradise. The love between dog and man is idyllic. It knows no conflicts, no hair-raising scenes; it knows no development.
+ - Sad company is bad company.
+ - Listening to a news broadcast is like smoking a cigarette and crushing the butt in the ashtray.
+ - To be a writer does not mean to preach a truth, it means to discover a truth.
+ - Common European thought is the fruit of the immense toil of translators. Without translators, Europe would not exist; translators are more important than members of the European Parliament.
+ - The novelist’s ambition is not to do something better than his predecessors but to see what they did not see, say what they did not say.
+ - Physical love is unthinkable without violence.
+ - When his wife was at his side, she was also in front of him, marking out the horizon of his life. Now the horizon is empty: the view has changed.
+ - Young is the one that plunges in the future and never looks back.
+ - By giving the love act a name, if only an innocent little word like, “it,” he paved the way for other words, words that would reflect physical love as in a set of mirrors.
+ - Even in the game there lurks a lack of freedom; even in a game is a trap for the players.
+ - The great European novel started out as entertainment, and every true novelist is nostalgic for it. In fact, the themes of those great entertainments are terribly serious-think of Cervantes!
+ - The characters in my novels are my own unrealised possibilities. That is why I am equally fond of them all and equally horrified by them. Each one has crossed a border that I myself have circumvented.
+ - Tomas did not realize at the time that metaphors are dangerous. Metaphors are not to be trifled with. A single metaphor can give birth to love.
+ - She was aware that in love even the most passionate idealism will not rid the body’s surface of its terrible, basic importance.
+ - How did the senator know that children meant happiness? Could he see into their souls? What if the moment they were out of sight, three of them jumped the fourth and began beating him up?
+ - Metaphors are dangerous. Metaphors are not to be trifled with.
+ - The moment Kafka attracts more attenetion than Joseph K., Kafka’s posthumous death begins.
+ - When a private talk over a bottle of wine is broadcast on the radio, what can it mean but that the world is turning into a concentration camp?
+ - Is a novel anything but a trap set for a hero?
+ - When graves are covered with stones, the dead can no longer get out. But the dead can’t go out anyway! What difference does it make whether they’re covered with soil or stones?
+ - The novel is a meditation on existence as seen through the medium of imaginary characters.
+ - Between the approximation of the idea and the precision of reality there was a small gap of the unimaginable, and it was this hiatus that gave him no rest.
+ - Is not parody the eternal lot of man?
+ - And there lies the horror: the past we remember is devoid of time. Impossible to reexperience a love the way we reread a book or resee a film.
+ - Jealousy has the amazing power to illuminate a single person in an intense beam of light, keeping the multitude of others in total darkness.
+ - Great novels are always a little more intelligent than their authors.
+ - Biographers know nothing about the intimate sex lives of their own wives, but they think they know all about Stendhal’s or Faulkner’s.
+ - Only a literary work that reveals an unknown fragment of human existence has a reason for being.
+ - I have a strong will to love you for eternity.
+ - Immortality is a ridiculous illusion, an empty word, a butterfly net chasing the wind.
+ - Memory does not make films, it makes photographs.
+ - Sometimes you make up your mind about something without knowing why, and your decision persists by the power of inertia. Every year it gets harder to change.
+ - To sit with a dog on a hillside on a glorious afternoon is to be back in Eden, where doing nothing was not boring – it was peace.
+ - How could she feel nostalgia when he was right in front of her? How can you suffer from the absence of a person who is present? You can suffer nostalgia in the presence of the beloved if you glimpse a future where the beloved is no more.
+ - Necessity, weight, and value are three concepts inextricably bound: only necessity is heavy, and only what is heavy has value.
+ - The emotion of love gives all of us a misleading illusion of knowing the other.
+ - Beauty is a rebellion against time.
+ - True human goodness, in all its purity and freedom, can come to the fore only when its recipient has no power.
+ - For the body is temporal and thought is eternal and the shimmering essence of flame is an image of thought.
+ - She loved to walk down the street with a book under her arm. It differentiated her from the others.
+ - I understand you, and I shall not attempt to make you change your mind. I am too old to want to improve the world. I have told you what I think, and that is all. I shall remain your friend even if you act contrary to my convictions, and I shall help you even if I disagree with you.
+ - The important thing is to abide by the rule of threes. Either you see a woman three times in quick succession and then never again, or you maintain relations over the years but make sure that the rendezvous are at least three weeks apart.
+ - The worth of a human being lies in the ability to extend oneself, to go outside oneself, to exist in and for other people.
+ - In the love poetry of every age, the woman longs to be weighed down by the man’s body.
+ - But just make someone who has fallen in love listen to his stomach rumble, and the unity of body and soul, that lyrical illusion of the age of science, instantly fades away.
+ - Solitude: a sweet absence of looks.
+ - Yes, it was too late, and Sabina knew she would leave Paris, move on, and on again, because were she to die here they would cover her up with a stone, and in the mind of a woman for whom no place is home the thought of an end to all flight is unbearable.
+ - What I need most of all is certainty.
+ - The eye the point where a person’s identity is concentrated.
+ - Living, there is no happiness in that. Living: carrying one’s painful self through the world. But being, being is happiness. Being: Becoming a fountain, a fountain on which the universe falls like warm rain.
+ - I cannot hate them because nothing binds me to them; I have nothing in common with them.
+ - The purpose of the poetry is not to dazzle us with an astonishing thought, but to make one moment of existence unforgettable and worthy of unbearable nostalgia.
+ - No matter how much we scorn it, kitsch is an integral part of the human condition.
+ - Kitsch causes two tears to flow in quick succession. The first tear says: How nice to see children running on the grass! The second tear says: How nice to be moved, together with all mankind, by children running on the grass!
+ - Nothing requires a greater effort of thought than arguments to justify the rule of non-thought.
+ - Love is a desire for that lost half of ourselves.
+ - People are always shouting they want to create a better future. It’s not true. The future is an apathetic void of no interest to anyone.
+ - Living is being happy: seeing, hearing, touching, drinking, eating, urinating, defecating, diving into the water and gazing at the sky, laughing and crying.
+ - In the realm of totalitarian kitsch, all answers are given in advance and preclude any questions.
+ - Immortality no longer interests the weary old man at all.
+ - Joking is a barrier between man and the world. Joking is the enemy of love and poetry.
+ - The senator had only one argument in his favour: his feeling. When the heart speaks, the mind finds it indecent to object. In the realm of kitsch, the dictatorship of the heart reigns supreme.
+ - People derived too much pleasure from seeing their fellow man morally humiliated to spoil that pleasure by hearing out an explanation.
+ - Yes, it’s a well-known fact about you: you’re like death, you take everything.
+ - Beauty has long since disappeared. It has slipped beneath the surface of the noise, the noise of words, sunk deep as Atlantis. The only thing left of it is the word, whose meaning loses clarity from year to year.
+ - Yes, the essence of every love is a child, and it makes no difference at all whether it has ever actually been conceived or born. In the algebra of love a child is the symbol of the magical sum of two beings.
+ - Anyone whose goal is ‘something higher’ must expect someday to suffer vertigo.
+ - Once her love had been publicized, it would gain weight, become a burden.
+ - Merely by being born intelligent, you right away find yourself in absolute exile.
+ - You can understand nothing about art, particularly modern art, if you do not understand that imagination is a value in itself.
+ - Sensuality is the total mobilization of the senses: an individual observes his partner intently, straining to catch every sound.
+ - Isn’t beer the holy libation of sincerity? The potion that dispels all hypocrisy, any charade of fine manners? The drink that does nothing worse than incite its fans to urinate in all innocence, to gain weight in all frankness?
+ - You think that just because it’s already happened, the past is finished and unchangeable? Oh no, the past is cloaked in multicolored taffeta and every time we look at it we see a different hue.
+ - The sound of laughter is like the vaulted dome of a temple of happiness.
+ - I was not a hypocrite, with one real face and several false ones. I had several faces because I was young and didn’t know who I was or wanted to be.
+ - There is such a thing as everyday, ordinary, vulgar ecstasy; the ecstasy of anger, the ecstasy of speed at the wheel, the ecstasy of ear-splitting noise, ecstasy in the soccer stadium.
+ - Laughing deeply is living deeply.
+ - People are going deaf because music is played louder and louder, but because they’re going deaf, it has to be played louder still.
+ - Only the most naive of questions are truly serious.
+ - No act is of itself either good or bad. Only its place in the order of things makes it good or bad.
+ - So she stood naked in front of the young man and at this moment stopped playing the game.
+ - Optimism is the opium of the people.
+ - The river flowed from century to century, and human affairs play themselves out on its banks. Play themselves out to be forgotten the next day, while the river flows on.
+ - In her presence I could dare everything: sincerity, emotion, pathos.
+ - This is the real and the only reason for friendship: to provide a mirror so the other person can contemplate his image from the past, which, without the eternal blah-blah of memories between pals, would long ago have disappeared.
+ - Indeed, the only truly serious questions are ones that even a child can formulate. Only the most naive of questions are truly serious.
+ - Ah, ladies and gentlemen, a man lives a sad life when he cannot take anything or anyone seriously.
+ - We can reproach ourselves for some action, for a remark, but not for a feeling, quite simply because we have no control at all over it.
+ - Revolution in Love’. Can you tell me what you mean by that? Do you want free love as against bourgeois marriage, or monogamy as against bourgeois promiscuity?
+ - He Kept recalling her lying on his bed; she reminded him of no one in his former life.
+ - No great movement designed to change the world can bear to be laughed at or belittled. Mockery is a rust that corrodes all it touches.
+ - Culture is perishing in overproduction, in an avalanche of words, in the madness of quantity.
+ - But isn’t it true that an author can write only about himself?
+ - The reign of imagagology begins where history ends.
+ - The very beginning of Genesis tells us that God created man in order to give him dominion over fish and fowl and all creatures. Of course, Genesis was written by a man, not a horse.
+ - If I hadn’t met you, I’d certainly have fallen in love with him.
+ - Dogs are our link to paradise.
+ - The more vast the amount of time we’ve left behind us, the more irresistible is the voice calling us to return to it.
+ - As you live out your desolation, you can be either unhappy or happy. Having that choice is what constitutes your freedom.
+ - Aren’t we living in a world where heedless men only desire decapitated women?
+ - Hate traps us by binding us too tightly to our adversary.
+ - The only reason people want to be masters of the future is to change the past.
+ - She regarded books as the emblems of secret brotherhood. A man with this sort of library couldn’t possibly hurt her.
+ - It was futile to attack with reason the stout wall of irrational feelings that, as is known, is the stuff of which the female mind is made.
+ - God has been kind to dogs in no putting a sense of beauty into their heads.
+ - Now time has a very different look; it is no longer the conquering present capturing the future; it is the present conquered and captured and carried off by the past.
+ - But then he told himself: What does it really mean to be useful? Today’s world, just as it is, contains the sum of the utility of all people of all times. Which implies: The highest morality consists in being useless.
+ - For everyone is pained by the thought of disappearing, unheard and unseen, into an indifferent universe, and because of that everyone wants, while there is still time, to turn himself into a universe of words.
+ - She knew that there were all kinds of ways to make a conquest and that one of the surest roads to a woman’s genitals was through her sadness.
+ - A novel that does not uncover a hitherto unknown segment of existence is immoral. Knowledge is the novel’s only morality.
+ - Necessity knows no magic formulae-they are all left to chance. If a love is to be unforgettable, fortuities must immediately start fluttering down to it like birds to Francis of Assisi’s shoulders.
+ - Any new possibility that existence acquires, even the least likely, transforms everything about existence.
+ - Without realizing it, the individual composes his life according to the laws of beauty even in times of greatest distress.
+ - Eroticism is like a dance: one always leads the other.
+ - The novel is not the author’s confession; it is an investigation of human life in the trap the world has become.
+ - Fortunately women have the miraculous ability to change the meaning of their actions after the event.
+ - The novelist teaches the reader to comprehend the world as a question. There is wisdom and tolerance in that attitude. In a world built on sacrosanct certainties the novel is dead.
+ - What does it mean to live in truth? Putting it negatively is easy enough: it means not lying, not hiding, and not dissimulating.
+ - The rediscovered path, where were left the traces of childhood’s lost steps.
+ - A man able to think isn’t defeated – even when he is defeated.
+ - Mysticism and exaggeration go together. A mystic must not fear ridicule if he is to push all the way to the limits of humility or the limits of delight.
+ - I think I am a much better actor than I have allowed myself to be.
+ - The novel is a territory where one does not make assertions; it is a territory of play and of hypotheses.
+ - Since the insignificance of all things is our lot, we should not bear it as an affliction but learn to enjoy it.
+ - Nothing is more repugnant to me than brotherly feelings grounded in the common baseness people see in one another.
+ - How goodness heightens beauty!
+ - Without the meditative background that is criticism, works become isolated gestures, historical accidents, soon forgotten.
+ - My lifelong ambition has been to unite the utmost seriousness of question with the utmost lightness of form.
+ - I have to lie, if I don’t want to take madmen seriously and become a madman myself.
+ - All lovers unconsciously establish their own rules of the game, which from the outset admit of no transgression.
+ - Facts mean little compared to attitudes. To contradict rumor or sentiment is as futile as arguing against a believer’s faith in the Immaculate Conception. You have simply become a victim of faith, Comrade Assistant.
+ - The best actors do not let the wheels show.
+ - Fidelity gives a unity to lives that would otherwise splinter into thousands of split-second impressions.
+ - Oh lovers! be careful in those dangerous first days! once you’ve brought breakfast in bed you’ll have to bring it forever, unless you want to be accused of lovelessness and betrayal.
+ - Today we’re all alike, all of us bound together by our shared apathy toward work. That very apathy has become a passion. The one great collective passion of our time.
+ - The combination of a frivolous form and a serious subject immediately unmasks the truth about our dramas.
+ - To ensure that the self doesn’t shrink, to see that it holds on to its volume, memories have to be watered like potted flowers, and the watering calls for regular contact with the witnesses of the past, that is to say, with friends.
+ - But what had happened, had happened, and it was no longer possible to right anything.
+ - But if God is gone and man is no longer master, then who is master?
+ - The body was a cage, and inside that cage was something which looked, listened, feared, thought and marveled; that something, that remainder left over after the body had been accounted for, was the soul.
+ - She is sadder and sadder, and for a man there is no balm more soothing than the sadness he has caused a woman.
+ - Perhaps all the questions we ask of love, to measure, test, probe, and save it, have the additional effect of cutting it short.
+ - The ludicrous element in our feeling does not make them any less authentic.
+ - Such are the Splendors and Miseries of memory: it is proud of its ability to keep truthful track of the logical sequence of past events; but when it comes to how we experienced them at the time, memory feels no obligation to truth.
+ - Suspending moral judgment is not the immorality of the novel; it is its morality.
+
+254 quotes

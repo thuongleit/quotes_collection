@@ -1,0 +1,42 @@
+ - Keep practicing. Never let someone tell you you’re too small or too slow.
+ - I hate losing more than I like winning.
+ - I always tell D-West, ‘We’re the leaders on the team, and if we go down, we’ve got to go down shooting.’
+ - If my son is happy, then I am happy.
+ - I trust my wife more than I trust myself.
+ - I need energy every day. Whether I’m leaving home and going to practice or getting in the car with my two kids to take my son to school – I need all the energy I can get.
+ - Obviously I want the fragrance to smell good. I tell people all the time that when you see someone there can obviously be a physical attraction, but scent is something that stays with you. It’s something that you remember about a person.
+ - Every now and then you’re going to get beaten, but we work hard.
+ - I’ve always been vertically challenged. I never grew at all until my junior year of high school-if you call that growing.
+ - Being close ain’t good enough.
+ - You only get a chance to live your dream once, and I’m living mine right now.
+ - For me, hip-hop culture is involved in everything – it’s in me, in who I am, in how I dress, how I talk. It’s in my son and my wife.
+ - One of the things you learn when you go overseas is how much a lot of the countries overseas really just like to enjoy life.
+ - We showed why road games have been tough for us throughout this year. That’s where we’ve got to get better. It’s a learning experience.
+ - I always have said that the most valuable thing I have isn’t money; it’s my time.
+ - People have said I have a Napoleon complex. But I’ve always had to fight for everything that I have.
+ - I love Polo. I have a lot of Ralph Lauren suits. I got Dolce, I got a little bit of everything. And my favorite thing about Ralph Lauren is that he puts the number three on a lot of his clothes, so I feel like it’s meant for me.
+ - I’m not much into anything too flashy.
+ - It’s a business now. But you still have little butterflies in your stomach before every game.
+ - No matter where you put me, I don’t care if it is North Carolina, Florida, California, New York City; I’m going to be who I am.
+ - That’s the great thing about big cities: Nobody is judging. You really get a chance to show who you are with your style.
+ - Being from North Carolina, it’s kind of slow-paced. There’s not too much going on there, whereas in New Orleans, there’s always something going on. I just love all the people, going out to dinner and enjoying anything I want.
+ - I play basketball to win a championship. That championship is everything to me. And thats what gets people to buy in to your brand – being a winner.
+ - We wanted to impress the crowd so much. The city has done so much for us and welcomed us right in, and we just wanted to give them a good show and show them that we’re going to play for them. I think guys just had a little bit of jitters.
+ - What I really try to do is take different pages out of different players books.
+ - I have a Dominique Wilkins Hawks jersey that I still wear. That’s probably my favorite one. What’s funny is that I spend all this time collecting jerseys, and now people are out there collecting mine.
+ - Even today a lot of people know me because of my grandfather.
+ - Family was real important in putting me on my path. I’m so blessed to come from a home with a mother and a father.
+ - I had never been to Oklahoma City before. I had no clue. Just heard there were a lot of tornadoes.
+ - Exercise and good nutrition helped make me what I am today and are critical in allowing me stay on top of my game.
+ - I’m not the greatest long-distance shooter, I know that. But I know if I can get around that free-throw line area, a lot of times you’ve just got to hope I miss.
+ - I can dunk! I can dunk, and not just in NBA Live.
+ - I was always into sports games. Never really played anything else. I grew up on games like Madden and NBA Jam.
+ - Sometimes the fans are too nice.
+ - I grew up on games like Madden and NBA Jam, then moved on to NFL 2K on Dreamcast. The game I really loved was Virtua Tennis.
+ - For me, it’s all about who you are. Some athletes may feel a responsibility. Some may not. One thing I’ve talked with my family and team about is doing more. Trying to make an impact.
+ - I’ve been a winner my whole life.
+ - Whatever I have to do to help us win, I’ll do.
+ - Im still getting more familiar with the plays and different things, but I think that will come along with getting more experience and getting to know the guys better.
+ - Ive been fortunate to be short my entire life. Theres only one position Ive ever had to play, and thats point guard. So Ive always had to be that leader. And that was my job: you know, to talk.
+
+40 quotes

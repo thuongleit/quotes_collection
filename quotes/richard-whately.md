@@ -1,0 +1,108 @@
+ - Lose an hour in the morning, and you will spend all day looking for it.
+ - A man is called selfish not for pursuing his own good, but for neglecting his neighbor’s.
+ - A fanatic, either, religious or political, is the subject of strong delusions.
+ - Woman is like the reed which bends to every breeze, but breaks not in the tempest.
+ - The power of duly appreciating little things belongs to a great mind...
+ - Happiness is no laughing matter.
+ - A man will never change his mind if he have no mind to change.
+ - Good manners are a part of good morals.
+ - He who is not aware of his ignorance will be only misled by his knowledge.
+ - Never argue at the dinner table, for the one who is not hungry gets the best of the argument.
+ - It is not that pearls fetch a high price because men have dived for them; but on the contrary, men have dived for them because they fetch a high price.
+ - The love of admiration leads to fraud, much more than the love of commendation; but, on the other hand, the latter is much more likely to spoil our: good actions by the substitution of an inferior motive.
+ - Women never reason, or, if they do, they either draw correct inferences from wrong premises, or wrong inferences from correct premises; and they always poke the fire from the top.
+ - It is one thing to wish to have truth on our side, and another to wish sincerely to be on the side of truth.
+ - Better too much form than too little.
+ - Even supposing there were some spiritual advantage in celibacy, it ought to be completely voluntary.
+ - Honesty is the best policy; but he who is governed by that maxim is not an honest man.
+ - Nothing but the right can ever be expedient, since that can never be true expediency which would sacrifice a great good to a less.
+ - A man who gives his children habits of industry provides for them better than by giving them fortune.
+ - Manners are one of the greatest engines of influence ever given to man.
+ - Persecution is not wrong because it is cruel; but it is cruel because it is wrong.
+ - To know your ruling passion, examine your castles in the air.
+ - No one complains of the rules of Grammar as fettering Language; because it is understood that correct use is not founded on Grammar, but Grammar on correct use. A just system of Logic or of Rhetoric is analogous, in this respect, to Grammar...
+ - As one may bring himself to believe almost anything he is inclined to believe, it makes all the difference whether we begin or end with the inquiry, ‘What is truth?’
+ - Party spirit enlists a man’s virtues in the cause of his vices.
+ - It is the neglect of timely repair that makes rebuilding necessary.
+ - The best security against revolution is in constant correction of abuses and the introduction of needed improvements. It is the neglect of timely repair that makes rebuilding necessary.
+ - Unless people can be kept in the dark, it is best for those who love the truth to give them the full light.
+ - To teach one who has no curiosity to learn, is to sow a field without ploughing it.
+ - The word of knowledge, strictly employed, implies three things: truth, proof, and conviction.
+ - As a science, logic institutes an analysis of the process of the mind in reasoning, and investigating the principles on which argumentation is conducted; as an art, it furnishes such rules as may be derived from those principles, for guarding against erroneous deductions.
+ - The depreciation of Christianity by indifference is a more insidious and less curable evil than infidelity itself.
+ - It is folly to shiver over last year’s snow.
+ - It is folly to expect men to do all that they may reasonably be expected to do.
+ - The relief that is afforded to mere want, as want, tends to increase that want.
+ - As an exercise of the reasoning faculties, pure mathematics is an admirable exercise, because it consists of reasoning alone and does not encumber the student with any exercise of judgment.
+ - Man is naturally more desirous of a quiet and approving, than of a vigilant and tender conscience – more desirous of security than of safety.
+ - Men are like sheep, of which a flock is more easily driven than a single one.
+ - Some men’s reputation seems like seed-wheat, which thrives best when brought from a distance.
+ - Falsehood, like poison, will generally be rejected when administered alone; but when blended with wholesome ingredients may be swallowed unperceived.
+ - Geologists complain that when they want specimens of the common rocks of a country, they receive curious spars; just so, historians give us the extraordinary events and omit just what we want, – the every-day life of each particular time and country.
+ - Fancy, when once brought into religion, knows not where to stop. It is like one of those fiends in old stories which any one could raise, but which, when raised, could never be kept within the magic circle.
+ - Of metaphors, those generally conduce most to energy or vivacity of style which illustrate an intellectual by a sensible object.
+ - The Eastern monarch who proclaimed a reward to him who should discover a new pleasure, would have deserved well of mankind had he stipulated that it should be blameless.
+ - Christianity, contrasted with the Jewish system of emblems, is truth in the sense of reality, as substance is opposed to shadows, and, contrasted with heathen mythology, is truth as opposed to falsehood.
+ - Of all hostile feelings, envy is perhaps the hardest to be subdued, because hardly any one owns it even to himself, but looks out for one pretext after another to justify his hostility.
+ - The heathen mythology not only was not true, but was not even supported as true; it not only deserved no faith, but it demanded none. The very pretension to truth, the very demand of faith, were characteristic distinctions of Christianity.
+ - One way in which fools succeed where wise men fail is that through ignorance of the danger they sometimes go coolly about a hazardous business.
+ - Reason can no more influence the will, and operate as a motive, than the eyes which show a man his road can enable him to move from place to place, or that a ship provided with a compass can sail without a wind.
+ - Eloquence is relative. One can no more pronounce on the eloquence of any composition than the wholesomeness of a medicine, without knowing for whom it is intended.
+ - It is worth noticing that those who assume an imposing demeanor and seek to pass themselves off for something beyond what they are, are not unfrequently as much underrated by some as overrated by others.
+ - The first requisite of style, not only in rhetoric, but in all compositions, is perspicuity.
+ - Misgive that you may not mistake.
+ - Controversy, though always an evil in itself, is sometimes a necessary evil.
+ - He that is not open to conviction is not qualified for discussion.
+ - Ethical maxims are bandied about as a sort of current coin of discourse, and, being never melted down for use, those that are of base metal are never detected.
+ - When men have become heartily wearied of licentious anarchy, their eagerness has been proportionately great to embrace the opposite extreme of rigorous despotism.
+ - Trust, therefore, for the overcoming of a difficulty, not to long-continued study after you have once become bewildered, but to repeated trials at intervals.
+ - Falsehood, like the dry-rot, flourishes the more in proportion as air and light are excluded.
+ - As there are dim-sighted people who live in a sort of perpetual twilight, so there are some who, having neither much clearness of head nor a very elevated tone of morality, are perpetually haunted by suspicions of everybody and everything.
+ - Not in books only, nor yet in oral discourse, but often also in words there are boundless stores of moral and historic truth, and no less of passion and imagination laid up, from which lessons of infinite worth may be derived.
+ - It is generally true that all that is required to make men unmindful of what they owe to God for any blessing, is, that they should receive that blessing often and regularly.
+ - Anger requires that the offender should not only be made to grieve in his turn, but to grieve for that particular wrong which has been done by him.
+ - It may be worth noticing as a curious circumstance, when persons past forty before they were at all acquainted form together a very close intimacy of friendship. For grafts of old wood to take, there must be a wonderful congeniality between the trees.
+ - Galileo probably would have escaped persecution if his discoveries could have been disproved.
+ - In our judgment of human transactions, the law of optics is reversed, we see most dimly the objects which are close around us.
+ - Concerning the utility of Rhetoric, it is to be observed that it divides itself into two; first, whether Oratorical skill be, on the whole, a public benefit, or evil; and secondly, whether any artificial system of Rules is conducive to the attainment of that skill.
+ - As the telescope is not a substitute for, but an aid to, our sight, so revelation is not designed to supersede the use of reason, but to supply its deficiencies.
+ - He only is exempt from failures who makes no efforts.
+ - All gaming, since it implies a desire to profit at the expense of another, involves a breach of the tenth commandment.
+ - Superstition is not, as has been defined, an excess of religious feeling, but a misdirection of it, an exhausting of it on vanities of man’s devising.
+ - To follow imperfect, uncertain, or corrupted traditions, in order to avoid erring in our own judgment, is but to exchange one danger for another.
+ - To be always thinking about your manners is not the way to make them good; the very perfection of manners is not to think about yourself.
+ - It is a good plan, with a young person of a character to be much affected by ludicrous and absurd representations, to show him plainly by examples that there is nothing which may not be thus represented. He will hardly need to be told that everything is not a mere joke.
+ - Of Rhetoric various definitions have been given by different writers; who, however, seem not so much to have disagreed in their conceptions of the nature of the same thing, as to have had different things in view while they employed the same term.
+ - Some persons resemble certain trees, such as the nut, which flowers in February and ripens its fruit in September; or the juniper and the arbutus; which take a whole year or more to perfect their fruit; and others, the cherry, which takes between two an three months.
+ - Though not always called upon to condemn ourselves, it is always safe to suspect ourselves.
+ - It may be said, almost without qualification, that true wisdom consists in the ready and accurate perception of analogies. Without the former quality, knowledge of the past is unobstructive: without the latter it is deceptive.
+ - Those who relish the study of character may profit by the reading of good works of fiction, the product of well-established authors.
+ - Falsehood is difficult to be maintained. When the materials of a building are solid blocks of stone, very rude architecture will suffice; but a structure of rotten materials needs the most careful adjustment to make it stand at all.
+ - When a man says he wants to work, what he means is that he wants wages.
+ - An instinct is a blind tendency to some mode of action, independent of any consideration, on the part of the agent, of the end to which the action leads.
+ - There is no right faith in believing what is true, unless we believe it because it is true.
+ - That is suitable to a man, in point of ornamental expense, not which he can afford to have, but which he can afford to lose.
+ - As hardly anything can accidentally touch the soft clay without stamping its mark on it, so hardly any reading can interest a child, without contributing in some degree, though the book itself be afterwards totally forgotten, to form the character.
+ - Do you want to know the man against whom you have most reason to guard yourself? Your looking-glass will give you a very fair likeness of his face.
+ - We may print, but not stereotype, our opinions.
+ - The happiest lot for a man, as far as birth is concerned, is that it should be such as to give him but little occasion to think much about it.
+ - It is quite possible, and not uncommon, to read most laboriously, even so as to get by heart the words of a book, without really studying it at all, – that is, without employing the thoughts on the subject.
+ - The censure of frequent and long parentheses has led writers into the preposterous expedient of leaving out the marks by which they are indicated. It is no cure to a lame man to take away his crutches.
+ - Man, considered not merely as an organized being, but as a rational agent and a member of society, is perhaps the most wonderfully contrived, and to us the most interesting specimen of Divine wisdom that we have any knowledge of.
+ - A certain class of novels may with propriety be called fables.
+ - Vices and frailties correct each other, like acids and alkalies. If each vicious man had but one vice, I do not know how the world could go on.
+ - As the flower is before the fruit, so is faith before good works.
+ - It is an awful, an appalling thought, that we may be, this moment and every moment, in the presence of malignant spirits.
+ - The tendency of party spirit has ever been to disguise and propagate and support error.
+ - Some persons follow the dictates of their conscience only in the same sense in which a coachman may be said to follow the horses he is driving.
+ - Curiosity is as much the parent of attention, as attention is of memory.
+ - Neither human applause nor human censure is to be taken as the best of truth; but either should set us upon testing ourselves.
+ - Habits are formed, not at one stroke, but gradually and insensibly; so that, unless vigilant care be employed, a great change may come over the character without our being conscious of any.
+ - Great affectation and great absence of it are at first sight very similar.
+ - Every instance of a man’s suffering the penalty of the law is an instance of the failure of that penalty in effecting its purpose, which is to deter.
+ - Sophistry, like poison, is at once detected and nauseated, when presented to us in a concentrated form; but a fallacy which, when stated barely in a few sentences, would not deceive a child, may deceive half the world, if diluted in a quarto volume.
+ - If all our wishes were gratified, most of our pleasures would be destroyed.
+ - The more secure we feel against our liability to any error to which, in fact, we are liable, the greater must be our danger of falling into it.
+ - It is also important to guard against mistaking for good-nature what is properly good-humor, – a cheerful flow of spirits and easy temper not readily annoyed, which is compatible with great selfishness.
+
+106 quotes

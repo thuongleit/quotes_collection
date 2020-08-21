@@ -1,0 +1,33 @@
+ - You can’t truly hate someone you’ve loved. You can only hurt.
+ - I wonder what disgusts you more, the fact that I’m a demon, or the fact that when I touch you, it doesn’t matter.
+ - I’ll bet you could make a woman throw out all her toys.
+ - The problem with having evil minions is that minions are stupid.
+ - Man who hates cats is insecure, but a man who likes them is one worth keeping. If he can appreciate a cat, he can appreciate a strong, independent woman.
+ - I didn’t see any furry little James Bonds.
+ - The pretty nurse had just injected her with something that totally rocked, and if she wanted to think about boinking a bronzed, tattooed, impossibly handsome doctor who was so far out of her league she need a telescope to see him, then screw it. Screw him. Over and over.
+ - Harvester might have a halo, but dear, sweet Lord, she was no angel in the sack. Awesome.
+ - He wouldn’t take anything from her ever again. But from this point on, he’d give her whatever she wanted. Which was easy, because what she wanted right now was an orgasm.
+ - The present was better. Much, much better. Humans had coffee now. And gelato.
+ - His instincts should have warned him sooner than they had, but thanks to his agimortus, he’d been hobbled like a brood mare waiting to be mounted by a randy stallion.
+ - I don’t try Sin. I do. Remember that.
+ - Still amazes me that people spend more time researching a new vehicle than they do the religion they entrust their souls to.
+ - He was the ultimate experiment in Nature Versus Nurture, and she imagined he must be engaged in a constant battle between what he was and what he wanted to be.
+ - I don’t care what you are, Gem. I want you. I love you.
+ - Your mom is my sunset, and you are my dawn.
+ - Easy there, Smurfette.
+ - Besides, there wasn’t a breed of succubi out there that didn’t steal something. Whether it was your seed, your soul, your life-force, or your heart, they sucked something out of you and rarely gave back. Sin definitely did not strike him as the giving kind.
+ - Let a woman too close, and while she sucked your cock, she sucked your brains and manhood right out of you, too.
+ - He’d always thought Roag was one rat short of a plague.
+ - She narrowed her eyes and concentrated on his mouth. Name. He wanted her name. She had to think about it for a second before she remembered. Great. She must have hit her head. Which, duh, explained the headache.
+ - And your skin, it tastes like me. I want to taste you everywhere.
+ - He really wished she would stop fingering the brick.
+ - Horseman. I know you were born back when women were thought of as little more than brood mares and slaves, but it’s the twenty-first century, and we can do anything a man does.
+ - All I ever had before you was nightmares. But now I dream. Because of you.
+ - Harvester’s heart soared. Reaver had offered to castrate an archangel for her. How sweet was that?
+ - I could say I think coulds are pretty, and you’d say they’re only pretty to demons.
+ - For the next eight and a half months, you’re going to be mine. Every. Night.
+ - I will never belong to anyone – I will die before I allow that to happen.
+ - Yep, ouch. He and apologies didn’t get along.
+ - When you can’t be sure of anything else in this crapped- on world, you have to be sure of yourself.
+
+31 quotes

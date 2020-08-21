@@ -1,0 +1,26 @@
+ - Sin will take you farther than you ever expected to go; it will keep you longer than you ever intended to stay, and it will cost you more than you ever expected to pay.
+ - God is in control, and therefore in EVERYTHING I can give thanks – not because of the situation but because of the One who directs and rules over it.
+ - Snuggle in God’s arms. When you are hurting, when you feel lonely, left out. let Him cradle you, comfort you, reassure you of His all-sufficient power and love.
+ - If you are God’s child, you are no longer bound to your past or to what you were. You’re a new creature in Jesus Christ.
+ - What is courage? It is the ability to be strong in trust, in conviction, in obedience. To be courageous is to step out in faith – to trust and obey, no matter what.
+ - Ultimately, the goal of personal Bible study is a transformed life and a deep and abiding relationship with Jesus Christ.
+ - You have been created by God and for God, and someday you will stand amazed at the simple yet profound ways He has used you even when you weren’t aware of it.
+ - God is in control and therefore in everything I can give thanks.
+ - Where do you run for help? When you are in trouble, what is your first instinct? Do you run to others or to God? Is it usually the counsel of another rather than the counsel found in waiting upon God in prayer? Why is this the way it is? Why do we run to man before we run to God?
+ - When we are set free from the bondage of pleasing others, when we are free from currying others’approval-then no one will be able to make us miserable or dissatisfied. And then, if we know we have pleased God, contentment will be our consolation.
+ - As you study your Bible with the help of the Holy Spirit, and live out the truths that God reveals to you, you will discover new stability, strength, and confidence.
+ - Really, then, our problem is not weakness, but independence! And in covenant, you die to independent living.
+ - If you’ll quit moaning and crying, I’ll use the things to make you into someone I can use in the lives of others to show them that no matter where they’ve been, no matter how deep the hole, no matter how painful the trial, there’s hope. There is victory.
+ - When you know what God says, what He means, and how to put His truths into practice, you will be equipped for every circumstance of life.
+ - You can be defeated by life’s unavoidable disappointments, or you can become stronger because of them.
+ - According to God, the One who designed and instituted marriage, love is a choice. It’s a matter of obedience, not emotion.
+ - Are you weak? Weary? Confused? Troubled? Pressured? How is your relationship with God? Is it held in its place of priority? I believe the greater the pressure, the greater your need for time alone with Him.
+ - Why should I ever resist any delay or disapointment, any affliction or oppression or humiliation – when I know God will use it in my life to make me like Jesus and to prepare me for heaven?
+ - When life is difficult, God wants us to have a faith that trusts and waits.
+ - God knows what each one of us is dealing with. He knows our pressures. He knows our conflicts. And He has made a provision for each and every one of them. That provision is Himself in the person of the Holy Spirit, indwelling us and empowering us to respond rightly.
+ - Love has its source in God, for love is the very essence of His being.
+ - Pain and trials are almost constant companions, but never enemies. They drive me into His sovereign arms. There He takes my disappointments and works everything together for good.
+ - The problem is that so often we forget that we are in warfare and that Satan’s target is our mind.
+ - I had a mink, and I had money and I was miserable.
+
+24 quotes

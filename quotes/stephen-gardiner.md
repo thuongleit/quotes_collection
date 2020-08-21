@@ -1,0 +1,47 @@
+ - The Industrial Revolution was another one of those extraordinary jumps forward in the story of civilization.
+ - Land is the secure ground of home, the sea is like life, the outside, the unknown.
+ - The logic of Palladian architecture presented an aesthetic formula which could be applied universally.
+ - Human requirements are the inspiration for art.
+ - Up until the War of the Roses there had been continual conflict in England.
+ - The Egyptian contribution to architecture was more concerned with remembering the dead than the living.
+ - The chief concern of the French Impressionists was the discovery of balance between light and dark.
+ - French architecture always manages to combine the most magnificent underlying themes of architecture; like Roman design, it looks to the community.
+ - The largest and most influential houses chiefly demonstrate the aloofness of the French approach.
+ - Good buildings come from good people, ad all problems are solved by good design.
+ - Stonehenge was built possibly by the Minoans. It presents one of man’s first attempts to order his view of the outside world.
+ - The medieval hall house was very primitive when it became the characteristic form of dwelling of the landowner of the Middle Ages.
+ - In Egypt, the living were subordinate to the dead.
+ - The frame of the cave leads to the frame of man.
+ - The greater the step forward in knowledge, the greater is the one taken backward in search of wisdom.
+ - The further forward we go, the further back we have to explore in order to go forward again.
+ - The ancient Greeks noticed that a man with arms and legs extended described a circle, with his navel as the center.
+ - Until we perceive the meaning of our past, we remain the mere carriers of ideas, like the Nomads.
+ - In Japanese houses the interior melts into the gardens of the outside world.
+ - The interior of the house personifies the private world; the exterior of it is part of the outside world.
+ - It is thought that the changeover from hunter to farmer was a slow, gradual process.
+ - The Egyptian tomb was the outcome of the Mesopotamian influence and followed from the religious crisis the country had undergone.
+ - It is hardly surprising that the Georgian domestic style emerges as the most remarkable in the world.
+ - In the Scottish Orkneys, the little stone houses with their single large room and central hearth had an extraordinary range of built-in furniture.
+ - In cities like Athens, poor houses lined narrow and tortuous streets in spite of luxurious public buildings.
+ - The Japanese put houses in among the trees and allowed nature to gain the ascendancy in any composition.
+ - The center of Western culture is Greece, and we have never lost our ties with the architectural concepts of that ancient civilization.
+ - In Japanese art, space assumed a dominant role and its position was strengthened by Zen concepts.
+ - Of all the lessons most relevant to architecture today, Japanese flexibility is the greatest.
+ - The corridor is hardly ever found in small houses, apart from the verandah, which also serves as a corridor.
+ - The mystery is what prompted men to leave caves, to come out of the womb of nature.
+ - Houses mean a creation, something new, a shelter freed from the idea of a cave.
+ - The mandala describes balance. This is so whatever the pictorial form.
+ - The garden, by design, is concerned with both the interior and the land beyond the garden.
+ - In the East there is a gap between the top of a wall and underside of a roof; it acts as a screen, and the Chinese were able to use it as they wished.
+ - The American order reveals a method that was largely the outcome of material necessity, as exemplified by the Colonial style and the grid.
+ - People like terra firma, and they should be allowed to walk where they wish.
+ - Georgian architecture respected the scale of both the individual and the community.
+ - It was only from an inner calm that man was able to discover and shape calm surroundings.
+ - What people want, above all, is order.
+ - The Romans used every housing form known today and they have a remarkably modern look.
+ - The English light is so very subtle, so very soft and misty, that the architecture responded with great delicacy of detail.
+ - Victorian architecture in the United States was copied straight from England.
+ - The exterior cannot do without the interior since it is from this, as from life, that it derives much of its inspiration and character.
+ - Like flats of today, terraces of houses gained a certain anonymity from identical facades following identical floor plans and heights.
+
+45 quotes

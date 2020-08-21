@@ -1,0 +1,50 @@
+ - When people don’t believe in you, you have to believe in yourself.
+ - Love is a lot like dancing; you just surrender to the music.
+ - You can get totally messed up trying to please everyone with what you do, but ultimately, you have to please yourself.
+ - You need to love everyone.
+ - Maybe sometimes the best things are worth waiting for possibly.
+ - Regret, is usually a waste of time. As is gloating.
+ - Love is just the most beautiful, joyous feeling. It can come from many places.
+ - Education isn’t a result. It’s a process.
+ - For me, acting is doing.
+ - Everyone can make a real difference. Your voice is needed in a global movement that can change their world.
+ - When your partner gets cancer, then life changes. Your timetable and reference for your normal routines and the way you view life, all this changes. Because you’re dealing with death. You’re dealing with the possibility of death and dying.
+ - Being with my wife and children in Kauai, seeing old friends there, being on the beach, painting, paddleboarding. Sitting under a Kauai moon with a bonfire going, buddies around. Those are the things that kind of make my world turn.
+ - Dark comedy is very difficult. You have to bring the audience in and push them away at the same time.
+ - We owe it to our children to be better stewards of the environment. The alternative? – a world without whales. It’s too terrible to imagine.
+ - Love means that everything is right with the world. Love and only love.
+ - I had big dreams when I was a boy. And I can’t say that I never saw a beach house in Malibu in those dreams.
+ - I certainly got the jokes within the joke, dressing up in a wet suit, sitting in a Twingo, scaling a rubber mountain, dressing up and stealing a diamond, of course. If not now, when?
+ - Oh, humiliation is poisonous. Its one of the deepest pains of being human.
+ - The White Palace was pretty impressive. Very impressive, in fact. The day to day running of the set was everybody showed up for work. They are seasoned filmmakers over there. They have an infrastructure for filmmaking, which is very healthy. It’s small, but they were tenacious, polite, timely.
+ - I lost track of it thereafter. I wish I had a piece of it. That would have been very, very nice. It was one of those little things they get you on the Bond and then suddenly your face is every which way.
+ - I’m Irish, for gods sake. I’m a romantic.
+ - Sometimes you take time off, and then you look around and you go, “Hello. What happened? Oh dear!”
+ - I paint in oils, I paint in acrylics. I paint figurative and landscape portraits. It’s all in my own kind of style. I’m self-taught.
+ - There’s too many people in seats of power who just haven’t got a clue what they’re doing. They’re bean counters, and it just pisses me off because consequently our kids go to see crap movies.
+ - I don’t see myself as the Hunk of the Month.
+ - Childhood was fairly solitary. I grew up in a very small town called Navan in County Meath. I never knew my father. He left when I was an infant and I was left in the care of my mother and my grandparents.
+ - To my eye, women get sexier around 35. They know a thing or two, and knowledge is always alluring.
+ - It felt after the Bonds, after my four outings as James Bond, there seemed to be unfinished business. And the way that the Bond finished in my life and the demise of Bond going off stage left into the night, it seemed like there was a certain void there, as they say, of unfinished business.
+ - Everybody gave 100%. I mean everyone, because they all knew that the film had the bones and the heartbeat of something that could be good. And everyone was in on it and wanted it for me and wanted it for Roger and Beau.
+ - I love movies. I adore movies. I grew up on Steve McQueen and Clint Eastwood and Warren Beatty. The list goes on. Spencer Tracy. I wanted to be in movies.
+ - I live a very simple existence when I’m not on the road. Because when I’m on the road making a movie, I’m away from home.
+ - It never felt real to me. I never felt I had complete ownership over Bond. Because you’d have these stupid one-liners – which I loathed – and I always felt phony doing them.
+ - America, which leads the world in so many ways, can end childhood hunger within its borders.
+ - I found myself in the changed man theory the other night thinking, “Yeah.” I thought, “My god. If we could do this again,” but there was nothing specific there. There’s just the kind of vague sensation of how I’d like it to go. I allowed myself that gift to think that.
+ - The like factor is a great thing. Love cannot burn constantly. It’s very hard for it to be so intense. But it’s wonderful.
+ - I had to have some balls to be Irish Catholic in South London. Most of that time I spent fighting.
+ - I should like to think that we’ll find peace on this Earth at some point and come to a collective consciousness of COMPASSION for each other, where we say, ‘Enough! Let us live as one!’
+ - I was a commercial artist when I left school, but luckily I became an actor. I’ve painted for many, many years. Now the last few years it’s gotten more serious.
+ - I love these kind of movies as a kind of cinema-going geek myself. Those characters, you want to be like those characters when you go to the movies. You know, when you see a movie with a guy who’s really cool and the killing’s slick and easy. I don’t know. There’s something intoxicating about it.
+ - My mother was the prettiest woman in the town. He was a bit older than her. They made me. And he split.
+ - Acting allows me to explore new worlds, to discover characters by delving into their lives, and ultimately to become someone else entirely.
+ - I’ll make phone calls. I’ll call anybody and knock on any door to try and get a location, or get an actor, or get an actress. But no, it was just very easy. We just hit the ground running.
+ - That’s it. I’ve said all I’ve got to say on the world of James Bond.
+ - I’m an actor first and foremost. My producing credentials are just to say, “Yeah, I love this story and now let’s bring the people, the ensemble together,” and I get out of the way. I have no desire to check on schedules and shooting schedules and money and stuff like that.
+ - Some people have a tendency to get knocked down in this business and sulk and whine, and they just create a rod for their back, really. You have to have broad shoulders and get through it.
+ - This man called President Bush has a lot to answer for. I don’t know if this man is really taking care of America. This government has been shameful.
+ - I had to make a living. I had the mortgage to pay, I had the school fees to pay. I had bread and butter to put on the table. You know your worth as an actor, but you have to get a job.
+ - Many people think that hunger is unavoidable in any society, even a society that is blessed with great abundance. That is not true. The European community does not have widespread hunger. America, which leads the world in so many ways, can end childhood hunger within its borders.
+
+48 quotes

@@ -1,0 +1,39 @@
+ - If I play you a piece of music, that’s when you can truly look inside me.
+ - As the seconds of our lives are ticking away, you have to realize that life needs to be an adventure.
+ - I think one of the things which always is forgotten in music class, is the first thing you have to do as a musician is you have to learn how to listen.
+ - You’re going to fail a few times, because that is the only time you actually learn something.
+ - What are you going to do when you are not saving the world.
+ - Electronic music lends itself to an abstract way of storytelling, so it keeps evolving. Theres a whole movement truly driving music further and there is no other music innovating as much as film music.
+ - The rules are: The more playful we get, the more we can get rid of the rules.
+ - Never let your wife prevent you from buying equipment. A car will not buy a synthesizer, but a synthesizer can buy a car.
+ - If you talk to any director, they’ll say music is fifty percent of the movie.
+ - I want to go and write music that announces to you that you can feel something. I don’t want to tell you what to feel, but I just want you to have the possibility of feeling something.
+ - I’ve never had a real job in my life. I didn’t learn anything, I was terrible at school. It was just this thing. Music was all I wanted to do.
+ - You can only make a good noise on the guitar if you’re committed. Little careful noise doesn’t work. You have to be bold.
+ - I’ve spent my life trying to make things simpler. Because I find ultimately that complicated doesn’t reach the heart.
+ - If something happened where I couldnt write music anymore, it would kill me. Its not just a job. Its not just a hobby. Its why I get up in the morning.
+ - Having the great opportunity on a daily basis to sit in front of a blank page is terrifying, and at the same time really exciting. I can’t actually get better at my job, because every time you finish something you start with a blank page, with nothing.
+ - You have to remain flexible, and you must be your own critic at all times.
+ - The first thing I think about is music, and the last thing I think about is music. I’m like some Monk. I don’t see a lot of daylight. I hang out with musicians, I hang out with directors and I just try to spend as much of my life as possible playing music.
+ - I loved this idea of always being a foreigner. There’s this thing where people bring cultures, bring the music together. I love it when the music, when the cultures collide and something sort of new comes out of it.
+ - Why get up in the morning unless you’re going to have an adventure?
+ - All music is based in one way or the other, or influenced through the ages, on technology.
+ - The main thing the composer needs to do is it needs to remember that the director is there to cheer you on. The director wants you to succeed because if you succeed, you’ll be helping the film. And they are truly your conscience. And they’re truly your guide.
+ - I’ve spent my life trying to make things simpler...
+ - Inspired music arises from an inspired movie which arises from an inspired script.
+ - As opposed to being on the Internet, there’s something really nice about reading a book or talking to authors.
+ - The challenge in scoring a sequel is, how do you not get bored? The only way around that one is to go, “Okay, let’s throw everything out that we had before and let’s just see it as an autonomous movie, and let’s just start again.”
+ - There’s a power that movies and music has, that can move you and motivate you to look at your neighbor in a slightly more respectful way, and look at cultures in a more inclusive way.
+ - Anything can become a musical sound. The wind on telegraph wires is a great sound; get it into your machine and play it and it becomes interesting.
+ - America is a magical place, and I think my job, or the job of a lot of us European filmmakers is to just hold up America to Americans and present it to you in a new way. All I wanted to do is in a funny way say, “Look at your country. It’s magnificent.”
+ - I’m homeless, in a funny way. My culture I think is completely rooted in German 19th century music I suppose.
+ - You always hear these stories of how Hollywood is so merciless on composers and how they all get beaten up. Nobody beats me up as much as I beat myself up. This is what I love doing and I have one life to do it in, and I better do it right. I better do it well.
+ - I have to give credit to Giorgio Moroder ; among the first to make us realize the importance of music in film.
+ - Hollywood allows you to go and express yourself.
+ - The honest truth is that it was just traumatizing with the piano, with the authority of the piano teacher, getting rapped across the knuckles, and so whenever you put a piece of music in front of me, there’s a Pavlovian reaction where it starts off.
+ - Trust me, if you’re working on a $70 million movie and you’re the last guy, you feel all that weight on your shoulders.
+ - I’m a geek and I’m a nerd, and I can listen into any piece of music. I think, I can usually tell you what orchestra it was, I can usually tell you what hall it was in. I can tell you, obviously who the conductor was, and who the composer was.
+ - The lack of education means, the lack of having something I can pull out of a drawer, means I have to find something in any movie I work on that is intensely personal.
+ - When I was 13, when I was 14, when I was in England, yeah all I wanted to do was go and see The Who, go and see The Stones.
+
+37 quotes

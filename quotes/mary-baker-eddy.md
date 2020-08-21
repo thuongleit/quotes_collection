@@ -1,0 +1,105 @@
+ - Divine love always has met and always will meet every human need.
+ - To live and let live, without clamor for distinction or recognition; to wait on divine love; to write truth first on the tablet of one’s own heart – this is the sanity and perfection of living, and my human ideal.
+ - No power can withstand divine Love.
+ - To those leaning on the sustaining infinite, today is big with blessings.
+ - Every luminary in the constellation of human greatness, like the stars, comes out in the darkness to shine with the reflected light of God.
+ - Your birthday is a special day, May it bring you love and cheer It gives a chance for me to say, Happy birthday every year.
+ - Sorrow has its reward. It never leaves us where it found us.
+ - God is incorporeal, divine, supreme, infinite Mind, Spirit, Soul, Principle, life, Truth, Love.
+ - Reject hatred without hating.
+ - I love to observe Christmas in quietude, humility, benevolence, charity, letting good will towards man, eloquent silence, prayer, and praise express my conception of Truth’s appearing.
+ - Right motives give pinions to thought, and strength and freedom to speech and action.
+ - The devotion of thought to an honest achievement makes the achievement possible. Exceptions only confirm this rule, proving that failure is occasioned by a too feeble faith.
+ - Emerge gently from matter into Spirit.
+ - Christian Science explains all cause and effect as mental, not physical.
+ - The time for thinkers has come.
+ - A wrong motive involves defeat.
+ - Love inspires, illummines, designates and leads the way.
+ - The recipe for beauty is to have less illusion and more Soul, to retreat from the belief of pain or pleasure in the body into the unchanging calm and glorious freedom of spiritual harmony.
+ - God gives you His spiritual ideas, and in turn, they give you daily supplies. Never ask for tomorrow: it is enough that divine Love is an ever-present help; and if you wait, never doubting, you will have all you need every moment.
+ - Hold thought steadfastly to the enduring, the good, and the true, and you will bring these into your experience proportionately to their occupancy of your thoughts.
+ - A little more grace, a motive made pure, a few truths tenderly told, a heart softened, a character subdued, a life consecrated, would restore the right action of the mental mechanism, and make manifest the movement of body and soul in accord with God.
+ - Home is the dearest spot on earth, and it should be the centre, but not the boundary, of the affections.
+ - Truth is immortal; error is mortal.
+ - Step by step will those who trust Him find that ‘God is our refuge and strength, a very present help in trouble.’
+ - When angels visit us, we do not hear the rustle of wings, nor feel the feathery touch of the breast of a dove; but we know their presence by the love they create in our hearts.
+ - Man and woman as coexistent and eternal with God forever reflect, in glorified quality, the infinite Father-Mother God.
+ - Health is not a condition of matter, but of Mind; nor can the material senses bear reliable testimony on the subject of health.
+ - To love and to be loved, one must do good to others. The inevitable condition whereby to become blessed, is to bless others.
+ - Angels are pure thoughts from God, winged with Truth and Love.
+ - The prayer that reforms the sinner and heals the sick is an absolute faith that all things are possible to God...
+ - Health is not a condition of matter, but of Mind.
+ - Is civilization only a higher form of idolatry, that man should bow down to a flesh-brush, to flannels, to baths, diet, exercise, and air?
+ - Sickness is a belief, which must be annihilated by the divine Mind.
+ - Give up the belief that mind is, even temporarily, compressed within the skull, and you will quickly become more manly or womanly. You will understand yourself and your Maker better than before.
+ - The physical universe expresses the conscious and unconscious thoughts of mortals.
+ - There is too much animal courage in society and not sufficient moral courage.
+ - Chastity is the cement of civilization and progress. Without it there is no stability in society, and without it one cannot attain the Science of Life.
+ - We should master fear, instead of cultivating it.
+ - Consistent prayer is the desire to do right.
+ - Spirit, God, gathers unformed thoughts into their proper channels, and unfolds these thoughts, even as He opens the petals of a holy purpose in order that the purpose may appear.
+ - Error tills its own barren soil and buries itself in the ground, since ground and dust stand for nothingness.
+ - True prayer is not asking God for love; it is learning to love, and to include all mankind in one affection.
+ - You embrace your body in your thought, and you should delineate upon it thoughts of health, not of sickness.
+ - There is no life, truth, intelligence, nor substance in matter. All is infinite Mind, and its infinite manifestation, for God is All in All. Spirit is immortal Truth; Matter is mortal error.
+ - Sin makes its own hell, and goodness its own heaven.
+ - What we most need is the prayer of fervent desire for growth in grace, expressed in patience, meekness, love, and good deeds.
+ - When the heart speaks, however simple the words, its language is always acceptable to those who have hearts.
+ - Good thoughts are an impervious armor; clad therewith you are completely shielded from the attacks of error of every sort. And not only yourselves are safe, but all whom your thoughts rest upon are thereby benefited.
+ - The rich in spirit help the poor in one grand brotherhood, all having the same Principle, or Father; and blessed is that man who seeth his brother’s need and supplieth it, seeking his own in another’s good.
+ - Rushing around smartly is no proof of accomplishing much.
+ - If materialistic knowledge is power, it is not wisdom. It is but a blind force.
+ - To infinite, ever present Love, all is Love, and there is no error, no sin sickness, nor death.
+ - The human sigh for peace and love is answered and compensated by divine love.
+ - Love enriches the nature, enlarging, purifying, and elevating it.
+ - God is Mind, and God is infinite; hence all is Mind.
+ - Happiness is spiritual, born of truth and love. It is unselfish; therefore it cannot exist alone, but requires all mankind to share it.
+ - You conquer error by denying its verity.
+ - To prevent disease or to cure it, the power of Truth, of divine Spirit, must break down the dream of the material senses.
+ - Sin brought death, and death will disappear with the disappearance of sin.
+ - I would no more quarrel with a man because of his religion than I would because of his art.
+ - Sacrifice self to bless one another, even as God has blessed you. Forget self in laboring for mankind...
+ - The lives of great men and women are miracles of patience and perseverance.
+ - Hypocrisy is fatal to religion.
+ - Complaint is poverty.
+ - Spiritual teaching must always be by symbols.
+ - Remember, thou canst be brought into no condition, be it ever so severe, where Love has not been before thee and where its tender lesson is not awaiting thee. Therefore despair not nor murmur, for that which seeketh to save, to heal, and to deliver, will guide thee, if thou seekest this guidance.
+ - All successful individuals have become such by hard work; by improving moments before they pass into hours, and hours that other people may occupy in the pursuit of pleasure.
+ - Disease is an image of thought externalized.
+ - All my work, all my efforts, all my prayers and tears are for humanity, and the spread of peace and love among mankind.
+ - Drugs, cataplasms, and whiskey are stupid substitutes for the dignity and potency of divine mind and its efficacy to heal.
+ - Truth has no beginning.
+ - Whatever materializes worship hinders man’s spiritual growth and keeps him from demonstrating his power over error.
+ - The sharp experiences of belief in the supposititious life of matter, as well as our disappointments and ceaseless woes, turn us like tired children to the arms of divine Love.
+ - We should examine ourselves and learn what is the affection and purpose of the heart, for in this way only can we learn what we honestly are.
+ - Father-Mother is the name for Deity...
+ - The age looks steadily to the redressing of wrong, to the righting of every form of error and injustice; and a tireless and prying philanthropy, which is almost omniscient, is one of the most hopeful characteristics of the time.
+ - Lulled by stupefying illusions, the world is asleep in the cradle of infancy, dreaming away the hours.
+ - Prayer is not to be used as a confessional, to cancel sin. Such an error would impede true religion. Sin is forgiven only as it is destroyed by Christ – Truth and Light.
+ - In the year 1866, I discovered the Christ Science or divine laws of Life, Truth, and Love, and named my discovery Christian Science.
+ - A wicked mortal is not the idea of God. He is little else than the expression of error. To suppose that sin, lust, hatred, envy, hypocrisy, revenge, have life abiding in them, is a terrible mistake. Life and Life’s idea, Truth and Truth’s idea, never make men sick, sinful, or mortal.
+ - Disease is an experience of mortal mind. It is fear made manifest on the body. Divine Science takes away this physical sense of discord, just as it removes a sense of moral or mental in-harmony.
+ - Disease is an experience of a so-called mortal mind. It is fear made manifest on the body.
+ - Women must think strategically about creating ongoing pressure for change.
+ - Our proportionate admission of the claims of good or of evil determines the harmony of our existence, – our health, our longevity, and our Christianity.
+ - Jealousy is the grave of affection.
+ - Under affliction in the very depths, stop and contemplate what you have to be grateful for.
+ - Spirit is the real and eternal; matter is the unreal and temporal.
+ - Two points of danger beset mankind; namely, making sin seem either too large or too little...
+ - God is universal; confined to no spot, defined by no dogma, appropriated by no sect.
+ - Spring is my sweetheart...
+ - Nothing save divine power is capable of doing so much for man as he can for himself.
+ - If Christianity is not scientific, and Science is not God, then there is no invariable law, and truth becomes an accident.
+ - People think that all cameramen do is point the camera at things, but it’s a heck of a lot more complicated than that.
+ - Matter and death are mortal illusions.
+ - In the midst of depressing care and labor I turn constantly to divine Love for guidance, and find rest.
+ - Experience teaches us that we do not always receive the blessings we ask for in prayer.
+ - Ideas are spiritual, harmonious and eternal.
+ - Great mischief comes from attempts to steady other people’s altars...
+ - It requires courage to utter truth; for the higher Truth lifts her voice, the louder will error scream, until its inarticulate sound is forever silenced in oblivion.
+ - Mankind thinks either too much or too little of sin.
+ - Sickness, sin, and death, being inharmonious, do not originate in God nor belong to His government.
+ - Literary commercialism is lowering the intellectual standard to accommodate the purse and to meet a frivolous demand for amusement instead of for improvement.
+ - Reason is the most active human faculty.
+
+103 quotes

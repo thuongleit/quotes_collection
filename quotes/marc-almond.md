@@ -1,0 +1,58 @@
+ - I like situations that force me to rethink things.
+ - I made a creativity out of that messiness.
+ - I can imagine moving out to the seaside at some point. I like Brighton, my sister lives there. I’m a seaside boy and whenever I go there, I find myself writing songs about it.
+ - That’s the way I work and one day I won’t have the energy to do it, so I think it’s always good to make the most of your life and living as much as possible.
+ - On my Instagram, I’m always keeping a record of things being pulled down in Soho and shutters being closed. Every city – and London more than anywhere – has got to be a vibrant mix of all different things. We can’t allow it to become a monoculture.
+ - If you were born by the sea, there’s always a magnet that draws you back there.
+ - I thought, I might not look my best, I’ve forgotten half the words to my songs and I’m suffering from post-traumatic stress, but I’ve just got to get out there and do it.
+ - I was a magnet for people who want to take advantage of people like me, who think they’re part of this life but they’re not.
+ - I can’t read music and I’m crap at learning lyrics. Especially since the accident I have memory problems. I can’t remember words, names, places.
+ - Sometimes I ask myself, “Should I be out in a club?” But it’s about realising I don’t need to be always chasing after being who I was 20 or 30 years ago.
+ - I’d always wanted to write a song about a leather jacket and how wearing it makes you feel. I love leather jackets, and I’ve got a big collection of them.
+ - I think the older I get the more creative I get, I don’t have the distractions that I had when I was younger.
+ - Russia can be quite a dangerous place sometimes, but I never think about it.
+ - I’m the most indecisive person in the world. I’ll do three versions of a song, then think, “Is the demo better?”
+ - I’m not one of these people who thinks everything in the past is great and everything modern is terrible. But I do think cities should be a mix of old things and new things.
+ - I mean whatever I do it’s important that I put my stamp on it and keep it in my world, whether I’m doing a dance track or something like the Russian album for example.
+ - A lot of the early songs I wrote were about the experience of going to London and meeting rent boys and transvestites and drag queens. A lot of my early material is that: the wide-eyed adventures of a middle-class boy.
+ - A lot of youth today have become very narrow and conservative in a way, whereas we in the older generation are kind of living it.
+ - The way the business things work in Russia is you have to meet people, you have to go through a certain amount of etiquette and business things are done just simply by a shake of the hand and whether they like you or not.
+ - I have a long history with Soho: even when I was at art college, I came down to Soho to work in the summer.
+ - Maybe I was a bit harsh on some people. But I was harshest on myself, really.
+ - I’m always aware of mortality.
+ - I love this idea of shape-shifting and changing when you put on clothes, and turn into somebody else.
+ - I became the magnet for a lot of scary aggression. Cos it’s scary Up North!
+ - I don’t care much about success or anything like that. I’ve only ever wanted life to be an adventure.
+ - My next record I really just want it to be a collection of great songs, classic songs in a way.
+ - I don’t really have anything against Will Young or Gareth Gates.
+ - When people talk about gender-benders and bracket me with George, I always think I’m not like that. I had more of a rock edge, mixed with the 80s electro.
+ - So often, the singer is the sound of the record. People think they can cover anything, but the whole voice is the thing that’s unrepeatable.
+ - We just kind saw the images and knew the cliches, so to have the opportunity to go there and learn something about Russian music and about Russian people and to see things apart from being a tourist.
+ - I’m always more interested in trying things that will push me, and I don’t care if I fall flat on my face doing it.
+ - I think there’s always been singers like that and i’ve done my fair share of cheese as well.
+ - I was very much a mess, as a person. I’d come from a very turbulent teenage life, with parents who had broken up in a very bad way, and a lot of illness at school.
+ - It’s a shame in a way that people come and go with one album.
+ - I liked the idea of writing a song saying I’m happy with who I am, and I don’t mind if people think I’m some old git.
+ - I thought, I’m in my late 50s now, am I ever gonna get the chance to do another album again?
+ - People come from all over the world to see this little place they’ve seen in movies and read about in history books: Soho.
+ - I’ve always been the sort of person who immerses myself in things, and eventually you become part of that life.
+ - Sometimes, with autobiographies, it turns into a bit of score-settling. And looking back, I don’t feel the way I did then, and you kind of grow up and let it go behind you.
+ - These days i tend to use one project I do as a kind of offshoot to the next.
+ - I’ve got so much I want to do, and not a lot of time to do it in. People say to me, “You really shouldn’t do so many records”, because it actually harms your career.
+ - I think in the past I think I probably was a little too diverse, probably went from one spectrum to the complete opposite and confusing people.
+ - As soon as one project is finished I like to go straight on to something else.
+ - Albums, with me, have never had an easy birth. Especially when all the songs are self-written songs.
+ - The weird thing was that Soft Cell was supposed to have come and gone before I started the album.
+ - As long as ugly people are not on TV, you should only ever have interesting people on TV.
+ - Russians have a new freedom, but as long as they don’t express that freedom on a public platform.
+ - Frank Sinatra said this great thing, that singing isn’t about singing in tune, or great technical singing. It’s about making people believe in the story you’re telling.
+ - I’m often prone to self-doubt about everything I do.
+ - Soho has got to be at its centre. It’s got such a history for rock, pop, poetry, jazz, writers, all those things, and I think it should be valued as such, and protected as this centre for bohemia.
+ - Knowing what I knew about Russia, as much as I loved the music and was fascinated by the songs and the whole idea of it, I knew it would be a very lengthy and frustrating process.
+ - I thinks it really interesting how they throw the world music samples in there. I often wonder what it would be like to do something like that, but use my lyrics and my kind of style.
+ - People always go on about sleaze, but I think it’s only a small part of what I write about.
+ - For me it always comes down to what is a good song and I’m very old fashioned in the way that I like to make songs that have something classic about them whether you can play them with an orchestra or an electro synthesizer or an acoustic guitar.
+ - That’s what I like to do, I like to make songs.
+ - You can’t keep pursuing pop success, and chasing the past.
+
+56 quotes

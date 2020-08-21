@@ -1,0 +1,98 @@
+ - Be yourself, know your power, have confidence in what you have to contribute.
+ - I always say the beauty is in the mix.
+ - Unemployment benefits are creating jobs faster than practically any other program.
+ - Each generation is responsible to make the future of the next.
+ - Women are leaders everywhere you look – from the CEO who runs a Fortune 500 company to the housewife who raises her children and heads her household. Our country was built by strong women and we will continue to break down walls and defy stereotypes.
+ - Having five children in six years is the best training in the world for Speaker of the House.
+ - I must have good genes from my parents because I feel no slowdown of energy, enthusiasm or even memory.
+ - Go to find common ground; where you can’t, you stand your ground.
+ - You cannot cut your way to deficit reduction.
+ - The impact of climate change is a tremendous risk to the security and well-being of our countries.
+ - Every month that we do not have an economic recovery package 500 million Americans lose their jobs.
+ - Nothing brings more money to the Treasury of the United States, than investment in education of the American people.
+ - As we move forward to debate our economic and fiscal challenges in the weeks and months ahead, one thing is clear: Our economic agenda, choices and decisions, will be viewed through the perspective and the eyes of our nation’s women and their needs and those of their families.
+ - If I had my way, sporting guns would be strictly regulated, the rest would be confiscated.
+ - I believe in natural gas as a clean, cheap alternative to fossil fuels.
+ - I’m Nancy Pelosi, but my grandchildren call me Mimi. For me, politics is an extension of my role as a mother and a grandmother. For the Democratic women of the House, our work is not about the next election, but rather the next generation.
+ - You know, God bless him, bless his heart, president of the United States, a total failure, losing all credibility with the American people on the economy, on the war, on energy, you name the subject.
+ - Think of an economy where people could be an artist or a photographer or a writer without worrying about keeping their day job in order to have health insurance.
+ - As many of you know, I came from San Francisco. We don’t have a lot of farms there. Well, we do have one – it’s a mushroom farm, so you know what that means.
+ - Social Security has never failed to pay promised benefits, and Democrats will fight to make sure that Republicans do not turn a guaranteed benefit into a guaranteed gamble.
+ - The president of the United States, the most famous person in the world, maybe in the whole galaxy – in a long time – he had to spend like a billion dollars to set the record straight.
+ - There’s plenty of opportunity for everyone, so there’s no reason to worry about somebody else’s success, either saying you couldn’t do this so she’s better than you, or she’s doing it so you can’t. No, she’s doing it so you can.
+ - The sequestration is a bad idea, all around. It is something that is out of the question. If you have spending cuts, education of our children, other investments, on the National Institutes of Health, where you are hindering growth, you’re no going to reduce the deficit.
+ - Hamas is a humanitarian organization.
+ - The only time I’m the only woman in the room is when I go to the leadership meeting.
+ - To have diversity of opinion in the debate strengthens the outcome and you get a better result.
+ - The more women we elect to public office, the more wholesome the whole process will be, whether it’s government, politics, whatever.
+ - Republicans support opening the floodgates to special interest money and suppressing the right to vote. It’s just plain wrong.
+ - Being the first woman speaker and breaking the marble ceiling is pretty important. Now it’s time to move on.
+ - Even if Osama bin Laden is caught tomorrow, it is five years too late. To capture him now I don’t think makes us any safer.
+ - Democratic priorities remain clear: to provide a tax cut for working families, to promote policies that produce jobs and economic growth, and to assist millions of our fellow Americans who have lost their jobs through no fault of their own.
+ - When the Kyoto Protocol enters into the force tomorrow, the world will take a significant and long-awaited first step towards stemming global warming. Instead of stepping forward as the world leader on climate change, however, the Bush Administration is clinging to the role of world obstructionist.
+ - The president led us into the Iraq war on the basis of unproven assertions without evidence; he embraced a radical doctrine of pre-emptive war unprecedented in our history; and he failed to build a true international coalition.
+ - Everybody will have lower rates, better quality, and better access.
+ - Anybody who’s ever dealt with me knows not to mess with me.
+ - Older people are not going to evaporate from the face of the Earth for two years. They’re going to have medical need and they’re going to have to be attended to. And the earlier intervention for it, the less the cost will be and the better the quality of life.
+ - I think about my parents all the time, especially on Sunday when I’m at Mass. My mother always said, ‘We do not pray to win elections. We pray for people’s health, we pray that God’s will be done, we pray that we do our best. But we do not pray to win elections.’
+ - America will be far safer if we reduce the chances of a terrorist attack in one of our cities than if we diminish the civil liberties of our own people.
+ - I have deep emotions about the American people. If I were to cry for anything, I would cry for them and the policies that they’re about to face.
+ - In our recovery package we put new standards of accountability and transparency, which we hope will now apply.
+ - Let’s just do what is right for the American people. And those of us who are involved in politics and government know that our responsibility is to the American people, that we have a responsibility to find our common ground, to seek it and to find it.
+ - Saddam Hussein certainly has chemical and biological weapons. There’s no question about that.
+ - America must be a light to the world, not just a missile.
+ - It is clear that the American people are weary of war. However, Assad gassing his own people is an issue of our national security, regional stability and global security.
+ - We need major investments for rebuilding the infrastructure of America in a very forward-looking way that reduces our dependence on foreign oil. It is a commitment to innovation, to science, to keep America number one and competitive and grow our manufacturing base.
+ - Ninety-eight percent of women in childbearing age who are Catholic use contraception. Ok, so in practice the church has not enforced this and now they want the federal government and private insurance to enforce it. It just isn’t consistent to me.
+ - But we have to pass the bill so you can find out what is in it, away from the fog of the controversy.
+ - We will energize America by achieving energy independence.
+ - Freedom is secured every day by our men and women in uniform. We must build a future worthy of their sacrifice.
+ - I say to my colleagues never confine your best work, your hopes, your dreams, the aspiration of the American people to what will be signed by George W. Bush because that is too limiting a factor.
+ - For 25 years, it has been my privilege to represent the city of San Francisco and the great state of California; to work to strengthen our vibrant middle class; to secure opportunity and equality.
+ - Democrats believe in reigniting the American dream by removing barriers to success and building ladders of opportunity for all, so everyone can succeed.
+ - My statements are just a statement of fact.
+ - The proposed Bush regulations put politics above the health care needs of Americans.
+ - It isn’t as much you a spending problem as a priorities, and that is what the budget is, setting priorities. It’s about timing. And it’s about timing as to when make cuts, as well.
+ - With Americans worried about losing their jobs, their savings, their homes and their chance at the American Dream, the New Direction Congress will work in a bipartisan way to lift our economy and help America’s middle class.
+ - I would do almost anything Tina Fey asks me to do.
+ - I will not be making appointments to a committee that is not bipartisan.
+ - If I cry, it’s about the personal loss of a friend or something like that. But when it comes to politics – no, I don’t cry.
+ - Saddam Hussein has been engaged in the development of weapons of mass destruction technology which is a threat to countries in the region and he has made a mockery of the weapons inspection process.
+ - I come back to the science that is in it to reduce our dependence on foreign oil and climate change. It’s about science, science, science and science, innovation, as we rebuild America, create jobs, invest in our people and turn this economy around.
+ - Three year sof unconditional MFN have not lead to any subtantial improvement in human rights, trade and nuclear proliferation practice of the Chinese government. In addition to the trade barriers, China has marred our trade relationship wit prison labor or export and other unfair trade practices.
+ - What we’re discussing privately and publicly, is a budget which is a blueprint for the future which creates jobs, which educates our children, which provides healthcare for all Americans, which takes our deficit down, which gives a tax cut for 95% of the American people.
+ - We in Congress stand by Israel. In Congress, we speak with one voice on the subject of Israel.
+ - And, cuts in education, scientific research and the rest are harmful, and they are what are affected by the sequestration.
+ - No money changed hands, of course.
+ - Our view of the law is that it – if somebody is here without sufficient documentation, that is not reason for deportation.
+ - Jobs mean freedom for workers to support their families.
+ - Bipartisanship is nice, but it cannot be a substitute for action, not having it cannot prevent us from going forward.
+ - With President Obama, we will move America forward.
+ - I would never think of crying about any loss of an office, because that’s always a possibility, and if you’re professional, then you deal with it professionally.
+ - The fact is that a lot of the spending increases came during the Bush administration. Two unpaid for wars we got ourselves engaged in. A prescription drug plan that added enormous amounts to our spending, and the tax cuts at the high end that did not create jobs and create revenue coming.
+ - Civilization as we know it today would be in jeopardy if the Republicans win the Senate.
+ - Jobs are central to the American dream – and President Obama has focused on jobs from day one.
+ - Pass the bill to find out what’s in it.
+ - But I would say, you know, if you’re getting married – why are you getting married? Why would you get married? Why would anybody get married?
+ - When I was growing up in the 50s it wasn’t quite the same. Fathers were more protective and now they see all of the possibilities for their daughters.
+ - What I do care about is that it’s an obstacle to other women entering politics, because they’ll say, “Why would I do that? I have plenty of other options.” And women with plenty of options are just the women that we want to be in politics and government.
+ - By making college more affordable for all and more accessible for minority students, the first new higher education authorizing legislation in a decade will help strengthen our nation and America’s middle class, and spur a new age of innovation and ingenuity in our country.
+ - If you make – not have – $1 million a year, should you not participate in the sense of community of our country? I’m willing to put that on the table.
+ - This president goes into office with more expectations than any president I can ever remember in my lifetime.-2008.
+ - On GOP Tax Cuts: They’ll take food out of the mouths of children to give tax cuts to the wealthiest.
+ - We’re sad about some of the losses of members of great seniority and distinction in the Congress, and some very new members, who will no longer be serving with us.
+ - If women have confidence in themselves, they will have confidence in other women.
+ - Whatever the deal is with other countries, we want a better deal for America’s workers.
+ - On the subject of money and politics and the rest, I have a DARE: Disclose who are these people; Amend the Constitution to overturn Citizens United; Reform: let’s have public financing of campaigns; and Empower.
+ - I have said it before and I will say it again: Impeachment is off the table.
+ - My biggest fight has been between those who wanted to do something incremental and those who wanted to do something comprehensive. We won that fight, and once we kick through this door, there’ll be more legislation to follow.
+ - I Don’t Remember Saying that Everybody in the Country Would Have a Lower Premium.
+ - We haven’t really gotten the credit for what we have done.
+ - In this House, we may belong to different parties, but we serve one country.
+ - Elect us, hold us accountable, and make a judgment and then go from there. But I do tell you that if the Democrats win, and have substantial majorities, the Congress of the United States will be more bipartisan.
+ - Democrats believe we must create jobs, not protect the special interests; build the economy from the middle out, not the top down.
+ - We are not going back to the failed policies of the past. We are fighting for the middle class!
+ - I have absolutely no regret about my vote against this war. The same questions remain. The cost in human lives, the cost to our budget, probably 100 billion. We could have probably brought down that statue for a lot less.
+ - For our daughters and our granddaughters now, the sky is the limit.
+
+96 quotes

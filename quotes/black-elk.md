@@ -1,0 +1,63 @@
+ - Let every step you take upon the earth be as a prayer.
+ - At the center of the universe dwells the Great Spirit. And that center is really everywhere. It is within each of us.
+ - Everywhere is the center of the world. Everything is sacred.
+ - Behold this day. It is yours to make.
+ - Peace will come to the hearts of men when they realize their oneness with the universe, It is every where.
+ - One should pay attention to even the smallest crawling creature for these too may have a valuable lesson to teach us.
+ - May you always walk in Beauty.
+ - There can never be peace between nations until there is first known that true peace which is within the souls of men.
+ - All things are our relatives; what we do to everything, we do to ourselves. All is really One.
+ - It is not enough to have a vision. In order to have its power, you must enact your vision on earth for all to see. Only then do you have the power.
+ - And I saw that the sacred hoop of my people as one of many hoops that made one circle.
+ - When you pray with this pipe, you pray for and with everything.
+ - Everything the Power of the World does is done in a circle.
+ - The sky is round, and I have heard that the earth is round like a ball, and so are all the stars. The wind, in its greatest power, whirls. Birds make their nests in circles, for theirs is the same religion as ours...
+ - Grandfather, Great Spirit, once more behold me on earth and lean to hear my feeble voice.
+ - Sometimes dreams are wiser than waking.
+ - Perhaps you have noticed that even in the very lightest breeze you can hear the voice of the cottonwood tree; this we understand is its prayer to the Great Spirit, for not only men, but all things and all beings pray to Him continually in differing ways.
+ - The song and the drumming were like this: Behold, a sacred voice is calling you; All over the sky a sacred voice is calling.
+ - It may be that some little root of the sacred tree still lives. Nourish it then, that it may leaf and bloom and fill with singing birds.
+ - Birds make their nest in circles, for theirs is the same religion as ours.
+ - Hear me, four quarters of the world-a relative I am! Give me the strength to walk the soft earth, a relative to all that is! Give me the eyes to see and the strength to understand, that I may be like you. With your power only can I face the winds.
+ - Know the Power that is Peace.
+ - All over the sky a sacred voice is calling your name.
+ - The center of the universe is everywhere.
+ - Like the grasses showing tender faces to each other, thus should we do, for this was the wish of the Grandfathers of the World.
+ - Even the seasons form a great circle in their changing, and always come back again to where they were. The life of a person is a circle from childhood to childhood, and so it is in everything where power moves.
+ - It is hard to follow one great vision in this world of darkness and of many changing shadows. Among those men get lost.
+ - The Great Spirit is everywhere; he hears whatever is in our minds and our hearts, and it is not necessary to speak to Him in a loud voice.
+ - Everything an Indian does is in a circle, and that is because the power of the world always works in circles.
+ - Give me strength to walk the soft earth, a relative to all that is.
+ - It’s in the darkness of men’s eyes that they get lost.
+ - Also, as I lay there thinking of my vision, I could see it all again and feel the meaning with a part of me like a strange power glowing in my body; but when the part of me that talks would try to make words for the meaning, it would be like fog and get away from me.
+ - They told me I had been sick twelve days, lying like dead all the while, and that Whirlwind Chaser, who was Standing Bear’s uncle and a medicine man, had brought me back to life.
+ - To use the power of the bison, I had to perform that part of my vision for the people to see.
+ - Everything tries to be round.
+ - You see, I had been riding with the storm clouds, and had come to earth as rain, and it was drought that I had killed with the power that the Six Grandfathers gave me.
+ - And when I breathed, my breath was lightning.
+ - And while I stood there I saw more than I can tell and I understood more than I saw; for I was seeing in a sacred manner the shapes of all things in the spirit, and the shape of all shapes as they must live together like one being.
+ - And as he spoke of understanding, I looked up and saw the rainbow leap with flames of many colors over me.
+ - Grown men can learn from very little children for the hearts of little children are pure. Therefore, the Great Spirit may show to them many things which older people miss.
+ - The power of a thing or an act is in the meaning and the understanding.
+ - Out of the Indian approach to life there came a great freedom, an intense and absorbing respect for life, enriching faith in a Supreme Power, and principles of truth, honesty, generosity, equity, and brotherhood as a guide to mundane relations.
+ - I think I have told you, but if I have not, you must have understood, that a man who has a vision is not able to use the power of it until after he has performed the vision on earth for the people to see.
+ - And I say the sacred hoop of my people was one of the many hoops that made one circle, wide as daylight and as starlight, and in the center grew one mighty flowering tree to shelter all the children of one mother and one father.
+ - Now suddenly there was nothing but a world of cloud, and we three were there alone in the middle of a great white plain with snowy hills and mountains staring at us; and it was very still; but there were whispers.
+ - Any man who is attached to things of this world is one who lives in ignorance and is being consumed by the snakes of his own passions.
+ - If I thought that I was doing it myself, the hole would close up and no power could come through. Then everything I could do would be foolish.
+ - You remember that my great vision came to me when I was only nine years old, and you have seen that I was not much good for anything until after I had performed the horse dance near the mouth of the Tongue River during my eighteenth summer.
+ - My friend, I am going to tell you the story of my life, as you wish; and if it were only the story of my life I think I would not tell it; for what is one man that he should make much of his winters, even when they bend him like a heavy snow?
+ - I had a vision with which I might have saved my people, but I had not the strength to do it.
+ - After the horse dance was over, it seemed that I was above the ground and did not touch it when I walked.
+ - The boys of my people began very young to learn the ways of men, and no one taught us; we just learned by doing what we saw, and we were warriors at a time when boys now are like girls.
+ - And if the great fear had not come upon me, as it did, and forced me to do my duty, I might have been less good to the people than some man who had never dreamed at all, even with the memory of so great a vision in me.
+ - I looked about me once again, and suddenly the dancing horses without number changed into animals of every kind and into all the fowls that are, and these fled back to the four quarters of the world from whence the horses came, and vanished.
+ - Whether it happened so or not I do not know; but if you think about it you can see that it is true.
+ - I looked below and saw my people there, and all were well and happy except one, and he was lying like the dead – and that one was myself.
+ - But I think I have done right to save the vision in this way, even though I may die sooner because I did it; for I know the meaning of the vision is wise and beautiful and good; and you can see that I am only a pitiful old man after all.
+ - When I got back to my father and mother and was sitting up there in our tepee, my face was still all puffed and my legs and arms were badly swollen; but I felt good all over and wanted to get right up and run around.
+ - So I took the bright red stick and at the center of the nation’s hoop I thrust it in the earth.
+ - I was four years old then, and I think it must have been the next summer that I first heard the voices.
+ - I cured with the power that came through me.
+
+61 quotes

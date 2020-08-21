@@ -1,0 +1,57 @@
+ - Deaf people can do anything, except hear.
+ - The handicap of deafness is not in the ear; it is in the mind.
+ - I hope I inspire people who hear. Hearing people have the ability to remove barriers that prevent deaf people from achieving their dreams.
+ - It was ability that mattered, not disability, which is a word I’m not crazy about using.
+ - Silence is the last thing the world will ever hear from me.
+ - Living modestly in a suburban neighborhood while trying to support four children through private school is not extravagant or living large.
+ - If I were offered a cochlear implant today, I would prefer not to have one. But that’s not a statement about hearing aids or cochlear implants. It’s about who you are.
+ - I live my life like everyone else; everyone has their own obstacles. Mine is deafness.
+ - I’m the only one in my family who is deaf, and there are still conversations that go around me that I miss out on. And I ask what’s going on, and I have to ask to be included. But I’m not going to be sad about it. I don’t live in sad isolation. It’s just a situation I’m used to.
+ - I’ve been around since I was 19, I won the Oscar when I was 21, I’ve had a couple of TV series. I’ve continued to work despite the predictions of some naysayers.
+ - Watch me when people say deaf and dumb, or deaf mute, and I give them a look like you might get if you called Denzel Washington the wrong name.
+ - The hearing aids are very helpful for speech reading. Without the hearing aids, my voice becomes very loud, and I cannot control the quality of my voice.
+ - Every one of us is different in some way, but for those of us who are more different, we have to put more effort into convincing the less different that we can do the same thing they can, just differently.
+ - I’m not broke. Like everybody else, I owe money.
+ - How many deaf people do you know in real life? Unless they live in a cave, or are 14, which seems to be true for most people in this business, what could I possibly tell them that they don’t already know?
+ - You can do anything if you set your mind to it. Look out for kids, help them dream and be inspired. We teach calculus in schools, but I believe the most important formula is courage plus dreams equals success.
+ - All I can say is I’ve been reading the lips of bleeped-out words, angry baseball players, and stoned-out rock stars on awards shows for years and it’s been hilarious. Everyone is always asking me what the bleeped-out parts are saying.
+ - Why are people so interested in other people’s relationships? It’s like stealing.
+ - I’m not really deaf; I just faked it to win the Oscar KIDDING.
+ - There is nothing better than being a parent. It is the most challenging job one could ever ask for. I love being a mom and I love being a friend to my children as well.
+ - At some point we have to stop and say, There’s Marlee, not, There’s the deaf actress.
+ - There are so many people, deaf or otherwise abled, who are so talented but overlooked or not given a chance to even get their foot in the door.
+ - I find the mantle of, she works hard for the money, or, she’s overcome so many obstacles a bit overused.
+ - The only thing I can’t do is hear. I can drive, I have a life with four kids, I work on TV, I do movies, so the deafness question, is it that they want to know because, what? Not sure.
+ - I was the youngest and only girl in a family of two older brothers.
+ - I have a great husband, great parents and in-laws, and I have help with a nanny. It’s not easy, but there are others who do it every day and don’t have a high-profile job as I do.
+ - During a visit to California, when a friend of my grandmother’s told my parents that I must be deaf because I was not responding to sounds, my father was absolutely convinced that I was simply being stubborn.
+ - I’m different, and my manner invites questions. I’m never afraid to answer.
+ - The best feeling in the world is when your child comes up to you and lays their head in your lap, for no other reason but just because. I can’t wait to have more.
+ - Im in my mid-30s, Ive won an Oscar, I have four children. You figure out if my deafness has adversely affected my life.
+ - Differences are scarier now. The dollar isn’t so guaranteed if you don’t follow what they see as the norm. But I don’t moan about it. I just keep working.
+ - Everybody’s got a job to do, and I do mine as best I can.
+ - I am writing my second novel for children for Simon and Schuster.
+ - I’ve always wanted to write a book relating my experiences growing up as a deaf child in Chicago. Contrary to what people might think, it wasn’t all about hearing aids and speech classes or frustrations.
+ - When I was young I knew I was deaf. I couldn’t accept it.
+ - I was 21 years and 218 days old when I received the Academy Award for Best Actress. I had just stepped into an imaginary world that I’d seen at a distance for years.
+ - When I was 13, I told Henry Winkler I wanted to act. He said, Do it and don’t let anyone stand in your way. His validation just made it all the more true. I haven’t stopped thanking him since.
+ - Hollywood embraced me in the late ’80s because there was a good project I was in and it was different. Nowadays, it’s about corporate mentality, box office, youth.
+ - It was my father who instilled the ‘never say no’ attitude I carry around with me today, and who instilled in me a sense of wonder, always taking us on adventures in the car, never telling us the destination.
+ - I can hear you and I can watch your mouth move, and then I put together the sounds and the visual image, and I can understand the words as I integrate the two signals.
+ - When I learned to sign and speak at the same time, the whole world opened up to me. That’s the beauty of encouraging kids who are deaf to use whatever it takes to communicate.
+ - I have always resisted putting limitations on myself, both professionally and personally.
+ - I have made the choices that work best for me. I know I cannot please everyone, and that’s fine.
+ - Maybe my way of communicating through sign made me more in tune with my body and how it moved. Who knows? I just know when I saw a stage for the first time, I wanted to be on it.
+ - I got a good handshake. A lot of executives tell me I have the best handshake in Hollywood.
+ - When it comes down to it, it’s about who you know, and who’s a fan. It’s about whether you’re the right age, whether you’re hot or not, whether the studio is into you or not.
+ - What parent has it easy? I just never make the difficulty of it an obstacle. I just do it.
+ - We had a dog, Apples. He was 13 years old, toothless, blind and had the worst breath this side of Jabba the Hut. But he was the sweetest dog, and I cried and cried when he died.
+ - It seems we’re always in transition and that it’s more about trends than it is about what’s meaningful.
+ - I listen to Billy Joel. He is fabulous. I saw him with Elton John when they toured together, it was so great.
+ - When you’re up for an award at the Oscars, try as you might, it’s hard to concentrate on the show.
+ - At the end of the day, it’s about the best interests of the children.
+ - I guess not being able to hear just made me adventurous and daring. And in most cases, that didn’t make my parents very happy with me.
+ - I learned to speak first, and then to sign. I have never really known what it was like to hear, so I cant compare hearing aids to normal hearing.
+ - I’m gonna be unemployed when people read this. Ha.
+
+55 quotes

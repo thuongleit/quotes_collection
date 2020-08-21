@@ -1,0 +1,140 @@
+ - I love being a woman and I love being feminine.
+ - I don’t think you can create anything interesting from a comfort zone. You have to work from a place of fear and failure.
+ - I don’t believe in charmed lives. I think that tragedy is part of the lesson you learn to lift yourself up, to pick yourself up and to move on.
+ - I’m not a fan of justifying bad behavior or justifying why people are the way they are. I think that’s a cop out. I don’t have a lot of empathy for that.
+ - You choose the life you want for yourself, and then you just shut up and go about it. That’s how I’ve lived my life.
+ - When a person lives a very happy life they become beautiful.
+ - Beauty is more than skin deep.
+ - I do this because I’m an observer of people. That’s why I want to be an actor. I’m fascinated by human beings and the circumstances they find themselves in.
+ - We don’t live the lives of Eskimos. We don’t need to kill animals for fashion.
+ - I think there is a great quote – and I feel horrible that I don’t know who said this – but it was a great quote, it says, “The only difference between all of us are the ones who are loved and the ones who are not.”
+ - I’m a tough girl, and I can go without a shower bot a week and be fine with that. But I will not sleep on dirty sheets.
+ - I think good filmmaking is when you really hold the mirror up truthfully, and you don’t angle it and you don’t hide things with smoke and mirrors.
+ - Well, life is dark. We live in a very dark world. When they call them “dark films” it annoys me, because they’re very real stories. They’re stories I have seen or experienced or witnessed, and coming from that place, that is the hope of humanity.
+ - I like being a cog in a wheel. I like being a small aspect of a much bigger thing, and I think my interest in that takes the pressure of myself.
+ - I havent lost my culture, just my accent.
+ - We all understand situations where it’s swim or drown. Sometimes we surprise ourselves when we start swimming and see how well we can do it.
+ - You know, I don’t think any mother aims to be a single mom. I didn’t wish for that, but it happened.
+ - I hate actors who come and quote Nietzsche.
+ - Oh my God I am so cool.
+ - I have OCD, which is not fun. I have to be incredibly tidy and organized or it messes with my mind and switches off on me.
+ - I don’t really talk about my personal life and I don’t really talk about my relationships. I’m not a big partier. I like the simplicity of my life, and I’ve chosen the kind of life I really want to live. I don’t think my life is boring at all.
+ - Looks alone won’t get you that far. It may get you in the door, but there’s always somebody younger, somebody prettier. You have to rely on something else.
+ - I think of myself as a highly sexual creature.
+ - I’m happy for people who want to get married but it’s not my thing. I’m extremely happy in my relationship and I would love to have kids.
+ - I am human, and, yeah, I have very bad days.
+ - I think it’s interesting that women, by nature, are way more conflicted than men.
+ - You have to discipline yourself and not carry the character with you. You need to switch it off and take time to re-energize.
+ - In life we want to challenge ourselves.
+ - Yet there’s a hunger in me still. I’m like only beginning. I feel like I still have so much to learn.
+ - Marriage equality is about more than just marriage. It’s about something greater. It’s about acceptance.
+ - I’m 50-50 on glamour stuff. I’d rather put on a pair of jeans and get on my Harley and act like a guy.
+ - My thoughts and love go out to the Mandela family. Rest in peace Madiba. You will be missed, but your impact on this world will live forever.
+ - Blade Runner was an incredibly influential movie, in terms of the way that it envisioned what the future was going to look like.
+ - I have a problem with cabinets being messy and people just shoving things in and closing the door. I will lie in bed and not be able to sleep because I’ll say to myself: ‘I think I saw something in that cabinet that just shouldn’t be there.’
+ - I’ve always said that I worry about being with a man who doesn’t flirt.
+ - I grew up in South Africa and I would look at maps and we were at the bottom of the world. There was this whole thing up there. I was always reading encyclopedias about the world. So travel was something I was always attracted to.
+ - So far I’m not surprised by anything about being a mom. It’s all pretty great – but that’s what I expected.
+ - I hate table reads. I hate anything where you have to say the words out loud.
+ - I met a woman in Albuquerque and she came and hung out with me in the trailer. It was really just more to kind of really understand my biggest concern was always the interrogation scenes. Remember, that’s why I really wanted to meet somebody because you see those scenes on TV so much.
+ - I think today women are very scared to celebrate themselves, because then they just get labeled.
+ - As you get older, you get wrinkles and your boobs sag. But you get wisdom, too. So it’s not all bad!
+ - I’ve always been very aware of balance and, even before I had a child, my life always takes priority to my work.
+ - I didn’t grow up with a mother telling me what was under my clothes was bad or evil.
+ - At least I know that one film-maker in my career has had the initiative to come to me and thought of me as being capable of doing interesting and complicated work, and so I have a new-found belief that other film-makers will see me in a different way, the way that Patty did.
+ - It’s in the eyes, mostly. Don’t listen just to the other actor’s lines. Look at – and listen to – their eyes. That’s where the emotion comes through.
+ - I think more than anything, people just want to be understood.
+ - I don’t try to kind of go for the overly sympathetic. I don’t really like sympathy; I don’t like it for myself. Sometimes sympathy you feel like, you’re kind of trying to victimize someone.
+ - Our mechanics are engineered so that we can survive quite a lot, but I think our need to be loved is so great that it’s the thing that damages us the most.
+ - If they ever do my life story, whoever plays me needs lots of hair color and high heels.
+ - I have been working a lot, and I like it. And you know, it’s hard for me not to. I guess I’ve been working a lot because I get to play with brilliant people.
+ - I think a sense of humor is a very personal thing and I don’t know if I am talented enough to do romantic comedies.
+ - From the moment this baby came into our home, those two dogs have never been more in love. It’s the most beautiful thing I’ve ever witnessed. People keep saying, ‘Oh, you’re a single mom.’ I’m like, ‘Actually, I’m not. I’ve got two boys helping.’
+ - You get yourself out there and you work hard and you hope that word of mouth kind of carries and one day somebody will actually step up to the plate and say “I believe that you can do this.”
+ - I learned everything about love, watching ‘Splash.’ That’s why I’m still single, so thanks Tom Hanks and Daryl Hannah for that.
+ - Get on my Harley and act like a guy.
+ - I think, like many women, I was judgmental toward women as they aged...
+ - I think there is a part of me that’s always a little bit like, “Why would I torture myself? Just in case you forgot how big the shoes are you’re walking in, take a look again”
+ - I’m a true believer that everything happens the way it should.
+ - I’m interested in human behavior, and what happened in my family life is definitely not a unique story. There are aspects of that I’m sure you can see through the work. But I’m just looking for something that touches me.
+ - I don’t want to be put on a pedestal. I don’t want to be anything other than what we are. I want to just be a woman.
+ - I’ve always been comfortable with my sexuality. I’m blessed to have been raised by a woman who never made me feel ashamed about what’s underneath my clothes. That’s a part of me and I don’t run away from it.
+ - They really stay just characters to me. I look at them, and I don’t see always the same person up there. And hopefully, people will see that too. Because it’s very easy to bore people, and that’s a killer. So hopefully that won’t happen.
+ - There’s nothing I despise more than people trying to be something that they’re not.
+ - My job as an actor, and the part of my job that I love is the transforming-and-becoming aspect of it, and so it doesn’t become about me anymore.
+ - I think we’re at a time where people just want to join together and cause change. People don’t want to live like this any more.
+ - As actors, we were fighting that tooth and nail because of fear, because language is a crutch and dialogue is a crutch, and it’s so easy to just have a great writer write you a line.
+ - I’ve never been the kind of actress that just likes to show up and say my lines. I’m fascinated by what the crew does.
+ - If I knew that 3D was going to be such a big deal, I would have gotten that boob job 10 years ago.
+ - I’m an Academy Award winner. I’m serious.
+ - I think substitution is a huge part of acting, but I don’t personalise my work that much.
+ - Countries and states which have capital punishment have a much higher rate of murder and crime than countries that do not, so that makes sense to me, and the moral question – I struggle with it morally.
+ - I love that old glamour look. I think it’s because I grew up on it.
+ - Something I learned very early on in my career is that there are a lot of things that you do not have any power over.
+ - I had these fangs because I had jaundice when I was a kid and I was put on so many antibiotics that my teeth rotted. They had to cut them out. So I never had milk teeth. That was tough, you know, being in school having photos taken while I was pretending I had teeth. It was hideous.
+ - I’d love to get pajamas. Good, nice and warm flannel ones.
+ - The human condition is all about us pretending to be something sometimes that we’re not. When you get into the core of people kind of stripping all of that away, that’s for me, as an actor, always the most fun stuff to do.
+ - So how critics will perceive your film or your work, or whether your movie is going to make $100 million at the box office, or whether you are going to be winning any awards – well, you have no control over that.
+ - I think actors who know their job know that’s how you do it. You don’t show up and make people miserable. That poor grip who’s standing there, he just wants to feed his family. He doesn’t need to hear about your psychosis on life and love and death.
+ - I want to be in a good movie, and so the narrative is way more important.
+ - I guess because I pay so much attention to the physical part of the character, I don’t look upon it as like Charlize Theron up there. I don’t think of them as like Charlize Theron films.
+ - I’m always open to a relationship, but I’m not putting those feelers out there now.
+ - The tone is so important to a film, and that tone can really make something fall or succeed.
+ - When I’m working I don’t have room to think about myself and my own issues. It’s really freeing. There is no room for me, which is really nice.
+ - I’ve tried most of my career to transform myself towards characters.
+ - You’re either a really good hooker or a really good mom. That kind of conflicted nature is very much a part of being a woman.
+ - I mean, I’m new but I’ve always been very interested in film making process and I’ve been lucky enough to work with film makers in my past that have been very encouraging to let me hang around. I get so emotionally vested – that the producer part of me was natural.
+ - I feel 100% sure that I have the career that I have today because of independent filmmaking.
+ - I don’t really watch a lot of television, and I would watch mindless, mindless television.
+ - In the story, I think as an actor you’re just trying to fit into the world.
+ - I think some of the most creative work is coming out of television. I felt it’s very immediate and I like that. It’s really fast. It’s got a pace to it, and that’s why I think everybody in my field wants to just do good material.
+ - I tend to, if I decide to do a job, want to be able to trust my director.
+ - When I find something that I really like and I can get it off, then I put my time and energy into that because it is a lot of work.
+ - So I did that for a long time in my career, and I waited for parts to play myself just physically down a little bit. But I do feel like I’m at a place in my career now where I don’t necessarily fret about that too much anymore.
+ - And I do think that earlier in my career, I did make a very conscious decision to make sure that I was doing work that wasn’t necessarily given to me, and that people didn’t necessarily think that I would be able to do.
+ - I mean I tried to transform myself through characters throughout my career.
+ - I only worked on Men of Honor for three weeks, but I walked away with so much. Because Bob is the kind of actor who gives you the opportunity to really go there. And we really had to go there. I mean, we were both playing drunks.
+ - I’d be unbelievably wrong to say there isn’t such a thing as the right place, right time-luck.
+ - Hey, I’m a girl, and we like to play dress-up.
+ - I’ve never been driven by box office.
+ - I think since I did Monster I really started understanding how hard it is for first time directors. I think there’s a lot of great stories out there, but it’s high risk.
+ - And doing a film in that period, and having to really celebrate what they wore back then, how they sat and how they spoke. You know, what the etiquette was back then for a lady. All of those things are like putting on a wig and transforming yourself, which I love.
+ - I’m very attracted to characters who don’t necessarily make it easy to be loved.
+ - The thing I noticed is that a lot of times great material can get ruined if its not in the right hands.
+ - You have to be able to feel like you can play way outside of the box. If you’re with a great filmmaker and someone you can trust, that’s encouraged, and Seth was that kind of filmmaker and co-star.
+ - And I was victim to that very early in my career, where I would go into auditions, and I’d be wearing a big T shirt, a big baggy T shirt and loose jeans. You know, to try and show people that there was more to me than just that.
+ - I don’t like rehearsal.
+ - I think I have a real interest in filmmaking, and it’s nice when I can go and do that sometimes. Then it’s also great to not do it and not have the responsibility .
+ - When they watch a movie and they know that you’re in a relationship, you just kind of watch that constantly.
+ - Actors – we’re selfish, but we can’t think about the work in that kind of selfish manner. I think that you have to step away from yourself, if you’re going to do it. Otherwise don’t do it; otherwise why do it?
+ - You are only as great as the opportunities that are given to you.
+ - Fran McDormand was great because she said, ‘What I used to do when I worked with him was I would just walk on the set and I would give him a big hug. Somehow his guard would just drop.’ So I took that advice.
+ - I grew up on Bette Davis movies, and Marlene Dietrich, Marilyn Monroe.
+ - People always say to me, “What’s wrong with Hollywood? They don’t want to make female-driven movies.” And that’s not where the problem lies. It lies with us, in society. When we make these movies, nobody goes to see them.
+ - You can live vicariously through the characters you play.
+ - At the end, the realization is that she had to get to a place in her life where she could drop her guard and make peace with the fact that whether she had a small amount of time, that she had to kind of live it completely through, instead of living by the rules.
+ - I just want to make good movies. Honestly, the only difference for me with this stuff is that there is more people on the set.
+ - I am going home and I think in a week or so, hopefully, I’ll be done with all the press stuff, and then I can kind of into my cave and start preparing for “Mad Max.”
+ - People are so involved with immediate care, but at the same time there needs to be investment in educating people as adolescents when they’re still HIV negative.
+ - You’re very in tune with, because actors are all different, and it’s very tricky when you throw us all together because we all work differently. You want to get the best work out of every individual actor.
+ - My mom has made it possible for me to be who I am. Our family is everything. Her greatest skill was encouraging me to find my own person and own independence.
+ - Modeling was never a passion of mine.
+ - I do not think that condemning people who murder and killing them necessarily sends out the right message.
+ - I think writing a book with film in mind is a way to write a really bad books. You can usually tell those books that are packaged to become films.
+ - I treat my relationships like marriages. The ceremony isn’t that important to me.
+ - I like what I do, and I’m very fortunate now to be in a very nice place. Which is that I don’t have to work anymore. So the work that I do now is purely because I really want to.
+ - Boys don’t really like big nerdy glasses. Not so much.
+ - I look at my career and how I’m doing it now. I feel like there is something authentic in that process that I still try not to over manipulate. When I feel something, I try to listen to that.
+ - I have very talented people dress me and put my makeup on, stuff like that. But I do love that look, and I think it’s maybe because I grew up on that old glamour.
+ - I’ve never been a fan of labels. I think its very easy to kind of look at somebody and just kind of throw a label on them ‘They’re crazy.’
+ - I was raised with the idea that you can feel sorry for yourself, but then, get over it, because it doesn’t get you anywhere. There was always this awareness that you have to be responsible for yourself in order to have what you want.
+ - I always knew I would adopt. Always.
+ - I can only hope to be 10 percent of the mom mine was to me. She encouraged me to be confident and enjoy life. That’s what I want for my son.
+ - There’s only so much you can do, but if somebody doesn’t give you a chance there is nothing you can do.
+ - It’s so great as an actor to get the opportunity to do something that’s incredibly truthful.
+ - You always have this fear in a movie of just being somebody’s woman.
+ - At the end of the day, I’d much rather do a piece about people in a story that I find riveting and intriguing and moving, versus really carrying some kind of heavy political agenda on my sleeve. That’s not who I am.
+ - I was going to go to Macchu Picchu and then I just ended up working the whole year.
+ - You just don’t know if you’ll be around tomorrow. You just don’t.
+
+138 quotes

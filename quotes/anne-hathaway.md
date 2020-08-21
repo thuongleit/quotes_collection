@@ -1,0 +1,106 @@
+ - You cannot live your life to please others. The choice must be yours.
+ - Whatever you are made of, be the best of that.
+ - I had a dream. And it came true.
+ - But you have to remember in life that there’s a positive to every negative and a negative to every positive.
+ - Irony is the bringing together of two contradictory truths and to make out of the contradiction a new truth, with a laugh or a smile.
+ - I live my life with love. I live my life with compassion. I live my life hoping the best for absolutely everyone, no matter how they feel about me. And when you live that way, it’s amazing how beautiful every day can be.
+ - Everybody has bad relationships and, at the end of the day, they are just a great way to set yourself up for a good relationship.
+ - I believe I’ve always been a big believer in equality. No one has ever been able to tell me I couldn’t do something because I was a girl.
+ - I love when clothes make cultural statements and I think personal style is really cool.
+ - Mia: I can’t do this, I’m a girl. Gym Teacher Harbula: What am I? A duck?
+ - In my opinion, what makes a great book is something that is universally specific.
+ - Mellow doesn’t always make for a good story, but it makes for a good life.
+ - A bad love experience is no reason to fear a new love experience.
+ - My acting wasn’t the best. But damn, my ass looked tight.
+ - I’m a wear-my-heart-on-my-sleeve, fall in love-at-first-sight and go with it sort of girl. It’s all about having fun with someone and learning how to communicate with someone, in a way that you enjoy.
+ - My biggest fear is overreaching. I have been in situations where I felt swamped, and it’s turned out really well; and I’ve had other situations where I’ve had to walk off the film after five minutes because I realized I was in way over my head.
+ - I think the only thing in life that you really have to worry about is how you treat other people. If you mess up and treat someone else badly, you apologize, and you don’t apologize for anything else. Be yourself and go for it.
+ - I’m a pretty boring person. I have a dog that I love, and friends that I love, and a family that I love. I’m just trying to spend as much time with them as I can.
+ - Love is a human experience, not a political statement.
+ - I think fashion is a lot of fun. I love clothes. More than fashion or brand labels, I love design. I love the thought that people put into clothes. I love when clothes make cultural statements and I think personal style is really cool. I also freely recognize that fashion should be a hobby.
+ - I will help the good fight continue until that long awaited moment arrives, when our rights are equal and when the political limits on love have been smashed.
+ - Thank you for this lovely blunt object that I will forevermore use as a weapon against self-doubt.
+ - My first job was baby-sitting. I had a great time because I love kids. Sometimes, when I’m having a bad day, I’m like: “Oh, you know what? I’m going to chuck it in and become a kindergarten teacher!”
+ - It takes a minute for me to let my guard down, but once I do and I get to know someone, I’m very open, very trusting. Some might say too trusting, because considering the amount of money that can be made from selling gossip, I could be very easily taken advantage of.
+ - I am a girl without game. I’m not interested in games. I think that, if you are someone who playing hard to get comes naturally to, go with God and do that.
+ - Weddings are important because they celebrate life and possibility.
+ - There’s nothing wrong with making little kids happy, but there’s nothing wrong with wanting to be an adult actress. I mean a grown-up actress.
+ - Loneliness is my least favorite thing about life. The thing that I’m most worried about is just being alone without anybody to care for or someone who will care for me.
+ - If you’re not someone who has a natural and effortless love for yourself, it’s hard to let go of your desire to please other people, and that’s really not an ingredient for a happy life.
+ - Everyone makes sacrifices for their job; the movie’s not saying that you don’t have to work hard. The movie is saying that if you’re going to work hard, then make it worth it, believe in what you’re doing.
+ - I love working and I feel satisfied when I know I have literally given all the energy that I have. That being said, work is not my No. 1 priority. I don’t think it can come at the expense of your family, your friends and your ‘significant other’ if you have one.
+ - My feeling about growing up in New Jersey was, ‘How come I’m not in New York?’ That being said, I’m older and I have a better worldview now, and so I think I grew up in an incredibly privileged position. The town I grew up in is beautiful. I got a great education, and I’m very grateful for it.
+ - I want to work with people that frighten me and excite me, and characters that I don’t believe I’m the best person for the part but I’m still gonna try anyway. Those are my favorite roles.
+ - I loved Catwoman’s sense of humor. I love how sly she is. I love how she, to use a cat metaphor, walks the fence and you don’t know which side she’s going to come down on. She’s totally independent. And let’s face it, she’s badass.
+ - There’s nothing wrong with the fashion industry. What’s wrong is changing yourself for something you don’t really care about just to get somewhere faster.
+ - I try to stay out of the spotlight as much as humanly possible, because I think that when actors, whether or not they’ve chosen it or it has been thrust upon them, are living very public lives, it affects your ability to get lost in their performances.
+ - I think that people had this idea that I sat at home and sucked on lollipops and ate cotton candy while I watched cartoons – wearing a tiara.
+ - I really don’t drink, I don’t do drugs. I feel like right now I’ve been given so many opportunities I don’t want to mess it up with those things...
+ - Here’s how you get Hollywood in Positano: You need a nail salon and a yogurt place...
+ - I’ve always believed in people’s capacity for goodness. I still believe that people are good. What I’m not so trusting about anymore is their relationship to their own goodness.
+ - I have never been called too pretty for anything. That would be a problem I could get used to.
+ - I’d love to be an artist that’s multifaceted.
+ - There’s something very addictive about people pleasing. It’s a thought pattern and a habit that feels really, really good until it becomes desperate.
+ - College is such a unique time because you’re learning a little bit how to be an adult. You’re learning how to take care of yourself without parental influence, and you’re exposed to so many great minds. I feel like I didn’t even know how to think until I got to college.
+ - I think nudity is related to everything.
+ - Kindness is really important to me in finding my own prince – so are patience and a sense of humor. Without those qualities he’s no Prince Charming!
+ - Michelle Pfeiffer in Tim Burton’s ‘Batman’ was one of the most inspiring – I saw that and I was like, ‘I want to be her, I want to do that.’
+ - I’ve worked with people and I’ve known people that were really competitive but I’ve always said that I take an Elizabeth Bennett philosophy of life – I laugh. I love my job but if it means hurting someone, I won’t do it.
+ - The way I go about choosing roles is basically by just trying to pick the complete opposite of the last thing I did, or if it has someone else who I really have wanted to work with.
+ - I kind of got my big break with ‘The Princess Diaries’ and during the press rounds for that everyone asked me: ‘Did you always want to be a princess growing up?’ And the truth was, no I wanted to be Catwoman.
+ - A lot of people have told me, ‘You’re not this and so can’t play that,’ and I can’t tell you the amount of times I’ve been told I’m not sexy. I don’t wear my sexiness overtly doesn’t mean that I can’t become that girl for a role. That’s what I do; I become things. Use your imagination.
+ - I’m not attempting to be a role model but I accept that roles I’ve played put me in that position. I don’t feel a huge responsibility as an actress to put my young fan base first.
+ - When do I feel my best? When I haven’t looked in a mirror for days, and I’m doing things that make me happy.
+ - I think relationships are work, but love is a gift.
+ - Ladies: Anne Hathaway is a feminist and she has amazing teeth. Let’s save our bad attitudes for the ones who aren’t advancing the cause.
+ - I’m pretty good at remaining calm during an emergency. My house burned down when I was 12, which made me really pragmatic about what needed to be done. But I can be bad in that I compartmentalize a lot of emotions and push them away to deal with them at a later date.
+ - Each Catwoman is specific to the Gotham City she lives in and the director that helps shape her. So it’s kind of hard to have a favorite and I’m not just being political, it’s hard to have a favorite because each one is so specific as themselves.
+ - Obsessing about weight is a big old waste of time.
+ - I would never have gotten married if it weren’t for him. You have to want to be married to someone. You have to feel that reciprocated. Marriage for marriage’s sake doesn’t make any sense to me, and I found someone with whom I could put my money where my mouth is, I guess.
+ - Your face needs to have character if you’re an actor – otherwise you’re just a face.
+ - Im much happier talking with people than I am flirting with them.
+ - I love the short-haired lifestyle.
+ - I’m always curious about how actors cry on film.
+ - Life for me these days is a lot about letting the unknown be wonderful.
+ - I love it when people are able to interpret thoughts and feelings on fabric or some kind of material.
+ - There’s an obsessive quality to it that I thought I would’ve grown out of by now. It’s an ongoing source of shame for me.
+ - It’s definitely a thing to be sitting there, getting a pedicure, and you look over and someone is reading an article about an aspect of your life that you know is not true. It’s weird, it’s uncomfortable, but I don’t see it changing anytime soon, so I should figure a way to laugh through it.
+ - I gave up my struggle with perfection a long time ago. That is a concept I don’t find very interesting anymore. Everyone just wants to look good in the photographs. I think that is where some of the pressure comes from. Be happy. Be yourself, the day is about a lot more.
+ - I always think I’m terrible. So it’s always a relief when I find out that I wasn’t. I’ve had roles where I realized that I was in way over my head – and that is my biggest fear.
+ - My passion is interior decorating. My goal for the next years is to get into carpentry, because I really want to learn how to make my own furniture.
+ - Taking a year off and going to school was the best thing I could have done after The Princess Diaries. It taught me that I don’t need Hollywood or a job to make me happy.
+ - I don’t feel comfortable doing movies. It’s not what I trained to do. I trained to be a theater actress. You put me on a stage in front of 2,000 people, I know what to do.
+ - Quite frankly, I didn’t become an actor to become a movie star. I have never dreamed about being the most famous person on the planet. I just want to do really good work.
+ - I grew up in a pretty large family. We were really close-knit, so I definitely want to have lots and lots of children.
+ - The best part about working is that you never know what you’re going to learn when you start out.
+ - What I’ve observed and what I’ve imagined – and definitely what I’m hoping – happens as you get older is that there’s a mellowing, an acceptance that comes with time. I guess that I’ll find out.
+ - Singing has always been something that I’ve loved to do, but I never thought about doing, professionally. I always felt more drawn to acting.
+ - I’m not one of those stars that goes out and literally dresses to be photographed.
+ - That’s how I see myself as an actress. I may not be the best in the world, but I love my craft more than just about anything, and I will give everything I have to it, whatever the cost .
+ - My entire film career’s been dependent on my ability to look unattractive.
+ - I’ve been extraordinarily successful for my age. I think for probably anyone’s age, I’m very fortunate.
+ - When Chris Nolan is your director you are like, “I trust that, I’m wrong.”
+ - I know it’s not the right thing to say, but I’m really happy with my body.
+ - I’ve been enjoying a couple of post-Oscar burgers. So I didn’t fit into a lot of the vintage stuff. I wanted to wear something that was a little bit more forgiving.
+ - If you’re with someone who enjoys having people play hard to get, maybe that’s the way you’re supposed to do it then.
+ - I can think of few things more painful than naming four good things about yourself in front of a room of journalists!
+ - I’ve honestly been really lucky. My only jobs have been babysitting and acting.
+ - Everything that I have ever hoped to accomplish, she has done and done better than anyone I have ever seen.
+ - I like to watch MTV for escapist pleasure, but when I saw Snooki, I saw my twin. I couldn’t lose myself in the show anymore because there I was.
+ - I’m not one of those stars that goes out and literally dresses to be photographed. I’m kind of a ‘what you see is what you get’ type of girl when I dress. I go for comfort above everything else.
+ - Oftentimes, what you wind up learning is very different than what you expect.
+ - I think I was raised in a solidly upper-middle class family who had really strong values and excess was not one of the things that my family put up with.
+ - You can alter movie singing so much because you go into the recording studio and, just technology for recording has gotten so good, you can hold out a note and they can combine a note from take 2 and a note from take 8.
+ - I was thrust into a really lofty, enviable, but isolated position with ‘Princess Diaries’ in that I could carry a film before I really knew if I could act.
+ - I think it is so much more fun to discover film in the movie theatre when there is so much anticipation about the movie.
+ - I would have played street cop number three if it meant getting to work with Chris Nolan.
+ - I don’t normally do big movies. I’m new to this world. And I’ve always been afraid that jumping onto a big budget film, you would lose the relationships in favour of special effects.
+ - I have no aspirations of world domination through the pop charts. None at all.
+ - I’d always thought I was pretty healthy and I always thought I had worked hard in the gym and it turns out that what I thought was hard, in Catwoman’s world, is actually light to moderate.
+ - There’s something wildy decadent about the young-star lifestyle, and I just don’t really see the point. I got my partying out of my system in college.
+ - I’d love to be an artist that’s multifaceted. At the moment, I am not. But wouldn’t that be cool if I was like, ‘Yeah, let me pull out my guitar and play you a song.’ I would adore that. I am so far not gifted in that way. But I am a very hard worker and a very determined person, so who knows?
+ - I love employment, and it’s never, ever guaranteed. As much as I love doing animated voices, I just love working.
+ - Scents as well as clothes and hairstyles can go a long way in revealing a part of yourself.
+ - I see myself as improving. I think I’m a very curious person, and I like that about myself .
+
+104 quotes

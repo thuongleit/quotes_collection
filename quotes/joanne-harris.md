@@ -1,0 +1,85 @@
+ - Life is what you celebrate. All of it. Even its end.
+ - If wishes were horses, beggars would ride.
+ - I let it go. It’s like swimming against the current. It exhausts you. After a while, whoever you are, you just have to let go, and the river brings you home.
+ - Some books you read. Some books you enjoy. But some books just swallow you up, heart and soul.
+ - I’d rather be a freak than a clone.
+ - She always had that about her, that look of otherness, of eyes that see things much too far, and of thoughts that wander off the edge of the world.
+ - Death should be a celebration. Like a birthday. I want to go up like a rocket when my time comes, and fall down in a cloud of stars, and hear everyone go: ahh!
+ - The process of writing is a little like madness, a kind of possession not altogether benign.
+ - I’ve never been very good at leaving things behind. I tried, but I have always left fragments of myself there too, like seeds awaiting their chance to grow.
+ - For me, the magic of Hawaii comes from the stillness, the sea, the stars.
+ - Remember, it’s the winners write the history books, and the losers get the leavings.
+ - I can write absolutely anywhere. All I need is a laptop.
+ - Some people spend the whole of their lives sitting waiting for one train, only to find that they never even made it to the station.
+ - You don’t write because someone sets assignments! You write because you need to write, or because you hope someone will listen or because writing will mend something broken inside you or bring something back to life.
+ - I think everybody has a secret life.
+ - I sell dreams, small comforts, sweet harmless temptations to bring down a multitude of saints crashing among the hazels and nougatines.
+ - If you want to know what’s important to a culture, learn their language.
+ - Change isn’t always comfortable, but it is a fact of life.
+ - Happiness. Simple as a glass of chocolate or tortuous as the heart. Bitter. Sweet. Alive.
+ - I could do with a bit more excess. From now on I’m going to be immoderate – and volatile – I shall enjoy loud music and lurid poetry. I shall be rampant.
+ - Online communities are an expression of loneliness.
+ - From a very young age my mother persuaded me that I could write for fun, but I had to have a proper job – very good advice.
+ - The battle of good and evil reduced to a fat woman standing in front of a chocolate shop, saying, Will I? Won’t I? in pitiful indecision.
+ - I’m phobic about the idea of being constrained.
+ - Like a domestic cat, purring on the sofa by day, but by night, a strutting queen, a natural killer, disdainful of her other life.
+ - Clones fit in. Freaks stand out. Ask me which one I prefer.
+ - I am not at all a chocoholic. I would rather eat anchovy toast.
+ - I don’t think I’ve ever had a mentor. The closest thing is my friend Christopher Fowler, another writer. Chris kept me sane for a long time before I made it.
+ - I have an advanced degree in procrastination and another one in paranoia.
+ - A spider brings good luck before midnight and bad luck after.
+ - The wind always brings us back to the same wall.
+ - Children are knives, my mother once said. They don’t mean to, but they cut. And yet we cling to them, don’t we, we clasp them until the blood flows.
+ - This isn’t the first time the world has come to an end, and it won’t be the last either.
+ - I like autumn. The drama of it; the golden lion roaring through the back door of the year, shaking its mane of leaves. A dangerous time; of violent rages and deceptive calm, of fireworks in the pockets and conkers in the fist.
+ - I don’t listen to music when I’m writing, but I often do when I’m reworking, editing or when I need to relax.
+ - We came in the wind of the carnival. A wind of change, or promises. The merry wind, the magical wind, making March hares of everyone, tumbling blossoms and coat-tails and hats; rushing towards summer in a frenzy of exuberance.
+ - All those moments, those memories. Everything that we are, compressed in just two or three kilos of paper – the weight of a human heart.
+ - I’m politically inclined towards the left, but I don’t like to be in anyone’s gang; I’m a bit of a loose cannon.
+ - I’m incapable of hiding my feelings when I’m around someone I don’t like.
+ - Divination is a means of telling ourselves what we already know.
+ - A man who casts no shadow isn’t really a man at all.
+ - I don’t tend to do category fiction very well. One of my problems when I was starting off was that publishers were hesitant to handle my books because they were never sure what I was going to do next.
+ - A man may plant a tree for a number of reasons. Perhaps he likes trees. Perhaps he wants shelter. Or perhaps he knows that someday he may need the firewood.
+ - People reveal so much of their mental processes online, simply because the psychological effect of anonymity just means that a whole raft of inhibitions are left alone when people log on.
+ - Was it my fault that I got out of hand? – Loki.
+ - One of the things that writing has taught me is that fiction has a life of its own. Fictional places are sometimes more real than the view from our bedroom window. Fictional people can sometimes become as close to us as our loved ones.
+ - Somehow the anticipation of pain can be even more troubling, more a misery than the pain itself.
+ - A few hundred years ago there were no differences between magic and medicine.
+ - I’m insatiably curious.
+ - Everything comes home, my mother used to say; every word spoken, every shadow cast, every footprint in the sand. It can’t be helped; it’s part of what makes us who we are.
+ - I think if you are an outsider then you are an outsider always.
+ - The past is an obdurate stranger that puts as many marks on us as we attempt to impose on it.
+ - Sheep are not the docile, pleasant creatures of the pastoral idyll. Any countryman will tell you that. They are sly, occasionally vicious, pathologically stupid. The lenient shepherd may find his flock unruly, definant. I cannot afford to be lenient.
+ - Their love was something which coloured the air between them like sunlight.
+ - Love not often, but forever.
+ - The dead know everything but they don’t give a damn.
+ - Of course I didn’t pioneer the use of food in fiction: it has been a standard literary device since Chaucer and Rabelais, who used food wonderfully as a metaphor for sensuality.
+ - You priests. You’re all the same. You think fasting helps you think about God, when anyone who can cook would tell you that fasting just makes you think about food.
+ - The process of giving is without limits.
+ - It isn’t just a village. The houses aren’t just places to live. Everything belongs to everybody. Everyone belongs to everyone else. Even a single person can make a difference.
+ - I love it when my books cause controversy, when people argue violently about the ending.
+ - As authors, we all expect criticism from time to time, and we all have our ways of coping with unfriendly reviews.
+ - I carried recipes in my head like maps.
+ - A named thing is a tamed thing.
+ - Before you have children, you mostly think about the world in terms of yourself. And when you become a parent, the focus shifts to somebody else.
+ - Anything that can be dreamed is true.
+ - I liked her better for showing a little spirit.
+ - A little tantrum in real life seems so much bigger online.
+ - Sometimes survival is the worst alternative there is.
+ - Garden work clears the mind.
+ - I have a tendency to pick up my own challenges. The more difficult something it is, the more I want to try it.
+ - Anything based on ancient texts is difficult for a modern reader to get their head around.
+ - I’ve nothing against kids reading anything they please, but I do have a problem with pink books for girls and black books for boys.
+ - I like literature that you respond to in some way. You laugh, you cry, you turn the light on – that’s great, it’s eliciting a response by proxy.
+ - And so Nat stood up and joined the group, and followed, and watched, and awaited his chance as the light of Chaos lit the plain and gods and demons marched to war.
+ - I dream a lot, in colour and in sound and scent. Quite a few of my stories have come from dreams.
+ - I’m not sure I believe in the whole ‘ghost-afterlife’ thing, but I think places are marked by people who have been there.
+ - If you want something you can have it, but you have to do some work. It’s the ethic my mother brought me up with.
+ - It’s a feeling which tells me that any woman can be beautiful in the eyes of a man who loves her.
+ - I’m not fond of cities: the constant activity and swarms of people.
+ - I am fascinated by how people eat and what it reveals about them.
+ - I speak as I must and cannot be silent.
+ - Library-denigrators, pay heed: suggesting that the Internet is a viable substitute for libraries is like saying porn could replace your wife.
+
+83 quotes

@@ -1,0 +1,27 @@
+ - To win the big games you must get to the Free Throw line, and then you must make them.
+ - My players on defense must have a hand-up on every shot. If not, they run sprints.
+ - Switch if you have to! It’s not the mismatch that beats you, it’s the open shot!
+ - Never marry a beautiful woman. A beautiful woman will leave you. An ugly woman will leave you, too, but so what?
+ - Most lay-ups and two foot jump shots around the goal are missed by not putting the ball up high enough on the backboard.
+ - Those to whom defense is not important will have the best seat in the game.
+ - Blocking out is everyday, every drill, all the time. We run sprints every time someone does not blockout.
+ - When I die, they might as well bury me at the finish line at Churchill Downs so they can run over me one more time.
+ - All things move on, good and bad. Never get too high or too low.
+ - They talk about the economy this year. Hey, my hairline is in recession, my waistline is in inflation. Altogether, I’m in a depression.
+ - The mismatch is not what gets you beat. What gets you beat is giving up the uncontested, open shot.
+ - I really never look at my health issues as ‘Woe is me.’ I’ve seen the reality of that. And it’s not a pleasant thing.
+ - I am a big barbecue-sauce guy.
+ - I have friends in Utah who care about me as a person, not for what I am. They’ll call to see how my heart is, how my blood pressure is. That’s important to me.
+ - I started wearing glasses last season but they’re only for basketball games and dirty movies.
+ - Look, I haven’t had hardly any bad luck. I never look at it that way.
+ - Nobody thought I would be a great coach.
+ - If you want to have a lot of success, you need to have a lot of failure.
+ - It’s good to be in on the action.
+ - I love Vegas. God knows that I know how to find my way around the buffets in Las Vegas.
+ - Great shooters are one dribble guys.
+ - You must have a passion to coach.
+ - Nobody thought I’d be a great coach. I’m the kind of guy you’d expect to be driving an 18-wheeler through town.
+ - One of the biggest reasons I like coaching college ball is the kids. I feel I can impact players lives.
+ - Pro basketball is a very mercenary endeavor.
+
+25 quotes

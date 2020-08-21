@@ -1,0 +1,26 @@
+ - If you see something that is not right, not fair, not just, you have a moral obligation to do something about it.
+ - We may not have chosen the time, but the time has chosen us.
+ - You cannot be afraid to speak up and speak out for what you believe. You have to have courage, raw courage.
+ - Don’t give up! Don’t give in! Keep the faith! And keep your eyes on the prize!
+ - If you’re not hopeful and optimistic, then you just give up. You have to take that long hard look and just believe that if your consistent, you will succeed.
+ - But you have to have hope. You have to be optimistic in order to continue to move forward.
+ - The reward for playing jazz is playing jazz.
+ - The civil rights movement was based on faith. Many of us who were participants in this movement saw our involvement as an extension of our faith. We saw ourselves doing the work of the Almighty. Segregation and racial discrimination were not in keeping with our faith, so we had to do something.
+ - When people tell me nothing has changed, I say come walk in my shoes and I will show you change.
+ - We will stand up for what is right, for what is fair and what is just. Health care is a right and not a privilege.
+ - My parents told me in the very beginning as a young child when I raised the question about segregation and racial discrimination, they told me not to get in the way, not to get in trouble, not to make any noise.
+ - Races don’t fall in love, genders don’t fall in love: Individuals fall in love. We all should be free to marry the person that we love.
+ - When growing up, I saw segregation. I saw racial discrimination. I saw those signs that said white men, colored men. White women, colored women. White waiting. And I didn’t like it.
+ - I believe in nonviolence as a way of life, as a way of living.
+ - The government, both state and federal, has a duty to be reasonable and accommodating.
+ - Sen. McCain and Gov. Palin are sowing the seeds of hatred and division, and there is no need for this hostility in our political discourse.
+ - I think all Americans should be hopeful, and try to be optimistic.
+ - When I was a student, I studied philosophy and religion. I talked about being patient. Some people say I was too hopeful, too optimistic, but you have to be optimistic just in keeping with the philosophy of non-violence.
+ - In the past the great majority of minority voters, in Ohio and other places that means African American voters, cast a large percentage of their votes during the early voting process.
+ - I don’t have any extraordinary gifts. I’m just an average Joe who grew up very poor in rural Alabama.
+ - You have to have the capacity and the ability to take what people did, and how they did it, and forgive them and move on.
+ - Ornette Coleman is doing the only really new thing in jazz since the innovations in the mid-forties of Dizzy Gillespie, Charlie Parker, and those of Thelonious Monk.
+ - My mother and father and many of my relatives had been sharecroppers.
+ - To make it hard, to make it difficult almost impossible for people to cast a vote is not in keeping with the democratic process.
+
+24 quotes

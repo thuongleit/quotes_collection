@@ -1,0 +1,249 @@
+ - If you fell down yesterday, stand up today.
+ - If we don’t end war, war will end us.
+ - Am I dreaming? Has the world gone mad – or have I?
+ - Adapt or perish, now as ever, is nature’s inexorable imperative.
+ - The crisis of today is the joke of tomorrow.
+ - Statistical thinking will one day be as necessary for efficient citizenship as the ability to read and write!
+ - Our true nationality is mankind.
+ - Let your love be stronger than your hate or anger. Learn the wisdom of compromise, for it is better to bend a little than to break.
+ - We must not allow the clock and the calendar to blind us to the fact that each moment of life is a miracle and mystery.
+ - Advertising is legalized lying.
+ - What really matters is what you do with what you have.
+ - The path of least resistance is the path of the loser.
+ - It sounds plausible enough tonight, but wait until tomorrow. Wait for the common sense of the morning.
+ - Sometimes, you have to step outside of the person you’ve been and remember the person you were meant to be. The person you want to be. The person you are.
+ - Losing your way on a journey is unfortunate. But, losing your reason for the journey is a fate more cruel.
+ - Civilization is in a race between education and catastrophe. Let us learn the truth and spread it as far and wide as our circumstances allow. For the truth is the greatest weapon we have.
+ - Beauty is in the heart of the beholder.
+ - If there is no God, nothing matters. If there is a God, nothing else matters.
+ - Every time I see an adult on a bicycle, I no longer despair for the future of the human race.
+ - Moral indignation is jealousy with a halo.
+ - Success is to be measured not by wealth, power, or fame, but by the ratio between what a man is and what he might be.
+ - The study of Nature makes a man at last as remorseless as Nature.
+ - Human history becomes more and more a race between education and catastrophe.
+ - If we do not end war – war will end us. Everybody says that, millions of people believe it, and nobody does anything.
+ - If anything is possible, then nothing is interesting.
+ - We live in a world of unused and misapplied knowledge and skill.
+ - I am an historian, I am not a believer, but I must confess as a historian that this penniless preacher from Nazareth is irrevocably the very center of history. Jesus Christ is easily the most dominant figure in all history.
+ - Endless conflicts. Endless misunderstanding. All life is that. Great and little cannot understand one another.
+ - The cat, which is a solitary beast, is single minded and goes its way alone, but, the dog, like his master, is confused in his mind.
+ - Until a man has found God, he begins at no beginning and works to no end.
+ - Cynicism is humor in ill health.
+ - Affliction comes to us, not to make us sad but sober; not to make us sorry but wise.
+ - There is space in its philosophy for everyone which is one reason why India is a home to every single religion in the world.
+ - We’re in a blessed drainpipe, and we’ve got to crawl along it till we die.
+ - The teacher, whether mother, priest, or schoolmaster, is the real maker of history.
+ - There is no upper limit to what individuals are capable of doing with their minds. There is no age limit that bars them from beginning. There is no obstacle that cannot be overcome if they persist and believe.
+ - Hinduism is synonymous with humanism. That is its essence and its great liberating quality.
+ - Nothing leads so straight to futility as literary ambitions without systematic knowledge.
+ - Crime and bad lives are the measure of a State’s failure, all crime in the end is the crime of the community.
+ - By the toll of a billion deaths man has bought his birthright of the earth, and it is his against all comers; it would still be his were the Martians ten times as mighty as they are. For neither do men live nor die in vain.
+ - I had rather be called a journalist than an artist.
+ - Face this world. Learn its ways, watch it, be careful of too hasty guesses at its meaning. In the end you will find clues to it all.
+ - There is no difference between Time and any of the three dimensions of Space except that our consciousness moves along it.
+ - When a man realizes his littleness, his greatness can appear.
+ - A world revolution to a higher social order, a world order, or utter downfall lies before us all.
+ - Ignorance is not an extension of time.
+ - States organized for war will make war as surely as hens will lay eggs...
+ - While there is a chance of the world getting through its troubles, I hold that a reasonable man has to behave as though he were sure of it. If at the end your cheerfulness in not justified, at any rate you will have been cheerful.
+ - We live in reference to past experience and not to future events, however inevitable.
+ - In all the round world there is no meat. There used to be. But now we cannot stand the thought of slaughterhouses.
+ - In all the round world of Utopia there is no meat. There used to be, but now we cannot stand the thought of slaughterhouses. And it is impossible to find anyone who will hew a dead ox or pig. I can still remember as a boy the rejoicings over the closing of the last slaughterhouse.
+ - Nature never appeals to intelligence until habit and instinct are useless. There is no intelligence where there is no need of change.
+ - Crude classifications and false generalizations are the curse of the organized life.
+ - Human history is, in essence, a history of ideas.
+ - Civilization is a race between disaster and education.
+ - Mankind which began in a cave and behind a windbreak will end in the disease-soaked ruins of a slum.
+ - The future is the shape of things to come.
+ - It is highly probable that the bulk of the Jew’s ancestors ‘never’ lived in Palestine ‘at all,’ which witnesses the power of historical assertion over fact.
+ - The passion for playing Chess is one of the most unaccountable in the world.
+ - It is possible to believe that all the past is but the beginning of a beginning, and that all that is and has been is but the twilight of the dawn. It is possible to believe that all the human mind has ever accomplished is but the dream before the awakening.
+ - After your first day of cycling, one dream is inevitable. A memory of motion lingers in the muscles of your legs, and round and round they seem to go. You ride through Dreamland on wonderful dream bicycles that change and grow.
+ - Hunger makes a fool of a man.
+ - Looking at these stars suddenly dwarfed my own troubles and all the gravities of terrestrial life. I thought of their unfathomable distance, and the slow inevitable drift of their movements out of the unknown past into the unknown future.
+ - Yet across the gulf of space, minds that are to our minds as ours are to those of the beasts that perish, intellects vast and cool and unsympathetic, regarded this earth with envious eyes, and slowly and surely drew their plans against us.
+ - The professional military mind is by necessity an inferior and unimaginative mind; no man of high intellectual quality would willingly imprison his gifts in such a calling.
+ - We should strive to welcome change and challenges, because they are what help us grow. With out them we grow weak like the Eloi in comfort and security. We need to constantly be challenging ourselves in order to strengthen our character and increase our intelligence.
+ - Human society is based on want. Life is based on want. Wild-eyed visionaries may dream of a world without need. Cloud-cuckoo-land. It can’t be done.
+ - The only true measure of success is the ratio between what we might have done and what we might have been on the one hand, and the thing we have made and the things we have made of ourselves on the other.
+ - The art of ignoring is one of the accomplishments of every well-bred girl, so carefully instilled that at last she can even ignore her own thoughts and her own knowledge.
+ - The world needs something stronger than any possible rebellion against its peace. In other words it needs a federal world government embodying a new conception of human life as one whole.
+ - To be honest, one must be inconsistent.
+ - All men, however highly educated, retain some superstitious inklings.
+ - In all ages, far back into prehistory, we find human beings have painted and adorned themselves.
+ - One believes in Stephen Dedalus as one believes in few characters in fiction.
+ - I was never a great amorist, though I have loved several people very deeply.
+ - For after the Battle comes quiet.
+ - The past is but the past of a beginning.
+ - Books-bright windows in this life of ours, lit by the shining souls of men.
+ - Only people who are well off can be – complex.
+ - I want to go ahead of Father Time with a scythe of my own.
+ - Life, forever dying to be born afresh, forever young and eager, will presently stand upon this Earth as upon a footstool, and stretch out its realm amidst the stars.
+ - Christ is the most unique person of history. No man can write a history of the human race without giving first and foremost place to the penniless Teacher of Nazareth.
+ - It is a law of nature we overlook, that intellectual versatility is the compensation for change, danger, and trouble.
+ - We are kept keen on the grindstone of pain and necessity.
+ - Are we all bubbles blown by a baby?
+ - Looking at these stars suddenly dwarfed my own troubles and all the gravities of terrestrial life.
+ - What good is religion if it collapses under calamity?
+ - Lies are the mortar that binds the savage individual man into the social masonry.
+ - I must confess that I lost faith in the sanity of the world.
+ - Figures are the most shocking things in the world. The prettiest little squiggles of black looked at in the right light and yet consider the blow they can give you upon the heart.
+ - Leaders should lead as far as they can and then vanish. Their ashes should not choke the fire they have lit.
+ - You Americans have the loveliest wine in the world, you know, but you don’t realize it. You call them domestic and that’s enough to start trouble anywhere.
+ - Our challenge is not to educate the children we used to have or want to have, but to educate the children who come to the schoolhouse door.
+ - The past is the beginning of the beginning and all that is and has been is but the twilight of the dawn.
+ - The brain upon which my experiences have been written is not a particularly good one. If their were brain-shows, as there are cat and dog shows, I doubt if it would get even a third class prize.
+ - Will is stronger than fact: it can mold and overcome fact.
+ - Night, the mother of fear and mystery, was coming upon me.
+ - The true sweetness of chess, if it can ever be called sweet, is to see a victory snatched, by some happy impertinence, out of the shadows of apparently irrevocable disaster.
+ - I do not believe I have any immortality. The greatest evil in the world today is the Christian religion.
+ - The path of social advancement is, and must be, strewn with broken friendships.
+ - I hope, or I could not live.
+ - Non-violence is the policy of the vegetable kingdom.
+ - I see knowledge increasing and human power increasing. I see ever-increasing possibilities before life, And I see no limits set to it at all, Existence impresses me as a perpetual dawn. Our lives, as I apprehend, are great in expectations.
+ - Alone – it is wonderful how little a man can do alone! To rob a little, to hurt a little, and there is the end.
+ - If your life doesn’t end in failure, you haven’t reached high enough. So it was failure I had to achieve.
+ - When the mind grapples with a great and intricate problem, it makes its advances step by step, with but little realization of the gains it has made, until suddenly, with an effect of abrupt illumination, it realizes its victory.
+ - Let us get together with other people of our sort and make over the world into a great world-civilization that will enable us to realize the promises and avoid the dangers of this new time.
+ - It’s no use locking the door after the steed is stolen.
+ - Every time Europe looks across the Atlantic to see the American Eagle, it observes only the rear end of an ostrich.
+ - The Athenian democracy suffered much from that narrowness of patriotism which is the ruin of all nations.
+ - The forceps of our minds are clumsy forceps, and crush the truth a little in taking hold of it.
+ - The Social Contract is nothing more or less than a vast conspiracy of human beings to lie to and humbug themselves for the general Good. Lies are the mortar that bind the savage individual man into the social masonry.
+ - So utterly at variance is Destiny with all the little plans of men.
+ - He began to realize that you cannot even fight happily with creatures that stand upon a different mental basis to yourself.
+ - There is no reason whatever to believe that the order of nature has any greater bias in favour of man than it had in favour of the ichthyosaur or the pterodactyl.
+ - Very simple was my explanation, and plausible enough – as most wrong theories are!
+ - If only I had thought of a Kodak! I could have flashed that glimpse of the Under-world in a second, and examined it at leisure.
+ - Dragging out life to the last possible second is not living to the best effect. The nearer the bone, the sweeter the meat. The best of life, Passworthy, lies nearest to the edge of death.
+ - There are no social differences – till women come in.
+ - Strength is the outcome of need.
+ - Find the thing you want to do most intensely, make sure that’s it, and do it with all your might. If you live, well and good. If you die, well and good. Your purpose is done.
+ - I saw a gray-haired man a figure of hale age, sitting at a desk and writing.
+ - I often think we do not take this business of photography in a sufficiently serious spirit. Issuing a photograph is like marriage: you can only undo the mischief with infinite woe...
+ - In the scientific world I find just that disinterested devotion to great ends that I hope will spread at last through the entire range of human activity.
+ - There is no remorse like a remorse of chess. It is a curse upon man. There is no happiness in chess.
+ - Few people realise the immensity of vacancy in which the dust of the material universe swims.
+ - The State’s your mother, your father, the totality of your interests. No discipline can be too severe for the man that denies thatby word or deed.
+ - The German people are an orderly, vain, deeply sentimental and rather insensitive people. They seem to feel at their best when they are singing in chorus, saluting or obeying orders.
+ - The Anglo-Saxon genius for parliamentary government asserted itself; there was a great deal of talk and no decisive action.
+ - The Jews looked for a special savior, a messiah, who was to redeem mankind by the agreeable process of restoring the fabulous glories of David and Solomon, and bringing the whole world at last under the firm but benevolent Jewish heel.
+ - Democracy’s ceremonial, its feast, it’s great function, is the election.
+ - There is no remorse like the remorse of Chess.
+ - The too perfect security of the Upper-worlders had led them to a slow movement of degeneration, a general dwindling in size, strength, and intelligence.
+ - The man was running away with the rest, and selling his papers for a shilling each as he ran – a grotesque mingling of profit and panic.
+ - I don’t think you fully appreciate the importance of Illusion in life, the Essential Nature of Lies and Deception of the body politic.
+ - We were making the future and hardly any of us troubled to think what future we were making. And here it is!
+ - The fertilising conflict of individualities is the ultimate meaning of the personal life.
+ - Very much indeed of what we call moral education is such an artificial modification and perversion of instinct; pugnacity is trained into courageous self-sacrifice, and suppressed sexuality into religious emotion.
+ - We can’t have any weak or silly. Life is real again, and the useless and cumbersome and mischievous have to die. They ought to die. They ought to be willing to die. It’s a sort of disloyalty, after all, to live and taint the race.
+ - This is the end and the beginning of an age. This is something far greater than the French Revolution or the Reformation and we live in it.
+ - And I have by me, for my comfort, two strange white flowers – shriveled now, and brown and flat and brittle – to witness that even when mind and strength had gone, gratitude and a mutual tenderness still lived on in the heart of men.
+ - I must confess that my imagination refuses to see any sort of submarine doing anything but suffocating its crew and floundering at sea.
+ - I stood staring, not as yet realising that this was death leaping from man to man in that little distant crowd.
+ - Fools make researches and wise men exploit them.
+ - He who does not contemplate the future is destined to be overwhelmed by it.
+ - A day will come when beings, now latent in our thoughts and hidden in our loins, shall stand upon Earth as a footstool and laugh, and reach out their hands amidst the stars.
+ - Chess is a curse upon a man.
+ - How small the vastest of human catastrophes may seem, at a distance of a few million miles.
+ - The serious people who took him seriously never felt quite sure of his deportment; they were somehow aware that trusting their reputations for judgment with him was like furnishing a nursery with egg-shell china.
+ - The man who raises a fist has run out of ideas.
+ - You are not mechanics, you are warriors. You have been trained, not to think, but to do.
+ - With wine and food, the confidence of my own table, and the necessity of reassuring my wife, I grew by insensible degrees courageous and secure.
+ - The fact is, the Time Traveller was one of those men who are too clever to be believed: you never felt that you saw all round him; you always suspected some subtle reserve, some ingenuity in ambush, behind his lucid frankness.
+ - Everyone leaves the world a little better some by leaving.
+ - We are living in 1937, and our universities, I suggest, are not half-way out of the fifteenth century. We have made hardly any changes in our conception of university organization, education, graduation, for a century – for several centuries.
+ - This has ever been the fate of energy in security; it takes to art and to eroticism, and then comes languor and decay.
+ - An animal may be ferocious and cunning enough, but it takes a real man to tell a lie.
+ - If you do not want to explore an egoism you should not read autobiography.
+ - You must follow me carefully. I shall have to controvert one or two ideas that are almost universally accepted. The geometry, for instance, they taught you at school is founded on a misconception.
+ - Fools make researches and wise men exploit them – that is our earthly way of dealing with the question, and we thank Heaven for an assumed abundance of financially impotent and sufficiently ingenious fools.
+ - The crying sounded even louder out of doors. It was as if all the pain in the world had found a voice.
+ - Nothing remains interesting where anything may happen.
+ - We have learned now that we cannot regard this planet as being fenced in and a secure abiding place for Man we can never anticipate the unseen good or evil that may come upon us suddenly out of space.
+ - There comes a moment in the day when you have written your pages in the morning, attended to your correspondence in the afternoon, and have nothing further to do. Then comes that hour when you are bored; that’s the time for sex.
+ - The science hangs like a gathering fog in a valley, a fog which begins nowhere and goes nowhere, an incidental, unmeaning inconvenience to passers-by.
+ - Patriotism has become a mere national self assertion, a sentimentality of flag-cheering with no constructive duties.
+ - A young mistress is better than an old master.
+ - What on earth would a man do with himself, if something did not stand in his way?
+ - Man is the unnatural animal, the rebel child of nature, and more and more does he turn himself against the harsh and fitful hand that reared him.
+ - Things that would have made fame of a less clever man seemed tricks in his hands. It is a mistake to do things too easily.
+ - I went over the heads of the things a man reckons desirable. No doubt invisibility made it possible to get them, but it made it impossible to enjoy them when they are got.
+ - I do not propose to add anything to what has already been written concerning the loss of the “Lady Vain.”
+ - It is only now and then, in a jungle, or amidst the towering white menace of a burnt or burning Australian forest, that Nature strips the moral veils from vegetation and we apprehend its stark ferocity.
+ - Money means in a thousand minds a thousand subtly different, roughly similar, systems of images, associations, suggestions and impulses.
+ - Our business here is to be Utopian, to make vivid and credible, if we can, first this facet and then that, of an imaginary whole and happy world.
+ - Everywhere in the world there are ignorance and prejudice, but the greatest complex of these, with the most extensive prestige and the most intimate entanglement with traditional institutions, is the Roman Catholic Church.
+ - There’s truths you have to grow into.
+ - We are always getting away from the present moment. Our mental existence, which are immaterial and have no dimensions, are passing along the Time-Dimension with a uniform velocity from the cradle to the grave.
+ - When she was fifteen if you’d told her that when she was twenty she’d be going to bed with bald-headed men and liking it, she would have thought you very abstract.
+ - There’s nothing wrong in suffering, if you suffer for a purpose. Our revolution didn’t abolish danger or death. It simply made danger and death worthwhile.
+ - For all my desire to be interesting, I have to confess that for most things and people I don’t give a damn.
+ - We will peck them to death to-morrow, my dear.
+ - He was inordinately proud of England and he abused her incessantly.
+ - After telephone, kinematograph and phonograph had replaced newspaper, book schoolmaster and letter, to live outside the range of the electric cables was to live an isolated savage.
+ - The doctrine of the Kingdom of Heaven, which was the main teaching of Jesus, is certainly one of the most revolutionary doctrines that ever stirred and changed human thought.
+ - Men fancied there might be other men upon Mars, perhaps inferior to themselves and ready to welcome a missionary enterprise.
+ - Suddenly, like a thing falling upon me from without, came fear.
+ - The greatest task of democracy, its ritual and feast – is choice.
+ - The uglier a man’s legs are, the better he plays golf – it’s almost a law.
+ - After people have repeated a phrase a great number of times, they begin to realize it has meaning and may even be true.
+ - If you are in difficulties with a book, try the element of surprise: attack it at an hour when it isn’t expecting it.
+ - Marriage isn’t what it was. It’s become a different thing because women have become human beings.
+ - This little upset across the water doesn’t mean anything. Threatened men live long and threatened wars never occur.
+ - Heresies are experiments in man’s unsatisfied search for truth.
+ - But I was too restless to watch long; I’m too Occidental for a long vigil. I could work at a problem for years, but to wait inactive for twenty-four hours – that’s another matter.
+ - It is when suffering finds a voice and sets our nerves quivering that this pity comes troubling us.
+ - Once the command of the air is obtained by one of the contending armies, the war becomes a conflict between a seeing host and one that is blind.
+ - We were not making war against Germany, we were being ordered about in the King’s war with Germany.
+ - Is it any wonder that to this day this Galilean is too much for our small hearts?
+ - The new century will see changes that will dwarf those of the last.
+ - Cycle trails will abound in Utopia.
+ - Anthropology has been compared to a great region, marked out indeed as within the sphere of influence of science, but unsettled and for the most part unsubdued. Like all such hinterland sciences, it is a happy hunting-ground for adventurers.
+ - One of the darkest evils of our world is surely the unteachable wildness of the Good.
+ - You have, let us say, a promising politician, a rising artist that you wish to destroy. Dagger or bomb are archaic, clumsy and unreliable – but teach him, inoculate him with chess.
+ - We must be prepared to see an Association of Nations in conference growing into an organic system of world controls for world affairs and the keeping of the world’s peace, or we must be prepared for – a continuation of war.
+ - It seems to me that I am more to the Left than you, Mr Stalin.
+ - The army ages men sooner than the law and philosophy; it exposes them more freely to germs, which undermine and destroy, and it shelters them more completely from thought, which stimulates and preserves.
+ - Religions are such stuff as dreams are made of.
+ - I don’t suppose any man has ever understood any woman since the beginning of things. You don’t understand our imaginations, how wild our imaginations can be.
+ - Bah! The thing is not a nose at all, but a bit of primordial chaos clapped on to my face.
+ - Since the passing of Victoria the Great there had been an accumulating uneasiness in the national life. It was as if some compact and dignified paper-weight had been lifted from people’s ideas, and as if at once they had begun to blow about anyhow.
+ - The true objection to slavery is not that it is unjust to the inferior but that it corrupts the superior.
+ - The War That Will End War.
+ - Science has toiled too long forging weapons for fools to use. It is time she held her hand.
+ - This blessed gift of smoking!
+ - They haven’t any spirit in them – no proud dreams and no proud lusts; and a man who hasn’t one or the other-Lord! What is he but funk and precautions.
+ - IBM is helping to greatly advance and expedite quality sampling while providing our project investigators peace of mind that the information they are gathering is securely stored and protected.
+ - Better it is toward the right conduct of life to consider what will be the end of a thing, than what is the beginning of it: for what promises fair at first may prove ill, and what seems at first a disadvantage, may prove very advantageous.
+ - By this time I was no longer very much terrified or very miserable. I had, as it were, passed the limit of terror and despair. I felt now that my life was practically lost, and that persuasion made me capable of daring anything.
+ - We want to get rid of the militarist not simply because he hurts and kills, but because he is an intolerable thick-voiced blockhead who stands hectoring and blustering in our way of achievement.
+ - The third peculiarity of aerial warfare was that it was at once enormously destructive and entirely indecisive.
+ - I never yet heard of a useless thing that was not ground out of existence by evolution sooner or later. Did you? And pain gets needless.
+ - Biologically the species is the accumulation of the experiments of all its successful individuals since the beginning.
+ - Now the most comprehensive conception of this new world is of one politically, socially and economically united To this end a small but increasing body of people in the world set their faces and seek to direct their lives.
+ - A biography should be a dissection and demonstration of how a particular human being was made and worked.
+ - Biologists can be just as sensitive to heresy as theologians.
+ - When the history of civilization is written, it will be a biological history and Margaret Sanger will be its heroine.
+ - A time will come when men will sit with history before them or with some old newspaper before them and ask incredulously,“Was there ever such a world?”
+ - It is not reasonable that those who gamble with men’s lives should not pay with their own.
+ - His studies were pursued but never effectually overtaken.
+ - The great trouble with you Americans is that you are still under the influence of that second-rate – shall I say third-rate? – mind, Karl Marx.
+ - Sailors ought never to go to church. They ought to go to hell, where it is much more comfortable.
+ - If the world does not please you, you can change it.
+ - There is, though I do not know how there is or why there is, a sense of infinite peace and protection in the glittering hosts of heaven.
+ - Men who think in lifetimes are of little use to statesmanship.
+ - It is the going out from oneself that is love and not the accident of its return. It is the expedition, whether it fail or succeed.
+ - I write to cover a frame of ideas.
+ - Room to swing a cat, it seemed was absolutely essential. It was an infrequent but indispensable operation.
+ - An artist who theorizes about his work is no longer artist but critic.
+ - You are trying to do a more difficult thing than record folk songs; you are trying to record life.
+ - Good books are the warehouses of ideas.
+ - There is nothing in machinery, there is nothing in embankments and railways and iron bridges and engineering devices to oblige them to be ugly. Ugliness is the measure of imperfection.
+ - In politics, strangely enough, the best way to play your cards is to lay them face upwards on the table.
+ - It is not much good thinking of a thing unless you think it out.
+ - The establishment of the world community will surely exact a price – and who can tell what that price may be? – in toil, suffering and blood.
+ - In England we have come to rely upon a comfortable time-lag of fifty years or a century intervening between the perception that something ought to be done and a serious attempt to do it.
+ - No compulsion in the world is stronger than the urge to edit someone else’s document.
+
+247 quotes

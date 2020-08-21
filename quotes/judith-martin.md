@@ -1,0 +1,107 @@
+ - If you can’t be kind, at least be vague.
+ - It’s far more impressive when others discover your good qualities without your help.
+ - The stress of making small talk with in-laws is called being part of a family.
+ - There are three social classes in America: upper middle class, middle class, and lower middle class.
+ - Greece is a good place for rebirths.
+ - Hypocrisy is not generally a social sin, but a virtue.
+ - Adorable children are considered to be the general property of the human race. Rude children belong to their mothers.
+ - Generosity and gratitude are inseparably linked.
+ - Allowing an unimportant mistake to pass without comment is a wonderful social grace.
+ - Like language, a code of manners can be used with more or less skill, for laudable or for evil purposes, to express a great variety of ideas and emotions. In itself, it carries no moral value, but ignorance in use of this tool is not a sign of virtue.
+ - The dinner table is the center for the teaching and practicing not just of table manners but of conversation, consideration, tolerance, family feeling, and just about all the other accomplishments of polite society except the minuet.
+ - When virtues are pointed out first, flaws seem less insurmountable.
+ - Ideological differences are no excuse for rudeness.
+ - For email, the old postcard rule applies. Nobody else is supposed to read your postcards, but you’d be a fool if you wrote anything private on one.
+ - The family dinner table is the cornerstone of civilization and those who ‘graze’ from refrigerators or in front of the television sets are doomed to remain in a state of savagery.
+ - The whole country wants civility. Why don’t we have it? It doesn’t cost anything. No federal funding, no legislation is involved. One answer is the unwillingness to restrain oneself. Everybody wants other people to be polite to them, but they want the freedom of not having to be polite to others.
+ - I make a distinction between manners and etiquette – manners as the principles, which are eternal and universal, etiquette as the particular rules which are arbitrary and different in different times, different situations, different cultures.
+ - Honesty has come to mean the privilege of insulting you to your face without expecting redress.
+ - When people start hurling insults at you, you know their minds are closed and there’s no point in debating. You disengage yourself as quickly as possible from the situation.
+ - We have the reverse of the Puritan work ethic in America now. No one ever becomes a star by plugging along year after year. What is needed is flair, talent, ‘an eye,’ contacts, charisma, and, most of all, naturalness.
+ - The etiquette question that troubles so many fastidious people New Year’s Day is: How am I ever going to face those people again?
+ - Fairness does not consist so much of everybody’s doing the same thing, but of everybody’s being willing to do something that others don’t want to do.
+ - Dishonesty is not the only alternative to honesty. There is also the highly underrated virtue of shutting up.
+ - Question- Should I loan a small amount of money to a friend? Answer- If you are sure that you can, if necessary, spare both.
+ - Many people mistakenly think a new technology cancels out an old one.
+ - Manners require showing consideration of all human beings, not just the ones to whom one is close.
+ - Yes, etiquette is hypocritical. Yes, it does inhibit children – if you’re lucky. But the idea that it’s elitist and irrelevant is like saying language is elitist and irrelevant.
+ - Etiquette enables you to resolve conflict without just trading insults. Without etiquette, the irritations in modern life are so abrasive that you see people turning to the law to regulate everyday behavior. This frightens me; it’s a major inroad on our basic freedoms.
+ - Charming villains have always had a decided social advantage over well-meaning people who chew with their mouths open.
+ - When someone has tried to please you, it is rude, as well as disheartening, to respond by announcing that the effort was a failure.
+ - We are born charming fresh and spontaneous and must be civilized before we are fit to participate in society.
+ - Everybody’s an art critic.
+ - It is, indeed, a trial to maintain the virtue of humility when one can’t help being right.
+ - The idea that people can behave naturally, without resorting to an artificial code tacitly agreed upon by their society, is as silly as the idea that they can communicate by a spoken language without commonly accepted semantic and grammatical rules.
+ - Honesty is a virtue, but not the only one. If you’re in a courtroom you need the whole truth and nothing but the truth; in the living room, sometimes you need anything but. Often.
+ - What you have when everyone wears the same playclothes for all occasions, is addressed by nickname, expected to participate in Show And Tell, and bullied out of any desire form privacy, is not democracy; it is kindergarten.
+ - The invention of the teenager was a mistake. Once you identify a period of life in which people get to stay out late but don’t have to pay taxes – naturally, no one wants to live any other way.
+ - Being listened to should be sufficiently gratifying in itself, whether or not the advice is followed.
+ - The etiquette business has its emergencies, heaven knows, but it is in the nature of etiquette emergencies that once one realizes what one has done, it is too late. One might as well get a good night’s sleep and send flowers with an apology in the morning.
+ - A small wedding is not necessarily one to which very few people are invited. It is one to which the person you are addressing is not invited.
+ - Appearing to pay attention when someone is speaking is one of the cornerstones of real social interaction.
+ - One should not be assigned one’s identity in society by the job slot one happens to fill. If we truly believe in the dignity of labor, any task can be performed with equal pride because none can demean the basic dignity of a human being.
+ - When you’re in love, you put up with things that, when you’re out of love you cite.
+ - A young lady is a female child who has just done something dreadful.
+ - Nobody believes that the man who says, ‘Look, lady, you wanted equality,’ to explain why he won’t give up his seat to a pregnant woman carrying three grocery bags, a briefcase, and a toddler is seized with the symbolism of idealism.
+ - Chaperons don’t enforce morality; they force immorality to be discreet.
+ - There are always proper responses, even to rude questions.
+ - It is said that dispensing advice is easy. What is difficult is getting anyone to listen to it.
+ - It is wrong to wear diamonds before luncheon, except on one’s marriage rings. Before, after, and during breakfast, luncheon and dinner, it is vulgar to wear a mixture of colored precious stones. It is always a comfort to know that so many things one can’t afford to do anyway are vulgar.
+ - You don’t want to look too chic at a Washington party or people will think you don’t have a job worth losing.
+ - Part of the skill of saying no is to shut up afterward and not babble on, offering material for an argument.
+ - People think, mistakenly, that etiquette means you have to suppress your differences. On the contray, etiquette is what enables you to deal with them; it gives you a set of rules.
+ - It is one of Miss Manners’s great discoveries that one needn’t contradict others in order to set them straight.
+ - Protocol is etiquette with a government expense account.
+ - Nowadays people consider it a disgrace to admit that they are not stressed.
+ - It has always puzzled me, in my business, that people think they have to answer questions, no matter how disagreeable or dangerous, just because they were asked. Of course, we journalists would be out of business if they didn’t.
+ - She only maintains that it is possible, under some circumstances, for a lady to murder her husband; but that a woman who wears ankle-strap shoes and smokes on the street corner, though she may be a joy to all who know her and have devoted her life to charity, could never qualify as a lady.
+ - Knowing that others have gone through similar tragedies may be a help, but it should be remembered that every tragedy is not only commonplace but also unique.
+ - Most people who work at home find they do not have the benefit of receptionists who serve as personal guards.
+ - A general rule of etiquette is that one apologizes for the unfortunate occurrence, but the unthinkable is unmentionable.
+ - Only a person who considers himself too good for you is good enough.
+ - Sometimes we do things a certain way just because that is the way we do things.
+ - When you consider how epidemic boredom is in our time, you have to concede that entertaining is a healing art.
+ - The truly essential bargain between host and guest requires the guest only to respond promptly, show up on time, socialize with other guests, thank the host, write additional thanks and reciprocate. You needn’t bring anything.
+ - When a society abandons its ideals just because most people can’t live up to them, behavior gets very ugly indeed.
+ - There is no etiquette rule that decrees one must give out personal information to anyone who asks.
+ - Miss Manners does not mind explaining the finer points of gracious living, but she feels that anyone without the sense to pick up a potato chip and stuff it in their face should probably not be running around loose on the streets.
+ - We are all entitled to our little harmless habits, but we are not entitled to demand approval for them.
+ - There is nothing like a good friend to help you out when you are not in trouble.
+ - People will say, ‘Seventy isn’t old, it’s middle-aged,’ and I think, middle of what – 140?
+ - People who put slipcovers, doilies, plastic protectors, and cellophane on everything good that they own rarely live to see an occasion so good that all these covers are removed.
+ - You glance at an e-mail. You give more attention to a real letter.
+ - Meanwhile, the empty forms of social behavior survive inappropriately in business situations. We all know that when a business sends its customers ‘friendly reminders,’ it really means business.
+ - The pejorative term “political correctness” was adapted to express disapproval of the enlargement of etiquette to cover all people, in spite of this being a principle to which all Americans claim to subscribe.
+ - Washington knows that it is not safe to kick people who are down until you find out what their next stop will be.
+ - The simple idea that everyone needs a reasonable amount of challenging work in his or her life, and also a personal life, complete with noncompetitive leisure, has never really taken hold.
+ - Parents should conduct their arguments in quiet, respectful tones, but in a foreign language. You’d be surprised what an inducement that is to the education of children.
+ - The only way to enjoy the fun of catching people behaving disgustingly is to have children. One has to keep having them, however, because it is incorrect to correct grown people, even if you have grown them yourself.
+ - What is Thanksgiving without a nutty relative?
+ - We are all born rude. No infant has ever appeared yet with the grace to understand how inconsiderate it is to disturb others in the middle of the night.
+ - The more skillful the performance of false cheer, the more pleasing the effect is upon one’s public and on that private audience to whom one owes even more.
+ - The way one was brought up isn’t an excuse for rude behavior.
+ - The rationale that etiquette should be eschewed because it fosters inequality does not ring true in a society that openly admits to a feverish interest in the comparative status-conveying qualities of sneakers. Manners are available to all, for free.
+ - You think death is any better an excuse for desertion than any other?
+ - Nowadays, you form your beliefs to fit your behavior, not the other way around.
+ - When politeness is used to show up other people, it is reclassified as rudeness. Thus it is technically impossible to be too polite.
+ - Chaperons, even in their days of glory, were almost never able to enforce morality; what they did was to force immorality to be discreet. This is no small contribution.
+ - The underlying principles of manners- respect, fairness, and congeniality.
+ - Why bring children into a world where no one writes letters?
+ - You should resolve not to seek public approval of your private business, when you are not also prepared to accept public disapproval.
+ - Indeed, Miss Manners has come to believe that the basic political division in this country is not between liberals and conservatives but between those who believe that they should have a say in the love lives of strangers and those who do not.
+ - Miss Manners herself, while never rude, is given to pulling a fast pinch in the way of a handshake on those who believe in kissing on, not even the first date, but the first sighting.
+ - The most conventional statements are both true and welcome.
+ - What restricts the use of the word ‘lady’ among the courteous is that it is intended to set a woman apart from ordinary humanity, and in the working world that is not a help, as women have discovered in many bitter ways.
+ - What we have come to, through a combination of popular psychology and expanding technology, is a presumption that all our thoughts and feelings are worth uttering.
+ - Try not to annoy your relatives unnecessarily.
+ - Learn graceful ways of saying no and of pointing out that this pressure to do something is not in line with most people’s wishes.
+ - If it’s against state law, it’s generally considered a breach of Etiquette.
+ - A lot of men got upset at the feminist movement because they had all the toys and we wanted some.
+ - If written directions alone would suffice, libraries wouldn’t need to have the rest of the universities attached.
+ - One of the big no-nos in cyberspace is that you do not go into a social activity, a chat group or something like that, and start advertising or selling things. This etiquette rule is an attempt to separate one’s social life, which should be pure enjoyment and relaxation, from the pressures of work.
+ - We already know that anonymous letters are despicable. In etiquette, as well as in law, hiring a hit man to do the job does not relieve you of responsibility.
+ - It doesn’t matter whether the bride or the bridegroom writes the letters of thanks for wedding presents provided that these go out immediately after the arrival of each present and are not in the handwriting of the bride’s mother.
+ - Email is very informal, a memo. But I find that not signing off or not having a salutation bothers me.
+ - You do not have to do everything disagreeable that you have a right to do.
+
+105 quotes

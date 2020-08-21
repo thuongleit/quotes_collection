@@ -1,0 +1,23 @@
+ - It is good people who make good places.
+ - My troubles are over, and I am finally home.
+ - If you in the morning Throw minutes away, You can’t pick them up In the course of a day. You may hurry and scurry, And flurry and worry, You’ve lost them forever, Forever and aye.
+ - If a thing is right it can be done, and if it is wrong it can be done without; and a good man will find a way.
+ - There is no religion without love, and people may talk as much as they like about their religion, but if it does not teach them to be good and kind to man and beast, it is all a sham.
+ - The first place that I can well remember was a large pleasant meadow with a pond clear water in it. Some shady trees leaned over it, and rushes and water-lilies grew at the deep end.
+ - Good Luck is rather particular who she rides with, and mostly prefers those who have got common sense and a good heart; at least that is my experience.
+ - My troubles are all over, and I am at home; and often before I am quite awake, I fancy I am still in the orchard at Birtwick, standing with my friends under the apple trees.
+ - We call them dumb animals, and so they are, for they cannot tell us how they feel, but they do not suffer less because they have no words.
+ - God had given men reason, by which they could find out things for themselves, but He had given animals knowledge which did not depend on reason, and which was much more prompt and perfect in its way, and by which they had often saved the lives of men.
+ - What right had they to make me suffer like that?
+ - Only ignorance! only ignorance! how can you talk about only ignorance? Don’t you know that it is the worst thing in the world, next to wickedness? – and which does the most mischief heaven only knows. If people can say, ‘Oh! I did not know, I did not mean any harm,’ they think it is all right.
+ - He is called the horse.
+ - My doctrine is this, that if we see cruelty or wrong that we have the power to stop, and do nothing, we make ourselves sharers in the guilt.
+ - Give me the handling of a horse for twenty minutes, and I’ll tell you what sort of a groom he has had.
+ - Why don’t they cut their own children’s ears into points to make them look sharp? Why don’t they cut off their noses to make them look plucky? One would be just as sensible as the other. What right have they to torment and disfigure God’s creatures?
+ - If you get into the habit of being quick it is just as easy as being slow.
+ - Oh! if people knew what a comfort to a horse a light hand is...
+ - I am never afraid of what I know.
+ - Now I say that with cruelty and oppression it is everybody’s business to interfere when they see it.
+ - I don’t believe in religion, for I don’t see that your religious people are any better than the rest.
+
+21 quotes

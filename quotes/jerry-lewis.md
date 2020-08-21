@@ -1,0 +1,38 @@
+ - You might as well like yourself; just think about all the time you’re gonna have to spend with you.
+ - Adrenaline is wonderful. It covers pain. It covers dementia. It covers everything.
+ - You may catch more flies with honey than vinegar, but you’ll get them to work harder if you use a flyswatter.
+ - The doc told me I had a dual personality. Then he lays an 82 dollar bill on me, so I give him 41 bucks and say, ‘Get the other 41 bucks from the other guy.’
+ - I’ve had great success being a total idiot.
+ - I don’t want to be remembered. I want the nice words when I can hear them.
+ - People hate me because I am a multifaceted, talented, wealthy, internationally famous genius.
+ - It’ll keep you alive for another 10 years if you get yourself a laugh once a day: either provoke it, or look around in the wildest laboratory in the world, the public.
+ - Don’t you understand how dramatic it is to be a comic? To be a fool, to get people to laugh at this show-off? Milton Berle could take Laurence Olivier and stick him under the table if he wanted to. And so could I.
+ - I never got a formal education. So my intellect is my common sense. I don’t have anything else going for me. And my common sense opens the door to instinct.
+ - Pity? You don’t want to be pitied because you’re a cripple in a wheelchair? Stay in your house!
+ - Every man’s dream is to be able to sink into the arms of a woman without also falling into her hands.
+ - I am probably the most selfish man you will ever meet in your life. No one gets the satisfaction or the joy that I get out of seeing kids realize there is hope.
+ - Gambling is part of the human condition. I love it. I have the best time gambling. I’ve been winning fortunes, and I’ve been losing them.
+ - Comedy is a man in trouble. And without it, there’s no humor.
+ - People say, “How would you like to be remembered?” I don’t want to be remembered. Gimme a break. What I want is to hear what’s great about me now. Let me hear it! In the box you don’t hear these eulogies.
+ - I have some very personal feelings about politics, but I don’t get into it because I do comedy already.
+ - This is the pain pacemaker. I’ve got a battery under my skin. From that battery are two electrodes that go into the spine where they cut bone away to accommodate it. Now I put on the power here. If I have the pain, the stimulator starts. It’s tingling, like when your foot falls asleep, you know?
+ - The day you’re born, you get the pink slip on YOU. Outright ownership. You must only share that life with those that you and only you choose.
+ - Postwar America was a very buttoned-up nation. Radio shows were run by censors, Presidents wore hats, ladies wore girdles. We came straight out of the blue – nobody was expecting anything like Martin and Lewis. A sexy guy and a monkey is how some people saw us.
+ - If I found the cure for dystrophy tomorrow, I would do a telethon in four weeks for acute pain that in this country is a bigger problem than cancer, heart, sickle cell, anemia, name it. It is – it’s hitting 70 million Americans.
+ - I get paid for what most kids get punished for.
+ - When I was onstage doing the work, adrenaline killed the pain because I never hurt in front of an audience.
+ - I have nothing against women. As a matter of fact there’s something about them that I love, but I just can’t put my finger on it.
+ - I tell young comics, ‘Do you want this badly enough? It’s there. But you have to go get it. And if you think I’m going to give you the key to the lock of that door, there is no key, there is no lock, and there is no door.’
+ - A woman doing comedy doesn’t offend me, but sets me back a bit. I, as a viewer, have trouble with it. I think of her as a producing machine that brings babies in the world.
+ - I never tell an audience what they can expect. I never have and I never will. I’m an entertainer for 75 years.
+ - When I would be myself, I was being big-headed. I was being egotistical. I was a megalomaniac, when it really was just having not to be a monkey for a few hours a day. And fulfilling the need to be a man.
+ - I think the cartoons that they’re children are watching, particularly ‘The Simpsons,’ they’re OK. I think that the adult audience is making much too much of the danger that they imply. That’s not the case. The danger for children today, honey, is the news. Keep them away from news on television.
+ - I’ve had the greatest respect for my work in this country by Americans. Critics have no brains.
+ - If you’re an old pro, you know how well you’re doing when you’re doing it, and your inner government spanks you if you’re not doing well.
+ - Don’t give me paper – I can get the same lawyer who drew it up to break it. But if you shake my hand, that’s for life.
+ - When I hit around 65, 66, I started to feel tremendous worth and incredible personal esteem. I was becoming very cognisant of my contribution to the American spirit of helping your fellow man and all of the good stuff.
+ - Make film, shoot film, run film. Do something. Make film. Shoot anything.
+ - People think I’m against critics because they are negative to my work. That’s not what bothers me. What bothers me is they didn’t see the work. I have seen critics print stuff about stuff I cut out of the film before we ran it. So don’t tell me about critics.
+ - I turned down ‘Some Like It Hot.’ See how smart I am? I felt I couldn’t bring anything funny to it. The outfit was funny. I don’t need to compete with the wardrobe.
+
+36 quotes

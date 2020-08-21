@@ -1,0 +1,67 @@
+ - Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do.
+ - Everything is practice.
+ - There is always someone out there getting better than you by training harder than you.
+ - The more difficult the victory, the greater the happiness in winning.
+ - Success isn’t determined by how many times you win, but by how you play the week after you lose.
+ - A team is not made up of isolated individuals. Always stay in the game. Don’t be passive. Football is a team game. No one plays alone. Success depends on your whole team being a single unit.
+ - No individual can win a game by himself.
+ - Most important is be a good man.
+ - Football is the only sport where you put people together, it doesn’t matter if you are rich, or poor, or black, or white. It is one nation. This is the beauty of football.
+ - Great teams are not made up of many well-rounded players. Great teams are made up of a variety of players, each having their own strengths.
+ - Everything on earth is a game. A passing thing. We all end up dead. We all end up the same, don’t we?
+ - I played futsal growing up in Baurd. In futsal you need to think quick and play quick so its easier for you when you move to normal football.
+ - I was born to play football, just like Beethoven was born to write music and Michelangelo was born to paint.
+ - I don’t believe there is such a thing as a ‘born’ soccer player. Perhaps you are born with certain skills and talents, but quite frankly it seems impossible to me that one is actually born to be an ace soccer player.
+ - I want to do my best to make the people happy. I play with my heart for the sport.
+ - Football is the best, is the biggest sport in the world.
+ - Brazil eats, sleeps and drinks football. It lives football!
+ - George Best was the greatest player in the world.
+ - If I pass away one day, I am happy because I tried to do my best. My sport allowed me to do so much because it’s the biggest sport in the world.
+ - Football is like a religion to me. I worship the ball, and I treat it like a god. Too many players think of a football as something to kick. They should be taught to caress it and to treat it like a precious gem.
+ - Sport is something that is very inspirational for young people.
+ - A penalty is a cowardly way to score.
+ - You must respect people and work hard to be in shape. And I used to train very hard. When the others players went to the beach after training, I was there kicking the ball.
+ - If you don’t give education to people, it is easy to manipulate them.
+ - I don’t think I’m a very good businessman. I act too much with my heart.
+ - The level of football in England is the top. English football is the leader in the world.
+ - When you control the ball you control the score.
+ - I sometimes lie awake at night and wonder why I am still so popular and, to be honest, I don’t know.
+ - When football stars disappear, so do the teams, and that is a very curious phenomenon. It is like in the theatre, in a play, where there is a great star. If the star is not well, the whole cast suffers.
+ - Of course, my father was a soccer player. He used to play very good. Then, when I was young, eight or nine years old, ten years old, I just want to be like my father.
+ - The biggest family in the world is football, because football has more associate – and FIFA, for example – has more associates than UNESCO.
+ - The head talks to the heart and the heart talks to the feet.
+ - The bicycle kick is not easy to do.
+ - Every kid around the world who plays soccer wants to be Pele. I have a great responsibility to show them not just how to be like a soccer player, but how to be like a man.
+ - It was with a homosexual, I was barely 14 years old. But let’s be fair, I wasn’t the only one who did it. He was a man in Bauru that all our team visited.
+ - Enthusiasm is everything. It must...
+ - Considerable research on successful soccer players and their developmental history, affirms that a good percentage of them have spent time in isolation, working on soccer skills.
+ - No doubt, I am earning more money with my endorsements than I ever earned playing soccer.
+ - Everyone talks about the forwards, the players when they are scoring goals. But sometimes I look for the complete player not just the players who score but those who can pass.
+ - Always when I come to the field, I try to do my best for other people.
+ - If you ever want to be a decent player, you have to be able to use both feet without stopping to think about it.
+ - People always ask me: ‘When is the new Pele going to be born?’ Never. My father and mother have closed the factory.
+ - Wherever you go, there are three icons that everyone knows: Jesus Christ, Pele and Coca-Cola.
+ - The first World Cup I remember was in the 1950 when I was 9 or 10 years old. My father was a soccer player, and there was a big party, and when Brazil lost to Uruguay, I saw my father crying.
+ - When I was playing, they said soccer was a man’s world and women should remain on the sidelines, all I can say is I’m glad I never had to go up against Mia Hamm.
+ - We’re not great friends, but I admire him. If he thinks he’s the best player of the century, that’s his problem.
+ - Brazil, always they buy from the United States. The first who was sell to the United States was football.
+ - When you play against dirty players or very tough players, it’s easy to escape because you know what they’re going to do. But when the player is tough but intelligent, it’s much more difficult.
+ - The World Cup is a very complicated tournament – six games, seven if you make it to the final – and maybe if you lose one game you’re out, even if you’re the best.
+ - Nelson Mandela was one of the most influential people in my life. He was my hero, my friend, and also a companion to me in our fight for the people and for world peace. Let us all continue his legacy with purpose and passion.
+ - Brazil is crazy about football. People, they wait for this moment, but this doesn’t mean we are going to win the championship. That is the problem.
+ - Everybody knows my life. I won a lot of tournaments and scored more than 1,000 goals, won three World Cups but I could not play in Olympic Games.
+ - I love people. I wanted to be with the people. I wanted to give something back what I get from football, because God gave everything to me.
+ - Yes, Ronaldinho is bigger than me. Exactly 4 centimeters.
+ - Yes, I have a lot of business interests. But I don’t work for just anyone, and I choose the companies very carefully.
+ - Over the years I’ve learnt to live with two persons in my heart. One is Edson, who has fun with his friends and family; the other is the football player Pele. I didn’t want the name. ‘Pele’ sounds like baby-talk in Portuguese.
+ - For 20 years they have asked me the same question, who is the greatest? Pele or Maradona? I replay that all you have to do is look at the facts – how many goals did he score with his right foot or with his head?
+ - I treat everybody the same. You know I love to be with people: the youngsters.
+ - The World Cup is a very important way to measure the good players, and the great ones. It is a test of a great player.
+ - Ronaldo has come through for the past two or three years and is the best in Europe. I think at the moment no doubt Ronaldo is the best player.
+ - To be a striker you need to be in good shape.
+ - I represent Brazil all over the world. Wherever I go I have to do my best, to not disappoint the Brazilian people. And that I’ve done.
+ - I think that France, Germany, Spain, Holland and England will join Brazil in the semi-finals.
+ - I’ve come to accept that the life of a frontrunner is a hard one, that he will suffer more injuries than most men and that many of these injuries will not be accidental.
+ - I always think that I would have become an actor if I hadn’t been a soccer player.
+
+65 quotes

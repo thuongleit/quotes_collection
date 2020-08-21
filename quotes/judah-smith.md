@@ -1,0 +1,45 @@
+ - Grace is a person. And his name is Jesus.
+ - Notorious sinners didn’t kill Jesus. Religious people did.
+ - We need a bigger estimation of God and a smaller estimation of sin.
+ - God’s love is so extravagant and so inexplicable that he loved us before we were us. He loved us before we existed. He knew many of us would reject him, hate him, curse him, rebel against him. Yet he chose to love us. God loves us because he is love.
+ - A moment with Jesus changed everything.
+ - You didnt access love, love accessed you!
+ - Jesus sees our sin more clearly than anyone, yet He loves us more than anyone.
+ - Once you savor God’s goodness, sin holds no lasting appeal.
+ - Be the same person privately, publically and personally.
+ - You don’t have to be good to be Jesus’s friend. You just have to be honest.
+ - Don’t cheapen Jesus’s sacrifice by trying to pay him back.
+ - Don’t allow the opinions of other people to shape your concept of him. Get to know him yourself, and let the goodness of God change you from the inside out.
+ - Jesus didn’t care about the scandal. He cared about the scandalous.
+ - God transforms us one area at a time.
+ - Nowhere in the Bible, however, do we find God distinguishing between levels of sin. God doesn’t share our rating system. To him, all sin is equally evil, and all sinners are equally lovable.
+ - Sometimes God takes your life for some crazy twists and turns.
+ - Christianity is not about not swearing. It’s not about not having impure thoughts. Really, it’s not about not at all. Christianity is about Jesus.
+ - Are you struggling with sin? You don’t need more will power. You need more of Jesus.
+ - Indifference was our greatest enemy.
+ - But difficult situations and wrong choices conspire to trap us in hopelessness.
+ - Don’t you know you are the only Jesus many people will ever see? In compromising your lifestyle, you forfeit your capacity to accurately reflect God’s image and endanger an entire generation’s understanding of Jesus.
+ - The common denominator is that we all need help.
+ - Sometimes our brains are our own worst enemy because grace isn’t logical.
+ - When you look in the eyes of grace, when you meet grace, when you embrace grace, when you see the nail prints in grace’s hands and the fire in his eyes, when you feel his relentless love for you – it will not motivate you to sin. It will motivate you to righteousness.
+ - Responsibility is good for your soul.
+ - God is not in a hurry to fix us. Our behavior is not his first priority. We are his first priority. Loving us, knowing us, affirming us, protecting us. That is his top goal and his main concern.
+ - It seemed too good to be true. That’s grace.
+ - Make rules and follow rules as needed, but don’t focus on riles. Focus on faith. Focus on grace. Focus on Jesus.
+ - Grace is God-given power to live differently.
+ - I’ve never met a person who exaggerated God’s love. Never. It’s impossible.
+ - Sometimes we get way too fixated on how powerful sin is and how weak we are. We worry that if we relax for a second, we’ll mess up royally and ruin everything. Ironically, our paranoia only serves to make us more conscious of our sinfulness.
+ - We need to abandon our scale and adopt God’s because our misguided labels keep us from the right kind of interaction with people.
+ - What we do on Sunday absolutely doesn’t matter unless it meets us on Monday. Changes us on Monday. Transforms us on Monday.
+ - The Bible is meant to be down-to-earth. It was written for real people facing real issues.
+ - When we meet grace, it becomes the fuel of our faith. We pray, we read our Bibles, we worship and we live the purest lifestyle we can because we love a person.
+ - We are often harsher judges than God himself.
+ - A father doesn’t say, ‘Don’t go that way.’ He says, ‘ome follow me.’
+ - It’s interesting how people try to redefine God to their liking. They bring him down to their level so they can understand him, then they reject him because he is too much like them.
+ - I wonder if we have a lot of sons running around saying, “I want a Dad.” But you won’t abide in anyone.
+ - It is absolutely essential to have a living visible example of what a Christian ought to be.
+ - I think people would be surprised to discover that their challenges and struggles are not too dissimilar to us, average ordinary people, we’re all looking for essentially the same thing and I think that’s faith and hope and love and meaning and of course satisfaction, peace, joy.
+ - Rules are not bad, but they can’t save anyone.
+ - If we could get people to think about Jesus, we reasoned, Jesus was more than able to reveal himself to them.
+
+43 quotes

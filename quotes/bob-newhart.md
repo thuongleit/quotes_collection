@@ -1,0 +1,79 @@
+ - I am a minimalist. I like saying the most with the least.
+ - Laughter gives us distance. It allows us to step back from an event, deal with it and then move on.
+ - Don’t be silly and don’t waste your time.
+ - I was never a Certified Public Accountant. I just had a degree in accounting. It would require passing a test, which I would not have been able to do.
+ - Television series are like the stock market. There’s room for bears and bulls but no room for pigs.
+ - One of the first things you ever learn as a stand-up is don’t show fear.
+ - The only way to survive is to have a sense of humour.
+ - All I can say about life is, ‘Oh God, enjoy it!’
+ - I didn’t need the elf outfit to play an elf; I could just play an elf.
+ - I feel more comfortable in comedy.
+ - You should have a value system. You can win if you stick with your value system.
+ - There are a lot of questions I keep asking myself about why I do comedy. I guess I laugh to keep from crying. And I guess if you ever get me crying, I might not stop. This is the way I look at tragedy or else I’ll cry.
+ - Doormen are kind of invisible, people don’t know their names. They just say, Thank you, or Good morning. I’d never thought about doormen before. They’re a vanishing breed. More electronic doors are being introduced.
+ - The problem is that we live in an uptight country. Why don’t we just laugh at ourselves? We are funny. Gays are funny. Straights are funny. Women are funny. Men are funny. We are all funny, and we all do funny things. Let’s laugh about it.
+ - I don’t want to find the secret. I’m afraid all the joy will go out of it if I find the secret.
+ - I’m most proud of the longevity of my marriage, my kids, and my grandchildren. If you don’t have that, you really don’t have very much.
+ - You shouldn’t get too close to the truth, because then maybe you stop being funny.
+ - Don’t ever have two dogs. That way you won’t know which one to blame.
+ - The best advice I could give someone trying to get into the comedy field is to take advantage of every opportunity you have to work to hone your skills.
+ - Cell phones have gotten so small, you can’t tell who’s a cell phone user and who’s a schizophrenic.
+ - I really don’t know what makes a comedian. I think it’s a family background and environment. Yet if you put the same ingredients in another person, he may never utter a funny line.
+ - Marriage and fatherhood heighten the disillusion that we all think we are born handy. We confidently believe that we can fix things around the house, as if it’s part of the collective brain that was further enhanced by eighth-grade shop class.
+ - There’s a lot of cynicism. Let’s really enjoy Christmas, with all that’s going on in the world.
+ - I think you should be a child for as long as you can. I have been successful for 74 years being able to do that. Don’t rush into adulthood, it isn’t all that much fun.
+ - One of the first things that you learn as a stand-up is, you’re the boss. It’s your stage, and don’t screw with me because I’ll make you look bad, which I had to do, because you wind up with drunks and loud people.
+ - I think one reason for a successful marriage is laughter. I think laughter gets you through the rough moments in a marriage.
+ - I worked in accounting for two and a half years, realized that wasn’t what I wanted to do with the rest of my life, and decided I was just going to give comedy a try.
+ - It’s getting harder and harder to differentiate between schizophrenics and people talking on a cell phone. It still brings me up short to walk by somebody who appears to be talking to themselves.
+ - I love portraying the totally indifferent person.
+ - People with a sense of humor tend to be less egocentric and more realistic in their view of the world and more humble in moments of success and less defeated in times of travail.
+ - This stammer got me a home in Beverly Hills, and I’m not about to screw with it now.
+ - The only thing I have never done is a Broadway play. I’m not sure I have the discipline necessary to do a Broadway play. I know it holds a fascination for certain actors.
+ - I’ve been told to speed up my delivery when I perform. But if I lose the stammer, I’m just another slightly amusing accountant.
+ - I was not influenced by Jack Benny, and people have remarked on my timing and Jack’s timing, but I don’t think you can teach timing. It’s something you hear in your head.
+ - The reason I’m a psychologist is based in part on my telephone routines. Much of my humor comes out of reaction to what other people are saying. A psychologist is a man who listens, who is sympathetic.
+ - Sometimes you forget you’re famous. You wonder, Why is that person staring at me?
+ - Every new routine I have ever written and performed probably occurred extemporaneously. Then after you have fleshed it out and tried it out in front of a number of audiences and it works, you put it down on paper.
+ - More and more, as I get older, people come up to me and say, ‘Thank you for all the laughter.’ And my standard answer is, ‘It was my pleasure.’ But that’s the truth.
+ - Because of the spin-meisters and the focus groups and the way politics is run now. It’s run by polls and focus groups. So it’s even more true today, I think, than it was some 40 years ago.
+ - Jack Benny was, without a doubt, the bravest comedian I have ever seen work. He wasn’t afraid of silence. He would take as long as it took to tell the story.
+ - I still feel thirty, except when I try to run.
+ - Humor’s a weapon if you want to make it one.
+ - I wasn’t much good. When I went into the line on a fake – I would holler ‘I don’t have it!’
+ - There’s gratification in making somebody laugh. It’s a wonderful sound. I find myself, to this day, doing it, wanting to make people laugh.
+ - I think that what comes through in Chicago humor is the affection. Even though youre poking fun at someone or something, theres still an affection for it.
+ - I can’t remember the last live-action, non-animated Christmas movie.
+ - I don’t have a show anymore. I don’t have a check coming in every week. This is important to me, I got to score a million tonight or it could all be over.
+ - I couldn’t play off people that I don’t personally like.
+ - I never had an aversion because I was active in the drama club. If I had that aversion I certainly wouldn’t put myself in the position of being on stage. Of course, in the drama club you’re hiding behind a character.
+ - When I started out in 1960, I thought it might possibly last a couple of years. I never expected it to last 42. I take great satisfaction in that longevity.
+ - You do a clean show and it’s over and the audience have enjoyed themselves and you’ve enjoyed yourself, and you haven’t had to resort to shock.
+ - I kind of do it in my head, then I’ll try pieces of it on stage and if it looks promising, I’ll put it together.
+ - But I really believe that if you have the ability, there is an obligation to make people laugh.
+ - As an actor, you generally want to see the other actor’s face.
+ - You never know when you’ll come upon something and it’s going to be fodder for new material.
+ - Well I was much too practical to presume to have a career in comedy.
+ - All comedians are, in a way, anarchists. Our job is to make fun of the existing world.
+ - I’ve done more than I thought I was ever going to do. I’ve had a very long and very satisfying career.
+ - I’ve been married forty-five years. I think laughter is the secret.
+ - The giant superstars are people whose talent is so enormous that their death wish can’t destroy it.
+ - In today’s world, you would call my father mostly unaccessible. I’m not sure that isn’t true of most fathers at that time. He went through the Depression. I don’t know what that would have done to my psyche.
+ - A collison is what happens when two motorists go after the same pedestrian.
+ - I think everyone probably starts out sounding like someone else, but gradually you develop your own sound.
+ - I’m very open to the up-and-comers.
+ - Women are more emotional. They do get flustered. Which is not to say that men are better than they. It’s simply the way it is.
+ - It was a decision to work clean. I just prefer to work that way. I have no problem with comedians who don’t work that way. There was a temptation in the early ’70s to reconsider. I decided against it.
+ - When you’re going for a joke, you’re stuck out there if it doesn’t work. There’s nowhere to go. You’ve done the drum role and the cymbal clash and you’re out on the end of the plank.
+ - Well, my career choice made a difference because I never would have met my wife, Jenny. I met her through comedian Buddy Hackett. He set us up on a blind date and then we got married.
+ - I was influenced by every comedian I ever saw work. That’s the only way you learn how to do it.
+ - I’ve been a very lucky actor.
+ - The first time I got up in front of an audience was terror, abject terror, which continued for another four or five years. There still is, a little bit.
+ - I think there are still words you can’t use in family entertainment that you can use in a sitcom today.
+ - I don’t know how many sacred cows there are today. I think there’s a little confusion between humor and gross passing for humor. That’s kind of regrettable.
+ - Continuing to do stand-up is always a challenge because the audiences and the environments in which you work very often differ.
+ - I don’t have a stack of scripts.
+ - Funny is funny is funny.
+ - I think there’s a part, just a part of comedians, that is still childlike.
+
+77 quotes

@@ -1,0 +1,21 @@
+ - I have no regrets. Regrets are meaningless. You can’t change yesterday or tomorrow. You can change only this present moment.
+ - We hate Slowdive more than we hate Hitler.
+ - When I cut myself I feel so much better. All the little things that might have been annoying me suddenly seem so trivial, because I’m concentrating on the pain.
+ - The only perfect circle on the human body is the eye. When a baby is born it’s so perfect, but when it opens its eyes it’s just blinded by the corruption and everything else is a downward spiral.
+ - The only freedom left is the freedom to starve.
+ - It’s important not to be embarrassed by your past. The contradictions are part of what we are.
+ - I’m not a person who can scream and shout so this is my only outlet. It’s all done very logically.
+ - Love is an impossible concept.
+ - I have a very childlike rage, and a very childlike loneliness.
+ - I’m not really worried what people think about me. Because I judge myself harsher, and on more strict terms, than they ever could probably.
+ - All my life I’ve felt weak compared to other people. If they want to crush me then they can. But I know I can do things that other people can’t.
+ - Everything in life has let me down.
+ - I believe in nothing but it is my nothing.
+ - It’s about people who take their frustration out on everyone around them. I never raise my voice. Cutting myself or hurting myself is the way I deal with anger.
+ - In terms of the ‘S’ word, that does not enter my mind. And it never has done. In terms of An Attempt. Because I am stronger than that. I might be a weak person, but I can take pain.
+ - I was celibate until the age of 21. I stayed in my bedroom reading Camus and Nietzsche.
+ - Self abuse is anti-social, aggression still natural.
+ - There’s an awful lot of white British kids who have never really gone hungry, always had a roof to live under but at the same time are desperately unhappy. It’s not total poverty, just a poverty of ideas.
+ - All you can do to the past is to never want to be like it.
+
+19 quotes

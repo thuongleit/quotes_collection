@@ -1,0 +1,60 @@
+ - If you fall down those stairs and break both of your legs, don’t come running to me!
+ - Heathcliff. The “hero” of Wuthering Heights. Although no one knows why. He’s mean, moody, and possibly a bit on the pongy side. Cathy loves him, though. She shows this by viciously rejecting him and marrying someone else for a laugh. Still, that is true love on the moors for you.
+ - A nod is as good as a wink to a blind badger.
+ - He said, “Hi, gorgeous,” which I think is nice. I admire honesty.
+ - Still, life carries on. Exams to be examined. Serious things to be thingied.
+ - He had everything a dream boy should have. Back, front, sides, Everything. A head.
+ - Mr. Darcy was in Pride and Prejudice and at first he was all snooty and huffy; then he fell in a lake and came out with his shirt all wet. And then we all loved him. In a swoony way.
+ - He who laughs last laughs the laughiest.
+ - I‘ve said it once and I will say it again, why can‘t everyone just speak English? The Americans give it a bit of a go – why can‘t other nations?
+ - You make me laugh like a loon on loon tablets!
+ - Shut up Jas, you are not Baby Jesus.
+ - What in the name of Hitler’s panties and matching bra set was she talking about?
+ - When girls walk home we put on lippy and makeup. We chat. Sometimes we pretend to be hunchbacks. But that is it. Perfectly normal behavior.
+ - Anyway, then it said on the news, “And tonight the Prime Minister has just got to Number Ten.” I looked down at Jas and said, “Ooer.” Meaning he’d got to number ten on the snogging scale. And then we both laughed like loons. Vati just looked at us like we were mad.
+ - Its okay I’m wearing really big knickers.
+ - Overslept and had to race to get a life to Jas’s with my dad. No time for yoga or makeup. Oh well, I’ll start tomorrow. God alone knows how the Dalai Lama copes on a daily basis. He must get up at dawn. Actually, I read somewhere that he does get up at dawn.
+ - At that point Ms Fox came in and said, “Hello, carry on as if I am not here.” Then she lay down on the floor.
+ - HOOOOOOOOORRRRRRRRNNNNNNNNN!!!!!!!!
+ - How do you make yourself not like someone?
+ - I am soooo excited, I am over-excited. I’m hysterical, I may have to slap my own face in a minute at this rate.
+ - How many times do we all have to do this? Get up, go to school, again? Before everyone admits it’s a crap idea?
+ - Honestly, what planet do these people live on? And why isn’t it farther away?
+ - Your soul shines through even if you haven’t got mascara on.
+ - Through my curtains I can see a big yellow moon. I’m thinking of all the people in the world who will be looking at that same moon. I wonder how many of them haven’t got any eyebrows?
+ - He came over and ruffled my hair, which is technically assault. I could get on the blower to ChildLine.
+ - And the kittykats would have to erect scaffolding and a pulley to get him down. Mind you, I wouldn’t put that past them. Sometimes when they are behind the sofa supposedly purring, I think they are drilling.
+ - Vaisey looked like a startled earwig.
+ - The fly in her argument is that when she says, ‘they’ will feel like lemons, we don’t know who ‘they’ are. And ‘they’ might BE lemons.
+ - Everyone is so obsessed with themselves nowadays that they have no time for me.
+ - What if you were really meant to be with someone? But you kept messing about and having the Horn and so on and you lost them.
+ - Here is my recipe for a mood enhancer. Take a friend, preferably one with a really annoying fringe and outsize pants, and when she is rambling on swiftly, push her into a ditch and run away.
+ - I wanted to kill her and make her eat her fringe. And her knickers.
+ - I am exhausted by trying to get along with the Lord.
+ - Some things in life are not pleasant but they have to be done. For instance, German and maths.
+ - I like the idea that I can talk to any teenage girls. You know, in a language that makes sense to them.
+ - Jas, you are three hundred miles away. You would have to have nunga-nungas the size of France for Jock to be able to rest his hand on them.
+ - Out on the moors, The lonely moors, I roll around in sheep poo. Heathcliff, it’s youuuuu, I hate you, I love you tooooo. Let me in, I’m here, it’s meeeee, Catheeeeeeee. Look out of your windooooow.
+ - Here is another marvy glimpse into the gothic basement that I call my mind.
+ - Dance of the Sugar Plum Bikey. Yes, that’s got a nice ring to it.
+ - I’m not a ice cream, i’m a human being.
+ - This is the first day of the rest of my life. So why is my hair sticking up like a cockerel?
+ - What shall I say? I must tread a fine line between glaciosity and friendlinosity. With just a hint of ’you don’t know what you are missing, my fine-feathered friend.
+ - I’ve never had anyone say they love me before. Libby lobes me, that is true, but there is something a bit menacing about the way she says it.
+ - Rosie laughed in a not too reassuring way if you like sane laughter.
+ - Oh no. I’ve just accidently paid a visit to the cakeshop of love. I haven’t put back my Italian cakey, but I have accidentally picked up a Dave the Tart.
+ - You’re fourteen years old. You’ve only had that hair for fourteen years and you want to change it already! How bored are you going to be with it by the time you are thirty? What color will you be up to by then?
+ - I don’t want to be rude to the afflicted but Uncle Eddie is bald in a way which is the baldest I have ever seen.
+ - When uncle Eddie does his impression of ‘Like a Virgin’ it’s like Madonna is coming out of his body!? Christ what an image.
+ - I think ‘growing up’ would mean that you are incredibly tolerant and easygoing, liked everything, curious about the world because you weren’t so egotistically driven.
+ - Shakespeare is just some bloke who keeps ranting “what light trough yonder window breaks” its the moon for god sakes!
+ - Jas, whatever Tom has under his trousers is between you and him.
+ - Rosie get off your desk, and please put your beard away.
+ - My cousin Georgia says that boys are like gazelles. She says the get alarmed when they get close to girls. And they have to leap off into the woods like gazelles in trousers. Or have I just made that up?
+ - When Mutti and Vati came in I didn’t speak to them. I just unfurled the CAT MOLESTERS banner I had made.
+ - As I have often said, she has two styles of acting: with or without the beard.
+ - I am looking at you and you are looking at me. This is very good. I am looking and I am liking. You are looking and you are thinking, ‘I hope she doesn’t hit me with her crop.’ But that is because I am me and you are you.
+ - I am going to become a writer for Cosmo – you don’t have to make any sense at all. Or maybe I’ll be a bloke, they don’t have to make sense either.
+ - And that’s when it fell off in my hand.
+
+58 quotes

@@ -1,0 +1,30 @@
+ - I thank my parents for the greatest gift of all: poverty.
+ - I would like to thank my parents in Vergaio, a little village in Italy. They gave me the biggest gift: poverty.
+ - You’re serving. You’re not a servant. Serving is a supreme art. God is the first servant. God serves men but he’s not a servant to men. – Eliseo Orefice.
+ - It’s me, it’s my habit to perform live onstage every four, five years. In Italy, it’s my habit.
+ - I would like to be Jupiter, and lie down in the firmament and make love to everybody.
+ - My father was a farmer and my mother was a farmer, but, my childhood was very good. I am very grateful for my childhood, because it was full of gladness and good humanity.
+ - To laugh or cry is the most beautiful thing in the world.
+ - My duty is to try to reach beauty. Cinema is emotion. When you laugh you cry.
+ - The exquisite truth is to believe in something that maybe you know is a fiction, but you believe in it willingly.
+ - To be in front of an audience and pretending, and to lie, this is the principle of acting.
+ - My mother and my father went to the cinema for the first time when I made my first movie in 1978.
+ - For me, Fellini was like a watermelon. It is there. A watermelon cannot die.
+ - The first movie I saw – and I don’t know if it influenced me – was Ben Hur. We watched it outside in a corn field, and it ran backwards, so the first movie I ever saw was Ben Hur backwards.
+ - Only comedians can talk about death, life, God and Virgin Mary. If I was a tragic actor, I couldn’t allow myself. But with this accent I can do it. I can talk with death in person because I am a clown. Yes. And I am proud to be a clown – very much.
+ - Dante Alighieri is a universal poet, and great creators, they are writing for everybody always. Every single verse is very moving, and the beauty – if we don’t understand, we just stay listening to the sound and it’s like hearing music.
+ - I remember in the circus learning that the clown was the prince, the high prince. I always thought that the high prince was the lion or the magician, but the clown is the most important.
+ - In Italy, the country where fascism was born, we have a particular relation with the Holocaust, but as a turning point in history it belongs to everybody in the world. It is a part of humanity.
+ - This is a terrible mistake, because I used up all of my English.
+ - The most important thing is to continue to be yourself. The day after the Oscars, you have to get on with your life. To be honest and true to yourself.
+ - I do not think the American peoples are idiots. They are a very playful and sensitive people! I know them!
+ - I am like a cartoon strip; I am like Donald Duck; everybody knows me in Italy.
+ - When I first saw a Fellini movie, I came out of the movie theatre and decided to become a lawyer! I thought to myself, it’s impossible to make something so beautiful!
+ - What is more simple than to tell to a little boy, ‘This is not the truth, it is a game?’
+ - Fellini and Bunuel changed my life for me, they are my favourites. If it is true that movies are dreams, both of them, Fellini and Bunuel were shooting in a dream way.
+ - Sometimes poetry, it is incomprehensible. But we need incomprehensible stuff! It is very healthy to talk about incomprehensible things! It is very healthy! We need it!
+ - My mother brought me magicians and witches, because I was very ugly, really revolting. So she thought somebody had put a spell on me – this is the truth – so she made me drink some horrible terrifying potions, for year.
+ - Fellini belongs to nature.
+ - Maybe sometimes I have been wrong with some movies. Anyway, I try to do my best.
+
+28 quotes

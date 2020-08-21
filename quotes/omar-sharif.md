@@ -1,0 +1,29 @@
+ - For some men, nothing is Written unless they Write it.
+ - To learn bad dialogue is so difficult and so boring, and to work with a stupid director who tells you to do the wrong thing, etcetera, it’s just unbearable.
+ - I want to live every moment totally and intensely. Even when I’m giving an interview or talking to people, that’s all that I’m thinking about.
+ - I didn’t want to be a slave to any passion anymore. I gave up card playing altogether, even bridge and gambling – more or less. It took me a few years to get out of it.
+ - I don’t think I could live without a deck of cards in my hands.
+ - Making love? It’s a communion with a woman. The bed is the holy table. There I find passion – and purification.
+ - I don’t watch any films. Billy Elliot is the only film I’ve seen in the last 25 years. Oh, and ET. Both of which I loved!
+ - My philosophy is that when I go out of my room, I’m prepared to love everybody I meet, unless they’re bad.
+ - I’ll never know what my life would have been like if they hadn’t made Lawrence of Arabia. What would I be? I would maybe have 10 children, a very fat wife. I would be very fat myself. I don’t know.
+ - They chose me for Lawrence of Arabia because I spoke English, had black hair, black eyes and a moustache. It was all luck.
+ - I love to be with my son and my grandchildren, like normal people. I have no particular idea of what I represent to other people. It’s very mysterious to me. I don’t understand it.
+ - I had too many big passions in life and it gets in the way of work. You can’t concentrate properly on the one thing.
+ - I’ve always been extremely lucky in my life.
+ - Women know when they’ve got the menopause but men don’t quite know. They know it afterwards.
+ - Working gets in the way of living.
+ - I’m very wary about giving advice. I think it’s very dangerous to give advice to people, except if you know them very well.
+ - There are lots of wonderful old Italian actors. You don’t need to take an Egyptian to play an Italian actor.
+ - I can’t say I gave up totally my passion for women but almost.
+ - I don’t think any actor feels comfortable watching themselves in movies. You must be very narcissistic. The problem with your own opinion of yourself is that contrary to the normal spectators, when you watch a film you are in, you only watch yourself.
+ - People don’t have to be beautiful any more. We don’t have any Audrey Hepburns, Rita Hayworths or Ava Gardeners. When you look at Al Pacino and the greatest actors in Hollywood they’re all common-looking.
+ - The reason it has relevance is because I, as a popular Arab personality – the Arab people like me and respect me – thought it was time for me to make an ever so tiny statement about what I thought about this whole thing.
+ - They didn’t accept me theory – not a theory, but just a thought I had about this character. I noticed that this man only exists when the boy comes into the grocery.
+ - I decided I didn’t want to be a slave to any passion any more except for my work, i had too many passions – bridge, horses, gambling. I want to live a different kind of life, be with my family more because I didn’t give them enough time.
+ - This character in the film, these things that he says which sound like advice and wise things, they are very common for Orientals. It’s all the tradition.
+ - I see only defects because I’m not following the scene as it were. I’m not following the other person. It’s like the best thing to clarify this is the theater.
+ - This is one of the factors that also made me very much want to make this film, apart from the fact that I loved it. If the boy hadn’t been Jewish and the man hadn’t been Muslim, it wouldn’t have made any difference to the film. I don’t think it’s relevant, really.
+ - He read his mind. He’s a strange sort of man, isn’t he? It’s not just the advice and the wisdom that he has.
+
+27 quotes

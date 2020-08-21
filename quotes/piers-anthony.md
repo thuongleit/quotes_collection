@@ -1,0 +1,41 @@
+ - The biggest fool is the one who thinks he knows it all.
+ - Here’s a secret: fictive text doesn’t necessarily flow easily. Most of the time it’s more like cutting a highway through a mountain. You just have to keep working with your pick, chipping away at the rock, making slow progress.
+ - People talk – they sneer at escapism. Well, there are those of us who need it.
+ - Keep writing, because not only does practice improve skill, it gives you more chances to score on the market. I did that for eight years before making my first sale.
+ - Information is power. – Humfrey.
+ - Polishing: a useful lesson for the hopeful writer. You say your tormented prose doesn’t read as well as mine? Neither does mine, at first!
+ - Being terrified but going ahead and doing what must be done – that’s courage. The one who feels no fear is a fool, and the one who lets fear rule him is a coward.
+ - Barbarian – A Code of Conduct honored by all true barbarian warriors, requiring excellent coordination with weapons, closeness to nature, awkwardness with women, common sense, and completion of the mission.
+ - Every person professes to love good and hate evil, but in his actions his real preferences emerges.
+ - SF is the literature of the theoretically possible, and F is the literature of the impossible.
+ - Be what you are; it is better that way. – Dolph.
+ - Bink knew the dolphin only from old pictures; it was a kind of magic fish that breathed air instead of water.
+ - One day you’ll discover that the opinions of worthless people are worthless.
+ - A horse is wonderful by definition.
+ - She looked around. “Oh, I’ve just got to hug somebody! You!” And she hugged Puck, the little ghost horse. “And you.” She hugged Pook, and Peek, and even the nose of the moat monster. “But not you,” she decided, encountering the zombie.
+ - I hope to read a Harry Potter novel soon, to see what it’s all about. I admit to being annoyed that many good light fantasy writers have had trouble getting published, in England and elsewhere, when it is obvious the readers were waiting for us all along.
+ - All things make sense; you just have to fathom how they make sense.
+ - The library is a place of mental diversion, learning, and comfort for anyone who has an intellect. I know of no librarian who when asked for food for the mind will offer a stone. What more could anyone ask?
+ - For our stories are not yet finished, and perhaps will never be.
+ - Never thought I’d see the day when Death was denied. That leaves taxes as the only certainty.
+ - No novel is a clone of any preceding one, though with a background cast of characters and things that has grown to thousands, there are many familiar aspects.
+ - Dor woke again as dawn came. The sun had somehow gotten around to the east, where the land was, and dried off so that it could shine again.
+ - Have a working spouse, because you won’t earn a living from writing – not at first, if ever. My wife worked for years to support us.
+ - That most dangerous of opponents: the one who took pains to comprehend the position of his adversary.
+ - But I don’t read or listen for pleasure. I have too much else to do.
+ - When you steal from the library, you are preventing anyone else from reading that book, and the very notion makes me want to drop you in the Void.
+ - If the fiercest conglomerate monsters had souls, with all that implied, who could condemn them as evil?
+ - But one must go where one’s road leads, even when it’s a distressing road.
+ - At present I answer about 100 letters a month, and read 300 emails.
+ - We are all creatures of our ancestry! There is no right and wrong, objectively.
+ - At the time I wrote Xone I had never been on the Internet.
+ - Adults had the notion that juveniles needed to suffer. Only when they had suffered enough to wipe out most of their naturally joyous spirits and innocence were they staid enough to be considered mature. An adult was essentially a broken-down child.
+ - Obviously it could be, because it was.
+ - Normally I work out a general summary of what I mean to do, then start writing, and the details can be different from my anticipation. So there is considerable flow, but always within channels.
+ - I think it’s a shame that something as creative and vital to the nature of the human species as story-telling is largely controlled by the soulless cretins known as publishers.
+ - Happy children do not seem to grow up to be writers.
+ - It would be easier to write a novel without reader input, but I feel the fiction is richer for it.
+ - I don’t want ever to be guilty of what my critics claim: doing formula without original elements.
+ - I wish my readers took less of my time – about a third of my working time goes to them – but I love and need them all.
+
+39 quotes

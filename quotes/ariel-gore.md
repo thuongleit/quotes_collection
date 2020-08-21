@@ -1,0 +1,32 @@
+ - When you study postpartum depression, there is a very clear understanding that in communities where you see more support, there is less depression.
+ - Your heart is the size of your fist; keep loving, keep fighting.
+ - The last introvert in a world of extroverts. Silence: my response to both emptiness and saturation. But silence frightens people. I had to learn how to talk. Out of politeness.
+ - In all of my looking at happiness, one thing I noticed right away is that the opposite of happiness isn’t unhappiness or even depression, it’s anxiety. It is something that can constantly block our happiness, or our chance to reach that sort of meditative state in our work or our home lives.
+ - I don’t know if my mother was a narcissist – or bi-polar or borderline. Those were words she tossed around over the years.
+ - If you need help or advice, ask for it, but don’t worry too much about hurting other people’s feelings by not doing what they say. If your gut says no, trust it. Do what seems right.
+ - One thing that blocks flow is self-consciousness.
+ - Everything is freedom and everything is loneliness. Make your choice and let the rest fall away.
+ - A lot of positive psychology is stuck in being the psychology of privilege, and I reject that.
+ - A lot of women make choices based on how they saw their mother’s choices working out, how they saw the choices of the women elders in their lives working out. There’s some rebellion in that, but there’s also some deep reflection.
+ - When we strike a balance between the challenge of an activity and our skill at performing it, when the rhythm of the work itself feels in sync with our pulse, when we know that what we’re doing matters, we can get totally absorbed in our task. That is happiness.
+ - Researchers warn us against walking out on married life without a dang good reason.
+ - I think there are different kinds of happiness. We know when we’re happy a lot of the time, but then there are those moments that have more of an afterglow, when the happiness has more depth.
+ - New Agers have always told us that we create our own realities. Mind over matter.
+ - Nourish the world with your words, yo.
+ - Artists and writers have to understand and live the truth that what we are doing is nourishing the world.
+ - When I was a kid, my mother’s parenting style teetered between benign neglect and intense bouts of violence.
+ - Looking for the perfect day is not going to make us happy, because that day isn’t going to come.
+ - I’ve never been socially outgoing, but I suspect I’ve gotten more and more ambivalent about making new friends. I’m irritated by how-do-you-do chit-chat, but that’s how new relationships usually begin.
+ - I always do like seeing other people dance in their cars. It’s one of the things that makes me happy.
+ - Some caregivers want to reciprocate the care they themselves received as children.
+ - Conventional wisdom tells us we’ll only be happier after a divorce if the marriage itself was a war zone.
+ - They say change gets more difficult as we get older – each year we’re more stuck in our ways, more reluctant to learn something new.
+ - Settling other people’s land is an American tradition.
+ - My own habit had always been to write about the things that ticked me off in a given day. If I kept a journal at all, I kept it to vent.
+ - In our cultural history, all emotions have been more culturally acceptable to women.
+ - Before I published anything, I dreamed of publication, but I didn’t actually write for it. I imagined that writing for an audience was something for fancier people. I aspired, but mostly I wrote for myself. I wrote because it made me happy.
+ - I’m sure there were plenty of loving, attentive mothers in the ‘me generation,’ but none of them lived at my house.
+ - With each beat, the heart pumps nearly three ounces of blood into the arteries – seventy-five to ninety gallons an hour when the body is at rest.
+ - In my experience, staying in a marriage that my ex and I both agreed had all its best moments behind it was epically depressing.
+
+30 quotes

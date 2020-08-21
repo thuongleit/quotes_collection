@@ -1,0 +1,275 @@
+ - Assume nothing, question everything.
+ - There’s no such thing as a kid who hates reading. There are kids who love reading, and kids who are reading the wrong books.
+ - You’re my best friend, my first and only love, and the most beautiful girl I’ve ever seen.
+ - Be calm. Be Zen. You are Buddha.
+ - I never miss a good chance to shut up.
+ - Better readers are better thinkers.
+ - I write larger than life. It’s what I do.
+ - Keep this in mind: there are no coincidences.
+ - But what is life if you don’t live it?
+ - Because what’s worse than knowing you want something, besides knowing you can never have it?
+ - Everything I loved was taken away from me, and I did not die.
+ - The hardest part about parenting is when I have to be The Dad – aka the Fun-Sucker – as opposed to being a friend.
+ - When I write I pretend I’m telling a story to someone in the room and I don’t want them to get up until I’m finished.
+ - Beware the anger of a patient man.
+ - If you’re not reading – with your heart as well as your brain – you will be one stupid grown up. Even worst, you’ll be missing out on one of the best experiences you can possibly have. Nowhere will you meet more interesting people than in books.
+ - Stop trying to write sentences and start trying to write stories.
+ - Denial is not just a river in Egypt.
+ - The weird, weird thing about devastating loss is that life actually goes on. When you’re faced with a tragedy, a loss so huge that you have no idea how you can live through it, somehow, the world keeps turning, the seconds keep ticking.
+ - If I’m writing and a chapter isn’t coming, I just move ahead.
+ - A lot of times you get people writing wonderful sentences and paragraphs, and they fall in love with their prose style, but the stories really aren’t that terrific.
+ - The funny thing about facing imminent death is that it really snaps everything else into perspective.
+ - The weird, weird thing about devastating loss is tha life actually goes on.
+ - Well, that’s an evil smile...
+ - Do you like to eat things? -I love eating. I list it as a hobby.
+ - This time I wouldn’t forget him, because I couldn’t ever forgive him – for breaking my heart twice.
+ - Knowledge is a terrible burden. It may help you, but it might also destroy you.
+ - Reading is not work, not a chore, not a drudgery; reading is the most joyful thing, yet, in the world.
+ - Men suck, even imaginary ones.
+ - We is always so much better than I.
+ - I’ve been looking for you a long time, I just didn’t know it. But now I do.
+ - Why, the little Voice inside my head, of course. You mean you don’t have one? I did.
+ - You see, one of the best things about reading is that you’ll always have something to think about when you’re not reading.
+ - Bad stuff does happen somtimes, Nicolas. Always rememnber that, but remember that you have to move on, somehow. You just pick up your head and stare at something beautiful like the sky, or the ocean, and you move the hell on.
+ - The writing in Mission to Paris, sentence after sentence, page after page, is dazzling. If you are a John le Carr fan, this is definitely a novel for you.
+ - Fear is not the answer, not ever.
+ - Popcorn for breakfast! Why not? It’s a grain. It’s like grits, but with high self-esteem.
+ - Have you been playing in toxic waste lately?
+ - Dead Max was the biggest oxymoron in history.
+ - I believe we should spend less time worrying about the quantity of books children read and more time introducing them to quality books that will turn them on to the joy of reading and turn them into lifelong readers.
+ - My choices were to either give in and let them kill all of us or fight back with everything I had. I chose the second one, ’cause I’m just funny that way.
+ - I don’t damsel well. Distress, I can do. Damseling? Not so much.
+ - I choose you, Max. -Fang.
+ - I offered to pee on him, but they said no.
+ - You stand out like a fart in a church.
+ - He landed 10 feet below with a sickening crunch-i’m guessing his enhancements didn’t allow him to bounce back up like a ball. we call that a design flaw.
+ - People always remember the worst day of their lifes. It becomes a part of them forever.
+ - It’s been said that love finds you when you’re ready.
+ - Your mind creates your reality. If you expect nothing, you open up the universe to give you options. If you expect the worst, you usually get it.
+ - Homework is a term that means grown up imposed yet self-afflicting torture.
+ - It’s so strange. Everything can be going alone just great, and then one day, whack, you’re blindsided – a lousy, crammy blow you didn’t see coming.
+ - Cats are like Baptists. You know they raise hell, but you can never catch them at it.
+ - Life is hard, and a lot of people come home tired from work. If they’re gonna spend half an hour reading, they want some entertainment and a sense of achievement. So that’s what I give them. That’s all I’m trying to do. Is that really so wrong?
+ - Being the leader means you have to make life or death decisions sometimes.
+ - Dreams die hard. And sometimes they don’t have to die at all.
+ - Sundown had bloodied the horizon over the uneven rooftops of South Boston. Birds were perched on every roof and seemed to be watching the girl walking slowly below. – Cradle and All.
+ - It gets so tiring, this strong-picking-on-the-weak stuff. It was the story of my life -literally- and it seemed to be a big part of the outside world too. I was sick of it, sick of guys like these, stupid and bullying.
+ - Always expect the unexpected. Right around Thanksgiving, when the new Alex Cross will be out. It’s called Four Blind Mice and it’s a pretty amazing story about several murders inside the military.
+ - A friend of mine once defined love as finding someone you can talk to late into the night.
+ - Well, I don’t know. Mostly I just suck up what life throws my way, stomp on it, and then keep going. I don’t dwell much on what I am or how I got this way. It just is. I just am. I’m Max, and whatever form I take, it’s good enough for me.
+ - I muttered a swear word to myself. After I heard Angel cussing like a sailor when she stubbed her toe, my new resolution was to watch my language. All I needed was a six-year-old mutant with a potty mouth.
+ - Sometimes being a leader isn’t about winning. Sometimes it’s about doing what’s right, instead of what’s powerful.
+ - Dr. Martinez: “I take it you don’t want me to call your parent?” Max: “Uh, no.” Hello, lab? May I speak to the test tube please?
+ - I only have two speeds. Hostile and Smart-Aleck. Your choice.
+ - And there I was, pretty as heck, brown eyes, a few freckles, fashion challenged, and a bad attitude. Max II.
+ - So you have your price. Your soul for a cookie.
+ - Once I was seated, I couldn’t help people-watching. I’ll admit it, I’m an addict from way back.
+ - Life can be like walking on a high wire. Falling seems a tiny misstep away.
+ - You’re just here for the ride. For the incredible, indescribable Maximum Ride. – Max’s Voice.
+ - The hardest mysteries to solve are the ones you come to near the end, because there isn’t enough evidence, not enough to unravel, unless somehow you can go all the way back to the beginning – rewind and replay everything.
+ - I don’t believe in making war with food. Food is not the enemy. Said by Claire in The 5th Horseman.
+ - I mean, who cares about SpongeBob SquarePants? I’m sitting here with Wolverine! -random kid talking to Ari.
+ - You know, I guess I just don’t like to talk a lot about sad things. Now you know my flaw. What good does it do to talk about sad things in the past?
+ - Well, I get under people’s skins. It’s a gift I have, what can I say?
+ - The best way to get kids reading more is to give them books that they’ll gobble up – and that will make them ask for another.
+ - Half the time when brothers wrestle, it’s just an excuse to hug each other.
+ - What I’m really addicted to is getting people to understand that if their kids aren’t competent readers coming out of middle school, it’s really going to be hard for them in high school.
+ - My life would never contain a convenient, pain-saving plan when it could stretch a problem out into an endless agony of uncertainty and torture.
+ - I love you. I love your smile, your snarl, your grin, your face when you’re sleeping.
+ - They call me, The Sharkalator.
+ - There are terrific models for success with reluctant readers, but many school systems and state governments need to set aside their ‘not invented here’ and ‘we have more important problems than education’ attitudes.
+ - SITTING TIGHT? Holing up? Waiting for answers? Those are things I’m not good at. Planning a massive attack against mechanical geeky-like things when i was already furious and itching to kill something? Piece o’cake.
+ - Pain is a message, and you can choose to ignore that message.
+ - Right now, America looks like a fatheaded, shortsighted, gas-guzzling arrogant blowhard to the rest of the world.
+ - I don’t know why, but life is usually more complicated than the plans that we make.
+ - It was a little weird that they were friends. But then, maybe freaks just tended to find each other.
+ - Plus her mom was so awesome. She was strict about some things – don’t leave your socks lying around – but so not strict about other things, like calling the cops about my bullet wound.
+ - Angel wanted them all to burn in h-e- double toothpicks forever.
+ - Listen, street punk. You’re a guy, and you’re a couple inches taller, and maybe forty pounds heavier, and ooh, you’re in a gang. But I’ve survived ten years of Catholic school, and I will cut you off at your knees without a blink. Do you understand?
+ - I’m a freaking princess when it comes to other people’s feelings. Yo dogbreath, get your paws of the everglades. -Max.
+ - The act of laughing releases some nice chemical into your brain, you feel good and it’s free.
+ - Six Seconds should be Rick Mofina’s breakout thriller. It moves like a tornado.
+ - A classroom. People trying to stick me in classrooms was becoming as predictable and annoying as people trying to kill me, but with less-fun results.
+ - Advanced life-forms, my seweet patootie. Jerks. Both of them.
+ - I’m not Stubborn; I’m right!
+ - And then as always, I saw the prayer coming at me. And, as always, Number 1 killed me! Set me on fire, cooked me to medium rare and then ate me! I really, really, really hope I haven’t just given away the ending of this story.
+ - How could you stop loving me?
+ - She had a lot of hugs to give, but not enough people to give them to.
+ - Home is wherever we all are together.
+ - They turned to Angel. “We will call you Little One,” the leader said, obviously deciding to dispense with the whole confusing name thing. “Okay,” said Angel agreeably. “I’ll call you Guy in a White Lab Coat.” He frowned. “That can be his Indian name,” I suggested.
+ - I vill eat nine Snikuhs bahs visout bahfing.
+ - Is it important to be right or is it important to do what’s right? That’s one of the hardest lessons to learn.
+ - Witihin seconds the headhunter had lost control of his car and it squealed, sliding sideways right into several other cars. Cool!? said the Gasman.
+ - I looked into her eyes. “Mom, who do you pray to?” I just pray, Daniel. That’s all.
+ - Oh no! Don’t drag us away from Antartica and take us to the playground of the rich and famous! Not that briar patch! -Max.
+ - She didn’t flirt with him, but they hung out together a lot, and every time I saw their heads bent over a computer screen or map, it made my stomach clench. And my teeth. And my fists.
+ - Fang looked at me, hope in his eyes, and I smirked at him. I save the huge emotional kissy-face for imminent death scenes. This probably didn’t qualify.
+ - We probably looked like starving orphan children. Hey! We were starving orphan children.
+ - Fang, fang. I love you. I looooove you. I love you thiiiiiiiiiis much!
+ - I think sometimes we give people a lot of credit just because they’re writing nice sentences even if it isn’t adding up to much.
+ - It’s funny how different people are. If I’d been this kid and someone was snarling “Ordering a pizza?” at me, without even thinking, I would have snarled back “Yeah. You want pepperoni?” -Maximum Ride.
+ - I do 30 to 40 books a year, so it’s a fair amount of reading. Back and forth between nonfiction and fiction. I usually have three or four things that are open on my desk, on my bed, on audiobook in the car.
+ - We’re just not cut out for all this media circus crap. But then, you already knew that.
+ - I learnt to love reading. And then I started scribbling stories, and I liked that even more.
+ - Congratulations. The fact that you’re reading this means you’ve taken one giant step closer to surviving until your next birthday.
+ - Just because life is hard, and always ends in a bad way, doesn’t mean that all stories have to, even if that’s what they tell us in school and in the New York Times Review. In fact, it’s a good thing that stories are as different as we are, one from another.
+ - The subject for a lot of non-fiction is very emotional, but if you read it, it’s the most boring, dry stuff. I wanted ‘Torn Apart’ to be extremely accessible and readable.
+ - A boy and a girl, fated to rule all. Two will rise, and One will fall.
+ - What was premeditated murder if not calculated leverage?
+ - Gazzy called over to me “I can’t see anything!” “I can’t see anything either,” Iggy complained. “I’m rolling my eyes, Ig.” I had to tell him that because he couldn’t see me do it, what with his blindness and all.
+ - Ultimately, a great thriller is a roller coaster ride. I like to think that’s a promise I have never failed to keep, and one that I’d say has served my books well.
+ - I’m very emotional. I do feel stuff, for better or worse.
+ - Every once in a while, I’ll have a ‘Do you know who I am?’ moment, at least in my head. I hate that.
+ - There you have it: our lives in a nutshell. Emphasis on nut.
+ - Fang: When do I get out of here? Max: They say a week. Fang: So, like, tomorrow? Max: That’s what I’m thinking.
+ - Sometimes he seems like a droid – or a drone. Fang of Nine. Fang2-D2.
+ - I vill now destroy the snickuh bahrs!
+ - To be without love is to be without grace, what matters most in life. We is so much better than I.
+ - Then I went to bed and cried into my pillow. I wasn’t sad, not at all. It was just so beautiful to have an intense feeling and the right words at the same time. What are we but our stories?
+ - Besides my great fashion sense? I play a mean harmonica.
+ - When your own romantic life is falling apart, everyone else’s looks fabulous.
+ - Just for fun I flew in huge banking arcs, taking deep breaths, enjoying the feel of my newly weightless hair. The stylist had called it “wind tossed.” If only she knew.
+ - Ari felt like, Hellooo, I have wings! I turn into a wolf! Blending is out is out of the question!
+ - I read some, and then visited with people involved in this curious, exciting and somewhat misunderstood sub-culture. I met with a fang maker, who offered to fit me for an exquisite pair.
+ - What, eBay isn’t good enough for us?
+ - I have a folder in my office with about 400 ideas in it. So it will take me another 40 years to get through those.
+ - It was the building from the drawing in my brain. And if you don’t think that’s a weird sentence, maybe you should reread it.
+ - Excellent. They were flammable.
+ - When I wanted information, it was silent; when I didn’t want to hear from it, it got chatty. It was alost as irritating as Fang.
+ - Other than my hundreds of arrests I really don’t have that much experience with the law. While the majority of people aren’t corrupt, there certainly is an awful lot of corruption in this country.
+ - Fang looked at the newest bird kid. Dylan was an inch or two taller than he was, and somewhat heavier built, though he still had the long, lean look of a human-avian hybrid-you couldn’t make bricks fly.
+ - I’ll just ask now: What is it about my persona that draws every insane, power-hungry nutcase to me like a magnet?
+ - Even needing to get to Angel, we couldn’t forget the basic necessity of eating.
+ - Fang. I had to do some thinking about him. Me. I had some thinking to do about me too.
+ - Fnick -Iggy.
+ - Ari smiled. The sun was shining, the weather was great, he was eating ice cream, and all his dreams were about to come true.
+ - Louisiana, the state road maintenance forgot.
+ - I think e-books are terrific in their own right. I love being able to get on a plane and basically carry around seven books and it weigh 10 ounces.
+ - Okay, okay, okay. I understood that pushing the elevator button over and over again would not make the elevator appear sooner. But I couldn’t help myself.
+ - He gives my hand a tight squeeze, but that desperation, that urgency between us is gone. No insecurities. Max and Fang. Fang and Max. No longer a question. We just are.
+ - Love between two people can last a long time if the people love themselves some, and are ready to give love to another person.
+ - WARNING If you dare to read this story, you become part of the Experiment.
+ - My style is colloquial storytelling. It’s the way we tell stories to one another – it’s not writerly, it’s not overdone.
+ - Fair isn’t fair, Dean. Like I’m supposed to help you because fair is fair? Try I need you to help me so I wont rip out your spine and beat you with it. I might respond to that, maybe.
+ - Can you giggle while racing for your life and protecting a six-year-old? I can.
+ - There’s nothing more annoying than cold logic and reason when you’ve got a good fit going.
+ - Bizarre! That’s the only word I can use to describe life sometimes. Just freaking bizarre.
+ - My mom had a soft heart after all! Instead of being chained by both wrists, we were only chained by one ankle! I mean, if I’d been looking for proof that she really did love me, this was it, right?
+ - The hamster called. He wants his home back.
+ - Am I tough? Am I strong? Am I hard-core? Absolutely. Did I whimper with pathetic delight when I sank my teeth into my hot fried-chicken sandwich? You betcha.
+ - It is my time. The time of maximum ride...
+ - That’d be just what I need: a rash of car thefts across America, committed by dedicated readers.
+ - Max-Dogs, dogs, go away, let me live another day.
+ - It was like meeting someone out of your dreams, or fantasies, or a beloved character from a favorite book.
+ - Was this normalcy-predictable patterns, the certainty of doing the same thing everyday? Because if so, normalcy was about to make me freak out and start screaming.
+ - I have a number of writers I work with regularly. I write an outline for a book. The outlines are very specific about what each scene is supposed to accomplish.
+ - Sometimes a happy delusion is better than grim reality.
+ - I don’t smile as much as I should, even though I smile inside a lot.
+ - What are we but our stories?
+ - Love means never having to be apart.
+ - Once a bird kid, always a bird kid. – maximum ride series.
+ - I won’t lie to you – it was hilarious. Yes, we were in trouble, yes, this was a disaster, and so one and so forth, but I have to say, seeing those upturned faces, the looks, was bout the best thing that happened to us since we’d come to New York.
+ - I am not a great prose stylist. I’m a storyteller. There are thousands of people who don’t like what I do. Fortunately, there are millions who do.
+ - Fang was going to kill me. And after I was dead, he would kill me again.
+ - You’re a fridge with wings. We’re freaking ballet dancers! -Fang.
+ - I grew up in a house full of women: my mother, grandmother, three sisters, and two female cats. And I still have the buzz of their conversations in my head. As an adult, I have more female friends than male ones: I just love the way that women talk.
+ - Seize what’s been handed you. Make smart decisions. Make decisions because life is a temporary situation.
+ - You’re lucky if you find something you like to do, and it’s a miracle if somebody will pay you to do it.
+ - How is San Francisco, Alex? Lovely city. Will you leave your heart there? Do you think it’s a good place to die?
+ - I did know that the book would end with a mind-boggling trial, but I didn’t know exactly how it would turn out. I like a little suspense when I am writing, too.
+ - Never underestimate the power of funny, it moves mountains.
+ - I looked around. As flock leader, everyone was expecting me to make a decision. Jeb’s presence here would bring uncertainty, chaos, probably danger. It would perk up my day.
+ - A vet! I started laughing weakly and had to sit on the edge of the tub. A vet. Wait till they found out how appropriate that was.
+ - The vampire underworld is much larger than most people could imagine. It exists in all the cities mentioned in the book, but also in many, many more. Teenagers, especially, seem to like to act out vampire fantasies.
+ - Yes. I owed my life, Angel’s life, and my mother’s life to a mutant’s ability to create industrial-strength snot.
+ - There’s a saying I remember from my grandmother: One today is worth two tomorrows.
+ - Iggy’s spine tightened, his face like ice. When he’d been at the School, they’d tried to surgically enhance his night vision. Now he was blind forever. Oops.
+ - I moved to leave, and Dylan actually grabbed me by my shoulders. I was so surprised that I forgot to karate-chop his elbows and break his arms.
+ - Tears were dripping onto my dress, but I wasn’t making any sound. There was no sound to express thid kind of pain. I didn’t want to move, didn’t want to do anything. Fang was not waiting for me out in the living room. Tomorrow morning, when I woke up, Fang would still be gone.
+ - I had to give him props, but how annoying of him to be a hero when I was trying so hard to dislike him. It was downright selfish.
+ - On the other hand, even a big, ’80s love van was less noticeable than six flying kids and their talking dog. So there you go.
+ - Jeezum – humans were like eggshells.
+ - Sometimes when you’re at your most certain, that’s when everything you know is wrong.
+ - I gave him a kick and he stepped back onto the third rail. Exploding, flaming eraser! This is why moms tell you to stay away from the third rail, but it sure came in handy this time.
+ - Call me crazy, but there’s just something cheering about seeing huge raptors tear into Eraser flesh.
+ - I stood my ground. “You evil scientist are all the same – evil. Count me out.” Fang and I brushed past Mr. God and walked quickly but smoothly to the exit. It was barely noon, and I’d already made a huge enemy. Dang, I’m good.
+ - They’re afraid of change, and we must change. They’re afraid of the young, and we are the young. They’re afraid of music, and music is our life. They’re afraid of books, and knowledge, and ideas. They’re most afraid of our magic.
+ - It’s our job – as parents, grandparents, aunts, uncles – to find books our kids are going to like.
+ - Every other person in the world would have looked at it and thought, Max would hate this. It was girly. It was beautiful. It wasn’t made of titanium and black leather with spikes on it. But it seemed exactly right, in a weird, heart-fluttery kind of way. And I really loved it.
+ - In the dictionary, next to the word stress, there is a picture of a midsize mutant stuck inside a dog crate, wondering if her destiny is to be killed or to save the world. Okay, not really. But there should be.
+ - Did I want a dog? No. Did I need a dog? Also no. We were six kids running for our lives, not knowing where our next meal was coming from. Could we afford to feed a dog? Wait for it – no.
+ - Honesty is always good, except when it’s better to lie.
+ - Here’s a freebie: Don’t play poker with a kid who can read minds.
+ - Part 1- In search of Hot Chocolate-Chip Cookies.
+ - I was crazily, deeply, incredibly, joyously, terrifiedly in love.
+ - Part 5 The Voice- Make that my voice.
+ - Harden your heart.
+ - Lots of women are gifting themselves with diamonds for their right hand.
+ - The trick to having obedient, unquestioning children was to have death be the other option.
+ - I knew how good love could be – I knew it was the best thing I’d ever done in my life – and yet here I was alone. I was taking chances with my life. I kept telling everybody that I was all right, but I wasn’t.
+ - You mean other than the wings? I once ate nine snicker bars in a row without barfing. It was a record.
+ - Some kids get called ‘bundles of joy’ or ‘slices of heaven’ or ‘dreams come true.’ We got ‘the fifty-fourth generation of DNA experiments.’ Doesn’t have the same warm and fuzzy feel. But maybe I’m oversensitive.
+ - I love Nudge, Nudge is a great kid, but that motormouth of hers could have turned Mother Teresa into an ax murderer.
+ - Our parents were a test tube and a turkey baster.
+ - Some poeple just don’t have what it takes to appreciate a cookie.
+ - I don’t know about the rest of you who have little voices, but something about mine made me feel completely compelled to listen to it.
+ - You know, when you’re right, that’s all you get to be.
+ - What kind of thoughtless creep would burn a book?
+ - Angel: What’s sauerkraut? Max: You don’t want it. Trust me.
+ - People always come up to me and say, ‘you should do standup.’ It’s nice to discover things about yourself. That keeps everything lively and fun.
+ - Another day. Get up and face it.
+ - Yes, I sounded like a pathetic weenie. I prefer to think of it as showing my softer side.
+ - Actually, I’d already briefed him, early this morning. Since we were up at six. Since, at six, the nurse had been overcome with the overwhelming compulsion to take Fang’s temperature right then.
+ - What are you guys doing? If you anted me to take a shower, all you had to do was pay me ten bucks, like you usually do.
+ - Blood City III: The Massacre. I’d read the summary of it online, and frankly, it sounded like the directors had just decided to film my life.
+ - I hoped I wasn’t actually dead. That would make finding our parents and saving the world really hard.
+ - I’m not a writer’s writer. I’m not a craftsman. I could be, and that would be a one-book-a-year operation.
+ - I guess I write four or five hours a day, but I do it seven days a week. It’s very disciplined, yes, but it’s joy for me.
+ - Can I come in? No! I’m in a towel! I’m blind!
+ - Yeah, well, asparagus is good for me, but it still makes me want to throw up.
+ - When its true, when it’s right, love can give you the kind of joy that you can’t get from any other experience.
+ - If Fang is in any way harmed while I’m gone-if he gets a hangnail-you won’t see another morning. Are we clear on that?
+ - I’m pretty sure that if you looked up the word “nuts” in the dictionary, you’ll find my picture. Just another fun feature of my mutant-birdkid-freak package.
+ - A good love story always keeps the pot boiling.
+ - I led the way toward the crowd, trying to look casual, like, Fly? Me? Nah.
+ - At that moment I had no mind to change, or not change, or throw against the nearest wall.
+ - Gazzy sniffed the air. “That’s explosives. It smells like Christmas!” Okay, so we’ve had somewhat untraditional Christmases. With explosives.
+ - Hollywood is a peculiar beast – people in Hollywood are nuts.
+ - Right there, in front of everyone, I threw my arms arond his neck and mashed my mouth against his. He was startled for a second, then his strong arms wraped around me so tightly I could hardly breathe. “ZOMG,” I heard Nudge whisper.
+ - If your going to look back on something and laugh about it, you might as well laugh about it now.
+ - What’s so funny ’bout peace, love, and world destruction?
+ - Time to die. -Evil Angel.
+ - I love to tell stories. It’s a delight for me.
+ - There’s always be a me and you.
+ - Excuse me? I’m alive too.
+ - A guy who hates his job isn’t going to be too charming at home.
+ - I love the idea of expanding the universe of games to some extent. At one point, they were kind of limited to boys, fanboys and whatever. I like the idea of liberation for games.
+ - Max-I’m not going to die today.
+ - Maybe he was a good a good whitecoat – like Jeb. And maybe the moon was made of cream cheese.
+ - You love him so much it feels like you can’t go on without him. You feel like you might die without him.
+ - I remembered something my first partner had told me. Never wrestle with a pig, Lindsay. You both get dirty. The pig likes it.
+ - We try not to encourage demonstrations of his mastery of the gaseous arts.
+ - For many years I had heard about an underworld consisting of people who act out a vampire fantasy while I was living in New York. Fortunately for me there are also several books on the phenomena.
+ - I was always a good student, but I didn’t read that much until I was 18 and I was working my way through college.
+ - I still felt like I might hurl, and I thought about how awful that would be in midair.
+ - You love me this much!
+ - Just in case you thought elephants were all sweetness, I can attest to the fact that this one had the time of her life scaring the bejeezus out of those dudes.
+ - There’s nothing more dangerous than than someone trying to act for the greater good.
+ - Please, I begged silently, please do not let my last moments on earth be me crammed into a tiny boat in the dark, surrounded by mechanical singing pirates.
+ - You know things have gone bad when military marches pass for pop music.
+ - It was a pretty complete list. The kind of list one makes when one cannot fall asleep because one’s thoughts keep swirling through one’s brain like a bunch of sparrows on crack.
+ - Oh great. Yoda captured us.
+ - Are you fangalicious? -Jess, a random blogger I could never be as fangalicious as you’d want me to be.-Fang.
+ - Fang felt a cold jolt, then dismissed it. Max wasn’t dead. He would know, somehow. He would have felt it. The world still felt the same to him; therefore, Max was still in it.
+ - If you’re in the room, I want to be next to you. If you’re gone, I think about you. You’re who I want to talk to. In a fight, I want you at my back. When we’re together the sun is shining. When we’re apart, everything is in shades of gray.
+ - I don’t believe in lecturing people. It’s much more effective to present reading as a fun, rewarding pastime.
+ - Nowhere will you meet more interesting people than in books.
+ - Advice: Don’t wait until someone you have issues with – especially someone you’re related to – gets shot before you work it out.
+ - I don’t think of myself as a writer.
+ - Yes, Max, you are going to die. Just like everybody else. Thank you, Confucious.
+ - Do I open it? Do I open it? Of course I freaking open it!
+ - If you’re ever feeling a lack of middle-aged white men, just pop into the Capitol. Not so much the House of Representatives, which has a bit more color and texture, but the Senate – jeez. Yes, let’s have more testosterone running the country. Maximum Ride, School’s Out – Forever.
+ - But if I could do anything? Maybe you would want to be able to save the world, the Voice said. Did you ever think of that? No. I frowned. Leave that to the grown-ups. But grown-ups are the ones destroying the world, the Voice said. Think about it.
+ - The whole duty of humanity, from a Christian perspective is: ‘To know God and to show God.’
+
+273 quotes

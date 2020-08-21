@@ -1,0 +1,128 @@
+ - Half the world’s starving; the other half is trying to lose weight.
+ - It’s a big culture of mind control too, MK-Ultra mind control rules in Hollywood. If you don’t know that, google it and look into it. It’s really hard for artists to find their voice in the media. It’s levels of brainwashing and mind control.
+ - The thing women have yet to learn is nobody gives you power. You just take it.
+ - Everything here must be done twice as no one can do it right the first time.
+ - Men read maps better than women because only men can understand the concept of an inch equaling a hundred miles.
+ - I survived my childhood by birthing many separate identities to stand in for one another in times of great stress and fear.
+ - I have horrible stage fright – you know how you go through the bi-polar stage fright thing? Then you go on drugs to get over the stage fright and perform, but then you’re not funny at all.
+ - Women are cursed, and men are the proof.
+ - I have a fierce eating disorder that has survived even bariatric surgery. I got even fatter after that! Hey, maybe fat people are just trying to get closer to others, did anybody ever that of that?!
+ - Excuse the mess, but we live here.
+ - I used to think that communing with nature was a healing, positive thing. Now, I think I’d like to commune with other things – like room service and temperature control.
+ - Laugh every day as much as you can.
+ - There isn’t a problem on this earth that a doughnut cannot make better.
+ - I believe in equal rights for all citizens. One law for all.
+ - A lot of times nerds are really artists listening to the beat of another drummer.
+ - Don’t call people names you dirty name caller you.
+ - My best friend Linda is leaving her husband just because he is unfaithful to her. That is no reason to leave the person. I feel like after that, you should stay with them and make sure that the rest of their life is sheer hell.
+ - Whatever helps you sleep is my opinion on the subject, and that’s what I like about the western world’s most popular religion, it has helped put so many people to sleep, although most of them permanently and without their approval.
+ - This bugs me the worst. That’s when the husband thinks that the wife knows where everything is, huh? Like they think the uterus is a tracking device. He comes in: “Hey, Roseanne! Roseanne! Do we have any Cheetos left?” Like he can’t go over and lift up the sofa cushion himself.
+ - I quit smoking. I feel better. I smell better. And it’s safer to drink out of old beer cans laying around the house.
+ - To expect life to treat you good is foolish as hoping a bull won’t hit you because you are a vegetarian.
+ - You may marry the man of your dreams, ladies, but fourteen years later you’re married to a couch that burps.
+ - I signed a deal with Satan because I wanted to get famous. Then I forgot I had a deal with Satan and then I got really famous.
+ - Have you heard about the women who stabbed her husband 37 times? I admire her restraint.
+ - The fact that my grown kids like to hang out with me, I mean, it just – I don’t think it really can get any better than that, I don’t think.
+ - I’m fat and proud of it. If someone asks me how my diet is going, I say ‘Fine – how was your lobotomy?’
+ - Here is my personal opinion about prostitution. If men knew how to do it, they wouldn’t have to pay for it.
+ - TV is a language all its own, a land of one dimensional stereotypes that destroys culture, not adds to it. TV is anti-art, a reflection of consumerism that serves the power structure. TV is about demographics.
+ - I remember performing on a punk stage with no mic in the middle of a mosh pit. My act was called “How to Be a Domestic Goddess.”
+ - I’m on the mirror diet. You eat all your food in front of a mirror in the nude. It works pretty good, though some of the fancier restaurants don’t go for it.
+ - Most of the books call Her a He, but I am able to ascertain what is meant, despite that semantic error...
+ - Impeach the President and the Vice President, they are traitors to America, and so are all of their supporters. Impeach! Anyone in congress who refuses to save our union from these traitors by doing nothing needs to be recalled.
+ - Diets are a temporary solution to a permanent problem.
+ - My dad taught me swears when I was a toddler, and I saw, at a really early age, that if I shocked people, I would get approval, and it made my arms itch with glee. I got addicted to it. It became this source of power in a totally powerless life.
+ - You know what, when I was thin, I thought there was a fat girl trying to get out of me.
+ - I have a huge crush on President George W. Bush. I saw him at a recent fundraiser, and he’s a babe. He’s got that Ronald Reagan charm. I think he’s hot. I respect his wife, but if he wasn’t married I’d be putting on my cowboy boots and coming around.
+ - I’m funnier now because I’m braver and less full of hate, so everything is even more ridiculous than it was before.
+ - I think I’m hysterical. I watch myself on tape and just roar – isn’t that weird?
+ - Eating cookies that you bake with your grandmother is one of the greatest social steps one must experience in order to grow up into a decent world citizen, in my opinion.
+ - My husband says, ‘Roseanne, don’t you think we ought to talk about our sexual problems?’ Like I’m gonna turn off Wheel of Fortune for that.
+ - I figure if the kids are alive at the end of the day, I’ve done my job.
+ - Sometimes for me not throwing a tantrum is what running a marathon or swimming the English Channel must be like for others of a less-challenging emotional nature...
+ - Who’s elk horn do I have to blow in order to get something to eat around here?
+ - A good man doesn’t just happen. They have to be created by us women. A guy is a lump like a doughnut.
+ - Comedy is the only hope for humanity.
+ - I meditate so I know how to find a peaceful place within to be calm and peaceful.
+ - Honestly, a lot of the human etiquette I learned in life I learned from, like, thank-you notes and dating Jimmy Kimmel.
+ - My children love me. I’m like the mother they never had.
+ - I didn’t know that being in a relationship meant you had to be nice. I thought it meant you had to hack away at the other person until they were beaten down and then were too afraid to leave.
+ - There is no scarier chasm of darkness than the human mind.
+ - Abortion is a woman’s right.
+ - Suddenly, people had three phone numbers but never answered their phones.
+ - Illiteracy is a huge problem in America. One in three adults in our country is illiterate.
+ - US needs to fix up it’s election system so that votes are fairly counted, and the Electoral College is removed.
+ - Imitation is the sincerest form of show business.
+ - Without democracy in our homes, we will never have it in the world.
+ - You can really learn from Donahue. I didn’t know you could be a woman in a man’s body. You go out and you can’t parallel park.
+ - I hold to nothing but envisioning international peace and utopia. We all have many more things in common than not.
+ - The basic thing is, people want to get paid, so they’ll say the things that get them paid, in entertainment or politics.
+ - Your body is your instrument, you play it expertly.
+ - Everything that’s written about me has such a negative taint. It just has a life of its own, like an avalanche, and I don’t think there’s anything I can do to stop it.
+ - I am an observant Jew! Now my secret is out.
+ - Husbands are never happy. My husband asked me for more space, so I locked him out of the house.
+ - A lot of men are impotent and it’s very sad. How many of you are impotent? I see. Can’t get your arms up either?
+ - I call myself a ’domestic goddess.
+ - Hollywood is the only place on earth that has more vampires, more undead, more resurrections than a month of Easter Sundays.
+ - I’ve never done anything for money, and that is why I got money. When you do stuff for money, you never get money.
+ - No government in the Middle East is innocent. Wars make the stock market go up, so no one in America is innocent either, nor anyone anywhere where capitalism reigns.
+ - Truth is available to the ears that can hear it.
+ - My daughter made me a Jerry Springer-watching kit, with crackers, Cheez Whiz, polyester stretch pants and a T-shirt with two fat women fighting over a skinny guy.
+ - I want to be the girl in Indiana Jones. I would love to do an adventure movie where I was saving the world. It might be cool if I used a lot of kitchen tools to fight off the enemy.
+ - A lot of people who are actors and artists who work in Hollywood come from a background of abuse, and you can make abused people very fearful and they’ll do what they’re told. Hollywood definitely has a point of view that it sells.
+ - You must never be afraid in New York City, because then you will call bad stuff to you and you will not like it there.
+ - I will barnstorm American living rooms. Mainstream media will be unable to ignore me, but more importantly they will be unable to overlook the needs of average Americans in the run-up to the 2012 election.
+ - And, you know, I liked writing humor. Well, I should say, I wanted to write seriously, but it kept turning funny.
+ - Any Hamas or Zionist type who tries to interfere with the labor unions and grab the money will be marched to the guillotines and subsequently beheaded. And isn’t that easier and more productive than some endless, bloody conflict? So sayeth the gospel of common sense. Happy Mother’s Day.
+ - I’m not upset about my divorce. I’m only upset that I’m not a widow.
+ - Pot enables you to think clearly without any fear or any limits. It’s a mind-expander, which is part of why it’s illegal and why drugs like Vicodin are legal.
+ - I’m a farmer now, and it’s fantastic. My goal is to be totally self-sufficient and grow everything that I eat. There’s something about earning your dinner that’s cool.
+ - My family were hitters. If you made them laugh, they didn’t hit you. My dad wouldn’t hit me if I got him with humor right between the eyes.
+ - I simply care nothing for any of your religions, as all three are fundamentally flawed, unlike the Church of Common Sense, right from the start! They call God he instead of she and all three would like to burn me at the stake for saying that!
+ - I got, like, Diane Keaton’s manager, and she was very connected; she had power. And she was like, “Your star is in tears on this comedy. Do you even notice that at all?”
+ - My husband and I didn’t sign a pre-nuptial agreement. We signed a mutual suicide pact.
+ - I loved work and I loved pouring myself into the work, you know. It was the real life that I had trouble with.
+ - I have more money than God, but not as much as Oprah.
+ - It’s the Night of the Living Dead. It’s scary out here.
+ - I can’t have cats around me because they try to steal my energy.
+ - Adults in a free country should be able to smoke a joint if they want to.
+ - I never consciously set out to talk about taboos or anything like that.
+ - Somewhere within the concept of justice, the worst of the guilty must always be removed. I cannot divorce this, not completely. The people must have justice and so I want to reinstate and enshrine the blessed and holy guillotine!
+ - I try to do women’s-point-of-view comedy. The joke is, ‘This is what I think; there’s the truth.’ I try to think of stuff that’s real broad, but the more personal it is, the more universal it is. All my friends go through the same stuff.
+ - Self-esteem is the goddamn root of all evil.
+ - Eat as much as you’d like. My philosophy has always been that all women desire to be as fat as myself but just have a great fear of doing so. Because they think they won’t get any men, but you will. You’ll get more men, and better men.
+ - There isn’t any New Man. The New Man is the old man, only he whines more.
+ - Once you get away from wanting to get paid, you can actually say some true things.
+ - I’m not going to vacuum ’til Sears makes one you can ride on.
+ - In the new world every position of power evacuated by an arrested and beheaded pedophile or bankster will be filled with a grandmother who has pledged to create heaven on earth for all children, animal and humans with the stolen money we have recovered.
+ - Being nuts is its own reward.
+ - I like it when very little children think for themselves, because they do not have access to car keys or credit cards or crack pipes, but they have some really funny lines.
+ - I avoided reality for most of my life. But once you deal with it, it’s kind of cool.
+ - I’m just into spirituality. I believe that in a previous life I used to be Shirley MacLaine.
+ - It’s not really the job of a public servant to inspire, but to get the job that the people demand done. The Democrats think that if they have hope and are inspired, things will get better, but they actually won’t.
+ - I always was a writer, but then I wanted to do stand-up because I thought that was a way that I could perform what I wrote.
+ - Everything on this earth right now is about labor and slavery. War is the only American export left that anyone wants to buy.
+ - I always felt that it was easier to take a funny person and teach them to write television than to take somebody who was a television writer and make them funny.
+ - ACORN is organizing to make sure the job of rebuilding New Orleans is done by the people of New Orleans and truly benefits the communities who have been hurt the most.
+ - My husband is almost as heavy as I am. We were married in adjoining churches.
+ - In order to be able to write a good joke, you have to find the truth.
+ - I don’t really want to hang out with politicians. I’d rather go straight to hell, and not collect $200.
+ - When I was little, that was one thing that I was told in a vision: I was going to have my own show when I grew up. And it’s going to be funny.
+ - If you spend all your time worrying about dying, living isn’t going to be much fun.
+ - A lot of people in television who’ve had successful shows claim the ‘Roseanne’ show as their starting place, and I’m really proud of that.
+ - I’m so much more famous than I am financially successful.
+ - I want to eat, cook, meet famous people and make fun of them.
+ - I try to tell people to keep having hope. It’s always what you don’t know and don’t expect that’s gonna be so great.
+ - I’m a heterosexual. I don’t know why I’m like this. I was just born this way.
+ - We never get sick of each other. That’s how sick we are.
+ - The only options open for girls then were of course mother, secretary or teacher. At least that’s what we all thought and were preparing ourselves for. Now, I must say how lucky we are, as women, to live in an age where ‘Dental Hygienist’ has been added to the list.
+ - Meditation state is a place of deep relaxation where you can pinpoint the things you do and to set a paradigm switch from effect to cause. So how to be a cause in your own life.
+ - I have great parents, and they both taught me great things, but my formative years were boundaryless.
+ - Being hated and hunted and blamed for your own suffering makes people kind of testy, nervous, and on edge, and often fundamentalist and extreme. Bombs get thrown only when people cannot honestly talk together.
+ - There’s nothing like a hardship song to set my toes a-tappin.
+ - As long as your abuser has you scared, you will stay in the cycle of abuse. Thinking of solutions helps you to escape.
+ - My kids were completely out of control, while I was working fifteen hours a day plus weekends. I screamed a lot, something I’m not particularly proud of, but it was that or firearms.
+ - I think that all comics or humorists, or whatever we are, ask questions. That’s what we’re supposed to do. But I not only ask the questions, I offer solutions.
+ - Both the Democratic and Republican parties are bought and paid for by corporate America and cater to the needs of the highest bidder as opposed to the people they claim to represent. I cannot be bought.
+
+126 quotes

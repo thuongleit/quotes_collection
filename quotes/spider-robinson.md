@@ -1,0 +1,33 @@
+ - Shared joy is increased, shared pain is lessened.
+ - Pain shared is pain lessened; joy shared is joy increased. Thus do we refute entropy.
+ - If a person who indulges in gluttony is a glutton, and a person who commits a felony is a felon, then God is an iron.
+ - We are all time travelers moving at the speed of exactly 60 minutes per hour.
+ - I’m going to live forever, or die trying !
+ - Euphemisms are for the differently brained.
+ - Anger is always – always – fear in disguise.
+ - The whole world turns upside down in ten years, but you turn upside down with it.
+ - Dreams should be forgotten when we wake. Or one day we will find ourselves unable to sleep.
+ - To be human : to strive in the face of the certainty of failure.
+ - To all the Callahan’s Places there ever were or ever will be, whatever they may be called – and to all the merry maniacs and happy fools who are fortunate enough to stumble into one: may none of them arrive too late!
+ - She danced because she needed to. She needed to say things which could be said in no other way, and she needed to take her meaning and her living from the saying of them.
+ - You know what gives me the courage to keep on living? The courage to love myself a little? It’s having a whole bunch of friends who really give a goddamn. When you share pain, there’s less of it, and when you share joy, there’s more of it.
+ - It took a couple of hundred million years to develop a thinking ape and you want a smart one in a lousy few hundred thousand?
+ - A beginning is the end of something, always.
+ - Sexual intercourse vests no property rights.
+ - Just as there are laws of Conservation of Matter and Energy, so there are in fact Laws of Conservation of Pain and Joy. Neither can ever be created or destroyed. But one can be converted into the other.
+ - Some guys step on a rake in the dark, and get mad and go punch somebody. Others step on a rake in the dark and fall down laughing at themselves. I know which kind of guy I’d rather be. So do my friends.
+ - Man, you’re no smarter than me. You’re just a fancier kind of stupid.
+ - The day Apollo 11 landed, I knew men would walk on Mars in my lifetime. I’m no longer nearly so sure. The last budget put forward in Canada contained not a penny for Mars.
+ - Librarians are like crack dealers when it comes to hooking small children.
+ - Now that I finally have the time for it, this web surfing stuff turns out to be as interesting and fun and addictive as you’ve all been telling me. Zipping from link to link, chasing an idea across the noosphere, sucking up information like a killer whale – way cool.
+ - And I’m a pair of pants with a hole scorched through the ass?
+ - Information can’t be put in any container that isn’t leaky.
+ - You become uneasy with people in direct proportion to how many lies you have to keep track of in their presence.
+ - And I repeat: if there is anything that can divert the land of my birth from its current stampede into the Stone Age, it is the widespread dissemination of the thoughts and perceptions that Robert Heinlein has been selling as entertainment since 1939.
+ - Art takes whatever – and as long as – it takes.
+ - And there’s this place called college! I mean, they want you to care, dig it, care about this education trip, and they don’t care enough themselves to make it as attractive as the crap game across the street!
+ - It’s always coldest before the warm.
+ - The delusion that one’s sexual pattern is The Only Right Way To Be is probably the single most common sexual-psychosis syndrome of this era, and it is virtually almost always the victim’s fault. You cannot acquire this delusion by observing reality.
+ - Time didn’t pass; it tailgated.
+
+31 quotes

@@ -1,0 +1,29 @@
+ - Stick a fork in him. He’s done.
+ - Baseball is like church. Many attend few understand.
+ - God watches over drunks and third baseman.
+ - As long as I’ve got one chance to beat you I’m going to take it.
+ - Win any way as long as you can get away with it. Nice guys finish last.
+ - To some it’s a six-pack, to me it’s a “support group”. Salvation in a can!
+ - I believe in rules. Sure I do. If there weren’t any rules, how could you break them?
+ - Some guys are admired for coming to play, as the saying goes. I prefer those who come to kill.
+ - You don’t save a pitcher for tomorrow. Tomorrow it may rain.
+ - Show me a good sportsman and I’ll show you a player I’m looking to trade.
+ - Ballplayers are a superstitious breed, nobody more than I, and while you are winning you’d murder anybody who tried to change your sweatshirt, let alone your uniform.
+ - In order to become a big-league manager you have to be in the right place at the right time. That’s rule number one.
+ - I never did say that you can’t be a nice guy and win. I said that if I was playing third base and my mother rounded third with the winning run, I’d trip her up.
+ - Give me some scratching, diving, hungry ballplayers who come to kill you.
+ - It’s possible to spend money anywhere in the world if you put your mind to it, something I proved conclusively by running up huge debts in Cincinnati.
+ - Buy a steak for a player on another club after the game, but don’t even speak to him on the field. Get out there and beat them to death.
+ - Branch Rickey once said of me that I was a man with an infinite capacity for immediately making a bad thing worse.
+ - Five runs ahead and he’d knock in all the runs I could ask for. One run behind and he was going to kill me.
+ - What are we at the park for except to win? I’d trip my mother. I’d help her up, brusher her off, tell her I’m sorry. But mother don’t make it to third.
+ - In the olden days, the umpire didn’t have to take any courses in mind reading. The pitcher told you he was going to throw at you.
+ - I made a game effort to argue but two things were against me: the umpires and the rules.
+ - When you’re in professional sports, winning is the only thing that matters.
+ - If you don’t win, you’re going to be fired. If you do win, you’ve only put off the day you’re going to be fired.
+ - There is only one way to pitch to Musial – under the plate.
+ - What are we out at the park for except to win?
+ - I never questioned the integrity of an umpire. Their eyesight, yes.
+ - There are only five things you can do in baseball – run, throw, catch, hit and hit with power.
+
+27 quotes

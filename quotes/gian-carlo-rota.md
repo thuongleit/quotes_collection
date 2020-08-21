@@ -1,0 +1,25 @@
+ - The apex of mathematical achievement occurs when two or more fields which were thought to be entirely unrelated turn out to be closely intertwined. Mathematicians have never decided whether they should feel excited or upset by such events.
+ - There is something in statistics that makes it very similar to astrology.
+ - The advice we give others is the advice that we ourselves need.
+ - We often hear that mathematics consists mainly of “proving theorems.” Is a writer’s job mainly that of “writing sentences?”
+ - Mathematics is the study of analogies between analogies. All science is. Scientists want to show that things that don’t look alike are really the same. That is one of their innermost Freudian motivations. In fact, that is what we mean by understanding.
+ - Nature imitates mathematics.
+ - The lack of real contact between mathematics and biology is either a tragedy, a scandal or a challenge, it is hard to decide which.
+ - The progress of mathematics can be viewed as progress from the infinite to the finite.
+ - How did he do it? He must be a genius!
+ - God created infinity, and man, unable to understand infinity, had to invent finite sets.
+ - If we have no idea why a statement is true, we can still prove it by induction.
+ - Theorems are not to mathematics what successful courses are to a meal.
+ - The pendulum of mathematics swings back and forth towards abstraction and away from it with a timing that remains to be estimated.
+ - It is a common public relations gimmick to give the entire credit for the solution of famous problems to the one mathematician who is responsible for the last step.
+ - Our faith in Mathematics is not likely to wane if we openly acknowledge that the personalities of even the greatest mathematicians may be as flawed as those of anyone else.
+ - Philosophers and psychiatrists should explain why it is that we mathematicians are in the habit of systematically erasing our footsteps. Scientists have always looked askance at this strange habit of mathematicians, which has changed little from Pythagoras to our day.
+ - Mathematicians – for what they do – are really poorly rewarded. And it’s a very competitive field, almost as bad as being a concert pianist.
+ - Making mathematics accessible to the educated layman, while keeping high scientific standards, has always been considered a treacherous navigation between the Scylla of professional contempt and the Charybdis of public misunderstanding.
+ - A technique is a trick that works.
+ - A mathematician’s work is mostly a tangle of guesswork, analogy, wishful thinking and frustration, and proof, far from being the core of discovery, is more often than not a way of making sure that our minds are not playing tricks.
+ - Very little mathematics has direct applications – though fortunately most of it has plenty of indirect ones.
+ - Mathematicians also make terrible salesmen. Physicists can discover the same thing as a mathematician and say ‘We’ve discovered a great new law of nature. Give us a billion dollars.’ And if it doesn’t change the world, then they say, ‘There’s an even deeper thing. Give us another billion dollars.’
+ - Are mathematical ideas invented or discovered? This question has been repeatedly posed by philosophers through the ages and will probably be with us forever.
+
+23 quotes

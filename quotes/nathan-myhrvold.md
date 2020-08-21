@@ -1,0 +1,91 @@
+ - Software sucks because users demand it to.
+ - Software is a gas; it expands to fill its container.
+ - Words can hurt you. In the larger world, it frames how people think about you, and it can hurt you in lots of little, subtle ways.
+ - Cooking is an art, but all art requires knowing something about the techniques and materials. Using modernist techniques, you get more control, and that allows you to be more artistic, not less!
+ - Don’t let the secret recipe die with the inventor.
+ - Nobody wants a prediction that the future will be more or less like the present, even if that is, statistically speaking, an excellent prediction.
+ - If you talk about sous-vide, then you have to talk about food safety, and microbiology, and heat.
+ - The NeXT purchase is too little too late. Apple is already dead.
+ - Business is war! Its leaders are strategic commanders, who boldly snatch victory from the jaws of defeat – and who perform other acts of derring-do. This kind of talk sounds great in the boardroom, and, for that matter, in the bookstore, where dozens of authors counsel would-be corporate warriors.
+ - Near Marseilles in the south of France, bouillabaisse is a cult food. In Toulouse and Carcassonne, the bean-based stew cassoulet is a cult food. Spain has paella and a number of others. Italy has so many, its cuisine is practically defined by them.
+ - If your kitchen smells good, your food lost something.
+ - Nuclear energy is a baseload – meaning it’s power that you can run any time you want, day or night – and carbon-free.
+ - When we first did ‘Modernist Cuisine,’ I think most people in cookbook publishing would have said, ‘This is insane.’
+ - Most decisions are seat-of-the-pants judgments. You can create a rationale for anything. In the end, most decisions are based on intuition and faith.
+ - Raw lobster tail, freeze dried, is amazing.
+ - Risk is the sort of word that is easy to discuss upfront but tough to handle when it comes time to pay the piper. There will always be some who wimp out and second-guess when the pain hits, but that is a childish reaction.
+ - It is better to predict dramatic things that don’t happen than boring things that do.
+ - In politics, religion and other areas of culture, people disagree on the worth of competing ideas. There is no equivalent to the scientific method that can determine in a robust way which ideas match the real world, and which ones can be ruled out. So conflicting ideologies persist indefinitely.
+ - Bill, we left megalomania behind a long time ago. Now we are gigalomaniacs.
+ - The new revolution in cooking can be viewed in two ways. One is that you can take any traditional food and apply modern techniques. The other approach is to create food that is quite different than anything that has existed before.
+ - Suppose that every prospective parent in the world stopped having children naturally, and instead produced clones of themselves. What would the world be like in another 20 or 30 years? The answer is: much like today. Cloning would only copy the genetic aspects of people who are already here.
+ - Microsoft, Apple, Facebook all bought huge patent portfolios to further their strategic game. They’re doing what I’m doing!
+ - The depressing thing about battery technology is that it gets better, but it gets better slowly. There are a whole bunch of problems in materials science and chemistry that come in trying to make existing batteries better.
+ - A blowtorch is a wonderful thing. You can get one of those for about 25 bucks at Home Depot. And there’s a ton of things that you can use a blowtorch for, in browning a steak or touching up the browning of a chicken or making creme brulee.
+ - It’s impossible that we’re alone in the universe. Every time we think we’re more special than others, we’re proven wrong.
+ - People who grow up in a region doubtless have a better cultural awareness of their own cuisine, but it’s also true that a lot of locals go to McDonald’s, Applebee’s and the like.
+ - Cooking is for chefs. Science informs us and lets us cook while knowing what we are doing, but it is not a replacement for the skills of a chef.
+ - The best value for money in cooking equipment, in my mind, is first a digital scale and digital thermometer. They’re both about $20. They help you cook so much more accurately that they’re both enormously valuable.
+ - Computing has gone from something tiny and specialized to something that affects every walk of life. It doesn’t make sense anymore to think of it as just one discipline. I expect to see separate departments of user interface, for example, to start emerging at universities.
+ - If you have two steaks, one that’s an inch thick, one that’s 2 inches thick, how much longer does the thicker one need to cook? It’s four times as long. It goes roughly like the square. How come cookbooks don’t tell you that?
+ - Most visions of extraterrestrial life are actually steeped in human hubris. The fictional extraterrestrials of ‘Star Trek’ or a hundred other space operas are less alien than many of my neighbors. And funny, the ones running the place are mostly WASPish men.
+ - We pay for content that we like, and we like the content we pay for. It’s a lot more satisfying to pay $7.50 for Steven Spielberg’s next epic than it is to watch my home movies for free. Even for me.
+ - There’s no way I’m going to stand up for bad ingredients. We love seasonal ingredients. It’s a false dichotomy to say that modern cooking is at odds with that, but some people want to have a great ingredient and no technique.
+ - The magic words ‘on the Internet,’ if inserted into nearly any sentence, seem to protect it from normal critical scrutiny.
+ - The idea behind a dish – the delight and the surprise – makes a difference. Great literature surprises and delights, and provokes us. It isn’t just ‘Here’s the facts – boy meets girl, boy loses girl, boy gets girl.’ It’s how you tell it.
+ - Efficiency in government is a more elusive concept than efficiency in the private economy, which may be measured relatively easily as output per units of input. What is the government’s ‘output?’
+ - No CEO ever says, ‘Damnit, we need to increase research!’ I want to encourage them to do that.
+ - Crazy ideas sometimes work, and the technological society that we have is built on a foundation of those crazy ideas that work.
+ - Making money from enforcing patents is no more wrong than investing in preferred stock.
+ - In the early days of the software industry, people cared about copyright and didn’t give a damn about patents – they copied each other willy-nilly.
+ - Wine lovers have known for centuries that decanting wine before serving it often improves its flavor. Whatever the dominant process, the traditional decanter is a rather pathetic tool to accomplish it. A few years ago, I found I could get much better results by using an ordinary kitchen blender.
+ - Some article called me the most feared man in Silicon Valley. Good Lord! Why? My teenage boys got a kick out of it: ‘Dad, how could this be true? You’re not even the most feared person in this house.’
+ - The ever-growing size of software applications is what makes Moore’s Law possible: ‘If we hadn’t brought your computer to its knees, why would you go out and buy a new one?’
+ - My career at Microsoft really was getting in the way of my cooking.
+ - The first thing that is not obvious to people is global warming is a less-than-1% effect. It’s like being shortchanged at the bank by a penny every dollar. Over a long period of time with lots of transactions, that piles up.
+ - For relatively modest amounts of sulfur dioxide injected into the atmosphere, you could easily cool Earth by 1% or more, if you want.
+ - By burning nuclear waste as fuel, we believe we can power the United States cleanly for hundreds of years without ever touching new resources.
+ - If you have a block of ballistics gelatin and a high-speed camera, pretty soon somebody gets a gun!
+ - Our reactor actually burns nuclear waste as fuel. So not only is it safe and powerful, it solves an important issue: It actually reduces nuclear waste instead of creating. It’s the reactor of your dreams.
+ - One of the problems with posing a ‘bold new plan’ is that you can’t just extrapolate from previous plans.
+ - Intellectual Ventures is a company that invests in invention.
+ - The prize for ultimate inefficiency goes to America. We have built in so many checks and balances that our ‘leaders’ are the most thoroughly hogtied of any on Earth.
+ - With cult foods, there is an underlying assumption that the best cooking ideas came generations ago. Yet culinary innovation is nothing to be ashamed of. When a chef tells me he is cooking with his grandmother’s recipe, I always wonder why. Did talent skip the past two generations?
+ - One of the ugly secrets of the renewable-energy industry is that its products make no economic sense unless they are highly subsidized.
+ - Politicians don’t like to face unpleasant realities. In truth, nobody does, but as individuals, we have no choice; if we neglect to plan ahead, we are held accountable. Fail to meet your responsibilities at work, and you get fired. Ignore your car’s gas gauge, and you get stranded.
+ - The reason societies with democratic governments are better places to live in than their alternatives isn’t because of some goodness intrinsic to democracy, but because its hopeless inefficiency helps blunt the basic potential for evil.
+ - Most estimates of the mortality risk posed by asteroid impacts put it at about the same risk as flying in a commercial airliner. However, you have to remember that this is like the entire human race riding the plane – it is one of the few risks that really could wipe us all out.
+ - Many of the things the slow food people honor were innovations within historical times. Somebody had to be the first European to eat a tomato.
+ - I’ve been on a team that won the world championship of barbecue. But barbecue’s interesting, because it’s one of these cult foods like chili, or bouillabaisse. Various parts of the world will have a cult food that people get enormously attached to – there’s tremendous traditions; there’s secrecy.
+ - Economists want their discipline to be a science, and they have nailed down a few precepts, but many of their debates are still clouded by ideology.
+ - A person’s basic humanity is not governed by how he or she came into this world, or whether somebody else happens to have the same DNA.
+ - What you do on a dinosaur expedition is you hike and look at the ground. You find bones sticking out of the dirt and, once you see something, you dig.
+ - Technological ‘revolutions’ don’t really overthrow anything – they simply append a new and dynamic market to that which went before.
+ - If people don’t get paid for their inventions, that’s not a good thing. In the case of many patents, there are people who aren’t in a position to take them to the next level. If you don’t enforce your rights, no one is going to enforce them for you.
+ - If you take a scotch whiskey and distill out the alcohol, what is left has an amazing taste to it and can be used as a flavoring for a dessert.
+ - Regardless of how it’s done, transaction costs will continue to plummet as computers get more powerful. Low transaction costs are a wonderful thing if you’re in the transaction business. They’re wonderful for consumers too, making it cheaper and easier to buy things and creating new things to buy.
+ - An efficient government is dangerous in the hands of the wrong man. Sadly, the right sort of man never seems interested in the job.
+ - Another random thing I do is the search for extraterrestrial intelligence, or SETI. And you may be familiar with the movie ‘Contact,’ which sort of popularized that. It turns out there are real people who go out and search for extraterrestrials in a very scientific way.
+ - Software-industry battles are fought by highly paid and out-of-shape nerds furiously pounding computer keyboards while they guzzle diet Coke. The stakes aren’t very dramatic. Life? Liberty? The pursuit of happiness? Nope, it’s about stock options.
+ - I wanted to figure out how long to cook things. I did some experiments and then wrote a program using Mathematica to model how heat is transferred through food.
+ - If you had a really good – battery, it wouldn’t matter that the sun goes down at night and the wind stops blowing sometimes. But at the moment, battery technology is nowhere near good enough to use at utility scale.
+ - Researchers who examined the voting records of wine judges found that 90 percent of the time they give inconsistent ratings to a particular wine when they judge it on multiple occasions.
+ - I was good at math and science, and I got lots of degrees in lots of things, but in a parallel universe, I probably became a chef.
+ - Among modern occupations, only cult leaders and TV weathermen rival the technological visionary’s ability to retain credibility despite all evidence to the contrary.
+ - Now, to find dinosaurs, you hike around in horrible conditions looking for a dinosaur. It sounds really dumb, but that’s what it is. It’s horrible conditions, because wherever you have nice weather, plants grow, and you don’t get any erosion, and you don’t see any dinosaurs.
+ - Within NASA, the shuttle is perhaps the least-groundbreaking project. Recall that Apollo was about creating brand-new technologies that did something unprecedented – putting men on the moon. The shuttle is, by comparison, a relic designed to make going into orbit routine.
+ - The physics of water is central to cooking, because food is mostly water. All steak that you cook is actually boiled on the inside.
+ - It’s very hard for individual inventors to get paid. For the same reason that private equity is valuable – broadly, that’s a good thing – in the case of patents, many that own them aren’t in a good position to take the next step.
+ - Chefs think about what it’s like to make food. Being a scientist in the kitchen is about asking why something works, and how it works.
+ - If I want popularity, I go to a chef’s convention.
+ - The simplest fix for better grilling is to line the inside of your barbecue with tin foil. It dramatically affects how evenly the heat is distributed. That crusty black hibachi or Weber grill is doing your food no favors.
+ - Why pay a fee for Internet content when a million free sites are just a click away? There’s no incentive until people are too addicted to the Net to turn off their computers, yet are bored with what’s available.
+ - The world has shown that if you provide capital and expertise to an area that is starved for capital and expertise, really good things will happen.
+ - Micropayments are great if you use them for a product or service with certain properties. It must be one where you can get away with usage-based pricing, and where there is a strong rationale for making it cheap, yet not free.
+ - I think that there is a role for food to be art; and when food is art, it can have drama, it can have spectacle, it can be theatrical. It can be this amazing experience.
+ - The techniques of being an Internet visionary are just like those of lower-tech fortunetellers through the ages. A technological visionary must tell people what they want to hear, because your company’s stock won’t rise if you spout an unpopular vision to analysts.
+ - I have a very pragmatic approach to diets. Ones you can’t stick to don’t do you any good. Some people say, ‘Just eat half of what’s on your plate,’ but I can’t do that!
+ - The whole hardware industry has experienced the phenomenon in which every time computers get cheaper, they appeal to a new set of users; every time they get more powerful, old customers upgrade.
+ - In market research I did at Microsoft Corp. in the early 1990s, I estimated that the ‘Wall Street Journal’ took in about 75 cents per copy from subscribers, $1.25 at the newsstand and a whopping $5 per copy from ads. The ad revenue let them run a far bigger newsroom than subscribers were paying for.
+
+89 quotes

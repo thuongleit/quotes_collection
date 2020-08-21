@@ -1,0 +1,35 @@
+ - Making peace, I have found, is much harder than making war.
+ - I think the worst kind of grief is unacknowledged grief.
+ - The Irish Republican Army has kept every commitment made by its leadership.
+ - One man’s transparency is another’s humiliation.
+ - Peace cannot be built on exclusion. That has been the price of the past 30 years.
+ - Your determination, selflessness and courage have brought the freedom struggle towards its fulfillment.
+ - It’s been a long time coming but the reality is that this process is at a crossroads.
+ - I stopped buying Sunday papers about 15 years ago, because you’d buy handfuls of them, and what you got, because the hard news comes from so many other channels, was opinion pieces. You’re better off spending the money on a good novel.
+ - Sinn Fein has demonstrated the ability to play a leadership role as part of a popular movement towards peace, equality and justice.
+ - There can be no such things as an Irish nationalist accepting the loyalist veto and partition. You cannot claim to be an Irish nationalist if you consent to an internal six county settlement and if you are willing to negotiate the state of Irish society with a foreign government.
+ - It might or might not be right to kill, but sometimes it is necessary.
+ - In the past I have defended the right of the IRA to engage in armed struggle. I did so because there was no alternative for those who would not bend the knee, or turn a blind eye to oppression, or for those who wanted a national republic.
+ - For good or ill, I’m a person of leadership. I do my best. I don’t dodge responsibility.
+ - Hugging trees has a calming effect on me. I’m talking about enormous trees that will be there when we are all dead and gone. I’ve hugged trees in every part of this little island.
+ - I nominate the Reverend Ian Paisley for the position of First Minister of northern Ireland.
+ - We can be revisionist, and that’s a good thing to be at times, but we shouldn’t airbrush our history, so we can only make judgments in the objective conditions of that time.
+ - War some people glamorise war and glorify war. It’s not nice, from whatever point of view you come from.
+ - You can only judge anything that happened in the times, in the times that that happened.
+ - The way forward is by building political support for republican and democratic objectives across Ireland and by winning support for these goals internationally.
+ - If you militarise a situation, you beg for an armed response.
+ - But I also hold the very strong view that republicans need to lead by example.
+ - I like to think I’m very grounded. I’m very grounded in my family. I’m very grounded in my community.
+ - I think there is a huge responsibility upon governments to understand the consequence of their decisions.
+ - When I wrote ‘Before The Dawn,’ I made it quite clear that there are lots of people involved in my life who I can’t talk about simply because I’d put them at risk.
+ - It’s hard to think of a 16-month child being anything other than a delight to be around.
+ - Once water charges are in place they will only go up. This has been the history of all these charges.
+ - There needs to be nationalist and republican confidence in unionism.
+ - Republican patience with how unionism deals with the political institutions, and with key issues like equality and human rights, will be tested because, obviously, there will be a battle a day on these matters. So lets face up to all of this with our eyes wide open.
+ - The unionists also for their part, want to minimise the potential for change, not only on the equality agenda but on the issues of sovereignty and ending the union.
+ - Sinn Fein has productively taken the example of South Africa and, as we develop the peace process, we continue to use examples from South Africa.
+ - When others stood idly by, you and your families gave your all, in defence of a risen people and in pursuit of Irish freedom and unity.
+ - The Good Friday Agreement and the basic rights and entitlements of citizens that are enshrined within it must be defended and actively promoted by London and Dublin.
+ - Sinn Fein has the potential and capacity to become the vehicle for the attainment of republican objectives.
+
+33 quotes

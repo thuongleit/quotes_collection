@@ -1,0 +1,36 @@
+ - I think good chemistry starts with mutual respect.
+ - It’s important, when going after a goal, to never lose sight of the integrity of the journey.
+ - My uncle, who was a little more flamboyant, always said the guy who dressed the best was Fred Astaire.
+ - She is Cuba. If you want to love her, you have to be with her, but you can’t be with her in her current state. It’s the point of view of all exiles – you have to leave the thing you cherish most.
+ - They say a lot of women would like to see me naked, but there’s not a lens long enough for that.
+ - I go where I’m stimulated. If I’m stimulated, I show up. As Mick Jagger sings: It’s my life and I’ll do what I want.
+ - My son loves my carbonara. I’ve tried to master that recipe – it’s very simple but very delicate. Once prepared it must be eaten quickly.
+ - It’s better not to work than to work in something you don’t want to be working in.
+ - I listen to and I play all kinds of music, and I’m interested in jazz and in bluegrass – I like it all – but Cuban music speaks to me in a certain way.
+ - I’m not the type of person who goes through all this effort for a movie, and then doesn’t care if anybody sees it. I want them to see it, and I want them to see it on the big screen.
+ - I’ve had my moments of insanity. But there is a certain responsibility to set proper examples for your children, and that influences your choices in every aspect of your life.
+ - Children make you a better everything. Daughters open up a whole different sensibility to you. When you have children, it focuses you on them as opposed to on yourself.
+ - Children need parameters, know what’s right or wrong.
+ - Pictures make a lot of money doesn’t determine whether the experience was...
+ - It depends. When it’s the right scenario, it’s just as stimulating and just as exciting for me. It’s just a question of finding a piece of material that lights a fire under you.
+ - Everything I do in my life is very instinctual and in the moment. If I’m attracted to something, that’s it. If I have reservations, those don’t change till they’re resolved. My first impression is how I go.
+ - Becoming a producer enables you to empower yourself, to make the film that you want to make. I have desires to make movies – I have movies I’m developing, and things that I’m interested in.
+ - If you want to experiment, do something temporary.
+ - I am a traditional man. I’m a product of a traditional man. He sacrificed everything for his family.
+ - You have to love the guy that you play, even if you play the villain, you’ve got to love him.
+ - Freedom was taken away from my family until we landed in America and it was given back to us.
+ - I’m a staunch anti-Castro individual.
+ - I wish we didn’t have to tell this story.
+ - My first interest was always music, and somehow that channelled itself into films and acting. I don’t know what the natural transition of it was. I mean I acted a little bit when I was young and like any kid would in a community theatre.
+ - Great writing attracts great actors. It attracts money. Without a great script, you have nothing.
+ - A man should have a right to be religious if he wants to. The government should not be involved in those decisions.
+ - My grandfather was a very elegant individual. My father also. He was a lawyer and farmer in Cuba. In Miami, he had to go to work wherever he could. But whenever it was time to go out, you saw how they cared for how they looked.
+ - If you have the right actors and you can give them the freedom to explore, you’ve done a lot of your work as a director.
+ - I think if the movie has resonance and stimulates the viewer to talk about it, you can have as large an audience as you want. The most important thing for me is that the movie exists. And that’s success enough already.
+ - I was a big fan of Joe’s film, Narc, so when you hear there’s a script coming over from Joe Carnahan, you know it’s going to be interesting because he has such a fresh voice.
+ - I’m not worried about walking the streets and looking over my shoulder because of something I might have said.
+ - The size of budgets does not alter my decision if I should do it. If there’s a movie with a budget of only $1 million that I find interesting, then I’ll sign up, but it has to be in the hands of a director who can do something with it. Ultimately, it’s a director’s medium.
+ - Movies are very hard to make, to get it all to come together. So many people have their say in what the end product of films are.
+ - I don’t control the movies that are offered to me, but I make choices based on certain parameters.
+
+34 quotes

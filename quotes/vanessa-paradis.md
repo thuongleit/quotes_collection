@@ -1,0 +1,59 @@
+ - You keep learning all the time.
+ - Life is like the ocean, it goes up and down.
+ - Love starts with a gut feeling, but that gut feeling better be nourished.
+ - It’s not my style to judge anybody.
+ - Love is the strongest and most fragile thing we have in life.
+ - When you meet the love of your life, it’s just obvious and natural and easier.
+ - My mum told me to have patience. It’s about realising that when things aren’t going the way you want them to, or you don’t have inspiration, it will come.
+ - Nothing is ever for sure, but when something in love doesn’t work from the beginning, it’s never going to work. Don’t push it.
+ - I’m super lucky because I come home and I don’t have to run errands and clean the house and do all that.
+ - I realize how unique my path has been. And I’m thankful for that.
+ - If your heart is in love, you can do anything.
+ - Sometimes you could be in an unhappy relationship; you are very much in love with someone, but it’s making you unhappy and you think things can change and you can work it out.
+ - I love the romance of ‘let’s get married,’ but then, when you have it so perfect I mean, I’m more married than anybody can be – we have two kids. Maybe one day, but it’s something I can really do without.
+ - I was an only child until I was 11 years old, which is when my sister was born. So for 11 years, it was just me.
+ - Not everyone is lucky enough to be given space and trust.
+ - I’d love to be in a 1910s film – the era between the corsets and losing the corsets.
+ - The idea of a soulmate is beautiful and very romantic to talk about it in a movie or a song, but in reality, I find it scary.
+ - Once you’re a mom, whether you’re kids are next to you or far away from you, you’re always a mom.
+ - I hate, for example, whenever you hear someone say, ‘You have work at being a couple.’
+ - Cafe De Flore speaks of love, its joys, its pains and its dramas – to love and to lose. This story upset me, I was upside-down, in the depths of myself.
+ - The only thing I want to say is, I know I’m not Einstein, but I’m not the queen of the imbeciles either.
+ - I just like putting outfits together without much thought and seeing what the outcome is.
+ - I could sing in English before I could understand it because I phonetically learned it from the musicals.
+ - The songs from your childhood, when you hear them you get chills all over.
+ - I’d rather sing a good lyric written by someone else than one of my own that is terrible.
+ - I am a complete sentimentalist when it comes to clothes. I have so many memories attached to them that I can’t throw anything out.
+ - You know, when I eat three peas, I’m pregnant. When I visit a city, I’m buying a house.
+ - My job makes me travel a lot and too often I’m away from my children, but I don’t ever stop being a mom inside my head and my heart. There is no higher love than that.
+ - I love clothes but I have spent so much of my professional life creating an image of one kind or another that it is nice not to care about it in life and let your skin breathe.
+ - You have work at being a couple.
+ - Who said that artists should sell their soul, expose everything about themselves?
+ - If you have the support of people with a heart and a brain, then you’re good.
+ - I understand those who don’t like me.
+ - I don’t have famous neighbours and if I did, I’d avoid them. I don’t live the jet-set.
+ - I mostly want to be friends with my children.
+ - It’s a courageous thing to do something that doesn’t have rules or limits.
+ - How many times do I have to repeat this: my childhood was fantastic.
+ - It amuses me when I’m described as ‘chic.’
+ - Fear can make all of us do the wrong things sometimes.
+ - I don’t like things set in stone.
+ - I was for sure not prepared for fame when it happened.
+ - The red carpet is not something I really know how to work. It intimidates me. I feel very tiny.
+ - In the winter I separate, in the summer I marry. It’s been 15 years since I’ve been getting married every year.
+ - When I started to record, I could sing in pitch, but that was maybe about it.
+ - I was born in a suburb of Paris, and I grew up there until I was 16, so there were always a lot of barbecues, a garden, friends.
+ - My daughter loves singing above all else.
+ - I liked to play dress-up.
+ - Well, my type is obviously creative. Creative, with burning eyes and a pretty mouth.
+ - If you’re going to play a character who has a deformed face, you should have a deformed face.
+ - Women are the real superheroes because they’re not just working. They have a life and everything.
+ - I do sometimes strongly hope that in a past life, my most recent life before this, I was absolutely horrible, evil, hideous. Because otherwise – well, hell, to even things up next time around, I’m going to have to pay for this one, am I not?
+ - There are forms of art that I might not like to do myself, but I still have respect for the artists who create it.
+ - You fall for who the chemistry is with.
+ - Youth is a question of energy.
+ - I don’t have the recipe for happiness, but I think the engine is simply having the desire.
+ - As long as you’re fully present in what you’re doing at the moment, you’re doing it.
+ - The movies and the parts I’m being offered are becoming better and better.
+
+57 quotes

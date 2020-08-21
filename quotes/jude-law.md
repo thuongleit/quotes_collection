@@ -1,0 +1,51 @@
+ - If there is a will there is a way.
+ - A job is not just a job. It’s who you are.
+ - I’ve always liked what Thomas More said in Utopia, which is that in Utopia every person is allowed their own lifestyle and religion but no one is allowed to stand on a soapbox and tell others that theirs is right. I thought that was brilliant. Brilliant.
+ - In a weird way, it’s kind of a relief to think, ‘Oh, I know I’m not that young sort of pretty thing anymore.’ It’s quite nice talking about what it was like to be the young pretty thing, rather than being it.
+ - I’m a massive comic book fan. I was buying weekly installments of “The Watchmen”, and “From Hell”, and “Parallax” and “Johnny Nemo”. I was a huge comic book fan as a kid and I still am. Me and my youngest son are both comic book nerds together; make models and stuff.
+ - My only obligation is to keep myself and other people guessing.
+ - It was the shaving that bothered me the most. I’m not a great fan of shaving and I had to be really clean-shaven, hands, head, hairline, all the fluff off my face, everything except my eyebrows, so this sheen, this kind of polish they used on me, would stick.
+ - We all have times when we go home at night and pull out our hair and feel misunderstood and lonely and like we’re falling. I think the brain is such that there is always going to be something missing.
+ - You cant spend your life apologizing.
+ - I’m kind of ashamed to be a celebrity. I don’t understand wanting to read about other people’s dirty laundry. I think celebrity is the biggest red herring society has ever pulled on itself.
+ - Making an effort is polite, and getting ready and looking after yourself makes an event more fun.
+ - I never thought I had to forge a family, but it felt the most natural thing that ever happened to me – meeting someone and becoming a father.
+ - When you step back and watch people, you realize that we use every single body part. Movement, dance – I find it genius because it’s ultimate expression, really.
+ - I think the message of peace is for everyone.
+ - When you got source material, whether it’s a play or a book – a great writer often appreciates being adapted and developed. It’s like when you go see a production of a great play and they are always different. There is always room for interpretation.
+ - Personally speaking there’s only so long you can go from film to film to film. There’s an inspiration an actor gets from the stage.
+ - I don’t consider myself any great sage of fashion or style, whatever people may want to think.
+ - I suppose I’m intrigued with the bad traits of society, because I’m a part of society, and the bad traits pose the dangerous questions for our future.
+ - I think everyone goes through chapters in their life and there was a time when I wasn’t feeling terribly positive about what I was contributing to film, or wasn’t feeling as if I was going in the direction I wanted and I re-evaluated what I was doing.
+ - I feel more and more at ease, because I think the older I get, the less pressure there is. People say, ‘Well, he’s not cutting edge because he’s not in his twenties, so he’s not expected to be.’
+ - When someone like Steven Soderbergh asks you to do a film you know you’re in good hands. You know it’s going to be slick, and it’s going to be intelligent, and it’s going to have a kind of style to it, and I would probably have done anything to be really honest.
+ - When you suddenly appear on the scene and you are the new face, everything centers on you. I experienced this in my mid-20s and I found it rather hard.
+ - I sometimes shy away because I don’t want to be too ‘showy-offy’ but the older I get I think, ‘You have a handkerchief, put it in your pocket.’
+ - I honestly have no interest in celebrity whatsoever. If anything, I always cringe at it because it takes away from what I am, which is an actor who wants to be better and do better things.
+ - I’ve always thought Prince Charming in Cinderella was the most boring role; I’d rather be the Wicked Witch.
+ - The greatest gift an actor can have is not revealing who he is but through the parts he plays. Unfortunately, we live in a world where everyone wants to know everything all the time and I think it takes away part of the fun of acting that we have to go through that all the time.
+ - There is something nice about wearing the same thing everyday, having that go-to.
+ - Success, and even life itself, wouldn’t be worth anything if I didn’t have my wife and children by my side. They mean everything to me.
+ - You heard it from the heart, you saw it in their eyes. Then I got used to the fact that I couldn’t feel my fingers and my feet. That for me was the essence of the battle.
+ - You have a handkerchief, put it in your pocket.
+ - It’s interesting to see how people bring different things to them. I think it comes down to the universal appeal of the Holmes-Watson that they can keep being discovered in different ways.
+ - My goal was always to be recognized as a good actor but no one was interested in that, simply because society just wants to warm towards your appearance. This is the great blemish of society.
+ - I don’t want to do anything that I’m not passionate about.
+ - I’m not Tom Cruise. Very few British actors are. If you look at the body of work I’ve done it’s pretty obvious I’m not going to make a ‘Mission: Impossible.’
+ - The other nice thing about the robes is that they keep you cool in the summer, and we were filming sometimes in Rome, where it was sometimes over 100 degrees.
+ - I only want to do the kind of work that I would like to go and see, that’s going to teach me something new, that involves working with people I can learn something from and I can give something to.
+ - Face it, I didn’t become famous until I took my clothes off.
+ - I’ve never been a fan of just doing. I like to do things for a reason.
+ - I always prefer things straight up, not cold or watered down. Not big on cocktails either.
+ - If you want to change who you are, you have to change what you do.
+ - I need someone to give me a part where I play the piano so I can learn it. I would love that.
+ - Look, how many stories have I broken? Hundreds. How many have proved to be untrue? There isn’t one.
+ - I’m only wanted by directors for the image I give off, and it makes me angry. I always wanted to be an actor and not a beauty pageant winner.
+ - I was an optimist, a great champion of the human spirit. And I lost that for a time. I feel like I’ve regained a bit of that in the last few years but there was a period of my life in which I had a very low opinion of people in general.
+ - I think it’s a bigger risk following a part that plays up your looks than it is to try and carve out a career as an actor.
+ - The only film I ever made for money was something called Music From Another Room, which I really didn’t like.
+ - Every so often you get to play wonderful characters maybe at the wrong time in your life. Sometimes, you get to play terrible characters at a really great time in your life. Sometimes, the right character comes along at the right time.
+ - There are always seasons to a career and perhaps always the grass is often greener, you’re often looking at other people’s careers going, “Damn, they get all the good roles. Why didn’t I read that? Why didn’t they ask me to do that?”
+ - Landing a role now is not based on my looks – more on my acting ability.
+
+49 quotes

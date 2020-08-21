@@ -1,0 +1,21 @@
+ - We read to know we're not alone.
+ - I pray because I can’t help myself. I pray because I’m helpless. I pray because the need flows out of me all the time- waking and sleeping. It doesn’t change God- it changes me.
+ - To put it another way, pain is God’s megaphone to rouse a deaf world. Why must it be pain? Why can’t he rouse us more gently, with violins or laughter? Because the dream from which we must be wakened, is the dream that all is well.
+ - Experience is a brutal teacher, but you learn fast.
+ - Today begins my walk with you. Where you go, I go. Where you stay, I stay. When you sleep, I will sleep. When you rise, I will rise. I will pass my days within the sound of your voice, and my nights within the reach of your hand. And none shall come between us. – Manth Vow.
+ - Self-sufficiency is the enemy of salvation. If you are self-sufficient, you have no need of God. If you have no need of God, you do not seek Him. If you do not seek Him, you will not find Him.
+ - God creates us free, free to be selfish, but He adds a mechanism that will penetrate our selfishness and wake us up to the presence of others in this world, and that mechanism is called suffering.
+ - There are dozens of great American writers who write about the family.
+ - I am as I am. The world is as it is. Whether I am content with that has very little to do with it.
+ - My study is a converted garage which is largely lined with bookshelves and cardboard boxes filled with manuscripts of my film scripts, plays and books.
+ - Use your power gently.
+ - There is this notion that the lives of the comfortable-off middle class don’t merit being treated seriously and with compassion.
+ - He accepted what each moment brough him, and never troubled himself with matters that were outside his control.
+ - The English seem to think drinking wine is like committing adultery, something you do rarely and abroad.
+ - A well-off plastic surgeon can suffer just as much as an Irish lad who has been abused or whatever.
+ - We are the slaves of slaves.
+ - Why should I be honored? Don’t I have enough attention, comfort and power already?
+ - When I began to write seriously, 40 years ago now, my chosen form was the novel.
+ - Everyone deserves to be the hero of a novel.
+
+19 quotes

@@ -1,0 +1,42 @@
+ - Communication works for those who work at it.
+ - It is essential that our love be liberating, not possessive. We must at all times give those we love the freedom to be themselves. Love affirms the other as other. It does not possess and manipulate another as mine.
+ - Life is something like a remarkable, exciting puzzle. It comes piece by piece in packages marked days.
+ - Love is not a feeling to be felt, it’s an action to be learned.
+ - If you knew me yesterday, please do not think that it is the same person that you are meeting today.
+ - Growth is always a gradual process, a bridge slowly crossed and not a corner sharply turned.
+ - A person can grow only as much as his horizon allows.
+ - Comparison is the death of true self-contentment.
+ - If you knew me in the past, please do not think that I am the same person that you are meeting today. I have experienced more of life, I have encountered new depths in those I love, I have suffered and prayed and I am different.
+ - Human beings, like plants, grow in the soil of acceptance, not in the atmosphere of rejection.
+ - What are the “ifs” and “buts” that limit my enjoyment of life?
+ - God alone can make a man a believer. Our part is to accept or reject his initiative.
+ - God is to us like the sky to a small bird, which cannot see its outer limits and cannot reach its distant horizons, but can only lose itself in the greatness and immensity of the blueness.
+ - Loneliness is the prison of the human spirit. When we are lonely, we pace back and forth in small, shut-in worlds.
+ - There’s the whole myth about rocket science. It’s really not that hard. It’s not brain surgery.
+ - The real gift of love is self disclosure.
+ - Our lives are shaped by those who love us.
+ - You have a unique message to deliver, a unique song to sing, a unique act of love to bestow. This message, this song, and this act of love have been entrusted exclusively to the one and only you.
+ - The only love worthy of a name is unconditional.
+ - I have to be honest in asking myself: Do I really want to know and do God’s will? Or is it rather that I want God to do my will? Do I go to God with the assurance that I want only to know and do his will? Or do I rather first make my own plans and then insist that God make my dreams come true?
+ - Pain is a teacher from whom we can learn much.
+ - Each child is sent into this world by God with a “Unique Message” to deliver, a new personal act of love to bestow.
+ - A good listener truly wants to know the speaker.
+ - There is no such thing as a peace of soul approach to religion. It makes of God a gigantic Bayer Aspirin; take God three times a day and you won’t feel any pain.
+ - There is no fixed, true and real person inside of you or me, precisely because being a person necessarily implies becoming a person, being in process.
+ - To tell you my thoughts is to locate myself in a category. To tell you about my feelings is to tell you about me.
+ - Love supposes, is, and does many things, but basically it is practiced in the act of sharing.
+ - We cannot “psychologize” the grace of God. God’s actions are outside and above our human sciences.
+ - Love demands that I learn how to focus my attention on the needs of those I love.
+ - Let us consider the reason of the case. For nothing is law that is not reason.
+ - What is disgraceful and outrageous is that 18,000 children die of hunger every day, every one of them a preventable death. That’s what the controversy should be about.
+ - When we contact each other, we change each other. We are constantly making each other.
+ - You can’t reinvent yourself for every movie.
+ - By afflictions God is spoiling us of what otherwise might have spoiled us. When he makes the world too hot for us to hold, we let it go.
+ - He who has no inclination to learn more will be very apt to think that he knows enough.
+ - Attitudes are capable of making the same experience either pleasant or painful.
+ - Old cranks have practiced all their lives, just as old saints have likewise practiced all their lives. They just practiced different life principles.
+ - Blacks are about seven times more likely to live in neighborhoods of concentrated poverty than whites.
+ - More than 90 percent of all the prisoners in our American prisons have been abused as children.
+ - We must be trying to learn who we really are rather than trying to tell ourselves who we should be.
+
+40 quotes

@@ -1,0 +1,44 @@
+ - When we talk to God, we’re praying. When God talks to us, we’re schizophrenic.
+ - Never underestimate the power of your actions. With one small gesture you can change a person’s life. For better or worse. God puts us all in each other’s lives to impact one another in some way.
+ - Unless you are at a picnic, life is no picnic.
+ - The ability to delude yourself may be an important survival tool.
+ - Keep talking, someday you’ll say something intelligent.
+ - I feel like my life is just passing me by like two ships in the night. And I have missed both boats.
+ - Reality is the leading cause of stress amongst those in touch with it.
+ - A sobering thought: what if, at this very moment, I am living up to my full potential?
+ - If you are a human being, you might as well face it. You are going to rub a lot of people the wrong way.
+ - Delusions of grandeur make me feel a lot better about myself.
+ - I made some studies, and reality is the leading cause of stress amongst those in touch with it. I can take it in small doses, but as a lifestyle, I found it too confining. It was just too needful; it expected me to be there for it all the time, and with all I have to do – I had to let something go.
+ - You don’t know what it’s like! Hyperactive twins! When they turned three, my doctor prescribed Ritalin – I wouldn’t dream of giving a drug to my children, but it does help when I take it myself.
+ - One thing I have no worry about is whether God exists. But it has occurred to me that God has Alzheimer’s and has forgotten we exist.
+ - If olive oil comes from olives, then where does baby oil come from?
+ - At the moment you are most in awe of all there is about life that you don’t understand, you are closer to understanding it all than at any other time.
+ - Childhood comes at a time in your life when you are too young to understand what you are going through. And you’re too young to understand that you are too young to understand.
+ - What is reality anyway! It’s nothing but a collective hunch.
+ - Mirrors can’t talk. Luckily for you, they can’t laugh either.
+ - My mom says I have to be more positive, and I say life has to be more positive too or it’s just not going to work.
+ - I am sick of being the victim of trends I reflect but don’t even understand.
+ - I have gained and lost the same 10 pounds so many times over and over again my cellulite must have deja vu!
+ - Ahhhhhhhh. There is nothing natural about natural childbirth. It is as close to a freak accident as anything I can think of. Why I picked a time like this to go off drugs.
+ - It’s not that I lack ambition. I am ambitious in the sense that I want to be more than I am now. But if I were truly ambitious, I think I’d already be more than I am now.
+ - Infinity: Time on an ego trip.
+ - Like what’s the point being a health nut by day if you’re a coke head at night.
+ - It’s one thing to tolerate a boring marriage; a boring affair does not make sense.
+ - When you’re dancing the mystical dance of the molecules, you’re not the one who’s leading.
+ - I worry that our lives are like soap operas. We can go for months and not tune in to them, then six months later we look in and the same stuff is still going on.
+ - I worry that humanity has been “advanced” to its present level of incompetency because evolution works on the Peter Principle.
+ - To think we have the garment industry instead of nature to thank for the zipper concept when it would have come in so handy for childbirth.
+ - If evolution was worth its salt, by now it should’ve evolved something better than survival of the fittest. I think a better idea would be survival of the wittiest.
+ - Just think: your family are the people most likely to give you the flu.
+ - When I first came into this world, Elvis was already fat.
+ - Nothing makes you realize you don’t know what you want more than getting what you want.
+ - I bet the worst part about dying is the part where your whole life passes before you.
+ - The truth can be made up if you know how.
+ - I even worry about reflective flea collars. Oh, sure, drivers can see them glow in the dark, but so can the fleas.
+ - Of all the things we’ve learned, we still haven’t learned where did this desire to want to know come from?
+ - Language because of our deep inner need to complain...
+ - My space chums think reality was once a primitive method of crowd control that got out of hand. In my view, it’s absurdity dressed up in a three-piece business suit.
+ - I worry that drugs have forced us to be more creative than we really are.
+ - I may not be great at geometry but I know one theorum. The longest distance between two points is you and your parents.
+
+42 quotes

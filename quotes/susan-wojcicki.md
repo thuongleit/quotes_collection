@@ -1,0 +1,25 @@
+ - Work smart. Get things done. No nonsense. Move fast.
+ - From phones to cars to medicine, technology touches every part of our lives. If you can create technology, you can change the world.
+ - Learning to code makes kids feel empowered, creative, and confident. If we want our young women to retain these traits into adulthood, a great option is to expose them to computer programming in their youth.
+ - Things are always changing. Part of being successful here is being comfortable with not knowing what’s going to happen.
+ - Rarely are opportunities presented to you in a perfect way. In a nice little box with a yellow bow on top. ‘Here, open it, it’s perfect. You’ll love it.’ Opportunities – the good ones – are messy, confusing and hard to recognize. They’re risky. They challenge you.
+ - Right now, offline and online are coming together because of smartphones.
+ - It’s important for me to show my children the richness of life and be a role model. I find that my organizational and management skills are tested more at home than at work!
+ - Engineering is a jeans and hoodie culture, and sales is more formal.
+ - Today, most young women are exposed to technology at a very young age, with mobile phones, tablets, the Web or social media. They are much more proficient with technology than prior generations since they use it for all their school work, communication and entertainment.
+ - At the end of the day, both men and women who become CEOs have showed tenacity and hard work to succeed in their careers. It takes not just skills but also extreme dedication and commitment. And regardless of gender, CEOs are measured by the same criteria – the growth and success of the business.
+ - People at different stages of their lives are doing different things, and they’re all using Google.
+ - Let’s face it: Engineering companies in general have more men than women. Google has tried really hard to recruit women. On the other hand, we have a standard. Google tries to recruit the best engineers.
+ - There are unlimited opportunities for display advertising. In fact, we’re in the process of massive change in the display industry – how it’s bought, how it’s sold, and how it’s targeted.
+ - Many women assume they can’t be good mothers and have challenging careers at the same time, so they might give up trying to do both as they get to a crucial point in their career. Although it can be hard at times, it’s important for women to recognize the benefits of working outside the home.
+ - I have tried to be a leader. I have tried in my role of being one of the first women at Google, let alone the first woman to have a baby, to really try to set the tone that this is a great place to work for diversity reasons.
+ - The reason I like my job is that I have this desire to create. I have this desire to create things and build things, and Google has enabled me to build and create things and to build products that are used by people all over the globe.
+ - I’m excited about the opportunities with mobile phones and being able to receive information on the go and relevant to what I’m doing at that moment in time.
+ - Google is fascinating, and the book isn’t finished. I’m creating, living, building, and writing those chapters.
+ - Though we do need more women to graduate with technical degrees, I always like to remind women that you don’t need to have science or technology degrees to build a career in tech.
+ - My most radical shift was leaving Intel and joining Google, a small startup at the time, even though I was pregnant.
+ - I have had a lot of setbacks that I have learned from.
+ - We are a consumer company and our success is directly linked to our users trusting us. Therefore we have the same incentive as the user: they want to see relevant advertising so their experience of Google is positive and we want to deliver it.
+ - The main motivations were to try to leverage Google’s expertise with large computer systems and to try to give something back to science.
+
+23 quotes

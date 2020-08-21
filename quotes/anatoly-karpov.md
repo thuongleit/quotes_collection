@@ -1,0 +1,45 @@
+ - Chess is everything: art, science, and sport.
+ - Chess is my life, but my life is not chess.
+ - Happiness should always remain a bit incomplete. After all, dreams are boundless.
+ - I lost the match. I blame only myself for this. There were many opportunities to win. But I missed them, no one else.
+ - Blunders rarely travel alone.
+ - Chess is a very tough game, and psychologically a tough game. And of course, chess needs a lot of qualities, human qualities. And so you must have a very strong nervous system, and then you must be well prepared; you must be able to work a lot.
+ - Style, I’ve got no style.
+ - Combinations with a queen sacrifice are among the most striking and memorable.
+ - You can’t play chess if you’re groggy from pills.
+ - My studies with Botvinnik brought me immense benefit, particularly the homework assignments which forced me to refer to chess books and to work independently.
+ - It doesn’t require much for misfortune to strike in the King’s Gambit – one incautious move, and Black can be on the edge of the abyss.
+ - To be champion requires more than simply being a strong player; one has to be a strong human being as well.
+ - The truth is that my chess development was nothing out of the ordinary, and it proceeded probably at a pace no faster than others.
+ - In Kansas I have a chess school.
+ - This whole fuss did not only damage Fischer’s image, but that of the USA as well. The way the Americans treated one of their most popular citizens did not make a positive impression worldwide.
+ - Pawns not only create the sketch for the whole painting, they are also the soil, the foundation, of any position.
+ - It is dangerous to maintain equality at the cost of placing the pieces passively.
+ - Seville never had a rich chess tradition. Valencia is entirely different, it is enough to say that one of the city squares is named after me.
+ - An amusing fact: as far as I can recall, when playing the Ruy Lopez I have not yet once in my life had to face the Marshall Attack!
+ - If the opponent offers keen play I don’t object; but in such cases I get less satisfaction, even if I win, than from a game conducted according to all the rules of strategy with its ruthless logic.
+ - If you want to become a World Champion you should avoid playing in Open tournaments.
+ - I still remember Botvinnik’s reaction to each of my games, right from the opening moves. At first he would express amazement, then annoyance, and, finally irritation.
+ - Like dogs who sniff each other when meeting, chess players have a ritual at first acquaintance: they sit down to play speed chess.
+ - Playing black, I put great stake in the Ruy Lopez: I liked it, feel it, and understand it; in matches with Hjartarson and Timman it served me well. – on preparing for World Championship versus Garry Kasparov.
+ - Furman astounded me with his chess depth, a depth which he revealed easily and naturally, as if all he were doing was establishing well-known truths.
+ - We need strong personalities and only one world champion to attract sponsors.
+ - Bulgaria is the first state that has been awarded for its excellent fight against iodine deficiency by UNICEF.
+ - The priority must be the unification of the world titles to straighten things out. But we should not wait that long anymore to change the situation, because we are running out of time.
+ - By all means examine the games of the great chess players, but don’t swallow them whole. Their games are valuable not for their separate moves, but for their vision of chess, their way of thinking.
+ - The fact that a knight is temporarily on the edge of the board is of no great significance.
+ - But how difficult it can be to gain the desired full point against an opponent of inferior strength, when this is demanded by the tournament position!
+ - I don’t pretend to anything more than harmony.
+ - No, I do not want to sacrifice four days for two games. My time is too valuable to do that.
+ - After that, Kasparov stepped back from chess which is, and I want this to be clear, not good for chess in general at all. As a whole, the current situation in the chess world leaves a lot to be desired.
+ - The first great chess players, including the world champion, got by perfectly well without constant coaches.
+ - The days when it was possible to win a serious game only by merit of sporting character or depth of chess understanding have vanished forever. Chess knowledge has become dominant, bypassing all the other factors that contribute to success.
+ - I am thinking about chess in schools in particular. In the USA more than 3200 children competed in an event.
+ - No, no, it is obvious that the ECU should act as a close alliance for the benefit of chess.
+ - I still love to play chess. So I do not even spend a minute on the possibility to step back.
+ - The ideal in chess can only be a collective image, but in my opinion it is Capablanca who most closely approaches this...
+ - First of all, we have to go back to the classical time control.
+ - I like to do projects in which you can see statistical results. I am very happy for all these small children, who have been the biggest group of victims of iodine deficiency.
+ - Just make the right estimation of your own strengths and weaknesses, and also that of your opponent.
+
+43 quotes

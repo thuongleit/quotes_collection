@@ -1,0 +1,42 @@
+ - Mediocrity triumphs because it presents itself as democratic and because it is dull, and so for many does not seem worth struggling against.
+ - We seem to be made to suffer. It’s our lot in life.
+ - Don’t call me a mindless philosopher, you overweight glob of grease.
+ - Where hopes are unrealistic, fears often become exaggerated; where dreams alone are blueprints, nightmares result.
+ - Equality is the measure of all things, and bad behavior is less bad if everyone indulges in it.
+ - The tattoo has a profound meaning: the superficiality of modern man’s existence.
+ - Nationalism is fraught with dangers, of course, but so is the blind refusal to recognize that attachment to one’s own culture, traditions, and history is a creative, normal, and healthy part of human experience.
+ - We have people being a little uncomfortable in their life on Earth with finances and so on, so Science Fantasy or Science Fiction allows people to think that there are possibilities beyond the gravity of our planet.
+ - I quite like post-apocalyptic films, things like ‘Mad Max’ for instance, because they are so full on and there is something quite cleansing about the post-apocalyptic because you can see where we all think we’re heading.
+ - It is easy to be lenient at other people’s expense, and call it generosity of mind.
+ - Unilateral tolerance in a world of intolerance is like unilateral disarmament in a world of armed camps: it regards hope as a better basis for policy than reality.
+ - Civilization is the sum total of all those activities that allow men to transcend mere biological existence and reach for a richer mental, aesthetic, material, and spiritual life.
+ - Childhood in large parts of modern Britain, at any rate, has been replaced by premature adulthood, or rather adolescence.
+ - In a democratic age, only the behavior of the authorities is subject to public criticism; that of the people themselves, never.
+ - The intellectual’s struggle to deny the obvious is never more desperate than when reality is unpleasant and at variance with his preconceptions and when full acknowledgment of it would undermine the foundations of his intellectual worldview.
+ - I don’t do that many appearances at conventions. I like to keep them special for me. And for the fans, I hope.
+ - Two or three notes of music can instantly make you feel sad or tense or afraid or angry. To do that in words is much more difficult.
+ - The nearer emotional life approaches to hysteria, to continual outward show, the less genuine it becomes. Feeling becomes equated with vehemence of expression, so that insincerity becomes permanent.
+ - Everybody uses mime and gesture in real life, though we don’t realize it. It’s very useful as a performance technique, though it can be boring to watch on its own.
+ - In the modern view, unbridled personal freedom is the only good to be pursued; any obstacle to it is a problem to be overcome.
+ - I have a greater appreciation for kitchen appliances, having played one.
+ - Children in school are not students, they are pupils. It is typical of certain kinds of politicians that they should regard children as adults, the better subsequently, and consequently, to regard adults as children.
+ - Mere absurdity has never prevented the triumph of bad ideas, if they accord with easily aroused fantasies of an existence freed of human limitations.
+ - Cruelty is like hope: it springs eternal.
+ - Over the years, I’ve loved being on stage with an orchestra, waving my hands around.
+ - It is hard to oppose an ideology with a tradition.
+ - On a film set everyone is very cool. Well, blase really.
+ - I have never understood the liberal assumption that if there were justice in the world, there would be fewer rather than more prisoners.
+ - The attempt to regulate relations between people too closely, by means of the law, in the name of an abstraction such as equality, leads to both absurdity and cruelty. The British are fast turning themselves into a nation of slaves, where even the slave-masters are not free.
+ - For the sake of democracy, vigorous, civilized debate must replace the law of silence that political correctness has imposed.
+ - It is strange, is it not, how the more strenuously we deny the importance of race in human affairs, the more obsessed with it and the touchier on the subject we grow.
+ - For intellectuals, everyone’s mind is closed but their own.
+ - All I ever wanted to do was act.
+ - We are like creatures so dazzled with our own technological prowess that we no longer think it necessary to consider the obvious.
+ - You know, a lot of people are loath to go to an orchestral concert because they are intimidated by the thought.
+ - Where fashion in clothes, bodily adornment, and music are concerned, it is the underclass that increasingly sets the pace. Never before has there been so much downward cultural aspiration.
+ - Modernity is the most transient of qualities.
+ - Reason can never be the absolute dictator of man’s mental or moral economy.
+ - It is curious how an age of public self-revelation, and of the use of psychological jargon, should also be an age when self-examination is rarely practised.
+ - If a lack of money had prevented people from improving their lot, then mankind would still be living in the caves: unless you believe that investment capital first arrived from outer space.
+
+40 quotes

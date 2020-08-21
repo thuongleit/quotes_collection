@@ -1,0 +1,58 @@
+ - A little party never killed nobody.
+ - I was a child actor. I was this spaz kid diagnosed with ADHD, and I worked all the time.
+ - I may not have the type of voice you like, but I can sing. You can’t take that away from me, ’cause singing is a gift from God, and when people say I can’t sing, it’s kind of like insulting God.
+ - Sometimes you have a noisy neighbour. You cannot do anything about that. They will always be noisy. You just have to get on with your life, put your television on and turn it up a bit louder.
+ - Having confidence is so important, because how you see yourself, is how others will see you too.
+ - With all the negativity in the world, I want to do something positive.
+ - I don’t miss being on the road right now because the thing is, I was on the road for eight years, so I love pizza, but pizza every day for eight years is a different thing.
+ - The devil comes and soon my subconscious and conscious might start to brawl. As this cunning demon takes me as its voodoo doll.
+ - I’m not claiming to be sober. I think that that would be misleading. I drink alcohol. My father has a vineyard, and the wine is really delicious, by the way.
+ - Men scream and go crazy in the gym. I’m a silent workout partner, but when my adrenaline gets up, I talk trash.
+ - For me, I’m not a jealous person. That’s just not my thing. You have to have trust in your relationship.
+ - I try to work out with my personal trainer for an hour, four times a week – we mainly concentrate on weights and running. If I’m on the road I sometimes do DVD work-outs in my hotel room – P90X and Insanity are a couple of my favourites.
+ - A lot of times on tour it’s about, ‘OK, where am I today? Wow, I’m in Costa Rica. What is their famous dish?’ And it’s about trying the food, and really experiencing it.
+ - I’m famous for splurging at fast-food places. I’m currently obsessed with Taco Bell’s bean and cheese burritos with extra green sauce and extra cheese. Gluttony!
+ - I call my therapist every other day. It’s not a one-stop shop. You have to push away all that negativity in your head. Face it, name it, let it go.
+ - I think everything happens for a reason and all of my choices have led me up to my solo album and made me stronger, not only as an artist but as a person. I want to do more the Black Eyed Peas albums and more of my own albums. I’m in this for the long run.
+ - I finally found the product that helps mend my damaged hair and prevent breakage. Avon’s Advance Techniques Damage Repair 3D Rescue Leave-In Treatment makes it look and feel healthier.
+ - I love Nelly. He’s such a great performer. He’s so hyper and so am I.
+ - It was the hardest boyfriend I ever had to break up with.
+ - I’m very lucky about my family, because they’re just a really solid family. I owe everything to them.
+ - So many songs are just a wink to the audience, but people take them seriously. ‘My Humps?’ C’mon!
+ - I love diamond facials – they leave me glowing and refreshed.
+ - You can be a mother and still be completely sexy.
+ - The right pair of shoes can change the feel of an outfit, and even change how a woman feels about herself.
+ - My solo album is different from the Black Eyed Peas albums because I’m a singer first and foremost. There are more ballads and more intimacy between me and the listener because sometimes when you’re in a group you don’t have space to air out your dirty laundry.
+ - There are so many different people that I’ve emulated vocally. In the rock world – Sebastian Bach, Vince Neil, Freddie Mercury, Robert Plant. They all had amazing vocal talent.
+ - I have learned more and more to enjoy my body when I have a few extra pounds on, just being more voluptuous. I say, focus on the body part that you feel most comfortable about.
+ - Once I have children, the kids come first. One thing at a time for me.
+ - I think a lot of young teenagers try to get esteem from accolades from other people, or boys, and what you learn as you get older is that you have to create that within yourself.
+ - Luckily I don’t have to buy shoes anymore, because I design them!
+ - I don’t want to have a song like ‘My Humps’ and it be sagging down, so I pay attention to that area. A lot.
+ - I always had this dream to make a solo record. I told my mom when I was 7 years old, but I just ended up being in bands. I’m a free spirit. I follow my heart, and it’s led me to where I am.
+ - I’m trying to get a thicker skin. I like to be aware of people’s perceptions of me, but when you put it as a priority, as a means to judging your worth, that’s when it can be dangerous.
+ - Part of my affinity with urban music comes from being on ‘Kids Incorporated,’ ’cos we used to sit around and listen to Chaka Khan and Prince, and I got influenced by all that. Then gangsta rap got started, and I was infatuated with that – maybe that’s why I’m fascinated by guns.
+ - I have to wear two sports bras when I do my cardio. It takes a lot to hold these puppies up!
+ - I love black truffles. I love white truffles.
+ - Wearing nice lingerie makes me feel really glamorous. I love to splurge on that.
+ - As far as female vocalists, I love Heart, Joan Jett, Courtney Love, Laura Branigan, Linda Ronstadt, Barbra Streisand – or going back to when I was a child, Aileen Quinn, the original Annie.
+ - I’m very ambitious, but I also love myself – which means I try to take care of myself.
+ - I’m very close with my higher power. I have a very strong connection with it.
+ - I’m not going to lie: There are times I play mind tricks on myself, like that the French fries are poison. With desserts, I’ll let myself have just one bite, but I’ll look like a freak when I’m eating it, like when I did Duncan Hines commercials as a kid, just savoring every morsel.
+ - Right now I’m reading every fashion magazine I can find. As a shoe designer, I feel it’s my responsibility to learn as much as I can about the business, past and present.
+ - Grades were important in our house. I was reading by two. My mom would sit there and read with me, read with me, read with me. It was wonderful.
+ - Working out is really the top thing in my life that I do for my own self-esteem and self-worth.
+ - I love crying at romantic movies like ‘The Notebook.’ I’m always bawling.
+ - You know, I’m a curvy woman and I just want to be comfortable with that.
+ - I’m going through an evolution. I’m completely cleaning out my closet. I’m purging, because I saw that show ‘Hoarders.’ I had a sweatshirt from sixth grade, and I’m going, ‘Why do I hold on to this?’
+ - Guns are beautiful. But I don’t like what they do.
+ - I work out all the time. Cardio, resistance and a lot of jogging. I love to go hiking. I’m going to invest this in myself, into my self-worth, into my self-esteem.
+ - I’ve already got notebooks full of ideas for new music, so I’m gonna kind of nurture that just like I do all of my ideas and perfect it until it’s ready and then I’ll just let it go.
+ - I’ve learned to be more accepting of myself. I’m 37, not 18, and I’ve got the lines to prove it. I try to remind myself that a girl can have it all, just not all at once.
+ - I’ve been working straight since 2003, so I might just want to take an improv or theater class. That excites me. I can’t wait to do different characters – not necessarily the leading chick who gets the guy, but the weird, freaky cousin.
+ - You’d be surprised how addicting high self-esteem is.
+ - I would rather have a player who showed a bit of heart out there than one who just accepted things.
+ - What happens when you’re a child professional is that you have to be, well, professional. You’re taught not to have tantrums, to always people-please.
+ - You have to be strong. You have to know how you are, and you have to know who your partner is and you have to know who your friends, who your real friends are.
+
+56 quotes

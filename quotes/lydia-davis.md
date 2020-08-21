@@ -1,0 +1,40 @@
+ - Like a tropical storm, I, too, may one day become ’better organized.
+ - I don’t like to hurt people’s feelings, and I don’t like to knock other writers as a matter of principle.
+ - Work hard and meticulously. When in trouble, look closely at a text that is a good example of what you’re trying to do. And be patient.
+ - I started writing the one-sentence stories when I was translating ‘Swann’s Way.’ There were two reasons. I had almost no time to do my own writing, but didn’t want to stop. And it was a reaction to Proust’s very long sentences.
+ - Art is not in some far-off place.
+ - I find teaching – I like it, but I find just walking into the classroom and facing the students very difficult.
+ - No one is calling me. I can’t check the answering machine because I have been here all this time. If I go out, someone may call while I’m out. Then I can check the answering machine when I come back in.
+ - There seemed to be three choices: to give up trying to love anyone, to stop being selfish, or to learn to love a person while continuing to be selfish.
+ - I never dream in French, but certain French words seem better or more fun than English words – like ‘pois chiches’ for chick peas!
+ - I would recommend, definitely, developing a ‘day job’ that you like – don’t expect to make money writing!
+ - I am basically the sort of person who has stage-fright teaching. I kind of creep into a classroom. I’m not an anecdote-teller, either, although I often wish I were.
+ - So the question really is, Why doesn’t that pain make you say, I won’t do it again? When the pain is so bad that you have to say that, but you don’t.
+ - I often pose questions to myself and want the answers. The questions may be psychological or emotional. Or they may involve botany or physiology. I am very curious about strangers I observe – as in a bus line. I am very attached to finding out answers.
+ - I am simply not interested, at this point, in creating narrative scenes between characters.
+ - I’m a fierce editor! I don’t edit out things that I began by saying, usually. The editing is on the micro level – a comma here, a word there.
+ - The style developed over decades, really, but I started out writing pretty traditional stories, then became impatient. It was a writer named Russell Edson who showed me that one could write in any way at all.
+ - In some sense the text and the translator are locked in struggle – ‘I attacked that sentence, it resisted me, I attacked another, it eluded me’ – a struggle in which, curiously, when the translator wins, the text wins too...
+ - I can talk for a long time only when it’s about something boring.
+ - My stories are sometimes closer to poems or meditations, but often there is at least a little narrative in them.
+ - I don’t feel I have to struggle against allegory. I let the readers do the interpreting.
+ - That’s the interesting thing about writing. You can start late, you can be ignorant of things, and yet, if you work hard and pay attention you can do a good job of it.
+ - If I was writing about an academic or a more difficult person, I would use the Latinate vocabulary more, but I do think Anglo-saxon is the language of emotion.
+ - As the writer, I may choose to ignore the emotional heart of the matter, and focus on details, and trust that the heart of the matter will be conveyed nevertheless.
+ - I started with small-press publishers, who were willing to publish all sorts of forms. I didn’t move to the larger presses until they knew what they were getting in for.
+ - I don’t pare down much. I write the beginning of a story in a notebook and it comes out very close to what it will be in the end. There is not much deliberateness about it.
+ - To be simple, I would say a story has to have a bit of narrative, if only “she says,” and then enough of a creation of a different time and place to transport the reader.
+ - Often, the idea that there can be a wide range of translations of one text doesn’t occur to people – or that a translation could be bad, very bad, and unfaithful to the original.
+ - Do what you want to do, and don’t worry if it’s a little odd or doesn’t fit the market.
+ - I don’t believe a good poet is very often deliberately obscure. A poet writes in a way necessary to him or her; the reader may then find the poem difficult.
+ - Part of my mind is working on how to end the thing while I’m going on. You need at least two brains to write.
+ - I looked like a woman in glasses, but I had dreams of leading a very different kind of life, the life of a woman who would not wear glasses, the kind of woman I saw from a distance now and then in a bar.
+ - I think the close work I do as a translator pays off in my writing – I’m always searching for multiple ways to say things.
+ - I think a lot of what goes into writing can be taught – not mixing metaphors, etc.
+ - I do see an interest in writing for Twitter. While publishers still do love the novel and people do still like to sink into one, the very quick form is appealing because of the pace of life.
+ - I’m used to rereading e-mails, even, before sending them – a bit compulsive. So this is high speed roller coaster for me!
+ - There is something very pleasing about the principles of science and the rules of math, because they are so inevitable and so harmonious – in the abstract, anyway.
+ - When I’m trying a new form- trying to do something I’m not used to doing, which was true of the novel.
+ - But it is curious how you can see that an idea is absolutely true and correct and yet not believe it deeply enough to act on it.
+
+38 quotes

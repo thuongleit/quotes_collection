@@ -1,0 +1,32 @@
+ - Because we can’t communicate, there’s a lot of misunderstanding.
+ - We have had a long wait for democracy.
+ - Even if one tree falls down it wouldn’t affect the entire forest.
+ - Also in the new constitution, we want to lower the voting age from 20 years to 18 years and also gradually implement a voluntary military service in replacement of the current compulsory military service.
+ - The road to democracy may be winding and is like a river taking many curves, but eventually the river will reach the ocean.
+ - Through mutual understanding, sincerity and goodwill, and with great wisdom and broad views, the leaders on both sides should jointly initiate new opportunities for peace, stability, cooperation and mutual benefit.
+ - It has been well over half a century and I’m glad to say we have taken the right path from authoritarianism to democracy and this is a road of no return.
+ - Taiwan is an independent sovereign country.
+ - Even if I were knocked down by one gunshot it wouldn’t affect our democracy and I wasn’t knocked down and I have great confidence in our democracy and in Taiwan and in the people of Taiwan.
+ - We sincerely ask the Beijing authorities across the Strait to view the election result from a positive perspective, to accept the democratic decision of the Taiwanese people.
+ - I believe in the greatness of our democracy.
+ - The election result is not a victory that belongs to me or my party.
+ - I understand the harsh feelings and sentiments from my opponents and their supporters because I myself have been defeated twice in my political life in the past and I understand very well it is hard to accept your own failure.
+ - We will strive to make Taiwan a better place and enable our people to live better lives.
+ - Over the next four years, I will continue to listen to different views and accept different suggestions.
+ - If we really love and cherish Taiwan, we should hold our hands in unity to protect our country and our democratic values with the most humble and tolerant hearts.
+ - However, I must say that I am very happy to see that we have such a positive result for our first referendum in our history and that gives me more confidence in Taiwan’s democracy.
+ - Secondly I would like to make continuous efforts of stabilising cross Strait relations, eventually reaching peace across the Taiwan strait and stability and security in the Asia Pacific region.
+ - I believe that this is not only the view of the people on both sides of the Strait. It is also the common expectation of the US, Japan and the international community.
+ - We will make every effort to unify all ethnic groups, to strengthen belief in Taiwan and to persist in reform.
+ - The election is over, and even though there are people who have different ideologies and beliefs, from now on we must all embrace each other, creating a harmonious and unified new Taiwan through our love and tolerance.
+ - The grandeur and strength or our people and democracy are as big as a forest.
+ - I expect the ruling and opposition parties to work together for the future of Taiwan.
+ - I have great confidence in Taiwan’s democracy.
+ - We also intend to deal with the issue of incorporating basic human rights into our new constitution.
+ - We must not demonstrate any arrogance, and we must refrain from any irrational or undemocratic behavior.
+ - The results of the two referenda demonstrate the majority view of the Taiwanese people.
+ - I have great confidence in the universal value and in basic human rights and I have great confidence that referenda will eventually take root and become part of our daily lives in Taiwan.
+ - In the 1999 resolution regarding Taiwan’s future passed by the Democratic Progressive Party, it is stated very clearly that any change to the status quo of Taiwan must be decided by the people of Taiwan through referenda.
+ - A defensive referendum is for avoiding war and to help keep the Taiwanese people free of fear.
+
+30 quotes

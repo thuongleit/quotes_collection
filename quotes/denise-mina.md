@@ -1,0 +1,31 @@
+ - I came from this very traditional background and I benefited hugely from feminism. I felt privileged going to university and doing a PhD. Most people of my background don’t get to do that.
+ - Journalism is a Darwinian process.
+ - In the ‘Garnethill’ trilogy, people always forget that Maureen O’Donnell’s dad was a journalist and she did art history at uni and her brother did law, but no-one ever thinks they’re middle-class – they’re just working class because they speak with accents.
+ - Crime fiction is the fiction of social history. Societies get the crimes they deserve.
+ - I think graphic novels are closer to prose than film, which is a really different form.
+ - There’s always these giant baffling books, like ‘The Da Vinci Code.’ People say it’s not as well written as ‘Midnight’s Children.’ Why aren’t people reading ‘Midnight’s Children?’ Nobody knows why these phenomenons happen but they’re great.
+ - I always wanted to work at Take A Break magazine, you know, just to inject a little bit of politics into their stories. I applied for a job there after I’d done my law degree and didn’t even get an interview. I only wrote Garnethill because I didn’t get that job!
+ - Most of the people who write to me are really clever, really engaged. They just want to say that they have read my book and liked it.
+ - In my heart Im just a lucky waitress.
+ - Even if people do wrong, we’re social animals, so what can we do about stopping them doing the same things in future? Saying people are ‘bad’ or ‘evil’ is just an unwillingness to engage; an unwillingness to try to empathise. That sanctimonious attitude doesn’t help anyone.
+ - I just got an honorary degree from Glasgow University, and I had to wear around very painful shoes so that I didn’t laugh all the way through the ceremony because I felt like an outlaw.
+ - People are interested in crime fiction when they’re quite distanced from crime. People in Darfur are not reading murder mysteries.
+ - If you went for a job interview in a Glasgow law firm, they used to ask you what school you went to. And that was a way of finding out what religion you were.
+ - I’d read so much right-wing crime fiction where they find the evidence and shoot the bad guy – I thought there must be another approach.
+ - Because I write a book a year, I always want to do one other project every year that’s stimulating in a different way. It means you can be working but not using up your prose juice, you know?
+ - Usually when I’m trying to establish character, I try and find out where they live.
+ - I think the negative traits are what makes us love other human beings, the foibles and the flaws.
+ - To have a very strong opinion all the time is corrosive to a person’s intellect. It becomes your default position.
+ - I have two children. They are more fun than anything in the world, and it’s more immediate fun than the hard slog of writing.
+ - Crime is a very hard genre to feminise. If you have a female protagonist she is going to be looking after her mum when she gets older; she is going to be worried about her brother and sister; she will be making a living while bringing up kids.
+ - A man who thinks he has a higher purpose can do terrible things, even to those he professes to love.
+ - In prose, leaps of logic can be made while the protagonist thinks about things and arrives at conclusions. Even with voiceover, there’s no real way of having an inner voice without it taking over the entire story.
+ - I’m always represented as a bit of a class warrior – a bit Down With Men and Down With Middle-Class People. Whereas I’m actually very fond of men and am middle-class. I even went to boarding school in Perthshire.
+ - Novelisation doesn’t imply the truth. Readers are sophisticated enough to know that.
+ - I love Mikhail Bulgakov. He is very original and takes the story to unexpected places. I didn’t realise political writing could be so funny.
+ - We don’t really go in for big family dinners, but Scottish people are famously confrontational. It’s a cultural thing, so maybe we don’t need to have them to clear the air. Also, traditional family food isn’t as nice here so there’s no payoff for traveling hundreds of miles.
+ - None of us know what is going to sell or what people want to read.
+ - I grew up in London under Thatcher and that really was disgusting. A feeding frenzy.
+ - There’s a real emphasis on being witty in Scotland, even in crime novels.
+
+29 quotes

@@ -1,0 +1,502 @@
+ - No one is free, even the birds are chained to the sky.
+ - When you got nothing, you got nothing to lose.
+ - A man is a success if he gets up in the morning and gets to bed at night, and in between he does what he wants to do.
+ - You don't need a weatherman to know which way the wind blows.
+ - He not busy being born is busy dying.
+ - Behind every beautiful thing, there's some kind of pain.
+ - If you want to keep your memories, you first have to live them.
+ - Some people feel the rain. Others just get wet.
+ - Don’t criticize what you can’t understand.
+ - You can't be wise and in love at the same time.
+ - People seldom do what they believe in. They do what is convenient, then repent.
+ - The times they are a-changing.
+ - Life is more or less a lie, but then again, that's exactly the way we want it to be.
+ - I accept chaos, I'm not sure whether it accepts me.
+ - Money doesn't talk, it swears.
+ - When you feel in your gut what you are and then dynamically pursue it - don't back down and don't give up - then you're going to mystify a lot of folks.
+ - I'll let you be in my dreams if I can be in yours.
+ - The purpose of art is to stop time.
+ - Don’t think twice, it’s alright.
+ - I think of a hero as someone who understands the degree of responsibility that comes with his freedom.
+ - Everything passes, Everything changes, Just do what you think you should do.
+ - People disagreeing everywhere you look makes you wanna stop and read a book. 
+ - All I can do is be me, whoever that is.
+ - May your heart always be joyful. May your song always be sung.
+ - May you stay Forever Young.
+ - I was born a long way from where I belong and I am on my way home.
+ - Clowns to the left of me, jokers to the right, here I am...
+ - We have never arrived. We are in a constant state of becoming.
+ - There is nothing so stable as change.
+ - Take care of all your memories. For you cannot relive them.
+ - For the loser now Will be later to win.
+ - How many deaths will it take ’till we know that too many people have died?
+ - Peace is the time it takes to reload your rifle.
+ - If you don’t believe there’s a price for this sweet paradise, just remind me to show you the scars.
+ - Patriotism is the last refuge to which a scoundrel clings.
+ - Time is an ocean, but it ends at the shore.
+ - Creativity has much to do with experience, observation and imagination, and if any one of those key elements is missing, it doesn’t work.
+ - How many roads must a man walk down, Before you call him a man? How many seas must a white dove sail, Before she sleeps in the sand? Yes, and how many times must the cannon balls fly, Before they’re forever banned?
+ - Music attracts the angels in the universe.
+ - Don’t follow leaders.
+ - May you always be courageous, stand upright and be strong, may you stay forever young.
+ - An artist has got to be careful never really to arrive at a place where he thinks he’s AT somewhere. You always have to realize that you’re constantly in a state of becoming. And, as long as you can stay in that realm you’ll sort of be alright.
+ - The line it is drawn The curse it is cast The slow one now Will later be fast As the present now Will later be past The new order is Rapidly fadin’. And the first one now Will later be last For the times they are a-changin’.
+ - All this talk about equality. The only thing people really have in common is that they are all going to die.
+ - I hate myself for loving you and the weakness that it showed. You were just a painted face on a trip down to suicide road.
+ - Yesterday’s just a memory, tomorrow is never what it’s supposed to be.
+ - Chaos is a friend of mine.
+ - To live outside the law, you must be honest.
+ - I change during the course of a day. I wake and I’m one person, and when I go to sleep I know for certain I’m somebody else.
+ - May you grow up to be righteous, may you grow up to be true. May you always know the truth and see the lights surrounding you. May you always be courageous, stand upright and be strong. May you stay forever young.
+ - The naked truth is still taboo.
+ - The future for me is already a thing of the past – You were my first love and you will be my last.
+ - All the truth in the world adds up to one big lie.
+ - There is a house in New Orleans they call the Rising Sun, and it’s been the ruin of many a poor boy and God I know I’m one.
+ - There’s only one day at a time here, then it’s tonight and then tomorrow will be today again.
+ - Mona Lisa must have had the highway blues; you can tell by the way she smiles.
+ - Gonna change my way of thinking, make my self a different set of rules. Gonna put my good foot forward and stop being influenced by fools.
+ - It’s like my whole life never happened, When I see you, it’s as if I never had a thought. I know this dream, it might be crazy, But it’s the only one I’ve got.
+ - Ain’t no use jiving, ain’t no use joking, everything is broken.
+ - Experience teaches us that silence terrifies people the most.
+ - Your heart is like the ocean, mysterious and dark.
+ - What looks large from a distance, close up ain’t never that big.
+ - People don’t live or die, people just float.
+ - God bless you all with peace, tranquility and good will.
+ - The walls of pride are high and wide, can’t see over to the other side.
+ - Whenever anybody does something in a big way, it’s always rejected at home and accepted someplace else.
+ - Never make it perfect.
+ - It’s not dark yet But it’s getting there.
+ - A mistake is to commit a misunderstanding.
+ - How does it feel, how does it feel to be without a home, like a complete unknown, like a rolling stone.
+ - Whatever colors you have in your mind, I’ll show them to you and you’ll see them shine.
+ - The hollow horn plays wasted words, proves to warn that he not busy being born is busy dying.
+ - Well, you always know who you are. I just don’t know who I’m gonna become.
+ - People have a hard time accepting anything that overwhelms them.
+ - This land is your land and this land is my land, sure, but the world is run by those that never listen to music anyway.
+ - Your old road is rapidly aging. Please get out of the new one If you can’t lend your hand, For the times they are a-changin’.
+ - Well, I sing by night, wander by day. I’m on the road and it looks like I’m here to stay.
+ - Draft beer, not people.
+ - I gaze into the doorway of temptation’s angry flame And every time I pass that way I always hear my name.
+ - Done laid around, done stayed around This old town too long And it seems like I’ve got to travel on.
+ - Let me ask you one question Is your money that good Will it buy you forgiveness Do you think that it could I think you will find When your death takes its toll All the money you made Will never buy back your soul.
+ - I was so much older then; I’m younger than that now. From the back pages.
+ - God, I’m glad I’m not me.
+ - Don’t get up gentlemen. I’m only passing through!
+ - You can always come back, but you can’t come back all the way.
+ - Everything that I’m saying You can say it just as good.
+ - Couldn’t help but make me feel ashamed to live in a land where justice is a game.
+ - Loneliness, tenderness, high society, notoriety, you fight for the throne and you travel alone.
+ - Let us not talk falsely now, the hour is getting late.
+ - I’ll always thank the Lord when my working day is through, I get my sweet reward to be alone with you.
+ - Everything in New Orleans is a good idea.
+ - Inside the museum infinity goes up on trial. Voices echo, ‘This is what salvation must be like after a while.’ But Mona Lisa must have had the highway blues; you can tell by the way she smiles.
+ - Some people seem to fade away but then when they are truly gone, it’s like they didn’t fade away at all.
+ - Take me on a trip upon your magic swirling ship.
+ - I like spiritual songs. They struck me as truthful and serious. They brought me down to earth and they lifted me up all in the same moment.
+ - Come you masters of war You that build all the guns You that build the death planes You that build the big bombs You that hide behind walls You that hide behind desks I just want you to know I can see through your masks.
+ - I consider myself a poet first and a musician second. I live like a poet and I’ll die like a poet.
+ - Socialism, hypnotism, patriotism, materialism, fools making laws for the breaking of jaws.
+ - There’s eyes behind the mirrors in empty places.
+ - Doesn’t expecting the unexpected make the unexpected expected?
+ - It is the first line that gives the inspiration and then it’s like riding a bull. Either you just stick with it, or you don’t.
+ - The tree of life is growing where the spirit never dies, and the bright light of salvation shines in dark and empty skies.
+ - She knows there’s no success like failure, and that failure’s no success at all.
+ - Folk music is a bunch of fat people.
+ - I was never a topical songwriter.
+ - Mama, put my guns in the ground, I can’t shoot them anymore. That long black cloud is coming down.
+ - Sometimes it’s not enough to know what things mean, sometimes you have to know what things don’t mean.
+ - It’s mighty funny. The end of time has just begun.
+ - All I’ve got is a red guitar, three chords and the truth.
+ - I saw ten thousand talkers whose tongues were all broken, I saw guns and sharp swords in the hands of young children, And it’s a hard, it’s a hard, it’s a hard, it’s a hard, It’s a hard rain’s a-gonna fall.
+ - You better start swimming, or you’ll sink like a stone. Because the Time’s they are a-changing.
+ - I don’t want no pickle. Just want to ride my motorcycle.
+ - And there’s no one there to dry your tears. I could hold you for a million years. To make you feel my love.
+ - And it’s a hard, It’s a hard, It’s a hard, It’s a hard, It’s a hard rain gonna fall.
+ - Inspiration is hard to come by. You have to take it where you find it.
+ - Life is sad, life is a bust, all you can do is do what you must.
+ - Your mind is a your temple, keep it beautiful and free. Don’t let an egg get laid in it by something you can’t see.
+ - You should always take the best from the past, leave the worst back there and go forward into the future.
+ - Well, I try my best to be just like I am, But everybody wants you to be just like them, They sing while you slave and I just get bored.
+ - We all like motorcycles to some degree.
+ - Don’t Ask Me Nothing About Nothing, I Just Might Tell You the Truth.
+ - There are many here among us who feel that life is but a joke. But you and I, we’ve been through that, and this is not our fate, so let us not talk falsely now, the hour is getting late.
+ - If you don’t underestimate me, I won’t underestimate you.
+ - Maybe someday you will understand, that something for nothing is everybody’s plan.
+ - All the people we used to know, they’re an illusion to me now.
+ - I believe in you, even though I be outnumbered.
+ - You’re gonna have to serve somebody; well, it may be the devil, or it may be the Lord, but you’re gonna have to serve somebody...
+ - You’re gonna have to serve somebody.
+ - Democracy don’t rule the world, You’d better get that in your head; This world is ruled by violence, But I guess that’s better left unsaid.
+ - Art is a never-ending dance of illusions.
+ - I got this grave yard woman.
+ - Wasn’t making any great connection Wasn’t falling for any intricate scheme Nothing that would pass inspection Just thinking of a series of dreams.
+ - I’m mortified to be on the stage, but then again, it’s the only place where I’m happy.
+ - Love is all there is, it makes the world go ’round Love and only love, it can’t be denied No matter what you think about it You just won’t be able to do without it Take a tip from one who’s tried.
+ - Art is the perpetual motion of illusion. The highest purpose of art is to inspire. What else can you do? What else can you do for any one but inspire them?
+ - In ceremonies of the horsemen, even the pawn must hold a grudge.
+ - I am a restless soul hungry perhaps wretched.
+ - Freedom just around the corner for you, but with the truth so far off, what good will it do?
+ - Everything’s a business. Love, truth, beauty. Conversation is a business. Spirituality is not a business, so it’s going to go against the grain of people who are trying to exploit other people.
+ - How many times can a man turn his head, and pretend that he just doesn’t see?
+ - I gave her my heart but she wanted my soul...
+ - Black is the Color and none is the number.
+ - Sometimes the silence can be like thunder.
+ - I kinda live where I find myself.
+ - Call me any name you like I will never deny it.
+ - If you try to be anyone but yourself, you will fail; if you are not true to your own heart, you will fail. Then again, there’s no success like failure.
+ - You’ll never be greater than yourself.
+ - Keep a good head and always carry a light bulb.
+ - I think women rule the world and that no man has ever done anything that a woman either hasn’t allowed him to do or encouraged him to do.
+ - The woman I love she got a prize fighter nose, cauliflower ears and a run in her hose.
+ - Even I don’t know what I’m saying most of the time.
+ - After a while you earn that privacy is something you can sell, but you can’t buy it back.
+ - I ain’t saying you treated me unkind you could’ve done better, but I don’t mind. You just kinda wasted my precious time. But don’t think twice, it’s alright.
+ - So I cut off my hair and I rode straight away, to the wild unknown country where I could not go wrong.
+ - The good Samaritan, he’s getting dressed, he’s getting ready for the show. He’s going to the carnival tonight on Desolation Row.
+ - Upon four-legged forest clouds the cowboy angel rides.
+ - The sun’s not yellow, its chicken!
+ - They say everything can be replaced, Yet every distance is not near. So I remember every face Of every man who put me here. I see my light come shining From the west unto the east. Any day now, any day now, I shall be released.
+ - She never stumbles, she’s got no place to fall. She’s nobody’s child, the law can’t touch her at all.
+ - Life has its ups and downs, and time has to be your partner. Really, time is your soul mate.
+ - I don’t think the human mind can comprehend the past and the future. They are both just illusions that can manipulate you into thinking theres some kind of change.
+ - Advertising signs: they con you into thinking you’re the one That can do what’s never been done That can win what’s never been won Meantime life outside goes on all around you.
+ - When you think that you lost everything you find out you can always lose a little more.
+ - Take me disappearing, through the smoke rings of my mind, down the foggy ruins of time...
+ - The land created me. I’m wild and lonesome. Even as I travel the cities, I’m more at home in the vacant lots.
+ - When you’re sad and when you’re lonely and you haven’t got a friend, just remember that death is not the end.
+ - Don’t matter how much money you got, there’s only two kinds of people: there’s saved people and there’s lost people.
+ - Being noticed can be a burden. Jesus got himself crucified because he got himself noticed. So I disappear a lot.
+ - I wish that for just one time you could stand inside my shoes. You’d know what a drag it is to see you.
+ - The highlight of my career? That’s easy, Elvis recording one of my songs.
+ - Morality has nothing in common with politics.
+ - Yes, to dance beneath the diamond sky with one hand waving free, Silhouetted by the sea, circled by the circus sands.
+ - Look out your window, and I’ll be gone. You’re the reason I’m a-traveling on...
+ - I make my stand and remain as I am, and bid farewell and not give a damn.
+ - Shedding off one more layer of skin, Keeping one step ahead of the persecutor within.
+ - You say love is just a four letter word.
+ - I think of rock ‘n’ roll as a combination of country blues and swing band music, not Chicago blues, and modern pop.
+ - My senses have been stripped, my hands can’t feel to grip, my toes to numb to step, wait only for my boot heels to be wandering.
+ - Let the dead bury the dead, your time will come.
+ - You never turned around to see the frowns on the jugglers and the clowns when they all did tricks for you.
+ - We never thought we could ever get old.
+ - I’m more of an adventurous type than a relationship type.
+ - You I am sure will forgive me for sincerely remarking that you might curb your magnanimity and be more of an artist, and ‘load every rift’ of your subject with ore.
+ - I am against nature. I don’t dig nature at all. I think nature is very unnatural. I think the truly natural things are dreams, which nature can’t touch with decay.
+ - Dead man, dead man When will you arise? Cobwebs in your mind Dust upon your eyes.
+ - If God is on our side, he’ll stop the next war.
+ - Nothing is better, nothing is best, take heed of this and get plenty of rest.
+ - So happy just to be alive, Underneath the sky of blue, On this new morning, new morning, On this new morning with you.
+ - Truth is an arrow and the gate is narrow that it passes through.
+ - A song is like a dream, and you try to make it come true. They’re like strange countries that you have to enter.
+ - It’s not easy to define poetry.
+ - Once I went into songwriting, I figured I had to – I couldn’t be a hellfire rock ‘n’ roller. But I could write hellfire lyrics.
+ - A poem is a naked person.
+ - Is your money that good, will it buy you forgiveness?
+ - Strange how people who suffer together have stronger connections than those who are most content.
+ - There are a lot of places I like, but I like New Orleans better.
+ - How many a year has passed and gone and many gamble has been lost and won, and many a road taken by a friend and each one I’ve never seen again.
+ - Most songs have bridges in them, to distract listeners from the main verses of a song so they don’t get bored. My songs don’t have a lot of bridges because lyric poetry never had them.
+ - I hurt easy, I just don’t show it. You can hurt someone and not even know it.
+ - Steal a little, and they put you in jail. Steal a lot, and they make you king.
+ - Yes, and only if my own true love was waiting If I could hear his heart softly pounding Yes, and only if he was lying by me Would I lie in my bed once again.
+ - The man in the coon skin cap in the pig pen wants eleven dollar bills, you’ve only got ten.
+ - He did ten years in Attica, reading Nietzsche and Wilhelm Reich.
+ - Gates appeal to me because of the negative space they allow. They can be closed but at the same time they allow the seasons and breezes to enter and flow. They can shut you out or shut you in. And in some ways there is no difference.
+ - You always got to be prepared but you never know for what.
+ - For them that think death’s honesty won’t fall upon them naturally life sometimes must get lonely.
+ - Well the book of Leviticus and Deuteronomy, the law of the jungle and the sea are your only teachers.
+ - Silvio, I gotta go, find out something only dead men know.
+ - I practice a faith that’s been long abandoned Ain’t no altars on this long and lonesome road.
+ - How many years can some people exist before they’re allowed to be free...
+ - I’m in love with my second cousin.
+ - Little red wagon, little red bike, I ain’t no monkey but I know what I like.
+ - I like Fidel Castro and his beard.
+ - I said, you know they refused Jesus, too. He said, you’re not him.
+ - There must be some kind of way out of here,? said the joker to the thief...
+ - You’re a cow Give me some milk Or else go home.
+ - Now all the criminals in their suits and ties are free to drink martinis and watch the sunrise.
+ - Good and bad, I define these terms, quite clear, no doubt, somehow.
+ - I kissed goodbye the howling beast on the borderline which separated you from me.
+ - Uncle fought in Vietnam and then he fought a war all by himself.
+ - If you can’t lend a hand, then get out of the way.
+ - Situations have ended sad, Relationships have all been bad.
+ - You’ll find out when you reach the top, you’re on the bottom.
+ - Broken bottles, broken plates, broken switches, broken gates. Broken dishes, broken parts, streets are filled with broken hearts.
+ - You say you’re looking for someone who’ll pick you up each time you fall, to gather flowers constantly and to come each time you call, a lover your life and nothing more. But it ain’t me, babe.
+ - The pump don’t work cause the vandals took the handle.
+ - I met a young man who was wounded in love, I met another man who was wounded in hatred.
+ - Her profession’s her religion, her sin is lifelessness.
+ - The motorcycle black madonna Two wheeled gypsy queen.
+ - The land of milk and honey, they say it is the land of money.
+ - I’m determined to stand whether God will deliver me or not.
+ - Adulterers in churches and pornography in the schools, you got gangsters in power and lawbreakers making rules. When you gonna wake up?
+ - A song is anything that can walk by itself.
+ - In harmony with cosmic sea, true love needs no company. It can cure the soul, it can make it whole, if dogs run free.
+ - Peace will come With tranquility and splendor on the wheels of fire But will bring us no reward when her false idols fall...
+ - Just because you like my stuff doesn’t mean I owe you anything.
+ - Obscenity, who really cares. Propaganda, all is phony.
+ - They’re selling postcards of the hanging.
+ - It frightens me, the awful truth, of how sweet life can be...
+ - Oh, time is short and the days are sweet and passion rules the arrow that flies.
+ - Romance never does go out of fashion. It’s radical. But it’s out of step with the current media culture.
+ - Everything from toy guns that spark To flesh-colored Christs that glow in the dark It’s easy to see without looking too far That not much is really sacred.
+ - Basically you have to suppress your own ambitions in order to be who you need to be.
+ - How many times have you heard someone say If I had his money I’d do things my way Hmm, but little they know Hmm, it’s so hard to find One rich man in ten with a satisfied mind.
+ - But even the President of the United States sometimes must have to stand naked.
+ - Businessmen, they drink my wine, plowmen dig my earth. None of them along the line know what any of it is worth.
+ - I can’t see my reflection in the waters, I can’t speak the sounds that show no pain. I can’t hear the echo of my footsteps, or can’t remember the sound of my own name.
+ - Yesterday is just a memory.
+ - Idiot wind, blowing every time you move your teeth. You’re an idiot babe, it’s a wonder that you still know how to breathe.
+ - Mama’s in the factory, she ain’t got no shoes. Daddy’s in the alley, he’s looking for food.
+ - My favorite politician was Arizona Senator Barry Goldwater, who reminded me of Tom Mix, and there wasn’t any way to explain that to anybody.
+ - Loneliness Got a mind of its own The more people around The more you feel alone.
+ - In this age of fiberglass, I’m searching for a gem.
+ - The truth that I am seeking is in your missing file.
+ - Lay down the song you strum, And rest yourself ’neath the strength of strings No voice can hope to hum.
+ - There are those who worship loneliness, I’m not one of them In this age of fiberglass I’m searching for a gem The crystal ball up on the wall hasn’t shown me nothing yet I’ve paid the price of solitude, but at last I’m out of debt.
+ - Although the masters make the rules for the wise men and the fools, I’ve got nothing, Ma, to live up to.
+ - It’s not important what other people call you. If you yourself know you’re a fake, that’s tougher to live with.
+ - Why wait any longer for the one you love When he’s standing in front of you.
+ - Remember when you’re out there trying to heal the sick, that you must always first forgive them.
+ - I accept chaos. I am not sure whether it accepts me. I know some people are terrified of the bomb. But then some people are terrified to be seen carrying a modern screen magazine. Experience teaches us that silence terrifies people the most.
+ - It’s hard to speculate what tomorrow may bring.
+ - When blackness was a virtue and the road was full of mud, I came in from the wilderness, a creature void of form.
+ - I love Country Music but what happened to it?
+ - Forget the dead you’ve left, they will not follow you.
+ - The truth was obscure, Too profound and too pure, To live it you had to explode.
+ - I was burned out from exhaustion, buried in the hail, poisoned in the bushes, blown out on the trail; hunted like a crocodile, ravaged in the corn, “Come in,” she said, “I’ll give ya shelter from the storm.”
+ - Satan will give you a little taste, then he’ll move in with rapid speed.
+ - God is in heaven, and we all want what’s his. But power and greed and corruptible seed seem to be all that there is.
+ - Passion is a young man’s game. Young people can be passionate. Older people gotta be more wise.
+ - The times are a-changing and if we don’t we will sink like a stone.
+ - I felt like I might as well have been living in another part of the solar system.
+ - Get jailed, jump bail, join the Army if you fail.
+ - The whole world’s a bottle, And life’s but a dram, When the bottle gets empty, It sure ain’t worth a damn.
+ - You breathed on me and made my life a richer one to live, when I was deep in poverty you taught me how to give. Dried the tears up from my dreams and pulled me from my hole, quenched my thirst and satisfied the burning in my soul.
+ - The cavalries charged and the Indians died, oh the country was young with God on its side.
+ - And I’ll stand on the ocean until I start sinking.
+ - It takes a lot to laugh, it takes a train to cry.
+ - You’re better than no one and no one is better than you.
+ - My songs were influenced not so much by poetry on the page but by poetry being recited by the poets who recited poems with jazz bands.
+ - The battle outside raging will soon shake your windows and rattle your walls.
+ - We don’t see the people that vice destroys. We just see the glamour of it – everywhere we look, from billboard signs to movies, to newspapers, to magazines. We see the destruction of human life.
+ - If I had rubies, riches, and crowns, I’d buy the whole world and change things around.
+ - I can’t see myself singing the same song twice in a row. That’s terrible.
+ - When I think of mystery, I don’t think about myself. I think of the universe, like why does the moon rise when the sun falls? Caterpillars turn into butterflies? I really haven’t remained a recluse.
+ - As he weeps to wicked birds of prey, who pick up on his bread crumb sins, and there are no sins inside the Gates of Eden.
+ - Every writer at the New Yorker is smarter than me.
+ - In the dime stores and bus stations, people talk of situations, read books, repeat quotations, draw conclusions on the wall.
+ - Since my feet are now fast and point away from the past, I’ll bid farewell and be down the line.
+ - Your eyes are like two jewels in the sky.
+ - Jesus tapped me on the shoulder and said, Bob, why are you resisting me? I said, I’m not resisting you! He said, You gonna follow me? I said, I’ve never thought about that before! He said, When you’re not following me, you’re resisting me.
+ - Jesus, that ear. He should donate it to The Smithsonian. Brian Wilson, he made all his records with four tracks, but you couldn’t make his records if you had a hundred tracks today.
+ - He hands you a nickel, he hands you a dime. He asks you with a grin, if you’re having a good time.
+ - A million faces at my feet but all I see are dark eyes.
+ - My songs always sound a lot better in person than they do on the record.
+ - There’s a wall between you and what you want and you got to leap it.
+ - I believe that instinct is what makes a genius a genius.
+ - You’ve got to lose your passion for dumbness.
+ - You might be a rock and roll addict prancing on the stage. You might have drugs at your command, women in a cage.
+ - Beauty walks a razors edge, someday I’ll make it mine.
+ - Just a reminder, if you tell anyone about what happened with Jonah last night, I’ll destroy all of my writing and never play music again.
+ - If ever asked to look at yourself, don’t.
+ - We’re living in times where men commit crimes and crime don’t have a face.
+ - Some formulas are too complex and I don’t want anything to do with them.
+ - Look, when I started out, mainstream culture was Sinatra, Perry Como, Andy Williams, Sound of Music. There was no fitting into it then and of course, there’s no fitting into it now.
+ - Sometimes you just have to bite your upper lip and put sunglasses on.
+ - Passion is a young man’s game. Young people can be passionate. Older people gotta be more wise. I mean, you’re around awhile, you leave certain things to the young. Don’t try to act like you’re young. You could really hurt yourself.
+ - Well the deputy walks on hard nails and the preacher rides a mount, But nothing really matters much it’s doom alone that counts.
+ - I am hanging in the balance of a perfect finished plan, like every sparrow falling, like every grain of sand.
+ - Madonna, she still has not showed, we see this empty cage now corrode, where her cape of the stage once had flowed, the fiddler he now steps to the road, on the back of the fish truck that loads, while my conscience explodes.
+ - Fearing not that I’d become my enemy In the instant that I preach.
+ - Watch waterfalls of pity roar, you feel to moan but unlike before, you discover that you’d just be one more person crying.
+ - I once loved a girl, her skin it was bronze With the innocence of a lamb, she was gentle like a fawn I courted her proudly but now she is gone Gone as the season she’s taken.
+ - Heard ten thousand whispering and nobody listening. Heard one person starve, I heard many people laughing. Heard the song of a poet who died in the gutter.
+ - One should never be where one does not belong.
+ - And for each unharmful gentle soul misplaced inside a jail...
+ - The executioner’s face is always well hidden.
+ - The enemy is subtle, how be it we are so deceived, when truth’s in our hearts and we still don’t believe.
+ - I saw guns and sharp swords in the hands of young children.
+ - The rifleman’s stalking the sick and the lame, preacherman seeks the same, who’ll get there first is uncertain.
+ - Shakespeare, he’s in the alley with his pointed shoes and his bells, speaking to some French girl who says she knows me well.
+ - One who sings with his tongue on fire, gargles in the rat race choir.
+ - To preach of peace and brotherhood, oh what might be the cost? A man he did it long ago, and they hung him on a cross.
+ - I can be jubilant one moment and pensive the next, and a cloud could go by and make that happen.
+ - Jewels and binoculars hang from the head of the mule.
+ - I just try to understand that tomorrow is another day.
+ - Fortune or fame, you must pick one or the other, though neither of them are to be what they claim.
+ - She had bullets in her eyes and they fired.
+ - Masters of the bluff and masters of the proposition, but the enemy I see wears a cloak of decency.
+ - The Harmonica is the world’s best-selling musical instrument. You’re welcome.
+ - Well the Lone Ranger and Tonto, they are riding down the line fixing everybody’s troubles, everybody except mine.
+ - Everyone of them words rang true and glowed like burning coal, pouring off every page like it was written in my soul from me to you.
+ - You will find God in the church of your choice.
+ - I’m ready to go anywhere, I’m ready for to fade, into my own parade, cast your dancing spell my way.
+ - Good intentions can be evil, both hands are full of grease. You know, sometimes Satan comes as a man of peace.
+ - New York was a city where you could be frozen to death in the midst of a busy street and nobody would notice.
+ - It may look like I’m moving but I’m standing still.
+ - But now we got weapons Of the chemical dust If fire them we’re forced to Then fire them we must One push of the button And a shot the world wide And you never ask questions When God’s on your side.
+ - You five and ten cent women with nothing in your heads, I got a real gal I’m loving and Lord I’ll love her ’til I’m dead.
+ - Stay free of petty jealousies, live by no man’s code, and hold your judgment for yourself, lest you wind up on this road.
+ - You use to ride on the chrome horse with your diplomat, who carried on his shoulder a Siamese cat.
+ - Half of the people can be part right all of the time, Some of the people can be all right part of the time. I think Abraham Lincoln said that. ‘I’ll let you be in my dreams if I can be in yours,’ I said that.
+ - You’ll find God in the church of your choice, you’ll find Woody Guthrie in the Brooklyn State Hospital.
+ - I feel like falling in love with the first woman I meet, putting her in a wheel-barrow and wheeling her down the street.
+ - He gambled all his life, he’s got 27 children, yet he’s never had a wife.
+ - Done so many evil things in the name of love, it’s a crying shame. I never did see no fire that could put out a flame.
+ - Now, each of us has his own special gift And you know this was meant to be true. And if you don’t underestimate me I won’t underestimate you.
+ - I fought with my twin, the enemy within.
+ - You don’t count the dead, when god’s on your side.
+ - The longer you live, the better you get.
+ - I ain’t looking to compete with you, beat, or cheat, or mistreat you, simplify you, classify you, deny, defy, or crucify you. All I really want to do is, baby, be friends with you.
+ - I always thought the best kind of sunglasses are the motorcycle helmets with the black plastic masks on them. That way, nobody can recognize the back of your head either.
+ - Got no religion. Tried a bunch of different religions. The churches are divided. Can’t make up their minds and neither can I.
+ - You must be vulnerable to be sensitive to reality. And to be vulnerable is just another way of saying that one has nothing more to lose. I don’t have anything but darkness to lose.
+ - Warlords of sorrow and queens of tomorrow will offer their heads for a prayer. You can’t find no salvation, you have no expectations anytime, anyplace, anywhere.
+ - The only person you have to think about lying twice to is either yourself or to God. The press isn’t either of them. And I just figured they’re irrelevant.
+ - I could stay with you forever and never realize the time.
+ - The only sound that’s left after the ambulances go is Cinderella sweeping up on Desolation Row.
+ - Michelangelo indeed could have carved out your features.
+ - Princess on the steeple and all the pretty people, they’re drinking, thinking that they got it made. Exchanging all kinds of precious gifts and things, but you’d better lift your diamond ring, you’d better pawn it, babe.
+ - You walk into the room like a camel and then put your eyes in your pockets and your nose on the ground.
+ - Some are masters of illusions, some are ministers of trade, all under the same delusion, all their beds unmade.
+ - Everybody’s wearing a disguise, to hide what they’ve got left behind their eyes.
+ - Death to me means nothing as long as I can die fast.
+ - If not for you, winter wouldn’t hold no spring, couldn’t hear a robin sing. I just wouldn’t have a clue, if not for you.
+ - My love is like some raven at my window with a broken wing.
+ - Disillusioned words like bullets bark as human gods aim for their mark.
+ - God got the power, man has got his vanity. Man gotta choose before God can set him free.
+ - Music can save people, but it can’t in the commercial way it’s being used. It’s just too much. It’s pollution.
+ - There’s beauty in the silver singing river There’s beauty in the sunrise in the sky But none of these and nothing else can match the beauty That I remember in my true love’s eyes.
+ - She takes your voice and leaves you howling at the moon.
+ - I’m the oldest son of a crazy man, I’m in a cowboy band.
+ - When the jelly faced women all sneeze, hear the one with the mustache say I can’t find my knees.
+ - Sundown, yellow moon, I replay the past I know every scene by heart, they all went by so fast.
+ - I’ve never been able to understand the seriousness of it all, the seriousness of pride. People talk, act, live as if they’re never going to die. And what do they leave behind? Nothing. Nothing but a mask.
+ - On the cliffs of your wild cat charms I’m riding.
+ - You swore you’d never compromise With the mystery tramp, but now you realise He’s not selling any alibis As you stare into the vacuum of his eyes And say, do you want to make a deal How does it feel.
+ - Like the lion tears the flesh off a man, so can a woman who passes herself off as a male.
+ - I don’t need your organization, I’ve moved your mountains and I’ve marked you cards, but Eden is burning. You better get ready for elimination or else your hearts must have the courage of the changing of the guard.
+ - I didn’t know whether to duck or to run, so I ran.
+ - Colleges are like old-age homes, except for the fact that more people die in colleges.
+ - There are degrees of happiness. You go from one to the other and then back again. It’s hard to be completely happy when those around us are suffering and groaning from hunger.
+ - Anger and jealousy’s all that he sells us, he’s content when you’re under his thumb. Madmen oppose him, but your kindness throws him, to survive it you play deaf and dumb.
+ - An artist has got to be constantly in a state of becoming.
+ - A lot of people say there is no happiness in this life and certainly there’s no permanent happiness. But self-sufficiency creates happiness.
+ - Technology to wipe out truth is now available. Not everybody can afford it but it’s available. When the cost comes down, look out!
+ - Someone showed me a picture and I just laughed, dignity never been photographed.
+ - I’ve been up the mountain and I had a choice. Should I come down? So I came down. God said, Okay, you’ve been up on the mountain, now you go down. You’re on your own, free. Check in later, but now you’re on your own.
+ - Mothers tell your children not to do the things I have done, to spend my life in sin and misery in the House of the Rising Sun.
+ - Anything I can sing, I call a song. Anything I can’t sing, I call a poem.
+ - I march in the parade of liberty But as long as I love you I’m not free How long must I suffer such abuse Won’t you let me see you smile one time before I turn you loose?
+ - I have tried my hand at bribery, blackmail, and deceit. And I’ve served time for everything, cept beggin on the street.
+ - Reality has always had too many heads.
+ - I say there’re no depressed words just depressed minds.
+ - A lot of people don’t like the road, but it’s as natural to me as breathing.
+ - I don’t really have a retirement plan.
+ - Nothing can affect my voice, it’s so bad.
+ - Don’t know which one is worse, doing your own thing or just being cool.
+ - Sometimes I wonder what it’s gonna take to find dignity.
+ - God bless them pretty women, I wish they was mine, Their breath is as sweet, The dew on the vine.
+ - If I lived my life by what others were thinkin’, the heart inside me would’ve died.
+ - I like America, just as everybody else does. I love America, I gotta say that. But America will be judged.
+ - He’s hell bent for destruction, he’s afraid and confused, and his brain has been mismanaged with great skill.
+ - Cop comes down the street crazy as a loon, he throws us in jail for carrying harpoons.
+ - Now the wintertime is coming The windows are filled with frost I went to tell everybody But I could not get across Well, I wanna be your lover, baby I don’t wanna be your boss Don’t say I never warned you When your train gets lost.
+ - Come Senators, Congressman, please heed the call, don’t stand in the doorway, don’t block the hall.
+ - Let me feel your love one more time before I abandon it.
+ - She can play my guitar note for note, she likes to stick her tongue down my throat.
+ - Don’t wanna marry nobody, if they’re already married.
+ - In the home of the brave, Jefferson turning over in his grave.
+ - You learn from a conglomeration of the incredible past – whatever experience gotten in any way whatsoever.
+ - Lord knows I’ve paid my dues getting through, tangled up in blue.
+ - Trying to create a next world war, he found a promoter who nearly fell off the floor, he said I never engaged in this kind of thing before, but yes I think it can be very easily done.
+ - In writing songs, I’ve learned as much from Cezanne as I have from Woody Guthrie.
+ - Without freedom of speech, I might be in the swamp.
+ - Ain’t it hard when you discover that, he wasn’t really where it’s at, after he took from you everything he could steal. How does it feel?
+ - There are no truths outside the Gates of Eden.
+ - Sing your praise of progress and the doom machine, the naked truth is still taboo whenever it can be seen.
+ - What good are fans? You can’t eat applause for breakfast. You can’t sleep with it.
+ - There used to be a time when the idea of heroes was important. People grew up sharing those myths and legends and ideals. Now they grow up sharing McDonalds and Disneyland.
+ - I bargained for salvation and they gave me a lethal dose.
+ - In the valley of the giants where the stars and stripes explode, the peaches they were sweet and the milk and honey flowed.
+ - Through the mad mystic hammering of the wild ripping hail The sky cracked its poems in naked wonder.
+ - I never wanted to be a prophet or a saviour. Elvis maybe.
+ - But I would not feel so all alone, everybody must get stoned.
+ - My guard stood hard when abstract threats, too noble to neglect, deceived me into thinking, I had something to protect.
+ - The dirt of gossip blows into my face and the dust rumors cover me. But if the arrow is straight and the point is slick, it can pierce through dust no matter how thick.
+ - I define nothing. Not beauty, not patriotism. I take each thing as it is, without prior rules about what it should be.
+ - The government’s not going to create jobs. It doesn’t have to. People have to create jobs...
+ - Well, it’s always been my nature to take chances My right hand drawing back while my left hand advances.
+ - Gold will never free your father, the price, my dear, is you instead.
+ - When you cease to exist, then who will you blame?
+ - You have to work out where your place is. And who you are. But we’re all spirit. That’s all we are, we’re just walking dressed up in a suit of skin, and we’re going to leave that behind.
+ - If I had wings, no one would ask me: should I fly?
+ - The worth of things can’t be measured by what they cost but by what the cost you to get it, that if anything costs you your faith or your family, then the price is too high, and that there are some things that will never wear out.
+ - I don’t write the songs; I just write ’em down.
+ - I read On the Road in maybe 1959. It changed my life like it changed everyone else’s.
+ - You say you’ve lost your faith But that’s not where it’s at You have no faith to lose and you know it.
+ - People tell me it’s a sin, to know and feel too much within.
+ - Seven shots ring out like the ocean’s pounding roar, there’s seven people dead on a South Dakota farm.
+ - Anybody can be specific and obvious. That’s always been the easy way. It’s not that it’s so difficult to be unspecific and less obvious; it’s just that there’s nothing, absolutely nothing, to be specific and obvious about.
+ - People have different emotional levels. Especially when you’re young. Back then I guess most of my influences could be thought of as eccentric. Mass media had no overwhelming reach so I was drawn to the traveling performers passing through.
+ - I’m one too many mornings, and a thousand miles behind.
+ - Art can lead you to God. I think that’s the purpose of everything. If it’s not doing that, what’s it doing? It’s leading you the other way. It’s certainly not leading you nowhere.
+ - I didn’t come out of a cereal box.
+ - Suddenly I found you and the spirit in me sings, Don’t have to look no further, You’re the soul of many things.
+ - The drunken politician leaps upon the street where mothers weep, and the saviors who are fast asleep, they wait for you.
+ - That’s another way of writing a song, of course. Just talking to somebody that ain’t there. That’s the best way. That’s the truest way. Then it just becomes a question of how heroic your speech is. To me, it’s something to strive after.
+ - There doesn’t seem to be any tomorrow. Every time I wake up, no matter in what position, it’s always been today.
+ - Every day your memory grows dimmer – it doesn’t haunt me like it did before.
+ - Too much of nothing can turn a man into a liar. It can cause one man to sleep on nails and another to eat fire.
+ - I set my monkey on the log, and ordered him to do the Dog. He wagged his tail and shook his head, and he went and did the Cat instead.
+ - It will scramble your head and drag your brain about, sometimes you gotta do like Elvis did and shoot the damn thing out.
+ - Johnny’s in the basement Mixing up the medicine I’m on the pavement Thinking ’bout the government.
+ - I paint mostly from real life. It has to start with that. Real people, real street scenes, behind the curtain scenes, live models, paintings, photographs, staged setups, architecture, grids, graphic design. Whatever it takes to make it work.
+ - You shouldn’t let other people get your kicks for you.
+ - With great lawyers you have discussed lepers and crooks, you’ve been through all of F. Scott Fitzgerald’s books.
+ - I find C major to be the key of strength, but also the key of regret. E major is the key of confidence. A-flat major is the key of renunciation.
+ - Who am I helping, what am I breaking, what am I giving, what am I taking?
+ - Idiot wind, blowing every time you open your mouth.
+ - You were born with a snake in both of your fists while a hurricane was blowing.
+ - On the stone that remains carved next to his name, his epitaph plain, only a pawn in their game.
+ - Charity is suppose to cover up for a multitude of sins.
+ - If you want to know how to please a woman, just talk to a neuroscience major from Columbia.
+ - There ought to be a law about you coming around.
+ - It pays to know who your friends are but it also pays to know you ain’t got any friends.
+ - There’s no liquor in the land that can stop your brain from bleedin.
+ - Sold my guitar to the baker’s son for a few crumbs and a place to hide.
+ - If I made records for my own pleasure, I would only record Charley Patton songs.
+ - You need something to open up a new door, to show you something you seen before but overlooked a hundred times or more.
+ - I was just too stubborn to ever be governed by enforced insanity.
+ - Bullets can harm you and death can disarm you, but no, you will not be deceived. Stripped of all virtue as you crawl through the dirt, you can give but you cannot receive.
+ - The real power is in the hands of small groups of people and I don’t think they have titles.
+ - Proud to steal her anything she sees, but you will wind up peeking through her key hole down upon your knees.
+ - I don’t have the kinds of relationships that are built on any kind of false pretense, not to say that I haven’t. I’ve had just as many as anybody else, but I haven’t had them in a long time.
+ - I really don’t like to hurt myself. I have a good understanding with all the women who have been in my life, whether I see them occasionally or not.
+ - Hold it, Doc, a world war passed through my brain. He said, Nurse, get your pad, this boy’s insane.
+ - Creativity has a lot to do with the main idea. Inspiration is what comes when you are dealing with the idea. But inspiration won’t invite what’s not there to begin with.
+ - They kill people here who stand up for their rights The system’s just too damned corrupt It’s always the same, the name of the game Is who do you know higher up.
+ - The National Bank at profit sells road maps for the soul.
+ - Don’t forget to support your public library.
+ - I’m a liberal to a degree, I want everybody to be free. But if you think that I’ll let Barry Goldwater move in next door.
+ - Dealing with my own life takes priority over other people dealing with my life.
+ - You can have your youth It’ll rot before your eyes.
+ - Despite everybody who has been born and has died, the world has just gone on. I mean, look at Napoleon -but we went right on. Look at Harpo Marx -the world went around, it didn’t stop for a second. It’s sad but true. John Kennedy, right?
+ - I heard the tongues of angels and the tongues of men and it all sounded no different to me.
+ - Having these colossal accolades and titles, they get in the way.
+ - A cat’s meow and cow’s moo, I can recite them all.
+ - People think they know me from my songs. But my repertoire of songs is so wide-ranging that you’d have to be a madman to figure out the characteristics of the person who wrote all those songs.
+ - It ain’t my cup of meat.
+ - Gotta head full of ideas that are driving me insane...
+ - What did I owe the rest of the world? Nothing.
+ - All the money you made will never buy back your soul.
+ - I just don’t hear anyone else making the music I’m making in my head, so I’ll have to do it myself.
+ - It wouldn’t kill you to stay the night anyway.
+ - I became interested in folk music because I had to make it somehow.
+ - I’ve always been the kind of person that doesn’t like to trespass, but sometimes you just find yourself over the line.
+ - I have dined with kings, I’ve been offered wings. And I’ve never been too impressed.
+ - They self-inflict punishment on their own broken lives, put their faith in their possessions, in their jobs, or their wives.
+ - He swift don’t win the race. It goes to the worthy, who can divide the word of truth.
+
+500 quotes

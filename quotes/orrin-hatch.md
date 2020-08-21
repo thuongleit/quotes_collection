@@ -1,0 +1,33 @@
+ - Graduation is not the end; it’s the beginning.
+ - There is a good reason they call these ceremonies ‘commencement exercises’. Graduation is not the end; it’s the beginning.
+ - Capital punishment is our society’s recognition of the sanctity of human life.
+ - A judicial standard means that a judicious decision can be entirely correct, even when the result does not line up with our preferred political positions or cater to certain political interests.
+ - I do know dumb-ass questions when I see dumb-ass questions.
+ - Mentioning God in the Pledge of Allegiance is no different in kind than allowing government salaried Chaplains for the military or for the Congress, or including the official motto, In God We Trust, on our currency.
+ - Scorecards are common in the political process, but they are inappropriate in the judicial process. The most important tools in the judicial confirmation process are not litmus paper and a calculator.
+ - When Judge Ruth Bader Ginsburg was before us in 1993, she said that her standard was to give no hints, no forecasts, no previews, and declined to answer dozens of questions.
+ - If they can shut down ABC News and ABC network programming just because they don’t agree on something, it makes you wonder.
+ - The First Amendment is not an altar on which we must sacrifice our children, families, and community standards. Obscene material that is not protected by the First Amendment can and must be prohibited.
+ - However, FDA attempted to reverse this clear congressional intent in March, 1979, by proposing to regulate vitamins and minerals as ‘Over-The-Counter’ drugs...
+ - The debate over judicial nominations is a debate over the judiciary itself. It is a debate over how much power unelected judges should have in our system of government, how much control judges should have over a written constitution that belongs to the people.
+ - I sleep so much better at night, knowing that America is protected from thin pickles and fast ketchup.
+ - Vigilant and effective antitrust enforcement today is preferable to the heavy hand of government regulation of the Internet tomorrow.
+ - We cannot let our respect for the FBI blind us from the fact the FBI has sometimes come up short of our expectations.
+ - In our system of government, the judicial and legislative branches have different roles. Judges are not politicians. Judges must decide cases, not champion causes. Judges must settle legal disputes, not pursue agendas. Judges must interpret and apply the law, not make the law.
+ - Judges who take the law into their own hands, who make up constitutional ‘rights’ in order to strike down laws they oppose, undermine the people’s right to have their values shape public policy and define the culture.
+ - Ending up in the right place in this debate requires starting in the right place. The right place to start is the proper discrimination of what judges are supposed to do, and the rest of the process should reflect this judicial job description.
+ - But I bear witness to Christ, too. I really know him to be the savior of the world. And that means more to me than almost anything else I know.
+ - We’re going to find out who did this and we’re going after the bastards.
+ - You know, we should not be giving cash to people who basically are just going to blow it on drugsand not take care of their own children.
+ - Microsoft is engaging in unlawful predatory practices that go well beyond the scope of fair competition.
+ - This principle that judges are not politicians lies at the very heart of a judicial job – of the judicial job description.
+ - Because judges may not issue advisory opinions, judicial nominees may not do so either, especially on issues likely to come before the court. That rule has always been honored.
+ - We should evaluate judges and judicial nominees based on the general process for applying the law to any legal disputes, not on the specific result in a particular case or dispute.
+ - Under the Constitution, the president, not the Senate, nominates and appoints judges. The Senate has a different role. We must give our advice .
+ - No matter how badly senators want to know things, judicial nominees are limited in what they may discuss. That limitation is real, and it comes from the very nature of what judges do.
+ - Our heroes are fighting to bring stability to the Middle East, and they have put pressure on all of the tyrannies of the Middle East. They have taken a stand against tyranny, against terrorists, and for the prospect of decent societies throughout that region.
+ - The only ones who will see an increase in pay are some of the trial lawyers who bring the cases.
+ - We must apply a judicial, not a political, standard to this record. Asking a judicial nominee whose side you will be on in future cases is a political standard.
+ - We must remember that judicial nominees are constrained in what they may discuss and how they may discuss it.
+
+31 quotes

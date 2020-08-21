@@ -1,0 +1,32 @@
+ - Never be afraid to sit a while and think.
+ - This is one of the glories of man, the inventiveness of the human mind and the human spirit: whenever life doesn’t seem to give an answer, we create one.
+ - A woman who is willing to be herself and pursue her own potential runs not so much the risk of loneliness, as the challenge of exposure to more interesting men – and people in general.
+ - One cannot live with sighted eyes and feeling heart and not know and read of the miseries which affect the world.
+ - Once upon a time freedom used to be life-now it’s money. I guess the world really do change.
+ - Everybody talking ’bout heaven ain’t going there!
+ - Though it be a thrilling and marvellous thing to be merely young and gifted in such times, it is doubly so – doubly dynamic – to be young, gifted and black.
+ - Ball points belong to their age. They make everyone write alike.
+ - I was born black and female.
+ - The thing that makes you exceptional, if you are at all, is inevitably that which must also make you lonely.
+ - There is always something left to love. And if you haven’t learned that, you ain’t learned nothing.
+ - Children see things very well sometimes and idealists even better.
+ - Sometimes, I can see the future stretched out in front of me – just as plain as day. The future hanging over there at the edge of my days. Just waiting for me.
+ - Our Southside is a place apart: each piece of our living is a protest.
+ - One for whom bread- food- is not enough.
+ - Seems like God don’t see fit to give the black man nothing but dreams – but He did give us children to make them dreams seem worthwhile.
+ - I think that the human race does command its own destiny and that that destiny can eventually embrace the stars.
+ - That’s what being eccentric means – being natural.
+ - I wish to live because life has within it that which is good, that which is beautiful, and that which is love.
+ - American straightforwardness is almost as disarming as Americans invariably think it is.
+ - Obviously the most oppressed of any oppressed group will be its women.
+ - I believe that one of the most sound ideas in dramatic writing is that in order to create the universal, you must pay very great attention to the specific. Universality, I think, emerges from truthful identity of what is.
+ - Do I remain a revolutionary? Intellectually – without a doubt. But am I prepared to give my body to the struggle or even my comforts? This is what I puzzle about.
+ - There may be women to emerge who will be able to formulate a new and possible concept that homosexual persecution and condemnation has at its roots not only social ignorance, but a philosophically active anti-feminist dogma.
+ - The grim possibility is that she who ‘hides her brains’ will, more than likely, end up with a mate who is only equal to a woman with ‘hidden brains’ or none at all.
+ - I care. I care about it all. It takes too much energy not to care.
+ - Take away the violence and who will hear the men of peace?
+ - I look at you and I see the final triumph of stupidity in the world!
+ - It is difficult for the American mind to adjust to the realization that the Rhetts and the Scarletts were as much monsters as the keepers of Buchenwald-they just dressed more attractively.
+ - When a man knows that the abstraction ten exists – nothing on earth can stop him from looking for the fact of eleven.
+
+30 quotes

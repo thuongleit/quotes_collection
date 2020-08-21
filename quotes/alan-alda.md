@@ -1,0 +1,57 @@
+ - Begin challenging your own assumptions. Your assumptions are your windows on the world. Scrub them off every once in awhile, or the light won’t come in.
+ - Real listening is a willingness to let the other person change you.
+ - Insanity is just a state of mind.
+ - In the midst of the sense of tragedy or loss, sometimes laughter is not only healing, it’s a way of experiencing the person that you’ve lost again.
+ - Our lives depend on good communication. Good communication helps personal relationships, it helps bosses and employees get along better. We rely on it.
+ - Be brave enough to live creatively.
+ - Laugh at yourself, but don’t ever aim your doubt at yourself.
+ - War is war and Hell is hell, and if you ask me, War is a lot worse.
+ - I found I wasn’t asking good enough questions because I assumed I knew something.
+ - I’ve been lucky enough to live through all the things that are supposed to give meaning to our lives, like parenting, grandparenting, art, celebrity. All these things you expect meaning to come from, and sometimes it comes when you’re not expecting it.
+ - People who laugh together generally don’t kill each other.
+ - We’re highly social animals – I’m told by scientists that what makes us different from other animals is an acute social awareness, which is what has made us so successful.
+ - Originality is unexplored territory. You get there by carrying a canoe – you can’t take a taxi.
+ - Loneliness is everything it’s cracked up to be.
+ - Jean Paul Sartre says in “No Exit” that hell is other people. Well, our task in life is to make it heaven. Or at least earth.
+ - It’s better to be wise than to be smart.
+ - The best things said come last. People will talk for hours saying nothing much and then linger at the door with words that come with a rush from the heart.
+ - The good thing about being a hypocrite is that you get to keep your values.
+ - It’s too bad I’m not as wonderful a person as people say I am, because the world could use a few people like that.
+ - You can’t get there by bus, only by hard work and risk and by not quite knowing what you’re doing. What you’ll discover will be wonderful. What you’ll discover will be yourself.
+ - Nothing important was ever accomplished without chutzpah. Columbus had chutzpah. The signers of the Declaration of Independence had chutzpah. Don’t ever aim doubt at yourself. Laugh at yourself, but don’t doubt yourself.
+ - My mother didn’t try to stab my father until I was six, but she must have shown signs of oddness before that.
+ - I play tennis non-obsessively. I seem to beat people I play a lot or half the time, so I guess I gravitate to people who are as bad as I am.
+ - I have a final word of advice to our students. If you work very, very hard, this is the kind of actor, writer and director you may turn out to be, and if you work extra hard, this is the kind of person you may turn out to be.
+ - For humans, flying isn’t magic, it’s physics.
+ - Being mystified is a good beginning, because you won’t do what you’ve done before.
+ - When your kids turn 13, an alien being invades their bodies and doesn’t leave until they’re 20.
+ - There are two things that I get a lot of pleasure from in my life, and that is, doing what I know how to do well – that really makes me happy. The other one, and probably an equal pleasure, is finding out how I can be helpful and then really being helpful.
+ - Republicans are as capable of coming up with great ideas and moving this country along as anyone – they just don’t do it.
+ - When does she do all this thinking? We’re together all the time but she thinks deeply about things and with feeling and she can remember the facts. We’ve been married 48 years.
+ - I’m very interested in the improvisation because one of the things I do is to help train scientists to communicate in a better way and more personal way when they’re making a presentation, and I use improvisation to do that.
+ - I’ll carry on, carry over, carry forward, Cary Grant, cash and carry, carry me back to Old Virginia, I’ll even ‘hari-kari’ if you show me how, but I will not carry a gun!
+ - My relationship with science is as someone who’s curious and hungry to know, hungry to understand. So all I have to offer is my ignorance and my curiosity, which is a good combination, as long as they come together.
+ - Some of the greatest things, as I understand, they have come about by serendipity, the greatest discoveries.
+ - How can I ever hope to communicate something to you unless I get signals back from you that I’m on the right track or that I’ve started at some place that you’re familiar with?
+ - I have thought about punching people out. Sometimes, I’ve thought, ‘Why don’t I just act on that impulse?’ But then, I’ve never hit anybody in anger. Hey! I’ve never hit anybody for fun.
+ - It’s not an epitaph. I felt I could look back at my life and get a good story out of it. It’s a picture of somebody trying to figure things out. I’m not trying to create some impression about myself. That doesn’t interest me.
+ - What then are doing if not creating a better place together? I think, for me the key has to be, what do I want to create? What is it I want to leave behind?
+ - I was brought up as a Catholic, and I’m no longer a Catholic. I don’t talk about my beliefs too much in public probably because I feel very strongly that it’s something personal – more than personal, it’s private.
+ - I’m in this wonderful position where I can do what interests me. And whatever comes along that interests me, I do. The rest of the time I bother scientists about communicating.
+ - As I am becoming older, the only thing that speeds up is time.
+ - There’s plenty of money to be had. But you also lose your soul.
+ - Don’t be upset that it takes a long, long time to find wisdom because nobody knows where wisdom can be found. It tends to break out at unexpected times like a rare virus and mostly people with compassion and understanding are susceptible to it.
+ - And I think belief is one of those things that comes to people in their own way. And just because I believe in something doesn’t mean I think that you should.
+ - I had never really wanted to be famous. Everyone is supposed to want to be rich and famous, but as a boy I never knew what rich was, and the first view I had of famous made me leery.
+ - I’ve played a murderer, so certainly I think I can play a Republican.
+ - I try to find out what there is in the character that in a way, you can’t put into words. If I could put it into words, then it wouldn’t be a performance. And if I do put it into words, as I play it, I start to get boxed in by those words.
+ - You wouldn’t want to be called a sell-out by selling a product. Selling out was frowned on, whereas now you can major in it at business school.
+ - If you know what you’re looking for, that’s all you’ll get – what’s previously known. But when you’re open to what’s possible, you get something new – that’s creativity.
+ - A really great actor, in a lucky performance, can transform himself or herself. I’ve seen actors do that. But often it’s a mechanical transformation, which isn’t as interesting, and you’ve got to be careful how you go about something like that, I think.
+ - Really top-notch directors, I’ve often worked with them just to see how they work.
+ - Life is great-I wouldn’t know what I’d do without it.
+ - Awards can give you a tremendous amount of encouragement to keep getting better, no matter how young or old you are.
+ - I really don’t like plays or movies that service propaganda.
+ - For me, I find that even though I’ve accomplished a few things in my life, looking back on accomplishments doesn’t give me a sense of satisfaction.
+
+55 quotes

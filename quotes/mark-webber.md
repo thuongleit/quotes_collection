@@ -1,0 +1,30 @@
+ - Life is a cycle of ends and starts.
+ - I am healthy, my family is healthy. That is the important thing. After that we go racing.
+ - 99.9% of being a good parent is just being present with your child. On the flipside of that, 100% of being happy is just being present.
+ - When people can be vulnerable to one another then you’re kind of giving people permission to really be yourself and not try to impress all the time and you get into more interesting work. You’re being real and you’re not afraid to mess up or seem weird.
+ - One of the biggest things I struggle with in life is not being present. I’m worried about my future or I’m dwelling on my past, and I’m wondering why I’m not feeling so great right now, but it’s because I’m everywhere else, besides what is currently happening in front of me.
+ - Only one guy can be world champion, and so if everyone else thought they were failures you’d have no one left on the grid.
+ - Red Bull are backing a spinal-injury research charity called Wings For Life, which I am an ambassador for, with a programme called Faces for Charity that will run at this year’s British Grand Prix.
+ - When people in a country are being hurt, the issues are bigger than sport. Let’s hope the right decision is made.
+ - My mother and I took over abandoned buildings to sleep in.
+ - That’s the fun thing about making movies is that you get to do stuff. You get to be things, say things that you’re not, kind of walk in someone else’s shoes and play dress up and make believe. It’s pretty cool.
+ - I hate wearing trousers and shoes. I wear jeans and sneakers most of the time.
+ - For me writing and filmmaking is a therapeutic process. It reflects themes that I’m going through at a time in my life.
+ - You know, when my dad was a racing fan in Australia he would follow Jack Brabham and sometimes only hear if he won two days after a race – when the result finally appeared in his newspaper. These days I can tweet something and it’s all over the world in seconds.
+ - Sitting beside the pool is fine for two weeks, but after that I think it’d be quite hard to live with – so I need to keep racing.
+ - Be in the moment as an actor and as a human being, and you’re going to be happy.
+ - Winning in Monaco is always special. That track has always been good to me. I won there in Formula 3000, battled for the victory with Williams in 2006 and now I’ve won two of the last three grands prix there.
+ - Formula one is very one-dimensional in terms of what we do in the cockpit.
+ - I think, as most people are, I’m fascinated with love, relationships, and my daily life so I’m very inclined to make films about those things.
+ - Cycling keeps me lean and I need to stay in shape, especially as I still like eating chocolate and ice-cream! I like to go mountain biking too. Running is also good; it’s what we were designed to do as humans, so it comes naturally.
+ - I love putting things together. I love putting together a team and making stuff with people. It’s great, that’s what’s cool about movies it’s such a collaborative effort.
+ - I don’t really know what I’m ever looking for, it’s kind of like whatever happens to resonate at the time with me.
+ - For me to train and get ready for racing, I can’t just sit in the gym all the time and that’s the way it is. Responsibility starts and stops with me. My main gig is grand prix driving, that’s what I do and I need to keep that in the forefront of my mind.
+ - I would love to be better at cooking but I hate cleaning up afterwards. I love the process of putting everything together and the chance of getting it right or wrong but it takes ten minutes to eat it and then ages to clean.
+ - It’s really interesting for me as a filmmaker to go back and look at the films I’ve made and see where I was at that point in my life and also where my ideals were and the beliefs that I had and look at the ways I’ve grown and evolved and apply that to the next thing.
+ - When I’m driving I should make more of an effort with my iPod, but I’m too lazy to organise a playlist.
+ - The system is in place whereby if an umpire cries off, or both as was the case here, those umpires are to be replaced.
+ - As a director and filmmaker, I love creating my own opportunity, and getting to share the love, in that way, by creating other opportunities for people that I admire, so that they can do something in a way they haven’t done it before.
+ - I love directing and that’s where I’m headed. That’s where my head is at.
+
+28 quotes

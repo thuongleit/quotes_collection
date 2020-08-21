@@ -1,0 +1,29 @@
+ - I am whole, perfect, strong, powerful, loving, harmonious, and happy.
+ - There is no limit to what this law can do for you; dare to believe in your own ideal; think of the ideal as an already accomplished fact.
+ - The real secret of power is consciousness of power.
+ - We must be before we can do, and we can do only to the extent which we are, and what we are depends upon what we think.
+ - If you require love, try to realize that the only way to get love is by giving it, that the more you give the more you will get, and the only way you can give it is to fill yourself up with it, until you become a magnet.
+ - Seek the silence frequently. Power comes from repose.
+ - You can not entertain weak, harmful, negative thoughts ten hours a day and expect to bring about beautiful, strong and harmonious conditions by ten minutes of strong, positive, creative thought.
+ - To improve our conditions we must first improve ourselves.
+ - There is a world within – a world of thought and feeling and power; of light and beauty, and although invisible, its forces are mighty.
+ - It is the combination of thought and love which forms the irresistible force of the law of attraction.
+ - You will be led to do the right thing at the right time and in the right way.
+ - The predominant thought or the mental attitude is the magnet, and the law is that like attracts like, consequently, the mental attitude will invariably attract such conditions as correspond to its nature.
+ - The vibrations of mental forces are the finest and consequently the most powerful in existence.
+ - You must first have the knowledge of your power; second, the courage to dare; third, the faith to do.
+ - When you are at one with the world, you often find that the thing you seek is seeking you.
+ - The absolute truth is that the ‘I’ is perfect and complete; the real ‘I’ is spiritual and can therefor never be less than perfect; it can never have any lack, limitation, or disease.
+ - The only way to keep from going backward is to keep going forward. Eternal vigilance is the price of success. There are three steps, and each one is absolutely essential. You must first have the knowledge of your power; second, the courage to dare; third, the faith to do.
+ - It is thus that you may lead a charmed life and be forever protected from all harm; it is thus you may become a positive force whereby conditions of opulence and harmony may be attracted to you.
+ - To become conscious of this power is to become a ‘live wire.’ The universe is the live wire. It carries power sufficient to meet every situation in the life of every individual. When the individual mind touches the universal mind, it receives all its power.
+ - Feeling emotions must be called upon to give feeling to the thought so it will take form.
+ - All power that anyone can possibly use is within, waiting to be made visible, first by recognizing it, then affirming it as ours.
+ - The power is from within, but we cannot receive it unless we give it.
+ - The time and thought which most persons waste in aimless effort would accomplish wonders if properly directed with some special object in view. In order to do this, it is necessary to center your mental force upon a specific thought and hold it there, to the exclusion of all other thoughts.
+ - Individuality is a real power inherent in all and the development and consequent expression of this power enables one to assume the responsibility of directing his own footsteps rather than stampeding after some self-assertive bell-wether.
+ - This is an eternal and fundamental principle, inherent in all things, in every system of philosophy, in every religion, and in every science. There is no getting away from the law of love.
+ - Premature wealth or position cannot be retained because it has not been earned; we get only what we give, and those who try to get without giving always find that the law of compensation is relentlessly bringing about an exact equilibrium.
+ - Truth contains a vital principle and will manifest itself.
+
+27 quotes

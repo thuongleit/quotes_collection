@@ -1,0 +1,486 @@
+ - If you assume that there is no hope, you guarantee that there will be no hope. If you assume that there is an instinct for freedom, that there are opportunities to change things, then there is a possibility that you can contribute to making a better world.
+ - Optimism is a strategy for making a better future. Because unless you believe that the future can be better, you are unlikely to step up and take responsibility for making it so.
+ - A language is not just words. It’s a culture, a tradition, a unification of a community, a whole history that creates what a community is. It’s all embodied in a language.
+ - Colorless green ideas sleep furiously.
+ - The general population doesn’t know what’s happening, and it doesn’t even know that it doesn’t know.
+ - You are responsible for the predictable consequences of your actions.
+ - Education is a system of imposed ignorance.
+ - We shouldn’t be looking for heroes, we should be looking for good ideas.
+ - As long as the general population is passive, apathetic, diverted to consumerism or hatred of the vulnerable, then the powerful can do as they please, and those who survive will be left to contemplate the outcome.
+ - The more you can increase fear of drugs, crime, welfare mothers, immigrants and aliens, the more you control all of the people.
+ - It is the responsibility of intellectuals to speak the truth and expose lies.
+ - If you assume there is no hope, you guarantee there will be no hope.
+ - We don’t use the term ‘working class’ here because it’s a taboo term. You’re supposed to say ‘middle class,’ because it helps diminish the understanding that there’s a class war going on.
+ - Either you repeat the same conventional doctrines everybody is saying, or else you say something true, and it will sound like it’s from Neptune.
+ - How it is we have so much information, but know so little?
+ - Language etches the grooves through which your thoughts must flow.
+ - If you’re teaching today what you were teaching five years ago, either the field is dead or you are.
+ - If we choose, we can live in a world of comforting illusion.
+ - The whole educational and professional training system is a very elaborate filter, which just weeds out people who are too independent, and who think for themselves, and who don’t know how to be submissive, and so on – because they’re dysfunctional to the institutions.
+ - Propaganda is to a democracy what the bludgeon is to a totalitarian state.
+ - For the powerful, crimes are those that others commit.
+ - The only way we can put a permanent end to terrorism is to stop participating in it.
+ - If we don’t believe in freedom of expression for people we despise, we don’t believe in it at all.
+ - The more privilege you have, the more opportunity you have. The more opportunity you have, the more responsibility you have.
+ - It is important to bear in mind that political campaigns are designed by the same people who sell toothpaste and cars.
+ - Citizens of the democratic societies should undertake a course of intellectual self defense to protect themselves from manipulation and control, and to lay the basis for meaningful democracy.
+ - The structure of language determines not only thought, but reality itself.
+ - See, people with power understand exactly one thing: violence.
+ - Nobody is going to pour truth into your brain. It’s something you have to find out for yourself.
+ - We still name our military helicopter gunships after victims of genocide. Nobody bats an eyelash about that: Blackhawk. Apache. And Comanche. If the Luftwaffe named its military helicopters Jew and Gypsy, I suppose people would notice.
+ - Governments will use whatever technology is available to combat their primary enemy – their own population.
+ - Wanton killing of innocent civilians is terrorism, not a war against terrorism.
+ - All over the place, from the popular culture to the propaganda system, there is constant pressure to make people feel that they are helpless, that the only role they can have is to ratify decisions and to consume.
+ - That is what I have always understood to be the essence of anarchism: the conviction that the burden of proof has to be placed on authority, and that it should be dismantled if that burden cannot be met.
+ - The world is a very puzzling place. If you’re not willing to be puzzled, you just become a replica of someone else’s mind.
+ - It is quite possible – overwhelmingly probable, one might guess – that we will always learn more about human life and personality from novels than from scientific psychology.
+ - Democracy is always harmful to elite interests. Almost by definition.
+ - He who controls the media controls the minds of the public.
+ - A basic principal of modern state capitalism is that costs and risks are socialized to the extent possible, while profit is privatized.
+ - I think it only makes sense to seek out and identify structures of authority, hierarchy, and domination in every aspect of life, and to challenge them; unless a justification for them can be given, they are illegitimate, and should be dismantled, to increase the scope of human freedom.
+ - Science is a bit like the joke about the drunk who is looking under a lamppost for a key that he has lost on the other side of the street, because that’s where the light is. It has no other choice.
+ - It’s not radical Islam that worries the US – it’s independence.
+ - International relations bears more than a slight resemblance to the mafia.
+ - Religion is based on the idea that God is an imbecile.
+ - That’s the whole point of good propaganda. You want to create a slogan that nobody’s going to be against, and everybody’s going to be for. Nobody knows what it means, because it doesn’t mean anything.
+ - The indoctrination is so deep that educated people think they’re being objective.
+ - Under capitalism, we can’t have democracy by definition. Capitalism is a system in which the central institutions of society are in principle under autocratic control.
+ - In the US, there is basically one party – the business party. It has two factions, called Democrats and Republicans, which are somewhat different but carry out variations on the same policies. By and large, I am opposed to those policies. As is most of the population.
+ - Students who acquire large debts putting themselves through school are unlikely to think about changing society. When you trap people in a system of debt, they can’t afford the time to think.
+ - A fundamental element of human nature is the need for creative work, for creative inquiry, for free creation without the arbitrary limiting effects of coercive institutions. A decent society should maximize the possibilities for this fundamental human characteristic to be realized.
+ - There’s a good reason why nobody studies history, it just teaches you too much.
+ - That’s the standard technique of privatization: defund, make sure things don’t work, people get angry, you hand it over to private capital.
+ - The very design of neoliberal principles is a direct attack on democracy.
+ - It doesn’t matter what we cover, it matters what you discover.
+ - Moral cowardice and intellectual corruption are the natural concomitants of unchallenged privilege.
+ - Goebbels was in favor of free speech for views he liked. So was Stalin. If you’re really in favor of free speech, then you’re in favor of freedom of speech for precisely the views you despise. Otherwise, you’re not in favor of free speech.
+ - There is massive propaganda for everyone to consume. Consumption is good for profits and consumption is good for the political establishment.
+ - Growing up in the place I did I never was aware of any other option but to question everything.
+ - If you are not offending people who ought to be offended, you’re doing something wrong.
+ - Legalizing marijuana would make a lot of sense, I don’t think there’s a single case of marijuana overdose on record and tens of millions of users. It’s much less dangerous than alcohol, for example.
+ - The Bible is one of the most genocidal books in history.
+ - Libertarian socialism is properly to be regarded as the inheritor of the liberal ideals of the Enlightenment.
+ - The United States in many ways resembles a Third World country – far more elevated, but it has many of those structural characteristics: the extreme inequality of wealth, the deterioration of infrastructure because it only serves poor people, predatory operations, huge corruption, and so on.
+ - The anniversary of Hiroshima, should be a day of somber reflection, not only on the terrible events of that day in 1945, but also on what they revealed: that humans, in their dedicated quest to extend their capacities for destruction, had finally found a way to approach the ultimate limit.
+ - Resource extraction impacts a global environment that is increasingly at severe risk.
+ - A war with Pakistan would be an utter disaster.
+ - So, at one extreme you have indigenous, tribal societies trying to stem the race to disaster. At the other extreme, the richest, most powerful societies in world history, like the United States and Canada, are racing full-speed ahead to destroy the environment as quickly as possible.
+ - In this possibly terminal phase of human existence, democracy and freedom are more than just ideals to be valued – they may be essential to survival.
+ - Procurement is a major technique of state subsidy.
+ - I like the cold weather. It means you get work done.
+ - People don’t talk to each other. You’re alone with your television set or internet. But you can’t have a functioning democracy without what sociologists call “secondary organizations,” places where people can get together, plan, talk and develop ideas. You don’t do it alone.
+ - Education is not for profit. If you’re not in education for profit, it’s not going to be a fair critique for education.
+ - I have no Facebook page or Twitter – I don’t participate in it, and I don’t like it particularly. I mean, it’s a form of interaction, which strikes me as extremely superficial.
+ - As long as each individual is facing the television tube alone, formal freedom poses no threat to privilege.
+ - For those who stubbornly seek freedom, there can be no more urgent task than to come to understand the mechanisms and practices of indoctrination.
+ - The ideal is to create a completely fragmented atomized society where everybody is totally alone, doing nothing but trying to pursue created wants, and the wants are created.
+ - One might ask why tobacco is legal and marijuana not. A possible answer is suggested by the nature of the crop.
+ - I don’t have any oratory skills. But I would not use them if I had.
+ - It’s a near miracle that nuclear war has so far been avoided.
+ - People tend to rally around power.
+ - The internet could be a very positive step towards education, organisation and participation in a meaningful society.
+ - There is a social responsibility to take care of vulnerable people. It seems that a sensible social responsibility is obligatory education, but also decent education, and that is not happening.
+ - Concentration of wealth yields concentration of political power. And concentration of political power gives rise to legislation that increases and accelerates the cycle.
+ - Sports plays a societal role in engendering jingoist and chauvinist attitudes. They’re designed to organize a community to be committed to their gladiators.
+ - There are very few people who are going to look into the mirror and say, ‘That person I see is a savage monster;’ instead, they make up some construction that justifies what they do.
+ - Popular struggles to bring about a freer and more just society have been resisted by violence and repression, and massive efforts to control opinion and attitudes. Over time, however, they have met with considerable success, even though there is a long way to go, and there is often regression.
+ - Human language appears to be a unique phenomenon, without significant analogue in the animal world.
+ - A consistent anarchist must oppose private ownership of the means of production, and the wage-slavery which is a component of this system, as incompatible with the principle that labor must be freely undertaken and under the control of the producer.
+ - The truth of the matter is that about 99 percent of teaching is making the students feel interestedin the material. Then the other 1 percent has to do with your methods. And that’s not just true of languages. It’s true of every subject.
+ - I didn’t pay my taxes for years.
+ - The atrocities in Cambodia are a direct and understandable response to the violence of the imperial system.
+ - In ideal form of social control is an atomised collection of individuals focused on their own narrow concern, lacking the kinds of organisations in which they can gain information, develop and articulate their thoughts, and act constructively to achieve common ends.
+ - Why not stakeholder action? There’s no economic principal that says that management should be responsive to shareholders, in fact you can read in texts of business economics that they could just as well have a system in which the management is responsible to stakeholders.
+ - Quite generally, international affairs have more than a slight resemblance to the Mafia. The Godfather does not take it lightly when he is crossed, even by a small storekeeper.
+ - In the United States everyone is an illegal immigrant – everyone except the people in Indian Reservations. This is an immigrant society.
+ - It is true that classical libertarian thought is opposed to state intervention in social life, as a consequence of deeper assumptions about the human need for liberty, diversity, and free association.
+ - I know some really outstanding Turkish journalists, and have been pleased and honored to be able to join with them a few times in their courageous protests against state terror and repression.
+ - Ontological questions are generally beside the point, hardly more than a form of harassment.
+ - The country was founded on the principle that primary role of government is to protect property from the majority, and so it remains.
+ - Technology is usually fairly neutral. It’s like a hammer, which can be used to build a house or to destroy someone’s home. The hammer doesn’t care. It is almost always up to us to determine whether the technology is good or bad.
+ - The most striking aspect of linguistic competence is what we may call the ‘creativity of language,’ that is, the speaker’s ability to produce new sentences, sentences that are immediately UNDERSTOOD by other speakers although they bear no physical resemblance to sentences which are ’familiar.
+ - Non-violent resistance activities cannot succeed against an enemy that is able freely to use violence. That’s pretty obvious. You can’t have non-violent resistance against the Nazis in a concentration camp, to take an extreme case...
+ - The people who were honored in the Bible were the false prophets. It was the ones we call the prophets who were jailed and driven into the desert.
+ - In a really business-run society like the United States, the business elites are deeply committed to class struggle and are engaged in it all the time. They’re instinctive Marxists.
+ - Advertising is tax deductible, so we all pay for the privilege of being manipulated and controlled.
+ - We’re human beings; we’re not robots. And face-to-face contact is something totally different than typing a text message and then forgetting about it.
+ - States are not moral agents, people are, and can impose moral standards on powerful institutions.
+ - The United States invaded Iraq to gain control of one of the major sources of the world’s energy.
+ - The invasion of Iraq was simply a war crime. Straight-out war crime.
+ - If you sell me a car, we have perhaps made a good bargain for ourselves. But there are effects of this transaction on others, which we do not take into account. There is more pollution, the price of gas goes up, there is more congestion.
+ - If you ask the CEO of some major corporation what he does, he will say, in all honesty, that he is slaving 20 hours a day to provide his customers with the best goods or services he can and creating the best possible working conditions for his employees.
+ - Free speech has been used by the Supreme Court to give immense power to the wealthiest members of our society.
+ - It’s pretty ironic that the so-called ‘least advanced’ people are the ones taking the lead in trying to protect all of us, while the richest and most powerful among us are the ones who are trying to drive the society to destruction.
+ - The beauty of our system is that it isolates everybody. Each person is sitting alone in front of the tube, you know. It’s very hard to have ideas or thoughts under those circumstances. You can’t fight the world alone.
+ - The Japanese bombing of Pearl Harbor led to many very good things. If you follow the trail, it led to kicking Europeans out of Asia – that saved tens of millions of lives in India alone.
+ - Freedom without opportunity is a devil’s gift.
+ - The goal is to keep the bewildered herd bewildered. It’s unnecessary for them to trouble themselves with what’s happening in the world. In fact, it’s undesirable – if they see too much of reality they may set themselves to change it.
+ - You keep plugging away – that’s the way social change takes place. That’s the way every social change in history has taken place: by a lot of people, who nobody ever heard of, doing work.
+ - There’s a tremendous gap between public opinion and public policy.
+ - Education must provide the opportunities for self-fulfillment; it can at best provide a rich and challenging environment for the individual to explore, in his own way.
+ - Discovery is the ability to be puzzled by simple things. Noam Chomsky.
+ - If the Nuremberg laws were applied, then every post-war American president would have been hanged.
+ - One of the greatest dangers is secular religion – state worship.
+ - What the public wants is called ‘politically unrealistic.’ Translated into English, that means power and privilege are opposed to it.
+ - Public opinion can be influential, the media can be influential.
+ - As long as nuclear weapons exist, the chances of survival of the human species are quite slight.
+ - The free market is ‘socialism’ for the rich: the public pays the costs and the rich get the benefit – markets for the poor and plenty of state protection for the rich.
+ - For 500 years, since European explorers came, Latin American countries had been separated from one another. They had very limited relations. Integration is a prerequisite for independence.
+ - The responsibility of the writer as a moral agent is to try to bring the truth about matters of human significance to an audience that can do something about them.
+ - As any good teacher knows, the methods of instruction and the range of material covered are matters of small importance as compared with the success in arousing the natural curiosity of the students and stimulating their interest in exploring on their own.
+ - The major advances in speed of communication and ability to interact took place more than a century ago. The shift from sailing ships to telegraph was far more radical than that from telephone to email!
+ - The number of people killed by the sanctions in Iraq is greater than the total number of people killed by all weapons of mass destruction in all of history.
+ - Amusing and perfectly self-conscious charlatans.
+ - The best defense against democracy is to distract people.
+ - If something is repeated over and over as obvious, the chances are that it is obviously false.
+ - Everybody’s worried about stopping terrorism. Well, there’s a really easy way: stop participating in it.
+ - Surely few if any readers have come across the sentence they are now reading, and someone who had by chance heard or seen it could not possibly remember such a fact.
+ - The point of advertising is to destroy markets.
+ - The former colonies, in Latin America in particular, have a better chance than ever before to overcome centuries of subjugation, violence and foreign intervention, which they have so far survived as dependencies with islands of luxury in a sea of misery.
+ - The ‘anti-globalisation movement’ is the most significant proponent of globalisation – but in the interests of people, not concentrations of state-private power.
+ - It may be beyond the limits of human intelligence to understand how human intelligence works.
+ - If you don’t like what someone has to say, argue with them.
+ - People who call themselves supporters of Israel are actually supporters of its moral degeneration and ultimate destruction.
+ - You don’t get to be a respected intellectual by uttering truisms in monosyllables.
+ - Stakeholders – meaning workers and community – the CEO could just as well be responsible to them. This presupposes there ought to be management but why does there have to be management? Why not have the stakeholders run the industry?
+ - Farming out atrocities to paramilitaries is standard operating procedure.
+ - The fact that all normal children acquire essentially comparable grammars of great complexity with remarkable rapidity suggests that human beings are somehow specially designed to do this, with data-handling or ‘hypothesis-formulating’ ability of unknown character and complexity.
+ - Cuba has become a symbol of courageous resistance to attack. Since 1959, Cuba has been under attack from the hemispheric superpower.
+ - We can imagine a society in which no one could survive as a social being because it does not correspond to biologically determined perceptions and human social needs. For historical reasons, existing societies might have such properties, leading to various forms of pathology.
+ - Reagan was extreme. Beginning of his administration, one of the first things was to call in scabs – hadn’t been done for a long time, and it’s illegal in most countries – in the air controller strike.
+ - There are plenty of things that are unknown, but are assumed reasonably to exist, even in the most basic sciences. Maybe 90 percent of the mass-energy in the universe is called “dark,” because nobody knows what it is.
+ - Well, they really didn’t have to worry, because the way power politics works, the World Court can’t do anything. Look, there’s one country in the world at the moment which has refused to accept World Court decision-that’s the United States. Is anybody going to do anything about it?
+ - For a privileged minority, Western democracy provides the leisure, the facilities, and the training to seek the truth lying hidden behind the veil of distortion and misrepresentation, ideology and class interest, through which the events of current history are presented to us.
+ - There are massive efforts on the part of the internet’s corporate owners to try to direct it to become a technique of marginalisation and control.
+ - Democracy was regarded as entering into a crisis in the 1960s. The crisis was that large segments of the population were becoming organized and active and trying to participate in the political arena.
+ - Presented with the claims of nineteenth-century racist anthropology, a rational person will ask two sorts of questions: ‘What is the scientific status of the claims?’ ‘What social or ideological needs do they serve?’
+ - I choose to live in what I think is the greatest country in the world, which is committing horrendous terrorist acts and should stop.
+ - I remember at the age of five travelling on a trolley car with my mother past a group of women on a picket line at a textile plant, seeing them being viciously beaten by security people. So that kind of thing stayed with me.
+ - If a child from an Amazonian hunter-gatherer tribe comes to Boston, is raised in Boston, that child will be indistinguishable in language capacities from my children growing up here, and vice versa.
+ - Hypocrites are those who apply to others the standards that they refuse to accept for themselves.
+ - In the academic world, most of the work that is done is clerical. A lot of the work done by professors is routine.
+ - Expressing criticism of society is not being a grouch.
+ - In fact, when drugs are legalized, use sometimes goes down, it’s been claimed. Part of the reason is that teenage kids use illicit drugs because they are illicit. They are thumbing their noses at society. If they were legal, they might not.
+ - There’s never been anything like the so-called Vietnam Syndrome: it’s mostly a fabrication.
+ - As international support for Obama’s decision to attack Syria has collapsed, along with the credibility of government claims, the administration has fallen back on a standard pretext for war crimes when all else fails: the credibility of the threats of the self-designated policeman of the world.
+ - When I was a college student and I got interested in linguistics the concern among students was, this is a lot of fun, but after we have done a structural analysis of every language in the world what’s left? It was assumed there were basically no puzzles.
+ - If voting could actually change anything, it would be illegal.
+ - You can’t have meaningful political democracy without functioning economic democracy.
+ - Boards of directors are allowed to work together, so are banks and investors and corporations in alliances with one another and with powerful states. That’s just fine. It’s just the poor who aren’t supposed to cooperate.
+ - Efforts can succeed over time, and not trying ensures that the worst will happen.
+ - Censorship is never over for those who have experienced it. It is a brand on the imagination that affects the individual who has suffered it, forever.
+ - If it’s wrong when they do it, it’s wrong when we do it.
+ - These are questions for action, not speculation, which is idle.
+ - I don’t buy much. Almost buy nothing. I buy what I need, do it the easiest way possible.
+ - In the United States, the political system is a very marginal affair. There are two parties, so-called, but they’re really factions of the same party, the Business Party.
+ - Modern China; one also finds many things that are really quite admirable.
+ - As far as Marx’s analysis of capitalism, there’s a lot of very useful ideas in it, but he’s developing an abstract model of 19th century capitalism. It’s abstract and it’s changed.
+ - It’s very hard to look in the mirror. We all know this. It’s much easier to have illusions about yourself. And in particular, when you think, well, I’m going to believe what I like, but I’ll say what the powerful want, you do that over time, and you believe what you say.
+ - If you care about other people, you might try to organize to undermine power and authority. That’s not going to happen if you care only about yourself.
+ - The key element of social control is the strategy of distraction that is to divert public attention from important issues and changes decided by political and economic elites, through the technique of flood or flooding continuous distractions and insignificant information.
+ - Tough love is just the right phrase: love for the rich and privileged, tough for everyone else.
+ - Borders are semiporous. Capital flows more freely than people across them. on C Span.
+ - You cannot control your own population by force, but it can be distracted by consumption.
+ - Death and genitals are things that frighten people, and when people are frightened, they develop means of concealment and aggression. It is common sense.
+ - Technology is basically neutral. It’s kind of like a hammer. The hammer doesn’t care whether you use it to build a house, or whether a torturer uses it to crush somebody’s skull.
+ - It’s as if we’re higher apes who had a language faculty inserted.
+ - It makes sense for societies to make education compulsory for children. Children are vulnerable. They can’t make decisions. But the decisions can’t all be left in the hands of the parents. They can be irresponsible too.
+ - Language is a weapon of politicians, but language is a weapon in much of human affairs.
+ - I see no anti-Semitic implications in denial of the existence of gas chambers, or even denial of the Holocaust.
+ - The syntactic component of a grammar must specify, for each sentence, a deep structure that determines its semantic interpretationand a surface structure that determines its phonetic interpretation.
+ - There’s no more morality in world affairs, fundamentally, than there was at the time of Genghis Khan.
+ - As soon as questions of will or decision or reason or choice of action arise, human science is at a loss.
+ - Markets are lethal, if only because of ignoring externalities, the impacts of their transactions on the environment.
+ - The elections are run by the same guys who sell toothpaste. They show you an image of a sports hero, or a sexy model, or a car going up a sheer cliff or something, which has nothing to do with the commodity, but it’s intended to delude you into picking this one rather than another one.
+ - The Irish sea is a chasm, and it just depends who’s been holding the whip for 800 years and who’s been under it for 800 years.
+ - Obama’s primary constituency was financial institutions. They were the core of the funding for his campaign. They expect to be paid back. And they were. They were paid back by coming out richer and more powerful than they were before the crisis that they created.
+ - The intellectual tradition is one of servility to power, and if I didn’t betray it I’d be ashamed of myself.
+ - Of course, everybody says they’re for peace. Hitler was for peace. Everybody is for peace. The question is: What kind of peace?
+ - Anti-Americanism is a pure totalitarian concept. The very notion is idiotic.
+ - I do think that Magna Carta and international law are worth paying some attention to.
+ - When I arrived in Laos and found young Americans living there, out of free choice, I was surprised. After only a week, I began to have a sense of the appeal of the country and its people – along with despair about its future.
+ - Do you train for passing tests or do you train for creative inquiry?
+ - The US intervened in the Philippines to uplift and christianize the backward people, killing a couple of hundred thousand of them and destroying the place. The same thing happened in Haiti, the same thing happened with other countries.
+ - Why should workers agree to be slaves in a basically authoritarian structure? They should have control over it themselves. Why shouldn’t communities have a dominant voice in running the institutions that affect their lives?
+ - All public resources go to the rich. The poor, if they can survive in the labor market, fine. Otherwise, they die. That’s economics in a nutshell.
+ - The whole educational and professional training system...
+ - Capitalism denies the right to live. You have only the right to remain on the labour market.
+ - American society is now remarkably atomized. Political organizations have collapsed. In fact, it seems like even bowling leagues are collapsing. The left has a lot to answer for here. There’s been a drift toward very fragmenting tendencies among left groups, toward this sort of identity politics.
+ - There is no western concern for issues of aggression, atrocities, human rights abuses and so on if there’s a profit to be made from them.
+ - Just as I’m opposed to political fascism, I’m opposed to economic fascism. I think that until major institutions of society are under the popular control of participants and communities, it’s pointless to talk about democracy.
+ - It takes one minute to tell a lie, and an hour to refute it.
+ - Mexico is a pretty poor country, but they are maintaining a free, high quality public education system, not for everyone of course but pretty substantial.
+ - In the Occupied Territories, what Israel is doing is much worse than apartheid. The South African Nationalists needed the black population. That was their workforce. The Israeli relationship to the Palestinians in the Occupied Territories is totally different. They just don’t want them.
+ - A tremendous amount of the entrepreneurial initiative, if you want to call it that, comes from the dynamic state sector on which most of the economy relies to socialize costs and risks and privatize eventual profit. And that’s achieved by, if you like, advertising.
+ - The racism in Europe takes the form of anti-immigrant extremism – which is bad enough here – I think it’s hard to measure, but my guess is that it’s probably worse there.
+ - Even Stalin proclaimed his love for democracy. We do not learn about the nature of systems of power by listening to their rhetoric.
+ - The media are a corporate monopoly. They have the same point of view. The two parties are two factions of the business party. Most of the population doesn’t even bother voting because it looks meaningless. They’re marginalized and properly distracted. At least that’s the goal.
+ - Iraqi commandos landed at George W. Bush’s compound, assassinated him, and dumped his body in the Atlantic.
+ - Governments don’t control people like they used to.
+ - The death penalty can be tolerated only by extreme statist reactionaries who demand a state that is so powerful that it has the right to kill.
+ - It is only in folk tales, children’s stories, and the journals of intellectual opinion that power is used wisely and well to destroy evil. The real world teaches very different lessons, and it takes willful and dedicated ignorance to fail to perceive them.
+ - Social and political issues in general seem to me fairly simple; the effort to obfuscate them in esoteric and generally vacuous theory is one of the contributions of the intelligentsia to enhancing their own power and the power of those they serve.
+ - John Lewis Gaddis is not only the favorite historian of the Reagan administration, but he’s regarded as the dean of Cold War scholarship, the leading figure in the American Cold War scholarship, a professor at Yale.
+ - The first thing you ought to do is verify what I present. Just because I say it doesn’t make it true. So check it out, see what looks correct, what looks wrong, look at other material which wasn’t discussed, figure out what the truth really is. That’s what you’ve got a brain for.
+ - It’s only terrorism if they do it to us. When we do much worse to them, it’s not terrorism.
+ - Nobody should have any illusions. The United States has essentially a one-party system and the ruling party is the business party.
+ - The American escalation of the war in Laos provoked a response by the Communist forces, which now control more of Laos than ever before.
+ - The criminalization of Black life was something specific to the United States in the post-Reconstruction period and there’s something like it happening today with mass incarceration, directed largely against black males.
+ - As a research tool, the internet is invaluable.
+ - If you’re in a system where you must make profit in order to survive. You are compelled to ignore negative externalities, effects on others.
+ - It’s perfectly obvious that there is some genetic factor that distinguishes humans from other animals and that it is language-specific. The theory of that genetic component, whatever it turns out to be, is what is called universal grammar.
+ - The US is a business-run huckster society, and its primary value is deceit.
+ - The big change, the really radical change in communication, was in the late 19th century. The shift from sailing ships to telegraph is astronomical. Everything since then has been small increments, including the internet.
+ - Unfortunately, you can’t vote the rascals out, because you never voted them in, in the first place.
+ - Some may remember, if you have good memories, that there used to be a concept in Anglo-American law called a presumption of innocence, innocent until proven guilty in a court of law. Now that’s so deep in history that there’s no point even bringing it up, but it did once exist.
+ - Our only real hope for democracy is that we get the money out of politics entirely and establish a system of publicly funded elections.
+ - The basic principle, rarely violated, is that what conflicts with the requirements of power and privilege does not exist.
+ - Capitalism’s concept of competitive man who seeks only to maximize wealth and power, who subjects himself to market relationships, to exploitation and external authority, is anti-human and intolerable in the deepest sense.
+ - The public is not to see where power lies, how it shapes policy, and for what ends. Rather, people are to hate and fear one another.
+ - The corporations plainly want academic scholarship to create a web of mystification that will avoid any public awareness of the way in which power actually functions in the society, and the faculty has caught the message and they do it magnificently.
+ - Growth is a funny sort of concept. For example, our GNP increases every time we build a prison. Well, okay, it’s growth in a sense...
+ - I have trouble reading modern Hebrew. In the 1950s, I could read anything. I don’t know how much experience you’ve had with contemporary Hebrew. It’s quite difficult.
+ - The dangers of unexamined and unregulated monopoly power, particularly in the state executive, are hardly news. The right reaction is not passive acquiescence.
+ - My intellectual achievement was retarded when I went to high school. I sort of sank into a black hole because I had to go to the high-achieving, academic public high school.
+ - Language is a process of free creation; its laws and principles are fixed, but the manner in which the principles of generation are used is free and infinitely varied. Even the interpretation and use of words involves a process of free creation.
+ - There are very deep and restrictive principles that determine the nature of human language and are rooted in the specific character of the human mind.
+ - It is a virtual reflex for governments to plead security concerns when they undertake any controversial action, often as a pretext for something else.
+ - The principle that human nature, in its psychological aspects, is nothing more than a product of history and given social relations removes all barriers to coercion and manipulation by the powerful.
+ - To cite the facts of history is to fall prey to ‘moral equivalence,’ or ‘political correctness,’ or ‘the error of of atheism,’ or one of the other misdeeds concocted to guard against the sins of understanding and insight into the real world.
+ - The United States is unusual among the industrial democracies in the rigidity of the system of ideological control – ‘indoctrination,’ we might say – exercised through the mass media.
+ - What’s the point of being better than someone else?
+ - Responsibility, I believe, accrues through privilege.
+ - The most effective way to restrict democracy is to transfer decision-making from the public arena to unaccountable institutions: kings and princes, priestly castes, military juntas, party dictatorships, or modern corporations.
+ - There are two parties, so-called, but they’re really factions of the same party, the Business Party. Both represent some range of business interests. In fact, they can change their positions 180 degrees, and nobody even notices.
+ - The term ‘globalisation’ is conventionally used to refer to the specific form of investor-rights integration designed by wealth and power, for their own interests.
+ - It’s very common for the victims to understand a system better than the people who are holding the stick.
+ - Passivity may be the easy course, but it is hardly the honorable one.
+ - The worst drug of all by far is tobacco; the death toll from tobacco is just overwhelming.
+ - In fact, it’s doing it all over the world. Obama, first of all, is running the biggest terrorist operation that exists, maybe in history. The drone assassination campaigns, which are just part of it. All of these operations, they are terror operations.
+ - Cuba forces in Angola gave a real shot in the arm to the liberation movements, and it also was a lesson to the white South Africans that the end is coming. They can’t just hope to subdue the continent on racist grounds.
+ - The country that consistently ranks among the highest in educational achievement is Finland. A rich country, but education is free. Germany, education is free. France, education is free.
+ - We are hurtling towards self-destruction at an alarming rate thanks chiefly to an advertising and propaganda system that goads people from infancy towards apathy, isolation, passivity, helplessness and separation.
+ - The fact is that if you have not developed language, you simply don’t have access to most of human experience, and if you don’t have access to experience, then you’re not going to be able to think properly.
+ - Ever since I’ve had any political awareness, I’ve felt either alone or part of a tiny minority.
+ - The first commitment is raise your salary. One of the ways to raise your salary sometimes is to have short-term profits but there are many other ways.
+ - The money in politics is a cash cow for the media.
+ - In 1961, the United States began chemical warfare in Vietnam, South Vietnam, chemical warfare to destroy crops and livestock. That went on for seven years. The level of poison – they used the most extreme carcinogen known: dioxin. And this went on for years.
+ - The first step is to penetrate the clouds of deceit and distortion and learn the truth about the world, then to organize and act to change it. That’s never been impossible and never been easy.
+ - The freer the society gets, the more dangerous the great beast becomes and the more you have to be careful to cage it somehow.
+ - There is still much debate about whether torture has been effective in eliciting information – the assumption being, apparently, that if it is effective, then it may be justified.
+ - Nothing in these abstract economic models actually works in the real world. It doesn’t matter how many footnotes they put in, or how many ways they tinker around the edges. The whole enterprise is totally rotten at the core: it has no relation to reality.
+ - The first modern propaganda agency was the British Ministry of Information a century ago, which secretly defined its task as to direct the thought of most of the world – primarily progressive American intellectuals, who had to be mobilized to come to the aid of Britain during World War I.
+ - In the 1960s, there was a point, 1968, ’69, when there was a very strong antiwar movement against the war in Vietnam. But it’s worth remembering that the war in Vietnam started – an outright war started in 1962.
+ - Democracy is a danger to any powerful group.
+ - The American claim that the bombing of North Vietnam was directed against military targets does not withstand direct investigation.
+ - The general public are not even aware of major decisions that will determine their fate, hence are in no position to influence them.
+ - Intellectuals are in a position to expose the lies of governments, to analyze actions according to their causes and motives and often hidden intentions.
+ - Whatever the reasons may be, I was very much affected by events of the 1930s – the Spanish Civil War, for example, though I was barely literate.
+ - The childcare tax credit makes some sense.
+ - The target of preventive war must have several characteristics. It must be virtually defenceless; it must be important enough to be worth the trouble; it must be possible to portray it as the ultimate evil and an imminent threat to our survival.
+ - One might ask why tobacco is legal and marijuana not. A possible answer is suggested by the nature of the crop. Marijuana can be grown almost anywhere, with little difficulty. It might not be easily marketable by major corporations. Tobacco is quite another story.
+ - Regulate the banks, get money out of elections; raise the minimum wage, environmental issues. They’re all very important and the Occupy movement made a difference. It shifted not only the discourse but to some extent, action on these issues.
+ - Since the civil war in Laos was resumed in earnest in 1963, American participation has been veiled in secrecy.
+ - Descriptive grammar is an attempt to give an account of what the current system is for either a society or an individual, whatever you happen to be studying.
+ - Policy is largely set by economic elites and organized groups representing business interests with little concern for public attitudes or public safety, as long as the public remains passive and obedient.
+ - The Iraq War was the first conflict in western history in which an imperialist war was massively protested against before it had even been launched.
+ - California is maybe the richest place in the world. They’re destroying the best public education system in the world.
+ - Latin America, for the first time in 500 years, is moving towards a degree of independence.
+ - For the totalitarian mind, adherence to state propaganda does not suffice: one must display proper enthusiasm while marching in the parade.
+ - Jamie Kilstein and Allison Kilkenny have created an important political radio show that balances humor and unreported news. At a time when media conglomerates dominate the airwaves, independent media like Citizen Radio is vital to national discourse.
+ - Violence can succeed, as Americans know well from the conquest of the national territory. But at terrible cost. It can also provoke violence in response, and often does.
+ - Anywhere in Latin America there is a potential threat of the pathology of caudillismo and it has to be guarded against.
+ - There is either a crisis or a return to the norm of stagnation. One view is the norm is stagnation and occasionally you get out of it. The other is that the norm is growth and occasionally you can get into stagnation. You can debate that but it’s a period of close to global stagnation.
+ - Israel has a couple of hundred nuclear weapons and also chemical and biological weapons. This stockpile is not only a threat in itself but encourages others to proliferate in reaction and in self-defense. Is anybody saying anything about this?
+ - Anyone can be a moral individual, concerned with human rights and problems; but only a college professor, a trained expert, can solve technical problems by ‘sophisticated’ methods. Ergo, it is only problems of the latter sort that are important or real.
+ - I think there is a good reason why the propaganda system works that way. It recognizes that the public will not support the actual policies. Therefore it is important to prevent any knowledge or understanding of them.
+ - The government of Israel doesn’t like the kinds of things I say, which puts them into the same category as every other government in the world.
+ - Every predecessor has used mercenaries, often drawn from the country that they’re attacking, like England ran India with Indian mercenaries. You take them from one place and send them to kill people in the other place. That’s the standard way to run imperial wars.
+ - State propaganda, when supported by the educated classes and when no deviation is permitted from it, can have a big effect. It was a lesson learned by Hitler and many others, and it has been pursued to this day.
+ - The Bush Administration do have moral values. Their moral values are very explicit: shine the boots of the rich and the powerful, kick everybody else in the face, and let your grandchildren pay for it. That simple principle predicts almost everything that’s happening.
+ - Half the population hold that the government is run by a few big interests looking out for themselves, as polls regularly show.
+ - In America, the professor talks to the mechanic. They are in the same category.
+ - The United States has done some very good things in the world, and that does not change the fact that the World Court was quite correct in condemning the United States as an international terrorist state.
+ - Anyone who studies declassified documents soon becomes aware that government secrecy is largely an effort to protect policy makers from scrutiny by citizens, not to protect the country from enemies.
+ - I have often thought that if a rational Fascist dictatorship were to exist, then it would choose the American system.
+ - The Republican and Democratic Parties are only factions of the Government Party.
+ - Throughout history, even the harshest and most shameful measures are regularly accompanied by professions of noble intent – and rhetoric about bestowing freedom and independence.
+ - If you’re in favour of any policy – reform, revolution, stability, regression, whatever – if you’re at least minimally moral, it’s because you think it’s somehow good for people. And good for people means conforming to their fundamental nature.
+ - As a Zionist youth leader in the 1940s, I was among those who called for a binational state in Mandatory Palestine. When a Jewish state was declared, I felt that it should have the rights of other states – no more, no less.
+ - Now financial liberalization is just a catastrophe waiting to happen, and there are very well understood reasons for that.
+ - On October 15, 1965, an estimated 70,000 people took part in large-scale anti-war demonstrations.
+ - Right after 9-11, as far as I know, one newspaper in the United States had the integrity to investigate opinion in the Muslim world: the ‘Wall Street Journal.’
+ - Our crimes, for which we are responsible: as taxpayers, for failing to provide massive reparations, for granting refuge and immunity to the perpetrators, and for allowing the terrible facts to be sunk deep in the memory hole. All of this is of great significance, as it has been in the past.
+ - I mean, what’s the elections? You know, two guys, same background, wealth, political influence, went to the same elite university, joined the same secret society where you’re trained to be a ruler – they both can run because they’re financed by the same corporate institutions.
+ - United States has comparative advantage in military force. It tends to react to anything at first with military force, that’s what it’s good at. And I think they overdid it. There was more military force than was necessary.
+ - Clinton, Kennedy, they all carried out mass murder, but they didn’t think that that was what they were doing – nor does Bush. You know, they were defending justice and democracy from greater evils.
+ - Democratic societies can’t force people. Therefore they have to control what they think.
+ - Control is the source of strategic power.
+ - If we move toward the weaponisation of space, we can bid farewell to the planet. The chances of survival are very slight.
+ - My proposal happens to be very mainstream.
+ - The kind of work that should be the main part of life is the kind of work you would want to do if you weren’t being paid for it. It’s work that comes out of your own internal needs, interests and concerns.
+ - Small changes can magnifiy. The possibility of interpersonal communication has increased substantially with contemporary technology. But as compared with the major changes, which were long ago, these are not huge.
+ - In the years of the Reagan-Bush administration alone, about 1.5 million people were killed by South Africa just in the surrounding countries. Forget what was happening in South Africa and Namibia.
+ - WikiLeaks is a service to the population. Assange should get an award for – presidential medal of honor.
+ - My grandchildren are on social media all the time, and they think they have friends. But it’s not what I would’ve called a friend, ever.
+ - If there was an observer on Mars, they would probably be amazed that we have survived this long.
+ - Anarchists try to identify power structures. They urge those exercising power to justify themselves. This justification does not succeed most of the time.
+ - Far from creating independent thinkers, schools have always, throughout history, played an institutional role in a system of control and coercion. And once you are well educated you have already been socialized in ways that support the power structure, which, in turn, rewards you immensely.
+ - Humans have certain properties and characteristics which are intrinsic to them, just as every other organism does. That’s human nature.
+ - Karl Marx was in favor of socialist and communist-socialist revolutions, but he had a pretty nuanced view about it.
+ - Where are the drug cartels getting their weapons? They are being provided by the United States. Cut off that flow of arms.
+ - I don’t like the intellectual label.
+ - Thanh Hoa itself is a rich agricultural province. Rice fields, a pattern of many shades of green, stretch far into the distance along the road, which also winds through foothills and the fringes of heavy jungle where tigers are said to roam. The vegetation, wild or cultivated, is lush.
+ - Concentration of executive power, unless it’s very temporary and for specific circumstances, let’s say fighting world war two, it’s an assault on democracy.
+ - I am opposed to the accumulation of executive power anywhere.
+ - There clearly is a serious race problem in the country. Just take a look at what’s happening to African American communities. For example wealth, wealth in African American communities is almost zero. The history is striking.
+ - The labor movement had been pretty much killed in the 1920s, almost destroyed. It revived in the 1930s and made a huge difference. By the late 1930s the business world was already trying to find ways to beat it back.
+ - Britain kept its position as the dominant world power well into the 20th century despite steady decline. By the end of World War II, dominance had shifted decisively into the hands of the upstart across the sea, the United States, by far the most powerful and wealthy society in world history.
+ - Judge Afiuni has suffered enough. She has been subject to acts of violence and humiliations to undermine her human dignity. I am convinced that she must be set free.
+ - If you’re worried about the deficit, pay attention to the fact that it’s almost all attributable to military spending and the totally dysfunctional health program.
+ - One of the problems of organizing in the North, in the rich countries, is that people tend to think – even the activists – that instant gratification is required. You constantly hear: ‘Look I went to a demonstration, and we didn’t stop the war so what’s the use of doing it again?’
+ - Anything that you are achieving that undermines and threatens systems of power will meet with oppression. Systems of power don’t say ‘thank you.’ What’s important is not to focus all your efforts on the oppression, but to continue the constructive work.
+ - Unlimited economic growth has the marvelous quality of stilling discontent while maintaining privilege, a fact that has not gone unnoticed among liberal economists.
+ - You also have to get beyond that to dismantle the system of production for profit rather than production for use. That means dismantling at least large parts of market systems.
+ - States are violent institutions. The government of any country, including ours, represents some sort of domestic power structure, and it’s usually violent. States are violent to the extent that they’re powerful, that’s roughly accurate.
+ - One of the most interesting reactions to come out of 1968 was in the first publication of the Trilateral Commission, which believed there was a ‘crisis of democracy’ from too much participation of the masses.
+ - The prescription for endless war poses a far greater danger to Americans than perceived enemies do, for reasons the terrorist organisations understand very well.
+ - The level of destruction and terror and violence carried out by the powerful states far exceeds anything that can imaginably can be done by groups that are called terrorists and subnational groups.
+ - When Reagan left office, he was the most unpopular living president, apart from Nixon, even below Carter. If you look at his years in office, he was not particularly popular. He was more or less average. He severely harmed the American economy.
+ - The Washington leadership has put aside non-proliferation programmes and devoted its energies and resources to driving the country to war by extraordinary deceit, then trying to manage the catastrophe it created in Iraq.
+ - The basic idea which runs right through modern history and modern liberalism is that the public has got to be marginalized. The general public are viewed as no more than ignorant and meddlesome outsiders, a bewildered herd.
+ - Up until the First World War, when people turned anti-German, Germany had been described by American political scientists as the model of democracy.
+ - In societies that profess some respect for law, suspects are apprehended and brought to fair trial. I stress ‘suspects.’
+ - If you’re working 50 hours a week to try to maintain family income, and your children have the kinds of aspirations that come from being flooded with television from age one, and associations have declined, people end up hopeless, even though they have every option.
+ - A dramatic, evocative, thoughtful and very accessible account of one of the most important stories of the century – and one of the most ominous, unless citizens are aroused to action to rein in abusive state power.
+ - American decline is real, though the apocalyptic vision reflects the familiar ruling class perception that anything short of total control amounts to total disaster.
+ - Don’t be obsessed with tactics but with purpose. Tactics have a half life.
+ - The government has a defect: it’s potentially democratic. Corporations have no defect: they’re pure tyrannies.
+ - We live in this world, not another one that we’d prefer, and sometimes it’s necessary to follow painful paths if we hope to provide at least a little help for suffering people.
+ - Palestinians have no wealth or power.
+ - Mr. Mijanovi and those associated with him are the hope and the conscience of the Yugoslav revolution.
+ - From the late 1940s, into and through the ’50s, there developed a complex interaction between federal government, state and local government, real-estate interests, commercial interests and court decisions, which had the effect of undermining the mass transit system across the country.
+ - If you want to scare people, you talk about evil.
+ - My own feeling is that one should refuse to participate in any activity that implements American aggression – thus tax refusal, draft refusal, avoidance of work that can be used by the agencies of militarism and repression, all seem to me essential.
+ - The ‘free-floating intellectual’ may occupy himself with problems because of their inherent interest and importance, perhaps to little effect.
+ - People are dangerous. If they’re able to involve themselves in issues that matter, they may change the distribution of power, to the detriment of those who are rich and privileged.
+ - The press is owned by wealthy men who only want certain things to reach the public.
+ - To some degree it matters who’s in office, but it matters more how much pressure they’re under from the public.
+ - September 11 shocked many Americans into an awareness that they had better pay much closer attention to what the US government does in the world and how it is perceived. Many issues have been opened for discussion that were not on the agenda before. That’s all to the good.
+ - We’re supposed to worship Adam Smith but you’re not supposed to read him. That’s too dangerous.
+ - Sooner or later, jihadist-style terror and WMD are going to come together and the consequences could be horrendous.
+ - It is not a war. It is murder.
+ - If anybody thinks they should listen to me because I’m a professor at MIT, that’s nonsense. You should decide whether something makes sense by its content, not by the letters after the name of the person who says it.
+ - The people who live on the land – Israelis and Palestinians – have a right to live in security and peace.
+ - The people who were really important are the ones whose names are forgotten. And that’s true of every movement that ever existed.
+ - I doubt that national languages will disappear. In fact, to some extent they’re becoming more diverse, like in Europe.
+ - The Democrats have pretty much given up on the white working class. That would require a commitment to economic issues and that’s not their concern.
+ - Somehow the fact of enormous privilege and freedom carries with it a sense of impotence, which is a strange, but striking, phenomenon. The fact is, we can do just about anything. There is no difficulty, wherever you are, in finding groups that are working hard on things that concern you.
+ - With government deregulation and the triumph of financial liberalization, the dangers of systemic risks, the possibility of a financial tsunami, sharply increased.
+ - It’s ridiculous to talk about freedom in a society dominated by huge corporations. What kind of freedom is there inside a corporation? They’re totalitarian institutions – you take orders from above and maybe give them to people below you. There’s about as much freedom as under Stalinism.
+ - Worker ownership within a state capitalist, semi-market system is better than private ownership but it has inherent problems. Markets have well-known inherent inefficiencies. They’re very destructive.
+ - It hardly takes more than a day in Gaza to begin to appreciate what it must be like to try to survive in the world’s largest open-air prison.
+ - Well before September 11, it was understood that with modern technology, the rich and powerful will lose their near monopoly of the means of violence and can expect to suffer atrocities on home soil.
+ - The escalation to attack undefended civilian targets is just a classic illustration of terrorism.
+ - As a tactic, violence is absurd. No one can compete with the Government in violence, and the resort to violence, which will surely fail, will simply frighten and alienate some who can be reached, and will further encourage the ideologists and administrators of forceful repression.
+ - We should not be speaking to, but with. That is second nature to any good teacher.
+ - These are fashionable people who call themselves philosophers.
+ - How people themselves perceive what they are doing is not a question that interests me.
+ - Before the 1970s, banks were banks. They did what banks were supposed to do in a state capitalist economy: they took unused funds from your bank account, for example, and transferred them to some potentially useful purpose like helping a family buy a home or send a kid to college.
+ - Resistance is feasible even for those who are not heroes by nature, and it is an obligation, I believe, for those who fear the consequences and detest the reality of the attempt to impose American hegemony.
+ - The neo-cons constitute a radical reactionary fringe of the planning spectrum, but the spectrum is narrow.
+ - Markets have built in inefficiencies, serious inefficiencies which are well known.
+ - If you claim to have a theory that deduces unexpected consequences from nontrivial principles, let’s see it.
+ - Workers and their families may starve to death in the New World Order of economic rationality, but diamond necklaces are cheaper in elegant New York shops, thanks to the miracle of the market.
+ - There is no body of theory or significant body of relevant information, beyond the comprehension of the layman, which makes policy immune from criticism.
+ - Washington still refuses to provide evidence to support the claims in 1990 that a huge Iraqi military build-up on the Saudi border justified war.
+ - I don’t think that experience is a very useful or convincing attribute for a sensible foreign policy. Henry Kissinger had a lot of experience.
+ - State formation has been a brutal project, with many hideous consequences. But the results exist, and their pernicious aspects should be overcome.
+ - You might recall, perhaps, that we were probably the only commentators to rely on the most knowledgeable source, State Department intelligence.
+ - In my own professional work I have touched on a variety of different fields. I’ve done work in mathematical linguistics, for example, without any professional credentials in mathematics; in this subject I am completely self-taught, and not very well taught.
+ - The social system is taking on a form in which finding out what you want to do is less and less of an option because your life is too structured, organised, controlled and disciplined.
+ - Armed attack has a definition in international law. It means sudden, overwhelming, instantaneous ongoing attack.
+ - To summarize, draft resistance can make use of the inegalitarian nature of American society as a technique for increasing the cost of American aggression, and it threatens values that are important to those in a decision-making position.
+ - Latin America has much richer resources. You’d expect it to be far more advanced than East Asia, but it had the disadvantage of being under imperialist wings.
+ - The goal is a society in which the basic social unit is you and your television set. If the kid next door is hungry, it’s not your problem. If the retired couple next door invested their assets badly and are now starving, that’s not your problem either.
+ - The process of shaping opinion, attitudes, and perceptions was termed the ‘engineering of consent’ by one of the founders of the modern public relations industry, Edward Bernays.
+ - The IMF economists were doubtless shaken by the extreme failures of their prescriptions over many years, and by the collapse of the intellectual edifice of economic theory on which they were relying.
+ - There is no reason to accept the doctrines crafted to sustain power and privilege, or to believe that we are constrained by mysterious and unknown social laws.
+ - The only debatable issue, it seems to me, is whether it is more ridiculous to turn to experts in social theory for general well-confirmed propositions, or to the specialists in the great religions and philosophical systems for insights into fundamental human values.
+ - Free markets are based on the free circulation of labor. If you don’t have free circulation of labor, you don’t have free markets.
+ - In some respects, South African apartheid was more vicious than Israeli practices, and in some respects the opposite is true.
+ - The argument that resistance to the war should remain strictly nonviolent seems to me overwhelming.
+ - Radical Islamist extremists surely hope that an attack on Iraq will kill many people and destroy much of the country, providing recruits for terrorist actions.
+ - The crimes against Palestinians in the Occupied Territories and elsewhere, particularly Lebanon, are so shocking that the only emotionally valid reaction is rage and a call for extreme actions. But that does not help the victims. And, in fact, it’s likely to harm them.
+ - If the principle is, “Let’s not get lethal substances out to the public”, the first one you’d go after is tobacco. The next one you’d go after is alcohol. Way down the list you’d get to cocaine, and sort of invisibly low you’d get to marijuana.
+ - If the United States loses the economic weapons of control, it is very much weakened.
+ - The rascal multitude are the proper targets of the mass media and a public education system geared to obedience and training in needed skills, including the skill of repeating patriotic slogans on timely occasions.
+ - In many respects, the United States is a great country. Freedom of speech is protected more than in any other country. It is also a very free society.
+ - It’s designed to carry forward the neoliberal project to maximize profit and domination, and to set the working people in the world in competition with one another so as to lower wages to increase insecurity.
+ - After the first International Days of Protest in October, 1965, Senator Mansfield criticized the ‘sense of utter irresponsibility’ shown by the demonstrators.
+ - Real schools ought to provide people with techniques of self-defense, but that would mean teaching the truth about the world and about the society, and schools couldn’t survive very long if they did that.
+ - The police can go to downtown Harlem and pick up a kid with a joint in the streets. But they can’t go into the elegant apartments and get a stockbroker who’s sniffing cocaine.
+ - Some international law specialists compare the invasion of Iraq to the ‘crimes against the peace’ for which Nazi leaders were indicted at Nuremberg.
+ - The respected intellectuals are those who conform and serve power interests.
+ - I think there was an overemphasis in the early stage on militarization rather than directly providing relief. I don’t think it has any long-term significance.
+ - I admire Ralph Nader and Denis Kucinich very much, and insofar as they bring up issues and carry out an educational and organisational function – that’s important, and fine, and I support it.
+ - Roughly speaking, I think it’s accurate to say that a corporate elite of managers and owners governs the economy and the political system as well, at least in very large measure.
+ - The West Bank is essentially imprisoned.
+ - States are not moral agents.
+ - If you are working 50 hours a week in a factory, you don’t have time to read 10 newspapers a day and go back to declassified government archives. But such people may have far-reaching insights into the way the world works.
+ - The only justification for repressive institutions is material and cultural deficit. But such institutions, at certain stages of history, perpetuate and produce such a deficit, and even threaten human survival.
+ - The United States is a violent military state. It’s been involved in military action all over the place.
+ - Those who had demanded no more than an end to the bombing of North Vietnam and a commitment to negotiations saw their demands being realized, and lapsed into silence.
+ - Public opinion in Egypt is very antagonistic to the way the dictatorship, Mubarak dictatorship, interpreted relations with Israel. Very antagonistic.
+ - What happened in the missile crisis in October 1962 has been prettified to make it look as if acts of courage and thoughtfulness abounded. The truth is that the whole episode was almost insane.
+ - There are many terrorist states in the world, but the United States is unusual in that it is officially committed to international terrorism.
+ - We can, for example, be fairly confident that either there will be a world without war or there won’t be a world – at least, a world inhabited by creatures other than bacteria and beetles, with some scattering of others.
+ - It’s quite extraordinary to hear a supposedly learned person call the United States a leading terrorist nation, one of the leading terrorist nations in the world. It’s false and very treacherous teaching.
+ - Governments are not representative.
+ - When leaders carry out policies for decades that have no consequences for the stated goal and are very costly, you have to ask whether they are telling you the truth or whether the policies are for a different goal, because they are not reducing drug use.
+ - The old-fashioned idea is that responsibility falls upon those who borrow and lend. Money was not borrowed by campesinos, assembly plant workers, or slum-dwellers. The mass of the population gained little from borrowing, indeed often suffered grievously from its effects.
+ - It is a privilege to join the campaign to support Bradley Manning for his courage and integrity in serving his country by helping make the government accountable to its citizens, and to inform the world of what its people should know.
+ - Chemistry, until my childhood, not that long ago, was regarded as a calculating device. Because you couldn’t reduce to physics. So it’s just some way of calculating the result of experiments. The Bohr atom was treated that way.
+ - States are violent to the extent that they have the power to act in the interests of those with domestic power.
+ - By most accounts, Aristide is the most popular figure in Haiti.
+ - Humans may be destroying their chances for decent survival. It won’t kill everybody, but it would change the world dramatically.
+ - The Iranian government is undoubtedly a severe danger to its own population, but not beyond that.
+ - I hope that a move toward clemency with Judge Afiuni would be a step towards the importance of maintaining a properly functioning justice system.
+ - This Sarah Palin phenomenon is very curious. I think somebody watching us from Mars – they would think the country has gone insane.
+ - Of course all such conclusions about appropriate actions against the rich and powerful are based on a fundamental flaw: This is us, and that is them. This crucial principle, deeply embedded in Western culture, suffices to undermine even the most precise analogy and the most impeccable reasoning.
+ - If you are giving a graduate course you don’t try to impress the students with oratory, you try to challenge them, get them to question you.
+ - In the literal sense, there has been no relevant evolution since the trek from Africa. But there has been substantial progress towards higher standards of rights, justice and freedom – along with all too many illustrations of how remote is the goal of a decent society.
+ - Occupying armies have responsibilities, not rights. Their primary responsibility is to withdraw as quickly and expeditiously as possible, in a manner determined by the occupied population.
+ - The United States happens to be the only state in the world that has been condemned by the World Court for international terrorism.
+ - In fact, the capitalist class in the ’50s was sort of part of a social contract. It was part of the tenor of the times.
+ - The new crimes that the US and Israel were committing in Gaza as 2009 opened do not fit easily into any standard category – except for the category of familiarity.
+ - Modern science and technology can relieve men of the necessity for specialized, imbecile labor. They may, in principle, provide the basis for a rational social order based on free association and democratic control, if we have the will to create it.
+ - Nothing can justify crimes such as those of September 11, but we can think of the United States as an innocent victim only if we adopt the convenient path of ignoring the record of its actions and those of its allies, which are, after all, hardly a secret.
+ - The whole infrastructure of air travel was, and is, part of government policy. It is not a natural development of a free economic system – at least not in the way that is claimed. The same is true of the roads, of course.
+ - When I look at public opinion, I’m not far out of the mainstream. I’m in it, in many respects. In some respects, public opinion goes beyond anything I’ve ever said.
+ - Putting it in plain terms, the general public must be reduced to its traditional apathy and obedience, and driven from the arena of political debate and action, if democracy is to survive.
+ - Civil disobedience’s main goal typically is to try to arouse and inspire others to join and do something. Well, sometimes that is a good tactic, sometimes not.
+ - Governments are not representative. They have their own power, serving segments of the population that are dominant and rich.
+ - We need not stride resolutely towards catastrophe, merely because those are the marching orders.
+ - In fact, some leaders come right out and say it. Mario Draghi the president of the European Central Bank had an interview with the Wall St Journal in which he said the social contract’s dead; we finally got rid of it.
+ - I think we can be reasonably confident that if the American population had the slightest idea of what is being done in their name, they would be utterly appalled.
+ - There’s a War Crimes Act in the United States passed by a Republican Congress in 1996, which says that grave breaches of the Geneva Convention are subject to the death penalty. And that doesn’t mean the soldier that committed them – that means the commanders.
+ - The threat and use of violence is stimulating nuclear proliferation along with jihadi terrorism.
+ - In 1962, war was avoided by Khrushchev’s willingness to accept Kennedy’s hegemonic demands.
+ - Evaluating countries is senseless and I would never put things in those terms, but that some of America’s advances, particularly in the area of free speech, that have been achieved by centuries of popular struggle, are to be admired.
+ - Some of the most moving experiences I’ve had are just in black churches in the South, during the Civil Rights Movement, where people were getting beaten, killed, really struggling for the most elementary rights.
+ - The European reaction to Obama is a European delusion.
+ - There’s a very committed effort to convert the US into something resembling a Third World society, where a few people have enormous wealth and a lot of others have no security.
+ - We are entering a period of human history that may provide an answer to the question of whether it is better to be smart than stupid.
+ - I don’t say you’re self-censoring – I’m sure you believe everything you’re saying; but what I’m saying is, if you believed something different, you wouldn’t be sitting where you’re sitting.
+ - You never need an argument against the use of violence, you need an argument for it.
+ - In the major state capitalists economies, Europe and the US, it’s low growth and stagnation and a very sharp income differentiation a shift – a striking shift – from production to financialization.
+ - In the West, you don’t get in any trouble if you tell the truth, but you still can’t do it. Not only can’t you tell the truth, you can’t think the truth. It’s just so deeply embedded, deeply instilled, that without any meaningful coercion it comes out the same way it does in a totalitarian state.
+ - Independence of mind, enthusiasm, dedication to the field, and willingness to challenge and question and to explore new direction. There are plenty of people like that, but schools tend to discourage those characteristics.
+ - The more there is a need to talk about the ideals of democracy, the less democratic the system usually is.
+ - Pre-emptive war might fall within the framework of international law.
+ - It makes sense to work towards a better world, but it doesn’t make any sense to have illusions about what the real world is.
+ - The times are too difficult and the crisis too severe to indulge in schadenfreude. Looking at it in perspective, the fact that there would be a financial crisis was perfectly predictable: its general nature, if not its magnitude. Markets are always inefficient.
+ - Markets also have a very bad psychological effect. They drive people to a conception of themselves and society in which you’re only after your own good, not the good of others and that’s extremely harmful.
+
+484 quotes

@@ -1,0 +1,76 @@
+ - Life is a little like a message in a bottle, to be carried by the winds and the tides.
+ - I remember the 1940s as a time when we were united in a way known only to that generation. We belonged to a common cause-the war.
+ - Eccentric behavior is not routinely noticed around a movie set.
+ - I have a role now that I think becomes me. I am a grandmother.
+ - I followed the same diet for 20 years, eliminating starches, living on salads, lean meat, and small portions.
+ - A flame burns brightest just before it goes out.
+ - Nothing strengthens a woman’s determination to be in love quite so much as being told that she cannot.
+ - The Howard Hughes I knew began to change after his plane crash in 1941.
+ - A romantic, I think, picks the rose and is careless with the thorn.
+ - When my mood was high, I seemed normal, even buoyant. I felt smarter. I had secrets. I could see God in a light bulb.
+ - Jealousy is, I think, the worst of all faults because it makes a victim of both parties.
+ - Throughout my career, I was to be cast as a frontier girl, an aristocrat, an Arabian, a Eurasian, a Polynesian, and a Chinese.
+ - As an actress, I was trained to show emotion I did not feel, or no emotion at all.
+ - When I met Jack Kennedy, he was a serious young man with a dream. He was not a womanizer, not as I understood the term.
+ - I approached everything, my job, my family, my romances, with intensity.
+ - I was going to live on my salary or go down swinging.
+ - Day after day, I spent long afternoons in the talent pool, being told how to walk, how to talk, how to sit.
+ - Children don’t understand about people loving each other and then suddenly not.
+ - The things we ignore often come back to us in our sleep.
+ - Where there is hope, there is no despair.
+ - I loved to eat. For all of Hollywood’s rewards, I was hungry for most of those 20 years.
+ - The Hollywood structure was monopolistic, run by four or five big studios.
+ - Those who become mentally ill often have a history of chronic pain.
+ - Cars, furs, and gems were not my weaknesses.
+ - Trying to make order out of my life was like trying to pick up a jellyfish.
+ - In show business the saying seems too often true: it isn’t enough to succeed; someone else must fail.
+ - Men are wonderful. I adore them. They always give you the benefit of the doubt.
+ - The word actress has always seemed less a job description to me than a title.
+ - Unlike the stage, I never found it helpful to be good in a bad movie.
+ - Wealth, beauty, and fame are transient. When those are gone, little is left except the need to be useful.
+ - The main cause of my difficulties stemmed from the tragedy of my daughter’s unsound birth and my inability to face my feelings.
+ - I dated dozens of young men, had fun with all, made commitments to none.
+ - I learned quickly at Columbia that the only eye that mattered was the one on the camera.
+ - I had no romantic interest in Gable. I considered him an older man.
+ - I ask myself: Would I have been any worse off if I had stayed home or lived on a farm instead of shock treatments and medication?
+ - It is difficult to write about any form of mental disease, especially your own, without sounding as if you were examining a bug under glass.
+ - Everyone should see Hollywood once, I think, through the eyes of a teenage girl who has just passed a screen test.
+ - My departure from Hollywood was described as a walk-out. No one understood that I was cracking up.
+ - I simply did not want my face to be my talent.
+ - What a different world it was when I first sailed for Europe in 1930, with my mother, sister, and brother to spend six months abroad.
+ - Movie failures are like the common cold. You can stay in bed and take aspirin for six days and recover. Or you can walk around and ignore it for six days and recover.
+ - We cannot calculate the numbers of people who left, fled or were fished out of Europe just ahead of the Holocaust.
+ - I had been offered a Hollywood contract before my 18th birthday. It gave me the spark I needed.
+ - I had known Cole Porter in Hollywood and New York, spent many a warm hour at his home, and met the talented and original people who were drawn to him.
+ - About my career I was serious and earnest, sometimes impatient.
+ - I never understood the theory, once popular among doctors, that blamed mental disorders on too little or too much mother love. My own mother was my darling.
+ - I knew I could not cope with the future unless I was able to rediscover the past.
+ - Chaplin was notoriously strict with his sons and rarely gave them spending money.
+ - I am not the kind of woman who excuses her mistakes while reminding us of what used to be.
+ - Fonda and Gary Cooper had the best sense of timing of all the actors I knew.
+ - I was plunged into what was known as the debutante social whirl. This was one of the ways fathers justified their own hard work and sacrifices.
+ - Some women feel the best cure for a broken heart is a new beau.
+ - I existed in a world that never is – the prison of the mind.
+ - I needed to be accepted, not humored. I intended to act.
+ - For years it never occurred to me to question the judgment of those in charge at the studio.
+ - I’m not sure I can explain the nature of Jack Kennedy’s charm, but he took life just as it came.
+ - It was the fashion of the time, still is, to feel that all actors are neurotic, or they would not be actors.
+ - I was not cut out to be a rebel.
+ - Rehearsals and screening rooms are often unreliable because they can’t provide the chemistry between an audience and what appears on the stage or screen.
+ - I was fortunate enough to work under directors who were, most of them, brilliant, emotional men.
+ - In the months leading up to World War II, there was a tendency among many Americans to talk absently about the trouble in Europe. Nothing that happened an ocean away seemed very threatening.
+ - Houses are one of my passions. I probably should have been an interior decorator.
+ - I do not recall spending long hours in front of a mirror loving my reflection.
+ - I had been introduced to psychotherapy, in which the doctors let you talk, talk, talk, until you find the source of your problem or find another doctor.
+ - I used up every cent I earned as an actress.
+ - I used to annoy my father by telling him how much I felt luck was with me.
+ - In later years, I craved foods that were almost always fattening.
+ - I was fine when it came to cheering up others, not so fine with myself.
+ - In my early days in Hollywood I tried to be economical. I designed my own clothes, much to my mother’s distress.
+ - When you have spent an important part of your life playing Let’s Pretend, it’s often easy to see symbolism where none exists.
+ - Joe Schenck, a top 20th Century-Fox executive, once said to me that he really believed I had a future, and that was because I was the only girl who could survive so many bad pictures.
+ - There were days that I worked all the time, without a layoff, or a rest, finishing one picture and reporting for another sometimes on the same day.
+ - I admire anyone who rids himself of an addiction.
+ - My parents argued more than I remembered, about money and all the little things that disguise the truth that you are still arguing about money.
+
+74 quotes

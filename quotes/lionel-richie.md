@@ -1,0 +1,33 @@
+ - I’m easy like Sunday Morning...
+ - When your past calls, don’t answer. It has nothing new to say.
+ - No one can deny, this love I have inside, and I’ll give it all to you, my endless love.
+ - Let the music play on would be my legacy.
+ - My first love, you’re every breath that I take, you’re every step I make.
+ - Forget about 40 years in show business. Just surviving 27 years of Nicole Richie is enough.
+ - Today we’ve learned to celebrate mediocrity. Back in the day we had creative artists; today we have created artists.
+ - I always like to challenge myself. I never want to be put into a box.
+ - I think the whole world is dying to hear someone say, ‘I love you.’ I think that if I can leave the legacy of love and passion in the world, then I think I’ve done my job in a world that’s getting colder and colder by the day.
+ - I find the greatest songs in the world come out of pain, and I don’t like it! Here’s what it does: It strips away all of your facade. It makes you so honest. It’s cleansing.
+ - When will we ever learn, there’s nowhere else we can turn.
+ - All artists are egotistical maniacs with inferiority complexes.
+ - Lionel Richie, love song, OK, thank you very much, good-bye. And all of a sudden I realized that, in my career, what has made my career has always been the surprises.
+ - Greatness comes from fear. Fear can either shut us down and we go home, or we fight through it.
+ - Forget about surviving 40 years in the music business. Just surviving 27 years of Nicole Richie has been a struggle-and-a-half, I want to tell you. I stand here as a survivor, I want you to know, for all the parents out there.
+ - I find myself going out on the road to get my confidence back, because I lose it at home.
+ - I am a country boy and proud of it.
+ - I don’t think I’m going to be priest material.
+ - Traveling did a great deal to me. I found that when I travel and just sit in the corner and watch, a million ideas come to me.
+ - The music business was not safe, but it was FUN. It was like falling in love with a woman you know is bad for you, but you love every minute with her, anyway.
+ - Your kids can say some cruel things to you at times. For example, Nicole, Miles and Sofie are standing there in the room and I’m dressed to kill in my own mind. They’ll say to me, ‘Dad, you’re not going out there looking like that are you?’ If that doesn’t kill a star, I don’t know what does!
+ - I just had to find all my friends that used to be in the business. As I say, the music business didn’t die, it just moved to Nashville.
+ - My earliest memories of country music are the Grand Ole Opry.
+ - People have allowed me into their homes, through my words and my music.
+ - I just like people. I’ll hold a conversation at a gas station. It’s not about the fame and the fortune, I just like people.
+ - Exactly when people are in turmoil is the time that the entertainment business has always been at its best. Because people don’t want to be reminded every day that they are under siege, or that they’re not having a great time of life.
+ - So much of my career has been about saying things the way people say them, using melodies not that I can sing but that the people can sing.
+ - Simplicity is the key to what I do.
+ - Just when I think it couldn’t get any bigger, ‘Tuskegee’ reaches a new level of success.
+ - People, as critical as it looks, we’re OK. We are in control, whether we feel it or not.
+ - I’m a songwriter, and people will tell you the greatest stories about their lives, whether you want to hear it or not.
+
+31 quotes

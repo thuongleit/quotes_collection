@@ -1,0 +1,32 @@
+ - Basically, my life is so boring, it’s embarrassing.
+ - At home, I hardly ever leave London. I don’t like the countryside in England.
+ - I just don’t believe in love at first sight any more, even though I’ve based my whole career on the concept.
+ - I could do with more mobbing. Particularly from women. I’d like to be treated like Ricky Martin.
+ - For any new technology there is always controversy and there always some fear associated with it. I think that’s just the price of being first sometimes.
+ - I think that’s the whole point of Bridget Jones. It’s all about that it’s okay to fail.
+ - But I just know from experience that accent wise, even if you’re an accent genius, crossing the Atlantic is the hardest thing in the world either way.
+ - I’m a laugh tart. I make no secret of that fact.
+ - Japanese women have always loved my films, even when no one else did. Ever since I made ‘Maurice’ in the 1980s, I’ve been getting hundreds of letter from Japanese girls. They definitely have a special place in my heart.
+ - Women are frightening. If you get to 41 as a man, you’re quite battle-scarred.
+ - There is space in the supermarket shelf for all of us.
+ - I had Courtney Love’s left bosom out of her dress on my plate in front of me. It was extraordinary. I didn’t know where to look.
+ - I don’t think there’s much point in putting me a deep, dark, heavy, emotional film because there are people who do it so much better than I do.
+ - Strangely enough I’m better on a stage. I love that I feel like I blossom in front of a whole bunch of people.
+ - My grandmother was utterly convinced I’d wind up as the Archbishop of Canterbury. And, to be honest, I’ve never entirely ruled it out.
+ - You know everyone loves to be the villain.
+ - I don’t have any particular burning desire to go back to being cuddly. Not really.
+ - I don’t particularly like babies. I don’t mind them for about four minutes. That’s my max. After that I can’t quite see what everyone’s fussing about.
+ - But when you’re a celebrity, you discover that you’re no longer the pursuer, but the one being pursued. That’s one of the disappointments I have had since becoming a single man.
+ - Plus, teaching brings home to you very fast that you actually know nothing. I didn’t realize that before.
+ - The moral of filmmaking in Britain is that you will be screwed by the weather.
+ - When I think about actors I know, I’d much rather hear about who they’re shagging than what film they’re doing next.
+ - I quite like Pilates now. I have a Pilates girl in every city.
+ - I find it hard to understand why Scorsese has never called. You know, given the natural menace I bring to the screen.
+ - The only reason my work seems to be eclectic up to a certain period is because I was a failure as an actor.
+ - Most actors really love it, that’s what they want to do. They burn to do it. And so they’ll read a script and think, that’s an interesting part. And because they love acting, that blinds them to the fact that the rest of it is pretentious nonsense, which it very often is.
+ - The reason I turn down 99% of a hundred, I mean a thousand, scripts is because romantic comedies are often very romantic but seldom very funny.
+ - My dad used to have to open the second bottle of wine in the loo in case Mum heard the cork coming out.
+ - And film acting is incredibly tedious, just by its nature. It’s incredibly, mind numbingly slow.
+ - I play the sort of character who would sell his grandmother for career advancement, something I’ve come across a lot with actors.
+
+30 quotes

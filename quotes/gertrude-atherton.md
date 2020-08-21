@@ -1,0 +1,51 @@
+ - The human mind has an infinite capacity for self-deception.
+ - Women love the lie that saves their pride, but never an unflattering truth.
+ - Every leader of a great revolution is a fanatic and a Jesuit.
+ - I want books written out of a brain and heart and soul crowded and vital with Life, spelled with a big L. I want poetry bursting with passion. I don’t care a hang for the ‘verbal felicities.’ They’ll do for the fringe, but I want the garment to warm me first.
+ - Never trust a woman who will not lie about her age after thirty. She is unwomanly and unhuman and there is no knowing what crimes she will commit.
+ - Self-admiration giveth much consolation.
+ - All women want to be understood until they understand themselves.
+ - No loose fish enters our quiet bay.
+ - Oh, what is young love! The urge of the race. A blaze that ends in babies or ashes.
+ - Whether you fail or set the world on fire cannot make so very much difference if only you have the opportunity to try for it, to work for it, to think of nothing else!
+ - No matter how hard a man may labor, some woman is always in the background of his mind. She is the one reward of virtue.
+ - I have come to the conclusion that the modern interpretation of the Declaration of Independence is something like this: I am as good as those that think themselves better and a long sight better than those who only think themselves as good.
+ - A long while ago an eager group of reformers wrote to me asking if I could suggest anything that would improve the morals of the American people. I replied that the trouble with the American people in general was not lack of morals but lack of brains...
+ - The minority of one generation is usually the majority of the next.
+ - Nursing is not only a natural vocation for a woman, but an occupation which increases her matrimonial chances about eighty per cent.
+ - The very commonplaces of life are components of its eternal mystery.
+ - A man is more than one being in his life. If the last persists, why not the first? If there be a hereafter for his age, why not for his youth?
+ - The final result of too much routine is death in life.
+ - I am a Californian, and we have twice the individuality and originality of any people in the United States. We always get quite huffy when we are spoken of as merely Americans.
+ - Men are not amusing during the shooting season; but, after all, my dear, men were not especially designed to amuse women.
+ - The world changed somewhat in form during its progress, but never in substance.
+ - Our impulses are our birthright. To alter personality would be unjust, almost criminal, for the impulses that make a fool or worse of us in certain circumstances may be necessary for our happiness.
+ - Civilization in certain respects is as inadequate as it was a thousand years ago.
+ - Success is a great healer.
+ - It took me some time to learn that although every one secretly cherishes the ambition to be ‘put in a book,’ no one is ever satisfied with anything save incense, butter, and honey, unrelieved by salt or spice.
+ - I see no present solution of a great and intricate problem but that the rich should realize their duty to the poor.
+ - There is nothing so carking as the pangs of unsatisfied curiosity.
+ - Here is a simple recipe to begin with. Get up every morning with the set intention of writing and go to your desk and sit there for three hours, whether you accomplish anything or not. Before long you will find that you are writing madly, not waiting for inspiration.
+ - The French are a race of individuals. There is no type.
+ - It is a pretty trick of authors to make nature ever in sympathy with man, but as a matter of fact she seldom is.
+ - It is seldom that the imagination is disappointed in the ‘ancestral piles’ of England.
+ - New York has always prided itself on its bad manners. That is the real source of our strength.
+ - The grief of childhood is terrible while it lasts, it is so abandoned and so all-possessing.
+ - The only two good words that can be said for a hurricane are that it gives sufficient warning of its approach, and that it blows from one point of the compass at a time.
+ - Fame compensates for a column of wants.
+ - We never care to know new people unless we are sure we shall like them.
+ - No country can reach a high stage of civilization without a leisure class...
+ - To put a tempting face aside when duty demands every faculty is a lesson which takes most men longest to learn.
+ - In times of panic man seems to exchange his soul for a tail.
+ - A little superstition is a good thing to keep in one’s bag of precautions.
+ - It took me years to learn that character is fate and that no one can be made over.
+ - If you can’t get the very best in this world, take nothing.
+ - Nowhere can it rain harder and with a more tiresome persistence than in California during the brief season when it rains at all.
+ - Better extirpate the whole breed, root and branch. And this, unless the German people come to their senses, is what we propose to do.
+ - Plot and melodrama were in every life; in some so briefly as hardly to be recognized, in others-in that of certain men and women in the public eye, for instance-they were almost in the nature of a continuous performance.
+ - Writing was my real life and I was more at home with the people of my imagination than with the best I met in the objective world.
+ - The Southerners are the only cooks in the United States. The real difference between the South and the North is that one enjoys itself getting dyspepsia and the other does not.
+ - California has all the beauties of youth as well as its idiocies and vices...
+ - Has it ever occurred to you, that the rich are at the mercy of the poor, not the poor at that of the rich? Who permits us to be rich if not the poor?
+
+49 quotes

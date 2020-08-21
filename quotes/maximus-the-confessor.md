@@ -1,0 +1,38 @@
+ - Theology without practice is the theology of demons.
+ - Food is not evil, but gluttony is. Childbearing is not evil, but fornication is. Money is not evil, but avarice is. Glory is not evil, but vainglory is. Indeed, there is no evil in existing things, but only in their misuse.
+ - Just as the thought of fire does not warm the body, so faith without love does not actualize the light of spiritual knowledge in the soul.
+ - The person who truly wishes to be healed is he who does not refuse treatment. This treatment consists of the pain and distress brought on by various misfortunes. He who refuses them does not realize what they accomplish in this world or what he will gain from them when he departs this life.
+ - To harbor no envy, no anger, no resentment against an offender is still not to have charity for him. It is possible, without any charity, to avoid rendering evil for evil. But to render, spontaneously, good for evil – such belongs to a perfect spiritual love.
+ - He who busies himself with the sins of others, or judges his brother on suspicion, has not yet even begun to repent or to examine himself so as to discover his own sins...
+ - Only wonder can comprehend His incomprehensible power.
+ - Dispassion and humility lead to spiritual knowledge. Without them no one will see the Lord.
+ - Christianity is an entirely new way of being human.
+ - Every genuine confession humbles the soul. When it takes the form of thanksgiving, it teaches the soul that it has been delivered by the grace of God.
+ - In conformity with the philosophy of Christ, let us make of our life a training for death.
+ - He who has realized love for God in his heart is tireless in his pursuit of the Lord his God, and bears every hardship, reproach and insult nobly, never thinking the least evil of anyone.
+ - Whoever sees in himself the traces of hatred toward any man on account of any kind of sin is completely foreign to the love of God. For love toward God does not at all tolerate hatred for man.
+ - Do not disdain the commandment to love, for through it you become a son of God, and when you break it, you become a son of Gehenna.
+ - Created man cannot become a son of God and god by grace through deification, unless he is first through his own free choice begotten in the Spirit by means of the self-loving and independent power dwelling naturally in him.
+ - You will be able to check envy if you rejoice with the man whom you envy whenever he rejoices, and grieve whenever he grieves.
+ - Cleanse your mind from anger, remembrance of evil, and shameful thoughts, and then you will find out how Christ dwells in you.
+ - Inasmuch as you pray with all your soul for the one who has slandered you, so much will God reveal the truth to them who have believed the slander.
+ - There is a single energy of God and the saints? they are living icons of Christ, being the same as He is, by grace rather than by assimilation.
+ - He has as yet no perfect love, whose disposition towards men depends on what they are like, loving one and despising another for this or that, or sometimes loving, sometimes hating one and the same man. Blessed is the man who can love all men equally.
+ - The person who loves God cannot help loving every man as himself, even though he is grieved by the passions of those who are not yet purified. But when they amend their lives, his delight is indescribable and knows no bounds.
+ - A Christian receives divine wisdom in three ways: by the commandments, teachings, and faith. The commandments free the mind from passions. Teachings lead it to true knowledge of nature. Faith leads to the contemplation of the Holy Trinity.
+ - Humility and suffering free a man from all sin; for the first cuts out spiritual passions, and the latter bodily.
+ - If everything that exists was made by God and for God, and God is superior to the things made by Him, he who abandons what is superior and devotes Himself to what is inferior shows that he values things made by God more than God Himself.
+ - In all of our deeds God looks at the intention, whether we do it for His sake, or for the sake of some other intention.
+ - Trials are sent to some so as to take away past sins, to others so as to eradicate sins now being committed, and to yet others so as to forestall sins which may be committed in the future. These are distinct from the trials that arise in order to test men in the way that Job was tested.
+ - If an unexpected temptation comes, don’t blame the one through whom it came, but seek out the reason. Thus you will find correction for your soul.
+ - Peace is truly the complete and undisturbed possession of what is desired.
+ - Unclean spirits increase the passions in us, making use of our negligence, and inciting them. But the angels decrease our passions, inciting us to the perfection of virtue.
+ - A pure heart is perhaps one which has no natural propulsion towards anything in any manner whatsoever. When in its extreme simplicity such a heart has become like a writing-tablet beautifully smoothed and polished, God comes to dwell in it and writes there His own laws.
+ - Temptations come on some people for the cleansing of previous sins, on other for the beautification of their current perfection, and on yet others, as preparation for things to come, except temptations, which are for the increase of a man’s faith and virtue, as it was with Job.
+ - As we have borne the image of the earthy, let us also bear the image of the heavenly.
+ - Some passions are bodily, other spiritual. Bodily passions have their sources in the body, while spiritual ones come from external things. But love and temperance cut out both the one and the other: Love cuts out spiritual passions, and temperance bodily ones.
+ - Just as the light of the sun attracts a healthy eye, so through love knowledge of God naturally draws to itself a pure intellect.
+ - Love is manifested not only through the distribution of one’s possessions, but even moreso through the spreading of the word of God and helpful deeds.
+ - If you make provision for the desires of the flesh and bear a grudge against your neighbor on account of something transitory, you worship the creature instead of the Creator.
+
+36 quotes

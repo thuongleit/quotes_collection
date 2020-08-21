@@ -1,0 +1,29 @@
+ - You have the power to fulfill your dreams!
+ - Let go of self-condemnation and guilt!
+ - Before you can express love, you must find love. You must know love within yourself before you can express it. You must love yourself before you can give it to another.
+ - Use your will to conquer fears and weaknesses!
+ - Be the winner in your life!
+ - Our actions are guaranteed to affect others. Because we are not alone in this world, much of our learning about ourselves comes from our interaction with others. Our relationships are our teachers. We learn from each other.
+ - Maintain an attitude of anticipating success!
+ - Have an open mind! Have an empty cup!
+ - Regard mistakes as teachers, not judges!
+ - Physical training is mental warfare!
+ - Your own thoughts can be your worst enemy!
+ - Red stimulates and excites your nerves, pulse rate and blood circulation, and lends energy to your entire system. When you are fatigued, lethargic or sluggish for any reason, red has an energizing influence.
+ - Maintain a forgiving attitude!
+ - Self-discovery means learning to live free!
+ - When you express “purity” which is the truth about yourself, you feel a love for yourself that is expressed by self-respect, self-esteem, and self-confidence!
+ - Look at your life as a patient and a doctor!
+ - Green strongly influences the heart and helps alleviate tension. Positive qualities associated with green are generosity, humility, and cooperation. Foods of the green vibration are all green fruits and green vegetables.
+ - Realize that “I Can’t” usually means “I won’t”!
+ - Yellow is a very favorable vibration for mental or intellectual activity, as it promotes a clear state of mind. Yellow heightens your awareness and alleviates depression, sadness, or any kind of despondency. Yellow vibration foods are: pineapples, bananas, grapefruit, lemons and corn.
+ - Indigo has a purifying, stabilizing, cleansing effect when fear, repression, and obsessions have disturbed your mental body. Indigo food vibrations are: blackberries, blue plums, blueberries, purple brocoli, beetroot, and purple grapes.
+ - Will doesn’t have to be struggle!
+ - White is associated with purity because the entire spectrum is functioning in unity. White is a healing color. White is appropriate for weddings because the unity of male and female symbolizes the unity of allness.
+ - To make a change, you must be: willing to commit, willing to change, willing to have an open mind, and willing to take action!
+ - Before you can express love, you must find love. You must know love within yourself before you can give it to another. When you recognize or experience the truth about yourself you automatically feel love, because love is a quality of your true consciousness and true ideas.
+ - Orange strengthens your emotional body, encouraging a general feeling of joy, well-being, and cheerfulness. Orange vibration foods are: oranges, tangerines, apricots, mangoes, peaches and carrots.
+ - Violet is the most soothing, tranquilizing and cooling color vibration. It encourages the healing of unbalanced mental conditions in people who are overly nervous or high-strung. Foods of the violet vibration are: purple broccoli, beetroot and purple grapes.
+ - Life, is energy. It is the energy that makes your heart beat and makes you breathe, that causes the cells of your body to automatically grow and reproduce the moment you are conceived!
+
+27 quotes

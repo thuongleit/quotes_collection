@@ -1,0 +1,54 @@
+ - A man must dream a long time in order to act with grandeur, and dreaming is nursed in darkness.
+ - Betrayal is beautiful.
+ - By stretching language we’ll distort it sufficiently to wrap ourselves in it and hide.
+ - If we behave like those on the other side, then we are the other side. Instead of changing the world, all we’ll achieve is a reflection of the one we want to destroy.
+ - Crimes of which a people is ashamed constitute its real history. The same is true of man.
+ - It’s a true image, born of a false spectacle.
+ - It’s the hour when night breaks away from the day, my dove, let me go.
+ - The pimp has a grin, never a smile.
+ - Beauty has no other origin than the singular wound, different in every case, hidden or visible, which each man bears within himself, which he preserves, and into which he withdraws when he would quit the world for a temporary but authentic solitude.
+ - I don’t want to disappear.
+ - Ah those knock-out body fluids: blood, sperm, tears!
+ - Perhaps all music, even the newest, is not so much something discovered as something that re-emerges from where it lay buried in the memory, inaudible as a melody cut in a disc of flesh. A composer lets me hear a song that has always been shut up silent within me.
+ - To achieve harmony in bad taste is the height of elegance.
+ - Solitude, as I understand it, does not signify an unhappy state, but rather secret royalty, profound incommunicability yet a more or less obscure knowledge of an invulnerable singularity.
+ - Though they may not always be handsome men doomed to evil posses the manly virtues.
+ - I could not take lightly the idea that people made love without me.
+ - Anyone who hasn’t experienced the ecstasy of betrayal knows nothing about ecstasy at all.
+ - What we need is hatred. From it our ideas are born.
+ - When the judge calls the criminal’s name out he stands up, and they are immediately linked by a strange biology that makes them both opposite and complementary. The one cannot exist without the other. Which is the sun and which is the shadow? It’s well known some criminals have been great men.
+ - I recognize in thieves, traitors and murderers, in the ruthless and the cunning, a deep beauty – a sunken beauty.
+ - Erotic play discloses a nameless world which is revealed by the nocturnal language of lovers. Such language is not written down. It is whispered into the ear at night in a hoarse voice. At dawn it is forgotten.
+ - Violence is a calm that disturbs you.
+ - Prison, dungeons, blessed places where evil is impossible because they are the crossroads of all the evil in the world. One cannot commit evil in hell.
+ - There are mornings when all men experience with fatigue a flush of tenderness that makes them horny.
+ - A great wind swept over the ghetto, carrying away shame, invisibility and four centuries of humiliation. But when the wind dropped people saw it had been only a little breeze, friendly, almost gentle.
+ - My heart’s in my hand, and my hand is pierced, and my hand’s in the bag, and the bag is shut, and my heart is caught.
+ - I give the name violence to a boldness lying idle and enamored of danger.
+ - Worse than not realizing the dreams of your youth, would be to have been young and never dreamed at all.
+ - One can hear all that’s going on in the street. Which means that from the street one can hear what’s going on in this house.
+ - There is a close relationship between flowers and convicts. The fragility and delicacy of the former are of the same nature as the brutal insensitivity of the latter.
+ - Added to the moral solitude of the murderer comes the solitude of the artist, which can acknowledge no authority, save that of another artist.
+ - Love makes use of the worst traps. The least noble. The rarest. It exploits coincidence.
+ - In order to weep, I had descended to the realm of the dead themselves, to their secret chambers, led by the invisible but soft hands of birds down stairways which were folded up again as I advanced. I displayed my grief in the friendly fields of death, far from men: within myself.
+ - Every premeditated murder is always governed by a preparatory ceremonial and is always followed by a propitiatory ceremonial. The meaning of both eludes the murderers mind.
+ - Power may be at the end of a gun, but sometimes it’s also at the end of the shadow or the image of a gun.
+ - The most reasonable man always manages, when he pulls the trigger, to become a dispenser of justice.
+ - The fame of heroes owes little to the extent of their conquests and all to the success of the tributes paid to them.
+ - In reviewing my life, in tracing its course, I fill my cell with the pleasure of being what for want of a trifle I failed to be, recapturing, so that I may hurl myself into them as into dark pits, those moments when I strayed through the trap-ridden compartments of a subterranean sky.
+ - The despondency that follows makes me feel somewhat like a shipwrecked man who spies a sail, sees himself saved, and suddenly remembers that the lens of his spyglass has a flaw, a blurred spot – the sail he has seen.
+ - We know that their adventures are childish. They themselves are fools. They are ready to kill or be killed over a card-game in which an opponent – or they themselves – was cheating. Yet, thanks to such fellows, tragedies are possible.
+ - There is a close relationship between flowers and convicts.
+ - Anyone who knows a strange fact shares in its singularity.
+ - Creation is not a light-hearted game. The creator commits to a terrible adventure, which is to take up-on himself all of the dangers that his creatures run.
+ - Slowly but surly I want to strip her of every kind of happiness as to make a saint of her.
+ - The time for reasoning is past; now’s the time to get steamed up and fight like mad.
+ - I wanted to swallow myself by opening my mouth very wide and turning it over my head so that it would take in my whole body, and then the Universe, until all that would remain of me would be a ball of eaten thing which little by little would be annihilated: that is how I see the end of the world.
+ - When we see life, we call it beautiful. When we see death, we call it ugly. But it is more beautiful still to see oneself living at great speed, right up to the moment of death.
+ - Would Hamlet have felt the delicious fascination of suicide if he hadn’t had an audience, and lines to speak?
+ - The vaporish cocaine loosens the contours of their lives and sets their bodies adrift, and so they are untouchable.
+ - Men endowed with a wild imagination should have, in addition, the great poetic faculty of denying our universe and its values so that they may act upon it with sovereign ease.
+ - Limited by the world, which I oppose, jagged by it, I shall be all the more handsome and sparkling as the angles which wound me and give me shape are more acute and the jagging more cruel.
+ - Repudiating the virtues of your world, criminals hopelessly agree to organize a forbidden universe. They agree to live in it. The air there is nauseating. They can breathe it.
+
+52 quotes

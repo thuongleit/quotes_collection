@@ -1,0 +1,41 @@
+ - You never know what you can do till you try.
+ - Men of integrity are generally pretty obstinate, in adhering to an opinion once adopted.
+ - A full belly to the labourer was, in my opinion, the foundation of public morals and the only source of real public peace.
+ - Without bread all is misery.
+ - It is by attempting to reach the top at a single leap that so much misery is caused in the world.
+ - WESTBURY, a nasty odious rotten-borough, a really rotten place.
+ - Protestations of impartiality I shall make none. Theyare always useless and are besides perfect nonsense, when used bya news-monger.
+ - Please your eye and plague your heart.
+ - Norwich is a very fine city, and the castle, which stands in the middle of it, on a hill, is truly majestic.
+ - Nova Scotia, New Brunswick, and Canada are the horns, the head, the neck, the shins, and the hoof of the ox, and the United States are the ribs, the sirloin, the kidneys, and the rest of the body.
+ - To be poor and independent is very nearly an impossibility.
+ - I defy you to agitate any fellow with a full stomach.
+ - Praise the child, and you make love to the mother.
+ - A couple of flitches of bacon are worth fifty thousand Methodist sermons and religious tracts. They are great softeners of temper and promoters of domestic harmony.
+ - Sit down to write what you have thought, and not to think what you shall write.
+ - Nothing is so well calculated to produce a death-like torpor in the country as an extended system of taxation and a great national debt.
+ - But what is to be the fate of the great wen of all? The monster, called, by the silly coxcombs of the press, “the metropolis of the empire”?
+ - Men fail much oftener from want of perseverance than from want of talent.
+ - Poverty is, except where there is an actual want of food and raiment, a thing much more imaginary than real. The shame of poverty – the shame of being thought poor – it is a great and fatal weakness, though arising in this country, from the fashion of the times themselves.
+ - If the people of Sheffield could only receive a tenth part of what their knives sell for by retail in America, Sheffield might pave its streets with silver.
+ - From a very early age I had imbibed the opinion that it was every man’s duty to do all that lay in his power to leave his country as good as he had found it.
+ - The truth is that the fall of Napoleon is the hardest blow that our taxing system ever felt. It is now impossible to make people believe that immense fleets and armies are necessary.
+ - Give me, Lord, neither poverty nor riches.
+ - Happiness, or misery, is in the mind. It is the mind that lives.
+ - Never esteem men on account of their riches or their station. Respect goodness, find it where you may.
+ - The tendency of taxation is to create a class of persons who do not labor, to take from those who do labor the produce of that labor, and to give it to those who do not labor.
+ - Grammar, perfectly understood, enables us not only to express our meaning fully and clearly, but so to express it as to enable us to defy the ingenuity of man to give to our words any other meaning than that which we ourselves intend them to express.
+ - Free yourself from the slavery of tea and coffee and other slop kettles!
+ - However roguish a man may be, he always loves to deal with an honest man.
+ - But I do not remember ever having seen a newspaper in the house; and, most certainly, that privation did not render us less industrious, happy, or free.
+ - Learning consists of ideas, and not of the noise that is made by the mouth.
+ - The smallness of our desires may contribute reasonably to our wealth.
+ - It is not the greatness of a man’s means that makes him independent, so much as the smallness of his wants.
+ - The power which money gives is that of brute force; it is the power of the bludgeon and the bayonet.
+ - Good government is known from bad government by this infallible test: that under the former the labouring people are well fed and well clothed, and under the latter, they are badly fed and badly clothed.
+ - When, from the top of any high hill, one looks round the country, and sees the multitude of regularly distributed spires, one not only ceases to wonder that order and religion are maintained, but one is astonished that any such thing as disaffection or irreligion should prevail.
+ - All Middlesex is ugly, notwithstanding the millions upon millionswhichit iscontinuallysucking up fromtherestof the kingdom.
+ - The very hirelings of the press, whose trade it is to buoy up the spirits of the people. have uttered falsehoods so long, they have played off so many tricks, that their budget seems, at last, to be quite empty.
+ - He who writes badly thinks badly.
+
+39 quotes

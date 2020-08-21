@@ -1,0 +1,52 @@
+ - Happiness is an immunity.
+ - It is best as one grows older to strip oneself of possessions, to shed oneself downward like a tree, to be almost wholly earth before one dies.
+ - Anticipation of pleasure is a pleasure in itself.
+ - You are only young once. At the time it seems endless, and is gone in a flash; and then for a very long time you are old.
+ - The Church has lost a great religious poet in me; but I have lost an infinity of fun in the church, so the loss is even.
+ - The fatal flaw of gravity; when you are down, everything falls down on you.
+ - I wish you could see the two cats drowsing side by side in a Victorian nursing chair, their paws, their ears, their tails complementarily adjusted, their blue eyes blinking open on a single thought of when I shall remember it’s their supper time. They might have been composed by Bach for two flutes.
+ - Only two things are real to me: my love and my death. In between them, I merely exist as a scatter of senses.
+ - I wish I could write librettos for the rest of my life. It is the purest of human pleasures, a heavenly hermaphroditism of being both writer and musician. No wonder that selfish beast Wagner kept it all to himself.
+ - When other helpers fail and comforts flee, when the senses decay and the mind moves in a narrower and narrower circle, when the grasshopper is a burden and the postman brings no letters, and even the Royal Family is no longer quite what it was, an obituary column stands fast.
+ - Can you suggest any suitable aspersions to spread abroad about Mrs. Thatcher? It is idle to suggest she has unnatural relations with Mrs. Barbara Castle; what is needed is something socially lower: that she eats asparagus with knife and fork, or serves instant mash potatoes.
+ - Spring is strictly sentimental, self-regarding; but I burn more careless in the autumn bonfire.
+ - There are not enough poems in praise of bed...
+ - Total grief is like a minefield. No knowing when one will touch the tripwire.
+ - Love is the only real patriation, and without one’s dear one sits in a dreary and boring exile.
+ - Here is a kitchen improvement, in return for Peacock. For roasting or basting a chicken, render down your fat or butter with cider: about a third cider. Let it come together slowly, till the smell of cider and the smell of fat are as one. This will enliven even a frozen chicken.
+ - Rouen shone in dark sunlight and a storm swept it away from my eyes and churned up the broad river with waves which pounced up like cats as our train drew out of the arches of the bridge.
+ - Young people are careless of their virginity; one day they may have it and the next not.
+ - One cannot revoke a true happiness.
+ - When I die, I hope to think I have annoyed a great many people.
+ - I feel domesticity just slipping off me. It is a choice. Either one can let it go or one can intensify it. The people who intensify it seem to get quite a lot of interest out of that, too, and are as preoccupied as pirates.
+ - I cannot love people in the country, I discover, because there is always this danger that they may be acquaintances, with all the perils and choleras of acquaintance implicit in them; but in London they seem as charming as rabbits.
+ - Children driven good are apt to be driven mad.
+ - General de Gaulle is again pictured in our newspapers, looking as usual like an embattled codfish.
+ - The baby romped on my lap like a short stout salmon.
+ - I wish I could be a grandmother. It is wanton extravagance to have had a youth with no one to tell of it to when one grows old.
+ - And another day is tucked under my wing.
+ - To one who has led a virtuous life, to sin is the easiest thing in the world. No experience of unpleasant consequences grits that smooth sliding fall, no recollection of disillusionment blurs that pure desire.
+ - But what are wishes, compared with longings?
+ - I have an idea that conscience impedes quite as many merits as faults, is a sort of alloy, a nickel which may prevent silver from bending but also prevents it from shining.
+ - There is a moral, of course, and like all morals it is better not pursued.
+ - Of all damnable offenses preaching prudence to the young is the most damnable.
+ - She was heavier than he expected – women always are.
+ - Those who spend their strength in field and factory would rather hear that their emancipation is bound to come than that it is something to be hazardously purchased by struggle and sacrifice.
+ - Happy is the day whose history is not written down.
+ - Reason is a poor hand at prophecies.
+ - I wasn’t educated. I was very lucky.
+ - In the morning I had decided that henceforth I only cared for easy loves. It is so degrading to have to persuade people into liking one, or one’s works.
+ - One cannot overestimate the power of a good rancorous hatred on the part of the stupid. The stupid have so much more industry and energy to expend on hating. They build it up like coral insects.
+ - Wealth, if not a mere flash in the pan, compels the wealthy to become wealthier.
+ - I seem to use this word ‘kind’ very frequently. When one is unhappy or anxious it is a quality one dwells on.
+ - One need not write in a diary what one is to remember for ever.
+ - Inflation is the senility of democracies.
+ - To think of losing is to lose already.
+ - All encounters with children are touched with social embarrassment.
+ - Love amazes, but it does not surprise.
+ - How dreadful it is that because of our wills we can never love anything without messing it around! We couldn’t even love a tree, a stone even; for sooner or later we should be pruning the tree or chipping a bit off the stone.
+ - The body, after all, older and wiser than soul, being first created, and, like a good horse, if given its way would go home by the best path and at the right pace.
+ - Truth has beauty, power, and necessity.
+ - Belligerents always abolish war after a war.
+
+50 quotes

@@ -1,0 +1,127 @@
+ - Above all, be the heroine of your life, not the victim.
+ - When you realize you want to spend the rest of your life with somebody, you want the rest of your life to start as soon as possible.
+ - Whatever you choose, however many roads you travel, I hope that you choose not to be a lady. I hope you will find some way to break the rules and make a little trouble out there. And I also hope that you will choose to make some of that trouble on behalf of women.
+ - Take notes. Everything is copy.
+ - Your education is a dress rehearsal for a life that is yours to lead.
+ - When your children are teenagers, it’s important to have a dog so that someone in the house is happy to see you.
+ - The only way to learn is to keep doing something new, and, if you’re lucky, learning with people who really know how to do it.
+ - The hardest thing about writing is writing.
+ - In fact, looking back, it seems to me that I was clueless until I was about 50-years-old.
+ - That’s your problem! You don’t want to be in love. You want to be in love in a movie.
+ - What are you going to do? Everything, is my guess. It will be a little messy, but embrace the mess. It will be complicated, but rejoice in the complications.
+ - Working as a journalist is exactly like being a wallflower at an orgy.
+ - And then the dreams break into a million tiny pieces. The dream dies. Which leaves you with a choice: you can settle for reality, or you can go off, like a fool, and dream another dream.
+ - When I buy a new book, I always read the last page first, that way in case I die before I finish, I know how it ends. That, my friend, is a dark side.
+ - Reading is escape, and the opposite of escape.
+ - When you slip on a banana peel, people laugh at you. But when you tell people you slipped on a banana peel, it’s your laugh.
+ - I don’t care who you are. When you sit down to write the first page of your screenplay, in your head, you’re also writing your Oscar acceptance speech.
+ - I definitely divide my life into decades. Almost every ten years, something in my work life has changed. My twenties were my journalistic phase, then there was my screenwriting phase, then I became a director, then I started doing some plays...
+ - I think if you’re lucky enough to find a voice in whatever you do, that voice will come sneaking out no matter what.
+ - I think you often have that sense when you write – that if you can spot something in yourself and set it down on paper, you’re free of it. And you’re not, of course; you’ve just managed to set it down on paper, that’s all.
+ - The empty nest is underrated.
+ - We weren’t meant to have futures, we were meant to marry them. We weren’t meant to have politics, or careers that mattered, or opinions, or lives; we were meant to marry them. If you wanted to be an architect, you married an architect.
+ - I don’t think any day is worth living without thinking about what you’re going to eat next at all times.
+ - I have made a lot of mistakes falling in love, and regretted most of them, but never the potatoes that went with them.
+ - If pregnancy were a book they would cut the last two chapters.
+ - There is no reason to confuse television news with journalism.
+ - Eat every meal as if it’s your last; when the last one comes, you probably won’t be very hungry.
+ - So much of what I see reminds me of something I read in a book, when shouldn’t it be the other way around?
+ - Having been married so many times, I know that one of the few things I am an expert in is falling in love.
+ - It’s much easier to get over someone if you can delude yourself into thinking you never really cared that much.
+ - I know that I am essentially a sort of fun-loving person who really just wants to sit around and eat pies.
+ - I always say that a successful parent is one who raises a child so that they can pay for their own psychoanalysis.
+ - The desire to get married, which – I regret to say, I believe is basic and primal in women – is followed almost immediately by an equally basic and primal urge – which is to be single again.
+ - You always think that a bolt of lightning is going to strike and your parents will magically change into the people you wish they were, or back into the people they used to be.
+ - My closet is full of sad little scripts that didn’t get made that have sad endings. It’s very hard to get a movie made that has a sad ending.
+ - Lesbianism has always seemed to me an extremely inventive response to a shortage of men, but otherwise not worth the trouble.
+ - Consciousness-raising is at the very least supposed to bring about an intimacy, but what it seems instead to bring about are the trappings of intimacy, the illusion of intimacy, a semblance of intimacy.
+ - I’ll have what she’s having.
+ - I look out the window and I see the lights and the skyline and the people on the street rushing around looking for action, love, and the world’s greatest chocolate chip cookie, and my heart does a little dance.
+ - No one is more romantic than a cynic. I do think that you don’t become cynical or ‘unsentimental’ unless there’s a core of romanticism or sentiment that’s had a few chips nicked into it.
+ - Don’t you love New York in the fall? It makes me want to buy school supplies. I would send you a bouquet of newly sharpened pencils if I knew your name and address.
+ - And don’t be frightened: you can always change your mind. I know: I’ve had four careers and three husbands.
+ - No man can be friends with a woman he finds attractive. He always wants to have sex with her. Sex is always out there. Friendship is ultimately doomed and that is the end of the story.
+ - Believe me, if I looked good, it’s not an accident.
+ - The divorce has lasted way longer than the marriage, but finally it’s over.
+ - Verbal ability is a highly overrated thing in a guy, and it’s our pathetic need for it that gets us into so much trouble.
+ - I don’t want to be someone that you’re settling for. I don’t want to be someone that anyone settles for. Marriage is hard enough without bringing such low expectations into it, isn’t it?
+ - Whenever someone says the words ‘Our friendship is more important than this,’ watch out, because it almost never is.
+ - Oh, how I regret not having worn a bikini for the entire year I was twenty-six. If anyone young is reading this, go, right this minute, put on a bikini, and don’t take it off until you’re thirty-four.
+ - In my sex fantasy, nobody ever loves me for my mind.
+ - I have a theory that children remember two things-when you weren’t there and when they threw up.
+ - I have for many years been puzzled by the persistence of Hugh Hefner. Why is he still here?
+ - Everybody dies. There’s nothing you can do about it. Whether you eat six almonds a day. Whether or not you believe in God.
+ - So, twice a week, I go to a beauty salon and have my hair blown dry. It’s cheaper by far than psychoanalysis, and much more uplifting.
+ - Washington is a city of locker-room boys, and all the old, outmoded notions apply: men and women are ushered to separate rooms after dinner, sex is dirty, and they are still serving onion-soup dip.
+ - Never marry a man you wouldn’t want to be divorced from.
+ - I have no desire to be dominated. Honestly I don’t. And yet I find myself becoming angry when I’m not.
+ - Some people pretend to like capers, but the truth is that any dish that tastes good with capers in it tastes even better with capers not in it.
+ - When you have a baby, you set off an explosion in your marriage, and when the dust settles, your marriage is different from what it was. Not better, necessarily; not worse, necessarily; but different.
+ - Insane people are always sure that they are fine. It is only the sane people who are willing to admit that they are crazy.
+ - It’s always hard to remember love – years pass and you say to yourself, Was I really in love, or was I just kidding myself? Was I really in love, or was I just pretending he was the man of my dreams? Was I really in love, or was I just desperate?
+ - Beware of men who cry. It’s true that men who cry are sensitive to and in touch with feelings, but the only feelings they tend to be sensitive to and in touch with are their own.
+ - Summer bachelors, like summer breezes, are never as cool as they pretend to be.
+ - The Wonderbra is not a step forward for women. Nothing that hurts that much is a step forward for women.
+ - I actually believe in denial.
+ - The image of the journalist as wallflower at the orgy has been replaced by the journalist as the life of the party.
+ - Black makes your life so much simpler. Everything matches black, especially black.
+ - Marriages come and go, but divorce is forever.
+ - If your husband is cheating on you with a carhop, get Meryl Streep to play you. You’ll feel much better.
+ - Sometimes I believe that some people are better at love than others, and sometimes I believe that everyone is faking it.
+ - You can’t call yourself a feminist if you don’t believe in the right to abortion.
+ - There are plenty of men who philander during the summer, to be sure, but they are usually the same lot who philander during the winter – albeit with less convenience.
+ - A man who finishes a book is always alone when he finishes it...
+ - Food became, for dinner parties in the sixties, what abstract expressionism had been in the fifties.
+ - To state the obvious, romantic comedies have to be funny and they have to be romantic. But one of the most important things, for me anyway, is that they be about two strong people finding their way to love.
+ - The big cities of America are becoming Third World countries.
+ - American society has a remarkable ability to resist change, or to take whatever change has taken place and attempt to make it go away.
+ - Getting older means you don’t have to shave your legs anymore.
+ - One of the few advantages to not being beautiful is that one usually gets better-looking as one gets older. I am, in fact, at this very moment gaining my looks.
+ - You enter into a certain amount of madness when you marry a person with pets.
+ - What I love about cooking is that after a hard day, there is something comforting about the fact that if you melt butter and add flour and then hot stock, it will get thick!
+ - Maintenance is what you have to do just so you can walk out the door knowing that if you go to the market and bump into a guy who once rejected you, you won’t have to hide behind a stack of canned food. I don’t mean to be too literal about this.
+ - Suddenly, one day, there was this thing called parenting. Parenting was serious. Parenting was fierce. Parenting was solemn. Parenting was a participle, like going and doing and crusading and worrying.
+ - What failure ofimagination had caused me to forget that life was full of other possiblities, including the possibility that eventually I would fall in love again?
+ - Too few journalists become screenwriters. I say to all the would-be screenwriters: Become journalists. And I’ll say to working journalists: Do not stay journalists. Become screenwriters.
+ - Parenting meant that whether or not your children understood you, your obligation was to understand them.
+ - The last four years of psychoanalysis are a waste of money.
+ - These days most women have jobs that last way too long. A lot of people in New York barely have time to get laid.
+ - What will happen to sex after liberation? Frankly, I don’t know. It is a great mystery to all of us.
+ - Most of us live our lives devoid of cinematic moments.
+ - It had better be quirky or perverse or thoughtful enough so that you hit some chord in them. I mean we’ve all read pieces where we thought, ‘Oh, who gives a damn.’
+ - Plastic surgery is one of the ways that people deal with the aging process. And I don’t mean by using it as a form of denial, but as a kind of negotiation with it.
+ - I am continually fascinated at the difficulty intelligent people have in distinguishing what is controversial from what is merely offensive.
+ - We all look good for our age. Except for our necks.
+ - In the way that women forget the pain of childbirth, men forget that they cry in movies.
+ - One of the great things about movies is that it’s just that short period of time. It’s a bubble. The last thing you want to know is that Elizabeth and Darcy had a fight over how to treat the servants!
+ - As far as the men who are running for president are concerned, they aren’t even people I would date.
+ - With any child entering adolescence, one hunts for signs of health, is desperate for the smallest indication that the child’s problems will never be important enough for a television movie.
+ - If Sigmund Freud had watched Phil Donahue he would never have wondered what women want.
+ - Success comes and goes. Your flops stay with you for life.
+ - I am not a new journalist, whatever that is. I just sit here at the typewriter and bang away at the old forms.
+ - When you’re attracted to someone, it just means that your subconscious is attracted to their subconscious, subconsciously. So what we think of as fate is just two neuroses knowing that they are a perfect match. – Sleepless in Seattle.
+ - It’s always a shock to the people who run studios when a movie that is for women is a hit. They have an infinite capacity to be shocked.
+ - I try to write parts for women that are as complicated and interesting as women actually are.
+ - My mother was a good recreational cook, but what she basically believed about cooking was that if you worked hard and prospered, someone else would do it for you.
+ - Let’s face it: part of being a grownup is that every day you have to choose between going out at night or staying home, and it is one of life’s unhappy truths that there is not enough time to do both.
+ - I look as young as a person can look given how old I am.
+ - Journalists are interesting. They just aren’t as interesting as the things they cover.
+ - The Senior Moment has become the Google moment, and it has a much nicer, hipper, younger, more contemporary sound, doesn’t it? By handling the obligations of the search mechanism, you almost prove you can keep up.
+ - I’m very much a believer in knowing what it is that you love doing so you can do a great deal of it.
+ - I’m really not interested in women as victims. Look at me, I get the last laugh ’cause I get to be funny about it.
+ - My mother wanted us to understand that the tragedies of your life one day have the potential to be comic stories the next.
+ - I don’t write a word of the article until I have the lead. It just sets the whole tone – the whole point of view. I know exactly where I’m going as soon as I have the lead.
+ - I’ve always felt that one of the mistakes people make is that they try to do something that is just slightly beyond their skill set, and then feel they’ve failed.
+ - You can’t meet someone until you become what you’re becoming.
+ - I don’t know why so much nonsense about age is written – although I can certainly understand that no one really wants to read anything that says aging sucks.
+ - You don’t really have to believe what you write in a blog for more than the moment when you’re writing it. You don’t bring the same solemnity that you would bring to an actual essay.
+ - If you’re looking for monogamy, you’d better marry a swan.
+ - That’s another thing about being a certain age that I’ve noticed: I try as much as possible not to look in the mirror.
+ - Look at the parts the Oscar-nominated actresses played this year: hooker, hooker, hooker, hooker, and nun.
+ - Whenever I get married, I start buying Gourmet magazine.
+ - One of the best things about directing movies, as opposed to merely writing them, is that there’s no confusion about who’s to blame: You are.
+ - You’re born, you die. Everything in between is subject to interpretation.
+ - I married him against all evidence. I married him believing that marriage doesn’t work, that love dies, that passion fades, and in so doing I became the kind of romantic only a cynic is truly capable of being.
+ - People have only one way to be.
+
+125 quotes

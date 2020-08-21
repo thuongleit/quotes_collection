@@ -1,0 +1,42 @@
+ - Only unfulfilled love can be romantic.
+ - You don’t need a man, you need a champion.
+ - Age has no reality except in the physical world. The essence of a human being is resistant to the passage of time.
+ - Many people out there don’t have a choice, in choosing their friends and the people they’re being manipulated by.
+ - When I was born, there was a very isolated idea of what it meant to be a man or a woman, and you belonged to one gender or the other.
+ - I think we are living in selfish times. I’m the first one to say that I’m the most selfish. We live in the so-called ‘first world,’ and we may be first in a lot of things like technology, but we are behind in empathy.
+ - When I see myself at 14 years old I can put my hands on my head and think: ‘How could I have done that?’ but at that time it had sense for me. You do the same when you’re 20. And now, when you look at people who are 20 years old you ask yourself: ‘Was I like that? Was I really like that?’
+ - I used to be a good party boy. I’m old. I’m an old man. You pay the consequences. I’m just fine with a couple of drinks, no more than that.
+ - I think the most difficult love begins with one’s self. How you treat yourself is something you bring to your relationships.
+ - My first part was in a film where I played a sadomasochist who killed people and created fun orgies. I’m a method actor. I went to every orgy in the world.
+ - I have a man and a woman in the same body; I have the male and female values in the same body.
+ - I hate violence. When I hold a gun, I feel death in my hands, but it’s fun to pretend in the movies.
+ - People have been born in refugee camps and they are getting tired of that.
+ - The only thing I can do is act, but it’s not something I even feel comfortable doing. It costs me a lot, because I’m a shy person, even if I don’t look it.
+ - I wanted to become a painter for a while. I think it was because I was lazy.
+ - Everybody in Spain is sick of me. But in America, there’s curiosity about the new kid on the block who doesn’t speak English very well. The attention makes me feel vulnerable, which is something I hadn’t felt in a while. But I like it.
+ - I look at myself, and I see a Spanish person who’s trying to be understood by an English-speaking audience and is putting a lot of energy into that, instead of into expressing himself freely and feeling comfortable.
+ - I want to act because I don’t know how to do anything else.
+ - There is no middle ground in Hollywood, you’re a failure or you’re a success. That mentality is wild.
+ - I truly don’t have any formula for the choices I make.
+ - You shall love. Whether you like it or not.
+ - All of the good movies are based on how that story was told. And you cannot do it with a bad script, that’s for sure, no matter who.
+ - I can’t imagine what it would be like being James Bond 24 hours. That must be exhausting.
+ - I enjoy my job as long as I can create a character, otherwise it’s boring.
+ - I was raised not to be afraid to show emotion or imagination.
+ - Awards were made in Hollywood, in whatever the time it was created. They’re to promote each other’s movies. You give me an award, I give you an award and people will believe that we are great movies and they’ll go to see them. It’s still the same.
+ - We actors always say how difficult and physically demanding a role was. But give me a break, it’s only a movie.
+ - Now, there are so many movies, so many festivals, and so many awards going on, each judged with each other, like your work is worse than others and that’s not fair. How can you tell what’s best and what’s worst from these awards? We’re talking about art.
+ - But I remember the moment when my father died. I wasn’t a very committed Catholic beforehand, but when that happened it suddenly all felt so obvious: I now believe religion is our attempt to find an explanation, for us to feel more protected.
+ - I’m a great believer in stunt doubles. They do an amazing job.
+ - As an actor, you can’t judge. A great actress from Spain said, “We, the actors, are lawyers of the characters we play. We have to defend them, no matter what.”
+ - I’ve always belonged to the street, and I always will. It’s in my DNA.
+ - I have this problem with violence. I’ve only done one movie in almost 20 years where I killed people. It’s called Perdita Durango. It’s a Spanish movie. I’m very proud of the movie, but I felt weird doing that.
+ - When you’re working with the best, it helps you to be good because then you are focusing on what you have to do.
+ - This great imperialistic world called the United States has made us believe that an Oscar is the most important thing in the world for an actor. But if you think about it for five minutes you realise it cant be.
+ - Celebrity is very weird.
+ - I will work with a director who has good material because at the end of the day, that’s what counts.
+ - We live in the moment now where this whole movie business is crazy.
+ - I live in Spain. Oscars are something that are on TV Sunday night. Basically, very late at night. You don’t watch, you just read the news after who won or who lost.
+ - There is no good side to celebrity.
+
+40 quotes

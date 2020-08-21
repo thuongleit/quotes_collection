@@ -1,0 +1,206 @@
+ - It’s never too late – never too late to start over, never too late to be happy.
+ - Stay curious, keep learning and keep growing. And always strive to be more interested than interesting.
+ - It’s better to be interested than interesting.
+ - The secret of losing weight is patience.
+ - We are not meant to be perfect; we are meant to be whole.
+ - When I’m in Canada, I feel this is what the world should be like.
+ - Revolution is an act of love; we are the children of revolution, born to be rebels. It runs in our blood.
+ - Relationships are the oxygen of the psyche.
+ - Prostitutes are the inevitable product of a society that places ultimate importance on money, possessions, and competition.
+ - Perfection is a toxic desire. We are not supposed to be perfect. The challenge is not to be perfect, it’s to be whole.
+ - Good enough is good enough. We’re not supposed to be perfect. We’re supposed to be complete.
+ - I don’t think there’s anything more important than making peace before it’s too late. And it almost always falls to the child to try to move toward the parent.
+ - When food becomes the enemy, every time we lose the fight we not only gain weight, but lose our self-esteem as well.
+ - My greatest asset is that I am constantly changing.
+ - Instead of drifting along like a leaf in a river, understand who you are and how you come across to people and what kind of an impact you have on the people around you and the community around you and the world, so that when you go out, you can feel you have made a positive difference.
+ - Christ was the first feminist and because of that I’ve learned from his teaching to call myself a Christian feminist, adding that her faith is not a matter of traditions and dogmas but, rather, a spiritual experience.
+ - When you can’t remember why you’re hurt, that’s when you’re healed. When you have to work real hard to re-create the pain, and you can’t quite get there, that’s when you’re better.
+ - We cannot always control our thoughts, but we can control our words, and repetition impresses the subconscious, and we are then master of the situation.
+ - Someone once said that under the bell jar of compliance, the only thing that blooms is rage.
+ - I spent a good deal of time going back over my childhood, my midlife, to try to understand who I was. We’re supposed to be complete and whole, and you can’t be whole if you’re trying to be perfect. Doing a life review helped me get over the disease to please.
+ - When you can’t remember why you’re hurt, that’s when you’re healed.
+ - Declare a truce and accept food as a life-giving friend.
+ - Whatever kind of workout you settle on, it should include the Big Three of exercise for health and fitness-aerobics, resistance exercises, and stretching.
+ - The people who did you wrong or who didn’t quite know how to show up, you forgive them. And forgiving them allows you to forgive yourself too.
+ - We need women friends, women who challenge us. I have chosen not to have any more plastic surgery. Sally Field and I have kind of made a pact about that. It’s really hard, especially if you’re a public person. But I want to give a face to aging.
+ - If you allow yourself, you can become stronger in the very places that you’ve been broken.
+ - You can do one of two things; just shut up, which is something I don’t find easy, or learn an awful lot very fast, which is what I tried to do.
+ - As is my way, when I start something that I’ve put off doing, I always start with the hardest form. So I started with Ashtanga.
+ - My life is a stairway to heaven, not a ’decline into decrepitude.
+ - I feel like my honesty gives people the freedom to talk about things they wouldn’t otherwise.
+ - But the whole point of liberation is that you get out. Restructure your life. Act by yourself.
+ - It is never too late to master your weaknesses.
+ - The more you treat yourself positively, the less you’ll want or need to be negative.
+ - Denial can be a pathology or a survival mechanism – and sometimes it’s both.
+ - Enjoyable does not necessarily mean easy.
+ - Ultimately we must concern ourselves with pulling out by its roots the decadence that controls our culture, the profit motive that controls our culture.
+ - When I say women are the agents of change, I really should say women and girls.
+ - I finally got it: empower girls and everything changes.
+ - You know, you’re only as happy as your least happy child. So if your kids aren’t okay, you’re not good.
+ - Well, what is a relationship? It’s about two people having tremendous weaknesses and vulnerabilities, like we all do, and one person being able to strengthen the other in their areas of vulnerability, and vice versa. You need each other. You complete each other, passion and romance aside.
+ - The bond between a parent and child is the primary bond, the foundation for the rest of the child’s life. The presence or absence of this bond determines much about the child’s resiliency and what kind of adult they will grow up to be.
+ - If adolescent pregnancy prevention is to become a priority, then our strategy, as advocates, must contain two key elements: civic engagement and education.
+ - Men fear that becoming ‘we’ will erase his ‘I.’ For women, our ‘we’ is our saving grace Women’s relationships are like a renewable source of power.
+ - I remember saying goodbye to my father the night he left to join the Navy. He didn’t have to. He was older than other servicemen and had a family to support but he wanted to be a part of the fight against fascism, not just make movies about it. I admired this about him.
+ - I have a confidence about my life that comes from standing tall on my own two feet.
+ - It’s about time we make the well-being of our young people more important than ideology and politics. As a country, we benefit from investing in their future by investing in teen pregnancy prevention.
+ - We can no longer waste time and money. Every day, more than 2,000 girls in America, age 15-19, give birth – in the wealthiest, most educated nation in the world! Neither you nor I should accept this statistic.
+ - You can do yoga and be thinking about going shopping. The goal is kind of like meditation, is to be totally present in your body in the moment. That’s when the most profound effects of yoga can happen. That’s what I urge people to try to do. It’s very important to be in your body.
+ - Get over the feeling that the two words don’t go together – women and power. The fact is, if we don’t put the two together and don’t understand how power changes complexion in the hands of women, then we’re not going to make it. We have to own our personal power.
+ - People think actresses find public speaking easy, and it’s not easy at all; we’re used to hiding behind masks.
+ - Women don’t make the decisions in the media. Even if you see women on camera, they have to answer to the person upstairs, which is mostly men. Women only hold 3% of the decision-making offices in the media.
+ - I believe people have different ways of approaching the Word. For me, it’s metaphor, written by people a long time after Christ died and interpreted by specific groups. I read the gospels that aren’t included in the Bible. These make me feel good about calling myself a Christian.
+ - Magazines, books, novels, TV, internet, movies – all of those things is what creates our consciousness.
+ - Go for the burn! Sweat!
+ - A good many dramatic situations begin with screaming.
+ - Through therapy and a lot of thinking and writing my memoirs, I’ve been able to use my life as a lesson.
+ - You cannot expect your children to be happy eating esoteric beige-colored foods when their friends get soda pop, Snickers, and Twinkies.
+ - Children born to teens have less supportive and stimulating environments, poorer health, lower cognitive development, and worse educational outcomes. Children of teen mothers are at increased risk of being in foster care and becoming teen parents themselves, thereby repeating the cycle.
+ - You don’t learn from successes; you don’t learn from awards; you don’t learn from celebrity; you only learn from wounds and scars and mistakes and failures. And that’s the truth.
+ - I’m an assistant storyteller. It’s like being a waiter or a gas-station attendant, but I’m waiting on six million people a week, if I’m lucky.
+ - Some people are surprised that the Republicans are waging a war on women, or that they voted against equal pay for women. I’m not surprised at all. In some ways, it may be a good thing. They’re defending the patriarchy, which is a wounded beast! And wounded beasts are always dangerous.
+ - Shortly after I turned 50, both Ted Turner and the AARP came into my life. The only difference? With AARP, there were benefits.
+ - I knew that my newfound activism and feminism was going to improve my acting, because I was seeing things not just in very narrow, individual, kind of Freudian terms, but seeing them in a much broader, societal way that was going to deepen and enrich my talent.
+ - Pay more attention to losing inches than losing pounds.
+ - I think the Internet and technology in general has changed everything. We can see it overseas even more with the Arab Spring and so forth.
+ - Women are not forgiven for aging. Robert Redford’s lines of distinction are my old-age wrinkles.
+ - Almost 100 years after women secured the right to vote in 1920 through the 19th Amendment, we still do not have equal rights under the Constitution. My question for the GOP candidates: Do you support the Equal Rights Amendment?
+ - A man has every season while a woman only has the right to spring.
+ - I am not a do-gooder. I am a revolutionary. A revolutionary woman.
+ - Look what scares you in the face and try to understand it. Empathy is revolutionary.
+ - I never would’ve imagined in the first part of my life that I could’ve stood up and said anything. The war in Vietnam changed me. I was so angry. Some of my speeches probably weren’t well considered.
+ - I’m vain. My arms are thin, but I’m vain about loose flesh. And so I’m careful that what I wear will show off my best parts, which are my waist and my butt.
+ - I’ll smoke pot every now and then. I cannot see a movie on pot. The number of movies I’ve seen thinking, ‘This is probably the best I have ever seen,’ and then I’ll see it again and think, ‘What was I thinking?’
+ - The glow and energy of the healthy woman is the ultimate beauty, the only beauty that will last.
+ - Eat only when you are hungry-not because it is one o’clock or seven o’clock or whatever.
+ - If the career you have chosen has some unexpected inconvenience, console yourself by reflecting that no career is without them.
+ - Consistency can be a trap, especially if it leads to being consistently wrong rather than to stopping, admitting your mistake, and changing course.
+ - My position on the POW issue has been widely misquoted and taken out of context. What I originally said and have continued to say is that the POW’s are lying if they assert it was North Vietnamese policy to torture American Prisoners.
+ - Working in Hollywood does give one a certain expertise in the field of prostitution.
+ - We are living on average today 34 years longer than our great-grandparents did.
+ - Adult women, all of us, have to come to grips with how we have been affected by gender norms, and how we have been silenced. We have to help our daughters. Understanding it within ourselves and helping our young girls stand up for themselves is one way.
+ - Just saw American Sniper. Powerful. Another view of Coming Home. Bradley Cooper sensational. Bravo Clint Eastwood.
+ - I’m a very brave person. I can go to North Vietnam, I can challenge my government, but I can’t challenge the man I’m with if means I’m going to end up alone.
+ - My childhood was influenced by the roles my father played in his movies. Whether Abraham Lincoln or Tom Joad in the ‘Grapes of Wrath,’ his characters communicated certain values which I try to carry with me to this day.
+ - I don’t want my wrinkles taken away – I don’t want to look like everyone else.
+ - The woman who respects the needs of her body will junk the junk food.
+ - When a child enters the world through you, it alters everything on a psychic, psychological and purely practical level.
+ - I am able to talk about my life in a way that helps other women – and men, but mostly women – understand their own life. I feel real proud of that.
+ - I hate to create cynicism about politicians. We just need to invade. Regular people need to run for office and keep their balls and ovaries intact.
+ - I was in my mid-40s. I was a bulimic, and I realized if I continue with this addiction of mine, I will not be able to continue doing my life. The older you get the more damage it does; it takes longer to recover from a binge. And it was very hard.
+ - I left acting for 15 years, and I think it’s really nice to have another life. I took too much for granted when I was younger. I didn’t really want to be an actor. I didn’t really love it. And so I made a lot of mistakes. Oddly, I care much more about it now. I feel like a complete novice.
+ - I vowed I wouldn’t get married until someone gave me one good reason to. No one ever did – but I got married anyway.
+ - Women are not forgiven for ageing.
+ - A big mirror to exercise in front of is essential.
+ - I don’t like the word ‘calculated’ because it sounds pejorative. Intentional. Intentional is better, I think. Wild in passion and intentional in expression.
+ - Being Henry Fonda’s daughter got me started. But it didn’t keep me working.
+ - Women are rising. It’s going to get harder before it gets easier, but we can do it if we realize that we have the power. Women will always be the leaders of change.
+ - The most incredible beauty and the most satisfying way of life come from affirming your own uniqueness.
+ - Food is more than a matter of taste-it is the fuel for our bodies.
+ - The bravest soldiers aren’t unafraid, but they’re the ones who are able to harness their fear on behalf of courage.
+ - The skin is our body’s envelope, the wrapping that delivers us to the world. If we understand how the skin functions in mid-life and adjust goals and life-styles appropriately, we’ll be surprised how much better we can look.
+ - When I left the West Coast I was a liberal. When I landed in New York I was a revolutionary.
+ - I’m not sure that I would have become a Christian if I had continued to live in Hollywood because the notion wouldn’t have occurred to me.
+ - Think about it: Reducing crime and poverty and ensuring that we have an educated, stable work force has a direct effect on you and me and the future of our country.
+ - While not impossible, it is especially challenging for teenage parents to develop bonds with their children. A high percent of them were themselves children of teenage parents and have never experienced appropriate parenting.
+ - The news is not gender-neutral, but it’s usually reported as though it’s gender-neutral.
+ - I feel like when I was an adolescent, and felt so unworthy of love and so empty, I moved outside of myself.
+ - Winning means some kind of approval of the Establishment which means people will more readily accept me, may be less frightened of me and other people who speak out.
+ - When women have reclaimed their voices and men reclaimed their hearts, we won’t be invading countries, we won’t be feeling that we have the right to launch preemptive wars.
+ - Reproductive freedom is a real danger for the patriarchy, because it means that women are empowered.
+ - Beware of men who use words that relate pejoratively to females when describing the ’other side.
+ - Exercise teaches you the pleasure of discipline.
+ - Emotionality is really easy for me. My father always said that Fondas can cry at a good steak.
+ - Drink water between meals instead of with them so that the digestive juices will not be diluted.
+ - The absolute minimum for effective exercise is three times a week on alternate days for at least half an hour.
+ - Ted needs someone to be there 100% of the time. He thinks that’s love. It’s not love – it’s babysitting.
+ - Most of us want to be strong, but we are not.
+ - Physical fitness is a three-legged stool: strength, aerobic capacity, and flexibility.
+ - As I started getting older, I realized, ‘I’m so happy!’ I didn’t expect this! I wasn’t happy when I was young.
+ - I am convinced that we become what we do.
+ - I’d like to think that I have integrity.
+ - Teach girls to read and to work at something where they can bring home money – and the entire balance of power shifts.
+ - You must decrease the amount of food you eat and increase the amount of exercise you get. That is all there is to it.
+ - That’s what we’re all doing: paving the way, finding the roles that have the complication instead of the one that’s always got it together or the dedicated housewife or the wild one who smokes cigarettes and sleeps with anybody.
+ - So much conspires to silence us – because our truths are inherently subversive.
+ - I always carry yeast flakes and bran with me when I travel.
+ - I never was a hippie! I went to India because so many friends like Mia Farrow and the Beatles were going there to discover truth. And so I went and trekked through India by myself, but instead of discovering truth, I wanted to join the Peace Corps.
+ - We’re still living with the old paradigm of age as an arch. That’s the old metaphor: You’re born, you peak at midlife and decline into decrepitude.
+ - When you know in your heart why you did something, and you feel and you know that in spite of all the controversy that it was right, doesn’t matter.
+ - This toxic striving for perfection is a female thing. How many men obsess about being perfect? For men, generally, good enough is good enough.
+ - Getting fit is a political act – you are taking charge of your life.
+ - My identity depended on men for so long. You can be successful and still have the feeling that if you’re not with a man you don’t exist.
+ - You spend all your life trying to do something they put people in asylums for.
+ - The institution of marriage is obsolete.
+ - I find that arduous physical labor can jump-start my thought process.
+ - I don’t think it’s natural for two people to swear to be together for the rest of their lives.
+ - I love films that make you feel good when you come out and, in my opinion, there’s not enough of them these days.
+ - When I was in my 40s was I simply produced my own movies because no one offered me anything. But certainly after 50 it’s hard for a woman, which is why television is such a welcoming thing.
+ - In my marriages, I’d lost parts of who I was because I was trying to mold myself into what I thought a man wanted me to be.
+ - Telling lies and showing off to get attention are mistakes I made that I don’t want my kids to make.
+ - I like to be wild in passion and calculated in expression! I’m both. I like to be wild in passion more. But I think the balance is what’s essential.
+ - Female listeners are leaving traditional talk radio because of the rough-edged, shouting nature of it. Women want more light and less heat.
+ - I’ve been accused of being too flexible, too willing to mold myself to men, and that’s something I’m constantly working on.
+ - My mother killed herself when I was 12. I won’t complete that relationship. But I can try to understand her.
+ - I was so devastated by my second divorce that I had a nervous breakdown.
+ - I don’t want to die without knowing who I am.
+ - We cannot elect men to office who are afraid of premature evacuation.
+ - Address things now that could otherwise turn into regrets.
+ - Parents are supposed to give the child back to herself with love. If they’ve got duct tape over their eyes because of narcissism, it doesn’t happen.
+ - There are no shortcuts and no sweatless quickies.
+ - All my life I had believed that unless I was perfect I would not be loved.
+ - I see many more men who are feminist, or at least who have learned about life in the context of feminism.
+ - A mother who is obsessing about being thin and dieting and exercising is not going to be a very good mother.
+ - Namby-pamby little routines that don’t speed up your heartbeat and make you sweat aren’t worth your while.
+ - An exercise outfit helps because it sets this time apart from the rest of your day and makes it matter more.
+ - I think what’s happening in the world – there’s nothing more dangerous than a wounded beast, and the patriarchy is wounded.
+ - I know how gratifying it is not only to work in film but to be acknowledged by peers; producing ‘9 to 5’ was an opportunity that I valued precisely because it’s so rarely in the hands of women.
+ - The harder you work out, the more you should stretch.
+ - Our youth deserve the opportunity to complete their high school and college education, free of early parenthood. Their future children deserve the opportunity to grow up in financially and emotionally stable homes. Our communities benefit from healthy, productive, well-prepared young people.
+ - When you’re told to be good, you have to get rid of whatever is bad. I sure identify with that.
+ - One part of wisdom is knowing what you don’t need anymore and letting it go.
+ - Every woman should eat for the long run so she can manage the short stops of crisis.
+ - If you’re ever in a situation where you’re not getting served or you can’t get what you need, just cry.
+ - I confess. If the law had been appiled to me properly for what I did in Vietnam, I’d have been convicted for high treason.
+ - Movies are collective, cooperative endeavours, which I like a lot. But writing is all up to you, it’s what’s so scary; it’s just you and that page. But I really like it a lot.
+ - To be a revolutionary you have to be a human being. You have to care about people who have no power.
+ - We’ve got to establish a socialistic economic structure that will limit private, profit-oriented businesses.
+ - The capacity of young people to persevere, even under the most adverse conditions, never ceases to amaze me.
+ - Our young people are assets to be cultivated and nurtured; let’s begin treating them that way.
+ - Find the balance between the calories you take in and the ones you burn up.
+ - When you think you can’t do any more repetitions, do two more.
+ - I’ve worked really, really hard on myself to not be judgmental.
+ - I like playing that character who brings love to people, who puts people in a place where they’re apt to encounter love.
+ - I think the entire world is going to be united against us.
+ - During my first few weeks in Hollywood, I was told that Jack Warner, the head of the studio, did not believe that a small-breasted woman could become a star.
+ - Seek women mentors. If you’re a businesswoman, look at the TEDx conferences. There’s a lot of businesswomen that speak on there. I find them extremely inspiring.
+ - If you can intervene early in the lives of girls here and in other parts of the world, you can begin to change the prospects for the future.
+ - In this age of remote-controlled pushbutton war, we must all try very, very hard to remain human beings.
+ - We don’t need to be perfect. We’re not supposed to be perfect; we’re supposed to be complete. And you can’t be complete if you’re trying to be perfect.
+ - Mostly actors are progressive because we are accustomed to all the nuances of human life, whereas dictators just try to flatten it all out. So we usually try to stand up to dictators like, well, we won’t mention names.
+ - We all, in fact, carry so many people inside us; the only difference is that actors get paid for it, and we sort of spruce it up a bit.
+ - A lot of things affect women differently than men, and women get left out.
+ - How would you like to have a father who keeps getting younger looking every year? Do you realize what that can do to a woman?
+ - I always had a penchant for falling in love. Every time I found myself without a mate, I fell into a state of low-sizzling panic.
+ - Good physical condition is protection. Our strength comes from our body.
+ - No distractions. Center yourself. This is your time.
+ - The reality is sobering: in the United States one in three girls will become pregnant before age 20, totaling more than 750,000 girls per year.
+ - Everyone should know that feeling of overcoming fear and mastering something. People who aren’t taught that become soggy.
+ - In this country, the only way a minority can get anything done is to make a little noise.
+ - You can run the office without a boss, but you can’t run an office without secretaries.
+ - I lived in France during the ’60s. I was there from the early ’60s until 1970, so my view of the ’60s is more global. It was a time of tremendous transition, not only for America but for the whole world.
+ - I wasn’t a hippie and I wasn’t even a bohemian. I was extremely earnest and serious.
+ - The vulnerability of opening your heart fully and deeply to another is terrifying, but at a point in my 50s, I realized that I had to step up to the plate.
+ - I found that you’re more powerful when talking from your soul.
+ - Women are rising. And I think that’s all the violence and war – it could be the last gasp of the patriarchy, actually.
+ - In spite of the incident, my experience in Kansas City was wonderful and I thank all the warm and supportive people, including so many veterans, who came to welcome me last night.
+ - I was raised in the ’50s. I was taught by my father that how I looked was all that mattered.
+ - I grew up with a deep belief that wherever our troops fought, they were on the side of the angels.
+ - Your goal should be to take your body and make it as healthy, strong, flexible and well-proportioned as you can.
+ - It’s hard for women at my age in Hollywood, but I’m not discouraged.
+ - If I can change, anybody can change.
+ - Refuse to be afraid that we will no longer be considered attractive and acceptable when we are strong.
+ - When I was at the age when you were supposed to be glamorous if you were a movie star, I wasn’t.
+ - One of the wonderful things about being an actor is that every director is different.
+
+204 quotes

@@ -1,0 +1,502 @@
+ - The greatest leader is not necessarily the one who does the greatest things. He is the one that gets the people to do the greatest things.
+ - There is no limit to the amount of good you can do if you don't care who gets the credit.
+ - We can’t help everyone, but everyone can help someone.
+ - Live simply, love generously, care deeply, speak kindly, leave the rest to God.
+ - America is too great for small dreams.
+ - If you're explaining, you're losing.
+ - When you can't make them see the light, make them feel the heat.
+ - Freedom is never more than one generation away from extinction. We didn't pass it to our children in the bloodstream. It must be fought for, protected, and handed on for them to do the same.
+ - If not us, who? And if not now, when?
+ - The future doesn't belong to the lighthearted. It belongs to the brave.
+ - Money can’t buy happiness, but it will certainly get you a better class of memories.
+ - Peace is not absence of conflict, it is the ability to handle conflict by peaceful means.
+ - How do you tell a communist? Well, it’s someone who reads Marx and Lenin. And how do you tell an anti-communist? It’s someone who understands Marx and Lenin.
+ - By working together, pooling our resources and building on our strengths, we can accomplish great things.
+ - Doverey, no proverey – Trust but verify.
+ - Government's view of the economy could be summed up in a few short phrases: If it moves, tax it. If it keeps moving, regulate it. And if it stops moving, subsidize it.
+ - There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect.
+ - If you think you can – you can!
+ - America is, and always will be, a shining city on a hill.
+ - Evil is powerless if the good are unafraid.
+ - Self-defense is not only our right; it is our duty.
+ - I've heard that hard work never killed anyone, but I say why take the chance?
+ - Heroes may not be braver than anyone else. They're just braver 5 minutes longer.
+ - Wherever a beautiful soul has been there is a trail of beautiful memories...
+ - The price of freedom may be high, but never so costly as the loss of freedom.
+ - Peace is more than just an absence of war. True peace is justice, true peace is freedom, and true peace dictates the recognition of human rights.
+ - Freedom is never more than one generation away from extinction.
+ - There is no greater happiness for a man than approaching a door at the end of a day knowing someone on the other side of that door is waiting for the sound of his footsteps.
+ - If we ever forget that we are One Nation Under God, then we will be a nation gone under.
+ - As government expands, liberty contracts.
+ - Within the covers of the Bible are the answers for all the problems men face.
+ - To sit back hoping that someday, someway, someone will make things right is to go on feeding the crocodile, hoping he will eat you last - but eat you he will.
+ - Respect for human rights is not social work; it is not merely an act of compassion. It is the first obligation of government and the source of its legitimacy.
+ - I’ll be like Scarlett O’Hara-I’ll think about it tomorrow.
+ - It has been said that politics is the second oldest profession. I have learned that it bears a striking resemblance to the first.
+ - The most terrifying words in the English language are: I’m from the government and I’m here to help.
+ - Stick to your dreams and determine that you’re going to make them come true.
+ - I believe the best social program is a job.
+ - With freedom comes responsibility, a responsibility that can only be met by the individual.
+ - Above all, we must realize that no arsenal, or no weapon in the arsenals of the world, is so formidable as the will and moral courage of free men and women. It is a weapon our adversaries in today's world do not have.
+ - The arts and humanities teach us who we are and what we can be. They lie at the very core of the culture of which we’re a part.
+ - Every new day begins with possibilities.
+ - Politics is not a bad profession. If you succeed there are many rewards, if you disgrace yourself you can always write a book.
+ - Government exists to protect us from each other. Where government has gone beyond its limits is in deciding to protect us from ourselves.
+ - Preservation of our environment is not a liberal or conservative challenge, it’s common sense.
+ - Let us thank God for life and the blessings He’s put before us. High among them are our families, our freedom, and the opportunities of a new year.
+ - A wife who loses a husband is called a widow. A husband who loses a wife is called a widower. A child who loses his parents is called an orphan. There is no word for a parent who loses a child. That’s how awful the loss is.
+ - We are forever indebted to those who have given their lives that we might be free.
+ - It’s hard, when you’re up to your armpits in alligators, to remember you came here to drain the swamp.
+ - Socialism only works in two places: Heaven where they don’t need it and hell where they already have it.
+ - I know in my heart that man is good. That what is right will always eventually triumph. And there’s purpose and worth to each and every life.
+ - May every day be a new beginning, and every dawn bring us closer to that shining city upon a hill.
+ - You on the cutting edge of technology have already made yesterday’s impossibilities the commonplace realities of today.
+ - Without a vision the people perish.
+ - Surround yourself with great people; delegate authority; get out of the way.
+ - There is no foundation like the rock of honesty and fairness, and when you begin to build your life on that rock, with the cement of the faith in God that you have, then you have a real start.
+ - The American dream is not that every man must be level with every other man. The American dream is that every man must be free to become whatever God intends he should become.
+ - A nation that cannot control its borders is not a nation.
+ - My philosophy of life is that if we make up our mind what we are going to make of our lives, then work hard toward that goal, we never lose – somehow we win out.
+ - Law and freedom must be indivisible partners. For without law, there can be no freedom, only choas and disorder; and without freedom, law is but a cynical veneer for injustice and oppression.
+ - Every new day begins with possibilities. It’s up to us to fill it with the things that move us toward progress and peace.
+ - The more the plans fail, the more the planners plan.
+ - If more government is the answer, then it was a really stupid question.
+ - I have left orders to be awakened at any time during national emergency, even if I'm in a cabinet meeting.
+ - Never let the things you can’t do, stop you from doing what you can.
+ - We have every right to dream heroic dreams.
+ - A socialist is someone who has read Lenin and Marx. An anti-socialist is someone who understands Lenin and Marx.
+ - The time has come to turn to God and reassert our trust in Him.
+ - You and I have the courage to say to our enemies, ‘There is a price we will not pay.’ There is a point beyond which they must not advance. This is the meaning of the phrase ‘Peace through strength.’
+ - I’ve noticed that everyone who is for abortion has already been born.
+ - Those who say that we’re in a time when there are no heroes, they just don’t know where to look.
+ - I do not want to go back to the past; I want to go back to the past way of facing the future.
+ - We’ve been blessed with the opportunity to stand for something – for liberty and freedom and fairness. And these are things worth fighting for, worth devoting our lives to.
+ - I’ve always believed that a lot of the trouble in the world would disappear if we were talking to each other instead of about each other.
+ - Too often character assassination has replaced debate in principle here in Washington. Destroy someone’s reputation, and you don’t have to talk about what he stands for.
+ - We desire peace. But peace is a goal, not a policy. Lasting peace is what we hope for at the end of our journey. It doesn’t describe the steps we must take nor the paths we should follow to reach that goal.
+ - Terrorism is the preferred weapon of weak and evil men.
+ - America’s best days are yet to come.
+ - America’s best days lie ahead. You ain’t seen nothing yet.
+ - Some people wonder all their lives if they’ve made a difference. The Marines don’t have that problem.
+ - God, the source of all knowledge, should never have been expelled from our children’s classrooms.
+ - All great change in America begins at the dinner table.
+ - If we miss this chance to make a fresh start, we may look back on this moment from some later vantage point and realize how much that failure cost us all.
+ - Man is not free unless government is limited.
+ - We stand together as we did two centuries ago, One people under God determined that our future shall be worthy of our past.
+ - To say Congress is spending like drunken sailors is an insult to drunken sailors.
+ - Democracy is not a fragile flower; still it needs cultivating.
+ - There are no great limits to growth because there are no limits of human intelligence, imagination, and wonder.
+ - Surround yourself with the best people you can find, delegate authority, and don’t interfere as long as the policy you’ve decided upon is being carried out.
+ - America was founded by people who believe that God was their rock of safety. I recognize we must be cautious in claiming that God is on our side, but I think it’s all right to keep asking if we’re on His side.
+ - The Founding Fathers believed that faith in God was the key to our being a good people and America’s becoming a great nation.
+ - My dream is to see the day when nuclear weapons will be banished from the face of the Earth.
+ - We are never defeated unless we give up on God.
+ - I’m no linguist, but I have been told that in the Russian language, there isn’t even a word for freedom.
+ - For the first time ever, everything is in place for the Battle of Armageddon and the Second Coming of Christ.
+ - The federal government did not create the states; the states created the federal government.
+ - The time has come to turn to God and reassert our trust in Him for the healing of America – our country is in need of and ready for a spiritual renewal.
+ - Cold, hungry, scared as hell inside, but too damn brave to admit it.
+ - Abortion is advocated only by persons who have themselves been born.
+ - Government is never more dangerous than when our desire to have it help us blinds us to its great power to harm us.
+ - Christopher Columbus was looking for a passage to India, but he landed in America. He landed in the wrong place, and when he got back, he wasn’t sure where he’d been. But most important of all, he did it on someone else’s money.
+ - There are no easy answers’ but there are simple answers. We must have the courage to do what we know is morally right.
+ - We maintain the peace through our strength; weakness only invites aggression.
+ - We must reject the idea that every time a law’s broken, society is guilty rather than the lawbreaker. It is time to restore the American precept that each individual is accountable for his actions.
+ - Life is one grand, sweet song, so start the music.
+ - Cars don’t cause pollution, trees do.
+ - We have the duty to protect the life of an unborn child.
+ - It isn’t so much that liberals are ignorant. It’s just that they know so many things that aren’t so.
+ - We can meet our destiny, and that destiny to build a land here that will be, for all mankind, a shining city on a hill.
+ - For too long, the victims of crime have been the forgotten persons of our criminal justice system.
+ - In a world wracked by hatred, economic crisis, and political tension, America remains mankind’s best hope.
+ - Love your country, not for her power or wealth, but for her selflessness and her idealism.
+ - If we lose freedom here, there is no place to escape to. This is the last stand on earth.
+ - The work of volunteer groups throughout our country represents the very heart and soul of America. They have helped make this the most compassionate, generous, and humane society that ever existed on the face of this earth.
+ - We still have too much air and water pollution and we still need to work to reduce it. But we also need to put the problem of pollution into a historical as well as scientific perspective...
+ - The trouble with our Liberal friends is not that they’re ignorant; it’s just that they know so much that isn’t so.
+ - Professional politicians like to talk about the value of experience in government. Nuts! The only experience you gain in politics is how to be political.
+ - I’ve often said there’s nothing better for the inside of a man than the outside of a horse.
+ - Only our deep moral values and our strong social institutions can hold back that jungle and restrain the darker impulses of human nature.
+ - Our loyalty lies with little taxpayers, not big spenders. What our critics really believe is that those in Washington know better how to spend your money than you, the people, do. But we’re not going to let them do it, period.
+ - Words are even more feeble on this Memorial Day, for the sight before us is that of a strong and good nation that stands in silence and remembers those who were loved and who, in return, loved their countrymen enough to die for them.
+ - Government’s first duty is to protect the people, not run their lives.
+ - We believe faith and freedom must be our guiding stars, for they show us truth, they make us brave, give us hope, and leave us wiser than we were.
+ - Mr. Gorbachev, tear down this wall!
+ - Our American tradition of neighbor helping neighbor has always been one of our greatest strengths and most noble traditions.
+ - Marijuana is probably the most dangerous drug in America today.
+ - I was raised to believe that God has a plan for everyone and that seemingly random twists of fate are all a part of His plan.
+ - If some among you fear taking a stand because you are afraid of reprisals from customers, clients, or even government, recognize that you are just feeding the crocodile hoping he’ll eat you last.
+ - Recession is when a neighbor loses his job. Depression is when you lose yours.
+ - I now have absolute proof that smoking even one marijuana cigarette is equal in brain damage to being on Bikini Island during an H-bomb blast.
+ - What would this country be without this great land of ours.
+ - The doors of this Library are open now and are all welcome. The judgment of history is left to you, the people. I have no fears of that, for we have done our best. And so I say, come and learn from it.
+ - You will be competing against athletes from many nations. But, most important, you are competing against yourself. All we expect is for you to do your very best, to push yourself just one second faster, one notch higher, one inch further.
+ - The person who agrees with you 80 percent of the time is a friend and an ally – not a 20 percent traitor.
+ - Before I refuse to take your questions, I have an opening statement.
+ - Work and family are at the center of our lives, the foundation of our dignity as a free people.
+ - If it’s to be a bloodbath, let it be now. Appeasement is not the answer.
+ - I wasn’t a great communicator, but I communicated great things.
+ - We’ve gone astray from first principles. We’ve lost sight of the rule that individual freedom and ingenuity are at the very core of everything that we’ve accomplished. Government’s first duty is to protect the people, not run their lives.
+ - Don’t be afraid to see what you see.
+ - Where free unions and collective bargaining are forbidden, freedom is lost.
+ - A nation’s greatness is measured not just by its gross national product or military power, but by the strength of its devotion to the principles and values that bind its people and define their character.
+ - The Founding Fathers knew a government can’t control the economy without controlling people. And they knew when a government sets out to do that it must use force and coercion to achieve its purpose.
+ - The true lesson of the Vietnam War is: certainty of purpose and ruthlessness of execution win wars.
+ - Good citizenship and defending democracy means living up to the ideals and values that make this country great.
+ - Entrepreneurs and their small enterprises are responsible for almost all the economic growth in the United States.
+ - The federal government has taken too much tax money from the people, too much authority from the states, and too much liberty with the Constitution.
+ - Eighty percent of air pollution comes from plants and trees.
+ - If history teaches us anything, it teaches that simple-minded appeasement or wishful thinking about our adversaries is folly.
+ - If you’ve seen one redwood tree, you’ve seen them all.
+ - I do not believe in a fate that will fall on us no matter what we do. I do believe in a fate that will fall on us if we do nothing.
+ - Government Steals from the needy and gives to the greedy.
+ - If you can’t summarize an issue on one page, you don’t understand the issue well enough.
+ - We meant to change a nation, and instead, we changed a world.
+ - There are some who’ve forgotten why we have a military. It’s not to promote war, it’s to be prepared for peace.
+ - All the waste in a year from a nuclear power plant can be stored under a desk.
+ - If it takes a bloodbath, let’s get it over with.
+ - The future is best decided by ballots, not bullets.
+ - I didn’t leave the Democratic party; the Democratic party left me.
+ - The signs of the Vietnam War protestors said “Make Love not War!” It didn’t seem to me that they were capable of either.
+ - Our liberties, our values, all for which America stands is safe today because brave men and women have been ready to face the fire at freedom’s front. And we thank God for them.
+ - Trust the people – that is the crucial lesson of history.
+ - Some years ago, the federal government declared war on poverty, and poverty won.
+ - Let us not forget who we are. Drug abuse is a repudiation of everything America is.
+ - The family has always been the cornerstone of American society. Our families nurture, preserve, and pass on to each succeeding generation the values we share and cherish, values that are the foundation of our freedoms.
+ - There is no security, no safety, in the appeasement of evil.
+ - The taxpayer – that’s someone who works for the federal government but doesn’t have to take the civil service examination.
+ - We will never recognize the true value of our own lives until we affirm the value in the life of others.
+ - The purpose of America is to unleash the full talent and genius of every individual.
+ - Perhaps we need some outside, universal threat to make us recognize this common bond. I occasionally think how quickly our differences worldwide would vanish if we were facing an alien threat from outside this world.
+ - We must have faith in the people of this country and faith in our principles.
+ - I hope we once again have reminded people that man is not free unless government is limited. There’s a clear cause and effect here that is as neat and predictable as a law of physics: As government expands, liberty contracts.
+ - I believe in a sound, strong environmental policy that protects the health of our people and a wise stewardship of our nation’s natural resources.
+ - When government gets too big, freedom is lost. Government is supposed to be the servant. But when a government can tax the people with no limit or restraint on what the government can take, then the government has become the master.
+ - We establish no religion in this country. We command no worship. We mandate no belief, nor will we ever. Church and state are and must remain separate.
+ - Some may try to tell us that this is the end of an era. But what they overlook is that in America, every day is a new beginning. For this is the land that has never become, but is always in the act of becoming.
+ - Are you better off now than you were four years ago?
+ - We could say they government spend like drunken sailors, but that would be unfair to drunken sailors, because the sailors are spending their own money.
+ - In America, our origins matter less than our destination, and that is what democracy is all about.
+ - Anybody from any corner of the world can come to America to live and become an American.
+ - No matter how big and powerful government gets, and the many services it provides, it can never take the place of volunteers.
+ - A nuclear war cannot be won and must never be fought. The only value in our two nations possessing nuclear weapons is to make sure they will never be used. But then would it not be better to do away with them entirely?
+ - Christmas is a holiday that we celebrate not as individuals nor as a nation, but as a human family.
+ - Detente – isn’t that what a farmer has with his turkey – until Thanksgiving?
+ - The very heart and soul of conservatism is libertarianism.
+ - Approximately 80% of our air pollution stems from hydrocarbons released by vegetation, so let’s not go overboard in setting and enforcing tough emission standards from man-made sources.
+ - Balancing your budget is like protecting your virtue. You have to learn when to say no.
+ - Together, we’ll build a far better future for America – a future of growth, opportunity, and security, anchored by the values of a people who are confident, compassionate, and whose heart is good.
+ - The best way to get over a dog’s death is to get another soon.
+ - The Soviet Union is the focus of evil in the modern world.
+ - Don’t let anyone tell you that America’s best days are behind her – that the American spirit has been vanquished. We’ve seen it triumph too often in our lives to stop believing in it now.
+ - When the Lord calls me home, whenever that may be, I will leave with the greatest love for this county of ours and eternal optimism for its future.
+ - One way to make sure crime doesn’t pay would be to let the government run it.
+ - If we listen to our hearts, believe in ourselves, and pull together, nothing can stand in our way.
+ - From my mother I learned the value of prayer, how to have dreams and believe I could make them come true.
+ - The best social program is a productive job for anyone who’s willing to work.
+ - My mother told me that everything in life happened for a purpose. She said all things were part of God’s plan, even the most disheartening setbacks, and in the end, everything worked out for the best.
+ - The Constitution was never meant to prevent people from praying, it’s declared purpose was to protect their freedom to pray.
+ - We’ve got to teach history based not on what’s in fashion, but what’s important.
+ - Perhaps no custom reveals our character as a Nation so clearly as our celebration of Thanksgiving Day.
+ - America is the moral force that defeated communism and all those who would put the human soul itself into bondage.
+ - Entrepreneurs are the forgotten heroes of America.
+ - Those who have known freedom and then lost it, have never known it again.
+ - Thomas Jefferson once said, ‘We should never judge a president by his age, only by his works.’ And ever since he told me that, I stopped worrying.
+ - Once people who have been deprived of basic freedom taste a little of it, they want all of it.
+ - We must be cautious in claiming God is on our side. I think the real question we must answer is, are we on His side?
+ - Free enterprise has done more to reduce poverty than all the government programs dreamed up by Democrats.
+ - I would have voted against the Civil Rights Act of 1964.
+ - God’s miracles are to be found in nature itself; the wind and waves, the wood that becomes a tree – all of these are explained biologically, but behind them is the hand of God.
+ - The Bible can touch our hearts, order our minds, refresh our souls.
+ - Our National Motto – ‘In God We Trust’ – was not chosen lightly. It reflects a basic recognition that there is a divine authority in the universe to which this nation owes homage.
+ - We may be the generation that sees Armageddon.
+ - Freedom and the dignity of the individual have been more available and assured here than in any other place on earth. The price for this freedom at times has been high, but we have never been unwilling to pay the price.
+ - We welcome change and openness; for we believe that freedom and security go together, that the advance of human liberty can only strengthen the cause of world peace.
+ - If we love our country, we should also love our countrymen.
+ - In this present crisis, government is not the solution to our problem, government IS the problem. It isn’t so much that liberals are ignorant, it’s just that they know so much that isn’t so.
+ - Hope remains the highest reality, the age-old power.
+ - You know, by the time you reach my age, you’ve made plenty of mistakes if you’ve lived your life properly.
+ - While I take inspiration from the past, like most Americans, I live for the future.
+ - Information is the oxygen of the modern age.
+ - Coersion, after all, merely captures man. Freedom captivates him.
+ - Government is like a baby. An alimentary canal with a big appetite at one end and no sense of responsibility at the other.
+ - If you want more of something, subsidize it; if you want less of something, tax it.
+ - When I’ve heard all I need to make a decision, I don’t take a vote. I make a decision.
+ - I am very proud to be called a pig. It stands for pride, integrity and guts.
+ - A hippie is someone who looks like Tarzan, walks like Jane and smells like Cheetah.
+ - I can’t help but believe that in the future we will see in the United States and throughout the Western world an increasing trend toward the next logical step, employee ownership. It is a path that befits a free people.
+ - I miss going to church, but I think the Lord understands.
+ - This crime against humanity must never be forgotten.
+ - Today we did what we had to do. They counted on America to be passive. They counted wrong.
+ - Governments don’t control things. A government can’t control the economy without controlling people.
+ - There are no degrees of honesty.
+ - As for the enemies of freedom, those who are potential adversaries, they will be reminded that peace is the highest aspiration of the American people. We will negotiate for it, sacrifice for it, we will not surrender for it – now or ever.
+ - I’m not smart enough to lie.
+ - It doesn’t do any good to hold the door open for someone if they don’t have a way to walk through it. And if they do have a way to pass through it then you probably don’t need to hold it open because they can open it for themselves.
+ - I have wondered at times what the Ten Commandments would have looked like if Moses had run them through the US Congress.
+ - We must act today in order to preserve tomorrow.
+ - Tyranny, like fog in the well known poem, often creeps in silently ‘on little cat feet.’
+ - We have so many people who can’t see a fat man standing beside a thin one without coming to the conclusion that the fat man got that way by taking advantage of the thin one!
+ - Inside the Bible’s pages lie the answers to all the problems that mankind has ever known. I hope Americans will read and study the Bible.
+ - The crew of the space shuttle Challenger honored us by the manner in which they lived their lives.
+ - We will always remember. We will always be proud. We will always be prepared, so we will always be free.
+ - Our forbearance should never be misunderstood. Our reluctance for conflict should not be misjudged as a failure of will. When action is required to preserve our national security, we will act.
+ - We can’t have it both ways. We can’t expect God to protect us in a crisis and just leave Him over there on the shelf in our day-to-day living. I wonder if sometimes He isn’t waiting for us to wake up, He isn’t maybe running out of patience.
+ - I do not believe in taking away the right of the citizen for sporting, for hunting and so forth, or for home defense. But I do believe that an AK-47, a machine gun, is not a sporting weapon or needed for defense of a home.
+ - Our nation will prosper or decline in direct proportion to our selection of leaders who are guided by the Holy Spirit. If we fail to select Godly leaders our destiny will surely be as that of the Roman Empire.
+ - To do whatever needs to be done to preserve this last and greatest bastion of freedom.
+ - I never drink coffee at lunch. I find it keeps me awake for the afternoon.
+ - The struggle now going on for the world will never be decided by bombs or rockets, by armies or military might. The real crisis we face today is a spiritual one; at root, it is a test of moral will and faith.
+ - You can’t be for big government, big taxes and big bureaucracy and still be for the little guy.
+ - Nations do not distrust each other because they are armed. They are armed because they distrust each other.
+ - May all of you as Americans never forget your heroic origins, never fail to seek Divine guidance, and never lose your natural God-given optimism.
+ - Perhaps there is a simple answer – not an easy answer – but simple: If you and I have the courage to tell our elected officials that we want our national policy based on what we know in our hearts is morally right.
+ - Nothing lasts longer than a temporary government program.
+ - I don’t have to tell you how fragile this precious gift of freedom is. Every time we hear, watch, or read the news, we are reminded that liberty is a rare commodity in this world.
+ - America is still an eagle, and she’s ready to soar again.
+ - We are a nation that has a government-not the other way around. And that makes us special among the nations of the earth.
+ - Our reluctance for conflict should not be misjudged as a failure of will.
+ - Individual liberty depends upon keeping government under control.
+ - The things that unite us-America’s past of which we are so proud, our hopes and aspirations for the future of the world and this much loved country-these things far outweigh what little divides us.
+ - The closest thing to eternal life on earth is a Government Program.
+ - Mr. Gorbachev, tear down this wall. And get a massage – you look really stressed.
+ - In this springtime of hope, some lights seem eternal; America’s is.
+ - I doubt evolution is real.
+ - When our Founding Fathers passed the First Amendment, they sought to protect churches from government interference. They never intended to construct a wall of hostility between government and the concept of religious belief itself.
+ - Throughout America today, we honor the dead of our wars. We recall their valor and their sacrifices. We remember they gave their lives so that others might live.
+ - Each generation goes further than the generation preceding it because it stands on the shoulders of that generation. You will have opportunities beyond anything we’ve ever known.
+ - Piling up material goods cannot fill the emptiness of lives which have no confidence or purpose.
+ - But the simple truth is that we’ve lost control of our own borders, and no nation can do that and survive.
+ - We’re in greater danger today than we were the day after Pearl Harbor. Our military is absolutely incapable of defending this country.
+ - Information is the oxygen of the modern age. It seeps through the walls topped by barbed wire, it wafts across the electrified borders.
+ - To grasp and hold a vision, that is the very essence of successful leadership-not only on the movie set where I learned it, but everywhere.
+ - I wasn’t a great communicator, but I communicated great things, and they didn’t spring full-bloom from my brow – they came from the heart of a great nation.
+ - The American people aren’t overtaxed. The government in Washington is overfed. The main difference between ourselves and the other side is: we see an America where every day is the Fourth of July. They see an America where every day is April 15.
+ - A people free to choose will always choose peace.
+ - Could there be a better answer to the stupidity of Karl Marx than millions of workers individually sharing in the ownership of the means of production.
+ - I believe with all my heart that our first priority must be world peace, and that use of force is always and only a last resort, when everything else has failed, and then only with regard to our national security.
+ - There is purpose and worth to each and every life.
+ - For the sake of peace and justice, let us move toward a world in which all people are at last free to determine their own destiny.
+ - America’s economic strength depends on industry’s ability to improve productivity and quality and to remain on the cutting edge of technology, and that’s why the Malcolm Baldrige National Quality Award is so important.
+ - Governments don’t reduce deficits by raising taxes on the people; governments reduce deficits by controlling spending and stimulating new wealth.
+ - Government is not the solution, but rather the cause of our problems.
+ - What we have found in this country, and maybe we’re more aware of it now, is one problem that we’ve had, even in the best of times, and that is the people who are sleeping on the grates, the homeless, you might say, by choice.
+ - Our moral imperative is to work with all our powers for that day when the children of the world grow up without the fear of nuclear war.
+ - Protecting the rights of even the least individual among us is basically the only excuse the government has for even existing.
+ - No mother would ever willingly sacrifice her sons for territorial gain, for economic advantage, for ideology.
+ - Meaningful work, not welfare, is every American’s hope, and we have a continuing responsibility to make those hopes a lasting reality.
+ - An actor knows two important things – to be honest in what he is doing and to be in touch with the audience. That’s not bad advice for a politician either.
+ - A strong nation is one that is loved by its people and, as Edmund Burke put it, for a country to be loved it ought to be lovely.
+ - The state of California has no business subsidizing intellectual curiosity.
+ - We have the means to change the laws we find unjust or onerous. We cannot, as citizens, pick and choose the laws we will or will not obey.
+ - Inflation is as violent as a mugger, as frightening as an armed robber and as deadly as a hit man.
+ - Make no mistake, abortion-on-demand is not a right granted by the Constitution. No serious scholar, including one disposed to agree with the Court’s result, has argued that the framers of the Constitution intended to create such a right.
+ - Someone must stand up to those who say, “Here’s the key, there’s the Treasury, just take as many of those hard-earned tax dollars as you want.”
+ - They don’t subscribe to our sense of morality; they don’t believe in an afterlife; they don’t believe in a God or religion. And the only morality they recognize, therefore, is what will advance the cause or socialism.
+ - Freedom prospers when religion is vibrant and the rule of law under God is acknowledged.
+ - For a time, we forgot the American dream isn’t one of making government bigger, it’s keeping faith with the mighty spirit of free people under God.
+ - Spending on the military doesn’t increase the deficit.
+ - Fascism was really the basis for the New Deal.
+ - I sometimes think Adam and Eve were Russians. They didn’t have a roof over their head, nothing to wear, but they had one apple between them and they thought that was Paradise.
+ - For us to ignore by inaction the slaughter of American civilians and American soldiers, whether in nightclubs or airline terminals, is simply not in the American tradition. Self-defense is not only our right, it is our duty.
+ - A broader reading of history shows that appeasement, no matter how it is labeled, never fulfills the hopes of the appeasers.
+ - I’m convinced, more than ever, that man finds liberation only when he binds himself to God and commits himself to his fellow man.
+ - I want you to know that also I will not make age an issue of this campaign. I am not going to exploit, for political purposes, my opponent’s youth and inexperience.
+ - With our eyes fixed on the future, but recognizing the realities of today, we will achieve our destiny to be as a shining city on a hill for all mankind to see.
+ - The current tax code is a daily mugging.
+ - We the people tell the government what to do, it doesn’t tell us.
+ - Freedom is the right to question and change the established way of doing things.
+ - Life involves effort and growth. You won’t grow by watching a situation comedy, though you can grow by reading a book. I hope we aren’t becoming a nation of watchers, because what made us great is that we’ve always been a nation of doers.
+ - Revolution means democracy in today’s world, not the enslavement of peoples to the corrupt and degrading horrors of totalitarianism.
+ - If our planes were shot down, yes, they’s wake me right away. If the other fellows’ were shot down, why wake me up?
+ - We in government should learn to look at our country with the eyes of the entrepreneur, seeing possibilities where others see only problems.
+ - I know that for America there will always be a bright dawn ahead.
+ - The American people cannot close their eyes to abuses of human rights and injustice, whether they occur among friend or adversary or even on our own shores.
+ - If we don’t want to see the map of Central America covered in a sea of red, eventually lapping at our own borders, we must act now.
+ - What has happened to the dreams of the United Nations’ founders? What has happened to the spirit which created the United Nations? The answer is clear: Governments got in the way of the dreams of the people.
+ - If you owe the bank $10,000 you have a problem. If you owe the bank $10,000,000 they have a problem. After all is said and done, more is said than done. Government does not solve problems; it subsidizes them.
+ - In this new world economy, national boundaries are increasingly becoming obsolete.
+ - Socialists ignore the side of man that is the spirit. They can provide you shelter, fill your belly with bacon and beans, treat you when you’re ill, all the things guaranteed to a prisoner or a slave. They don’t understand that we also dream.
+ - My dream is that you will travel the road ahead with liberty’s lamp guiding your steps and opportunity’s arm steadying your way.
+ - History comes and history goes, but principles endure, and ensure future generations will defend liberty not as a gift from government but as a blessing from our Creator.
+ - Our opponents see an America in which every day is April 15, tax day. Well, we see an America in which every day is the Fourth of July.
+ - There is nothing wrong with America that Americans can’t fix.
+ - Could there be anything resembling a free enterprise economy, if wealth and property were concentrated in the hands of a few, while the great majority owned little more than the shirts on their backs?
+ - This democracy of ours, which sometimes we’ve treated so lightly, is more than ever a comfortable cloak, so let us not tear it asunder, for no man knows, once it is destroyed, where or when he will find its protective warmth again.
+ - Presidents come and go. History comes and goes, but principles endure.
+ - Everyone is a liberal until they have something to conserve. Then they become a conservative.
+ - Form and Substance are opposite ends of the same coin.
+ - You can’t tax business. Business doesn’t pay taxes. It collects taxes.
+ - There is a mandate to impose a voluntary return to traditional values.
+ - Welfare’s purpose should be to eliminate, as far as possible, the need for its own existence.
+ - It’s difficult to believe that people are still starving in this country because food isn’t available.
+ - For the average American, the message is clear. Liberalism is no longer the answer. It is the problem.
+ - We’re more than friends and neighbors and allies; we are kin, who together have built the most productive relationship between any two countries in the world today.
+ - It’s just too bad we can’t have an epidemic of botulism.
+ - Either you will control your government, or government will control you.
+ - Our military strength is a prerequisite to peace, but let it be clear we maintain this strength in the hope it will never be used.
+ - I won’t hold my opponent’s youth and inexperience against him.
+ - Because Vietnam was not a declared war, the veterans are not even eligible for the G. I. Bill of Rights with respect to education or anything.
+ - It’s not fair to say that Congress spends money like a drunk sailor. At least the sailor is spending his own money!
+ - America has never gotten in a war because we were too strong.
+ - Many a man has failed because he had his wishbone where his backbone should have been.
+ - These are the boys of Pointe du Hoc. These are the men who took the cliffs. These are the champions who helped free a continent. These are the heroes who helped end a war.
+ - History teaches that war begins when governments believe the price of aggression is cheap.
+ - The fourth landing of the Columbia is the historical equivalent of the driving of the golden spike which completed the first transcontinental railroad. It marks our entrance into a new era.
+ - We don’t celebrate dependence day on the Fourth of July. We celebrate Independence Day.
+ - Nations crumble from within when the citizenry asks of government those things which the citizenry might better provide for itself.
+ - Government can and must provide opportunity, not smother it; foster productivity; not stifle it.
+ - There can be no greater good than the quest for peace, and no finer purpose than the preservation of freedom.
+ - The problem is not that people are taxed too little, the problem is that government spends too much.
+ - Education is not the means of showing people how to get what they want. Education is an exercise by means of which enough men, it is hoped, will learn to want what is worth having.
+ - One day we will spend our sunset years telling our children and our children’s children what it was once like in the United States where men were free.
+ - I’ve always believed that we were, each of us, put here for a reason, that there is a plan, somehow a divine plan for all of us. I know now that whatever days are left to me belong to him.
+ - I think we should keep the grain and export the farmers.
+ - Our country is great because it is built on principles of self-reliance, opportunity, innovation, and compassion for others.
+ - We owe this freedom of choice and action to those men and women in uniform who have served this nation and its interests in time of need. In particular, we are forever indebted to those who have given their lives that we might be free.
+ - Freedom is not the sole prerogative of a chosen few, but the universal right of all God’s children.
+ - Unemployment insurance is a pre-paid vacation for freeloaders.
+ - We have found, in our country, that when people have the right to make decisions as close to home as possible, they usually make the right decisions.
+ - Are you willing to spend time studying the issues, making yourself aware, and then conveying that information to family and friends? Will you resist the temptation to get a government handout for your community?
+ - You can achieve anything in politics provided that you let someone else take the credit.
+ - Sometimes when I’m faced with an atheist, I am tempted to invite him to the greatest gourmet dinner that one could ever serve, and when we have finished eating that magnificent dinner, to ask him if he believes there’s a cook.
+ - I believe now, as I alway have, that America’s strength is in ‘We the People.’
+ - Human beings are not animals, and I do not want to see sex and sexual differences treated as casually and amorally as dogs and other beasts treat them. I believe this could happen under the ERA.
+ - Freedom is one of the deepest and noblest aspirations of the human spirit.
+ - I hope Americans will read and study the Bible in the coming year. It’s my firm belief that the enduring values, as I say, presented in its pages have a great meaning for each of us and for our nation.
+ - Christmas can be celebrated in the school room with pine trees, tinsel and reindeers, but there must be no mention of the man whose birthday is being celebrated. One wonders how a teacher would answer if a student asked why it was called Christmas.
+ - Admittedly, there is a risk in any course we follow other than this, but every lesson in history tells us that the greater risk lies in appeasement, and this is the specter our well-meaning liberal friends refuse to face.
+ - The great dynamic success of capitalism had given us a powerful weapon in our battle against Communism-money.
+ - We can’t socialize the doctors without socializing the patients.
+ - You and I have a rendezvous with destiny. We will preserve for our children this, the last best hope of man on earth.
+ - And children, if your parents haven’t been teaching you what it means to be an American, let ’em know and nail ’em on it. That would be a very American thing to do.
+ - As a nation, we must choose between the sanctity of life ethic and the quality of life ethic. I have no trouble identifying the answer our nation has always given to this basic question, and the answer that I hope and pray it will give in the future.
+ - The person who pays an ounce of principle for a pound of popularity gets badly cheated.
+ - Through you, we feel as giants, once again.
+ - It’s not that liberals aren’t smart, it’s just that so much of what they know isn’t so.
+ - Unless bureaucracy is constantly resisted, it breaks down representative government and overwhelms democracy.
+ - He struck a mighty blow for equality, freedom and the American way of life. Jackie Robinson was a good citizen, a great man, and a true American champion.
+ - My doctors told me this morning my blood pressure is down so low that I can start reading the newspapers.
+ - Latinos are Republican. They just don’t know it yet.
+ - The national Democratic leadership is going so far left, they’ve left America. Don’t let them bury the American dream in their graveyard of gloom and envy.
+ - I have only one thing to say to the tax increasers: Go ahead, make my day.
+ - You and I are told increasingly we have to choose between left or right. Well, I’d like to suggest there is no such thing as a left or right. There’s only an up or down.
+ - I know that some believe that voluntary prayer in schools should be restricted to a moment of silence. We already have the right to remain silent – we can take our Fifth Amendment.
+ - A friend of mine was asked to a costume ball a short time ago. He slapped some egg on his face and went as a liberal economist.
+ - One of the worst mistakes anybody can make is to bet against Americans.
+ - Someone told me it was a round thing that gobbles up money. I thought that was Tip O’Neill.
+ - Freedom is indivisible – there is no “s” on the end of it. You can erode freedom, diminish it, but you cannot divide it and choose to keep “some freedoms” while giving up others.
+ - I have learned that one of the most important rules in politics is poise – which means looking like an owl after you have behaved like a jackass.
+ - I’d like to harness their youthful energy with a strap.
+ - The Federal Reserve is answerable to no one.
+ - Are you entitled to the fruits of your own labor or does government have some presumptive right to spend and spend and spend?
+ - I favor the Civil Rights Act of 1964 and it must be enforced at gunpoint if necessary.
+ - We who live in free market societies believe that growth, prosperity and ultimately human fulfillment, are created from the bottom up, not the government down.
+ - One picture is worth 1,000 denials.
+ - My fellow Americans, I must speak to you tonight about a mounting danger in Central America that threatens the security of the United States. This danger will not go away it will grow worse, much worse, if we fail to take action now.
+ - We now know that inflation results from all that deficit spending.
+ - I will stand on, and continue to use, the figures I have used, because I believe they are correct. Now, I’m not going to deny that you don’t now and then slip up on something; no one bats a thousand.
+ - Millions of individuals making their own decisions in the marketplace will always allocate resources better than any centralized government planning process.
+ - California produces 40% of America’s fresh fruits, vegetables and nuts – the kind you eat. We have had a bumper crop of the other variety, too.
+ - A political party cannot be all things to all people. It must represent certain fundamental beliefs which must not be compromised to political expediency, or simply to swell its numbers.
+ - General Secretary Gorbachev, if you seek peace, if you seek prosperity for the Soviet Union and Eastern Europe, if you seek liberalization: Come here to this gate! Mr. Gorbachev, open this gate! Mr. Gorbachev, tear down this wall!
+ - When cruelty is inflicted on innocent people, it discredits whatever cause.
+ - For three decades, we have sought to solve the problems of unemployment through government planning, and the more the plans fail, the more the planners plan.
+ - Wouldn’t it be better for the human spirit and for the soul of this nation to encourage people to accept more responsibility to care for each other rather than leaving those tasks to paid bureaucrats.
+ - I have decided that whatever time I may have left is left for Him.
+ - It is no coincidence that when the thugs tried to wrest control over Grenada, there were 30 Soviet advisors and hundreds of Cuban military and paramilitary forces on the island.
+ - Shouldn’t someone tag Mr. Kennedy’s bold new imaginative program with its proper age? Under the tousled boyish haircut is still old Karl Marx-first launched a century ago. There is nothing new in the idea of a government being Big Brother.
+ - The bill’s a textbook example of special interest pork barrel politics at work, and I have no choice but to veto it.
+ - Republicans believe the best way to assure prosperity is to generate more jobs. The Democrats believe in more welfare.
+ - We seek a constitutional amendment to permit voluntary school prayer. God should never have been expelled from America’s classrooms in the first place.
+ - Most of my dreams came true.
+ - The Federalist Society is changing the culture of our nation’s law schools. You are returning the values and concepts of law as our founders understood them to scholarly dialogue, and through that dialogue, to our legal institutions.
+ - These gentlemen are the moral equivalents of America’s founding fathers.
+ - I’m beginning to wonder if the symbol of the United States pretty soon isn’t going to be an ambassador with a flag under his arm climbing into an escape helicopter.
+ - People do not make wars; governments do.
+ - Honey, I forgot to duck.
+ - A university is a place where ancient tradition thrives alongside the most revolutionary ideas. Perhaps as no other institution, a university is simultaneously committed to the day before yesterday and the day after tomorrow.
+ - The challenge of statesmanship is to have the vision to dream of a better, safer world and the courage, persistence, and patience to turn that dream into reality.
+ - With the right to bear arms comes a great responsibility to use caution and common sense on handgun purchases.
+ - I believe the highest aspiration of man should be individual freedom and the development of the individual.
+ - Facts are stupid things ? stubborn things, I should say.
+ - They say the world has become too complex for simple answers. They are wrong.
+ - By emphasizing the importance of a common language, we safeguard a proud legacy and help to ensure that America’s future will be as great as her past.
+ - My golf-loving friend Bob Hope asked me what my handicap was, so I told him – the Congress.
+ - America stands unique in the world: the only country not founded on race but on a way, an ideal. Not in spite of but because of our polyglot background, we have had all the strength in the world. That is the American way.
+ - The future belongs to the free.
+ - Our government needs the church, because only those humble enough to admit they’re sinners can bring democracy the tolerance it requires to survive.
+ - We speak with pride and admiration of that little band of Americans who overcame insuperable odds to set this nation on course 200 years ago. But our glory didn’t end with them. Americans ever since have emulated their deeds.
+ - Our country and state have a special obligation to work toward the stabilization of our own population so as to credibly lead other parts of the world toward population stabilization.
+ - The criminal element now calculates that crime really does pay.
+ - My fellow Americans, I am pleased to tell you I just signed legislation which outlaws Russia forever. The bombing begins in five minutes.
+ - I’ve heard drug experts say they believe if penicillin were discovered today, the FDA wouldn’t license it.
+ - Our goal is peace. We can gain that peace by strengthening our alliances, by speaking candidly about the dangers before us, by assuring potential adversaries of our seriousness, by actively pursuing every chance of honest and fruitful negotiation.
+ - Our leaders must remember that education doesn’t begin with some isolated bureaucrat in Washington. It doesn’t even begin with state or local officials. Education begins in the home, where it is a parental right and responsibility.
+ - There’s no question I am an idealist, which is another way of saying ‘I am an American.’
+ - I remain California-bound.
+ - Liberals are people who think that being tough on crime means longer suspended sentences.
+ - No nation in history has ever survived a tax burden that reached a third of its national income.
+ - Simple fairness dictates that government must not raise taxes on families struggling to pay their bills.
+ - Americans are hungering to feel proud and patriotic again.
+ - You get to know people as individuals. The dreams of people may differ, but everybody wants their dreams to come true. And America, above all places, gives us the freedom to do that.
+ - Those concerns of a national character-such as air and water pollution that do not respect state boundaries, or the national transportation system, or efforts to safeguard your civil liberties-must, of course, be handled on the national level.
+ - This country was founded and built by people with great dreams and the courage to take great risks.
+ - The United States trades more with the province of Ontario alone than with Japan.
+ - Bureaucracy is adept at protecting its nest.
+ - I believe no challenge is more important to the character of America than restoring the right to life to all human beings.
+ - Today, if you invent a better mousetrap, the government comes along with a better mouse.
+ - When we speak of peace, we should not mean just the absence of war. True peace rests on the pillars of individual freedom, human rights, national self-determination, and respect for the rule of law.
+ - An informed patriotism is what we want.
+ - The best minds are not in government. If any were, business would steal them away.
+ - I know at times we feel that perhaps in our prayers we ask too much. Or possibly we feel something isn’t important enough to be bothering God with it. Maybe we should let Him decide these things.
+ - Our whole system of government is based on “We the people,” but if we the people don’t pay attention to what’s going on, we have no right to bellyache or squawk when things go wrong.
+ - I once played a sheriff who thought he could do the job without a gun. I was dead in twenty-seven minutes of a thirty minute show.
+ - America was founded by people who believe that God is their Rock of safety.
+ - I am not worried about the deficit. It is big enough to take care of itself.
+ - The family has always been the cornerstone of American society.
+ - Our natural, inalienable rights are now considered to be a dispensation from government, and freedom has never been so fragile, so close to slipping from our grasp as it is at this moment.
+ - Permanent brain damage is one of the inevitable results of the use of marijuana.
+ - America has not been a story or a byword. That small community of Pilgrims prospered and, driven by the dreams and, yes, by the ideas of the Founding Fathers, went on to become a beacon to all the oppressed and poor of the world.
+ - These are the values inspiring those brave workers in Poland. The values that have inspired other dissidents under communist domination. They remind us that where free unions and collective bargaining are forbidden, freedom is lost.
+ - Elvis epitomised America, and for that we shall be eternally grateful. There will never be anyone else like him. Let’s all rejoice in his music.
+ - Everywhere we go, Nancy makes the world a little better.
+ - I hope the people on Wall Street will pay attention to the people on Main Street. If they do, they will see there is a rising tide of confidence in the future of America.
+ - I supported this bill. I believe in the idea of amnesty for those who have put down roots and who have lived here even though sometime back they may have entered illegally.
+ - It’s time that we recognized that ours was in truth a noble cause.
+ - The neutron warhead is a defensive weapon designed to offset the great superiority that the Soviet Union has on the western front against the NATO nations.
+ - Double – no, triple – our troubles and we’d still be better off than any other people on earth.
+ - If you don’t know whether a body is alive or dead, you would never bury it. I think this consideration itself should be enough for all of us to insist on protecting the unborn.
+ - Don’t let the doom criers and the cynics persuade you that the best is past.
+ - Let us be sure that those who come after will say of us in our time, that in our time we did everything that could be done. We finished the race; we kept them free; we kept the faith.
+ - Let us renew our faith that as free men and women we still have the power to better our lives.
+ - Hayek is amongst the top 2-3 of the all the people who ever influenced me.
+ - More than any gift or toy, ornament of tree, let us resolve that this Christmas shall be, like that first Christmas, a celebration of interior treasures.
+ - Government is the people’s business and every man, woman and child becomes a shareholder with the first penny of tax paid.
+ - When those who are governed do too little, those who govern can – and often will – do too much.
+ - America must remain freedom’s staunchest friend, for freedom is our best ally and it is the world’s only hope to conquer poverty and preserve peace.
+ - Medicare will usher in federal programs that will invade every area of freedom as we have know it in this country.
+ - It is the Soviet Union that runs against the tide of human history by denying human freedom and human dignity to its citizens.
+ - We can not play innocents abroad in a world that is not innocent.
+ - If the Soviet Union let another political party come into existence, they would still be a one-party state, because everybody would join the other party.
+ - Middle age is when you’re faced with two temptations and you choose the one that will get you home by nine o’clock.
+ - Do what’s right and you’ll please some of the people and astound the rest.
+ - We might come closer to balancing the Budget if all of us lived closer to the Commandments and the Golden Rule.
+ - Baseball is our national pastime, that is if you discount political campaigning.
+ - Families cannot prosper and keep America strong if government becomes a Goliath that preys upon their wealth, usurps their rights, and crushes their spirit.
+ - Wearing love beads and touting our sincerity will not make this a safer world.
+ - For the people of Israel and America are historic partners in the global quest for human dignity and freedom. We will always remain at each other’s side.
+ - The economic welfare of all our people must ultimately stem not from government programs, but from the wealth created by a vigorous private sector.
+ - Republicans believe every day is the Fourth of July, but the democrats believe every day is April 15.
+ - I’m just a citizen temporarily in public service.
+ - Going to college offered me the chance to play football for four more years.
+ - The victims of crime have been transformed into a group oppressively burdened by a system designed to protect them.
+ - Freedom prospers only where the blessings of God are avidly sought, and humbly accepted.
+ - To this day, America is still the abiding alternative to tyranny. This is our purpose in the world, nothing more and nothing less.
+ - Blondes have the hottest kisses. Red-heads are fair-to-middling torrid, and brunettes are the frigidest of all. It’s something to do with hormones, no doubt.
+ - We were poor when I was young but the difference was that the government didn’t come around telling you you were poor.
+ - I believe that George Washington knew the City of Man cannot survive without the City of God; that the Visible City will perish without the Invisible City.
+ - We are going to put an end to the notion that the American taxpayer exists to fund the Federal Government.
+ - There seems to be an increasing awareness of something we Americans have known for some time – that the ten most dangerous words in the English language are “Hi, I’m from the government, and I’m here to help.”
+
+500 quotes

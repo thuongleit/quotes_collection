@@ -1,0 +1,35 @@
+ - I think trance music is the only music you can listen to without taking drugs. You can really feel the emotions in it. You can get on another level without the drugs. If you listen to techno, it’s so monotone that you really need drugs to enjoy it.
+ - Trance is a very emotional and uplifting form of dance music. It appeals to many people in this way having such a strong connection with emotions. It makes people happy and ready to party.
+ - DJs are the new rock stars.
+ - I listen to all kinds of music, but I really like deep house.
+ - I have been DJing in clubs for years. I always dreamed to be a famous DJ in Holland. And now it’s worldwide. You can’t imagine. I mean, I still can’t believe it myself that everything has gone so well.
+ - No more hellfires and please no more gunfire.
+ - At the end of the ’90s and into 2000, electronic music was still an underground phenomenon, especially in America.
+ - I saw a DJ from Germany called Sven Vath. I saw him in the club, he played for six hours and I was just totally intrigued, because everything he played I’d never heard before and everything he did I’d never seen before. I was so blown away by what he did.
+ - Most people went to dance shows, but it was basically a table and a DJ playing and not really a spectacular thing. I brought the whole production with the effects – the best sound, the best lighting to blow the fans away.
+ - If you play the same club every week of every month, it’s kind of boring. It’s great that you can play one night in Brazil and one night in Japan, one night in Europe, and see the world. It’s amazing what you see if you travel around the world.
+ - I love playing FIFA on my PlayStation!
+ - It doesn’t matter if they’re famous or not – I just want to meet other creative people who can maybe bring something different to the studio than what I have. I think that’s the most important thing for me.
+ - I integrate music from all over the world in my sets, harmony is what my music and life are built upon.
+ - I was only interested in music, but I spent so much time in the clubs and seeing fashions change. So naturally, I developed an interest in it.
+ - I would love to fall in love and get married and have beautiful children. I mean that’s one of the goals in life, I think, to have, and it’s a beautiful thing. My sister has kids and all my friends have kids. They show me their, you know their report cards. And I can show them my sports car.
+ - A ‘Magik’ session is a journey through different stages of emotions and the ‘Search for Sunrise’ is more chilling music for when you come home after a party or when you are just about to go to one.
+ - Sigur Ros make beautiful music. Bloc Party are fantastic and exciting and innovative.
+ - It will be great to have a fashion career during and after my DJ career.
+ - Since I was a kid, I always felt the need to share the music I love with as many people as possible, and DJing seemed like the perfect outlet.
+ - I love to produce a track and then play it for the crowd; that’s the biggest kick for me!
+ - I got involved in 2003, 2004, with a company called Dance4Life out of Holland.
+ - A lot of DJs who started the same time as me, they are not to be seen anymore. And I get so much love and respect from the young DJs, and some of them look up to me or ask me for advice. I am almost like the mentor.
+ - There’s an amazing intimate feeling in a small club but an insane rush playing a stadium or festival.
+ - I think I’m commercial underground. I’m not commercial in the way that people consider ‘pop,’ but I’m not underground in the way that people consider that. either. I am just a cool guy.
+ - Growing up, Guess always had these amazing billboards and cool affordable clothing. I wore it then, and I still wear it now! It’s come full-circle. When I design the clothes, I have a very good team around me, showing me different pieces and cuts.
+ - I like ‘Elle’ magazine. I love things online, like when all the big brands have a fashion show, I like to see the new collections.
+ - I think I am example for our scene, so I have to be an example for the rest.
+ - I like a challenge. I need to feel passionate about something. If I’m not passionate about it, I can’t stand it. It has to feel real. DJ’ing, touring, charity work – anything.
+ - I spend a lot of time talking to young and emerging producers on Twitter, feeding back thoughts and encouraging them.
+ - I love suits, but onstage it’s too hot. So, I like a nice T-shirt!
+ - The opportunity to perform my music for billions of people around the globe will be the greatest highlight of my life, I am honoured to be part of the biggest sports event in the world.
+ - If you remix, people want to tap into your sound. If you keep that to yourself, it makes the sound more special.
+ - In the end of 2012 no one looks back on this year and remembers the nights they got plenty of sleep.
+
+33 quotes

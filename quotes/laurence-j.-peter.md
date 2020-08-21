@@ -1,0 +1,124 @@
+ - You can’t cross the sea merely by standing and staring at the water. Don’t let yourself indulge in vain wishes.
+ - An economist is an expert who will know tomorrow why the things he predicted yesterday didn’t happen today.
+ - Work is accomplished by those employees who have not yet reached their level of incompetence.
+ - If a cluttered desk is the sign of a cluttered mind, what is the significance of a clean desk?
+ - Reality is for people who can’t face drugs.
+ - Everyone is in awe of the lion tamer in a cage with half a dozen lions-everyone but a school bus driver.
+ - The unexpected always happens.
+ - Peter’s Principle: In an organization, each person rises to the level of his own incompetence.
+ - Would the boy you were be proud of the man you are?
+ - A rut is a grave with the ends knocked out.
+ - You don’t need to take a persons advice to make him feel good, just ask him for it.
+ - He laughs best whose laugh lasts.
+ - Fools rush in where wise men fear to trade.
+ - Don’t believe in miracles – depend on them.
+ - Equal opportunity means everyone will have a fair chance at being incompetent.
+ - The man who believes he can do it is probably right, and so is the man who believes he can’t.
+ - An optimist expects his dreams to come true; a pessimist expects his nightmares to.
+ - Against logic there is no armor like ignorance.
+ - Fortune knocks but once, but misfortune has much more patience.
+ - Competence, like truth, beauty, and contact lenses, is in the eye of the beholder.
+ - The devil could change. He was once an angel and may be evolving still.
+ - Noblest of all dogs is the hot-dog; it feeds the hand that bites it.
+ - The reason crime doesn’t pay is that when it does, it is called a more respectable name.
+ - May your happiest days of the past be your saddest days of your future.
+ - In spite of warnings, nothing much happens until the status quo becomes more painful than change.
+ - Middle age is when work is a lot less fun and fun is a lot more work.
+ - A man doesn’t know what he knows until he knows what he doesn’t know.
+ - Prejudice is one of the world’s greatest labor-saving devices; it enables you to form an opinion without having to dig up the facts.
+ - In the country of the blind, the one-eyed king can still goof up.
+ - Many an optimist has become rich simply by buying out a pessimist.
+ - Heredity is what sets the parents of a teenager wondering about each other.
+ - There are two sorts of losers – the good loser, and the one who can’t act.
+ - The seaman tells stories of winds, the ploughman of bulls; the soldier details his wounds, the shepherd his sheep.
+ - Some problems are so complex that you have to be highly intelligent and well informed just to be undecided about them.
+ - Two things reduce prejudice: education and laughter.
+ - Humility is the embarrassment you feel when you tell people how wonderful you are.
+ - The advantage of modern means of communication is they enable you to worry about things in all of the world.
+ - Home is where the college student home for the holidays isn’t.
+ - It’s strange that men should take up crime when there are so many legal ways to be dishonest.
+ - The habitually punctual make all their mistakes right on time.
+ - Cleaning anything involves making something else dirty, but anything can get dirty without something else getting clean.
+ - Bureaucracy defends the status quo long past the time when the quo has lost its status.
+ - Television has changed the American child from an irresistable force to an immovable object.
+ - Computers can solve all kinds of problems except the unemployment problem they create.
+ - In a hierarchy, every employee tends to rise to his level of incompetence.
+ - If at first you don’t succeed, lie, lie again.
+ - Every man serves a useful purpose: a miser, for example, makes a wonderful ancestor.
+ - There is no stigma attached to recognizing a bad decision in time to install a better one.
+ - If you can’t keep up, drag them down to your level.
+ - The modern child will answer you back before you’ve said anything.
+ - Every girl should use what Mother Nature gave her before Father Time takes it away.
+ - Only mediocrities rise to the top in a system that won’t tolerate wave making.
+ - Bore : A fellow who can change the subject back to his topic of conversation faster than you can change it back to yours.
+ - America is a land of taxation that was founded to avoid taxation.
+ - Democracy is a process by which the people are free to choose the man who will get the blame. Education is a method whereby one acquires a higher grade of prejudices. In spite of the cost of living, it’s still popular.
+ - Egypt: Where the Israelites would still be if Moses had been a bureaucrat.
+ - America is a country that doesn’t know where it is going but is determined to set a speed record getting there.
+ - A free press is one that prints a dictator’s speech but doesn’t have to.
+ - There are two kinds of failures: those who thought and never did, and those who did and never thought.
+ - Lead, follow or get of the way.
+ - Two can live as cheaply as one – if they both have good jobs.
+ - Competition in academia is so vicious because the stakes are so small.
+ - We hate to have some people give us advice because we know how badly they need it themselves.
+ - When you see yourself quoted in print and you’re sorry you said it, it suddenly becomes a misquotation.
+ - Don’t worry about middle age: you’ll outgrow it.
+ - A censor is an expert in cutting remarks. A censor is a man who knows more than he thinks you ought to.
+ - If two wrongs don’t make a right, try three.
+ - When a New Yorker looks like he has a suntan, it’s probably rust.
+ - Marriage is a good deal like taking a bath-not so hot once you get accustomed to it.
+ - An optimist is one who makes the best of it when he gets the worst of it.
+ - The cave-dweller’s wife complained that he hadn’t dragged her anywhere in months.
+ - A true friend will see you through when others see that you are through.
+ - We are members of a strange species that devotes its energies to climbing the ladder of success in order to make money to buy things we don’t like.
+ - The machinery of government is a vast series of interlocking hierarchies riddled through and through with incompetence.
+ - The incompetent with nothing to do can still make a mess of it.
+ - Middle age is when you stop criticizing the older generation and start criticizing the younger one.
+ - Many live by their wits but few by their wit.
+ - A philosopher is a blind man in a dark room looking for a black cat that isn’t there. A theologian is the man who finds it.
+ - The man who is always waving the flag usually waives what it stands for.
+ - A bore is a person who lights up the room simply by leaving it.
+ - The problem with temptation is that you may not get another chance.
+ - They lead only as the carved wooden figurehead leads the ship.
+ - Scientists are still trying to produce life in the laboratory, but it shouldn’t be difficult if the laboratory assistant is pretty and willing.
+ - When in doubt or danger, run in circles, scream and shout.
+ - Education is a method whereby one acquires a higher grade of prejudices.
+ - Middle age is when the best exercise is one of discretion.
+ - If we lacked imagination enough to foresee something better, life would indeed be a tragedy.
+ - Poetry is that which is lost in translation.
+ - The man who says he is willing to meet you halfway is usually a poor judge of distance.
+ - Slump, and the world slumps with you. Push, and you push alone.
+ - Middle age is when anything new in the way you feel is most likely a symptom.
+ - As a matter of fact is an expression that precedes many an expression that isn’t.
+ - You could generally inform a real close friend: when you have manufactured a idiot of on your own he does not truly feel you’ve finished a long lasting job.
+ - The surest sign that you haven’t any sense is to argue with one who hasn’t.
+ - An intelligence test sometimes shows a man how smart he would have been not to have taken it.
+ - Originality is the fine art of remembering what you hear but forgetting where you heard it.
+ - You shouldn’t punish others for your own choices.
+ - I inherited my ability from both parents; my mother’s ability for spending money, and my father’s ability for not earning it.
+ - Political success is the ability, when the inevitable occurs, to get credit for it.
+ - Ignorance once dispelled is difficult to reestablish.
+ - Nobody can be perfect unless he admits his faults, but if he has faults how can he be perfect?
+ - When a person puts his best foot forward and gets it stepped on, that’s life.
+ - A man convinced against his will is not convinced.
+ - In most hierarchies, supercompetence is more objectionable than incompetence.
+ - Few of us ever test our powers of deduction, except when filling out an income tax form.
+ - There are some men who in a fifty-fifty proposition insist on getting the hyphen too.
+ - It is wise to remember that you are one of those who can be fooled some of the time.
+ - If the outcome is good, what’s the difference between motives that sound good and good, sound motives?
+ - A lawyer is a man who helps you get what is coming to him.
+ - When I want your opinion I’ll give it to you.
+ - Incompetence plus incompetence equals incompetence.
+ - It usually takes two people to make one of them angry.
+ - Committees have become so important nowadays that subcommittees have to be appointed to do the work.
+ - A bureaucrat’s idea of cleaning up his files is to make a copy of every paper before he destroys it.
+ - Don’t knock the rich. When did a poor person give you a job?
+ - Ignorance is the mother of research.
+ - There are more pretty photographs of women than there are photographs of pretty women.
+ - All science is concerned with the relationship of cause and effect. Each scientific discovery increases man’s ability to predict the consequences of his actions and thus his ability to control future events.
+ - Middle age is when it takes longer to rest than to get tired.
+ - Give a child enough rope and he will trip you up.
+ - No committee could ever come up with anything as revolutionary as a camel – anything as practical and as perfectly designed to perform effectively under such difficult conditions.
+ - Expert: a man who makes three correct guesses consecutively.
+
+122 quotes

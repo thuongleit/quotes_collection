@@ -1,0 +1,34 @@
+ - If my ship sails from sight, it doesn’t mean my journey ends, it simply means the river bends.
+ - Independence, the freedom of a self-governing nation, is in my estimation the highest political good, for which any disadvantage, if need be, and any sacrifice are a cheap price.
+ - I hope those who shouted “Fascist” and “Nazi” are aware that before they were born I was fighting against Fascism and Nazism.
+ - A single currency means a single government, and that single government would be the government whose policies determined every aspect of economic life.
+ - In the end, the Labour party could cease to represent labour. Stranger historic ironies have happened than that.
+ - All political lives, unless they are cut off in midstream at a happy juncture, end in failure, because that is the nature of politics and of human affairs.
+ - History is littered with wars which everybody knew would never happen.
+ - You have to give the electorate a tune they can whistle.
+ - We must be mad, literally mad, as a nation to be permitting the annual inflow of some 50,000 dependents, who are for the most part the material of the future growth of the immigrant-descended population. It is like watching a nation busily engaged in heaping up its own funeral pyre.
+ - Politicians who complain about the media are like sailors who complain about the sea.
+ - I have set and always will set my face like flint against making any difference between one citizen of this country and another on the grounds of his origin.
+ - No battle is worth fighting except the last one.
+ - When I repress my emotion my stomach keeps score.
+ - Values exist in a transcendental realm, beyond space and time. They can neither be fought for, nor destroyed.
+ - People are disposed to mistake predicting troubles for causing troubles and even for desiring troubles.
+ - The supreme function of statesmanship is to provide against preventable evils.
+ - I do not keep a diary. Never have. To write a diary every day is like returning to one’s own vomit.
+ - The life of nations no less than that of men is lived largely in the imagination.
+ - I am the last person whom it would be reasonable to expect to leave the Conservative Party.
+ - If I cannot understand my friend’s silence, I will never get to understand his words.
+ - A little nonsense now and then is not a bad thing – where would we politicians be if we were not allowed to talk it sometimes.
+ - The happiest and most glorious hours of my life with books have been with German books.
+ - I will not surrender responsibility for my life and my actions.
+ - Of all political sacred-cows, education is the most sacred and the most cow-like.
+ - I should like to have been killed in the war.
+ - Paisley has been and remains a greater threat to the Union than the Foreign Office and the Provisional IRA rolled into one.
+ - It is no accident that wherever the State ha taken economic decision away from the citizen, it has deprived him of his other liberties as well.
+ - The enemies of advertising are the enemies of freedom.
+ - Lift the curtain and ‘the State’ reveals itself as a little group of fallible men in Whitehall, making guesses about the future, influenced by political prejudices and partisan prejudices, and working on projections drawn from the past by a staff of economists.
+ - As so often, the ordinary rank and file of the electorate have seen a truth, an important fact, which has escaped so many more clever people the underlying value of that which is traditional, that which is prescriptive.
+ - It is the English, not their Government; for if they were not blind cowards, they would lynch Chamberlain and Halifax and all the other smarmy traitors.
+ - It so happens that I never talk about race. I do not know what race is.
+
+32 quotes

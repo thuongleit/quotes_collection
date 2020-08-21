@@ -1,0 +1,70 @@
+ - Dive deep. Drown willingly.
+ - The world’s bumper sticker reads: Life sucks, and then you die. Perhaps Christian bumper stickers should read: Life sucks, but then you find hope and you can’t wait to die.
+ - God is with me. Jesus is near. The Spirit is greater than my fear.
+ - You’ll have to learn to control your emotions. They’re new, like achild’s now, bursting with passion. Never let them fade, or part of you will die. But they cal also destroy you. Hold them dear, but don’t let them take hold of you.
+ - In living we die, in dying we live.
+ - In the end you will be your own undoing. You can’t escape you.
+ - Turn to the light. Don’t fear the shadow it creates.
+ - Dust to dust, ashes to ashes. Halleluiah amen, you are dismissed.
+ - This will wreck you! Today, treat everyone you meet as if they’re going to be dead by midnight. extend all the kindness and understanding you can, and do it with no thought of any reward.
+ - It’s the sorrow you feel that allows you to crave love. Without the suffering, there would be no true pleasure. Without tears, no joy. Without deficiency, no longing. This is the secret of the human heart, Rom.
+ - For me, writing is an experience. It’s an exercise in which I want to discover myself by taking my characters to the edges of human experience, to the edges of themselves and then, asking certain questions – about love, what does it mean to love? What’s beauty? What is true beauty?
+ - Born of Black and White, Eaten with worms, I’m a Saint, a Sinner, a Siren of the Word, The Circle knows me, the rest just wanna trip on Grace Juice, Baby Showdown at midnight.
+ - How can you hope to recognize good and evil for what they truly are if you have no belief in a moral authority greater than yourself?
+ - But sometimes imperfect tools lead us toward perfect ends.
+ - The light came into the darkness, and the darkness did not understand it, but that no longer mattered because the light was now obliteration the darkness.
+ - Come hither, my dear. Come hither, that I mightest protectest thou!
+ - My idea for ‘BoneMan’s Daughters’ came from the loss of my own daughter when she left home to live with a monster at age 18. I wanted to throttle the man, but she was in love, so all I could do was hope, pray and cry.
+ - You never read Spider-Man? Accepting your true identity means understanding that you are a stranger to this world. A freak, ostracized by the very people you want to help.
+ - It’s critical that we use a very dark brush to paint evil. When you bring the light into that darkness as characterized in John 1, that light is very vivid. When it dispels the darkness, we see the brilliance that’s there.
+ - My research for ‘Adam’ affected me profoundly, particularly the research into evil’s underbelly. We tend not to think about evil until it pokes its head out of the air about us and then it tends to scare us silly. As well it should.
+ - When I sit down to write a novel, I am exploring my own relationship with God, with the struggle between good and evil, my own purpose.
+ - There is a fountain filled with blood drawn from Immanuel’s Veins. And those plunged beneath that watery grave to drink of His blood will never be the same.
+ - Anything unnatural was not naturally believed. Faith, in essence, was unnatural.
+ - Adrenaline dulls reason; panic kills it.
+ - The battle over flesh and blood cannot compare to the battle for the heart.
+ - If you could find a way to peel back the skin of this world so to speak, would you really see this supernatural reality that is greater? Is it true that we fight not against flesh and blood but against principalities and powers? Every young person wants to know.
+ - Grow up? Get herself straightened out? Her mind reeled from the verbal battering. No matter what she did, her father would tell her she was wrong. Worthless. Undeserving.
+ - The light shines in the darkness, but the darkness cannot understand it.
+ - And to understand how love unfolds, you must understand how Elyon loves.
+ - I always managed to get in trouble, like every kid. But I had to learn a lot of hard lessons on my own, without parents who would nurture me and guard me through that part of life, at a very young age.
+ - She was having some difficulty piecing together exactly why she deserved to be in this place, but she wasn’t stupid enough to deny that in the end life was cruel and didn’t pay attention to what was fair.
+ - He was as needy as she was. Alvin Finch only wanted to be needed. Loved. And absent of either, he resorted to deflecting his pain by killing. Just like a teenager might resort to deflecting the pain of rejection by cutting. People did a lot of crazy things to be wanted.
+ - It was there, beyond the skin of this world, that a cure of ugliness could be found.
+ - Sin thrives in the dungeon, but slap it on the table for all to see, and it withers rather quickly.
+ - My journey is so similar to everyone elses journey, because we all are human. We all have been defeated by the powers of darkness, and we all find redemption in the light of Christ.
+ - A person who finds silence and solitude boring is a person who is himself boring, empty of anything worth consideration.
+ - There’s a reason we are drawn to the light. A reason why we fear darkness. It’s important to be terrified and unnerved about certain things. That way we will choose another path. The path that leads us to truth and love.
+ - There’s always risk in life’s most rewarding pursuits, isn’t there?
+ - Evil was predictable, always painfully expected.
+ - I’ve already said you can’t take anything from me that I wouldn’t freely give you.
+ - Some would say the Creator is a lamb. Some would say he’s a lion. Some would say both. The fact is, he is neither a lamb nor a lion. These are fiction. Metaphors. Yet the Creator is both a lamb and a lion. These are both truths.
+ - Wage war on death. Live for love.
+ - The light had simply and utterly destroyed the darkness.
+ - The pain was so deep and so raw. There were days I would have died just to forget. The problem was, I couldn’t figure out how to get her out of my mind. How do you kill that kind of pain?
+ - Knowing you’re worthless doesn’t give you value any more than knowing you are a captive sets you free.
+ - Like all of my fictions, ‘Sinner’ is a mirror. Look into it and you will find yourself. What you do with what you see is your choice.
+ - It is critical that writers who embrace the light of Christ’s redemptive love characterize the darkness arrayed against us in a way that is consistent with its true nature.
+ - There is indeed good and there is indeed evil, and both walk the earth. But good has little to do with the forms of religion, and evil has as little to do with so much behavior condemned by religion. Both good and evil vie for the passions of the heart. For love!
+ - My writing is a very authentic journey of discovery. I’m going out there to learn who I am. My readers, consequently, take the same journey as my protagonist.
+ - I studied philosophy, religious studies, and English. My training was writing four full-length novels and hiring an editor to tear them apart. I had enough money to do that, and then rewriting and rewriting and rewriting.
+ - I think everything we do, on one level or another, as writers, most of our writing is informed by our world view. It’s informed by our own understanding of spirituality; things that matter, things that are important to us. I write about things that matter for me.
+ - Writing wasn’t about making money. I wanted to find fulfillment in writing and telling stories, and that’s what’s driven me.
+ - God is obviouslt God, and Heaven obviously exsists, and every word spoken here on earth turns heads up there.
+ - I think a woman is born with the desire to hear she is beautiful.
+ - Then as now, evil begins its courtship cloaked in light. And the heart embraces what is should flee. Forgetting it once had a true lover. Love will prove greater than lust. Sacrifice will overcome seduction. And blood will flow.
+ - Whenever you write on a subject that questions the status quo, there are bound to be many who wrestle with the issues.
+ - When you step away from it all, you lose perspective.
+ - What was once obvious to them was no longer quite as obvious. Why was it that humans lost sight of truth so quickly?
+ - Perfect, that’s our plan then. But you’ll have to give up being a priest first. I wouldn’t want to just sit around whispering and sipping hot chocolate.
+ - But what was possible or practical had been replaced by a far baser impulse. Hope.
+ - The problem with any philosophical consideration is that once you open a door in your mind, you can never close it. Once you learn something, you can never convince your mind that you didn’t learn it. If you learn the world is round, you can never fit in with a world that thinks it’s flat.
+ - He read reports, examined evidence, and poured more reports up the chain than the Pentagon could read. Nothing short of a human sieve. But in the end he was just one small piece on this game board called war. End of story.
+ - All my books are very spiritual. I started out writing what was most natural to me, many years ago, which is religious, because I grew up in the jungle, the son of missionaries. I want to know, is God real? What’s a priest’s role?
+ - The fact is not kill entire populations is able to infect entire regions of land and control the only cure.
+ - My first seven novels were contemporary spiritual novels, my next nine had strong elements of fantasy, and now I’m writing thrillers, more as a choice to spread my wings than anything. Writers, like good wine, should mature with age.
+ - I think everything we do, on one level or another, as writers, most of our writing is informed by our world view.
+ - I never write my stories as a wake-up call as such. I simply explore the kinds of situations that I find personally challenging by placing characters into situations that challenge them in similar ways.
+ - And does man simply choose evil, or does he create it?
+
+68 quotes

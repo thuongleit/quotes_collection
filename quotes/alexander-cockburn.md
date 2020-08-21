@@ -1,0 +1,21 @@
+ - The travel writer seeks the world we have lost – the lost valleys of the imagination.
+ - A “just war” is hospitable to every self-deception on the part of those waging it, none more than the certainty of virtue, under whose shelter every abomination can be committed with a clear conscience.
+ - The art of politics is to separate actions from consequences.
+ - A childish soul not inoculated with compulsory prayer is a soul open to any religious infection.
+ - Be careful about Burma. Most people cannot remember whether it was Siam and has become Thailand, or whether it is now part of Malaysia and should be called Sri Lanka.
+ - There is still zero empirical evidence that anthropogenic production of CO2 is making any measurable contribution to the world’s present warming trend.
+ - The First Law of Journalism: to confirm existing prejudice, rather than contradict it.
+ - Nothing can inspire religious duty or animation but religion.
+ - Despair is the central part of the psychopathology. For the handmaiden of gossip is treachery:.
+ - No chord in populism reverberates more strongly than the notion that the robust common sense of an unstained outsider is the best medicine for an ailing polity. Caligula doubtless got big cheers from the plebs when he installed his horse as proconsul.
+ - Can it be that a generation of school children is growing up heedless of the simple truth that the Pentagon’s centrla role for many years has been to buy weapons that don’t work, against threats that don’t exist?
+ - No foundation that I am aware of has hired ex-journalists to promote a thoroughgoing inquiry.
+ - There’s a whole journalistic-industrial complex dedicated to keeping newsprint, TV screens and radio waves clean of destabilizing scoops damaging to corporations or the state.
+ - Pose a political threat to Business As Usual, and sooner or later, mostly sooner, someone will try to kill you.
+ - They keep telling us that in war truth is the first casualty, which is nonsense since it implies that in times of peace truth stays out of the sick bay or the graveyard.
+ - Nothing but mountains filled with barbarous ethnics with views as medieval as their muskets, and unspeakably cruel too.
+ - In its attempt to crush the Black Panthers, the FBI engineered frequent arrests on the flimsiest of pretexts.
+ - Are you more likely to tolerate drivel than you were four years ago? I think the answer is yes. Four years of Reagan has deadenedthe senses against a barrage of uninterrupted nonsense.
+ - No one believes for a moment the embargo will prompt the Iraqi people to rise against Saddam Hussein.
+
+19 quotes

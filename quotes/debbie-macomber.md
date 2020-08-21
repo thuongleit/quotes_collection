@@ -1,0 +1,33 @@
+ - Feed your faith and your doubts will starve to death.
+ - If the grass is greener on the other side of the fence, you can bet the water bill is higher.
+ - I love the way knitting brings people together.
+ - Maybe money can’t buy love – but it can get you practically everything else.
+ - Practicing an attitude of gratitude spills over to acts of generosity.
+ - Grandpa Patterson used to say: Never approach a bull from the front, a horse from the rear or a fool from any direction.
+ - But although she was with family and friends, she’d never felt more alone. She felt as if she’d lost a vital part of herself and she had – her heart.
+ - We’re each our own person, we live our own lives, make our own mistakes, learn from them and move forward.
+ - Cultivating the habit of good deeds will not only affect those around us, it will improve our own emotional well being.
+ - Here’s where the real power of generosity comes in. Often, the more we give, the more we receive.
+ - The best way to get even is to forget.
+ - It’s all right to sit on your pity pot every now and again. Just be sure to flush when you are finished. Mrs. Miracle.
+ - Some marriages are made in heaven, but they all have to be maintained on earth. Mrs Miracle.
+ - Our world was created with a sense of order. For every loss, there is a gain. Sometimes we are so blinded by the loss that we don’t see the gain, don’t recognize the gift.
+ - People are funny. They want the front of the bus, the middle of the road and the back of the church. – Mrs. Miracle.
+ - My office walls are covered with autographs of famous writers – it’s what my children call my ‘dead author wall.’ I have signatures from Mark Twain, Earnest Hemingway, Jack London, Harriett Beecher Stowe, Pearl Buck, Charles Dickens, Rudyard Kipling, Alfred, Lord Tennyson, to name a few.
+ - God gave the Angels wings and humans chocolate. Mrs. Miracle.
+ - We all face difficulties of our own, and how comforting it is to immerse yourself in a book – my book, any book, any romance. It’s entertainment, it’s escape, and it can even be an inspiration!
+ - While it may not be a simple act, offering forgiveness not only has the power to heal relationships, it strengthens the well-being of those who give this life-changing gift.
+ - I consider my greatest strength my complete and utter faith in a loving God. Strong family values are also important and I do not hesitate to write them into my books. My reader mail tells me this is something that readers especially like about my books.
+ - Your heart has to let your head know what it wants.
+ - I am a big popcorn fanatic. I love popcorn. In fact one year for my birthday, my husband bought me one of those big popcorn machines like they have in movie theaters.
+ - I’m a yarnaholic. That means I have more yarn stashed away than any one person could possibly use in three or four lifetimes. There’s something inspiring about yarn that makes me feel I could never have enough.
+ - I’m dyslexic, although they didn’t have a word for it when I was in grade school. The teachers said I had ’word blindness.
+ - She said interruptions were simply God’s appointments.
+ - Sometimes, I think we’re afraid to admit we want certain things. Especially things that contradict the image we have of ourselves.
+ - Readers have actually changed the way I’ve done things, changed the course of my career even, about four or five times. Just from reader feedback.
+ - Romance focuses on emotions and on relationships, both of which are fundamentally important to women.
+ - I’ve always been a creative speller and never achieved good grades in school. I graduated from high school but didn’t have the opportunity to attend college, so I did what young women my age did at the time – I married.
+ - Humans tend to build walls when they should be opening doors.
+ - I’d found love – only to discover how fleeting it can be.
+
+31 quotes

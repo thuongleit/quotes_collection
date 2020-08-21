@@ -1,0 +1,5 @@
+ - Men are like plants; the goodness and flavor of the fruit proceeds from the peculiar soil and exposition in which they grow. We are nothing but what we derive from the air we breathe, the climate we inhabit, the government we obey, the system of religion we profess, and the nature of our employment.
+ - What, then, is this new man, the American? They are a mixture of English, Scotch, Irish, French, Dutch, Germans, and Swedes. From this promiscuous breed, that race, now called Americans, have arisen.
+ - He who governs himself according to what he calls his principles may be punished either by one party or the other for those very principles. He who proceeds without principle, as chance, timidity, or self-preservation directs, will not perhaps fare better; but he will be less blamed.
+
+3 quotes

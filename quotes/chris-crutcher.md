@@ -1,0 +1,30 @@
+ - If you think your life sucks, it probably does. Do something about it.
+ - You put yourself out there in the truest way you can and hope others do the same. You’ll connect or you won’t, but you did what you could.
+ - Beware the short terminal guy with nothing to lose.
+ - I’d rather be a flash than a slowly burning ember.
+ - It’s a scary thing; moving on. Part of me wishes life were more predictable and part of me is excited that it’s not. I think it’s impossible to tell the good things from the bad things while they’re happening.
+ - Adopted. Big Deal; so was Superman.
+ - The premise of ‘Deadline’ forced me to go against my own grain with a character determined to find all that is valuable in that time. I believe this is a story about redemption; how, even with the best intentions, it’s sometimes found and sometimes not.
+ - If someone’s different from you and it scares you or makes you mad, that’s God telling you to take a closer look. If you’re scared or mad, that’s about you, not about the person who scares you or angers you.
+ - Love, in the universal sense, is unconditional acceptance. In the individual sense, the one-on-one sense, try this: we can say we love each other if my life is better because you’re in it and your life is better because I’m in it. The intensity of the love is weighted by how much better.
+ - Nothing exists without its opposite.
+ - There is no Jesus without Judas, no Martin Luther King, Jr., without the Klan; no Ali without Joe Frazier; no freedom without tyranny. No wisdom exists that does not include perspective. Relativity is the greatest gift.
+ - And I think if you’re going to be with somebody, you owe it to them to show yourself.
+ - I think when you’re dying you start looking for important things in the corners. You can’t let anything that seems even semi-important pass, because it passes forever. Things take on meaning.
+ - But the truth doesn’t need to be known, or believed, to be true.
+ - You have to be mad in the language you’re mad in.
+ - You have to be careful not to use anything too colloquial or you date the book.
+ - I think the value in books like mine, and a great number by other talented writers, is in the ability to bring dark subjects into the open where they are not so dark, where they can be talked about and considered by teens and adults alike.
+ - Censors can make a case for zero tolerance in language. They can make the argument that since we don’t allow our children to use that language in schools, we also shouldn’t give them stories in which it is used.
+ - Something about the joy and pain of that moment, something about the excruciating contrast, made me feel that no matter what happens now, my life has been worth it. What a ride.
+ - A sport has its own built-in integrity, doesn’t need an artificial one. Athletics carries its own set of truths, and those truths are diminished and manipulated by people with agendas.
+ - Sometimes a book is better than it ever had a right to be because of the history the reader brings to the reading and because of the methods educators use to bring a particular story alive.
+ - There’s only one thing to say to the censors: Shut up.
+ - It seems to me if you don’t know anything about child development you shouldn’t intimate in your ‘reporting’ that you do.
+ - I have made a career of creating characters who fight school authority and chomp at the bit to get out into the ‘real’ world and live their lives, mostly because that’s the kind of teenager I was.
+ - If you were to look at each atom as a universe unto itself, think of the number of universes within each of us.
+ - Certainly working with teens keeps me up to date with language and with certain kinds of thinking. I often feel like I have to go back to that 17-year-old Chris Crutcher, and that forms the core voice. I can draw on teens from 1964 to 2001 to find a part of the voice I need.
+ - I can’t think of a subject that is taboo for me, unless it’s one I simply don’t know anything about.
+ - I believe there was a big bang and that because of that we are all connected into infinity, and I know very little having to do with human beings that doesn’t also have to do with connection.
+
+28 quotes

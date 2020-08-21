@@ -1,0 +1,94 @@
+ - Distinguishing the signal from the noise requires both scientific knowledge and self-knowledge.
+ - Data scientist is just a sexed up word for statistician.
+ - Distinguishing the signal from the noise requires both scientific knowledge and self-knowledge: the serenity to accept the things we cannot predict, the courage to predict the things we can, and the wisdom to know the difference.
+ - When human judgment and big data intersect there are some funny things that happen.
+ - The signal is the truth. The noise is what distracts us from the truth.
+ - Accountability doesn’t mean apologizing.
+ - We must become more comfortable with probability and uncertainty.
+ - Basically, books were a luxury item before the printing press.
+ - If you have reason to think that yesterday’s forecast went wrong, there is no glory in sticking to it.
+ - By playing games you can artificially speed up your learning curve to develop the right kind of thought processes.
+ - The Protestant Reformation had a lot to do with the printing press, where Martin Luther’s theses were reproduced about 250,000 times, and so you had widespread dissemination of ideas that hadn’t circulated in the mainstream before.
+ - There’s always the risk that there are unknown unknowns.
+ - Finding patterns is easy in any kind of data-rich environment; that’s what mediocre gamblers do. The key is in determining whether the patterns represent signal or noise.
+ - Almost everyone’s instinct is to be overconfident and read way too much into a hot or cold streak.
+ - Data-driven predictions can succeed-and they can fail. It is when we deny our role in the process that the odds of failure rise. Before we demand more of our data, we need to demand more of ourselves.
+ - I have to think about how to not spread myself too thin. It’s a really great problem to have.
+ - A lot of journalism wants to have what they call objectivity without them having a commitment to pursuing the truth, but that doesn’t work. Objectivity requires belief in and a commitment toward pursuing the truth – having an object outside of our personal point of view.
+ - Midterm elections can be dreadfully boring, unfortunately.
+ - We want to get 80%-85% of predictions right, not 100%. Or else we calibrated our estimates in the wrong way.
+ - I love South American food, and I haven’t really been down there. I really need a vacation.
+ - People gravitate toward information that implies a happier outlook for them.
+ - Every four years in the presidential election, some new precedent is broken.
+ - We speak for them. We imbue them with meaning.
+ - Racism is predictable. It’s predicted by interaction or lack thereof with people unlike you, people of other races.
+ - If you’re keeping yourself in the bubble and only looking at your own data or only watching the TV that fits your agenda then it gets boring.
+ - Precise forecasts masquerade as accurate ones.
+ - People still don’t appreciate how ephemeral success is.
+ - The key to making a good forecast is not in limiting yourself to quantitative information.
+ - The thing that people associate with expertise, authoritativeness, kind of with a capital ‘A,’ don’t correlate very well with who’s actually good at making predictions.
+ - Well the way we perceive accuracy and what accuracy is statistically are really two different things.
+ - I have the same friends and the same bad habits.
+ - People attach too much importance to intangibles like heart, desire and clutch hitting.
+ - I don’t play fantasy baseball anymore now because it’s too much work, and I feel like I have to hold myself up to such a high standard. I’m pretty serious about my fantasy football, though.
+ - On average, people should be more skeptical when they see numbers. They should be more willing to play around with the data themselves.
+ - The quest for certainty in forecasting outcomes can be the enemy of progress.
+ - We need to stop, and admit it: we have a prediction problem. We love to predict things – and we aren’t very good at it.
+ - I don’t think that somebody who is observing or predicting behavior should also be participating in the ‘experiment.’
+ - When you get into statistical analysis, you don’t really expect to achieve fame. Or to become an Internet meme. Or be parodied by ‘The Onion’ – or be the subject of a cartoon in ‘The New Yorker.’ I guess I’m kind of an outlier there.
+ - You get steely nerves playing poker.
+ - We look at all the polls, not just the Gallup Poll. So, it’s kind of like if you have, you know, four out of five doctors agree that reducing cholesterol reduces your risk of a heart attack, Gallup is like the fifth doctor.
+ - People don’t have a good intuitive sense of how to weigh new information in light of what they already know. They tend to overrate it.
+ - One of the pervasive risks that we face in the information age, as I wrote in the introduction, is that even if the amount of knowledge in the world is increasing, the gap between what we know and what we think we know may be widening.
+ - I’ve become invested with this symbolic power. It really does transcend what I’m actually doing and what I actually deserve.
+ - I prefer more to kind of show people different things than tell them ‘oh, here’s what you should believe’ and, over time, you can build up a rapport with your audience.
+ - You can build a statistical model and that’s all well and good, but if you’re dealing with a new type of financial instrument, for example, or a new type of situation – then the choices you’re making are pretty arbitrary in a lot of respects.
+ - I have to make sure that I make good choices and that if I put my name on it, it’s a high-quality endeavor and that I have time to be a human being.
+ - New ideas are sometimes found in the most granular details of a problem where few others bother to look.
+ - If you aren’t taking a representative sample, you won’t get a representative snapshot.
+ - Whenever you have dynamic interactions between 300 million people and the American economy acting in really complex ways, that introduces a degree of almost chaos theory to the system, in a literal sense.
+ - I think people feel like there are all these things in our lives that we don’t really have control over.
+ - Voters memories will fade some.
+ - Race is still the No. 1 determinant in every election.
+ - You don’t want to influence the same system you are trying to forecast.
+ - Every day, three times per second, we produce the equivalent of the amount of data that the Library of Congress has in its entire print collection, right? But most of it is like cat videos on YouTube or 13-year-olds exchanging text messages about the next Twilight movie.
+ - Walk rate is probably the area in which a pitcher has the most room to improve, but a rate that high is tough to overcome.
+ - A lot of the time nothing happens in a day.
+ - I’ve just always been a bit of a dork.
+ - To be a very, very minor, eighth-tier celebrity, you realize, ‘Hey, celebrities are just like us.’
+ - I’m not trying to do anything too tricky.
+ - A lot of news is just entertainment masquerading as news.
+ - I was looking for something like baseball, where there’s a lot of data and the competition was pretty low. That’s when I discovered politics.
+ - The problem is that when polls are wrong, they tend to be wrong in the same direction. If they miss in New Hampshire, for instance, they all miss on the same mistake.
+ - The public is even more pessimistic about the economy than even the most bearish economists are.
+ - If I had a spreadsheet on my computer, it looked like I was busy.
+ - To the extent that you can find ways where you’re making predictions, there’s no substitute for testing yourself on real-world situations that you don’t know the answer to in advance.
+ - I think there’s space in the market for a half-dozen kind of polling analysts.
+ - Success makes you less intimidated by things.
+ - Not only does political coverage often lose the signal – it frequently accentuates the noise.
+ - Economy is not baseball, where the game is always played by the same rules.
+ - You don’t want to treat any one person as oracular.
+ - If the state polls are right, then Mr. Obama will win the Electoral College. If you can’t acknowledge that after a day when Mr. Obama leads 19 out of 20 swing-state polls, then you should abandon the pretense that your goal is to inform rather than entertain the public.
+ - In politics people build whole reputations off of getting one thing right.
+ - First of all, I think it’s odd that people who cover politics wouldn’t have any political views.
+ - It’s a little strange to become a kind of symbol of a whole type of analysis.
+ - We’re not that much smarter than we used to be, even though we have much more information – and that means the real skill now is learning how to pick out the useful information from all this noise.
+ - Remember, the Congress doesn’t get as many opportunities to make an impression with the public.
+ - I actually buy the paper version of The New York Times maybe once or twice a week.
+ - I think punditry serves no purpose.
+ - I don’t think you should limit what you read.
+ - All I know is that I have way more stuff that I want to write about than I possibly have time to.
+ - In baseball you have terrific data and you can be a lot more creative with it.
+ - Shakespeare’s plays often turn on the idea of fate, as much drama does. What makes them so tragic is the gap between what his characters might like to accomplish and what fate provides them.
+ - If there’s a major foreign policy event, the President gets on TV, the Congress doesn’t.
+ - We are living our lives more online and you need to have different ways to capture that.
+ - I think a lot of journal articles should really be blogs.
+ - Any one game in baseball doesn’t tell you that much, just as any one poll doesn’t tell you that much.
+ - Caesar recognized the omens, but he didn’t believe they applied to him.
+ - We’re living in a world where Google beats Gallup.
+ - I guess I don’t like the people in politics very much, to be blunt.
+ - When a possibility is unfamiliar to us, we do not even think about it.
+ - A lot of things can’t be modeled very well.
+ - I view my role now as providing more of a macro-level skepticism, rather than saying this poll is good or this poll is evil.
+
+92 quotes

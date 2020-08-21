@@ -1,0 +1,22 @@
+ - I’m a huge fan of Steve Martin. He’s hilarious, but he has this depth to him and this way of dealing with the difficult things in life with a sense of humor that I think has helped me as an actress.
+ - I went to an all-girls school for part of high school, and the idea of boys was amazing to me, like, all I ever wanted to do was kiss boys and be around boys.
+ - I use a lot of sense memory and, well, I can’t really avoid getting into character.
+ - Im a combination between extreme insecurity and extreme confidence.
+ - I’m really easily affected by horror films. I have pretty strong reactions to them.
+ - I love to travel, and I think being whisked away somewhere for a vacation is a pretty amazing date. But, I’m really into the basic movie and dinner. It’s not where you are, but who you’re with that really matters.
+ - Going to the darkest place you can to make yourself really upset and adding that with the physicality and running around, you can work yourself into hysteria that way.
+ - Finding a stylist is a little like finding a date; you have to find who is right for you.
+ - When I was little, I thought about becoming a lawyer like my parents, and my mother would always tell me, “You can do anything you want – except be a lawyer.”
+ - I am horror fan in that I think that they are very effective on me. I get scared very easily. I am a scaredy cat. When I was younger, my mom used to rent Alfred Hitchock films, so I saw a couple of those and I was terrified by them.
+ - I love stories about people that, whatever situation they’re in, you can relate to them in a way.
+ - I really love Charlize Theron. I’ve never met her before, but she seems really down-to-earth in interviews, really intelligent and funny and cool – and she’s just this glorious goddess who holds herself with such confidence.
+ - I think my parents saw that acting ultimately made me happy, even though it was a rough ride for a little bit. There wasn’t a ton of pushback about it.
+ - I try to write my own music. It’s a good way of de-stressing.
+ - I’m a huge baby and horror films just terrify me, they’re very effective with me.
+ - I definitely have role models. But it’s hard to say, “Okay, I want to be Angelina Jolie,” or “I want to be Charlize Theron.”
+ - Any time you do a movie there are going to be war wounds that you end up getting.
+ - I never know what’s going to happen or what opportunities are going to be given to me. I’ve found with the opportunities that I’ve been given have made it possible for me to explore different characters and exciting stories.
+ - I’ve had those relationships, and you have to make those mistakes to find out what we really want.
+ - Acting is a really strange thing. You have to know when you’re put in a bad situation, but you also have to be willing to do something very strange.
+
+20 quotes

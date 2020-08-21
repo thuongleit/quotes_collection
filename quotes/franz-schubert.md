@@ -1,0 +1,37 @@
+ - I try to decorate my imagination as much as I can.
+ - Who can do anything after Beethoven?
+ - Anyone who loves music can never be quite unhappy.
+ - There is no such thing as happy music.
+ - Happy is the man who finds a true friend, and far happier is he who finds that true friend in his wife.
+ - Every night when I go to bed, I hope that I may never wake again, and every morning renews my grief.
+ - No one really understands the grief or joy of another. We always imagine that we are approaching some other, but our lines of travel are actually parallel.
+ - Easy mind, light heart. A mind that is too easy hides a heart that is too heavy.
+ - I am in the world only for the purpose of composing.
+ - No one feels another’s grief, no one understands another’s joy. People imagine they can reach one another. In reality they only pass each other by.
+ - O Mozart, immortal Mozart, how many, how infinitely many inspiring suggestions of a finer, better life you have left in our souls!
+ - When I wished to sing of love, it turned to sorrow. And when I wished to sing of sorrow, it was transformed for me into love.
+ - If only your pure and clean mind could touch me, dear Haydn, nobody has a greater reverence for you than I have.
+ - You believe happiness to be derived from the place in which once you have been happy, but in truth it is centered in ourselves.
+ - The guitar is a wonderful instrument which is understood by few.
+ - Love is in the air these days, so we thought we’d give a try to make your day a little brighter.
+ - There are eight girls in the house in which I am living, and practically all of them are good looking. You can realize that I am kept busy.
+ - Why does God endow us with compassion?
+ - It sometimes seems to me as if I do not belong to this world at all. I deplore music that engenders in people not love but madness: which rouses them to scornful laughter instead of lifting their thoughts to God.
+ - My compositions spring from my sorrows. Those that give the world the greatest delight were born of my deepest griefs.
+ - No one feels another’s grief...
+ - The world resembles a stage on which every man is playing a part.
+ - One bites into the brass mouthpiece of his wooden cudgel, and the other blows his cheeks out on a French horn. Do you call that Art?
+ - The greatest misfortune of the wise man and the greatest unhappiness of the fool are based upon convention.
+ - Our castle is not imposing, but is well built, and surrounded by a very fine garden. I live in the bailiff’s house.
+ - I am composing like a god, as if it simply had to be done as it has been done.
+ - What a picture of a better world you have given us, Mozart!
+ - There are two contrary impulses which govern this man’s brain-the one sane, and the other eccentric. They alternate at regular intervals.
+ - Why should the composer be more guilty than the poet who warms to fantasy by a strange flame, making an idea that inspires him the subject of his own very different treatment?
+ - A man endures misfortune without complaint.
+ - Above all things, I must not get angry. If I do get angry I knock all the teeth out of the mouth of the poor wretch who has angered me.
+ - The manager is to be blamed who distributes parts to his players which they are unable to act.
+ - I never force myself to be devout except when I feel so inspired, and never compose hymns of prayers unless I feel within me real and true devotion.
+ - Approval or blame will follow in the world to come.
+ - No one really understands the grief or joy of another.
+
+35 quotes

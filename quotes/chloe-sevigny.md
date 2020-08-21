@@ -1,0 +1,77 @@
+ - I’m a sucker for packaging!
+ - I know who I am by now. And I am my own brand.
+ - People always come up to me and say, Oh, you’re Chloe Se-VIG-ny, right? Sevigny. Number seven, letter e.
+ - I bought a pair of Birkenstocks today – let’s be real. I wanted a chunky sandal that was functional. That should tell you where I am at as far as fashion.
+ - I wish I looked more like my mother, but I think I look like my father. I wish I had one of those naturally beautiful faces. Or a more quirky face. I’m right down the middle: not interesting enough, not pretty enough.
+ - I am a Scorpio, and playing the seductress appeals to me. There are a lot of women throughout film history, like Marlene Dietrich or Mae West – those are the women I was always attracted to. The bad girls.
+ - I would love to do a sweeping romantic period drama, like Jane Eyre. That would be my dream. It’s always been my dream, as far as acting.
+ - If I’m feeling down in the dumps, or like I need a pop of colour, I’ll put on MAC’s Lipstick in Lady Danger. I discovered red lipstick when I did the Oscar season: Chanel sent me one and I realised how classic and glamorous it can be.
+ - New York is so diverse. When you’re on the street or in the subway, you’re experiencing more of the diversity of New York.
+ - I’d like to be more approachable, not less weird.
+ - I do a dance-based cardio workout infused with circuit training, and emphasizing strength and alignment.
+ - It’s like you always have to put on a happy face, be the phony baloney, and I’m so not that. I never was that; I’ll never be that. That is part of the business that I don’t like. Maybe that will always keep me an outsider, I don’t know. But that’s fine.
+ - I find most men don’t like a lot of makeup.
+ - I wish I could take back every interview. Over and over again, I read them later, and either I’m misquoted or I said something stupid. I’m just not very good at it.
+ - I had a weird dream the other night that I was on ‘Jersey Shore.’
+ - I’m really into a blush on the eyelid and on the high of the cheek. The singer of ‘Cocteau Twins’ used to do that – really pink eyelids. It added a little romance to the hard kind of street-edge clothes.
+ - I think my legs are a strong point, so I try to draw attention to them rather than the upper part of my body.
+ - I’m definitely a lash girl. I feel they are my best feature. I have tried lots of mascaras. I was drawn to Lancome Doll Lashes recently. Not only because of the name, but it smells like roses! I usually add a few coats of it for a night out.
+ - To be a true icon, you have to have style emanating from you. And you have to have figured it out on your own and have a point of view, a perspective, and be able to translate it in some personal way.
+ - I am most proud of my integrity and least proud of my cynicism.
+ - I want a guy who is masculine, good with his hands and able to build stuff and who has survival skills. Facial hair is a big turn-on. Most of the kids I hang out with in New York are hipster arty types, but I like a stronger, more physically imposing man – like a lumberjack.
+ - I think it’s just a lot more pressure to make the scenes work when you’re doing a film, because when you’re doing a series you feel like, I have so many scenes, so many episodes, so if I don’t get it exactly right this time, I have another scene later. You feel less pressure.
+ - I definitely spend the most money on shoes, partly because vintage footwear can be a little funky – in a bad way. I like to keep things pretty simple up top and then go weird with the shoes.
+ - Most of the models have this thing I call slouchy sexy, not only in the way they dress, but in the way carry themselves. I don’t think they would look hot in one of my dresses. They are more into A. Wang. Most of my clothes are nerdy sexy.
+ - I always like my trailer or hotel room to have fresh flowers or pillows I find at a local flea market – anything to personalize the environment.
+ - The umlaut isn’t on my birth certificate. I had this book as a child called Chloe and Maude, and there was an umlaut on the e, and I said, I want that! It’s a little flair. Just to confuse people even more.
+ - Even buying a swimsuit is super difficult. And then making one is even harder.
+ - I was a girly-girl until I moved to New York. Then I got really into the androgynous look of the early-’90s club scene. I had really short hair and started blurring the line a bit. But for me, grade school was about Benetton, Esprit, and Guess jeans.
+ - I hate going to fashion shows. I find them boring.
+ - As of late, I am more of a homebody. I like having people over. You can smoke in the apartment. I’m just not into going out so much. The crowd is getting younger and younger.
+ - I take the subway because I don’t like having someone else driving. It’s hard for me to be in a cab, because the traffic makes me feel insane. On the subway you’re getting there faster and it’s easier.
+ - My room was a real way of expressing myself. It was like a little nest that I could settle into.
+ - My mum’s advice is never to whine to my friends, so they never see the other side of me. I save all my problems for my mother.
+ - I’m frugal. It’s often cheaper to take the subway. And I’m an environmentalist, which my mother instilled in me, so I really believe in public transportation. And finally, I love the proximity to people in the subway.
+ - I’d like to find someone to procreate with – as sexy as that sounds. If you’re out and about and fit the description, come up and say hi. I won’t bite. Well, maybe a little, if you’re lucky.
+ - It’s not what you spend but how you wear it that counts. The key is often to dress up inexpensive basics with accessories. Something like a beautiful designer bag or belt can make everything else look richer and more luxurious.
+ - In Hollywood, you can’t say anything bad about anybody or everyone is going to attack you.
+ - The media loves negative spin.
+ - I was very troubled, yes. Me and my brother both – we were troubled and troublemakers.
+ - I’m single, so I’m trying to do an overall overhaul. The look I’m going for is very ’80s supermodel. It’s time to be sexy.
+ - Muse. Mu-se. It’s a great thing, for someone to feel that they can draw inspiration from you. And I don’t think it’s necessarily a man ‘taking’ from a woman. It can go both ways, both can stimulate, excite.
+ - When I was younger, I was really anti-Hollywood. Now I’m more accepting of it because I’m less of a snob.
+ - Fashion embraces the weirdos. They’re into that. There are always young people that people in fashion are interested in. You know, youth and vitality and energy – it brings something different.
+ - There’s this index that tallies up how much your movies have made, and if they haven’t grossed a certain amount, then you’re not bankable. I know I’m not Will Smith but, you know, my ranking’s pretty low. The only studio picture I’ve done is ‘Zodiac,’ and that didn’t perform that well.
+ - The first time I went to therapy, I had to stop going because they were making me hate my parents.
+ - I refrain from lots of things I love, like cheese and carbs. I eat plenty of greens every day, my favorite being watercress.
+ - When I was a teenager, I was really into hair; I dyed it different colours and had loads of haircuts. I shaved my head when I was 17 – it was pretty radical!
+ - I feel terrible about corporate greed. Growing up in a household that was a little more humble and didn’t put so much emphasis on money and material goods, I think I have a pretty good head on my shoulders.
+ - I’ve been texting for a year with a couple of guys without ever going on a date with them.
+ - Actors rarely stay in touch with directors after they’ve filmed together. We go back to real life.
+ - If I could edit Google Images, then I wouldn’t be as scared of the Internet.
+ - I love cleaning the house. I’d never have a cleaner – I wouldn’t trust them to do it.
+ - I’m kind of intimidated by the big screen – I often keep my performances much smaller and much more natural and subtle.
+ - My first job was in sixth grade, sweeping the clay tennis courts at the yacht club near my house, which I was not a member of. Always had to pay my own rent. But I don’t really have any concept of how money works. I don’t know how much things cost. Like a BMW. Or a quart of milk. It’s embarrassing.
+ - When I get a fringe, it’s because I’m bored or need a change; I always regret it!
+ - I have the insecurities of any actress, I suppose of any woman. Even the most beautiful ones feel unhappy. Look at Bardot: she was suicidal. But I like to play with the camera. I like to ham it up.
+ - I permed my hair 12 years ago, because I always wanted a perm, but my mother would never let me have one! I got a lot of stick, but I didn’t care – I loved the curls. The growing out was the difficult part!
+ - I’m more conservative with make-up. My everyday look is a bit of concealer with lots and lots of mascara.
+ - I’ve been an outsider all my life – I don’t care.
+ - I don’t like to read about myself, whether it be positive or negative.
+ - I don’t swim! That’s like athletic.
+ - I think once you’re past 30 you shouldn’t wear a lot of glitter.
+ - I couldn’t survive just doing independent movies. And I’d rather do modelling than movies or TV I didn’t like.
+ - I feel like we were the last generation, and there’s this big divide before and after the 1990s. I feel sorry for the kids today. It’s all too much.
+ - The realism frightens me more than the bubble gum-y, heightened stuff.
+ - I always feel I could be like Toni Collette, going between big studio things and indie films. That would be feasible.
+ - I’m not the greediest person. Of course, I work in a business where that’s all relative and there’s a lot of money to be made. I think I’m satisfied making as much as I have and I don’t feel particularly driven to have more.
+ - There’ll always be that prep in me that I can’t seem to get rid of.
+ - Sadly, I haven’t been doing a lot of kissing lately.
+ - I think to be a true style icon, you just have to dress yourself. There are so many actresses floating around who have people picking out their outfits for them; that’s hard for me to wrap my head around or celebrate.
+ - I had always wanted to be an actress. I went to summer theater camp from kindergarten on up until high school, and always had the leads in all the plays – even though they were at the YMCA – but it was something I always wanted to do.
+ - The film industry is so fickle about financing, and it’s so difficult to get movies made.
+ - It’s hard to encapsulate my inspiration because there are so many different looks, but I think it’s just like, sexy girl you see walking down the street in a cool outfit. A lot of eyelet, a lot of leather, playing with the hard and the soft, the good and bad inside of us all.
+ - Even having to do the amount of press that I have to do is dreadful and gives me so much anxiety. After having done this whole slew of press for ‘Big Love,’ now I’ll have anxiety dreams for like a week and a half about all the stupid things I said.
+ - It’s a great thing, for someone to feel that they can draw inspiration from you.
+
+75 quotes

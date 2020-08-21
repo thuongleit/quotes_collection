@@ -1,0 +1,132 @@
+ - Speed, agility and responsiveness are the keys to future success.
+ - Communication is the key for any global business.
+ - To succeed you have to believe in something with such a passion that it becomes a reality.
+ - Being good is good business.
+ - Be courageous. It’s one of the only places left uncrowded.
+ - If you think you’re too small to have an impact, try going to bed with a mosquito.
+ - Be daring. Be first. Be different.
+ - Whatever you do, be different. If you’re different, you will stand out.
+ - The key to handling problems and conflict within an organization is to keep the channels of communication wide open.
+ - Corporate crime kills far more people and costs taxpayers far more money than street crime.
+ - Get informed. Get outraged. Get inspired. Get active.
+ - I want to work for a company that contributes to and is part of the community. I want something not just to invest in. I want something to believe in.
+ - Three components make an entrepreneur: the person, the idea and the resources to make it happen.
+ - Running a company on market research is like driving while looking in the rear-view mirror.
+ - The growth of The Body Shop is testimony to the fact that you don’t need to waste money on costly advertising campaigns to be successful. Instead, we’ve always relied on word of mouth and stories.
+ - Nobody talks of entrepreneurship as survival, but that’s exactly what it is and what nurtures creative thinking.
+ - It is true that there is a fine line between entrepreneurship and insanity. Crazy people see and feel things that others don’t. But you have to believe that everything is possible. If you believe it, those around you will believe it too.
+ - Don’t underestimate the power of the vigilante consumer.
+ - If you don’t believe one person can make a difference, you have never been in bed with a mosquito.
+ - Be special. Be anything but mediocre.
+ - Travel is like a university without walls.
+ - Never feel too small or powerless to make a difference.
+ - We entrepreneurs are loners, vagabonds, troublemakers. Success is simply a matter of finding and surrounding ourselves with those open-minded and clever souls who can take our insanity and put it to good use.
+ - We communicate with passion and passion persuades.
+ - The predominant idea behind globalization, in its most virulent form, is an unpleasant kind of social Darwinism – that the world is for winners not losers, that only the successful count, that money is considerably more important than votes.
+ - We are essentially outsiders and that is the best definition of an entrepreneur I have ever come across.
+ - We should be evolving into a new age of business with a worldview that maintains one simple proposition-that all of nature: humans, animals, earth, are interconnected and interdependent.
+ - You have to look at leadership through the eyes of the followers and you have to live the message.
+ - Some men give up their designs when they have almost reached the goal; while others, on the contrary, obtain a victory by exerting, at the last moment, more vigorous efforts than ever before. Herodotus, historian If I had to name a driving force in my life, I’d name passion every time.
+ - Make heroes out of the employees who personify what you want to see in the organization.
+ - The market controls everything, but the market has no heart.
+ - You’ve got to be hungry – for ideas, to make things happen and to see your vision made into reality.
+ - People don’t want simply to buy the product, they want to have sympathy with the company too.
+ - Irritation is a great source of energy and creativity.
+ - I’m an activist and I come from a very socialist background. For me, my thinking was formed by great thought leaders. And wealth preserving wasn’t part of my thinking.
+ - Consumers have not been told effectively enough that they have huge power and that purchasing and shopping involve a moral choice.
+ - Creativity comes by breaking the rules, by saying that you’re in love with the anarchist.
+ - My argument is: keep the bloody bottom line at the bottom. That’s where it should be.
+ - I think the leadership of a company should encourage the next generation not just to follow, but to overtake.
+ - One of the most intriguing things in management and in business is the role of storytelling – people need the anecdotes to do the work that they do.
+ - Ninety-nine per cent of what we say is about values. I firmly believe that ethical capitalism is the best way of changing society for the better.
+ - I believe in businesses where you engage in creative thinking, and where you form some of your deepest relationships. If it isn’t about the production of the human spirit, we are in big trouble.
+ - You educate people, especially young people, by stirring their passions, so you take every opportunity to grab the imagination of your employees, you get them to feel they are doing something important, that they are not a lone voice, that they are the most powerful and potent people on the planet.
+ - Entrepreneurs are outsiders by nature – outsiders with a work ethic.
+ - I want to define success by redefining it. For me it isn’t that solely mythical definition – glamour, allure, power of wealth, and the privilege from care. Any definition of success should be personal because it’s so transitory. It’s about shaping my own destiny.
+ - There are 3 billion women in the world who don’t look like supermodels and only 8 that do.
+ - The business of business should not be about money. It should be about responsibility. It should be about public good, not private greed.
+ - A woman in advancing old age is unstoppable by any earthly force. I love it.
+ - My passionate belief is that business can be fun, it can be conducted with love and a powerful force for good.
+ - Cynicism is what passes for insight when courage is lacking.
+ - I have always found that my view of success has been iconoclastic: success to me is not about money or status or fame, its about finding a livelihood that brings me joy and self-sufficiency and a sense of contributing to the world.
+ - Women are networkers, women hate hierarchy and especially entrepreneurs hate hierarchy because when they see hierarchy structured in they see rules and regulations are commonplace, and they want to tear it down.
+ - The end result of kindness is that it draws people to you.
+ - Let me tell you how the French seduce you. They are the most bloody seductive people on Earth. They are charming, they are well-mannered and they praise and flatter you.
+ - Since the governments are in the pockets of businesses, who’s going to control this most powerful institution? Business is more powerful than politics, and it’s more powerful than religion. So it’s going to have to be the vigilante consumer.
+ - There is no scientific answer for success. You can’t define it. You’ve simply got to live it and do it.
+ - A vision is something you see and others don’t. Some people would say that’s a pocket definition of lunacy. But it also defines entrepreneurial spirit.
+ - Economic globalization creates wealth, but only for the elite who benefit from the surge of consolidations, mergers, global scale technology, and financial activity.
+ - Not all revolutionaries set out to change the world per se; some set out to change their own worlds. And in so doing, they often change the way one person, or a few people, or whole communities, or entire nations or the world thinks and operates in some significant way.
+ - The Body Shop Foundation is run by our staff and supports social activism and environmental activism. We don’t tend to support big agencies.
+ - I have no interest in being the biggest, the most profitable or the largest retailer. I just want The Body Shop to be the best, most breathlessly exciting company – and one that changes the way business is carried out.
+ - When you run an entrepreneurial business, you have hurry sickness – you don’t look back, you advance and consolidate. But it is such fun.
+ - If I can’t do something for the public good, what the hell am I doing?
+ - When your back is against the wall financially, creative juices flow.
+ - Any business or enterprise that shaves away loneliness is going to last forever. And like it or not but we’ve got a lonely society.
+ - If there is excitement in their lives, it is contained in the figures on the profit and loss sheet. What an indictment.
+ - There are only two ways of making money: the hard way and the very hard way!
+ - We have our values from the church, the temple, the mosque. Do not rob, do not murder. But our behaviour changes the minute we go into the corporate place. Suddenly all of this is irrelevant.
+ - By definition, design, and practice, capitalism is a system that concentrates economic power in the hands of the few to the exclusion of the many.
+ - I don’t want to be defined by being the founder of the Body Shop, and I don’t want to be defined as a woman suffering from Hepatitis C. There’s more to my life than that.
+ - Tap the energy of the anarchist and he will be the one to push your company ahead.
+ - I think it is completely immoral for a shop to trade in the middle of a community, to take money and make profits from that community and then ignore the existence of that community, its needs and problems.
+ - To me the desire to create and to have control over your own life, irrespective of the politics of the time or social structures, has always been a part of the human spirit. What I did not fully realize was that work could open the doors to my heart.
+ - I believe that conventional marketing techniques are increasingly ineffective. Customers are hyped out. They have been overmarketed. They are becoming more cynical about the whole advertising and marketing process.
+ - Every time you buy something consider it a vote of confidence in the company that produced it.
+ - Entrepreneurs are visionaries – they see things other people don’t see.
+ - A Sense Of Outrage Is Essential For The Entrepreneurial Spirit. I Think Discontentment Drives You To Want To Do Something About It. And My Outrage Came Very Early On.
+ - It is a critical job of any entrepreneur to maximize creativity, and to build the kind of atmosphere around you that encourages people to have ideas. That means open structures, so that accepted thinking can be challenged.
+ - But if you can create an honorable livelihood, where you take your skills and use them and you earn a living from it, it gives you a sense of freedom and allows you to balance your life the way you want.
+ - My mother’s bottom line was truth to her values. It meant bringing your heart and your humanity to work.
+ - The next time you go shopping, demand more change.
+ - The beauty and the fashion industry want to control you. And the way that they do it through your body. So once they control your body they control your purse and the products you buy. Its a fantastic strategy and it’s working.
+ - All through history, there have always been movements where business was not just about the accumulation of proceeds but also for the public good.
+ - I think it’s just fear of death. I can’t bear to go to sleep. There’s very little, you know, between an entrepreneur and a crazy person.
+ - Women are storytellers, they are communicators. They’ll go and sit around a table and talk about their first date, their first smoke, their first lipstick, whatever it is. Those rituals of life, marriages and death aren’t part of the language of men.
+ - By creating conversation, we let our customers spread our message by word of mouth.
+ - You’ve got so many groups that have no voice in this world – the indigenous, the poor. So how can I use the resources that I have and bring them up, highlight them. And it’s not that difficult. It’s just choosing and concentrating and focusing.
+ - First, you have to have fun. Second, you have to put love where your labour is. Third, you have to go in the opposite direction to everyone else.
+ - Why should how I act in my workplace be any different from how I interact with my family at home? It’s making sure the company runs on feminine principles where the major ethic is care.
+ - If you really didn’t ever want to get wrinkles, then you should have stopped smiling years ago!
+ - I am aware that success is more than a good idea. It is timing too.
+ - I think that business practices would improve immeasurably if they were guided by “feminine” pinciples, qualities like love, care, and intuition.
+ - Quite apart from anything else, my experience is trying to change things for the better makes you feel better, healthier. Humans are communicative animals: when you do good in a community, the benefits eventually get back to you.
+ - You can’t change t he wor ld f rom t he rear view mir ror.
+ - Traditionally, the role of the individual was to conform to the organization. In the future the organization will have to conform to the needs of the individual.
+ - The most exciting thing happening in business is the rise of vigilante consumers.
+ - We can’t have self-government without the self-confidence that is at the root of it.
+ - If civilization is going to survive, business and policy-makers must move on, to find within themselves more developed emotions than fear or greed.
+ - I think progress is a sort of comfortable disease, and we’ve got a media that says entertainment and celebrity, which isn’t bad in itself but it stops the real issues coming forward.
+ - I’d have opened a bloody library if I’d wanted to be quiet.
+ - Whatever you do, be different – that was the advice my mother gave me, and I can’t think of better advice for an entrepreneur. If you’re different, you will stand out.
+ - When you take the high moral road it is difficult for anyone to object without sounding like a complete fool.
+ - If you’ve got a partner that’s supportive and you’re doing something you enjoy it doesn’t ever become a job or a burden. Its about community, new friendships, support mechanism.
+ - We are honest about our methods and our mistakes. We are not perfect – it isn’t possible to be perfect – but we are trying to go in the right direction and in those circumstances, it’s best not to mystify what we are trying to do.
+ - Advertising beauty products is easy. All you have to do is revile your customers by creating a disease called getting older, and then provide a remedy which does not work.
+ - Never be seduced into believing it isn’t the role of business to tackle the big issues, because it absolutely is.
+ - The word love is never mentioned in big business.
+ - At The Body Shop we had always been measured by how many jobs we had created, and I got a major award from the Queen on that.
+ - With fewer and fewer corporations controlling more and more of the world’s trade, there is an ever greater need to know more about the practices of these large faceless organizations.
+ - How can you ennoble the spirit when you are selling something as inconsequential as a face cream?
+ - People I work with are open to leadership that has a vision, but this vision has to be communicated clearly and persuasively, and always, always with passion.
+ - You persuade people with passion, so you’ve got to have a product or service you feel emotionally charged about. Then you can tell stories about it that will inspire others.
+ - Retiring isn’t even a word I’d understand. Taking what makes you feel alive, and everyone’s looking for ways of making them feel alive, in whatever they do – relationships, business or work – and not just being a voice for a money making business.
+ - There are a lot of dark sides to success, but the light side of it is the ability to be opportunistic, and to be able to do things.
+ - The freedom that comes with globalization is freedom for the rich and powerful nations to further exploit and further marginalize those at the bottom of the social ladder.
+ - Look at the Quakers – they were excellent business people that never lied, never stole; they cared for their employees and the community which gave them the wealth. They never took more money out than they put back in.
+ - The big question is: how do you institutionalize success and still keep that edge of craziness and wildeness?
+ - If trade undermines life, narrows it or impoverishes it, then it can destroy the world. If it enhances life, then it can better the world.
+ - The aging process is fascinating because it doesn’t disturb me, because this is what it is supposed to be like. But I’ll tell you what does – it’s the lack of strength – you can’t hold up suitcases and do it yourself. Loss of physical strength.
+ - A great advantage I had when I started The Body Shop was that I had never been to business school.
+ - Mess with nature and it will mess right back...
+ - We were most creative when our back was against the wall.
+ - If I had to name a driving force in my life, I would name PASSION every time.
+ - I didn’t go to business school, didn’t care about financial stuff and the stock market.
+ - The money that we make from the company goes into The Body Shop Foundation, which isn’t one of those awful tax shelters like some in America. It just functions to take the money and give it away.
+ - If you pretend that business is beyond morality, that’s the kind of morality you get.
+ - If you do things well, do them better. Be daring, be first, be different, be just.
+ - I hope to leave my children a sense of empathy and pity and a will to right social wrongs.
+ - What we are trying to do is to create a new business paradigm, simply showing that business can have a human face and a social conscience.
+ - Maybe this is what the future will look like: fresh, clean water will be so rare it will be guarded by armies. Water as the next oil – the next resource worth going to war over.
+
+130 quotes

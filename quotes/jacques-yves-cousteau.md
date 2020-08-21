@@ -1,0 +1,64 @@
+ - For most of history, man has had to fight nature to survive; in this century he is beginning to realize that, in order to survive, he must protect it.
+ - From birth, man carries the weight of gravity on his shoulders. He is bolted to earth. But man has only to sink beneath the surface and he is free.
+ - Water and air, the two essential fluids on which all life depends, have become global garbage cans.
+ - The impossible missions are the only ones which succeed.
+ - When one man, for whatever reason, has the opportunity to lead an extraordinary life, he has no right to keep it to himself.
+ - The reason I love the sea I cannot explain – it’s physical. When you dive you begin to feel like an angel. It’s a liberation of your weight.
+ - Overconsumption and overpopulation underlie every environmental problem we face today.
+ - We forget that the water cycle and the life cycle are one.
+ - The sea, once it casts its spell, holds one in its net of wonder forever.
+ - When we return wild animals to nature, we merely return them to what is already theirs. For man cannot give wild animals freedom, they can only take it away.
+ - In the deep space of the sea I have found my moon.
+ - The best way to observe a fish is to become a fish.
+ - Population growth is the primary source of environmental damage.
+ - People protect what they love.
+ - In order to stabilize world population, we must eliminate 350,000 per day.
+ - I am absolutely enraptured by the atmosphere of a wreck. A dead ship is the house of a tremendous amount of life-fish and plants. The mixture of life and death is mysterious, even religious. There is the same sense of peace and mood that you feel on entering a cathedral.
+ - The happiness of the bee and the dolphin is to exist. For man it is to know that and to wonder at it.
+ - I wake up saying, I’m still alive; a miracle. And so I keep on pushing.
+ - If we were logical, the future would be bleak, indeed. But we are more than logical. We are human beings, and we have faith, and we have hope, and we can work.
+ - I was playing when I invented the aqualung. I think play is the most serious thing in the world.
+ - There is about as much educational benefit to be gained in studying dolphins in captivity as there would be studying mankind by only observing prisoners held in solitary confinement.
+ - In order to save the planet it would be necessary to kill 350,000 people per day.
+ - I said that the oceans were sick but they’re not going to die. There is no death possible in the oceans – there will always be life – but they’re getting sicker every year.
+ - Mankind has probably done more damage to the Earth in the 20th century than in all of previous human history.
+ - What is a scientist after all? It is a curious man looking through a keyhole, the keyhole of nature, trying to know what’s going on.
+ - We must plant the sea and herd its animals using the sea as farmers instead of hunters. That is what civilization is all about – farming replacing hunting.
+ - The sea, the great unifier, is man’s only hope. Now, as never before, the old phrase has a literal meaning: we are all in the same boat.
+ - Sometime we are lucky enough to know that our lives have been changed, to discard the old, embrace the new, and run headlong down an immutable course.
+ - And let us remember too that life, in its exuberance, always succeeds in overflowing the narrow limits within which man thinks he can confine it.
+ - We are living in an interminable succession of absurdities imposed by the myopic logic of short-term thinking.
+ - The future of nutrition is found in the oceans.
+ - We must go and see for ourselves.
+ - It takes generosity to discover the whole through others. If you realize you are only a violin, you can open yourself up to the world by playing your role in the concert.
+ - We are human beings, and we have faith, and we have hope.
+ - Farming as we do it is hunting, and in the sea we act like barbarians.
+ - Under water, man becomes an archangel.
+ - Man, of all the animals, is probably the only one to regard himself as a great delicacy.
+ - Without ethics, everything happens as if we were all five billion passengers on a big machinery and nobody is driving the machinery. And it’s going faster and faster, but we don’t know where.
+ - No aquarium, no tank in a marine land, however spacious it may be, can begin to duplicate the conditions of the sea. And no dolphin who inhabits one of those aquariums or one of those marine lands can be considered normal.
+ - Through the window of my mask I see a wall of coral, its surface a living kaleidoscope of lilac flecks, splashes of gold, reddish streaks and yellows, all tinged by the familiar transparent blue of the sea.
+ - With earth’s burgeoning human population to feed we must turn to the sea with understanding and new technology. We need to farm it as we farm the land.
+ - If human civilization is going to invade the waters of the earth, then let it be first of all to carry a message of respect.
+ - The road to the future leads us smack into the wall. We simply ricochet off the alternatives that destiny offers. Our survival is no more than a question of 25, 50 or perhaps 100 years.
+ - Buoyed by water, he can fly in any direction-up, down, sideways-by merely flipping his hand. Under water, man becomes an archangel.
+ - The sea is not a bargain basement.
+ - To restate an old law – when a man bites a fish, that’s good, but when a fish bites a man, that’s bad. This is one way of saying it’s all right if man kills an animal, but if an animal attacks man, the act is reprehensible.
+ - The sea is the universal sewer.
+ - We know how to organize warfare, but do we know how to act when confronted with peace?
+ - Perhaps the time has come to formulate a moral code which would govern our relations with the great creatures of the sea as well as with those on dry land. That this will come to pass is my dear wish.
+ - It’s terrible to have to say this. World population must be stabilized and to do that we must eliminate 350,000 people per day. This is so horrible to contemplate that we shouldn’t even say it. But the general situation in which we are involved is lamentable.
+ - There was wildlife, untouched, a jungle at the border of the sea, never seen by those who floated on the opaque roof. Describing his early experience, in 1936, when a fellow naval officer, Philippe Tailliez, gave him goggles to see below the Mediterranean Sea surface.
+ - It is certain that the study of human psychology, if it were undertaken exclusively in prisons, would also lead to misrepresentation and absurd generalizations.
+ - However fragmented the world, however intense the national rivalries, it is an inexorable fact that we become more interdependent every day.
+ - I am not a scientist. I am, rather, an impresario of scientists.
+ - If we go on the way we have, the fault is our greed and if we are not willing to change, we will disappear from the face of the globe, to be replaced by the insect.
+ - May this continent, the last explored by humankind, be the first one to be spared by humankind.
+ - The awareness of our environment came progressively in all countries with different outlets.
+ - All life is part of a complex relationship in which each is dependent upon the others, taking from, giving to and living with all the rest.
+ - A lot of people attack the sea, I make love to it.
+ - I experimented with all possible maneuvers-loops, somersaults and barrel rolls. I stood upside down on one finger and burst out laughing, a shrill, distorted laugh. Nothing I did altered the automatic rhythm of the air. Delivered from gravity and buoyancy, I flew around in space.
+ - I believe that national sovereignties will shrink in the face of universal interdependence.
+ - No sooner does man discover intelligence than he tries to involve it in his own stupidity.
+
+62 quotes

@@ -1,0 +1,36 @@
+ - Forgiveness flounders because I exclude the enemy from the community of humans and myself from the community of sinners.
+ - The difference between justice and forgiveness: To be just is to condemn the fault and, because of the fault, to condemn the doer as well. To forgive is to condemn the fault but to spare the doer. That’s what the forgiving God does.
+ - To triumph fully, evil needs two victories, not one. The first victory happens when an evil deed is perpetrated; the second victory, when evil is returned. After the first victory, evil would die if the second victory did not infuse it with new life.
+ - Honoring everyone contains the promise of possibility.
+ - Christ’s indwelling presence has freed us from exclusive orientation toward ourselves and opened us up in two directions: toward God, to receive the good things in faith, and toward our neighbor, to pass them on in love.
+ - Theology is not only about understanding the world; it is about mending the world.
+ - If we don’t learn to live with one another we will not live. We will either love each other as neighbors or we won’t be. I believe that it is an insult to me as a Christian to say that I cannot love as neighbor somebody who thinks differently than I do.
+ - There is no more effective way to radicalize American Muslim youth than for political leaders to make public displays of prejudice against all Muslims. Suspicion will undermine their sense of identification with America and alienate some from both the culture and from politics.
+ - Christ came to transform us from never enough people – to more than enough people; that through his poverty we may become rich.
+ - Whatever the reasons, when forgiveness happens it is always a miracle of grace. The obstacles in its way are immense.
+ - If I say, ‘I forgive you,’ I have implicitly said you have done something wrong to me. But what forgiveness is at its heart is both saying that justice has been violated and not letting that violation count against the offender.
+ - Prejudice is a form of untruthfulness, and untruthfulness is an insidious form of injustice.
+ - In a way, fraud in business is no different from infidelity in marriage or plagiarism in scholarly work. Even people committed to high moral standards succumb.
+ - I do believe that Muslims and Christians and Jews pray to the same God. And yet they understand who God is in significantly different ways.
+ - Christians believe that there will be a Judgment Day at the end. And it is my belief that on that day justice will be done and there will be a reconciliation between those who have profoundly injured one another takes place.
+ - The goal of pursuit of justice must not simply be that justice happens but that reconciliation also happens.
+ - If you take the ‘love your enemy’ out of Christianity, you’ve ‘unChristianed’ the Christian faith.
+ - Every word and every deed, every thought and every gesture, even the simple act of paying attention can be a gift and therefore an echo of God’s life in us.
+ - The significance of the crucifixion is not only what God does for us; consistently throughout the New Testament the crucifixion is portrayed as the pattern that we are to follow. It is a model of social behavior toward the other as well as a statement about what God has done for us.
+ - Naked need is the occasion for God’s giving, not a need adorned with the clean, elegant robes of respectability and good works.
+ - If we can exit a relationship, pressure to reconcile lessens; if we must live with those who have wronged us, we are pushed to reconcile.
+ - There is no space in which worship should not take place, no time when it should not occur, and no activity through which it should not happen.
+ - Love properly understood is God – the font of all creation and the ultimate goal of all desires; God properly understood is love.
+ - In good relationships, we are happy to grow as the other person becomes part of us and who we are.
+ - Faith idles when character shrivels.
+ - If evangelism isn’t an expression of love of neighbor, it isn’t Christian evangelizing. And love of neighbor includes not only what I say to the neighbor but how I say that.
+ - For many Americans, Osama bin Laden is the paradigmatic Muslim, an absurd conviction for anyone who has lived with Muslims.
+ - For Christians, faith is a precious good, the most valuable personal and social resource. When it is left untapped, the common good suffers – not just the particular interests of Christians.
+ - Does a person have a right to change his or her own religion? This is a fundamental human right, just like a right to freedom of speech.
+ - Absolute hospitality would in no way amount to the absence of violence. To the contrary, it would enthrone violence precisely under the guise of nonviolence because it would leave the violators unchanged and the consequences of violence unremedied.
+ - There is no greater mystery to me than that of light traveling through darkness.
+ - I don’t think we need to agree with anyone in order to love the person. The command for Christians to love the other person, to be benevolent and beneficent toward them, is independent of what the other believes.
+ - Some Jews and Muslims accuse Christians of being idolatrous for believing in the Trinity. My response to both groups is that they fundamentally misunderstand the Christian understanding of the Trinity.
+ - God is the utterly loving giver. God doesn’t just love. God is love.
+
+34 quotes

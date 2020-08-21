@@ -1,0 +1,60 @@
+ - Things are going to get better. Be optimistic.
+ - The difference between possible and impossible is hard work and commitment.
+ - The horizon is out there somewhere and you keep chasing it, looking for it and working for it.
+ - Abortions for some, miniature American flags for others!
+ - I used to think that seniority was a terrible thing when I didn’t have any.
+ - The purpose of a tax cut is to leave more money where it belongs: in the hands of the working men and working women who earned it in the first place.
+ - You read what Disraeli had to say. I don’t remember what he said. He said something. He’s no longer with us.
+ - I think one of life’s great milestones is when a person can look back and be almost as thankful for the setbacks as for the victories.
+ - Those who cultivate moral confusion for profit should understand this: we will name their names and shame them as they deserve to be shamed.
+ - We’re trying to get good pictures. Don’t worry very much about what I say.
+ - History buffs probably noted the reunion at a Washington party a few weeks ago of three ex-presidents: Carter, Ford and Nixon – See No Evil, Hear No Evil and Evil.
+ - It’s a lot more fun winning. It hurts to lose.
+ - Our intent will not be to create gridlock. Oh, except maybe from time to time.
+ - Political advice is a bit like your average Christmas fruitcake: something everyone gives and no one wants.
+ - A government that seizes control of the economy for the good of the people, ends up seizing control of the people for the good of the economy.
+ - When I was quite young, I put my trust in God – not government; and I never get the two confused.
+ - President Obama came to visit me in the hospital. He said, ‘I wish you were still in the Senate; I need your help.’ I’m not certain I can help on everything. Maybe some things.
+ - You know, a better man for a better America. That’s sort of our slogan.
+ - The internet is a great way to get on the net.
+ - If you’re hanging around with nothing to do and the zoo is closed, come over to the Senate. You’ll get the same kind of feeling and you won’t have to pay.
+ - We know smoking tobacco is not good for kids, but a lot of other things aren’t good. Drinking’s not good. Some would say milk’s not good.
+ - We’ll all be riding that streetcar of desire.
+ - I know there are California oranges and Florida oranges. When I’m in Florida, I like Florida oranges. Today, I think California oranges are the best, of course.
+ - When these political action committees give money, they expect something in return other than good government.
+ - I don’t know how many people run for vice president and president and lose both.
+ - The wind doesn’t bother me. I’m in the US Senate.
+ - It’s going to be hard for someone like me to run for president.
+ - Life is very important to Americans.
+ - All the wisdom doesn’t reside in one party.
+ - I lost in ’96, in case the word hadn’t trickled out, and so I made a few commercials.
+ - I think it’s OK to talk about your military service, but there’s a fine line between, you know, too much and just about right.
+ - No more verbally incomprehensible no more devoid of the vision thing and no more the cautious pragmatist proudly displaying the virtues of tradition and the advantages of biological seniority.
+ - All you need to know is this. You can never go wrong by voting for a bill that fails, or against a bill that passes.
+ - Having been in Congress, you know that’s part of our responsibility the constituent has a problem, We’re supposed to write back and say, ‘Well I can’t do anything’ That’s not what they elect you for.
+ - If Lincoln had an affair with a slave woman, it would be an outrage, but when Clinton does it with one of his staff, everyone is okay with it.
+ - In what might be a motto of those who sought the presidency and lost, Ted Kennedy once said, “Frankly, I don’t mind not being President. I just mind that someone else is.”
+ - If we added up the killed and wounded from the Democrat wars in this country, it would be about 1.6 million Americans.
+ - Something is wrong with America. I wonder sometimes what people are thinking about or if they’re thinking at all.
+ - If there is one clear lesson of our century, it is this: where aggression is tolerated, it multiplies.
+ - This is what America’s all about, nobody’s being hurt they have a right to express themselves, I watched all the television I could on Miami-Dade and I didn’t see anybody being shoved around.
+ - What we dedicate today is not a memorial to war, rather it’s a tribute to the physical and moral courage that makes heroes out of farm and city boys and that inspires Americans in every generation to lay down their lives for people they will never meet, for ideals that make life itself worth living.
+ - You feel a little older in the morning. By noon I feel about 55.
+ - I’ve never known a lot of rich people. It’s not my bag.
+ - Think I’ll win. Could be big.
+ - I had a dream that I would be here this week, receiving something from the president, but I thought it would be the front door key.
+ - Merely presenting a driver’s license or other document based on a birth certificate is not enough for an accurate verification. Biometric verification of identity must be made and then a data base of those persons who have legal status must be checked.
+ - I’ve thought about it, not a lot, but I thought my relationship with Congress – the Democrats and Republicans – would help me get some things done. Not everything, but at least they’d be willing to try.
+ - I have been uplifted by the extraordinary power of the American heart – by those armies of compassion, who are willing to cross town or cross the globe to minister to those they’ve never met and will never see again.
+ - As long as there are only 3 to 4 people on the floor, the country is in good hands. It’s only when you have 50 to 60 in the Senate that you want to be concerned.
+ - Elizabeth’s back at the red cross, and I’m walking the dog.
+ - If we had known we were going to win control of the Senate, we’d have run better candidates.
+ - I’m not a Gingrich fan. He’s just difficult to work with. It’s either Newt’s way or the highway.
+ - The Brooklyn Dodgers had a no hitter last night.
+ - If something happened along the route and you had to leave your children with Bob Dole or Bill Clinton, I think you would probably leave them with Bob Dole.
+ - President Ronald Reagan on his 1980 opponent: “I had a dream the other night. I dreamed that Jimmy Carter came to me and asked why I wanted his job. I told him I didn’t want his job. I want to be President.”
+ - At my age you find yourself looking back from time to time and you begin to appreciate some of the things that happened to you.
+ - Stop telling the truth about my record!
+ - I will seek the presidency with nothing to fall back on but the judgment of the people of the United States, and nowhere to go but the White House or home.
+
+58 quotes

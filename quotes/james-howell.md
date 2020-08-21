@@ -1,0 +1,36 @@
+ - We learn by teaching.
+ - After rain comes fair weather.
+ - In time of prosperity friends will be plenty; In time of adversity not one in twenty.
+ - Choose thy friends like thy books, few but choice.
+ - Distance sometimes endears friendships, and sweetens it – for separation from those we love shows us, by the loss, their real value and dearness to us.
+ - All we can do is be better prepared today than yesterday and better prepared tomorrow than today.
+ - Respect a man, he will do the more.
+ - This life at best is but an inn, and we the passengers.
+ - Fly and you will catch the swallow.
+ - A secret is too little for one, enough for two, and too much for three.
+ - Nature, the handmaid of God Almighty, does nothing but with good advice, if we make research into the true reason of things.
+ - Distance sometimes endears friendship, and absence sweeteneth it.
+ - He that hath the name to be an early riser may sleep till noon.
+ - Good wine makes good blood, good blood causeth good humors, good humors cause good thoughts, good thoughts bring forth good works, good works carry a man to heaven, ergo, good wine carrieth a man to heaven.
+ - God guard me from my friends, for I shall guard myself from my enemies.
+ - One hair of a woman can draw more than a hundred pair of oxen.
+ - The fangs of a bear, and the tusks of a wild boar, do not bite worse and make deeper gashes than a goose-quill sometimes; no, not even the badger himself, who is said to be so tenacious of his bite that he will not give over his hold till he feels his teeth meet and the bones crack.
+ - The creditor hath a better memory than the debtor.
+ - Words and works eat not at one table.
+ - Little sins are pioneers of hell.
+ - Burn not thy fingers to snuff another man’s candle.
+ - Feed sparingly and defy the physician.
+ - Proverbs may not improperly be called the philosophy of the common people.
+ - Such is the strength of art, rough things to shape.
+ - God comes at last when we think he is farthest off.
+ - Easter, so longed for, is gone in a day.
+ - We are saved from nothing if we are not saved from sin.
+ - He that hath money in his purse cannot want a head for his shoulders.
+ - Love is the life of friendship.
+ - Owe money at Easter and Lent will seem short to thee.
+ - Appeles us’d to paint a good housewife upon a snayl; which intimated that she should be as slow from gadding abroad, and when she went she should carry her house upon her back; that is, she should make all sure at home.
+ - Apelles used to paint a good housewife on a snail, to import that she home-keeping.
+ - He can hardly be a true friend to another, who is an enemy to himself.
+ - Man’s best candle is his understanding.
+
+34 quotes

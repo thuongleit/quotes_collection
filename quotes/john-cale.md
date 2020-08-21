@@ -1,0 +1,27 @@
+ - Time plays a role in almost every decision. And some decisions define your attitude about time.
+ - I want to get lean and mean, keep it minimalist.
+ - It would be a stronger world, a stronger, loving world, to die in.
+ - I missed out on my teenage years. I led a sheltered life. I was practicing scales instead of playing football.
+ - That’s what my life is, writing songs.
+ - In the studio you have pretty much carte blanche with whatever you’re doing. You can turn natural instruments into electronic instruments.
+ - We gave up on the idea of trying to make the record a good representation of the live performance.
+ - I am a ham. I’ve no business being rock ‘n’ roll. I’ve said it over and over again that I’m a classical composer, dishevelling my personality by dabbling in rock ‘n’ roll.
+ - I’m impatient. I get twitchy. When I get that feeling I just go out and make something happen.
+ - When somebody grabs a movement, you’re kind of locked into it. It’s all par for the course.
+ - I never use the word, it’s loaded. What love means to me is need.
+ - The avant-garde makes more sense to me.
+ - Growing up in Wales was a pretty Draconian experience with religion.
+ - People sort of know me for that solo piano music I did.
+ - I like it here in New York. I like the idea of having to keep eyes in the back of your head all the time.
+ - The value of having a computer, to me, is that it’ll remember everything you do. It’s a databank.
+ - I like what the future holds. I don’t like thinking about the past.
+ - I learn from thinking about the future, what hasn’t been done yet. That’s kind of my constant obsession.
+ - In cities like New York and Austin, there’s much more of a social context for music than in other places.
+ - Even if you’re improvising, the fact that beforehand you know certain things will work helps you make those improvisations successful. It really helps to have a certain amount of knowledge about musical structure.
+ - I’m writing a movie about Mozart going to New York in the ’60s. I’ve been reading so many novels.
+ - What I enjoy most about being on stage is that the natural instruments give you a greater freedom with texture. When you use natural instruments they have their own resonance.
+ - If I’m interested in what I’m doing, other people will be interested in it.
+ - I’m content with making records, but I don’t want to be doing the same thing all the time.
+ - If you’re all loaded up on love, you haven’t got anywhere else to go.
+
+25 quotes

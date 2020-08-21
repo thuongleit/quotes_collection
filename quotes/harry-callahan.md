@@ -1,0 +1,34 @@
+ - You’re a legend in your own mind.
+ - Photography is an adventure just as life is an adventure.
+ - To be a photographer, one must photograph. No amount of book learning, no checklist of seminars attended, can substitute for the simple act of making pictures.
+ - It’s a question of methods. Everybody wants results, but nobody wants to do what they have to do to get them done.
+ - Only the journey matters.
+ - I wish more people felt that photography was an adventure the same as life itself and felt that their individual feelings were worth expressing. To me, that makes photography more exciting.
+ - I think I came alive when I started photography.
+ - A man has to know his limitations.
+ - If you choose your subject selectively – intuitively – the camera can write poetry.
+ - The mystery isn’t in the technique, it’s in each of us.
+ - A picture is like a prayer; you’re offering a prayer to get something, and in a sense it’s like a gift of God because you have practically no control-at least I don’t.
+ - Nothing wrong with people getting shot, as long as it’s the right people getting shot.
+ - I think nearly every artist continually wants to reach the edge of nothingness – the point where you can’t go any further.
+ - I guess I’ve shot about 40,000 negatives and of these I have about 800 pictures I like.
+ - You only do exercises in art school. That’s not the real thing. A little bit tells you so much. You have to find your own self. And you don’t know what you are! But that’s what you have to search for.
+ - I do believe strongly in photography and hope by following it intuitively that when the photographs are looked at they will touch the spirit in people.
+ - I like the simple things. I don’t know why. I’m that way. I came from a simple place.
+ - In terms of art, the only real answer that I know of is to do it. If you don’t do it, you don’t know what might happen.
+ - I realize that we all do express ourselves, but those who express that which is always being done are those whose thinking is almost in every way in accord with everyone else. Expression on this basis has become dull to those who wish to think for themselves.
+ - A picture is like a prayer.
+ - I love art because it doesn’t have rules like baseball. The only rule is to be good. That’s the toughest thing to do.
+ - The difference between the casual impression and the intensified image is about as great as that separating the average business letter from a poem. If you choose your subject selectively – intuitively – the camera can write poetry.
+ - Experience is the best teacher of all. And for that, there are no guarantees that one will become an artist. Only the journey matters.
+ - It takes me a long time to change. I don’t think you can just go out and figure out a bunch of visual ideas and photograph. The change happens in living and not through thinking.
+ - It’s the subject matter that counts. I’m interested in revealing the subject in a new way to intensify it. A photo is able to capture a moment that people can’t always see.
+ - The photographs that excite me are photographs that say something in a new manner; not for the sake of being different but ones that are different because the individual is different and the individual expresses himself.
+ - I can’t say what makes a picture. I can’t say. It’s mysterious.
+ - Photography is an adventure just as life is an adventure. If man wishes to express himself photographically, he must understand, surely to a certain extent, his relationship to life.
+ - I just don’t know what makes a picture, really – the thing that makes it is something unique, as far as I can understand. Just like one guy can write a sentence and it’s beautiful and another one can write it and it’s dead. What the difference is, I don’t know.
+ - My project could be only to photograph as I felt and desired, to regulate a pleasant form of living, to get up in the morning-free, to feel the trees, the grass, the water, sky or buildings, people-everything that affects us; and to photograph that which I saw and have always felt.
+ - I can tell you for me it goes on forever. There are some things you can’t ever find out. You can’t find out in one life either.
+ - Every time I talked about making a picture I didn’t do it. I had already done it – talking about it! I quit talking.
+
+32 quotes

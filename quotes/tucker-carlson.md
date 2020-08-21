@@ -1,0 +1,70 @@
+ - It is increasingly important to be open-minded.
+ - That great philosopher anonymous once said, never argue with a fool. People might not know the difference.
+ - Who laughs less than feminists?
+ - Canada is a sweet country. It is like your retarded cousin you see at Thanksgiving and sort of pat him on the head. You know, he’s nice, but you don’t take him seriously. That is Canada.
+ - Honestly, a lot of liberals are foot soldiers in the war on Christmas.
+ - I’m in the business of value judgments .
+ - To be a feminist, you could cut your hair really short. You have to be really angry about something.
+ - Bush’s America. I wish we had more time. I didn’t even vote for him the second time, and I feel like I got to defend him.
+ - I’m not for drunk driving – however, the states ought to decide. Different states have different penalties for drunk driving because they’re states and they get to do that. If people of one state want to be lighter on drunk drivers, they’re wrong. That’s their business.
+ - Canada, by others in the global family, is, for some reason, taken seriously. They have about 30 million people. They have some natural resources.
+ - I’m a foot soldier in the war on Christmas. And the war on puppies and sunshine.
+ - Life is short. You die before you think you’re going to. Don’t waste it in college unless you’re doing something real. My view.
+ - I mean, look, no matter how you feel about Bush, watching him speak is difficult. It’s like- it’s like watching a drunk man cross an icy street.
+ - England, Australia, Israel, a few staunch, important allies internationally. But we have lost a lot of international support.
+ - To call me a partisan hack is ludicrous. I am the least partisan person I know.
+ - I don’t think all people yearn for freedom, actually. I think they yearn for stability.
+ - Christianity isn’t dead. It still has the capacity to scare people. It still gives people the creeps, which means there is still some power behind the religion, as sort of watered down as it can be.
+ - Anybody with any ambition at all, or intelligence, has left Canada and is now living in New York.
+ - Is calling English our national language racist? Are we at that point?
+ - It is nice to be around people who think differently than you. They challenge your ideas and keep you from being complacent.
+ - The disgraceful and shameful construction of walls, the increasing enforcement of security systems and increasing violation of human rights and labor rights will not protect the economy of the United States.
+ - Feminism’s latest victory: the right to get your limbs blown off in war. Congratulations.
+ - The modern tribalism of the left demands that each person choose a group and then agree with everything that group agrees with. And anybody who leaves that group is stoned to death.
+ - American officials have bent over backwards to show how sensitive they are to Muslim culture. It didn’t seem very effective. They seem to be worried about winning the respect of other people.
+ - I’m for moral blackmail when it comes to putting away child molesters.
+ - Politicians are interesting people, most of them are smart and hard-working-I mean, they keep schedules no one else would think of keeping. Some of them live down to the caricature, but most of them are good people and they are charming.
+ - If things do get better in Iraq, I’m saying as someone who thinks the war was a mistake. I’m saying that is cause for us all to have a huge party. It’s a big deal if things get better. Because if they don’t get better, our country is going to be hurt for generations.
+ - I am really only interested in new information, not freelance opinion. I don’t really care what you think off the top of your head.
+ - Rich people making their houses bigger in order to make their lives happier wind up hurting their own marriages. There’s a deep irony here. Do the couples perceive that irony?
+ - Europeans take their soccer pretty seriously. So, when this Turkish TV host had the nerve to criticize the local team, the fans decided to do something about it, something like storm the TV studio during a live show.
+ - Why is this generation looking to aging icons like John Lennon and Bob Dylan for inspiration? Why not raising up their own icons?
+ - In the absence of evidence, superstition. It’s a Middle Ages thing. That’s my theory anyway.
+ - I will say, the one thing Mexico does well is punish prisoners. They do. They’re good at that.
+ - To politicize a man’s tragic death is about as low as you can go, isn’t it?
+ - Yes, older drivers are more likely to injure themselves and others when they get behind the wheel. But if you take that away, that is really the last lifeline a lot of elderly people have.
+ - It’s hard to be ambitious if you’re content, isn’t it?
+ - Canadians are always asking the questions the rest of us are afraid to ask.
+ - All of a sudden, people are going to decide they want to go micro, everything’s smaller.
+ - I can’t wait to work for Rick Kaplan. He’s a great producer. I would host an infomercial if he would produce it.
+ - I try to tell the truth.
+ - So that all the people who say, you know, “All the media hates America.” A lot of the media does hate America but this is a case of, actually, the press doing its best, I think, to do the right by national security. So good for them.
+ - Canada has little pictures of us in its bedroom, right? Canada spends all of its time thinking about the United States, obsessing over the United States. It’s unrequited love between Canada and the United States.
+ - Angelina Jolie seems like she cries a lot, which puts me off.
+ - I very much like “Canada, the adults are talking” stance.
+ - I’m a small government conservative.
+ - The Clinton era is over. I think that there would even have been a certain amount of rejoicing among some Republicans if Gore had won or if Ralph Nader had won or if Satan had won.
+ - I’m not for cutting off hands but I’m more for cutting off hands than I am for molesting children, if that’s what it takes to stop it. I think that’s fair.
+ - But Michael Vick killed dogs, and he did in a heartless and cruel way. And I think, personally, he should’ve been executed for that. He wasn’t, but the idea that the President of the United States would be getting behind someone who murdered dogs?
+ - This is a major step forward in achieving our objective, which is an ally having a democratic Iraq, a country able to sustain itself and defend itself, a country that will be an ally in the war on terror and a country which will set such a powerful example to others in the region.
+ - Every single comedian in Canada is now living in the United States.
+ - I think Canadians, they may be offended that I pointed out that they’re stalking us. But at least we’re paying attention.
+ - It’s almost impossible to make the case that Bush is a conservative. That may be good; that may be bad.
+ - I think I always stand up for what I believe in.
+ - I have never been one to look beyond today.
+ - Nobody, at least sitting in my seat, is defending drunk driving. I am not for drunk driving.
+ - Unless you know a lot more about something than I do, I am not really that interested. I have too much information already.
+ - Republicans can’t run for office without the support of business.
+ - Bill Clinton is a liar, a perverted kind of a guy anyway, and he is always stroking black folks rather than telling them the truth.
+ - Television and the way we watch is going to change dramatically in the next year.
+ - The best thing about television news is, it’s immediate. Everything at a news network happens quickly.
+ - I’m such a sap for democracy and politics that I get weepy when I see anybody voting.
+ - Billy Tauzin is one of the most interesting people in Washington. He is smart, funny, and interesting.
+ - We’re a very religious country; the government’s secular.
+ - Studies have shown people listen to TV than watch it.
+ - The Republican Party of 2005 bears no resemblance to the Republican Party of 1994.
+ - Everybody knows that only creeps put cameras in the bathroom.
+ - Canada thinks we’re married; we don’t know it exists. Every time we tell Canada to knock it off, it just feeds the fire.
+ - I trust the federal government not to trample on civil liberties.
+
+68 quotes

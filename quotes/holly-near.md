@@ -1,0 +1,43 @@
+ - Why do we kill people who are killing people to show that killing people is wrong?
+ - Time has passed through me and become a song.
+ - If you have the guts to keep making mistakes, your wisdom and intelligence leap forward with huge momentum.
+ - I like this life. I like it when it’s hard, and I like it better when it’s not, but I know you don’t get the sweet part without the bitter.
+ - Poverty without a people’s government looks like hopelessness, but to see poverty in organized communities is to see relief-in-progress.
+ - It doesn’t take long to sum up the major theses of most popular music: he loves me; he left me; I need him; I needed him, but now I need his best friend. Rather limited scope.
+ - To be always in a state of wonder is a kind of sensitivity that can sometimes be an extraordinary blessing and sometimes a real pain.
+ - The war on drugs is a war against the communities.
+ - All my life I have gone out on a limb, but I have turned the limb into a bridge, and there is cool, clear water flowing under.
+ - A lot of artists say, I’m not political. People are afraid of this word.
+ - In my life, the stories I have heard from my family, my friends, my community, and from willing strangers all over the world have been the true source of my education.
+ - White middle- and upper-class men have a longer journey to go than many people.
+ - My parents encouraged thought. You’ll get through life better if you learn how to think.
+ - Language is like songs, like food, like dance-it is the expression of what we think.
+ - You can kill a man but not a song when it’s sung the whole world ’round.
+ - Peace can start with just one heart.
+ - You can’t just leave out one part; the bread won’t rise if the yeast isn’t there.
+ - Often thoughts are given to me with the sole purpose of giving them away.
+ - You just keep feeding hogwash to people, and pretty soon they’ll eat it.
+ - When we make mistakes, say, I’m blessed that I have an opportunity to learn from this.
+ - Something happens to me when I witness someone’s courage. They may not know I’m watching and I might not let them know. But something happens to me that will last me for a lifetime. To fill me when I’m empty, and rock me when I’m low.
+ - The women’s movement completely changed attitudes all over the world in ways we’ll never be able to count.
+ - I am selfish. I reach for the world I want to live in. And I believe in leaving our best we can do to our children.
+ - We who are interested in relative truth have to keep digging for it and not let ourselves be sucked under.
+ - Part of being an artist is being willing to be shocked, being willing to be surprised, being willing to be hurt.
+ - When an audience comes to one of my concerts, I hope they’ll see themselves, somewhere, in one of the songs.
+ - Leaping away from my mistakes has propelled me forward. It has great force behind it. It makes for great storytelling.
+ - Part of keeping space open is not to try to choose a form – to spend more time thinking about content, and let form take care of itself.
+ - If I didn’t think and feel the way I think and feel, I couldn’t sing the way I sing. And I like singing the way I sing.
+ - My creativity and my political work are linked. I don’t do this work out of guilt or out of responsibility.
+ - The greatest warriors are the ones who fight for peace.
+ - It’s been important to me to be a good activist, a good thinker, a good musician, a good singer, and a good entertainer. You can’t do it all, but I have walked those delicate lines as best I know how.
+ - Once women are not excluded, I don’t think any of us will give a damn what pronouns are used. That wasn’t the point.
+ - I’m not allowing my perspective to be dictated by the dominant culture.
+ - Music can be used against us as much as it can be used for us. Muzak can put a whole nation to sleep, whereas a lullaby is intended to put a child to sleep in a sweet way.
+ - Whenever new ideas emerge, songs soon follow, and before long the songs are leading.
+ - Like any art, the creation of self is both natural and seemingly impossible. It requires training as well as magic.
+ - It is essential that men start being interested in and excited by how women think.
+ - To my great surprise and pleasure, I have had dinner with most of the people living with whom I would like to have dinner.
+ - I don’t believe in nirvana. If nirvana was handed to us on a silver platter, this would be the first day of our struggle to keep it.
+ - People love to hear the mistakes you’ve made.
+
+41 quotes

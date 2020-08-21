@@ -1,0 +1,33 @@
+ - Follow your heart and you won’t get lost.
+ - Blessed is this life and I’m going to celebrate being alive!
+ - Nature inspires me because it’s so peaceful. It makes me have an inward experience. It makes me reflective and nostalgic.
+ - The mountains inspire me because they are just still and they have such a strong, quiet presence that feels very old.
+ - A sunny, happy day is beautiful, but when it’s moody, and storm is coming, there’s an energy in the air.
+ - Things aren’t always as they appear. I’ve been believing things to be a certain way because I want them to be that way. I build up illusions in my head.
+ - Don’t forget that love is all you came here for, not anything less. Need I say more?
+ - I want to live the way I choose. It’s all about happiness. I’m a happy person. But to find true happiness, peace within yourself and the world, that is something achieved in the moment. No matter the circumstance.
+ - I also love fall, when it starts to rain, or even just before the rain – that is the most inspiring thing.
+ - I’m a very typical yoga-practicing musician; I do it when I can. I’m not hardcore about it. A lot of my lyrics talk about celebrating life and working through pain. I think that’s what yoga’s about, getting rid of, moving energy and letting it flow through you.
+ - I want to write songs with meaning. I have high standards for my work.
+ - I come from a place of sincerity. I write about what I see and feel. I write about what I want, I don’t have a political agenda. Politics may enter into a song but it always comes from the heart.
+ - When you’re young that’s when you feel like you can change the world. Then you get older and you buy a house and have kids, and you don’t want to be so bold anymore.
+ - Paul Simon is my absolute hero. He’s one of a kind. He wrote his own ticket in life by being himself.
+ - What I strive to do with songwriting is be really honest, authentic and try to be open and share that with people. I choose that over trying to be clever, poetic, or lyrical.
+ - I always liked playing music and I always wanted to be good at playing guitar. I always saw myself as an old man living in the mountains playing a guitar, but I didn’t really turn that into a desire to be a professional musician or a singer or a rock star or anything like that.
+ - Nothing has happened too fast, nothing has happened too slow. It has been a mellow rise, and I’m thankful for that. I haven’t lost my head, and I haven’t lost my desire to keep growing.
+ - For some reason I can articulate my feelings better in song. I wish it would come out better in regular life too though. The issue is that I struggle with is that I’m worried about what people think, or how they’ll react to whatever it is I have to say, and obviously that’s not a good thing.
+ - I think most artists would agree, it’s one thing to be playing in front of a crowd that’s loving it, it’s another thing to add cameras, but it’s a really cool trade off to be on television.
+ - When you get to say something in a song you’re not directing it necessarily at one person. When it’s in a song it’s easier to get it out. I don’t really worry so much about it when I’m writing a song.
+ - I wanted to be a singer. I wanted to be a musician. I wanted to travel and write songs and be a good songwriter. It came to me slowly after college.
+ - If I hear a really good song it’s like, oh man, I want to write a song that good. But the urge to create mostly comes from nature, weather and I think it just effects me.
+ - The ocean inspires me because there’s the energy of the water moving.
+ - I have ideas for songs all the time, but musical ideas, like melodies, really come out when I’m in nature.
+ - I used to want to be fully observational, but I’m just not that kind of writer. My process always changes depending on how, when, and where inspiration stiles me.
+ - People really respond to the songs when I play them in concert. Every song comes from a different place emotionally or from a different headspace.
+ - I think for me to do a traditional sitting meditation I would really have to spend a couple weeks working at it. The only way I know how to efficiently, effectively meditate is by walking in nature.
+ - Everyone wants to know what kind of music their favorite artist listens to. It feels good to. I don’t try to dwell on that too much though.
+ - Bringing up issues that are hard to deal with is a challenge for me, and I think that’s what draws me to song writing.
+ - I sing the best when I’m really in my voice. It’s kind of like I’m meditating but I sort of imagine my voice as a physical thing. I see colours, I feel it moving out of me and I try to tap into images that I was tapping into when I was writing the song.
+ - I can’t really write unless I’m full of inspiration. And even then I can’t write unless I have some alone time.
+
+31 quotes

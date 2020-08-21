@@ -1,0 +1,36 @@
+ - Stay the course, light a star, Change the world where’er you are.
+ - A woman’s beauty is one of her great missions.
+ - The beauty we love is very silent. It smiles softly to itself, but never speaks.
+ - All roads indeed lead to Rome, but theirs also is a more mystical destination, some bourne of which no traveller knows the name, some city, they all seem to hint, even more eternal.
+ - It is the fine excesses of life that make it worth living.
+ - A wholesome oblivion of one’s neighbours is the beginning of wisdom.
+ - Wild oats will get sown some time, and one of the arts of life is to sow them at the right time.
+ - Time’s horses gallop down the lessening hill.
+ - Celestial spirit that doth roll; The heart’s sepulchral stone away, Be this our resurrection day, The singing Easter of the soul – O gentle Master of the Wise, Teach us to say: “I will arise.”
+ - We also maintain – again with perfect truth – that mystery is more than half of beauty, the element of strangeness that stirs the senses through the imagination.
+ - On the contrary, woman is the best equipped fighting machine that ever went to battle.
+ - It is curious how, from time immemorial, man seems to have associated the idea of evil with beauty, shrunk from it with a sort of ghostly fear, while, at the same time drawn to it by force of its hypnotic attraction.
+ - You can’t fake it. Bad writing is a gift.
+ - We are all treading the vanishing road of a song in the air, the vanishing road of the spring flowers and the winter snows, the vanishing roads of the winds and the streams, the vanishing road of beloved faces.
+ - The road recedes as the traveler advances, leaving a continuous present.
+ - There is something mean in human nature that prefers to think evil, that gives a willing ear and a ready welcome to calumny, a sort of jealousy of goodness and greatness and things of good report.
+ - All wines are by their very nature full of reminiscence, the golden tears and red blood of summers that are gone.
+ - If Romeo and Juliet make a tragedy of it nowadays, they have only to blame their own mismanagement, for the world is with them as it has never been before, and all sensible fathers and mothers know it.
+ - Organized Christianity has probably done more to retard the ideals that were its founder’s than any other agency in the world.
+ - In their work, then, as in their play, men and women are more and more coming to share with each other as comrades, and really the fun of life seems in no wise diminished as a consequence.
+ - Be it whim or emergency, the modern laboratory is equally at the service of romance, equally ready to gratify mankind with a torpedo or a toy.
+ - Nature is forever arriving and forever departing, forever approaching, forever vanishing; but in her vanishings there seems to be ever the waving of a hand, in all her partings a promise of meetings farther along the road.
+ - A critic is a man created to praise greater men than himself, but he is never able to find them.
+ - The spiritual element, the really important part of religion, has no concern with Time and Space, temporary mundane laws, or conduct.
+ - Races and nations are thus ever ready to believe the worst of one another.
+ - Though actually the work of man’s hands – or, more properly speaking, the work of his travelling feet, – roads have long since come to seem so much a part of Nature that we have grown to think of them as a feature of the landscape no less natural than rocks and trees.
+ - Modern science, then, so far from being an enemy of romance, is seen on every hand to be its sympathetic and resourceful friend, its swift and irresistible helper in its serious need, and an indulgent minister to its lighter fancies.
+ - Perhaps we too seldom reflect how much the life of Nature is one with the life of man, how unimportant or indeed merely seeming, the difference between them.
+ - All myths that are something more than fancies gain rather than lose in value with time, by reason of the accretions of human experience.
+ - We have, of course, long since ceased to think of Nature as the sympathetic mirror of our moods, or to imagine that she has any concern with the temporal affairs of man.
+ - More and more the world is growing to love a lover, and one has only to read the newspapers to see how sympathetic are the times to any generous and adventurous display of the passions.
+ - All religions have periods in their history which are looked back to with retrospective fear and trembling as eras of persecution, and each religion has its own book of martyrs.
+ - Youth, however, can afford to enjoy even its melancholy; for the ultimate fact of which that melancholy is a prophecy is a long way off.
+ - How much more interesting life would be if only more people had the courage and skill to act themselves, instead of abjectly understudying some one else!
+
+34 quotes

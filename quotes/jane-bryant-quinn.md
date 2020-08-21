@@ -1,0 +1,24 @@
+ - The best real-estate investments with the highest yields are in working-class neighborhoods, because fancy properties are overpriced.
+ - Lawyers are operators of the toll bridge across which anyone in search of justice has to pass.
+ - No one knows what stocks will do tomorrow, but the evidence is clear as to how they’ll perform over 10 or 20 years. They will almost certainly go up.
+ - The shortest period of time lies between the minute you put some money away for a rainy day and the unexpected arrival of rain.
+ - A faithfully kept program of savings and conservative investments can give you more money and a better life than that of your neighbors who spend everything they get. This is probably the oldest financial advice in the world, but there are some things you can’t improve on.
+ - Buy a friend; hire a lawyer.
+ - Savings will not make you rich. Only canny investments do that. The role of savings is to keep you from becoming poor.
+ - Everyone needs a small-town banker. Especially in a big town.
+ - You normally don’t get a margin call unless your securities, minus the debt, are worth 30% or less of their nominal market value.
+ - Stock prices aren’t real things. They’re just froth on a wave. The wave is the only real thing, which investors forget when they’re watching the ticket slither by.
+ - It’s a fact: stock investors sometimes lose money on their way to wealth. Get over it.
+ - Equality is never given, it is taken.
+ - Life insurance can be numbingly complicated. Clients often turn off their brains and surrender their judgment to the very agent or planner who brought on their coma in the first place.
+ - There is a secret to investing that cuts a path directly to the profits that you’re looking for. The secret is simplicity. The more elementary your investment style, the more confident you can be of making money in the long run.
+ - Everyone said, ‘You can’t lose money in real estate, because they’re not making any more of it.’ Hmmmm. Where did everyone go wrong?
+ - It’s daring and challenging to be young and poor, but never to be old and poor. Whatever resources of good health, character, and fortitude you bring to retirement, remember, also, to bring money.
+ - You get the most out of what you need the least.
+ - The chief function of stock-market forecasters is to make astrologers look respectable.
+ - Everyone can get a little sloppy with cash and it’s smart to notice. But what’s squeezing you is the big stuff you ladle onto your credit cards.
+ - Never try to time the bond market. Anyone who claims to know the future of interest rates is certifiable.
+ - Where you stand should not depend on where you sit.
+ - Auto insurance is a toll bridge, over which every honest driver has to pass.
+
+22 quotes

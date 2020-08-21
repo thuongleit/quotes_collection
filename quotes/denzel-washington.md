@@ -1,0 +1,147 @@
+ - Put God first in everything you do.
+ - Don’t aspire to make a living, aspire to make a difference.
+ - Dreams without goals, are just dreams and they ultimately fuel disappointment.
+ - Nothing in life is worthwhile unless you take risks. Fall forward. Every failed experiment is one step closer to success.
+ - Goals on the road to achievement cannot be achieved without discipline and consistency.
+ - Don’t be afraid to fail big, to dream big.
+ - You pray for rain, you gotta deal with the mud too. That’s a part of it.
+ - I walk by faith, not by sight.
+ - Do what you have to do, to do what you want to do.
+ - Thank God in advance for what’s already yours.
+ - You can’t break me because you didn’t make me.
+ - I say luck is when an opportunity comes along and you’re prepared for it.
+ - Talent comes from God. If you have been given some, then value it, cultivate it, work and develop it.
+ - To protect the sheep, you gotta catch the wolf. And it takes a wolf to catch a wolf, you understand?
+ - I found that nothing in life is worthwhile unless you take risks.
+ - I fought the good fight, I finished the race, I kept the faith.
+ - If you want to be a warrior, you have to train.
+ - I’d be more frightened by not using whatever abilities I’d been given. I’d be more frightened by procrastination and laziness.
+ - The Bible says “faith without works is nothing” so destiny is great, fate is great, faith is great – but you still have to work at it. I don’t just sit at home and wait for it all to unfold.
+ - We do what we have to so we can do what we want to.
+ - For me, success is inner peace. That’s a good day for me.
+ - Revenge is a meal best served cold.
+ - The chances you take, the people you meet, the people you love, the faith that you have. That’s what’s going to define you.
+ - I believe in God. I don’t fear man, I fear God.
+ - One failed experiment is one step closer to Success.
+ - Be careful what you ask for because when you pray for rain, you have to deal with the mud as well.
+ - If I am a cup maker, I’m interested in making the best cup I possibly can. My effort goes into that cup, not what people think about it.
+ - Cursed be the ground for our sake. Both thorns and thistles it shall bring forth for us. For out of the ground we were taken, for the dust we are and to the dust we shall return.
+ - It’s not what you know, it’s what you can prove.
+ - We live in a time when people give up too easy.
+ - There’s a book called “The Sociopath Next Door.” I thought most sociopaths were violent. In fact, they aren’t. But almost all sociopaths want to win, no matter what.
+ - The time to worrying about flying is when you’re on the ground. When you’re up in the air, it’s too late. No point in worrying about it then.
+ - If you don’t trust the pilot, don’t go.
+ - In Los Angeles, everyone is a star.
+ - My mother used to tell me man gives the award, God gives the reward. I don’t need another plaque.
+ - Success? I don’t know what that word means. I’m happy. But success, that goes back to what in somebody’s eyes success means. For me, success is inner peace. That’s a good day for me.
+ - Got to be who you are in this world, no matter what.
+ - Writing is a weapon and it’s more powerful than a fist could ever be.
+ - Hate put me in prison. Love’s gonna bust me out.
+ - For whatever reason, God has blessed me with the ability, put me in a position to make these leaps and bounds. I’m fulfilling my part of the bargain, which is to give back and be a positive influence on others.
+ - My faith helps me understand that circumstances don’t dictate my happiness, my inner peace.
+ - I’m a logic monster, if things don’t make sense I gotta make sense of them.
+ - The poorest people are the sweetest people.
+ - What it taught me was forgiveness. It taught me that when people present themselves in a certain way, there’s probably some back story or issue or reason for the way that they are. It’s not you. It’s them. And a lot of times, its about something that’s completely out of their control.
+ - There’s racism everywhere.
+ - It is very important to transcend the places that hold us.
+ - Bad guys need love too.
+ - We’ve all received our share of good fortune, so that’s my definition of much. A single blessing is all the bounty in the world, and if you’ve been blessed at all you’re meant to pass some of that on. You’re meant to set a positive example. That’s our responsibility.
+ - I love research and being educated. It’s a great job being able to step into all kinds of professions and into other people’s shoes.
+ - I am not going to bury my son! My son is going to bury me!
+ - I read the Bible every day.
+ - Money doesn’t buy happiness. Some people say it’s a heck of a down payment, though.
+ - The secret to a happy marriage? Do whatever your wife tells you. ‘Yes, dear.’ And breathe.
+ - The greatest lesson I’ve learned in life is “Who knows what’s good or bad?” Things come along that you really want, and they turn out to be the worst thing in the world. And some of the worst tragedies that you can conceive turn out to be the best things, the exact medicine you need in that moment.
+ - A sociopath will do anything to win. Anything.
+ - I’ve always felt protected. That’s the God’s honest truth.
+ - Man gives you the award but God gives you the reward.
+ - I never really had the classic struggle. I had faith.
+ - I’ve worked in a factory. I was a garbage man. I worked in a post office. It’s not that long ago. I like to think that I’m just a regular guy.
+ - It’s simple: You get a part. You play a part. You play it well. You do your work and you go home. And what is wonderful about movies is that once they’re done, they belong to the people. Once you make it, it’s what they see. That’s where my head is at.
+ - I work hard for the audience. It’s entertainment. I don’t need validation.
+ - I just try to be honest and true to the character and play the part.
+ - A part of me still says, ‘Maybe, Denzel, you’re supposed to preach. Maybe you’re still compromising.’ I’ve had an opportunity to play great men and, through their words, to preach. I take what talent I’ve been given seriously, and I want to use it for good.
+ - When my oldest boy was about 14, I started to talk to him about some of the mistakes I made in life, just to put a few dents in that shiny armor.
+ - I’m very proud to be black, but black is not all I am. That’s my cultural historical background, my genetic makeup, but it’s not all of who I am nor is it the basis from which I answer every question.
+ - If you don’t love your fellow man, women, person, then you don’t have anything. If you don’t treat your neighbor as you would want to be treated that to me is the fundamental message.
+ - The lessons I learned in Sunday School have kept me on track.
+ - Acting is just a way of making a living, the family is life.
+ - I’m not afraid to upset people. But I am not as upset because I understand what I’m up against.
+ - I always say the time to worry about flying is when you’re on the ground. If you don’t trust the captain, don’t go.
+ - I think a role model is a mentor – someone you see on a daily basis, and you learn from them.
+ - When I was a child I thought I saw an angel. It had wings and kinda looked like my sister. I opened the door so some light could come into the room, and it sort of faded away. My mother said it was probably my Guardian Angel.
+ - I think that if there can be considered racism it’s to do with the lack of opportunities for writers and producers and the people behind the camera.
+ - When I did A Soldier’s Story, I was very young and green and thought I knew everything-now I know I know everything!
+ - In my humble opinion, in the nuclear world, the true enemy is war itself.
+ - I got on my knees and sort of communicated with the spirits. When I came out, I was in charge. I couldn’t have acted that, I couldn’t have written that.
+ - Religion to me is when man gets ahold of spirituality: “My god is right, yours is wrong.” Religion to me is the human condition. “If you’re a Muslim, you can’t be a Christian.” That to me is religion.
+ - Don’t get all sentimental on me, Makes me think I’m gonna die.
+ - You don’t pick black actors or black directors because they are black. You pick them because they are good. If you lend somebody 50 million dollars you want you’re money back. You don’t care if they are oppressed. You just want you’re money back.
+ - I have a new respect for filmmakers, that’s for sure, ’cause it’s not easy. If I’m allowed to, I’ll be directing for the rest of my life. I love the process.
+ - Hate, hatred for yourself, for other people, will confine you, but love can set you free.
+ - You have to grab moments when they happen. I like to improvise and ad lib.
+ - We’ll all retire from life at some point. The great thing about acting is you don’t necessarily have to retire.
+ - People have said to me for a long time, “Man you’re funny.” I say, “Well, I’m quick,” but being funny on purpose, take after take – that’s why I said for me it was new territory, and so by improvising something might come out that might be good. And it’s film, so they can cut it if it isn’t.
+ - I played Othello, but I didn’t sit around thinking how Laurence Olivier did it when he played it. That wouldn’t do me any good.
+ - When people protest and are upset with a movie, it becomes a big hit. They hated Passion of The Christ, it worked out pretty well for the box office. So let’s get that going.
+ - Michelle Pfeiffer hasn’t been finding a lot of work recently because she doesn’t like what a woman her age is offered. That’s a real double standard. You get Sean Connery, who gets older and older, still playing opposite young ladies, but it doesn’t work the other way around.
+ - I’m a positive person, so I don’t get bogged down with it. If you’re expecting that, if you wall in that, if you practice that, then you’ll attract what you fear.
+ - I’ve always seen it to be a privilege to make movies. It’s a really expensive, creative medium.
+ - I had a lot of success from the start. I never really was tested for long periods of time. I got my first professional job while I was a senior in college. I signed with the William Morris Agency before I graduated.
+ - I’ve been fortunate. I don’t pick scripts. Scripts pick me.
+ - Fundamentally, the most important thing is to get the film made for me and to get as many people to see it as possible. And if I help that, then – I know I help that, let’s put it that way. I do know that I help that. It is called show business.
+ - I think we’re fascinated by gangsters and that whole lifestyle and crossing the line. We get sort of stuck in our normal lives, if you will, and you want to be bigger than life and I think people somehow live through these sorts of characters.
+ - The last few years I’ve been saying I was ready to quit. It wasn’t that interesting to me. Now that I’m directing, it’s all new again.
+ - When people say “What do you want people to get from this movie?” I say, “Well, it depends on what they bring to it.” I don’t try to decide what people should get from it or why. I don’t do a part for those kinds of reasons.
+ - One good thing about acting in film is that it’s good therapy.
+ - Denzel Washington: I like the collaboration, I like seeing people do well, so I really plan to direct the rest of my days.
+ - I and haven’t been unemployed for 20 years. I’m an exception to the rule.
+ - I’m not interested in being a celebrity; I’m interested in being a better actor and a better director.
+ - I’m from around Tennessee. I ran away when I was 12 years old and I ain’t never looked back.
+ - I actually don’t hang out with any celebrities. My closest friends are old friends. And my real close friends, none of them are actors.
+ - I don’t look back, no. Maybe when I’m older; people say, ‘What’s your favorite film?’ I say, ‘My next one.’ I’m not interested in sitting around; I just don’t, never have.
+ - I think the bottom of the totem pole is African-American women, or women of colour. I think they get the least opportunities in Hollywood.
+ - I read a ton of scripts. I read a lot of scripts, and you read one, and first of all, you felt like you read it in 14 minutes, because you’re turning the pages so fast you can’t wait to see what’s going to happen.
+ - As an actor in the theater you’re taught that you never play a bad guy. You have to love who you are. You can’t say, “Oh, I’m a bad guy.” How do you play that?
+ - That’s what I tell young actors. “You don’t have to compromise. Go do some theater and wait for an appropriate role.”
+ - If you take the time and put in the effort to write your own material and absolutely refuse to be denied the right to make your film it is difficult whatever colour you are.
+ - Acting is like music and you improvise. It’s like jazz, there’s no rhyme or reason to it. It’s not a plan. You practice to music and you just play it.
+ - Raising the standard of the work, not complaining about somebody not voting.
+ - Dakota Fanning is a child, but she is a wonderful actor. I don’t know what a child actor is. She’s an actor who’s a child.
+ - As an actor, you’re a color of paint on someone else’s palette. But as a director, it’s your canvas and you make the painting you want to make.
+ - Some said America took a step forward electing a black president. In light of the unconstitutiona l expansion of powers, lack of transparency and fueling the fires of unrest that clearly hasn’t been the case. Vote based on merits, not to fill a racial quota.
+ - Everybody has a job to do. There are people in Iraq on both sides of this war who do what they do for religious reasons, and they feel with God on their side. Some people are good at annihilating people. Maybe that’s their gift.
+ - There’s things that I can do as an actor that I couldn’t do in any other form of life and I’ve got a strange personality. But film requires strange people, so I’ve got a nice comfy home.
+ - I wasn’t allowed to go to movies when I was kid; my father was a minister. 101 Dalmatians and King of Kings, that was the extent of it.
+ - Where I think the most work needs to be done is behind the camera, not in front of it.
+ - I still have my unemployment books and I remember when I worked for the sanitation department and the post office.
+ - Every punch that’s thrown is mine. Every punch that’s caught, I catch...
+ - Black or white good parts are hard to come by. A good actor with a good opportunity has a shot; without the opportunity it doesn’t matter how good you are.
+ - You never know how you’re going to affect people.
+ - I’m not a film buff. I don’t watch a lot of movies.
+ - I get nervous when a picture goes beyond two hours.
+ - There are films that I don’t like, and then someone will come up to me and say it’s their favorite movie. The movies belong to the people. You make them and you put them out. For me, I love the process of making films. For me, my favorite film is always my next one.
+ - I don’t concern myself with award. I’d been to the party enough times to know it really didn’t matter.
+ - I’ve worked with children all my life.
+ - The only reason I’m acting in films I direct is to get the money to make them, quite frankly, it’s not what I’m interested in doing.
+ - You don’t know when you’re being watched. That’s one of the weird things about celebrity. It’s my least favorite part of acting, celebrity.
+ - Why do we close our eyes when we pray, cry, kiss, or dream? Because the most beautiful things in life are not seen but felt by the heart.
+ - Meryl and Katharine Hepburn are probably the two greatest actresses of this and the last century.
+ - Acting, it’s not my life, my children and my family, that’s life. I’ll get up every morning, God willing, for that.
+ - A film is just like a muffin. You make it. You put it on the table. One person might say, Oh, I don’t like it. One might say it’s the best muffin ever made. One might say it’s an awful muffin. It’s hard for me to say. It’s for me to make the muffin.
+ - If you have an enemy, then learn and know your enemy, don’t just be mad at him or her.
+ - What’s a celebrity anyway? Paris Hilton’s a celebrity. I’m just a working actor.
+ - Sometimes when you’re the good guy, you’re sort of trapped. “Oh, he can’t say that.” And even when you’re playing a real person like a Steven Biko, you’re sort of stuck within those confines. So yeah, bad guys do have more fun.
+ - There’s always got to be room for what you might call benign corruption. Nobody blames a man who steals food to feed his starving children, but on the other hand, somebody who picks up a badge and takes an oath to serve and protect; we do expect a certain level of essential honesty.
+ - My role 14 years ago in Richard III – that was the first time I played a bad guy and learned a lot about it – they have all the fun!
+ - When you make a movie it’s always interesting, because you end up in places you never would as a normal visitor or tourist.
+ - I made a commitment to completely cut out drinking and anything that might hamper me from getting my mind and body together. And the floodgates of goodness have opened upon me – spiritually and financially.
+ - Any good piece of material like Shakespeare ought to be open to reinterpretation.
+ - I’m a parent. I think we’re responsible for the problems that young people have. I believe that. I don’t blame them for any of it. I blame us for what we haven’t done as mothers and fathers, not sticking together as a unit.
+ - A man once told me that you step out of your door in the morning, and you are already in trouble. The only question is are you on top of that trouble or not?
+ - My mother used to tell me: “You gotta smile more. Because if you don’t smile, the way you look at people, they’ll think you’re mad at them.”
+ - My mother never gave up one me. I messed up in school so much they were sending me home, but my mother sent me right back.
+ - I always think it’s not what we know that’s terrifying; it’s what we don’t know. That’s sort of pervasive with everything in life.
+ - My ultimate life dream project is my kids. My family.
+
+145 quotes

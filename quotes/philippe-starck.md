@@ -1,0 +1,26 @@
+ - I have this mental sickness called creativity.
+ - Future is about dematerialisation.
+ - Design is a dreadful form of expression.
+ - I am my brain’s publisher.
+ - The more materiality there is, the less humanity there is.
+ - Getting to the heart of things, is never easy.
+ - Elegance and honesty are two mandatory parameters for any human production.
+ - We have to replace beauty, which is a cultural concept, with goodness, which is a humanist concept.
+ - I like to open the doors to people’s brain.
+ - Design does not really interest me.
+ - I am just a copier, an impostor. I wait, I read magazines. After a while my brain sends me a product.
+ - Design is a tool to help the tribe.
+ - Despite its simple and humble design, Zik is certainly today one of our most successful products in terms of intuitive ergonomics.
+ - Everything I do is a symbol. Everything, has a meaning.
+ - For the organic food, the less it’s designed, the better it is.
+ - For me, luxury is intelligence and quality. I don’t see a lot of intelligence and quality in luxury when it’s used to make fast, big money.
+ - Providing a real way to deal with the urgent needs of environmental issues that is accessible to everyone is the new fight for the democratization of design.
+ - My juicer is not meant to squeeze lemons; it is meant to start conversations.
+ - No one is obliged to be a genius, but everyone is obliged to participate.
+ - Everywhere, I’m looking to reach elegance and intelligence.
+ - I’m not a god, I’m not a genius, I’m not a monk, I make non-design for non-consumers. I don’t know if I do exist.
+ - Anyone can build a building that protects people from heat, sun and cold. What I am determined to do is to make a stage where people can be sexier and more brilliant, a place where they can awake smarter.
+ - In perhaps 50 years, 60 years, we can finish completely this civilization, and offer to our children the possibility to invent a new story, a new poetry, a new romanticism.
+ - I try to rediscover why that object exists at all, and why one should take the trouble to reconsider It. I don’t consider the technical or commercial parameters so much as the desire for a dream that humans have attempted to project onto an object.
+
+24 quotes

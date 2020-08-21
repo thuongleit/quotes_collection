@@ -1,0 +1,38 @@
+ - The way to a man’s heart is through his stomach.
+ - The cream of enjoyment in this life is always impromptu. The chance walk; the unexpected visit; the unpremeditated journey; the unsought conversation or acquaintance.
+ - To her, the name of father was another name for love.
+ - Oh! to be a child again. My only treasures, bits of shell and stone and glass. To love nothing but maple sugar. To fear nothing but a big dog. To go to sleep without dreading the morrow. To wake up with a shout. Not to have seen a dead face. Not to dread a living one. To be able to believe.
+ - I am getting sick of people. I am falling in love with things. They hold their tongues...
+ - Fitz Allen had ‘traveled;’ and that is generally understood to mean to go abroad and remain a period of time long enough to grow a fierce beard, and fierce mustache, and cultivate a thorough contempt for everything in your own country.
+ - It is the most astonishing thing that persons who have not sufficient education to spell correctly, to punctuate properly, to place capital letters in the right places, should, when other means of support fail, send mss. for publication.
+ - When a literary person’s exhaustive work is over, the last thing he wishes to do is to talk books.
+ - Dear reader, true religion is not gloomy.
+ - Nowhere more than in New York does the contest between squalor and splendor so sharply present itself.
+ - Hotel life is about the same in every latitude.
+ - I hate the word proper. If you tell me a thing is not proper, I immediately feel the most rabid desire to go ‘neck and heels’ into it.
+ - O, girls! set your affections on cats, poodles, parrots or lap-dogs; but let matrimony alone. It’s the hardest way on earth to getting a living.
+ - What a pity when editors review a woman’s book, that they so often fall into the error of reviewing the woman instead.
+ - Hoary-headed old Winter, I have had enough of you!
+ - There are no little things. Little things are the hinges of the universe.
+ - Never ask a favor until you are drawing your last breath; and never forget one.
+ - She said it was beautiful to be loved, and that it made everything on earth look brighter.
+ - I am convinced that there are times in everybody’s experience when there is so much to be done, that the only way to do it is to sit down and do nothing.
+ - Too much indulgence has ruined thousands of children; too much love not one.
+ - Uncles and aunts, and cousins, are all very well, and fathers and mothers are not to be despised; but a grandmother, at holiday time, is worth them all.
+ - Blessed be sleep! We are all young then; we are all happy. Then our dead are living.
+ - How strong sometimes is weakness!
+ - Well, it is a humiliating reflection, that the straightest road to a man’s heart is through his palate.
+ - Show me an ‘easy person,’ and I will show you a selfish one. Good-natured he may be; why not? since the disastrous consequences of his ‘easiness’ are generally shouldered by other people.
+ - Our domestic Napoleons, too many of them, give flattery, bonnets and bracelets to women, and everything else but – justice...
+ - Why will parents use that expression? What right have you to have a favorite child?
+ - I dare say you will try to make me believe that Editors are human. Now I deny that, for I myself have, in past days, had evidence to the contrary.
+ - Advice is like a doctor’s pills; how easily he gives them! how reluctantly he takes them when his turn comes!
+ - To the Pilgrim Mothers, who not only had their full share of the hardships and privations of pioneer life but also had the Pilgrim Fathers to endure.
+ - Experience is an excellent doctor, though he never had a diploma.
+ - No crust so tough as the grudged bread of dependence.
+ - One person is as good as another in New England, and better, too.
+ - Pity that gold should always bring with it the canker – covetousness.
+ - The term ‘lady’ has been so misused, that I like better the old-fashioned term, woman.
+ - Everything in the country, animate and inanimate, seems to whisper, be serene, be kind, be happy. We grow tolerant there unconsciously.
+
+36 quotes

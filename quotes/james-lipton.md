@@ -1,0 +1,34 @@
+ - A good day’s writing, when I turn off my computer after I know that I’ve written okay, or as well as I can write, that’s a day well spent.
+ - Comedians don’t laugh. They’re too busy analyzing why it’s funny or not.
+ - I think that anybody’s craft is fascinating. A taxi driver talking about taxi driving is going to be very, very interesting.
+ - They change. They’re different. There are no two alike, that’s the miracle of it. But if they have something to teach the students. You can see them writing during the show.
+ - The definition of genius, really, should be that that person can do what the rest of us have to learn how to do.
+ - Geniuses always think it’s easier than we make it out to be.
+ - The foundation for film acting is stage acting.
+ - I may be writing well, I may be writing poorly, but I enjoy the act of writing and sometimes when it turns out okay, I feel an elation that is incomparable.
+ - There’s only one man I’ve called a coward, and that’s Brian Doyle-Murray.
+ - I work seven days a week and I work about 12 hours a day, from the beginning of September to about the end of May; the school year. I take two days off, Christmas and New Year’s, Thanksgiving sometimes – two and a half. And the result is that I bonded myself to my desk.
+ - There are still actors who use emotional memory, affective memory, which was Lee Strasberg’s emphasis, not his total emphasis. She taught everything at the Actor’s Studio. But nevertheless, she felt that it impeded her.
+ - I must confess that when I’m alone in my study, here in New York, writing; that’s when I’m happy.
+ - If heaven exists, what would you like to hear God say when you arrive at the Pearly Gates?
+ - Our language, one of our most precious natural resources, deserves at least as much protection as our woodlands, streams and whooping cranes.
+ - Always accepting the greatest joy of all is the time that I get to spend with my wife.
+ - I’ll miss it until the day I die, and I’m convinced to this day that I can get on a horse and jump a course of fences satisfactorily. It doesn’t leave you.
+ - If I were to ask you for example right now to go back with me and define those moments in your life that shaped you as a person and you began to reexamine them, something would happen.
+ - The difference – the fundamental difference between theater acting and film acting is that film acting is disjunctive.
+ - Life is just a Box of Chocolates.
+ - I love writing. I like reading, other people, not myself.
+ - When you’re talking about the thing that is most important to someone, they’re liable to feel something strong.
+ - I was originally going to be a lawyer, and the only thing I remember from the art of cross-examination is – you can see this one coming up Sixth Avenue – never ask a question the answer to which you do not know.
+ - I wanted when we began this to have a conversation, the kind that you’re able to have, and the only way I knew how to do it was not to have a pre-interview.
+ - I’d been on all the television programs as an actor, as a writer, as a director, as a producer.
+ - Olivier was another case of a genius, who couldn’t understand why anybody would have any trouble doing this, because for him it came so easily.
+ - Hackman is able to live in the moment which means there is nothing for him at that split second than what is occurring in the scene.
+ - The Pivot Questionnaire that I ask other people, when I have on rare occasion answered it, the answer to the question, “What turns you on?” Is words. Not mine, other people’s. Words, words, words, that’s what turns me on.
+ - I stopped writing at the age of 18. I had written incessantly before that. I read, of course, because I was in university, but I wasn’t going to write. I wasn’t going to do any of those dangerous things. I was going to be a stolid, bourgeois lawyer.
+ - I became an actor by accident, not by design.
+ - I would say that writing, both the act of writing, and of course reading of other people’s work is, for me, supreme joy.
+ - I became a professional actor in Detroit and I was able to earn some money. It was a good job because it permitted me to study. It fit perfectly with school.
+ - Landing the airplane I think is the most difficult thing that I’ve every learned to do in my life.
+
+32 quotes

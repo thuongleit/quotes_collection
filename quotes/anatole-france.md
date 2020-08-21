@@ -1,0 +1,148 @@
+ - To accomplish great things, we must not only act, but also dream; not only plan, but also believe.
+ - Until one has loved an animal a part of one’s soul remains unawakened.
+ - If the path be beautiful, let us not ask where it leads.
+ - All changes, even the most longed for, have their melancholy; for what we leave behind us is a part of ourselves; we must die to one life before we can enter another.
+ - The law, in its majestic equality, forbids the rich as well as the poor to sleep under bridges, to beg in the streets, and to steal bread.
+ - Nine tenths of education is encouragement.
+ - Do not try to satisfy your vanity by teaching a great many things. Awaken people’s curiosity. It is enough to open minds; do not overload them. Put there just a spark. If there is some good inflammable stuff, it will catch fire.
+ - Change is the essence of life.
+ - If we don’t change, we don’t grow. If we don’t grow, we aren’t really living.
+ - Dictionary: The universe in alphabetical order.
+ - If a million people say a foolish thing, it is still a foolish thing.
+ - We have never heard the devil’s side of the story, God wrote all the book.
+ - To know is nothing at all; to imagine is everything.
+ - Stupidity is far more dangerous than evil, for evil takes a break from time to time, stupidity does not.
+ - It is better to understand little than to misunderstand a lot.
+ - You learn to speak by speaking, to study by studying, to run by running, to work by working; in just the same way, you learn to love by loving.
+ - Sometimes one day in a difference place gives you more than ten years of a life at home.
+ - The more you say, the less they remember.
+ - You think you are dying for your country; you die for the industrialists.
+ - For every monarchy overthrown the sky becomes less brilliant, because it loses a star. A republic is ugliness set free.
+ - The whole art of teaching is only the art of awakening the natural curiosity of young minds for the purpose of satisfying it afterwards.
+ - It is well for the heart to be naive and the mind not to be.
+ - Lovers who love truly do not write down their happiness.
+ - The wonder is, not that the field of stars is so vast, but that man has measured it.
+ - Chance is perhaps the pseudonym of God when he did not want to sign.
+ - Yet, every now and then, there would pass a young girl, slender, fair and desirable, arousing in young men a not ignoble desire to possess her, and stirring in old men regrets for ecstasy not seized and now forever past.
+ - The average man does not know what to do with this life, yet wants another one which will last forever.
+ - It is by believing in roses that you make them bloom.
+ - The best sentence? The shortest.
+ - The truth is that life is delicious, horrible, charming, frightful, sweet, bitter, and that is everything.
+ - The future is a convenient place for dreams.
+ - In art as in love, instinct is enough.
+ - It is good to collect things, but it is better to go on walks.
+ - I prefer the folly of enthusiasm to the indifference of wisdom.
+ - To imagine is everything, to know is nothing at all.
+ - Intelligent women always marry fools.
+ - We chase dreams and embrace shadows.
+ - Wandering re-establishes the original harmony which once existed between man and the universe.
+ - Man is so made that he can only find relaxation from one kind of labor by taking up another.
+ - The greatest virtue of man is perhaps curiosity.
+ - Existence would be intolerable if we were never to dream.
+ - I cling to my imperfection, as the very essence of my being.
+ - There are very honest people who do not think that they have had a bargain unless they have cheated a merchant.
+ - True education is the ability to discern the difference between what you do know and what you don’t.
+ - There is only one science, love, one riches, love, only one policy, love. To make love is all the law and the prophets.
+ - It is human nature to think wisely and act in an absurd fashion.
+ - The duty of literature is to note what counts, and to light up what is suited to the light. If it ceases to choose and to love, it becomes like a woman who gives herself without preference.
+ - The dog is a religious animal. In his savage state he worships the moon and the lights that float upon the waters. These are his gods to whom he appeals at night with long-drawn howls.
+ - The Kingdom of Heaven is a military autocracy and there is no public opinion in it.
+ - Unhappiness does make people look stupid.
+ - History books that contain no lies are extremely dull.
+ - If it were absolutely necessary to choose, I would rather be guilty of an immoral act than of a cruel one.
+ - Lack of understanding is a great power. Sometimes it enables men to conquer the world.
+ - We have drugs to make women speak, but none to keep them silent.
+ - Never lend books, for no one ever returns them.
+ - Irony and pity are two good counselors: one, in smiling, makes life pleasurable; the other, who cries, makes it sacred.
+ - Ignorance and error are necessary to life, like bread and water.
+ - A simple style is like white light. Although complex, it does not appear to be so.
+ - That man is prudent who neither hopes nor fears anything from the uncertain events of the future.
+ - A person is never happy except at the price of some ignorance.
+ - No government ought to be without censors; and where the press is free, no one ever will. Chance is the pseudonym of God when he did not want to sign.
+ - Nothing spoils a confession like repentance.
+ - Without lies humanity would perish of despair and boredom.
+ - What men call civilization is the condition of present customs; what they call barbarism, the condition of past ones.
+ - Religion has done love a great service by making it a sin.
+ - Custom alone regulates morals.
+ - A writer is rarely so well inspired as when he talks about himself.
+ - You become a good writer just as you become a good joiner: by planing down your sentences.
+ - Innocence most often is a good fortune and not a virtue.
+ - Silence is the wit of fools.
+ - There are no bad books any more than there are ugly women.
+ - What we call strategy is mainly just crossing rivers on bridges and passing mountains though cols.
+ - The impotence of God is infinite.
+ - When a history book contains no lies it is always tedious.
+ - Jealousy is a virtue of democracies which preserves them from tyrants.
+ - It is in the ability to deceive oneself that the greatest talent is shown.
+ - Our passions are ourselves.
+ - Of all the ways of defining man, the worst is the one which makes him out to be a rational animal.
+ - Caress your phrase tenderly; it will end by smiling at you.
+ - That child whose mother has never smiled upon him is worthy neither of the table of the gods nor the couch of the goddesses.
+ - What frightens us most in a madman is his sane conversation.
+ - People who have no weaknesses are terrible; there is no way of taking advantage of them.
+ - It is by acts and not by ideas that people live.
+ - War will disappear only when men shall take no part whatever in violence and shall be ready to suffer every persecution that their abstention will bring them. It is the only way to abolish war.
+ - The finest words in the world are only vain sounds if you can’t understand them. The best sentence? The shortest.
+ - Nature has no principles. She makes no distinction between good and evil.
+ - Irony is the gaiety of reflection and the joy of wisdom.
+ - It is not easy to be a pretty woman without causing mischief.
+ - Justice is the means by which established injustices are sanctioned.
+ - It is only the poor who are forbidden to beg.
+ - It is the certainty that they possess the truth that makes men cruel.
+ - We live between two dense clouds; the forgetting of what was and the uncertainty of what will be.
+ - A woman without breasts is like a bed without pillows.
+ - Of all the sexual aberrations, chastity is the strangest.
+ - I thank fate for having made me born poor. Poverty taught me the true value of the gifts useful to life.
+ - Truth possesses within herself a penetrating force, unknown alike to error and falsehood. I say ‘truth’ and you understand my meaning. For the beautiful words truth and justice need not to be defined in order to be understood in their true sense.
+ - In every well-governed state wealth is a sacred thing; in democracies it is the only sacred thing.
+ - Of all earthly creatures, humans alone have the power to choose. One must never lose time in vainly regretting the past nor in complaining about the changes which cause us discomfort, for change is the very essence of life.
+ - Suffering! We owe to it all that is good in us, all that gives value to life; we owe to it pity, we owe to it courage, we owe to it all the virtues.
+ - Word-carpentry is like any other kind of carpentry: you must join your sentences smoothly.
+ - Play is hand-to-hand encounter with Fate.
+ - The future is hidden even from those who make it.
+ - Time deals gently only with those who take it gently.
+ - One thing above all gives charm to men’s thoughts, and this is unrest. A mind that is not uneasy irritates and bores me.
+ - Those who have given themselves the most concern about the happiness of peoples have made their neighbors very miserable.
+ - God forbids suicide, and is unwilling that his creatures should destroy themselves.
+ - What we call happiness is what we do not know.
+ - The Arab who built himself a hut with marbles from the temple of Palmyra is more philosophical than all the curators of the museums of London, Paris, and Munich.
+ - It is remarkable how great an influence our clothes have on our moral state.
+ - The law in its majesty prohibits rich and poor alike from sleeping under bridges.
+ - We thank God for having created this world, and praise Him for having made another, quite different one, where the wrongs of this one are corrected.
+ - Ugly women may be naturally quite as capricious as pretty ones; but as they are never petted and spoiled, and as no allowances are made for them, they soon find themselves obliged either to suppress their whims or to hide them.
+ - Armenia is dying, but it will survive. The little blood that it still has left is precious blood that will give birth to a heroic generation. A nation that does not want to die, does not die.
+ - It is not customary to love what one has.
+ - The mania of thinking renders one unfit for every activity.
+ - Never lend books, for no one ever returns them; the only books I have in my library are books that other folks have left me.
+ - Man is a rational animal. He can think up a reason for anything he wants to believe.
+ - An old philosopher said to Monsieur Coignard, a Reverend Father: ‘You are a pig!’ To which Abad Coignard answered: ‘You flatter me, sir. But unfortunately, I’m only a man.’
+ - The heart errs like the head; its errors are not any the less fatal, and we have more trouble getting free of them because of their sweetness.
+ - He flattered himself on being a man without any prejudices; and this pretension itself is a very great prejudice.
+ - What can be more foolish than to think that all this rare fabric of heaven and earth could come by chance, when all the skill of art is not able to make an oyster!
+ - I ought not to fear to survive my own people so long as there are men in the world; for there are always some whom one can love.
+ - For the majority of people, though they do not know what to do with this life, long for another that shall have no end .
+ - The man of science multiples the points of contact between man and nature.
+ - An education which does not cultivate the will is an education that depraves the mind.
+ - The good critic is he who relates the adventures of his soul among masterpieces.
+ - We reproach people for talking about themselves; but it is the subject they treat best.
+ - In truth man is made rather to eat ices than to pore over old texts.
+ - There is a certain impertinence in allowing oneself to be burned for an opinion.
+ - So long as society is founded on injustice, the function of the laws will be to defend injustice. And the more unjust they are the more respectable they will seem.
+ - Universal peace will be realized, not because man will become better, but because a new order of things, a new science, new economic necessities, will impose peace.
+ - It’s not by amusing oneself that one learns.
+ - In order that knowledge be properly digested it must have been swallowed with a good appetite.
+ - It is only the poor who pay cash, and that not from virtue, but because they are refused credit.
+ - America, where thanks to Congress, there are forty million laws to enforce the Ten Commandments.
+ - Only men who are not interested in women are interested in women’s clothes. Men who like women never notice what they wear.
+ - The power of love itself weakens and gradually becomes lost with age, like all the other energies of man.
+ - The first virtue of all really great men is that they are sincere. They eradicate hypocrisy from their hearts.
+ - All the good writers of confessions, from Augustine onwards, are men who are still a little in love with their sins.
+ - To die for an idea is to set a rather high price upon conjecture.
+ - People who don’t count won’t count.
+ - Devout believers are safeguarded in a high degree against the risk of certain neurotic illnesses; their acceptance of the universal neurosis spares them the task of constructing a personal one.
+ - The faculty of doubting is rare among men. A few choice spirits carry the germs of it in them, but these do not develop without training.
+ - I do not know any reading more easy, more fascinating, more delightful than a catalogue.
+ - Human affairs inspire in noble hearts only two feelings-admiration or pity.
+ - The books that everybody admires are those that nobody reads.
+
+146 quotes

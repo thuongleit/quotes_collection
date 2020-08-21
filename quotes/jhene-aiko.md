@@ -1,0 +1,51 @@
+ - Change is inevitable. Why hold onto what you have to let go of?
+ - Shame on you for staying the same.
+ - Life only gets harder, but you gotta get stronger.
+ - You have got to lose your mind just to find your peace of mind.
+ - Yeah, I mean I’m a water sign. I’m a Pisces.
+ - Just be yourself and wear deodorant.
+ - My main goal in life is to just be happy. I don’t compromise my happiness for anything. If I find what makes me happy I’m going to do that. That’s really going with the flow of life. As far as like the mainstream stuff, if my destiny takes me there and I end up going that route, then that’s fine.
+ - Cause nothing really is and everything really isn’t.
+ - You have got to trust the signs. Everything will turn out fine.
+ - The way you feel is not my problem.
+ - I don’t think I have a sad life. I just talk about all my feelings and emotions.
+ - What you create for you, no one can take from you.
+ - I’m cool with nothing cause even nothing is something.
+ - I just like being a regular person.
+ - There’s no slowing down as the globe spins ’round and ’round. You gotta keep going.
+ - Suffering is optional. You’re gonna have some pain but it doesn’t have to make you suffer.
+ - Is it strange for me to say that if I were to die today, there’s not a thing I would change? I’ve lived well. Maybe I have made mistakes and been through my fair share of pain but all in all, it’s been okay. I’ve lived well.
+ - Females in our generation morals are just out the window. Materialistic things aren’t life. I’d rather walk in the rain with a man who treats me like a queen than to ride in a Benz with a man who treats me like crap.
+ - As I got older, I really got into Tupac’s poetry, his books and just learning about his life and what he was into.
+ - I’ve been offered things from alot of different labels and stuff like that, but it’s just like, it has to be perfect. I’m not going to sign my life away.
+ - You know how a lot of people say, ‘I lose myself in music,’ or ‘I like to escape,’ but I want my music to be more of an awakening. I want it to make people to be aware of life; I don’t want my music to be a distraction. I want to light a path.
+ - I appreciate when people listen to the sad songs, because it’s almost like telling someone your problems and having them listen with a compassionate ear.
+ - I’m not a party animal. I’m a chill homebody. I like to watch movies and go out to eat. That’s my idea of a good time. I’m definitely able to be social.
+ - Love side, hate side, never in between.
+ - I have a crazy sense of humor so if someone is just trying to be rude to me, or if you can tell that someone is angry for no reason, I like to entertain them.
+ - I stopped looking at people’s opinions. It’s easy to get caught up in what other people think.
+ - Nothing really came, everything was like inspired by something.
+ - I think as a person, I have a whole bunch of different sides to me.
+ - Because people love music, I feel it’s my responsibility to produce more of the music and to get it out to more people, so like I said, If the mainstream route does that without compromising me being happy as a person then that’s something I’ll do.
+ - A lot of time when I’m creating songs, they’re in real time. When I’m writing the song, I feel what I’m feeling for its full potential. As soon as the song is over, I’m like, I created art.
+ - I’m not the type that would ask for a number or ask him on a date, but I have approached a guy. I probably would tell a joke or say, “You’re really cute.”
+ - I finished school, because I started when I was thirteen, so basically around 16 or 17, I just focused on finishing high school.
+ - I know like the Wiz Khalifah one, got me excited because I like his music, and its almost like you know I can relate to his music, so I feel like dang if he listens to my stuff and thought it was good then maybe I’m as good as him, you know what I mean?
+ - I think if a woman is feeling aggressive, she should be aggressive and not hold back.
+ - I appreciate all the people that can respect and appreciate my music.
+ - I’ve never been in that position in my life, where I hate a celebrity so much that I want to call them names.
+ - I just want to meet as many people as I can and talk with as many people as I can, but whatever allows me to do that then that’s my main goal. It’s just to understand as much as I can about life and how it happens.
+ - When I find something good, I stick to it for like a month. I’m usually late on like other stuff. Kendrick Lamar, I can play that often.
+ - Before I had my daughter I actually wanted to do something that I could put out for free, like a mixtape, but it wasn’t going to really be a mixtape, it was just going to be songs that I wrote and release for free.
+ - I’m trying to teach people not to be selfish. That’s the thing. If you have a good thing share it. Of course we’re not in a sexual relationship.
+ - I think that’s really really important, you can’t get in the industry, because you want to make money because number one, I don’t think money should be motivation for anything because I don’t believe that it has any value.
+ - I’m probably my biggest critic. There’s nothing anyone can ask of me that I haven’t already asked of myself.
+ - I don’t feel like I have to use big words or theories to get my point across. People are like, “Whoa. That’s crazy” and make it into this crazy thing.
+ - I had my baby around 20 and I was always working on music, but I was always working on music, but I was doing other stuff as well.
+ - I’m creating songs. I do it most of the time, in the car or in the house.
+ - I always tell people is really make sure you know why you want to do it. For me, I didnt make a conscious decision like “Oh I want to be a singer”, it was like I grew up around it, I was singing because it was just natural for me to sing.
+ - I think touring is one fo the funnest parts of being a singer or entertainer or whatever.
+ - Writing has always been my go-to form of expression. Whenever I was going through something as a kid, I would write it down and I would turn it into a poem.
+ - I want to write some books. Books that have nothing to do with music, just some fiction type of books for a whole different audience of people.
+
+49 quotes

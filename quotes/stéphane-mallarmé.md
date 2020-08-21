@@ -1,0 +1,27 @@
+ - To define is to kill. To suggest is to create.
+ - You don’t make a poem with ideas, but with words.
+ - Everything in the world exists in order to end up as a book.
+ - Poets don’t finish poems, they abandon them.
+ - Every soul is a melody which needs renewing.
+ - O naked flower of my lips, you lie! I await a thing unknown or perhaps, unaware of the mystery and your cries you give, O lips, the supreme tortured moans of a childhood groping among its reveries to sort out finally its cold precious stones.
+ - A soul trembling to sit by a hearth so bright, To exist again, it’s enough if I borrow from Your lips the breath of my name you murmur all night.
+ - A throw of the dice will never abolish chance.
+ - It is the job of poetry to clean up our word-clogged reality by creating silences around things.
+ - In reading, a lonely quiet concert is given to our minds; all our mental faculties will be present in this symphonic exaltation.
+ - All thoughts emit a throw of dice.
+ - Poetry is the language of a state of crisis.
+ - Dreams have as much influences as actions.
+ - It is in front of the the paper that the artist creates himself.
+ - The reproach that superficial people formulate against Manet, that whereas once he painted ugliness, now he paints vulgarity, falls harmlessly to the ground, when we recognize the fact that he paints the truth.
+ - The flesh is sad, alas, and I have read all the books.
+ - Everything that is sacred and that wishes to remain so must envelop itself in mystery.
+ - As for me, Poetry takes the place of love, because it is enamored of itself, and because this self-lust has a delightful dying fall in my soul.
+ - Paintings are painted with paint, not with ideas.
+ - The pure work implies the disappearance of the poet as speaker, who hands over to the words.
+ - I have made a long enough descent into the void to speak with certainty. There is nothing but beauty – and beauty has only one perfect expression, Poetry. All the rest is a lie.
+ - The world was made in order to result in a beautiful book.
+ - Paint, not the thing but the effect which it produces.
+ - The poetic act consists of suddenly seeing that an idea splits up into a number of equal motifs and of grouping them; they rhyme.
+ - In a museum in London there is an exhibit called “The Value of Man”: a long coffinlike box with lots of compartments where they’ve put starch phosphorus flour bottles of water and alcohol and big pieces of gelatin. I am a man like that.
+
+25 quotes

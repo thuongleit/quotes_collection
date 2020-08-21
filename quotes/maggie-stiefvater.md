@@ -1,0 +1,400 @@
+ - One happy day for every falling leaf you catch. 
+ - Silence was never a wrong answer.
+ - If you never saw the stars, candles were enough.
+ - He was brother to a liar and brother to an angel, son of a dream and son of a dreamer.
+ - I’m so tired I never want to wake up again. But I’ve figured out now that it was never them that made me feel that way. It was just me, all along.
+ - Arbores loqui latine. The trees speak Latin.
+ - I hated this. I hated knowing what I wanted and knowing what was right and knowing they weren’t the same thing.
+ - She recognized the strange happiness that came from loving something without knowing why you did, that strange happiness that was sometimes so big that it felt like sadness. It was the way she felt when she looked at the stars.
+ - In the end, you have to write like you’re not afraid of the critics.
+ - And Ronan was everything that was left: molten eyes and a smile made for war.
+ - It is the first day of November and so, today, someone will die.
+ - She wasn’t interested in telling other people’s futures. She was interested in going out and finding her own.
+ - My words are unerring tools of destruction, and I’ve come unequipped with the ability to disarm them.
+ - They were always walking away from him. But he never seemed able to walk away from them.
+ - Shhhhhh, shhhhhh, says the sea, but I don’t believe her.
+ - What about us? Can i see you again? You can say no. You’d crush all my hopes and dreams, but it’s an option.
+ - I was losing sight of the wolf ahead of me; the one inside me seemed closer all of a sudden.
+ - He strode over to the ruined church. This, Blue had discovered, was how Gansey got places – striding. Walking was for ordinary people.
+ - Reality’s what other people dream for you.
+ - No, you have to talk first. You wanted to talk. It means you say something and I respond and you talk back again. It’s one of the human race’s most shining achievements. It’s called a conversation.
+ - I was born with these eyes. I was born for this life.
+ - If I were a tree, I would have no reason to love a human.
+ - Sorry for hurting you, she said right in my ear, but it wasn’t really an apology, because you don’t bite someone’s earlobe to tell them you’re sorry.
+ - Avoidance is a wonderful therapy.
+ - Scent is the strongest tie to memory.
+ - The journal and Gansey were clearly long acquainted, and he wanted her to know. This is me. The real me.
+ - The world needs more love at first sight.
+ - Death smells like birthday cake.
+ - I am so, so alive.
+ - Dying’s a boring side effect.
+ - Have you heard of the legends of sleeping kings? The legends that heroes like Llewellyn and Glendower and Arthur aren’t really dead, but are instead sleeping in tombs, waiting to be woken?
+ - Gansey had once told Adam that he was afraid most people didn’t know how to handle Ronan. What he meant by this was that he was worried that one day someone would fall on Ronan and cut themselves.
+ - Aglionby Academy was the number one reason Blue had developed her two rules: One, stay away from boys because they were trouble. And two, stay away from Aglionby boys, because they were bastards.
+ - There was something striking about her posture; something about the tilt to her head. She was like a beautiful and lonely piece of art, lovely but unreachable.
+ - People shouldn’t have to earn kindness. They should have to earn cruelty.
+ - Ronan Lynch lived with every sort of secret.
+ - There are moments that you’ll remember for the rest of your life and there are moments that you think you’ll remember for the rest of your life, and it’s not often they turn out to be the same moment.
+ - Ronan didn’t need physics. He could intimidate even a piece of plywood into doing what he wanted.
+ - Then I picked my book back up again and stroked her hair and read to the soundtrack of her breaths.
+ - I’ve always loved reading fantasy. I used to pick out all the books in the library that had the little unicorn sticker on the side to show that they were fantasy.
+ - It’s a strange thing, to be talked about instead of talked to.
+ - We all, one day, realize that we’re not going to be kids forever and we’re going to grow up.
+ - He hadn’t realized yet that Gansey could persuade even the sun to pause and give him the time.
+ - I really love nature. I grew up in the country. But one of the things about nature is that it is beautiful but it’s also very dangerous.
+ - He asked for a specific. I gave him a specific. I’m sorry it wasn’t puppies.
+ - It was mint and memories and the past and the future and she felt as if she’d done this before and already she longed to do it again.
+ - In the end, he was nobody to Adam, he was nobody to Ronan. Adam spit his words back at him and Ronan squandered however many second chances he gave him. Gansey was just a guy with a lot of stuff and a hole inside him that chewed away more of his heart every year.
+ - I’m not looking for self-control.
+ - She was the most beautiful thing I had ever seen, a tiny, bloody angel in the snow, and they were going to destroy her.
+ - And then I did laugh, even though the future was a dangerous place, because I loved her, and she loved me, and the world was beautiful.
+ - Some days seem to fit together like a stained glass window. A hundred little pieces of different color and mood that, when combined, create a complete picture.
+ - Once upon a time, this moment – this last light of the evening the day before the race – was the best moment of the year for me. The anticipation of the game to come. But that was when all I had to lose was my life.
+ - It’s rude to stare, but the great thing about staring at a sedated person is that they don’t know you’re doing it.
+ - Delia was an overbearing cake with condescending frosting, and frankly, I was on a diet.
+ - Flickering lights anonymous doors my heart escaping in drips i’m still waking up but she’s still sleeping this ICU is hotel for the dead.
+ - Now I am the unknown, the unknowable.
+ - It’s easy to convince men to love you, Puck. All you have to do is be a mountain they have to climb or a poem they don’t understand.
+ - Crashing into the trembling void Stretching my hand to you Losing myself to frigid regret Is this fragile love A way To say Good-bye.
+ - This is the story of a boy who used to be a wolf, and a girl who became one.
+ - I stood on my toes and stole a soft kiss from his lips. “Surprise attack,” I said. Sam leaned down and kissed me back, his mouth lingering on mine, teeth grazing my lower lip, making me shiver. “Surprise attack back.” “Sneaky,” I said, my voice breathier than I intended.
+ - I am alone in the world, and yet not alone enough to make each hour holy. I am lowly in this world, and yet not lowly enough for me to be just a thing to you, dark and shrewd. I want my will and I want to go with my will as it moves towards action.
+ - Hope hurt more than the cold.
+ - Then I began to play. Variations on a G major chord, the most wonderful chord known to mankind, infinitely happy. I could live inside a G major chord, with Grace, if she was willing. Everything uncomplicated and good about me could be summed up by that chord.
+ - Books are more real when you read them outside.
+ - I wish you could be kissed, Jane,? he said. ‘Because I would beg just one off you. Under all this.’ He flailed an arm toward the stars.
+ - I didn’t think I belonged here in her world, a boy stuck between two lives, dragging the dangers of the wolves with me, but when she said my name, waiting for me to follow, I knew I’d do anything to stay with her.
+ - The inside of the old Camaro smelled like asphalt and desire, gasoline and dreams.
+ - I feel a strange, fierce squeeze in my heart when I see him, like pride, although there’s nothing about Sean that I can take credit for.
+ - There was no other sound in the world like a car crash.
+ - His lips tasted cool and sharp, peppermint, winter, but his hands, soft on the back of my neck, promised long days and summer and forever.
+ - It is possible to be in love with you just because of who you are.
+ - The biggest mistake you can make is assuming that creativity will hit you all at once and the muse will carry you to the end of the book on feather wings while Foster the People plays gently in the background. Storytelling is work. Pleasurable work, usually, but it is work.
+ - One thousand ways to say good-bye One thousands ways to cry One thousand ways to hang your hat before you go outside I say good-bye good-bye good-bye I shout it out so loud Cause the next time that I find my voice I might not remember how.
+ - You’re like a song that I heard when I was a little kid but forgot I knew until I heard it again.
+ - I was thinking lots of things, but most of them needed to stay thoughts, not words.
+ - Did no one tell him that pain lives in this sand, dug in and watered with our blood?
+ - Life’s pain. You just have to get over as much of it as you can. -Isabel Culpeper.
+ - Sometimes Ronan thought Adam was so used to the right way being painful that he doubted any path that didn’t come with agony.
+ - Sam,? the girl said. ‘Sam.’ She was the past present and future. I wanted to answer, but I was broken.
+ - Gansey had no idea how old Blue was. He knew she’d just finished eleventh grade. Maybe she was sixteen. Maybe she was eighteen. Maybe she was twenty-two and just very short and remedial.
+ - A frightening menagerie, my emotions are Too many and varied to number Like creatures they crawl and they fly above Tearing my body asunder.
+ - I turned back to my extracurricular study of death and disease. Because no matter what Grace thought, I knew that in Mercy Falls, it’s never over.
+ - Now, I was a fan of the simple pleasures in life: grilled cheese sandwiches without black flecks on the crust, jeans that didn’t pinch the better parts of me, an inch of vodka, ten to twelve hours of sleep. – Cole St Clair, Forever.
+ - Neatness makes me feel like I have to be on my best behavior. Clutter is my natural habitat.
+ - Grace reached over and began stroking her fingers through my hair. I closed my eyes and let her drive me crazy.
+ - I had risked everything, and I had nothing to show for it but my open hand, lying empty and palm up toward the ceiling.
+ - You needn’t tell a bird it’s a bird. Or remind a fish of its purpose. It’s only us who lose our way. We have names because we must. – from Golden Tongue: The Poems of Steven Slaughter.
+ - I was wild and tame and pulled into shreds and crushed into being all at once.
+ - His face was just strange enough that she wanted to keep looking at it.
+ - In some parallel universe, there was a Gansey who could tell Blue that he found the ten inches of her bare calves far more tantalizing than the thirteen cubic feet of bare skin Orla sported. But in this universe, that was Adam’s job. He was in a terrible mood.
+ - All of them are men, not a girl amongst them unless you count Tommy Falk because his lips are so pretty.
+ - Sam reached his hand toward mine and I automatically put my fingers in his. With a guilty little smile he pulled my hand toward his nose and took a sniff and then another one. His smile widened though it was still shy. It was absolutely adorable and my breath got caught somewhere in my throat.
+ - Rilke says: Verweilung, auch am Verstrautesten nicht, ist uns gegeben – We are not allowed to linger, even with what is most intimate.
+ - She kissed me harder, breath huffing into my mouth, and bit my lip. Oh, hell that was amazing. I growled before I could stop myself.
+ - My whole life, I had thought that my story was, again and again: Once upon a time, there was a boy, and he had to risk everything to keep what he loved. But really, the story was: Once upon a time, there was a boy, and his fear ate him alive.
+ - I am not a huge fan of the one-sided pining romances where the guy is a perfect love-object because we don’t see inside his head.
+ - I’ve been dead for seven years, that’s as warm as they get.
+ - This is Rilke. I wish I had written it for you.
+ - It was nothing, but it was Adam Parrish’s nothing. How he hated and loved it. How proud he was of it, how wretched it was.
+ - The trees called to me, urging me to abandon what I knew and vanish into the oncoming night. It was a desire that had been tugging me with disconcerting frequency these days.
+ - I don’t trust the ocean, either; it would kill me as soon as not. It doesn’t mean I’m afraid of it.
+ - If that moment had been a real thing, it would’ve been a butterfly, flapping and fluttering toward the sun.
+ - Mum once told Dad that vices are only vices when looked at through the frame of society.
+ - His heart hurt with the wanting of it, the hurt no less painful for being difficult to explain.
+ - She breathed. “This is lovely.” It was for Adam, not Gansey, but she saw Gansey glance over his shoulder at her.
+ - She screamed, the high scream that was neither human nor animal but something terrible in between, the sort of sound that you never forget no matter how many beautiful things you hear afterward.
+ - It was a sort of ferocious, quiet beauty, the sort that wouldn’t let you admire it. The sort of beauty that always hurt.
+ - And then I opened my eyes and it was just Grace and me – nothing anywhere but Grace and me – she pressing her lips together as though she were keeping my kiss inside her, and me, holding this moment that was as fragile as a bird in my hands.
+ - She attempted to turn again; I held on. I wasn’t holding tight enough to keep her, but she wasn’t pulling hard enough to get away.
+ - I’d found heaven and grabbed it as tightly as I could, but it was unraveling, an insubstantial thread sliding between my fingers, too fine to hold.
+ - When the end comes, dark and hungry I’ll be alone, love When the end comes, black and starving I’ll say good-bye, love.-from Golden Tongue: The Poems of Steven Slaughter.
+ - When he kissed me, his lips soft and careful, it was all the thrill of our first kiss and all the practiced familiarity of the accumulated memory of all our kisses.
+ - I fell asleep to the scent of my wolf. Pine needles, cold rain, earthy perfume, coarse bristles on my face.
+ - You could write a book about things that you can’t find on-line.
+ - Not all. Some of them he probably lectured to death.
+ - I focus on the elements of a movie that are meant to invisibly affect me as a viewer. The edges. As an author, Im aware of how the subconscious things can pluck at a readers emotions, and I love it when filmmakers do the same.
+ - I was against felonies when a misdemeanor would do.
+ - I tried to picture her in a class, any class, anywhere on campus, and failed miserably. I pictured her frolicking in a forest glade around some guy she’d just sacrificed to a heathen god. That image worked way better.
+ - I think that’s a mercy of this island, actually, that it won’t give us our terrible memories for long, but let us keep the good ones for as long as we want them.
+ - The walls of the arch are covered with blood-red jellies that wink and glisten at me by the light of the moon. My father told me they were completely harmless. I don’t believe him. Nothing is completely harmless.
+ - Happiness isn’t something this island yields easily; the ground is too rocky and the sun too sparse for it to flourish.
+ - When Gansey was polite, it made him powerful. When Adam was polite, he was giving power away.
+ - There is no better taste than this: someone else’s laughter in your mouth.
+ - It’s a hard thing to hold a civil conversation after recalling that one party has used a Taser on the other, so both of them finished the walk in silence.
+ - Can I ask you a question? Ya just did. Can I ask you 2 questions then? Ya just did. Ohh, so you’re a smart ass.
+ - I try to think of something catchy to say, but there’s nothing but irritation that something that was funny yo an eleven-year-old boy is still funny to a seventeen-year-old one.
+ - That was a weird thought. My straight-up mother being bothered by faeries? Delia was even weirder. I could picture the scene. Faerie: Come away, human. Delia: Why? Faerie: Untold delights and youth forever. Delia: I’m holding out for a better offer. Ta.
+ - Blue thought about what Gansey had said, about being wealthy in love. And she thought about Adam, still collapsed on their sofa downstairs. If he had no one to wrap their arms around him when he was sad, could he be forgiven for letting his anger lead him?
+ - This new world was a vicious, sleek world made of street lights and tight jeans, sharp smiles and fast cars. This was a city, edited. A city, pared down to its bare minimums, beautiful and abusive.
+ - She doesn’t know any better, what a girl like her needs is a man with both his legs on the land. A man who will hold her down so that she doesn’t fly away. She doesn’t know yet that someone like you looks better on the shelf than in your hand.
+ - I slithered out of the sinkhole on my stomach. It was not the sexiest move I’d ever performed, but I was impressed nonetheless.
+ - I’m sorry no one saved you.
+ - I don’t think I ever believed in love, not really. Just though it was something James Bond made up, a long time ago, to get laid.
+ - She liked to imagine him stealing a glimpse of her over the backyard fence, proudly watching his strange daughter daydream under the beech tree. Blue was awfully fond of her father, considering she’d never met him.
+ - I wasn’t sure what expression I was expecting her to wear when she saw that it was me. I’d braced myself for disgust or anger. But she just looked at me like I was – nothing. An annoyance, maybe.
+ - You really didn’t see the sadness or the longing unless you already knew it was there. But that was the trick, wasn’t it? Everyone had their disappointment and their baggage; only, some people carried it in their inside pockets and not on their backs.
+ - I remembered standing in the middle of the street in front of The Crooked Bookshelf, filled with the certainty of a future. I had heard the wolves howling behind the house and remembered how glad I had been to be human.
+ - It’s like how on certain days some people wear sweaters when other people can wear t-shirts and still feel comfortable – different reactions to the same temperature.
+ - I adore book-to-film adaptations when they’re done well, and I’m more lenient than many readers when it comes to what counts as ‘done well.’ For me, the most important thing is that the film maintains the spirit of the original book.
+ - I don’t care for werewolves. They’re all right, I guess, if you go for the shedding, savaging the country-side thing. But they’re not very scary nor very sexy and so what’s the point?
+ - Wow, you’re never allowed to sleep late again. You’re crankier than a fat guy in stilettos.
+ - Clutter is my natural habitat.
+ - Mutual, respectful, enduring love is completely attainable as long as you swear you won’t settle for less.
+ - I am an introvert. I should get that out there now.
+ - I’m bored. I need to be entertained. Sam is moping. I may kill him with his own guitar. It would give me something to do and also make him say something. Two birds with one stone!
+ - Hello, Grace’s parents. I’m Grace’s boyfriend. Please notice the chaste distance between us. I am very responsible and have never had my tongue in your daughter’s mouth.
+ - One thousand brilliant stars punched holes in my consciousness, pricking me with longing. I could stare at the stars for hours, their infinite number and depth pulling me into a part of myself that I ignored during the day.
+ - I’m not done writing songs about you yet.
+ - Because you have only known me for like fourteen seconds and seven of those were us making out and you still know more about me than all of my friends in this stupid place.
+ - He is slow, and the sea sings to us both, but he returns to me.
+ - Folded in my arms you’re a butterfly in reverse you’re giving up your wings and inheriting my curse you’re letting go of me you’re letting go.
+ - I won’t let this be my good-bye. I’ve folded one thousand paper crane memories of me and Grace, and I’ve made my wish. I will find a cure. And then I will find Grace.
+ - Grace, who haunted my thoughts when I couldn’t dream.
+ - I’d learned a long time ago that one of the finest weapons in my arsenal was my ability to invade personal space.
+ - I expect that would be a very different world with very different priorities.
+ - Without turning on the light, I went to my bed and lay down, my arm thrown across the mattress, my hand aching because Grace wasn’t underneath it.
+ - I looked good when I sang the end.
+ - Look, I realize both of you could happily strangle each other across the table, but I don’t think that’s the most effective use of our time, and frankly, I don’t think I have enough money to tip the waitress for that kind of clean-up. And look, here’s lunch. Let’s eat that instead of eachother.
+ - I wasn’t sure if I admired him for feeling everything so hard and fiercely, or if I was contemptuous of him for having so much emotion that he had to spill it out every window of the house.
+ - It’s a bomb. Just like you.
+ - The piebald mare paws at the sand; I see her digging out of the corner of my eye and hear her grinding her teeth. That bridle’s her curse, this island her prison. She still smells of rot.
+ - Mum liked to say that some things happen for a reason, that sometimes obstacles were there to stop you from doing something stupid.
+ - Gansey threw open his door. Gripping the roof of the car, he slid himself out. Even that gesture, Ronan noted, was wild-Gansey, Gansey-on-fire. Like he pulled himself from the car because ordinary climbing out was too slow. This was going to be a night.
+ - Sailing to an island unknown Failing to find your way home you walk under a sea leagues beneath us.
+ - There was something unbearably sexy about cars at night, Ronan thought. The way the fenders twisted the light and reflected the road, the way every driver became anonymous. The sight of them knocked his heartbeat askew.
+ - It’s a lovely answer and takes me entirely by surprise. I hadn’t realized we were having a serious conversation, or I think I would’ve given a better reply when he asked me.
+ - If the waitress comes, order me a coffee and something that involves bacon.
+ - I’m a dirt road out in the country kind of person, but I remember thinking, I could live in Chicago.
+ - Sean takes my ponytail in his hand, his fingers touching my neck, and then he tucks my hair into my collar out of the reach of the wind. He avoids my gaze. Then he links his arm back around me and pushes his calf into Corr’s side.
+ - Somewhere fate laughs in her far-off country, because now I am the human and it is Grace I will lose again and again, immer wieder, always the same, every winter, losing more of her each year, unless I find a cure.
+ - When you were born, the rivers dried up and the cattle in Rockingham County wept blood.
+ - Boys like him didn’t die; they got bronzed and installed outside public libraries.
+ - I started down but Sam caught my arm and knelt down himself to look. “For crying out loud,” he said. “It’s a racoon.” “Poor thing,” I said. “It could be a rabid baby-killer,” Cole told me primly. “Shut up,” Sam said pleasantly.
+ - In the darkness, he is invisible, but I can still feel him beside me. Sometimes you don’t have to see something to know it is there.
+ - It’s very ugly’ I said generously. ‘But it looks as though it would laugh at snow. And, if you hit a deer it would hiccup, and keep going.
+ - Right, sure. Because there’s no girls in politics! I have no interest. Voting? What? I forgot my apron. I think I ought to be in the kitchen right now, actually. My rolling pin-.
+ - This is a love story. I never knew there were so many kinds of love or that love could make people do so many different things. I never knew there were so many different ways to say goodbye.
+ - But love isn’t quantifiable on paper.
+ - Blue was a fanciful, but sensible thing. Like a platypus, or one of those sandwiches that had been cut into circles for a fancy tea party.
+ - Most people had an acquired kind of beauty, they became better looking the longer you knew them and the better you loved them, but Cole had unfairly skipped to the end of the game, all jaggedly handsome and Hollywood-looking. Not needing any love to get there.
+ - My father said once that if I didn’t have my mother’s ginger hair, I wouldn’t blush or curse as easily. Which I though was unfair. I hardly ever curse or blush, even though I’ve had plenty of days that required both.
+ - Watch for the devil. When there’s a god, there’s always a legion of devils.
+ - I sense that his drowning but I don’t have any idea of how to start to put my hand into the water and save him.
+ - Sam: For once in my life, I was here and nowhere else.
+ - If she and Sam ever had kids, they’d be gluten-intolerant out of self-defence.
+ - I remember being intrigued by the idea of school-in-a-box, just-add-water-and-Sam.
+ - In that moment, Blue was a little in love with all of them. Their magic. Their quest. Their awfulness and strangeness. Her raven boys.
+ - It’s like thinking you’re going to heaven, but when you get there it turns out to be Cleveland.
+ - The fact was, I didn’t know if I was built for happy endings.
+ - He had a carrying, congressional sort of voice, the kind that sounded good saying things like Less of a tax burden on the middle class and Thank you for your donation and Honey, could you bring me my sweater with the duck on it?
+ - It was the way she felt when she looked at the stars.
+ - As you learn who you are, you can better surround yourself with friends who make you a better person, and that sometimes only happens when you disassemble old relationships.
+ - It was a strangely disorienting feeling, to have something you’d relied on for so long start to change, like finding out that gravity no longer worked on Mondays.
+ - The boy had my wolf’s eyes.
+ - As the hours crept by, the afternoon sunlight bleached all the books on the shelves to pale, gilded versions of themselves and warmed the paper and ink inside the covers so that the smell of unread words hung in the air.
+ - I sat on the hill, the wind whispering through the long grass that surrounded me. I stared at the stars and wanted more than what I was and more than what the world was and just – wanted.
+ - Are there any other missing persons living under your roof? Elvis? Jimmy Hoffa? Amelia Earhart? I’d just like full disclosure now, before we go any further.
+ - He danced on the knife’s edge between awareness and sleep. When he dreamt like this, he was a king. The world was his to bend. His to burn.
+ - I’m quite happy for that smile, because Dad told me once you should be grateful for the gifts that are the rarest.
+ - He was uncomfortable with the idea that use might not like him.
+ - Ronan kept staring at Whelk. He was good at staring. There was something about his stare that took something from the other person.
+ - I’m fascinated about how past events shape our perception of current events and how they make us the people we are.
+ - Kissing in front of the loveless is an act of cruelty.
+ - This is about as comforting as a cold brick when you’re lonely.
+ - I hated it. I hated this. I hated feeling so terrible because of someone else.
+ - Once upon a time I would’ve leaped at the rare opportunity of curling up with Mom on the couch. But now it sort of felt like too little too late. I had someone else waiting for me.
+ - Many, many readers have written asking me wistfully about the nature of Sam and Grace’s relationship, and I can assure you, that sort is absolutely real. Mutual, respectful, enduring love is completely attainable as long as you swear you won’t settle for less.
+ - At the door to the helicopter, Gansey looked bad over his shoulder at them, his smile complicated when he saw them holding hands.
+ - When you traffic in monsters, that’s the risk you run, that you’ll find one too monstrous to stomach.
+ - I had this feeling that he and I, in this moment, were a car crash, and instead of putting on the brakes, I was hitting the accelerator.
+ - I couldn’t imagine anyone ever reading a book enough to make it look like that. It looked like it had been driven over by a school bus after someone had taken a bath with it.
+ - Overhead, the stars were wheeling and infinite, a complicated mobile made by giants.
+ - There are too many people on horseback today trying to prove themselves, trying to prepare, trying to get faster. They haven’t discovered yet that it’s not the fastest who make it to race day. You only have to be the fastest of those who are left.
+ - Dory is what Mum used to call a “strong-looking woman,” which means that, from the back, she looked like a man, and, from the front, you preferred the back.
+ - She wore a dress Ronan thought looked like a lampshade. Whatever sort of lamp it belonged on, Gansey clearly wished he had one. Ronan wasn’t a fan of lamps.
+ - Gansey could’ve had any and all of the friends that he wanted. Instead he had chosen the three of them, three guys who should’ve, for three different reasons, been friendless.
+ - There’s no such thing as a good book or a bad book. There’s a book that matters to a reader.
+ - Avoiding a bathtub because your parents tried to kill you in one isn’t the same as avoiding your entire life by becoming a wolf.
+ - All that mattered was that something had struck the match, and Gansey was burning.
+ - He cared for languages dead long enough that they wouldn’t change on him.
+ - I wasn’t sure which of us was being more selfish – her, for wanting something that no one could promise, or me, for not promising her something that was too painfully impossible to want.
+ - He smiled tolerantly at her. Rubbing his smooth chin its recently assassinated chin hairs, he studied her. She barely came up to Ronan’s shoulder, but she was every bit as big as he, every bit as present.
+ - I think every now and then about Sean’s thumb pressed against my wrist and daydream about him touching me again. But mostly I think about the way he looks at me – with respect – and I think that’s probably worth more than anything.
+ - What are you wishing for?? Grace interrupted. ‘To kiss you,’ I said to her.
+ - Listen to you sounding all badass. I bet you’re just listening to a CD called ‘The Sounds of Crime’ while you cruise for chicks outside the Old Navy in your Camaro.
+ - His mother had told him that when you looked into the eyes of God at the pearly gates, all the questions you ever had were answered. Ronan had a lot of questions. Waking Glendower might be like that. Fewer angels attending, and maybe a heavier Welsh accent. Slightly less judgment.
+ - As I handed her the bag, the old scars on my wrist throbbed with buried memories.
+ - Imagine my delight and awe when I discovered such a thing was a real genre – contemporary fantasy or urban fantasy. It was like having my birthday twice in one week and cookie dough for breakfast.
+ - My good mood felt like an endangered species.
+ - It was one frayed rope thrown across the chasm between us. Not enough to get across, but maybe just enough to tell that it wasn’t as wide as I’d originally thought.
+ - It was possible that I’d thrown one too many Molotov cocktails over God’s fence.
+ - He left Chainsaw behind, much to her irritation. Ronan didn’t want her to learn any bad language.
+ - I wasn’t sure if I was charmed by his reluctance to share a bed with a girl or insulted that, apparently, I wasn’t hot enough for him to charge the mattress like a bull.
+ - He was jingling his keys in the pocket of his coat – one of those barn coats described as rugged and classic and four hundred dollar that were usually worn by people who spend more time in Land Rovers than barns.
+ - There was something awful about terror trapped behind silence.
+ - Face flushed, I shook my head and stared at my white-knuckled grip on the bed. Of all my pet peeves, condescending adults were probably at the top of the list.
+ - We sat like that for a long while, and when we stood up, all my sad things were in boxes, and Beck was my father.
+ - I’m pleased to see that the cab is cluttered with cough drop wrappers and empty milk bottles and bits of mud-smeared newspapers made brittle by age. Neatness makes me feel like I have to be on my best behavior. Clutter is my natural habitat.
+ - This is what you get, Maura, for using your DNA to make a baby.
+ - I was suddenly overwhelmed by what an incredible person this boy was, standing in front of me, and by the fact that he was mine and I was his.
+ - Maura had decided sometime before Blue’s birth that it was barbaric to order children about, and so Blue had grown up surrounded by imperative question marks.
+ - In the middle of all this, as Sean slips out of his jacket, he looks over his shoulder at me and he smiles at me, just a glancing, faint thing before he turns back to Tommy. I’m quite happy for that smile, because Dad told me once you should be grateful for the gifts that are the rarest.
+ - Write the book you’ve always wanted to read, but can’t find on the shelf.
+ - It was as if I had thought all along I was a complete picture and he had revealed I was a puzzle and had taken me apart and put me back together again.
+ - My hand aching because grace wasn’t underneath it 3!
+ - The way Gansey saw it was this: if you had a special knack for finding things, it meant you owed the world to look.
+ - Don’t panic. Are you sitting? You probably don’t need to sit. Well, possibly. At least lean on something.
+ - I thought, possibly, that what I really needed was to go where nobody knew me and start over again, with none of my previous decisions, conversations, or expectations coming with me.
+ - Mother and daughter like spoons in a drawer.
+ - I loved you so much right then Sam Roth.
+ - Grace: The idea was immediately unbearable, only because I wanted it to be true so badly it hurt.
+ - I love inventing interesting people and then pushing them to their absolute limits – and usually those absolute limits involve homicidal faeries, werewolves, or some other paranormal menace.
+ - As always, there was an all-American war hero look to him, coded in his tousled brown hair, his summer-narrowed hazel eyes, the straight nose that ancient Anglo-Saxons had graciously passed on to him. Everything about him suggested valor and power and a firm handshake.
+ - This car was a very pretty lie.
+ - I considered calling Grace to ask her what I should say to a reticent suicidal werewolf, but I’d left my phone somewhere. Car, maybe.
+ - I remember lying in the snow, a small red spot of warm going cold, surrounded by wolves.
+ - Gift of time in me enclosed the future suddenly exposed.
+ - The truth is, until you know any different, the island is enough. Actually, I know different. And it’s still enough.
+ - Blue tried not to look at Gansey’s boat shoes; she felt better about him as a person if she pretended he wasn’t wearing them.
+ - Cole made a hissing sound. “Are you inside yet? God bless America and all her sons. What is taking you so long?” The front door was locked. “Here, talk to Grace” “Mommy isn’t going to give a different answer than Daddy,” Cole said, but I handed her the phone anyway.
+ - I had so much free time that free time was meaningless.
+ - I could just barely see the dark curve of his shoulder, and something about the shape it made, the gesture it suggested, filled me with a sort of fierce, awful affection.
+ - I’d be happy with this summer if it’s all we ever had.
+ - She had a short fuse this morning, because it was a day that ended with y, you see.
+ - It felt wrong to be so proud of something that I had absolutely nothing to do with, but I couldn’t help myself.
+ - Of course he was a part of what I hated about myself. Everything was a part of what I hated about myself. It wasn’t really personal.
+ - I felt a tickle on my skin; it took me a moment to realize that Cole was driving his die-cast Mustang up my arm. He was laughing to himself, hushed and infectious, as if there was still any reason to be quite.
+ - I always listen to you. Except when I don’t.
+ - No, you used nouns and verbs together in a pleasing but illogical format.
+ - Gabe brings home a chicken and Tommy Falk for dinner. Truth be told, I’m not unhappy to see any of them. Gabe, because it’s been so long since we’ve had dinner with him; the chicken because it’s not beans; and Tommy Falk because his presence makes Gabe cheerful and goofy.
+ - He was a patient with a diagnosis that he couldn’t understand.
+ - I feel like I have so many stories basting in my mind, and they come busting out when they’re ready.
+ - Gansey studied Adam’s erratic handwriting. His letters always looked like they were running from something.
+ - I’d always liked jogging because it was a place to think.
+ - Really, Rachel looked like a sun, bright and exuding energy, holding us two moons in a parallel orbit by the sheer force of her will.
+ - I’m trying to make you think I’m a decent person. Telling you I saw you naked while I was another species does not help my case.
+ - When Ronan thought of Gansey, he thought of moving into Monmouth Manufacturing, of nights spent in companionable insomnia, of a summer searching for a king, of Gansey asking the Gray Man for his life. Brothers.
+ - My mother always said that I was born out of a bottle of vinegar instead of born from a womb and that she and my father bathed me in sugar for three days to wash it off. I try to behave, but I always go back to the vinegar.
+ - You’re getting your weird all over me.
+ - Luke’, I said, and immediately added, ‘My boyfriend.’ My supernatural, doomed, gorgeous, killer boyfriend.
+ - I like to hear from my readers, and I like to feel like I’m part of a bigger community of readers and writers.
+ - I could live inside a G major chord, with Grace, if she was willing.
+ - This time, it was more of a thought than a feeling, a soft heat that began at her mouth and unfurled through the rest of her.
+ - I would like to say that I was inspired to write ‘Shiver’ by some overwhelming belief in true love, but here’s my true confession: I wrote ‘Shiver’ because I like to make people cry.
+ - I do all of my good thinking at over 65 miles per hour. The speed limit is, luckily, the same speed as my brainstorming speed.
+ - She couldn’t make it untrue.
+ - Because you know that’s not how you want it to end. You know I’d love to have you with me, and it will be that way, one day. But this isn’t the way it ought to happen.
+ - I tired the back door – unlocked. Truley the Man Upstairs was smiling down on me.
+ - Eleanor’s voice was below zero. ‘My finest horse to whichever faerie in this room brings me that woman’s left eye.’ My thoughts exactly.
+ - I didn’t want normal until I didn’t have it anymore.
+ - Isabel had gone silent in a way that shouted the silence to me.
+ - How long it takes us, each day, to know each other.
+ - Would we be so enamored with dystopian fiction if we lived in a culture where violent death was a major concern? It wouldn’t be escapism.
+ - There doesn’t seem like there should be an artful way to butcher a cow, but there is, and this is not it.
+ - To Grace, these were the things that mattered: my hands on her cheeks, my lips on her mouth. The fleeting touches that meant I loved her.
+ - I could have screamed, but I didn’t. I could have fought, but I didn’t. I just lay there and let it happen, watching the winter-white sky go gray above me.
+ - He was not as soft as when I’d first met him, not as young, but the angles of his face, his quick gestures, the way he sucked in his lower lip to think before going on – I was in love with all of it.
+ - I think that whenever a book is not a challenge, I’m telling the wrong story.
+ - I was trying to decide if you still had free will as a wolf. If I was a terrible person for planning to drug my girlfriend and drag her back to my house to keep in the basement.
+ - Strange what love taught you about your faults.
+ - Calla readjusted, wrapping the silk around her other thigh instead. “Which one’s he again? The pretty one?” Blue and Gansey exchanged a look. Blue’s look said, I’m so, so sorry. Gansey’s said, Am I the pretty one?
+ - Sean looks at me then, his eyes bright, in a way that makes me feel out of sorts. I glare back.
+ - Right now, it’s hard to imagine that it is raining anywhere in the world.
+ - There was no sun; there was no light. I was dying. I couldn’t remember what the sky looked like. But I didn’t die. I was lost to a sea of cold, and then I was reborn into a world of warmth.
+ - I grew up with boys of all kinds – I have two brothers, and I was in a bagpipe band for several years.
+ - It wasn’t the sort of kiss I’d had with him before, hungry, wanting, desperate. It wasn’t the sort of kiss I’d had with anyone before. This kiss was so soft that it was like a memory of a kiss, so careful on my lips that it was like someone running his fingers along them.
+ - I might never ride Corr again. I don’t know who I am without him.
+ - If Adam was stupid about his pride, Gansey was stupid about Adam.
+ - I don’t think I could ever give up music. It’s what makes me tick. If there was no music, there would be no writing.
+ - Sean, as always, gets by on one word while everyone else needs five or six.
+ - The only thing was, she didn’t really want to see the future. What she wanted was to see something no one else could see or would see, and maybe that was asking for more magic that was in the world.
+ - Get some money, buy a red coffeepot, move out. Find a new place to plug it in.
+ - I’ll cook the water...
+ - We don’t have time to be sad.
+ - Some people see what they want to see.
+ - His home was populated by things and creatures from Niall Lynch’s dreams, and his mother was just another one of them.
+ - I have a certain avoidance of reality that makes fantasy an ideal choice for me.
+ - It’s all you think about, all you talk about, and all you want us to talk about. What in the world would we call something like that? Oh, yeah! An obsession!
+ - When we kissed, it didn’t matter that I had been a wolf hours ago, or that I would be a wolf again. It didn’t matter that a thousand snares were laid for us as soon as we left this moment. All that mattered was this: our noses touching, the softness of his mouth, the ache inside me.
+ - We are shoulder to shoulder due to the size of the cab, and if Gratton is made of flour and potatoes, Sean is made of stone and driftwood and possibly those prickly anemones that sometimes wash up on shore.
+ - When I was a child, I was one of the kids who wore black all the time, and when the kids asked me why I wore black, I said things like, ‘I’m mourning the death of modern society.’ I mean, I was a riot.
+ - It was the stop that happened when you made up your mind to confess, but your mouth betrayed you in the end.
+ - Then Maura made something with butter and Calla made something with bacon and Blue steamed broccoli in self-defense.
+ - I felt like I was watching the transfomation of two people: Victor to wolf, and Cole to someone else. I was the only one here, staying the same.
+ - In the night, I’ve shrunk and everyone else on the island has grown. They’re all nine feet tall and men and I’m four feet and a child. Dove, too, is a toy or possibly a dog as I lead her through the throngs of people.
+ - My parents had always been so careful with me, until the day they decided I needed to die.
+ - It was the perfect moment to tell her. This is my last year. But I couldn’t say it. Not yet. I wanted another minute, another hour, another night of pretending this wasn’t the end.
+ - That was pretty much all you needed to know about Cole, right there. He saw something he didn’t quite understand, liked it, and took it to be his.
+ - There was nothing particularly intimate about the way they sat, but something about the scene made Gansey feel strange, like he’d heard an unpleasant statement and later forgotten everything about the words but the way they had made him feel.
+ - The one reality was this: He was home. How badly he wanted to stay.
+ - The entire room was so yellow that it looked like the sun had thrown up on the walls and wiped its mouth afterward on the dresser and curtains. – Cole.
+ - Don’t give me that look. I’m not trying to find out who you are. I don’t care who you are. I just want to know why it is you are the way you are.
+ - Of course he would count the time that we’d been two entirely different species.
+ - I remembered the pain as clearly as if I were shifting – the pain of loss. I felt the agony of the single moment that I lost myself. Lost what made me Sam. The part of me that could remember Grace’s name.
+ - His was the disease we couldn’t cure. His was the good-bye that meant the most.
+ - I can tell you that as a writer and as a reader, I regard character as king. Or queen. No matter how riveting the action or interesting the plot twists, if I don’t feel like I’m meeting someone who feels real, I’m not going to be compelled to read further.
+ - It was exactly what I wanted-beautiful distraction.
+ - I whisper like the sea in the horse’s ear.
+ - Tommy grabs my waist and swings me around in a circle. I drag my feet because i am opposed to people touching me when I’m not expecting it. Also because it will take more than dancing to cheer me up.
+ - I would say that by virtue of your not acting parental up to this point, you’ve relinquished your ability to wield any power now. Sam and I are together. It’s not an option.
+ - Grace: I picked up my sweater from the floor and crawled back into bed. Shoving my pillow aside, I balled up the sweater to use instead. I fell asleep to the scent of my wolf. Pine needles, cold rain, earthy perfume, coarse bristles on my face. It was almost like he was there.
+ - I just looked at her, feeling utterly empty. I didn’t know what I was supposed to say to her. My life is in that bed. Please let me stay.
+ - He didn’t like to see either of the women in his family disappointed; it ruined perfectly good meals.
+ - I couldn’t think of anything to say. I was idiotically entranced by the way he said “Grace.” The tone of it. The way his lips formed the vowels. The timbre of his voice stuck in my head like music.
+ - The big thing in my family growing up is that everybody had to play a musical instrument. We were like the von Trapps.
+ - Taking risks is not being suicidal. Otherwise, skydivers need serious help.
+ - My most memorable adventure was investigating the chalk cliffs in Yorkshire. While clambering over kelp-covered boulders half-covered by the sea, I fell and smashed my tail bone on one of them.
+ - Blue was awfully fond of her father, considering she’d never met him.
+ - In a culture defined by shades of gray, I think the absolute black and white choices in dark young adult novels are incredibly satisfying for readers.
+ - Fro and to in my dreams to you To the haunting tune of the harp For the price I paid when you died that day I paid that day with my heart Fro and to in my dreams to you With the breaking of my heart Ne’er more again will I sing this song Ne’er more will I hear the harp.
+ - I’d always thought I was above being fascinated by anyone but myself.
+ - Hello, lovely. You’re as pretty as pretty today.
+ - Not dead-dying. Funny how two things could be so similar and yet so far apart.
+ - Peppermint swirled into my nostrils, sharp as glass, then raspberry almost to sweet, like too-ripe fruit. Apple, crisp and pure. Nuts, buttery, warm, earthy.
+ - I was suddenly struck by how dissimilar we were. It occurred to me that if Grace and I were objects, she would be an elaborate digital clock, synced up with the World Clock in London with technical perfection, and I’d be a snow globe – shaken memories in a glass ball.
+ - Nothing had changed. Nothing.
+ - Oh, filmmakers, please don’t take my soft book and turn it into a horror, or take my horror and make it soft.
+ - His wife’s a brand of Christian that forbids a gathering that involves young women dancing in the streets but not races where men die.
+ - I always wanted an eccentric daughter. I just never realized how well my evil plans were working.
+ - Who need to read about real life when there’s dragons. Come on!
+ - Why did everything feel like saying good-bye?
+ - I don’t cry at books or movies. Ever. So imagine my shock and awe when I read ‘The Time Traveler’s Wife’ for the second time, and I knew the ending, and I started to cry.
+ - A novel is a conversation starter, and if the author isn’t there for the after-party, both the writer and the reader are missing a lot.
+ - It’s only because I’ve lived with brothers that I realize, after a moment, that he’s not looking outside but rather inside, wrestling with something inside himself. And there’s nothing for it but to wait.
+ - He lifted his eyes to the girl. She looked afraid. She always looked afraid, these days. The world was a scary place. She said: “Take me with you.” He woke up.
+ - It occurred to me then that I was the opposite of my father. Because I was very, very good at destroying things.
+ - But by blood, no wolf am I.
+ - Mercy Falls was all about rumors, and the rumor on Jack was that he got his short fuse from his dad. I didn’t know about that. It seemed like you ought to pick the sort of person you would be, no matter what your parents were like.
+ - Sharing revelations is easier when it doesn’t matter.
+ - I never knew there were so many different ways to say good-bye.
+ - It seemed like the best weapons in my life had always been the most innocuous: empty plastic bins, a blank CD, an unmarked syringe, my smile in a dark room.
+ - The most dangerous and wonderful creature alive is the human.
+ - Sam reached his hand toward mine and I automatically put my fingers in his.
+ - I am standing here in the shed, and I’m waiting to see if my seeds are going to poke out ofthe dirt. I don’t know if it’s too early to look for signs of life or if, this time, winter has claimed my family for good.
+ - I picture my books as movies when I get stuck, and when I’m working on a new idea, the first thing I do is hit theaters to work out pacing and mood.
+ - So here’s my theory, and this is such crap science, I don’t have to tell you. It’s science without microscopes, blood tests, or reality.
+ - The only thing is, the more I see him and Corr together, the more I think of how unbearable it would be for Sean to lose him. But we can’t both win.
+ - He was struck by the details of the moment. This was something he needed to remember, when he dreamt. This feeling right here: heart thudding, pollen sticky on his fingertips, July pricking sweat at his breastbone, the smell of gasoline and someone else’s charcoal grill.
+ - She leaned toward me, offering her neck, and I kissed her just behind her ear.
+ - It occurred to me that there was a story behind the scar – maybe not as dramatic as the story of my wrists, but a story nonetheless – and the fact that everyone had a story behind some mark on their inside or outside suddenly exhausted me, the gravity of all those untold pasts.
+ - Knowing what I was, and wanting me, anyway.
+ - People don’t change who they are. They only change what they do with it.
+ - Here is another secret: I have no business being fascinated by you.
+ - I walk through the seasons and always the birds are singing and screaming and keening for love When you’re with me it seems so absurd that I should be jealous of the jay and the dove.
+ - It matters, like this: I belong to Malvern, you don’t.
+ - The room went dark and, after a moment, Grace whispered that she loved me, sounding a little sad. I wrapped my arms tightly around her shoulders, sorry that loving me was such a complicated thing.
+ - No. Not really. A weapon didn’t come to an agreement with the hand that held it.
+ - Eventually, the Gray Man thought, if he resisted using it for long enough, he himself might forget his own name, and became someone else entirely.
+ - Finn never looks more excited – he just gets faster. Finns are generally slow-moving creatures.
+ - Gansey turned the key. The engine turned over once, paused for the briefest of moments – and then roared to deafening life. The Camaro lived to fight another day. The radio was even working, playing the Stevie Nicks song that always sounded to Gansey like it was about a one-winged dove.
+ - Every third step I ran, my breath exploded out of me all in a rush. One step to suck in another cold lungful. One step to let it excape. One step of not breathing.
+ - Teenagers want to be able to fight for what’s right – but finding out what’s right is now 90 percent of the battle.
+ - Your hair is all funky in the morning.
+ - My wolf was a cute guy and he was holding my hand. I could die happy.
+ - It wasn’t a touch that said I need more. It was a touch that said I want this.
+ - I try very hard to keep my eyes from darting to Sean because I’m quite certain that no one will be able to miss how I look at him and how I find him looking back.
+ - I couldn’t remember the last time I hadn’t had to fake gratitude for a gift, and now that I actually was grateful, thank you didn’t seem to cut it.
+ - The dog pranced delightedly around his feet as if he’d been gone to another planet instead of merely underneath a car.
+
+398 quotes

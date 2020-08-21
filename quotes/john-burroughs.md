@@ -1,0 +1,95 @@
+ - I go to nature to be soothed and healed, and to have my senses put in order.
+ - If you think you can do it, you can.
+ - The smallest deed is better than the greatest intention.
+ - Leap and the net will appear.
+ - A somebody was once a nobody who wanted to and did.
+ - I still find each day too short for all the thoughts I want to think, all the walks I want to take, all the books I want to read, and all the friends I want to see.
+ - We are made strong by what we overcome.
+ - He who marvels at the beauty of the world in summer will find equal cause for wonder and admiration in winter.
+ - When you bait the hook with your heart, the fish always bite.
+ - Do not despise your own place and hour. Every place is under the stars, every place is the center of the world.
+ - The pleasure and value of every walk or journey we take may be doubled to us by carefully noting down the impressions it makes upon us.
+ - In the order of nature we may behold the ways of the Eternal.
+ - The spirit of man can endure only so much and when it is broken only a miracle can mend it.
+ - For anything worth having one must pay the price; and the price is always work, patience, love, self-sacrifice – no paper currency, no promises to pay, but the gold of real service.
+ - The Kingdom of Heaven is not a place, but a state of mind.
+ - The art of nature is all in the direction of concealment.
+ - One can only learn his powers of action by action, and his powers of thought by thinking.
+ - To see Earth fully we already need to love it.
+ - I am in love with this world. It has been my home. It has been my point of outlook into the universe. I have never bruised myself against it nor tried to use it ignobly.
+ - How beautiful the leaves grow old. How full of light and color are their last days.
+ - Serene, I fold my hands and wait, Nor care for wind, nor tide, nor sea; I rave no more ’gainst time or fate, For lo! my own shall come to me.
+ - The lure of the distant and the difficult is deceptive. The great opportunity is where you are.
+ - One of the hardest lessons we have to learn in this life, and one that many persons never learn, is to see the divine, the celestial, the pure, in the common, the near at hand-to see that heaven lies about us here in this world.
+ - Every day is a Sabbath to me. All pure water is holy water, and this earth is a celestial abode.
+ - The honey-bee’s great ambition is to be rich, to lay up great stores, to possess the sweet of every flower that blooms. She is more than provident. Enough will not satisfy her, she must have all she can get by hook or crook.
+ - Oh, Spring is surely coming, Her couriers fill the air; Each morn are new arrivals, Each night her ways prepare; I scent her fragrant garments, Her foot is on the stair.
+ - In winter the stars seem to have rekindled their fires, the moon achieves a fuller triumph, and the heavens wear a look of a more exalted simplicity.
+ - Nature teaches more than she preaches. There are no sermons in stones. It is easier to get a spark out of a stone than a moral.
+ - Without death and decay, how could life go on?
+ - Blessed is the man who has some congenial work, some occupation in which he can put his heart, and which affords a complete outlet to all the forces there are in him.
+ - Man is, and always has been, a maker of gods. It has been the most serious and significant occupation of his sojourn in the world.
+ - Happiness comes most to persons who seek it least and think least about it. It is not an object to be sought, it is a state to be induced. It must follow and not lead. It must overtake you, and not you overtake it.
+ - The secret of happiness is something to do.
+ - I still find each day too short...
+ - The most precious things of life are near at hand, without money and without price. Each of you has the whole wealth of the universe at your very door. All that I ever had, and still have, may be yours by stretching forth your hand and taking it.
+ - The longer I live, the more my mind dwells upon the beauty and the wonder of the world.
+ - Every walk to the woods is a religious rite, every bath in the stream is a saving ordinance. Communion service is at all hours, and the bread and wine are from the heart and marrow of Mother Earth.
+ - The fuel in the earth will be exhausted in a thousand or more years, and its mineral wealth, but man will find substitutes for these in the winds, the waves, the sun’s heat, and so forth.
+ - To learn something new, take the path that you took yesterday.
+ - We cannot walk through life on mountain peaks.
+ - That which distinguishes this day from all others is that then both orators and artillerymen shoot blank cartridges.
+ - I go to books and to nature as the bee goes to a flower, for a nectar that I can make into my own honey.
+ - The place to observe nature is where you are.
+ - Life is a struggle, but not a warfare.
+ - When nature made the blue-bird she wished to propitiate both the sky and the earth, so she gave him the color of the one on his back and the hue of the other on his breast.
+ - Before the bud swells, before the grass springs, before the plough is started, comes the sugar harvest. It is sequel of the bitter frost; a sap run is the sweet goodbye of winter.
+ - Man takes root at his feet, and at best he is no more than a potted plant in his house or carriage till he has established communication with the soil by the loving and magnetic touch of his soles to it.
+ - O bluebird, welcome back again, Thy azure coat and ruddy vest, Are hues that April loveth best...
+ - The lesson which life repeats and constantly enforces is ‘look under foot.’ You are always nearer the divine and the true sources of your power than you think.
+ - I seldom go into a natural history museum without feeling as if I were attending a funeral.
+ - It is the life of the crystal, the architect of the flake, the fire of the frost, the soul of the sunbeam. This crisp winter air is full of it.
+ - The life of nature we must meet halfway; it is shy, withdrawn, and blends itself with a vast neutral background. We must be initiated; it is an order the secrets of which are well guarded.
+ - If I were to name the three most precious resources of life, I should say books, friends, and nature...
+ - Culture means the perfect and equal development of man on all sides.
+ - I think rain is as necessary to the mind as to vegetation. My very thoughts become thirsty, and crave the moisture.
+ - Travel and society polish one, but a rolling stone gathers no moss, and a little moss is a good thing on a man.
+ - Temperament lies behind mood; behind will, lies the fate of character. Then behind both, the influence of family the tyranny of culture; and finally the power of climate and environment; and we are free, only to the extent we rise above these.
+ - Nothing relieves and ventilates the mind like a resolution.
+ - The poor old earth which has mothered us and nursed us we treat with scant respect. Our awe and veneration we reserve for the worlds we know not of. Our senses sell us out. The mud on our shoes disenchants us.
+ - How readily the bluebirds become our friends and neighbors when we offer them suitable nesting retreats!
+ - The gift of perfume to a flower is a special grace like genius or like beauty, and never becomes common or cheap.
+ - I was born with a chronic anxiety about the weather.
+ - Nature will not be conquered, but gives herself freely to her true lover – to him who revels with her, bathes in her seas, sails her rivers, camps in her woods, and with no mercenary ends, accepts all.
+ - We have produced some good walkers and saunterers, and some noted climbers; but as a staple recreation, as a daily practice, the mass of the people dislike and despise walking.
+ - In the printed page the only real things are the paper and the ink; the white spaces play the same part in aiding the eye to take in the meaning of the print as do the black letters.
+ - If you want to see birds, you must have birds in your heart.
+ - Love is the measure of life; only so far as we love do we really live.
+ - There is a condition or circumstance that has a greater bearing upon the happiness of life than any other. What is it? Something to do; some congenial work. Take away the occupation of all people and what a wretched world it would be.
+ - Science makes no claim to infallibility; it leaves that claim to be made by theologians.
+ - Nature is not benevolent; Nature is just, gives pound for pound, measure for measure, makes no exceptions, never tempers her decrees with mercy, or winks at any infringement of her laws.
+ - Literature is an investment of genius which has dividends to all subsequent times.
+ - It is always easier to believe than to deny. Our minds are naturally affirmative.
+ - A man’s life may stagnate as literally as water may stagnate, and just as motion and direction are the remedy for one, so purpose and activity are the remedy for the other.
+ - The floating vapour is just as true an illustration of the law of gravity as the falling avalanche.
+ - The atmosphere of our time is fast being cleared of the fumes and deadly gases that arose during the carboniferous age of theology.
+ - Nature comes home to one most when one is at home. The stranger and traveler finds her a stranger and traveler also.
+ - The tendinous part of the mind, so to speak, is more developed in winter; the fleshy, in summer. I should say winter had given the bone and sinew to literature, summer the tissues and the blood.
+ - Some scenes you juggle two balls, some scenes you juggle three balls, some scenes you can juggle five balls. The key is always to speak in your own voice. Speak the truth. That’s Acting 101. Then you start putting layers on top of that.
+ - Time does not become sacred to us until we have lived it.
+ - How much there is in books that one does not want to know, that it would be a mere weariness and burden to the spirit to know.
+ - Then, again, how annoying to be told it is only five miles to the next place when it is really eight or ten!
+ - There is hardly a man on earth who will take advice unless he is certain that it is positively bad.
+ - One is tempted to say that the most human plants, after all, are the weeds.
+ - One may return to the place of his birth, He cannot go back to his youth.
+ - One may summon his philosophy when they are beaten in battle, not till then.
+ - Close scrutiny of an object in nature will nearly always yield some significant fact...
+ - Some men are like nails, very easily drawn; others however are more like rivets never drawn at all.
+ - I came from a race of fishers; trout streams gurgled about the roots of my family tree.
+ - If the October days were a cordial like the sub-acids of fruit, these are a tonic like the wine of iron. Drink deep or be careful how you taste this December vintage. The first sip may chill, but a full draught warms and invigorates.
+ - I have discovered the secret of happiness – it is work, either with the hands or the head. The moment I have something to do, the draughts are open and my chimney draws, and I am happy.
+ - Few persons realize how much of their happiness, such as it is, is dependent upon their work.
+ - If we take science as our sole guide, if we accept and hold fast that alone which is verifiable, the old theology must go.
+ - Science has done more for the development of western civilization in one hundred years than Christianity did in eighteen hundred years.
+
+93 quotes

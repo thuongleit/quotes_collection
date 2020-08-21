@@ -1,0 +1,375 @@
+ - Pride makes us artificial; humility makes us real.
+ - Perhaps I am stronger than I think.
+ - Love is our true destiny. We do not find the meaning of life by ourselves alone - we find it with another.
+ - If a man is to live, he must be all alive, body, soul, mind, heart, spirit.
+ - You do not need to know precisely what is happening, or exactly where it is all going. What you need is to recognize the possibilities and challenges offered by the present moment, and to embrace them with courage, faith and hope.
+ - Anxiety is the mark of spiritual insecurity.
+ - Our job is to love others without stopping to inquire whether or not they are worthy. That is not our business and, in fact, it is nobody's business. What we are asked to do is to love, and this love itself will render both ourselves and our neighbors worthy.
+ - Art enables us to find ourselves and lose ourselves at the same time.
+ - The beginning of love is the will to let those we love be perfectly themselves, the resolution not to twist them to fit our own image.
+ - Finally I am coming to the conclusion that my highest ambition is to be what I already am. That I will never fulfill my obligation to surpass myself unless I first accept myself, and if I accept myself fully in the right way, I will already have surpassed myself.
+ - The more you try to avoid suffering, the more you suffer, because smaller and more insignificant things begin to torture you, in proportion to your fear of being hurt. The one who does most to avoid suffering is, in the end, the one who suffers most.
+ - To be grateful is to recognize the love of God in everything.
+ - A man knows when he has found his vocation when he stops thinking about how to live and begins to live.
+ - Reason is in fact the path to faith, and faith takes over when reason can say no more.
+ - If you want to identify me, ask me not where I live, or what I like to eat, or how I comb my hair, but ask me what I am living for, in detail, ask me what I think is keeping me from living fully for the thing I want to live for.
+ - A humble man is not afraid of failure. In fact, he is not afraid of anything, even himself, since perfect humility implies perfect confidence in the power of God.
+ - To say that I am made in the image of God is to say that love is the reason for my existence, for God is love. Love is my true identity. Selflessness is my true self. Love is my true character. Love is my name.
+ - Compassion is the keen awareness of the interdependence of all things.
+ - The greatest need of our time is to clean out the enormous mass of mental and emotional rubbish that clutters our minds
+ - In Silence God ceases to be an object and becomes an experience.
+ - Souls are like athletes, that need opponents worthy of them, if they are to be tried and extended and pushed to the full use of their powers, and rewarded according to their capacity.
+ - When you see God in everyone, then they see God in you.
+ - Happiness is not a matter of intensity but of balance, order, rhythm and harmony.
+ - The speech of God is silence. His Word is solitude.
+ - Our real journey in life is interior; It is a matter of growth, deepening, and of an ever greater surrender to the creative action of love and grace in our hearts. Never was it more necessary to respond to that action.
+ - The sky is my prayer, the birds are my prayer, the wind in the trees is my prayer, for God is all in all.
+ - People may spend their whole lives climbing the ladder of success only to find, once they reach the top, that the ladder is leaning against the wrong wall.
+ - The whole idea of compassion is based on a keen awareness of the interdependence of all these living beings, which are all part of one another, and all involved in one another.
+ - There is in all visible things – a hidden wholeness.
+ - Action is the stream, and contemplation is the spring.
+ - The meaning of life is found in openness to being and “being present” in full awareness.
+ - The biggest human temptation is to settle for too little.
+ - Every breath we draw is a gift of God’s love; every moment of existence is a grace.
+ - When ambition ends, happiness begins.
+ - Humility is the surest sign of strength.
+ - We are not at peace with others because we are not at peace with ourselves, and we are not at peace with ourselves because we are not at peace with God.
+ - Let us come alive to the splendor that is all around us and see the beauty in ordinary things.
+ - In a world of noise, confusion and conflict it is necessary that there be places of silence, inner discipline and peace. In such places love can blossom.
+ - For me to be a saint means to be myself.
+ - Love seeks one thing only: the good of the one loved. It leaves all the other secondary effects to take care of themselves. Love, therefore, is its own reward.
+ - There is no way of telling people that they are all walking around shining like the sun.
+ - My God, I pray better to you by breathing. I pray better to you by walking than by talking.
+ - If we are to love sincerely, and with simplicity, we must first of all overcome the fear of not being loved.
+ - Do not look for rest in any pleasure, because you were not created for pleasure: you were created for joy. And if you do not know the difference between pleasure and joy you have not yet begun to live.
+ - The geographical pilgrimage is the symbolic acting out an inner journey. The inner journey is the interpolation of the meanings and signs of the outer pilgrimage. One can have one without the other. It is best to have both.
+ - Life is this simple: we are living in a world that is absolutely transparent and the divine is shining through it all the time. This is not just a nice story or a fable, it is true.
+ - We do not exist for ourselves.
+ - For me to be a saint means to be myself. Therefore the problem of sanctity and salvation is in fact the problem of finding out who I am and of discovering my true self.
+ - A faith that is afraid of other people is not faith at all.
+ - One of the first things to learn if you want to be a contemplative is to mind your own business. Nothing is more suspicious, in a man who seems holy, than an impatient desire to reform other men.
+ - May we all grow in grace and peace and not neglect the silence that is printed in the center of our being. It will not fail us.
+ - Despair is the absolute extreme of self-love. It is reached when a person deliberately turns his back on all help from anyone else in order to taste the rotten luxury of knowing himself to be lost.
+ - One has to be alone, under the sky, Before everything falls into place and one finds his or her own place in the midst of it all. We have to have the humility to realize ourselves as part of nature.
+ - The root of war is fear.
+ - Contemplative living is living in true relationship with oneself, God, others and nature, free of the illusions of separateness.
+ - I have only one desire, and that is the desire for solitude-to disappear into God, to be submerged in His peace, to be lost in the secret of His Face.
+ - Do not be one of those who, rather than risk failure, never attempts anything.
+ - The great thing, and the only thing, is to adore and praise GOD.
+ - If we have not silence, God is not heard in our music. If we have no rest God, does not bless our work.
+ - Love is the door to eternity.
+ - Prayer and love are learned in the hour when prayer becomes impossible and the heart has turned to stone.
+ - I will not fear, for you are ever with me and you will never leave me to face my perils alone.
+ - True happiness is found in unselfish Love, A love which increases in proportion as it is shared.
+ - There is only one problem on which all my existence, my peace, my happiness depend: to discover myself in discovering God. If I find Him I will find myself and if I find my true self I will find Him.
+ - Self-conquest is really self-surrender. Yet before we can surrender ourselves we must become ourselves. For no one can give up what he does not possess.
+ - To allow oneself to be carried away by a multitude of conflicting concerns, to surrender to too many demands, to commit oneself to too many projects, to want to help everyone in everything, is to succumb to the violence of our times.
+ - You are made in the image of what you desire.
+ - My spiritual goal is to one day walk into God and disappear.
+ - The gate of heaven is everywhere.
+ - Whose silence are you?
+ - True happiness is not found in any other reward than that of being united with God. If I seek some other reward besides God Himself, I may get my reward but I cannot be happy.
+ - Be human in this most inhuman of ages; guard the image of man for it is the image of God.
+ - The grateful person knows that God is good, not by hearsay but by experience. And that is what makes all the difference.
+ - True encounter with Christ liberates something within us, a power we did not know we had, a capacity to grow and change.
+ - Gratitude takes nothing for granted, is never unresponsive, is constantly awakening to new wonder.
+ - What is the use of praying if at the very moment of prayer, we have so little confidence in God that we are busy planning our own kind of answer to our prayer?
+ - Grace is not a strange, magic substance which is subtly filtered into our souls to act as a kind of spiritual penicillin. Grace is unity, oneness within ourselves, oneness with God.
+ - There is a pervasive form of contemporary violence to which the idealist fighting for peace by nonviolent methods most easily succumbs; activism and overwork.
+ - Music is pleasing not only because of the sound but because of the silence that is in it: without the alternation of sound and silence there would be no rhythm.
+ - Take more time, cover less ground.
+ - Today will never come again.
+ - To hope is to risk frustration. Make up your mind to risk frustration.
+ - What can we gain by sailing to the moon if we cannot cross the abyss that separates us from ourselves?
+ - We must make the choices that enable us to fulfill the deepest capacities of our real selves.
+ - The man of faith who has never experienced doubt is not a man of faith.
+ - That is God’s call to us – simply to be people who are content to live close to him and to renew the kind of life in which the closeness is felt and experienced.
+ - For perfect hope is achieved on the brink of despair, when instead of falling over the edge, we find ourselves walking on air.
+ - Instead of hating the people you think are war-makers, hate the appetites and disorder in your own soul, which are the causes of war. If you love peace, then hate injustice, hate tyranny, hate greed – but hate these things in yourself, not in another.
+ - The truth that many people never understand until it is too late is that the more you try to avoid suffering, the more you suffer.
+ - For if I am to love truly and freely, I must be able to give something that is truly my own to another. If my heart does not first belong to me, how can I give it to another?
+ - Every one of us is shadowed by an illusory person: a false Self. We are not very good at recognizing illusions, least of all the ones we cherish about ourselves.
+ - The end of the world will be legal.
+ - The spiritual life is first of all a life. It is not merely something to be known and studied, it is to be lived.
+ - Music and art and poetry attune the soul to God.
+ - Every other man is a piece of myself, for I am a part and a member of mankind.
+ - The God of peace is never glorified by human violence.
+ - If you want to study the social and political history of modern nations, study hell.
+ - One might say I have decided to marry the silence of the forest. The sweet dark warmth of the whole world will have to be my wife.
+ - When we are strong, we are always much greater than the things that happen to us.
+ - Here is an unspeakable secret: paradise is all around us and we do not understand.
+ - Every man has a vocation to be someone: but he must understand clearly that in order to fulfill this vocation he can only be one person: himself.
+ - This is the greatest stumbling block in our spiritual discipline, which, in actuality, consists not in getting rid of the self but in realizing the fact that there is no such existence from the first.
+ - Christ is born to us today, in order that he may appear to the whole world through us.
+ - Humble people can do great things with uncommon perfection because they are no longer concerned about their own interests and their own reputation, and therefore they no longer need to waste their efforts in defending them.
+ - Happiness that is sought for ourselves alone can never be found.
+ - If you yourself are at peace, then there is at least some peace in the world.
+ - Nothing has ever been said about God that hasn’t already been said better by the wind in the pine trees.
+ - The solution of the problem of life is life itself. Life is not attained by reason and analysis but first of all by living.
+ - The gift of love is the gift of the power and capacity to love, and therefore, to give love with full effect is also to receive it. So love can only be kept by being given away, and it can only be given perfectly when it is also received.
+ - Be good, keep your feet dry, your eyes open, your heart at peace and your soul in the joy of Christ.
+ - The real hope is not in something we think we can do, but in God, who is making something good out of it in some way we cannot see.
+ - Our idea of God tells us more about ourselves than about Him.
+ - I shall lead you through the loneliness, the solitude you will not understand; but it is my shortcut to your soul.
+ - Our real journey in life is interior.
+ - Finally I am coming to the conclusion that my highest ambition is to be what I already I am.
+ - We must slow down to a human tempo and we’ll begin to have time to listen.
+ - The goal of fasting is inner unity.
+ - The true inner self must be drawn up like a jewel from the bottom of the sea, rescued from confusion, from indistinction, from immersion in the common, the nondescript, the trivial, the sordid, the evanescent.
+ - What can we gain by sailing to the moon if we are not able to cross the abyss that separates us from ourselves? This is the most important of all voyages of discovery, and without it, all the rest are not only useless, but disastrous.
+ - The real reason why so few men believe in God is that they have ceased to believe that even a God can love them.
+ - In an age where there is much talk about “being yourself,” I reserve to myself the right to forget about being myself, since in any case there is very little chance of my being anybody else.
+ - Nevertheless, the liturgy of Ash Wednesday is not focussed on the sinfulness of the penitent but on the mercy of God. The question of sinfulness is raised precisely because this is a day of mercy, and the just do not need a savior.
+ - To be alone by being part of the universe-fitting in completely to an environment of woods and silence and peace. Everything you do becomes a unity and a prayer. Unity within and without.
+ - Teach me to go to the country beyond words and beyond names.
+ - God, Who is everywhere, never leaves us. Yet He seems sometimes to be present, sometimes to be absent. If we do not know Him well, we do not realize that He may be more present to us when He is absent than when He is present.
+ - Conscience is the light by which we interpret the will of God in our own lives.
+ - If we seek paradise outside ourselves, we cannot have paradise in our hearts.
+ - Saints are what they are not because their sanctity makes them admirable to others, but because the gift of sainthood makes it possible for them to admire everyone else.
+ - You cannot be a man of faith unless you know how to doubt.
+ - It is true that we are called to create a better world. But we are first of all called to a more immediate and exalted task: that of creating our own lives.
+ - Ultimately faith is the only key to the universe. The final meaning of human existence, and the answers to the questions on which all our happiness depends cannot be found in any other way.
+ - The only trouble is that in the spiritual life there are no tricks and no shortcuts. Those who imagine that they can discover spiritual gimmicks and put them to work for themselves usually ignore God’s will and his grace.
+ - You pray best when the mirror of your soul is empty of every image except the Image of the Invisible Father.
+ - Today the artist has inherited the combined functions of hermit, pilgrim, prophet, priest, shaman, sorcerer, soothsayer, alchemist.
+ - When I pray for peace, I pray not only that the enemies of my own country may cease to want war, but above all that my country will cease to do the things that make war inevitable.
+ - There were only a few shepherds at the first Bethlehem. The ox and the donkey understood more of the first Christmas than the high priests in Jerusalem. And it is the same today.
+ - The center of our being is a point of nothingness which is untouched by sin and by illusion, a point of pure truth.
+ - It is in deep solitude and silence that I find the gentleness with which I can truly love my brother and sister.
+ - To be unknown to God is altogether too much privacy.
+ - The fact remains that we are invited to forget ourselves on purpose, cast our awful solemnity to the wind, and join in the general Dance.
+ - We cannot achieve greatness unless we lose all interest in being great.
+ - What I do is live, how I pray is breathe, what I wear is pants.
+ - Even the darkest moments of the liturgy are filled with joy, and Ash Wednesday, the beginning of the lenten fast, is a day of happiness, a Christian feast.
+ - In the devil’s theology, the important thing is to be absolutely right and to prove that everybody else is absolutely wrong.
+ - On Pride: This sickness is most dangerous when it succeeds in looking like humility. When a proud man thinks he is humble his case is hopeless.
+ - Solitude is so necessary both for society and for the individual that when society fails to provide sufficient solitude to develop the inner life of the persons who compose it, they rebel and seek false solitudes.
+ - To desire Him to be merciful to us is to acknowledge Him as God. To seek His pity when we deserve no pity is to ask Him to be just with a justice so holy that it knows no evil and shows mercy to everyone who does not fly from Him in despair.
+ - No writing on the solitary, meditative dimensions of life can say anything that has not already been said better by the wind in the pine trees.
+ - But there is greater comfort in the substance of silence than in the answer to a question.
+ - Faith is a light of such supreme brilliance that it dazzles the mind and darkens all its visions of other realities, but in the end when we become used to the new light, we gain a new view of all reality transfigured and elevated in the light itself.
+ - Do not be too quick to condemn the man who no longer believes in God: for it is perhaps your own coldness and avarice and mediocrity and materialism and selfishness that have chilled his faith.
+ - We are so obsessed with doing that we have no time and no imagination left for being. As a result, men are valued not for what they are but for what they do or what they have – for their usefulness.
+ - The biggest disease in North America is busyness.
+ - The humble person receives praise the way a clean window takes the light of the sun. The truer and more intense the light is, the less you see of the glass.
+ - I believe that the desire to please you does in fact please you.
+ - One of the most important-and most neglected-elements in the beginning of the interior life is the ability to respond to reality, to see the value and the beauty in ordinary things, to come alive to the splendour that is all around us.
+ - Solitude is not something you must hope for in the future. Rather, it is a deepening of the present, and unless you look for it in the present you will never find it.
+ - While some men see ordinary happenings, others see divine light and guidance.
+ - Humility sets us free to do what is really good, by showing us our illusions and withdrawing our will from what was only an apparent good.
+ - Thinking prevents the unconscious from speaking.
+ - The simplest and most effective way to sanctity is to disappear into the background of ordinary every day routine.
+ - Peace demands the most heroic labor and the most difficult sacrifice.
+ - Duty does not have to be dull. Love can make it beautiful and fill it with life.
+ - Show us your Christ, Lady, after this our exile, yes: but show Him to us also now, show Him to us here, while we are still wanderers.
+ - To be ordinary is not a choice: It is the usual freedom of men without visions.
+ - Zen insight is not our awareness, but Being’s awareness of itself in us.
+ - The logic of the poet – that is, the logic of language or the experience itself – develops the way a living organism grows: it spreads out towards what it loves, and is heliotropic, like a plant.
+ - Hurry ruins saints as well as artists. They want quick success, and they are in such a hurry to get it that they cannot take time to be true to themselves. And when the madness is upon them, they argue that their very haste is a species of integrity.
+ - Actions are the doors and windows of being. Unless we act, we have no way of knowing what we are.
+ - The least of the work of learning is done in the classroom.
+ - The fruitfulness of our lives depends in large measure in our ability to doubt our own words and to question the value of our own work. The man who completely trusts his own estimate of himself is doomed to sterility.
+ - A happiness that is sought for ourselves alone can never be found: for a happiness that is diminished by being shared is not big enough to make us happy.
+ - We cannot love ourselves unless we love others, and we cannot love others unless we love ourselves. But a selfish love of ourselves makes us incapable of loving others.
+ - The truth never becomes clear as long as we assume that each one of us, individually, is the center of the universe.
+ - If Zen has any preference it is for glass that is plain, has no color, and is “just glass.”
+ - One of the strange laws of the contemplative life is that in it you do not sit down and solve problems: you bear with them until they somehow solve themselves. Or until life solves them for you.
+ - Charity is without fear: having given all that it has, it has nothing left to lose.
+ - We are not converted only once in our lives but many times and this endless series of conversions and inner revolutions leads to our transformation.
+ - Power always protects the good of some at the expense of all others.
+ - It is by desiring to grow in love that we receive the Holy Spirit, and the thirst for more charity is the effect of this more abundant reception.
+ - It is in the ordinary duties and labors of life that the Christian can and should develop his spiritual union with God.
+ - Love is not a matter of getting what you want. Quite the contrary. The insistence on always having what you want, on always being satisfied, on always being fulfilled, makes love impossible.
+ - To Serve the God of Love one must be free, one must face the terrible responsibility of the decision to love in spite of all unworthiness whether in oneself or in one’s neighbor.
+ - The degradation of the sense of symbol in modern society is one of its many signs of spiritual decay.
+ - The imagination should be allowed a certain amount of time to browse around.
+ - There is no greater disaster in the spiritual life than to be immersed in unreality, for life is maintained and nourished in us by our vital relation with realities outside and above us.
+ - The first step toward finding God, Who is Truth, is to discover the truth about myself: and if I have been in error, this first step to truth is the discovery of my error.
+ - We are obliged to love one another. We are not strictly bound to “like” one another.
+ - Humility is a virtue, not a neurosis.
+ - To consider persons and events and situations only in the light of their effect upon myself is to live on the doorstep of hell.
+ - The Christian life, and especially the contemplative life, is a continual discovery of Christ in new and unexpected places.
+ - Lovely morning! How lovely life can be!
+ - Our happiness consists in sharing the happiness of God, the perfection of His unlimited freedom, the perfection of His love.
+ - The cause of liberty becomes a mockery if the price to be paid is the wholesale destruction of those who are to enjoy liberty. Ghandi, quoted in Merton, p. 68.
+ - It might be good to open our eyes and see.
+ - If you have love you will do all things well.
+ - A man who fails well is greater than one who succeeds badly.
+ - Be still: There is no longer any need of comment. It was a lucky wind That blew away his halo with his cares, A lucky sea that drowned his reputation.
+ - O love-why can’t you leave me alone? Which is a rhetorical question meaning: for heaven’s sake, don’t.
+ - Before we can become who we really are, we must become conscious of the fact that the person who we think we are, here and now, is at best an impostor and a stranger.
+ - In humility is the greatest freedom. As long as you have to defend the imaginary self that you think is important, you lose your peace of heart.
+ - We have what we seek, it is there all the time, and if we give it time, it will make itself known to us.
+ - The whole world is charged with the glory of God and I feel fire and music under my feet.
+ - Our minds are like crows. They pick up everything that glitters, no matter how uncomfortable our nests get with all that metal in them.
+ - Let me rest in Your will and be silent. Then the light of Your joy will warm my life. Its fire will burn in my heart and shine for Your glory. This is what I live for. Amen, amen.
+ - Love winter when the plant says nothing.
+ - It is a glorious destiny to be a member of the human race, though it is a race dedicated to many absurdities and one which makes many terrible mistakes.
+ - Yet it is in this loneliness that the deepest activities begin. It is here that you discover act without motion, labor that is profound repose, vision in obscurity, and, beyond all desire, a fulfillment whose limits extend to infinity.
+ - The light of truth burns without a flicker in the depths of a house that is shaken with storms of passion and fear.
+ - We have to have a deep, patient compassion for the fears of others and irrational mania of those who hate or condemn us.
+ - People are in a hurry to magnify themselves by imitating what is popular- and too lazy to think of anything better.
+ - Fear narrows the little entrance of our heart. It shrinks up our capacity to love. It freezes up our power to give ourselves.
+ - How do you expect to arrive at the end of your own journey if you take the road to another man’s city?
+ - Art is not an end in itself. It introduces the soul into a higher spiritual order, which it expresses and in some sense explains.
+ - Now anxiety is the mark of spiritual insecurity. It is the fruit of unanswered questions. But questions cannot go unanswered unless they first be asked.
+ - As long as I am content to know that He is infinitely greater than I, and that I cannot know Him unless He shows himself to me, I will have Peace, and He will be near me and in me, and I will rest in Him.
+ - Solitude and silence teach me to love my brothers for what they are, not for what they say.
+ - We live on the brink of disaster because we do not know how to let life alone. We do not respect the living and fruitful contradictions and paradoxes of which true life is full.
+ - The man who sweats under his mask, whose role makes him itch with discomfort, who hates the division in himself, is already beginning to be free.
+ - Just remaining quietly in the presence of God, listening to Him, being attentive to Him, requires a lot of courage and know-how.
+ - Contemplation is the loving sense of this life, this presence and this eternity.
+ - The things I thought were so important – because of the effort I put into them – have turned out to be of small value. And the things I never thought about, the things I was never able to either to measure or to expect, were the things that mattered.
+ - O God, my God, the night has values that the day never dreamed of.
+ - How can I be sincere if I am constantly changing my mind to conform with the shadow of what I think others expect of me?
+ - Sincerity must be bought at a price: the humility to recognize our innumerable errors, and fidelity in tirelessly setting them right.
+ - Spread abroad the name of Jesus in humility and with a meek heart; show him your feebleness, and he will become your strength.
+ - Every moment and every event of every man’s life on earth plants something in his soul.
+ - No matter how ruined man and his world may seem to be, and no matter how terrible man’s despair may become, as long as he continues to be a man his very humanity continues to tell him that life has a meaning.
+ - The evil in the world is all of our own making, and it proceeds entirely from our ruthless, senseless, wasteful, destructive, and suicidal neglect of our own being.
+ - Jesus lived and died in vain if He did not teach us to regulate the whole of life by the eternal law of love. Gandhi, quoted in Merton, p. 38.
+ - Peace demands the most heroic labor and the most difficult sacrifice. It demands greater heroism than war. It demands greater fidelity to the truth and a much more perfect purity of conscience.
+ - The very contradictions in my life are in some ways signs of God’s mercy to me.
+ - We refuse love, and reject society, in so far as it seems, in our own perverse imagination, to imply some obscure kind of humiliation.
+ - Hurry ruins saints as well as artists.
+ - The greatest temptations are not those that solicit our consent to obvious sin, but those that offer us great evils masking as the greatest goods.
+ - When we are alone on a starlit night, when by chance we see the migrating birds in autumn descending on a grove of junipers to rest and eat; when we see children in a moment when they are really children.
+ - Not all of us are called to be hermits, but all of us need enough silence and solitude in our lives to enable the deeper voice of our own self to be heard at least occasionally.
+ - Technology is not in itself opposed to spirituality and to religion. But it presents a great temptation.
+ - You are certainly one of the joys of life for all who have ever come within a mile of you.
+ - In the last analysis, the individual person is responsible for living his own life and for ‘finding himself.’ If he persists in shifting his responsibility to somebody else, he fails to find out the meaning of his own existence.
+ - Solitude is a way to defend the spirit against the murderous din of our materialism.
+ - If our life is poured out in useless words, we will never hear anything, never become anything, and in the end, because we have said everything before we had anything to say, we shall be left speechless at the moment of our greatest decision.
+ - A superficial freedom to wander aimlessly here or there, to taste this or that, to make a choice of distractions, is simply a sham. It claims to be a freedom of “choice” when it has evaded the basic task of discovering who it is that chooses.
+ - Wheels of fire, cosmic, rich, full-bodied honest victories over desperation.
+ - Every moment and every event of everyman’s life on earth plants something in his soul. For just as the wind carries thousands of winged seeds, so each moment brings with it germs of spiritual vitality that come to rest imperceptibly in the minds and wills of men.
+ - A life is either all spiritual or not spiritual at all. No man can serve two masters. Your life is shaped by the end you live for. You are made in the image of what you desire.
+ - Thinking about monastic ideals is not the same as living up to them, but at any rate such thinking has an important place in a monk’s life, because you cannot begin to do anything unless you have some idea what you are trying to do.
+ - We must be true inside, true to ourselves, before we can know a truth that is outside us. But we make ourselves true inside by manifesting the truth as we see it.
+ - Stop asking yourself questions that have no meaning. Or if they have, you’ll find out when you need to – find out both the questions and the answers.
+ - To find love I must enter into the sanctuary where it is hidden, which is the mystery of God.
+ - By reading the scriptures I am so renewed that all nature seems renewed around me and with me. The sky seems to be a pure, a cooler blue, the trees a deeper green. The whole world is charged with the glory of God and I feel fire and music under my feet.
+ - God Himself begins to live in me not only as my Creator but as my other and true self.
+ - What do I mean by loving ourselves properly? I mean first of all, desiring to live, accepting life as a very great gift and a great good, not because of what it gives us, but because of what it enables us to give to others.
+ - There should be at least a room or some corner where no one will find you and disturb you or notice you.
+ - Each individual Christian and each new age of the Church has to make this rediscovery, this return to the source of Christian life.
+ - To love blindly is to love selfishly, because the goal of such love is not the real advantage of the beloved but only the exercise of love in our own souls.
+ - Meditation is one of the ways in which the spiritual man keeps himself awake.
+ - A gentle sense of humor will be alert to detect anything that savors of a pious ‘act’ on the part of the penitent.
+ - There is always a temptation to diddle around in the contemplative life, making itsy-bitsy statues.
+ - Love is not a mere emotion or sentiment. It is the lucid and ardent responses of the whole person to a value that is revealed to him as perfect.
+ - In our creation, God asked a question and in our truly living; God answers the question.
+ - Violence is essentially wordless. and it can begin only where thought and rational communication have broken down.
+ - If there is no silence beyond and within the many words of doctrine, there is no religion, only a religious ideology. For religion goes beyond words and actions, and attains to the ultimate Truth only in silence and Love.
+ - A man searching for enlightenment is like a man sitting on an Ass in search of an Ass.
+ - We stumble and fall constantly, even when we are most enlightened.
+ - A Christian is committed to the belief that Love and Mercy are the most powerful forces on earth.
+ - The man who lives in division is living in death. He cannot find himself because he is lost; he has ceased to be a reality. The person he believes himself to be is a bad dream.
+ - For each one of us, there is only one thing necessary: to fulfill our own destiny, according to God’s will, to be what God wants us to be.
+ - I cannot make the universe obey me. I cannot make other people conform to my own whims and fancies. I cannot make even my own body obey me.
+ - Love is our true destiny.
+ - No one is so wrong as the man who knows all the answers.
+ - We cannot find Him unless we know we need Him. We forget this need when we take a self-sufficient pleasure in our own good works. The poor and helpless are the first to find Him, Who came to seek and to save that which was lost.
+ - Because of their enmity you will be left alone. They will cast you out and forsake you.
+ - We are already ONE. We just think we are separate.
+ - For the birds there is not a time that they tell, but the point vierge between darkness and light, between being and nonbeing. You can tell yourself the time by their waking, if you are experienced. But that is your folly, not theirs.
+ - The secret of my full identity is hidden in Him. He alone can make me who I am, or rather who I will be when at last I fully begin to be. But unless I desire this identity and work to find it with Him and in Him, the work will never be done.
+ - It is my belief, that we should not be too sure of having found Christ in ourselves until we have found him also in that part of humanity that is most remote from our own.
+ - The mission of Christian humility in social life is not merely to edify, but to keep minds open to many alternatives. The rigidity of a certain type of Christian thought has seriously impaired this capacity, which nonviolence must recover.
+ - To become attached to the experience of peace is to threaten the true and essential and vital union of our soul with God above sense and experience in the darkness of a pure and perfect love.
+ - Love is free; it does not depend on the desirability of its object, but loves for love’s sake.
+ - There is a logic of language and a logic of mathematics.
+ - A daydream is an evasion.
+ - The peace produced by grace is a spiritual stability too deep for violence – it is unshakeable.
+ - How deluded we sometimes are by the clear notions we get out of books. They make us think that we really understand things of which we have no practical knowledge at all.
+ - Life reveals itself to us only in so far as well live it.
+ - One opens the inner doors of one’s heart to the infinite silences of the Spirit, out of whose abysses love wells up without fail and gives itself to all.
+ - For although God is right with us and in us and out of us and all through us, we have to go on journeys to find him.
+ - Ours is a time of anxiety because we have willed it to be so. Our anxiety is not imposed on us by force from outside. We impose it on our world and upon one another from within ourselves.
+ - You will never be able to have perfect interior peace and recollection unless you are detached even from the desire of peace and recollection. You will never be able to pray perfectly until you are detached from the pleasures of prayer.
+ - How far have I to go to find you in whom I have already arrived.
+ - For pride, which is the inordinate attribution of goods and values and glories to one’s own contingent self, cannot exist where there is no contingent self to which anything can be attributed.
+ - Infinite sharing is the law of God s inner life.
+ - I will no longer wound myself with the thoughts and questions that have surrounded me like thorns: that is a penance You do not ask of me.
+ - The Holy Spirit is the most perfect gift of the Father to men, and yet He is the one gift which the Father gives most easily.
+ - Violence is not completely fatal until it ceases to disturb us.
+ - There is not true intimacy between souls who do not know how to respect one another’s solitude.
+ - People have no idea what one saint can do: for sanctity is stronger than the whole of hell.
+ - Modern man believes he is fruitful and productive when his ego is aggressively affirmed, when he is visibly active, and when his action produces obvious results.
+ - May God prevent us from becoming “right-thinking men”-that is to say men who agree perfectly with their own police.
+ - The problem today is that there are no deserts, only dude ranches.
+ - This is the crucifixion of Christ: in which He dies again and again in the individuals who were made to share the joy and freedom of His grace, and who deny Him.
+ - They were in the world and not of it – not because they were saints, but in a different way: because they were artists. The integrity of an artist lifts a man above the level of the world without delivering him from it.
+ - But precisely this illusion that everything is “clear” is what is blinding us all. It is a serious temptation, and it is a subtle form of pride and worldly love of power and revenge.
+ - A bad book about the love of God remains a bad book.
+ - I refuse to be misled by any kind of a mirage about any alleged success of what I write. Those things are too easily exaggerated, and even when they are true, they always mean less than they seem to.
+ - The most awful tyranny is that of the proximate Utopia where the last sins are currently being eliminated and where, tomorrow, there will be no more sins because all the sinners will have been wiped out.
+ - We are obliged to love one another. We are not strictly bound to ‘like’ one another. Love governs the will: ‘liking’ is a matter of sense and sensibility. Nevertheless, if we really love others it will not be too hard to like them also.
+ - Our destiny is to live out what we think, because unless we live what we know, we do not even know it.
+ - Good moral actions are not enough. Everything in us, from the very depths, must be cleansed and reordered...
+ - Advertising treats all products with the reverence and the seriousness due to sacraments.
+ - To love our nothingness we must love everything in us that the proud man loves when he loves himself. But we must love it all for exactly the opposite reason.
+ - The selfishness of an age that has devoted itself to the mere cult of pleasure has tainted the whole human race with an error that makes all our acts more or less lies against God.
+ - The only influence that can really upset the injustice and iniquity of men is the power that breathes in the Christian tradition, renewing our participation in the Life that is the Light of men.
+ - If there was no other proof of the infinite patience of God, a very good one could be found in His toleration of the pictures that are painted of Him.
+ - I suppose what makes me most glad is that we all recognize each other in this metaphysical space of silence and happening, and get some sense, for a moment, that we are full of paradise without knowing it.
+ - The peculiar grace of a Shaker chair is due to the fact that it was made by someone capable of believing that an angel might come and sit on it.
+ - To worship our false selves is to worship nothing. And the worship of nothing is hell.
+ - If you want to have a spiritual life you must unify your life. A life is either all spiritual or not spiritual at all.
+ - Love not only prefers the good of another to my own, but it does not even compare the two.
+ - For the ones who are called saints by human opinion on earth may very well be devils, and their light may very well be darkness.
+ - Death is someone you see very clearly with eyes in the center of your heart: eyes that see not by reacting to light, but by reacting to a kind of a chill from within the marrow of your own life.
+ - Pardon all runners, All speechless, alien winds, All mad waters. Pardon their impulses, Their wild attitudes, Their young flights, their reticence. When a message has no clothes on How can it be spoken.
+ - The sacred attitude is, then, one of deep and fundamental respect for the real in whatever new form it may present itself.
+ - We become contemplatives when God discovers Himself in us.
+ - I have learned that one cannot truly know hope unless he has found out how like despair hope is.
+ - As long as I continue to take myself seriously, how can I consider myself a saint? How can I consider myself a contemplative? For the self I bother about does not really exist, never will, never did except in my own imagination.
+ - The only unhappiness is not to love God.
+ - There is a subtle but inescapable connection between the “sacred” attitude and the acceptance of one’s in most self.
+ - True contemplation is not a psychological trick but a theological grace. It can come to us ONLY as a gift, and not as a result of our own clever use of spiritual techniques.
+ - What we have to be is what we are.
+ - A life that is without problems may literally be more hopeless, than one that always verges on despair.
+ - The true contemplative is one who has discovered the art of finding leisure even in the midst of his work, by working with such a spirit of detachment and recollection that even his work is a prayer.
+ - I can only become perfectly free by serving the will of God.
+ - Stop thinking and start looking.
+ - Others can give you a name or a number, but they can never tell you who you really are. That is something you yourself can only discover from within.
+ - Indeed, it is a kind of quintessence of pride to hate and fear even the kind and legitimate approval of those who love us! I mean, to resent it as a humiliating patronage.
+ - The purpose of our lives is to find the purpose of our lives.
+ - The art of our time, sacred art included, will necessarily be characterized by a certain poverty, grimness and roughness which correspond to the violent realities of a cruel age.
+ - Love, in fact, is the spiritual life; and without it, all other exercises of the spirit are emptied of content.
+ - The artist should preach nothing-not even his own autonomy. His art should speak its own truth, and in so doing it will be in harmony with every other kind of truth- moral, metaphysical, mystical.
+ - Our whole life is a meditation of our last decision – the only decision that matters.
+ - In the end, it’s the reality of personal realtionships that save everything.
+ - I am earth, earth My heart’s love Bursts with hay and flowers. I am a lake of blue air In which my own appointed place Field and valley Stand reflected.
+ - The closer we are to God, the closer we are to those who are close to him.
+ - He who hopes in God trusts God, Whom he never sees, to bring him to the possession of things that are beyond imagination.
+ - October is a fine and dangerous season in America. a wonderful time to begin anything at all. You go to college, and every course in the catalogue looks wonderful.
+ - When you expect the world to end at any moment, you know there is no need to hurry. You take your time, you do your work well.
+ - The whole aim of Zen is not to make foolproof statements about experience, but to come to direct grips with reality without the mediation of logical verbalizing.
+ - We cannot possess the truth fully until it has entered into the very substance of our life by good habits, and by a certain perfection of moral activity.
+ - Life is not accomplishing some special work but attaining to a degree of consciousness and inner freedom which is beyond all works and attainments.
+ - It is both dangerous and easy to hate man as he is because he is not what he ought to be. If we do not first respect what he is we will never suffer him to become what he ought to be: in our impatience we do away with him altogether.
+ - In the spiritual life there is no such thing as an indifference to love or hate.
+ - Love is a special way of being alive.
+ - His justice is the love that gives to each one of His creatures the gifts that His mercy has previously decreed. And His mercy is His love, doing justice to its own exigencies, and renewing the gift which we had failed to accept.
+ - The Hindus are not looking for us to send them men who will build schools and hospitals, although those things are good and useful in themselves – and perhaps very badly needed in India: they want to know if we have any saints to send them.
+ - To be truly Catholic is not merely to be correct according to an abstractly universal standard of truth, but also and above all to be able to enter into the problems and the joys of all, to understand all, to be all things to all.
+ - We love the things we pretend to laugh at.
+ - Love is an intensification of life.
+ - And that is why the man who wants to see clearly, before he will believe, never starts on the journey.
+ - The only right way: to love and serve the man of the modern world, but not simply to succumb, with him, to all his illusions about the world.
+ - We assume that others are receiving the kind of appreciation we want for ourselves, and we proceed on the assumption that since we are not loveable as we are, we must become lovable under false pretenses, as if we were something better than we are.
+ - My best writing has always been in journals.
+ - Grains of error planted innocently in a well-kept greenhouse can become giant poisonous trees.
+ - The artistic experience, at its highest, was actually a natural analogue of mystical experience. It produced a kind of intuitive of perception.
+ - The only way to make a man worthy of love is by loving him.
+ - If you have never had any distractions you don’t know how to pray.
+ - When you reread your journal you find out that your newest discovery is something you already found out five years ago.
+ - Our knowledge of God is perfected by gratiitude: we are thankful and rejoice in the experience of the truth that He is love...
+ - For our duties and our needs, in all the fundamental things for which we were created, come down in practice to the same thing.
+ - It is when we love the other, the enemy, that we obtain from God the key to an understanding of who He is, and who we are.
+ - Love is perfect in proportion to it’s freedom.
+ - God, have mercy on me in the blindness in which I hope I am seeking You!
+ - Zen is consciousness unstructured by particular form or particular system, a trans-cultural, trans-religious, transformed consciousness.
+
+373 quotes

@@ -1,0 +1,124 @@
+ - Shut up and write anyway. Don’t use anything as an excuse.
+ - After you have finished a piece of work, the work is then none of your business. Go on and do something else.
+ - Every moment is enormous and it is all we have.
+ - Writing is the act of discovery.
+ - Write what disturbs you, what you fear, what you have not been willing to speak about. Be willing to be split open.
+ - Stress is an ignorant state. It believes that everything is an emergency.
+ - If you are not afraid of the voices inside you, you will not fear the critics outside you.
+ - Whether you’re keeping a journal or writing as a meditation, it’s the same thing. What’s important is you’re having a relationship with your mind.
+ - Failure is what we’re all running from, we’re always running toward success with failure at our back.
+ - Writers end up writing about their obsessions. Things that haunt them; things they can’t forget; stories they carry in their bodies waiting to be released.
+ - Trust in what you love, continue to do it, and it will take you where you need to go.
+ - Have compassion for yourself when you write. There is no failure – just a big field to wander in.
+ - I used to think freedom meant doing whatever you want. It means knowing who you are, what you are supposed to be doing on this earth, and then simply doing it.
+ - Trust in what you love, continue to do it, and it will take you where you need to go. And don’t worry too much about security. You will eventually have a deep security when you begin to do what you want.
+ - Be tough in the way a blade of grass is: rooted, willing to lean, and at peace with what is around it.
+ - Creativity exists in the present moment. You can’t find it anywhere else.
+ - Life is not orderly. No matter how we try to make it so, right in the middle of it we die, lose a leg, fall in love, or drop a jar of applesauce.
+ - Be awake to the details around you, but don’t be self-conscious.
+ - A writer must say yes to life.
+ - Choose your tools carefully, but not so carefully that you get uptight or spend more time at the stationery store than at your writing table.
+ - Finally, if you want to write, you have to just shut up, pick up a pen, and do it. I’m sorry there are no true excuses. This is our life. Step forward. Maybe it’s only for ten minutes. That’s okay. To write feels better than all the excuses.
+ - This is the practice school of writing. Like running, the more you do it, the better you get at it.
+ - The deepest secret in our heart of hearts is that we are writing because we love the world.
+ - Stress is basically a disconnection from the earth, a forgetting of the breath.
+ - Indefinite plans get dubious results.
+ - Writing is the crack through which you can crawl into a bigger world, into your wild mind.
+ - One poem or story doesn’t matter one way or the other. It’s the process of writing and life that matters.
+ - In the middle of the world, make one positive step. In the center of chaos, make one definitive act. Just write.
+ - I think talent is like a water table under the earth – you tap it with your effort and it comes through you.
+ - And we can’t avoid an inch of our own experience; if we do it causes a blur, a bleep, a puffy unreality. Our job is to wake up to everything, because if we slow down enough, we see that we are everything.
+ - Take out another notebook, pick up another pen, and just write, just write, just write. In the middle of the world, make one positive step. In the center of chaos, make one definitive act. Just write. Say yes, stay alive, be awake. Just write. Just write. Just write.
+ - Know that you will eventually have to leave everything behind; the writing will demand it of you.
+ - The only failure in writing is when you stop doing it. Then you fail yourself.
+ - All of us can create if we allow ourselves to.
+ - The correctness and quality of what you write do not matter; the act of writing does.
+ - Handwriting is more connected to the movement of the heart.
+ - The aim is to burn through to first thoughts, to the place where energy is unobstructed by social politeness or the internal censor, to the place where you are writing what you mind actually sees and feels, not what it thinks it should see or feel.
+ - Katagiri Roshi says: “Poor artists. They suffer very much. They finish a masterpiece and they are not satisfied. They want to go on and do another.” Yes, but it’s better to go on and do another if you have the urge than to start drinking and become alcoholic or eat a pound of good fudge and get fat.
+ - I consider writing practice a true Zen practice because it all comes back at you. You can’t fool anyone because it’s on the page.
+ - Use loneliness. Its ache creates urgency to reconnect with the world. Take that aching and use it to propel you deeper into your need for expression – to speak, to say who you are.
+ - Learning to write is not a linear process. There is no logical A-to-B-to-C way to become a good writer. One neat truth about writing cannot answer it all. There are many truths. To do writing practice means to deal ultimately with your whole life.
+ - Play around. Dive into absurdity and write. Take chances. You will succeed if you are fearless of failure.
+ - When you write what you know, you stay in control. One of the first things I encourage my writing students to do is to lose control – say what they want to say, break structure.
+ - We are each a concert reverberating with our whole lives and reflecting and amplifying the world around us.
+ - Writing is not a McDonald’s Hamburger...
+ - First thoughts have tremendous energy. The internal censor usually squelches them, so we live in the realm of second and third thoughts, thoughts on thought, twice and three times removed from the direct connection of the first fresh flash.
+ - It is simply that person’s time. Ours will come in this lifetime or the next. No matter. Continue to practice.
+ - Use original detail in your writing. Life is so rich, if you can write down the real details of the way things were and are, you hardly need anything else.
+ - When you write, don’t say, “I’m going to write a poem.” That attitude will freeze you right away. Sit down with the least expectation of yourself; say, “I am free to write the worst junk in the world.”
+ - This is your life. You are responsible for it. You will not live forever. Don’t wait.
+ - Writing can teach us the dignity of speaking the truth...
+ - Anything we fully do is an alone journey.
+ - Original details are very ordinary, except to the mind that sees extraordinariness. it’s not that we need to go to the Hopi mesas to see greatness; we need to view what we already have in a different way.
+ - Nobody cares much whether you write or not. You just have to do it.
+ - In the end, you have to just sit down, shut up, and write.
+ - The problem is we think we exist.
+ - Sometimes when you think you are done, it is just the edge of beginning. Probably that’s why we decide we’re done. It’s getting too scary. We are touching down onto something real. It is beyond the point when you think you are done that often something strong comes out.
+ - We shouldn’t forget that the universe moves with us, is at our back with everything we do.
+ - There is no security, no assurance that because we wrote something good two months ago, we will do it again. Actually, every time we begin, we wonder how we ever did it before.
+ - We should notice that we are already supported at every moment. There is the earth below our feet and there is the air, filling our lungs and emptying them. We should begin from this when we need support.
+ - We never graduate from first grade. Over and over, we have to go back to the beginning.
+ - Wait until you are hungry to say something, until there is an aching in you to speak.
+ - Actually, every time we begin, we wonder how we did it before, Each time is a new journey with no maps.
+ - Kill the idea of the lone, suffering artist. Don’t make it any harder on yourself.
+ - When you are present, the world is truly alive.
+ - I feel very rich when I have time to write and very poor when I get a regular paycheck and no time at my real work.
+ - The muscles of writing are not so visible, but they are just as powerful: determination, attention, curiosity, a passionate heart.
+ - A responsibility of literature is to make people awake, present, alive. If the writer wanders, then the reader, too, will wander.
+ - You’ll lose your reader if you are vague, not clear, and not present. We love details, personal connections, stories.
+ - Never underestimate people. They do desire the cut of truth.
+ - Oh, my passion! That is what finally carried me through. Let passion burn all the way, heating up every layer of the psyche.
+ - It is very important to go home if you want your work to be whole. You don’t have to move in with your parents again and collect a weekly allowance, but you must claim where you come from and look deep into it. Come to honor and embrace it, or at the least, accept it.
+ - In the past few years I’ve assigned books to be read before a student attends one of my weeklong seminars. I have been astonished by how few people – people who supposedly want to write – read books, and if they read them, how little they examine them.
+ - Over and over, we have to go back to the beginning. We should not be ashamed of this. It is good. It’s like drinking water.
+ - We must remember that everything is ordinary and extraordinary. It is our minds that either open or close.
+ - The positive thing about writing is that you connect with yourself in the deepest way. You get a chance to know who you are, to know what you think. You begin to have a relationship with your mind.
+ - Watch yourself. Every minute we change. It is a great opportunity. At any point, we can step out of our frozen selves and our ideas and begin fresh.
+ - Our job as writers is to listen, to come home to the four corners of the earth.
+ - In writing practice, there’s no direction. You enter your own mind and follow it where it takes you. We have a great need to connect with our own mind and our own true self. And all of us have a story to tell.
+ - Great lovers realize that they are what they are in love with.
+ - Literature gives us the great gift of the present moment.
+ - Ultimately, writing is about trusting your own mind. It is an act of discovery.
+ - In the West, a teacher imparts knowledge to a student. In the East, a teacher transmits nothing more or less than his or her Being.
+ - When you are not writing, you are a writer too. It doesn’t leave you.
+ - The things that make you a functional citizen in society – manners, discretion, cordiality – don’t necessarily make you a good writer. Writing needs raw truth, wants your suffering and darkness on the table, revels in a cutting mind that takes no prisoners...
+ - Women need space and silence. We too quickly give away our energy. There’s something about holding that richness.
+ - I’m never ashamed to read a book twice or as many times as I want. We never expect to drink a glass of water just once in our lives. A book can be that essential, too.
+ - I honor English majors. It’s a dumb thing to major in. It leads nowhere. It’s good to be dumb, it allows us to love something for no reason. That’s the best kind of love.
+ - We walk through so many myths of each other and ourselves; we are so thankful when someone sees us for who we are and accepts us.
+ - Poetry is a dumb Buddha who thinks a donkey is as important as a diamond.
+ - It is odd that we never question the feasibility of a football team practicing long hours for one game; yet in writing we rarely give ourselves the space for practice.
+ - Clarity and perseverance are difficult in American society because the basis of capitalism is greed and dissatisfaction.
+ - The harder you chase something, the faster you go and the less you’re able to let life meet life. If you’re having difficulty coming up with new ideas, then slow down...
+ - I don’t think everyone wants to create the great American novel, but we all have a dream of telling our stories-of realizing what we think, feel, and see before we die. Writing is a path to meet ourselves and become intimate.
+ - I am free to write the worst junk in the world.
+ - It’s much better to be a tribal writer, writing for all people and reflecting many voices through us, than to be a cloistered being trying to find one peanut of truth in our own individual mind. Become big and write with the whole world in your arms.
+ - In writing with detail, you are turning to face the world. It is a deeply political act, because you are not staying in the heat of your own emotions. You are offering up some good solid bread for the hungry.
+ - To encounter a fine book and have time to read it is a wonderful thing.
+ - There’s no such thing as a writer’s block. If you’re having trouble writing, well, pick up the pen and write. No matter what, keep that hand moving. Writing is really a physical activity.
+ - Read books. They are good for us.
+ - You live and then you die, I thought. It’s good to have some good times.
+ - Creativity is no big deal.
+ - Talk when you talk, walk when you walk, and die when you die.
+ - Poems are taught as though the poet has put a secret key in his words and it is the reader’s job to find it. Poems are not mystery novels.
+ - If you read good books, when you write, good books will come out of you.
+ - I remember a friend many years ago who had taped a sign to his refrigerator: There’s a dream dreaming us. If you try to think about what that means it makes your mind silly, but that silliness is good.
+ - I often wonder if all the writers who are alcoholics drink a lot because they aren’t writing. It is not because they are writers that they are drinking, but because they are writers who are not writing.
+ - That’s very nice if they want to publish you, but don’t pay too much attention to it. It will toss you away. Just continue to write.
+ - Even an ice cream parlor – a definite advantage – does not alleviate the sorrow I feel for a town lacking a bookstore.
+ - Poetry has never been a favorite American pastime.
+ - The difference between neurosis and wisdom is struggle.
+ - When we write we begin to taste the texture of our own mind.
+ - So writing is not just writing. It is also having a relationship with other writers. And don’t be jealous, especially secretly. That’s the worst kind. If someone writes something great, it’s just more clarity in the world for all of us.
+ - If you love the work, it will love you back.
+ - A writer’s job is to give the reader a larger vision of the world.
+ - Too often we take notes on writing, we think about writing but never do it. I want you to walk into the heart of the storm, written words dripping off hair, eyelids, hanging from hands.
+ - To stay close and intimate with experience is to stay close to the mind; the nitty gritty mind of the way things really are.
+ - We are important and our lives are important, magnificent really, and their details are worthy to be recorded.
+ - Finally, one just has to shut up, sit down, and write.
+ - Our lives are at once ordinary and mythical. At the same instant we have these magnificent hearts that pump through all sorrow and all winters we are alive on the earth.
+ - When you bring the darkness to the table, it doesn’t rule you or hurt other people, but when we keep it secret, it’s dangerous.
+ - As writers we need to crack open language.
+
+122 quotes

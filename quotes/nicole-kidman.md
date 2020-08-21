@@ -1,0 +1,177 @@
+ - Whatever you do in life, don’t give up on your own dreams.
+ - I’m not sure what the future holds but I do know that I’m going to be positive and not wake up feeling desperate. As my dad said ‘Nic, it is what it is, it’s not what it should have been, not what it could have been, it is what it is.’
+ - Breathe and don’t try to be perfect.
+ - I want to be tested beyond my comfort zone. I don’t want to be safe if it is more interesting to be dangerous.
+ - I was taught a very strong work ethic that included punctuality, which I’ve always felt is a sign of respect for others.
+ - If you enter the dark side of life, and come through it, you emerge with more strength and passion.
+ - In my heart I’m independent, a bit of a rebel, a nonconformist.
+ - You don’t have to be naked to be sexy.
+ - I’m not sure what the future holds but I do know that I’m going to be positive.
+ - Forget the past. You can never predict what the future is going to be. Live for the moment.
+ - It’s the desire to study the human condition, the desire for collaboration, to learn and absorb, and to lead a well-examined life.
+ - Men don’t pay you for sex, they pay you to leave after sex.
+ - People can tell you what to do, but ultimately, we’re all going to die, so how do you want to live?
+ - Violence against women is an appalling human rights violation. But it is not inevitable. We can put a stop to this.
+ - I believe that as much as you take, you have to give back. It’s important not to focus on yourself too much.
+ - I kept looking for happiness, and then I realized: This is it. It’s a moment, and it comes, and it goes, and it’ll come back again. I yearn for things, but at the same time I’m just peaceful.
+ - LIfe has got all those twists and turns. You’ve got to hold on tight and off you go.
+ - I like the privacy of my life and I protect it quite vigilantly.
+ - The things that go on in my head are far more interesting than what actually happens...
+ - I always try to push through fear.
+ - I’m a woman, a mother, a daughter, a sister. I’m a real person operating in the world. For me to discuss the most private thing feels wrong. It feels like I’m betraying myself and my children.
+ - I would describe myself as emotional and highly strung. If something upsets me, it really upsets me. If something makes me angry, I get really angry. But it’s all very upfront. I can’t hide it. I’m also loyal and I hope I’m fun.
+ - Sometimes your mistakes are you biggest virtues. You learn so much from the mistake. Those things that you think are the worst thing that’s happening to you can somehow turn around and be the greatest opportunity.
+ - I’m reserved. I’m more of an introvert than an extrovert.
+ - If I fall over and make mistakes, I’ll pick myself back up and hope for the best and try to conduct myself with as much authenticity and moral code.
+ - It’s a very brave thing to fall in love. You have to be willing to trust somebody else with your whole being, and that’s very difficult, really difficult and very brave.
+ - I think that the most difficult thing is allowing yourself to be loved, so receiving the love and feeling like you deserve it is a pretty big struggle. I suppose that’s what I’ve learnt recently, to allow myself to be loved.
+ - There’s no drugs, no Tom in a dress, no psychiatrists.
+ - Don’t worry about something going away; enjoy it while it’s happening. And don’t worry about something that’s not even real.
+ - Vengeance is a lazy form of grief.
+ - Ultimately, you’re left with the people you love and who love you- everything else fades into oblivion.
+ - People say that jealousy is the greatest enemy of love. They’re wrong. The greatest enemy of love is boredom.
+ - I’m interested in going places that I haven’t been. And I’m interesting in working with people that I feel are dangerous and sort of push me in different places.
+ - I’m a person that carries everything that happened to me in my past, with me into the future. I refuse to let it make me bitter. I still completely believe in love and I remain open to anything that will happen to me.
+ - Acting runs through my blood. There is some sort of creative desire to express myself and I would need that outlet. Otherwise I would be a nightmare to live with.
+ - It’s so bizarre, I’m not scared of snakes or spiders. But I’m scared of butterflies. There is something eerie about them. Something weird!
+ - You’re not anyone in America unless you’re on TV.
+ - It’s my job as an actor to commit to the role and not – through my own inhibitions – run away.
+ - I look for roles that show women as independent, informed, and free to make their own decisions.
+ - You have to love, without judgment, every actor that you’re working with to make beauty.
+ - And I am standing in front of my mother, and my whole life I have wanted to make my mother proud. And now I’m going to make my daughter proud.
+ - Someone has to die in order that the rest of should value life more. It’s contrast.
+ - Well, I can wear heels now.
+ - It took me a very long time to heal. It was a shock to my system.
+ - Actors have to protect each other in a way. The idea of humiliating another actor or being humiliated myself is devastating.
+ - I think love is the core emotion. Without that, and I’ve certainly existed without that, it’s a very empty life.
+ - The reality of one night, let alone that of a whole lifetime, can never be the whole truth.
+ - Every day there is a compromise. Living with somebody requires a lot of understanding. But I love being married. I really love it.
+ - I do believe there is enormous possibility to change this world.
+ - Somehow destiny comes into play. These children end up with you and you end up with them. It’s something quite magical.
+ - I never read reviews at all. I’m proud of the work I did.
+ - To appreciate the success you have to have had the failures. You have to accept that it is a journey and its not just tomorrow or the next day or next year.
+ - You’re either going to walk through life and experience it fully or you’re going to be a voyeur. And I’m not a voyeur.
+ - I wear sunscreen, and I don’t smoke. I take care of myself. And I’m very proud to say that.
+ - I’m willing to fly close to the flame.
+ - It’s very easy to fall in love when things are great, but the way to really fall in love is when things aren’t great.
+ - You have to operate from the sense of everything is new and you’re starting again.
+ - To be an actor you have to have a certain amount of madness in you. That’s why, when people meet you and you seem very together, they are quite surprised – they don’t see you behind closed doors.
+ - I always wanted to get married with just candles! I think candlelight is the most beautiful light there is and there’s something very spiritual about it.
+ - I find trying to solve problems and save lives is far more important than my film career.
+ - Acting for me is not a business, it’s about trying to make pieces of art that I believe that I feel proud of. And it’s the journey of that.
+ - As an actor you don’t control the end result. Because you’re a director, you get to control the end result. I think for us, we really have to show up and participate and give. And then let go.
+ - I love acting but I don’t like all of the other stuff associated with it. The interest in celebrities, the press, the Internet, when your identity becomes mixed up in the way people are preceving you.
+ - I’m always happy to play the bad girl. I just get to have fun, and it’s obviously all done with a smile.
+ - Not to be too detailed, but I’ve had an ectopic pregnancy, miscarriages and I’ve had fertility treatments. I’ve done all the stuff you can possibly do to try get pregnant.
+ - If I was in Sydney, I love the beach. Even though I’m incredibly pale, I put on these terribly long unattractive rashies, and people laugh at me. My kids laugh at me. But that’s what I would do.
+ - Since I have fair skin, I have to stay out of the sun. I can’t stand the sun. I dyed my hair red for a while during the 1990s but I’m actually a natural blonde.
+ - It’s good to have a little distance. If you discuss your love too much, it just damages it.
+ - You can ask me pretty much anything. There’ll be things I’ll go, ‘That feels a little too personal.’ But most things I don’t have a fear of being asked about.
+ - I just want to be nominated; beggars can’t be choosers.
+ - The ancient Greeks, poets, authors and philosophers all puzzled over the question but nobody really knows what love is – including me. Longing for another person is an exciting mental experience.
+ - I yearn for things, but at the same time I am just peaceful.
+ - It’s the warmest, loveliest community I’ve ever set foot in. For me, it’s the perfect place to live. It’s the best part of America.
+ - I find standing and posing for photos very awkward.
+ - If you’ve got red hair, try washing it in cranberry juice. And, if you’re blonde, a champagne rinse can work wonders.
+ - I am very shy – really shy – I even had a stutter as a kid, which I slowly got over, but I still regress into that shyness. So I don’t like walking into a crowded restaurant by myself; I don’t like going to a party by myself.
+ - The thing you hate about yourself tends to be the thing that everyone likes about you.
+ - Honestly, people have said everything under the sun. I just want to do my work, raise my kids, and hopefully find somebody who I can share my life with again.
+ - I think if you have someone to love and someone who loves you, that’s the greatest beauty secret.
+ - The power of work, and the power of creativity can be your salvation.
+ - What’s the point of doing something good if nobody’s watching.
+ - I’m spontaneous. I jump in. I kind of like getting married and then getting to know each other; I know that it sounds incredibly strange, but to me, it’s a more natural process.
+ - Happiness, that’s obviously different for everybody, but what I call my joy, the thing that makes me feel incredibly satiated, is my family, and then I get to go and play out all of my ideas and feelings through all these different characters.
+ - One in three women may suffer from abuse and violence in her lifetime. This is an appalling human rights violation, yet it remains one of the invisible and under-recognized pandemics of our time.
+ - I’m now so much more capable of receiving love and giving it in a far different way.
+ - Yippee! I can’t believe I made it. It feels like a long haul to get here. I’m so fine with it. People want you to have some sort of breakdown, but I’m relieved to be 40 years old, and I’ve lived a life.
+ - My life collapsed. People ran from me because suddenly it was ‘Oh my God! It’s over for her now!’
+ - I dig my heels in every now and then, and think ‘I’m not going to do what’s expected or what people think is the right thing.’ So I have a little bit of that in my personality.
+ - My path was to be an actor and it’s been very good to me in life. It’s broadened my horizons and given me a lot of gifts.
+ - Your confidence grows as you get older, particularly when you’re in a loving relationship. Everything strengthens.
+ - You’ve got to find your bliss as a human being, because if you can follow that, everything else falls into place.
+ - As a Goodwill Ambassador for UNIFEM, I’ve learned that violence against women knows no boundaries. Join me in helping women worldwide who have suffered unthinkable violence.
+ - I have always tried to be a woman who protects other women. I have a sister, I have daughters, I have girlfriends, and I was raised by a feminist mother.
+ - They give us access to another world, they give us access to dreams. It’s our way of living in a different realm for a short period of time – and how beautiful is that?
+ - The more you love, the more you crave.
+ - I never knew I’d be in a musical, let alone win an award for one.
+ - I love just sitting quietly meditating. With an hour free, it depends. I love getting down on the floor and playing with my kids.
+ - It’s taken me 40-something years, but I embrace the curl. My littlest daughter has the same hair. She likes it when my hair is curly, so I wear it for her.
+ - I would rather be tough on myself than have other people be tough on me.
+ - I look at everything I’ve done critically – but I think that’s the job of an actor. If you ever sit on your laurels or think that you’re good – in a way, I don’t then think you’re pushing yourself.
+ - I’ll put it out there: I love getting hugs.
+ - Regrets are ridiculous, so I don’t regret, no.
+ - If I were a strategically minded person, I think I would have a far different career.
+ - I want to be in places I’ve never been before.
+ - If you’re going to be with someone, you’re with them, you’re committed to them. I’m not sort of flitting around.
+ - I don’t believe in having body doubles for a film.
+ - I love working with people who are inspired and obsessive.
+ - You want to take some responsibility for you choices so that it sets the groundwork for that next generation of actresses.
+ - You’ve just got to have a sense of respect for the person you have children with. Anger doesn’t help anybody. Ultimately you have to say forgiveness is important, and honoring what you had together is important. But it’s easy to say and harder to do.
+ - I have a little bit of a belly, a tiny bit of pooch. It’s the one thing I don’t want to lose. I just like having some softness. If I lose that, then Tom might leave me.
+ - It was very natural for me to want to disappear into dark theater, I am really very shy. That is something that people never seem to fully grasp because, when you are an actor, you are meant to be an exhibitionist.
+ - There’s just something about women and shoes, it’s the luxury, it’s the femininity and it’s the attention to detail. You can put a lot of work into your dress but if you have the right shoe and bag then you feel good.
+ - Now my ability to notice things and respond to things and be here is far more profound. With that comes happiness, with it comes sadness, but it’s a beautiful life.
+ - Part of the reason of being an actor is you like playing other people’s lives and exploring all the psychologies in that and the emotions.
+ - With every character, you alter, you can’t be attached to your own identity.
+ - I don’t like changing with the wind; I like sticking to my own self.
+ - I wouldn’t want to be married to me, but luckily Tom Cruise does.
+ - I think at some stage, I would love to have another child. I would love to settle into a relationship that was really important to me. I actually am not good at the balance at that.
+ - I think I would be very sad if I wasn’t able to have a baby.
+ - When you relinquish the desire to control your future, you can have more happiness.
+ - Refuse to let your circumstances make you bitter. Do what you must to make them better.
+ - The loss of a child is the most terrifying place for me to go.
+ - My choices in films are spontaneous.
+ - I was told I had a two per cent chance of getting pregnant, so I say she’s a two per cent baby.
+ - I like bold directors. I like directors that go against the norm in a way...
+ - I’d rather walk a tightrope than have my feet on the ground.
+ - I auditioned for the role of an angel in the Nativity play at school. I didn’t get it. I auditioned for Mary; didn’t get it. So I made up the character of the sheep who sat next to Baby Jesus.
+ - I did try Botox, unfortunately, but I got out of it and now I can finally move my face again.
+ - Stay out of the sun, because it is the worst thing in terms of aging. I’m very medical. I come from a medical family.
+ - I think it’s important that we don’t all have to hold our heads high all the time saying everything’s fine.
+ - I’m drawn to the psychology of really interesting, flawed people.
+ - Salary stories are intrusive. Do you ask your neighbour what they earn for their job?
+ - I want to go home at night and feel discomfort.
+ - I have a boy’s body. I would prefer to have more curves because I think that’s more beautiful. I would much rather have J. Lo’s body than mine.
+ - I’m trying to find a man to share my life with, but it’s not been easy. I’m a 35-year-old woman with two small children.
+ - I was fair-skinned in a country that’s about the outdoors.
+ - An actor who’s a control freak, that doesn’t work. We have to be malleable. We cannot come in and try to control or dominate.
+ - I believe the experiences of life are more important than any film you make.
+ - I refuse to let what happened to me make me bitter.
+ - I don’t mind being naked.
+ - I think having my life be as private and quiet as possible is a way in which then I can go and play characters.
+ - I don’t really make decisions, I go with the flow.
+ - I’m always interested in films that are about extreme subject matters.
+ - It was very natural for me to want to disappear into the theatre, I am really very shy.
+ - I’ve always been interested in our flaws as human beings, just as much as the virtues.
+ - No matter how much you’re going to be criticized or no matter how big of a risk it is, the boldness is the thing that helps you.
+ - I credit literature for the reason I act because that was the door to me saying, ‘Oh! I can be somebody else. I can exist as someone else.’
+ - I didn’t really care about my physical health; I only cared about what was on screen.
+ - I’m especially interested in helping to give visibility to the pandemic of violence against women.
+ - I suppose expectations are strange and I shy away from them. And the whole point of being an actor is to connect.
+ - Even as a child I had a strong relationship with yearning and desire. And loss. Those things spoke to me.
+ - I have a passion for my work, and that can seep into you. It’s almost as if you’re drawn to it.
+ - That goes against what I believe morally. That’s adultery, and if I’m accused of that, no, that’s not right. I have two kids who see that and remember that and judge me. It didn’t happen, and it’s not to be reported that way.
+ - When someone starts talking to me about the truth, what I hear is what they’re telling me about themselves.
+ - I’m not drawn to stories that are just sort of fluffy. I’m just not, and I’ve tried to, and as a kid I was never drawn to them. I always chose complicated.
+ - I have a different approach. I don’t file lawsuits because I really don’t care.
+ - I just feel my way through. If I had to give an acting class, I wouldn’t know what to do.
+ - These different people that I play become the loves of my life.
+ - I love lying in darkness.
+ - I think each role takes a little from you and circles around you for the rest of your life. I don’t think you ever abandon any of them.
+ - Dealing with these emotions as an actress is like being a boxer put into the ring.
+ - I never wore glasses except when I had to read a teleprompter at an awards show or drive, so I didn’t notice much. I could exist in my head. It was kind of my escape from the world and my protection.
+ - Even from a very early age, I knew I didn’t want to miss out on anything life had to offer just because it might be considered dangerous.
+ - I got married really fast and really young.
+ - I’ve always been somebody on a journey of discovery.
+ - I love acting, but it’s much more fun taking the kids to the zoo.
+ - As much as I have films and all that sort of stuff, a lot of my memories are to do with relationships and love.
+ - I’ve always loved the drama and the creating of a role and performance and all that comes with that, but I then also kind of like to have just the white picket fence life if that makes sense.
+ - Having your work be the basis of fame, that’s a far more stable feeling.
+ - I don’t really celebrate fame because I get enough attention.
+ - I’d like to be wise. You have to go through a lot to get there, but I’m willing to go through a lot.
+ - You look at somebody’s work as an actor and you can see their emotional life being fed into it and you can kind of feel them through it.
+ - You aren’t really anybody in America if you’re not on TV.
+ - Once I start putting all my little insecurities in my mind, I’m not actually acting. Then it’s about me – and it should never be about me. It should be about the character.
+ - I think when you’re in a relationship where you really care for the other person, when they achieve their dreams it’s better than when you do yourself.
+
+175 quotes

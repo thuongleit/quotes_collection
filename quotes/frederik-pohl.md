@@ -1,0 +1,26 @@
+ - You can’t really predict the future. All you can do is invent it.
+ - A good science fiction story should be able to predict not the automobile but the traffic jam.
+ - That’s what life is, just one learning experience after another, and when you’re through with all the learning experiences you graduate and what you get for a diploma is, you die.
+ - You don’t think progress goes in a straight line, do you? Do you recognize that it is an ascending, accelerating, maybe even exponential curve? It takes hell’s own time to get started, but when it goes it goes like a bomb.
+ - Science fiction is the very literature of change.
+ - What were we doing here? Traveling hundreds or thousands of light-years, to break our hearts?
+ - You can’t trust reason. We threw it out of the ad profession long ago and have never missed it.
+ - If you don’t care about science enough to be interested in it on its own, you shouldn’t try to write hard science fiction. You can write like Ray Bradbury and Harlan Ellison as much as you want.
+ - The science fiction method is dissection and reconstruction.
+ - That’s really what SF is all about, you know: the big reality that pervades the real world we live in: the reality of change. Science fiction is the very literature of change. In fact, it is the only such literature we have.
+ - I’m pretty catholic about what constitutes science fiction.
+ - My first thought was always a cigarette. It still is, but I haven’t cheated.
+ - My old English buddy, John Rackham, wrote and told me what made science fiction different from all other kinds of literature – science fiction is written according to the science fiction method.
+ - The big new development in my life is, when I turned 80, I decided I no longer have to do four pages a day. For me, it’s like retiring.
+ - It’s clear that science and science fiction have overlapping populations.
+ - I don’t think the scientific method and the science fictional method are really analogous. The thing about them is that neither is really practiced very much, at least not consciously. But the fact that they are methodical does relate them.
+ - In terms of stories I would buy for a science fiction magazine, if they take place in the future, that might do it.
+ - Advertising reaches out to touch the fantasy part of people’s lives. And you know, most people’s fantasies are pretty sad.
+ - I was thinking of writing a little foreword saying that history is, after all, based on people’s recollections, which change with time.
+ - On this day I want to tell you about, which will be about a thousand years from now, there were a boy, a girl and a love story.
+ - I’m doing a book, ‘Chasing Science,’ about the pleasures of science as a spectator sport.
+ - I did that for 40 years or more. I never had any writer’s block. I got up in the morning, sat down at the typewriter – now, computer – lit up a cigarette.
+ - People as me how I do research for my science fiction. The answer is, I never do any research.
+ - For someone to be taken seriously it was valuable to have the appearance of someone who deserved to be taken seriously.
+
+24 quotes

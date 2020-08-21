@@ -1,0 +1,39 @@
+ - Wherever is your heart I call home.
+ - All of these lines across my face, tell you the story of who I am. So many stories of where I’ve been and how I got to where I am.
+ - You can dance in a hurricane, but only if you’re standing in the eye.
+ - People sing each other’s songs and they cultivate standards. That’s the reason why we have folk music and folk stories. History is told through song.
+ - Coffee, whiskey, and fishing poles. That’s really all you need in life.
+ - I was born when I met you, now I’m dying to forget you.
+ - Cousins are forever and forever are cousins they stand by your side for you no matter what.
+ - Sometimes seeming happy can be self-destructive even when you’re sane.
+ - I love fishing, any kind of fishing.
+ - I’ve read and heard that some of the most inspiring vocal interpreters adhere habitually to one rule: Always think the lyrics as you’re singing them, so that the sentiment is always appropriate and heartfelt.
+ - My songwriting is so influenced by orchestrated music, dramatic, super glam rock-y stuff. Two of my biggest influences in songwriting were Elton John and Freddie Mercury.
+ - I have vocal trouble from time to time associated with sleep or wine! Or from sleeping in a bunk the size of a coffin and breathing in bus air conditioning all day.
+ - My mother’s a singer and my mother’s father is a singer, and everyone on both sides are all country-western bluegrass musicians.
+ - Even before I had a daughter, I was passionate about global women’s issues, but now that she’s here, I’m even more inspired to leave a better world for Evangeline.
+ - I tend to feel really protective of songs, and if they aren’t sitting well in a record, I’ll pull them tight to my chest until I feel it’s a better time.
+ - People that could yodel always fascinated me. People that could sing loud always fascinated me. So I started trying to mimic at a really young age: 6, 7 years old.
+ - The first thing I think of when I think about coming to Las Vegas and playing is always Elvis; its always the first thing on my mind.
+ - I feel like a lot of the singer-songwriters in my genre and in my generation have gotten more and more snooty about covering other people’s songs. They believe that creativity is the intersect of expression.
+ - My advice to new artists is to embrace a broader concept of timelessness than vintage or retro.
+ - I’m not sure I’ll ever be famous by anyone’s definition. I can only hope to be allowed by the audience to continue my life’s work.
+ - If I learned to play guitar it was so that I would have something to sing to, if I learned to write a song it was so that I would have something to sing. So the gut feeling you’re talking about comes from singing and communicating the lyrics and what it is that we feel.
+ - When I was younger, I was always running into other girls involved in music. When I was about 14 or 15, one of my friend’s dads was an Elvis impersonator and asked us to sing backups at a rehearsal. I did well and was hired. Did that for about two years.
+ - Privilege and complacency paralyze me with fear sometimes.
+ - I believe that writing for me is in a way like wisdom; in that as soon as you feel like you’ve got it figured out you stop growing and maybe even lose something.
+ - There’s a lot of really inspiring music coming around the bend – we tend to believe that to sound classic or timeless is to sound vintage or retro. It’s a little bit dangerous, because you’ll really miss a chance to make your mark as a generation.
+ - But I’m warning you, we’re growing up.
+ - I’d love to claim the title of ‘songwriter’ or ‘intellectual,’ but the truth is that anything that I ever learned how to do in conjunction with music was purely so that I would have a platform to sing from.
+ - You can’t change people, but most importantly, unless you’re their momma, you don’t even know what’s best for them.
+ - But now, with the last two years of touring and being on the road, I’ve learned that a live show should never sound like a record; a record should sound like a live show.
+ - I feel like the kindest thing that I do to my voice is sing.
+ - I tend to support and get behind issues instead of candidates, because of the whole ‘Super Bowl’ generalization of our world – You’re on this side, I’m on that side; you’re a Republican, I’m a Democrat; you’re country music, I’m rock music.
+ - Writing is sort of putting a puzzle together halfway. Then, performing it has always been the completion of it. Once that happens, I’m feeling verbally communal with other people. It’s out there and I feel so much better about it.
+ - It’s impossible to just come up with one thing that I could say to the world. That’s why I’ve spent my life in the pursuit of the opportunity to sing to it. Summing it up goes against what fuels me.
+ - In life, I’m most inspired by entertaining people and driven by the desire to do it by such a powerful force that I think it influences everything I do.
+ - Every city has a town outside with a lake. I pull out my fishing pole and fish. I’ve been doing that for a long time.
+ - I’m not so arrogant to consider mine the only legitimate art form. I can’t in one breath make a fuss about someone compartmentalizing music into genre and then in the next accuse advertising and short film of not being art.
+ - I used to turn to nature and animals a lot. And fishing. I spend time still with my Bible and the gospel music, and I still have to feed the animals! But my wife and daughter have brought me a world of perspective when I’m feeling just a little “extra important.”
+
+37 quotes

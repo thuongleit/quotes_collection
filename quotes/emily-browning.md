@@ -1,0 +1,29 @@
+ - For me, I see filmmaking as art.
+ - I’m a massive daydreamer. I’m constantly lost within my own fantasies and my own thoughts personally, and I think maybe that is sort of represented in what we do for a living, the fact that we make believe everything and we escape into these other characters for a living.
+ - I’m a very private person. I find it very daunting to have to give private parts of myself away to people, you know?
+ - I tend to over-analyse things. I’m not the type of person to flip a coin and let things happen.
+ - I need to push myself. I’m not saying that I just want to do anything that’s shocking, but when you have that combination of a script that’s really beautiful and extremely shocking, it’s exciting for me.
+ - My family are very supportive and always have been. They weren’t the kind of parents that pushed me into it. I know a lot of parents of kid actors I’ve worked with have pressured them into acting, but my parents are different. I’m really lucky to have them because they let me make my own decisions.
+ - It doesn’t really matter what people think of me, I should just be connecting with people I really like instead of pretending to be the perfect version of myself.
+ - With young people, there’s often that carelessness, allowing yourself to get into danger – recklessness, I suppose.
+ - I can cry at the drop of a hat. I’ve always found that easier than laughing in films.
+ - I love horror films, but it’s more than an adrenaline rush for me. I love them because I know they scare me. It’s kind of like I go on roller coasters, but I’m terrified of roller coasters, sort of thing.
+ - My job is to portray real human beings and real human experiences, and if I haven’t had a real human experience myself outside of the film industry, how am I going to be able to do that?
+ - For me it would be unhealthy to be a method actor; I’m not mentally stable enough for that – I need to separate my two worlds.
+ - I’d rather make an interesting film that gets people talking, that maybe some people hate, than make the kind of ‘entertaining’ film that everyone feels ambivalent about.
+ - A strange thing happens to me that I’m sure happens to a lot of actors when the camera starts rolling. I’m not ‘me’ any more.
+ - I felt much better when I started to become myself a bit more and to spend time with people who I genuinely liked as opposed to the people I felt I should be spending time with.
+ - I was lucky – the first eight productions I auditioned for, I got cast.
+ - I’m into video games, but only real specific lame video games.
+ - Being from Australia, I’ve never even touched a gun. It’s so not a part of our culture.
+ - When you act, you really have to give all of yourself, and if you’re doing that purely for money, it’s not healthy.
+ - I usually hate going around and doing press. It sort of stresses me out.
+ - After Hollywood, you know if people are interested in you or in the fact that you’ve been in a movie. You know who your real friends are.
+ - I feel like in Australia, all the films I’ve done, we’re all equal moving parts in this equation of making the film – an actor is another crew member, essentially.
+ - Often, people who want to make interesting films simply don’t have the money to do it.
+ - I prefer to make a film that people have a really intense reaction to than have a film that people feel ambivalent about.
+ - What we do to ourselves to look a certain way is crazy.
+ - There are so many actors that I’ve worked with that I’d like to work with again and there are so many girls. So often when you’re up for a role, you’re the only girl, and people think that a positive thing: “You get to be the only girl here!” That’s not an exciting kind of idea to me.
+ - I have to just worry about my own opinion and the opinions of the people I’m working with and people who are close to me.
+
+27 quotes

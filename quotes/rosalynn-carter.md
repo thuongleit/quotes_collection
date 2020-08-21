@@ -1,0 +1,22 @@
+ - A leader takes people where they want to go. A great leader takes people where they don’t necessarily want to go, but ought to be.
+ - Without volunteers, we’d be a nation without a soul.
+ - There are only four kinds of people in the world – those who have been caregivers, those who are caregivers, those who will be caregivers and those who will need caregivers.
+ - You must accept that you might fail; then, if you do your best and still don’t win, at least you can be satisfied that you’ve tried. If you don’t accept failure as a possibility, you don’t set high goals, you don’t branch out, you don’t try – you don’t take the risk.
+ - Do what you can to show you care about other people, and you will make our world a better place.
+ - There is nothing more important than a good, safe, secure home.
+ - Once you accept the fact that you’re not perfect, then you develop some confidence.
+ - Kindness is the connection that links us all together and strengthens the bonds within our communities, neighborhoods, and families.
+ - I believe that one of the most important things to learn in life is that you can make a difference in your community no matter who you are or where you live.
+ - If you doubt you can accomplish something, then you can’t accomplish it. You have to have confidence in your ability, and then be tough enough to follow through.
+ - We have to get the word out that mental illnesses can be diagnosed and treated, and almost everyone suffering from mental illness can live meaningful lives in their communities.
+ - If you look at suicides, most of them are connected to depression. And the mental health system just fails them. It’s so sad. We know what to do. We just don’t do it.
+ - There is clearly much left to be done, and whatever else we are going to do, we had better get on with it.
+ - Early diagnosis is so important because the earlier a mental illness can be detected, diagnosed and treatment can begin, the better off that person can be for the rest of his or her life.
+ - If we have not achieved our early dreams, we must either find new ones or see what we can salvage from the old. If we have accomplished what we set out to do in our youth, we need not weep like Alexander the Great that we have no more worlds to conquer.
+ - Times of upheaval require not just more leadership but more leaders. People at all organizational levels, whether anointed or self-appointed, must be empowered to share leadership responsibilities.
+ - I had already learned from more than a decade of political life that I was going to be criticized no matter what I did, so I might as well be criticized for something I wanted to do.
+ - Don’t worry about polls, but if you do, don’t admit it.
+ - I think the city of Washington itself is insular to a certain extent. You have to get out in the country to realize what is going on and discover that the perceptions in Washington aren’t necessarily accurate.
+ - First ladies throughout our history have been expected to be adoring wives and perfect mothers...
+
+20 quotes

@@ -1,0 +1,34 @@
+ - I would die for my country, but I could never let my country die for me.
+ - The House of Lords must go – not be reformed, not be replaced, not be reborn in some nominated life-after-death patronage paradise, just closed down, abolished, finished.
+ - I warn you not to be ordinary, I warn you not to be young, I warn you not to fall ill, and I warn you not to grow old.
+ - Someone up there likes me.
+ - Resentment is an extremely bitter diet, I have no desire to make my own toxins.
+ - I must emphasise that there is nothing in the Labour Party constituion that could, or should prevent people from holding opinions which favour Leninist-Trotskyism. Certainly Marxism has, and will continue to have an important function in the Labour Party.
+ - Margaret Thatcher was not a malicious person. She was a person who couldn’t see, or didn’t want to see, the unfairness and disadvantaging consequences of the application of what she thought to be a renewing ideology.
+ - Mobile phones are the only subject on which men boast about who’s got the smallest.
+ - They travel best in gangs, hanging around like clumps of bananas, thick skinned and yellow.
+ - Arthur Scargill is the Labour movements nearest equivalent to a First World War General.
+ - I want to retire at 50. I want to play cricket in the summer and geriatric football in the winter, and sing in the choir.
+ - The unforgivable political sin is vanity; the killer diet is sour grapes.
+ - We cannot remove the evils of capitalism without taking its source of power: ownership.
+ - Without false modetsy, I don’t think I have a fraction of the talent of either Bevan of Foot.
+ - Two negatives don’t make a positive, any more than two half-wits make a wit.
+ - I am the first male member of my family for about three generations who can have reasonable confidence in expecting that I will leave this earth with more or less the same number of fingers, hands, legs, toes and eyes as I had when I was born.
+ - People who are in politics to be right all the time would be better off taking up fly-fishing. It’s less dangerous. Politics that is not applied in the real world and doesn’t address the real challenges and paradoxes and agonies is a hobby.
+ - The trouble with the Socialist Workers Party is that they live in an historical thermos-flask.
+ - Harold Wilson is a petty bourgeois and will remain so in spirit even if they make him a Viscount.
+ - The Parthenon without the marbles is like a smile with a tooth missing.
+ - American nuclear weapons would almost certainly start being removed from Britain within 12 months of a Labour government gaining power.
+ - Devolutionary reform will not provide a factory, a machine or jobs, build a school, train a doctor or put a pound on pensions.
+ - You cannot fashion a wit out of two half-wits.
+ - Those who have the immense dishonesty to fight with a ballot box in one hand and a rifle in the other have no place in democratic politics.
+ - At various times in the next 20 or 30 years I think it reasonable to anticipate that I will be among the leadershp of the Labour Party, but as far as being leader, I can’t see it happening, and I’m not particularly keen on it happening.
+ - The enemy of idealism is zealotry.
+ - We must not look for some kind of Messiah.
+ - No prime minister in Britain will ever be able to go to war without the endorsement of a majority of the House of Commons.
+ - I’m prepared to take advice on leisure from Prince Philip. He’s a world expert on leisure. He’s been practicing it for most of his adult life.
+ - That sort of fundamentalism which treats possession of private property not as a desirable economic and personal asset but as a condition of liberty is a form of primitive religion.
+ - Political renegades always start their career of treachery as ‘the best men of all parties’ and end up in the Tory knackery.
+ - Do something that makes a difference – because, by God, there’s a lot to make you angry.
+
+32 quotes

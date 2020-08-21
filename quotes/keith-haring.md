@@ -1,0 +1,29 @@
+ - Art is for everybody.
+ - Whatever you do, the only secret is to believe in it and satisfy yourself. Don’t do it for anyone else.
+ - Children know something that most people have forgotten.
+ - My contribution to the world is my ability to draw. I will draw as much as I can for as many people as I can for as long as I can.
+ - If commercialization is putting my art on a shirt so that a kid who can’t afford a $30,000 painting can buy one, then I’m all for it.
+ - Everybody draws when they are little.
+ - The best reason to paint is that there is no reason to paint...
+ - Children are the bearers of life in its simplest and most joyous form. Children are color-blind and still free of all the complications, greed, and hatred that will slowly be instilled in them through life.
+ - The act of creation is a kind of ritual. The origins of art and human existence lie hidden in this mystery of creation. Human creativity reaffirms and mystifies the power of ’life.
+ - I don’t think art is propaganda; it should be something that liberates the soul, provokes the imagination and encourages people to go further. It celebrates humanity instead of manipulating it.
+ - Drawing is still basically the same as it has been since prehistoric times. It brings together man and the world. It lives through magic.
+ - Art is nothing if you don’t reach every segment of the people.
+ - The only way art lives is through the experience of the observer. The reality of art begins with the eyes of the beholder, through imagination, invention and confrontation.
+ - When I die there is nobody to take my place.
+ - Every time I make something I think about the people who are going to see it and every time I see something, I think about the person who made it...
+ - I grew up in Pennsylvania in a small town. Real small, like one high school and one movie theater. Well, there was a state college there, that was the only good thing about it.
+ - When I grow up I would like to be an artist in France.
+ - I’ve always wanted to work for Walt Disney. That’s what I thought I was going to do when I grew up.
+ - Pure art exists only on the level of instant response to pure life.
+ - There is nothing that makes me happier than making a child smile.
+ - Good and Evil are very hard to explain or understand. I’m sure that evil exists, but it is hard to isolate. Good and evil are intertwined and impossible to separate. They are not completely opposites and in fact are often one and the same.
+ - I am intrigued with the shapes people choose as their symbols to create a language. There is within all forms a basic structure, an indication of the entire object with a minimum of lines that becomes a symbol. This is common to all languages, all people, all times.
+ - When it is working, you completely go into another place, you’re tapping into things that are totally universal, completely beyond your ego and your own self. That’s what it’s all about.
+ - I didnt start doing graffiti until two years after I got to New York. Jean Michel Basquiat was one of my main inspirations for doing graffiti. For a year I didnt know who Jean Michel was, but I knew his work.
+ - There are some images that I will only use once, and not use again because they don’t seem to really hit the nail right on the head, but there are some which are so strong they have to be reduced; sometimes just reusing them makes them stronger.
+ - See, when I paint, it is an experience that, at its best, is transcending reality.
+ - I have been enlightened. I have fallen into poetry and it has swallowed me up.
+
+27 quotes

@@ -1,0 +1,39 @@
+ - Travelers, there is no path, paths are made by walking.
+ - What have you done with the garden that was entrusted to you?
+ - Life is the path you beat while you walk it It’s the walking that beats the path It is not the path that makes the walk.
+ - Wayfarer, the only way is your footsteps, there is no other. Wayfarer, there is no way, you make the way as you go. As you go, you make the way and stopping to look behind, you see the path that your feet will never travel again. Wayfarer, there is no way- Only foam trails to the sea.
+ - Mankind owns four things that are no good at sea: rudder, anchor, oars and the fear of going down.
+ - My soul is not asleep. It is awake, wide awake. It neither sleeps nor dreams, but watches, its eyes wide open far-off things, and listens at the shores of the great silence.
+ - I love Jesus, who said to us: Heaven and earth will pass away. When heaven and earth have passed away, my word will remain. What was your word, Jesus? Love? Forgiveness? Affection? All your words were one word: Wakeup.
+ - Don’t try to rush things: for the cup to run over, it must first be filled.
+ - I dreamt – marvellous error! – that I had a beehive here inside my heart. And the golden bees were making white combs and sweet honey from my old failures.
+ - Only a fool thinks price and value are the same.
+ - Under all that we think, lives all we believe, like the ultimate veil of our spirits.
+ - My philosophy is fundamentally sad, but I’m not a sad man, and I don’t believe I sadden anyone else.
+ - Last night as I was sleeping, I dreamt – marvellous error! – That it was God I had here inside my heart.
+ - Death is something we shouldn’t fear because, while we are, death isn’t, and when death is, we aren’t.
+ - Life is the path you beat while you walk it.
+ - Avoid pulpits, platforms, stages and pedestals. Keep to the hard ground. It is the only way you can judge your approximate status as a man.
+ - Walk through life in dreams out of love of the hand that leads us.
+ - By walking one makes the road, and upon glancing behind sees the path.
+ - Those who deny the existence of the truth postulate the truth of their denial and plainly contradict themselves.
+ - In order to write poetry, you must first invent a poet who will write it.
+ - The absence of vices adds so little to the sum of one’s virtues.
+ - The great philosophers are poets who believe in the reality of their poems.
+ - The only living language is the language in which we think and have our being.
+ - There is no one so bound to his own face that he does not cherish the hope of presenting another to the world.
+ - Man’s passion for truth is such that he will welcome the bitterest of all postulates so long as it strikes him as true.
+ - Wherever learning breeds specialists, the sum of human culture is enhanced thereby. That is the illusion and consolation of specialists.
+ - Between living and dreaming there is a third thing. Guess it.
+ - I. Don’t trace out your profile – forget your side view – all that is outer stuff. II. Look for your other half who walks always next to you and tends to be who you aren’t.
+ - All our efforts must tend towards light.
+ - The truly erotic sensibility, in evoking the image of woman, never omits to clothe it. The robing and disrobing: that is the true traffic of love.
+ - At the very smallest wheel of our reasoning it is possible for a handful of questions to break the bank of our answers.
+ - There are a lot of doubts over the size and effect of new competitors in the cellular sector.
+ - The unpublished manuscript is like an uncon-fessed sin that festers in the soul, corrupting and contaminating it.
+ - No one can shed light on vices he does not have or afflictions he has ever experienced.
+ - Hell is the bloodcurdling mansion of time, in whose profoundest circle Satan himself waits, winding a gargantuan watch in his hand.
+ - Beware of the community in which blasphemy does not exist: underneath, atheism runs rampant.
+ - Man would be “otherwise.” That’s the essence of the specifically human.
+
+37 quotes

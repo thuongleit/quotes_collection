@@ -1,0 +1,21 @@
+ - Learning is a gift, even if pain is the teacher.
+ - You can never have too many friends.
+ - I’m a ‘bleeding-heart liberal,’ one of those card-carrying Democrats that Rush Limbaugh thinks is a communist. And I’m proud of it.
+ - I don’t take success very well, because I know it’s fleeting. And the next day, it can all fall apart. I know that, too. So I don’t get too high, and I don’t get too low. You get through the world a lot easier that way.
+ - With the exception of my wife and children, there’s nothing I value more than my Oklahoma heritage.
+ - Ronald Reagan wasn’t qualified to be governor, let alone president.
+ - Marriage is a lot like the army, everyone complains, but you’d be surprise at the large number that re-enlist.
+ - We know what the surface of the moon is better than we know what the surface of the sea floor is.
+ - I’m a Methodist, but not as an actor.
+ - I saw my wife at a pool, flipped over her, and 14 days later we were married.
+ - I smoked marijuana for 50 yearsIt opened my mind to a lot of things, and now its active ingredient, THC, relaxes me and eases my arthritis pain. I’ve concluded that marijuana should be legal.
+ - The greatest challenge Internet users face is information overload.
+ - Cause my wife gets up and goes shopping.
+ - You don’t need qualifications as an actor or a politician. And I didn’t want to be a politician.
+ - When I started working, I didn’t have a clue what I was doing, in that I was just wandering around, hoping that I could succeed. Then after I got a little under my belt, it took me about 25 years to feel like I knew what I was doing.
+ - Acting is just common sense. It isn’t hard if you put yourself aside and just do what the writer wrote.
+ - The only reason I’m an actor is that a lady pulled out of a parking space in front of a producer’s office.
+ - Too many actors have run for office. There’s one difference between me and them: I know I’m not qualified.
+ - Everybody wants blockbusters. I like to see a few pictures now and then that have to do with people and have relationships, and that’s what I want to do films about. I don’t want to see these sci-fi movies, and I don’t want to do one of those. I don’t understand it.
+
+19 quotes

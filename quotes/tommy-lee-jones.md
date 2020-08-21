@@ -1,0 +1,44 @@
+ - Imagine what you’ll know tomorrow.
+ - Kindness and politeness are not overrated at all. They’re underused.
+ - I look upon pride as a sin.
+ - I want out of each and every one of you is a hard target search, of every gas station, residence, warehouse, farmhouse, henhouse, outhouse and doghouse in that area.
+ - I think any stereotyping is too much.
+ - Lose the chrome-plated sissy pistol and get yourself a Glock.
+ - No, I don’t think about the myth of the West. It’s not the kind of thinking I do. That’s more suited to people who live in big towns on the West Coast or East Coast, people who stay under a roof, in a room, all the time.
+ - Age will flatten a man.
+ - Acting is fun for me and it doesn’t really matter how, whether it’s hard work or easy work, it’s always fun.
+ - Meryl Streep does not make mistakes. Sometimes the world just can’t keep up.
+ - Let me explain something you already know. I’m from Texas and we understand the nature of a border. From what I’ve seen, vigilant Texans are being ordered to stand down and allow criminals to pass. Mr. President, prepare to see Texans ignoring those orders.
+ - I don’t do anything that is not fun. I just don’t do it.
+ - I’m a believer in belief. Faith is something that works – it causes people to do things, it has results. It’s an intangible, indefinable, very real thing. And it moves people, sometimes to atrocity. And sometimes to survival.
+ - I think that no matter how much you don’t like yourself or the drama of your life you can still find some comedy in it.
+ - It makes me feel like a very special person, that I’m able to make my living with my imagination. I developed a big respect for my calling while I was in school, and it remains with me to this day.
+ - Ethnic stereotypes are boring and stressful and sometimes criminal. It’s just not a good way to think. It’s non-thinking. It’s stupid and destructive.
+ - I don’t consider my private feelings to be relevant in any way, actually.
+ - The world’s not a very comfortable place if you have a nightmare to face.
+ - Human beings are glorious and preposterous characters.
+ - My idea in terms of managing a narrative, or in thinking in my creative life, is that you could easily argue that the past, the present and the future all occur simultaneously, and if you can postulate that, then you’re not strictly bound to a linear narrative.
+ - I know a lot of cowboys and I’ve done a little work on ranches with cattle, and those people become your friends, and keep their word.
+ - As a child of West Texas, I identify with Hispanic culture every bit as much as I do North American culture.
+ - I don’t fight anybody anytime or anywhere.
+ - I try as hard as I can for everything to be different from one movie to the next.
+ - I’ve worked with some very good directors and some very bad ones. I learned a great deal from both. From the bad, untalented people, you learn what not to do. And when you work with very highly talented people, you want to emulate them.
+ - I don’t analyze things like titles.
+ - I don’t see people as groups, I see them as individuals.
+ - All my life I’ve had the privilege to make my living with my imagination, and the most important thing has been to see my creative life grow. I was educated to do that and have lived accordingly.
+ - In the political world, the only position I have is voter. I’m not a spokesman for anything.
+ - I don’t get it. If you’re saying, Tommy Lee, you don’t fit the image of the East Coast, social elitist wealthy people who comprise Harvard, the only thing I can say is you have no idea what comprises Harvard.
+ - Normal people with normal problems can be hilarious.
+ - I fear other actors who are not prepared. And I fear directors who are afraid.
+ - Characters with no integrity are just as interesting as characters with lots of integrity.
+ - Cormac McCarthy’s language is perfect. He is in my view the greatest living American prose stylist.
+ - I’m an actor, I’m always looking for work. I was born to do that.
+ - The most important question in American cinema, I’ve learned, is ‘When is lunch?’
+ - I haven’t a clue if there is life on other planets but I’d be charmed if we found a unicellular organism on Mars. It would change our whole concept of life on Earth.
+ - I don’t direct movies for a living.
+ - If military movies were automatically successful we’d make nothing but military movies. But seriously, patriotism is one thing that all Americans have in common.
+ - What appeals to me? There are things, points of view, uses of the language, habits of dress, ways of thought and believing that came to me from my grandparents and came to them from theirs. Things that are of good use in any situation, no matter what the future may hold.
+ - As an actor to watch an audience of people howl together in a single mind as a result of work you’ve done together with friends is a privilege.
+ - I’ve worked with more than 50 directors and I’ve paid attention since day one. That’s pretty much been my education, apart from studying art history and shooting with my own cameras. I’ve seen 50 different sets of mistakes and 50 different ways of achieving.
+
+42 quotes

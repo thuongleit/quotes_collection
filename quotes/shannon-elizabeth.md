@@ -1,0 +1,23 @@
+ - I’m pretty instinctive. I’m a quick learner.
+ - Yoga is the perfect way to de-stress and work out at the same time.
+ - Animals have always been a passion of mine, being able to help them because they can’t help themselves, and I think that people have treated them so badly over the years and it’s just not fair. It’s something I feel like I can help make a difference.
+ - I think compassion is an important quality in people in general.
+ - I’m not doing any more nudity.
+ - I want to get away from the high school thing and do other types of roles.
+ - I’m a big country fan.
+ - I don’t think I really do go shopping. Somehow clothes just kind of end up in my closet. I do not like shopping; I’m not into it.
+ - Things change in different countries as people grow, and as generations change.
+ - If you take an hour out of your day to meditate, you will progress ten-fold. By staying mentally focused, you can let your worries go.
+ - I got to meet Mark Hamill. He signed some Star Wars posters for us. I saw the fight scenes he had. He was really into making fun of himself and Star Wars.
+ - I watch every reality show out there.
+ - I’m super, super casual. I like boxer shorts or jeans or tank tops, tennis shoes and flip flops. That’s about it for me.
+ - Most people don’t realize turkeys are friendly, they’re social, they’re loyal, they have emotions.
+ - Animals mean everything to me. We have to be their voice and protectors.
+ - I’m vegetarian so eating right definitely gives me the energy you need.
+ - When I was modeling, I worked out every day or other day.
+ - We don’t live in a world that’s black and white.
+ - I don’t know that I’ve ever been completely comfortable with anything.
+ - I want to do a little bit of everything. I want to play a good, strong female character.
+ - I hope to be known as a chameleon actress, as someone who can play any part out there, and someone who can transform herself into any kind of character there is.
+
+21 quotes

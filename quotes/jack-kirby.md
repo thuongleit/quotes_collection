@@ -1,0 +1,97 @@
+ - Life at best is bittersweet.
+ - Our dreams make us large.
+ - I was an artist, but not a self-proclaimed great artist, just a common man who was working in a form of art which is universal.
+ - I feel that man can transcend himself to a point where he can accomplish greater things than he thinks. I see people depressed and I see people who devalue themselves and I feel that’s a terrible, terrible waste. But I love the people who try. But try fairly, try honestly.
+ - Aw, where we come from the Anti-Life Equation is one of many others – almost as awesome!! But they merely exist!!
+ - Once we’ve learned enough about the universe we will admit to ourselves that we will never know everything.
+ - I felt the comics grew because they became the common man’s literature, the common man’s art, the common man’s publishing.
+ - If you think a man draws the type of hands that you want to draw, steal ’em. Take those hands.
+ - All human beings have the capability of doing what they want, what they’re attracted to.
+ - I feel my characters are valid, my characters are people, my characters have hope. Hope is the thing that’ll take us through.
+ - There are people that I didn’t like, but I saw them suffer and it changed me. I promised myself that I would never tell a lie, never hurt another human being, and I would try to make the world as positive as I could.
+ - I don’t like to work in an office. I like to work in my house, to be among my own thoughts. The idea is for an editor to let his artist alone, let them be themselves, let them exchange their own ideas and you’ll come up with something salable.
+ - I’ve never done anything bad. I can’t do anything bad. It’s got to be professional. It’s got to look professional. It’s got to read professional. In other words, it serves its purpose by entertaining a reader.
+ - I like entertainment. I’m an innate admirer of good entertainment. I’ll listen to MTV, I’ll listen to Mozart, I’ll listen to anything that has a good element in it.
+ - Some of my friends became gangsters. You became a gangster depending upon how fast you wanted a suit. Gangsters weren’t the stereotypes you see in the movies. I knew the real ones, and the real ones were out for big money.
+ - Perfectionists are their own devils.
+ - I was a good student in the subjects that I wanted to be good in. The curriculum in my section was excellent.
+ - I achieved perfection, my type of perfection – visual storytelling. Storytelling was my style.
+ - I feel that any man that tries, any man that comes out with something we like, is a good man. A man doesn’t have to be Leonardo Da Vinci to be sincere.
+ - I feel that man can transcend himself to a point where he can accomplish greater things than he thinks.
+ - I’ve never done anything half-heartedly; it’s a disservice to me and the audience if I do it half-heartedly.
+ - The only real politics I knew was that if a guy liked Hitler, I’d beat the stuffing out of him and that would be it.
+ - My parents loved me. My father used to carry me around on my shoulders. I know my father loved me. All families love their children, and we were good boys.
+ - I wouldn’t call Adolf Hitler a corporal. Adolf Hitler was looked up to. He was revered almost like a God because he was feared. Adolf Hitler took all of Europe, and my generation had to confront Adolf Hitler.
+ - A man is entitled to draw things in his own style. I didn’t hurt Superman. I made him powerful. I admire Superman, but I’ve got to do my own style.
+ - I had to make a living. I was a married man. I had a wife. I had a home. I had children. I had to make a living. That’s the common pursuit of every man.
+ - My purpose was what my father’s purpose was – to make a living and to have a family. I was going to do the right thing. My dream to me was to have money to support it and to live in the kind of house I liked.
+ - I didn’t like Army life. I didn’t like taking orders. I didn’t like discipline. I didn’t like being yelled at. You’d get 10 years for punching a sergeant so I couldn’t punch a sergeant.
+ - I hated to fight all the time just to enjoy my day. Fighting wasn’t the kind of thing that I enjoyed, but I grew to enjoy it because I did it so long.
+ - An artist has to be humble, an editor must be officious, and a publisher must be somewhere out in the galaxy enjoying godhood. It was a caste system, pure and simple. And it was accepted that way. Nobody thought of contracts, nobody thought of insisting on better deals.
+ - I won’t do anything bad, and I resent very deeply bad people who haven’t got the ability, who try to interfere with the kind of work I’m trying to do because nobody’s going to benefit from it.
+ - I feel that life is a series of very interesting questions, and very poor answers. But I myself am willing to settle for the questions. If the questions are interesting, I feel I evoke them in what I do. I feel that should be good enough for everyone else.
+ - I could do whatever I liked to do during the day. I didn’t have to work in an office. I could work at home. I could work at my leisure. I worked ’til four in the morning. I worked with the TV and radio on – it was a great setup. I was a night person and still am.
+ - Everybody can draw, in my estimation. If you give a man 50 years, he’ll come up with the Mona Lisa.
+ - A climb-out fight is where you climb a building. You climb fire escapes. You climb to the top of the building. You fight on the roof, and you fight all the way down again.
+ - I’m a happy man because whatever I’m doing, I do for myself and I do a little creating here and there for others, and they work out very well.
+ - My anatomy was self-taught. I feel everybody has that ability. I drew instinctively. Mine was an instinctive style.
+ - When Superman came out it galvanized the entire industry. It’s just part of the American scene.
+ - It’s not in the draftsmanship, it’s in the man. Like I say, a tool is dead. A brush is a dead object. It’s in the man. If you want to do it, you do it.
+ - I write from a people’s point of view. I love people because I understand them. I understand an enemy, I understand a friend, I understand grey areas, and I understand black areas.
+ - I draw people as I see them. I’m not involved in making artistic masterpieces. My, my object is to mirror people and I’ve always done that.
+ - If you’re a thorough professional, and they won’t let you do a professional job, nobody’s going to benefit from it. The people who produce it won’t benefit. The people who buy it won’t benefit from it. They’re going to get a half-assed product.
+ - I’ve never done anything half-heartedly. It’s the reason my comics did well. It’s the reason my comics were drawn well. I can’t do anything bad.
+ - You had to grow up sometime. The fellows who grew early, they were in jeopardy. They became the cops and the crooks, and the crooks became the gangsters. The crooks became the Al Capones.
+ - I came out of school one day, and there was this pulp magazine. It was a rainy day, and it was floating toward the sewer in the gutter. So I pick up this pulp magazine, and it’s Wonder Stories, and it’s got a rocket-ship on the cover, and I’d never seen a rocket-ship.
+ - Comics have a caste system – an editor has to act in a certain way, an artist has to be humble.
+ - If America gave anybody anything it is ambition. Bad things would come out of it because some guys are in a hurry, but that doesn’t mean they’re evil or anything, it just means they fall into bad grace somehow.
+ - My own son feels I’m uncool but my grandson loves me. Being cool or uncool is a generational thing. But as a personal thing, I really love everybody in sight.
+ - Nobody ever wrote a story for me. I told in every story what was really inside my gut, and it came out that way. My stories began to get noticed because the average reader could associate with them.
+ - I’d had a belly-full of being subservient. I had to find something else to do, and I did. I went to the animation houses. I went to new fields.
+ - I had very high respect for the Pratt Institute, but I thought that I had done my best, and that was not their version of the best.
+ - I don’t want to take somebody else’s beating. That makes me unhappy.
+ - If you’re drawing a Western town, you can duplicate that Western town from instinct alone. Some artists may take it from other illustrations or duplicate what you’ve drawn, but it will never have that gut reality that’s instinctive in the artist.
+ - I never duck out of a fight; I don’t care what the hell the odds are, and I’m rough at times, but I try to be a decent guy all the time. That’s the way I’ve always lived.
+ - I never sued anybody, I never fought anybody or was in conflict or contention with any other party in a legal way. I feel that it hurts people, it hurts their families.
+ - There were very strict social conventions, and you adhered to it, and I think it gave you a lot of character. When a man said something, he meant it. He wasn’t kidding around. There were no jokes involved. Nobody was in the mood to joke unless you hit a guy with a baseball bat.
+ - A character to me can’t be contrived. I don’t like to contrive characters. They have to have an element of truth.
+ - I took a great joy with inventing new kinds of mechanisms. I invented new kinds of machines. I’ve been a student of science fiction for a long, long time, and I’m very well-versed in science fact and science fiction.
+ - I would’ve liked to have been a better businessman when I was younger. And of course, I couldn’t, because it wasn’t part of my atmosphere. I never lived with accountants, I never lived with lawyers.
+ - Superman is going to live forever. They’ll be reading Superman in the next century when you and I are gone. I felt, in that respect, I was doing the same thing. I wanted to be known. I wasn’t going to sell a comic that was going to die quickly.
+ - An American is a guy, a rich guy with a family, a decent guy with a family with as many kids as he likes, doing what he wants, working with people that he likes, and enjoying himself to his very old age.
+ - You fought fair. If the other guy wants to fight and you knocked him out, you did your best for him. You didn’t want to hurt him any more.
+ - I couldn’t draw anything that was too outlandish or too horrible. I never did that. What I did draw was something intriguing. There was something about this monster that you could live with. If you saw him you wouldn’t faint dead away.
+ - I feel that every professional is the art school for the next guy. I feel that maybe a lot of the dynamism in my own work, having been felt by the rest of the artists, they’ll react to it and put elements of that in their own work, feeling that it’ll help it.
+ - Nobody ever asked me to do anything. Nobody knew what to do. When comics were brand new, nobody knew what kind of comics to make. So you were mostly on your own.
+ - I was happy because I made enough money to give to my parents. I made enough money to get married on. I made enough money to enjoy myself a little more than I would have if I didn’t have enough money.
+ - I’ll never speak to another person without telling the truth. I’ve been a cruel man in my time, I’ve been a devious man in my time, like everybody else. I’ve told lies in my time. But I’ve seen enough suffering to experiment with the truth.
+ - I always enjoyed doing monster books. Monster books gave me the opportunity to draw things out of the ordinary. Monster books were a challenge – what kind of monster would fascinate people?
+ - I want to be better than five guys. I was that way when I used to box, I was that way in any sport. I want to compete with five other guys. If I beat five other guys, I’d like to see if I can beat six.
+ - I’m OMAC! Evacuate this section! I’m going to destroy it!
+ - My parents were immigrants. And the place for all immigrants was the factories. They were the source of cheap labor.
+ - Everybody was wary. This was a time when communists marched through the streets, waving flags and shouting. The unions did the same thing so you began to associate them.
+ - Speaking as a human being, not as a businessman – the unions are great. The unions are great for the working people because they protect you, but I didn’t see them that way as a young man. First of all, the papers would connect them with thee communists – labor unions were communists.
+ - I didn’t save my money for a lawyer. I was a very young man, and saved my money for having a good time.
+ - There was violence because first of all, there were ethnic differences and names. If you were small, they called you a runt, and you had to do something about that even if there were five other guys.
+ - Of course, mothers were very conventional, everything was very conventional. You had to have approval.
+ - My style is personal, my style of writing is personal, and I believe in that. I believe what comes out of me is an individual thing, and that’s why I, I believe in the individual.
+ - My monsters were lovable monsters. I gave them names – some were evil and some were good. They made sales, and that’s always been my prime object in comics.
+ - Mort Meskin was a consummate professional, dedicated to his work. A great talent.
+ - I tried to, from my very early years, I’ve been an inveterate movie goer and still am and I, I love the medium. So what I, what I draw and what I’m still doing, is part of that particular orientation.
+ - I admired anybody who could make a buck with his drawing.
+ - My ambition was always to be a perfect picture of an American.
+ - The people who worked in comics were terrific guys. I had a good association with them, and I enjoyed comics for that very reason.
+ - I wasn’t the kind of student that Pratt was looking for. They wanted patient people who would work on something forever. I didn’t want to work on any project forever. I intended to get things done.
+ - I’m a guy who had to perform some way. I had to perform in some way. If not as an actor, I’d perform as an artist. It would have been something that would be outstanding in its own way.
+ - I didn’t have an affinity for horror. But I knew that commercially it was viable.
+ - I’m not the sort of fellow who does the same thing all the time. I began using a lot of science fiction apparatus. I came out with the atom bomb two years before it was actually used because I read in the paper that a fellow named Nicola Tesla was working on the atom bomb.
+ - Every father was his own man. He did what he wanted. If your mother went shopping, your father never went with her.
+ - The average politician was crooked. That was my ambition, to be a crooked politician. I’d see them in these restaurants, and they’d all hold these conferences. I’d see politicians who were supposed to be on opposite sides of issues all together at one table.
+ - I feel that my characters all have some part of my character. I feel that they’re all me in some way, certainly not in individuality, but they all bear elements of what I feel.
+ - I’ve done my job extremely well. My only beef is that a lot of people have put their fingers in whatever I’ve done and tried to screw it up, and I’ve always resented that.
+ - Any kind of music can be written badly and it can be written wonderfully. I admire a top performer in any field.
+ - I’m not interested in the ego trip of creating or not creating. I’m interested in selling a magazine. Rock-bottom, I sell magazines. I’m a thorough professional who does his job.
+ - I always resent anybody interfering with anybody else trying to do his job. Everybody has his own job to do. If he’s good, he’ll do well, but if he’s mediocre, he’s not going to do as well as he should.
+ - In the Army when we had judo classes, out of the class of 27 just me and another guy graduated. I grew to enjoy it because I knew I could do it well. I tried to do everything well.
+
+95 quotes

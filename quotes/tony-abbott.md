@@ -1,0 +1,154 @@
+ - If we boost productivity, we can improve economic growth.
+ - We will act to build a better world. We always have, we always will. We will act to lend a helping hand, not just here but wherever we humanly can.
+ - The role of CO2 is not nearly as clear as the climate catastrophists would suggest.
+ - There will be no surprises, there will be no excuses, we will do what we’ve said we will do.
+ - Mates help each other; they do not tax each other.
+ - No one, however smart, however well-educated, however experienced, is the suppository of all wisdom.
+ - The last thing Australia needs right now is instability and uncertainty.
+ - Now, I know that there are some Aboriginal people who aren’t happy with Australia Day. For them it remains Invasion Day. I think a better view is the view of Noel Pearson, who has said that Aboriginal people have much to celebrate in this country’s British Heritage.
+ - Abortion is the easy way out. It’s hardly surprising that people should choose the most convenient exit from awkward situations.
+ - What the housewives of Australia need to understand as they do the ironing is that if they get it done commercially it’s going to go up in price and their own power bills when they switch the iron on are going to go up.
+ - We just can’t stop people from being homeless if that’s their choice.
+ - I think that people should come to Australia through the front door, not through the back door. If people want a migration outcome, they should go through the migration channels.
+ - The sky is where mathematics and magic become one.
+ - I am not being negative, I am simply being factual when I say Kevin Rudd is the best friend the people smugglers have ever had.
+ - I think it would be folly to expect that women will ever dominate or even approach equal representation in a large number of areas simply because their aptitudes, abilities and interests are different for physiological reasons.
+ - We cannot suffer a person by his affidavit to arraign the whole justice of the country and its administration.
+ - No country or continent can open its borders to all comers without fundamentally weakening itself and this is the risk that the countries of Europe run through misguided altruism.
+ - I’m getting my exercise at five o’clock in the morning, that’s good. So far I’ve managed to hold on to a bike ride on Saturday or Sunday morning, probably at least two weekends out of three.
+ - A midnight knock on the door followed by execution is no way a leader should be treated.
+ - We can’t conclusively say whether man-made carbon dioxide emissions are contributing to climate change.
+ - If I was in a refugee camp somewhere on the Pakistani border, of course I’d want to come to Australia.
+ - A government that understands the limits of power as well as its potential.
+ - They’ve changed the salesman but they haven’t changed the product.
+ - Australia will take more refugees from Syria in response to the growing international crisis but it will not increase the total number of asylum seekers it accepts.
+ - If you don’t want to work weekends, don’t.
+ - We are naturally reluctant as a peace-loving people to reach out to far-away conflicts but, as we know, this conflict has been reaching out to us for months now.
+ - While I think men and women are equal, they are also different and I think it’s inevitable and I don’t think it’s a bad thing at all that we always have, say, more women doing things like physiotherapy and an enormous number of women simply doing housework.
+ - We have a strong and credible broadband policy because the man who has devised it, the man who will implement it virtually invented the Internet in this country. Thank you so much, Malcolm Turnbull.
+ - More excuses for more failures.
+ - Certainly, my uni days involved some statements that I wouldn’t make today.
+ - Voluntary paid maternity leave: yes; compulsory paid maternity leave: over this Government’s dead body, frankly. It just won’t happen.
+ - Jesus knew that there was a place for everything and it’s not necessarily everyone’s place to come to Australia.
+ - You cannot win an election without a fight.
+ - I want to be a very good friend to Indonesia, but there are some things which are non-negotiable. Border protection is just non-negotiable. Maintaining a strong security network is just non-negotiable. I think the Indonesians understand that.
+ - No cuts to health, no cuts to education, no cuts to pensions.
+ - Middle income families with children are Australia’s new poor.
+ - I’m not saying that people on welfare don’t contribute in their own way, but as many as possible should be encouraged to be economically active as well as socially and culturally active.
+ - Why isn’t the fact that 100,000 women choose to end their pregnancies regarded as a national tragedy approaching the scale, say, of Aboriginal life expectancy being 20 years less than that of the general community?
+ - The Australian people expect the Government to govern, they don’t expect it to make excuses.
+ - Political parties don’t work when people just announce what they are doing and expect everyone else to follow.
+ - There are no factions in the Liberal Party.
+ - A bit of body contact never hurt anyone.
+ - The problem with politicians getting to know the issues in indigenous townships is that we tend to suffer from what Aboriginal people call the ‘seagull syndrome’ – we fly in, scratch around and fly out.
+ - I understand that government should live within its means, value the money it holds in trust from you the taxpayer, avoid waste and, above all else, observe the first maxim of good government: namely, do no avoidable harm.
+ - It’s very easy for Australians living in big cities to either romanticise or demonise the situation in Aboriginal places – to kind of look at things through the ‘noble innocents’ prism or through the ‘chronically dysfunctional’ prism, and I suspect that is so often the case.
+ - We accept that sometimes in difficult circumstances, difficult things happen.
+ - Western civilisation came to this country in 1788 and I’m proud of that.
+ - We are a very like-minded group, the senior members of this government. The outliers are not very far away from the mainstream.
+ - People who have put money aside on the basis of a certain set of rules shouldn’t have that money raided just because government has got a problem.
+ - I do enjoy exercise, not because I am an exercise junkie but because it’s terrific stress release.
+ - It was a positive sign that the conversation took place, it’s a sign of the depth of the friendship between Australia and Indonesia.
+ - I am, as you know, hugely unconvinced by the so-called settled science on climate change.
+ - Faith is important to me. It’s important to millions of Australians. It helps to shape who I am. It helps to shape my values. But it must never, never dictate my politics.
+ - A presumption of any fact is, properly, an inferring of that fact from other facts that are known; it is an act of reasoning; and much of human knowledge on all subjects is derived from this source.
+ - I’m a politician. I’m not going to get into a whole range of scientific argument with scientists.
+ - I’m not really managing the work-life balance, I’m just accepting that the work increases and the ordinary life has to decrease when you’re the prime minister.
+ - Coal is good for humanity, coal is good for prosperity, coal is an essential part of our economic future, here in Australia, and right around the world.
+ - There is one fundamental message that we want to go out from this place to every nook and cranny of our country: There should be no new tax collection without an election.
+ - Do we really want to invest $50 billion of hard earned taxpayers money in what is essentially a video entertainment system?
+ - It is very important for our long-term economic future that the relationship with Japan, Korea and China, who are our three biggest trading partners, be ever stronger.
+ - We shouldn’t be willy-nilly creating potential human life just to satisfy the urges of the scientific community.
+ - I was pointing out the depth of the friendship between Australia and Indonesia and the fact that Australia has been there for Indonesia when Indonesia has been in difficulty.
+ - I’m confident that there are plenty of people who have the strength of character and the presence of mind to warn me of difficulties and alert me to opportunities.
+ - I think my wife and my kids are incredibly good to allow me to stay in public life given that they have to cop a whole lot of collateral attention that, being human, they’d rather not get.
+ - The the relationship between the prime minister and the monarch is very much a personal one and when it comes to the constitution of the Order of Australia, which is headed by the monarch, this is governed by letters patent, which are a matter between the prime minister and the monarch.
+ - There is much to be said for an emissions trading scheme. It was, after all, the mechanism for emission reduction ultimately chosen by the Howard government.
+ - If people are going to do things which have certain consequences that they would rather avoid, they should do whatever they need to avoid the consequences.
+ - I instinctively try to protect people from filth.
+ - Look, good government doesn’t look for excuses, good government gets on with the job.
+ - I feel a little uncomfortable at being asked the sorts of questions that other Catholics in public life tend not to be asked.
+ - To move past fear is a cliche.
+ - I do not regard myself as a Christian politician. I regard myself as a politician who just happens to think religion matters. I would be appalled, absolutely appalled, to think religion drove anyone’s politics in a secular democracy like ours.
+ - The media – and I’m not blaming them – obviously like to seize on the differences between people and, sure, there are some senior members of the government who are in a slightly different philosophical space to mine. But do not underestimate the substantial single-mindedness of this government.
+ - We will be a consultative, collegial government. No surprises, no excuses. That’s what you’ll get under the Coalition.
+ - When the world is in trouble, Australia responds. Australia is a good, global citizen.
+ - Here we go again, a government which is making yet more excuses for yet more failure when it comes to getting our budgetary situation right.
+ - I can’t promise that I won’t continue to embarrass people.
+ - I also think that if you want to put a price on carbon, why not just do it with a simple tax? Why not ask motorists to pay more, why not ask electricity consumers to pay more and then at the end of the year you can take your invoices to the tax office and get a rebate of the carbon tax you’ve paid.
+ - Even potential human life needs to be treated with great respect.
+ - Today, we have got more excuses from the government.
+ - I would not want to see any relaxation of the law prohibiting human cloning.
+ - The smart way to improve broadband is not to junk the existing network but to make the most of it. It’s to let a competitive market deliver the speeds that people need at an affordable price with government improving infrastructure in the areas where market competition won’t deliver it.
+ - If you want to put a price on carbon why not just do it with a simple tax.
+ - I mean there are many, many people in all sorts of different countries who don’t have a great life, who are subject to injustice. Are we obliged to take all of them who come here? I think the answer is ‘Not necessarily.’
+ - It seems that, notwithstanding the dramatic increases in manmade CO2 emissions over the last decade, the world’s warming has stopped.
+ - We’ve got to maintain freedom of navigation of the seas and in the air.
+ - Prima facie, every estate, whether given by will or otherwise, is supposed to be beneficial to the party to whom it is so given.
+ - When politicians complain about the media, it strikes me as resembling footballers complaining about the umpire.
+ - A government that says what it means, and means what it says.
+ - Putting labels on people is so counter-productive. Most of us on some issues could be considered conservative, on other issues could be considered progressive, on other issues might be thought of as being moderate, on other issues might be thought of as being rather forthright.
+ - Every prime minister has a whole series of networks, and there are official formal networks and there are unofficial informal networks. I’m lucky in that I have good official formal networks, starting with my own office, the leadership group, the cabinet and the party room.
+ - Like the Governor-General, when asked what you enjoy most about the job my tendency is to say “today”, because of the insights you get into our nation and because of the privileged contact you have with so many people.
+ - Tony Abbott’s books are so amazing!
+ - Both Mum and Dad were converts to Catholicism, and normally if you convert to Catholicism you have thought about it more than someone who just grew up with it, taking it for granted.
+ - I just think that this whole issue of creating potential human life, not to give life, but to give the scientists a bit more of a leg-up, is fraught with danger.
+ - We are about getting things done. We are not about the blame game. We are not about making excuses.
+ - Human society was so constituted, for human nature was so constituted, that the honour and dignity of a father were connected with that of a son; and there was no son who must not be disturbed and disquieted by imputations on his father.
+ - I am in favour of the notion of Australia as an immigrant society.
+ - There’s always a lot happening. I mean, that’s the thing about politics: it’s just one damn thing after another!
+ - We are sticking with the plan. We have a plan to get taxes down, to get regulation down, to get productivity up, to create jobs, to reduce taxes, to boost prosperity. The plan is working and we are sticking with it.
+ - There will be no surprises and no excuses from a Coalition government, Barrie.
+ - The choice made by families not to immunize their children is not supported by public policy or medical research nor should such action be supported by taxpayers in the form of child care payments.
+ - I think leadership is knowing what you want to achieve and then purposefully and sensibly taking steps to achieve it, remembering always that you have got to bring people with you if you are seeking to be a successful political leader.
+ - We are looking at what more we can do. As well as a strong security response we need a strong humanitarian one.
+ - Our police, our hard-working police, that our extraordinarily committed and dedicated military personnel, I’m really pleased that they are getting a good paid parental leave scheme.
+ - Well, Michael, we will be telling the people of Australia in good time before the next election exactly what they can expect from us. No surprises, no excuses. They will be our watch words going into the election and afterwards, should we form a government.
+ - In the era of mobile phones and emails, you’re no more out of the loop in China than you are in Sydney.
+ - It is fit that justice should be administered with great caution.
+ - Most of the people who are coming to Australia by boat have passed through several countries on the way, and if they simply wanted asylum they could have claimed that in any of the countries through which they’d passed.
+ - The quality of government, I suppose, is determined not by what happens, but by how you react to what happens.
+ - I’ve always been very wary of debates involving women.
+ - My commitment to the forgotten families of Australia is to ease your cost of living pressure.
+ - And a government that accepts that it will be judged more by its deeds than by its mere words.
+ - Well, I’m not saying that an emissions tax is ever going to be good policy.
+ - The measure in the budget in relation to parental leave pay is based on a simple proposition. Most women across Australia have access to one scheme funded by the taxpayer. Some women have access to two schemes and that’s great.
+ - I am a model of positivity compared to the kinds of vitriol, the kinds of destructive criticisms that Labor members of parliament have been making of each other.
+ - And the commitment that I’ve been giving to the Australian people is that there’ll be no surprises and no excuses under a Coalition government.
+ - Although our powers are great, they are not unlimited they are bounded by some lines of demarcation.
+ - Australia would play its role in taking displaced people from the Syrian conflict.
+ - Aboriginal people have much to celebrate in this country’s British heritage.
+ - There are tens, perhaps hundreds of millions of people living in poverty and danger who might readily seek to enter a Western country if the opportunity is there.
+ - I don’t bring religion into the square.
+ - I see myself as a social conservative, but I think that there are lots of social institutions that produce beneficial reforms, like public hospitals, for instance, and schools.
+ - I don’t think my religious convictions should be held against me.
+ - There will be no overall increase in the tax burden whatsoever.
+ - We are going to be a government of no surprises and no excuses; a government which keeps its commitments and a government which is straight and candid with the Australian people and that’s what we intend to do.
+ - I think that the best things that governments can do for productivity is not whack on new taxes and, if we can get institutions like schools and hospitals functioning better, well that’s obviously good for the overall productiveness of our society.
+ - What I would like to see is sufficiently good education and health services being delivered to Aboriginal people so that they are prepared and ready to leave and join the economic mainstream if that’s their choice.
+ - This is a government which is proposing to put at risk our manufacturing industry, to penalise struggling families, to make a tough situation worse for millions of households right around Australia. And for what? To make not a scrap of difference to the environment any time in the next 1000 years.
+ - Labor has come out with a series of proposals to increase taxes, including taxes on people across Australia saving for their retirement, he has actually identified so far zero dollars in spending reductions.
+ - I think it’s time for the Prime Minister to stop making excuses and to start governing.
+ - So, my friends, in a week or so the Governor-General will swear in a new government.
+ - When you are challenging the young, they can come back at you with language of tremendous power and they are no respecters of sacred cows, you know, the young. There’s nothing politically correct about the average young Australian when it comes to use of language.
+ - The Liberal Party has dealt with the spill motion and now this matter is behind us, we think that when you elect a government, when you elect a prime minister, you deserve to keep that government and that prime minister until you have a chance to change your mind.
+ - I am extremely unwilling that we should take upon ourselves to exercise a jurisdiction which the law does not vest in us.
+ - Now if you are condemned to life on welfare, I’m not so sure that being in a bigger welfare village is that much better than being in a smaller welfare village.
+ - I want to run a government, Barnaby wants to be part of a government, which is characterized by the motto if you like, no surprises, no excuses. That will be the motto of an incoming Coalition government. No surprises, no excuses.
+ - Part of my role, I suppose, is to run government business in the House of Representatives, and try to ensure that people know exactly what’s going on in the Chamber is an important part of that.
+ - I’m not running for canonisation.
+ - Oppositions are not there to get legislation through. Oppositions are there to hold the government to account.
+ - We’ve got to get the system right. That’s why we’ve got this root-and-branch reform under way.
+ - We have already provided a strong humanitarian response to the problems in the Middle East and that response will be stronger within coming days.
+ - I think anything which improves services is in principle a good thing.
+ - The only party which is going to increase taxes after the election is the Labor Party.
+ - Climate change is crap.
+ - Whether carbon dioxide is quite the environmental villain that some people make it out to be is not yet proven.
+ - There’s a sense in which politicians can never work hard enough.
+ - Another big problem with any Australian emissions reduction scheme is that it would not make a material difference to atmospheric carbon concentrations unless the big international polluters had similar schemes.
+ - I don’t think that my particular religious convictions should be held against me in this campaign any more than the Prime Minister’s lack of convictions should be held against her.
+ - I think that marriage is, dare I say it, between a man and a woman, hopefully for life and there are all sorts of other relationships which should be acknowledged and recognised, but I don’t know that they can be recognised as marriage.
+ - I’ve always avoided those sorts of self-assessments because if you give yourself a 10 out of 10 people think you’re a big head, if you give yourself a 6 out of 10 they think you’re plagued with self-doubt, so I’m just not going to rate myself.
+ - I try to treat people as people and not put them in pigeonholes.
+
+152 quotes

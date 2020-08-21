@@ -1,0 +1,23 @@
+ - I love pain. Love pain.
+ - I want to try new things and put myself out there and take some risks.
+ - I was meant to play the bad guy, for always and ever.
+ - Why not do as much as you can, and learn as much as you can about each process?
+ - I grew up playing sports, football, basketball, baseball, everything, and acting was such a different environment and different world for me.
+ - Anything – a destination, a person – that has some mystery around it becomes exciting and attractive.
+ - I’m fascinated with worlds where there’s a small population left, whether it’s a movie or these TV shows that fascinate me – ‘Falling Skies’ or ‘The Walking Dead’ – they are about survival and triumphing over difficult times. I just have a thing for ’em.
+ - To be completely honest, it’s shocking to me that I keep getting the villain roles! I do not see myself as the villain and I know, growing up, I was the opposite of a villain. I would never try to be a villain to anyone – but maybe other people I grew up with feel differently about that.
+ - I don’t actually go out and pursue a route that will fit me best, it’s just that something comes to me and I enjoy it and want to be a part of it.
+ - Well, I like chocolate stuff; I don’t like any of that other gross sugary candy.
+ - I can’t hear music. I don’t understand it. It’s so above and beyond me.
+ - The future doesn’t matter if I don’t enjoy what’s going on right now.
+ - It’s a collaborative art form where we can both learn something from the other. That’s what you want from the relationship with a director.
+ - Idling is not my strong suit.
+ - You know, it’s such an insult to actual martial artists that I say that I do martial arts.
+ - I’ve played so many jobs where I’m fearless, but it’s far from me. I wish I were like that in real life.
+ - I can get bored with any show, when it goes on too long.
+ - It’s such a challenge to play a good guy – it’s hard to be believable.
+ - I could live a thousand years and still not know everything, still not have tried anything.
+ - In the past, I would try to control so much, but that’s just too stressful, and gives me too much anxiety and worry.
+ - Through all the bad guys that I’ve played, they’re justifiably bad – they have their reasons. It’s been important to me.
+
+21 quotes

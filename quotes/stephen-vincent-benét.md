@@ -1,0 +1,54 @@
+ - Money is sullen And wisdom is sly, But youth is the pollen That blows through the sky And does not ask why.
+ - Life is not lost -dying; life is lost minute -minute, day -dragging day, in all the thousand small uncaring ways.
+ - Our fathers and ourselves sowed dragon’s teeth. Our children know and suffer the armed men.
+ - Truth is a hard deer to hunt. If you eat too much truth at once, you might die of the truth.
+ - We thought, because we had power, we had wisdom.
+ - Books are not men and yet they are alive.
+ - Technology will never rescue anyone from being a bad poet, but if you’re good, it has the potential to do a lot of exciting things.
+ - When Daniel Boone goes by at night The phantom deer arise And all lost, wild America Is burning in their eyes.
+ - Grant us brotherhood, not only for this day but for all our years – a brotherhood not of words but of acts and deeds.
+ - American Muse, whose strong and diverse heart So many men have tried to understand But only made it smaller with their art, Because you are as various as your land.
+ - The art finds kingdoms in a foot of ground.
+ - Our earth is but a small star in a great universe. Yet of it we can make, if we choose, a planet unvexxed by war, untroubled by hunger or fear, undivided by senseless distinctions of race, color or theory.
+ - And Thames and all the rivers of the kings Ran into Mississippi and were drowned. They planted England with a stubborn trust But the cleft dust was never English dust.
+ - Bury my heart at Wounded Knee.
+ - Go play with the towns you have built of blocks, The towns where you would have bound me! I sleep in my earth like a tired fox, And my bufdfalo have found me.
+ - I have fallen in love with American names, the sharp, gaunt names that never get fat.
+ - A phrase may come to me as I am walking, and, once I write it down in my journal, the rest of the poem will unravel from that catalyst.
+ - Oh, Georgia booze is mighty fine booze, The best yuh ever poured yuh, But it eats the soles right offen yore shoes, For Hell’s broke loose in Georgia.
+ - I tried to think of my knowledge, but it was a squirrel’s heap of winter nuts. There was no strength in my knowledge any more and I felt small and naked as a new-hatched bird.
+ - I died in my boots like a pioneer With the whole wide sky above me.
+ - We do not fight for the real but for shadows we make. A flag is a piece of cloth and a word is a sound, But we make them something neither cloth nor a sound, Totems of love and hate, black sorcery-stones.
+ - Defeat is a fact and victory can be a fact. If the idea is good, it will survive defeat, it may even survive the victory.
+ - You can take off your hats now, gentlemen, and I think perhaps you’d better.
+ - I had lost something in my youth and made money instead.
+ - Even in hell, if a man was a man, you’d know it.
+ - I don’t think I have ever really gotten Leopold Bloom’s interior ramblings out of my head! I am sure that voice continues to inspire the walking consciousness in my work – that is, the way I carry on an interior monologue as I walk through this city.
+ - If two New Hampshiremen aren’t a match for the devil, we might as well give the country back to the Indians.
+ - It is better the truth should come little by little. I have learned that, being a priest. Perhaps, in the old days, they ate knowledge too fast.
+ - Most of the time I’m not really attracted to writing that’s focused on filling and fighting it out within a well-defined container. I like work that gets out in the world and lets the world shape the poem.
+ - Life was a storm to wander through.
+ - One cannot balance tragedy in the scales Unless one weighs it with the tragic heart.
+ - Occasionally I encounter people getting into their cars who will say, “Oh, you haven’t been walking lately” – like I’m a symbol of the ancient art of walking!
+ - I’ve been reading a lot lately about Indian captives. One woman who had been captured by the Indians and made a squaw was resentful when she was rescued because she’d found that there was a lot more work to do as the wife of a white man.
+ - The other week I wrote a piece on a photograph I got at a flea market, and I got about 70 hits. I think a lot of people must be interested in flea markets.
+ - When I was in graduate school, my thesis included both poetry and essays. Influenced by the personal essays of James Baldwin and Norman Mailer, I loved the form, but pretty much stopped.
+ - When my own writing needs a perk, I open Zukofsky and read from “A” – particularly sections “22” and “23.” It can be opaque, but I love the intensity.
+ - As for what you’re calling hard luck – well, we made New England out of it. That and codfish.
+ - Few people have written significant books about San Francisco. Robert Duncan was, in my opinion, often in the clouds. If he walked the streets a lot he didn’t write about as such.
+ - Remember that when you say “I will have non of this exile and this stranger for his face is not like my face and his speech is strange,” you have denied America with that word.
+ - Basically when I’m walking I’m not consciously writing or intending anything. In the manner I have learned from meditation practice, I let things unfold.
+ - Ironically the blog has re-opened the essay as a good form for me. I like to look and make commentary! If I sense my essays are good, I try to resubmit to another place in pulp and several of them have been variously published in newspapers and magazines.
+ - I am tired of loving a foreign muse.
+ - Books are not men and yet they are alive. They are man’s memory and his aspiration, the link between his present and his past, the tools he builds with.
+ - I think a blog is a catalyst for a number of possible kinds of writing besides being its own medium.
+ - At first I was blogging everyday, but I don’t do that anymore. It varies; sometimes I’ll write these little essays and other times political commentaries. Other times it’ll just be new work that I’m doing.
+ - I do think that the kind of writing that I do will always be around and printed in books, magazines, and now blogs.
+ - Sometimes a sign or a quote is simply interesting by itself and does not require anything beyond being framed on a page.
+ - The blog is also a way to continue to register what I see and hear in a day – no matter what the form. In fact, my blog is a complete mixture of forms.
+ - There’s nothing compared to the history of writing about the city of New York that you get, say, in Charles Reznikoff.
+ - Whatever poetry that was in me was coming out in the form of constructing art books!
+ - It’s to a younger people’s advantage to work with evolving computer technologies that provide so many ways to explore the use and distribution of text, including sound, images and motion.
+ - I admire the attention other writers can give to the world we’re walking in.
+
+52 quotes

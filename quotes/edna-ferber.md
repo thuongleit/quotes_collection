@@ -1,0 +1,76 @@
+ - A closed mind is a dying mind.
+ - Living the past is a dull and lonely business; looking back strains the neck muscles, causing you to bump into people not going your way.
+ - It’s terrible to realize that you don’t learn how to live until you’re ready to die; and, then it’s too late.
+ - Big doesn’t necessarily mean better. Sunflowers aren’t better than violets.
+ - Perhaps too much of everything is as bad as too little.
+ - It sounds so far away and different. I like different places. I like any places that isn’t here.
+ - In New York the sky is bluer, and the grass is greener, and the girls are prettier, and the steaks are thicker, and the buildings are higher, and the streets are wider, and the air is finer, than the sky, or the grass, or the girls, or the steaks, or the air of any place else in the world.
+ - The goat’s business is none of the sheep’s concern.
+ - If men ever discovered how tough women actually are, they would be scared to death.
+ - The ideal view for daily writing, hour for hour, is the blank brick wall of a cold-storage warehouse. Failing this, a stretch of sky will do, cloudless if possible.
+ - The small town smart set is deadly serious about its smartness.
+ - The writer is a writer because he cannot help it. It is a compulsion.
+ - Nicknames are fond names. We do not give them to people we dislike.
+ - Roast Beef, Medium, is not only a food. It is a philosophy. Seated at Life’s Dining Table, with the menu of Morals before you, your eye wanders a bit over the entrees, the hors d’oeuvres, and the things a la though you know that Roast Beef, Medium, is safe and sane, and sure.
+ - Being an old maid is like death by drowning, a really delightful sensation after you cease to struggle.
+ - No woman ought to pretend she’s intelligent. And if she is she ought to have the intelligence to pretend she isn’t.
+ - Bizarre as was the name she bore, Kim Ravenal always said she was thankful it had been no worse.
+ - Christmas is not a season. It is a feeling.
+ - One can summon courage and fortitude to face tragedy; irritations and frustrations are a cloud of mosquitoes that nip and sting and drive one frantic.
+ - Writing, to be memorable, must be done in a state of impassioned serenity.
+ - I think in order to write really well and convincingly, one must be somewhat poisoned by emotion, dislike, displeasure, resentment, fault-finding, imagination, passionate remonstrance, a sense of injustice-they all make fine fuel.
+ - Writers should be read but not seen. Rarely are they a winsome sight.
+ - I think that in order to write really well and convincingly, one must be somewhat poisoned by emotion.
+ - There is an interesting resemblance in the speeches of dictators, no matter what country they may hail from or what language they may speak.
+ - A whole roomful of Jews is like a charged battery. The vitality sparks seem to fly, and frequently the result is a short circuit.
+ - But I have felt that to be a Jew was, in some ways at least, to be especially privileged.
+ - I don’t know what it is that makes a writer go to his desk in his shut-off room day after day after year after year unless it is the sure knowledge that not to have done the daily stint of writing that day is infinitely more agonizing than to write.
+ - Only amateurs say that they write for their own amusement. Writing is not an amusing occupation. It is a combination of ditch-digging, mountain-climbing, treadmill and childbirth. Writing may be interesting, absorbing, exhilarating, racking, relieving. But amusing? Never!
+ - I like any place that isn’t here.
+ - A writer’s working hours are his waking hours. He is working as long as he is conscious and frequently when he isn’t.
+ - There are people who have a penchant for cities-more than that, a talent for them, a gift of sensing them, of feeling their rhythm and pulsebeats, as others have a highly developed music sense, or color reaction. It is a thing that cannot be acquired.
+ - Take Texas the way Texas takes bourbon. Straight. It goes down easier.
+ - Cherry cobbler is shortcake with a soul.
+ - Texas history is a varied, tempestuous, and vast as the state itself. Texas yesterday is unbelievable, but no more incredible than Texas today. Today’s Texas is exhilarating, exasperating, violent, charming, horrible, delightful, alive.
+ - Housework’s the hardest work in the world. That’s why men won’t do it.
+ - There are only two kinds of people in the world that really count. One kind’s wheat and the other kind’s emeralds.
+ - Science had married the wilderness and was taming the savage shrew.
+ - About mistakes it’s funny. You got to make your own; and not only that, if you try to keep people from making theirs they get mad.
+ - It’s difficult to write a really good short story because it must be a complete and finished reflection of life with only a few words to use as tools. There isn’t time for bad writing in a short story.
+ - I never go to weddings. Waste of time. Person can get married a dozen times. Lots of folks do. Family like ours, know everybody in the state of Texas and around outside, why, you could spend your life going to weddings. But a funeral, that’s different. You only die once.
+ - A story must simmer in its own juice for months or even years before it’s ready to serve.
+ - Books should be cherished, like children, books are for the next generation, like children, like history.
+ - Whoever said love conquers all was a fool. Because almost everything conquers love – or tries to.
+ - I am not belittling the brave pioneer men but the sunbonnet as well as the sombrero has helped to settle this glorious land of ours.
+ - I never would just open a door and walk through, I had to bust it down for the hell of it. I just naturally liked doing things the hard way.
+ - If it’s freedom you want, come to Texas. No one there tells you what to do and how you have to do it.
+ - Funny, isn’t it, how your whole life goes by while you think you’re only planning the way you’re going to live it?
+ - All the difference in the world between the movies and the thrill I get out of a play at the theater. Ay, yes! Like fooling around with paper dolls when you could be playing with a real live baby.
+ - Men often marry their mothers.
+ - If American politics are too dirty for women to take part in, there’s something wrong with American politics.
+ - Now gae your wa’sTho’anes as gude As ever happit flesh and blude, Yet part we maunthe case sae hard is, Amang the writers and the bardies That lang they’ll brook the auld I trow, Or neibours cry,‘Weel brook the new’.
+ - Anything can have happened in Oklahoma. Practically everything has.
+ - Life can’t ever really defeat a writer who is in love with writing, for life itself is a writer’s lover until death – fascinating, cruel, lavish, warm, cold, treacherous, constant.
+ - But always, to her, red and green cabbages were to be jade and burgundy, chrysoprase and prophyry. Life has no weapons against a woman like that.
+ - I suppose it is a gift, being young, but it isn’t special. We’ve all got it, early in life.
+ - There are two ways of doing battle against Disgrace. You may live it down; or you may run away from it and hide. The first method is heart-breaking, but sure. The second cannot be relied upon because of the uncomfortable way Disgrace has of turning up at your heels.
+ - A placated bully is a hand-fed bully.
+ - People permit life to slide past them like a deft pickpocket, their purse-not yet missed and now too late-in his hand.
+ - The feminine in the man is the sugar in the whisky. The masculine in the woman is the yeast in the bread. Without these ingredients the result is flat, without tang or flavor.
+ - Imported actors, like certain wines, sometimes do not stand the ocean trip. This can be as true of American actors in Europe as it is of European actors in America.
+ - Any garment which is cut to fit you is much more becoming, even if it is not so splendid as a garment which has been cut to fit somebody not of your stature.
+ - A stricken tree, a living thing, so beautiful, so dignified, so admirable in its potential longevity, is, next to man, perhaps the most touching of wounded objects.
+ - Opinion! If every one had so little tact as to give their true opinion when it was asked this would be a miserable world.
+ - People in big empty places are likely to behave very much as the gods did on Olympus.
+ - The very rich and the very social are, often, the very stuffy.
+ - Emma McChesney was engaged in that nerve-wracking process known as getting things out of the way. When Emma McChesney aimed to get things out of the way she did not use a shovel; she used a road-drag.
+ - Your idea of bliss is to wake up on a Monday morning knowing you haven’t a single engagement for the entire week. You are cradled in a white paper cocoon tied up with typewriter ribbon.
+ - You lose in the end unless you know how the wheel is fixed or can fix it yourself.
+ - I’m tired of hearing you men say that this and that and the other isn’t woman’s work. Any work is woman’s work that a woman can do well.
+ - There’s no sauce for play like work.
+ - No one in the United States has the right to own millions of acres of American land, I don’t care how they came by it.
+ - But almost any place is Baghdad if you don’t know what will happen in it.
+ - It was part of theTexas ritual? We know about champagne and caviar but we talk hog and hominy.
+ - The astronomers tell us that other planets are gifted with two – four – even nine lavish moons. Imagine the romantic possibilities of nine moons.
+
+74 quotes

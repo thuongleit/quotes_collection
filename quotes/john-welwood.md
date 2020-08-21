@@ -1,0 +1,22 @@
+ - A soul connection is a resonance between two people who respond to the essential beauty of each other’s individual natures, behind their facades, and who connect on this deeper level...
+ - A soul connection not only inspires us to expand, but also forces us to confront whatever stands in the way of that expansion.
+ - To allow yourself your own experience is the greatest act of self love.
+ - In recognizing exactly where we have been unconscious, we become more conscious. And in seeing and feeling the ways we’ve gone dead, we start to revive and kindle our desire to live more expansively.
+ - The light of unconditional love awakens the dormant seed potentials of the soul, helping them ripen, blossom, and bear fruit, allowing us to bring forth the unique gifts that are ours to offer in this life.
+ - Becoming human means discovering our fullness and learning to live from it.
+ - We may tell ourselves that love is not really available. but the deeper truth is that we don’t entirely trust it, and therefore have a hard time fully opening to it or letting it all the way into us. This disconnects us from our own heart, exacerbating our sense of love’s scarcity.
+ - Love is the recognition of beauty.
+ - Forget about enlightenment. Sit down wherever you are. And listen to the wind singing in your veins.
+ - Meditation provides a way of learning how to let go. As we sit, the self we’ve been trying to construct and make into a nice, neat package continues to unravel.
+ - The light of unconditional love awakens the dormant seed potentials of the soul.
+ - There is a secret about human love that is commonly overlooked: Receiving it is much more scary and threatening than giving it.
+ - The warm and radiant yes of the heart is perfect, like the sun, in bringing all things to life and nourishing all that is truly human.
+ - Boundless love always manages somehow to sparkle through your limited form.
+ - The words “I love you,” spoken in moments of genuine appreciation, wonder, or caring arise from something perfectly pure within us – the capacity to open ourselves and say yes without reserve. Such moments of pure openheartedness bring us as close to natural perfection as we can come in this life.
+ - We already have so much abundance. We truly do. We need not search too far. It is within. The reason we fail to recognize this is because we haven’t quite mastered the art of being. For abundance to prevail, we must have LOVE, gratitude, acceptance and compassion.
+ - Frank Berliners spiritual memoir is beautifully crafted and written. It is a tale about love, and the great longing that springs from there – to learn, to grow, to be real, and to forge a genuine connection with oneself and others, with life, and with death. I highly recommend it.
+ - We are not just humans learning to become buddhas, but also buddhas waking up in human form, learning to become fully human.
+ - Dennis Lewis has a deep understanding of the central importance of breathing, in both its physical and spiritual dimensions.
+ - Not knowing that we can be loved for who we truly are prevents us from trusting in love itself, and this in turn causes us to turn away from life and doubt its benevolence.
+
+20 quotes

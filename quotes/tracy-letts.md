@@ -1,0 +1,22 @@
+ - Thank God we can’t tell the future. We’d never get out of bed.
+ - All women need makeup. Don’t let anybody tell you different. The only woman who was pretty enough to go without makeup was Elizabeth Taylor and she wore a ton.
+ - We’re all just people, some of us accidentally connected by genetics, a random selection of cells. Nothing more.
+ - In theater, the playwright is the boss, period. The decisions will go through him or her. In movies, the writer is pretty far down on the list.
+ - My last refuge, my books: simple pleasures, like finding wild onions by the side of a road, or requited love.
+ - I said to my wife just the other day, I was actually taking some time to consider all the blessings in my life and that things are really good. I said, you would have to be a real churl to complain about the life I’m living right now. Everything’s going great. I’m having a good time.
+ - The window shades have all been removed. Nighttime is now free to encroach.
+ - Time wounds all heals.
+ - After the success of ‘August,’ there were people saying I should change my life. And maybe I should have bought a yacht and traveled the world instead of returning to Steppenwolf to act in and write plays. But I’m from the Midwest, and that’s what we do: We go back to work.
+ - A certain giving up of control is good for the soul.
+ - I don’t know what it says about me that I have a greater affinity with the damaged. Probably nothing good.
+ - If you feel like you’re in control of everything, and then things aren’t going well, you feel like you’re failing.
+ - I never know what the hell I’m writing about, I never know what the next thing I’m writing about is, I never have a plan.
+ - Sometimes my family thinks I’ve made my childhood a bit more Dickensian than it was, and it probably wasn’t all that bad. But I was uncomfortable as a kid.
+ - Divorce is an embarrassing public admission of defeat.
+ - What they frequently want to do with a movie is, they want to cut out the valleys and just show the peaks. And valleys are important; the valleys make the peaks stand out.
+ - I’m aware that a film is different than a play, and that a film isn’t going to be the filmed record of the play. It’s its own separate entity, and I’ve come to peace with that.
+ - I like Shakespeare, but I never know what the hell is going on.
+ - If you’re not entertaining, what the hell’s the point?
+ - I’m kind of perverse in that I think pessimism is helpful. My pessimism is my own kind of patriotism. My dissent.
+
+20 quotes

@@ -1,0 +1,91 @@
+ - A good snapshot keeps a moment from running away.
+ - No art ever came out of not risking your neck.
+ - A sheltered life can be a daring life as well. For all serious daring starts from within.
+ - All experience is an enrichment rather than an impoverishment.
+ - A story is not the same thing when it ends as it was when it began.
+ - I cannot remember a time when I was not in love with them – with the books themselves, cover and binding and the paper they were printed on, with their smell and their weight and with their possession in my arms, captured and carried off to myself.
+ - Long before I wrote stories, I listened for stories. Listening for them is something more acute than listening to them.
+ - I’m a great reader that never has time to read.
+ - Once you’re into a story everything seems to apply-what you overhear on a city bus is exactly what your character would say on the page you’re writing. Wherever you go, you meet part of your story.
+ - The excursion is the same when you go looking for your sorrow as when you go looking for your joy.
+ - Suppose you meet me in the woods.
+ - Learning stamps you with its moments. Childhood’s learning is made up of moments. It isn’t steady. It’s a pulse.
+ - All serious daring starts from within.
+ - The events in our lives happen in a sequence in time, but in their significance to ourselves they find their own order the continuous thread of revelation.
+ - The strands are all there; to the memory nothing is ever lost.
+ - How can you go out on a limb if you do not know your own tree? No art ever came out of not risking your neck. And risk – experiment – is a considerable part of the joy of doing.
+ - Radio, sewing machine, bookends, ironing board and that great big piano lamp – peace, that’s what I like. Butterbean vines planted all along the front where the strings are.
+ - My own words, when I am at work on a story, I hear too as they go, in the same voice that I hear when I read in books. When I write and the sound of it comes back to my ears, then I act to make changes. I have always trusted this voice.
+ - A whole tree of lightning stood in the sky. She kept looking out the window, suffused with the warmth from the fire and with the pity and beauty and power of her death. The thunder rolled.
+ - Travel itself is part of some longer continuity.
+ - The first act of insight is throw away the labels.
+ - Greater than scene is situation. Greater than situation is implication. Greater than all of these is a single, entire human being, who will never be confined in any frame.
+ - I was always my own teacher.
+ - Indeed, learning to write may be part of learning to read. For all I know, writing comes out of a superior devotion to reading.
+ - Location pertains to feelings – feelings are bound up in place.
+ - Both reading and writing are experiences – lifelong – in the course of which we who encounter words used in certain ways are persuaded by them to be brought mind and heart within the presence, the power, of the imagination.
+ - My continuing passion is to part a curtain, that invisible veil of indifference that falls between us and that blinds us to each other’s presence, each other’s wonder, each other’s human plight.
+ - Beauty is not a means, not a way of furthering a thing in the world. It is a result; it belongs to ordering, to form, to aftereffect.
+ - From the first I was clamorous to learn...
+ - People are mostly layers of violence and tenderness wrapped like bulbs, and it is difficult to say what makes them onions or hyacinths.
+ - Writers and travelers are mesmerized alike by knowing of their destinations.
+ - My mother read secondarily for information; she sank as a hedonist into novels. She read Dickens in the spirit in which she would have eloped with him.
+ - The first thing we see about a short story is its mystery. And in the best short stories, we return at the last to see mystery again.
+ - Beware of a man with manners.
+ - Each day the storm clouds were opening like great purple flowers and pouring out their dark thunder. Each nightfall, the storm was laid down on their houses like a burden the day had carried.
+ - We are the breakers of our own hearts.
+ - When I read, I hear what’s on the page. I don’t know whose voice it is, but some voice is reading to me, and when I write my own stories, I hear it, too.
+ - One place comprehended can make us understand other places better.
+ - I believe in it, and I trust it too and treasure it above everything, the personal, the personal, the personal! I put my faith in it not only as the source, the ground of meaning in art, in life, but as the meaning itself.
+ - Out of love you can speak with straight fury.
+ - Look for where the sky is brightest along the horizon. That reflects the nearest river. Strike out for a river and you will find habitation.
+ - She read Dickens in the same spirit she would have eloped with him.
+ - Through travel I first became aware of the outside world; it was through travel that I found my own introspective way into becoming a part of it.
+ - At the time of writing, I don’t write for my friends or myself either; I write for it, for the pleasure of it.
+ - Making reality real is art’s responsibility.
+ - When I was a child and the snow fell, my mother always rushed to the kitchen and made snow ice cream and divinity fudge-egg whites, sugar and pecans, mostly. It was a lark then and I always associate divinity fudge with snowstorms.
+ - Integrity can be neither lost nor concealed nor faked nor quenched nor artificially come by nor outlived, nor, I believe, in the long run, denied.
+ - Every story teaches you how to write that story but not the next story.
+ - For the source of the short story is usually lyrical. And all writers speak from, and speak to, emotions eternally the same in all of us: love, pity, terror do not show favorites or leave any of us out.
+ - Gardening is akin to writing stories. No experience could have taught me more about grief or flowers, about achieving survival by going, your fingers in the ground, the limit of physical exhaustion.
+ - The mystery lies in the use of language to express human life.
+ - It had been startling and disappointing to me to find out that story books had been written by people, that books were not natural wonders, coming of themselves like grass.
+ - Daydreaming had started me on the way; but story writing once I was truly in its grip, took me and shook me awake.
+ - I like the feeling of being able to confront an experience and resolve it as art.
+ - The mystery in how little we know of other people is no greater than the mystery of how much, Laurel thought.
+ - Human life is fiction’s only theme.
+ - Never think you’ve seen the last of anything.
+ - Is there any sleeping person you can be entirely sure you have not misjudged?
+ - Insight doesn’t happen often on the click of the moment, like a lucky snapshot, but comes in its own time and more slowly and from nowhere but within.
+ - To write honestly and with all our powers is the least we can do, and the most.
+ - For the night was not impartial. No, the night loved some more than others, served some more than others.
+ - I had to grow up and learn to listen for the unspoken as well as the spoken-and to know a truth.
+ - A thing is incredible, if ever, only after it is told – returned to the world it came out of.
+ - Fantasy is no good unless the seed it springs from is a truth, a truth about human beings.
+ - Laurel could not see her face but only the back of her neck, the most vulnerable part of anybody, and she thought: Is there any sleeping person you can be entirely sure you have not misjudged?
+ - Any room in our house at any time in the day was there to read in or to be read to.
+ - To open up the new, to look back on the old may bring forth like discoveries in the practice of art.
+ - If you haven’t surprised yourself, you haven’t written.
+ - What I do in the writing of any character is to try to enter into the mind, heart and skin of a human being who is not myself. It is the act of a writer’s imagination that I set the most high.
+ - There is absolutely everything in great fiction but a clear answer.
+ - Dialogue has to show not only something about the speaker that is its own revelation, but also maybe something about the speaker that he doesn’t know but the other character does know.
+ - I get a moral satisfaction out of putting things together.
+ - The greatest mystery is unsheathed reality itself.
+ - All good writers speak in honest voices and tell the truth.
+ - Reading Chekhov was just like the angels singing to me.
+ - Ah, I’m a woman that’s been clear around the world in my rocking chair, and I tell you we all get surprises now and then.
+ - No blur of inexactness, no cloud of vagueness, is allowable in good writing; from the first seeing to the last putting down, there must be steady lucidity and uncompromise of purpose.
+ - I think that as you learn more about writing you learn to be direct.
+ - The novelist works neither to correct nor to condone, not at all to comfort, but to make what’s told alive.
+ - Write about what you don’t know about what you know.
+ - I wanted to read immediately. The only fear was that of books coming to an end.
+ - Writing a story or a novel is one way of discovering sequence in experience, of stumbling upon cause and effect in the happenings of a writer’s own life.
+ - Every story teaches me how to write it. Unfortunately, it doesn’t teach me how to write the next one.
+ - What we know about writing the novel is the novel.
+ - Writing fiction has developed in me an abiding respect for the unknown in a human lifetime and a sense of where to look for the threads, how to follow, how to connect, find in the thick of the tangle what clear line persists.
+ - The fictional eye sees in, through, and around what is really there.
+ - Passion is our ground, our island – do others exist?
+ - Time is anonymous; when we give it a face, it’s the same face the world over.
+ - There’s still a strange moment with every book when I move from the position of writer to the position of reader and I suddenly see my words with the eyes of the cold public. It gives me a terrible sense of exposure, as if I’d gotten sunburned.
+
+89 quotes

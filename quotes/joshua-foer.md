@@ -1,0 +1,48 @@
+ - Experts step outside their comfort zone and study themselves failing.
+ - One trick, known as the journey method or ‘memory palace,’ is to conjure up a familiar space in the mind’s eye, and then populate it with images of whatever it is you want to remember.
+ - One of the great challenges of our age, in which the tools of our productivity are also the tools of our leisure, is to figure out how to make more useful those moments of procrastination when we’re idling in front of our computer screens.
+ - If you want to live a memorable life, you have to be the kind of person who remembers to remember.
+ - When you want to get good at something, how you spend your time practicing is far more important than the amount of time you spend.
+ - To improve, we must watch ourselves fail, and learn from our mistakes.
+ - Monotony collapses time. Novelty unfolds it.
+ - The more we remember, the better we are at processing the world. And the better we are at processing the world, the more we can remember about it.
+ - Memory is like a spiderweb that catches new information. The more it catches, the bigger it grows. And the bigger it grows, the more it catches.
+ - The way to get better at a skill is to force yourself to practice just beyond your limits.
+ - Our culture is an edifice built of externalized memories.
+ - Monotony collapses time; novelty unfolds it. You can exercise daily and eat healthily and live a long life, while experiencing a short one. If you spend your life sitting in a cubicle and passing papers, one day is bound to blend unmemorably into the next – and disappear.
+ - What makes things memorable is that they are meaningful, significant, colorful.
+ - A meaningful relationship between two people cannot sustain itself only in the present tense.
+ - Our lives are structured by our memories of events. Event X happened just before the big Paris vacation. I was doing Y in the first summer after I learned to drive. Z happened the weekend after I landed my first job. We remember events by positioning them in time relative to other events.
+ - What distinguishes a great mnemonist, I learned, is the ability to create lavish images on the fly, to paint in the mind a scene so unlike any other it cannot be forgotten. And to do it quickly. Many competitive mnemonists argue that their skills are less a feat of memory than of creativity.
+ - As bad as we are at remembering names and phone numbers and word-for-word instructions from our colleagues, we have really exceptional visual and spatial memories.
+ - To the extent that experience is the sum of our memories and wisdom the sum of experience, having a better memory would mean knowing not only more about the world, but also more about myself.
+ - The fact that books today are mostly a string of words makes it easier to forget the text. With the impact of the iPad and the future of the book being up for re-imagination, I wonder whether we’ll rediscover the importance of making texts richer visually.
+ - Once upon a time, this idea of having a trained, disciplined, cultivated memory was not nearly so alien as it would seem to us to be today.
+ - With our blogs and tweets, digital cameras, and unlimited-gigabyte e-mail archives, participation in the online culture now means creating a trail of always present, ever searchable, unforgetting external memories that only grows as one ages.
+ - All across Africa, the Pacific and the Americas, we find cultures that didn’t know about mouth kissing until their first contact with European explorers. And the attraction was not always immediately apparent. Most considered the act of exchanging saliva revolting.
+ - During the Middle Ages they understood that words accompanied by imagery are much more memorable. By making the margins of a book colorful and beautiful, illuminations help make the text unforgettable. It’s unfortunate that we’ve lost the art of illumination.
+ - Since at least the Middle Ages, philosophers and philologists have dreamed of curing natural languages of their flaws by constructing entirely new idioms according to orderly, logical principles.
+ - Someday in the distant cyborg future, when our internal and external memories fully merge, we may come to possess infinite knowledge. But that’s not the same thing as wisdom.
+ - Memory training is not just for the sake of performing party tricks; it’s about nurturing something profoundly and essentially human.
+ - Sequencing – the careful striptease by which you reveal information to the reader – matters in an article, but it is absolutely essential to a book.
+ - The best memorizers in the world – who almost all hail from Europe – can memorize a pack of cards in less than a minute. A few have begun to approach the 30-second mark, considered the ‘four-minute mile of memory.’
+ - I have never been particularly good with languages. Despite a dozen years of Hebrew school and a lifetime of praying in the language, I’m ashamed to admit that I still can’t read an Israeli newspaper. Besides English, the only language I speak with any degree of fluency is Spanish.
+ - Invented languages have often been created in tandem with entire invented universes, and most conlangers come to their craft by way of fantasy and science fiction.
+ - Our ability to find humor in the world, to make connections between previously unconnected notions, to create new ideas, to share in a common culture: All these essentially human acts depend on memory.
+ - How much are we willing to lose from our already short lives by losing ourselves in our Blackberries, our iPhones, by not paying attention to the human being across from us who is talking with us, by being so lazy that we’re not willing to process deeply?
+ - Life seems to speed up as we get older because life gets less memorable as we get older.
+ - Once I’d reached the point where I could squirrel away more than 30 digits a minute in memory palaces, I still only sporadically used the techniques to memorize the phone numbers of people I actually wanted to call. I found it was just too simple to punch them into my cell phone.
+ - Truman Capote famously claimed to have nearly absolute recall of dialogue and used his prodigious memory as an excuse never to take notes or use a tape recorder, but I suspect his memory claims were just a useful cover to invent dialogue whole cloth.
+ - If you were a medieval scholar reading a book, you knew that there was a reasonable likelihood you’d never see that particular text again, and so a high premium was placed on remembering what you read. You couldn’t just pull a book off the shelf to consult it for a quote or an idea.
+ - Growing up in the days when you still had to punch buttons to make a telephone call, I could recall the numbers of all my close friends and family. Today, I’m not sure if I know more than four phone numbers by heart. And that’s probably more than most.
+ - Just as we accumulate memories of facts by integrating them into a network, we accumulate life experiences by integrating them into a web of other chronological memories. The denser the web, the denser the experience of time.
+ - I met with amnesiacs and savants, educators and scientists, to try to understand what memory is, why it works, why it sometimes doesn’t, and what its potential might be.
+ - Kissing could have begun as a way of sniffing out who’s who. From a whiff to a kiss was just a short trip across the face.
+ - Jonah Lehrer is one of the most talented explainers of science that we’ve got. What a pleasure it is to follow his investigation of creativity and its sources. Imagine is his best book yet.
+ - Back when I lived in Brooklyn, I’d sometimes take the Q train all the way out to Coney Island and back, and work on my laptop. There’s something about pushy New Yorkers looking over your shoulder that really makes you produce sentences.
+ - Languages are something of a mess. They evolve over centuries through an unplanned, democratic process that leaves them teeming with irregularities, quirks, and words like ‘knight.’
+ - Part of being creative is not being super-duper focused.
+ - Some memorizers arbitrarily associate each playing card with a familiar person or object, so that the king of clubs is represented by, say, Tony Danza. The grand masters associate each card with a person, an action, or an object so that every group of three cards can be converted into a sentence.
+ - We’ve outsourced our memories to digital devices, and the result is that we no longer trust our memories. We see every small forgotten thing as evidence that they’re failing us.
+
+46 quotes

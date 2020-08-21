@@ -1,0 +1,33 @@
+ - Temperance is the nurse of chastity.
+ - Necessity, mother of invention.
+ - A good name is seldom got by giving it oneself.
+ - A mistress should be like a little country retreat near the town, not to dwell in constantly, but only for a night and away.
+ - Marrying to increase love is like gaming to become rich; alas, you only lose what little stock you had before.
+ - I love to be envied, and would not marry a wife that I alone could love; loving alone is as dull as eating alone.
+ - A beauty masked, like the sun in eclipse, gathers together more gazers than if it shined out.
+ - Hunger, revenge, to sleep are petty foes, But only death the jealous eyes can close.
+ - Good fellowship and friendship are lasting, rational and manly pleasures.
+ - I have heard people eat most heartily of another man’s meat, that is, what they do not pay for.
+ - Women of quality are so civil, you can hardly distinguish love from good breeding.
+ - Next to the pleasure of finding a new mistress is that of being rid of an old one.
+ - Mistresses are like books; if you pore upon them too much, they doze you and make you unfit for company; but if used discreetly, you are the fitter for conversation by em.
+ - Money makes up in a measure all other wants in men.
+ - Poetry in love is no more to be avoided than jealousy.
+ - Drinking with women is as unnatural as scolding with ’em.
+ - Wine gives you liberty, love takes it away.
+ - Charity and good-nature give a sanction to the most common actions; and pride and ill-nature make our best virtues despicable.
+ - Go to your business, pleasure, whilst I go to my pleasure, business.
+ - Conversation augments pleasure and diminishes pain by our having shares in either; for silent woes are greatest, as silent satisfaction leas; since sometimes our pleasure would be none but for telling of it, and our grief insupportable but for participation.
+ - He’s a fool that marries; but he’s a greater fool that does not marry a fool.
+ - Have as much good nature as good sense since they generally are companions.
+ - Come, for my part I will have only those glorious, manly pleasures of being very drunk, and very slovenly.
+ - Ceremony and great professing renders friendship as much suspect as it does religion.
+ - With faint praises one another damn.
+ - But methings wit is more necessary than beauty; and I think no young woman ugly that has it, and no handsome woman agreeable without it.
+ - I weigh the man, not his title; ’tis not the king’s stamp can make the metal better.
+ - Poets, like friends to whom you are in debt, you hate.
+ - As wit is too hard for power in council, so power is too hard for wit in action.
+ - Women serve but to keep a man from better company.
+ - Wit has as few true judges as painting.
+
+31 quotes

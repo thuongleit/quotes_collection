@@ -1,0 +1,144 @@
+ - Your problems is that you think you have time.
+ - The trick is in what one emphasizes. We either make ourselves miserable, or we make ourselves happy. The amount of work is the same.
+ - The basic difference between an ordinary man and a warrior is that a warrior takes everything as a challenge while an ordinary man takes everything as a blessing or a curse.
+ - In a world where death is the hunter, my friend, there is no time for regrets or doubts. There is only time for decisions.
+ - A warrior never worries about his fear.
+ - Only a warrior can survive the path of knowledge because the art of the warrior is to balance the pain of being a man with the wonder of being a man.
+ - Intent is what sends a shaman through a wall, through space, to infinity.
+ - The aim is to balance the terror of being alive with the wonder of being alive.
+ - Only as a warrior can one withstand the path of knowledge. A warrior cannot complain or regret anything. His life is an endless challenge, and challenges cannot possibly be good or bad. Challenges are simply challenges.
+ - A warrior considers himself already dead, so there is nothing to lose. The worst has already happened to him, therefore he’s clear and calm; judging him by his acts or by his words, one would never suspect that he has witnessed everything.
+ - Self importance is man’s greatest enemy.
+ - When you need an answer, look over your left shoulder and ask your death.
+ - Self-importance requires spending most of one’s life offended by something or someone.
+ - Nobody knows who I am or what I do. Not even I. Don Juan Matus.
+ - If a warrior is to succeed at anything, the success must come gently, with a great deal of effort but with no stress or obsession.
+ - A warrior chooses a path with heart, any path with heart, and follows it; and then he rejoices and laughs. He knows because he sees that his life will be over altogether too soon. He sees that nothing is more important than anything else.
+ - Never take a path that has no heart in it. You can’t lose if your heart is in your work, but you can’t win if your heart is not in it.
+ - Any path is only a path, and there is no affront to oneself or to others, in dropping it if that is what your heart tells you.
+ - The hardest thing in the world is for a warrior to let others be.
+ - I’m never angry at anybody! No human being can do anything important enough for that. You get angry at people when you feel that their acts are important. I don’t feel that way any longer.
+ - A man goes to knowledge as he goes to war, wide awake, with fear, with respect, and with absolute assurance.
+ - The ego is like a tired old dog. We can never kill it, so put it out on the back porch, let it rest there, and step around it.
+ - Forget the self and you will fear nothing, in whatever level or awareness you find yourself to be.
+ - I am already given to the power that rules my fate. And I cling to nothing, so I will have nothing to defend. I have no thoughts, so I will see. I fear nothing, so I will remember myself. Detached and at ease, I will dart past the Eagle to be free.
+ - A man of knowledge lives by acting, not by thinking about acting.
+ - Things don’t change, only the way you look at them.
+ - For me there is only the traveling on paths that have heart, on any path that may have heart, and the only worthwhile challenge is to traverse its full length – and there I travel looking, looking breathlessly.
+ - It takes all the time and all the energy we have to conquer the idiocy in us.
+ - The warrior: silent in his struggle, undetainable because he has nothing to lose, functional and efficacious because he has everything to gain.
+ - Warriors do not win victories by beating their heads against walls, but by overtaking the walls. Warriors jump over walls; they don’t demolish them.
+ - Feeling important makes one heavy, clumsy and vain. To be a warrior one needs to be light and fluid.
+ - Tonight in your dreams you must look at your hands.
+ - Whenever the internal dialogue stops, the world collapses, and extraordinary facets of ourselves surface, as though they had been kept heavily guarded by our words.
+ - Think about it: what weakens us is feeling offended by the deeds and misdeeds of our fellow men. Our self-importance requires that we spend most of our lives offended by someone.
+ - Once it has learned to dream the double, the self arrives at this weird crossroad and a moment comes when one realizes that it is the double who dreams the self.
+ - A warrior lives by acting, not by thinking about acting, nor by thinking about what he will think when he has finished acting.
+ - A warrior thinks of death when things become unclear. The idea of death is the only thing that tempers our spirit.
+ - The average man is hooked to his fellow men, while the warrior is hooked only to infinity.
+ - In the universe there is an immeasurable, indescribable force which shamens call intent, and absolutely everything that exists in the entire cosmos is attached to intent by a connecting link.
+ - Modern man has left the realm of the unknown and the mysterious, and has settled down in the realm of the functional. He is turned is back to the world of the foreboding and the exulting and has welcomed the world of boredom.
+ - An average man is too concerned with liking people or with being liked himself. A warrior likes, that’s all. He likes whatever or whomever he wants, for the hell of it.
+ - We have to balance the lineality of the known universe with the nonlineality of the unknown universe.
+ - For a human being, sadness is as powerful as terror. Sadness makes a warrior shed tears of blood.
+ - Power rests on the kind of knowledge one holds. What is the sense of knowing things that are useless?
+ - The world is incomprehensible. We won’t ever understand it; we won’t ever unravel its secrets. Thus we must treat the world as it is: a sheer mystery.
+ - Anything is one of a million paths. Therefore you must always keep in mind that a path is only a path; if you feel you should not follow, you must not stay with it under any circumstances.
+ - All paths are the same, leading nowhere. Therefore, pick a path with heart!
+ - Seeing energy as it flows is an imperious need on the path of knowledge. Ultimately, all the effort of sorcerers is guided to that end. It is not enough for a warrior to know that the universe is energy; he has to verify it for himself.
+ - A warrior acts as if he knows what he is doing, when in effect he knows nothing.
+ - Seek and see all the marvels around you. You will get tired of looking at yourself alone, and that fatigue will make you deaf and blind to everything else. – Don Juan.
+ - The third point of reference is freedom of perception; it is intent; it is spirit; the somersault of thought into the miraculous; the act of reaching beyond our boundaries and touching the inconceivable.
+ - You have little time left, and none of it for crap. A fine state. I would say that the best of us always comes out when we are against the wall, when we feel the sword dangling overhead. Personally, I wouldn’t have it any other way.
+ - We don’t need more to be thankful for, we just need to be more thankful.
+ - When one has nothing to lose, one becomes courageous. We are timid only when there is something we can still cling to.
+ - Nothing in this world is a gift. Whatever must be learned must be learned the hard way.
+ - If your tendency is to make sense out of chaos, start chaos.
+ - The body must be perfection before the will is a functioning unit.
+ - Look at every path closely and deliberately, then ask ourselves this crucial question: Does this path have a heart? If it does, then the path is good. If it doesn’t, it is of no use.
+ - Man has a dark side, yes, and it is called stupidity.
+ - We hardly ever realize that we can cut anything out of our lives, anytime, in the blink of an eye.
+ - Burn your bridges every 2 years.
+ - You are like you are, because you tell yourself that you are that way.
+ - A warrior takes his lot, whatever it may be, and accepts it in ultimate humbleness. He accepts in humbleness what he is, not as a grounds for regret but as a living challenge.
+ - It is best to erase all personal history because that would make us free from the encumbering thoughts of other people.
+ - A warrior doesn’t know remorse for anything he has done, because to isolate one’s acts as being mean, or ugly, or evil is to place an unwarranted importance on the self.
+ - Eventually I saw that the path of the heart requires a full gesture, a degree of abandon that can be terrifying. Only then is it possible to achieve a sparkling metamorphosis.
+ - Men have to be hooked. Women don’t need that. Women go freely into anything. That’s their power and at the same time their drawback. Men have to be led and women have to be contained.
+ - Intent is what can make a man succeed when his thoughts tell him that he is defeated.
+ - There’s no emptiness in the life of a warrior. Everything is filled to the brim. Everything is filled to the brim, and everything is equal.
+ - It doesn’t matter how one was brought up. What determines the way one does anything is personal power.
+ - Do you know at this very moment you are surrounded by eternity? And do you know that you can use that eternity if you so desire?
+ - To worry is to become accessible, unwittingly accessible. And once you worry you cling to anything out of desperation; and once you cling you are bound to get exhausted or to exhaust whoever or whatever you are clinging to.
+ - A rule of thumb for a warrior is that he makes his decisions so carefully that nothing that may happen as a result of them can surprise him, much less drain his power.
+ - Well being is a condition one has to groom, a condition one has to become aquainted with in order to seek it.
+ - A warrior must learn to make every act count, since he is going to be here in this world for only a short while, in fact, too short for witnessing all the marvels of it.
+ - There are lots of things a warrior can do at a certain time which he couldn’t do years before. Those things themselves did not change; what changed was his idea of himself.
+ - Learn to see, and then you’ll know that there is no end to the new worlds of our vision.
+ - A warrior, or any man for that matter, cannot possibly wish he were somewhere else; a warrior because he lives by challenge, an ordinary man because he doesn’t know where his death is going to find him.
+ - A warrior knows that he is only a man. His only regret is that his life is so short that he can’t grab onto all the things he would like to. But for him, this is not an issue; it’s only a pity.
+ - The sorcerer’s description of the world is perceivable. But our insistence on holding on to our standard version of reality renders us almost deaf and blind to it.
+ - A warrior seeks to act rather than talk.
+ - Before you embark on it you ask the question: Does this path have a heart? If the answer is no, you will know it, and then you must choose another path.
+ - A man of knowledge chooses a path with a heart and follows it and then he looks and rejoices and laughs and then he sees and knows.
+ - Crows are not always available to give warning.
+ - You see all of us go through the same doubts. We are afraid of being mad; unfortunately for us, of course, all of us are already mad.
+ - To compare Tensegrity with yoga or t’ai chi is not possible. It has a different origin and a different purpose. The origin is shamanic, the purpose is shamanic.
+ - A warrior, on the other hand, is a hunter. He calculates everything. That’s control. But once his calculations are over he acts. He lets go. That’s abandon.
+ - Only the idea of death makes a warrior sufficiently detached so that he is capable of abandoning himself to anything. He knows his death is stalking him and won’t give him time to cling to anything so he tries, without craving, all of everything.
+ - The fate of all of us here has been to know that we are prisoners of power. No one knows why us in particular, but what a great fortune!
+ - We’re a feeling, an awareness encased here.
+ - Human beings are on a journey of awareness, which has momentarily been interrupted by extraneous forces.
+ - Heightened awareness is a mystery only for a reason.
+ - We are men and our lot in life is to learn and to be hurled into inconceivable new worlds.
+ - For my teachers, unfortunately, certain things were, as they are for you, only tales of power.
+ - It is important to have a perspective then only through seeing the world is it possible to transcend ideas such as the Flyers, and other aberrant thought forms. With ruthlessness, cunning patience and sweetness, it can be cracked.
+ - To ask me to verify my life by giving you my statistics is like using science to validate sorcery. It robs the world of its magic and makes milestones out of us all.
+ - It was stupidity that forced us to discard anything that did not conform with ourself – reflective expectations.
+ - I’m afraid you will have to fly holding the rock with its heavy chain.
+ - The things shamans deal with are extremely practical. They break down parameters of normal historical reality. Magical passes are just one aspect of that.
+ - I had been experiencing brief flashes of disassociation, or shallow states of non-ordinary reality.
+ - Nothing can temper the spirit of a warrior as much as the challenge of dealing with impossible people in positions of power. Only under those conditions can warriors acquire the sobriety and serenity to withstand the pressure of the unknowable.
+ - A warrior takes responsibility for his acts, for the most trivial of acts. An average man acts out his thoughts, and never takes responsibility for what he does.
+ - This very rock where we’re sitting is a rock because we have been forced to give out attention to it.
+ - You say you need help. Help for what? You have everything needed for the extravagant journey that is your life.
+ - All paths lead nowhere, so it is important to choose a path that has heart.
+ - When a warrior learns to stop the internal dialogue, everything becomes possible; the most far-fetched schemes become.
+ - Dwelling upon the self too much produces terrible fatigue. A man in that position is deaf and blind to everything else. The fatigue itself makes him cease to see the marvels all around.
+ - Inner silence works from the moment you begin to accrue it. What the old sorcerers were after was the final dramatic, end result of reaching that individual threshold of silence.
+ - Challenges cannot possibly be good or bad. Challenges are simply challenges.
+ - As long as a man feels that he is the most important thing in the world he cannot really appreciate the world around him.
+ - There is a flaw with words, they always force us to feel enlightened, but when we turn around to face the world they always fail us and we end up facing the world as we always have, without enlightenment.
+ - One can say that the nagual accounts for creativity. The nagual is the only part of us that can create.
+ - Leave Jesus on the cross. He’s very happy there!
+ - The dying sun will glow on you without burning, as it has done today.
+ - Beware of those who weep with realization, for they have realized nothing.
+ - A guardian is broad-minded and understanding. A guard, on the other hand, is a vigilante, narrow-minded and most of the time despotic.
+ - If a warrior needs solace he simply chooses anyone and expresses to that person every detail of his turmoil. After all, the warrior is not seeking to be understood or helped; by talking he’s merely relieving himself of his pressure.
+ - For a sorcerer, reality, or the world as we all know it, is only a description.
+ - It is important to do what you don’t know how to do. It is important to see your skills as keeping you from learning what is deepest and most mysterious. If you know how to focus, unfocus. If your tendency is to make sense out of chaos, start chaos.
+ - What is a truthful life? A life lived with deliberateness, a good, strong life.
+ - The shadows in the early morning don’t tell much. The shadows rest at that time. So it’s useless to gaze very early in the day. Around six in the morning the shadows wake up, and they are best around five in the afternoon. Then they are fully awake.
+ - To seek the perfection of the warrior’s spirit is the only task worthy of our temporariness, our manhood.
+ - For an instant I think I saw. I saw the loneliness of man as a gigantic wave which had been frozen in front of me, held back by the invisible wall of a metaphor.
+ - For me the world is weird because it is stupendous, awesome, mysterious, unfathomable; my interest has been to convince you that you must assume responsibility for being here...
+ - To achieve the mood of a warrior is not a simple matter. It is a revolution. To regard the lion and the water rats and our fellow men as equals is a magnificent act of a warrior’s spirit. It takes power to do that.
+ - Only as a warrior can one survive the path of knowledge.
+ - Fright never injures anyone. What injures the spirit is having someone always on your back, beating you, telling you what to do and what not to do.
+ - Conclusions arrived at through reasoning have very little or no influence in altering the course of our lives.
+ - How can I know who I am when I am all this?
+ - The secret is not in what you do to yourself but rather in what you don’t do.
+ - My benefactor used to say the seeds are the ‘sober head’ – the only part that could fortify the heart of man.
+ - My worrying, for instance, was a scene in which I looked at myself while I had the sensation of being boxed in. I call that worrying, It has happened to me a number of times after that first time.
+ - When nothing is for sure, we remain alert, perennially on our toes. It is more exciting not to know which bush the rabbit is hiding behind than to behave as though we knew everything.
+ - The world is such-and-such or so-and-so only because we tell ourselves that that is the way it is.
+ - If a warrior wants to pay back for all the favors he has received, and he has no one in particular to address his payment to, he can address it to the spirit of man, That’s always a very small account, and whatever one puts in it is more than enough.
+ - Life in itself is sufficient, self-explanatory and complete.
+ - Sorcerers are convinced that all of us are a bunch of nincompoops. We can never relinquish our crummy control voluntarily, thus we have to be tricked.
+ - If you were a warrior, you would know that the worst thing one can do is confront human beings directly.
+ - The only thing that is real is the being in you that is going to die.
+ - Man lives only to learn. And if he learns it is because it is the nature of his lot, for good or bad.
+ - We chose whether to be warriors or to be ordinary.
+ - Knowledge for a warrior is something that comes at once, engulfs him, and passes on.
+
+142 quotes

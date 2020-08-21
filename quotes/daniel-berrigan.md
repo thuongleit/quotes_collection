@@ -1,0 +1,34 @@
+ - Faith is rarely where your head is at. Nor is it where your heart is at. Faith is where your ass is at!
+ - The gift we can offer others is so simple a thing as hope.
+ - Because we want the peace with half a heart and half a life and will, the war, of course, continues, because the waging of war, by its nature, is total – but the waging of peace, by our own cowardice, is partial.
+ - I don’t know a more irreligious attitude, one more utterly bankrupt of any human content, than one which permits childred to be destroyed.
+ - You have to struggle to stay alive and be of use as long as you can.
+ - I think of my brother just out of prison again. He will have spent ten years of the last 30 in prison.
+ - If you are going to follow Jesus, you better look good on wood.
+ - Our apologies, good friends, for the fracture of good order, the burning of paper instead of children. How many must die before our voices are heard, how many must be tortured, dislocated, starved, maddened? When, at what point, will you say no to this war?
+ - I’d like to die with my boots on.
+ - But how shall we educate men to goodness, to a sense of one another, to a love of truth? And more urgently, how shall we do this in a bad time?
+ - The God of life summons us to life; more, to be lifegivers, especially toward those who lie under the heel of the powers.
+ - You can’t bank on the outcome.
+ - No principle is worth the sacrifice of a single human being.
+ - There are no makers of peace because the making of peace is at least as costly as the making of war – at least as exigent.
+ - Start with the impossible. Proceed calmly towards the improbable. No worry, there are at least five exits.
+ - One is called to live nonviolently, even if the change one works for seems impossible. It may or may not be possible to turn the US around through nonviolent revolution. But one thing favors such an attempt: the total inability of violence to change anything for the better.
+ - Instead of building the peace by attacking injustices like starvation, disease, illiteracy, political and economic servitude, we spend a trillion dollars on war since 1946, until hatred and conflict have become the international preoccupation.
+ - Because success is such a weasel word anyway, it’s such a horribly American word, and it’s such a vamp and, I think it’s a death trap.
+ - I don’t have to prove my life. I just have to live.
+ - Spirituality was the main issue. Connection with God was the main issue.
+ - Most Americans would agree that Plowshares is a Theatre of the Absurd.
+ - One is called to live nonviolently, even if the change one works for seems impossible.
+ - You just have to do what you know is right.
+ - I never met a Jesuit before I applied for the order.
+ - Every nation-state tends towards the imperial – that is the point. Through banks, armies, secret police, propaganda, courts and jails, treaties, taxes, laws and orders, myths of civil obedience, assumptions of civic virtue at the top.
+ - My father had very little formal education.
+ - The Jesuits I know who have died and all their lives were great teachers, they’re the least remembered people.
+ - We have one of our priests in prison right now for his antiwar actions, and three of us in the community are forbidden to visit him because we’re all convicted felons.
+ - Well, I’ve been in several films including documentaries, but the big blockbuster, I was hired as advisor to the actors, I was trying to make Jesuits out of them.
+ - The death of a single human being is too heavy a price for the vindication of any principle, however sacred.
+ - It’s not going to be easy to change things.
+ - I was publishing when I was 20, 21. And it really never stopped.
+
+32 quotes

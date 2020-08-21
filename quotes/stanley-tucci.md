@@ -1,0 +1,53 @@
+ - A dream that you don’t fight for can haunt you for the rest of your life.
+ - If you find that thing you love, it doesn’t necessarily matter whether you do it well or not-you just need to do it.
+ - If you feel safe then you can go wherever you want to go as an actor.
+ - But usually I’ll wake up and start writing about nine o’clock. I’ll probably write for about three hours, and I’ll do that over the next month and a half.
+ - Those moments in between the moments, those are the most interesting. What’s unspoken, the way we talk around things, the way our actions are inconsistent with what we’re feeling, how anger and affection manifest themselves in strange ways at inappropriate times.
+ - You have to be serious about what you do but you mustn’t take yourself seriously. That way you’ll be happier and ultimately you’ll be more successful. You’ll be better at what you do.
+ - I’m actually one who will encourage directors to cut my lines.
+ - I’m pretty much a character-driven film director and my movies are smaller. I don’t do a lot of coverage. I use lots of master shots.
+ - Every character, no matter who you play, at times is pretending to be somebody else. People have a public face and a private face.
+ - People wear shorts to the Broadway theater. There should be a law against that.
+ - There is a joke that I use all the time. I say it to my kids. I used to say it to my wife. She’d be talking to me about something very serious and then I would just look at her and go “Where are you from originally?” And she would go “Humphhh! C’mon. That’s terrible!”
+ - As soon as the actor steps into the role, you probably can cut 50% of the lines because there’s a person there now. And what a person does with their eyes, with their mouth, with their hands, the way they walk into a room, you can probably cut half the scene.
+ - Big Night and The Impostors are both things that I wrote.
+ - I’d read Up in the Old Hotel, and I wanted to do something with Mitchell’s stuff for a long time.
+ - As a film director I like to have the actors create their own close-ups. It’s an older style of filmmaking.
+ - The constraints of melodrama can be a great blessing, because they demand that all the characters involved – as absurd and extreme as they may initially seem – must stay utterly rooted in their own reality, or the whole project collapses.
+ - I’ve been playing the father of teenagers for years. People always thought that I was 40 when I was 26. Once you lose your hair, they’re like “Oh! He’s really old now.”
+ - My partner, Beth Alexander, and I want to produce smaller films, but commercially viable films that will enable me to make the kinds of movies I want to make.
+ - It’s different if you’re a painter. You can hidethe ones that don’t work. You can’t do that with movies. They tellthe story of who you are at the time, and that’s the wonderful thingabout it.
+ - Early in my career, people wanted to pigeonhole me as the bad guy because I’m of Italian-American descent, which they often were when I started out. You have to fight against it. One of the things that helps is the ability to do comedy.
+ - This is the funny thing about Skype. No one is really looking into the camera. People always looking down because they’re looking at the image. You wish the camera was there in the center.
+ - I think it’s important to have a good sense of humor and joke around with your kids. That’s what I do a lot.
+ - I’m a control freak. Totally.
+ - Ripe bananas are the mark of a good produce section. A good produce section is the mark of a superior grocery store. A superior grocery store is the mark of a good man.
+ - What’s great is when you’re working with somebody with whom you have a connection, it’s exciting because there’s a shorthand and you trust each other and you have a good time together on the set and so you can go a little farther than you might normally because you’re with somebody that you trust.
+ - I like to use all of myself, and acting wasn’t doing that.
+ - And I love doing my own projects; that’s what I’ve always wanted to do.
+ - The thing is, I’m a very practical filmmaker.
+ - I hate movies that take a long time to shoot or directors that labor over every shot or do excessive amounts of coverage and excessive takes and don’t keep things moving or constantly cutting.
+ - As a director you have to be careful you don’t over-design the film. You have to be careful that the period aspect does not take over.
+ - I mean, Scorsese’s a genius, and that’s one way of shooting.
+ - As a director, I also get to sit and watch actors and learn from them in a way that I don’t get to do when I’m just acting.
+ - I was dissatisfied just being an actor.
+ - I love directing – it’s always so involving, so challenging.
+ - Even The Impostors, as silly as it is, is a very intimate film, in a way.
+ - I never go overbudget on my movies.
+ - I have consciously not taken the role of a gangster, which has been offered to me far too many times.
+ - I’m not saying they won’t be bigger projects someday.
+ - Every role is approached in exactly the same way, you have to make it believable and that’s all. Acting is really serious, like, pretending really hard.
+ - Like Joseph Mitchell, I would scour the streets of New York and find little pieces of what other people think of as junk – and collect it.
+ - I’m interested in how people shoot because I have a very specific way of shooting and I’m fascinated by the way other people shoot films, particularly if they’re smart and talented.
+ - So yes, I hope to act in other people’s movies, big and small, because that’s how I make my living, really.
+ - I wanted to be an actor when I was a kid.
+ - I’ve always considered myself an actor first and foremost.
+ - I was always attracted to the past as a kid.
+ - Sometimes you can’t even find the director on a movie set. Sometimes you don’t want to find the director on a movie set.
+ - I write in the mornings. During my down time.
+ - Sometimes we all make relationships more complicated than they necessarily have to be.
+ - I don’t like to move the camera that much anyway.
+ - I didn’t know you had to change diapers so often. I couldn’t believe it – we must change them 10 times a day – each. So that’s 20 diapers a piece a day.
+ - The smaller films just take a longer period of time to build their fan base because people don’t see them as soon as they come out in the theater. They see them, after a period of years.
+
+51 quotes

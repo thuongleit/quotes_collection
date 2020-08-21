@@ -1,0 +1,79 @@
+ - All they want to do is tie the poem to a chair with a rope and torture a confession out of it. They begin beating it with a hose to find out what it really means.
+ - I sit in the dark and wait for a little flame to appear at the end of my pencil.
+ - Poetry is my cheap means of transportation, by the end of the poem the reader should be in a different place from where he started. I would like him to be slightly disoriented at the end, like I drove him outside of town at night and dropped him off in a cornfield.
+ - In the process of simplifying oneself, one often discovers the thing called voice.
+ - So many names, there is barely room on the walls of the heart.
+ - Poetry is like standing on the edge of a lake on a moonlit night and the light of the moon is always pointing straight at you.
+ - I see all of us reading ourselves away from ourselves, straining in circles of light to find more light until the line of words becomes a trail of crumbs that we follow across a page of fresh snow...
+ - And I should mention the light which falls through the big windows this time of day italicizing everything it touches...
+ - Death is what makes life fun.
+ - A sentence starts out like a lone traveler heading into a blizzard at midnight, tilting into the wind, one arm shielding his face, the tails of his thin coat flapping behind him.
+ - I’m trying to write poems that involve beginning at a known place, and ending up at a slightly different place. I’m trying to take a little journey from one place to another, and it’s usually from a realistic place, to a place in the imagination.
+ - Nationalism is a type of insanity in which the boundaries of a land replace God.
+ - You will always be the bread and the knife, not to mention the crystal goblet and – somehow – the wine.
+ - No one here likes a wet dog.
+ - Vade Mecum I want the scissors to be sharp and the table perfectly level when you cut me out of my life and paste me in that book you always carry.
+ - But tonight, the lion of contentment has placed a warm heavy paw on my chest.
+ - It seems only yesterday I used to believe there was nothing under my skin but light. If you cut me I could shine.
+ - I could look at you forever and never see the two of us together.
+ - The pen is an instrument of discovery rather than just a recording implement. If you write a letter of resignation or something with an agenda, you’re simply using a pen to record what you have thought out.
+ - I love to move like a mouse inside this puzzle for the body, balancing the wish to be lost with the need to be found.
+ - A motto I’ve adopted is, if at first you don’t succeed, hide all evidence that you ever tried.
+ - But my heart is always propped up in a field on its tripod, ready for the next arrow.
+ - It’s time to float on the waters of the night. Time to wrap my arms around this book and press it to my chest, life preserver in a seat of unremarkable men and women anonymous faces on the street, a hundred thousand unalphabitized things a million forgotten hours.
+ - Radio is such a perfect medium for the transmission of poetry, primarily because there just is the voice, there’s no visual distraction.
+ - The literary world is so full of pretension, and there’s such an enormous gap between how seriously poets take themselves and how widely they’re ignored by everybody else.
+ - Part of writing is discovering the rules of the game and then deciding whether to follow the rules or to break them. The great thing about the game of poetry is that it’s always your turn – I guess that goes back to my being an only child. So once it’s under way, there is a sense of flow.
+ - High School is the place where poetry goes to die.
+ - I hope the poem, as it goes on, gets more complicated, a little more demanding, a little more ambiguous or speculative, so that we’re drifting away from the casual beginning of the poem into something a little more serious.
+ - But some nights, I must tell you, I go down there after everyone has fallen asleep. I swim back and forth in the echoing blackness. I sing a love song as well as I can, lost for a while in the home of the rain.
+ - But tomorrow, dawn will come the way I picture her, barefoot and disheveled, standing outside my window in one of the fragile cotton dresses of the poor. She will look in at me with her thin arms extended, offering a handful of birdsong and a small cup of light.
+ - When I’m constructing a poem, I’m trying to write one good line after another. One solid line after another. You know a lot of the lines – some hold up better as lines than others. But I’m not thinking of just writing a paragraph and then chopping it up.
+ - You, quote, find your voice, unquote, when you are able to invent this one character who resembles you, obviously, and probably is more like you than anyone else on earth, but is not the equivalent to you.
+ - It is as if one by one, the memories you used to harbor decided to retire to the Southern Hemisphere of the brain.
+ - This is not what it is like to be you, I realized as a few of your magnificent clouds flew over the rooftop. It is just me thinking about being you. And before I headed back down the hill, I walked in a circle around your house, making an invisible line which you would have to cross before dark.
+ - I’m a line-maker. I think that’s what makes poets different from prose-writers. That’s the main way. We think, not just in sentences the way prose writers do but also in lines. So we’re doing these two things at the same time.
+ - I try to presume that no one is interested in me. And I think experience bears that out. No one’s interested in the experiences of a stranger – let’s put it that way. And then you have difficulty combined with presumptuousness, which is the most dire trouble with poetry.
+ - I think my work has to do with a sense that we are attempting, all the time, to create a logical, rational path through the day. To the left and right there are an amazing set of distractions that we usually can’t afford to follow. But the poet is willing to stop anywhere.
+ - Usually the poems are written in one sitting. There’s always a groping towards some satisfying ending. But I’d say the hardest part is not writing. Once the writing starts, it’s too pleasurable to think of it as a difficulty.
+ - When I wrote I took on the role of the despondent and difficult to understand person. Whereas in life, I was easy to understand, to the point of being simple-minded maybe.
+ - You come by your style by learning what to leave out. At first you tend to overwrite – embellishment instead of insight. You either continue to write puerile bilge, or you change. In the process of simplifying oneself, one often discovers the thing called voice.
+ - The really authentic thing about humor is that anyone can pretend to be serious. Anyone who’s ever had a job – in fact, we’re pretending to be serious now, more or less.
+ - Often people, when they’re confronted with a poem, it’s like someone who keep saying ‘what is the meaning of this? What is the meaning of this?’ And that dulls us to the other pleasures poetry offers.
+ - The first line is the DNA of the poem; the rest of the poem is constructed out of that first line. A lot of it has to do with tone because tone is the key signature for the poem. The basis of trust for a reader used to be meter and end-rhyme.
+ - Poems are not easy to start, and they’re not easy to finish. There’s a great pleasure in – I wouldn’t say ease, but maybe kind of a fascinated ease that accompanies the actual writing of the poem. I find it very difficult to get started.
+ - I think more influential than Emily Dickinson or Coleridge or Wordsworth on my imagination were Warner Brothers, Merrie Melodies and Looney Tunes cartoons.
+ - I was a pretty happy kid, I had to fake it. I had to get into this miserable character before I wrote poems.
+ - One of the ridiculous aspects of being a poet is the huge gulf between how seriously we take ourselves and how generally we are ignored by everybody else.
+ - All I wanted was to be a pea of being inside the green pod of time.
+ - I stared up at the ebbing quarter moon and the stars scattered like a handful of salt across the faraway sky...
+ - Bugs Bunny is my muse.
+ - Humor, for me, is really a gate of departure. Its a way of enticing a reader into a poem so that less funny things can take place later. It really is not an end in itself, but a means to an end.
+ - I see woefully obscure poetry as simply a kind of verbal rudeness.
+ - One of these days I’m-a make me a book out of you.
+ - Robert Frost really started this whole thing rolling. He was, I believe, the first poet who started going to colleges. Before that, poets didn’t give public readings very often, certainly not – there was no circuit of schools.
+ - I write with a Uni-Ball Onyx Micropoint on nine-by-seven bound notebooks made by a Canadian company called Blueline. After I do a few drafts, I type up the poem on a Macintosh G3 and then send it out the door.
+ - And strangely enoughthe only emotion I ever feel, is what the beaver must feel, as he bears each stick to his hidden construction, which creates the tranquil pond and gives the mallards somewhere to paddle, and the pair of swans a place to conceal their young.
+ - I think a good poem should have some inscrutable part. You can’t quite explain it. The poem can only explain itself to a certain limit and at that point you enter into a little bit of mystery. That for me is the perfect poem: to begin in clarity and to end in mystery.
+ - When I began to dare to be clear, because I think clarity is the real risk in poetry because you are exposed. You’re out in the open field. You’re actually saying things that are comprehensible, and it’s easy to criticize something you can understand.
+ - There’s a lot of unconscious activity that goes on I think in the composition of a poem.
+ - Some difficulty is warranted and other difficulty I think is gratuitous. And I think I can tell the difference. There are certainly very difficult poets that I really enjoy reading.
+ - It’s a good thing to get poetry off the shelves and more into public life.
+ - More often than not in poetry I find difficulty to be gratuitous and show-offy and camouflaging, experimental to a kind of insane degree – a difficulty which really ignores the possibility of having a sensible reader.
+ - I knew that poets seemed to be miserable.
+ - There are interesting forms of difficulty, and there are unprofitable forms of difficulty. I mean, I enjoy some difficult poetry, but some of it is impenetrable and I actually wouldn’t want to penetrate it if I could, perhaps.
+ - You’ll find i-poetry, you’ll find that you can download poetry, that you can stuff your i-pod with recorded poetry. So just to answer the question that way, I think that poetry is gonna catch up with that technology quite soon.
+ - I think the pleasure of form is that you have a companion with you besides all the poetry you have ever read.
+ - Form is any aspect of a poem that encourages it to stay whole and not drift off into chaos.
+ - I think my poems are slightly underrated by the word accessible.
+ - While the novelist is banging on his typewriter, the poet is watching a fly in the windowpane.
+ - Until recently, I thought ‘occasional poetry’ meant that you wrote only occasionally.
+ - I think what gets a poem going is an initiating line. Sometimes a first line will occur, and it goes nowhere; but other times – and this, I think, is a sense you develop – I can tell that the line wants to continue. If it does, I can feel a sense of momentum – the poem finds a reason for continuing.
+ - Write the poem only you can write.
+ - I was able to read poets that were – allowed me to be humorous without being silly.
+ - The mind can be trained to relieve itself on paper.
+ - I’m very conscious of the fact that every line should have a cadence to it. It should contribute to the progress of the poem. And that the ending of the line is a way of turning the reader’s attention back into the interior of the poem.
+ - I thought originally when I was in school and I wanted to be a poet, I knew that poets seemed to be miserable.
+ - I see the progress typical in some of my poems as starting with something simple and moving into something more demanding. This is certainly the pattern of weird poetry.
+
+77 quotes

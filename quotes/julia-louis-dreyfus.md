@@ -1,0 +1,38 @@
+ - This is an embarrassment of riches, and boy, am I happy to be embarrassed.
+ - I’m not a lesbian. I hate men, but I’m not a lesbian.
+ - I’m about to enter a national ass-kicking contest. With no legs. And a massive ass.
+ - If you feel rooted in your home and family, if you’re active in your community, there’s nothing more empowering. The best way to make a difference in the world is to start by making a difference in your own life.
+ - Some people can sometimes really invade your space and kind of never leave you alone.
+ - I dropped out of college my junior year to do saturday night live, and I didn’t even consult my parents. They were very supportive because they had no choice.
+ - The Seinfeld motto: No learning, no hugging.
+ - There is sexism – I’m not denying its existence. But I’m saying that I will deny its effort against me. I just pay it no nevermind and say, ‘Get out of my way.’
+ - When I got pregnant my foot grew, but I was denying it. I’ve been denying it for three years.
+ - The war and terrorism in the Middle East, the crisis of leadership in many of the oil-supply countries in the developing world, the crisis of global warming – all these are very clearly tied to energy.
+ - I never go about a new project as if I’m trying ot redefine myself. I just like to work, and I’m excited by material I find challenging and – if it’s a comedy – exceptionally funny.
+ - Keeping a sense of humor about life. My parents divorced when I was 8, and whenever I felt down, my mom would remind me that a sense of humor gets you through just about anything.
+ - And Seinfeld is so quick: we crank out one show a week, and the hours are very reasonable.
+ - I really do like to work. I will work again. But on my terms.
+ - Before computers, telephone lines and television connect us, we all share the same air, the same oceans, the same mountains and rivers. We are all equally responsible for protecting them.
+ - I’ve actually considered going with my married name, Julia Hall, but all the paperwork.
+ - There is tremendous inequity in Hollywood and politics, and I would say globally it’s challenging to be a woman and succeed.
+ - I guess if I wrote a book one day, it would be about hair.
+ - I’m not the type to cut back on hot showers, but there’s no harm in hot water when it’s warmed by the sun.
+ - If I have chocolate around, I will eat it. I love it, I love it, I love it. I like a piece every day.
+ - Anybody who is an ambitious politician would never ever aspire to a Vice Presidency. And yet, people find themselves in that position, and so, therein lies the rub.
+ - I have no agenda except to be funny. Neither I nor the writers profess to offer any worldly wisdom.
+ - It’s much more acceptable for men to work and father kids. There’s an inherent inequality, because we want to do it all, and I don’t know how we can do this all.
+ - Even my great grand-mother did impressions.
+ - There’s a pressure regardless of that to do a good show.
+ - The schedule of doing a live TV show every week is very difficult.
+ - Everybody seems to know me. It’s very strange.
+ - I’m particularly fortunate to be in a position where I can bring my child to work and be able to get good child care. Not a lot of women have that.
+ - I’d like to begin by thanking the members of the Hollywood Foreign Press for this Golden Globe...
+ - Doing actual comedic material is just about the most joyful endeavor ever. That’s the truth. The only time it’s not funny is when business gets in the way.
+ - Making a movie is a long, dull process. There’s a lot of waiting around.
+ - It is, I think, harder for women. I haven’t quite figured it out, and all of my women friends haven’t figured it out -how the hell do you do this? How do you work and have families?
+ - New York is nice, but I don’t like it as much as I used to.
+ - I always wanted to perform.
+ - Doing a half-hour TV show is a dream.
+ - The fact of the matter is that everybody treats me pretty much as one of the boys, which I take as a great compliment.
+
+36 quotes

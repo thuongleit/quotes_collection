@@ -1,0 +1,47 @@
+ - I personally think if something’s not a challenge there’s no point doing it because you’re not gonna learn much.
+ - I like being at home with my music and my books. I’ve done all the partying, I’ve done enough partying for four or five people as a young fella. But now I like the quiet life.
+ - I’m pretty adamant to do an American accent because you get it immediately.
+ - I suppose I’ve always been attracted to this sort of outsider in general – in literature, in music, politics, whatever – and to the person that is able to be relentlessly themselves. I don’t think that I have that quality, that strength of mind.
+ - I think it’s necessary to keep moving forward. I’ve always said that nostalgia is death, really for anyone creative.
+ - I’d probably have been wealthier if I had stayed with law, but pretty miserable doing it.
+ - And once you’re unafraid with death, I think your capacity for violence is immediately increased. Once you’re unafraid of death, you are a very, very dangerous adversary.
+ - It’s obvious that if you’re going to play a character you need to amass information about that person and about their environment or their era that they’re in and use as little or as much as necessary.
+ - My only two constants are to challenge myself and to try not to repeat myself.
+ - If you behave like a celebrity, then people will treat you like a celebrity, and if you don’t, they won’t. There’s not much to write about me in the tabloids.
+ - I don’t know if anyone will ever sit beside me on a plane again.
+ - I don’t consider myself a shy person necessarily, but there’s something about getting under the skin of a character and allowing you an abandon or a sense of courage that you would never have in your own life.
+ - I try not to think retrospectively. It’s important, as an artist, to look forward, always. I do try to take work that involves some challenge. If you approach a piece of work and you’re going, “Yeah, yeah, I can do that,” then that’s kind of a red flag.
+ - My wife can see always how a part affects me personally because she has to live with it.
+ - I’m Irish and very proud of being Irish, but as an actor, your extraction should be secondary, really. You should be able to embody whatever character it is, wherever the character comes from. That’s always been important, for me. I’m an actor who’s Irish, not an Irish actor.
+ - I think audiences are a lot more intelligent than what we give them credit for and understand that an actor is playing a role and that doesn’t mean he can’t play different types of roles.
+ - I don’t care if people perceive me as always selling out because I’m doing a studio picture. For me, the whole thing is you should be diverse in your choices; that’s the beauty of being an actor, you should be able to do that.
+ - Every Irish person of my generation and earlier, we were raised Catholic and we’d have to learn it in school, we’d to learn the catechism by rote.
+ - Two weeks ago we couldn’t pronounce your name, but you were in the lead in a film that made millions, so we’re sending you all these scripts.
+ - It’s always nice to be challenged.
+ - I don’t have a burning passion to live in America per se but I would certainly like to work there.
+ - From a very young age I had an ambition to be a musician, and to do that professionally. That’s what I pursued until I was about 20, playing in bands that were taken pretty seriously at that stage.
+ - That’s what acting is about, Funny wigs and voices, that’s what we do.
+ - I think there’s such a thing, as a performance gene. If it’s in your DNA it needs to come out. For me it originally came out through music, then segued into acting and came out through there. I always needed to get up and perform.
+ - I’ve always felt kind of safe on stage, protected. I’ve talked to other performers about this and they feel the same things, particularly in the live arena. I never get nervous going on stage to do a play. Doing film or television I’ll have more butterflies.
+ - I never make a distinction between doing a film in Hollywood or doing a film independently. It’s just the story. It’s always the story for me. The constants are that it should challenge me and I shouldn’t repeat myself. And the story should always be a story worth telling.
+ - I’ve never done a film for the money.
+ - There’s a lot of comedy in Intermission but it’s got this depth. It’s not comedy for comedy’s sake – it’s informed by something else. I like stuff like that.
+ - At the moment I’m doing this space movie, so I’m obsessed with physics and space travel. I know three months down the line it’s gone. Then I’ll be able to superficially say stuff about space.
+ - The best roles you have to fight for. You have to really want to do it and you have to go after it.
+ - It was very much about performances, the whole ensemble thing was just great – everybody working together. Sometimes it didn’t feel like a film set. It wasn’t technically driven, it was very, very enjoyable.
+ - I come from a long line of teachers. Not only did I not go into the family business; I had an aborted law career and I played in bands. ‘Disco Pigs’ was my first professional acting experience.
+ - Having started out in theatre, I feel an impulse to do it as much as I can.
+ - I will always love film, the romance of film, sitting in the darkened room with strangers and watching a story for two hours – that will always remain and never be eroded by television.
+ - I always think it’s a sign of a truly gifted director when they can move seamlessly between genres.
+ - You need to be as clean of a slate as you can be, as an actor. You have to try to be open to every experience.
+ - I don’t think they’d ever make a movie about Chuck Baker but I’d love to play Chuck Baker.
+ - I feel very lucky to be making good work still. The confidence of youth, or that sort of competitiveness you get when you’re 22 or 23, the impatience – that’s probably been tempered. Hopefully I’m slightly better company.
+ - I’ve had the pleasure and the great luck to work with some incredible actors over the years and you have to observe and learn and take something from it and try and become better yourself.
+ - I’d love to work in America, some of my favourite films come from America.
+ - I think if you play characters, it’s very important not to ever tag them with any sort of disorder, or diagnose them, or whatever. You have to normalize the behavior to get inside the character.
+ - You’re an actor who’s Irish, not an Irish actor. And you shouldn’t be limited by your extraction.
+ - I think every director has a different methodology.
+ - All I’ve tried to do as an actor is follow the good writing. That’s been my main drive. It’s not always possible, so when you do come upon it, like when I came upon this, you realize pretty quickly this is something you need to be involved with.
+ - I like the little bit of distance that London affords me and I like living in a world capital. I like having the culture at my fingertips.
+
+45 quotes

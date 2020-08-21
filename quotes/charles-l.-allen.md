@@ -1,0 +1,22 @@
+ - I am one who believes that with God nothing is hopeless – that all things are possible through prayer.
+ - Actually no person owns anything. All belongs to God, but while man is on earth he has the God-given right of possession.
+ - What a person thinks about determines what he is.
+ - Contentment gives peace and joy in our minds and hearts, which is the reward of living God’s way.
+ - Before repeating something bad about another person, ask yourself these three questions: Is it true? Is it necessary for me to tell it? Is it kind to tell it?
+ - Faith is like a boomerang; begin using what you have and it comes back to you in greater measure.
+ - The work praises the man.
+ - When you decide clearly and definitely what you want, then no sacrifice is too great as you put all of your powers into astounding results.
+ - The first purpose of prayer is to know God.
+ - Sometimes life has a way of putting us on our backs to force us to look up.
+ - In the Bible there are three distinctive meanings of grace; It means the mercy and active love of God; It means the winsome attractiveness of God; It means the strength of God to overcome.
+ - Miserable are the persons who do not have something beyond themselves to search for.
+ - God gave these ten laws for our good. He wants us to be our very best and to get the most that is possible our of life.
+ - Prayer is not a means by which I seek to control God; it is a means of putting myself in a position where God can control me.
+ - As I go about I see a lot of “coffin” men. They have room for themselves and nobody else.
+ - I can become so interested in what I have that I forget the needs of my soul.
+ - But how can I give to God what is rightfully His? There is only one way; that is in service to others.
+ - The Christian is not one who has gone all the way with Christ, None of us has? The Christian is one who has found the right road.
+ - Some people’s measure of success is how much they can grab hold of and hold on to.
+ - We have now well established the fact in our own nation that one can do more work in six days, even in five, than in seven. A run-down person is an unproductive person.
+
+20 quotes

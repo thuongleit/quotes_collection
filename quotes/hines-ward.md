@@ -1,0 +1,24 @@
+ - My mom used to tell me, ‘I live every day of my life for you.’ I understand that now. The older I get, the more I understand.
+ - Everything I do is for my mom. Every time I step out there and try to get better, it’s for her.
+ - The black and gold runs deep in me and I will remain a Steeler for life.
+ - I’m not the prototype wide receiver. But I like to think I’m one hell of a football player.
+ - When you’re that No. 1 seed, teams are gunning for you, everybody wants to be that team to knock you off. For us, we get a chance to face the No. 1 team for a second time this year, so let’s see what happens.
+ - Guys ask me, ‘Why are you always smiling?’ Are you kidding? I’m in the NFL, that’s why!
+ - I was a lost child. I wasn’t accepted in the black community because I was Korean, and I wasn’t accepted in the Korean community because I was black.
+ - I grew up kind of fast. I had a lot of responsibilities-cleaning the house, going to school on my own, making good grades on my own.
+ - Defensive backs are always trying to kill me, so I’m trying to get them first.
+ - Everybody hurts when you lose. But he takes it hard.
+ - I wanted to finish my career as a Steeler. I felt I just fit the mold as far as a blue-collar guy. I may not be the flashiest, most flamboyant wide receiver out there. But I get the job done for my team.
+ - I want to be the guy who catches the game-winning touchdown.
+ - As players and coaches, we all want to reach our goal. It’s up to us to go out there and perform.
+ - And for me to have my name mentioned among some of the Super Bowl MVPs that played in the Super Bowl, words can’t describe it. It’s totally a dream come true.
+ - It was sort of fun tonight, it was a little exciting on Halloween.
+ - I can really say that I’m a pretty good receiver and came a long way.
+ - It’s well known that I play aggressively. When I’m not doing that, I’m not doing my job.
+ - I think fans cling to me because I’m a blue-collar guy in a blue-collar city.
+ - He is the Baltimore Ravens. He’s their franchise.
+ - My whole life I’ve been trying to prove people wrong. I ended up beating everything.
+ - People really appreciate the way I play.
+ - Tom Osborne, Lou Holtz, Bobby Bowden were in our living room. My mom didn’t know who they were!
+
+22 quotes

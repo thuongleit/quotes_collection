@@ -1,0 +1,116 @@
+ - Truth and love will overcome lies and hatred.
+ - Courage means going against majority opinion in the name of the truth.
+ - It is not enough to stare up the steps, we must step up the stairs.
+ - Hope is definitely not the same thing as optimism. It is not the conviction that something will turn out well, but the certainty that something makes sense, regardless of how it turns out.
+ - Just as the constant increase of entropy is the basic law of the universe, so it is the basic law of life to be ever more highly structured and to struggle against entropy.
+ - We live in the postmodern world, where everything is possible and almost nothing is certain.
+ - Follow the man who seeks the truth; run from the man who has found it.
+ - The salvation of this human world lies nowhere else than in the human heart, in the human power to reflect, in human meekness and human responsibility.
+ - Work for something because it is good, not just because it stands a chance to succeed.
+ - The only lost cause is one we give up on before we enter the struggle.
+ - If the world is to change for the better it must start with a change in human consciousness, in the very humanness of modern man.
+ - Either we have hope within us or we don’t It is a dimension of the soul, and is not essentially dependent on some particular observation of the World or observation of the situation. Hope is not prognostication. It is an orientation of the spirit, an orientation of the heart.
+ - Without commonly shared and widely entrenched moral values and obligations, neither the law, nor democratic government, nor even the market economy will function properly.
+ - Without a global revolution in the sphere of human consciousness a more humane society will not emerge.
+ - Lying can never save us from another lie.
+ - Without free, self-respecting, and autonomous citizens there can be no free and independent nations. Without internal peace, that is, peace among citizens and between the citizens and the state, there can be no guarantee of external peace.
+ - Without free, self-respecting, and autonomous citizens there can be no free and independent nations.
+ - Education is the ability to perceive the hidden connections between phenomena.
+ - All human suffering concerns each human being.
+ - When a truth is not given complete freedom, freedom is not complete.
+ - There are times when we must sink to the bottom of our misery to understand truth, just as we must descend to the bottom of a well to see the stars in broad daylight.
+ - Ideology is a specious way of relating to the world. It offers human beings the illusion of an identity, of dignity, and of morality while making it easier for them to part with them.
+ - I am convinced that we will never build a democratic state based on rule of law if we do not at the same time build a state that is-regardless of how unscientific this may sound to the ears of a political scientist-humane, moral, intellectual and spiritual, and cultural.
+ - Responsibility is something higher than my family, my country, my firm, my success. Responsibility to the order of Being, where, and only where, they will be properly judged.
+ - Self-confidence is not pride. Just the contrary: only a person or a nation that is self-confident, in the best sense of the word, is capable of listening to others, accepting them as equals, forgiving its enemies and regretting its own guilt.
+ - The Declaration of Independence states the the Creator gave man the right to liberty. It seems man can realize that liberty only if he does not forget the One who endowed him with it.
+ - The tragedy of modern man is not that he knows less and less about the meaning of his own life, but that it bothers him less and less.
+ - We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality.
+ - Ownership is not a vice, not something to be ashamed of, but rather a commitment, and an instrument by which the general good can be served.
+ - Without the constantly living and articulated eperience of absurdity, there would be no reason to attempt to do something meaningful. And on the contrary, how can one experience one’s own absurdity if one is not constantly seeking meaning?
+ - I am not an optimist, because I am not sure that everything ends well. Nor am I a pessimist, because I am not sure that everything ends badly. I just carry hope in my heart.
+ - Sometimes I wonder if suicides aren’t in fact sad guardians of the meaning of life.
+ - Hope is a state of mind, not of the world. Hope, in this deep and powerful sense, is not the same as joy that things are going well, or willingness to invest in enterprises that are obviously heading for success, but rather an ability to work for something because it is good.
+ - Hope is not a feeling of certainty that everything ends well. Hope is just a feeling that life and work have a meaning.
+ - Man is not an omipotent master of the universe, allowed to do with impunity whatever he thinks, or whatever suits him at the moment. The world we live in is made of an immensely complex and mysterious tissue about which we know very little and which we must treat with utmost humility.
+ - Hope is a feeling that life and work have meaning. You either have it or you don’t, regardless of the state of the world that surrounds you.
+ - This is a confusing and uncertain period, when a thousand wise words can go completely unnoticed, and one thoughtless word can provoke an utterly nonsensical furor.
+ - Isn’t it the moment of most profound doubt that gives birth to new certainties? Perhaps hopelessness is the very soil that nourishes human hope; perhaps one could never find sense in life without first experiencing its absurdity.
+ - There’s always something suspect about an intellectual on the winning side.
+ - I have preserved my identity, put its credibility to the test and defended my dignity. What good this will bring the world I don’t know. But for me it is good.
+ - Sober perseverance is more effective than enthusiastic emotions, which are all too capable of being transferred, with little difficulty, to something different each day.
+ - Our social and economic statistics are telling us what we already know in our hearts: we have created a world that works for only a few. To change this, we must learn to act toward each other and our environment in profoundly different ways.
+ - English is the ‘language of liberty’ for nations emerging from years of cultural oppression.
+ - In any case, ideals are something we strive for; they are somewhere on the horizon of our efforts; they provide meaning and direction; they are not, however, static quotas that we either fulfill or do not.
+ - Whether all is really lost or not depends entirely on whether or not I am lost.
+ - People have passed through a very dark tunnel at the end of which there was a light of freedom. Unexpectedly they passed through the prison gates and found themselves in a square. They are now free and they don’t know where to go.
+ - The exercise of power is determined by thousands of interactions between the world of the powerful and that of the powerless, all the more so because these worlds are never divided by a sharp line: everyone has a small part of himself in both.
+ - I think theatre should always be somewhat suspect.
+ - Human rights, human freedoms, and human dignity have their deepest roots somewhere outside the perceptible world. These values are as powerful as they are because, under certain circumstances, people accept them without compulsion and are willing to die for them.
+ - I feel that the dormant goodwill in people needs to be stirred. People need to hear that it makes sense to behave decently or to help others, to place common interests above their own, to respect the elementary rules of human coexistence.
+ - True enough, the country is calm. Calm as a morgue or a grave, would you not say?
+ - Nothing is more powerful than individuals acting out of their own conscience.
+ - Modern man must descend the spiral of his own absurdity to the lowest point; only then can he look beyond it. It is obviously impossible to get around it, jump over it, or simply avoid it.
+ - If a single writer in a country is in chains, then there are some links of that chain that binds us all.
+ - There can be no doubt that distrust of words is less harmful than unwarranted trust in them. Besides, to distrust words, and indict them for the horrors that might slumber unobtrusively within them – isn’t this, after all, the true vocation of the intellectual?
+ - Those who rebelled against totalitarian rule and those who simply managed to remain themselves and think freely, were all persecuted. We should not forget any of those who paid for our present freedom in one way or another.
+ - The role of the writer is not simply to arrange Being according to his own lights; he must also serve as a medium to Being and remain open to its often unfathomable dictates. This is the only way the work can transcend its creator and radiate its meaning.
+ - The real test of a man is not when he plays the role that he wants for himself but when he plays the role destiny has for him.
+ - Evil must be confronted in its womb and, if it can’t be done otherwise, then it has to be dealt with by the use of force.
+ - Communism was overthrown by life, by thought, by dignity.
+ - If we are to change our world view, images have to change. The artist now has a very important job to do. He’s not a little peripheral figure entertaining rich people, he’s really needed.
+ - The worst thing is that we live in a contaminated moral environment. We fell morally ill because we became used to saying something different from what we thought. Concepts such as love, friendship, compassion, humility or forgiveness lost their depth and dimension.
+ - Modern science kills God and takes his place on the vacant throne. Science is the sole legitimate arbiter of all relavent truth.
+ - As in everything else, I must start with myself. That is: in all circumstances try to be decent, just, tolerant, and understanding, and at the same time try to resist corruption and deception. In other words, I must do my utmost to act in harmony with my conscience and my better self.
+ - Even a purely moral act that has no hope of any immediate and visible political effect can gradually and indirectly, over time, gain in political significance.
+ - As soon as man began considering himself the source of the highest meaning in the world and the measure of everything, the world began to lose its human dimension, and man began to lose control of it.
+ - We fell morally ill because we became used to saying something different from what we thought.
+ - The deeper the experience of an absence of meaning – in other words, of absurdity – the more energetically meaning is sought.
+ - The world is not divided into two types of being, one superior and the other merely surrounding it. Being, nature, the universe – they are all one infinitely complex and mysterious metaorganism of which we are but a part, though a unique one.
+ - Our country, if that is what we want, can now permanently radiate love, understanding, the power of the spirit and of ideas. It is precisely this glow that we can offer as our specific contribution to international politics.
+ - There is only one thing I will not concede: that it might be meaningless to strive in a good cause.
+ - Human rights are universal and indivisible. Human freedom is also indivisible: if it is denied to anyone in the world, it is therefore denied, indirectly, to all people. This is why we cannot remain silent in the face of evil or violence; silence merely encourages them.
+ - The salvation of the world lies in the human heart.
+ - But if I were to say who influenced me most, then I’d say Franz Kafka. And his works were always anchored in the Central European region.
+ - Drama assumes an order. If only so that it might have – by disrupting that order – a way of surprising.
+ - It is not enough to invent new machines, new regulations, or new institutions. We must understand differently and more perfectly the true purpose of our existence on this earth.
+ - A genuinely fundamental and hopeful improvement in “systems” cannot happen without a significant shift in human consciousness.
+ - If I have accomplished anything good, then it’s mainly because I’ve been driven by the need to know whether I can accomplish things I’m not sure I have the capacity for.
+ - The award is destined for scientists who do not fear to touch on some of the darkest aspects of being without betraying what they have achieved. On the contrary, they head in this direction.
+ - By perceiving ourselves as part of the river, we take responsibility for the river as a whole.
+ - Frank Zappa was one of the gods of the Czech underground, I thought of him as a friend. Whenever I feel like escaping from the world of the Presidency, I think of him.
+ - I think its important for one to take a certain distance from oneself.
+ - I cannot imagine that I could strive for something if I did not carry hope in me.
+ - Ultimately, power only really listens to power, and if government is to be improved, we must be able to threaten its existence, not merely its reputation.
+ - Anyone who takes himself too seriously always runs the risk of looking ridiculous; anyone who can consistently laugh at himself does not.
+ - People, your Government has returned to you!
+ - It seems to me that one of the most basic human experiences, one that is genuinely universal and unites-or, more precisely, could unite-all of humanity, is the experience of transcendence in the broadest sense of the word.
+ - There is only one Art, whose sole criterion is the power, the authenticity, the revelatory insight, the courage and suggestiveness with which it seeks its truth.
+ - To serve grand ideas with a major work is not bad, nor is it all there’s to art.
+ - There can be no doubt that distrust of words is less harmful than unwarranted trust in them.
+ - A human action becomes genuinely important when it springs from the soil of a clear-sighted awareness of the temporality and the ephemerally of everything human. It is only this awareness that can breathe any greatness into an action.
+ - I have found that good taste, oddly enough, plays an important role in politics. Why is it like that? The most probable reason is that good taste is a visible manifestation of human sensibility toward the world, environment, people.
+ - You can’t spend your whole life criticizing something and then, when you have the chance to do it better, refuse to go near it.
+ - Truth is not merely what we are thinking, but also why, to whom and under what circumstances we say it.
+ - Every consession gives rise to further concessions, we cannot back down, because behind us there is only an abyss, we must keep our promises and demand that they be kept.
+ - It was never the people who complained of the universality of human rights, nor did the people consider human rights as a Western or Northern imposition. It was often their leaders who did so.
+ - In my opinion, theater shouldn’t give advice to citizens.
+ - If by believing you mean praying to an anthropomorphic deity who created the world and half controls it and half observes it, then I am probably not a believer. But if you mean that it is not all accidental, that there is a mystery to existence, a deeper meaning, that I do believe in.
+ - Time and time again I have been persuaded that a huge potential of goodwill is slumbering within our society. It’s just that it’s incoherent, suppressed, confused, crippled and perplexed.
+ - I have read somewhere that in a totalitarian system martyrdom does better than thought.
+ - Man is a part of the world, and his spirit is part of the spirit of the world. We are merely a peculiar mode of Being, a living atom within it, or, rather, a cell that, if sufficiently open to itself and its own mystery, can also experience the mystery, the will, the pain, and the hope of the world.
+ - It lies in human nature that where you experience your first laughs, you also remember the age kindly.
+ - Hope is the deep orientation of the human soul that can be held at the darkest times.
+ - I really do inhabit a system in which words are capable of shaking the entire structure of government, where words can prove mightier than ten military divisions.
+ - The attempt to devote oneself to literature alone is a most deceptive thing, and often, paradoxically, it is literature that suffers for it.
+ - People who live in the post-totalitarian system know only too well that the question of whether one or several political parties are in power, and how these parties define and label themselves, is of far less importance than the question of whether or not it is possible to live like a human being.
+ - People thought they could explain and conquer nature-yet the outcome is that they destroyed it and disinherited themselves from it.
+ - If one were required to increase the dramatic seriousness of his face in relation to the seriousness of the problems he had to confront, he would quickly petrify and become his own statue.
+ - If you want to see your plays performed the way you wrote them, become President.
+ - None of us know all the potentialities that slumber in the spirit of the population, or all the ways in which that population can surprise us when there is the right interplay of events.
+ - Those that say that individuals are not capable of changing anything are only looking for excuses.
+ - The hope of the world lies in the rehabilitation of the living human being, not just the body but also the soul.
+ - The truth is not simply what you think it is; it is also the circumstances in which it is said, and to whom, why, and how it is said.
+ - What’s certain is that a totalitarian enclave like Cuba’s can’t continue to exist, so change will definitely come there, eventually.
+
+114 quotes

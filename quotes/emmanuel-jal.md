@@ -1,0 +1,31 @@
+ - The worst people on earth are not only those who commit evil, but those who stand by and turn a blind eye.
+ - Knife crime and gun crime is poverty-driven, and poverty leads to insecurity.
+ - I’m still a soldier, fighting with my pen and paper for peace till the day I cease.
+ - A lot of child soldiers lose their minds.
+ - A cold heart is my protection mechanism. I don’t really feel anything for anyone.
+ - Any child soldier has to go through a lot of love, care and understanding to become normal.
+ - Education is the only solution for peace.
+ - Music is powerful. It is the only thing that can speak into your mind, your heart and your soul without your permission.
+ - Sometimes words are not needed, and the simplicity of expressing yourself through an art form is one of the best ways of communication.
+ - I lost my childhood. I didn’t play football or video games. Or have birthdays or the love of a family.
+ - Only a coward will use a gun to protect and get respect for themselves.
+ - I am proof that one person can rise above any challenge, and if I can, then so will others if they are given the chance.
+ - When people know you’ve been a soldier, they judge you: you are a thief, a lost boy.
+ - In Africa, you know, if you’re poor, at least you can go to the forest and share some mangoes with the gorillas and monkey.
+ - To tell my story, to touch lives.
+ - It’s no longer about the Lost Boys. They keep trying to make their way out, then they meet other people and empathize with them. It’s a story that a lot of people are going to discover their purpose from. When someone doesn’t know their purpose, they get lost.
+ - Peace may be negotiated by politicians, but it is something written in hearts and minds not on pieces of paper.
+ - When I was in south Sudan, people used to rap in my village. But the rapping was more in the mother tongue, Nuer.
+ - I still have nightmares of dead comrades, a long time ago, talking to me. ‘Emmanuel, don’t forget about us, don’t give up, keep telling our story.’
+ - I don’t take modern hip-hop as real. It’s entertaining, it’s fake, like James Bond.
+ - I don’t know anywhere where the people are hungrier for education than South Sudan.
+ - I’m constantly seen as a ‘foreigner,’ and I need my passport to prove my identity, to keep moving and to carry on my work.
+ - I’m rapping in English but in an African way. I’m not trying to sound like an American.
+ - If you really kill, you don’t want to talk about it.
+ - I grew up in poverty. For 25 years I was fed on aid.
+ - Music is actually where I see heaven.
+ - For many Sudanese, it’s for strength they choose to be Christian rather than Muslim. My mum was a Muslim but she became a Christian later.
+ - If I sleep for more than half an hour, I get horrible dreams in which I’m firing a gun and helicopters are coming down.
+ - In Africa, music is for everything, Music was originally used for community. That was what music was for.
+
+29 quotes

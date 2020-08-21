@@ -1,0 +1,35 @@
+ - We are sitting on our honeymoon bed in the honeymoon suite. We are in a state of honeymoon, in our honey month. These words are so sweet: honey, moon. This bed is so big, we could live on it. We have been happily marooned – honey marooned – on this bed for days.
+ - You should never poison a witch.
+ - You have to salvage what you can, even if you’re the one who buried it in the first place.
+ - Life is a series of sudden disappearances, leave-takings without the proper goodbyes.
+ - Everyone has a bizarre childhood and unusual life experiences, whether they know it or not. There’s no such thing as a normal childhood. What’s useful in writing weird fiction is learning how to understand and articulate those moments of personal, particular strangeness.
+ - A monster. You and your friends, all of you. Pretty monsters. It’s a stage all girls go through. If you’re lucky you get through it without doing any permanent damage to yourself or anyone else.
+ - Becka was almost good looking enough to be on a reality dating show, but not funny looking or sad enough to be on one of the makeover shows.
+ - I don’t think I’m cut out for a job where you have to look professionally tidy. I prefer working in my pajamas and taking showers after lunch.
+ - The beloved may be treacherous, greasy-headed and given to evil habits, or else it can be a man in his late forties who works too much, or it can be an alarm clock.
+ - Most of My Friends are two-thirds water.
+ - No wizard has ever made himself useful by magic, or, if they’ve tried, they’ve only made matters worse. No wizard ever stopped a war or mended a fence. It’s better that they stay in their marshes, out of the way of worldly folk like farmers and soldiers and merchants and kings.
+ - Remember, when you don’t know what to do, it never hurts to play Scrabble. It’s like reading the I Ching or tea leaves.
+ - You were going to travel for love, without shoes, or cloak, or common sense. This is one of the things a woman can do when her lover leaves her. It’s hard on the feet perhaps, but staying at home is hard on the heart, and you weren’t quite ready to give up on him yet.
+ - You get a lot of narrative energy from people who make really big mistakes, who act against their best interests, who do things that turn out to have serious consequences. It’s very hard make a story out of people doing the right thing over and over again.
+ - The world is a dangerous place, full of people who don’t trust each other. This is why I am staying up in this tree.
+ - I’m grateful when stories come in a rush, although I keep an eye on them afterwards, to see whether they hold together. It’s harder to judge the ones that took so long to finish. With those, I’ve lost perspective. Mostly I’m just glad that I can be done with them.
+ - As if our happiness, our good fortune, might rub off, contestants ask us for a light: they brush up against us in the halls, pull strands of hair off our clothing. Whenever we leave our bed, our room – not often – two or three are sure to be lurking just outside our door.
+ - You may very well ask what the goddess of love is doing in St. Andrews, writing trashy romances. Adapting.
+ - Our eyes are always blind when they view the future.
+ - Part of you is always traveling faster, always traveling ahead. Even when you are moving, it is never fast enough to satisfy that part of you.
+ - I don’t abandon stories once I’ve started working on them. Once I sit down and start a story, I’ll be damned if I’m going to give up on it. But I do reject most of the ideas for stories that I come up with.
+ - I’d be flattered if someone said that my work is “too weird” for them. I value the uncompliment.
+ - Everyone knows that wizards are pigheaded and come to bad ends.
+ - In terms of style, too, I think I’ve been working with a somewhat limited – although intentionally limited – set of tools. So I’m attempting to be a bit looser as I start stories off. To digress. To make interesting mistakes.
+ - What I like about narrative in general is when there is some incongruity between the form and content. Let’s say, mixing up the gothic with a coming-of-age narrative. Telling a love story that’s also a monster story. Mixing up superhero tropes with your monster tropes. I like category confusion.
+ - Whether or not this story has a happy ending depends, of course, on who is reading it. Whether you are a wolf or a girl.
+ - The zombies were like Canadians, in that they looked enough like real people at first, to fool you.
+ - I think that we want to be led slightly astray when we’re being told a story. Just a little wrong footed.
+ - When I’m up for an award, there are usually two or three other things on the ballot that I like better than my own fiction.
+ - Topiary has always seemed like a good occupation, comparable in some ways to writing short fiction.
+ - The initial spark usually has something to do with panic – I’m due to turn in a story to a workshop or an editor. It’s a terrible working method.
+ - Sometimes it is safer to read maps with your feet.
+ - It’s very unlikely that a writer is going to make a living by writing. So then the question is: how do you balance work, life, and writing? If you find out, please tell me.
+
+33 quotes

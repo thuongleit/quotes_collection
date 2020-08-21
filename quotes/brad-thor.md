@@ -1,0 +1,25 @@
+ - Freedom of speech includes the freedom to offend people.
+ - Power perceived is power achieved.
+ - If you steadfastly refused to quit, you rapidly narrowed your options to only winning.
+ - I always have a different way of looking at things.
+ - If we talk about the glass being half empty or half full, I want to know what does the glass look like from underneath the table?
+ - What has bothered and angered radical Muslims is that I’m a non-Muslim writing anything at all about Islam. But this is fiction, and I don’t think Islam is above criticism or fictionalization any more so than Judaism, Christianity, Mormonism or Hinduism is.
+ - Incredible brilliance often dwells on the razor’s edge of madness...
+ - Success leaves clues, and if you sow the same seeds, youll reap the same rewards.
+ - I am indeed honored to call him my friend.
+ - There aren’t many honest men or women in Washington anymore. Politicians get where they are by the sheer force of their egos, not their convictions. And you know what? It’s our fault as voters. We don’t demand better candidates, so we end up getting what we deserve – on both sides of the aisle.
+ - There is no justice in social justice, and there is no equality in social equality.
+ - I write about things that are important for us as Americans. I’m concerned about al-Qaeda sneaking across the border with the illegal immigrants that are using the coyotes to get across the border. And that’s not a Democrat or Republican issue, that’s a national security issue.
+ - I live in America. I have the right to write whatever I want. And it’s equaled by another right just as powerful: the right not to read it. Freedom of speech includes the freedom to offend people.
+ - You know when I told you the joke about how a friend will help you move, but a real friend will help you move a body? I was only kidding.
+ - We have an incredible warrior class in this country – people in law enforcement, intelligence – and I thank God every night we have them standing fast to protect us from the tremendous amount of evil that exists in the world.
+ - There are writers who go their whole lives and never hit that No. 1 spot.
+ - I’ve got more ideas for books than I’ll ever be able to use in my lifetime. I’m very fortunate like that.
+ - When you grow up with a name like Brad Thor, people expect you to be 6-foot-4 and a pile of muscles.
+ - I really believe that a writer is someone who has trained their mind to misbehave.
+ - Well, my books – I think one of the hallmarks of my thrillers is that they’re based in reality.
+ - I like books that have razor-sharp plotting that snaps and moves along. It’s not about the main character being different at the end. I don’t want my main character to be different in the end. I still want him committed to his ideas, to be steadfast, true and loyal.
+ - Al Qaeda doesn’t abide by the Geneva Conventions, so in my opinion, they should not be afforded the protections of them.
+ - Less really is more. It’s a tendency of beginning writers to want to prove what they’re talking about by going too far with description. I think you’ve got to keep it short, crisp and clean.
+
+23 quotes

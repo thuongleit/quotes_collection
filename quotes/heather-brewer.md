@@ -1,0 +1,44 @@
+ - The world is full of monsters with friendly faces.
+ - People fear what they can’t understand and harm what they fear.
+ - It never gets easier, missing you. And sometimes I wonder if it ever will.
+ - Sometimes you have to be alone to think, and sometimes the best place for thinking isn’t home.
+ - The worst pain in the world goes beyond the physical. Even further beyond any other emotional pain one can feel. It is the betrayal of a friend.
+ - Bullying is a horrible thing. It sticks with you forever. It poisons you. But only if you let it.
+ - It was tough attempting to be social with people who’d rather pretend you didn’t exist.
+ - Whoever had decided that school should start so early in the morning and last all day long needed to be hunted down and forced to watch hours of educational televison without the aid of caffine.
+ - Because teachers, no matter how kind, no matter how friendly, are sadistic and evil to the core.
+ - Because pieces of your heart clearly weigh more when they’re sitting shattered at the bottom of your stomach.
+ - A label doesn’t make something so. A label is just a word. It’s what a person does that makes them who they are.
+ - There’s nothing you can do, Sirus. No one can do this for me, and no one can swoop in and rescue me every time I’m challenged. I have to do this on my own.
+ - Vlad’s heart sank into his stomach, then squeezed its way down his leg and popped out of the hole in his shoe, where it struck the floor and broke.
+ - If you thought eighth grade was tough, try it with fangs and a fear of garlic.
+ - Someday, my young friend, you’ll find out that girls are actually people too. Just like you and me.
+ - Vampires are people too. They’ve got their own problems, they just drink blood.
+ - To his amazement, he could already hear Henry snoring in the backseat. That guy could fall asleep on a car trip to the mailbox.
+ - I’m a creature of the night for God’s sake And she wants me home by eleven?
+ - I’m too tired to reign over vampirekind, let alone enslave the human race.
+ - Mmmmm. Warm chocolate chip cookies. Not even AB negative can compare.
+ - Kid, not everything in life can be summed up neatly in a paragraph. No book has all of the answers. Not even the really good ones. You have to find the answers yourself sometimes.
+ - A word of advice, if I may? Explosions are an excellent way to kill the undead. But you should probably take a few steps back first, kid.
+ - Dude, you’re a vampire. EVERY day sucks for you.
+ - Vlad had found himself longing to encounter those of his own kind, to travel to the streets of Elysia-that far away world, but after a while it seemed more of a fairy tale than anything else. Like Santa Claus and the Tooth Fairy, only with fangs.
+ - According to his dad’s journal, vampires had been through some of the worst epidemics in history. And apparently, during the days of the Black Plague, their biggest complaint had been rotten “food”.
+ - Present company excluded, this looked to be the most pleasant detention ever experienced by mankind. Further proof that librarians should run the world-or a least be in charge of detention at Bathory High.
+ - Vlad blinked, unsure where her question was coming from and, more importantly, where it was going.
+ - A crease found it’s way onto Joss’s forehead. Because he was certain that Sirus was wrong. Girls were more complicated than boys. Girls communicated in a language that only they understood. And Joss wasn’t sure at all that he would ever understand them.
+ - Vlad twisted his wrist, pinching his fingers together, spinning the bronze coin on the table. When it fell, he picked it up and did it again, counting. Thirty-two times it had fallen Slayer Society up. Twenty-two times it was down.
+ - Getting staked had been a hard lesson in choosing one’s friends wisely.
+ - Funny how mishearing things-or not hearing them at all-can really screw things up.
+ - Read the vladimir tod series.
+ - Do you believe i am the Pravus?
+ - Otis D’ablo is alive! Do you here me? He is alive and trying to kill me!
+ - Joss’s ears perked up. He loved libraries. Nowhere else in the world felt so safe and homey. Nowhere else smelled like books and dust and happy solitude quite like a library did.
+ - Don’t you find any irony in a vampire sucking up?
+ - Nothing could convince Aunt Nelly to let Vlad stay home for the duration of the school year, which just goes to prove that parents and guardians don’t care if they’re sending you to face bloodthirsty monsters, so long as you get a B in English.
+ - If stakes and garlic were the top two things that could kill a vampire, ninth grade gym was a close third.
+ - I drive well! Says who your mom? No actually, she won’t even get in the car with me.
+ - Could you get O positive this time? That’s my favorite.
+ - Oh my glob!
+ - Live and everyone would die. Die and everyone would live. It seemed like such a simple choice. But nothing is ever as simple as it seems.
+
+42 quotes

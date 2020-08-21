@@ -1,0 +1,502 @@
+ - Music expresses that which cannot be put into words and that which cannot remain silent.
+ - Music expresses that which cannot be said and on which it is impossible to be silent.
+ - Even the darkest night will end and the sun will rise.
+ - To die is nothing; but it is terrible not to live.
+ - The future has several names. For the weak, it is impossible; for the fainthearted, it is unknown; but for the valiant, it is ideal.
+ - Nothing makes a man so adventurous as an empty pocket.
+ - People do not lack strength, they lack will.
+ - He who opens a school door, closes a prison.
+ - No army can withstand the strength of an idea whose time has come.
+ - Don’t educate your children to be rich. Educate them to be happy, so they know the value of things, not the price.
+ - Perseverance, secret of all triumphs.
+ - Laughter is sunshine, it chases winter from the human face.
+ - Adversity makes men, and prosperity makes monsters.
+ - To love or have loved, that is enough. Ask nothing further. There is no other pearl to be found in the dark folds of life.
+ - To learn to read is to light a fire; every syllable that is spelled out is a spark.
+ - Have courage for the great sorrows of life and patience for the small ones; and when you have laboriously accomplished your daily task, go to sleep in peace.
+ - Those who do not weep, do not see.
+ - Initiative is doing the right thing without being told.
+ - Diamonds are to be found only in the darkness of the earth, and truth in the darkness of the mind. 
+ - To love another person is to see the face of God.
+ - There is nothing like a dream to create the future.
+ - Reason is intelligence taking exercise. Imagination is intelligence with an erection.
+ - Concision in style, precision in thought, decision in life.
+ - Go out in the world and work like money doesn’t matter, sing as if no one is listening, love as if you have never been hurt, and dance as if no one is watching.
+ - Do you hear the people sing Lost in the valley of the night? It is the music of a people Who are climbing to the light. For the wretched of the earth There is a flame that never dies. Even the darkest night will end And the sun will rise.
+ - To love beauty is to see light.
+ - Go to sleep in peace. God is awake.
+ - Change your opinions, keep to your principles; change your leaves, keep intact your roots.
+ - Nihilism has no substance. There is no such thing as nothingness, and zero does not exist. Everything is something. Nothing is nothing.
+ - A writer is a world trapped in a person.
+ - All the forces in the world are not so powerful as an idea whose time has come.
+ - There is in every village a torch – the teacher; and an extinguisher – the priest.
+ - If I speak, I am condemned. If I stay silent, I am damned!
+ - Now life has killed the dream I dreamed.
+ - Conscience is God present in man.
+ - Melancholy is the pleasure of being sad.
+ - Curiosity is one of the forms of feminine bravery.
+ - I had a dream my life would be different from this hell I am living, so different from what it seemed. Now life has killed the dream I dreamed.
+ - Do you hear the people sing? Singing a song of angry men.
+ - What makes night within us may leave stars.
+ - Be like the bird who, pausing in her flight awhile on boughs too slight, feels them give way beneath her, and yet sings, knowing she hath wings.
+ - Love is the foolishness of men, and the wisdom of God.
+ - It is not easy to keep silent when silence is a lie.
+ - To contemplate is to look at shadows.
+ - Not being heard is no reason for silence.
+ - Certain thoughts are prayers. There are moments when, whatever be the attitude of the body, the soul is on its knees.
+ - Dreaming is happiness. Waiting is life.
+ - The malicious have a dark happiness.
+ - God knows better than we do what we need.
+ - When a man is out of sight, it is not too long before he is out of mind.
+ - You who suffer because you love, love still more. To die of love, is to live by it.
+ - I met in the street a very poor young man who was in love. His hat was old, his coat worn, his cloak was out at the elbows, the water passed through his shoes, – and the stars through his soul.
+ - Winter is on my head, but eternal spring is in my heart.
+ - You have enemies? Why, it is the story of every man who has done a great deed or created a new idea.
+ - To study in Paris is to be born in Paris!
+ - When a woman is talking to you, listen to what she says with her eyes.
+ - If you wish to understand what Revolution is, call it Progress; and if you wish to understand what Progress is, call it Tomorrow.
+ - The left-handed are precious; they take places which are inconvenient for the rest.
+ - The wicked envy and hate; it is their way of admiring.
+ - There are no weeds, and no worthless men. There are only bad farmers.
+ - To know, to think, to dream. That is everything.
+ - To put everything in balance is good, to put everything in harmony is better.
+ - The world is the expanding Greece and Greece is the shrinking world.
+ - There is something more terrible than a hell of suffering – a hell of boredom.
+ - There is one spectacle grander than the sea, that is the sky; there is one spectacle grander than the sky, that is the interior of the soul.
+ - When you get an idea into your head you find it in everything.
+ - Emergencies have always been necessary to progress. It was darkness which produced the lamp. It was fog that produced the compass. It was hunger that drove us to exploration. And it took a depression to teach us the real value of a job.
+ - Short as life is, we make it still shorter by the careless waste of time.
+ - Love is like a tree, it grows of its own accord, it puts down deep roots into our whole being.
+ - Caution is the eldest child of wisdom.
+ - Freedom begins where it ends ignorance.
+ - Great buildings, like great mountains, are the work of centuries.
+ - Music is the vapor of art. It is to poetry what reverie is to thought, what fluid is to solid, what the ocean of clouds is to the ocean of waves.
+ - He was fond of books, for they are cool and sure friends.
+ - The sewer is the conscience of the city.
+ - I have been loving you a little more every minute since this morning.
+ - Excitement is not enjoyment: in calmness lies true pleasure. The most precious wines are sipped, not bolted at a swallow.
+ - Nothing is more true, more real, than the primeval magnetic disturbances that two souls may communicate to one another, through the tiny sparks of a moment’s glance.
+ - He never went out without a book under his arm, and he often came back with two.
+ - Forty is the old age of youth; fifty the youth of old age.
+ - Love is a portion of the soul itself, and it is of the same nature as the celestial breathing of the atmosphere of paradise.
+ - The pupil dilates in darkness and in the end finds light, just as the soul dilates in misfortune and in the end finds God.
+ - A man is not idle because he is absorbed in thought. There is a visible labor and there is an invisible labor.
+ - So long as ignorance and poverty exist on earth, books of the nature of Les Miserables cannot fail to be of use.
+ - If suffer we must, let’s suffer on the heights.
+ - Let us sacrifice one day to gain perhaps a whole life.
+ - Life is a theatre set in which there are but few practicable entrances.
+ - Woman, nude, is the blue sky. Clouds and garments are an obstacle to contemplation. Beauty and infinity would be gazed upon unveiled.
+ - Virtue has a veil, vice a mask.
+ - All who suffer are full of hatred; all who live drag a remorse: the dead alone have broken their chains.
+ - Let us study things that are no more. It is necessary to understand them, if only to avoid them.
+ - Death belongs to God alone; by what right do men touch that unknown thing?
+ - Religion, Society, and Nature – these are the three struggles of man.
+ - A library implies an act of faith which generations, still in darkness hid, sign in their night in witness of the dawn.
+ - Toleration is the best religion.
+ - If a man has his throat cut in Paris, it’s a murder. If 50,000 people are murdered in the east, it is a question.
+ - Being good is easy, what is difficult is being just.
+ - The great acts of love are done by those who are habitually performing small acts of kindness.
+ - The first symptom of true love in a man is timidity, in a young woman, boldness. This is surprising, and yet nothing is more simple. It is the two sexes tending to approach each other and assuming each the other’s qualities.
+ - Ce n’est rien de mourir, C’est affreux de ne pas vivre.
+ - Curiosity is gluttony. To see is to devour.
+ - If people did not love one another, I really don’t see what use there would be in having any spring.
+ - He was at his own request and through his own complicity driven out of all his happinesses one after the other; and he had this sorrow, that after having lost Cosette wholly in one day, he was afterwards obliged to lose her again in detail.
+ - When dictatorship is a fact, revolution becomes a right.
+ - My revenge is fraternity! No more frontiers! The Rhine for everyone! Let us be the same Republic, let us be the United States of Europe, let us be the continental federation, let us be European liberty, let us be universal peace!
+ - He, who every morning plans the transactions of the day, and follows that plan, carries a thread that will guide him through a labyrinth of the most busy life.
+ - Taste is the common sense of genius.
+ - Is it not when the fall is the lowest that charity ought to be the greatest?
+ - What would be ugly in a garden constitutes beauty in a mountain.
+ - Animals run no risk of going to hell. They are already there.
+ - Science says the first word on everything, and the last word on nothing.
+ - Love is like a tree: it grows by itself, roots itself deeply in our being and continues to flourish over a heart in ruin. The inexplicable fact is that the blinder it is, the more tenacious it is. It is never stronger than when it is completely unreasonable.
+ - Be as a bird perched on a frail branch that she feels bending beneath her, still she sings away all the same, knowing she has wings.
+ - Winter is on my head, but eternal spring is in my heart; I breathe at this hour the fragrance of the lilacs, the violets, and the roses, as at twenty years ago.
+ - Freedom in art, freedom in society, this is the double goal towards which all consistent and logical minds must strive.
+ - God created the flirt as soon as he made the fool.
+ - Our mind is enriched by what we receive, our heart by what we give.
+ - A garden to walk in and immensity to dream in – what more could he ask? A few flowers at his feet and above him the stars.
+ - Love, thine is the future. Death, I use thee, but I hate thee. Citizens, there shall be in the future neither darkness nor thunderbolts; neither ferocious ignorance nor blood for blood.
+ - The paradise of the rich is made out of the hell of the poor.
+ - At the moment when her eyes closed, when all feeling vanished in her, she thought that she felt a touch of fire imprinted on her lips, a kiss more burning than the red-hot iron of the executioner.
+ - To divinise is human, to humanise is divine.
+ - Peace is the virtue of civilization. War is its crime.
+ - Success is a very hideous thing. Its false resemblance to merit deceives men.
+ - The human soul has still greater need of the ideal than of the real. It is by the real that we exist; it is by the ideal that we live.
+ - The most powerful symptom of love is a tenderness which becomes at times almost insupportable.
+ - Inspiration and genius -one and the same.
+ - An intelligent hell would be better than a stupid paradise.
+ - When two souls have finally found each other, there is established between them a union which begins on earth and continues forever in heaven.
+ - A house is built of logs and stone, of tiles and posts and piers; a home is built of loving deeds that stand a thousand years.
+ - Every bird that flies has the thread of the infinite in its claw.
+ - Sorrow is a fruit. God does not make it grow on limbs too weak to bear it.
+ - One drop of wine is enough to redden a whole glass of water.
+ - Morality is truth in full bloom.
+ - Woe, alas, to those who have loved only bodies, forms, appearances! Death will rob them of everything. Try to love souls, you will find them again.
+ - Love each other dearly always. There is scarcely anything else in the world but that: to love one another.
+ - What is history? An echo of the past in the future; a reflex from the future on the past.
+ - We are all under sentence of death, but with a sort of indefinite reprieve.
+ - The ode lives upon the ideal, the epic upon the grandiose, the drama upon the real.
+ - She had had sweet dreams, which possibly arose from the fact that her little bed was very white.
+ - Each man should frame life so that at some future hour fact and his dreaming meet.
+ - When I speak to you about myself, I am speaking to you about yourself. How is it you don’t see that?
+ - It is by suffering that human beings become angels.
+ - Our life dreams the Utopia. Our death achieves the Ideal.
+ - The clouds, – the only birds that never sleep.
+ - Love is reducing the universe to one being.
+ - There is always more misery among the lower classes than there is humanity in the higher.
+ - Sacrificing the earth for paradise is giving up the substance for the shadow.
+ - Teach the ignorant as much as you can; society is culpable in not providing a free education for all and it must answer for the night which it produces. If the soul is left in darkness sins will be committed. The guilty one is not he who commits the sin, but he who causes the darkness.
+ - Strong and bitter words indicate a weak cause.
+ - The supreme happiness of life is the conviction that we are loved.
+ - He did not study God; he was dazzled by him.
+ - One can resist the invasion of an army but one cannot resist the invasion of ideas.
+ - A mother’s arms are made of tenderness and children sleep soundly in them.
+ - Hope is the word which God has written on the brow of every man.
+ - In love, such a word, whispered, is a mysterious kiss of the soul to the soul.
+ - A compliment is something like a kiss through a veil.
+ - It is man’s consolation that the future is to be a sunrise instead of a sunset.
+ - What matters deafness of the ear, when the mind hears? The one true deafness, the incurable deafness, is that of the mind.
+ - Philosophy is the microscope of thought.
+ - There is suffering in the light; in excess it burns. Flame is hostile to the wing. To burn and yet to fly, this is the miracle of genius.
+ - Let us fear the worst, but work with faith; the best will always take care of itself.
+ - It is God who makes woman beautiful, it is the devil who makes her pretty.
+ - Another story must begin!
+ - It is an unpleasant thing to go to bed without supper, it is a still less pleasant thing not to sup and not to know where one is to sleep.
+ - A faith is a necessity to a man. Woe to him who believes in nothing.
+ - What I feel for you seems less of earth and more of a cloudless heaven.
+ - God has made the cat to give man the pleasure of caressing the tiger.
+ - The mountains, the forest, and the sea, render men savage; they develop the fierce, but yet do not destroy the human.
+ - Life is the flower for which love is the honey.
+ - Knowledge is a weight added to conscience.
+ - She might have melted a heart of stone, but nothing can melt a heart of wood.
+ - If you don’t build castles in the air you won’t build anything on the ground.
+ - Thought is the work of the intellect, reverie is its self-indulgence. To substitute day-dreaming for thought is to confuse a poison with a source of nourishment.
+ - If you look in the eyes of the young, you see flame. If you look in the eyes of the old, you see light.
+ - At the shrine of friendship never say die, let the wine of friendship never run dry.
+ - Wherever the Turkish hoof trods, no grass grows.
+ - If you are stone, be magnetic; if a plant, be sensitive; but if you are human be love.
+ - First it was necessary to civilize man in relation to man. Now it is necessary to civilize man in relation to nature and the animals.
+ - To give thanks in solitude is enough. Thanksgiving has wings and goes where it must go. Your prayer knows much more about it than you do.
+ - Happiness lies for those who cry, those who hurt, those who have searched, and those who have tried for only they can appreciate the importance of people who have touched their lives.
+ - God made only water, but man made wine.
+ - As the purse is emptied, the heart is filled.
+ - When grace is joined with wrinkles, it is adorable. There is an unspeakable dawn in happy old age.
+ - Philosophy is the microscope of thought. Everything desires to flee from it, but nothing escapes it.
+ - Everything being a constant carnival, there is no carnival left.
+ - If I were Jesus Christ, I would save Judas.
+ - For there are many great deeds done in the small struggles of life.
+ - To lie a little is not possible: he who lies, lies the whole lie.
+ - Whatever causes night in our souls may leave stars. Cimourdain was full of virtues and truth, but they shine out of a dark background.
+ - Good actions are the invisible hinges on the doors of heaven.
+ - Tobacco is the plant that converts thoughts into dreams.
+ - Reaction – a boat which is going against the current but which does not prevent the river from flowing on.
+ - The author creates a book and the people accept or not accept it. The creator of a book is an author and the creator of it’s fate are people.
+ - Here we stop. On the threshold of wedding nights stands an angel smiling, a finger to his lips.
+ - Where no plan is laid, where the disposal of time is surrendered merely to the chance of incident, chaos will soon reign.
+ - True thinkers are characterized by a blending of clearness and mystery.
+ - Everything speaks: the flowing airstream and the sailing halycon, the blade of grass, the flower, the bud, the element; did you imagine the universe to be otherwise?
+ - Vengeance comes from the individual and punishment from God.
+ - Hope is a delusion; no hand can grasp a wave or a shadow.
+ - There are fathers who do not love their children; there is no grandfather who does not adore his grandson.
+ - Men hate those to whom they have to lie.
+ - Slaves would be tyrants were the chance theirs.
+ - Everything bows to success, even grammar.
+ - Inanimate objects sometimes appear endowed with a strange power of sight. A statue notices, a tower watches, the face of an edifice contemplates.
+ - To die for lack of love is horrible. The asphyxia of the soul.
+ - Friend is sometimes a word devoid of meaning; enemy, never.
+ - Stupidity talks, vanity acts.
+ - God became man, granted. The devil became a woman.
+ - Strong and rare natures are thus created; misery, almost always a stepmother, is sometimes a mother; privation gives birth to power of soul and mind; distress is the nurse of self-respect; misfortune is a good breast for great souls.
+ - Of all the things that God has made, the human heart is the one which sheds the most light, alas! and the most darkness.
+ - The first symptom of love in a young man is timidity; in a girl boldness.
+ - Gutenberg’s invention of printing is the greatest event-the mother of revolution.
+ - There is a secret drawer in every woman’s heart.
+ - Fashions have done more harm than revolutions.
+ - I wanted to see you again, touch you, know who you were, see if I would find you identical with the ideal image of you which had remained with me and perhaps shatter my dream with the aid of reality. -Claude Frollo.
+ - Thought is the labor of the intellect, reverie is its pleasure.
+ - People weighed down with troubles do not look back; they know only too well that misfortune stalks them.
+ - The man is placed where the Earth ends, the woman, where the heaven starts.
+ - The man who does not know other languages, unless he is a man of genius, necessarily has deficiencies in his ideas.
+ - Dry happiness is like dry bread. We eat, but we do not dine. I wish for the superfluous, for the useless, for the extravagant, for the too much, for that which is not good for anything.
+ - The word is the Verb, and the Verb is God.
+ - If we must suffer, let us suffer nobly.
+ - To pay compliments to the one we love is the first method of caressing, a demi-audacity venturing. A compliment is something like a kiss through a veil.
+ - Try as you will, you cannot annihilate that eternal relic of the human heart, love.
+ - It is only barbarous nations who have a sudden growth after a victory.
+ - I represent a party which does not yet exist: the party Revolution-Civilization. This party will make the twentieth century. There will issue from it first the United States of Europe, then the United States of the World.
+ - Love is the only future God offers.
+ - Common sense is in spite of, not as the result of education.
+ - I would rather be the head of a fly than the tail of a lion.
+ - The truth of an upright man must be accepted on his own terms. Moreover, since natures vary, we must agree that all the beauties of human excellence may be fostered by faiths that we do not share.
+ - A wretched woman is more unfortunate than a wretched man.
+ - Waterloo is a battle of the first rank won by a captain of the second.
+ - Mankind is not a circle with a single center but an ellipse with two focal points of which facts are one and ideas the other.
+ - I love all men who think, even those who think otherwise than myself.
+ - Men are still men. The despot’s wickedness Comes of ill teaching, and of power’s excess, – Comes of the purple he from childhood wears, Slaves would be tyrants if the chance were theirs.
+ - There is neither a foreign war nor a civil war; there is only just and unjust war.
+ - A day will come when markets, open to trade, and minds, open to ideas, will become the sole battlefield.
+ - Poetry contains philosophy as the soul contains reason.
+ - One is not idle because one is absorbed. There is both visible and invisible labor. To contemplate is to toil, to think is to do. The crossed arms work, the clasped hands act. The eyes upturned to Heaven are an act of creation.
+ - A strange thing has happened, do you know? I am in darkness. There is a person who, departing, took away the sun.
+ - Wisdom is the health of the soul.
+ - I put a Phrygian cap on the old dictionary.
+ - Happiness wishes everybody happy.
+ - And do you know Monsieur Marius? I believe I was a little in love with you.
+ - We are not loved by our friends for what we are; rather, we are loved in spite of what we are.
+ - I was dying when you came.
+ - When the heart is dry the eye is dry.
+ - To live a life which is a perpetual falsehood is to suffer unknown tortures.
+ - The most ferocious animals are disarmed by caresses to their young.
+ - Yes, the brutalities of progress are called revolutions.
+ - Rhyme, that enslaved queen, that supreme charm of our poetry, that creator of our meter.
+ - We say that slavery has vanished from European civilization, but this is not true. Slavery still exists, but now it applies only to women and its name is prostitution.
+ - Progress is not accomplished in one stage.
+ - Work, which makes a man free, and thought, which makes him worthy of freedom.
+ - God blesses man, not for having found but for having sought.
+ - A language does not become fixed. The human intellect is always on the march, or, if you prefer, in movement, and languages with it.
+ - There are many lovely women, but no perfect ones.
+ - The earlier works of a man of genius are always preferred to the newer ones, in order to prove that he is going down instead of up.
+ - No religion but blasphemes a little.
+ - The soul has greater need of the ideal than of the real.
+ - A great artist is a great man in a great child.
+ - Architecture has recorded the great ideas of the human race. Not only every religious symbol, but every human thought has its page in that vast book.
+ - Children at once accept joy and happiness with quick familiarity, being themselves naturally all happiness and joy.
+ - Let the one fight for his flag, and the other for his ideal, and let them both imagine that they are fighting for the country; the strife will be colossal.
+ - Revolutions spring not from accident, but from necessity. A revolution is a return from the factitious to the real. It takes place because it must.
+ - There have been in this century only one great man and one great thing: Napoleon and liberty. For want of the great man, let us have the great thing.
+ - Despotism is a long crime.
+ - I am a soul. I know well that what I shall render up to the grave is not myself. That which is myself will go elsewhere. Earth, thou art not my abyss!
+ - France lost a great novel last night.
+ - A stout heart may be ruined in fortune but not in spirit.
+ - But when ill indeed, Even dismissing the doctor don’t always succeed.
+ - If the infinite had no me, then me would be its limit. It would not be the infinite, therefore it would not be.
+ - Too much improvisation leaves the mind stupidly void.
+ - The saints were his friends, and blessed him; the monsters were his friends, and guarded him.
+ - The tomb is not a blind alley: it is a thoroughfare. It closes on the twilight. It opens on the dawn.
+ - Promise to give me a kiss on my brow when I am dead. – I shall feel it.
+ - Great perils have this beauty, that they bring to light the fraternity of strangers.
+ - The little people must be sacred to the big ones, and it is from the rights of the weak that the duty of the strong is comprised.
+ - Her soul trembled on her lips like a drop of dew on a flower.
+ - Nothing awakens reminiscence like an aroma.
+ - A bit of mould is a pleiad of flowers; a nebula is an ant-hill of stars.
+ - Between the government which does evil and the people who accept it – there is a certain shameful solidarity.
+ - The straight line, a respectable optical illusion which ruins many a man.
+ - You would have imagined her at one moment a maniac, at another a queen.
+ - He who contemplates the depths of Paris is seized with vertigo. Nothing is more fantastic. Nothing is more tragic. Nothing is more sublime.
+ - Nature, like a kind and smiling mother, lends herself to our dreams and cherishes our fancies.
+ - Every blade has two edges; he who wounds with one wounds himself with the other.
+ - Son, brother, father, lover, friend. There is room in the heart for all the affections, as there is room in heaven for all the stars.
+ - Nations, like stars, are entitled to eclipse. All is well, provided the light returns and the eclipse does not become endless night. Dawn and resurrection are synonymous. The reappearance of the light is the same as the survival of the soul.
+ - Our acts make or mar us, we are the children of our own deeds.
+ - No one knows like a woman how to say things which are at once gentle and deep.
+ - If you are leaving that sorrowful place with hate and anger against men, you are worthy of compassion; if you leave it with good will, gentleness and peace, you are better than any of us.
+ - The soul helps the body, and at certain moments raises it. It is the only bird that sustains its cage.
+ - He left her. She was dissatisfied with him. He had preferred to incur her anger rather than cause her pain. He had kept all the pain for himself.
+ - Do not ask the name of the person who seeks a bed for the night. He who is reluctant to give his name is the one who most needs shelter.
+ - God is behind everything, but everything hides God.
+ - It is from books that wise people derive consolation in the troubles of life.
+ - A one-eyed man is much more incomplete than a blind man, for he knows what it is that’s lacking.
+ - But alas, if I have not maintained my victory, it is God’s fault for not making man and the devil of equal strength.
+ - I was always a lover of soft-winged things.
+ - A doctor’s door should never be closed, a priest’s door should always be open.
+ - Not seeing people permits us to imagine them with every perfection.
+ - You are adorable, mademoiselle. I study your feet with the microscope and your soul with the telescope.
+ - He reached for his pocket, and found there, only reality.
+ - The thirst for the Infinite proves infinity.
+ - Prayer is an august avowal of ignorance.
+ - We are reassured almost as foolishly as we are alarmed; human nature is so constituted.
+ - A breath of Paris preserves the soul.
+ - If a writer wrote merely for his time, I would have to break my pen and throw it away.
+ - Love resembles a tree: it bends under its own weight, deeply rooted in our being and sometimes turns green in the ruins of a heart.
+ - Nothing discernible to the eye of the spirit is more brilliant or obscure than man; nothing is more formidable, complex, mysterious, and infinite. There is a prospect greater than the sea, and it is the sky; there is a prospect greater than the sky, and it is the human soul.
+ - The learned man knows that he is ignorant.
+ - She was sad with an obscure sadness of which she had not the secret herself. There was in her whole person the stupor of a life ended but never commenced.
+ - The wise man does not grow old, but ripens.
+ - The greatest products of architecture are less the works of individuals than of society; rather the offspring of a nation’s effort, than the inspired flash of a man of genius...
+ - The nearer I approach the end, the plainer I hear around me the immortal symphonies of the worlds which invite me. It is marvelous, yet simple.
+ - Marius and Cosette were in the dark in regard to each other. They did not speak, they did not bow, they were not acquainted; they saw each other; and, like the stars in the sky separated by millions of leagues, they lived by gazing upon each other.
+ - Nobody loves the light like the blind man.
+ - All animals are to be found in men and each of theme exists in some man, sometimes several at the time.
+ - A war between Europeans is a civil war.
+ - Yes, instruction! Light! Light! Everything comes from light, and to everything it returns.
+ - And must I now begin to doubt – who never doubted all these years? My heart is stone, and still it trembles. The world I have known is lost in the shadows. Is he from heaven or from hell? And does he know, that granting me my life today, this man has killed me, even so. – Javert.
+ - Emotion is always new and the word has always served; therein lies the difficulty of expressing emotion.
+ - I will be Chateaubriand or nothing.
+ - Symmetry is tedious, and tedium is the very basis of mourning. Despair yawns.
+ - Gavroche had fallen only to rise again; he sat up, a long stream of blood rolled down his face, he raised both arms in air, looked in the direction whence the shot came, and began to sing.
+ - Joy’s smile is much closer to tears than laughter.
+ - The guilty one is not he who commits the sin, but he who causes the darkness.
+ - By putting forward the hands of the clock you shall not advance the hour.
+ - My tastes are aristocratic, my actions democratic.
+ - The most beautiful of altars, he said, is the soul of an unhappy creature consoled and thankfing God.
+ - There are no trifles in the human story, no trifling leaves on the tree.
+ - The power of a glance has been so much abused in love stories, that it has come to be disbelieved in. Few people dare now to say that two beings have fallen in love because they have looked at each other. Yet it is in this way that love begins, and in this way only.
+ - Solitude either develops the mental power, or renders men dull and vicious.
+ - Progress is the stride of God.
+ - Great grief is a divine and terrible radiance which transfigures the wretched.
+ - Desiring always to be in mourning, he clothed himself with night.
+ - They say love is blindness of heart; I say not to love is blindness.
+ - Women are more credulous than men.
+ - You preserve your shame but you kill your glory.
+ - In 1815, M. Charles-Francois-Bienvenu Myriel was Bishop of D – – He was an old man of about seventy-five years of age; he had occupied the see of D – – since 1806.
+ - The sadness which reigned everywhere was but an excuse for unfailing kindness.
+ - The most excellent symbol of the people is the paving stone. One walks on it until it falls on one’s head.
+ - Paris is a sum total. Paris is the ceiling of the human race. All this prodigious city is an epitome of dead and living manners and customs. He who sees Paris, seems to see all history through with the sky and constellations in the intervals.
+ - I’d like a drink. I desire to forget life. Life is a hideous invention by somebody I don’t know. It doesn’t last, and it’s good for nothing. You break your neck simply living.
+ - Man lives more by affirmation than by bread.
+ - Jesus wept; Voltaire smiled. From that divine tear and from that human smile is derived the grace of present civilization.
+ - God has set his intentions in the flowers, in the dawn, in the spring, it is his will that we should love.
+ - The holy law of Jesus Christ governs our civilisation, but it does not yet permeate it.
+ - Revolutions are not born of chance but of necessity.
+ - There is one spectacle grander than the sea, That is the sky.
+ - A man without a woman is like a pistol without a trigger; it is the woman who makes the man go off.
+ - The peculiarity of sunrise is to make us laugh at all our terrors of the night, and our laugh is always proportioned to the fear we have had.
+ - Those who live are those who fight.
+ - For prying into any human affairs, non are equal to those whom it does not concern.
+ - When God desires to destroy a thing, he entrusts its destruction to the thing itself. Every bad institution of this world ends by suicide.
+ - There comes an hour when protest no longer suffices; after philosophy there must be action; the strong hand finishes what the idea has sketched.
+ - She loved with so much passion as she loved with ignorance. She did not know whether it were good or evil, beneficent or dangerous, necessary or accidental, eternal or transitory, permitted or prohibited: she loved.
+ - Is there not in every human soul a primitive spark, a divine element, incorruptible in this world and immortal in the next, which can be developed by goodness, kindled, lit up, and made to radiate, and which evil can never entirely extinguish.
+ - Nothing is more dangerous than discontinued labor; it is habit lost. A habit easy to abandon, difficult to resume.
+ - Civil war? What does that mean? Is there any foreign war? Isn’t every war fought between men, between brothers?
+ - Before him he saw two roads, both equally straight; but he did see two; and that terrified him – he who had never in his life known anything but one straight line. And, bitter anguish, these two roads were contradictory.
+ - The need of the immaterial is the most deeply rooted of all needs. One must have bread; but before bread, one must have the ideal.
+ - This child whom we Love, Brings daylight Into our soul.
+ - Oh! Everything I loved!
+ - Dear God! how beauty varies in nature and art. In a woman the flesh must be like marble; in a statue the marble must be like flesh.
+ - It was SHE. Whoever has loved knows all the radiant meaning contained in the three letters of this word ’she.
+ - You ask me what forces me to speak? a strange thing; my conscience.
+ - To rise from error to truth is rare and beautiful.
+ - It may be remarked in passing that success is an ugly thing. Men are deceived by its false resemblences to merit.
+ - Pain is as diverse as man. One suffers as one can.
+ - A criminal remains a criminal whether he uses a convict’s suit or a monarch’s crown.
+ - How did it happen that their lips came together? How does it happen that birds sing, that snow melts, that the rose unfolds, that the dawn whitens behind the stark shapes of trees on the quivering summit of the hill? A kiss, and all was said.
+ - O darkness, the sky is a gloomy precinct Whose door you close, and whose key the soul owns; And night divides itself in half, being diabolical and holy, Between Ilis, the black angel, and Christ, the starry Human Being.
+ - She was a lovely blonde, with fine teeth. She had gold and pearls for her dowry; but her gold was on her head, and her pearls were in her mouth.
+ - Nothing is really small; whoever is open to the deep penetration of nature knows this.
+ - What a grand thing, to be loved! What a grander thing still, to love!
+ - For dogs we kings should have lions, and for cats, tigers. The great benefits a crown.
+ - All roads are blocked to a philosophy which reduces everything to the word ‘no.’ To ‘no’ there is only one answer and that is ’yes.
+ - My misfortune is that I still resemble a man too much. I should liked to be wholly a beast like that goat. – Quasimodo.
+ - We teachers make the road, others will make the journey.
+ - Large, heavy, ragged black clouds hung like crape hammocks beneath the starry cope of the night. You would have said that they were the cobwebs of the firmament.
+ - Loving is almost a substitute for thinking. Love is a burning forgetfulness of all other things. How shall we ask passion to be logical?
+ - One can no more keep the mind from returning to an idea than the sea from returning to a shore. For a sailor, this is called the tide; in the case of the guilty it is called remorse. God stirs up the soul as well as the ocean.
+ - Men become accustomed to poison by degrees.
+ - Are you afraid of the good you might do?
+ - Press on! A better fate awaits thee.
+ - Die, very good, but do not make others die. Suicides like the one which is about to take place here are sublime, but suicide is restricted, and does not allow of extension; and so soon as it affects your neighbors, suicide becomes murder.
+ - Society is a republic. When an individual tries to lift themselves above others, they are dragged down by the mass, either by ridicule or slander.
+ - As with stomachs, we should pity minds that do not eat.
+ - Popularity? It’s glory’s small change.
+ - Never laugh at those who suffer; suffer sometimes those who laugh.
+ - To commit the least possible sin is the law for man. To live without sin is the dream of an angel. Everything terrestrial is subject to sin. Sin is a gravitation.
+ - Since we shall love each other, I shall be great and you shall be rich.
+ - Nature is pitiless; she never withdraws her flowers, her music, her fragrance, and her sunlight from before human cruelty or suffering.
+ - The women laughed and wept; the crowd stamped their feet enthusiastically, for at that moment Quasimodo was really beautiful. He was handsome – this orphan, this foundling, this outcast.
+ - You look at a star for two reasons, because it is luminous, and because it is impenetrable. You have beside you a sweeter radiance and a greater mystery, woman.
+ - As we have explained, in first love the soul is taken long before the body; later the body is taken long before the soul; sometimes the soul is not taken at all.
+ - Puns are the droppings of soaring wits.
+ - What says the law? You will not kill. How does it say it? By killing!
+ - The soul has illusions as the bird has wings: it is supported by them.
+ - Mirrors, those revealers of the truth, are hated; that does not prevent them from being of use.
+ - My day’s work will begin again the next morning. The tomb is not a blind alley.
+ - There are moments when a rope’s end, a pole, the branch of the tree, is life itself, and it is a frightful thing to see a living being lose his hold upon it, and fall like a ripe fruit.
+ - I think I missed my calling. I should have been an interior decorator.
+ - The last resort of kings, the cannonball. The last resort of the people, the paving stone.
+ - Anger may be foolish and absurd, and one may be wrongly irritated, but a man never feels outraged unless in some respect he is fundamentally right.
+ - To meditate is to labour; to think is to act.
+ - To be a saint is the exception; to be a just person is the rule. Err, stumble, commit sin, but be one of the just.
+ - Great blunders are often made, like large ropes, of a multitude of fibres.
+ - Sometimes he used a spade in his garden, and sometimes he read and wrote. He had but one name for these two kinds of labor; he called them gardening. ‘The Spirit is a garden,’ said he.
+ - In the domain of art there is no light without heat.
+ - Without vanity, without coquetry, without curiosity, in a word, without the fall, woman would not be woman. Much of her grace is in her frailty.
+ - Night and the day, when united, Bring forth the beautiful light.
+ - Style is the substance of the subject called unceasingly to the surface.
+ - Babylon violated diminishes Alexander; Rome enslaved diminishes Caesar; massacred Jerusalem diminishes Titus. Tyranny follows the tyrant. Woe to the man who leaves behind a shadow that bears his form.
+ - There are people who observe the rules of honor as one observes the stars, from a great distance.
+ - Enthusiasm is the fever of reason.
+ - One sees qualities at a distance and defects at close range.
+ - A tempest ceases, a cyclone passes over, a wind dies down, a broken mast can be replaced, a leak can be stopped, a fire extinguished, but what will become of this enormous brute of bronze?
+ - Intelligence is the wife, imagination is the mistress, memory is the servant.
+ - There are many tongues to talk, and but few heads to think.
+ - The aim of art is almost divine: to bring to life again if it is writing history, to create if it is writing poetry.
+ - We see past time in a telescope and present time in a microscope. Hence the apparent enormities of the present.
+ - The heart becomes heroic through passion. It is no longer composed of anything but what is pure; it no longer rests upon anything but what is elevated and great.
+ - Often the losing of a battle leads to the winning of progress. Less glory but greater liberty: the drum is silent and the voices of reason can be heard.
+ - A creditor is worse than a slave-owner; for the master owns only your person, but a creditor owns your dignity, and can command it.
+ - The production of souls is the secret of unfathomable depth.
+ - In joined hands there is still some token of hope, in the clinched fist none.
+ - To think of shadows is a serious thing.
+ - Winter changes into stone the water of heaven and the heart of man.
+ - There is no more sovereign eloquence than the truth in indignation.
+ - God put in man thought; society, action; nature, revery.
+ - I refuse the oration of all churches. I ask a prayer of all souls. I believe in God.
+ - Hell is an outrage on humanity. When you tell me that your deity made you in his image, I reply that he must have been very ugly.
+ - The omnipotence of evil has never resulted in anything but fruitless efforts. Our thoughts always escape from whoever tries to smother them.
+ - Seeing so much poverty everywhere makes me think that God is not rich. He gives the appearance of it, but I suspect some financial difficulties.
+ - In the animal world no creature born to be a dove turns into a scavenger. This happens only among men.
+ - All the human and animal manure which the world wastes, if returned to the land, instead of being thrown into the sea, would suffice to nourish the world.
+ - For true poetry, complete poetry, consists in the harmony of contraries. Hence, it is time to say aloud – and it is here above allthat exceptions prove the rule – that everything that exists in nature exists in art.
+ - Work is the law of life, and to reject it as boredom is to submit to it as torment.
+ - Let us say it now: to be blind and to be loved, is indeed, upon this earth where nothing is complete, one of the most strangely exquisite forms of happiness.
+ - He who is not master of his own thoughts is not accountable for his own deeds.
+ - A shadow is hard to seize by the throat and dash to the ground.
+ - It is the peculiarity of grief to bring out the childish side of man.
+ - Liberation is not deliverance.
+ - Sleep comes more easily than it returns.
+ - Whenever a man’s friends begin to compliment him about looking young, he may be sure that they think he is growing old.
+ - Phenomena intersect; to see but one is to see nothing.
+ - No man is more unhappy than the one who is never in adversity; the greatest affliction of life is never to be afflicted.
+ - The hatred of luxury is not an intelligent hatred. It implies a hatred of arts.
+ - A cannonball travels only two thousand miles an hour; light travels two hundred thousand miles a second. Such is the superiority of Jesus Christ over Napoleon.
+ - Take all reasonable advantage of that which the present may offer you. It is the only time which is ours. Yesterday is buried forever, and to-morrow we may never see.
+ - The onward march of the human race requires that the heights around it constantly blaze with noble lessons of courage. Deeds of daring dazzle history and form one of man’s guiding lights.
+ - There shall be no slavery of the mind.
+ - His whole life was now summed up in two words: absolute uncertainty within an impenetrable fog.
+ - He would give all of his clothes to his servant, admonishing him NOT to return them until he had completed his day’s work.
+ - Art needs no spur beyond itself.
+ - The beautiful has but one type, the ugly has a thousand.
+ - Great griefs exhaust. They discourage us with life. The man into whom they enter feels something taken from him. In youth, their visit is sad; later on, it is ominous.
+ - The wind of revolutions is not tractable.
+ - If God had intended that man should go backward, he would have given him eyes in the back of his head.
+ - The wise man is he who knows when and how to stop.
+ - Thus, during those nineteen years of torture and slavery, did this soul rise and fall at the same time. Light entered on the one side, and darkness on the other.
+ - A day will come when there will be no battlefields, but markets opening to commerce and minds opening to ideas.
+ - That is to be two and to be but one. A man and a woman mingled into one angel. It is heaven.
+ - Daring is the price of progress. All splendid conquests are the prize of boldness, more or less.
+ - Proverty and wealth are comparative sins.
+ - When love has fused and mingled two beings in a sacred and angelic unity, the secret of life has been discovered so far as they are concerned; they are no longer anything more than the two boundaries of the same destiny; they are no longer anything but the two wings of the same spirit. Love, soar.
+ - True or false, that which is said of men often occupies as important a place in their lives, and above all in their destinies, as that which they do.
+ - M. Myriel had to undergo the fate of every newcomer in a little town, where there are many mouths which talk, and very few heads which think.
+ - In every cradle decked with rosy wreath Lurk germs of death.
+ - When two mouths, made sacred by love, draw near to each other to create, it is impossible, that above that ineffable kiss there should not be a thrill in the immense mystery of the stars.
+ - What is called honors and dignities, and even honor and dignity, is generally fool’s gold.
+ - The delight we inspire in others has this enchanting peculiarity that, far from being diminished like every other reflection, it returns to us more radiant than ever.
+ - Profound hearts, wise minds, take life as God makes it; it is a long trial, and unintelligible preparation for the unknown destiny.
+ - I believe in religion against the religious; in the pitifulness of orisons, and in the sublimity of prayer.
+ - There is no rapture in the love which is prompted by esteem; such affection is lasting, not passionate.
+ - Monastic incarceration is castration.
+ - Crime is redeemed by remorse, but not by a blow of the axe or slipknot. Blood has to be washed by tears but not by blood.
+ - A woman’s best qualities are harmful if undiluted with prudence.
+ - His judgement demonstrates that one can be a genius and understand nothing of an art that is not one’s own.
+ - One only needs to see a smile in a white crape bonnet in order to enter the palace of dreams.
+ - The supreme ordeal, let us say rather, the only ordeal, is the loss of the beloved being.
+ - Earnestness is the salt of eloquence.
+ - To see so much misery everywhere, I suspect that God is not rich. He keeps up appearances, it is true, but I feel the pinch. He gives a revolution as a merchant, whose credit is low, gives a ball.
+ - I think, therefore I doubt.
+ - Women play with their beauty as children do with their knives. They wound themselves with it.
+ - The memory of an absent person shines in the deepest recesses of the heart, shining the more brightly the more wholly its object has vanished: a light on the horizon of the despairing, darkened spirit; a star gleaming in our inward night.
+ - Social prosperity means man happy, the citizen free, the nation great.
+ - The ox suffers, the cart complains.
+ - I only take a half share in the civil war; I am willing to die, I am not willing to kill.
+ - I like the laughter that opens the lips and the heart, shows at the same time the pearls and the soul.
+ - Marius and Cosette did not ask where this would lead them. They looked at themselves as arrived. It is a strange pretension for men to ask that love should lead them somewhere.
+ - Do not let it be your aim to be something, but to be someone.
+ - As a means of contrast with the sublime, the grotesque is, in our view, the richest source that nature can offer.
+ - The animal is ignorant of the fact that he knows. The man is aware of the fact that he is ignorant.
+ - Genius is a promontory jutting out into the infinite.
+ - I am for religion, against religions.
+
+500 quotes

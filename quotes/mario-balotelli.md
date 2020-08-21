@@ -1,0 +1,46 @@
+ - They say that abandonment is a wound that never heals. I say only that an abandoned child never forgets.
+ - Racism springs from ignorance.
+ - When I score I don’t celebrate, its my job, does a postman celebrate when he delivers post?
+ - I can win the Ballon d’Or, but only if Messi’s level drops a bit. It will be very complicated to do so if he keeps up his current form. I really believe I can win the award, but there’s not much I can do if Messi maintains this level.
+ - I don’t celebrate because I’m only doing my job. When a postman delivers letters, does he celebrate?
+ - Occasionally, you feel like the only person able to win the match. So you take all the responsibility, you do too much, and you do something bad.
+ - I have my life, my world. I do what I want, without annoying anyone.
+ - There’s only one that is a little stronger than me: Messi. All the others are behind me.
+ - You can’t delete racism. It’s like a cigarette. You can’t stop smoking if you don’t want to, and you can’t stop racism if people don’t want to. But I’ll do everything I can to help.
+ - For me, my mother is everything.
+ - The talent God gave me is beautiful and wonderful, but it is difficult because you are always facing other people keen to judge you. There are few people with such talent, so there are few able to judge what I am doing.
+ - I will not accept racism at all. It’s unacceptable. If someone throws a banana at me in the street, I will go to jail, because I will kill them.
+ - Sometimes in football you deserve to win but lose. Other times you deserve to lose or draw but you win. That is the game, and it’s why I’ve always said you should never try to predict anything in football, especially in Europe.
+ - When people talk about my business, my life, I’m really private. Maybe someone thinks I’m arrogant or something, but it’s just me.
+ - I am proud to be Italian because I was born in Italy, I grew up in Italy, I went to school in Italy and I have worked in Italy. I’m Italian.
+ - Inside me I’m Ghanaian, and I’m proud to be African. But of course I’m Italian. I was born in Italy. I’ve never been to Africa in my life, but I will go one day.
+ - You speak bad of me, I score goals.
+ - When I wasn’t famous, I had a lot of friends, almost all of them Italian. The racism only started when I started to play football.
+ - Sacrifice counts for a lot in sport. From a young age, I couldn’t do the normal things that the boys of my age get to do. Maybe you have a nice car or a nice house, but at times you just want to be a normal guy and you can’t.
+ - I sent my Christmas wishes to him, but he didn’t answer. He’s the world’s best coach, but as a man he still has to learn manners and respect.
+ - Yes, I think I am a genius, but not a rebel.
+ - Is instinct in the head or in the heart? Off the field, I follow my good instincts which steer me in the right direction. Sometimes on the field my head leads me astray. That’s what I believe.
+ - Jumps like a black man and grabs coins like a Jew.
+ - Many stories are invented about me – too many stories; almost everyone uses me, and I’d say about 0.01 percent of the gossip is true.
+ - America is a great country. I’ve been in the south, in the center and in the north. I like it. Americans are very good people. There’s just too much air-conditioning.
+ - I don’t follow politics; it doesn’t interest me. So why should I vote?
+ - When I decide to score, I score. I know I am strong, but I believe it is not enough yet. I can kick fine, dribble very well, but I still have to improve.
+ - I don’t like golf. It’s not for me, it’s too quiet.
+ - I believe I am more intelligent than the average person.
+ - I know some players like being the centre of attention and I admit that when I first became a player I liked fame, too. But that feeling lasted only for three months. Then I realised what it was really like to be the centre of attention all the time. It isn’t all good.
+ - I would be ready to become a dad if I was with the right person. I’d like a boy, though. Because they’re in charge.
+ - Racist people are few, in the minority. But you can do nothing to change them. You can talk, you can do what you want, but you can’t do anything because they are just stupid people.
+ - I turn to someone, I’m not sure, to God I think, but I never ask for anything. I would never pray to win a title; it makes no sense. I’ve never understood those who pray before a match. I simply give thanks for what I have received.
+ - I want to be the strongest player in the world and score a lot of goals. To do that, I have to improve in every area.
+ - When I lose my temper it’s because I decide to. If I do something it’s because I want to do it.
+ - I know I have a responsibility as a role model to children and I try to fulfill that.
+ - I am different – if you can find another like me, then I will buy you dinner!
+ - It surprises me how much children like me, you know? If they look at me as an example, I have a big responsibility.
+ - To play in atmospheres that are intense is when I play my best football.
+ - There are few people with such talent, so there are few able to judge what I am doing.
+ - Mourinho is the best coach in the history of football.
+ - Rooney’s good but not the best in Manchester.
+ - My public image is absolutely not a fair reflection of who I am.
+ - I don’t like journalists and I hardly ever talk to them.
+
+44 quotes

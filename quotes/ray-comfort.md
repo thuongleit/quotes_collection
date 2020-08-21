@@ -1,0 +1,52 @@
+ - Either there is a God or there isn’t. Both possibilities are frightening.
+ - This life is the only hell believers will ever know. But for those who die in their sins, this is their only heaven.
+ - If you are not concerned about your neighbor’s salvation, then I am concerned for yours.
+ - The Gospel comes in power and the Holy Spirit, with much assurance. If you call upon the name of the Lord, God will transform you on the inside, give you the shock of your life, and give you everlasting life on top of that.
+ - I think that the theory of evolution is the most unscientific, faith-based, fundamentally brainless idea that ever had the misfortune to come out of a human mind. To compare it to true science is a joke. There is nothing even slightly scientific about it.
+ - Christianity doesn’t offer a smooth flight; it provides a safe landing. The promise of Jesus is not one of happiness, He promises righteousness.
+ - Atheists who keep asking for evidence of God’s existence are like a fish in the ocean wanting evidence of water.
+ - When men don’t fear god, they give themselves to evil.
+ - This society in which we live is radically changing. What previous generations saw as evil is now embraced as being good. It is a dangerous and slippery slope upon which we stand when we reject what Solomon called the beginning of wisdom – the fear of God.
+ - Most atheists bristle at the thought that atheism has anything to do with faith, but not Penn Jillette.
+ - Atheists don’t hate fairies, leprechauns, or unicorns because they don’t exist. It is impossible to hate something that doesn’t exist. Atheists, like the painting experts hated the painter, hate God because He does exist.
+ - Atheism is spreading like wildfire.
+ - God’s standard of judgment goes down to the intents of the heart.
+ - Instead of preaching the good news that sinners can be made righteous in Christ and escape the wrath to come, the gospel has degenerated into the pretext that we can be happy in Christ and escape the hassles of life.
+ - Man is unique in creation because he has a sense of justice and truth. We spend billions of dollars each year to set up court systems to see that justice is done, and we build prisons for those who transgress the laws we enact.
+ - Atheistic evolutionists believe that nothing created everything – a scientific impossibility. It couldn’t happen. So they redefine the word ‘nothing’ to mean ‘something,’ so that in their unthinking minds, they can justify their foolishness.
+ - To encourage children into Rock Music is to place them into the white hot arms of Molech and the beat and power behind the music will drown out the cries of your child as occultic powers consume him and drag him into the fires of hell!
+ - Darwinian evolution is unscientific, unobservable, unbelievable, but understandable in a world that hates God.
+ - Any good that comes our way doesn’t come to us solely because we have done something good, but because God is good.
+ - Put legs to your prayers.
+ - Comparing Jesus with history’s greatest of human leaders is like comparing the sun to a flashlight with no batteries.
+ - It is amazing that we hesitate to talk about the wrath of God, for fear of making sinners feel fearful. The fear they feel this side of the grave will be nothing compared to the fear they feel when they stand before Almighty God.
+ - Each of us should think of the future. Every puff on a cigarette is another tick closer to a time bomb of terrible consequences. Christopher Hitchens didn’t care about the consequences of smoking cigarettes. Tragically, he died of throat cancer in December 2011.
+ - The more a nation gets into darkness, the more it’s going to hate the light. The more it’s going to run from the light. And we have a generation of people who have given themselves to darkness, and they’ve embraced atheism, because it gets them away from moral responsibility to God.
+ - If we knew we were to die at twelve o’clock tomorrow night, would we have to step up our evangelistic program, or could we in all good conscience carry on just as we are?
+ - George Harrison was known as the quiet Beatle. Quiet people are often quiet because they are deep thinkers.
+ - The friendly preacher who fails to warn of the reality of Hell, betrays the Son of God with a kiss.
+ - Most human beings have enough sense to know that if they work in a city that has a serious smog problem, it’s wise to either stay indoors or at least wear a mask that will filter out the poison. But cigarette smokers have their own little concentrated toxic smog pack that they don’t avoid.
+ - Evolution is the fundamental idea in all of life science – in all of biology.
+ - Never let the defeat of the past rob you of the success of your future.
+ - Evolution is unobservable. It’s based on blind faith in a few dry bones and on unreliable dating systems in which the gullible trust. Kids should be allowed to make up their own minds about this issue, and not be censored to ‘one side is all we will let you hear.’
+ - Christians must share their faith in obedience to the Great Commission, because we are only seeing the fruit of sin this side of death.
+ - Rhetoric, which is the use of language to inform or persuade, is very important in shaping public opinion. We are very easily fooled by language and how it is used by others.
+ - The Bible diagnoses the cancer of all cancers and prescribes the cure of all cures.
+ - It is true that you can’t prove a negative. However, the existence of God is provable in the same way a building is positive proof that there was a builder.
+ - If I want to understand the laws of physics I have to first believe what I read about physics. I have to have faith in what I read.
+ - It is embarrassingly unscientific to speak of anything creating itself from nothing.
+ - Man is unique in that, unlike animals, he knows he is going to die, and unlike animals he can do something about it.
+ - Atheistic evolution isn’t an intelligent belief, as atheists would have the black community believe.
+ - I am surprised that anyone can profess to be an atheist.
+ - A blind, anemic, weak-kneed flea on crutches would have a greater chance of defeating a herd of a thousand wild stampeding elephants, than the enemy has of defeating God.
+ - In the past, missionaries have traveled to far countries with the message of the gospel – with great hardship and often with the loss of life. In contrast, we can reach millions instantly from the comfort of our homes by merely hitting the ‘send’ button on our computers, or with iPads, or phones.
+ - Preachers who talk about everything but the reality of Hell, are likeable betrayers of the Gospel.
+ - I think the key to passion, to zeal, is gratitude. Or to put it another way, the fuel to motivate is gratitude.
+ - Vast multitudes of professing Christians fit into the category spoken of here. They call Jesus ‘Lord,’ but they practice lawlessness. They profess faith in Jesus, but have no regard for the divine law.
+ - I don’t blame Bill Maher for mocking religion. I can see why he took the trouble to make the movie. In one sense, it’s overdue.
+ - Faith is the first step to understanding. Either it’s the Word of an infallible God, the fallible words of men, or faith in what you personally believe. You’ve got to have faith in something. Believe me.
+ - Kirk Cameron pulls no punches in his exploration of mankind’s greatest dilemma. Unstoppable is a captivating, raw, and candid journey that gracefully delivers hope and poignant truth every step of the way. It’s a masterful and timely production!
+ - Imagine how wicked society would be if the fear of God and the fear of civil law were both completely removed.
+ - It takes both courage and talent to stand up in front of fellow human beings and make them crack a smile, and at the same time keep it clean.
+
+50 quotes

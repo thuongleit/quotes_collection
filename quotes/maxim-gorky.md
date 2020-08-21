@@ -1,0 +1,63 @@
+ - When work is a pleasure, life is a joy! When work is a duty, life is slavery.
+ - Keep reading books, but remember that a book’s only a book, and you should learn to think for yourself.
+ - Truth doesn’t always heal a wounded soul.
+ - Happiness always looks small while you hold it in your hands, but let it go, and you learn at once how big and precious it is.
+ - Everything which is good in me should be credited to books.
+ - Lies are the religion of slaves and masters. Truth is the god of the free man.
+ - Silence is terrible and painful only to those who have said all and have nothing more to speak of; but to those who never had anything to say – to them silence is simple and easy.
+ - Everybody, my friend, everybody lives for something better to come. That’s why we want to be considerate of every man – Who knows what’s in him, why he was born and what he can do?
+ - When everything is easy one quickly gets stupid.
+ - When the life is monotonous, even grief is a welcome event...
+ - We kill everybody, my dear. Some with bullets, some with words, and everybody with our deeds. We drive people into their graves, and neither see it nor feel it.
+ - Our most merciless enemy is our past.
+ - Be good, be kind, be humane, and charitable; love your fellows; console the afflicted; pardon those who have done you wrong.
+ - We ever long for visions of beauty, We ever dream of unknown worlds.
+ - An artist is a man who digests his own subjective impressions and knows how to find a general objective meaning in them, and how to express them in a convincing form.
+ - The good qualities in our soul are most successfully and forcefully awakened by the power of art. Just as science is the intellect of the world, art is its soul.
+ - You can’t do without philosophy, since everything has its hidden meaning which we must know.
+ - A good man can be stupid and still be good. But a bad man must have brains.
+ - Even a bad man is better than a good book.
+ - But I’m not to be caught with such poor bait! I’m a big fish, I am.
+ - Only mothers can think of the future – because they give birth to it in their children.
+ - The revolution has overthrown the monarchy, true! But perhaps this means that the revolution simply has driven the skin disease inside the organism.
+ - You must write for children the same way you write for adults, only better.
+ - In the carriages of the past, you can’t go anywhere.
+ - This fear is what is the ruin of us all. And some dominate us; they take advantage of our fear and frighten us still more. Mark this: as long as people are afraid, they will rot like the birches in the marsh. We must grow bold; it is time!
+ - Hunger can explain many acts. It can be said that all vile acts are done to satisfy hunger.
+ - Many contemporary authors drink more than they write.
+ - To speak the truth is the most difficult of all arts, for in its “pure” form, not connected with the interests of individuals, groups, classes, or nations, truth is almost completely unsuitable for use by the Philistine and is unacceptable to him.
+ - The higher goal a person pursues, the quicker his ability develops, and the more beneficial he will become to the society. I believe for sure that this is also a truth.
+ - The more a human creature has tasted of bitter things the more it hungers after the sweet things of life.
+ - Remembrance of the past kills all present energy and deadens all hope for the future.
+ - Anger is like ice, and also quick to melt.
+ - When a woman gets married it is like jumping into a hole in the ice in the middle of winter: you do it once and you remember it the rest of your days.
+ - Two forces are succesfully influencing the education of a cultivated man: art and science. Both are united in the book.
+ - Writers build castles in the air, the reader lives inside, and the publisher inns the rent.
+ - Talent I say is what an actor needs. And talent is faith in oneself, one’s own powers.
+ - If it is true that only misfortune can awaken a man’s soul, it is a bitter truth, one that is hard to hear and accept, and it is only natural that many people deny it and say it is better for a man to live on in a trance than to wake up to torture.
+ - When one loves somebody, everything is clear – where to go, what to do – it all takes care of itself and one doesn’t have to ask anybody about anything.
+ - All that is called Destiny or Fate is none other than the result of our thoughtlessness and our mistrust of ourselves; we should know that all that is created on earth is created by its sole Master and Laborer – Man.
+ - All human beings have gray little souls-and they all want to rouge them up.
+ - Every new time will give its law.
+ - To an old man any place that’s warm is homeland.
+ - What ‘jazz’ means to me is the worst kind of working conditions, the worst in cultural prejudice. The term ‘jazz’ has come to mean the abuse and exploitation of black musicians.
+ - God is a complex of ideas formed by the tribe, the nation, and humanity, which awake and organize social feelings and aim to link the individual to society and to bridle the zoological individualism.
+ - There is no one on earth more disgusting and repulsive than he who gives alms. Even as there is no one so miserable as he who accepts them.
+ - You will not drown the truth in seas of blood.
+ - The Englishman walks before the law like a trained horse in the circus. He has the sense of legality in his bones, in his muscles.
+ - Just think, reader, what will happen to you if the truth of a mad beast overpowers the sane truth of man?
+ - In war it is necessary to kill as many people as possible – such is the cynical logic of war. Brutality in a fight is unavoidable; have you seen how cruelly children fight in the streets?
+ - Politics is something similar to the lower physiological functions, with the unpleasant difference that political functions are unavoidably carried out in public.
+ - Intellectual force is qualitatively the first and foremost productive force, and concern for its rapid growth should be the ardent concern of all classes.
+ - One has to be able to count if only so that at fifty one doesn’t marry a girl of twenty.
+ - What can you do by killing? Nothing. You kill one dog, the master buys another-that’s all there is to it.
+ - Processing the human raw material is naturally more complicated than processing lumber.
+ - It is quiet and peaceful here, the air is good, there are numerous gardens, and in them nightingales sing and spies lurk under the bushes.
+ - Jail doesn’t teach anyone to do good, nor Siberia, but a man-yes! A man can teach another man to do good-believe me!
+ - Our salvation is in work, but let us also take delight in that work.
+ - Everywhere, within man and without, there is devastation, instability, chaos, and evidence of some prolonged rout.
+ - There’s a little book I’m thinking of writing – “Swan Song” is what I shall call it. The song of the dying. And my book will be incense burnt at the deathbed of this society, damned with the damnation of its own impotence.
+ - With his own money a person can live as he likes-a ruble that’s your own is dearer than a brother.
+ - All of us are pilgrims on this earth. I’ve even heard people say that the earth itself is a pilgrim in the heavens.
+
+61 quotes

@@ -1,0 +1,34 @@
+ - I-I am going to be a storm-a flame- I need to fight whole armies alone; I have ten hearts; I have a hundred arms; I feel too strong to war with mortals- BRING ME GIANTS!
+ - To offend is my pleasure; I love to be hated.
+ - I love you more than yesterday, less than tomorrow.
+ - All our souls are written in our eyes.
+ - A kiss is a rosy dot placed on the “i” in loving.
+ - A great nose may be an index Of a great soul.
+ - Proclaim your pride and bitterness loudly to the world, but to me speak softly, and tell me simply that she doesn’t love you.
+ - Your neck. I want to kiss it.
+ - To joke in the face of danger is the supreme politeness, a delicate refusal to cast oneself as a tragic hero.
+ - I am what I am because early in life I decided that I would please at least myself in all things.
+ - My wit is sharper then the finest mustache, and when I walk among men I make truths ring like spurs.
+ - It is at night that faith in light is admirable.
+ - A pessimist is a man who tells the truth prematurely.
+ - My soul, be satisfied with flowers, with fruit, with weeds even; but gather them in the one garden you may call your own.
+ - My heart always timidly hides itself behind my mind. I set out to bring down stars from the sky, then, for fear of ridicule, I stop and pick little flowers of eloquence.
+ - Your name hangs in my heart like a bell’s tongue.
+ - I loved but once, yet twice I lose my love!
+ - My wit is more polished than your mustache. The truth which I speak strikes more sparks from men’s hearts than your spurs do from the cobblestones.
+ - The dream, alone, is of interest. What is life without a dream?
+ - A kiss is a secret which takes the lips for the ear.
+ - I sing, not to hear the echo repeat, a shade fainter, my song! I think of light and not of glory! Singing is my fashion of waging war and bearing witness. And if my song is the proudest of songs, it is that I sing clearly to make the day rise clear!
+ - After all, what is a kiss? A vow made at closer range, a more precise promise, a confession that contains its own proof, a seal placed on a pact that has already been signed; it’s a secret told to the mouth rather than to the ear.
+ - I would die at the stake rather than change a semi-colon!
+ - A kiss, when all is said, what is it? A rosy dot placed on the ‘I’ in loving; Tis a secret told to the mouth instead of to the ear.
+ - A large nose is in fact the sign of an affable man, good, courteous, witty, liberal, courageous, such as I am.
+ - You must believe me when I believe, and not when I doubt.
+ - A man does not fight to win; it is better to fight in vain...
+ - A kiss, when all is said, what is it? An oath that’s given closer than before; A promise more precise; the sealing of Confessions that till then were barely breathed; A rosy dot placed on the i in loving.
+ - And if kisses in these words could travel too, Madam, you’d read this letter with your lips.
+ - Take it, and turn to facts my fantasies.
+ - No, In fairy tales When to the ill-starred Prince the lady says ‘I love you!’ all his ugliness fades fast But I remain the same, up to the last!
+ - Where lurk sweet echoes of the dear homevoices, Each note of which calls like a little sister, Those airs slow, slow ascending, as the smokewreaths Rise from the hearthstones of our native hamlets Cyrano Act 5.
+
+32 quotes

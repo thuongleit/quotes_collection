@@ -1,0 +1,29 @@
+ - It’s hard to kill that father-son bond.
+ - I used to eat a whole chicken, every day, for lunch. I did that for four years. But it got tiring – go to the store, buy it, eat it. It’s a mess.
+ - I don’t understand technology, and I’m very scared of it.
+ - I have a control problem. I hate the feeling of not being in control.
+ - What is important is to maintain integrity of the story, of the character, of the movie, even if it’s a big production.
+ - The Marine Corps is some of the best acting training you could have. Having that responsibility for people’s lives, suddenly time becomes a really valuable commodity and you want to make the most of it. And for acting, you just have to do the work, just keep doing it.
+ - I loved being in the Marine Corps, I loved my job in the Marine Corps, and I loved the people I served with. It’s one of the best things I’ve had a chance to do.
+ - In the military, you learn the essence of people. You see so many examples of self-sacrifice and moral courage. In the rest of life you don’t get that many opportunities to be sure of your friends.
+ - I originally passed on ‘Girls’ because I thought TV was evil.
+ - If I’m not doing something or working on something, I literally just sit in the room and think, which I don’t think is productive. I won’t go outside for days.
+ - I’m not an acting monk or anything. I’m not, like, the most well-adjusted actor.
+ - Emphasis in the Marine Corps isn’t on talking about your feelings.
+ - Something I learned in the Marine Corps that I’ve applied to acting is, one, taking direction, and then working with a group of people to accomplish a mission and knowing your role within that team.
+ - It was very clear to me I wanted to be an actor when I got out into civilian life.
+ - I mean, I did plays in high school, but I was convinced you couldn’t make a living doing it.
+ - Acting is a business and a political act and a craft, but I also feel like it’s a service – specifically, for a military audience.
+ - Acting is really about having the courage to fail in front of people.
+ - Juilliard definitely emphasizes the theater. They don’t train – at all really – for film acting. It’s mostly process-oriented, pretty much for the stage.
+ - I don’t have cable. I just never watched a lot of TV.
+ - Yeah, September 11 happened and all my friends were like, ‘Let’s join the military!’ and I was the only one who actually did.
+ - I feel like I’ll never get over red carpets. They’re so bizarre and awkward.
+ - I’m conflicted with theater in the city because you want to reach a diverse audience, and that audience doesn’t typically go to the theater.
+ - Acting, to me, has been many things: It’s a business, and it’s a craft, and it’s a political act – it’s whatever adjective is most applicable.
+ - For me, becoming a man had a lot to do with learning communication, and I learned about that by acting.
+ - Through theater and acting school, I found a way to articulate myself.
+ - I think it’s possible to be free in a big production. It’s the eye of the director and the actor and the story...
+ - I was born in California. When I was six, we moved to a small town in northern Indiana called Mishawaka.
+
+27 quotes

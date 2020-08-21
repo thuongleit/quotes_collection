@@ -1,0 +1,72 @@
+ - Kill them all in the Name of the Lord.
+ - Your words can permanently influence a life.
+ - You do not determine a man’s greatness by his talent or wealth, as the world does, but rather by what it takes to discourage him.
+ - I believe that the people of Israel are the chosen people of God.
+ - Nothing of spiritual significance comes without sacrifice. Your spirituality will always be measured by the size of your sacrifice.
+ - When you have a godly husband, a godly wife, children who respect their parents and who are loved by their parents, who provide for those children their physical and spiritual and material needs, lovingly, you have the ideal unit.
+ - Textbooks are Soviet propaganda.
+ - The idea that religion and politics don’t mix was invented by the Devil to keep Christians from running their own country.
+ - During the last times, men will be lovers of pleasure more than lovers of God. When you think of our sports-driven society, and our media-driven society, and our leisure-driven society, then you understand we are living in the last days.
+ - If you’re not a born-again Christian, you’re a failure as a human being.
+ - God does not hear the prayers of a Jew.
+ - The argument that making contraceptives available to young people would prevent teen pregnancies is ridiculous. That’s like offering a cookbook as a cure to people who are trying to lose weight.
+ - One reason, of course, as a Christian, I believe the Bible is the word of God. I take the Bible as the standard.
+ - Christians, like slaves and soldiers, ask no questions.
+ - Billy Graham is the chief servant of Satan in America.
+ - I think the Moslem faith teaches hate.
+ - I believe with all my heart that the Bible is the infallible word of God. I therefore believe that, whatever it says, is so.
+ - The public school system is damned. Let me tell you how radical I am. Christian students should be in Christian schools. If you have to sell your car, live in a smaller house, or work a night job, put your child in Christian schools. If you can’t afford it, homeschool.
+ - I hope to see the day when, as in the early days of our country, we don’t have public schools. The churches will have taken them over again and Christians will be running them.
+ - The National Organization of Women is the national organization of witches.
+ - There’s been a concerted effort to steal Christmas.
+ - It is God’s planet – and he’s taking care of it. And I don’t believe that anything we do will raise or lower the temperature one point.
+ - Revival is not just a feeling of excitement of the Lord. We get excited about many things, but excitement is not a revival if God is not the thing that gets us excited.
+ - I believe that global warming is a myth. And so, therefore, I have no conscience problems at all and I’m going to buy a Suburban next time.
+ - I am saying pornography hurts anyone who reads it – garbage in, garbage out.
+ - The church should be a disciplined charging army. Christians, like slaves and solders ask no questions. We are fighting a holy war.
+ - While I have no problem with the church adapting to the culture, we must ensure that we remain painstakingly true to the Gospel of Jesus Christ and that we remain obedient servants to His truths.
+ - The ACLU’s got to take a lot of blame for this.
+ - I am convinced that America can be turned around if we will all get serious about the Master’s business. It may be late, but it is never too late to do what is right. We need an old-fashioned, God-honoring, Christ-exalting revival to turn American back to God. America can be saved!
+ - I feel most ministers who claim they’ve heard God’s voice are eating too much pizza before they go to bed at night, and it’s really an intestinal disorder, not a revelation.
+ - God created the family to provide the maximum love and support and morality and example that one can imagine.
+ - If I were doing something that the Bible condemns, I have two choices. I can straighten up my act, or I can somehow distort and twist and change the meaning of the Bible.
+ - Love is commitment; love is a relationship that never gives up.
+ - Our greatest value is to reproduce ourselves in the lives of others. When you leave behind a vibrant Christian who knows his calling and his commission, you can be buried, but you will live on through all those in whom you have been reproduced.
+ - My father was an agnostic.
+ - I believe in the premillenial, pre-tribulational coming of Christ for all of his church, and to summarize that, your first poll, do you believe Jesus coming the second time will be in the future, I would vote yes with the 59 percent and with Billy Graham and most evangelicals.
+ - And, these Islamic fundamentalists, these radical terrorists, these Middle Eastern monsters are committed to destroying the Jewish nation, driving her into the Mediterranean, conquering the world.
+ - I had a student ask me, “Could the savior you believe in save Osama bin Laden?” Of course, we know the blood of Jesus Christ can save him, and then he must be executed.
+ - It appears that America’s anti-Biblical feminist movement is at last dying, thank God, and is possibly being replaced by a Christ-centered men’s movement which may become the foundation for a desperately needed national spiritual awakening.
+ - Temptation has been here ever since the Garden of Eden.
+ - I grew up in the segregated South, right here in Lynchburg, Virginia.
+ - The First Amendment is not without limits.
+ - A belief in God and a belief in astrology cannot be reconciled.
+ - Dan Moldea, the lead investigator for Larry Flynt’s ongoing quest to uncover sexual indiscretions of Republican congressional members, has now admitted he was hired by the law firm defending President Clinton.
+ - If I were president of the United States, I would include Moslems in my presidency.
+ - The whole global warming thing is created to destroy America’s free enterprise system and our economic stability.
+ - You’ve got to kill the terrorists before the killing stops. And I’m for the president to chase them all over the world. If it takes 10 years, blow them all away in the name of the Lord.
+ - Leftist organizations are aggressively attempting to redefine America in their own Godless image.
+ - If he’s going to be the counterfeit of Christ, the Antichrist has to be Jewish. The only thing we know is he must be male and Jewish.
+ - If we are going to save America and evangelize the world, we cannot accommodate secular philosophies that are diametrically opposed to Christian truth.
+ - The easiest way of change history is to become a historian.
+ - The Jews are returning to their land of unbelief. They are spiritually blind and desperately in need of their Messiah and Savior.
+ - I must personally say that I do question the sincerity and nonviolent intentions of some civil rights leaders such as Dr. Martin Luther King Jr., Mr. James Farmer, and others, who are known to have left-wing associations.
+ - I truly cannot imagine men with men, women with women, doing what they were not physically created to do, without abnormal stress and misbehavior.
+ - I believe that all of us are born heterosexual, physically created with a plumbing that’s heterosexual, and created with the instincts and desires that are basically, fundamentally, heterosexual.
+ - God himself preserved the Bible, and brought it down through the ages.
+ - I don’t think I know a Scientologist except when I see one or two of their actors on the Hollywood screen.
+ - The ACLU is to Christians what the American Nazi party is to Jews.
+ - I sincerely believe that the collective efforts of many secularists during the past generation, resulting in the expulsion from our schools and from the public square, has left us vulnerable.
+ - God continues to lift the curtain and allow the enemies of America to give us probably what we deserve.
+ - Labor unions should study and read the Bible instead of asking for more money. When people get right with God, they are better workers.
+ - I don’t think religious groups should be allowed to apply for federal funds to start new ministries they have not been doing before the funding was available.
+ - Life is supposed to be lived for God and for others.
+ - I think hell’s a real place where real people spend a real eternity.
+ - I am such a strong admirer and supporter of George W. Bush that if he suggested eliminating the income tax or doubling it, I would vote yes on first blush.
+ - One thing I have learned about Christians, having organized them for years – when they lose, they quit. And when they win they quit. We are just quitters.
+ - I do not believe that God answers the prayer of any unredeemed Gentile or Jew.
+ - We can only change the world if we have a heart for the world and deliver the message for the world. We can only change the world if we evangelize the world.
+ - This is probably as bad a day as the court has had on social issues since “Roe v Wade.”
+ - If we ever opened a meeting with a prayer, silent or otherwise, we would disintegrate.
+
+70 quotes

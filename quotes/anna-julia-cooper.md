@@ -1,0 +1,27 @@
+ - I speak for the colored women of the South, because it is there that the millions of blacks in this country have watered the soil with blood and tears, and it is there too that the colored woman of America has made her characteristic history and there her destiny is evolving.
+ - A stream cannot rise higher than its source.
+ - Life must be something more than dilettante speculation.
+ - It is not the intelligent woman v. the ignorant woman; nor the white woman v. the black, the brown, and the red, it is not even the cause of woman v. man. Nay, tis woman’s strongest vindication for speaking that the world needs to hear her voice.
+ - Peace produced by suppression is neither natural nor desirable.
+ - Respect for woman, the much lauded chivalry of the Middle Ages, meant what I fear it still means to some men in our own day – respect for the elect few among whom they expect to consort.
+ - The cause of freedom is not the cause of a race or a sect, a party or a class – it is the cause of humankind, the very birthright of humanity.
+ - Bullies are always cowards at heart and may be credited with a pretty safe instinct in scenting their prey.
+ - Let our girls feel that we expect something more of them than that they merely look pretty and appear well in society.
+ - With five to ten hundred pure-minded young women threading the streets of the village every evening unattended, vice must slink away, like frost before the rising sun...
+ - Agnosticism has nothing to impart. Its sermons are the exhortations of one who convinces you he stands on nothing and urges you to stand there too.
+ - Religion must be life made true; and life is action, growth, development – begun now and ending never. And a life made true cannot confine itself – it must reach out and twine around every pulsing interest within reach of its uplifting tendrils.
+ - If our vaunted rule of the people does not breed nobler men and women than monarchies have done it must and will inevitably give place to something better.
+ - The old, subjective, stagnant, indolent and wretched life for woman has gone. She has as many resources as men, as many activities beckon her on. As large possibilities swell and inspire her heart.
+ - As in an icicle the agnostic abides alone. The vital principle is taken out of all endeavor for improving himself or bettering hisfellows. All hope in the grand possibilities of life are blasted.
+ - Each is under the most sacred obligation not to squander the material committed to him, not to sap his strength in folly and vice, and to see at the least that he delivers a product worthy the labor and cost which have been expended on him.
+ - One needs occasionally to stand aside from the hum and rush of human interests and passions to hear the voices of God.
+ - The great, the fundamental need of any nation, any race, is for heroism, devotion, sacrifice; and there cannot be heroism, devotion, or sacrifice in a primarily skeptical spirit.
+ - The cause of freedom is not the...
+ - If women were once permitted to read Sophocles and work with logarithms, or to nibble at any side of the apple of knowledge, there would be an end forever to their sewing on buttons and embroidering slippers.
+ - Nothing natural can be wholly unworthy.
+ - The impulse of humanity toward social progress is like the movement in the currents of a great water system, from myriad sources and under myriad circumstances and conditions, beating onward, ever onward toward its eternity, the Ocean.
+ - No man can prophesy with another’s parable.
+ - One of the most singular facts about the unwritten history of this country is the consummate ability with which Southern influence, Southern ideas and Southern ideals, have from the very beginning even up to the present day, dictated to and domineered over the brain and sinew of this nation.
+ - A race cannot be purified from without.
+
+25 quotes

@@ -1,0 +1,23 @@
+ - You know, you only get to live life once, so there are two things that that yields. One is that there’s no point in crying over spilt milk, but secondly you hate wasting time, energy, and whatever talent you’ve got.
+ - Good politics starts with empathy, proceeds to analysis, then sets out values and establishes the vision, before getting to the nitty-gritty of policy solutions.
+ - The window of opportunity to avoid dangerous climate change is closing more quickly than previously thought.
+ - The wedding ring on my left hand was bought by my grandfather, Samuel Miliband, in Brussels in 1920. I never knew him, as he died when I was one. But his ring was kept by my aunt until it was placed on my finger by my wife Louise 32 years later.
+ - In the future, every industry should be an environmental industry. In a world where energy and carbon emissions are constrained, every business must take resource productivity seriously.
+ - Economic dynamism can be combined with environmental and social responsibility. High financial returns can go hand in hand with respect for human rights, and the preservation of the planet’s natural resources.
+ - In the end, human history is made up of all our decisions.
+ - And the truth is, those who are terrorists only have to succeed once, and those of us who are trying to build an inclusive society have to succeed every time.
+ - If you decide to run for the leadership, you have to go through it with the people you love. But you also have to protect them and I am determined to protect my mum.
+ - Today, the UK must be the pioneer of a new model of economic change, that integrates social and environmental consideration. This is not just a question of values and moral duty. It is about our economy’s capacity to sustain itself.
+ - I abhor anything that constitutes torture. Water-boarding, its perfectly clear to me it is torture. I never supported extraordinary rendition to torture, always said that Guantanamo should be closed. There is no clash of ideals and pragmatism there.
+ - I’ve committed myself to serve my constituents in South Shields and I have committed myself to British politics.
+ - Essentially, by 2050 we need all activities outside agriculture to be near zero carbon emitting if we are to stop carbon dioxide levels in the atmosphere growing.
+ - We are a European nation – must stay one.
+ - I’m a great believer in the Arsene Wenger school of management – which is, you don’t worry about the opposition, you just get your own act together.
+ - John Major put the ‘er’ back into Conservative, David Cameron’s put the ‘Con’ into Conservative – and Norman Lamont put the ‘vat’ into Conservative!
+ - My advice is very simple: if you can win a small battle, it gives you confidence in the political process to take on bigger battles, and so it is very much a bottom-up grass-roots way of doing politics.
+ - I mean, Britain is a country of successful Muslim businesspeople, teachers and educators, journalists. So, we have to say very strongly that the two million plus Muslims in Britain, the vast bulk of them make a huge contribution to our society, and they actually make it the vibrant society it is.
+ - The problems that the world faces – from nuclear proliferation to climate change – can’t be tackled by the West alone. They need a coalition of not just West and East, but they need a coalition of Christian and Jew and Muslim.
+ - Everything about my politics has been about the future.
+ - The biggest opportunity in 2013 is in Africa. It has seven out of the ten fastest-growing economies in the world. In Nigeria alone there are 100 million people with mobile phones. In total, 300 million Africans – five times the population of Britain – are in the middle class.
+
+21 quotes

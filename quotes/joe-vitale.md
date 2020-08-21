@@ -1,0 +1,65 @@
+ - A goal should scare you a little, and excite you a lot.
+ - You don’t fear change. You fear the unknown. If you knew the future would be great, you’d welcome the change to get there. Well, the future IS great. Proceed.
+ - You are the Michelangelo of your own life. The David you are sculpting is you.
+ - The universe will start to rearrange itself to make it happen for you.
+ - The universe likes speed. Don’t delay. Don’t second guess. Don’t doubt. When the opportunity is there, when the impulse is there, when the intuitive nudge from within is there, act. That’s your job. That’s all you have to do.
+ - What are you grateful for right now? Gratitude can shift your energy, raise your vibration, and make all your next moments even better.
+ - If you don’t go for your dreams, who will?
+ - You always get what you unconsciously believe and expect.
+ - You can have, do, or be anything you want.
+ - The smallest gestures you do can sometimes carry the most weight.
+ - Start each day off on the right foot.
+ - You created this moment from what you thought and felt three days ago. What you are thinking and feeling right now will create your next moments. You cool with that?
+ - Our beliefs are creating our reality.
+ - Ask yourself what you would do even if you were never paid. That’s a clue to what you should be doing and of course finding a way to be paid for it.
+ - Leave your excuses behind, and you will begin to attract wealth.
+ - Refocusing on what you do want will take you in the direction of what you want.
+ - Uncomfortable doesn’t mean bad, uncomfortable simply means you’re doing something you haven’t done before.
+ - Don’t lean on the past, learn from it and move on.
+ - Awaken to your own internal power, to your own connection to the Divine, and act on what you are inspired to do.
+ - If you don’t have some self doubts and fears when you pursue a dream, then you haven’t dreamed big enough.
+ - What are you thinking about? What you focus on right now will tend to come into your life a little later. Here’s your reminder to change your mind.
+ - Once you feel grateful, you are in an energy that can create miracles.
+ - The thing is, we have to let go of all blame, all attacking, all judging, to free our inner selves to attract what we say we want. Until we do, we are hamsters in a cage chasing our own tails and wondering why we aren’t getting the results we seek.
+ - Your future is co-created out of what you do today. Do you act from fear or faith? You get to choose.
+ - What created your outer is your inner.
+ - One of the most powerful energies you can ever experience is gratitude.
+ - Smile. It is sunshine to others.
+ - People need encouragement to take action.
+ - What you see is filtered through your beliefs. You rarely see “reality.” You see your version of it.
+ - Before you judge another, ask yourself if what you don’t like in them is actually what you don’t like in yourself.
+ - Thoughts are sending out that magnetic signal that is drawing the parallel back to you.
+ - If you turn it over to the universe, you will be surprised and dazzled by what is delivered to you. This is where magic and miracles happen.
+ - You want to become aware of your thoughts, you want to choose your thoughts carefully and you want to have fun with this, because you are the masterpiece of your own life. You are the Michelangelo of your own life. The David that you are sculpting is you. And you do it with your thoughts.
+ - Turns out that loving yourself is the greatest way to improve yourself, and as you improve yourself, your improve your world.
+ - You can have whatever you want, as long as you don’t need it.
+ - What can you do right now to begin to turn your life around? The very first thing is to start making a list of the things you are grateful for.
+ - Once you experience forgiveness, your outer world changes.
+ - Your wealth maybe hiding right behind the very thing you are reluctant to do.
+ - If you expect miracles in your life, then release any attachment to the outcome.
+ - Your wealth is hiding under the very thing you are afraid to do. It’s time to face your fears and take action. Expect Miracles.
+ - When you resist doing what you know needs done, it is difficult. Find a mental way to enjoy it, and just do it, and it is easy.
+ - Be around people who can keep your energy and inspiration high. While you can make progress alone, it’s so much easier when you have support.
+ - Now get this: I was happy in the moment. As I’m happy, the next moment brings its own rewards. As I’m happy in that moment, it too gives birth to more joy.
+ - Inspiration gives you a desire. Decision makes it an intention. Action makes it real.
+ - Your hate is an intense energy which will attract more of the same energy.
+ - The clearer you are, the faster you manifest.
+ - As soon as you start to feel differently about what you already have, you will start to attract more of the good things, more of the things you can be grateful for.
+ - The best way of become forgiving is to feel gratitude.
+ - Too many people are setting up ways to raise money that are questionable.
+ - Your part in the co-creation process to attract more money in your life is to act on the ideas that are coming to you.
+ - The universe is bigger than our egos and can supply more than our demand.
+ - Finally, what I really want is to be happy in this moment, where the magic and miracles happen. Stay in the moment and all gifts are added as you breathe and take inspired action.
+ - When you appreciate what you have, then you will receive more. When you are in this moment feeling gratitude for this moment you actually up your vibrational signal to attract more things to be grateful for.
+ - If you don’t care about the people around you or treat them as if they don’t matter, you’ll stop the flow of possibilities. This includes your financial prosperity. Creating a vehicle for good that you feel passionate about is the final step toward true prosperity.
+ - By dismissing what could work, we dismiss our own growth. We dismiss what’s possible.
+ - Success goes to those who dare to dream. And sometimes you have to take a little “scary action,” as well.
+ - Your mind may not know what to do today, but your heart does. Follow your heart.
+ - True prosperity is an incredible gift. It’s a gift YOU deserve. And no matter what anyone says, it’s a gift that IS available to you – right now.
+ - With the Law of Creation in play, you not only see the abundance and opportunity that surrounds you. You’re able to TAKE it.
+ - If you aren’t happy with yourself, find a way to be victorious over yourself.
+ - Trying to change the outer is like seeing your unclean or unshaven face in the mirror and trying to shave or clean the mirror.
+ - When you can feel that you already have what you want, then you will attract what you want. In fact, you already have it. Just feel it now and feel it real.
+ - Dreams do come true. Yes, even yours. But you have to meet them part way. Get up and do something towards them. Now.
+
+63 quotes

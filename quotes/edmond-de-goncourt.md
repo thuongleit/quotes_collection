@@ -1,0 +1,25 @@
+ - Statistics is the first of the inexact sciences.
+ - There have been many definitions of beauty in art. What is it? Beauty is what the untrained eyes consider abominable.
+ - If there is a God, atheism must seem to Him as less of an insult than religion.
+ - Surely nothing has to listen to so many stupid remarks as a painting in a museum.
+ - Princes enjoy themselves like children in the company of ordinary human beings.
+ - As a general truth, it is safe to say that any picture that produces a moral impression is a bad picture.
+ - The facts: nothing matters but the facts: worship of the facts leads to everything, to happiness first of all and then to wealth.
+ - Man is a mind betrayed, not served, by his organs.
+ - Laughter is the mind’s intonation. There are ways of laughing which have the sound of counterfeit coins.
+ - I have always derived indescribable pleasure from leading a decent woman to the edge of sin and leaving her there to live between the temptation and the fear of that sin.
+ - History is a novel that has been lived, a novel is history that could have been.
+ - Any man who does not see everything in terms of self, that is to say who wants to be something in respect of other men, to do good to them or simply give them something to do, is unhappy, disconsolate, and accursed.
+ - The English are crooked as a nation and honest as individuals. The contrary is true of the French, who are honest as a nation and crooked as individuals.
+ - She is unable to dream, think or love. In a woman, poetry never comes naturally, but always as the result of education. Only the woman of the world is a woman; the rest are simply females.
+ - Genius is the talent of a person who is dead.
+ - There are only two great currents in the history of mankind: the baseness which makes conservatives and the envy which makes revolutionaries.
+ - People don’t like the true and simple; they like fairy tales and humbug.
+ - A painting in a museum hears more ridiculous opinions than anything else in the world.
+ - Debauchery is perhaps an act of despair in the face of infinity.
+ - Barbarism is needed every four or five hundred years to bring the world back to life. Otherwise it would die of civilization.
+ - Historians tell the story of the past, novelists the story of the present.
+ - Sickness sensitizes man for observation, like a photographic plate.
+ - A poet is a man who puts up a ladder to a star and climbs it while playing a violin.
+
+23 quotes

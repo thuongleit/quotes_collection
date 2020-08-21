@@ -1,0 +1,36 @@
+ - If you want something, go get it. Period.
+ - If you have a dream, you’ve got to protect it.
+ - The world is your oyster. It’s up to you to find the pearls.
+ - It’s okay to fail; it’s not okay to quit.
+ - There is no plan B for passion.
+ - Don’t ever let someone tell you, you can’t do something.
+ - Claim ownership of your dreams.
+ - The secret to success: find something you love to do so much, you can’t wait for the sun to rise to do it all over again.
+ - It can be done, but you have to make it happen.
+ - People can’t do something themselves, they want to tell you that you can’t do it. You want something? Go get it.
+ - Baby steps count, as long as you are going forward. You add them all up, and one day you look back and you’ll be surprised at where you might get to.
+ - Walk that walk and go forward all the time. Don’t just talk that talk, walk it and go forward. Also, the walk didn’t have to be long strides; baby steps counted too. Go forward.
+ - Ready or not, Tell yourself to jump.
+ - Find something that you love. Something that gets you so excited you can’t wait to get out of bed in the morning. Forget about money. Be happy.
+ - Do something that you love. Whatever you’re going to do is going to be tough enough. Find something that gets you so excited that the sun can’t come up early enough in the morning because you want to go do your thing.
+ - Always, always pursue happiness.
+ - But if you don’t take the necessary steps to make them happen, dreams are just mirages that mess with your head!
+ - We all understand genetics. You get your eyes from your dad, your mom’s nose, there’s nothing you can do about that. But your spiritual genetics you can choose, pick, embrace and commit to. That’s what I did.
+ - One of the things young people always ask me about is what is the secret to success. The secret is there is no secret. It’s the basics. Blocking and tackling.
+ - Then again, what seems like nothing in the eyes of the world, when properly valued and put to use, can be among the greatest riches.
+ - Strong people stand up for themselves. Stronger people stand up for others. The irony is that while sleep sometimes brings nightmares, it’s the reality of my waking hours that can cause me the greater fear.
+ - Still a dreamer, yet more of a realist than ever before, I knew this was my time to sail. On the horizon I saw the shining future, as before. The difference now was that I felt the wind at my back. I was ready.
+ - The future was uncertain, absolutely, and there were many hurdles, twists, and turns to come, but as long as I kept moving forward, one foot in front of the other, the voices of fear and shame, the messages from those who wanted me to believe that I wasn’t good enough, would be stilled.
+ - I hold one thing dearer than all else: my commitment to my son.
+ - Wealth can also be that attitude of gratitude with which we remind ourselves everyday to count our blessings.
+ - You know how mountains get moved? Everyone who can move a couple, move a couple. Those who can move rocks, move rocks. Those who can move boulders, move boulders. That’s how mountains get moved. If every one of us did everything we could, I believe we would be in a different world.
+ - The balance in your life is more important than the balance in your checking account.
+ - I was late once and it cost me $50,000. I figure it was cheaper to wear two watches.
+ - I just wanted to make a million dollars. But I couldn’t sing and I couldn’t play ball, so I said to my mother, ‘How am I going to make a million dollars?’ And she said to me, ‘Son, if you believe you can do it, you will.’
+ - As busy as I am wherever I am, I...
+ - There was a language specific to all things. The ability to learn another language in one arena, whether it was music, medicine, or finance, could be used to accelerate learning and other arenas, too.
+ - Though my mom had too many of her own dreams denied, deferred and destroyed, she instilled in me that I could have dreams. And not just have dreams but had a responsibility to make them reality. My mom taught me from a very early age that I could do anything I wanted to do.
+ - No one ever laid out the sequence of events that led to my mother being prosecuted and imprisoned for alleged welfare fraud.
+ - Well, I really don’t want to be a high-powered corporate lawyer. I’m really passionate about painting.
+
+34 quotes

@@ -1,0 +1,68 @@
+ - Life consists of burning up questions.
+ - No one has ever written, painted, sculpted, modeled, built, or invented except literally to get out of hell.
+ - The actor is an athlete of the heart.
+ - I cannot conceive any work of art as having a separate existence from life itself.
+ - We do not die because we have to die; we die because one day, and not so long ago, our consciousness was forced to deem it necessary.
+ - Without sarcasm I sink into chaos.
+ - This is why true beauty never strikes us directly. The setting sun is beautiful because of all it makes us lose.
+ - Cruelty in the theatre is unrelenting decisiveness, diligence, strictness.
+ - I myself am an absolute abyss.
+ - Artaud sought to remove aesthetic distance, bringing the audience into direct contact with the dangers of life. By turning theatre into a place where the spectator is exposed rather than protected, Artaud was committing an act of cruelty upon them.
+ - In consciousness dwells the wondrous, with it man attains the realm beyond the material, and the Peyote tells us, where to find it.
+ - I call for actors burning at the stakes, laughing at the flames.
+ - If I commit suicide, it will not be to destroy myself but to put myself back together again.
+ - The fixation of the theater in one language – written words, music, lights, noises – betokens its imminent ruin.
+ - Written poetry is worth reading once, and then should be destroyed. Let the dead poets make way for others.
+ - Destroy yourselves, you who are desperate, and you who are tortured in body and soul, abandon all hope. There is no more solace for you in this world. The world lives off your rotting flesh.
+ - There is nothing like an insane asylum for gently incubating death.
+ - All writing is garbage. People who come out of nowhere to try and put into words any part of what goes on in their minds are pigs.
+ - Excuse my absolute freedom. I refuse to make a distinction between any of the moments of myself.
+ - I abandon myself to the fever of dreams, in search for new laws.
+ - How hard is it, when everything encourages us to sleep, though we may look about us with conscious, clinging eyes, to wake and yet look about us as in a dream, with eyes that no longer know their function and whose gaze is turned inward.
+ - We have the right to lie, but not about the heart of the matter.
+ - To break through language in order to touch life is to create or re-create the theater.
+ - I am a man by virtue of my hands and my feet, my belly, my heart of meat, my stomach whose knots reunite me to the putrefaction of life.
+ - Leave the caves of being. Come. The mind breathes outside the mind. The time has come to abandon your lodgings. Surrender to the Universal Thought. The Marvelous is at the root of the mind.
+ - I do not work within the confines of any realm. I work in the unique moment of duration.
+ - There is in every madman a misunderstood genius whose idea shining in his head frightened people and for whom delirium was the only solution to the strangulation that life had prepared for him.
+ - Written poetry is worth reading once, and then should be destroyed. Let the dead poets make way for others. Then we might even come to see that it is our veneration for what has already been created, however beautiful and valid it may be, that petrifies us.
+ - Admittedly or not, conscious or unconscious, the poetic state, a transcendent experience of life, is what the public is fundamentally seeking through love, crime, drugs, war, or insurrection.
+ - When I think about myself, my thought seeks itself in the ether of a new space. I am on the moon as others are on their balconies. I participate in planetary gravitation in the fissures of my mind.
+ - Never tire yourself more than necessary, even if you have to found a culture on the fatigue of your bones.
+ - We must believe in a sense of life renewed by the theater, a sense of life in which man fearlessly makes himself master of what does not yet exist, and brings it into being. And everything that has not been born can still be brought to life if we are not satisfied to remain mere recording organisms.
+ - I would like to write a Book which would drive men mad, which would be like an open door leading them where they would never have consented to go, in short, a door that opens onto reality.
+ - And war is wonderful, isn’t it? For it’s war, isn’t it, that the Americans have been preparing for and are preparing for this way step by step. In order to defend this senseless manufacture from all competition that could not fail to arise on all sides.
+ - The truth of life lies in the impulsiveness of matter. The mind of man has been poisoned by concepts. Do not ask him to be content, ask him only to be calm, to believe that he has found his place. But only the madman is really calm.
+ - The idea of a detached art, of poetry as a charm which exists only to distract our leisure, is a decadent idea and an unmistakable symptom of our power to castrate.
+ - I have need of angels. Enough hell has swallowed me for too many years. But finally understand this – I have burned up one hundred thousand human lives already, from the strength of my pain.
+ - If our life lacks a constant magic it is because we choose to observe our acts and lose ourselves in consideration of their imagined form and meaning, instead of being impelled by their force.
+ - The true theater, because it moves and makes use of living instruments, continues to stir up shadows where life has never ceased to grope its way.
+ - Poetry is a dissociating and anarchic force which through analogy, associations and imagery, thrives on the destruction of known relationships.
+ - However fiercely opposed one may be to the present order, an old respect for the idea of order itself often prevents people from distinguishing between order and those who stand for order, and leads them in practice to respect individuals under the pretext of respecting order itself.
+ - Like all magic cultures expressed by appropriate hieroglyphs, the true theater has its shadows too, and, of all languages and all arts, the theater is the only one left whose shadows have shattered their limitations.
+ - I know each conversation with a psychiatrist in the morning made me want to hang myself because I knew I could not strangle him.
+ - I prefer the people who eat off the bare earth the delirium from which they were born.
+ - We must wash literature off ourselves. We want to be men above all, to be human.
+ - With society and its public, there is no longer any other language than that of bombs, barricades, and all that follows.
+ - All true language is incomprehensible, like the chatter of a beggar’s teeth.
+ - And if there is still one hellish, truly accursed thing in our time, it is our artistic dallying with forms, instead of being like victims burnt at the stake, signaling through the flames.
+ - There are those who go to the theatre as they would go to a brothel.
+ - Squander your riches far from this unfeeling body to which no season, either spiritual or sensual, makes any difference.
+ - I see in the act of throwing the dice and of risking the affirmation of some intuitively felt truth, however uncertain, my whole reason for living.
+ - You are quite unnecessary, young man!
+ - But how is one to make a scientist understand that there is something unalterably deranged about differential calculus, quantum theory, or the obscene and so inanely liturgical ordeals of the precession of the equinoxes.
+ - I do not like detached creation. Neither can I conceive of the mind as detached from itself. Each of my works, each diagram of myself, each glacial flowering of my inmost soul dribbles over me.
+ - Those who live, live off the dead.
+ - I am stigmatized by a living death in which real death holds no terrors for me.
+ - The race of prophets is extinct. Europe is becoming set in its ways, slowly embalming itself beneath the wrappings of its borders, its factories, its law-courts and its universities. The frozen Mind cracks between the mineral staves which close upon it.
+ - It is not opium which makes me work but its absence, and in order for me to feel its absence it must from time to time be present.
+ - Enough, I shall be understood in ten years by people who will be doing what you do today. Then my geysers will be known, my ice floes will be seen, the secret of adulterating my poisons will have been learned, the games of my soul will be revealed.
+ - So society has strangled in its asylums all those it wanted to get rid of or protect itself from, because they refused to become its accomplices in certain great nastiness.
+ - I am adding another language to the spoken language, and I am trying to restore to the language of speech its old magic, its essential spellbinding power, for its mysterious possibilities have been forgotten.
+ - Tragedy on the stage is no longer enough for me, I shall bring it into my own life.
+ - In our present state of degeneration it is through the skin that metaphysics must be made to re-enter our minds.
+ - It is not a certain conformity of manners that the painting of Van Gogh attacks, but rather the conformity of institutions themselves. And even external nature, with her climates, her tides, and her equinoctial storms, cannot, after Van Gogh’s stay upon earth, maintain the same gravitation.
+ - A tainted society has invented psychiatry to defend itself against the investigations of certain superior intellects whose faculties of divination would be troublesome.
+ - The actor is merely a crude empiricist, a practitioner guided by vague instinct.
+
+66 quotes

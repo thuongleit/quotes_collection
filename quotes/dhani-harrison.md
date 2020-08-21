@@ -1,0 +1,37 @@
+ - My dad was my hero, my best friend.
+ - I was very empty after my father passed away. It was an emotional time, as it would be for anyone, but to be in the studio every day was kind of cathartic and healing and it just seemed very natural to continue.
+ - I’m a huge Wu-Tang fan.
+ - I was always brutally teased for being George Harrison’s son. That was from the age of about four or five, before I even knew who he was. And for seven years people would follow me about school singing ‘Yellow Submarine.’ I still can’t listen to that song to this day.
+ - The music I want to hear in my head sounds somewhere between Jimi Hendrix and Massive Attack. It’s not really like my dad, but there will always be similarities because we have the same vocal cords, and I learnt the guitar the way he taught me.
+ - I did rebel. I was the rebel in my family, because my dad wanted me to go and just travel with him.
+ - You don’t have to burn books, you don’t have to rebel against teachers to rebel; to rebel is to truly own your own self.
+ - I did everything I could to not be a musician.
+ - I think I learned a lot about not buying into a lot of hype. I wanted to be a kind of faceless entity; I didn’t want to be Dhani Harrison and the Muppets or something like that.
+ - I was an only child. I hung out with my parents.
+ - I did the first backwards guitar solo on ‘I’m Only Sleeping’
+ - Im still getting used to being called a composer. A poseur, maybe.
+ - Websites are kind of useless. There’s so much great web content and design out there, but the ways in which they are being experienced are not being maximized.
+ - I suddenly realized that in order to do what I wanted to do, I had to become that which I hated – which is the head of a record company or a digital media conglomerate – and just do whatever you want.
+ - I could never just play in a pub in front of four people because I would have had all the press turn up. That way, you don’t get to build up naturally. It makes the work feel unnatural, and puts a lot of unnatural pressure on you.
+ - I don’t really plan to be a pop star; I just want to be able to make music without the whole My Dad thing hanging over me, which everyone in my position goes through.
+ - I have two mini huskies called Woody Guthrie and Edison Guthrie.
+ - I only discovered electronic music as a teenager and I still love the Prodigy and Massive Attack.
+ - I love getting into a studio with a bunch of friends. When the day’s done, we’ve made something. We recognize that we’re from different walks of the music industry, and there’s no reason we shouldn’t be collaborating. That’s what I’m trying to create with thenewno2 – a sense of community.
+ - People see my face, they hear my voice, and I know they’re thinking about my father. That’s OK – he was a great man.
+ - Thenewno2 is sort of my little prototype band, really.
+ - I sometimes listen to music I made and find it to be something I wouldn’t want to buy from a store, if there was a store. When it’s like that, you have to make what you want to hear.
+ - Once I started to get older, my father would say, ‘You look more like George Harrison than I do’
+ - One interviewer asked me: ‘How do you feel that you’ve betrayed your father?’ That wasn’t really very cool.
+ - I don’t ever use my name for anything in terms of getting the music heard.
+ - Everyone’s seen the Beatles.
+ - It’s funny, because music is one of those things it is natural to go into. You hear it so much growing up, it kind of permeates you and eventually you spew out some music of your own.
+ - To come out in the music business, you only really get one shot. A lot of people get to play small gigs first, and build up that way, without anyone really seeing them.
+ - Someone recently played me ‘Combination Pizza Hut and Taco Bell’ by Das Racist. That should be my theme song.
+ - In almost any profession, even if you’re the kid of an actor, people are very supportive and want to see the next generation.
+ - I was recording stuff with my dad when I was like five, six years old. I played with him on tour. I’d gone with him to Japan in ’91, played some gigs, did a couple shows at the Albert Hall.
+ - It was a relief to be able to do my own band, because I was very responsible for all this amazing music I didn’t want to mess up before.
+ - I’ve grown up around cinema. Michael Kamen was a very, very close friend of mine, sort of my godfather. So I know how much work goes into it. You have to know what you’re doing.
+ - When my dad toured in ’91, I think my first gig properly was the Tokyo Dome, 50,000 people indoors. That was pretty scary. I was 12, or 13.
+ - I think guitar-wise, Eric Clapton was a big influence on me. I got to spend time around him. He’s kind of strange, mysterious, serious and he always has played such hot guitar.
+
+35 quotes

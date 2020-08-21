@@ -1,0 +1,55 @@
+ - Do not underestimate the determination of a quiet man.
+ - Luck is great, but most of life is hard work.
+ - Kids are meant to believe that their stepping stone to massive money is ‘The X Factor.’ Luck is great, but most of life is hard work. We do not celebrate people who have made success out of serious hard work.
+ - I think that the status that you have in life should be reflected in official documents. If you are married, fine, if you are living with someone, fine, if you are single, fine. We don’t want to tell people how to live their lives.
+ - With the right support, a child growing up in a dysfunctional household, who was destined for a lifetime on benefits could be put on an entirely different track – one which sees them move into fulfilling and sustainable work. In doing so, they will pull themselves out of poverty.
+ - What happened I think on Sept. 11 was we were given graphic and clear evidence that things had changed.
+ - In Birmingham, Manchester or Liverpool there are white gangs that share the same backgrounds – they come from broken homes, completely dysfunctional, mums for the most part unable to cope, the fathers of these kids completely not in the scene.
+ - Gang members have invariably grown up in broken, chaotic homes, often experiencing domestic violence; they have truanted from school and many have been formally excluded; and they live in neighbourhoods where worklessness, addiction and crime are rife.
+ - We do a disservice to society if we ignore the evidence which shows that stable families tend to be associated with better outcomes for children.
+ - Well obviously the economy is critical to everything we do and we need to get the economy back in shape, the deficit down, the debt paid off, so that the economy can grow again and grow properly.
+ - Well football teams are perhaps easier to control than political parties, I’m sure the Prime Minister would agree with me, but yeah I think every team needs discipline and a sense of self-belief and that’s important, that’s what leadership’s all about.
+ - Too many couples break up without understanding the consequences for their families.
+ - I have two daughters, it really means a lot to me to have two women standing now and being the PM.
+ - I am also incredibly proud of my party because today we have two strong woman candidates going to the country, we will have a women PM and it is the Conservative party yet again leading the way on this and it says to women all over the country you can get to the top.
+ - The future of Conservatism lies in our beliefs and values, not by throwing them away. We need to shed associations that bind us to past failures, but hold faith with those things that make us Conservatives.
+ - After years of piecemeal reform the current welfare system is complex and unfair.
+ - A good proportion of foreign nationals in jobs in the UK are in semi or low-skilled occupations.
+ - We do need to have a little bit more protection and sensibility around pensioners. They are remarkable. They gave so much. We need to make sure we do our best by them.
+ - By measuring the proportion of children living with the same parents from birth and whether their parents report a good quality relationship we are driving home the message that social programmes should promote family stability and avert breakdown.
+ - Government cannot do it all. As we work hard to break welfare dependency and get young people ready for the labour market, we need businesses to give them a chance and not just fall back on labour from abroad.
+ - I went up to the top of the career ladder and I came down again, I am past all that.
+ - Balance is if you try hard, you work hard then the rewards are in balance with what you put in and what is available.
+ - I hate this argument that says little Britain or something outside, or Britain is part of a wider Europe. We can both be within our trading relationships within Europe but we can also be a fantastic global trader.
+ - All too often, government’s response to social breakdown has been a classic case of ‘patching’ – a case of handing money out, containing problems and limiting the damage but, in doing so, supporting – even reinforcing – dysfunctional behaviour.
+ - We have to ensure that our immigration system works in the interests of Britain, enabling us to make a realistic promise to our young school-leavers. It is part of our contract with the British people.
+ - Look, I’ve always said from the word go many years ago that I felt the whole bonus culture, they need to think very carefully about being detached from the rest of the British public.
+ - What we want to do is reform the welfare system in the way that Tony Blair talked about 13 years ago but never achieved – a system that was created for the days after the Second World War. That prize is now I think achievable.
+ - Can there not be a limit to the fact that really you need to cut your cloth in accordance with what capabilities and finances you have?
+ - A system that was originally designed to support the poorest in society is now trapping them in the very condition it was supposed to alleviate.
+ - We have to challenge the whole idea that it’s acceptable for a society like Britain to have such a significant number of people who do not work one day of the week and don’t have any possibility of improving the quality of their lives.
+ - Every parent wants to know that their children are protected against those who have a particular agenda until they get old enough to make decisions for themselves.
+ - I think almost every political leader is always told that the next speech they make is the most crucial one.
+ - You cannot stop what the public want. The public want two strong women in the final round and then a woman prime minister and I’m absolutely with that.
+ - We do not celebrate people who have made success out of serious hard work.
+ - Over the years the political establishment has frowned if a mainstream politician mentions marriage.
+ - Work is transformative. It gives you a greater chance of a greater income. You can affect your life while you’re of working age, so you have scope and opportunity. Pensioners do not.
+ - The public thinks that homelessness is about not having any accommodation to go to.
+ - In many ways, Scotland will benefit more than other parts of the UK when Universal Credit comes in. A larger percentage of people will see an increase in their income through moving into work or taking on more hours.
+ - Aspiration, it seems, is in danger of becoming the preserve of the wealthy.
+ - There is nothing people can throw at me to say: Do this, do that.
+ - No I’m not a great believer in getting back over things and saying if only, or if, or buts because I don’t think we actually get anywhere on that.
+ - If Britain is to have a stable, affordable pension system, people need to work longer, but we will reward their hard work with a decent state pension that will enable them to enjoy quality of life in their retirement.
+ - There are few more powerful tools for promoting stability than the institution of marriage.
+ - Even as our economy starts to pick up, and new jobs are created, there is a risk that young people in Britain won’t get the chances they deserve because businesses will continue to look elsewhere.
+ - For those who are able to work, work has to be seen as the best route out of poverty. For work is not just about more money – it is transformative. It’s about taking responsibility for yourself and your family.
+ - With participation in politics so low at the moment I think Christians should ensure their views are represented at all levels and not leave it to others.
+ - The financial costs of family breakdown are incredibly high.
+ - I do not believe the picture that some people paint of Scottish towns dependent on welfare. Every time I come here, I meet people who are determined to get into work. Who, with the right help are desperate to get off benefits, support their family and set an example for their children.
+ - With high underemployment – currently over one million part-time workers in the UK want to work more hours – sanctioning clients who cannot increase their hours seems to be both unworkable and unfair.
+ - When families are strong and stable, so are children – showing higher levels of wellbeing and more positive outcomes. But when things go wrong – either through family breakdown or a damaged parental relationship – the impact on a child’s later life can be devastating.
+ - My view is pensioners don’t have the one option that people of working age have. They can’t really increase their income, because they are no longer able to work.
+ - I am an optimist about the UK. We have been involved in trade with our European partners, which we will always be doing whatever this relationship is. We are a member of the EU. That gives us benefits. But we have to figure out where that is going. In the world, we are a global trader already.
+ - My personal view is always I’m in favour of anything that gives parliament a greater say. That’s after all what we were elected for.
+
+53 quotes

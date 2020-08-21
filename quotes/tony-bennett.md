@@ -1,0 +1,35 @@
+ - If you follow your passion, you’ll never work a day in your life.
+ - Regardless of religion or race or ethnic background we are all human and we are all on this planet together. So what better reason do you need to not tolerate any form of violence against another human being?
+ - I knew very early that somehow I would sing and draw and paint my whole life.
+ - Someday, when I’m awfully low, and the world is cold, I will feel a glow just thinking of you, and the way you look tonight.
+ - I’ve taken stuff from people, too. You know though, if you steal from one person, you’re just a thief. But if you steal from everyone, that’s research.
+ - To work is to feel alive.
+ - The bottom line of any country is: what did we contribute to the world? We contributed Louis Armstrong.
+ - I’m not the type of person who likes to look backwards. I’ve always felt compelled to move forward and I’ve never been one to dwell in the past. All the people I’ve met, all the places I’ve been, and all the things that I’ve done have simply been part of who I am.
+ - When the uncreative tell the creative what to do, it stops being art.
+ - I’m still learning about music. The best way to learn is to listen to the audience. When you listen to the audience, they will tell you what they like. I wish these big corporations, instead of telling the audience what they should have, would listen.
+ - It’s the kind of turn that happened to the great country of Germany, when Nazis came over and created tragic things, and they had to be told off. And if we continue this kind of violence and accept it in our country, the rest of the world’s going to really take care of us, in a very bad way.
+ - I think if you have a passion for what you do then there are no limitations on how long or how much you can accomplish.
+ - Intimate singing had a wonderful style in the ’30s and ’40s. It came out of Broadway and the jazz of Louis Armstrong and Billie Holliday. But Sinatra created the best romantic era that we’ve ever had.
+ - I have an awful lot to learn. My dream is to get better and better as I get older.
+ - No-one will ever sound as good as Judy Garland as far as I am concerned.
+ - If you are creative, you get busier as you get older.
+ - I have to say I owe my career to the master composers of the Great American Songbook who have written such high-quality songs – the best popular music ever composed.
+ - I am very much inspired by the great masters of entertainment: Bob Hope, George Burns, Jimmy Durante – who never thought about retiring. When people ask me if I plan to retire, I say, “Retire to what? I am doing what I love best right now!”
+ - I can’t ask for more out of life, and the more I learn, the less I know.
+ - It helps to know there is going to be continuity.
+ - Don’t try to be just like some other singer hitting it big – find your own style and be honest in your performances. And never underestimate your audience.
+ - That song helped make me a world citizen. It allowed me to live, work and sing in any city on the globe. It changed my whole life.
+ - I still insist that American performers are the best performers in the world.
+ - Every city I go to is an opportunity to paint, whether it’s Omaha or Hawaii.
+ - We’re in an era where the demand is for immediate hits that are destined to become obsolescent. Six months later, everyone forgets the artist and the tune. It’s become like a con job. Producers, engineers, lawyers and accountants all make money, but the artists don’t.
+ - My goal as a creative person is to express truth and beauty in whatever I do.
+ - I have been very fortunate to have been able to make a living from what I love to do best – performing and singing for people.
+ - I’ve been so fortunate because I never really had ups and downs as far as my career. Ninety-nine percent of the time, I’ve been sold out all over the world.
+ - I plan to do my next two albums with Lady Gaga. She is quite a talent.
+ - I think one of the reasons I’m popular again is because I’m wearing a tie. You have to be different.
+ - The young people look great on television. They’re youthful and have a lot of zip and energy, but when you see them live, they can only do about 20 minutes because they haven’t got the training to hold an audience for an hour and a half or so.
+ - I think in all of the arts there are just certain people that have a gift. I think it’s a certain spirituality, it’s a God-given gift that just certain individuals have.
+ - More than anybody else I’d like to thank Count Basie for teaching me how to perform.
+
+33 quotes

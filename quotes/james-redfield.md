@@ -1,0 +1,40 @@
+ - Where Attention goes Energy flows; Where Intention goes Energy flows!
+ - Love is not an intellectual concept or a moral imperative or anything else. It is the background emotion that exists when one is connected to the energy available in the universe, which of course, is the energy of God.
+ - Sexual union is a holy moment in which a part of Heaven flows into the Earth.
+ - If we knock on the door until it opens, not taking no for an answer, our lives will be transformed as we step up into a higher awareness.
+ - The universe is energy, energy that responds to our expectations.
+ - Beauty is something we can affirm and intend to have more of. What happens then is our perceptual ability, no matter where we are, expands in that direction.
+ - History is not just the evolution of technology; it is the evolution of thought.
+ - If we make sure we stay in a state of conscious alertness for the next synchronicity, our minds stay on the positive and off our fear and doubt.
+ - Prayer power is real. By putting it into action, we will be able to stay more constantly in higher awareness than ever before. If we can do that, the world will quickly change.
+ - You see, the problem in life isn’t in receiving answers. The problem is in identifying your current questions. Once you get the questions right, the answers always come.
+ - Spirituality can not be separate from how we treat our bodies, construct our lifestyles, and keep our energy at higher levels.
+ - Once you learn what life is about, there is no way to erase that knowledge. If you try to do something else with your life, you will always sense that you are missing something.
+ - Energy doesn’t come to us so much from the things around us-although we can absorb energy directly from some plants and sacred sites. Sacred energy comes from our connection to the divine inside us.
+ - Very often your attitude about why an accident or illness has happened has an effect on your recuperation.
+ - Our children take our level of vibration and raise it even higher. This is how we, as humans, continue evolution.
+ - All I’ve done is put into words what all of us are about. We’re now at the archetypal stage of being ready to move from a material to a transcendent world view of culture. I’m only articulating what dwells in the consciousness of a good part of the masses now. That’s why the response.
+ - Life is really about a spiritual unfolding that is personal and enchanting – an unfolding that no science or philosophy or religion has yet fully clarified.
+ - The First Insight Theory: Mysterious coincidences cause the reconsideration of the inherent mystery that surrounds our individual lives on this planet.
+ - Blaming our behavior on forces outside ourselves is a way of avoiding responsibility.
+ - Loving and energizing others is the best possible thing we can do for ourselves.
+ - In reality, there are no enemies; we’re all souls in growth, waking up.
+ - We can increase the frequency of guiding coincidences by uplifting every person that comes into our lives. Care must be taken not to lose our inner connection in romantic relationships.
+ - By seeing the beauty in every face we lift others into their wisest self and increase the chances of hearing a synchronistic message.
+ - The true, or higher part of the self is always seeking the state that mystics talk about, the state in which we are filled with a universal love and a peaceful euphoria.
+ - We can become inspired to shape a higher, more ideal future, and when we do, miracles happen.
+ - Knowing our personal mission further enhances the flow of mysterious coincidences as we are guided toward our destinies.
+ - If history tells us anything, it is that human culture and knowledge are constantly evolving.
+ - We humans have always sought to increase our personal energy in the only manner we have known, by seeking to psychologically steal it from the others – an unconscious competition that underlies all human conflict in the world.
+ - Religions become corrupted when leaders are assigned to explain God’s will to people instead of showing them how to find this direction within themselves.
+ - Inspiration is what keeps us well.
+ - You should never take responsibility for more children than you can give attention to.
+ - Evolution is a myth. God creates the future the way he wants it.
+ - Such growth will move humans into ever-higher energy states, ultimately transforming our bodies into spiritual form and uniting this dimension of existence with the afterlife dimension, ending the cycle of birth and death.
+ - The worst thing that can be done to children is to drain their energy while correcting them.
+ - The effective prayers are affirmations.
+ - When each expects the other to live in his or her world, to always be there to join in his or her chosen activities, an ego battle inevitably develops.
+ - Knowing our personal mission further enhances the flow of mysterious coincidences as we are guided toward our destinies. First we have a question, then dreams, daydreams, and intuitions lead us toward the answers, which usually are synchronistically provided by the wisdom of another human being.
+ - Michael Tomlinson’s music truly explores the issues of the heart.
+
+38 quotes

@@ -1,0 +1,34 @@
+ - Freedom is the oxygen of the soul.
+ - Israel must be like a mad dog, too dangerous to bother.
+ - Our American friends offer us money, arms, and advice. We take the money, we take the arms, and we decline the advice.
+ - There is no more Palestine. Finished.
+ - I am not supposed to be an expert in every field. I am supposed to be an expert in picking experts.
+ - I have only one eye. Do you want me to look at the road or the at the speedometer.
+ - If we lose this war, I’ll just start another in my wife’s name.
+ - Most important, don’t do anything you don’t want.
+ - To aim and hit, you need one eye only, and one good finger.
+ - It isn’t a secret that my heart is damaged. All the treatments and medications haven’t been effective.
+ - Jewish villages were built in the place of Arab villages. You do not even know the names of these Arab villages, and I do not blame you because geography books no longer exist.
+ - After all, we are not children. It’s time we planned our life.
+ - I know of nothing more exciting than war.
+ - What cause have we to complain about their fierce hatred to us? For eight years now, they sit in their refugee camps in Gaza, and before their eyes we turn into our homestead the land and villages in which they and their forefathers have lived.
+ - The method of collective punishment so far has proved effective.
+ - A new State of Israel with broad frontiers, strong and solid, with the authority of the Israel Government extending from the Jordan to the Suez Canal.
+ - Israel cannot afford to stand against the entire world and be denounced as the aggressor.
+ - Soldiers of Israel, we have no aims of conquest. Our purpose is to bring to naught the attempts of the Arab armies to conquer our land.
+ - I have traveled a long road from the battlefield to the peace table.
+ - There is not one single place built in this country that did not have a former Arab population.
+ - We should demand his blood not from the Arabs of Gaza but from ourselves. Let us make our reckoning today.
+ - It lies upon the people’s shoulders to prepare for the war, but it lies upon the Israeli army to carry out the fight with the ultimate object of erecting the Israeli Empire.
+ - It’s a democracy and if I am outvoted, I have to accept the majority decisions.
+ - I feel I’ve lived so long, and went through so much, that all I want is calm and rest.
+ - I know that plans and reality may be two different things, but I think my demands on life are minimal.
+ - In two cases I did not fulfill my role as defense minister, in that I did not stop things that I was sure should have been stopped.
+ - If I had to resign every time the Cabinet disagrees with me, I could not last as a Defense Minister one week.
+ - I don’t think we should be a model family living in a model home.
+ - It was in our power to cause the Arab governments to renounce the policy of strength toward Israel by turning it into a demonstration of weakness.
+ - Let us not be afraid to see the hatred that consumes the lives of hundreds of thousands of Arabs who sit around us and wait for the moment when their hands will be able to reach our blood.
+ - We are a generation of settlers, and without the steel helmet and gun barrel, we shall not be able to plant a tree or build a house.
+ - Take the American declaration of Independence. It contains no mention of territorial limits. We are not obliged to fix the limits of the State.
+
+32 quotes

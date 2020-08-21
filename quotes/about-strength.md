@@ -1,0 +1,25 @@
+ - You cannot dream yourself into a character; you must hammer and forge yourself one. ~~J.A. Froude
+ - Surprise yourself every day with your own courage. ~~Denholm Elliott
+ - You never know how strong you are, until being strong is your only choice. ~~Bob Marley
+ - Life is 10% what happens to me and 90% of how I react to it. ~~John C. Maxwell
+ - Throw me to the wolves and I will return leading the pack. ~~Seneca
+ - Fall down seven times, get up eight. ~~Japanese Proverb
+ - The weak can never forgive. Forgiveness is the attribute of the strong. ~~Mahatma Gandhi
+ - Some people don’t like you just because your strength reminds them of their weakness. Don’t let the hate slow you down. ~~Thema Davis
+ - Hardship often prepares an ordinary person for an extraordinary destiny. ~~C. S. Lewis
+ - Do not pray for an easy life, pray for the strength to endure a difficult one. ~~Bruce Lee
+ - Strength does not come from winning. Your struggles develop your strengths. When you go through hardships and decide not to surrender, that is strength. ~~Arnold Schwarzenegger
+ - You have power over your mind, not outside events. Realize this, and you will find strength. ~~Marcus Aurelius
+ - Nothing is impossible, the word itself says ‘I’m possible’! ~~Audrey Hepburn
+ - No one can make you feel inferior without your consent. ~~Eleanor Roosevelt
+ - Difficulties strengthen the mind, as labor does the body. ~~Seneca
+ - Strength does not come from physical capacity. It comes from an indomitable will. ~~Mahatma Gandhi
+ - Success is not final, failure is not fatal: it is the courage to continue that counts. ~~Winston Churchill
+ - Nobody can hurt me without my permission. ~~Mahatma Gandhi
+ - Strength and growth come only through continuous effort and struggle. ~~Napoleon Hill
+ - You gain strength, courage and confidence by every experience in which you really stop to look fear in the face. You are able to say to yourself, 'I have lived through this horror. I can take the next thing that comes along.' You must do the thing you think you cannot do. ~~Eleanor Roosevelt
+ - My attitude is that if you push me towards something that you think is a weakness, then I will turn that perceived weakness into a strength. ~~Michael Jordan
+ - If you always put limits on everything you do, physical or anything else, it will spread into your work and into your life. There are no limits. There are only plateaus, and you must not stay there, you must go beyond them. ~~Bruce Lee
+ - Character cannot be developed in ease and quiet. Only through experience of trial and suffering can the soul be strengthened, vision cleared, ambition inspired, and success achieved. ~~Helen Keller
+
+23 quotes

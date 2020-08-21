@@ -1,0 +1,65 @@
+ - As the rolling stone gathers no moss, so the roving heart gathers no affections.
+ - Accuracy of language is one of the bulwarks of truth.
+ - Out of the attempt to harmonize our actual life with our aspirations, our experience with our faith, we make poetry, – or, it may be, religion.
+ - A cunning mind emphatically delights in its own cunning, and is the ready prey of cunning.
+ - It is not poverty so much as pretence that harasses a ruined man – the struggle between a proud mind and an empty purse – the keeping up a hollow show that must soon come to an end. Have the courage to appear poor, and you disarm poverty of its sharpest sting.
+ - We can sometimes love what we do not understand, but it is impossible completely to understand what we do not love.
+ - As the presence of those we love is as a double life, so absence, in its anxious longing and sense of vacancy, is as a foretaste of death.
+ - Extreme vanity sometimes hides under the garb of ultra modesty.
+ - Nature and truth are one, and immutable, and inseparable as beauty and love.
+ - All my experience of the world teaches me that in ninety-nine cases out of a hundred the safe side and the just side of a question is the generous side and the merciful side.
+ - Have the courage to appear poor and you disarm poverty of its sharpest sting.
+ - The true purpose of education is to cherish and unfold the seed of immortality already sown within us.
+ - Talk without truth is the hollow brass; talk without love is like the tinkling cymbal, and when it does not tinkle it jingles, and when it does not jingle, it jars.
+ - A king or a prince becomes by accident a part of history. A poet or an artist becomes by nature and necessity a part of universal humanity.
+ - All my own experience of life teaches me the contempt of cunning, not the fear. The phrase “profound cunning,” has always seemed to me a contradiction in terms. I never knew a cunning mind which was not either shallow, or on some point diseased.
+ - You must never believe what the newspapers say. I stand aghast at the impudence of the lies they contain, things not only false in fact, but absolutely impossible.
+ - He that seeks popularity in art closes the door on his own genius: as he must needs paint for other minds, and not for his own.
+ - Conversation may be compared to a lyre with seven chords-philosophy, art, poetry, love, scandal, and the weather.
+ - Modesty and chastity are twins.
+ - Satan – the impersonation of that mixture of the bestial, the malignant, the impious, and the hopeless, which constitute the fiend – the enemy of all that is human and divine.
+ - When we talk of leaving our childhood behind us, we might as well say that the river flowing onward to the sea had left the fountain behind.
+ - I have much more confidence in the charity which begins in the home and diverges into a large humanity, than in the world-wide philanthropy which begins at the outside of our horizon to converge into egotism.
+ - The moment one begins to solder right and wrong together, one’s conscience becomes like a piece of plated goods.
+ - The streams which would otherwise diverge to fertilize a thousand meadows, must be directed into one deep narrow channel before they can turn a mill.
+ - In morals, what begins in fear usually ends in wickedness; in religion, what begins in fear usually ends in fanaticism. Fear, either as a principle or a motive, is the beginning of all evil.
+ - Childhood sometimes does pay a second visit to man; youth never.
+ - Blessed is the memory of those who have kept themselves unspotted from the world. Yet more blessed and more dear the memory of those who have kept themselves unspotted in the world.
+ - In every mind where there is a strong tendency to fear there is a strong capacity to hate. Those who dwell in fear dwell nest door to hate; and I think it is the cowardice of women which makes them such intense haters.
+ - What we truly and earnestly aspire to be, that in some sense we are. The mere aspiration, by changing the frame of mind, for the moment realizes itself.
+ - Where the vivacity of the intellect and the strength of the passions exceed the development of the moral faculties the character is likely to be embittered or corrupted by extremes, either of adversity or prosperity.
+ - In our relations with the people around us, we forgive them more readily for what they do, which they can help, than for what they are, which they cannot help.
+ - In the art of design, color is to form what verse is to prose, – a more harmonious and luminous vehicle of the thought.
+ - As the eye becomes blinded by fashion to positive deformity, so, through social conventionalism, the conscience becomes blinded to positive immorality.
+ - Nature is boundless in her powers, exhausting in her variety: the powers of Art and its capabilities of variety in production are bounded on every side. Nature herself, the infinite, has circumscribed the bounds of finite Art. The one is the divinity; the other the priestess.
+ - There are no such self-deceivers as those who think they reason when they only feel.
+ - Avarice is to the intellect what sensuality is to the morals.
+ - A Canadian settler hates a tree, regards it as his natural enemy, as something to be destroyed, eradicated, annihilated by all and any means.
+ - Fame is that which is known to exist by the echo of its footsteps through congenial minds.
+ - To some characters, fame is like an intoxicating cup placed to the lips, – they do well to turn away from it who fear it will turn their heads. But to others fame is “love disguised,” the love that answers to love in its widest, most exalted sense.
+ - Chill penury weighs down the heart itself; and though it sometimes be endured with calmness, it is but the calmness of despair.
+ - Occupation was one of the pleasures of paradise, and we cannot be happy without it.
+ - Opinion has ever been stronger than law.
+ - There are brains so large that they unconsciously swamp all individualities ties which come in contact or too near, and brains so small that they cannot take in the conception of any other individuality as a whole, only in part or parts.
+ - If we can still love those who have made us suffer, we love them all the more.
+ - The moment in which the spirit meets death is perhaps like the moment in which it is embraced in sleep. I suppose it never happened to any one to be conscious of the immediate transition from the waking to the sleeping state.
+ - What we earnestly aspire to be, that in some sense we are.
+ - A good taste is often unconscious; a just taste is always conscious.
+ - Work in some form or other is the appointed lot of all.
+ - A man may be as much a fool from the want of sensibility as the want of sense.
+ - I do not like new things of any kind, not even a new gown, far less a new acquaintance, therefore make as few as possible; one can but have one’s heart and hands full, and mine are. I have love and work enough to last me the rest of my life.
+ - All government, all exercise of power, no matter in what form, which is not based in love and directed by knowledge, is a tyranny.
+ - To reason from analogy is often dangerous, but to illustrate by a fanciful analogy is sometimes a means by which we light an idea, as it were, into the understanding of another.
+ - How often we have had cause to regret that the histrionic art, of all the fine arts the most intense in its immediate effect, should be, of all others, the most transient in its result! – and the only memorials it can leave behind, at best, so imperfect and so unsatisfactory!
+ - Now, it is a good sanitary principle, that what is curative is preventive...
+ - Even virtue itself, all perfect as it is, requires to be inspirited by passion; for duties are but coldly performed which are but philosophically fulfilled.
+ - Fear, either as a principle or a motive, is the beginning of all evil.
+ - A bond is necessary to complete our being, only we must be careful that the bond does not become bondage.
+ - Genius and sunshine have this in common that they are the two most precious gifts of heaven to earth, and are dispensed equally to the just and the unjust.
+ - Conflict, which rouses up the best and highest powers in some characters, in others not only jars the whole being, but paralyzes the faculties.
+ - Reputation being essentially contemporaneous, is always at the mercy of the Envious and the Ignorant. But Fame, whose very birth is posthumous, and which is only known to exist by the echo of its footsteps through congenial minds, can neither be increased nor diminished by any degree of wilfulness.
+ - If a superior woman marry a vulgar or inferior man, he makes her miserable, but seldom governs her mind or vulgarizes her nature; and if there be love on his side, the chances are that in the end she will elevate and refine him.
+ - Never yet were the feelings and instincts of our nature violated with impunity; never yet was the voice of conscience silenced without retribution.
+ - As what we call genius arises out of the disproportionate power and size of a certain faculty, so the great difficulty lies in harmonizing with it the rest of the character.
+
+63 quotes

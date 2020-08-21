@@ -1,0 +1,29 @@
+ - Everyone who remembers his own education remembers teachers, not methods and techniques. The teacher is the heart of the educational system.
+ - Tolerance always has limits – it cannot tolerate what is itself actively intolerant.
+ - Stupidity is sometimes the greatest of historical forces.
+ - The easiest rationalization for the refusal to seek the truth is the denial that truth exists.
+ - Students rarely disappoint teachers who assure them in advance that they are doomed to failure.
+ - The next time anyone asks you “What is Bertrand Russell’s philosophy?” the correct answer is “What year, please?”
+ - Noam Chomsky skittles and skithers all over the political landscape to distract the reader’s attention from the plain truth.
+ - Life has meaning for anyone who takes an interest in it.
+ - The difference between science and religion is that the former wishes to get rid of mysteries whereas the latter worships them.
+ - No one who accepts the sovereignty of truth can be a foot soldier in a party or movement. He will always find himself out of step.
+ - Idealism, alas, does not protect one from ignorance, dogmatism, and foolishness.
+ - Wisdom is an affair of values, and of value judgments. It is intelligent conduct of human affairs.
+ - Religious freedom in an open society has the best prospects of flourishing to the extent that it expresses itself as freedom of religious inquiry.
+ - To silence criticism is to silence freedom.
+ - In contrast to totalitarianism, democracy can face and live with the truth about itself.
+ - Religious tolerance has developed more as a consequence of the impotence of religions to impose their dogmas on each other than as a consequence of spiritual humility in the quest for understanding first and last things.
+ - Fear of death has been the greatest ally of tyranny past and present.
+ - I was guilty of judging capitalism by its operations and socialism by its hopes and aspirations; capitalism by its works and socialism by its literature.
+ - A liberal education will impart an awareness of the amazing and precious complexity of human relationships. Since those relationships are violated more often out of insensitiveness than out of deliberate intent, whatever increases sensitiveness of perception and understanding humanizes life.
+ - Before impugning an opponent’s motives, even when they legitimately may be impugned, answer his arguments.
+ - To serve the public interest is not the same as being a servant of public opinion.
+ - Those who say that life is worth living at any cost have already written an epitaph of infamy, for there is no cause and no person that they will not betray to stay alive.
+ - The mob that hails the man on horseback, the Caesars and conquering heroes, does not retain its freedoms for long.
+ - To deny me the right to err is therefore to deny me the right to believe.
+ - Nonetheless, it still remains true that as a set of cognitive beliefs, religious doctrines constitute a speculative hypothesis of an extremely low order of probability.
+ - Philosophy, most broadly viewed, is the critical survey of existence from the standpoint of value.
+ - If one shoots at a king, one must not miss.
+
+27 quotes

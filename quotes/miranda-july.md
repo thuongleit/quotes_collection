@@ -1,0 +1,82 @@
+ - Live the dream, Potato.
+ - But, like ivy, we grow where there is room for us.
+ - What a terrible mistake to let go of something wonderful for something real.
+ - We come from long lines of people destined never to meet.
+ - Some people need a red carpet rolled out in front of them in order to walk forward into friendship. They can’t see the tiny outstretched hands all around them, everywhere, like leaves on trees.
+ - Things usually make sense in time, and even bad decisions have their own kind of correctness.
+ - I laughed and said, Life is easy. What I meant was, Life is easy with you here, and when you leave, it will be hard again.
+ - Don’t wait to be sure. Move, move, move.
+ - Look at the sky: that is for you. Look at each person’s face as you pass them on the street: those faces are for you. And the street itself, and the ground under the street, and the ball of fire underneath the ground: all these things are for you.
+ - Inelegantly, and without my consent, time passed.
+ - In my paranoid world every storekeeper thinks I’m stealing, every man thinks I’m a prostitute or a lesbian, every woman thinks I’m a lesbian or arrogant, and every child and animal sees the real me and it is evil.
+ - If you were wise enough to know that this life would consist mostly of letting go of things you wanted, then why not get good at the letting go, rather than the trying to have?
+ - We humans are here because nothing can be perfect. There always have to be some living things that are unsatisfied, itchy, trying too hard. If it was all just animals and rocks and lettuce, the gods wouldn’t feel like they had enough to do.
+ - She never inquired, but she never recoiled, either. This is a quality that I look for in a person, not recoiling.
+ - That is my problem with life, I rush through it, like I’m being chased. Even things whose whole point is slowness, like drinking relaxing tea. When I drink relaxing tea I suck it down as if I’m in a contest for who can drink relaxing tea the quickest.
+ - I gave you things I wasn’t sure I even had.
+ - I knew the beginning and the end – I just had to dream up a convincing middle.
+ - Some people are uncomfortable with silences. Not me. I’ve never cared much for call and response. Sometimes I will think of something to say and then I ask myself: is it worth it? And it just isn’t.
+ - I steeled myself against laughter; I would rather die than laugh. I didn’t laugh, I did not laugh. But I died, I did die.
+ - I looked out the window for other passengers in love with their drivers, but we were well disguised, we pretended boredom and prayed for traffic.
+ - You always feel like you are the only one in the world, like everyone else is crazy for each other, but it’s not true. Generally, people don’t like each other very much. And that goes for friends, too.
+ - Where do we come from? Do souls really exist? I can’t answer these questions, especially not at 6am.
+ - The job of the artist is to point at things.
+ - And why had Deb’s last boyfriend dumped her? I dumped him. Maybe you didn’t French-kiss him enough. I promise you that wasn’t it. Tell me how many times a day you kissed, and I’ll say if it was enough. Four hundred. Not enough.
+ - I’m not a cinephile. My films don’t reference films. I’m more interested in rhythm and feeling.
+ - Did you ever really love her? Not really no. But me? Yes. Even though I have no pizzazz?
+ - Nothing really mattered, and nothing could be lost.
+ - We had loved people we really shouldn’t have loved and then married other people in order to forget our impossible loves, or we had once called out hello into the cauldron of the world and then run away before anyone could respond.
+ - He pulled away, but his eyes held my eyes like hands.
+ - An erratum is a correction inserted into a book after publication. It’s a nice thing to collect because you can’t go after them, you just come upon them. In 25 years I’ve only found about 12.
+ - If there were a map of the solar system, but instead of stars it showed people and their degrees of separation, my star would be the one you had to travel the most light-years from to get to his. You would die getting to him.
+ - The thing I am most interested in is power relations – it is so easy to imagine that the other person is living a perfect life.
+ - I could not make a move without making love.
+ - We were always getting away with something, which implied that someone was always watching us, which mean were are not alone in this world.
+ - Would she understand that time had stopped while she was gone.
+ - Life is just this way, broken, and I am crazy to hope for something else.
+ - For a split second I felt as though she was nobody special in the larger scheme of my life. She was just some girl who had tied me to her leg to help her sink when she jumped off the bridge. Then I blinked and was in love with her again.
+ - It is terrible to have to ask for anything ever. We wish we were something that needed nothing, like paint. But even paint needs repainting.
+ - When I write, I wear earplugs. I don’t want to be self-conscious. I don’t want to be thinking about the fact that I’m thinking about it. I just want to be in it. It’s one element of hypnosis.
+ - In an ideal world, we would have been orphans. We felt like orphans and we felt deserving of the pity that orphans get, but embarrassingly enough, we had parents.
+ - That day I carried the dream around like a full glass of water, moving gracefully so I would not lose any of it.
+ - People tend to stick to their own size group because it’s easier on the neck. Unless they are romantically involved, in which case the size difference is sexy. It means: I am willing to go the distance for you.
+ - The things keeping you back-these embarrassing, boring, stupid obstacles-are the heart of what it is to be human. They’re the whole reason for making and needing art. So you might as well go ahead and begin in whatever way you can right now.
+ - My job is to have new ideas and take risks every day, so I’m always looking forward to the next thing being done or making the next thing that I haven’t yet gotten to. That’s sort of the constant in my life.
+ - The level of control, that’s part of what’s so appealing about filmmaking – you have so much control over what the reader, the viewer, is noticing from moment to moment. They can’t do that boring boring boring thing as easily.
+ - I cried in English, I cried in french, I cried in all the languages, because tears are the same all around the world.
+ - I’m interested in what the virtues of all those things are, especially for the kind of person who’s made their own world that revolves around them, like writers do. It seems especially precious.
+ - We don’t really believe in mowing the lawn; we do it only to avoid unnecessary engagement with the neighbors.
+ - He breathed out the bitter air that makes women doubt everything, and I breathed it in, as I had always done. I expelled my dust, the powder of everything I had destroyed with doubt, and he pulled it into his lungs.
+ - I nodded, pretending I was relaxed. I watched the sunlight sparkling on the water and practiced mind-body integration for a few seconds by quietly hyperventilating.
+ - The word God asks a question and then answers it before there is any chance to wonder.
+ - She bludgeoned me with a look of such limitless compassion that I immediately began to cry.
+ - It was an act of devotion. A little like writing or loving someone – it doesn’t always feel worthwhile, but not giving up somehow creates unexpected meaning over time.
+ - When you can see the beauty of a tree, then you will know what love is.
+ - This person realizes that staying home means blowing off everyone this person has ever known. But the desire to stay in is very strong. This person wants to run a bath and then read in bed.
+ - When I was very little, I probably wanted to be more normal. I probably wanted the Laura Ashley bedroom, and instead I got thrift-store everything.
+ - The life you live in front of an audience is like an altered state – it’s not totally real. I’m always, even in the course of one day, trying to find ways to balance both sides.
+ - It would require constant vigilance to not replace each person with my own fictional version of them.
+ - I like embracing kind of normal forms but am always trying to approach them as if no one’s ever done that before. As if I’m literally the first person to ever write a book.
+ - I don’t think I’m more of a screenwriter than I am a fiction writer. I’m more of a reader than a film-watcher, so I imagine that I’m not approaching fiction or films in a particularly cinematic way.
+ - It was a tiny sound but it woke me up because it was a human sound.
+ - All I ever really want to know is how other people are making it through life – where do they put their body, hour by hour, and how do they cope inside of it.
+ - This pain, this dying, this is just normal. This is how life is. In fact, I realize, there never was an earthquake. Life is just this way, broken, and I am crazy for dreaming of something else.
+ - I wish there were a class where we could just keep going around the circle. around and around, until we had finally said everything about ourselves.
+ - We really wanted to know all the unknowable things about each other and how we were the same and how we were different, if we even were, maybe nobody is.
+ - I was going to die and it was taking forever.
+ - Since I started making art, I’ve always had some kind of project that was really about and for other people, because I think I just need that balance to feel sane myself – you know?
+ - There was nothing in this world that was not a con, suddenly I understood this. Nothing really mattered, and nothing could be lost.
+ - It occurred to me that everyone’s story matters to themselves, so the more I listened, the more she wanted to talk.
+ - I actually don’t have a great surplus of ideas. Some evolve very slowly, over many years, but I sort of trust that all of the interesting ones will become something that I eventually end up doing.
+ - I realize that we all think we might be terrible people. But we only reveal this before we ask someone to love us. It is a kind of undressing.
+ - There’s all different kinds of people, but I don’t think it’s that unusual that once you get like a little power, you get to do your weird thing even more.
+ - I really did not feel okay about any of this, and there was really nothing I could do about any of it.
+ - It was a small thing, but it was a thing, and things have a way of either dying or growing, and it wasn’t dying.
+ - He seemed to be waiting for me to move forward. Weren’t we all.
+ - I had a joint once and I didn’t feel right for a whole year.
+ - I definitely wanted much more normalness than what was around me.
+ - Narrative and characters have always interested me. I never tried to alienate an audience. Of course, gradually, I wanted a bigger and bigger space to draw people in, so it’s very organic.
+ - I went to the bedroom and lay on the floor, so as not to mess up the covers.
+ - My earliest memory is aged three, seeing sunlight on water and feeling it was really magical.
+
+80 quotes

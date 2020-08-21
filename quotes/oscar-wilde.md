@@ -1,0 +1,502 @@
+ - To live is the rarest thing in the world. Most people exist, that is all.
+ - Be yourself; everyone else is already taken.
+ - We are all in the gutter, but some of us are looking at the stars.
+ - Every saint has a past, and every sinner has a future.
+ - Always forgive your enemies; nothing annoys them so much.
+ - Never love anyone who treats you like you’re ordinary.
+ - I am so clever that sometimes I don’t understand a single word of what I am saying.
+ - You can never be overdressed or overeducated.
+ - The truth is rarely pure and never simple.
+ - Women are meant to be loved, not to be understood.
+ - An idea that is not dangerous is unworthy of being called an idea at all.
+ - A good friend will always stab you in the front.
+ - Death must be so beautiful. To lie in the soft brown earth, with the grasses waving above one’s head, and listen to silence. To have no yesterday, and no tomorrow. To forget time, to forgive life, to be at peace.
+ - We are each our own devil, and we make this world our hell.
+ - Live! Live the wonderful life that is in you! Let nothing be lost upon you. Be always searching for new sensations. Be afraid of nothing.
+ - I don’t want to go to heaven. None of my friends are there.
+ - I have the simplest tastes. I am always satisfied with the best.
+ - I am not young enough to know everything.
+ - If one cannot enjoy reading a book over and over again, there is no use in reading it at all.
+ - I have nothing to declare except my genius.
+ - Life is far too important a thing ever to talk seriously about.
+ - No good deed goes unpunished.
+ - Experience is merely the name men gave to their mistakes.
+ - The heart was made to be broken.
+ - It is what you read when you don’t have to that determines what you will be when you can’t help it.
+ - Anybody can sympathise with the sufferings of a friend, but it requires a very fine nature to sympathise with a friend's success.
+ - Man is least himself when he talks in his own person. Give him a mask, and he will tell you the truth.
+ - The best way to appreciate your job is to imagine yourself without one.
+ - Hear no evil, speak no evil, and you’ll never be invited to a party.
+ - The books that the world calls immoral are books that show the world its own shame.
+ - A bore is someone who deprives you of solitude without providing you with company.
+ - Anyone who lives within their means suffers from a lack of imagination.
+ - Fashion is a form of ugliness so intolerable that we have to alter it every six months.
+ - Men marry because they are tired; women, because they are curious: both are disappointed.
+ - You don’t love someone for their looks, or their clothes, or for their fancy car, but because they sing a song only you can hear.
+ - Quotation is a serviceable substitute for wit.
+ - Most people are other people. Their thoughts are someone else’s opinions, their lives a mimicry, their passions a quotation.
+ - A dreamer is one who can only find his way by moonlight, and his punishment is that he sees the dawn before the rest of the world.
+ - Some cause happiness wherever they go; others whenever they go.
+ - No man is rich enough to buy back his past.
+ - Education is an admirable thing, but it is well to remember from time to time that nothing that is worth knowing can be taught.
+ - Whenever people agree with me I always feel I must be wrong.
+ - If you cannot write well, you cannot think well; if you cannot think well, others will do your thinking for you.
+ - The old believe everything, the middle-aged suspect everything, the young know everything.
+ - Everything in the world is about sex except sex. Sex is about power.
+ - I am too fond of reading books to care to write them.
+ - Life is not complex. We are complex. Life is simple, and the simple thing is the right thing.
+ - You will always be fond of me. I represent to you all the sins you never had the courage to commit.
+ - To define is to limit.
+ - Never regret thy fall, O Icarus of the fearless flight For the greatest tragedy of them all Is never to feel the burning light.
+ - The very essence of romance is uncertainty.
+ - Society often forgives the criminal; it never forgives the dreamer.
+ - I beg your pardon I didn’t recognise you – I’ve changed a lot.
+ - A man who does not think for himself does not think at all.
+ - How can a woman be expected to be happy with a man who insists on treating her as if she were a perfectly normal human being.
+ - A passion for pleasure is the secret of remaining young.
+ - Behind every exquisite thing that existed, there was something tragic.
+ - Life has been your art. You have set yourself to music. Your days are your sonnets.
+ - Keep love in your heart. A life without it is like a sunless garden when the flowers are dead. The consciousness of loving and being loved brings a warmth and a richness to life that nothing else can bring.
+ - A writer is someone who has taught his mind to misbehave.
+ - Ordinary riches can be stolen, real riches cannot. In your soul are infinitely precious things that cannot be taken from you.
+ - Every woman is a rebel.
+ - For one moment our lives met, our souls touched.
+ - Selfishness is not living as one wishes to live, it is asking others to live as one wishes to live.
+ - Democracy means simply the bludgeoning of the people by the people for the people.
+ - There are moments when one has to choose between living one’s own life, fully, entirely, completely-or dragging out some false, shallow, degrading existence that the world in its hypocrisy demands.
+ - The basis of optimism is sheer terror.
+ - If you don’t get everything you want, think of the things you don’t get that you don’t want.
+ - A little sincerity is a dangerous thing, and a great deal of it is absolutely fatal.
+ - Man is many things, but he is not rational.
+ - I never travel without my diary. One should always have something sensational to read in the train.
+ - To be popular one must be a mediocrity.
+ - To regret one’s own experiences is to arrest one’s own development. To deny one’s own experiences is to put a lie into the lips of one’s own life. It is no less than a denial of the soul.
+ - Patriotism is the virtue of the vicious.
+ - I like talking to a brick wall- it’s the only thing in the world that never contradicts me!
+ - Arguments are to be avoided, they are always vulgar and often convincing.
+ - When I like people immensely I never tell their names to anyone. It is like surrendering a part of them. I have grown to love secrecy.
+ - It is through art, and through art only, that we can realise our perfection.
+ - And what sort of lives do these people, who pose as being moral, lead themselves? My dear fellow, you forget that we are in the native land of the hypocrite.
+ - Humanity takes itself too seriously. It is the world’s original sin. If the cave-man had known how to laugh, History would have been different.
+ - I like men who have a future and women who have a past.
+ - I knew nothing but shadows and I thought them to be real.
+ - One’s real life is so often the life that one does not lead.
+ - He wanted to be where no one would know who he was. He wanted to escape from himself.
+ - People who count their chickens before they are hatched act very wisely because chickens run about so absurdly that it’s impossible to count them accurately.
+ - The most terrible thing about it is not that it breaks one’s heart – hearts are made to be broken – but that it turns one’s heart to stone.
+ - I never put off till tomorrow what I can possibly do – the day after.
+ - There is no such thing as a moral or an immoral book. Books are well written, or badly written. That is all.
+ - When a woman marries again, it is because she detested her first husband. When a man marries again, it is because he adored his first wife. Women try their luck; men risk theirs.
+ - This wallpaper is dreadful, one of us will have to go.
+ - In old days books were written by men of letters and read by the public. Nowadays books are written by the public and read by nobody.
+ - Sin is a thing that writes itself across a man’s face. It cannot be concealed.
+ - Being natural is simply a pose, and the most irritating pose I know.
+ - One should never trust a woman who tells one her real age. A woman who would tell one that would tell one anything.
+ - Its a beautiful woman’s fate to be the subject of conversation where ever she goes.
+ - She is very clever, too clever for a woman. She lacks the indefinable charm of weakness.
+ - A woman will flirt with anybody in the world as long as other people are looking on.
+ - It is perfectly monstrous,? he said, at last, ’the way people go about nowadays saying things against one behind one’s back that are absolutely and entirely true.
+ - The gods are strange. It is not our vices only they make instruments to scourge us. They bring us to ruin through what in us is good, gentle, humane, loving.
+ - You have filled my tea with lumps of sugar, and though I asked most distinctly for bread and butter, you have given me cake. I am known for the gentleness of my disposition, and the extraordinary sweetness of my nature, but I warn you, Miss Cardew, you may go too far.
+ - A cynic is a man who knows the price of everything, and the value of nothing.
+ - There are only two tragedies in life: one is not getting what one wants, and the other is getting it.
+ - Everything in moderation, including moderation.
+ - To love oneself is the beginning of a lifelong romance.
+ - With freedom, books, flowers, and the moon, who could not be happy?
+ - Imitation is the sincerest form of flattery that mediocrity can pay to greatness.
+ - If you want to tell people the truth, make them laugh, otherwise they’ll kill you.
+ - Success is a science; if you have the conditions, you get the result.
+ - It takes great deal of courage to see the world in all its tainted glory, and still to love it.
+ - Whenever life sucks, remember you’re going to die someday.
+ - The smallest act of kindness is worth more than the grandest intention.
+ - Love is a misunderstanding between two fools.
+ - What of Art? -It is a malady. – Love? -An Illusion. – Religion? -The fashionable substitute for Belief. – You are a sceptic. -Never! Scepticism is the beginning of Faith. – What are you? -To define is to limit.
+ - What seems to us as bitter trials are often blessings in disguise.
+ - There are two ways to dislike poetry: One is to dislike it; the other is to read Pope.
+ - Let me be surrounded by luxury, I can do without the necessities!
+ - Many of the great achievements of the world were accomplished by tired and discouraged men who kept on working.
+ - Punctuality is the thief of time.
+ - It is absurd to divide people into good and bad. People are either charming or tedious.
+ - The aim of life is self-development. To realize one’s nature perfectly – that is what each of us is here for.
+ - Memory is the diary we all carry about with us.
+ - When I was young I thought that money was the most important thing in life; now that I am old I know that it is.
+ - A map of the world that does not include Utopia is not worth even glancing at, for it leaves out the one country at which Humanity is always landing. And when Humanity lands there, it looks out, and, seeing a better country, sets sail. Progress is the realisation of Utopias.
+ - I love acting. It is so much more real than life.
+ - They’ve promised that dreams can come true – but forgot to mention that nightmares are dreams, too.
+ - Moderation is a fatal thing. Nothing succeeds like excess.
+ - The only way to get rid of temptation is to yield to it.
+ - Between the optimist and the pessimist, the difference is droll. The optimist sees the doughnut; the pessimist the hole!
+ - Our ambition should be to rule ourselves, the true kingdom for each one of us; and true progress is to know more, and be more, and to do more.
+ - Nothing worth knowing can be taught.
+ - The universe is God. I am God so that means I am the universe.
+ - Without order nothing can exist-without chaos nothing can evolve. Nowadays people know the price of everything and the value of nothing.
+ - Wisdom is to have dreams big enough not to lose sight when we pursue them.
+ - If you are not long, I will wait for you all my life.
+ - To do nothing at all is the most difficult thing in the world, the most difficult and the most intellectual.
+ - Work is the curse of the drinking classes.
+ - The only way to get rid of a temptation is to yield to it. Resist it, and your soul grows sick with longing for the things it has forbidden to itself, with desire for what its monstrous laws have made monstrous and unlawful.
+ - All art is quite useless.
+ - Everyone may not be good, but there’s always something good in everyone. Never judge anyone shortly because every saint has a past and every sinner has a future.
+ - What is a cynic? A man who knows the price of everything and the value of nothing. And a sentimentalist, my dear Darlington, is a man who sees an absurd value in everything, and doesn’t know the market place of any single thing.
+ - The mystery of love is greater than the mystery of death.
+ - I adore simple pleasures. They are the last refuge of the complex.
+ - Life is a nightmare that prevents one from sleeping.
+ - If a thing is worth doing, it is worth doing well. If it is worth having, it is worth waiting for. If it is worth attaining, it is worth fighting for. If it is worth experiencing, it is worth putting aside time for.
+ - Progress is the realization of utopia.
+ - I’m so smart, I read and understand Hegel.
+ - Don’t feed the trolls; nothing fuels them so much.
+ - Only the shallow know themselves.
+ - Only dull people are brilliant at breakfast.
+ - With age comes wisdom, but sometimes age comes alone.
+ - Love is like a war; easy to start but hard to end and you never know where it might take you.
+ - Marriage is the triumph of imagination over intelligence. Second marriage is the triumph of hope over experience.
+ - Life is too short to be in a hurry.
+ - Children begin by loving their parents; as they grow older they judge them; sometimes they forgive them.
+ - I think it’s very healthy to spend time alone. You need to know how to be alone and not be defined by another person.
+ - The curves of your lips rewrite history.
+ - The bureaucracy is expanding to meet the needs of the expanding bureaucracy.
+ - It was only in the theatre that I lived.
+ - Yet each man kills the thing he loves By each let this be heard Some do it with a bitter look Some with a flattering word The coward does it with a kiss The brave man with a sword.
+ - There is only one thing in life worse than being talked about, and that is not being talked about.
+ - Sometimes it takes courage to give into temptation.
+ - Some things are more precious because they don’t last long.
+ - We are all in the gutter, but some of us are looking at the stars. We all have clouds above us but some see their silver linings. We all face difficulties but some of us are grateful that they aren’t worse.
+ - I am very glad I have travelled. Travel improves the mind wonderfully, and does away with all one’s prejudices.
+ - Give a man a mask and he’ll tell you the truth.
+ - Discontent is the first step in the progress of a man or a nation.
+ - To live in this world is a rare thing; most people just exist.
+ - The suspense is terrible. I hope it will last.
+ - A flower blossoms for its own joy.
+ - Most people are boring and stupid.
+ - The only good thing to do with good advice is pass it on; it is never of any use to oneself.
+ - I may not agree with you, but I will defend to the death your right to make an ass of yourself.
+ - Disobedience, in the eyes of any one who has read history, is man’s original virtue. It is through disobedience that progress has been made, through disobedience and through rebellion.
+ - There is no sin except stupidity.
+ - When we are happy, we are always good, but when we are good, we are not always happy.
+ - Two men look out a window. One sees mud, the other sees the stars.
+ - Talent borrows, genius steals!
+ - Every little action of the common day makes or unmakes character.
+ - I was wrong. God’s law is only Love.
+ - It is only shallow people who require years to get rid of an emotion. A man who is master of himself can end a sorrow as easily as he can invent a pleasure. I don’t want to be at the mercy of my emotions. I want to use them, to enjoy them, and to dominate them.
+ - A gentleman is one who never hurts anyone’s feelings unintentionally.
+ - I am tired of myself to-night. I should like to be somebody else.
+ - Laughter is not at all a bad beginning for a friendship, and it is by far the best ending for one.
+ - The aim of love is to love. No more, no less.
+ - Love is a sacrament that should be taken kneeling.
+ - It’s beauty that captures your attention. personality which captures your heart.
+ - Either this wallpaper goes, or I do.
+ - I can’t stand people that do not take food seriously.
+ - And alien tears will fill for him pity’s long broken urn. For his mourners will all be outcast men, and outcasts always mourn.
+ - Unless one is wealthy there is no use in being a charming fellow. Romance is the privilege of the rich, not the profession of the unemployed. The poor should be practical and prosaic. It is better to have a permanent income than to be fascinating.
+ - What seems to us as bitter trials are often blessings in disguise for which we are later, in the fullness of time and understanding, very grateful for!
+ - The English have a miraculous power of turning wine into water.
+ - Life is never fair, and perhaps it is a good thing for most of us that it is not.
+ - Between men and women there is no friendship possible. There is passion, enmity, worship, love, but no friendship.
+ - One should always be a little improbable.
+ - Create yourself. Be yourself your poem.
+ - Don’t use big words. They mean so little.
+ - You know more than you think you know, just as you know less than you want to know.
+ - Wisdom comes with winters.
+ - When a love comes to an end, weaklings cry, efficient ones instantly find another love, and the wise already have one in reserve.
+ - Everything popular is wrong.
+ - Sometimes the poor are praised for being thrifty. But to recommend thrift to the poor is both grotesque and insulting. It is like advising a man who is starving to eat less.
+ - I was working on the proof of one of my poems all the morning, and took out a comma. In the afternoon I put it back again.
+ - To get back my youth I would do anything in the world, except take exercise, get up early, or be respectable.
+ - The optimist sees the donut, the pessimist sees the hole.
+ - The true mystery of the world is the visible, not the invisible.
+ - A man can be happy with any woman as long as he does not love her.
+ - All great ideas are dangerous.
+ - Every portrait that is painted with feeling is a portrait of the artist, not of the sitter.
+ - The only way a woman can ever reform a man is by boring him so completely that he loses all possible interest in life.
+ - Cats are put on earth to remind us that not everything has a purpose.
+ - Mere color, unspoiled by meaning, and unallied with definite form, can speak to the soul in a thousand different ways.
+ - The moment you think you understand a great work of art, it’s dead for you.
+ - Nature: a place where birds fly around uncooked.
+ - It is always with the best intentions that the worst work is done.
+ - All charming people, I fancy, are spoiled. It is the secret of their attraction.
+ - Friendship is far more tragic than love. It lasts longer.
+ - Time is jealous of you, and wars against your lilies and your roses.
+ - Art is the only serious thing in the world. And the artist is the only person who is never serious.
+ - The best people to work for are me, myself and I.
+ - To give and not expect return, that is what lies at the heart of love.
+ - If we’re always guided by other people’s thoughts, what’s the point in having our own?
+ - Spontaneity is a meticulously prepared art.
+ - What the hell is an oboe?
+ - What fire does not destroy, it hardens.
+ - To be good is to be in harmony with oneself. Discord is to be forced to be in harmony with others.
+ - I choose my friends for their good looks, my acquaintances for their good characters, and my enemies for their good intellects.
+ - He lives the poetry that he cannot write. The others write the poetry that they dare not realize.
+ - Because sometimes you have to do something bad to do something good.
+ - Illusion is the first of all pleasures.
+ - It is a much cleverer thing to talk nonsense than to listen to it.
+ - God is love, love is blind, Stevie Wonder is blind, therefore Stevie Wonder is God.
+ - A red rose is not selfish because it wants to be a red rose. It would be horribly selfish if it wanted all the other flowers in the garden to be both red and roses.
+ - The only excuse for making a useless thing is that one admires it intensely. All art is quite useless.
+ - Any map of the world that does not include Utopia is not even worth glancing at.
+ - Nothing that actually occurs is of the smallest importance.
+ - We live in an age when unnecessary things are our only necessities.
+ - I am a man of simple pleasures. The best suits me perfectly.
+ - Always keep love in your heart.
+ - When the gods wish to punish us they answer our prayers.
+ - A man’s face is his autobiography. A woman’s face is her work of fiction.
+ - It seems to me that we all look at Nature too much, and live with her too little.
+ - Ridicule is the tribute paid to the genius by the mediocrities.
+ - Sarcasm is the lowest form of wit.
+ - A grapefruit is just a lemon that saw an opportunity and took advantage of it.
+ - Please do not shoot the pianist. He is doing his best.
+ - There is nothing in the world like the devotion of a married woman. It is a thing no married man knows anything about.
+ - All women become like their mothers. That is their tragedy. No man does, and that is his.
+ - Art never expresses anything but itself.
+ - Who, being loved, is poor?
+ - Nowadays most people die of a sort of creeping common sense, and discover when it is too late that the only things one never regrets are one’s mistakes.
+ - I can resist everything except temptation.
+ - America is the only country that went from barbarism to decadence without civilization in between.
+ - Irony is wasted on the stupid.
+ - When you really want love you will find it waiting for you.
+ - Tea is the only simple pleasure left to us.
+ - We are the zanies of sorrow. We are clowns whose hearts are broken.
+ - The essence of thought, as the essence of life, is growth.
+ - History is a lie commonly agreed upon.
+ - Life under a good government is rarely dramatic; life under a bad government is always so.
+ - Only good questions deserve good answers.
+ - Beauty is the only thing that time cannot harm. Philosophies fall away like sand, and creeds follow one another like the withered leaves of Autumn; but what is beautiful is a joy for all seasons and a possession for all eternity.
+ - Each of us has heaven and hell in him...
+ - I think God, in creating man, somewhat overestimated his ability.
+ - I won’t belong to a club that accepts me as a member.
+ - The ugly can be beautiful. The pretty, never.
+ - There is no Mystery so great as Misery.
+ - Where there is sorrow, there is holy ground.
+ - I refuse to have a battle of wits with an unarmed man.
+ - Rugby is a game for barbarians played by gentlemen. Football is a game for gentlemen played by barbarians.
+ - Only the unimaginative can fail to find a reason for drinking Champagne.
+ - Loveless marriages are horrible. But there is one thing worse than an absolutely loveless marriage. A marriage in which there is love, but on one side only; faith, but on one side only; devotion, but on one side only, and in which of the two hearts one is sure to be broken.
+ - I love to talk about nothing. It’s the only thing I know anything about.
+ - The world was my oyster but I used the wrong fork.
+ - Wickedness is a myth invented by good people to account for the curious attractiveness of others.
+ - Don’t be afraid. There are exquisite things in store for you. This is merely the beginning.
+ - Oh, I love London Society! It is entirely composed now of beautiful idiots and brilliant lunatics. Just what Society should be.
+ - The simplicity of your character makes you exquisitely incomprehensible to me.
+ - Conscience and cowardice are really the same things, Basil. Conscience is the trade-name of the firm. That is all.
+ - To expect the unexpected shows a thoroughly modern intellect.
+ - Nothing can cure the soul but the senses, just as nothing can cure the senses but the soul.
+ - Man is made for something better than disturbing dirt.
+ - One of the many lessons that one learns in prison is, that things are what they are and will be what they will be.
+ - Beauty is a form of genius – is higher, indeed, than genius, as it needs no explanation.
+ - The Roman Catholic Church is for saints and sinners alone – for respectable people, the Anglican Church will do.
+ - There are times when sorrow seems to me to be the only truth.
+ - Music is the perfect type of art.
+ - Where your life leads you, you must go.
+ - Good intentions have been the ruin of the world. The only people who have achieved anything have been those who have had no intentions at all.
+ - After playing Chopin, I feel as if I had been weeping over sins that I had never committed and mourning over tragedies that were not my own.
+ - How else but through a broken heart may Lord Christ enter in?
+ - Religion is like a blind man looking in a black room for a black cat that isn’t there, and finding it.
+ - In war, the strong make slaves of the weak, and in peace the rich makes slaves of the poor.
+ - I forgot that every little action of the common day makes or unmakes character, and that therefore what one has done in the secret chamber one has some day to cry aloud on the house-tops.
+ - Those who are faithful know only the trivial side of love: it is the faithless who know love’s tragedies.
+ - Whenever cannibals are on the brink of starvation, Heaven, in its infinite mercy, sends them a fat missionary.
+ - Nothing is so aggravating than calmness.
+ - Beauty is the only thing that time cannot harm.
+ - Circumstances should never alter principles!
+ - Everyone is born a king, and most people die in exile.
+ - After the first glass, you see things as you wish they were. After the second, you see things as they are not. Finally, you see things as they really are, and that is the most horrible thing in the world.
+ - Crying is for plain women. Pretty women go shopping.
+ - Football is all very well as a game for rough girls, but is hardly suitable for delicate boys.
+ - The only horrible thing in the world is ennui.
+ - My great mistake, the fault for which I can’t forgive myself, is that one day I ceased my obstinate pursuit of my own individuality.
+ - I do not approve of anything that tampers with natural ignorance. Ignorance is like a delicate exotic fruit; touch it and the bloom is gone. The whole theory of modern education is radically unsound. Fortunately in England, at any rate, education produces no effect whatsoever.
+ - Anybody can make history; only a great man can write it.
+ - It is awfully hard work doing nothing. However, I don’t mind hard work where there is no definite object of any kind. -Algernon.
+ - But youth smiles without any reason. It is one of its chiefest charms.
+ - A kiss may ruin a human life.
+ - And now, dear Mr. Worthing, I will not intrude any longer into a house of sorrow. I would merely beg you not to be too much bowed down by grief. What seem to us bitter trials are often blessings in disguise. This seems to me a blessing of an extremely obvious kind.
+ - All art is at once surface and symbol. Those who go beneath the surface do so at their peril.
+ - My own business always bores me to death; I prefer other people’s.
+ - Private information is practically the source of every large modern fortune.
+ - I hate vulgar realism in literature. The man who would call a spade a spade should be compelled to use one.
+ - If music be the food of love, get me a supersized big mac, chips, two apple pies and a large milkshake.
+ - Hatred is blind, as well as love.
+ - Morality is simply the attitude we adopt towards people we personally dislike.
+ - One should absorb the color of life.
+ - The Americans are identical to the British in all respects except, of course, language.
+ - Religions die when they are proved to be true. Science is the record of dead religions.
+ - The basis of action is lack of imagination. It is the last resource of those who know not how to dream.
+ - Sooner or later we have all to pay for what we do.
+ - The critic has to educate the public; the artist has to educate the critic.
+ - How does one cure the soul? Through the senses.
+ - A simile committing suicide is always a depressing spectacle.
+ - Those who try to lead the people can only do so by following the mob.
+ - Disobedience is man’s original virtue.
+ - The man who can dominate a London dinner-table can dominate the world.
+ - One should never listen. To listen is a sign of indifference to one’s hearers.
+ - In examinations the foolish ask questions that the wise cannot answer.
+ - Rich bachelors should be heavily taxed. It is not fair that some men should be happier than others.
+ - Bigamy is having one wife too many. Monogamy is the same.
+ - I see when men love women. They give them but a little of their lives. But women when they love give everything.
+ - One does not see anything until one sees its beauty.
+ - The good ended happily, and the bad unhappily. That is what Fiction means.
+ - Don’t imagine that your perfection lies in accumulating or possessing external things. Your affection is inside of you.
+ - When a man is old enough to do wrong he should be old enough to do right also.
+ - For he who lives more lives than one more deaths than one must die.
+ - I am sick to death of cleverness. Everybody is clever nowadays.
+ - Dullness is the coming of age of seriousness.
+ - If Nature had been comfortable, mankind would never have invented architecture...
+ - It often happens that the real tragedies of life occur in such an inartistic manner that they hurt us by their crude violence, their absolute incoherence, their absurd want of meaning, their entire lack of style.
+ - Cultivated leisure is the aim of man.
+ - Life is one fool thing after another whereas love is two fool things after each other.
+ - Millionaire models are rare enough; but, by Jove, model millionaires are rarer still!
+ - If I am occasionally a little over-dressed, I make up for it by being always immensely over-educated.
+ - I have found that all ugly things are made by those who strive to make something beautiful, and that all beautiful things are made by those who strive to make something useful.
+ - Ultimately the bond of all companionship, whether in marriage or in friendship, is conversation.
+ - The only one you need in your life is that person who shows you he needs you in his.
+ - And when wind and winter harden All the loveless land, It will whisper of the garden, You will understand.
+ - Marriage is a long, dull meal with dessert served at the beginning.
+ - All criticism is a form of autobiography.
+ - It is in the brain that the poppy is red, that the apple is odorous, that the skylark sings.
+ - Ignorance is like a delicate exotic fruit; touch it and the bloom is gone.
+ - The world has been made by fools that wise men may live in it.
+ - The world belongs to the discontented.
+ - I have no objection to anyone’s sex life as long as they don’t practice it in the street and frighten the horses.
+ - To look at a thing is very different from seeing it.
+ - The past is of no importance. The present is of no importance. It is with the future that we have to deal. For the past is what man should not have been. The present is what man ought not to be. The future is what artists are.
+ - I was very much disappointed in the Atlantic Ocean.
+ - Well, in the first place girls never marry the men they flirt with. Girls don’t think it right.
+ - It is immoral to use private property in order to alleviate the horrible evils that result from the institutions of private property.
+ - My dear boy, no woman is a genius. Women are a decorative sex. They never have anything to say, but they say it charmingly. Women represent the triumph of matter over mind, just as men represent the triumph of mind over morals.
+ - The only people I would care to be with now are artists and people who have suffered: those who know what beauty is, and those who know what sorrow is: nobody else interests me.
+ - The world is changed because you are made of ivory and gold. The curves of your lips rewrite history.
+ - To disagree with three-fourths of the British public is one of the first requisites of sanity.
+ - A burnt child loves the fire.
+ - Extravagance is the luxury of the poor; penury is the luxury of the rich.
+ - Genius is born-not paid.
+ - Be happy, be happy; you shall have your red rose. I will build it out of music by moonlight, and stain it with my own heart’s-blood. All that I ask of you in return is that you will be a true lover, for Love is wiser than Philosophy, though she is wise, and mightier than Power, though he is mighty.
+ - Men know life too early. Women know life too late. That is the difference between men and women.
+ - Crying is the refuge of plain women but the ruin of pretty ones.
+ - The answers are all out there, we just need to ask the right questions.
+ - People are very fond of giving away what they need most themselves. It is what I call the depth of generosity.
+ - Pleasures may turn a heart to stone, riches may make it callous, but sorrows cannot break it. Hearts live by being wounded.
+ - The sky was pure opal now.
+ - I hope you have not been leading a double life, pretending to be wicked and being good all the time. That would be hypocrisy.
+ - When a man has once loved a woman he will do anything for her except continue to love her.
+ - I like Wagner’s music better than anybody’s. It is so loud that one can talk the whole time without other people hearing what one says.
+ - The Number our envious Persons, confirmation our capability.
+ - I must decline your invitation owing to a subsequent engagement.
+ - Ultimately the bond of all companionship, whether in marriage or in friendship, is conversation, and conversation must have a common basis, and between two people of widely different culture the only common basis possible is the lowest level.
+ - The only difference between saints and sinners is that every saint has a past while every sinner has a future.
+ - As long as a woman can look ten years younger than her daughter, she is perfectly satisfied.
+ - Behind Joy and Laughter there may be a temperament, coarse, hard and callous. But behind Sorrow there is always Sorrow. Pain, unlike Pleasure, wears no mask.
+ - Lady Bracknell. Good afternoon, dear Algernon, I hope you are behaving very well. Algernon. I’m feeling very well, Aunt Augusta. Lady Bracknell. That’s not quite the same thing. In fact the two things rarely go together.
+ - The supreme vice is shallowness.
+ - Whenever I’m in doubt, I ask myself, ‘What would Jesus do?’ And then I realize, Jesus got crucified, so maybe his decision-making isn’t all that great.
+ - By giving us the opinions of the uneducated, journalism keeps us in touch with the ignorance of the community.
+ - My philosophy? I’m always right and you are wrong.
+ - I have spent most of the day putting in a comma and the rest of the day taking it out.
+ - Life imitates art far more than art imitates Life.
+ - It is a curious fact that people are never so trivial as when they take themselves seriously.
+ - A daughter is a mother’s gender partner, her closest ally in the family confederacy, an extension of herself. -Author Unknown As long as a woman can look ten years younger than her own daughter, she is perfectly satisfied.
+ - We spend our days, each one of us, in looking for the secret of life. Well, the secret of life is in Art.
+ - The proper basis for marriage is mutual misunderstanding. The happiness of a married man depends on the people he has not married. One should always be in love – that’s the reason one should never marry.
+ - The burden of this world is too great for one man to bear, and the world’s sorrow too heavy for one heart to suffer.
+ - They spoil every romance by trying to make it last forever.
+ - And once, or twice, to throw the dice is a gentlemanly game, But he does not win who plays with Sin in the secret house of shame.
+ - A well-tied tie is the first serious step in life.
+ - I have learned this: it is not what one does that is wrong, but what one becomes as a consequence of it.
+ - He made me see what Life is, and what Death signifies, and why Love is stronger than both.
+ - Bad art is a great deal worse than no art at all.
+ - Women have a wonderful instinct about things. They can discover everything except the obvious.
+ - Oh! it is absurd to have a hard-and-fast rule about what one should read and what one shouldn’t. More than half of modern culture depends on what one shouldn’t read.
+ - Books are never finished, They are merely abandoned.
+ - The only thing that one really knows about human nature is that it changes. Change is the one quality we can predicate of it.
+ - Looking good and dressing well is a necessity. Having a purpose in life is not.
+ - No gentleman ever has any money.
+ - I know. In fact, I am never wrong.
+ - To know anything about oneself one must know all about others.
+ - Indeed I have always been of the opinion that hard work is simply the refuge of people who have nothing to do.
+ - Every impulse we strangle will only poison us.
+ - When both a speaker and an audience are confused, the speech is profound.
+ - It is absurd to say that the age of miracles is past. It has not yet begun.
+ - Nothing is good in moderation. You cannot know good in anything until you have torn the heart out of it by excess.
+ - The final mystery is oneself. When one has weighed the sun in the balance, and measured the steps of the moon, and mapped out the seven heavens star by star, there still remains oneself. Who can calculate the orbit of his own soul?
+ - The only thing I cannot resist is temptation.
+ - I am afraid that we are beginning to be over-educated; at least everybody who is incapable of learning has taken to teaching -that is really what our enthusiasm for education has come to.
+ - No object is so beautiful that, under certain conditions, it will not look ugly.
+ - Lying, the telling of beautiful untrue things, is the proper aim of Art.
+ - Starvation, not sin, is the parent of modern crime.
+ - One should either be a work of art, or wear a work of art.
+ - The emotions of man are stirred more quickly than man’s intelligence.
+ - In all matters of opinion, our adversaries are insane.
+ - If there is anything more annoying in the world than having people talk about you, it is certainly having no one talk about you.
+ - Music is the art which is most nigh to tears and memories.
+ - The condition of perfection is idleness: the aim of perfection is youth.
+ - Hearts Live By Being Wounded.
+ - Believe me, no civilized man ever regrets a pleasure, and no uncivilized man ever knows what a pleasure is.
+ - There is no doubt that genius lasts longer than beauty.
+ - To be entirely free, and at the same time entirely dominated by law, is the eternal paradox of human life.
+ - JACK Your duty as a gentleman calls you back. ALGERNON My duty as a gentleman has never interfered with my pleasures in the smallest degree.
+ - Men as a rule love with their eyes, woman with their ears.
+ - The man who says his wife can’t take a joke, forgets that she took him.
+ - But beauty, real beauty, ends where an intellectual expression begins. Intellect is in itself a mode of exaggeration, and destroys the harmony of any face.
+ - Tread Lightly, she is near Under the snow, Speak gently, she can hear The daisies grow.
+ - I have grown to love secrecy. It seems to be the one thing that can make modern life mysterious or marvelous to us. The commonest thing is delightful if only one hides it.
+ - Man is a rational animal who always loses his temper when he is called upon to act in accordance with the dictates of reason.
+ - I never read a book I must review; it prejudices you so.
+ - The world is a stage and the play is badly cast.
+ - Examinations, sir, are pure humbug from beginning to end. If a man is a gentleman, he knows quite enough, and if he is not a gentleman, whatever he knows is bad for him.
+ - Of course I have played outdoor games. I once played dominoes in an open air cafe in Paris.
+ - The tragedy of growing old is not that one is old but that one is young.
+ - I like hearing myself talk. It is one of my greatest pleasures. I often have long conversations all by myself. Sometimes I am so clever I don’t understand a single word of what I am saying.
+ - As a wicked man I am a complete failure. Why, there are lots of people who say I have never really done anything wrong in the whole course of my life. Of course they only say it behind my back.
+ - All art is at once surface and symbol.
+ - A man who moralizes is a hypocrite, and a woman who does so is invariably plain.
+ - Intuition is a strange instinct that tells a woman she is right, whether she is or not.
+ - It is better to have a permanent income than to be fascinating.
+ - What art seeks to disturb is monotony of type, slavery of custom, tyranny of habit, and the reduction of man to the level of a machine.
+ - There is a luxury in self-reproach. When we blame ourselves, we feel that no one else has a right to blame us. It is the confession, not the priest, that gives us absolution.
+ - We have really everything in common with America nowadays, except, of course, language.
+ - If they know nothing of victory, they are at least spared the knowledge of defeat.
+ - I cannot choose one hundred best books because I have only written five.
+ - Taking sides is the beginning of sincerity, and earnestness follows shortly afterwards, and the human being becomes a bore.
+ - Deceiving others. That is what the world calls a romance.
+ - Most modern calendars mar the sweet simplicity of our lives by reminding us that each day that passes is the anniversary of some perfectly uninteresting event.
+ - It is perfectly possible to get what you think you want and be miserable. It’s possible too, to never get it but deeply enjoy the process of trying. In this world, there are only two tragedies. One is not getting what one wants, and the other is getting it.
+ - The past could always be annihilated. Regret, denial, or forgetfulness could do that. But the future was inevitable.
+ - It is personalities not principles that move the age.
+ - Every woman is a rebel, and usually in wild revolt against herself.
+ - As for modern journalism, it is not my business to defend it. It justifies its own existence by the great Darwinian principle of the survival of the vulgarest.
+ - The birds did not understand a single word of what he was saying, but that made no matter, for they put their heads on one side, and looked wise, which is quite as good as understanding a thing, and very much easier.
+ - It is the stupid and the ugly who have the best of it in this world.
+ - The typewriting machine, when played with expression, is no more annoying than the piano when played by a sister or near relation.
+ - America had often been discovered before Columbus, but it had always been hushed up.
+ - Misfortunes one can endure – they come from outside, they are accidents. But to suffer for one’s own faults – ah! – there is the sting of life.
+ - I regard the theatre as the greatest of all art forms, the most immediate way in which a human being can share with another the sense of what it is to be a human being.
+ - Women are never disarmed by compliments. Men always are. That is the difference between the sexes.
+ - I wonder who it was defined man as a rational animal. It was the most premature definition ever given. Man is many things, but he is not rational.
+ - The true perfection of man lies not in what man has, but in what man is.
+ - Things are because we see them, and what we see, and how we see it, depends on the Arts that influenced us. To look at a thing is very different from seeing a thing. One does not see anything until one sees its beauty. Then, and then only, does it comes into existence.
+ - Appearance blinds, whereas words reveal.
+ - I treated Art as the supreme reality and life as a mere mode of fiction.
+ - I have invented an invaluable permanent invalid called Bunbury, in order that I may be able to go down into the country whenever I choose.
+ - Do you really think it is weakness that yields to temptation? I tell you that there are terrible temptations which it requires strength, strength and courage to yield to.
+ - Progress in thought is the assertion of individualism against authority.
+ - Thirty-five is a very attractive age. London society is full of women of the very highest birth who have, of their own free choice, remained thirty-five for years.
+ - Experience is one thing you can’t get for nothing.
+ - Finding the meaning of life is easy. Simply get a dictionary, go to the ‘L’ section, and find the word ‘life.’
+ - The imagination imitates. It is the critical spirit that creates.
+ - Shallow sorrows and shallow loves live on. The loves and sorrows that are great are destroyed by their own plenitude.
+ - Woman begins by resisting a man’s advances and ends by blocking his retreat.
+ - Do not forget that small daily actions do or undo character.
+ - In matters of grave importance, style, not sincerity, is the vital thing.
+ - There are only two kinds of people who are really fascinating: people who know absolutely everything, and people who know absolutely nothing.
+ - There can be nothing more frequent than an occasional drink.
+ - Romance should never begin with sentiment. It should begin with science and end with a settlement.
+ - The more one analyses people, the more all reasons for analysis disappear. Sooner or later one comes to that dreadful universal thing called human nature.
+ - I prefer women with a past. They’re always so damned amusing to talk to.
+ - She had a passion for secrecy, but she herself was merely a Sphinx without a secret.
+ - Those who find beautiful meanings in beautiful things are the cultivated. For these there is hope. They are the elect to whom beautiful things mean only beauty.
+ - Everything is dangerous, my dear fellow. If it wasn’t so, life wouldn’t be worth living.
+ - And all the woe that moved him so That he gave that bitter cry the wild regrets, and the bloody sweats None knew so well as I: For he who lives more lives than one More deaths than one must die.
+ - They are the elect to whom beautiful things mean only Beauty.
+ - Full frontal nudity is reserved for Adam and Eve!
+ - Science can never grapple with the irrational. That is why it has no future before it, in this world.
+ - Imagination is imitative-the real innovation lies in criticism.
+
+500 quotes

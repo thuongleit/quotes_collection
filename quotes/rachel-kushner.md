@@ -1,0 +1,52 @@
+ - A lot of politics in art is just institutional critique, which, in my opinion, is not all that political.
+ - People who are harder to love pose a challenge, and the challenge makes them easier to love. You’re driven to love them. People who want their love easy don’t really want love.
+ - You have time. Meaning don’t use it, but pass through time in patience, waiting for something to come. Prepare for its arrival. Don’t rush to meet it. Be a conduit.
+ - I’m a very interior person. I love silence. I revel in it. I’m happy that way.
+ - I am occasionally enraptured by Western landscape. But I don’t identify that state of mind as having to do with my own origins, having grown up in the West, although I certainly crisscrossed Nevada countless times growing up, and then as a young adult, in cars and on motorcycles.
+ - There is no real appeal for me in an image of a woman on a motorcycle.
+ - A funny thing about women and machines: the combination made men curious.
+ - People are complicated. Personally I don’t go in for puritanical people.
+ - The VW doesn’t make you think of Hitler and genocide. It’s a breast on wheels, a puffy little dream.
+ - Danzon is my favorite Cuban music, played by a traditional string orchestra with flute and piano. It’s very formally structured but romantic music, which derives from the French-Haitian contradance.
+ - It’s really a misconception to identify the writer with the main character, given that the author creates all the characters in the book. In certain ways, I’m every character.
+ - Every person has a range. In fiction, you get to be it all. I’m as much the men in my book as I am the women. I write how I write and there is no mission to stake a claim.
+ - I am not a sun person at all. I think it’s a cancerous poison and I don’t want it touching me.
+ - People who want their love easy don’t really want love.
+ - My mother told me many stories about her childhood in Cuba. Living there had a profound impact on her and how she regards herself.
+ - Leave, with no answer. Move on to the next question.
+ - I was doing that thing the infatuated do, stitching destiny onto the person we want stitched to us.
+ - In writing novels, you have to believe in yourself or there would be no way to sustain it. But you also have to give good evidence regularly for having that faith in self-either with quality goods or with, at least, “good efforts.” Working hard will do when inspiration is not forthcoming.
+ - The kids I knew growing up who worked on bikes all loved the smell of gas. It is the liquid agent for speed.
+ - Making art was really about the problem of the soul, of losing it. It was a technique for inhabiting the world. For not dissolving into it.
+ - For me, truth cracks open in the places where things do not cohere. That’s how life is.
+ - I don’t quite see the 20th century as one of chaos. But I believe in certain inevitable outcomes of a materialist nature.
+ - I’d been listening to men talk since I arrived in New York City. That’s what men like to do. Talk. Profess like experts. When one finally came along who didn’t say much, I listened.
+ - I shy away from plot structure that depends on the characters behaving in ways that are going to eventually be explained by their childhood, or by some recent trauma or event. People are incredibly complicated. Who knows why they are the way they are?
+ - I begin a book with imagery, more than I do with an idea or a character. Some kind of poetic image.
+ - At home, I dedicate occasional whole days to reading as if I’m a convalescent. The ideal place for this is the bath, where the body floats free. Books go a little wavy, but they’re mine, so who cares.
+ - In short, I’m pretty suspicious of the idea that there’s a real and true and authentic world, and then a bunch of false ones.
+ - I didn’t do a masters in creative writing until I was 26, which is quite old, and then I found myself in New York and I needed money, so I started working full time as an editor.
+ - I guess I’m not really fond of just chit-chatting. I want to learn something and have an experience.
+ - When I see things in the world that leap out at me, I want to make use of them in fiction. Maybe every writer does that. It just depends on what you claim or appropriate as yours.
+ - To be alive is to listen quietly while other people talk. That’s how you learn something.
+ - I’m not belittling the art world. Not at all. I take it quite seriously, actually. But the logic of art is a vanguard logic that pressures art to incorporate the quotient of risk.
+ - Eventually, I decided that if I was going to really write a novel, I couldn’t do it in New York City while holding down a job. You need a constant money source to live in New York City unless you’re independently wealthy, which I’m not.
+ - Motorcycles aren’t about gaining agency, I don’t think.
+ - I am interested in risk, in art as well as in the realm of politics.
+ - I was very precocious when I was young. I went to college at 16, and I graduated at 20. I wanted to be a writer, but I was more interested in experience than in applying myself intellectually.
+ - People who experience themselves as authentic are also experiencing themselves as myth, but that’s not the narrative they’re going with.
+ - I didn’t think of the narrative as making a judgment. It didn’t occur to me the reader would either, but that doesn’t mean it isn’t possible there would be that risk.
+ - Writing is a way of living. It doesn’t quite matter that there are too many books for the number of readers in the world to read them. It’s a way of being alive, for the writer.
+ - Lovers offered only what they offered and nothing more, and what they offered came with provisos: believe what you want and don’t look carefully at what isn’t acceptable to you.
+ - I don’t regard the real and true and authentic as something to claim as a moral high ground.
+ - Authenticity is too big a subject to just toss in with the question about the photographs!
+ - One of the strategies for doing first-person is to make the narrator very knowing, so that the reader is with somebody who has a take on everything they observe.
+ - Since it’s fiction, the book resonates, at least for me, on various levels, some of which intimate ideas about history but none of which have the kind of directly causal reasoning you cite.
+ - I don’t really have those kinds of intentions when I write a scene. I try to follow the internal logic of the fiction, rather than make an argument or an assertion.
+ - I don’t really see art as structured by logic.
+ - I have spent a lot of time in the art world, and I guess I do listen to how people speak. I’m interested in what they say and how they say it.
+ - The desire for love is universal but that has never meant it’s worthy of respect. It’s not admirable to want love, it just is.
+ - Art is about play and about transcendent meanings, not reducible to politics.
+ - Writing a first novel was an arduous crash course. I learned so much in the six years it took me to write it, mostly technical things pertaining to craft.
+
+50 quotes

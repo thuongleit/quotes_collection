@@ -1,0 +1,21 @@
+ - All things by immortal power. Near of far, to each other linked are, that thou canst not stir a flower without troubling of a star.
+ - Agnosticism is the everlasting perhaps.
+ - Nothing begins, and nothing ends, That is not paid with moan; For we are born in others pain And perish in our own.
+ - The fairest things have fleetest end, Their scent survives their close: But the rose’s scent is bitterness To him that loved the rose.
+ - Oh invisible, we view thee, O world intangible, we touch thee, o world unknowable, we know thee.
+ - The devil doesn’t know how to sing, only how to howl.
+ - Deep in my heart subsides the infrequent word, And there dies slowly throbbing like a wounded bird.
+ - There is no expeditious road To pack and label men for God, And save them by the barrel-load. Some may perchance, with strange surprise, Have blundered into Paradise.
+ - Little Jesus, was Thou shy Once, and just so small as I? And what did it feel like to be Out of Heaven, and just like me?
+ - Look for me in the nurseries of Heaven.
+ - In all change, well looked into, the germinal good out-veils the apparent ill.
+ - An atheist is a man who believes himself an accident.
+ - Thou cannot stir a flower Without troubling a star.
+ - Spring is come home with her world-wandering feet, And all things are made young with your desires.
+ - Baby smiled, mother wailed, Earthward while the sweetling sailed; Mother smiled, baby wailed, When to earth came Viola.
+ - The desolation and terror of, for the first time, realizing that the mother can lose you, or you her, and your own abysmal loneliness and helplessness without her.
+ - But lilies, stolen from grassy mold, No more curled state unfold, Translated to a vase of gold; In burning throne though they keep still Serenities unthawed and chill.
+ - A dog, I will maintain, is a very tolerable judge of beauty, as appears from the fact that any liberally educated dog does, in a general way, prefer a woman to a man.
+ - Babies breathe a lot more rapidly than adults do, and what’s more, they’re also growing quickly and so they’re absorbing lots more into the body and they’re more fragile in terms of development and so on.
+
+19 quotes

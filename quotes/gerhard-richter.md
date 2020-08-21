@@ -1,0 +1,75 @@
+ - Art is the highest form of hope.
+ - If the abstract paintings show my reality, then the landscapes and still-lifes show my yearning.
+ - I pursue no intentions, no directions; I have no program, no style and no mission.
+ - Painting is another form of thinking.
+ - I find the Romantic period extraordinarily interesting. My landscapes have connections with Romanticism: at times I feel a real desire for, an attraction to, this period, and some of my pictures are a homage to Caspar David Friedrich.
+ - Picturing things, taking a view, is what makes us human; art is making sense and giving shape to that sense. It is like the religious search for God.
+ - Theory has nothing to do with a work of art. Pictures which are interpretable, and which contain a meaning, are bad pictures. A picture presents itself as the Unmanageable, the Illogical, the Meaningless.
+ - Experience has proved that there is no difference between a so-called realist painting – of a landscape, for example – and an abstract painting. They both have more or less the same effect on the observer.
+ - To talk about paintings is not only difficult but perhaps pointless too. You can only express in words what words are capable of expressing – what language can communicate. Painting has nothing to do with that.
+ - The political topicality of my October paintings means almost nothing to me, but in many reviews it is the first or only thing that arouses interest, and the response to the pictures varies according to current political circumstance. I find this rather a distraction.
+ - Talk about painting: there’s no point. By conveying a thing through the medium of language, you change it. You construct qualities that can be said, and you leave out the ones that can’t be said but are always the most important.
+ - I’m trying to paint a picture of what I have seen and what moved me, as well as I can. That’s all.
+ - Now there are no priests or philosophers left, artists are the most important people in the world.
+ - All photographs are far more important than any painting.
+ - I’m never really sure what that word means, but however inaccurately I use it, ‘classical’ was always my ideal, as long as I can remember, and something of that has always stayed with me, to this day. Of course, there were difficulties, because in comparison to my ideal, I didn’t even come close.
+ - Not the victims of any specific ideology of the left or of the right, but of the ideological posture as such. This has to do with the everlasting human dilemma in general: to work for a revolution and fail...
+ - Painting is consequently an almost blind, desperate effort, like that of a person abandoned, helpless, in totally incomprehensible surroundings.
+ - I don’t create blurs. Blurring is not the most important thing; nor is it an identity tag for my pictures.
+ - I don’t mistrust reality, of which I know next to nothing. I mistrust the picture of reality conveyed to us by our senses, which is imperfect and circumscribed.
+ - What counts isn’t being able to do a thing, it’s seeing what it is. Seeing is the decisive act, and ultimately it places the maker and the viewer on the same level.
+ - But it is also untrue that I have nothing specific in mind. As with my landscapes: I see countless landscapes, photograph barely 1 in 100,000, and paint barely 1 in 100 of those that I photograph. I am therefore seeking something quite specific; from this I conclude that I know what I want.
+ - The paint for the grey paintings was mixed beforehand and then applied with different implements – sometimes a roller, sometimes a brush. It was only after painting them that I sometimes felt that the grey was not yet satisfactory and that another layer of paint was needed.
+ - The smudging makes the paintings a bit more complete. When they’re not blurred, so many details seem wrong, and the whole thing is wrong too. Then smudging can help make the painting invincible, surreal, more enigmatic – that’s how easy it is.
+ - I don’t believe in the reality of painting, so I use different styles like clothes: it’s a way to disguise myself.
+ - In truth, factual information – names or dates – have never interested me much. Those things are like an alien language that can interfere with the language of the painting, or even prevent its emergence.
+ - I don’t know what motivated the artist, which means that the paintings have an intrinsic quality. I think Goethe called it the ‘essential dimension,’ the thing that makes great works of art great.
+ - The photograph is the only picture that can truly convey information, even if it is technically faulty and the object can barely be identified. A painting of a murder is of no interest whatever; but a photograph of a murder fascinates everyone.
+ - To believe, one must have lost God. To paint, one must have lost art.
+ - Abstract pictures are fictive models, because they make visible a reality that we can neither see nor describe, but whose existence we can postulate.
+ - Form is all we have to help us cope with fundamentally chaotic facts and assaults. Formulating something is a great start. I trust form, trust my feeling or capacity to find the right form for something. Even if that is only by being well organized. That too is form.
+ - The photograph is the most perfect picture. It does not change; it is absolute, and therefore autonomous, unconditional, devoid of style. Both in its way of informing, and in what it informs of, it is my source.
+ - I am ridiculously old-fashioned.
+ - Perhaps the Doors, Curtains, Surface Pictures, Panes of Glass, etc. are metaphors of despair, prompted by the dilemma that our sense of sight causes us to apprehend things, but at the same time restricts and partly precludes our apprehension of reality.
+ - How could one be in this world without feeling dismayed by it? Even if one paints flowers and gingerbread.
+ - It is a danger to wait around for an idea to occur to you. You have to find the idea.
+ - Cage is much more disciplined. He made chance a method and used it in constructive ways; I never did that. Everything here is a little more chaotic.
+ - I do not mistrust reality, of which I know next to nothing, but I am suspicious regarding the image of reality which our senses convey to us, and which is incomplete and limited. Our eyes have developed such as to survive. It is merely coincidence that we can see stars with them, as well.
+ - When we describe a process, or make out an invoice, or photograph a tree, we create models; without them we would know nothing of reality and would be animals.
+ - To make a photograph is already the first artificial act.
+ - Art is always to a large extent about need, despair and hopelessness.
+ - Maybe we didn’t even have a chance. The message of American Pop Art was so powerful and so optimistic. But it was also very limited, and that led us to believe that we could somehow distance ourselves from it and communicate a different intention.
+ - Art shows us how to see things that are constructive and good, and to be an active part of that.
+ - A lot of different things had to come together over the years, accumulated experiences of a general and personal nature, before the idea and the decision were developed and then carried out.
+ - I want pictorial content without sentiment, but I want it as human as possible.
+ - Since there is no such thing as absolute rightness and truth, we always pursue the artificial, leading, human truth. We judge and make a truth that excludes other truths. Art plays a formative part in this manufacture of truth.
+ - You can compare it to dreams: you have a very specific and individual pictorial language that you either accept or that you can translate rashly and wrongly. Of course, you can ignore dreams, but that would be a shame, because they’re useful.
+ - When I make a representation of something, this, too, is an analogy to what exists; I make an effort to get a grip on the thing by depicting it.
+ - My work has so much to do with reality that I wanted to have a corresponding rightness. That excludes painting in imitation.
+ - I believe that the quintessential task of every painter in any time has been to concentrate on the essential.
+ - I choose depending on the way I feel; randomly, in other words. When I haven’t done anything for a long time, I always start small, on paper.
+ - Everything has a reason, including the selection of the photos, which was not arbitrary but appropriate to the period, its highs and lows and my sense of them.
+ - I never worked at painting as if it were a job; it was always out of interest or for fun, a desire to try something.
+ - If I don’t know what’s coming – that is, if I have no hard-and-fast image, as I have with a photographic original – then arbitrary choice and chance play an important part.
+ - Painting pictures is simply the official, the daily work, the profession, and in the case of the watercolours I can sooner afford to follow my mood, my spirits.
+ - The year is always correct, also the month, only the day can be another. But that occurs to me only in the moment of writing it down.
+ - With a brush you have control. The paint goes on the brush and you make the mark. From experience you know exactly what will happen. With the squeegee you lose control.
+ - I often need a long time to understand things, to imagine a painting I might make.
+ - Well, I don’t believe there are subjects that can’t be painted, but there are a lot of things that I personally can’t paint.
+ - I believe that art has a kind of rightness, as in music, when we hear whether or not a note is false.
+ - Unlike the photography and prints, I never catalogued, kept track of or exhibited the sketches. I sold some occasionally, but never saw myself as a graphic artist. They became more important to me thanks to the exhibition, however, and I realized that these drawings were quite interesting after all.
+ - They are specific places I have discovered here and there when I am on the road to take photos. I go especially to take photos.
+ - There is sorrow, but I hope one can see that it is sorrow for the people who died so young and so crazy, for nothing. I have respect for them, but also for their wishes, or for the power of their wishes. Because they tried to change the stupid things in the world.
+ - Throwaway snapshots come closest to achieving the state of pure picture.
+ - I would like to try to understand what is. We know very little, and I am trying to do it by creating analogies. Almost every work of art is an analogy.
+ - The Atlas belongs to the Lenbachhaus in Munich – it’s long since ceased to belong to me. Occasionally I run across it somewhere, and I think it’s interesting because it looks different each time.
+ - The reason these paintings are destined for New York is not because I am disappointed about a lack of German interest, but because MoMA asked me, and because I consider it to be the best museum in the world.
+ - Art is the ideal medium for making contact with the transcendental, or at least for getting close to it.
+ - I believe that he knew more what he was doing. I might be absolutely wrong about this, but that was my impression.
+ - I wanted to make it as anonymous as a photo. But it was perhaps also the wish for perfection, the unapproachable, which then means loss of immediacy. Something is missing then, though; that is why I gave that up.
+ - When I look back on the townscapes now, they do seem to me to recall certain images of the destruction of Dresden during the war.
+ - Yes, we were amazed when that happened. It was a real joke to us. Konrad Lueg and I did a Happening, and we used the phrase just for the Happening, to have a catchy name for it; and then it immediately got taken up and brought into use. There’s no defence against that – and really it’s no bad thing.
+ - My paintings are wiser than I am.
+ - It’s that same quality I’ve been talking about. It’s neither contrived, nor surprising and smart, not baffling, not witty, not interesting, not cynical, it can’t be planned and it probably can’t even be described. It’s just good.
+
+73 quotes

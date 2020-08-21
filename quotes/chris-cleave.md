@@ -1,0 +1,57 @@
+ - A scar does not form on the dying. A scar means, I survived.
+ - Studying psychology is fun because you’re always looking for the same things I think a writer should be looking for, which is the story behind the story.
+ - Sad words are just another beauty. A sad story means, this storyteller is alive. The next thing you know something fine will happen to her, something marvelous, and then she will turn around and smile.
+ - If your face is swollen from the severe beatings of life, smile and pretend to be a fat man.
+ - Sad words are just another beauty. A sad story means, this storyteller is alive.
+ - Looking after a very sick child was the Olympics of parenting.
+ - The reason why I love people, and writing about them, is because they don’t always respond with hate and anger. If they did I wouldn’t have a story to tell. Who wants to know about someone who was brutalised and became brutal? I’m interested in the exceptions.
+ - It was the month of May and there was warm sunshine dripping through the holes between the clouds, like the sky was a broken blue bowl and a child was trying to keep honey in it.
+ - Psychiatry in this place is like serving an in-flight meal in the middle of a plane crash. If I wanted to make you well, as a doctor, I should be giving you a parachute, not a cheese-and-pickle sandwich.
+ - However long the moon disappears, someday it must shine again.
+ - And thus love makes fools of us all.
+ - In my world death will come chasing. In your world it will start whispering in your ear to destroy yourself. I know this because it started whispering to me when I was in the detention center.
+ - This is the forked tongue of grief again. It whispers in one ear: return to what you once loved best, and in the other ear it whispers, move on.
+ - I’m telling you, trouble is like the ocean. It covers two thirds of the world.
+ - I am a woman built upon the wreckage of myself.
+ - Even for a girl like me, then, there comes a day when she can stop surviving and start living. To survive, you have to look good or talk good. But to end your story well – here is the truth – you have to talk yourself out of it.
+ - Life is extremely short and you cannot dance to current affairs.
+ - We were exiles from reality that summer. We were refugees from ourselves.
+ - That is how we lived, happily and without hope. I was very young then, and I did not miss having a future because I did not know I was entitled to one.
+ - Life is savagely unfair. It ignores our deep-seated convictions and places a disproportionate emphasis on the decisions we make in split seconds.
+ - Horror in your country is something you take a dose of to remind yourself that you are not suffering from it.
+ - People wonder how they are ever going to change their lives, but really it is frighteningly easy.
+ - They say that in the hour before an earthquake the clouds hang leaden in the sky, the winds slows to a hot breath, and the birds fall quiet in the trees of the town square. Yes but these are the same portents that precede lunchtime, frankly.
+ - At some point you just have to turn around and face your life head on.
+ - There’s what people say, and there’s what people mean, and I like to explore the difference between the two.
+ - Death, of course, is a refuge. It’s where you go when a new name, or a mask and cape, can no longer hide you from yourself. It’s where you run to when none of the principalities of your conscience will grant you asylum.
+ - That is the trouble with happiness-all of it is built on top of something that men want.
+ - I think that the relationship between two top-level athletes who are rivals is one of the most fascinating human relationships to explore. It’s always one atom away from being a tragedy.
+ - Our stories are the tellers of us.
+ - I know that the hopes of this whole human world can fit inside one soul.
+ - I could not stop talking because now I had started my story, it wanted to be finished. We cannot choose where to start and stop. Our stories are the tellers of us.
+ - I’m not happy with just repeating myself.
+ - We’re often told that we live in a globalized world, and we talk about it all the time, but people don’t stop to think about what it means.
+ - Andrew had a gift for deepening the incision he began.
+ - You travel here and you travel there, trying to get out from under the cloud, and nothing works, and then one day you realize you’ve been carrying the weather around with you.
+ - You may think that’s funny Osama but you never can squeeze every last bit of pride out of a human being. It’s like a tube of toothpaste. You can twist it and you can crush it but there’s always a tiny bit left isn’t there?
+ - This thing with being lovers, it isn’t like being married.
+ - If I could not smile, I think my situation would be even more serious.
+ - I’m a much better writer for being a father.
+ - The Daily Mail can’t say ‘asylum-seeker’ without saying ‘foreign criminal’ in the same sentence. I’m sure it’s practically editorial policy.
+ - Nobody has the time to sit down and explain the first world from first principles.
+ - Still shaking, in the pew, I understood that it isn’t the dead we cry for. We cry for ourselves, and I didn’t deserve my own pity.
+ - I think that there’s something extremely beautiful about the Olympic ideal and its motto – ‘Swifter, higher, stronger’ – it’s such a beautiful motto, and it celebrates everything which is the antithesis of death and dissolution and entropy.
+ - I was carrying two cargoes. Yes, one of them was horror, but the other one was hope.
+ - My whole life is my work.
+ - The only bad days as a writer are the ones when you are too cowardly or too lazy to sit down at the keyboard and give it everything you have.
+ - To be well in your mind you have first to be free.
+ - There was no quick grief for Andrew because he had been so slowly lost. First from my heart, then from my mind, and only finally from my life.
+ - I think, in common with a lot of novelists, I wasn’t the most athletic guy at school.
+ - It was hard not to be full of hope.
+ - I like to push characters to extremes so they have to make really tough decisions and there is no life more extreme than that of an athlete.
+ - If I can’t write it would be as if I died.
+ - I’m really interested in people’s decisions.
+ - I’m always determined that as a novelist I’m going to go out there and research my characters very thoroughly before I start writing.
+ - So when I say that I am a refugee, you must understand that there is no refuge.
+
+55 quotes

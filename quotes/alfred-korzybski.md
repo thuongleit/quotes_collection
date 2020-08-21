@@ -1,0 +1,35 @@
+ - The map is not the territory.
+ - The map is not the territory, the word is not the thing it describes. Whenever the map is confused with the territory, a ‘semantic disturbance’ is set up in the organism. The disturbance continues until the limitation of the map is recognized.
+ - Whatever you say it is, is simply what YOU SAY it is.
+ - What we call progress consists in coordinating ideas with realities.
+ - Words don’t mean, people mean.
+ - Identity is invariably false to facts.
+ - Who rules our symbols, rules us.
+ - God may forgive your sins, but your nervous system won’t.
+ - I want to make clear only that words are not the things spoken about, and that there is no such thing as an object in absolute isolation.
+ - A person does what he does because he sees the world as he sees it.
+ - It is a fallacy of the old schools to divide man into parcels, elements, thoughts, emotions, intuitions, etc. All human faculties consist of an interconnected whole.
+ - To use words to sense reality is like going with a lamp to search for darkness.
+ - Whatever you may say something is, it is not!
+ - Identification makes general sanity and complete adjustment impossible. Training in non-identity plays a therapeutic role with adults.
+ - I think therefore I seem to be.
+ - It is now no mystery that some quite influential ‘philosophers’ were ‘mentally’ ill.
+ - Riches I need not, nor man’s empty praise.
+ - Two important characteristics of maps should be noticed. A map is not the territory it represents, but, if correct, it has a similar structure to the territory, which accounts for its usefulness.
+ - We see what we see because we miss all the finer details.
+ - There are two ways to slice easily thorugh life; to believe everything or to doubt everything. Both ways save us from thinking.
+ - Psycho-galvonic experiments show clearly that every emotion or thought is always connected with some electrical current.
+ - If words are not things, or maps are not the actual territory, then, obviously, the only possible link between the objective world and the linguistic world is found in structure, and structure alone.
+ - I am the same kind of moron as the rest of you, it’s the method that does the work, for me as well as for you.
+ - Different ‘philosophies’ represent nothing but methods of evaluation, which may lead to empirical mis-evaluation if science and empirical facts are disregarded.
+ - Second order effects, such as belief in belief, makes fanaticism.
+ - He who learns and learns and yet does not know what he knows, is one who plows and plows yet never sows.
+ - Every language having a structure, by the very nature of language, reflects in its own structure that of the world as assumed by those who evolved the language. In other words, we read unconsciously into the world the structure of the language we use.
+ - Thus, we see that one of the obvious origins of human disagreement lies in the use of noises for words.
+ - Mathematics and logic have been proved to be one; a fact from which it seems to follow that mathematics may successfully deal with non-quantitative problems in a much broader sense than was suspected to be possible.
+ - The present non-aristotelian system is based on fundamental negative premises; namely, the complete denial of ‘identity.’
+ - If a psychiatric and scientific inquiry were to be made upon our rulers, mankind would be appalled at the disclosures.
+ - One would have to say “in the end everything is a gag, etc” because everything is infinitely more than just a gag. The same applies to other “is”-statements such as “Laughter is an instant vacation”
+ - The objective level is not words, and cannot be reached by words alone. We must point our finger and be silent, or we will never reach this level.
+
+33 quotes

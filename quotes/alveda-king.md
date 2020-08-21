@@ -1,0 +1,27 @@
+ - Racism springs from the lie that certain human beings are less than fully human. It’s a self-centered falsehood that corrupts our minds into believing we are right to treat others as we would not want to be treated.
+ - Abortion is an attack on the family and the humanity that unites us all.
+ - We should recognize that women become mothers the moment they are pregnant.
+ - Abortion and racism are both symptoms of a fundamental human error. The error is thinking that when someone stands in the way of our wants, we can justify getting that person out of our lives. Abortion and racism stem from the same poisonous root, selfishness.
+ - Every baby saved, every mother helped to choose life is a step in the right direction.
+ - Racism is a way to gain economic advantage at the expense of others. Slavery and plantations may be gone, but racism still allows us to regard those who may keep us from financial gain as less than equals.
+ - I have a dream that America will pray and God will forgive us our sins.
+ - Abortion and racism are both symptoms of a fundamental human error.
+ - I simply cannot vote for Senator Obama because he’s not pro-life.
+ - If we have an honest discussion on whether the war on poverty should be fought with welfare or with economic growth in the private sector, Democrats will lose black votes.
+ - Let’s be honest about this; the liberal agenda with failed stimulus plans and government entitlement programs is crippling our economy and our quality of life.
+ - Racism oppresses its victims, but also binds the oppressors, who sear their consciences with more and more lies until they become prisoners of those lies. They cannot face the truth of human equality because it reveals the horror of the injustices they commit.
+ - People need jobs, people need happy and successful lives; there should be marriage between one man and one woman, there should the value of person from conception until natural death.
+ - I’ve never called President Obama a racist. I love President Obama. I pray for him all the time. God loves President Obama. God loves you. And God loves me.
+ - President Obama is traveling around the country, proposing a stimulus bill that has already failed once. Instead of having an honest discussion about whether or not a plan that already failed once will fail again, the establishment would rather distract the American people with gossip.
+ - Many people who voted for Mr. Obama in the last election did so based on skin color.
+ - America wants solutions. America wants a leader. No more tabloid politics.
+ - My daddy, Rev. A. D. King, my granddaddy, Martin Luther King, Senior – we are a family of faith, hope and love.
+ - If Senator Obama becomes pro-life then I’ll consider giving him my vote.
+ - It is statistically proven that the strongest institution that guarantees procreation and continuity of the generations is marriage between one man and one woman. We don’t want genocide. We don’t want to destroy the sacred institution of marriage.
+ - You know, people really want to hear about the issues.
+ - A woman knows a skirt-chaser.
+ - African-Americans who might have disagreed with candidate Obama’s left-of-center politics voted for him in 2008 because electing a candidate with brown skin was too historic an opportunity to miss.
+ - When you see the political parties squabble, if a baby is not allowed to be born, all the other issues do not come into play.
+ - Mr. Cain would structurally change the voting demographic. There would be more black economic conservatives, and the Democrats would lose their stranglehold on the black vote.
+
+25 quotes

@@ -1,0 +1,154 @@
+ - Good is not always God’s will, but God’s will is always good.
+ - A drowning man cannot be saved until he is utterly exhausted and ceases to make the slightest effort to save himself.
+ - The Christian experience, from start to finish, is a journey of faith.
+ - With complete consecration comes perfect peace.
+ - Separation to God, separation from the world, is the first principle of Christian living.
+ - Outside Christ, I am empty; in Christ, I am full.
+ - Baptism is an outward expression of an inward faith.
+ - A Christian life is an unending engagement on the battlefield.
+ - I must first have the sense of God’s possession of me before I can have the sense of His presence with me.
+ - Our rest lies in looking to the Lord, not to ourselves.
+ - Our prayers lay the track down which God’s power can come.
+ - We think of the Christian life as a ‘changed life’ but it is not that. What God offers us is an ‘exchanged life,’ a ‘substituted life,’ and Christ is our Substitute within.
+ - God will answer all our questions in one way and one way only. Namely, by showing us more of his Son.
+ - I want nothing for myself; I want everything for the Lord.
+ - The cross grants us position, the Holy Spirit gives us experience.
+ - It does not matter what your personal deficiency, or whether it be a hundred and one different things, God has always one sufficient answer, His Son Jesus Christ, and he is the answer to every need.
+ - The Christian faith begins not with a big DO but with a big DONE.
+ - Why do so many Christians pray such tiny prayers when their God is so big?
+ - Prayer is the acid test of the inner man’s strength. A strong spirit is capable of praying much and praying with all perseverance until the answer comes. A weak one grows weary and fainthearted in the maintenance of praying.
+ - Just as the right relationship with Christ generates a Christian, so the proper relationship with the Holy Spirit breeds a spiritual man.
+ - He who is able to accept everything gladly from the Lord – including darkness, dryness, flatness – and completely disregard self is he who lives for Him.
+ - Satan can only attack us from the outside in. He may work through the lust and sensations of the body or through the mind and emotion of the soul, for those two belong to the outward man.
+ - God is not seeking a display of my Christ-likeness, but a manifestation of His Christ.
+ - Lord, I am willing to break MY heart that I might satisfy THY heart.
+ - The ‘flesh’ is too bad to be cleansed; it must be crucified.
+ - To keep our hand on the plow while wiping away our tears – THAT is Christianity!
+ - Our old history ends with the Cross; our new history begins with the resurrection.
+ - We may be weak, but looking at our weakness will never make us strong.
+ - Genuine spiritual knowledge lies not in wonderful and mysterious thoughts but in actual spiritual experience through union of the believer’s life with truth.
+ - We must have a spirit of power towards the enemy, a spirit of love towards men, and a spirit of self-control towards ourselves.
+ - Faith in Christ makes one a regenerated believer; obedience to the Holy Spirit makes him a spiritual believer.
+ - The Blood deals with what we have done, whereas the Cross deals with what we are. The Blood disposes of our sins, while the Cross strikes at the root of our capacity for sin.
+ - Our prayers lay the track down which Gods power can come. Like a mighty locomotive, his power is irresistible, but it cannot reach us without rails.
+ - Without this heart attitude it is exceedingly difficult for us to accept the circumcision of the flesh. Every affection, desire, thought, knowledge, intent, worship, and work of the flesh must go to the cross.
+ - People who are lazy, careless, doubtful-minded or arrogant need not expect God to reveal His secret or covenant to them.
+ - God will not give me humility, or patience, or holiness, or love as separate investments of His grace. He has given only one gift to meet our need, His Son Christ Jesus.
+ - Natural strength is what we receive from the hand of God as Creator. Spiritual strength is what we receive from God in grace.
+ - Do we not realize that the basic condition for a spiritual walk is to fear our self and its wisdom and to rely absolutely upon the Spirit?
+ - Fellowship means among other things that we are ready to receive of Christ from others. Other believers minister Christ to me, and I am ready to receive.
+ - God aims first to renew man’s darkened spirit by imparting life to it, because it is this spirit which God originally designed to receive His life and to commune with Him. God’s intent after that is to work out from the spirit to permeate man’s soul and body.
+ - Christ is the Son of God. He died to atone for men’s sin, and after three days rose again. This is the most important fact in the universe. I die believing in Christ.
+ - I do not consecrate myself to be a missionary or a preacher. I consecrate myself to God to do His will where I am, be it in school, office, or kitchen, or wherever He may, in His wisdom, send me.
+ - God has supplied all my needs and has not failed me once.
+ - Revelation is the first step to holiness, and consecration is the second. A day must come in our lives, as definite as the day of our conversion, when we give up all right to ourselves and submit to the absolute Lordship of Jesus Christ.
+ - Victory is the normal experience of a Christian; defeat should be the abnormal experience.
+ - Not until we take the place of a servant can He take His place as Lord.
+ - True spiritual life depends not on probing our feelings and thoughts from dawn to dusk but on ‘looking off’ to the Savior!
+ - Whatever the mind sets itself on is what the man walks after.
+ - Overcoming sin, blessed though it surely is, is but the bare minimum of a believers experience. There is nothing astonishing in it. Not to overcome sin is what ought to astonish us.
+ - If Christ lives in us, we will rejoice in everything, and we will thank and praise the Lord. We will say, ‘Hallelujah! Praise the Lord’ forever.
+ - With fear and trembling we must rely upon God for guidance in the inner depths. This is the sole way to walk according to the spirit.
+ - Towards himself a Christian should have a broken spirit, but towards God it should be one of rejoicing always in Him. He rejoices not for its own sake nor because of any joyful experience, work, blessing or circumstance, but exclusively because God is his center.
+ - Frequently the enemy entices Christians to harbor an unforgiving spirit – a very common symptom indeed among God’s children. Such bitterness and fault-finding and enmity inflict a severe blow upon spiritual life.
+ - Spiritual advancement is measured by faithful obedience.
+ - The greatest negative in the universe is the Cross, for with it God wiped out everything that was not of Himself: the greatest positive in the universe is the resurrection, for through it God brought into being all.
+ - The burden imparted by God is lifted once we have prayed, but the heaviness from the enemy cannot be raised unless we fight and resist in prayer.
+ - Prayer is work. The experiences of many children of God demonstrate that it accomplishes far more than does any other form of work. It is also warfare, for it is one of the weapons in fighting the enemy. However, only prayer in the spirit is genuinely effectual.
+ - There is nothing more tragic than to come to the end of life and know we have been on the wrong course.
+ - May we always be possessed by the consciousness that we are not our own.
+ - As God’s child advances spiritually be shall discover that the Lord’s time is as important as the Lord’s will. Do not rashly beget an Ishmael lest he become the greatest enemy to Isaac.
+ - A person who wholly follows the Lord is one who believes that the promises of God are trustworthy, that He is with His people, and that they are well able to overcome.
+ - All spiritual prayers have their source in God. God makes known to us what we ought to pray by unfolding to us the need and by giving that need as a burden in our intuitive spirit. Only an intuitive burden can constitute our call to pray.
+ - The Spirit is both a builder and a dweller. He cannot dwell where he has not built; He builds to dwell and dwells in only what he has built.
+ - Do not be impatient for impatience is of the flesh. Do not try different methods because they are useful solely in helping the flesh. We must distrust the flesh entirely.
+ - Long-lasting victory can never be separated from a long-lasting stand on the foundation of the cross.
+ - Man’s thought is always of the punishment that will come to him if he sins. God’s thought is always of the glory man will miss if he sins. God’s purpose for redemption is glory, glory, glory.
+ - Baptism is faith in action.
+ - Nowadays Christians appear to treat prayer as a means to accomplish their aims and ideas. If they possessed just a little deeper understanding, they would recognize that prayer is but man uttering to God what is God’s will.
+ - When a believer has crossed into the domain of the spiritual he daily ought to maintain a combat attitude in his spirit, praying therewith for the overthrow of all the works of Satan done through the evil powers.
+ - We should not open our mouths too hastily upon approaching God. On the contrary, we first must ask God to show us what and how to pray before we make our request known to Him. Have we not consumed a great deal of time in the past asking for what we wanted? Why not now ask for what God wants?
+ - The devil abhors light and truth because these remove the ground of his working.
+ - Now is the hour we should humbly prostrate ourselves before God, willing to be convicted afresh of our sins by the Holy Spirit.
+ - An affection which is not inspired by the Lord will soon be transformed into lust. Samson is not alone in the history of man in failing in this regard. Delilah is still cutting the hair of man today!
+ - All satanic works are performed from the outside inward; all divine works from the inside outward.
+ - A mistaken thought may be corrected easily, but an errant affection is nearly unmanageable.
+ - It is a fact that God wants to destroy every work of our flesh, but He never desires to destroy our personality. He takes no pleasure in transforming us into automata; rather He delights in having us cooperate with Him.
+ - It is important to receive God’s arrangement in the circumstances. This arrangement is the discipline of the Holy Spirit. To escape God’s arrangement just one time is to lose an opportunity to have our capacity enlarged. A believer can never be the same after passing through suffering.
+ - We may infer from any defeat of ours that it is due either to lack of faith or failure to obey. No other reason can suffice.
+ - Nothing is wrong with the inlet: It is the outlet that is obstructed. The water of life does not spring forth because the flow has no way through. Were the outlet cleared, the water of life would flow unceasingly. What a child of God needs is not more life but more flow of life.
+ - Oh, Lord, you have indeed been gracious to me.
+ - If we verily bear the cross we shall be neither controlled nor influenced by soulical affection but shall be fit to love in the power of the Holy Spirit. Even so did the Lord Jesus love His family while on earth.
+ - Everyone who believes in God must have His revelation in his spirit, or else what he believes is not God but mere human wisdom, ideals or words. Such faith cannot endure the test.
+ - The child of God ought to confess his weakness that he does not know how to pray, and petition the Holy Spirit to teach him.
+ - They spend more time in analyzing, in collecting materials, and in hard thinking than on prayer, on seeking God’s mind, and on waiting for the power from above.
+ - If whatever men know comes through their brain without the Holy Spirit regenerating their spirit, then their knowledge will help them not one whit. If their belief rests in man’s wisdom and not in God’s power, they are merely excited in their soul.
+ - An unpeaceful mind cannot operate normally.
+ - Knowing the truth concerning the deep workings of the evil spirit helps the individual not only to overcome sins but to eliminate unnecessary afflictions as well.
+ - If one’s conscience is willing to confess whatever sins have been committed, including the sin of unbelief, it will be sorrowful in a godly way, earnestly desiring the mercy of God.
+ - So we can say, reverently, that God never gave us the Law to keep: he gave us the Law to break! He well knew that we could not keep it.
+ - By the time the average Christian gets his temperature up to normal, everybody thinks he has a fever!
+ - The Christian life from start to finish is based upon this principle of utter dependence upon the Lord Jesus.
+ - The clerical system of church management is exceedingly popular, but the whole thought is foreign to Scripture.
+ - Mere mental assimilation of these truths cannot withstand temptation, however. The revelation of God is positively essential. The Spirit of God must reveal how we are in Christ and how we are united with Him in one.
+ - When the fruit of your service is out of all proportion to the gifts you possess, THAT is Blessing!
+ - Every true work is not done to the poor. Every true work is done to Me.
+ - At times it seems we require more grace to lose our wealth than to lose our life!
+ - The particular sin of omission which gives ground to the evil spirits is the believer’s passivity.
+ - To secure one’s freedom the Christian must experience God’s light which is God’s truth.
+ - Never adopt an attitude of indifference, for if you do you will suffer for it. The weight will grow heavier and heavier.
+ - The cares of this life emerge as very small items indeed along our daily path.
+ - Do not grow overconfident following a few victories. Should you not rely upon the Holy Spirit you will soon be thrown once more into a distressing experience. With holy diligence you must cultivate an attitude of dependency.
+ - Most soulish believers assume an attitude of self-righteousness, though often it is scarcely detectable. They hold tenaciously to their minute opinions we ought to lay aside the small differences and pursue the common objective.
+ - All knowledge is the outgrowth of obedience; everything else is just information.
+ - Often Satan injects pride into the believer’s spirit, evoking in him an attitude of self-importance and of self-conceit. He causes him to esteem himself a very outstanding person, one who is indispensable in God’s work. Such a spirit constitutes one of the major reasons for the fall of believers.
+ - Eternal life means more than mere future blessing to be enjoyed by believers; it is equally a kind of spiritual ability.
+ - Only those who are spiritual perceive the reality of the spiritual foe and hence engage in battle. Such warfare is not fought with arms of the flesh. Because the conflict is spiritual so must the weapons.
+ - The Lord has shown me that I can do anything, but that He has said, apart from Me ye can do nothing. So it comes to this, that everything I have done, and can still do apart from Him is nothing!
+ - If you would test the character of anything, you only need to enquire whether that thing leads you to God or away from God.
+ - Teach us to pray that we may cause The enemy to flee, That we his evil power may bind, His prisoners to free.
+ - None who are shod with fleshly shoes can stand on the holy ground of God’s service. Many failures and much waste and confusion which have resulted are due to men’s coming to work, instead of being sent out to work.
+ - How dangerous a master human emotion is!
+ - A spiritual Christian should welcome any burden which the Lord brings his way.
+ - True revelation of the fact of the Spirit’s indwelling will revolutionize the life of any Christian.
+ - From the evening I was saved, I began to live a new life, for the life of the eternal God had entered into me.
+ - And it is through conflict that God induces the believer to seek and to grasp total triumph in Christ.
+ - It is highly dangerous to receive the truths of the Bible with human wisdom, for this is a hidden and subtle method which invariably causes a believer to perfect with his flesh the work of the Holy Spirit.
+ - How true it is that without the guidance of the Holy Spirit intellect not only is undependable but also extremely dangerous, because it often confuses the issue of right and wrong.
+ - One gains by losing self for others and not by hoarding for oneself.
+ - We may love to say many things, but if these are not uttered in the Holy Spirit it is better to say nothing. The flesh can conjure up many plans and methods and be full of expectations. The righteousness of the flesh is as abhorrent as its sin we must always maintain God’s view of the flesh.
+ - Actually, only God can satisfy a Christian’s heart; man cannot.
+ - It is a fact that the Lord Jesus has already died for you. It is also a fact that you have already died with the Lord Jesus. If you do not believe in your death with Christ, you will not be able to receive the effectiveness of death with Him – freedom from sin.
+ - If the mind is open the individual will soon perceive the preciousness of a truth which initially appeared rather dull to him but now is illumined by the spirit’s light.
+ - We should try our best to pour out all the burdens in our spirit by prayer until all of them have left us.
+ - The life of faith is not only totally different from, but also diametrically opposite to, a life of feeling.
+ - The child of God should not be overanxious to make new gains; what he essentially requires is to keep what he already has, for not losing is itself a gain. The way to retain what he possesses is to engage it.
+ - The gospel we preach must not be just something we hear from men or read from books or even conceived through our meditation. Unless it is delivered to us by God, it can serve no spiritual utility.
+ - We must not pay attention just to reading and studying; rather, we should ask if we are open before the Lord. If we do not have an unveiled face, the glory of the Lord will not shine on us. If our heart is not open to God, God cannot give us any light.
+ - The right attitude is this: that I have my own will, yet I will the will of God.
+ - Take this as the secret of Christ’s life in you: His Spirit dwells in your innermost spirit. Meditate on it, believe in it, and remember it until this glorious truth produces within you a holy fear and wonderment that the Holy Spirit indeed abides in you.
+ - We work because we have not seen the work of Christ.
+ - Only as they cease to seek anything by themselves and only as they take the position of the teachable shall they be taught by the Spirit truth which they are able to digest.
+ - Many confuse understanding with believing.
+ - All we have-ourselves-to Him, and if that be all, that is enough.
+ - Believers must persevere in prayer that they may see clearly their own pitiful state and understand the indwelling, working, and demands of the Holy Spirit.
+ - Therefore, brethren, pray until God gives us revelation so that “knowing this” in our spirit we may truly confess “that our old man has been crucified with him.”
+ - Henceforth we are dead to everything pertaining to ourselves and alive to His Spirit alone. This requires our exercising faith.
+ - It is not only the proclamation of the whole truth that is needed today; it is the release of the spiritual reality which the truth expresses, and that can only be realized as we allow ourselves to be caught into the mighty on-flowing tide of the Spirit.
+ - Do not be taken in or flattered by your own success or fame. Take not only as to whether or not the old creation, including everything which comes by birth, has gone through the cross.
+ - For God to reveal His Son in us is not the result of research or searching; it is entirely a matter of mercy and revelation. It is an inward seeing, an inner knowing.
+ - If you perform your part, God will fulfill His. And once you put off specifically, you should just as thoroughly believe that God will renew your mind, despite the fact you know not how.
+ - The attitude of saints toward their possessions most assuredly signifies whether they continue to preserve their self life or whether they have consigned it to death.
+ - Since this life is God’s and cannot die, it follows that everyone born anew into possessing this life is said to have eternal life.
+ - Frequently the burden or concern in the spirit is for prayer.
+ - Irrespective of how we physiologically are made, even possessing special weaknesses, we can overcome our sins through the Lord.
+ - A born-again person ought to possess unspeakable peace in the spirit.
+ - If we just had more revelation of what we already have, there would be far less prayers and far more praise.
+ - On at least four separate occasions and recorded in the four Gospels the Lord Jesus called His disciples to deny their soul life, deliver it to death, and then to follow Him.
+ - The idea of waste only comes into our Christianity when we underestimate the worth of our Lord.
+ - A Christian ought to realize what the weights laid on his spirit are. If he encounters it in the morning and does not deal with it at once, he experiences defeat the whole day long.
+ - The book of Acts is the best aid in approaching our work. We do not find there anyone consecrating himself as a preacher nor anyone deciding to do the Lord’s work by making himself a missionary or a pastor. What we do see is the Holy Spirit Himself appointing and sending men out to do the work.
+ - Were our spirits hardy we would be able to meet the most disturbing situation with peace and rest.
+ - The note of hallelujah must never be in short supply in the spirit of the believer.
+
+152 quotes

@@ -1,0 +1,41 @@
+ - Love is the magician that pulls man out of his own hat.
+ - Time is a circus, always packing up and moving away.
+ - In moderating, not satisfying desires, lies peace.
+ - Prejudice is a raft onto which the shipwrecked mind clambers and paddles to safety.
+ - Love is a hole in the heart.
+ - There’s one thing that keeps surprising you about stormy old friends after they die – their silence.
+ - A movie is never any better than the stupidest man connected with it.
+ - The rule in the art world is: you cater to the masses or you kowtow to the elite; you can’t have both.
+ - I have known a number of Don Juans who were good studs and who cavorted between the sheets without a psychiatrist to guide them. But most of the busy love-makers I knew were looking for masculinity rather than practicing it. They were fellows of dubious lust.
+ - I see a lot of fog and a few lights. I like it when life’s hidden. It gives you a chance to imagine nice things, nicer than they are.
+ - Chicago is a sort of journalistic Yellowstone Park, offering haven to a last herd of fantastic bravos.
+ - Trying to determine what is going on in the world by reading newspapers is like trying to tell the time by watching the second hand of a clock.
+ - Three years ago, the white hope of the theatre. Today, a mug. That’s New York for you. Puts you on a Christmas tree, and then – the alley.
+ - Movies are one of the bad habits that have corrupted our century. They have slipped into the American mind more misinformation in one evening than the Dark Ages could muster in a decade.
+ - Bad writing is not easier than good writing. It’s just as hard to make a toilet seat as it is a castle window. Only the view is different.
+ - Despite all our toil and progress, the art of medicine still falls somewhere between trout casting and spook writing.
+ - Immorality, perversion, infidelity, cannibalism, etc., are unassailable by church and civic league if you dress them up in the togas and talliths of the Good Book.
+ - Socially, a journalist ranks somewhere between the madam of a whorehouse and a bartender. but spiritually he ranks with Galileo, for he knows the world is round.
+ - Like the actor, authority has faith in its false whiskers. But its deepest faith is in the human illusion. People will hang on to illusion as eagerly as life itself.
+ - For many years Hollywood held this double lure for me, tremendous sums of money for work that required no more effort than a game of pinochle.
+ - A man nearly always loves for other reasons than he thinks. A lover is apt to be as full of secrets from himself as is the object of his love from him.
+ - The movies are an eruption of trash that has lamed the American mind and retarded Americans from becoming cultured people.
+ - The only practical way yet discovered by the world for curing its ills is to forget about them.
+ - In the court of the movie Owner, none criticized, none doubted. And none dared speak of art. In the Owner’s mind art was a synonym for bankruptcy. The movie Owners are the only troupe in the history of entertainment that has never been seduced by the adventure of the entertainment world.
+ - I’ll tell you a secret. We live in a mad and inspiring world.
+ - Of the things men give each other the greatest is loyalty.
+ - Innocent people can get into terrible jams, too. One false move and you’re in over your head.
+ - I have written a raucous valentine to a poet’s dream and agony.
+ - There is nothing as dull as an intellectual ally after a certain age.
+ - In Hollywood a starlet is the name for any woman under thirty who is not actively employed in a brothel.
+ - I discovered early in my movie work that a movies never any better than the stupidest man connected with it. There are times when this distinction may be given to the writer or director. Most often it belongs to the producer.
+ - That God has managed to survive the inanities of the religions that do Him homage is truly a miraculous proof of His existence.
+ - I’m a Hollywood writer, so I put on my sports jacket and take off my brain.
+ - The honors Hollywood has for the writer are as dubious as tissue-paper cuff links.
+ - I know that a man who shows me his wealth is like the beggar who shows me his poverty; they are both looking for alms from me, the rich man for the alms of my envy, the poor man for the alms of my guilt.
+ - Much more frequent in Hollywood than the emergence of Cinderella is her sudden vanishing. At our party, even in those glowing days, the clock was always striking twelve for someone at the height of greatness; and there was never a prince to fetch her back to the happy scene.
+ - He was in love with life as an ant on a summer blade of grass.
+ - Television excites me because it seems to be the last stamping ground of poetry, the last place where I hear women’s hair rhapsodically described, women’s faces acclaimed in odelike language.
+ - Out of the seventy movies I’ve written some ten of them were not entirely waste product.
+
+39 quotes

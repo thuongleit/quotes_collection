@@ -1,0 +1,26 @@
+ - I hate being good. -Mary Poppins.
+ - Don’t you know that everybody’s got a Fairyland of their own?
+ - For me there are no answers, only questions, and I am grateful that the questions go on and on. I don’t look for an answer, because I don’t think there is one. I’m very glad to be the bearer of a question.
+ - With the word creative we stand under a mystery. And from time to time that mystery, as if it were a sun, sends down upon one head or another, a sudden shaft of light – by grace, one feels, rather than deserving, for it always is something given, free, unsought, unexpected.
+ - Perhaps we are born knowing the tales of our grandmothers and all their ancestral kin continually run in our blood repeating them endlessly, and the shock they give us when we first bear them is not of surprise but of recognition.
+ - Tea is balm for the soul, don’t you agree?
+ - I think the idea of Mary Poppins has been blowing in and out of me, like a curtain at a window, all my life.
+ - You do not chop off a section of your imaginative substance and make a book specifically for children, for, if you are honest, you have no idea where childhood ends and maturity begins. It is all endless and all one .
+ - If you want to find Cherry-Tree Lane all you have to do is ask the Policeman at the cross-roads.
+ - Once we have accepted the story we cannot escape the story’s fate.
+ - Stories are like birds flying, here and gone in a moment.
+ - When I was a child, love to me was what the sea is to a fish: something you swim in while you are going about the important affairs of life.
+ - The same substance composes us – the tree overhead, the stone beneath us, the bird, the beast, the star – we are all one, all moving to the same end.
+ - What I want to know is this: Are the stars gold paper or is the gold paper stars?
+ - A writer is, after all, only half his book. The other half is the reader and from the reader the writer learns.
+ - Child and serpent, star and stone – all one.
+ - And all the time he was enjoying his badness, hugging it to him as though it were a friend, and not caring a bit.
+ - The Irish, as a race, have the oral tradition in their blood. A direct question to them is an anathema, but in other cases, a mere syllable of a hero’s name will elicit whole chapters of stories.
+ - More and more I’ve become convinced that the great treasure to possess is the unknown.
+ - I think that Mary Poppins needs a subtle reader, in many respects, to grasp all its implications, and I understand that these cannot be translated in terms of the film.
+ - You can ask me anything you like about my work, but I’ll never talk about myself.
+ - Trouble trouble and it will trouble you.
+ - I was brought up Irish, where there was room for my own private world.
+ - I’ve felt that if I just used initials nobody would know whether I was a man or a woman, a dog or a tiger. I could hide from view, like a bat on the underside of a branch.
+
+24 quotes

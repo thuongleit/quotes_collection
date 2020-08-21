@@ -1,0 +1,502 @@
+ - The mind is its own place, and in itself, can make heaven of Hell, and a hell of Heaven.
+ - Every cloud has a silver lining.
+ - Long is the way and hard, that out of hell leads up to light.
+ - Vanity is definitely my favorite sin.
+ - Better to reign in hell than serve in heav’n.
+ - Grace was in all her steps, heaven in her eye, in every gesture dignity and love.
+ - Where no hope is left, is left no fear.
+ - Ink is the blood of the printing-press.
+ - The end of all learning is to know God, and out of that knowledge to love and imitate Him.
+ - Here we may reign secure; and in my choice To reign is worth ambition, though in hell: Better to reign in hell than serve in heaven.
+ - Time will run back and fetch the Age of Gold.
+ - Freely we serve, Because we freely love, as in our will To love or not; in this we stand or fall.
+ - Solitude is sometimes best society.
+ - Did I request thee, Maker, from my clay To mould me man? Did I solicit thee From darkness to promote me?
+ - Gratitude bestows reverence, allowing us to encounter everyday epiphanies, those transcendent moments of awe that change forever how we experience life and the world.
+ - They who have put out the people’s eyes reproach them of their blindness.
+ - Prudence is the virtue by which we discern what is proper to do under various circumstances in time and place.
+ - They also serve who only stand and wait.
+ - Luck is the residue of design.
+ - He who reigns within himself and rules passions, desires, and fears is more than a king.
+ - What is dark within me, illumine.
+ - You can make hell out of heaven and heaven out of hell. It’s all in the mind.
+ - Lethe, the river of oblivion, rolls his watery labyrinth, which whoso drinks forgets both joy and grief.
+ - Give me the liberty to know, to utter, and to argue freely according to conscience, above all liberties.
+ - Abashed the devil stood and felt how awful goodness is and saw Virtue in her shape how lovely: and pined his loss.
+ - Calm of mind, all passion spent.
+ - Death is the golden key that opens the palace of eternity.
+ - He who destroys a good book kills reason itself.
+ - All hell broke loose.
+ - Hard are the ways of truth, and rough to walk.
+ - What hath night to do with sleep?
+ - Temper justice with mercy.
+ - Was I deceiv’d, or did a sable cloud Turn forth her silver lining on the night?
+ - Into this wild abyss, The womb of Nature and perhaps her grave.
+ - All is not lost, the unconquerable will, and study of revenge, immortal hate, and the courage never to submit or yield.
+ - The hungry sheep look up, and are not fed.
+ - To be blind is not miserable; not to be able to bear blindness, that is miserable.
+ - Innocence, Once Lost, Can Never Be Regained. Darkness, Once Gazed Upon, Can Never Be Lost.
+ - To be weak is miserable, Doing or suffering.
+ - What if Earth be but the shadow of Heaven and things therein – each other like, more than on Earth is thought?
+ - Let none admire that riches grow in hell; that soil may best deserve the precious bane.
+ - To live a life half dead, a living death.
+ - Farewell happy fields, Where joy forever dwells: Hail, horrors, hail.
+ - With a smile that glow’d Celestial rosy red, love’s proper hue.
+ - Nor love thy life, nor hate; but what thou livest, Live well; how long, or short, permit to Heaven.
+ - I will not deny but that the best apology against false accusers is silence and sufferance, and honest deeds set against dishonest words.
+ - All hope is lost of my reception into grace; what worse? For where no hope is left, is left no fear.
+ - Yet from those flames No light, but rather darkness visible.
+ - I sung of Chaos and Eternal Night, Taught by the heav’nly Muse to venture down The dark descent, and up to reascend...
+ - O dark, dark, dark, amid the blaze of noon, Irrecoverably dark, total eclipse Without all hope of day!
+ - With thee conversing I forget all time.
+ - God doth not need Either man’s work or his own gifts. Who best Bear his mild yoke, they serve him best. His state Is kingly: thousands at his bidding speed, And post o’er land and ocean without rest; They also serve who only stand and wait.
+ - Beauty is Nature’s coin, must not be hoarded, But must be current, and the good thereof Consists in mutual and partaken bliss.
+ - But pain is perfect misery, the worst Of evils, and excessive, overturns All patience.
+ - Mutual love, the crown of all our bliss.
+ - Come, pensive nun, devout and pure, sober steadfast, and demure, all in a robe of darkest grain, flowing with majestic train.
+ - Flowers of all hue, and without thorn the rose.
+ - Ah, why should all mankind For one man’s fault, be condemned, If guiltless?
+ - Which way I fly is Hell; myself am Hell.
+ - What in me is dark Illumine, what is low raise and support, That to the height of this great argument I may assert eternal Providence, And justify the ways of God to men. 1 Paradise Lost. Book i. Line 22.
+ - The stars, that nature hung in heaven, and filled their lamps with everlasting oil, give due light to the misled and lonely traveller.
+ - Sweetest Echo, sweetest nymph, that liv’st unseen Within thy airy shell, By slow Meander’s margent green, And in the violet-embroidered vale.
+ - Swinish gluttony never looks to heaven amidst its gorgeous feast; but with besotted, base ingratitude, cravens and blasphemes his feeder.
+ - Biochemically, love is just like eating large amounts of chocolate.
+ - Athens, the eye of Greece, mother of arts And eloquence.
+ - Where peace And rest can never dwell, hope never comes, That comes to all.
+ - So sinks the day-star in the ocean bed, And yet anon repairs his drooping head, And tricks his beams, and with new-spangled ore Flames in the forehead of the morning sky.
+ - Beyond is all abyss, eternity, whose end no eye can reach.
+ - What is strength without a double share of wisdom?
+ - Awake, arise or be for ever fall’n.
+ - None can love freedom heartily, but good men; the rest love not freedom, but license.
+ - To-morrow to fresh woods, and pastures new.
+ - Money brings honor, friends, conquest, and realms.
+ - Evil into the mind of god or man may come and go, so unapproved, and leave no spot or blame behind.
+ - Me miserable! Which way shall I fly Infinite wrath and infinite despair? Which way I fly is hell; myself am hell; And in the lowest deep a lower deep, Still threat’ning to devour me, opens wide, To which the hell I suffer seems a heaven.
+ - The never-ending flight Of future days.
+ - The brazen throat of war.
+ - Necessity and chance Approach not me, and what I will is fate.
+ - Education of youth is not a bow for every man to shoot in that counts himself a teacher; but will require sinews almost equal to those which Homer gave to Ulysses.
+ - Perplexed and troubled at his bad success The Tempter stood, nor had what to reply, Discovered in his fraud, thrown from his hope.
+ - Methought I saw my late espoused saint.
+ - Antichrist is Mammon’s son.
+ - They eat, they drink, and in communion sweet Quaff immortality and joy.
+ - Time, though in Eternity, applied To motion, measures all things durable By present, past, and future.
+ - Vain wisdom all, and false philosophy.
+ - Then wilt thou not be loath To leave this Paradise, but shalt possess A Paradise within thee, happier far.
+ - Knowledge forbidden? Suspicious, reasonless. Why should their Lord Envy them that? Can it be a sin to know? Can it be death?
+ - The sun to me is dark And silent as the moon, When she deserts the night Hid in her vacant interlunar cave.
+ - Or bid the soul of Orpheus sing Such notes as, warbled to the string, Drew iron tears down Pluto’s cheek.
+ - United thoughts and counsels, equal hope And hazard in the glorious enterprise.
+ - How soon hath Time, the subtle thief of youth, stolen on his wing my three-and-twentieth year!
+ - What reinforcement we may gain from hope; If not, what resolution from despair.
+ - See golden days, fruitful of golden deeds, With joy and love triumphing.
+ - Ease would recant Vows made in pain, as violent and void.
+ - For neither man nor angel can discern hypocrisy, the only evil that walks invisible, except to God alone.
+ - The world was all before them, where to choose Their place of rest, and Providence their guide: They hand in hand, with wandering steps and slow, Through Eden took their solitary way.
+ - Or sweetest Shakespeare, Fancy’s child!
+ - Where more is meant than meets the ear.
+ - I did but prompt the age to quit their clogs By the known rules of ancient liberty, When straight a barbarous noise environs me Of owls and cuckoos, asses, apes and dogs.
+ - Truth is compared in Scripture to a streaming fountain; if her waters flow not in perpetual progression, they sicken into a muddy pool of conformity and tradition.
+ - Where the bright seraphim in burning row Their loud uplifted angel trumpets blow.
+ - Loneliness is the first thing which God’s eye named not good.
+ - The childhood shows the man As morning shows the day. Be famous then By wisdom; as thy empire must extend, So let extend thy mind o’er all the world.
+ - Now the bright morning-star, day’s harbinger, comes dancing from the east.
+ - Sabrina fair, Listen where thou art sitting Under the glassy, cool, translucent wave, In twisted braids of lilies knitting The loose train of thy amber-dropping hair.
+ - Yet I shall temper so Justice with mercy, as may illustrate most Them fully satisfy’d, and thee appease.
+ - A short retirement urges a sweet return.
+ - My latest found, Heaven’s last, best gift, my ever new delight!
+ - Ask for this great deliverer now, and find him Eyeless in Gaza at the mill with slaves.
+ - Good, the more communicated, more abundant grows.
+ - There is no truth sure enough to justify persecution.
+ - This horror will grow mild, this darkness light.
+ - Virtue that wavers is not virtue.
+ - Untwisting all the chains that tie The hidden soul of harmony.
+ - New Presbyter is but Old Priest writ Large.
+ - Where there is much desire to learn, there of necessity will be much arguing, much writing, for opinion in good men is but knowledge in the making.
+ - What can ’scape the eye Of God, all-seeing, or deceive His heart. Omniscient!
+ - Our state cannot be severed, we are one, One flesh; to lose thee were to lose myself.
+ - And now the herald lark Left his ground-nest, high tow’ring to descry The morn’s approach, and greet her with his song.
+ - With ruin upon ruin, rout on rout, Confusion worse confounded.
+ - Apt words have power to suage the tumors of a troubled mind.
+ - Good luck befriend thee, Son; for at thy birth The fairy ladies danced upon the hearth.
+ - In Physic, things of melancholic hue and quality are used against melancholy, sour against sour, salt to remove salt humors.
+ - It is not virtue, wisdom, valour, wit, Strength, comeliness of shape, or amplest merit, That woman’s love can win, or long inherit; But what it is, hard is to say, Harder to hit.
+ - Hope elevates, and joy Brightens his crest.
+ - Such sweet compulsion doth in music lie.
+ - Virtue that wavers is not virtue, but vice revolted from itself, and after a while returning. The actions of just and pious men do not darken in their middle course.
+ - The superior man acquaints himself with many sayings of antiquity and many deeds of the past, in order to strengthen his character thereby.
+ - The olive grove of Academe, Plato’s retirement, where the Attic bird Trills her thick-warbled notes the summer long.
+ - Eye me, blest Providence, and square my trial To my proportion’d strength.
+ - Nor jealousy Was understood, the injur’d lover’s hell.
+ - Yet I argue not Against Heav’n’s hand or will, nor bate a jot Of heart or hope; but still bear up and steer Right onward.
+ - In the sweat of thy face thou shalt eat bread, Till thou return unto the ground; for thou Out of the ground wast taken; know thy birth, For dust thou art, and shalt to dust return.
+ - Love-quarrels oft in pleasing concord end.
+ - Servant of God, well done! well hast thou fought The better fight, who single hast maintain’d Against revolted multitudes the cause of truth.
+ - A man may be ungrateful, but the human race is not so.
+ - Wherefore did Nature pour her bounties forth With such a full and unwithdrawing hand, Covering the earth with odours, fruits, flocks, Thronging the seas with spawn innumerable, But all to please and sate the curious taste?
+ - Hail holy light, offspring of heav’n firstborn!
+ - Freely we serve, because freely we love.
+ - Hell has no benefits, only torture.
+ - Is it true, O Christ in heaven, that the highest suffer the most? That the strongest wander furthest and most hopelessly are lost? That the mark of rank in nature is capacity for pain? That the anguish of the singer makes the sweetness of the strain?
+ - Contemplation is wisdom’s best nurse.
+ - Rocks whereon greatest men have oftest wreck’d.
+ - And to the faithful: death, the gate of life.
+ - Methinks I see in my mind a noble and puissant nation rousing herself like a strong man after sleep, and shaking her invincible locks; methinks I see her as an eagle mewing her mighty youth, and kindling her undazzled eyes at the full midday beam.
+ - Chaos umpire sits And by decision more embroils the fray by which he reigns: next him high arbiter Chance governs all.
+ - Earth felt the wound; and Nature from her seat, Sighing through all her works, gave signs of woe That all was lost.
+ - Fame is the spur that the clear spirit doth raise. That last infirmity of noble mind. To scorn delights, and live laborious days.
+ - O fleeting joys Of Paradise, dear bought with lasting woes!
+ - The helmed Cherubim, And sworded Seraphim, Are seen in glittering ranks with wings display’d.
+ - God is thy law, thou mine: to know no more Is woman’s happiest knowledge and her praise. With thee conversing I forget all time.
+ - Such sights as youthful poets dream On summer eves by haunted stream. Then to the well-trod stage anon, If Jonson’s learned sock be on, Or sweetest Shakespeare, Fancy’s child, Warble his native wood-notes wild.
+ - Beholding the bright countenance of truth in the quiet and still air of delightful studies.
+ - A crown Golden in show, is but a wreath of thorns, Bring dangers, troubles, cares, and sleepless nights To him who wears the regal diadem.
+ - These two imparadised in one another’s arms, the happier Eden, shall enjoy their fill of bliss on bliss.
+ - Love Virtue, she alone is free, She can teach ye how to climb Higher than the sphery chime; Or, if Virtue feeble were, Heav’n itself would stoop to her.
+ - Just are the ways of God, And justifiable to men; Unless there be who think not God at all.
+ - Should God create another Eve, and I Another Rib afford, yet loss of thee Would never from my heart; no no, I feel The Link of Nature draw me: Flesh of Flesh, Bone of my Bone thou art, and from thy State Mine never shall be parted, bliss or woe.
+ - Never can true reconcilement grow where wounds of deadly hate have pierced so deep...
+ - O impotence of mind, in body strong! But what is strength without a double share Of wisdom, vast, unwieldy, burdensome, Proudly secure, yet liable to fall By weakest subtleties, not made to rule, But to subserve where wisdom bears command.
+ - The debt immense of endless gratitude, So burthensome, still paying, still to owe; Forgetful what from him I still receivd, And understood not that a grateful mind By owing owes not, but still pays, at once Indebted and dischargd; what burden then?
+ - Hear all ye angels, progeny of light, Thrones, dominations, princedoms, virtues, powers.
+ - Meanwhile the Adversary of God and man, Satan with thoughts inflamed of highest design, Puts on swift wings, and towards the gates of hell Explores his solitary flight.
+ - Revenge, at first though sweet, Bitter ere long back on itself recoils.
+ - Sole reigning holds the tyranny of Heav’n.
+ - Thou art my father, thou my author, thou my being gav’st me; whom should I obey but thee, whom follow?
+ - Beauty stands In the admiration only of weak minds Led captive.
+ - And these gems of Heav’n, her starry train.
+ - Nothing is here for tears, nothing to wail Or knock the breast, no weakness, no contempt, Dispraise, or blame,-nothing but well and fair, And what may quiet us in a death so noble.
+ - Peace hath her victories, no less renowned than War.
+ - The rising world of waters dark and deep.
+ - It was from out the rind of one apple tasted, that the knowledge of good and evil, as two twins cleaving together, leaped forth into the world.
+ - Some say no evil thing that walks by night, In fog or fire, by lake or moorish fen, Blue meagre hag, or stubborn unlaid ghost That breaks his magic chains at curfew time, No goblin, or swart fairy of the mine, Hath hurtful power o’er true virginity.
+ - Therefore God’s universal law Gave to the man despotic power Over his female in due awe, Not from that right to part an hour, Smile she or lour.
+ - How gladly would I meet mortality, my sentence, and be earth in sensible! How glad would lay me down, as in my mother’s lap! There I should rest, and sleep secure.
+ - Meadows trim with daisies pied, Shallow brooks and rivers wide Towers and battlements it sees Bosom’d high in tufted trees, Where perhaps some beauty lies, The cynosure of neighboring eyes.
+ - Thus Belial, with words clothed in reason’s garb, counseled ignoble ease, and peaceful sloth, not peace.
+ - In God’s intention, a meet and happy conversation is the chiefest and noblest end of marriage.
+ - Pandemonium, the high capital Of Satan and his peers.
+ - Yet beauty, though injurious, hath strange power, After offence returning, to regain Love once possess’d.
+ - And oft, though wisdom wake, suspicion sleeps At wisdom’s gate, and to simplicity Resigns her charge, while goodness thinks no ill Where no ill seems.
+ - Fate shall yield To fickle Chance, and Chaos judge the strife.
+ - And ever against eating cares Lap me in soft Lydian airs, Married to immortal verse.
+ - Smiles from reason flow, To brute deny’d, and are of love the food.
+ - Fairy elves, Whose midnight revels by a forest side Or fountain some belated peasant sees, Or dreams he sees, while overhead the moon Sits arbitress.
+ - To hear the lark begin his flight, And singing startle the dull Night, From his watch-tower in the skies, Till the dappled dawn doth rise.
+ - Tears such as angels weep.
+ - Now conscience wakes despair That slumber’d,-wakes the bitter memory Of what he was, what is, and what must be Worse.
+ - Moping melancholy And moon-struck madness.
+ - Be lowly wise: Think only what concerns thee and thy being.
+ - Eloquence the soul, song charms the senses.
+ - Anon out of the earth a fabric huge Rose, like an exhalation.
+ - Suffering for truth’s sake Is fortitude to highest victory, And to the faithful death the gate of life.
+ - In contemplation of created things, by steps we may ascend to God.
+ - This is servitude, To serve the unwise.
+ - Promiscuous reading is necessary to the constituting of human nature. The attempt to keep out evil doctrine by licensing is like the exploit of that gallant man who thought to keep out the crows by shutting the park gate.
+ - And storied windows richly dight, Casting a dim religious light.
+ - So glistered the dire Snake, and into fraud Led Eve, our credulous mother, to the Tree Of Prohibition, root of all our woe.
+ - Those whom reason hath equalled, force hath made supreme.
+ - It was the winter wild, While the Heaven-born child, All meanly wrapt in the rude manger lies.
+ - And every shepherd tells his tale Under the hawthorn in the dale.
+ - Bacchus, that first from out the purple grape Crush’d the sweet poison of misused wine.
+ - On the Morning of Christ’s Nativity Perhaps their loves, or else their sheep, was all that did their silly thoughts so busy keep.
+ - For evil news rides post, while good news baits.
+ - O sun, to tell thee how I hate thy beams That bring to my remembrance from what state I fell, how glorious once above thy sphere.
+ - Confusion heard his voice, and wild uproar Stood ruled, stood vast infinitude confined; Till at his second bidding darkness fled, Light shone, and order from disorder sprung.
+ - More safe I sing with mortal voice, unchang’d To hoarse or mute, though fall’n on evil days, On evil days though fall’n, and evil tongues.
+ - Be strong, live happy and love, but first of all Him whom to love is to obey, and keep His great command!
+ - Now I see Peace to corrupt no less than war to waste.
+ - Take heed lest passion sway Thy judgement to do aught, which else free will Would not admit.
+ - A complete and generous education fits a man to perform justly, skillfully, and magnanimously all the offices, both public and private, of peace and war.
+ - Come knit hands, and beat the ground in a light fantastic round.
+ - Sweet is the breath of morn, her rising sweet, With charm of earliest birds.
+ - My sentence is for open war.
+ - Virtue may be assailed, but never hurt, Surprised by unjust force, but not inthralled; Yea, even that which mischief meant most harm Shall in the happy trial prove most glory.
+ - And the more I see Pleasures about me, so much more I feel Torment within me.
+ - Anarchy is the sure consequence of tyranny; for no power that is not limited by laws can ever be protected by them.
+ - Unless an age too late, or cold Climate, or years, damp my intended wing.
+ - And what is faith, love, virtue unassayed Alone, without exterior help sustained?
+ - The timely dew of sleep Now falling with soft slumb’rous weight inclines Our eyelids.
+ - So may’st thou live, till like ripe fruit thou drop Into thy mother’s lap.
+ - Courage never to submit of yield.
+ - And, when night Darkens the streets, then wander forth the sons Of Belial, flown with insolence and wine.
+ - In dim eclipse, disastrous twilight sheds On half the nations, and with fear of change Perplexes monarchs.
+ - Midnight shout and revelry, Tipsy dance and jollity.
+ - Those graceful acts, those thousand decencies, that daily flow from all her words and actions, mixed with love and sweet compliance, which declare unfeigned union of mind, or in us both one soul.
+ - Leaves have their time to fall, And flowers to wither at the north – wind’s breath, And stars to set; but all, Thou hast all seasons for thine own, O Death!
+ - Our cure, to be no more; sad cure!
+ - With diadem and sceptre high advanced, The lower still I fall; only supreme In misery; such joy ambition finds.
+ - Who knows not Circe, The daughter of the Sun, whose charmed cup Whoever tasted, lost his upright shape, And downward fell into a groveling swine?
+ - So shall the world go on, To good malignant, to bad men benign, Under her own weight groaning.
+ - But now my task is smoothly done, I can fly, or I can run Quickly to the green earth’s end, Where the bow’d welkin slow doth bend, And from thence can soar as soon To the corners of the Moon.
+ - The best apology against false accusers is silence.
+ - Fear of change perplexes monarchs.
+ - Nothing lovelier can be found In woman, than to study household good, And good works in her husband to promote.
+ - Blind mouths! That scarce themselves know how to hold A sheep-hook.
+ - Sufficient to have stood, though free to fall.
+ - Accuse not nature: she hath done her part; Do thou but thine.
+ - Govern well thy appetite, lest Sin surprise thee, and her black attendant Death.
+ - A broad and ample road, whose dust is gold, And pavement stars, – as stars to thee appear Seen in the galaxy, that milky way Which nightly as a circling zone thou seest Powder’d with stars.
+ - The love-lorn nightingale nightly to thee her sad song mourneth well.
+ - The great Emathian conqueror bid spare The house of Pindarus, when temple and tower Went to the ground.
+ - Where eldest Night And Chaos, ancestors of Nature, hold Eternal anarchy amidst the noise Of endless wars, and by confusion stand; For hot, cold, moist, and dry, four champions fierce, Strive here for mast’ry.
+ - Thou canst not touch the freedom of my mind.
+ - That power Which erring men call Chance.
+ - And the jocund rebecks sound To many a youth, and many a maid, Dancing in the checkered shade. And young and old come forth to play On a sunshine holiday.
+ - Infinity is a dark illimitable ocean, without bound.
+ - Day and night, Seed-time and harvest, heat and hoary frost Shall hold their course, till fire purge all things new.
+ - Evil on itself shall back recoil.
+ - Where glowing embers through the room Teach light to counterfeit a gloom.
+ - Fame is the last infirmity of the human mind.
+ - Wisdom’s self oft seeks to sweet retired solitude, where with her best nurse Contemplation, she plumes her feathers, and lets grow her wings that in the various bustle of resort were all to-ruffled, and sometimes impaired.
+ - O loss of sight, of thee I most complain! Blind among enemies, O worse than chains, Dungeon, or beggary, or decrepit age!
+ - Lifted up so high I disdained subjection, and thought one step higher would set me highest.
+ - But let my due feet never fail To walk the studious cloisters pale, And love the high embowed roof, With antique pillars massy proof, And storied windows richly dight; Casting a dim religious light.
+ - For so I created them free and free they must remain.
+ - For truth is strong next to the Almighty. She needs no policies or stratagems or licensings to make her victorious. These are the shifts and the defences that error uses against her power.
+ - A thousand fantasies Begin to throng into my memory, Of calling shapes, and beckoning shadows dire, And airy tongues that syllable men’s names On sands and shores and desert wildernesses.
+ - As therefore the state of man now is, what wisdom can there be to choose, what continence to forbear, without the knowledge of good and evil?
+ - Morn, Wak’d by the circling hours, with rosy hand Unbarr’d the gates of light.
+ - Evil, be thou my good.
+ - Such sober certainty of waking bliss.
+ - But all was false and hollow; though his tongue Dropp’d manna, and could make the worse appear The better reason, 4 to perplex and dash Maturest counsels.
+ - So much I feel my genial spirits droop, My hopes all flat, nature within me seems In her functions weary of herself.
+ - Fame is no plant that grows on mortal soil.
+ - Cedar, and pine, and fir, and branching palm, A sylvan scene, and as the ranks ascend Shade above shade, a woody theatre Of stateliest view.
+ - Hail, wedded love, mysterious law; true source of human happiness.
+ - The winds with wonder whist, Smoothly the waters kisst.
+ - But hail thou Goddess sage and holy, Hail, divinest Melancholy, Whose saintly visage is too bright To hit the sense of human sight, And therefore to our weaker view O’erlaid with black, staid Wisdom’s hue.
+ - When complaints are freely heard, deeply considered and speedily reformed, then is the utmost bound of civil liberty attained that wise men look for.
+ - From restless thoughts, that, like a deadly swarm Of hornets arm’d, no sooner found alone, But rush upon me thronging.
+ - Heaven open’d wide Her ever during gates, harmonious sound, On golden hinges moving.
+ - Come to the sunset tree! The day is past and gone; The woodman’s axe lies free, And the reaper’s work is done.
+ - Forget thyself to marble.
+ - And feel by turns the bitter change Of fierce extremes, extremes by change more fierce.
+ - Part of my soul I seek thee, and claim thee my other half.
+ - Fairest of stars, last in the train of night, If better thou belong not to the dawn.
+ - O welcome pure-eyed Faith, white handed Hope, Thou hovering angel girt with golden wings.
+ - So spake the seraph Abdiel, faithful found; Among the faithless, faithful only he.
+ - A bevy of fair women.
+ - My mansion is, where those immortal shapes Of bright aerial spirits live insphered In regions mild of calm and serene air, Above the smoke and stir of this dim spot Which men call Earth.
+ - Thoughts that voluntary move Harmonious numbers.
+ - This is the month, and this the happy morn, wherein the Son of heaven’s eternal King, of wedded Maid and Virgin Mother born, our great redemption from above did bring.
+ - Who shall silence all the airs and madrigals that whisper softness in chambers?
+ - I hate when vice can bolt her arguments, And virtue has no tongue to check her pride.
+ - If we think we regulate printing, thereby to rectify manners, we must regulate all regulations and pastimes, all that is delightful to man.
+ - Which, if not victory, is yet revenge.
+ - What better can we do than prostrate fall before Him reverent, and there confess humbly our faults, and pardon beg with tears watering the ground?
+ - Sport, that wrinkled Care derides, And Laughter holding both his sides. Come and trip it as ye go, On the light fantastic toe.
+ - He who would not be frustrate of his hope to write well hereafter in laudable things ought himself to be a true poem.
+ - With cowslips wan that hang the pensive head, And every flower that sad embroidery wears.
+ - He that has light within his own clear breast May sit in the centre, and enjoy bright day: But he that hides a dark soul and foul thoughts Benighted walks under the mid-day sun; Himself his own dungeon.
+ - Can any mortal mixture of earth’s mould Breathe such divine enchanting ravishment?
+ - But peaceful was the night Wherein the Prince of Light His reign of peace upon the earth began.
+ - Now came still evening on; and twilight gray Had in her sober livery all things clad: Silence accompanied; for beast and bird, They to they grassy couch, these to their nests, Were slunk, all but the wakeful nightingale.
+ - Death ready stands to interpose his dart.
+ - They are the troublers, they are the dividers of unity, who neglect and don’t permit others to unite those dissevered pieces which are yet wanting to the body of Truth.
+ - Myself, and all the Angelic Host, that stand in the sight of God enthroned, our happy state hold, as you yours, while our obedience hold. On other surety none: freely we serve, because we freely love.
+ - Wealth and honours, which most men pursue, easily change masters; they desert to the side which excels in virtue, industry, and endurance of toil, and they abandon the slothful.
+ - Hate is of all things the mightiest divider, nay, is division itself. To couple hatred, therefore, though wedlock try all her golden links, and borrow to tier aid all the iron manacles and fetters of law, it does but seek to twist a rope of sand.
+ - Wild above rule or art, enormous bliss.
+ - How charming is divine philosophy! Not harsh and crabbed, as dull fools suppose, But musical as is Apollo’s lute, And a perpetual feast of nectar’d sweets Where no crude surfeit reigns.
+ - But O yet more miserable! Myself my sepulchre, a moving grave.
+ - Ladies, whose bright eyes Rain influence, and judge the prize.
+ - No date prefixed directs me in the starry rubric set.
+ - Midnight brought on the dusky hour Friendliest to sleep and silence.
+ - Above the smoke and stir of this dim spot Which men call earth.
+ - Assuredly we bring not innocence not the world, we bring impurity much rather: that which purifies us is trial, and trial is by what is contrary.
+ - Let no man seek Henceforth to be foretold that shall befall Him or his children.
+ - The greatest burden in the world is superstition, not only of ceremonies in the church, but of imaginary and scarecrow sins at home.
+ - So hand in hand they passed, the loveliest pair that ever since in love’s embraces met – Adam, the goodliest man of men since born his sons; the fairest of her daughters Eve.
+ - On the tawny sands and shelves trip the pert fairies and the dapper elves.
+ - Spirits when they please Can either sex assume, or both.
+ - Danger will wink on opportunity.
+ - The Angel ended, and in Adam’s ear So charming left his voice, that he awhile Thought him still speaking, still stood fix’d to hear.
+ - Nothing profits more than self-esteem, grounded on what is just and right.
+ - Have hung My dank and dropping weeds To the stern god of sea.
+ - Know thy birth! For dost thou art, and shalt to dust return.
+ - Innumerable as the stars of night, Or stars of morning, dewdrops which the sun Impearls on every leaf and every flower.
+ - Anger and just rebuke, and judgment given, That brought into this world a world of woe, Sin and her shadow Death, and Misery, Death’s harbinger.
+ - Heaven Is as the Book of God before thee set, Wherein to read His wondrous works.
+ - The leaf was darkish, and had prickles on it, But in another country, as he said, Bore a bright golden flow’r, but not in this soil; Unknown, and like esteem’d, and the dull swain Treads on it daily with his clouted shoon.
+ - To many a youth and many a maid, dancing in the chequer’d shade.
+ - Ride the air In whirlwind.
+ - O’er many a frozen, many a fiery Alp, Rocks, caves, lakes, fens, bogs, dens, and shades of death.
+ - Nations grow corrupt, love bondage more than liberty; bondage with ease than strenuous liberty.
+ - Goodness thinks no ill Where no ill seems.
+ - From haunted spring and dale Edg’d with poplar pale The parting genius is with sighing sent.
+ - Virtue hath no tongue to check vice’s pride.
+ - Ah gentle pair, ye little think how nigh Your change approaches, when all these delights Will vanish and deliver ye to woe, More woe, the more your taste is now of joy.
+ - Nor from hell One step no more than from himself can fly By change of place.
+ - Come and trip it as ye go On the light fantastic toe.
+ - So dear to Heaven is saintly chastity, That, when a soul is found sincerely so, A thousand liveried angels lacky her, Driving far off each thing of sin and guilt.
+ - Retiring from the popular noise, I seek This unfrequented place to find some ease.
+ - So many laws argues so many sins.
+ - To adore the conqueror, who now beholds Cherub and seraph rolling in the flood.
+ - Oh, shame to men! devil with devil damn’d Firm concord holds, men only disagree Of creatures rational.
+ - Who can enjoy alone? Or all enjoying what contentment find?
+ - And live like Nature’s bastards, not her sons.
+ - Knowledge cannot defile, nor consequently the books, if the will and conscience be not defiled.
+ - For what is glory but the blaze of fame?
+ - And I will place within them as a guide My umpire conscience, whom if they will hear Light after light well used they shall attain, And to the end persisting, safe arrive.
+ - And feel that I am happier than I know.
+ - Dim eclipse, disastrous twilight.
+ - Bid amaranthus all his beauty shed, And daffodillies fill their cups with tears, To strew the laureate to hearse when Lycid lies.
+ - The Tree of Knowledge grew fast by, Knowledge of Good bought dear by knowing ill.
+ - I fled, and cry’d out, Death; Hell trembled at the hideous name, and sigh’d From all her caves, and back resounded, Death.
+ - Laws can discover sin, but not remove it.
+ - Witness this new-made world, another Heav’n From Heaven Gate not farr, founded in view On the clear Hyaline, the Glassie Sea; Of amplitude almost immense, with Starr’s Numerous, and every Starr perhaps a world Of destined habitation.
+ - It is lawful and hath been held so through all ages for any one who have the power to call to account a tyrant or wicked king, and after due conviction to depose and put him to death.
+ - A death-like sleep, A gentle wafting to immortal life.
+ - Opinion in good men is but knowledge in the making.
+ - Let not England forget her precedence of teaching nations how to live.
+ - Sable-vested Night, eldest of things.
+ - And on the Tree of Life, The middle tree and highest there that grew, Sat like a cormorant.
+ - Arms on armour clashing bray’d Horrible discord, and the madding wheels Of brazen chariots rag’d: dire was the noise Of conflict.
+ - Nor aught availed him now to have built in heaven high towers; nor did he scrape by all his engines, but was headlong sent with his industrious crew to build in hell.
+ - The mountain nymph, sweet Liberty.
+ - God made thee perfect, not immutable.
+ - Equally inured by moderation either state to bear, prosperous or adverse.
+ - The gay motes that people the sunbeams.
+ - His words, like so many nimble and airy servitors, trip about him at command. Ibid.
+ - What neat repast shall feast us, light and choice, Of Attic taste?
+ - Hung over her enamour’d, and beheld Beauty, which, whether waking or asleep, Shot forth peculiar graces.
+ - For no falsehood can endure Touch of celestial temper.
+ - Heaven is for thee too high To know what passes there; be lowly wise. Think only what concerns thee and thy being; Dream not of other worlds, what creatures there Live, in what state, condition, or degree, Contented that thus far hath been revealed.
+ - Wickedness is weakness.
+ - Tower’d cities please us then, And the busy hum of men.
+ - Still paying, still to owe. Eternal woe!
+ - Virtue, which breaks through opposition and all temptation can remove, most shines, and most is acceptable above.
+ - Farewell Hope, and with Hope farewell Fear.
+ - From morn To noon he fell, from noon to dewy eve,- A summer’s day; and with the setting sun Dropp’d from the Zenith like a falling star.
+ - Our torments also may in length of time Become our elements, these piercing fires As soft as now severe, our temper changed Into their temper.
+ - Yet much remains To conquer still; peace hath her victories No less renowned then war, new foes arise Threatening to bind our souls with secular chains: Help us to save free conscience from the paw Of hireling wolves whose gospel is their maw.
+ - Satan; so call him now, his former name Is heard no more in heaven.
+ - Demoniac frenzy, moping melancholy.
+ - Thrones, dominions, princedoms, virtues, powers – If these magnific titles yet remain Not merely titular.
+ - That practis’d falsehood under saintly shew, Deep malice to conceal, couch’d with revenge.
+ - What am I pondering, you ask? So help me God, immortality.
+ - Arm the obdured breast with stubborn patience as with triple steel.
+ - For men to tell how human life began Is hard; for who himself beginning knew?
+ - I cannot praise a fugitive and cloistered virtue, unexercised and unbreathed, that never sallies out and sees her adversary, but slinks out of the race where that immortal garland is to be run for, not without dust and heat.
+ - Dark with excessive bright.
+ - His rod revers’d, And backward mutters of dissevering power.
+ - Men of most renowned virtue have sometimes by transgressing most truly kept the law.
+ - Joking decides great things, Stronger and better oft than earnest can.
+ - Zeal and duty are not slow But on occasion’s forelock watchful wait.
+ - Death from sin no power can separate.
+ - Beauty is nature’s brag, and must be shown in courts, at feasts, and high solemnities, where most may wonder at the workmanship.
+ - Sweet intercourse of looks and smiles; for smiles from reason flow.
+ - These are thy glorious works, Parent of good!
+ - And some are fall’n, to disobedience fall’n, And so from Heav’n to deepest Hell; O fall From what high state of bliss into what woe!
+ - Oft, on a plat of rising ground, I hear the far-off curfew sound Over some wide-watered shore, Swinging low with sullen roar.
+ - I will not allow my daughters to learn foreign languages because one tongue is sufficient for a woman.
+ - Consider first, that great or bright infers not excellence.
+ - So he with difficulty and labour hard Mov’d on, with difficulty and labour he.
+ - Let none henceforth seek needless cause to approve The faith they owe; when earnestly they seek Such proof, conclude, they then begin to fail.
+ - And fast by, hanging in a golden chain, This pendent world, in bigness as a star Of smallest magnitude, close by the moon.
+ - O Conscience, into what abyss of fears And horrors hast thou driven me, out of which I find no way, from deep to deeper plunged.
+ - A beardless cynic is the shame of nature.
+ - Look homeward, Angel, now, and melt with ruth.
+ - For what can war, but endless war, still breed?
+ - And as an ev’ning dragon came, Assailant on the perched roosts And nests in order rang’d Of tame villatic fowl.
+ - My heart contains of good, wise, just, the perfect shape.
+ - Must I thus leave thee, Paradise?-thus leave Thee, native soil, these happy walks and shades?
+ - Who can in reason then or right assume monarchy over such as live by right his equals, if in power or splendor less, in freedom equal?
+ - Impostor; do not charge most innocent Nature, As if she would her children should be riotous With her abundance; she, good cateress, Means her provision only to the good, That live according to her sober laws, And holy dictate of spare temperance.
+ - Death Grinn’d horrible a ghastly smile, to hear His famine should be fill’d.
+ - Neither prosperity nor empire nor heaven can be worth winning at the price of a virulent temper, bloody hands, an anguished spirit, and a vain hatred of the rest of the world.
+ - And to thy husband’s will Thine shall submit; he over thee shall rule.
+ - The earth, though in comparison of heaven so small, nor glistering, may of solid good contain more plenty than the sun, that barren shines.
+ - Angels contented with their face in heaven, Seek not the praise of men.
+ - That space the Evil One abstracted stood From his own evil, and for the time remained Stupidly good, of enmity disarmed, Of guile, of hate, of envy, of revenge .
+ - No man who knows aught, can be so stupid to deny that all men naturally were born free.
+ - There are no songs comparable to the songs of Zion, no orations equal to those of the prophets, and no politics like those which the Scriptures teach.
+ - I see thou art implacable, more deaf To pray’rs than winds and seas. Yet winds to seas Are reconcil’d at length, and sea to shore: Thy anger, unappeasable, still rages Eternal tempest never to be calm’d.
+ - Though we take from a covetous man all his treasure, he has yet one jewel left; you cannot bereave him of his covetousness.
+ - That virtue therefore which is but a youngling in the contemplation of evil, and knows not the utmost that vice promises to her followers, and rejects it, is but a blank virtue, not a pure; her whiteness is but an excremental whiteness.
+ - How often from the steep Of echoing hill or thicket have we heard Celestial voices to the midnight air, Sole, or responsive each to other’s note, Singing their great Creator?
+ - No war or battle sound Was heard the world around.
+ - As children gath’ring pebbles on the shore. Or if I would delight my private hours With music or with poem, where so soon As in our native language can I find That solace?
+ - Where all life dies death lives.
+ - To know that which lies before us in daily life is the prime wisdom.
+ - Who kills a man kills a reasonable creature, God’s image, but thee who destroys a good book, kills reason its self.
+ - Rich and various gems inlay The unadorned bosom of the deep.
+ - For liberty hath a sharp and double edge, fit only to be handled by just and virtuous men; to bad and dissolute, it becomes a mischief unwieldy in their own hands.
+ - True it is that covetousness is rich, modesty starves.
+ - And join with thee calm Peace and Quiet, Spare Fast, that oft with gods doth diet.
+ - How sweetly did they float upon the wings Of silence through the empty-vaulted night, At every fall smoothing the raven down Of darkness till it smiled!
+ - Subdue By force, who reason for their law refuse, Right reason for their law.
+ - O fairest flower! no sooner blown but blasted, Soft silken primrose fading timelessly.
+ - The nodding horror of whose shady brows Threats the forlorn and wandering passenger.
+ - Sense of pleasure we may well Spare out of life perhaps, and not repine, But live content, which is the calmest life; But pain is perfect misery, the worst Of evils, and excessive, overturns All patience.
+ - Hide me from day’s garish eye, While the bee with honied thigh, That at her flowery work doth sing, And the waters murmuring With such consort as they keep, Entice the dewy-feathered sleep.
+ - A good book is the precious lifeblood of a master spirit.
+ - He who freely magnifies what hath been nobly done, and fears not to declares as freely what might be done better, gives ye the best covenant of his fidelity.
+ - Pleas’d me, long choosing and beginning late.
+ - Indu’d With sanctity of reason.
+ - If this fail, The pillar’d firmament is rottenness, And earth’s base built on stubble.
+ - And, re-assembling our afflicted powers, consult how we may henceforth most offend.
+ - Imparadis’d in one another’s arms.
+ - Rather than be less Car’d not to be at all.
+ - Yet hold it more humane, more heav’nly, first, By winning words to conquer willing hearts, And make persuasion do the work of fear.
+ - Let us no more contend, nor blame each other, blamed enough elsewhere, but strive, In offices of love, how we may lighten each other’s burden.
+ - No institution which does not continually test its ideals, techniques and measure of accomplishment can claim real vitality.
+ - The wife, where danger or dishonour lurks, Safest and seemliest by her husband stays, Who guards her, or with her the worst endures.
+ - What boots it at one gate to make defence, And at another to let in the foe?
+ - Yet some there be that by due steps aspire To lay their just hands on that golden key That opes the palace of Eternity.
+ - All seemed well pleased, all seemed, but were not all.
+ - So on this windy sea of land, the Fiend Walked up and down alone bent on his prey.
+ - Man hath his daily work of body or mind Appointed.
+ - A limbo large and broad, since call’d The Paradise of Fools to few unknown.
+ - The first and wisest of them all professed To know this only, that he nothing knew.
+ - It is Chastity, my brother. She that has that is clad in complete steel.
+ - Just deeds are the best answer to injurious words.
+ - There is nothing that making men rich and strong but that which they carry inside of them. True wealth is of the heart, not of the hand.
+ - So little knows Any, but God alone, but perverts best things To worst abuse, or to their meanest use.
+ - For books are as meats and viands are; some of good, some of evil sub-stance.
+ - And looks commercing with the skies, Thy rapt soul sitting in thine eyes.
+ - O nightingale, that on yon bloomy spray Warblest at eve, when all the woods are still; Thou with fresh hope the lover’s heart dost fill While the jolly hours lead on propitious May.
+ - The bird of Jove, stoop’d from his aery tour, Two birds of gayest plume before him drove.
+ - And now without redemption all mankind Must have been lost, adjudged to death and hell By doom severe.
+ - The whole freedom of man consists either in spiritual or civil liberty.
+ - Such as the meeting soul may pierce, In notes with many a winding bout Of linked sweetness long drawn out.
+ - Ev’n them who kept thy truth so pure of old, When all our fathers worshipp’d stocks and stones.
+ - The teachers of our law, and to propose What might improve my knowledge or their own.
+ - A poet soaring in the high reason of his fancies, with his garland and singing robes about him.
+ - Virtue could see to do what Virtue would by her own radiant light, though sun and moon where in the flat sea sunk.
+ - God is thy law, thou mine.
+ - None But such as are good men can give good things, And that which is not good, is not delicious To a well-govern’d and wise appetite.
+ - Let us descend now therefore from this top Of speculation.
+ - He who tempts, though in vain, at last asperses The tempted with dishonor foul, supposed Not incorruptible of faith, not proof Against temptation.
+ - Sweet bird, that shun the noise of folly, most musical, most melancholy!
+ - His spear, to equal which the tallest pine Hewn on Norwegian hills to be the mast Of some great ammiral were but a wand, He walk’d with to support uneasy steps Over the burning marle.
+ - O madness to think use of strongest wines And strongest drinks our chief support of health, When God with these forbidden made choice to rear His mighty champion, strong above compare, Whose drink was only from the liquid brook.
+ - And out of good still to find means of evil.
+ - Seas wept from our deep sorrows.
+ - Hope allows us to bid farewell to fear.
+ - Th’invention all admir’d, and each, how he to be th’inventor miss’d; so easy it seem’d once found, which yet unfound most would have thought impossible.
+ - The timely dew of sleep.
+ - If weakness may excuse, What murderer, what traitor, parricide, Incestuous, sacrilegious, but may plead it? All wickedness is weakness; that plea, therefore, With God or man will gain thee no remission.
+ - I will point ye out the right path of a virtuous and noble Education; laborious indeed at first ascent, but else so smooth, so green, so full of goodly prospect, and melodious sounds on every side, that the harp of Orpheus was not more charming.
+ - Or if Virtue feeble were, Heav’n itself would stoop to her.
+ - Heav’nly love shall outdoo Hellish hate.
+ - Such bickerings to recount, met often in these our writers, what more worth is it than to chronicle the wars of kites or crows flocking and fighting in the air?
+ - Thus I set my printless feet O’er the cowslip’s velvet head, That bends not as I tread.
+ - In those vernal seasons of the year when the air is calm and pleasant, it were an injury and sullenness against nature not to go out and see her riches, and partake in her rejoicing with heaven and earth.
+ - The martyrs shook the powers of darkness with the irresistible power of weakness.
+ - As in an organ from one blast of wind To many a row of pipes the soundboard breathes.
+ - Hail universal Lord, be bounteous still To give us only good; and if the night Have gathered aught of evil or concealed, Disperse it, as now light dispels the dark.
+ - When thou attended gloriously from heaven, Shalt in the sky appear, and from thee send Thy summoning archangels to proclaim Thy dread tribunal.
+ - This manner of writing wherein knowing myself inferior to myself? I have the use, as I may account it, but of my left hand.
+ - I sat me down to watch upon a bank With ivy canopied and interwove With flaunting honeysuckle.
+ - I must not quarrel with the will Of highest dispensation, which herein, Haply had ends above my reach to know.
+ - So Satan, whom repulse upon repulse Met ever, and to shameful silence brought, Yet gives not o’er though desperate of success.
+ - In argument with men a woman ever Goes by the worse, whatever be her cause.
+ - But God himself is truth; in propagating which, as men display a greater integrity and zeal, they approach nearer to the similitude of God, and possess a greater portion of his love.
+ - With thee goes Thy husband, him to follow thou art bound; Where he abides, think there thy native soil.
+ - Who overcomes by force, hath overcome but half his foe.
+ - And the earth self-balanced on her centre hung.
+
+500 quotes

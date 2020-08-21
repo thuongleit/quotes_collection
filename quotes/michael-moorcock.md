@@ -1,0 +1,31 @@
+ - Time is the enemy of identity.
+ - I think of myself as a bad writer with big ideas, but I’d rather be that than a big writer with bad ideas.
+ - All Empires fall, All ages die, All strife shall be in vain. All Kings go down, All hope must fail, But Tanelorn remains Our Tanelorn remains...
+ - Destiny’s Champion, Fate’s fool. Eternity’s Soldier, Time’s Tool.
+ - The book trade invented literary prizes to stimulate sales, not to reward merit.
+ - The past is a script we are constantly rewriting.
+ - By means of our myths and legends we maintain a sense of what we are worth and who we are. Without them we should undoubtedly go mad.
+ - Man may trust man, Prince Elric, but perhaps we’ll never have a truly sane world until men learn to trust mankind. That would mean the death of magic, I think.
+ - Is the prisoner a prisoner because he lives in a cage or because he knows that he lives in a cage?
+ - And you, Prince Elric? She attracted the albino’s wandering attention. Do you know his story? Elric shook his head. I only know, he said, that he is a shape-changer and, that most cursed of souls, a person of rare goodness and sanity. Imagine such torment as is his!
+ - Legends are best left as legends and attempts to make them real are rarely successful.
+ - The subtlest lie of all is the full truth.
+ - The problems for which I could find no solution in fact had no solution.
+ - There was no more dangerous kind of madman than one who devoted a good brain and a courageous heart to unhealthy ambitions.
+ - Here, I thought, I had found the human race in its final stages of decadence perverse, insouciant, without ambition. And I could not blame them. After all, they had no future.
+ - What happened to fantasy for me is what also happened to rock and roll. It found a common denominator for making maximum money. As a result, it lost its tensions, its anger, its edginess and turned into one big cup of cocoa.
+ - If the people at the top think that reaching for a gun will solve the problem, why shouldn’t the people at the bottom think the same?
+ - Treasures are not won by care and forethought but by swift slaying and reckless attack.
+ - Heroes betray us. By having them, in real life, we betray ourselves.
+ - Everything means nothing that is the only truth.
+ - Our scientific advances will be merely obscene unless they help the large part of our world’s population emerge from miserable uncertainty and debilitating terror.
+ - It is only about things which concern us most profoundly that we lie clearly and with profound conviction.
+ - I know not which I prefer the look of – those who attack us or that which defends us!
+ - What the local politicians actually meant was that they hoped to claim the land in the name of the public and then make the usual profits privatizing it. There was a principle at stake. They had to ensure their friends and not outsiders got the benefit.
+ - Trapped. Sinking. Can’t be myself. Made into what other people expect. Is that everyone’s fate? Were the great individualists the products of their friends who wanted a great individualist as a friend?
+ - It’s getting late. I must return to my ship or my men will think I’ve drowned and be celebrating.
+ - It is almost impossible to have a baseless snobbish opinion of the General Theory of Relativity.
+ - Because I had sought to challenge Destiny, Destiny had taken vengeance.
+ - It’s History that’s caused all the troubles in the past.
+
+29 quotes

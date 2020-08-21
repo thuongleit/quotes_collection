@@ -1,0 +1,50 @@
+ - If you expect the world to be fair with you because you are fair, you’re fooling yourself. That’s like expecting the lion not to eat you because you didn’t eat him.
+ - What you do today determines who you will be tomorrow.
+ - In life, if you don’t risk anything, you risk everything.
+ - Making one person smile can change the world – maybe not the whole world, but their world.
+ - Learn to love yourself first, instead of loving the idea of other people loving you.
+ - Don’t think of cost. Think of value.
+ - If you tell the truth, it becomes a part of your past. If you lie, it becomes a part of your future.
+ - Love and appreciate your parents. We are often so busy growing up; we forget they are also growing old.
+ - You cannot change what you refuse to confront.
+ - Learn to appreciate the things you have before time forces you appreciate the things you once had.
+ - When values are clear, decisions are easy.
+ - No matter how good or bad you have it, wake up each day thankful for your life. Someone somewhere else is desperately fighting for theirs.
+ - Every single thing that has ever happened in your life is preparing you for a moment that is yet to come.
+ - Sometimes you need to distance yourself to see things clearly.
+ - Happiness is not determined by what’s happening around you, but rather what’s happening inside you. Most people depend on others to gain happiness, but the truth is, it always comes from within.
+ - Be happy. Be yourself. If others don’t like it, then let them be. Happiness is a choice. Life isn’t about pleasing everybody.
+ - Build your house on the rock of learning; no one can take your education away from you.
+ - Making a hundred friends is not a miracle. The miracle is to make a single friend who will stand by your side even when hundreds are against you.
+ - Burn the candles, use the nice sheets, wear the fancy lingerie. Don’t save it for a special occasion; today is special.
+ - Remember: everyone you meet is fighting a mighty battle. Be kind. Be understanding.
+ - Never do something permanently foolish just because you are temporarily upset.
+ - My definition of success: When your core values and self-concept are in harmony with your daily actions and behaviors.
+ - You will never become who you want to be if you keep blaming everyone else for who you are now.
+ - People are more what they hide than what they show.
+ - When you have to start compromising yourself and your morals for the people around you, it’s probably time to change the people around you.
+ - Many people are so poor because the only thing they have is money.
+ - When you choose to see the good in others, you end up finding the good in yourself.
+ - Being alone does not mean you are lonely, and being lonely does not mean you are alone.
+ - While you’re busy looking for the perfect person, you’ll probably miss the imperfect person who could make you perfectly happy.
+ - Sometimes people don’t notice the things others do for them until they stop doing them.
+ - You can learn great things from your mistakes when you aren’t busy denying them. Read The 7 Habits of Highly Effective People.
+ - Successful people willingly do what unsuccessful people are unwilling to do.
+ - You become what you focus on and like the people you spend time with.
+ - Don’t look for someone who will solve all your problems; look for someone who will face them with you.
+ - People do what seems easy and convenient, not what is best for them.
+ - Your Day Is Your Life.
+ - Someone else doesn’t have to be wrong for you to be right.
+ - You are the average of your five closest associates.
+ - We often talk to ourselves in ways that we would never let a stranger or even a friend talk to us.
+ - If a person wants to be a part of your life, they will make an obvious effort to do so. Think twice before reserving a space in your heart for people who do not make an effort to stay.
+ - Falling in love is not a choice. To stay in love is.
+ - Saying someone is ugly doesn’t make you any prettier.
+ - When someone tells you, “You’ve changed,” it might simply be because you’ve stopped living your life their way.
+ - All that you achieve and all that you fail to achieve are the direct results of your thoughts.
+ - We are the producers of our own thinking. Thought is not something that happens to us, but something that we do to ourselves.
+ - What you do every day matters more than what you do every once in a while. Read The Power of Habit.
+ - Anyone can come into your life and say how much they love you. It takes someone really special to stay in your life and show how much they love you.
+ - Habits, good or bad, can always be traced back to your own thinking.
+
+48 quotes

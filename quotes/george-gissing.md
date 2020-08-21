@@ -1,0 +1,34 @@
+ - Time is money says the proverb, but turn it around and you get a precious truth. Money is time.
+ - Have the courage of your desire.
+ - For the man sound of body and serene of mind there is no such thing as bad weather; every day has its beauty, and storms which whip the blood do but make it pulse more vigorously.
+ - Life is a huge farce, and the advantage of possessing a sense of humour is that it enables one to defy fate with mocking laughter.
+ - It is the mind which creates the world around us, and even though we stand side by side in the same meadow, my eyes will never see what is beheld by yours, my heart will never stir to the emotions with which yours is touched.
+ - It is our duty never to speak ill of others, you know; least of all when we know that to do so will be the cause of much pain and trouble.
+ - To like Keats is a test of fitness for understanding poetry, just as to like Shakespeare is a test of general mental capacity.
+ - I hate with a bitter hatred the names of lentils haricots – those pretentious cheats of the appetite, those tabulated humbugs, those certified aridites calling themselves human food!
+ - Perhaps it is while drinking tea that I most of all enjoy the sense of leisure.
+ - For one thing, I know every book of mine by its scent.
+ - The truths of life are not discovered by us. At moments unforeseen, some gracious influence descends upon the soul, touching it to an emotion which, we know not how, the mind transmutes into thought.
+ - Money is made at Christmas out of holly and mistletoe, but who save the vendors would greatly care if no green branch were procurable?
+ - Flippancy, the most hopeless form of intellectual vice.
+ - Life, I fancy, would very often be insupportable, but for the luxury of self compassion.
+ - Parks are but pavement disguised with a growth of grass.
+ - London is a huge shop, with a hotel on the upper storeys.
+ - People have got that ancient prejudice so firmly rooted in their heads that one mustn’t write save at I the dictation of the Holy Spirit. I tell you, writing is a business.
+ - That is one of the bitter curses of poverty; it leaves no right to be generous.
+ - Human creatures have a mervellous power of adapting themselves to necessity.
+ - To every man it is decreed: Thou shalt live alone. Happy they who imagine that they have escaped the common lot; happy, whilst they imagine it.
+ - I have the happiness of a passing moment, and what more can mortal ask?
+ - It is because nations tend towards stupidity and baseness that mankind moves so slowly; it is because individuals have a capacity for better things that it moves at all.
+ - The misery of having no time to read a thousand glorious books.
+ - Honest winter, snow clad and with the frosted beard, I can welcome not uncordially; but that long deferment of the calendar’s promise, that weeping loom of March and April, that bitter blast outraging the honor of May – how often has it robbed me of heart and hope.
+ - A pipe for the hour of work; a cigarette for the hour of conception; a cigar for the hour of vacuity.
+ - I am much better employed from every point of view, when I live solely for my own satisfaction, than when I begin to worry about the world. The world frightens me, and a frightened man is no good for anything.
+ - Persistent prophecy is a familiar way of assuring the event.
+ - Money is time. With money I buy for cheerful use the hours which otherwise would not in any sense be mine; nay, which would make me their miserable bondsman.
+ - To be at other people’s orders brings out all the bad in me.
+ - The mind which renounces, once and for ever, a futile hope, has its compensation in ever-growing calm.
+ - No, no; women, old or young, should never have to think about money.
+ - And why should any man who writes, even if he writes things immortal, nurse anger at the world’s neglect? Who asked him to publish? Who promised him a hearing? Who has broken faith with him? Your poem, your novel, who bargained with you for it?
+
+32 quotes

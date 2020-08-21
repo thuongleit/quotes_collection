@@ -1,0 +1,153 @@
+ - It is better to be roughly right than precisely wrong.
+ - Economics is a very dangerous science.
+ - In the long run we are all dead.
+ - Markets can remain irrational longer than you can remain solvent.
+ - When my information changes, I alter my conclusions. What do you do, sir?
+ - The difficulty lies not so much in developing new ideas as in escaping from old ones.
+ - This long run is a misleading guide to current affairs. In the long run we are all dead. Economists set themselves too easy, too useless a task if in tempestuous seasons they can only tell us that when the storm is long past the ocean is flat again.
+ - The biggest problem is not to let people accept new ideas, but to let them forget the old ones.
+ - Successful investing is anticipating the anticipations of others.
+ - Capitalism is the astounding belief that the most wickedest of men will do the most wickedest of things for the greatest good of everyone.
+ - The expected never happens; it is the unexpected always.
+ - The markets are moved by animal spirits, and not by reason.
+ - The political problem of mankind is to combine three things: economic efficiency, social justice and individual liberty.
+ - When the facts change, I change my mind.
+ - It economics is a method rather than a doctrine, an apparatus of the mind, a technique of thinking which helps its possessor to draw correct conclusions.
+ - When the accumulation of wealth is no longer of high social importance, there will be great changes in the code of morals.
+ - The engine which drives enterprise is not thrift, but profit.
+ - The boom, not the slump, is the right time for austerity at the Treasury.
+ - Investing is an activity of forecasting the yield over the life of the asset; speculation is the activity of forecasting the psychology of the market.
+ - If we consistently act on the optimistic hypothesis, this hypothesis will tend to be realised; whilst by acting on the pessimistic hypothesis we can keep ourselves for ever in the pit of want.
+ - Practical men who believe themselves to be quite exempt from any intellectual influence, are usually the slaves of some defunct economist. Madmen in authority, who hear voices in the air, are distilling their frenzy from some academic scribbler of a few years back.
+ - Well, when I get new information, I rethink my position. What, sir, do you do with new information?
+ - If farming were to be organised like the stock market, a farmer would sell his farm in the morning when it was raining, only to buy it back in the afternoon when the sun came out.
+ - By a continuing process of inflation, government can confiscate, secretly and unobserved, an important part of the wealth of their citizens.
+ - Worldly wisdom teaches that it is better for reputation to fail conventionally than to succeed unconventionally.
+ - Once doubt begins it spreads rapidly.
+ - We will not have any more crashes in our time.
+ - Ideas shape the course of history.
+ - It is astonishing what foolish things one can temporarily believe if one thinks too long alone, particularly in economics.
+ - Most men love money and security more, and creation and construction less, as they get older.
+ - To suppose that safety-first consists in having a small gamble in a large number of different companies where I have no information to reach a good judgment, as compared with a substantial stake in a company where one’s information is adequate, strikes me as a travesty of investment policy.
+ - I work for a Government I despise for ends I think criminal.
+ - The important thing for Government is not to do things which individuals are doing already, and to do them a little better or a little worse; but to do those things which at present are not done at all.
+ - Pyramid-building, earthquakes, even wars may serve to increase wealth, if the education of our statesmen on the principles of the classical economics stands in the way of anything better.
+ - As time goes on, I get more and more convinced that the right method of investment is to put fairly large sums into enterprises which one thinks one knows something about and in the management of which one thoroughly believes.
+ - The importance of money flows from it being a link between the present and the future.
+ - Men will not always die quietly.
+ - The ideas of economists and political philosophers, both when they are right and when they are wrong, are more powerful than is generally understood. Indeed, the world is ruled by little else.
+ - It’s not bringing in the new ideas that’s so hard; it’s getting rid of the old ones.
+ - Government machinery has been described as a marvelous labor saving device which enables ten men to do the work of one.
+ - It is ideas, not vested interests, which are dangerous for good or evil.
+ - When the final result is expected to be a compromise, it is often prudent to start from an extreme position.
+ - The right remedy for the trade cycle is not to be found in abolishing booms and thus keeping us permanently in a semi-slump; but in abolishing slumps and thus keeping us permanently in a quasi-boom.
+ - The study of economics does not seem to require any specialised gifts of an unusually high order.
+ - Like all his type, Newton was wholly aloof from women.
+ - Long run is a misleading guide to current affairs. In the long run we are all dead.
+ - A study of the history of opinion is a necessary preliminary to the emancipation of the mind.
+ - There is nothing so disastrous as a rational investment policy in an irrational world.
+ - The avoidance of taxes is the only intellectual pursuit that still carries any reward.
+ - Nothing mattered except states of mind, chiefly our own.
+ - In truth, the gold standard is already a barbarous relic.
+ - The outstanding faults of the economic society in which we live are its failure to provide for full employment and its arbitrary and inequitable distribution of wealth and incomes.
+ - Speculators may do no harm as bubbles on a steady stream of enterprise. But the position is serious when enterprise becomes a bubble on a whirlpool of speculation. When the capital development of a country becomes a by-product of the activities of a casino, the job is likely to be ill done.
+ - All production is for the purpose of ultimately satisfying a consumer.
+ - If, however, a government refrains from regulations and allows matters to take their course, essential commodities soon attain a level of price out of the reach of all but the rich, the worthlessness of the money becomes apparent, and the fraud upon the public can be concealed no longer.
+ - Whenever you save five shillings you put a man out of work for a day.
+ - It would be foolish, in forming our expectations, to attach great weight to matters which are very uncertain.
+ - What an extraordinary episode in the economic progress of man was that age which came to an end in August 1914.
+ - The central principle of investment is to go contrary to the general opinion, on the grounds that if everyone agreed about its merits, the investment is inevitably too dear and therefore unattractive.
+ - Perhaps it is historically true that no order of society ever perishes save by its own hand.
+ - A sound banker, alas, is not one who foresees danger and avoids it, but one who, when he is ruined, is ruined in a conventional way along with his fellows, so that no one can really blame him.
+ - I think that Capitalism, wisely managed, can probably be made more efficient for attaining economic ends than any alternative system yet in sight, but that in itself is in many ways extremely objectionable.
+ - Investment based on genuine long-term expectations is so difficult today as to be scarcely practicable.
+ - The considerations upon which expectations of prospective yields are based are partly existing facts which we can assume to be known more or less for certain, and partly future events which can only be forecasted with more or less confidence.
+ - Economists must leave to Adam Smith alone the glory of the Quarto, must pluck the day, fling pamphlets into the wind, write always sub specie temporis, and achieve immortality by accident, if at all.
+ - There is no harm in being sometimes wrong – especially if one is promptly found out.
+ - Economic privation proceeds by easy stages, and so long as men suffer it patiently the outside world cares little.
+ - It is generally agreed that casinos should, in the public interest, be inaccessible and expensive. And perhaps the same is true of Stock Exchanges.
+ - The glory of the nation you love is a desirable end, – but generally to be obtained at your neighbor’s expense.
+ - An investor who proposes to ignore near-term market fluctuations needs greater resources for safety and must not operate on so large a scale, if at all, with borrowed money.
+ - It is a good thing to make mistakes so long as you’re found out quickly.
+ - The friends of gold will have to be extremely wise and moderate if they are to avoid a revolution.
+ - I was suffering from my chronic delusion that one good share is safer than ten bad ones, and I am always forgetting that hardly anyone else shares this particular delusion.
+ - The forces of the nineteenth century have run their course and are exhausted.
+ - It is a mistake to think that one limits one’s risk by spreading too much between enterprises about which one knows little and has no reason for special confidence.
+ - If I am right in supposing it to be comparatively easy to make capital-goods so abundant that the marginal efficiency of capital is zero, this may be the most sensible way of gradually getting rid of many of the objectionable features of capitalism.
+ - The disruptive powers of excessive national fecundity may have played a greater part in bursting the bonds of convention than either the power of ideas or the errors of autocracy.
+ - If we aim deliberately at the impoverishment of Central Europe, vengeance, I dare predict, will not limp.
+ - The power to become habituated to his surroundings is a marked characteristic of mankind.
+ - I am sure that the power of vested interests is vastly exaggerated compared with the gradual encroachment of ideas.
+ - It is better that a man should tyrannize over his bank balance than over his fellow-citizens and whilst the former is sometimes denounced as being but a means to the latter, sometimes at least it is an alternative.
+ - Like Odysseus, the President looked wiser when he was seated.
+ - Newton was a judaic monotheist of the school of Maimonides.
+ - Capitalism is the extraordinary belief that the nastiest of men, for the nastiest of reasons, will somehow work for the benefit of us all.
+ - If economists could manage to get themselves thought of as humble, competent people on a level with dentists, that would be splendid.
+ - It would not be foolish to contemplate the possibility of a far greater progress still.
+ - Thus, the weight of my criticism is directed against the inadequacy of the theoretical foundations of the laissez-faire doctrine upon which I was brought up and for many years I taught.
+ - There is no intrinsic reason for the scarcity of capital.
+ - I conceive, therefore, that a somewhat comprehensive socialisation of investment will prove the means of securing an approximation to full employment.
+ - He had one illusion – France; and one disillusion – mankind, including Frenchmen.
+ - But the dreams of designing diplomats do not always prosper, and we must trust the future .
+ - The duty of “saving” became nine-tenths of virtue and the growth of the cake the object of true religion.
+ - Galton’s eccentric, sceptical, observing, flashing, cavalry-leader type of mind led him eventually to become the founder of the most important, significant and, I would add, genuine branch of sociology which exists, namely eugenics.
+ - Nor should the argument seem strange that taxation may be so high as to defeat its object, and that, given sufficient time to gather the fruits, a reduction of taxation will run a better chance than an increase of balancing the budget.
+ - For at least another hundred years we must pretend to ourselves and to every one that fair is foul and foul is fair; for foul is useful and fair is not. Avarice and usury and precaution must be our gods for a little longer still.
+ - The insane and irrational springs of wickedness in most men...
+ - I don’t feel the least humble before the vastness of the heavens.
+ - The division of the spoils between the victors will also provide employment for a powerful office, whose doorsteps the greedy adventurers and jealous concession hunters of twenty or thirty nations will crowd and defile.
+ - How can I adopt a creed which, preferring the mud to the fish, exalts the boorish proletariat above the bourgeois and the intelligentsia who, with whatever faults, are the quality in life and surely carry the seeds of all human advancement?
+ - I can’t remember my telephone number, but I know it was in the high numbers.
+ - One’s knowledge and experience are definitely limited and there are seldom more than two or three enterprises at any given time in which I personally feel myself entitled to put full confidence.
+ - Logic, like lyrical poetry, is no employment for the middle-aged.
+ - I am myself impressed by the great social advantages of increasing the stock of capital until it ceases to be scarce.
+ - Words ought to be a little wild, for they are the assaults of thoughts on the unthinking.
+ - I believe that the future will learn more from the spirit of Gesell than from that of Marx .
+ - Obstinacy can bring only a penalty and no reward.
+ - If you owe your banker a thousand pounds, you are at his mercy. If you owe your banker a million pounds, he is at your mercy.
+ - The Class war will find me on the side of the educated bourgeoisie.
+ - God has arrived. I met him on the 5:15 train.
+ - Education: the inculcation of the incomprehensible into the indifferent by the incompetent.
+ - I should have drunk more Champagne.
+ - Once we allow ourselves to be disobedient to the test of an accountant’s profit, we have begun to change our civilization.
+ - Chess is a cure for headaches.
+ - If human nature felt no temptation to take a chance there might not be much investment merely as a result of cold calculation.
+ - To suggest social action for the public good to the city London is like discussing The Origin of Species to a Bishop sixty years ago.
+ - The destruction of the inducement to invest by an excessive liquidity-preference was the outstanding evil, the prime impediment to the growth of wealth, in the ancient and medieval worlds.
+ - The social object of skilled investment should be to defeat the dark forces of time and ignorance which envelope our future.
+ - The numeric system was invented to help man to put order in the chaos of the world.
+ - Experience shows that what happens is always the thing against which one has not made provision in advance.
+ - It is the duty of the long-term investor to endure great losses with equanimity.
+ - I find myself more and more relying for a solution of our problems on the invisible hand which I tried to eject from economic thinking twenty years ago.
+ - The day is not far off when the economic problem will take the back seat where it belongs, and the arena of the heart and the head will be occupied or reoccupied, by our real problems – the problems of life and of human relations, of creation and behavior and religion.
+ - The power to become habituated to his surroundings and therefore to no longer be grateful for what is good in it is a marked characteristic of mankind and needs to be fought against if a person is to be happy.
+ - Too large a proportion of recent “mathematical” economics are mere concoctions, as imprecise as the initial assumptions they rest on, which allow the author to lose sight of the complexities and interdependencies of the real world in a maze of pretentious and unhelpful symbols.
+ - The immense accumulations of fixed capital which, to the great benefit of mankind, were built up during the half century before the war, could never have come about in a Society where wealth was divided equitably.
+ - Dangerous acts can be done safely in a community which thinks and feels rightly, which would be the way to hell if they were executed by those who think and feel wrongly.
+ - Conservatism leads nowhere; it satisfies no ideal.
+ - Everything is always decided for reasons other than the real merits of the case.
+ - I know of only three people who really understand money. A professor at another university. One of my students. And a rather junior clerk at the Bank of England.
+ - Adam Smith and Malthus and Ricardo ! There is something about these three figures to evoke more than ordinary sentiments from us their children in the spirit.
+ - The decadent international but individualistic capitalism in the hands of which we found ourselves after the war is not a success. It is not intelligent. It is not beautiful. It is not just. It is not virtuous. And it doesn’t deliver the goods.
+ - The idea behind stamped money is sound.
+ - All the political parties alike have their origins in past ideas and not in new ideas and none more conspicuously so than the Marxists .
+ - It has been pointed out already that no knowledge of probabilities, less in degree than certainty, helps us to know what conclusions are true, and that there is no direct relation between the truth of a proposition and its probability. Probability begins and ends with probability.
+ - The difficulty lies, not in the new ideas, but in escaping the old ones, which ramify, for those brought up as most of us have been, into every corner of our minds.
+ - I expect to see the State, which is in a position to calculate the marginal efficiency of capital-goods on long views and on the basis of the general social advantage, taking an ever greater responsibility for directly organizing investments.
+ - The atomic hypothesis which had worked so splendidly in Physics breaks down in Psychics.
+ - For my own part, I believe that there is social and psychological justification for significant inequalities of incomes and wealth.
+ - One blames politicians, not for inconsistency but for obstinacy. They are the interpreters, not the masters, of our fate. It is their job, in fact, to register the fact accompli.
+ - Newton was not the first of the age of reason, he was the last of the magicians.
+ - Perhaps a day might come when there would be at last be enough to go round, and when posterity could enter into the enjoyment of our labors.
+ - I am trying to re-shape and improve my central position.
+ - I believe myself to be writing a book on economic theory which will largely revolutionize – not, I suppose, at once but in the course of the next ten years – the way the world thinks about economic problems.
+ - The principle objectives in life are love, the creation and enjoyment if aesthetic experience, the pursuit of knowledge. Love comes a long way first.
+ - The businessman is only tolerable so long as his gains can be held to bear some relation to what, roughly and in some sense, his activities have contributed to society.
+ - The great events of history are often due to secular changes in the growth of population and other fundamental economic causes, which, escaping by their gradual character the notice of contemporary observers, are attributed to the follies of statesmen or the fanaticism of atheists .
+ - Americans are apt to be unduly interested in discovering what average opinion believes average opinion to be.
+ - I do not know which makes a man more conservative – to know nothing but the present, or nothing but the past.
+ - In this autumn of 1919, in which I write, we are at the dead season of our fortunes.
+ - How long will it be necessary to pay City men so entirely out of proportion to what other servants of society commonly receive for performing social services not less useful or difficult?
+ - There is no subtler, no surer means of overturning the existing basis of society than to debauch the currency.
+
+151 quotes

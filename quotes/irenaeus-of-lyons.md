@@ -1,0 +1,23 @@
+ - The glory of God is a human being fully alive; and to be alive consists in beholding God.
+ - Jesus Christ, in His infinite love, has become what we are, in order that He may make us entirely what He is.
+ - The business of the Christian is nothing else but to be ever preparing for death.
+ - Through a tree we were made debtors to God; so through a tree we have our debt canceled.
+ - God became man, that we might be gods.
+ - Error never shows itself in its naked reality, in order not to be discovered. On the contrary, it dresses elegantly, so that the unwary may be led to believe that it is more truthful than truth itself.
+ - The initial step for us all to come to knowledge of God is contemplation of nature.
+ - No man can know God unless God has taught him; that is to say, that without God, God cannot be known.
+ - Error, indeed is never set forth in its naked deformity, lest, being thus exposed, it should at once be detected. But it is craftily decked out in an attractive dress, so as, by its outward form, to make it appear to the inexperienced more true than truth itself.
+ - But following the only true and stedfast Teacher, the Word of God, our Lord Jesus Christ, who did, through His transcendent love, become what we are, that He might bring us to be even what He is Himself.
+ - One should not seek among others the truth that can be easily gotten from the Church. For in her, as in a rich treasury, the apostles have placed all that pertains to truth, so that everyone can drink this beverage of life. She is the door of life.
+ - As long as any one has the means of doing good to his neighbours, and does not do so, he shall be reckoned a stranger to the love of the Lord.
+ - But we do now receive a certain portion of His Spirit, tending towards perfection, and preparing us for incorruption, being little by little accustomed to receive and bear God.
+ - The church has been planted as a paradise in this world.
+ - For where the church is, there is the Spirit of God, and where the Spirit of God, there is the church and all grace.
+ - A man that is an heretic, after the first and second admonition, reject; knowing that he that is such is subverted, and sinneth, being condemned of himself.
+ - The Virgin Mary, being obedient to his word, received from an angel the glad tidings that she would bear God.
+ - The preaching of the Church truly continues without change and is everywhere the same. It has the testimony of the Prophets and Apostles and all their disciples.
+ - Prior to Valentinus, those who follow Valentinus had no existence. Nor did those from Marcion exist before Marcion. Nor, in short, did any of those malignant-minded people, whom I have listed above, have any existence previous to the initiators and inventors of their perversity.
+ - We have learned from none others the plan of our salvation, than from those through whom the Gospel has come down to us, which they did at one time proclaim in public, and, at a later period, by the will of God, handed down to us in the Scriptures, to be the ground and pillar of our faith.
+ - Since it is impossible, without God, to come to knowledge of God, he teaches men through his Word to know God.
+
+21 quotes

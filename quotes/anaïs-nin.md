@@ -1,0 +1,394 @@
+ - Life shrinks or expands in proportion to one’s courage.
+ - We don't see things as they are, we see them as we are.
+ - And the day came when the risk to remain tight in a bud was more painful than the risk it took to blossom.
+ - Each friend represents a world in us, a world possibly not born until they arrive, and it is only by this meeting that a new world is born.
+ - We write to taste life twice, in the moment and in retrospect.
+ - Music melts all the separate parts of our bodies together.
+ - The role of a writer is not to say what we can all say, but what we are unable to say.
+ - You cannot save people. You can only love them.
+ - Love never dies a natural death. It dies because we don’t know how to replenish its source. It dies of blindness and errors and betrayals. It dies of illness and wounds; it dies of weariness, of witherings, of tarnishings.
+ - My mission, should I choose to accept it, is to find peace with exactly who and what I am. To take pride in my thoughts, my appearance, my talents, my flaws and to stop this incessant worrying that I can’t be loved as I am.
+ - People living deeply have no fear of death.
+ - Good things happen to those who hustle.
+ - I must be a mermaid, Rango. I have no fear of depths and a great fear of shallow living.
+ - Ordinary life does not interest me.
+ - You fall in love with people’s minds.
+ - If you do not breathe through writing, if you do not cry out in writing, or sing in writing, then don’t write, because our culture has no use for it.
+ - How wrong is it for a woman to expect the man to build the world she wants, rather than to create it herself?
+ - Do not seek the because – in love there is no because, no reason, no explanation, no solutions.
+ - Throw your dreams into space like a kite, and you do not know what it will bring back, a new life, a new friend, a new love, a new country.
+ - I don’t really want to become normal, average, standard. I want merely to gain in strength, in the courage to live out my life more fully, enjoy more, experience more. I want to develop even more original and more unconventional traits.
+ - We travel, some of us forever, to seek other states, other lives, other souls.
+ - Shame is the lie someone told you about yourself.
+ - You don’t find love, it finds you. It’s got a little bit to do with destiny, fate, and what’s written in the stars.
+ - Reality doesn’t impress me. I only believe in intoxication, in ecstasy, and when ordinary life shackles me, I escape, one way or another. No more walls.
+ - Life is a process of becoming, a combination of states we have to go through. Where people fail is that they wish to elect a state and remain in it. This is a kind of death.
+ - The secret of joy is the mastery of pain.
+ - I, with a deeper instinct, choose a man who compels my strength, who makes enormous demands on me, who does not doubt my courage or my toughness, who does not believe me naïve or innocent, who has the courage to treat me like a woman.
+ - We don't have a language for the senses. Feelings are images, sensations are like musical sounds.
+ - The possession of knowledge does not kill the sense of wonder and mystery. There is always more mystery.
+ - I take pleasure in my transformations. I look quiet and consistent, but few know how many women there are in me.
+ - I’m awaiting a lover. I have to be rent and pulled apart and live according to the demons and the imagination in me. I’m restless. Things are calling me away. My hair is being pulled by the stars again.
+ - We have been poisoned by fairy tales.
+ - The only abnormality is the incapacity to love.
+ - Anxiety is love’s greatest killer. It makes others feel as you might when a drowning man holds on to you. You want to save him, but you know he will strangle you with his panic.
+ - Age does not protect you from love. But love, to some extent, protects you from age.
+ - When your beauty struck me, it dissolved me. Deep down, I am not different from you. I dreamed you, I wished for your existence. I see in you that part of me which is you. I surrender my sincerity because if I love you it means we share the same fantasies, we share the same madness.
+ - We do not escape into philosophy, psychology, and art – we go there to restore our shattered selves into whole ones.
+ - In chaos, there is fertility.
+ - You carry away with you a reflection of me, a part of me. I dreamed you; I wished for your existence. You will always be a part of my life. If I love you, it must be because we shared, at some moment, the same imaginings, the same madness, the same stage.
+ - Our culture made a virtue of living only as extroverts. We discouraged the inner journey, the quest for a center. So we lost our center and have to find it again.
+ - Dreams are necessary to life.
+ - There are many ways to be free. One of them is to transcend reality by imagination, as I try to do.
+ - There is not one big cosmic meaning for all; there is only the meaning we each give to our life, an individual meaning, an individual plot, like an individual novel, a book for each person.
+ - The obstacle became his alibi for weakness.
+ - I write emotional algebra.
+ - Passion gives me moments of wholeness.
+ - There are very few human beings who receive the truth, complete and staggering, by instant illumination. Most of them acquire it fragment by fragment, on a small scale, by successive developments, cellularly, like a laborious mosaic.
+ - Ordinary life does not interest me. I seek only the high moments. I am in accord with the surrealists, searching for the marvelous.
+ - If you can’t create, you destroy.
+ - I love the abstract, delicate, profound, vague, voluptuously wordless sensation of living ecstatically.
+ - Pain is something to master, not to wallow in.
+ - Writers do not live one life, they live two. There is the living and then there is the writing. There is the second tasting, the delayed reaction.
+ - When others asked the truth of me, I was convinced it was not the truth they wanted, but an illusion they could bear to live with.
+ - Dreams pass into the reality of action. From the actions stems the dream again; and this interdependence produces the highest form of living.
+ - I hate men who are afraid of women’s strength.
+ - I am aware of being in a beautiful prison, from which I can only escape by writing.
+ - What is love but acceptance of the other, whatever he is.
+ - Write. Write until it stops hurting.
+ - I adore the struggle you carry in yourself. I adore your terrifying sincerity.
+ - I postpone death by living, by suffering, by error, by risking, by giving, by losing.
+ - I can’t let you go now. I want to go places with you; obscure little places, just to be able to say: here I came with her.
+ - Something is always born of excess: great art was born of great terror, great loneliness, great inhibitions, instabilities, and it always balances them.
+ - We are going to the moon that is not very far. Man has so much farther to go within himself.
+ - Your eyes make me shy.
+ - Had I not created my whole world, I would certainly have died in other people’s.
+ - It is a sign of great inner insecurity to be hostile to the unfamiliar.
+ - When one is pretending, the entire body revolts.
+ - I believe one writes because one has to create a world in which one can live.
+ - I either eat too much or starve myself. Sleep for 14 hours or have insomniac nights. Fall in love very hard or hate passionately. I don’t know what grey is. I never did.
+ - Where the myth fails, human love begins. Then we love a human being, not our dream, but a human being with flaws.
+ - I am only responsible for my own heart, you offered yours up for the smashing my darling. Only a fool would give out such a vital organ.
+ - I made no resolutions for the New Year. The habit of making plans, of criticizing, sanctioning and molding my life, is too much of a daily event for me.
+ - We are like sculptors, constantly carving out of others the image we long for, need, love or desire, often against reality, against their benefit, and always, in the end, a disappointment, because it does not fit them.
+ - For you and for me the highest moment, the keenest joy, is not when our minds dominate but when we lose our minds, and you and I both lose it in the same way, through love.
+ - Creation which cannot express itself becomes madness.
+ - Living never wore one so much as the effort not to live.
+ - I despise my own hypersensitiveness, which requires so much reassurance. It is certainly abnormal to crave so much to be loved and understood.
+ - Only the united beat of sex and heart together can create ecstasy.
+ - When you possess light within, you see it externally.
+ - I am a winged creature who is too rarely allowed to use its wings. Ecstasies do not occur often enough.
+ - Sometimes we reveal ourselves when we are least like ourselves.
+ - To write is to descend, to excavate, to go underground.
+ - When we blindly adopt a religion, a political system, a literary dogma, we become automatons.
+ - I wanted to remember in order to be able to return.
+ - I prefer by far the warmth and softness to mere brilliancy and coldness. Some people remind me of sharp dazzling diamonds. Valuable but lifeless and loveless. Others, of the simplest field flowers, with hearts full of dew and with all the tints of celestial beauty reflected in their modest petals.
+ - The dream was always running ahead of me. To catch up, to live for a moment in unison, was the miracle.
+ - Eroticism is one of the basic means of self-knowledge, as indispensable as poetry.
+ - Only when the poet and the scientist work in unison will we have living experiences and knowledge of the marvels of the universe as they are being discovered.
+ - I will always be the virgin-prostitute, the perverse angel, the two-faced sinister and saintly woman.
+ - I am like a snake who has already bitten. I retreat from a direct battle while knowing the slow effect of the poison.
+ - I am lonely, yet not everybody will do. I don’t know why, some people fill the gaps and others emphasize my loneliness. In reality those who satisfy me are those who simply allow me to live with my ?idea of them.
+ - This diary is my kief, hashish and opium pipe. This is my drug and my vice.
+ - What can I do with my happiness? How can I keep it, conceal it, bury it where I may never lose it? I want to kneel as it falls over me like rain, gather it up with lace and silk, and press it over myself again.
+ - The man who was once starved may revenge himself upon the world not by stealing just once, or by stealing only what he needs, but by taking from the world an endless toll in payment of something irreplaceable, which is the lost faith.
+ - Art is the method of levitation, in order to separate one’s self from enslavement by the earth.
+ - The love of only one man or one woman is an enclosure.
+ - He, who had done more than any human being to draw her out of the caves of her secret, folded life, now threw her down into deeper recesses of fear and doubt. The fall was greater than she had ever known, because she had ventured so far into emotion and had abandoned herself to it.
+ - She walked in the shadow of Rango with a great feeling of being taken out of herself, of having no knowledge of what was happening to her, merely a pervading sense of flow.
+ - She lacks confidence, she craves admiration insatiably. She lives on the reflections of herself in the eyes of others. She does not dare to be herself.
+ - What I cannot love, I overlook.
+ - To lie, of course, is to engender insanity.
+ - I want to do things so wild with you that I don’t know how to say them.
+ - I will not adjust myself to the world. I am adjusted to myself.
+ - He was now in that state of fire that she loved. She wanted to be burnt.
+ - It is the function of art to renew our perception. What we are familiar with we cease to see. The writer shakes up the familiar scene, and, as if by magic, we see a new meaning in it.
+ - Our life is composed greatly from dreams, from the unconscious, and they must be brought into connection with action. They must be woven together.
+ - I will not be just a tourist in the world of images, just watching images passing by which I cannot live in, make love to, possess as permanent sources of joy and ecstasy.
+ - Life, religion and art all converge in Bali. They have no word in their language for ‘artist’ or ‘art.’ Everyone is an artist.
+ - The truly faithless one is the one who makes love to only a fraction of you. And denies the rest.
+ - Create a world, your world. Alone. Stand alone. And then love will come to you, then it comes to you.
+ - Introspection is a devouring monster. You have to feed it with much material, much experience, many people, many places, many loves, many creations, and then it ceases feeding on you.
+ - To change skins, evolve into new cycles, I feel one has to learn to discard. If one changes internally one should not continue to live with the same objects. They reflect one’s mind and psyche of yesterday. I throw away what has no dynamic, living use.
+ - Anything I can not transform into something marvelous, I let go.
+ - At sixteen, Sabina took moon baths, first of all, because everyone else took sun baths, and second, she admitted, because she had been told it was dangerous.
+ - I don’t wish power, only art -art and passion.
+ - Each contact with a human being is so rare, so precious, one should preserve it.
+ - Nature forms us for ourselves, not for others; to be, not to seem.
+ - The body is an instrument which only gives off music when it is used as a body. Always an orchestra, and just as music traverses walls, so sensuality traverses the body and reaches up to ecstasy.
+ - The value of the personal relationship to all things is that it creates intimacy and intimacy creates understanding and understanding creates love.
+ - I have this weird obsession about buying books and looking at them with a smile, even if I won’t read them soon. At least they are mine now.
+ - Our love of each other was like two long shadows kissing without hope of reality.
+ - I reserve the right to love many different people at once, and to change my prince often.
+ - Don’t let one cloud obliterate the whole sky.
+ - Adolescence is like cactus.
+ - I only believe in fire. Life. Fire. Being myself on fire I set others on fire. Never death. Fire and life.
+ - I like extravagance. Letters which give the postman a stiff back to carry, books which overflow from their covers, sexuality which bursts the thermometers.
+ - I walked into my own book, seeking peace. It was night, and I made a careless movement inside the dream; I turned too brusquely the corner and I bruised myself against my madness.
+ - The enemy of a love is never outside, it’s not a man or a woman, it’s what we lack in ourselves.
+ - In the world of the dreamer there was solitude: all the exaltations and joys came in the moment of preparation for living. They took place in solitude.
+ - Beware of allowing a tactless word, a rebuttal, a rejection to obliterate the whole sky.
+ - If a person continues to see only giants, it means he is still seeing the world through the eyes of a child. I have a feeling that man’s fear of woman comes from having first seen her as the mother, creator of men.
+ - I often see how you sob over what you destroy, how you want to stop and just worship; and you do stop, and then a moment later you are at it again with a knife, like a surgeon.
+ - If what Proust says is true, that happiness is the absence of fever, then I will never know happiness. For I am possessed by a fever for knowledge, experience, and creation.
+ - There are two ways to reach me: by way of kisses or by way of the imagination. But there is a hierarchy: the kisses alone don’t work.
+ - You live out the confusions until they become clear.
+ - Societies in decline have no use for visionaries.
+ - My first vision of earth was water veiled. I am of the race of men and women who see all things through this curtain of sea, and my eyes are the color of water.
+ - You have a right to experiment with your life. You will make mistakes. And they are right too.
+ - Luxury is not a necessity to me, but beautiful and good things are.
+ - I don’t hear your words: your voice reverberates against my body like another kind of caress, another kind of penetration. I have no power over your voice. It comes straight from you into me. I could stuff my ears and it would find its way into my blood and make it rise.
+ - The unknown was my compass. The unknown was my encyclopedia. The unnamed was my science and progress.
+ - He does not need opium. He has the gift of reverie.
+ - We see things the way we are, not the way they are.
+ - Compassion for our parents is the true sign of maturity.
+ - There were silences in my head. I could abandon myself completely to the pleasure of multiple relationships, to the beauty of the day, to the joys of the day. It was as if a cancer in me had ceased gnawing me. The cancer of introspection.
+ - Mature people relate to each other without the need to merge.
+ - I had been struck by the analogy between neurosis and romanticism. Romanticism was truly a parallel to neurosis. It demanded of reality an illusory world, love, an absolute which it could never obtain, and thus destroyed itself by the dream.
+ - What everyone forgets is that passion is not merely a heightened sensual fusion but a way of life which produces, as in the mystics, an ecstatic awareness of the whole of life.
+ - Life is truly known only to those who suffer, lose, endure adversity and stumble from defeat to defeat.
+ - When I don’t write, I feel my world shrinking. I feel I am in a prison. I feel I lose my fire and my color. It should be a necessity, as the sea needs to heave, and I call it breathing.
+ - All those who try to unveil the mysteries always have tragic lives. At the end they are always punished.
+ - My life is not possible to tell. I change every day, change my patterns, my concepts, my interpretations. I am a series of moods and sensations. I play a thousand roles. I weep when I find others play them for me. My real self is unknown. My work is merely an essence of this vast and deep adventure.
+ - Memory is a great betrayer.
+ - How well I know with what burning intensity you live. You have experienced many lives already, including several you have shared with me- full rich lives from birth to death, and you just have to have these rest periods in between.
+ - All of my creation is an effort to weave a web of connection with the world: I am always weaving it because it was once broken.
+ - It is difficult to live with the pure. They do not condemn you; they forgive you. This forgiveness is more terrible than a judgment.
+ - The secret of life was Breath. That was what I always wanted my words to do, to Breathe.
+ - The complaints of the child in us will never cease lamenting until it is consoled, answered, understood. Only then will it lie still in us, like our fears. It will die in peace and leave us what the child leaves to the man – the sense of wonder.
+ - The artist is the only one who knows that the world is a subjective creation, that there is a choice to be made, a selection of elements.
+ - Perhaps a child, like a cat, is so much inside of himself that he does not see himself in the mirror.
+ - Worlds self made are so full of monsters and demons.
+ - Each friend represents a world in us.
+ - Coming near him like a ballet dancer she took a leap towards him, and he, frightened by her vehemence, and fearing that she would crash against him, instinctively became absolutely rigid, and she felt herself embracing a statue.
+ - Life is a full circle, widening until it joins the circle motions of the infinite.
+ - What you burnt, broke, and tore is still in my hands. I am the keeper of fragile things and I have kept of you what is indissoluble.
+ - The only transformer and alchemist that turns everything into gold is love. The only magic against death, aging, ordinary life, is love.
+ - We are all engaged in the task of peeling off the false selves, the programmed selves, the selves created by our families, our culture, our religions. It is an enormous task because the history of women has been as incompletely told as the history of blacks.
+ - Whenever you do something that is not aligned with the yearning or your soul – you create suffering.
+ - I had a feeling that Pandora’s box contained the mysteries of woman’s sensuality, so different from a man’s and for which man’s language was so inadequate. The language of sex had yet to be invented. The language of the senses was yet to be explored.
+ - Those who cannot live fully often become destroyers of life.
+ - Death from disillusion is not instantaneous, and there are no mercy killers for the disillusioned.
+ - I am an excitable person who only understands life lyrically, musically, in whom feelings are much stronger as reason.
+ - Travel is seeking the lost paradise. It is the supreme illusion of love.
+ - I have a prejudice against people with money. I have known so many, and none have escaped the corruption of power. In this I am a purist. I love people motivated by love and not by power. If you have money and power, and are motivated by love, you give it all away.
+ - I love man as creator, lover, husband, friend, but man the father I do not trust. I do not believe in man as father. I do not trust man as father.
+ - I don’t mind working, holding my ground intellectually, artistically; but as a woman, oh, God, as a woman I want to be dominated.
+ - A leaf fluttered in through the window this morning, as if supported by the rays of the sun, a bird settled on the fire escape, joy in the task of coffee, joy accompanied me as I walked.
+ - What a mystery this is, desire. The love sickness, the sensitivity, the obsession, the flutter of the heart, the ebb and flow of the blood. There is no drug and no alcohol to equal it.
+ - Writing more and more to the sound of music, writing more and more like music. Sitting in my studio tonight, playing record after record, writing, music a stimulant of the highest order, far more potent than wine.
+ - If I love you it means we share the same fantasies, the same madnesses.
+ - We are never trapped unless we choose to be.
+ - Paris-New York, the two high tension magnetic poles between life, life of the senses, of the spirit in Paris, and life in action in New York.
+ - Will you come down and kiss me good night?
+ - The personal life deeply lived always expands into truths beyond itself.
+ - I love your silences, they are like mine.
+ - When you make a world tolerable for yourself, you make a world tolerable for others.
+ - The source of sexual power is curiosity, passion. You are watching its little flame die of asphyxiation.
+ - It is in the movements of emotional crisis that human beings reveal themselves most accurately.
+ - I spell ‘god’ with a small ‘g’ because I do not believe in him, but I love to swear by him.
+ - Warmth, perfume, rugs, soft lights, books. They do not appease me. I am aware of time passing, of all the world contains that I have not seen, of all the interesting people I have not met.
+ - She makes use of the soft of the bread for a napkin. She falls asleep at times with shoes on, on unmade beds. When a little money comes in, June buys delicacies, strawberries in the winter, caviar and bath salts.
+ - I want to love you wildly. I don’t want words, but inarticulate cries, meaningless, from the bottom of my most primitive being, that flow from my belly like honey. A piercing joy, that leaves me empty, conquered, silenced.
+ - A man fell in love with Jeanne, and she tried to love him. But she complained that he uttered such ordinary words, that he could never say the magic phrase which would open her being.
+ - My life is slowed up by thought and the need to understand what I am living.
+ - Love men and women not for their strength but their softness, not for their fullness but their hunger, not for their plenty but their need.
+ - I cannot concentrate all my friendship on any single one of my friends because no one is complete enough in himself.
+ - In music I feel most deeply the passing of things.
+ - Stories are the only enchantment possible, for when we begin to see our suffering as a story, we are saved.
+ - The leaf fall of his words, the stained glass hues of his moods, the rust in his voice, the smoke in his mouth, his breath on my vision like human breath blinding a mirror.
+ - The monster I kill every day is the monster of realism. The monster who attacks me every day is destruction. Out of the duel comes the transformation. I turn destruction into creation over and over again.
+ - Poetry is the alchemy which teaches us to convert ordinary materials into gold.
+ - Tranquillity is contagious, peace is contagious. One only thinks of the contagiousness of illness, but there is the contagion of serenity and joy.
+ - All that is sacred and taboo in the world are meaningless.
+ - Idealism is the death of the body and the imagination. All but freedom, utter freedom, is death.
+ - I believe that in judging our actions we are more severe than professional judges. We judge not only our actions, but our thoughts, our intentions, our secret curses, our hidden hate.
+ - I hate rarely, though when I hate, I hate murderously.
+ - Our love lives because I live.
+ - I walk ahead of myself in perpetual expectancy of miracles.
+ - The real wonders of life lie in the depths. Exploring the depths for truths is the real wonder which the child and the artist know: magic and power lie in truth.
+ - I have an attitude now that is immovable. I shall remain outside of the world, beyond the temporal, beyond all the organizations of the world. I only believe in poetry.
+ - Convalescence. Such an utter weakness that you lie like an animal hibernating, playing possum. You float. You are adrift. Every current is stronger than you.
+ - I can elect something I love and absorb myself in it.
+ - Guilt is the one burden human beings can’t bear alone.
+ - To love and to labor is the sum of living.
+ - I want to live darkly and richly in my femaleness.
+ - I was thinking of my patients, and how the worst moment for them was when they discovered they were masters of their own fate. It was not a matter of bad or good luck. When they could no longer blame fate, they were in despair.
+ - Acapulco in the sunset seems like a balm; it enters the blood like a drug after one inhalation of the scent of flowers, one glimpse of the bay iridescent like silk, the sunset like the inside of a shell, so much like the flesh of Venus.
+ - When I first met him, he did not care if a friend did not fit into his world, because at that time his world had not been born yet.
+ - The softness of the summer day like an ermine paw.
+ - I sleep with my feet on moss carpets, my branches in the cotton of the clouds.
+ - Great repressions create dualities.
+ - Woman does not forget she needs the fecundator, she does not forget that everything that is born of her is planted in her.
+ - I know no joy as great as a moment of rushing into a new love, no ecstasy like that of a new love.
+ - You can either give negativity power over your life or you can choose happiness instead.
+ - Introspection is a devouring monster.
+ - I sat there for three hours and did not feel the time or the boredom of our talk and its foolish disconnection. As long as I could hear his voice, I was quite lost, quite blind, quite outside my own self.
+ - You are the poet, you walk inside my dreams...
+ - At first she beckoned and lured one into her world; then, she blurred the passageways, confused all the images, as if to elude detection.
+ - The earth is heavy and opaque without dreams.
+ - The one who travels like a lover searching for a new passion is suddenly blessed with new eyes, new ears, new senses.
+ - A trite word is an overused word which has lost its identity like an old coat in a second-hand shop. The familiar grows dull and we no longer see, hear, or taste it.
+ - The human father has to be confronted and recognized as human, as man who created a child and then, by his absence, left the child fatherless and then Godless.
+ - I gathered poets around me and we all wrote beautiful erotica. As we were condemned to focus only on sensuality, we had violent explosions of poetry. Writing erotica became a road to sainthood rather than to debauchery.
+ - One handles truths like dynamite. Literature is one vast hypocrisy, a giant deception, treachery. All writers have concealed more than they revealed.
+ - We three belong to the Middle Ages. We have this need of heroism, and there is no place for such feelings in modern life. That is our tragedy. Once I wanted to be a saint. It seemed the only absolute act left to do, for what is most powerful in me is the craving for purity, greatness.
+ - Then at certain moments I remember one of his words and I suddenly feel the sensual woman flaring up, as if violently caressed. I say the word to myself, with joy. It is at such a moment that my true body lives.
+ - To write at the same temperature at which I live I should write nothing but poetry.
+ - The inner chambers of the soul are like the photographer’s darkroom. Like a laboratory. One cannot stay there all the time or it becomes the solitary cell of the neurotic.
+ - I prefer empty cages, Sabina, until I find a unique bird I once saw in my dreams.
+ - I believe the lasting revolution comes from deep changes in ourselves which influence our collective life.
+ - The fiery moments of passionate experience are the moments of wholeness and totality of the personality.
+ - We are cruel when someone refuses to play the role in which we have cast him. We judge a person only according to his relationship towards us.
+ - Love never dies a natural death. It dies because we don’t know how to replenish its source.
+ - In New York the acoustics are good for laughter, for life is all external, all action, no thought, no meditation, no dreaming, no reflection, only the exuberance of action.
+ - It’s all right for a woman to be, above all, human. I am a woman first of all.
+ - Human beings can reach such desperate solitude that they may cross a boundary beyond which words cannot serve, and at such moments there is nothing left for them but to bark.
+ - The body is an instrument which only gives off music when it is used as a body.
+ - I am in great terror of your understanding by which you penetrate into my world; and then I stand revealed and I have shared my kingdom with you.
+ - The impetus to grow and live intensely is so powerful in me I cannot resist it. I will work, I will love my husband, but I will fulfill myself.
+ - Strange, isn’t it, that no chemical will give a human being the iridescence that illusions have given them? Give me your hat.
+ - The imagination is far better at inventing tortures than life because the imagination is a demon within us and it knows where to strike, where it hurts. It knows the vulnerable spot, and life does not, our friends and lovers do not, because seldom do they have the imagination equal to the task.
+ - I never liked the language of Henry Miller. I don’t think pornography has added to our sensual life.
+ - The important task of literature is to free man, not to censor him, and that is why Puritanism was the most destructive and evil force which ever oppressed people and their literature: it created hypocrisy, perversion, fears, sterility.
+ - The violence and obscenity are left unadulterated, as manifestation of the mystery and pain which ever accompanies the act of creation.
+ - The basis of insincerity is the idealized image we hold of ourselves and wish to impose on others.
+ - I really believe that if I were not a writer, not a creator, not an experimenter, I might have been a very faithful wife. I think highly of faithfulness. But my temperament belongs to the writer, not to the woman.
+ - The Frenchman, by nature, is sensuous and sensitive. He has intelligence, which makes him tired of life sooner than other kinds of men. He is not athletic: he sees the futility of the pursuit of fame; the climate at times depresses him.
+ - Your strength is soft, indirect, delicate, tender, womanly. But it is strength just the same.
+ - We did not touch each other. We were both leaning over the abyss.
+ - Physical experiences, lacking the joys of love, depend on twists and perversions of pleasure. Abnormal pleasures kill the taste for normal ones.
+ - Anxiety is love’s greatest killer, because it is like the stranglehold of the drowning.
+ - A war regarded as inevitable or even probable, and therefore much prepared for, has a very good chance of eventually being fought.
+ - I cheat him, I deceive him, yet the world does not sink in sulphur-colored mists. Madness conquers. I can no longer put my mosaics together. I just cry and laugh.
+ - But I lie. I embellish. My words are not deep enough. They disguise, they conceal. I will not rest until I have told of my descent into a sensuality which was as dark, as magnificent, as wild, as my moments of mystic creation have been dazzling, ecstatic, exalted.
+ - Descendants of pigeons once fed by Keats, Byron, George Sand, Chopin and many other famous lovers are still being fed, and the sudden sound when they all rise together, frightened away, is like the sound of giant sails flapping.
+ - Violence is a symptom of impotence.
+ - Everything but happiness is neurosis.
+ - I see myself wrapped in lies, which do not seem to penetrate my soul, as if they are not really a part of me. They are like costumes.
+ - To the woman with the least intelligence, there must come, at some time or other, the realization that housework is animal work and that there are other occupations in the world a thousand times more refined, more enriching, for which she is also suited and to which she has a right.
+ - I am a failure as a writer. The publishers won’t publish me, the bookshops won’t carry my books, the critics won’t write about me. I am excluded from all anthologies, and completely ignored.
+ - For too many centuries women have been being muses to artists. I wanted to be the muse, I wanted to be the wife of the artist, but I was really trying to avoid the final issue – that I had to do the job myself.
+ - Keeping a Diary all my life helped me to discover some basic elements essential to the vitality of writing.
+ - My diary seems to keep me whole.
+ - This morning I got up to begin this book I coughed. Something was coming out of my throat: it was strangling me. I broke the thread which held it and yanked it out. I went back to bed and said: I have just spat out my heart.
+ - When I am most deeply rooted, I feel the wildest desire to uproot myself.
+ - The preoccupation of the novelist: how to capture the living moments, was answered by the diary. You write while you are alive. You do not preserve them in alcohol until the moment you are ready to write about them.
+ - To think of him in the middle of the day lifts me out of ordinary living.
+ - Solitude may rust your words.
+ - Balance is not to be sought by association with others; it must exist within one’s self.
+ - There is no denying that we are suffering from a collective neurosis and the novel which does not face this is not a novel of our time.
+ - The ivory tower of the artist may be the only stronghold left for human values, cultural treasures, man’s cult of beauty.
+ - This image of herself as a not ordinary women, an image which was trembling now in his eyes, might suddenly disappear. Nothing more difficult to live up to than men’s dreams.
+ - Poverty is the great reality. That is why the artist seeks it.
+ - The personal, if it is deep enough, becomes universal, mythical, symbolic.
+ - The period without the diary remains an ordeal. Every evening I want my diary as one wants opium.
+ - Tropical nights are hammocks for lovers.
+ - Truth is something which can’t be told in a few words. Those who simplify the universe only reduce the expansion of its meaning.
+ - Experience teaches acceptance of the imperfect as life.
+ - People who want a sane, static, measurable world take the first aspect of an event or person and stick to it, with an almost self-protective obstinacy, or by a natural limitation of their imaginations. They do not indulge in either deepening or magnifying.
+ - There are books which we read early in life, which sink into our consciousness and seem to disappear without leaving a trace. And then one day we find, in some summing-up of our life and put attitudes towards experience, that their influence has been enormous.
+ - They courted the face on the screen, the face of translucence, the face of wax on which men found it possible to imprint the image of their fantasy.
+ - We are beginning to see the influence of dream upon reality and reality upon dream.
+ - There is a resemblance between men and women, not a contrast. When a man begins to recognize his feeling, the two unite. When men accept the sensitive side of themselves, they come alive.
+ - Big Business and Politics are twins, they are the monsters who kill everything, corrupt everything.
+ - I see enormous loves growing immense and finally crushing me.
+ - One must be thrust out of a finished cycle in life, and that leap is the most difficult to make – to part with one’s faith, one’s love, when one would prefer to renew the faith and recreate the passion.
+ - We speak of the masculine and the feminine, but they are the wrong labels. It is really more a matter of poetry versus intellectualization.
+ - Either one fails in one’s art or in one’s life.
+ - In creation alone there is the possibility of perfection.
+ - The core of creation is to summon an image and the power to work with the image.
+ - If all of us acted in unison as I act individually there would be no wars and no poverty. I have made myself personally responsible for the fate of every human being who has come my way.
+ - In every relationship, sooner or later, there is a court scene. Accusations, counter-accusations, a trial, a verdict.
+ - I palliate the sufferings of others. yes I see myself as softening the blows, dissolving acids, neutralizing poisons, every moment of the day. I try to fulfill the wishes of others, to perform miracles. I exert myself performing miracles.
+ - One handles truths like dynamite.
+ - Since desire always goes towards that which is our direct opposite, it forces us to love that which will make us suffer.
+ - Nothing too long imagined can be perfect in a wordly way.
+ - He understands my pity for his ridiculous, humiliating physical necessity.
+ - Our psychological reality, which lies below the surface, frightens us because it endlessly surprises us and drives us in a direction which society’s rules and organizations define as wrong or dangerous.
+ - My ideas usually come not at my desk writing but in the midst of living.
+ - He was jealous of her future, and she of his past.
+ - Nowhere is inhumanity more revealed than in hospitals.
+ - My trunk, valises and my mind are overpacked.
+ - I seek the real stuff of life. Profound drama.
+ - The unconscious can become destructive if it is disregarded and thwarted.
+ - There is a fissure in my vision and madness will always rush through.
+ - Nothing endures unless it has first been transposed into a myth, and the great advantage of myths is that they are ladies with portable roots.
+ - Also, I do not like the companionship of women. They are petty and personal. They hang on to their mysteries and secrets, they act and pretend. I like the character of men better.
+ - I’m sick of my own romanticism!
+ - The final lesson a writer learns is that everything can nourish the writer. The dictionary, a new word, a voyage, an encounter, a talk on the street, a book, a phrase learned.
+ - A big enough artist, I say, can eat anything, must eat everything and then alchemize it. Only the feeble writer is afraid of expansion.
+ - Anxiety is loves greatest killer.
+ - That is my essential reason for writing, not for fame, not to be celebrated after death, but to heighten and create life all around me. I also write because when I am writing I reach the high moment of fusion sought by the mystics, the poets, the lovers, a sense of communion with the universe.
+ - The two men who have done the greatest harm to the world are Christ and Columbus. Christ taught us guilt and sacrifice, to live only in the other world, and Columbus discovered America and materialism.
+ - The creative personality never remains fixed on the first world it discovers. It never resigns itself to anything.
+ - We efface an hour by passionate love, without twists, without aftertaste. When it is finished, it is not finished, we lie still in each other’s arms lulled by our love, by tenderness – sensuality in which the whole being can participate.
+ - The shell is America’s most active contribution to the formation of character. A tough hide. Grow it early.
+ - One discovers that destiny can be diverted, that one does not have to remain in bondage to the first wax imprint made on childhood sensibilities. Once the deforming mirror has been smashed, there is a possibility of wholeness. There is a possibility of joy.
+ - Is devotion to others a cover for the hungers and the needs of the self, of which one is ashamed? I was always ashamed to take. So I gave. It was not virtue. It was a disguise.
+ - The bed must be a beautiful place, not only because you make love there but because you dream there as well.
+ - We celebrate peace. Yet we pay no attention to the ways of curing aggression in human beings. And when one sees in psychoanalysis hostility disappearing as people conquer their fears, one wonders if the cure is not there.
+ - Self-destructive patterns cause as much suffering as outer catastrophes.
+ - You marry the day you realize the human defects of your love.
+ - The poet is one who is able to keep the fresh vision of the child alive.
+ - Analysis does not take into account the creative products of neurotic desires.
+ - Everything with me is either worship and passion or pity and understanding. I hate rarely, though when I hate. I hate murderously.
+ - I know why familles were created, with all their imperfections. They humanize you. They are made to make you forget yourself occasionally, so that the beautiful balance of life is not destroyed.
+ - I stopped loving my father a long time ago. What remained was the slavery to a pattern.
+ - I say quotations are literary. They are good only when dealing with ideas, not with experience. Experience should be pure, unique.
+ - Stations and airports are rehearsals for separations by death.
+ - I want to fall in love in such a way that the mere sight of a man, even a block away from me, will shake and pierce me, will weaken me, and make me tremble and soften and melt.
+ - I miss the animal buoyancy of New York, the animal vitality. I did not mind that it had no meaning and no depth.
+ - I want to be a writer who reminds others that these moments exist; I want to prove that there is infinite space, infinite meaning, infinite dimension.
+ - Some people read to confirm their own hopelessness. Others read to be rescued from it.
+ - New York seems conducted by jazz, animated by it. It is essentially a city of rhythm.
+ - I needed to live, but I also needed to record what I lived.
+ - The richest source of creation is feeling, followed by a vision of its meaning.
+ - You are the only woman who ever answered the demands of my imagination.
+ - I must know, he thinks. It must be clear to me. There is a world which is closed to him, a world of shadings, gradations, nuances, and subtleties. He is a genius and yet he is too explicit. June slips between his fingers. You cannot posses without loving.
+ - This great handsomeness I took into myself later when he desired me, but I took it as one breathes air, or swallows a snowflake, or yields to the sun.
+ - The dream has to be translated into reality.
+ - But the artist persists because he has the will to create, and this is the magic power which can transform and transfigure and transpose and which will ultimately be transmitted to others.
+ - I don’t tell the truth any more to those who can’t make use of it. I tell it mostly to myself, because it always changes me.
+ - The way to recognize a dead word is that it exudes boredom.
+ - I have so strong a sense of creation, of tomorrow, that I cannot get drunk, knowing I will be less alive, less well, less creative the next day.
+ - If one’s conscious life is too rigid, too regimented, then the surface may crack at times, and we are unprepared for the strange emotions or sensations we experience.
+ - Things aren’t the way they are, they’re the way you are.
+ - I have seen romanticism outlast the realistic. I have seen men forget the beautiful women they have possessed, forget the prostitutes, and remember the first woman they idolized, the woman they could never have. The woman who aroused them romantically holds them.
+ - When I don’t write, I feel my world shrink. I lose my fire, my color.
+ - In my dreams I sleep with everybody.
+ - Houses turn to corpses overnight when we cease to live and love in them.
+ - The dangerous time when mechanical voices, radios, telephones, take the place of human intimacies, and the concept of being in touch with millions brings a greater and greater poverty in intimacy and human vision.
+ - We must protect the minority writers because they are the research workers of literature. They keep it alive. It has been fashionable of late to seek out and force such writers into more popular channels, to the detriment of both writer and an unprepared public.
+ - Sometimes I think of Paris not as a city but as a home.
+ - I’m restless. Things are calling me away. My hair is being pulled by the stars again.
+ - I believe that men are generally still a little afraid of the dark though the witches are all hung, and Christianity and candles have been introduced.
+ - Asia discovered two remedies for the cruelty of man, art and religion. America discarded both and is drowning in hate and aggressivity.
+ - To change skins, evolve into new cycles, I feel one has to learn to discard.
+ - It is easy to love and there are so many ways to do it.
+ - We love best those who are, or act for us, a self we do not wish to be or act out.
+ - There is an ugliness in being paid for work one does not like.
+ - New York has an electronic heart.
+ - Jazz is the music of the body.
+ - Secrets. Need to disguise. The novel was born of this.
+ - One may gain one truth at the expense of another.
+ - America hates the artist. It will not admit: the artist is my soul and I want to kill off my soul.
+ - The suppression of inner patterns in favor of patterns created by society is dangerous to us.
+ - To commit suicide is easy. To live without a god is more difficult. The drunkenness of triumph is greater than the drunkenness of sacrifice.
+ - A man who lives unrelated to other human beings dies. But a man who lives unrelated to himself also dies.
+ - I will not be just a tourist in a world of images.
+ - Now that I am moving, I am afraid. Where am I going?
+ - The child who is uprooted begins to recognize that what he builds within himself is what will endure, what will withstand shattering experiences.
+ - Because history is only an aggregate of personal hostilities, personal prejudices, personal blindness and irrationality, there are times when we have to live against it.
+ - Innocence was gone from all our acts. Our habitual state of rebellion became a serious political crime.
+ - We sit on the kitchen exchanging these diabolical outgrowths of overfertile minds.
+ - Women always think that when they have my shoes, my dress, my hairdresser, my makeup, it will all work the same way. They do not conceive of the witchcraft that is needed. They do not know that I am not beautiful but that I only appear to be at certain moments.
+ - There are only two kinds of freedom in the world; the freedom of the rich and powerful, and the freedom of the artist and the monk who renounces possessions.
+ - If you are terribly truthful, the ground will always move from under you, and you will have to shift with the constantly shifting truth.
+ - Most artists have retired too absolutely; they grow rusty, inflexible to the flow of currents.
+ - No one should be forced to carry the unfulfilled self of another.
+ - When I hear of people who weary of each other, I believe it is because they have sought virtues in themselves alone, attractions of physical beauty. Have they based their love on each other’s thoughts? Who can weary of thoughts which change every day?
+ - He has, like me, a sense of smell. I let him inhale me, then I slip away.
+ - I am quite wiling to confide entirely in human being, except that at some moment or another human beings get preoccupied, moody, busy, inattentive, and there come an end to the interest, and this never happens in a journal!
+
+392 quotes

@@ -1,0 +1,208 @@
+ - Always wake up with a smile knowing that today you are going to have fun accomplishing what others are too afraid to do.
+ - Work like there is someone working twenty-four hours a day to take it all away from you.
+ - There is only one thing in life you can control: Your own effort.
+ - It’s not about money or connections. It’s the willingness to outwork and outlearn everyone.
+ - Don’t start a company unless it’s an obsession and something you love. If you have an exit strategy, it’s not an obsession.
+ - I’d rather be tired than broke!
+ - Sweat equity is the most valuable equity there is.
+ - Never follow your dreams. Follow your effort. It’s not about what you can dream of. That’s easy. It’s about whether or not it’s important enough to you to do the work to be ready to be successful in that business.
+ - If you don’t follow the stock market, you are missing some amazing drama.
+ - It takes time, it’s a grind. There are no shortcuts. You’ve got to grind and grind.
+ - The beauty of success, whether it’s finding the girl of your dreams, the right job or financial success, is that it doesn’t matter how many times you have failed, you only have to be right once.
+ - Time is the most valuable asset you don’t own.
+ - Once you have found out what you love to do, there is only one goal: to be the best in the world at it.
+ - Do your homework and know your business better than anyone. Otherwise, someone who knows more and works harder will kick your ass.
+ - Wherever there is change, and wherever there is uncertainty, there is opportunity!
+ - Perfectionism is the enemy of profitability.
+ - Learn to sell. In business you’re always selling: to your prospects, investors and employees. To be the best salesperson put yourself in the shoes of the person to whom you’re selling. Don’t sell your product. Solve their problems.
+ - Doesn’t matter if the glass is half-empty or half-full. All that matters is that you are the one pouring the water.
+ - The only thing in your control is effort. That’s all, and that’s everything.
+ - I was lucky. I grew up knowing that hard work and smart work has a greater impact on results than being passionate about something.
+ - Pay off your debt first. Freedom from debt is worth more than any amount you can earn.
+ - Everyone has ideas. The first step is to learn more about your industry than anyone in the world. Otherwise there is a good chance that the lady that knows it better than you is going to kick your ass. Then you just have to go for it. No excuses. Just work your ass off.
+ - Always look for the fool in the deal. If you don’t find one, it’s you.
+ - A long list. From getting cut from the high school basketball team, to getting fired from jobs, getting credit cards rejected and cut up. Rejection has only been a distraction, not a roadblock. “Every no gets me closer to a yes,” was the saying I used to use.
+ - It’s not in the dreaming, it’s in the doing.
+ - There is no sport as competitive as business. It’s 24 by 7 by 365 by forever.
+ - Love what you do or don’t do it.
+ - If you really want to know where your destiny lies, look at where you apply your time.
+ - Money is a scoreboard where you can rank how you’re doing against other people.
+ - Expect the unexpected, and always be ready – everyone has inside them what it takes to be successful. You just have to be ready to unleash it when the opportunity presents itself.
+ - I’m always afraid of failing. It’s great motivation to work harder.
+ - It doesn’t matter how many times you fail. You only have to be right once and then everyone can tell you that you are an overnight success.
+ - One thing we can all control is effort.
+ - Do the work. Out-work. Out-think. Out-sell your expectations. There are no shortcuts.
+ - Focus on building the best possible business. If you are great, people will notice and opportunities will appear.
+ - Time is the most valuable asset you don’t own. You may or may not realize it yet, but how you use or don’t use your time is going to be the best indication of where your future is going to take you .
+ - Today is the youngest you will ever be. Live like it.
+ - Sales Cure All. Know how your company will make money and how you will actually make sales.
+ - Never follow your dreams. Follow your effort.
+ - I don’t care what anyone says. Being rich is a good thing.
+ - Relaxing is for the other guy.
+ - Business is the ultimate sport. In business, as in sport, the one thing you can control is effort.
+ - What I’ve learned is that if you really want to be successful at something, you’ll find that you put the time in. You won’t just ask somebody if it’s a good idea, you’ll go figure out if it’s a good idea.
+ - Creating opportunities means looking where others are not.
+ - Find something you love to do. If you don’t make money at it, at least you love going to work.
+ - Treat your customers like they own you. Because they do.
+ - Forget about finding your passion. Instead, focus on finding big problems.
+ - Because if you’re prepared and you know what it takes, it’s not a risk. You just have to figure out how to get there. There is always a way to get there.
+ - If it had anything to do with the PC or networking industry I was on top of it. I bought manuals. I read every book and magazine. Then I would get involved with industry conferences and put myself out there.
+ - There are no shortcuts. NONE.
+ - When you’ve got 10,000 people trying to do the same thing, why would you want to be number 10,001?
+ - It’s always the little decisions that have the biggest impact.
+ - Make your product easier to buy than your competition, or you will find your customers buying from them, not you.
+ - Information is power, particularly when the competition ignores the opportunity to do the same.
+ - Doesnt matter what your skill and physical gifts are if you cant get your head right.
+ - I love to compete. I want to get out there and kick your ass in the business world. That is what inspires me.
+ - The number-one job of the hedge-fund manager is not to make sure that you can retire with a smile on your face – it’s for him to retire with a smile on his face.
+ - The only thing any entrepreneur, salesperson or anyone in any position can control is their effort.
+ - Sales is the most important aspect of a company, which in turn is about how well you treat your customer and stay ahead of your customer’s requirements.
+ - Don’t get caught up in how many hours you work. Judge success based on having goals and measuring your results. Hard work, and lots of it, is certainly needed, but focus on what you get done.
+ - Know your stuff. Have an angle. Know how to grow business, how to develop products, have patents and an undeveloped market that could be huge.
+ - Selling is never about convincing. It is always about helping.
+ - One of the biggest mistakes entrepreneurs make is that we lie to ourselves. We don’t step back and look at ourselves like a competitor would.
+ - Higher education is a business that doesn’t know it’s going out of business.
+ - I think college is an absolute. In this world you have to learn how to learn and get in the habit of always wanting to learn. Some kids have that out of high school and may be able to do the college equivalent of home schooling. Most kids can’t. So I highly recommend going to college.
+ - In business, to be a success, you only have to be right once.
+ - Sweat equity is the most valuable equity there is. Know your business and industry better than anyone else in the world. Love what you do or don’t do it.
+ - Business is the marketplace of ideas.
+ - There are no shortcuts. You have to work hard, and try to put yourself in a position where if luck strikes, you can see the opportunity and take advantage of it.
+ - I do everything via email. Which in turn works as my tickler file and prioritization queue. I start at the top every morning and keep on going until I’m finished. I don’t do calls. I don’t do meetings.
+ - Being a smart shopper is the first step to getting rich.
+ - I learned how to become wealthy because I asked the right questions when I was broke.
+ - If you want to deal with me, email is the way you do it. Working via email means that everything I do is searchable. I can go back and check out discussion threads from more than 15 years ago.
+ - The idea that growth equals profitability is a misconception. If you can’t afford the financial or qualitative side of growth, it can just as easily put you out of business.
+ - I’m a believer that you accomplish much, much more with direct relationships than by using an intermediary. And that cash you keep in the bank can be the difference between staying alive as a small business, or not.
+ - We romanticize entrepreneurshi p so much that people don’t do the work. It’s not just a dream, not just a goal; it’s a lot of hard work. A lot of people are wantrepreneurs, not entrepreneurs.
+ - As far as businesses, I was always hustling. I had to pay for my own school. I got 20 bucks every week or 2 from my dad and that was it. So I had a “whatever it took” attitude.
+ - Business happens over years and years. Value is measured in the total upside of a business relationship, not by how much you squeezed out in any one deal.
+ - Just watch. Pigs get fat, hogs get slaughtered. When you try to take it too far, people turn the other way. I’m just telling you, when you’ve got a good thing and you get greedy, it always, always, always, always, always turns on you. That’s rule No. 1 of business.
+ - The one thing in life you can control is your effort. Are there any shortcuts in the beauty business? No. That was the first lesson I learned. You can’t just rocket to the top.
+ - Recessions are the best time to start a company. Companies fail. Others hold back capital. If you are willing to do the preparation and work, it is the best time to invest in yourself and start a business.
+ - What I’ve learned in these 11 years is you just got to stay focused and believe in yourself and trust your own ability and judgment.
+ - If there was a template for success in sports, everyone would follow it. You do the best you can and trust the people you trust.
+ - Being successful entails being able to not only get along with people, but also to give something back.
+ - I hate politics. It’s slimy. Any job where people pander for votes, I don’t like. The country has gotten so partisan that if you’re not on my side, you’re the enemy. The only thing I ever try to support is a third party, like Unity08. We need more parties and more choice.
+ - The reason I do Shark Tank isn’t to try take make more money of the deals, even though every deal I want to make money off of and even more so I want the entrepreneurs to be very successful and make money, but Shark Tank sends a message to everybody that the American Dream is alive and well.
+ - I think you’ve got to be very, very careful when you start making blanket statements about what people say and think, as opposed to what they do. It’s a very, very slippery slope.
+ - All that matters in business is that you get it right once. Then everyone can tell you how lucky you are.
+ - While some people might find it distasteful to pay taxes, I don’t. I find it patriotic.
+ - Sports, music, movies – basically, fans of any form of entertainment don’t do a resume analysis before picking their favorite.
+ - The Higher Education Industry is very analogous to the Newspaper industry. By the time they realize they need to change the costs to support their legacy infrastructure and costs will keep them from getting there.
+ - Can’t say no one makes money from Twitter now. The NBA does.
+ - We don’t sell wins or losses. The one thing you can’t control in sports is which games you are going to win or which games you are going to lose. But what I could control was the experience the fans have.
+ - If you think back to the first sporting event you went to, you don’t remember the score, you don’t remember a home run, you don’t remember a dunk. You remember who you were with. Were you with your mom, your dad, your brother, on a date?
+ - Social media is just a platform. Twitter is a very simple and immediate broadcast platform. Facebook is a very personal, when it comes to friends and when it comes to fan pages, a little bit less but still somewhat personal way to communicate.
+ - If Ayn Rand were an up-and-coming author today, she wouldn’t write about steel or railroads, it would be Net Neutrality.
+ - Every now and then I love to invest in a company that may not set the world on fire, but has the chance to establish itself, create jobs and have a positive impact.
+ - One thing I learned in the NBA is that the No. 1 job of a general manager is to keep his job. They are only 30 positions where you make millions and hang around with basketball players all day.
+ - Patent law holds us back, in every which way, shape or form. There is place for it, in physical products, in pharmaceuticals, but in software in particular, there is no place for it.
+ - The stock market’s handling of new technology is kind of a joke. We have seen CNBC, CNNfn, Bloomberg, and the like turn into home-shopping networks for stocks. Fund managers and analysts go on TV and sell what’s shiny and easy to sell.
+ - Open offices keep everyone in tune with what is going on and keep the energy up. If an employee is about privacy, show him or her how to use the lock on the bathroom.
+ - It comes down to finding something you love to do and then just trying to be great at it.
+ - When you turn your team upside down and try to figure out what the culture of the team is, you take the greatest risk a team can take.
+ - All you need is a laptop or a PC and an Internet connection and you can pretty much do almost anything and create almost any type of company.
+ - Wherever I see people doing something the way it’s always been done, the way it’s ‘supposed’ to be done, following the same old trends, well, that’s just a big red flag to me to go look somewhere else.
+ - I’m the type that thinks if you don’t learn from history, you’re doomed to repeat it.
+ - In my opinion, right now there’s way too much hype on the technologies and not enough attention to the real businesses behind them.
+ - In every job, I would justify it in my mind, whether I loved it or hated it, that I was getting paid to learn and every experience would be of value when I figured out what I wanted to do when I grew up.
+ - I retired at twenty-nine, bought a life-time pass on American Airlines and my only goal in life was to party like a mad man and get drunk with as many people as possible. And I was happy right there. But when we started the streaming business, I knew it could be something big.
+ - I rarely think the market is right. I believe non dividend stocks aren’t much more than baseball cards. They are worth what you can convince someone to pay for it.
+ - I don’t think there’s any question that the UFL or any other league that wants to challenge the NFL can have an impact. The demand for professional football is off the charts.
+ - I’ve learned the number one job of a pro manager is not to win championships but to keep their job.
+ - I can turn an idea into a business before you know it’s going to be important. My first step will blow by you.
+ - When I die, I want to come back as me.
+ - Go out there and get rich. Get so obnoxiously rich that when that tax bill comes, your first thought will be to choke on how big a check you have to write.
+ - Everyday I look in the mirror and make sure I don’t pinch myself so I don’t wake up. I don’t take it for granted. All the time I say: ‘Why me?’
+ - You’ve got to be very cognizant of the correlation between social media links and business because they don’t always correlate as highly as people would like.
+ - Success is about making your life a special version of unique that fits who you are – not what other people want you to be.
+ - With Android I get to choose from many different products from many different phone manufacturers. With iOS, I get what Apple gives me. Which isn’t necessarily bad, but it’s not always the best fit for my personal or business communication needs.
+ - As I would learn later in life, money makes you extremely handsome.
+ - I just try to have a good time, enjoy my family, enjoy my life. I was having a blast when I was poor, and I’m having maybe a little bit more now that I’ve got something in the bank.
+ - Most people think it’s all about the idea. It’s not. EVERYONE has ideas. The hard part is doing the homework to know if the idea could work in an industry, then doing the preparation to be able to execute on the idea.
+ - If you’ve got $25,000, $50,000, $100,000, you’re better off paying off any debt you have because that’s a guaranteed return.
+ - I just started a business called HDNet. There never is one area that has a door open to everyone. Try to find an area with something you love to do and do it. It’s a lot easier to work hard and prepare when you love what you are doing.
+ - In today’s world of technology we should no longer be using outdated paper processes to accomplish tasks such as requisitions, reports, approvals, and purchase orders.
+ - I’m scared shitless of heights.
+ - Most people think money is the key to reducing risk. Prepartion is.
+ - Business is a sport and I want to win. I want to kick your ass. I may not win every game. But I certainly am going to try.
+ - One problem people have is that they lie to themselves. Rarely is talent enough. You have to find ways to make yourself standout. You do so by playing to your strengths and making people aware of those strengths.
+ - In the past people used to tell me to shut up a bit. But what I believe is to put out your opinion and let everyone else react. If I’m wrong I’m wrong. People are afraid to put out their opinions and get push back.
+ - There is very little knowledge that can’t be obtained through effort. With knowledge you can determine the state of any business or opportunity and find a course to gain an advantage.
+ - When I started writing this blog more than years ago, it was in response to traditional media’s habit of twisting interviews to fit the headlines they wanted to create.
+ - The key is having great players. But there are a lot of teams that have All-Stars and haven’t been able to put it together.
+ - Being rich is a good thing. Not just in the obvious sense of benefitting you and your family, but in the broader sense. Profits are not a zero sum game. The more you make, the more of a financial impact you can have.
+ - Sometimes you buy the horse, sometimes you invest in the jockey. It really comes down to the actual business and the upside.
+ - I love helping entrepreneurs. It’s something I really have fun doing. It’s like planting a little seed and watching it grow. Any time I can help somebody, that’s a good thing. It’s fun. If I get to make some money at it, it’s even better.
+ - You never quite know in business if what you are doing is the right or the wrong thing. Unfortunately, by the time you know the answer, someone has beaten you to it and you are out of business.
+ - In business, one of the challenges is making sure that your product is the easiest to experience and complete a sale.
+ - Know your core competencies and focus on being great at them. Pay up for people in your core competencies. Get the best. Outside the core competencies, hire people that fit your culture but aren’t as expensive to pay.
+ - Never settle. There is no need to rush.
+ - To me business is a sport. I love knowing that 24x7x365xforever I’m competing with people I don’t know. To build my businesses. To come up with new ideas. To come up with better ideas. That motivates me.
+ - Everyone is passionate about something. Usually more than one thing. We are born with it. There are always going to be things we love to do. That we dream about doing. That we really, really want to do with our lives. Those passions aren’t worth a nickel.
+ - I don’t think people realize the risks they face every time they create a text, or post on a social network. Unless you expressly make the effort, everything you do online, including texting, has a shelf life of forever.
+ - If you have managers reporting to managers in a startup, you will fail. Once you get beyond startup, if you have managers reporting to managers, you will create politics.
+ - I look at my annual budgets for everything and anything, and I look to see where I can save the most money on those items. Saving 30% to 50% buying in bulk – replenishable items from toothpaste to soup, or whatever I use a lot of – is the best guaranteed return on investment you can get anywhere.
+ - I worked hard and smarter than most people in the businesses I have been in.
+ - It would have been easy to judge effort by how many hours a day passed while I was at work. That’s the worst way to measure effort. Effort is measured by setting goals and getting results.
+ - I had been in the technology business for so long, I had seen the PC-bubble come and burst, I had seen the local area and wide area networking-bubble come and burst, it was no shock that the internet-bubble was going to burst.
+ - I create offbeat advice; I don’t follow it. I rarely take third-party advice on my investments.
+ - If you can, you will quickly find that the greatest rate of return you will earn is on your own personal spending. Being a smart shopper is the first step to getting rich.
+ - If I didn’t like you, I could take any or all of what I found and invent a context that lost you your job, your relationships, your degree. People are so vulnerable online and they don’t realize it. That is scary to me.
+ - Linking without permission is stealing. Period, end of story.
+ - Companies fail for lack of brains and effort.
+ - We can’t ever forget that the Internet now is just a staid utility. The exciting platforms are software applications that are very, very simple.
+ - Every job I took was really me getting paid to learn about a new industry.
+ - Everyone tells you how they are going to be “special”, but few do the work to get there. Do the work.
+ - I think that any reporter or columnist will be a little more careful when doing interviews with me.
+ - You never win any games you don’t play.
+ - Get me selling and I can figure out the industry. Once I can figure out the industry I can start a business in that industry.
+ - Everyone is passionate about something. Usually more than one thing. We are born with it.
+ - You learn in life that a lot of things are the result of effort, but some things, in terms of scale, are random.
+ - Every kid thinks they have something special about themselves. Every adult thinks they have a big idea at some point in their life. Rather than pursue every thing they possibly can to prepare themselves to enable their idea or special talent, they tend to wing it and make excuses.
+ - I still work hard to know my business. I’m continuously looking for ways to improve all my companies, and I’m always selling. Always.
+ - Credit cards are the WORST investment that you can make.
+ - Once you are prepared and you think you have every angle of preparation covered, you have to go for it.
+ - I’m the luckiest guy in the world. I wake up every day just fired up. My one rule is, don’t let anyone pinch me, because I don’t want to wake up.
+ - My businesses are usually built around challenging conventional wisdom, so I tend to gain by taking the other side. It’s been very profitable and entertaining for me.
+ - But we have to ask ourselves, what’s the purpose of the stock market? It’s supposed to be a source of capital for growing business. It’s lost that purpose.
+ - Yes. And release prisoners who are incarcerated for pot.
+ - If I own stock in your company and you move offshore for tax reasons I’m selling your stock. There are enough investment choices here.
+ - As processor speeds and shared processors create cheap unlimited processing power we will be able to turn our bodies into a math equation that can be crossed against the properties of medicine and nature to create medicine unique to each individual.
+ - When you post something, when you text something, you lose ownership of it when you hit enter or send. Who you send it to, where you post it, they take ownership of that information whether you like it or not.
+ - Only morons start a business on a loan?
+ - My days are straight out of the movie Groundhog Day.
+ - When I got to the Mavericks people were all giving me advice – change this, change that – and one thing that I didn’t do was fire anybody.
+ - Sometimes the best properties aren’t necessarily the biggest properties.
+ - You need a place where you can explain yourself. You can write as much or as little as you would like, but the words will be all yours. You can create the context. You can make sure that all issues are addressed. You can take issue with individuals or the media as a whole. Your words, your message.
+ - I like being involved in businesses where you are kicking ass.
+ - You always have to know what business you are in. Everybody thought we were in the basketball business. It’s an NBA-team; we are not in the basketball business. We are in the business of creating experiences and memories.
+ - I daydreamed for motivation. I didn’t lie to myself and talk about my passions and how if I was passionate enough about something I could be successful at it.
+ - I have some very special guests tonight, and I would like to give a big welcome to the Wayne State men and women’s rugby team for coming to the game tonight and to be on my TV Show.
+ - I didnt know I was mad about anything. I guess if the New York Times says I am, I must be.
+ - Kids should go to college, but they should go to the best school they can afford to get through with minimal or no debt. That might mean going to a community college or an inexpensive local state school. Whatever it takes.
+ - Brains are far more important than money or connections. Everyone and anyone can create a business out of their bedroom.
+ - If you are active online or texting, there is a good chance I could look at what you do and know more about you than your family.
+ - We can talk about republican or democratic approaches to the economy, but until you fix the student loan bubble – and that’s where the real bubble is – and the tuition bubble, we don’t have a chance. All this other stuff is shuffling deck-chairs on the Titanic.
+ - The one requirement for success in our business lives is effort. Either you make the commitment to get results or you don’t.
+ - Executives should blog if they have a vision they are trying to communicate, or if they are very visible in the media.
+ - I think political people are afraid of me.
+ - Make sure you are the boss. I don’t think I would encourage executives that work for me to blog. There can be only 1 public vision for an organization.
+ - I never look at the glass as half empty or half full. I look to see who is pouring the water and deal with them.
+ - Even when I had nothing, I had everything. Because I love to compete.
+ - One thing we can all control is effort. Put in the time to become an expert in whatever you’re doing. It will give you an advantage because most people don’t do this.
+ - YouTube has gotten so big that you’re not a standard unless YouTube adopts you. And that’s a big fight.
+ - Communicate with your fans or customers. They know we live in an ever changing world. If you tell them what you are thinking and why you are doing what you do, as I did with my blog regarding Nash leaving, they will respect and support you more.
+ - If you have managers reporting to managers in a startup, you will fail.
+ - I’m a big believer that you always reiterate, you always learn, you always realize your business is evolving.
+ - Being able to take a traditional cable-television subscriber and give them new widget type applications to me is huge.
+ - I love to compete. To me, business is the ultimate sport. It’s always on. There is always someone trying to beat me.
+ - Ideas are easy. I’ve never met a single person who didn’t think they had a world class idea. The hard part is making it a business.
+ - When you first start working for me, directly for me, I micromanage until I trust you.
+ - I’m not against government involvement in times of need. I am for recognizing that big public companies will continue to cut jobs in an effort to prop up stock prices, which in turn stimulates the need for more government involvement.
+ - I’m the one guy who says don’t force the stupid people to be quiet – I want to know who the morons are.
+ - All good businesses are personal. The best businesses are very personal.
+ - Video for the Internet has become a testing ground for mediums that actually have revenue.
+ - What I do know, at least what I think I have learned from my experiences in business, is that when there is a rush for everyone to do the same thing, it becomes more difficult to do. Not easier. Harder.
+
+206 quotes

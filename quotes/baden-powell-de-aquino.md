@@ -1,0 +1,37 @@
+ - Scouting is a game for boys under the leadership of boys under the direction of a man.
+ - The real way to gain happiness is to give it to others.
+ - In Scouting you are combating the brooding of selfishness.
+ - The Scout Oath and Law are our binding disciplinary force.
+ - The code of the knight is still the code of the gentleman today.
+ - Where is there a boy to whom the call of the wild and the open road does not appeal?
+ - You can only get discipline in the mass by discipline in the individual.
+ - A fisherman does not bait his hook with food he likes. He uses food the fish likes. So with boys.
+ - A boy is not a sitting-down animal.
+ - We must change boys from a ‘what can I get’ to a ‘what can I give’ attitude.
+ - The most important object in Boy Scout training is to educate, not instruct.
+ - We are not a club or a Sunday school class, but a school of the woods.
+ - Teach Scouts not how to get a living, but how to live.
+ - In Scouting, a boy is encouraged to educate himself instead of being instructed.
+ - Scouting is a man’s job cut down to a boy’s size.
+ - It’s the spirit within, not the veneer without, that makes a man.
+ - The Scoutmaster must be alert to check badge hunting as compared to badge earning.
+ - We do not want to make Scout training too soft.
+ - The Scoutmaster guides the boy in the spirit of an older brother.
+ - A boy can see the smoke rising from Sioux villages under the shadow of the Albert memorial.
+ - A boy on joining wants to begin Scouting right away.
+ - Scoutmasters deal with the individual boy rather than with the mass.
+ - The object of the patrol method is not so much saving the Scoutmaster trouble as to give responsibility to the boy.
+ - The boy is not governed by don’t, but is led by do.
+ - The spirit is there in every boy; it has to be discovered and brought to light.
+ - When a boy finds someone who takes an interest in him, he responds and follows.
+ - A boy is supremely confident of his own power, and dislikes being treated as a child.
+ - It should be the thing never to mention unfairness of judging when defeated in a contest.
+ - It is important to arrange games and competition so that all Scouts of the troop take part.
+ - It is only when you know a boy’s environment that you can know what influences to bring to bear.
+ - Scoutmasters need the capacity to enjoy the out-of-doors.
+ - Vigorous Scout games are the best form of physical education because most of them bring in moral education.
+ - The Good Turn will educate the boy out of the groove of selfishness.
+ - Can we not interpret our adult wisdom into the language of boyhood?
+ - Fun, fighting, and feeding! These are the three indispensable elements of the boy’s world.
+
+35 quotes

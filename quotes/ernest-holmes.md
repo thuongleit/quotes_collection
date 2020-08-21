@@ -1,0 +1,144 @@
+ - Life is a mirror and will reflect back to the thinker what he thinks into it.
+ - Change your thinking, change your life.
+ - All limitations are self-imposed.
+ - Where the mind goes energy flows.
+ - Have the will to be well, to be happy, and to live in joy.
+ - All the power of the universe is with you. Feel it, know it, and then act as though it were true.
+ - The abundance you desire to experience must first be an experience in your mind.
+ - Prepare your mind to recieve the best that life has to offer.
+ - Nothing is too good to be true.
+ - Abundance is mine. I cannot be deprived of my supply. The trees do not lack for leaves, nor do the flowers fail to bloom.
+ - Never limit your view of life by any past experience.
+ - A realization of the Presence of God is the most powerful healing agency known to the mind of man.
+ - Begin where you are. It would be unscientific to begin anywhere else.
+ - There is a Power in the universe greater than you are, and you can use it.
+ - The Divine Plan is one of Freedom. The inherent nature of man is ever seeking to express itself in terms of freedom, because freedom is the birthright of every living soul.
+ - We are bound by nothing except belief.
+ - Love is the sole impulse for creation; and the man who does not have it as the greatest incentive in his life has never developed the real creative instinct. No one can swing out into the Universal without love, for the whole universe is based upon it.
+ - Like attracts like and we attract just what we are in mind.
+ - You are more than you appear to be – Life is greater than you have ever known it – The best is yet to come.
+ - The whole world, from the least to the greatest, must know the truth, so that man may understand the great laws that govern his life. He must learn to control his own destiny, to heal his own body and bring happiness to his own soul.
+ - If the philosophy of Christianity were lived, wars would cease, unhappiness would cease, economic problems would be solved, poverty would be wiped from the face of the earth, and man’s inhumanity to man would be transmuted into a spirit of mutual helpfulness.
+ - Let the inner ear listen to the voice of truth that is always speaking.
+ - Know that nothing can hinder you but yourself. If you believe you can, you can.
+ - Stop trying, stop struggling; begin to be calm, to trust in the higher laws of life, even though you do not see them; they are still there.
+ - Gratitude is one of the chief graces of human existence and is crowned in heaven with a consciousness of unity.
+ - Believe as though you are, and you will be...
+ - Anyone can heal who believes that he can and will take the time to put that belief into motion.
+ - Thoughts of lack manifest as limitation. Thoughts of abundance manifest as success and happiness. Failure and success are but two ends of the same stick.
+ - Instead of dwelling on negative thoughts, cause your mind to dwell on peace and joy.
+ - Practically the whole human race is hypnotized because it thinks what somebody else told it to think.
+ - Peace comes from the absence of fear, from a consciousness of trust, from a deep, underlying faith in the absolute goodness and mercy, the final integrity of the universe in which we live, and of every cause to which we give our thought, our time and our attention.
+ - There is One Infinite Spirit and every time man says, “I am” he proclaims it.
+ - We must be convinced that abundance is the natural state of the Universe. To experience and accept abundance in our life, we must be convinced that as we conceive and believe, the Universe handles the details.
+ - Prayer is a thought, a belief, a feeling, arising within the mind of the one praying.
+ - With a penetrating vision you can dissipate the obstruction, remove the obstacle, dissolve the wrong condition.
+ - When we learn to trust the universe, we shall be happy, prosperous and well.
+ - Healing is the discovery of the Divinity within.
+ - True teaching liberates the student from his teacher.
+ - I live in the faith that there is a Presence and Power greater than I am that nurtures and supports me in ways I could not even imagine. I know that this Presence is All knowing and All Power and is Always right where I am.
+ - My affairs are in the keeping of Infinite Wisdom. I am guided by Divine Intelligence. The activity of Spirit inspires my mind and flows through my actions. Life lies open to me, rich, full and abundant.
+ - All emerge from that One Whose Being is ever present and Whose Life, robed in numberless forms, is manifest throughout all creation. Creation is the logical result of the out-push of Life into self-expression.
+ - True imagination is not fanciful daydreaming; it is fire from heaven.
+ - Faith is a mental attitude that is so convinced of its own idea – which so completely accepts it – that any contradiction is unthinkable and impossible.
+ - Fear brings failure; faith brings success. It’s just that simple.
+ - We must have a spiritual rebirth. We must be born out of the belief in externalities into the belief of inner realities, out of the belief that we are separated from God, into the belief that we are part of a Unitary Wholeness.
+ - We have within us, a power that is greater than anything we shall ever contact in the outer, a power that can overcome every obstacle in our life and set us safe, satisfied and at peace, healed and prosperous, in a new light, and in a new life.
+ - Life is ever giving of Itself. We must receive, utilize and extend the gift. Success and prosperity are spiritual attributes belonging to all people.
+ - Drop all negative thoughts from the mind. Do not dwell on adversity but think plenty into everything, for there is power in the word. Meditate on the things you are doing as being already done – complete and perfect.
+ - Every thought has a consequence. And every experience has a causative thought behind it.
+ - You can attract only that which you mentally become and feel yourself to be in reality.
+ - Trust in your own self more than in all else.
+ - Any thought which tends to inspire, to comfort, and to give peace to the mind is good.
+ - A constant realization of the presence of Spirit will provide a sense of Divine Companionship that no other attitude could produce.
+ - We are chemists in the laboratory of the Infinite. What, then shall we create?
+ - Heaven is within us, and we experience it to the degree that we become conscious of it.
+ - No person whose entire time is spent in the contemplation of limitation can demonstrate freedom from such limitation.
+ - Within us is the unborn possibility of limitless experience. Ours is the privilege of giving birth to it!
+ - We can no more do without spirituality than we can do without food, shelter, or clothing.
+ - I am a gift of joy that God gives to a wonderful world.
+ - God is all there is – God includes everything, all possibility and all action, for Spirit is the invisible essence and substance of all form.
+ - Divine Intelligence working through me always knows just what I need and always supplies it when I need it.
+ - Seek to make your work a prayer, your believing an act, your living an art. It is then that the object of your faith will be made visible to you. It is then that you shall ‘kiss the lips of your desire.’
+ - One who has learned to love all people will find plenty of people who will return that love.
+ - Everything necessary to the full and complete expression of the most boundless experience of joy is mine now.
+ - Love is at the Center of our being, and the calm, continuous pulsations of life are governed by Love.
+ - God wills us to have everything. As we express life, we fulfill God’s law of abundance, but we do this only as we realize that there is good enough to go around-only as we know that all of God’s gifts are given as freely and fully as the air and the sunshine.
+ - When prayer removes distrust and doubt and enters the field of mental certainty, it becomes faith; and the universe is built on faith.
+ - Spirituality is natural goodness. God is not a person; God is a presence personified in us. Spirituality is not a thing; it is the atmosphere of God’s Presence, goodness, truth, and beauty.
+ - We are continuously living a new life, and when the old and the new do not fit nicely together, the old – no longer able to contain the new – should be discarded.
+ - The Science of Mind is intensely practical because it teaches us how to use the Mind Principle for definite purposes, such as helping those who are sick, impoverished, or unhappy.
+ - Through the art of affirmative prayer the limitless resources of the Spirit are at my command. The power of the Infinite is at my disposal.
+ - We are born to create, and we can’t help it. Why is that? Because God, the great Creator, is in us.
+ - It is right that we should be successful, for otherwise Spirit is not expressed.
+ - The person who is to succeed will never let his mind dwell on past mistakes. He will forgive the past in his life and in the lives of other people. If he makes a mistake he will at once forgive it.
+ - Let us waste no further time looking for the secret of success or the key to happiness. Already the door is open and whosoever will, may enter.
+ - Too often, our minds are so burdened because of the mistakes we have made that we do not take the time to forgive ourselves and others and start over again.
+ - The mind of man is continuously unfolding into a greater recognition of its real plan in the creative order of the Universe.
+ - Enthusiasm reaches out with joy, for there is nothing depressing about it; it reaches out in faith, for there is no fear in it; it reaches out with acceptance, for there is no doubt in it; it reaches out as a child for there is no uncertainty about it.
+ - Wait for the idea. It may not come at first, but you must be patient, never doubting, waiting in faith. It will come.
+ - It is impossible for a man to conceal himself. In every act, word or gesture he stands revealed as he is, and not as he would have himself appear to be. From the Universe, nothing is or an be hidden.
+ - With every pill we have prescribed for us we should also be given a creative prayer, a suggested way to correct our destructive patterns of thought.
+ - If you wish to know the truth about your business or your profession, know that it is an activity of good. It is an activity of your partnership with the infinite.
+ - We are all immersed in the atmosphere of our own thinking. This decides what shall take place in our lives.
+ - A state of expectancy is a great assetl; a state of uncertainty-one moment thinking “perhaps” and the next moment thinking “I don’t know”-will never get desired results.
+ - The whole thing resolves itself into our mental ability to control our thought. The man who can do this can have what he wants, can do what he wishes and becomes what he wills...
+ - We are not depending on a reed shaken by the wind, but on the Priniciple of Life Itself, for all that we have or ever shall need. It is not some Power, or a great Power, it is all power.
+ - The truth is true wherever you find it. Remember, sugar is sweet whether you find it in a sugar bowl or a dust pan.
+ - That which distinguishes the new thought from the old is not a denial of this Divine Reality, but an affirmation of its immediate availability.
+ - A consciousness of God releases the greatest power of all.
+ - As our thought is opened and we behold the image of eternity within ourselves, we are changed by this image into a newness of life.
+ - There is a Power around you that knows and that understands all things. This Power works like the soil; it receives the seed of your thought and at once begins to operate upon it. It will receive whatever you give to it and will create for you and throw back at you whatever you think into it.
+ - Teach and practice, practice and teach – that is all we have; that is all we are good for; that is all we ever ought to do.
+ - The intellect is a cold thing and a merely intellectual idea will never stimulate thought in the same manner that a spiritual idea does.
+ - The thought of judgment, criticism and condemnation must, in time, operate against the one who sets it into motion.
+ - Life is greater than you have ever known it.
+ - To the soul that knows its own divinity, all else must gravitate.
+ - I am guided by the same intelligence and inspired by the same imagination which scatters the moon beams across the waves and holds the forces of nature in it’s grasp.
+ - We may stumble, but always there is that eternal voice, forever whispering within our ear, that thing which causes the eternal quest, that thing which forever sings and sings.
+ - We should daily feel a deeper union with Life, a greater sense of that Indwelling God – the God of the seen and of the unseen – within us.
+ - No one can rob us of our own soul, and our spirit is already one with the eternal goodness.
+ - Joy has come to live with me. How can I be sad? I do so love Thy presence, which is joy within me.
+ - There is One Infinite Mind, which of necessity includes all that is, whether it be the intelligence in man, the life in the animal, or the invisible Presence which is God.
+ - In principle the great religions of the world do not differ as much as they appear to.
+ - When we conceive a new idea we are thinking directly from the creativity of God.
+ - Since each soul is some part of the Whole, it is impossible that any soul can be lost.
+ - Never let anything cause you to doubt your ability to demonstrate the Truth.
+ - Our vision is beclouded and the pathway of our progress is obstructed until we come to know that god can and does express as Good in every person and every situation.
+ - ANYONE may become a revealer of Truth who lives in close contact with the indwelling God.
+ - What you are looking for is what you are looking with.
+ - To the man who can perfectly practice inaction, all things are possible.
+ - There is but one ultimate Power. This Power is to each one what he is to it.
+ - But even in the Christian religion, much of its real meaning is hidden by words that are misleading and symbols that but few understand.
+ - Each one of us is an outlet to God and an inlet to God.
+ - We cannot lead a choiceless life. Every day, every moment, every second, there is a choice. If it were not so, we would not be individuals.
+ - To believe in a just law of cause and effect, carrying with it a punishment or a reward, is to believe in righteousness.
+ - It is necessary for us to understand that the only Active Principle is Spirit.
+ - I do not believe that God has imposed suffering upon anyone to punish them or to teach them a lesson.
+ - But we are born to be happy, to be abundantly supplied with every good thing, to have fun in living, to consciously unite with the Divine Power that is around us and within us, and to grow and expand forever.
+ - Whatever the mind holds to and firmly believes in, forms a new pattern of though within its creative mold, as whatever thought is held in the mind tends to take outward form in new creations.
+ - You are to have implicit confidence in your own ability, knowing that it is the nature of thought to externalize itself in your health and affairs, knowing that you are the thinker.
+ - The greatest good that can come to anyone is forming within them an absolute certainty of themselves, and of their relationship to the Universe, forever removing the sense of heaven as being outside of them.
+ - Love is the victor in every case. Love breaks down the iron bars of thought, and sets the captive free.
+ - Electricity was a reality in the universe when Moses led the children of Israel out of the land of Egypt. This is true of all natural laws; they have always existed but only when understood may they be used.
+ - Borrowing knowledge of reality from all sources, taking the best from every study, Science of Mind brings together the highest enlightenment of the ages.
+ - The universe must exist for the self-expression of God and the delight of God.
+ - Life externalizes at the level of our thought.
+ - As you discover your daily good, and believe in it, and think about it, expect it to continue.
+ - We are to look for God in each other and love this God, forgetting all else...
+ - The road to freedom lies not through mysteries or occult performances, but through the intelligent use of natural forces and laws.
+ - The Power which creates and sustains everything is now creating everything necessary to my happiness.
+ - The highest God and the innermost God is one God.
+ - Just what is meant by ‘your word?’ It means your conscious intention, your conscious direction, your conscious faith and acceptance that, because of what you are doing, the Power of Spirit will flow through your word in the direction you give It.
+ - You can be on the cusp of something. Appreciate the cusp, not the something. Appreciate this moment now.
+ - The universal Mind contains all knowledge. It is the potential ultimate of all things. To it, all things are possible.
+ - There was a time when a man was so convinced that the world was round that he was determined to prove it.
+ - Blessing: Constructive thought directed toward anyone or condition. You bless a man when you recognize the divinity in him.
+ - We already live in a Perfect Universe, but It needs to be seen mentally before It can become a part of our experience.
+ - It is done to you as you believe.
+ - God gives some more than others because some accept more than others.
+ - Begin to act from your dominion. Declare the truth by telling yourself that there is nothing to be afraid of, that you no longer entertain any images of fear.
+ - Mind exists as a Principle in the universe, just as electricity exists as a principle.
+ - We live in a spiritual Universe. God is in, through, around and for us.
+
+142 quotes

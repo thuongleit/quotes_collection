@@ -1,0 +1,81 @@
+ - Follow love and it will flee, flee love and it will follow thee.
+ - Fair words cost nothing.
+ - Thus shadow owes its birth to light.
+ - In love we are all fools alike.
+ - The luxury of doing good surpasses every other personal enjoyment.
+ - Exercise thy lasting youth defends.
+ - Give me, kind heaven, a private station, a mind serene for contemplation.
+ - Whence is thy learning? Hath thy toil O’er books consumed the midnight oil?
+ - If with me you’d fondly stray Over the hills and far away.
+ - From kings to cobblers ‘tis the same; Bad servants wound their masters’ fame.
+ - Lions, wolves, and vultures don’t live together in herds, droves or flocks. Of all animals of prey, man is the only sociable one. Every one of us preys upon his neighbor, and yet we herd together.
+ - Why is the hearse with scutcheons blazon’d round, And with the nodding plume of ostrich crown’d? No; the dead know it not, nor profit gain; It only serves to prove the living vain.
+ - Around the steel no tortur’d worm shall twine, No blood of living insect stain my line; Let me, less cruel, cast the feather’d hook, With pliant rod athwart the pebbled brook, Silent along the mazy margin stray, And with the fur-wrought fly delude the prey.
+ - No retreat. No retreat. They must conquer or die who’ve no retreat.
+ - Praising all alike, is praising none.
+ - How happy could I be with either, Were t’other dear charmer away!
+ - In beauty faults conspicuous grow; The smallest speck is seen on snow.
+ - Cowards are cruel, but the brave love mercy and delight to save.
+ - When we risk no contradiction, It prompts the tongue to deal in fiction.
+ - Envy’s a sharper spur than pay.
+ - Nor love, not honor, wealth nor power, can give the heart a cheerful hour when health is lost. Be timely wise; With health all taste of pleasure flies.
+ - Breathe soft, ye winds! ye waves, in silence sleep!
+ - If the heart of a man is depressed with cares, The mist is dispell’d when a woman appears; Like the notes of a fiddle, she sweetly, sweetly Raises the spirits, and charms our ears.
+ - A man is always afraid of a woman that loves him too much.
+ - Envy is a kind of praise.
+ - Fill it up. I take as large draughts of liquor as I did of love. I hate a flincher in either.
+ - By outward show let’s not be cheated; An ass should like an ass be treated.
+ - In every age and clime we see Two of a trade can never agree.
+ - Who friendship with a knave hath made, Is judged a partner in the trade.
+ - Lest men suspect your tale untrue, Keep probability in view.
+ - Music might tame and civilize wild beasts, but ’tis evident it never yet could tame and civilize musicians.
+ - To shoot at crows is powder flung away.
+ - A Wolf eats sheep but now and then; Ten thousands are devour’d by men. An open foe may prove a curse, but a pretend friend is worse.
+ - Beasts kill for hunger, men for pay.
+ - Fair is the marigold, for pottage meet.
+ - Shall ignorance of good and ill Dare to direct the eternal will? Seek virtue, and of that possest, To Providence resign the rest.
+ - Youth’s the season made for joys, Love is then our duty.
+ - I know you lawyers can with ease, Twist words and meanings as you please; That language, by your skill made pliant, Will bend to favour every client; That ’tis the fee directs the sense, To make out either side’s pretense.
+ - Envy’s a sharper spur than pay: No author ever spar’d a brother; Wits are gamecocks to one another.
+ - The fly that sips treacle is lost in the sweets.
+ - Here Shock, the pride of all his kind, is laid, Who fawned like man, but ne’er like man betrayed.
+ - Sure men were born to lie, and women to believe them!
+ - You can only be called a hypocrite if you judge others first.
+ - A rich rogue nowadays is fit company for any gentleman; and the world, my dear, hath not such a contempt for roguery as you imagine.
+ - Can love be controll’d by advice?
+ - Fools may our scorn, not envy, raise. For envy is a kind of praise.
+ - What frenzy dictates, jealousy believes.
+ - How, like a moth, the simple maid Still plays around the flame!
+ - What happiness the rural maid attends, In cheerful labour while each day she spends! She gratefully receives what Heav’n has sent, And, rich in poverty, enjoys content.
+ - One common fate we both must prove; You die with envy, I with love.
+ - My lodging is on the cold ground, And hard, very hard, is my fare, But that which grieves me more Is the coldness of my dear.
+ - But his kiss was so sweet, and so closely he pressed, that I languished and pined till I granted the rest.
+ - I hate the man who builds his name On ruins of another’s fame. Thus prudes, by characters o’erthrown, Imagine that they raise their own. Thus Scribblers, covetous of praise, Think slander can transplant the bays.
+ - Man may escape from rope and gun; Nay, some have outlived the doctor’s pill: Who takes a woman must be undone, That basilisk is sure to kill. The fly that sips treacle is lost in the sweets, So he that tastes woman, woman, woman, He that tastes woman, ruin meets.
+ - Who hath not heard the rich complain Of surfeits, and corporeal pain? He barr’d from every use of wealth, Envies the ploughman’s strength and health.
+ - Is there no hope? the sick man said, The silent doctor shook his head, And took his leave with signs of sorrow, Despairing of his fee to-morrow.
+ - A woman’s friendship ever ends in love.
+ - Twas when the seas were roaring With hollow blasts of wind, A damsel lay deploring, All on a rock reclined.
+ - Fair is the kingcup that in meadow blows, Fair is the daisy that beside her grows.
+ - So comes a reck’ning when the banquet’s o’er, The dreadful reckn’ning, and men smile no more.
+ - To cheat a man isnothing; but the womanmust have fine parts indeed who cheats a woman!
+ - What then in love can woman do? If we grow fond they shun us. And when we fly them, they pursue: But leave us when they’ve won us.
+ - Variety’s the source of joy below, From whence still fresh-revolving pleasures flow, In books and love the mind one end pursues, And only change the expiring flames renews.
+ - O Polly, you might have toyed and kissed, by keeping men off, you keep them on.
+ - Of all the fools that pride can boast, A Coxcomb claims distinction most.
+ - Were I laid on Greenland’s Coast, And in my Arms embrac’d my Lass; Warm amidst eternal Frost, Too soon the Half Year’s Night would pass.
+ - She who has never lov’d, has never liv’d.
+ - The sun was set; the night came on apace, And falling dews bewet around the place; The bat takes airy rounds on leathern wings, And the hoarse owl his woeful dirges sings.
+ - No author ever spar’d a brother.
+ - One wife is too much for most husbands to bear, But two at a time there’s no mortal can bear.
+ - When if or chance or hunger’s powerful sway Directs the roving trout this fatal way, He greedily sucks in the twining bait, And tugs and nibbles the fallacious meat. Now, happy fisherman; now twitch the line! How thy rod bends! behold, the prize is thine!
+ - Look round, the wrecks of play behold; Estates dismember’d, mortgaged, sold! Their owners now to jails confin’d, Show equal poverty of mind.
+ - Do you think your mother and I should have lived comfortably so long together, if ever we had been married? Baggage!
+ - Gulliver was soon being read “from the cabinet council to the nursery”.
+ - Who talks much, must talk in vain.
+ - I must have women – there is nothing unbends the mind like them.
+ - Of all mechanics, of all servile handycrafts-men, a gamester is the vilest. But yet, as many of the quality are of the profession, he is admitted amongst the politest company.
+ - And when a lady’s in the case, You know, all other things give place.
+ - There is no dependence that can be sure but a dependence upon one’s self.
+
+79 quotes

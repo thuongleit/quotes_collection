@@ -1,0 +1,42 @@
+ - Do your practice and all is coming. ~~K. Pattabhi Jois
+ - Learn to be calm and you will always be happy. ~~Paramahansa Yogananda
+ - You must find the place inside yourself where nothing is impossible. ~~Deepak Chopra
+ - Ego says, “Once everything falls into place, I’ll feel peace”. Spirit says, “Find your peace, and then everything will fall into place”. ~~Marianne Williamson
+ - Without inner peace, outer peace is impossible. ~~Geshe Kelsang Gyatso
+ - In the end, only three things matter: how much you loved, how gently you lived, and how gracefully you let go of things not meant for you. ~~Buddha
+ - Love is the bridge between you and everything. ~~Rumi
+ - I have been a seeker and I still am, but I stopped asking the books and the stars. I started listening to the teaching of my Soul. ~~Rumi
+ - The game is not about becoming somebody, it’s about becoming nobody. ~~Ram Dass
+ - Man is made by his belief. As he believes, so he is. ~~Johann Wolfgang von Goethe
+ - Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along. ~~Paramahansa Yogananda
+ - We have never arrived. We are in a constant state of becoming. ~~Bob Dylan
+ - Be at least as interested in what goes on inside you as what happens outside. If you get the inside right, the outside will fall into place. ~~Eckhart Tolle
+ - It is no measure of health to be well adjusted to a profoundly sick society. ~~Jiddu Krishnamurti
+ - As I began to love myself I found that anguish and emotional suffering are only warning signs that I was living against my own truth. Today, I know, this is “AUTHENTICITY”. ~~Charlie Chaplin
+ - He who is persistent will realize God. So try your best to make meditation a regular experience in your life. ~~Paramahansa Yogananda
+ - Wear gratitude like a cloak and it will feed every corner of your life. ~~Rumi
+ - Yoga is not an ancient myth buried in oblivion. It is the most valuable inheritance of the present. It is the essential need of today and the culture of tomorrow. ~~Satyananda Saraswati
+ - Wake at dawn with a winged heart and give thanks for another day of loving. ~~Khalil Gibran
+ - Mindfulness helps you go home to the present. And every time you go there and recognize a condition of happiness that you have, happiness comes. ~~Nhat Hanh
+ - Meditation is not a way of making your mind quiet. It is a way of entering into the quiet that is already there – buried under the 50,000 thoughts the average person thinks every day. ~~Deepak Chopra
+ - Whatever is worth doing is worth doing well. ~~Lewis Carroll
+ - The trouble with most of us is that we would rather be ruined by praise than saved by criticism. ~~Norman Vincent Peale
+ - Speak a new language so that the world will be a new world. ~~Rumi
+ - If you want to find God, hang out in the space between your thoughts. ~~Alan Cohen
+ - Forget injuries, never forget kindnesses. ~~Confucius
+ - My workout is my meditation. ~~Kyle MacLachlan
+ - Whatever you lost through fate, be certain that it saved you from pain. ~~Rumi
+ - The soul has been given its own ears to hear things mind does not understand. ~~Rumi
+ - Diseases of the soul are more dangerous and more numerous than those of the body. ~~Marcus Tullius Cicero
+ - Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts. ~~Paramahansa Yogananda
+ - You are an aperture through which the universe is looking at and exploring itself. ~~Alan Watts
+ - The spiritual journey is individual, highly personal. It can’t be organized or regulated. It isn’t true that everyone should follow one path. Listen to your own truth. ~~Ram Dass
+ - Live with intention. Walk to the edge. Listen hard. Practice wellness. Play with abandon. Laugh. Choose with no regret. Appreciate your friends. Continue to learn. Do what you love. Live as if this is all there is. ~~Mary Anne Radmacher
+ - The secret of karma yoga which is to perform actions without any fruitive desires is taught by Lord Krishna in the Bhagavad-Gita. ~~Swami Vivekananda
+ - Being the richest man in the cemetery doesn’t matter to me. Going to bed at night saying we’ve done something wonderful, that’s what matters to me. ~~Steve Jobs
+ - When anger rises, think of the consequences. ~~Confucius
+ - When it comes right down to it, all you have is your self. Your Self is a sun with a thousand rays... ~~Pablo Picasso
+ - Healing does not mean going back to the way things were before, but rather allowing what is now to move us closer to God. ~~Ram Dass
+ - I also do a lot of Kundalini yoga. ~~Russell Brand
+
+40 quotes

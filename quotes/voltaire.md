@@ -1,0 +1,502 @@
+ - Judge a man by his questions rather than by his answers.
+ - I don’t know where I am going, but I am on my way.
+ - The most important decision you make is to be in a good mood.
+ - The more I read, the more I acquire, the more certain I am that I know nothing.
+ - Every man is guilty of all the good he did not do.
+ - Common sense is not so common.
+ - Writing is the painting of the voice.
+ - Think for yourself and let others enjoy the privilege of doing so too.
+ - I do not agree with what you have to say, but I’ll defend to the death your right to say it.
+ - The art of medicine consists in amusing the patient while nature cures the disease.
+ - Don't think money does everything or you are going to end up doing everything for money.
+ - It is better to risk saving a guilty person than to condemn an innocent one.
+ - No problem can withstand the assault of sustained thinking.
+ - My life is a struggle.
+ - The happiest of all lives is a busy solitude.
+ - To succeed in the world it is not enough to be stupid - one must also be well-mannered.
+ - Those who can make you believe absurdities can make you commit atrocities.
+ - Doubt is not a pleasant condition, but certainty is absurd.
+ - It is forbidden to kill; therefore all murderers are punished unless they kill in large numbers and to the sound of trumpets.
+ - Let us read, and let us dance; these two amusements will never do any harm to the world.
+ - The longer we dwell on our misfortunes, the greater is their power to harm us
+ - Man is free at the moment he wishes to be.
+ - The best is the enemy of the good.
+ - God gave us the gift of life; it is up to us to give ourselves the gift of living well.
+ - It is difficult to free fools from the chains they revere.
+ - Present opportunities are not to be neglected; they rarely visit us twice.
+ - If you want to know who controls you, look at who you are not allowed to criticize.
+ - History never repeats itself. Man always does.
+ - Appreciation is a wonderful thing: It makes what is excellent in others belong to us as well.
+ - Prejudices are what fools use for reason.
+ - Work spares us from three evils: boredom, vice, and need.
+ - God is a circle whose center is everywhere and circumference nowhere.
+ - Paper money eventually returns to its intrinsic value – zero.
+ - May God defend me from my friends: I can defend myself from my enemies.
+ - Faith consists in believing when it is beyond the power of reason to believe.
+ - The biggest reward for a thing well done is to have done it.
+ - Men argue. Nature acts.
+ - Paradise is where I am.
+ - What is history? The lie that everyone agrees on...
+ - Prejudice is opinion without judgement.
+ - Be bold, proclaim it everywhere: They only live who dare.
+ - A witty saying proves nothing.
+ - When it is a question of money, everybody is of the same religion.
+ - Cherish those who seek the truth but beware of those who find it.
+ - It is not more surprising to be born twice than once; everything in nature is resurrection.
+ - Doubt is uncomfortable, certainty is ridiculous.
+ - If you wish to converse with me, define your terms.
+ - I have never made but one prayer to God, a very short one: ‘O Lord make my enemies ridiculous.’ And God granted it.
+ - Let us cultivate our garden.
+ - All the reasonings of men are not worth one sentiment of women.
+ - Fanaticism is a monster that pretends to be the child of religion.
+ - We’re neither pure, nor wise, nor good; we do the best we know.
+ - Liberty of thought is the life of the soul.
+ - Optimism is the madness of insisting that all is well when we are miserable.
+ - God created woman to tame man.
+ - One should always aim at being interesting, rather than exact.
+ - Men will always be mad, and those who think they can cure them are the maddest of all.
+ - It is clear that the individual who persecutes a man, his brother, because he is not of the same opinion, is a monster.
+ - We must cultivate our own garden. When man was put in the garden of Eden he was put there so that he should work, which proves that man was not born to rest.
+ - The more often a stupidity is repeated, the more it gets the appearance of wisdom.
+ - Tears are the silent language of grief.
+ - Dare to think for yourself.
+ - We adore, we invoke, we seek to appease, only that which we fear.
+ - I would rather obey a fine lion, much stronger than myself, than two hundred rats of my own species.
+ - We look to Scotland for all our ideas of civilisation.
+ - Perfection is attained by slow degrees; it requires the hand of time.
+ - To enjoy life we must touch much of it lightly.
+ - The instinct of a man is to pursue everything that flies from him, and to fly from all that pursue him.
+ - If God did not exist, He would have to be invented. But all nature cries aloud that he does exist: that there is a supreme intelligence, an immense power, an admirable order, and everything teaches us our own dependence on it.
+ - Language is a very difficult thing to put into words.
+ - The composition of a tragedy requires testicles.
+ - Meditation is the dissolution of thoughts in Eternal awareness or Pure consciousness without objectification, knowing without thinking, merging finitude in infinity.
+ - There are some that only employ words for the purpose of disguising their thoughts.
+ - Life is a shipwreck but we must remember to sing in the lifeboats.
+ - History is nothing but a pack of tricks that we play upon the dead.
+ - It is an infantile superstition of the human spirit that virginity would be thought a virtue and not the barrier that separates ignorance from knowledge.
+ - I have chosen to be happy because it is goo for my health.
+ - I am convinced that everything has come down to us from the banks of the Ganges, astronomy, astrology, metempsychosis, etc...
+ - Constant happiness is the philosopher’s stone of the soul.
+ - Our wretched species is so made that those who walk on the well-trodden path always throw stones at those who are showing a new road.
+ - Wherever my travels may lead, paradise is where I am.
+ - History consists of a series of accumulated imaginative inventions.
+ - The only way to comprehend what mathematicians mean by Infinity is to contemplate the extent of human stupidity.
+ - A witty saying proves nothing, but saying something pointless gets people’s attention.
+ - Man is not born wicked; he becomes so, as he becomes sick.
+ - The institution of religion exists only to keep mankind in order, and to make men merit the goodness of God by their virtue. Everything in a religion which does not tend towards this goal must be considered foreign or dangerous.
+ - History is the lie commonly agreed upon.
+ - Atheism is the vice of a few intelligent people.
+ - Errors flies from mouth to mouth, from pen to pen, and to destroy it takes ages.
+ - Whoever serves his country well has no need of ancestors.
+ - Superstition is to religion what astrology is to astronomy the mad daughter of a wise mother. These daughters have too long dominated the earth.
+ - God created sex. Priests created marriage.
+ - Where some states possess an army, the Prussian Army possesses a state.
+ - The world embarrasses me, and I cannot dream that this watch exists and has no watchmaker.
+ - He was not the greatest of men but he was the greatest of kings.
+ - Virtuous men alone possess friends.
+ - Weakness on both sides is, as we know, the motto of all quarrels.
+ - It is not sufficient to see and to know the beauty of a work. We must feel and be affected by it.
+ - Everything you say should be true, but not everything true should be said.
+ - Very often, say what you will, a knave is only a fool.
+ - He was my equal in beauty, a paragon of grace and charm, sparkling with wit, and burning with love. I adored him to distraction, to the point of idolatry: I loved him as one can never love twice.
+ - Love truth, but pardon error.
+ - God is a comedian playing to an audience that is too afraid to laugh.
+ - In France every man is either an anvil or a hammer; he is a beater or must be beaten.
+ - Every man is a creature of the age in which he lives and few are able to raise themselves above the ideas of the time.
+ - The progress of rivers to the ocean is not so rapid as that of man to error.
+ - Men hate the individual whom they call avaricious only because nothing can be gained from him.
+ - Shun idleness. It is rust that attaches itself to the most brilliant metals.
+ - Doctors put drugs of which they know little into bodies of which they know less for diseases of which they know nothing at all.
+ - A long dispute means both parties are wrong.
+ - We never live; we are always in the expectation of living.
+ - It is dangerous to be right when the government is wrong.
+ - You must have the devil in you to succeed in the arts.
+ - Give me the patience for the small things of life, courage for the great trials of life. Help me to do my best each day and then go to sleep knowing God is awake.
+ - There is no such thing as an accident. What we call by that name is the effect of some cause which we do not see.
+ - Why are the Jews hated? It is the inevitable result of their laws; they either have to conquer everybody or be hated by the whole human race...
+ - It is not the answers you give, but the questions you ask.
+ - To hold a pen is to be at war.
+ - He who thinks himself wise, O heavens! is a great fool.
+ - We are all full of weakness and errors; let us mutually pardon each other our follies – it is the first law of nature.
+ - It is lamentable, that to be a good patriot one must become the enemy of the rest of mankind.
+ - Use, do not abuse; neither abstinence nor excess ever renders man happy.
+ - Changing a habit is hard work. But it’s harder to find work that would be more fulfilling.
+ - The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone else’s eyes.
+ - The hallmark of a free society is that I may totally disapprove of what you say, but I’ll defend your right to say it until I die.
+ - The right to free speech is more important than the content of the speech.
+ - An ideal form of government is democracy tempered with assassination.
+ - To the living we owe respect, but to the dead we owe only the truth.
+ - The safest course is to do nothing against one’s conscience. With this secret, we can enjoy life and have no fear from death.
+ - You have no control over the hand that life deals you, but how you play that hand is entirely up to you.
+ - Madness is to think of too many things in succession too fast, or of one thing too exclusively.
+ - I have no morals, yet I am a very moral person.
+ - Superstition sets the whole world in flames, but philosophy douses them.
+ - The human brain is a complex organ with the wonderful power of enabling man to find reasons for continuing to believe whatever it is that he wants to believe.
+ - He who has not the spirit of this age, has all the misery of it.
+ - All men have equal rights to liberty, to their property, and to the protection of the laws.
+ - In the case of news, we should always wait for the sacrament of confirmation.
+ - Nature has always had more force than education.
+ - A multitude of laws in a country is like a great number of physicians, a sign of weakness and malady.
+ - No, nothing has the power to part me from you; our love is based upon virtue, and will last as long as our lives.
+ - One always speaks badly when one has nothing to say.
+ - There are no sects in geometry.
+ - The supposed right of intolerance is absurd and barbaric. It is the right of the tiger; nay, it is far worse, for tigers do but tear in order to have food, while we rend each other for paragraphs.
+ - Men appear to prefer ruining one another’s fortunes, and cutting each other’s throats about a few paltry villages, to extending the grand means of human happiness.
+ - There can be no happiness without good health.
+ - The darkness is at its deepest. Just before the sunrise.
+ - Another century and there will not be a Bible on earth!
+ - Philosopher: A lover of wisdom, which is to say, Truth.
+ - The comfort of the rich depends upon an abundant supply of the poor.
+ - Wine is the divine juice of September.
+ - The man who says to me, “Believe as I do, or God will damn you,” will presently say, “Believe as I do, or I shall assassinate you.”
+ - Time is man’s most precious asset. All men neglect it; all regret the loss of it; nothing can be done without it.
+ - Historians are gossips who tease the dead.
+ - When you arise in the morning, give thanks for the morning light, for your life and strength. Give thanks for your food, and the joy of living. Tecumseh Appreciation is a wonderful thing; it makes what is excellent in others belong to us as well.
+ - It is not love that should be depicted as blind, but self-love.
+ - This agglomeration which was called and which still calls itself the Holy Roman Empire was neither holy, nor Roman, nor an empire.
+ - If God created us in his own image, we have more than reciprocated.
+ - Clever tyrants are never punished.
+ - To the wicked, everything serves as pretext.
+ - Is there anyone so wise as to learn by the experience of others?
+ - The superstitious man is to the rogue what the slave is to the tyrant.
+ - All is for the best in the best of all possible worlds.
+ - History is the study of the world’s crime.
+ - The man who, in a fit of melancholy, kills himself today, would have wished to live had he waited a week.
+ - The way to become boring is to say everything.
+ - Stand upright, speak thy thoughts, declare The truth thou hast, that all may share; Be bold, proclaim it everywhere: They only live who dare.
+ - The mouth obeys poorly when the heart murmurs.
+ - The instruction we find in books is like fire. We fetch it from our neighbours, kindle it at home, communicate it to others, and it becomes the property of all.
+ - Of all religions, the Christian should of course inspire the most tolerance, but until now Christians have been the most intolerant of all men.
+ - Let us meet four times a year in a grand temple with music, and thank God for all his gifts. There is one sun. There is one God. Let us have one religion. Then all mankind will be brethren.
+ - A false science makes atheists, a true science prostrates men before the Deity.
+ - It would be very singular that all nature, all the planets, should obey eternal laws, and that there should be a little animal five feet high, who, in contempt of these laws, could act as he pleased, solely according to his caprice.
+ - Divorce is probably of nearly the same date as marriage. I believe, however, that marriage is some weeks the more ancient.
+ - We know that all the arts are brothers, that each of them illuminates another, and that a universal light results.
+ - Satire lies about literary men while they live and eulogy lies about them when they die.
+ - A physician is one who pours drugs of which he knows little into a body of which he knows less.
+ - The most genuine and efficacious charity is that which greases the paws of the priests; such charity covers a multitude of sins.
+ - There’s scarce a point whereon mankind agree – So well as in their boast of killing me; I boast of nothing, but when I’ve a mind – I think I can be even with mankind.
+ - In all the disputes which have excited Christians against each other, Rome has invariably decided in favor of that opinion which tended most towards the suppression of the human intellect and the annihilation of the reasoning powers.
+ - Froth at the top, dregs at bottom, but the middle excellent.
+ - Inspiration: A peculiar effect of divine flatulence emitted by the Holy Spirit which hisses into the ears of a few chosen of God.
+ - What would constitute useful history? That which should teach us our duties and our rights, without appearing to teach them.
+ - Adultery is an evil only inasmuch as it is a theft; but we do not steal that which is given to us.
+ - Give me a few minutes to talk away my face and I can seduce the Queen of France.
+ - It is love; love, the comfort of the human species, the preserver of the universe, the soul of all sentient beings, love, tender love.
+ - History is only the pattern of silken slippers descending the stairs to the thunder of hobnailed boots climbing upward from below.
+ - History is filled with the sound of silken slippers going downstairs and wooden shoes coming up.
+ - Providence has given us hope and sleep as a compensation for the many cares of life.
+ - Life is bristling with thorns, and I know no other remedy than to cultivate one’s garden.
+ - If there’s life on other planets, then the earth is the Universe’s insane asylum.
+ - Marriage is the only adventure open to the cowardly.
+ - The passions are the winds which fill the sails of the vessel; they sink it at times, but without them it would be impossible to make way.
+ - Shakespeare is a drunken savage with some imagination whose plays please only in London and Canada.
+ - Persistence with patience and prayer pays with profits, prosperity and peace of mind.
+ - Indolence is sweet, and its consequences bitter.
+ - You write your name in the snow Yet say nothing.
+ - Most of my life has been one tragedy after another, most of which hasn’t happened.
+ - We are rarely proud when we are alone.
+ - Ideas are like beards; men do not have them until they grow up.
+ - Everything’s fine today, that is our illusion.
+ - Poetry is the music of the soul, and, above all, of great and feeling souls.
+ - Discord is the great ill of mankind; and tolerance is the only remedy for it.
+ - Love is a canvas furnished by nature and embroidered by imagination.
+ - Answer me, you who believe that animals are only machines. Has nature arranged for this animal to have all the machinery of feelings only in order for it not to have any at all?
+ - To caress the serpent that devours us, until it has eaten away our heart.
+ - Being unable to make people more reasonable, I preferred to be happy away from them.
+ - True power and true politeness are above vanity.
+ - Christianity is the most ridiculous, the most absurd and bloody religion that has ever infected the world.
+ - A little evil is often necessary for obtaining a great good.
+ - It is not enough to conquer; one must learn to seduce.
+ - The effervescence of this fresh wine reveals the true brilliance of the French people.
+ - Originality is nothing but judicious imitation. The most original writers borrowed one from another.
+ - Chance is a word void of sense; nothing can exist without a cause.
+ - What is madness? To have erroneous perceptions and to reason correctly from them.
+ - By appreciation, we make excellence in others our own property.
+ - Men will commit atrocities as long as they believe absurdities.
+ - God is always on the side of the heaviest battalions.
+ - Which is more dangerous: fanaticism or atheism? Fanaticism is certainly a thousand times more deadly; for atheism inspires no bloody passion whereas fanaticism does; atheism is opposed to crime and fanaticism causes crimes to be committed.
+ - All sects are different, because they come from men; morality is everywhere the same, because it comes from God.
+ - Martin in particular concluded that man was born to live either in the convulsions of misery, or in the lethargy of boredom.
+ - I envy animals for two things – their ignorance of evil to come, and their ignorance of what is said about them.
+ - Men are equal; it is not birth but virtue that makes the difference.
+ - Sometimes we are less unhappy in being deceived by those we love, than in being undeceived by them.
+ - I have a simple philosophy: Fill what’s empty. Empty what’s full. Scratch where it itches. Alice Roosevelt Longworth Life is a shipwreck but we must not forget to sing in the lifeboats.
+ - What is called happiness is an abstract idea, composed of various ideas of pleasure; for he who has but a moment of pleasure is not a happy man, in like manner that a moment of grief constitutes not a miserable one.
+ - How I like the boldness of the English, how I like the people who say what they think!
+ - Whatever you do, trample down abuses, and love those who love you. Different translation: Whatever you do, crush the infamous thing superstition, and love those who love you.
+ - Now is not the time for making new enemies.
+ - It is as impossible to translate poetry as it is to translate music.
+ - All the arts are brothers; each one is a light to the others.
+ - It is said that the present is pregnant with the future.
+ - Opinions have caused more ills than the plague or earthquakes on this little globe of ours.
+ - The discovery of what is true and the practice of that which is good are the two most important aims of philosophy.
+ - Let us help one another to bear our burdens.
+ - Every one goes astray, but the least imprudent are they who repent the soonest.
+ - If there were only one religion in England there would be danger of despotism, if there were two, they would cut each other’s throats, but there are thirty, and they live in peace and happiness.
+ - Each player must accept the cards life deals him or her: but once they are in hand, he or she alone must decide how to play the cards in order to win the game.
+ - She blushed and so did he. She greeted him in a faltering voice, and he spoke to her without knowing what he was saying.
+ - The opinion of all lawyers, the unanimous cry of the nation, and the good of the state, are in themselves a law.
+ - This self-love is the instrument of our preservation; it resembles the provision for the perpetuity of mankind: it is necessary, it is dear to us, it gives us pleasure, and we must conceal it.
+ - Nothing would be more tiresome than eating and drinking if God had not made them a pleasure as well as a necessity.
+ - Such then is the human condition, that to wish greatness for one’s country is to wish harm to one’s neighbors.
+ - The true triumph of reason is that it enables us to get along with those who do not possess it.
+ - What can you say to a man who tells you he prefers obeying God rather than men, and that as a result he’s certain he’ll go to heaven if he cuts your throat?
+ - There are truths which are not for all men, nor for all times.
+ - Let us leave every man at liberty to seek into him and to lose himself in his ideas.
+ - What can we say with certainty?
+ - Once the people begin to reason, all is lost.
+ - If God did not exist, it would be necessary to invent Him.
+ - A yawn may not be polite, but at least it is an honest opinion.
+ - He must be very ignorant for he answers every question he is asked.
+ - God is not on the side of the big battalions, but on the side of those who shoot best.
+ - The malevolence of men revealed itself to his mind in all of its ugliness.
+ - The Pride of every Jew finds cause to believe that the cause of their down fall is not their detestable politics, or ignorance of social graces, but the raft of God. They believe it took a miracle to undo them.
+ - We cannot wish for that we know not.
+ - It is one of the superstitions of the human mind to have imagined that virginity could be a virtue.
+ - I am a little deaf, a little blind, a little important and on top of this are two or three abominable infirmities, but nothing destroys my hope.
+ - The truths of religion are never so well understood as by those who have lost the power of reason.
+ - He who seeks truth should be of no country.
+ - Faith consists in believing not what seems true, but what seems false to our understanding.
+ - I have lived eighty years of life and know nothing for it, but to be resigned and tell myself that flies are born to be eaten by spiders and man to be devoured by sorrow.
+ - Opinion has caused more trouble on this little earth than plagues or earthquakes.
+ - Reading nurtures the soul, and an enlightened friend brings it solace.
+ - Heaven made virtue; man, the appearance.
+ - Self love is the instrument of our preservation.
+ - The Jews are of all peoples the grosses, the most ferocious, the most fanatical, and the most absurd.
+ - Every abuse ought to be reformed, unless the reform is more dangerous than the abuse itself.
+ - If you are attacked as regards your style, never reply; it is for your work alone to make answer.
+ - Happiness is not the portion of man.
+ - Opinion is called the queen of the world; it is so, for when reason opposes it, it is condemned to death. It must rise twenty times from its ashes to gradually drive away the usurper.
+ - Very learned women are to be found, in the same manner as female warriors; but they are seldom or ever inventors.
+ - It requires ages to destroy a popular opinion.
+ - Men, generally going with the stream, seldom judge for themselves, and purity of taste is almost as rare as talent.
+ - As you know, the Inquisition is an admirable and wholly Christian invention to make the pope and the monks more powerful and turn a whole kingdom into hypocrites.
+ - I read these words which are the sum of all moral philosophy, and which cut short all the disputes of the casuists: When in doubt if an action is good or bad, refrain.
+ - A torch lighted in the forests of America set all Europe in conflagration.
+ - Of all religions, Christianity is without a doubt the one that should inspire tolerance most.
+ - Whatever you do, crush the infamy.
+ - The adjective is the enemy of the noun. Variant: The adjective is the enemy of the substantive.
+ - I was never ruined but twice: once when I lost a lawsuit, and once when I won one.
+ - What is faith? Is it to believe that which is evident? No. It is perfectly evident to my mind that there exists a necessary, eternal, supreme, and intelligent being. This is no matter of faith, but of reason.
+ - Fear follows crime and is its punishment.
+ - The first clergyman was the first rascal who met the first fool.
+ - The Bible. That is what fools have written, what imbeciles commend, what rogues teach and young children are made to learn by heart.
+ - Democracy is just a filler for textbooks! Do you actually believe that public opinion influences the government?
+ - If we would destroy the Christian religion, we must first of all destroy man’s belief in the Bible.
+ - Twenty-volume folios will never make a revolution. It’s the little pocket pamphlets that are to be feared.
+ - If you want to kill Christianity you must abolish Sunday.
+ - Minds differ still more than faces.
+ - In this country we find it pays to shoot an admiral from time to time to encourage the others.
+ - The road to the heart is the ear.
+ - It is not inequality which is the real misfortune, it is dependence.
+ - One great use of words is to hide our thoughts.
+ - Everything can be borne except contempt.
+ - Sensual pleasure passes and vanishes, but the friendship between us, the mutual confidence, the delight of the heart, the enchantment of the soul, these things do not perish and can never be destroyed.
+ - History contains little beyond a list of people who have accommodate themselves with other people’s property.
+ - A man loved by a beautiful woman will always get out of trouble.
+ - I hold firmly to my original views. After all I am a philosopher.
+ - I serve your Beaune to my friends, but your Volnay I keep for myself.
+ - The pursuit of pleasure must be the goal of every rational person.
+ - How inexpressible is the meanness of being a hypocrite! how horrible is it to be a mischievous and malignant hypocrite.
+ - Independence in the end is the fruit of injustice.
+ - Come! you presence will either give me life or kill me with pleasure.
+ - The greatest consolation in life is to say what one thinks.
+ - Beware of the words “internal security,” for they are the eternal cry of the oppressor.
+ - When a man is in love, jealous, and just whipped by the Inquisition, he is no longer himself.
+ - A good cook is a certain slow poisoner, if you are not temperate.
+ - We must distinguish between speaking to deceive and being silent to be reserved.
+ - Men use thought only as authority for their injustice, and employ speech only to conceal their thoughts.
+ - All men are born with a nose and ten fingers, but no one was born with a knowledge of God.
+ - To believe in God is impossible not to believe in Him is absurd.
+ - It is the flash which appears, the thunderbolt will follow.
+ - The worthy administrators of justice are like a cat set to take care of a cheese, lest it should be gnawed by the mice. One bite of the cat does more damage to the cheese than twenty mice can do.
+ - The man visited by ecstasies and visions, who takes dreams for realities is an enthusiast; the man who supports his madness with murder is a fanatic.
+ - God prefers bad verses recited with a pure heart to the finest verses chanted by the wicked.
+ - In the matter of taxation, every privilege is an injustice.
+ - My life’s dream has been a perpetual nightmare.
+ - The question of good and evil remains in irremediable chaos for those who seek to fathom it in reality. It is mere mental sport to the disputants, who are captives that play with their chains.
+ - To pray to God is to flatter oneself that with words one can alter nature.
+ - It is not a mistress I have lost but half of myself, a soul for which my soul seems to have been made.
+ - Paradise was made for tender hearts; hell, for loveless hearts.
+ - The interest I have to believe a thing is no proof that such a thing exists.
+ - Let all the laws be clear, uniform and precise for interpreting laws is almost always to corrupt them.
+ - We all look for happiness, but without knowing where to find it: like drunkards who look for their house, knowing dimly that they have one.
+ - Pleasure has its time; so too, has wisdom. Make love in thy youth, and in old age attend to thy salvation.
+ - The punishment of criminals should be of use; when a man is hanged he is good for nothing.
+ - Four thousand volumes of metaphysics will not teach us what the soul is.
+ - Ice-cream is exquisite – what a pity it isn’t illegal.
+ - He was a great patriot, a humanitarian, a loyal friend; provided, of course, he really is dead.
+ - He who is involved in ecstasies and visions, who takes dreams for reality, and his own imagination for prophesy, is a fanatical novice of great hope and promise, and will soon advance to the higher stage and kill men for the love of God.
+ - Every sensible man, every honorable man, must hold the Christian sect in horror.
+ - The more you know, the less sure you are.
+ - No opinion is worth burning your neighbor for.
+ - The abuse of grace is affectation, as the abuse of the sublime is absurdity; all perfection is nearly a fault.
+ - The Jews have always been waiting for a Messiah, but their Messiah is for them only, not for us, a Messiah ho will give them mastery over the Christians.
+ - Once your faith persuades you to believe what your intelligence declares absurd, beware, lest you likewise sacrifice your reason in the conduct of your life.
+ - Injustice in the end produces independence.
+ - Villains are undone by what is worst in them, heroes by what is best.
+ - To announce truths is an infallible receipt for being persecuted.
+ - A good imitation is the most perfect originality.
+ - Go get yourself crucified and then rise on the third day.
+ - If you want good laws, burn those you have and make new ones.
+ - Thought depends absolutely on the stomach, but in spite of that, those who have the best stomachs are not the best thinkers.
+ - The famous physician Dumoulin said when dying, ‘I leave two great physicians behind me, simple food and pure water.’
+ - If there had been a censorship of the press in Rome we should have had today neither Horace nor Juvenal, nor the philosophical writings of Cicero.
+ - There are two things for which animals are to be envied: they know nothing of future evils, or of what people say about them.
+ - Slavery is also as ancient as war, and war as human nature.
+ - He is lifeless that is faultless.
+ - Governments need to have both shepherds and butchers.
+ - It is the first law of friendship that it has to be cultivated. The second is to be indulgent when the first law is neglected.
+ - I die adoring God, loving my friends, not hating my enemies, and detesting superstition.
+ - Let us work without theorizing, tis the only way to make life endurable.
+ - Tyrants have always some slight shade of virtue; they support the laws before destroying them.
+ - So it is the human condition that to wish for the greatness of one’s fatherland is to wish evil to one’s neighbors. The citizen of the universe would be the man who wishes his country never to be either greater or smaller, richer or poorer.
+ - Dogs, monkeys, and parrots are a thousand times less miserable than we are.
+ - Truth is a fruit that can only be picked when it is very ripe.
+ - Earth is an insane asylum, to which the other planets deport their lunatics.
+ - The art of government is to make two-thirds of a nation pay all it possibly can pay for the benefit of the other third.
+ - The husband who decides to surprise his wife is often very much surprised himself.
+ - This poem will never reach its destination. On Rousseau’s Ode To Posterity.
+ - If this is the best of possible worlds, what then are the others?
+ - Chess is a game which reflects most honor on human wit.
+ - All the known world, excepting only savage nations, is governed by books.
+ - He shines in the second rank, who is eclipsed in the first.
+ - Despite the enormous quantity of books, how few people read! And if one reads profitably, one would realize how much stupid stuff the vulgar herd is content to swallow every day.
+ - History is the recital of facts represented as true. Fable, on the other hand, is the recital of facts represented as fiction.
+ - God has punished the knave, and the devil has drowned the rest.
+ - In every province, the chief occupations, in order of importance, are lovemaking, malicious gossip, and talking nonsense.
+ - The tyranny of the many would be when one body takes over the rights of others, and then exercises its power to change the laws in its favor.
+ - The man who leaves money to charity in his will is only giving away what no longer belongs to him.
+ - Men are in general so tricky, so envious, and so cruel that when we find one who is only weak, we are too happy.
+ - There is only one morality, as there is only one geometry.
+ - It is fancy rather than taste which produces so many new fashions.
+ - The opportunity for doing mischief is found a hundred times a day, and of doing good once in a year.
+ - Mortals are equal; their mask differs.
+ - I hate women because they always know where things are.
+ - I loved him as we always love for the first time; with idolatry and wild passion.
+ - The sentiment of justice is so natural, and so universally acquired by all mankind, that it seems to be independent of all law, all party, all religion.
+ - Common sense is both more rare and more desirable in leaders than mere intelligence.
+ - The policy of man consists, at first, in endeavoring to arrive at a state equal to that of animals, whom nature has furnished with food, clothing, and shelter.
+ - I should like to lie at your feet and die in your arms.
+ - We cannot always oblige; but we can always speak obligingly.
+ - Where there is friendship, there is our natural soil.
+ - Luxury has been railed at for two thousand years, in verse and in prose, and it has always been loved.
+ - One feels like crawling on all fours after reading your work.
+ - When his highness sends a ship to Egypt, does he trouble his head whether the mice on board are at their ease or not?
+ - Fools admire everything in an author of reputation.
+ - The ancient Romans built their greatest masterpieces of architecture, their amphitheaters, for wild beasts to fight in.
+ - Men fed upon carnage, and drinking strong drinks, have all an impoisoned and acrid blood which drives them mad in a hundred different ways.
+ - I advise you to go on living solely to enrage those who are paying your annuities. It is the only pleasure I have left.
+ - Many are destined to reason wrongly; others, not to reason at all; and others, to persecute those who do reason.
+ - The public is a ferocious beast; one must either chain it or flee from it.
+ - I know of nothing more laughable than a doctor who does not die of old age.
+ - There are men who can think no deeper than a fact.
+ - It was decided by the university of Coimbre that the sight of several persons being slowly burned in great ceremony is an infallible secret for preventing earthquakes.
+ - The superfluous, a very necessary thing.
+ - If it’s too silly to be said, it can always be sung.
+ - All men are by nature free; you have therefore an undoubted liberty to depart whenever you please, but will have many and great difficulties to encounter in passing the frontiers.
+ - Virtue debases itself in justifying itself.
+ - Exaggeration, the inseparable companion of greatness.
+ - If you have two religions in your land, the two will cut each other’s throats; but if you have thirty religions, they will dwell in peace.
+ - How pleasant it is for a father to sit at his child’s board. It is like an aged man reclining under the shadow of an oak which he has planted.
+ - The first step, my son, which one makes in the world, is the one on which depends the rest of our days.
+ - England has forty-two religions and only two sauces.
+ - Do well and you will have no need for ancestors.
+ - We have a natural right to make use of our pens as of our tongue, at our peril, risk and hazard.
+ - Our priests are not what a silly populace supposes; all their learning consists in our credulity.
+ - The necessity of saying something, the embarrassment produced by the consciousness of having nothing to say, and the desire to exhibit ability, are three things sufficient to render even a great man ridiculous.
+ - A woman can keep one secret the secret of her age.
+ - Fame is a heavy burden.
+ - If there are atheists, who is to be blamed if not the mercenary tyrants of souls who, in revolting us against their swindles, compel some feeble spirits to deny the God whom these monsters dishonour?
+ - It is vain for the coward to flee; death follows close behind; it is only by defying it that the brave escape.
+ - History is but the record of crimes and misfortunes. L’histoire n’est que le tableau des crimes et des malheurs.
+ - All is but illusion and disaster.
+ - I swear that, not being able to be yours, I will belong to no one.
+ - Change everything except your loves.
+ - Fools have a habit of believing that everything written by a famous author is admirable. For my part I read only to please myself and like only what suits my taste.
+ - There is an astonishing imagination, even in the science of mathematics.
+ - I am the best-natured creature in the world, and yet I have already killed three, and of these three two were priests.
+ - It is amusing that a virtue is made of the vice of chastity; and it’s a pretty odd sort of chastity at that, which leads men straight into the sin of Onan, and girls to the waning of their color.
+ - We offer up prayers to god only because we have made him after our own image. We treat him like a pasha, or a sultan, who is capable of being exasperated and appeased.
+ - The ancients recommended us to sacrifice to the Graces, but Milton sacrificed to the Devil.
+ - When he who hears does not know what he who speaks means, and when he who speaks does not know what he himself means, that is philosophy.
+ - He who cannot shine by thought, seeks to bring himself into notice by a witticism.
+ - I know of no great men except those who have rendered great service to the human race.
+ - History should be written as philosophy.
+ - Nothing is so common as to imitate one’s enemies, and to use their weapons.
+ - Never having been able to succeed in the world, he took his revenge by speaking ill of it.
+ - If one does not reflect, one thinks oneself master of everything; but when one does reflect, one realizes that one is master of nothing.
+ - Often the prudent, far from making their destinies, succumb to them. -Francois.
+ - The Pope is an idol whose hands are tied and whose feet are kissed.
+ - It is not enough to be exceptionally mad, licentious and fanatical in order to win a great reputation; it is still necessary to arrive on the scene at the right time.
+ - Theological religion is the source of all imaginable follies and disturbances. It is the parent of fanaticism and civil discord; it is the enemy of mankind.
+ - History is only the register of crimes and misfortunes.
+ - Music is the pathway to the heart.
+ - Even in those cities which seem to enjoy the blessings of peace, and where the arts florish, the inhabitants are devoured by envy, cares and anxieties, which are greater plagues than any expirienced in a town when it is under siege.
+ - It is ourselves alone that make our days lucky or unlucky. Away, then, with a vain prejudice, the invention of the priesthood, which has been transmitted by our ancestors to an ignorant people.
+ - To succeed in chaining the multitude, you must seem to wear the same fetters.
+ - Needless to say since Christ’s expiation not one single Christian has been known to sin, or die.
+ - Secret griefs are more cruel than public calamities.
+ - A clergyman is one who feels himself called upon to live without working at the expense of the rascals who work to live.
+ - Nothing can be more contrary to religion and the clergy than reason and common sense.
+ - True greatness consists in the use of a powerful understanding to enlighten oneself and others.
+ - A fool is a person who guesses and gets it wrong, a clever man is one who guesses, regardless of time period, and gets it right.
+ - Woe to the makers of literal translations, who by rendering every word weaken the meaning! It is indeed by so doing that we can say the letter kills and the spirit gives life.
+ - Fanaticism, to which men are so much inclined, has always served not only to render them more brutalized but more wicked.
+ - Since the whole affair had become one of religion, the vanquished were of course exterminated.
+ - In general, the art of government consists of taking as much money as possible from one class of citizens to give to another.
+ - It is only through timidity that states are lost.
+ - Nothing could be smarter, more splendid, more brilliant, better drawn up than two armies. Trumpets, fifes, hautboys, drums, cannons, formed a harmony such as never been heard in hell.
+ - The infinitely little have a pride infinitely great.
+ - Feeble verses are those which sin not against rules, but against genius.
+ - Hope should no more be a virtue than fear; we fear and we hope, according to what is promised or threatened us.
+ - The sovereign is called a tyrant who knows no laws but his caprice.
+ - It is the characteristic of the most stringent censorships that they give credibility to the opinions they attack.
+ - If we do not exert the right of eating our neighbor, it is because we have other means of making good cheer.
+ - I never approved either the errors of his book, or the trivial truths he so vigorously laid down. I have, however, stoutly taken his side when absurd men have condemned him for these same truths.
+ - Your destiny is that of a man, your vows those of a god.
+ - What is tolerance? It is the consequence of humanity.
+ - The rude beginnings of every art acquire a greater celebrity than the art in perfection; he who first played the fiddle was looked upon as a demigod.
+ - When truth is evident, it is impossible for parties and factions to rise. There never has been a dispute as to whether there is daylight at noon.
+ - Friendship is the marriage of the soul, and this marriage is liable to divorce.
+ - War is the greatest of all crimes; and yet there is no aggressor who does not color his crime with the pretext of justice.
+ - The multitude of books is making us ignorant.
+ - I know many books which have bored their readers, but I know of none which has done real evil.
+ - Only your friends steal your books.
+ - All pleasantry should be short; and it might even be as well were the serious short also.
+ - A physician is an unfortunate gentleman who is every day required to perform a miracle; namely to reconcile health with intemperance.
+ - It has taken seas of blood to drown the idol of despotism, but the English do not think they bought their laws too dearly.
+ - One merit of poetry few persons will deny: it says more and in fewer words than prose.
+ - Love has various lodgings; the same word does not always signify the same thing.
+ - The monster, fanaticism, still exists, and whoever seeks after truth will run the risk of being persecuted.
+ - The multiplicity of facts and writings is become so great that every thing must soon be reduced to extracts and dictionaries.
+ - Know that the secret of the arts is to correct nature.
+ - Is politics nothing other than the art of deliberately lying?
+ - Happiness is a good that nature sells us.
+ - All succeeds with people who are sweet and cheerful.
+ - Let us confess it: evil strides the world.
+ - The fate of a nation has often depended upon the good or bad digestion of a prime minister.
+ - It would be easier to subjugate the entire universe through force than the minds of a single village.
+ - Every man can educate himself. It’s shameful to put one’s mind into the hands of those whom you wouldn’t entrust with your money. Dare to think for yourself.
+ - The more estimable the offender, the greater the torment.
+ - Translations increase the faults of a work and spoil its beauties.
+ - Whosoever does not know how to recognize the faults of great men is incapable of estimating their perfections.
+ - For seventeen hundred years the Christian sect has done nothing but harm.
+ - I read only to please myself, and enjoy only what suits my taste.
+ - All styles are good except the tiresome kind.
+ - Those who think are excessively few; and those few do not set themselves to disturb the world.
+ - Our country is that spot to which our heart is bound.
+ - Religion may be purified. This great work was begun two hundred years ago: but men can only bear light to come in upon them by degrees.
+ - The harmony of a concert, to which you listen with delight, must have on certain classes of minute animals the effect of terrible thunder; perhaps it kills them.
+ - Why, since we are always complaining of our ills, are we constantly employed in redoubling them?
+ - The only reward to be expected from literature is contempt if one fails and hatred if one succeeds.
+ - It is far better to be silent than merely to increase the quantity of bad books.
+ - Not all citizens can be equally strong; but they can all be equally free.
+ - It is not known precisely where angels dwell whether in the air, the void, or the planets. It has not been God’s pleasure that we should be informed of their abode.
+ - What! Have you no monks to teach, to dispute, to govern, to intrigue and to burn people who do not agree with them?
+ - The spirit of property doubles a man’s strength.
+ - The true character of liberty is independence, maintained by force.
+ - Man can have only a certain number of teeth, hair and ideas; there comes a time when he necessarily loses his teeth, hair and ideas.
+
+500 quotes

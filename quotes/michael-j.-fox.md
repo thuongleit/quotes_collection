@@ -1,0 +1,151 @@
+ - Happiness is a decision.
+ - Family is not an important thing. It’s everything.
+ - I am careful not to confuse excellence with perfection. Excellence, I can reach for; perfection is God’s business.
+ - Do the right thing, and then do the next right thing, and that will lead you to the next right thing after that.
+ - Don’t spend a lot of time imagining the worst-case scenario. It rarely goes down as you imagine it will, and if by some fluke it does, you will have lived it twice.
+ - My happiness grows in direct proportion to my acceptance, and in inverse proportion to my expectations.
+ - One’s dignity may be assaulted, vandalized and cruelly mocked, but it can never be taken away unless it is surrendered.
+ - Our challenges don’t define us, our actions do.
+ - I like to encourage people to realize that any action is a good action if it’s proactive and there is positive intent behind it.
+ - A creative mess is better than idle tidiness.
+ - I urge you to be challenged and inspired by what you do not know.
+ - If you fixate on the worst-case scenario and it actually happens, you’ve lived it twice.
+ - Discipline is just doing the same thing the right way whether anyone’s watching or not.
+ - Life delivered me a catastrophe, but I found a richness of soul.
+ - If you allow for the possibilities of something better, you move toward it instinctively.
+ - Acceptance is the key to everything.
+ - The more I expect, the more unhappy I am going to be. The more I accept, the more serene I am.
+ - That’s the way I look at things – if you focus on the worst case scenario and it happens, you’ve lived it twice. It sounds like Pollyanna-ish tripe but I’m telling you – it works for me.
+ - Everything is cause and effect. If you don’t move, nothing will move with you, and nothing will move toward you.
+ - There are no moments you have frozen in amber. It’s moving, it’s changing, so appreciate what’s good about right now and be ready for what’s next.
+ - Pity is a benign form of abuse.
+ - When life takes away, something of greater value is always given in return.
+ - Optimism is a cure for many things.
+ - There’s always failure. And there’s always disappointment. And there’s always loss. But the secret is learning from the loss, and realizing that none of those holes are vacuums.
+ - I truly believe that we have infinite levels of power that we don’t even know are available to us.
+ - Pay attention to what’s happening around you. Read the book before you see the movie. Remember, though you, alone, are responsible for your own happiness, its still okay to feel responsible for someone else’s. Live and to learn.
+ - I can get sad, I can get frustrated, I can get scared, but I never get depressed – because there’s joy in my life.
+ - You suffer the blow, but you capitalize on the opportunity left in its wake.
+ - I have no choice about whether or not I have Parkinson’s. I have nothing but choices about how I react to it. In those choices, there’s freedom to do a lot of things in areas that I wouldn’t have otherwise found myself in.
+ - I don’t want people to kick my ass, I just want to get to a point where they can’t kick it.
+ - I think we all get our own bag of hammers. We all get our own Parkinson’s. We all have our own thing. I think that we’ll look at it through the filter of that experience, and we’ll say, “Yeah, I need to laugh at my stuff, too.”
+ - So I never spend a lot of time analyzing why people respond to my work. But I think that it’s just the joy, a passion for life, that I think has always been in my characters. Beyond that, I’m just grateful for it.
+ - I can’t always control my body the way I want to, and I can’t control when I feel good or when I don’t. I can control how clear my mind is. And I can control how willing I am to step up if somebody needs me.
+ - I see possibilities in everything. For everything that’s taken away, something of greater value has been given.
+ - If you want to be an agent of change, it starts with you and what you’re made of.
+ - I don’t feel a yearning or a sense of missed opportunities. I don’t have many regrets. So that’s a nice feeling. To have no regrets and still have enough sense of adventure to take on risk.
+ - The way I look at life, and the way I look at the reality of Parkinson’s, is that sometimes it’s frustrating and sometimes it’s funny. I need to look at it that way, and I think other people will look at it that way.
+ - I think the scariest person in the world is the person with no sense of humor.
+ - Whatever the situation, just take it for what it is. You don’t have to make it worse or better than it is. It just is what it is. Always deal with the honesty, the truth of what something is, and then you’ve got all kinds of choices.
+ - As much as Parkinson’s is about movement, the end stage is being frozen. So the more I let that happen, the more I’m gonna be stuck within that and unable to reverse it.
+ - I saw a birthday card the other day, and it said, “If you didn’t know how old you were, how old would you think you were?” I started changing it in my mind right away to, “If you didn’t know how sick you were, how sick would you think you were?”
+ - Ironic that in order to do my life’s work, I had to quit my day job.
+ - I can’t be smug, because I know that you can lose anything at any point. And I can’t be angry, because I haven’t lost it.
+ - No, I got a GED in my 30s. My kids know that I never stop learning, and they know I love reading. I have books overflowing everywhere. I am current on today’s events and I read the paper every day, and we talk about it, so they see that appetite.
+ - The moment I understood this – that my Parkinson’s was the one thing I wasn’t going to change – I started looking at the things I could change, like the way research is funded.
+ - I didn’t want o do metal work and get my hands all nicked up and be around guys. So I took drama because there were a lot of girls.
+ - I love the irony. I’m perceived as being really young and yet I have the clinical condition of an old man.
+ - I don’t have any affirmations, I don’t have any of that stuff. My natural state is to look at things as possibilities and as opportunities.
+ - The oldest form of theater is the dinner table. It’s got five or six people, new show every night, same players. Good ensemble; the people have worked together a lot.
+ - There’s a rule in acting called, ‘Don’t play the result.’ If you have a character who’s going to end up in a certain place, don’t play that until you get there. Play each scene and each beat as it comes. And that’s what you do in life: You don’t play the result.
+ - Life is what you put into it and how much you take out of it. You put in more than is expected, and you take out less than you want.
+ - When you’re a short actor you stand on apple boxes, you walk on a ramp. When you’re a short star everybody else walks in a ditch.
+ - I don’t look at myself as a leader. I do look at myself as part of a community.
+ - My age makes me think how valuable life is. How bad is something like Parkinson’s in relation to not having life at all?
+ - The oldest form of theater is the dinner table.
+ - Always be available to your kids. Because if you say, ‘Give me five minutes, give me ten minutes,’ it’ll be 15, it’ll be 20. And then when you get there, the shine will have worn off whatever it is they wanted to share with you.
+ - I don’t have a set of tenets, but I live an ethical life. I practice a humility that presupposes there’s a power greater than myself. And I always believe, don’t inflict harm where it’s not necessary.
+ - I have no argument with those who see in organized religion a template or an imperative to live life according to a prescribed set of beliefs. Just give others the room, within the laws of civil society, to believe or not believe whatever they like.
+ - I mean, I enjoy my work as an actor. But to make a difference in people’s lives through advocacy and through supporting research – that’s the kind of privilege that few people will get, and it’s certainly bigger than being on TV every Thursday for half an hour.
+ - If you asked my kids to describe me, they’d go through a whole list of words before even thinking about Parkinson’s. And honestly, I don’t think about it that much either. I talk about it because it’s there, but it’s not my totality.
+ - I’ve never gotten up to see something one of my kids wanted to show me and not been rewarded.
+ - Now I feel and I say all the time that vanity is, like, long gone. I’m really free of worrying about what I look like, because it’s out of my shaky hands. I don’t control it. So why would I waste one second of my life worrying about it?
+ - You’ve probably read in People that I’m a nice guy – but when the doctor first told me I had Parkinson’s, I wanted to kill him.
+ - When prescribing one of the drugs I take, my doctor warned me of a common side effect: exaggerated, intensely vivid dreams. To be honest, I’ve never really noticed the difference. I’ve always dreamt big.
+ - I believe that the majority of times the scale tilts toward the good. It’s this amazing thing that rolls on and if we get in the flow of it, that’s God. And if we fight it, if we swim the other way, we’re swimming away from the purest expression of this life.
+ - I might have skipped class, but I didn’t miss any lessons.
+ - I discovered that I was part of a Parkinson’s community with similar experiences and similar questions that I’d been dealing with alone.
+ - I’m a dad, I’m a husband, I’m an activist, I’m a writer and I’m just a student of the world.
+ - Teenagers blithely skip off to uncertain futures, while their parents sit weeping curbside in the Volvo, because the adolescent brain isn’t yet formed enough to recognize and evaluate risk.
+ - I was eccentric, even as a kid. I was an early reader, an early talker. I was very curious in a way that maybe the other kids weren’t. I was a little more outgoing.
+ - Life is the power that’s greater than I can ever comprehend.
+ - I have a remarkably normal life.
+ - You know what’s cool? My kids think I’m ordinary.
+ - I’m also very proud to be a part of a trilogy of films that, if they do nothing else, allow people to check their problems at the door, sit down and have a good time.
+ - Life is the power that’s greater than I can ever comprehend. The way life runs through everything, even the tiniest elements of nature – that makes me humble.
+ - I think there’s a god and I know it’s not me.
+ - People want leadership, Mr. President, and in the absence of genuine leadership, they’ll listen to anyone who steps up to the microphone. They want leadership. They’re so thirsty for it they’ll crawl through the desert toward a mirage, and when they discover there’s no water, they’ll drink the sand.
+ - No matter how much fame you have, it’s not something that belongs to you. If I’m famous, that doesn’t belong to me-that belongs to you. If you can’t remember who I am, I’m no longer famous.
+ - My view of life is colored by humor and looking at the best in any situation.
+ - I often say now I don’t have any choice whether or not I have Parkinson’s, but surrounding that non-choice is a million other choices that I can make.
+ - Curiosity may have killed the cat, but it saved my ass.
+ - If you have doubts about someone, lay on a couple of jokes. If he doesn’t find anything funny, your radar should be screaming. Then I would say be patient with people who are negative, because they’re really having a hard time.
+ - I’m kind of private and I keep things inside a lot, but it’s been so wonderful to realize that people care about you in a very deep way and that there is some bond between an actor and his audience. I don’t even know how to describe that feeling.
+ - If I don’t get food in my mouth, I’m still happy. If my pants are round my ankles, as long as I don’t get arrested for indecent exposure, I’m happy. I’m worried about keeping my hair, not how it’s combed.
+ - You know what I want? The answer is, I truly don’t know what I want. I don’t want to do a television series. I want to do dramas as well as comedies, but I have no idea what kind or in what order. Just give me the chance at them.
+ - I have times when I’m off-balance. I have times when I slur my words. I have times when I walk into walls. I have times when I can’t remember somebody’s name.
+ - The least amount of judging we can do, the better off we are.
+ - I’m not a shill for the Democratic Party.
+ - Control is illusory. No matter what university you go to, no matter what degree you hold, if your goal is to becomes master of your own destiny, you have more to learn.
+ - The way life runs through everything, even the tiniest elements of nature – that makes me humble. It’s the same humility that causes people at a certain time every day to get on their knees and put their foreheads on the ground in honor of something or someone.
+ - By 21, I was earning six figures a week. By 23, I had a Ferrari. It was nuts.
+ - Since I’m not sure of the address to which to send my gratitude, I put it out there in everything I do.
+ - I can say, “I don’t have anything I regret!” But I can also say, “I can go forward in my life the way it is and I don’t think I’ll accrue any future regrets.”
+ - He gave life to the breath- oxygen, a simple gas, he transferred into words, ideas, hope.
+ - Medical science has proven time and again that when the resources are provided, great progress in the treatment, cure, and prevention of disease can occur.
+ - They did something once that slurred my speech, and I thought, “Oh, man, you’re messing with my brain. It’s freaking me out.”
+ - Humility is always a good thing. It’s always a good thing to be humbled by circumstances so you can then come from a sincere place to try to deal with them.
+ - The ‘Rescue Me’ gig was a unique opportunity to play a character – a misanthropic, angry guy – who was so contrary to how people think of me.
+ - Certainly people have a lot tougher situations than I’ve had to deal with. But I will say we are all dying from the moment we are born. This is not just rehearsal.
+ - When I was 20, I would have taken a bullet in the head to never have to be 35.
+ - I happen to be a Parkinson’s patient. I’m not fearful of my condition or my future – but if someone is looking in my eyes for fear, then they see their own fear reflected back at them.
+ - The only thing worse than an opportunity you don’t deserve is blowing an opportunity.
+ - If one of my kids reads a book for school and I can have a conversation with her about the book and I sense that she gets what the book is about, then it doesn’t really matter to me if she gets an A on the paper.
+ - I don’t keep up with it all. But Taylor Swift writes songs about everybody she goes out with, right? What a way to build a career.
+ - I worked very hard on those movies but there was some creative connection that wasn’t being made.
+ - I still play hockey every now and then, and I still golf. But my biggest exercise is walking my big dog in the park every day.
+ - My tattoo is that I don’t have a tattoo.
+ - I wouldn’t have wanted to miss the opportunity to make those three films that didn’t do well. They were really important to me, and the things I learned doing them were important to me.
+ - As a kid, I was into music, played guitar in a band. Then I started acting in plays in junior high school and just got lost in the puzzle of acting, the magic of it. I think it was an escape for me.
+ - As with any turning point or instance when a new road is chosen and an old one forsaken, there are consequences.
+ - I didn’t just want to be a poster boy and sign on to publicize somebody else’s method of operations. If I was going to put myself out there, I wanted to make sure that it was to an end. So I got involved with this congressional hearing about Parkinson’s being underfunded.
+ - I think I benefited from being equal parts ambitious and curious. And of the two, curiosity has served me best.
+ - I always felt that I came up short in the education department, but I’ve come to the conclusion that we all get an education.
+ - I take the medication for myself so I can transact, not for anyone else. But I am aware that it is empowering for people to see what I do and, for the most part, people in the Parkinson’s community are just really happy that Parkinson’s is getting mentioned, and not in a pitying way.
+ - By the time I entered high school, I had forsaken academics altogether in favor of my burgeoning acting career.
+ - Acceptance doesn’t mean resignation; it means understanding that something is what it is and that there’s got to be a way through it.
+ - Look at the choices you have, not the choices that have been taken away from you. In them, there are whole worlds of strength and new ways to look at things.
+ - The story is a testament to the consolations that get me through and give meaning to every area of my life.
+ - In fact, Parkinson’s has made me a better person. A better husband, father and overall human being.
+ - I’m going to marry a Jewish woman because I like the idea of getting up Sunday morning and going to the deli.
+ - If I were overweight because I ate too much, I would have far more of a complex. I would know if I just stopped eating and showed a little discipline I would be thin. But there’s not a hell of a lot I can do about being short. You just gotta run with it.
+ - After all that I’d been through, after all that I’d learned and all that I’d been given, I was going to do what I had been doing every day for the last few years now: just show up and do teh best that I could do with whatever lay in front of me.
+ - As for my own truncated secondary education, my head was in the clouds as my mom would say, or if you asked my father, up my ass.
+ - So what I say about Tracy is this: Tracy’s big challenge is not having a Parkinson’s patient for a husband. It’s having me for a husband. I happen to be a Parkinson’s patient.
+ - Just as Parkinson’s isn’t a big topic of conversation in my house, neither is my career.
+ - My experience is to deal with things through humor.
+ - I really love being alive. I love my family and my work. I love the opportunity I have to do things. That’s what happiness is.
+ - If Spirituality is that you’re humble in the face of forces greater than you and you believe those forces are more inclined toward being good than being bad, then I’m a spiritual person.
+ - The thing that brings people to wail at a wall, or face Mecca, or to go to church, is a search for that feeling of purity.
+ - I don’t look at life as a battle or as a fight. I don’t think I’m scrappy. I’m accepting.
+ - The biggest gift on Father’s Day is if I can be with all my kids.
+ - But the key to our marriage is the capacity to give each other a break. And to realize that it’s not how our similarities work together; it’s how our differences work together.
+ - I’ve learned some exciting things – mostly, that people really want to help each other; and that, if you can lay out a vision for them – and that vision is sincere and genuine – they’ll get interested.
+ - In my 50s I’ll be dancing at my children’s weddings.
+ - I have so many things that I say to my kids, I just drive them crazy.
+ - One of the great things about Parkinson’s, in a superficial way, is it relieved me of vanity. I don’t worry about what I look like, because it’s literally out of my hands. But on a deeper level, it gives you a real humility, because you have to deal every day with the fact that you compromise.
+ - Zoos are becoming facsimiles – or perhaps caricatures – of how animals once were in their natural habitat. If the right policies toward nature were pursued, we would need no zoos at all.
+ - My notion of spirituality was different than it is now, but even if I’d been the most fundamentalist of believers, I would have assumed that God had better things to do than arbitrarily smite me with shaking palsy.
+ - I don’t subscribe to any particular doctrine or ideology. I just think that there’s kind of a good and bad, the good being life in its purest, happiest form, and the other being the darker side of existence.
+ - After a year or so I really thought I was Howard Hughes. Here I was at eighteen years old, getting all these checks.
+ - My whole life, meeting people is like a blind date, because I feel like they’ve already seen the video on me.
+ - Disease is a non-partisan problems that requires a non-partisan solution.
+ - Everybody in the world knew I was before I knew who I was.
+ - My wife is Jewish, and therefore, it’s my children’s birthright to be Jewish.
+ - I had all the usual ambition growing up. I wanted to be a writer, a musician, a hockey player. I wanted to do something that wasn’t nine to five. Acting was the first thing I tried that clicked.
+ - I don’t set a whole lot of goals. It smacks a little bit of will to me, and I find that will is not the way to go for me.
+ - When I was younger, I was always described as happy-go-lucky.
+ - I definitely believe in a higher power.
+ - I got sick of turning on the TV and seeing my face.
+
+149 quotes

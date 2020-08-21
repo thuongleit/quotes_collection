@@ -1,0 +1,170 @@
+ - Buy less. Choose well. Make it last. Quality, not quantity. Everybody’s buying far too many clothes.
+ - The best fashion accessory is a book.
+ - The sexiest people are thinkers.
+ - I can’t think without my glasses.
+ - I do think if you aim for quality, it’s not so much about consumerism. The idea is ‘Buy less, choose well, make it last,’
+ - Buy less, choose well, make it last. Quality rather than quantity: That is true sustainability. If people only bought beautiful things rather than rubbish, we wouldn’t have climate change!
+ - My aim is to make the poor look rich and the rich look poor.
+ - I don’t have faith in young people any more. I don’t waste time trying to communicate with them.
+ - I’m a fashion designer and people think, what do I know?
+ - Buy less, choose well: that’s the maxim. Quality not quantity. That’s the most environmentally friendly thing you can do.
+ - I talk to fashion designers and say I want some money to save the rainforest, and they say, ‘Oh, I agree with you completely Vivienne. Yes, climate change, it’s definitely happening,’ but they don’t feel that they can do anything about it; they don’t even think ‘Well let’s stop it!’
+ - I’m not terribly interested in beauty. What touches me is someone who understands herself.
+ - Fashion is very important. It is life-enhancing and, like everything that gives pleasure, it is worth doing well.
+ - The most erotic zone is the imagination.
+ - More people should read books. It’s the most concentrated experience you can have.
+ - I’m always attracted to people who interest me. They’ve got to be people who are really true to themselves somehow, and who are always trying to do something that makes their life more interesting, or better, or something for somebody else. They’re interested in people.
+ - There is so much that people take for granted.
+ - There is a real connection between culture and climate change. We all have a part to play and if you engage with life, you will get a new set of values, get off the consumer treadmill, and start to think, and it is these great thinkers who will rescue the planet.
+ - The best night of my life was watching the Japanese Noh theater. I’ve only seen it once, but even saying it now, I think, ‘How can I ever have this experience again?’ It was so mesmerizing, so complicated and so primordial; I could not believe it.
+ - I don’t think punk fashion is a specter or overemphasized – it made a big impression, as there had never been anything like it before.
+ - Shoes must have very high heels and platforms to put women’s beauty on a pedestal.
+ - Why do people think that if you don’t dress up, others will appreciate your beauty more – that style will somehow emanate from you? It’s rubbish. If you dress up it helps your personality to emerge – if you choose well.
+ - My clothes have a story. They have an identity. They have a character and a purpose. That’s why they become classics. Because they keep on telling a story. They are still telling it.
+ - I’m not trying to do something different, I’m trying to do the same thing but in a different way.
+ - I’ve got a real sense of three-dimensional geometry. I can look at a flat piece of fabric and know that if I put a slit in it and make some fabric travel around a square, then when you lift it up it will drape in a certain way, and I can feel how that will happen.
+ - I have always loved the Mao cap, though I hate violent revolution.
+ - I was a punk before it got its name. I had that hairstyle and purple lipstick.
+ - Every time I have to look up a word in the dictionary, I’m delighted.
+ - Every time I hear that word, I cringe. Fun! I think it’s disgusting; it’s just running around. It’s not my idea of pleasure.
+ - Britishness is just a way of putting things together and a certain don’t care attitude about clothes. You don’t care, you just do it and it looks great.
+ - You’ve got to invest in the world, you’ve got to read, you’ve got to go to art galleries, you’ve got to find out the names of plants. You’ve got to start to love the world and know about the whole genius of the human race. We’re amazing people.
+ - I wish you didn’t have to design so often. Try to do quality and cut down on quantity. I think fashion is very, very important.
+ - I just think people should invest in the world. Don’t invest in fashion, but invest in the world.
+ - Everybody should have a fair deal; everybody should have the chance to life in this world. If we were evolved as human beings, we would hopefully be able to alleviate suffering in the world.
+ - Save the rainforest for your loved ones.
+ - The fight is no longer between the classes or between rich and poor but between the idiots and the eco-conscious.
+ - We have got to change our ethics and our financial system and our whole way of understanding the world. It has to be a world in which people live rather than die; a sustainable world. It could be great.
+ - If you hear Anarchy in the UK today your hair stands on end. It gives you the shivers.
+ - The young need discipline and a full bookcase.
+ - What I remember as a child is that other kids didn’t care about suffering. I always did.
+ - I am attracted to people who make this effort in knowing what suits them – they are individual and stylish.
+ - I have been asked what would I ban immediately if I could. Advertising.
+ - My fashion advice is to have a flattering mirror and then forget about it.
+ - People have never looked so ugly as they do today. We just consume far too much.
+ - I’m frugal. I’m not a very acquisitive woman. I never waste food. If you prepare your own food, you engage with the world, it tastes alive. It tastes good.
+ - I eat only vegetables and fruit, and to me it’s the most aspirational diet because it’s so easy. It’s quite simple, the cooking I do.
+ - The only possible effect one can have on the world is through unpopular ideas.
+ - I don’t care how many beauty treatments you have, I don’t care which bag you’re carrying – you have to have a dress.
+ - I think some people would love to be able to make the clothes I make – and of course, I do influence them, but they keep simplifying, and minimalism doesn’t quite work.
+ - In history people dressed much better than we do today.
+ - I disagree with everything I used to say.
+ - If Mrs Merkel wants to wear Westwood, I can promise that I will design clothes for her that will make her look chic, refined and influential.
+ - But, the thing is, since I always had my own little shop and direct access to the public, I’ve been able to build up a technique without marketing people ever telling me what the public wants.
+ - We wanted to step off our island and add the color of the third world. We got gold cigarette paper and stuck it around our teeth. We really did look like pirates and dressed to look the part.
+ - I may be a rebel, but I am not an outsider.
+ - I didn’t know how a working-class girl like me could possibly make a living in the art world.
+ - It’s a philosophy of life. A practice. If you do this, something will change, what will change is that you will change, your life will change, and if you can change you, you can perhaps change the world.
+ - There’s nowhere else like London. Nothing at all, anywhere.
+ - You have a more interesting life if you wear impressive clothes.
+ - Journalists are usually quite jealous people, especially of intellectuals who are supposed to be in fashion.
+ - It’s true the punk fashion itself was iconographic: rips and dirt, safety pins, zips, slogans, and hairstyles. These motifs were so iconic in themselves – motifs of rebellion.
+ - I don’t care if you get up in the morning and don’t wash, don’t put any make-up on, don’t do your hair, even, but you have to have clothes if you want to look different.
+ - The sexiest people are thinkers. Nobody’s interested in somebody who’s just vain with a hole in their head, talking about the latest thing – there is no latest thing. It’s all rubbish.
+ - If you see everything from the point of view of women being victims in some way, you don’t see the wood for the trees. It is better to be a person than a woman.
+ - There’s this idea that somehow you’ve got to keep changing things, and as often as possible. Maybe if people just decided not to buy anything for a while, they’d get a chance to think about what they wanted; what they really liked.
+ - The main message of Climate Revolution is that climate change is caused by the rotten financial system we’ve got, designed to create poverty and rip off any profits for a small amount of rich people. Meanwhile, it destroys the earth.
+ - Liverpool people are famous for liking clothes and fashion; they are very social and lively people, and we know that they like clothes.
+ - Don’t just eat McDonald’s, get something a bit better. Eat a salad. That’s what fashion is. It’s something that is a bit better.
+ - I don’t feel comfortable defending my clothes. But if you’ve got the money to afford them, then buy something from me. Just don’t buy too much.
+ - In the 18th century, if women wanted to travel and they dressed as a man, people would not look twice. Your clothes said everything. Also there were masters and servants swapping clothes. You could be anything, your clothes told everything!
+ - The hippie movement politicized my generation. When it ended, we all started looking back at our own history, looking, in my case, for motives of rebellion.
+ - It’s better to look important than sexy.
+ - I was born during the war and grew up in a time of rationing. We didn’t have anything. It’s influenced the way I look at the world.
+ - If you saw Queen Elizabeth it would be amazing, she came from another planet. She was so attractive in what she was wearing.
+ - The orb came about because I wanted to do this kitsch sweater for Prince Charles when he went hunting and fishing with his kilt on.
+ - It is all about technique. The great mistake of this century is to put inspiration and creativity first.
+ - My son has followed fashion since he was a punk. He and I agree that fashion is about sex.
+ - Intelligence is composed mostly of imagination, insight, things that have nothing to do with reason.
+ - I always thought we had an environmental problem, but I hadn’t realized how urgent it was. James Lovelock writes that by the end of this century there will be one billion people left.
+ - Well, I’m very much a literary person. And my fashion always tells a story somehow. I never look at fashion magazines. I find them incredibly boring. To me, reading a fashion magazine is the last thing I need to do. I’ve got books I need to read.
+ - I really don’t like women who try to be men. All these politicians, I think they’re horrendous. We could have a brilliant future, but we have this terrible male vision of destroying everything. They’d better sort themselves out and become more womanly.
+ - I always tried to do things by example, even though I was not a very good mother regarding routines and family life.
+ - I think dress, hairstyle and make-up are the crucial factors in projecting an attractive persona and give one the chance to enhance one’s best physical features.
+ - Women fight for democracy and engage in the world. But they shouldn’t try and be copying men and be masculine; they should anchor on the home and build on those fundamentals.
+ - But, having a perfume and license, in general, is a financial necessity. A designer must, to reap back the money spent on prototypes and all that sort of thing.
+ - When I first saw a picture of the crucifixion, I lost respect for my parents. I suddenly realised that this is what the adult world is like – full of cruelty and hypocrisy.
+ - In Italy they take cheap cloth and make it look expensive, but I take expensive cloth and make it look cheap. They just don’t understand.
+ - Sometimes you need to transport your idea to an empty landscape and then populate it with fantastic looking people.
+ - I have a company, and I’ve got to think about that. I’m trying to do my best there, and that’s a much harder task. We recycle as much as possible, and we conserve. But I’ve always been one to save everything – I even walk up stairs on the very inside or the very outside to not wear out the tread.
+ - I own my own company, so I’ve never had businessmen telling me what to do or getting worried if something doesn’t sell. I’ve always had my own access to the public, because I started off making my clothes for a little shop and so I’ve always had people buying them.
+ - I do not approve of museums trying just to get people to come in. Whistler was very, very clear on this.
+ - What changed our lives forever was when Malcolm had the idea to sell rock ’n roll records to trendy customers.
+ - Our economic system, run for profit and waste and based primarily on the extractive industries, is the cause of climate change. We have wasted the earth’s treasure and we can no longer exploit it cheaply.
+ - I think that feminists have definitely underestimated the role that women have had historically. I think I would be insecure if I were to be a man; there’s so much pressure on you.
+ - We are so conformist; nobody is thinking. We are all sucking up stuff; we have been trained to be consumers, and we are all consuming far too much.
+ - I don’t have space to enter into the examples or the history of this, so I’m left with having to make the bold statement that culture is extinct.
+ - What I’m always trying to say to the consumer is: buy less, choose well, make it last.
+ - I think it is terribly important to have opinions, and to think. We live in a world of action without thought.
+ - My biggest criticism is how can people be so easily satisfied? Even people with talent.
+ - Wear a towel instead of a coat, it’s very chic. Or your husband’s boxer shorts with a belt, or something from your grandmother. It’s all about do-it-yourself at the moment.
+ - However, because Britain is young and exciting, I did show my second line here once or twice.
+ - I am always trying to find fabrics that are more friendly to the environment – working with Virgin Atlantic, they managed to research into this and find more eco fabrics.
+ - It is not possible for a man to be elegant without a touch of femininity.
+ - Fashion is life-enhancing and I think it’s a lovely, generous thing to do for other people.
+ - Instead of buying six things, buy one thing that you really like. Don’t keep buying just for the sake of it.
+ - When I was a little girl you used to learn to sew all the holes in things, darning socks, but nobody mends things anymore.
+ - I very rarely watch my own fashion shows, but the makeup for my Fall 2011 show was just brilliant.
+ - If we didn’t have the Chinese buying things, we’d be on the floor.
+ - Prince Charles is definitely my hero; he uses his position to do only good in this world.
+ - I remember reading a book set in the future, it was written in the 1870s projecting to 1920, and this time traveler said you couldn’t tell the difference between men and women. He saw what was coming.
+ - A status symbol is a book. A very easy book to read is The Catcher in the Rye. Walk around with that under your arm, kids. That is status.
+ - Everybody looks like clones and the only people you notice are my age. I don’t notice anybody unless they look great, and every now and again they do, and they are usually 70.
+ - Home, more than anything, means warmth and bed.
+ - I was so upset with what was going on in the world. I just couldn’t stand the idea of being people tortured and that we even had such a thing as war. I hated the older generation, who had not done anything about it. Punk was a call-to-arms for me.
+ - Personally I’m not a feminist, as I can’t stand puritans.
+ - I have considered voting Conservative because I am so against the Labour party.
+ - The thing that makes my clothes really different is that, number one, they are really great designs; they’re not tacky; they are very professional; the design is made from lots of decisions.
+ - I don’t watch television and I rarely go to the cinema, but I recently watched ‘The King’s Speech’ on a flight. It was so beautiful and so simple.
+ - Fasion is about eventually becoming naked.
+ - I was still interested in the youth rebellion but never-the-less I stopped being a victim. Stopped trying to attack the establishment realizing that it takes too much of your energy.
+ - I just use fashion as an excuse to talk about politics. Because I’m a fashion designer, it gives me a voice, which is really good.
+ - Even though it was the 70s, we found old stocks of clothes that had never been worn from the 50s and took them apart. I started to teach myself how to make clothes from that kind of formula.
+ - If you wear clothes that don’t suit you, you’re a fashion victim. You have to wear clothes that make you look better.
+ - If you ask me what I think people should be getting next season, I’ll tell you what I’d like them to buy – nothing. I’d like people to stop buying and buying and buying.
+ - Fashion is here to help make people look very important. If they have good taste and choose what suits them, I give them options on how they can do that. It’s always sexy, and it’s always with the same result: making women look fantastic.
+ - The main message we want to get out there is that climate change is caused by the rotten economic system.
+ - Within one generation, Los Angeles will be uninhabitable if people don’t do something about it. The world is going to get smaller and be uninhabitable and impossible to live in.
+ - At one time, I was very angry. I even treated fashion like a kind of crusade: you were either with us or against us, that kind of feeling. Now I know we need ideas, not kicking down a door.
+ - I do have reasons for what I do. I am a very political person, and I really think if you put these clothes on, you will look like a force to be reckoned with.
+ - Economists treat economics as if it is a pure science divorced from the facts of life. The result of this false accountancy is a willful confusion under cover of which industry wreaks its havoc scot-free and ignores the environmental cost.
+ - My clothes have always got a very strong dynamic rapport with the body – they are very body conscious, they help you to look glamorous, more hourglass, more woman.
+ - I’ll tell you what I was like as a child. I was a good person. I was high-spirited but I was a big reader.
+ - When we started to do punk, we put all of these things together to create the look of an urban guerrilla – a rebel.
+ - It is extremely difficult to say how long the process actually took to finally achieve my fragrance, Boudoir, because there was a lot of time waiting around for other people.
+ - There is no hierarchy of values any more. Real progress is due mainly to human genius, and that’s rare, and usually stems from a real elite, from a hierarchy.
+ - If you’re too big to fit into fashion, then you just have to do your own fashion.
+ - If you dress up, it helps your personality to emerge – if you choose well.
+ - The arts have only ever interested a small minority of people, which acted as a kind of nursery to support artists.
+ - I have too much product, and I’m trying to rein it in and sell more of my main collection. I wish you didn’t have to design so often; it would be good if you could keep on selling the same things for a few years and not have to do new things all the time.
+ - I like to literally put women on a pedestal.
+ - My clothes are very popular in Japan.
+ - I’m not sure what I think about current fashion, though. A few years ago, I would have said it’s really, really bad and you hardly ever see anybody looking good. There must be some very good designers in the world.
+ - We are the most amazing creatures that this world has ever produced, but we seem to also have this herd mentality; we seem to be the most stupid, also.
+ - I didn’t want to be a fashion designer, and for a good half of my career I didn’t like it. I always wanted to do other things.
+ - All that self-expression has just created a generation of morons, hooked on an endless appetite for rubbish.
+ - I used to always fight for human rights. I still fight for Leonard Peltier, who’s spent 35 years in jail for a crime he didn’t commit.
+ - I design things to help people to hopefully express their personality.
+ - Print some money and give it to us for the rain forests.
+ - Art should never be sociological; it has got to be timeless. It’s got to be your vision and how you can represent the world you see.
+ - The muscular, athletic type is not representative of the human race, who are varied in their physique.
+ - When I’m in the street, the only people I notice are usually at least 70 years old, because they look really stylish.
+ - I think feminists are unaware of the tremendous extent of the role of women in history.
+ - I was the first person to have a punk rock hairstyle.
+ - To me, reading a fashion magazine is the last thing I need to do. I’ve got books I need to read.
+ - The whole basis of my work is analysing what I do and building some sort of intellectual framework. The only possible effect one can have on the world is through unpopular ideas. They are the only subversion.
+ - The young Japanese, especially, love to wear the latest thing and when they come to London they head for my shops as part of what they want to find in Britain.
+ - In the morning, I practice 15 minutes of yoga.
+ - I never look at fashion magazines. I find them incredibly boring.
+ - I have certain signatures, certain cutting principles. It could be a raw-edged seam; it could be leaving the lining of sheepskin exposed so it’s not perfectly finished. I invent new ways to do it, but the end goal is always the same.
+ - We moved into the back, made it into a little 50s sitting room and started to sell the records. We had an immediate success. For one thing, these Teddy Boys were thrilled to buy the records.
+ - Feminists wish women to seem like men. They’re not men.
+ - I tend not to like an awful lot of what is going out under my name now because it is just all product. Who needs it?
+ - I think it’s important to vote.
+ - Fashion has become so whatever. I don’t think there are any stones left to unturn.
+ - I try to concentrate on quality clothing and accessories that are worth having, and to get my people to take fewer trips by air and stay longer each time they travel. It’s more human, especially if they take time to visit an art gallery while there.
+ - I didn’t do anything at the Queen, whom I admire.
+ - Nothing is costed properly and it’s destroying the earth. We need to re-educate people that what is good for the planet is good for the financial system.
+ - I’ve got a terrible memory; it’s probably because I’m always concentrating on what I’m doing now.
+
+168 quotes

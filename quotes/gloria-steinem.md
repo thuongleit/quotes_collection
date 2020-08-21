@@ -1,0 +1,367 @@
+ - Without leaps of imagination, or dreaming, we lose the excitement of possibilities. Dreaming, after all, is a form of planning.
+ - Rich People plan for three generations. Poor people plan for Saturday night.
+ - Dreaming, after all, is a form of planning.
+ - Whenever one person stands up and says, “Wait a minute, this is wrong,” it helps other people do the same.
+ - Everyone is unique and each experience is different.
+ - A woman without a man is like a fish without a bicycle.
+ - Writing is the only thing that, when I do it, I don’t feel I should be doing something else.
+ - Voting isn’t the most we can do. But it is the least.
+ - A feminist is anyone who recognizes the equality and full humanity of women and men.
+ - The story of women’s struggle for equality belongs to no single feminist nor to any one organization but to the collective efforts of all who care about human rights.
+ - Self-hatred leads to the need either to dominate or to be dominated.
+ - We’ve begun to raise daughters more like sons, but few have the courage to raise our sons more like our daughters.
+ - There is always one true inner voice. Trust it.
+ - Behave like everything you do matters.
+ - A good friendship is a conversation that never ends.
+ - Clinging to the past is the problem. Embracing change is the answer.
+ - One day an army of gray-haired women may quietly take over the Earth!
+ - Women may be the one group that grows more radical with age.
+ - Empathy is the most radical of human emotions.
+ - Law and justice are not always the same.
+ - The first problem for all of us, men and women, is not to learn, but to unlearn.
+ - Feminism has never been about getting a job for one woman. It’s about making life more fair for women everywhere. It’s not about a piece of the existing pie; there are too many of us for that. It’s about baking a new pie.
+ - The first resistance to social change is to say it’s not necessary.
+ - You are the leader you’ve been waiting for.
+ - Most writers write to say something about other people – and it doesn’t last. Good writers write to find out about themselves – and it lasts forever.
+ - But somewhere within each of us, buried at varying depths depending on the age and degree of neglect or abuse, shame or coercion we endured, there is a resistant, daydreaming, rebellious, creative, unique child – a true self who is waiting.
+ - Oppression has no logic – just a self-fulfilling prophecy, justified by a self-perpetuating system.
+ - If the shoe doesn’t fit, must we change the foot?
+ - Law and justice are not always the same. When they aren’t, destroying the law may be the first step toward changing it.
+ - Women have two choices: Either she’s a feminist or a masochist.
+ - The future depends entirely on what each of us does every day; a movement is only people moving.
+ - Far too many people are looking for the right person, instead of trying to be the right person.
+ - Dying seems less sad than having lived too little.
+ - Every revolution begins as consciousness because some group of people has to imagine change.
+ - A liberated woman is one who has sex before marriage and a job after.
+ - I believe that change comes from the bottom, not the top.
+ - Inner space is the real frontier.
+ - Nothing will happen automatically. Change depends on what you and I do every day.
+ - Work is valued by the social value of the worker.
+ - Feminism is about friends and sisters and community.
+ - Planning ahead is a measure of class. The rich and even the middle class plan for future generations, but the poor can plan ahead only a few weeks or days.
+ - Intelligence without character is a dangerous thing.
+ - Some of us are becoming the men we wanted to marry.
+ - The art of life is not controlling what happens to us, but using what happens to us.
+ - Whoever has power takes over the noun – and the norm – while the less powerful get an adjective.
+ - If what’s inside your dreams wasn’t already real inside you, you couldn’t even dream it.
+ - Power in this country is often like hemophilia; it passes through women and then men get it.
+ - No, I’ll take responsibility for my own life, I am going to make a decision. And you know, to this day, I would raise flags on all public buildings to celebrate the chance I had to make that decision.
+ - Power can be taken, but not given. The process of the taking is empowerment in itself.
+ - We teach what we need to learn.
+ - Pornography is about dominance. Erotica is about mutuality.
+ - It’s a fundamental human right to decide to have children or not to have children.
+ - I want to say to you that there is life and dreams and surprises after 30-and 40, and 50, and 60, and 77! Believe me, life is one long surprise.
+ - Self-esteem isn’t everything; it’s just that there’s nothing without it.
+ - People waste more time waiting for someone to take charge of their lives than they do in any other pursuit.
+ - Thank you for all your good and beautiful work.
+ - The need to treat ourselves as well as we treat others. It’s women’s version of the Golden Rule.
+ - The art of being helpful is behaving as if everything we do matters – because we never know which things might.
+ - Intelligence in the service of poor instinct is really dangerous.
+ - Logic is in the eye of the logician.
+ - Girls are taught to view their bodies as unending projects to work on, whereas boys from a young age, are taught to view their bodies as tools to master their environment.
+ - To me, the model of success is not linear. Success is completing the full circle of yourself.
+ - If you really want to be lonely, get married.
+ - Being married is like having somebody permanently in your corner. It feels limitless, not limited.
+ - I have yet to hear a man ask for advice on how to combine marriage and a career.
+ - Only when women rebel against patriarchal standards does female muscle become more accepted.
+ - The uncomfortable truth seems to be that the amount of talk by women has been measured less against the amount of men’s talk than against the expectation of female silence.
+ - There’s no greater gift than thinking that you had some impact on the world, for the better.
+ - God may be in the details, but the goddess is in the questions. Once we begin to ask them, there’s no turning back.
+ - Life after 50 or 60 is itself another country, as different as adolescence is from childhood, or as adulthood is from adolescence – and just as adventurous.
+ - Gratitude never radicalized anybody. I don’t care if they recognize the past, I just want them to get angry about the present and keep going.
+ - I have me brave women who are exploring the outer edge of human possibility, with no history to guide them, and with a courage to make themselves vulnerable that I find moving beyond words.
+ - Sexuality has always been for humans a form of communication, a way we express love and caring and bonding, not only a way we have children if we choose to.
+ - We need to remember across generations that there is as much to learn as there is to teach.
+ - In the late ’60s, people were saying we need power to, not power over. Power to do, accomplish, create, not power over other people.
+ - The phenomenon of the woman who’s asked what movie she wants to see, and she says, “I don’t know. What do you want to see?” It’s a tiny version of a big tendency. Women need to say, “This is what I want.”
+ - If you love your work, I’m not sure you have hobbies. I try to say no to things that other people could do and only say yes to things that only I could do.
+ - There’s no emotion more revolutionary than empathy.
+ - Women tend to be conservative in youth and get more radical as they get older because they lose power with age. So, if a young woman is not a feminist, I say, just wait.
+ - When unique voices are united in a common cause, they make history.
+ - Transformation happens in small groups. Each person can speak and all listen.
+ - One act of violence takes four generations to heal.
+ - Every social justice movement that I know of has come out of people sitting in small groups, telling their life stories, and discovering that other people have shared similar experiences.
+ - Someone once asked me why women don’t gamble as much as men do and I gave the commonsensical reply that we don’t have as much money. That was a true but incomplete answer. In fact, women’s total instinct for gambling is satisfied by marriage.
+ - Battered women is a phrase that uncovered major, long-hidden violence. It helps us to face the fact that, statistically speaking, the most dangerous place for a woman is in her own home, not in the streets.
+ - When you attempt something new, there’s always fear. A couple of helpful slogans to me are “follow the fear” or “fear is a sign of growth.”
+ - At my age, in this still hierarchical time, people often ask me if I’m “passing the torch.” I explain that I’m keeping my torch, thank you very much-and I’m using it to light the torches of others.
+ - It feels as if childhood sexual abuse or domestic abuse of women in the home has increased but actually if you ask women of 60 or 70 years old, the incidence is about the same. We just didn’t know it.
+ - Religion is often politics made sacred.
+ - Helping begins with listening.
+ - You do have all five sense when you’re in a room together. You communicate and understand each other in a much deeper way. It is a different form of communication from writing or being on the web.
+ - Economic systems are not value-free columns of numbers based on rules of reason, but ways of expressing what varying societies believe is important.
+ - When men realize that feminism is a universal good that affects them in very intimate ways then I think they really become allies and leaders.
+ - The point is less what we choose than that we have the power to make a choice.
+ - We need to unlearn some of our respect for education, since it has undermined our respect for ourselves.
+ - Progress is not automatic, it depends on what we do every day. So any statement of ownership of our own bodies, however that occurs in our individual lives or our community or our collective lives, is crucial.
+ - It is more rewarding to watch money change the world than watch it accumulate.
+ - If women could sleep their way to the top, there’d be a lot more women at the top.
+ - All biographers, no matter how sympathetic, end up using their subjects as mirrors to figure themselves out. I don’t want to be anyone’s mirror.
+ - One of the main problems of our time is that men are deprived of their human qualities that are wrongly called feminine, and women are deprived of their human qualities that are wrongly called masculine.
+ - If you follow the voice inside you, it does give you guidance.
+ - We can tell our values by looking at our checkbook stubs.
+ - As an activist, you do find yourself directed more toward public action. But I’ve always tried to use stories from my own life in my writing. It has always been clear to me that the stories of each other’s lives are our best textbooks.
+ - Happy or Unhappy, families are all mysterious.
+ - How ever sugarcoated and ambiguous, every form of authoritarianism must start with a belief in some group’s greater right to power, whether that right is justified by sex, race, religion or all four.
+ - Because when some people are invisible, everyone suffers.
+ - Unequal access to money and media plus bias, external and internalized, and male-dominant religions and illegality at the polls – all those are reasons for women’s wildly unequal political power.
+ - It’s a big gift to be recognizable as part of something that matters to people, but that’s not the same as being responsible for something.
+ - We need to stop raising boys to think that they need to prove their masculinity by being controlling or by not showing emotion or by not being little girls.
+ - Marriage works best for men than women. The two happiest groups are married men and unmarried women.
+ - By the year 2000 we will, I hope, raise our children to believe in human potential, not God.
+ - Any woman who chooses to behave like a full human being should be warned that the armies of the status quo will treat her as something of a dirty joke. That’s their natural and first weapon. She will need her sisterhood.
+ - The best way for us to cultivate fearlessness in our daughters and other young women is by example.
+ - Once we give up searching for approval we often find it easier to earn respect.
+ - Though both erotica and pornography refer to verbal or pictorial representations of sexual behavior, they are as different as a room with doors open and one with doors locked. The first might be a home, but the second could only be a prison.
+ - The voting booth is the only place that a pauper equals a billionaire, and any woman equals any man.
+ - The deepest change begins with men raising children as much as women do and women being equal actors in the world outside the home.
+ - More and more men are raising children or want to be close to their kids. They don’t want to just lead work-obsessed lives and end up 50 years later with an engraved watch.
+ - America is an enormous frosted cupcake in the middle of millions of starving people.
+ - Women’s total instinct for gambling is satisfied by marriage.
+ - Hope is a very unruly emotion.
+ - When you say something in a wrong group – it will never be right, so you can not say anything wrong, when you don’t belong to a group.
+ - I can’t mate in captivity.
+ - The whole idea is not to figure out what you should do that will matter, but to make each thing you do reflect the values you want, because we don’t know what’s going to matter in the future.
+ - Superwoman is the adversary of the women’s movement.
+ - Whatever the gender of the participants, all pornography including male-male gay pornography is an imitation of the male-female, conqueror-victim paradigm, and almost all of it actually portrays or implies enslaved women and master.
+ - The purpose of feminism is to free the uniqueness of the individual and to understand that inside each of us is a unique human being who is a combination of heredity and environment.
+ - Little girls do not wake up in the morning and say “I dream of being a prostitute.” It is a terrible, terrible life. Body invasion is more traumatic than even getting beaten up. In certain circumstances, obviously, it may be a way to survive.
+ - People say, ‘Oh, you’ve sacrificed so much, now’s the time to do something for yourself.’ I mean, please – that is so wrong. I don’t think I’ve sacrificed one f-king thing.
+ - For a man to say, “I have to leave work now because I need to do something with my kids,” it’s sometimes viewed as a career killer. He doesn’t have the right drive. So when they depart from their gender roles, they face some of the same restrictions.
+ - We’ll only really know we’ve succeeded when a mediocre woman does as well as a mediocre man. You shouldn’t have to be extraordinary. That’s the point!
+ - Women are not going to be equal outside the home until men are equal in it.
+ - I would say don’t worry about what you should do, do whatever you can. And seek companions with shared values.
+ - I believe a unique core self is born into every human being; the result of millennia of environment and heredity combined in an unpredictable way that could never happen before or again.
+ - She is a water bug on the surface of life.
+ - I think one of the great innovations of sexual harassment law was that it did not use the word “consent.” It used the word “welcome.”
+ - It’s never to late for a happy childhood.
+ - Evil is obvious only in retrospect.
+ - We’ll never solve the feminization of power until we solve the masculinity of wealth.
+ - I think laughter is crucial. Some of the original cultures, like the Dalit and the Native American, don’t separate laughter and seriousness.
+ - No one can give us power. If we aren’t part of the process of taking it, we won’t be strong enough to use it.
+ - A woman reading Playboy feels a little like a Jew reading a Nazi manual.
+ - Human beings are communal beings and we can’t exist or prosper by ourselves. We need each other’s support.
+ - I think of the future in two ways – survival plus moving forward. Under survival, I would put all the efforts to save the female half of the world from violence directed at us specifically because we are female.
+ - Logic has nothing to do with oppression.
+ - Sex and race, because they are easy and visible differences, have been the primary ways of organizing human beings into superior and inferior groups and into the cheap labour on which this system still depends.
+ - Having someone who looks like us but thinks like them is worse than having no one at all.
+ - Given the expectations of society at large, men are generally correct in their assumption that it is important for a woman to have a man. What they do not understand is how pathetically little difference it makes what man.
+ - Nature doesn’t move in a straight line, and as part of nature, neither do we.
+ - The point of the journey is not just healing. It’s also recovering the truest, most spontaneous, joyful, and creative core of ourselves.
+ - Writing keeps me from believing everything I read.
+ - A lot of my generation are living out the un-lived lives of our mothers.
+ - Perhaps the worst thing about suffering is that it finally hardens the hearts of those around it.
+ - If you’re going to have a male dominant system, to maintain the system, you have to teach men to dominate.
+ - Women are never again going to be mindless coffee-makers or mindless policy-makers in politics.
+ - Men may feel just disempowered by intimacy, by being close to a woman, and also by feeling the tender feelings that they’re ashamed of.
+ - Most American children suffer too much mother and too little father.
+ - Women can be vivacious. We are allowed more varieties of facial expression and gestures. Men must be rocklike.
+ - It turns out that we literally don’t empathize unless we’re physically present – that the oxytocin, the famous “tend and befriend” hormone is not produced unless we’re present with all five senses.
+ - Feminism starts out being very simple, and it ends up being a world view that questions hierarchy altogether.
+ - Homemakers work longer and harder than any other class of worker in the United States for less pay, and are the most likely to be replaced by a younger worker.
+ - Women have always been an equal part of the past. We just havent been a part of history.
+ - I hope readers will consider, especially in this age of the World Wide Web, that as miraculous as it is, we still need to be in the same room with all five senses if we are to empathize with each other.
+ - There is no such thing as a crime of passion, only a crime of possession.
+ - You’re a unique person. You should do what you’re suited to do. We all should. It’s the only way to be happy. That pressure is all outside. It’s external.
+ - There is no such thing as Superwoman. You cant have everything if you do everything.
+ - I don’t want to die saying but, you know? There’s so much I want to do, so I want more time.
+ - This is what forty looks like. We’ve been lying so long, who would know?
+ - It would be a disaster to have Sarah Palin or Carly Fiorina in the White House, so it’s not just a woman, but a woman who stands for the majority needs of women. It’s not just getting a job for one woman, it’s making life better for all women.
+ - I think I’ve wasted some of my time, but used most of it well, and have realized that my life is not separate from other people’s lives or from the universe. I think our moments of happiness really come from a feeling of unity.
+ - The old languages – at least the ones I know – don’t have gender. They don’t have gendered pronouns. There’s no “he” and “she.” A human being is a human being.
+ - We feel very celebratory and positive that we have created a voyage across the DMZ in peace and reconciliation that was said to be impossible.
+ - Most women are one man away from welfare.
+ - Violence against women is clearly not solved, not at all solved, and the reasons for it, which are controlling women’s bodies in order to control reproduction, are definitely not solved.
+ - Elephants are so wise and so funny and so endangered and so intelligent. I just think there is a lot to learn from them.
+ - I think if we could raise one generation of kids without violence and shaming, we don’t know what might be possible.
+ - Too much of our lives corresponds to the ‘lost-wallet’ theory of life. You lose something, spend a long time finding it, and then feel grateful to be back where you started.
+ - Romance is a means to the end of self-completion, but love is an end in itself.
+ - I did not see any way that I could possibly give birth to someone else and also give birth to myself. Far from feeling guilty, it was the first time that I had taken responsibility for my own life.
+ - I am not now, and never have been, a girlfriend of Henry Kissinger.
+ - Democracy is mob rule with income taxes.
+ - You may very well fall in love with somebody who makes less money, who’s younger than you, who weighs less than you.
+ - I do not like to write – I like to have written.
+ - Where men come to and women come together most intimately in sexuality in the home has become suffused with violence.
+ - I once fell in love with a man only because we both belonged to that large and secret club of children who had “crazy mothers.” We traded stories of the shameless houses to which we could never invite our friends.
+ - A pedestal is as much a prison as any small, confined space.
+ - There’s more variation among human groups than between human groups.
+ - My father was the Jewish half of the family, yet it was my mother who taught me to have pride in that tradition.
+ - You have no choice but to live in the present, if you’re really being open to events and people as they come along.
+ - At my graduation, I thought we had to marry what we wished to become. Now you are becoming the men you once would have wished to marry.
+ - The same big TV antenna dwarfed each roof, as though life here could only be bearable if lived elsewhere in the imagination.
+ - The problem is, for men and women, the idea that sexuality is about dominance and submission, when, in fact, cooperation is a lot more fun, to put it my way. So some of it, a lot of it, is just about empathy.
+ - Like art, revolutions come from combining what exists into what has never existed before.
+ - Most of us are living out the unlived lives of our mothers, because they were not able to become the unique people they were born to be.
+ - An education is not a thing one gets, but a lifelong process.
+ - Liberation does not come from outside.
+ - The belief that women should control our own bodies may be a majority belief, but the minority that believes otherwise is against not only safe and legal abortions but contraception and even sex education.
+ - I wouldn’t want to generalize, but we still do live in a society that’s sexist and racist and addicted to class and has the ridiculous idea that if you have money you’re smarter, which Donald Trump by himself should be able to disprove.
+ - Self-esteem is the basis of any democracy.
+ - I want us to organize, to tell the personal stories that create empathy, which is the most revolutionary emotion.
+ - A man can be called ruthless if he bombs a country to oblivion. A woman can be called ruthless if she puts you on hold.
+ - Before feminism, work was largely defined as what men did or would do. Thus, a working woman was someone who labored outside the home for money, masculine-style.
+ - I never expected to be even busier at 81, and doing more of what I love, than when I was 30.
+ - The young women seem to think that they can only go out with or marry a man who is superior to them. The problem there is that they are wanting to be defeated, as opposed to finding a partner.
+ - The original languages didn’t even have he and she. They didn’t have concepts of masculine and feminine. People were people. And the whole idea was that we were in a circle together, not in a hierarchy together.
+ - When the gender role starts to descend, boys get into the masculine box.
+ - You’re afraid to be close to women. Because it’s not masculine to be close to women. The last time you were close to a woman, you were a child.
+ - This is the wisdom: If we bless our bodies, they will bless us.
+ - Being able to support oneself allows one to choose a marriage out of love and not just economic dependence. It also allows one to risk that marriage.
+ - The only thing I can’t stand is discomfort.
+ - When the past dies, there is mourning, but when the future dies our imaginations are compelled to carry it on.
+ - Knowing About Victoria Woodhull inspires women to be daring, outrageous and creative.
+ - A movement happens when people are inspired by somebody, but they do it themselves. You don’t wait for someone else. You do it yourself.
+ - We have to stop arresting prostitutes and not arresting traffickers and pimps. It’s absurd. We’re arresting the victim or the survivor and not the oppressor.
+ - In order to make a choice, you need the power to see there is one.
+ - The definition of woman’s work is shitwork.
+ - Writers are notorious for using any reason to keep from working: over-researching, retyping, going to meetings, waxing the floors – anything.
+ - We’re communal animals. If we’re by ourselves, we can feel wrong and crazy and out of step with society. We really need those talking circles.
+ - Women, we tend to become whole people by venturing outside of the home, learning to aspire, to achieve, to deal with conflict – all these qualities that are wrongly called masculine.
+ - Men should think twice before making widow hood woman’s only path to power.
+ - I began to understand with a terrible sureness that we teach what we need to learn and write what we need to know.
+ - The ends and means are a seamless web.
+ - Feminism isn’t called the longest revolution for nothing.
+ - There is a naive belief that injustice only had to be pointed out in order to be cured.
+ - I think we all have the power to name ourselves. I try to call people what it is they wish to be called. But we can take the sting out of epithets and bad words by using them.
+ - The origins of violence against women by men are not biological. If that were the case, it would exist in every culture. And it doesn’t exist in every culture.
+ - Women get hit with a double whammy. If they’re attractive, they’re presumed to have slept their way to the top. If they’re unattractive, they are presumed to have chosen a profession because they could not get a man.
+ - I don’t know if fury can compete with necessity as the mother of invention, but I recommend it.
+ - If you can learn to like how you look, and not the way you think you look, it can set you free.
+ - A portable friend to all readers-especia lly but not only women-who need to learn that the Golden Rule works only if it’s reversible: We must learn to treat ourselves as well as we wish to treat others.
+ - Labeling makes the invisible visible, but it’s limiting. Categories are the enemy of connecting. Link, don’t rank.
+ - Anybody who has ever met a baby knows there is already a person in there.
+ - Most art in the world does not have a capital ‘A,’ but is a way of turning everyday objects into personal expressions.
+ - No matter how hard I worked, whatever I accomplished was attributed to my looks. If you’re working your ass off, then you don’t want to be told that you only got whatever because of the way you look. It takes the heart out of you.
+ - It’s endlessly interesting to be organizing and hearing possible solutions or thinking of possible solutions and how to put efforts together. It makes everything else boring, actually.
+ - Economics anxiety may be even more common than the often identified ‘math anxiety,’ for unlike math, which has its personal uses, economics is seen as a mysterious set of forces manipulated from above.
+ - Each individual woman’s body demands to be accepted on its own terms.
+ - A movement is only composed of people moving. To feel its warmth and motion around us is the end as well as the means.
+ - The dogma is that that dogma is a mistake.
+ - Unless we include a job as part of every citizen’s right to autonomy and personal fulfillment, women will continue to be vulnerable to someone else’s idea of what need is.
+ - If you say, I’m for equal pay, that’s a reform. But if you say. I’m a feminist, that’s a transformation of society.
+ - We have to imagine change before we can begin to move toward it.
+ - Most women’s magazines simply try to mold women into bigger and better consumers.
+ - I just think that culturally, women – we’re all human beings – but at least we don’t have our masculinity to prove.
+ - I know that lack of contact creates more lack of contact, and contact creates more contact, or at least an ability to talk to with each other.
+ - Society certainly encourages women to be victims in every way. I mean if we want approval, we have to sing the blues, even as singers we sing the blues.
+ - Proust’s tea cake has nothing on one hour in a college dorm.
+ - If you look at the public opinion polls even, support for all the issues, people who self-identify as feminists are as least as many as those who self-identify as Republicans.
+ - I would put all the efforts to humanize the “masculine” and “feminine” gender roles that are the beginning of a false human hierarchy and normalize race, class and other systems of domination to come.
+ - It’s an incredible con job when you think about it, to believe something now in exchange for something after death. Even corporations with their reward systems don’t try to make it posthumous.
+ - From pacifist to terrorist, each person condemns violence – and then adds one cherished case in which it may be justified.
+ - I always thought that “humanist” was a good word long before I understood that anyone thought it was a bad word.
+ - We’re changing ourselves to fit the world instead of changing the world to fit women.
+ - I think that we need to change the culture, not blame the people that are playing the only game that exists.
+ - Don’t worry about your background, whether it’s odd or ordinary, use it, build on it.
+ - A person who has experienced something is almost always far more expert on it than are the experts.
+ - Women fear endangering men’s approval so much, we don’t even wait for them to say no. Or else we protect them, even if it means saying no to ourselves.
+ - People start to talk about post-racist, post-feminist. What does that mean? We’re clearly not post either. Would you say post-democracy? Clearly we haven’t reached true democracy yet.
+ - I would say that reproductive freedom comes first, then violence and economics.
+ - If men started taking care of children, the job will become more valuable.
+ - Self-esteem starts out as a personal blessing, but it becomes nothing less than an evolutionary force.
+ - The Internet is an almost miraculous way of getting information, of finding and organizing with each other, both minutely and globally. A million times better than the phone and the mimeograph! Also much better than TV, which is one-way and passive.
+ - Show me something that is not transformed by the other half of the human race.
+ - If men menstruated, they would brag about how much and for how long.
+ - We have to learn to stand up for our interests. To seek purity is self-defeating and a stereotype in itself: women have to be pure, women are not concerned about money.
+ - In retrospect, perhaps the biggest reason my mother was cared for but not helped for twenty years was the simplest: Her functioning was not that necessary to the world.
+ - You can hardly open a newspaper without seeing that a woman has been killed by a man for clearly gender-related reasons.
+ - A rejection of the way a woman speaks is often a way of blaming or dismissing her without dealing with the content of what she is saying.
+ - Anyone who has ever experienced dehumanized life on welfare or any other confidence-shaking dependency knows that a paid job may be preferable to the dole, even when the handout is coming from a family member.
+ - We need to take violence against women seriously. It is the biggest indicator of whether a country is violent inside itself, and whether it will be militarily violent against another country.
+ - Karla Jay’s intimate account of life in the early years of feminism and gay liberation is as irresistible as a novel, but as credible, humorous, and unexpected as real life.
+ - The most impersonal seeming audiences eventually just say such intimate, smart, wise, amazing, totally surprising, funny things. It’s empowering, in the sense of feeling like you’re a part of something really important.
+ - In every century, there are a handful of writers who help the human race to evolve. Andrea is one of them.
+ - I will no longer be referred to as Miss Steinem of Ms. magazine.
+ - Writing is always harder than talking.
+ - They would say well there’s always been wars, men have always beaten women. But it isn’t true in all cultures. It doesn’t have to be true. And the first step is imaging.
+ - Childbirth is more admirable than conquest, more amazing than self-defense, and as courageous as either one.
+ - We will live to see the day that St. Patrick’s Cathedral is a child-care center and the pope is no longer a disgrace to the skirt that he has on.
+ - Happy or unhappy, families are all mysterious. We have only to imagine how differently we would be described – and will be, after our deaths – by each of the family members who believe they know us.
+ - Worry less about solutions from the top or the idea that there is a solution, but try to do whatever you can and instill in each action the values that you want to result.
+ - I always trust the microcosm over the macrocosm.
+ - Like so many women, I was living out the unlived life of my mother, so I wouldn’t be her. But the price I paid was that I distanced myself internally. I wasn’t as close to her then as I nowadays, in retrospect, wish I had been.
+ - Women must have seats at the table because peace is too crucial to be left only to the politicians or only to the male half of our world.
+ - Frequently people just vote for the party out of power because they’re disappointed or angry at what is happening at the moment.
+ - The road itself is informative, because it forces you to respond spontaneously and to encounter the unexpected. It forces you to reassess what you felt about people or issues or places, and it forces you to live in the present.
+ - Obviously, untangling sex from aggression and violence or the threat of it is going to take a very long time. And the process is going to be greatly resisted as a challenge to the very heart of male dominance and male centrality.
+ - The political is personal.
+ - What has the women’s movement learned from Geraldine Ferraro’s candidacy for vice president? Never get married.
+ - How can I combine career and family?
+ - We all have good instincts unless they’re beaten out of us or shamed out of us in childhood.
+ - It’s obviously a great sign of growth and success that the media no longer try to embody the bigness and diversity of the women’s movement in one person. Only a diverse group can symbolize a movement.
+ - Now, we’ve made the revolutionary discovery that children have two parents. A decade ago even the kindly Dr. Spock held mothers solely responsible for children.
+ - For much of the female half of the world, food is the first signal of our inferiority. It lets us know that our own families may consider female bodies to be less deserving, less needy, less valuable.
+ - What we have been raised to think of as inevitable – division and hierarchy, monotheism and nation states – actually accounts for less than 10 percent of human history.
+ - I don’t think there’s any country that has equal pay, not even Sweden or Iceland.
+ - Her searches after knowledge were arbitrary and without context. It was as if she were shining a small flashlight of curiosity into the dark room of the world.
+ - No other form of violence is legitimate. It is never acceptable to use violence to solve a problem. Whether personal or political.
+ - I was not considered beautiful before I was a feminist. I was a pretty girl before, but suddenly, after I was publicly identified as a feminist, I was beautiful. So, many people were really commenting on what they thought feminists looked like.
+ - We need to return and go forward to the understanding that there is God in all living things, not more in men than women, and not more in humans than in nature. To believe otherwise is only an excuse for dominating women and nature.
+ - The highest use of the Web is getting the information and identifying the places and the possibility of being together physically.
+ - Our children are the only people on whom we can safely take revenge for what was done to us.
+ - Looking at traditional marriages, it seems the surest way for a woman to be alone is to get married.
+ - Most books are bought by women.
+ - Perhaps well-to-do women and unemployed ghetto teenagers have something in common. Neither group has been allowed to develop the self-confidence that comes from knowing you can support yourselves.
+ - There are many more women who identify as unique people as well as mothers, or instead of as mothers, than there used to be and, hopefully, there are more men who identify as fathers.
+ - I’m more often confronted by women who come from religious traditions and don’t feel that they have a place in the feminist movement. I’ve felt pressure when reporters asked me, “Do you believe in God?” I do say, “No. I believe in people.”
+ - I never quite trust futurists because I think they’re kind of telling us what they think our future should be.
+ - Writers – we’re a little crazy about how much we care about it. We spend a lot of time fussing. At least, I do.
+ - If we’re isolated, we come to feel powerless when we’re not.
+ - No man can call himself liberal, or radical, or even a conservative advocate of fair play, if his work depends in any way on the unpaid or underpaid labor of women at home, or in the office.
+ - The authority of any governing institution must stop at its citizen’s skin.
+ - Male silence is not the same as listening.
+ - If you have two groups of people and you say one is inferior to the other, which is a lie, then the only way to maintain the lie is through violence or the threat of violence.
+ - It’s the biggest economic influence in a woman’s life whether she can decide when and whether to have children or not.
+ - Patriarchy 101 would have you believe otherwise, but you know – that’s just not true. Those inequalities are recipes for resentment. And, yes, the formula isn’t perfect yet. We don’t all have that. But we’re trying.
+ - When gender comes down upon us, male or female, it comes as a restriction.
+ - In my own mind, I am still a fat brunette from Toledo, and I always will be.
+ - I’m not sure that it’s up to me to sum up what I’ve done with it in the past. I’m not sure there’s a way of knowing what we have done that is useful or important.
+ - It’s hard to measure success when we’re dealing with between 500 and 5,000 years of patriarchy depending on which continent we sit, so I would say feminism has been successful and we have a huge distance to go, huge.
+ - I would write about issues and people I met along the way, but not about the process and the life of being on the road.
+ - Clearly no one knows what leadership has gone undiscovered in women of all races, and in black and other minority men.
+ - It’s not okay for a woman to be in control of her own body, her own reproductive system, much less of her life. There’s opposition even to that. So passivity is rewarded as feminine.
+ - To punish the individual for the sins of the system makes no sense. We’re responsible for changing it, yes. But we can’t actually invent another universe, so we have to start where we are.
+ - There were never that many women stand-up comics in the past because the power to make people laugh is also a power that gets people upset.
+ - What would happen if even one generation were raised with respect and without violence?
+ - It was the first female-style revolution: no violence and we all went shopping.
+ - So why is the sex barrier not taken as seriously as the racial one?
+ - Language can’t solve everything, of course, but it does carry our dreams and our ideas.
+ - Allowing women the power to decide when and whether to have children is the only way to solve the 7 billion human load on this planet that threatens to destroy it. Women’s equality is also men’s survival.
+ - I’ve yet to be on a campus where most women weren’t worrying about some aspect of combining marriage, children, and a career. I’ve yet to find one where many men were worrying about the same thing.
+ - Prejudice marks a mental landmine.
+ - Men, through no fault of theirs, get born into cultures that tell them that if a woman can do it, it’s not worth doing, or if they’re not superior to women in one way or another, they’re not really masculine.
+ - Our own lives feel so disordered and confusing, so it’s amazing to me that the filmmakers caught the personal, emotional high points and low points of my life and not just the public aspects.
+ - I have always employed humor, and I think it’s absolutely crucial that we do because, among other things, humor is the only free emotion.
+ - Even when educators survey grade school texts and create new bibliographies to help teachers include Asians, Eskimos, and other Americans, females in and out of those groups may be down-played or forgotten.
+ - I’m still the same person who grew up mostly in a Midwestern, factory-working neighborhood where talk about “self-esteem” would have seemed like a luxury.
+ - What would happen if we listened to children as much as we talked to them?
+ - I think we acquire habits of mind when we’re little, and I lived in the future because I was always imagining being a grown-up, when I could get out.
+ - There are many ways of supporting gender equality, from something as simple as paid sick leave and flexible work hours to attributing an economic value to all care-giving, and making that amount tax deductible.
+ - I’ve only ever met one woman who actually was a prostitute of her own free will. She didn’t have a pimp. She could pick and choose her customers. That’s so rare.
+ - Sadomasochiasm – which we know very well doesn’t exist in societies that don’t have child abuse – is regarded some sort of natural sexual expression.
+ - A different world can be created or re-created-but not until we stop enshrining the economic values of invisible labor, infinite and obsessive growth, and a slow environmental suicide.
+ - Because I have work to care about, it is possible that I may be less difficult to get along with than other women when the double chins start to form.
+ - For the reader who has put away comic books, but isn’t yet ready for editorials in the Daily News.
+ - During the first suffragist wave in this nation, women were possessions, like a table or a chair. So violence toward them was quite condoned. The attitude has diminished, but it’s still there.
+ - I always say to audiences of men: “Cooperation beats submission. Trust me.”
+ - I definitely think men can be leaders. I see an analogy in the case of what helped me think about racism, which was to find parallels with sexism. In other words, I don’t think I was such a great ally until I got mad on my own behalf.
+ - I was rescued by librarians. It was librarians who said ‘maybe you would like to read The Hardy Boys as well as Nancy Drew.’ It is true for me, as for so many countless others, that librarians saved my life, my internal life.
+ - Paradoxically, only journeying backward in time and reentering the home we once knew allows us to go forward to the home we’ve always wanted.
+ - Of course, we can change. We’re very adaptable. But it takes a while.
+ - When I was little, I knew that I was not adopted, but I actually imagined and hoped that I was, and that my real parents were going to come get me. I was just too different from the rest of the family, so I lived in books and in my imagination.
+ - We choose to be writers because we don’t want to talk.
+ - Crime is not the problem of the victim, the victim didn’t create the crime.
+ - It’s not that women are less corruptible than men are, it’s that women have had less chance to become corrupt.
+ - We do what we see and what we’re told. If we haven’t been raised in a family or in a community where women are treated as full human beings and men don’t have to be superior anymore, we continue to think that it’s not only natural but inevitable.
+ - I’d like to be played as a child by Natalie Wood. I’d have some romantic scenes as Audrey Hepburn and have gritty black-and-white scenes as Patricia Neal.
+ - People are quite clear in viewing nuns as the servants and the teachers and the supporters of the poor. You contrast that with the fact that the Vatican did virtually nothing about long-known pedophiles, and it’s just too much.
+ - Men tend to gain wholeness by acquiring the qualities that are wrongly called feminine.
+ - Some women and men seem to need each other.
+ - It’s especially ridiculous to think you have to be successful when you’re so young. You should be able to adventure and not worry so much about achievement.
+ - The kind of power I want is the power to persuade. But I do not want the power to tell other people what to do.
+ - I guess 35 years ago, I thought we had more of a democracy than we actually do. Majority support doesn’t help unless the majority is active and votes – but the opposition minority votes a much greater proportion, so we often lose by a narrow margin.
+ - I haven’t been in a job situation in which I was competing with other women. As a writer, you’re more likely to be treated as an individual.
+ - It used to be said that this country was a child-centered one. Nothing could be further from the truth. Children have been our lowest priority, both in economic and emotional spending.
+ - If the men in the room would only think how they would feel graduating with a ‘spinster of arts’ degree they would see how important this is.
+
+365 quotes

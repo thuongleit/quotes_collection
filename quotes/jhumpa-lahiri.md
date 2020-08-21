@@ -1,0 +1,55 @@
+ - That’s the thing about books. They let you travel without moving your feet.
+ - Still, there are times I am bewildered by each mile I have traveled, each meal I have eaten, each person I have known, each room in which I have slept. As ordinary as it all appears, there are times when it is beyond my imagination.
+ - Isolation offered its own form of companionship.
+ - Remember that you and I made this journey together to a place where there was nowhere left to go.
+ - It is a magical thing for a handful of words, artfully arranged, to stop time. To conjure a place, a person, a situation, in all its specificity and dimensions. To affect us and alter us, as profoundly as real people and things do.
+ - Writing is one of the most assertive things a person can do.
+ - Sexy means loving someone you donot know.
+ - A bicultural upbringing is a rich but imperfect thing.
+ - She watched his lips forming the words, at the same time she heard them under her skin, under her winter coat, so near and full of warmth that she felt herself go hot.
+ - I dream of writing a book like LOVERS some day. It is so spare but so rich. It is history made intimate, and a masterpiece of compression.
+ - I am drawn to any story that makes me want to read from one sentence to the next. I have no other criterion.
+ - And yet he had loved her. A Bookish girl heedless of her beauty, unconscious of her effect. She’d been prepared to live her life alone but from the moment he’d known her he’d needed her.
+ - That the last two letters in her name were the first two in his, a silly thing he never mentioned to her but caused him to believe that they were bound together.
+ - She has the gift of accepting her life.
+ - You remind me of everything that followed.
+ - They were things for which it was impossible to prepare but which one spent a lifetime looking back at, trying to accept, interpret, comprehend. Things that should never have happened, that seemed out of place and wrong, these were what prevailed, what endured, in the end.
+ - Somehow, bad news, however ridden with static, however filled with echoes, always manages to be conveyed.
+ - I always think first about the nature of the story. When I had the idea for ‘The Namesake,’ I felt that it had to be a novel – it couldn’t work as a story.
+ - She supposed that all those years of loving a person who was dishonest had taught her a few things.
+ - The first sentence of a book is a handshake, perhaps an embrace.
+ - On a sticky August evening two weeks before her due date, Ashima Ganguli stands in the kitchen of a Central Square apartment, combining Rice Krispies and Planters peanuts and chopped red onion in bowl.
+ - The most compelling narrative, expressed in sentences with which I have no chemical reaction, or an adverse one, leaves me cold.
+ - When I sit down to write, I don’t think about writing about an idea or a given message. I just try to write a story which is hard enough.
+ - Fiction is the only way I know a human being can inhabit the mind of another human being.
+ - Do what I will never do.
+ - One hand, five homes. A lifetime in a fist.
+ - She learned that an act intended to express love could have nothing to do with it. That her heart and her body were different things.
+ - Pet names are a persistant remnant of childhood, a reminder that life is not always so serious, so formal, so complicated. They are a reminder, too, that one is not all things to all people.
+ - With children the clock is reset. We forget what came before.
+ - And yet she could not forgive herself. Even as an adult, she wished only that she could go back and change things: the ungainly things she’d worn, the insecurity she’d felt, all the innocent mistakes she made.
+ - The thought of Christmas overwhelms him. He no longer looks forward to the holiday; he wants only to be on the other side of the season. His impatience makes him feel that he is incontrovertibly, finally, an adult.
+ - The urge to convert experience into a group of words that are in a grammatical relation to one another is the most basic, ongoing impulse of my life.
+ - I approach writing stories as a recorder. I think of my role as some kind of reporting device – recording and projecting.
+ - She has given birth to vagabonds. She is the keeper of all these names and numbers now, numbers she once knew by heart, numbers and addresses her children no longer remember.
+ - She had listened to him, partly sympathetic, partly horrified. For it was one thing for her to reject her background, to be critical of her family’s heritage, another to hear it from him.
+ - If I stop to think about fans, or best-selling, or not best-selling, or good reviews, or not-good reviews, it just becomes too much. It’s like staring at the mirror all day.
+ - I’ve seen novels that have grown out of one story in a collection. But it hasn’t occurred to me to take any of those stories and build on them. They seem very finished for me, so I don’t feel like going back and dredging them up.
+ - I’ve never had Internet access. Actually, I have looked at things on other people’s computers as a bystander. A few times in my life I’ve opened email accounts, twice actually, but it’s something I don’t want in my life right now.
+ - Gogol is unaccustomed to this sort of talk at mealtimes, to the indulgent ritual of the lingering meal, and the pleasant aftermath of bottles and crumbs and empty glasses that clutter the table.
+ - On the screen I saw tanks rolling through dusty streets, and fallen buildings, and forests of unfamiliar trees into which East Pakistani refugees had fled, seeking safety over the Indian border.
+ - For that story, I took as my subject a young woman whom I got to know over the course of a couple of visits. I never saw her having any health problems – but I knew she wanted to be married.
+ - It’s easy to set a story anywhere if you get a good guidebook and get some basic street names, and some descriptions, but, for me, yes, I am indebted to my travels to India for several of the stories.
+ - I would not send a first story anywhere. I would give myself time to write a number of stories.
+ - Relationships do not preclude issues of morality.
+ - She is stunned that in this town there are no sidewalks to speak of, no streetlights, no public transportation, no stores for miles at at a time.
+ - The knowledge of death seemed present in both sisters-it was something about the way they carried themselves, something that had broken too son and had not mended, marking them in spite of their lightheartedness.
+ - It didn’t matter that I wore clothes from Sears; I was still different. I looked different. My name was different. I wanted to pull away from the things that marked my parents as being different.
+ - It interests me to imagine characters shifting from one situation and one location to another for whatever the circumstances may be.
+ - I wanted to pull away from the things that marked my parents as being different.
+ - He tries to peel the image from the sticky yellow backing, to show her the next time he sees her, but it clings stubbornly, refusing to detach cleanly from the past.
+ - A writer has to true to him or herself. Period. That’s it!
+ - In New York I was always so scared of saying that I wrote fiction. It just seemed like, ‘Who am I to dare to do that thing here? The epicenter of publishing and writers?’ I found all that very intimidating and avoided writing as a response.
+ - In fiction, plenty do the job of conveying information, rousing suspense, painting characters, enabling them to speak. But only certain sentences breathe and shift about, like live matter in soil.
+
+53 quotes

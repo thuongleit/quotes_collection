@@ -1,0 +1,21 @@
+ - Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.
+ - I have held many things in my hands, and I have lost them all; but whatever I have placed in God’s hands, that I still possess.
+ - I have so much to do that I shall spend the first three hours in prayer.
+ - You are not only responsible for what you say, but also for what you do not say.
+ - We are saved by faith alone, but the faith that saves is never alone.
+ - God writes the gospel not in the Bible alone, but on trees and flowers and clouds and stars.
+ - For in the true nature of things, if we rightly consider, every green tree is far more glorious than if it were made of gold and silver.
+ - There is no more lovely, friendly and charming relationship, communion or company than a good marriage.
+ - Let the wife make her husband glad to come home and let him make her sorry to see him leave.
+ - Where the battle rages, there the loyalty of the soldier is proved.
+ - Everything that is done in this world is done by hope.
+ - Beer is made by men, wine by God.
+ - You have as much laughter as you have faith.
+ - Be a sinner and sin strongly, but more strongly have faith and rejoice in Christ.
+ - I cannot choose but adhere to the word of God, which has possession of my conscience; nor can I possibly, nor will I even make any recantation, since it is neither safe nor honest to act contrary to conscience! Here I stand; I cannot do otherwise, so help me God! Amen.
+ - True humility does not know that it is humble. If it did, it would be proud from the contemplation of so fine a virtue.
+ - I am afraid that the schools will prove the very gates of hell, unless they diligently labor in explaining the Holy Scriptures and engraving them in the heart of the youth.
+ - The dog is the most faithful of animals and would be much esteemed were it not so common. Our Lord God has made His greatest gifts the commonest.
+ - There never yet have been, nor are there now, too many good books.
+
+19 quotes

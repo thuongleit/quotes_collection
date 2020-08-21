@@ -1,0 +1,22 @@
+ - Memories are links in a golden chain that bind us until we meet again.
+ - Coincidence is a messenger sent by truth.
+ - It was time to move on, to dance with life again.
+ - Stay with the question. The more it troubles you, the more it has to teach you.
+ - Truth walks toward us on the paths of our questions. As soon as you think you have the answer, you have closed the path and may miss the vital new information. Wait awhile in the stillness, and do not rush to conclusions, no matter how uncomfortable the unknowing.
+ - Never judge a journey by the distance...
+ - My first ever job after college was as a flight attendant. I wanted to travel and could not afford it, so I decided to get myself a job where I could travel. I did it for two years and had great fun.
+ - Grace isn’t a little prayer you chant before receiving a meal. It’s a way to live.
+ - I often think it would be really interesting to take all of those who would wage war to the battlefield cemeteries, and say, explain yourself to the dead. Explain yourself to the dead!
+ - It’s really important in any historical fiction, I think, to anchor the story in its time. And you do that by weaving in those details, by, believe it or not, by the plumbing.
+ - Most people don’t realize that they feel something is wrong before they think something is wrong...
+ - One always has riches when one has a book to read.
+ - Yes, it does make the load rather heavy if you carry tools for every eventuality.
+ - Im a storyteller; that is what I do. And Im particularly interested in history; and in history of a certain era. But what is interesting for me is how many, how many things you see repeated.
+ - But to some extent, the whole aspect of Fascism was a real hot potato. Because so many of the aristocracy were enamored of the tenets of not only fascism but also of Adolf Hitler himself. And you know, that was treading on a lot of toes.
+ - What’s interesting to me, is a moving someone through time; in a way, history is part of my landscape. And it fascinates me that history can be so easily reflected in what happens today.
+ - David Corbett’s The Art of Character offers a deep inquiry into the creation of character for the novice writer, with valuable nuggets of wisdom for the seasoned storyteller. If you are a writer, it should be on your desk.
+ - Shame, isn’t it? That we only like our heroes out in the street when they are looking their best and their uniforms are ‘spit and polished,’ and not when they’re showing us the wounds they suffered on our behalf.
+ - It is indeed a wondrous universal alchemy, is it not? When one’s heartfelt intentions cause mountains to move.
+ - But there are many men-and women-who do things in a time of war that they wouldn’t dream of doing in peacetime, and all for the common good.
+
+20 quotes

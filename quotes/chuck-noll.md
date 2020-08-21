@@ -1,0 +1,23 @@
+ - Good things come to those who hustle.
+ - Champions are champions not because they do anything extraordinary but because they do the ordinary things better than anyone else.
+ - Champions do ordinary things better than everyone else.
+ - If you want to win, do the ordinary things better than anyone else does them day in and day out.
+ - On every team, there is a core group that sets the tone for everyone else. If the tone is positive, you have half the battle won. If it is negative, you are beaten before you ever walk on the field.
+ - In order to WIN the game, you must first not LOSE it.
+ - Pressure is something you feel when you do not know what you are doing.
+ - The key to a winning season is focusing on one opponent at a time. Winning one week at a time. Never look back and never look ahead.
+ - Being stubborn is a virtue when you’re right; it’s only a character flaw when you’re wrong.
+ - Leaving the game plan is a sign of panic, and panic is not in our game plan.
+ - Never make a major decision based solely on money.
+ - A life of frustration is inevitable for any coach whose main enjoyment is winning.
+ - As you gain experience, you mature as an individual, and along with that comes the confidence that you have the ability to solve problems.
+ - I can’t tell you how much you gain, how much progress you can make, by working together as a team, by helping one another. You get much more done that way. If there’s anything the Steelers of the ’70s epitomized, I think it was that teamwork.
+ - Before you can win a game, you have to not lose it.
+ - The thrill isn’t in the winning, it’s in the doing.
+ - The most interesting thing about this sport, at least to me, it the activity of preparation-any aspect of preparation for the games. The thrill isn’t in the winning, it’s in the doing.
+ - Watch the film, not the stopwatch.
+ - It’s not pleasant when you lose your whole football team.
+ - Some coaches pray for wisdom. I pray for 260-pound tackles. They’ll give me plenty of wisdom.
+ - You can’t make a great play until you first do it in practice.
+
+21 quotes

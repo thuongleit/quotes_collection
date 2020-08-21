@@ -1,0 +1,26 @@
+ - Morning is wonderful. Its only drawback is that it comes at such an inconvenient time of day.
+ - More evil gets done in the name of righteousness than any other way.
+ - Every ounce of my cynicism is supported by historical precedent.
+ - Consistency is the sign of a narrow mind.
+ - Soldiers live. He dies and not you, and you feel guilty, because you’re glad he died, and not you. Soldiers live, and wonder why.
+ - Rich men have dreams. Poor men die to make them come true.
+ - Write. Don’t talk about writing. Don’t tell me about your wonderful story ideas. Don’t give me a bunch of “somedays.” Plant your ass and scribble, type, keyboard. If you have any talent at all, it will leak out despite your failure to pay attention in English.
+ - Time will unfold its leaves.
+ - I’m a bad man. I need to understand the past. It illuminates the present.
+ - I’m an incurable romantic. The essence of romance is an unshakable conviction that next time will be different.
+ - A world ought to have a few genuine good guys, and not just a spectrum of people running from bad to worse.
+ - There is no vengeance as terrible as the vengeance a coward plots in the dark of his heart.
+ - The man who counts on the aid of a god deserves the help he doesn’t get.
+ - Any man who barely sustains an armistice with himself has no business poking around in an alien soul.
+ - I believe in our side and theirs, with the good and evil decided after the fact, by those who survive. Among men you seldom find the good with one standard and the shadow with another.
+ - There were dreams once upon a time, dreams now all but forgotten. On sad days I dust them off and fondle them nostalgically, with a patronizing wonder at the naivete of the youth who dreamed them.
+ - There are no self-proclaimed villains, only regiments of self-proclaimed saints. Victorious historians rule where good or evil lies.
+ - Books are nothing but repositories for those lies the author wants his reader to believe.
+ - The only characters I’ve made to resemble real people have been grotesques.
+ - Oh, ’twould be marvelous if the world and its moral questions were like some game board, with plain black players and white, and fixed rules, and nary a shade of grey.
+ - Even when we know things, sometimes it takes words to make them concrete.
+ - I guess I suffer from an impoverishment of the sociopathic spirit necessary to go big time.
+ - Religion is something that gets hammered in early, and never really goes away. And has powers to move which go beyond anything rational.
+ - My favorite sport is female and my favorite food is beer.
+
+24 quotes

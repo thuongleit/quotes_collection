@@ -1,0 +1,45 @@
+ - A person isn’t born with the intelligence to be with someone especial, you learn it, and you fail in the path of life, but you don’t have to give up the chance to love.
+ - You know, Motorcycle Diaries has no incredible stories, no sudden plot twists, it doesn’t play that way. It’s about recognizing that instance of change and embracing it.
+ - In English, I’m a little bit limited. I speak English as a second language, and that’s a little limitation that I have to work around and I have to use it to my favor. So, yes, that’s why I end up wanting to do more things in Latin America.
+ - I go with the flow. Whatever music you play for me, I’ll dance.
+ - To be absolved, especially if you commit a crime, there is no absolution, you must pay. But for forgiveness, with God or nature, you have to accept what you’ve done.
+ - I think the water dictates how food will taste in a country. In England the apples taste unlike apples grown in any other place. England is an island, there’s a lot of salt in the air and in the water. I think that has something to do with it.
+ - I think in a sense seeing how films have changed me and seeing how fiction moves me more than facts in many ways, and I think that I can talk for many people that fiction moves us more than real life, it certainly helps us to set forth on this a journey of a utopia, which can never be achieved.
+ - It is quite common to meet people that live a few kilometers away from Mexico and that have never been there.
+ - The collective experience of watching a great film together in a room is a transcendent moment that will never die.
+ - My love is for acting not money, so I only take on roles that I find challenging, in stories I find interesting.
+ - When confronted with a clear definition of what it is to be Mexican, we encounter ourselves in a never ending allegory of mixes and chaos.
+ - I was pretty excited to meet Cate Blanchett. She’s great, she’s amazing, I think she’s one of the most beautiful women in the universe. And I mean the universe, not the world.
+ - Let’s not give the electoral process so much importance. We have to be cynical about it. Let’s give importance to the real democracy that’s constructed on a day-to-day basis. That’s my hopeful perspective on it.
+ - A boxing workout is the heaviest thing, but it’s the best. The worst part is that boxing gyms are the smelliest things in the universe. You have to lie down on the floor, where everyone has been sweating and spitting, and do 1,000 situps and push-ups.
+ - Life certainly points it out to you – ‘you can go this way or the other way.’ You have to decide and it’s a very strong decision because, would you sleep well knowing that you’re living in the best place, but you’re letting the place where you should live alone?
+ - When it’s good, cinema can be one of the most important things in a person’s life. A film can be a catalyst for change. You witness this and it is an incredibly spiritual experience that I’d never lived before; well, maybe only in a football match.
+ - In Mexico, theater is very underground, so if youre a theater actor its very difficult to make a living. But its also a very beautiful pathway to knowledge and to an open education.
+ - We all have a cross-gender character: Every woman has a man that they can play, and every man has a woman that they can play.
+ - We have a documentary film festival in Mexico. It’s really original. It’s called Ambulante, and it’s a film festival that travels around several cities in Mexico.
+ - Recently I’ve been doing risottos. Some of them have been amazing. Some of them, not all of them.
+ - Talking about food is like talking about your dreams. Everyone has something to say. We all have to eat, it’s just what we eat which differs. Some people eat for fuel and I feel bad for them.
+ - Mexican food is far more varied than people think. It changes like dialects. I was brought up in Jalisco by the sea on a basic diet – tomatoes, chillis, peppers of every size and rice, which is a Mexican staple. The Pacific coast has a huge array of seafood.
+ - A love relationship has always been shaped by the context and times we live in.
+ - In terms of work, obviously acting is such a job that is very in the flesh kind of thing. It’s your work, but it’s your life, in a way. You can get so mixed up.
+ - I was little there were times I wanted my parents to be normal. I wanted them to have a religion. I wanted them to have a job, like the parents of every other kid I went to school with.
+ - It’s very difficult to raise money, especially in the United States, for independent movies.
+ - Every democracy is constructed day-to-day. And the electoral process reduces and minimalizes every single aspect of human complexity. We’re putting it into pamphlets. We’re doing a publicity show. We’re becoming symbols.
+ - I was asked to go to Cannes to present Amores Perros. And little did I know that this film would be huge. I saw it for the first time in Cannes, and it was the first time I’d seen myself on such a big screen. And it had a huge impact on me – it was the strangest feeling.
+ - I was brought up the Mexican way, where actors are paid very little and every part you take is an act of faith. If people respect that, then great.
+ - I want to do work, but I also want to have a good time.
+ - In a comedy, after the day is done, you can figure out ways of how to make it even funnier for the next day. In dramas, it’s very different – the mindset that you’re in.
+ - Bringing a baby into the world is not like grilling enchiladas. It’s a difficult thing.
+ - I asked the producers when I was doing ‘Y Tu Mama Tambien’ if they could give me a VHS recording of the film that I could show to my family, because in Mexico and Latin America, when you do a film, you don’t expect anybody to see it, especially not in the cinema.
+ - It’s not easy to act, but to direct to act. It goes form one place to the next. It’s not heading for the punchline, and also it’s not about scoring goals. It’s about passing the ball, and the goals will come by themselves.
+ - Every decision that you make you have to be incredible congruent. It doesn’t mean that you have to starve. If you need money, you do something that gives you money, that’s normal.
+ - Doing films in Latin America is like an act of faith. I mean, you really have to believe in what you’re doing because if not, you feel like it’s a waste of time because you might as well be doing something that at least pays you the rent.
+ - In Latin America, you don’t do things for the money because there is no money.
+ - I love rehearsals and I love creating a character, sticking with it until you have something to tell. It’s always different though. Sometimes a director will tell you from day one what they want. Then you throw in your idea.
+ - Films, fiction, can encompass a whole global vision on a particular subject with any story, whatever it is. You can play the story in whatever country with whatever language in whatever style you want to tell the story in.
+ - I always wanted to act, but I never thought it would be my profession. I thought that I’d end up doing other things, but that in the meantime I’d do plays.
+ - In Mexico you have death very close. That’s true for all human beings because it’s a part of life, but in Mexico, death can be found in many things.
+ - I didn’t know I wanted to do films until I started to do them. Very few films are made in Mexico and film-making belonged to a very specific group, a clique.
+ - I believe fervently in the nature, in truth and imagination, I believe in the blood, in life, words, and motivations.
+
+43 quotes

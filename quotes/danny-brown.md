@@ -1,0 +1,27 @@
+ - If you like soggy cereal, then we not friends.
+ - I don’t really feel famous. I’m just an internet guy. I walk down the street and people don’t really mess with me too much. I still have my life.
+ - The UK is always ahead of their time in music, and America always follows them five years later.
+ - I use the Internet for what it’s for: to learn.
+ - I like seeing people that are into my music, it shows me that it doesn’t matter, you can’t judge a person based on how they look, and that’s just how my music is.
+ - There’s no downside to traveling the world and making money. I’m doing something I love. A lot of people have sucky jobs, but I have a good one, and I’m not trying to lose it any time soon.
+ - I’m from my hood, and everybody knows me in my neighborhood, and that’s cool, I can do what I want over there, but in other people’s neighborhoods, I can’t.
+ - From an early age, music was my only thing. You come from Detroit, you learn how to make the most of what you can do best.
+ - I never was a crazy liquor drinker, and I don’t like beer that much – though I keep the brews at home because my homies love beer.
+ - I love Michigan, to be honest. I don’t think I’d live nowhere else. It’s cheap! This is Detroit. A little bit of nothing gets you a lot of something.
+ - I used to rap as a kid and people were impressed by it, so it gave me the drive to keep going. Everybody has at least one talent. I guess this is my talent.
+ - The reason I never wanted to sign with a big label was because I didn’t want no one telling me how to make my music.
+ - Faygo’s like a Detroit thing, and you can’t really find it everywhere, but the difference between Faygo Creme Soda and other cream sodas is that it’s foamy. Faygo Creme Soda is almost like Sprite, but it’s cream soda, so that’s ill!
+ - I want to be able to do what I want to do. A lot of times, the major labels, they can’t see the vision, they can only see the dollar signs. So, it doesn’t really work out like that.
+ - Since I was a kid, I’d wake up every morning hearing a voice say, ‘You’re the greatest rapper ever.’ I’m trying to prove that voice right.
+ - To be acknowledged outside of my city is amazing to me, because I don’t really feel like I did nothing distasteful. I made the music I want to make, and people started to like it.
+ - There was a long time in my life where I made music that I thought my friends would like, or that I thought would get me a record deal, or what I thought I was supposed to make because that’s what I was seeing in mainstream. I didn’t know myself; I didn’t find myself musically or, in real life.
+ - I’ll be getting all types of crazy fans, from the hoodest dude to the straight-up dude in a business suit. It’s dope. I have a crazy wide-range fan base.
+ - If I’m over a song two weeks after I made it, I’m not going to put it out. It has to last months.
+ - I always try to act like I’m some old school artist from the 1960s.
+ - I would never design anything. I just think that’s kind of wack. I hated every rapper fashion line that ever came out, you know what I’m saying? I would never try.
+ - Yeah, Dizzee Rascal is a huge influence on what I’m doing. I learnt a lot from him even though he’s younger than me.
+ - The most popular rap artists aren’t supposed to be rapping about being broke.
+ - Certain people in life are just going to take what’s given to them, and certain people in life know they want better and they’re going to go find better. I’ve always been that type of person.
+ - In terms of fashion, I think the biggest influence that I had was my father. My pops, he was really into men’s fashion and read all of the magazines.
+
+25 quotes

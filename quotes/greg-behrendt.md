@@ -1,0 +1,118 @@
+ - A man who wants to make a relationship work will move mountains to keep the woman he loves.
+ - Wasting time with the wrong person is just time wasted.
+ - If you bury the pain deep down it will stay with you indefinitely, but if you open yourself to it, experience it, and deal with it head-on, you’ll find it begins to move on after a while.
+ - For me, a breakup changed my entire life. I was a mess. I really got rocked, and I ended up turning it into a positive thing.
+ - Ive learned that anything in life worth having comes from patience and hard work.
+ - Life’s biggest rewards come from the biggest challenges.
+ - If he’s choosing not to make a simple effort that would put you at ease and bring harmony to a recurring fight, then he doesn’t respect your feelings and needs.
+ - If a guy truly likes you, but for personal reasons he needs to take things slow, he will let you know that immediately. He won’t keep you guessing, because he’ll want to make sure you don’t get frustrated and go away.
+ - If a man is really into you, nothing will stop him from being with you – including a fear of intimacy.
+ - I believe in love the verb, not the noun.
+ - Let’s call cheating what it is: a complete betrayal of trust.
+ - Young people are gross with their faces and their hope.
+ - It is in that moment, when you really lay down your cards and see the relationship for what it was, that you’ll find the freedom to kick it in the ass and let it go.
+ - Remember always what you set out to get, and please don’t settle for less.
+ - Men, for the most part, like to pursue women. We like not knowing if we can catch you. We feel rewarded when we do. Especially when the chase is a long one.
+ - The word “busy” is the relationship Weapon of Mass Destruction. It seems like a good excuse, but in fact, in every silo you uncover, all you’re going to find is a man who didn’t care enough to call. Remember: Men are never too busy to get what they want.
+ - He’s just not that into you if he’s not asking you out. Because if he likes you, trust me, he will ask you out.
+ - Sometimes people change their minds, sometimes they meet someone else, sometimes they get sober, and sometimes he was just a jerk who you’re lucky to be rid of.
+ - There will never be a good time, financially, to get married, unless you’re Shaq or Ray Romano. But somehow people manage. If your man is using money as an excuse not to marry you, it’s your relationship that’s insecure, not his bank account.
+ - There’s a guy out there who’s going to be really happy that you didn’t get back together with your crappy ex-boyfriend.
+ - A man would rather be trampled by elephants on fire than tell you he’s just not that into you.
+ - When a guy is into you, he lets you know it. He calls, he shows up, he wants to meet your friends, he can’t keep his eyes or hands off of you.
+ - If you can find him, then he can find you. If he wants to find you, he will.
+ - Try not to be four years into a relationship when it suddenly dawns on you that the guy you’re with is a big, selfish jerk.
+ - Maybe this is just me, because my priorities have changed as I’ve gotten older. But now I don’t want to be ‘sort of dating’ someone. I don’t want to be ‘kinda hanging out’ with someone. I don’t want to spend a lot of energy suppressing all my feelings so I appear uninvolved. I want to be involved.
+ - Always be classy. Never be crazy.
+ - Lying, cheating, hiding is the exact opposite of the behavior of a man who’s really into you.
+ - We have become a sloppy bunch of people. We say things we don’t mean. We make promises we don’t keep.
+ - My wife’s beautiful. That’s why I married her. Because I want to see her every day.
+ - Personally, when I’m picking friends, I like the ones who don’t make me cry myself to sleep.
+ - Being brokenhearted is like having broken ribs. On the outside it looks like nothing’s wrong, but every breath hurts.
+ - Uncool is a cool resting place. The pressure’s off me.
+ - But he was so great!? Yes, and the people who got on the Titanic thought they were going on a vacation.
+ - He doesn’t need to be reminded you’re great.
+ - People are inspired to do remarkable things to find and be with the one they love.
+ - I’m no longer a prisoner of my fears. Which really just means I’m using real butter.
+ - As a guy I never liked being told to call, which my wife really never does, and that’s why I call her as often as I do.
+ - The day you realize you don’t have to make sense to anyone is the day you start to make sense to you.
+ - It’s time to stop pretending I’m ok with things I’m not ok with like all insects and Foster the People.
+ - He’s just not that into you if he only wants to see you when he’s drunk. If he likes you, he’ll want to see you when his judgment isn’t impaired.
+ - Hey, Hot Stuff, Can’t wait till you get over that guy you were with. He sounds like a real jerk. Hope it’s soon. You’re way too tasty to be alone for too long. Come find me. I’m out here waiting. Your Future.
+ - I believe in love in hindsight, meaning attraction and connection can be remembered as love at first sight. But how could you possibly know at first sight? That’s too much pressure to put on a relationship.
+ - Don’t spend your time on and give your heart to any guy who makes you wonder about anything related to his feelings for you.
+ - The pain of being in a bad relationship is confusing. When it’s over – it’s over. No more confusion!
+ - She didn’t love me that much, but she moved in with me. That’s a plus. And then one night, I caught her making out with another dude on the driveway. That’s a minus.
+ - Life is hard enough as it is without choosing someone difficult to share it with.
+ - People say get a job doing something you love. So far no one has offered to hire me to eat Whoppers with a switchblade.
+ - Don’t waste the pretty.
+ - We’re taught that in life, we should try to look on the bright side. Not in this case. In this case, assume rejection first. Assume you’re the rule, not the exception. It’s liberating. But we also know it’s not an easy concept. -He’s not just into you.
+ - I’m just saying, tonight, if you’re going through a breakup and you’re drinking, don’t call. Just don’t do it. Don’t call. Because here’s the thing: booze has information in it!
+ - Don’t be flattered that he misses you. He should miss you. You are deeply missable. However, he’s still the same person who just broke up with you. Remember, the only reason he can miss you is because he’s choosing, every day, not to be with you.
+ - Don’t you want the guy who’ll forget about all the other things in his life before he forgets about you?
+ - Why should you feel honored for getting scraps of his time?
+ - Trust yourself, because as Oprah says, doubt means don’t every time.
+ - Be yourself. If something you do doesn’t work, don’t do it the next time. Listen to yourself – you know what appropriate behavior is.
+ - The reason it’s so painful when someone disappears is you have to face the fact that the person you loved had probably left you a long time before he grabbed his coat and scrammed.
+ - An excuse is a polite rejection. Men are not afraid of ’ruining the friendship.
+ - I want you to be yourself, but not with other dudes.
+ - The only reason he can miss you is because he’s choosing, every day, not to be with you.
+ - If he’s not calling you, it’s because you are not on his mind. If he creates expectations for you, and then doesn’t follow through on little things, he will do same for big things. Be aware of this and realize that he’s okay with disappointing you.
+ - Alone also means available for someone outstanding.
+ - Sometimes we become attached to what’s familiar, and sometimes we hold on to things that are safe and predictable, even if they are bad for us.
+ - Can you deep fry the bacon? Oh how I wish you would...
+ - A good indication that it’s not is if you’re only staying with What’s His Name because you’re scared.
+ - I don’t have to edit myself. I get to be me, warts and all, and that’s ultimately what people want, and to trust each other implicitly.
+ - Because here’s what guys don’t do if they can’t live without you: They don’t break up with you.
+ - I will go anywhere if you say the phrase ‘there might be cake.’ I would go to the Department of Motor Vehicles, register somebody else’s boat in Spanish, a language I do not speak, without ID – for cake.
+ - It’s your version of whatever that is. We use those words because they are kind of empowering. Try to get back into your life and get back on track with dreams you have. There’s nothing more attractive than a person who likes herself.
+ - Men like to chase and you have to let us chase you. I know. It’s insulting. It’s frustrating. It’s unfortunately the truth.
+ - A friend of mine told a story about a date with a guy she was really excited about: He stood her up. He then called her, begging her forgiveness and giving some excuse. She told him to get lost, telling him that he only gets one shot with her, and he blew it.
+ - Anyone who assesses you or your relationship as disposable is not worthy of your time or tears.
+ - Here’s something else to think about: calling when you say you’re going to is the very first brick in the house you are building of love and trust. If he can’t lay this one stupid brick down, you ain’t never gonna have a house baby, and it’s cold outside.
+ - Part of me also knows that this generation is the least racist and most pro-gay, so that’s great. But they have a real lack of gravitas. And they have no taste in music. Vampire Weekend? Can we play some music, please? Can we rock out for a minute? Where’s your Metallica?
+ - First of all, never buy a man a plasma TV until you’re married. A lot of men once they have a plasma TV they don’t need a girlfriend.
+ - When it comes to men, deal with them as they are, not how you’d like them to be.
+ - There’s nothing wrong with sending a quick note if you’re busy or just want to flirt, but it’s hard to have any real interaction over text. In the buffet of communication, text messaging should be a side dish, not the entree.
+ - Cheaters are people who have a lot of stuff to work out, and they’re working it out on your time and with your heart.
+ - Part of being a comedian is that it’s your job to look at life and regurgitate it in a funny way, to point out its absurdities.
+ - The time it takes to feel better about a breakup is directly proportional to the time it takes to feel better about yourself.
+ - When we’re picking someone who we want to spend a lot of time with, even perhaps for the rest of our lives, we generally try to pick someone who likes to do the things we like to do.
+ - Bored with the same type of misery over and over and over again.
+ - Send her a quick note while you’re stuck in a long meeting. A lighthearted chat definitely makes the time go faster.
+ - The one cool thing with getting older is that you can actively choose to just be an eccentric.
+ - He doesn’t have to love your CD collection. He doesn’t have to love your shoes. But any good, mature guy better make an attempt to love your friends and family – especially when they’re great.
+ - Cheating gets easier every time it’s done. It’s only hard the first time, when one feels the sting of morality and the guilt of betraying someone’s trust.
+ - I have two rules when you come to my house on Halloween. Wear a costume – ’cause if you’ve manned your door at your own house, you know how many kids will roll up, 14 years old with no costume and an attitude. My other rule: don’t grab. Let me assess you and then design a candy situation for you.
+ - You are not easily forgotten.
+ - Every time you see him, you only make yourself vulnerable to further heartache. Do you really need further proof that he’s getting on with his life without you?
+ - There’s a guy out there who will want to tell everyone that he is your boyfriend. Quit goofing around and go find him.
+ - I always tell people it’s funny that they think I’m a relationship expert because my two books are about getting out of relationships.
+ - Most people don’t want to leave their wife and children behind but many people seem to want to take leave of themselves.
+ - I mean, I feel like you can kill the same bird with both stones.
+ - If you date, you will meet your share of weirdos and jerks. That is as sure as death and taxes.
+ - There are three kinda men in the world. There’s men that own rope, men that use eye creme, and that dude from Nickleback.
+ - So, I play in a band. It’s a really underground band. Super underground. Very underground. Like, we don’t even actually play.
+ - It’s the prettiest place on the planet. My childhood was like a dream. It’s like the last Mayberry.
+ - There are only so many ways to get people to go see stand-up, that it really is about the product; it’s not so much about the theme of the show.
+ - I’m certain prison is pretty rough as it is but imagine if you were a murderer and a foodie!
+ - I like the idea that when a guy comes over to the house, I get to say I wrote the book.
+ - I’ve never tried to pass myself off as anything more than a comedian who wrote a dating book.
+ - Good enough to tweet, not to say.
+ - Two people in a relationship either grow together or apart over time.
+ - If the guy you’re dating doesn’t seem to be completely into you, or you feel the need to start ‘figuring him out,’ please consider the glorious thought that he might just not be that into you. And then free yourself to go find someone that is.
+ - I’m fascinated with human relationships. I advocate the relationship you have with yourself.
+ - One of the suckiest and most frustrating facts of life is that sometimes relationship just end, often without reason. I truly believe that sometimes both men and women simply run out of love, even when there was a lot of it in the beginning.
+ - I have less friends, but I have more Cadbury Eggs.
+ - I get giddy with the idea of stringing words together that make people laugh.
+ - My daughter genuinely asked me to hand her the basketball bat. I might be failing as a father.
+ - Most comics worship music on some level. It’s more rock-n-roll to get up there for an hour and make people laugh.
+ - It is with great sadness and a heavy heart that have to announce that I ate kale and liked it.
+ - People don’t admire you for what you hate, they admire you for what you do about it, and your slacks.
+ - If we’re friends with someone and attracted to them, we’re going to want to take it further.
+ - Better than nothing is not good enough for you!
+ - I’m just not interested in daytime television, which is something you should remember the next time somebody offers you a daytime talk show.
+ - Before you look for validation in others, try and find it in yourself.
+ - Often the thought of pain is actually worse that the pain itself.
+
+116 quotes

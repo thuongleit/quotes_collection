@@ -1,0 +1,196 @@
+ - We accept the love we think we deserve.
+ - And in that moment, I swear we were infinite.
+ - So, I guess we are who we are for alot of reasons. And maybe we’ll never know most of them. But even if we don’t have the power to choose where we come from, we can still choose where we go from there. We can still do things. And we can try to feel okay about them.
+ - Welcome to the island of misfit toys.
+ - Sometimes people use thought to not participate in life.
+ - Enjoy it. Because it’s happening.
+ - Everyone is special in their own way.
+ - There’s nothing like deep breaths after laughing that hard. Nothing in the world like a sore stomach for the right reasons.
+ - I would die for you. But I won’t live for you.
+ - Things change. And friends leave. Life doesn’t stop for anybody.
+ - So, this is my life. And I want you to know that I am both happy and sad and I’m still trying to figure out how that could be.
+ - Even if we don’t have the power to choose where we come from, we can still choose where we go from there.
+ - This moment will just be another story someday.
+ - You can’t just sit there and put everyone’s lives ahead of yours and think that counts as love. You just can’t. You have to do things.
+ - And even if somebody else has it much worse, that doesn’t really change the fact that you have what you have. Good and bad.
+ - He’s a wallflower. You see things. You keep quiet about them. And you understand.
+ - Maybe it’s good to put things in perspective, but sometimes, I think that the only perspective is to really be there.
+ - The perfect song on the perfect drive to make you feel infinite.
+ - It’s much easier not to know things sometimes.
+ - The truth is, when it gets really quiet, when the silence gets too loud, i really start to miss everyone.
+ - So, I heard you’re this ninja or something.
+ - If you care about somebody, you should want them to be happy. Even if you wind up being left out.
+ - Try to be a filter, not a sponge.
+ - I’m so sorry that I wasted your time because you really do mean a lot to me and I hope you have a very nice life because I really think you deserve it. I really do. I hope you do, too. Okay, then. Goodbye.
+ - I’m going to be who I really am. I’m going to figure out what this is.
+ - Maybe it’s sad that these are now memories. And maybe it’s not sad.
+ - It’s just hard to see a friend hurt this much. Especially when you can’t do anything except ‘be there.’ I just want to make him stop hurting, but I can’t. So I just follow him around whenever he wants to show me his world.
+ - They are all my favourites. All of them.
+ - It’s strange because sometimes, I read a book, and I think I am the people in the book.
+ - And I wonder if anyone is really happy. I hope they are. I really hope they are.
+ - Do you think if people knew how crazy you really were, no one would ever talk to you?
+ - Banning books gives us silence when we need speech. It closes our ears when we need to listen. It makes us blind when we need sight.
+ - The most beautiful surprise is that you have these moments where you connect with people on a deep level without saying a word. It’s one of those wonderful things that you get what you give, and I’m grateful for it.
+ - Sometimes, I look outside, and I think that a lot of other people have seen this snow before. Just like I think that a lot of other people have read those books before. And listened to those songs. I wonder how they feel tonight.
+ - The fights are always the same.
+ - We Are All Infinite.
+ - On Friday night, I was reading my new book, but my brain got tired, so I decided to watch some television instead.
+ - I was in my bed trying to figure out why sometimes you can wake up and go back to sleep and other times you can’t.
+ - It’s kind of like when you look at yourself in the mirror and you say your name. And it gets to a point where none of it seems real.
+ - Downtown. Lights on buildings and everything that makes you wonder. And in that moment, I swear we were infinite.
+ - To tell you the truth I love Sam. It’s not a movie kind of love either. I just look at her sometimes and I think she is the prettiest and nicest person in the whole world.
+ - We didn’t talk about anything heavy or light. We were just there together. And that was enough.
+ - I love Twinkies, and the reason I am saying that is because we are all supposed to think of reasons to live.
+ - I don’t know if you’ve ever felt like that. That you wanted to sleep for thousands of years. Or just not exist...
+ - As you see the opening get closer, you just can’t get fast enough. And finally, just when you think you’ll never get there, you see the opening right in front of you.
+ - It’s okay to feel things. And be who you are about them.
+ - It’s like when you’re excited about a girl and you see a couple holding hands, and you feel so happy for them. And other times you see the same couple, and they make you so mad. And all you want is to feel happy for them because you know that if you do, then it means you’re happy, too.
+ - Just tell me how to be different in a way that makes sense.
+ - I just wish that God or my parents or Sam or my sister or someone would just tell me what’s wrong with me. Just tell me how to be different in a way that makes sense. To make this all go away.
+ - I am writing to you because she said you listen and understand and didn’t try to sleep with that person at that party even though you could have.
+ - I just need to know that someone out there listens and understands and doesn’t try to sleep with someone even if they could have. I need to know these people exist.
+ - Movies, by nature, are not subjective, they’re objective.
+ - The inside jokes weren’t jokes anymore. they had become stories.
+ - So I started shoveling Bob’s driveway, which is a strange thing to do at a New Years Eve Party.
+ - So, tomorrow, I’m leaving. And I’m not going to let that happen again with anyone else. I’m going to do what I want to do. I’m going to be who I really am. And I’m going to figure out what that is.
+ - It’s strange how things can change back as suddenly as they changed originally. When one thing happens and suddenly, things are back to normal.
+ - I’m only being cute here. I don’t really mean it. I just wanted to make you smile.
+ - Everyone else is either asleep or having sex. I’ve been watching cable television and eating jello.
+ - It’s just that I don’t want to be somebody’s crush. If somebody likes me, I want them to like the real me, not what they think I am. And I don’t want them to carry it around inside. I want them to show me, so I can feel it too.
+ - Maybe these are my glory days, and I’m not ever realizing it because they involve a ball.
+ - I am really in love with Sam, and it hurts very much.
+ - I don’t think we should base so much on weight, muscles, and a good hair day, but when it happens, it’s nice. It really is.
+ - Sometimes, I think Bill forgets that I am sixteen. But I am very happy that he does.
+ - And I thought that all those little kids are going to grow up someday. And all of those little kids are going to do the things that we do. And they will all kiss someone someday. But for now, sledding is enough. I think it would be great if sledding were always enough, but it isn’t.
+ - The fact that one of these ladies was my mom made me particularly sad because my mom is beautiful. And she’s always on a diet. Sometimes, my dad calls her beautiful, but she cannot hear him.
+ - I found, through the process of doing ‘The Perks of Being a Wallflower,’ that I really love directing movies and I love writing books and so this will become the centerpiece of my career for the next ten or twenty years. Doing these adaptations.
+ - Love pats are soft punches of encouragement that are admistered on the knee, shoulder, and arm.
+ - As we all know, when you’re an athlete things are a little bit easier for you. It didn’t mean that what was going on inside my heart wasn’t a bit of a thunderstorm, but outwardly I got along ok. I was really shy in seventh grade.
+ - Have you ever done that? You feel really bad, and then it goes away, and you don’t know why.
+ - I just laid around in my bed, looking at the ceiling, and i smiled because it was a nice kind of quiet.
+ - Despite everything my mom and doctor and dad have said to me about blame, I can’t stop thinking what I know. And I know that my aunt Helen would still be alive today if she just bought me one present like everybody else. She would be alive if I were born on a day that didn’t snow.
+ - I was looking at the photographs and I started thinking that there was a time when these weren’t memories.
+ - Patrick started running after the sunset. And Sam immediately followed him. And I saw them in silhouette. Running after the sun.
+ - I’m just thinking too fast – much too fast.
+ - I just hope I remember to tell my kids that they are as happy as I look in my old photographs. And I hope that they believe me.
+ - What about when someone doesn’t need a shoulder? What if they need the arms?
+ - I wasn’t raised very religiously because my parents went to Catholic school, but I do believe in God very much. I just never gave God a name, if you know what I mean. I hope I haven’t let Him down regardless.
+ - More like the movie where the guy meets a smart girl who wears a lot of sweaters and drinks cocoa. They talk about books and issues and kiss in the rain.
+ - Some kids look at me strange in the hallways because I don’t decorate my locker,...
+ - And I closed my eyes because I wanted to know nothing but her arms.
+ - It is important to say “sir” at these moments. And if they ever call you by your first-middle-last name, you better watch out. I’m telling you.
+ - But Mary Elizabeth felt different. She kept saying it was an “articulate” film. So “articulate.” And I guess it was. The thing is, I didn’t know what it said even if it said it very well.
+ - I wanted to laugh. Or maybe get mad. Or maybe shrug at how strange everyone was, especially me.
+ - I have finished To Kill a Mockingbird. It is now my favorite book of all time, but then again, I always think that until I read another book.
+ - He realized that if he didn’t leave, it would never be his life. It would be theirs.
+ - I guess I’m pretty emotional.
+ - It’s strange the times people choose to be generous.
+ - And things were back to normal except we were just friends.
+ - When the police came, they found my brother asleep on the roof. Nobody knows how he got there.
+ - I was in the shopping mall because that’s where I go lately. For the last couple of weeks, I’ve been going there every day, trying to figure out why people go there. It’s kind of a personal project.
+ - There are other people who have it a lot worse.
+ - I just listened to the music, and breathed in the day, and remembered things. Things like walking around the neighborhood and looking at the houses and the lawns and the colorful trees and having that be enough.
+ - My sister was the one who told me where babies come from. My sister was also the one who laughed when I immediately asked her where babies go to.
+ - But right now I’m here with you. And I want to know where you are, what you need, and what you want to do.
+ - The thing is some girls think they can actually change guys.
+ - Those writers that have zero say in their movie adaptations have zero say because they sell it. If you don’t sell it, and you do it yourself, and you wait until the screenplay is ready, you don’t have to worry about that.
+ - I couldn’t believe Sam actually got me a present because i honestly thought the “I love you” was it.
+ - After a few minutes, it was time for me to leave. I don’t know who decides these things. It just happens.
+ - If the advice is simply to respect yourself and follow the path that you want to follow, that would be the best advice I could ever pass on.
+ - And she looked at me like she couldn’t believe I knew she loved Anne Rice. I guess he didn’t know how much she talked or how much I listened.
+ - Every person has to live his or her own life and then make the choice to share it with other people.
+ - So, I guess we are who we are for a lot of reasons. And maybe we’ll never know most of them.
+ - To kill a mockingbird. If you haven’t read it, I think you should because it is very interesting.
+ - I feel like a big faker because I’ve been putting my life back together, and nobody knows.
+ - I don’t know how much longer I can keep going without a friend. I used to be able to do it very easily, but that was before I knew what having a friend was like.
+ - The inside jokes weren’t jokes anymore. They had become stories. Nobody brought up the bad names or the bad times. And nobody felt sad as long as we could postpone tomorrow with more nostalgia.
+ - I want to make sure that the first person you kiss loves you, okay?
+ - All I could do is lie there and think about how much her voice changed when she asked me if she was pretty, and how much she changed when I answered.
+ - I wish I could stop being in love with Sam. I really do.
+ - She wasn’t bitter. She was sad, though. But it was a hopeful kind of sad. The kind of sad that just takes time.
+ - Not everyone has a sob story, Charlie, and even if they do, it’s no excuse.
+ - I don’t know what’s wrong with me. It’s like all I can do is keep writing this gibberish to keep from breaking apart.
+ - It’s nice to have things to look forward to.
+ - Incidentally, I only have one cavity, and as much as my dentist asks me to, I just can’t bring myself to floss.
+ - Old pictures look very rugged and young, and the people in the photographs always seem a lot happier than you are.
+ - For me personally, as much as I don’t understand my mom and dad and as much as I feel sorry for them sometimes, I can’t help but love them very much.
+ - Charlie, you’re one of the most gifted people I’ve ever known. And I don’t mean in terms of my other students. I mean in terms of anyone I’ve ever met.
+ - I think that if I ever have kids, and they are upset, I won’t tell them that people are starving in China or anything like that because it wouldn’t change the fact that they were upset. And even if somebody else has it much worse, that doesn’t really change the fact that you have what you have.
+ - And I guess I realized at that moment that I really did love her. Because there was nothing to gain, and that didn’t matter.
+ - It’s great that you can listen and be a shoulder to someone, but what about when someone doesn’t need a shoulder? What if they need the arms or something like that? You can’t just sit there and put everybody’s lives ahead of yours and think that counts as love. You just can’t. You have to do things.
+ - Sam has brown hair and very, very pretty green eyes. The kind of green that doesn’t make a big deal about itself.
+ - I just think it’s bad when a boy looks at a girl and thinks that the way he sees her is better than she actually is. And I think it’s bad when the most honest way a boy can look at a girl is through a camera.
+ - I really think that everyone should have watercolors, magnetic poetry, and a harmonica.
+ - Writing a novel is a lot like directing a movie because you are creating a world and a tone, you are creating a large canvas and all the details.
+ - I wish I knew. It might make me miss him more clearly. It might have made sad sense.
+ - The gift from my Secret Santa wasn’t anything special. That makes me sad. I bet you anything that Mary Elizabeth is my Secret Santa because only she would give me socks.
+ - Sam dropped me off. When she was too far away to see me, I started to cry again. Because she was my friend again. And that was enough for me.
+ - I just don’t want you to worry about me, or think you’ve met me, or waste your time anymore.
+ - Nobody felt sad as long as we could postpone tomorrow with more nostalgia.
+ - Well, I think that part of being young is not exactly knowing why you do some of the things that you do. And it’s by exploring your life or experimenting or making mistakes and learning from them hopefully that you start to forge an identity.
+ - As people get older, we all know, you get married and you have a child and that becomes your family, but when you’re 16 years old, especially, your family is your friends.
+ - And even if she says no, and really means yes, then quite frankly she’s playing games and isn’t worth the price of dinner.
+ - My dad said I did the right thing. I hope I did, but it’s hard to tell sometimes.
+ - Part of the reason I wrote the book was I wanted to understand for myself why such good people let themselves get treated so badly.
+ - Sam and Patrick looked at me. And I looked at them. And I think they knew. Not anything specific really. They just knew. And I think that’s all you can ever ask from a friend.
+ - It was the kind of kiss that made me know that I was never so happy in my whole life.
+ - Patrick actually used to be popular before Sam bought him some good music.
+ - Girls are weird, and I don’t mean that offensively. I just can’t put it any other way.
+ - Regardless, I decided to never take LSD again.
+ - And we could all sit around and wonder and feel bad about each other and blame a lot of people for what they did or didn’t do or what they didn’t know. I don’t know. I guess there would always be someone to blame.
+ - I am very interested and fascinated how everyone loves each other, but no one really likes each other.
+ - To tell you the truth, I’ve just been avoiding everything.
+ - Then, I turned around and walked to my room and closed my door and put my head under my pillow and let the quiet put things where they are supposed to be.
+ - When you think back to your first kiss, your hair is perfect and she was wearing a cool outfit. We remember it with restraint and we remember it with style. We remember it as idealistically as you can think.
+ - I didn’t know that other people thought things about me. I didn’t know that they looked.
+ - Five minutes of a lifetime were truly spent, and we felt young in a good way.
+ - Please believe that things are going good with me. Even if they’re not they will be soon enough.
+ - I’m not saying she was lying to me, but she just acted so different before I got to know her, and if she really isn’t like what she was at the beginning, I wish she could have just said so.
+ - I don’t want to start thinking again. Not like I have this last week. I can’t think again. Not ever again.
+ - I have decided that maybe I want to write when I grow up. I just don’t know what I would write.
+ - The outside lights were on, and it was snowing, and it looked like magic. Like we were somewhere else. Like we were someplace better.
+ - When to stopped wishing things wouldn’t fall apart, you’d stop suffering when they did.
+ - I wonder what it will be like when I leave this place.
+ - I don’t know if it’s better to be close with your daughter or make sure that she has a better life than you do.
+ - It’s strange to describe reading a book as a really great experience, but that’s kind of how it felt.
+ - Bridget who is crazy said that sometimes she thought about suicide when commercials come on during TV. She was sincere and this puzzled the guidance counselors.
+ - He was the boy that made mix tapes with themes and hand-colored covers until the day he hit my sister and stopped crying.
+ - I really do love my sister. Especially when she’s nice.
+ - Craig said the problem with things is that everyone is always comparing everyone with everyone.
+ - The reason I am thinking so far in advance is because school is terribly lonely. I think I’ve said that before, but it’s getting harder every day.
+ - Music is a vital part of my life, and it has been since I was a kid. It helped me find my identity as a person, it helped me find my identity as an artist, and it helped me get in touch with emotions that I didn’t know I had.
+ - Except that my father got a raise, and my mother didn’t because she doesn’t get paid for housework, and my sister stopped reading those self-esteem books because she met a new boy.
+ - So what’s the point of using words nobody else knows or can say comfortably? I just don’t understand that.
+ - If you are in a movie theater, you can look two people down and they are laughing while you are laughing or you can look three people down and they love that song that you love. It is living proof that you are not alone.
+ - You ever think Charlie, that our group is the same as any other group like a football team? And the only real difference between us is what we wear and why we wear it?
+ - I think they were afraid that some of us would try to kill ourselves or something because they looked very tense and one of them kept touching his beard.
+ - I wonder what my speech would be.
+ - The movie itself was very interesting, but I didn’t think it was very good because I didn’t really feel different when it was over.
+ - And I never felt that good in my life. But I also felt bad because I saw her naked without her permission.
+ - I know that things get worse before they get better because that’s what my psychiatrist says, but this is a worse that feels too big.
+ - That was always my hope that that is exactly what I would do. It was always part of the dream of this story – to write the novel and then direct the movie.
+ - There are rules you follow here not because you want to, but because you have to.
+ - It’s like looking at all the students and wondering who’s had their heart broken that day, and how they are able to cope with having three quizzes and a book report on top of that.
+ - And how different her face looked the first time she really liked a boy who was not on a poster on her wall. And how her face looked when she realized she was in love with that boy.
+ - I don’t even remember the season. I just remember walking between them and feeling for the first time that I belonged somewhere.
+ - I love my mom. And this time, I told her I loved her. And she told me she loved me, too. And things were okay for a little while.
+ - Something really is wrong with me. And I don’t know what it is.
+ - They just knew. And I think that’s all you can ever ask from a friend.
+ - As much as I feel sad, I think that not knowing is what really bothers me.
+ - I think on my next birthday, I’m going to buy her a present. I think that should be the tradition. The kid gets gifts from everybody, and he buys one present for his mom since she was there, too. I think that would be nice.
+ - If the right thing came along, I would absolutely direct something I did not write because I love the process so much, but we’ll see. I’m taking it day by day.
+ - I don’t know the significance of this, but I find it very interesting.
+ - I would give someone a record so they could love the record, not so they would always know that I gave it to them.
+ - Writing screenplays is incredibly hard. I can’t call it joy. Writing Novels? Joy. Directing? Joy. Writing Screenplays? That’s where you pay all your dues.
+ - I would make the movie industry more like the television industry. TV is more material driven. In TV, you can break new stars. TV can take more chances.
+ - Why would I care whether or not he loved me when he didn’t even really know me?
+ - The radio comes back even louder than you remember it.
+ - You get the right collection of people together and you get the atmosphere together that it is very free where there is no judgment. If you create an atmosphere that is very open you steer the ship.
+ - I guess when you see somebody in the hallway or on the field or something, it’s nice to know that they are a real person.
+ - But at one point, Craig was talking about something, and Sam turned to me and smiled. It was a movie smile in slow motion, and then everything was okay.
+ - You should tell her how nice her outfit is because her outfit is her choice whereas her face isn’t.
+ - And later that night to be with my family at dinnertime and have things just be like they always were. That was the amazing part. Things just keep going. We didn’t talk about anything heavy or light. We were just there together. And that was enough.
+ - If it meant that I would never get to think of you that way, as long as you were happy, it was okay.
+ - The sound of the radio fades to nothing because the waves just can’t reach.
+
+194 quotes

@@ -1,0 +1,40 @@
+ - Never trust anyone completely but God. Love people, but put your full trust only in God.
+ - Dreams do come true, even for someone who couldn’t speak English and never had a music lesson or much of an education.
+ - Over and over I marvel at the blessings of my life: Each year has grown better than the last.
+ - There are good days and there are bad days, and this is one of them.
+ - Music was my joy, my home, the one place I felt happy and secure.
+ - I have a tremendous desire to learn, and to grow, and to develop whatever I have that will make for any kind of improvement in me.
+ - To be granted some kind of usable talent and to be able to use it to the fullest extent of which you are capable – this, to me, is a kind of joy that is almost unequaled.
+ - If you put all your strength and faith and vigor into a job and try to do the best you can, the money will come.
+ - Duke Ellington was famous for hs very original harmonic patterns.
+ - In spite of the Depression, or maybe because of it, folks were hungry for a good time, and an evening of dancing seemed a good way to have it.
+ - For a while we had trouble trying to get the sound of a champagne cork exploding out of the bottle. I solved the problem by sticking my finger in my mouth and popping it out.
+ - I expected to be a farmer like my father and brothers. Life seemed pleasant and orderly.
+ - I like clean ladies and nice ladies.
+ - When my parents first arrived there, North Dakota had just been admitted to the Union, and the country was still wild and harsh.
+ - This is the best biography by me I have ever read.
+ - We really were a very musical family. Father managed to buy us a small pump organ, and I just loved this instrument.
+ - Sounds always fascinated me.
+ - One time I introduced my orchestra as the Shampoo Music Makers instead of the Champagne Music Makers.
+ - Many times I wondered if I were truly carrying out God’s plan for my life.
+ - I was so anxious to succeed that I made a practice of appearing on all the disc jockey shows I could, in order to publicize the band.
+ - The ones the listeners loved most of all in those early years were the four Lennon girls who became the whole nation’s little sisters.
+ - Conversation didn’t seem necessary when I put the accordion down and swung some young lady around the floor.
+ - I knew nothing of the real life of a musician, but I seemed to see myself standing in front of great crowds of people, playing my accordion.
+ - I always worried I’d forget my lines or say the wrong words or the audience would laugh in the wrong places.
+ - It’s curious how we act in moments of personal despair.
+ - I played a Spaniard. I looked about as Spanish as any other fair-skinned German.
+ - The first time I try anything is invariably not very successful. I tend to grow slowly, but solidly.
+ - One thing all stage mothers share is an overpowering ambition for their daughters.
+ - Night after night I could feel the chills go up and down my spine, they played so well.
+ - My accent remained terrible. It was very hard for me to initiate any conversation with someone I didn’t know.
+ - I have never been an innovator, a creative genius.
+ - If any performer has quality in his voice he can almost always be helped to develop all the other necessary attributes.
+ - By 1969, when I celebrated 45 years in the music business, I also had 45 people in our musical family.
+ - I just wrote a book, but don’t go out and buy it yet, because I don’t think it’s finished yet.
+ - If I live to be 90, and I’m planning to, I’ll always love performing for a live audience.
+ - I realized some of the pitfalls of being well-known; it was nice if you were successful, but it made it just that much harder to take when you failed.
+ - Boys, if you don’t stick together, how do you expect me to follow you-ah?
+ - You know, it’s a long world.
+
+38 quotes

@@ -1,0 +1,132 @@
+ - Tolerance is a cheap, low-grade parody of love. Tolerance is not a great virtue to aspire to. Love is much tougher and harder.
+ - True worship is open to God, adoring God, waiting for God, trusting God even in the dark.
+ - The Bible is the book of my life. It’s the book I live with, the book I live by, the book I want to die by.
+ - You become like what you worship.
+ - Jesus’s resurrection is the beginning of God’s new project not to snatch people away from earth to heaven but to colonize earth with the life of heaven. That, after all, is what the Lord’s Prayer is about.
+ - You become like what you worship. When you gaze in awe, admiration, and wonder at something or someone, you begin to take on something of the character of the object of your worship.
+ - Worship is humble and glad, worship forgets itself in remembering God; worship celebrates the truth as God’s truth, not its own.
+ - Those in whom the Spirit comes to live are God’s new Temple. They are, individually and corporately, places where heaven and earth meet.
+ - Our culture is so fixated on dying and going to heaven when the whole Scripture is about heaven coming to earth.
+ - It is faith alone that justifies, but faith that justifies can never be alone, though one is justified by faith alone, the faith which justifies is never in fact alone.
+ - Hope, for the Christian, is not wishful thinking or mere blind optimism. It is a mode of knowing, a mode within which new things are possible, options are not shut down, new creation can happen.
+ - Love is not just tolerance. It’s not just distant appreciation. It’s a warm sense of, ‘I am enjoying the fact that you are you.’
+ - Christian living means dying with Christ and rising again. That, as we saw, is part of the meaning of baptism, the starting point of the Christian pilgrimage.
+ - Christmas is God lighting a candle; and you don’t light a candle in a room that’s already full of sunlight. You light a candle in a room that’s so murky that the candle, when lit, reveals just how bad things really are.
+ - The call of the gospel is for the church to implement the victory of God in the world through suffering love.
+ - Easter was when Hope in person surprised the whole world by coming forward from the future into the present.
+ - Christ’s resurrection doesn’t mean escaping from the world; it means mission to the world based on Jesus’s lordship over the world.
+ - Learning to live as a Christian is learning to live as a renewed human being, anticipating the eventual new creation in and with a world which is still longing and groaning for that final redemption.
+ - Easter is about Jesus: the Jesus who announced God’s saving, sovereign kingdom...
+ - Heaven is important, but its not the end of the world.
+ - I believe we face the question: if not now, then when? And if we are grasped by this vision, we may also hear the question: If not us, then who? And if the gospel of Jesus is not the key to this task, then what is?
+ - The closer you get to the truth, the clearer becomes the beauty, and the more you will find worship welling up within you. That’s why theology and worship belong together.
+ - Deism, historically, produces atheism. First you make God a landlord, then an absent landlord, then he becomes simply absent.
+ - The message of Easter is that God’s new world has been unveiled in Jesus Christ and that you’re now invited to belong to it.
+ - True worship doesn’t put on a show or make a fuss; true worship isn’t forced, isn’t half-hearted, doesn’t keep looking at its watch, doesn’t worry what the person in the next pew is doing. True worship is open to God, adoring God, waiting for God, trusting God even in the dark.
+ - The question of Heaven, the question of what happens after death, is one which a lot of people in our culture try to put off as long as they can, but sooner or later it suddenly swings round and looks them in the eye.
+ - Death is the ultimate weapon of the tyrant; resurrection does not make a covenant with death, it overthrows it.
+ - The whole point of the kingdom of God is Jesus has come to bear witness to the true truth, which is nonviolent. When God wants to take charge of the world, he doesn’t send in the tanks. He sends in the poor and the meek.
+ - People often get upset when you teach them what is in the Bible rather than what they presume is in the Bible.
+ - It is faith that looks up at the creator God and knows him to be the God of love. And it is faith that looks out at the world with the longing to bring that love to bear in healing reconciliation, and hope.
+ - At the heart of Christian ethic is humility; at the heart of its parodies, pride. Different roads with different destinations, and the destinations color the character of those who travel by them.
+ - Worship is love on its knees before the beloved; just as mission is love on its feet to serve the beloved.
+ - Art is love creating the new world and justice is love rolling up its sleeves to heal the old one.
+ - God is the Creator God, he doesn’t want to say, “Okay, creation was very good, but I’m scrapping it.” He wants to say, “Creation is so good that I’m going to rescue it.”
+ - God is the one who satisfies the passion for justice, the longing for spirituality, the hunger for relationship, the yearning for beauty. And God, the true God, is the God we see in Jesus of Nazareth, Israel’s Messiah, the world’s true Lord.
+ - Jesus himself, as the gospel story goes on to its dramatic conclusion, lives out the same message of the Sermon on the Mount: he is the light of the world, he is the salt of the earth, he loves his enemies and gives his life for them, he is lifted up on a hill so that the world can see.
+ - If you have never felt or known the sheer power and strength of God’s love, take another look at Jesus dying on the cross.
+ - Blessed are the pure in heart; how will people believe that, unless we ourselves are worshipping the living God until our own hearts are set on fire and scorched through with his purity?
+ - The Bible is there to enable God’s people to be equipped to do God’s work in God’s world, not to give them an excuse to sit back smugly, knowing they possess all God’s truth.
+ - When we begin to glimpse the reality of God, the natural reaction is to worship him. Not to have that reaction is a fairly sure sign that we haven’t yet really understood who he is or what he’s done.
+ - The word “salvation” denotes rescue. Rescue? What from? Well, of course, ultimately death. And since it is sin that colludes with the forces of evil and decay, sin leads to death. So we are rescued from sin and death.
+ - The New Testament picks up from the Old the theme that God intends, in the end, to put the whole creation to rights.
+ - I am convinced that when we bring our griefs and sorrows within the story of God’s own grief and sorrow, and allow them to be held there, God is able to bring healing to us ans new possibilities to our lives. That is, of course, what Good Friday and Easter are all about.
+ - True worship doesn’t keep looking at its watch.
+ - One of the reasons we do history, in fact, is because it acts as a brake, a control, on our otherwise unbridled enthusiasm for our own ideas.
+ - Part of Christian belief is to find out what’s true about Jesus and let that challenge our culture.
+ - There’s all the difference in the world between humbly saying “I want to find more light from Scripture than we have yet had” and saying “I’m going to prove the rest of the Church wrong and do something totally new!”
+ - Made for spirituality, we wallow in introspection. Made for joy, we settle for pleasure. Made for justice, we clamor for vengeance.
+ - Without God’s Spirit, there is nothing we can do that will count for God’s kingdom. Without God’s Spirit, the church simply can’t be the church.
+ - When we learn to read the story of Jesus and see it as the story of the love of God, doing for us what we could not do for ourselves – that insight produces, again and again, a sense of astonished gratitude which is very near the heart of authentic Christian experience.
+ - Resurrection means bodily life after ‘life after death,’ or, if you prefer, bodily life after the state of ‘death’
+ - You can’t reconcile being pro-life on abortion and pro-death on the death penalty.
+ - Logic cannot comprehend love; so much the worse for logic.
+ - I feel about John’s gospel like I feel about my wife; I love her very much, but I wouldn’t claim to understand her.
+ - I’m not a universalist, and the way I talk about final loss is this: People worship idols – money, whatever. Their humanness gets reshaped around the idol – you become like what you worship. That’s one of the basic spiritual laws.
+ - As we are set free by that love from our own pride and fear, our own greed and arrogance, so we are free in our turn to be agents of reconciliation and hope, or healing and love.
+ - Jesus of Nazareth ushers in not simply a new religious possibility, not simply a new ethic or a new way of salvation, but a new creation.
+ - Swords don’t glorify the creator-God. Love does. Self-giving love, best of all.
+ - Jesus didn’t really die-someone gave him a long drug that made him look like dead, and he revived in the tomb. Answer: Roman soldiers knew how to kill people, and no disciple would have been fooled by a half-drugged, beat-up Jesus into thinking he’d defeated death and inaugurated the kingdom.
+ - The Biblical vision is not so much concerned with life after death but about life after life after death.
+ - Jesus’s resurrection is the beginning of God’s new project.
+ - Heard in full sound, the Gospels tell about the establishment of a theocracy, and portray what theocracy looks like with Jesus as king.
+ - The imminent demise of the church has been predicted since the middle of the 18th century. This is the regular secular mantra if churchgoing declines. I could take you to plenty of churches that are full to bursting and new churches being built.
+ - It’s not great faith you need; it is faith in a great God.
+ - God’s plan is not to abandon this world, the world which he said was “very good.” Rather, he intends to remake it. And when he does he will raise all his people to new bodily life to live in it. That is the promise of the Christian gospel.
+ - Wherever St. Paul went, there was a riot. Wherever I go, they serve tea.
+ - The kingdom that Jesus preached and lived was all about a glorious, uproarious, absurd generosity.
+ - People have been told so often that resurrection is just a metaphor, and means Jesus died and was glorified – in other words, he went to Heaven, whatever that means. And they’ve never realized that the word ‘resurrection’ simply didn’t mean that.
+ - The Holy Spirit in enabling the already-justified believers to live with moral energy and will so that they really do please God again and again.
+ - Justice never means “treating everybody the same way”, but “treating people appropriately”.
+ - If you’re a Christian you’re just a shadow of your future self.
+ - Jesus, to be sure, often spent long times alone in prayer. But he was also deeply at home where there was a party, a kingdom party, a celebration of the fact that God was at last taking charge.
+ - When Jesus wanted to explain to his disciples what his death was all about, he didn’t give them a theory, he gave them a meal.
+ - When you’re writing theology, you have to say everything all the time, otherwise people think you’ve deliberately missed something out.
+ - The cross is the surest, truest and deepest window on the very heart and character of the living and loving God.
+ - What we have at the moment isn’t as the old liturgies used to say, ‘the sure and certain hope of the resurrection of the dead,’ but a vague and fuzzy optimism that somehow things may work out in the end.
+ - Indian leaders are saying, “You don’t understand our caste system. It’s really a lovely thing. People are very happy about it and so on.” I don’t think that’s quite fair.
+ - It’s partly that I’m an extrovert and that I like being with people. If you shut me up in a library with nothing else around for weeks on end, I’d go mad! I have to sort of go out...
+ - Scripture is, at its heart, the great story that we sing in order not just to learn it with our heads but to become part of it through and through, the story that in turn becomes part of us.
+ - Certainly Paul shares the view of the Old Testament prophets that God will one day flood the world with justice and joy – and that this has begun to be fulfilled in the resurrection of Jesus.
+ - I’m very eclectic, musically as in other things! But also to frame the hearing and knowing of Scripture within a context of worship, which is what Anglican liturgy does, just seems to me such a very complete and compelling thing.
+ - We have to train ourselves to use words accurately. And there’s so much loose Christian talk, for which I’ve no doubt been as guilty as any.
+ - Almost all the early Christian Fathers were opposed to the death penalty, even though it was of course standard practice across the ancient world.
+ - My aim has been to expound Scripture and to expound Scripture in such a way that I do not set one Scripture over against another.
+ - Right answers to difficult questions are better than wrong answers to difficult questions.
+ - The very metaphor Paul chooses for this decisive moment in his argument shows that what he has in mind is not the unmaking of creation or simply its steady development, but the drastic and dramatic birth of new creation from the womb of the old.
+ - Hope comes as a surprise, at several levels at once.
+ - All Christian language about the future is a set of signposts pointing into a mist.
+ - When Jesus’s followers asked him to teach them to pray, he didn’t tell them to divide into focus groups and look deep within their own hearts.
+ - I have never been to India and I am not a specialist on Indian culture, and I would not wish to be heard to be taking swipes at a culture which I’ve never experienced and where I’ve never lived.
+ - While some who downplay Christ’s divinity have imagined Jesus as a great social worker ‘being kind to old ladies, small dogs and little children,’ orthodox Christianity has not wanted Jesus to have a political message.
+ - Having lots of members of my family who were in ministry in one form or another, I suppose it shouldn’t be surprising that at quite an early age, I was very, very conscious personally of the love of God.
+ - Of course there are people who think of ‘heaven’ as a kind of pie-in-the-sky dream of an afterlife to make the thought of dying less awful. No doubt that’s a problem as old as the human race.
+ - What Jesus did was not a mere example of something else, not a mere manifestation of some larger truth; it was itself the climactic event and fact of cosmic history. From then on everything is differentthe End came forward into the present in Jesus the Messiah.
+ - The phrase “spiritual journey” is one that I’ve only become familiar with comparatively recently. We wouldn’t have put it like that when I was a kid.
+ - God has committed himself, ever since creation, to working through his creatures – in particular, through his image-bearing human beings – but they have all let Him down.
+ - I am an advocate of one form of the New Perspective. But there are as many new perspectives as there are people writing about it.
+ - I really don’t care too much what the different later Christian traditions say. My aim is to be faithful to Scripture.
+ - I regard this conclusion as coming in the same sort of category, of historical probability so high as to be virtually certain, as the death of Augustus in AD 14 or the fall of Jerusalem in AD 70.
+ - I have met many Roman Catholic theologians who will emphasize as much as any good Protestant preacher that everything comes from the love and grace of God.
+ - If you ask people in England where does Tom Wright sit on the theological spectrum, they say, “Well he’s an evangelical of course,” as though, come on, get used to it.
+ - Traditions tell us where we have come from. Scripture itself is a better guide as to where we should now be going.
+ - One of the things I find depressing about some of the upper echelons of Anglicanism on both sides of the Atlantic is that it’s sort of taken for granted that we all basically know what’s in the Bible, and so we just glance at a few verses for devotional purposes and then get on to the real business.
+ - I think future generations will say the late 20th century and the early 21st century was a time of great convulsions and upheavals.
+ - I work in a very tough area of Britain. There is not much hope sociologically where I live and work, they’re all sorts of conditions of poverty and deprivation and so on, I really do believe that the message of the kingdom of God is for places like this.
+ - If you believe in the Bible, you’ve got to do business with it and not just screen it out.
+ - Death is a monster; death is horrible.
+ - But the present world is also designed for something which has not yet happened. It is like a violin waiting to be played: beautiful to look at, graceful to hold – and yet if you’d never heard one in the hands of a musician, you wouldn’t believe the new dimensions of beauty yet to be revealed.
+ - Someone who is determinedly trying to show God how good he or she is is likely to become an insufferable prig.
+ - I’m a people person. I like being with people. So I like being a teacher, and so on.
+ - God has taken us utterly seriously. How can we not do the same with him?
+ - To get overprotective about particular readings of the Bible is always in danger of idolatry.
+ - Within orthodoxy, there is always a danger of faith collapsing into fear.
+ - The cross is the place where, and the means by which, God loved us to the uttermost.
+ - Often people see doctrines as a checklist. Here are the following nineteen truths which you’ve got to believe to be a good sound Christian.
+ - A ‘conservative believer’ must be someone who believes that Jesus was truly human as well as truly divine.
+ - But if Christians don’t get Jesus right, what chance is there that other people will bother much with him?
+ - Paul believed, in fact, that Jesus had gone through death and out the other side. Jesus had gone into a new mode of physicality, for which there was no precedent and of which there was, as yet, no other example.
+ - Whenever you see, in an official lectionary, the command to omit two or three verses, you can normally be sure that they contain words of judgment. Unless, of course, they are about sex.
+ - By all means write new songs. Each generation must do that. But to neglect the church’s original hymnbook is, to put it bluntly, crazy.
+ - Looking back to the earlier centuries of the church, most of the great teachers were also bishops and vice versa. It’s only fairly recently that the church has had this great divide.
+ - It’s very easy for a church just to slide along from week to week, taking it for granted that we do our services like this and that, and we celebrate the sacraments like this and that.
+ - For me, actually, being a bishop in a bishopric where there’s an academic tradition gives me this fascinating, challenging, but open invitation to say, “We want you to be a scholar. We want you to go on doing this. But do it as a bishop!”
+ - Fortunately, Paul is much more interesting than most of his interpreters, myself included.
+ - All history involves selection, and it is always human beings who do the selecting.
+ - I didn’t write much until I turned 40. Up until then I felt constrained by a sense of the discipline of New Testament studies and a sense of the ruling elite in theology and biblical studies.
+ - I accept the historical challenge, and with that, I accept the essentially Christian position that God always has more light to break out of his holy Word.
+ - When it became clear that in fact my father was saying, “It will be interesting to see what you want to do when you grow up,” I realized that there was no pressure on that front. And I remember huge relief: Hey, I can go and do what I really know I have to do!
+ - The gospel is not itself about you are this sort of a person and this can happen to you. That’s the result of the gospel rather than the gospel itself.
+ - I knew that I had to be a preacher. I had to be a minister, which was a puzzle to me because my dad was a businessman. It was a family company and I assumed that I would take it on from him.
+
+130 quotes

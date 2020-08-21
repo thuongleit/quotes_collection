@@ -1,0 +1,21 @@
+ - We must risk delight. We can do without pleasure, but not delight. Not enjoyment. We must have the stubbornness to accept our gladness in the ruthless furnace of this world. To make injustice the only measure of our attention is to praise the Devil.
+ - We must have the stubbornness to accept our gladness in the ruthless furnace of this world.
+ - We must unlearn the constellations to see the stars.
+ - Everyone forgets Icarus also flew.
+ - I dream of lost vocabularies that might express some of what we no longer can.
+ - Our heart wanders lost in the dark woods. Our dream wrestles in the castle of doubt. But there’s music in us. Hope is pushed down but the angel flies up again taking us with her.
+ - I believe that Icarus was not failing as he fell, but just coming to the end of his triumph.
+ - How astonishing it is that language can almost mean, and frightening that it does not quite.
+ - The heart lies to itself because it must.
+ - What we feel most has no name but amber, archers, cinnamon, horses and birds.
+ - WAKING AT NIGHT The blue river is grey at morning and evening. There is twilight at dawn and dusk. I lie in the dark wondering if this quiet in me now is a beginning or an end.
+ - I had lived all of my youthful dreams, but I couldn’t think of many adult ones. I finally realized that we don’t have many dreams for adults because, historically, people have always died much younger than they do today.
+ - But anything worth doing is worth doing badly. Like being there by that summer ocean on the other side of the island while love was fading out of her, the stars burning so extravagantly those nights that anyone could tell you they would never last.
+ - We exist with a wind whispering inside and our moon flexing. Amid the ducts, inside the basilica of bones.
+ - When I was walking in the mountains with the Japanese man and began to hear the water, he said, ‘What is the sound of the waterfall?’ ‘Silence,’ he finally told me.
+ - We think the fire eats the wood. We are wrong. The wood reaches out to the flame. The fire licks at what the wood harbors, and the wood gives itself away to that intimacy, the manner in which we and the world meet each new day.
+ - I’m vain enough to think that I’ve made a successful life. I’ve had everything I’ve ever wanted. You can’t beat that.
+ - Fame is a lot of fun, but it’s not interesting. I loved being noticed and praised, even the banquets. But they didn’t have anything that I wanted. After about six months, I found it boring.
+ - Why do so manysettle for so little? I don’t understand why they’re not greedy for what’s inside them.
+
+19 quotes

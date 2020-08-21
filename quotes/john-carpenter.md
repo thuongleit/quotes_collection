@@ -1,0 +1,43 @@
+ - I can play just about any keyboard but I can’t read or write a note.
+ - From early on, when synthesizers were first introduced into music, I liked the idea that you could get a big sound with them, electronic, but like an orchestra. And I could play it all myself. That was exciting.
+ - Evil hiding among us is an ancient theme.
+ - Child pornography is taboo. There are really no such things as snuff films. That’s a legend. But movies are like pieces of dreams, and we don’t need to go into those dreams. Those dreams are beyond. Child pornography – it’s horrible. Human suffering is a horrible thing in real life.
+ - There are two different stories in horror: internal and external. In external horror films, the evil comes from the outside, the other tribe, this thing in the darkness that we don’t understand. Internal is the human heart.
+ - I enjoyed ‘The Avengers.’ I couldn’t do that kind of movie though. Superheroes aren’t my deal.
+ - Fears are all psychological. Being afraid of death, loss of a loved one and disfigurement are all powered by your mind, and that’s very powerful stuff.
+ - When you have no money, you need invention.
+ - The strongest human emotion is fear. It’s the essence of any good thriller that, for a little while, you believe in the boogeyman.
+ - Halloween put me on the map, and I’m very sad to hear of his death.
+ - In Halloween, I viewed the characters as simply normal teenagers. Laurie, Jamie Lee’s character, was shy and somewhat repressed. And Michael Myers, the killer, is definitely repressed. They have certain similarities.
+ - Remakes, in general, are a result of necessity being the mother of invention. They can’t open movies consistently and break through the advertising clutter that’s out there.
+ - To make Michael Myers frightening, I had him walk like a man, not a monster.
+ - What scares me is what scares you. We’re all afraid of the same things. That’s why horror is such a powerful genre. All you have to do is ask yourself what frightens you and you’ll know what frightens me.
+ - You play with everything you’ve got. I’m not a lover of cheap tricks. I’ve always loved playing with people, but there’s no rule about it. You try everything you can.
+ - Horror found me. I got into the movie business to make westerns.
+ - Horror stories have always worked on film. It’s where they work. That’s where vampires and ghosts and UFOs are real. They’re not particularly real in life, but they’re real on the screen. It’s the communal aspect of movie-watching.
+ - Film buffs who don’t live in Hollywood have a fantasy about what it’s like to be a director. Movies and the people who make movies have such glamour associated with them. But the truth is, it’s not like that. It’s very different. It’s hard work.
+ - Directing is all about storytelling. It’s not about equipment, or anything else.
+ - I had a talent for scoring films. I just developed it.
+ - Way back in the ’70s, I was approached to talk about the story I’d write for a Spider-Man movie. They also talked to me about Batman. I had to think about it, but that was way, way back when.
+ - I just aim for basketball season to start. I don’t really care about anything else in life.
+ - I don’t want to be a part of the demographics. I want to be an individual. I wear each of my films as a badge of pride. That’s why I cherish all my bad reviews. If the critics start liking my movies, then I’m in deep trouble.
+ - I stopped directing in 2001 for four or five years, until I did the TV series ‘Masters Of Horror.’ I had been working steadily as a director since 1970. That’s a long time. I was burned out.
+ - There’s nothing better than being in an asylum, if you’re going to have a bunch of crazy people in an asylum, and they’re all beautiful Hollywood actresses.
+ - One could make money and get a career going with a low-budget horror film about killers attacking on holidays. It is always flattering to have somebody copy you.
+ - Horror has been a genre since the beginning of cinema, all the way back to the days of silent films. I don’t think it will ever go away because it’s so universal. Humor doesn’t always travel to other countries, but horror does.
+ - To make movies you just have to want it enough. You have to have the passion for telling stories. You have to get by the love-of-movies aspect. You can’t just be a movie fan.
+ - From a will: And to my communist nephew Oswald, I leave the sum of 10,000 pounds – to be shared equally with his fellow Britishers.
+ - I made a decision back in 1978 that, in a trade off for money when I directed Halloween, I would have my name above the title in order to basically brand these movies my own.
+ - I love making movies.
+ - As a filmmaker, it’s about surviving and lasting. So many talented people that I’ve known in my life – directors and writers – just haven’t made it and haven’t had a chance.
+ - I never got in this business, in cinema, to make horror movies. They arrived on my doorstep and I got typecast. Which was fine, I enjoy it, but I got into this business to make westerns. And the kind of westerns I used to see, they died. So that didn’t work out.
+ - I don’t watch my films. I’ve seen ’em enough after cutting them and putting the music on. I don’t ever want to see them again.
+ - There are a lot of movies that I don’t care about, especially not remakes.
+ - We all question our sanity. Everyone has had an experience of loss of control of something.
+ - You have to fight really hard for a private life, and sometimes you don’t have one. It just gets to you after a while. It’s tough.
+ - Anybody can make a movie, if you have the will. The digital revolution has made it very inexpensive to make a film. Anybody who wants to can do it.
+ - First of all, I was a wrestling fan when I was young. Even when I figured out what wrestling was, I was still a fan.
+ - I’m always involved with casting my movies. I have final word on it.
+ - Movies are pieces of film stuck together in a certain rhythm, an absolute beat, like a musical composition. The rhythm you create affects the audience.
+
+41 quotes

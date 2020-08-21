@@ -1,0 +1,42 @@
+ - I’ve committed to surfing the rest of my life. ~~Lance Armstrong
+ - I don’t need easy, I just need possible. ~~Bethany Hamilton
+ - I’m seeking out a new way to live and if it’s surfing, that’s the way I’ll do it. I’ll be a surfer for the rest of my life. ~~Andy Warhol
+ - Out of water, I am nothing. ~~Duke Kahanamoku
+ - Now you know where I got my name. ~~Stokely Carmichael
+ - In the dim background of mind we know what we ought to be doing but somehow we cannot start. ~~William James
+ - It’s all about where your mind’s at. ~~Kelly Slater
+ - Gone surfing. Be back soon. -D. ~~Alyson Noel
+ - I’m super excited about gaming always. That’s the thing that I geek out over; those are the vlogs that I’m surfing if I’m not already playing a game at night. ~~Felicia Day
+ - I tried surfing once in Brazil, but I’m kind of clumsy. ~~Lee Pace
+ - Surfing is attitude dancing. ~~Gerry Lopez
+ - I got to learn to surf. ~~Sheryl Crow
+ - Head Start is designed to ensure that all children – regardless of their family’s income, race, or ethnic background – are able to enter kindergarten ready to learn. ~~Lucille Roybal-Allard
+ - Fear causes hesitation, and hesitation will cause your worst fears to come true. ~~Patrick Swayze
+ - Surfer girls rip and they are hot. ~~Alana Blanchard
+ - It’s not tragic to die doing something you love. ~~Mark Foo
+ - We’re all equal before a wave. ~~Laird Hamilton
+ - Actually, watching television and surfing the Internet are really excellent practice for being dead. ~~Chuck Palahniuk
+ - Waves are not measured in feet or inches, they are measured in increments of fear. ~~Buzzy Trent
+ - I love surfing more than cricket. It’s more interesting and you meet great people. ~~Hansie Cronje
+ - I love surfing and bodysurfing. I love getting slammed by the waves – that makes me feel alive. The waves are a good reminder that I’m small and fragile. ~~Jason Mraz
+ - Kite surfing is a great way of keeping fit. Kiting is great because you’re bouncing over the waves and you’re surfing the waves. I do quite long kite surfs-50 miles in a day. ~~Richard Branson
+ - Surfing is like that. You are either vigorously cursing or else you are idiotically pleased with yourself. ~~Agatha Christie
+ - You know what I would like to do: make a film with actors standing in empty space so that the spectator would have to imagine the background of the characters. ~~Michelangelo Antonioni
+ - I can be surfing the exact same wave and then sometimes something will just set off, even if I’m riding the same board the whole time. Something will just set off and it just feels like you can push just that extra bit harder. ~~Mick Fanning
+ - Waves are toys from God. ~~Clay Marzo
+ - Annabeth came up to me. She was dressed in black camouflage with her Celestial bronze knife strapped to her arm and her laptop bag slung over her shoulder – ready for stabbing or surfing the Internet, whichever came first. ~~Rick Riordan
+ - I love the ocean and have a passion for surfing, even though I’m not very good at it. I like getting out there and paddling around. ~~Annasophia Robb
+ - Who needs to walk on fire, when you can walk on water with this site. ~~Tony Robbins
+ - With Crazy Horse, it’s all one big, growing, smoldering sound, and I’m part of it. It’s like gliding, or some sort of natural surfing. ~~Neil Young
+ - The conception of background music is changing. You use less and less of it these days. ~~Satyajit Ray
+ - Sometimes I wish I had every different sort of board that I could just bring out for this surf when I feeling like surfing this board. I love riding old single fins and twin fins. ~~Mick Fanning
+ - A movie is kind of like being the captain of a ship, which is nice, but when I perform by myself it’s just surfing on the water and nobody really knows what happens. ~~Jerry Seinfeld
+ - Let a man get up and say, Behold, this is the truth, and instantly I perceive a sandy cat filching a piece of fish in the background. Look, you have forgotten the cat, I say. ~~Virginia Woolf
+ - I’ve tried body surfing. It’s nice. ~~Ziggy Marley
+ - Our album ‘Show No Mercy’ came out in late ’83, and we did three or four shows in San Francisco after the release. That was our first experience with stage-divers, crowd-surfing, people walking on people across an entire crowd. ~~Tom Araya
+ - Sigmund Freud was a novelist with a scientific background. He just didn’t know he was a novelist. All those damn psychiatrists after him, they didn’t know he was a novelist either. ~~John Irving
+ - I was a serious method actor until I visited this site. ~~Robin Williams
+ - I like surfing; I bring a surfboard with me on tour. ~~Stephan Jenkins
+ - And bring me a hard copy of the Internet so I can do some serious surfing. ~~Scott Adams
+
+40 quotes

@@ -1,0 +1,42 @@
+ - Success to me is being a good person, treating people well.
+ - I shoot fantasy. If you want reality, ride the bus.
+ - I believe in a visual language that should be as strong as the written word.
+ - I’m a photographer, period. I love photography, the immediacy of it. I like the craft, the idea of saying ‘I’m a photographer.’
+ - People say photographs don’t lie, mine do.
+ - There’s nothing that symbolizes loss or grief more than a mother losing a child.
+ - With mania, is it dangerous to ride that euphoric feeling. You feel very animated and creative; I would fill journals with drawings. It feels good and you want it to last, but it can lead to being delusional. The delusions can be as real as you thinking you can fly.
+ - Prostitutes go to heaven. It’s their clients that go to hell.
+ - I like the Eiffel Tower in Las Vegas more than the actual one.
+ - You work with people who are obsessive about shopping, obsessive about owning things and buying things, like this purchase is going to make them happy. And you want to say to them, You know, no amount of real estate is gonna fill that void.
+ - My pictures are about getting as far away from reality as possible. Dreams should be part of our everyday life.
+ - What’s shocking is cruelty and torture, and that’s become our entertainment. Kids can play violent video games, but God forbid they look at a naked woman. That’s pornography, that’s perverse. No!
+ - Just as Renaissance artists provided narratives for the era they lived in, so do I. I’m always looking beyond the surface. I’ve done that ever since I first picked up a camera.
+ - I’ve never wanted to be part of an inner circle of any scene. I’ve always been an outsider looking to question and subvert.
+ - For me, it’s easier to like more things than to dislike them; I’m not a critic in that sense. I find it easier to like more, to be more open and enjoy more things, which has given me more opportunities.
+ - I like thinking about the fragility of the human flesh and our bodies – our decay and eventual death.
+ - People get devalued in Hollywood when they age, despite all their efforts to stay relevant and beautiful and young. They can’t get jobs anymore.
+ - I think we’re in a post-pornographic time and nothing seems shocking, but everything remains carnal no matter what you do.
+ - My work is about making candy for the eyes. It’s about grabbing your attention.
+ - The adornment of the body is a human need.
+ - My dream since I was a kid was to show in a gallery.
+ - I wanted it to provide an escape route, I wanted to make pictures that were fantastic and took you into another world, one that was brighter. I started off with this idea.
+ - Pictures are an escape. They should be bigger than life. In the same way, celebrities provide an escape from the mundane. They are photographed so we can worship them – so they are worthy of our worship.
+ - I went to art high school and thought I’d be a painter. Unfortunately I didn’t finish high school, but that’s always been part of my work.
+ - The key is to photograph your obsessions, whether that’s old people’s hands or skyscrapers. Think of a blank canvas, because that’s what you’ve got, and then think about what you want to see. Not anyone else.
+ - You just do what you love, and then a style happens later on.
+ - In the fashion world, I was always an outsider, but I made people look good, so I had a career.
+ - The minute you point a camera at something, you are manipulating the image, because you are cropping out whatever is to the left and right of it. The minute you put a light on someone, you are manipulating the image.
+ - My work is about making candy for the eyes. It’s about grabbing your attention. Even though my work is appearing in magazines I am trying to make a large picture. I want my photographs to read like a poster.
+ - The adornment of the body is a human need. I don’t see anything superficial about it unless your life becomes very materialistic.
+ - I never want people to be repulsed with my pictures; I always want to attract people.
+ - I have no interest in being famous. I just want to make famous photographs.
+ - My idea was that if I took a picture of somebody and years later, or whenever, they would die and if someone wanted to know who this person was, they could take one of these pictures and it would tell who the person was.
+ - I’m part of what I consider the entertainment industry. For my photos to be entertaining, they have to be provocative and new.
+ - I have this idea that you can use glamour and still have it represent something that matters.
+ - The tools I learned photographing celebrities, now I want to use them to sell ideas.
+ - I was always painting when I was a kid. But then when I handled a camera when I was 17, that was it for me. I loved photography. I would work 4 or 5 hours a day. It was like a calling.
+ - I didn’t see any difference between being a photographer or being an artist. I didn’t make those boundaries. If someone wants to think it’s art, that’s great, but I’ll let history decide.
+ - Then I got this idea in my head that magazines were like a gallery and if you got your magazine page ripped out and someone stuck it on their refrigerator, then that was a museum – someone’s private museum.
+ - I like the consistency of having people in my life for a long time.
+
+40 quotes

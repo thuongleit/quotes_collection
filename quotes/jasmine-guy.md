@@ -1,0 +1,29 @@
+ - Bigotry and judgment are the height of insecurity.
+ - I’ve always known the greatness of black people.
+ - There is a child in all of us, a person who believes in a glorious future.
+ - I want word of mouth to be our biggest voice.
+ - People in power need to control others in order to maintain power. One of the ways to do that is to take that which is threatening and demonize it.
+ - I am very sad for men and women trapped in any relationship where there is cruelty, dominance, inequity. I long for the liberation of all people.
+ - If one is desperate for love, I suggest looking at one’s friends and family and see if love is all around. If not, get a new set of friends, a new family.
+ - It is a full time job being honest one moment at a time, remembering to love, to honor, to respect. It is a practice, a discipline, worthy of every moment.
+ - The building of friendship, family, community and love is complicated. We are so isolated in this country, no longer supported by tribes and villages.
+ - If black people mistrust white people, they are mistrusting racism, and that is appropriate.
+ - The state and the church seldom approve of anything I do. I don’t need their approval. I don’t aspire to the heterosexual nuclear family model.
+ - I always try to honor a character by being honest and truthful to who they are, in spite of my own personality and beliefs.
+ - There is no sexuality that is greater or lesser than another.
+ - I would love to direct a movie, something I really like with a great cast. What a dream!
+ - You tend to be afraid when someone seems foreign to you. But if you aren’t careful, that can lead to bigotry.
+ - We gave up having a TV last year. I am out of the loop. Life is way better than TV. I recommend it to anyone who has forgotten they have one.
+ - I have often felt bad that I am not great at any one thing. Like just a super super singer. Or the Gregory Hines of something.
+ - Young people discovering their sexuality must know they walk with a strong tradition and that they are not alone. They have a right to information without being pressured.
+ - That made me feel good, not to go to a resort where outside the door is extreme poverty.
+ - The more confident one becomes, the less one needs all people to be the same.
+ - We are a complex species to observe.
+ - The kitchen may not get cleaned, and I have to accept that. I do the important things.
+ - An activist is one who is actively involved in creating community, whether that is locally in their neighborhood or internationally. It is an admirable quality.
+ - As the middle begins to feel safe enough to accept some of the so-called radical thinking, ideas move to the middle and a new edge is created.
+ - I meet so many people, but I don’t know anybody.
+ - I believe people who practice their beliefs in daily life are activists.
+ - Anything that is non-violent is OK with me.
+
+27 quotes

@@ -1,0 +1,30 @@
+ - I constantly get out of my comfort zone. Looking cool is the easiest way to mediocrity. The coolest guy in my high school ended up working at a car wash. Once you push yourself into something new, and whole new world of opportunities opens up. But you might get hurt. In fact you will get hurt. But amazingly when you heal – you are somewhere you’ve never been.
+ - Everybody says they’re trying to get their piece of the pie. They don’t realize that the world is a kitchen – you can make your own pie.
+ - Never stop! Slow down sometimes, but never stop!
+ - Never let anyone define you. You are the only person who defines you. No one can speak for you. Only you speak for you. You are your only voice.
+ - You get better at working by working. And if you don’t work, you’re not getting better.
+ - Never stop being YOU. I am out to be the best ME I can be. Do what you LOVE and you will be badass.
+ - The thing that you think is imperfect about you, is the thing that makes you who you are. It separates you from everybody else.
+ - School is cool. Thats why it rhymes.
+ - It ain’t easy being cheesy!
+ - I’m actually a perpetual 13-year-old. I’ve never advanced beyond 13. Every day, tomorrow is my 14th birthday. That’s my kind of humor.
+ - It’s great to be strong but strength is nothing without having compassion.
+ - I relax while I work. It’s really weird but my job doesn’t feel like work at all. That’s why I try to do as much as possible. When I’m on the set, learning lines and playing around, I’m relaxed. It’s so amazing.
+ - Trying to be cool is the easiest path to mediocrity.
+ - You can’t be perfect, so enjoy your imperfections.
+ - Art was always my thing. I had an art scholarship before I had a football scholarship. I’m a left-handed, right-brained, painting-drawing guy. That was always my skill.
+ - I want to be a man who mixes strengths and compassion. That’s my magic elixir, so to speak.
+ - The big thing with all parents is they just want to be left alone. I want no demands. That’s the best gift for Father’s Day, just leave them alone.
+ - I call myself the Amusement Park. That’s because I’m funny and scary at the same time.
+ - I’m African-American by my culture, not by my color. Race does not exist.
+ - I would always be painting and drawing. If I was stuck at home, I was in the basement working on a painting.
+ - I feel like we need to make new superheroes, African-American superheroes, that people would accept.
+ - But think about how evil that is for one man to think that he’s actually more valuable than a woman, because as a human being your worth is immeasurable.
+ - Hollywood is a bit of a publicity game where it’s constantly trying to portray things and put up this image and I was not interested in that.
+ - I was a sports nut. I stayed after school probably three hours every day – from fall, to winter, to spring. I went from football to basketball to track and it started all over again. I loved all of it. I just loved being an athlete and all that it entailed. It really accounts for who I am.
+ - I always stay in the urban comedy genre because it just never gets old. It’s one of those things that people watch, again and again. This is that kind of movie. It gives you longevity.
+ - And remember how he wrote the first Rocky in a few days, and wouldn’t sell the script even though he was starving, because they wanted to put somebody else in the lead role. To see what he’s accomplished, dog, that’s what it’s all about.
+ - As a parent you walk around trying to be perfect, but you don’t have to be perfect. That’s the key. You just have to be faithful, and when I say faithful I mean you have to give your all.
+ - When I was in the NFL, whenever I got cut from a team I would do paintings of the players, they would pay me $4,000 to $5,000 to do their painting of their family, and that’s how I survived until another team picked me up.
+
+28 quotes

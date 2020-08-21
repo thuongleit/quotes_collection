@@ -1,0 +1,27 @@
+ - Sometimes hope is all we have, and to lose that is to lose all.
+ - Sometimes I guess you need to lose everything before you realize what’s really important.
+ - They say that not matter how old you become, when you are with your siblings, you revert back to childhood.
+ - A life without rain is like the sun without shade.
+ - Moving on doesn’t mean forgetting.
+ - You ain’t dead yet, so you ain’t done.
+ - There are no completely good or bad people. Everybody makes mistakes, or bad choices. It’s how we live with them that make us the people we are.
+ - You have to get through the rain if you’re ever going to see a rainbow.
+ - The highway of life was littered with the roadkill of those who didn’t know when to change lanes.
+ - To give up too easily leads to regret, yet trying and then failing can lead us to second chances if we do not accept it as a failure, but a chance to learn.
+ - Adversity in life does not rob your heart of beauty. It simply teaches it a new song to sing.
+ - Strong winds buffet the sea oats and tall dune grasses, tossing sand and seabirds where it will, winding my sister’s golden hair into sunlit spirals of silk until it becomes the only good memory I have of her – the only memory I allowed myself to keep.
+ - A secret society exists, and is living among all of us. They are neither people nor animals, but something in-between.
+ - Miles and years become suddenly invisible when you find yourself back where you started from, as if you’ve learned nothing and you are once again the person you once were.
+ - But there is room now in my heart for more memories, carved by a letting go that I could find only by coming home to a place I’d never been.
+ - But I think sometimes a person has to be forced underwater to see if they’re going to drown or swim.
+ - Every woman needs a daughter to tell her stories to.
+ - Death and loss, they plague you. So do memories. Like the Mississippi’s incessant slap against the levees, they creep up with deceptive sweetness before grabbing your heart and pulling it under.
+ - The answers we seek aren’t always the answers we want, are they? But knowing the truth is what helps us sleep at night.
+ - The word that came to me now was “defiant.” Because a person had to be defiant to be able to stand amid the wreckage of her life and instead of shaking a fist, pick up a hammer.
+ - We live, we love. These are the choices we are given, to open doors or to close them. It is all we have, and it is enough.
+ - I know what it is to hope and pray so hard that you’re sure God will answer your prayer just so you’ll stop asking.
+ - Don’t see the notes. See the music. See the story it is telling you. Allow the music to change you. Allow it to give you the courage to do whatever you need to.
+ - There is how we were before, and how we are now, and the time between is spent choosing which doors to open, and which to close.
+ - Great tragedy gives us opportunities for great kindness.
+
+25 quotes

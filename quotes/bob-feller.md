@@ -1,0 +1,31 @@
+ - Every day is a new opportunity. You can build on yesterday’s success or put its failures behind and start over again. That’s the way life is, with a new game every day, and that’s the way baseball is.
+ - I’m no hero. Heroes don’t come back. Survivors return home. Heroes never come home. If anyone thinks I’m a hero, I’m not.
+ - Life comes down to honesty and doing what’s right. That’s what’s most important.
+ - The soldiers that didn’t come back were the heroes. It’s a roll of the dice. If a bullet has your name on it, you’re a hero. If you hear a bullet go by, you’re a survivor.
+ - I try to be a good human being and keep up with what’s going on in the world by reading and staying in touch with the current events.
+ - Nobody lives forever and I’ve had a blessed life.
+ - I was only a gun captain on the battleship Alabama for 34 months. People have called me a hero for that, but I’ll tell you this – heroes don’t come home. Survivors come home.
+ - I needed to join the Navy. If you ask the people in Europe who won World War II, they don’t say the Allies, they say the United States won the war and saved the world.
+ - There was great leadership in this country at the time of World War II. There was also unrelenting resolve at home, in America’s factories and on the farms, in the cities and the country.
+ - Baseball is only a game, a game of inches and a lot of luck. During a time of all-out war, sports are very insignificant.
+ - Cooperstown is the greatest place on Earth.
+ - My father loved baseball and he cultivated my talent. I don’t think he ever had any doubt in his mind that I would play professional baseball someday.
+ - I spent 34 months on the battleship Alabama, South Dakota-class. I was a gun captain. First we went to Russia for about 11 months with the British convoys. Then we were up in Norway and Scandinavia.
+ - You figure they cheat at the ballpark, they’ll cheat on the golf course, they’ll cheat in business, and anything else in life. Players may laugh about it and say it’s funny, but right down in their heart, they don’t think it’s funny at all, and they have no respect for a person who cheats.
+ - Yankee Stadium, it’s like everything else in this country. In Europe, they save all their old buildings for history. Here, we just tear them all down.
+ - Baseball in the Navy always was much more fun than it had been in the major leagues.
+ - Ted Williams was the greatest hitter I ever saw, but DiMaggio was the greatest all around player.
+ - Sympathy is something that shouldn’t be bestowed upon the Yankees. Apparently it angers them.
+ - The difference between relief pitching when I did it today is simple, there is too much of it. It’s one of those cases where more is not necessarily better.
+ - If you believe your catcher is intelligent and you know that he has considerable experience, it is a good thing to leave the game almost entirely in his hands.
+ - I went on inactive duty in August 1945, and since I had stayed in such good shape and had played ball on military teams, I was ready to start for the Indians just two days later, against the Tigers.
+ - I don’t think baseball owes colored people anything. I don’t think colored people owe baseball anything, either.
+ - Nowadays, they have more trouble packing hair dryers than baseball equipment.
+ - As much as we disliked the Yankees, fans and players alike, they were good for baseball. They consistently unsuccessful teams like the Browns, Senators, and A’s paid a lot of their bills with those big crowds that poured through the gates when the Yankees came to town.
+ - I just reared back and let them go.
+ - Where the ball went was up to heaven. Sometimes I threw the ball clean up into the stands.
+ - I would rather beat the Yankees regularly than pitch a no hit game.
+ - I did what any American could and should do: serve his country in its time of need.
+ - When I pick up the ball and it feels nice and light and small I know I’m going to have a good day. But if I picked it up and it’s big and heavy, I know I’m liable to get into a little trouble.
+
+29 quotes

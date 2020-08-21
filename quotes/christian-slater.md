@@ -1,0 +1,40 @@
+ - Work is my hobby, staying sober is my job.
+ - The extreme always seems to make an impression.
+ - Our love is God. Let’s go get a slushie.
+ - I was a shy, quiet kid. I was happiest playing by myself with my toys, rather than hanging around people.
+ - If you can help guide somebody through a challenging moment because you’ve been there, that ends up becoming a great gift.
+ - Art does imitate life, it has to come from somewhere. To put boundaries and limitations on it doesn’t make a lot of sense to me.
+ - The movies I’ve made at a certain time of my life were exactly right for the stage of my life, the frame of mind I was in at the time. Each character I’ve had to play has been me in that time in my life.
+ - I want to do films I can relate to emotionally.
+ - My mom put me in a Pampers commercial on TV.
+ - As you get older you learn some balance and mediation in your life – that’s where I am right now. I feel pretty comfortable about things.
+ - I did regret not graduating high school, but I made a point of going back and getting my GED later. It was important for my kids.
+ - The guys from Atari that are making the next Alone in the Dark game came and we had a great meeting. I’d love to do that. I’m a fan of videogames. I like them. And to get to be part of one of them would be a fun and exciting thing.
+ - I’ve calmed down, certainly, from the days of being 18, but I’m still having a good time.
+ - I’ve been taking my time now between projects looking for stuff that has a little bit more substance, that isn’t surface. Some of the films that I’ve done in the past really were surface.
+ - My mistakes do happen on a grand scale and very public level. They’re humiliating, embarrassing. But if nothing bad happens to you, you’ll just continue to act ridiculous.
+ - There’s something about doing theatre in London – it sinks a little bit deeper into your soul as an actor. It’s something about the tradition of theatre, about performing on the West End stage.
+ - I’m trying not to put myself into anything I’m not 100 percent confident about.
+ - I don’t think of myself as offbeat and weird. As a kid, I saw myself as the type of guy who would run into a burning building to save the baby.
+ - It’s almost like these games are the modern day comic books, especially when you play Alone in the Dark. There’s a real story that goes along with it and a movie seemed like the right kind of transition to make.
+ - I think games are starting to branch out. It’s not just guys sitting at their computer stations. Games are so fun, that everybody gets into them a little bit.
+ - If I make a move, like raise my eyebrows, some critic says I’m doing Nicholson. What am I supposed to do, cut off my eyebrows?
+ - I enjoy the process of TV; I like the pace of it; I like the continual work.
+ - How do I feel about being a star now? Well I still try to live life and enjoy what I am doing.
+ - I was always such an incredible fan of John Woo, I just wanted to do this film with him.
+ - Well, obviously, as soon as I’d finished the script I read a lot of books on Winston Churchill, and started to gain weight and really prepare emotionally, mentally and physically for the role.
+ - I had such a good time working with John Woo and John Travolta, and it was so professional. I want to work with people who are real professionals.
+ - Hopefully, that people could see a progression in my performances because that’s how it’s always felt to me.
+ - Jail was a result of me not taking time for myself. So I was forced to take some time for myself.
+ - After I did Untamed Heart I wanted to do a film that was outrageous. I really wanted to do, you know, a performance. I don’t want to allow my image to rule the choices that I make.
+ - There was a time when I felt I should do everything that was offered to me, you know, ride the wave.
+ - I took a lot of time off after Mobsters and although I did something I had never done before, which was to direct a play, The Laughter Epidemic, it felt like a vacation.
+ - Tony Scott was one of the best directors Ive ever worked with, and I was devastated when I heard about his death. He was a great guy with great energy. But this is a difficult business, and peoples lives are sometimes difficult.
+ - I can promote until I am blue in the face, but ultimately nobody knows what makes a hit.
+ - I have brought a PS2 on set with me before. But games can be really addicting, and that’s dangerous. So I tend to keep it fairly limited on a certain level.
+ - This is what Hollywood tends to do. It tends to disregard tradition, history and anything factual, twisting it and turning it and making it all okay regardless of what the English may think of it.
+ - I’m blown away by the graphical detail of today’s games. I can’t imagine that it’s going to get any better, but it’s just going to continually progress and soon we’ll be living in that world.
+ - The way I see it, if you’re going to make an action movie, you’ve got to make one with John Woo.
+ - In truth, making films doesn’t feel like hard work because I always have such a good time doing it.
+
+38 quotes

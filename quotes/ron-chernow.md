@@ -1,0 +1,47 @@
+ - As a bull market continues, almost anything you buy goes up. It makes you feel that investing in stocks is a very easy and safe and that you’re a financial genius.
+ - Stock market corrections, although painful at the time, are actually a very healthy part of the whole mechanism, because there are always speculative excesses that develop, particularly during the long bull market.
+ - Mutual funds give people the sense that they’re investing with the big boys and that they’re really not at a disadvantage entering the stock market.
+ - That strategy of buy and hold, which is the sound and sensible one for the individual, can have very dangerous and perverse effects for the market as a whole.
+ - A romantic striving for an impossible ideal.
+ - I think those who invest in mutual funds want someone else to do the thinking for them. But the fact that they can move the money around the family of mutual funds just through a phone call lets them feel that they can play tycoons.
+ - After 1929, so many people had been traumatized by the stock market crash that there was a lost generation.
+ - Mutual funds have historically offered safety and diversification. And they spare you the responsibility of picking individual stocks.
+ - The best argument for mutual funds is that they offer safety and diversification. But they don’t necessarily offer safety and diversification.
+ - The Great Inflation of the 1970s destroyed faith in paper assets, because if you held a bond, suddenly the bond was worth much less money than it was before.
+ - I have developed a very strong partiality for the dead: they don’t talk back, they don’t sue, and they don’t have angry relatives.
+ - Mutual fund managers are trapped in this rather deadly vicious circle: the more successful they are, the more money flows into their mutual fund. Then, it is more difficult for them to beat the market averages or even to match their own past performance.
+ - In the 1920s you could buy stocks on margin. You could put 10 percent down and borrow the rest against your stocks.
+ - Any bull market covers a multitude of sins, so there may be all sorts of problems with the current system that we won’t see until the bear market comes.
+ - Once the brokerage house, rather than the bank, became the locus for American savings, that money would find its way into the stock market, because the broker was someone with a much higher tolerance for risk than the banker.
+ - One of the very nice things about investing in the stock market is that you learn about all different aspects of the economy. It’s your window into a very large world.
+ - One of the special characteristics of New York is that it is different from a London or a Paris because it’s the financial capital, and the cultural capital, but not the political capital.
+ - I don’t think that a mutual fund that invests exclusively in biotech start-ups or invests exclusively in companies in Thailand offers any great safety or diversification.
+ - The history of Wall Street is inseparable from New York.
+ - The mutual fund industry and small investors are very relentless and very unforgiving if people don’t perform.
+ - The American public historically was really not part of the stock market.
+ - The founding fathers were not only brilliant, they were system builders and systematic thinkers. They came up with comprehensive plans and visions.
+ - A lot of the money in the stock market is really our national retirement plan, for better or worse.
+ - By the late 1980s people realized that houses did not always appreciate and that they could fluctuate like any other market commodity.
+ - When news of the crash came, probably a lot of people in small towns and farms across America felt a sense of grim satisfaction that the sinners had finally been punished for their wicked ways.
+ - I’m a biographer; I can live with a little hyperbole.
+ - In the 1920s, Wall Street was a world that was really dominated by professional speculators and stock pools. These people had a monopoly over information.
+ - A crash really occurs when you suddenly have a violent downturn in the market that then heralds a long bull market.
+ - Unless you devote an enormous amount of time to anticipating the future, you won’t have any future.
+ - In the 1970s we saw a massive shift of household savings from the banks to the brokerage firms.
+ - You don’t want too much fear in a market, because people will be blinded to some very good buying opportunities. You don’t want too much complacency because people will be blinded to some risk.
+ - Writing about dead white males seems to be out of favor among academics.
+ - Washington once advised his adopted grandson that where there is no occasion for expressing an opinion, it is best to be silent. For there is nothing more certain than that it is at all times more easy to make enemies than friends.
+ - Because of the love affair between the American public and the stock market, it is possible for entrepreneurs, technological visionaries and inventors of every sort to get financing.
+ - Early on, New York already had a national and even international identity.
+ - The securities laws of the 1930s were so important because it forced companies to file registration statements and issue prospectuses, and it remedied the imbalance of information.
+ - What I find very interesting about the mutual funds managers is that here are people who are the new masters of the universe. They’re managing billions, yet they’re subject to this quiet daily tyranny of numbers.
+ - I think there’s a tide that tends to carry historians back to the past.
+ - After being Washington’s aide for four years and becoming the hero of Yorktown, Hamilton was viewed with a great deal of suspicion because of his association with Tories.
+ - The richly cadenced prose is hypnotic, the research prodigious, the analysis acute, the mood spellbinding, and the cast of characters mythic in scale. I cannot conceive of a better book about Capitol Hill. An unforgettable, epic achievement in the art of biography.
+ - I’m dubious about having Social Security put into the stock market. I think that we have gotten very far away from the idea that there’s something sacrosanct about retirement investments.
+ - Hamilton had one of those extraordinary 18th-century minds that touched on virtually every major topic of the day.
+ - There is a kind of fear, approaching a panic, that’s spreading through the Baby Boom Generation, which has suddenly discovered that it will have to provide for its own retirement.
+ - There is no country in the world where it’s as easy to find venture capital in the stock market as the United States.
+ - We really haven’t had very much experience with people funding their retirement out of the stock market, and we don’t know, frankly, how it would work under every scenario.
+
+45 quotes

@@ -1,0 +1,28 @@
+ - I’m telling you, monsters aren’t born, they’re made.
+ - Above all else, I had learned the one thing every person has to learn to make it through life: the only person you can truly count on is yourself.
+ - I’m done being the damsel in distress. I don’t need anyone to save me.
+ - I was not crying – eyes water. I think we all know I’m a badass and I don’t cry. – Caleb.
+ - If I survive this, I can’t go back. I’ll have to move forward and I don’t know what that means.
+ - People often believed they were safer in the light, thinking monsters only came out at night.
+ - Everything is in the process of becoming something else. It’s the law of change.
+ - This isn’t a romance. You’re not a damsel in distress and I’m not the handsome prince come to save you.
+ - Live for me, Kitten. Be all those things you’d never be with me. Go to school. Meet a normal boy and fall in love. Forgive me. It’s time for you to go, Kitten. Time for us both, to go.
+ - The only way to truly be safer, was to accept the dark, to walk in it with eyes wide open, to be a part of it. To keep your enemies close.
+ - Softly, he inhales and exhales as we kiss. He never stops kissing me; he simply continues to steal my breath, returning it to me only when he’s infused it with his essence. Pure lust lives inside him. Every breath I take should come from his lungs.
+ - Love does not always begin or end the way we wish it would.
+ - That you could fix me? What’s more, that I could fix you? Well, Sorry, pet, I don’t want to be fixed. – Caleb.
+ - My heart, independent of my logic, had reserved a place for my tormentor and my solace.
+ - I’m writing this because you begged. You know how I love the begging.
+ - He was my tormentor and my solace; the creator of the dark and the light within.
+ - I was as real to him as he was to me and it struck me just then that I meant something to him. In whatever capacity he was able, I meant something. The irony of that epiphany made my gut twist.
+ - Dealing with Caleb was all about perspective. You couldn’t appreciate his kindness until you’d felt his cruelty.
+ - He had told her he wasn’t Prince Charming, but what he hadn’t said, was he wished he could be.
+ - Why couldn’t he just keep being an evil, soulless bastard so I knew what his role was and I knew mine?
+ - Misery I understand. Happiness is terrifying. – Caleb.
+ - They say I tried to hurt my nurse. I tell them they tried to hurt me first.
+ - Some stories aren’t black and white.
+ - Once upon a time, Caleb held me captive in the dark, now he used it to seduce me.
+ - Each day I was more vulnerable than the last. Each day he stripped away more of my sense of self. And now he’d taken the last of it, the last of me. But who did that make me? An extension of him? Someone new? I didn’t know. Didn’t want to know.
+ - I can’t keep you, Livvie. Stop trying to make me.
+
+26 quotes

@@ -1,0 +1,23 @@
+ - Exercise is a journey, not a destination. It must be continued for the rest of your life. We do not stop exercising because we grow old – we grow old because we stop exercising.
+ - Fitness is a journey, not a destination; you must continue for the rest of your life.
+ - It’s easier and more cost effective to maintain good health, than to regain it once it’s lost.
+ - The reason I exercise is for the quality of life I enjoy.
+ - If you look at body fat, it seems to increase with age, even though your weight does not. That’s a physiological fact of aging, they say. Heck it is. It is an adaptive effect of aging.
+ - There are six components of wellness: proper weight and diet, proper exercise, breaking the smoking habit, control of alcohol, stress management and periodic exams.
+ - So I’ve broadened the fitness concept to make it one of moderation and balance.
+ - I think investments in general related to the exercise industry are going to be good for a long time.
+ - After 26 years, I am still practicing what I preach.
+ - Exercise can’t counteract the damage being done to your body while you continue to smoke. What exercise can do is help you kick the habit.
+ - You have to run 75 to 100 miles a week if you expect to break the four-minute mile.
+ - We are involved in youth testing internationally. We want to try to prove without a shadow of a doubt the relationship between physical fitness and health, not just physical fitness and ability to perform.
+ - I used to think that it didn’t make any difference how far you ran if you had a good, strong musculoskeletal system and no underlying cardiovascular problems.
+ - Now I say that if you run more than 15 miles a week, it’s for something other than aerobic fitness. Once you pass 15 miles, you do not see much further improvement.
+ - Since then, I have not missed five consecutive days in getting some type of aerobic exercise, mostly jogging.
+ - Over the years, Ive covered 22,000 miles.
+ - Far too many times over the next 12 to 15 years, it was brought to my attention that people who followed my exercise guidelines exactly but ignored their diet, their weight and their cigarette smoking had heart attacks at age 55.
+ - Aerobic dancing is already adjusting to injury problems and will probably phase out to some extent.
+ - According to the Gallup Poll, 24 percent of American adults exercised regularly in 1961, and 50 percent after 1968. The peak was 59 percent in 1984, dropping off to 51 percent last September.
+ - I have not missed a day from work because of illness since 1956.
+ - I don’t criticize weight training – as long as it is not a substitute for aerobic training.
+
+21 quotes

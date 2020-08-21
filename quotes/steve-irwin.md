@@ -1,0 +1,57 @@
+ - We don’t own the planet Earth, we belong to it. And we must share it with our wildlife.
+ - The message is simple: love and conserve our wildlife.
+ - Crocodiles are easy. They try to kill and eat you. People are harder. Sometimes they pretend to be your friend first.
+ - But I put my life on the line to save animals.
+ - I have a message for my fans. Whatever you want to do in this world, it is achievable. The most important thing that I’ve found, that perhaps you could use, is be passionate and enthusiastic in the direction that you choose in life, and you’ll be a winner.
+ - All you have to do in life is be passionate and enthusiastic and you will have a wonderful life.
+ - I have no fear of losing my life – if I have to save a koala or a crocodile or a kangaroo or a snake, mate, I will save it.
+ - The truth is that we will never save wildlife by killing it.
+ - I believe that education is all about being excited about something. Seeing passion and enthusiasm helps push an educational message.
+ - If we save our wild places, we will ultimately save ourselves.
+ - If we can teach people about wildlife, they will be touched. Share my wildlife with me. Because humans want to save things that they love.
+ - We humans still have a long way to go with learning to live harmoniously with our environment and its wildlife.
+ - Born a wildlife warrior, die a wildlife warrior.
+ - If you can’t excite people about wildlife, how can you convince them to love, cherish, and protect our wildlife and the environment they live in?
+ - I believe sustainable use is the greatest propaganda in wildlife conservation at the moment.
+ - I have a deep-seated respect for parrots. As gifted as I am with all other wildlife, parrots have this uncanny desire to kill me. I’m not sure why, but they’re like my kryptonite!
+ - Crikey means gee whiz, wow!
+ - Yeah, I’m a thrill seeker, but crikey, education’s the most important thing.
+ - You know, I’m Australian, and we have got the worst sense of humor. We are cruel to each other.
+ - Yeah, for some reason parrots have to bite me. That’s their job. I don’t know why that is. They’ve nearly torn my nose off. I’ve had some really bad parrot bites.
+ - My number one rule is to keep that camera rolling. Even if it’s shaky or slightly out of focus, I don’t give a rip. Even if a big old alligator is chewing me up I want to go down and go, ‘Crikey!’ just before I die. That would be the ultimate for me.
+ - I believe our biggest issue is the same biggest issue that the whole world is facing, and that’s habitat destruction.
+ - Where I live if someone gives you a hug it’s from the heart. I’ve had these blokes in Hollywood hug me trying to make out I’m their friend and as soon as I turn their back they take out a big bunch of knives and stab me in the back. I feel sorry for these people because they are so shallow.
+ - My dad taught me from my youngest childhood memories through these connections with Aboriginal and tribal people that you must always protect people’s sacred status, regardless of the pest.
+ - So fear helps me from making mistakes, but I make lot of mistakes.
+ - When the East Timor conflict broke out, when they gained independence, the militia killed a lot of East Timorese people. And their sacred totem is the crocodile. They believe that their island is actually a solidified crocodile, so it has sacred status.
+ - I would sooner die of a taipan bite then tell my dad that I got bitten by a taipan. Because my nose would bleed from his kicking my ass.
+ - Crikey means gee whiz, wow! Crikey, mate. You’re far safer dealing with crocodiles and western diamondback rattlesnakes than the executives and the producers and all those sharks in the big MGM building.
+ - I get called an adrenaline junkie every other minute, and I’m just fine with that.
+ - Snakes are just very instinctive to me. I’ve been playing with snakes since before I could walk. It doesn’t matter where or what it is, from the biggest to the most venomous.
+ - Every cent we earn from Crocodile Hunter goes straight back into conservation. Every single cent.
+ - Australia has one of the worst mammalian extinction rates in the world.
+ - The first crocodile I ever caught was at nine years of age, and it was a rescue.
+ - See, I’ve always seen Jacques Cousteau as a hero, mate. He’s a legend – like my dad, just a legend. And so what he did for conservation in the ’60s through the ’70s was just phenomenal.
+ - I probably don’t show fear, but I suffer from fear like everyone else.
+ - Take the crocodile, for example, my favorite animal. There are 23 species. Seventeen of those species are rare or endangered. They’re on the way out, no matter what anyone does or says, you know.
+ - No matter where you go and what you do in America, you turn the tele on and you’re confronted with violence.
+ - I think my path would have always gone back to or delivered me to wildlife. I think wildlife is just like a magnet, and it’s something that I can’t help.
+ - Yeah, I think it’s an absolute disaster that Australia, the government, allowed kangaroo culling.
+ - Where I live if someone gives you a hug it’s from the heart.
+ - And I have stopped eating tuna until the tuna nets cease killing tens of thousands of dolphins every single year.
+ - There’s a lot of research behind the scenes that you don’t get to see, but I have an instinct that my dad nurtured from when I was born. I was very lucky then.
+ - I’m a proud Australian, a very, very proud Australian.
+ - So, my tactic with conservation of apex predators is to get people excited and take them to where they live.
+ - You know, you can touch a stick of dynamite, but if you touch a venomous snake it’ll turn around and bite you and kill you so fast it’s not even funny.
+ - Herein lies our problem. If we level that much land to grow rice and whatever, then no other animal could live there except for some insect pest species. Which is very unfortunate.
+ - I am optimistic globally. So many scientists are working frantically on the reparation of our planet.
+ - I sincerely believe that there’s room for cutting down trees for forestry and grazing, so as we all get to eat. Everyone has to compromise.
+ - So now what happens is the cameras follow me around and capture exactly what I’ve been doing since I was a boy. Only now we have a team of, you know, like 73 of us, and it’s gone beyond that.
+ - What television has done is it’s given me a stepping stone to get to some other countries and really wild destinations throughout this world, which perhaps I would have had to struggle to get to.
+ - My belief is that what comes across on the television is a capture of my enthusiasm and my passion for wildlife.
+ - Statistically there’s only one crocodile-related human fatality per year in the whole of Australia.
+ - Crocodiles. I’ve been catching them since I was nine. No problem.
+ - We’ve evolved from sitting back on our tripods and shooting wildlife films like they have been shot historically, which doesn’t work for us.
+ - The only animals I’m not comfortable with are parrots, but I’m learning as I go. I’m getting better and better at ’em. I really am.
+
+55 quotes

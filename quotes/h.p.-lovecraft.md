@@ -1,0 +1,143 @@
+ - The oldest and strongest emotion of mankind is fear, and the oldest and strongest kind of fear is fear of the unknown.
+ - That is not dead which can eternal lie, And with strange aeons even death may die.
+ - The most merciful thing in the world, I think, is the inability of the human mind to correlate all its contents. We live on a placid island of ignorance in the midst of black seas of the infinity, and it was not meant that we should voyage far.
+ - Never Explain Anything.
+ - There are probably seven persons, in all, who really like my work; and they are enough. I should write even if I were the only patient reader, for my aim is merely self-expression.
+ - The Old Ones were, the Old Ones are, and the Old Ones shall be. Not in the spaces we know, but between them. They walk serene and primal, undimensioned and to us unseen.
+ - I know always that I am an outsider; a stranger in this century and among those who are still men.
+ - Yog-Sothoth knows the gate. Yog-Sothoth is the gate. Yog-Sothoth is the key and guardian of the gate. Past, present, future, all are one in Yog-Sothoth.
+ - All life is only a set of pictures in the brain, among which there is no difference betwixt those born of real things and those born of inward dreamings, and no cause to value the one above the other.
+ - I have seen the dark universe yawning Where the black planets roll without aim, Where they roll in their horror unheeded, Without knowledge, or lustre, or name.
+ - I like coffee exceedingly...
+ - We shall see that at which dogs howl in the dark, and that at which cats prick up their ears after midnight.
+ - Wise men have interpreted dreams, and the gods have laughed.
+ - The greatest human achievements have never been for profit.
+ - To be bitter is to attribute intent and personality to the formless, infinite, unchanging and unchangeable void. We drift on a chartless, resistless sea. Let us sing when we can, and forget the rest...
+ - Memories and possibilities are even more hideous than realities.
+ - Nothing matters, but it’s perhaps more comfortable to keep calm and not interfere with other people.
+ - I could not write about “ordinary people” because I am not in the least interested in them.
+ - In his house at R’lyeh, dead Cthulu waits dreaming.
+ - No new horror can be more terrible than the daily torture of the commonplace.
+ - The world is indeed comic, but the joke is on mankind.
+ - I expect nothing of man, and disown the race. The only folly is expecting what is never attained; man is most contemptible when compared with his own pretensions. It is better to laugh at man from outside the universe, than to weep for him within.
+ - From even the greatest of horrors irony is seldom absent.
+ - That which we call substance and reality is shadow and illusion, and that which we call shadow and illusion is substance and reality.
+ - The basis of all true cosmic horror is violation of the order of nature, and the profoundest violations are always the least concrete and describable.
+ - I love to dream, but I never try to dream and think at the same time.
+ - Ocean is more ancient than the mountains, and freighted with the memories and the dreams of Time.
+ - I never ask a man what his business is, for it never interests me. What I ask him about are his thoughts and dreams.
+ - The cat is such a perfect symbol of beauty and superiority that is seems scarcely possible for any true aesthete and civilized cynic to do other than to worship it.
+ - And where Nyarlathotep went, rest vanished, for the small hours were rent with the screams of nightmare.
+ - Creative minds are uneven, and the best of fabrics have their dull spots.
+ - Life is a hideous thing.
+ - Race prejudice is a gift of nature, intended to preserve in purity the various divisions of mankind which the ages have evolved.
+ - Do not call up that which you cannot put down.
+ - Unhappy is he to whom the memories of childhood bring only fear and sadness.
+ - In my dreams I found a little of the beauty I had vainly sought in life, and wandered through old gardens and enchanted woods.
+ - Blue, green, grey, white, or black; smooth, ruffled, or mountainous; that ocean is not silent.
+ - All my tales are based on the fundamental premise that common human laws and interests and emotions have no validity or significance in the vast cosmos-at-large.
+ - Men of broader intellect know that there is no sharp distinction betwixt the real and the unreal.
+ - The only saving grace of the present is that it’s too damned stupid to question the past very closely.
+ - The moon is dark, and the gods dance in the night; there is terror in the sky, for upon the moon hath sunk an eclipse foretold in no books of men or of earth’s gods.
+ - I felt myself on the edge of the world; peering over the rim into a fathomless chaos of eternal night.
+ - Almost nobody dances sober, unless they happen to be insane.
+ - Someday our piecing together of knowledge will open up such terrifying vistas we shall either go mad or flee into the safety of a new dark age.
+ - In short, the world abounds with simple delusions which we may call “happiness”, if we be but able to entertain them.
+ - Sometimes I believe that this less material life is our truer life, and that our vain presence on the terraqueous globe is itself the secondary or merely virtual phenomenon.
+ - The cat is cryptic, and close to strange things which men cannot see.
+ - Most of my monsters fail altogether to satisfy my sense of the cosmic – the abnormally chromatic entity in “The Colour Out of Space” being the only one of the lot which I take any pride in.
+ - Life is not the unique property of Earth. Nor is life in the shape of human beings. Life takes many forms on other planets and far stars, forms that would seem bizarre to humans, as human life is bizarre to other life-forms.
+ - The ignorant and the deluded are, I think, in a strange way to be envied. That which is not known of does not trouble us, while an imagined but insubstantial peril does not harm us. To know the truths behind reality is a far greater burden.
+ - The process of delving into the black abyss is to me the keenest form of fascination.
+ - Maybe, just maybe, I should not have used the word “eldritch” so many times now that I think about it...
+ - West of Arkham the hills rise wild, and there are valleys with deep woods that no axe has ever cut.
+ - There is no field other than the weird in which I have any aptitude or inclination for fictional composition. Life has never interested me so much as the escape from life.
+ - If I am mad, it is mercy! May the gods pity the man who in his callousness can remain sane to the hideous end!
+ - Pleasure to me is wonder – the unexplored, the unexpected, the thing that is hidden and the changeless thing that lurks behind superficial mutability.
+ - Memory sometimes makes merciful deletions.
+ - Rome was so mighty that it could not fall. It had to vanish in a cloud, like so many of the mythical heros of antiquity, and to receive its apotheosis among the stars before men became fully aware that it had vanished from the earth!
+ - It must be remembered that there is no real reason to expect anything in particular from mankind; good and evil are local expedients – or their lack – and not in any sense cosmic truths or laws.
+ - I could not help feeling that they were evil things – mountains of madness whose farther slopes looked out over some accursed ultimate abyss.
+ - Our brains deliberately make us forget things, to prevent insanity.
+ - As human beings, our only sensible scale of values is one based on lessening the agony of existence.
+ - But more wonderful than the lore of old men and the lore of books is the secret lore of ocean.
+ - It is good to be a cynic – it is better to be a contented cat – and it is best not to exist at all.
+ - There are horrors beyond life’s edge that we do not suspect, and once in a while man’s evil prying calls them just within our range.
+ - But are not the dreams of poets and the tales of travellers notoriously false?
+ - Life is a hideous thing, and from the background behind what we know of it peer daemoniacal hints of truth which make it sometimes a thousandfold more hideous.
+ - Who knows the end? What has risen may sink, and what has sunk may rise.
+ - At night, when the objective world has slunk back into its cavern and left dreamers to their own, there come inspirations and capabilities impossible at any less magical and quiet hour. No one knows whether or not he is a writer unless he has tried writing at night.
+ - Man’s relations to man do not captivate my fancy. It is man’s relation to the cosmos – to the unknown – which alone arouses in me the spark of creative imagination.
+ - There are black zones of shadow close to our daily paths, and now and then some evil soul breaks a passage through. When that happens, the man who knows must strike before reckoning the consequences.
+ - Through the ghoul-guarded gateways of slumber, Past the wan-mooned abysses of night, I have lived o’er my lives without number, I have sounded all things with my sight.
+ - We love kitties, gawd bless their little whiskers, and we don’t give a damn whether they or we are superior or inferior! They’re confounded pretty, and that’s all we know and all we need to know!
+ - Despite my solitary life, I have found infinite joy in books and writing, and am by far too much interested in the affairs of the world to quit the scene before Nature shall claim me.
+ - Two widely dissimilar races, whether equal or not, cannot peaceably coexist in the same territory until they are either uniformly mongrelised or cast in folkways of permanent and traditional personal aloofness.
+ - Only poetry or madness could do justice to the noises...
+ - There be those who say that things and places have souls, and there be those who say they have not; I dare not say, myself, but I will tell of The Street.
+ - I am disillusioned enough to know that no man’s opinion on any subject is worth a damn unless backed up with enough genuine information to make him really know what he’s talking about.
+ - It might, too, have been the singular cold that alienated me; for such chilliness was abnormal on so hot a day, and the abnormal always excites aversion, distrust, and fear.
+ - It was from the artists and poets that the pertinent answers came, and I know that panic would have broken loose had they been able to compare notes.
+ - My opinion of my whole experience varies from time to time.
+ - What a man does for pay is of little significance. What he is, as a sensitive instrument responsive to the world’s beauty, is everything!
+ - Searchers after horror haunt strange, far places.
+ - For I have always been a seeker, a dreamer, and a ponderer on seeking and dreaming...
+ - I have harnessed the shadows that stride from world to world to sow death and madness.
+ - Religion is still useful among the herd – that it helps their orderly conduct as nothing else could. The crude human animal is in-eradicably superstitious, and there is every biological reason why they should be. Take away his Christian god and saints, and he will worship something else...
+ - Of what use is it to please the herd? They are simply coarse animals – for all that is admirable in man is the artificial product of special breeding.
+ - I was nearly unnerved at my proximity to a nameless thing at the bottom of a pit.
+ - In London there is a man who screams when the church bells ring.
+ - Ultimate horror often paralyses memory in a merciful way.
+ - Through all this horror my cat stalked unperturbed. Once I saw him monstrously perched atop a mountain of bones, and wondered at the secrets that might lie behind his yellow eyes.
+ - When Randolph Carter was thirty he lost the key of the gate of dreams.
+ - Religion struck me so vague a thing at best, that I could perceive no advantage of any one system over any other.
+ - The darkness always teemed with unexplained sound – and yet he sometimes shook with fear lest the noises he heard subside and allow him to hear certain other fainter noises which he suspected were lurking behind them.
+ - If we were sensible we would seek death – the same blissful blank which we enjoyed before we existed.
+ - It is better to laugh at man from outside the universe, than to weep for him within.
+ - There were nameless horrors abroad; and no matter how little one might be able to get at them, one ought tp stand prepared for any sort of action at any time.
+ - Nothing really known can continue to be acutely fascinating.
+ - I couldn’t live a week without a private library – indeed, I’d part with all my furniture and squat and sleep on the floor before I’d let go of the 1500 or so books I possess.
+ - Zoologists seem to consider the cerebration of cats and dogs about 50-50 – but my respect always goes to the cool, sure, impersonal, delicately poised feline who minds his business and never slobbers.
+ - I have never been able to soothe myself with the sugary delusions of religion; for these things stand convicted of the utmost absurdity in light of modern scientific knowledge.
+ - So far as English versification is concerned, Pope was the world, and all the world was Pope.
+ - An isolated person requires correspondence as a means of seeing his ideas as others see them, and thus guarding against the dogmatisms and extravagances of solitary and uncorrected speculation.
+ - Toil without song is like a weary journey without an end.
+ - Who knows the end? What has risen may sink, and what has sunk may rise. Loathsomeness waits and dreams in the deep, and decay spreads over the tottering cities of men.
+ - I fear my enthusiasm flags when real work is demanded of me.
+ - To the scientist there is the joy in pursuing truth which nearly counteracts the depressing revelations of truth.
+ - The dog is a peasant and the cat is a gentleman.
+ - Uncertainty and danger are always closely allied, thus making any kind of an unknown world a world of peril and evil possibilities.
+ - Good and evil and beauty and ugliness are only ornamental fruits of perspective, whose sole value lies in their linkage to what chance made our fathers think and feel, and whose finer details are different for every race and culture.
+ - Something like fear chilled me as I sat there in the small hours alone-I say alone, for one who sits by a sleeper is indeed alone; perhaps more alone than he can realise.
+ - It is true that I have sent six bullets through the head of my best friend, and yet I hope to show by this statement that I am not his murderer.
+ - The end is near. I hear a noise at the door, as of some immense slippery body lumbering against it. It shall not find me. God, that hand! The window! The window!
+ - It is only the inferior thinker who hastens to explain the singular and the complex by the primitive shortcut of supernaturalism.
+ - I am, indeed, an absolute materialist so far as actual belief goes; with not a shred of credence in any form of supernaturalism – religion, spiritualism, transcendentalism, metempsychosis, or immortality.
+ - If I could create an ideal world, it would be an England with the fire of the Elizabethans, the correct taste of the Georgians, and the refinement and pure ideals of the Victorians.
+ - There now ensued a series of incidents which transported me to the opposite extremes of ecstasy and horror; incidents which I tremble to recall and dare not seek to interpret.
+ - Intellectually, the Republican idea deserves the tolerance and respect one gives to the dead.
+ - Sometimes one feels that it would be merciful to tear down these houses, for they must often dream.
+ - The appeal of the spectrally macabre is generally narrow because it demands from the reader a certain degree of imagination and a capacity for detachment from everyday life.
+ - Since all motives at bottom are selfish and ignoble, we may judge acts and qualities only be their effects.
+ - I am a student of life, and don’t want to miss any experience. There’s poetry in this sort of thing, you know – or perhaps you don’t know, but it’s all the same.
+ - Bunch together a group of people deliberately chosen for strong religious feelings, and you have a practical guarantee of dark morbidities expressed in crime, perversion, and insanity.
+ - Religion itself is an absurdity and an anomaly, and paganism is acceptable only because it represents that purely orgiastic phase of religion farthest from reality.
+ - No amount of rationalisation, reform, or Freudian analysis can quite annul the thrill of the chimney-corner whisper or the lonely wood.
+ - Religion as a vital issue is dead except on paper, and whatever beauty-baiting the future may witness will be the work of greed and trade, and not of honest cosmos-facing.
+ - Man’s respect for the imponderables varies according to his mental constitution and environment. Through certain modes of thought and training it can be elevated tremendously, yet there is always a limit.
+ - Heaven knows where I’ll end up – but it’s a safe bet that I’ll never be at the top of anything! Nor do I particularly care to be.
+ - There was really nothing for serious men to do in cases of wild gossip, for superstitious rustics will say and believe anything.
+ - The trees grew too thickly, and their trunks were too big for any healthy New England wood. There was too much silence in the dim alleys between them.
+ - Naturally one would rather be a broad artist with power to evoke beauty from every phase of experience – but when one unmistakably isn’t such an artist, there’s no sense in bluffing and faking and pretending that one is.
+ - With hidden powers of unknown extent apparently at his disposal, Curwen was not a man who could safely be warned to leave town.
+ - Life has never interested me so much as the escape from life.
+ - I am so beastly tired of mankind and the world that nothing can interest me unless it contains a couple of murders on each page or deals with the horrors unnameable and unaccountable that leer down from the external universes.
+ - The monotony of a long heroic poem may often be pleasantly relieved by judicious interruptions in the perfect successions of rhymes, just as the metre may sometimes be adorned with occasional triplets and Alexandrines.
+ - Disintegration is quite painless, I assure you.
+ - If religion were true, its followers would not try to bludgeon their young into an artificial conformity; but would merely insist on their unbending quest for truth, irrespective of artificial backgrounds or practical consequences.
+ - All I want is to know things. The black gulph of the infinite is before me...
+ - Vigorous let us be in attaining our ends, and mild in our method of attainment.
+ - The glorious Dryden, refiner and purifier of English verse, did less for rhyme than he did for metre.
+ - In relating the circumstances which have led to my confinement within this refuge for the demented, I am aware that my present position will create a natural doubt of the authenticity of my narrative.
+
+141 quotes

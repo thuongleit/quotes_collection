@@ -1,0 +1,56 @@
+ - Every day you make mistakes. And the key to making mistakes is first you have to make them, which means you’re in the game. So don’t be afraid of getting in the game.
+ - I like to make pictures about people who make a difference.
+ - I think you’ve got to be honest with yourself at what you’re good at. That’s the hardest thing to do.
+ - I should have had more faith in my talent. I think I would have gotten to achieve more, earlier, had I believed in myself. But I let other people take credit for my work.
+ - Screenplays are the hardest thing to try to get right. They look so simple when they work, but they really destroy your brain cells trying to get them there.
+ - A psychology degree doesn’t get you very far.
+ - I can stand at the back of the theater and watch an audience laugh, cry, and be moved by what I do. I can entertain people around the world. It’s nice when you can give someone that gift.
+ - What I do is try to stay away from the hot subjects.
+ - Because you can’t do anything halfway, you’ve got to go all the way in anything you do.
+ - We need a very strong military to protect the freedoms we do have.
+ - Well, I started years ago with Flashdance and we also did Coyote Ugly, so I have put my toe in the water before with romantic comedies. I love making them and I love making people laugh. That’s a trademark that I don’t think any producer would turn down.
+ - I think it’s the source material. 27 Dresses was a famous book, and Devil Wears Prada was also a wonderful book, so it’s coming out of the novelists who are really creating these wonderful female characters that we want to see on the big screen.
+ - Dramatics are what keep you in the seats.
+ - People want to leave their homes but they can’t go on vacation as much as they used to. So, getting out of the house and seeing a good movie helps them to alleviate some of the pain that’s going on in their life.
+ - Any time you can create something that gets to a large audience is fantastic. And television still gets you to a huge audience.
+ - There are a lot of movies that inspire me to do what I do.
+ - You have to start at the very bottom and you’ve got to do every job. I did that so I could understand what everybody does. I didn’t become this huge producer overnight. It took many, many years.
+ - If you read a part that you want to play, and you already know you have actors you want to work with but it’s not on the page, it’s not going to be on the screen. So that is the most difficult thing to do for a producer, is to get a script that attracts this kind of talent.
+ - It’s important to stand up for your work, otherwise somebody else will step in and say they did it.
+ - We want to create these dramatic situations, whether they are real or not, to entertain audiences.
+ - I still that that movie-goers like the experience of leaving their homes and going to have a communal experience, especially in comedies or interactive things where you can get an audience reaction to.
+ - We love to entertain audiences and this picture does that – it’s romantic, it’s funny, it’s got a nice message and I think it’s a gift to the audience to be able to enjoy this movie.
+ - If you have a crisis, whether on a ship or wherever, there are heroes who rise above it.
+ - I make movies based on gut.
+ - Sometimes we’ll only get one script in a year that we want to make that we feel is good enough.
+ - Well, I feel that we’re kind of fortunate that this book gives the whole world a lesson in economics and how to get out of the mess that we’re all in. It’s basic message is to try and stop spending as much and try to release some of your assets to pay off your debt.
+ - Well, I don’t look back and celebrate. I just always worry about the next one.
+ - It’s very difficult to release an X-rated movie.
+ - If you live in a world of faith, this reaffirms your faith.
+ - Every time I make a movie I think that it’s going to be my last one, I think that no one is going to show up. I always have this sense that they’re all going to fail. I am scared to death.
+ - Yeah sure, I’d love to have all my movies on DVD.
+ - Anybody who’s really successful has doubts.
+ - A lot of it had to do with when it’s released and what’s out in the marketplace, what’s its competition.
+ - Definitely, it’s a fear of failure that drives me.
+ - Casting is so important, with any film you do. You have to get actors that you believe will fulfill the promise of the characters that are on the page.
+ - Our military thought that they couldn’t get to Pearl Harbor, that it was too long a journey from Japan to get there, and they proved us wrong.
+ - We know as filmmakers where you draw the line.
+ - I think I’m a great organizer. Not that I’m organized, but I’m a great organizer of other people.
+ - The director’s who want to be innovative use the DVD as a tool to see what people have done in the past and you have other people who will actually take from better directors and that makes them better directors.
+ - I don’t make movies because I think audiences will want to go see them.
+ - I think we look to the military as something that protects our shores.
+ - Although, I think you look back and you try to learn from your mistakes.
+ - When I was a kid I started a baseball team. I was a terrible player, but I put together a group of neighborhood kids. I started a hockey team. I put the kids together and got a sponsor. So I can always kind of organize people and get things done.
+ - I just don’t know what makes a movie catch on and other ones don’t.
+ - The whole world has changed after September 11th.
+ - But once we got them on its feet then they run themselves, unless there’s corrections you have to make.
+ - I love entertaining people and this is entertainment.
+ - We hope that audiences around the world embrace the picture in the same way they have the books and that hopefully Disney will allow us make another one.
+ - And yes, it is harder to make movies because budgets are getting smaller, and the companies stocks are down. The only good news on the horizon is that box office has been up by something like 23% from last year, which is great for us. It’s still the cheapest form of entertainment.
+ - And usually the studios they don’t want you to have credit for your movies because they want to take credit for the movies because if you get credit for your movies they’ve got to pay you more.
+ - You’ve got to learn from your mistakes. And not do them again.
+ - You can’t be afraid of hard work or long hours. Sacrifice is important.
+ - We are in the transport business. We transport audiences from one place to another.
+ - I love taking you inside a world that you’re not apart of and showing how actually works.
+
+54 quotes

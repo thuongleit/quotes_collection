@@ -1,0 +1,23 @@
+ - Cherish your wilderness.
+ - It is important to act as if bearing witness matters.
+ - When Sleeping Beauty wakes up, she is almost fifty years old.
+ - Nature is a catchment of sorrows.
+ - We are, each of us, our own prisoner. We are locked up in our own story.
+ - Meanwhile let us cast one shadow in air and water.
+ - I’m going home the old way with a light hand on the reins making the long approach.
+ - God serves the choosy. They know what to want...
+ - Love, we are a small pond.
+ - The time on either side of now stands fast.
+ - The tougher the form the easier it is for me to handle the poem, because the form gives permission to be very gut honest about feelings.
+ - To build is to dwell.
+ - Women are not supposed to have uteruses, especially in poems.
+ - Everything pays for growing tame.
+ - To write about the monstrous sense of alienation the poet feels in this culture of polarized hatreds is a way of staying sane. With the poem, I reach out to an audience equally at odds with official policy, and I celebrate our mutual humanness in an inhuman world.
+ - And the pond’s stillness nippled as if by rain instead is pocked with life.
+ - One way of ending the poem is to turn it back on itself, like a serpent with its tail in its mouth.
+ - Sometimes tradition is a way of keeping going.
+ - My writing time needs to surround itself with empty stretches, or at least unpeopled ones, for the writing takes place in an area of suspension as in a hanging nest that is almost entirely encapsulated.
+ - Here on the drawing board fingers and noses leak from the air brush maggots lie under if i should die before if i should die in the back room stacked up in smooth boxes like soapflakes or tunafish wait the undreamt of.
+ - I didn’t write my poems because I wanted to, they were wrung from me. I had to write them.
+
+21 quotes

@@ -1,0 +1,100 @@
+ - Software is eating the world.
+ - All’s fair in love, war and ride-sharing.
+ - You are cruising along, and then technology changes. You have to adapt.
+ - My goal is not to fail fast. My goal is to succeed over the long run. They are not the same thing.
+ - I don’t waste time being depressed.
+ - You only ever experience two emotions: euphoria and terror. And I find that lack of sleep enhances them both.
+ - There are people who are wired to be skeptics and there are people who are wired to be optimists. And I can tell you, at least from the last 20 years, if you bet on the side of the optimists, generally you’re right.
+ - The smartphone revolution is under-hyped, more people have access to phones than access to running water. We’ve never had anything like this before since the beginning of the planet.
+ - Any new technology tends to go through a 25-year adoption cycle.
+ - Innovation doesn’t come from the big company. It never has and never will. Innovation is something new that looks crazy at first glance. It comes from the 19-year-olds and the start-ups that no one’s heard of.
+ - The difference between a vision and a hallucination is that other people can see the vision.
+ - Learning to code is the single best thing anyone can do to get the most out of the amazing future in front of us.
+ - There is the opportunity to do more and better if you’re smaller and more nimble.
+ - Big breakthrough ideas often seem nuts the first time you see them.
+ - On the back end, software programming tools and Internet-based services make it easy to launch new global software-powered start-ups in many industries – without the need to invest in new infrastructure and train new employees.
+ - The transformation of Apple is probably the biggest tech story of the last 15 years.
+ - Companies in every industry need to assume that a software revolution is coming.
+ - Over two billion people now use the broadband Internet, up from perhaps 50 million a decade ago, when I was at Netscape, the company I co-founded.
+ - Start-ups should be based on radical ideas. There should be a high failure rate for start-ups, because if there isn’t their ideas aren’t bold enough.
+ - I am bullish on the global development. I am bullish on billions of people getting out of poverty.
+ - Out of ten swings at the bat, you get maybe seven strikeouts, two base hits, and if you are lucky, one home run. The base hits and the home runs pay for all the strikeouts.
+ - Around ’93, ’94, the conventional wisdom about the Internet was that it was a toy for academics and researchers. So it was very, very underestimated for about two years.
+ - My own theory is that we are in the middle of a dramatic and broad technological and economic shift in which software companies are poised to take over large swathes of the economy.
+ - The Internet has always been, and always will be, a magic box.
+ - The good news is we had this idea of cloud computing. The bad news is we were 10 years too early.
+ - If you’re the village blacksmith and a model T comes along, you better become a mechanic. People’s lives are better when they get news online versus having to wait for the morning paper. It’s a lot more efficient, a lot more real time, a lot less waste.
+ - Technology is like water; it wants to find its level. So if you hook up your computer to a billion other computers, it just makes sense that a tremendous share of the resources you want to use – not only text or media but processing power too – will be located remotely.
+ - Every kid coming out of Harvard, every kid coming out of school now thinks he can be the next Mark Zuckerberg, and with these new technologies like cloud computing, he actually has a shot.
+ - Google is working on self-driving cars, and they seem to work. People are so bad at driving cars that computers don’t have to be that good to be much better.
+ - In the startup world, you’re either a genius or an idiot. You’re never just an ordinary guy trying to get through the day.
+ - I always had the old-school model that I’m going to work for as long as I’m relevant and focus on for-profit activities and someday when I retire I’m going to learn about philanthropy.
+ - There’s always more demands than there’s time to meet them, so it’s constantly a matter of trying to balance them.
+ - There is a constant need for new systems and new software.
+ - Health care and education, in my view, are next up for fundamental software-based transformation.
+ - We have never lived in a time with the opportunity to put a computer in the pocket of 5 billion people.
+ - Skype has a great engineering team, which I like to describe as ‘all of Estonia.’
+ - A lot of things you want to do as part of daily life can now be done over the Internet.
+ - One of the advantages of moving quickly is if you do something wrong you can change it.
+ - Newspapers with declining circulations can complain all they want about their readers and even say they have no taste. But you will still go out of business over time. A newspaper is not a public trust – it has a business model that either works or it doesn’t.
+ - If you think you can execute a previously failed idea, you just have to be able to show that now is the time.
+ - So I came from an environment where I was starved for information, starved for connection.
+ - The good news about building a company during times like this is that the companies that do succeed are going to be extremely strong and resilient.
+ - A very large percentage of economic activity is shifting online and it makes sense that there are more services that are going to charge. It also means there are going to be more people willing to pay.
+ - When I started Netscape I was brand new out of college and all the aspects of building a business, like balance sheets and hiring people, were new to me.
+ - Great CEOs are not just born with shiny hair and a tie.
+ - I enjoy not being a public company.
+ - Qualified software engineers, managers, marketers and salespeople in Silicon Valley can rack up dozens of high-paying, high-upside job offers any time they want, while national unemployment and underemployment is sky high.
+ - Nokia and Research in Motion needed a modern operating system. They could have bought Palm or Android before Google did, but they didn’t. Today, it’s probably too late, and at the time they would have been criticized for overpaying, but as they say – shift happens.
+ - Perhaps the single most dramatic example of this phenomenon of software eating a traditional business is the suicide of Borders and corresponding rise of Amazon.
+ - I think that every technology company that’s more than 20 years old will break up.
+ - Innovation accelerates and compounds.
+ - An awful lot of successful technology companies ended up being in a slightly different market than they started out in.
+ - At Microsoft, they all rock back and forth like Gates, they wear the same glasses, they have the same hair style. Maybe they grow them in tanks.
+ - The days when a car aficionado could repair his or her own car are long past, due primarily to the high software content.
+ - If you’re unhappy, you should change what you’re doing.
+ - I’ve been an entrepreneur three times. I started three companies.
+ - People who tell computers what to do, and people who are told by computers what to do.
+ - The multipurpose device will always fail.
+ - Innovation accelerates and compounds. Each point in front of you is bigger than anything that ever happened.
+ - More and more major businesses and industries are being run on software and delivered as online services – from movies to agriculture to national defense.
+ - I don’t think objectively we are in a tech bubble when tech stocks are at a 30 year low.
+ - The gulf between what the press and many regular people believe Bitcoin is, and what a growing critical mass of technologists believe Bitcoin is, remains enormous.
+ - Today’s leading real-world retailer, Wal-Mart, uses software to power its logistics and distribution capabilities, which it has used to crush its competition.
+ - I love what the Valley does. I love company building. I love startups. I love technology companies. I love new technology. I love this process of invention. Being able to participate in that as a founder and a product creator, or as an investor or a board member, I just find that hugely satisfying.
+ - At a certain point in your career – I mean, part of the answer is a personal answer, which is that at a certain point in your career, it becomes more satisfying to help entrepreneurs than to be one.
+ - The 2 hardest things you’ll have to do when running a company are recruiting and talking people out of leaving.
+ - Only two people have been on the cover of Time Magazine in bare feet. I’m one, the other is Gandhi.
+ - It was a joke, okay? If we thought it would actually be used, we wouldn’t have written it!
+ - No one should expect building a new high-growth, software-powered company in an established industry to be easy. It’s brutally difficult.
+ - Ten to 20 years out, driving your car will be viewed as equivalently immoral as smoking cigarettes around other people is today.
+ - There will be certain points of time when everything collides together and reaches critical mass around a new concept or a new thing that ends up being hugely relevant to a high percentage of people or businesses. But it’s really really hard to predict those. I don’t believe anyone can.
+ - These days, you have the option of staying home, blogging in your underwear, and not having your words mangled. I think I like the direction things are headed.
+ - Almost every dot-com idea from 1999 that failed will succeed.
+ - I hope to someday live in a world where there are lots more Silicon Valleys.
+ - In 2000, when my partner Ben Horowitz was CEO of the first cloud computing company, Loudcloud, the cost of a customer running a basic Internet application was approximately $150,000 a month.
+ - With lower start-up costs and a vastly expanded market for online services, the result is a global economy that for the first time will be fully digitally wired-the dream of every cyber-visionary of the early 1990s, finally delivered, a full generation later.
+ - I would say the consumer Internet companies – in a lot of ways, if you go inside the consumer Internet companies and you see how they run, it’s how all their businesses are going to run.
+ - China is very entrepreneurial but has no rule of law. Europe has rule of law but isn’t entrepreneurial. Combine rule of law, entrepreneurialism and a generally pro-business policy, and you have Apple.
+ - If I want to get work done, that’s usually about 3 in the morning.
+ - An awful lot of successful technology companies ended up being in a slightly different market than they started out in. Microsoft started with programming tools, but came out with an operating system. Oracle started doing contracts for the CIA. AOL started out as an online video gaming network.
+ - In the next 10 years, I expect at least five billion people worldwide to own smartphones, giving every individual with such a phone instant access to the full power of the Internet, every moment of every day.
+ - When I talk to entrepreneurs today, I feel like the grandfather who was in the Civil War.
+ - Working for a big company is, I believe, much risker than it looks.
+ - I’ve been a customer of the top venture capital firms, so I know exactly what they do and don’t do.
+ - Over the next 10 years, I expect many more industries to be disrupted by software, with new world-beating Silicon Valley companies doing the disruption in more cases than not.
+ - People tend to think of the web as a way to get information or perhaps as a place to carry out e-commerce. But really, the web is about accessing applications.
+ - If there’s been a crisis in a market, you don’t tend to have a new crisis in that market until the people who went through the last crisis aren’t in the system anymore.
+ - Practically everyone is going to have a general purpose computer in their pocket, it’s so easy to underestimate that, that has got to be the really, really big one.
+ - I know where I’m putting my money.
+ - The great companies get built by their founders.
+ - There’s no such thing as the middle class. It’s absolutely vanishing.
+ - There’s a new generation of entrepreneurs in the Valley who have arrived since 2000, after the dotcom bust. They’re completely fearless.
+ - If we’re in a bubble, it’s the weirdest bubble I’ve ever seen, where everybody hates everything.
+ - The advantage of the consumer businesses is they tend to be much broader-based, much larger number of customers, that tend to over time be a lot more predictable. The advantage of the enterprise companies is they are not as subject to consumer trend, fad, behavior.
+ - When you’re dealing with machines or anything that you build, it either works or it doesn’t, no matter how good of a salesman you are.
+ - Whatever you’re selling, storage or networking or security, you’re going head to head with the incumbent players.
+ - If the Net becomes the center of the universe, which is what seems to be happening, then the dizzying array of machines that will be plugged into it will virtually guarantee that the specifics of which chip and which operating system you’ve got will be irrelevant.
+ - I think 2012 is the year when consumers all around the world start saying no to feature phones and start saying yes to smartphones.
+
+98 quotes

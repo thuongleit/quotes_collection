@@ -1,0 +1,62 @@
+ - My God is better than your God.
+ - I wasn’t part of the Taboo crowd the same way I was part of the New Romantics. I suppose I was seen more as an elder statesman because I had been around the London club scene for so many years. To the Taboo crowd I was really seen as a pop star, someone famous.
+ - Separation penetrates the disappearing person like a pigment and steeps him in gentle radiance.
+ - Karma chameleon: we come and go, we come and go...
+ - The most significant New York club for me was Paradise Garage, where they played house music. This was around ’84 or ’85.
+ - I am what I am. There’s nothing I can do about it.
+ - When you’re younger, you think you’re in competition with everyone. You think everyone’s success is a threat to you, and this is a thing you grow out of. You get older and you suddenly realize the only person you’re in competition with is yourself.
+ - Madonna is a living, breathing cash register.
+ - I wear makeup and dress this way because I think it makes me look better. I am not doing it to get people to stare at me. If I wanted to do that I could just put a pot on my head, wear a wedding dress, and run screaming down the street.
+ - I try to exist in a world where there is freedom of opinion, where you’re allowed to make jokes. I don’t want to live in some PC world where no-one’s allowed to say anything.
+ - Voting for New Labour is like helping an old lady across the road while screaming ‘Get a move on!’ Even the Tories, who you could once rely on to be completely heartless are pretending to care.
+ - Leigh Bowery created outfits that made him look deformed, which was very brave. I believe this was the main thing that gave Leigh his edge. His designs were often breath-taking, but it was the way he used his body that was so utterly new and refreshing.
+ - Comparing Madonna with Marilyn Monroe is like comparing Raquel Welch with the back of a bus.
+ - What’s really sad is that a lot of very talented people are being forced to do things that are very embarrassing and I don’t intend to be one of them.
+ - For me the most interesting thing about Leigh Bowery was the way he used his body as a style statement. He was a big guy, but, because he was tall and had long legs, he looked in proportion – even sexy – -despite being overweight by conventional -standards.
+ - Drugs became an obsession, like Culture Club had been, like religion later became although I’m through with that now.
+ - Every freak has a mother. When I met Marilyn Manson I was struck by how nice he was. People are rarely as weird as you anticipate. Except for Courtney Love-who reminded me of that mad snake in The Jungle Book.
+ - My mother and father were fantastic, very active. I find it difficult to say this, but I’m quite a loving person and I’ve always been loving to my friends. In the long run, that pays off. I’m very interested in other people, and if you are, they’re interested in you.
+ - The most political thing you can do is be yourself.
+ - I was really good friends with Matthew Ashman, the guitarist in Bow Wow Wow. He died, unfortunately. He was one of my best friends during my sort of punk period.
+ - I don’t get all this Speedo stuff actually, I mean, whatever happened to the feather boa?
+ - I can do anything. In GQ, I appeared as a man.
+ - I’m very uncomfortable with the idea of vaginas. They bother me in the way that spiders bother some people.
+ - I’m not responsible enough to have a dog – or a child.
+ - The ultimate goal is to be more satisfied. I really don’t believe you get wiser because you get older. It’s a choice, perhaps not to take some things so seriously.
+ - The band never actually split up – we just stopped speaking to each other and went our own separate ways.
+ - Leigh Bowery was actually quoted as saying, “Flesh is my most favorite fabric.” I’ve seen many a freak make a scene and go, but Leigh was a special kind of exhibitionist because he was dedicated and saw it as an art form.
+ - She’s probably in denial that she’s a great big ball of insecurity and I’m quite well aware that I am one.
+ - You find out so many interesting things when you’re not on drugs.
+ - I just go in my back garden. It’s the only place where people don’t come and bother you.
+ - When I first went to New York, I didn’t really go out to clubs. It was the height of Culture Club so I didn’t really have a social life. It was only after I had been to New York a few times that I started going out.
+ - Very few people can truly divorce themselves from what they feel emotionally and sexually.
+ - When Culture Club broke up, I hadn’t been going out a lot because we’d been working all the time, so I suddenly had this period of leisure. And it was just around the time that the whole acid house thing kicked off in London.
+ - After half an hour the drug hit me like a sensuous tidal wave. I turned into a tactile temptress and wanted to stroke the whole world. It gave me untold confidence.
+ - The best thing you can do is work on your personality because we’re all gonna get ugly.
+ - I’ve had to write in a different way because I’m not in a bad place and I’m not heartbroken, so there’s no one I want revenge on.
+ - I’m being honest, I say what I think.
+ - A lot of what I’ve been learning in the last two years is due to therapy – about my sexuality, why things go wrong, why relationships haven’t worked. It isn’t anything to do with anybody else; it’s to do with me.
+ - I felt that making records in a traditional way – putting them out in the same way, wasting loads of money – was just a pointless exercise.
+ - Beethoven had a great look. It was very much about the drama of appearance.
+ - I think drugs played a big role in the Taboo scene. People were taking copious amounts of ecstasy, which had filtered over from New York, and at a certain point you were more likely to spend most of the night in the toilets at the club.
+ - People say things about me all the time and I get over it. I’ve had some appalling things told about me.
+ - The Taboo crowd was certainly less precious. They were happy to end up in a pile of vomit and booze at the end of the night. It was antifashion, in a sense. They were just as obsessive as the New -Romantics but they acted like they didn’t care.
+ - I also tried to avoid doing obvious dance records.
+ - Go home. Let me do my community service.
+ - Jail’s like school but you can’t leave.
+ - I suppose all of those New Romantic clubs were quite up their own asses in a way. Well, Taboo was up its own ass in a different way, but not in terms of rules.
+ - In writing the autobiography, I can really chuckle when I look at the songs. I was acting out the part. I saw myself as a victim.
+ - A difficult crowd will always test your true ability.
+ - I suppose there is a lot of toughness in me.
+ - I think being individual in the show business is what gives you life and longevity.
+ - A lot of people felt I was getting work because I was Boy George. My response at the time was that there’s a lot of DJs making records, they’re not all making good records, but they have the right to do that.
+ - As a kid, I would’ve loved to get a tweet from David Bowie or Joan Rivers or Tom Cruise. It’s great that you can communicate with people and it’s instant.
+ - I’d got very successful, everyone knew who I was, but I felt very empty.
+ - Warren Street was at the high end of the New Romantic scene. They were mostly college art students and people who knew top designers.
+ - I always feel that my whole life is representing the LGBT community. It’s kind of what I do all the time.
+ - I’m always being inspired .
+ - The New Romantic scene was so tiny. Although it got lots of mileage in the media, it was a really small club with only a core group of people. As it got more popular, kids started to come from the suburbs all dressed up, but it -really wasn’t as big as it looked.
+ - I think people could be a bit friendlier. The only real contact you have with people is when they’re annoyed if you’ve had a party – you know, it’s been a bit too noisy for them or something.
+ - I knew style and content went hand in hand.
+
+60 quotes

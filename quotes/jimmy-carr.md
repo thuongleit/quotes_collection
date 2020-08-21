@@ -1,0 +1,70 @@
+ - If only Africa had more mosquito nets then every year we could save millions of mosquitoes from dying needlessly of aids.
+ - Swimming is good for you, especially if you’re drowning. Not only do you get a cardiovascular workout but also you don’t die.
+ - Put Smarties tubes on cats legs, make them walk like a robot.
+ - If we’re all God’s children, what’s so special about Jesus?
+ - When someone close to you dies, move seats.
+ - When I was a kid I had an imaginary friend and I used to think that he went everywhere with me, and that I could talk to him and that he could hear me, and that he could grant me wishes and stuff. And then I grew up, and I stopped going to church.
+ - My father always used to say, “What doesn’t kill you, makes you stronger,” – ’til the accident.
+ - Eighteen years since the Chernobyl disaster. Is it just me surprized? Still no superheroes!
+ - I saw a charity appeal in the Guardian the other day, and it read “Little Zuki has to walk 13 miles a day just to fetch water”. And I couldn’t help thinking, she should move.
+ - Cats have nine lives. Makes them ideal for experimentation.
+ - British scientists have demonstrated that cigarettes can harm your children. Fair enough. Use an ashtray!
+ - My dad’s dying wish was to have his family around him. I can’t help thinking he would have been better off with more oxygen.
+ - I’m not being condescending, I’m too busy thinking about far more important things you wouldn’t understand.
+ - See no evil, hear no evil, speak no evil. Rohypnol.
+ - My girlfriend said she wanted me to tease her, so I said “Alright, fatty.”
+ - Let’s face it, the gene pool needs a little chlorine.
+ - I’m obsessed with TV. How wrong our parents were when they said we should only watch an hour a day. Stop wasting your time reading books.
+ - Like most of the world’s population I’m into coffee, my perfect weekend would start with a pint of coffee.
+ - I think the idea that death is not the end, that your dog’s just gone to live on the farm, is limiting. Thoughts like that prevent you from making the most of the time that you have.
+ - I was in love with the idea of being in love with a woman way before I was actually in love with one.
+ - When you eat a lot of spicy food, you can lose your taste. When I was in India last summer, I was listening to a lot of Michael Bolton.
+ - I, of course, don’t have an accent. This is just how things sound when they are pronounced properly.
+ - Ten years after the Chernobyl accident, and am I the only one that’s disappointed? Still no superheros.
+ - I said to my girlfriend, you shouldn’t eat before you swim. She said, “why not”? I said, you look fat.
+ - How many airports are there in the world?
+ - In Pizza Express you can get garlic bread with cheese and tomato. Now correct me if I’m wrong, but that’s a pizza.
+ - Say what you want about the deaf...
+ - A big girl once came up to me after a show and said “I think you’re fatist.” I said “No, no. I think you’re fattest.”
+ - I have no problems with buying tampons. I am a fairly modern man. But apparently they’re not a “proper” present. “Happy birthday, mum!”
+ - The reason old man use Viagra is not that they are impotent. It’s that old women are so very ugly.
+ - Viagra has instructions: ‘Keep away from children’ – what kind of man do you think I am?
+ - I didn’t plan to be the rude middle-class comedian. You write a certain type of joke that you find funny, and mine happen to be often rude. Yes, it’s juvenile, but that’s me.
+ - I am trying to release endorphins here. I am not preaching to you – I am trying to make you laugh.
+ - I was out with a friend and he came over with a pair of girls. I said to him “They’re like buses.” He said “What? Because you wait for ages and then two come along at once.” I said “No, they are like buses!”
+ - A surprising amount of my jokes sound very implausible but are true.
+ - I do realise that when I laugh, it sounds like a seal is being molested.
+ - Once I was doing a sponsored walk. In the end I managed to raise so much money, I could afford a taxi.
+ - There’s things that I couldn’t joke about but other people could.
+ - I had a survey done on my house. 8 out of 10 people said they really rather liked it.
+ - I used to buy lottery tickets every week until I realised you could watch it on TV for nothing.
+ - I worry about my nan. If she’s alone and falls, does she make a noise? I’m joking, she’s dead.
+ - I’ve got a friend whose nickname is “Shagger”. You might think that’s pretty cool. She doesn’t like it.
+ - I’m not worried about the Third World War. That’s the Third World’s Problem.
+ - Staying in luxury hotels still gives me a kick, especially Oulton Hall in Yorkshire. I’d stay in a hotel for the breakfast and room service.
+ - I don’t think it’s any coincidence that I lost my religious faith and ‘manned up’ in the same year. I was described somewhere as a lapsed Catholic, which is funny because I’m not going back! I want to achieve things rather than live life in an animalistic way.
+ - It had to be hammered home quite a bit because I didn’t see any humour in my life at all.
+ - It is such a social thing, laughing. Two thousand people in a room laughing is such a great buzz and they tend to laugh much more in a group.
+ - I think being successful in comedy is being funny and making jokes – anything beyond that is the icing on the cake.
+ - I think they got it wrong with Saddam Hussein. They thought he had the A-Bomb. Instead he had a bomb.
+ - I think that comedians, more than any other type of celebrity, have to keep their humour and keep their feet on the ground. If they start taking themselves too seriously, they’re heading for a fall.
+ - After a gig I always head back to the hotel, remembering granny’s words of wisdom. I cancel the late-night pizza and watch the Jonathan Ross show instead.
+ - I love those people who do story-telling and who ramble on, but I don’t do that, I tell jokes – the sort of jokes that anyone really could tell in the pub.
+ - All comedians are a bit attention-seeking and I’m no different. Anyone with the audacity to want to be listened to for an hour and a half must be.
+ - You go, well you can’t joke about race. Well if you’re from a different race and that’s your experience of the world and you want to talk about that, then fine. Or you can’t talk about disability, but disabled comics can talk about that.
+ - Yes, I have this crazy honk of a laugh.
+ - As soon as I did my first five minutes of stand-up I knew that I would rather be a failure at comedy than a success in marketing.
+ - You never want to be the grumpy guy, although I do have quite a grumpy face.
+ - It’s so clear cut with a comedian – you have that reflex action, whereby you laugh or you don’t. And so you either love us or you simply cannot see why people are laughing.
+ - But what’s true about comedians is that we’ve all got a huge hole in our personality. In a room of 3,000 people, we’re the one person facing in the opposite direction – yet we have this overwhelming desire to be liked.
+ - Even if you’re doing the national insurance awards, there’s still that excitement when you wonder who is going to win, er, best premiums.
+ - The bigger the audience, the better with comedy.
+ - Women were quite terrifying until I was older. I think that’s partly down to confidence.
+ - If I’m at home for the weekend – and that is almost never – I tend to get twitchy at about eight o’clock in the evening because my body clock is timed to go on stage. I don’t know what to do with myself.
+ - More people are going out to comedy shows than they were before.
+ - I don’t see myself as offending people.
+ - I pay what I have to and not a penny more.
+ - I don’t think young people should have bottoms, they’re too young for that sort of thing.
+ - I go around the country and do a simple gag like, ‘The property ladder is now a snake’ and get a real laugh.
+
+68 quotes

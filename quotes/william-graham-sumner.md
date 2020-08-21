@@ -1,0 +1,67 @@
+ - We shall find that every effort to realize equality necessitates a sacrifice of liberty.
+ - A wiser rule would be to make up your mind soberly what you want, peace or war, and then to get ready for what you want; for what we prepare for is what we shall get.
+ - There is no such thing on this earth as something for nothing.
+ - It is the greatest folly of which a man can be capable to sit down with a slate and pencil to plan out a new social world.
+ - Who is the Forgotten Man? He is the clean, quiet, virtuous, domestic citizen, who pays his debts and his taxes and is never heard of out of his little circle.
+ - History is only a tiresome repetition of one story. Persons and classes have sought to win possession of the power of the State in order to live luxuriously out of the earnings of others.
+ - The truth is that cupidity, selfishness, envy, malice, lust, vindictiveness, are constant vices of human nature.
+ - There is no boon in nature. All the blessings we enjoy are the fruits of labor, toil, self-denial, and study.
+ - A fool is wiser in his own house than a sage is in another man’s house.
+ - We live in a war of two antagonistic ethical philosophies, the ethical policy taught in the books and schools, and the success policy.
+ - A good father believes that he does wisely to encourage enterprise, productive skill, prudent self-denial, and judicious expenditure on the part of his son.
+ - The men who start out with the notion that the world owes them a living generally find that the world pays its ‘debt’ in the penitentiary or the poor house.
+ - Here we are, then, once more back at the old doctrine – Laissez faire. Let us translate it into blunt English, and it will read, Mind your own business. It is nothing but the doctrine of liberty. Let every man be happy in his own way.
+ - What is the real relation between happiness and goodness? It is only within a few generations that men have found courage to say that there is none.
+ - The aggregation of large fortunes is not at all a thing to be regretted.
+ - If you want a war, nourish a doctrine. Doctrines are the most frightful tyrants to which men are ever subject, because doctrines get inside a man’s reason and betray him against himself. Civilized men have done their fiercest fighting for doctrines.
+ - Great captains of industry are as rare as great generals.
+ - If you want war, nourish a doctrine. Doctrines are the most frightful tyrants to which men ever are subject...
+ - Hunger, love, vanity, and fear. There are four great motives of human action.
+ - A drunkard in the gutter is just where he ought to be, according to the fitness and tendency of things. Nature has set upon him the process of decline and dissolution by which she removes things which have survived their usefulness.
+ - Civil liberty is the status of the man who is guaranteed by law and civil institutions the exclusive employment of all his own powers for his own welfare.
+ - It is remarkable that jealousy of individual property in land often goes along with very exaggerated doctrines of tribal or national property in land.
+ - I have lived through the best years of this country’s history. The next generations are going to see war and social calamities. I am glad I don’t have to live on into them.
+ - Labor organizations are formed, not to employ combined effort for a common object, but to indulge in declamation and denunciation, and especially to furnish an easy living to some officers who do not want to work.
+ - All history is only one long story to this effect: men have struggled for power over their fellow-men in order that they might win the joys of earth at the expense of others and might shift the burdens of life from their own shoulders upon those of others.
+ - There ought to be no laws to guarantee property against the folly of its possessors.
+ - The lobby is the army of the plutocracy.
+ - Any one who believes that any great enterprise of an industrial character can be started without labor must have little experience of life.
+ - Furthermore, the unearned increment from land appears in the United States as a gain to the first comers, who have here laid the foundations of a new State.
+ - Then, again, the ability to organize and conduct industrial, commercial, or financial enterprises is rare; the great captains of industry are as rare as great generals.
+ - If America becomes militant, it will be because its people choose to become such; it will be because they think that war and warlikeness are desirable.
+ - The taxing power is especially something after which the reformer’s finger always itches.
+ - Yet we are constantly annoyed, and the legislatures are kept constantly busy, by the people who have made up their minds that it is wise and conducive to happiness to live in a certain way, and who want to compel everybody else to live in their way.
+ - The criminal law needs to be improved to meet new forms of crime, but to denounce financial devices which are useful and legitimate because use is made of them for fraud, is ridiculous and unworthy of the age in which we live.
+ - The invectives against capital in the hands of those who have it are double-faced, and when turned about are nothing but demands for capital in the hands of those who have it not, in order that they may do with it just what those who have it now are doing with it.
+ - He who would be well taken care of must take care of himself.
+ - If we put together all that we have learned from anthropology and ethnography about primitive men and primitive society, we perceive that the first task of life is to live. Men begin with acts, not with thoughts.
+ - The great hinderance to the development of this continent has lain in the lack of capital.
+ - It is the tendency of the social burdens to crush out the middle class, and to force society into an organization of only two classes, one at each social extreme.
+ - The real danger of democracy is, that the classes which have the power under it will assume all the rights and reject all the duties-that is, that they will use the political power to plunder those-who-have.
+ - The State cannot get a cent for any man without taking it from some other man, and this latter must be a man who has produced and saved it. This latter is the Forgotten Man.
+ - It is not the function of the State to make men happy. They must make themselves happy in their own way, and at their own risk. The functions of the State lie entirely in the conditions or chances under which the pursuit of happiness is carried on.
+ - What man ever blamed himself for his misfortune?
+ - It would be hard to find a single instance of a direct assault by positive effort upon poverty, vice, and misery which has not either failed or, if it has not failed directly and entirely, has not entailed other evils greater than the one which it removed.
+ - Society needs first of all to be free from meddlersthat is, to be let alone.
+ - It is a beneficent incident of the ownership of land that a pioneer who reduces it to use, and helps to lay the foundations of a new State, finds a profit in the increasing value of land as the new State grows up.
+ - History is only a tiresome repetition of one story.
+ - But we have inherited a vast number of social ills which never came from Nature. They are the complicated products of all the tinkering, muddling, and blundering of social doctors in the past.
+ - If you allow a political catchword to go on and grow, you will awaken some day to find it standing over you, arbiter of your destiny, against which you are powerless.
+ - One thing must be granted to the rich: they are goodnatured.
+ - I never have known a man of ordinary common-sense who did not urge upon his sons, from earliest childhood, doctrines of economy and the practice of accumulation.
+ - Undoubtedly there are, in connection with each of these things, cases of fraud, swindling, and other financial crimes; that is to say, the greed and selfishness of men are perpetual.
+ - We throw all our attention on the utterly idle question whether A has done as well as B, when the only question is whether A has done as well as he could.
+ - It used to be believed that the parent had unlimited claims on the child and rights over him. In a truer view of the matter, we are coming to see that the rights are on the side of the child and the duties on the side of the parent.
+ - Moreover, there is an unearned increment on capital and on labor, due to the presence, around the capitalist and the laborer, of a great, industrious, and prosperous society.
+ - The State, it cannot be too often repeated, does nothing and can give nothing which it does not take from somebody. The Forgotten Man works and votes -generally he prays-but his chief business in life is to pay.
+ - If I want to be free from any other man’s dictation, I must understand that I can have no other man under my control.
+ - It is often said that the earth belongs to the race, as if raw land was a boon, or gift.
+ - Nine-tenths of our measures for preventing vice are really protective towards it, because they ward off the penalty.
+ - The great force for forging a society into a solid mass has always been war.
+ - Men never cling to their dreams with such tenacity as at the moment when they are losing faith in them, and know it, but do not dare yet to confess it to themselves.
+ - In England pensions used to be given to aristocrats, because aristocrats had political influence, in order to corrupt them. Here pensions are given to the great democratic mass, because they have political power, to corrupt them.
+ - What we prepare for is what we shall get.
+ - Darwin was as much of an emancipator as was Lincoln.
+ - There is no device whatever to be invented for securing happiness without industry, economy, and virtue.
+
+65 quotes

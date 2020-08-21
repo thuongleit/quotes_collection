@@ -1,0 +1,132 @@
+ - My life is just a never-ending work in progress.
+ - Work hard, take care of yourself, and you’ll be just fine.
+ - When you’re feeling down, sad, lonely, negative, you don’t want to take care of yourself – and the weight problem and the diabetic problem and the heart attack and stroke problems and high cholesterol set in.
+ - If you don’t love your mother you go straight to hell.
+ - I have loved deeply. I have lost intensely. I will never love again. I get that love by people who care for me.
+ - If I don’t take care of myself, if I don’t feel good about myself, how can I help others?
+ - When I go to bed, I ask God to give me one more day tomorrow. When I get it, I’m excited and grateful.
+ - My nickname is Dickie Jukebox.
+ - When you gain weight, for every pound that you gain, it adds four pounds of stress on your knees. So if you gain five pounds, you’ve got 20 pounds of stress on your knees. So that’s why I’m extremely careful with my portions and my workout, because I can’t be overweight.
+ - Singing is good for the soul. It’s the first thing I do every morning, after my blessings and my grace. I put music on and I sing.
+ - I have two rules for living in the world. I never say anything negative about anyone, because that won’t get you anywhere. And two, if people confront me with certain questions, if they are not right, I will not answer them.
+ - Everyone in this world is somehow connected. So why not just be nice to everybody.
+ - Ninety percent of people who lose weight gain it back. It’s very sad.
+ - I could be hit by a Sara Lee truck tomorrow. Which is not a bad way of going: ‘Richard Simmons Found in a Freeway in Pound Cake and Fudge, With a Smile on His Face.’ Let’s face it. We don’t know anything.
+ - How do you get motivated? By knowing your worth. Americans do not know how worthy they are. You deserve to be healthy, but a lot of times, people have, as childs been told – as a children been told that they’re no good, that they’re never going to be anything else.
+ - I never say anything negative about anyone, because that won’t get you anywhere.
+ - Everyone has a story that makes me stronger. I know that the work I do is important and I enjoy it, but it is nice to hear the feedback of what we do to inspire others.
+ - For my workout, I’m up at 4am. I say my prayers, count my blessings, and I work out right away. I just get it done. One day I’ll tone – chest, back and shoulders – and the next day it’s biceps and triceps. I also do 45 minutes of cardio every day. I do that before I even leave the house.
+ - Energy is that amazing feeling that comes to life inside of you when you’re happy and believe in yourself.
+ - Sometimes it’s just ‘Oh my God, I love the taste of fried oysters on French bread with mayonnaise and an order of French fries.’ I’m not going to lie to you – I deal with that temptation every single day, many times.
+ - When the king gets depressed, he doesn’t call for his wife. He doesn’t call for the cook. He calls for the court jester.
+ - I don’t have to teach anymore, I don’t have to work anymore, God has been really good to me.
+ - That’s what the majority of people in the world do, they walk among the ruins of their life. Things that didn’t work out, relationships that went sour, jobs that disappeared. All they can think about is their ruins, and when you focus on that you can’t build a new you.
+ - If your oxygen mask drops down, it’s time to take a breather!
+ - I have 40 pounds to lose. It is not the fault of the fast food people, and anyone who’s trying to sue the fast food places needs a therapist, not an attorney.
+ - I am kinder to my body. I don’t try to prove anything to myself or others. I keep thinking about the need to go slower, gentler and maintain a sense of humor about it all.
+ - I get energy from meditation practice and from eating healthy fresh food, only one cup of espresso in the morning, and not drinking too much.
+ - My parents always told me to be myself. I was always funny and silly as a kid. And I would always make them laugh. And they always told me to dream big and follow those dreams.
+ - Puberty for me was graduating from Thousand Island salad dressing to Caesar salads. It was like going from hot dogs and hamburgers to beef stroganoff, or from ice cream in a cone to creme brulee.
+ - I just want people to get off the back burner of their life and start to take better care of themselves and their children.
+ - For many years, my formula has been to love yourself, move your body and to watch portion size. But the No. 1 thing is to love and value yourself, no matter what you’ve been through.
+ - After I talk to so many people who are so unhappy about their weight and so depressed that they don’t see any rainbows in their life, after I talk to about 30 of those, then I try to walk away and pet my dog, just do something that makes me happy.
+ - No tricks, gimmicks, special pills, special potions, special equipment. All it takes is desire and will.
+ - I’m the clown you take out of the box and wind up when you need a good laugh. And then, when you’re done with me, I go back in my box.
+ - You can say anything you want to say about me. But don’t you dare address overweight people with terrible names and ugly remarks. That is what upsets me.
+ - Take a moment every day to find peace. Pull over to the side of the road, turn off the radio, and find peace.
+ - People need the court jester, so I keep that smile on and keep going out there to do what I do.
+ - Stop trying to find something in food that will make you feel better.
+ - You shouldn’t make fun of people who have issues.
+ - You know, if your parents didn’t have you, they’d be living in a nicer home, driving a Mercedes-Benz, with money in the bank and a boat. But noooooo. They had to have you! You’ve got to give back!
+ - There is no such thing as sleep deprivation, there is only caffeine deficiency.
+ - I consider myself a court jester – motivator.
+ - There is no magic milkshake or workout machine. I think the real machine is your body. I do love treadmills, ellipticals, stationary bikes, free weights.
+ - I do consider myself a clown and a court jester, and I do love to make people laugh, whether they’re laughing with me or at me.
+ - Our children are obese, either have or being threatened by diabetes, high blood pressure, high cholesterol, and not socially adjusting properly to others because of a lack of fitness.
+ - Most workouts are way too aggressive. Thousands of lunges wear out the body.
+ - Being successful is something that’s sometimes hard to deal with.
+ - I get tired of negativity in our country. I get tired of people who only want to know dirt. I get tired of people who don’t believe in themselves.
+ - I’ve always practiced this: Love yourself. Move your body. Watch your portions.
+ - Everyone’s under pressure and you just have to learn how to deal with it. And I deal with it through prayer and staying busy.
+ - I just strive to do better. Every time I meet somebody, I ask myself, “How can I help this person?”
+ - If you want to get the body you’ve always dreamed of, you have to earn it. You can’t buy it, you can’t rent it. You have to earn it. My formula has always been love yourself, move your body, watch your portions. And it sounds so easy, but it is not.
+ - Therell always be some weird thing about eating four grapes before you go to bed, or drinking a special tea, or buying this little bean from El Salvador.
+ - All of a sudden, I’m thinking that if I keep eating the way I’m eating, I’m not going to live long and I’m going to die. Having those thoughts as a young person can be very haunting.
+ - I never sold any of those “lose 10 pounds every week” scams. I’ve not changed my tune in all these years. I’ve seen everything pass by me, and I’ve been offered millions of dollars to put my name on products that were just lies. And I never did it.
+ - I started my own class for people like me who can’t find any place else to go.
+ - My nickname is Dickie Jukebox. I own thousands and thousands and thousands of songs.
+ - Every day after school, for three hours a day, I would sell those pralines on the street corner. I was just eight years old. I’d bring the money home to my parents and say, “This is just the beginning.”
+ - I’m a real paradox. Because I’m a very serious person, and I take my work very seriously. But I wrap it up in a court jester and a clown and make people laugh and make them feel good about themselves.
+ - I don’t have a lot to offer one person. I have a lot to offer to a lot of people.
+ - People treat me like family, ’cause I’ve always treated them like family.
+ - I do not want any child in America to have my childhood because it was taken away from me because I just wasn’t good enough; well I am good enough now.
+ - I don’t talk about my personal life, and I don’t talk about death.
+ - I took desperate measures to lose weight and did terrible things to myself. I went from diet pills to thirty laxatives a day to throwing up.
+ - I’m not going to be happy until every child in every school is physically active.
+ - Truthfully, everyone knows how to eat right. They know the difference between oatmeal and a jelly cream doughnut. They know how to walk. Everyone has this in their brain. When I started, we didn’t have all this knowledge.
+ - If anyone’s depressed for any reason, whether a relationship has fallen apart or they’re having money problems, wearing feathered wings and a tutu takes you into a whole other world. A whole new woooooorld, a world of bright and shining stars!
+ - But if you pick up every other magazine, it is the peanut butter diet, or the cabbage soup diet, and then you go to the radio and you hear that you can drink some solution and you will lose weight overnight. It just does not work that way!
+ - There’s a list of foods I can’t have in the house. Peanut butter, can’t have that in the house. Potato chips, can’t have that in the house. Random little small mini candy bars, don’t even think about it. I just have to watch everything. I have to stay between 1500 and 1600 calories a day. That’s it.
+ - I think at the age of 50, everyone should write their own autobiography.
+ - If you want to get the body you’ve always dreamed of, you have to earn it.
+ - People spend thousands in therapy digging and digging in the past. When you dig and dig, you find relics. Try to forgive yourself and get back on that ride.
+ - I don’t know about you, but every time some joker points me out as I walk through an airport wearing extra-small Dolfin shorts, a tank top and leg warmers, I get a little upset.
+ - When I go to bed at night, I ask God to give me another day; I ask him to keep me strong and make me a good teacher and to keep spreading this right word.
+ - I spent my childhood eating. The only exercise I got was trying to twist off the cap of a jar of mayonnaise.
+ - People are still grasping for the miracle, and unfortunately, there are no miracles, if you do not exercise for a year, and let your body remain dormant, then you will gain weight.
+ - Every day you eat is every day you have to work out.
+ - I have rules about eating, exercising and rules about staying positive. And these rules are sacred to me.
+ - I’ve been going to shopping malls since I was on General Hospital.
+ - A kid who moves is a kid who learns.
+ - Everyone in Senate is a hurdle, but everyone in there has children. Everyone in there has grandchildren. No one wants to see our kids continue to gain weight, have high blood pressure high cholesterol, diabetes, and depression.
+ - When I was growing up, I did not exercise at all. I was raised in the French Quarter in New Orleans. If I saw someone running, I would call the police because I thought they stole something on Royal Street.
+ - I sort of think of myself as part priest, part clown.
+ - Right now many schools have no recess. Most schools have no PE.
+ - Well mine is not gimmicky – it is the 6 food groups that God made, and exercising every day. Trying to think positively.
+ - My way is the sensitive, emotional way, because that’s who I am. A day doesn’t go by where I don’t sit and cry, listening to the stories. I try to be the clown and court jester and make people laugh.
+ - If I have to die, I want to combust in the middle of one of my classes.
+ - Its an eerie thing. My childhood is being washed away.
+ - Back in the 70s and 80s, women felt the discrimination of being overweight. And now 35% of the letters I receive are from men.
+ - I’ve never swayed from who I am. People have seen me on television, and they know what I’m like and they know what I do and they respect me for what I do. They know that I’m huggy and kissy.
+ - Every morning when I get up, I ask God what he wants me to do, ask him to lead me to the right people to help them.
+ - Some people like to look at pictures of themselves before they lost weight. I don’t particularly care for that. Whenever I was overweight, it was a very sad time in my life.
+ - When I talk to kids who are overweight, I see my face on their bodies.
+ - People have been frying foods since Jesus was on this planet, and there is always going to be greasy, fried, salty, sugary food. It is up to the individual to walk in and say, ‘I don’t want those fries today.’
+ - No one can make fun of overweight people in front of me!
+ - We overweight people, we say terrible things to ourselves. Oh, you wouldn’t believe it. ‘You fat pig. How can you do this? You’re a disgusting jerk.’ And that gets you nowhere. That gets you right back into a bowl of pasta fregula.
+ - I plan for the future, but the only day I really worry about is the day I’m living right now.
+ - I have been up to my head just with calling people, I call about 50 to 100 people a day.
+ - Comedy, not screaming at someone, can make someone lift their legs higher. There is a way to do a push-up and a sit-up, and it doesn’t have to be so complicated. Everyone is putting a difficult twist to it and making you do way too much.
+ - Thats what we need going into the millennium. We need some positive, happy stuff.
+ - Everything I did with my life I did so that I could give my parents everything they didn’t have because of me.
+ - I just love what I do, and I’m a teacher more than anything.
+ - I suffered from eating disorders when I was just a kid. I did not like me or the way I looked. But back then, you could not tell anyone.
+ - We’re all in trouble, and we all need to sort of pick up the pieces and start to exercise more and really be careful with the food.
+ - Even though my work is whimsical. I have a very serious job. I cry more than I laugh.
+ - This is my theater. This is where I can sing and act out a play and do sit-ups at the same time.
+ - Count your blessings. You are one of a kind. There’s no one in the world like you. You are amazing.
+ - I was born with a crippled leg. I wore a corrective shoes since I was three years old and I still wear them.
+ - I really created my career out of my own compulsion. Because I knew if I owned an exercise studio and I had to teach my classes there, I wasn’t going to gain my weight back.
+ - Miley Cyrus, like all of us, needs to be loved. We all come from complicated parents I understand her, and I love her, and I think things will be different with her. But you know, in the music business, sometimes you have to shock a little.
+ - One day I may be meeting you and hearing how you’ve changed your life by saying, “Farewell to Fat”.
+ - The real pride, the real present, is your health and your longevity.
+ - If people confront me with certain questions, if they are not right, I will not answer them.
+ - I hope in my lifetime we can all continue to laugh at ourselves and not put down anyone for what they weigh.
+ - When we’re binging, we do not think about death. We just think about how good it tastes.
+ - I’m like a stuffed toy. You’ve never met me, but if you did, you’d just want to take me home and put me in your child’s room.
+ - After all the throwing up, I would starve myself. Which meant eating lettuce and water for two and a half months. I almost lost my life.
+ - If I’ve got the right songs, I can weave a spell over everyone.
+ - The real pride, the real present, is your health and your longevity. My whole career, I have never done anything where competition was involved with weight loss.
+ - I’ve been offered big money to promote machines. And high-protein diets, when that was really popular. There was always some new powder or diet plan that somebody wanted to put my name on.
+ - My father offered me a dollar for every pound I would lose as a kid. It didn’t work. And it doesn’t really work in the long run.
+ - Number one, like yourself. Number two, you have to eat healthy. And number three, you’ve got to squeeze your buns. That’s my formula.
+ - I have a one of a kind collection of dolls. My house is like a museum.
+ - My persona has always been what a man was never supposed to be. Outrageous, gregarious, crazy, silly, funny.
+ - I’ve never lived in the visual world. I live very much in an emotional-contact world.
+ - I was always into staying busy, into my goals, into making notes and planning. I’m not one who truly lives in the past.
+ - I’m such a huge fan, and I’ve done classes of all Lady Gaga music. And she’s just someone who evokes freedom and love for her fans and passion in what she does. Lady Gaga, I’ll take you out for a salad anytime.
+ - I give people permission to be kids again.
+ - Yeah, but I do call them back and follow up. Most people talk at overweight people, I talk with them.
+ - When I lost my weight, I went and bought about 15 different types of underwear to see what would look good on my new body. It’s exciting!
+
+130 quotes

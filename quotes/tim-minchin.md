@@ -1,0 +1,22 @@
+ - Define yourself by what you love.
+ - Empathy is intuitive, but it is also something you can work on intellectually.
+ - To dream of the person you would like to be is to waste the person you are.
+ - You know what they call alternative medicine that’s been proved to work? – Medicine.
+ - Respect people with less power then you. I don’t care if you’re the most powerful cat in the room, I will judge you on how you treat the least powerful. So there.
+ - It’s an incredibly exciting thing, this one meaningless life of yours.
+ - Isn’t this enough? Just this world? Just this beautiful, complex wonderfully unfathomable world? How does it so fail to hold our attention that we have to diminish it with the invention of cheap, man-made myths and monsters?
+ - Throughout history, every mystery ever solved has turned out to be NOT magic...
+ - Science adjusts its views based on what’s observed Faith is the denial of observation so that belief can be preserved.
+ - We have tendency to define ourselves in opposition to stuff. But try to also express your passion for things you love. Be demonstrative and generous in your praise of those you admire. Send thank-you cards and give standing ovations. Be pro-stuff, not just anti-stuff.
+ - The day they discover yoga mats are carcinogenic will be the happiest day of my life.
+ - A genius is a mentally ill person with an audience.
+ - Only a ginger, can call another ginger Ginger.
+ - There are children in Africa, starving to death, and you don’t hear them whinging.
+ - It’s the fine balance of caffeine and alcohol that bookends my days.
+ - Science is not a body of knowledge nor a system of belief; it is just a term which describes humankind’s incremental acquisition of understanding through observation. Science is awesome.
+ - If I had a religion, its deity would be Audysseus, the sound God, and He would be a vengeful god, dishing out eternal damnation to people with cheap stage monitors.
+ - Love without evidence is stalking.
+ - Who’s the world going to revolve around now?
+ - Isn’t this enough? Just this world? Just THIS?
+
+20 quotes

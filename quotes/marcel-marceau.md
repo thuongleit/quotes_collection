@@ -1,0 +1,22 @@
+ - A magician makes the visible invisible. A mime makes the invisible visible.
+ - Do not the most moving moments of our lives find us without words?
+ - It’s good to shut up sometimes.
+ - In a moment of grace, we can grasp eternity in the palm of our hand. This is the gift given to creative individuals who can identify with the mysteries of life through art.
+ - Silence is like a flame, you see?
+ - Life is a cycle, and mime is particularly suitable for showing fluidity, transformation, metamorphosis. Words can keep people apart; mime can be a bridge between them.
+ - Words can be deceitful, but pantomime necessarily is simple, clear and direct.
+ - In silence and movement you can show the reflection of people.
+ - To communicate through silence is a link between the thoughts of man.
+ - Music and silence combine strongly because music is done with silence, and silence is full of music.
+ - Chaplin made me laugh and cry without saying a word. I had an instinct. I was touched by the soul of Chaplin – Mime is not an imitator but a creator.
+ - Never get a mime talking. He won’t stop.
+ - Fathers, I do not practice. I’m not religious in life, but when I perform “The Creation of the World” and when my soul is touched by the confrontation of “Good and Evil”, then God enters in me.
+ - Music conveys moods and images. Even in opera, where plots deal with the structure of destiny, it’s music, not words, that provides power.
+ - What sculptors do is represent the essence of gesture. What is important in mime is attitude.
+ - No art is superior to another one, but every art looks for expertise and perfection. This is life, which continues; this is why there is no death. There is continuation. There is no silence. There is a continuation of thought.
+ - Embed quoteadd to favoritesshare this quote.
+ - One can feel the urge, the need to give, coming from within him. He is such a pure and true person. It’s my deepest, most heartfelt conviction that Michael Jackson is a good person, a fine young man with an incredible burden – responsibility – to carry on his shoulders.
+ - I have designed my style pantomimes as white ink drawings on black backgrounds, so that man’s destiny appears as a thread lost in an endless labyrinth. I have tried to shed some gleams of light on the shadow of man startled by his anguish.
+ - A mime is a terrible thing to waste.
+
+20 quotes

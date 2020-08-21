@@ -1,0 +1,21 @@
+ - Too much down time makes us miss home.
+ - You have to get to know your voice and its strengths and play on those. It took me quite a long time.
+ - I’m a married man and I’ve got two children, and you have to do sacrifices.
+ - Back in 1994 there was no Judas Priest.
+ - We love not just Judas Priest music, but we love heavy metal and we love to get out on that stage every night and perform. It’s a joy to be able to do it.
+ - In my first bands I was a singing guitar player, but if you heard any of those songs you wouldn’t describe me as a singer. But I can make it work.
+ - I think we all appreciate it now just how lucky we are to be in a band like Judas Priest.
+ - The hardest part is to travel, and to be away from your family.
+ - I write a lot of stuff, and some of it I don’t even present to Judas Priest. But having said that, my first love is to play Judas Priest music.
+ - I’ve got the luxury to tailor make the songs so I can sing them.
+ - Shortly after that, we got management problems over in England, and Judas Priest asked me to join.
+ - If you’re not enjoying yourself, you can’t really look as if you are.
+ - I started out myself rather late you see, I was 18.
+ - I never took a lesson until I was 20, and I’m glad I had those years living the life of a normal person. I don’t consider that time wasted.
+ - My vocal ability is very limited, but I’m fortunate in that I can write the songs around my vocal limitations.
+ - Sadly, I’ve seen a lot of bands hit that sort of peak and then eventually start supporting again, you know, which we will never do. We always put a lot of thought into the way that we are going to go, and we always change.
+ - A lot of bands that reunite do it for the wrong reasons. They do it for the bucks and everybody can sense it.
+ - There are a lot better musicians than me out there that just haven’t had the luck to fall into everything like I have.
+ - It was about working with other musicians, but more than that it’s about exploring musical areas that you could never do with the band you’re in, in my case Judas Priest. You could tackle musical areas and lyrical areas that wouldn’t be appropriate for Priest.
+
+19 quotes

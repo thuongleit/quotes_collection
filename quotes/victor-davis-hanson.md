@@ -1,0 +1,33 @@
+ - The wisdom and spirit of Churchill not only saved Britain from the Third Reich but saved Western civilization from a Nazi Dark Ages when no other nation was willing to take up that defense. Churchill was the greatest military, political and spiritual leader of the 20th century.
+ - History has shown that a government’s redistribution of shrinking wealth, in preference to a private sector’s creation of new sources of it, can prove more destructive than even the most deadly enemy.
+ - Stalin and Mao killed over 80 million and did not make omelets despite the broken eggs.
+ - California is now a valuable touchstone to the country, a warning of what not to do. Rarely has a single generation inherited so much natural wealth and bounty from the investment and hard work of those more noble now resting in our cemeteries-and squandered that gift within a generation.
+ - Ignorance and arrogance are a lethal combination. Nowhere do we see that more clearly among writers and performers who pontificate as historians when they know nothing about history.
+ - Americans spend more money on Botox, face lifts and tummy tucks than on the age-old scourges of polio, small pox and malaria.
+ - We may casually talk of all sorts of new programs and ‘stimulus,’ but the vast trillion-dollar collective national debt and rising annual deficits will insidiously hamstring almost everything we plan to do.
+ - War seems to come out of nowhere, like rust that suddenly pops up on iron after a storm.
+ - Westernization, coupled with globalization, has created an affluent and leisured elite that now gravitates to universities, the media, bureaucracies, and world organizations, all places where wealth is not created, but analyzed, critiqued, and lavishly spent.
+ - Multiculturalism is a good reminder that when standards are relative, there are no standards at all.
+ - A Ted Kennedy, John Kerry, John Edwards, Howard Dean, George Soros, or Al Gore looks – no, acts – like he either came out of a hairstylist’s salon or got off a Gulfstream.
+ - The easily ridiculed, so-so status quo often hides Herculean efforts by those whom we take for granted, and who, working in the shadows, guarantee civilization instead of chaos.
+ - Often, the pretexts for starting a war are not real shortages of land, food or fuel, but rather perceptions – like fear, honor and perceived self-interest.
+ - Popular culture is simply a reflection of what the majority seems to want.
+ - Politicians in their hubris who believe they can ignore debt or wish it away are sorely disappointed – as we see now with the plummeting approval ratings of both the administration and Congress.
+ - Victory may now require a level of force deemed objectionable by civilized peoples, meaning that some, for justifiable reasons, may be reluctant to pursue it. But victory has not become an ossified concept altogether.
+ - The fact is, beneath the hype, Iraqis will soon appreciate American help and idealism far more than French perfidy. It is never wrong to be on the side of freedom – never.
+ - The president who is most slandered as Hitler will probably prove to be the most zealous advocate of democratic government abroad, the staunchest friend of beleaguered Israel, and the greatest promoter of global individual freedom in our recent memory.
+ - Any time the Western way of war can be unleashed on an enemy stupid enough to enter its arena, victory is assured.
+ - Cheap anti-Americanism will eventually have consequences.
+ - Most authoritarians do not surrender power voluntarily.
+ - After three elections, voters finally caught on that Obama’s faults were not in the stars, but in himself. They apparently tired of the usual distractions from a dismal presidential record.
+ - It is a hard thing for intellectuals to acknowledge benefits from their rich moral inferiors who never so intended it.
+ - Entertainers wrongly assume that their fame, money, and influence arise from broad knowledge rather than natural talent, looks, or mastery of a narrow skill.
+ - Even in its third century, America is still the most meritocratic nation in the world.
+ - Almost every key indicator of the current economy – unemployment, deficits, housing, energy – argues that Obama’s reactionary all-powerful statist approach has only made things far worse.
+ - I saw more stupid people in graduate school and three decades in academia than I ever did who ran 100 acres without going broke.
+ - Can-do Americans courageously go about their duty in Iraq – mostly unafraid that a culture of 2,000 years, the reality of geography, the sheer forces of language and religion, the propaganda of state-run Arab media and the cynicism of the liberal West are all stacked against them.
+ - States are like people. They do not question the awful status quo until some dramatic event overturns the conventional and lax way of thinking.
+ - The shutdown may have temporarily sidetracked the Republicans, yet Obamacare threatens much worse for the Democrats. By 2014 the former will be ancient history, while the latter will be an ongoing mess.
+ - Behind every American soldier, dozens of their countrymen tonight sleep soundly – and hundreds more in their shadow abroad will wake up alive and safe.
+
+31 quotes

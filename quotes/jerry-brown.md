@@ -1,0 +1,62 @@
+ - Organic farming is about buying out of a corrupt, illegal and dishonest system.
+ - My principles are simple. Protect the Earth. Serve the People, and Explore the Universe.
+ - Inaction may be the biggest form of action.
+ - Life simply is. It follows its course. Give yourself to the moment. Let life reveal itself to you.
+ - Banning capital punishment takes us to a higher state of consciousness.
+ - The CIA was revealed to be spying in France, not for military purposes, but for corporate purposes. So this $30 billion spook agency is now at the disposal of these oligarchic corporate structures run by the 1%.
+ - The execution of William Bonin was not the traditional gas chamber of the past. That has been ruled cruel and unusual. Instead, we have something that seems very kind and benign and technical; the injection of chemicals, Nazi-style.
+ - Prisons don’t rehabilitate, they don’t punish, they don’t protect, so what the hell do they do?
+ - We have to be realistic about what the state can afford, and put an end to abuses of the system that cost millions.
+ - The shuttle tomorrow is truly like laying the last spike on the transcontinental railroad, only much more so. And whether or not we’re going to see in in the next 10 or 20 years, there are people alive today who will see manufacturing in space from moon materials or from asteroids.
+ - We’re being ripped off and screwed by a bunch of liars, thieves, crooks, and criminals, and they’re not the folks below. Don’t look in the streets, look in the corporate suites.
+ - The big lock-up is about drugs. Here’s the real scam. The drug war is one of the games to get more convictions and prisoners.
+ - Equal treatment for children in unequal situations is not justice.
+ - We have to restore power to the family, to the neighborhood, and the community with a non-market principle, a principle of equality, of charity, of let’s-take-care-of-one-another. That’s the creative challenge.
+ - There’s nothing wrong with being an anarchist.
+ - You’ve got the oil companies fighting Pope Francis. Fighting the scientists of the world. Fighting the governor of California. They are engaged in literally a life-and-death struggle, and I have no doubt who is going to be the victor.
+ - The corporation is an out-of-control Frankenstein.
+ - The war on drugs is really no war at all – it’s a business!
+ - The reason that everybody likes planning is that nobody has to do anything.
+ - It doesn’t matter what I say as long as I sound different from other politicians.
+ - California is the third largest oil producer. More importantly, California burns more oil, consumes more oil than any state or collection of states in America.
+ - Pension reform can be hard to talk about. In the long run, reform now means fewer demands for layoffs and less draconian measures in the future. It’s in the best interest of all Californians to fix this system now.
+ - Without the truth of the people, politics degenerates into mere spectacle and democracy declines, leaving demagoguery and cynicism to fill the void.
+ - We’re not going to have a backlash. We’re going to build a consensus. And I live in the real world, not the kind of fantasy goals that we would all like, but we would never achieve if we go about it in the blunderbuss fashion that your question would assume.
+ - A lot of street crime is horrible, but in terms of the dislocation, the undermining of the family – the corporate criminals, many of whom reside in Congress and the White House – are getting away literally with murder.
+ - I understand we have to keep a significant amount of fossil fuel in the ground. I’m committed to that. But I’m not going to just all of a sudden try to stop the cars of California or to increase dramatically the number of ships carrying oil into the state when we already have our own production.
+ - The government is becoming the family of last resort.
+ - Basically, if you have above-average intelligence, you have common sense and you can speak in front of a camera and to a crowd, you can govern the state.
+ - This is exciting, it is bold and it is absolutely necessary if we are to have any chance of stopping potentially catastrophic changes to our climate system.
+ - Here the system is creating an industry around the drug issue when it does nothing to stop the corrupt military that moves the drugs, and the big banks that are all in cahoots with the President and the big shots in the Congress.
+ - When I was Governor, Louis Kelso went out of his way to brief me. I was very impressed, but I was never able to get any of the economists in state government to give him the help his plan deserves.
+ - We’re going to move left and right at the same time.
+ - We have to deal with where we are. We have to create cooperatives, we have to create intentional communities, we have to work for local cooperation where we are.
+ - The great problem with government is that it never goes bankrupt.
+ - At least when I was govenor, cocaine was expensive.
+ - Look at the whole criminal correction game, which is a big piece of our economy. It’s just an invention. Crime is being invented to put people to work.
+ - Where there is a sufficient social movement of self-reliant communities, there can be political change. There must be political change.
+ - The whole Jeffersonian ideal was that people are temporarily in government. Government is not the basic reality. People are. The private sector. And government is just a limited power to make things go better.
+ - The great danger of humane punishment is that people will come to accept state murder as something sanitary. I don’t think bureaucracy should ever be entrusted with that kind of power.
+ - I’ve been in office and I’ve been out of office. And if I were to choose, I’d rather be in office.
+ - Several unions have agreed to larger employee contributions for their members. Taxpayers are living with cuts and making sacrifices to deal with the reality of California’s budget crisis, state workers are going to have to do the same.
+ - The sovereignty of America has just been eroded in plain daylight by Clinton and the Congress, who take an oath to the Constitution. Those criminals continue to destroy this country and the world itself.
+ - I see the day in our own lifetime that reverence for the natural systems, the oceans, the rainforests, the soil, the grasslands, and all other living things will be so strong that no narrow ideology based upon politics or economics will overcome it.
+ - The minimum wage has not kept pace with rising costs. This legislation is overdue and will help families that are struggling in this harsh economy.
+ - Okay, so what we really have to recognize and own as Americans is that our way of being is itself perhaps the greatest threat to the continuation of civilization.
+ - I see the world in very fluid, contradictory, emerging, interconnected terms, and with that kind of circuitry I just don’t feel the need to say what is going to happen or will not happen.
+ - I like computers. I like the Internet. It’s a tool that can be used. But don’t be misled into thinking that these technologies are anything other than aspects of a degenerate economic system.
+ - Nuclear power will be the Vietnam issue of the 1980s.
+ - Let’s draw the boundary early not wait until it’s obvious like Hitler’s Germany and insist that the state shall never, never, take the life of a person!
+ - I’d shrink government in a minute, if I could shrink GM, Bank of America, and all these immoral corporations that operate by an undemocratic code, with no soul and no conscience.
+ - So we are being systematically trained to fear this false ‘rising crime’ tide. This is all part of a system to lock up more people, and impose more control and surveillance.
+ - We’re going to get that little bug before that little bug gets my poll ratings down any further.
+ - In some cases, managers and employees have secured pensions beyond their original base salary. It is wrong, the people doing it know it’s wrong, and we have to put an end to it.
+ - Republican attacks are without basis, but when the Democrats attack me they’re usually right.
+ - We are in a degenerate state of self-government. In fact, even to use the words self-government, is not only an exaggeration, it’s a lie. It’s a big lie!
+ - Then once you get people locked up, it’s an incredibly inhuman system.
+ - The volume of paper expands to fill the available briefcases.
+ - Taking significant amounts of carbon out of our economy without harming its vibrancy is exactly the sort of challenge at which California excels.
+ - The corporation is not a person; it is a legal fiction backed up by guns and police and jail cells and taxing authorities and the regulators called government.
+ - I reject get-it-done, make-it-happen thinking. I want to slow things down so I understand others better.
+
+60 quotes

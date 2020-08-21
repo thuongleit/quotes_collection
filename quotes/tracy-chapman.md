@@ -1,0 +1,51 @@
+ - I’ve seen and met angels wearing the disguise of ordinary people living ordinary lives.
+ - Words don’t come easily, like forgive me.
+ - I think it’s important, if you are an artist, to use your music to stand up for what you believe in.
+ - There’s a power in words. There’s a power in being able to explain and describe and articulate what you know and feel and believe about the world, and about yourself.
+ - Songwriting is a very mysterious process. It feels like creating something from nothing. It’s something I don’t feel like I really control.
+ - At this point in my life Id like to live as if only love mattered.
+ - We are the spirit, the collective conscience. We create the pain, and suffering, and beauty in this world.
+ - I may be revered or defamed and decried; But I tried to live my life right.
+ - You have to pay attention to the moment and make it the best it can be for you. I’ve been trying to do that. It’s really made a major difference for me. I’m a happier person.
+ - I don’t want someone to squeeze me, that might take away my life. Just want someone to hold me, and we’ll rock through the night.
+ - This youthful heart can love you and give you what you need, but I’m too old to go chasing you around wasting my precious energy.
+ - Have faith in humankind a respect for what is earthly and an unfaltering belief in peace and understanding.
+ - With other people, you’re always swapping music. Somebody is always listening to something you’ve never heard. It’s a great way to hear all sorts of new things.
+ - Who took away the part so essential to the whole Left you a hollow body Skin and bone.
+ - I meet people in my daily life, people who seem to experience some change and some growth on a personal level, and that gives me hope.
+ - My old man’s got a problem, he lives with the bottle.
+ - I dressed up as a veterinarian for a Halloween costume party. I had the lab coat. I got a couple of stuffed animals for patients and put bandages on them.
+ - I love living in California and being able to go to the beach or go to the woods.
+ - We have more media than ever and more technology in our lives. It’s supposed to help us communicate, but it has the opposite effect of isolating us.
+ - I found myself in the middle of a race riot when I was about 14 years old, and I found someone pointing a gun at me and telling me to run or they’d shoot me.
+ - I see some recurring themes: things that feel threaded together, some symbolic references, and songs about some of the big questions, like death. There are a lot of references to weather, too!
+ - Consume more than you need This is the dream Make you pauper Or make you queen I won’t die lonely I’ll have it all prearranged A grave that’s deep and wide enough For me and all my mountains o’things.
+ - Renounce all those material things that you gained by exploiting other human beings.
+ - We all must live our lives always feeling, always thinking the moment has arrived.
+ - A lot of kids spent more time out of school than in, but I always loved school and thought it was my way out of Cleveland, and out of poverty.
+ - I really love playing music with other people. It’s more fun to be on the road with others. It’s kind of lonely out there when you play on your own!
+ - I’m not sure if the next song I write is going to be about love or a song about a tree.
+ - People’s real hopes and dreams can be distorted and misdirected and packaged until you’re not sure what you really want or what you even really need.
+ - I’m still thinking and hoping there’s an opportunity for people to have better lives and that significant change can occur.
+ - Some things remain fragments, just the lyrics and melodies or a line or two or a verse.
+ - After it’s finished, sometimes I can trace a path that goes back to the possible source of inspiration.
+ - My older sister encouraged me from early on and bought me one of the first guitars I had. She listened to all of the crappy songs that I wrote when I was 8 years old and encouraged me to keep doing it.
+ - I picked up the guitar at 11, but even before then, I was writing songs on the organ.
+ - The songs are not necessarily autobiographical. A lot of songs are a combination of influences. It might be some part of my life, or something I’ve felt, or something somebody’s told me. It all comes together.
+ - When you feel like you’ve had a good show, you go backstage and you talk to yourself about it, and if you have a bad show you talk to yourself about it.
+ - Growing up in Cleveland, I learned about singing from my mother, who had once sung professionally and who admired Mahalia Jackson and Aretha Franklin.
+ - I think many people would say that writers like Stephen King have hypergraphia.
+ - I never assumed I would have that commercial success, so it was a total surprise. And honestly, I never assumed that it would ever happen again.
+ - Love’s a recurring theme through my work.
+ - I don’t try to project any image at all, other than the person that I am.
+ - I’m not sure about anything as far as religion and spirituality go.
+ - I learn all these things about the record talking about it after it’s finished.
+ - I often write either really early in the morning, or really late at night.
+ - As a child I spent a lot of time at the library.
+ - Everyone is looking for connections between the songs. I don’t usually approach a record as a concept. There’s no overriding theme I’m trying to represent. It’s all about the individual songs.
+ - I’m never sure if I’ll ever write another song, what the song will be about and if what initially sparked the beginning of a song might complete it.
+ - As a child I always had a sense of social conditions and political situations. I think it had to do with the fact that my mother was always discussing things with my sister and me – also because I read a lot.
+ - I end up writing about all kinds of things. I never make an attempt to write about anything in particular. I don’t have a little list of topics to write about.
+ - I got a plan to get out of here, I’ve been working at a convenient store.
+
+49 quotes

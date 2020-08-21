@@ -1,0 +1,58 @@
+ - It’s true about the eyes being the window to the soul. Your face can be etched with worry, and twisted by ageing, but the eyes tell the true story of who you are.
+ - You don’t need to follow trends to be stylish.
+ - Education opens the door to everything in terms of having a career and an impact on society and not being a slave to your job, really.
+ - I think there’s nothing more amazing than helping people every day.
+ - Your boss is only human and just wants the best from you.
+ - I like to believe that we all pray to the same god.
+ - I usually look in my eyes to tell the truth of how I’m feeling that day.
+ - I love Sam Mendes. He’s a fantastic director.
+ - Only do acting, if you don’t want to do anything else. And know that it’s a tough journey with a lot of rejection along the way. You have to have a lot of self-belief.
+ - I’m afraid that what most people don’t know about me is that I’m very close to my brother and sister, who are 16 and 13, and I think I’m a pretty good big sister to them.
+ - I try to be upbeat. I read this book which tells you to write down everything that you’re grateful for each day. Now I’m constantly noticing all the little things that make me joyful.
+ - As an artist, I am interested in telling stories that haven’t been told before, stories that are going to affect people, and also stories that shine light on areas of history that haven’t had light shined on them before.
+ - I can’t impersonate someone. That is not what I do. I can only take someone’s essence and create a character out of that.
+ - I’ve never been that person who wants a Rolls Royce or wants to live in a mansion or what have you.
+ - One of the saddest aspects for me about filming in South Africa was that the real inequalities are still very much in place – and those are economic inequalities.
+ - At Cambridge, it was the weirdest culture. Everyone pretended they didn’t do any work, yet it was so competitive.
+ - I cry at random things, like a flower, or someone giving me a present, or my sister giving me a nice hug.
+ - When you film in Africa, it’s almost like a character in and of itself because it is so beautiful and has this special magic that I’ve never experienced anywhere else. There is something so incredibly beautiful about the light...
+ - Powerful women are the most interesting to play.
+ - To have the kind of success I have had is really amazing, and I am incredibly grateful.
+ - Mom’s a writer, so I grew up reading scripts and I have a real respect for them and I know how much thought goes into creating a role, so I’m always interested to find out what was the thought process of the writer and how best can I convey it rather than trying to change it to suit myself.
+ - I always find filming stressful. I get very caught up thinking about my character – ‘Am I doing it right? Should it be done this way?’
+ - I don’t why I was bullied. I was quite shy and skinny. Very nerdy, very bookwormish. I think I was just a target.
+ - What I generally get from being in Africa is a sense of warmth and openness. As a stranger, you are always welcomed into people’s homes and people are always offering you food. That generosity is incredibly touching.
+ - Be open and honest, but perceptive to your boss’s situation. That’s my advice to graduates worried about working with a new boss.
+ - When I have finished a job, done all the promotion, and it’s been received well. Then I can allow myself the luxury of a break, and chilling out with my family and friends, and taking a nice break knowing I’ve done a good job.
+ - Without education, you really can’t dream as a child.
+ - I have many different sides; I can be the life and soul of the party – or a wallflower.
+ - I did not enjoy Cambridge. But I shouldn’t blame Cambridge alone. I wasn’t ready for university or for the wrench of leaving home. It was a big cultural shock.
+ - For some reason, I just lack that ability to be embarrassed about going up to people. I even do it for friends if they want to ask someone out.
+ - Getting to travel around the world and go to glamorous locations is certainly not what I had as a kid.
+ - I don’t think I have the assets to play the more traditional Bond Girl.
+ - I live on the same street as my family, actually. I live across the road. I’m a real family person!
+ - You don’t want to just preach to people; you want to get them emotionally involved, and I think you do that with a wonderful human story about one person’s struggle.
+ - Hollywood ‘friends’ are only after one thing. They’re looking out for the next big thing, and they don’t want to miss out on you just in case.
+ - I really, really love Daniel Craig as Bond.
+ - Mandela is this extraordinary individual who can inspire the world. Instead of wanting revenge after being brutalized, he showed the world how to forgive.
+ - I’m always looking for the comfiest place to lie down, like a cat.
+ - Kids should be naughty and go through that rebellious phase I didn’t have.
+ - I would say only be an actress if you genuinely feel the calling, because it’s a tough profession.
+ - I never make suggestions. I really don’t. I know a lot of actors who get a part and then they dissect it and they want to change it and they want to add stuff. I’m always amazed and so impressed by actors who do that.
+ - I’m absolutely loving being part of Bondiana, and that not only am I a Bond girl, but I get to be an agent as well.
+ - As a society we should be encouraging people out of the debt-culture mindset, not promoting it.
+ - I started acting when I was seven. And I went to a local drama school which is very well-known in London. Because of that, I started getting jobs, and I worked all the time as a child, pretty much non-stop.
+ - Actors need steely determination. It’s a tough profession with plenty of knocks along the way. You have to be very determined and never take ‘no’ for an answer.
+ - I’m not the greatest driver. I don’t know if I’ll ever master the art.
+ - If you educate children, then they are capable of so much – you empower them, you give them choices, and you enable them to create the lives that they dream for themselves.
+ - It’s more instinctive to want revenge, but we are also capable of immense amounts of forgiveness and love and a compassion that extends even to those who have brutalized us.
+ - When I started out in the profession, it was definitely about proving that I was worthy, but after achieving a certain amount of success, I realized I didn’t have to prove anything to anybody.
+ - I’d like to believe that I would be able to give in the same way Mandela did, but in reality, I don’t know whether that is true. It is much more likely that I would be left with an immense sense of injustice and immense desire for revenge.
+ - I’m always interested in telling stories that have a message because I really do believe that film is so powerful.
+ - It is great to be a part of big-budget movies, but it is harder to feel like you are contributing, in the sense that it has such big machinery behind it.
+ - People have very strong opinions about how their national icons should be played.
+ - I am always interested in affecting people in some way, making them think about particular areas of history that they have never thought about or that they may have thought about in one way and then changing their view.
+ - I never ever thought that I would be in a Bond film, ever, which is weird because I grew up loving these amazing movies.
+ - I really like Roland Moret, Alexander McQueen and Marios Schwab, a young British designer.
+
+56 quotes

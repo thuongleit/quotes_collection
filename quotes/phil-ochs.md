@@ -1,0 +1,50 @@
+ - In such ugly times, the only true protest is beauty.
+ - Step outside the guidelines of the official umpires and make your own rules and your own reality.
+ - God isn’t dead – he’s just missing in action.
+ - There is an urgent need for Americans to look deeply into themselves and their actions, and musical poetry is perhaps the most effective mirror available. Every newspaper headline is a potential song.
+ - The fortunes of the entire world may well ride on the ability of young Americans to face the responsibilities of an old America gone mad.
+ - One good song with a message can bring a point more deeply to more people than a thousand rallies.
+ - You can do right or you can do what you are told. And the prize of the victory will belong to the bold.
+ - And I won’t be laughing at the lies when I’m goneAnd I can’t question how or when or why when I’m goneCan’t live proud enough to die when I’m goneSo I guess I’ll have to do it while I’m here.
+ - She’s staring down her desires, while they’re staring down her dress.
+ - Is there anybody here who thinks that following the orders takes away the blame Is there anybody here who wouldn’t mind a murder by another name?
+ - In the state of Mississippi, Many Years Ago, a boy of 14 years got a taste of Southern law.
+ - Beneath the greatest love lies a hurricane of hate.
+ - The final story, the final chapter of western man, I believe, lies in Los Angeles.
+ - Show me the prison, Show me the jail, Show me the prisoner whose life has gone stale. And I’ll show you a young man with so many reasons why And there, but for fortune, go you or I.
+ - So good to be alive when the eulogies are read.
+ - Mother Goose is on the loose, stealing lines from Lenny Bruce.
+ - Evil is done in hopes that evil surrenders, but the deeds of the devil are burned too deep in the embers, and world of hunger in vengeance will always remember.
+ - It is wrong to expect a reward for your struggles. The reward is the act of struggle itself, not what you win. Even though you can’t expect to defeat the absurdity of the world, you must make that attempt. That’s morality, that’s religion. That’s art. That’s life.
+ - So do your duty, boys, and join with prideServe your country in her suicideFind the flags so you can wave goodbyeBut just before the end even treason might be worth a tryThis country is too young to dieI declare the war is overIt’s over, it’s over.
+ - In the courtroom, watch the balance of the scalesIf the price is right, there’s time for more appealsThe strings are pulled, the switch is stayedThe finest lawyers fees are paidAnd a rich man never died upon the chair.
+ - Love is a rainbow curving down from the sky, falling crystals of color, shades of warm that never die.
+ - If you ever get a war without blood and gore, well, I’ll be the first to go.
+ - And if there’s any hope for America, it lies in a revolution, and if there’s any hope for a revolution in America, it lies in getting Elvis Presley to become Che Guevara.
+ - I write all my own songs and they are just simple melodies with a lot of lyrics. They usually have to do with current events and what is going on in the news. You can call them topical songs, songs about the news, and then developing into more philosophical songs later.
+ - Leaving America is like losing twenty pounds and finding a new girlfriend.
+ - It is wrong to expect a reward for your struggles. The reward is the act of struggle itself, not what you win.
+ - One legged veterans will greet the dawn, and they’re whistling marches as they mow the lawn, and the gargoyles on sit and grieve.
+ - Does defending liberalism leave you friendless and perhaps wondering about your breath?
+ - When they show the destruction of society on color TV, I want to be able to look out over Los Angeles and make sure they get it right.
+ - Even though you can’t expect to defeat the absurdity of the world, you must make that attempt.
+ - God help the troubadour who tries to be a star. The more that you try to find success, the more that you will fail.
+ - Show me a country where the bombs had to fallShow me the ruins of buildings so tallAnd I’ll show you a young landWith many reasons whyThere but for fortune, go you or IYou or I.
+ - Only as strong as our love for this land, only as tall as we stand.
+ - The only possibility in the United States for a humane society would be a revolution with Elvis Presley as leader.
+ - Maybe we should raise our voices, ask somebody why. But demonstrations are a drag, besides we’re much too high.
+ - I wonder who I left behind on the other side of fame.
+ - The only way to Cuba is with the CIA.
+ - I can spare a dime, brother, but in these morally inflationary times, a dime goes a lot farther if it’s demanding work rather than adding to the indignity of relief.
+ - It’s always the old to lead us to the war. It’s always the young to fall.
+ - I like Hitler, jolly jolly Hitler.
+ - America is two Mack trucks colliding on a superhighway because all the drivers are on amphetamines.
+ - Comfort his family with a telegram, we regret to inform you we lost a man, but we gave him the highest medal of the land.
+ - The glory that was Lincoln’s never died when he was slain.
+ - The painter paints his brushes blackThrough the canvas runs a crackPortrait of the pain never answers back.
+ - In the town of Bethlehem many years ago, a man got religion and he changed the status quo.
+ - The people who carried the burden, who marked in strange field in search of an answer, and ended their journeys an unwilling hero.
+ - I’m gonna give all I’ve got to giveCross my heart, and I hope to live.
+ - Some people never get their feet on the ground, They’re either sitting in a chair or theyre laying down...
+
+48 quotes

@@ -1,0 +1,77 @@
+ - There are better starters than me but I’m a strong finisher.
+ - I don’t think limits.
+ - Believe in your dreams and that anything is possible.
+ - Don’t think about the start of the race, think about the ending.
+ - Worrying gets you nowhere. If you turn up worrying about how you’re going to perform, you’ve already lost. Train hard, turn up, run your best and the rest will take care of itself.
+ - I stopped worrying about the start. The end is what’s important.
+ - I want to thank GOD for everything he as done for me cause without him none of this wouldn’t be possible.
+ - Repeating is harder than anything else.
+ - For me, I’m focused on what I want to do. I know what I need to do to be a champion, so I’m working on it.
+ - A lot of legends, a lot of people, have come before me. But this is my time.
+ - Yeah, I am lazy. There’s no doubt about that.
+ - Sleep is extremely important to me – I need to rest and recover in order for the training I do to be absorbed by my body.
+ - I try to lead by example.
+ - I know what I can do so it doesn’t bother me what other people think or their opinion on the situation.
+ - When I’m at the gym, I think about chicks, going to the beach, and looking good. I do it for the girls.
+ - I think sometimes, when you’re on top and all you do is win, win, win, win, win, you get lazy and lose focus. When you lose it opens your eyes and you get serious. There is always a time when it is good to lose, at the right time for you.
+ - But if I keep my core and back strong, the scoliosis doesn’t really bother me.
+ - You have good days and bad days.
+ - It’s a great feat for me to have broken my world record.
+ - I work hard, and I do good, and I’m going to enjoy myself. I’m not going to let you restrict me.
+ - I like to have fun, just stay relaxed.
+ - I’d like to say to all my fans out there, thanks for the support. And to all my doubters, thank you very much because you guys have also pushed me.
+ - Every season, for me, it’s like starting from scratch again.
+ - I told you all I was going to be No. 1, and I did just that.
+ - I’ve worked hard over the years, I’ve been injured and I’ve worked hard through it, and I’ve made it.
+ - I’ve got everything I wanted so I’m just happy.
+ - I know what to do and I go and execute.
+ - A few people have said I should let you win.
+ - I was playing cricket first and my cricket coach was the one that introduced me to track and field.
+ - As long as I’m in great shape, nobody beats me, for sure.
+ - If you think about racing too much you may just lose it a little bit.
+ - When I was young, I didn’t really think about anything other than sports.
+ - I remember once, actually the first race I ran, I fell.
+ - Women always find you out when you lie. Always. No matter what, they always find out. They’re like detectives.
+ - If I get to be a legend, I’ve achieved my goal.
+ - I don’t put myself under pressure.
+ - I think my acceleration is very good. That’s the key for me.
+ - Once a year I will clean my room, just because I feel I should.
+ - It’s always a wake-up call to get beaten.
+ - All I have to do is to work on transition and technique.
+ - If you’re the Olympic champion then they have to wait four more years to get you again.
+ - Messi or Cristiano – Speed? Cristiano. Shot? Cristiano. Dribbling? Messi. Intelligence? Messi. Talent? Messi. Winner is Messi!
+ - Racing comes easily to me, especially the 100 metres. That is why, no matter how fast I run the run the 100 metres, the 200 will always mean more to me, because of the effort I’ve put in.
+ - I’ve learned over the years that if you start thinking about the race, it stresses you out a little bit. I just try to relax and think about video games, what I’m gonna do after the race, what I’m gonna do just to chill. Stuff like that to relax a little before the race.
+ - Sometimes you lose sight of what’s going on around you.
+ - I can still improve a lot, but there is definitely a limit to what the human body can do.
+ - My coach told me if I broke the national record for the 200, I could run a 100.
+ - My brother is really, really slow.
+ - There are things that bother me. I try not to let them, but they do.
+ - When people see your personality come out, they feel so good, like they actually know who you are.
+ - In Jamaica, you learn as a child how to roll a joint. Everyone here has tried it. I did too.
+ - When I played football, I liked being a goalkeeper or a midfielder. I was probably better at cricket. I would be a very good cricketer if I was a professional now. I think I would probably have been the best, in fact.
+ - People always say I’m a legend, but I’m not. Not until I’ve defended my Olympic titles. That’s when I’ve decided I’ll be a legend.
+ - Track and field was very big when I was growing up.
+ - I don’t like losing anyways.
+ - You do not want to get married at 22! Especially if you’re famous, because girls are going to be throwing themselves at you.
+ - It was not perfect but I’m very happy. It could have been better, but I’m now looking forward to my second race of the season.
+ - I don’t know the history of my sport. I’m not like those people who know everything.
+ - But anybody who steps into the lane beside you is the biggest competition because they made it to the finals.
+ - Cristiano is better than Messi, without a doubt. He’s more of an all-round player.
+ - Manners is the key thing. Say, for instance, when you’re growing up, you’re walking down the street, you’ve got to tell everybody good morning. Everybody. You can’t pass one person.
+ - I don’t even like to go out onto the streets sometimes because I can’t get anything done. People want pictures and autographs all the time.
+ - I am now a legend. I am also the greatest athlete to live.
+ - I never single out any one competitor. I treat all my rivals equally.
+ - I really want to try soccer after I retire because I’ve watched football over the years and I think I could be a good contender.
+ - My relationship with everyone in Jamaica is good.
+ - I can’t really live outside Jamaica. I can be away, but only for a while.
+ - No matter who you are, no matter what you’re doing, no matter how focus you are, no matter how ready you think you? are, you’re not gonna catch me.
+ - Where I’m from, there is no violence, pretty much.
+ - I have dedicated my life to the 200m, I really love the 200m a lot.
+ - There are so many Jamaican people here in London, it’s going to be like being at home for me.
+ - I would rather be lying in a bed than changing one.
+ - If Queen Elizabeth knighthooded me and I would get the title Sir Usain Bolt. That sounds very nice.
+ - I wouldn’t say I’m a phenomenon, just a great athlete.
+ - The important thing was that I got the win. It’s good for confidence and the season.
+
+75 quotes

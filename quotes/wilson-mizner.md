@@ -1,0 +1,63 @@
+ - Be nice to people on your way up because you’ll meet them on your way down.
+ - The amount of sleep required by the average person is five minutes more.
+ - If you steal from one author it’s plagiarism; if you steal from many it’s research.
+ - The first hundred years are the hardest.
+ - Gambling: The sure way of getting nothing for something.
+ - I respect faith, but doubt is what gets you an education.
+ - A good listener is not only popular everywhere, but after a while, he knows something.
+ - You’re a mouse studying to be a rat.
+ - A good party is where you enjoy good people, and they taste even better with Champagne.
+ - Don’t talk about yourself; it will be done when you leave.
+ - Easy street is a blind alley.
+ - The gent who wakes up and finds himself a success hasn’t been asleep.
+ - Popularity is exhausting. The life of the party almost always winds up in a corner with an overcoat over him.
+ - He’s the only man I ever knew who had rubber pockets so he could steal soup.
+ - I can usually judge a fellow by what he laughs at.
+ - If you count all your assets you always show a profit.
+ - He’s a trellis for varicose veins.
+ - There is something about a closet that makes a skeleton terribly restless.
+ - To profit from good advice requires more wisdom than to give it.
+ - The most efficient water power in the world – women’s tears.
+ - In the battle of existence, Talent is the punch; Tact is the clever footwork.
+ - Some of the greatest love affairs I’ve known have involved one actor-unassisted.
+ - I hate careless flattery, the kind that exhausts you in your efforts to believe it.
+ - The cuckoo who is on to himself is halfway out of the clock.
+ - Hollywood is a sewer with service from the Ritz Carlton.
+ - I know of no sentence that can induce such immediate and brazen lying as the one that begins, ‘Have you read – .’
+ - It’s getting so people no longer count the silverware when I come to dinner.
+ - To my embarrassment I was born in bed with a lady.
+ - A slave has but one master. An ambition man, has as many as there are people who helped him get his fortune.
+ - The day which we fear as our last is but the bday of eternity. – By SenecaThe first hundred years are the hardest.
+ - God help those who do not help themselves.
+ - All anger is not sinful, because some degree of it, and on some occasions, is inevitable. But it becomes sinful and contradicts the rule of Scripture when it is conceived upon slight and inadequate provocation, and when it continues long.
+ - Anybody who can write home for money can write for magazines.
+ - A fellow who is always declaring that he’s no fool, usually has his suspicions.
+ - The most pitiful human ailment is a birdseed heart.
+ - The only bird that gives the poor a real tumble is the stork.
+ - The best way to keep your friends is not to give them away.
+ - Failure has gone to his head.
+ - I never saw a mob rush across town to do a good deed.
+ - It is criminal negligence to leave suckers lying around to tempt honest men.
+ - I’ve spent several years in Hollywood, and I still think the movie heroes are in the audience.
+ - Most hard-boiled people are half-baked.
+ - I’ve known countless people who were reservoirs of learning, yet never had a thought.
+ - Count 10 over him – he’ll get up.
+ - The days just prior to marriage are like a snappy introduction to a tedious book.
+ - The worst-tempered people I’ve ever met were people who knew they were wrong.
+ - Women can instantly see through each other, and it’s surprising how little they observe that’s pleasant.
+ - Those who welcome death have only tried it from the ears up.
+ - Over in Hollywood they almost made a great picture, but they caught it in time.
+ - Do not be desirous of having things done quickly. Do not look at small advantages. Desire to have things done quickly prevents their being done thoroughly. Looking at small advantages prevents great affairs from being accomplished.
+ - I’d rather know a square guy than own a square mile.
+ - I had never considered marriage, but I had an open mind, and I was to learn after a brief try at it that most open minds should be closed for repairs.
+ - A drama critic is a person who surprises the playwright by informing him what he meant.
+ - Florida was invented for Addison Mizner’s little brother.
+ - The only time that most women give their orating husbands undivided attention is when the old boys mumble in their sleep.
+ - What feeling is so nice as a child’s hand in yours? So small, so soft and warm, like a kitten huddling in the shelter of your clasp.
+ - I want a priest, a rabbi and a Protestant minister. I want to hedge my bets.
+ - I’ve had ample contact with lawyers, and I’m convinced that the only fortune they ever leave is their own.
+ - Money is the only substance which can keep a cold world from nicknaming a citizen Hey, you.
+ - There’s nothing so comfortable as a small bankroll. A big one is always in danger.
+ - The difference between chirping out of turn and a faux pas depends on what kind of a bar you’re in.
+
+61 quotes

@@ -1,0 +1,183 @@
+ - A person, who no matter how desperate the situation, gives others hope, is a true leader.
+ - The darker the night, the nearer the dawn. Victory in life is decided by that last concentrated burst of energy filled with the resolve to win.
+ - Even if things don’t unfold the way you expected, don’t be disheartened or give up. One who continues to advance will win in the end.
+ - The moment you resolve to be victorious, every nerve and fiber in your being will immediately orient itself toward your success.
+ - Everything begins with the resolve to take the first step. From that action, wisdom arises and change begins. Without action, nothing changes.
+ - Effort and hard work construct the bridge that connects your dreams to reality.
+ - A great human revolution in just a single individual will help achieve a change in the destiny of a nation and, further, can even enable a change in the destiny of all humankind.
+ - Faith is to fear nothing, to stand unswayed, the power to surmount any obstacle.
+ - Let us give something to each person we meet: joy, courage, hope, assurance, or philosophy, wisdom, a vision for the future. Let us always give something.
+ - With love and patience, nothing is impossible.
+ - Leave behind the passive dreaming of a rose-tinted future. The energy of happiness exists in living today with roots sunk firmly in reality’s soil.
+ - Hardships make us strong. Problems give birth to wisdom. Sorrows cultivate compassion. Those who have suffered the most will become the happiest.
+ - When we change, the world changes. The key to all change is in our inner transformation- a change of our hearts and minds. This is human revolution. We all have the power to change. When we realize this truth, we can bring forth that power anywhere, anytime, and in any situation.
+ - To be fearless no matter what happens-that is the root of true happiness. To move forward resolutely regardless of what lies in store-that is the spirit, the resolve, that leads to human victory.
+ - Strength is Happiness.
+ - It’s important to resolve to yourself, ‘I will absolutely win!’ Then this firm commitment will serve as the wellspring of great wisdom and courage that surges forth from within.
+ - Life can unfold unlimitedly as long as we have a heart of appreciation and an undefeated mind.
+ - You will pass through storms and heavy rains, and at times you will suffer defeat. The essence of the creative life, however, is not to give up in the face of defeat but to follow the rainbow that exists within your heart.
+ - No matter how hopeless or bleak things appear, the moment always comes when suddenly our spirit revives, and hope is reborn. That is why we must never give up.
+ - Before comparing yourself with others, win the battle with yourself. Strive to be better today than yesterday, and better tomorrow than today.
+ - Come on obstacles! I’ve been expecting you! This is the chance that I’ve been waiting for!
+ - Rather than becoming discouraged, know that encountering a wall is proof of the progress that you have made so far.
+ - Strength is happiness. Strength is itself victory. In weakness and cowardice there is no happiness.
+ - To communicate the truths of history is an act of hope for the future.
+ - Bravely overcoming one small fear gives you the courage to take on the next.
+ - The determination to win is the better part of winning.
+ - Hope changes everything. It changes winter into summer, darkness into dawn, descent into ascent, barrenness into creativity, agony into joy.
+ - A truly beautiful person is one who is good at discovering beauty.
+ - Within the heart of every person exists the flame of wisdom that transforms all suffering into kindling for the fire of creative energy.
+ - Never be shaken, no matter what happens or what others may say. Never be flustered; never lose confidence. This is the way we should strive to live our lives. Being able to do so is a sign of genuine character.
+ - One thing is certain: That is that the power of belief, the power of thought, will move reality in the direction of what we believe and conceive of it. If you really believe you can do something, you can. That is a fact.
+ - Keep moving forward, even one or two steps, in your own way. Those who live out their lives to the fullest, unperturbed by the noisy clamor around them, are the true winners.
+ - It is much more valuable to look for the strength in others. You can gain nothing by criticizing their imperfections.
+ - Human beings are inherently endowed with the power to bring out the best possible results from the worst possible circumstances.
+ - An attitude of compassion does not mean looking down on someone, pitying them in their misery. Compassion is based on respect. We discuss life as equals, learn from each other and strive together to improve our lives.
+ - Victory lies in not getting defeated.
+ - No matter what kind of difficult situation one may find oneself in, some opening, some opportunity to fight one’s way out, can always be found. What’s most important is to hold fast to Hope, to face the future with courage.
+ - While it is important to win, it’s even more important to remain undefeated no matter what happens.
+ - Let us join our efforts toward building the unshakable foundations for a culture of peace.
+ - Dialogue starts from the courageous willingness to know and be known by others. It is the painstaking and persistent effort to remove all obstacles that obscure our common humanity.
+ - Health is not simply the absence of illness. Real health is the will to overcome every form of adversity and use even the worst of circumstances as a springboard for new growth and development. Simply put, the essence of health is the constant renewal and rejuvenation of life.
+ - When we care for others our own strength to live increases. When we help people expand their state of life, our lives also expand. Actions to benefit others are not separate from actions to benefit oneself. Our lives and the lives of others are ultimately inseparable.
+ - Freedom doesn’t mean the absence of all restrictions. It means possessing unshakable conviction in the face of any obstacle.
+ - When one takes action for others, one’s own suffering is transformed into the energy that can keep one moving forward; a light of hope illuminating a new tomorrow for oneself and others is kindled.
+ - If we look at the world with a love of life, the world will reveal its beauty to us.
+ - What our world most requires now is the kind of education that foster love for humankind, that develops character-that provides an intellectual basis for realization of peace and empowers learners to contribute to and improve society.
+ - Rise to the challenges that life presents you. You can’t develop genuine character and ability by sidestepping adversity and struggle.
+ - Whatever the outcome may be, the important thing is to step forward on the path that you believe is right.
+ - Ideal love is fostered only between two sincere, mature and independent people. Real love is not two people clinging to each other; it can only be fostered between two strong people secure in their individuality.
+ - Hope is the sun. It is light. It is passion. It is the fundamental force for life’s blossoming.
+ - Nothing is more precious than peace. Peace is the most basic starting point for the advancement of humankind.
+ - One’s true worth as a human being is not a matter of outward appearance or title, but derives rather from the breadth of one’s spirit. Everything comes down to faith and conviction. It is what is in one’s heart, and the substance of one’s actions that count.
+ - We are responsible for our own destiny. What matters is how we improve ourselves from this moment forward.
+ - A person who respects others is respected by others in return. Those who treat others with compassion and concern are protected and supported by others. Our environment is essentially a reflection of ourselves.
+ - It is senseless to blame others or your environment for your miseries. Change begins from the moment you muster the courage to act. When you change, the environment will change. The power to change the world is found nowhere but within our own life.
+ - No one should be left to suffer alone.
+ - If you lose today, win tomorrow. In this never-ending spirit of challenge is found the heart of a victor.
+ - Only when we connect to nature, engaged with nature, are we truly alive and vigorous. To really be alive, one must be under the sun, the moon, the shining stars and surrounded by the beautiful greenery and pure waters of the natural world.
+ - Life is painful. It has thorns, like the stem of a rose. Culture and art are the roses that bloom on the stem. The flower is yourself, your humanity. Art is the liberation of the humanity inside yourself.
+ - Genuine happiness can only be achieved when we transform our way of life from the unthinking pursuit of pleasure to one committed to enriching our inner lives, when we focus on ‘being more’ rather than simply having more.
+ - Ultimately, the only way to make good friends is to become a good friend yourself. Good people gather around other good people.
+ - By changing our inner state of mind, we can change any suffering or hardship into a source of joy, regarding it as a means for forging and developing our lives. To turn even sorrow into a source of creativity – this is the way of life of a Buddhist.
+ - Just as a diamond can only be polished by another diamond, it is only through genuine, all-out engagement with others that people can polish their character, and help each other to reach greater heights.
+ - The Earth never ceases to spin. All life is dancing : The trees, the wind, the sea. Keep dancing for the rest of your life.
+ - Living here on Earth, we breathe the rhythms of a universe that extends infinitely above us. When resonant harmonies arise between this vast outer cosmos and the inner human cosmos, poetry is born.
+ - Sometimes we complain without thinking much of it, but the frightening thing about complaining is that every time we do, a cloud descends over our heart, and our hope, appreciation and joy gradually wane.
+ - No matter how complex global problems may seem, it is we ourselves who have given rise to them. They cannot be beyond our power to resolve.
+ - Often the biggest obstacle in meeting life’s challenges is actually our own fear of failure.
+ - It is precisely when we have suffered defeat that we can determine to win and open the path to future victory.
+ - The power of art can break the shackles that bind and divide human beings.
+ - Prayer is the way to destroy all fear. It is the way to banish sorrow, the way to light a torch of hope. It is the revolution that rewrites the scenario of our destiny.
+ - Have the depth of faith to regard everything as a source for creating happiness and value.
+ - A person’s true nature is revealed at times of the greatest adversity.
+ - Just as cherry, plum, peach and damson blossoms all possess their own unique qualities, each person is unique. We cannot become someone else. The important thing is that we live true to ourselves and cause the great flower of our lives to blossom.
+ - A healthy vision of the future is not possible without an accurate knowledge of the past.
+ - If you summon your courage to challenge something, you’ll never be left with regret. How sad it is to spend your life wishing, “If only I’d had a little more courage.” Whatever the outcome may be, the important thing is to step forward on the path that you believe is right.
+ - Music speaks directly to the heart. This response, this echo within the heart, is proof that human hearts can transcend the barriers of time and space and nationality. Exchanges in the field of culture can play an important role in enabling people to overcome mistrust and prejudice and build peace.
+ - Those who always have a sense of appreciation and gratitude never reach an impasse in life.
+ - What matters is the value we’ve created in our lives, the people we’ve made happy and how much we’ve grown as people.
+ - The problems of aging present an opportunity to rethink our social and personal lives in order to ensure the dignity and welfare of each individual.
+ - Humanity’s collective mission in the cosmos lies in the practice of compassion.
+ - Strength is Happiness. Strength is itself victory. In weakness and cowardice there is no happiness. When you wage a struggle, you might win or you might lose. But regardless of the short-term outcome, the very fact of your continuing to struggle is proof of your victory as a human being.
+ - Japan learned from the bombings of Hiroshima and Nagasaki that the tragedy wrought by nuclear weapons must never be repeated and that humanity and nuclear weapons cannot coexist.
+ - Hopes, dreams, faith and a sense of mission enable us to open up our lives.
+ - People can only live fully by helping others to live. When you give life to friends you truly live. Cultures can only realize their further richness by honoring other traditions. And only by respecting natural life can humanity continue to exist.
+ - No one can live entirely on their own, nor can any country or society exist in isolation.
+ - The effects of human rights education can be dramatic in awakening people to the value and power of their own lives, as shown in the following stories.
+ - There is no true joy in a life lived closed up in the little shell of the self. When you take one step to reach out to people, when you meet with others and share their thoughts and sufferings, infinite compassion and wisdom well up within your heart. Your life is transformed.
+ - Women are, in my view, natural peacemakers. As givers and nurturers of life, through their focus on human relationships and their engagement with the demanding work of raising children and protecting family life, they develop a deep sense of empathy that cuts through to underlying human realities.
+ - Do something! Start something! As you make consistent efforts, you will begin to see your goals come into focus. You will discover your mission – the one only you can fulfill.
+ - Happiness does not exist as an isolated quality, nor does it conform to a single fixed pattern. Happiness is something that breathes and lives in the relationships between one person and another.
+ - Salute to the Smiling Faces of the 21st Century.
+ - The idea of interdependence is central to Buddhism, which holds that all things come into being through the mutual interactions of various causes and conditions.
+ - Reality is harsh. It can be cruel and ugly. Yet no matter how much we grieve over our environment and circumstances nothing will change. What is important is not to be defeated, to forge ahead bravely. If we do this, a path will open before us.
+ - Our hopes, desires and ambitions are powerful forces existing within us for the shaping of the future. They are the generating forces that create the future.
+ - We have both a weak self and a strong self; the two are completely different. If we allow our weak side to dominate, we will be defeated. The thought ,“I am still young and have a lot of time, so I can relax and take life easy” is a function of our own weakness.
+ - There’s no need for us to be held back by the past or how things have been so far. The important thing is what seeds we are sowing now for the future.
+ - I believe that a culture of peace must be the essential foundation of our efforts for peace.
+ - The person who lives life fully, glowing with life’s energy, is the person who lives a successful life.
+ - I firmly believe that the mission of religion in the 21st century must be to contribute concretely to the peaceful coexistence of humankind.
+ - Hope is life’s greatest treasure. If you have no hope, create some!
+ - The reactions of the human heart are not mechanical and predictable but infinitely subtle and delicate.
+ - One cannot, without reflection, make some into bearers of goodness and others into miscreants, judging them by relative positive or negative criteria. These, like everything else, change according to historical circumstances, the character of a society, the time and subjective points of view.
+ - In life when we feel we have reached a limit, that is when the true battle begins. Just when you despair and think it is impossible to go any further, will you become apathetic, or will you say it’s not over and stand up with an unyielding spirit? The battle is decided by this single determination.
+ - Speak out tirelessly with conviction.
+ - The wisdom and experience of older people is a resource of inestimable worth. Recognizing and treasuring the contributions of older people is essential to the long-term flourishing of any society.
+ - I have for some time urged that a nuclear abolition summit to mark the effective end of the nuclear era be convened in Hiroshima and Nagasaki on the 70th anniversary of the bombings of those cities, with the participation of national leaders and representatives of global civil society.
+ - There are no greater treasures than the highest human qualities such as compassion, courage and hope. Not even tragic accident or disaster can destroy such treasures of the heart.
+ - Leadership that exploits and sacrifices young people on the altar of its goals is nothing more than raw, demonic power. Genuine leadership is found in ceaseless efforts to foster young people, to pave the way forward for them.
+ - Humanity has experienced many revolutionary changes over the course of history: revolutions in agriculture, in science, industrial production, as well as numerous political revolutions. But these have all been limited to the external aspects of our individual and collective lives.
+ - The differences between people need not act as barriers that wound, harm and drive us apart. Rather, these very differences among cultures and civilizations should be valued as manifestations of the richness of our shared creativity.
+ - There are some among the so-called elite who are overbearing and arrogant. I want to foster leaders, not elitists.
+ - World peace is not something that can be realized simply by politicians signing treaties, or by business leaders creating economic cooperation. True and lasting peace will be realized only by forging bonds of trust between people at the deepest level, in the depths of their very lives.
+ - Dig beneath your feet, there you will find a spring. The place where you are now is crucial. Never try to avoid that which you must do.
+ - Whatever your circumstances, whatever your past, the forces that determine your future are nowhere but within your own heart and mind. It is here that the star of your destiny shines.
+ - Hope transforms pessimism into optimism. Hope is invincible.
+ - In most cases, our so-called limitations are nothing more than our own decision to limit ourselves.
+ - The greatest tragedy in life is not to die, it is to live as if dead, to let the life within us wither. Toward what goal or achievement are we striving in life? This is the important question to ask ourselves.
+ - Courage and compassion are two sides of the same coin. Compassion without courage is not genuine. You may have a compassionate thought or impulse, but if you don’t do or say anything, it’s not real compassion.
+ - Poems and songs penned as an unstoppable outpouring of the heart take on a life of their own. They transcend the limits of nationality and time as they pass from person to person, from one heart to another.
+ - Take heart, and do not let disappointment or shame stop you from moving forward. The true outcome of life is only apparent at the very end.
+ - Embrace your dreams and advance as far as they can take you.
+ - Instead of engaging in cutthroat competition, we should strive to create value. In economic terms, this means a transition from a consumer economy – the mad rush for ownership and consumption – to a constructive economy where all human beings can participate in the act of creating lasting worth.
+ - Extreme poverty threatens people’s right to life itself and makes impossible the enjoyment of the rights and freedoms essential to a humane way of life.
+ - Genuine sincerity opens people’s hearts, while manipulation causes them to close.
+ - A moment’s encounter can decide the direction of one’s entire life.
+ - It is important that we have the inner richness to be able to look up at the stars or the moon and compose a poem once in a while. When we open wide our minds and fix our gaze on the universe, we fix our gaze on our own life.
+ - Divorced from the cosmos, from nature, from society and from each other, we have become fractured and fragmented.
+ - Great art is created only through diligent and painstaking effort to perfect and polish oneself.
+ - I can do more. I can grow. I can become a bigger and better human being.
+ - A truley heroic way of life lies in squarely confronting and courageously overcoming the pounding vicissitudes that life always throws in our paths.
+ - Every war, when viewed from the undistorted perspective of life’s sanctity, is a “civil war” waged by humanity against itself.
+ - Envying another’s beauty will diminish your own. But when you praise beauty in others your own beauty deepens.
+ - A commitment to human rights cannot be fostered simply through the transmission of knowledge. Action and experience play a crucial role in the learning process.
+ - All people have a natural desire to be needed, to have their importance to others tangibly confirmed.
+ - It is only through such real-life daily struggles and challenges that a genuine sensitivity to human rights can be inculcated. This is a truth that is not limited to school education: it applies to all of us.
+ - No matter how healthy, intelligent or affluent we may be, if our minds are weak, then our happiness will also be frail and brittle. Our minds of faith, moreover, enable us to bring out the full potential in all things and situations, so it is crucial that we strive to forge our minds of faith.
+ - While conservatism and self-protection might be likened to winter, night, and death, the spirit of pioneering and attempting to realize ideals evokes images of spring, morning, and birth.
+ - There is no one as strong as a person whose heart is always filled with gratitude.
+ - No one is born hating others.
+ - A genuinely happy person is one who has rendered others happy.
+ - Youthfulness is not determined by age. It is determined by one’s life force. One who possesses hope is forever young. One who continually advances is forever beautiful.
+ - Ultimately, all human activities have as their goal the realization of happiness. Why, then, have we ended up producing the opposite result? Could the underlying cause be our failure to correctly understand the true nature of happiness?
+ - The eyes of a poet discover in each person a unique and irreplaceable humanity. While arrogant intellect seeks to control and manipulate the world, the poetic spirit bows with reverence before its mysteries.
+ - People need to be made conscious of a very simple reality: we have no choice but to share this planet, this small blue sphere floating in the vast reaches of space, with all of our fellow ‘passengers.’
+ - Faced with stress, too many people feel they have nowhere to turn to, that they don’t have access to the kind of friendships or communities where they can easily and openly share their problems and worries.
+ - Likewise, education can direct people toward good or evil ends. When education is based on a fundamentally distorted worldview, the results are horrific.
+ - It is crucial that we develop real awareness of ourselves as citizens of Earth, linked by mutual and indissoluble bonds. When we clearly recognize this reality and ground ourselves in it, we are compelled to take a strict accounting of our way of life.
+ - Where there is an absence of international political leadership, civil society should step in to fill the gap, providing the energy and vision needed to move the world in a new and better direction.
+ - The crucial thing is to arouse the awareness that as a matter of human conscience we can never permit the people of any country to fall victim to nuclear weapons, and for each individual to express their refusal to continue living in the shadow of the threat they pose.
+ - The economy is after all driven by people. No matter how dire the situation may be, as long as people are firm, a turnaround, revival and progress can be possible.
+ - Increase your joy by doing the good you wish to have done to you.
+ - When human beings live together, conflict is inevitable. War is not.
+ - It is natural for us, as human beings, to look forward. Our eyes naturally look ahead. In this sense, we are made for moving toward a goal.
+ - I believe that we must maintain pride in the knowledge that the actions we take, based on our own decisions and choices as individuals, link directly to the magnificent challenge of transforming human history.
+ - Rather than turning away from the staggering scale and depth of misery caused by war, we must strive to develop our capacity to empathize and feel the sufferings of others.
+ - It is by fighting and triumphing over the enemies of the Buddha that we ourselves become Buddhas.
+ - Having lived through the transition from totalitarianism, I am acutely mindful of the need to never take for granted the basic freedoms of thought, expression and belief that democracy brings.
+ - No matter what our personal circumstances may be, if we ourselves become a source of light, then there will be no darkness in the world.
+ - Patience is, in and of itself, a great challenge and it often holds the key to breaking through a seeming impasse.
+ - But I believe we must not allow feelings of defeat to take root in our hearts.
+ - Anyone who has ever made a resolution discovers that the strength of their determination fades with time. The important thing is not that your resolve never wavers, but that you don’t get down on yourself when it does and throw in the towel.
+ - We are not merely passive pawns of historical forces; nor are we victims of the past. We can shape and direct history.
+ - Since ancient times, people from throughout Asia have brought to Japan their talents, knowledge and energy, helping to lay the basis for Japan’s existence as a country.
+ - But I think we need to remember that democracy everywhere is by its nature incomplete, a work in progress.
+ - You must not for one instant give up the effort to build new lives for yourselves. Creativity means to push open the heavy, groaning doorway to life.
+ - So long as nuclear weapons continue to exist, so will the temptation to threaten others with overwhelming military force.
+ - True happiness means forging a strong spirit that is undefeated, no matter how trying our circumstances.
+ - Men and women who know the brutal reality of war, who know that war strips people of their very humanity, must unite in a new global partnership for peace.
+ - Like the ocean that remains calm in its depths even when waves rage over its surface, and like the sun that continues shining on high even during storms, we can at each moment create value and develop our state of life, enjoying our existence to the fullest in times of both suffering and joy.
+ - People who are rooted in the here and now, who are not defeated by their limitations, who don’t compare themselves to others, who confidently advance along their chosen path-such people are happy, such people are truly great.
+ - The place where you are now is vital. The path toward victory opens from where you stand.
+ - Human rights will be a powerful force for the transformation of reality when they are not simply understood as externally defined norms of behavior but are lived as the spontaneous manifestation of internalized values.
+ - I cannot say this too strongly: Do not compare yourselves to others. Be true to who you are, and continue to learn with all your might.
+ - In the past, human society provided encouragement and opportunity for people to extend support to each other, especially in highly stressful situations.
+ - The course of our lives is determined by how we react – what we decide and what we do – at the darkest of times. The nature of that response determines a person’s true worth and greatness.
+ - The gratification of desire is not happiness.
+ - We must take steps to prevent further nuclear weapons development or modernization.
+ - What may look like a small act of courage is courage nevertheless. The important thing is to be willing to take a step forward.
+ - History is filled with tragic examples of wars that result from diplomatic impasse. Whether in our local communities or in international relations, the skillful use of our communicative capacities to negotiate and resolve differences is the first evidence of human wisdom.
+ - Buhhdism is wisdom. As long as we have wisdom, we can put all things to the best use, we can turn everything in the direction of happiness.
+
+181 quotes

@@ -1,0 +1,56 @@
+ - Reading is important – read between the lines. Don’t swallow everything.
+ - Poetry is life distilled.
+ - Live not for Battles Won. Live not for The-End-of-the-Song. Live in the along.
+ - We are each other’s harvest; we are each other’s business; we are each other’s magnitude and bond.
+ - We real cool. We Left school. We Lurk late. We Strike straight. We Sing sin. We Thin gin. We Jazz June. We Die soon.
+ - Books are meat and medicine and flame and flight and flower steel, stitch, cloud and clout, and drumbeats on the air.
+ - Do not desire to fit in. Desire to oblige yourselves to lead.
+ - I felt that I had to write. Even if I had never been published, I knew that I would go on writing, enjoying it and experiencing the challenge.
+ - This is the urgency: Live! and have your blooming in the noise of the whirlwind.
+ - I am a writer perhaps because I am not a talker.
+ - Say to them, say to the down-keepers, the sun-slappers, the self-soilers, the harmony-hushers, “Even if you are not ready for day it cannot always be night.” You will be right. For that is the hard home-run. Live not for battles won. Live not for the-end-of-the-song. Live in the along.
+ - Writing is a delicious agony.
+ - First fight. Then fiddle.
+ - A writer should get as much education as possible, but just going to school is not enough; if it were, all owners of doctorates would be inspired writers.
+ - The poetry is myself.
+ - Good health is a duty to yourself, to your contemporaries, to your inheritors, to the progress of the world.
+ - Truth-tellers are not always palatable. There is a preference for candy bars.
+ - Life for my child is simple, and is good.
+ - Goodness begins simply with the fact of life itself.
+ - To be in love Is to touch things with a lighter hand. In yourself you stretch, you are well.
+ - We don’t ask a flower any special reason for its existence. We just look at it and are able to accept it as being something different from ourselves.
+ - I am a writer perhaps because I am not a talker. It has always been hard for me to say exactly what I mean in speech But if I have written a clumsiness, I may erase it.
+ - One reason that cats are happier than people is that they have no newspapers.
+ - Be careful what you swallow. Chew!
+ - I know that the Black emphasis must be not against white but FOR Black.
+ - I don’t like the idea of the black race being diluted out of existence. I like the idea of all of us being here.
+ - I think there are things for all of us to do as long as we’re here and we’re healthy.
+ - What, what am I to do with all of this life?
+ - I’ve always thought of myself as a reporter.
+ - I like the concentration, the crush; I like working with language, as others like working with clay, or notes.
+ - With melted opals for my milk, Pearl-leaf for my cracker.
+ - Words can do wonderful things. They pound, purr. They can urge, they can wheedle, whip, whine. They can sing, sass, singe. They can churn, check, channelize. They can be a “Hup two three four.” They can forge a fiery army of a hundred languid men.
+ - Each body has its art...
+ - It is brave to be involved. To be not fearful to be unresolved.
+ - As you get older, you find that often the wheat, disentangling itself from the chaff, comes out to meet you.
+ - The civil rights situation is like a pregnancy. It will get worse, I believe, before it gets better. What the usual pregnancy comes to is a decent baby. That is what we all hope will be the end product of this stress. It is customary, at the end of a pregnancy, to have for your pains a decent baby.
+ - She was learning to love moments. To love moments for themselves.
+ - Nothing could stop Mississippi.
+ - Abortions will not let you forget. You remember the children you got that you did not get.
+ - Already I am no longer looked at with lechery or love.
+ - Be yourself. Don’t imitate other poets. You are as important as they are.
+ - No man can give me any word but Wait...
+ - The forties and fifties were years of high poet-incense; the language-flowers were thickly sweet. Those flowers whined and begged white folks to pick them, to find them lovable. Then the ’60s: Independent fire!
+ - I am interested in telling my particular truth as I have seen it.
+ - When I start writing a poem, I don’t think about models or about what anybody else in the world has done.
+ - I’ve always thought of myself as a reporter. When people ask why I don’t stop writing, I say, ‘Look at what’s happening in this world. Every day there’s something exciting or disturbing to write about.’ With all that’s going on, how could I stop?
+ - Art is a refining and evocative translation of the materials of the world.
+ - When white and black meet today, sometimes there is a ready understanding that there has been an encounter between two human beings. But often there is only, or chiefly, an awareness that Two Colors are in the room.
+ - There can be no whiter whiteness than this one: An insurance man’s shirt on its morning run.
+ - I don’t want people running around saying Gwen Brooks’s work is intellectual. That makes people think instantly about obscurity. It shouldn’t have to mean that, but it often seems to.
+ - We are each other’s magnitude and bond.
+ - I believe we should all know each other, we human carriers of so many pleasurable differences. To not know is to doubt, to shrink from, sidestep or destroy.
+ - I tell poets that when a line just floats into your head, don’t pay attention ’cause it probably has floated into somebody else’s head.
+ - The music is in minors.
+
+54 quotes

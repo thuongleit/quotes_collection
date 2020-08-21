@@ -1,0 +1,34 @@
+ - A conservative is a liberal mugged by reality.
+ - Being frustrated is disagreeable, but the real disasters of life begin when you get what you want.
+ - Nostalgia is one of the legitimate and certainly one of the most enduring of human emotions; but the politics of nostalgia is at best distracting, at worst pernicious.
+ - A neoconservative is a liberal who’s been mugged by reality. A neoliberal is a liberal who’s been mugged by reality but has refused to press charges.
+ - Power breeds responsibilities, in international affairs as in domestic – or even private. To dodge or disclaim these responsibilities is one form of the abuse of power.
+ - No modern nation has ever constructed a foreign policy that was acceptable to its intellectuals.
+ - Democracy does not guarantee equality of conditions – it only guarantees equality of opportunity.
+ - What rules the world is idea, because ideas define the way reality is perceived.
+ - Even if we can’t be happy, we must always be cheerful.
+ - The liberal paradigm of regulation and license has led to a society where an 18-year-old girl has the right to public fornication in a pornographic movie – but only if she is paid the minimum wage.
+ - The danger facing American Jews today is not that Christians want to persecute them but that Christians want to marry them.
+ - The enemy of liberal capitalism today is not so much socialism as nihilism.
+ - Joining a radical movement when one is young is very much like falling in love when one is young. The girl may turn out to be rotten, but the the experience of love is so valuable it can never be entirely undone by the ultimate disenchantment.
+ - I regard myself to have been a young Trostkyite and I have not a single bitter memory.
+ - If you care for the quality of life in our American democracy, then you have to be for censorship.
+ - I have observed over the years that the unanticipated consequences of social action are always more important, and usually less agreeable, than the intended consequences.
+ - It was a new kind of class war – the people as citizens versus the politicians and their clients in the public sector.
+ - You have to know one big thing and stick with it. The leaders who had one very big idea and one very big commitment. This permitted them to create something. Those are the ones who leave a legacy.
+ - The really difficult moral issues arise, not from a confrontation of good and evil, but from a collision between two goods.
+ - An intellectual may be defined as a man who speaks with general authority about a subject on which he has no particular competence.
+ - Anyone who knows anything about journalism knows that reporters are rarely in a position to investigate anything. They lack the authority to subpoena witnesses, to cross-examine, to scrutinize official records. They are lucky to get their phone calls returned.
+ - If you believe that no one was ever corrupted by a book, you have also to believe that no one was ever improved by a book.
+ - People need religion. It’s a vehicle for a moral tradition. A crucial role. Nothing can take its place.
+ - If your aims as a donor are modest, you can accomplish an awful lot. When your aims become elevated beyond a reasonable level, you not only don’t accomplish much, but you can cause a great deal of damage.
+ - It is ironic to watch the churches, including large sections of my own religion, surrendering to the spirit of modernity at the very moment when modernity itself is undergoing a kind of spiritual collapse...
+ - One can be unhappy before eating caviar, even after, but at least not during.
+ - There is nothing like a parade to elicit the proper respect for the military from the populace.
+ - Young people, especially, are looking for religion so desperately that they are inventing new ones. They should not have to invent new ones; the old religions are pretty good.
+ - The major political event of the twentieth century is the death of socialism.
+ - The trouble with traditional American conservatism is that it lacks a naturally cheerful, optimistic disposition. Not only does it lack one, it regards signs of one as evidence of unsoundness, irresponsibility.
+ - A welfare state, properly conceived, can be an integral part of a conservative society.
+ - The problem is efforts by liberals to establish a wall between religion and society, in the guise of maintaining the wall between church and state.
+
+32 quotes

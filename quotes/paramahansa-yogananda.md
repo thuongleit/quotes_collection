@@ -1,0 +1,255 @@
+ - Persistence guarantees that results are inevitable.
+ - Do your best and then relax. Let things go on in a natural way, rather than force them.
+ - Nothing is impossible unless you think it is.
+ - Do your best and then relax.
+ - Kindness is the light that dissolves all walls between souls, families, and nations.
+ - In that power of self-control lies the seed of eternal freedom.
+ - Change yourself and you have done your part in changing the world.
+ - Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become.
+ - Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts.
+ - Be kind to others, so that you may learn the secret art of being kind to yourself.
+ - Environment is stronger than will power.
+ - What are you afraid of? You are an immortal being. You are neither a man nor a woman, as you may think, but a soul – joyous, eternal.
+ - Stillness is the altar of spirit.
+ - Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along.
+ - If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you.
+ - Loyalty is the first law of God.
+ - Do not take life’s experiences too seriously. For in reality they are nothing but dream experiences. Play your part in life, but never forget that it is only a role.
+ - You must not let your life run in the ordinary way; do something that nobody else has done, something that will dazzle the world. Show that God’s creative principle works in you.
+ - When we serve others, we serve ourselves. Do not think, I will help others – think rather, I will help my own, my world, because I cannot otherwise be happy.
+ - Happiness lies in making others happy, in forsaking self-interest to bring joy to others.
+ - Humans become angels on earth, not in heaven.
+ - Some people try to be tall by cutting off the heads of others.
+ - Learn to be calm and you will always be happy.
+ - Realize that enough hidden strength lies within you to overcome all obstacles and temptations. Bring forth that indomitable power and energy.
+ - Be honest with yourself. The world is not honest with you. The world loves hypocrisy. When you are honest with yourself you find the road to inner peace.
+ - To commune daily with God in deep meditation, and to carry His love and guidance with you into all your dutiful activities, is the way that leads to permanent peace and happiness.
+ - It doesn’t matter if a cave has been in darkness for 10,000 years or half an hour, once you light a match it is illuminated.
+ - A smooth life is not a victorious life.
+ - It is spiritual poverty, not material lack, that lies at the core of all human suffering.
+ - As I radiate love and goodwill to others, I will open the channel for God’s love to come to me.
+ - Truth is not afraid of questions.
+ - A good rule in life is to tell yourself simply, ’What comes of itself, let it come.
+ - Seek spiritual riches within. What you are is much greater than anyone or anything else you have ever yearned for.
+ - Self-realization is, in fact, the only religion. For it is the true purpose of religion, no matter how people define their beliefs.
+ - If you are in a dark room, don’t beat at the darkness with a stick, but rather try to turn on the light.
+ - Freedom means the power to act by soul guidance, not by the compulsions of desires and habits. Obeying the ego leads to bondage; obeying the soul brings liberation.
+ - Love is the Song of the Soul singing to God.
+ - Your success in life does not altogether depend on ability and training; it also depends on your determination to grasp opportunities that are presented to you.
+ - By the practice of meditation, you will find that you are carrying within your heart a portable paradise.
+ - Retire to the center of your being, which is calmness.
+ - Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean.
+ - Read a little. Meditate more. Think of God all the time.
+ - Since you alone are responsible for your thoughts, only you can change them.
+ - Know that this universe is nothing but a dream bluff of nature to test your consciousness of immortality.
+ - Each minute of life should be a divine quest.
+ - Work for god, love god alone, and be wise with god. When an ordinary man puts the necessary rime and enthusiasm into meditation and prayer, he becomes a divine man.
+ - Untrained warriors are soon killed on the battlefield; so also persons untrained in the art of preserving their inner peace are quickly riddled by the bullets of worry and restlessness in active life.
+ - Weaken a bad habit by avoiding everything that occasioned it or stimulated it, without concentrating upon it in your zeal to avoid it. Then divert your mind to some good habit and steadily cultivate it until it becomes a dependable part of you.
+ - Intuition is the discriminative faculty that enables you to decide which of two lines of reasoning is right. Perfect intuition makes you a master of all.
+ - Come into the silence of solitude, and the vibration there will talk to you through the voice of God.
+ - Calmness is the living breath of God’s immortality in you.
+ - Success is hastened or delayed by one’s habits. It is not your passing inspirations or brilliant ideas so much as your everyday mental habits that control your life.
+ - With right attitude, life is very simple and very easy.
+ - Most of the world is like a mental hospital. Some persons are sick with jealousy, others with anger, hatred, passion. They are victims of their habits and emotions. But you can make your home a place of peace.
+ - Have only love in your heart for others. The more you see the good in them, the more you will establish good in yourself.
+ - When you exercise your will power you release the power of life energy – not when you merely wish passively to be able to obtain an objective.
+ - Mind is the creator of everything.
+ - Fearlessness means faith in God: faith in his protection, His justice, His wisdom, His mercy, His love, and His Omnipresence... To be fit for Self-realization man must be fearless.
+ - Through the portals of silence the healing sun of wisdom and peace will shine upon you.
+ - When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything.
+ - Meditation is like giving a hug to our ourselves, getting in touch whith that awesome reality in us. While meditating we feel a deep sense of intimacy with God, a love that is inexplicable.
+ - I will be calmly active, actively calm. I am a prince of peace, sitting on the throne of poise, directing the kingdom of my activity.
+ - The spine is the highway to the Infinite. Your own body is the temple of God. It is within your own self that God must be realized.
+ - Love is the heartbeat of all life.
+ - The Bhagavad-Gita is where God Himself talks to His devotee Arjuna.
+ - You are walking on the earth as in a dream. Our world is a dream within a dream; you must realize that to find God is the only goal, the only purpose, for which you are here. For Him alone you exist. Him you must find.
+ - God is simple, everything else is complex.
+ - Whenever you want to produce something, do not depend upon the outside source: go deep and seek the Infinite Source.
+ - Success is hastened or delayed by one’s habits.
+ - A saint is a sinner who never gave up.
+ - Every night in sleep God takes away all your troubles to show you that you are not a mortal being; you are spirit.
+ - The seeker of God is the real lover of vidya, unchangeable truth; all else is avidya, relative knowledge.
+ - If you have a strong mind and plant in it a firm resolve, you can change your destiny.
+ - The wave is the same as the ocean, though it is not the whole ocean. So each wave of creation is a part of the eternal Ocean of Spirit. The Ocean can exist without the waves, but the waves cannot exist without the Ocean.
+ - He who is persistent will realize God. So try your best to make meditation a regular experience in your life.
+ - I am no longer the wave of consciousness thinking itself separated from the sea of cosmic consciousness. I am the ocean of Spirit that has become the wave of human life.
+ - Happiness blooms naturally in the hearts of those who are inwardly free. It flows spontaneously, like a mountain spring after April showers, in minds that are contented with simple living.
+ - Smiling away your troubles requires a clear conscience that harbors no insincerity.
+ - If you permit your thoughts to dwell on evil you yourself will become ugly. Look only for the good in everything so you absorb the quality of beauty.
+ - Bring into play the almighty power within you, so that on the stage of life you can fulfill your high destined role.
+ - When you know God as peace within, then you will realize Him as peace existing in the universal harmony of all things without.
+ - Forget the past. The vanished lives of all men are dark with many shames. Human conduct is ever unreliable until man is anchored in the Divine. Everything in future will improve if you are making a spiritual effort now.
+ - A harmonized mind produces harmony in this world of seeming discord.
+ - You must stand unshaken amidst the crash of breaking worlds.
+ - Remain quiet. Don’t feel you have to talk all the time. Go within and you will see the Loveliness behind all beauty.
+ - He who finds joy within himself discovers that his body is charged with electric current, life energy, not from food but from God.
+ - Self-realization is the knowing in all parts of body, mind, and soul that you are now in possession of the kingdom of God.
+ - People are running, running, but there is no place in the world to which they can flee to escape themselves. Ultimately, each one must face himself.
+ - If you open the door to the magnetic power of friendship, souls of like vibrations will be attracted to you.
+ - The Divine has loved me as mother, as father, and as friend, behind all friends. I searched for that one Friend behind all friends, that one lover whom I now see glimmering in all your faces. And that friend never fails me.
+ - We don’t become angels merely by the instrument of death. If we are angels now, we will be angels in the hereafter. If we are dark, negative personalities now, we will be the same after death.
+ - The deeper the Self-realization of a man, the more he influences the whole universe by his subtle spiritual vibrations, and the less he himself is affected by the phenomenal flux.
+ - I don’t want people to think that they can attain realization simply by listening to others or by reading books. They must practice what they read and hear.
+ - Peace is the altar of God, the condition in which happiness exists.
+ - The season of failure is the best time for sowing the seeds of success.
+ - We are all part of the One Spirit. When you experience the true meaning of religion, which is to know God, you will realize that He is your Self, and that He exists equally and impartially in all beings.
+ - To work with God’s happiness bubbling in the soul is to carry a portable paradise within you wherever you go.
+ - Sincerity is a soul quality that God has given to every human being, but not all express it.
+ - Nothing may truly be said to be a miracle except in the profound sense that everything is a miracle.
+ - To me there is no difference between one person and another; I behold all as soul-reflection s of the one God. I can’t think of anyone as a stranger, for I know that we are all part of the One Spirit.
+ - The mother’s love is not given to us to spoil us with indulgence, but to soften our hearts, that we may in turn soften others with kindness.
+ - I relax and cast aside all mental burdens, allowing God to express through me His perfect love, peace, and wisdom.
+ - If God calls me tomorrow I will go without a moment’s turning back.
+ - Proper visualization by the exercise of concentration and willpower enables us to materialize thoughts, not only as dreams or visions in the mental realm, but also as experiences in the material realm.
+ - There is a magnet in your heart that will attract true friends. That magnet is unselfishness, thinking of others first; when you learn to live for others, they will live for you.
+ - Humbly serving all with their beauty, flowers say more to us about God than anything else. Each one brings a message that the Heavenly Father is right here.
+ - Self-realization means to know truth through yourself, and not through others. By seeking God first, through Self-realization, all things-strength, power, prosperity, wisdom, health, and immortality-will be added unto you.
+ - With the opening of the New Year, all the closed portals of limitations will be thrown open and I shall move through them to vaster fields, where my worthwhile dreams of life will be fulfilled.
+ - Your trials did not come to punish you, but to awaken you – to make you realise that you are a part of Spirit and that just behind the sparks of your life is the Flame of Infinity.
+ - He who conquers the mind, conquers the world.
+ - No matter what you are doing, keep the undercurrent of happiness. Learn to be secretly happy within your heart in spite of all circumstances.
+ - Is a diamond less valuable because it is covered with mud? God sees the changeless beauty of our souls. He knows we are not our mistakes.
+ - Music that is saturated with soul force is the real universal music, understandable by all hearts.
+ - When, by meditation, we withdraw restless thoughts from the lake of the mind, we behold our soul, a perfect reflection of Spirit.
+ - Through every trial we grow. All suffering we experience has a meaning. Though it seems very cruel, it is like the fire that smelts the iron ore: the steel that emerges from that furnace is beautifully strong, useful for many purposes.
+ - Truths are not truths to you unless you realize them within yourself. Without realization, they are just ideas. For spiritual perception, spiritual consciousness, lies not in vague theological ideas, but in the acquisition of Self-realization.
+ - As you forget self in service to others, you will find that, without seeking it, your own cup of happiness will be full.
+ - Whatever you want others to be, first be that yourself. Then, you will find others responding in like manner to you.
+ - Truth is exact correspondence with reality.
+ - Success should be measured by the yardstick of happiness; by your ability to remain in peaceful harmony with cosmic laws.
+ - The power of unfulfilled desires is the root of all man’s slavery.
+ - From joy I came, for joy I live, in sacred joy I melt.
+ - He who has realized oneness with God possesses all knowledge contained in Him. Knowing the Lord as Beginning and End of all beings and worlds, a true Brahmin has knowledge of the hereafter and of the workings of nature on this plane of existence.
+ - Harmony with nature will bring you a happiness known to few city dwellers. In the company of other truth seekers it will be easier for you to meditate and think of God.
+ - Love is the song of the soul singing to God. It is the balanced rhythmic dance of planets – sun and moon lit.
+ - The soul loves to meditate, for in contact with the Spirit lies its greatest joy. If, then you experience mental resistance during meditation, remember that reluctance to meditate comes from the ego; it doesn’t belong to the soul.
+ - Making others happy, through kindness of speech and sincerity of right advice, is a sign of true greatness. To hurt another soul by sarcastic words, looks, or suggestions, is despicable.
+ - Beginning with the early dawn of each day, I will radiate joy to everyone I meet. I will be mental sunshine for all who cross my path. Before the unfailing light of my cheer, darkness will take flight.
+ - Seclusion is the price of greatness.
+ - May Thy Love shine forever on the sanctuary of my devotion. And may I be able to awaken Thy love in all hearts.
+ - If religion means primarily God-consciousness, or the realization of God both within and without, and secondarily a body of beliefs, tenets and dogmas, then, strictly speaking, there is but one religion in the world, for there is but one God.
+ - As a mortal being you are limited, but as a child of God you are unlimited... Focus your attention on God, and you shall have all the power you want, to use in any direction.
+ - Through love and sincerity continuously beautify your inner life in every way, by daily looking into the mirror of introspection.
+ - Roam in the world as a lion of self-control; see that the frogs of weakness don’t kick you around.
+ - Through the orifice of silence, the whole geyser of Bliss, perpetually shoots up and flows over the soul.
+ - Evil spreads with the wind; truth is capable of spreading even against it.
+ - When you learn to live for others, they will live for you.
+ - Everything is Spirit – in essence, though hidden in manifestation. If you had the perception, you would see God in everything.
+ - Every tomorrow is determined by every today.
+ - Meet everybody and every circumstance on the battlefield of life with the courage of a hero and the smile of a conqueror.
+ - Thought is the primary energy and vibration that emanated from God and is thus the creator of life, electrons, atoms, and all forms of energy.
+ - Wise guidance never violates people’s Free Will. A superior who demands obedience of his subordinates should show respect for their capacity to understand, and also for their Innate Right to their own Free Will.
+ - Have the unflinching determination to move on your path unhampered by limiting thoughts of past errors.
+ - Spirit is the vast stillness which is behind all created things.
+ - Strengthen your mind and refuse to carry the burden of mental and moral weakness acquired in past years; burn them in the fires of your present divine resolutions and right activities. By this constructive attitude you will attain freedom.
+ - Many people excuse their own faults but judge other persons harshly. We should reverse this attitude by excusing others’ shortcomings and by harshly examining our own.
+ - In the state of love, no matter what you do, it’s going to be good.
+ - Be careful what you choose to do consciously, for unless your will is very strong, that is what you may have to do repeatedly and compulsively through the habit-influencing power of the subconscious mind.
+ - Affirm divine calmness and peace, and send out only thoughts of love and goodwill if you want to live in peace and harmony. Never get angry, for anger poisons your system.
+ - Behold thine immortal Self resurrected with Christ in the illuminating Light of Christ Consciousness, present in every soul, every flower, every atom.
+ - From joy people are born; for joy they live; in joy they melt at death. Death is an ecstasy, for it removes the burden of the body and frees the soul of all pain springing from body identification. It is the cessation of pain and sorrow.
+ - The greater the will, the greater the flow of energy.
+ - Success is not rightly measured by wealth, prestige and power. Success is measured by the yardstick of happiness.
+ - Words saturated with sincerity, conviction, faith, and intuition are like highly explosive vibration bombs, which, when set off, shatter the rocks of difficulties and create the change desired.
+ - Death is only an experience through which you are meant to learn a great lesson: you cannot die.
+ - Never do anything that taints your mind. Wrong actions cause negative or evil mental vibrations that are reflected in your whole appearance and personality. Engage in those actions and thoughts that nurture the good qualities you want to have.
+ - Carrying a thought with dynamic will power means holding it until that thought pattern develops dynamic force. When a thought is made dynamic by will force, it can manifest according to the mental blueprint you have created.
+ - Forget your dream-born mortal weakness. Wake up and know that you and God are one.
+ - As a broken microphone cannot broadcast a message, so a restless mind cannot transmit prayers to God.
+ - Sing songs that none have sung.
+ - As God is omnipresent in the cosmos but is undisturbed by its variety, so man, who as a soul is individualized Spirit, must learn to participate in this cosmic drama with a perfectly poised and equilibrated mind.
+ - Before embarking on important undertakings sit quietly calm your senses and thoughts and meditate deeply. You will then be guided by the great creative power of Spirit.
+ - God made us angels of energy, encased in solids – currents of life dazzling through a material bulb of flesh.
+ - One may have many teachers, but only one guru, who remains as one’s guru even in many different lives, until the disciple reaches the final goal of emancipation in God. You must remember this, once that relationship is formed.
+ - In the spiritual life one becomes just like a little child, without resentment, without attachment, full of life and joy.
+ - Thinkers do not accept the inevitable; they turn their efforts toward changing it.
+ - Today I forgive all those who have ever offended me. I give my love to all thirsty hearts, both to those who love me and to those who do not love me.
+ - Just behind the darkness of closed eyes shines the light of God. When you behold that light in meditation, hold onto it with devotional zeal. Feel yourself inside it: That is where God dwells.
+ - Remember this: When I am gone, only love can take my place. Be absorbed night and day in the love of God, and give that love to all.
+ - Never be petty. Do not feed resentments against anyone. I prefer good-hearted sinners to so called good people who are intolerant and devoid of compassion. Being spiritual is to have an open mind, understand and forgive, and be friends with everyone.
+ - Some form of self-discipline is necessary to transmute material desires into spiritual aspirations.
+ - The true basis of religion is not belief, but intuitive experience. Intuition is the soul’s power of knowing God. To know what religion is really all about, one must know God.
+ - Absolute, unquestioning faith in God is the greatest method of instantaneous healing. An unceasing effort to arouse that faith is man’s highest and most rewarding duty.
+ - As water by cooling and condensation becomes ice, so thought by condensation assumes physical form. Everything in the universe is thought in material form.
+ - People are so skillful in their ignorance!
+ - By the definite science of meditation known for millenniums to the yogis and sages of India, and to Jesus, any seeker of God can enlarge the caliber of his consciousness to omniscience to receive within himself the Universal Intelligence of God.
+ - Find god – he isn’t hiding from you, you’re hiding from him.
+ - God is love. His plan for creation can only be rooted in love. Does not that simple thought, rather than erudite reasoning, offer solace to the human heart?
+ - When you worry, there is static coming through your mind radio. God’s song is the song of calmness. Nervousness is the static; calmness is the voice of God speaking to you through the radio of your soul.
+ - Success is not rightly measured by the worldly standards of wealth, prestige and power. None of these bestow happiness unless they are rightly used. To use them rightly one must possess wisdom and love for God and man.
+ - Those persons who have perceptive eyes enjoy beauty everywhere.
+ - Intuition is soul guidance, appearing naturally in man during those instants when his mind is calm.
+ - The reality of my life cannot die for I am indestructible consciousness.
+ - Fear was given to man as a cautionary device to spare him pain; it is not mean to be cultivated and abused.
+ - Coercion or compulsion never brings about growth. It is freedom that accelerates evolution.
+ - We do not always see the things that are nearest to us. We pass by riches that lie close at hand and chase after rainbows.
+ - The Spirit of God, I realized, is exhaustless Bliss; His body is countless tissues of light.
+ - A wish is a desire without energy.
+ - Release for constructive purposes the power you already have, and more will come. Move on your path with unflinching determination, using all the attributes of success. Tune yourself with the creative power of spirit.
+ - The greatest romance is with the Infinite.
+ - Divisions are imaginary lines drawn by small minds.
+ - With the realization of God comes all power. If the little wave knew that behind it is the great ocean, it could say, “I am the ocean.” You should realize that just behind your consciousness is the Ocean of God.
+ - If you possess happiness you possess everything: to be happy is to be in tune with God.
+ - You do not have to struggle to reach God, but you do have to struggle to tear away the self-created veil that hides him from you.
+ - The man form is higher than the angel form; of all forms it is the highest. Man is the highest being in creation, because he aspires to freedom.
+ - It is foolish to be afraid of death. Just think. No more repaired tires on the body vehicle, no more patchwork living.
+ - Analyze yourself. All emotions are reflected in the body and mind. Envy and fear cause the face to pale, love makes it glow.
+ - We are what we think we are. The habitual inclination of our thoughts determines our talents and abilities, and our personality. So whatever you want to be, start to develop that pattern now.
+ - Keep puffing on the bubble until it breaks its confining walls and becomes the sea of joy.
+ - Your part is to awaken your desire to accomplish your worthy objectives. Then whip your will into action until it follows the way of wisdom that is shown to you.
+ - Medicine has its limitations, Life Force has none.
+ - Those in the West who have adopted Christ as their own should remember that he was an Oriental. Love and sympathy for Jesus should be expanded into love and sympathy for all Orientals, and for all the world.
+ - We should bathe our spirits in the deep, pure feeling that stirs within us when we gaze on the glories of His creation. This is the way to know God as beauty.
+ - Each time a swarm of worries invades your mind, refuse to be affected; wait calmly, while seeking the remedy. Spray the worries with the powerful chemical of your peace.
+ - To face death itself should not daunt you. Fear of death is ridiculous, because as long as you are not dead you are alive, and when you are dead there is noting more to worry about!
+ - As you find your soul-reservoir of peace, less and less controversy will be able to afflict your life.
+ - Little stones that are pelted into the lake of consciousness should not throw the whole lake into commotion.
+ - Extend the boundaries of the glowing kingdom of your love, gradually including your family, your neighbors, your community, your country, all countries – all living sentient creatures.
+ - The rains of Life’s Blessings cannot gather on mountaintops of pride, but flow easily into valleys of humbleness.
+ - As God talked with Arjuna, so will He talk with you. As He lifted up the spirit and consciousness of Arjuna, so will He uplift you. As he granted Arjuna supreme spiritual vision, so will He confer enlightenment on you.
+ - You naturally love those who are dear to you, and you must learn to give that kind of love to the whole world.
+ - The time will come when mankind will begin to get away from the consciousness of needing so many material things. More security and peace will be found in the simple life.
+ - Self-realization may be and sometimes is attained even by people who are struggling with sick and otherwise imperfect bodies; but it cannot be attained unless one can concentrate and meditate uninterruptedly upon God.
+ - Love cannot be had for the asking; it comes only as a gift from the heart of another.
+ - You have come to earth to entertain and to be entertained.
+ - When you learn to get along with yourself, you will know how to get along with everybody.
+ - Just as oil is present in every part of the olive, so love permeates every part of creation.
+ - God-realization is attained only by great effort on the part of the yogi and by divine grace.
+ - The kingdom of God is just behind the darkness of closed eyes, and the first gate that opens to it is your peace.
+ - So long as we believe in our heart of hearts that our capacity is limited and we grow anxious and unhappy, we are lacking in faith. One who truly trusts in God has no right to be anxious about anything.
+ - One cannot tell when he is going to be healed, so do not try to set an exact time limit. Faith, not time, will determine when the cure will be effected.
+ - Great healers, people of divine realization, do not cure by chance but by exact knowledge.
+ - Be afraid of nothing. Hating none, giving love to all, feeling the love of God, seeing His presence in everyone, and having but one desire – for His constant presence in the temple of your consciousness – that is the way to live in this world.
+ - How you all will change the work after I am gone. If I came back a hundred years from now, I just wonder if I would even recognize it.
+ - No action is ever an isolated event. Always, it invites from the universe a reaction that corresponds exactly to the type and the force of energy behind the deed.
+ - Always remember, nothing can touch you if you inwardly love God.
+ - The so-called miraculous powers of a great master are a natural accompaniment to his exact understanding of subtle laws that operate in the inner cosmos of consciousness.
+ - The happiness of one’s own heart alone cannot satisfy the soul; one must try to include, as necessary to one’s own happiness, the happiness of others.
+ - Whatever I do, I do with the greatest love that I have in me. Try this, and you will see that you do not become fatigued at all. Love is one of the greatest stimulants to the will. Under the influence of love the will can do almost anything.
+ - The more you meditate, the more helpful you can be to others, and the more deeply you will be in tune with God.
+ - The things you need in life are those that will help you to fulfill your dominant purpose. Things you may want but not need may lead you aside from that purpose. It is only by making everything serve your main objective that success is attained.
+ - Be inwardly ever newly joyous, like the ever-fresh laughing waters of a gurgling brook.
+ - Do not think of yourself as the body, but as the joyous consciousness and immortal life behind it.
+ - It is better to meditate a little bit with depth than to mediate long with the mind running here and there. If you do not make an effort to control the mind it will go on doing as it pleases, no matter how long you sit to meditate.
+ - You had to fight to get into the womb. Not only you but many souls rushed to enter, and the ones that won are you, and you and I. It was not an easy victory.
+ - The soul’s first adventure is the fight between two ideas: the wish to return to earth in a human form, and the desire to feel the freedom of having no form.
+ - Faithfulness in the performance of small duties gives us strength to adhere to difficult determinations that life will someday force us to make.
+ - No one appears on our stage unless the director has placed them there for our benefit.
+ - Subtle astral colors... are hidden in everything around you. Could you but see, you would be amazed at their beauty.
+ - Truths are more than imagination; they are real. Yet their origin is a thought in the mind of God.
+ - Through Self-realization man becomes aware of true values as to his place in the divine plan and his relation to the past, present, and future of mankind.
+ - It is blessedness for yourself and others if you are happy.
+ - Most people consider the course of events as natural and inevitable. They little know what radical changes are possible through prayer.
+ - There are always two forces warring against each other within us.
+ - Never neglect what you can do for yourself in the form of another.
+ - Consider no one a stranger. Learn to feel that everybody is akin to you.
+ - In your heart must well that sympathy which soothes away all pains from the hearts of others.
+ - I come not to entertain you with worldly festivities but to arouse your sleeping memory of immortality.
+ - An artist doesn’t really create anything – he just rearranges what is already there.
+ - Those who are socially inclined will find a new power to help humanity through the lessons of books written by noble and gifted people.
+ - The Spirit could not create matter as anything different from Itself, for it had only Itself as the tissue or material with which to build the cosmos.
+ - You don’t know what is going to come to you in this world; you have to go on living and worrying. Those who die are pitying us; they are blessing us. Why should you grieve for them?
+ - Another qualification of success is that we not only bring harmonious and beneficial results to ourselves, but also share those benefits with others.
+
+253 quotes

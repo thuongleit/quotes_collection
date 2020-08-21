@@ -1,0 +1,147 @@
+ - Punctuality is the virtue of the bored.
+ - If a thing’s worth doing at all, it’s worth doing well.
+ - To understand all is to forgive all.
+ - You have no idea how much nastier I would be if I was not a Catholic. Without supernatural aid I would hardly be a human being.
+ - When we argue for our limitations, we get to keep them.
+ - O God, make me good, but not yet.
+ - One forgets words as one forgets names. One’s vocabulary needs constant fertilizing or it will die.
+ - Where can we hide in fair weather, we orphans of the storm?
+ - If it could only be like this always – always summer, always alone, the fruit always ripe and Aloysius in a good temper...
+ - Your actions, and your action alone, determines your worth.
+ - These memories, which are my life – for we possess nothing certainly except the past – were always with me.
+ - After all, damn it, what does being in love mean if you can’t trust a person.
+ - A work of art is not a matter of thinking beautiful thoughts or experiencing tender emotions, but of intelligence, skill, taste, proportion, knowledge, discipline and industry; especially discipline.
+ - We cherish our friends not for their ability to amuse us, but for ours to amuse them.
+ - Almost all crime is due to the repressed desire for aesthetic expression.
+ - We possess nothing certainly except the past.
+ - Of children as of procreation – the pleasure momentary, the posture ridiculous, the expense damnable.
+ - Only when one has lost all curiosity about the future has one reached the age to write an autobiography.
+ - I regard writing not as an investigation of character but as an exercise in the use of language, and with this I am obsessed.
+ - I felt that I was leaving part of myself behind, and that wherever I went afterwards I should feel the lack of it, and search for it hopelessly, as ghosts are said to do, frequenting the spots where they buried material treasures without which they cannot pay their way to the nether world.
+ - I prefer all but the very worst travel books, to all but the very best novels.
+ - I have been in the scholastic profession long enough to know that nobody enters it unless he has some very good reason that he is anxious to conceal.
+ - Words should be an intense pleasure just as leather should be to a shoemaker.
+ - There is something incomparably thrilling in first opening a brand new book.
+ - I know very few young people, but it seems to me that they are all possessed with an almost fatal hunger for permanence.
+ - Manners are especially the need of the plain. The pretty can get away with anything.
+ - I did not know it was possible to be so miserable and live but I am told that this is a common experience.
+ - The worse I am, the more I need God. I can’t shut myself out from His mercy. That is what it would mean; starting a life with you, without Him. Julia to Charles.
+ - I don’t believe that people would ever fall in love or want to be married if they hadn’t been told about it. It’s like abroad: no one would want to go there if they hadn’t been told it existed.
+ - No one could really hate a saint, could they? They can’t really hate God either. When they want to Hate Him and His saints they have to find something like themselves and pretends it’s God and hate that.
+ - Mr. Wodehouse’s idyllic world can never stale. He will continue to release future generations from captivity that may be more irksome than our own. He has made a world for us to live in and delight in.
+ - Suffering is none the less acute and much more lasting when it is put into words.
+ - His courtesy was somewhat extravagant. He would write and thank people who wrote to thank him for wedding presents and when he encountered anyone as punctilious as himself the correspondence ended only with death.
+ - You can’t ever tell what’s going to hurt people.
+ - Pray always for all the learned, the oblique, the delicate. Let them not be quite forgotten at the throne of God when the simple come into their kingdom.
+ - The human mind is inspired enough when it comes to inventing horrors; it is when it tries to invent a Heaven that it shows itself cloddish.
+ - I haven’t been to sleep for over a year. That’s why I go to bed early. One needs more rest if one doesn’t sleep.
+ - I think there’s almost nothing I can’t excuse except perhaps worshiping graven images. That seems to be idiotic.
+ - There is a species of person called a ‘Modern Churchman’ who draws the full salary of a beneficed clergyman and need not commit himself to any religious belief.
+ - If you asked me now who I am, the only answer I could give with any certainty would be my name. For the rest: my loves, my hates, down even to my deepest desires, I can no longer say whether these emotions are my own, or stolen from those I once so desperately wished to be.
+ - We are American at puberty. We die French.
+ - Port is not for the very young, the vain and the active. It is the comfort of age and the companion of the scholar and the philosopher.
+ - I should like to bury something precious in every place where I’ve been happy and then, when I’m old and ugly and miserable, I could come back and dig it up and remember.
+ - Her heart was broken perhaps, but it was a small inexpensive organ of local manufacture. In a wider and grander way she felt things had been simplified.
+ - Aesthetic value is often the by-product of the artist striving to do something else.
+ - The languor of Youth – how unique and quintessential it is! How quickly, how irrecoverably, lost!
+ - If Brideshead Revisited is not a great book, it’s so like a great book that many of us, at least while reading it, find it hard to tell the difference.
+ - Its theme – the operation of divine grace on a group of diverse but closely connected characters – was perhaps presumptuously large, but I make no apology for it.
+ - My children weary me. I can only see them as defective adults: feckless, destructive, frivolous, sensual, humorless.
+ - The most futile and disastrous day seems well spent when it is reviewed through the blue, fragrant smoke of a Havana Cigar.
+ - How ungenerously in later life we disclaim the virtuous moods of our youth, living in retrospect long, summer days of unreflecting dissipation.
+ - I’m quite deaf now; such a comfort.
+ - But in the dying world I come from quotation is a national vice. No one would think of making an after-dinner speech without the help of poetry. It used to be the classics, now it’s lyric verse.
+ - If politicians and scientists were lazier, how much happier we should all be.
+ - His heart; some long word at the heart. He is dying of a long word.
+ - She had heard someone say something about an Independent Labour Party, and was furious that she had not been asked.
+ - Yes, cider and tinned salmon are the staple diet of the agricultural classes.
+ - Don’t hold your parents up to contempt. After all, you are their son, and it is just possible that you may take after them.
+ - He was gifted with the sly, sharp instinct for self-preservation that passes for wisdom among the rich.
+ - Once you start changing a name, you see, there’s no reason ever to stop. One always hears one that sounds better.
+ - It doesn’t matter what people call you unless they call you pigeon pie and eat you up.
+ - Perhaps host and guest is really the happiest relation for father and son.
+ - Anyone who has been to an English public school will always feel comparatively at home in prison. It is the people brought up in the gay intimacy of the slums who find prison so soul-destroying.
+ - There’s only one great evil in the world today. Despair.
+ - It is easy, retrospectively, to endow one’s youth with a false precocity or a false innocence; to tamper with the dates marking one’s stature on the edge of the door.
+ - I have lived carefully, sheltered myself from the cold winds, eaten moderately of what was in season, drunk fine claret, slept in my own sheets; I shall live long.
+ - We class schools into four grades: leading school, first-rate school, good school and school.
+ - You spend the first term at Oxford meeting interesting and exciting people and the rest of your time there avoiding them.
+ - There is an Easter sense in which all things are made new in the risen Christ. A tiny gleam of this is reflected in all true art.
+ - The splendid thing about education is that everyone wants it. Like influenza, you can give it away without losing any of it yourself.
+ - Limbo is the place. In Limbo one has natural happiness without the beatific vision; no harps; no communal order; but wine and conversation and imperfect, various humanity. Limbo for the unbaptized, for the pious heathen, the sincere sceptic.
+ - It is typical of Oxford, I said, to start the new year in autumn.
+ - One has to regard a man as a Master who can produce on average three uniquely brilliant and entirely original similes to every page.
+ - Never get mixed up in a Welsh wrangle. It doesn’t end in blows like an Irish one, but goes on forever.
+ - Quomondo sedet sola civitas. Vanity of vanities, all is vanity.
+ - My theme is memory, that winged host that soared about me one grey morning of war-time. We possess nothing certainly except the past.
+ - Instead of this absurd division into sexes they ought to class people as static and dynamic.
+ - I have a good mind not to take Aloysius to Venice. I don’t want him to meet a lot of horrid Italian bears and pick up bad habits.
+ - Beer commercials are so patriotic: Made the American Way. What does that have to do with America? Is that what America stands for? Feeling sluggish and urinating frequently?
+ - I think to be oversensitive about cliches is like being oversensitive about table manners.
+ - The truth is that Oxford is simply a very beautiful city in which it is convenient to segregate a certain number of the young of the nation while they are growing up.
+ - I can’t bare you when you’re not amusing.
+ - Self-sufficiency at home, self-assertion abroad.
+ - We schoolmasters must temper discretion with deceit.
+ - We can trace almost all the disasters of English history to the influence of Wales.
+ - In the dying world I come from, quotation is a national vice.
+ - That’s the public-school system all over. They may kick you out, but they never let you down.
+ - One can write, think and pray exclusively of others; dreams are all egocentric.
+ - A typical triumph of modern science to find the only part of Randolph that was not malignant and remove it.
+ - My father and I were never intimate in the sense of my coming to him with confidences or seeking advice. Our relationship was rather that of host and guest. Perhaps host and guest is really the happiest relation for father and son.
+ - Enclosing every thin man, there’s a fat man demanding elbow-room.
+ - If we can’t stamp out literature in the country, we can at least stop its being brought in from outside.
+ - Wine is a bride who brings a great dowry to the man who woos her persistently and gracefully.
+ - The great charm in argument is really finding one’s own opinions, not other people’s.
+ - To see Stephen Spender fumbling with our rich and delicate language is to experience all the horror of seeing a Sevres vase in the hands of a chimpanzee.
+ - My unhealthy affection for my second daughter has waned. Now I despise all my seven children equally.
+ - No one is ever holy without suffering.
+ - Every Englishman abroad, until it is proved to the contrary, likes to consider himself a traveller and not a tourist.
+ - The Welsh are the only nation in the world that has produced no graphic or plastic art, no architecture, no drama. They just sing. Sing and blow down wind instruments of plated silver.
+ - Of the many smells of Athens two seem to me the most characteristic – that of garlic, bold and deadly like acetylene gas. and that of dust, soft and warm and caressing like tweed.
+ - Charm is the great English blight. It does not exist outside these damp islands. It spots and kills anything it touches. It kills love; it kills art; I greatly fear, my dear Charles, it has killed you.
+ - Words have basic inalienable meanings, departure from which is either conscious metaphor or inexcusable vulgarity.
+ - Winston Churchill is always expecting rabbits to come out of an empty hat.
+ - Anyone could write a novel given six weeks, pen paper, and no telephone or wife.
+ - The trouble with modern education is you never know how ignorant they are.
+ - I’m one of the blind alleys off the main road of procreation.
+ - Feather-footed through the plashy fen passes the questing vole.’-William Boot.
+ - An artist must be a reactionary. He has to stand out against the tenor of the age and not go flopping along.
+ - Most writers in the course of their careers become thick-skinned and learn to accept vituperation, which in any other profession would be unimaginably offensive, as a healthy counterpoise to unintelligent praise.
+ - News is what a chap who doesn’t care much about anything wants to read.
+ - Free as air; that’s what they say- “free as air”. Now they bring me my air in an iron barrel.
+ - The only thing that it is advisable to know in any language is the numerals; and even there, you can do a lot with the fingers.
+ - It is no longer possible to accept the benefits of civilization and at the same time deny the supernatural basis upon which it is based.
+ - The better sort of Ishmaelites have been Christian for many centuries and will not publicly eat human flesh uncooked in Lent, without special and costly dispensation from their bishop.
+ - Remember that, however patient your study, you will never in adult life learn any language perfectly; the best you can hope for is to be a bore.
+ - That was the change in her from ten years ago; that, indeed, was her reward, this haunting, magical sadness which spoke straight to the heart and struck silence; it was the completion of her beauty.
+ - Professional reviewers read so many bad books in the course of duty that they get an unhealthy craving for arresting phrases.
+ - All this fuss about sleeping together. For physical pleasure I’d sooner go to my dentist any day.
+ - It may happen in the next hundred years that the English novelists of the present day will come to be valued as we now value the artists and craftsmen of the late eighteenth century.
+ - Conversation should be like juggling; up go the balls and plates, up and over, in and out, good solid objects that glitter in the footlights and fall with a bang if you miss them.
+ - When I reached C Company lines, which were at the top of the hill, I paused and looked back at the camp, just coming into full view below me through the grey mist of early morning.
+ - He had no strength for any other war than his own solitary struggle to keep alive.
+ - The anguished suspense of watching the lips you hunger for, framing the words, the death sentence, of sheer triteness!
+ - What is youth except a man or a woman before it is ready or fit to be seen.
+ - I never can understand how two men can write a book together; to me that’s like three people getting together to have a baby.
+ - I put the words down and push them a bit.
+ - Beavers bred in captivity, inhabiting a concrete pool, will, if given the timber, fatuously go through all the motions of damming an ancestral stream.
+ - I’ve always had two principles throughout all my life in motion-pictures: never do before the camera what you would not do at home and never do at home what you would not do before the camera.
+ - Then I knew that the sign I had asked for was not a little thing, not a passing nod of recognition, and a phrase came back to me from my childhood of the veil of the temple being rent from top to bottom.
+ - At first it was impressive, but after half and hour deadly monotonous. It was like everything German – overdone.
+ - I am suing Lord Beaverbrook for libel and hope for some lovely tax-free money in damages. He has very conveniently told some lies about me.
+ - There is practically no sense that is not violated every time we return from the country or the sea to Paris or London or New York.
+ - The tour bus was supposed to be here ten minutes ago. Would it be possible to give them a ring to check they’ve not forgotten us?
+ - I do not believe the expenditure of $2.50 for a book entitles the purchaser to the personal friendship of the author.
+ - I am annoyed to find myself continually described by people whom I have never set eyes on as bad-tempered.
+ - Not everyone grows to be old, but everyone has been younger than he is now.
+ - Saints are simply men and women who have fulfilled their natural obligation which is to approach God.
+ - I had been there before; I knew all about it.
+ - There are no poetic ideas; only poetic utterances.
+ - You never find an Englishman among the under-dogs except in England, of course.
+ - An artist must be a reactionary.
+ - From the earliest times the Welsh have been looked upon as an unclean people. It is thus that they have preserved their racial integrity. Their sons and daughters rarely mate with humankind except their own blood relations.
+ - Beerbohm was a genius of the purest kind. He stands at the summit of his art.
+ - MGM bores me when I see them, but I don’t see them much. They have been a help in getting me introductions to morticians, who are the only people worth knowing.
+ - Sometimes, I feel the past and the future pressing so hard on either side that there’s no room for the present at all.
+
+145 quotes

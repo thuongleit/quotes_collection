@@ -1,0 +1,25 @@
+ - It’s a nice feeling to go out in the world and look for excellence – the best in man. My subject is very valid. It’s about people, and about life.
+ - The most important thing is to just do it. If I work at a higher level I have responsibility to do better than what I’ve done before. Sometimes the best happens – beyond possibility. Just do it. Can’t worry about it.
+ - The people who love my paintings, that respond to them the most, they’re spectators, they’re not viewers.
+ - I’ve got the public. I don’t care about the critics. I did at one time. I don’t any more. I did when I needed compliments. But if you get a lot of compliments, you don’t need a critic to tell you, ‘This should be done another way.’
+ - Throughout my life, cigars have played different roles for me. They fit easily and well in the various stages and experiences Ive had – like a companion, almost. If youve smoked a long time, as I have, they become part of you.
+ - The big shock of my life was Abstract Expressionism – Pollock, de Kooning, those guys. It changed my work. I was an academically trained student, and suddenly you could pour paint, smear it on, broom it on!
+ - I guess I created LeRoy Neiman. Nobody else told me how to do it. Well, I’m a believer in the theory that the artist is as important as his work.
+ - I have always said to young artists that scholastic training and the studying of art history are crucial to fully developing as an artist.
+ - I hold doors open for all the women. Men can open the doors for themselves.
+ - It’s not the act of arrogance to draw, it’s humbling – you must use your God-given talent. And of all the people I sketch, in most cases I feel I have to measure up to the subject.
+ - The businessman says ‘If I don’t do it first, somebody else will.’ The artist says ‘If I don’t do it first, nobody else will.’
+ - You can’t take yourself too seriously.
+ - I can easily ignore my detractors and feel the people who respond favorably.
+ - I love the passion you go through while you’re creating.
+ - I always stayed in tune with my own ambitions and attitudes and I’m still my intractable old self, for better or worse.
+ - My lovely wife Janet has been in a few paintings. She is basically a reserved woman who has never sought the limelight. She has always been there throughout my career and continues to be at my side.
+ - I draw all the time. Drawing is my backbone. I don’t think a painter has to be able to draw, I just think that if you draw, you better draw well.
+ - Imagination comes of not having things.
+ - I’ve met and sketched most of the great athletes from the past five decades and their movement, grace and energy have kept me captivated over the years. That’s what the ancient Greeks first saw and that’s what caught my interest.
+ - It has been difficult to hold onto many paintings but I have retained a few...
+ - When I paint, I seriously consider the public presence of a person – the surface facade. I am less concerned with how people look when they wake up or how they act at home. A person’s public presence reflects his own efforts at image development.
+ - Some people try to paint in my style. Some simply sell pirated copies of my work. Some claim to be my publisher or agent or even my exclusive representative, when they are not.
+ - But ‘Playboy’ was liberating. I was drawn to it and went for it full throttle.
+
+23 quotes

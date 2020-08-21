@@ -1,0 +1,59 @@
+ - If you can’t play as good or as fast as me, just give up, sell your guitar on eBay and kill yourself.
+ - Dark master of sin, now my soul is yours.
+ - Songs like “Spirit Carries On” really gets the audience moved and on the same page. It’s challenging and all so much fun to play.
+ - Music is a communication. It’s a two-way street. You need people to play to in order to make that connection complete. That’s the way we look at it.
+ - If I’m not in an environment where I can record, it’s great to be able to write something down, to be able to know how to do that, to be able to write notation. You grab a piece of paper and there it is. It’s the cheapest recording equipment you can buy: a piece of manuscript paper and a pencil!
+ - I don’t have very eclectic tastes in music.
+ - With all tools at my disposal, I’m 100% into chasing tone and checking out new equipment and “geeking” out during sound check by taking too much time.
+ - If someone is feeling out of sorts or detached it’s a great time to bring them in and restate why we are here and what we are trying to do.
+ - Guitar players get inward and analytical about their playing but when you start to get positive feedback from other players it makes you think that it is coming together.
+ - I often think about my Music Man guitars being 100 million percent tailored to my needs as a player and how lucky I am.
+ - I really rely a lot more on memory. I’m definitely not as good of a sight reader.
+ - Out of Berklee Dream Theater was born and we’ve been together ever since. I didn’t have to taste that feeling of defeat.
+ - When we make those guitars we make tons of prototypes, I have all those. And once a guitar has come out there’s all different versions and colours and woods and I have all those. There’s hundreds of them.
+ - My main objective with a home studio – I could get into doing full band demos – but my first objective is to cut things like guitar tracks and solos at home.
+ - Even with Dream Theater, we track in a big studio and everything. But when it comes to doing leads, I don’t really require a lot of studio to do that. I need a good sounding room and a Pro Tools rig, and some Neve mic-pres, and I’m good.
+ - It’s a balance between getting the right string gauge that’s thick enough where it sound good, and not rubber bands – but not too thick where your hands start to get real tired.
+ - I remember feeling for the first time going somewhere where I was part of a community where I didn’t feel like an outcast. I felt like I belonged. Everyone had a guitar strapped to their back.
+ - Real thick strings – your hands start to get fatigued. As much as you practice, and as much experience as you have, and as long as you’ve been playing, there is a fatigue point during the show, as with anything that’s physical. So I wanted to basically pace myself better.
+ - Almost 15 with music, we have so many guitars that we developed over the years. The latest one is ‘The Majesty’ guitar, which I’m really proud of.
+ - I’ve always said that there’s a huge progressive rock, progressive metal audience out there, in the world.
+ - We’re not the kind of band who writes an order abundance of songs and picks from them, we usually write for the album.
+ - I experimented a bunch with Ernie Ball in getting the strings to not flop around too much, but at the same time not to be too thick to where you’re playing telephone cables.
+ - I went straight out of high school, and when I was 17, all I wanted to do was play guitar.
+ - Many kids and parents ask me, ‘What kind of guitar can I buy?’ It’s a great opportunity for those people to be able to buy a quality guitar that’s not necessarily a little Fender or whatever. Ernie Ball signature model guitar is something that’s more signature.
+ - I almost rely on other people to say, “Hey, you ever hear of this band?” And I’ll say, “Oh, I’ve never heard of that!” And I listened to them and thought, “What the hell?”
+ - There were some initial instruments I had when I was young and made some trade-offs. Maybe a guitar I bought in a flea market. They weren’t the greatest guitar but they would be cool to still have them. Other than that, not as a professional.
+ - The style of music that we’re playing, this progressive metal style, has always been an upstream battle for us. We don’t usually get a lot of commercial exposure.
+ - Many times we talk about the people that have come to enjoy the show. They went through a lot to get here, whatever they needed to work out in their lives; they got babysitters, they traveled, and purchased the tickets. So it’s up to us to deliver the goods!
+ - I wanna go in the studio and just go back to the same amps and stuff I’m so comfortable with the sound of. Which I think is important to stay original.
+ - We’ve seen progressive rock all over the world, in South America, Europe, Asia, across the US and North America and Australia. There’s huge audiences for this stuff. For me it’s always been there and it’s just a matter of time before the people have more of the means to spread the word.
+ - I’m realizing this more and more that it’s one thing to get involved with your own political beliefs and stand behind you believe in personally.
+ - It’s hard to answer that from my own perspective because when I’m playing I know where it is coming from and the sources.
+ - You try to play the song better than you had before.
+ - We have a storage close by where I live, that’s very organised. My guitar tech, Matty organised it all, labeled everything.
+ - If you bring somebody into the band you are going to be with them a lot whether it’s in the studio, on the tour bus, or at dinner every night; you want somebody you enjoy being around. You don’t want an annoying guy .
+ - Stay focused when you’re playing alive, so you’re not distracted by something going on.
+ - Songs come alive every night and can be a new experience for someone. You might have someone in the audience who has never seen us before and hearing it for the first time. We are aware of that.
+ - We’re always in that head space about the audience and less about us at that moment.
+ - Since I’m in a band, and I’m not usually in situations where I need to read, it doesn’t come up as often, and I don’t rely on it as much.
+ - Obviously the best way to retain the most profit is to not give any of it away. That’s something that you certainly learn through the years.
+ - I’m from the school of putting a lot of hours of practice into playing. But at the same time you have to write original music – that’s really important, because that’s the things that’s going to separate you from everybody else, that’s going to give you your unique voice as a music that you create.
+ - I’ve been fortunate to work with companies that I endorse because I love their gear. Whether Music Man, Dunlop, or DiMarizo to me these companies have supported me in such a way that’s invaluable.
+ - I know we play a part in the story of progressive music, but for us those influences are the real fathers, the ones that we were interested in.
+ - I have to say that our fans have been absolutely wonderful all across the world.
+ - There’s different levels of where we do well throughout Europe. Fortunately, for us, it’s pretty great all throughout it.
+ - I somehow always found the right people on my own to jam with as well as playing with all my buddies. I didn’t get to a point where I was auditioning for any bands.
+ - When we first started and started hitting new places for the first time, you kinda didn’t know, because we were new. Sometimes we played tiny little clubs and sometimes we’d play a larger place.
+ - To be in Boston, which is a great city and which is full of many colleges and young kids, and to be around that many people that were at the same point in their lives, who played guitar or whatever instrument – it was just perfect. It was a great environment.
+ - I didn’t try out for bands when I was younger. I got into guitars intensely a couple of years into playing so much by the time I was graduating high school I was accepted into Berklee College of Music.
+ - As far as bands doing that in a way where they think they’re going to fight the government, the only people they’re really hurting is the fans.
+ - In Japan they’re definitely more over the top. They had four Boogie stacks and 20 guitars. But otherwise it’s pretty much the same thing, except there’s a translator. It’s really nice.
+ - I have a lot of guitars. Yeah, I’m not like a guitar collector, I don’t have all vintage instruments. I don’t even own a Strat or Les Paul. I don’t have one.
+ - I would say the more the better when it is comes to development and marketing. It’s actually fun. For some it can be a frustrating thing.
+ - The good thing about playing this style that we play, you know, the progressive element of it, is that we can add in different elements of different styles. And that creates a more interesting overall sound.
+ - You’re about to walk on stage and play together for the next few hours so you want to feel connected and make sure that everyone is in the same head space; a good head space.
+ - Going to the Grammys, being nominated for a Grammy, that was a really big deal for me, for us as a band.
+ - Now that we’re established and we have a history we know that we can expect people to show up and to have a good time.
+
+57 quotes

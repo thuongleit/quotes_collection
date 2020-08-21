@@ -1,0 +1,21 @@
+ - We cannot and will not ban the creation of violent video games. But, we can prevent the distribution of these disturbing games to children, where their effects can be negative.
+ - The judicial branch has, in its finest hours, stood firmly on the side of individuals against those who would trample their rights.
+ - I will vote my hopes and not my fears.
+ - As the guardian of our rights, the Supreme Court makes decisions every year which either protect the individual or leave him at the mercy of more powerful forces in our society.
+ - Judicial excellence means that a Supreme Court justice must have a sense of the values from which our core of our political- economic system goes. In other words, we should not approve any nominee whose extreme judicial philosophy would undermine rights and liberties relied upon by all Americans.
+ - Through its interpretation of the Constitution, the Supreme Court hugely shapes the fabric of our society for us and for future generations.
+ - Judicial excellence requires an understanding that the law is more than an intellectual game and more than a mental exercise. He or she must recognize that real people with real problems are affected by the decisions rendered by the court. Justice, after all, may be blind, but it should not be deaf.
+ - We give Supreme Court justices this freedom because we expect them to remain above the pull of politics, to avoid the effects of public excitement and allow a broader view, not tied to the whims of the majority at a certain moment in history.
+ - Whether interpreting the Constitution or filling in the blanks of a law or a regulation, every word of the court’s opinion can widen or narrow our rights as Americans and either protect us or leave us more vulnerable to any winds that blow.
+ - We need to fight the plague of the uninsured the way we have fought other threats to our way of life and our basic values.
+ - Its time to stop defending a system that is clearly in dire need of reform, stop issuing reports and setting up new roadblocks, and start providing Americans with prescription drugs that are both safe and affordable.
+ - Judicial excellence requires candor before confirmation. We are being asked to give the nominee enormous power.
+ - Before we decide to trust you with this power, we ask you to stand before the public and explain your views. Justice may be blind, but it should not be deaf.
+ - Businesses want to offer solid, affordable health insurance to their employees, but it is getting harder to find every year.
+ - Even as we pour hundreds of billions of dollars into our efforts in the Middle East, there is much that needs to be done to win the war of ideas in the Muslim world and beyond.
+ - As all of us with any involvement in sports knows, no two umpires or no two referees have the same strike zone or call the same kind of a basketball game.
+ - When the President makes something a priority, we see action.
+ - Bankruptcy is a serious decision that people have to make.
+ - We need to take steps to strengthen and mend Social Security so that its promise of a secure retirement is just as real for seniors in the future as it is today.
+
+19 quotes

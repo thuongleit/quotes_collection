@@ -1,0 +1,44 @@
+ - The future looks a bit bleak to me.
+ - Never beg for mercy. Accept that you have failed. Begging is for dogs and humans.
+ - An untrampled scorpion troubles no one.
+ - When I read, I’m either reading to learn, or I’m reading to switch off.
+ - Life is exponential. Two becomes four, becomes ten thousand, becomes a plague.
+ - The problem with surviving was that you ended up with the ghosts of everyone you’d ever left behind riding on your shoulders.
+ - They’d blame a castoff just for breathing. You could be good as gold and they’d still blame you.
+ - Politics is ugly. Never doubt what small men will do for great power.
+ - It’s human nature to tear one another apart. Be glad you come from such a successful line of killers.
+ - Men are loyal when you lead from the front.
+ - Killing isn’t free. It takes something out of you every time you do it. You get their life; they get a piece of your soul. It’s always a trade.
+ - We are nature. Our every tinkering is nature, our every biological striving. We are what we are, and the world is ours. We are its gods. Your only difficulty is your unwillingness to unleash your potential fully upon it.
+ - Knowledge is always two-edged. For every benefit, there is hazard. For every good, evil.
+ - Food should come from the place of its origin, and stay there. It shouldn’t spend its time crisscrossing the globe for the sake of profit.
+ - Laws are a fine thing on paper, but painful when no bribery can ease their bind.
+ - Knowledge is simply a terrible ocean we must cross, and hope that wisdom lies on the other side.
+ - I used to love reading, but since I’ve started writing, it’s harder for me to immerse, because I spend so much time looking at how the story is structured and trying to see what the author is doing behind the curtain.
+ - Suicide is not something I owe you or yours.
+ - A desert’s a stupid place to put a river.
+ - We write dust epitaphs for our vanquished enemies and watch them blow away in the desert wind.
+ - When you were alone in the rising ocean, you grabbed whatever raft passed by.
+ - Blood is not destiny.
+ - The more you read about and immerse in a culture, the more it comes alive, and the more textured and nuanced and detailed and unstereotypable it becomes.
+ - I do not fight battles that cannot be won. Do not confuse that with cowardice.
+ - Short fiction seems more targeted – hand grenades of ideas, if you will. When they work, they hit, they explode, and you never forget them. Long fiction feels more like atmosphere: it’s a lot smokier and less defined.
+ - Debts are a heavy burden. Throw them off, and you walk free.
+ - What I’m hoping to do though is to ground my extrapolations in specificity, and to make sure that the story I tell is deliberately and honestly told.
+ - The surfeit of bad trends pushes me to set my stories in worlds which are often diminished versions of our own present.
+ - Laws are confusing documents. They get in the way of justice.
+ - Some things, it was better not to think about. It just made you mad and angry.
+ - I write at a standing desk, which has helped me be much more productive and solved some back problems, but mostly all my quirky habits have to do with procrastination and avoidance rather than with work. I’m slowly trying to stamp those out.
+ - I like fast plots with things that explode.
+ - But then, that was the problem with pretty toy stitches. When real life got hold of them, they always tore out.
+ - Most of the news about the state of the environment is pretty ugly. This is frightening for me personally, but actually motivational for me artistically.
+ - Maybe because we’re photosynthesizing we’ll do more work outside. So our laptops will have to get rid of these damn glossy screens that have become so popular. And then we’ll sit around outside, sucking up sun, getting fat and green, and surfing the net.
+ - The main reason I want someone to read a story of mine is so they can enjoy it and feel like they got something interesting out of it.
+ - Nature has become something new. It is ours now, truly. And if our creation devours us, how poetic will that be?
+ - If I cared for human approval, I would have been dead long ago.
+ - She smiles at him, too young to know him for a stranger, and too innocent yet to care.
+ - They say in the military that a good battle plan can last as long as five minutes in real fighting. After that, it comes down to if the general is favored by fate and the spirits.
+ - Take three different Thai writers and ask them to extrapolate their county’s future, and one hopes that you’ll get three very different – but all deeply honest – versions.
+ - For pleasure, I’ll read military sf, or Elmore Leonard capers, anything that’s fast and fun. Otherwise, I mostly pick at books, without any clear focus.
+
+42 quotes

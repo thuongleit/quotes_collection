@@ -1,0 +1,25 @@
+ - There is only one social science and we are its practitioners.
+ - The main insight learned from interdisciplinary studies is the return to specialization.
+ - If you never miss a plane, you’re spending too much time at the airport.
+ - Mathematics has no symbols for confused ideas.
+ - Competition is a tough weed, not a delicate flower.
+ - Adam Smith had one overwhelmingly important triumph: he put into the center of economics the systematic analysis of the behavior of individuals pursuing their self-interest under conditions of competition.
+ - Stigler’s Law: No scientific discovery is named after its original discoverer.
+ - My interests were aroused, and my faith in the cliches of the subject destroyed, as so often with other subjects, by the discussions with my friend, Aaron Director.
+ - It was in the 1960s that I began the detailed study of public regulation.
+ - All great economists are tall. There are two exceptions: John Kenneth Galbraith and Milton Friedman.
+ - I attended schools in Seattle through the University of Washington, from which I was graduated in 1931. I spent the next year at Northwestern University.
+ - The delicate and intricate pattern of competition and cooperation in the economic behavior of the hundreds of thousands of citizens of Stockholm offers a challenge to the economist that is perhaps as complex as the challenges of the physicist and the chemist.
+ - A Swedish physicist can not discuss his work with fifty people unless he goes abroad. A Swedish economist can get opinions and instructions in his native language from thousands upon thousands of his fellow citizens.
+ - In the 1950s, I proposed the survivor method of determining the efficient sizes of enterprises, and worked on delivered price systems, vertical integration, and similar topics.
+ - I started working and publishing in price theory by 1938.
+ - Even before I came to Chicago, I had gotten interested in the existence of dispersion of prices under conditions which economic theory said would yield a single price.
+ - In 1958, I came to Chicago where I have remained.
+ - I met my wife, Margaret L. Mack, at the University of Chicago. We were married in 1936. She died in 1970.
+ - That subject has lost its one time appeal to economists as our science has become more abstract, but my interest has even grown more intense as the questions raised by the sociology of science became more prominent.
+ - And yet I would not freely exchange my science for those of my fellow laureates. They are forever confined in their professional discussions to the small numbers of their fellow scientists.
+ - I recall my mother asking in about 1946 what I was and I replied proudly that I was a professor. A decade later she repeated her question and I repeated my answer. “No promotion?” was her comment.
+ - The Chicago Economics Department was in intellectual ferment, although the central issues of the 1930s were very different from those in later times. I had never before encountered minds of that quality at close quarters and they influenced me strongly.
+ - My teaching began in 1936 at Iowa State College where T. W. Schultz was the department chairman.
+
+23 quotes

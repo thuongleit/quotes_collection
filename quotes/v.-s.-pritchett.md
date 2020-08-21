@@ -1,0 +1,44 @@
+ - The detective novel is the art-for-art’s-sake of our yawning Philistinism, the classic example of a specialized form of art removed from contact with the life it pretends to build on.
+ - The mark of genius is an incessant activity of mind. Genius is a spiritual greed.
+ - Among the masked dandies of Edwardian comedy, Max Beerbohm is the most happily armored by a deep and almost innocent love of himself as a work of art.
+ - It is well known that, when two authors meet, they at once start talking about money-like everyone else.
+ - It is exciting and emancipating to believe we are one of nature’s latest experiments, but what if the experiment is unsuccessful?
+ - The businessman who is a novelist is able to drop in on literature and feel no suicidal loss of esteem if the lady is not at home, and he can spend his life preparing without fuss for the awful interview.
+ - Short stories can be rather stark and bare unless you put in the right details. Details make stories human, and the more human a story can be, the better.
+ - Sooner or later, the great men turn out to be all alike. They never stop working. They never lose a minute. It is very depressing.
+ - The difference between farce and humour in literature is, I suppose, that farce strums louder and louder on one string, while humour varies its note, changes its key, grows and spreads and deepens until it may indeed reach tragic depths.
+ - It’s all in the art. You get no credit for living.
+ - It’s very important to feel foreign. I was born in England, but when I’m being a writer, everyone in England is foreign to me.
+ - Like many popular best-sellers, he was a very sad and solemn man who took himself too seriously and his art not seriously enough.
+ - Those mausoleums of inactive masculinity are places for men who prefer armchairs to women.
+ - It is often said that in Ireland there is an excess of genius unsustained by talent; but there is talent in the tongues.
+ - Writing enlarges the landscape of the mind.
+ - The State, that cawing rookery of committees and subcommittees.
+ - The Canadian spirit is cautious, observant and critical where the American is assertive.
+ - I shall never be as old as I was between 20 and 30.
+ - A natural New Yorker is a native of the present tense.
+ - Life – how curious is that habit that makes us think it is not here, but elsewhere.
+ - It is the role of the poet to look at what is happening in the world and to know that quite other things are happening.
+ - The wrongs of childhood and upbringing have made a large and obsessional contribution to autobiography and the novel.
+ - Queen Victoria – a mixture of national landlady and actress.
+ - A touch of science, even bogus science, gives an edge to the superstitious tale.
+ - There is more magic in sin if it is not committed.
+ - Now, practically all reviewers have academic aspirations. The people from the universities are used to a captive audience, but the literary journalist has to please his audience.
+ - The peculiar foreign superstition that the English do not like love, the evidence being that they do not talk about it.
+ - Criticism changes with the fashion of the time. A story is always a story.
+ - All writers – all people – have their stores of private and family legends which lie like a collection of half-forgotten, often violent toys on the floor of memory.
+ - The profoundly humorous writers are humorous because they are responsive to the hopeless, uncouth, concatenations of life.
+ - One recalls how much the creative impulse of the best-sellers depends upon self-pity. It is an emotion of great dramatic potential.
+ - We are used to the actions of human beings, not to their stillness.
+ - On one plane, the very great writers and the popular romancers of the lower order always meet. They use all of themselves, helplessly, unselectively. They are above the primness and good taste of declining to give themselves away.
+ - We do not wish to be better than we are, but more fully what we are.
+ - How extraordinary it is that one feels most guilt about the sins one is unable to commit.
+ - I am under the spell of language, which has ruled me since I was 10.
+ - It is less the business of the novelist to tell us what happened than to show how it happened.
+ - Well, youth is the period of assumed personalities and disguises. It is the time of the sincerely insincere.
+ - I felt the beginning of a passion, hopeless in the long run, but very nourishing, for identifying myself with people who were not my own, and whose lives were governed by ideas alien to mine.
+ - Detective stories are the art-for-art’s sake of yawning Philistinism.
+ - The makers of the short story have rarely been good novelists.
+ - Because of the influence of the cinema, most reports or stories of violence are so pictorial that they lack content or meaning. The camera brings them to our eyes, but does not settle them in our minds, nor in time.
+
+42 quotes

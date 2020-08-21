@@ -1,0 +1,56 @@
+ - If a tree falls on your head in a forest and no one hears it, it still hurts.
+ - A friend told me to listen to my heart. Another friend told me to listen to my gut. Maybe I need an autopsy, because right now my colon is kind of iffy.
+ - My parenting style could be described as not good cop or bad cop so much as nervous cop. I’m always yelling for somebody to stop because they’re about to get hurt. I’m the take a jacket, slow down guy.
+ - Why do you think people close their eyes when they kiss? Think about it. In the real world, if you saw someone an-inch-and-a-half away, coming at you with their eyes open and their lips puckered, you’d scream. It’s alarming.
+ - As you get older you realize your parents don’t look so dumb – and that you’re not as smart as you thought you were.
+ - Just because a baby cries, I discovered, doesn’t mean there’s always something wrong. Sometimes babies wake up for no real reason. They just want to check if they’re doing it right. “This is Sleeping, right?” “Exactly.” “I just lie here?” “That’s right.” “Okay.” Then back to sleep they go.
+ - Upstate New York in the middle of October. You can’t get more beautiful than that.
+ - Marriage is just an elaborate game that allows two selfish people to periodically feel that they’re not.
+ - The consumer mentality – we like something, what other flavor does it come in? We like that TV show, does it come in a book form? Does it come in a capsule? How about a soup?
+ - I used to walk into a party and scan the room for attractive women. Now I look for women to hold my baby so I can eat potato salad sitting down.
+ - I’m not smart enough to write about something that didn’t actually happen to me. But I couldn’t write a space movie if you put a gun to my head.
+ - And in that time, I lost my dad and had kids of my own. It was like, OK, I get it now. I know what fatherhood is all about. And you look at your parents differently.
+ - There are two types of people in life – those who get it and those who don’t.
+ - A new child in the house is a huge tourist attraction. It’s like Disneyland, except there the lines are longer and no one brings casseroles.
+ - Once in a while you get a moment of clarity – an inspiration – and they don’t come that frequently.
+ - The most used appliance in our house is my 10-year-old son Leon’s Xbox.
+ - It was trying to make my tennis game look mildly respectable, which I found you don’t even really need to practice if you have a really good editor. They can edit it and you’re like, “Hey, it looks like I’m playing really well.” That was the fun part, but it was like going to summer camp.
+ - New parents always sound like hucksters in a pyramid scheme. Anyone who has kids and then gets you to go and have kids gets a check from Huckster Headquarters.
+ - Having a baby dragged me, kicking and screaming, from the world of self-absorption.
+ - I’d never directed before and this movie’s too important to me to put in the hands of some guy who has never directed. Even if it’s me.
+ - We had the boy’s name picked out, but we didn’t have a girl’s. When he turned out to be a boy, we were so relieved. Literally, in the middle of contracting and pushing, and with my wife being drugged – out and half – lucid, we were still coming up with names.
+ - By shrewdly linking procreation to an act likely to make you stupid with excitement, God has seen to it that Life does indeed go on. It’s possible, by the way, that this is why God’s name comes up so often in the middle of the act; it’s a salute to the author: Hey, whoever made this up – thanks.
+ - The most rewarding part about being a dad is just looking at children who didn’t exist at some point. The first time you saw them, they were the size of a quarter, in a sonogram, and now they can pour orange juice and yell at each other.
+ - Our date-nightrule is no talking about the kids. That lasts about to the end of the driveway.
+ - My wife would say my worst habit is that I’m not good at dropping subjects. If something bothers me, I’ll bring it up endlessly and relentlessly. I think it’s a search for clarity, but she uses different words.
+ - Happiness is the quiet lull between problems.
+ - There was a period where our child’s birth was getting really close, and we still had nothing. We were dangerously close to calling him Untitled Baby Project.
+ - Middle names are kind of like vice presidents: It’s a fine distinction and certainly an honor, but you’re never not aware that someone else got the real job.
+ - I remember my wife and I used to get on plane and see everybody else with their babies. They’d be putting strollers and car seats up above, and we’d think: Oh, please Lord, don’t make us go through that.
+ - I can’t get past the fact that food is coming out of my wife’s breasts. What was once essentially an entertainment center has now become a juice bar.
+ - There’s something very refreshing about being on stage.
+ - Get a good dog. We have not picked up food in the kitchen in 15 years.
+ - Field of Dreams is the only movie – and I saw it in the theater – on an afternoon when I was on location somewhere, and there were like 12 people in the theater. I was just so devastated; I couldn’t get out of my seat. And I sat and watched it a second time.
+ - Nothing would make me happier if Peter Falk would finally win his Oscar for this. Not just as the writer but as a fan and a friend. It would be so great.
+ - Younger kids, they understand that things aren’t so perfect with their father or with their mother.
+ - He was born early. But he was born within a safe range of premature.
+ - In the original draft I was 27 and Peter was 55 in the script. That’s not the same as a guy in his 40s and a dad in the end of his 70s. It’s a different point in both our lives.
+ - The biggest thing I remember is that there was just no transition. You hit the ground diapering.
+ - In fact, I had the idea because of Peter Falk. I saw my dad watching a Peter Falk movie and something clicked in my head. I gotta go make a movie for Peter Falk and me.
+ - It’s not like some movies where you’re following a bunch of different stories you can cut around. There was nowhere to cut to. It’s these guys. We’re not cutting back to anybody else.
+ - You know what? The obvious is obvious for a reason.
+ - There’s something that happens in that delivery room, when a woman becomes ten times more a woman, and a guy becomes six times less a man. You feel really dopey and useless and like a spectator. I did, anyway.
+ - I’d distract myself until finally it was a combination of things. The show was over and I had time on my hands. I had taken time and played and just relaxed.
+ - But at the same time that the experience is pulling you apart, it’s also bonding you. You have this joint venture! You both made this baby. And that’s the thing I still can’t get over.
+ - She kind of reminds one of Helen. There’s something very similar about Elizabeth Perkins.
+ - That’s the nice thing about doing stand-up. There’s no development, you just go out there and get an immediate response as to whether something is good or bad. Getting a laugh is the best measure of how well you’re doing.
+ - Every time I see Peter Falk in the movie I think that would be great. We’d be fun together.
+ - But you get past that and realize you have to let go of what you think you want. There’ll be plenty of time for that later. Right now, go and be with that baby. Just play with this beautiful little boy.
+ - And after you’ve done the acting, there’s a lot of places you can put your input – in the editing, in the production of it, in the rewriting of it and so on.
+ - We have such a long, familiar history with Peter Falk. The minute his mug is on that screen people smile.
+ - Parents often give middle names just so that later, when they’re yelling at the kid, they can drag it out. Henry David Thoreau, you come in here this instant!
+ - When you realize you would consider not having a child just so you could take an occasional snooze and be available to see Batman Retires the same weekend it comes out, you have to take a good hard look at yourself and acknowledge, I am a shallow, shallow person.
+ - They’re not the sharpest people – babies. So, you must be everything to them.
+ - You know, the fact that every morning you get a script in your mailbox, that’s going to stop. All these little pedestrian, mundane things. And the cash.
+
+54 quotes

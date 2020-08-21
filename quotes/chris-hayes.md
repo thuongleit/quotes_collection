@@ -1,0 +1,74 @@
+ - What you cannot conquer, circumvent but do not compromise yourself for the sake of the urban jungle, because concrete does not sympathise.
+ - What we do know is that the era of climate change is upon us and the extraordinary in California today will become the ordinary of tomorrow.
+ - Islam does not preach hatred and violence and destruction.
+ - Who says meritocracy says oligarchy.
+ - My mother was a teacher, my father was a community organizer. I come from a working class background.
+ - White nationalist, white supremacis feel like this is a watershed moment in the history of white supremacy in which something that had been cordoned off to the kind of white supremacist back waters, an idea like banning all Muslims from coming to the country is going to be .
+ - David Roberts, who is a writer at Vox who I like, had a line about the voter – your voters weren’t locked in the room with you, Republican establishment. You were locked in the room with them.
+ - We cannot have a just society that applies the principle of accountability to the powerless and the principle of forgiveness to the powerful. This is the America in which we currently reside.
+ - The Republican Party is officially a dumpster fire.
+ - Inequality and hierarchy are natural, but that doesn’t mean they are right, that doesn’t mean there is isn’t a productive tension between those forces and the forces of equality.
+ - Why Hollywood has killed so many movie stars with cigarette smoking, with the romanticization of it from John Wayne to Humphrey Bogart, all those people had cancer, died of it, and sold cigarettes their whole career.
+ - California became the last state in the west to regulate groundwater usage. The state’s first-ever mandatory water restrictions soon followed.
+ - One young man asked me a simple question that gets to the core of what we’re talking about. He said, do you think the police would ever treat you the way they treat me? And the answer is, no. And that is wrong. And that has to change in this city.
+ - I’m a big fan of Donald Trump’s.
+ - Reading off a Teleprompter is an easy skill to do passably well and a difficult skill to do very well. I still have room for improvement there. I still talk too fast and I’m trying to slow myself down.
+ - We ask the education system to expiate the sins of the rest of the society and then condemn it as hopelessly broken when it doesn’t prove up to the task.
+ - The mood, it is fair to say, was reasonably tense. As a result of the conclusion of the ballot, most members are happy that this matter has now been determined.
+ - I think people should be angry at things that are worthy of anger. Injustice is outrageous and deserves outrage.
+ - Those who are able to climb up the ladder will find ways to pull it up after them, or selectively lower it down to allow their friends, allies, and kin to scramble up. In other words: ‘Who says meritocracy says oligarchy.’
+ - Sarah Palin, suggesting her son’s arrest on domestic violence charges was a result of post-traumatic stress disorder and partially due to President Obama’s lack of respect for men and women in uniform.
+ - No one’s dropped a cent – there’s no negative ads up against Donald Trump in Iowa which is crazy to think about.
+ - Every sentence stands on its own. Whether that’s fair or not, that’s kind of the way it is.
+ - I think I was a militant smoker, and I felt hemmed in by a wall of political correctness and I think I purposely and militantly put the smoking scenes in the movies.
+ - Like Trump’s presidential bid, the Brexit campaign has been driven largely by fears of cultural penetration, immigrant invasion, and the genuine crisis of Middle East refugees dying to get into Europe, all channeled into a kind of inward-turning form of ethno-nationalism.
+ - The NYPD with the unconditional support of Mayor Michael Bloomberg has stopped-and-frisked more black men than there are black men in New York City. Institutionalized racial discrimination in the United States is alive and well.
+ - The idea of a celebrity endorsing a presidential candidate is nothing new, but the full-throated endorsement for Senator Bernie Sanders from one of the country’s biggest hip hop stars had surprised some political observers.
+ - With all the talk of socialism among Democrats on the campaign trail lately, there are actually quite a few people on the right looking at how resources and capital are currently distributed in this country of ours and thinking, you know, there’s got to be a better way.
+ - There’s that issue of if you attack someone you don’t know where the votes are going to go.
+ - I can cite a chapter and verse of literature at the times saying Italians don’t speak our language, these folks coming from other places – it sounds identical to what you are saying about Muslims now. It really does.
+ - The person that always wins, that’s the other thing. The monkey picking stocks always wins.
+ - Having an energy conversation without talking about climate is like talking about smoking and not talking about cancer.
+ - Impossible is a word for other people to use when life scares them.
+ - Maybe it’s a great blow for feminism that we now have men mocking one another about their makeup. I mean, let’s – can we enjoy that? That’s kind of great.
+ - If someone were to say, we should not letting Jews into the country, and people had a reaction against that, would that be the same thing as that kind of toxic political correctness tamping down honest discussion?
+ - Politico reports, multiple advisers to the Right To Rise super Pac concede privately that the $40 million spent on positive ads aimed at telling Bush’s story yielded no tangible dividends.
+ - Marco Rubio and Ted Cruz did their best Donald Trump impersonation. All three unleashing an unprecedented string of insults and attacks fit more for a barroom than a presidential debate stage.
+ - I think a lot of Democrats I know, who will vote in the Democratic primary and vote for the Democratic nominee and later general, they go back and forth between two feelings. One is oh, my God, I’m terrified. Maybe this guy will be formidable in a general.
+ - I have always viewed thinking about arguing, about questioning, pushing back with, joking, about sharing and discovering the world and the news as enjoyable, the same way that I view watching basketball.
+ - The thing with that word “establishment” is a four-letter word in the 2016 politics, so toxic, so pejorative that pretty much no one wants to be associated with it.
+ - Where is the Marco Rubio bump everyone was promised? And it doesn’t look very good.
+ - There’s a lot in common between the Trump phenomenon and the campaign for Britain to exit the European Union, known as Brexit.
+ - For years, right wing outlets like outlets like Fox News and talk radio have been telling their audience day after day that any information coming from outside of conservative media is not to be trusted.
+ - That has to come to an end and end now. No citizen is a second-class citizen in the city of Chicago. If my children are treated one way, every child is treated the same way.
+ - Once you start thinking about growth of economy, it’s hard to think about anything else.
+ - For the love of god, find something actually socially useful to do with your money. Because if you don’t, socialism’s going to start looking a lot better to a whole lot of people.
+ - Donald Trump is not going anywhere. And we see as calculated as these are, he has a knack for telling a certain segment of a base what they want.
+ - We don’t have a manufacturing base. We don’t have a middle-class jobs growing at all. All we have is a few rich people and a service industry to service them.
+ - I think politically there is less juice to be squeezed out of that orange in the Democratic side. I mean, my feeling is your median Democratic voter, they’re angry at the banks or they’re not psyched about companies that outsource and things like that.
+ - There’s a line of thinking about Ted Cruz.
+ - We were arguing about what was good to deal with making education fairer, diverse and more American. We were not arguing about where black scientists get a good education.
+ - I also love lifestyles of the rich and famous and guess what? It’s not unusual for me to sit in bed with my laptop and glass of wine, clicking through real estate slide shows on the New York Times website; looking at ungodly expensive homes I could not ever possibly afford.
+ - As long as there have been people in California, there have been people obsessed with California’s water. Scientists say the state is at its driest point in half a millennium and as any Californians will tell you, it is not just their problem, it’s everyone’s problem.
+ - Climate change is the biggest governing challenge we face. It’s the biggest governing challenge I think we’ve ever faced.
+ - We got the clearest picture of Donald Trump’s weaknesses and liabilities in a general election. Marco Rubio and Ted Cruz finally gave up on trying to convince Republican primary voters that Trump is not a real conservative, attacks that have failed to resonate.
+ - Screenwriting Joe Eszterhas have always talked about the charm of evil.
+ - I grew up in a household where we talked politics a lot and argued politics a lot.
+ - The base that Donald Trump is speaking to are not that conservative, at least not the way conservatives have defined themselves.
+ - The New York Times and Politico report, as Bush continues to flounder on the campaign trail, backers are placing some of the blame on Right To Rise and its inability to sell their candidate.
+ - Donald Trump got himself very far to the left. When he was considering running for president in 2000, he was for a 13 percent wealth tax on wealthy people to retire the national debt.
+ - We’re in an historic drought, and that demands unprecedented action.
+ - A Republican primary race that has for months alternated between spectacle and abomination has over the past 20th hours ignited into a raging, full-blown dumpster fire. One stoke by a group of men who hope to become the most powerful person in the world.
+ - Chris Christie travelled to Ft. Worth, Texas, to give his blessing to a former rival who one week ago was approvingly discussing killing Muslim terrorists with bullets smeared in pig’s blood.
+ - My disposition as a human being is kind of a go-along-to-get-along person. I tend to trust authority.
+ - People understand who Donald Trump is. There was a lawsuit against him for housing discrimination, racial discrimination against African-Americans that’s been in “The New York Times”. Decades ago with “The New York Times”.
+ - If you want to defend torture, well then go ahead. But please spare me any sermons about the law ever again.
+ - It doesn’t really matter what policy you’re for, so long ease gets your gut-level anger about whatever. So, you can’t attack Donald Trump on policy.
+ - I’ve written a lot of movies with smoking, and the some of those movies absolutely gloried in the smoking and I wasn’t concerned when I wrote them who would see them and how those movies would especially affect young people.
+ - My dream when I was 14 was someday I could have a David Levine caricature of me in ‘The New York Review of Books.’
+ - Politics is more than policy, right. Like, one thing that has occurred to me is Bernie Sanders is clearly a very adept and able politician, right. But he spent 30 years being a very adept and able politician in an almost entirely white state.
+ - There is no evidence that government under Republicans will shrink. It’s simply a question of what the government will do and who will benefit.
+ - We now operate in a world in which we can assume neither competence nor good faith from the authorities. The consequences of this simple, devastating realization define American life.
+ - Tens of millions of dollars spent, all meant to get Jeb Bush elected president. He currently is polling on average at around 5%.
+
+72 quotes

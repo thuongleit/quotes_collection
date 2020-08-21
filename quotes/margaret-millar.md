@@ -1,0 +1,22 @@
+ - Some people become so expert at reading between the lines they don’t read the lines.
+ - Don’t borrow trouble. The interest is too high.
+ - To the uneducated eye, as to the incurious mind, much of the world is in darkness, and a thousand songs are lost on the unlistening ear.
+ - When someone gives me three reasons instead of one, I’m inclined not to believe any of them.
+ - The smell of moist earth and lilacs hung in the air like wisps of the past and hints of the future.
+ - Violence is the instinctive response to fear.
+ - When you’re counting alibis and not apples, one plus one equals none.
+ - Private problems don’t constitute an excuse for bad manners.
+ - Common sense is a vastly overrated virtue. I myself prefer the spark of genius.
+ - I wish people would quit telling me to think. I think. Thinking’s easy. It’s not thinking that’s hard.
+ - I’ve reached the age where anyone who lets me talk seems like an old By listening to my memories, you have become part of them.
+ - The sun was shining like a congratulation.
+ - There is no such thing as an ex-exhibitionist.
+ - People, alas, are more impressed by statistics than they are by ideas.
+ - The day will probably come when you can tell everything about a person from his dreams except his age and weight.
+ - You have what is known as a lot of character, meaning you can be wrong at the top of your lungs.
+ - Shrews are made, not born.
+ - Any good marriage involves a certain amount of play-acting.
+ - If you go around looking for accidents, asking for them, they can’t be called accidents any more.
+ - Perfect young men don’t get murdered, they don’t even get born.
+
+20 quotes

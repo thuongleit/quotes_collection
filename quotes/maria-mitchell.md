@@ -1,0 +1,47 @@
+ - There is no cosmetic for beauty like happiness.
+ - But why look back at all? Why turn your eyes to your shadow, when, by looking upward, you see your rainbow in the same direction?
+ - We especially need imagination in science. Question everything.
+ - We have a hunger of the mind which asks for knowledge of all around us, and the more we gain, the more is our desire; the more we see, the more we are capable of seeing.
+ - To read a book, to think it over, and to write out notes is a useful exercise; a book which will not repay some hard thought is not worth publishing.
+ - I had only ordinary capacity but extraordinary persistency.
+ - In my younger days, when I was painted by the half-educated, loose and inaccurate ways women had, I used to say, “How much women need exact science” But since I have known some workers in science, I have now said, “How much science needs women”
+ - The eye that directs a needle in the delicate meshes of embroidery will equally well bisect a star with the spiderweb of the micrometer.
+ - No woman should say, “I am but a woman!” But a woman! What more can you ask to be?
+ - A traveller, lost on a desert plain, feels that the recognition of one star, the Pole star, is of itself a great acquisition.
+ - A sphere is made up of not one, but an infinite number of circles; women have diverse gifts, and to say that women’s sphere is the family circle is a mathematical absurdity.
+ - I am always the better for open-air breathing, and was certainly meant for the wandering life of the Indian.
+ - Yesterday I had a Shaker visitor, and today a Catholic; and the more I see and hear, the less do I care about church doctrines.
+ - Besides learning to see, there is another art to be learned – not to see what is not.
+ - The world of learning is so broad, and the human soul is so limited in power! We reach forth and strain every nerve, but we seize only a bit of the curtain that hides the infinite from us.
+ - Do not look at stars as bright spots only. Try to take in the vastness of the universe.
+ - How strange that some people cannot believe in both the Book of Nature and the Book of God.
+ - As a general rule, people disappoint you as you know them.
+ - The phrase ‘popular science’ has in itself a touch of absurdity. That knowledge which is popular is not scientific.
+ - Small aids to individuals, large aid to masses.
+ - An English village could never be mistaken for an American one: the outline against the sky differs; a thatched cottage makes a very wavy line on the blue above.
+ - I have worn myself thin trying to find out about this comet, and I know very little now in the matter.
+ - When we are chafed and fretted by small cares, a look at the stars will show us the littleness of our own interests.
+ - The world of learning is so broad, and the human soul is so limited in power!
+ - I would as soon put a girl alone into a closet to meditate as give her only the society of her needle.
+ - I was a little doubtful about the propriety of going to the Mammoth Cave without a gentleman escort, but if two ladies travel alone they must have the courage of men.
+ - I am just learning to notice the different colors of the stars, and already begin to have a new enjoyment.
+ - Nothing comes out more clearly in astronomical observations than the immense activity of the universe.
+ - It is sad to see a woman sacrificing the ties of the affections even to do good.
+ - Women, more than men, are bound by tradition and authority. What the father, the brother, the doctor, and the minister have said has been received undoubtingly. Until women throw off this reverence for authority they will not develop.
+ - Every formula which expresses a law of nature is a hymn of praise to God.
+ - A young sailor boy came to see me to-day. It pleases me to have these lads seek me on their return from their first voyage, and tell me how much they have learned about navigation.
+ - We travel to learn; and I have never been in any country where they did not do something better than we do it, think some thoughts better than we think, catch some inspiration from heights above our own.
+ - The Southern character is opposed to haste. Safety is of more worth than speed, and there is no hurry.
+ - I made observations for three hours last night, and am almost ill today from fatigue; still I have worked all day, trying to reduce the places, and mean to work hard again tonight.
+ - The greatest object in educating is to give a right habit of study.
+ - Why can a man not act himself, be himself, and think for himself? It seems to me that naturalness alone is power; that a borrowed word is weaker than our own weakness, however small we may be.
+ - Let us secure not such books as people want, but books just above their wants, and they will reach up to take what is put out for them.
+ - People have to learn sometimes not only how much the heart, but how much the head, can bear.
+ - The best that can be said of my life so far is that it has been industrious and the best that can be said of me is that I have not pretended to what I was not.
+ - Altogether, St. Louis is a growing place, and the West has a large hand and a strong grasp.
+ - I saw, in looking over Cooper, elements of a comet of 1825 which resemble what I get out for this, from my own observations, but I cannot rely upon my own.
+ - There is something of the same pleasure in noticing the hues of the stars that there is in looking at a flower garden in autumn.
+ - That knowledge which is popular is not scientific.
+ - I was born, for instance, incapable of appreciating music.
+
+45 quotes

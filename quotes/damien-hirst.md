@@ -1,0 +1,97 @@
+ - I think suicide is the most perfect thing you can do in life.
+ - So smoking is the perfect way to commit suicide without actually dying. I smoke because it’s bad, it’s really simple.
+ - I love art. It is uplifting.
+ - The spot paintings, the spin paintings, they’re all a mechanical way to avoid the actual guy in a room, myself, with a blank canvas.
+ - Great art – or good art – is when you look at it, experience it and it stays in your mind. I don’t think conceptual art and traditional art are all that different.
+ - The best spot painting you can have by me is one painted by Rachel.
+ - Picasso, Michelangelo, possibly, might be verging on genius, but I don’t think a painter like Rembrandt is a genius.
+ - I believe all painting and art should be uplifting for the viewer.
+ - But the answer to how to live is to stop thinking about it. And just to live. But you’re doing that anyway. However you intellectualise it, you still just live.
+ - I think art is good at looking back and looking forward. I don’t think art is good at looking head-on. At the end of the day, people are more important than paintings.
+ - As a father, I would say I am more like a mother. I do a lot of hugging.
+ - Never let money get in the way of an idea.
+ - It’s very easy to say, ‘I could have done that,’ after someone’s done it. But I did it. You didn’t. It didn’t exist until I did it.
+ - When we are no longer children, we are already dead.
+ - It’s amazing what you can do with an E in A-Level art, a twisted imagination and a chainsaw.
+ - I always try to make everyone mellow down, make sure everybody’s happy. The people I have employed have always kind of stayed with us. A lot of people who come to work for you are artists in their own right. And they want to work for you because they want to pick something up.
+ - Since I was a child, death is definitely something that I think about every day. But I think that everybody does. You try and avoid it, but it’s such a big thing that you can’t.
+ - I think money is important for everyone, because the lack of it is so painful.
+ - Sometimes when you’re drunk you can see better.
+ - If the choice is between buying another building or a Pollock, I’d go for the Pollock every time.
+ - Most people live in the city and go to the country at the weekend, and that’s posh and aristocratic, but actually to live in the country and come to London when you can’t take it any more is different.
+ - I definitely think about death. And every day your relationship with death changes. And every day I sort of feel like I know it more. I’ve always thought about it.
+ - I was taught to confront things you can’t avoid. Death is one of those things. To live in a society where you’re trying not to look at it is stupid because looking at death throws us back into life with more vigour and energy. The fact that flowers don’t last for ever makes them beautiful.
+ - I did a butterfly show in Berlin, and we had a guy who’s an expert on butterflies; who bred them all and who looks after them all in the space.
+ - I love color. I feel it inside me. It gives me a buzz.
+ - I quite like it to be risky. I’m not ready to sit down in a chair with my name on it yet. I’ve arrived at that point in the art world where there really is a chair that you sit in.
+ - I wanted a shark that’s big enough to eat you, and in a large enough amount of liquid so that you could imagine you were in there with it.
+ - I have always been aware that you have to get people listening before you can change their minds. Any artist’s big fear is being ignored, so if you get debate, that’s great.
+ - Art is the closest you can get to immortality, though it’s a poor substitute – you’re working for people not yet born – and people want it because it is brilliant. It ends up in museums anyway; the rich have to give it back to the people, it’s their only option. There are no pockets in a shroud.
+ - But then architects don’t build their own houses.
+ - I’m 43. I’m not ready to sit down in a chair with my name on it yet.
+ - You have to step over the boundaries sometimes just to find out where theyare.
+ - It’d be nice to make lots of money but it’s quite difficult, because every time I make lots of money I make a bigger piece that costs lots of money.
+ - Making art, good art, is always a struggle. It can make you happy when you pull it off. There’s no better feeling. It’s beauteous. But it’s always about hard work and inspiration and sweat and good ideas.
+ - A lot of people thought I wasn’t doing anything because I was spending a lot of time socialising and going out, but I’ve always managed to get work actually done.
+ - I think an ashtray is the most fantastically real thing.
+ - When I used to do abstract paintings at school, like everyone else, the tutor said these would make great curtains. I would always neglect the formal stuff that was going on by using colour, because colour kind of came naturally to me.
+ - I think I’ve always been afraid of painting, really. Right from the beginning. All my paintings are about painting without a painter. Like a kind of mechanical form of painting. Like finding some imaginary computer painter, or a robot who paints.
+ - I have titles floating around in my head; I have sculptures floating around in my head. It’s like a collage.
+ - I sometimes feel that I have nothing to say and I want to communicate this.
+ - I’ve never learned to drive because I get lots of ideas when I’m a passenger in a car. I love to get in a car with a driver and just think and work things out.
+ - For me, art is always a kind of theater. When I started the spot paintings I made them as an endless series. But I was never serious about it being an endless series. It was just an implied endless series. The theater means you just have to make it look good for that moment in the spotlight.
+ - I can’t wait to get into a position to make really bad art and get away with it.
+ - Art comes from everywhere. It’s your response to your surroundings.
+ - Buy art, build a museum, put your name on it, let people in for free. That’s as close as you can get to immortality...
+ - I realised that you couldn’t use the tools of yesterday to communicate today’s world. Basically, that was the big light that went on in my head.
+ - I can’t wait to get into a position to make really bad art and get away with it. At the moment if I did certain things people would look at it, consider it and then say “f off”. But after a while you can get away with things.
+ - In fact, the first piece of art I ever sold, I paid someone else to make the next one, so I could actually keep going out drinking.
+ - Death’s just something that inspires me, not something that pulls me down. I used to get called morbid at school. I have always loved horror films; I like being frightened.
+ - What I really like is minimum effort for maximum effect.
+ - Even as a kid in drawing class, I had real ambition. I wanted to be the best in the class, but there was always some other feller who was better; so I thought, It cant be about being the best, it has to be about the drawing itself, what you do with it. Thats kind of stuck with me.
+ - Here’s one from me: ‘You have to be aware that everyone else is thinking far too hard about themselves to be thinking about you, whoever you are.’ If you want it, you can have it. Once you know that, you can be free.
+ - As an artist, you don’t stop making art because people are not buying it.
+ - I just wanted to find out where the boundaries were. So far I’ve found there aren’t any. I just wanted to be stopped, and no one will stop me.
+ - You’ve got to be able to copy things faithfully before you can deviate.
+ - I just hope that I can be kind of like the Beatles. I really like that kind of model. I like the way that without losing integrity they could change through fashion and not look back at the ’60s and vomit when they saw what they’d done.
+ - For artists it’s a lot easier to make art in bad times than it is in good times. When you’ve got no money it’s easy to just drink your way through it and make great art. But if you’re making lots of money it can be very problematic.
+ - It’s such a crass idea – you’re either in love or out of love.
+ - The goal in life is to be solid, whereas the way that life works is totally fluid, so you can never actually achieve that goal.
+ - In an artwork you’re always looking for artistic decisions, so an ashtray is perfect. An ashtray has got life and death.
+ - I think I like big issues, but I don’t believe in God or religion.
+ - Painting is so poetic, while sculpture is more logical and scientific and makes you worry about gravity.
+ - For me, art is always a kind of theater.
+ - I mean, people listen to music, and they like that, but I think in England, a lot of people don’t like contemporary art.
+ - Art goes on in your head. If you said something interesting, that might be a title for a work of art and I’d write it down.
+ - I don’t really have a career plan.
+ - But whenever I look at the question of how to live, the answer’s always staring me in the face. I’m already doing it.
+ - I always feel like the art’s there and I just see it, so it’s not really a lot of work.
+ - I was brought up Catholic, and I felt the power of art from a very young age – seeing the brutality of all those images of flayed apostles and tortured saints was a pretty strong introduction.
+ - Because it’s visual art, a lot of it comes from childhood experience but then a lot comes from the visual language – in advertising and stuff like that – which is around us.
+ - I can’t understand why most people believe in medicine and don’t believe in art, without questioning either.
+ - When you’ve just done it, you’re not sure. But when you’ve sat with it for a couple of hours and you don’t want to do anything more to it, that’s a great feeling. It can stand on its own two feet.
+ - As soon as something becomes art I think you get over the fear.
+ - Immortality is really desirable, I guess. In terms of images, anyway.
+ - Commercials are so contemporary and up to date that when you’re involved in that visual world, you can’t really go backwards.
+ - When it comes to the British monarchy, I prefer to be seduced by an image than presented with a real person. It’s kind of a Warhol thing.
+ - A painting probably is the most shocking increase in value, from what it costs to make to what you sell it for.
+ - You can always tell a great painting, because when you get close there are all these nervous marks.
+ - The infinite possibilities. That’s what used to do my nut in.
+ - The answer to how to live is to stop thinking about it.
+ - I don’t think I’d want my pet in formaldehyde, but I guess in America they would.
+ - You’ve got to be oblivious to other people, the push and pull of other people’s opinions, the way other people measure success. It’s then that you realize you are 100 percent who you are and you have to use that who-you-are 100 percent in order to create great things.
+ - I think as an artist you have to reinvent yourself every day.
+ - You’ve really got to get down on the floor with yourself and get low in order to make great art. I think you’ve just got to accept who you are and do the most unbelievable things.
+ - Whenever I’ve been well-known or hitting the press, I’ve always had to get my credit card out to prove I’m Damien Hirst.
+ - I used to believe I was going to live forever. And then you suddenly become aware that you’re not.
+ - I always ignore money.
+ - But I could never make a judgement that something was obscene.
+ - I used to watch ‘Top of the Pops’ when I was a kid and say ‘Yeah!’ or ‘Boo!’ at every single song. So there was nothing in the middle. You brutally put it on one side or another.
+ - I liked The Beatles a lot when I was growing up.
+ - But I always liked the fact that you get these totally unacceptable images, but they’re taken by a really expensive photographer, with great light, and in terms of the quality of the photograph it’s a great photograph, but in terms of imagery it’s unacceptable, and I like that contradiction.
+ - But I’m more interested in why people are frightened by Jaws and why Jaws was such a hit than saying Spielberg’s my main influence.
+ - Artists are like everybody else.
+ - I just do what everybody asks me to do, in terms of media and stuff.
+ - Being best is a false goal, you have to measure success on your own terms.
+
+95 quotes

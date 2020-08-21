@@ -1,0 +1,55 @@
+ - Turning 50 can be difficult, sometimes dangerous, for women. The danger is in that blip that can come from the fact that you become invisible, and if you’re not careful and don’t embrace that, it can trip you up and you lose confidence.
+ - I am a rubbish flirt.
+ - I’ve chosen to stay in a jolly place for most of my life, and that is a lot of who I am.
+ - Divorce is not easy, but if you genuinely put your kids first, that dictates the civility you should show each other. What example are you otherwise?
+ - It was my father who taught me to value myself. He told me that I was uncommonly beautiful and that I was the most precious thing in his life.
+ - My daughter couldn’t care less about me being famous. She finds it revolting and, like a lot of teenagers, is virtually allergic to me. That started at 12 and hasn’t gone anywhere yet.
+ - My best friend is the most important girl, outside of family, to me. I met her when I went to college and we bonded immediately. I’d do anything for her at any time. We phone each other every day.
+ - It was my father who taught me to value myself...
+ - What was I thinking? Fact is I wasn’t thinking. I didn’t want to think. I wanted to feel.
+ - I don’t know what the future holds, but I have to be confident about it. It’s just the way I am.
+ - It was fantastic to work in Cornwall partly because my family live there so I was able to do lots of visiting and eat lots of cake. They live all over Cornwall and all over Devon.
+ - I’ll always be a fat girl and I am happy with that.
+ - Young people need their own private places which mothers don’t belong to, even if they want mother all around the edge of that.
+ - I’m not a big drinking person and hardly ever have alcohol. Perhaps it’s not sweet enough for my sweet tooth.
+ - Evolving into a middle-aged person is quite interesting if we can understand what it means. I would like to think it meant being a bit sure of what I want.
+ - I want to do something where I play Judi Dench’s younger sister or daughter.
+ - I know what it’s like to struggle for cash. When I went to drama school, I worked as a chambermaid to make ends meet.
+ - I have had the unfortunate experience of having someone write an unauthorised biography of me. Half of it is lies and the other half is badly written. My feeling is that if I’m going to write my life story, I ought to have my life first.
+ - The best way to lose weight is to put the handle of the fridge two inches from the ground.
+ - In actual life I am a grumpy old bag.
+ - I never do any television without chocolate. That’s my motto and I live by it. Quite often I write the scripts and I make sure there are chocolate scenes. Actually I’m a bit of a chocolate tart and will eat anything. It’s amazing I’m so slim.
+ - I keep my own personality in a cupboard under the stairs at home so that no one else can see it or nick it.
+ - I’d like to play a horse, many people think I already have. Either end of the horse would be fine.
+ - Why would anyone want to be called a size zero or even aspire to being a zero? I don’t even understand the thinking behind it, let alone the practicalities. What is all that about?
+ - Im constantly astounded by how amazing women are. And as we go through all these different stages of life as long as you share them with others and say, Well, this is bloody weird, you can get through everything.
+ - I watch schlock telly. Like the ‘Kardashians.’ I love it. It’s my guilty pleasure.
+ - I don’t read novels whilst I’m writing one; I just haven’t got a wide enough brain to concentrate on incoming and outgoing in the same time zone.
+ - My approach to parenting is that everything is open – everything. I’m not very good at covert, or subtle, and I’ve had to learn timing. I do blunder in a bit.
+ - If I had been around when Rubens was painting, I would have been revered as a fabulous model. Kate Moss? Well, she would have been the paintbrush.
+ - I’ve often said the most difficult things I have to say to people through humour. I can very quickly put someone in their place with it. But we all walk away unscathed because there’s been some funnies around it, and I’ll usually make sure that it comes back at me.
+ - I’m known among my friends for saying things I probably shouldn’t sometimes, but I have to get things out in the air.
+ - I am not, I repeat, NOT a lesbian – even though I’d like to be one when I grow up.
+ - Other than my memory being a bit woolly and my knees being a bit creaky, I don’t really think there’s anything I can’t do.
+ - For me, whatever age or size I’ve been, I have rather liked myself. The shell is not the thing at all.
+ - That’s the weird thing about not being married – you can’t get regular kissing; you can’t be guaranteed of it, and that’s a great shame.
+ - I am a kid in the dressing-up box at heart.
+ - I haven’t really ever had to audition for anything.
+ - I have turned away from the thought of writing fiction in the past through what I suppose is, actually, fear. The direct, raw invitation for the reader to come in and explore my imagination is fairly scary for me so I have busied myself with so much else.
+ - Why would I worry about getting older – what’s to moan about?
+ - I’ve never disliked myself, and my weight has had nothing to do with my self-esteem.
+ - People need to learn to take everyone as they are.
+ - I do think you are supposed to go through wars with your child because otherwise the tearing apart that has to happen when they go off to lead their own life would be unbearable.
+ - Funny how women are ashamed of their inner fairy whereas men are forever proudly displaying their inner cowboy or fireman.
+ - I love it when somebody makes me laugh – it’s what attracts me to people.
+ - The only time I did not know how to be, physically, was when I lost a lot of weight. That was the only time I didn’t understand my body.
+ - I’ve always loved kissing. We all do, don’t we?
+ - The person I have admired the most in comedy terms would be Eric Morecambe, who is my total hero.
+ - When I wrote ‘Dear Fatty,’ I realised that sitting and writing alone is an absolute joy.
+ - That’s the awful thing about dating. Tight underwear. We would all like to be in a big bra and pants and when you are in a secure relationship you can do that.
+ - Theatre outings are my favourite thing to spend money on. The most influential play I saw was Bent, which starred Ian McKellen. And I loved the original performance of The Rocky Horror Show, with Richard OBrien and Tim Curry at the Royal Court, when I was about 15.
+ - Writing has become my great joy – I simply love it.
+ - Any people whose lives are about the way they look, whether it’s fat or thin, are in a dangerous area.
+ - I think of myself now as a writer, although I wouldn’t go as far as to say ‘novelist’ because that sounds like a Victorian person.
+
+53 quotes

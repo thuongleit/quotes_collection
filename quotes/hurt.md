@@ -1,0 +1,42 @@
+ - The past can hurt. But the way I see it, you can either run from it, or learn from it. ~~Walt Disney
+ - What hurts you, blesses you. Darkness is your candle. ~~Rumi
+ - The truth hurts, but silence kills. ~~Mark Twain
+ - Resilience is very different than being numb. Resilience means you experience, you feel, you fail, you hurt. You fall. But, you keep going. ~~Yasmin Mogahed
+ - We are more often frightened than hurt; and we suffer more from imagination than from reality. ~~Seneca the Elder
+ - Nothing hurts a good soul and kind heart more than to live amongst people who can’t understand it. ~~Ali ibn Abi Talib
+ - Go out in the world and work like money doesn’t matter, sing as if no one is listening, love as if you have never been hurt, and dance as if no one is watching. ~~Victor Hugo
+ - To hell with them. Nothing hurts if you don’t let it. ~~Ernest Hemingway
+ - Always seek less turbulent skies. Hurt. Fly above it. Betrayal. Fly above it. Anger. Fly above it. You are the one who is flying the plane. ~~Marianne Williamson
+ - You can’t hurt me, I found peace within myself. ~~Michael Jackson
+ - Love all. Serve all. Help ever. Hurt never. ~~Sathya Sai Baba
+ - Study hard. Work hard. Play harder. Don’t be bound by rules, don’t hurt anybody and never ever live somebody else’s dream. ~~Shah Rukh Khan
+ - People fear death even more than pain. It’s strange that they fear death. Life hurts a lot more than death. At the point of death, the pain is over. Yeah, I guess it is a friend. ~~Jim Morrison
+ - I suppose in the end, the whole of life becomes an act of letting go, but what always hurts the most is not taking a moment to say goodbye. ~~Yann Martel
+ - I will hurt you for this. I don’t know how yet, but give me time. A day will come when you think yourself safe and happy, and suddenly your joy will turn to ashes in your mouth, and you’ll know the debt is paid. ~~George R.R. Martin
+ - Later that night, I held an atlas on my lap, ran my fingers across the whole world, and whispered, ‘where does it hurt?’ It answered, everywhere, everywhere, everywhere. ~~Warsan Shire
+ - Spiteful words can hurt your feelings but silence breaks your heart. ~~C. S. Lewis
+ - If it hurts, DON’T DO IT AGAIN. ~~Martin Niemöller
+ - Your job isn’t to judge. – Your job isn’t to figure out if someone deserves something or decide who is right or wrong. – Your job is to lift the fallen, restore the broken, and heal the hurting. ~~Joel Osteen
+ - When you serve others, when you make somebody else’s life better, when you lift up people, when you help heal those that are hurting, not only are they being blessed, but you’re being blessed. ~~Joel Osteen
+ - It hurts, but that’s all it does. The most difficult part of the training is training your mind. You build calluses on your feet to endure the road. You build calluses on your mind to endure the pain. There’s only one way to do that. You have to get out there and run. ~~David Goggins
+ - I remember everything What have I become? My sweetest friend? E veryone I know goes away in the end You could have it all My empire of dirt I will let you down I will make you hurt. ~~Johnny Cash
+ - The secret of success is to find a need and fill it, to find a hurt and heal it, to find somebody with a problem and offer to help solve it. ~~Robert H. Schuller
+ - Hold everything in your hands lightly, otherwise it hurts when God pries your fingers open. ~~Corrie ten Boom
+ - It’s only pain, it will not hurt you. ~~Bas Rutten
+ - You can’t love anyone that way more than once in a lifetime. It’s too hard and it hurts too much when it ends. ~~Sarah Dessen
+ - I will keep a smile on my face and in my heart even when it hurts today. ~~Og Mandino
+ - Sticks and stones may break your bones but words can hurt like hell. ~~Chuck Palahniuk
+ - The rain will stop, the night will end, the hurt will fade. Hope is never so lost that it can’t be found. ~~Ernest Hemingway
+ - People think they know me, but they don’t. Not really. Actually, I am one of the loneliest people on this earth. I cry sometimes, because it hurts. It does. To be honest, I guess you could say that it hurts to be me. ~~Michael Jackson
+ - Don’t hold to anger, hurt or pain. They steal your energy and keep you from love. ~~Leo Buscaglia
+ - People will hurt you. But don’t use that as an excuse for your poor choices, use it as motivation to make the right ones. ~~Lecrae
+ - Beauty is worse than wine, it intoxicates both the holder and beholder. ~~Aldous Huxley
+ - Forgiving the people that hurt us most allows us to heal from the wounds they left. ~~Lecrae
+ - Knowledge is pain that’s why it hurts to know. ~~Drake
+ - You will know that forgiveness has begun when you recall those who hurt you and feel the power to wish them well. ~~Lewis B. Smedes
+ - When you begin to realize that your past does not necessarily dictate the outcome of your future, then you can release the hurt. It is impossible to inhale new air until you exhale the old. ~~T.D. Jakes
+ - What hurts the victim most is not the cruelty of the oppressor, but the silence of the bystander. ~~Elie Wiesel
+ - Strength of character means the ability to overcome resentment against others, to hide hurt feelings, and to forgive quickly. ~~Lawrence G. Lovasik
+ - I found out that the things that hurt us the most can become the fuel and the catalyst that propel us toward our destiny. It will either make you bitter or it will make you better. ~~T.D. Jakes
+
+40 quotes

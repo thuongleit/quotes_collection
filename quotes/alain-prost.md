@@ -1,0 +1,32 @@
+ - When I look fast, I’m not smooth and I am going slowly. And when I look slow, I am smooth and going fast.
+ - I have no problem with the people who work hard to get success. But I think people are very jealous about success. I work very hard and they don’t appreciate that.
+ - The people who criticise you will not be the ones taking care of your legs when you are in your wheelchair. People who never drove a car in these conditions, they just don’t know.
+ - When I test I never go right to the limit. Only because when you are below the limit you can go at the same speed all day, and that’s the only way you can be absolutely sure about what you are testing.
+ - Without going to what I think is my limit. I always say that my ideal is to get pole with the minimum effort, and to win the race at the slowest speed possible.
+ - I always work the same way, starting from the beginning of the weekend, so I know at the beginning of the race, from all that I have analysed during the practice, whether I will win the race or not.
+ - Does it scare me, driving into nothing at 300kph? – Of course it does – I’m not an idiot...
+ - Sometimes I think I could have got some better results if I had a different mentality; if I could have pushed hard and attacked. But then I would have had a good chance of making a mistake.
+ - You can’t always have the best team. It’s always a compromise.
+ - Maybe I am not French, maybe I am from nowhere.
+ - You want to have fun but you also want to work well. Sometimes I was quite happy at Ferrari, because we would have fun, but then they could not stop having fun and go back to the real work.
+ - It’s always better to speak the language of the team. Not only for the direct contact with everyone – sometimes it also helps you to understand the mentality of the people in the team a bit better.
+ - I’m brave to say that I won’t take this sort of risk.
+ - So in fact the only thing you can judge in this sport its the longterm. You can judge a career or a season, but not one race.
+ - I have had some problems because the French don’t like people to have success, they don’t like the number one.
+ - That is an important part of my success. Another big part of my success is that I hated not to finish a race.
+ - Some Italians are geniuses, but you have to find a balance.
+ - I like the mentality of the Americans. It’s like when you talk about money.
+ - It’s not too good to have this attitude in F1. It could be a disadvantage.
+ - I don’t like to go over curbs, because I don’t want to be hard on the car.
+ - I was looking at the history of the sport and I couldn’t understand why there have been so many good South American drivers, especially Brazilians.
+ - People don’t understand that it was maybe my biggest pleasure to drive an F1 car when it’s wet.
+ - Do you know, why I really love my helmet that much? Because it makes me 15 centimetres taller!
+ - I think maybe the English don’t want to try something and look stupid, because they are a bit reserved.
+ - In 1980 I finished three or four times in seventh place.
+ - I was very interested in that. It is very important to have confidence as well as to build up experience.
+ - When you win a race like this the feeling is very, very good.
+ - One of my biggest problems this season was with the clutch at the start of the race. I hate to risk the car.
+ - A German team could be quite good. But maybe they are a little bit too convinced that they are the best.
+ - I have always had this mentality because I hated to break anything on the car.
+
+30 quotes

@@ -1,0 +1,152 @@
+ - When women get together as a group, it is immensely powerful.
+ - You just decide what your values are in life and what you are going to do, and then you feel like you count, and that makes life worth living. It makes my life meaningful.
+ - I live in a world of possibility and opportunity. You look for the light. There’s darkness everywhere but you look for that spot of light and you work your way towards it, and you do what it takes to get there.
+ - Ask yourself: Have you been kind today? Make kindness your daily modus operandi and change your world.
+ - I enjoy multi-tasking, so I want to do a lot of different things. I want to keep all the plates spinning.
+ - I love to make music and stay grounded.
+ - Life expectancy in many parts of Africa can be something around the age of thirty five to thirty eight. I mean you’re very fortunate if you live to that age. In fact when I went to Uganda for the first time one of the things that occurred to me was that I saw very few elderly people.
+ - There must be an angel playing with my heart.
+ - Please don’t ask me for the actual answer to anything, because I don’t have it. Because all I do is look at stuff and ask questions. What can I say? I just think the world’s barking mad. Look, I’m not an expert. I’m just an ordinary person.
+ - I have a calling in my soul, if you like, to try to make my life in some way worthwhile. What is the value of my existence?
+ - The world is a heartbreaking place, without any question.
+ - The future hasn’t happened yet and the past is gone. So I think the only moment we have is right here and now, and I try to make the best of those moments, the moments that I’m in.
+ - Whatever you do, you do out of a passion.
+ - Charity is a fine thing if it’s meeting a gap where needs must be met and there are no other resources. But in the long term we need to support people into helping themselves.
+ - The person who inspired me the most was a friend of mine, Anita Roddick. I know that Anita wasn’t known to be an ardent feminist, but she truly was.
+ - I’m not really keen on comebacks. Eurythmics was an incredible thing. When I look back on that work, I feel very satisfied with it.
+ - I have a lot to be grateful for.
+ - Feminism is a word that I identify with. The term has become synonymous with vitriolic man-hating but it needs to come back to a place where both men and women can embrace it. It is particularly important for women in developing countries.
+ - Medicine comes with hope: the hope of having a healthy child, the hope of being able to raise your family.
+ - Humankind seems to have an enormous capacity for savagery, for brutality, for lack of empathy, for lack of compassion.
+ - Dying is easy, it’s living that scares me to death.
+ - There’s always darkness around, and if you focus on the darkness, you don’t know where to go. But if you direct yourself at the light – there it is! It’s right there.
+ - I have a reputation for being cold and aloof, but I’m so not that woman. I’m passionate. I love my girls, being with my girlfriends, getting involved with issues that affect other women and children who are suffering.
+ - I will go out of my way to avoid the shopping crowds and the extreme consumerism – I hate all that.
+ - If someone says something unpleasant, I can’t say it doesn’t smart a bit. It always does. Someone can take a really nasty swipe if they want because it kind of feels powerful for a person to write in a paper and get that thing out there.
+ - Desire, despair, desire. So many monsters.
+ - Fear paralyses you – fear of flying, fear of the future, fear of leaving a rubbish marriage, fear of public speaking, or whatever it is.
+ - I sang a lot as a little girl and entered competitions. I loved singing in choirs, but it was as I got older that I really found my voice.
+ - Twerking is not feminism. Thats what I’m referring to. It’s not – it’s not liberating, it’s not empowering. It’s a sexual thing that you’re doing on a stage; it doesn’t empower you. That’s my feeling about it.
+ - There are two kinds of artists left: those who endorse Pepsi and those who simply won’t.
+ - You have a bigger view, of something bigger than you, and you have to view that and take that in mind. At times you feel like despair rises up over hope, then other times you feel hopeful again.
+ - You become really ugly when you become very superficial and self-obsessed.
+ - Fame for fame’s sake is toxic – some people want that, with no boundaries. It’s unhealthy.
+ - Fundamentally, we are all in the same place: we’re born, we live, and we’re going to die. In between, we’ll have joy and we’ll have sadness.
+ - I don’t take myself as seriously as some people think, and I’d hate anyone to think I was preaching. That’s the last thing I want.
+ - I was brought up in a tenement house in a working district. We didn’t even have a bathroom! We had a gaslight in the hallway and a black-and-white TV.
+ - I’m an only child, you know, originally. I’m not a child anymore, but I certainly tend to spend a lot of time on my own.
+ - I have always been a very visual person and a keen observer.
+ - I haven’t lived my life through my daughters. Some parents devote everything to their children, which must be so hard, and it’s very beautiful. But I’m a working parent, so I’ve always kept my own life.
+ - It’s hard to tell how far women’s individuality has come in the past twenty years.
+ - Success breeds the excitement to continue going.
+ - The word feminism needs to be taken back. It needs to be reclaimed in a way that is inclusive of men.
+ - I’m not living my life under the spotlight for anybody.
+ - Life is not quantifiable in terms of age, but I suppose in my fifties I am more grounded and more at ease in my own skin than when I was younger. I have a confidence that I didn’t have before from the experiences I’ve had.
+ - I am fascinated by history and particularly the Victorian era.
+ - There was a time when I looked to other people for recognition, because I didn’t have enough confidence to trust my own judgment. Now I’m not looking for reassurance, because I realize how fickle people are. My own strength is the best I can have.
+ - When you’re that successful, things have a momentum, and at a certain point you can’t really tell whether you have created the momentum or it’s creating you.
+ - If you want to open a supermarket chain and put your face all around the globe, selling your baby and your dog, if it makes you happy, who am I to disagree, as the song goes. But it’s not for me. I’ve always tried to keep my integrity and keep my autonomy.
+ - We all fight over what the label ‘feminism’ means but for me it’s about empowerment. It’s not about being more powerful than men – it’s about having equal rights with protection, support, justice. It’s about very basic things. It’s not a badge like a fashion item.
+ - Although I have lived in London, I have never really considered London my home because it was always going to be a stopping-off point for me, and it has been too.
+ - I stand on the shoulders of giants that have gone before me, in terms of affording people like myself, women, the access to democracy, the vote, medical treatment, education, everything that I’ve been given. It’s all been earned.
+ - The worst thing someone gets is isolated. Isolation is the darkest part of any condition.
+ - I think Scotland could take a stand in a wonderful way, ecologically and morally and ethically.
+ - When you go to Africa, and you see children, they’re usually barefoot, dirty and in rags, and they’d love to go to school.
+ - I don’t have clear-cut positions. I get baffled by things. I have viewpoints. Sometimes they change.
+ - Fashion is temporary; fashion is a race. What it’s doing is giving you something that you say, “This is the outer wrapping of me.” Style is something else. It’s not quantifiable. Fashion is about selling. Fashion is about what’s in. Style is independent of that; style is individual.
+ - It’s not fair to compare one artist to another because they all come with their own sort of elements to the picnic, you know.
+ - If you come face to face with some really challenging situations and tragic circumstances – you are going in there with a purpose. You are not going in there as a tourist.
+ - Music is a great vehicle for communications, and I have a certain platform. I have an opportunity and I have to take it.
+ - We all come from women, and there’s something extraordinary about the mothers who raised us.
+ - When you get to be nearly 60, you do take stock. You don’t know what’s around the corner.
+ - Men need to understand, and women too, what feminism is really about.
+ - What’s really interesting is when you get a brand-new wave that has no connection to anything else. It always reflects society. The flappers would cut the dresses and make them looser, they smoked, their hair was short. It was a rebellion against the corset and the Edwardian era.
+ - Anita Roddick was amazing. Her presence in a room was full of light, and everything she worked to achieve still resonates now.
+ - I love to be individual, to step beyond gender.
+ - The contrast of the world that we live in and the world that is here in Aspen and the world inhabited by women who have no resources, little or no, very few resources – huge disparity.
+ - I’m not a Christian, but I think the Christian message is a good one.
+ - In a sense, the music business and I haven’t always been the best of bedfellows. Artists often have to fight their corner. Your music goes through these filters of record labels and media, and you’re hoping you’ll find someone who’ll help you get your work into the world.
+ - If people like your music, you can’t guarantee they’re going to love you.
+ - I didn’t want to be perceived as a girly girl on stage.
+ - My issue with the state of women became incredibly stimulated when I was visiting developing countries and it became obvious that women bore the brunt of so many things in society.
+ - I played with the image, because I think image is temporary. It’s a projection. It’s illusory.
+ - Why are we not valuing the word ‘feminism’ when there is so much work to be done in terms of empowerment and emancipation of women everywhere?
+ - I understand what it is for a woman to want to protect their children and give them the best they can.
+ - Money is a good thing and it’s obviously useful, but to work only for money or fame would never interest me.
+ - I’m appalled that the word ‘feminism’ has been denigrated to a place of almost ridicule and I very passionately believe the word needs to be revalued and reintroduced with power and understanding that this is a global picture. It isn’t about us and them.
+ - Our ancestors are totally essential to our every waking moment, although most of us don’t even have the faintest idea about their lives, their trials, their hardships or challenges.
+ - Nelson Mandela is awe inspiring – a person who really sacrificed for what he believed in. I feel truly humbled by him.
+ - The music industry has always been a beast, which would eat you up and spit you out.
+ - I think my daughters have a pretty healthy self-awareness but I can’t speak on their behalf.
+ - I’m a female but I have a masculine side and I’m not going to negate that part of myself.
+ - The dynamic between two individuals starts off with everything warm and nice and fabulous and good. Working and living together can serve you quite well, but when it starts to go wrong – oh, boy!
+ - Such is the scale and depth of poverty in many parts of the world that it won’t be ended overnight. That is why if, like me, you want to see an end to poverty, you need to be in it for the long haul.
+ - Pop stars are so busy having a career that they don’t really have a lot of time for activism.
+ - I was perceiving myself as good as a man or equal to a man and as powerful and I wanted to look ambiguous because I thought that was a very interesting statement to make through the media. And it certainly did cause quite a few ripples and interest and shock waves.
+ - Churches, depending on their policy, can do fantastic work with people in the community.
+ - As a creative person, you just put something out into the consciousness of the society you live in.
+ - Motherhood was the great equaliser for me; I started to identify with everybody.
+ - The poetic side of me is Scottish.
+ - Making a Christmas album is looked upon by some people as the thing you do when you are heading towards retirement.
+ - I can’t understand why the front pages of newspapers can cover bird flu and swine flu and everybody is up in arms about that and we still haven’t really woken up to the fact that so many women in sub-Saharan Africa – 60 percent of people in – infected with HIV are women.
+ - A lot of music you might listen to is pretty vapid, it doesn’t always deal with our deeper issues. These are the things I’m interested in now, particularly at my age.
+ - The inner world is very potent for me – I don’t ascribe to any God or Jesus or Buddha – I just have a sense of it and revere it along with the natural world and human consciousness.
+ - It’s a very telling thing when you have children. You have to be there for them, you’ve got to set an example, when you’re not sure what your example is, and anyway the world is changing so fast you don’t know what is appropriate anymore.
+ - I don’t have any interest to go to Israel. I don’t think I’d ever have a cause to go.
+ - I have always felt a little homeless. It’s a strange thing.
+ - Those in the developing world have so few rights – we take a lot for granted in the developed world.
+ - I don’t want to be owned by a corporation and obliged to make a certain type of album. I want to be free.
+ - It’s harder to get out of bed when you’ve failed.
+ - If we value what we’ve inherited for free – from other women – surely it’s right morally and ethically for us to wake up and say, ‘I’m a feminist. ’
+ - To try to help people have babies in a healthy way and to celebrate the process of delivering a child which will be healthy is, I think, almost the best part of healthcare.
+ - I wouldn’t say that I’ve mellowed. I’m less mellow, perhaps.
+ - I’ve had my share of dark days of the soul. I try not to focus on it too much so it doesn’t get to me.
+ - When I was younger I wish I’d known that what often seemed to be the ‘end of the world’ often turned out to be a positive and transformative experience!
+ - There’s a lot of women’s organisations, but they’re all working separately. If you get people together, as a collaborative voice, it’s strong.
+ - One wouldn’t want to have the same dilemmas at 50 as one had at 15. And indeed I don’t. I have a very different take on life.
+ - I want to branch out. I want to write. I write poetry. I want to see my children grow up well.
+ - Music is an extraordinary vehicle for expressing emotion – very powerful emotions. That’s what draws millions of people towards it. And, um, I found myself always going for these darker places and – people identify with that.
+ - People ask me so many questions.
+ - I’m not intensely private – I talk a great deal about my life and my work – I just don’t play the game to excess.
+ - As a mother, you have that impulse to wish that no child should ever be hurt, or abused, or go hungry, or not have opportunities in life.
+ - There needs to be a shift in consciousness; there needs to be an absolute wake-up call before society can actually make the kind of incredibly significant changes that need to happen.
+ - You’re never quite sure where the song is going, because you might not find the word to rhyme with the end of the line. You have to find associative meaning to get you there. So it’s rather like doing a crossword puzzle backwards. A kind of strange, three-dimensional, abstract crossword puzzle.
+ - Just having medicine isn’t equivalent to medical care. You need the health systems, you need to create the social framework so that people feel safe.
+ - I like where I live here, in London.
+ - I’m not particularly attention-seeking.
+ - Green is a label for a certain attitude to life, a certain kind of respect that one might have for the very source of things that we take for granted.
+ - I wanted to create something that was quite edgy and belonged to me. It wasn’t about my sexual orientation, because I’m heterosexual. It was saying that appearance is just temporary, and I want to be as strong as a man.
+ - For me, pointing and clicking my phone is absolutely fine. People say that isn’t the art of photography but I don’t agree.
+ - I’ve thought about what is an alternative word to feminism. There isn’t one. It’s a perfectly good word. And it can’t be changed.
+ - Women’s issues have always been a part of my life. My goal is to bring the word ‘feminism’ back into the zeitgeist and reframe it.
+ - I think life on the road really suits very egotistical men. It’s set up for kings.
+ - If one woman is suffering, then we are all suffering, and we need to put a voice to that.
+ - I also started writing songs because I had this burning activity in my heart and had to express myself.
+ - If I hadn’t been a singer, I might have been a photographer or an artist. But it’s singing I love. I sing all the time, and I feel really good that I’ve expressed myself.
+ - I want people to understand me as a person with views, not just performing songs.
+ - Every artist has to make their own statements and they have to live with them.
+ - Over the years, I was never really driven to become a solo artist, but I was curious to find out who I was as an individual creative person. It’s taken some time, but now I feel I’ve truly paid my dues. I guess I’m at a point now where I’m more comfortable in my own skin.
+ - You can live with almost any condition if you’re living within a community of people who can share a common understanding.
+ - There is a big difference between what I do onstage and what I do in my private life. I don’t put my living room on magazine pages.
+ - I think music is the most phenomenal platform for intellectual thought.
+ - I have different hats; I’m a mother, I’m a woman, I’m a human being, I’m an artist and hopefully I’m an advocate. All of those plates are things I spin all the time.
+ - I don’t feel there are enough women artists out there who are saying anything of tremendous relevance.
+ - I’ve never been a social person. When I grew up, the other girls would all be combing their hair and exchanging lipstick, and I just couldn’t do that group thing.
+ - You have to face things, have faith in what you do and go for it. Think, ‘What’s the worst that could happen?’
+ - I’m from a working-class background, and I’ve experienced that worry of not having a job next week because the unions are going on strike.
+ - You wouldn’t find a Joni Mitchell on ‘X Factor;’ that’s not the place. ‘X Factor’ is a specific thing for people that want to go through that process – it’s a factory, you know, and it’s owned and stitched-up by puppet masters.
+ - I watch ‘Mad Men,’ I knit scarves, I cook and am very, very normal. Honestly.
+ - I was born in 1954. My parents were brought up in the war years, and life was hard.
+ - You know, I would say that songwriting is something about the expression of the heart, the intellect and the soul.
+ - It was very easy for me to dedicate myself to the care of mothers, help them have healthy babies, help them be healthy, help them in a place where they don’t have opportunities. Success breeds the excitement to continue going. It’s harder to get out of bed when you’ve failed.
+ - I used to be obsessed about how I presented myself. I didn’t want other people dressing me because I didn’t want to be treated like a clothes horse.
+ - I’d rather support the issues I truly believe in than give my vote to parties that court votes at the time of the election. I like to think that my vote strengthens the green foundation stone.
+ - The music scene in the ’70s was like the United Kingdom in the ’70s – we had a lot of unemployment, we had inflation, we had a lot of strikes going on, on a national scale, and a lot of discontent. That was reflected in the music.
+ - I only want to make music because I have a passion for it.
+ - Most women are dissatisfied with their appearance – it’s the stuff that fuels the beauty and fashion industries.
+ - When things are starting to work, you get up at five in the morning thinking, what are we going to do today? You stay up until one in the morning getting it done, and then you start the next day with the same energy, because it’s working!
+ - I think people in Great Britain are a bit jaded sometimes.
+ - I find beauty in a very independent state. It lives quietly. It’s there to be discovered.
+ - I’m not a saint. I’m not an angel. I’m a human being.
+
+150 quotes

@@ -1,0 +1,56 @@
+ - Never say never Never is a long, undependable time, and life is too full of rich possibilities to have restrictions placed upon it.
+ - Key West for me was a tropical island paradise.
+ - I have gone through a long apprenticeship. I have gone through enough of being a nobody. I have decided that when I am a star, I will be every inch and every moment the star! Everybody from the studio gateman to the highest executive will know it.
+ - As Daddy said, life is 95 percent anticipation.
+ - I feel sure that unborn babies pick their parents.
+ - I think all this talk about age is foolish. Every time I’m one year older, everyone else is too.
+ - The day I initiated divorce proceedings against Michael Farmer, I was ready to retire to a desert cave and rethink my life.
+ - Much as I cared for Joseph Kennedy, he was a classic example of that person in the arts with lots of brains and drive but little taste or talent.
+ - I became a fanatic about healthy food in 1944.
+ - When I die, my epitaph should read: She Paid the Bills. That’s the story of my private life.
+ - My greatest debt will always be to the movie-going public of yesterday and today, without whose love and devotion I would have had no story to tell.
+ - Never say never, for if you live long enough, chances are you will not be able to abide by the simplest of such injunctions.
+ - The English press treated the world premiere of my first talking picture as a major event.
+ - If you’re 40 years old and you’ve never had a failure, you’ve been deprived.
+ - I entered the cosmetics industry because I wanted more women to use cosmetics made with safe, healthful ingredients.
+ - Life and death. They are somehow sweetly and beautifully mixed, but I don’t know how.
+ - The first feminine feature that goes, with advancing age, is the neck.
+ - My mother and I could always look out the same window without ever seeing the same thing.
+ - Because I take care of my body, it doesn’t look like the body of a woman of my years.
+ - I’ve given my memoirs far more thought than any of my marriages. You can’t divorce a book.
+ - Your body is the direct result of what you eat as well as what you don’t eat.
+ - Hollywood’s old trick: repeat a successful formula until it dies.
+ - Nobody gets anything for nothing.
+ - The fuss that actors began making about the difficulty of shifting to sound struck me as perfectly foolish.
+ - I am a very pragmatic person.
+ - One of the networks sent me a TV set to watch. I didn’t care for the medium. It depressed me.
+ - Writing the story of your own life is a bit like drilling your own teeth.
+ - There was no place at all for me in my father’s military world.
+ - The only time I ever went hunting I remembered it as a grisly experience.
+ - After 16 years in pictures I could not be intimidated easily, because I knew where all the skeletons were buried.
+ - My sculpture is very personal; for years my subjects were family and close, close friends.
+ - The Paramount executives were so pleased with Sunset Boulevard that they asked me to do a publicity tour.
+ - Sunset Boulevard opened in August 1950, and it was pronounced the best movie ever made about Hollywood.
+ - Tennessee Williams was a gifted talker with a beautiful accent and we had lots of things in common.
+ - From the first moment on the set I was consumed with curiousity about the technical side of shooting a sound picture.
+ - All they had to do was put my name on a marquee and watch the money roll in.
+ - The major gossip columnists were more concerned with protecting the industry than with gunning down sinners.
+ - I consider anybody who weighs over 200 pounds fat, and time was when I could not refrain from telling such people so.
+ - I doubted that there were Communists hiding behind every corporation desk and director’s chair.
+ - It’s amazing to find that so many people, who I thought really knew me, could have thought that ‘Sunset Boulevard’ was autobiographical. I’ve got nobody floating in my swimming pool.
+ - Sam Wood, the director, made most of his money as a real estate agent; there was nothing of the temperamental artist about him.
+ - All creative people should be required to leave California for three months every year.
+ - The Sennett system of making pictures was actually fun. You never knew what the person next to you was going to do.
+ - I always anticipated difficulties in order to avoid scenes.
+ - Fame was thrilling only until it became grueling. Money was fun only until you ran out of things to buy.
+ - I didn’t want to spend the rest of my life playing Norma Desmond over and over again.
+ - I was married when I was 17. I knew nothing. I was full of romance.
+ - At 26 I felt myself a victim rather than a victor in the realm of pictures.
+ - I had starred in more than 30 successful films, six in a row directed by Cecil B. De Mille.
+ - In a theater you can fool everyone past the tenth row if you’re good, but on the screen you can’t really fool anyone for a second.
+ - I was the first celebrity in pictures to be marrying a titled European.
+ - By the time I was 15, my mother had turned me into a real clotheshorse.
+ - I was 25 and the most popular celebrity in the world, with the possible exception of my friend Mary Pickford.
+ - In two months Joseph Kennedy had taken over my entire life, and I trusted him implicitly to make the most of it.
+
+54 quotes

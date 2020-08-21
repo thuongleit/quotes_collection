@@ -1,0 +1,30 @@
+ - If I could be half the person my dog is, I’d be twice the human I am.
+ - Life is, to some extent, an extended dialogue with your future self about how exactly you are going to let yourself down over the coming years.
+ - For the past several years, I have gone to sleep every night in this same little pocket, the most uneventful piece of time I could find. Same exact thing every night, night after night. Total silence. Absolutely nothing. That’s why I chose it. I know for a fact nothing bad can happen to me in here.
+ - This is what you have to ask yourself: Do you want to be good, or just seem good? Do you want to be good to yourself and others? Do you care about other people, always, sometimes, never? Or only when convenient? What kind of person do you want to be?
+ - Worry was my mother’s mechanic, her mechanism for engaging with the machinery of living. Worry was an anchor for her, a hook, something to clutch on to in the world. Worry was a box to live inside of, worry a mechanism for evading the present, for re-creating the past, for dealing with the future.
+ - How do you convince someone to change, to stop being afraid of himself? How do you convince yourself not to be so scared all the time?
+ - At some point in your life, this statement will be true: tomorrow you will lose everything forever.
+ - We break ourselves up into parts. To lie to ourselves, to hide things from ourselves. You are not you. You are not what you think you are. You are bigger than you think. More complicated than you think...
+ - This, then, is my choice: I can allow the events of my life to happen to me. Or I can take those very same actions and make them my own. I can live in my own present, risk failure, be assured of failure.
+ - I was headed for an entire life spent alone, pitying myself for not being more, ignoring all those people who actually ask me to be more, because they see it in me.
+ - Whatever the reason, first place was always Solo, always, always, always, and second place was usually Chewbacca, because if you weren’t the one saving the galaxy, you might as well be eight feet tall and covered with hair.
+ - Most people I know live their lives moving in a constant forward direction, the whole time looking backward.
+ - Desire is suffering. A simple equation, and a nice catchphrase. But flipped around, it is more troubling: suffering is desire.
+ - You want to tell a story? Grow a heart. Grow two. Now, with the second heart, smash the first one into bits.
+ - You can only go to places that you will let yourself go.
+ - It’s like all technology: either not powerful enough or too powerful. It will never do exactly what you want it to do.
+ - What is this called, what I am doing, to myself, to my life, this wallowing, this pondering, this rolling over and over in the same places of my memory, wearing them thin, wearing them out? Why don’t I ever learn? Why don’t I ever do anything different?
+ - You can just sit in here, impervious and invisible. So invisible you might even forget yourself.
+ - Maybe we spend most of our decades being someone else, avoiding ourselves, maybe a man is only himself, his true self, for a few days in his entire life.
+ - Sometimes when I’m brushing my teeth, I’ll look at the mirror and I swear my reflection seems kind of disappointed. I realized a couple of years ago that not only am I not super-skilled at anything, I’m not even particularly good at being myself.
+ - I am transcribing a book that I have, in a sense, not yet written, and in another sense, have always written, and in another sense, am currently writing, and in another sense, am always writing, and in another sense, will never write.
+ - Enjoy the elastic present, which can accommodate as little or as much as you want to put in there. Stretch it out, live inside of it.
+ - All of her heart, a meaningless phrase, but correct and precise, too. She used her heart to love him, not her head, and not her words and not her thoughts or ideas or feelings or any other vehicle or object or device people use to deliver love or love-like things.
+ - Within a science fictional space, memory and regret are, when taken together, the set of necessary and sufficient elements required to produce a time machine.
+ - There is a sense in which I am pretty sure this makes no sense. I don’t know where this is going. I don’t know how it ends.
+ - You haven’t experienced awkwardness until you’ve seen a three-million-dollar piece of software cry.
+ - I don’t know how, or whether it is even possible to predict what the world will look like the next day. I simply have to close my eyes, and wait until tomorrow in order to find out.
+ - All anyone is to anyone is a series of days.
+
+28 quotes

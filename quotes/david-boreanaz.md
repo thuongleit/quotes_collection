@@ -1,0 +1,25 @@
+ - The future is destined only for tomorrow’s work and today’s thoughts.
+ - I went to Ithaca, found the Grateful Dead and my life was changed.
+ - I like old cars, old watches, anything with a vintage, antique kind of a feel to it. I’m just more in tune with that than anything else.
+ - I love the tempestuousness of oceans and the calmness and solitude of lakes. Also, sensuality that drips and runs down the spine. And I’m not afraid to cry. Tears are a form of expression, and that’s sexy.
+ - I had my shortcomings – crazy hair, braces, bad skin and all that stuff. I went through it all.
+ - I haven’t been faithful to my wife. Our marriage has been tainted with my infidelities. I was irresponsible.
+ - I hate TiVo, I hate DVRs. I do not get them.
+ - I’m a bit of a chameleon with the whole entertainment industry so to speak.
+ - I believe in letting each person find what they need and not getting involved with their destiny.
+ - Depending on what you believe as a person, there’s always redeeming qualities to every character or individual, as spiteful as they might be.
+ - I like to direct for the big screen.
+ - I want to make films and write films, which will happen, I’m just taking a different route right now. I’m a bit of a chameleon with the whole entertainment industry so to speak.
+ - I didn’t grow up as child actor.
+ - Growing up, I saw my dad do charity work for children with health issues. That had a profound effect on me.
+ - I talk a lot in metaphors. I get my words out but sometimes they don’t make sense.
+ - I was always one who was clowning around in school and getting in trouble.
+ - Shooting a television show is hard enough, and it takes a lot of time away from your personal life and your family life.
+ - I think with all the odd jobs I ever had, there was some kind of enlightenment but, yes, a lot of pain and suffering that I don’t want to re-live.
+ - I’m glad that I’m able to entertain and be a part of people watching shows and enjoying the work.
+ - I have a very clear vision as to what I want at the end of my prep, and then I throw it out and let the creative process take over.
+ - Early on, with any startup show, you’re really building credibility and making it stand on its own.
+ - Shooting a television show can be very difficult and at times can really wear on you. If you keep reminding yourself that it is a job and you show up together as a team and as a whole, you can prevail.
+ - Of course, your voice always sounds better in the shower for some reason, maybe it’s just the octaves or, I don’t know, the water, I have no idea.
+
+23 quotes

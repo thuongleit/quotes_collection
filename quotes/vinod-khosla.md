@@ -1,0 +1,57 @@
+ - In the next 10 years, data science and software will do more for medicine than all of the biological sciences together.
+ - Every big problem is a big opportunity.
+ - Any problem is an opportunity. The bigger the problem, the bigger the opportunity.
+ - Doctors can be replaced by software – 80% of them can. I’d much rather have a good machine learning system diagnose my disease than the median or average doctor.
+ - An entrepreneur is someone who dares to dream the dreams and is foolish enough to try to make those dreams come true.
+ - You have to invent the future you want.
+ - If I wanted to be a doctor today I’d go to math school not med school.
+ - Big data will replace the need for 80% of all doctors.
+ - Future is not extrapolation of past.
+ - The willingness to fail gives us the freedom to succeed.
+ - I don’t mind the low probability of success, but it better be impactful if we do succeed.
+ - Innovative, bottom-up methods will solve problems that now seem intractable – from energy to poverty to disease. Science and technology, powered by the fuel of entrepreneurial energy, are the largest multipliers of resources we have to solve our many social problems.
+ - No one will pay you to solve a non-problem.
+ - You need a degree of foolishness to cause disruptive change in healthcare. Dare to dream.
+ - Spreadsheets are fiction. Believing in what you’re doing and what you’re building is what’s important.
+ - One of the best things data can enable us to do is to ask questions we didn’t know to ask.
+ - We humans think linearly but tech trends are exponential.
+ - Electric cars are coal-powered cars. Their carbon emissions can be worse than gasoline-powered cars.
+ - It doesn’t matter what your probability of failure is. If there’s a 90% chance of failure, there’s a 10% chance of changing the world.
+ - Your cellphone has 10 sensors, and your car has 400. But your body has none – that’s going to change.
+ - The only way you multiply resources is with technology. To really affect poverty, energy, health, education, or anything else – there is no other way.
+ - I generally disagree with most of the very high margin opportunities. Why? Because it’s a business strategy tradeoff: the lower the margin you take, the faster you grow.
+ - The right way to build a company is to experiment in lots of small ways, so that you have plenty of room to make mistakes and change strategies.
+ - If everyone played it safe, we wouldn’t get anywhere.
+ - Everybody else is afraid to fail. I do not really care because when I fail, I try something new.
+ - Communication always changes society, and society was always organized around communication channels. Two hundred years ago it was mostly rivers. It was sea-lanes and mountain passes. The Internet is another form of communication and commerce. And society organizes around the channels.
+ - The first rule of venture capitalism is hands-on experience. You have to get your hands dirty.
+ - Not thinking it’s possible is a failure of imagination.
+ - In my view, it’s irreverence, foolish confidence and naivety combined with persistence, open mindedness and a continual ability to learn that created Facebook, Google, Yahoo, eBay, Microsoft, Apple, Juniper, AOL, Sun Microsystems and others.
+ - Religion asks you to believe things without questioning, and technology and science always encourage you to ask hard questions and why it is important in science and technology. So I was always interested in science and technology.
+ - Certain food-based biofuels like biodiesel have always been a bad idea. Others like corn ethanol have served a useful purpose and essentially are obsoleting themselves.
+ - I’ve probably failed more often than anybody else in Silicon Valley. Those don’t matter. I don’t remember the failures. You remember the big successes.
+ - Climate deniers are clearly the fringe group and need to see a proctologist to find their heads.
+ - Maybe some percentage that’s substantially larger than 95 percent of VCs add zero value. I would bet that 70-80 percent add negative value to a startup in their advising.
+ - The state of healthcare today is that we are busy in the practice of medicine vs. being in the science of medicine.
+ - There’s no doubt in my mind over the next 25 years how we drive, how we build our houses, how we fly, how we build our buildings, will all change.
+ - I believe cellulosic fuels, biofuels made from nonfood crops are the only solution that will make a difference.
+ - Where most entrepreneurs fail is on the things they don’t know they don’t know.
+ - Is it 10 years, 20, 50 before we reach that tipping point where climate change becomes irreversible? Nobody can know. There’s clearly a probability distribution. We need to ensure this planet, and we need to do it quickly.
+ - There are parts of the country in America, in the Midwest, where wind is a big resource, and we should absolutely use it. But to try and apply it nationally doesn’t make sense. There are technologies that will work that are appropriate to certain regions.
+ - Seeking an acquisition from the start is more than just bad advice for an entrepreneur. For the entrepreneur it leads to short term tactical decisions rather than company-building decisions and in my view often reduces the probability of success.
+ - We don’t need a fuel that’s cleaner, we need a fuel that happens to be cleaner, but is half the price of oil.
+ - If you’re going to re-invent healthcare you have to start from scratch.
+ - As for companies invested in the space – I think its important to distinguish between a good investment and a material climate change technology – you can have the first without the second, even in the “clean tech” space.
+ - Oil replacements and then efficiencies in engines and housing and the way we build houses is a very interesting market.
+ - How would you compete against yourself?
+ - The world is hung up on food-based biofuels. Not only are they the wrong thing, they’re the uneconomic thing.
+ - Startups allow technologists and scientists to take risks and change plans in a way that would be frowned upon in a big company. Having said that, big companies will play a key role in certain areas and in partnerships with little companies. Each has its strengths.
+ - I do not know what got me interested in technology. What was very clear to me very early on was that I was not interested in religion and that naturally increased my curiosity about science and technology, and I fundamentally believe the two are conflicting.
+ - Imagine the world of mobile based on Nokia and Motorola if Apple had not been restarted by a missionary entrepreneur named Steve Jobs who cared more for his vision than being tactical and financial.
+ - Screw up often; but screw up ahead of everybody else, and than learn as much, and than use it to make subsequent investments.
+ - I’m a fiscal hawk. I vote against all taxes, but I do believe the environment, and climate change, is a bigger issue than fiscal deficits are as a risk to the nation.
+ - I’m not a political person. I’m a techie nerd, and I enjoy the techie part. I mean, all my life, I’ve loved great technology.
+ - It is important in any population to have an ecosystem around start-up ideas to leverage the most out of them such an ecosystem needs developing and most of this is about giving entrepreneurs confidence.
+ - Entrepreneurs have the flexibility and the ability to do things that large companies simply cannot. Could a large company pull off a trick like Amyris, going from anti-malaria medicine to next-generation fuel?
+
+55 quotes

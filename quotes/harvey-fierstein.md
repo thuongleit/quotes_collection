@@ -1,0 +1,68 @@
+ - I do believe we’re all connected. I do believe in positive energy. I do believe in the power of prayer. I do believe in putting good out into the world. And I believe in taking care of each other.
+ - Accept no one’s definition of your life; define yourself.
+ - Art has the power to transform, to illuminate, to educate, inspire and motivate.
+ - Please, people, do not f- with depression. It’s merciless. All it wants is to get you in a room alone and kill you. Take care of yourself.
+ - Change your mind as often as possible. Just because you thought something yesterday doesn’t mean you have to think it today. Don’t ever become a prisoner of your own opinion.
+ - A musical takes two to five years. You have to love it to put in the years.
+ - You may feel powerless as a child, but the world will one day be yours. And you’re responsible for it. So, seize the day and take charge of it.
+ - There’s nothing I need from anyone except love and respect, and anyone who can’t give me those two things has no place in my life.
+ - If you deny yourself commitment, what can you do with your life?
+ - It’s through sheer will that I can sing.
+ - The world is full of more interesting things than my voice.
+ - I just want to be loved, is that so wrong?!
+ - It’s a wonderful world. You can’t go backwards. You’re always moving forward. It’s the wonderful part about life. And that’s terrific.
+ - A thing of beauty is a joy till sunrise.
+ - Time will tell us what we did and didn’t do.
+ - Never be bullied into silence.
+ - Well, I always looked at Mulan as a movie about a lesbian coming out.
+ - The great thing about suicide is that it’s not one of those things you have to do now or you lose your chance. I mean, you can always do it later.
+ - Theater is my temple and my religion and my act of faith. Strangers sit in a room together and believe together.
+ - A child’s kiss is magic. Why else would they be so stingy with them?
+ - I have the world’s worst taste in men, so now I simply have wonderful relationships of the friend kind, but trying to settle down with somebody? No, no, no, no, no, no, no. I’m beyond that.
+ - I was exposed to a mix of cultures, lots of different religions and beliefs. I was a spiritual kid and went to Indian powwows and Buddhist temples. But over a period of time, with reading and thinking, I started to feel it was all so absurd: The whole idea of life after death is ridiculous.
+ - I often say that if you want to really want to understand the contract of marriage, just ask anyone who has been divorced. The marriage contract is one of property rights. Or maybe you can look in the Bible to see what Adam had to say about divorce, since Eve was his second wife.
+ - I got the regular call, that they were doing a Broadway musical of Hairspray, and would I come and audition. I was familiar with the movie, because at the time it came out my lover wrote for Premiere magazine, and we had to see everything.
+ - What looks absolutely fabulous in rehearsal can fall flat in front of an audience. The audience dictates what you do or don’t change.
+ - How often are the perpetrators of hate-crimes discovered to be self-loathing? Valued individuals do not strike out against strangers.
+ - The next time you feel you have to say, “I love you” to someone, say it to yourself – and see if you believe it.
+ - Pork was in 1971, and I stopped hanging out at The Factory by like 1973.
+ - It would be nice to redefine ourselves – at the moment we are drowning in diversity. That’s not a bad thing, its just going to take a while before we refocus.
+ - Nothing binds a people to their leader like a common enemy. Voters don’t change governments during war.
+ - I actually pray everyday, but I don’t believe in God.
+ - In no way be bullied into silence. Hardly ever permit on your own to become made a sufferer. Acknowledge no one’s definition of one’s lifetime; define oneself.
+ - I have to work really hard, eight shows a week, to get a nice check as an actor. But when I write a play, and it’s a – knock wood – hit, the checks come in for many years.
+ - With Russia about to hold the Winter Games in Sochi, the country is open to pressure. American and world leaders must speak out against Mr. Putin’s attacks and the violence they foster. The Olympic Committee must demand the retraction of these laws under threat of boycott.
+ - How time flies when you’re doin all the talking.
+ - Of course people are afraid. But honestly facing that fear, seeing it for what it is, is the only way of putting it to rest.
+ - But actually just yesterday we raised the key of one of my songs two steps up, so my voice is obviously responding. It’s a muscle, and the more you use it, the more you use it right, the more you should get out of it. So yes, I sing.
+ - In London they don’t like you if you’re still alive.
+ - In Torch Song, I did that character almost non-stop from 1978 until I made the movie in 1987. Then I had some failure, which also colors how you react to doing other things.
+ - Somebody should talk to Dan Quayle and tell him natural blondes don’t have dark grey stripes on the sides.
+ - While we dance in the streets and pat ourselves on the back for being a nation great enough to reach beyond racial divides to elect our first African-American president, let us not forget that we remain a nation still proudly practicing prejudice.
+ - It’s a lot of fun to play someone you don’t normally think of yourself as.
+ - Theater has to resonate in your heart in a way that movies don’t.
+ - But I’m not adverse to the idea of Torch Song as a musical. It would just be different. Because the play will always be there exactly as it was, and in a musical you could tell a lot of the story through songs.
+ - Political movements always belong to the young.
+ - As soon as I started writing, other writers stopped wanting me acting in their shows – maybe they thought I was going to rewrite them.
+ - There are easier things in life than being a drag queen. But I ain’t got no choice. Try as I may, I just can’t walk in flats.
+ - You know, I always got offered other stuff. Not the romantic leads, obviously. But very often it’s a role that’s underwritten, where the character has no personality at all. And they need a character actor who can fill it in.
+ - Also, if you want to reach people, theatre is not always the best way to do it.
+ - I just don’t like politics. My rule is if I can put a spotlight on something, I’ll do that.
+ - And I believe that you never be limited in what you do, so I like to do movies, I like to do television.
+ - To work all the time is to be incredibly lucky.
+ - I got a lovely check today from being a writer that I earned by sitting at home. That’s rewarding.
+ - I guess a drag queen’s like an oil painting: You gotta stand back from it to get the full effect.
+ - I burned out on AIDS and did no AIDS work for a couple of years. I was so angry that people were still getting this disease that nobody can give you – you have to go out and get it!
+ - I’m sure there’s going to be some material from This Is Not Going To Be Pretty. I usually use that song to just introduce myself to the audience, although the patter in between the song is always different.
+ - Movies are all about plot. Theater, even if it’s story heavy, it’s about ideas.
+ - You really, really, really have to love what you are going to do in theater because it is an unmerciful life. It’s six days a week. It’s eight performances a week. And that’s doing the exact same thing over and over and over again.
+ - I am thrilled – I can’t stress that enough – thrilled when I see kids getting active.
+ - There are times when I don’t take roles because I don’t want to be perceived a certain way.
+ - Actually, I think the average voice is like 70 percent tone and 30 percent noise. My voice is 95 percent noise.
+ - I have great faith in the United States. It’s the only country I would ever live in.
+ - When I write stuff and I help cast it, I turn away good people all the time. I may turn them down because this one’s too tall and that one doesn’t have a high enough voice or this one looks to old to match up with that one – there’s a billion reasons not to hire somebody.
+ - Beware of anyone who says they know. Trust me, they don’t, or they wouldn’t have to say they did.
+ - I don’t believe in the afterlife, so I do think when somebody passes, it’s worthy of note.
+ - I really am a theater person. That means you put something out there, and you let it go. Tomorrow night is a new performance.
+
+66 quotes

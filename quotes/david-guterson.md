@@ -1,0 +1,48 @@
+ - None of those other things makes a difference. Love is the strongest thing in the world, you know. Nothing can touch it. Nothing comes close. If we love each other we’re safe from it all. Love is the biggest thing there is.
+ - When it comes time to sit down and write the next book, you’re deathly afraid that you’re not up to the task. That was certainly the case with me after Snow Falling on Cedars.
+ - I’m a hypocrite, of course, and I live with that, but I live.
+ - To deny that there was this dark side of life would be like pretending that the cold of winter was somehow only a temporary illusion, a way station on the way to the higher “reality” of long, warm, pleasant summers. But summer, it turned out, was no more real than the snow that melted in wintertime.
+ - That the world was silent and cold and bare and that in this lay its terrible beauty.
+ - There’s a certain nostalgia and romance in a place you left.
+ - It’s a brooding melancholy that haunts me.
+ - Accident ruled every corner of the universe except the chambers of the human heart.
+ - You should learn to say nothing that will cause you regret. You should not say what is not in your heart – or what is only in your heart for a moment. But you know this – silence is better.
+ - I know you’ll think this is crazy, but all I want to do is hold you, and I think that if you’ll let me do that just for a few seconds, I can walk away, and never speak to you again.
+ - At one level you’re condemned to the voice you have. But within those confines, you have a certain amount of freedom to range among your possible voices.
+ - To persevere is always a reflection of the state of one’s inner life, one’s philosophy and one’s perspective.
+ - The strange thing was, he wanted to like everyone. He just couldn’t find a way to do it.
+ - I was born in Washington State and have lived here for 42 plus years.
+ - What some people interpret as brooding melancholy is serenity. I don’t feel required to grasp all the time.
+ - The status quo was rote memorization and recitation in classrooms thronged with passive children who were sternly disciplined when they expressed individual needs.
+ - How could they say that they truly loved each other? They had simply grown up together, been children together, and the proximity of it, the closeness of it, had produced in them love s illusion. And yet – on the other hand – what was love if it wasn’t this instinct she felt...
+ - Everybody has a world, and that world is completely hidden until we begin to inquire. As soon as we do, that entire world opens to us and yields itself. And you see how full and complex it is.
+ - I grew up in Seattle, but I always knew I wanted to leave.
+ - Fiction is socially meaningful.
+ - My father is a practicing criminal law attorney in the Seattle area.
+ - A literary achievement of the highest order.
+ - Don Quixote is one that comes to mind in comparison to mine, in that they both involve journeys undertaken by older men. That is unusual, because generally the hero of a journey story is very young.
+ - When I went to college I took a creative writing class and decided in a week to be a writer.
+ - I was aware that there is an expectation that writers inevitably falter at this stage, that they fail to live up to the promise of their first successful book, that the next book never pleases the way the prior one did. It simply increased my sense of being challenged.
+ - I have traveled the entire state and spent a lot of time out of doors. So I have known the landscape of the Columbia Basin for quite a while, and I have had this strong feeling about it for many years.
+ - I think of myself as a really happy person.
+ - What sustains me is to be with my family and to write.
+ - Post-modernism is dead because it didn’t address human needs.
+ - I write because something inner and unconscious forces me to. That is the first compulsion. The second is one of ethical and moral duty. I feel responsible to tell stories that inspire readers to consider more deeply who they are.
+ - I often heard about his cases and I often sat in on his trials. In the late 1960s when I was growing up I wanted to be a crusader like him but I didn’t want to wear a suit and commute.
+ - I think you have an obligation to share what you know as a writer.
+ - We should recognize that schools will never solve the bedrock problems of education because the problems are problems of families, of cultural pressures that the schools reflect and thus cannot really remedy.
+ - Cities produce in me melancholy or a tension I don’t need.
+ - I’m not an urban person.
+ - My book is traditional. It runs counter to the post-modern spirit.
+ - Hemingway said the only way to write about a place is to leave it.
+ - The real question is: How do you react? What do you do next? Evade responsibilities? Bury yourself in work? What do you do? All three of my novels take up that question, although none gives an answer.
+ - I’m interested in themes that endure from generation to generation.
+ - I became paralyzed as an artist with writer’s block.
+ - He didn’t like very many people any more, or very many things either. He preferred not to be this way, but there it was, he was like that. His cynicism, a veteran’s cynicism, was a thing that disturbed him all the time.
+ - Time made me change. I gradually woke up to the realization that this is who I am, an author, a public figure, and I couldn’t just hide in my study, tapping away at the keyboard and pretend that I didn’t have a role to play beyond stringing words together.
+ - The best advice on writing I’ve ever received is to take it seriously, because to do it well is all-consuming.
+ - Writing became an obsessive compulsive habit but I had almost no money so I thought about being an urban firefighter and having lots of free time in which to write or becoming an English teacher and thinking about books and writers on a daily basis. That swayed me.
+ - Even though I may not intend it when I set out to write the book, these places just emerge as major players in what I’m doing, almost as if they are insisting on it.
+ - I have relaxed into my persona as an author, although I used to fight that.
+
+46 quotes

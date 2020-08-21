@@ -1,0 +1,21 @@
+ - I was also in love with the English language.
+ - My writing improved the more I wrote – and the more I read good writing, from Shakespeare on down.
+ - In fifty years of covering the sport, of course Muhammad Ali is by far the dominant figure.
+ - Some people who love boxing might love Mike Tyson, but people outside of the sport are generally repulsed by him and therefore, repulsed by the sport.
+ - It’s kind of ironic that the two sports with the greatest characters, boxing and horse racing, have both been on the decline. In both cases it’s for the lack of a suitable hero.
+ - I came up with new leads for game stories by being observant and clever, by using the many gifts of the English language to intrigue and hook a reader.
+ - Golf is a bloodless sport-if you don’t count ulcers.
+ - I think my mistakes were kind of common – leaning on cliches and adjectives in the place of clear, vivid writing. But at least I knew how to spell, which seems to be a rarity these days.
+ - My top three were Jim Brown, Wilt Chamberlain and Bo Jackson.
+ - Sportswriters have changed more than sportswriting.
+ - If I got paid, it was no more than five dollars a column, and I still think I was overpaid.
+ - Sugar Ray and talked about doing some articles together or writing a book together but dealing with Sugar Ray was a lot like fighting him. He would fake you in and then he’d drop you.
+ - Cliches and adjectives permeated my prose.
+ - Also, I am driven by a wonderful muse called alimony.
+ - I wanted to be a sportswriter because I loved sports and I could not hit the curve ball, the jump shot, or the opposing ball carrier.
+ - I began learning the sportswriting business very early in life.
+ - I think on balance, Don King has been bad for boxing. I think he’s done some very good things and I think he did a heck of a job of promoting Ali but I think I could have promoted Ali.
+ - I worked with Rocky Graziano and Rocky was certainly a character.
+ - I got to know Sugar Ray but I certainly would not say we were good friends.
+
+19 quotes

@@ -1,0 +1,38 @@
+ - Existentialism is about being a saint without God; being your own hero, without all the sanction and support of religion or society.
+ - Real love is a pilgrimage. It happens when there is no strategy, but it is very rare because most people are strategists.
+ - For once a thing is known, it can never be unknown. It can only be forgotten.
+ - There are moments when you feel free, moments when you have energy, moments when you have hope, but you can’t rely on any of these things to see you through. Circumstances do that.
+ - Time misspent in youth is sometimes all the freedom one ever has.
+ - A man can go from being a lover to being a stranger in three moves flat but a woman under the guise of friendship will engage in acts of duplicity which come to light very much later. There are different species of self-justification.
+ - Satire is dependent on strong beliefs, and on strong beliefs wounded.
+ - All good fortune is a gift of the gods, and you don’t win the favor of the ancient gods by being good, but by being bold.
+ - The self-fulfilled woman is far from reality.
+ - Life is a pilgrimage and if you don’t play by the rules you don’t find the Road to Damascus, you find the Crown of Thorns.
+ - Dr Weiss, at forty, knew that her life had been ruined by literature.
+ - Romanticism is not just a mode; it literally eats into every life. Women will never get rid of just waiting for the right man.
+ - Good women always think it is their fault when someone else is being offensive. Bad women never take the blame for anything.
+ - You can never betray the people who are dead, so you go on being a public Jew; the dead can’t answer slurs, but I’m here. I would love to think that Jesus wants me for a sunbeam, but he doesn’t.
+ - Death is only a small interruption.
+ - Problems of human behavior still continue to baffle us, but at least in the Library we have them properly filed.
+ - I need noise and interruptions and irritation: irritation and discomfort are a great starter. The loneliness of doing it any other way would kill me.
+ - I am 46, and have been for some time past.
+ - To remain pure, a novel has to cast a moral puzzle. Anything else is mere negotiation.
+ - Fiction is the great repository of the moral sense. The wicked get punished.
+ - Writing has freed me from the despair of living.
+ - Always let them think of you as singing and dancing.
+ - The lessons taught in great books are misleading. The commerce in life is rarely so simple and never so just.
+ - The evening passes somehow; I watch television with Nancy, or I write. It is difficult, not having a family, and it is difficult to explain. I always go to bed early. And I am always ready for Monday morning, that time that other people dread.
+ - You have no idea how promising the world begins to look once you have decided to have it all for yourself. And how much healthier your decisions are once they become entirely selfish.
+ - You can never betray the people who are dead.
+ - I think you always feel braver in another language.
+ - I suppose what one wants really is ideal company and books are ideal company.
+ - One loses the capacity to grieve as a child grieves, or to rage as a child rages: hotly, despairingly, with tears of passion. One grows up, one becomes civilized, one learns one’s manners, and consequently can no longer manage these two functions – sorrow and anger – adequately.
+ - And without understanding, could each properly love the other?
+ - You never know what you will learn till you start writing. Then you discover truths you never knew existed.
+ - When you make a break for freedom you don’t necessarily find company on the way.
+ - I was brought up among the sort of self-important women who had a husband as one has an alibi.
+ - That sun, that light had faded, and she had faded with them. Now she was as grey as the season itself.
+ - It will be a pity if women in the more conventional mould are to be phased out, for there will never be anyone to go home to.
+ - It is best to marry for purely selfish reasons.
+
+36 quotes

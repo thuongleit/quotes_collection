@@ -1,0 +1,26 @@
+ - The city is not a concrete jungle, it is a human zoo.
+ - Biologically speaking, if something bites you it’s more likely to be female.
+ - I think like the species I am studying, whatever it is. If I am watching a lizard, I become the lizard. Gazing ath the water at a pike, I become the pike.
+ - The age of a child is inversely correlated with the size of the animals it prefers.
+ - Sexual behavior in our species goes through three characteristic phases: pair formation, precopulatory activity, and copulation, usually but not always in that order. The pair-formation stage, usually referred to as courtship, is remarkably prolonged by animal standards.
+ - Life is like a very short visit to a toy shop between birth and death.
+ - The roots of our Soccer Tribe lie deep in our primeval past.
+ - We never stop investigating. We are never satisfied that we know enough to get by. Every question we answer leads on to another question. This has become the greatest survival trick of our species.
+ - There are one hundred and ninety-three living species of monkeys and apes. One hundred and ninety-two of them are covered with hair. The exception is a naked ape self-named Homo sapiens. The zoologist now has to start making comparisons. Where else is nudity at a premium.
+ - A true bond of friendship is usually only possible between people of roughly equal status. This equality is demonstrated in many indirect ways, but it is reinforced in face-to-face encounters by a matching of the posture of relaxation or alertness.
+ - We may prefer to think of ourselves as fallen angels, but in reality we are rising apes.
+ - I viewed my fellow man not as a fallen angel, but as a risen ape.
+ - Artists like cats; soldiers like dogs.
+ - The female covers her breasts, and then proceeds to redefine their shape with a brassiere. This sexual signaling device may be padded or inflatable, so that it not only reinstates the concealed shape, but also enlarges it, imitating in this way the breast swelling that occurs during sexual arousal.
+ - Aquatic animals suffer from the disadvantage that they cannot scream when in pain, so we find it hard to gauge the degree of their agony. If fish could scream, angling purely for sport would be outlawed without delay.
+ - In a social environment that is ever crowded and impersonal, it is becoming increasingly important to reconsider the value of close personal relationships before we are driven to ask the forlorn question, ‘Whatever happened to love?’
+ - Looking back now on the whole sexual scene we can see that our species has remained much more loyal to its basic biological urges than we might at first imagine. Its primate sexual system with carnivore modifications has survived all the fantastic technological advances remarkably well.
+ - It is interesting that amongst children of preschool age, the more intelligent ones tend to sleep less than the dull ones. After the age of seven this relationship is reversed, the more intelligent schoolchildren sleeping more than the dull ones.
+ - The response of teenagers to their idols is relevant. As an audience, they enjoy themselves, not by screaming with laughter, but screaming with screams.
+ - As long as the human race is able to concern itself with more than mere survival, soccer will have its place.
+ - Under crowded conditions the friendly social interactions between members of a group become reduced, and the destructive and aggressive patterns show a marked rise in frequency and intensity.
+ - We are to put it mildly, in a mess, and there is a strong chance that we shall have exterminated ourselves by the end of the century. Our only consolation will be that as a species, we have had an exciting term of office.
+ - No matter how old we become, we can still call them ‘Holy Mother’ and ‘Father’ and put a child-like trust in them.
+ - This unusual and highly successful species spends a great deal of time examining his higher motives and an equal amount of time ignoring his fundamental ones.
+
+24 quotes

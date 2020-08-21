@@ -1,0 +1,23 @@
+ - My music is not modern, it is merely badly played.
+ - There is still plenty of good music to be written in C major.
+ - Great art presupposes the alert mind of the educated listener.
+ - I find above all that the expression, atonal music, is most unfortunate – it is on a par with calling flying the art of not falling, or swimming the art of not drowning.
+ - If it is art, it is not for all, and if it is for all, it is not art.
+ - My work should be judged as it enters the ears and heads of listeners, not as it is described to the eyes of readers.
+ - Rests always sound well.
+ - Lucidity is the first purpose of color in music.
+ - An artistic impression is substantially the resultant of two components. One what the work of art gives the onlooker – the other, what he is capable of giving to the work of art.
+ - My music is not lovely.
+ - I was never revolutionary. The only revolutionary in our time was Strauss!
+ - I owe very, very much to Mozart; and if one studies, for instance, the way in which I write for string quartet, then one cannot deny that I have learned this directly from Mozart. And I am proud of it!
+ - I am the slave of an internal power more powerful than my education.
+ - The principal function of form is to advance our understanding. It is the organization of a piece which helps the listener to keep the idea in mind, to follow its development, its growth, its elaboration, its fate.
+ - In Spring! In the creation of art it must be as it is in Spring!
+ - Although our “gentle air” cannot improve the way hate and envy look, it does seem not to encourage firmness and decision. All is compromise; caution and refinement are everywhere. Everything has to “make a good impression” – whether or not it is any good: the impression is the main thing.
+ - I have never seen faces, but because I have looked people in the eye, only their gazes.
+ - I never was very capable of expressing my feelings or emotions in words. I don’t know whether this is the cause why I did it in music and also why I did it in painting. Or vice versa: That I had this way as an outlet. I could renounce expressing something in words.
+ - Music is only understood when one goes away singing it and only loved when one falls asleep with it in one’s head, and finds it still there on waking up the next morning.
+ - Composing is a slowed-down improvisation; often one cannot write fast enough to keep up with the stream of ideas.
+ - There are no more geniuses, only critics.
+
+21 quotes

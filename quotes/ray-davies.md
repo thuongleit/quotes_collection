@@ -1,0 +1,136 @@
+ - Standing in the middle of nowhere, wondering how to begin. Lost between tomorrow and yesterday, between now and then.
+ - I’m the mirror to your mood, you hate me and I hate you.
+ - Learn to be positive, it’s your only chance.
+ - Paranoia, the destroyer.
+ - Plastic man got no brain, plastic man don’t feel no pain.
+ - In the end you become part of everything you hate, basically.
+ - Money and corruption are ruining the land, crooked politicians betray the working man, pocketing the profits and treating us like sheep, and we’re tired of hearing promises that we know they’ll never keep.
+ - I’m not cheap, you understand, I’m just a cut price person in a low budget land.
+ - Self destroyer, wreck your health, destroy friends, destroy yourself. The time device of self destruction, lies, confusion, start eruption.
+ - Oh, demon alcohol, sad memories I can’t recall.
+ - Put all the pervs in jail, bring back the birch and cat-o-nine tails.
+ - Trendy intellectuals always take action for every cause that’s been in fashion.
+ - Eagerly pursuing all the latest fads and trends cause he’s a dedicated follower of fashion.
+ - Better close your window tight or I might come in for a bite, I’m a sleep walker.
+ - The King is dead, rock is done. You might be through, but I’ve just begun.
+ - You don’t have to be a genius to find the hidden potential deep in your mind.
+ - Life means nothing to you, at least that’s what they say. But it doesn’t mean that you have the right to take life away.
+ - Everybody needs some inspiration, Everybody needs some motivation, mix it up with some imagination, and use your natural gifts.
+ - Come and love me, be my apeman girl, and we will be so happy in my apeman world.
+ - I don’t wanna die in a nuclear war, I want to sail away to a distant shore, and make like an apeman.
+ - Yesterday love was such an easy game for you to play. But now let’s face it, things are so much easier today. Let it be like yesterday.
+ - Save me, save me, save me from this squeeze. I got a big fat mama trying to break me.
+ - Here’s hoping all the days ahead, won’t be as bitter as the one’s behind you. Be an optimist instead, and somehow happiness will find you.
+ - I looked in the mirror at my pigeon chest, I had to put my clothes on cause it made me depressed.
+ - I am the image maker, I am the magic maker, I can turn the most ordinary man in the world into a star.
+ - Now I’m grown up and playing in a band.
+ - What are we living for? Two roomed apartment on the second floor?
+ - The battles, the fights, the bruises, the bites. That’s the way true love grows.
+ - I’d really like to change the world and save it from the mess it’s in. I’m so weak, I’m so thin, I want to fly, but I can’t even swim.
+ - Blow your brains out and do it right, make sure it’s on prime time and on Saturday night.
+ - I close my eyes and feel the universe within me.
+ - Goods gone bad, but right is wrong, and I don’t know which side I’m on lately.
+ - There is a guy on my block who lives for rock, he plays records day and night, and when he feels down he puts the rock and roll on and it makes him feel alright.
+ - We are the Draft Beer Preservation Society.
+ - Don’t get depressed when you read the press about world revolution and social unrest. Try not to panic when you switch on the news and see crooked politicians and unemployment queues.
+ - You make alterations, affecting your pose, a new house, a new car, a new job, a new nose.
+ - The only time I feel at ease is swinging up and down in a coconut tree.
+ - Rudolf Valentino looks very much alive and he looks up ladies dresses as they sadly pass him by.
+ - Hate builds up from the childhood when your world was a slum, but you haven’t got the right to blow it to kingdom come.
+ - Life is only what you wonder. Day is light as your brightest dream.
+ - The art school babe quotes William Blake as she rolls a joint, then I think that I’ll score.
+ - He thinks he is a flower to be looked at And when he pulls his frilly nylon pants right up tight He feels a dedicated follower of fashion. When a waiter at Buckingham Palace spilled soup on her dress: Never darken my Dior again!
+ - Before you condemn me my friends, I suggest you look deep inside you. For good and evil exists in us all.
+ - Calling all citizens all over the world, this is Captain America calling.
+ - They filled us full of false illusions and promiscuity, and they led us down that class-less road of mediocrity.
+ - All you have to do is relax and feel your history, because it will never go away and there is no future without it.
+ - Arty farty, you’ll never fool your Aunt, who knew you picked your nose and wet your pants.
+ - When I discovered Mose Allison I felt I had discovered the missing link between jazz and blues.
+ - She can’t see me staring at her cause I’m always wearing shades.
+ - On the surface I’m a mild mannered person, that’s until you scratch the animal inside.
+ - Why stay with him, he uses you just like a human punching bag?
+ - My girlfriend’s packed her bags and moved out to another town, she couldn’t stand the boredom when the video broke down.
+ - It’s never too late to get a new design, and if you wanna compete you gotta visualize.
+ - There was a gas strike, oil strike, lorry strike, bread strike, got to be a Superman to survive.
+ - Yin and Yang control man’s actions, and both extremes are a natural reaction.
+ - My dad taught me about music. He used to tap dance.
+ - Surviving, that’s my plan.
+ - If you weren’t naggin’, honey, you’d be so sweet.
+ - Compared to the bugs and the spiders and flies, I am an apeman.
+ - Cheap is small and not too steep, best of all cheap is cheap.
+ - Take a look around, there are misfits everywhere.
+ - I’m easy driving, But I’m not a person who loves living pleasantly above all else. I’m not that way at all. I might think I’m that, but I’m not really that.
+ - How was I conceived? Was it love, was I meant, or was I just an accident?
+ - A restless spirit who can’t reach his goal, can’t find a home until I’ve found my soul.
+ - You look like a human being, but you don’t have a mind of your own.
+ - Silly boy, you got so much to live for, so much to aim for, so much to try for.
+ - No one can penetrate me. They only see what’s in their own fancy, always.
+ - Pity is easy, but it is difficult to care.
+ - Underneath that rude exterior, you’ve got a heart of gold.
+ - True love is really animal.
+ - Great American union rules with a fist, a smile, and a gun. Great American napalm lights up the sky like the sun.
+ - Dissatisfied with what I am, I want to be a better man.
+ - The aristocrats and bureaucrats are dirty rats.
+ - To the field we are scattered from the day we are born to grow wild and sleep rough til from the earth we are torn.
+ - Hey, is that you Elvis? I wanna speak to the Colonel. Jump to it, you mother.
+ - Accept your life and what it brings, I know tomorrow you find better things.
+ - Life is so groovy when your record is hot.
+ - If I told you God was black, what would you think of that?
+ - He’s better than the rest, and his arm sweat smells the best.
+ - Educate us with your media machine, tell me what to dream.
+ - Celluloid heroes never feel any pain.
+ - I like surfers. Their imagery, it’s great.
+ - Comfort the weak and feel the poor. What on earth do we need government for?
+ - The soul needs attention like the body needs to breath.
+ - Did ya ever think that we would pay the price for being lazy?
+ - The day we were born, we were all God’s children.
+ - I was an art student at the time, like thousands of others.
+ - The Christians to the lions sold out every night.
+ - The intellectual controls the spiritual, the animal respects the natural.
+ - I call it suffering and pain, they call it entertainment.
+ - There is more in this heaven and earth than what the scientist knows and is revealed in the x-ray.
+ - What I try to do probably doesn’t come out. What I’ve worked out what I do – I might not be right – is to do something very personal, and then suddenly I look at it, up in the air. I blow it up and look at it and then I come down again – a better man.
+ - Those three chords were part of my life – G, F, Bb – yeh, it is, it is, and I can’t help noticing it. But there have been other things nearly as close to it which people haven’t noticed, other things we have done.
+ - If New Orleans is allowed to die, a crucial part of the world’s music heritage will disappear.
+ - I don’t think England is that gray but India is like a long drone.
+ - She would be ready, but she would always make him wait.
+ - The big corporations and the big companies turned musicians into factory workers on an assembly line.
+ - Revolution used to be cool, but now it’s out of fashion.
+ - Well I’m not dumb, but I can’t understand why she walked like a woman, but talked like a man.
+ - If I had to do my life over, I would change every single thing I have done.
+ - Live life, see it through. Carry on, it’s all you can do.
+ - Money’s the solution, curing all the ails of the nation. But what about the hearts of man?
+ - You say your image is new, but it looks well tested.
+ - We’re out of control on this loony balloon, barely missing the other planets and stars.
+ - It doesn’t matter who you are, there are stars in every city, in every house, and on every street.
+ - I think that songwriting changed when groups started spending more time in the studio.
+ - I got that idea from being in India. I always like the chanting.
+ - Drinking helps us to forget what we are, we leave the office and walk straight to the bar.
+ - Tell the people what they want and decide what they need.
+ - If after two weeks you still can’t write your middle-eight, the best course of action is to see a psychiatrist.
+ - When he puts on that dress, he feels like a princess.
+ - Why bear malice? Just let it go. So what of pride? It will swallow you whole.
+ - I still like to keep tapes of the few minutes before the final take, things that happen before the session. Maybe it’s superstitious, but I believe if I had done things differently – if I had walked around the studio or gone out – it wouldn’t have turned out that way.
+ - Powerman don’t need to fight, powerman don’t need guns, powerman got money on his side.
+ - When he feels the world is closing in, he turns his stereo way up high. He just spends his life, living in a rock and roll fantasy.
+ - A man has one, a cat has nine, and in between it’s killing time.
+ - People take pictures of the Summer, just in case someone thought they had missed it, and to proved that it really existed.
+ - End up blowing all of his wages for the week, all for a cuddle and a peck on the cheek.
+ - At one time they’ve been the most important thing to me. So I can’t hear our records on the radio, I can’t stand it, because they sound so out of what everyone else is doing.
+ - Jogging in the park is my excuse to look at all the girls.
+ - Taken everything I’ve got, all I’ve got’s this sunny afternoon.
+ - I’m sitting in a cage with my eye upon the clock.
+ - You’re dumb, but don’t give in.
+ - Then I got together with my brother and a friend and we decided to play dates. The more we played, the more we wanted to do it. And it got to a stage where we wanted to do it all the time.
+ - I might even end up a rock and roll god, it might turn into a steady job.
+ - I’ve written so many songs about Englishmen, I have to go elsewhere.
+ - You hate me and I hate you, so at least we understand each other.
+ - Terrorist bombers on the left, fascist plots on the right.
+ - I’m susceptible to that sort of thing – to walls and flowers. You can probably get something more from a wall than a person sometimes. It’s just put somewhere.
+ - Our repertoire consisted of rhythm and blues, sort of country rhythm and blues, Sonny Terry things.
+ - Life had become a reproduction: it was not the real thing.
+ - You got all your friends, I got a TV set.
+ - When you are making a record and if you spend too much time over it, you have to record it a tone lower or cut the tones lower because you can’t reach some of the notes, I find this. But when you go on stage, you have to put the key up and it really changes the whole thing.
+ - Newsmen winding up the nation, a little bad news helps circulation, pass on the panic to the population.
+
+134 quotes

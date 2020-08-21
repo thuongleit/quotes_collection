@@ -1,0 +1,21 @@
+ - I find it refreshing to unplug from it for a while. You kind of forget how deeply you get embedded in it.
+ - A lot of the interesting issues and dynamics within a city occur over things such as socio-economic issues or ethnic issues. But they require a much more elaborate model of human behavior.
+ - The new generation of consoles has as much power to do the kind of games that we do as the PC does.
+ - Everybody has a different definition of the good side.
+ - Well, I think the camera freedom is something that we’ve resisted for a long time and feels like probably the biggest stretch. But it has some huge benefits.
+ - Somebody asked me what I thought next generation meant and what about the PlayStation 3 was next generation. The only next gen system I’ve seen is the Wii – the PS3 and the Xbox 360 feel like better versions of the last, but pretty much the same game with incremental improvement.
+ - Also, after people play these Sim games, it tends to change their perception of the world around them, so they see their city, house or family in a slightly different way after playing.
+ - And so from that, I’ve always been fascinated with the idea that complexity can come out of such simplicity.
+ - We have spent quite a bit of time considering a good space game, and I can’t really say anything at this point, but we are definitely still interested in that area.
+ - And every now and then people find the bugs, and they interpret those as cool failures in the Sims terms. For them it’s like a treasure hunt, you know.
+ - I think the idea of having a game based on reality is compelling right off the bat because everyone has some experience with the subject of the game.
+ - In an online community, there’s this kind of social economy between the community members. Some people have status because they make cool skins or that’s a good website that’s visited a lot, but there’s no real gameplay there.
+ - The big thing is that we have five percent or less of the hardcore players actively entertaining the other ninety-five percent.
+ - I typically go overboard when I research new projects.
+ - It used to be that you knew your neighbors and maybe your coworkers – the people in your physical vicinity.
+ - Television is a very different thing from video games. It’s kind of hard for me to compare.
+ - Players like to know that they’ve discovered things that even the designers didn’t know were in the game.
+ - Because now it’s the fans out there that are entertaining us, the developers, with their creations!
+ - The console games, as they come out with this new generation, will have a temporary advantage in price performance, but there are still many things you can do on a PC, more conveniently than you can do on a console machine.
+
+19 quotes

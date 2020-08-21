@@ -1,0 +1,25 @@
+ - Life is in color, but black and white is more realistic.
+ - A film is like a battleground. It’s love, hate, action, violence, death – In one word, emotions.
+ - We got a right to climb out of the sewer and live like other people. We could start from scratch. Make every minute count twice for the one we lost.
+ - When you’re at the end of your rope, all you have to do is make one foot move out in front of the other. Just take the next step. That’s all there is to it.
+ - We have too many intellectuals who are afraid to use the pistol of common sense.
+ - A woman is just a script, but a cigar is a motion picture.
+ - I hate violence. That has never prevented me from using it in my films.
+ - I don’t care if it’s a mystery story, a Western, or the story of Julius Caesar. To me it’s the emotion, the lies, the double-cross, whether it’s Brutus doing it to Caesar or Bob Stack doing it to Robert Ryan that defines what kind of drama it is.
+ - Mark Twain didn’t psychoanalyze Huck Finn or Tom Sawyer. Dickens didn’t put Oliver Twist on the couch because he was hungry! Good copy comes out of people, Johnny, not out of a lot of explanatory medical terms.
+ - If a story doesn’t give you a hard-on in the first couple of scenes, throw it in the goddamned garbage.
+ - Being a hooker does not mean being evil. The same with a pick-pocket, or even a thief. You do what you do out of necessity.
+ - Surviving is the only glory in war.
+ - You know how you smoke out a sniper? You send a guy out in the open, and you see if he gets shot. They thought that one up at West Point.
+ - Extending the language of film sometimes starts with just trying to show one true thing.
+ - The creepy thing about battle is you always feel alone.
+ - When you’re in the battlefield, survival is all there is.
+ - There’s a difference between a Nazi and a German.
+ - Ninety-five per cent of films are born of frustration, of self despair, of ambition for survival, for money, for fattening bank accounts. Five per cent, maybe less, are made because a man has an idea, an idea which he must express.
+ - Heroes? Don’t believe in them.
+ - Film is a battleground.
+ - We’ll build a democracy here, even if it’s with Nazi bricks.
+ - Movement should be a counter, whether in action scenes or dialogue or whatever. It counters where your eye is going. This style thing, for me it’s all fitted to the action, to the script, to the characters.
+ - If your first scene doesn’t give you a hard on, throw it out!
+
+23 quotes

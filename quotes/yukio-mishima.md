@@ -1,0 +1,58 @@
+ - I cried sobbingly until at last those visions reeking with blood came to comfort me. And then I surrendered myself to them, to those deplorably brutal visions, my most intimate friends.
+ - True beauty is something that attacks, overpowers, robs, and finally destroys.
+ - I want to make a poem of my life.
+ - Human life is limited but I would like to live forever.
+ - We live in an age in which there is no heroic death.
+ - If we value so highly the dignity of life, how can we not also value the dignity of death No death may be called futile.
+ - As long as you know I am waiting, take your time flowers of the spring.
+ - Perfect purity is possible if you turn your life into a line of poetry written with a splash of blood.
+ - When silence is prolonged over a certain period of time, it takes on new meaning.
+ - I had no taste for defeat – much less victory – without a fight.
+ - Glory, as anyone knows, is bitter stuff.
+ - Beyond doubt, there was a certain splendor in pain, which bore a deep affinity to the splendor that lies hidden within strength.
+ - There’s a huge seal called ‘impossibility’ pasted all over this world. And don’t ever forget that we’re the only ones who can tear it off once and for all.
+ - Again and again, the cicada’s untiring cry pierced the sultry summer air like a needle at work on thick cotton cloth.
+ - It is a common failing of childhood to think that if one makes a hero out of a demon the demon will be satisfied.
+ - For an artist to do creative work, he needs at once physical health and some physiomental ill health. He needs both serenity and gloom.
+ - It seems to me that before the photograph can exist as art it must, by its very nature choose whether it is to be a record or a testimony.
+ - There isn’t any fear in existence itself, or any uncertainty, but living creates it.
+ - Possessing by letting go of things was a secret of ownership unknown to youth.
+ - The instant that the blade tore open his flesh, the bright disk of the sun soared up and exploded behind his eyelids.
+ - Within those confining walls, teachers – a bunch of men all armed with the same information – gave the same lectures every year from the same notebooks and every year at the same point in the textbooks made the same jokes.
+ - Quite possibly, what I call happiness may coincide with what others call the moment of imminent danger.
+ - All my life I have been acutely aware of a contradiction in the very nature of my existence. For forty-five years I struggled to resolve this dilemma by writing plays and novels. The more I wrote, the more I realized mere words were not enough. So I found another form of expression.
+ - It is a rather risky matter to discuss a happiness that has no need of words.
+ - The period of childhood is a stage on which time and space become entangled.
+ - The most appropriate type of daily life for me was a day-by-day world destruction; peace was the most difficult and abnormal state to live in.
+ - Young people get the foolish idea that what is new for them must be new for everybody else too. No matter how unconventional they get, they’re just repeating what others before them have done.
+ - Better to be caught in sudden, complete catastrophe than to be gnawed by the cancer of imagination.
+ - The special quality of hell is to see everything clearly down to the last detail.
+ - The cynicism that regards hero worship as comical is always shadowed by a sense of physical inferiority.
+ - His emotion evident in the glitter of his eyes.
+ - Beauty is something that burns the hand when you touch it.
+ - Nobody even imagines how well one can lie about the state of one’s own heart.
+ - Mine was the unbearable jealousy a cultured pearl must feel toward a genuine one. Or can there be such a thing in this world as a man who is jealous of the woman who loves him, precisely because of her love?
+ - The only people in this world I really trust are my fans – even if they do forget you so fast.
+ - A man isn’t tiny or giant enough to defeat anything.
+ - We are not wounded so deeply when betrayed by the things we hope for as when betrayed by things we try our best to despise. In such betrayal comes the dagger in the back.
+ - A father is a reality-concealing machine, a machine for dishing up lies to kids, and that isn’t even the worst of it: secretly he believes that he represents reality.
+ - By means of microscopic observation and astronomical projection the lotus flower can become the foundation for an entire theory of the universe and an agent whereby we may perceive Truth.
+ - There is no virtue in curiosity. In fact, it might be the most immoral desire a man can possess.
+ - For clearly it is impossible to touch eternity with one hand and life with the other.
+ - An ugliness unfurled in the moonlight and soft shadow and suffused the whole world. If I were an amoeba, he thought, with an infinitesimal body, I could defeat ugliness. A man isn’t tiny or giant enough to defeat anything.
+ - Anything can become excusable when seen from the standpoint of the result.
+ - The past does not only draw us back to the past. There are certain memories of the past that have strong steel springs and, when we who live in the present touch them, they are suddenly stretched taut and then they propel us into the future.
+ - The highest point at which human life and art meet is in the ordinary. To look down on the ordinary is to despise what you can’t have. Show me a man who fears being ordinary, and I’ll show you a man who is not yet a man.
+ - When people concentrate on the idea of beauty, they are, without realizing it, confronted with the darkest thoughts that exist in this world. That, I suppose, is how human beings are made.
+ - Human beings – they go on being born and dying, dying and being born. It’s kind of boring, isn’t it?
+ - According to Eshin’s Essentials of Salvation, the Ten Pleasures are but a drop in the ocean when compared to the joys of the Pure Land.
+ - Men had been living a proud life, having felt no need for the spirit-until Christianity invented it.
+ - For a long time I had not approached the forbidden fruit called happiness, but it was now tempting me with a melancholy persistence. I felt as though Sonoko were an abyss above which I stood poised.
+ - I seemed like a baby bird keeping its truly innocent animal lusts hidden under its wing. I was being tempted, not by the desire of possession, but simply by unadorned temptation itself.
+ - Let us remember that the central reality must be sought in the writer’s work: it is what the writer chose to write, or was compelled to write, that finally matters. And certainly Mishima’s carefully premeditated death is part of his work.
+ - If the photographer is to create works that will stand for his spirit in the same way as artists in other genres, he must first – having no ready-made, abstract components such as works and sounds – supply other means to abstraction instead.
+ - Is there not a sort of remorse that precedes sin? Was it remorse at the very fact that I existed?
+ - At no time are we ever in such complete possession of a journey, down to its last nook and cranny, as when we are busy with preparations for it. After that, there remains only the journey itself, which is nothing but the process through which we lose our ownership of it.
+ - Actually the action called a kiss represented nothing more for me than some place where my spirit could seek shelter.
+
+56 quotes

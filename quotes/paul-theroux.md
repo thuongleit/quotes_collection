@@ -1,0 +1,159 @@
+ - Tourists don’t know where they’ve been, travelers don’t know where they’re going.
+ - Winter is a season of recovery and preparation.
+ - Reading is also a journey. It’s a process of discovery.
+ - The journey, not the arrival, matters; the voyage, not the landing.
+ - I cannot make my days longer so I strive to make them better.
+ - Travel is glamorous only in retrospect.
+ - You go away for a long time and return a different person – you never come all the way back.
+ - Travel is at its most rewarding when it ceases to be about your reaching a destination and becomes indistinguishable from living your life.
+ - It’s only when you’re alone that you realize where you are. You have nothing to fall back on except your own resources.
+ - Fiction gives us a second chance that life denies us.
+ - It is usually expensive and lonely to be principled.
+ - I am happy being what I am.
+ - The more you write, the more you’re capable of writing.
+ - The wish to travel seems to me characteristically human: the desire to move, to satisfy your curiosity or ease your fears, to change the circumstances of your life, to be a stranger, to make a friend, to experience an exotic landscape, to risk the unknown...
+ - Tibet has a very proud people but it’s culturally gone and overrun ever since the Chinese took over. It’s like saving the rhino. When a species is endangered, it’s gone.
+ - Tightfisted people are as mean with friendship as they are with cash – suspicious, unbelieving, and incurious.
+ - When I’m writing, I like to travel alone. If you really want to find out about a place, you need to be as free as possible to be spontaneous. You also need to be lonely, because loneliness is a great teacher, too.
+ - The man who is tired of London is tired of looking for a parking space.
+ - Most travel, and certainly the rewarding kind, involves depending on the kindness of strangers, putting yourself into the hands of people you don’t know and trusting them with your life.
+ - I hate vacations. I hate them. I have no fun on them. I get nothing done. People sit and relax, but I don’t want to relax. I want to see something.
+ - Luxury is the enemy of observation, a costly indulgence that induces such a good feeling that you notice nothing. Luxury spoils and infantilizes you and prevents you from knowing the world.
+ - The difference between travel writing as fiction is the difference between recording what the eye sees and discovering what the imagination knows. Fiction is pure joy – how sad that I could not reinvent the trip as fiction.
+ - You can’t want to be a writer. You have to be one.
+ - Ever since childhood, when I lived within earshot of the Boston and Maine, I have seldom heard a train go by and not wished I was on it.
+ - Travel is an attitude, a state of mind. It is not residence, it is motion.
+ - Maine is a joy in the summer. But the soul of Maine is more apparent in the winter.
+ - One thing about cold weather: it brings out the statistician in everyone.
+ - Travel is a vanishing act, a solitary trip down a pinched line of geography to oblivion.
+ - Hawaii is not a state of mind, but a state of grace.
+ - I sought trains; I found passengers.
+ - Gain a modest reputation for being unreliable and you will never be asked to do a thing.
+ - The greatest justification for travel is not self-improvement but rather performing a vanishing act, disappearing without a trace.
+ - Basically, what you find out is the limits of your patience and your strength and your capacity to adapt. You find that out in travel and being alone and being tested. So that’s a great thing.
+ - I don’t look down on tourism. I live in Hawaii where we have 7 million visitors a year. If they weren’t there, there would be no economy. So I understand why a tourist economy is necessary.
+ - A person who is tired of London is not necessarily tired of life; it might be that he just can’t find a parking place.
+ - It might be said that a great unstated reason for travel is to find places that exemplify where one has been happiest. Looking for idealised versions of home-indeed, looking for the perfect memory.
+ - I like the idea of isolation, I like the idea of solitude. You can be connected and have a phone and still be lonely.
+ - If you’re a misanthrope you stay at home. There are certain writers who really don’t like other people. I’m not like that, I don’t think.
+ - In Turkey it was always 1952, in Malaysia 1937; Afghanistan was 1910 and Bolivia 1949. It is 20 years ago in the Soviet Union, 10 in Norway, five in France. It is always last year in Australia and next week in Japan.
+ - Men in their late 50s often make very bad decisions.
+ - Death is an endless night so awful to contemplate that it can make us love life and value it with such passion that it may be the ultimate cause of all joy and all art.
+ - The Japanese have perfected good manners and made them indistinguishable from rudeness.
+ - Nothing to me is so erotic as a hotel room, and therefore so penetrated with life and death.
+ - I grew up in an era of thinking of travel as escape. The idea that you could conceivably have a new life, go somewhere, fall in love, have little children under the palm trees.
+ - When I was in the Peace Corps I never made a phone call. I was in Central Africa; I didn’t make a phone call for two years. I was in Uganda for another four years and I didn’t make a phone call. So for six years I didn’t make a phone call, but I wrote letters, I wrote short stories, I wrote books.
+ - Friendship is also about liking a person for their failings, their weakness. It’s also about mutual help, not about exploitation.
+ - I think I understand passion. Love is something else.
+ - The measure of civilized behavior is compassion.
+ - The lust of the eye. The best photographs were, to me, like an experience of drowning.
+ - Home is always the impossible subject, multilayered and maddening.
+ - The Australian Book of Etiquette is a very slim volume.
+ - No one has ever described the place where I have just arrived: this is the emotion that makes me want to travel. It is one of the greatest reasons to go anywhere.
+ - Everyone had an opinion and no one had a solution.
+ - Painters paint outdoors, or in rooms full of people; they paint their lovers, alone, naked; they paint and eat; they paint and listen to the radio. It is a soothing way of doing your job.
+ - You may not know it but I’m no good at coping with all the attention in the luxury hotels I sometimes find myself in.
+ - The biggest surprise was that a country like Angola, that has so much money, that produces so much oil, would be in such a mess and so difficult to travel in. Something is almost cursed in striking oil. It’s like the lottery winner who ends up broke.
+ - It is almost axiomatic that the worst trains take you through magical places.
+ - The worst thing that can happen to you in travel is having a gun pointed at you by a very young person. That’s happened to me maybe four times in my life. I didn’t like it.
+ - I can’t predict how reading habits will change. But I will say that the greatest loss is the paper archive – no more a great stack of manuscripts, letters, and notebooks from a writer’s life, but only a tiny pile of disks, little plastic cookies where once were calligraphic marvels.
+ - Notice how many of the Olympic athletes effusively thanked their mothers for their success? “She drove me to my practice at four in the morning,” etc. Writing is not figure skating or skiing. Your mother will not make you a writer. My advice to any young person who wants to write is: leave home.
+ - I’m not pessimistic about Africa. The cities just seem big and hopeless. But there’s still a great green heart where there’s possibility. There’s hope in the wilderness.
+ - Animal lovers often tend to be misanthropes or loners, and so they transfer their affection to the creature in their control.
+ - I’m a tourist, a glorified tourist. I’m not doing it to have a good time or to lie in the sun.
+ - People talk about the pain of writing, but very few people talk about the pleasure and satisfaction.
+ - All travel is circular. I had been jerked through Asia, making a parabola on one of the planet’s hemispheres. After all, the grand tour is just the inspired man’s way of heading home.
+ - There is no faster way of destroying a man, or mocking his ideas, than making him fashionable.
+ - All places, no matter where, no matter what, are worth visiting.
+ - The traveler’s boast, sometimes couched as a complaint, is that of having been an eyewitness, and invariably this experience – shocking though it may seem at the time – is an enrichment, even a blessing, one of the life-altering trophies of the road.
+ - Railways are irresistible bazaars, snaking along perfectly level no matter what the landscape, improving your mood with speed, and never upsetting your drink.
+ - I don’t think I’ve ever seen a person having a serious conversation on a cellphone. It’s like a kiddie thing, a complete time waster.
+ - My love for traveling to islands amounts to a pathological condition known as nesomania, an obsession with islands. This craze seems reasonable to me, because islands are small self-contained worlds that can help us understand larger ones.
+ - I always found myself in the company of Australians, who were like a reminder that I’d touched bottom.
+ - In countries where all the crooked politicians wear pin-striped suits, the best people are bare-assed.
+ - A national crisis, a political convulsion, is an opportunity, a gift to the traveler. Nothing is more revealing of a place to a stranger than trouble. Even if a crisis is incomprehensible, as it usually is, it lends drama to the day and transforms the traveler into an eye witness.
+ - Indian enterprises seemed to work so well they produced disasters; success made them burst at the seams and the disruption of unprecedented orders led to shortages and finally failure.
+ - They say that if the Swiss had designed these mountains they’d be rather flatter.
+ - My greatest inspiration is memory.
+ - I believe I have a sunny disposition, and am not naturally a grouch. It takes a lot of optimism, after all, to be a traveler.
+ - For years I felt that being respectable meant maintaining a sinister complacency, and the disreputable freedom I sought helped make me a writer.
+ - Reading alters the appearance of a book. Once it has been read, it never looks the same again, and people leave their individual imprint on a book they have read. Once of the pleasures of reading is seeing this alteration on the pages, and the way, by reading it, you have made the book yours.
+ - You can’t write about a friend, you can only write about a former friend.
+ - I don’t want to be the honored guest. I want to be the invisible person.
+ - He regarded himself as an accomplished writer – a clear sign of madness in anyone.
+ - Every country has the writers she requires and deserves, which is why Nicaragua, in two hundred years of literacy, has produced one writer-a mediocre poet.
+ - I know there are writers who feel unhappy with domesticity and who even manufacture domestic turmoil in order to have something to write about. With me, though, the happier I feel, the better I write.
+ - Even if I were traveling with you, your trip would not be mine.
+ - Painters strike me as having warm uncomplicated friendships and probably more natural generosity than the practitioners of any other art. Perhaps this is because painting is such a portable, flexible thing.
+ - The Peace Corps is a sort of Howard Johnson’s on the main drag into maturity.
+ - A French traveler with a sore throat is a wonderful thing to behold, but it takes more than tonsillitis to prevent a Frenchman from boasting.
+ - Extensive traveling induces a feeling of encapsulation, and travel, so broadening at first, contracts the mind.
+ - Tourists who go to Africa have more of a traditional experience than Africans do. A tourist goes on safari; Africans don’t.
+ - My house is a place I have spent many years improving to the point where I have no desire to leave it.
+ - Many aspects of the writing life have changed since I published my first book, in the 1960s. It is more corporate, more driven by profits and marketing, and generally less congenial – but my day is the same: get out of bed, procrastinate, sit down at my desk, try to write something.
+ - To a lot of Africans, seeing an animal is a something of a rarity. So it’s a paradox of this sort of parallel life. A safari is an expensive experience and it’s adjacent to a place where people are having a very tough time.
+ - I’m constantly running across people who have never heard of books I think they should read.
+ - The Colombians are good-tempered people. They are used to waiting for buses that are late, used to riding buses and trains that do not arrive.
+ - Cooking requires confident guesswork and improvisation – experimentation and substitution, dealing with failure and uncertainty in a creative way.
+ - A foreign swear-word is practically inoffensive except to the person who has learnt it early in life and knows its social limits.
+ - Someone who seems doddery is perhaps not doddery at all but only an older person absorbed in squinting concentration, as though on an ultimate trip, memorizing a scene, grateful for being alive to see it.
+ - The people of Hong Kong are criticized for only being interested in business, but it’s the only thing they’ve been allowed to do.
+ - You think of travellers as bold, but our guilty secret is that travel is one of the laziest ways on earth of passing the time.
+ - A novel captures essence that is not possible in any other form.
+ - There’s a lot of sensuality that I associate with travel. And that’s romance.
+ - Writing is pretty crummy on the nerves.
+ - You can’t save the rhinos and you can’t preserve a culture. I’m very pessimistic. Once it’s gone, it’s over.
+ - If people are driving you around to look at animals, that’s wonderful. That’s educational, but it’s not necessarily enlightening and you’re not finding out much about yourself.
+ - Delay and dirt are the realities of the most rewarding travel.
+ - Travel books are all sorts – some are autobiographies, some are about falling in love. Some are about having great meals, some are about suffering. There are as many different kinds of travel books as there are novels. People think a travel book is one thing. It’s many things.
+ - It’s not fashionable but I like to spit out of the window of a moving train.
+ - There has to be a measure of difficulty or problem-solving in travel for it to be worthwhile.
+ - One of the cardinal principles of Buddhism, the principle of neglect.
+ - Now and then in travel, something unexpected happens that transforms the whole nature of the trip and stays with the traveler.
+ - Airplanes have dulled and desensitized us; we are encumbered, like lovers in a suit of armor.
+ - In the best travel books the word alone is implied on every exciting page, as subtle and ineradicable as a watermark.
+ - I never stay with people and I never look people up when I travel. I depend more on just chance meetings. The advantage is that people don’t know who I am. I meet people casually and they’re not doing me a big favor because I’m going to write something.
+ - People who don’t read books a lot are threatened by books.
+ - I think most serious and omnivorous readers are alike- intense in their dedication to the word, quiet-minded, but relieved and eagerly talkative when they meet other readers and kindred spirits.
+ - When I began to make some money, I really wanted to have a home.
+ - The amount of hassle involved in travel can be overwhelming.
+ - It is the simplest fact of Indian life: there are too many Indians.
+ - It is fatal to know too much at the outcome: boredom comes as quickly to the traveler who knows his route as to the novelist who is over certain of his plot.
+ - There’s always a way if you’re not in a hurry.
+ - Albania in 1994 was the strangest place I’ve ever seen. It was like walking into the looking glass: falling apart, paranoid people, anarchy, no one farming, full of thieves. It was beyond any Third World country. They were living in their own private nightmare.
+ - What I find is that you can do almost anything or go almost anywhere, if you’re not in a hurry.
+ - Fogeydom is the last bastion of the bore and reminiscence is its anthem. It is futile to want the old days back, but that doesn’t mean one should ignore the lessons of the visitable past.
+ - Although I’m not fluent in sign language by a long way, I could have a fairly decent conversation.
+ - There are two worlds: the world of the tourist and the world of everyone else. Often they’re side by side. But the tourist doesn’t actually see how people live.
+ - Mark Twain was a great traveler and he wrote three or four great travel books. I wouldn’t say that I’m a travel novelist but rather a novelist who travels – and who uses travel as a background for finding stories of places.
+ - Travel works best when you’re forced to come to terms with the place you’re in.
+ - I greatly enjoyed Tom Reiss’s The Orientalist, for its mingled scholarship and sleuthing, and for so elegantly solving the puzzle of one of the Twentieth Century’s most mysterious writers.
+ - All politicians, even the most idealistic ones, are looking for money, sucking up to rich people.
+ - There are probably more annoying things than being hectored about African development by a wealthy Irish rock star in a cowboy hat, but I can’t think of one at the moment.
+ - Sometimes people read a book in order to not go on a trip. You read a book instead of going on the trip. And so the travel writer is doing the traveling for you.
+ - A gun show is about like-minded people who feel as if everything has been taken away from them – jobs, money, pride.
+ - The pleasure a reader gets is often equal to the pleasure a writer is given.
+ - Loneliness in travel directs you and tells you about yourself. You don’t become lonely unless you’re alone.
+ - When I started writing, I did have some idealised notion of my dad as a writer. But I have less and less of a literary rivalry with him as I’ve gone on. I certainly don’t feel I need his approval, although maybe that’s because I’m confident that I’ve got it.
+ - The monotony of staying in one place is the best thing for writing a novel. Having regular habits, a kind of security, but especially no big surprises, no shocks.
+ - I think that love isn’t what you think it is when you’re in your twenties or even thirties.
+ - I don’t think that it’s possible to have a truly rewarding experience in travel if it’s simple.
+ - The conversation, like many others I had with people on trains, derived an easy candour from the shared journey, the comfort of the dining car, and the certain knowledge that neither of us would see each other again.
+ - Banks and donors and charities claimed to have had successes in Mozambique. I suspected they invented these successes to justify their existence.
+ - Truly, the worst trains take one across the best landscapes.
+ - When I went to Hong Kong, I knew at once I wanted to write a story set there.
+ - And that is all anyone can do, try to be honest about what he feels, what he’s seen or thinks he’s seen.
+ - You define a good flight by negatives: you didn’t get hijacked, you didn’t crash, you didn’t throw up, you weren’t late, you weren’t nauseated by the food. So you are grateful.
+ - Travel is a state of mind. It has nothing to do with existence or the exotic. It is almost always an inner experience.
+ - The realization that he is white in a black country, and respected for it, is the turning point in the expatriate’s career. He can either forget it, or capitalize on it. Most choose the latter.
+ - A travel book is about someone who goes somewhere, travels on the ground, sees something and spends quite a lot of time doing it, and has a hard time, and then comes back and writes about it. It’s not about inventing.
+ - Pain does not create a long-lasting memory, but the memory of luxury exerts itself for ever.
+ - Reading liberates you. You could know about the world through reading.
+ - Travel is about failure or overcoming obstacles, overcoming failures. When a traveler is having lots of good luck, that is not a happy book. That’s a book you say, well, I don’t need that. I want a life lesson. I want to find out – I want a journey that reflects my life.
+ - When I write about my childhood I think, oh my God, how did I ever get from there to here? Not that any great thing has happened to me. But I felt so tiny, so lost.
+ - Fiction writing, and the reading of it, and book buying, have always been the activities of a tiny minority of people, even in the most-literate societies.
+ - An island is a fixed and finite piece of geography, and usually the whole place has been carved up and claimed.
+ - The long morning shadows lay as still and dark as lakes and patterned the rough ground with straight margins.
+ - You must not judge people by their country. In South America, it is always wise to judge people by their altitude.
+
+157 quotes

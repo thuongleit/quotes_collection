@@ -1,0 +1,34 @@
+ - Education is a vaccine for violence.
+ - What volunteers bring is the human touch, the individual, caring approach that no government program, however well-meaning and well- executed, can deliver.
+ - It’s in the darkest moments when the cracks allow the inner light to come out.
+ - A saint is a person who gives of themself without asking for anything in return. That’s how simple it is to be a saint. Try it! Try being a saint.
+ - If it’s change you need, relish the journey.
+ - Sometimes you gotta do things that you don’t really want to do. But you don’t do them for money.
+ - We must come to terms with our responsibility to be the gatekeepers to end childhood hunger. Our love for life can propel us to share and provide a secure future for the children of our country.
+ - I don’t support violence, period.
+ - I’m not prepared for holding office any more than I think Arnold is.
+ - I support the indigenous people anywhere in the planet.
+ - Life’s a journey that goes round and round and the end is closest to the beginning.
+ - There are nuclear weapons in China, Iran, Korea and Pakistan. It wouldn’t take much to send a couple of warheads off on this planet somewhere that would cause a lot of environmental damage, then if you have got someone who wants to retaliate you have real problems.
+ - I think in Vice and American Me I played very silent, rigid characters and people remember them.
+ - I want to show how strong I am from my roots.
+ - I’m always pleased when people respond to the work.
+ - There is no way that we know what is going on between the African American and the Asian American. We don’t understand what an Indigenous American is. We don’t understand what a Latino American is.
+ - Right now, the Anglo people are desperately trying to hold on to the United States, like they tried to hold on to Africa.
+ - Now I also discipline myself to do things I love to do when I don’t want to do them.
+ - And, granted, for a long time, the European has been dominant in certain parts of this Western Hemisphere, but by the end of the 21st century, it’s over.
+ - And I’ve been acting for 39 years, so I define characters differently than I did in say Miami Vice.
+ - At the rate we’re going, the 21st century looks pretty clear. It’s going to be pretty violent.
+ - You know, Hillary Clinton gives of herself. Princess Diana gave of herself. But they are not saints.
+ - Basically, I think that there are some characters that you can just allow the truth of your character as a human being in your real life to come through.
+ - The older you get the more you understand what you’re doing.
+ - Our inability to relate to one another is very, very, very important. When we don’t have it, we get situations like Bosnia.
+ - You get more churches burned down in the United States in the last two years than in the last hundred, because of the lack of understanding of culture and diversity and the beauty of it.
+ - Because people of color will definitely, definitely become the power base in the Western Hemisphere.
+ - Chiapas is probably the main concern I have right now for the planet.
+ - When you’re asked to fly a 747 you better at least be able to fly a Piper cub.
+ - Yeah, the New York Times is very intellectual and very, very prestigious, but it doesn’t reach the market that People magazine does.
+ - We don’t have as much prejudice as we did 40 years ago, but today it is more educated.
+ - I believe that Gandhi was correct. Non-violent civil disobedience is the only way to bring about change that allows people to enjoy the change and not get killed in the process.
+
+32 quotes

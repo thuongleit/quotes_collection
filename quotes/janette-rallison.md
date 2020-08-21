@@ -1,0 +1,42 @@
+ - You can always tell how a man will treat his wife by the way he treats his mother.
+ - You need to be more careful, or you could hurt yourself.
+ - Perhaps I wasn’t going crazy after all. Perhaps I was just becoming a writer.
+ - But that’s how life is. You never know how it’s going to turn out, and you can’t plan for everything. You just have to do your best dealing with things as they come and hope people forgive you when you make a mistake.
+ - I didn’t bother to explain about the glitter in my hair. I figured they could think it was a family trait. We all glittered, just like the Cullens in Twilight.
+ - Wishes are powerful things. You can’t expect them to change the world without changing you too.
+ - Well you can’t believe everything you read. After all, by definition, fiction writers lie for a living.
+ - That’s the magic of books. They’re never quite the same for any two people. When you read one, you automatically make it your own.
+ - Happy is entirely up to you and always has been.
+ - Perhaps selling your children, your future, just happened one bad decision at a time.
+ - Peacocks have the bright feathers. Fish have the long tails. Women have the mall.
+ - That’s the thing about the internet. It’s really good at giving you pointless facts like how many horses a star owns, but not important things like how to invade his trailer.
+ - Beauty has a persuasive power all its own.
+ - People weren’t firecrackers who burst into the night sky with brilliance and glory, and a moment later faded away to nothing. Our souls had to be more lasting than that.
+ - At first it upset me to realize how many people are, at heart, selfish. Now I take that in stride, but people’s loneliness still gets to me.
+ - The key to happiness – as any good fairy godmother will tell you – is not to avoid problems, but to overcome them.
+ - Courage is a fickle creature. Just as you need it, it often makes excuses and rushes out of the room.
+ - The only things you can truly love after such a short time are ice cream flavors and comfortable shoes.
+ - You know, sometimes you’ve got to trust the people you love. You’ve got to trust that if they’re good people, they’ll make good decisions.
+ - Sometimes love not only lifts you to the ceiling, it also keeps your eyes there.
+ - No wonder he has such nice teeth. They probably pay him in dental floss.
+ - Guys can smell desperation. It triggers an instinct in them to run far and fast so they aren’t around when a woman starts peeling apart her heart.
+ - Happy people are rarely interesting.
+ - Things that are easily done are often much harder to undo. Sometimes, impossible.
+ - The next level. As though dating were a computer game.
+ - I will not go on, I thought. I won’t. I will throw my soul to the wind and blow into a thousand pieces. I will wash up on a shore somewhere like bleached and broken driftwood. I will dry out in the sun until I-and any gift I ever had-shrivel into the sand.
+ - What was God thinking when he created a guy this handsome? He wasn’t a gift to womankind, he was a torture device.
+ - Adults are constantly telling teenagers that it’s what’s on the inside that matters. It’s always painful to find out that adults have lied to you.
+ - I don’t care what you Yanks say, cheese should not whiz.
+ - I bet you Cinderella didn’t get along with Prince Charming’s friends. Oh sure, the knights and barons probably put up with her on account that she was pretty and had such dainty feet and all, but you should know every duchess and contess in the kingdom hated her guts.
+ - The only wishes that will ever change you are the kind that may, at any moment, eat you whole.
+ - It’s not like most people read anymore. Well, not unless the book has a wizard school or a hot vampire. And, as a Kari Kngsley expert, I’m absolutely certain your life has neither of those things.
+ - Very often the lessons you learn are more important than the things you accomplish.
+ - Fairy’s side note: Even people who don’t believe in magic really do.
+ - Misfortune and Fortune are eerily similar, but Fortune is a better dresser and more fun at parties.
+ - The problem was that I’d never worn a bikini before. My dad doesn’t allow them. He thinks even one-pieces show too much skin and constantly suggests that Jane and I wear wet suits.
+ - Blackmailers never explain their thinking. They’re like pirates that way. Dark-hearted, dangerous – and cool like Johnny Depp.
+ - Many perfumes promise to lure men to women. None of them smell of motherhood. None of them proclaim the wearer to be tidy, thrifty, and sensible.
+ - Even the plants in Arizona wanted to hurt you.
+ - As if finding a guy to solve your problems isn’t a contradiction of terms.
+
+40 quotes

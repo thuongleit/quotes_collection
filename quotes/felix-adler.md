@@ -1,0 +1,41 @@
+ - The hero is one who kindles a great light in the world, who sets up blazing torches in the dark streets of life for men to see by. The saint is the man who walks through the dark paths of the world, himself a light.
+ - We stand, as it were, on the shore, and see multitudes of our fellow beings struggling in the water, stretching forth their arms, sinking, drowning, and we are powerless to assist them.
+ - People may be said to resemble not the bricks of which a house is built, but the pieces of a picture puzzle, each differing in shape, but matching the rest, and thus bringing out the picture.
+ - The freedom of thought is a sacred right of every individual man, and diversity will continue to increase with the progress, refinement, and differentiation of the human intellect.
+ - An optimist is a person who sees only the lights in the picture, whereas a pessimist sees only the shadows. An idealist, however, is one who sees the light and the shadows, but in addition sees something else: the possibility of changing the picture, of making the lights prevail over the shadows.
+ - May the humanity that is within every human being be held precious. The vice that underlies all vices is that we are held cheap by others, and far worse, that in our innermost soul we think cheaply of ourselves.
+ - The unique personality which is the real life in me, I cannot gain unless I search for the real life, the spiritual quality, in others.
+ - The Infinite, from which comes the impulse that lead us to activity, is not the highest Reason, but higher than reason; not the highest Goodness, but higher than goodness.
+ - Ethical religion can be real only to those who are engaged in ceaseless efforts at moral improvement. By moving upward we acquire faith in an upward movement, without limit.
+ - The past speaks to us in a thousand voices, warning and comforting, animating and stirring to action.
+ - Love is the expansion of two natures in such fashion that each include the other, each is enriched by the other.
+ - We should teach our children nothing which they shall ever need to unlearn; we should strive to transmit to them the best possessions, the truest thought, the noblest sentiments of the age in which we live.
+ - We measure our enjoyments by the sum expended.
+ - The right for the right’s sake is the motto which everyone should take for his own life. With that as a standard of value we can descend into our hearts, appraise ourselves, and determine in how far we already are moral beings, in how far not yet.
+ - It is the moral element contained in it that alone gives value and dignity to a religion, and only in so far as its teachings serve to stimulate and purify our moral aspirations does it deserve to retain its ascendency over mankind.
+ - Act so as to elicit the best in others and thereby in thyself.
+ - If you desire information on some point of law, you are not likely to ponder over the ponderous tomes of legal writers in order to obtain the knowledge you seek, by your own unaided efforts.
+ - The ethical manifold, conceived of as unified, furnishes, or rather is, the ideal of the whole.
+ - You do not build your own houses, nor make your own garments, nor bake your own bread, simply because you know that if you were to attempt all these things they would all be more or less ill done.
+ - As the light of morning strikes now one peak and then another, some being illuminated while others are in the shadow, so the light of the essential moral principle shines now upon one duty and then upon another, while others are in the shadow.
+ - Where the roots of private virtue are diseased, the fruit of public probity cannot but be corrupt.
+ - It may be impossible for a man by merely willing it to add wings to his body, but it is possible for any man, by merely willing it, to add wings to his soul. This perennial miracle of the moral nature is capable of happening at any time.
+ - In order to join vigorously in the moral work of the world I must believe that somehow the best I can accomplish will endure, will leave its trace on things, will aid the final consummation.
+ - To care for anyone else enough to make their problems one’s own, is ever the beginning of one’s real ethical development.
+ - Simplicity should not be identified with bareness.
+ - Man is like a tree, with the mighty trunk of intellect, the spreading branches of imagination, and the roots of the lower instincts that bind him to the earth. The moral life, however, is the fruit he bears; in it his true nature is revealed.
+ - The Ethical Society, therefore, is like a Church in maintaining, and emphasizing the importance of maintaining the custom of public assemblies on Sunday.
+ - Dogma is the convictions of one man imposed authoritatively upon others.
+ - No one can fail to see that the power of the Church among large numbers in many communities is today diminishing, or has already ceased.
+ - Admitting the force of these contentions, nevertheless, the custom of meeting together in public assembly for the consideration of the most serious, the most exalted topics of human interest is too vitally precious to be lost.
+ - Few are there that will leave the secure seclusion of the scholar’s life, the peaceful walks of literature and learning, to stand out a target for the criticism of unkind and hostile minds.
+ - What I state as certain is certain for me. It has approved itself as such in my experience. Let others consult their experience, and see how far it tallies with that which is here set forth.
+ - Every dogma, every philosophic or theological creed, was at its inception a statement in terms of the intellect of a certain inner experience.
+ - No religion can long continue to maintain its purity when the church becomes the subservient vassal of the state.
+ - The office of the public teacher is an unenviable and thankless one.
+ - Perhaps a hundred people assembled one evening, May 15, 1876, at the time when the country was celebrating the hundredth anniversary of its political independence.
+ - There is a universal element in man which he can assert by so acting as if the purpose of the Universe were also his purpose. It is the function of the supreme ordeals of life to develop in men this power, to give to their life this distinction, this height of dignity, these vast horizons.
+ - It is our hope, that men in proportion as they grow more enlightened, will learn to hold their theories and their creeds more loosely, and will none the less, nay, rather all the more be devoted to the supreme end of practical righteousness to which all theories and creeds must be kept subservient.
+ - We cannot adopt the way of living that was satisfactory a hundred years ago. The world in which we live has changed, and we must change with it.
+
+39 quotes

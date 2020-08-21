@@ -1,0 +1,55 @@
+ - I would rather have a mind opened by wonder than one closed by belief.
+ - I love my life and I am so blessed.
+ - The best antidote for crime is justice. The irony we often fail to appreciate is that the more justice people enjoy, the fewer crimes they commit. Crime is the natural offspring of an unjust society.
+ - The art of arguing is the art of living. We argue because we must, because life emends it, because, in the end, life itself is but an argument.
+ - The people of a nation are enslaved when, together, they are helpless to institute effective change, when the people serve the government more than the government serves them.
+ - Words that do not create images should be discarded.
+ - Prejudice locks the mind. Nothing can enter. Nothing true can escape.
+ - As we drive down the freeways, we see the new cars, but not the massive new-car loans that enslave their drivers to the banks.
+ - Skepticism, not cleanliness, is next to godliness. Skepticism is the father of freedom. It is like the pry that holds open the door for truth to slip in.
+ - My intent is to tell the truth as I know it, realizing that what is true for me may be blasphemy for others.
+ - The function of the law is not to provide justice or to preserve freedom. The function of the law is to keep those who hold power, in power.
+ - The way people move is their autobiography in motion.
+ - The erosion of a nation’s concern for life and for individual rights, has always preceded the intrusion of tyranny.
+ - We are defined by how we use our power.
+ - Credibility is what it is ALL about...
+ - Today the insatiable quest for profit promotes the new slavery. In bewildering ways, the new is more pernicious than the old, for the New American Slave is told he is free, and he clings to that myth as if his life depended upon it, a suspicion that cannot be totally ignored.
+ - To freely bloom that is my definition of success. The question then is, How does arguing with our children advance our goal that our children freely bloom.
+ - The less of one’s life one must exchange for money, the more freedom one may enjoy.
+ - How much of our lives could we buy back if we cherished our lives instead of our trinkets?
+ - Lawyers should be chosen because they can demonstrate a history rich in human traits, the ability to care, the courage to fight, the will to win, a concern for the human condition, a passion for justice and simple uncompromising honesty. These are the traits of the lawyer.
+ - Faced with the pain of freedom, man begs for his shackles.
+ - When you are faced with prejudice, logic and justice are impotent. Still, we may have an obligation to argue directly into the face of the prejudice, even though there is no chance to win.
+ - To freely bloom – that is my definition of success.
+ - Teach the child to respect that which is not respectable and you teach the child the first requirement of slavery: submission to unjust authority. Children are persons. They are small persons whose perfect souls have not yet been ground through the meat grinder of slavery.
+ - The ultimate enemy of Democracy is not the drug dealer of the crooked politician or the crazed skinhead. The ultimate enemy is the New King that has become so powerful it can murder its own citizens with impunity.
+ - Arguments do not erase prejudice any more than arguments erase scars, whether psychological or physical.
+ - I cherish the fantasy, even the hope, of adventures in other realms to come. But how can we choke out that most precious of all gifts, life, with the rope of religion around our necks? It chokes out freedom with dogma. It pinions us to the stake of superstition.
+ - To bargain freedom for security is the devil’s bargain. Having made the bargain, one enjoys neither freedom nor security.
+ - Money in doses disproportionate to our needs enslaves.
+ - The worst enslaving trait of all is greed. I rail against the substitution of money for worth. The idea that the endless accumulation of dead money can furnish a meaningful life to sold-out souls is the supreme lie offered by the system of free enterprise.
+ - To accept capitalism and Free Enterprise as articles of faith without agreeing that we must be free to consider whether what is offered is free and freeing is itself enslavement.
+ - The gift of self cannot be given to us. It is an incomparable gift that has already been given. We have possessed it from the beginning.
+ - What the insurance companies have done is to reverse the business so that the public at large insures the insurance companies.
+ - Without argument the species would parish.
+ - When we acknowledge the kingdom of the self, we will no longer accept slavery either for ourselves or for others, no matter how it is disguised.
+ - Successful argument is a communication between the acknowledged authority of both parties to the argument.
+ - Is there anyone I wouldn’t take as a client? Well, I’d never represent a banker.
+ - I dream of a time when the people will retake their airways and use them to achieve a voice to rediscover democracy, and to see the divine potential of man.
+ - It is an anomaly that we can split the atom, but we are nearly powerless to persuade each other to embrace justice.
+ - Love is how we feel toward those who show us that which is lovable about ourselves.
+ - We must begin to train lawyers the minute they walk into law school to tell the truth. They must immediately begin to learn the business of representing people. They must be assigned cases the first day.
+ - Nothing in the world is as fearsome as a bloody, battered opponent who will never surrender.
+ - I am not as concerned about choosing the right words as I am in letting the words flow naturally.
+ - Each of us has been endowed with the perfect power to be free. Slavery is a state of mind that fails to acknowledge the slave’s own power.
+ - Once slavery in America was not seen as radical. It became, instead, a revolutionary idea that slaves should be freed. When we have lived under a pernicious power long enough, no matter how oppressive, we grow so accustomed to the yoke that its removal seems frightening, even wrong.
+ - We are afraid. But fear confirms life and identifies the source of every successful argument – ourselves.
+ - In any nation in which people’s rights have been subordinated to the rights of the few, in any totalitarian nation, the first institution to be dismantled is the jury. I was, I am, afraid.
+ - The stain of prejudice is often indelible.
+ - When any system has for its goal the advancement of the system over the betterment of its individual members, such a system is embedded in slavery.
+ - We could advance the human race enormously if we but learned to communicate honestly with our neighbors.
+ - Everyone wants to argue. Everyone does. Everyone needs to.
+ - Our willingness to openly reveal our feelings in our argument nearly always builds our credibility.
+ - There are no rules that say lawyers cannot write or speak from their heart. Passion has never been formally outlawed, although it is a little-known experience among most lawyers and nearly all academicians.
+
+53 quotes

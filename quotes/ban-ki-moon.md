@@ -1,0 +1,73 @@
+ - Achieving gender equality requires the engagement of women and men, girls and boys. It is everyones responsibility.
+ - Migration is an expression of the human aspiration for dignity, safety and a better future. It is part of the social fabric, part of our very make-up as a human family.
+ - Sustainable development is the pathway to the future we want for all. It offers a framework to generate economic growth, achieve social justice, exercise environmental stewardship and strengthen governance.
+ - Climate change is, simply, the greatest collective challenge we face as a human family.
+ - The longer we delay, the more we will pay.
+ - We must turn the greatest collective challenge facing humankind today, climate change, into the greatest opportunity for common progress towards a sustainable future.
+ - Climate change has happened because of human behaviour, therefore it’s only natural it should be us, human beings, to address this issue. It may not be too late if we take decisive actions today.
+ - The current model is global suicide. We need a revolution. Revolutionary thinking. Revolutionary action. Natural resources are becoming more and more scarce.
+ - THE WORLD is over-armed and peace is under-funded.
+ - Terrorism is a significant threat to peace and security, prosperity and people.
+ - You have to take ownership and leadership of tomorrow. For that to be possible, you have to strengthen your capacity and widen your vision as a global citizen.
+ - I believe in a world of justice and human rights for all. A world where girls can grow up free of fear of abuse. A world where women are treated with the respect and dignity that is their right. A world where poverty is not acceptable. My dear young friends, you can make this your world.
+ - Climate change does not respect border; it does not respect who you are – rich and poor, small and big. Therefore, this is what we call global challenges, which require global solidarity.
+ - As the young leaders of tomorrow, you have the passion and energy and commitment to make a difference. What I’d like to really urge you do is to have a global vision. Go beyond your country; go beyond your national boundaries.
+ - Sustainable development and climate change are two sides of the same coin.
+ - We must follow the wisdom of the Brundtland Report. We must pursue development that meets the needs of the present generation without compromising the ability of future generations to meet their needs.
+ - The future of any leader or political systems is to be determined by the people of the country.
+ - As many micro-credit schemes across the world can testify, investment in women is the best investment for the future.
+ - Let us take advantage of the opportunities presented by climate action and lay the foundations for a more prosperous and secure future for all.
+ - Planet Earth is our shared island, let us join forces to protect it.
+ - One of my earliest memories is walking up a muddy road into the mountains. It was raining. Behind me, my village was burning. When there was school, it was under a tree. Then the United Nations came. They fed me, my family, my community.
+ - Climate change, demographics, water, food, energy, global health, women’s empowerment – these issues are all intertwined. We cannot look at one strand in isolation. Instead, we must examine how these strands are woven together.
+ - There is one universal truth, applicable to all countries, cultures and communities: violence against women is never acceptable, never excusable, never tolerable.
+ - To achieve a Green Revolution, African farmers, must have access to land and security of tenure. They also need access to markets, technology and improved infrastructure.
+ - Nuclear disarmament is the only sane path to a safer world.
+ - Climate change is destroying our path to sustainability. Ours is a world of looming challenges and increasingly limited resources. Sustainable development offers the best chance to adjust our course.
+ - We hold the future in our hands, together, we must ensure that our grandchildren will not have to ask why we failed to do the right thing, and let them suffer the consequences.
+ - Saving our planet, lifting people out of poverty, advancing economic growth these are one and the same fight. We must connect the dots between climate change, water scarcity, energy shortages, global health, food security and women’s empowerment. Solutions to one problem must be solutions for all.
+ - We must unite. Violence against women cannot be tolerated, in any form, in any context, in any circumstance, by any political leader or by any government.
+ - On this International Day for the Abolition of Slavery let us reaffirm the inherent dignity of all men, women and children. And let us redouble our efforts to build societies in which slavery truly is a term for the history books.
+ - This is the moral challenge of our generation. Not only are the eyes of the world upon us. More important, succeeding generations depend on us. We cannot rob our children of their future.
+ - For my generation, coming of age at the height of the Cold War, fear of nuclear winter seemed the leading existential threat on the horizon. But the danger posed by war to all humanity-and to our planet-is at least matched by climate change.
+ - One of the main lessons I have learned during my five years as Secretary-General is that broad partnerships are the key to solving broad challenges. When governments, the United Nations, businesses, philanthropies and civil society work hand-in-hand, we can achieve great things.
+ - My observation is China is thinking more as a global player than regionally, in both politics and economics.
+ - Extreme weather events continue to grow more frequent and intense in rich and poor countries alike, not only devastating lives, but also infrastructure, institutions, and budgets – an unholy brew which can create dangerous security vacuums.
+ - Men must teach each other that real men do not violate or oppress women – and that a woman’s place is not just in the home or the field, but in schools and offices and boardrooms.
+ - I call on men and boys everywhere to join us. Violence against women and girls will not be eradicated until all of us – men and boys – refuse to tolerate it.
+ - In a world of plenty, no one, not a single person, should go hungry. But almost 1 billion still do not have enough to eat. I want to see an end to hunger everywhere within my lifetime.
+ - Every literate woman is a victory over poverty.
+ - On this International Day, let us promise to make peace not just a priority, but a passion. Let us pledge to do more, wherever we are in whatever way we can, to make every day a day of peace.
+ - Saving our planet, lifting people out of poverty, advancing economic growth – these are one and the same fight.
+ - Society’s dependence on fossil fuels is jeopardising social and economic progress.
+ - Now, more than ever, we need to connect the dots between climate, poverty, energy, food and water. These issues cannot be addressed in isolation.
+ - Saving our planet requires you to be ambitious in what you aim, and, equally, in how hard you work to reach your goal.
+ - Our atmosphere can’t tell the difference between emissions from an Asian factory, the exhaust from a North American SUV, or deforestation in South America or Africa.
+ - Let us acknowledge and celebrate what youth can do to build a safer, more just world. Let us strengthen our efforts to include young people in policies, programmes and decision-making processes that benefit their futures and ours.
+ - It is but a short step from hunger to starvation, from disease to death.
+ - Nuclear terrorism is one of the most serious threats of our time. Even one such attack could inflict mass casualties and create immense suffering and unwanted change in the world forever. This prospect should compel all of us to act to prevent such a catastrophe.
+ - The basic building block of peace and security for all peoples is economic and social security, anchored in sustainable development. It is a key to all problems. Why? Because it allows us to address all the great issues-poverty, climate, environment and political stability-as parts of the whole.
+ - With her courage and determination, Malala has shown what terrorists fear most: a girl with a book.
+ - It has been said that knowledge is power. We need to strengthen education systems so that young people can benefit from cultural diversity, and not be victimized by those who exploit differences.
+ - We have seen in the past where leaders have not been open-minded or have not been flexible. That’s why the people came out to the streets and shouted and chanted for more reforms and more freedoms.
+ - To measure the success of our societies, we should examine how well those with different abilities, including persons with autism, are integrated as full and valued members.
+ - The clear and present danger of climate change means we cannot burn our way to prosperity. We already rely too heavily on fossil fuels. We need to find a new, sustainable path to the future we want. We need a clean industrial revolution.
+ - Women must be full partners in development, so they can lift themselves and their communities out of poverty.
+ - A deal must include an equitable global governance structure. All countries must have a voice in how resources are deployed and managed.
+ - Many say our world is at a tipping point. If we do not act together, if we do not act responsibly, if we do not act now, we risk slipping into a cycle of poverty, degradation, and despair.
+ - I am not a national leader. If I am a national leader I can speak out all that I want.
+ - I call for the need of world leaders to address climate change and reduce the increasing risk of disasters- and world leaders must include mayors, townships and community leaders.
+ - Millions of people in nearly 80 countries still live in fear of landmines and explosive remnants of war, which take an unacceptable toll on lives and limbs, and people’s livelihoods.
+ - I have been urging the leaders to listen to the aspirations and challenges of their own people, and engage in dialogue and take very bold measures. Normally, to their regret, these measures and bold reforms come too late, too little.
+ - Since problems spill across borders, security anywhere depends on sustainable development everywhere.
+ - Three decades into this crisis, let us set our sights on achieving the “three zeros” zero new HIV infections, zero discrimination and zero AIDS-related deaths.
+ - Reason doesn’t mean very much in a country like North Korea.
+ - We have all heard of the web of life. The way we live threatens to trap us in a web of death.
+ - I am willing to take any measures when it comes to the fundamental principle of human rights.
+ - The power of the leader is given to him by the people, so he has a duty to engage and listen more attentively and carefully to the aspirations of the people.
+ - Between now and 2015, we must make sure that promises made become promises kept. The consequences of doing otherwise are profound: death, illness and despair, needless suffering, lost opportunities for millions upon millions of people.
+ - I strongly reject threats by any member state to destroy another or outrageous attempts to deny historical facts such as the Holocaust.
+ - The international community must offer short-term emergency measures to meet critical needs. But it must also make longer-term investments to promote food production and agricultural development, enhance food security and maintain and accelerate momentum towards the MDGs.
+ - Nothing is more shameful than attacking sleeping children.
+
+71 quotes

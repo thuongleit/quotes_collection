@@ -1,0 +1,26 @@
+ - Don’t agonise, organise.
+ - I know we’re termites. But if all the termites got together, the house would fall down.
+ - The biggest sin is sitting on your ass.
+ - Freedom is like taking a bath: You got to keep doing it every day.
+ - I never stop to wonder why I’m not like other people. They mystery to me is why more people aren’t like me.
+ - The question arises whether all lawyers are the same. This is like asking whether everything that gets into a sewer is garbage.
+ - You can’t dump one cup of sugar into the ocean and expect to get syrup. If everybody sweetened her own cup of water, then things would begin to change.
+ - Being a mother is a noble status, right? Right. So why does it change when you put ‘unwed’ or ‘welfare’ in front of it?
+ - Nail polish or false eyelashes isn’t politics. If you have good politics, what you wear is irrelevant. I don’t take dictation from the pig-o-cratic style setters who say I should dress like a middle-aged lady. My politics don’t depend on whether my tits are in or out of a bra.
+ - It’s interesting to speculate how it developed that in two of the most anti-feminist institutions, the church and the law court, the men are wearing the dresses.
+ - There’s no way that I know of to avoid pain absolutely, but suffering is the interpretation we choose to place on the pain we encounter.
+ - You’ve got to rattle your cage door. You’ve got to let them know that you’re in there, and that you want out. Make noise. Cause trouble. You may not win right away, but you’ll sure have a lot more fun.
+ - Now, see there. Just because I’m wearing my Super-Dike sweatshirt, you think I’m a lesbian. I guess if I were wearing a string of pearls, you’d think I was an oyster.
+ - When a system of oppression has become institutionaliz ed it is unnecessary for individuals to be oppressive.
+ - Unity in a Movement situation can be overrated. If you were the Establishment, which would you rather see coming in the door: one lion or five hundred mice?
+ - Trying to help an oppressed person is like trying to put your arm around somebody with a sunburn.
+ - Any woman who still thinks marriage is a fifty-fifty proposition is only proving that she doesn’t understand either men or percentages.
+ - I think we should look forward to death more than we do. Of course everybody hates to go to bed or miss anything, but dying is really the only chance we’ll get to rest.
+ - Everybody’s scared for their ass. There aren’t too many people ready to die for racism. They’ll kill for racism but they won’t die for racism.
+ - Here I am a woman attorney being told I can’t practice law in slacks by a judge dressed in drag.
+ - I’m just a loud-mouthed middle-aged colored lady with a fused spine and three feet of intestines missing and a lot of people think I’m crazy. Maybe you do too, but I never stop to wonder why I’m not like other people. The mystery to me is why more people aren’t like me.
+ - The spending of our tax dollars by the Pentagon represents the greatest social disease of our country; I call it Pentagonorrhea.
+ - Oppressed people are frequently very oppressive when first liberated. They know but two positions: somebody’s foot on their neck or their foot on somebody’s neck.
+ - I approve of anyone wearing what the establishment says you must not wear.
+
+24 quotes

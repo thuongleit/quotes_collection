@@ -1,0 +1,77 @@
+ - I’m sick and tired of government ministers in this Labour government who simply blame other people when things go wrong.
+ - Uncontrolled, mass immigration displaces British workers, forces people onto benefits, and suppresses wages for the low-paid.
+ - I’d personally like to see the Human Rights Act go because I think we have had some problems with it.
+ - If ever there was a time for a PM ready and able to do the job from day one, this is it.
+ - I am the only candidate capable of delivering these three things as prime minister, and tonight it is clear that I am also the only one capable of drawing support from the whole of the Conservative Party.
+ - I will be ruthless in cutting out waste, streamlining structures and improving efficiency.
+ - Like Indiana Jones, I don’t like snakes – though that might lead some to ask why I’m in politics.
+ - Local people do want to see more police on the streets.
+ - If you are from an ordinary working class family, life is just much harder than many people in politics realise.
+ - I think there is a break down of trust generally, between people and politicians. I think that’s come about for a whole variety of reasons.
+ - I believe it’s important that we ensure that the police have a modern and flexible workforce. I think that’s what is necessary, so that they can provide the public with the service that they want.
+ - I’m not sure I should reveal the sources of my clothes.
+ - I’m not willing to risk more terrorist plots succeeding and more paedophiles going free.
+ - My pitch is very simple. I’m Theresa May and I think I’m the best person to be prime minister of this country.
+ - What we’re also doing is helping police forces in terms of issues like procurement and IT, so that savings can be made in those areas which I think is the sort of thing that everybody is going to want us to be doing.
+ - In tough times, everyone has to take their share of the pain.
+ - The internet is changing all forms of communication, and this definitely includes political communication.
+ - I am very grateful to my colleagues for their support. There is a big job before us: to unite our party and the country, to negotiate the best possible deal as we leave the EU, and to make Britain work for everyone.
+ - I will not allow a Delia Smith cookbook in my house! It’s all so precise with Delia, and it makes cooking seem so inaccessible.
+ - National security is the first duty of government but we are also committed to reversing the substantial erosion of civil liberties.
+ - There is nothing inevitable about crime and there is nothing inevitable about anti-social behaviour.
+ - Whether an MP is a woman or a man, it’s about the qualities of the individual in doing that job.
+ - I’m a first-past-the-post person, and always have been.
+ - I am a vicar’s daughter and still a practising member of the Church of England.
+ - A lot of men in politics suddenly woke up to the issue of women in politics when they realised: hey, there are votes in this!
+ - Anti-social behaviour still blights lives, wrecks communities and provides a pathway to criminality.
+ - I think it’s important to do a good job and not to feel that you’ve got to make grand gestures, but just to get on and deliver.
+ - My night out would be with my husband, wherever he chose to take me.
+ - We’re getting rid of bureaucracy, so that we’re releasing time for police officers to be crime fighters and not form writers.
+ - I have not watched WAGs World, I have not watched the BBC’s Upstairs, Downstairs, either. It would be Downton Abbey, I think.
+ - I was a teenage godmother.
+ - I support selecting as many candidates as early as possible for lots of reasons. First of all I think it is important that every voter – regardless of where they live in the country – should have the opportunity to vote Conservative should they wish.
+ - We are mandating forces to hold regular neighbourhood beat meetings. These meetings will give local people the chance to scrutinise the work of their local police.
+ - Sham marriages have been widespread; people have been allowed to settle in Britain without being able to speak English; and there have not been rules in place to stop migrants becoming a burden on the taxpayer. We are changing all of that.
+ - The last time Boris Johnson did a deal with the Germans he came back with three nearly new water cannon.
+ - In seats where perhaps we don’t expect to win at the next general election, the new infrastructure gives us a chance to win local council seats and to build a campaigning base which could help us to win in the future.
+ - Politics is changing and as the demographics of different constituencies change so we need to be awake to the possibility of making gains where we have not traditionally done so.
+ - People feel that they’re being required to meet all sorts of regulations and rules and requirements in their areas of work and MPs are not imposing those sort of restrictions on themselves.
+ - Under my leadership the Conservative Party will come back together in the interests of the whole country.
+ - As we conduct our negotiations it must be a priority to allow British companies to trade with the single market in goods and services but also, to regain more control of the numbers of people who are coming here from Europe.
+ - For voters what matters is what government actually delivers for them.
+ - I am delighted to have won so much support from my colleagues. The Conservative Party can come together – and under my leadership it will.
+ - Any attempt to wriggle, especially from leadership candidates who campaigned to leave the EU by focusing on immigration, will be unacceptable to the public.
+ - I look forward to continuing the debate about Britain’s future – in Parliament and across the country.
+ - Dealing with a simple burglary can require 1000 process steps and 70 forms to be completed as a case goes through the Criminal Justice System. That can’t be right.
+ - The concept of doing something with child benefit, of changing the rules around child benefit, is something that has been being discussed for some time.
+ - Communities need to feel that they can accommodate people. Rather than feeling that it’s not possible to integrate and that the stress and strain on housing and public services is too great.
+ - The internet makes it much easier for politicians to communicate directly with voters – think of the interest when David launched WebCameron, or Tony Blair’s rather embarrassing attempt to catch up on YouTube.
+ - I was in the Commons recently and saw a young lady wearing a nice pair of shoes. I said I liked them and she said my shoes were the reason she became involved in politics.
+ - Today I can announce a raft of reforms that we estimate could save over 2.5 million police hours every year. That’s the equivalent of more than 1,200 police officer posts. These reforms are a watershed moment in policing. They show that we really mean business in busting bureaucracy.
+ - You don’t think about it at the time, but there are certain responsibilities that come with being the vicar’s daughter. You’re supposed to behave in a particular way. I shouldn’t say it, but I probably was Goody Two Shoes.
+ - And it is crucial of course that chief constables are able to make decisions within their budgets about how they deploy their police officers to the greatest effect to ensure that they’re able to do the job that the public want them to do.
+ - It is clearly important for all leadership candidates to be open and transparent about their tax affairs. I was very happy to publish mine today, and hope others will follow suit.
+ - I am willing to consider powers which would ban known hooligans from rallies and marches and I will look into the powers the police already have to force the removal of face coverings and balaclavas.
+ - Obviously, given the objective that we have, what I would hope is that people would be able to see that actually we had reduced the numbers of people, the net number of people, coming into the country. People would, presumably, see that, but it’s difficult to say how.
+ - I want a counter-terrorism regime that is proportionate, focused and transparent.
+ - I take a very simple view that a violent extremist at some point previously been an extremist, and by definition is an extremist, so you do need to look at that non-violent extremism.
+ - People will be able to raise their concerns: what are local officers doing about the drug dealing in the local park? What’s happening about the pub where all the trouble is? And the police will have to respond.
+ - When you first come into Parliament, it’s a daunting place because you feel you’ve so much to learn. Once you’ve been re-elected, you feel much more confident. It just gives you a bit of a boost.
+ - Just as the police review their operational tactics, so we in the Home Office will review the powers available to the police.
+ - We should no longer seek to have Budget surplus by end of Parliament. We should avoid tax rises.
+ - I believe in marriage. I believe marriage is a really important institution, it’s one of the most important institutions we have.
+ - Today, there’s an expectation that you get to know public people. In the past, it was much more what you did and how you presented yourself.
+ - The Conservative Party’s always stood in every seat and I think it’s important to us.
+ - We campaigned on the fact that we were going to have to take difficult decisions because of the state of the public finances. When we got into government we discovered that actually the public finances were in an even worse state than we thought.
+ - Well can I just make a point about the numbers because people talk a lot about police numbers as if police numbers are the holy grail. But actually what matters is what those police are doing. It’s about how those police are deployed.
+ - I think major reorganisation is not something the government’s about to do.
+ - People have to make journeys, what we want is people to have alternatives in public transport so that they can make a choice about the sort of way in which they’re going to travel.
+ - I’m not someone who feels anger on particular issues.
+ - It’s also advantageous for the Party because it helps us to build a base in those areas where we have not in, recent times, been as active as we’d have liked. It means that opposing parties don’t get a free run but are challenged to prove themselves to voters.
+ - You can’t solve a problem as complex as inequality in one legal clause.
+ - No, I can tell you one of the first things that happens to a home secretary when they arrive in the job is that they are given a briefing about the security matters that they will be dealing with and I deal with security matters on a daily basis.
+ - Targets don’t fight crime.
+ - Countries across the world are taking action now to help them track paedophiles and terrorists who abuse new technology to plot their horrific crimes.
+ - I think that probably in some areas the Labour message about some of the things that they said we were going to do – and which we weren’t going to do – cut through.
+
+75 quotes

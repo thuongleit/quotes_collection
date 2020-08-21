@@ -1,0 +1,58 @@
+ - God save me from myself.
+ - You have to have a dream so you can get up in the morning.
+ - Don’t be too clever for an audience. Make it obvious. Make the subtleties obvious also.
+ - If you’re going to tell people the truth, be funny or they’ll kill you.
+ - He has Van Gogh’s ear for music.
+ - An actor entering through the door, you’ve got nothing. But if he enters through the window, you’ve got a situation.
+ - The Austrians are brilliant people. They made the world believe that Hitler was a German and Beethoven an Austrian.
+ - If you have a problem with the third act, the real problem is in the first act.
+ - A director must be a policeman, a midwife, a psychoanalyst, a sycophant and a bastard.
+ - Trust your own instinct. Your mistakes might as well be your own, instead of someone else’s.
+ - Well, nobody’s perfect.
+ - Hindsight is always twenty-twenty.
+ - Hollywood didn’t kill Marilyn Monroe, it’s the Marilyn Monroes who are killing Hollywood.
+ - If there’s anything I hate more than not being taken seriously, it’s being taken too seriously.
+ - The best director is the one you don’t see.
+ - Marilyn was mean. Terribly mean. The meanest woman I have ever met around this town. I have never met anybody as mean as Marilyn Monroe or as utterly fabulous on the screen.
+ - I just always think, ‘Do I like it?’ And if I like it, maybe other people will come and like it too.
+ - If you don’t like what you’re doing, it’s unlikely anyone else will either, so be sure you are happy with your own work first.
+ - If something smells bad, why put your nose in it?
+ - On Ernst Lubitsch: He could do more with a closed door than other directors could do with an open fly.
+ - It was a hot afternoon and I can still remember the smell of honeysuckle all along the street. How can I have known that murder can sometimes smell like honeysuckle?
+ - I don’t go to church. Kneeling bags my nylons.
+ - I’m not happy. I’m not happy at all.
+ - An audience is never wrong. An individual member of it may be an imbecile, but a thousand imbeciles together in the dark – that is critical genius.
+ - One’s too many and a hundred’s not enough.
+ - Shoot a few scenes out of focus. I want to win the foreign film award.
+ - I hate that word. It’s return – a return to the millions of people who’ve never forgiven me for deserting the screen.
+ - I’ve met a lot of hardboiled eggs in my time, but you’re twenty minutes.
+ - The only pictures worth making are the ones that are playing with fire.
+ - I’d worship the ground you walked on if only you walked in a better neighborhood.
+ - Develop a clean line of action for your leading character.
+ - My Aunt Minnie would always be punctual and never hold up production, but who would pay to see my Aunt Minnie?
+ - The forest of Compiegne. Look at it. Like a kind grandmother dozing in her rocking chair. Old trees practicing curtsies in the wind because they still think Louis XIV is king.
+ - Make subtlety obvious.
+ - Now, what is it which makes a scene interesting? If you see a man coming through a doorway, it means nothing. If you see him coming through a window – that is at once interesting.
+ - Eighty percent of a picture is writing, the other twenty percent is the execution, such as having the camera on the right spot and being able to afford to have good actors in all parts.
+ - What critics call dirty in our pictures, they call lusty in foreign films.
+ - Happiness is working with Jack Lemmon.
+ - France is a place where the money falls apart in your hands but you can’t tear the toilet paper.
+ - The more subtle and elegant you are in hiding your plot points, the better you are as a writer.
+ - I have ten commandments. The first nine are, thou shalt not bore. The tenth is, thou shalt have right of final cut.
+ - I am big. It’s the pictures that got small.
+ - You know, that stuff about pink elephants, that’s the bunk. It’s little animals. Little tiny turkeys in straw hats. Midget monkeys coming through the keyholes.
+ - I’m delighted with it, because it used to be that films were the lowest form of art. Now we’ve got something to look down on.
+ - My English is a mixture between Arnold Schwarzenegger and Archbishop Tutu.
+ - A bad play folds and is forgotten, but in pictures we don’t bury our dead. When you think it’s out of your system, your daughter sees it on television and says, My father is an idiot.
+ - I had one life. And what did I do? Wasted it in some palooka preliminaries in Spain, just before Hitler and Chamberlain warm up for the main event.
+ - Ever notice how these European trains always smell of eau de cologne and hard boiled eggs?
+ - I would rather sleep in a bathroom than in another hotel.
+ - The ultimate trick is to convince, persuade. Every single person out there is an idiot, but collectively they’re a genius.
+ - They’ve tried to manufacture other Marilyn Monroes and they will undoubtedly keep trying. But it won’t work. She was an original.
+ - You’re as good as the best thing you’ve ever done.
+ - I just made pictures I would’ve liked to see.
+ - Money makes even bastards legitimate.
+ - When Chaplin found a voice to say what was on his mind, he was like a child of eight writing lyrics for Beethoven’s Ninth.
+ - We are on the track of something absolutely mediocre...
+
+56 quotes

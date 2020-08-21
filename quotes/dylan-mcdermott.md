@@ -1,0 +1,38 @@
+ - Everything keeps changing. People want to label things all the time and once you label it, it changes again.
+ - Jerry Bruckheimer really is an executive producer, who obviously is the most successful producer in the history of film and television.
+ - I like the Polanski stuff more than anything else. Rosemary’s Baby is still one of my favorite movies of all time. The idea of her being impregnated with the devil is just so frightening.
+ - Once you understand that someone has Tourette and that they can’t help their tics, it takes away the distraction. And you can engage your compassion. You feel for them. You embrace them.
+ - The Victorian era is the sexiest age for me, but I also like a woman in a pair of jeans.
+ - People behave badly and people are in prison and people are on death row, and there are no excuses for everybody’s behavior, but most people are coming from abuse.
+ - I was terrified of the Vietnam War when I was 13. I thought I was going. The draft was such an ominous thing, I felt as if it was going to trickle down to me.
+ - It’s like, no matter what I do, I always feel like I’m five years old, and I end up in the back of my father’s car looking out the window, and nothing has changed in 25 years.
+ - My past is not pleasant; I grew up in a very tough town, Waterbury, Connecticut. I grew up in New York, too, but Waterbury was tougher.
+ - When I’m playing a serial killer, I’m in it. I’m not judging him. I’m not judging his environment. I’m just looking for the why. Why is he the way he is? But, there’s no doubt that, if you’re a good actor, you’re going to take this stuff home with you.
+ - I think the most important thing for an actor is to stay current and stay relevant, and those are probably the hardest things to do.
+ - My dad was kind of a pool shark and had a Frank Sinatra, Dean Martin thing going on. I’ve always been fascinated by the fifties because of him. There was a hip, cool, anything-goes atmosphere back then, but looking good was still a priority.
+ - I’ve always been fascinated by Baretta and Donny Brasco, and other undercover cops in movies.
+ - I did a movie with Clint Eastwood and I knew I wasn’t going to be able to ‘out-man’ him.
+ - You never want to have a movie be derivative, because that’s the worst if you ask me. I always want to be in original material, or an original idea, or an original vision, rather than a rehash of some other movie.
+ - I think everything keeps changing. There was a time when television was a bad thing for actors and it meant that you could only do television, and now we see everyone does television.
+ - Yeah, romantic comedies are the hardest movies to make. Maybe one works a year.
+ - I really am a character actor, in my heart of hearts, because I really do like developing characters and painting a past for them.
+ - In the consciousness of the end is the limitation of the moment.
+ - Sometimes you have to search for inspiration with characters, and other times, they just drop out of the sky and arrive.
+ - I’m always trying to pop up in different genres, what interests me. Sometimes I just like to throw myself into new situations to see what it feel like.
+ - It’s hard to find success and it’s hard to find hit movies or hit TV shows and to stay relevant. I think it’s a very difficult thing for actors, because a lot of us get lost, frankly.
+ - We shared the same vision.
+ - It’s the cable shows that are really the most interesting – ‘Mad Men,’ ‘Breaking Bad,’ those shows are really the premiere shows on television right now.
+ - My theory about actors is we’re all walking milk cartons. Expirations dates everywhere.
+ - I guess my style is a cross between David Bowie and Clint Eastwood.
+ - To me Polanski is one of the greats in terms of psychological horror. It’s just hard to top him because he’s so damn good at it.
+ - I always felt like I needed to act. Not that I wanted to act, but I needed to. And I still feel that same way. There’s an expression that I get to have in acting that I can’t consciously express in my life. It has always defined me and it always will.
+ - Media runs the world, and it all changed, I think, when the debate between Kennedy and Nixon happened, and first of all we saw them on television, and that changed everything.
+ - Most of the time people are aiming so low on television. They’re trying to reach that common denominator, especially on network television.
+ - Most actors are starving. Most of us are walking around with a flashlight and tweezers looking for evidence. When you have someone that actually writes an acting role, it’s rare.
+ - I don’t like the slasher stuff, myself, but I do like the psychological horror of Roman Polanski and that world. But, it’s curious to me why people do like to be afraid.
+ - As an actor, you always have to reinvent yourself or you end up in the gutter somewhere. It’s my job to always change people’s minds. I’ve known that for a long time and I’ve had to do it.
+ - I’ve tried like hell to make bad movies good, and I can’t. Maybe Marlon Brando has been able to do that at times. But even he has a hard time making ‘The Appaloosa’ a good movie.
+ - I mean, I always think when you’re an actor you have to be the guy running into the burning building rather than running out of it, if you want to make some noise as an actor.
+ - Much of the time, as an actor, you sit around waiting. Most of your life and career, you’re waiting for your agent or your manager to call you.
+
+36 quotes

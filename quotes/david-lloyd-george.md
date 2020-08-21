@@ -1,0 +1,57 @@
+ - The finest eloquence is that which gets things done.
+ - Don’t be afraid to take a big step if one is indicated; you can’t cross a chasm in two small jumps.
+ - You can’t cross a chasm in two small jumps.
+ - Hitler is a prodigious genius.
+ - He has sat on the fence so long that the iron has entered his soul.
+ - Liberty has restraints but no frontiers.
+ - Wisdom is like a baobab tree; no one individual can embrace it.
+ - A body of 500 men chosen at random from amongst the unemployed.
+ - The League of Nations is the greatest humbug in history. They cannot even protect a little nation like Armenia. They do nothing but pass useless resolutions.
+ - The world is becoming like a lunatic asylum run by lunatics.
+ - When they circumcised Herbert Samuel they threw away the wrong bit.
+ - Wild men, screaming through the keyholes.
+ - Independent thinking is not encouraged in a professional Army. It is a form of mutiny. Obedience is the supreme virtue.
+ - Believe me, Germany is unable to wage war.
+ - A young man who isn’t a socialist hasn’t got a heart; an old man who is a socialist hasn’t got a head.
+ - Once blood is shed in a national quarrel reason and right are swept aside by the rage of angry men.
+ - Golf is the only game where the worst player gets the best of it. He obtains more out of it as regards both exercise and enjoyment, for the good player gets worried over the slightest mistake, whereas the poor player makes too many mistakes to worry about them.
+ - There is nothing so fatal to character as half finished tasks.
+ - The man who tries to make the flag an object of a single party is a greater traitor to that flag than any man who fires at it.
+ - It is always too late, or too little, or both. And that is the road to disaster.
+ - We are fighting Germany, Austria and drink, and as far as I can see, the greatest of these three deadly foes is drink.
+ - A fully equipped duke costs as much to keep up as two Dreadnoughts, and dukes are just as great a terror – and they last longer.
+ - Anything can be achieved in small, deliberate steps. But there are times you need the courage to take a great leap; you can’t cross a chasm in two small jumps.
+ - The home front is always underrated by Generals in the field. And yet that is where the Great War was won and lost. The Russian, Bulgarian, Austrian and German home fronts fell to pieces before their armies collapsed.
+ - Sincerity is the surest road to confidence.
+ - It is either Christ or chaos.
+ - Four specters haunt the Poor – Old Age, Accident, Sickness and Unemployment. We are going to exorcise them. We are going to drive hunger from the hearth. We mean to banish the workhouse from the horizon of every workman in the land.
+ - What is our task? To make Britain a fit country for heroes to live in.
+ - If you listen to the neverdo’s, it’s never done.
+ - Great Britain would spend her last guinea to keep a navy superior to that of the United States or any other power.
+ - What do you want to be a sailor for? There are greater storms in politics than you will ever find at sea. Piracy, broadsides, blood on the decks. You will find them all in politics.
+ - Death is the most convenient time to tax rich people.
+ - The stern hand of fate has scourged us to an elevation where we can see the great everlasting things which matter for a nation – the great peaks we had forgotten, of Honor, Duty, Patriotism, and clad in glittering white, the great pinnacle of Sacrifice pointing like a rugged finger to Heaven.
+ - The conventional heaven with its angels perpetually singing etc nearly drove me mad in my youth and made me an atheist for ten years. My opinion is that we shall be reincarnated.
+ - He is brilliant – to the top of his boots.
+ - Unemployment, with its injustice for the man who seeks and thirsts for employment, who begs for labour and cannot get it, and who is punished for failure he is not responsible for by the starvation of his children – that torture is something that private enterprise ought to remedy for its own sake.
+ - Liberty is not merely a privilege to be conferred; it is a habit to be acquired.
+ - Of all the bigotries that savage the human temper there is none so stupid as the anti-Semitic.
+ - No democracy has ever long survived the failure of its adherents to be ready to die for it. My own conviction is this, the people must either go on or go under.
+ - Explain to me again the difference between superstitious beliefs or pagan incantations, and scientific ones. Be braver – you cannot cross a chasm in two small jumps.
+ - Great men sometimes lose the reins and lose their heads. This time, let us hope that they will retain them and that when victory is assured they will sit down and reckon what the future is going to be for their countries as well as for other lands.
+ - Four specters haunt the poor – old age, accident, sickness and unemployment.
+ - You get to know more of the character of a man in a round of golf than in six months of political experience.
+ - Aristrocracy is like cheese. The older it is the higher it becomes.
+ - There is nothing more dangerous than to leap a chasm in two jumps.
+ - The doctors are always changing their opinions. They always have some new fad.
+ - If you want to succeed in politics you must keep your conscience firmly under control.
+ - Every man has a House of Lords in his own head. Fears, prejudices, misconceptions – those are the peers and they are hereditary.
+ - Diplomats were invented simply to waste time.
+ - The government are behaving like a bevy of maiden aunts who have fallen among buccaneers.
+ - Doctinaires are the vultures of principle. They feed upon principle after it is dead.
+ - By thetest of our faith thehighest standard ofcivilization is the readiness to sacrifice for others.
+ - If you want to understand a subject promise to speak on it.
+ - With me a change of trouble is as good as a vacation.
+ - A politician is a person with whose politics you don’t agree; if you agree with him he’s a statesman.
+
+55 quotes

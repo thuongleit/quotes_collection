@@ -1,0 +1,56 @@
+ - When you go out of your comfort zone and it works there’s nothing more satisfying.
+ - I love the rain. It’s my favorite weather.
+ - I think people like to see the lives of artists that are legends. They always go through the dark periods and I think just as humans we like to see that and them coming out of it. I love those kinds of movies.
+ - If you’re creating anything at all, it’s really dangerous to care about what people think.
+ - Don’t become something just because someone else wants you to or because it’s easy; you won’t be happy. You have to do what you really, really, really, really want to do, even if it scares the s-t out of you.
+ - I am a big David Bowie fan.
+ - I can relate to having those people in your life that you feel are moving on to this great, big, normal life and you’re like, ‘What’s wrong with me?’
+ - I love kids. All my best friends have kids, and I love, love, love kids.
+ - With improv, it’s a combination of listening and not trying to be funny.
+ - Even in this day and age, if you’re not married, there are people who are like, ‘Awww! Don’t worry, it’ll happen for you someday.’
+ - Sometimes I need to blow off steam and go dance really hard.
+ - When you’re a woman in your thirties, and maybe you don’t really know what you want to do with your life, but it seems like everyone else does, and your best friend gets married, and it forces you to look at yourself. I don’t know if I described that in a very funny way.
+ - When you’re on your deathbed, you probably aren’t counting the movies you’ve made.
+ - I’d make a terrible surgeon. The fear of blood? Very high on my list.
+ - I feel there’s so much pressure, especially for women, to declare what their life’s going to be and what their career is, and are you married yet? Are you single? But you’re 30. And girlfriends are so important. You can have a boyfriend or husband when you’re 30, but you still need your girlfriends.
+ - I probably lived more of a rock-star life when I was 15. I got in trouble a fair amount. I cared more about hanging out and skipping school than studying. Which I am not recommending teenagers do if they read this.
+ - Don’t do something just because someone else wants you to.
+ - I wish I had a lot of tattoos.
+ - There’s something about a Christmas sweater that will always make me laugh.
+ - Women do get drunk, they do get sick and they do get food poisoning. It seems to be a bit of a surprise to people that they are seeing it.
+ - I am shyer than most people think.
+ - I would put Flintstones vitamins in it in case I got tired, so I could pop some and keep walking.
+ - People sometimes get a little extra criticism when they try something that they don’t normally do, but I think that’s just a natural thing for artists. It’s like, ‘Okay, I did that, and now I want to try this.’
+ - It sounds so cheesy, but there’s something very powerful about looking in the mirror and asking yourself a question. Because I think it’s really hard to lie.
+ - I definitely ran with a pack of hoodlums, that’s for sure.
+ - A big part of being in a wedding is the financial obligation, and that’s something that people don’t really talk about, but if you’re asked to be in a wedding, you’re gonna have to fork over some cash.
+ - I would never wear fur.
+ - I’m not as much a history person as an art person, but I mean, you can read history through art.
+ - I enjoy being characters rather than myself.
+ - I took guitar lessons and recorded the song in New York. It was kind of a dream. I got to pretend I was a recording artist for a couple days.
+ - Maybe studios don’t want to see women acting in a way that isn’t womanly. Maybe people don’t.
+ - I don’t know about the romantic comedy route, although never say never.
+ - I really, really want to go to Paris. I’ve never been.
+ - I do sort of gravitate towards smaller, indie-type movies.
+ - I wish I had less fear about creating my own parts.
+ - I feel like women are asked their age more than men.
+ - I’m one of those people that really pays attention to the music in films.
+ - Mean comedy is not really something that I personally gravitate towards or something that I do.
+ - It’s a mystery to me what makes people laugh.
+ - I think no matter what kind of life you have, whether it looks one way to people or another way, you always have moments when you imagine a different life.
+ - The weddings that I’ve been in have been pretty mellow.
+ - I hated speaking in public. I would miss school just so I wouldn’t have to do it.
+ - You have all this stuff going on in your head, like, ‘I can’t believe seven years has gone by, and I’m going to miss all these people.’ And I’m like, ‘Oh, by the way, Mick Jagger is to my right, and I just danced a waltz with him.’ So there’s that.
+ - I don’t know if I even consider myself a comedian really – I do comedic acting in some films and dramatic in others.
+ - I just like to walk around New York, just put my iPod on and walk around.
+ - For movies to get greenlit solely based on the success of other movies that have a lot of women in them? It’s so ridiculous to me.
+ - I don’t know if you can articulate an instinct.
+ - I don’t rehearse a lot. I try to keep it organic. Even in movies, the less I rehearse, the better I am.
+ - The good thing about ‘SNL’ is that it’s the same people every week that you’re working with, and we’ve all become so close and tight because we’ve worked together so long and so closely together.
+ - I don’t always just want to do the same thing.
+ - I always say I want to look haunted.
+ - There are so many funny women in the world, and there has been for so many years, so I’ll be happy when people can just move on from that, and things can just be ‘comedies’ and not ‘female’ or ‘male,’ and everyone gets an equal opportunity.
+ - At parties, I’ll start talking and notice everyone is looking at me and feel dumb and say, ‘Forget it,’ and then start eating things.
+ - I lived in Lancaster, Pennsylvania, until eighth grade, and then my high-school years were in Rochester, New York.
+
+54 quotes

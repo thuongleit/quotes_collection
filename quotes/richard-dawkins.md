@@ -1,0 +1,421 @@
+ - Science is the poetry of reality.
+ - The less you think, the more you believe.
+ - Faith is belief without evidence and reason; coincidentally that’s also the definition of delusion.
+ - Science flies you to the moon. Religion flies you into buildings.
+ - Biology is the study of complicated things that give the appearance of having been designed for a purpose.
+ - Religion ends and philosophy begins, just as alchemy ends and chemistry begins, and astrology ends and astronomy begins.
+ - Do not indoctrinate your children. Teach them how to think for themselves, how to evaluate evidence, and how to disagree with you.
+ - We’re going to die, and that makes us the lucky ones.
+ - I am against religion because it teaches us to be satisfied with not understanding the world.
+ - Scientific rationalism is the crowning glory of the human spirit.
+ - We are all atheists about most of the gods that societies have ever believed in. Some of us just go one god further.
+ - Don’t ask God to cure cancer and world poverty. He’s too busy finding you a parking space and fixing the weather for your barbecue.
+ - It is a remarkable coincidence that almost everyone has the same religion as their parents and it always just so happens they’re the right religion.
+ - Religion: Together we can find the cure.
+ - The chicken is only an egg’s way for making another egg.
+ - If something is true, no amount of wishful thinking will change it.
+ - Blasphemy is a Victimless Crime.
+ - By all means let’s be open-minded, but not so open-minded that our brains drop out.
+ - Blindness to suffering is an inherent consequence of natural selection. Nature is neither kind nor cruel but indifferent.
+ - The Universe does not owe us meaning.
+ - Science is interesting, and if you don’t agree, you can f**k off.
+ - Creationism: God’s gift to the ignorant.
+ - In the beginning was simplicity.
+ - The chances of each of us coming into existence are infinitesimally small, and even though we shall all die some day, we should count ourselves fantastically lucky to get our decades in the sun.
+ - Be thankful that you have a life, and forsake your vain and presumptuous desire for a second one.
+ - You can’t even begin to understand biology, you can’t understand life, unless you understand what it’s all there for, how it arose – and that means evolution.
+ - Religion is the root of quite a lot of evil.
+ - We are survival machines – robot vehicles blindly programmed to preserve the selfish molecules known as genes. This is a truth which still fills me with astonishment.
+ - A delusion is something that people believe in despite a total lack of evidence.
+ - The universe we observe has precisely the properties we should expect if there is, at bottom, no design, no purpose, no evil, no good, nothing but blind, pitiless indifference.
+ - The world and the universe is an extremely beautiful place, and the more we understand about it the more beautiful does it appear.
+ - Evolution has no long-term goal. There is no long-distance target, no final perfection to serve as a criterion for selection, although human vanity cherishes the absurd notion that our species is the final goal of evolution.
+ - The idea of a divine creator belittles the elegant reality of the universe.
+ - The evidence for evolution is so compelling that the only way to save the creation theory is to assume that God deliberately planted enormous quantities of evidence to make it look as if evolution had happened.
+ - Some people find clarity threatening. They like muddle, confusion, obscurity. So when somebody does no more than speak clearly it sounds threatening.
+ - There is an attitude in the culture that says that everybody is entitled to their opinion. You got to respect their opinion. No, you damn well haven’t got to respect their opinion.
+ - Let’s get up off our knees, stop cringing before bogeymen and virtual fathers, face reality, and help science to do something constructive about human suffering.
+ - We are built as gene machines and cultured as meme machines, but we have the power to turn against our creators. We, alone on earth, can rebel against the tyranny of the selfish replicators.
+ - How thoughtful of God to arrange matters so that, wherever you happen to be born, the local religion always turns out to be the true one.
+ - Although atheism might have been logically tenable before Darwin, Darwin made it possible to be an intellectually fulfilled atheist.
+ - The only watchmaker is the blind forces of physics.
+ - Like computer viruses, successful mind viruses will tend to be hard for their victims to detect. If you are the victim of one, the chances are that you won’t know it, and may even vigorously deny it.
+ - Evolution is as much a fact as the heat of the sun.
+ - It has been convincingly demonstrated that countries where there are high rates of poverty, or high rates of economic inequality, are the countries with the highest rates of religious beliefs.
+ - Something pretty mysterious had to give rise to the origin of the universe.
+ - Religion is a powerful weapon that can be used because it persuades people to do things. And thus it can be used for good or ill. But it should not be a powerful weapon at all.
+ - Science is the disinterested search for the objective truth about the material world.
+ - Science replaces private prejudice with public, verifiable evidence.
+ - Pantheism is sexed-up atheism. Deism is watered-down theism.
+ - Evolution is just a theory? Well, so is gravity and I don’t see you jumping out of buildings.
+ - DNA neither cares nor knows. DNA just is. And we dance to its music.
+ - Natural selection is anything but random.
+ - If there is a God, it’s going to be a whole lot bigger and a whole lot more incomprehensible than anything that any theologian of any religion has ever proposed.
+ - You don’t believe that the Earth is round only if you’re an astronaut. You don’t believe Napoleon existed only if you’re a historian. You believe these things because they’re facts, proved by evidence.
+ - Genome sequencing has changed taxonomy.
+ - The Virgin Birth, the Resurrection, the raising of Lazarus, even the Old Testament miracles, all are freely used for religious propaganda, and they are very effective with an audience of unsophisticates and children.
+ - My thoughts, my beliefs, my feelings are all in my brain. My brain is going to rot.
+ - The human psyche has two great sicknesses: the urge to carry vendetta across generations, and the tendency to fasten group labels on people rather than see them as individuals.
+ - Scientific beliefs are supported by evidence, and they get results. Myths and faiths are not and do not.
+ - It often turns out on closer inspection that acts of apparent altruism are really selfishness in disguise.
+ - There is enough information capacity in a single human cell to store the Encyclopedia Britannica, all 30 volumes of it, three or four times over.
+ - Faith is the great cop-out, the great excuse to evade the need to think and evaluate evidence. Faith is belief in spite of, even perhaps because of, the lack of evidence.
+ - Evolution could so easily be disproved if just a single fossil turned up in the wrong date order. Evolution has passed this test with flying colours.
+ - There is no reason to regard God as immune from consideration along the spectrum of probabilities. And there is certainly no reason to suppose that, just because God can be neither proved nor disproved, his probability of existence is 50 per cent.
+ - Faith can be very very dangerous, and deliberately to implant it into the vulnerable mind of an innocent child is a grievous wrong.
+ - Let our tribute to the dead be a new resolve: to respect people for what they individually think, rather than respect groups for what they were collectively brought up to believe.
+ - I don’t understand why so many people who are sophisticated in science go on believing in God. I wish I did.
+ - Religion is not the root of all evil, for no one thing is the root of all anything.
+ - You contain a trillion copies of a large, textual document written in a highly accurate, digital code, each copy as voluminous as a substantial book. I’m talking, of course, of the DNA in your cells.
+ - The truth is more magical – in the best and most exciting sense of the word – than any myth or made-up mystery or miracle. Science has its own magic: the magic of reality.
+ - Writing a computer virus program is child’s play. Any fool can do it, which is why the silly little twerps who do have nothing to be proud of.
+ - Life results from the non-random survival of randomly varying replicators. The watchmaker is blind.
+ - Let us try to teach generosity and altruism, because we are born selfish. Let us understand what our own selfish genes are up to, because we may then at least have the chance to upset their designs, something that no other species has ever aspired to do.
+ - Even if it were true that evolution, or the teaching of evolution, encouraged immorality that would not imply that the theory of evolution was false.
+ - Undisguised clarity is easily mistaken for arrogance.
+ - The theory of evolution by cumulative natural selection is the only theory we know of that is in principle capable of explaining the existence of organized complexity.
+ - Gravity is not a version of the truth. It is the truth. Anyone who doubts it is invited to jump out a tenth-storey window.
+ - Mutation is random; natural selection is the very opposite of random.
+ - I shall not make an argument ad hominem. My argument is ad bullshitem.
+ - I have no explanation for complex biological design. All I know is that God isn’t a good explanation, so we must wait and hope that somebody comes up with a better one.
+ - I am thrilled to be alive at time when humanity is pushing against the limits of understanding. Even better, we may eventually discover that there are no limits.
+ - Isn’t it sad to go to your grave without ever wondering why you were born? Who, with such a thought, would not spring from bed, eager to resume discovering the world and rejoicing to be part of it?
+ - Do you advocate the Ten Commandments as a guide to the good life? Then I can only presume that you don’t know the Ten Commandments.
+ - I am one of those scientists who feels that it is no longer enough just to get on and do science. We have to devote a significant proportion of our time and resources to defending it from deliberate attack from organised ignorance.
+ - We, alone on earth, can rebel against the tyranny of the selfish replicators.
+ - Mysteries do not lose their poetry when solved. Quite the contrary; the solution often turns out more beautiful than the puzzle and, in any case, when you have solved one mystery you uncover others, perhaps to inspire greater poetry.
+ - You can make some inferences about a man’s character if you know something about the conditions in which he has survived and prospered.
+ - If there is something that appears to lie beyond the natural world as it is now imperfectly understood, we hope to eventually understand it and embrace it within the natural. As ever when we unweave a rainbow, it will not become less wonderful.
+ - Human beings are just gene machines.
+ - Personally, I rather look forward to a computer program winning the world chess championship. Humanity needs a lesson in humility.
+ - Scientific truth is too beautiful to be sacrificed for the sake of light entertainment or money. Astrology is an aesthetic affront. It cheapens astronomy, like using Beethoven for commercial jingles.
+ - Let us try to teach generosity and altruism, because we are born selfish.
+ - I suppose if you look back to your early childhood you accept everything people tell you, and that includes a heavy dose of irrationality – you’re told about tooth fairies and Father Christmas and things.
+ - The feeling of awed wonder that science can give us is one of the highest experiences of which the human psyche is capable.
+ - Physicists are working on the Big Bang, and one day they may or may not solve it.
+ - I detest ‘Jingle Bells,’ ‘White Christmas,’ ‘Rudolph the Red Nosed Reindeer,’ and the obscene spending bonanza that nowadays seems to occupy not just December, but November and much of October, too.
+ - I hate the neologism “owned” for “scored a victory over”. I have no intention of owning anyone, and nobody will ever own me.
+ - More generally, as I shall repeat in Chapter 8, one of the truly bad effects of religion is that it teaches us that it is a virtue to be satisfied with not understanding.
+ - Words are our servants, not our masters. For different purposes, we find it convenient to use words in different senses.
+ - Regarding the accusations of sexual abuse of children by Catholic priests, deplorable and disgusting as those abuses are, they are not so harmful to the children as the grievous mental harm in bringing up the child Catholic in the first place.
+ - Many people want to send their children to faith schools because they get good exam results, but they’re not foolish enough to believe that it’s because of faith that they get good exam results.
+ - The essence of life is statistical improbability on a colossal scale.
+ - We should take astrology seriously. No, I don’t mean we should believe in it. I am talking about fighting it seriously instead of humouring it as a piece of harmless fun.
+ - For the first half of geological time our ancestors were bacteria. Most creatures still are bacteria, and each one of our trillions of cells is a colony of bacteria.
+ - Not only is science corrosive to religion, but religion is corrosive to science. It teaches people to be satisfied with trivial non-explanations and blinds them to the wonderful real explanations that we have within our grasp.
+ - Segregation has no place in the education system.
+ - The solution often turns out more beautiful than the puzzle.
+ - What’s wrong with being elitist if you are trying to encourage people to join the elite rather than being exclusive?
+ - All the great religions have a place for awe, for ecstatic transport at the wonder and beauty of creation.
+ - Humans are just a very, very small part of the panoply of life, and it is arguable that in a certain sense, humans have emancipated themselves from Darwinian selection.
+ - The genetic code is not a binary code as in computers, nor an eight-level code as in some telephone systems, but a quaternary code with four symbols. The machine code of the genes is uncannily computerlike.
+ - The machine code of the genes is uncannily computer-like. Apart from differences in jargon, the pages of a molecular biology journal might be interchanged with those of a computer engineering journal.
+ - Evolution never looks to the future.
+ - Faith is one of the world’s great evils, comparable to the smallpox virus but harder to eradicate.
+ - I am utterly fed up with the respect we have been brainwashed into bestowing upon religion.
+ - If I were God wanting to make a human being, I would do it by a more direct way rather than by evolution. Why deliberately set it up in the one way which makes it look as though you don’t exist?
+ - Let children learn about different faiths, let them notice their incompatibility, and let them draw their own conclusions about the consequences of that incompatibility. As for whether they are ‘valid,’ let them make up their own minds when they are old enough to do so.
+ - I respect you too much to respect your ridiculous ideas.
+ - The Bible should be taught, but emphatically not as reality. It is fiction, myth, poetry, anything but reality. As such it needs to be taught because it underlies so much of our literature and our culture.
+ - My point is not that religion itself is the motivation for wars, murders and terrorist attacks, but that religion is the principal label, and the most dangerous one, by which a “they” as opposed to a “we” can be identified at all.
+ - Indeed, organizing atheists has been compared to herding cats, because they tend to think independently and will not conform to authority.
+ - The universe is a strange and wondrous place. The truth is quite odd enough to need no help from pseudoscientific charlatans.
+ - They are in you and me; they created us, body and mind; and their preservation is the ultimate rationale for our existence. They have come a long way, those replicators. Now they go by the name of genes, and we are their survival machines.
+ - There is no such thing as a Christian child: only a child of Christian parents.
+ - If you want to do evil, science provides the most powerful weapons to do evil; but equally, if you want to do good, science puts into your hands the most powerful tools to do so.
+ - American political opportunities are loaded against those who are simultaneously intelligent and honest.
+ - The cynic about human nature might say that religious morality is an effective way of keeping people in line. The threat of hell, the reward of heaven, but the rules of the holy books are out of date and often barbaric.
+ - The important thing to remember about mathematics is not to be frightened.
+ - Being an atheist frees you up to live this life properly, happily, and fully.
+ - It is possible in medicine, even when you intend to do good, to do harm instead. That is why science thrives on actively encouraging criticism rather than stifling it.
+ - Unfortunately, however much we may deplore something, it does not stop being true.
+ - I am not an enthusiast for diversity of opinion where facts are concerned.
+ - Religion is about turning untested belief into unshakable truth through the power of institutions and the passage of time.
+ - False beliefs can be every bit as consoling as true ones, right up until the moment of disillusionment.
+ - It is immoral to brand children with religion. ‘This is a Catholic child.’ ‘That is a Muslim child.’ I want everyone to flinch when they hear such a phrase, just as they would if they heard, ‘That is a Marxist child.’
+ - Nothing is wrong with peace and love. It is all the more regrettable that so many of Christ’s followers seem to disagree.
+ - The argument from improbability, properly deployed, comes close to proving that God does not exist.
+ - There’s no point of having faith if you have evidence.
+ - Even if not a single fossil has ever been found, the evidence from surviving animals would still overwhelmingly force the conclusion that Darwin was right.
+ - When we talk about genes for anything, like a gene for being gay or a gene for being aggressive or something of that sort, that a gene for anything may not have been a gene for that thing under different environmental conditions.
+ - My interest in biology was pretty much always on the philosophical side.
+ - I am very hostile to religion because it is enormously dominant, especially in American life. And I don’t buy the argument that, well, it’s harmless. I think it is harmful, partly because I care passionately about what’s true.
+ - I do feel visceral revulsion at the burka because for me it is a symbol of the oppression of women.
+ - My computer is a very complex gadget and it was designed by many designers, so why must the universe have only a single designer and not many designers?
+ - Just because science can’t in practice explain things like the love that motivates a poet to write a sonnet, that doesn’t mean that religion can. It’s a simple and logical fallacy to say, ‘If science can’t do something therefore religion can.’
+ - Evolution has been observed. It’s just that it hasn’t been observed while it’s happening.
+ - We have this one life, let’s enjoy it, let’s live it to the full and don’t get so worked up about don’t identify yourself so passionately with this business called religion.
+ - Can omniscient God, who Knows the future, find The omnipotence to Change His future mind?
+ - After sleeping through a hundred million centuries, we have finally opened our eyes on a sumptuous planet, sparkling with color, bountiful with life.
+ - Human vanity cherishes the absurd notion that our species is the final goal of evolution.
+ - Science boosts its claim to truth by its spectacular ability to make matter and energy jump through hoops on command, and to predict what will happen and when.
+ - The fact that life evolved out of nearly nothing, some 10 billion years after the universe evolved out of literally nothing, is a fact so staggering that I would be mad to attempt words to do it justice.
+ - I am agnostic only to the extent that I am agnostic about fairies at the bottom of the garden.
+ - The idea of an afterlife where you can be reunited with loved ones can be immensely consoling – though not to me.
+ - Bertrand Russell used a hypothetical teapot in orbit about Mars for the same didactic purpose. You have to be agnostic about the teapot, but that doesn’t mean you treat the likelihood of its existence as being on all fours with its non-existence.
+ - We cannot, of course, disprove God, just as we can’t disprove Thor, fairies, leprechauns, and the Flying Spaghetti Monster. But, like those other fantasies that we can’t disprove, we can say that God is very, very improbable.
+ - Anybody who objects to cloning on principle has to answer to all the identical twins in the world who might be insulted by the thought that there is something offensive about their very existence. Clones are simply identical twins.
+ - It is a virtue to admit ignorance when you don’t know, but not to wallow in ignorance as an end in itself. People say if we don’t believe god is watching over us, we abandon morality. Are they right?
+ - Faith is an evil precisely because it requires no justification and brooks no argument.
+ - The universe doesn’t owe us condolence or consolation; it doesn’t owe us a nice warm feeling inside.
+ - Yes, testosterone-sodden young men too unattractive to get a woman in this world might be desperate enough to go for 72 private virgins in the next.
+ - At the deepest level, all living things that have ever been looked at have the same DNA code. And many of the same genes.
+ - No matter how much knowledge and wisdom you acquire during your life, not one jot will be passed on to your children by genetic means. Each new generation starts from scratch.
+ - The question of whether there exists a supernatural creator, a God, is one of the most important that we have to answer. I think that it is a scientific question. My answer is no.
+ - The fear of Hell is a very powerful motivation.
+ - It’s very important to try to inculcate into children moral rules, such as “do as you would be done by.”
+ - Discrimination is not liberal. Arguing against discrimination is not intolerance.
+ - We admit that we are like apes, but we seldom realize that we are apes.
+ - The very idea that we get a moral compass from religion is horrible. Not only should we not get our moral compass from religion, as a matter of fact we don’t.
+ - Organizing atheists is a bit like herding cats; They are on the whole too intelligent and independent minded to lend themselves to being herded.
+ - You believe that all humanity came from Adam and Eve, and humans have not evolved at all since. So tell me; between the two of them, which was black, which was white, and which was Asian?
+ - You can’t understand European history at all other than through religion, or English literature either if you can’t recognise biblical allusions.
+ - God exists, if only in the form of a meme with high survival value, or infective power, in the environment provided by human culture.
+ - Everybody is an atheist in saying that there is a god – from Ra to Shiva – in which he does not believe. All that the serious and objective atheist does is to take the next step and to say that there is just one more god to disbelieve in.
+ - There may be some deep questions about the cosmos that are forever beyond science. The mistake is to think they are therefore not beyond religion too.
+ - Complex, statistically improbable things are by their nature more difficult to explain than simple, statistically probable things.
+ - Any altruistic system is inherently unstable, because it is open to abuse by selfish individuals, ready to exploit it.
+ - Even if there were no actual evidence in favor of the Darwinian theory, we should still be justified in preferring it over all rival theories.
+ - Being dead will be no different from being unborn – I shall be just as I was in the time of William the Conqueror or the dinosaurs or the trilobites. There is nothing to fear in that.
+ - We animals are the most complicated things in the known universe.
+ - Next time that somebody tells you something is true, why not say to them: ‘What kind of evidence is there for that?’ And if they can’t give you a good answer, I hope you’ll think very carefully before you believe a word they say.
+ - You can’t blame science for being used for evil purposes. What you can do is say, ‘This is an exceedingly powerful tool.’ And you want to make sure it is used for good purposes, not bad ones. That is a political decision.
+ - When you plant a fertile meme in my mind you literally parasitize my brain, turning it into a vehicle for the meme’s propagation in just the way that a virus may parasitize the genetic mechanism of a host cell.
+ - It is grindingly, creakingly, crashingly obvious that if Darwinism was really a theory of chance, it could not work.
+ - I was brought up in a family which valued natural history. Both my parents knew the names of all the British wildflowers, so as we went walking the country, I was constantly being exposed to a natural history sort of knowledge.
+ - Cloning may be good and it may be bad. Probably it’s a bit of both. The question must not be greeted with reflex hysteria but decided quietly, soberly and on its own merits. We need less emotion and more thought.
+ - I accept that there may be things far grander and more incomprehensible than we can possibly imagine.
+ - I mean it as a compliment when I say that you could almost define a philosopher as someone who won’t take common sense for an answer.
+ - We don’t need fossils – the case for evolution is watertight without them; so it is paradoxical to use gaps in the fossil record as though they were evidence against evolution.
+ - Along with William Shakespeare and Isaac Newton, Charles Darwin is Britain’s greatest gift to the world. He was our greatest thinker.
+ - Religion is nothing more than a useless and sometimes dangerous, evolutionary accident. Religious behavior may be a misfiring, an unfortunate byproduct of an underlying psychological propensity which in other circumstances is, or once was, useful.
+ - All life evolves by the differential survival of replicating entities.
+ - If you don’t know anything about computers, just remember that they are machines that do exactly what you tell them but often surprise you in the result.
+ - Today the theory of evolution is about as much open to doubt as the theory that the earth goes round the sun.
+ - Such delusions of grandeur to think that a God with a hundred billion galaxies on his mind would give a tuppenny damn who you sleep with, or indeed whether you believe in him.
+ - There may be fairies at the bottom of the garden. There is no evidence for it, but you can’t prove that there aren’t any, so shouldn’t we be agnostic with respect to fairies?
+ - You cannot be both sane and well educated and disbelieve in evolution. The evidence is so strong that any sane, educated person has got to believe in evolution.
+ - We have seen that living things are too improbable and too beautifully ‘designed’ to have come into existence by chance.
+ - However statistically improbable the entity you seek to explain by invoking a designer, the designer himself has got to be at least as improbable. God is the Ultimate Boeing 747.
+ - Our brains have evolved to help us survive within the orders of magnitude of size and speed which our bodies operate at. We never evolved to navigate in the world of atoms.
+ - Society bends over backward to be accommodating to religious sensibilities but not to other kinds of sensibilities. If I say something offensive to religious people, I’ll be universally censured, including by many atheists.
+ - Many of us saw religion as harmless nonsense. Beliefs might lack all supporting evidence but, we thought, if people needed a crutch for consolation, where’s the harm? September 11th changed all that.
+ - If any remedy is tested under controlled scientific conditions and proved to be effective, it will cease to be alternative and will simply become medicine. So-called alternative medicine either hasn’t been tested or it has failed its tests.
+ - Not a single one of your ancestors died young. They all copulated at least once.
+ - If you look up at the Milky Way through the eyes of Carl Sagan, you get a feeling in your chest of something greater than yourself. And it is. But it’s not supernatural.
+ - The enlightenment is under threat. So is reason. So is truth. So is science, especially in the schools of America.
+ - I love romantic poetry.
+ - The odd thing about tradition is, the longer it’s been going, the more people seem to take it seriously – as though sheer passage of time makes something which to begin with was just made up, turns it into what people believe as a fact.
+ - The obvious objections to the execution of Saddam Hussein are valid and well aired. His death will provoke violent strife between Sunni and Shia Muslims, and between Iraqis in general and the American occupation forces.
+ - But, however many ways there may be of being alive, it is certain that there are vastly more ways of being dead, or rather not alive.
+ - Sometimes I think it’s possible to mistake desire for clarity and talking in a no-nonsense way for aggression.
+ - The atheist view is correspondingly life-affirming and life-enhancing, while at the same time never being tainted with self-delusion, wishful thinking, or the whingeing self-pity of those who feel that life owes them something.
+ - My love of truth and honesty forces me to notice that the liberal intelligentsia of Western countries is betraying itself where Islam is concerned.
+ - Atheism is not a religion. Abstinence is not a sex position.
+ - What has ‘theology’ ever said that is of the smallest use to anybody? When has ‘theology’ ever said anything that is demonstrably true and is not obvious? What makes you think that ‘theology’ is a subject at all?
+ - Religious people split into three main groups when faced with science. I shall label them the “know-nothings”, the “know-alls”, and the “no-contests.”
+ - I am not absolutely positive there is no god. Only in the sense that I’m not absolutely positive there is no large china teapot in orbit in the solar system.
+ - Most of what we strive for in our modern life uses the apparatus of goal seeking that was originally set up to seek goals in the state of nature.
+ - If people think God is interesting, the onus is on them to show that there is anything there to talk about. Otherwise they should just shut up about it.
+ - I do disapprove very strongly of labelling children, especially young children, as something like ‘Catholic children’ or ‘Protestant children’ or ‘Islamic children.’
+ - The physicist’s problem is the problem of ultimate origins and ultimate natural laws. The biologist’s problem is the problem of complexity.
+ - I am not advocating a morality based on evolution.
+ - The God of the Old testament is arguably the most unpleasant character in all fiction...
+ - Real life seeks the gentle slopes at the back of Mount Improbable, while creationists are blind to all but the daunting precipice at the front.
+ - If Bush and Blair are eventually put on trial for war crimes, I shall not be among those pressing for them to be hanged.
+ - Evolution is fundamentally hostile to religion.
+ - I am very comfortable with the idea that we can override biology with free will.
+ - What you cannot have is a gene that sacrifices itself for the benefit of other genes. What you can have is a gene that makes organisms sacrifice themselves for other organisms under the influence of selfish genes.
+ - Much as we might wish to believe otherwise, universal love and the welfare of the species as a whole are concepts which simply do not make evolutionary sense.
+ - What I can’t understand is why you can’t see the extraordinary beauty of the idea that life started from nothing – that is such a staggering, elegant, beautiful thing, why would you want to clutter it up with something so messy as a God?
+ - Thus the creationist’s favourite question “What is the use of half an eye?” Actually, this is a lightweight question, a doddle to answer. Half an eye is just 1 per cent better than 49 per cent of an eye.
+ - Of course you can have an opinion about Islam without having read Qur’an. You don’t have to read Mein Kampf to have an opinion about Nazism.
+ - The body is a survival machine programmed to propagate the genes that reside inside it.
+ - I mean, in a way, I feel that one of the reasons for learning about Darwinian evolution is as an object lesson in how not to set up our values and social lives.
+ - Do those people who hold up the Bible as an inspiration to moral rectitude have the slightest notion of what is actually written in it?
+ - I’m a cultural Christian in the same way many of my friends call themselves cultural Jews or cultural Muslims.
+ - I do not believe there is an atheist in the world who would bulldoze Mecca-or Chartres, York Minster or Notre Dame, the Shwe Dagon, the temples of Kyoto or, of course, the Buddhas of Bamiyan.
+ - I am at a loss to reconcile the expensive and glossy production values of this book with the breathtaking inanity of the content.
+ - A gene might be able to assist replicas of itself that are sitting in other bodies. If so, this would appear as individual altruism but it would be brought about by gene selfishness.
+ - It doesn’t hurt my feeling when I get vilified by fundamentalist religious people. I’ve actually made comedy out of it. I’ve made light of that.
+ - I do sometimes accuse people of ignorance, but that is not intended to be an insult. I’m ignorant of lots of things. Ignorance is something that can be remedied by education.
+ - I do understand people when they say that you destroy the magic of childhood if you encourage too much skeptical questioning.
+ - Reductionism is a dirty word, and a kind of ‘holistier than thou’ self-righteousness has become fashionable.
+ - Darwin gives courage to the rest of science that we shall end up understanding literally everything, springing from almost nothing – a thought extremely hard to comprehend and believe.
+ - Matthew and Luke handle the problem differently, by deciding that Jesus must have been born in Bethlehem after all. But they get him there by different routes.
+ - No doubt soaring cathedrals, stirring music, moving stories and parables, help a bit. But by far the most important variable determining your religion is the accident of birth.
+ - My personal feeling is that understanding evolution led me to atheism.
+ - But perhaps the rest of us could have separate classes in science appreciation, the wonder of science, scientific ways of thinking, and the history of scientific ideas, rather than laboratory experience.
+ - If you divide Christians into denominations, agnostics and atheists come in third, behind Catholics and Baptists. That’s interesting when you contrast it with the lack of influence of nonbelievers.
+ - My objection to supernatural beliefs is precisely that they miserably fail to do justice to the sublime grandeur of the real world. They represent a narrowing-down from reality, an impoverishment of what the real world has to offer.
+ - The meme for blind faith secures its own perpetuation by the simple unconscious expedient of discouraging rational inquiry.
+ - Most people, I believe, think that you need a God to explain the existence of the world, and especially the existence of life. They are wrong, but our education system is such that many people don’t know it.
+ - If children understand that beliefs should be substantiated with evidence, as opposed to tradition, authority, revelation or faith, they will automatically work out for themselves that they are atheists.
+ - The Bishop goes on to the human eye, asking rhetorically, and with the implication that there is no answer, ‘How could an organ so complex evolve?’ This is not an argument, it is simply an affirmation of incredulity.
+ - Religious organisations have an automatic tax-free charitable status.
+ - There is something so mysterious that it is almost like God. God is in the equations. God is in the fundamental constants. And that’s fine. I mean, that’s just redefinition of that which we find mysterious at the basis of the universe.
+ - Alister McGrath has now written two books with my name in the title. The poet W. B. Yeats, when asked to say something about bad poets who made a living by parasitizing him, wrote the splendid line, ’was there ever dog that praised his fleas?
+ - I’m quite a softy, yes. I have a blank spot with respect to visual art, but I have perhaps a compensating hypersensitivity to poetry and music.
+ - Religion teaches you to be satisfied with nonanswers. It’s a sort of crime against childhood.
+ - All the world’s Muslims have fewer Nobel Prizes than Trinity College, Cambridge. They did great things in the Middle Ages, though.
+ - When I say that human beings are just gene machines, one shouldn’t put too much emphasis on the word ‘just.’ There is a very great deal of complication, and indeed beauty in being a gene machine.
+ - Why do more than 40 percent of Americans think that the Universe began after the domestication of the dog?
+ - Molecular evidense suggests that our common ancestor with the chimpanzees lived, in Africa, between 5 and 7 million years ago, say half a million generations ago. This is not long by evolutionary standards.
+ - The assignment of purpose to everything is called teleology. Children are native teleologists, and many never grow out of it.
+ - We cannot prove that there is no God, but we can safely conclude the He is very, very improbable indeed.
+ - Science is wonderful, science is important, and so are children, so are young people, and so what could be better than to write a science book for young people?
+ - I like to think ‘The God Delusion’ is a humorous book. I think, actually, it’s full of laughs. And people who describe it as a polarizing book or as an aggressive book, it’s just that very often they haven’t read it.
+ - I am trying to call attention to the elephant in the room that everybody is too polite – or too devout – to notice: religion, and specifically the devaluing effect that religion has on human life.
+ - The book is true, and if evidence seems to condtradict it, it is the evidence that must be thrown out not the book.
+ - We humans are an extremely important manifestation of the replication bomb, because it is through us – through our brains, our symbolic culture and our technology – that the explosion may proceed to the next stage and reverberate through deep space.
+ - I don’t feel depressed. I feel elated.
+ - If you set out in a spaceship to find the one planet in the galaxy that has life, the odds against your finding it would be so great that the task would be indistinguishable, in practice, from impossible.
+ - If ever there was a slamming of the door in the face of constructive investigation, it is the word miracle. To a medieval peasant, a radio would have seemed like a miracle.
+ - Our subjective judgment of what seems like a good bet is irrelevant to what is actually a good bet.
+ - Effective searching procedures become, when the search-space is sufficiently large, indistinguishable from true creativity.
+ - DNA is ROM. It can be read millions of times over, but only written to once – when it is first assembled the birth of the cell in which it resides.
+ - I think we certainly benefit from social institutions which encourage us towards moral behavior. It’s very important to have law. It’s very important to have a moral education.
+ - Presumably what happened to Jesus was what happens to all of us when we die. We decompose. Accounts of Jesus’s resurrection and ascension are about as well-documented as Jack and the Beanstalk.
+ - I think the world’s always a better place if people are filled with understanding.
+ - What is interesting about the scientific world view is that it is true, inspiring, remarkable and that it unites a whole lot of phenomena under a single heading.
+ - I don’t want to sound callous. I mean, even if I have nothing to offer, that doesn’t matter, because that still doesn’t mean that what anybody else has to offer therefore has to be true.
+ - The feature of living matter that most demands explanation is that it is almost unimaginably complicated in directions that convey a powerful illusion of deliberate design.
+ - Beliefs. Once entrenched in a culture, they persist, evolve and diverge, in a manner reminiscent of biological evolution.
+ - I do think imagination is enormously valuable, and that children should be encouraged in their imagination. That’s very true.
+ - Design can never be an ultimate explanation for anything. It can only be a proximate explanation. A plane or a car is explained by a designer but that’s because the designer himself, the engineer, is explained by natural selection.
+ - Let us understand Darwinism so we can walk in the opposite direction when it comes to setting up society.
+ - Who will say with confidence that sexual abuse is more permanently damaging to children than threatening them with the eternal and unquenchable fires of hell?
+ - What are all of us but self-reproducing robots? We have been put together by our genes and what we do is roam the world looking for a way to sustain ourselves and ultimately produce another robot child.
+ - The hypothesis of God offers no worthwhile explanation for anything, for it simply postulates what we are trying to explain.
+ - If a healing technique is demonstrated to have curative properties in properly controlled double-blind trials, it ceases to be alternative. It simply, as Diamond explains, becomes medicine.
+ - Even those who do not, or cannot, avail themselves of a scientific education, choose to benefit from the technology that is made possible by the scientific education of others.
+ - Having a debate with a modern Christian is like punching a sponge.
+ - By dislaiming the idea of a next life, we can take more excitement in this one!
+ - We are digital archives of the African Pliocene, even of Devonian seas; walking repositories of wisdom out of the old days. You could spend a lifetime reading in this ancient library and die unsated by the wonder of it.
+ - Those who wish to base their morality literally on the Bible have either not read it or not understood it...
+ - There’s nothing nonsensical about saying that what would evolve if Darwinian selection has its head is something that you don’t want to happen. And I could easily imagine trying to go against Darwinism.
+ - Compassionate doctors sometimes lie to patients about the severity of their condition, and it is not always wrong to do so.
+ - Science ha seradicated smallpox, can immunise against most previously deadly viruses, can kill most previously deadly bacteria. Theology has done nothing but talk of pestilence as the wages of sin.
+ - I guess there are some rights of parents with what they choose their children to learn, but I’m biased in favor of freeing children to learn and not letting parents be too doctrinaire in indoctrinating their children.
+ - A God capable of continuously monitoring and controlling the individual status of every particle in the universe cannot be simple. His existence is going to need a mammoth explanation in its own right.
+ - I’m not much given to straight, irony-free hero-worship.
+ - Religion is the most inflammatory enemy-labelling device in history.
+ - Of course, we would love to know more about the exact moment of Big Bang, but interposing an outside intelligence does nothing to add to that knowledge, as we still know nothing about the creation of that intelligence.
+ - If your plane is being hijacked by an armed man who, though prepared to take risks, presumably wants to go on living, there is room for bargaining.
+ - If the history-deniers who doubt the fact of evolution are ignorant of biology, those who think the world began less than ten thousand years ago are worst than ignorant, they are the deluded to the point of perversity.
+ - Do you really mean the only reason you try to be good is to gain God’s approval and reward? That’s not morality, that’s just sucking up.
+ - If we say that religion is a virus, then why isn’t science a virus?
+ - I think what I’d really like to see would be a mass consciousness-raising movement so that we would all become vegetarian.
+ - Most people are never going to die because they are never going to be born.
+ - Intelligent life on a planet comes of age when it first works out the reason for its own existence.
+ - It has become almost a cliche to remark that nobody boasts of ignorance of literature, but it is socially acceptable to boast ignorance of science and proudly claim incompetence in mathematics.
+ - Why, I can’t help wondering, is God thought to need such ferocious defence? One might have supposed him amply capable of looking after himself.
+ - If we are too friendly to nice, decent bishops, we run the risk of buying into the fiction that there’s something virtuous about believing things because of faith rather than because of evidence. We run the risk of betraying scientific enlightenment.
+ - Religions are not imaginative, not poetic, not soulful. On the contrary, they are parochial, small-minded, niggardly with the human imagination, precisely where science is generous.
+ - I think what attracts me about the Electric Monk is that it’s such an eloquent example of the futility of belief for belief’s sake. I mean there’s only any point in believing something if it’s true.
+ - We who are atheists are also a-fairyists, a-teapotists, and a-unicornists, but we don’t have to bother saying so.
+ - I can remember at the age of about six being fascinated by the planets and learning all about Mars and Venus and things.
+ - Though the details differ across the world, no known culture lacks some version of the time-consuming, wealth consuming, hostility provoking rituals, the anti-factual, counter-productive fantasies of religion.
+ - It is all too easy to mistake passion that can change its mind for fundamentalism, which never will.
+ - I might respect you as a brilliant intellect, runner, musician or juggler. But respect your BELIEFS? Only if they’re supported by evidence.
+ - There is great variation in brain power all the way from Einstien on one hand to Sarah Palin on the other.
+ - The time has come for people of reason to say: Enough is Enough! Religious faith discourages independent thought, it’s divisive and it’s dangerous.
+ - People really, really hate their religion being criticized. It’s as though you’ve said they had an ugly face; they seem to identify personally with it.
+ - Atheists are the new gays; in the closet and pretty much disqualified from public office.
+ - Bush and bin Laden are really on the same side: the side of faith and violence against the side of reason and discussion. Both have implacable faith that they are right and the other is evil.
+ - Disagreements between incompatible beliefs cannot be settled by reasoned argument because reasoned argument is drummed out of those trained in religion from the cradle.
+ - I sympathize with politicians who have to watch every syllable they utter for fear it will be misused by somebody with an agenda.
+ - I’ve been reading an Alabama newspaper that one man shot another man because he beat him in a Bible-quoting competition.
+ - We should learn to understand natural selection, so that we can oppose any tendency to apply it to human politics.
+ - When I am dying, I should like my life taken out under general anaesthetic, exactly as if it were a diseased appendix.
+ - Just because science so far has failed to explain something, such as consciousness, to say it follows that the facile, pathetic explanations which religion has produced somehow by default must win the argument is really quite ridiculous.
+ - A universe with a God would look quite different from a universe without one. A physics, a biology where there is a God is bound to look different. So the most basic claims of religion are scientific. Religion is a scientific theory.
+ - The idea of tiny changes cumulated over many steps is an immensely powerful idea, capable of explaining an enormous range of things that would be otherwise inexplicable.
+ - It’s known that stress gives rise to disease. It’s also known that many diseases, especially stress-related diseases, can be cured by placebos – pills that have no medicinal effect, but people think they do, and so they do.
+ - A designer God cannot be used to explain organized complexity because any God capable of designing anything would have to be complex enough to demand the same kind of explanation in his own right.
+ - Commonsense lets us down, because commonsense evolved in a world where nothing moves very fast, and nothing is very small or very large; the mundane world of the familiar.
+ - Bereavement is terrible, of course. And when somebody you love dies, it’s a time for reflection, a time for memory, a time for regret.
+ - As long as we accept the principle that religious faith must be respected simply because it is religious faith, it is hard to withhold respect from the faith of Osama bin Laden and the suicide bombers.
+ - I have often said that I am a passionate Darwinian when it comes to explaining why we exist.
+ - Religious people are atheists about all other gods, atheists only take it one god further.
+ - I am an enthusiastic Darwinian, but I think Darwinism is too big a theory to be confined to the narrow context of the gene.
+ - Natural selection is all about the differential success of rival DNA in getting itself transmitted vertically in the species archives.
+ - I would like to find a way in which people in Saudi Arabia could learn that they can be something other than a Muslim. Some people may not realize this. Of course, there is the problem that you can get in trouble or get stoned.
+ - It’s about time we start criticizing faith.
+ - I find that religion really does motivate people to do horrible things because they have this passionate faith in whatever their religion happens to be, and it teaches them that the other religion is the wrong one.
+ - Have they discovered evolution yet?
+ - People like to trace their ancestry.
+ - I was confirmed at my prep school at the age of 13.
+ - To describe religions as mind viruses is sometimes interpreted as contemptuous or even hostile. It is both. I am often asked why I am so hostile to organized religion.
+ - All religious beliefs seem weird to people not brought up in them.
+ - To an honest judge, the alleged convergence between religion and science is a shallow, empty, hollow, spin-doctored sham.
+ - Evolution normally does not come to a halt, but constantly ‘tracks’ the changing environment.
+ - Human psychology has a near universal tendency to let belief be coloured by desire.
+ - The more statistically improbable a thing is, the less we can believe that it just happened by blind chance. Superficially, the obvious alternative to chance is an intelligent Designer.
+ - We have to find our own purposes in life, which are not derived directly from our scientific history.
+ - It is an essential part of the scientific enterprise to admit ignorance, even to exult in ignorance as a challenge to future conquests.
+ - The Darwinian theory is in principle capable of explaining life. No other theory that has ever been suggested is in principle capable of explaining life.
+ - At least the fundamentalists haven’t tried to dilute their message. Their faith is exposed for what it is for all to see.
+ - Scientists disagree among themselves but they never fight over their disagreements. They argue about evidence or go out and seek new evidence. Much the same is true of philosophers, historians and literary critics.
+ - I’ve never heard of William Craig. A debate with him might look good on his resume, but it wouldn’t look good on mine!
+ - Two religions cannot both be right, because they contradict each other, yet they can both be wrong.
+ - Religions do make claims about the universe – the same kinds of claims that scientists make, except they’re usually false.
+ - If we want to know where the truth lies in particular cases, we have to look.
+ - Myths are fun, as long as you don’t confuse them with the truth.
+ - Religious faith not only lacks evidence, its independence from evidence is its pride and joy, shouted from the rooftops.
+ - Science, as opposed to technology, does violence to common sense.
+ - My decision to be a scientist was a bit of a drift really, more or less by default.
+ - You can’t imagine how gratifying it is to have a reader come up to you and say, ‘You changed my life.’
+ - Faith is powerful enough to immunize people against all appeals to pity, to forgiveness, to decent human feelings. It even immunizes them against fear, if they honestly believe that a martyr’s death will send them straight to heaven.
+ - The fact that somebody does good doesn’t make their beliefs true.
+ - It’s very likely that most mammals have consciousness, and probably birds, too.
+ - Things exist either because they have recently come into existence or because they have qualities that made them unlikely to be destroyed in the past.
+ - I’m sure Obama is an atheist, I’m sure Kennedy was an atheist, but I doubt if Pope Frank is.
+ - I personally would consider it to be an honour to be fossilized.
+ - We are a very, very unusual species.
+ - People who believe the earth was created 6000 years ago, when it’s actually 4.5 billion years old, should also believe the width of North America is 8 yards. That is the scale of the error.
+ - You can never be absolutely certain that anything doesn’t exist. But you can show that it’s unlikely.
+ - There are many religious points of view where the conservation of the world is just as important as it is to scientists.
+ - You can’t statistically explain improbable things like living creatures by saying that they must have been designed because you’re still left to explain the designer, who must be, if anything, an even more statistically improbable and elegant thing.
+ - It is almost as if the human brain were specifically designed to misunderstand Darwinism, and to find it hard to believe.
+ - I once wrote that anybody who believes the world is only 6,000 years old is either ignorant, stupid, insane or wicked.
+ - There are very interesting controversies within evolution; however, whether evolution occurs is not one of them. It definitely does.
+ - It would be intolerant if I advocated the banning of religion, but of course I never have.
+ - I’m pretty sure there is some genetic component towards intelligence.
+ - I don’t think God is an explanation at all. It’s simply redescribing the problem.
+ - I get the feeling more and more that religion is being left behind.
+ - Why would an all-powerful creator decide to plant his carefully crafted species on islands and continents in exactly the appropriate pattern to suggest, irresistibly, that they had evolved and dispersed from the site of their evolution?
+ - Offense is what people take when they can’t take argument.
+ - The history of science has been one long series of violent brainstorms, as successive generations have come to terms with increasing levels of queerness in the universe.
+ - Creationists eagerly seek a gap in present-day knowledge or understanding. If an apparent gap is found, it is assumed that God, by default, must fill it.
+ - Science coverage could be improved by the recognition that science is timeless, and therefore science stories should not need to be pegged to an item in the news.
+ - Public sharing is an important part of science.
+ - There are people in the world who desperately want not to have to believe in Darwinism .
+ - All animals are minor variations on a very particular theme.
+ - If children were taught to question and think through their beliefs, instead of being taught the superior virtue of faith without question, it is a good bet that there would be no suicide bombers.
+ - I think a fundamentalist is somebody who believes something unshakably and isn’t going to change their mind.
+ - I great difficulty having any respect for a religion that has so little confidence in the truth of its beliefs that it feels reduced to using threats in order to propagate those beliefs.
+ - In a way, I think religion is to be admired for asking the right questions. I just think it’s got the wrong answers.
+ - The thing that defines a species is that all members have the same addressing system for their DNA.
+ - Faith is the great cop-out, the great excuse to evade the need to think...
+ - It’s an important point to realize that the genetic programming of our lives is not fully deterministic. It is statistical – it is in any animal merely statistical – not deterministic.
+ - I’m not one of those who wants to purge our society of our Christian history.
+ - Design cannot precede evolution and therefore cannot underlie the universe.
+ - We’ve all been brought up with the view that religion has some kind of special privileged status. You’re not allowed to criticise it.
+ - Are science and religion converging? No. There are modern scientists whose words sound religious but whose beliefs, on close examination, turn out to be identical to those of other scientists who straightforwardly call themselves atheists.
+ - The river of my title is a river of DNA, a river of information, not a river of bones and tissues.
+ - Evolution is not a genetically controlled distortion of one adult form into another; it is a genetically controlled alteration in a developmental program.
+ - The deceitful misquoting of scientists to suit an anti-scientific agenda ranks among the many unchristian habits of fundamentalist authors.
+ - This person should have been aborted years ago.
+ - I don’t know what to think about magic and fairy tales.
+ - Of course in science there are things that are open to doubt and things need to be discussed. But among the things that science does know, evolution is about as certain as anything we know.
+ - THE MAJORITY of children born into the world tend to inherit the beliefs of their parents, and that to me is one of the most regrettable facts of them all.
+ - I think I would abolish schools which systematically inculcate sectarian beliefs.
+ - I have a strong feeling that the subject of evolution is beautiful without the excuse of creationists needing to be bashed.
+ - I didn’t have a very starry school career, I was medium to above average, nothing special.
+ - All qualified physicists, biologists, cosmologists and geologists agree, on the basis of massive, mutually corroborating evidence, that the earth’s age is at least four billion years.
+ - A god who is capable of sending intelligible signals to millions of people simultaneously, and of receiving messages from all of them simultaneously, cannot be, whatever else he might be, simple. Such Bandwidth!
+ - Metaphors are fine if they aid understanding, but sometimes they get in the way.
+ - We accept that people are irrational for good Darwinian reasons. But I don’t think we should be so pessimistic as to think that therefore we’re forever condemned to be irrational.
+
+419 quotes

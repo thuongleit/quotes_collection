@@ -1,0 +1,67 @@
+ - As an outside; don’t worry about failure, because failure will take care of itself. Focus on success.
+ - If someone’s trying to intimidate me, male or female, I don’t respect them enough to be intimidated.
+ - If you’ve got nothing else, passion will get you through.
+ - My version of Superman is essentially of a guy who has spent his whole life alone.
+ - I’m loyal to a fault. I may have learned that from my mother.
+ - Superman isn’t moody or brooding or aggressive...
+ - I never thought of myself as unlucky. When you aim high, it’s tough to get there unless something really fortunate happens.
+ - A lot of the stuff you do as an actor – or I do, because I can’t speak for everyone – is not always consciously thought out. A lot of the time, for me, it’s actually just feeling stuff, and it happens all in the moment and your body reacts.
+ - Not every job is a good job.
+ - When I first met my girlfriend, I was super intimidated. I wanted to impress her. I was thinking, Don’t mess this up, man. You’ve gotta play your cards exactly right.
+ - If you have superpowers and no one can actually cause you any physical harm, then everything has to be very thought-through. You almost have to fake at being human.
+ - People say, “Age is just a number.” A lot of times it’s not just a number. It’s actually a real and true sign of someone’s maturity. But in this case, she’s fantastic.
+ - My mother is such an incredibly strong woman. She raised a family of five boys extremely well. She made us all strong, loving, caring people. We all support each other. I’m really thankful to her.
+ - I’m from a family of six men, so I’m bound to be physical.
+ - Some people thrive under pressure, but pressure can also ruin your performance, it can push you down angles which you don’t want to go.
+ - If I’m talking to someone and they’re feeling a certain way, I will definitely tie into that very quickly. You have to learn to read emotions and feelings when you grow up in a family with four brothers – especially if three of them are a lot bigger than you.
+ - I’m a giant softy, for sure, but I honestly think these days it’s probably considered more masculine to be emotionally connected.
+ - Nature is a definite thing. But nurture is just as powerful. It can really mess with you.
+ - At boarding school there wasn’t much time for much of anything except education.
+ - I read mostly historical fiction – lots of stuff set in ancient Rome and ancient Greece. I also liked sci-fi and fantasy: David Gemmell, Raymond E. Feist. It’s a nice escape from the world. As much as I do love real-life stories, they can often make you hurt in a way I’d rather not hurt.
+ - I still don’t have any crushes on actresses or models. It’s always been one of those things with girlfriends. They say, “Who’s on your list?” What do you call it, the Get Out of Jail Free card?
+ - If there is some sort of trouble at home, kids don’t think that James Bond is going to come save their mum from their dad, or their dad from their mum. They don’t think, “Bond is going to come and save me.” Superman is a different sort of idealized figure.
+ - If there’s one thing that we’re very good at as humans, it’s remembering the bad stuff. For some reason, it’s always the pain that gets you.
+ - When you give your all to something and you’re hitting a wall, it just feels so wrong.
+ - I go to work, I do a job, I play a role, and then I go home. I don’t wear a cape at home. I’m not an invulnerable alien at home.
+ - No matter what era we’re in, we need hope.
+ - I suppose that when I’m building a character, it’s usually related to what their family is like and who their parents are, as well as how I grew up – that nurture side.
+ - I hate to say “found himself” – it sounds so ridiculous.
+ - I wouldn’t necessarily be star-struck. I haven’t been yet. But I don’t know what happens in the future – maybe one day I will be. You never know.
+ - I didn’t see a lot of comic books growing up.
+ - I work out two, two and a half hours a day.
+ - The hardest part of acting is not being guaranteed work. Every job could be your last.
+ - It’s difficult to judge other actors, because as an actor you’re looking at different things than what an audience is looking at.
+ - You treat anyone normally, and they’ll treat you normally back.
+ - My mother and father have also raised five boys so they know there’s only so much that can be controlled.
+ - I know I can’t make everyone happy, but I know I can do the most justice I can possibly do to a character, or any character, if I put my all into it. That’s the choice you have to make.
+ - My mother works in a bank, and my dad is the head of my management team and also works in finance.
+ - It’s our job as actors to make it look like it’s not manufactured. If you have two actors who understand their characters – and therefore what they are trying to portray – then all they need to do is be the characters and there’s a chemistry there.
+ - I like to go full bore into something. If you have a backup plan, then you’ve already admitted defeat.
+ - People have this belief that actors are able to go out there and say, ‘Oh I choose this job,’ but most of the time we’re just taking the job we can get. We don’t just get offered thousands of jobs; we might earn one job a year and that’s the one we’ll take because we’ve got to pay the rent.
+ - Ideally you do want people to treat you professionally in return, but not everyone necessarily does that.
+ - The point of acting is to pretend you’re someone else and sell a story.
+ - You can train and train until you are blue in the face, but you’ve got to diet, you’ve got to have that leanness because if you are not lean, your abs won’t show. Of course, the training has to be put in, but then you’ve to shed all the fat and keep the fat off. And that’s how you get an eight pack.
+ - As much as everyone says that Superman is good, a lot of other people might say that that’s why they find him boring A lot of Batman fans might say that.
+ - I remember going, “I’m really excited about this – I really want it to happen. It would be a wonderful opportunity.” But if something doesn’t happen, then it doesn’t happen. My mother and father sort of raised me to look at things that way.
+ - Regrets are something you can’t really have as an actor, because ultimately you’ll end up destroying yourself there’s a lot of disappointment in this business.
+ - The acting job – it pays very well and you get to live a wonderful lifestyle, but it’s something that I love doing, so I want to work with other people who enjoy it as well...
+ - To play Bond, though, and then for the world to perceive you in a certain way, is very different from playing Superman. Bond is not this ideal figure.
+ - I’d rather feel empathy for a character that’s fictional, so it doesn’t quite tie into personal experience as much.
+ - Everyone doubts themselves. It’s just a matter of admitting it or not.
+ - I didn’t read comics as a kid – though, obviously, I’ve read a lot since.
+ - I don’t think Americans look bad in spandex.
+ - With Superman, there are certain limitations for an actor. You can’t go past certain boundaries because then you cease to be what the character is.
+ - Whether someone else would have played Superman better or worse would be up for a lot of debate on the internet forums, I’m sure.
+ - If people like to see me with my shirt off, it’s enormously flattering. But that doesn’t mean I’m going to take my shirt off all the time.
+ - Finding the physical aspect is important to me because that is often how we read people in everyday life.
+ - I wouldn’t say Bond is an ideal figure, no. The character has been performed in so many different ways that people go, “Oh, that’s an interesting take on Bond.”
+ - I work out two, two and a half hours a day. For ‘Immortals,’ it was body-weight stuff: crunches, pullups, and martial arts-based cardio.
+ - I often find during a day of shooting I will speak in an American accent all day long when I’m doing dialogue. At the end of the day, it often takes an effort when I’m talking to my fiancee to bring my English back just because you’re so used to speaking that way.
+ - If I spend all my time being upset about having lost a job, then the next however many auditions I have are going to be useless.
+ - I know there are a lot of people who like to get very involved in their characters, but I, personally, find it too involved. I just like to do it as a job – and it’s my job to make it look real.
+ - If you’re a good actor, then you channel enough of yourself into the character so that you do get that other thing.
+ - I was overweight when I went to school. In fact, I was overweight when I left, just taller. Fatty Cavill was the nickname. I mean, no one wants to be Fatty Cavill.
+ - I prefer more of the modern stuff – just because I can associate with the imagery more.
+ - There is a story that you have to tell within a certain amount of time, and you can only show so much of the character. So as much as the script is born from the source material, there are certain limitations.
+
+65 quotes

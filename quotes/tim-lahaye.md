@@ -1,0 +1,56 @@
+ - The curse of Adam and Eve that fell upon the earth because of their sin will be lifted when Christ returns.
+ - In short, selfishness is the opposite of love.
+ - Every person in every generation has a choice: to obey God or to do his own thing.
+ - Bible prophecy helps us to better understand the future and realize the urgent need to spread the Gospel. It motivates us to personal purity and gives us hope in a hopeless age.
+ - The tribulation period is seven years, and when the signing of the covenant occurs, people who know the Bible and take it literally will know that, seven years later, Christ is going to come in His power and glory.
+ - If you are worrying about tomorrow, you can’t possibly enjoy today. Think about it: you can’t really give God tomorrow; you can give him only what you have, and today is all you have.
+ - We both know that, my friend, but a man’s perception soon becomes his reality.
+ - There are the saints who were raptured at the beginning of the tribulation period – those are the Christians.
+ - All I know is that the closer I get to God, the deeper I get into the Bible, and the heavier the burden seems on my shoulders.
+ - But when you take the Bible literally, for what it says, you have to come back to the fact that there is only one way of salvation; there’s only one Savior.
+ - To suggest that the merciful, longsuffering, gracious and loving God of the Bible would invent a dreadful doctrine like Calvinism, which would have us believe it is an act of ‘grace’ to select only certain people for heaven and, by exclusion, others for hell, comes perilously close to blasphemy.
+ - Revenge is the most worthless weapon in the world.
+ - The devil, as a master of deceit, does everything he can to keep people from believing in the existence of a hell; but hell is a literal state of existence that will be the plight of all those who reject the Lord Jesus Christ.
+ - Future events cast their shadow before them.
+ - Christianity is the only faith whose founder died for His followers in order to enable them to escape the consequences of their sins.
+ - It’s the lie of evolution that all man are just evolved and that they’re all equal, and that all creatures are equal.
+ - The Evidence Bible is a handy tool for anyone interested in proving the reliability of Scripture, the deity of Jesus Christ, and the incredible offer of our eternal salvation. It makes the defense of Scripture easily understood and should be read by all serious Bible students.
+ - There is something therapeutic about doing for others that lifts a person out of the rut of self-thought.
+ - If Jesus is the Son of God in human flesh, He’s one of a kind of the 13 billions of people who have ever lived.
+ - The removal of religion as history from our schoolbooks betrays the intellectual dishonesty of secular humanist educators and reveals their blind hostility to Christianity.
+ - Inside was where she lived, physically and mentally. She resided in the horn of plenty of her own prodigious mind, fertilized by inexhaustible curiosity.
+ - Most media leaders are liberal and much of their programming reflects anti-Christian sentiment.
+ - All people, even secular people, are seeing books on the market like The End of History.
+ - Rock musicians are consistent in their disdain and irreverent treatment of Jesus Christ.
+ - The man who seeks revenge is like the man who shoots himself in order to hit his enemy with the kick of the gun’s recoil.
+ - You have to take Bible prophecy literally, just like everything else in the Bible.
+ - The book of Revelation says that we no longer need the sun or the moon, for Christ is the light of the world.
+ - We’re in a religious war and we need to aggressively oppose secular humanism; these people are as religiously motivated as we are and they are filled with the devil.
+ - But then one day the Lord put us together through our agent and it’s been a wonderful match.
+ - Liberal humanists now seem to dominate the fields of art, journalism, and communication, which are powerful and uniquely able to spread anti-Christian thought.
+ - I’m currently working on a Mind Siege for youth.
+ - The unsaved people will be cast into utter darkness forever.
+ - But the Jews will also be believers, so you can say that all the saints, both gentiles and Jews, will go into the millennial kingdom and populate the earth.
+ - When our atheistically dominated Supreme Court removed the Ten Commandments from our halls, not a whimper was heard from the 95 million Christians in this country, who still don’t realize that their religious freedoms are being systematically removed without a fight.
+ - Jerry and I hoped that it would be a popular bestseller.
+ - Since the writing of our Constitution, our religious liberties have been systematically threatened and whittled away by Supreme Court justices who interpret the First Amendment as a prohibition against religious activity on public property.
+ - I came to the conclusion that I am not a fiction writer.
+ - The mainline media attacks all conservatives, especially Christians, and distorts their policies and beliefs so that the local population is afraid to vote for them.
+ - Fear is an inhibitor that has kept more people from fulfilling their destiny than any other one emotion.
+ - And part of my vision is to do dynamic videos for kids.
+ - The farther we go from God, the less we know of peace.
+ - People recognize something’s going to happen, and they’d better get ready.
+ - After I’d preached a message on Sunday night, I’d print it up.
+ - Sure, he was lonely. Sure, they had a lot in common. Sure, he was attracted to her, and it was clear she felt the same about him.
+ - Why not admit that the words separation and church do not even appear in the US Constitution, he added. Instead, they do appear in Article 52 of the Constitution of the Soviet Union.
+ - Yeah, I have been because, generally speaking, to we Biblical literalists, the media is very hostile.
+ - Most of all, I believe God has chosen to bless this series. In doing so, he’s giving the country and maybe the world, one last, big wake-up call before the events transpire.
+ - The elite attack religious people and clergy with a vengeance.
+ - Yes, I think that when the Bible refers to a horse or a horseman, that’s exactly what it means.
+ - I always tell my critics that if they don’t like this theory for helping people – come up with a better one and I’ll use it.
+ - New fiction writers are a special breed in my estimation, and I never dreamed that so many people would be interested, but I remember being led by God.
+ - When you allegorize, you’re gonna get everybody saved somehow.
+ - About 40 years ago I had an experience where I wrote a tract.
+ - When I gave my life to the Lord, I thought I’d be a preacher.
+
+54 quotes

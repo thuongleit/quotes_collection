@@ -1,0 +1,56 @@
+ - Of all the hazards, fear is the worst.
+ - Practice puts brains in your muscles.
+ - You have more potential than you think.
+ - Grip the club as if you were holding a baby bird.
+ - Forget your opponents; always play against par.
+ - Make the basic shot-making decision early, clearly and firmly, and then ritualize all the necessary acts of preparation.
+ - Those who go along get along.
+ - Practice your swing until it becomes a habit of mind and muscle.
+ - To be consistently effective, you must put a certain distance between yourself and what happens to you on the golf course. This is not indifference, it’s detachment.
+ - There is an old saying: if a man comes home with sand in his cuffs and cockleburs in his pants, don’t ask him what he shot.
+ - Of the mental hazards, being scared is the worst. When you get scared, you get tense.
+ - Correct one fault at a time. Concentrate on the one fault you want to overcome.
+ - If a lot of people gripped a knife and fork the way they do a golf club, they’d starve to death.
+ - The mark of a great player is in his ability to come back. The great champions have all come back from defeat.
+ - When I swing at a golf ball right, my mind is blank and my body is loose as a goose.
+ - Keep close count of your nickels and dimes, stay away from whiskey, and never concede a putt.
+ - You’ve just one problem. You stand too close to the ball after you’ve hit it.
+ - Golf tip: Lay off for three weeks and then quit for good.
+ - I’d say that golf is about 75% mental. If your state of mind gets out of kilter, you’re worse off than a tomcat floating on a log.
+ - I give the ball some sweet talk. I tell it that this isn’t going to hurt a bit. I’m a friend and all I’m going to do is give it a nice little ride.
+ - The three things I fear most in golf are lightning, Ben Hogan and a downhill putt.
+ - Don’t just play your way around the course. Think your way around way around the course.
+ - In golf, as in life, you get out of it what you put into it.
+ - Thinking instead of acting is the number one golf disease.
+ - Good golfing temperament falls between taking it with a grin or shrug and throwing a fit.
+ - A bad putter is like a bad apple in a barrel. First, it turns your chipping game sour. Then it begins to eat into your irons and finally it just cleans the head off your driver.
+ - There are no short hitters on the tour anymore – just long and unbelievably long.
+ - The only place that’s holier than St. Andrews is Westminster Abbey.
+ - To quit between tee and green is more habit-forming than drinking a highball before breakfast.
+ - I’ve been on some fairways that are as good as the greens we putted on back then. We had crab grass. I remember one green where I putted through ants.
+ - The only reason I ever played in the first place was so I could afford to hunt and fish.
+ - These greens are so fast I have to hold my putter over the ball and hit it with the shadow.
+ - I hope I’ll never get too old to want to take part in this event, and I don’t think I will ever age that much.
+ - Golf got complicated when I had to wear shoes and begin thinking about what I was doing.
+ - I’ve gotten rid of the yips four times but they hang in there. You know those two-foot downhill putts with a break? I’d rather see a rattlesnake.
+ - Playing golf is like eating. It’s something which has to come naturally.
+ - When I ask you what club to use, look the other way and don’t answer.
+ - But you don’t have to go up in the stands and play your foul balls. I do.
+ - Nobody asked how you looked, just what you shot.
+ - Golf is played with the arms.
+ - The fairways were so narrow you had to walk down them single file.
+ - Golf course architects make me sick. They can’t play themselves, so they rig the courses so nobody else can play either.
+ - Over the years I’ve studied the habits of golfers. I know what to look for. Watch their eyes. Fear shows up when there is an enlargement of the pupils. Big pupils lead to big scores.
+ - What abandoned course is that?
+ - You can’t go into a shop and buy a good game of golf.
+ - Just have a Coke or something and watch the boys go past.
+ - I looked like a monkey trying to wrestle a football.
+ - That little white ball is always staring back at you, daring you to make a mistake.
+ - Most people who play golf have one big trouble: they think too much. To get any real mileage out of this game you’ve got to sit on your imagination.
+ - What did I want with prestige? The British Open paid the winner $600 in American money. A man would have to be two hundred years old at that rate to retire from golf.
+ - Until you play it, St. Andrews looks like the sort of real estate you couldn’t give away.
+ - I was a better player at 50 than I was at 30.
+ - I shot a wild elephant in Africa thirty yards from me, and it didn’t hit the ground until it was right at my feet. I wasn’t a bit scared. But a four foot putt scares me to death.
+ - If I had cleared the trees and drove the green, it would’ve been a great shot.
+
+54 quotes

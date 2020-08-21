@@ -1,0 +1,35 @@
+ - We cannot survive spiritually with one foot in the Church and the other in the world.
+ - All progression in spiritual things is dependent upon the attainment of humility.
+ - The family unit is the most important organization in time or in eternity.
+ - When the real history of the world is written, it will show god’s dealings with men, and the place the gospel has played in the rise and fall of nations.
+ - Faith is a gift of God bestowed as a reward for personal righteousness.
+ - Prayer is a great tower of strength, a pillar of unending righteousness, a mighty force that moves mountains and saves souls. Through it the sick are healed, the dead are raised, and the Holy Spirit is poured out without measure upon the faithful.
+ - The most important single thing that any Latter-day Saint ever does in this world is to marry the right person, in the right place, by the right authority.
+ - Existence came from God; death came by Adam; and immortality and eternal life come through Christ.
+ - It is my province to teach to the church what the doctrine is. It is your province to echo what I say or to remain silent.
+ - No one can argue with a testimony, it is not a debatable issue. It is there to be accepted or rejected.
+ - There are those who say that revealed religion and organic evolution can be harmonized. This is both false and devilish.
+ - Woman’s primary place is in the home, where she is to rear children and abide by the righteous counsel of her husband.
+ - God stands revealed or remains forever unknown.
+ - We expect to see the day when temples will dot the earth, each one a house of the Lord.
+ - Baptism is the gate through which all must enter to accomplish the Lord’s desire to bring to pass the immortality and eternal life of man.
+ - But I shall not know any better then than I know now that he is God’s Almighty Son, that he is our Savior and Redeemer, and that salvation comes in and through his atoning blood and in no other way.
+ - The Holy Ghost, a personage of spirit, is their minister, who has been given the power and assigned the functions of bearing record of the Father and the Son, of revealing the truths of salvation to men on earth, and in due course, of revealing to them, all truth.
+ - Salvation is a family affair.
+ - Adam and Eve and all forms of life, both animal and plant, were created in immortality; that is, when first placed on this earth, all forms of life were in a state of immortality. There was no death in the world; death entered after the fall.
+ - To worship the Lord is to stand valiantly in the cause of truth and righteousness, to let our influence for good be felt in civic, cultural, educational, and governmental fields, and to support those laws and principles which further the Lord’s interests on earth.
+ - Music is given of God to further his purposes. Sweet melodies mellow the souls of men and help prepare them for the gospel. After men receive the truth, songs of praise to Deity help to sanctify and cleanse their souls.
+ - There is no such thing as neutrality where the gospel is concerned.
+ - All our losses and sufferings will be made up to us in the resurrection.
+ - I do not know all of the providences of the Lord, but I do know that he permits false doctrine to be taught in and out of the Church and that such teaching is part of the sifting process of mortality.
+ - We make our own choices, and then we present the matter to the Lord and get his approving, ratifying seal.
+ - There is nothing as important as having the companionship of the Holy Ghost.
+ - As long as man’s beliefs, or any part of them, are based on error, he is not completely free, for the chains of error bind his mind.
+ - Christ was Begotten by an immortal Father in the same way that mortal men are begotten by mortal fathers.
+ - Every mortal birth is a heaven-given reminder to prepare for the second birth.
+ - The Atonement of Christ is the most transcendental event that has ever occurred or that will ever occur, since the sunrise of creation to all ages of eternity.
+ - Religious music is by far the greatest music of the ages. What is there to compare-in rhythmic beauty, poetic sublimity, and inspired teachings-with the Psalms of David?
+ - Believers in the doctrines of modern Christendom will reap damnation to their souls.
+ - Plural marriage is not essential to salvation or exaltation.
+
+33 quotes

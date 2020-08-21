@@ -1,0 +1,246 @@
+ - I have learned to seek my happiness by limiting my desires, rather than in attempting to satisfy them.
+ - Bad men need nothing more to compass their ends, than that good men should look on and do nothing.
+ - Over one’s mind and over one’s body the individual is sovereign.
+ - One person with a belief is equal to ninety-nine who have only interests.
+ - It is better to be Socrates dissatisfied than a pig satisfied.
+ - When one’s ideas are not challenged, one’s ability to defend them weakens.
+ - It is better to be a human being dissatisfied than a pig satisfied; better to be Socrates dissatisfied than a fool satisfied. And if the fool, or the pig, are of a different opinion, it is because they only know their own side of the question.
+ - Landlords grow rich in their sleep without working, risking or economising.
+ - Genius can only breathe freely in an atmosphere of freedom.
+ - Truth emerges from the clash of adverse ideas.
+ - Liberty lies in the rights of that person whose views you find most odious.
+ - A person may cause evil to others not only by his actions but by his inaction, and in either case he is justly accountable to them for the injury.
+ - The liberty of the individual must be thus far limited; he must not make himself a nuisance to other people.
+ - A profound conviction raises a man above the feeling of ridicule.
+ - Language is the light of the mind.
+ - Every great movement must experience three stages: ridicule, discussion, adoption.
+ - A cultivated mind is one to which the fountains of knowledge have been opened, and which has been taught, in any tolerable degree, to exercise its faculties.
+ - War is an ugly thing, but not the ugliest of things. The decayed and degraded state of moral and patriotic feeling which thinks that nothing is worth war is much worse.
+ - Those only are happy who have their minds fixed on some object other than their own happiness; on the happiness of others, on the improvement of mankind, even on some art or pursuit, followed not as a means, but as itself an ideal end. Aiming thus at something else, they find happiness by the way.
+ - The only part of the conduct of any one, for which he is amenable to society, is that which concerns others. In the part which merely concerns himself, his independence is, of right, absolute. Over himself, over his own body and mind, the individual is sovereign.
+ - Ask yourself whether you are happy, and you cease to be so.
+ - The study of science teaches young men to think, while study of the classics teaches them to express thought.
+ - Men do not desire to be rich, but to be richer than other men.
+ - Whatever helps to shape the human being – to make the individual what he is, or hinder him from being what he is not – is part of his education.
+ - To tax the larger incomes at a higher percentage than the smaller, is to lay a tax on industry and economy; to impose a penalty on people for having worked harder and saved more than their neighbors.
+ - As long as justice and injustice have not terminated their ever renewing fight for ascendancy in the affairs of mankind, human beings must be willing, when need is, to do battle for the one against the other.
+ - Liberty consists in doing what one desires.
+ - I have observed that not the man who hopes when others despair, but the man who despairs when others hope, is admired by a large class of persons as a sage.
+ - A state which dwarfs its men, in order that they may be more docile instruments in its hands even for beneficial purposes – will find that with small men no great thing can really be accomplished.
+ - The concessions of the privileged to the unprivileged are seldom brought about by any better motive than the power of the unprivileged to extort them.
+ - The cause, then, philosophically speaking, is the sum total of the conditions, positive and negative, taken together; the whole of the contingencies of every description, which being realized, the consequent invariably follows.
+ - The price paid for intellectual pacification is the sacrifice of the entire moral courage of the human mind.
+ - All silencing of discussion is an assumption of infallibility.
+ - It is part of the irony of life that the strongest feelings of devoted gratitude of which human nature seems to be susceptible, are called forth in human beings towards those who, having the power entirely to crush their earthly existence, voluntarily refrain from using that power.
+ - Strange it is that men should admit the validity of the arguments for free speech but object to their being “pushed to an extreme”, not seeing that unless the reasons are good for an extreme case, they are not good for any case.
+ - Life has a certain flavor for those who have fought and risked all that the sheltered and protected can never experience.
+ - The amount of eccentricity in a society has generally been proportional to the amount of genius, mental vigor, and moral courage it contained. That so few now dare to be eccentric marks the chief danger of the time.
+ - There is always hope when people are forced to listen to both sides.
+ - A party of order or stability, and a party of progress or reform, are both necessary elements of a healthy state of political life.
+ - If all mankind minus one were of one opinion, mankind would be no more justified in silencing that one person than he, if he had the power, would be justified in silencing mankind.
+ - Every man who says frankly and fully what he thinks is so far doing a public service. We should be grateful to him for attacking most unsparingly our most cherished opinions.
+ - The most important thing women have to do is to stir up the zeal of women themselves.
+ - The habit of analysis has a tendency to wear away the feelings.
+ - Political Economy as a branch of science is extremely modern; but the subject with which its enquiries are conversant has in all ages necessarily constituted one of the chief practical interests of mankind.
+ - Everything must be free to be written and published without restraint.
+ - Although it is not true that all conservatives are stupid people, it is true that most stupid people are conservative.
+ - Marriage is the only actual bondage known to our law. There remain no legal slaves, except the mistress of every house.
+ - Ask yourself whether you are happy and you cease to be so. The only chance is to treat not happiness, but some end external to it, as the purpose of life.
+ - Both teachers and learners go to sleep at their post as soon as there is no enemy in the field.
+ - So long as an opinion is strongly rooted in the feelings, it gains rather than loses in stability by having a preponderating weight of argument against it.
+ - It is useful while mankind is imperfect that there should be different opinions, so that there should be different experiments of living, that free scope should be given to varieties of character, short of injury to others.
+ - Lord, enlighten thou our enemies. Sharpen their wits, give acuteness to their perceptions, and consecutiveness and clearness to their reasoning powers: we are in danger from their folly, not from their wisdom; their weakness is what fills us with apprehension, not their strength.
+ - The worth of the state, in the long run, is the worth of the individuals composing it.
+ - The principle itself of dogmatic religion, dogmatic morality, dogmatic philosophy, is what requires to be booted out; not any particular manifestation of that principle.
+ - Landlords grow rich in their sleep without working, risking or economizing. The increase in the value of land, arising as it does from the efforts of an entire community, should belong to the community and not to the individual who might hold title.
+ - My father taught me that the question Who made me? cannot be answered, since it immediately suggests the further question, Who made God?
+ - The love of power and the love of liberty are in eternal antagonism.
+ - Mankind are greater gainers by suffering each other to live as seems good to themselves, than by compelling each to live as seems good to the rest.
+ - There are many truths of which the full meaning cannot be realized until personal experience has brought it home.
+ - Next to selfishness the principal cause which makes life unsatisfactory is want of mental cultivation.
+ - To discover to the world something which deeply concerns it, and of which it was previously ignorant; to prove to it that it had been mistaken on some vital point of temporal or spiritual interest, is as important a service as a human being can render to his fellow creatures.
+ - The beliefs which we have most warrant for, have no safeguard to rest on, but a standing invitation to the whole world to prove them unfounded.
+ - No one can be a great thinker who does not recognize that as a thinker it is his first duty to follow his intellect to whatever conclusions it may lead.
+ - The reasons for legal intervention in favour of children apply not less strongly to the case of those unfortunate slaves and victims of the most brutal part of mankind – the lower animals.
+ - The perpetual obstacle to human advancement is custom.
+ - The individual is not accountable to society for his actions in so far as these concern the interests of no person but himself.
+ - A general State education is a mere contrivance for moulding people to be exactly like one another, and as the mould in which it casts them is that which pleases the dominant power in the government.
+ - In its narrowest acceptation, order means obedience. A government is said to preserve order if it succeeds in getting itself obeyed.
+ - Actions are right in proportion as they tend to promote happiness; wrong as they tend to produce the reverse of happiness. By happiness is intended pleasure and the absence of pain.
+ - What is contrary to women’s nature to do, they never will be made to do by simply giving their nature free play.
+ - It is a law, that every event depends on the same law.
+ - There is an imaginary circle drawn around every human being, over which no government should be able to step.
+ - Laws and systems of polity always begin by recognizing the relations they find already existing between individuals.
+ - The average condition of the people improving or deteriorating, depends upon whether population is advancing faster than improvement, or improvement than population.
+ - Any participation, even in the smallest public function, is useful.
+ - There is a very real evil consequent on ascribing supernatural origin to the received maxilms of morality. That origin consecrates the whole of them and protects them from being discussed or criticized.
+ - Any society which is not improving is deteriorating, and the more so the closer and more familiar it is. Even a really superior man almost always begins to deteriorate when he is habitually king of his company.
+ - Everyone who receives the protection of society owes a return for the benefit.
+ - Strong impulses are but another name for energy. Energy may be turned to bad uses; but more good may always be made of an energetic nature, than of an indolent and impassive one.
+ - I did not mean that Conservatives are generally stupid; I meant, that stupid persons are generally Conservative. I believe that to be so obvious and undeniable a fact that I hardly think any hon. Gentleman will question it.
+ - Stupidity is much the same all the world over. A stupid person’s notions and feelings may confidently be inferred from those which prevail in the circle by which the person is surrounded. Not so with those whose opinions and feelings are an emanation from their own nature and faculties.
+ - All the good of which humanity is capable is comprised in obedience.
+ - Every one is degraded, whether aware of it or not, when other people, without consulting him, take upon themselves unlimited power to regulate his destiny.
+ - It is given to no human being to stereotype a set of truths, and walk safely by their guidance with his mind’s eye closed.
+ - Co-operation, like other difficult things, can be learned only by practice: and to be capable of it in great things, a people must be gradually trained to it in small. Now the whole course of advancing civilization is a series of such training.
+ - Human nature is not a machine to be built after a model, and set to do exactly the work prescribed for it, but a tree, which requires to grow and develop itself on all sides, according to the tendency of the inward forces which make it a living thing.
+ - The real advantage which truth has, consists in this, that when an opinion is true, it may be extinguished once, twice, or many times, but in the course of ages there will generally be found persons to rediscover it.
+ - Art is the employent of the powers of nature for an end.
+ - The sole evidence it is possible to produce that anything is desirable, is that people do actually desire it.
+ - Photography is a brief complicity between foresight and luck.
+ - The ne plus ultra of wickedness is embodied in what is commonly presented to mankind as the creed of Christianity.
+ - In this age, the mere example of nonconformity, the mere refusal to bend the knee to custom, is itself a service.
+ - In proportion to the development of his individuality, each person becomes more valuable to others. There is a greater fullness of life about his own existence, and when there is more life in the units there is more in the mass which is composed of them.
+ - The world would be astonished if it knew how great a proportion of its brightest ornaments, of those distinguished even in popular estimation for wisdom and virtue, are complete sceptics in religion.
+ - The duty of man is the same in respect to his own nature as in respect to the nature of all other things, namely not to follow it but to amend it.
+ - In all intellectual debates, both sides tend to be correct in what they affirm, and wrong in what they deny.
+ - Customs are made for customary circumstances, and customary characters.
+ - All good things which exist are the fruits of originality.
+ - To mistake money for wealth, is the same sort of error as to mistake the highway which may be the easiest way of getting to your house or lands, for the house and lands themselves.
+ - No slave is a slave to the same lengths, and in so full a sense of the word, as a wife is.
+ - It is a bitter thought, how different a thing the Christianity of the world might have been, if the Christian faith had been adopted as the religion of the empire under the auspices of Marcus Aurelius instead of those of Constantine.
+ - The idea is essentially repulsive, of a society held together only by the relations and feelings arising out of pecuniary interest.
+ - In this age, the mere example of non-conformity, the mere refusal to bend the knee to custom, is itself a service. Precisely because the tyranny of opinion is such as to make eccentricity a reproach, it is desirable, in order to break through that tyranny, that people should be eccentric.
+ - The dictum that truth always triumphs over persecution is one of the pleasant falsehoods which men repeat after one another till they pass into commonplaces, but which all experience refutes.
+ - A population may be too crowded, though all be amply supplied with food and raiment. It is not good for a man to be kept perforce at all times in the presence of his species...
+ - I know tolerably well what Ireland was, but have a very imperfect idea of what Ireland is.
+ - Of two pleasures, if there be one which all or almost all who have experience of both give a decided preference, irrespective of any feeling of moral obligation to prefer it, that is the more desirable pleasure.
+ - No great improvements in the lot of mankind are possible until a great change takes place in the fundamental constitution of their modes of thought.
+ - I will call no being good who is not what I mean when I apply that epithet to my fellow creatures; and if such a creature can sentence me to hell for not so calling him, to hell I will go .
+ - The object of universities is not to make skillful lawyers, physicians or engineers. It is to make capable and cultivated human beings.
+ - However unwillingly a person who has a strong opinion may admit the possibility that his opinion may be false, he ought to be moved by the consideration that, however true it may be, if it is not fully, frequently, and fearlessly discussed, it will be held as a dead dogma, not a living truth.
+ - Originality is the one thing which unoriginal minds cannot feel the use of.
+ - It is historically true that a large proportion of infidels in all ages have been persons of distinguished integrity and honor.
+ - It would be a great misunderstanding of this doctrine to suppose that it is one of selfish indifference about the well-being of others’.
+ - I am not aware that any community has a right to force another to be civilized.
+ - Persons of genius are, ex vi termini, more individual than any other people – less capable, consequently, of fitting themselves, without hurtful compression, into any of the small number of moulds which society provides in order to save its members the trouble of forming their character.
+ - It is questionable if all the mechanical inventions yet made have lightened the day’s toil of any human being.
+ - The general tendency of things throughout the world is to render mediocrity the ascendant power among mankind.
+ - To understand one woman is not necessarily to understand any other woman.
+ - The principles which men profess on any controverted subject are usually a very incomplete exponent of the opinions they really hold.
+ - I well knew that to propose something which would be called extreme, was the true way not to impede but to facilitate a more moderate experiment.
+ - We have a right, also, in various ways, to act upon our unfavorable opinion of anyone, not to the oppression of his individuality, but in the exercise of ours.
+ - In all the more advanced communities the great majority of things are worse done by the intervention of government than the individuals most interested in the matter would do them, or cause them to be done, if left to themselves.
+ - The moral influence of woman over man is almost always salutary.
+ - There is a limit to the legitimate interference of collective opinion with individual independence: and to find that limit, and maintain it against encroachment, is as indispensable to a good condition of human affairs, as protection against political despotism.
+ - It is only in the backward countries of the world that increased production is still an important object.
+ - Persons of genius, it is true, are, and are always likely to be, a small minority; but in order to have them, it is necessary to preserve the soil in which they grow.
+ - The idea that truth always triumphs over persecution is one of those pleasant falsehoods, which most experience refutes. History is teeming with instances of truth put down by persecution. If not put down forever, it may be set back for centuries.
+ - The human faculties of perception, judgment, discriminative feeling, mental activity, and even moral preference, are exercised only in making a choice. He who does anything because it is the custom, makes no choice.
+ - There is no ‘one-size-fits-all’ way to build an audience.
+ - The disease which inflicts bureaucracy and what they usually die from is routine.
+ - The time appears to me to have come when it is the duty of all to make their dissent from religion known.
+ - Stupidity is much the same all the world over.
+ - As for charity, it is a matter in which the immediate effect on the persons directly concerned, and the ultimate consequence to the general good, are apt to be at complete war with one another.
+ - Whatever crushes individuality is despotism, by whatever name it may be called and whether it professes to be enforcing the will of God or the injunctions of men.
+ - A great statesman is he who knows when to depart from traditions, as well as when to adhere to them.
+ - Was there ever any domination that did not appear natural to those who possessed it?
+ - In the long-run, the best proof of a good character is good actions.
+ - The best state for human nature is that in which, while no one is poor, no one desires to be richer, nor has any reason to fear from thrust back, by the efforts of others to push themselves forward.
+ - The despotism of custom is everywhere the standing hindrance to human advancement.
+ - A man who has nothing for which he is willing to fight, nothing which is more important than his own personal safety, is a miserable creature and has no chance of being free unless made and kept so by the exertions of better men than himself.
+ - Seeming contentment is real discontent, combined with indolence or self-indulgence, which, while taking no legitimate means of raising itself, delights in bringing others down to its own level.
+ - A person’s taste is as much his own peculiar concern as his opinion or his purse.
+ - What citizens of a free country would listen to any offers of good and skillful administration in return for the abdication of freedom?
+ - Trade is a social act. Whoever undertakes to sell any description of any goods to the public, does what affects the interest of other persons, and of society in general; and thus his conduct, in principal, comes within the jurisdiction of society.
+ - The most cogent reason for restricting the interference of government is the great evil of adding unnecessarily to its power.
+ - Among a people without fellow-feeling, especially if they read and speak different languages, the united public opinion, necessary to the working of the representative government, cannot exist.
+ - Solitude in the presence of natural beauty and grandeur is the cradle of thought and aspirations which are not only good for the individual, but which society can ill do without.
+ - A man of clear ideas errs grievously if he imagines that whatever is seen confusedly does not exist; it belongs to him, when he meets with such a thing, to dispel the midst, and fix the outlines of the vague form which is looming through it.
+ - The philosophy of reasoning, to be complete, ought to comprise the theory of bad as well as of good reasoning.
+ - That so few now dare to be eccentric, marks the chief danger of the time.
+ - If the universe had a beginning, its beginning, by the very condition of the cases, was supernatural; the laws of Nature cannot account for their own origin.
+ - A stationary condition of capital and population implies no stationary state of human improvement. There could be as much scope as ever for all kinds of mental culture, and moral and social progress.
+ - To do as one would be done by, and to love one’s neighbour as oneself, constitute the ideal perfection of utilitarian morality.
+ - Despotism is a legitimate mode of government in dealing with barbarians, provided the end be their improvement.
+ - But these few are the salt of the earth; without them, human life would become a stagnant pool. Not only is it they who introduce good things which did not before exist, it is they who keep the life in those which already existed.
+ - Men and governments must act to the best of their ability. There is no such thing as absolute certainty but there is assurance sufficient for the purposes of human life.
+ - The test of real and vigorous thinking, the thinking which ascertains truths instead of dreaming dreams, is successful application to practice.
+ - Among the facts of the universe to be accounted for, it may be said, is Mind; and it is self evident that nothing can have produced Mind but Mind.
+ - It is not because men’s desires are strong that they act ill; it is because their consciences are weak.
+ - The fatal tendency of mankind to leave off thinking about a thing when it is no longer doubtful is the cause of half their errors.
+ - A democratic constitution, not supported by democratic institutions in detail, but confined to the central government, not only is not political freedom, but often creates a spirit precisely the reverse, carrying down to the lowest grade in society the desire and ambition of political domination.
+ - What distinguishes the majority of men from the few is their inability to act according to their beliefs.
+ - There is one plain rule of life. Try thyself unweariedly till thou findest the highest thing thou art capable of doing, faculties and outward circumstances being both duly considered, and then do it.
+ - The great majority of those who speak of perfectibility as a dream, do so because they feel that it is one which would afford them no pleasure if it were realized.
+ - And it is not difficult to show, by abundant instances, that to extend the bounds of what may be called moral police, until it encroaches on the most unquestionably legitimate liberty of the individual, is one of the most universal of all human propensities.
+ - All acts suppose certain dispositions, and habits of mind and heart, which may be in themselves states of enjoyment or of wretchedness, and which must be fruitful in other consequences besides those particular acts.
+ - Miracles have no claim whatever to the character of historical facts and are wholly invalid as evidence of any revelation.
+ - The guesses which serve to give mental unity and wholeness to a chaos of scattered particulars, are accidents which rarely occur to any minds but those abounding in knowledge and disciplined in intellectual combinations.
+ - The only power deserving the name is that of masses, and of governments while they make themselves the organ of the tendencies and instincts of masses.
+ - Men do not want solely the obedience of women, they want their sentiments.
+ - As often as a study is cultivated by narrow minds, they will draw from it narrow conclusions.
+ - We can never be sure that the opinion we are endeavoring to stifle is a false opinion; and if we were sure, stifling it would be an evil still.
+ - The validity of all the Inductive Methods depends on the assumption that every event, or the beginning of every phenomenon, must have some cause; some antecedent, upon the existence of which it is invariably and unconditionally consequent.
+ - It is as certain that many opinions, now general, will be rejected by future ages, as it is that many, once general, are rejected by the present.
+ - Popular opinions, on subjects not palpable to sense, are often true, but seldom or never the whole truth.
+ - Instead of the function of governing, for which it is radically unfit, the proper office of a representative assembly is to watch and control the government.
+ - All attempts by the State to bias the conclusions of its citizens on disputed subjects, are evil.
+ - It is conceivable that religion may be morally useful without being intellectually sustainable.
+ - To say that secular means irreligious implies that all the arts and sciences are irreligious, and is very like saying that all professions except that of the law are illegal.
+ - The struggle between Liberty and Authority is the most conspicuous feature in the portions of history with which we are earliest familiar; particularly in that of Greece, Rome, and England.
+ - Money is a machine for doing quickly and commodiously what would be done, though less quickly and commodiously, without it.
+ - Since the general or prevailing opinion on any subject is rarely or never the whole truth, it is only by the collision of adverse opinion that the remainder of the truth has any chance of being supplied.
+ - The only purpose for which power can be rightfully exercised over any member of a civilized community, against his will, is to prevent harm to others. His own good, either physical or moral, is not sufficient warrant.
+ - Trade is a social act.
+ - A person should be free to do as he likes in his own concerns; but he ought not to be free to do as he likes in acting for another, under the pretext that the affairs of the other are his own affairs.
+ - If religious belief be indeed so necessary to mankind, as we are continually assured that it is, there is great reason to lament, that the intellectual grounds of it should require to be backed by moral bribery or subornation of the understanding.
+ - I had learnt from experience that many false opinions may be exchanged for true ones, without in the least altering the habits of mind of which false opinions are made.
+ - The strongest of all arguments against the interference of the public with purely personal conduct, is that when it does interfere, the odds are that it interferes wrongly, and in the wrong place.
+ - A being who can create a race of men devoid of real freedom and inevitably foredoomed to be sinners, and then punish them for being what he has made them, may be omnipotent and various other things, but he is not what the English language has always intended by the adjective holy.
+ - The pupil who is never required to do what he cannot do, never does what he can do.
+ - They who know how to employ opportunities will often find that they can create them; and what we can achieve depends less on the amount of time we possess than on the use we make of our time.
+ - The feeling of a direct responsibility of the individual to God is almost wholly a creation of Protestantism.
+ - Even if the received opinion be not only true, but the whole truth; unless it is suffered to be, and actually is, vigorously and earnestly contested, it will, by most of those who receive it, be held in the manner of a prejudice, with little comprehension or feeling of its rational grounds.
+ - Since the state must necessarily provide subsistence for the criminal poor while undergoing punishment, not to do the same for the poor who have not offended is to give a premium on crime.
+ - With equality of experience and of general faculties, a woman usually sees much more than a man of what is immediately before her.
+ - The spirit of improvement is not always a spirit of liberty, for it may aim at forcing improvements on an unwilling people.
+ - On religion in particular, the time appears to me to have come, when it is a duty of all who, being qualified in point of knowledge, have, on mature consideration, satisfied themselves that the current opinions are not only false, but hurtful, to make their dissent known.
+ - Each undervalues that part of the materials of thought with which he is not familiar.
+ - Among the works of man, which human life is rightly employed in perfecting, the first in importance surely is man himself.
+ - It would not be easy even for an unbeliever, to find a better translation of the rule of virtue from the abstract into the concrete, than to endeavor so to live that Christ would approve our life.
+ - The successful conduct of an industrial enterprise requires two quite distinct qualifications: fidelity and zeal.
+ - Men might as well be imprisoned, as excluded from the means of earning their bread.
+ - All political revolutions, not affected by foreign conquest, originate in moral revolutions. The subversion of established institutions is merely one consequence of the previous subversion of established opinions.
+ - So much barbarism, however, still remains in the transactions of most civilized nations, that almost all independent countries choose to assert their nationality by having, to their inconvenience and that of their neighbors, a peculiar currency of their own.
+ - All errors which a man is likely to commit against advice are far outweighed by the evil of allowing others to constrain him for his good.
+ - Almost all rich veins of original and striking speculation have been opened by systematic half-thinkers.
+ - All that makes existence valuable to any one depends on the enforcement of restraints upon the actions of other people.
+ - In the human mind, one-sidedness has always been the rule, and many-sidedness the exception. Hence, even in revolutions of opinion, one part of the truth usually sets while another rises.
+ - The true virtue of human beings is fitness to live together as equals; claiming nothing for themselves but what they as freely concede to everyone else; regarding command of any kind as an exceptional neccessity, and in all cases a temporary one.
+ - The despotism of custom is on the wane. We are not content to know that things are; we ask whether they ought to be.
+ - Is there any moral enormity which might not be justified by imitation of such a Deity?
+ - There is always need of persons not only to discover new truths, and point out when what were once truths are true no longer, but also to commence new practices, and set the example of more enlightened conduct, and better taste and sense in human life.
+ - He who does anything because it is the custom, makes no choice.
+ - There is a tolerably general agreement about what a university is not. It is not a place of professional education.
+ - He who lets the world choose his plan of life for him has need of no other faculty than that of ape-like imitation.
+ - Every established fact which is too bad to admit of any other defence is always presented to us as an injunction of religion.
+ - There are no means of finding what either one person or many can do, but by trying – and no means by which anyone else can discover for them what it is for their happiness to do or leave undone.
+ - It might be plausibly maintained, that in almost every one of the leading controversies, past or present, in social philosophy, both sides were in the right in what they affirmed, though wrong in what they denied.
+ - In this age, the man who dares to think for himself and to act independently does a service to his race.
+ - The only freedom which deserves the name is that of pursuing our own good, in our own way, so long as we do not attempt to deprive others of theirs, or impede their efforts to obtain it.
+ - When the land is cultivated entirely by the spade and no horses are kept, a cow is kept for every three acres of land.
+ - Hardly any original thoughts on mental or social subjects ever make their way among mankind or assume their proper importance in the minds even of their inventors, until aptly selected words or phrases have as it were nailed them down and held them fast.
+ - Judgement is given to men that they may use it. Because it may be used erroneously, are men to be told that they ought not to use it at all?
+ - Education makes a man a more intelligent shoemaker, if that be his occupation, but not by teaching him how to make shoes; it does so by the mental exercise it gives, and the habits it impresses.
+ - God is a word to express, not our ideas, but the want of them.
+ - The peculiarity of the evidence of mathematical truths is that all the argument is on one side.
+ - How can great minds be produced in a country where the test of great minds is agreeing in the opinion of small minds?
+ - Whatever crushes individuality is despotism.
+ - A government with all this mass of favours to give or to withhold, however free in name, wields a power of bribery scarcely surpassed by an avowed autocracy, rendering it master of the elections in almost any circumstances but those of rare and extraordinary public excitement.
+ - It can do truth no service to blind the fact, known to all who have the most ordinary acquaintance with literary history, that a large portion of the noblest and most valuable moral teaching has been the work not only of men who did not know, but of men who knew and rejected the Christian faith.
+ - The demand for commodities is not the demand for labor.
+ - He who cannot by his labor suffice for his own support has no claim to the privilege of helping himself to the money of others. By becoming dependent on the remaining members of the community for actual subsistence, he abdicates his claim to equal rights for them I other respects.
+ - All free communities have both been more exempt from social injustice and crime, and have attained more brilliant prosperity, than any others, or than they themselves after they have lost their freedom.
+ - That a thing is peculiar; is no argument for its being blamable; since the most criminal actions are to a being like man not more unnatural than most of the virtues.
+ - Pleasure and freedom from pain, are the only things desirable as ends.
+ - When the people are too much attached to savage independence, to be tolerant of the amount of power to which it is for their good that they should be subject, the state of society is not yet ripe for representative government.
+ - Men are men before they are lawyers, or physicians, or merchants, or manufacturers; and if you make them capable and sensible men, they will make themselves capable and sensible lawyers or physicians.
+ - If I have accomplished anything, I owe it, among other fortunate circumstances, to the fact that through the early training bestowed on me by my father, I started, I may fairly say, with an advantage of a quarter of a century over my contemporaries.
+ - Induction is a process of inference; it proceeds from the known to the unknown.
+ - The bad workmen who form the majority of the operatives in many branches of industry are decidedly of opinion that bad workmen ought to receive the same wages as good.
+ - So true is that unnatural generally means only uncustomary, and that everything which is usual appears natural.
+ - All action is for the sake of some end; and rules of action, it seems natural to suppose, must take their whole character and color from the end to which they are subservient.
+ - But society has now fairly got the better of individuality; and the danger which threatens human nature is not the excess, but the deficiency, of personal Impulses and preferences.
+
+244 quotes

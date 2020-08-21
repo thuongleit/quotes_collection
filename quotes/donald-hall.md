@@ -1,0 +1,37 @@
+ - Baseball is fathers and sons. Football is brothers beating each other up in the backyard.
+ - Every now and then I meet someone certain of personal greatness. I want to pat this person on the shoulder and mutter comforting words: “Things will get better! You won’t always feel so depressed! Cheer up!”
+ - Horace, when he wrote the Ars Poetica, recommended that poets keep their poems home for ten years; don’t let them go, don’t publish them until you have kept them around for ten years: by that time, they ought to stop moving on you; by that time, you ought to have them right.
+ - To grow old is to lose everything.
+ - You think that their dying is the worst thing that could happen. Then they stay dead.
+ - Less is more, in prose as in architecture.
+ - Mere literary talent is common; what is rare is endurance, the continuing desire to work hard at writing.
+ - I see no reason to spend your life writing poems unless your goal is to write great poems.
+ - To grow old is to lose everything. Aging, everybody knows it. Even when we are young, we glimpse it sometimes, and nod our heads when a grandfather dies. Then we row for years on the midsummer pond, ignorant and content.
+ - Words seem like drops of water in a stream that has its own wholeness and its own motion.
+ - Baseball is continuous, like nothing else among American things, an endless game of repeated summers, joining the long generations of all the fathers and all the sons.
+ - Great literature, if we read it well, opens us up to the world and makes us more sensitive to it, as if we acquired eyes that could see through things and ears that could hear smaller sounds.
+ - Your presence in this house is almost as painful and enormous as your absence.
+ - The greatest kindness would put a bullet in his bright eye.
+ - Opposites are attracted when each one is anxious about its own character.
+ - If work is no antidote to death, nor a denial of it, death is a powerful stimulus to work. Get done what you can.
+ - Baseball, because of its continuity over the space of America and the time of America, is a place where memory gathers.
+ - Virtually every beginning poet hurts himself by an addiction to adjectives. Verbs are by far the most important things for poems-especially wonderful tough monosyllables like “gasp” and “cry.” Nouns are the next most important. Adjectives tend to be useless.
+ - Joe DiMaggio batting sometimes gave the impression, the suggestion that the old rules and dimensions of baseball no longer applied to him, and that the game had at last grown unfairly easy.
+ - Of course newspaper sportswriting is mostly terrible – and of course it is usually the best writing in the paper.
+ - We made in those days tiny identical rooms inside our bodies which the men who uncover our graves will find in a thousand years shining and whole.
+ - To desire to write poems that endure-we undertake such a goal certain of two things: that in all likelihood we will fail, and if we succeed we will never know it.
+ - In football they measure forty-yard sprints. Nobody runs forty yards in basketball. Maybe you run the ninety-four feet of the court; then you stop, not on a dime, but on Miss Liberty’s torch. In football you run over somebody’s face.
+ - The pleasure we feel, reading a poem, is our assurance of its integrity.
+ - Poetry is what I’ve done my whole life. And every important thing in my life had found itself into poems.
+ - For most baseball fans, maybe oldest is always best. We love baseball because it seizes and retains the past, like the snowy village inside a glass paperweight.
+ - Today when I begin writing I’m aware: something that I don’t understand drives this engine.
+ - If the poet wants to be a poet, the poet must force the poet to revise. If the poet doesn’t wish to revise, let the poet abandon poetry and take up stamp-collecting or real estate.
+ - When we put words together – adjective with noun, noun with verb, verb with object – we start to talk to each other.
+ - I don’t know where a poem comes from until after I’ve lived with it a long time. I’ve a notion that a poem comes from absolutely everything that every happened to you.
+ - If our goal is to write poetry, the only way we are likely to be any good is to try to be as great as the best.
+ - I wish you were that birch rising from the clump behind you, and I the gray oak alongside.
+ - But Blake’s voices returned to dictate revisions.
+ - The form of free verse is as binding and as liberating as the form of a rondeau.
+ - I want to sleep like the birds then wake to write you again without hope that you read me.
+
+35 quotes

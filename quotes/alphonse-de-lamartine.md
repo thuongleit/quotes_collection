@@ -1,0 +1,112 @@
+ - We don’t have two hearts, one for animals and one for humans ; we have one heart or we don’t have any.
+ - History teaches everything, even the future.
+ - Music is the literature of the heart; it commences where speech ends.
+ - Sometimes, only one person is missing, and the whole world seems depopulated.
+ - Limited in his nature, infinite in his desire, man is a fallen god who remembers heaven.
+ - If greatness of purpose, smallness of means, and astonishing results are the three criteria of a human genius, who could dare compare any great man in history with Muhammad?
+ - There is a name hidden in the shadow of my soul, where I read it night and day and no other eye sees it.
+ - There is no man more complete than the one who travelled a lot, who changed the shape of his thoughts and his life twenty times.
+ - Sentiment is the poetry of the imagination.
+ - Kindness is virtue itself.
+ - Poetry has been the guardian angel of humanity in all ages.
+ - Civil wars leave nothing but tombs.
+ - Utopias are often just premature truths.
+ - To love for the sake of being loved is human, but to love for the sake of loving is angelic.
+ - Love is the enchanted dawn of every heart.
+ - Photography is better than art. It is a solar phenomenon in which the artist collaborates with the sun.
+ - Grief knits two hearts in closer bonds than happiness ever can; and common sufferings are far stronger links than common joys.
+ - All nature is the temple; earth the altar.
+ - Philosophy is the rational expression of genius.
+ - Habit with it’s iron sinews, clasps us and leads us day by day.
+ - There are places and climates, seasons and hours, with their outward circumstance, so much in harmony with certain impressions of the heart, that Nature and the soul of man appear to be parts of one vast whole.
+ - If one had but a single glance to give the world, one should gaze on Istanbul.
+ - The most effective coquetry is innocence.
+ - When a dog is in your life, there is always a reason to laugh.
+ - Yet, in these autumn days when Nature expires, Here, in these veiled scenes, I find more attractions; It is a friend’s sad goodbye; it is the last smile From lips that death is going to close forever!
+ - We cannot have two hearts, one for the animals and one for men. In cruelty towards the former and cruelty to the latter there is no difference but in the victim.
+ - Poetry is the morning dream of great minds.
+ - We are earth’s children, and life is the same in sap as in blood; all that the earth, our mother, feels and expresses to the eye by her form and aspect, in melancholy or in splendor, finds an echo within us.
+ - Let us love the passing hour, let us hurry up and enjoy our time.
+ - Virginity is the poetry, not the reality, of life.
+ - Silence and simplicity obtrude on no one, but are yet two unequaled attractions in woman.
+ - Soul of the universe, Sire, God, Creator, Lord, I believe in Thee, ’neath all these names: And without having need to hear thy word, In the sky’s brow my glorious creed I trace.
+ - True love is the ripe fruit of a lifetime.
+ - Treason, which begins by being cautious, ends by betraying itself.
+ - Brutality to an animal is cruelty to mankind – it is only the difference in the victim.
+ - A woman’s strength is most potent when robed in gentleness.
+ - Enthusiasm is the intoxication of earnestness.
+ - Friendship, sweet-resting place of the soul, the gloaming wherein our hearts find peace...
+ - Radicalism is but the desperation of logic.
+ - Love of country produces among men such examples as Cincinnatus, Alfred, Washington – pure, unselfish, symmetrical; among women, Vittoria Colonna, Madame Roland, Charlotte Corday, Jeanne Darc – romantic, devoted, marvelous.
+ - Men are misers, and women prodigal, in affection.
+ - Nature has given women two painful but heavenly gifts, which distinguish them, and often raise them above human nature, – compassion and enthusiasm. By compassion, they devote themselves; by enthusiasm they exalt themselves.
+ - Newspapers will ultimately engross all literature.
+ - Hence life, as through a cloud, for me I see Vanish, and to the past’s dark shade ’tis chas’d; As a grand image love remains to me – Sole remnant of a dream, by morn effac’d.
+ - The more I see of the representatives of the people, the more I admire my dogs.
+ - An artist should have more than two eyes.
+ - Thou makest the man, O Sorrow! – yes, the whole man, – as the crucible gold.
+ - Exquisite beauty resides rather in the female form than face, where it is also more lasting.
+ - Sad is his lot, who, once at least in his life, has not been a poet.
+ - Poets and heroes are of the same race, the latter do what the former conceive.
+ - Barbarism recommences by the excess of civilization.
+ - What is our life but a succession of preludes to that unknown song whose first solemn note is sounded by death?
+ - The impartiality of history is not that of the mirror, which merely reflects objects, but of the judge, who sees, listens, and decides.
+ - I say to this night: “Pass more slowly”; and the dawn will come to dispel the night.
+ - Experience is the only prophecy of wise men.
+ - Shall not this bygone Eden that we knew In our Eternal Life have shape and hue? For where Time is not shall not all Time be? In that calm breast whereto our souls are cleaving Shall we not find our loved ones beyond grieving About the hearth-stone of Eternity?
+ - Every time that a people which has long crouched in slavery and ignorance is moved to its lowest depths there appear monsters and heroes, prodigies of crime and prodigies of virtue.
+ - It is in the habits of lawyers that every accusation appears insufficient if they do not exaggerate it even to calumny; it is thus that justice itself loses its sanctity and its respect amongst men.
+ - Let us savour the swift delights of the most beautiful of our days!
+ - Too much I’ve seen, and felt, and lov’d in life, Living I come to seek Lethaean calm; Let me, fair scenes! forget all worldly strife, Oblivion solely is my bosom’s balm.
+ - Argument should be polite as well as logical.
+ - Chance often gives us that which we should not have presumed to ask.
+ - Modesty and dew love the shade.
+ - Let us enjoy the fugitive hour. Man has no harbor, time has no shore; it rushes on, and carries us with it.
+ - Joy is a flame which association alone can keep alive, and which goes out unless communicated.
+ - Ink is the transcript of thought.
+ - Religions are not proved, are not demonstrated, are not established, are not overthrown by logic! They are of all the mysteries of nature and the human mind, the most mysterious and most inexplicable; they are of instinct and not of reason.
+ - God – but a word invoked to explain the world.
+ - Silence, – the applause of real and durable impressions.
+ - Good manners require space and time.
+ - Esteem incites friendship, but not love; the former is the twin brother of Reverence; the latter is the child of Equality.
+ - Man, man, is thy brother, and thy father is God.
+ - The attractiveness that exists to man in the very helplessness of woman is scarcely realized.
+ - Providence conceals itself in the details of human affairs, but becomes unveiled in the generalities of history.
+ - Assassination makes only martyrs, not converts.
+ - All our tastes are but reminiscences.
+ - It is the qualities of the heart, not those of the face, that should attract us in women, because the former are durable, the latter transitory. So lovable women, like roses, retain their sweetness long after they have lost their beauty.
+ - True greatness is sovereign wisdom. We are never deceived by our virtues.
+ - The loss of a mother is always keenly felt, even if her health be such as to incapacitate her from taking an active part in the care of the family. She is the sweet rallying-point for affection, obedience, and a thousand tendernesses. Dreary the blank when she is withdrawn!
+ - Reading furnishes the mind only with materials of knowledge; it is thinking that makes what we read ours. I am the fellow citizen of every being that thinks; my country is Truth.
+ - What mortal is there, over whose first joys and happiness does not break some storm, dispelling with its icy breath his fanciful illusions, and shattering his altar?
+ - Mystery hovers over all things here below.
+ - Unanimity is the mistress of strength.
+ - I am the fellow citizen of every being that thinks; my country is Truth.
+ - Inspiration is solitary, never consecutive.
+ - France is revolutionary or she is nothing at all. The revolution of1789 is her political religion.
+ - After his blood, that which a man can next give out of himself is a tear.
+ - Eloquence dwells quite as much in the hearts of the hearers as on the lips of the orator.
+ - If God is thy father, human beings are thy brothers and sisters.
+ - History is neither more nor less than biography on a large scale.
+ - Republicanism and ignorance are in bitter antagonism.
+ - Private passions grow tired and wear themselves out; political passions, never.
+ - Time is a great ocean which, like the other ocean, overflows with our remains.
+ - He, who can create, abhors destruction.
+ - Enthusiasm springs from the imagination, and self-sacrifice from the heart. Women are, therefore, more naturally heroic than men. All nations have in their annals some of these miracles of patriotism, of which woman is the instrument in the hands of God.
+ - Man is God by his faculty for thought.
+ - It is admirable to die the victim of one’s faith; it is sad to die the dupe of one’s ambition.
+ - At twenty every one is republican.
+ - The reason that women are so much more sociable than men is because they act more from the heart than the intellect.
+ - My dog! the difference between thee and me knows only our Creator.
+ - Void of freedom, what would virtue be?
+ - The people only understand what they can feel; the only orators that can affect them are those who move them.
+ - Women have much more heart and much more imagination than men; hence, fancy often allures them.
+ - It is for truth that God created genius.
+ - Before this century shall run out, journalism will be the whole press. Mankind will write their book day by day, hour by hour, page by page. Thought will spread abroad with the rapidity of light – instantly conceived, instantly written, instantly understood at the extremities of the earth.
+ - There is a woman at the begining of all great things.
+ - Life is too short to spare an hour of it in the indulgence of this evil passion.
+ - Eternity is so certain and so terrible that a thousand lives would not suffice to prepare for it.
+ - Man is born barbarous – he is ransomed from the condition of beasts only by being cultivated.
+ - A conscience without God is like a court without a judge.
+
+110 quotes

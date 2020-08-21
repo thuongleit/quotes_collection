@@ -1,0 +1,45 @@
+ - The open road is a beckoning, a strangeness, a place where a man can lose himself.
+ - A true journey, no matter how long the travel takes, has no end.
+ - At the beginning we learn to travel, then we travel to learn.
+ - No yesterdays on the road.
+ - Historical awareness is a kind of resurrection.
+ - What you’ve done becomes the judge of what you’re going to do – especially in other people’s minds. When you’re traveling, you are what you are right there and then. People don’t have your past to hold against you. No yesterdays on the road.
+ - You never feel better than when you start feeling good after you’ve been feeling bad.
+ - New ways of seeing can disclose new things: the radio telescope revealed quasars and pulsars, and the scanning electron microscope showed the whiskers of the dust mite. But turn the question around: Do new things make for new ways of seeing?
+ - With a nearly desperate sense of isolation and a growing suspicion that I lived in an alien land, I took to the road in search of places where change did not mean ruin and where time and men and deeds connected.
+ - On the old highway maps of America, the main routes were red and the back roads blue. Now even the colors are changing.
+ - To say nothing is out here is incorrect; to say the desert is stingy with everything except space and light, stone and earth is closer to the truth.
+ - The four horsemen of the prairie are tornado, locust, drought, and fire, and the greatest of these is fire, a rider with two faces because for everything taken, it makes a return in equal measure.
+ - The negative cost of Lewis and Clark entering the Garden of Eden is that later expeditions regardless of what they were intended to do, later expeditions did not deal with the native peoples with the intelligence with the almost kindly resolve that Lewis and Clark did.
+ - Beware thoughts that come in the night. They aren’t turned properly; they come in askew, free of sense and restriction, deriving from the most remote of sources.
+ - Be careful going in search of adventure – it’s ridiculously easy to find.
+ - Beware thoughts that come in the night.
+ - For me, writing is not a search for explanations but a ramble in quest of what informs a place, a hunt for equivalents.
+ - Our religion keeps reminding us that we aren’t just will and thoughts. We’re also sand and wind and thunder. Rain. The seasons. All those things. You learn to respect everything because you are everything. If you respect yourself, you respect all things.
+ - Somewhere lives a bad Cajun cook, just as somewhere must live one last ivory-billed woodpecker. For me, I don’t expect ever to encounter either one.
+ - There are two kinds of adventurers: those who go truly hoping to find adventure and those who go secretly hoping they won’t.
+ - A man who couldn’t make things go right could at least go. He could quit trying to get out of the way of life. Chuck routine. Live the real jeopardy of circumstance. It was a question of dignity.
+ - One of the sweet and expectable aspects of life afloat is the perpetual present moment one lives in and a perception that time is nothing more than the current, an eternal flowing back to the sea.
+ - Boredom lies only with the traveler’s limited perception and his failure to explore deeply enough. After a while, I found my perception limited.
+ - I’ve read that a naked eye can see six thousand stars in the hundred billion galaxies, but I couldn’t believe it, what with the sky white with starlight. I saw a million stars with one eye and two million with both.
+ - Other than to amuse himself, why should a man pretend to know where he’s going or understand what he sees?
+ - Adventure is putting one’s ignorance into motion.
+ - It’s difficult to write a book where a character is on virtually every page of the book but you cannot refer to his or her gender. It gets rid of every his, her, she and he.
+ - The biggest hindrance to learning is fear of showing one’s self a fool.
+ - To an American, land is solidity, goodness, and hope. American history is about land.
+ - Whoever the last true cowboy in America turns out to be, he’s likely to be an Indian.
+ - I can’t say, over the miles, that I had learned what I had wanted to know because I hadn’t known what I wanted to know. But I did learn what I didn’t know I wanted to know.
+ - Without the errors, wrong turns and blind alleys, without the doubling back and misdirection and fumbling and chance discoveries, there was not one bit of joy in walking the labyrinth.
+ - I contend that in the kind of nonfiction I write, and that other people also pursue, anything is permissible provided the reader knows what you’re taking liberties with.
+ - Instead of insight, maybe all a man gets is strength to wander for a while.
+ - Having made the trip from St. Louis to the Pacific Ocean myself going up up up against twenty-five hundred miles of the Missouri River, I can testify that it’s one of the most arduous trips that anyone can make on this continent and yet I had a power boat to do it in.
+ - I like the digressive kind of traveling, where there’s not a particular, set, goal.
+ - The thing that overwhelms me when I go out now is the sprawlation of America.
+ - Spirit can go anywhere. In fact, it has to go places so it can change and emerge like in the migrations. That’s the whole idea.
+ - Instead of insight, maybe all a man gets is strength to wander for a while. Maybe the only gift is a chance to inquire, to know nothing for certain. An inheritance of wonder and nothing more.
+ - I did learn what I didn’t know I wanted to know.
+ - Franchises and chains have come to dominate small communities, but those same chains have eliminated a lot of the greasy spoons, places you didn’t want to eat in the first place.
+ - Memory is each man’s own last measure, and for some, the only achievement.
+ - Life doesn’t happen along interstates. It’s against the law.
+
+43 quotes

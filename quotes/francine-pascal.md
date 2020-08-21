@@ -1,0 +1,29 @@
+ - If you want to mess with me, you’d rather be ready for the consequences.
+ - The people with the most fear have the greatest opportunity to be brave.
+ - As pathetic as it was, she’d rather hold on to the possibility of something perfect than be hit with the reality of nothing much.
+ - No matter when you were born or where, puberty is the same. It’s the same for your parents as it is for you – what’s happening in your body dictates everything.
+ - Elizabeth scowled, feeling like a nobody, a nothing. She felt like her entire self had been made worthless. She could change her interests, but she couldn’t change her looks. She’d never be six feet tall. She’d never look like a supermodel.
+ - Luck doesn’t shine her light on each of us equally. She is arbitrary, irrational, unfair and sometimes downright cruel.
+ - It’s so trendy, almost bleeding to death. All the cool girls are doing it.
+ - Love was more than blind. It was deaf and dumb, too. It was catatonic. It was vegetative.
+ - You see, Suzanne, history lectures bore me, art films bore me, your friends bore me, and, if you want to know the truth, I guess you bore me too.
+ - When I first heard the word existential, I didn’t know what it meant. But then I found out that no one knows what it means, so now I use it all the time.
+ - Jessica walked away from Aaron and Ken, flashing them both a big smile. They were both very attractive – she had dated each of them a number of times. In fact, not too long ago she had contemplated falling in love with Ken for lack of anything better to do.
+ - Ella was vapid and worthless at least nine-tenths of the time, but when she got really mad, her face became sharp and purposeful. Almost vicious. Like if Barbie were suddenly possessed by Atilla the Hun.
+ - I am seventeen. The good things about seventeen is that you’re not sixteen. Sixteen goes with the word sweet, and I am so far from sweet.
+ - The human heart was undeniably the stupidest organ in the body.
+ - I know you think that when you’re 35, 45, 55, you’ll be different. But I’m going to let you in on a bit of a secret. You’re going to look different, and your life is going to be different, but in your head you’ll always be that 16-year-old girl.
+ - I always had a fascination with twins.
+ - She needed to get out of there. Her brains, thankfully, were still safely in her skull, but her emotions were splattered on the pavement.
+ - Another funny thing about having friends was that they expected things of you. they made you want to not be a terrible, awful, execrable person. They made you feel worse when you were one. It was a lot easier not to have any friends.
+ - She figured if you weren’t woman enough to carry your doughnuts with pride, you shouldn’t be eating them.
+ - I always loved reading. Growing up, my favorite book was ‘A Child’s Garden of Verses,’ by Robert Louis Stevenson.
+ - Humiliation, by the way, is a truly terrible emotion. It’s at the bottom of the pile.
+ - I don’t do rewrites. I put all the pages in a pile next to the typewriter.
+ - The same way that some people can play the piano, I can do plots! They just come!
+ - Roger Collins wasn’t the most popular teacher at school only because he was interesting in class. In fact, most of the girls would have loved a little after-class attention from this teacher.
+ - But the way I see it, dying without knowing love would be a tragedy.
+ - Nature compensates for its mistakes.
+ - Life’s one great lesson was: Do not care. Not caring was a person’s real protection.
+
+27 quotes

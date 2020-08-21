@@ -1,0 +1,30 @@
+ - I learned all about life with a ball at my feet.
+ - Our confidence comes from our preparation.
+ - My heroes were always soccer players.
+ - I am ugly, but what I do have is charm.
+ - God gives gifts to everyone, some can write, some can dance. He gave me the skill to play football and I am making the most of it.
+ - A lot of the moves I make originate from futsal. It’s played in a very small space, and the ball control is different in futsal. And to this day my ball control is pretty similar to a futsal player’s control.
+ - It is not just about the money, it is about what you achieve on the pitch.
+ - If you’re playing for five hours you don’t want to score goals all the time and I loved dribbling. I could score a goal, but I preferred to dribble.
+ - I helped Messi and I know he will do the same with Neymar.
+ - I would like my Dad to be alive so he could see what I am.
+ - No matter who you are it’s the simple things in life that lead you to believe that you can achieve anything.
+ - Football is about joy. It’s about dribbling. I favour every idea that makes the game beautiful. Every good idea has to last.
+ - My game is based on improvisation. Often a forward does not have the time to think too much. You have a second, rarely more, to decide whether to dribble, shoot or pass to the right or left. It is instinct that gives the orders.
+ - I have the chance to do for a living what I like the most in life, and that’s playing football. I can make people happy and enjoy myself at the same time.
+ - I think each player has an individual style. Each is concerned with giving the best to his team, and I think my best talent is dribbling and setting up goal situations, giving an assist or deceiving one of the other team’s players.
+ - The toughest opponents for me are the defenders who are tough in the way they play – where you can’t see a way through.
+ - It doesnt change much for me really and my motivation remains the same – to create a beautiful future with Barcelona, winning many titles.
+ - I am passionate about music – and people think because I go to places where I can enjoy music I have to be partying. It isn’t true.
+ - No one has nicer teeth than me. Why would anyone laugh at my lovely teeth?
+ - Paolo Maldini and John Terry are two of the toughest men I have met on the field.
+ - When I got to the senior national team, there was another Ronaldo, so they started calling me Ronaldinho because I was younger.
+ - Brazil goes into every World Cup expecting to win – so when it is in Brazil it is expected even more. You can’t understand what the World Cup means to our country.
+ - My best has to be for Barcelona against Villarreal in 2006 – that is the one I am asked most about, and it is the one I am most proud of. Xavi chipped the ball to me, I chested it down, twisted and hit an overhead kick. It was the final goal in a 4-0 win.
+ - I still have a video of my father, which I watch before every game I play for Brazil. It gives me strength, makes me determined.
+ - Of course, I follow Bollywood. In fact, it’s widely followed in Brazil.
+ - Henry is a beautiful player and has got complete technique, I adore watching him. I respect him very much as a man and as a footballer. He reminds me of myself.
+ - Ashley Cole is a fantastic defender. I have seen him keep the best players in the world quiet.
+ - I have never imagined doing anything other than football, but now, thinking about it coldly, if I hadn’t been a footballer, I would have been a musician.
+
+28 quotes

@@ -1,0 +1,101 @@
+ - God dwells within me. As me.
+ - You know it’s love when all you want is that person to be happy, even if you’re not part of their happiness.
+ - Life is so precious. Please, please, let’s love one another, live each day, reach out to each other, be kind to each other. Peace be with you. God is great.
+ - True love doesn’t come to you it has to be inside you.
+ - Republican comes in the dictionary just after reptile and just above repugnant.
+ - Wit is the key, I think, to anybody’s heart, because who doesn’t like to laugh?
+ - Don’t forget I’m just a girl, standing in front of a boy, asking him to love her.
+ - I’m too tall to be a girl, I never had enough dresses to be a lady, I wouldn’t call myself a woman. I’d say I’m somewhere between a chick and a broad.
+ - I want to go someplace where I can marvel at something.
+ - I believe that two people are connected at the heart, and it doesn’t matter what you do, or who you are or where you live; there are no boundaries or barriers if two people are destined to be together.
+ - I only put clothes on so that I’m not naked when I go out shopping.
+ - I’m an utterly average, total geek.
+ - It’s amazing what can happen if you just put your arm around somebody. It’s the truest thing and the simplest thing that does the most good a lot of times and I hope that we can all just reach out to each other.
+ - Some people are antagonized by the truth.
+ - What changes with fame is the perceptions of the individual rather than the individual.
+ - A fever is an expression of inner rage.
+ - In case I forget to tell you later, I had a really good time tonight.
+ - The older you get, the more fragile you understand life to be. I think that’s good motivation for getting out of bed joyfully each day.
+ - I don’t get angry very often. I lose my temper rarely. And when I do, there’s always a legitimate cause. Normally I have a great lightness of being. I take things in a very happy, amused way.
+ - It’s my privilege and honor to cook three meals a day for my family, and it’s a luxury on a level that I didn’t even realize, because it can be relentless for me on some days. You have pride in how you take care of your family.
+ - If you love someone, you say it, right then, out loud. Otherwise, the moment just passes you by.
+ - It’s funny when people say, ‘I don’t think Julia likes me.’ Honey, if I don’t like you, you’re going to know about it.
+ - Love is not love, without a violin playing goat.
+ - Usually the triumph of my day is, you know, everybody making it to the potty.
+ - The kind of energy I attract is very calm.
+ - I’m tall and smart. If you’re aggressive and energetic it can be intimidating for people who aren’t very smart themselves.
+ - People love scandal; people love drama. They love stripping away the layers to see what’s really in there, and they’ll do anything – as well as make it up – to get it.
+ - Happiness isn’t happiness unless there’s a violin-playing goat.
+ - Your face tells a story and it shouldn’t be a story about your drive to the doctor’s office.
+ - When you end up happily married, even the failed relationships have worked beautifully to get you there.
+ - If your friends won’t tell you the truth, who will?
+ - The key to beauty is always to be looking at someone who loves you, really.
+ - I had lunch the other day with my niece, Emma, and she said, ‘You’re so smart, Aunt Julia.’ And I wanted to say, ‘I’m not smart – I’m 41! You’re 17!’
+ - I’m too tall to be a girl. I’m between a chick and a broad.
+ - My mom used to make everything. She had a great garden and composted and made everything from scratch – peanut butter, bread, jelly, everything. I don’t know how she did it because all those things take time and love and labour. I only do half the stuff she does – but there’s still time.
+ - I don’t think fame changes people. People change as they gather more experiences and information about life.
+ - I went out in my goddamn underwear too!
+ - My real hair color is kind of a dark blonde. Now I just have mood hair.
+ - I prefer to act with friends. I mean you start off as strangers always with someone, but to really find a relationship that you enjoy personally and creatively, it’s fantastic.
+ - You can be true to the character all you want but you’ve got to go home with yourself.
+ - We’ve all been broken at some point. Forgiving ourselves or another person helps us move forward.
+ - It’s unfortunate that we live in such a panicked, dysmorphic society where women don’t even give themselves a chance to see what they’ll look like as older persons. I want to have some idea of what I’ll look like before I start cleaning the slates.
+ - I didn’t know the odds were so stacked against me. I went for TV shows and never got them. But I kept glued to the pursuit. I was the biggest fool in town, but ultimately I was the biggest fool in town with a job.
+ - Look beyond the paint. Let us try to open our minds to a new idea.
+ - I’m a really trusting person and I always have been. I just think I’ve cultivated a very keen skill of recognising someone I shouldn’t trust, pretty readily. A person has about 15 to 27 seconds before I’m pretty sure whether or not I can trust them or not.
+ - When I was a child I had a crush on Abraham Lincoln. Why I would choose to reveal this, I know not.
+ - The first time I felt I was famous was when I went to the movies with my mom. I had gone to the loo, and someone in the bathroom said in a very loud voice, Girl in stall No. 1 were you in Mystic Pizza? I paused and I said, yeah that was me.
+ - I think enough cannot be said for what you can discover through literature. So I think that was probably my most valued characteristic as a teenager.
+ - I don’t think I realized that the cost of fame is that it’s open season on every moment of your life.
+ - I think less is more when it comes to kissing in the movies.
+ - I’m definitely a practicing Hindu.
+ - It’s very important that we expand our use of clean energy and make a long-term commitment to it.
+ - I’m a regular person with an extraordinary job.
+ - I love romantic comedies. I like to watch them and I like to be in them. It’s something that’s increasingly difficult to find that spark of originality that makes if different than the ones that come before.
+ - I just have a great life. I know great people. I’ve had great relationships – all different kinds of relationships. I am so lucky to be on the little golden path that led me to all this.
+ - Show me a mall, and I’m happy.
+ - I have very smart parents. I feel I learned a lot from both of my parents and life experience.
+ - The movie says, You can lose your job and your way and still rescue yourself. ‘Larry Crowne’ creates a self-excavated utopia, and I love that idea, that message.
+ - Something that’s such a joy in my life every day – cooking – is this incredible, horrific danger to women around the world.
+ - Babies aren’t really born of their parents. They are born of every kind word, loving gesture, hope, and dream their parents ever had.
+ - What a relief. I didn’t have to check the toilet for anything or the light bulbs or the phone. It was just good old-fashioned friendship.
+ - There’s one little room in my house which is filled with all my clutter and bits and pieces. My sewing machine is up there, and all my knitting stuff. Its a place where I can go to relax and unwind. I don’t get to spend a lot of time up there, but at least I know its there.
+ - How lucky we are that we love each other so much that we burst into three pieces.
+ - It’s an exceptional time, and it’s always the happiest time if you can be really present and doing the things that you want to be doing and surrounding yourself with the people you love. So, yeah, I’m in a good spot right now.
+ - It’s amazing what can happen if you just put your arm around somebody.
+ - Two of my three siblings are older, so I suppose I learned from them and became a very avid reader at a young age, which I think enough cannot be said for what you can discover through literature.
+ - Light and funny has a more compelling quality when you’re younger. But I haven’t abandoned the genre: I love falling down; I love Lucille Ball. It’s just that a lot of those stories revolve around problems that I can’t convincingly portray at this age.
+ - You have to be smart enough not to dismiss where you came from. It may not be all we are, but it makes up for a great deal.
+ - I could have been a dental hygienist with nothing bad ever appearing in print about me, but that’s not how I’ve chosen to lead my life. I knew that you put yourself under a microscope the more famous you become.
+ - I love romantic comedies. I like to watch them and I like to be in them.
+ - I guess when all is said and done, if there is one last commentary on me, I would want it to be said that I participated in my life. I was a full participant.
+ - My boyfriend keeps telling me I’ve got to own things. So, first I bought this car. And then he told me I oughta get a house. ‘Why a house?’ ‘Well, you gotta have a place to park the car.’
+ - They say I can open movies, and that’s nice in that it puts into people’s minds that women can do it. It’s not just Kevin Costner, not just Arnold Schwarzenegger. Not just the guys.
+ - I just want to make a point that it’s not just great teachers that sometimes shape your life. Sometimes it’s the absence of great teachers that shapes your life and being ignored can be just as good for a person as being lauded.
+ - Let’s get a couple of things straight. It hasn’t been years and years since I made a movie. I’m not coming back from the dead – I’ve just had two kids! I have no intention of retiring, but I do think it’s impossible to do movie after movie, because there aren’t that many good films made.
+ - Going to the theater is such a joyous experience. My dad would take my sister and me to plays when we were very young, like six or seven years old.
+ - You know when people are stupid, it frustrates me.
+ - My life at home gives me absolute joy. There are some days when, as soon as you’ve finished cooking breakfast and cleaning up the kitchen, it’s time to start lunch, and by the time you’ve done that, you’re doing dinner and thinking, ‘There has to be a menu we can order from.’
+ - I couldn’t be an ingenue today, because the business has changed. I remember when you could dress for a premiere just by putting on a cute top. Now you have to be perfect and fabulous in every way, or you’re ridiculed.
+ - If all you have to offer is a look that is supposed to be appealing, the you are going to be paid attention to about a tenth as long as you would be if when you speak you are interesting.
+ - Los Angeles is such a town of show business, and I’m a terrible celebrity. I find it difficult – it’s the beast that must be fed. There’s this big wheel of pictures and articles that goes around, and you get pinned on it.
+ - On my best day, I am a seven-point-seven. I could be a hard eight if I felt great. If I went on a good run and had on my best pair of jeans, I could feel right on the money.
+ - Seeing Shakespeare in the Park, for me, it’s just this side of feeling like you’ve witnessed some kind of magic. It’s this spell that you’re under, to be part of that!
+ - In essence, I owe my career to Garry Marshall. There was no known reason for him to hire me for ‘Pretty Woman.’
+ - I love to cook, and I love to have all my family around the dinner table.
+ - We all need to take a deep breath and think about being a Bush daughter and having that cross to bear. I’d go out and have a couple of drinks too.
+ - Show me a person who doesn’t like to laugh and I’ll show you a person with a toe tag.
+ - I can direct breakfast, lunch, and dinner. I take pride in my kitchen, but I’m not going to direct a movie.
+ - I would like to learn to play the cello. I would like to paint. I would like to fully understand the concept of pi.
+ - Loving what you do is the secret to everything.
+ - I am very fulfilled in my home life, and what films do for me is to create an ironclad structure that, in my life as a mom, does not exist. It is a shapeless blob of happy chaos...
+ - I cannot absorb living in a world where I have an Oscar for best actress and Denzel doesn’t have one for best actor.
+ - I’ve sort of grown into my cuteness.
+ - In my life I think I made really solid decisions, and I would stand by them all over again.
+ - People talk about this Julia Roberts almost like it’s a cup of Pepsi. People think Julia Roberts is something they created. The fact is, 26 years ago, there was this scrunched-up little pink baby named Julia Roberts. I am a girl, like anybody else.
+ - I enjoy hats. And when one has filthy hair, that is a good accessory.
+ - I wouldn’t have believed it. I still barely do, truthfully. I’m so continually fortunate that I keep coming across these smart, interesting, creative people who pick me. It’s just stupendous.
+ - You never know how stylish a movie is going to be and I think this movie has a great sense of style. The way that it is shot and our costumes and everything, it was just terrific.
+ - I never really did years of movie-after-movie-after-movie but when you’ve got three toddlers in the house you’re performing all day long, anyway, with puppet shows and stories – I act around the clock.
+
+99 quotes

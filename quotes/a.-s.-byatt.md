@@ -1,0 +1,66 @@
+ - It is good for a man to invite his ghosts into his warm interior, out of the wild night, into the firelight, out of the howling dark.
+ - Things are not what they seem.
+ - Our days weave together the simple pleasures of daily life, which we should never take for granted, and the higher pleasures of Art and Thought which we may now taste as we please, with none to forbid or criticise.
+ - That is human nature, that people come after you, willingly enough, provided only that you no longer love or want them.
+ - Lists are a form of power.
+ - I think the virtue I prize above all others is curiosity.
+ - There is a peculiar aesthetic pleasure in constructing the form of a syllabus, or a book of essays, or a course of lectures. Visions and shadows of people and ideas can be arranged and rearranged like stained-glass pieces in a window, or chessmen on a board.
+ - I am a profound pessimist both about life and about human relations and about politics and ecology. Humans are inadequate and stupid creatures who sooner or later make a mess, and those who are trying to do good do a lot more damage than those who are muddling along.
+ - You can understand a lot about yourself by working out which fairytale you use to present your world to yourself in.
+ - On buses and trains, I always think about the inexhaustible variety of human genes. We see types, and occasionally twins, but never doubles. All faces are unique, and this is exhilarating, despite the increasingly plastic similarity of TV stars and actors.
+ - I am a creature of my pen. My pen is the best of me.
+ - No mere human can stand in a fire and not be consumed.
+ - She devoured stories with rapacious greed, ranks of black marks on white, sorting themselves into mountains and trees, stars, moons and suns, dragons, dwarfs, and forests containing wolves, foxes and the dark.
+ - Narrative is one of the best intoxicants or tranquilisers.
+ - Vocabularies are crossing circles and loops. We are defined by the lines we choose to cross or to be confined by.
+ - I watch a lot of sport on television. I only watch certain sports, and I only watch them live – I don’t think I’ve ever been able to watch a replay of a match or game of which the result was already decided. I feel bound to cheat and look up what can be looked up.
+ - You know, it’s a truism that writers for children must still be children themselves, deep down, must still feel childish feelings, and a child’s surprise at the world.
+ - It’s because I’m a feminist that I can’t stand women limiting other women’s imaginations. It really makes me angry.
+ - I have a dreadful fear that the more you try to prevent revealing the self, the more you do.
+ - I don’t see much point in doing things for a pure joke. Every now and then you need a joke, but not so much as the people who spend all their lives constructing joke palaces think you do.
+ - The more research you do, the more at ease you are in the world you’re writing about. It doesn’t encumber you, it makes you free.
+ - I was no good at being a child.
+ - He felt changed, but there was no one to tell.
+ - I think there are a lot more important things than art in the world. But not to me.
+ - I’d like to write the way Matisse paints.
+ - I’m more interested in books than people, and I always expect everybody else to be, but they’re not.
+ - Funny way to spend your life, though, studying another chap’s versifying.
+ - Mine the long night The secret place Where lovers meet In long embrace In purple dark In silvered kiss Forget the world And grasp your bliss.
+ - Narration is as much a part of human nature as breath and the circulation of the blood.
+ - Ice burns, and it is hard to the warm-skinned to distinguish one sensation, fire, from the other, frost.
+ - Pain hardens, and great pain hardens greatly, whatever the comforters say, and suffering does not ennoble, though it may occasionally lend a certain rigid dignity of manner to the suffering frame.
+ - The individual appears for an instant, joins the community of thought, modifies it and dies; but the species, that dies not, reaps the fruit of his ephemeral existence.
+ - What literature can and should do is change the people who teach the people who don’t read the books.
+ - Think of this – that the writer wrote alone, and the reader read alone, and they were alone with each other.
+ - A beautiful woman, Simone Weil said, seeing herself in the mirror, knows “This is I.” An ugly woman knows with equal certainty, “This is not I.” Maud knew this neat division represented an over-simplification. The doll-mask she saw had nothing to do with her, nothing.
+ - Independent women must expect more of themselves, since neither men nor other more conventionally domesticated women will hope for anything, or expect any result other than utter failure.
+ - Never stop paying attention to things. Never make your mind up finally. Do not hold beliefs.
+ - Novels arise out of the shortcomings of History.
+ - Once you get older, people stop listening to what you say. It’s very agreeable once you get used to it.
+ - I think the names of colors are at the edge, between where language fails and where it’s at its most powerful.
+ - Young girls are sad. They like to be; it makes them feel strong.
+ - I do not want to be a relative and passive being, anywhere. I want to live and love and write.
+ - In our world of sleek flesh and collagen, Botox and liposuction, what we most fear is the dissolution of the body-mind, the death of the brain.
+ - Everything is surprising, rightly seen.
+ - Literary critics make natural detectives.
+ - Art does not exist for politics, or for instruction- it exists primarily for pleasure, or it is nothing.
+ - Only write to me, write to me, I love to see the hop and skip and sudden starts of your ink.
+ - I like feeling my way into different minds and experiences. It comes naturally and always has.
+ - You did not so much mind being -conventionally- betrayed, if you were not kept in the dark, which was humiliating, or defined only as a wife and dependent person, which was annihilating.
+ - Autobiographies tell more lies than all but the most self-indulgent fiction .
+ - History, writing, infect after a time a man’s sense of himself...
+ - The reading eye must do the work to make them live, and so it did, again and again, never the same life twice, as the artist had intended.
+ - It’s a terrible poison, writing.
+ - Good writing is always new.
+ - Cyclists. I really hate them. I wish they would not be so self-righteous and realise they are a danger to pedestrians. I wish cyclists would not vindictively snap off wing mirrors on cars when they were trying to cross in front of the car at a danger to motorists and pedestrians.
+ - Dorothy was in that state human beings passed through at the beginning of a love affair, in which they desire to say anything and everything to the beloved, to the alter ego, before they have learned what the real Other can and can’t understand, can and can’t accept.
+ - Well, I would hardly say I do write as yet. But I write because I like words. I suppose if I liked stone I might carve. I like words. I like reading. I notice particular words. That sets me off.
+ - An odd phrase, “by heart,” he would add, as though poems were stored in the bloodstream.
+ - Where would we be without inhibitions? Theyre quite useful things when you look at some of the things humans do if they lose them.
+ - Creative Writing was not a form of psychotherapy, in ways both sublime and ridiculuous, it clearly was, precisely that.
+ - Harm can come about without will or action. But will and action can avert harm.
+ - One does not remember the winners. One remains haunted by the losers.
+ - A surprising number of people – including many students of literature – will tell you they haven’t really lived in a book since they were children.
+ - Outside our small safe place flies mystery.
+
+64 quotes

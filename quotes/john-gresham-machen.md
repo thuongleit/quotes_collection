@@ -1,0 +1,28 @@
+ - It is impossible to be a true soldier of Jesus Christ and not fight.
+ - I’m so thankful for the active obedience of Christ. No hope without it.
+ - Modern culture is a mighty force. It is either subservient to the gospel or else it is the deadliest enemy of the gospel.
+ - Afternoon classes – that evil invention!
+ - According to Christian belief, man exists for the sake of God; according to the liberal church, in practice if not in theory, God exists for the sake of man.
+ - I can’t die now, I have so much work to do.
+ - I can see little consistency in a type of Christian activity which preaches the gospel on the street corners and at the ends of earth, but neglects the children of the covenant by abandoning them to a cold and unbelieving secularism.
+ - The most important Christian Education institution is not the pulpit or the school, important as those institutions are; but it is the Christian family. And that institution has to a very large extent ceased to do its work.
+ - Christianity is not engrossed by this transitory world, but measures all things by the thought of eternity.
+ - The more we know of God, the more unreservedly we will trust him; the greater our progress in theology, the simpler and more child-like will be our faith.
+ - If all creeds are equally true, then since they are contradictory to one another, they are all equally false, or at least equally uncertain.
+ - The type of religion which rejoices in the pious sound of traditional phrases, regardless of their meanings, or shrinks from “controversial” matters, will never stand amid the shocks of life.
+ - The Gospel does not abrogate God’s law, but it makes men love it with all of their hearts.
+ - What is today a matter of academic speculation begins tomorrow to move armies and pull down empires.
+ - Indifferentism about doctrine makes no heroes of the faith.
+ - I see with greater and greater clearness that consistent Christianity is the easiest Christianity to defend.
+ - Conservative New Testament studies could also provide an intellectually satisfying alternative to German biblical criticism and to the liberal theology that accompanied it.
+ - The Christian cannot be satisfied so long as any human activity is either opposed to Christianity or out of connection with Christianity. Christianity must pervade not merely all nations but also all of human thought.
+ - A low view of law always produces legalism; a high view of law makes a person a seeker after grace.
+ - If we give the bureaucrats our children, we may as well give them everything else.
+ - Jesus was certainly not a mere enunciator of permanent truths, like the modern liberal preacher; on the contrary He was conscious of standing at the turning-point of the ages, when what had never been was now to come to be.
+ - In many respects, my work is very enjoyable, for I seem to get on pretty well with the fellows and enjoy the work of instruction as well as my own studies.
+ - Light may seem at times to be an impertinent intruder, but it is always beneficial in the end.
+ - In the sphere of religion, as in other spheres, the things about which men are agreed are apt to be the things that are least worth holding; the really important things are the things about which men will fight.
+ - God is the ruler of history. His times are well chosen The Roman Empire was an instrument in his hand. And so are the nations of the modern world.
+ - Certainly it does make the greatest possible difference what we think about God; the knowledge of God is the very basis of religion.
+
+26 quotes

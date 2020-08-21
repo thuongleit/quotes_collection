@@ -1,0 +1,40 @@
+ - I remind myself every morning: Nothing I say this day will teach me anything. So if I’m going to learn, I must do it by listening.
+ - The first rule of my speaking is: listen!
+ - If I’m going to learn, I must do it by listening.
+ - If I do something caring for a friend, I have no doubt in my mind they would do it for me.
+ - It’s joyful to give. But for people who want to take advantage of you, you’re kind of an easy mark.
+ - I have never understood the Iowa caucus.
+ - I thought: If I was lucky enough to live, I’d change, myself-I realized I could have a new life-new energy, new endurance, and feel better about myself.
+ - You make your own luck. Luck is the residue of design.
+ - You cannot talk to people successfully if they think you are not interested in what they have to say or you have no respect for them.
+ - I have lifelong friends. My oldest friend, Herbie, has been a friend since I was 9. I’ve had bonds for over 50 years with people.
+ - I’m the worst person to be stuck with in a traffic jam.
+ - I’m sort of the comic relief after a hard day at work. My message is that it’s OK to relax.
+ - Getting your house in order and reducing the confusion gives you more control over your life. Personal organization some how releases or frees you to operate more effectively.
+ - I would like to ask Him if He was indeed virgin born, because the answer to that question would define history.
+ - The secret of success is an absolute ungovernable curiosity.
+ - I worked on the United Parcel Service truck, I sold home delivery of milk. But always, in the back of my mind, I wanted to get into radio.
+ - Les Miserables is one of my favorite stories.
+ - Those who have succeeded at anything and don’t mention luck are kidding themselves.
+ - The names are bigger, the show is worldwide, but I get a royal pass into life in the broadcasting business.
+ - Let’s not become so worried about not offending anybody that we lose the ability to distinguish between respect and paranoia.
+ - When I was 5 years old I would lie in bed, look at the radio, and I wanted to be on the radio. I don’t know why.
+ - Anonymous sources are to journalism what silicon enhancements are to the feminine figure; they look impressive to the gullible, but something doesn’t feel right.
+ - Sandy Koufax went to the same school as me. I graduated two years ahead of Sandy.
+ - If you do something, expect consequences.
+ - You know what amazes me about UFO’s? They never land at the White House. They always land at laramie, Wyoming. Thiry miles out, where they’re seen by one farmer.
+ - I like to put a stake in people, because I know people helped me.
+ - Nobody beats a bunch of journalists for inflating their rather mundane straightforward chores with a lot more melodrama and self-importance than the job should be asked to contain.
+ - If they asked me, I did two shifts. I did sports, I did news, because I loved it.
+ - Gleason became like a mentor of mine. I had Gleason helping me on television, Godfrey on radio.
+ - Communications is the number one major in America today. CNN had 25,000 applicants for five intern jobs this summer.
+ - I’ve made a lot of mistakes. I’ve bonded with some people who use you, and some people that take advantage of you.
+ - There is nothing in your destiny, nothing in your future that you cannot accomplish.
+ - When I broke in, in 1957, it was wide open. Now you’re up against strong competition.
+ - One thing I have learned is, if people tell you they had a “frank” discussion with someone, it is usually code for a yelling match with clenched fists.
+ - Those of us forced to read the London papers sometimes speculate about which is greater: the average British hack’s sloth, mendacity, ignorance, obsequiousness, capacity for drink, or aversion to paying for that drink. Smart money tends to split between the latter two.
+ - I was always telling everyone, I want to be a broadcaster. They’d say, What, are you crazy? What, you’re going to be Arthur Godfrey?
+ - I’m having as much fun today as I did when I made $55 a week, because it is as much fun.
+ - People would pay money to work at CNN.
+
+38 quotes

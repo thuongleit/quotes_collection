@@ -1,0 +1,21 @@
+ - Sometimes democracy must be bathed in blood.
+ - Everything I did, all my actions, all of the problems I had I dedicate to God and to Chile, because I kept Chile from becoming Communist.
+ - Not a leaf moves in this country if I’m not moving it.
+ - My library is filled with UN condemnations.
+ - Don’t forget that in the history of the world, there was a plebiscite, in which Christ and Barabbas were being judged, and the people chose Barabbas.
+ - I’m not someone who usually sends out threats. I warn only once. The day they touch one of my men, the rule of law is over.
+ - Had I been a dictator, I would still be governing.
+ - Rome cut off the heads of Christians and they continued to reappear one way or another. Something similar happens with Marxists.
+ - We have no political prisons. We have political internal exiles.
+ - I’m looking at them from above, because God put me there.
+ - The nation is trying to make Chile a country of proprietors, not of proletarians.
+ - I will die. The person who succeeds me will also have to die. But elections, you won’t have.
+ - The only solution to the issue of human rights is oblivion.
+ - The rich people are those who create wealth, and you have to treat them well so they continue to give wealth.
+ - I was only an aspiring dictator. I was never a real dictator.
+ - Executive power is exercised by the President of the Governing Board who, with the title of President of the Republic of Chile, administers the state and is the Supreme Chief of the Nation.
+ - I devalued the peso solely looking after the poor.
+ - My face is sour. Maybe that’s why they say I’m a dictator.
+ - He could have a thousand faults, but I do not blame anyone in particular and I despise brutality with which the Nazis acted against Israelites; but the fault is not only of Hitler, but a group of high-ranked dignitaries.
+
+19 quotes

@@ -1,0 +1,280 @@
+ - Life is 10% what happens to you and 90% how you react to it.
+ - The difference between something good and something great is attention to detail.
+ - Think first. Talk less. Start today.
+ - Real integrity stays in place whether the test in adversity or prosperity.
+ - We are all faced with a series of great opportunities brilliantly disguised as impossible situations.
+ - Leaders need to cultivate two things: a righteous heart and a rhinoceros skin.
+ - Anything under God’s control is never out of control.
+ - We have a choice every day regarding the attitude we will embrace for the day. Life is 10% what happens to us and 90% how we react to it. Our attitude is everything.
+ - Only you can determine your choice of attitude. Choose wisely, choose carefully, choose confidently!
+ - Vision is the ability to see God’s presence, to perceive God’s power, to focus on God’s plan in spite of the obstacles.
+ - Choose to view life through God’s eyes.
+ - On tough days, you gotta have heart. Don’t quit, whatever you do. Persevere.
+ - The stronger the winds, the deeper the roots, and the longer the winds, the more beautiful the tree.
+ - We are often so caught up in our activities that we tend to worship our work, work at our play, and play at our worship.
+ - Encourage one another. Many times a word of praise or thanks or appreciation or cheer has kept people on their feet.
+ - God also allows suffering so that we might learn what it means to depend on Him, not on our own strength and resources.
+ - Patience is a bitter plant that produces sweet fruit.
+ - The decision to give ourselves to others is a daily taking up of the cross.
+ - One of the marks of maturity is the ability to disagree without becoming disagreeable.
+ - Excellence-moral, ethical, personal excellence-is worth whatever it costs.
+ - Prejudice is a learned trait. You’re not born prejudiced; you’re taught it.
+ - God will never adjust His agenda to fit ours. He will not speed up His pace to catch up with ours; we need to slow our pace in order to recover our walk with Him. God will not scream and shout over the noisy clamor; He expects us to seek quietness, where His still small voice can be heard again.
+ - Worry erases the promises of God from your mind.
+ - First impressions never have a second chance.
+ - Friends make life a lot more fun.
+ - When God is involved, anything can happen. Be open. Stay that way. God has a beautiful way of bringing good vibrations out of broken chords.
+ - My order of priorities reflects the level of my commitment to Christ. Whoever or whatever is in first place, if it isn’t the Lord Jesus, is in the wrong place.
+ - The happiest people I know are the ones who have learned how to hold everything loosely and have given the worrisome, stress-filled, fearful details of their lives into God’s keeping.
+ - Worry is a complete waste of energy. It solves nothing.
+ - It helps me if I remember that God is in charge of my day – not I.
+ - Alleged ‘impossibilities’ are opportunities for our capacities to be stretched.
+ - It is in lonely solitude that God delivers His best thoughts, and the mind needs to be still and quiet to receive them.
+ - Don’t expect wisdom to come into your life like great chunks of rock on a conveyor belt. Wisdom comes privately from God as a byproduct of right decisions, godly reactions, and the application of spiritual principles to daily circumstances.
+ - God’s timing is always on time.
+ - Of all the things God created, I am often most grateful He created laughter.
+ - Times may be hard and people may be demanding, but never forget that life is special. Every single day is a special day. God is at work in you!
+ - We are in charge of our attitudes.
+ - Nothing speaks louder or more powerfully than a life of integrity.
+ - Some folks serve the almighty dollar far more faithfully than the Almighty God. They get greater delight out of balancing the budget than watching the Lord multiply the loaves and fishes.
+ - Lead with action and let the feelings follow.
+ - Good listeners believe they can learn something from everyone.
+ - Good intentions and earnest effort are not enough. Only Jesus can make an otherwise futile life productive.
+ - When God’s in it, the job gets done.
+ - Humility – the discipline of putting others ahead of self, the choice to value others above self – is, at its core, a matter of faith.
+ - Another problem with worry is that it makes you forget your worth. Worry makes you feel worthless, forgotten, and unimportant.
+ - Hope is like an anchor. Our hope in Christ stabilizes us in the storms of life, but unlike an anchor, it does not hold us back.
+ - I know of no realm of life that can provide more companionship in a lonely world or greater feelings of security and purpose in chaotic times than the close ties of a family.
+ - Pride leaves no room for grace.
+ - No one is immune to temptation. Not even a hero. Not even a nobody. Not even people like you and me. Lust is never very far away. And just when you least expect it, there it is again.
+ - Leadership is influence. To the extent we influence others, we lead them.
+ - Encouragement is awesome. Think about it. It has the capacity to lift a man’s or a woman’s shoulders. To breathe fresh air into the fading embers of a smoldering dream. To actually change the course of another human being’s day, week, or life.
+ - Words can never adequately convey the incredible impact of our attitudes toward life. The longer I live the more convinced I become that life is 10 percent what happens to us and 90 percent how we respond to it.
+ - There are times we need to tell ourselves, “Good job!” when we know that is true.
+ - This tendency to avoid problems and the emotional suffering inherent in them is the primary basis of all human mental illness.
+ - And when God steps in, His working is like the difference between a skyscraper and a star.
+ - A story without context is like a diamond without a mounting. The stone may be beautiful lying loose on a table, but when it is carefully mounted in the right setting it can dazzle you with its brilliance and sparkling beauty.
+ - Two words will help you cope when you run low on hope: accept and trust.
+ - You see, when we talk about perfect trust, we’re talking about what gives us roots, character, the stability to handle the hard times. Trusting God doesn’t alter our circumstances. Perfect trust in Him changes us.
+ - God never calls His people to accomplish anything without promising to supply their every need.
+ - It is often just as sacred to laugh as it is to pray.
+ - Christlikeness is a journey, not a destination. The joy is in the journey.
+ - The Lord delights to surprise us with His goodness, if only we will unlock the door of obedience with the key of faith – which He has given – and then push it open and walk through.
+ - God has not only created each of us as distinct individuals, He also uses us in significant ways.
+ - Know yourself, like yourself, be yourself.
+ - Like sin itself, Satan appeals to the senses. He originated and perfected the art of disguising evil as good.
+ - You know one of the most encouraging things about faith? It pleases God.
+ - The best tests of my Christian growth occur in the mainstream of life, not in the quietness of my study.
+ - To require God to prove that He is able and willing to fulfill His promises would be proof positive that one does not trust Him.
+ - GRACE: All you can do is take it.
+ - Home is the bottom line of life, the anvil upon which attitudes and convictions are hammered out the single most influential force in our earthly existence. No price tag can adequately reflect its value.
+ - If our perfect Lord is gracious enough to take our worst, and ugliest, our most boring, our least successful, and forgive them, burying them in the depths of the sea, then it’s high time we give each other a break.
+ - I believe the single most significant decision I can make on a day-to-day basis is my choice of attitude. It is more important than my past, my education, my bankroll, my successes or failures, fame or pain, what other people think of me or say about me, my circumstances, or my position.
+ - Because God gave you your makeup and superintended every moment of your past, including all the hardship, pain, and struggles, He wants to use your words in a unique manner. No one else can speak through your vocal cords, and, equally important, no one else has your story.
+ - People who soar, are those who refuse to sit back and wish things would change.
+ - To be used of God. Is there anything more encouraging, more fulfilling? Perhaps not, but there is something more basic: to meet with God.
+ - Do you need strength? Peace? Wisdom? Direction? Discipline? Ask for it! God will hear you.
+ - I’m here today to warn you: I want you to watch out for the adversary. Guard yourself from any spirit of entitlement. Restrain any and all subtle temptation to gain attention or to find ways to promote yourself.
+ - There can be no more reliable authority on earth than God’s Word, the Bible. This timeless, trustworthy source of truth holds the key that unlocks life’s mysteries. It alone provides us with the shelter we need in times of storm.
+ - The world has changed and it’s going to keep changing, but God never changes; so we are safe when we cling to Him.
+ - Don’t be afraid of outgiving God. It is impossible to do that.
+ - Walk by faith! Stop the plague of worry. Relax! Learn to say, “Lord, this is Your battle.”
+ - Man is the only animal that when you pat him on the head, his head swells up.
+ - You will find a common dichotomy in life. Those who don’t have vision or determination, and refuse to dream the impossible, are always in the majority.
+ - Oh, how horrible our sins look when they are committed by someone else.
+ - Joy springs from a life lived with eternity’s values in view.
+ - How important is the heart! It is there that character is formed. It alone holds the secrets of true success. It’s treasures are priceless – but they can be stolen.
+ - Nothing is so common as unsuccessful men with talent. They lack only determination.
+ - If God’s people are to be living examples of one thing, that thing ought to be – it must be – compassion.
+ - One of the worst things you can give to your people is someone you’re not.
+ - When you are giving people the gospel, you are giving them something to believe, and you have to set the stage for that. You don’t just drive up and dump the truck and drive off.
+ - It is a pity that many Christians have the TV schedule better memorized than a single chapter for God’s precious Word.
+ - When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.
+ - There is only one you. God wanted you to be you. Don’t you dare change just because you’re outnumbered!
+ - Sometimes I wake up before dawn, and I love sitting up in the middle of the bed with all the lights off, pitch-black dark, and talking to the Father, with no interruptions and nothing that reminds me that there’s anything in life but me and Him.
+ - I think it is important to begin with a statement in your speech that grabs the attention of the audience. I try to make my opening line 15 words or less.
+ - When you pray, pray so that you may know Him. When you seek to simplify, do it as a means of knowing Him more. When you surrender, or behave with humility or sacrifice, do it with the sole purpose in mind to know Him.
+ - It’s not our church; it’s God’s – it’s not our responsibility to run it!
+ - You and I can become so dedicated to the will of God, we can be so driven by a false sense of purpose, that we might inadvertently take matters into our own hands and leave God completely out of the loop.
+ - In spite of our high-tech world and efficient procedures, people remain the essential ingredient of life.
+ - Any idol, regardless of its beauty or usefulness or original purpose, is to be set aside so that Christ might reign supreme, without a single competitor.
+ - Part of the thrill of guiding children into adulthood is the release. But it’s also a parent’s greatest act of surrender. Still, you have to let them go. Start now.
+ - Thanksgiving is a time of quiet reflection; an annual reminder that God has, again, been ever so faithful. The solid and simple things of life are brought into clear focus.
+ - Laughter is the most beautiful and beneficial therapy God ever granted humanity.
+ - Attitude keeps me going or cripples my progress. It alone fuels my fire or assaults my hopes. When my attitudes are right, there is no barrier too high, no valley too deep, no dream too extreme, no challenge too great for me.
+ - The secret of living a life of excellence is merely a matter of thinking thoughts of excellence. Really, it’s a matter of programming our minds with the kind of information that will set us free.
+ - Trusting God doesn’t alter our circumstances. Perfect trust in Him changes us.
+ - The longer I live, the more I realize the impact of attitude on life.
+ - Acceptance is taking from God’s hand absolutely anything He gives, looking into His face in trust and thanksgiving.
+ - Each day of our lives we make deposits in the memory banks of our children.
+ - It takes faith to find personal significance in your relationship with God rather than how much money you earn, how beautiful you look, how many toys you own, how many trophies you collect, or how much territory you conquer and control.
+ - If God awarded us medals, as they do in the Olympics, love would win the gold, joy the silver, and peace the bronze.
+ - No pressure is greater than God’s power.
+ - Battles are won in the trenches, in the grit and grime of courageous determination; they are won day by day in the arena of life.
+ - Wouldn’t you like to contribute to an event that is part of Christ’s own prediction, “I will build my church”?
+ - I let people see the cracks in my life. We can’t be phony. We’ve got to keep it real.
+ - You can choose to be a drag and a burden, or an inspiration and encouragement.
+ - Adversity is a good test of our resiliency, our ability to cope, to stand back up, to recover from misfortune. Adversity is a painful pedagogue.
+ - Grace releases and affirms. It doesn’t smother. Grace values the dignity of individuals. It doesn’t destroy. Grace supports and encourages. It isn’t jealous or suspicious.
+ - If the pace and the push, the noise and the crowds are getting to you, it’s time to stop the nonsense and find a place of solace to refresh your spirit.
+ - People who inspire others are those who see invisible bridges at the end of dead-end streets.
+ - Our identity as Christians is strengthened as we stand in the lengthening shadows of saints down through the centuries, who have always answered back in antiphonal voice: ‘He is risen, indeed!’
+ - Please, put aside all excuses and ask yourself, “What should I be doing?” Yes, you alone can make a difference. The question is, will you?
+ - I am a preacher. I’m involved in many other things, but, mainly, I preach. And I love it!
+ - An anniversary says, “Think of the dreams you have weathered together. They are intimate accomplishments.”
+ - We must cease striving and trust God to provide what He thinks is best and in whatever time He chooses to make it available. But this kind of trusting doesn’t come naturally. It’s a spiritual crisis of the will in which we must choose to exercise faith.
+ - God’s forgiveness extends to the worst offenders and to anyone who wishes to receive it-not because of who we are, but because of who He is.
+ - If I had my life to live over, I’d have spent more hours in worship.
+ - Faith is like lighting the torch that passes from one person to the next. You can’t light the torch of another if yours isn’t burning.
+ - We can’t solve modern problems by going back in time. Retreating to the safety of the familiar is an understandable response, but God has called us to a life of faith. And faith requires us to face the unknown while trusting Him completely.
+ - The skeptic may deny your doctrine or attack your church but he cannot honestly ignore the fact that your life has been changed.
+ - Love has been called the most effective motivational force in all the world. When love is at work in us, it is remarkable how giving and forgiving, understanding and tolerant we can be.
+ - There is no counsel like God’s counsel. No comfort like His comfort. No wisdom more profound than the wisdom of the Scriptures.
+ - It’s not enough merely to believe there is a God. You must believe in the God who is there.
+ - Convictions are a matter of choice, not force.
+ - Prayer is an investment. The time you dedicate to prayer isn’t lost; it will return dividends far greater than what a few moments spent on a task ever could. If we fail to cultivate this discipline, prayer winds up being our last resort rather than our first response.
+ - We aren’t just thrown on this earth like dice tossed across a table. We are lovingly placed here for a purpose.
+ - The more impossible the situation, the greater God accomplishes His work.
+ - God doesn’t work on our timetable. He has a plan that He will execute perfectly and for the highest, greatest good of all, and for His ultimate glory.
+ - Anyone who influences others is a leader.
+ - Worry is assuming responsibilities that you cannot handle. They truth is, they are responsibilities that God never intended for you to handle, because they are His.
+ - If you only knew what God had to take me through to get me to the place where he could use me to be a blessing to other people, I doubt whether you would be willing to pay the price.
+ - Thanksgiving speaks in clear, crisp tones of forgotten terms, like integrity – bravery – respect – freedom – discipline – sacrifice – godliness.
+ - A teardrop on earth summons the King of heaven.
+ - More than once Jesus deliberately addressed certain issues that quickly diminished the number of onlookers. It was commitment that thinned the ranks.
+ - A “godly” person is one who ceases to be self-centered in order to become God-centered.
+ - The lens of fear magnifies the size of uncertainty.
+ - Faith does not change my circumstances; faith changes me. Faith may not bring in the tuition check when I need it, but faith will give me what it takes to hang on.
+ - No marriage is “too dead” for the Lord to restore.
+ - When you suffer and lose, that does not mean you are being disobedient to God. In fact, it might mean you’re right in the center of His will. The path of obedience is often marked by times of suffering and loss.
+ - Don’t get older; get better: Live realistically. Give generously. Adapt willingly. Trust fearlessly. Rejoice daily.
+ - I believe firmly in God’s control in life.
+ - Make a plan now to keep a daily appointment with God. The enemy is going to tell you to set it aside, but you must carve out the time. If you’re too busy to meet with the Lord, friend, then you are simply too busy.
+ - The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune.
+ - Refuse to let your situation determine your attitude.
+ - When we attempt to find meaning in the pursuit of pleasure, the commitment to a job, or through plumbing intellectual depths, we all eventually find in each of these pursuits a dead end.
+ - A family is a place where principles are hammered and honed on the anvil of everyday living.
+ - Vision encompasses vast vistas outside the realm of the predictable, the safe, the expected.
+ - God never asked us to meet life’s pressures and demands on our own terms or by relying upon our own strength. Nor did He demands that we win His favor by assembling an impressive portfolio of good deeds. Instead, He invites us to enter His rest.
+ - God often does His best work in us when He catches us by surprise and introduces a change that is completely against our own desire.
+ - Envy is one of the great enemies of active spirituality. It keeps us from loving our neighbours, from functioning with others in community, and from affirming people’s unique worth. It also steals contentment from the heart. Is there anything or anyone you are envious of?
+ - Next time you’re faced with a credit-purchase decision, wait. Don’t say no necessarily. Just wait. I challenge you to present your need to the Lord before presenting it to a bank, and see what He does with it.
+ - When you accept the fact that sometimes seasons are dry and times are hard and that God is in control of both, you will discover a sense of divine refuge, because the hope then is in God and not in yourself.
+ - When the Lord makes it clear you’re to follow Him in this new direction, focus fully on Him and refuse to be distracted by comparisons with others.
+ - When you have a sense of calling, whether it’s to be a musician, soloist, artist, in one of the technical fields, or a plumber, there is something deep and enriching when you realize it isn’t just a casual choice, it’s a divine calling. It’s not limited to vocational Christian service by any means.
+ - Today is unique! It has never occurred and it will never be repeated. At midnight it will end, quietly, suddenly, totally. Forever. But the hours between now and then are opportunities with eternal possibilities.
+ - Strength comes from choosing to fully trust, pray, and praise. Our circumstances may not change, but in the process we change.
+ - God does not dispense strength and encouragement like a druggist fills your prescription. The Lord doesn’t promise to give us something to take so we can handle our weary moments. He promises us Himself. That is all. And that is enough.
+ - Anxious. Intriguing word. It literally means, “to be divided” or “distracted.” It conveys the idea of being so mentally ill at ease that you cannot do what you need to do because you are so distracted in your thinking.
+ - When we panic, we instinctively turn to our own internal resources because we doubt Him.
+ - Focusing intently on Christ naturally results in a lifestyle of increasingly greater selflessness. And it has another benefit. Gazing on Christ gives us greater ability to look past life’s trials and remain calm in the midst of what others would call chaos.
+ - When a church is spending more of its budget on media than shepherding, something is out of whack. We have gotten things twisted around.
+ - We need discernment in what we see and what we hear and what we believe.
+ - God’s word is tailor-made for gray-slush days. It sends a beam of light through the fog. It signals safety when we fear we’ll never make it through.
+ - Discipline is training that corrects and perfects our mental faculties or molds our moral character. Discipline is control gained by enforced obedience. It is the deliberate cultivation of inner order.
+ - Allowing anger to seethe on the back burner will lead to a very large lid blowing off a very hot pot.
+ - I have no interest in returning to yesteryear. I love the conveniences and delights of today’s time. I wouldn’t go back if I could.
+ - God alone is perfectly and consistently just. We forget; God remembers. We see an action; God sees a motive. This qualifies Him as the best recordkeeper and judge.
+ - When it seems like that’s all there is, remember all you have in Him.
+ - Tell yourself right now and throughout today, that it’s okay to draw away from the maddening crowd. Jesus did; so can you.
+ - Every one of us can blame somebody for something that has happened in our lives. But don’t waste your time. What we need most is a steady stream of love flowing among us. Love that quickly forgives, willingly overlooks, and refuses to take offense.
+ - Ours is a bad, bad world, but does that mean nothing’s good? Does it mean we have run out of things for which to be grateful? No, no, a thousand times, no!
+ - Go God’s way! His is the most reliable route to follow when life gets complicated. It will have its tough moments, but you will never regret it.
+ - Do you want to be wise? Choose wise friends.
+ - Let your life yield a sweet, winsome melody that this old world needs so desperately. Yes you can if you will.
+ - The habit of always putting off an experience until you can afford it, or until the time is right, or until you know how to do it is one of the greatest burglars of joy. Be deliberate, but once you’ve made up your mind -jump in.
+ - If you want to stop an argument, close your mouth.
+ - God declared me righteous!
+ - Remorse is sorrow over being caught and the pain of consequences that follow. Repentance is not being concerned for ourselves but having a contrite heart.
+ - If you want to be a person with a large vision, you must cultivate the habit of doing the little things well.
+ - Give us an intense distaste for things that displease You and a renewed pleasure in things that bring You honor and magnify Your truth.
+ - Many seducers clutter the simple message of the gospel with legalistic additions, with convoluted attempts to legitimize moral compromise, and with psychological theories that turn churches into relational support groups instead of houses of worship.
+ - Don’t seek more days in your life but more life in your days.
+ - Jesus kept it simple. The lesson wasn’t complicated. ‘I speak; you believe My word; your son will be fine.’ We complicate what God has made simple by seeing the world through human eyes. We want to see in order to believe and presume that our limitations are His.
+ - The wonderful thing about God is he knows what we need to persuade us.
+ - If you never get criticized, chances are you aren’t getting anything done.
+ - In spite of the extent to which Solomon went to find happiness, because he left God out of the picture, nothing satisfied. It never will. Satisfaction in life will never occur until there is a meaningful connection with the living Lord above the sun.
+ - The only thing we can do is play on the one string we have, and that is our attitude. I am convinced that life is ten percent what happens to me and ninety percent of how I react to it. And so it is with you. we are in charge of our attitudes.
+ - I am often the brunt of my own humor.
+ - No, the thing that makes for greatness is determination, persisting in the right direction over the long haul, following your dream, staying at the task.
+ - I have tried and I cannot find, either in scripture or in history, a strong-willed individual whom God used greatly until He allowed them to be hurt deeply.
+ - Cults use our vocabulary, but they don’t use our dictionary.
+ - Servants must be big people. Big enough to go on, remembering the right and forgetting the wrong.
+ - Joy is a deeply felt contentment that transcends difficult circumstances and derives maximum enjoyment from every good experience.
+ - Things will happen that seem to be totally contradictory, but these are God’s arrangements. It was a wonderful day when I finally realized I don’t have to explained or defend the will of God. My job is simply to obey it.
+ - Those who feed on rumors are small, suspicious souls.
+ - You won’t find God at the Seminary and you won’t find wisdom in the halls of intellectualism.
+ - Sometimes people can’t see past us to hear our message. We never have a second chance to leave a first impression.
+ - The size of a challenge should never be measured by what we have to offer. It will never be enough. Furthermore, provision is God’s responsibility, not ours. We are merely called to commit what we have – even if it’s no more than a sack lunch.
+ - All he asks is that we trust Him, that we stand before Him in integrity and faith. God is just waiting for us to trust Him.
+ - One of my great goals in life is to live long enough to where I am in the pulpit, preaching my heart out, and I die on the spot, my chin hits the pulpit – boom! – and I’m down and out. What a way to die!
+ - We cannot change our past. We can not change the fact that people act in a certain way. We can not change the inevitable. The only thing we can do is play on the one string we have, and that is our attitude.
+ - For there to be true maturity, people must be given room to grow, which includes room to fail...
+ - What is God looking for? He is looking for men and women whose hearts are completely His – completely.
+ - Worry is characteristic of the heathen, not the Christian.
+ - People who are close to God cultivate a personal intimacy with Him like a good gardener cultivates beautiful flowers.
+ - If you are having difficulty loving or relating to an individual, take him to God. Bother the Lord with this person. Don’t you be bothered with him – leave him at the throne.
+ - We continually encounter hardships. People disappoint us. We disappoint ourselves. But God is constant and compassionate. We are not alone. He cares. Against all reason, the transcendent God loves us so much that He has committed Himself to us.
+ - The beautiful thing about this adventure called faith is that we can count on Him never to lead us astray.
+ - I know of nothing more valuable, when it comes to the all-important virtue of authenticity, than simply being who you are.
+ - It is easy for Christians to have the false impression that once we have established a relationship with Christ, which we believe sets us right with God, the problems of life will somehow scoot away or they will slowly be removed from our lives.
+ - People are far more important than rigid rules and demanding expectations.
+ - One of the problems with worry is that it keeps you from enjoying what you have.
+ - The beautiful thing about encouragement is that anybody can do it.
+ - Faith itself cannot accomplish anything, yet without faith, no one can fly.
+ - When each elder or pastor has his will aligned with the Lord’s, we waste no time arguing for our own.
+ - Only grace-large doses, frequently displayed, released-will restore the wounded.
+ - Who can ever measure the benefit of a mother’s inspiration?
+ - I don’t have to explain or defend the will of God. My job is simply to obey it.
+ - Have you ever studied Jesus’s approach to talking with people? He didn’t always fill the space with answers for them. Let’s learn to do that with our fellow learners. Let’s give them room to think and answer for themselves.
+ - It’s easy to get attached to idols, good things inappropriately adored. But when you have Jesus in the centre of a room, everything else only junks up the decor.
+ - Not every Christian finds it easy to believe.
+ - Our minds can be kept free of anxiety as we dump the load of our cares on the Lord in prayer.
+ - It’s the most exciting thing to watch God work when I’ve asked him about something, to listen to him and watch him work. It’s like this friendship, and it just grows and grows and grows and grows.
+ - If we want the advantages of love, then we must be willing to take the risks of love. And that requires vulnerability. Of course, we can refuse this path and trod another one devoid of openness. But the toll on such a road is extremely high.
+ - Honesty has a beautiful and refreshing simplicity about it. No ulterior motives. No hidden meanings. An absence of hypocrisy, duplicity, political games, and verbal superficiality. As honesty and real integrity characterize our lives, there will be no need to manipulate others.
+ - If you are going to achieve excellence in big things, you develop the habit in little matters.
+ - Authentic men aren’t afraid to show affection, release their feelings, hug their children, cry when they’re sad, admit it when they’re wrong, and ask for help when they need it.
+ - If I ever wrote a book on preaching, it would contain three words: Preach the Word. Get rid of all the other stuff that gets you sidetracked; preach the Word.
+ - We shouldn’t deny the pain of what happens in our lives. We should just refuse to focus only on the valleys.
+ - Believing in grace is one thing. Living it is another.
+ - There is plenty of television. There are plenty of talk shows. There are plenty of comedians. But there is not plenty of worship of the true and living God.
+ - Worry and faith just don’t mix.
+ - God uses those who seem ill-fitted for a significant life.
+ - Let’s choose each day and every day to keep an attitude of faith and joy and belief and compassion.
+ - One essential ingredient for being an original in the day of copies is courageous vision.
+ - We gain the ability to rejoice under pressure through a carefully monitored training program directed by the Lord Himself.
+ - When Christ becomes our central focus, contentment replaces our anxiety as well as our fears and insecurities.
+ - When I think of vision, I have in mind the ability to see above and beyond the majority.
+ - Noise and crowds have a way of siphoning our energy and distracting our attention, making prayer an added chore rather than a comforting relief.
+ - I want to preach till the last breath in my lungs runs out.
+ - Allow me to offer a simple definition of wisdom. Wisdom is looking at life from God’s point of view.
+ - I cannot even imagine where I would be today were it not for that handful of friends who have given me a heart full of joy. Let’s face it, friends make life a lot more fun.
+ - I’m not against screens, or new songs, or innovation. I just don’t like the gimmicks. I want to know when worship is over that that leader’s sole purpose was to glorify the Lord Jesus Christ.
+ - When we have God in clear focus, His powerful presence eclipses our fear.
+ - More often than not, when something looks like it’s the absolute end, it is really the beginning.
+ - I don’t see life divided into public and private, secular and sacred. It’s all an open place of service before our God.
+ - Nothing is more bothersome to me than retiring. Weird things happen when you disengage; first you get negative, then you start telling people about your latest surgeries, and eventually you lose touch. I want to stay in touch.
+ - It’s the nature of the beast within us to keep going back to the familiar rather than to strap on faith and face the future.
+ - The remarkable thing is, we have a choice everyday regarding the attitude we will embrace for that day.
+ - We want a crowd to make us feel important and liked. But why is getting a crowd our focus? Jesus never suggested that crowds were the goal. He never addresses getting your church to grow. Never.
+ - It’s a delightful thing to receive a good word just at your time of need. Encourage someone today.
+ - Rejoicing is clearly a spiritual command. To ignore it, I need to remind you, is disobedience.
+ - Grace is ours. Let’s live it! Deny it or debate it and we kill it.
+ - God has somehow placed into Christian’s insides a special something, that extra inner reservoir of power that is more than a match for the stuff life throws at us.
+ - Confidence brings joy when we let God be God.
+ - When I have a wrong attitude, I look at life humanly. When I have a right attitude, I look at life divinely.
+ - When a person does something, it has the man or woman look about it. It drips with humanity. You can follow the logic of it and see the meaning behind it.
+ - With vision there is no room to be frightened. No reason for intimidation. It’s time to march forward! Let’s be confident and positive!
+ - Without a quest, life is quickly reduced to bleak black and wimpy white, a diet too bland to get anybody out of bed in the morning. A quest fuels our fire. It refuses to let us drift downstream gathering debris.
+ - God’s heavenly plan doesn’t always make earthly sense.
+ - God seems to reward us with good, delightful experiences when we move with joy through the less-than-delightful times.
+ - While I was raised around churches and had gotten to know a few preachers fairly well, the thought never entered my head that I would one day stand and deliver. Not only was I not interested, I lived with a major struggle: I stuttered.
+ - There is nothing more fearful for the average person in our society than to stand before a group of people and speak.
+ - As far back as I can remember, my mother would have me down by the bed at night with her, praying. I can still hear her voice calling my name to God and telling him that she wanted me to follow him in whatever he called me to do.
+ - Learning more truth is a poor and cheap substitute for stopping and putting into action the truth already learned.
+ - God is a specialist at making something useful and beautiful out of something broken and confused.
+ - We want the safety of yesterday even though we know it’s not where God would have us.
+ - While I wholeheartedly believe in choosing to approach every challenge with a great attitude, I don’t mean that we should abandon authenticity and live in fantasyland.
+
+278 quotes

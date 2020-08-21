@@ -1,0 +1,24 @@
+ - I think it would have been much better if Newton had contemplated how the apple got up there in the first place!
+ - You must learn to think one octave higher. Only then will you learn how implosion energy works.
+ - A fish does not swim it is SWUM. A bird does not FLY it is flown.
+ - The majority believes that everything hard to comprehend must be very profound. This is incorrect. What is hard to understand is what is immature, unclear and often false. The highest wisdom is simple and passes through the brain directly into the heart.
+ - The true foundation of all culture is the knowledge and understanding of water.
+ - They call me deranged. The hope is that they are right! It is of no greater or lesser import for yet another fool to wander this Earth. But if I am right and science is wrong, then may the Lord God have mercy on mankind!
+ - Natural phenomena undisturbed by man point the way to the realization of a new technique. One needs a keen sense of observation. We must understand Nature before we can adapt its way of working to our needs.
+ - Our work is the embodiment of our will. The spiritual manifestation of this work is its effect. When such work is properly done it brings happiness, and when carried out incorrectly it assuredly brings misery. Humanity! Your will is paramount! You can command Nature if you but obey her!
+ - In every case do the opposite to whatever technology does today. Then you will always be on the right track.
+ - For a person who lives 100 years in the future, the present comes as no surprise.
+ - Our primeval Mother Earth is an organism that no science in the world can rationalize. Everything on her that crawls and flies is dependent upon Her and all must hopelessly perish if that Earth dies that feeds us.
+ - I must furnish those, who would protect or save life, with an energy source, which produces energy so cheaply that nuclear fission will not only be uneconomical, but ridiculous. This is the task I have set myself in what little life I have left.
+ - You must look at the processes of motion in the macrocosmos and microcosmos accurately, and copy them!
+ - Actually, the mysteries of water are similar to those of the blood in the human body. In Nature, normal functions are fulfilled by water just as blood provides many important functions for mankind.
+ - We must look into unknown dimensions, into Nature, into that incalculable and imponderable life, whose carrier and mediator, the blood of the Earth that accompanies us steadfastly from the cradle to the grave, is water.
+ - Implosion is no invention in the conventional sense, but rather the renaissance of ancient knowledge, lost over the course of time.
+ - More energy is encapsulated in every drop of good spring water than an average-sized PowerStation is presently able to produce.
+ - Even in earliest youth my fondest desire was to understand Nature, and thus to come closer to the truth; a truth that I was unable to discover either at school or in church.
+ - The inner climate stamps each individual with its character. Every life-form has its own individual anomaly point of health, which makes the orderly reproduction of the species possible. This also explains why the world of parasites increases with fever.
+ - If I am a fool then it is no misfortune, for then only one more fool will wander this Earth. Amongst the millions of mentally deranged it would barely be noticed. But what if I am not a fool, and that science itself has erred? Then the tragedy is incalculable!
+ - We need no science of formulae, but a science of forms.
+ - Equivalence signifies uniformity and thus immobility.
+
+22 quotes

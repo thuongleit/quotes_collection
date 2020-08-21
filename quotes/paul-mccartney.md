@@ -1,0 +1,243 @@
+ - In the end, the love you take is equal to the love you make.
+ - There will be an answer. Let it be.
+ - If slaughterhouses had glass walls, everyone would be a vegetarian.
+ - Let it be.
+ - Think globally, act locally.
+ - Take these broken wings and learn to fly.
+ - And when the night is cloudy There is still a light that shines on me Shine on until tomorrow, let it Be...
+ - Tomorrow may rain, so I’ll follow the sun.
+ - You can judge a man’s true character by the way he treats his fellow animals.
+ - I’m not religious, but I’m very spiritual.
+ - Will you still need me, will you still feed me, when I’m sixty-four?
+ - I’ve got to admit it’s getting better. It’s a little better all the time.
+ - We live in hope of deliverance from the darkness that surrounds us.
+ - Close your eyes and I’ll kiss you, Tomorrow I’ll miss you.
+ - If this ever changing world in which we live in makes you give in and cry, say live and let die.
+ - For you know that it’s a fool who plays it cool, by making his world a little colder.
+ - People would say to me, “Hey man, you look just like Paul McCartney”, and I’d say: “I wish I had his money!”
+ - Late at night when the wind is still I’ll come flying through your door, And you’ll know what love is for. I am a bluebird, I’m a bluebird...
+ - When we were kids growing up in Liverpool, all we ever wanted to be was Elvis Presley.
+ - To this day, if I ever meet grownups who play ukulele, I love ’em.
+ - There must be a better way to make the things we want, a way that doesn’t spoil the sky, or the rain or the land.
+ - Bend like the willow, winds gonna blow you hard and cold tonight. Life as it happens, nobody warns you, willow hold on tight.
+ - What’s wrong with sentimental? Sentimental means you like stuff.
+ - When you’re wide awake say it for goodness sake, it’s gonna be a great day.
+ - There is good and bad in everyone.
+ - Most people don’t know that I invented the selfie.
+ - Somewhere down the line everyone must pay for their misdeeds.
+ - Some people want to fill the world with silly love songs.
+ - I can’t manage without homeopathy. In fact, I never go anywhere without homeopathic remedies. I often make use of them.
+ - Ebony and ivory live together in perfect harmony, side by side on my keyboard piano, oh Lord, why don’t we?
+ - Every love song I write is for Linda.
+ - I don’t work at being ordinary.
+ - Lucy in the Sky with Diamonds actually wasn’t meant to say LSD It was a drawing that John’s son brought home from school Lucy was a kid in his school.
+ - I’m not into, Hey, what’s your sign? or any of that. But I don’t know how I got here, and I don’t know how I write songs. I don’t know why I breathe.
+ - If I ever get out of here, thought of giving it all away to a registered charity.
+ - Long live all us crazy soldiers Who were born under calico skies May we never be called to handle All the weapons of war we despise.
+ - There are two things John and I always do when we’re going to sit down and write a song. First of all we sit down. Then we think about writing a song.
+ - Songs have some kind of structure that connects with people’s hearts.
+ - Out of all those millions and millions of planets floating around there in space, this is our planet, this is our little one, so we just got to be aware of it and take care of it.
+ - The willow turns his back on inclement weather. And if he can do it, we can do it.
+ - Live a little be a gypsy, get around. Get your feet up off the ground, live a little, get around.
+ - If there were no Carl Perkins, there would be no Beatles.
+ - Sadness isn’t sadness. It’s happiness in a black jacket. Tears are not tears. They’re balls of laughter dipped in salt. Death is not death. It’s life that’s jumped off a tall cliff.
+ - Love doesn’t come in a minute, sometimes it doesn’t come at all.
+ - If anyone wants to save the planet, all they have to do is just stop eating meat.
+ - All the lonely people, where do they all come from?
+ - Everybody’s talking about the President, we all chipped in for a bag of cement.
+ - If you love your life, everybody will love you too.
+ - Fight for the right to live in freedom!
+ - Somebody said to me, ‘But the Beatles were anti-materialistic.’ That’s a huge myth. John and I literally used to sit down and say, ‘Now, let’s write a swimming pool.’
+ - It’s nice to have a little bit of art to fall back on.
+ - But with writers, there’s nothing wrong with melancholy. It’s an important color in writing.
+ - My message is a peaceful one and I hope that the idea will spread.
+ - I don’t ever try to make a serious social comment.
+ - You see, my mother was a district nurse until she died when I was 14, and we used to move from time to time because of her work.
+ - Jet, I can almost remember their funny faces.
+ - I am a vegetarian because I realized that even little chickens suffer pain and fear, experience a range of feelings and emotions, and are as intelligent as mammals, including dogs, cats, and even some primates.
+ - In Liverpool we’d only done one-hour sessions. In Hamburg we had to play for eight hours. We played very loud, bang, bang, all the time. The Germans loved it.
+ - Love Me Do, the first song we recorded, John was supposed to sing the lead, but they changed their minds and asked me to sing lead because they wanted John to play harmonica.
+ - The ring at the end of my nose makes me look rather pretty.
+ - You’re always looking at last year, or 10 years ago, or your school days, or your teenage years, your formative years. Because that’s exactly what they are, they’re your formative years.
+ - I am alive and well and unconcerned about the rumors of my death. But if I were dead, I would be the last to know.
+ - It’s like if you’re an astronaut and you’ve been to the moon, what do you want to do with the rest of your life?
+ - None of us wanted to be the bass player. In our minds he was the fat guy who always played at the back.
+ - Paul’s last words to Linda: “You’re up on your? beautiful Appaloosa stallion. It’s a fine spring day. We’re riding through the woods. The bluebells are all out, and the sky is clear-blue”.
+ - My stepmother sold my birth certificate and someone asked why I didn’t buy it back. I don’t know, really. I just couldn’t bring myself to do it. It was mine. It cost me nothing and suddenly I had to buy it back.
+ - I used to think anyone doing anything weird was weird. Now I know that it is the people that call others weird that are weird.
+ - And what’s the point of changing when I’m happy as I am?
+ - Buy, buy, says the sign in the shop window; Why, why, says the junk in the yard.
+ - The best thing I ever saw was a man who loved his wife.
+ - I used to go round to Aunt Mimi’s house and John would be at the typewriter, which was fairly unusual in Liverpool. None of my mates even knew what a typewriter was. Well they knew what it was but they didn’t hae one. Nobody had one.
+ - Every time I felt low, I just put on an Elvis record and I’d feel great, beautiful.
+ - My brother’s researched our early family history. He found a letter from a fella who said he used to be in love with my mum.
+ - It’s time to end the cruel slaughter of whales and leave these magnificent creatures alone.
+ - Transcendental Meditation gives me an island of calm in the midst of so much turbulence.
+ - Microphones are just like people, if you shout at them, they get scared.
+ - I didn’t earn that much in record royalties. You’ve only got to look at my sales in 1980 to figure that one out.
+ - I go back so far I’m in front of me.
+ - We were pretty good mates until the Beatles started to split up and Yoko came into it. It was more like old army buddies splitting up on account of wedding bells.
+ - I feel like the sixties is about to happen. It feels like a period in the future to me, rather than a period in the past.
+ - If I were dead, I would be the last to know.
+ - I’d like to be able to go on holiday and not to have to hold my belly in for two whole weeks.
+ - By the time we made “Abbey Road”, John and I were openly critical of each other’s music, and I felt John wasn’t much interested in performing anything he hadn’t written himself.
+ - I got my first guitar when I was 15, and I just used to fool about with it, more or less, as time went by, though, I got more interested.
+ - I took my brains out and stretched them on the rack, now I’m not too sure I’m gonna get them back.
+ - I think the French girls are fabulous.
+ - So, if I’m cooking, I’ll be steaming vegetables, making some nice salad, that kind of stuff.
+ - I was impossible. I don’t know how anyone could have lived with me. For the first time in my life, I was on the scrap heap, an unemployed worker.
+ - That’s not really important what religion people are attached to, because by the same argument I have a lot of Christian friends and Moslem friends. It’s just happened that I do have a lot of relatives and friends who are Jewish.
+ - I believe that in the future meditation could be as commonplace in schools and society as eco-awareness is now. It interests me that an ancient cure may be the solution to a modern problem.
+ - I think a domestic situation can change you and your attitudes. I suppose if you did get a bit content, then you might not write savage lyrics.
+ - Look, people are allowed their own opinions and they don’t always coincide with yours. As an artist you just have to keep plugging on.
+ - Alas, it looks like those unsubstantiated rumours about me are about to come true after all this time...
+ - I knew the words to 25 rock songs, so I got in the group. Long Tall Sally and Tutti-Frutti, that got me in. That was my audition.
+ - I guess the ultimate luxury professionally is to be able to change your direction, to work in another medium.
+ - The Stones also still have a huge following. Mick Jagger leaps around like a crazy dude. And Keith Richards, Ronnie Wood and Charlie Watts are playing great too.
+ - It was Elvis who really got me hooked on beat music. When I heard ‘Heartbreak Hotel’ I thought, this is it.
+ - I’m always writing songs, and I’ve got a bunch that I want to record.
+ - Sometimes you write a song in a certain era and it’s got a certain kind of significance.
+ - It’s like a lot of kids; when you tell them someone’s died, they laugh.
+ - We don’t eat anything that has to be killed for us. We’ve been through a lot and we’ve reached a stage where we really value life.
+ - George Martin, he’s very good at a very sort of lush, sweet arrangement.
+ - You guys ready to do this?
+ - A lot of artists use memories. A lot of prose writers, a lot of poets, a lot of songwriters, refer back to something. Generally it’s all you’ve got, unless you’re brilliant and can write totally in the now.
+ - If anyone had told me in the ’60s that 20 years later we’d still be talking about whether pot was worse than this or that, I’d have said, Oh, come off it, boys.
+ - The strange thing is, we never owned our own publishing; it was always getting bought and sold.
+ - To keep the record straight, it wasn’t always John and Yoko. We’ve all accused one another of various business things; we tend to be pretty paranoid by now, as you can imagine. There’s a lot of money involved.
+ - The music publishing I own is fabulous recording.
+ - Where I come from, you don’t really talk about how much you’re earning. Those things are private. My dad never told my mum how much he was earning. I’m certainly not going to tell the world. I’m doing well.
+ - It’s been my ambition for about 30 years to do a full- length animation film.
+ - It’s a powerful thing hearing your friend on a very beautiful song.
+ - I think the idea of getting out of a traffic jam and getting out of work each week and going and doing all this stuff would be really exhausting.
+ - Personally, I think you can put any interpretation you want on anything, but when someone suggests that Can’t Buy Me Love is about a prostitute, I draw the line. That’s going too far.
+ - I have not practiced how to be a singer without an instrument.
+ - And Jet, I thought the Major was a lady suffragette.
+ - My arrest was on every bloody TV set. The other prisoners all knew who I was and asked me to sing.
+ - I had this song called Helter Skelter, which is just a ridiculous song. So we did it like that, ’cuz I like noise.
+ - I don’t think of myself as a legend. I just love what I do. I love playing with my band, I love going to beautiful places and give people good music. I love what I do, I’m very lucky man.
+ - I think the minute you’re full up and have had enough to eat, then that’s time to retire.
+ - Someone like John would want to end the Beatle period and start the Yoko period. He wouldn’t like either to interfere with the other.
+ - I never really got on that well with Yoko anyway. Strangely enough, I only started to get to know her after John’s death.
+ - I saw that Meryl Streep said, I just want to do my job well. And really, that’s all I’m ever trying to do.
+ - John could write a mean song. He had a lot of venom in him. Whereas I had a happy childhood.
+ - Lyricists play with words.
+ - Criticism didn’t really stop us and it shouldn’t ever stop anyone, because critics are only the people who can’t get a record deal themselves.
+ - When I see bacon, I see a pig, I see a little friend, and that’s why I can’t eat it. Simple as that.
+ - I still believe that love is all you need. I don’t know a better message than that.
+ - My mum died when I was 14. That is a kind of strange age to lose a mother. John lost his mum when he was 17.
+ - Hamburg totally wrecked us. I remember getting home to England and my dad thought I was half-dead. I looked like a skeleton, I hadn’t noticed the change, I’d been having such a ball!
+ - I thought the only lonely place was on the moon.
+ - The thing you must remember is that I’m the Number One John Lennon fan. I love him to this day and I always did love him.
+ - When two great saints meet, it’s a humbling experience.
+ - I meet so many people that just sort of say, “I want to thank you for your music. It really helped me” or “It changed my life.”
+ - That’s the terrible thing about growing up. You lose friends. It’s inevitable. It’s not like it’s a surprise. But it is terrible.
+ - When you were young, and your heart, was an open book. You used to say, live and let live.
+ - Why would I retire? Sit at home and watch TV? No thanks. I’d rather be out playing.
+ - Animation is not just for children – it’s also for adults who take drugs.
+ - I do like Eddie Van Halen as a player. He gets it right quite often.
+ - There’s nothing as glamorous to me as a record store.
+ - Having a beard is natural. When you think about it, shaving it off is quite weird.
+ - One may not eat what has a face.
+ - At the office where the paper grows, she takes a break, drinks another coffee, and she finds it hard to stay awake. It’s just another day.
+ - I have always adored Mahler, and Mahler was a major influence on the music of the Beatles. John and me used to sit and do the Kindertotenlieder and Wunderhorn for hours, we’d take turns singing and playing the piano. We thought Mahler was gear.
+ - If they won’t come to worship God in a church, something must be done. We have to instigate a nationwide search for a way to make it fun.
+ - I realize now that taking drugs was like taking an aspirin without having a headache.
+ - I never look forward, because I have no idea about how any of it happened to getting here. I’ve no idea how the next five years are going to be.
+ - At the end of the Beatles, I really was done in for the first time in my life. Until then, I really was a kind of cocky sod.
+ - Nothing pleases me more than to go into a room and come out with a piece of music.
+ - I don’t know anything about the Appalachian mountains or cowboys and Indians or anything. I just made it up.
+ - I’m singing ‘English Tea’ from my new album ‘Chaos and Creation in the Backyard.’ I have a cup of tea in the morning, so it’s something good to wake up to.
+ - I look a lot busier than I am, as I’m actually a rather sporadic, random person and I’ll play a few gigs and then disappear for a while.
+ - The good Lord made this world and everything that’s in it. The way I see it, baby, you got to love it to the limit.
+ - My old school in Liverpool is now a performing-arts school, and I kind of teach there – I use the word lightly – but I go there and talk to students.
+ - Lady Madonna lying on the bed Listen to the music playing in your head.
+ - When you said you were a terrible singer, I thought you were being humble. But you weren’t.
+ - Going to do it to you sweet banana, like it’s never been done, and we’ll get high, high, high, in the mid-day sun.
+ - Linda’s at her best when she’s doing you a meal at home. That’s when you see Linda. She cooks, she looks after the kids.
+ - We were a savage little lot, Liverpool kids, not pacifist or vegetarian or anything. But I feel I’ve gone beyond that, and that it was immature to be so prejudiced and believe in all the stereotypes.
+ - It’s not unusual for writers to look backward. Because that’s your pool of resources. If you were to write something now, I bet there’s a pretty good chance you’d call on your teenage years, your experiences then, stuff you learned then.
+ - It comes in handy in situations like that. People always expect you to be riding around in stretch limousines all the time, but I will sometimes take public transportation if it’s convenient, and it does surprise people, you see the heads turn.
+ - When we were kids we always used to say, ‘Okay, whoever dies first, get a message through.’ When John died, I thought, ‘Well, maybe we’ll get a message,’ because I know he knew the deal. I haven’t had a message from John.
+ - I can take pot or leave it. I got busted in Japan for it. I was nine days without it and there wasn’t a hint of withdrawal, nothing.
+ - I realized marvelling at nature was a deep pleasure of mine.
+ - John’s time and effort were, in the main, spent on pretty honorable stuff. As for the other side, well, nobody’s perfect, nobody’s Jesus. And look what they did to him.
+ - I hate the idea of success robbing you of your private life.
+ - A lot of the Beatles albums were very various, and we did it on purpose: We didn’t want the next track to sound like the last one.
+ - I’m often reading a magazine and hearing about someone’s new record, and I think : “Oh, boy, that’s gonna be better than me”. It’s a very common thing.
+ - I’m a pretty hands-on dad and make the most of my custody. I take care of my little one whenever I can, and she determines what I can do and where I can do it.
+ - I’m only 49 years old. I’m still in the middle of this whole thing. I don’t feel like it’s finished at all. I’m still planning to write better songs.
+ - The planet is under pressure and our choices have never been more important. The Food Revolution Summit is an informative and empowering platform which highlights ways to set a new pattern for the future of the planet.
+ - If children are studying the 20th century, I’m in their text books.
+ - Help them to learn songs of joy, instead of burn, baby, burn.
+ - When we were starting off as kids, just the idea of maybe going to do this as a living instead of getting what we thought was going to be a boring job, was exciting.
+ - I used to think that all my Wings stuff was second-rate stuff, but I began to meet younger kids, not kids from my Beatle generation, who would say, We really love this song.
+ - We don’t eat anything that has to be killed for us.
+ - No one is out to break your heart, it only seems that way.
+ - No matter how accomplished or how many awards you get, you’re always still thinking there’s somebody out there who’s better than you.
+ - I support decriminalisation. People are smoking pot anyway and to make them into criminals is wrong. It’s when you’re in jail you really become a criminal.
+ - A hundred years from now, people will listen to the music of the Beatles the same way we listen to Mozart.
+ - Give Ireland back to the Irish, don’t make them have to take it away.
+ - I can’t deal with the press; I hate all those Beatles questions.
+ - As far as art’s concerned, I probably like modern art more than traditional art.
+ - I lost my voice. I’d never had to cancel a show before and I had to walk around with a pad and a pen, writing things down.
+ - I would quite like to have been a 1920s writer.
+ - There are only four people who knew what the Beatles were about anyway.
+ - Being in the audience actually looks like quite a lot of fun.
+ - What I have to say is all in the music. If I want to say anything, I write a song.
+ - I’m mad, you know? I don’t think of retiring at all.
+ - Personal differences, musical differences, business differences, but most of all because I have a better time with my family.
+ - It’s as serious as anyone ever gets, you know. It’s just words. It’s just good poetry.
+ - My dad, bless him, was a musician. And his dad had thought that his music was rubbish.
+ - We got into music to avoid a job, and get lots of girls.
+ - Some people don’t believe in climate warning – like those who don’t believe there was a Holocaust.
+ - When you got a job to do, you got to do it well. You gotta give the other fellow hell.
+ - There’s nothing bigger than being asked to perform at the Super Bowl.
+ - George wrote Taxman, and I played guitar on it. He wrote it in anger at finding out what the taxman did. He had never known before then what could happen to your money.
+ - I tried heroin just the once. Even then, I didn’t realize I’d taken it. I was just handed something, smoked it, then found out what it was. It didn’t do anything for me, which was lucky because I wouldn’t have fancied heading down that road.
+ - I do have a spongelike ear or mentality or whatever you call it, but it’s probably a bit subconscious.
+ - One of my biggest thrills for me still is sitting down with a guitar or a piano and just out of nowhere trying to make a song happen.
+ - I just always enjoy it; if you really enjoy what you do, you don’t want to stop.
+ - It’s a lifelong gift, something you can call on at any time.
+ - And I loved Fats Waller. I love his instrumental abilities, his vocal abilities and his sense of humor.
+ - I’m not a great practiser at all. We were never great practisers. The Beatles would come together for about a day before we had a tour, to make sure the amp worked.
+ - Home in her apartment she’d dwell ’til the man from her dreams comes to break the spell.
+ - There are a lot of artists who haven’t lost anything to domesticity. In my case, it probably did happen.
+ - All at once we see things in our skies, and we both realize it together. Well you know they were wrong, get on the right thing.
+ - If you’re using your imagination, you tend to look into the past for ideas.
+ - I feel that if I said anything about John, I would have to sit here for five days and say it all. Or I don’t want to say anything.
+ - I think the pop industry is still a young man’s game.
+ - My dad was a particularly polite kind of guy, very courteous.
+ - The Pound is sinking, the Peso’s failing, the Lira’s reeling, and feeling quite appalling.
+ - I definitely did look up to John. We all looked up to John. He was older and he was very much the leader; he was the quickest wit and the smartest.
+ - Love is a robber and he lives within your eyes.
+ - I’ve got a few guitars that I like. The trouble with fame and riches is that you have more than one guitar.
+ - It was a period when they used to read into our lyrics a lot, used to think there was more in them than there was.
+ - I think I always had a musicality, and I think I could tell a good song from a bad song. And I would appreciate hearing something that was new to me.
+ - It’s also not unusual for writers to look backward. Because that’s your pool of resources.
+ - I would have liked the Beatles never to have broken up. I wanted to get us back on the road doing small places, then move up to our previous form and then go and play. Just make music, and whatever else there was would be secondary.
+ - I love the past. There are parts of the past I hate, of course.
+ - Looking back, I think I was always musical. My dad was very musical, and I think my mom was musical.
+ - I don’t take me seriously. If we get some giggles, I don’t mind.
+ - But you know, as a kid I would have thought of a vegetarian as a wimp.
+ - The interesting thing about the Beatles was: The music was one thing, but we kind of symbolized a certain kind of freedom at a time when people of our generation were just growing up and just becoming adults.
+ - It’s like there was me, then the Beatles phase, and now I’m me again.
+ - Putting two songs together, I’ve always loved that trick when it works.
+ - When you get the money, you still need to keep going; you don’t stop. There has to be something else. I think it’s the freedom to do what you want and to live your dreams.
+ - We would normally play it to Cynthia or whoever was around.
+ - I think people who create and write, it actually does flow-just flows from into their head, into their hand, and they write it down. It’s simple.
+ - I doubt very much if The Beatles would have happened if it was not for Elvis.
+ - Drugs had shown me little bits here and there-they had rolled across the carpet once or twice, but I had been able to get them out of my mind.
+ - In some ways we live in a world where things appear to be very logical, very rational, and mechanical aspects of our world are rather scientific and rather straightforward.
+ - This was one of the best things about Lennon and McCartney, the competitive element within the team. It was great. But hard to live with.
+ - I’m trying to do it honestly and genuinely; if some of it’s not working to your taste, what can I say?
+ - I don’t have any desire to learn. I feel it’s like a voodoo, that it would spoil things if I actually learnt how things are done.
+ - My so-called career is a haphazard thing.
+ - This is the first time I’ve ever played the Grammys. I finally passed the audition.
+ - She is the rock ‘n’ roll queen. Weirdly enough, that is one of the things her reign will be remembered for. Queen Elizabeth I, we remember Raleigh; Queen Elizabeth II it’s gonna be the Beatles.
+ - I play to all people, and I play to people not governments, and I believe strongly that all people are peaceful and would want peace.
+ - Trumpets are a bit more adventurous; they’re drunk! Trumpeters are generally drunk. It wets their whistle.
+ - I was still 15 when I met John Lennon at a village fete in Woolton, in Liverpool.
+ - You can fill my appetite without me taking up a bite.
+
+241 quotes

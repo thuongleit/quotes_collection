@@ -1,0 +1,324 @@
+ - The past is behind, learn from it. The future is ahead, prepare for it. The present is here, live it.
+ - Decisions determine destiny.
+ - The future is in your hands, the outcome is up to you.
+ - Remember who you are and what God expects you to become.
+ - The Book of Mormon changes lives.
+ - Learn from the past, prepare for the future, live in the present.
+ - God’s love is there for you whether or not you feel you deserve love. It is simply always there.
+ - Choose your love, Love your choice.
+ - Don’t save something for a special occasion. Every day of your life is a special occasion.
+ - We are reminded that anger doesn’t solve anything. It builds nothing, but it can destroy everything.
+ - Fill your mind with truth; fill your heart with love; fill your life with service.
+ - When we deal in generalities, we shall never succeed. When we deal in specifics, we shall rarely have a failure. When performance is measured, performance improves. When performance is measured and reported, the rate of performance accelerates.
+ - Our lives will depend upon the decisions which we make, for decisions determine destiny.
+ - I ask you to make INSTITUTE a PRIORITY.
+ - We can’t direct the wind, but we can adjust the sails. For maximum happiness, peace, and contentment, may we choose a positive attitude.
+ - Be of good cheer. The future is as bright as your faith.
+ - Happiness comes when we stop complaining about the troubles we have and offer thanks for all the troubles we don’t have.
+ - Our code of conduct is definitive; it is not negotiable.
+ - Let us be kind to one another, to be aware of each other’s needs, and try to help in that regard.
+ - You can achieve what you believe you can. Trust and believe and have faith.
+ - Life by the yard is hard; by the inch it’s a cinch. Decisions Determine Destiny.
+ - Our task is to become our best selves. One of God’s greatest gifts to us is the joy of trying again, for no failure ever need be final.
+ - So much in life depends on our attitude. The way we choose to see things and respond to others makes all the difference.
+ - Stand for right, even if you stand alone.
+ - Don’t limit yourself and don’t let others convince you that you are limited in what you can do. Believe in yourself and then live so as to reach your possibilities. You can achieve what you believe you can. Trust and believe and have faith.
+ - It has been said that the gate of history turns on small hinges, and so do people’s lives. The choices we make determine our destiny.
+ - Let us relish life as we live it, find joy in the journey, and share our love with family and friends.
+ - By choosing our path, we choose our destination.
+ - Without a goal there can be no real success.
+ - Help others in their race of life. Remember that when you help another up a mountain, you are a little nearer the top yourself.
+ - As we arise each morning, let us determine to respond with love and kindness to whatever might come our way.
+ - If you want to give light to others you have to glow yourself.
+ - I promise you that one day you will stand aside and look at your difficult times, you will realize that he was always there beside you.
+ - Love is the very essence of the gospel.
+ - May we be people of honesty and integrity trying to do the right thing at all times and in all circumstances.
+ - Hope is putting faith to work when doubting would be easier.
+ - Your patriarchal blessing is your passport to peace in this life. It is a Liahona of light to guide you unerringly to your heavenly home.
+ - When the time for decision arrives, the time for preparation is past.
+ - Christmas is the spirit of giving without a thought of getting. It is happiness because we see joy in people. It is forgetting self and finding time for others. It is discarding the meaningless and stressing the true values.
+ - Have an attitude of gratitude.
+ - Never, never, never postpone following a prompting.
+ - There is no tomorrow to remember if we don’t do something today, and to live most fully today, we must do that which is of greatest importance. Let us not procrastinate those things which matter most.
+ - If you will study the scriptures diligently, your power to avoid temptation and to receive direction of the Holy Ghost in all you do will be increased.
+ - Gaze Upward, Look Inward, Reach Outward, Press Forward.
+ - We tend to become like those whom we admire.
+ - The road to anywhere is the road to nowhere, and the road to nowhere leads to dreams sacrificed, opportunities squandered, and a life unfulfilled. In our journey we will encounter forks and turnings in the road.
+ - Have the moral courage to be a light for others to follow.
+ - Look to the lighthouse of the Lord. There is no fog so dense, no night so dark, no gale so strong, no mariner so lost but what its beacon light can rescue.
+ - You can’t be right by doing wrong; you can’t be wrong by doing right.
+ - To express gratitude is gracious and honorable, to enact gratitude is generous and noble, but to live with gratitude ever in our hearts is to touch heaven.
+ - Our most significant opportunities will be found in times of greatest difficulty.
+ - Men take care not to make women weep, for God counts their tears.
+ - Find joy in the journey.
+ - A woman needs to be told she is beautiful. She needs to be told she is valued. She needs to be told she is worthwhile.
+ - As we seek Christ, as we find Him, as we follow Him, we shall have the Christmas spirit, not for one fleeting day each year, but as a companion always.
+ - As you walk through life, always walk toward the light, and the shadows of life will fall behind you.
+ - When we treat people merely as they are, they will remain as they are. When we treat them as if they were what they should be, they will become what they should be.
+ - Oh, sweet the joy this sentence gives: ‘I know that my Redeemer lives!’
+ - Prayer is the passport to peace.
+ - A moral coward is one who is afraid to do what he thinks is right because others will disapprove or laugh. Remember that all men have their fears, but those who face their fears with dignity have courage as well.
+ - Testimony bearing is the key to missionary work.
+ - A man without a purpose is like a ship without a rudder – never likely to reach home port. To us comes the signal: chart your course, set your sail, position your rudder, and proceed.
+ - Courage, not compromise, brings the smile of God’s approval.
+ - Spiritual strength frequently comes through selfless service.
+ - Pray always, and be believing, and all things shall work together for your good.
+ - At times some may think that no one cares – but someone always cares! Your Heavenly Father will not leave you to struggle alone, but stands ever ready to help.
+ - Any excuse, no matter how valid, only weakens the character.
+ - Heavenly Father loves you – each of you. That love never changes.
+ - Choose good friends. Friends help to determine your future. You will tend to be like them and to be found where they choose to go. Remember, the path we follow in this life leads to the path we follow in the next.
+ - Heavenly Father has a picture of you on His dresser. He loves you and will help you. Call upon Him.
+ - He will lift you and guide you. He will not always take your afflictions from you, but He will comfort and lead you with love through whatever storm you face.
+ - We learn and grow and become stronger as we face and survive the trials through which we must pass.
+ - Physically walking where Jesus walked is less important than walking as He walked.
+ - Work will win when wishy washy wishing won t.
+ - We are never alone when we stand with our Father in Heaven.
+ - Missionary work is an identifying feature of The Church of Jesus Christ of Latter-day Saints. Always has it been; ever shall it be.
+ - Ours is the responsibility to keep our light bright for others to see and follow.
+ - You may sometimes be tempted to say, ‘Will my influence make any difference? I am just one. Will my service affect the work that dramatically?’ I testify to you that it will. You will never be able to measure your influence for good.
+ - We must develop the capacity to see men not as they are at present but as they may become.
+ - You can share your testimony in many ways, by the words you speak, by the example you set, by the manner in which you live your life.
+ - Through tears and trials, through fears and sorrows, through the heartache and loneliness of losing loved ones, there is assurance that life is everlasting. Our Lord and Savior is the living witness that such is so.
+ - Think to Thank. In these three words are the finest capsule course for a happy marriage, formula for enduring friendship, and a pattern for personal happiness.
+ - Opportunities are everywhere. Needed are eyes to see the pitiable plight and ears to hear the silent pleadings of a broken heart.
+ - No one can make us angry. It is our choice.
+ - We were not placed on this earth to walk alone.
+ - Wonderful, glorious things are in store for you, if only you will believe, obey, and endure.
+ - Study with purpose, both in church and in school. Write down your goals and what you plan to do to achieve them. Aim high, for you are capable...
+ - Dedicated missionary service returns a dividend of eternal joy which extends throughout mortality and into eternity.
+ - May we show increased kindness toward one another, and may we ever be found doing the work of the Lord.
+ - We cannot truly love God if we do not love our fellow travelers on this mortal journey.
+ - The gospel of Jesus Christ is that penetrating light which shines through the darkness of our lives.
+ - I testify that when we do all we can to accomplish the work that is before us, the Lord will make available to us the sacred key needed to unlock the treasure which we so much seek.
+ - Whether it is the best of times or the worst of times, He is with us. He has promised us that this will never change.
+ - There is no better time than now, this very Christmas season, for all of us to rededicate ourselves to the principles taught by Jesus the Christ.
+ - In the temple we can find peace. The blessings of the temple are priceless.
+ - It’s not enough to wish, it’s not enough to dream, it’s not enough to promise. We must do.
+ - A friend is more concerned about helping people than getting credit. A friend cares. A friend loves. A friend listens. And a friend reaches out.
+ - May we be faithful followers of Christ, examples of righteousness, thus becoming lights in the world.
+ - Love is the catalyst that causes change. Love is the balm that brings healing to the soul.
+ - True love can alter human lives and change human nature.
+ - Along your pathway of life you will observe that you are not the only traveler. There are others who need your help. There are feet to steady, hands to grasp, minds to encourage, hearts to inspire, and souls to save.
+ - Permissiveness, immorality, pornography, drugs, the power of peer pressure-all these and more-cause many to be tossed about on a sea of sin and crushed on the jagged reefs of lost opportunities, forfeited blessings, and shattered dreams.
+ - Let us not only remember the past and its required sacrifice, let us also remember that we are responsible to build a legacy for the generations which follow us.
+ - We are going to make mistakes, but none of us can become an expert in family history work without first being a novice.
+ - No problem is too small for His attention nor so large that He cannot answer the prayer of faith. Prayer surely is the passport to spiritual power.
+ - Our Heavenly Father is aware of our needs and will help us as we call upon Him for assistance. I believe that no concern of ours is too small or insignificant. The Lord is in the details of our lives.
+ - There are lives to brighten. There are hearts to touch. There are souls to save.
+ - By learning of Him, by believing in Him, by following Him, there is the capacity to become like Him.
+ - Kneel down to pray. Step up to serve. Reach out to rescue. Each is a vital page of God’s blueprint to make a house a home and a home a heaven.
+ - Cooperativeness is not so much learning how to get along with others as taking the kinks out of ourselves, so that others can get along with us.
+ - Our opportunities to give of ourselves are indeed limitless, but they are also perishable. There are hearts to gladden. There are kind words to say. There are gifts to be given. There are deeds to be done. There are souls to be saved.
+ - We truly need Him every hour, whether they be hours of sunshine or of rain.
+ - My brothers and sisters, do we remember to give thanks for the blessings we receive? Sincerely giving thanks not only helps us recognize our blessings, but it also unlocks the doors of heaven and helps us feel God’s love.
+ - My dear sisters, do not pray for tasks equal to your abilities, but pray for abilities equal to your tasks. Then the performance of your tasks will be no miracle, but you will be the miracle.
+ - The spirit of Christmas is the spirit of love and of generosity and of goodness. It illuminates the picture window of the soul, and we look out upon the world’s busy life and become more interested in people than in things.
+ - The courage to say no, the courage to say yes. Decisions do determine Destiny.
+ - When you’re on the Lord’s errand, you’re entitled to the Lord’s blessings.
+ - When faith replaces doubt, when selfless service eliminates selfish striving, the power of God brings to pass His purposes.
+ - Perhaps the surest test of an individual’s integrity is his refusal to do or say anything that would damage his self-respect.
+ - Children learn through gentle direction and persuasive teaching.
+ - Miracles are everywhere to be found when the priesthood is understood, its power is honored and used properly, and faith is exerted.
+ - Your mind is a cupboard and you stock the shelves.
+ - Wishing will not make it so. The Lord expects our thinking. He expects our action. He expects our labors. He expects our testimonies. He expects our devotion.
+ - He who gives money gives some, he who gives time gives more, and he who gives of himself gives all.
+ - How grateful we are that the heavens are indeed open, that the gospel of Jesus Christ has been restored, and that the Church is founded on the rock of revelation. We are a blessed people, with apostles and prophets upon the earth today.
+ - Who the Lord calls, the Lord will qualify.
+ - To live with gratitude ever in our hearts is to touch heaven.
+ - The battle for self-discipline may leave you a bit bruised and battered but always a better person.
+ - Despite the changes which come into our lives and with gratitude in our hearts, may we fill our days-as much as we can-with those things which matter most. May we cherish those we hold dear and express our love to them in word and in deed.
+ - Remember to pray fervently.
+ - Serving throughout the world is a great missionary force going about doing good. Missionaries teach truth. They dispel darkness. They spread joy. They bring precious souls to Christ.
+ - When fear replaces faith, remember prayer.
+ - In sickness, with its attendant pain, patience is required. If the only perfect man who ever lived-even Jesus of Nazareth-was called upon to endure great suffering, how can we, who are less than perfect, expect to be free of such challenges?
+ - If you are persistent, you will succeed.
+ - It is impossible to stand upright when one plants his roots in the shifting sands of popular opinion and approval.
+ - May we give as the Savior gave. To give of oneself is a holy gift. We give as a remembrance of all the Savior has given.
+ - The greatest force in the world today is the power of God as it works through man.
+ - No temptation, no pressure, no enticing can overcome us unless we allow such. If we make the wrong choice, we have no one to blame but ourselves.
+ - The principles of living greatly include the capacity to face trouble with courage, disappointment with cheerfulness, and trial with humility.
+ - God left the world unfinished; the pictures unpainted, the songs unsung, and the problems unsolved, that man might know the joys of creation.
+ - Prayer can solve more problems, alleviate more suffering, prevent more transgression, and bring about greater peace and contentment in the human soul than can be obtained in any other way.
+ - Our problem is that we often expect instantaneous solutions to such challenges, forgetting that frequently the heavenly virtue of patience is required.
+ - Blame keeps wounds open; only forgiveness heals.
+ - I wasn’t with Joseph, but I believe him. My faith did not come to me through science, and I will not permit so-called science to destroy it.
+ - Lessons learned in the home, last the longest.
+ - The Lord is in the details of our lives.
+ - Those who understand the eternal blessings which come from the temple know that no sacrifice is too great, no price too heavy, no struggle too difficult in order to receive those blessings.
+ - Through personal prayer, through family prayer, by trusting in God with faith, nothing wavering, we can call down to our rescue His mighty power.
+ - Ideals are like the stars – you can’t touch them with your hands, but by following them you reach your destination.
+ - The power to lead is the power to mislead, and the power to mislead is the power to destroy.
+ - Let us respect others no one lives alone in a city, a nation, or a world.
+ - Choose your friends carefully, for you will tend to be like them and be found where they choose to go.
+ - We will never regret the kind words spoken or the affection shown. Rather, our regrets will come if such things are omitted from our relationships with those who mean the most to us.
+ - Sometimes we let our thoughts of tomorrow take up too much of today. Daydreaming of the past and longing for the future may provide comfort but will not take the place of living in the present. This is the day of our opportunity, and we must grasp it.
+ - The Lord shapes the back to bear the burden placed upon it.
+ - We can lift ourselves, and others as well, when we refuse to remain in the realm of negative thought and cultivate within our hearts an attitude of gratitude.
+ - I urge you to live within your means. One cannot spend more than one earns and remain solvent. I promise you that you will then be happier than you would be if you were constantly worrying about how to make the next payment on nonessential debt.
+ - Ours is the responsibility to show our gratitude by the actions of our lives.
+ - Let us not demean or belittle. Rather, let us be compassionate and encouraging.
+ - There will be times when you will be frightened and discouraged. You may feel that you are defeated. The odds of obtaining victory may appear overwhelming. At times you may feel like David trying to fight Goliath. But remember-David did win!
+ - God and mother, partners in creation, in love, in sacrifice, in service, are as one.
+ - Christ’s peace can permeate any heart – hearts that are troubled, burdened with grief, confused, and pleading for help.
+ - Temples are more than stone and mortar. They are filled with faith and fasting. They are built of trials and testimonies. They are sanctified by sacrifice and service.
+ - The storm stops at the door. Love reigns, peace dwells.
+ - Your future depends on your Faith.
+ - Whenever we are inclined to feel burdened down with the blows of life, let us remember that others have passed the same way, have endured, and then have overcome.
+ - May your homes be filled with peace, harmony, courtesy, and love. May they be filled with the Spirit of the Lord.
+ - Each of our temples is an expression of our testimony that life beyond the grave is as real and as certain as is our life here on earth.
+ - Of course, we will face fear, experience ridicule, and meet opposition. Let us have the courage to defy the consensus, the courage to stand for principle. Courage, not compromise, brings the smile of God’s approval.
+ - To be angry is to yield to the influence of Satan. No one can make us angry. It is our choice. If we desire to have a proper spirit with us at all times, we must choose to refrain from becoming angry. I testify that such is possible.
+ - Missionary service is a priesthood duty.
+ - If we are to have the very best Christmas ever, we must listen for the sound of sandaled feet. We must reach out for the Carpenter’s hand. With every step we take in his footsteps, we abandon a doubt and gain a truth.
+ - The hand of a bride becomes the hand of a mother. Ever so gently she cares for her precious child. Bathing, dressing, feeding, comforting-there is no hand like mother’s. Nor does its tender care diminish through the years.
+ - Forgiveness should go hand-in-hand with love.
+ - It was by faith, nothing wavering, that Joseph saw God our Eternal Father and Jesus Christ, His Son.
+ - Things which provide deep and lasting happiness and gratitude are the things which money cannot buy: our families, the gospel, good friends, our health, our abilities, the love we receive from those around us.
+ - Courage is required to make an initial thrust towards ones coveted goal, But even greater courage is called for when one stumbles and must make a second effort to achieve.
+ - True love is a reflection of the Savior’s love. In December of each year we call it the Christmas Spirit.
+ - When God speaks and we obey, we will always be right.
+ - Let us not demeanor or belittle. Rather, let us be compassionate and encouraging,. We must be careful that we do not destroy another person’s confidence through careless words. or actions.
+ - Avoid any semblance of pornography. It is dangerous and addictive. If you continue to view pornography, your spirit will become desensitized and your conscience will erode.
+ - Prayer continues to provide power – spiritual power. Prayer continues to provide peace – spiritual peace.
+ - Through humble prayer, diligent preparation, and faithful service, we can succeed in our sacred callings.
+ - To you who are worthy and able to attend the temple, I would admonish you to go often. The temple is a place where we can find peace. There we receive a renewed dedication to the gospel and a strengthened resolve to keep the commandments.
+ - How does one magnify a calling? Simply by performing the service that pertains to it.
+ - I think there is no place in the world where I feel closer to the Lord than in one of His holy temples.
+ - What is most important almost always involves the people around us.
+ - Christmas is the spirit of giving without a thought of getting.
+ - Thinking is the hardest work anyone can do, which is probably the reason why we have so few thinkers.
+ - Each of us can do something to help someone.
+ - Wherefore, be of good cheer, and do not fear, for I the Lord am with you, and will stand by you.
+ - My brothers and sisters, may the spirit of love which comes at Christmas time fill our homes and our lives and linger there long after the tree is down and the lights are put away for another year.
+ - No one has learned the meaning of living until he has surrendered his ego to the service of his fellow man. Service to others is akin to duty, the fulfillment of which brings true joy.
+ - You have a heritage honor it. You have posses a testimony share it. You will face temptations withstand it. You know the truth live it.
+ - Men and women of integrity, character, and purpose have ever recognized a power higher than themselves and have sought through prayer to be guided by that power. Such has it ever been. So shall it ever be.
+ - Family prayer is the greatest deterrent to sin, and hence the most beneficent provider of joy and happiness. The old saying is yet true: ‘The family that prays together stays together.’
+ - How much better the world would be if we all gave gifts of understanding, and compassion, of service, and friendship, of kindness and gentleness.
+ - As a result of the sacred ordinances performed in the holy house of God, no light need be permanently extinguished, no voice permanently stilled, no place in our heart permanently left vacant.
+ - There are those who struggle every day with challenges. Let us extend to them our concern, as well as a helping hand. As we care for each other, we will be blessed.
+ - When we encounter challenges and problems in our lives, it is often difficult for us to focus on our blessings. However, if we reach deep enough and look hard enough, we will be able to feel and recognize just how much we have been given.
+ - Graduation is not the conclusion of an achievement but simply the ending of one chapter and the beginning of another chapter.
+ - May we all make the journey to Bethlehem in spirit, taking with us a tender caring heart as our gift to the Savior.
+ - I have found that, rather than dwelling on the negative, if we will take a step back and consider the blessings in our lives, including seemingly small, sometimes overlooked blessings, we can find greater happiness.
+ - You can dress attractively without being immodest. Within the Lord’s guidelines, there is room for you to be lively, vibrant, and beautiful both in your dress and in your actions.
+ - One day each of us will run out of tomorrows. Let us not put off what is important.
+ - There is really no way we can know the heart, the intentions, or the circumstances of someone who might say or do something we find reason to criticize. Thus the commandment: ‘Judge not.’
+ - Raising children, be aware that the piles and piles of laundry will disappear all too soon and that you will, to your surprise, miss them profoundly.
+ - Christmas is a glorious time of the year, simple in origin, deep in meaning, beautiful in tradition and custom, rich in memories, and charitable in spirit.
+ - Find someone who is having a hard time or is ill or lonely, and do something for him or her.
+ - The temples are a refuge from life’s storms even a never-failing beacon guiding us to safety.
+ - As we follow that Man of Galilee-even the Lord Jesus Christ-our personal influence will be felt for good wherever we are, whatever our callings.
+ - Times change; years speed by; but Christmas continues sacred.
+ - None of us will honor our Heavenly Father and our Savior more than by serving as a devoted, compassionate missionary, “For them that honour me I will honour.”
+ - Don’t forget: one of the saddest things in life is wasted talent.
+ - Times change, years speed by, but Christmas continues sacred. It is through giving, rather than getting, that the spirit of Christ enters our lives. God still speaks. He prompts. He guides. He blesses. He gives.
+ - I plead with you to have the courage to refrain from judging and criticizing those around you, as well as the courage to make certain that everyone is included and feels loved and valued.
+ - Home should be a haven of love. Honor, courtesy, and respect symbolize love and characterize the righteous family.
+ - If ingratitude be numbered among the serious sins, then gratitude takes its place among the noblest of virtues.
+ - The knowledge which we seek, the answers for which we yearn, and the strength which we desire today to meet the challenges of a complex and changing world can be ours when we willingly obey the Lord’s commandments.
+ - I hope that you will learn to take responsibility for your decisions. don’t take counsel of your fears.
+ - The road back to God is not nearly so steep nor is it so difficult as some would have us believe.
+ - One cannot remember mother and forget God.
+ - When you’re at a funeral and you’re crying, you’re crying for yourself.
+ - As the Christmas season envelops us with all its glory, may we, as did the Wise Men, seek a bright, particular star to guide us in our celebration of the Savior’s birth.
+ - Vice never leads to virtue. Hate never promotes love. Cowardice never gives courage. Doubt never inspires faith.
+ - We can bolster human spirits, clothe cold bodies, feed hungry people, comfort grieving hearts, and lift to new heights precious souls.
+ - Youth need less critics and more models.
+ - If we do not have a deep foundation of faith and a solid testimony of truth, we may have difficulty withstanding the harsh storms and icy winds of adversity which inevitably come to each of us.
+ - In reality, we are all travelers – even explorers of mortality.
+ - Remember that ofttimes the wisdom of God appears as foolishness to men, but the greatest single lesson we can learn in mortality is that when God speaks and a man obeys, that man will always be right.
+ - May we realize how close to us He is willing to come, how far He is willing to go to help us and how much He loves us.
+ - In the private sanctuary of one’s own conscience lies that spirit, that determination to cast off the old person and to measure up to the statue of true potential.
+ - The good you have done, the kind words you have spoken, the love you have shown to others, can never be fully measured.
+ - As we touch the temple and love the temple, our lives will reflect our faith. As we go to the holy house, as we remember the covenants we make therein, we will be able to bear every trial and overcome each temptation.
+ - Difficulties allow us to change for the better.
+ - Do we give thanks to God ‘for his unspeakable gift’ and His rich blessings so abundantly bestowed upon us?
+ - On occasion we need to make a second effort – and a third effort, and a fourth effort, and as many degrees of effort as may be required to accomplish what we strive to achieve.
+ - The work is demanding, the impact everlasting. This is no time for ‘summer soldiers’ in the army of the Lord.
+ - May we muster courage at the crossroads, courage for the conflicts, courage to say, “no,” courage to say, “yes,” for courage counts.
+ - Loving service anonymously given may be unknown to man-but the gift and the giver are known to God.
+ - I extol those who, with loving care and compassionate concern, feed the hungry, clothe the naked, and house the homeless. He who notes the sparrow’s fall will not be unmindful of such service.
+ - The Lord’s purposes are often accomplished as we pay heed to the guidance of the Spirit. I believe that the more we act upon the inspiration and impressions which come to us, the more the Lord will entrust to us His errands.
+ - No member of The Church of Jesus Christ of Latter-day Saints who has canned peas, topped beets, hauled hay, shoveled coal, or helped in any way to serve others ever forgets or regrets the experience of helping provide for those in need.
+ - To catch the real meaning of the Spirit of Christmas, we need only drop the last syllable, and it becomes the Spirit of Christ.
+ - Let us open wide the windows of our hearts, that each family member may feel welcome and ’at home.
+ - All that occurs within the walls of the temple is uplifting and enobling.
+ - Amidst the confusion of the times, the conflicts of conscience, and the turmoil of daily living, an abiding faith becomes an anchor to our lives.
+ - Courage becomes a worthwhile and meaningful virtue when it is regarded not so much as a willingness to die manfully but as a determination to live decently.
+ - The sweetest feeling in mortality is to realize that God, our Heavenly Father, knows each one of us and generously permits us to see and to share His divine power to save.
+ - Love thy neighbor is more than a divine truth. It is a pattern for perfection.
+ - Whatever our calling, regardless of our fears or anxieties, let us pray and then go and do.
+ - Some are young people who don’t know who they are, what they can be or even want to be. They are afraid, but they don’t know of what. They are angry, but they don’t know at whom. They are rejected and they don’t know why. All they want is to be somebody.
+ - There will be occasions in each of our lives when we will be called upon to explain or to defend our beliefs. When the time for performance arrives, the time for preparation is past.
+ - Self-discipline is a rigorous process at best; too many of us want it to be effortless and painless.
+ - We learn to pray by praying. One can devote countless hours to examining the experiences of others, but nothing penetrates the human heart as does a personal fervent prayer and its heaven sent response.
+ - We do not find truth groveling through error.
+ - How do we find the Lord? I believe we have to seek Him in simple things. I believe we have to seek Him in personal prayer. I believe we must seek Him in personal service. I believe we seek and find Jesus when we follow His example.
+ - Avoid pornography at all costs!
+ - With a strong testimony of the Savior and His restored gospel, you have limitless opportunities to shine.
+ - We must not let our passions destroy our dreams.
+ - I testify that each one of us can feel the Lord’s inspiration as we live worthily and strive to serve Him.
+ - When we keep the spirit of Christmas, we keep the spirit of Christ, for the Christmas spirit is the Christ spirit.
+ - It is our solemn duty, our precious privilege-even our sacred opportunity-to welcome to our homes and to our hearts the children who grace our lives.
+ - Often we live side by side but do not communicate heart to heart.
+ - I believe that no concern of ours is too small or insignificant.
+ - We need learn what we need to learn, know what we need to know, and do what we need to do.
+ - Our challenge is to join forces of the old and the new- experience and experiment, history and destiny, the world of man and the new world of science- but always in accordance with the never-changing word of God.
+ - I am certain that the Lord, who notes the fall of a sparrow, looks with compassion upon those who have been called upon to part, even temporarily, from their precious children.
+ - Man has made remarkable strides in conquering outer space, but how futile have been his efforts in conquering inner space- the space in our hearts and minds of men.
+ - Each heartfelt prayer, each Church meeting attended, each worthy friend, each righteous decision, each act of service perfomed all precede that goal of eternal life.
+ - The reward of eternal life requires effort.
+ - We cannot know what faith is if we have never had it, and we cannot obtain it as long as we deny it. Faith and doubt cannot exist in the same mind at the same time, for one will dispel the other.
+ - We should strive for steadiness, and for a commitment to God that does not ebb and flow with the years or the crises of our lives.
+ - Should doubt knock at your doorway, just say to those skeptical, disturbing, rebellious thoughts, I propose to stay with my faith, with the faith of my people.
+ - You will never be able to measure your influence for good.
+ - We may not only find faith in God in our sorrow. We may also become faithful to Him in times of calm.
+ - LOVE should be the very heart of FAMILY life.
+ - The most constant thing is change.
+ - The passage of time has not altered the capacity of the Redeemer to change lives.
+ - It is imperative that we recognize that whatever has happened to us has happened to others. They have coped and so must we. We are not alone. Heavenly Father’s help is near.
+ - Our Father’s commitment to us, His children, is unwavering. Indeed He softens the winters of our lives, but He also brightens our summers.
+ - In the search for our best selves, several questions will guide our thinking: Am I what I want to be? Am I closer to the Savior today than I was yesterday? Will I be closer yet tomorrow? Do I have the courage to change for the better?
+ - I counseled many returning missionaries. I interviewed 1,700 missionaries all over the world. My advice to them is that you should study and prepare for your life’s work in a field that you enjoy.
+ - As I contemplate all that you face in the world today, one word comes to my mind. It describes an attribute needed by all of us but one which you-at this time of your life and in this world-will need particularly. That attribute is courage.
+ - Anger does not solve anything; it builds nothing.
+ - I forbid you, agnostic, doubting thoughts, to destroy the house of my faith.
+ - The world around you is not equipped to provide the help you need to make it through this often treacherous journey.
+ - The all-important and crowning blessings of membership in the Church are those blessings which we receive in the temples of God.
+ - If we will put our trust in the Lord, he will help us through our difficulties, whatever they my be.
+ - No force in this world can stop the work of God.
+ - Let us make of our homes sanctuaries of righteousness, places of prayer, and abodes of love, that we might merit the blessings that can come only from our Heavenly Father.
+ - The lighthouse of the Lord sends forth signals readily recognized and never failing.
+ - Every bishop can testify to the promptings that attend calls to serve in the Church. Frequently the call seems to be for the benefit not so much of those to be taught or led as for the person who is to teach or lead.
+ - Though we may not necessarily forfeit our lives in service to our God, we can certainly demonstrate our love for Him by how well we serve Him.
+ - There is absolutely nothing in this world that will provide more comfort and happiness than a testimony of the truth.
+ - This is not a time for fear, brethren, but rather a time for faith – a time for each of us who holds the priesthood to be his best self.
+ - We continue to build temples. We desire that as many members as possible have an opportunity to attend the temple without having to travel inordinate distances.
+ - This will equally apply to every Latter-day Saint. Salvation is an individual operation.
+ - The way to be with God in every season is to strive to be near Him every week and each day.
+ - We need to learn how to separate need from greed.
+ - One sees a blatant disregard for the precious souls of mankind.
+ - So frequently we mistakenly believe that our children need more things, when in reality their silent pleadings are simply for more of our time.
+ - As we remember prayer and take time to turn to the scriptures, our lives will be infinitely more blessed and our burdens will be made lighter.
+ - There will come into every life moments of despair and the need for direction from a divine source-even an unspoken plea for help.
+ - When we qualify for the help of the Lord, we can build boys, we can mend men, we can accomplish miracles in His holy service. Our opportunities are without limit.
+ - Happiness comes from living the way the Lord wants you to live.
+ - Our opportunities to give of ourselves are indeed limitless, but they are also perishable.
+ - We find real joy when we keep the Savior the focus of the season.
+ - Each of us has much for which to be grateful if we will but pause and contemplate our blessings.
+ - I acknowledge that I do not understand the processes of creation, but I accept the fact of it.
+ - The future will present insurmountable problems- only when we consider them insurmountable.
+ - We are a temple-building and a temple-attending people.
+ - Everyone can be discontented if he ignores his blessings and looks only at his burdens.
+ - In short, if you have any question about whether a particular movie, book, or other form of entertainment is appropriate, don’t see it, don’t read it, don’t participate.
+ - Our Heavenly Father can appreciate our love for Him by how well we serve Him and how well we serve our fellowmen.
+ - Choose a field that will supply sufficient remuneration to provide adequately for your companion and your children. I bear testimony that these criteria are very important in choosing your life’s work.
+ - I urge you to hold fast to your standards. I plead with you not to waver.
+ - Make room for the Lord in your homes and in your hearts, and He will be your companion. He will be by your side.
+ - The ability to communicate is not something we are born with. We have to learn it and earn it.
+ - Our thinking will automatically improve when we remember the words of Paul: ’know ye not that ye are the temple of God, and the spirit of God dwelleth in you?
+ - As we emulate His example, we will bless lives, including our own.
+ - May you constantly nourish your testimonies of the gospel that they will be a protection to you against the buffetings of the adversary.
+
+322 quotes

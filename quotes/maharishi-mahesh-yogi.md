@@ -1,0 +1,193 @@
+ - All that we are is the result of what we have thought. The mind is everything. What we think, we become.
+ - Transcendental Meditation opens the awareness to the infinite reservoir of energy, creativity, and intelligence that lies deep within everyone.
+ - Do not fight the darkness, let the light in and the darkness will disappear.
+ - The secret of success is conviction and persistence.
+ - Nature supports right action.
+ - Be happy, healthy, and let all that love flow through your heart.
+ - Rest and activity are the steps of progress.
+ - The nature of life is to grow.
+ - From tiny, tiny waves of joy, one gets to the ocean of happiness, which is called bliss.
+ - There is nothing in life to take seriously except the joy of life.
+ - We must take situations as they are. We must only change our mental attitudes towards them.
+ - The practice of Transcendental Meditation creates a natural situation in the mind so that the mind entertains right thoughts, useful thoughts, thoughts that are cherished by nature and whose fulfillment is worked out by all the laws of nature.
+ - 1-Don’t analyze. 2-Don’t complain. 3-Don’t compare yourself to others. 4-Don’t expect things to be done for you. 5-Don’t expect perfection in the relative. 6-Look to the knowledge aspect daily. 7-Own the movement. 8-Problems are all in your head. 9-Hold yourself together.
+ - The important thing is this: to be able, at any moment, to sacrifice what we are for what we could become.
+ - The flower of life blooms in love and radiates love all around it.
+ - Established in Being, perform action.
+ - Integrated is the expression of knowledge: an assembly is significant in Unity: united are their minds in the silent dynamism of all possibilities.
+ - If world peace is to be established, peace in the individual must be established first. Transcendental Meditation directly brings peace in the individual life.
+ - Meditation is the direct means of enjoying the greatest happiness and is the only means to quench the thirst for happiness on earth.
+ - Inner life is Divine.
+ - Whatever we put our attention on will grow stronger in our life.
+ - The philosophy of life is this: Life is not a struggle, not a tension Life is bliss. It is eternal wisdom, eternal existence.
+ - Life finds its purpose and fulfillment in the expansion of happiness.
+ - Nature knows best how to organise.
+ - The highest state is laughter.
+ - The story of Love is the story of Love of Self.
+ - Water the root to enjoy the fruit.
+ - Consciousness, fully awake to itself, is the Light of God.
+ - Outside is the joy of the drop. Inside is the joy of the ocean.
+ - Knowledge is structured in consciousness.
+ - When the elephant decides to walk through the village, all the dogs come out and bark.
+ - See the job, do the job, stay out of the misery.
+ - We have an infinite number of reasons to be happy, and a serious responsibility not be serious.
+ - A comfortable and regulated life is needed for fastest pace of evolution.
+ - Love opens all doors, no matter how tightly closed they may be, no matter how rusty from lack of use. Your work is to bring unity and harmony, to open all those doors which have been closed for a long time. Have patience and tolerance. Open your heart all the time.
+ - Know what you want, decide when you want it, figure your plan of action, follow through on it, and never doubt.
+ - Fulfillment is structured in achievement, Achievement is structured in action, Action is structured in thinking, Thinking is structured in knowledge, Knowledge is structured in consciousness.
+ - Problems are not solved on the level of problems. Analyzing a problem to find its solution is like trying to restore freshness to a leaf by treating the leaf itself, whereas the solution lies in watering the root.
+ - Sleep in the bliss of God.
+ - The power of light is always bigger than the power of darkness.
+ - Meditation is the sharp tool to dig out the great treasure hidden within everybody’s inner personality.
+ - It is the focus on the highest ideal day after day that saves life from being wrapped up in small whirlwinds.
+ - What you see you become.
+ - Meditation makes the man Divine and brings the Divine to the world of man.
+ - Meditation is the only means to the harmonious development of the body, mind and soul.
+ - Happiness radiates like the fragrance from a flower, and draws all good things toward you.
+ - Nothing from outside can stop a man from enjoying lasting peace and permanent joy in life, for it is the essential nature of his own soul.
+ - Responsibility can never be given. It can only be taken.
+ - When you are appreciating creation as much as the Creator, then the Creator will ask, ‘Who is appreciating my creation as much as me. Let me see this person.’
+ - The process of education takes place in the field of consciousness; the prerequisite to complete education is therefore the full development of consciousness – enlightenment. Knowledge is not the basis of enlightenment, enlightenment is the basis of knowledge.
+ - Doubts are death. Doubts are the dry rot of life.
+ - Competition is for the competent.
+ - Just think of any negativity that comes to you as a raindrop falling into the ocean of your bliss. You may not always have an ocean of bliss, but think that way anyway and it will help it come. Doubting is not blissful and does not create happiness.
+ - The state of least excitation of consciousness is the field of all possibilities.
+ - We are not responding to this instant if we are judging any aspect of it.
+ - Nature’s government spontaneously brings satisfaction to everyone because it promotes all innumerable, diverse tendencies of life in the evolutionary direction.
+ - If you’re too busy to meditate twice a day, you’re just too busy.
+ - About humility we speak with an analogy: When the branches are full of fruit, they just bow down.
+ - The most effective teachers embody the teaching they give out.
+ - There is one unity, unified wholeness, total natural law, in the transcendental unified consciousness.
+ - Consciousness is the basis of all life and the field of all possibilities. Its nature is to expand and unfold its full potential. The impulse to evolve is thus inherent in the very nature of life.
+ - Life is not a struggle, not a tension. Life has not to be suffering. Life is bliss.
+ - As brain functioning becomes more and more integrated, consciousness – the mind – becomes more and more invincible, and then any dictate of the mind is immediately followed by the body.
+ - In the field of knowledge is all possibility.
+ - If you want to pay off your debts, it pays to increase your earning power.
+ - The search for total knowledge starts from the Self and finds its fulfillment in coming back to the Self, finding that everything is the expression of the Self – everything is the expression of my own Self.
+ - Nature is favourable to our effort when human awareness is being established more and more in pure consciousness.
+ - Allow your love to nourish yourself as well as others.
+ - It is the purity of man’s heart and mind, and his innocent and faithful approach to action with the purpose of all good to everyone, which really succeeds in yielding maximum results with minimum effort.
+ - Individual potential of life is cosmic potential. Individual is divine deep inside. Transcendental experience awakens that divinity in man. And when you kill a man you deprive him of that birthright of it.
+ - It may take a little self-discipline – be simple, be kind, stay rested. Attend to your own inner-health and happiness.
+ - A good teacher will appreciate the good qualities of his students. If one good quality is allowed to emerge, a world of good qualities will emerge from that one.
+ - When the mind is attuned to the cosmic law, all the laws of nature are in perfect harmony with the aspirations of the mind.
+ - Opposition is dangerous to immortality.
+ - The golden gate to peace in life is the experience of bliss, and it is easy for everyone to acquire this great glory and live it throughout life.
+ - Transcendental meditation is something that can be defined as a means to do what one wants to do in a better way, a right way, for maximum results.
+ - Only we should not be influenced by the winds.
+ - Meditation is the direct means of eradicating the very cause of the majority of diseases, both mental and physical.
+ - No action can be performed successfully without a clear result in view.
+ - If one is not happy, one has lost the very purpose of life...
+ - Success in anything is through happiness.
+ - Never think of failure, for what we think will come about.
+ - Day after day, we culture our minds with the deep silence of our own Being.
+ - Stress is the reason for crime and all other kinds of frustration. To relieve it will eliminate everything else.
+ - The ego searches for shortcomings and weaknesses. Love watches for any sign of strength. It sees how far each one has come and not how far he has to go.
+ - Gently resist the temptation to chase your dreams into the world; pursue them in your heart until they disappear into the Self, and leave them there.
+ - Life is all business. Spend your energy to get joy, happiness, evolution, and to gain more ability to enjoy. In this field we spend our energy. We never use our time, energy, speech, or ability to do something that doesn’t help us grow and improve our life. It’s not worth it.
+ - Do not oppose because in opposing the tenderness of the feeling level is crushed. That is why we say Speak the Truth but see that you are speaking delicately. Do not speak non-truth and do not speak in a non sweet way, so that the feeling is nourished.
+ - The constitution of the universe is total natural law. ‘Natural law,’ we say from the field of science. ‘Will of God,’ we say from the field of religion. It’s the same thing.
+ - Hard labour to succeed in the world? Hard labour no, no, human constitution, human physiology, human intelligence is made of infinite creative potential of Natural Law and therefore no-one has to work hard for success.
+ - Do not base your life on the likings and dislikings or whims of others. What you are in life – whether you enjoy or suffer – it is your own responsibility. Be regular in your meditation and do not postpone for a later date your striving for God consciousness.
+ - Naturalness is the basis of effectiveness.
+ - If a man is able to submit himself to nature, then nature will react to his needs. Almighty nature is all powerful and all loving, for the laws of nature are for the creation and evolution of all beings and creatures throughout the cosmos. There is no greater kindness than the kindness of nature.
+ - Like the air, God’s Grace is available to us. It is permeating every fibre of Being and the Being of the entire universe. When we take our attention to that Being, finer than the finest, then we establish ourselves on the level of God’s Grace. Immediately we just enjoy. Life is Bliss!
+ - The purpose of speech is to enliven the bliss in others.
+ - Good luck and good timing are the same thing.
+ - Love knows that nothing is ever needed but more love. It is what we all do with our hearts that affects others most deeply. It is not the movements of our body or the words within our minds that transmit love. We love from heart to heart.
+ - Problems will disappear as darkness disappears with the onset of light.
+ - When the conscious mind expands to embrace deeper levels of thinking, the thought wave becomes more powerful and results in added energy and intelligence.
+ - Master of the universe is every man’s potential insight, cosmic potential.
+ - With the practice of deep meditation the mind contacts the Bliss Consciousness of the Spirit and becomes more peaceful, happy, creative and powerful. This state of mind enriches all values of material life.
+ - That which comes slow comes solid.
+ - We are not satisfied with peace alone. There has to be prosperity, there has to be affluence, there has to be fulfillment in life, not just peace.
+ - Only a new seed will yield a new crop.
+ - The knowledge from an enlightened person breaks on the hard rocks of ignorance.
+ - If you believe in light, you’ll be in light, you don’t have to face darkness.
+ - Great amount of scientific research is there to show that health is better because transcendental meditation deals with consciousness, and consciousness is the basic value of all the physical expressions. The entire creation is the expression of consciousness.
+ - Life is all business.
+ - Bliss becomes blissful with practice. In our own bliss the desire, desirer and process of desiring are united – they are one. Desire is fulfilled at its source.
+ - The genius of man is hidden in the silent, settled state of mind from where every thought emerges.
+ - All freedom to man, but freedom is useful when we know what life is, when we know what past is, what present is, when we know how to go about things, not that every man should be left to experiment by himself.
+ - When the mind is opening to that unbounded pure awareness, the field of pure intelligence, simultaneously the body is losing stresses and strains, and thereby the clouds that were hindering the use of inner full creative intelligence in action, they begin to wither away.
+ - Be as delicate as possible. If communication accomplishes something on the gross but damages something on the level of feeling then it is a spiritual loss! The feeling is more important for life.
+ - That great, mighty current of evolution which is advancing the life of everything in creation is simply invincible – no one can resist it.
+ - When we think of failure; failure will be ours. If we remain undecided nothing will ever change. All we need to do is want to achieve something great and then simply to do it. Never think of failure, for what we think, will come about.
+ - We have been impossible right from the beginning and we must continue to be impossible because we are raising a voice against suffering which has been considered to be the nature of life. It is our joy to be considered impossible – and it is our greater joy to make the impossible a living reality.
+ - It’s as if we live in a house which has a vast treasury in one of its rooms. Only we’ve forgotten about it. So, instead of living a life of royalty, we go about in poverty.
+ - Meditation is the means through which the Soul dictates and guides the mind for all good.
+ - Meditation is a means to discover all the glories of the ocean of mind.
+ - They think democracy – I used to say damn the democracy, because it’s not a stable government.
+ - If we are able to meet these two requirements – regularity in meditation and leading a good life in society, day-to-day a good life – then nothing would be unattainable by us.
+ - All speech, action and behavior are fluctuations of consciousness. All life emerges from, and is sustained in, consciousness. The whole universe is the expression of consciousness. The reality of the universe is one unbounded ocean of consciousness in motion.
+ - I did not become great by association of The Beatles! Beatles make Maharishi great? Pah! It is a waste of thought.
+ - Consciousness in the individual is that area where the totality of life is located.
+ - Adopt the standard of perfection, because it is a perfect universe.
+ - Experience shows that Being is the essential, basic nature of the mind; but, since It commonly remains in tune with the senses projecting outwards toward the manifested realms of creation, the mind misses or fails to appreciate its own essential nature, just as the eyes are unable to see themselves.
+ - Unless an action is rightly thought out and its steps rightly planned, every stage of its performance will probably remain vague and therefore unsatisfactory for the doer and all those concerned.
+ - You are the master of all the laws of nature if you know the transcendental field.
+ - A loving heart, a heart full of love, is the precious essence of human life.
+ - The United States influences government and life everywhere else.
+ - Meditation is a technique to integrate one’s personality, to be able to live and enjoy full life of all glories – worldly and divine.
+ - Managers are the most creative people in the world.
+ - Behaviour arises from the level of one’s consciousness.
+ - God grants us the faculty to open ourselves to peace. If we don’t then we are responsible if wars continue.
+ - One’s own karma, one’s own actions are responsible to come to bring either happiness or success or whatever.
+ - There is nothing in the cosmos, either in the material plane or the spiritual plane which cannot be directly cognized.
+ - Personal love is concentrated universal love.
+ - Perfect health means no weakness anywhere, that is no weakness should remain in the body, or in the mind, or in the relationship between the body and the mind.
+ - The experience of happiness is a direct means of replenishing life energy and revitalizing the mind.
+ - I let people make remarks about me, but it doesn’t touch me, all those remarks.
+ - In the process of evolution, the body lasts for some time and then will take other body and take other body and take other body until the final redemption from diversity is transcended.
+ - What we have done, the result of that comes to us whenever it comes, either today, tomorrow, hundred years later, hundred lives later, whatever, whatever. And so, it’s our own karma. That is why that philosophy in every religion: Killing is sin. Killing is sin in every religion.
+ - Meditation is the most effective form of relaxation. It not only relaxes the body and mind but also feeds them with vital energy, peace and happiness.
+ - There is nothing difficult, there is nothing complicated, only one has to have a desire to have a better quality of life.
+ - Meditation is the best means of elongating life.
+ - Decide what you want and don’t think of the intermediary conditions. When Nature works for us we should want what we want and Nature will work it out for us.
+ - The Self of everyone, the Atma of everyone, the transcendental field of reality of everyone, is the same in everyone. Whether the body calls itself an American, German, Indian or Chinese, it doesn’t matter.
+ - What makes one luckier is the good that he has done to others. It comes back to him. A man doesn’t become lucky by doing wrong. He becomes lucky because he has done good to others and that good comes back to him. And now he is lucky.
+ - Alloted duty means you should live full potentiality with which you are born.
+ - We don’t do what we know is wrong.
+ - On the platform of reality, on the platform of oneness of life, all differences dissolve.
+ - Every thought, speech, and action of a person influences everything in the environment.
+ - Monks are not expected to speak about themselves; the message is important, not the person.
+ - Problems are all in your head.
+ - The kingdom of heaven is like electricity. You don’t see it. It is within you.
+ - To resolve problems through negotiation is a very childish approach.
+ - People are influenced by what we are, what we radiate. This has greater appeal than what we say.
+ - Being is the basis of thinking, thinking is the basis of action, action is the basis of achievement and achievement is the basis of fulfillment.
+ - The goal of the Transcendental Meditation technique is the state of enlightenment. This means we experience that inner calmness, that quiet state of least excitation, even when we are dynamically busy.
+ - If you are open with someone, he will be open with you. If you want love from someone, give your love to him. If you want kind and sympathetic behavior from someone, be kind and sympathetic to him...
+ - Meditation is the straight flight of the mind to the Kingdom of Heaven present in the heart of everyone.
+ - Like the hollow nothingness within the seed of a tree, which contains the potential of the entire tree, the experience of nothingness in the unmanifest field has within it the lively potential of everything in creation.
+ - Ideal relationship is based on giving.
+ - Divine is all Love in its essential nature, and Love is all Divine in its truthful expression.
+ - My coherence-creating groups are going to put out all this mischief-mongership in the world.
+ - In the United States we have the great Harvard Business School, but America is the country with the greatest debt in the world.
+ - The whole effect of activity is to enrich the feeling of the other.
+ - Just think of any negativity that comes to you as a raindrop falling into the ocean of your bliss.
+ - We are not in a position to criticize anyone. The existence of enemies means for us that our friendliness has not been sufficient enough.
+ - Whatever has been discovered has to be put to use – otherwise, what is the use of the discovery?
+ - Problems or successes, they all are the results of our own actions. Karma. The philosophy of action is that no one else is the giver of peace or happiness. One’s own karma, one’s own actions are responsible to come to bring either happiness or success or whatever.
+ - America is the most creative country and the most powerful government in the world.
+ - Modern psychology has pointed to the need of educating people to use a much larger portion of the mind. Transcendental meditation fulfills this need. And it can be taught very easily.
+ - The basic fundamental of behaviour should be to give.
+ - All world conflicts will be resolved if people listen to my advice.
+ - Don’t go for what you know you can get. Go for what you really want.
+ - There is time in life for everything.
+ - Life is here to Enjoy!
+ - Let the standard of everybody’s mind be raised to the heights of his own inner glory and then man will feel for himself the greatness of the higher values of life and would be tempted to bring them down into practical life and live them.
+ - Meditation is a glorious link to connect and harmonize the two ends of life – material and spiritual.
+ - Human concepts, no matter how grand they may appear, have limitations.
+ - Art arises from the interaction of the mind and the heart.
+ - Naturalness is the basis of effectiveness. If one poses to be something else, one loses the charm of naturalness. The result is that one accumulates stress.
+ - Just as a mountain of snow is nothing but water, so also the whole universe is nothing but bliss.
+ - Balance is the natural state of life, because the basic characteristic of the fundamental element of life, pure consciousness, is complete balance.
+ - Nature works in parallel ways.
+ - I want to eliminate the basis of problems and basis of crime, and basis of terrorism.
+ - My University of Management will create managers who will float in happiness, success and fulfillment.
+ - Where is the money going to come from? From wherever it is at the moment.
+ - In meditation we research the field without time and space and activity, and yet produce a useful effect while conducting the research.
+ - Life is bliss. It is unbounded, deep within; and it is full of boundaries outside. So we advise the people to turn the attention within, experience that unbounded wholeness of life, and bring the mind out fully saturated with that – start to live unboundedness in the field of boundaries.
+
+191 quotes

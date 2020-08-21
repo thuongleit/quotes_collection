@@ -1,0 +1,34 @@
+ - The object of art is not to reproduce reality, but to create a reality of the same intensity.
+ - The more I work, the more I see things differently, that is, everything gains in grandeur every day, becomes more and more unknown, more and more beautiful. The closer I come, the grander it is, the more remote it is.
+ - In a fire, between a Rembrandt and a cat, I would save the cat.
+ - The more you fail, the more you succeed. It is only when everything is lost and – instead of giving up – you go on, that you experience the momentary prospect of some slight progress. Suddenly you have the feeling – be it an illusion or not – that something new has opened up.
+ - In a burning building I would save a cat before a Rembrandt.
+ - Failure is my best friend. If I succeeded, it would be like dying. Maybe worse.
+ - That’s the terrible thing: the more one works on a picture, the more impossible it becomes to finish it.
+ - The older I grow, the more I find myself alone.
+ - If we master a bit of drawing, everything else is possible.
+ - Only reality interests me now and I know I could spend the rest of my life in copying a chair.
+ - It is impossible to do a thing the way I see it because the closer I get the more differently I see.
+ - I don’t know who I am or who I was. I know it less than ever. I do and I don’t identify myself with myself. Everything is totally contradictory, but maybe I have remained exactly as I was as a small boy of twelve.
+ - When one lives with problems of importance, the prostitute is ideal. You pay, and whether or not you fail is of no importance. She doesn’t care.
+ - The one thing that fills me with enthusiasm is to try, despite everything, to get nearer to those visions that seem so hard to express.
+ - If I see everything in gray, and in gray all the colors which I experience and which I would like to reproduce, then why should I use any other color?
+ - I’ve tried doing so, for it was never my intention to paint only with gray. But in the course of my work I have eliminated one color after another, and what has remained is gray, gray, gray!
+ - The human face is as strange to me as a countenance, which, the more one looks at it, the more it closes itself off and escapes by the steps of unknown stairways.
+ - The head is what matters. The rest of the body plays the part of antennae making life possible for people and life itself is inside the skull.
+ - When you look at art made by other people, you see what you need to see in it.
+ - In the past I have never thought about loneliness when working, and I don’t think about it now. Yet there must be a reason for the fact that so many people talk about it.
+ - The form is always the measure of the obsession.
+ - Taste for things of the past evolves, doesn’t it? What was a masterpiece a hundred years ago is no longer so today.
+ - I don’t know if I work in order to do something, or in order to know why I can’t do what I want to do.
+ - What I am looking for is not happiness. I work solely because it is impossible for me to do anything else.
+ - All the art of the past rises up before me, the art of all ages and all civilizations, everything becomes simultaneous, as if space had replaced time. Memories of works of art blend with affective memories, with my work, with my whole life.
+ - Artistically I am still a child with a whole life ahead of me to discover and create. I want something, but I won’t know what it is until I succeed in doing it.
+ - All I can do will only ever be a faint image of what I see and my success will always be less than my failure or perhaps equal to the failure.
+ - When I see a head from a great distance, it ceases to be a sphere and becomes an extreme confusion falling down into the abyss.
+ - I’ve been fifty thousand times to the Louvre. I have copied everything in drawing, trying to understand.
+ - At first, one sees the person who is modelling; but little by little, all of the possible sculptures that could be made come between artist and model.
+ - It was always disappointing to see that what I could really master in terms of form boiled down to so little.
+ - If only someone else could paint what I see, it would be marvellous, because then I wouldnt have to paint at all.
+
+32 quotes

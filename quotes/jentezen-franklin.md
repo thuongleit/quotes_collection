@@ -1,0 +1,47 @@
+ - Fasting is not just a physical discipline; it can be a spiritual feast.
+ - Bold prayers honor God, and God honors bold prayers.
+ - Three duties of every Christian are giving, praying, and fasting.
+ - When you are hunger for God, He will fill you.
+ - The discipline of fasting releases the anointing, the favor, and the blessing of God in the life of a Christian.
+ - Fasting is what prepares you for a new anointing.
+ - Fasting is a constant means of renewing yourself spiritually.
+ - Fasting is like spring cleaning for your body.
+ - Fasting is truly a secret source of power.
+ - There is a prophetic release that occurs in a church or an individual who fasts continually for forty days.
+ - Fasting stirs a hunger in your spirit that goes deeper than the temporary you experience in your flesh.
+ - Fasting is a tremendous weapon and a source of power in the life of a believer.
+ - Never speak words that allow the enemy to think he’s winning.
+ - God pours His oil into clean vessels!
+ - Every deed has a seed. In other words, the deeds you choose to do in this lifetime create a seed for future generations.
+ - Fast, worship, and seek Him.
+ - Many times the rewards of fasting come after the fast, though from time to time answers can come during the fast.
+ - Fasting breaks the spirit of heaviness.
+ - God knows there is never a convenient time to fast.
+ - We walk by faith. We don’t stay still, drowning in our misery.
+ - Fasting will break poverty from your life.
+ - The discipline of fasting breaks you out of the world’s routine.
+ - When giving, praying, and fasting are practiced together in the life of a believer, it creates a type of threefold cord that is not easily broken.
+ - Fasting humbles you and brings clarity, even allowing you to get unforgiveness and bitterness out of your heart.
+ - Blessing will happen to you and your family throughout the year because you faster in January.
+ - For me, fasting has just been a huge part of everything God has done in my life, Fasting means I am putting everything on hold, and I am spending the time with God. It brings everything in focus, and I become eternity-minded.
+ - Fasting gives your body time to heal itself. It relieves nervousness and tension and gives your digestive system a rest.
+ - If you want to please God, believe God.
+ - Whatever is stealing your peace and rocking your boat, what ever is taking your smile away, reach down, pick it up, and throw it overboard.
+ - Health and healing will follow fasting.
+ - If the devil starts bringing up your past it’s because he’s running out of new material!
+ - The truth is, sometimes you have to get left before you can get right. Sometimes God will take you left on your journey to get you right, to do a work in you that will prepare you for what He has for you.
+ - There is power in corporate fasting and power in corporate praise.
+ - Fasting lowers your blood pressure and can lower your cholesterol.
+ - Don’t allow the enemies in your life to cause you to focus more on your appetite or circumstances than on the promises of God that are released when you employ the powerful weapon of fasting.
+ - Begin a fast, and trust God to work that in your heart.
+ - Satan gets disturbed -and defeated -when you decide to do more that be a Sunday-morning Christian.
+ - The Son of God fasted because He knew there were supernatural things that could only be released that way.
+ - When you faithfully follow the three duties of a Christian, God rewards you openly.
+ - Failure will not stop you if you are determined to succeed.
+ - When the Holy Spirit calls your to fast, He is preparing you for what is ahead.
+ - You’re rich according to what you are, not according to what you have!
+ - Fasting will also overcome sexual additions and demonic powers.
+ - The secret to tapping into the supernatural is for you to have the courage to do the natural first.
+ - Periodic fasts are necessary to flush out the poisons.
+
+45 quotes

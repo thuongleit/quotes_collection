@@ -1,0 +1,32 @@
+ - We only have this one planet; we got to figure out how to live on it without destroying it.
+ - People will always put you in a box that they think you fit in, and it’s up to you to not fall into it.
+ - The key to successfully working with each other is that they respect each other and their abilities.
+ - I am still learning, myself, but I guess I would say to be aware of what is around you. Do not expect anything; there is more to be gained by earning it. Work hard, play fair, be kind to all living creatures, and take a moment to just sit back and breathe.
+ - I handle emotional pain by trying to understand that it’s going to be painful and to allow for it instead of fighting it. Doesn’t make it any easier, though.
+ - My husband says I like animals more than I like people. I take that as the compliment he means it as.
+ - I am inspired when I see goodness in other people. I am inspired by hard work and honesty. And I am inspired by nature.
+ - Animals are just as important as we are.
+ - I’m not very good at resting on my laurels. I am a bit of a workaholic, and I like to keep busy and active, so I think that’s what drives me.
+ - Chemistry is a hard thing. I don’t think you can force it, and it doesn’t necessarily mean that you have to have great chemistry outside of work. It’s just something that sparks on screen or doesn’t.
+ - I’ve never gone for the smooth, suave Latin or French lover. That usually makes me think they’re trying to pull one over on me.
+ - I definitely have to admit that I am fairly ignorant, not just to ‘Tron,’ but almost any pop culture thing that I should know, at my age. I grew up without a television and rarely got to see a movie, so I didn’t really see any of that stuff, and I haven’t been able to catch up since.
+ - Sometimes, if you don’t have kids yourself, it’s assumed you won’t understand or know how to play a mom, which is kind of silly if you think about it.
+ - When I was in high school I thought I was going to university into psychology.
+ - I just want to be challenged. I want to be proud of what I do, and I want to learn new things and keep growing.
+ - Sitcom hours are silly easy compared to drama. Whenever an actor on a sitcom complains, I feel like smacking them!
+ - The most important thing, when playing characters with chemistry, is being able to work off the other actor and be supported.
+ - It’s not hard to draw from within yourself to play someone protective of her daughter. I have animals and I’m a daughter, sister, wife, aunt and friend, and I can be fiercely protective.
+ - I eat vegetarian. I am just drawn to clean eating, and although I do not deprive myself of sweets or French fries once in a while, my body just feels better if I give it good fuel to work with.
+ - I’ve been living, I’ve lived in New York since I was 18 years old and traveled pretty much all over the world.
+ - I think I sort of blossomed, so to speak, around 17. I started to get hips and put on weight, which I was very happy about. And that’s when I met this agent, who told me I had to lose 10 pounds. I said, ‘You’ve got to be kidding me. I finally got it on – I’m not losing it!’
+ - I lump Canada and the States together. I like good old North American boys.
+ - I’m happy that I have agents and managers that believe in me.
+ - If you’re doing live-action, you have to learn how to actually do whatever it is that you’re doing. If you’re doing voice-over, you can fake it.
+ - As an actor, if I just did sci-fi, I think it would get limiting, like if you just play lawyers or doctors, over and over. It’s a lot more fun, if you get to play lots of different types of characters.
+ - I do like to treat myself, I just don’t do it very often.
+ - I think what I find challenging is just trying to bring a truthfulness and a realism to a character.
+ - I’ve always had a desire to play a cop or FBI agent.
+ - Treating myself is more about just going out and having a great hike, or going on a long motorbike ride.
+ - Ten episodes goes by really quickly, especially when you’ve got a really tough shooting schedule of seven-day episodes.
+
+30 quotes

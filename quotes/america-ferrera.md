@@ -1,0 +1,40 @@
+ - My siblings are my best friends.
+ - Nowadays I’d describe myself as earnest, terribly earnest. I’m the person who wants everybody in the room to feel important and happy.
+ - It’s so reassuring to have a woman heroine who triumphs with more than just what she has on the outside who has more to offer the world than just a pretty picture.
+ - Relationships take time and energy, and your job kind of sucks that all out of you. It takes an extra effort to stay present in a relationship when you are working so many hours.
+ - The most important thing you wear is your personality.
+ - I realized how Latina I was, and then also, at the same time, how not Latina enough I was, because I’m born and raised in Los Angeles. I speak Spanish, but I don’t speak perfect Spanish, not like a native speaker.
+ - I know that having the perfect body doesn’t fix all your problems, or make you love yourself more. To me, it’s all about being comfortable in your own skin.
+ - I just want to be in my sweats, walk my dog, watch TV and eat pizza.
+ - I struggled with being a Latino growing up in Los Angeles. I felt very American. I still do. I went to 35 bar mitzvahs before I went to a single quinceanera. I could talk all day about my culture and what it means to me.
+ - Finding the one is not just a feeling, it’s an educated guess. I feel like I chose someone to share my life with who is my friend.
+ - I’m okay if people don’t know who I am, but if you remember my character that would be great.
+ - I hope to be acting until I’m playing the role of Grandma, and I’d like to branch out in film – producing, directing, all of it. I’ll sleep when no one wants to hire me!
+ - What’s hard about being on the other side of the world is that sometimes the problem feels so big that changing one life doesn’t feel like enough. But it is.
+ - The first time I landed in New York and got a cab to my hotel, I was completely struck by it: a feeling of life and chaos, 24 hours around the clock, just like in London. And whatever your problem is, it’s insignificant. You’re just a small part of something very big.
+ - I’m the first one in line to go watch “Spider-Man,” but there’s definitely something in me that makes me want to go to a movie and see something that makes me feel good about life.
+ - Once I started drinking more water, my skin, hair and nails all flourished.
+ - Am I Latin? Am I American? What the hell am I? I love my culture and I’m very proud of my culture.
+ - You’d never catch me dancing on tables in public. I have no desire to be known for my personal life.
+ - You’ll never see me at the launch of the new PlayStation or some club. For me, the fun stuff is being able to get my mom tickets to ‘Dancing With the Stars’ – she loves Mario Lopez.
+ - To me, the tragedy about this whole image-obsessed society is that young girls get so caught up in just achieving that they forget to realize that they have so much more to offer the world.
+ - The name America has definitely grown on me. I wish there was a big patriotic story behind it, but the truth is that my grandfather was a librarian who knew all sorts of random facts.
+ - As a child, I didn’t know what I didn’t have. I’m thankful for the challenges early on in my life because now I have a perspective on the world and kind of know what’s important.
+ - I could have easily been too afraid to say ‘yes’ to Chicago, because it requires so much I haven’t done before. If I am a flop at singing and dancing, maybe my love for it will carry me through.
+ - I really hate the duties of being a celebrity, like getting dressed up for the red carpet.
+ - I’m not ashamed to say that I cried at an animation movie.
+ - I mean, I grew up in the Valley. All my friends were white Jewish kids. So the Latino kids thought I was this white girl.
+ - When you finish a series like ‘Ugly Betty,’ there are so many voices around you telling you what you should be doing next and what would be good for your future, sometimes you can’t hear yourself. I’ve gotten pretty good at tuning everyone else out. Now it’s just me; what pleases me creatively.
+ - My parents were both Spanish-speakers and they used to speak to me and my siblings in Spanish and we’d answer them in English.
+ - It would be impossible to be a woman in Western culture and not have your own issues about your image and what you look like.
+ - I’m not going to miss wearing the braces very much.
+ - Sometimes I worry more about losing weight than gaining weight, because this is how people know and accept me.
+ - I was an open, smiley and gregarious child. I could make friends in 30 seconds wherever I went.
+ - I don’t think running for office is anything I’m prepared for or could even prepare myself for.
+ - I was just so lucky with ‘Real Women Have Curves.’ At that point, I would have done an insurance commercial. I would have done anything.
+ - I am trying to be guided by my passion.
+ - What’s kind of wonderful about being the voice in an animated film is you’re a small part of an enormous production. And in a way, you get to remain a little bit objective.
+ - How much time have I wasted on diets and what I look like? People are saying ‘We love you and love what you do’ and you’re sitting there thinking ‘I’m not skinny enough or pretty enough.’ It’s taken a lot of work to get over that.
+ - I was young not too long ago, and I know the last thing you want is someone preaching to you.
+
+38 quotes

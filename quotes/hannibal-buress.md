@@ -1,0 +1,29 @@
+ - I have weird aspirations. Like, I really want to kick a pigeon.
+ - When people go through something rough in life, they say, “I’m taking it one day at a time.” Yes, so is everybody. Because that’s how time works.
+ - I applied for a job at Starbucks. One of the questions was, ‘Why do you want to work at Starbucks?’ Uh, because my life is in shambles.
+ - I don’t even know how to use a semicolon to this day; I use a comma every time. And you know what? If I email somebody and they get upset about me using a comma instead of a semicolon, that’s not a person I want to work with anyway. And that’s how you weed people out of your life.
+ - My dad named me after Hannibal Barca, the Carthaginian general who attacked Rome. But nobody knows about him.
+ - There’s a lot of dudes in my neighborhood that have handlebar mustaches. Which is cool if you want to have a handlebar mustache but don’t try to have a conversation with me like you don’t have a handlebar mustache.
+ - I like burritos more than Jesus because steak burritos are delicious. And they’re real.
+ - There have been times I’ve been out, and my phone battery is at nine percent, and I was like, ‘Time to go home.’
+ - We were talking about urban youth. And by urban I mean lives in a city not urban as in black like white people use it.
+ - I like smoking at home. I like it to be one of the last things I do that day. I don’t wake and bake at all; I couldn’t do that. If I’m waking and baking, then I’m staying inside my place the rest of the day. I can’t start my day off high.
+ - I like showing different types of comedy – showing that I could tell a story, or showing that I could do a one-liner, showing I could do stuff about music – so just trying to be versatile and talking about different topics.
+ - I’m a dumb guy. My point of view is limited.
+ - I’ve been going up and bombing everywhere. It’s great. I love it. It’s hilarious.
+ - I’d like to get more bit-acting roles. I don’t know if my talent would allow for a long dialogue, but I could definitely knock out three lines.
+ - If you want to do anything, you got to go do it. Perform a lot, write a lot, make yourself better. Use the Internet, make videos, create content.
+ - I smoke occasionally, but it’s not a part of my routine. I mean, I don’t need it.
+ - In my hometown of Chicago, I’m kind of a medium deal.
+ - I play myself on everything I do.
+ - People like to compare something to something that they know. Even with Chris Rock, they say he’s like Richard Pryor or Eddie Murphy.
+ - The jokes now, it’s just more stories and personal experiences. And just talking about things that really happened. It’s just becoming more comfortable as a performer, sharing my opinions on things, or things that’ve happened to me. That’s where it’s really going.
+ - I love stand-up. I look at it as a way to always stay productive. I couldn’t imagine only being an actor or a writer. Because what the hell do I do when I’m not working? Mope?
+ - Social media is interesting. It helps me connect with fans. It’s immediate. It’s a big part of my touring business – getting the word out via Twitter, Facebook, and Instagram.
+ - I didnt audition for SNL. I sent in a tape to SNL the year before I started writing there, but I got the job there through doing stand-up on Fallon.
+ - When somebody mangles one of my jokes, that bothers me more than somebody saying that I’m the worst comedian ever.
+ - When I’m doing shows I don’t need much from a city. All I’m looking for is a good meal and a decent spot to have a couple drinks.
+ - I can work as a writer, but I wanted to do stand-up. And I knew I could, at worst, work as a stand-up. And I like to travel, and I knew I wanted to do an hour special, so in order to get ready for that, I had to hit the road.
+ - I want to just at least make it weird for you to watch Cosby Show reruns.
+
+27 quotes

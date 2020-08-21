@@ -1,0 +1,121 @@
+ - Wake up determined. Go to bed satisfied.
+ - Always asked, ‘Whats the key to success?’ The key is, there is no key. Be humble, hungry and always be the hardest worker in the room.
+ - Success isn’t overnight. It’s when everyday you get a little better than the day before. It all adds up.
+ - The first step to achieving your goal, is to take a moment to respect your goal. Know what it means to you to achieve it.
+ - There is no substitute for hardwork. Always be humble and hungry.
+ - I’ve learned over the years that when it comes to success, consistency is key. Consistent hard work that we may not like doing today, but for a payoff we’ll love tomorrow. Earn it. Enjoy it.
+ - Grind Hard, Shine Hard.
+ - All successes begin with Self-Discipline. It starts with you.
+ - Think back 5 yrs ago. Think of where you’re at today. Think ahead 5 yrs and what you want to accomplish. Be Unstoppable.
+ - Don’t be afraid to be ambitious about your goals. Hard work never stops. Neither should your dreams.
+ - If something stands between you and your success – move it. Never be denied.
+ - One hard day of work proves you have heart. But day after day is what proves you have maturity and commitment.
+ - We do today what they won’t, so tomorrow we accomplish what they can’t.
+ - You don’t need directions, just point yourself to the top and go!
+ - The wall! Your success is on the other side. Can’t jump over it or go around it. You know what to do.
+ - I like to use the hard times of the past to motivate me today.
+ - In 1995 I had $7 bucks in my pocket and knew two things: I’m broke as hell and one day I won’t be. You Can Achieve Anything!
+ - With drive and a bit of talent, you can move mountains.
+ - Training for me is a metaphor for life, period. The dedication, the determination, the desire, the work ethic, the great successes and the great failures – I take that into life.
+ - It doesn’t matter what your name is!
+ - Those who are truly brave, shall never live in fear.
+ - The jabroni beating, pie eating, trail-blazin’, eyebrow raisin’, all around, smack it down People’s Champ, The Rock!
+ - To some its Hump Day. To us, it’s Wednesday’s getting its ass kicked and Thursday just asked Friday to switch places.
+ - I know how important it is to have people who believe in you even when you don’t believe in yourself.
+ - Great success breeds a lot of things, including sequels.
+ - One of the most important things you can accomplish is just being yourself.
+ - I want someone who can trust that my big hands are going to take care of them.
+ - If you check your ego at the door when it comes to comedy, you’ve got a pretty good shot at making a great movie that you can commit yourself to, you can jump off the proverbial cliff with, and have a great time, and the audiences respond to that.
+ - Know your roll and shut your mouth!
+ - Sometimes when we get our ass kicked and we’re down, sometimes we stay down, and sometimes we get depressed and sometimes we don’t know how to handle it, and sometimes we don’t know what’s going on, and sometimes we feel like it’s not worth going on.
+ - Take your ass to the corner of Know Your Role Boulevard and Jabroni Drive.
+ - Shine it up real nice, turn it sideways, and stick it straight up your candy ass!
+ - I love driving the cool cars, but there is nothing like driving a pickup truck.
+ - If you’ve ever been hungry, you can never be full.
+ - Being a true bad ass has no weight or gender requirement – just 100% commitment to greatness.
+ - It’s nice to be important but it’s even more important to be nice. I grew up in a world where there were a lot of big physical guys and woman so it’s always important to be nice to me.
+ - You’ve got to keep your finger on the pulse of what your audience is thinking, and know what they’ll accept from you.
+ - My goal was never to be the loudest or the craziest. It was to be the most entertaining.
+ - Well, The Rock says this, you should be concerned with fixing yourself a nice, tall glass of shut-up juice!
+ - Football changed my life and it gave me a platform to get out my aggression and it gave me a sense of value.
+ - I like the idea of making a big, fun, adventure type of movie.
+ - I’ve always loved the showmanship of professional wrestling. While I love making movies, I love that platform, too.
+ - As long as I can do something that I am passionate about and that I can really enjoy and the audience can enjoy. That is where my enthusiasm comes from.
+ - Creating things I think, especially as an actor – wanting to bring to the table things that have never been done before, but also making sure they’re of high quality and not having a fear.
+ - The Rock is, without a shadow of a doubt, the most electrifying man in sports entertainment today.
+ - Well, I might take a plane, I might take a train. How do you people live here? You must be insane. I’m leaving Sacramento. Sacramento, I won’t stay. But I’ll be sure to come back when the Lakers beat the Kings in May.
+ - Sweet cream on an ice cream sandwich!
+ - You will go one on one with the Great One!
+ - I’m sorry, Mankind can’t get to the phone right now, cause he’s got The Rock’s foot in his mouth!
+ - When I was a kid at four years old, that’s when I started amateur wrestling with my dad and family. And when that’s instilled in you, it never goes away.
+ - My philosophy is, it’s always very rewarding when you can make an audience laugh. I don’t mind making fun of myself. I like self-deprecating comedy. But I’d like you to laugh with me occasionally, too.
+ - The philosophy has always been pretty clean and straightforward which is if I see something that I like and I can see its value to the audience, its value to me, then I’m going to take my shot at it, regardless of the genre.
+ - How dare you little jabroni come onto The Rock shows Smackdown and run your mouth about how your the game, well The Rock says, if you are the game then you quite frankly you need to go back to the drawing board cause your game absolutely sucks!
+ - Kevin Kelly, let The Rock answer your question with a question of his own: Are you mentally, as well as physically prepared to tickle the anus of a monkey?
+ - With a haircut like that and a face like that, it looks like Billy Ray Cyrus went and had sex with a retarded hyena.
+ - It’s what I’ve learned over the years that has pushed me beyond limits.
+ - It’s easy to be a bad ass, it’s easy to act like a bad ass, easy to act like a tough guy, it’s easy to be a diva, and it’s easy to be self absorbed. The list goes on and on but to me, I always just find it more important to be nice and kind.
+ - When he speaks to you he speaks with an earnest vibe and an earnest energy.
+ - The money is of no concern to me, whatsoever. I started out with nothing.
+ - The Rock has just one thing to say to you: poontang your ass on out of here!
+ - Getting back into the action genre is like going back home. It’s great.
+ - I’m very low-key. I don’t really blend in, so it’s difficult to go out in public. I like to do things that are kind of quiet, whether it’s a dinner at my house or a restaurant, or a movie night at home.
+ - It’s important for everybody to creatively honor him in the best way that we possibly can.
+ - My goal as an actor is to grow and try different things.
+ - I love the 3D revolution. I love the technology today that continues to push the envelope, continues break the new ground, and continues to raise the bar.
+ - Every once in a while I get the highly inappropriate proposal which is like, ‘Wow, Really! You don’t even know me and I don’t know you at all, and you want that to happen? Tonight? Ok, I get off work at 7.30.’
+ - If you’re going to make a comedy and if your sole interest is in making people laugh and feel good and entertaining them, then you check your ego at the door.
+ - Barack Obama did tell me that I was one of Michelle Obama’s favorite actors.
+ - You don’t sign up for a divorce when you get married. It’s very painful. But it’s taught me a great deal about myself.
+ - Why do you ask The Rock stupid questions? Why are you an ugly hermaphrodite? Nobody knows, Kevin Kelly.
+ - And then all of a sudden, you’re doing jumping jacks, you’re happy, because Kane can talk. The Big Red Retard can finally speak.
+ - William Regal, what does besmirched mean?
+ - The fact of the matter is this: Austin can take his ball, and go home. But as far as The Rock is concerned, as far as I’m concerned, this is home.
+ - If I had to describe myself to an alien I’d say I was bigger than the average human, enjoy a drink or two with a good meal and have a bigger head than most. I’d also say I’m really handsome – especially if they were a female alien.
+ - I remember crying my eyes out when I watched the end of the Lion King.
+ - There’s something very cool as an actor when you have an opportunity to play somebody who’s real, whether they’re still alive or not, but who has lived a life.
+ - Now go back to Supercuts and get your $5 back jabroni!
+ - Let The Rock understand this, he beats your ass in cage match last week and now your the number 1 contender? Well The Rock knows exactly why that is; you’ve got a three foot nose you turn it sideways and stick it straight up Vince’s ass!
+ - I didn’t want to play by what rules are in Hollywood.
+ - I was brought up as an only child, and we were very close. But when I was 14, we got evicted. We came home to a padlock, and I looked up at my mom and she was crying, and there was nothing to do.
+ - Wrestling was like stand-up comedy for me.
+ - I grew up in a musical family; the majority of my growing up was done in Hawaii. It’s what we do. You sing, you dance, you play ukulele and you drink.
+ - The one thing I couldn’t identify with was the blue cowboy outfit he put on.
+ - When I was a kid, I was always enamored by – I appreciated the movies, and I was able to see them on VHS when I was a kid, but I was so enamored by the one-sheets and the posters. I had them in my room when I was a kid.
+ - I liked his ability to deal with a lot of the negativity that surrounded him. Even though he was in a world that he didn’t want to be in, he still saw the bigger picture.
+ - How families deal with loss, everyone has their own process.
+ - I tell you, the arts – and especially ballet – the discipline is extraordinary. I was extremely impressed.
+ - If you are halfway smart, and you could really listen to the audience, you could really learn a lot.
+ - I’d love to do a musical. I’ve been known to have a good step or two. I’m half Samoan, you know, and part of our culture is singing and dancing daily.
+ - I’m a passionate, hardcore fisherman. Biggest fish I caught? A 200-pound tarpon.
+ - WWE is a space where I thrived, and I loved, and I still do. I love connecting with an audience; that is the greatest thing about going back to WWE.
+ - But I do believe that there’s going to be a time where all movies are going to be made in 3D and it’s just going to be a given, and that is going to be an exciting time.
+ - I look for characters that are fun and that I’m going to have fun playing. By the way, that’s whether it’s drama, sci-fi, action, comedy, family movies or action-comedy. I just always want to have fun doing it. That’s the bottom line.
+ - What was important to me was entertaining the audience, and whether that meant winning, losing, singing, or whatever it was on the live show we were doing every week, which was awesome, I was game for it.
+ - I’m more patriotic than I am political – I appreciate politics but I’m not quite too sure if that’s a road I’m willing to go down.
+ - But being on location and shooting, whether its in Puerto Rico or Atlanta, it always reminds me of how really cool my job can be. Interacting with the fans is one of the best parts of it.
+ - If I like it, if I think the character is going to be fun, if I think the story is good and if it appeals to me, then I want to do it.
+ - I think that always makes it fun, trying to create a heroic character and putting your own twist on it and injecting your own personality into it.
+ - Any time I’m on-screen it is realistic because I don’t pull my punches or anything like that.
+ - The whole idea is just to continue to make movies that I enjoy playing and that audiences are going to enjoy me in, just to put out quality on a lot of different levels.
+ - Not only do I think being nice and kind is easy but being kind, in my opinion, is important.
+ - Change doesn’t begin when we get knocked on our ass. It begins the moment we decide to get back up on our own feet.
+ - Once you believe in who you are and who you were born to be, it can be very powerful.
+ - As you step every day and we’re going to see challenges, we going to see failures, we should certainly learn from the failures and be gracious with our successes too as well.
+ - The Rock is going to lay the smacketh down on your candy ass!
+ - Michael Cole, The Rock knows that you have never, EVER, had a piece of poontang pie!
+ - The only thing strong about the French Army is their damn body odor.
+ - Look at The Rock’s competition! Look at him! It looks like a big monkey came down here, took a crap, and out came Mankind!
+ - If you make a good family movie, then everybody in the family can relate to somebody, or in this case something. That’s always enjoyable. There’s always an important place for family movies.
+ - One of the skills I had to learn and become proficient in is kissing a man. I had never kissed a man. Will Smith did it in his movies, so did Jake Gyllenhaal, and I figured it was my time. So it was me and Steve Carell – fantastic.
+ - When you’re in sync with the director, on the type of movie you want to make, the arc of the characters, how the characters intertwine and interact, plotlines and story, and things like that, it really makes a difference.
+ - I never wanted to stay in one genre; I never wanted to be pigeon-holed or defined as the actor who only worked in one genre. I want to be able to work in all different genres. For me it’s fun, and that’s how I grow as an actor.
+ - I believe I’m not in the press, just in terms of being photographed and paparazzi all the time, or looking for that sensationalistic type of side or anything like that, so I keep things very quiet.
+ - That’s a traditional Samoan dance. I was lucky that I was able to fly my cousins, who are professional dancers, up from Hawaii and they were able to be in the movie with me. We had a great time.
+ - I can usually get the right connection with the crowd and I don’t have to be jumping off ladders.
+ - For me it came from the material. It was so well written and brought the opportunity to work with great actors. And of course the opportunity to mince about was an added element that I wanted to take advantage of!
+ - As an actor, you can have your own backstory and prepare all the details that you need to know for your character.
+ - The fans of our industry are extremely savvy. At the end of the day, they understand the business is a work. It’s entertainment, nothing more.
+ - I like the idea of working in different genres and transcending genres and hopefully finding success, and ultimately make movies people like.
+
+119 quotes

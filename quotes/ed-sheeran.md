@@ -1,0 +1,70 @@
+ - Success is the best revenge for anything.
+ - Be nice to everyone, always smile, and appreciate things because it could all be gone tomorrow.
+ - Negativity isn’t the way to go, smile more, eat some chocolate.
+ - Be a true Heart, not a follower.
+ - No one else is going to do it for you, if you want it bad enough then go out and do it yourself.
+ - People fall in love in mysterious ways. Maybe it’s all part of a plan...
+ - I think to be successful at anything you have to put in a hell of a lot of effort. Pick your battles. I picked music, put in a lot of effort, and it’s worked.
+ - The tongue has no bones, but can break a heart.
+ - I’ve fallen for your eyes but they don’t know me yet.
+ - Be yourself. Embrace your quirks.
+ - What didn’t kill me, it didn’t make me stronger at all.
+ - Granny Sheeran told me when I’m looking for a partner to fall in love with their eyes cause eyes are the only things that don’t age, so if you fall in love with their eyes you’ll be in love forever.
+ - The worst things in life comes free to us.
+ - And I know these scars will bleed, but both of our hearts believe all of these stars will guide us home.
+ - Pain is only relevant if it still hurts.
+ - It’s too cold outside for angels to fly.
+ - If I ever have any back-up dancers, I want the penguins from Madagascar.
+ - I would say, you can never do enough gigs and you can never do enough songs. Make sure that every opportunity you can, play a show and every opportunity you can, write a song.
+ - Without you to hold i’ll be freezing.
+ - Kiss me like you want to be loved.
+ - Be original; don’t be scared of being bold!
+ - The more you write tunes, the better they will become. The more you do gigs, the better you will become. It’s just kind of like the facts of life; the practice makes perfect thing. Keep your fingers crossed, start from the bottom and work your way up.
+ - I don’t know if my songs fit in films.
+ - Harry Potter is awesome.
+ - I’ll be drunk again to feel a little love.
+ - A sense of humor is an important thing to have because when you get into an argument, one of the best ways to diffuse it is to be funny.
+ - It’s too cold outside For angels to fly An angel will die Covered in white Closed eye And hoping for a better life This time, we’ll fade out tonight Straight down the line.
+ - I’m quite arty. I didn’t know whether to become an artist or musician but I realised I could paint with music. All my songs have colours.
+ - If love what you can’t have, then you have to love what you’ve got.
+ - I know you’ll never love me like you used to.
+ - I think if you have someone without a sense of humor, you’re less likely to be together.
+ - I’ve been feeling everything. From hate to love. From love to lust. From lust to truth. I guess that’s how I know you.
+ - And you should never cut your hair ’cos I love the way you flick it off your shoulders.
+ - I think YouTube has destroyed the genre barrier. People can be into Justin Bieber and Eminem at the same time. It’s a good thing.
+ - I personally don’t think ginger men have a habit of being attractive. We have to make ourselves seem attractive by doing stuff.
+ - Everyone knows almost everything about me. I make it very clear that I’m cool with people knowing all my personal life through my songs.
+ - I want to have a career that evolves as I go on.
+ - Whenever you have an ex, and they’re like, ‘I hope we can still be friends!’ and you weren’t friends before you started dating, then what do you go back to, really?
+ - I wanna be drunk when I wake up, on the right side of the wrong bed.
+ - Moments is about a girl dying and her boyfriend committing suicide because he can’t live without her.
+ - Never be friends with your exes if you weren’t friends with them before.
+ - I’ve never really been a confident person, except from a musical standpoint. I had to push myself early on, but it got easier with each gig.
+ - I think the moment you start trying to please a fan base is when you start going downhill. I’m going to always, always write about what I want, even if it doesn’t necessarily cater to most of them.
+ - I was on some TV shows with Lady Gaga the other week, and you could see the difference in reaction between her fans and my fans outside. She comes out, and she looks like a star, and the reaction is just tears, crying, people going, ‘Oh my God, Oh my God.’ My fans are like: ‘Alright, Ed.’
+ - With music, you could stick someone with a musical instrument or even not a musical instrument, get them to showcase their talent, and within 30 seconds you could tell whether they were good or not, but with acting you have to give them the right part.
+ - As far as songwriting, my inspirations came from love, life and death, and viewing other people’s situations.
+ - Country music is some of the best-written music in the world, so yeah, one day, I would keep my mind open to doing a country record.
+ - I really don’t know what’s good or bad art because all the art I like people tell me is tasteless.
+ - I think I’ve been around for a while. But I still have to pay my dues.
+ - Growing up, I was inspired by The Beatles and Bob Dylan. Damian Rice was a huge influence for me musically.
+ - I kind of like the way that I came up as an artist. I like experimenting.
+ - The more you write tunes, the better they will become. The more you do gigs, the better you will become.
+ - I don’t think that there’s much that sets me apart from other musicians, but I think there are definitely things that set me apart from other kinds of artists.
+ - I used to get drunk in venues after my shows and sign the walls “Ed was here.” So if you see that, it was me.
+ - The public has heard the stereotypical love songs a million times, and they’ve heard the stereotypical life-or-death songs millions of times. It’s good to mix it up a little bit.
+ - Instead of writing songs for girls, I tend to write albums, which I guess is a bit weird.
+ - Everyone still thinks I’m Scottish – that’s totally wicked.
+ - I think encouraging young people to twerk might be a bad thing. It’s a stripper’s move. If I had a daughter of nine, I wouldn’t want her twerking.
+ - I want to make the songs good. I think this is my main focus.
+ - For me, Spotify is not even a necessary evil. It helps me do what I want to do.
+ - In my eyes, there’s no one better than Stevie Wonder. He’s a top dude.
+ - I met Bill Clinton; he’s a very nice guy. Yeah, Bill Clinton’s cool.
+ - I’ve had years of teasing about my red hair, but I definitely think it toughened me up. If you’re ginger, you end up pretty quick-witted.
+ - I do like my hair. It took a while to come around to the fact that it was quite a unique value point.
+ - I don’t kind of want to be known as a one-trick pony who just does the adult-alternative song once a year that makes it onto the radio and people sort of think it’s nice.
+ - The whole ‘studly womaniser’ thing, I mean, I quite enjoy the title – it’s just not very accurate.
+ - I don’t really do that whole ‘single life’ thing. I’m kind of heads down and get things done.
+ - The thing that I took away as an early fan from Bob Dylan was the storytelling aspects. He can tell some wicked stories.
+
+68 quotes

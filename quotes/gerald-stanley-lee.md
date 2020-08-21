@@ -1,0 +1,23 @@
+ - Turning the other cheek is a kind of moral jiu-jitsu.
+ - America is a tune. It must be sung together.
+ - The new industrial world is coming to us one new free-born industry at a time.
+ - What was invented two thousand years ago was the spirit of Christianity.
+ - Machinery is the subconscious mind of the world.
+ - The problem of living in this modern world is the problem of finding room in it. The crowd principle is so universally at work through modern life that the geography of the world had been changed to conform to it. We live in crowds. We get our living in crowds. We are amused in herds.
+ - The great man is the man who can get himself made and who will get himself made out of anything he finds at hand.
+ - When America has been discovered in America it will be discovered in Europe. They are looking for America now.
+ - I have seen that Man moves over with each new generation into a bigger body, more awful, more reverent and more free than he has had before.
+ - There is never any real danger in allowing a pedestal for a hero. He never has time to sit on it. One sees him always over and over again kicking his pedestal out from under him, and using it to batter a world with.
+ - To be original is to discover the commonplace of a thousand years – to face at first the sneer that no one would have thought of it, and at last the indifference because any one would.
+ - Machinery makes men like itself.
+ - A vice is a failure of desire.
+ - We have had the stone age; we have had the iron age; and now we have the sky age, and the sky telegraph, and sky men, and sky cities. Mountains of stone are built out of men’s visions. Towers and skyscrapers swing up out of their wills and up out of their hearts.
+ - Cities are the huge central dynamos of all being. The power of a man can be measured today by the mile, the number of miles between him and the city; that is, between him and what the city stands for – the centre of mass.
+ - We may have hell if we have war, and we may have hell if we have peace. But if we have no vision for what we do, we have hell anyway.
+ - The first and most practical step in getting what one wants in this world is wanting it. One would think that the next step would be expressing what one wants. But it almost never is. It generally consists in wanting it still harder.
+ - No man living in a world as interesting as this ever writes a book if he can help it.
+ - Christmas it too large to be tucked away in the toe of a child’s stocking.
+ - Crowds speak in heroes.
+ - It is never the machines that are dead. It is only the mechanically-minded men that are dead.
+
+21 quotes

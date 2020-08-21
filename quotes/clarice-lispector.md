@@ -1,0 +1,49 @@
+ - Everything in the world began with a yes. One molecule said yes to another molecule and life was born.
+ - Who has not asked himself at some time or other: am I a monster or is this what it means to be a person?
+ - It is because I dove into the abyss that I am beginning to love the abyss I am made of.
+ - Do you know that hope sometimes consists only of a question without an answer?
+ - I write to save someone’s life, probably my own.
+ - To think is an act. To feel is a fact.
+ - Do not mourn the dead. They know what they are doing.
+ - I do not know much. But there are certain advantages in not knowing. Like virgin territory, the mind is free of preconceptions. Everything I do not know forms the greater part of me: This is my largesse. And with this I understand everything. The things I do not know constitute my truth.
+ - Brazil is where I have to be, where I have my roots.
+ - The world’s continual breathing is what we hear and call silence.
+ - There it is, the sea, the most incomprehensible of non-human existences.
+ - I write as if to save somebody’s life. Probably my own. Life is a kind of madness that death makes. Long live the dead because we live in them.
+ - My life, the most truthful one, is unrecognizable, extremely interior, and there is no single word that gives it meaning.
+ - I ask myself: is every story that has ever been written in this world, a story of suffering and affliction?
+ - And now – now it only remains for me to light a cigarette and go home. Dear God, only now am I remembering that people die. Does that include me? Don’t forget, in the meantime, that this is the season for strawberries. Yes.
+ - What I want is to live of that initial and primordial something that was what made some things reach the point of aspiring to be human.
+ - Love is so much more deadly than I had thought, love is so much inherent as the very lack, and we are guaranteed by a need to be renewed continuously. Love is now, is forever. There is just the blow of grace – call it passion.
+ - In the world there exists no aesthetic plane, not even the aesthetic plane of goodness.
+ - I only achieve simplicity with enormous effort.
+ - No it is not easy to write. It is as hard as breaking rocks. Sparks and splinters fly like shattered steel.
+ - Things were somehow so good that they were in danger of becoming very bad because what is fully mature is very close to rotting.
+ - But I welcome the darkness where the two eyes of that soft panther glow. The darkness is my cultural broth. The enchanted darkness. I go on speaking to you, risking disconnection: I’m subterraneously unattainable because of what I know.
+ - I work only with lost and founds.
+ - Her curiosity instructed her more than the answers she was given.
+ - You don’t understand music: you hear it. So hear me with your whole body.
+ - But don’t forget, in the meantime, that this is the season for strawberries. Yes.
+ - Living isn’t courage, knowing that you’re living, that’s courage.
+ - How was she to tie herself to a man without permitting him to imprison her? And was there some means of acquiring things without those things possessing her?
+ - Do you ever suddenly find it strange to be yourself?
+ - So long as I have questions to which there are no answers, I shall go on writing.
+ - And even sadness was also something for rich people, for people who could afford it, for people who didn’t have anything better to do. Sadness was a luxury.
+ - I hear the mad song of a little bird and crush butterflies between my fingers.
+ - I, who called love my hope for love.
+ - Today at school I wrote an essay about Flag Day which was so beautiful, but ever so beautiful – for I even used words without really knowing what they meant.
+ - I write and that way rid myself of me and then at last I can rest.
+ - For one has the right to shout. So, I am shouting.
+ - Holding someone’s hand was always my idea of joy.
+ - A horse is freedom so indominable that it becomes useless to imprison it to serve man: it lets itself be domesticated, but with a simple, rebellious toss of the head-shaking its mane like an abundance of free-flowing hair-it shows that its inner nature is always wild, translucent and free.
+ - I want the following word: splendor, splendor is fruit in all its succulence, fruit without sadness. I want vast distances. My savage intuition of myself.
+ - And I want to be held down. I don’t know what to do with the horrifying freedom that can destroy me.
+ - The mystery of human destiny is that we are fated, but that we have the freedom to fulfill or not fulfill our fate: realization of our fated destiny depends on us. While inhuman beings like the cockroach realize the entire cycle without going astray because they make no choices.
+ - I just know that I don’t want cheating. I refuse. I deepened myself but I don’t believe in myself because my thought is invented.
+ - For at the hour of death you became a celebrated film star, it is a moment of glory for everyone, when the choral music scales the top notes.
+ - The only truth is that I live. Sincerely, I live. Who am I? Well, that’s a bit much.
+ - Whether she won or lost, she would continue to wrestle with life. It would not be with her own life alone but with all of life. Something had finally been released within her. And there it was, the sea.
+ - For only when I err do I get away from what I know and what I understand. If “truth” were what I can understand, it would end up being but a small truth, my-sized. Truth must reside precisely in what I shall never understand.
+ - Even great men are only truly recognized and honored once they are dead. Why? Because those who praise them need to feel themselves somehow superior to the person praised, they need to feel they are making some concession.
+
+47 quotes

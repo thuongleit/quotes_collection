@@ -1,0 +1,75 @@
+ - This is a portrait of Iris Clert if I say so.
+ - I don’t really trust ideas, especially good ones. Rather I put my trust in the materials that confront me, because they put me in touch with the unknown.
+ - Being right can stop all the momentum of a very interesting idea.
+ - The artist’s job is to be a witness to his time in history.
+ - Understanding is a form of blindness. Good art, I think, can never be understood.
+ - I really feel sorry for people who think things like soap dishes or mirrors or Coke bottles are ugly, because they’re surrounded by things like that all day long, and it must make them miserable.
+ - It is impossible to have progress without conscience.
+ - I don’t think of myself as making art. I do what I do because I want to, because painting is the best way I’ve found to get along with myself.
+ - A newspaper that you’re not reading can be used for anything; and the same people didn’t think it was immoral to wrap their garbage in newspaper.
+ - Having to be different is the same trap as having to be the same.
+ - A canvas is never empty.
+ - Success is a worn down pencil.
+ - A pair of socks is no less suitable to make a painting with than wood, nails, turpentine, oil and fabric.
+ - I feel as though the world is a friendly boy walking along in the sun.
+ - People ask me, ‘Don’t you ever run out of ideas?’ In the first place I don’t use ideas. Every time I have an idea it’s too limiting, and usually turns out to be a disappointment. But I haven’t run out of curiosity.
+ - I feel strong in my belief, based on my widely traveled collaborations, that a one-to-one contact through art contains potent peaceful powers, and is the most non-elitist way to share information, hopefully seducing us into creating mutual understandings for the benefit of all.
+ - Painting relates to both art and life. Neither can be made – I try to act in the gap.
+ - For me there is no difference between art and life.
+ - Photography is the most direct communication in non-violent contacts.
+ - While my classmates were reading their textbooks, I drew in the margins.
+ - You can’t make either life or art, you have to work in the hole in between, which is undefined. That’s what makes the adventure of painting.
+ - I don’t want a picture to look like something it isn’t. I want it to look like something it is.
+ - Even at this late date, I go into my studio, and I think ‘Is this going to be it? Is it the end?’ You see, nearly everything terrorizes me. When an artist loses that terror, he’s through.
+ - I want my paintings to look like what’s going on outside my window rather than what’s inside my studio.
+ - Curiosity is the main energy.
+ - I’m quite taken aback when I get something that appears to be technically a good photograph, because it’s not necessarily my intention.
+ - I think a painting is more like the real world if it’s made out the real world.
+ - I refuse to be in this world by myself. I want an open commitment from the rest of the people.
+ - There’s a moment for everyone when you fall into your own shadow and the fact is that it’s your shadow and you’re forced to live in it. And this is nothing to celebrate or not celebrate. It simply is.
+ - Screwing things up is a virtue. Being correct is never the point. I have an almost fanatically correct assistant, and by the time she re-spells my words and corrects my punctuation, I can’t read what I wrote. Being right can stop all the momentum of a very interesting idea.
+ - I’m sure we don’t read old paintings the way they were intended.
+ - An empty canvas is full.
+ - You begin with the possibilities of the material.
+ - The working process is ideally freeing my mind.
+ - It’s so easy to be undisciplined. And to be disciplined is so against my character, my general nature anyway, that I have to strain a little bit to keep on the right track.
+ - Basically painting is total idiocy.
+ - And also the new excitement and variety of ways that the abstract expressionists were applying paint. You could put it on as though it were colored air and it would be painting.
+ - Painting is always strongest when in spite of composition, color, etc., it appears as a fact, or an inevitability, as opposed to a souvenir or arrangement.
+ - Well, I like way downtown near the Battery. I lived down there at this time and for, I guess, the following well, this is where I moved to uptown and I’ve been here for four years and this is 1965.
+ - There was a whole language that I could never make function for myself in relationship to painting, and that was attitudes like tortured, struggle, pain.
+ - With me, it’s much more a matter of accepting whatever happens, accepting all these elements from the outside and then trying to work with them in a sort of free collaboration.
+ - There was something about the self-confession and self-confusion of abstract expressionism – as though the man and the work were the same – that personally always put me off because at that time my focus was in the opposite direction.
+ - If you don’t have trouble paying the rent, you have trouble doing something else; one needs just a certain amount of trouble.
+ - You have to have the time to feel sorry for yourself in order to be a good abstract expressionist.
+ - If I declare it to be so, then this is a portrait.
+ - I wouldn’t use the same color in a picture in more than one place.
+ - I never allowed myself the luxury of those brilliant, beautiful colors until I went to India and saw people walking around in them or dragging them in the mud. I realised they were not so artificial.
+ - My concern is never art, but always what art can be used for.
+ - You wait until life is in the frame, then you have the permission to click. I like the adventure of waiting until the whole frame is full.
+ - I got so I was really just sick of sculpture.
+ - I am sick of talking about What and Why I am doing. I have always believed that the WORK is the word. Action is seen less clearly through reason. There are no shortcuts to directness.
+ - I don’t mess around with my subconscious.
+ - I had been working purely abstractly for so long, it was important for me to see whether I was working abstractly because I couldn’t work any other way, or whether I was doing it out of choice.
+ - Sometimes I have taken photographs and just felt so excited that I could barely hold the camera steady, and the photo was boring.
+ - Very quickly a painting is turned into a facsimile of itself when one becomes so familiar with with it that one recognizes it without looking at it.
+ - And I think that even today, New York still has more of this unexpected quality around every corner than any place else. It’s something quite extraordinary.
+ - I’ve not been cursed with talent, which could be a great inhibitor.
+ - I don’t think there’s anything really wrong with influence because I think that one can use another man’s art as material either literally or just implying that they’re doing that, without it representing a lack of a point of view.
+ - Every time I’ve moved, my work has changed radically.
+ - I always have searched for a point of view that a participant could change.
+ - I don’t think any one person, whether artist or not, has been given permission by anyone to put the responsibility of the way things are on anyone else.
+ - And all of this, all these physical aspects of painting at that time excited me very much. You could do a picture in just black and white. I mean all the things, whether you’re soliciting permission or not, do give you permission.
+ - I prefer images that are less specific, so there is room for everyone’s imagination.
+ - By the time you establish your priorities, there really isn’t any fun or need to interest yourself in what you’re doing. And this I find disastrous.
+ - But I was in awe of the painters; I mean I was new in New York, and I thought the painting that was going on here was just unbelievable.
+ - I’m not so facile that I can accomplish or find out what I want to know or explore enough of the possibilities and a way of making a painting, say, in just one painting or two paintings.
+ - And I think a painting has such a limited life anyway.
+ - I think that in the last twenty years or so, there’s been a new kind of honesty in painting where painters have been very proud of paint and have let it behave openly.
+ - I always have a good reason for taking something out but I never have one for putting something in. And I don’t want to, because that means that the picture is being painted predigested.
+ - So that ideas of sort of relaxed symmetry have been something for years that I have been concerned with because I think that symmetry is a neutral shape as opposed to a form of design.
+ - It’s when you’ve found out how to do certain things, that it’s time to stop doing them, because what’s missing is that you’re not including the risk.
+ - The only thing that I could get with chance, and I never was able to use it, was that I would end up with something quite geometric or the spirit that I was interested in, indulging in, was gone.
+ - It is neither Art for Art, nor Art against Art. I am for Art, but for Art that has nothing to do with Art. Art has everything to do with life, but it has nothing to do with Art.
+
+73 quotes

@@ -1,0 +1,41 @@
+ - Indecision is the key to flexibility.
+ - As a pirate, she once undressed a fencing instructor using only her sword!
+ - Death in anonymity is the ultimate insult to human dignity.
+ - If you want to be an anthropologist, you need to study physical anthropology specialized in bones. If you want to be a forensic chemist, get a degree in chemistry. Do you want to do DNA work? Get a degree in microbiology. And do well. Study hard and go to graduate school.
+ - I was a university professor, I could talk on and on and on. Give me a podium and you have to drag me off with a hook.
+ - Experience is a valuable thing. It enables us to recognize mistakes when we repeat them.
+ - High school popularity is so fickle.
+ - Let’s do it. Monkeys are always funny. You pretty much can’t go wrong with a monkey, right? Hi paused. Well unless that monkey wants you dead, or does needle drugs or something. Then it’s wrong, and a bad monkey.
+ - My line of work makes you aware of the fragility of life. You can get up in the morning, eat your cornflakes, blow-dry your hair, go to work and end up dead.
+ - God help anyone who messes with the Virals!
+ - She wanted to feel safe. Untouchable in her home. The ultimate female fantasy.
+ - People love to hate the gravedigger.
+ - Though a good cop, Luc Claudel has the patience of a firecracker, the sensitivity of Vlad the Impaler, and a persistent skepticism as to the value of forensic anthropology. Snappy dresser, though.
+ - Who’s going to rob us? A crackhead crab? A jellyfish junkie?
+ - Everyone’s gone mad, typing to themselves all day long like mindless robots.
+ - Tory a father isn’t supposed to fear his fourteen-year-old daughter. That being sad, you terrify me.
+ - Why do all your brilliant ideas involve felonies?
+ - I work with the dead, but I am working for the living.
+ - Chance wore a white tuxedo with tails. On anyone else? Doopy. On him? Yes, please.
+ - You’ll start talking, and pretty soon we’ll all start nodding, and then the next thing you know, I’m hang gliding off the Eiffel Tower at night, being chased by ninja vampires.
+ - I’m not writing great literature. I’m writing commercial fiction for people to enjoy the stories and to like the characters.
+ - I hated myself for needing him at such times, for craving his strength whenever I felt upset.
+ - Violence wounds the body and it wounds the soul. Of the predator. Of the prey. Of the mourners. Of collective humanity. It diminishes us all.
+ - An elite confederacy of nerds. My peeps.
+ - Today he wore a burnt-orange shirt, black pants, and a tie that looked like a street fight at the south end of the color wheel.
+ - I originally worked as an archaeologist in North Carolina, and when bones were found police would take them out to the bones lady at the university, and that was me.
+ - Ben locked his eyes on mine for a long moment. Then, “How?” “How do you think?” I smiled, then slapped him full across the face.
+ - One of the surprising things I hadn’t expected when I decided to write crime fiction is how much you are expected to be out in front of the public. Some writers aren’t comfortable with that. I don’t have a problem with that.
+ - I’ve never lost my capacity to be shocked.
+ - Edmonton is Canada’s answer to Omaha. Solid, unassuming, and surrounded by a whole lot of nothing. It’s a place that makes you think of sensible shoes.
+ - I’ve been accused of being a minimalist writer. I don’t like a lot of verbiage in there.
+ - Most Bolton students were scions of the city’s wealthiest families. My crewe stuck out like hooker at church. We werent part of their pampered, priveliged world, and many of our classmates were quick to remind us of that fact. Taunting the “boat kids” was practically a varsity sport.
+ - I have come to think of violence as a self-perpetuating mania of the power of the aggressive over those less strong.
+ - I tend to watch a lot of movies at home. It’s nice to be close to the refrigerator with my pyjamas on and just relax.
+ - I do interviews and signings and readings and all of these people just hang off my every word. And then I go home and have dinner with my family and nobody lets me get a word in.
+ - You’d be naive if you think you are going to retain any control once you option a character to TV.
+ - Gritty and witty, The Chicago Way is done the classic Raymond Chandler Way. Harvey’s taut plot, snappy prose, and memorable characters make this debut novel a real winner.
+ - Murder mysteries are puzzles that are fun to resolve.
+ - What gives my books authenticity is that I actually do what it is I’m writing about. I think the fact that I am in the autopsy room, I go to the crime scene and I do work in the lab gives my books this flavor that otherwise they wouldn’t have.
+
+39 quotes

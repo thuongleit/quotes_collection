@@ -1,0 +1,186 @@
+ - Our lives are not our own. We are bound to others, past and present, and by each crime and every kindness, we birth our future.
+ - Travel far enough, you meet yourself.
+ - What is any ocean but a multitude of drops?
+ - The weak are meat the strong do eat.
+ - I believe there is another world waiting for us. A better world. And I’ll be waiting for you there.
+ - I understand now that boundaries between noise and sound are conventions. All boundaries are conventions, waiting to be transcended. One may transcend any convention if only one can first conceive of doing so.
+ - My life amounts to no more than one drop in a limitless ocean. Yet what is any ocean, but a multitude of drops?
+ - The spirit was willing but the flesh was weak.
+ - You say you’re ‘depressed’ – all i see is resilience. You are allowed to feel messed up and inside out. It doesn’t mean you’re defective – it just means you’re human.
+ - Truth is singular. Its ‘versions’ are mistruths.
+ - A half-read book is a half-finished love affair.
+ - A book you finish reading is not the same book it was before you read it.
+ - Two people who are a little bit deluded in each other’s favour. That’s what love is, isn’t it?
+ - If losers can exploit what their adversaries teach them, yes, losers can become winners in the long term.
+ - We have just enough religion to make us hate, but not enough to make us love.
+ - Books don’t offer real escape, but they can stop a mind scratching itself raw.
+ - Dreams are shores where the ocean of spirit meets the land of matter. Dreams are beaches where the yet-to-be, the once-were, the will-never-be may walk awhile with the still are.
+ - Probably in a parallel universe not far from here, I’m working for Nintendo.
+ - In an individual, selfishness uglifies the soul; for the human species, selfishness is extinction.
+ - What is “poker”? A card game where abler liars take money off less able liars.
+ - If you’re in your life, chance. Viewed from the outside, like a book you’re reading, it’s fate all the way.
+ - I believe death is only a door. One closes, and another opens. If I were to imagine heaven, I would imagine a door opening. And he would be waiting for me there.
+ - Power, time, gravity, love. The forces that really kick ass are all invisible.
+ - I am, emphatically. Mental illness triggered by xperimental error.
+ - The world never stops unmaking what the world never stops making. But who says the world has to make sense?
+ - This isn’t lust. Lust wants, does the obvious Love is greedier. Love wants round-the-clock care; protection; rings, vows, joint accounts; scented candles on birthdays; life insurance. Babies. Love’s a dictator.
+ - The act of memory is an act of ghostwriting.
+ - As for reading, I wish I had a magic door to a library where I could go in, read for days and days, and come back in the same minute I left. I’m still looking for the door.
+ - Reality is the page. Life is the word.
+ - Dreams are all I have ever truly owned.
+ - The body is the outermost layer of the mind.
+ - Whoever dies with the most stuff wins.
+ - I wonder how many years Suga has been carrying his curse around with him. I forget that other people in the world have broken parts too.
+ - Unlimited power in the hands of limited people always leads to cruelty.
+ - But no, we cross, crisscross, and recross our old tracks like figure skaters.
+ - By each crime and every kindness, we birth our future.
+ - Secrets affect you more than you’d think. You lie to keep them hidden. You steer talk away from them. You worry someone’ll discover yours and tell the world. You think you are in charge of the secret, but isn’t it the secret who’s actually using you?
+ - We are both busy people, so let’s cut the small talk.
+ - Nothing is as eloquent as nothing.
+ - I am going to tell you a secret. Everything is about wanting. Everything. Things happen because of people wanting. Watch closely, and you’ll see what I mean.
+ - Writing is probably one-fifth coming up with the stuff, and four-fifths self-editing again and again and again.
+ - She was widely read enough to appreciate my literary wit but not so widely read that she knew my sources. I like that in a woman.
+ - Many children are natural fantasists, I think, perhaps because their imaginations have yet to be clobbered into submission by experience.
+ - I pass through many Me’s in the course of my day, each one selfish with his time. The Lying-in-Bed me and the Enjoying-the-Hot-Shower Me are particularly selfish. The Late Me loathes the pair of them.
+ - I can’t bear living in this huge beautiful world and not try to imitate it as best I can.
+ - To fool a judge, feign fascination, but to bamboozle the whole court, feign boredom.
+ - Writing is such a damn lonely sickness.
+ - When I think about it, I’m happily bewildered that people will preorder my books They’ll preorder me. What a lucky guy!
+ - What wouldn’t I give now for a never-changing map of the ever-constant ineffable? To possess, as it were, an atlas of clouds.
+ - Freedom!- is the fatuous jingle of our civilization, but only those deprived of it have the barest inkling re: what the stuff actually is.
+ - A weapon men use against women is the refusal to take them seriously.
+ - You can maintain power over people, as long as you give them something. Rob a man of everything, and that man will no longer be in your power.
+ - Human beings need to watch out for reasonless niceness too. It’s never reasonless and its reason’s not usually nice.
+ - Why ask a question whose answer would demand ten more questions?
+ - War may be an auction for countries. For soldiers it’s a lottery.
+ - It’s a small world. It keeps recrossing itself.
+ - False modesty can be worse than arrogance.
+ - Beyond the Indian hamlet, upon a forlorn strand, I happened on a trail of recent footprints.
+ - Trees’re always a relief, after people.
+ - I remain thankful to God for all his mercies.
+ - True knowledge without xperience is food without sustenance.
+ - Implausible truth can serve one better than plausible fiction.
+ - Go to hell, Willy, our souls eat poetry, but one has seven deadly sins to feed!
+ - I’m scared of the future. I’m scared of the past. I’m nervous at the moment.
+ - Under the Enrichment Laws, consumers have to spend a fixed quota of dollars each month, depending on their strata. Hoarding is an anti-corpocratic crime.
+ - One fine day a predatory world shall consume itself.
+ - Time is what stops history happening at once; time is the speed at which the past disappears.
+ - I’m from a time and place where bigheadedness was a really savage crime, and you’d get cut down for it by your peers and parents.
+ - We looked at each other for the last time; nothing is as eloquent as nothing.
+ - Maybe then you comprehend, speaking one language only is a prison!
+ - If I want to act relaxed, it’s going to take all my cunning, skill and concentration.
+ - Music’s a wood you walk through.
+ - Lying’s wrong, but when the world spins backwards, a small wrong may be a big right.
+ - How vulgar, this hankering after immortality, how vain, how false. Composers are merely scribblers of cave paintings. One writes music because winter is eternal and because, if one didn’t, the wolves and blizzards would be at one’s throat all the sooner.
+ - We are only what we know, and I wished to be so much more than I was, sorely.
+ - There’s a link between bigotry and bad spelling.
+ - If war’s first victim is truth, its second is clerical efficiency.
+ - Your turn has come to sift through the dreck of humanity for rare specks of originality.
+ - If swans weren’t real, myths’d make them up.
+ - As long as you can Houdini your way out of the Sisyphean constraints then originality happens.
+ - Men invented money Women invented mutual aid.
+ - Leaves turned to soil beneath my feet. Thus it is, trees eat themselves.
+ - Who was blowing on the nape of my neck.
+ - Don’t bemoan your misspent life quite yet. Forgive me for flaunting my experience, but you have no conception of what a misspent life constitutes.
+ - Perpetual encagement endows any mirage of salvation with credibility.
+ - Sometimes the fluffy bunny of incredulity zooms around the bend so rapidly that the greyhound of language is left, agog, in the starting cage.
+ - These jokes the world plays, they’re not funny at all.
+ - A life spent shaping a world I want Jackson to inherit, not one I fear Jackson shall inherit, this strikes me as a life worth the living.
+ - She has to lose her pre-Copernican view of a universe revolving around herself.
+ - Autumn is leaving its mellowness behind for its spiky, rotted stage. Don’t remember summer even saying goodbye.
+ - Memories are their own descendents masquerading as the ancestors of the present.
+ - Only professional diplomats, inveterate idiots and women view diplomacy as a long-term substitute for war.
+ - Do ants get headaches?
+ - Peace, though beloved of our Lord, is a cardinal virtue only if your neighbors share your conscience.
+ - Whoever opined “Money can’t buy you happiness” obviously had far too much of the stuff.
+ - Always, it is the poor people who pay. And always, it is the poor people’s women who pay the most.
+ - There are so many cities in every single city.
+ - What do I miss? Second-hand bookshops where I can find things I had no idea I wanted. AbeBooks helps, but it doesn’t have that smell.
+ - I’m not from a milieu where high-register language or philosophical ideas were welcome.
+ - It’s true that stammerers can become more adept at sentence construction.
+ - I often lose myself in the Sudoku-like challenges of making a book work.
+ - I rarely ever put my head above the rampart and see where this big lumbering behemoth called ‘global literature’ is going.
+ - Courage is the highest quality for a soldier, but technology is a fine substitute.
+ - I think we think in terms of stories.
+ - Human hunger birthed the Civlize, but human hunger killed it too.
+ - Japanese food makes me feel particularly good.
+ - The her that lived in her looked out through her eyes, through my eyes, and at the me that lives in me.
+ - One cannot pass by without thinking of the density of men in the ground.
+ - Faith, the least exclusive club on Earth, has the craftiest doorman. Every time I’ve stepped through its wide-open doorway, I find myself stepping out on the street again.
+ - Folks with most to complain about seldom complain most.
+ - Faith, the least exclusive club on Earth, has the craftiest doorman.
+ - Strip back the beliefs pasted on by governesses, schools, and states, you find indelible truths at one’s core.
+ - Science devises ever bloodier means of war until humanity’s powers of destruction overcome our powers of creation and our civilisation drives itself to extinction.
+ - I think words operate like musical notes that the eyeball hears.
+ - Historically, unfortunately, race seems to be the major division that humanity has imposed on itself, a way of subdividing into smaller groups.
+ - I added ‘writers’ to my list of people not to trust. They make everything up.
+ - When insolvent, pack minimally, with a valise tough enough to be thrown onto a London pavement from a first- or second-floor window. Insist on hotel rooms no higher.
+ - War’s an auction where whoever can pay the most in damage and still be standing wins.
+ - A life can get knocked into a new orbit by a car crash, a lottery win or just a bleary-eyed consultant giving bad news in a calm voice.
+ - Perhaps all human interaction is about wanting and getting.
+ - Any society’s upper-crust is riddled with immorality, how else d’you think they keep their power? Reputation is king of the public sphere, not private. It is dethroned by public acts.
+ - I really wish they hadn’t made the set out of asbestos.
+ - The rain’s innumerable hooves spatter on the streets and roofs.
+ - I can write pretty much anywhere.
+ - I lost my balance when the train pulled away, but a human crumple zone buffered my fall. We stayed like that, half fallen. Diagonal People.
+ - Integrity is a bugger, it really is. Lying can get you into difficulties, but to really wind up in the crappers try telling nothing but the truth.
+ - Don’t remember summer even saying goodbye.
+ - Once any tyranny becomes accepted as ordinary, its victory is assured.
+ - So winners, Hae-Joo proposed, are the real losers because they learn nothing? What, then, are losers? Winners?
+ - Mother used to say escape is never further than the nearest book.
+ - Little girls are like old cats. If they don’t like you nothing on Earth will make them pretend to.
+ - Love’s pure free joy when it works, but when it goes bad you pay for the good hours at loan-shark prices.
+ - It’s true, reading too many novels makes you go blind.
+ - The music provokes a sharp longing the music soothes.
+ - The healthy can’t understand the emptied, the broken.
+ - Anticipating the end of the world is humanity’s oldest passtime.
+ - Right, my phone. When these things first appeared, they were so cool. Only when it was too late did people realize they are as cool as electronic tags on remand prisoners.
+ - The best way to get out of debt is not to seek to get out of debt, but to seek to create wealth.
+ - The earth’s a door, if you press your ear against it.
+ - The most malicious god is the god of the counted chicken.
+ - An idler and a sluggard are as different as a gourmand and a glutton.
+ - If your words’re true, they’re armed.
+ - Write something every single day, even if it’s just three lines. And it doesn’t matter if it’s any good – just write something every day.
+ - One’s ribs shouldn’t be prison bars.
+ - Torturous advances won over generations can be lost by a single stroke of a myopic president’s pen or a vainglorious general’s sword.
+ - How could I know a famished heart will eat its mind? Can kill its body?
+ - Wars are never cured, they just go into remission for a few years.
+ - All revolutions are the sheerest fantasy until they happen; then they become historical inevitabilities.
+ - I’ve become a less brave traveller since I became a dad, but in the past I was more foolhardy than brave.
+ - The mind has a mind of its own. It shows us pictures. Pictures of the past and the might-one-day-be. This mind’s mind exerts its own will, too, and has its own voice.
+ - Any adaptation is a translation, and there is such a thing as an unreadably faithful translation; and I believe a degree of reinterpretatio n for the new language may be not only inevitable but desirable.
+ - A novelist needs to know his own strong points and weak points.
+ - The better organized the state, the duller its humanity.
+ - History admits no rules; only outcomes.
+ - Me, I want to bloody kick this moronic bloody world in the bloody teeth over and over till it bloody understands that not hurting people is ten bloody thousand times more bloody important than being right.
+ - Birdsong foamed in the hour-before-dawn garden.
+ - Taro taught me that people respect spirit, but even cowards don’t respect cowards.
+ - I’m not a great deep political thinker.
+ - Loneliness is an integral part of travelling. I used to think it was the downside to travelling, but now I realise it is a necessary educative part of it to be embraced.
+ - I feel like something important has happened to meIs this possible?
+ - Dead things show you what you’ll be too one day.
+ - Hate eats the hater the way ogres eat little boys.
+ - In the 1970s and 1980s there was so little decent fiction for young people, but we’re now in a golden age that shows no sign of fading. Philip Pullman, J. K. Rowling, Lemony Snicket are only three of the best known among a good number of equals.
+ - I’m a novelist, that’s how I make my livelihood, and I concentrate on the novels.
+ - Gosh. The subjunctive is always the first to go.
+ - I still haven’t quite got used to eating live fish.
+ - People are obscenities. Would rather be music than be a mass of tubes squeezing semisolids around itself for a few decades before becoming so dribblesome it’ll no longer function.
+ - The song instantly insisted it’d never existed.
+ - Words are what you fight with but what you fight about is whether or not you’re afraid of them.
+ - Lunatics are writers whose works write them.
+ - Creation never ceased on the sixth evening, it occurs to the young man. Creation unfolds around us, despite us and through us at the speed of days and nights. And we call it love.
+ - I think it’s natural for youth to be drawn to newness: The world is still new for them.
+ - For me, novels coalesce into being, rather than arrive fully formed.
+ - The human world is made of stories, not people.
+ - I think the story is the most ancient form of human entertainment.
+ - How lazily “xperts” dismiss what they fail to understand!
+ - This world, he thinks, contains just one masterpiece, and that is itself.
+ - As long as our civilisation keeps trundling along generally forwards, then there is the possibility of a future where ethnicity is merely an interesting badge, not a uniform you can’t take off.
+ - I love HBO productions, actually, like ‘The Wire.’
+ - Italians give their city sexes, and they all agree that the sex for a particular city is quite correct, but none of them can explain why. I love that. London’s middle-aged and male, respectably married but secretly gay.
+ - I have always preferred maps to books. They don’t answer you back.
+ - The uncreated and the dead exist solely in our actual and virtual pasts.
+ - The human world is made of stories, not people. The people the stories use to tell themselves are not to be blamed.
+ - Humans live in a pit of cheating, exploiting, hurting, incarcerating. Every time, the species wastes some part of what it could be. This waste is poisonous.
+
+184 quotes

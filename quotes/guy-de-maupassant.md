@@ -1,0 +1,63 @@
+ - You’ve never lived until you’ve almost died. For those who have fought for it, life has a flavor the protected shall never know.
+ - Our memory is a more perfect world than the universe: it gives back life to those who no longer exist.
+ - Whether we are describing a king, an assassin, a thief, an honest man, a prostitute, a nun, a young girl, or a stallholder in a market, it is always ourselves that we are describing.
+ - It is the lives we encounter that make life worth living.
+ - Solitude is indeed dangerous for a working intelligence. We need to have around us people who think and speak. When we are alone for a long time we people the void with phantoms.
+ - Travel, like dreams, is a door that opens from the real world into a world that is yet to be discovered.
+ - We breathe, sleep, drink, eat, work and then die! The end of life is death. What do you long for? Love? A few kisses and you will be powerless. Money? What for? To gratify your desires. Glory? What coems after it all? Death! Death alone is certain.
+ - I have coveted everything and taken pleasure in nothing.
+ - You must render: never report.
+ - Words dazzle and deceive because they are mimed by the face. But black words on a white page are the soul laid bare.
+ - Life is a slope. As long as you’re going up you’re always looking towards the top and you feel happy, but when you reach it, suddenly you can see the road going downhill and death at the end of it all. It’s slow going up and quick going down.
+ - The bed comprehends our whole life, for we were born in it, we live in it, and we shall die in it.
+ - The great artists are those who impose their personal vision upon humanity.
+ - We are accustomed to use our eyes only with the memory of what other people before us have thought about the object we are looking at.
+ - The essence of life is the smile of round female bottoms, under the shadow of cosmic boredom.
+ - Anguish of suspense made men even desire the arrival of enemies.
+ - Everything is false, everything is possible, everything is doubtful.
+ - The only certainty is death.
+ - Whatever you want to say, there is only one word to express it, only one verb to give it movement, only one adjective to qualify it.
+ - It is better to be unhappy in love than unhappy in marriage, but some people manage to be both.
+ - In fact living is dying.
+ - I entered literary life as a meteor, and I shall leave it like a thunderbolt.
+ - Legitimized love always despises its easygoing brother.
+ - The simplest of women are wonderful liars who can extricate themselves from the most difficult dilemmas with a skill bordering on genius.
+ - The past attracts me, the present frightens me, because the future is death.
+ - Every government has as much of a duty to avoid war as a ship’s captain has to avoid a shipwreck.
+ - A lawful kiss is never worth as much as a stolen one.
+ - Of all the passions, the only one that seems respectable to me is the passion for food.
+ - A sick thought can devour the body’s flesh more than fever or consumption.
+ - Love always has its price, come whence it may.
+ - To lie about a far country is easy.
+ - The secret is not to betray your ignorance. Just maneuver, avoid the quicksands and obstacles, and the rest can be found in a dictionary.
+ - There is only one good thing in life, and that is love. And how you misunderstand it! how you spoil it! You treat it as something solemn like a sacrament, or something to be bought, like a dress.
+ - We breathe love as we breathe air; we hold it in ourselves as we hold our thoughts. Nothing more exists for us.
+ - Broad daylight does not encourage the apprehension of horror.
+ - You’ll find that my coquetry is quite impartial, which allows me to keep my friends.
+ - Abstinence is the worst form of perversion.
+ - If I could, I would stop the passage of time. But hour follows on hour, minute on minute, each second robbing me of a morsel of myself for the nothing of tomorrow. I shall never experience this moment again.
+ - The public is composed of numerous groups whose cry to us writers is: ‘Comfort me.’ ‘Amuse me.’ ‘Touch my sympathies.’ ‘Make me sad.’ ‘Make me dream.’ ‘Make me laugh.’ ‘Make me shiver.’ ‘Make me weep.’ ‘Make me think.’
+ - Killing is decreed by law but nature loves eternal youth. Whatever she does, however unconscious and unfeeling the act, she seems to cry out: ‘Quick! Quick! Quick!’ And the more she destroys, the more she is renewed.
+ - The kiss itself is immortal. It travels from lip to lip, century to century, from age to age. Men and women garner these kisses, offer them to others and then die in turn.
+ - One sometimes weeps over one’s illusions with as much bitterness as over a death.
+ - Patriotism is a kind of religion; it is the egg from which wars are hatched.
+ - Those men, those of former times, had soul and eyes that in no way resemble ours, and in their veins, along with their blood, flowed something that has disappeared: love and admiration for the Beautiful.
+ - She was the temptress who had ensnared the first man, and who still continued her work at damnation; she was the being who is feeble, dangerous, mysteriously troubling. And even more than her body of perdition, he hated her loving soul.
+ - Since governments take the right of death over their people, it is not astonishing if the people should sometimes take the right of death over governments.
+ - You have the army of mediocrities followed by the multitude of fools. As the mediocrities and the fools always form the immense majority, it is impossible for them to elect an intelligent government.
+ - And taking her friend’s hand, she put it on her breast, on that firm round covering of a woman’s heart which the male often finds so satisfying that he makes no attempt to find what lies beneath it.
+ - History, that excitable and unreliable old lady.
+ - Night was a very different matter. It was dense, thicker than the very walls, and it was empty, so black, so immense that within it you could brush against appalling things and feel roaming and prowling around a strange, mysterious horror.
+ - Ale, not beer, in a pewter mug was comme il faut, the only thing for a gentleman of letters, worthy of the name, to drink.
+ - To avoid each other, their eyes had developed an amazing mobility with all the cunning of enemies fearful of meeting each other head on.
+ - Love is always love, come whence it may. A heart that beats at your approach, an eye that weeps when you go away are things so rare, so sweet, so precious that they must never be despised.
+ - To contest an author’s right to create a poetic or realistic work is to want to force him to change his temperament, challenge his originality, refuse to allow him to use the eye and the intelligence nature has given him.
+ - Great minds that are healthy are never considered geniuses, while this sublime qualification is lavished on brains that are often inferior but are slightly touched by madness.
+ - Conversation. What is it? A Mystery! It’s the art of never seeming bored, of touching everything with interest, of pleasing with trifles, of being fascinating with nothing at all.
+ - The English have only three sauces – a white one, a brown one and a yellow one, and none of them have any flavor whatever.
+ - There is only one good thing in life, and that is love.
+ - Military men are the scourges of the world.
+ - In the East men know panic, but they do not know what fright is.
+ - The glasses were half full, which meant that the guests were completely so.
+
+61 quotes

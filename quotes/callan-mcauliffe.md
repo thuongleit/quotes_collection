@@ -1,0 +1,31 @@
+ - The Australian accent is sort of like going down a step in smartness, you could say, because you guys pronounce things as they’re spelled. We add and abbreviate stuff.
+ - I like to sleep. I like to do nothing. Nothing is my favorite kind of something.
+ - I can run up a wall and do a back flip – that’s the most impressive thing that I can do.
+ - I didn’t really like my Sydney accent – nobody likes the sound of their own voice – and when I was a little younger tried to change my accent gradually. But I’ve only ever really lived in Sydney and Los Angeles, so I haven’t been influenced by the accents of some far-off land.
+ - I don’t go for girls who have beach blond hair, that stereotypical girl thing. But, you know, whatever comes around.
+ - I find that you learn from others. It’s very much about watching TV and watching movies for me and grasping that way and watching other people act.
+ - I’m not a big texter anyway. I’m really slow at it and so I try to avoid it to avoid embarrassment, you know what I mean?
+ - I guess I’d always mocked the American accent. I didn’t consider it a respectable dialect, but I was told that it was.
+ - I want to be able to have a conversation with people. I don’t want to be stupid. I’d like to have a life outside acting.
+ - I don’t want to scrounge around and be homeless, and I want to finish my education.
+ - I hate acting classes. I did a few, but I’ve always hated acting classes. I prefer to just watch a movie or watch TV and take it from there.
+ - A school out of Canberra sends me a term’s worth of work. I sit on the couch by myself and complete it and send it back.
+ - You know, every country needs another country to mock, and Australians seem to be pretty good at impersonating American people. Maybe it’s because all the movies and music and TV you see there is from America, so we just have the knack for it.
+ - The first American word that I learned was cheeseburger. And the first sentence I learned was, “I’m sorry but we don’t serve breakfast after 12 o’clock.”
+ - I wasn’t really geeky. In terms of the high school hierarchy, I was very much in the middle ground. You have the really popular guys, you have the nerdy guys, and then you have the people who really don’t care – and that was me. I wasn’t really picked on or anything like that.
+ - I never thought acting would be my life. I only started doing it because I needed something to occupy my weekends after I dislocated my knee and couldn’t play sport.
+ - I’ve always had a natural affiliation with nature. If I wasn’t an actor, I’d be some sort of biologist working in the field in Africa or something.
+ - Johnny Depp is really my favorite male actor. Ellen Page would be my favorite female actor. Both of them, just because of the diversity that Johnny plays in his roles and just the different characters that he morphs into, it’s fantastic.
+ - I would say I’m pretty much the exact same as the stereotypical American kid. I mean I’m really lazy, I play a lot of video games, I like girls. I like, you know, the violence and action type thing.
+ - There’s no director or actor that I want to work with more than anyone else, other then maybe Johnny Depp, who I really would love to work with. I don’t view any directors or actors above regular people, so I’m just happy to work with anyone, as long as they have talent.
+ - I can play songs that I hear from a movie and just play it a few times on the keyboard. I will hit all the notes on the keyboard until I find the right key, and then I will play the rest of the song.
+ - I’m not really one for fancy, big words and poetry, and the scriptwriters worked very hard on ‘Paradise Lost’ to translate it.
+ - I like people who are being normal and being themselves.
+ - Every country needs another country to make fun of.
+ - I don’t like concrete jungles.
+ - I go out with a lot of British people. Some of them say I sound a little tipsy.
+ - I’ve never been a really big fan of theatre. I don’t know why. It’s so much for effort. It’s much more difficult for me than stage acting just because of the pressure that’s piled on you and you have to learn the entire performance by heart.
+ - I believe in things that have proof.
+ - I hate watching myself, as do a lot of actors.
+
+29 quotes

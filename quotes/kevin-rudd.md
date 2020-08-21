@@ -1,0 +1,43 @@
+ - Attaining a PhD is just an excuse that all young women are using nowadays to avoid starting families.
+ - Education is both a tool of social justice as well as a fundamental driver of economic development.
+ - A future where all Australians, whatever their origins, are truly equal partners, with equal opportunities and with an equal stake in shaping the next chapter in the history of this great country, Australia.
+ - Australia is a nation of compassion. Courage and compassion. And the third of these great values: resilience.
+ - But Australia faces additional regional and global challenges also crucial to our nation’s future – climate change, questions of energy and food security, the rise of China and the rise of India. And we need a strong system of global and regional relationships and institutions to underpin stability.
+ - Something my mum taught me years and years and years ago, is life’s just too short to carry around a great bucket-load of anger and resentment and bitterness and hatreds and all that sort of stuff.
+ - For Australians, climate change is no longer a distant threat. Our rivers are dying, bush fires are more ferocious and more frequent and our natural wonders – the Great Barrier Reef, Kakadu, our rainforests – are now at risk.
+ - The Apology opened the opportunity for a new relationship based on mutual respect and mutual responsibility between Indigenous and non-Indigenous Australia. Because without mutual respect and mutual responsibility, the truth is we can achieve very little.
+ - My name is Kevin, I’m from Queensland, and I’m here to help.
+ - I am deeply committed to the cause of Indigenous Australians, and not just because of the Apology, but the big challenges which lie ahead in closing the gap.
+ - Compassion is not a dirty word. Compassion is not a sign of weakness. In my view, compassion in politics and in public policy is in fact a hallmark of great strength. It is a hallmark of a society which has about it a decency which speaks for itself.
+ - John Howard has gone a bridge too far by not going far enough.
+ - By 2050, the Australian population is expected to grow from 22 million to 36 million. That increase alone will put huge pressure on our towns and our cities. We will need more homes, more roads, more rail lines, more hospitals, more schools, just to accommodate so many Australians.
+ - There’s nothing like having a bit of somebody else in you.
+ - Would you like to work at home and earn $150 per hour with data entry?
+ - Senator Obama’s message of hope is not just for America’s future, it is also a message of hope for the world as well. A world which is now in many respects fearful for its future.
+ - Australians are a passionate lot. We are also a very practical lot.
+ - A continuing narrative throughout Australia’s history that says it is better to build up than to tear down – this is the continuing mission of Labor.
+ - Of course I base all my election promises and policies on opinion polls.
+ - Having a go at kids with a terminal illness is really beyond the pale, absolutely beyond the pale.
+ - I was elected by the Australian people to bring back a fair go for all Australians. I have given my absolute best to do that.
+ - People are happiest when they are giving, they are saddest when they are just taking. And that is the core message of community.
+ - As you know, the Australian Labour Party is committed to turning the country into a republic. We’ve not stipulated a timeline for doing that. We are sensitive to the other priorities we’ve got as a nation and in the world, but in time the country will head in that direction.
+ - I do not know whether I will be in this place for a short or a long time. That is for others to decide. But what I do know is that I have no intention of being here for the sake of just being here. Together with my colleagues it is my intention to make a difference .
+ - We are moving toward recognition of the first Australians in the Australian constitution.
+ - By way of personal instinct, I have an inherent distaste for grandiose rhetorical statements, which don’t have any substantive dimension to them.
+ - It is tragic that we have lost one of our nation’s finest actors in the prime of his life. Heath Ledger’s diverse and challenging roles will be remembered as some of the great performances by an Australian actor.
+ - John Howard’s credibility on the entire Iraq war has been torpedoed by John Howard’s own intelligence agency.
+ - If Australia wants an effective United Nations, we have to be comprehensively, not marginally, engaged.
+ - A core challenge for Australia is – how do we best prepare ourselves for the Asia Pacific century – to maximise the opportunities, to minimise the threats and to make our own active contribution to making this Asia-Pacific Century peaceful, prosperous and sustainable for us all.
+ - We have seen this complete right wing takeover of modern liberalism, and it is an ugly spectacle to behold.
+ - The Australian Government’s decision to take on the dominant funding role for the entire public hospital system is designed to: end the blame game; eliminate waste; and to shoulder the funding burden of the rapidly rising health costs of the future.
+ - The Government’s mission is to build a strong and fair Australia capable of meeting the new challenges of the 21st century.
+ - Because the time has come, well and truly come, for all peoples of our great country, for all citizens of our great commonwealth, for all Australians – those who are indigenous and those who are not – to come together to reconcile and together build a new future for our nation.
+ - My task, as a member of this parliament and a 30-year member of the Australian Labor Party, as its former leader, as its former foreign minister and its former prime minister, is to now throw my every effort in securing Julia Gillard’s re-election as Labor prime minister at the next election.
+ - Building a new Health and Hospitals Network is fundamental to building a stronger and fairer Australia.
+ - It is a high honour to be elected Prime Minister of Australia.
+ - We are so fortunate, as Australians, to have among us the oldest continuing cultures in human history. Cultures that link our nation with deepest antiquity. We have Aboriginal rock art in the Kimberley that is as ancient as the great Palaeolithic cave paintings at Altamira and Lascaux in Europe.
+ - I am determined to honour the confidence which has been extended to us by the people of our great land. And I say to all of those who have voted for us today, I say to each and every one of them that I will be a prime minister for all Australians.
+ - Mr Howard’s problem is for so long he’s been a climate change sceptic, how can he, therefore, put himself to the country as part of a climate change solution for the future.
+ - We have a prime minister, I’m the foreign minister, I’m trying to get on with the job of doing Australia’s foreign policy.
+
+41 quotes

@@ -1,0 +1,37 @@
+ - If you look good, you feel good, If you feel good, you play good, If you play good, they pay good.
+ - Water covers two-thirds of the Earth. I cover the rest.
+ - If your dream ain’t bigger than you, there’s a problem with your dream.
+ - If you don’t believe in yourself how will somebody else believe in you?
+ - Look good, play good. Play good, eat good. Eat good, die good.
+ - Whenever you make a promise, you have a responsibility to that promise.
+ - I got my dog back, in African-American language, your dog means your passion, your fire.
+ - Time is a wonderful storyteller.
+ - I never wear the same shoe twice.
+ - It’s gonna be a lot of zeroes in that contract. You gonna think it’s alphabet soup or something, all those zeroes in there.
+ - I’m married to football, baseball is my girlfriend.
+ - If I don’t fish in the morning, I fish in the evening.
+ - I would do this for free as long as you’re doing it for free.
+ - I was kinda scared. I thought Detroit was gonna take me. I would’ve asked them for so much money they would have to put me on layaway.
+ - There’s no class to manage people. There’s no class to teach on how to handle millions. There’s no class to teach us how to manage time.
+ - I expect to be great. I expect to do what hasn’t been done. I expect to provoke change.
+ - Whenever you have to come to my house and convince me to leave my home and play football, deep down in my heart I really don’t want to play, but I really don’t want to let you down.
+ - I felt like a deer with a hundred hunters after me.
+ - Bill Belichick is the best professional football coach I think ever lived. I’m upset that I played for a plethora of teams and never got an opportunity to play for Bill Belichick.
+ - I don’t care what they say about me when I’m through with sports. I don’t want to be known as anything else in life but a great father.
+ - When we have public success we also have private struggles.
+ - What separates us is that we expect to be great.
+ - Tom Brady rises up to the occasion and plays well. That is just who he is.
+ - Marshawn Lynch is the heart of this team. If he’s not going, the Seahawks aren’t going.
+ - I think he supersedes Peyton Manning but let’s not throw Tom Brady in the category with Joe Montana, who was 4-for-4. He’s royalty.
+ - When you say I committed adultery, are you stating before the marriage of 1996 or prior to?
+ - Jason Witten will go down as one of the best tight ends in history.
+ - Yes I would have been able to play for Bill Parcells.
+ - I always wanted to make sure my parents didn’t have to work again for the rest of their lives.
+ - I can really fish – I’ve been fishing since I was a kid.
+ - Athletes know kids look up to them, and it’s important for athletes to be responsible.
+ - I don’t think anybody in the game over the last several years has made more plays than Richard Sherman.
+ - Bill Belichick and Tom Brady are the masters of finding something that you didn’t suspect.
+ - Wives, girlfriends, fiancees – clean out your closets. I’m cleaning out my old bell bottoms. We can touch millions.
+ - You don’t go from a Yugo to a Benz, back to a Yugo.
+
+35 quotes

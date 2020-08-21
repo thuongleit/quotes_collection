@@ -1,0 +1,22 @@
+ - If you can’t forgive yourself, you think you’re never going to be able to forgive yourself.
+ - A person being patient with an insane person is my favorite thing in the world.
+ - If a guy doesn’t like a funny girl, something is wrong with him.
+ - I can’t cook. I can barely make a bowl of cereal.
+ - When I got to Saturday Night Live, it was a lot like going from pre-school to Harvard, and it took a long time to figure stuff out.
+ - All the stories have to do with emotion. Emotion is driving everything.
+ - No one knows anything. You’re going to make mistakes and you’re going to do things that people think are stupid. You can’t sit there and go, “I never want to make a mistake.”
+ - It’s not like you get up on stage and you’re immediately a genius. It takes a long time. So, don’t be discouraged.
+ - Comedy is incredibly hard. You have to be loose. You have to be not afraid to fail.
+ - Growing up in Oklahoma, there wasn’t much to do. Play sports, do a lot of drugs, or read and watch movies, which is what I did.
+ - I really enjoyed playing Vinny Vedecci, the Italian talk show host. He was the first character I ever came up with where I gave him a name and a way of dressing.
+ - I move out here, and next thing I know I’m 25, and the only thing I’ve heard is, ‘Can you get a coffee, can you hurry up with the thing, blah blah blah.’ It was nice doing something and hearing someone go, ‘Hey, you’re good at this.’
+ - A lot of times I think people, when they’re doing a movie that’s a family movie, they’re worried about this being too esoteric or too dark or too weird.
+ - I’m not a fan of the Eagles, but I’ve watched their documentary numerous times and everyone who’s watched it with me has sung along to the songs, much to my dismay.
+ - Oddly enough, I have really bad stage fright – getting up in front of people. And I made a living going on live television.
+ - Yeah, improvising only really works 100% when you’re with somebody.
+ - I would say the biggest difference is that you’re just in a studio by yourself when you’re making an animated movie. You don’t have anybody to play off of.
+ - The best thing to do is to get out in front of an audience as much as you can, and learn from the experience.
+ - I always felt better co-writing something – always co-writing. Because if I was the lead of it and it failed, then it failed on my own accord. I would say, “Well, I liked it or I screwed up. I take the hit on this one.”
+ - I was into writing and directing. I was a bit of a reluctant actor. I would always ask friends to shoot or direct their movies, but then they’d want me to be in them.
+
+20 quotes

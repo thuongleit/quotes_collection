@@ -1,0 +1,146 @@
+ - Be bold, be brave enough to be your true self.
+ - It’s not always easy to do the right thing. But, doing the right thing makes you strong, it builds character.
+ - Dreams become reality when we put our minds to it.
+ - Life’s not about sitting at home in front of the TV waiting for your life to begin. Get out there and take some chances.
+ - You can’t let fear paralyze you. The worse that can happen is you fail, but guess what: You get up and try again. Feel that pain, get over it, get up, dust yourself off and keep it moving.
+ - I had to grow to love my body. I did not have a good self-image at first. Finally it occurred to me, I’m either going to love me or hate me. And I chose to love myself. Then everything kind of sprung from there. Things that I thought weren’t attractive became sexy. Confidence makes you sexy.
+ - If you try to follow everyone else’s mold, you’ll probably fail at some point because God created us uniquely for a reason.
+ - I feel like every woman is a queen, and we should be treated as such, and we should, you know, sort of request that sort of treatment from others.
+ - I didn’t know I had it in me. There’s more to all of us than we realize. Life is so much bigger, grander, higher, and wider than we allow ourselves to think. We’re capable of so much more than we allow ourselves to believe.
+ - Always follow your own path.
+ - Once you realize there is a Higher Power, you know you’re not alone, that you have a purpose on the planet. You control your destiny instead of letting the day lead you where it may. You seize it, take it and lead it.
+ - Life is so much bigger, grander, higher, and wider than we allow ourselves to think.
+ - I don’t care how much money you have, free stuff is always a good thing.
+ - I don’t feel like I need to share my personal life, and I don’t care if people think I’m gay or not. Assume whatever you want. You do it anyway.
+ - You have to stand for what you believe in and sometimes you have to stand alone.
+ - For me, it might sound cliche, but beauty for me really does start on the inside. It’s like a state of mind, a state of love if you will. Then, whatever you can do on the outside is all like a bonus.
+ - Racism is ignorant. And it’s stupid. And it’s old. And it’s played out. So beat it already with that, you know what I mean? ‘Let’s all get along’ – I’m so tired of that damn sentence, but it’s true.
+ - When I was around 18, I looked in the mirror and said, ‘You’re either going to love yourself or hate yourself.’ And I decided to love myself. That changed a lot of things.
+ - If there are kids who want to follow in my footsteps, I’d say that my shoes are too big for them to fill! But their shoe size is just perfect.
+ - Sometimes I pray when I really feel like I need God to help me with something, and sometimes we just have conversations. We just kick it.
+ - I’m not living large; I just want to live comfortably. I wanna have financial stability that is unshakable.
+ - Every woman is a queen, and we all have different things to offer.
+ - Business is fun. Controlling your own destiny is fun. Creating an idea and turning it into a movie; finding an artist and guiding their career and bringing them to some type of status – there’s joy in that.
+ - For myself music definitely informs my emotions. And I can literally play a song that will get me where I need to be emotionally. I don’t have to think about the tragic things that happened in my life or the greatest things that happened in my life.
+ - No one ever got ahead by going through the motions. You have to constantly be improving yourself. Make your life the masterpiece you want it to be.
+ - I decided early on that I was going to put on my crown and rule my world by acting right and treating myself like a queen.
+ - Most people don’t have so much talent that they can become a success all their own. We all need people to help us and lift us up.
+ - A confident woman is a sexy woman, in my opinion. And I think guys find that to be the same way.
+ - Hip-hop definitely taught me a lot. Having to create your own identity and become known and respected in a male-dominated field – it requires some guts. There are times you have to be strong, and times when you have to stand alone for what you believe in.
+ - Look at people for an example, but then make sure to do things your way. Surround yourself with positive people.
+ - I don’t have any regrets. If I could have talked to my 19- or 20-year-old self, I would have said, ‘You’re going to be fine. It ain’t that serious!’
+ - I love riding, even if it’s just my Vespa. You just zip and do your thing. I find there’s a different awareness when I ride; it connects me to my senses and to God.
+ - I want every day to be life for the living, not just traipsing through it existing. I’m just interested in life and the world and exploring.
+ - Beauty is not just a white girl. It’s so many different flavors and shades.
+ - I am a strong woman with or without this other person, with or without this job, and with or without these tight pants.
+ - How many crossroads are you allowed to have in life? I seem to have a lot of crossroads. I think maybe I crossed back across the same road too often.
+ - Having Black hair is unique in that Black women change up styles a lot. You can walk down one street block in New York City and see 10 different hairstyles that Black women are wearing: straight curls, short cuts, braids – we really run the gamut.
+ - There are times you can’t really see or even feel how sweet life can be. Hopefully its mountains will be higher than its valleys are deep. I know things that are broken can be fixed. Take the punch if you have to, hit the canvas and then get up again. Life is worth it.
+ - What would your life be like if you found out you had 3 weeks left? And you know that you had not begun to live? And you had all these dreams and all these possibilities. And all these things you wanted to do and things you wanted to say and now time’s up?
+ - Don’t you want to know what’s real and what’s not? I remember when I was a kid, you know, this whole Cold War thing. They had us scared of the Russians. So, it’s almost like, what’s real and what’s not?
+ - The females don’t respect themselves; they only think materialistically. They want money, but they don’t think, I’m gonna get this money on my own, they think, I’m gonna get money from this guy.
+ - I like Pirate’s Booty. Prunes and olives, too. I love hummus. I can eat that until I die. I tend to eat mostly organic food.
+ - I lost relatives to AIDS, a couple of my closest cousins. I lost friends to AIDS, high-school friends who never even made it to their 21st birthdays in the ’80s. When it’s that close to you, you can’t really deny it, and you can’t run from it.
+ - I enjoy going to work and having a good time. It’s tough when you got to work with people who just are in a bad mood all the damn time.
+ - I often go to bed in my birthday suit. But I like teddies and cute little undies that match. I like a sexy bra and panty set, or little shorts.
+ - Having a belief in God, being able to find joy, despite your circumstances or put yourself outside of yourself, and stop looking inwards and look outwards a little bit really helps to carry through tough times. Giving makes you feel better.
+ - There’s no way I can represent for everyone. I can’t represent for all women or all big women or all black women. It’s important for people not to make celebrities their source of who they should be in life. I can’t take on the pressure of being perfect. Nobody is.
+ - You do silly things for love sometimes and not-so-smart things for love.
+ - I’m thinking wanting to succeed is something in my DNA; I’m not like ‘I’ve got to succeed,’ I just don’t think about that. I see a silver lining in everything and I see a lesson in everything.
+ - I’ve loved car racing all my life. I watch NASCAR regularly, and drag racing because we have Raceway Park in New Jersey. I think I got it from my father.
+ - Anyone who knows me knows that I’m way more of a joker than I am a serious person.
+ - Let your inner queen’s voice come through loud and clear. Be strong, be authentic, be you, and you’ll do her proud.
+ - I never wanted to give up my power. I wanted to be able to make my own decisions, so that’s why I became involved in management, bottom line.
+ - You just have to connect with people who believe in your vision and who will work with you and advance your cause.
+ - There was always music in our home. My mom and my dad loved music. I remember when we were kids we would have these great parties at the house with congas and bongos and African drums, and it was amazing. It wasn’t until years later that I found out that they were actually Black Panther meetings.
+ - You can huff and puff. But blow me down? I doubt it kid, or you get your ass whupped.
+ - Fear can be good when you’re walking past an alley at night or when you need to check the locks on your doors before you go to bed, but it’s not good when you have a goal and you’re fearful of obstacles. We often get trapped by our fears, but anyone who has had success has failed before.
+ - My mother wouldn’t allow me to speak slang when I was growing up. But when I got outside, around my friends, it was ‘Yo’ and ‘That’s the joint’ and ‘Yo, what’s up?’ So I had my game for my friends and my game for my mom.
+ - I love music. I’ve just been putting studios together, here and at my house in New Jersey and so I can always make music and express my ideas and work with people to fine tune them to where they need to be.
+ - I often find it’s just the confidence that makes you sexy, not what your body looks like. It’s how you feel about yourself that makes you sexy.
+ - I’m the daughter of a sister whose the mother of a brother who’s the brother of another.
+ - There are different flavours of sexiness.
+ - There are a lot of people who helped make Queen Latifah who she is today. I don’t forget, but a lot of people do and get big heads. My mom will make me walk the dogs or take out the trash when I go home. I’m not allowed to get a big head; I’ve still got to do the simple things in life.
+ - I’m not allowed to get a big head, I’ve still got to do the simple things in life.
+ - Those curveballs are always coming-eventually, you learn to hit some of them.
+ - Sometimes you do have to bank on yourself. You do have to believe in your ideas enough to really get out there and fight for it despite what people think of some young kids from the hood.
+ - I promised my mom that if, after a year of putting 150 percent into my career it didn’t work out, I would go back to school. I never did go back.
+ - I was not born a size 2. I’m not skinny, period. I’m not willing to sleep with the director or step on somebody else’s neck to get the job.
+ - The movie I’ve seen a million times is ‘Steel Magnolias,’ directed by Herbert Ross, starring Sally Field and Julia Roberts.
+ - There is no profession more essential than that of an educator, and it’s time for all of us to embrace and celebrate their importance and contribution to America’s children.
+ - If you can draw something from my life that helps, more power to you.
+ - My house borders horse farms, and I can look out my window and see the horses and the new colts. It’s really peaceful.
+ - I was baptized a Baptist, but I’m just Christian, as far as I’m concerned. I could go in any church, doesn’t matter if it’s Baptist, Protestant, Episcopal, or Catholic.
+ - My mom will make me walk the dogs or take out the trash when I go home.
+ - I do feel like I have a direct connection with God for some reason; always have since I was a little kid – I would talk to God, talk to the sky.
+ - Even if you don’t have anything, even if you’ve got a quarter in your pocket, to share with someone else who has nothing really helps.
+ - I really don’t know how to be anyone else, and whenever I try to be anyone else, I fail miserably. Or I disappoint myself. It doesn’t build my self-esteem, and it doesn’t help me grow me at all.
+ - I don’t want to be a supermodel; I want to be a role model.
+ - Award shows, like the Grammys, were tough on us early in hip-hop, not even televising our categories or splitting them up on best male or female or any of that. We had to earn them.
+ - When I’m doing something I love, I can lose sleep. I can go and go and go and go. My work ethic is pretty intense. But when it comes to doing something that I don’t love every day, I’m not very good at it. That’s called work, and I don’t like work that much.
+ - I’ve been giving back since I was a teen, handing out turkeys at Thanksgiving and handing out toys at toys drives for Christmas. It’s very important to give back as a youth. It’s as simple as helping an old lady across the street or giving up your seat on the bus for someone who is pregnant.
+ - When I’m wearing too-high heels and swaying my hips, I do that Sharon Stone kind of thing – she has the sexiest walk, a New York cool thing that throws you back.
+ - People say I’m going to be the next Oprah. But I say no, because Oprah is still Oprah. I’ll be the next me. I feel like there’s always a lane for me as long as I’m true to myself.
+ - To me, doing a gay pride show is one of the most fun things. My first show that paid more than $10,000 was in a gay club on New Year’s Eve in San Francisco.
+ - I would like – either as an actor, or producer or even director – to do something sci-fi or action-related. I like sci-fi, always have, ‘Star Trek’ and ‘Star Wars’ and all that stuff.
+ - I was taught from a young age that many people would treat me as a second-class citizen because I was African-American and because I was female.
+ - To me, hip hop will never be right until female rappers have a stronger voice in it.
+ - Church was a requirement – there was no choice in the matter; so was vacation bible school. Gospel has been in me since I was a kid.
+ - As a teenager, I had big breasts for my age, and my friends cracked on me a lot.
+ - I think as far as the music industry is concerned, it’s kind of been the wild, wild West in a way with the Internet, which is not necessarily a bad thing to me.
+ - I don’t have to really be in the 60s. Every time I hail a cab in New York, and they pass me by and pick up the white person, then I get a dose of it. Or when they don’t want to take you to Harlem. I grew up with that.
+ - I’m proud of everything I do, but I think I’m the most happy about becoming a rapper. It was my entrance into everything. That helped me get into acting.
+ - My mom has always been my champion. She was very smart and grounded. She said, ‘Save your money. Pay your taxes. Don’t put everything in one basket,’ but she let me explore and be creative.
+ - To wanna be me is to go through not just the good but the bad. You wanna share my story identically? Man, you gonna take some lumps.
+ - When I want to push myself and do intense workouts, I do that, but I’m not going to do it because anybody thinks I should look a certain way. It’s really more about how I feel and about being healthy.
+ - New Jersey is a great place to live. And we have given some of the best talent to the world, from Jack Nicholson, John Travolta, to Jerry Lewis to Bon Jovi to Frank Sinatra.
+ - Sometimes when I am in a situation that I have never been in, I kind of pull back a little bit to observe things; it doesn’t really last long though I have to. I’ve resigned to myself to the fact that I have to be me.
+ - I wish every woman would love herself and embrace what she was given naturally.
+ - For me, my criteria for making films is all about trying to do something different from the last time. So if I catch myself doing too much of one thing, I’m always trying to move away from that, because it’s not going to be challenging enough to keep my attention and focus.
+ - It was a very vulnerable time going from being insecure about my body and who I am to becoming comfortable with me. I had to tune out what the hell everybody else had to say about who I was. When I was able to do that, I felt free.
+ - If I ran into a 19-year-old version of myself, I’d just tell her to live, full out. I might also tell her to go ahead and have a few babies and not worry about the timing of it.
+ - I definitely think we need to lean more on God. And I do think we need to praise, because we need to give it outward. You know, whenever you think you’re in tough circumstances, there’s always somebody who’s in a worse position than you.
+ - I’m not the type that’s going to sit and preach to people if they don’t need it just because I’ve been around the block a few times.
+ - When I was growing up, there were so many musicals you could watch. I like the fantasy of musicals and I love music.
+ - I don’t have to take a trip around the world or be on a yacht in the Mediterranean to have happiness. I can find it in the little things, like looking out into my backyard and seeing deer in the fields.
+ - I totally want, like, 18 babies.
+ - Running for office was definitely something I’ve thought about. When I was younger, I wanted to major in political science. And I’ve been engaged in current events since I was a kid. If I can make a difference and feel passionately and capable, then I would. Why not?
+ - I have a no-die clause in every movie. The black people can’t be dying all the time.
+ - I have always felt strongly about empowering women. I’m living proof that, with confidence and by believing in yourself, you can accomplish any goal.
+ - I have a drum set in my dressing room. I play drums to relax and have some fun.
+ - I’m a sucker for a man who cries. It just gets to me.
+ - I love Ralph Lauren, just as a designer. I still think he could make some better sizes with his clothes, but I like the idea of his classic American style.
+ - There were musicians that influenced me, but they weren’t all women. Teena Marie was a big influence because she wrote and produced her own music, which let me know that women could write and produce their own music, which was an empowering moment for me.
+ - I want to have and adopt. I always have; ever since I was 18, I wanted a baby, and I wanted to have and adopt because there are a lot of kids. I want to adopt an American baby though, you know what I mean, no offense. Just because there are so many kids here that need our help.
+ - I’ve never wanted to be put into a box, not musically.
+ - I have to be realistic about what I can and can’t do. So whatever I do has to really be worth it. I like to master the things I do.
+ - I did Jay Leno with Mike the Situation, and he just – he lives, like, ten minutes from me in Jersey. He’s like, ‘If you ever get a flat, call me. I’ll come fix your tire.’ That’s how we do. That’s neighborly, you know?
+ - I came from a crew, and to me, all the guys I rapped with were better than me, so I was surprised when I was the breakout one. It was definitely a cool thing.
+ - Lets be clear, Dolly Parton is a rapper. Somewhere before all the country, I don’t know what happens up there in the mountains when you’re growing up, but she has been spitting rhymes for a very long time – 50 years I’d say.
+ - If my brother and I wanted money in our pockets, we had to get jobs – my first was at 15, at Burger King. We had to come up with ways to create an income.
+ - So often, you don’t get that opportunity. You only go over everything once and, the next thing you know, you’re on set.
+ - It’s great to be able to employ people who other people wouldn’t consider viable employees.
+ - I never pictured myself as just a rapper; I always wanted to act and do whatever else I could do. I always felt like I could do a lot of different things.
+ - To step into acting was not that difficult a transition to make. What was difficult was the work and the practice that went into becoming good at it, because I hadn’t had any training.
+ - I feel very positive about Newark’s future, but I know we need a lot of help. I think that starts with the education of our kids and making the streets safer.
+ - When you’re rapping, you do have to perform to a certain degree, but not every rapper is necessarily a gifted actor.
+ - I believe that the kids, young people should have an opportunity to have Oscar nominated actors in their movies too.
+ - I want to see 10 female rappers getting regular rotation. It can’t be all about a man’s opinion.
+ - Yeah, I’m from Jersey; it’s almost like I was automatically born a Nets fan.
+ - I’d say, if you want to be an artist, start with your art; start with making great music and it will, hopefully, eventually cut through all of the nonsense that is out there.
+ - I’m as involved as I can be. Whenever I’m asked to do something, I always tend to show up.
+ - Bowling, I like bowling. I’ve been getting into this bowling thing. It’s kinda fun.
+ - As a rapper, you sort of act in music videos and in the persona you adopt onstage. You kinda have to put yourself out there and be courageous even to be a rapper. So, to step into acting was not that difficult a transition to make.
+ - I feel strongly that women who look like me should feel great. So I am not changing.
+ - I designed my whole image. That was all me. I just bought some regular clothes, threw a medallion around my neck, and that was it. The next thing I know, that’s the look.
+ - I’m probably proudest of being able to lift a lot of us out of the ’hood. That’s the biggest thing, that I’ve been able to employ a lot of people and give them opportunities.
+ - I try to only commit myself to things that I think I can accomplish and commit myself to 100 percent. I try not to bite off more than I can chew.
+ - The good thing about movies is that they’re subjective. You can connect to different themes depending on your own perspective.
+ - I never really took any acting classes. I’m just a natural ham, I guess.
+ - Dolly Parton made me chicken and dumplings. That Tennessee woman can burn some pots! And we know that I am not necessarily shy to a fork!
+ - To me, I always felt like I was carrying a torch for women of any size to be themselves – it doesn’t matter whether you’re a size 2 or a 22, just be who you are.
+ - When it came time to be a professional rapper, I wouldn’t sign anything without reading it. There was no way I was going to have people make decisions for me or wake up one day and find that I was broke because I never bothered to read a contract.
+ - I enjoy just being me. I don’t need to be Queen Latifah, the brand, 24 hours a day.
+ - It’s not necessarily what a family is typically supposed to look like. But it is what it is. It’s about a connection and bond that everyone can identify with.
+
+144 quotes

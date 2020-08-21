@@ -1,0 +1,37 @@
+ - You only live once, so I try to say yes to everything.
+ - When you play a violin piece, you are a storyteller, and you’re telling a story.
+ - At a music hall, I’ll get upset if someone coughs or if someone’s cellphone goes off.
+ - I want to do everything. That’s my problem.
+ - I love the outdoor festival feeling.
+ - I hope I will always have the chance to play the violin.
+ - There are some days I take my violin out and it feels dreadful, like nothing is responding, and I want to sell it and get rid of it. And the next day suddenly the skies open up and the sound is glorious again. So it’s like a relationship: There are good days and bad days.
+ - I don’t sleep with a violin in my bed, but there is something very magical about the instrument. You open up the case; it’s a masterpiece, it’s gorgeous, the varnish is still there from 300 years ago. People who know violins, they look at it and it’s almost like a face.
+ - We live in the least ugly time in history. If you look at back when Beethoven was writing, half the kids were dying, mothers were dying at childbirth, there were more wars going on then than there are now. People wrote the most beautiful things during the ugliest times.
+ - I was lucky enough to have parents who started me on music very early, but most kids don’t get that kind of exposure.
+ - No one tells you what to do if you completely flop at the beginning of a performance.
+ - I grew up in a musical family, but nobody was a professional musician.
+ - When you play for ticket-holders, you are already validated. I have no sense that I need to be accepted. I’m already accepted.
+ - What drew me to the violin was mastering the instrument technically, which I’m continuing to do.
+ - The best way to refine an interpretation is by getting out and performing.
+ - You don’t have to have lots of love affairs to know what love is.
+ - So much of performing is a mind game.
+ - I like trying things, I am kind of adventurous and I like thrill seeking.
+ - I open up my violin case every day, and have one of the great creations. It is very inspiring. It makes you want to practice. How can you open up a case and look at a violin that was made in 1713 by one of the greatest artists in history and then say, “No, I don’t feel like practicing today.”
+ - There are some great teachers who have had great students, but they themselves can’t play a note. I don’t understand it, because the most I learned from my teacher was just hearing him play.
+ - Music plays a huge role in the movie. The music in Star Wars, I can’t imagine what the movie would have been like without it. It made the film.
+ - I don’t listen to a lot of music when I have my free time. But I’ll go to a jazz club and have a drink and listen to a good jazz musician. Or sometimes in the morning, if I want to put myself in a good mood, I’ll put on some Latin music.
+ - If you mess up the tiniest little thing in the Beethoven concerto, or the phrasing isn’t just exactly perfectly executed, Beethoven brings out the worst in the best violinist. You almost never hear a satisfying performance, because it doesn’t play itself.
+ - I like working with kids because I enjoy seeing the looks on their faces and, it’s kind of selfish, I want a future audience.
+ - Actors want to do Shakespeare again and again, or want to do Hamlet. When you hear one guy do Hamlet and another guy do it, it’s going to be a whole different experience.
+ - Kids need to be structured in some way, but you don’t want to force something down their throats that they have no interest in. You have to find the right balance.
+ - Conducting is a strange thing to teach.
+ - We live in the least ugly time in history.
+ - I don’t want to portray myself as a daredevil. I’m not at all.
+ - Every orchestra is different. Sometimes, you’re blown away by a particular musician. If I’m playing the Brahms concerto, it’s crucial to have a great oboe player, because we work in tandem.
+ - I write arrangements. Im sort of a wannabe composer.
+ - There are days that I get neurotic with the violin. Every little adjustment will change the balance for good or for bad. It’s kind of a miracle, the way the whole thing works as an acoustical whole, so perfectly balanced.
+ - Over the years, I’ve collected a lot of musical friends.
+ - I never had any real expectations about what sort of success I would have or all the publicity.
+ - Although I hardly ever turn on the TV set unless it’s football season, I do watch a lot of TV on my iPad – perfect for long airplane journeys.
+
+35 quotes

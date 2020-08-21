@@ -1,0 +1,163 @@
+ - A mind is a terrible thing to waste.
+ - The future will be a better tomorrow.
+ - We are ready for any unforeseen event that may or may not occur.
+ - I pledge allegiance to the Christian flag, and to the Savior, for whose Kingdom it stands, one Savior, crucified, risen, and coming again, with life and liberty for all who believe.
+ - For NASA, space is still a high priority.
+ - Public Speaking is very easy.
+ - We will move forward, we will move upward, and yes, we will move onward.
+ - My friends, no matter how rough the road may be, we can and we will, never, never surrender to what is right.
+ - If you give a person a fish, they’ll fish for a day. But if you train a person to fish, they’ll fish for a lifetime.
+ - We’ll let the sunshine in and shine on us, because today we’re happy and tomorrow we’ll be even happier.
+ - If we don’t succeed, we run the risk of failure.
+ - It would be bad for the economy if we have another Jimmy Carter grain embargo, Jimmy, Jimmy Carter, Jimmy Carter grain embargo, Jimmy Carter grain embargo.
+ - The intergenerational poverty that troubles us so much today is predominantly a poverty of values.
+ - Every once in a while, you let a word or phrase out and you want to catch it and bring it back. You can’t do that. It’s gone, gone forever.
+ - If Al Gore invented the Internet, I invented spell check.
+ - It’s a question of whether we’re going to go forward into the future, or past to the back.
+ - I’ve never professed to be anything but an average student.
+ - Republicans understand the importance of bondage between a mother and child.
+ - I believe we are on an irreversible trend toward more freedom and democracy – but that could change.
+ - Votes are like trees, if you are trying to build a forest. If you have more trees than you have forests, then at that point the pollsters will probably say you will win.
+ - We’re going to have the best-educated American people in the world.
+ - You have a part-time job and that’s better to no job at all.
+ - What a terrible thing to have lost one’s mind. Or not to have a mind at all. How true that is.
+ - Bank failures are caused by depositors who don’t deposit enough money to cover losses due to mismanagement.
+ - I have made good judgments in the past. I have made good judgments in the future.
+ - It’s wonderful to be here in the great state of Chicago.
+ - I’m the Vice-President. They know it, and they know that I know it.
+ - Bobby Knight told me this: ‘There is nothing that a good defense cannot beat a better offense.’ In other words a good offense wins.
+ - The American people would not want to know of any misquotes that Dan Quayle may or may not make.
+ - The US condones violence in El Salvador.
+ - It’s a very valuable function and requirement that you’re performing, so have a great day and keep a stiff upper lip.
+ - Quite frankly, teachers are the only profession that teach our children.
+ - We don’t want to go back to tomorrow, we want to go forward.
+ - I am uniquely positioned and prepared to be president. I can assure you I am serious. I am committed.
+ - I want to be Robin to Bush’s Batman.
+ - It’s time for the human race to enter the solar system.
+ - The message of David Duke, is this, basically: Big government, anti-big government, get out of my pocketbook, cut my taxes, put welfare people back to work. That’s a very popular message. The problem is the messenger.
+ - The two-party system has served America very well. We always have political movements one way or another but the evolution of a lasting third party probably will not happen.
+ - What a terrible thing it is to lose one’s mind...
+ - I deserve respect for the things I did not do.
+ - It isn’t pollution that’s harming the environment. It’s the impurities in our air and water that are doing it.
+ - I was known as the chief grave robber of my state.
+ - Developing relationships is a very important part of doing business, and I see more similarities than differences when I travel the world.
+ - I have a very strong record on the Environment in the United States Senate.
+ - The rapid rise of the People’s Republic of China as a military and economic power is challenging the status quo.
+ - While it is important to be aware of and sensitive to cultural differences when conducting business internationally, the principles of transparency, trust, and partnership are universal.
+ - Tobacco exports should be expanded aggressively because Americans are smoking less.
+ - The loss of life will be irreplaceable.
+ - I’d like to get into the National Guard.
+ - Unfortunately, the people of Louisiana are not racists.
+ - It would be a serious mistake to replace a seasoned statesman with a tempermental tycoon who has no respect for the constitution.
+ - Speaking as a man, it’s not a woman’s issue. Us men are tired of losing our women.
+ - A good debater can be a good communicator. You have to communicate when you’re president of the United States, and communicate effectively with the American people, and with the world.
+ - Space is almost infinite. As a matter of fact, we think it is infinite.
+ - May our nation continue to be the beakon of hope to the world.
+ - Welcome to President Bush, Mrs. Bush, and my fellow astronauts.
+ - Republicans have been accused of abandoning the poor. It’s the other way around. They never vote for us.
+ - I don’t watch it, but I know enough to comment on it.
+ - Murphy Brown is doing better than I am. At least she knows she still has a job next year.
+ - We have a firm commitment to NATO, we are a part of NATO. We have a firm commitment to Europe. We are a part of Europe.
+ - We need to remember that trade is a great peacemaker that enriches people and increases international understanding and ties between nations.
+ - The other day the President said, I know you’ve had some rough times, and I want to do something that will show the nation what faith that I have in you, in your maturity and sense of responsibility. He paused, then said, would you like a puppy?
+ - Happy campers you have been, happy campers you are, and happy campers you will always be.
+ - Most women do not want to be liberated from their essential natures as women.
+ - People are not homeless if they’re sleeping in the streets of their own hometowns.
+ - Want to hear a sad story about the Dukakis campaign? The governor of Massachusetts, he lost his top naval advisor last week. His rubber ducky drowned in the bathtub.
+ - I could take this home, Marilyn. This is something teenage boys might find of interest.
+ - We will invest in our people, quality education, job opportunity, family, neighborhood, and yes, a thing we call America.
+ - Hawaii has always been a very pivotal role in the Pacific. It is in the Pacific. It is a part of the United States that is an island that is right here.
+ - America is great, because America is free.
+ - The peace dividend is peace.
+ - I couldn’t help but be impressed by the magnitude of the earthquake.
+ - The world is beset by challenges including the ongoing danger of international terrorism, and the significant political and economic threats posed by factors such as the high levels of corporate and sovereign debt and persistent unemployment.
+ - Sam, had a great time this weekend but the golf was lousey.
+ - I had a good political career, and I have a good business career. I didn’t get the brass ring, but I did very well.
+ - Our policies must be premised on, and must reinforce, values such as family, hard work, integrity and personal responsibility.
+ - Well, it looks as if the top part fell on the bottom part.
+ - Hundreds of millions of people around the world have been lifted out of poverty with the creation of robust middle classes in India and China, which is an enormously positive development for those countries that also creates opportunities for the rest of the world.
+ - In golf, you keep your head down and follow through. In the vice presidency, you keep your head up and follow through. It’s a big difference.
+ - You couldn’t even prove the White House staff sane beyond a reasonable doubt. When I was born I was so surprised I didn’t talk for a year and a half. I am not part of the problem. I am a Republican.
+ - This isn’t a man who is leaving with his head between his legs.
+ - The Holocaust was an obscene period in our nation’s history.
+ - Who’s responsible for the riots? The rioters!
+ - It’s a very good historical book about history.
+ - I have a very good family. I’m very fortunate to have a very good family. I believe very strongly in the family. It’s one of the things we have in our platform, is to talk about it.
+ - Why wouldn’t an enhanced deterrent, a more stable peace, a better prospect to denying the ones who enter conflict in the first place to have a reduction of offensive systems and an introduction to defensive capability. I believe that is the route this country will eventually go.
+ - Illegitimacy is something we should talk about in terms of not having it.
+ - We shouldn’t have to be burdened with all the technicalities that come up from time to time with shrewd, smart lawyers interpreting what the laws or what the Constitution may or may not say.
+ - I not going to focus on what I have done in the past what I stand for, what I articulate to the American people. The American people will judge me on what I am saying and what I have done in the last 12 years in the Congress.
+ - I love California, I practically grew up in Phoenix.
+ - Hawaii is a unique state. It is a small state. It is a state that is by itself. It is a-it is different than the other 49 states. Well, all states are different, but it’s got a particularly unique situation.
+ - The President is going to benefit from me reporting directly to him when I arrive.
+ - If you listen to the news, read the news, you’d think we were still in a recession. Well, we’re not in a recession. We’ve had growth; people need to know that. They need to be more upbeat, more positive...
+ - The cause of the riots were the rioters.
+ - Abortion is not an issue with the American people. It is a figment of your imagination if you think that this is an issue that is talked about a lot.
+ - I spend a great deal of time with the President. We have a very close, personal, loyal relationship. I’m not, as they say, a potted plant in these meetings.
+ - In George Bush you get experience, and with me you get – The Future!
+ - I do have a political agenda. It’s to have as few regulations as possible.
+ - The destruction, it is just very heart-rendering.
+ - I’m glad you asked me that. This gives me the perfect opportunity to talk about the problems with this Congress...
+ - The President scores much better than Bill Clinton.
+ - I am not part of the problem. I am a Republican.
+ - I want to show you an optimistic sign that things are beginning to turn around.
+ - And this is the best chance to begin to establish the New World Order.
+ - Let me just tell you how thrilling it really is, and how, what a challenge it is, because in 1988 the question is whether we’re going forward to tomorrow or whether we’re going to go past to the – to the back!
+ - Looking back, I should have pursued philosophy and economics and things of that sort in college more, but I didn’t.
+ - Sometimes cameras and television are good to people and sometimes they aren’t. I don’t know if its the way you say it, or how you look.
+ - It’s not just enough to change the president if we want to change America.
+ - We lead in exporting jobs.
+ - This is what I say about the scorn of the media elite: I wear their scorn as a badge of honor.
+ - I didn’t pay a lot of attention as I should have in college.
+ - If Ross Perot runs, that’s good for us. If he doesn’t run, it’s good for us.
+ - They asked me to go in front of the Reagans. I’m not used to going in front of President Reagan, so we went out behind the Bushes.
+ - I just don’t believe in the basic concept that someone should make their whole career in public service.
+ - The US has a vital interest in that area of the country.
+ - Information technology has brought people much closer together than ever before, providing a democratizing and mostly stabilizing influence.
+ - Let me just be very clear that the Republican Party will select a nominee that will beat Bill Clinton.
+ - I would guess that there’s adequate low-income housing in the country.
+ - Wouldn’t it be wonderful to have a cure for AIDS in the marketplace before Magic Johnson gets AIDS?
+ - I felt like I was in charge.
+ - Perestroika is nothing more than refined Stalinism.
+ - I’ve been told to keep my remarks relatively brief. I understand Quayle-hunting season begins at noon.
+ - This is where the Continental Congress met over two hundred years ago during the American Revolution. So, Lancaster was actually the capital of our nation for one day in 1977.
+ - The Holocaust was an obscene period in our nation’s history. I mean in this century’s history. But we all lived in this century. I didn’t live in this century.
+ - You do the policy, I’ll do the politics.
+ - We have to do more than just elect a new President if we truly want to change this country.
+ - Okay, I won’t open it until then.
+ - Americans have always excelled through hard work, innovation, and an ability to find solutions that makes us unique among nations.
+ - This election is about who’s going to be the next President of the United States!
+ - People who bowl vote. Bowlers are not the cultural elite.
+ - I don’t have to experience tragedy to understand it.
+ - They need help, and we have helped, and we are here to help. And we are helping, and we’re going to continue to help.
+ - I can identify with steelworkers. I can identify with workers that have had a difficult time.
+ - On the security front, the United States must continue to play a leadership role. There simply is not another country in the world that commands the respect or has the capabilities that we do, and we must not shrink from our responsibilities.
+ - When I talked to him on the phone yesterday. I called him George rather than Mr. Vice President. But, in public, it’s Mr. Vice President, because that is who he is.
+ - The best thing about rain forests is they never suffer from drought.
+ - There are lots more people in the House. I don’t know exactly – I’ve never counted, but at least a couple hundred.
+ - I think especially in her position, a highly successful professional woman, it would be a real exception to have an unwed child.
+ - Japan is an important ally of ours. Japan and the United States of the Western industrialized capacity, 60 percent of the GNP, two countries. That’s a statement in and of itself.
+ - When you make as many speeches and you talk as much as I do and you get away from the text, it’s always a possibility to get a few words tangled here and there.
+ - I work with the president almost on a daily basis. I was with him until 6:30 last night. I’ll be with him Thursday morning. We talk every day.
+ - I support efforts to limit the terms of members of Congress, especially members of the House and members of the Senate.
+ - What you guys want, I’m for.
+ - This President is going to lead us out of this recovery.
+ - I have as much experience in the Congress as Jack Kennedy did when he sought the presidency.
+ - It’s rural America. It’s where I came from. We always refer to ourselves as real America. Rural America, real America, real, real, America.
+ - Make no mistake about it: Operation Desert Storm truly was a victory of good over evil, of freedom over tyranny, of peace over war.
+ - It is not death that I’m apparently now succumbing to, but the rapid diminishment of lifeforce from this body of mine.
+ - Clinton cannot possibly win in 2000.
+ - No, I had no problem communicating with Latin American heads of state – though now I do wish I had paid more attention to Latin when I was in high school.
+ - People that are really very weird can get into sensitive positions and have a tremendous impact on history.
+ - What the media wants and what the media demands of Christians is very simply this: your silence.
+ - I’m going to be a vice president very much like George Bush was. He proved to be a very effective vice president, perhaps the most effective we’ve had in a couple of hundred years.
+ - I stand by all the misstatements that I’ve made.
+ - Maybe you guys will get lucky this year and face the Orioles in the World Series.
+ - Great American sport. Horseshoes is a very great game. I love it.
+ - The global importance of the Middle East is that it keeps the Far East and the Near East from encroaching on each other.
+ - Investments – particularly those that involve the change of control of a company – only work when they work well for all parties involved.
+ - Air travel efficiency would improve if more travelers started going to less popular places.
+ - We must reject the idea of isolationism,. But that doesn’t mean we should get involved in every civil war around the world.
+ - We do, in former chairman Lee Atwater’s words, offer the party as a big tent, and therefore that message has to be clear. How we do that within the platform, the preamble to the platform or whatnot, that remains to be seen. But that message will have to be articulated with great clarity.
+
+161 quotes

@@ -1,0 +1,42 @@
+ - I want a woman that wants me to take care of myself because truly, that tells a lot about you. And if you don’t take care of yourself how can you take care of a woman? How can you take care of kids?
+ - Is there any more Room for me in those Jeans...
+ - A lot of producers always say “what direction are you going in?” and I don’t know. I’m just doing music. Right now it’s going well. It’s a little slow, but it’s expected because I haven’t been in the studio for a minute.
+ - If it sounds good to me and I hate my voice, so if I’m willing to listen to my voice over and over again, it’s a hit. Guaranteed it’ll be a hit.
+ - I feel like I put it together better than anybody else. I don’t feel like I’m the best dancer. I don’t feel like I’m the best singer. I don’t feel like I’m the best looking. I feel like I’m the best at putting it all together.
+ - I always tell people you can take the thugest thug in the world, and if you put a suit on him, he’ll act different, trust me.
+ - Everybody has their own little thing, but I don’t do that. But my wife might take care of my nails or something, but I’m always groomed, I’m always, making sure I smell good.
+ - You have to do all you can as a parent to stop your kid from doing all the craziness that’s going on in the world. And although I still have music that’s saying one thing, I still let them know what it is, and I’m not doing anything in my music that I wouldn’t tell my kids about.
+ - My favorite cut is probably “Drink of Choice,” and it was done by Bryan Michael Cox, it’s a metaphorical type song, about a woman being a drink. I’ll let your mind wander with that one.
+ - I always loved music and I always loved to perform, and that’s my favorite part, to perform; my favorite part is not the studio, I can’t stand the studio.
+ - Sometimes I listen to the radio and I can’t believe some of the stuff that I’m hearing that everyone is loving. So it’s a task that we’ve got to conquer and we have to make sure that we pass the test.
+ - I’m saying, that just kept, messing it up for everybody! And then everybody on your team doesn’t have that drive that you have.
+ - There’s something about that suit, he’ll feel like, ‘Whoa,’ he’ll feel like a different person, and that’s what it’s about.
+ - Sometimes I do, sometimes I don’t. But while I’m doing vocal in a studio, I can’t stand it.
+ - The performing part of it, that’s what I live for. I’ve always told people that’s what I was born for. I believe, with the proper things around me, and everything I need as a performer; band, and all that kind of stuff, I still feel to this day there’s no one that can touch me. Still.
+ - You’re your worst critic, and I don’t like the way I sound on the mic.
+ - My drive is still cool, it’s not like how when I first began. I don’t think anyone’s drive is the same.
+ - Once your motivation is killed, it’s kind of hard to revive it and bring it back to life.
+ - I don’t allow chivalry to die, on my part, but as far as guys taking care of their woman, and, making sure that it’s not all about self, it’s about giving, and how a lot of guys don’t groom themselves, how a lot of guys don’t take care of themselves.
+ - I just don’t like my voice in the studio, and I just don’t like the studio, I’m not a studio-head. And that’s why you don’t get so much material from me;.
+ - By the grace of God alone, I was able to still focus, when it was time for me to do my job, and I think I’ve done it pretty good, and I know I can buckle down even more.
+ - For me, I feel like if a woman doesn’t find me attractive ’cause I’m taking care of myself, then that’s not the woman I want.
+ - I mean the business is just so rough man, people always think the business is easy, and the business is very rough. This is probably the worst business that you can get in, as far as, business-wise.
+ - The reason why I play around with the word legend is because this is my 7th CD and a lot of artists don’t even make it that far. Many artists don’t even pass three or four.
+ - There are some songs we do, like “Last Chance,” I love it! But sometimes you just don’t like your voice on certain things.
+ - I’ve always been like nah, I’m going to have it my way, that way, when I look out that window at the end of the day, I can say I did it my way, whether it’s on a higher level, or a level where I can just maintain, I can still say I did it my way.
+ - So that’s where it differs for me now, it’s the creativity, versus, the raunchiness from back in the days. So I just try to be more creative nowadays.
+ - You always measure success by what you did last. It’s hard to measure that because it’s something that just comes. If someone can just make a hit, they would do it everyday. But you can’t make a hit that you know is a hit every day.
+ - To get nominated, and a lot of people get nominated and say they’re glad to be nominated but I wanna win! I want to win!
+ - I’m very critiqueful of my own stuff, and I kick everybody out the studio when I’m singing, no one is in the studio, it’s just me and the engineers, no one else in the studio when I’m doing my thing.
+ - I would like to get nominated for a Grammy, but I don’t set out to do that anymore, though, ’cause I never felt like I got my just due in the business, period anyway.
+ - Everything’s a 360 and that’s what’s so funny about life now, and they’re right at that age and I have teenagers now, and I’m like ‘Wow I remember when I did that.’ Aint nothing new.
+ - For me to be in the entertainment business for as long as I have, for 15 years and been relevant, been successful, continue to do shows, sell out shows, traveling and everything...
+ - Just wanting to be more of an example, but letting them know also that I made mistakes when I was a kid; and I’m not expecting you to be perfect.
+ - Always making sure I’m clean. And that’s truly what it’s about. I think it’s a lot of misconceptions about what a man is, what a thug is, and all that kind of stuff.
+ - Honestly I can truly say, it would be, nice, but I don’t feel like I got to get a Grammy or something to feel official. I’m cool but it would be nice Grammy Awards!
+ - When you get that person out of that dude, that’s the real person, you know. And I don’t think its dead, but it needs to be more examples, of what a true gentleman and what a true man in every sense of the word is, and that’s what I try to be.
+ - I never set out now to get a Grammy, or get an American Music Award, but it still is nice to be recognized.
+ - You could have a kid that is going to get in trouble a little bit, and you can teach them as much as you can, and hopefully they’ll go the right way.
+ - I’m the kind of cat that can finish three songs in a day. Two or three songs in a day. If my voice is up to it and I feel up to it, I can finish two or three songs in a day.
+
+40 quotes

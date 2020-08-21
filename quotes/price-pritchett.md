@@ -1,0 +1,36 @@
+ - If you must doubt something, doubt your limits.
+ - If you’re experiencing no anxiety or discomfort, the risk you’re taking probably isn’t worthy of you. The only risks that aren’t a little scary are the ones you’ve outgrown.
+ - No sense being pessimistic. Wouldn’t work anyway.
+ - How can we be trusted with big things if we’re not trustworthy with things that are small? Don’t allow your finer instincts to become a casualty of the little everyday crimes of ethical compromise.
+ - In these times of self-directed teams, empowered employees, and “boundaryless” organizations, your worth as an individual employee will also get measured by your work group’s collective results.
+ - The ethics of excellence requires a sense of perspective. Look at the big picture. If you live for the moment you might mortgage the future? What happens if you put your reputation at risk and lose the bet?
+ - Act as if success is certain.
+ - If you’re unwilling to defer pleasure or endure some “pain” for now, are you likely to end up later deep in the hole?
+ - You carve out the organization’s character through your daily choices. You shape its conscience as you exercise your own.
+ - Who is this vague “they” we blame for so many of our problems? “They” is the obscure party we use as our whipping boy to camouflage the fact that we – you and I and other specific human beings just like us – have to start doing things differently. “They” can’t fix anything. We can.
+ - Until I test the limits to what I can achieve, I won’t really know how well I can do.
+ - Optimism inspires, energizes, and brings out our best. It points the mind toward possibilities and helps us think creatively past problems.
+ - Your ethical muscle grows stronger every time you choose right over wrong.
+ - So let your deepest desires direct your aim. Set your sights far above the ‘reasonable’ target. The power of purpose is profound only if you have a desire that stirs the heart.
+ - Everybody makes honest mistakes, but there’s no such thing as an honest cover-up.
+ - Ethical dilemmas have a way of sneaking up on a person. If something smells funny, stay away from it. Or help get rid of it.
+ - When you can make it this simple, though, just do the right thing. Even if you could get away with less. Even when other people are doing the wrong thing. Even though the wrong thing seems like no big deal.
+ - But when we get enough people who don’t care, and who don’t accept personal responsibility for high ethical standards, our organization gets the “M” disease. Mediocrity. Anybody in the place can be a carrier. By the same token, every individual can carry the cure: the ethics of excellence.
+ - The only way we can develop muscle is through regular exercise. As soon as we stop stretching and working toward higher ethics, our standards start to sag. The muscle gets soft, and instead of excellence we have to settle for mediocrity. Maybe something even worse.
+ - Trust is the glue that holds relationships together.
+ - When you see people with “the right stuff,” those who choose the right over the wrong or the “iffy,” let them know you’re proud of them. Encourage the courageous, so they’ll have the will to carry on.
+ - Too much attention on problems kills our faith in possibilities.
+ - The world behaves differently when I take action to go after what I want.
+ - The ethics of excellence are grounded in action – what you actually do, rather than what you say you believe. Talk, as the saying goes, is cheap.
+ - You can’t put someone else in charge of your morals. Ethics is a personal discipline.
+ - Most people confuse wishing and wanting with pursuing. You must place your trust in action.
+ - We need timeless principles to steer by in running our organizations and building our personal careers. We need high standards – the ethics of excellence.
+ - Notice that “I” is at the center of the word “ethical.” There is no “they.” Achieving the ethics of excellence is our individual assignment.
+ - As consumers we get more demanding all the time. We want better quality. We want it faster. And cheaper. Plus, we want more choices. Whoever comes along that can satisfy all these ‘wants’ gets our business.
+ - Narrow life down to what’s precious and necessary. In a world of complexity the best weapon is simplicity.
+ - Live according to the ethics of excellence, and you can always stand proud. Pride – not vanity, but dignity and self-respect – should carry a lot of weight in helping you make decisions. Let pride help you decide.
+ - If you become a giver, you’ll make them feel like they want to reciprocate.
+ - We’ve got to start thinking of school as a lifelong process. That’s the only way we’ll keep abreast and be able to share in the wealth of the new “knowledge society.”
+ - As tough as it sometimes looks on the front end, it’s easier to do right than undo wrong.
+
+34 quotes

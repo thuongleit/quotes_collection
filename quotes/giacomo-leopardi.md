@@ -1,0 +1,47 @@
+ - He who has the courage to laugh is almost as much a master of the world as he who is ready to die.
+ - Ignorance is the greatest source of happiness.
+ - Boredom is the most sublime of all human emotions because it expresses the fact that the human spirit, in a certain sense, is greater than the entire universe. Boredom is an expression of a profound despair at not finding anything that can satisfy the soul’s boundless needs.
+ - Real misanthropes are not found in solitude, but in the world; since it is experience of life, and not philosophy, which produces real hatred of mankind.
+ - Children find everything in nothing; men find nothing in everything.
+ - It’s interesting to observe that almost all truly worthy men have simple manners, and that simple manners are almost always taken as a sign of little worth.
+ - In all climates, under all skies, man’s happiness is always somewhere else.
+ - Freedom is the dream you dream While putting thought in chains again –.
+ - The surest way of concealing from others the boundaries of one s own knowledge is not to overstep them.
+ - The old man, especially if he is in society in the privacy of his thoughts, though he may protest the opposite, never stops believing that, through some singular exception of the universal rule, he can in some unknown and inexplicable way still make an impression on women.
+ - The most solid pleasure in this life is the empty pleasure of illusion.
+ - No human trait deserves less tolerance in everyday life, and gets less, than intolerance.
+ - The end of pain we take as happiness.
+ - You can be happy indeed if you have breathing space from pain.
+ - People are ridiculous only when they try or seem to be that which they are not.
+ - It’s not our disadvantages or shortcomings that are ridiculous, but rather the studious way we try to hide them, and our desire to act as if they did not exist.
+ - Death is not evil, for it frees man from all ills and takes away his desires along with desire’s rewards.
+ - I may be wrong, but it seems rare in our age to find a widely praised person whose own mouth is not the source of that praise.
+ - The artisan or scientist or the follower of whatever discipline who has the habit of comparing himself not with other followers but with the discipline itself will have a lower opinion of himself, the more excellent he is.
+ - Nature, with her customary beneficence, has ordained that man shall not learn how to live until the reasons for living are stolen from him, that he shall find no enjoyment until he has become incapable of vivid pleasure.
+ - Men do not so much hate an evil-doer, or evil itself, as they hate the man who calls evil by its real name.
+ - There’s no greater sign of being a poor philosopher and wise man than wanting all of life to be wise and philosophical.
+ - Man is almost always as wicked as his needs require.
+ - He who doubts, knows – knows as much as can be known.
+ - Man is doomed either squander his youth, which is the only time he has to store provisions for the coming years and provide for his own well-being, or to spend his youth procuring pleasures in advance for that time of life when he will be too old to enjoy them.
+ - Old age is the supreme evil, for it deprives man of all pleasures while allowing his appetites to remain, and it brings with it every possible sorrow. Yet men fear death and desire old age.
+ - Nothing in the world is so rare as a person one can always put up with.
+ - Irresolute men are sometimes very persistent in their undertakings, because if they give up their designs they would have to make a second resolution.
+ - What do you do there, moon, in the sky? Tell me what you do, silent moon. When evening comes you rise and go contemplating wastelands; then you set.
+ - A dictionary can embrace only a small part of the vast tapestry of a language.
+ - No one is so completely disenchanted with the world, or knows it so thoroughly, or is so utterly disgusted with it, that when it begins to smile upon him he does not become partially reconciled to it.
+ - We remember childhood as the fabulous years of our lives, and nations remember their childhood as fabulous years.
+ - The commonplace expression that life is nothing but a play is verified above all in this: the world speaks absolutely consistently in one way and acts absolutely consistently in another.
+ - Men seldom act from a correct sense of what may be harmful or useful to them.
+ - Everything since Homer has improved, except poetry.
+ - Every man remembers his childhood as a kind of mythical age, just as every nation’s childhood is its mythical age.
+ - I find it awfully difficult to determine if the habit of talking about oneself at length runs contrary to the basic rules of propriety, or if instead the man exempt from this vice is rare.
+ - If the best company is that which we leave feeling most satisfied with ourselves, it follows that it is the company we leave most bored.
+ - The thought that really crushes us is the thought of the futility of life of which death is the visible manifestation.
+ - The artist’s conception of his art or the scientist’s of his science is usually as great as his conception of his own worth is small.
+ - There are some centuries which – apart from everything else – in the art and other disciplines presume to remake everything because they know how to make nothing.
+ - Men are ready to suffer anything from others or from heaven itself, provided that, when it comes to words, they are untouched.
+ - The world laughs at things it would really prefer to admire, and like Aesop’s fox it criticizes things it covets.
+ - The greater part of the people we assign to educate our sons we know for certain are not educated. Yet we do not doubt that they can give what they have not received, a thing which cannot be otherwise acquired.
+ - If content with himself and mankind, a man is never harsh or curt.
+
+45 quotes

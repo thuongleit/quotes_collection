@@ -1,0 +1,30 @@
+ - Maybe I was destined to forever fall in love with people I couldn’t have. Maybe there’s a whole assortment of impossible people waiting for me to find them. Waiting to make me feel the same impossibility over and over again.
+ - Sometimes it feels good to take the long way home.
+ - There’s just something beautiful about walking on snow that nobody else has walked on. It makes you believe you’re special.
+ - Going into the woods alone is the best way to pretend you’re in another time. It’s a thing you can only do alone. If there’s somebody else with you, it’s too easy to remember where you really are.
+ - That’s the secret. If you always make sure you’re exactly the person you hoped to be, if you always make sure you know only the very best people, then you won’t care if you die tomorrow.
+ - I knew the way lost hopes could be dangerous, how they could turn a person into someone they never thought they’d be.
+ - Because maybe I don’t want to leave the planet invisible. Maybe I need at least one person to remember something about me.
+ - The sun kept on with its slipping away, and I thought how many small good things in the world might be resting on the shoulders of something terrible.
+ - My mother gave me a disappointed look. Then I gave her one back. Mine was for everything, not just the sandwich.
+ - You can build a whole world around the tiniest of touches.
+ - Once you know a thing you can’t ever unknow it.
+ - You think I don’t know about wrong love, June? You think I don’t understand embarrassing love?
+ - I felt like I had proof that not all days are the same length, not all time has the same weight. Proof that there are worlds and worlds and worlds on top of worlds, if you want them to be there.
+ - I had no idea how greedy my heart really was.
+ - I was in a place where nobody knew my heart even a little bit.
+ - If my life was a film, I’d have walked out by now.
+ - Nothing had changed. I was the stupid one again. I was the girl who never understood who she was to people.
+ - I know all about love that’s too big to stay in a tiny bucket. Splashing out all over the place in the most embarrassing way possible.
+ - After a snowstorm is the best time to be in the woods, because all the empty beer and soda cans and candy wrappers disappear, and you don’t have to try as hard to be in another time. Plus there’s just something beautiful about walking on snow that nobody else has walked on.
+ - The kinds of things I want don’t cost money.
+ - I used to think maybe I wanted to become a falconer, and now I’m sure of it, because I need to figure out the secret. I need to work out how to keep things flying back to me instead of always flying away.
+ - There are dark black buttons tattooed on my heart. I’ll carry them for the rest of my days.
+ - I only need one good friend to see me through. Most people aren’t like that. Most people are always looking out for more people to know.
+ - I stared hard, trying to find a pattern. Thinking if I kept looking hard enough, maybe the pieces of the world would fit back together into something I could understand.
+ - It’s hard to do that, to decide to believe one thing over another.
+ - You get into habits. Ways of being with certain people.
+ - You could try to believe what you wanted, but it never worked. Your brain and your heart decided what you were going to believe and that was that. Whether you liked it or not.
+ - I go to the movies whenever I get the chance, because the movie theater is like the woods. It’s another place that’s like a time machine.
+
+28 quotes

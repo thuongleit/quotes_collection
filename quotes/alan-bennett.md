@@ -1,0 +1,71 @@
+ - Sometimes there is no next time, no time-outs, no second chances. Sometimes it’s now or never.
+ - I’m not “happy” but I’m not unhappy about it.
+ - You don’t put your life into your books, you find it there.
+ - Life is rather like a tin of sardines – we’re all of us looking for the key.
+ - A book is a device to ignite the imagination.
+ - A bookshelf is as particular to its owner as are his or her clothes; a personality is stamped on a library just as a shoe is shaped by the foot.
+ - It’s subjunctive history. You know, the subjunctive? The mood used when something may or may not have happened. When it is imagined.
+ - It seems to me the mark of a civilized society that certain privileges should be taken for granted such as education, health care and the safety to walk the streets.
+ - History is a commentary on the various and continuing incapabilities of men. What is history? History is women following behind with the bucket.
+ - The nearest my parents came to alcohol was at Holy Communion and they utterly overestimated its effects. However bad the weather, Dad never drove to church because Mam thought the sacrament might make him incapable on the return journey.
+ - I write plays about things that I can’t resolve in my mind. I try to root things out.
+ - I turned down a knighthood. It would be like having to wear a suit every day of your life.
+ - It was the kind of library he had only read about in books.
+ - I saw someone peeing in Jermym Street the other day. I thought, is this the end of civilization as we know it? Or is it simply someone peeing in Jermyn Street?
+ - I don’t talk very well. With writing, you’ve time to get it right. Also I’ve found the more I talk the less I write, and if I didn’t write no one would want me to talk anyway.
+ - Standards are always out of date. That’s what makes them standards.
+ - I was an only child. I lost both my parents. By the time I was twenty I was bald. I’m homosexual. In the way of circumstances and background to transcend I had everything an artist could possibly want. It was practically a blueprint.
+ - It’s the one species I wouldn’t mind seeing vanish from the face of the earth. I wish they were like the White Rhinosix of them left in the Serengeti National Park, and all males.
+ - Never read the Bible as if it means something. Or at any rate don’t try and mean it. Nor prayers. The liturgy is best treated and read as if it’s someone announcing the departure of trains.
+ - Memories are not shackles, Franklin, they are garlands.
+ - Books are not about passing time. They’re about other lives. Other worlds. Far from wanting time to pass, one just wishes one had more of it. If one wanted to pass the time one could go to New Zealand.
+ - Your whole life is on the other side of the glass. And there is nobody watching.
+ - Were we closer to the ground as children, or is the grass emptier now?
+ - To play Trivial Pursuit with a life like mine could be said to be a form of homeopathy.
+ - If you think squash is a competitive activity, try flower arranging.
+ - You always know when you’re going to arrive. If you go by car, you don’t. Apart from anything else, I prefer cycling. It puts you in a good mood, I find.
+ - Have you ever thought, headmaster, that your standards might perhaps be a little out of date? Of course they’re out of date. Standards are always out of date. That is what makes them standards.
+ - Mark my words, when a society has to resort to the lavatory for its humour, the writing is on the wall.
+ - The Breed never dies. Sapper, Buchan, Dornford Yates, practitioners in that school of Snobbery withViolence that runs like a thread of good-class tweed through twentieth-century literature.
+ - I’m not good at precise, coherent argument. But plays are suited to incoherent argument, put into the mouths of fallible people.
+ - Had your forefathers, Wigglesworth, been as stupid as you are, the human race would never have succeeded in procreating itself.
+ - The majority of people perform well in a crisis and when the spotlight is on them; it’s on the Sunday afternoons of this life, when nobody is looking, that the spirit falters.
+ - I can walk. It’s just that I’m so rich I don’t need to.
+ - God doesn’t do notes, either. Did Jesus Christ say, “Can I be excused the Crucifixion?” No!
+ - One of the hardest things for boys to learn is that a teacher is human. One of the hardest things for a teacher to learn is not to try and tell them.
+ - We started off trying to set up a small anarchist community, but people wouldn’t obey the rules.
+ - If I am doing nothing, I like to be doing nothing to some purpose. That is what leisure means.
+ - If you find yourself born in Barnsley and then set your sights on being Virginia Woolf it is not going to be roses all the way.
+ - Nature played a cruel trick on her by giving her a waxed mustache.
+ - We were put to Dickens as children but it never quite took. That unremitting humanity soon had me cheesed off.
+ - I’m all in favour of free expression provided it’s kept rigidly under control.
+ - Life is generally something that happens elsewhere.
+ - Books are not about passing the time. They’re about other lives. Other worlds.
+ - Children always assume the sexual lives of their parents come to a grinding halt at their conception.
+ - At eighty things do not occur; they recur.
+ - I lack what the English call character, by which they mean the power to refrain.
+ - What she was finding also was how one book led to another, doors kept opening wherever she turned and the days weren’t long enough for the reading she wanted to do.
+ - No mention of God. They keep Him up their sleeves for as long as they can, vicars do. They know it puts people off.
+ - That’s a bit like asking a man crawling across the Sahara whether he would prefer Perrier or Malvern water.
+ - So boring you fall asleep halfway through her name.
+ - Art comes out of art; it begins with imitation, often in the form of parody, and it’s in the process of imitating the voice of others that one comes to learn the sound of one’s own.
+ - What I’m above all primarily concerned with is the substance of life, the pith of reality. If I had to sum up my work, I suppose that’s it really: I’m taking the pith out of reality.
+ - Our father the novelist; my husband the poet. He belongs to the ages – just don’t catch him at breakfast. Artists, celebrated for their humanity, they turn out to be scarcely human at all.
+ - Schweitzer in the Congo did not derive more moral credit than Larkin did for living in Hull.
+ - My films are about embarrassment.
+ - The thing I think about is that once you’ve done it, you then start to think about what you’re going to do next. It’s much easier to follow something that’s not been as successful as this.
+ - I’ve never seen the point of the sea, except where it meets the land. The shore has a point. The sea has none.
+ - I have never understood disliking for war. It panders to instincts already catered for within the scope of any respectable domestic establishment.
+ - An article on playwrights in the Daily Mail, listed according to Hard Left, Soft Left, Hard Right, Soft Right and Centre. I am not listed. I should probably come under Soft Centre.
+ - Polly: Education with socialists, it’s like sex, all right as long as you don’t have to pay for it.
+ - I suppose I’m the only person who remembers one of the most exciting of his ballets-it’s the fruit of an unlikely collaboration between Nijinsky on the one hand and Sir Arthur Conan Doyle on the other.
+ - All the effort went into getting there and then I had nothing left. I thought I’d got somewhere, then I found I had to go on.
+ - The longer I practise medicine, the more convinced I am there are only two types of cases: those that involve taking the trousers off and those that don’t.
+ - There is no such thing as a good script, onlya good film, and I’m conscious that my scripts often read better than they play.
+ - I’ve never forgotten that experience. But I had nobody at school that was either like Hector or Irwin. The masters had no idea what was expected of you in the scholarship exam, so you just had to busk it really.
+ - Those who have known the famous are publicly debriefed of their memories, knowing as their own dusk falls that they will only be remembered for remembering someone else.
+ - Reading is untidy, discursive and perpetually inviting.
+ - Cancer, like any other illness, is a bore.
+ - Why is it always the “intelligent” people who are socialists?
+
+69 quotes

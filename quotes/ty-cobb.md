@@ -1,0 +1,30 @@
+ - The great trouble with baseball today is that most of the players are in the game for the money and that’s it, not for the love of it, the excitement of it, the thrill of it.
+ - The most important part of a player’s body is above his shoulders.
+ - Just speed, raw speed, blinding speed, too much speed.
+ - When I played ball, I didn’t play for fun.
+ - Don’t come home a failure.
+ - I never could stand losing. Second place didn’t interest me. I had a fire in my belly.
+ - The way those clubs shift against Ted Williams, I can’t understand how he can be so stupid not to accept the challenge to him and hit to left field.
+ - I regret to this day that I never went to college. I feel I should have been a doctor.
+ - To get along with me, don’t increase my tension.
+ - I may have been fierce, but never low or underhand.
+ - When two doctors pass each other on the street they wink at each other.
+ - A ball bat is a wondrous weapon.
+ - Every great batter works on the theory that the pitcher is more afraid of him than he is of the pitcher.
+ - No man has ever been a perfect ballplayer. Stan Musial, however, is the closest to being perfect in the game today.
+ - I’m coming down on the next pitch, Krauthead.
+ - When I came to Detroit I was just a mild-mannered Sunday-school boy.
+ - Baseball was one-hundred percent of my life.
+ - That boy Mantle is a good one.
+ - I have observed that baseball is not unlike war, and when you get right down to it, we batters are the heavy artillery.
+ - The base paths belonged to me, the runner. The rules gave me the right. I always went into a bag full speed, feet first. I had sharp spikes on my shoes. If the baseman stood where he had no business to be and got hurt, that was his fault.
+ - Every man in the game, from the minors on up, is not only fighting against the other side, but he’s trying to hold onto his own job against those on his own bench who’d love to take it away. Why deny this? Why minimize it? Why not boldly admit it?
+ - Speed is a great asset; but it’s greater when it’s combined with quickness – and there’s a big difference.
+ - I’ve got to be first. ALL the time.
+ - The crowd makes the ballgame.
+ - The great American game should be an unrelenting war of nerves.
+ - Walter Johnson’s fastball looked about the size of a watermelon seed and it hissed at you as it passed.
+ - Most collisions out on the fields are needless.
+ - I’ve been called one of the hardest bargainers who ever held out, and I’m proud of it.
+
+28 quotes

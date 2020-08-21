@@ -1,0 +1,35 @@
+ - Always wear sunscreen and wash your makeup off at night.
+ - Balance is key in cooking – you want a little acid, a little sweet, a little savory – the flavors should be harmonious.
+ - Dark chocolate, and salt and vinegar chips are my weakness – but not together.
+ - There is no better way to bring people together than with desserts.
+ - Find combinations of flavors you love and buy the best quality ingredients you can afford. Your food is only going to be as good as the sum of its parts, like anything else.
+ - You don’t get second chances in the real world.
+ - I love The Inn at Palmetto Bluff, an Auberge Property in Bluffton, South Carolina. Its a spectacular corner of the world, with massive old trees lined with Spanish moss, and alligators swimming in the river.
+ - I’m tempted by everything. My husband makes fun of me because every day it’s a new food that I love. I have a weakness for butterscotch pudding, ice cream in any flavor and dark chocolate, although that’s one thing I do keep in my house – 70% dark chocolate.
+ - Patience is the secret to good food.
+ - Because I travel so much, I bring my workout clothes and shoes wherever I go. That way I can always do some exercise.
+ - Like baseball, food will never go out of style; we will always need to eat and we will always find it entertaining. I think of food TV this way – all the fun and none of the calories.
+ - There’s not a single chef I know of that does not think about the politics of the food they’re serving.
+ - I’m a healthy weight for my height, and I like how I look on most days.
+ - The less you do to beautiful food, the better it’s going to taste. You don’t need to mess with it all the time.
+ - I am a glutton for a beautiful hotel. I am so easily smitten by high thread counts.
+ - I run a solid 4-6 miles at a time, and over the last year two years I’ve gotten really into SoulCycle. It’s sort of an evolved form of spinning.
+ - I eat for a living, so working out is definitely part of my job, the same way that the eating, tasting, and drinking is.
+ - You can’t fake being able to cook well.
+ - When I’m cooking for myself, I find that I eat almost completely vegetarian, although I’m not vegetarian.
+ - I would not say I’m an aggressive shopper. I want to be; I aspire to be an aggressive shopper. I am a meek, meek shopper.
+ - At the beginning of the week, I roast a ton of vegetables so I can use them for the next few days. I also plan out meals in advance.
+ - Eating a lot is an occupational hazard but it’s a pretty great problem to have. I spend a lot of time eating sweets on TV – cake, cupcakes, donuts, and pudding. It’s a dream job, but at the same time there will be days where I wake up knowing I will eat 15 desserts!
+ - Patience was not something that came naturally to me, but in cooking it is the quintessential skill.
+ - I always want my guests to be happy and impressed.
+ - There are few women in America that don’t want to lose 5 pounds, but I refuse to let that thought dominate my life. And there are too many other real problems in the world – real obesity problems and real hunger problems – to worry that much about a few pounds that I’d like to lose.
+ - Canada is a big part of my life.
+ - My mother’s kitchen was built to be the focal point of our house. I got into the kitchen often as a child.
+ - Ultimately, I realized that in order to write about food you need to understand everything about cooking, so I moved to New York and enrolled in the Institute of Culinary Education.
+ - You know, I lose patience really easily; I’d rather shop in the grocery store than in the department store. I can pick an apple like nobody’s business.
+ - I have a mantra in my head that there will always be another meal. I can put my fork down, knowing there will be good things in my future!
+ - I cook mostly vegetarian vegetable and bean stews. Quinoa salads. I make my mother-in-law’s recipe for chicken and barley stew all the time.
+ - In America, Blackberry Farm in Tennessee is one of the most amazing hotels I’ve had the privilege of staying at.
+ - I had decided I wanted to write about food, and I knew the only way to do that is to speak with authority, which meant learning the language and knowing what that experience is like.
+
+33 quotes

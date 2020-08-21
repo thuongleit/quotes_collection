@@ -1,0 +1,180 @@
+ - To be a disciple of Jesus is to make disciples of Jesus.
+ - If you can trust God to save you for eternity, you can trust him to lead you for a lifetime.
+ - We are settling for a Christianity that revolves around catering to ourselves when the central message of Christianity is actually about abandoning ourselves.
+ - Unreached peoples are unreached for a reason. They’re hard, difficult, and dangerous to reach. All the easy ones are taken.
+ - Forgiveness is God’s greatest gift because it meets our greatest need.
+ - I always questioned if I was CALLED to adopt, but then I realized no child was ever CALLED to be an orphan.
+ - My prayer is that people will see that following Jesus costs you everything you are and everything you have. And my prayer is that people will see that Jesus is worth it.
+ - Live today for what is going to matter 10 billion years from today.
+ - Nothing is impossible for the people of God who trust in the power of God to accomplish the will of God.
+ - There is indescribable joy, deep satisfaction and an eternal purpose in dying to ourselves and living for Christ.
+ - It’s important to realize that we adopt not because we are rescuers. No. We adopt because we are rescued.
+ - God involves us in his mission not because he needs us but because he loves us.
+ - Let me introduce you to Jesus.
+ - Ultimate satisfaction is found not in making much of ourselves but in making much of God.
+ - Gospel possession requires gospel proclamation.
+ - The most glorious reason you exist is for the proclamation of the glory of God to the ends of the world. And it’s more than having a nice life.
+ - Being a member of a church means realizing that we are responsible for helping the brothers and sisters around us to grow as disciples of Jesus. In the same way, they are responsible for helping us. We desperately need each other in the daily fight to follow Christ in a world that’s full of sin.
+ - Do we believe the reward found in Jesus is worth the risk of following Him?
+ - To be a Christian is to be loved by God, pursued by God, and found by God.
+ - To everyone wanting a safe, untroubled, comfortable life free from danger, stay away from Jesus. The danger in our lives will always increase in proportion to the depth of our relationship with Christ.
+ - We learned that orphans are easier to ignore before you know their names. They are easier to ignore before you see their faces. It is easier to pretend they’re not real before you hold them in your arms. But once you do, everything changes.
+ - A high view of God’s sovereignty fuels death-defying devotion to global missions. Maybe another way to put it, people, and more specifically pastors, who believe that God’s sovereign over all things will lead Christians to die for the sake of all peoples.
+ - Don’t underestimate what God can do with ordinary people.
+ - Orphans are easier to ignore before you know their names; but once you know, everything changes.
+ - When you come to Jesus, you don’t come to get health, wealth and prosperity. You come to Jesus to get Jesus.
+ - Surely the greatest social injustice is that 2 billion people haven’t heard of God’s love in Christ.
+ - Why make disciples? Because heaven and hell exist, and the end of the world is coming.
+ - The more Christ fulfills the cravings of our souls, the more he changes our taste capacities from the inside out. The more we walk with him, the more we want him. The more we taste of him, the more we enjoy him. And this transforms how we live and what we live for.
+ - The church is not an audience of spectators; we are a fellowship of disciple-makers.
+ - What if the very reason we have breath is because we have been saved for a global mission? And what if anything less than passionate involvement in global mission is actually selling God short by frustrating the very purpose for which he created us?
+ - While the goal of the American dream is to make much of us, the goal of the gospel is to make much of God.
+ - Give liberally. Go urgently. Live dangerously.
+ - The bible informs us, compels us to care for the poor, to love the outcast, to serve the needy.
+ - Every saved person this side of heaven owes the gospel to every lost person this side of hell.
+ - People will never know how glorious the cross is until they know how serious sin is.
+ - We have a master who deserves radical sacrifice.
+ - Our greatest need is not to try harder. Our greatest need is a new heart.
+ - Do you believe that Jesus is worth abandoning everything for? Do you believe him enough to obey him and to follow him wherever he leads, even when the crowds in our culture – maybe even our churches – turn the other way?
+ - This is the gospel. The just and loving Creator of the universe has looked upon hopelessly sinful people and sent His Son, God in the flesh, to bear His wrath against sin on the cross and to show His power over sin in the resurrection so that all who trust in Him will be reconciled to God forever.
+ - The faith in Christ that saves us from our sins involves an internal transformation that has external implications.
+ - We desperately need to explore how much of our understanding of the gospel is American and how much is biblical.
+ - If our lives do not reflect radical compassion for the poor, there is reason to wonder if Christ is really in us at all.
+ - By God’s design, he has wired his children for spiritual reproduction. He has woven into the fabric of every single Christian’s DNA a desire and ability to reproduce.
+ - God has made a way of salvation for the lost. Not a way, but the way. And this is the good news – the gospel.
+ - The gospel does not prompt you to mere reflection; the gospel requires a response. In the process of hearing Jesus, you are compelled to take an honest look at your life, your family, and your church and not just ask, ‘What is he saying?’ but also ask, ‘What shall I do?’
+ - The road that leads to heaven is risky, lonely, and costly in this world, and few are willing to pay the price. Following Jesus involves losing your life-and finding new life in him.
+ - Our great need is to fall before an almighty Father day and night and to plead for him to show his radical power in and through us, enabling us to accomplish for his glory what we could never imagine in our own strength.
+ - God’s ultimate concern is not to get you or me from point A to point B along the quickest, easiest, smoothest, clearest route possible. Instead, his ultimate concern is that you and I would know him deeply as we trust him more completely.
+ - We owe Christ to the world – to the least person and to the greatest person, to the richest person and to the poorest person, to the best person and to the worst person. We are in debt to the nations.
+ - I want to be apart of something that can only be explained by the hand of God!
+ - But then I realize there is never going to be a day when I stand before God and He looks at me and says, ‘I wish you would have kept more for yourself.’ I’m confident that God will take care of me.
+ - To be a Christian is to realize that in your sin, you were separated from God’s presence, and you deserved nothing but God’s wrath.
+ - Privatized faith in a resurrected Christ is practically inconceivable.
+ - Satan’s strategies to stop the church will ultimately serve to spread the church. And Satan’s strategies to inflict earthly pain in your life will ultimately serve to increase eternal glory with your God; ‘Light momentary affliction.’
+ - May even the concept of unreached peoples be totally intolerable to us.
+ - Jesus has not given us options to consider. He has given us commands to obey.
+ - If there were 1,000 ways to God we would want 1,001.
+ - The gospel confronts us with the hopelessness of our sinful condition. But we don’t like what we see of ourselves in the gospel, so we shrink back from it.
+ - People who claim to be Christians while their lives look no different from the rest of the world are clearly not Christians.
+ - We desperately need each other in the daily fight to follow Christ in a world that’s full of sin.
+ - We are not the end of the gospel; God is.
+ - Believing in the Jesus of the Bible makes life risky on a lot of levels because it is absolute surrender of every decision we make, every dollar we spend, our lives belong to another.
+ - The gospel beckons our sin-sick souls to simple trust in Christ, the only One who is truly radical enough.
+ - The dangerous assumption we unknowingly accept in the American dream is that our greatest asset is our own ability.
+ - God uses sorrowful tragedy to set the stage for surprising triumph-whether in this life or the life to come.
+ - This is the curse of superficial religion: the constant attempt to do outward things apart from inward transformation.
+ - Good intentions, regular worship, Bible study, do not prevent blindness. Part of our sinful nature instinctively chooses to see what we want to see and to ignore what we want to ignore.
+ - What if the word of God was enough to inspire passionate worship among his people?
+ - God delights in revealing Himself to you when you are bold enough to bother Him. In fact, I think He would say that the only thing that bothers Him is when you don’t come to Him.
+ - Repentance is a rich biblical term that signifies an elemental transformation in someone’s mind, heart, heart, and life.
+ - Somewhere along the way we have subtly and tragically taken the costly command of Christ to go, baptize, and teach all nations and mutated it into a comfortable call for Christians to come, be baptized, and listen in one location.
+ - God has clearly called and gifted some people in the church to teach his Word formally.
+ - God blesses his people with extravagant grace so they might extend his extravagant glory to all peoples on the earth.
+ - We live in a church culture that has a dangerous tendency to disconnect the grace of God from the glory of God.
+ - God’s revelation is in the gospel not only reveals who He is, but it also reveals who we are.
+ - This is how God works. He puts people in positions where they are desperate for his power, and then he shows his provision in ways that display his greatness.
+ - Christianity is radically different from every other religion in the world.
+ - Making disciples by going, baptizing, and teaching people the Word of Christ and then enabling them to do the same thing in other people’s lives – this is the plan God has for each of us to impact nations for the glory of Christ.
+ - Instead of trying to conquer sin by working hard to change our actions, we can conquer sin by trusting Christ to change our affections.
+ - The journey begins, though, with understanding what it means to be a christian. To say you believe in Jesus apart from conversion in your life completely misses the essence of what it means to follow him. Do not be deceived.
+ - We can rest confident in the fact that nothing will happen to us in this world apart from the gracious will of a sovereign God. Nothing.
+ - Spiritual deception is dangerous -and damning.
+ - Jesus is no longer one to be accepted or invited in but one who is infinitely worthy of our immediate and total surrender.
+ - It is impossible to be a follower of Christ while denying, disregarding, discrediting, and disbelieving the words of Christ.
+ - Faith is the realization that God’s pleasure in you will never be based upon your performance for him.
+ - We have an incomprehensibly great God!
+ - We assume that our race simply deserves heaven; that God owes heaven to us unless we do something really bad to warrant otherwise.
+ - We don’t go to Scripture for permission to do what we think is best, but for direction to do what He says is best.
+ - Should it concern us that the bible never calls us to ask Jesus into our hearts. Should it concern us that the bible never mentions such a superstitious sinners prayer and yet that is exactly what we have sold to so many as salvation.
+ - We have a dangerous tendency to misunderstand, minimize, and even manipulate the gospel in order to accommodate our assumptions and our desires.
+ - The body of Christ is a multicultural citizenry of an otherworldly kingdom.
+ - I am finding deep joy in depending on Christ for the guidance only He can provide as He produces the fruit of gospel in my life.
+ - I wonder sometimes, though, if we intentionally or just unknowingly mask the beauty of God in the gospel by minimizing his various attributes.
+ - Why not begin operating under the idea that God has given us excess, not so we could have more, but so we could give more?
+ - Despite the obvious qualifications of all of Jesse’s other sons, God appoints the unlikely David to become the king of Israel.
+ - God really is in the business of blessing his people in unusual ways so his goodness and his greatness will be declared among all peoples.
+ - God creates, blesses and saves each of us for a radically global purpose.
+ - When we consider the promises of Christ, risking everything we are and everything we have for His sake is no longer a matter of sacrifice. It’s just common sense.
+ - Salvation has absolutely nothing to do with human merit and absolutely everything to do with divine mercy.
+ - Our possessions can be deadly. They can be subtly deadly.
+ - We have the audacity to look God in the face and say, ‘No.’
+ - Instead of imagining all the things we can accomplish, we ask God to do what only he can accomplish. Yes, we work, we plan, we organize, and we create, but we do it all while we fast, while we pray, and while we constantly confess our need for the provision of God.
+ - And as we meet needs on earth, we are proclaiming a gospel that transforms lives for eternity. The point is not simply to meet a temporary need or change a startling statistic; the point is to exalt the glory of Christ as we express the gospel of Christ through the radical generosity of our lives.
+ - Disciple making is not a call for others to come to us to hear the gospel but a command for us to go to others to share the gospel.
+ - Jesus is not some puny religious teacher begging for an invitation from anyone. He is the all-sovereign Lord who deserves submission from everyone.
+ - We bask in sermons, conferences, and books that exalt a grace centering on us.
+ - As Elisabeth Elliot points out, not even dying a martyr’s death is classified as extraordinary obedience when you are following a Savior who died on a cross. Suddenly a martyr’s death seems like normal obedience.
+ - Christianity does not start with an invitation we offer to Jesus, but with an invitation Jesus offers to us.
+ - God in His providence hasn’t called us to watch history, but to shape history by praying in His Name.
+ - God actually delights in exalting our inability. He intentionally puts his people in situations where they come face to face with their need for him.
+ - Ask, could my gifts, education, career, or experience be used to spread the gospel where it’s needed most?
+ - The Life of Christ determines everything about us.
+ - The resources of heaven are ready and waiting for the people of God who desire to make much of him in this world.
+ - For God to be holy does not just mean He is without error. It means He is without equal. May it not be said of any one of us that there is not respect for the author of the universe. He is sovereign over all nature, over all nations and over every single one of our lives.
+ - No matter how many red Xs we write on our hands to end slavery, as long as these same hands are clicking on pornographic websites and scrolling through sexual pictures and videos, we are frauds to the core.
+ - God chose to set his love on the Israelites not because of any merit in them but solely because of mercy in him.
+ - We can accomplish more in one month of dependence on the Spirit than we can in 100 years of dependence on ourselves.
+ - Ultimately, tragedy on earth can only be understood rightly from the perspective of heaven.
+ - The gospel reveals the glory of God. According to God’s Word, he is the sovereign Creator of all things.
+ - Craig Bellamy’s got pace, but he’s also rapid as well.
+ - That is relinquishing control in a culture that prioritizes control and doing what you need to do in order to advance yourself.
+ - God has put you in this culture at this time for a reason.
+ - We don’t have stomachs for the things of this world because we have feasted on the goodness of our God.
+ - We act, though, not under a utopian illusion that you or I or anyone or everyone together can rid this world of pain and suffering. That responsibility belongs to the resurrected Christ, and he will do it when he returns. But until that day, we do with an undivided heart whatever God calls us to do.
+ - Caring for the poor is one natural overflow and a necessary evidence of the presence of Christ in our hearts. If there is no sign of caring for the poor in our lives, then there is reason to at least question whether Christ is in our hearts.
+ - Saturate your preaching with the gospel in the church, so that you people speak gospel in the world.
+ - When we realize that Jesus is the one who takes the initiative and invites us to follow him, everything changes-on multiple levels.
+ - The price of our non-discipleshi p is high for those without Christ.
+ - Are We Going to die in our religion or are we going to die in our devotion?
+ - The sovereignty of God is the only foundation for worship in the midst of tragedy.
+ - Clearly our greatest need is not more regulations in order to merit salvation.
+ - Some people think that if they will do certain things, they will somehow earn the favor of God, but this misses the whole point of Christianity and ironically devolves into a me-centered approach.
+ - Do you realize the weight of the one who has invited us to follow him? He is worthy of more than church attendance and casual association; he is worthy of total abandonment and supreme adoration.
+ - We do not follow a health and wealth savior. We follow a homeless and wounded Savior.
+ - God stands ready to allocate his power to all who are radically dependent on Him and radically devoted to making much of Him.
+ - As I looked at material and spiritual poverty in the world around me, including approximately 2 billion people who haven’t even heard the gospel, I knew that I needed to make some major changes in my life.
+ - And ultimately, If you sin against an infinitely holy and eternal God, you are infinitely guilty and worthy of eternal punishment.
+ - Salvation now consists of a deep wrestling in our souls with the sinfulness of our hearts, the depth of our depravity, and the desperation of our need for his grace.
+ - Christianity does not begin with our pursuit of Christ, but with Christ’s pursuit of us.
+ - The Word of God and the Spirit of God are enough for the people of God to enjoy and spread the worship of God.
+ - The church I lead could have the least gifted people, the least talented people, the fewest leaders, and the least money, and this church under the power of the Holy Spirit could still shake the nations for his glory.
+ - The Bible clearly reminds us that left to ourselves, we would be lost forever.
+ - One of my favorite sights is to look across a room packed with people with their Bibles in their laps, studying who God is and what God has said- after midnight.
+ - Accept Him? Do we really think Jesus needs our acceptance? Don’t we need Him?
+ - So the challenge for us is to live in such a way that we are radically dependent on and desperate for the power that only God can provide.
+ - I want to move from what we let go of to whom we hold on to. I want to explore not just the gravity of what we forsake in this world, but also the greatness of the one we follow in this world.
+ - If we are going to accomplish the global purpose of God, it will not be primarily through giving our money, as important as that is. It will happen primarily through giving ourselvs. This is what the gospel represents and this is what the gospel requires.
+ - If you claim to be a follower of Christ, I encourage you to consider your present commitment to a local church.
+ - The mega-strategy of Jesus: make disciples.
+ - The boss says that games in hand are no good unless you turn them into points. What he’s getting at is that games in hand aren’t much good unless you turn them into points.
+ - God loves me so that I might make him – his ways, his salvation, his glory, and his greatness – known among all nations.
+ - Every Christian has unique opportunities to engage the most pressing social issues of our day by praying, proclaiming the gospel, and participating with God in all that he is doing in the world.
+ - We do not have time to waste our lives coasting out casual, comfortable Christianity.
+ - A materialistic world will not be won to Christ by a materialistic church.
+ - If we want to know the Glory of God, if we want to experience the beauty of God, and if we want to be used by the hand of God, then we must LIVE in the WORD of God.
+ - We are afraid that if we stop and really look at God in his Word, we might discover that he evokes greater awe and demands deeper worship than we are ready to give him.
+ - What drives passion for getting the gospel to all people is not guilt, it’s glory.
+ - When we realize we have the responsibility to teach the word, it changes everything about how we hear the Word.
+ - This extremely shocking and utterly revolutionary call is the essence of what it means to be a disciple of Jesus: we are not called to simply believe certain points or observe certain practices, but ultimately to cling to the person of Christ as life itself.
+ - We can so easily deceive ourselves, mistaking the presence of physical bodies in a crowd for the existence of spiritual life in a community.
+ - I could not help but think that somewhere along the way we had missed what was radical about our faith and replaced it with what is comfortable.
+ - God involves us in his missions not because He needs us, but because He loves us. And in His mercy He has invited us to be involved in His sovereign design for the spread of the gospel to the ends of the earth.
+ - In our evil we rebel against God. We take the law of God, written in his Word and on our hearts, and we disobey it.
+ - In direct contradiciton to the American dream, God actually delights in exalting our inability.
+ - I was immersed in comfortable Christianity. Years ago, I found myself living what seemed like the American church dream – pastoring a large church, living in a large house, and surrounded by all the comforts this world has to offer. But inside I had a sinking feeling that I was missing the point.
+ - Jesus came to live the life we could not live and to die the death we deserve to die.
+ - The very first word out of Jesus; mouth in is ministry in the New Testament is clear: repent.
+ - As Christ begins to live in us, everything begins to change about us.
+ - Surely the gospel evokes unconditional surrender of all that we are and all that we have to all that He is.
+ - Peruse the Christian marketplace, and you will find a plethora of books, songs, and paintings that depict God as a loving Father.
+ - The primary purpose of prayer is not to get something, but to know Someone.
+ - And this is why Jesus came: to endure the holy wrath of God due us.
+ - It is a constant battle to resist the temptation to have more luxuries, to acquire more stuff, and to live more comfortably.
+ - In every genre of biblical literature and every stage of biblical history, God is seen pouring out his grace on his people for the sake of his glory among all peoples.
+ - Who God is and what Christ did have huge implications for who we are personally and what we desire sexually.
+ - We have nothing to fear, because God is sovereign.
+ - I couldn’t really jet off to the States on a whim and a prayer.
+ - Surrounded by the self -sufficiency of American culture, we can convince ourselves that we have what it takes to achieve something great.
+
+178 quotes

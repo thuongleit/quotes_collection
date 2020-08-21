@@ -1,0 +1,27 @@
+ - God is with us, not beyond us, in suffering.
+ - Human imagination is not simply our means of reaching out to God but God’s means of manifesting himself to us.
+ - What we call doubt is often simply dullness of mind and spirit, not the absence of faith at all, but faith latent with the lives we are not quite living, God dormant in the world to which we are not quite giving our best selves.
+ - To be truly alive is to feel one’s ultimate existence within one’s daily existence.
+ - Wonder is the precondition for all wisdom.
+ - Art is so often better at theology than theology is.
+ - Sometimes God calls a person to unbelief in order that faith may take new forms.
+ - There are dangers for an artist in any academic environment. Academia rewards people who know their own minds and have developed an ironclad confidence in speaking them. That kind of assurance is death for an artist.
+ - I suppose I do believe that the greatest art consoles a wound that it creates, that art can give you the capacity to endure and respond to the pain it forces you to feel. Psychological pain, I mean.
+ - Nature poets can’t walk across the backyard without tripping over an epiphany.
+ - I honestly don’t know whether I am describing something essential about the way we know God or merely my own weakness of mind.
+ - I find myself continually falling back into wounds, wishes, terrors I thought I had risen beyond.
+ - At some point you have to believe that the inadequacies of the words you use will be transcended by the faith with which you use them. You have to believe that poetry has some reach into reality itself, or you have to go silent.
+ - Mandelstam – his gift and the untamable nature of it – was like a thorn in Stalin’s brain.
+ - We should be suspicious when God’s call conforms so neatly to our own inclinations.
+ - I don’t think that someone who does not speak the original language can ever expect to produce a real translation.
+ - One of the ways in which I feel close to God is writing poetry.
+ - I’m drawn to this range, that’s for sure, but I suppose the thing that most appeals to me about Mandelstam is the sense you get from every poem that everything – the poet’s very soul – is at stake.
+ - Mandelstam was an artistic genius, the sort that any century produces only a handful of.
+ - It’s just that different emotions and perceptions demand different frequencies and intensities.
+ - Mandelstam’s style is not singular. He could be stately and traditional, ribald and funny, hectic, elegiac. He could handle abstractions and ideas as well as Pope or Browning but then be so musical that other poems approach pure sound.
+ - The horrors have made the legend of Mandelstam and are inevitably the lens through which we read his work and life. But if there had been no Stalin and no purge, Mandelstam still would have been a poet of severe emotional and existential extremity.
+ - I think of translations as passing some scholarly smell test: you can read the words of the translation and be reasonably sure of what the words are in the original.
+ - Mandelstam is the sort of poet who comes along very, very rarely. Even the two Russian poets whose work is often linked with his – Anna Akhmatova and Marina Tsvetaeva – though their work is more “urgent” than most American poetry, seem to me to operate at a lesser charge than Mandelstam.
+ - I can’t think offhand of any American poets who have Mandelstam’s urgency, but it’s a different country and a different time, and I don’t think it would make much sense to say that this is something that’s “missing” from contemporary American poetry.
+
+25 quotes

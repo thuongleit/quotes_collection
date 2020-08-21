@@ -1,0 +1,21 @@
+ - If the people have no bread, let them eat cake.
+ - There is nothing new except what has been forgotten.
+ - I wasn’t raised, I was built.
+ - In times of crisis, it is of utmost importance to keep one’s head.
+ - Let them eat cake.
+ - We had a beautiful dream and that was all...
+ - I am terrified of being bored.
+ - When everyone else is losing their heads, it is important to keep yours.
+ - Farewell, my children, forever. I go to your Father.
+ - Letting everyone down would be my greatest unhappiness.
+ - I had friends. The idea of being forever separated from them and from all their troubles is one of the greatest sorrows that I suffer in dying. Let them at least know that to my latest moment I thought of them.
+ - Tribulation first makes one realize what one is.
+ - Qu’ils mangent de la brioche. Let them eat cake. On being told that her people had no bread. Attributed to Marie-Antoinette, but remark is much older. Rousseau refers in his Confessions, 1740, to a similar remark, as a well-known saying. Others attribute the remark to the wife of Louis XIV.
+ - And I will make thee beds of roses, And a thousand fragrant posies.
+ - No, do not love me, it is better to give me death!
+ - Courage! I have shown it for years; think you I shall lose it at the moment when my sufferings are to end?
+ - I trust we shall never be reduced to the painful extremity of seeking the aid of Mirabeau.
+ - I have come, Sire, to complain of one of your subjects who has been so audacious as to kick me in the belly.
+ - Courage? The moment when my troubles are going to end is not the moment when my courage is going to fail me.
+
+19 quotes

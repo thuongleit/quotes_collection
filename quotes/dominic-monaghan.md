@@ -1,0 +1,61 @@
+ - My parents are pretty cool people.
+ - I’m a big fan of the misunderstood, the vilified, the underdog, the breaking of myths.
+ - I enjoy the preparatory elements of travel – packing my bags and choosing my outfits – but my favourite part is getting there.
+ - I like learning new stuff, and continuing to educate myself as best I can.
+ - Bureaucratic nonsense at airports drives me crazy.
+ - The term ‘geek’ for me is like you having a passion, interest in something that is unabashed and you don’t care if people think it’s not cool. You think it’s cool and that’s your thing.
+ - If you woke up, every day, and someone punched you in the face, for the first week, you’d go, ‘Why is someone punching me in the face?’ But, by the time you got through week two, you’d take it and just go on with the day.
+ - I have a natural curiosity about things, in general. I’m constantly trying to find out how things work and how I can put them back together again, and why they work that way. The natural world is all around us.
+ - My ultimate search has been for a muse.
+ - I’d like to go on a hardcore safari in Africa, something off the beaten track with anti-poaching people and camping out in the savannah.
+ - I’ve learnt that the world over, everyone’s essentially the same. We are all trying to have a nice time and get along with things.
+ - The number one thing for me is diversity. I always want to ensure that people can’t put me in a box. I can play a bad guy, I can play a good guy, I can play a good bad guy, I can be the host of a show, I can be serious, and I can be funny.
+ - I used to get quite upset that I’d make friends with a guy or a girl and then within the space of three years we’d move and go and live somewhere else, and you’d have to say goodbye to that person.
+ - If you look at little kids and wild animals, these are two groups of things that whenever I’m with them forces me to be in the moment.
+ - Holidays are all different depending on the company and time of your life.
+ - I love going to work. I love being on-set everyday. It feeds me; it’s exciting.
+ - I’m turned on by diversity. I’m turned on by things that are different. I like different animals, I like different ways of travel, and I like different people.
+ - Life is all about finding challenges for yourself that you want to try to achieve.
+ - I’m constantly exposing myself to art and that inspires me.
+ - If I had a choice as to my perfect career, I would make a couple of films a year and then concentrate on natural history.
+ - I’ve got a hectic schedule, but I wouldn’t have my life any other way.
+ - We’re electrical items and when we die the electricity goes somewhere else. When we die our energy goes into the galaxy.
+ - My brain kind of rolls pretty fast when I’m conscious. It’s constantly looking for stuff to do. Like if I’m in my house and I’m hanging out, I tend to be listening to music whilst watching a film whilst sending e-mails.
+ - My mom and dad just loved the fact that I fooled around. They just embraced it. They’d always kind of enjoy it, and they liked it when I made them laugh.
+ - I don’t need to have three feather pillows in my trailer. I just don’t work that way.
+ - I like relationships and being in love, but I also like being single – you have to embrace all those different things.
+ - People have a fear of the unknown. Insects have different senses than us, different amount of limbs and their body structure is very different. It’s hard for us to really relate to them and understand them.
+ - When I choose projects, I don’t stipulate between film or theatre or television. I receive scripts and I read scripts – and when I read a script that’s good, I then get married to it and talk to my agent about what happens next.
+ - If I could uninvent anything, I would uninvent Hitler’s mum, guns and broccoli.
+ - I was the class clown so I was used to performing and fooling around in front of my friends.
+ - I love having the opportunity to surf.
+ - I’ve always traveled, as a kid my parents moved me around, a different place in Germany every four years. But I got the travel bug when I was a kid, living in different countries.
+ - I’d love to play a gangster but I think people might say I looked a bit too young and cheeky to play a character who’d just blown someones head off!
+ - My brother’s a teacher in Costa Rica and actually does a more important and significant job than I will ever do.
+ - I’m in this position where I can afford to wait, I’m lucky enough to be financially secure to not have to do anything that’s thrown at me. You know the next couple of jobs are going to be pretty crucial in terms of how you’re perceived by people. So I’m just waiting.
+ - I think everyone’s a geek in some way.
+ - I guess we’re living in a pretty sensitive world and there’s nothing you can do about that.
+ - When I was at college, I worked in a department store called Brit Home Stores, which is a pretty lackluster department store, selling clothes for middle-aged women. My job was to walk the floor and find anything that was damaged, take it to the store room and log it.
+ - My favorite movie of all time is probably ‘Apocalypse Now.’
+ - I could always flip between emotions and be available to suddenly do something new. I think it’s a part of playing, and you hang onto it when you’re a kid.
+ - I have been heartbroken once and it has affected all my relationships from there on. But now I look at it as a occupational hazard. If you are in the meat market at some point you are gonna get mad cows disease.
+ - I don’t tend to go out that much.
+ - Not being busy is something I worry about, but I think work begets work.
+ - I think if you’ve held onto a character for several years and then you’re getting rid of that character, it’s going to be traumatic.
+ - I think if you’re an actor, then you can work on stage – but if you’ve never done it before, you’re going to have picked up a few things that you’re going to need to change when you’re working on stage.
+ - I never thought I could learn much from a dog or cat. They sleep when we sleep. They eat when we eat. I’m into observing animals being as wild as they can be in a captive environment.
+ - I like films that deal with some of those questions that you can never answer: ‘Why are we here? What’s it about? What happens to us with the choices that we make? What are the ramifications for doing something right, or doing something wrong?’ Those universal questions, I enjoy.
+ - I was never a big guy in pubs. I was never the main kind of aggressor or anything like that, but I found myself in trouble because I always had a mouth that would come back with something, and there was just never anyone who could make me be quiet.
+ - I get involved with projects based on three parameters – the script, the actors involved and the director.
+ - I don’t say anything unintentionally.
+ - What would it take for me to eat human flesh? If that was the only way to stay alive, I would. I would eat anything.
+ - I grew up a massive Beatles fan.
+ - I’ve had a fair amount of experience with snakes, and I find them to be pretty honest in terms of how you read their body language and emotions. They’ll tell you when they’re grumpy. They’ll tell you when they’re okay.
+ - Television is face acting, and film is eye acting.
+ - When I go on holiday, I go to places that have animals I’m interested in.
+ - I have a lot of respect for marriage.
+ - I’m a movie nut. I go to the movies probably twice a week, and if I’m not doing anything at night, I’m usually watching a movie or two.
+ - Obviously the idea of being human is a very human idea.
+ - I hope to be an actor and never retire.
+
+59 quotes

@@ -1,0 +1,45 @@
+ - There are no difficulties except for those who worry too much about tomorrow.
+ - Love aright and you will never be sad. Embrace God’s will and you will be filled with joy and peace.
+ - Preach by example of your lives rather than by words. Example is the very best sermon.
+ - Strengthen in us, O God, the work You have begun in us.
+ - We cultivate a very small field for Christ, but we love it, knowing that God does not require great achievements but a heart that holds back nothing for self.
+ - How truly blessed we shall be if at the price of even very great sacrifices we shall have made God known and loved by one more soul!
+ - I am where God wills me to be, and so I have found rest and security. His wisdom governs me, His power defends me, His grace sanctifies me, His mercy encompasses me, His joy sustains me and all will go well with me.
+ - The worst defect in the world would be to consider yourself free from faults. Being too greatly saddened by one’s faults can come from having one’s pride humiliated.
+ - He will never let the trial surpass the strength He gives you, and at the very moment you think yourself overwhelmed by sorrow, He will lift you up and give you peace.
+ - Lord, I lean on You alone for strength. Give me your arm to support me, your shoulders to carry me, your breast on which to lay my head, your Cross to uphold me, your Eucharist to nourish me. On you Lord, I shall sleep and rest in peace.
+ - Do not look back to the past, nor forward to the future. Claim only the present, for it holds God’s will.
+ - Never forget that the road to Heaven is the Way of the Cross. Jesus has called us to follow Him, bearing the Cross as He did.
+ - God alone and the desire of His glory – nothing else matters.
+ - He who has Jesus has everything.
+ - O Jesus, my Divine Saviour, I offer You my mind and heart. Direct their movements while I pray, so that I may offer my prayer in union with Your Immaculate Mother.
+ - Jesus went before us on the narrow path along which He beckons us to follow Him.
+ - I love my solitude, and I would love it still more if I had more of it.
+ - The dear Lord has favored us with a share of His cross. The greatest and undoubtedly the hardest to bear is the lack of success in our work here. If a saint had been in charge, all would have gone well.
+ - Strength of character is certainly needed to face life in the world and to stand by right principles, especially in the age in which we live.
+ - If we love Jesus, we shall be loved in return by Him, and that is perfect happiness.
+ - Let us bear our cross and leave it to God to determine the length and the weight.
+ - Learn to let others do their share of the work. Things may be done less well, but you will have more peace of soul and health of body. And what temporal interest should we not sacrifice in order to gain these blessings?
+ - Let us never lose courage or despair of God’s mercy. We have only to humble ourselves before God in order to obtain grace to become all that we ought to be.
+ - My prayers are just an outpouring of gratitude for the assurance of that most completely desired Will of God, which will seem all the more desirable in all that is ahead.
+ - We may not understand His Will for us in time, but in eternity the veil will be drawn and we shall see that He acted only for our happiness.
+ - Let’s try not to be exacting with other people, but rather to pass over in silence those thousand little annoyances that tend to irritate us. For we know that no one is perfect in this life, and we must put up with the defects of others as they put up with ours.
+ - Humility is the virtue that requires the greatest amount of effort.
+ - How can we thankful? We can only love the Heart of Jesus more generously and by our union with Him, become the most humble.
+ - If only I could be hidden in a corner, so as not to be tempted to worry about things that are not really my business.
+ - How very beautiful and consoling our faith is! For the little work we do here on earth it promises in return all the joys of assured happiness.
+ - I live now in solitude and am able to use my time reflecting on the past and preparing for death. I cannot put away the thought of the Indians and in my ambition I fly to the Rockies.
+ - If you have no earthly consolation, why do you not seek consolation in the Heart of Jesus? To love him is truest joy.
+ - It fills me with joy to realize that I can lay down my life daily for God, that I can sacrifice it willingly for Him. I may not be a martyr for the faith, but I can be a martyr of charity.
+ - We are entirely in the care of Divine Providence, and it is very sweet to remain so in peace. The Cross is never lacking; may it be our consolation.
+ - Let us realize that we are sinners and have much to explate, while others less culpable than we are suffer more than we do.
+ - The more I reflect on the graces I have received, the more they astonish me and make me tremble.
+ - If humility is always desirable, generous humility is still more so.
+ - For a long time a very strong and deep attraction has drawn me to missionary life.
+ - All desire but that of doing God’s holy will has been extinguished in me.
+ - What interests you most is our present condition: it is what we would have desired, thorny and difficult, but it is made easier by the unction of grace and alleviated by an all-kind Providence whose help is never withdrawn and whose protection is felt at every moment.
+ - Jesus, I live for Thee, I labor for Thee, I desire only Thee. Thou in me and I in Thee; Thou with me and I with Thee; Thou all mine and I all Thine.
+ - Those who desire only the good pleasure of God abide in peace even in the midst of failure, for God has not told us that He requires success of us.
+ - Profit by the little trials that come to you, for through them we make real progress.
+
+43 quotes

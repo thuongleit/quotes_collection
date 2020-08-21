@@ -1,0 +1,74 @@
+ - Speech is the small change of silence.
+ - We are betrayed by what is false within.
+ - A human act once set in motion flows on forever to the great account. Our deathlessness is in what we do, not in what we are.
+ - But O the truth, the truth. The many eyes That look on it The diverse things they see.
+ - Not till the fire is dying in the grate, Look we for any kinship with the stars. Oh, wisdom never comes when it is gold, And the great price we paid for it full worth: We have it only when we are half earth. Little avails that coinage to the old!
+ - In tragic life, God wot, No villain need be! Passions spin the plot: We are betrayed by what is false within.
+ - Friendship, I fancy, means one heart between two.
+ - God’s rarest blessing is, after all, a good woman!
+ - Who rises from prayer a better man, his prayer is answered.
+ - Memoirs are the backstairs of history.
+ - Earth knows no desolation. She smells regeneration in the moist breath of decay.
+ - The season of love is the carnival of egoism and it brings a touchstone to our natures.
+ - Not till the fire is dying in the grate, Look we for any kinship with the stars.
+ - She whom I love is hard to catch and conquer, Hard, but O the glory of the winning were she won!
+ - Lowly, with a broken neck, The crocus lays her cheek to mire.
+ - Comedy is a game played to throw reflections upon social life, and it deals with human nature in the drawing-room of civilized men and women, where we have no dust of the struggling outer world, no mire, no violent crashes, to make the correctness of the representation convincing.
+ - The man of science is nothing if not a poet gone wrong.
+ - The debts we owe ourselves are the hardest to pay.
+ - Observation is the most enduring of the pleasures of life.
+ - Kissing don’t last: cookery do!
+ - Behold the life at ease; it drifts, The sharpened life commands its course.
+ - I expect Woman will be the last thing civilized by Man.
+ - The song seraphically free Of taint of personality, So pure that it salutes the suns The voice of one for millions, In whom the millions rejoice For giving their one spirit voice.
+ - See ye not, Courtesy is the true Alchemy, turning to gold all it touches and tries?
+ - What a dusty answer gets the soul When hot for certainties in this our life!
+ - There is nothing the body suffers which the soul may not profit by.
+ - The stench of the trail of Ego in our History. It is ego – ego, the fountain cry, origin, sole source of war.
+ - Jealousy is love bed of burning snarl.
+ - The man who has no mind of his own lends it to the priests.
+ - Much benevolence of the passive order may be traced to a disinclination to inflict pain upon oneself.
+ - A kiss is but a kiss now! and no wave of a great flood that whirls me to the sea. But, as you will! we’ll sit contentedly, and eat our pot of honey on the grave.
+ - Perfect simplicity is unconsciously audacious.
+ - Faith works miracles. At least it allows time for them.
+ - Cynicism is intellectual dandyism.
+ - It’s past parsons to console us: No, nor no doctor fetch for me: I can die without my bolus; Two of a trade, lass, never agree! Parson and Doctor! – don’t they love rarely Fighting the devil in other men’s fields! Stand up yourself and match him fairly: Then see how the rascal yields!
+ - Caricature is rough truth.
+ - A witty woman is a treasure; a witty beauty is a power.
+ - The sun is coming down to earth, and the fields and the waters shout to him golden shouts.
+ - Possession without obligation to the object possessed approaches felicity.
+ - My religion of life is always to be cheerful.
+ - It is the devil’s masterstroke to get us to accuse him.
+ - Poetry is talking on tiptoe.
+ - I’ve studied men from my topsy-turvy Close, and I reckon, rather true. Some are fine fellows: some, right scurvy; Most, a dash between the two.
+ - George Eliot has the heart of Sappho; but the face, with the long proboscis, the protruding teeth of the Apocalyptic horse, betrayed animality.
+ - Around the ancient track marched, rank on rank, The army of unalterable law.
+ - The most dire disaster in love is the death of imagination.
+ - That rarest gift to Beauty, Common Sense!
+ - The well of true wit is truth itself.
+ - Swift doth young Love flee, And we stand wakened, shivering from our dream.
+ - Cultivated men and women who do not skim the cream of life, and are attached to the duties, yet escape the harsher blows, make acute and balanced observers.
+ - I know him, February’s thrush, And loud at eve he valentines On sprays that paw the naked bush Where soon will sprout the thorns and bines.
+ - Earth, the mother of all, Moves on her stedfast way, Gathering, flinging, sowing. Mortals, we live in her day, She in her children is growing.
+ - What a woman thinks of women is the test of her nature.
+ - Prepare, You lovers, to know Love a thing of moods: Not like hard life, of laws.
+ - Darker grows the valley, more and more forgetting: So were it with me if forgetting could be willed. Tell the grassy hollow that holds the bubbling well-spring, Tell it to forget the source that keeps it filled.
+ - The man or country that fights priestcraft and priests is to my mind striking deeper for freedom than can be struck anywhere.
+ - As we to the brutes, poets are to us.
+ - The future not being born, my friend, we will abstain from baptizing it.
+ - She poured a little social sewage into his ears.
+ - Chance works for us when we are good captains.
+ - Among the Diaries beginning with the second quarter of our century, there is frequent mention of a lady then becoming famous for her beauty and her wit: “an unusual combination,” in the deliberate syllables of one of the writers, who is, however, not disposed to personal irony when speaking of her.
+ - Sentimentalists are they who seek to enjoy without incurring the Immense Debtorship for a thing done.
+ - A house with a great wine stored below lives in our imagination as a joyful house, fast and splendidly rooted in the soil.
+ - Ah, what a dusty answer gets the soul When hot for certainties in this our life! – In tragic hints here see what evermore Moves dark as yonder midnight ocean’s force, Thundering like ramping hosts of warrior horse, To throw that faint thin fine upon the shore!
+ - We know the degree of refinement in people by the matter they laugh at and the ring of the laugh.
+ - O have a care of natures that are mute!
+ - Published memoirs indicate the end of a man’s activity, and that he acknowledges the end.
+ - Heiresses are never jilted.
+ - Always imitate the behavior of the winners when you lose.
+ - How many a thing which we cast to the ground, When others pick it up, becomes a gem!
+ - Woman’s reason is in the milk of her breasts.
+ - Prayer for worldly goods is worse than fruitless, but prayer for strength of soul is that passion of the soul which catches the gift it seeks.
+
+72 quotes

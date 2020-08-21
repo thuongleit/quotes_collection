@@ -1,0 +1,44 @@
+ - I am a bad feminist and a good woman. I am trying to become better in how I think and say and do – without abandoning what makes me human.
+ - The notion that I should be fine with the status quo even if I am not wholly affected by the status quo is repulsive.
+ - I would rather be a bad feminist than no feminist at all.
+ - Some women being empowered does not prove the patriarchy is dead. It proves that some of us are lucky.
+ - With my writing, I generally just pretend that no one’s reading it. I allow myself that delusion so that I can write the things that I write.
+ - Violence is not the answer but neither is peace.
+ - I live in the middle of nowhere and I’m an insomniac. I just make the time and I read and write really fast so that makes a lot possible for me. I wish I had an explanation for it. I’m grateful for it.
+ - So many of us are reaching out, hoping someone out there will grab our hands and remind us we are not as alone as we fear.
+ - I believe feminism is grounded in supporting the choices of women even if we wouldn’t make certain choices for ourselves.
+ - If people cannot be flawed in fiction there’s no place left for us to be human.
+ - When you can’t find someone to follow, you have to find a way to lead by example.
+ - Books are often far more than just books.
+ - People do terrible things all the time, but we don’t regularly disown our humanity. We disavow the terrible things.
+ - The past is always with you. Some people want to be protected from this truth.
+ - When feminism falls short of our expectations, we decide the problem is with feminism rather than with the flawed people who act in the name of the movement.
+ - I believe women not just in the United States but throughout the world deserve equality and freedom but know I am in no position to tell women of other cultures what that equality and freedom should look like.
+ - Somewhere along the line we started misinterpreting the First Amendment and this idea of the freedom of speech the amendment grants us. We are free to speak as we choose without fear of prosecution or persecution, but we are not free to speak as we choose without consequence.
+ - I approach most things in life with a dangerous level of confidence to balance my generally low self-esteem.
+ - I am mortified by my music choices.
+ - Twitter is my happy place. I am not there to overthink 140 characters.
+ - Feminism’s failings do not mean we should eschew feminism entirely. People do terrible things all the time, but we don’t regularly disown our humanity. We disavow the terrible things. We should disavow the failures of feminism without disavowing its many successes and how far we have come.
+ - Writing has always allowed me to escape. I was a very lonely child. Because I was very socially awkward, I would always have trouble making friends. And so reading and writing allowed me to have friends and to have an active imaginary life that really sort of kept me sane.
+ - You have to be consistent. You have to be yourself. You have to be committed to what you’re doing. You have to not be afraid to be ambitious.
+ - Just write and love what you’re writing. And if you’re not loving what you’re writing, take a look at why and fix that.
+ - I love Twitter. It doesn’t keep me from writing and I think it’s a really convenient scapegoat when the truth is that the real issue is self-control. I am totally fine admitting i have none. I’m not going to blame Twitter for affecting my writing. And also, Twitter doesn’t affect my writing.
+ - I love romantic comedies. I know how terrible they are, but I love them! And I don’t think that makes me less of a feminist.
+ - I play on my phone in public quite a lot. I pretend that I’m getting a very important message that I must attend to immediately. You will often see me in the middle of a huge crowd just staring intently at my phone because I just don’t even know how I should interact with other humans.
+ - I don’t read the comments anymore, unless they are moderated. Which is not to say censored, but I don’t need to read someone saying, “You’re ugly.”
+ - I love writing fiction because I can totally lose myself and I get to make up the rules of the world that I’m writing.
+ - My tweeting is cool and calm unless I am riled up about something and then I just surrender to the fury of my fingers.
+ - Feminism has neglected the needs of woman of color and people of color in general. But I don’t think it means that we should overlook feminism as having nothing valuable to contribute.
+ - Living in a rural town really compelled me to start tweeting so much. Mostly, my Twitter usage is fueled by loneliness. I can go days without talking to another human being unless it’s my mother, especially when I’m not teaching or on break.
+ - Nemeses aren’t born. They are made.
+ - In truth, feminism is flawed because it is a movement powered by people and people are inherently flawed.
+ - So often feminism is built up as this thing where you have to be perfect. You have to be consistent and you can’t ever deviate. That’s just not realistic.
+ - I see my tweets as a current joining a bunch of other currents in the world’s craziest ocean.
+ - There’s certainly a portion of my brain that is always tuned to making wry observations about the world, but that portion of my brain was alive and well before Twitter.
+ - When you look past the image, a celebrity is merely a person you know nothing about.
+ - I’ve always wanted to be a writer. I’ve been writing since I was probably four years old – it was nonsense, but it was still my little attempts at being a storyteller.
+ - Writing, at its best and truest, can offer solace and salvation for both readers and writers.
+ - When I write on Twitter, I do other things: I’m working, grading, or reading, and I’m procrastinating, and I’ll pop on Twitter and be like, “Hey, what’s up? Yogurt’s delicious.”
+ - Twitter has allowed the conversation to broaden and become more inclusive. At times, the conversation is really tense but that’s because we’re talking about really important issues. It’s not going to be easy but at least the conversations are happening.
+
+42 quotes

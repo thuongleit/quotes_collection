@@ -1,0 +1,118 @@
+ - We become what we want to be by consistently being what we want to become each day.
+ - If you want to talk to God, pray. If you want him to talk to you, read your scriptures.
+ - To reach a goal you have never before attained, you must do things you have never before done.
+ - To be humble is to be teachable.
+ - Our Heavenly Father did not put us on earth to fail but to succeed gloriously.
+ - Scriptures are like packets of light that illuminate our minds and give place to guidance and inspiration from on high.
+ - Recognize the good in others, not their stains.
+ - Learning, pondering, searching, and memorizing scriptures is like filling a filing cabinet with friends, values, and truths that can be called upon anytime, anywhere in the world.
+ - Simple, consistent good habits lead to a life full of bountiful blessings.
+ - A memorized scripture becomes an enduring friend that does not weaken with the passage of time.
+ - Through the Atonement of Jesus Christ, each of us can become clean and the burden of our rebellion will be lifted. Remember, repentance is not punishment. It is the hope-filled path to a more glorious future.
+ - The best way to make a permanent change for good is to make Jesus Christ your model and His teachings your guide for life.
+ - Express gratitude for what your spouse does for you. Express that love and gratitude often.
+ - Set aside those things that don’t really matter and do something with eternal consequences.
+ - There are few things in life that bring as much joy as the joy that comes from assisting another improve his or her life.
+ - True friendship is like the asphalt of life. It fills in the potholes and makes the journey smooth.
+ - I witness that as you gain experience and success in being guided by the Spirit, your confidence in the impressions you feel can become more certain than your dependence on what you see or hear.
+ - Great power can come from memorizing scriptures. To memorize a scripture is to forge a new friendship. It is like discovering a new individual who can help in time of need, give inspiration and comfort, and be a source of motivation for needed change.
+ - Pure love is an incomparable, potent power for good. Righteous love is the foundation of a successful marriage.
+ - Selfishness is the root of great evil.
+ - Sadness, disappointment, and severe challenge are events in life, not life itself.
+ - Your faith in Jesus Christ gives life enduring meaning. Remember you are on a journey to exaltation. Sometimes you have experiences that yield more happiness than others, but it all has purpose with the Lord.
+ - We often leave the most precious personal direction of the Spirit unheard because we do not record and respond to the first promptings that come to us when the Lord chooses to direct us.
+ - Your perspective is vital to your happiness. Some, blind to the bountiful opportunities around them, live lives of sadness and despair with brief moments of joy. Be alive to the abundant potential that surrounds you so that you live a life of peace and happiness with periods of challenging growth.
+ - Yes, pain, disappointment, frustration, and anguish can be temporary scenes played out on the stage of life. Behind them can be a background of peace and the positive assurance that a loving Father will keep His promises.
+ - You are one of the noblest of God’s creations. His intent is that your life be gloriously beautiful regardless of your circumstances. As you are grateful and obedient, you can become all that God intends you to be.
+ - The key to successful missionary work is a close relationship between the missionaries and the members. Creating an environment in working with members that will bring more into the Church.
+ - I will consistently strive to learn by what I hear, see, and feel. I will write down the important things I learn, and I will do them.
+ - Yielding to emotions such as anger or hurt or defensiveness will drive away the Holy Ghost.
+ - The conquering of adversity produces strength of character, forges self-confidence, engenders self-respect, and assures success in righteous endeavor.
+ - The joyful news for anyone who desires to be rid of the consequences of past poor choices is that the Lord sees weaknesses differently than He does rebellion. Whereas the Lord warns that unrepented rebellion will bring punishment, when the Lord speaks of weaknesses, it is always with mercy.
+ - No enduring improvement can occur without righteous exercise of agency. Do not attempt to override agency. The Lord himself would not do that. Forced obedience yields no blessings.
+ - Through the Atonement of Jesus Christ, all will be made right in the Lord’s timing.
+ - Since the Lord will not force you to learn, you must exercise your agency to authorize the Spirit to teach you.
+ - When revelation comes write it down.
+ - In quiet moments when you think about it, you recognize what is critically important in life and what isn’t. Be wise and don’t let good things crowd out those that are essential.
+ - By making choices consistent with eternal truth you will develop righteous character.
+ - Sadness, disappointment, and severe challenges are events in life, not life itself. I do not minimize how hard some of these events are. They can extend over a long period of time, but they should not be allowed to become the confining center of everything you do.
+ - A tranquil conscience invites freedom from anguish, sorrow, guilt, shame, and self-condemnation. It provides a foundation for happiness. It is a condition of immense worth.
+ - Choosing to do what the Lord has defined as right will, in the long run, always lead to the best outcomes.
+ - What I am trying to teach is that when we keep the temple covenants we have made and when we live righteously in order to maintain the blessings promised by those ordinances, then come what may, we have no reason to worry or to feel despondent.
+ - To memorize a scripture is to forge a new friendship.
+ - It really does no good to ask questions that reflect opposition to the will of God. Rather ask, ‘What am I to do?’
+ - There are few things in life that bring as much joy as the joy that comes from assisting another improve his or her life. That joy is increased when those efforts help someone understand the teachings of the Savior and that person decides to obey them, is converted, and joins His Church.
+ - Don’t concentrate on what you don’t have or have lost. The Lord promised the obedient to share all that He possesses with them. You may temporarily lack here, but in the next life, if you prove yourself worthy by living valiantly, a fulness will be your blessing.
+ - Trials are not consequences of your disobedience, they are evidence that the Lord feels you are prepared to grow more.
+ - A sense of humor is an escape valve for the pressures of life.
+ - Knowledge carefully recorded is knowledge available in time of need. Spiritually sensitive information should be kept in a sacred place that communicates to the Lord how you treasure it. This practice enhances the likelihood of receiving further light.
+ - One of the greatest blessings we can offer to the world is the power of a Christ-centered home where the gospel is taught, covenants are kept, and love abounds.
+ - To gain unshakable faith in Jesus Christ is to flood your life with brilliant light.
+ - Can you hang in there with your investigators when things get going tough? Don’t give up on investigators because they have a little weakness. Work with them until the Holy Ghost tells you not to.
+ - Be grateful that your righteous life molds you so that you don’t fit where you don’t belong.
+ - Marriage provides an ideal setting for overcoming any tendency to be selfish or self-centered. I think one of the reasons that we are counseled to get married early in life is to avoid developing inappropriate character traits that are hard to change.
+ - Faith in the Atonement of Jesus Christ will provide strength and capacity needed for a successful life.
+ - Freedom requires no effort to enjoy but requires heroic efforts to preserve.
+ - If you have become entangled in sin from poor choices, please decide to come back now. You know how to begin. Do it now. We love you. We need you. God will help you.
+ - Don’t look for a life virtually free from discomfort, pain, pressure, challenge, or grief, for those are the tools a loving Father uses to stimulate our personal growth and understanding.
+ - You have times when you are extremely happy, times of testing, and times of trial, but the Lord guides you through all of those growth experiences together.
+ - Stay on the Lord’s side, and you will win every time.
+ - You are here on earth for a divine purpose. It is not to be endlessly entertained or to be constantly in full pursuit of pleasure. You are here to be tried, to prove yourself so that you can receive the additional blessings God has for you.
+ - As you live high standards publicly and privately, and even under great pressure adhere to them, you raise the vision of others.
+ - If you seek His help, be sure your life is clean, your motives are worthy, and you’re willing to do what He asks-for He will answer your prayers. He is your loving Father; you are His beloved child. He loves you perfectly and wants to help you.
+ - Your peace of mind, your assurance of answers to vexing problems, your ultimate joy depend upon your trust in Heavenly Father and His Son, Jesus Christ.
+ - Be wise and don’t let good things crowd out those that are essential.
+ - Peace is the precious fruit of a righteous life. It is possible because of the Atonement of the Savior. It is earned through full repentance, for that leads to refreshing forgiveness.
+ - Your agency, the right to make choices, is not given so that you can get what you want. This divine gift is provided so that you will choose what your Father in Heaven wants for you. That way He can lead you to become all that He intends you to be.
+ - Strong moral character results from consistent correct choices in the trials and testing of life. Your faith can guide you to those correct choices.
+ - The Lord sees weaknesses differently than He does rebellion.
+ - Chose to converse with your Father in Heaven often. Make time every day to share your thoughts and feelings with Him.
+ - When I marry, it will be to a faithful returned missionary in the Temple.
+ - I share a warning. Satan is extremely good at blocking spiritual communication by inducing individuals, through temptation, to violate the laws upon which spiritual communication is founded. With some, he is able to convince them that they are not able to receive such guidance from the Lord.
+ - When you push against the boundaries of experience into the twilight of the unknown, the Lord will strengthen you. The beauty of your eternal soul will begin to unfold.
+ - Worthy character is best forged from a life of consistent, correct choices centered in the teachings of the Master.
+ - No one intends to make serious mistakes. They come when you compromise your standards to be more accepted by others. You be the strong one. You be the leader. Choose good friends and resist peer pressure together.
+ - Establish specific objectives, and move steadily toward them. A rudder won’t control a drifting boat; it must be underway. Similarly, you need to be moving forward to gain control of your life.
+ - A quiet impression could be a personal instruction from the Lord. It is personal and private. It comes from the Lord. Why is it important to keep sacred writings private? Because then He will give us more.
+ - The Lord will bless us with more baptisms if you make sure the ones you have are going to keep their commitments. The Lord will not prepare more people for baptism if we are not converting the ones we have.
+ - No missionary can determine the lasting effects of his or her labors.
+ - I have a suggestion: When a temple is conveniently nearby, small things may interrupt your plans to go to the temple. Set specific goals, considering your circumstances, of when you can and will participate in temple ordinances. Then do not allow anything to interfere with that plan.
+ - I bear witness that the Savior lives. He loves you. He will guide you through the Holy Ghost as you steadfastly choose to do what is right to a future glorious beyond your dreams. I know He will.
+ - If you are ensnarled in pornography, make a total commitment to overcome it now. Find a quiet place; pray urgently for help and support. Be patient and obedient. Don’t give up.
+ - We best serve our Father in Heaven by righteously influencing others and serving them.
+ - Repentance is not punishment, it is the hope filled path to a more glorious future.
+ - When He withholds an answer, it is to have us grow through faith in Him, obedience to His commandments, and a willingness to act on truth.
+ - If we are not careful, we will convey the message that investigators have to be perfect. Not true!
+ - I have never been sorry when I stood for what was right-even against severe criticism.
+ - Lay the burden at the feet of the Savior.
+ - It doesn’t do any good to argue. Be kind.
+ - Sometimes the impressions are just general feelings. Sometimes the direction comes so clearly and so unmistakably that it can be written down like spiritual dictation.
+ - Conversion is a very, very important part of what you are doing. We will have a responsibility to report to Heavenly Father regarding those we bring into the Church.
+ - The most difficult is the first family, to bring someone out of the world.
+ - Some missionaries are giants in the Spirit and pygmies in skills in the Spirit. Work hard to develop a balance. Your leaders, and you, should teach the skills to each other.
+ - Do not become so absorbed with trivial things that you miss learning the doctrine and teachings of the Lord.
+ - No one had to worry about Peter after his conversion. Your investigators can be that converted.
+ - I see no conflict between science and religion. When you take truth in either one of these realms, science or religion, they match perfectly.
+ - While there are many things you can do to help a loved one in need, there are some things that must be done by the Lord.
+ - Try reading the Book of Mormon because you want to, not because you have to. Discover for yourself that it is true.
+ - I have been taught that we can make many choices in life, but we cannot choose our final destiny. Our actions do that.
+ - Only baptize them if you truly believe these people are ready, taking a little more time if necessary so the Holy Ghost can strengthen them a little more.
+ - Seek out your bishop. He will show you how to repent and will help you do it.
+ - The seminary programs will help you as a young man or woman to lay a foundation for happiness and success in life.
+ - Make a Goal Box, a chart of positive daily contact with a family when you are working with them.
+ - There are powerful emotions that bring two people together in wonderful harmony in a marriage. Satan knows this, and would tempt you to try these emotions outside of marriage. Do not stir emotions meant to be used only in marriage.
+ - Our Father expects you to learn how to obtain that divine help by exercising faith in Him and His Holy Son, Jesus Christ.
+ - It is through the repeated process of feeling impressions, recording them, and obeying them that one learns to depend on the direction of the Spirit more than on communication through the other five senses.
+ - A knowledge of truth is of little value unless lived in full measure.
+ - A true principle makes decisions clear even under the most confusing and challenging circumstances.
+ - If you choose to concentrate on the dark side, this is what you will see.
+ - If one of you has seriously sinned, repent-now. It is not good to violate the commandments of the Lord. It is worse to do nothing about it. Sin is like cancer in the body. It will never heal itself. It will become progressively worse unless cured through the medicine of repentance.
+ - The endowment and sealing ordinances of the temple are so gloriously rich in meaning that you will want to allow significant time to receive those ordinances and to ponder their meaning.
+ - Make covenants and receive ordinances for yourself. Then steadily and consistently work to provide ordinances in the temple for your own ancestors.
+ - Create an atmosphere for the Spirit. The Spirit must be present.
+ - A key to improved prayer is to learn to ask the right questions. Consider changing from asking for the things you want to honestly seeking what He wants for you. Then as you learn His will, pray that you will be led to have the strength to fulfill it.
+ - Faith and character are intimately related. Faith in the power of obedience to the commandments of God will forge strength of character available to you in times of urgent need.
+ - You are making better progress than you realize.
+ - Feelings of bitterness and dissatisfaction feed upon themselves and give place to thoughts and acts of unkindness, criticism, and eventually even hatred. Criticism is often motivated by a desire to rationalize one’s own shortcomings and to justify termination of sacred marriage covenants.
+
+116 quotes

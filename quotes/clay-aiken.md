@@ -1,0 +1,62 @@
+ - I don’t really do New Year’s resolutions because I don’t think you should have to wait until December to start working on how to change yourself. I think if you’ve got a problem, you need to fix it now.
+ - I went to school for special education. I always assumed when I had the opportunity I would love to try and help kids with disabilities.
+ - And I think that when I finally decided to let go and let God and allow that to happen, I became a lot more successful than I could have done if I had planned it all myself.
+ - It doesn’t really matter to me how I make a difference, I just wanna make sure that I do.
+ - Working with children with autism has provided me with an opportunity to see the world in a different way. I see them strive to overcome obstacles and persevere, and learn to persevere myself. They are my inspiration.
+ - I cannot raise a child to lie or to hide things. I wasn’t raised that way, and I’m not going to raise a child to do that.
+ - I know that I’ve got big ears and a big forehead and that my hair sticks up, but I’m happy with myself. I’m not necessarily trying to win a beauty pageant here.
+ - In my ideal world, no child would suffer. Charitable instincts would prevail. There would be global acceptance of all different types of people.
+ - A song is like a smile. If you meet people from another country, even if you don’t speak the same language, you know what a smile means. A song works the same way. Music produces feelings that need no translation.
+ - You know, I think I’m a stronger person for realizing that you can’t make everybody love you.
+ - Pain happens to everyone. To grow up, to fulfill your potential, to develop into what God wants you to be-this process takes support. No one succeeds alone.
+ - I’m around a lot of good people who keep me grounded and don’t let me get too high above my raisings. I have some good friends who don’t talk about my job, and that’s nice. Those are the friends who are my favorites. That helps a lot.
+ - It’s not the money. It’s not the fame. It’s the influence.
+ - If other people choose to believe because I do, great. I want to show people God’s love through what I do and who I am. At the same time, I don’t feel I need to pass out Bibles at the concert.
+ - I got rid of my glasses and they changed my hair. That’s really all they did. They went shopping for me, so the clothes are different too. It wasn’t like Extreme Makeover where I got a nose job or anything.
+ - I like to talk. I’m a terrible dancer. I love my hometown. I have freckles and oversized ears. I’m a geeks. I have tried not to hide who I am or what matters to me.
+ - I’d hate to have a job where I had to be rude to people.
+ - I kind of had my life planned out for me. I’d be married at some point, have, you know, 1.5 children, and be a principal possibly one day. But I think that that was kind of my problem. I allowed myself to plan out my life and didn’t let provident direction guide my life.
+ - The greatest glory never comes from falling, but from rising each time you fall.
+ - It’s a whole team of people working 24 hours around the clock to make me look like this.
+ - Faith is not about a building or a lifestyle. You can minister in many ways besides attending services or being a preacher. And I think that that’s what I feel most thankful for – that I have the opportunity to minister now, in my own way.
+ - When the answer to all my dreams is as close as a touch away, why am I here holding back what I’m trying to say?
+ - I thought about that the other day after I went to the grocery store and had to sign fifteen autographs before leaving. On one hand, it’s just so flattering. On the other hand, sometimes it would be nice to get the bread and leave, you know?
+ - Because I’m from North Carolina, you think I’m the Andy Griffith show, or something?
+ - I did get a degree in special education.
+ - I mean, that’s kind of what this business is about in some ways. You’re trying to make everybody like you. But you can’t do that. You can’t force everybody – anybody to like you if they’re just not willing to do it.
+ - Well, financially it’s a little bit better. But it’s better than than when I was a teacher. But I kind of – it’s allowed me to buy a house. And I’ve been able to help my mother with some stuff and my brother. So, that’s nice.
+ - I know this is going to sound cheesy and like I’m trying to be Miss America, but the most important responsibility a celebrity has is to set an example and be a role model.
+ - I had the greatest time on Broadway and made friends I never expected to make!
+ - I’m tired and I don’t know what day it is.
+ - I sometimes think I might be autistic because I like to know – I need to know – my beginnings and my ends. I don’t have to be in control of it, but I need to know what’s going on.
+ - If my career detour from special education to singing has done one thing, it has afforded me the opportunity to make a difference in the lives of others.
+ - And I don’t think that success can be measured by how many TV shows you’re on.
+ - I don’t understand why people like me! It doesn’t make any sense!
+ - I appreciate the idea of allowing people to have their own private walk with God. To me, God is about love, not condemnation.
+ - No matter what the situation you’re in, if you’re raised in a loving environment, that’s the most important thing.
+ - But I was going to be a teacher my entire life, so I wasn’t counting on money to much.
+ - My mother taught me that we all have the power to achieve our dreams. What I lacked was the courage.
+ - Every kiss is a kiss you can never get back.
+ - I am never going to sound like Johnny Mathis.
+ - I never want to produce anything that a family could not enjoy together. I never want to create art that would embarrass my own children later.
+ - Well, fortunately we found out that the runner-up our particular year was going to get a record contract also. So it was kind of a – it was bitter sweet but it was an opportunity.
+ - There are stars out there who would die to have this much exposure.
+ - I was on TV for almost sixteen weeks during American Idol. It’s at the point now where it’s old.
+ - I liked being able to work with all the different producers and take what they brought to the table and bring my own style to it.
+ - UNICEF is working for the survival of children worldwide. What can we do to get more Americans committed to the cause?
+ - I’m really not that special. Really, I’m not. I was on a big TV show, but it was just a TV show.
+ - I never knew that people made a club for me!
+ - I auditioned just for fun.
+ - Love others and as you do, that love will return to you.
+ - I had been told by a number of people that if you get half of what you want on your first album, you’re doing really well. Pretty much every single thing they had was something that I liked. There were maybe one or two songs I didn’t like, and they were taken off the album quickly.
+ - It’s important that I make a difference in some way. If it’s performing and touching someone that way, that’s great; if it’s being a teacher and helping some kid understand something, that’s even better...
+ - I want everyone to vote. I want everyone to be a part of electing officials. Because when we are not a part, when we don’t have a very broad voter base, then we don’t have true representation.
+ - I think Washington, in general, is dysfunctional. I think it’s high time we put people in Congress who were not beholden to their party, and not beholden to anything but the people who they live around and grew up around, in my case.
+ - I’m religious. I think this is something God had planned for me.
+ - As long as you’re living right, then you don’t have to worry about what people see.
+ - I really love live performing!
+ - I think celebrities have an obligation to the public to not just sing or act.
+ - I’m not different. I’m not different at all. The wrapping is different but the gift is still the same.
+ - While everyone I work with may not share my beliefs, I have been surrounded by nothing but support.
+
+60 quotes

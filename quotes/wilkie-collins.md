@@ -1,0 +1,53 @@
+ - Men ruin themselves headlong for unworthy women.
+ - I am a bundle of nerves dressed up to look like a man!
+ - I say what other people only think, and when all the rest of the world is in a conspiracy to accept the mask for the true face, mine is the rash hand that tears off the plump pasteboard and shows the bare bones beneath.
+ - Pedants, who have the least knowledge to be proud of, are impelled most by vanity.
+ - The books – the generous friends who met me without suspicion – the merciful masters who never used me ill!
+ - Any woman who is sure of her own wits, is a match, at any time, for a man who is not sure of his own temper.
+ - The best men are not consistent in good – why should the worst men be consistent in evil.
+ - Your tears come easy, when you’re young, and beginning the world. Your tears come easy, when you’re old, and leaving it. I burst out crying.
+ - My hour for tea is half-past five, and my buttered toast waits for nobody.
+ - Women can resist a man’s love, a man’s fame, a man’s personal appearance, and a man’s money, but they cannot resist a man’s tongue when he knows how to talk to them.
+ - The woman who first gives life, light, and form to our shadowy conceptions of beauty, fills a void in our spiritual nature that has remained unknown to us till she appeared.
+ - No sensible man ever engages, unprepared, in a fencing match of words with a woman.
+ - We neither know nor judge ourselves; others may judge, but cannot know us. God alone judges and knows us.
+ - It is one of my rules in life, never to notice what I don’t understand.
+ - Our words are giants when they do us an injury, and dwarfs when they do us a service.
+ - She looked so irresistibly beautiful as she said those brave words that no man alive could have steel his heart against her.
+ - This is the story of what a Woman’s patience can endure, and what a Man’s resolution can achieve.
+ - I am an average good Christian, when you don’t push my Christianity too far. And all the rest of you – which is a great comfort – are, in this respect, much the same as I am.
+ - The horrid mystery hanging over us in this house gets into my head like liquor, and makes me wild.
+ - If I ever meet with the man who fulfills my ideal, I shall make it a condition of the marriage settlement, that I am to have chocolate under the pillow.
+ - Let the music speak to us of tonight, in a happier language than our own.
+ - Husbands and wives talk of the cares of matrimony, and bachelors and spinsters bear them.
+ - We had our breakfasts – whatever happens in a house, robbery or murder, it doesn’t matter, you must have your breakfast.
+ - Some of us rush through life, and some of us saunter through life. Mrs Vesey sat through life.
+ - Silence is safe.
+ - What lurking temptations to forbidden tenderness find their finding-places in a woman’s dressing-gown, when she is alone in her room at night!
+ - The future of English fiction may rest with this Unknown Public – a reading public of three millions which lies right out of the pale of true literary civilization – which is now waiting to be taught the difference between a good book and a bad.
+ - But I am a just man, even to my enemy – and I will acknowledge, beforehand, that they are cleverer brains than I thought them.
+ - I sadly want a reform in the construction of children. Nature’s only idea seems to be to make them machines for the production of incessant noise.
+ - The fool’s crime is the crime that is found out and the wise man’s crime is the crime that is not found out.
+ - I am a citizen of the world, and I have met, in my time, with so many different sorts of virtue, that I am puzzled, in my old age, to say which is the right sort and which is the wrong.
+ - The law will argue any thing, with any body who will pay the law for the use of its brains and its time.
+ - I have heard, as everybody else has, of a spirit’s haunting a house ; but I have had my own personal experience of a house’s haunting a spirit.
+ - But, ah me! where is the faultless human creature who can persevere in a good resolution, without sometimes failing and falling back?
+ - I am not against hasty marriages where a mutual flame is fanned by an adequate income.
+ - And earth was heaven a little the worse for wear. And heaven was earth, done up again to look like new.
+ - My business in life is to eat, drink, sleep, and die. Everything else is superfluity and I will have none of it.
+ - Where is the woman who has ever really torn from her heart the image that has been once fixed in it by a true love? Books tell us that such unearthly creatures have existed – but what does our own experiences say in answer to books?
+ - I roused myself from the book which I was dreaming over rather than reading, and left my chambers to meet the cool night air in the suburbs.
+ - I have always held the old-fashioned opinion that the primary object of work of fiction should be to tell a story.
+ - Men little know when they say hard things to us how well we remember them, and how much harm they do us.
+ - Except in this ignorant and material century, men have always worn precious stuffs and beautiful colours as well as women.
+ - The mystery which underlies the beauty of women is never raised above the reach of all expression until it has claimed kindred with the deeper mystery in our own souls.
+ - Tears are scientifically described as a Secretion. I can understand that a secretion may be healthy or unhealthy, but I cannot see the interest of a secretion from a sentimental point of view.
+ - The evening advanced. The shadows lengthened. The waters of the lake grew pitchy black. The gliding of the ghostly swans became rare and more rare.
+ - I have always maintained that the one important phenomenon presented by modern society is – the enormous prosperity of Fools.
+ - It is the nature of truth to struggle to the light.
+ - I used to attend scientific experiments when I was a girl at school. They invariably ended in an explosion. If Mr. Jennings will be so very kind, I should like to be warned of the explosion this time. With a view to getting it over, if possible, before I go to bed.
+ - The dull people decided years and years ago, as everyone knows, that novel-writing was the lowest species of literary exertion, and that novel reading was a dangerous luxury and an utter waste of time.
+ - I never paid you a compliment, Rachel, in my life. Successful love may sometimes use the language of flattery, I admit. But hopeless love, dearest, always speaks the truth.
+ - Habits of literary composition are perfectly familiar to me. One of the rarest of all the intellectual accomplishments that a man can possess is the grand faculty of arranging his ideas. Immense privilege! I possess it. Do you?
+
+51 quotes

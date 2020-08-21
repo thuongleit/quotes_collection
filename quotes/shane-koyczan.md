@@ -1,0 +1,32 @@
+ - I sit before flowers hoping they will train me in the art of opening up I stand on mountain tops believing that avalanches will teach me to let go I know nothing but I am here to learn.
+ - If your heart is broken, make art with the pieces.
+ - I will love myself despite the ease with which I lean toward the opposite.
+ - This is my voice. There are many like it, but this one is mine.
+ - Effort is the siamese twin of success.
+ - If you can’t see anything beautiful about yourself, get a better mirror.
+ - We grew up learning to cheer on the underdog because we see ourselves in them.
+ - I’ve been shot down so many times I get altitude sickness just from standing up for myself.
+ - We’re all shipwrecked on this idea that everything has to be explained.
+ - Look at an avalanche, and see that we are at our most powerful when we let go. Look at a flower, and see that we are at our most beautiful when we open up.
+ - Our lives will only ever always continue to be a balancing act, that has less to do with pain and more to do with beauty.
+ - I have loved this life. I smile because I have tiny dreams that play hopscotch at the corners of my mouth. And every time I breathe they float, every time I laugh, they fly kites.
+ - If you think for one second no one knows what you’ve been going through; be accepting of the fact that you are wrong, that the long drawn and heavy breaths of despair have at times been felt by everyone – that pain is part of the human condition and that alone makes you a legion.
+ - I accept any challenge, so challenge me.
+ - You see, the deaf have an intimacy with silence. It’s there in their dreams.
+ - The tiniest dream that you make happen is worth more than the biggest dream that you never attempt.
+ - I’ve been told that people in the army do more by 7:00 am than I do in an entire day But if I wake at 6:59 am and turn to you to trace the outline of your lips with mine I will have done enough and killed no one in the process.
+ - Don’t tell me you’re not beautiful. You’re the kind of beautiful the blind would see if we could figure out some way to give them three seconds of sight.
+ - Don’t let your luggage define your travels, each life unravels differently.
+ - That’s what we were told – stand up for yourself. But that’s hard to do if you don’t know who you are.
+ - Look directly into every mirror. Realize our reflection is the first sentence to a story, and our story starts: We were here.
+ - A question like “do you love me?” was an itch our doctors told us not to scratch.
+ - To discover the thing you’re brilliant at you first have to endure realizing all the things you’re average at.
+ - I was never meant to be this thing...
+ - Sometimes becoming drug free has less to do with addiction and more to do with sanity.
+ - Maybe the best we can hope for is that those we leave behind find comfort in knowing, that we’re born out of love, and not science. That biology explains the how, but love explains the why.
+ - My heart is a protest that I let rally against my ribs.
+ - We come from the mentality, that rarely sees the horror in symmetry or the beauty in non-conformity.
+ - Having seen TED from a distance, I always thought if ever there was a place for someone like me, the outcasts, people who maintained who they are despite being told what they were, it was TED.
+ - I make a good living doing what I do.
+
+30 quotes

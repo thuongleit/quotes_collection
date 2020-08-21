@@ -1,0 +1,26 @@
+ - I thought that spring must last forevermore, For I was young and loved, and it was May.
+ - The best prose is written by authors who see their universe with a poet’s eyes.
+ - It never seems to occur to anybody that some women may not want to find husbands.
+ - The pacifist’s task today is to find a method of helping and healing which provides a revolutionary constructive substitute for war.
+ - Politics are usually the executive expression of human immaturity.
+ - It is probably true to say that the largest scope for change still lies in men’s attitude to women, and in women’s attitude to themselves.
+ - All that a pacifist can undertake – but it is a very great deal – is to refuse to kill, injure or otherwise cause suffering to another human creature, and untiringly to order his life by the rule of love though others may be captured by hate.
+ - College is a secluded life of scholastic vegetation.
+ - I know one husband and wife who, whatever the official reasons given to the court for the break up of their marriage, were really divorced because the husband believed that nobody ought to read while he was talking and the wife that nobody ought to talk while she was reading.
+ - I can think of few important movements for reform in which success was won by any method other than that of an energetic minority presenting the indifferent majority with a fait accompli, which was then accepted.
+ - The joys of motherhood are not excessively apparent during the first few weeks of a baby’s life.
+ - I know of no place where the wind can be as icy and the damp so penetrating as in Oxford round about Easter time.
+ - Few of humanity’s characteristics are more disconcerting than its ability to reduce world-events to its own level, wherever this may happen to be.
+ - Venice is all sea and sculpture...
+ - Why, I wonder, do people who at one time or another have all been young themselves, and who ought therefore to know better, generalize so suavely and so mendaciously about the golden hours of youth-that period of life when every sorrow seems permanent, and every setback insuperable?
+ - If the would-be writer studies people in their everyday lives and discovers how to make his characters in their quieter moods interesting to his readers, he will have learned far more than he can ever learn from the constant presentation of crises.
+ - However deep our devotion may be to parents or to children, it is our contemporaries alone with whom understanding is instinctive and entire.
+ - Most men, whether men or women, wish above all else to be comfortable, and thought is a pre-eminently uncomfortable process; it brings to the individual far more suffering than happiness in a semi-civilised world which still goes to war.
+ - The tragedy of journalism lies in its impermanence; the very topicality which gives it brilliance condemns it to an early death. Too often it is a process of flinging bright balloons in the path of the hurricane, a casting of priceless petals upon the rushing surface of a stream.
+ - Babies are a nuisance, of course. But so does everything seem to be that is worthwhile – husbands and books and committees and being loved and everything. We have to choose between ease and rich unrest.
+ - So many people seem to imagine that because the actual tools of writing are easily accessible, it is less difficult than the other arts. This is entirely an illusion.
+ - An author who waits for the right ‘mood’ will soon find that ‘moods’ get fewer and fewer until they cease altogether.
+ - There is an abiding beauty which may be appreciated by those who will see things as they are and who will ask for no reward except to see.
+ - We should never be at the mercy of Providence if only we understood that we ourselves are Providence.
+
+24 quotes

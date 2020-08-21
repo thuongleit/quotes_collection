@@ -1,0 +1,41 @@
+ - There is much else in the literary idiom of nature-philosophy: nothing-buttery, for example, always part of the minor symptomatology of the bogus.
+ - Is the Scientific Paper a Fraud?
+ - If politics is the art of the possible, research is surely the art of the soluble. Both are immensely practical-minded affairs.
+ - Science is the art of the solvable.
+ - Innocent, unbiased observation is a myth.
+ - It is the great glory as well as the great threat of science that everything which is in principle possible can be done if the intention to do it is sufficiently resolute.
+ - Scientists who think science consists of unprejudiced data-gathering without speculation are merely cows grazing on the pasture of knowledge.
+ - The intensity of a conviction that a hypothesis is true has no bearing on whether it is true or false. The importance of the strength of our conviction is only to provide a proportionately strong incentive to find out if the hypothesis will stand up to critical evaluation.
+ - For a scientist must indeed be freely imaginative and yet skeptical, creative and yet a critic. There is a sense in which he must be free, but another in which his thought must be very preceisely regimented; there is poetry in science, but also a lot of bookkeeping.
+ - Psychoanalytic theory is the most stupendous intellectual confidence trick of the twentieth century and a terminal product as well-something akin to a dinosaur or zeppelin in the history of ideas, a vast structure of radically unsound design and with no posterity.
+ - The attempt to discover and promulgate the truth is nevertheless an obligation upon all scientists, one that must be persevered in no matter what the rebuffs – for otherwise what is the point in being a scientist?
+ - An experiment not worth doing is not worth doing well.
+ - The human mind treats a new idea the same way the body treats a strange protein; it rejects it.
+ - Scientific reasoning is a kind of dialogue between the possible and the actual, between what might be and what is in fact the case.
+ - Simultaneous discovery is utterly commonplace, and it was only the rarity of scientists, not the inherent improbability of the phenomenon, that made it remarkable in the past. Scientists on the same road may be expected to arrive at the same destination, often not far apart.
+ - To deride the hope of progress is the ultimate fatuity, the last word in poverty of spirit and meanness of mind.
+ - If a scientist were to cut his ear off, no one would take it as evidence of a heightened sensibility.
+ - The bells which toll for mankind are – most of them, anyway – like the bells of Alpine cattle; they are attached to our own necks, and it must be our fault if they do not make a cheerful and harmonious sound.
+ - I regret my disbelief in God.
+ - Ask a scientist what he conceives the scientific method to be and he will adopt an expression that is at once solemn and shifty-eyed: solemn, because he feels he ought to declare an opinion; shifty-eyed, because he is wondering how to conceal the fact that he has no opinion to declare.
+ - Heredity proposes and development disposes.
+ - A danger sign that fellow-obsessionals will at once recognize is the tendency to regard the happiest moments of your life as those that occur when someone who has an appointment to see you is prevented from coming.
+ - I cannot give any scientist of any age better advice than this: the intensity of a conviction that a hypothesis is true has no bearing over whether it is true or not.
+ - To abdicate from the rule of reason and substitute for it an authentication of belief by the intentness and degree of conviction with which we hold it can be perilous and destructive. Religious beliefs give a spurious spiritual dimension to tribal enmities.
+ - I reckon that for all the use it has been to science about four-fifths of my time has been wasted, and I believe this to be the common lot of people who are not merely playing follow-my-leader in research.
+ - The alternative to thinking in evolutionary terms is not to think at all.
+ - All scientists know of colleagues whose minds are so well equipped with the means of refutation that no new idea has the temerity to seek admittance. Their contribution to science is accordingly very small.
+ - The case I shall find evidence for is that when literature arrives, it expels science.
+ - I do not propose to criticize the fatuous argument I have just outlined; here, to expound is to expose.
+ - It is not envy or malice, as so many people think, but utter despair that has persuaded many educational reformers to recommend the abolition of the English public schools.
+ - Today the world changes so quickly that in growing up we take leave not just of youth but of the world we were young in.
+ - French is not a language that lends itself naturally to the opaque and ponderous idiom of nature-philosophy, and Teilhard has according resorted to the use of that tipsy, euphoristic prose-poetry which is one of the more tiresome manifestations of the French spirit.
+ - I do not believe indeed, I deem it a comic blunder to believe that the exercise of reason is sufficient to explain our condition and where necessary to remedy it, but I do believe that the exercise of reason is at all times necessary...
+ - Considered in its entirety, psychoanalysis won’t do. It is an end product, moreover, like a dinosaur or a zeppelin; no better theory can ever be erected on its ruins, which will remain for ever one of the saddest and strangest of all landmarks in the history of twentieth century thought.
+ - In no sense other than an utterly trivial one is reproduction the inverse of chemical disintegration. It is a misunderstanding of genetics to suppose that reproduction is only ‘intended’ to make facsimiles, for parasexual processes of genetical exchange are to be found in the simplest living things.
+ - The USA is so enormous, and so numerous are its schools, colleges and religious seminaries, many devoted to special religious beliefs ranging from the unorthodox to the dotty, that we can hardly wonder at its yielding a more bounteous harvest of gobbledygook than the rest of the world put together.
+ - A scientist is no more a collector and classifier of facts than a historian is a man who complies and classifies a chronology of the dates of great battles and major discoveries.
+ - It is a truism to say that a good experiment is precisely that which spares us the exertion of thinking: the better it is, the less we have to worry about its interpretation, about what it really means.
+ - When asked to make the formal declaration that I did not intend to overthrow the Constitution of the United States, I was fool enough to reply that I had no such purpose, but that were I to do it by mistake I should be inexpressibly contrite.
+
+39 quotes

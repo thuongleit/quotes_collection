@@ -1,0 +1,354 @@
+ - El que lee mucho y anda mucho, ve mucho y sabe mucho.
+ - Forewarned, forearmed; to be prepared is half the victory.
+ - Believe there are no limits but the sky.
+ - Honesty’s the best policy.
+ - Facts are the enemy of truth.
+ - Never stand begging for that which you have the power to earn.
+ - The phoenix hope, can wing her way through the desert skies, and still defying fortune’s spite; revive from ashes and rise.
+ - The proof of the pudding is the eating.
+ - He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all.
+ - Where there’s music there can be no evil.
+ - The man who is prepared has his battle half fought.
+ - They who lose today may win tomorrow.
+ - Finally, from so little sleeping and so much reading, his brain dried up and he went completely out of his mind.
+ - Until death it is all life.
+ - Where one door shuts another opens.
+ - Thank you for nothing.
+ - Wit and humor do not reside in slow minds.
+ - I know who I am and who I may be, if I choose.
+ - Every dog has his day.
+ - Diligence is the mother of good fortune, and idleness, its opposite, never brought a man to the goal of any of his best wishes.
+ - Do not eat garlic or onions; for their smell will reveal that you are a peasant.
+ - A proverb is a short sentence based on long experience.
+ - In order to attain the impossible, one must attempt the absurd.
+ - All sorrows are less with bread.
+ - Let us make hay while the sun shines.
+ - Beware, gentle knight – the greatest monster of them all is reason.
+ - It is one thing to praise discipline, and another to submit to it.
+ - He preaches well that lives well.
+ - Time ripens all things; no man is born wise.
+ - Whether the pitcher hits the stone or the stone hits the pitcher, it goes ill with the pitcher.
+ - Among the attributes of God, although they are equal, mercy shines with even more brilliance than justice.
+ - The pen is the tongue of the soul; as are the thoughts engendered there, so will be the things written.
+ - Love is a power too strong to be overcome by anything but flight.
+ - Make it thy business to know thyself, which is the most difficult lesson in the world.
+ - Take away the cause, and the effect ceases.
+ - He who sings scares away his woes.
+ - Experience is the universal mother of sciences.
+ - Virtue is the truest nobility.
+ - Fair and softly goes far.
+ - For neither good nor evil can last for ever; and so it follows that as evil has lasted a long time, good must now be close at hand.
+ - Fortune may have yet a better success in reserve for you and they who lose today may win tomorrow.
+ - Patience and shuffle the cards.
+ - Blessed be he who invented sleep, a cloak that covers all a man’s thoughts.
+ - That which we are capable of feeling, we are capable of saying.
+ - The reason for the unreason with which you treat my reason, so weakens my reason that with reason I complain of your beauty.
+ - Faint heart ne’er won fair lady.
+ - A knight errant who turns mad for a reason deserves neither merit nor thanks. The thing is to do it without cause.
+ - It is courage that vanquishes in war, and not good weapons.
+ - Good actions ennoble us, and we are the sons of our deeds.
+ - You are a king by your own fireside, as much as any monarch in his throne.
+ - Happy the man to whom heaven has given a morsel of bread without laying him under the obligation of thanking any other for it than heaven itself.
+ - Sorrow was made for man, not for beasts; yet if men encourage melancholy too much, they become no better than beasts.
+ - Tomorrow will be a new day.
+ - Many go out for wool, and come home shorn themselves.
+ - I drink when I have occasion, and sometimes when I have no occasion.
+ - God exalts the man who humbles himself.
+ - It is the part of a wise man to keep himself today for tomorrow, and not to venture all his eggs in one basket.
+ - One man scorned and covered with scars still strove with his last ounce of courage to reach the unreachable stars; and the world will be better for this.
+ - Well, there’s a remedy for all things but death, which will be sure to lay us flat one time or other.
+ - I must speak the truth, and nothing but the truth.
+ - Let every man mind his own business.
+ - It is good to live and learn.
+ - Delay always breeds danger; and to protract a great design is often to ruin it.
+ - Well-gotten wealth may lose itself, but the ill-gotten loses its master also.
+ - There were no embraces, because where there is great love there is often little display of it.
+ - There’s no sauce in the world like hunger.
+ - Sing away sorrow, cast away care.
+ - Captivity is the greatest of all evils that can befall one.
+ - The stomach carries the heart, and not the heart the stomach.
+ - There is remedy for all things except death – Don Quixote De La Mancha.
+ - Jealousy sees things always with magnifying glasses which make little things large, of dwarfs giants, of suspicions truths.
+ - A tooth is much more to be prized than a diamond.
+ - An honest man’s word is as good as his bond.
+ - Blessings on him, who invented sleep.
+ - Since Don Quixote de la Mancha is a crazy fool and a madman, and since Sancho Panza, his squire, knows it, yet, for all that, serves and follows him, and hangs on these empty promises of his, there can be no doubt that he is more of a madman and a fool than his master.
+ - All women are good – good for nothing, or good for something.
+ - The worst reconciliation is better than the best divorce.
+ - Hunger is the best sauce in the world.
+ - Amor y deseo son dos cosas diferentes; que no todo lo que se ama se desea, ni todo lo que se desea se ama.
+ - Truly I was born to be an example of misfortune, and a target at which the arrows of adversary are aimed.
+ - Never meddle with play-actors, for they’re a favoured race.
+ - The eyes those silent tongues of love.
+ - Sancho Panza by name is my own self, if I was not changed in my cradle.
+ - I want you to see me naked and performing one or two dozen mad acts, which will take me less than half an hour, because if you have seen them with your own eyes, you can safely swear to any others you might wish to add.
+ - Can we ever have too much of a good thing?
+ - For me alone Don Quixote was born and I for him. His was the power of action, mine of writing.
+ - I never thrust my nose into other men’s porridge. It is no bread and butter of mine; every man for himself, and God for us all.
+ - There’s no love lost between us.
+ - History is in a manner a sacred thing, so far as it contains truth; for where truth is, the supreme Father of it may also be said to be, at least, inasmuch as concerns truth.
+ - The treason pleases, but the traitors are odious.
+ - Heaven’s help is better than early rising.
+ - Journey over all the universe in a map, without the expense and fatigue of traveling, without suffering the inconveniences of heat, cold, hunger, and thirst.
+ - The bow cannot always stand bent, nor can human frailty subsist without some lawful recreation.
+ - Don’t put all your eggs in one basket.
+ - Soul of fibre and heart of oak.
+ - The wicked are always ungrateful.
+ - The most perceptive character in a play is the fool, because the man who wishes to seem simple cannot possibly be a simpleton.
+ - Man appoints, and God disappoints.
+ - Make it thy business to know thyself, which is the most difficult lesson in the world. Yet from this lesson thou will learn to avoid the frog’s foolish ambition of swelling to rival the bigness of the ox.
+ - Well, now there’s a remedy for everything except death.
+ - There is no remembrance which time does not obliterate, nor pain which death does not terminate.
+ - There is nothing costs less than civility.
+ - Digo, paciencia y barajar. What I say is, patience, and shuffle the cards.
+ - Truth will rise above falsehood as oil above water.
+ - For if he like a madman lived; At least he like a wise one died.
+ - History is the depository of great actions, the witness of what is past, the example and instructor of the present, and monitor to the future.
+ - Fortune leaves always some door open to come at a remedy.
+ - That’s the nature of women, not to love when we love them, and to love when we love them not.
+ - Get out of harms way.
+ - Love is invisible and comes and goes where it wants, without anyone asking about it.
+ - Behind the cross is the devil.
+ - Don’t put too fine a point to your wit for fear it should get blunted.
+ - When life itself seems lunatic, who knows where madness lies?
+ - Fly not, cowards and vile beings, for a single knight attacks you.
+ - My heart is wax molded as she pleases, but enduring as marble to retain.
+ - The virtuous woman must be treated like a relic – adored, but not handled; she should be guarded and prized, like a fine flower-garden, the beauty and fragrance of which the owner allows others to enjoy only at a distance, and through iron walls.
+ - Take my advice and live for a long, long time. Because the maddest thing a man can do is this life is to let himself die.
+ - Fear has many eyes and can see things underground.
+ - Those who’ll play with cats must expect to be scratched.
+ - The good governor should have a broken leg and keep at home.
+ - Great persons are able to do great kindnesses.
+ - The foolish sayings of the rich pass for wise saws in society.
+ - Thou hast seen nothing yet.
+ - Drink moderately, for drunkeness neither keeps a secret, nor observes a promise.
+ - Comparisons are odious.
+ - Death eats up all things, both the young lamb and the old sheep.
+ - Every man was not born with a silver spoon in his mouth.
+ - Give the devil his due.
+ - Make yourself honey and the flies will devour you.
+ - A stout heart breaks bad luck.
+ - She wanted, with her fickleness, to make my destruction constant; I want, by trying to destroy myself, to satisfy her desire.
+ - Let us forget and forgive injuries.
+ - I am almost frightened out of my seven senses.
+ - God helps everyone with what is his own.
+ - It is a true saying that a man must eat a peck of salt with his friend before he knows him.
+ - Those two fatal words, Mine and Thine.
+ - Tis the only comfort of the miserable to have partners in their woes.
+ - Lovers are commonly industrious to make themselves uneasy.
+ - A silly remark can be made in Latin as well as in Spanish.
+ - To withdraw is not to run away, and to stay is no wise action, when there’s more reason to fear than to hope.
+ - The beauty of some women has days and seasons, depending upon accidents which diminish or increase it; nay, the very passions of the mind naturally improve or impair it, and very often utterly destroy it.
+ - The eating. By a small sample we may judge of the whole piece...
+ - In the night all cats are gray.
+ - Whom God loves, his house is sweet to him.
+ - But do not give it to a lawyer’s clerk to write, for they use a legal hand that Satan himself will not understand.
+ - Our greatest foes, and whom we must chiefly combat, are within.
+ - There is no greater folly in the world than for a man to despair.
+ - A shy face is better than a forward heart.
+ - Be not under the dominion of thine own will; it is the vice of the ignorant, who vainly presume on their own understanding.
+ - A little in one’s own pocket is better than much in another man’s purse.
+ - One swallow alone does not make a summer.
+ - The cleverest character in comedy is the clown, for he who would make people take him for a fool, must not be one.
+ - A private sin is not so prejudicial in this world, as a public indecency.
+ - Does the devil possess you? You’re leaping over the hedge before you come at the stile.
+ - Let us not throw the rope after the bucket.
+ - Love not what you are but only what you may become.
+ - The brave man carves out his fortune, and every man is the sum of his own works.
+ - Great expectations are better than a poor possession.
+ - What man can pretend to know the riddle of a woman’s mind?
+ - Truth may be stretched, but cannot be broken, and always gets above falsehood, as does oil above water.
+ - Wit and humor belong to genius alone.
+ - There are men that will make you books, and turn them loose into the world, with as much dispatch as they would do a dish of fritters.
+ - Cunning cheats itself wholly, and other people partially.
+ - The ass will carry his load, but not a double load; ride not a free horse to death.
+ - Laws that only threaten, and are not kept, become like the log that was given to the frogs to be their king, which they feared at first, but soon scorned and trampled on.
+ - They must needs go whom the Devil drives.
+ - I have always heard, Sancho, that doing good to base fellows is like throwing water into the sea.
+ - The very remembrance of my former misfortune proves a new one to me.
+ - Now blessings light on him that first invented this same sleep. It covers a man all over, thoughts and all, like a cloak.
+ - Virtue is persecuted by the wicked more than it is loved by the good.
+ - Be temperate in your drinking, remembering that too much wine cannot keep either a secret or a promise.
+ - Never look for the birds of this year in the nests of the last.
+ - In hell there is no retention.
+ - Every production must resemble its author.
+ - Though Gods attributes are equal, yet his mercy is more attractive and pleasing in our eyes than his justice.
+ - You are a devil at everything, and there is no kind of thing in the ’versal world but what you can turn your hand into.
+ - Under a bad cloak there is often a good drinker.
+ - Valor lies just halfway between rashness and cowardice.
+ - How will he who does not know how to govern himself know how to govern others?
+ - Delay always breeds danger.
+ - Let me leap out of the frying-pan into the fire; or, out of God’s blessing into the warm sun.
+ - Man have to have friends even in hell.
+ - From reading too much, and sleeping too little, his brain dried up on him and he lost his judgment.
+ - The most difficult character in comedy is that of the fool, and he must be no simpleton that plays that part.
+ - A blot in thy escutcheon to all futurity.
+ - We ought to love our Maker for His own sake, without either hope of good or fear of pain.
+ - The pitcher goes so often to the fountain that if gets broken.
+ - Wine in excess keeps neither secrets nor promises.
+ - Get the better of yourself – this is the best kind of victory.
+ - There are but few proverbial sayings that are not true, for they are all drawn from experience itself, which is the mother of all sciences.
+ - Here lies a gentleman bold Who was so very brave He went to lengths untold, And on the brink of the grave Death had on him no hold. By the world he set small store – He frightened it to the core – Yet somehow, by Fate’s plan, Though he’d lived a crazy man, When he died he was sane once more.
+ - All kinds of beauty do not inspire love; there is a kind which only pleases the sight, but does not captivate the affections.
+ - Let the worst come to the worst.
+ - Honesty is the best policy, I will stick to that. The good shall have my hand and heart, but the bad neither foot nor fellowship. And in my mind, the main point of governing, is to make a good beginning.
+ - Urgent necessity prompts many to do things.
+ - Old, that’s an affront no woman can well bear.
+ - For men may prove and use their friends, as the poet expresses it, usque ad aras, meaning that a friend should not be required to act contrary to the law of God.
+ - I shall be as secret as the grave.
+ - No fathers or mothers think their own children ugly; and this self-deceit is yet stronger with respect to the offspring of the mind.
+ - Be a terror to the butchers, that they may be fair in their weight; and keep hucksters and fraudulent dealers in awe, for the same reason.
+ - My thoughts ran a wool-gathering.
+ - He who reforms, God assists.
+ - When the severity of the law is to be softened, let pity, not bribes, be the motive.
+ - There is nothing so subject to the inconstancy of fortune as war.
+ - Wine taken in moderation never does any harm.
+ - The darts of love are blunted by maiden modesty.
+ - Modesty, tis a virtue not often found among poets, for almost every one of them thinks himself the greatest in the world.
+ - Three things too much, and three too little are pernicious to man; to speak much, and know little; to spend much, and have little; to presume much, and be worth little.
+ - True valor lies between cowardice and rashness.
+ - When good luck knocks at the door, let him in and keep him there.
+ - I believe there’s no proverb but what is true; they are all so many sentences and maxims drawn from experience, the universal mother of sciences.
+ - It seldom happens that any felicity comes so pure as not to be tempered and allayed by some mixture of sorrow.
+ - Folly is wont to have more followers and comrades than discretion.
+ - A father may have a child who is ugly and lacking in all the graces, and the love he feels for him puts a blindfold over his eyes so that he does not see his defects but considers them signs of charm and intelligence and recounts them to his friends as if they were clever and witty.
+ - Many littles make a much.
+ - By such innovations are languages enriched, when the words are adopted by the multitude, and naturalized by custom.
+ - There is also this benefit in brag, that the speaker is unconsciously expressing his own ideal. Humor him by all means, draw it all out, and hold him to it.
+ - Think before thou speakest.
+ - I do not deny that what happened to us is a thing worth laughing at. But it is not worth telling, for not everyone is sufficiently intelligent to be able to see things from the right point of view.
+ - Ill-luck, you know, seldom comes alone.
+ - Since we have a good loaf, let us not look for cheesecakes.
+ - When we leave this world, and are laid in the earth, the prince walks as narrow a path as the day-laborer.
+ - Other men’s pains are easily borne.
+ - If you are ambitious of climbing up to the difficult, and in a manner inaccessible, summit of the Temple of Fame, your surest way is to leave on one hand the narrow path of Poetry, and follow the narrower track of Knight-Errantry, which in a trice may raise you to an imperial throne.
+ - Mere flimflam stories, and nothing but shams and lies.
+ - Tell me what company thou keepst, and I’ll tell thee what thou art.
+ - Anyone who does not know how to make the most of his luck has no right to complain if it passes by him.
+ - There is no proverb that is not true.
+ - Men of great talents, whether poets or historians, seldom escape the attacks of those who, without ever favoring the world with any production of their own, take delight in criticising the works of others.
+ - Do you see over yonder, friend Sancho, thirty or forty hulking giants? I intend to do battle with them and slay them.
+ - My memory is so bad that many times I forget my own name.
+ - When you are at Rome, do as you see.
+ - Liberty, as well as honor, man ought to preserve at the hazard of his life, for without it life is insupportable.
+ - Miracle me no miracles.
+ - Good wits jump; a word to the wise is enough.
+ - Thou art a cat, and a rat, and a coward.
+ - Evil comes not amiss if it comes alone.
+ - The woman who is resolved to be respected can make herself be so even amidst an army of soldiers.
+ - Dine on little, and sup on less.
+ - The absent feel and fear every ill.
+ - Troubles take wing for the man who can sing.
+ - He had a face like a blessing.
+ - All is not gold that glisters.
+ - No man is more than another unless he does more than another.
+ - Whoever is ignorant is vulgar.
+ - A person dishonored is worst than dead.
+ - Everything disturbs an absent lover.
+ - For the army is a school in which the miser becomes generous, and the generous prodigal; miserly soldiers are like monsters, but very rarely seen.
+ - Many count their chickens before they are hatched; and where they expect bacon, meet with broken bones.
+ - Where envy reigns virtue can’t exist, and generosity doesn’t go with meanness.
+ - There is a remedy for everything but death; who, in spite of our teeth, will take us in his clutches.
+ - Necessity urges desperate measures.
+ - There is a strange charm in the thoughts of a good legacy, or the hopes of an estate, which wondrously removes or at least alleviates the sorrow that men would otherwise feel for the death of friends.
+ - Seek for good, but expect evil.
+ - No padlocks, bolts, or bars can secure a maiden better than her own reserve.
+ - A knowledge of thyself will preserve thee from vanity.
+ - Let everyone turn himself around, and look at home, and he will find enough to do.
+ - In short, virtue cannot live where envy reigns, nor liberality subsist with niggardliness.
+ - Laziness never arrived at the attainment of a good wish.
+ - All persons are not discreet enough to know how to take things by the right handle.
+ - There’s no taking trout with dry breeches.
+ - You must not think, sir, to catch old birds with chaff.
+ - Riches are able to solder up abundance of flaws.
+ - What is bought is cheaper than a gift.
+ - Love and war are the same thing, and stratagems and policy are as allowable in the one as in the other.
+ - It requires a long time to know anyone.
+ - She who desires to see, desires also to be seen.
+ - I do not say a proverb is amiss when aptly and reasonably applied, but to be forever discharging them, right or wrong, hit or miss, renders conversation insipid and vulgar.
+ - The man who fights for his ideals is alive.
+ - God who sends the wound sends the medicine.
+ - Everyone is as God has made him, and oftentimes a great deal worse.
+ - The reputation of a woman may also be compared to a mirror of crystal, shining and bright, but liable to be sullied by every breath that comes near it.
+ - The gratification of wealth is not found in mere possession or in lavish expenditure, but in its wise application.
+ - And thus being totally preoccupied, he rode so slowly that the sun was soon glowing with such intense heat that it would have melted his brains, if he’d had any.
+ - He that will not when he may, When he would, he should have nay.
+ - No fathers or mothers think their own children ugly.
+ - I say that good painters imitated nature; but that bad ones vomited it.
+ - Spare your breath to cool your porridge.
+ - Riches are of little avail in many of the calamities to which mankind are liable.
+ - The wise hand does not all the tongue dictates.
+ - All the vices, Sancho, bring some kind of pleasure with them; but envy brings nothing but irritation, bitterness, and rage.
+ - I would do what I pleased, and doing what I pleased, I should have my will, and having my will, I should be contented; and when one is contented, there is no more to be desired; and when there is no more to be desired, there is an end of it.
+ - He who gives early gives twice.
+ - Thou camest out of thy mother’s belly without government, thou hast liv’d hitherto without government, and thou mayst be carried to thy long home without government, when it shall please the Lord. How many people in this world live without government, yet do well enough, and are well look’d upon?
+ - Tis an old saying, the Devil lurks behind the cross. All is not gold that glitters. From the tail of the plough, Bamba was made King of Spain; and from his silks and riches was Rodrigo cast to be devoured by the snakes.
+ - The poet may say or sing, not as things were, but as they ought to have been; but the historian must pen them, not as they ought to have been, but as they really were.
+ - There is a time for some things, and a time for all things; a time for great things, and a time for small things.
+ - For a man to attain to an eminent degree in learning costs him time, watching, hunger, nakedness, dizziness in the head, weakness in the stomach, and other inconveniences.
+ - Once a woman parts with her virtue, she loses the esteem even of the man whose vows and tears won her to abandon it.
+ - Good Christians should never avenge injuries.
+ - You cannot eat your cake and have your cake.
+ - Historians ought to be precise, faithful, and unprejudiced; and neither interest nor fear, hatred nor affection, should make them swerve from the way of truth.
+ - As ill-luck would have it.
+ - When a man says, “Get out of my house! what would you have with my wife?” there is no answer to be made.
+ - Inasmuch as ill-deeds spring up as a spontaneous crop, they are easy to learn.
+ - Woman’s advice has little value, but he who won’t take it is a fool.
+ - Not with whom you are born, but with whom you are bred.
+ - Too much sanity may be madness.
+ - Jests that give pains are no jests.
+ - When we are asleep, we are all equal.
+ - My honor is dearer to me than my life.
+ - With life many things are remedied.
+ - Our hours in love have wings; in absence, crutches.
+ - She fights and vanquishes in me, and I live and breathe in her, and I have life and being.
+ - What a man has, so much he is sure of.
+ - Leap out of the frying pan into the fire.
+ - We are all as God made us and frequently much worse.
+ - I do not believe that the Good Lord plays dice.
+ - He is mad past recovery, but yet he has lucid intervals.
+ - Every man is the son of his own works.
+ - When God sends the dawn, he sends it for all.
+ - I find my familiarity with thee has bred contempt.
+ - Health and cheerfulness make beauty.
+ - The little birds have God for their caterer.
+ - All I know is that so long I am asleep I am rid of all fears and hopes and toils and glory, and long live the man who invented sleep, the cloak that covers all human thirst.
+ - I’ll turn over a new leaf.
+ - We must not stand upon trifles.
+ - There were but two families in the world, Have-much and Have-little.
+ - The ass bears the load, but not the overload.
+ - That which costs little is less valued.
+ - Let every man look before he leaps.
+ - Be slow of tongue and quick of eye.
+ - It is past all controversy that what costs dearest is, and ought to be, most valued.
+ - When the head aches, all the members partake of the pain.
+ - A closed mouth catches no flies.
+ - I had rather munch a crust of brown bread and an onion in a corner, without any more ado, or ceremony, than feed upon turkey at another man’s table.
+ - He who has the judge for his father goes into court with an easy mind.
+ - To be good to the vile is to throw water into the sea.
+ - Too much sanity may be madness and the maddest of all, to see life as it is and not as it should be.
+ - Little said is soon amended.
+ - Sleep is the best cure for waking troubles.
+ - For let us women be never so ill-favored, I imagine that we are always delighted to hear ourselves called handsome.
+ - Arms are my ornaments, warfare my repose.
+ - Abundance, even of good things, prevents them from being valued.
+ - Urgent necessity prompts many to do things, at the very thoughts of which they perhaps would start at other times.
+ - Nor has his death the world deceiv’d than his wondrous life surprise d; if he like a madman liv’d least he like a wise one dy’d.
+ - I know what’s what, and have always taken care of the main chance.
+ - One of the effects of fear is to disturb the senses and cause things to appear other than what they are.
+ - Alas! all music jars when the soul’s out of tune.
+ - Translation from one language to another is like viewing a piece of tapestry on the wrong side where though the figures are distinguishable yet there are so many ends and threads that the beauty and exactness of the work is obscured.
+ - They can expect nothing but their labor for their pains. – Cervantes.
+ - One should not talk of hatters in the house of the hanged.
+ - It is better that a judge should lean on the side of compassion than severity.
+ - Take away the motive, and you take away the sin.
+ - Every one in his own house and God in all of them.
+ - Tis a dainty thing to command, though ’twere but a flock of sheep.
+ - I can tell where my own shoe pinches me.
+ - It will be seen in the frying of the eggs.
+ - He who’s never loved cannot be good.
+ - But my thoughts ran a wool-gathering; and I did like the countryman, who looked for his ass while he was mounted on his back.
+ - One of the most considerable advantages the great have over their inferiors is to have servants as good as themselves.
+ - Maybe the greatest madness is to see life as it is rather than what it could be.
+
+352 quotes

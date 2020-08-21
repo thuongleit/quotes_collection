@@ -1,0 +1,54 @@
+ - What’s so funny about peace, love and understanding.
+ - When I find a cover song that I like, I’ll work away at it until I kind of believe that I wrote it.
+ - I love the sound of breaking glass Especially when Im lonely I need the noises of destruction When theres nothing new.
+ - I’m very interested in religion and different religions, and I know quite a lot about it. I love gospel music, and I love going to churches, but the one drawback is that I don’t actually believe in God. And it is quite a handicap, you know.
+ - I like being a big fish in a small pond. I’m not interested in a huge audience because it brings headaches.
+ - Cruel to be kind means that I love you.
+ - London was a real dump in the 70s, when it belonged to me and my friends, because, like most cities, you kind of hand them off. You’re in charge for a bit and then you don’t go out anymore. You say, “Oh god, it’s going to be too crowded.”
+ - And there were sort of three toys for boys and three toys for girls. And the boys I can remember was, well, there was a Dan Dare Ray Gun. Dan Dare was a sort of a cartoon character. He was just sort of a – he was like a Battle of Britain fighter pilot, only in space.
+ - You want to sing this song. And so it goes on until eventually, after – well, however long it can take – sometimes a few days, sometimes months – you piece the whole thing together.
+ - When punk rock came along, the one thing you were not supposed to be was musical.
+ - You try to make every word count, so there’s no doubt what you’re talking about. When you’re young, you waffle away. Well, I’m done with that. I think it’s much more interesting to say just what you mean.
+ - And after, you know, having the old chicken or whatever it is they bring around and a couple of cocktails, you turn to the person sitting next to you and say, you know, you going home, then?
+ - I’m an extremely slow worker, very unprolific. It can take me weeks to do a three-minute song, or at least to make it sound, in my mind, like I haven’t written it. That’s when I’m satisfied.
+ - I’m still kind of a hapless character in my everyday life. But when it comes to the writing, my influences are very old influences. I love American music of absolutely all stripes, including show tunes, advertising jingles, theme tunes from quiz shows, all kinds of American music.
+ - I’ve always felt quite like an outsider. I don’t really belong in the mainstream, and I quite like that.
+ - A devastating culmination of the elegant and the funky, a really sensational musician with enormous depth.
+ - I don’t have the faith now. I certainly believe in Jesus – you know, that he existed and he was a very nice man. And who can disagree with a simple philosophy of treat other people like you’d like to be treated yourself? It’s absolutely – nothing I can disagree with that.
+ - As long as my body holds out, I’ll be grooving when I’m 70, and not some sort of horrible spectacle.
+ - The number of contemporary artists who appeal to me is infinitesimal.
+ - To a certain extent, yes, we do. But there’s – but there’s a very limited menu. There’s only about sort of 20 songs that you hear on rotation.
+ - If a hit came along, I wouldn’t be unhappy about that. But I’m a bit too old for that now-doing videos and all those types of TV shows. I’ve kind of done all that, in the ’70s.
+ - Be a military flier or be in a band; those were the two hippest things I could imagine.
+ - The world is full of musicians who can play great, and you wouldn’t cross the road to see them. It’s people who have this indefinable attitude that are the good ones.
+ - I felt that in order to do what I wanted to do, I had to do certain things, and one of them was to have a hit in my own right. At least one.
+ - It’s like a little folk song. I think it might’ve been Harry Belafonte or someone like that who did it. And “Merry Christmas, Everybody” by Slade, which is a rock group – a rock-pop group who are very big over there.
+ - When my pop career was over, I was scratching my head, thinking, “God, how am I going to do something after I’m forty?” I was in my mid-thirties, thinking I was on the scrap heap.
+ - If anyone comes along, I’m more than happy to welcome them, but I’m not interested in world domination.
+ - You’ve got to really know your song, inside and out.
+ - Later in life, suddenly, if you’re an outsider, it’s something to be celebrated, I think, rather than getting on people’s nerves.
+ - I think the best songs that come to me are ones that you sort of listen for. The ones – when I listen to some of my old stuff, I can tell when I had a good idea, but I forced it through, and I can hear myself – the bit that I’ve written, which sounds clunkier than the stuff that just sort of comes.
+ - When somebody like Elvis Costello comes along, anybody can make a good record with him.
+ - I’ve always felt kind of like an outsider, even when I was very successful back in the old days. Even then. I kind of enjoyed it, really.
+ - Well, this is shortly after the idea was put to me because it wasn’t my idea to do a Christmas record. We can talk about that a little bit, if you like, later on. But I wrote that song actually about two days after the idea was put to me.
+ - I work very hard on getting the songs as direct and examined as I can before I go in the studio.
+ - I knew how the suits used to talk about the artists, with barely concealed contempt. So I knew what was waiting for me round the corner. Because I wasn’t one of those very unusual people like Neil Diamond or Elton John, whose careers just seem to span the decades. I knew I wasn’t one of them.
+ - The older I get, there doesn’t seem to be anything remotely more interesting than talking about love and the lack of it and what happens when it’s taken away from someone who’s had it.
+ - I use the name and the thought very, very easily as a sort of comfort – as a kind of comfort, in some way. And in that way, it’s just like having a friend, I suppose.
+ - In the ’70s, you had to come up with an album every year whether you were ready or not.
+ - I’m very fussy about how my records sound, but I’m very aware that because of the way they sound, I will never be a big-selling, mainstream artist because the public has gotten conditioned to hearing pop music in a certain way. And I don’t do it that way.
+ - Even if I was really prolific – which I’m not – I think I’d always put at least a couple of covers on my record. I think it’s a sort of healthy thing to do. It shows that you’re not totally self-obsessed.
+ - It was the 1950s, you know, and they had a ray gun, which was basically a flashlight with a sort of trigger on it. And it buzzed and a red light, you know, came on. But anyway we all had one – Davy Crockett hat.
+ - As soon as one of my records goes on, it makes a vast portion of the public nervous. They get spooked by it. To some people who have ears to hear, it’s a delightful, refreshing change. But to most of the public, it’s a load of homemade-sounding nonsense.
+ - These days, rock ‘n’ roll is much more about rock than about roll. I don’t do rock. But I’m interested in that roll part, because that’s the funny little bit that makes it hip.
+ - There’s really never any sort of master plan. I find if I’ve got a couple of tunes that I think are possibilities, I phone everyone up and get them into the studio and we’ll have a go at recording them.
+ - I sort of have various sort of theories when people ask me about songwriting because it is a mystery. You don’t really know. Sometimes you can do it and sometimes you can’t. It’s really peculiar.
+ - Going to Nashville to meet the in-laws was the first time when I’d been in America and not been seen as some sort of eccentric character with a cute accent.
+ - I used to sort of take the phone off the hook, you know, put my feet up and watch the TV until it was all over.
+ - I’m playing to the sort of people who like the same records.
+ - But anyway, I was convinced that it would go away, you know. But the idea was that he was sitting on a flight – you know, one of those sort of fairly long flights, like, sort of, you know, Newark to Denver or something like that – so, you know, a few hours.
+ - Elvis Costello had a brand new bag. He was a musician, but he knew all about the attitude part of it.
+ - I loved Christmas. We had a really great time. But there wasn’t – it was all – you had to be happy with, you know, an orange and a couple of walnuts, you know, in your stocking.
+ - I suppose I was waiting until I was old enough to have some sort of experience to sing about. When you’re young, it’s hard to sing the blues. Nobody believes you.
+
+52 quotes

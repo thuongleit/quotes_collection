@@ -1,0 +1,55 @@
+ - For we lose not only by death, but also by leaving and being left, by changing and letting go and moving on.
+ - Some days are like that. Even in Australia.
+ - One advantage of marriage is that, when you fall out of love with him or he falls out of love with you, it keeps you together until you fall in again.
+ - Telling a lie is called wrong. Telling the truth is called right. Except when telling the truth is called bad manners and telling a lie is called polite.
+ - Lust is what keeps you wanting to do it even when you have no desire to be with each other. Love is what makes you want to be with each other even when you have no desire to do it.
+ - We have to divide mother love with our brothers and sisters. Our parents can help us cope with the loss of our dream of absolute love. But they cannot make us believe that we haven’t lost it.
+ - Superstition is foolish, childish, primitive and irrational – but how much does it cost you to knock on wood?
+ - Late birds get worms while early birds get tired.
+ - Losing is the price we pay for living. It is also the source of much of our growth and gain.
+ - For some it takes a lifetime to find true love, But for the lucky ones a lifetime is merely enough to share the love they’ve found.
+ - Passionate investment leaves us vulnerable to loss. And sometimes, no matter how clever we are, we must lose.
+ - It has been a terrible, horrible, no good, very bad day. My mom says some days are like that.
+ - I think I’ll move to Australia.
+ - Eventually we will learn that the loss of indivisible love is another of our necessary losses, that loving extends beyond the mother-child pair, that most of the love we receive in this world is love we will have to share – and that sharing begins at home, with our sibling rivals.
+ - Close friends contribute to our personal growth. They also contribute to our personal pleasure, making the music sound sweeter, the wine taste richer, the laughter ring louder because they are there.
+ - Love is when you realize that he’s as sexy as Woody Allen, as smart as Jimmy Connors, as funny as Ralph Nader, as athletic as Henry Kissinger and nothing like Robert Redford – but you’ll take him anyway.
+ - Somewhere slightly before or after the close of our second decade, we reach a momentous milestone – childhood’s end. We have left asafe place and can’t go home again. We have moved into a world where life isn’t fair, where life is rarely what it should be.
+ - Suffering makes you deep. Travel makes you broad. In case I get my pick, I’d rather travel.
+ - Our daily existence requires both closeness and distance, the wholeness of self, the wholeness of intimacy.
+ - But it’s hard to be hip over thirty when everyone else is nineteen, when the last dance we learned was the Lindy, and the last we heard, girls who looked like Barbara Streisand were trying to do something about it.
+ - You end up as you deserve. In old age you must put up with the face, the friends, the health, and the children you have earned.
+ - When he is late for dinner and I know he must be either having an affair or lying dead in the street, I always hope he’s dead.
+ - Our mother gives us our earliest lessons in love- and its partner, hate. Our father-our “second other”-elaborates on them.
+ - Recognize joy when it arrives in the plain brown wrappings of everyday life.
+ - I went to sleep with gum in my mouth and now there’s gum in my hair and when I got out of bed this morning I tripped on the skateboard and by mistake I dropped my sweater in the sink while the water was running and I could tell it was going to be a terrible, horrible, no good, very bad day.
+ - I don’t intend to stop showing a little cleavage. Nor do I intend to stop flashing a little thigh.
+ - Adolescence involves our nutty-desperate-ecstatic-rash psychological efforts to come to terms with new bodies and outrageous urges.
+ - No-fault guilt: This is when, instead of trying to figure out who’s to blame, everyone pays.
+ - If ambitious fantasies make people blush, and sexual fantasies make people blush and feel guilty, fantasies of violence and death may make people blush and feel guilty-and frightened too.
+ - Love is the same as like except you feel sexier.
+ - Being in love is better than being in jail, a dentist’s chair, or a holding pattern over Philadelphia, but not if he doesn’t love you back.
+ - There is a time to separate from our mother. But unless we are ready to separate-unless we are ready to leave her and be left-anything is better than separation.
+ - If his mother was drowning and I was drowning and he had to choose one of us to save, He says he’d save me.
+ - Sun lighting a child’s hair. A friend’s embrace. Slow dancing in a safe and quiet place. The pleasures of an ordinary life.
+ - There is a time in our life when we need to strut our stuff and groove on grandiosity, when we need to be viewed as remarkable and rare, when we need to exhibit ourself in front of a mirror that reflects our self-admiration, when we need a parent to function as that mirror.
+ - READ! Books can be as delicious as hot-fudge sundaes, as funny as clowns, as exciting as a baseball game that’s tied in the 9th inning, and as beautiful as the best sunset you ever saw.
+ - Craving that old sweet oneness yet dreading engulfment, wishing to be our mother’s and yet be our own, we stormily swing from mood to mood, advancing and retreating-the quintessential model of two-mindedness.
+ - Our early lessons in love and our developmental history shape the expectations we bring into marriage.
+ - Strength is the capacity to break a Hershey bar into four pieces with your bare hands – and then eat just one of the pieces.
+ - For many men the denial of dependency on their mother is repeated in their subsequent relationships, sometimes by an absence of any sexual interest in women, sometimes by a pattern of loving and leaving them.
+ - We cannot love others as others unless we possess suficient self-love, a love we learn from being loved in infancy.
+ - A normal adolescent is so restless and twitchy and awkward that he can mange to injure his knee – not playing soccer, not playing football – but by falling off his chair in the middle of French class.
+ - We will have to give up the hope that, if we try hard, we somehow will always do right by our children. The connection is imperfect. We will sometimes do wrong.
+ - If we are the younger, we may envy the older. If we are the older, we may feel that the younger is always being indulged. In otherwords, no matter what position we hold in family order of birth, we can prove beyond a doubt that we’re being gypped.
+ - We begin life with loss. We are cast from the womb without an apartment, a charge plate, a job or a car. We are sucking, sobbing, clinging, helpless babies.
+ - Our father presents an optional set of rhythms and responses for us to connect to. As a second home base, he makes it safer to roam. With him as an ally – a love – it is safer, too, to show that we’re mad when we’re mad at our mother. We can hate and not be abandoned, hate and still love.
+ - Not listening is probably the commonest unkindness of married life, and one that creates – more devastatingly than an eternity of forgotten birthdays and misguided Christmas gifts – an atmosphere of not loving and not caring.
+ - Living with golden fantasies of an endlessly nurtured infancy can be a neurotic refusal to grow up.
+ - Mid-grade readers don’t have short attention spans, they just have low boredom tolerance.
+ - I could be such a wonderful wife to another wife’s husband.
+ - The need to become a separate self is as urgent as the yearning to merge forever. And as long as we, not our mother, initiate parting, and as long as our mother remains reliably there, it seems possible to risk, and even to revel in, standing alone.
+ - Because we believe ourselves to be better parents than our parents, we expect to produce better children than they produced.
+ - Love is much nicer to be in than an automobile accident, a tight girdle, a higher tax bracket or a holding pattern over Philadelphia.
+
+53 quotes

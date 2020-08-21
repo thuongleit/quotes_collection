@@ -1,0 +1,105 @@
+ - Give a man a fish and you feed him for a day; teach a man to fish and you feed him for a lifetime.
+ - In finances, be strict with yourself, generous with others.
+ - Teach thy tongue to say ‘I do not know,’ and thou shalt progress.
+ - You must accept the truth from whatever source it comes.
+ - The risk of a wrong decision is preferable to the terror of indecision.
+ - The physician should not treat the disease but the patient who is suffering from it.
+ - I will destroy my enemies by converting them to friends.
+ - Commune with your own heart on your bed and be still.
+ - Truth does not become more true by virtue of the fact that the entire world agrees with it, nor less so even if the whole world disagrees with it.
+ - Let nothing which can be treated by diet be treated by other means.
+ - We each decide whether to make ourselves learned or ignorant, compassionate or cruel, generous or miserly. No one forces us. No one decides for us, no one drags us along one path or the other. We are responsible for what we are.
+ - In accordance with the divine wisdom, genesis can only take place through destruction.
+ - It is possible that the meaning of wisdom in Hebrew indicates aptitude for stratagems and the application of thought in such a way that the stratagems and ruses may be used in achieving either rational or moral virtues, or in achieving skill in a practical art, or in working evil and wickedness.
+ - A wise man is a greater asset to a nation than a king.
+ - There are eight rungs in charity. The highest is when you help a man to help himself.
+ - First Theory. There is no Providence at all for anything in the Universe; all parts of the Universe, the heavens and what they contain, owe their origin to accident and chance; there exists no being that rules and governs them or provides for them. This is the theory of Epicurus...
+ - We suffer from the evils which we, by our own free will, inflict on ourselves and ascribe them to God, who is far from being connected with them!
+ - The more necessary a thing is for living beings, the more easily it is found and the cheaper it is; the less necessary it is, the rarer and dearer it is.
+ - In the realm of Nature there is nothing purposeless, trivial, or unnecessary.
+ - He who does not understand that a dead lion is more alive than a living dog will remain a dog.
+ - You will certainly not doubt the necessity of studying astronomy and physics, if you are desirous of comprehending the relation between the world and Providence as it is in reality, and not according to imagination.
+ - I believe with perfect faith that the Creator, blessed be his name, is not a body, and that he is free from all accidents of matter, and that he has not any form whatsoever.
+ - Work before eating, rest after eating. Eat not ravenously, filling the mouth gulp after gulp without breathing space.
+ - If a person studies too much and exhausts his reflective powers, he will be confused, and will not be able to apprehend even that which had been within the power of his apprehension. For the powers of the body are all alike in this respect.
+ - That which is produced with intention has passed over from non-existence to existence.
+ - God is identical with His attributes, so that it may be said that He is the knowledge, the knower, and the known.
+ - Just as a person is commanded to honor and revere his father, so he is under an obligation to honor and revere his teacher, even to a greater extent than his father; for his father gave him life in this world, while his teacher instructs him in wisdom, secures for him life in the world to come.
+ - No form remains permanently in a substance; a constant change takes place, one form is taken off and another is put on.
+ - The true work of God is all good, since it is existence.
+ - There is no difference between the worry of a human mother and an animal mother for their offspring. A mother’s love does not derive from the intellect but from the emotions, in animals just as in humans.
+ - It is hard for a woman with whom an uncircumcised man has had sexual intercourse to separate from him. In my opinion this is the strongest of the reasons for circumcision.
+ - One should see the world, and see himself as a scale with an equal balance of good and evil. When he does one good deed the scale is tipped to the good – he and the world is saved. When he does one evil deed the scale is tipped to the bad – he and the world is destroyed.
+ - It is man’s duty to love and to fear God, even without hope of reward or fear of punishment.
+ - Those who are incapable of attaining to supreme religious values include the black coloured people and those who resemble them in their climates. Their nature is like the mute animals. Their level among existing things is below that of a man and above that of a monkey.
+ - He who immerses himself in sexual intercourse will be assailed by premature aging, his strength will wane, his eyes will weaken, and a bad odour will emit from his mouth and his armpits, his teeth will fall out and many other maladies will afflict him.
+ - It is better and more satisfactory to acquit a thousand guilty persons than to put a single innocent one to death.
+ - Do not consider it proof just because it is written in books, for a liar who will deceive with his tongue will not hesitate to do the same with his pen.
+ - It should not be believed that all beings exist for the sake of the existence of man. On the contrary, all the other beings too have been intended for their own sakes and not for the sake of anything else.
+ - God cannot be compared to anything. Note this.
+ - God who preceded all existence is a refuge...
+ - Astrology is not an art, it is a disease.
+ - Nobody is ever impoverished through the giving of charity.
+ - Astrology is a disease, not a science.
+ - In the beginning we must simplify the subject, thus unavoidably falsifying it, and later we must sophisticate away the falsely simple beginning.
+ - Anticipate charity by preventing poverty.
+ - Man’s obsession to add to his wealth and honor is the chief source of his misery.
+ - Lose with truth and right rather than gain with falsehood and wrong.
+ - For it is said, “You shall strengthen the stranger and the dweller in your midst and live with him,” that is to say, strengthen him until he needs no longer fall upon the mercy of the community or be in need.
+ - All attributes ascribed to God are attributes of His acts, and do not imply that God has any qualities.
+ - The goal of good health is to enable a person to acquire wisdom.
+ - He, however, who begins with Metaphysics, will not only become confused in matters of religion, but will fall into complete infidelity.
+ - The great sickness and the grievous evil consist in this: that all the things that man finds written in books, he presumes to think of as true-and all the more so if the books are old.
+ - Consequently he who wishes to attain to human perfection, must therefore first study Logic, next the various branches of Mathematics in their proper order, then Physics, and lastly Metaphysics.
+ - Inspire me with love for my art and for thy creatures. In the sufferer let me see only the human being.
+ - The being which has absolute existence, which has never been and will never be without existence, is not in need of an agent.
+ - Every ignoramus imagines that all that exists, exists with a view to his individual sake; it is as if there were nothing that exists except him. And if something happens to him that is contrary to what he wishes, he makes the trenchant judgement that all that exists is an evil.
+ - Every man whose character traits all lie in the mean is called a wise man.
+ - A small amount of wine such as three or four glasses is of benefit for the preservation of the health of human beings and an excellent remedy for most illnesses.
+ - Hold firmly to your word.
+ - Those who grieve find comfort in weeping and in arousing their sorrow until the body is too tired to bear the inner emotions.
+ - We are obligated to be more scrupulous in fulfilling the commandment of charity than any other positive commandment because charity is the sign of a righteous man.
+ - The key to the understanding and to the full comprehension of all that the Prophets have said is found in the knowledge of the figures, their general ideas, and the meaning of each word they contain.
+ - For every force charged by God, may He be exalted, with some business is an angel put in charge...
+ - In so far as the soul is a force residing in the body; it has therefore been said that the properties of the soul depend of the condition of the body.
+ - The first kind of evil is that which is caused to man by the circumstance that he is subject to genesis and destruction, or that he possesses a body.
+ - The knowledge of God, the formation of ideas, the mastery of desire and passion, the distinction between that which is to be chosen and that which is to be rejected, all these man owes to his form...
+ - Now, we occupy a lowly position, both in space and rank in comparison with the heavenly sphere, and the Almighty is Most High not in space, but with respect to absolute existence, greatness and power.
+ - The question, “What is the purpose thereof?” cannot be asked about anything which is not the product of an agent; therefore we cannot ask what is the purpose of the existence of God.
+ - Do not imagine that these most difficult problems can be thoroughly understood by any one of us.
+ - It is of great advantage that man should know his station, and not imagine that the whole universe exists only for him.
+ - There are four different theories concerning Divine Providence; they are all ancient, known from the time of the Prophets, when the true law was revealed to enlighten these dark regions.
+ - The whole object of the Prophets and the Sages was to declare that a limit is set to human reason where it must halt.
+ - You will find that there is no other difference of opinion as regards any portions of the Universe, except that the philosophers believe in the Eternity of the Universe and we believe in the Creation. Note this.
+ - To the totality of purposes of the perfect Law there belong the abandonment, depreciation, and restraint of desires in so far as possible.
+ - All forces that reside in the body are angels.
+ - It is thus necessary to examine all things according to their essence, to infer from every species such true and well established propositions as may assist us in the solution of metaphysical problems.
+ - The more we desire for that which is superfluous, the more we meet with difficulties; our strength and possessions are spent in unnecessary things, and are wanting when required for that which is necessary.
+ - Be convinced that, if man were able to reach the end without preparatory studies, such studies would not be preparatory but tiresome and utterly superfluous.
+ - The Prophets even express their surprise that God should take notice of man, who is too little and too unimportant to be worthy of the attention of the Creator; how, then, should other living creatures be considered as proper objects for Divine Providence!
+ - Transient bodies are only subject to destruction through their substance and not through their form, nor can the essence of their form be destroyed; in this respect they are permanent.
+ - Even the existence of this corporeal element, low as it in reality is, because it is the source of death and all evils, is likewise good for the permanence of the Universe and the continuation of the order of things, so that one thing departs and the other succeeds.
+ - All this is applicable to the intellectual faculties of man. There is a considerable difference between one person and another as regards these faculties, as is well known to philosophers.
+ - Man’s shortcomings and sins are all due to the substance of the body and not to its form; while all his merits are exclusively due to his form.
+ - In accordance with the divine wisdom, genesis can only take place through destruction, and without destruction of the individual members of the species the species themselves would not exist permanently. Thus the true kindness, and beneficence, and goodness of God is clear.
+ - If one avoids haughtiness to the utmost extent and is exceedingly humble, he is termed a saint, and this is the standard of saintliness.
+ - For that which is without a beginning, a final cause need not be sought.
+ - A truth does not become greater by repetition.
+ - What is lofty can be said in any language. What is mean should be said in none.
+ - The so-called evils are evils only in relation to a certain thing, and that which is evil in relation to a certain existing thing, either includes the non-existence of that thing or the non-existence of some of its good conditions.
+ - If men possessed wisdom, which stands in the same relation to the form of man as the sight to the eye, they would not cause any injury to themselves or to others, for the knowledge of the truth removes hatred and quarrels, and prevents mutual injuries.
+ - Do not imagine that what we have said of the insufficiency of our understanding and of its limited extent is an assertion founded only on the Bible: for philosophers likewise assert the same, and perfectly understand it,- without having regard to any religion or opinion.
+ - How individuals of the same species surpass each other in these sensations and in other bodily faculties is universally known, but there is a limit to them, and their power cannot extend to every distance or to every degree.
+ - Giving is most blessed and most acceptable when the donor remains completely anonymous.
+ - You must consider, when reading this treatise, that mental perception, because connected with matter, is subject to conditions similar to those to which physical perception is subject.
+ - Eliphas never abandoned his belief that the fate of man is the result of justice, that we do not know all our shortcomings for which we are punished, nor the way how we incur the punishment through them.
+ - While one man can discover a certain thing by himself, another is never able to understand it, even if taught by means of all possible expressions and metaphors, and during a long period; his mind can in no way grasp it, his capacity is insufficient for it.
+ - The philosophers likewise assume that in Nature there is nothing in vain, so that everything that is not the product of human industry serves a certain purpose, which may be known or unknown to us.
+ - The fact that laws were given to man, both affirmative and negative, supports the principle, that God’s knowledge of future events does not change their character. The great doubt that presents itself to our mind is the result of the insufficiency of our intellect.
+ - There is no difference between the pain of humans and the pain of other living beings, since the love and tenderness of the mother for the young are not produced by reasoning, but by feeling, and this faculty exists not only in humans but in most living beings.
+ - Actions are divided as regards their object into four classes; they are either purposeless, unimportant, or vain, or good .
+ - Further, there are things of which the mind understands one part, but remains ignorant of the other; and when man is able to comprehend certain things, it does not follow that he must be able to comprehend everything.
+ - The same is the case with those opinions of man to which he has been accustomed from his youth; he likes them, defends them, and shuns the opposite views.
+ - Everyone entrusted with a mission is an angel.
+
+103 quotes

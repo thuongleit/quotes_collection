@@ -1,0 +1,40 @@
+ - Take one step at a time, there’s no need to rush.
+ - My heroes are just everyday people who work hard, are honest and have integrity.
+ - I love dill pickles! They’re on my rider for my concerts so I eat one every day.
+ - I love berries. Strawberries, blueberries, raspberries, black berries, anything with an ‘errie’ in it!
+ - I like what I see in the mirror. I liked what I saw in the mirror before. It just didn’t work in a bikini. And now it does. So I’m excited!
+ - If I don’t laugh at least 20 times a day – it hasn’t been a good day.
+ - As far as friendships go, things change even without the fame. People start moving on. I have a few friends that are married and are starting to have kids and I’m like, ‘Oh my goodness gracious – that’s so insane.’ I also have friends who are just doing their own thing, which is cool.
+ - There’s no quick or magical way to lose weight. You just have to do it the natural way – diet and exercise and stick to it – and be able to do it at your own pace.
+ - My whole journey has been about self acceptance.
+ - I love the expression that ‘When your Bible is falling apart, the man isn’t.’
+ - I played softball and basketball growing up. I really wanted to play football but both parents said no. I was mad for a second, then got over it. Now, just because I’m tall doesn’t mean I can play basketball. I was waaaaay better at swinging a bat.
+ - It’s cool to have parents and family who will always tell me the truth no matter what. They’ll tell me if I’m doing something stupid!
+ - I love food and I love my curves.
+ - I’ve had lots of friends who’ve gone through ‘Battlefield’ situations in their relationships, so when I was singing the song I put myself in their position and tried to imagine what they were going through. I got so, so into it and I think you can tell.
+ - I used to eat because food tastes so good. I love food, it’s one of the best things on this planet. But I changed the way I was thinking. I started asking myself, ‘Hey, am I eating because it tastes good? Or because I really need some more? Am I really still hungry?’
+ - I was always okay with the fact that I was taller and bigger than everybody else growing up. My mom, my dad, and my friends always told me I was beautiful.
+ - It’s OK to feel crappy sometimes and it’s OK to feel like you don’t look like the next person. But what you have to know is that you are beautiful and you are strong and you are worth it. It’s important to know that.
+ - With the ‘60s era and Motown, my grandparents actually introduced us to that when I was younger, so I grew up listening to the Jackson Five, Aretha Franklin, The Temptations, The Supremes and Diana Ross’ solo stuff. I just loved it.
+ - I like the way my heart beats, I like the way I think; I don’t need or want anything to change that.
+ - Being on ‘Idol,’ you have no choice but to be an open book.
+ - Right now, I feel like I can take on the world. Ambition is the perfect word for where I am in my life right now.
+ - I’m excited about the new judges on ‘American Idol.’ Jennifer Lopez was a real mentor to me my season and I admire her so much. And I kind of have a crush on Steven Tyler. It’s going to be interesting to see is one person going to stand out among the judges or if everyone will sort of be equal.
+ - With my schedule being so crazy, I can’t call every day or hang out with my friends like I used to and that’s definitely sad.
+ - I’d love to own a bakery at some point. My grandmother could help me run it – she is an amazing baker! I’d also love to do a cookbook.
+ - Any extra free time you have, you are sleeping, or you’re trying to sleep.
+ - I’d love to do something with Kelly Clarkson because she’s been a monumental influence on me. I love how she handles her celebrity. She’s not in the tabloids a lot but everyone knows and respects her because she’s got an amazing voice. That’s something I aim towards.
+ - Sometimes I feel like there are people just waiting for me to fall. The funny thing is, I can’t give them anything. I have just never been a partier, even in school.
+ - I love being able to sing for my job. I am blessed beyond words and I hope my fans can feel that while I’m on stage!
+ - I’ve performed in Auburn Hills, at The Palace, so I haven’t really been in downtown Detroit, but I’ve been able to be here, and I can really see, what the city was. Like, I can feel why Motown started here and how amazing it was.
+ - If I woke up tomorrow and couldn’t do music anymore, I absolutely don’t know what I would do.
+ - I can do accents really well.
+ - I like to wear sleeves because they cover up my arms.
+ - My favorite judge is Simon because he is brutally honest and he thinks I’m.
+ - Hollywood large is so different than real-life large.
+ - I looked massive next to Ryan Seacrest! But I was lucky that I’ve never had anyone say, ‘Jordin, you need to lose weight.’
+ - I’m so excited for my first fragrance! I chose to partner with Dots because I love what they do for their customers, bringing them the hottest trends in fashion, accessories and fragrance at unbelievably low prices. It’s amazing!
+ - I love football. My weekends are booked. Saturday college games and Sunday NFL and ‘Monday Night Football.’ Booked! Football is first, then basketball and then everything else.
+ - When I was on ‘Idol’ and 17, everything was so new. Everyone is so nice and wants to see you succeed.
+
+38 quotes

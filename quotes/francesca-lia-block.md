@@ -1,0 +1,96 @@
+ - Magic can be found in stolen moments.
+ - The true warrior isn’t immune to fear. She fights in spite of it.
+ - No matter how bad things get, you can always see the beauty in them. The worse things get, the more you have to make yourself see the magic in order to survive.
+ - You have to make your own family, your own life.
+ - I want to be untouchable and beautiful and completely dead inside.
+ - Love is a dangerous angel.
+ - No matter where I am, I am always loving you.
+ - It’s scary to become a woman in this world. We have to understand that some of the messages we get, messages that we are not enough, are there to keep our power in check. We can’t buy into these messages.
+ - But death is stronger than that and when you cover your eyes you are the one who can’t see the dark. The dark still sees you.
+ - What shall we do, all of us? All of us oassionate girls who fear crushing the boys we love with our mouths like caverns of teeth, our mushrooming brains, our watermelon hearts?
+ - Our stories can set us free. When we set them free.
+ - Everything is an illusion; that is the whole thing about it – illusion, immitation, a mirage. It makes me too sad. Its having like a good dream, you know you are going to wake up.
+ - I saw my own blood and I thought, how could I live in a world where this exists- where love can become death?
+ - We no longer believe in fairy tales. But we will learn to believe in monsters.
+ - I think depression creates in me an urgent need to write, but I also believe that daily stress, and even the positive stress of intense happiness, can compel me to express myself through the written word.
+ - If you want to find the trail, if you want to find yourself, you must explore your dreams alone. You must grow at a slow pace in a dark cocoon of loneliness so you can fly like wind, like wings, when you awaken.
+ - You are in my blood. I cant help it. We can’t be anywhere except together.
+ - She had changed him. The ice was in his eyes and in his heart, like he had predicted with that song, but now they were deep embedded there, all the pain of the world. Not pain to make you feel for somebody else but pain to make you stop feeling.
+ - Beauty loved him more than anything, her Beast boy, but, secretly, sometimes, she wished he would have remained a Beast.
+ - Every girl is a goddess.
+ - You asked me who I thought I was before. I said maybe I was a fish because I love water and you said, you thought a mermaid, maybe. If you were a mermaid, you said, if you were a mermaid, I was the sea.
+ - Writing is literally transformative. When we read, we are changed. When we write, we are changed. It’s neurological. To me, this is a kind of magic.
+ - You’re meant to have whatever your heart desires. Whatever your heart wants that much is already a part of you.
+ - When you live in a city with no stars to wish on, you have to wish on each other.
+ - My heart is a teacup with hairline cracks. I feel like I have to walk real carefully so it won’t get shaken and just all shatter and break.
+ - I wanted him to hold me, to take care of me. To make the pain dissolve away. I know that this was part of what had ruined everything but I wanted it once more anyway.
+ - The girl in the mirror wasn’t who I wanted to be and her life wasn’t the one I wanted to have.
+ - She began to feel like the plastic doll she had been named after, without even a hole where her mouth was supposed to be.
+ - I want him to see the flowers in my eyes and hear the songs in my hands.
+ - Everything was chocolate ice cream and kisses and wind.
+ - If Death is your father, you don’t ever have to worry about what part of his body the disease will strike next. If Death is your lover, you don’t have to be afraid that he will ever leave you.
+ - When they first kiss, there on the beach, they will kneel at the edge of the Pacific and say a prayer of thanks, sending all the stories of love inside them out in a fleet of bottles all across the oceans of the world.
+ - My mother said, “kiss him, darling, it’s easy so natural” and I thought to myself, not with lips of stone, dear mother, not with lips of stone.
+ - Under the pink Harlequin sunglasses strawberry dangling charms, and sugar-frosted eyeshadow she was really almost beautiful.
+ - If death is your lover, you don’t got to be afraid ever that he will ever leave you.
+ - Find the goddess inside yourself instead of looking for the god in someone else.
+ - I wish I wasn’t a girl who needed so much but a little free creature that slept in deserts and ran on clouds and lived on lilies.
+ - Love is the worst earthquake there is. Can crush you to the thickness of your bones. Love can be like cancer sometimes. Terminal. It can make you vomit. It can make you want to cut it out. It can take you over against your will.
+ - I stand here waiting. To disappear or sing.
+ - But be careful; sand is already broken but glass breaks. The shoes are for dancing, not running away.
+ - If you were a mermaid, you said, If you were a mermaid, I was the sea.
+ - I dreamed you were standing in this dark place and you touched these dead flowers and they lit up like they were electric or something. Electric lilies. Lighting up the Valley.
+ - My mother says that pain is hidden in everyone you see. She says try to imagine it like big bunches of flowers that everyone is carrying around with them. Think of your pain like a big bunch of red roses, a beautiful thorn necklace. Everyone has one.
+ - He said that black sheeps express everyone else’s anger and pain. It’s not that they have all the anger and pain-they’re just the only ones who let it out. Then the other people don’t have to.
+ - She wished she had a little yellow house of her own, with a flower box full of real flowers and herbs – pansies and rosemary – and a sweet lover who would swing dance with her in the evenings and cook pasta and read poetry aloud.
+ - Wish on everything. Pink cars are good, especially old ones. And stars of course, first stars and shooting stars. Planes will do if they are the first light in the sky and look like stars. Wish in tunnels, holding your breath and lifting your feet off the ground. Birthday candles. Baby teeth.
+ - It’s important to tell your story. It’s important to listen.
+ - You make me feel like I have wings when you touch me.
+ - Sometimes a wild horse needs to feel that his rider is just a little bit wilder.
+ - Each of us has a family tree full of stories inside of us, Dirk thought. Each of us has a story blossoming out of us.
+ - I try to see the dark and light in everything. This is my way of comforting myself when I am dealing with those emotions.
+ - At least the girls in stories were alive before they died.
+ - You are my Marilyn. You are my lake full of fishes. You are my sky set, my ‘Hollywood in Miniature,’ my pink Cadillac, my highway, my martini, the stage for my heart to rock and roll on, the screen where my movies light up.
+ - Any alphabet book for children where ‘P is for Patti’ Smith and ‘X is for the women whose names we don’t know’ is something I can recommend, especially when the book is as well written, representationa lly diverse and vividly illustrated as this one.
+ - Everything was fine, but Weetzie wanted a baby. “How could you want one?” My Secret Agent Lover Man said. “There are way too many babies. And diseases. And nuclear accidents. And crazy psychos. We cant have a baby,” he said.
+ - Flowers are reincarnation. They come out of the earth of our ashes. Nothing else looks so soul-like.
+ - Think of your pain like a bunch of red roses, a beautiful thorn necklace. Everyone has one.
+ - War is being reminded that you are completely at the mercy of death at every moment, without the illusion that you are not. Without the distractions that make life worth living.
+ - In Mexico people wear hummingbird amulets around their necks to show they are searching for love. Here people pretend that they aren’t. Searching.
+ - He said, You’re so tiny, like a doll, you look like you might break. I wanted him to break me. Part of me did.
+ - It was always a relief when she came home to him. Like water or food. Like music or that moment when you cut yourself with a knife and squeeze the skin and no blood oozes out.
+ - Weetzie wished she could shake blue glitter around all of them – keeping them sparkling and safe.
+ - Pain can give you sight or make you blind.
+ - I am constantly thinking ahead to what I want to write about in the future, and when I’m done with one project, I give myself a little time and then start the next one.
+ - After his kisses and hugs it feels like without them my body will fall apart into pieces.
+ - Morning. Strawberry sky dusted with white winter powder sugar sun. And nobody to munch on it with.
+ - I think that poetry is perfect for women raising children, with just bits of time and such need to connect to other women out of the isolation of motherhood.
+ - I didn’t tell him that what I was most scared of, most haunted by, was something I didn’t understand and could never run away from. It was myself.
+ - Welcome Beauty, banish fear.
+ - Pulling heads off Barbies, sticking them on the TV antenna and ruining the reception. But thats how witch babies are.
+ - I dreamed of being a part of the stories – even terrifying one, even horror stories – because at least the girls in stories were alive before they died.
+ - It seems impossible that you can love one person so much, no matter what happens, no matter what they do.
+ - Tinys do not deserve safety. If they are to prove themselves, they must suffer and die or suffer and survive.
+ - Writing is very cathartic for me. As a teacher, I hear many students say that writing can be painful and exhausting. It can be, but ultimately I believe that if you push through, the process is healing and exhilarating.
+ - Sometimes I wanted to peel away all of my skin and find a different me underneath.
+ - Metaphors are an interesting example of creating magic in prose.
+ - Pain didn’t ever really stop, he thought; it just changed forms.
+ - Maybe any love we ever have is an angel in whatever form...
+ - This was not a fearie tale. This was not the movies. This was life. It hurt more. It was excruciating. It was excruciatingly beautiful.
+ - You must reach inside yourselves where I live like a story, not old, not young laughing at my own sorrow, weeping pearls at weddings, wielding a torch to melt sand into something clear and bright.
+ - You are so intense. Like a storm. It’s shocking how intense you are.
+ - Any love that is love is right.
+ - I’ll be inside the one who holds you. And then I won’t be.
+ - Maybe her own tears were the poison that made her grow.
+ - In order to have bliss you have to be able to accept all the parts of the other, all the wildness and the darkness. You have to be able to hold on.
+ - You can’t doubt so much, Psyche.
+ - The most Beautiful people are the ones that don’t look like one race or even one sex.
+ - She pushed the gardener away and called for them. In her sleep she had seen love. It was poisoning. It was possessing. Devouring. Or it was seven pairs of boots climbing up the stairs to find her.
+ - Write with abandon and no constraints for first draft. Cut brutally and save in separate files on second draft. Add conflict; don’t be afraid to make your characters suffer. Read what you love. Write what you love. Love.
+ - Maybe he was real. Maybe I’d made him up. Either way, he didn’t think I needed him anymore. Maybe he was right.
+ - What happens to the rest of something when you smash its heart?
+ - She was no longer a slow dreamer watching the flowers grow. She was a warrior now. Warriors need something to fight for though, beside their lives, because otherwise their lives will not be worth it.
+ - Let’s not be afraid of anything that can’t really hurt us.
+ - Besides, secretly, without knowing it herself, she had been waiting for a Beast to go to.
+
+94 quotes

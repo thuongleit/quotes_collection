@@ -1,0 +1,42 @@
+ - Progress is impossible without change. ~~Walt Disney
+ - Where there is no struggle, there is absolutely no progress. ~~Eric Thomas
+ - Progress is more important than perfection. ~~Simon Sinek
+ - Failure is success in progress. ~~Albert Einstein
+ - There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. ~~Ronald Reagan
+ - Lack of emotion causes lack of progress and lack of motivation. ~~Tony Robbins
+ - Launch and learn. Everything is progress. ~~Danielle LaPorte
+ - Progress equals happiness. ~~Tony Robbins
+ - Run your own race. Who cares what others are doing? The only question that matters is ‘Am I progressing?’ ~~Robin S. Sharma
+ - Courage means to keep making forward progress while you still feel afraid! ~~Joyce Meyer
+ - If it is not a mess, it is not progress. ~~Robin S. Sharma
+ - There is no history of how bad became better. ~~Henry David Thoreau
+ - All progress depends on the unreasonable man. ~~George Bernard Shaw
+ - A person with a clear purpose will make progress, even on the roughest road. A person with no purpose will make no progress, even on the smoothest road. ~~Thomas Carlyle
+ - The price of progress is trouble. ~~Charles F. Kettering
+ - The way to get ahead is to start now. If you start now, you will know a lot next year that you don’t know now and that you would not have known next year if you had waited. ~~William Feather
+ - Believing in progress does not mean believing that any progress has yet been made. ~~Franz Kafka
+ - A man’s ego is the fountainhead of human progress. ~~Ayn Rand
+ - Social progress can be measured by the social position of the female sex. ~~Karl Marx
+ - The pace of progress in biology creates a foundation that naturally gets picked up by the biotech and pharmaceutical industry to solve rich-world diseases. This is attractive science. It’s science that people want to work on. ~~Bill Gates
+ - Moving along the upward spiral requires us to learn, commit, and do on increasingly higher planes. We deceive ourselves if we think that any one of these is sufficient. To keep progressing, we must learn, commit, and do-learn, commit, and do-and learn, commit, and do again. ~~Stephen R. Covey
+ - Our ambition should be to rule ourselves, the true kingdom for each one of us; and true progress is to know more, and be more, and to do more. ~~Oscar Wilde
+ - Work hard! Just keep working hard until you can do something you want to do! We all progress at different speeds and in different ways, so be patient and keep working hard! ~~Hiromi
+ - You cannot make progress without making decisions. ~~Jim Rohn
+ - It is important to expect nothing, to take every experience, including the negative ones, as merely steps on the path, and to proceed. ~~Ram Dass
+ - A leader without the vision, to strive to improve things, is no good. Then you will just stay put, you won’t progress. ~~Lee Kuan Yew
+ - Progress is not an illusion, it happens, but it is slow and invariably disappointing. ~~George Orwell
+ - What do I consider a teacher should be? One who breathes life into knowledge so that it takes new form in progress and civilization. ~~Helen Keller
+ - To those who can hear me, I say – do not despair. The misery that is now upon us is but the passing of greed – the bitterness of men who fear the way of human progress. ~~Charlie Chaplin
+ - Everything is a work-in-progress. ~~Nicholas A. Basbanes
+ - You might occasionally feel that some people are standing in the way and slowing your progress, but in reality the biggest person standing in your way is you. Others can stop you temporarily – you are the only one who can do it permanently. ~~Zig Ziglar
+ - It is impossible to have progress without conscience. ~~Robert Rauschenberg
+ - The United States has to move very fast to even stand still. ~~John F. Kennedy
+ - To our knowledge, life exists on only one planet, Earth. If something bad happens, it’s gone. I think we should establish life on another planet – Mars in particular – but we ’re not making very good progress. SpaceX is intended to make that happen. ~~Elon Musk
+ - My refusing to eat meat occasioned inconveniency, and I have been frequently chided for my singularity. But my light repast allows for greater progress, for greater clearness of head and quicker comprehension. ~~Benjamin Franklin
+ - Don’t hurry anything. Don’t worry about the future. Don’t worry about what progress you’re making. Just be entirely content to be aware of what is. ~~Alan Watts
+ - We must turn the greatest collective challenge facing humankind today, climate change, into the greatest opportunity for common progress towards a sustainable future. ~~Ban Ki-Moon
+ - The concept of progress must be grounded in the idea of catastrophe. That things are ‘status quo’ is the catastrophe. ~~Walter Benjamin
+ - Scientific Progress goes boink? ~~Bill Watterson
+ - As we progress into the twenty-first century, anyone who considers themselves a realist will have to make the environment a top priority. ~~Leonardo DiCaprio
+
+40 quotes

@@ -1,0 +1,50 @@
+ - The future is always beginning now.
+ - Each moment is a place you’ve never been.
+ - We all have reasons for moving. I move to keep things whole.
+ - In a field I am the absence of field. This is always the case. Wherever I am I am what is missing.
+ - Even this late it happens the coming of love, the coming of light. You wake and the candles are lit as if by themselves, stars gather, dreams pour into your pillows, sending up warm bouquets of air. Even this late the bones of the body shine and tomorrow’s dust flares into breath.
+ - Ink runs from the corners of my mouth. There is no happiness like mine. I have been eating poetry.
+ - Usually a life turned into a poem is misrepresented.
+ - I have been eating poetry.
+ - Poetry is about slowing down. You sit and you read something, you read it again, and it reveals a little bit more, and things come to light you never could have predicted.
+ - I feel that anything is possible in a poem.
+ - We’re only here for a short while. And I think it’s such a lucky accident, having been born, that we’re almost obliged to pay attention.
+ - Poems not only demand patience, they demand a kind of surrender. You must give yourself up to them. This is the real food for a poet: other poems, not meat loaf.
+ - If every head of state and every government official spent an hour a day reading poetry we’d live in a much more humane and decent world.
+ - Pain is filtered in a poem so that it becomes finally, in the end, pleasure.
+ - Even this late it happens: the coming of love, the coming of light.
+ - I think the best American poetry is the poetry that utilizes the resources of poetry rather than exploits the defects or triumphs of the poet’s personality.
+ - The number of people writing poems is vast, and their reasons for doing so are many, that much can be surmised from the stacks of submissions.
+ - These wrinkles are nothing These gray hairs are nothing, This stomach which sags with old food, these bruised and swollen ankles, my darkening brain, they are nothing. I am the same boy my mother used to kiss.
+ - It hardly seems worthwhile to point out the shortsightedness of those practitioners who would have us believe that the form of the poem is merely its shape.
+ - The reality of a poem is a very ghostly one. It suggests, it suggests, it suggests again.
+ - Life makes writing poetry necessary to prove I really was paying attention.
+ - Poetry is something that happens in universities, in creative writing programs or in English departments.
+ - Poetry is, first and last, language – the rest is filler.
+ - When I walk I part the air and always the air moves in to fill the spaces where my body’s been.
+ - We are reading the story of our lives As though we were in it As though we had written it.
+ - A life is not sufficiently elevated for poetry, unless, of course, the life has been made into an art.
+ - To open the dictionary of the Beyond and discover what one suspected, that the only word in it is nothing.
+ - It’s very hard to write humor.
+ - Once you start describing nothingness, you end up with somethingness.
+ - There’s a certain point, when you’re writing autobiographical stuff, where you don’t want to misrepresent yourself. It would be dishonest.
+ - The burial of feelings has begun.
+ - No voice comes from outer space, from the folds of dust and carpets of wind to tell us that this is the way it was meant to happen, that if only we knew how long the ruins would last we would never complain.
+ - From the reader’s view, a poem is more demanding than prose.
+ - I believe that all poetry is formal in that it exists within limits, limits that are either inherited by tradition or limits that language itself imposes.
+ - And what does it matter when light enters the room where a child sleeps and the waking mother, opening her eyes, wishes more than anything to be unwakened by what she cannot name?
+ - And at least in poetry you should feel free to lie. That is, not to lie, but to imagine what you want, to follow the direction of the poem.
+ - A great many people seem to think writing poetry is worthwhile, even though it pays next to nothing and is not as widely read as it should be.
+ - Nothing is the destiny of everyone, it is our commonness made dumb.
+ - It came to my house. It sat on my shoulders. Your shadow is yours. I told it so. I said it was yours. I have carried it with me too long. I give it back.
+ - I would say that American poetry has always been a poetry of personal testimony.
+ - But I tend to think of the expressive part of me as rather tedious – never curious or responsive, but blind and self-serving.
+ - And Robert Lowell, of course – in his poems, we’re not located in his actual life. We’re located more in the externals, in the journalistic facts of his life.
+ - Sometimes he did not know if he slept or just thought about sleep.
+ - And yet, in a culture like ours, which is given to material comforts, and addicted to forms of entertainment that offer immediate gratification, it is surprising that so much poetry is written.
+ - I tend to like poems that engage me – that is to say, which do not bore me.
+ - For some of us, the less said about the way we do things the better.
+ - I certainly can’t speak for all cultures or all societies, but it’s clear that in America, poetry serves a very marginal purpose. It’s not part of the cultural mainstream.
+ - I am not concerned with truth, nor with conventional notions of what is beautiful.
+
+48 quotes

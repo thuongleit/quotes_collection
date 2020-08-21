@@ -1,0 +1,179 @@
+ - Don’t push your weaknesses, play with your strengths.
+ - You get what you give. What you put into things is what you get out of them.
+ - Always remember, you will live, you will love, you will dance again.
+ - Lifes too short to live the same day twice.
+ - I’m feeling lucky like a four-leaf clover.
+ - You have to remember the value of your individuality – that you have something special and different to offer that nobody else can.
+ - I have the stardom glow.
+ - Just because you dress sexy doesn’t mean you’re a bad girl; it just means you know how to dress.
+ - I’m grateful for everything I have. I’m grateful for it all. I’m grateful for love most of all because I have a lot of it in my life.
+ - Always follow your heart. Sometimes it’s gonna hurt – but you’re going to be fine.
+ - Whenever it feels uncomfortable to tell the truth, that’s often the most important time to tell it.
+ - Things don’t always turn out exactly the way you want them to be and you feel disappointed. You are not always going to be the winner. That’s when you have to stop and figure out why things happened the way they did and what you can do to change them.
+ - I grew up walking around naked in my house. My mom was like that, and my sisters.
+ - You’ve got to love yourself first, and until you value yourself enough and love yourself enough to know that, you can’t really have a healthy relationship.
+ - I know it’s hard for women to tap into that feeling of self-worth. We need to get the message out that you are valued, you are a goddess and don’t forget that.
+ - My mom always told me that if you work hard, you can achieve anything. And it’s true. It’s one of the truest things ever.
+ - Love to me is someone telling me, ‘I want to be with you for the rest of my life, and if you needed me to I’d jump out of a plane for you.’
+ - Women should never go without earrings. Passing on them is an opportunity missed.
+ - My main priority now is that my kids are happy; that’s my number-one focus in life. Are these little people happy, content, and getting everything they need? Everything after that is secondary. Before, my work was my main priority – even above myself.
+ - With hard work, living a good life, you can do anything. You will be rewarded for that.
+ - The weirdest thing about me is that I like to walk around naked. I grew up walking around naked in my house. My mom was like that, and my sisters. My father worked nights and slept during the day, so we had no one to hide from.
+ - I’m living the life I always dreamed of living. From the time I was a youngster I wanted to be a celebrity. It’s a great life. The only bad thing is that people are more interested in your personal life than they are in your work and it’s freaky.
+ - It’s a real roller-coaster ride if you’re lucky to have longevity in this business – you have to be able to ride those waves.
+ - If you ask me, I’d like to become the first female president. That would be really cool. The first thing I would do is redecorate the White House, it doesn’t look very cozy.
+ - You have to take care of yourself, your body, your mind, take care of your soul-be your own keeper.
+ - I came from the Bronx and a certain background. I worked really hard. I kept my focus on the right things.
+ - I remain an eternal optimist about love. I believe in love.
+ - I’m bad at a ton of things. I’m bad at sitting still. I’m bad at basketball. My worst habit is that while people are talking, I will already be thinking three other things. It’s rude. Sometimes if the person is very in tune and they notice, they’re like “Where are you right now?”
+ - You’ve got to love yourself first. You’ve got to be okay on your own before you can be okay with somebody else.
+ - It’s a shame to call somebody a ‘diva’ simply because they work harder than everybody else.
+ - I do recommend the vegan diet because you wake up and feel great!
+ - Anybody who’s had children knows this feeling of deep love. It’s a selfless love, an unconditional love. And it makes you kind of examine everything that has happened.
+ - My favorite holiday is my birthday-it’s very Leo.
+ - It’s like being in the middle of a tornado. It’s like, whooooooosh, you know what I’m saying? It’s like Dorothy-you wake up and find yourself in the land of Oz.
+ - This is the man my mother lived for. My career means something now because I’ve worked with Robert Redford.
+ - You mirror what the world mirrors to you.
+ - I love a massage and a bath. I don’t drink – I’ll have a sip, but I’ve never been drunk – and I don’t smoke. I envy people who have those releases. They just have a drink or a cigarette, and they feel better. I have to brave it through the whole day on my own.
+ - If you don’t love yourself, you can’t love anybody else. And I think as women we really forget that.
+ - I don’t regret what I’ve been through. I’ve had ups and downs, super highs and some really low lows. I’ve been so blessed that I could never say, ‘I wish this didn’t happen.’ It’s part of who I am. There’s nothing in my life that’s so ugh.
+ - I judge people on how they smell, not how they look.
+ - The bear is what we all wrestle with. Everybody has their bear in life. It’s about conquering that bear and letting him go.
+ - I have my own high standards for what I want in a partner and how I want to be treated. I bring a lot to the table. I’m not talking about material things but what I have to offer as a person – love and loyalty and all the things that make a good relationship.
+ - I can only speak for myself, and hope people hear my words and see me on television speaking for myself. And, hopefully, they’ll be able to make their own judgment. And at the end of the day, I just want my work to speak for itself.
+ - You know, maybe I was just born in the wrong time, but I love all things romantic. Puffy understands that. For my last birthday, he covered my hotel room floor with rose petals and had flowers and candles all over the room.
+ - I know that being seen as a role model means taking responsibility for all my actions. I am human, and of course, sometimes I make mistakes. But I promise that when I fall, I get back up.
+ - The best part of having two babies at once, a son and a daughter, is mostly everything. You’re just having that feeling of love inside you all the time and motherhood is such a fulfilling place to be. I kind of wish it would have happened to me earlier in my life.
+ - Beauty is only skin deep. I think what’s really important is finding a balance of mind, body and spirit.
+ - You like the way I dress The way I wear my hair Show me off to all your friends Baby, I don’t care Just as long as you tell them who I am Tell them I’m the one that made you give a damn.
+ - I look to the women who epitomize old Hollywood glamour, like Rita Hayworth. She had a way of making sophisticated clothes look sexy without ever seeming sleazy or cheap.
+ - If you kiss on the first date and it’s not right, then there will be no second date. Sometimes it’s better to hold out and not kiss for a long time. I am a strong believer in kissing being very intimate, and the minute you kiss, the floodgates open for everything else.
+ - I think some people just use pregnancy as an excuse to really pig out. To be really disgusting. I am just going to eat this is my opportunity. I waited for this my whole life. I was not one of these people.
+ - I’m passionate, I’m driven at my job and I also am compassionate with people. We all think we can save somebody that we love.
+ - A nickname is not supposed to be your only name. I miss Jennifer a bit.
+ - I am positive – determined to move forward with my life, bring up my babies, and do the best job I can as a mother, entertainer, and person.
+ - You can’t let the fear of what people might say or think stop you from doing what you want to do or else we would never do anything.
+ - I only do what my gut tells me to. I think it’s smart to listen to other people’s advice, but at the end of the day, you’re the only one who can tell you what’s right for you.
+ - Sometimes you have to explore the darkness to get to the light and get back to who you are.
+ - I think the best partner you can have is someone who makes you want to be the best form of yourself.
+ - I don’t look at people and see color and race. I see inside.
+ - The rise of salsa was such an important time in musical history, not just in Latin music but music in general, because these guys created a new sound.
+ - When I see Puff in a video kissing someone, it’s freaky and I know it’s freaky for him to see me do a movie love scene, but as far as him forbidding me to do them, that’s bull.
+ - And I love the idea of spending the whole day in bed with my lover.
+ - As you get older and as you experience and go through different things you realize you have to set boundaries. You have to for your life. You have to say this is OK and this is not OK. This is what I do for a living and this is my life. It’s the only one I get and so I have to set boundaries.
+ - When I was young, I was just about hard work. But as I got older, I did experience anxiety, doubt, judgment, and it’s so easy to lose yourself for a second.
+ - Ain’t it funny how a moment could just change your life, and you don’t want to face what’s wrong or right. Ain’t it strange how fate can play a part, in the story of your heart.
+ - And I never ask what I’m doing the next day. I don’t want to know what I’m doing tomorrow. It’s much too overwhelming. So I just go day by day, without knowing.
+ - You have to stand up and say, ‘There’s nothing wrong with me or my shape or who I am; you’re the one with the problem!’
+ - When you have children, you realise you can’t plan anything. There’s no Plan A, no Plan B. Life will happen and you will go with it.
+ - I always joke about letting the haters motivate you. Everybody has that in their life, people who doubt them or make them feel less than they are. It just takes faith and belief in yourself, and you’ve got to dig deep into that. That has to come from you – nobody’s going to give you that.
+ - I swear to God, I don’t remember anything Gwyneth Paltrow was in. Some people get hot by association. I heard more about her and Brad Pitt and I ever heard about her work.
+ - There are certain people that are marked for death. I have my little list of those that treated me unfairly.
+ - Mommy. It’s just the one thing you don’t want to mess up.
+ - I like to maintain a certain sense of fantasy. At home, do I have the full hair and makeup? No. But I might have the nice dress on.
+ - In the end, the truth finds a way to surface even if you don’t want it to.
+ - I wasn’t the most popular girl in class, I had my friends, but I was comfortable with myself. There’s always those most popular girls and I wasn’t one of those.
+ - I like to cook Puerto Rican food. That’s what I grew up on: rice, beans, meat, some Italian-American food. I know my way around the kitchen.
+ - I would never speak about specifics in my own relationships because I think it’s tacky. If you seriously want to know, listen to the music.
+ - When I was in my 20s I wasn’t sure of myself. Now I can really stretch. I don’t have to stay in the box. At this point I can say to myself, So what if I fall, so what? I’m going to get back up.
+ - Some people are naturally thin, and some are heavier. There is a lot of focus on it, and it can be a lot of pressure for people. But honestly, I think as long as someone is healthy, that is most important.
+ - Nobody wants to hear celebrity complain.
+ - I don’t really check out other people’s butts.
+ - I’m very comfortable with being productive. I like doing things, and I like creating things.
+ - J. Lo is also an homage to my fans. That’s what fans call me on the streets, and I like it. So giving the album this title is my way of telling them that this is for them, in appreciation of their support.
+ - My hair and makeup people and stylists have changed over the years, but they all know sometimes I want to do Marilyn, and on another day I want to do Jackie O. Though sometimes I look back and have to say, “Wow! What were we thinking there?”
+ - You can’t take life for granted.
+ - People equate sexy with promiscuous. They think that because I’m shaped this way, I must be scandalous – like running around and bringing men into my hotel room. But it’s just the opposite.
+ - I’ve been married twice and I’ve tried to make it work but I feel I haven’t had a real marriage yet.
+ - I love a good lyricist – always have. The thing that inspired me most was the different performers, like Tina Turner, James Brown, Michael Jackson, Madonna, even Janet Jackson.
+ - I feel like I haven’t started yet. I’m looking forward to the ninth album, the thirtieth movie.
+ - Puffy produced four of the tracks on the album. Those are the four songs that are collaborations between Puffy and me. And he gives me my space to work even when we work together, like with my producer and my vocal coach.
+ - When we graduated from college and law school, we had a mountain of debt.
+ - They’re making me out to be a serial marrying person or something. I’m laughing at that.
+ - People think because I’m shaped this way, I’m scandalous.
+ - I did ballet, jazz and flamenco from when I was five years old. And my professional career started with dancing in musicals.
+ - I think with romantic comedies it’s a lot about tone, because different romantic comedies have different tones.
+ - I’ve played more villains than anything else. And I love playing villains, because I can just be evil and do whatever I want.
+ - The media – they want to rush everything. They want to give their seedy opinions without knowing all the facts.
+ - I think to give something a chance, to really get to know somebody, you want to do it out of the public eye.
+ - I kind of feel like everybody knew anyway. I was on tour with a bubble gut!
+ - I love what I do. I have an insatiable appetite for creating things and wanting to get better at what I do and always growing and never stopping. I don’t know. It’s something I was born with. It’s definitely a drive. It’s a passion, and it’s driven for a love for what I do.
+ - When I found out I was having twins, I mean, I was in denial that I was even pregnant. So when I found out I was having twins, I kind of just laughed and was like, “Of course this would happen.”
+ - I just never really gave myself any credit. And because of that, nobody else did either. You mirror what the world mirrors to you.
+ - I always have to work hard to find a way to disconnect from the thinking until it becomes second nature to me because that’s where you find the best moments. Dancing is like that for me all the time. It makes me feel free.
+ - My own style influences have to do with where I grew up, in the Bronx, and I still like to wear bangles and big hoops!
+ - I know that there is a force in the world and an energy that you can put out, and when you put out love it comes back to you. I think that’s my basic philosophy.
+ - I was into sports and dancing. I ran track. I have a lot of stamina.
+ - But from the time I was very little, it was something I would do all the time, just sing, dance and act. So it wasn’t something that was fake or contrived as I got older.
+ - You have to come in and be that character when you walk into the room. That’s what one of my first acting teachers taught me. You know, don’t go in there being Jennifer and then expect to flip and change, because they’re not going to have that imagination.
+ - I love improv-ing, you know, from very early on when I started acting the school that I went to and everything was very big on ad-libbing and improv-ing and messing things up, so I feel very comfortable doing stuff like that.
+ - Everything I wanted before, I want twice as much now. And that doesn’t mean material things; it means to explore more, to think more. Being an artist doesn’t start because you’re 21, and it doesn’t end because you’re 51. You are who you are until the day you die.
+ - Love scenes are always weird, though. They’re always uncomfortable. It’s all the people around who make it uncomfortable. It’s not usually the actor you’re working with, because they usually feel just as weird as you do!
+ - Obviously, throughout my career, I’ve always felt like certain things come to me at the right time. When I look at the work that I’ve done, it’s always very indicative of where I was in my life at the moment.
+ - I was always a singer and a dancer, and I always wanted to be an actress. For me, it’s all just one thing.
+ - You’ve gotta do things that make you happy.
+ - It’s not that serious I never put that much thought into us It wasn’t that I loved you I was curious.
+ - I felt about life and the way I felt about my children was so deep and profound. It was the first time I’d felt anything like that. I knew as an artist that it was going to make a huge difference in everything that I did.
+ - Throughout my career I’ve always felt like certain things come to me at the right time.
+ - So I sat down with him and portrayed more the side of the character he needed to see. Which is what I do when I go in for an interview for a part I like. As much as you think you’re dealing with creative people, they see you for what your image is out there.
+ - I always knew I wanted to be a performer, and my mother started taking me to dance classes when I was five. My mother is a teacher, my father works at an insurance company. When I said I wanted to be a performer, people went, “Yeah, right.” You don’t do that where I come from.
+ - Even as an actor, when you have a kissing scene it’s still weird.
+ - If anyone can figure out how to balance my celebrity and my dual careers in music and film, it’s me. I don’t feel frightened; I feel challenged.
+ - We as human beings do this thing where we stuff down our feelings until they find a way to manifest themselves. We try to avoid them until there’s no more room and they come bubbling up like a pot of boiling-hot water that overflows. And when it does, it burns.
+ - I have to work, for my soul.
+ - You have to fight for the things you want.
+ - I honestly wear myself out walking around, fixing this and fixing that. Maybe that’s why I like to work so much – so I can just get to that moment where I’m like, “Whoa.” I have to be super tired and knocked out to stop!
+ - I can’t help but be a different person now that I’ve had kids. That really does change your whole perspective on life for the better.
+ - It’s always a struggle. It’s an uphill battle the whole time. But you know what? The rewards are so graet, I wouldn’t trade it for the world.
+ - I do know a lot about Scientology. And I know about the practices. I know all about what the technology is and all that kind of stuff. It’s very helpful.
+ - I’m a singer. I’m a dancer. I’m a performer. I’m an actress. That’s what I’m supposed to be doing. It makes me a better parent, a better person. I think I can just handle more than the average bear, you know?
+ - People used to believe their life – or at least their life as a performer – was over at 28 or some ungodly age! God, when I think of myself back then, I had no idea who I was. I think I’m barely getting that under control now.
+ - For me, fashion is an expression of who I am right in that moment – so what you’re seeing is what I’m influenced by now.
+ - People assume I’m out there having this great life, but money doesn’t erase the pain. When you’re young you barrel through life, making choices without thinking of repercussions. A few years down the line, you wake up in a certain place and wonder how the hell you got there.
+ - I’d be stupid not to take into consideration that there are certain things people will not consider me for because my name is Lopez. And I know I can do any kind of role. I don’t want anybody to say, Oh, she can’t pull this off. So those are barriers that you have to overcome.
+ - I just think that the whole diva thing is a misrepresentation of who I am.
+ - The weirdest thing about me is that I like to walk around naked.
+ - I love a long bath. I love anything creative. I love decorating. I even love just flipping through magazines and vegging out for a while. But I’m also one of those people who loves to work, so I’ll sing, dance, work on my next performance, or write whomever it may be about a new idea.
+ - I’ve always had a huge fear of dying or becoming ill. The thing I’m most afraid of, though, is being alone, which I think a lot of performers fear. It’s why we seek the limelight – so we’re not alone, were adored. We’re loved, so people want to be around us. The fear of being alone drives my life.
+ - Jennifer Lopez has been very much in the news because of her divorce from Marc Anthony, also a top singer, a top player in Latin music, her joining the cast of judges on “American Idol.” But the music has not been at the forefront.
+ - I remember listening to an interview with Beyonce and she talked about how she and her husband, Jay-Z, have always made it a point to have the conversation about them be about their music, not about their business, not about their personal business.
+ - I could serve coffee using my rear as a ledge.
+ - And at the end of the day, I just want my work to speak for itself.
+ - I’m also influenced by all the places I’ve traveled since then: I’ve been to Hollywood and great fashion shows and seen the world. I have a different perspective, and I mix that up.
+ - I like to maintain a certain sense of fantasy in my life.
+ - I went to Catholic school for 12 years and went to church every Sunday. I may not do that anymore but I think it gave me a good basis. I’ve also explored things on my own different philosophies and spiritual teachings and I use what works for me.
+ - I just knew that was what I wanted to do. I was going to perform as a singer; I was going to perform as a dancer, and I was, you know, going to do movies and be an actress. I was going to do it or die trying. That’s what my life was.
+ - The truth is, everything that’s happened was supposed to happen. That doesn’t mean I don’t look back and think, God, I wish I hadn’t had to go through some of those things.
+ - I grew up in the Bronx where you would stay up late with your girlfriends, just being silly in our bedrooms, whatever. And I was always the clown.
+ - When I turned 40, I was like, huh. I accept myself more now. It was much more comforting.
+ - A romantic comedy has to be funny and make you think about life; but the obstacle that has to be overcome is key.
+ - I love working with the singers. I love just finding them.
+ - Doubt is a killer. You just have to know who you are and what you stand for.
+ - I am a lover. And with my kids I am even softer. I realize with my son, I have to sometimes be tough, especially now when he’s pushing boundaries. With my daughter, I can get a little stern with her and she pretty much will listen.
+ - I remember when I was 33 or 34, it was devastating because I realized I wasn’t a kid anymore. The great thing about 40 was that I really felt like I had life experience and knew what I was doing now.
+ - I’m a hopeless romantic and passionate person when it comes to love.
+ - I feel I want to grow as an actress and be better. I want to progress as a singer and songwriter, and produce movies and everything. So there’ll be no time when I feel I’ve done it all.
+ - No matter where I go I know where I came from.
+ - All of a sudden one day I was like, I’m good at this! Oh, man! People are not giving me jobs because they feel sorry for me! I am an actress. I am a singer. I am a performer. That’s what I do! Once I started giving myself a little credit, the whole world opened up.
+ - I think that’s what a partnership is – you take the positives from both people and incorporate them.
+ - Being on camera, you have a responsibility to look good. If you don’t, you’ll hear about it.
+ - Once you have a lot of success, you become a target in many ways.
+ - By nature I am not tough, believe it or not.
+ - For me, love is the never-ending question. It is confusing. It is the answer, but it is also inundated with contradictions and complications.
+ - It’s funny when you get married, you do find other couples to hang out with.
+ - I’m not stupid. I would like to have some businesses that grow so I won’t have to be out there on the road when I’m 44.
+ - I’m very into positive thinking. The minute I feel nervousness or anxiety or fear, I go, “No, no, that’s not a thought that I need to have right now. Everything’s great, everything’s good, you’re going to be fine.”
+ - The bottom line is that musicians love to make music and always will.
+ - When I am wrong, I will learn the lesson and move on to face other challenges. For me, that’s what creating your own life is. Doing your best work while being your best self.
+ - I had a lovely pregnancy. It was a beautiful, magical time for us.
+ - I had such a reputation, and it was sad because I felt like it so didn’t represent who I really was.
+ - In Hollywood, she’s revered, she gets nominated for Oscars, but I’ve never heard anyone in the public or among my friends say, ‘Oh, I love Winona Ryder.’
+ - I always love when everybody else is really bringing their game, because it’s only going to make the movie better; it just makes you work harder and they work harder and everybody is trying to get their little bit in. It’s competitive in a constructive way.
+ - I don’t get anything for free. I pay for all my beauty treatments.
+ - You’ve gotta do things that make you happy. As women, we tend to give away a lot. We take care of a lot of people, and we can’t forget to take care of ourselves.
+ - Just making sure that they both felt equally loved is what was tough about the twins.
+ - And I deal with all that by being like a perfectionist. But that’s okay.
+ - I’ll just get better as I go along because I’m open to getting better. If you have the goods, there’s nothing to be afraid of. If somebody doesn’t have the goods, they’re insecure. I don’t have that problem.
+ - My parents wanted me to be a lawyer. But I don’t think I would have been very happy. I’d be in front of the jury singing.
+
+177 quotes

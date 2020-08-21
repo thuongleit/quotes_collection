@@ -1,0 +1,50 @@
+ - Simplicity is the final achievement.
+ - Put all your soul into it, play the way you feel!
+ - I tell my piano the things I used to tell you.
+ - It is dreadful when something weighs on your mind, not to have a soul to unburden yourself to. You know what I mean. I tell my piano the things I used to tell you.
+ - Even in winter it shall be green in my heart.
+ - Simplicity is the final achievement. After one has played a vast quantity of notes and more notes, it is simplicity that emerges as the crowning reward of art.
+ - I wish I could throw off the thoughts which poison my happiness, and yet I take a kind of pleasure in indulging them.
+ - Simplicity is the highest goal, achievable when you have overcome all difficulties.
+ - Bach is an astronomer, discovering the most marvellous stars. Beethoven challenges the universe. I only try to express the soul and the heart of man.
+ - Time is the best of critics; and patience the best of teachers.
+ - Nothing is more odious than music without hidden meaning.
+ - Oh, how miserable it is to have no one to share your sorrows and joys, and, when your heart is heavy, to have no soul to whom you can pour out your woes.
+ - Play Mozart in memory of me.
+ - Every difficulty slurred over will be a ghost to disturb your repose later on.
+ - A long time ago I decided that my universe will be the soul and heart of man.
+ - Nothing is more beautiful than a guitar, except, possibly two.
+ - The last thing is simplicity. After having gone through all the difficulties, having played an endless number of notes, it is simplicity that matters, with all its charm. It is the final seal on Art. Anyone who strives for this to begin with will be disappointed. You cannot begin at the end.
+ - I could express my feelings more easily if they could be put into the notes of music, but as the very best concert would not cover my affection for you, dear daddy, I must use the simple words of my heart, to lay before you my utmost gratitude and filial affection.
+ - As long as I have health and strength, I will gladly work all my days.
+ - Sometimes I can only groan, and suffer, and pour out my despair at the piano.
+ - Man is never always happy, and very often only a brief period of happiness is granted him in this world; so why escape from this dream which cannot last long?
+ - I feel like a novice, just as I felt before I knew anything of the keyboard. It is far too original, and I shall end up not being able to learn it myself.
+ - I’m a revolutionary, money means nothing to me.
+ - The three most celebrated doctors on the island have been to see me. One sniffed at what I spat, the second tapped where I spat from, and the third sounded me and listened as I spat. The first said I was dead, the second that I was dying and the third that I’m going to die.
+ - Chopin has done for the piano what Schubert has done for the voice.
+ - I am not fitted to give concerts. The audience intimidates me, I feel choked by its breath, paralyzed by its curious glances, struck dumb by all those strange faces.
+ - They want me to give another concert but I have no desire to do so. You cannot imagine what a torture the three days before a public appearance are to me.
+ - Bach is like an astronomer who, with the help of ciphers, finds the most wonderful stars.
+ - Oh, how hard it must be to die anywhere but in ones birthplace.
+ - England is a country of pianos, they are everywhere.
+ - Here, whatever is not boring is not English.
+ - I haven’t heard anything so great for a long time; Beethoven snaps his fingers at the whole world...
+ - Concerts are never real music, you have to give up the idea of hearing in them all the most beautiful things of art.
+ - When one does a thing, it appears good, otherwise one would not write it. Only later comes reflection, and one discards or accepts the thing. Time is the best censor, and patience a most excellent teacher.
+ - Vienna is a handsome, lively city, and pleases me exceedingly.
+ - I don’t know how it is, but the Germans are amazed at me and I am amazed at them for finding anything to be amazed about.
+ - You already know when I’m writing, so don’t be surprised if it’s short and dry, because I’m too hungry to write anything fat.
+ - Hats off, gentlemen – a genius! If the mighty autocrat of the north knew what a dangerous enemy threatened him in Chopin’s works in the simple tunes of his mazurkas, he would forbid this music. Chopin’s works are canons buried in flowers.
+ - After a rest in Edinburgh, where, passing a music-shop, I heard some blind man playing a mazurka of mine...
+ - I really don’t know whether any place contains more pianists than Paris, or whether you can find more asses and virtuosos anywhere.
+ - There are certain times when I feel more inspired, filled with a strong power that forces me to listen to my inner voice, and when I feel more need than ever for a Pleyel piano.
+ - The Official Bulletin declared that the Poles should be as proud of me as the Germans are of Mozart; obvious nonsense.
+ - My manuscripts sleep, while I cannot, for I am covered with poultices.
+ - Here, waltzes are called works! And Strauss and Lanner, who play them for dancing, are called Kapellmeistern. This does not mean that everyone thinks like that; indeed, nearly everyone laughs about it; but only waltzes get printed.
+ - If the newspapers cut me up so much that I shall not venture before the world again, I have resolved to become a house painter; that would be as easy as anything else, and I should, at any rate, still be an artist!
+ - All the same it is being said everywhere that I played too softly, or rather, too delicately for people used to the piano-pounding of the artists here.
+ - If I were still stupider than I am, I should think myself at the apex of my career; yet I know how much I still lack, to reach perfection; I see it the more clearly now that I live only among first-rank artists and know what each one of them lacks.
+ - England is so surrounded by the boredom of conventionalities, that it is all one to them whether music is good or bad, since they have to hear it from morning till night. For here they have flower-shows with music, dinners with music, sales with music...
+
+48 quotes

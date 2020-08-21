@@ -1,0 +1,32 @@
+ - The most important attribute for success in value investing is patience, patience, and more patience. The majority of investors do not possess this characteristic.
+ - There is always something to do. You just need to look harder, be creative and a little flexible.
+ - Just as many smart people fail in the investment business as stupid ones. Intellectually active people are particularly attracted to elegant concepts, which can have the effect of distracting them from the simpler, more fundamental truths.
+ - The share price must be less than book value. Preferably it will be less than net working capital less long term debt.
+ - Protect the downside. Worry about the margin of safety.
+ - The company must be paying dividends. Preferably the dividend will have been increasing and have been paid for some time.
+ - You find bargains among the unpopular things, the things that everybody hates. The key is that you must have patience.
+ - Curiosity is the engine of civilisation.
+ - In every analysis you need to isolate what the real assets are and you must not forget to examine the franchise to do business, to review the character and competence of the management and to estimate the outcome if the whole business had to be turned into cash.
+ - When a stock doubles, sell half – then what you have is a free position. Then it becomes more of an art form. When you sell depends on individual circumstances.
+ - We always look at the margin of safety in the balance sheet and then worry about the business.
+ - The price earning multiple must be less than ten or the inverse of the long term corporate bond rate, whichever is the less.
+ - We do liquidation analysis and liquidation analysis only.
+ - There will be losing years; but if the art of making money is not to lose it, then there should not be substantial losses.
+ - I try to keep in mind Oscar Wilde’s comment that “saints always have a past and sinners always have a future,” so no investment should be ruled out simply on the basis of past history. We focus on liquidation analysis and liquidation analysis alone.
+ - Why will someone sell you a dollar for 50 cents? Because in the short run, people are irrational on both the optimistic and pessimistic side.
+ - To put money into anything, anywhere, provided that the downside is measurable and acceptable and the chances of a good profit appear to be better than 50%. I will not take gambles, but it is part of my job description to be ready to take very carefully calculated risks.
+ - There is almost always a major blip for whatever reason and we have learnt to expect it and not to panic.
+ - All we try to do is buy a dollar for 40 cents.
+ - If it is cheap enough, we don’t care what it is.
+ - The price must be less than one half of the former high and preferably at or near its all time low.
+ - I suspect that my thinking is an eclectic mix, not pure net-net because I couldn’t do it anyway so you have to have a new something to hang your hat on. But the framework stays the same.
+ - Try to pick a fund manager who has a well-defined strategy, has been through these things before, and go invest and stay with him.
+ - What differentiates us from other money managers with a similar style is that we’re comfortable with new lows.
+ - The company must be profitable. Preferably it will have increased its earnings for the past five years and there will have been no deficits over that period.
+ - I bought stuff at 3.5 cents once and I thought it can’t go down to zero. It can.
+ - The difference between the price we pay for a stock and its liquidation value gives us a margin of safety. This kind of investing is one of the most effective ways of achieving good long term results.
+ - I’m lucky to have the kind of life where the differentiation between work and play is absolutely zilch. I have no idea whether I’m working or whether I’m playing.
+ - Sooner or later, the market will do what it has to do to prove the majority wrong.
+ - They really can’t afford to be contrarians. A major investment house can’t afford to do research for five customers who won’t generate a lot of commissions.
+
+30 quotes

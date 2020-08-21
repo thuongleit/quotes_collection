@@ -1,0 +1,64 @@
+ - Perhaps we all give the best of our hearts uncritically – to those who hardly think about us in return.
+ - Education is experience, and the essence of experience is self-reliance.
+ - If people reach perfection they vanish, you know.
+ - The most difficult thing in the world is to know how to do a thing and to watch someone else do it wrong without comment.
+ - We cannot build the future by avenging the past.
+ - The Destiny of Man is to unite, not to divide. If you keep on dividing you end up as a collection of monkeys throwing nuts at each other out of separate trees.
+ - Might does not make right! Right makes right!
+ - The bravest people are the ones who don’t mind looking like cowards.
+ - People commit suicide through weakness, not through strength.
+ - Love is a trick played on us by the forces of evolution. Pleasure is the bait laid down by the same. There is only power. Power is of the individual mind but the mind’s power is not enough. Power of the body decides everything in the end and only might is right.
+ - Learn why the world wags and what wags it. That is the only thing which the mind can never exhaust, never alienate, never be tortured by, never fear or distrust, and never dream of regretting. Learning is the only thing for you. Look what a lot of things there are to learn.
+ - Those who lived by the sword were forced to die by it.
+ - The fisherman fishes as the urchin eats cream buns, from lust.
+ - The destiny of man is an individualistic destiny.
+ - Life is too bitter already, without territories and wars and noble feuds.
+ - Mordred and Agravaine thought Arthur hypocritical – as all decent men must be, if you assume that decency can’t exist.
+ - It is good to put your life in other people’s hands.
+ - Aviators live by hours, not by days.
+ - Wrongs have to be redressed by reason, not by force.
+ - All forms of collectivism are mistaken, according to the human skull.
+ - War is like a fire. One man may start it, but it will spread all over. It is not about one thing in particular.
+ - If there is one thing I can’t stand, it is stupidity. I always say that stupidity is the Sin against the Holy Ghost.
+ - Perhaps he does not want to be friends with you until he knows what you are like. With owls, it is never easy-come-easy-go.
+ - When shall I be dead and rid Of all the wrong my father did? How long, how long ’till spade and hearse Put to sleep my mother’s curse?
+ - The word “feral” has a kind of magic potency which allied itself to two other words, “ferocious” and “free.” To revert to a feral state!
+ - It is only people who are lacking, or bad, or inferior, who have to be good at things. You have always been full and perfect, so you had nothing to make up for.
+ - Cavall came simply and gave his heart and soul.
+ - Only fools want to be great.
+ - Learning is the only thing for you. Look what a lot of things there are to learn.
+ - I would recommend a solo flight to all prospective suicides. It tends to make clear the issue of whether one enjoys being alive or not.
+ - It is the bad people who need to have principles to restrain them.
+ - Jenny, all my life I have wanted to do miracles. I have wanted to be holy. I suppose it was ambition or pride or some other unworthy thing. It was not enough for me to conquer the world – I wanted to conquer heaven too.
+ - A lot of brainless unicorns swaggering about and calling themselves educated just because they can push each other off a horse with a bit of a stick! It makes me tired.
+ - The miracle was that he had been allowed to do a miracle. And ever, says Mallory, Sir Lancelot wept, as he had been a child that had been beaten.
+ - It seems, in tragedy, that innocence is not enough.
+ - She hardly ever thought of him. He had worn a place for himself in some corner of her heart, as a sea shell, always boring against the rock, might do. The making of the place had been her pain. But now the shell was safely in the rock. It was lodged, and ground no longer.
+ - Kay was older and bigger than the Wart, so that he was bound to win in the end, but he was more nervous and imaginative. He could imagine the effect of each blow that was aimed at him, and this weakened his defense. Wart was only an infuriated hurricane.
+ - He was neither clever nor sensitive, but he was loyal – stubbornly sometimes, and even annoyingly and stupidly so in later life.
+ - They made me see that the world was beautiful if you were beautiful, and that you couldn’t get unless you gave. And you had to give without wanting to get.
+ - But they woke him with words, their cruel bright weapons.
+ - There were thousands of brown books in leather bindings, some chained to the book-shelves and others propped against each other as if they had had too much to drink and did not really trust themselves. These gave out a smell of must and solid brownness which was most secure.
+ - If it takes a million years for a fish to become a reptile, has Man, in our few hundred, altered out of recognition?
+ - You think education is something to be done when all else fails?
+ - Now, in their love, which was stronger, there were the seeds of hatred and fear and confusion growing at the same time: for love can exist with hatred, each preying on the other, and this is what gives it its greatest fury.
+ - It is a pity that there are no big creatures to prey on humanity. If there were enough dragons and rocs, perhaps mankind would turn its might against them. Unfortunately man is preyed upon by microbes, which are too small to be appreciated.
+ - It has to be admitted that starving nations never seem to be quite so starving that they cannot afford to have far more expensive armaments than anybody else.
+ - Middle-aged people can balance between believing in God and breaking all the commandments without difficulty.
+ - Were they, for some purpose almost too cunning for belief, only disguised as themselves?
+ - Kings can only use their best tools.
+ - The fate of this man or that man was less than a drop, although it was a sparkling one, in the great blue motion of the sunlit sea.
+ - Dogs, like very small children, are quite mad.
+ - The Victorians had not been anxious to go away for the weekend. The Edwardians, on the contrary, were nomadic.
+ - I will tell you something else, King, which may be a surprise for you. It will not happen for hundreds of years, but both of us are to come back.
+ - Grown-ups have developed an unpleasant habit of comforting themselves for their degradation by pretending that children are childish.
+ - It was called a tribute before a battle and a ransom afterwards.
+ - You could not give up a human heart as you could give up drinking. The drink was yours, and you could give it up: but your lover’s soul was not your own: it was not at your disposal; you had a duty towards it.
+ - Unfortunately we have tried to establish Right by Might, and you just can’t do that.
+ - Is there anything more terrible than perpetual motion, than doing and doing and doing, without a reason, without a consciousness, without a change, without an end?
+ - The race will find that capitalists and communists modify themselves so much during the ages that they end by being indistinguishable as democrats...
+ - Believe me, the so-called primitive races who worshipped animals as gods were not so daft as people choose to pretend. At least they were humble. Why should not God have come to the earth as an earth-worm? There are a great many more worms than men, and they do a great deal more good.
+ - Yes, that is the equality of man. Slaughter anybody who is better than you are, and then we shall be equal soon enough. All equally dead.
+ - It is so fatally easy to make young children believe that they are horrible.
+
+62 quotes

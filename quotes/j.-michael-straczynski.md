@@ -1,0 +1,110 @@
+ - Understanding is a three-edged sword. Your side, my side, and the truth.
+ - The past tempts us, the present confuses us, and the future frightens us. And our lives slip away, moment by moment, lost in that vast terrible in-between. But there is still time to seize that one last fragile moment.
+ - The hardest thing in the world is to stand alone. Your friends will not understand, will resent you, will want you to just stop it and let life go back to where it was. But you have to follow the quiet turning of your own considered conscience. It’s a hard road.
+ - People spend too much time finding other people to blame, too much energy finding excuses for not being what they are capable of being, and not enough energy putting themselves on the line, growing out of the past, and getting on with their lives.
+ - When in doubt, blow something up.
+ - Take care, don’t fight, and remember: if you do not choose to lead, you will forever be led by others. Find what scares you, and do it. And you can make a difference, if you choose to do so.
+ - The future is all around us, waiting, in moments of transition, to be born in moments of revelation. No one knows the shape of that future or where it will take us. We know only that it is always born in pain.
+ - The more important the emotion is, the fewer words required to express it: Will you go out with me? I think I like you. I care for you. I love you. Marry me. Goodbye.
+ - Half-way through any big project, everyone forgets what they’re doing.
+ - Writers write for one reason: to create an emotion in the reader, to reach across and make them feel something. You want a reaction. Yeah, it’s nicer when the reaction is to throw flowers than it is to throw brickbats, but you have to accept both equally.
+ - Follow your passion. The rest will attend to itself. If I can do it, anybody can do it. It’s possible. And it’s your turn. So go for it. It’s never too late to become what you always wanted to be in the first place.
+ - All love is unrequited. All of it.
+ - You don’t buy into huge car chases or sensates or interstellar warfare, but you can buy into a loving relationship or a father-son relationship, and you can buy into the small humor. If you want to make your fiction universal, go small. That’s the best way to do it.
+ - There’s a rule of writing: if everything is funny, nothing is funny; if everything is sad, nothing is sad. You want that contrast.
+ - Never follow somebody else’s path; it doesn’t work the same way twice for anyone.
+ - The sky was full of stars, and every star an exploding ship.
+ - Coming from TV and film, rule number one is that you always service the main character first and foremost. If that’s not working, you’ve got nothing.
+ - You can’t always relate to the big action things, but you can relate to small moments.
+ - If your going to have delusions, you might as well go for the really satisfying ones.
+ - I always knew that I was going to be a writer. There was no question in my mind about that.
+ - Greatness is never appreciated in youth, called pride in midlife, dismissed in old age, and reconsidered in death. Because we cannot tolerate greatness in our midst, we do all we can do destroy it.
+ - We walk in dark places no others will enter. We stand on the bridge and no one may pass. We live for the One. We die for the One. – the Ranger oath.
+ - You know, I used to think it was awful that life was so unfair. Then I thought, wouldn’t it be much worse if life were fair, and all the terrible things that happen to us come because we actually deserve them? So, now I take great comfort in the general hostility and unfairness of the universe.
+ - As an atheist, I believe that all life is unspeakably precious, because it’s only here for a brief moment, a flare against the dark, and then it’s gone forever.
+ - We are not powerless. We have tremendous potential for good or ill. How we choose to use that power is up to us; but first we must choose to use it. We’re told every day, You can’t change the world. But the world is changing every day. Only question is who’s doing it? You or somebody else?
+ - Thank you, but I’m afraid I can’t accept your compliment. You see, I’m an atheist, so if I’m also God, that would mean that I don’t believe in myself, and at this point in my life, I don’t need the added insecurity.
+ - When I saw Wonder Woman being constantly put in positions where she’d get tied up with her own rope, or held hostage, even as a kid, my reaction was ‘C’mon, she’s too smart for that.’
+ - I am big believer in the notion that as a species we are better together than we are apart, that the common core of our shared humanity is stronger than that which seeks to marginalize us and factualize us and turn us against each other.
+ - I’m a big believer in the idea that while we are the sum of our tears, we are also the product of our choices in how we deal with those tears.
+ - When you walk into a movie theater, you don’t walk out half-way through, and then come back the next day to watch the rest of it.
+ - No dictator, no invader, can hold an imprisoned population by force of arms forever.
+ - If I feel that I’m not able to do my best work – whether that’s my own fault or as a result of an editorial situation – then I need to stop doing it. I would rather not do something than do it badly or ineffectively. It’s the only way I can live with myself and do right by the fans in the long haul.
+ - As kids, we spontaneously sing and dance and tell stories, and along the way, someone comes and says, ‘No. You shouldn’t be doing that.’ And we slowly begin to unlearn our passions. I think you have to hold on to those things.
+ - Stage-persona notwithstanding, I’m extremely shy and quiet. Almost painfully shy. People misinterpret that as being above it all or not interested.
+ - Stun settings are for people who can’t commit.
+ - I’m delirious with joy. It proves that if you confront the universe with good intentions in your heart, it will reflect that and reward your intent. Usually. It just doesn’t always do it in the way you expect.
+ - The quality of our thoughts is bordered on all sides by our facility with language.
+ - I’m all for teaching creation and allowing prayers in schools, as soon as scholars begin teaching Darwinism and geometry in church.
+ - In every other science fiction series, humans are at the top of the food chain. In the ‘Babylon 5’ universe, they’re in the bottom third.
+ - I have friends in different parts of the world, and they’ll all go online at the same time and all pull up a movie and hit play, at the same moment, and then they’ll comment to each other about it. They’re sharing an experience, even though they’re on different parts of the planet.
+ - It was the dawn of the third age of mankind...
+ - They told us not to wish in the first place, not to aspire, not to try; to be quiet, to play nice, to shoot low and aspire not at all. They are always wrong. Follow your dreams. Make your wishes. Create the future. And above all, believe in yourself.
+ - Everyone in the entertainment business gets crappy contracts when we start out, and into the middle of our careers. It’s the nature of the business.
+ - People in a cluster are bound to each other automatically, and can see each other automatically.
+ - Find what scares you and do it.
+ - Superhero stories are kind of in my DNA from childhood on, so I think I’m genetically drawn to playing in the genre when the opportunity presents itself.
+ - We are in a tech-heavy society, plunging headlong into an unknown future. Science fiction is what allows you to stand back and analyze the impact of that and put it in context of how it affects people.
+ - I don’t start writing a script until I can see it all in my head, then it’s a matter of getting it down in white heat.
+ - I’ve changed my mind. I’ve decided that at the end I want to be cremated and my ashes scattered over someone I don’t like.
+ - My house looks like it was decorated by a 14-year old with a platinum American Express card.
+ - When it comes down to it, the reason that science fiction endures is that it is, at its core, an optimistic genre. What it says at the end of the day is that there is a tomorrow, we do go on, we don’t extinguish ourselves and leave the planet to the cockroaches.
+ - Science fiction shows are traditionally about the gimmick or the gadget and tend to be emotionally cool to the touch.
+ - The universe considers me its personal cat toy.
+ - I’ve always been kind of a mutt creatively. I started off in journalism, and I’ve actually done more police and procedural shows than I’ve ever done science fiction shows. I was on ‘Murder She Wrote,’ I was on ‘Walker, Texas Ranger,’ I was on ‘Jake and the Fat Man.’
+ - I sometimes find reality far more fantastical and unlikely than what I could just make up.
+ - On a purely personal level, it’s very strange, because as a kid, Superman informed my personality. Now I’ve been given the job of forming Superman’s personality and, in some ways, drawing on my own background.
+ - The problem with writing a monthly book is that you’re going through your work like a man running for a bus, red-faced and out of breath. There isn’t time for reflection or critical self-examination.
+ - On the Internet, inside information is currency, and there will always be counterfeiters among us.
+ - The American Way is an amalgam of our compassion, our strengths, our failings and our attempts to build a better world, a more perfect union.
+ - I’ve written for every medium except poetry, at which I suck.
+ - I am a control freak. I will admit that freely.
+ - It’s really important to me to keep growing as a writer, to look for new challenges and be harshly critical of my own work in order to learn and tell better stories.
+ - I’m all for crossovers if they benefit the individual books.
+ - Did Alan Moore get screwed on his contract? Of course. Lots of people get screwed, but we still have Spider-Man and lots of other heroes.
+ - The whole point of having great characters is the opportunity to explore them more deeply with time, re-interpreting them for each new age.
+ - You can only have one voice on set, and that has to be the director.
+ - I think for any writer, creating and controlling your own property is the ultimate dream.
+ - Whenever you can bring your chops in as a reporter to unearth a cool story, that’s always a good thing.
+ - Whenever you write for someone else, you’re always aware – sometimes overtly, other times at an almost cellular, subliminal level – of the rules about what you can and can’t do.
+ - I think that we are already making steps toward mapping out the brain so we can identify the chemical patterns that create and store memory.
+ - I am a huge zombie fan. I have probably seen the George Romero movies 100 times each, without exaggeration.
+ - I’ve made a decision and now I must face the consequences.
+ - I don’t need to write comics for a living. I have movies and TV for that. I write comics for one reason and one reason only: I love comics. I love the form, the structure, the storytelling process, I love everything about it.
+ - Every time I got ‘Amazing Spider-Man’ or ‘Fantastic Four’ or another book firmly on the rails, we got pulled into some big event book or crossover and it cost momentum and messed badly with the pacing and structure of the book.
+ - I grew up on comics and cartoons. So, as an adult, I like comics and cartoons.
+ - I’ve always been a science fiction fan since I had understood the conception of what a story was.
+ - I wake up every morning knowing how ridiculously lucky I am to be able to do what I love for a living, and that sense of wonder never, ever wears off.
+ - I want to have time. When you’re doing a monthly book, you’re like a man racing after a bus. You’re breathless and red-faced. I want to build in quality control.
+ - All you can do is focus on telling the best story you can with compelling characters. If you do it right, it will endure. If you do it wrong, it won’t.
+ - Budget grows out of the story. If you’re writing a story with people caught in an elevator for most of the film, you’re pretty sure it won’t be a $200 million movie.
+ - On a certain level, I don’t think there is an answer to what the American way is, because it is constantly being re-defined. It’s also been exploited and capitalized upon and politicized by one side or the other to the point that a certain degree of cynicism has attached itself to that term.
+ - When a book of mine comes out, I instantly go hunting the net, not for praise, but for criticism, because that’s how you learn, from people who don’t have to be polite to you.
+ - On most TV shows, you work on a set and do some location.
+ - I’ve worked on high visibility shows that weren’t always the best, and low visibility shows that I love but that didn’t have the PR behind them.
+ - I was very clear that I wanted to keep ‘Thor’ out of the rest of the Marvel universe for no less than the first six issues. And the success of the book, I think, speaks well to that decision.
+ - To understand this whole area, you have to stop thinking like a viewer and start thinking like a network programming exec.
+ - The only thing that I discovered very early on is that, even though we might change schools and cities and towns and states, the books in the library were the same. They had the same covers. They had the same characters. I could go and visit those people in the library as if I knew them.
+ - A lot of the futuristic space stuff seemed to me to be a very cool form of science-fiction, so that was my first real baptism in the genre.
+ - We know that if memory is destroyed in one part of the brain, it can be sometimes re-created on a different part of the brain. And once we can unravel that amino chain of chemicals that is responsible for memory, I see no reason why we can’t unlock it and, essentially, wipe out what’s there.
+ - It is not for the gods to decide whether or not Man exists – it is for Man to decide whether or not the gods exist.
+ - My philosophy: find what it is you want to say, walk in the room, say it, and get the hell out.
+ - Like everyone else, I am going to die. But the words – the words live on for as long as there are readers to see them, audiences to hear them. It is immortality by proxy. It is not really a bad deal, all things considered.
+ - Faith and reason are the shoes on your feet. You can travel further with both than you can with just one.
+ - There’s a lot of comics writers out there whose work I appreciate and who are nice guys. I really want to work with guys I really respect and enjoy.
+ - I keep waiting for a paradigm shift to happen that will let network and studio execs see that sci-fi is the same as any other genre in terms of how you approach it – logically, character-based, with challenging ideas and forward thinking – but I worry that it might never happen in my lifetime.
+ - There are people in life, who show you how to live. There are people in life, who show you how to die.
+ - A movie is a movie and a book is a book, and they have different rules.
+ - A changeling is one child substituted for another. I couldn’t find anything more apt. We had to kind of fight that supernatural element in the publicity, and I offered to try and find another title, but Clint liked it, and it stayed.
+ - I like to consider my mind an open door. It’s just not a revolving door.
+ - When you’re writing a story in bits and pieces, month in and month out, there really isn’t time or space for reflection, no room to learn what those scripts had to teach you.
+ - A lot of television tends to assume that audiences don’t have the attention span or the IQ to follow a lot of stuff.
+ - I like writing. It’s partly control freak, and partly I really like what I do for a living. I have the luckiest job in the world. I can get up every day and do what I love for a living.
+ - Writing is the process of asking the next logical question.
+ - Wouldn’t it be much worse if life really were fair and all the terrible things that happen to us happen because we really deserve them?
+ - Again, one of the problems I have with television, as I mentioned before, is it’s trivial in many ways, and I think that a lot of folks out there are looking for new metaphors and new ways of thinking about things.
+ - To have someone like Clint Eastwood come along and shoot your first draft as written is just any screenwriter’s dream. And Clint is very straightforward. If it’s good enough to get his attention, it’s good enough to produce.
+ - If a person with a bullet in Dallas can change the world, imagine a person with an idea could do.
+ - The whole point of Superman, as originally created, was to be the ally of those who had no other allies. It put that magnitude of power, the most powerful guy in the world, in the service of those who had no hope, no chance.
+
+108 quotes

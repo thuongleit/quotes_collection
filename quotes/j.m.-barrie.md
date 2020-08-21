@@ -1,0 +1,58 @@
+ - Be kinder than necessary because everyone you meet is fighting some kind of battle.
+ - To die would be an awfully big adventure.
+ - God gave us memory so that we might have roses in December.
+ - We are all failures – at least the best of us are.
+ - Dreams do come true, if only we wish hard enough. You can have anything in life if you will sacrifice everything else for it.
+ - The moment you doubt whether you can fly, you cease for ever to be able to do it.
+ - Shall we make a new rule of life from tonight: always try to be a little kinder than is necessary?
+ - Never say goodbye because goodbye means going away and going away means forgetting.
+ - So come with me, where dreams are born, and time is never planned. Just think of happy things, and your heart will fly on wings, forever, in Never Never Land!
+ - It is not in doing what you like, but in liking what you do that is the secret of happiness.
+ - All the world is made of faith, and trust, and pixie dust.
+ - Those who bring sunshine to the lives of others cannot keep it from themselves.
+ - If you cannot teach me to fly, teach me to sing.
+ - The life of every man is a diary in which he means to write one story, and writes another; and his humblest hour is when he compares the volume as it is with what he vowed to make it.
+ - All children, except one, grow up.
+ - I do believe in fairies! I do! I do!
+ - If growing up means it would be beneath my dignity to climb a tree, I’ll never grow up, never grow up, never grow up! Not me!
+ - Forget them, Wendy. Forget them all. Come with me where you’ll never, never have to worry about grown up things again. Never is an awfully long time.
+ - All of this has happened before, and it will all happen again.
+ - If you shut your eyes and are a lucky one, you may see at times a shapeless pool of lovely pale colours suspended in the darkness; then if you squeeze your eyes tighter, the pool begins to take shape, and the colours become so vivid that with another squeeze they must go on fire.
+ - One girl is worth more use than 20 boys.
+ - The reason birds can fly and we can’t is simply because they have perfect faith, for to have faith is to have wings.
+ - Let no one who loves be called altogether unhappy. Even love unreturned has its rainbow.
+ - Young boys should never be sent to bed. They always wake up a day older.
+ - I suppose it’s like the ticking crocodile, isn’t it? Time is chasing after all of us.
+ - Nothing is really work unless you would rather be doing something else.
+ - Stars are beautiful, but they may not take part in anything, they must just look on forever.
+ - I taught you to fight and to fly. What more could there be?
+ - I’m youth, I’m joy, I’m a little bird that has broken out of the egg.
+ - Boy, why are you crying?
+ - All you need is trust and a little bit of pixie dust!
+ - When a new baby laughs for the first time a new fairy is born, and as there are always new babies there are always new fairies.
+ - Wendy, Wendy, when you are sleeping in your silly bed you might be flying about with me saying funny things to the stars.
+ - Second star to the right and straight on ’til morning.
+ - Fairies have to be one thing or the other, because being so small they unfortunately have room for one feeling only at a time.
+ - Wendy: Sir, you are both ungallant and deficient! Peter: How am I deficient? Wendy: You’re just a boy.
+ - I don’t want to go to school and learn solemn things.
+ - When the first baby laughed for the first time, its laughter broke into a thousand pieces, and they all went skipping about, and that was the beginning of fairies – Peter Pan.
+ - You must have been warned against letting the golden hours slip by; but some of them are golden only because we let them slip by.
+ - He was a poet; and they are never exactly grown-up.
+ - You won’t forget me, Peter, will you, before spring-cleaning time comes? Of course Peter promised, and then he flew away. He took Mrs. Darling’s kiss with him. The kiss that had been for no one else Peter took quite easily. Funny. But she seemd satisfied.
+ - Years rolled on again, and Wendy had a daughter. This ought not to be written in ink but in a golden splash.
+ - Fairies don’t live long, but they are so little that a short time seems a good while to them.
+ - After you have been unfair to him he will love you again, but he will never afterwards be quite the same boy. No one ever gets over the first unfairness; no one except Peter.
+ - You need not be sorry for her. She was one of the kind that likes to grow up. In the end she grew up of her own free will a day quicker than the other girls.
+ - Feeling that Peter was on his way back, the Neverland had again woke into life. We ought to use the pluperfect and say wakened, but woke is better and was always used by Peter.
+ - Second to the right, and straight on till morning.? That, Peter had told Wendy, was the way to the Neverland; but even birds, carrying maps and consulting them at windy corners, could not have sighted it with these instructions. Peter, you see, just said anything that came into his head.
+ - There could not have been a lovelier sight; but there was none to see it except a little boy who was staring in at the window. He had ecstasies innumerable that other children can never know; but he was looking through the window at the one joy from which he must be for ever barred.
+ - On these magic shores children at play are for ever beaching their coracles. We too have been there; we can still hear the sound of the surf, though we shall land no more.
+ - Nobody really wants us. So let us watch and say jaggy things, in the hope that some of them will hurt.
+ - There are, I dare say, many lovers who would never have been drawn to each other had they met for the first time, as, say, they met the second time.
+ - It is frightfully difficult to know much about the fairies, and almost the only thing for certain is that there are fairies wherever there are children.
+ - Take care, lest an adventure is now offered you, which, if accepted, will plunge you in deepest woe.
+ - In time they could not even fly after their hats. Want of practice, they called it; but what it really meant was that they no longer believed.
+ - They took it for granted that if they went he would go also, but really they scarcely cared. Thus children are ever so ready, when novelty knocks, to desert their dearest ones.
+ - The best place a person can die, is where they die for others.
+
+56 quotes

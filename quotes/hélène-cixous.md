@@ -1,0 +1,24 @@
+ - You only have to look at the Medusa straight on to see her. And she’s not deadly. She’s beautiful and she’s laughing.
+ - Thinking is trying to think the unthinkable: thinking the thinkable is not worth the effort.
+ - Me too, I make do, I anoint what cannot be fixed.
+ - Writing is the delicate, difficult, and dangerous means of succeeding in avowing the unavowable.
+ - When I write, it’s everything that we don’t know we can be that is written out of me, without exclusions, without stipulation, and everything we will be calls us to the unflagging, intoxicating, unappeasable search for love. In one another we will never be lacking.
+ - Censor the body and you censor breath and speech at the same time. Write yourself. Your body must be heard.
+ - We must kill the false woman who is preventing the live one from breathing.
+ - Writing is the passageway, the entrance, the exit, the dwelling place of the other in me.
+ - Everything ends with flowers.
+ - It is said that life and death are under the power of language.
+ - Only when you are lost can love find itself in you without losing its way.
+ - Decisive moment: the one when you will be really alone. And it is perhaps this that makes her hesitate: not the void, but the vastness of the solitude. It’s as well if you are frightened of solitude. It’s a sign that you have come to the moment of your birth.
+ - Perhaps what I do not manage to operate rapidly enough is the passage between the outside and the inside.
+ - Meditation needs no results. Meditation can have itself as an end, I meditate without words and on nothingness. What tangles my life is writing.
+ - There is no greater love than the love the wolf feels for the lamb-it-doesn’t-eat.
+ - Other-Love is writing’s first name.
+ - We must learn to speak the language women speak when there is no one there to correct us.
+ - I do believe in poetry. I believe that there are creatures endowed with the power to put things together and bring them back to life.
+ - I am sick of death and worst of all this sickness feeds on itself, the more afraid I am the more I am afraid the more I flee the more I am afraid the more I am haunted.
+ - I am not innocent. Innocence is a science of the sublime. And I am only at the very beginning of the apprenticeship.
+ - Love is when you suddenly wake up as a cannibal, and not just any old cannibal, or else wake up destined for devourment.
+ - If my desire is possible, it means the system is already letting something else through.
+
+22 quotes

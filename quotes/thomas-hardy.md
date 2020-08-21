@@ -1,0 +1,124 @@
+ - And yet to every bad there is a worse.
+ - Time changes everything except something within us which is always surprised by change.
+ - Let not your heart be troubled, neither let it be afraid.
+ - Why didn’t you tell me there was danger? Why didn’t you warn me? Ladies know what to guard against, because they read novels that tell them of these tricks; but I never had the chance of discovering in that way; and you did not help me!
+ - A strong woman who recklessly throws away her strength, she is worse than a weak woman who has never had any strength to throw away.
+ - A lover without indiscretion is no lover at all.
+ - That man’s silence is wonderful to listen to.
+ - I wish I had never been born – there or anywhere else.
+ - I agree to the conditions, Angel; because you know best what my punishment ought to be; only – only – don’t make it more than I can bear!
+ - It is difficult for a woman to define her feelings in language which is chiefly made by men to express theirs.
+ - Happiness is but a mere episode in the general drama of pain.
+ - I shall do one thing in this life-one thing certain-this is, love you, and long of you, and keep wanting you till I die.
+ - If an offense come out of the truth, better is it that the offense come than that the truth be concealed.
+ - And at home by the fire, whenever you look up there I shall be – and whenever I look up, there will be you. -Gabriel Oak.
+ - War makes good history but peace is poor reading.
+ - Where we are would be Paradise to me, if you would only make it so.
+ - I may do some good before I am dead – be a sort of success as a frightful example of what not to do; and so illustrate a moral story.
+ - It was the touch of the imperfect upon the would-be perfect that gave the sweetness, because it was that which gave the humanity.
+ - The first cause worked automatically like a somnambulist, and not reflectively like a sage.
+ - He knelt and bent lower, till her breath warmed his face, and in a moment his cheek was in contact with hers. She was sleeping soundly, and upon her eyelashes there lingered tears...
+ - Measurement of life should be proportioned rather to the intensity of the experience than to its actual length.
+ - Beauty lay not in the thing, but in what the thing symbolized.
+ - To be loved to madness – such was her great desire. Love was to her the one cordial which could drive away the eating loneliness of her days. And she seemed to long for the abstraction called passionate love more than for any particular lover.
+ - There are accents in the eye which are not on the tongue, and more tales come from pale lips than can enter an ear. It is both the grandeur and the pain of the remoter moods that they avoid the pathway of sound.
+ - Bless thy simplicity, Tess.
+ - Silence has sometimes a remarkable power of showing itself as the disembodied soul of feeling wandering without its carcase, and it is then more impressive than speech.
+ - If a path to the better there be, it begins with a full look at the worst.
+ - You are Joseph the dreamer of dreams, dear Jude. And a tragic Don Quixote. And sometimes you are St. Stephen, who, while they were stoning him, could see Heaven opened. Oh, my poor friend and comrade, you’ll suffer yet!
+ - The main object of religion is not to get a man into heaven, but to get heaven into him.
+ - You have never loved me as I love you – never – never! Yours is not a passionate heart – your heart does not burn in a flame! You are, upon the whole, a sort of fay, or sprite – not a woman!
+ - Love is a possible strength in an actual weakness.
+ - Tis because we be on a blighted star, and not a sound one, isn’t it Tess?
+ - Aspect are within us, and who seems most kingly is king.
+ - Black chaos comes, and the fettered gods of the earth say, Let there be light.
+ - But his dreams were as gigantic as his surroundings were small.
+ - Some folk want their luck buttered.
+ - Do you know that I have undergone three quarters of this labour entirely for the sake of the fourth quarter?
+ - Well, these sad and hopeless obstacles are welcome in one sense, for they enable us to look with indifference upon the cruel satires that Fate loves to indulge in.
+ - You overrate my capacity of love. I don’t posess half the warmth of nature you believe me to have. An unprotected childhood in a cold world has beaten gentleness out of me.
+ - A blaze of love and extinction, was better than a lantern glimmer of the same which should last long years.
+ - The beauty or ugliness of a character lay not only in its achievements, but in its aims and impulses; its true history lay, not among things done, but among things willed.
+ - A novel is an impression, not an argument; and there the matter must rest.
+ - It appears that ordinary men take wives because possession is not possible without marriage, and that ordinary women accept husbands because marriage is not possible without possession.
+ - But nothing is more insidious than the evolution of wishes from mere fancies, and of wants from mere wishes.
+ - Done because we are too many.
+ - Women are so strange in their influence that they tempt you to misplaced kindness.
+ - There’s a friendly tie of some sort between music and eating.
+ - Give the enemy not only a road for flight, but also a means of defending it.
+ - Did it never strike your mind that what every woman says, some women may feel?
+ - This hobble of being alive is rather serious, don’t you think so?
+ - Let me enjoy the earth no less because the all-enacting light that fashioned forth its loveliness had other aims than my delight.
+ - He wished she knew his impressions, but he would as soon as thought of carrying an odour in a net as of attempting to convey the intangibles of his feeling in the coarse meshes of language. So he remained silent.
+ - So each had a private little sun for her soul to bask in; some dream, some affection, some hobby, or at least some remote and distant hope...
+ - You ride well, but you don’t kiss nicely at all.
+ - But no one came. Because no one ever does.
+ - All romances end at marriage.
+ - When women are secret they are secret indeed; and more often then not they only begin to be secret with the advent of a second lover.
+ - Women accept their destiny more readily than men.
+ - If Galileo had said in verse that the world moved, the inquisition might have let him alone.
+ - If we be doomed to marry, we marry; if we be doomed to remain single we do.
+ - Let truth be told – women do as a rule live through such humiliations, and regain their spirits, and again look about them with an interested eye. While there’s life there’s hope is a connviction not so entirely unknown to the “betrayed” as some amiable theorists would have us believe.
+ - In the ill-judged execution of the well-judged plan of things the call seldom produces the comer, the man to love rarely coincides with the hour for loving.
+ - They spoke very little of their mutual feeling; pretty phrases and warm expressions being probably unnecessary between such tried friends.
+ - I am the family face; flesh perishes, I live on, projecting trait and trace through time to times anon, and leaping from place to place over oblivion.
+ - Of love it may be said, the less earthly the less demonstrative. In its absolutely indestructible form it reaches a profundity in which all exhibition of itself is painful.
+ - So do flux and reflux – the rhythm of change – alternate and persist in everything under the sky.
+ - Sometimes I shrink from your knowing what I have felt for you, and sometimes I am distressed that all of it you will never know.
+ - She was of the stuff of which great men’s mothers are made. She was indispensable to high generation, hated at tea parties, feared in shops, and loved at crises.
+ - Why is it that a woman can see from a distance what a man cannot see close?
+ - It was still early, and the sun’s lower limb was just free of the hill, his rays, ungenial and peering, addressed the eye rather than the touch as yet.
+ - Men thin away to insignificance and oblivion quite as often by not making the most of good spirits when they have them as by lacking good spirits when they are indispensable.
+ - Though a good deal is too strange to be believed, nothing is too strange to have happened.
+ - My eyes were dazed by you for a little, and that was all.
+ - Indifference to fate which, though it often makes a villain of a man, is the basis of his sublimity when it does not.
+ - Everybody is so talented nowadays that the only people I care to honor as deserving real distinction are those who remain in obscurity.
+ - The sudden disappointment of a hope leaves a scar which the ultimate fulfillment of that hope never entirely removes.
+ - Dialect words are those terrible marks of the beast to the truly genteel.
+ - Women are attracted to silent men. They believe they are listening.
+ - There is always an inertia to be overcome in striking out a new line of conduct – not more in ourselves, it seems, than in circumscribing events, which appear as if leagued together to allow no novelties in the way of amelioration.
+ - The business of the poet and the novelist is to show the sorriness underlying the grandest things and the grandeur underlying the sorriest things.
+ - It was terribly beautiful to Tess today, for since her eyes last fell upon it she had learnt that the serpent hisses where the sweet birds sing.
+ - That it would always be summer and autumn, and you always courting me, and always thinking as much of me as you have done through the past summertime!
+ - It was then that the ecstasy and the dream began, in which emotion was the matter of the universe, and matter but an adventitious intrusion likely to hinder you from spinning where you wanted to spin.
+ - There was now a distinct manifestation of morning in the air, and presently the bleared white visage of a sunless winter day emerged like a dead-born child.
+ - A woman would rather visit her own grave than the place where she has been young and beautiful after she is aged and ugly.
+ - Yes; quaint and curious war is! You shoot a fellow down you’d treat if met where any bar is, or help to half-a-crown.
+ - The sky was clear – remarkably clear – and the twinkling of all the stars seemed to be but throbs of one body, timed by a common pulse.
+ - When yellow lights struggle with blue shades in hairlike lines.
+ - Some women’s love of being loved is insatiable; and so, often, is their love of loving; and in the last case they may find that they can’t give it continuously to the chamber-officer appointed by the bishop’s license to receive it.
+ - Remember that the best and greatest among mankind are those who do themselves no worldly good. Every successful man is more or less a selfish man. The devoted fail...
+ - Like the British Constitution, she owes her success in practice to her inconsistencies in principle.
+ - I want to question my belief, so that what is left after I have questioned it, will be even stronger.
+ - War makes rattling good history.
+ - That one true heart was left behind! What feeling do we ever find, to equal among human kind, a dog’s fidelity!
+ - There are disappointments which wring us, and there are those which inflict a wound whose mark we bear to our graves. Such are so keen that no future gratification of the same desire can ever obliterate them: they become registered as a permanent loss of happiness.
+ - We ought to have lived in mental communion, and no more.
+ - The offhand decision of some commonplace mind high in office at a critical moment influences the course of events for a hundred years.
+ - Many of her thoughts were perfect syllogisms; unluckily they always remained thoughts. Only a few were irrational assumptions; but, unfortunately, they were the ones which most frequently grew into deeds.
+ - Everybody must be managed. Queens must be managed. Kings must be managed, for men want managing almost as much as women, and that’s saying a good deal.
+ - That cold accretion called the world, so terrible in the mass, is so non formidable, even pitiable, in its units.
+ - To dwellers in a wood, almost every species of tree has its voice as well as its feature.
+ - Do not do an immoral thing for moral reasons.
+ - People go on marrying because they can’t resist natural forces, although many of them may know perfectly well that they are possibly buying a month’s pleasure with a life’s discomfort.
+ - She was at that modulating point between indifference and love, at the stage called having a fancy for. It occurs once in the history of the most gigantic passions, and it is a period when they are in the hands of the weakest will.
+ - I have felt lately, more and more, that my present way of living is bad in every respect.
+ - The value of old age depends upon the person who reaches it. To some men of early performance it is useless. To others, who are late to develop, it just enables them to finish the job.
+ - She was not an existence, an experience, a passion, a structure of sensations, to anybody but herself. To all humankind besides Tess was only a passing thought. Even to friends she was no more than a frequently passing thought.
+ - Well, what I mean is that I shouldn’t mind being a bride at a wedding, if I could be one without having a husband.
+ - I am the family face; flesh perishes, I live on.
+ - You could sometimes see her twelfth year in her cheeks, or her ninth sparkling from her eyes; and even her fifth would flit over the curves of her mouth now and then.
+ - We colour and mould according to the wants within us whatever our eyes bring in.
+ - Of course poets have morals and manners of their own, and custom is no argument with them.
+ - Always wanting another man than your own.
+ - I forgot the defective can be more than the whole.
+ - Thoroughly convinced of the impossibility of his own suit, a high resolve constrained him not to injure that of another. This is a lover’s most stoical virtue, as the lack of it is a lover’s most venial sin.
+ - Once let a maiden admit the possibility of her being stricken with love for some one at a certain hour and place, and the thing is as good as done.
+ - The resolution to avoid an evil is seldom framed till the evil is so far advanced as to make avoidance impossible.
+ - You concede nothing to me and I have to concede everything to you.
+ - She was but a transient impression, half forgotten.
+ - Nobody had beheld the gravitation of the two into one.
+ - Is a woman a thinking unit at all, or a fraction always wanting its integer?
+ - You don’t talk quite like a girl who has had no advantages.
+
+122 quotes

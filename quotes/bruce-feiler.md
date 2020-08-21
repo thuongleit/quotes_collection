@@ -1,0 +1,44 @@
+ - Take a walk with a turtle. And behold the world in pause.
+ - Don’t forget, God uses words to create the world. Words! Words are only hope.
+ - Superman’s original name was Kal-El, or Swift God. His father’s name was Jor-El. Superman was clearly drawn as a modern-day god.
+ - Moses became Americas true founding father because he evangelized action; he justified risk. He gave ordinary people the courage to live with uncertainty.
+ - May your first word be adventure and last word love.
+ - One day, my daughter Tybee came to me, and she said, ‘I have so much love for you in my body, Daddy, I can’t stop giving you hugs and kisses. And when I have no more love left, I just drink milk, because that’s where love comes from.’
+ - After a while, a surprising theme emerged. The single most important thing you can do for your family may be the simplest of all: Develop a strong family narrative.
+ - Tired of nagging your kids to hurry up, get dressed, drink their milk and brush their teeth? Here’s a radical idea: Don’t.
+ - Cancer is a passport to intimacy. It is an invitation, maybe even a mandate, to enter the most vital arenas of human life, the most sensitive and the most frightening, the ones that we never want to go to – but when we do go there, we feel incredibly transformed.
+ - The most successful families embrace and elevate their family history, particularly their failures, setbacks and other missteps.
+ - When faced with a challenge, happy families, like happy people, just add a new chapter to their life story that shows them overcoming the hardship. This skill is particularly important for children, whose identity tends to get locked in during adolescence.
+ - Knowing more about family history is the single biggest predictor of a child’s emotional well-being. Grandparents can play a special role in this process, too.
+ - Children who plan their own goals, set weekly schedules, evaluate their own work build up their frontal cortex and take more control over their lives.
+ - Every writer dreams of writing a book that will touch people.
+ - If you tell your own story to your children – that includes your positive moments and your negative moments, and how you overcame them – you give your children the skills and the confidence they need to feel like they can overcome some hardship that they’ve felt.
+ - There is profundity to explore, but also laundry to do.
+ - Decades of research have shown that most happy families communicate effectively. But talking doesn’t mean simply ‘talking through problems,’ as important as that is. Talking also means telling a positive story about yourselves.
+ - You don’t need a grand plan, you don’t need to go back to the ancestors and rewrite the rules. You just need to take small steps and accumulate small wins.
+ - My name is Bruce Feiler, and I’m an explainaholic. I first heard this word used to describe Isaac Asimov, and I knew instantly that I suffered from the same condition. It’s the incurable desire to tell, shape, share, occasionally exaggerate, often elongate, and inevitably bungle a good story.
+ - The higher the joy is not the light, it’s the reflection. The greater pleasure is not climbing up; it’s handing down.
+ - Here’s a confession: I hate parenting books. I hate the ones that are earnest and repetitive.
+ - Everybody has heard that family dinner is great for kids. But unfortunately, it doesn’t work in many of our lives.
+ - One of the things I’ve learned is to be much more open about my frailties and about our failures, because when you show your kids how you can resolve conflict in your life in real time, you’re giving them confidence that when they have conflicts, they can push through them.
+ - The bottom line: if you want a happier family, create, refine and retell the story of your family’s positive moments and your ability to bounce back from the difficult ones. That act alone may increase the odds that your family will thrive for many generations to come.
+ - There’s a reason the Exodus story has inspired so many Americans. It’s a narrative of hope.
+ - When I was growing up, I, like many Jews, cheered what appeared to be the receding of faith from everyday life. The further religion got from our lives the better our lives would get, I thought, because persecution had been such a burden to Jewish families for generations.
+ - It’s like they say in the Internet world – if you’re doing the same thing today you were doing six months ago, you’re doing the wrong thing. Parents can learn a lot from that.
+ - The bottom line: If you want a happier family, bring those skeletons out of the closet.
+ - You may be frustrated with religion, but don’t take that out on God.
+ - Religion is increasingly a woman’s domain in America.
+ - I had always believed that I left a bit of me wherever I went. I also believed that I took a bit of every place with me.
+ - Fathers can find great inspiration in faith.
+ - But humans disappoint. Adam, in tasting the fruit, indicates that he prefers Eve to God, so God banishes them.
+ - After college, I wanted to learned about myself as an American, so I left the United States and went to Japan.
+ - I was so naive about writing, I went to the public library and checked out the only volume they had on the topic – an academic treatise about publishing from the WWII era.
+ - Americans know more about religion than almost any other topic.
+ - I set out to write an anti-parenting parenting book.
+ - I think that most of the action in religion is around the home, is in families, and is in individual lives, and they can go on their own searches, watch their own TV shows, read their own books, form their own groups and discuss it, but that’s where the action is – on the home front.
+ - The way to tell a really big story, I think, is to tell a really small story.
+ - One question hovers over all of us who choose to spend our lives writing: why keep doing this in a world where so many forces are aligned against us?
+ - Moses is our true founding father.
+ - I’m a fifth generation Jew from the South, and I would say that I felt this connection to my religion, but it wasn’t a spiritual connection.
+
+42 quotes

@@ -1,0 +1,103 @@
+ - It’s hard to dance with the Devil on your back, So shake him off.
+ - I like the idea of not being afraid of letting your imagination rule you, to feel the freedom of expression, to let creativity be your overwhelming drive rather than other things.
+ - I try to maintain a healthy dose of daydreaming, to remain sane.
+ - You should have high expectations for yourself and others should come second.
+ - You live and you learn.
+ - If you do something with your whole heart and it’s a mistake, you can live with that.
+ - Having a soul, they say, is like taking sadness and turning it into something beautiful.
+ - I wanted to be a witch when I was a kid. I was obsessed with witchcraft. At school, me and my two friends had these spell books; I always wanted a more magical reality. I had a little shrine at home and I did a spell to try and make the boy in the other class fall in love with me.
+ - My style of playing is more enthusiasm and instinct than skill.
+ - I’m completely in love with the world but also terrified of it. It creates some overwhelming feelings. Wanting to battle out that joy and fear is part of my music.
+ - A lot of the songs on the new album are about imaginary things, things that you can’t touch – ghosts and rumors, my dead grandmother, things visiting you in a dream.
+ - I’m a choir girl gone horribly, desperately wrong.
+ - I was always that girl growing up who you could find dancing down supermarket aisles. It’s that sense of not feeling inhibited. Dancing in supermarkets is my favorite thing.
+ - It’s always darkness before the dawn.
+ - I definitely have a real self-destructive streak.
+ - I can’t wait to get on stage, because there you don’t worry about whether you’ll ever get married because your life is insane, or whether you’ll ever have another boyfriend again, you don’t worry about the typical boundaries of how your life has to be.
+ - I’ve been having this really weird anxiety dream about arriving too late or too early, and the people in charge are like, ‘You have to leave! You have to go back to the hotel and get ready!’ And I use the wrong exit, and I’m running down the red carpet in pyjamas, like, ‘No! Don’t look at me!’
+ - I like a house party and fancy dress, a big fan of fancy dress, like dress up, costume parties.
+ - Hands up if you’re ready to do something you’ll regret this weekend. Go forth! You have my blessing.
+ - I tend to lose myself in the moment. I’m not very good at holding back. I don’t know how to do this without feeling everything. My emotions are the tool I use to perform.
+ - I can’t just have one painting – I need to cover the wall in paintings. It’s the same with my music. I want to mix everything together to create more.
+ - Being heartbroken is like having this really horrible freedom. You can be selfish with your thoughts, which can lead to manic creativity, but at the same time you’re just really miserable.
+ - I got to live out my 11-year-old fantasies – I got to go on stage with Green Day. Billie Joe called my name from the stage. ‘Dookie’ was the first album I ever bought. I covered the whole of ‘Nimrod’ and he’d heard it. That was like the 11-year-old girl dreamed.
+ - The Teenage Cancer Trust does incredible work supporting and caring for teenagers and young adults with cancer, and it’s a cause that is really close to me and my family.
+ - I spent my 16th birthday high as a kite, jumping out of a tree topless in my local park just because it felt amazing hitting the ground.
+ - Worst nightmares can also appear with your eyes open.
+ - The only music I was listening to for ages was old soul. So I wasn’t listening to a lot of new music – especially indie music.
+ - I’m down to bleach my eyebrows again. I tell you what, though – that didn’t go down well with my boyfriend. Girls love it. Guys, not so into it.
+ - If you see a river running smoothly, it’s because someone has drowned in it, and if it’s raging, it means that it’s still got bloodlust.
+ - When you’re heartbroken, you’re at your most creative – you have to channel all your energies into something else to not think about it. Contentment is a creativity killer, but don’t worry – I’m very capable of making myself discontented.
+ - During the songs, you transcend yourself. The best way to be in the performance is to be without pause and be essentially in the moment, in that moment of expression.
+ - For me, ‘Dog Days’ symbolizes apocalyptic euphoria, chaotic freedom and running really, really fast with your eyes closed.
+ - I feel things in quite an intense way. I’m not actually the most intense person.
+ - I think I just have a problem generally in life of wanting more of everything – more emotion, more drama, more glitz.
+ - On stage, you can use your emotions. It’s the place where you can channel them. They have a purpose.
+ - There’s such an extreme feeling to be in love, especially in quite an emotionally destructive relationship, where you’re both kind of really bad for each other, but you love each other so much. Those extreme emotions, I think, can only be described with extreme imagery.
+ - I’ve always been able to just concoct a melody quite easily – it’s just kind of instinct, really. You’ve got to channel your subconscious.
+ - I think “waste of your brain” is something that my mother would say to me occasionally – I think it’s usually when I’m telling her something like that I can remember every outfit I’ve ever worn.
+ - I’ve built my wardrobe color palette around red, so I’m happy with it, but I do get pangs when I see beautiful brunettes. I’ve already been blue, green, black, and blonde.
+ - For someone so conflicted, who am I to give advice to anybody? It’s such a funny, grandiose idea.
+ - I like the idea of taking off like a bird.
+ - The first album, for better or for worse, was done over from the ages of 17-22, with a couple of different producers. Some of it was recorded in an old swimming pool, some of it was recorded in a synagogue – it kind of was all over the place.
+ - I quite like the drama of an encore. I think an encore is for those artists who are inclined to do dramatic gestures, and I certainly would say I am inclined towards them.
+ - I dyed my hair red when I was ten and when I was 11 – in my goth period – I dyed it black and I was really into witchcraft. I made mini shrines in my bedroom with candles and tried to cast spells to make the boy in the next class fall in love with me. I don’t think he did.
+ - The stage is a place where I can be wholly myself. Even though you’re in front of people almost to be judged, it is a place without judgement.
+ - Music to me is so internal. It’s physical and it’s emotional. Whereas fashion is so much about the external that it’s almost like a break. It’s not inner turmoil. It’s total escapism.
+ - I am obsessed with the whole Victoriana thing, the whole Jack the Ripper London era, the grayness of it, the haunted feeling of it, all ancient and bloody.
+ - I’ve learned not to hide behind a veil of irony – to talk about my work in a more honest way.
+ - The stage is the place I feel comfortable – it’s almost as if real life is where I feel most nervous. Conversations are a lot more nerve-wracking.
+ - I want people to get hit and caught by my music.
+ - It’s good to be vulnerable in amongst the grandeur; you shouldn’t lose that sense of intimacy and vulnerability with people.
+ - But I was always much more interested in reading fashion magazines than I was music magazines when I was a teenager. Just that sense of romanticism and escapism and the dream of it has always been quite alluring to me, as well as that sense of becoming a character through clothes.
+ - Where’s my heart at? Aw. Um, in my chest. I think it’s in there – on the right hand side. Sometimes it’s in my mouth and sometimes I can feel it in my stomach, when I get really nervous. So it’s pretty physical.
+ - I can’t worry too much about the everyday things. Otherwise I’d lose touch with my own world, that helps me as an artist, but it’s frustrating for the people around me. I’m vaguely functional, but there’s always something slightly off.
+ - I’ve got my ideal job. I like to sing, I like to dance, I like to bang drums and dress up, and someone pays me – it’s incredible.
+ - I’m pretty obsessed with Stevie Nicks from her style to her voice. I like watching her on YouTube and her old performances, the way she moves and everything.
+ - I’ve just never been a tracksuit-wearer.
+ - I’ve got quite a vivid imagination and I’m easily overwhelmed by sensations and things that are beautiful or scary. I don’t think I’ve ever seen a ghost – I think I’m probably haunted by my own ghosts than real ones.
+ - I always wanted to sound like a man, like Jeff Buckley or Tom Waits.
+ - The release of ‘Lungs’ was so hard. It was terrifying, because it was the first time doing everything. The first experiences of media exposure were almost paralysing. I spent a lot of time crying on the floor of the studio – it sent me a bit mad.
+ - I like to wear clothes that I will wear when I am an old lady.
+ - Well, I’m completely normal and mellow.
+ - If you asked me to go back to being 14 or 15, I couldn’t – it was a terrifying time. I was so awkward in my own skin. I used to hide behind my hair because I was so ridiculously self-conscious.
+ - I think I should get a bigger between-the-song persona, so then I’m not wandering around the stage like some mad old auntie that’s saying hello to people and falling over.
+ - I get in fights with my sister all the time. She comes on the road with me and we fight – like sisters do.
+ - I didn’t want to become a personality, I wanted to be a musician, but because I didn’t have an album to stand by yet it was hard for people to see that. But now, two albums in, I’m happy with things.
+ - I’d experimented with so many different types of music. I had these folky songs I’d written and recorded, but something wasn’t quite right.
+ - Look, if Givenchy is going to lend you a dress, I’m not going to turn it down. I would wear that dress to just go out and buy a pint of milk if they would lend it to me.
+ - Love is horrible. I mean, when you’re in love, it’s like a sickness. Such madness.
+ - I guess in order to say something to one person, I have to sing it to a couple of thousand. It doesn’t make for healthy relationships.
+ - Growing up, I always wanted to be in punk bands, so I’m really enjoying the harder, heavier element. It’s always been my dream to have people moshing at my gig, kind of that really feral element of the music coming out more. I love crowd-surfing.
+ - I think I just get excited by music, and, like, singing is a very physical thing. It releases endorphins in your body. You’re using almost muscle in there, and I think that adrenaline really helps to kind of make the songs fresh every time.
+ - I’ve always been attracted to romantic secondhand clothes. But my style developed as I started going to these strange raves where everybody had these very definitive costumes.
+ - In a conversation, the words can get stuck, I don’t know what to say, I get very anxious.
+ - When something really hits me, it makes me want to either jump off something really high or lie down and be buried. I want people to get hit and caught by my music.
+ - All the words are already there when you’re singing onstage, it’s fantastic. You can lose yourself in what you’ve created. You’re controlling this freedom.
+ - I used to dress like an eight-year-old boy. Traveling has inspired me to be more experimental.
+ - I’d gone from being this art student messing about with music to this girl with a record deal, magazine front covers and all this hype. In many ways, it was everything I ever wanted, but when it happened all I felt was total, paralysing fear.
+ - Going to parties usually makes me feel depressed, just because I have such social fear after meeting people.
+ - Touring, and being in a band, it’s almost like the other stuff, the other parts of life, get put on hold.
+ - I saw ‘The Artist.’ It’s really beautiful and it’s all done to the letter with all the silent film techniques. The costumes were amazing and the dog is so good.
+ - I’m one of those people that is up for most things. When I was offered to sing at the Oscars I was like, ‘Yeah, I want to know what that’s like!’ I’m always curious to know what things are like – as long as you’re not compromising who you are.
+ - I’m obsessed with choirs, and always have been, because of that sense of overwhelming vocals.
+ - Maybe in music you’re making an auditory environment and maybe you change your environment around you to suit your own way.
+ - When I’m singing I’m always trying to get to the highest point possible. I’d fly to the top of Buckingham Palace to sing to the queen.
+ - I’m quite glad I never learned to play the guitar, because I think I’d write songs that were more classically structured. As it is, I’ve had to create my own way of writing, which isn’t typical. Everything’s a big crescendo.
+ - You know, people always ask, ‘What are you like offstage?’ And I always say, ‘Well, I’m completely normal and mellow.’
+ - What I really like seeing from the stage is people having their own moments, when people are doing some performance of their own.
+ - I feel a responsibility to the fans who have paid to see me and I want to give as good a show as I possibly can.
+ - I have this sensation of being in flight all the time, but being on stage is like creating a sanctuary in which you can completely lose yourself. The bits of your personality that you keep under wraps in ordinary life, you can let them run free.
+ - I think an encore is perfectly acceptable, but I find it so weird when people do two or three.
+ - You can forget anything, and actually being a part of a crowd, of a group, can itself be freeing.
+ - I’m really careful with what the music gets put with, and we say no to so much stuff, loads of it, for things that might quadruple the sales of my album. But if it doesn’t fit then it doesn’t fit, you know?
+ - I think I’ve always looked older than I am. I hope that’s going to work in my favor when I get older.
+ - I started off singing in church as a child. The sound of voices coming together, that was my first moment of touching something outside of myself.
+ - I look really odd in jeans and a hoodie – it doesn’t feel or seem right.
+ - I always seem to feel that everything is about to cave in on me. I think that maybe music is my protection from that and in some senses it’s an outlet to turn it into something euphoric: embracing the eventual decline.
+ - I’ve been thinking about songwriting more in terms of playing it live, and how it will sound as a band.
+ - I love performing outside because it’s as if the heavens are open and the elements become part of the stage show as well – you know, the wind and the rain and the thunder. It’s almost as if there’s a sense of invocation in performance.
+ - I love that sense of release as you throw yourself into the crowd as hundreds of arms are carrying you.
+ - It’s very flattering when you look into the crowd and people have made an effort and dressed in your style.
+
+101 quotes

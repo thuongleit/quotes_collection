@@ -1,0 +1,47 @@
+ - The early Church had nothing but the Old Testament. The New Testament lies hidden in the Old; the Old Testament lies open in the New.
+ - In a world without the law of God, you have chaos, oppression, tyranny, and everyone doing what is right in their own eyes.
+ - The Law of God reaches into every area of life, and it brings about incredible blessing and incredible freedom.
+ - When I, or people like me, are running the country, you’d better flee, because we will find you, we will try you, and we’ll execute you. I mean every word of it. I will make it part of my mission to see to it that they are tried and executed.
+ - He who frames the question wins the debate.
+ - I want you to just let a wave of intolerance wash over you. I want you to let a wave of hatred wash over you. Yes, hate is good – Our goal is a Christian nation. We have a Biblical duty. We are called by God to conquer this country. We don’t want equal time. We don’t want pluralism.
+ - Behaviors are a choice. Feelings are sometimes out of our control. Behavior has to do with choices.
+ - What it is coming down to is who runs the country. It’s us against them. It’s the good guys versus the bad guys. It’s the God-fearing people against the pagans, and some of the pagans are going to church.
+ - Once you depart from the Ten Commandments as being the foundation of right and wrong, you are in a free fall.
+ - I don’t think Christians should use birth control. You consummate your marriage as often as you like – and if you have babies, you have babies.
+ - If you want to understand Jesus, you have to study the whole Bible. Christian duty is not defined solely by the words in red.
+ - Most of the Ten Commandments are negative. The purpose of law is not to mandate good behavior. That concept comes from the French Revolution.
+ - If the Christians who were alive in the 1770s behaved and believed like the Christians of today, there wouldn’t be an America as we know it.
+ - Our goal must be simple. We must have a Christian nation built on God’s law, on the ten Commandments. No apologies.
+ - If we don’t believe in moral absolutes and then we get into a cultural-political debate, how are we going to win?
+ - Homosexuals reject the process of healing because it’s too painful and time-consuming.
+ - George Washington understood that the Bible is the place where God’s records of right and wrong are kept.
+ - It’s interesting to note that all revolutionary literature was written by pastors. These guys were involved in a revolution against the mightiest power that the world had ever seen.
+ - Christians take Scriptures out of context to try to justify or to vindicate retreat and cowardice.
+ - We are saved by grace, not by the works of the law. But don’t be so quick to write the law off.
+ - You don’t know how to love God and your neighbor unless you look to the law to define it.
+ - The government forces you to give your money to things you don’t believe in, to have your money go to projects that might be inherently immoral.
+ - If my duty does involve heralding His law in every arena, then the Church in America is failing radically today.
+ - If someone doesn’t know their Old Testament, they don’t know right doctrine, right correction, and they can’t be equipped for good works.
+ - Let’s use the opportunities before us to stand for Christ. If we will do, God himself will honor our efforts and America can be restored.
+ - We want every human being in the womb to be safe, not have these babies be killed to solve some dilemma.
+ - What kind of America do people want to leave for their children? What horrors are down the road, stuff that was unthinkable 30 years ago?
+ - It’s kind of fun to listen to Christians who say: I’m a New Testament Christian. What other kind of Christian is there?
+ - If it squares with the Scripture, then let’s go. If it’s in conflict with the Scripture, then it’s heresy.
+ - America should function as a Christian nation.
+ - We are not at the same place we were in 1973. This country today is drifting, moving steadily towards the pro-life position because the data is with us.
+ - For us to think we can enjoy, understand and practice the Christian religion with just Matthew to Revelation is foolishness.
+ - I’ve traveled all over the country for years speaking in churches, teaching the Ten Commandments. It’s amazing if 2 percent of any congregation knows the Ten Commandments.
+ - A Christianity that is in conflict with the Scriptures isn’t Christianity at all.
+ - Once you depart from the Ten Commandments, you have relativism, humanism, the abandonment of absolutes. You have anything. How long before child pornography is mainstream?
+ - I have to believe that people can change, otherwise I deny the Gospel, and I will not do that.
+ - It’s the Law of God that gave the stability to Christian civilization.
+ - If the government of this country tramples the faith and values of its citizens, history will hold those in power responsible for the violent convulsions that follow.
+ - If God is sovereign, then it is impossible for civil government to be neutral on issues of law. All law is based in some religious code.
+ - Let all those in government be warned: They cannot order people to pay for the murder of babies, and betray God Himself, without horrific consequences.
+ - I believe that Clinton is the most wicked and vile President that this nation has ever had.
+ - Our problem in America is not with atheists or the pagans who are consistent with their unbelief, but with believers who are inconsistent with their belief.
+ - I didn’t run off with the secretary. It made it seem like I had committed adultery and then ran off with a secretary, neither of which happened.
+ - The enemies of the Christian religion and the Law of God confuse law with faith.
+ - The Bible is the supreme law that all governments must obey.
+
+45 quotes

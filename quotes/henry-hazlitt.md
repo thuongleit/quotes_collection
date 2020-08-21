@@ -1,0 +1,85 @@
+ - When Alexander the Great visited the philosopher Diogenes and asked whether he could do anything for him, Diogenes is said to have replied: ‘Yes, stand a little less between me and the sun.’ It is what every citizen is entitled to ask of his government.
+ - Inflation is a form of tax, a tax that we all collectively must pay.
+ - When the government makes loans or subsidies to business, what it does is to tax successful private business in order to support unsuccessful private business.
+ - In a thousand fields the welfarists, statists, socialists, and interventionists are daily driving for more restrictions on individual liberty.
+ - Prolonged inflation never ‘stimulates’ the economy. On the contrary, it unbalances, disrupts, and misdirects production and employment.
+ - The government has nothing to give to anybody that it doesn’t first take from someone else.
+ - A man who is good from docility, and not from stern self-control, has no character.
+ - The way to maximize production is to maximize the incentives to production. And the way to do that, as the modern world has discovered, is through the system known as capitalism – the system of private property, free markets, and free enterprise.
+ - The larger the percentage of the national income taken by taxes the greater the deterrent to private production and employment. When the total tax burden grows beyond a bearable size, the problem of devising taxes that will not discourage and disrupt production becomes insoluble.
+ - Mere inflation-that is, the mere issuance of more money, with the consequence of higher wages and prices-may look like the creation of more demand. But in terms of the actual production and exchange of real things it is not.
+ - A vital function of the free market is to penalize inefficiency and misjudgment and to reward efficiency and good judgment. By distorting economic calculations and creating illusory profits, inflation will destroy this function.
+ - Practically all government attempts to redistribute wealth and income tend to smother productive incentives and lead toward general impoverishment.
+ - If there is to be no loss whatever of dignity or self-respect in getting and staying on relief, then there can be no gain in dignity or self-respect in makings some sacrifices to keep off.
+ - Economics is haunted by more fallacies than any other study known to man.
+ - Today is already the tomorrow which the bad economist yesterday urged us to ignore.
+ - Government provided free tuition tends more and more to produce a uniform conformist education, with college faculties ultimately dependent for their jobs on the government, and so developing an economic interest in profession and teaching a statist, pro-government, and socialist ideology.
+ - A certain amount of taxes is of course indispensable to carry on essential government functions. Reasonable taxes for this purpose need not hurt production much.
+ - The only real cure for poverty is production.
+ - Government welfarism, with its ever-increasing army of pensioners and other beneficiaries, is fatally easy to launch and fatally easy to extend, but almost impossible to bring to a halt – and quite impossible politically to reverse, no matter how obvious and catastrophic its consequences become.
+ - Arbitrary government power is being multiplied daily by the now practically unchallenged assumption that wherever there is any problem of any kind to be solved, government is the agency to step in and solve it.
+ - Diluting the money supply with paper is the moral equivalent of diluting the milk supply with water.
+ - The essential function of the State is to maintain peace, justice, law, and order, and to protect the individual citizen against aggression, violence, theft, and fraud.
+ - The sad fact is that today most of the heads of big businesses in America have become so confused or intimidated that, so far from carrying the free market to argument to the enemy, they fail to defend themselves adequately even when attacked.
+ - Liberty is the essential basis, the sine qua non, of morality.
+ - Relief, or redistribution of income, voluntary or coerced, is never the true solution of poverty, but at best a makeshift, which may mask the disease and mitigate the pain, but provides no basic cure.
+ - When each of us is free to work out his own economic destiny, within the framework of the market economy, the institution of private property, and the general rule of law, we will all improve our economic condition much faster than when we are ordered around by bureaucrats.
+ - The art of economics consists in looking not merely at the immediate but at the longer effects of any act or policy; it consists in tracing the consequences of that policy not merely for one group but for all groups.
+ - The ideas which now pass for brilliant innovations and advances are in fact mere revivals of ancient errors, and a further proof of the dictum that those who are ignorant of the past are condemned to repeat it.
+ - To try to cure unemployment by inflation rather than by adjustment of specific wage-rates is like trying to adjust the piano to the stool rather than the stool to the piano.
+ - Inflation makes the extension of socialism possible by providing the financial chaos in which it flourishes. The fact is that socialism and inflation are cause and effect, they feed on each other!
+ - The surest way for a poor nation to stay poor is to harass, hobble, and straitjacket private enterprise or to discourage or destroy it by subsidized government competition, oppressive taxation, or outright expropriation.
+ - If a government resorts to inflation, that is, creates money in order to cover its budget deficits or expands credit in order to stimulate business, then no power on earth, no gimmick, device, trick or even indexation can prevent its economic consequences.
+ - The system of capitalism, of the market economy, is a system of freedom, of justice, of productivity. But these three virtues cannot be separated. Each flows out of the other.
+ - Would-be income guarantors ignore or despise the capitalistic system that makes their dreams dreamable and gives their redistribute-the-income proposals whatever plausibility they have.
+ - The times call for courage. The times call for hard work. But if the demands are high, it is because the stakes are even higher. They are nothing less than the future of human liberty, which means the future of civilization.
+ - The envious are more likely to be mollified by seeing others deprived of some advantage than by gaining it for themselves. It is not what they lack that chiefly troubles them, but what others have.
+ - The proposal is frequently made that the government ought to assume the risks that are “too great for private industry.” This means that bureaucrats should be permitted to take risks with the tax payer’s money that no one is willing to take with his own.
+ - Everywhere the means is erected into the end, and the end itself is forgotten.
+ - It is possible to increase paper-money income to any amount by debasing the currency. But real income can only be increased by working harder or more efficiently, saving more, investing more, and producing more.
+ - A hundred welfare programs, spending more and more billions, lead to chronic budget deficits, which lead to increased paper-money issues, which lead to higher prices.
+ - The envious are not satisfied with equality; they secretly yearn for superiority and revenge. In the French Revolution of 1848, a woman coal-heaver is said to have remarked to a richly dressed lady: ‘Yes, madam, everything’s going to be equal now; I shall go in silks and you’ll carry coal.’
+ - From a strictly economic point of view, buying gold in a major inflation and holding it probably presents the least risk of capital loss of any investment or speculation.
+ - The real solution to the problem of poverty consists in finding how to increase the employment and earning power of the poor.
+ - Economic progress and justice do not consist in superbly equalized destitution, but in the constant creation of more and more goods and services, of more and more wealth and income to be shared.
+ - A Day never passes without some ardent reformer or group of reformers suggesting some new government intervention, some new statist scheme to fill some alleged ‘need’ or relieve some alleged distress.
+ - The great merit of gold is precisely that it is scarce; that its quantity is limited by nature; that it is costly to discover, to mine, and to process; and that it cannot be created by political fiat or caprice.
+ - The solution to our problems is not more paternalism, laws, decrees, and controls, but the restoration of liberty and free enterprise, the restoration of incentives, to let loose the tremendous constructive energies of 300 million Americans.
+ - Multiculturalism means your kid has to learn some wretched tribal dirge for the school holiday concert instead of getting to sing ‘Rudolph the Red-Nosed Reindeer.’
+ - In order that one industry might grow or come into existence, a hundred other industries would have to shrink.
+ - If precious metals had been abundant, they would not have been precious.
+ - The only way government bureaucrats know of keeping prosperity going is to inflate some more – to increase the deficit or to pump more money into the system.
+ - The only way we could remember would be by constant re-reading, for knowledge unused tends to drop out of mind. Knowledge used does not need to be remembered; practice forms habits and habits make memory unnecessary. The rule is nothing; the application is everything.
+ - More and more people are becoming aware that government has nothing to give them without first taking it away from somebody else-or from themselves. Increased handouts to selected groups mean merely increased taxes, or increased deficits and increased inflation.
+ - The way to get a maximum rate of ‘economic growth’ assuming this to be our aim – is to give maximum encouragement to production, employment, saving, and investment. And the way to do this is to maintain a free market and a sound currency.
+ - The superior freedom of the capitalist system, its superior justice, and its superior productivity are not three superiorities, but one. The justice follows from the freedom and the productivity follows from the freedom and the justice.
+ - The long-run historical tendency of capitalism has not only been to increase real incomes more or less proportionately nearly all along the line, but to benefit the masses even more than the rich.
+ - The tendency of welfare spending in the United States has been to increase at an exponential rate.
+ - Government-to-government aid rests on socialistic assumptions and promotes socialism and stagnation, whereas private foreign investment rest on capitalist assumptions and promotes private enterprise and maximum economic growth.
+ - There is no more certain way to deter employment than to harass and penalize employers.
+ - Libertarians are learning to their sorrow that big businessmen cannot necessarily be relied upon to be their allies in the battle against extension of governmental encroachments.
+ - The army of relief and other subsidy recipients will continue to grow, and the solvency of the government will become increasingly un tenable, as long as part of the population can vote to force the other part to support it.
+ - Modern capitalism benefited the masses in a double way – both by greatly increasing the wages of the masses of workers and greatly reducing the real prices they had to pay for what was produced.
+ - The more things a government undertakes to do, the fewer things it can do completely. When the government tries to do everything it must do everything badly.
+ - What is put into the hands of B cannot be put into the hands of A.
+ - Capitalism will continue to eliminate mass poverty in more and more places and to an increasingly marked extent if it is merely permitted to do so.
+ - Socialists will often talk as if some form of superbly equalized destitution were preferable to “maldistributed” plenty. A national income that is rapidly growing in absolute terms for practically everyone will be deplored because it is making the rich richer.
+ - We cannot distribute more wealth than is created. We cannot in the long run pay labor as a whole more than it produces.
+ - There is a profound contrast between the effects of foreign aid and of voluntary private investment: foreign aid goes from government to government. It is therefore almost inevitably statist and socialistic.
+ - The first requisite of a sound monetary system is that it put the least possible power over the quantity or quality of money in the hands of the politicians.
+ - Government can’t give us anything without depriving us of something else.
+ - One of the worst features of all the plans for sharing wealth and equalizing or guaranteeing incomes is that they lose sight of the conditions and institution s that are necessary to create wealth and income in the first place.
+ - There can be little doubt that many egalitarians are motivated at least partly by envy.
+ - The ‘private sector’ of the economy is, in fact, the voluntary sector; and the ‘public sector’ is, in fact, the coercive sector.
+ - Bureaucrats denounce private enterprise for the consequences of their own reckless policies and demand still more governmental controls.
+ - New taxes are so unpopular that most ‘social’ handout schemes are originally enacted without enough increased taxation to pay for them. The result is chronic government deficits, paid for by the issuance of additional paper money.
+ - Short-sighted and impatient efforts to wipe out poverty by severing the connection between effort and reward can only lead to the growth of a totalitarian state, and destroy the economic progress that this country has so dearly bought.
+ - The crying need today is not for more laws, but for fewer. The world must be saved from its saviors. If the friends of liberty and law could have only one slogan it should be: Stop the remedies!
+ - Need is not demand. Effective economic demand requires not merely need but corresponding purchasing power.
+ - When any welfare scheme is being proposed, its political sponsors always dwell on what a generous and compassionate government should pay to Paul; they neglect to mention that this additional money must be seized from Peter.
+ - For every alleged benefit that the politicians confer upon us, they must necessarily deprive us of something else.
+ - The more ‘adequate’ we make relief, the more people we are going to find willing to get on it and stay on it indefinitely. The more we try to make sure that everybody really in need of relief gets it, the more certain we can be that we are also giving it to people who neither need nor deserve it.
+ - Once the idea is accepted that money is something whose supply is determined simply by the printing press, it becomes impossible for the politicians in power to resist the constant demands for further inflation.
+ - Contrary to age-old prejudices, the wealth of the rich is not the cause of the poverty of the poor, but helps to alleviate that poverty.
+
+83 quotes

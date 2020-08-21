@@ -1,0 +1,25 @@
+ - Embryonic stem cell research will prolong life, improve life and give hope for life to millions of people.
+ - Reducing trade barriers with this key ally will go a long way toward increasing market access for American farmers, manufacturers and service providers.
+ - As we celebrate Recovery Month, it is time for Congress to knock down the barriers to treatment and recovery for 26 million Americans suffering the ravages of alcohol and drug addiction.
+ - The heroes of Flight 93 won the first battle in the War on Terror, and they should never be forgotten.
+ - All Americans and freedom-loving people around the world owe President Reagan our deepest gratitude for his strong, principled leadership that ended the Cold War and brought freedom to millions of people.
+ - I strongly agree that a National Intelligence Director should be established to oversee and coordinate the 15 federal intelligence agencies.
+ - First, the security and privacy of sensitive taxpayer information is absolutely essential.
+ - Our intelligence community needs better coordination of operations and exchange of information, and that’s why we need an overall director of national intelligence and a national counterterrorism center.
+ - Always the eternal optimist, President Reagan instilled confidence and optimism at a time both were in short supply in our country.
+ - It is time to end the discrimination against people who need treatment for chemical addiction. It is time for Congress to deal with our Nation’s number one public health problem.
+ - The Minnesota spirit of compassion and help for people in need has moved countless Minnesotans to step forward to provide relief for the survivors of Hurricane Katrina.
+ - As American taxpayers know too well, the tax code is incredibly complex and compliance is all to expensive.
+ - The purpose of the ADA was to provide clear and comprehensive national standards to eliminate discrimination against individuals with disabilities. As a result, individuals with disabilities are now able to live in their homes and have access to new careers.
+ - We also need to strengthen the security of our borders and ports and strictly control immigration.
+ - I cannot in good conscience vote for final passage of legislation that would pave the way to open the Arctic National Wildlife Refuge to oil drilling.
+ - Americans spend 3 billion hours per year filling out tax forms and keeping tax records.
+ - America’s veterans deserve the very best health care because they’ve earned it.
+ - American families, families back home in Minnesota, know only too well that out-of-pocket expenses for health care have been rising at an astonishing rate.
+ - In my home State of Minnesota, I have seen firsthand the importance of Byrne grants to local police in reducing crime and drugs and improving public safety.
+ - I strongly support the call to greatly expand our human intelligence capability to penetrate al Qaeda and gather critical intelligence to prevent terrorist attacks on our homeland.
+ - On this important anniversary, we must remember that while we have come a long way in eliminating barriers, critical work remains to ensure all Americans can live up to their full potential.
+ - As we celebrate President Reagan’s remarkable career and historic legacy, we also celebrate a man of strong character, deep conviction, unforgettable charm, and wonderful wit.
+ - My fellow Minnesotans join me in mourning the loss of America’s 40th President and celebrating the life of a man who personified both the greatness and goodness of America.
+
+23 quotes

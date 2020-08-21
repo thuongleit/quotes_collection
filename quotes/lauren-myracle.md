@@ -1,0 +1,38 @@
+ - I live in my own little world. But its ok, they know me here.
+ - Suck it up. This is the life you chose for yourself, so buck up and deal.
+ - If everyone started off the day singing, just think how happy they’d be.
+ - You should eat a waffle! You can’t be sad if you eat a waffle!
+ - Knowledge was more powerful than fear. Love was stronger than hate.
+ - What is ‘power’ anyway? Power is an ego trip. Power is a way to rise yourself up by lowering others, and I want nothing of it.
+ - We are all flawed, my dear. Every one of us. And believe me, we’ve all made mistakes. You’ve just got to take a good hard look at yourself, change what needs to be changed, and move one, pet.
+ - We all mess up. It’s what we learn from our mistakes that matters.
+ - When you make a solemn promise to a friend, it ain’t right to go back on it. No. Never let your friend down, never break a trust, and when you give your word, never go back on it. -Sheriff Andy Taylor.
+ - Even so, I was proud of myself for taking action at all. I didn’t hide or run away or pretend the ugliness didn’t happen. I stood up and said something that was true. I said it out loud, and by doing so, I was standing up for lots of people, not just me.
+ - My angel-boy is close now, as in five-feet-away close. There’s no way I’m going to burst into song in front of him. But then the contrary part of me says, you’re going to let a boy keep you from singing out loud? Sing, sister! Sing! So I do, and my angel-boy turns his head.
+ - Sometimes when we forget to do things for others, it’s because we’re too wrapped up in our own problems.
+ - One: Don’t play leapfrog with elephants. Two: Don’t pet a tiger unless his tail is wagging. Three: Never, ever, mess with the Ladies Auxiliary. -Mayberry Rules for a Long, Happy Life.
+ - Being an author of banned books is cool, I’ve decided.
+ - If you breathed deep and set your mind to it, you could rise above your anger.
+ - Kids are smart. Knowledge is power. Let them figure things out. Don’t turn into that grown-up who they won’t come to.
+ - It’s unfair how the kids who are starving for attention tended to be so annoying that people had no inclination to give it to them.
+ - Some people do want to stand on the rooftop and scream out their story. Others are cowering in the corner, or sitting with a blank face in class, and not knowing how to tell their story.
+ - I loved everyone who said yes to the world and tried to make it better instead of worse, because so much in the world was ugly- and just about all the ugly parts were due to humans.
+ - And they all have pretty chilrden, And the children go to school, And the children to go summer camp, And then to the university, Where they are put in bozes And they come out all the same. – Malvina Reynolds.
+ - I think that ties in with issues of identity as well – that sometimes there are parts of us we want to hide, and then there’s other times we say, “You know what? Nope. Done hiding that part.”
+ - I’m in loooove with this boy, and when you in love with someone, you don’t give up on ’em, mo matter what.
+ - I didn’t like being alone. Being alone was slightly better than having to deal with people, that’s all. Or so I’d convinced myself.
+ - They’re not chicks. They’re ducks.
+ - But you have to live in the present. You have to take the old and make it new – that’s my point.
+ - Every girl on the planet was familiar to one-last-time e-mail checks.
+ - I’m a southern girl, and I grew up with this slightly schizophrenic upbringing where I bounced back and forth between Atlanta, Georgia, and a tiny mountain town called Brevard, North Carolina. My parents were divorced, and my two lives were very different because of socioeconomic reasons.
+ - So as a seventh grader, no, you weren’t friends with people you didn’t like. But sometimes you also weren’t friends with people you did like, which was complicated, and which didn’t make any sense if you tried to explain it. Sometimes things just changed. That’s where the sadness came in.
+ - You know, this technology that we have, and the Internet and Twitter and Facebook – I get so many of those emails that talk about hard times that kids have gone through, how books have helped them, but also happy times.
+ - There’s something strange about this big pink bunny...
+ - Also, as an author, character has always been what I’m most interested in – much more so than plot or setting, although those are good things too.
+ - And books are such an empowering way to give voice to some of these kids who aren’t yet ready to tell their story. Or don’t know what their story is, or are trying to figure it out.
+ - And you’re figuring out who you are, and you haven’t yet become stagnant in your thinking. You haven’t solidified. And one thing that I find is that a lot of grown-ups tend to look back on their high school or middle school years and say, “Oh, thank God all that’s over.”
+ - Dogs like everyone. Cats choose who to like.
+ - Curse false-hand-holding boys!
+ - You know it’s them books what make you talk funny.
+
+36 quotes

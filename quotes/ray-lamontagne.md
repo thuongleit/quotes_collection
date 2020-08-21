@@ -1,0 +1,31 @@
+ - We all have that inner voice that is wise, even if we don’t always follow it. It’s that voice I’m trying to listen to.
+ - I want to be in control of my own destiny.
+ - I want to write music that will outlive me.
+ - Don’t let your eyes refuse to seeDon’t let your ears refuse to hear.
+ - You have to believe in yourself before anybody else believes in you.
+ - There’s nothing in the world so sad as talking to a man who never knew his life was his for making.
+ - I’m a very emotional person.
+ - My backstory is so tedious.
+ - You can make bad choices and find yourself in a downward spiral or you can find something that gets you out of it.
+ - I need space between me and the audience – and the more space the better.
+ - I’m very uncomfortable in my own skin.
+ - It’s so easy to get caught up in your own experiences. They can seem so important. But there are billions and billions of other experiences going on.
+ - My voice sucks. I don’t like the tone.
+ - When I pick up the guitar, it’s a melody, and that’s what drives the lyrics. It’s bits and pieces of truth, but it is storytelling.
+ - I’d much rather be playing songs than talking to people.
+ - The thing I love about music is that you can take things that are painful, deep things that hurt you, and you can turn them into something beautiful.
+ - Every song asks to be sung in a different way.
+ - There’s a real sense of desperation when you grow up in poverty.
+ - Social situations, for me – it’s very natural for me to be an observer. That’s where I’m most comfortable. I observe things.
+ - I feel calm when I’m on my own.
+ - When I think of folk music, I think of topical songs. And I don’t write topical songs.
+ - I have a strong sense of self, but that’s not a negative thing.
+ - It bugs me that people think my songs are personal because it means I have to explain myself all the time.
+ - I don’t like myself, and I don’t like to be looked at.
+ - I can’t get excited by my own music. It’s impossible.
+ - I don’t really think of myself as a folk singer.
+ - Writing songs is not something I wanted to share with people for a long time. It was precious to me. I didnt want someone to crush it. I waited until I felt strong enough to take the criticism.
+ - I refused then like I do now to let anybody tie me down.
+ - I am very self-critical, but that’s a good thing because it keeps me growing as a human being and as a musician.
+
+29 quotes

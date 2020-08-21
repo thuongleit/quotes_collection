@@ -1,0 +1,32 @@
+ - When information is cheap, attention becomes expensive.
+ - It sometimes seems as if curbing entropy is our quixotic purpose in this universe.
+ - To some physicists chaos is a science of process rather than state, of becoming rather than being.
+ - You can’t waste time and you can’t save time; you can only choose what you do at any given moment...
+ - The universe is computing its own destiny.
+ - Everything we care about lies somewhere in the middle, where pattern and randomness interlace.
+ - In the mind’s eye, a fractal is a way of seeing infinity.
+ - Life sucks order from a sea of disorder.
+ - Every new medium transforms the nature of human thought. In the long run, history is the story of information becoming aware of itself.
+ - Information is not knowledge and knowledge is not wisdom.
+ - It is not the amount of knowledge that makes a brain. It is not even the distribution of knowledge. It is the interconnectedness.
+ - Neither technology nor efficiency can acquire more time for you, because time is not a thing you have lost. It is not a thing you ever had...
+ - Running for president is the new selfie.
+ - At its most fundamental, information is a binary choice. In other words, a single bit of information is one yes-or-no choice.
+ - It is not true that people who accomplish things don’t waste time and that people who waste time don’t accomplish things. The very concept is ill-informed. You can’t waste time and you can’t save time; you can only choose what you do at any given moment.
+ - We say that time passes, time goes by, and time flows. Those are metaphors. We also think of time as a medium in which we exist.
+ - The history of life is written in terms of negative entropy.
+ - Vengeful conquerors burn books as if the enemy’s souls reside there, too.
+ - He believed in the primacy of doubt, not as a blemish upon our ability to know, but as the essence of knowing.
+ - Ideas that require people to reorganize their picture of the world provoke hostility.
+ - As soon as the printing press started flooding Europe with books, people were complaining that there were too many books and that it was going to change philosophy and the course of human thought in ways that wouldnt necessarily be good.
+ - I have seen the future, and it is still in the future.
+ - It is significant that one says book lover and music lover and art lover but not record lover or CD lover or, conversely, text lover.
+ - We choose mania over boredom every time.
+ - Geniuses of certain kinds – mathematicians, chess players, computer programmers – seem, if not mad, at least lacking in the social skills most easily identified with sanity.
+ - The Internet is like a town that leaves its streets unmarked on the principle that people who don’t already know don’t belong.
+ - The alternative to doubt is authority, against which science had fought for centuries.
+ - Cyberspace, especially, draws us into the instant.
+ - Google is where we go for answers. People used to go elsewhere or, more likely, stagger along not knowing.
+ - I can’t remember the last book that taught me so much, and so well, about what it means to be human.
+
+30 quotes

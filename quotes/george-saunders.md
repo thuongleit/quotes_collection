@@ -1,0 +1,109 @@
+ - Don’t be afraid to be confused. Try to remain permanently confused. Anything is possible. Stay open, forever, so open it hurts, and then open up some more, until the day you die, world without end, amen.
+ - Goodbye. I am leaving because I am bored.
+ - What I regret most in my life are failures of kindness.
+ - When you read a short story, you come out a little more aware and a little more in love with the world around you. What I want is to have the reader come out just 6 percent more awake to the world.
+ - I started out in engineering. I was a geophysical engineer. Throughout the course of my life I’ve done a lot of strange jobs, and the effect has been to make me think a little more skeptically about our capitalist society.
+ - If you at least try to do the things that excite you, it will make you a more expansive and present person – you’ll feel, at the end of your life, that at least you took the shot.
+ - The scariest thought in the world is that someday I’ll wake up and realize I’ve been sleepwalking through my life: underappreciating the people I love, making the same hurtful mistakes over and over, a slave to neuroses, fear, and the habitual.
+ - Stay alert. The big moral crossroads in your life may not come labeled as such.
+ - Humor is what happens when we’re told the truth quicker and more directly than we’re used to.
+ - Irony is just honesty with the volume cranked up.
+ - Realism is to fiction what gravity is to walking: a confinement that allows dancing under the right circumstances.
+ - I was trained in seismic prospecting. We’d drill a deep hole and put dynamite in the bottom and blow it up remotely, which would give you a cross-sectional picture of the subsurface, which tells you where to drill.
+ - When I write I know that I’m going to have to produce 40 percent more than I need.
+ - If you haven’t read you don’t have the voice. The lack of voice eliminates experience.
+ - My heart goes out to him. Sort of. Because empathy depends on how you’ve spent your day.
+ - It was that impossible thing: happiness that does not wilt to reveal the thin shoots of some new desire rising from within it.
+ - Anyone can be shamed, but feeling guilt requires empathy within.
+ - We try, we fail, we posture, we aspire, we pontificate – and then we age, shrink, die, and vanish.
+ - There comes that phase in life when, tired of losing, you decide to stop losing, then continue losing. Then you decide to really stop losing, and continue losing. The losing goes on and on so long you begin to watch with curiosity, wondering how low you can go.
+ - The contours of the coming disaster expanded to include the deaths of all present.
+ - Nostalgia is, ‘Hey, remember the other mall that used to be there?’
+ - Success is like a mountain in front of you that keeps growing. If you’re not careful, it will take up your whole life.
+ - What once were two, are one.
+ - It’s a big world, and I really like it.
+ - I’m always aware of writing around things I can’t do, and I’ve come to think that that’s actually what ‘style’ is – an avoidance of your deficiencies.
+ - My stories, I can understand them as a little toy that you wind up and you put it on the floor and it just goes under the coach. That I get. Beyond that, I’m a little lost.
+ - Suddenly absurdism wasn’t an intellectual abstraction, it was actually realism. You could see the way that wealth was begetting wealth, wealth was begetting comfort – and that the cumulative effect of an absence of wealth was the erosion of grace.
+ - Every step was a victory. He had to remember that.
+ - The generalizing writer is like the passionate drunk, stumbling into your house mumbling: I know I’m not being clear, exactly, but don’t you kind of feel what I’m feeling?
+ - Life is short, very short, and what are we doing here if not trying to become more generous and loving?
+ - Do those things that incline you toward the big questions, and avoid the things that would reduce you and make you trivial.
+ - That for me was the big turning point in my artistic life, when my wife and I had our kids. The world got infused with morality again. Every person in the world should theoretically be loved as much as I love my daughters.
+ - Back in 1992, I had my first story accepted by ‘The New Yorker.’
+ - Whatever you love, that will be an influence. It just will. So in effect the young writer’s job is: go out and find some stuff to love.
+ - On one level, I am a total softie, sort of depressed and afraid of losing the people I love or failing them. To disguise that, there’s all this harsh, poop-centric, external swagger, full of nastiness. I’m a cloaking device.
+ - The most hopeful thing in the stories, I hope, is wit. I make it up. If I make up a world in which we’re ruled by big talking turds, it doesn’t mean that we are. So you shouldn’t feel depressed...
+ - Whenever you talk about writing I think you have to remember that it all has a big question mark over it – every word has a big question mark over it.
+ - The chances of a person breaking through their own habits and sloth and limited mind to actually write something that gets out there and matters to people are slim.
+ - When I’m explaining something to you, if I’m being long-winded, and twisty in a non-productive way, I could make you feel vaguely insulted. And you’d have a right to be.
+ - Err in the direction of kindness.
+ - So I may not have had a gothic childhood, but childhood makes its own gothicity.
+ - I tend to foster drama via bleakness. If I want the reader to feel sympathy for a character, I cleave the character in half, on his birthday. And then it starts raining. And he’s made of sugar.
+ - I was a straight arrow, a control freak. I didn’t do drugs or drink, and this was the ’70s. I didn’t like the loss of control. Which isn’t exactly right, because I didn’t know what happened when you did drugs.
+ - Developing our sympathetic compassion is not only possible but the only reason for us to be here on earth.
+ - If I’m writing a story and you’re reading it, or vice versa, you took time out of your day to pick up my book. I think the one thing that will kill that relationship is if you feel me condescending to you in the process.
+ - The artist’s job, I think, is to be a conduit for mystery.
+ - I think that’s one of the maybe under-discussed aspects of process – the difference between a good writing day and a bad one is the quality of the split-second decisions you made.
+ - I think even like Saddam Hussein or Hitler would wake up and say, “I think it’s going to be a good day. I’m gonna do some really important work.” And given their definition of good, they went out and did horrible things.
+ - She said America was a spoiled child ignorant of grief.
+ - That’s what a story must feel like to me. It’s not, “I want to write about a gravedigger.” But you’re walking along and – boop! shovel. “Ok, what does one do with a shovel? Digs a hole. Why? I don’t know yet. Dig the hole! Oh, look a body.”
+ - Success makes opportunities and so many of those “opportunities” are actually exemptions – from hardship, from unfriendliness, from struggle.
+ - This may be the one clear truth of the so-called border issue: Put a poor country next to a rich one and watch which way the traffic flows. Add impediments, the traffic endeavors to flow around them. Eilimate disparity. the traffic stops.
+ - According to me, your life is going to be a gradual process of becoming kinder and more loving. Hurry up. Speed it along. Start right now.
+ - I’ve had the thought that a person’s ‘artistic vision’ is really just the cumulative combination of whatever particular stances he has sincerely occupied during his creative life – even if some of those might appear contradictory.
+ - For me, the fiction writer’s job is to take the small, stupid process of learning to use an iPhone – and suddenly you’re the guy who’s asking your daughter, “When I go on Facebook, can it see me?”
+ - So here’s something I know to be true, although it’s a little corny, and I don’t quite know what to do with it:.
+ - Character is that sum total of moments we can’t explain.
+ - What a powerful thing to know: That one’s own desires are mappable onto strangers; that what one finds in oneself will most certainly be found in The Other.
+ - Twitter is a deliberate abstention. Somehow I hate the idea of there always being, in the back of my mind, this little voice saying: ‘Oh, I should tweet about this.’
+ - If you think of a work of fiction as a kind of scale model of the world, then the positive valences – where things turn out better than you thought they would – ought to be in there somewhere, too.
+ - The number of rooms in a fictional house should be inversely proportional to the years during which the couple living in that house enjoyed true happiness.
+ - When I was a kid, I took ‘The Brady Bunch’ and ‘The Partridge Family’ very seriously. It was a world to me in the same way that the Greek myths would have been had I read them. You know, Marcia is Athena and Mr. Brady is Zeus.
+ - It is technically very hard to show positive manifestations. But I can look back at the way I thought and felt even as a little kid and there was a lot of wonder there, and openness to the many sides of life.
+ - I’ve seen time and time again the way that the process of trying to say something dignifies and improves a person.
+ - I was a big and un-ironic fan of Dear Abby when I was a kid in Chicago. I think I sort of internalized her. So I have this inner Abby: cranky, proper, folksy yet scathing, with a beehive hairdo. But that’s my issue.
+ - I feel that there is nothing that can happen to a person that is banal. Everything that happens to us is interesting.
+ - The word ‘funny’ is a bit like the word ‘love’ – we don’t have enough words to describe the many varieties.
+ - I grew up in Chicago on the South Side, and had a ton of freedom, just did whatever I wanted, whenever I wanted. At the risk of sounding dopey, I would say it was blissful.
+ - I love the idea that more people would read short fiction. I think it’s such a humanizing form. It softens the boundaries between people.
+ - America, to me, should be shouting all the time, a bunch of shouting voices, most of them wrong, some of them nuts, but please, not just one droning glamourous reasonable voice.
+ - I have finally realized that, you know, it’s not a given that my lifespan will accommodate my writing aspirations.
+ - I am always considering the reader. Although this is admittedly kind of odd: Which reader? On what day? In what mood? For me, that “reader” is actually just me, if I had never read the story before.
+ - I think it was a big revelation to me earlier in my life that people who appear to be evil are actually not. In other words, nobody wakes up in the morning and says, “Yuck, yuck, yuck, I’m gonna be evil.”
+ - It’s funny with fiction – once you cut something, it hasn’t happened anymore.
+ - Sometimes I think fiction exists to model the way God might think of us, if God had the time and inclination to do so.
+ - The one thing fiction and non-fiction writing have in common for me is that sense of trying to get the sentences to be minimal but at the same time be a little overfull – to encourage them to do a kind of poetic work.
+ - A John Updike is a once-in-a-generation phenomenon, if that generation is lucky: so comfortable in so many genres, the same lively, generous intelligence suffusing all he did.
+ - The writer, in order to proceed, is theoretically trying to predict where his complex skein of language and image has left his reader, who he has likely never met and who is actually thousands of readers.
+ - If you want to explore a political idea in the highest possible way, you embody it in the personal, because that’s something that no one can deny.
+ - My heartfelt wish for you: as you get older, your self will diminish and you will grow in love.
+ - I love the feeling of being on the hunt – the feeling that the story is refusing to be solved in some lesser way and is insisting that you see it on its highest terms.
+ - That seems to be the definition of ‘novel’ for me: a story that hasn’t yet discovered a way to be brief.
+ - A culture’s ability to understand the world and itself is critical to its survival. But today we are led into the arena of public debate by seers whose main gift is their ability to compel people to continue to watch them.
+ - It really strikes me how much of your energy in America, especially if you’re from a working back-ground, is spent just keeping your head above water. It really saps your grace and your strength.
+ - I understand what something short should be like. I understand beauty in that form. If I start extending, somehow I kind of lose my bearings.
+ - Every writer knows that when you’re imitating somebody – you know, you’re sounding like Faulkner – you’re doing pretty good, but your life in Hoboken isn’t Faulkneresque.
+ - There might be a different model for a literary community that’s quicker, more real-time, and involves more spontaneity.
+ - Whatever your supposed politics are – left, right – if you put it in a human connection, most people will rise to the occasion and feel the human pain in a way that they might not if it was presented in a more conceptual way.
+ - I’m not thinking much about overall themes or preoccupations or anything like that. Instead I’m just trusting that, if I’m working hard, various notions and riffs and motifs and so on are very naturally suffusing the stories and the resulting book.
+ - At times, they’re so Right and I’m so Left, we agree.
+ - When something really bad is going on in a culture, the average guy doesn’t see it. He can’t. He’s average and is surrounded by and immersed in the cant and discourse of the status quo.
+ - Positive human action is not only possible, but pervasive; human beings can improve and choose light and so on. And this is all happening.
+ - My idea about collections is that you write as hard as you can for some period and what you’re really doing during that time is hyper-focusing on the individual pieces – trying to make each one sit up and really do some surprising work.
+ - I’m comfortable with anything after the fact.
+ - In fact unrestrained capitalism is quite cruel and the cost is on the individual human, on his or her grace.
+ - I’m not a big fan of my books going on cross-country road trips. They get arrogant and, next thing, start aspiring to become ‘large-print’ books. I say, let them stay home and be regular small-print books.
+ - Writing a story I am just trying to find some little interesting thing to start out with: something small, even trivial. Preferably something that doesn’t have a lot of thematic or political baggage – a little crumb that is interesting.
+ - It seems to me that there are certain thoughts and vignettes and attitudes that I have always had the desire to represent.
+ - As a writer I’m essentially just trying to impersonate a first-time reader, who picks up the story and has to decide, at every point, whether to keep going.
+ - I often think about image, and image is something that – but in truth, the real artistic process, as I’ve understood it, is 95 percent intuitive, like seat-of-the-pants, at-the-moment decisions that you can’t even explain, you know?
+ - If I can be more efficient, I’m actually being more respectful to the reader, which then implies a greater intimacy with the reader.
+ - I think the trick of being a writer is to basically put your cards out there all the time and be willing to be as in the dark about what happens next as your reader would be at that time.
+ - I read Rand and thought, “I want to be one of the earth movers, the scientific people who power the world. I don’t want to be one of these lisping liberal artsy leeches.” So I was working against my actual abilities.
+ - Chekhov – shall I be blunt? – is the greatest short story writer who ever lived.
+ - Fiction is open to whoever comes in the door, as long as you come in energetically.
+ - If a writer understands his work as something that originates with him but then, with any luck, gets away from him, then what he needs is someone who can grasp the potential of the piece and lead him to that higher ground.
+ - I’m very happy – if I can do even a little bit of work to get the short story out more, I’m thrilled.
+
+107 quotes

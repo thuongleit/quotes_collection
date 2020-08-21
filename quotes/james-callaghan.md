@@ -1,0 +1,22 @@
+ - The rule of law should be upheld by all political parties. They should neither advise others to break the law, nor encourage others to do so even when they strongly disagree with the legislation put forward by the government of the day.
+ - Those who advocate devaluation are calling for a reduction in the wage levels and the real wage standards of every member of the working class.
+ - You never reach the promised land. You can march towards it.
+ - If Britain becomes a member of the Community, it will be healthier for Britain, advantageous for Europe, and a gain for the whole world. I do not know of many economic or political problems in the world which will be easier to solve if Britain is outside rather than inside the Community.
+ - Unilateral disarmament by Britain is opposed to our country’s best interests, could begin the unravelling of NATO and therefore jeopardise the stability of Europe.
+ - Society today is so organised that every individual group has the power to disrupt it. How is their power to be channelled into constructive channels?
+ - There are no instant solutions.
+ - A leader has to appear consistent. That doesn’t mean he has to be consistent.
+ - A leader must have the courage to act against an expert’s advice.
+ - Some people, however long their experience or strong their intellect, are temperamentally incapable of reaching firm decisions.
+ - The Soviet Union’s propaganda clearly wishes to use public opinion in this country to get the West to reduce its own arms while doing nothing themselves. In this way they would gain nuclear superiority. This is simply not on.
+ - I hate putting up taxes.
+ - I have not the slightest doubt that the economic measures and the Socialist measures which one will find in the countries of Eastern Europe, will become increasingly powerful against the unco-ordinated, planless society in which the West is living at present.
+ - I’ve never been one to say that Britain was joining a happy band of brothers.
+ - If we have to prove our Europeanism by accepting that French is the dominant language in the Community, then my answer is quite clear, and I will say it in French in order to prevent any misunderstanding: Non, merci beaucoup .
+ - If the law is a bad law, there is always the contingent right to take action that you would not otherwise take.
+ - The surtax payers, having been soaked, have found a way to get out of the rain.
+ - I am not proposing to seek your votes because there is a blue sky ahead today.
+ - I am rather in favour of dealing with teenage hooliganism.
+ - There is not a single injustice in Northern Ireland that is worth the loss of a single British soldier or a single Irish citizen either.
+
+20 quotes

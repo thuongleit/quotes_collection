@@ -1,0 +1,35 @@
+ - A happy man has no past, while an unhappy man has nothing else.
+ - Love is a glimpse of hope. To love is to hope. When we abandon hope, we cease to exist.
+ - Writing is not lying, nor is it theft. It is a journey and search for transparency between one’s words and one’s soul.
+ - We have a very foolish notion in Western countries that progress delivers freedom. But progress doesn’t necessarily bring moral virtue.
+ - The journey is long, the road is dark and frightening, but together we can reach our destination: the Tasmania of which we all dream, where all are welcome and all prosper, made no longer of lies but truth, built not of rich men’s hate but our love for our island and for each other.
+ - There are words and words and none mean anything. And then one sentence means everything.
+ - One cannot distinguish between human and non-human acts. One cannot point, one cannot say this man here is a man and that man there is a devil.
+ - We live in a material world, not a dramatic one.
+ - I’m afraid a lot of people have lost a lot of money over the years betting on me.
+ - Murder and hate are as deeply buried in the human heart as love, perhaps more so, and in truth they’re rather entwined, and if you tried to separate them, you’d be missing something important and human.
+ - Love is the scent of a sleeping back, death a slight draft of bad breath.
+ - Writing reminds you that you’re never alone. Writing and reading is to be optimistic.
+ - What you’re constantly seeking isn’t a style, but a transparency between your soul and the words. And your soul is ever in flux, so therefore you have to constantly find new forms of words that might be able to register these changes in the soul.
+ - Film is the art of turning money into light, and light into money. But it begins with money.
+ - The path to survival was to never give up on the small things.
+ - The enslavement, humiliation, torture, and ultimate destruction of thousands upon thousands of human beings for a project for which there was ultimately no purpose is a horror that’s very hard to imagine, far less understand.
+ - The idea of the past is as useless as the idea of the future. Both could be invoked by anybody about anything. There is never any more beauty than there is now. There is no more joy or wonder or sorrow than there is now, nor perfection, nor any more evil nor any more good than there is now.
+ - Most of us have loved. And the terror for a writer is that readers will forgive you so much, but they won’t forgive you one false note about love, about which they too are expert.
+ - We remember nothing. Maybe for a year or two. Maybe most of a life, if we live. Maybe. But then we will die, and who will ever understand any of this? And maybe we remember nothing most of all when we put our hands on our hearts and carry on about not forgetting.
+ - A writer has to stand outside the page. It’s not for the writer to shed tears onto the pages for these characters. It’s not for him to suffer or to laugh or to experience ecstasy or agony in the manner of the characters on the pages.
+ - What reality was ever made by realists?
+ - The fallacy is that you have to hold some sort of stake in the grief or horror in order to write about it – I think the opposite is true.
+ - I think empathy’s a terrible danger for a writer.
+ - You have to attempt to find new forms that will force you to write freshly and better and hopefully more truthfully.
+ - I think sometimes writers must attempt to communicate the incommunicable, because, whether they wish it or not, they’re the ones to whom it falls.
+ - I think writing should be about change.
+ - I had some bad jobs when I was young. Writing is not one of them. If you’re fortunate enough to reach my age, to still be writing, you have to be grateful, and I am. I’ve been lucky. For many years, all I’ve done is writing, and it’s all I’ve ever wanted to do.
+ - It’s a sin for a writer to go looking for camels to put into his or her pages. I only want details that are the story.
+ - I think it’s always wrong of writers to make too much of the pains of their labors, because most people have much worse jobs and suffer such indignities and hardships.
+ - Literary prizes serve a purpose if they allow for discussion of books.
+ - Is it easier for a man to live his life again as a fish, than to accept the wonder of being human? So alone, so frightened, so wanting for what we are afraid to give tongue to.
+ - When forging money, I had always salved my conscience by concluding that I was merely extending the lie of commerce.
+ - In the end you’re not made or broken by prizes. Your relationship is with your readers, not a prize, and you just have to keep on honoring that.
+
+33 quotes

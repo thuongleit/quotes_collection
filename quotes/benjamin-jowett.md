@@ -1,0 +1,21 @@
+ - The way to get things done is not to mind who gets the credit for doing them.
+ - Never retreat. Never explain. Get it done and let them howl.
+ - All translation is a compromise – the effort to be literal and the effort to be idiomatic.
+ - You’ve got to be success minded. You’ve got to feel that things are coming your way when you’re out selling; otherwise, you won’t be able to sell anything.
+ - Doubt comes in at the window when inquiry is denied at the door.
+ - Grace is an energy; not a mere sentiment; not a mere thought of the Almighty; not even a word of the Almighty. It is as real an energy as the energy of electricity. It is a divine energy; it is the energy of the divine affection rolling in plenteousness toward the shores of human need.
+ - Young men make great mistakes in life; for one thing, they idealize love too much.
+ - Plato’s dialogues bear at least some similarities to the classical plays.
+ - Nowhere probably is there more true feeling, and nowhere worse taste, than in a churchyard – both as regards the monuments and the inscriptions. Scarcely a word of true poetry anywhere.
+ - My dear child, you must believe in God despite what the clergy tells you.
+ - Give the clergy your sympathy; don’t give them anything else.
+ - Research ! A mere excuse for idleness; it has never achieved, and will never achieve any results of the slightest value.
+ - Precautions are always blamed. When successful they are said to be unnecessary.
+ - If you don’t find a God by five o’clock this afternoon you must leave the college.
+ - It is most important in this world to be pushing, but it is fatal to seem so.
+ - We can’t search or attain well being, wealth, studying, justice or kindness usually. Action is all the time particular, concrete, individualized, distinctive.
+ - One man is as good as another until he has written a book.
+ - There is a great deal of hard lying in the world; especially among people whose characters are above suspicion.
+ - To teach a man how he may learn to grow independently, and for himself, is perhaps the greatest service that one man can do another.
+
+19 quotes

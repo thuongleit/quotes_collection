@@ -1,0 +1,166 @@
+ - Politicians promise you heaven before election and give you hell after.
+ - The most violent element in society is ignorance.
+ - I’d rather have roses on my table than diamonds on my neck.
+ - A revolution without dancing is not a revolution worth having.
+ - If voting changed anything, they’d make it illegal.
+ - People have only as much liberty as they have the intelligence to want and the courage to take.
+ - I want freedom, the right to self-expression, everybody’s right to beautiful, radiant things.
+ - Out of the chaos the future emerges in harmony and beauty.
+ - I demand the independence of woman, her right to support herself; to live for herself; to love whomever she pleases, or as many as she pleases. I demand freedom for both sexes, freedom of action, freedom in love and freedom in motherhood.
+ - What a strange development of patriotism that turns a thinking being into a loyal machine!
+ - Direct action is the logical, consistent method of Anarchism.
+ - Ask for work. If they don’t give you work, ask for bread. If they do not give you work or bread, then take bread.
+ - If love does not know how to give and take without restrictions, it is not love, but a transaction that never fails to lay stress on a plus and a minus.
+ - Life without an ideal is spiritual death.
+ - Anarchism is the only philosophy which brings to man the consciousness of himself; which maintains that God, the State, and society are non-existent, that their promises are null and void, since they can be fulfilled only through man’s subordination.
+ - No one has yet realized the wealth of sympathy, the kindness and generosity hidden in the soul of a child. The effort of every true education should be to unlock that treasure.
+ - Patriotism is a menace to liberty.
+ - Real wealth consists in things of utility and beauty, in things that help to create strong, beautiful bodies and surroundings inspiring to live in.
+ - I don’t care if a man’s theory for tomorrow is correct, I care if his spirit of today is correct.
+ - I believe – indeed, I know – that whatever is fine and beautiful in the human expresses and asserts itself in spite of government, and not because of it.
+ - Those who sit in a glass house do wrong to throw stones about them; besides, the American glass house is rather thin, it will break easily, and the interior is anything but a gainly sight.
+ - Every society has the criminals it deserves.
+ - Art is a part of the rebellion against the realities of its unfulfilled desire.
+ - We say that if America has entered the war to make the world safe for democracy, she must first make democracy safe in America.
+ - Jealousy is the very reverse of understanding, of sympathy, and of generous feeling. Never has jealousy added to character, never does it make the individual big and fine.
+ - Modern woman is no longer satisfied to be the beloved of a man; she looks for understanding, comradeship; she wants to be treated as a human being and not simply as an object for sexual gratification.
+ - Religion, the dominion of the human mind; Property, the dominion of human needs; and Government, the dominion of human conduct, represent the stronghold of man’s enslavement and all the horrors it entails.
+ - Women need not always keep their mouths shut and their wombs open.
+ - The most vital right is the right to love and be loved.
+ - Someone has said that it requires less mental effort to condemn than to think.
+ - You cannot build up a standing army and then throw it back into a box like tin soldiers. Armies equipped to the teeth with weapons, with highly developed instruments of murder and backed by their military interests, have their own dynamic functions.
+ - The strongest bulwark of authority is uniformity; the least divergence from it is the greatest crime.
+ - In modern capitalism economic exploitation rather than political oppression is the real enemy of the people.
+ - Pettiness separates; breadth unites. Let us be broad and big.
+ - Marriage is primarily an economic arrangement, an insurance pact. It differs from the ordinary life insurance agreement only in that it is more binding, more exacting.
+ - Woman, essentially a purist, is naturally bigoted and relentless in her effort to make others as good as she thinks they ought to be.
+ - Love needs no protection; it is its own protection.
+ - When in the course of human development, existing institutions prove inadequate to the needs of man, when they serve merely to enslave, rob and oppress mankind, the people have the eternal right to rebel against, and overthrow, these institutions.
+ - Before we can forgive one another, we have to understand one another.
+ - The most disheartening tendency common among readers is to tear out one sentence from a work, as a criterion of the writer’s ideas or personality.
+ - Conceit, arrogance, and egotism are the essentials of patriotism.
+ - If not for the direct action of a John Brown and his comrades, America would still trade in the flesh of the black man.
+ - Poor America, of what avail is all her wealth, if the individuals comprising the nation are wretchedly poor? If they live in squalor, in filth, in crime, with hope and joy gone, a homeless, soulless army of human prey.
+ - When we can’t dream any longer we die.
+ - Poor human nature, what horrible crimes have been committed in thy name! All wars are wars among thieves who are too cowardly to fight and who therefore induce the young manhood of the whole world to do the fighting for them.
+ - Understand one another.
+ - The majority cares little for ideals and integrity. What it craves is display.
+ - Militarism consumes the strongest and most productive elements of each nation. Militarism swallows the largest part of the national revenue.
+ - If they do not give you work, demand bread. If they deny you both, take bread. It is your sacred right!
+ - Liberty will not descend to a people; a people must raise themselves to Liberty.
+ - Lack of fairness to an opponent is essentially a sign of weakness.
+ - The demand for equal rights in every vocation of life is just and fair; but, after all, the most vital right is the right to love and be loved.
+ - Poor human nature, what horrible crimes have been committed in thy name!
+ - You have opened up the prison gates of my womanhood. And all the passion that was unsatisfied in for me so many years, leaped into a wild reckless storm boundless as the sea.
+ - In the face of this approaching disaster, it behooves men and women not yet overcome by war madness to raise their voice of protest, to call the attention of the people to the crime and outrage which are about to be perpetrated on them.
+ - What I believe is a process rather than a finality.
+ - Jealousy is indeed a poor medium to secure love, but it is a secure medium to destroy one’s self-respect. For jealous people, like dope-fiends, stoop to the lowest level and in the end inspire only disgust and loathing.
+ - It is the absolutism of theism, its pernicious influence upon humanity, its paralyzing effect upon thought and action, which Atheism is fighting with all its power.
+ - Give us what belongs to us in peace, and if you don’t give it to us in peace, we will take it by force.
+ - The individual is the true reality of life. A cosmos in himself, he does not exist for the State, nor for that abstraction called “society,” or the “nation,” which is only a collection of individuals.
+ - The pathos of it all is that the America which is to be protected by a huge military force is not the America of the people, but that of the privileged class...
+ - True emancipation begins neither at the polls nor in the courts. It begins in woman’s soul.
+ - It is organized violence on the top which creates individual violence at the bottom.
+ - Religion is a superstition that originated in man’s mental inability to solve natural phenomena. The Church is an orgainized institution that has always been stumbling to block progress.
+ - Christ and his teachings are the embodiment of submission, of inertia, of the denial of life; hence responsible for the things done in their name.
+ - Salvation lies in an energetic march onward towards a brighter and clearer future.
+ - It is safe to say that no other superstition is so detrimental to growth, so enervating and paralyzing to the minds and hearts of the people, as the superstition of Morality.
+ - Idealists foolish enough to throw caution to the winds have advanced mankind and have enriched the world.
+ - It is characteristic of theistic “tolerance” that no one really cares what the people believe in, just so they believe or pretend to believe.
+ - The spirit of militarism has already permeated all walks of life. Indeed, I am convinced that militarism is a greater danger here than anywhere else, because of the many bribes capitalism holds out to those whom it wishes to destroy.
+ - Man must get back to himself before he can learn his relation to his fellows. Prometheus chained to the Rock of Ages is doomed to remain the prey of the vultures of darkness. Unbind Prometheus, and you dispel the night and its horrors.
+ - I may be arrested, I may be tried and thrown into jail, but I never will be silent.
+ - Why waste your life working for a few shillings a week in a scullery, eighteen hours a day, when a woman could earn a decent wage by selling her body instead?
+ - More pernicious than the power of a dictator is that of a class; the most terrible – the tyranny of a majority.
+ - Crime is naught but misdirected energy.
+ - True, the movement for women’s rights has broken many old fetters, but it has also forged new ones.
+ - Yes, love is free; it can dwell in no other atmosphere.
+ - Every daring attempt to make a great change in existing conditions, every lofty vision of new possibilities for the human race, has been labeled Utopian.
+ - Atheism in its negation of gods is at the same time the strongest affirmation of man, and through man, the eternal yea to life, purpose, and beauty.
+ - From infancy, almost, the average girl is told that marriage is her ultimate goal; therefore her training and education must be directed toward that end. Like the mute beast fattened for slaughter, she is prepared for that.
+ - Jealousy is indeed a poor medium to secure love, but it is a secure medium to destroy one.
+ - The triumph of the philosophy of Atheism is to free man from the nightmare of gods; it means the dissolution of the phantoms of the beyond.
+ - They do not want to know that centralization is not only the death-knell of liberty, but also of health and beauty, of art and science, all these being impossible in a clock-like, mechanical atmosphere.
+ - To the moralist prostitution does not consist so much in the fact that the woman sells her body, but rather that she sells it out of wedlock.
+ - Public school – where the human mind is drilled and manipulated into submission to various social and moral spooks, and thus fitted to continue our system of exploitation and oppression.
+ - The free expression of the hopes and aspirations of a people is the greatest and only safety in a sane society.
+ - Have not all theists painted their Deity as the god of love and goodness? Yet after thousands of years of such preachments the gods remain deaf to the agony of the human race.
+ - The whole history of man is continuous proof of the maxim that to divest one’s methods of ethical concepts means to sink into the depths of utter demoralization.
+ - There’s never been a good government.
+ - Revolution is but thought carried into action.
+ - When we have undermined the patriotic lie, we shall have cleared the path for the great structure where all shall be united into a universal brotherhood – a truly free society.
+ - All claims of education notwithstanding, the pupil will accept only that which his mind craves.
+ - The more hideous the mental contortions, the greater the delight and bravos of the mass.
+ - There are, however, some potentates I would kill by any and all means at my disposal. They are Ignorance, Superstition, and Bigotry – the most sinister and tyrannical rulers on earth.
+ - The benefits brought to the Russian people by Bolshevism exist only on paper painted in glowing colors by Bolshevist propaganda.
+ - Puritanism, in whatever expression, is a poisonous germ. On the surface everything may look strong and vigorous; yet the poison works its way persistently, until the entire fabric is doomed.
+ - True, we have no conscription; that is, men are not usually forced to enlist in the army, but we have developed a far more exacting and rigid force-necessity.
+ - Free love? as if love is anything but free. Man has bought brains, but all the millions in the world have failed to buy love.
+ - Prostitution, although hounded, imprisoned, and chained, is nevertheless the greatest triumph of Puritanism.
+ - The import is not the kind of work woman does, but rather the quality of the work she furnishes.
+ - There is no such thing as a good government. There never was. There can’t be.
+ - The reward in heaven is the perpetual bait, a bait that has caught man in an iron net, a strait-jacket which does not let him expand or grow.
+ - The God idea is growing more impersonal and nebulous in proportion as the human mind is learning to understand natural phenomena and in the degree that science progressively correlates human and social events.
+ - It is organized violence on top which creates individual violence at the bottom. It is the accumulated indignation against organized wrong, organized crime, organized injustice, which drives the political offender to act.
+ - The persecution of the innovator and protestant has always been inspired by fear on the part of constituted authority of having its infallibility questioned and its power undermined.
+ - Democracy must first be safe for America before it can be safe for the world.
+ - Heaven must be an awfully dull place if the poor in spirit live there.
+ - It is significant that whenever the public mind is to be diverted from great social wrong, a crusade is inaugurated against indecency.
+ - The majority represent a mass of cowards, willing to accept him who mirror its own soul and mind poverty.
+ - Only when human sorrows are turned into a toy with glaring colors will baby people become interested – for a while at least. The people are a very fickle baby that must have new toys every day.
+ - The State, every government whatever its form, character or color – be it absolute or constitutional, monarchy or republic, Fascist, Nazi or bolshevik – is by its very nature conservative, static, intolerant of change and opposed to it.
+ - Let us not overlook vital things, because of the bulk of trifles confronting us.
+ - We Americans claim to be a peace-loving people. We hate bloodshed; we are opposed to violence. Yet we go into spasms of joy over the possibility of projecting dynamite bombs from flying machines upon helpless citizens.
+ - Revolution that divests itself of ethical values thereby lays the foundation of injustice, deceit, and oppression for the future society.
+ - The State has no more existence than gods and devils have. They are equally the reflex and creation of man, for man, the individual, is the only reality. The State is but the shadow of man, the shadow of his opaqueness, of his ignorance and fear.
+ - Nothing would prove more disastrous to our ideas, we contended, than to neglect the effect of the internal upon the external, of the psychological motives and needs upon existing institutions.
+ - No, it is not because woman is lacking in responsibility, but because she has too much of the latter that she demands to know how to prevent conception.
+ - No great idea in its beginning can ever be within the law. How can it be within the law? The law is stationary. The law is fixed. The law is a chariot wheel which binds us all regardless of conditions or place or time.
+ - One cannot be too extreme in dealing with social ills; the extreme thing is generally the true thing.
+ - After all, that is what laws are for, to be made and unmade.
+ - The ultimate end of all revolutionary social change is to establish the sanctity of human life, the dignity of man, the right of every human being to liberty and well-being.
+ - Anarchism is the great liberator of man from the phantoms that have held him captive; it is the arbiter and pacifier of the two forces for individual and social harmony.
+ - On rare occasions one does hear of a miraculous case of a married couple falling in love after marriage, but on close examination it will be found that it is a mere adjustment to the inevitable.
+ - There is no hope even that woman, with her right to vote, will ever purify politics.
+ - Anarchism, then, really stands for the liberation of the human mind from the dominion of religion.
+ - The history of progress is written in the blood of men and women who have dared to espouse an unpopular cause, as, for instance, the black man’s right to his body, or woman’s right to her soul.
+ - The State is the altar of political freedom and, like the religious altar, it is maintained for the purpose of human sacrifice.
+ - How to raise this dead level of theistic belief is really a matter of life and death for all denominations. Therefore their tolerance; but it is a tolerance not of understanding; but of weakness.
+ - There can be no freedom in the large sense of the word, no harmonious development, so long as mercenary and commercial considerations play an important part in the determination of personal conduct.
+ - Perhaps even more than constituted authority, it is social uniformity and sameness that harass the individual most.
+ - Since every effort in our educational life seems to be directed toward making of the child a being foreign to itself, it must of necessity produce individuals foreign to one another, and in everlasting antagonism with each other.
+ - To-day is the parent of to-morrow. The present casts its shadow far into the future.
+ - The history of human growth is at the same time the history of every new idea heralding the approach of a brighter dawn, and the brighter dawn has always been considered illegal, outside of the law.
+ - No great idea in its beginning can ever be within the law. How can it be within the law?
+ - Whether our reformers admit it or not, the economic and social inferiority of women is responsible for prostitution.
+ - We shall soon be obliged to meet in cellars, or in darkened rooms with closed doors, and speak in whispers lest our next door neighbors should hear that freeborn citizens dare not speak in the open.
+ - Christianity is most admirably adapted to the training of slaves, to the perpetuation of a slave society.
+ - Revolution is indeed a violent process. But if it is to result only in a change of dictatorship, in a shifting of names and political personalities, then it is hardly worth while.
+ - The political arena leaves one no alternative, one must either be a dunce or a rogue.
+ - The contention that a standing army and navy is the best security of peace is about as logical as the claim that the most peaceful citizen is he who goes about heavily armed.
+ - What I prized most was freedom, freedom to do my work, to give myself spontaneously and not out of duty or by command. I could not submit to such demands; rather would I choose the path of a homeless wanderer; yes, even go without love.
+ - Thinking men and women the world over are beginning to realize that patriotism is too narrow and limited a conception to meet the necessities of our time.
+ - As to a thorough eradication of prostitution, nothing can accomplish that save a complete transvaluation of all accepted values – especially the moral ones – coupled with the abolition of industrial slavery.
+ - Merely external emancipation has made of the modern woman an artificial being. Now, woman is confronted with the necessity of emancipating herself from emancipation, if she really desires to be free.
+ - Social and economic well-being will become a reality only through the zeal, courage, the non-compromising determination of intelligent minorities, and not through the mass.
+ - The American suffrage movement has been, until very recently, altogether a parlor affair, absolutely detached from the economic needs of the people.
+ - It cannot be sufficiently emphasized that revolution is in vain unless inspired by its ultimate ideal. Revolutionary methods must be in tune with revolutionary aims.
+ - Politics is the reflex of the business and industrial world.
+ - A true conception of the relation of the sexes will not admit of conqueror and conquered; it knows of but one great thing; to give of one’s self boundlessly, in order to find one’s self richer, deeper, better.
+ - Always, at every period, the few were the banner bearers of a great idea, of liberating effort. Not so the mass, the leaden weight of which does not let it move.
+ - It is essential that we realize once and for all that man is much more of a sex creature than a moral creature. The former is inherent, the other is grafted on.
+ - To call the State an organism shows a diseased tendency to make a fetish of words.
+ - Mankind has been punished long and heavily for having created its gods; nothing but pain and persecution have been man’s lot since gods began.
+ - Corruption of politics has nothing to do with the morals, or the laxity of morals, of various political personalities. Its cause is altogether a material one.
+ - Even were the workers able to have their own representatives, for which our good Socialist politicians are clamoring, what chances are there for their honesty and good faith?
+ - The individual whose vision encompasses the whole world often feels nowhere so hedged in and out of touch with his surroundings as in his native land.
+ - To the indefinite, uncertain mind of the American radical the most contradictory ideas and methods are possible. The result is a sad chaos in the radical movement, a sort of intellectual hash, which has neither taste nor character.
+ - In the true sense one’s native land, with its background of tradition, early impressions, reminiscences and other things dear to one, is not enough to make sensitive human beings feel at home.
+ - The average mind is easily content with inherited and acquired things, or with the dicta of parents and teachers, because it is much easier to imitate than to create.
+ - Methods and means cannot be separated from the ultimate aim.
+ - The inhabitants of the other spots reason in like manner, of course, with the result that from early infancy the mind of the child is provided with blood-curdling stories about the Germans, the French, the Italians, Russians, etc.
+ - The State is a term for the legislative and administrative machinery whereby certain business of the people is transacted, and badly so.
+ - If I can not dance, I want no part in your revolution.
+ - Morality and its victim, the mother – what a terrible picture! Is there indeed anything more terrible, more criminal, than our glorified sacred function of motherhood?
+
+164 quotes

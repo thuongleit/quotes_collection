@@ -1,0 +1,45 @@
+ - Each one of us can make a difference. Together we make change.
+ - Politics is social work with power.
+ - America is not a melting pot. It is a sizzling cauldron.
+ - I thought in this country, the best social program was a job. Yet minimum wage jobs arent paying enough to keep families out of poverty.
+ - College is part of the American dream. It shouldnt be part of a financial nightmare for families.
+ - You cant get more for less. You get what you pay for.
+ - When you’re up in Maine, there is Canada, I mean it’s looking right at you; it’s a different viewpoint.
+ - We, the women of the Senate, with President Obama by our side, will keep fighting – our shoulders square, our lipstick on – because you deserve equal pay for your hard work.
+ - A pregnant woman facing the most dire circumstances must be able to count on her doctor to do what is medically necessary to protect her from serious physical harm.
+ - Family responsibility, yes, and always. Family bankruptcy due to the cruel rules of government, no.
+ - Every vote counts and every vote must be counted.
+ - I’m shocked at the sexism and double standard coming out of the far right.
+ - Community colleges are one of Americas great social inventions a gateway to the future for first time students looking for an affordable college education, and for mid-career students looking to get ahead in the workplace.
+ - I think leadership is creating a state of mind in others.
+ - George Mitchell was a very good leader, and we were more than satisfied with his leadership. And I know the guys were jealous.
+ - What I like best in Baltimore is the people, the neighborhoods and what goes on in the neighborhoods. Each has its own stories, own diners and own quirks. It’s about community. I also like everything Old Bay.
+ - I would say that in some ways George Mitchell is kind of an old fashioned guy, in terms of these basic values, but he was a very modern person, encouraging, he was not only accepting but he was actually encouraging.
+ - The family is not only a living arrangement. It has always been a symbol of survival.
+ - I think, though, with that whole sense of integrity and a lot of things that have been going on, the shared leadership rather than the titular head.
+ - We work on macro issues and macaroni and cheese issues. When women are in the halls of power, our national debate reflects the needs and dreams of American families.
+ - People had so much respect for George Mitchell. They wanted to cooperate with him. I think that’s a hallmark of a very good leader.
+ - The world must know that America holds to the highest standards of military conduct and human rights protections. Anything less is unacceptable.
+ - In American Society today, we need to have volunteerism. I truly believe that it is the glue that will hold us together and it will be the energy that will take us into the 21st century.
+ - When we stand up for America, we stand up for what America stands for, which is a safety net for our seniors and really helping our families be able to help themselves.
+ - Look how Bill Cohen and George Mitchell worked together. It’s the stuff of legends. And now it’s the stuff of almost ancient history, regrettably, but the way those two really worked together.
+ - I’m so proud of Maryland’s firefighters, risking their lives to protect others, but we need to protect our protectors with the best equipment training and resources.
+ - We must be careful that the people who make $5,000 a year are not pitted against those that make $25,000 a year by those who make $900,000.
+ - One hundred thousand dollars was the bridge that enabled me to go on TV, not miss a beat or miss an opportunity, and raise then my own money to carry me forth. And that’s how I got to be the first Democratic woman in the United States Senate’s history.
+ - I will fight in the United States Senate this year to fund a servicing mission to Hubble by 2008, a mission that would potentially increase Hubbles power and efficiency by a factor of 10 and allow us to look back almost to the beginning of the universe.
+ - I think George Mitchell was good for Maryland in the sense that he helped me get elected. It doesn’t get any better than that from here on.
+ - When it comes to standing up for veterans, we cannot be the Republicans and Democrats, we have to be the red, white, and blue party.
+ - I would like to be the first ambassador to the United States from the United States.
+ - I think George Mitchell believed in promoting women.
+ - Women would be disproportionately affected by the privatization of social security. It is one of the most important safety nets for American women in old age, or in times of disability, to insure financial income for their families.
+ - I am emphatically against the privatization of Social Security. It is going to hurt millions of American women, American families and ultimately the whole country.
+ - I truly believe that before I retire from public office, I’ll be voting for a woman for president.
+ - I would say George Mitchell was like Clark Kent sometimes with his horn rimmed glasses and his very quiet manner. People say, well, he’s just a quiet leader, but then he emerges as super hero and begins to move this legislation. He led by example.
+ - I always said that though I was the first, I wanted to be the first of many.
+ - People aren’t for hitting.
+ - Martha Pope herself is a legend within the institution, and he was enormously supportive. And me and the women candidates.
+ - Nothing really happened – I was elected in ’86 – until 1992, and that’s when the Anita Hill debacle happened.
+ - Let us get on with creating the democratic and pluralistic society that we say we are.
+ - America must continue diplomacy, even as we continue the war, to expand the coalition of the willing to share the burden of war and to share the responsibility and the economic cost of rebuilding Iraq.
+
+43 quotes

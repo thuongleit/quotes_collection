@@ -1,0 +1,26 @@
+ - Dreams are illustrations from the book your soul is writing about you.
+ - Knowing is the most profound kind of love, giving someone the gift of knowledge about yourself.
+ - Art is how a culture records its life, how it poses questions for the next generation and how it will be remembered.
+ - Write about the thing that frightens you most.
+ - Music expresses longing and love and joy better than any piece of dialogue you can ever write.
+ - If someone wants to say ‘I love you’ in a straight play, they say it, and then it’s the other person’s turn to talk. But in a song, you can sing about it for another three minutes. The musical form has that unique opportunity to express at length what joy really feels like.
+ - We are not afraid to look under the bed, or to wash the sheets; we know that life is messy. We know that somebody has to clean it up, and that only if it is cleaned up can we hope to start over, and get better.
+ - I’m just not having a very good time and I don’t have any reason to think it’ll get anything but worse. I’m tired. I’m hurt. I’m sad. I feel used.
+ - People do think that if they avoid the truth, it might change to something better before they have to hear it.
+ - There are days when I think the National Endowment for the Arts should issue a quota system for the production of plays by women – especially when you realize women buy 70 percent of all theater tickets.
+ - Jesus was a suicide, if you ask me.
+ - People listen to music with cavemen ears: Is it a bird song or the call of a lion? The audience at a musical is dancing in their hearts.
+ - There are things that music can do that language could never do, that painting could never do, or sculpture. Music is capable of going directly to the source of the mystery. It doesn’t have to explain it. It can simply celebrate it.
+ - The theater is a communal event, like church. The playwright constructs a mass to be performed for a lot of people. She writes a prayer, which is really just the longings of one heart.
+ - I’m who I was waiting for. I didn’t make it.
+ - What’s so good about a heaven where, one of these days, you’re going to get your embarrassing old body back?
+ - Success is always something that you have to recover from.
+ - I grew up at the piano, and I longed to write musicals.
+ - I have had an inordinate and painful concern for the audience in my writing career.
+ - When you fight something long enough, it becomes a center pole right in your life and you count on it to be there to fight with.
+ - At the heart of the failure of most plays is the inability to carry on a thoughtful conversation about your work with yourself.
+ - If I had not had music in my life, I would be the neurasthenic vision of the playwright.
+ - I feel that I speak the musical language.
+ - In the theater, when people hear that you’re writing a play, they want to know what it’s all about, whether there’s a role for them. You write it fairly quickly, and it becomes a group activity before you’re really ready to have company.
+
+24 quotes

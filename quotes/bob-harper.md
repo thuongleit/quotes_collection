@@ -1,0 +1,29 @@
+ - Believe in yourself. Trust the process. Change forever.
+ - Stand up and finish what you started.
+ - Yoga is the fountain of youth. You’re only as young as your spine is flexible.
+ - I have found that CrossFit has made me more fit than I have ever been.
+ - There’s no finish line. That’s a big pill for people to swallow, Every single day for the rest of your life, you are going to have to make better food choices, and move around a bit more.
+ - CrossFit is all about constantly-varied, high-intensity movements. And to do these movements, you have to have a certified coach to take you through this – or any type of physical activity.
+ - You need a good support system when you’re trying to make positive lifestyle changes. If everyone is eating burgers and fries while you’re having fish and salad, it’s easy to lose your willpower.
+ - I believe in the power of the human spirit.
+ - The CrossFit program is broad, general and inclusive, and most of all, the movements can be scaled down to any level of athlete. Just watch what I do with it on ‘The Biggest Loser.’
+ - It’s the fact that no matter how bad it’s gotten, the body wants to be healthy. The body wants to bounce back. When you do these changes, you do these small changes every single day, and you trust the process of what you’re doing. You really do make lasting changes onto your body.
+ - If you’re wanting something salty, do air-popped popcorn. That, to me, would be a healthier choice than having any kind of fried chip.
+ - When life kicks you in the teeth and knocks you down to the ground. Are you able to stand up and keep fighting?! That’s what it’s all about.
+ - For me, working out is a form of therapy. It’s cathartic for me; it’s a good stress reliever. I know that when I go to the gym I am taking care of myself, and I know I’ll feel so much better afterwards.
+ - I don’t want anyone to ever put himself or herself in a box of, “I lost my second chance!” Because life brings you ebbs and flows, and if you miss out on this second chance, guess what, you’re going to get another one if you decide that you’re ready to have one.
+ - Even though you really don’t feel like you’re motivated to go to the gym, remember how good you felt after the last time you went. Keep that in the forefront of your brain.
+ - By default I am the good parent. I’ve used my own personal experience. I came from a world where I was in need and starving for the good parent, so it’s like I’m bringing my own persona issues into that. I am the parent that I always wanted to have; that’s how I look at my role.
+ - Our external environment no longer seems to have any firm boundaries, any limits, or any positive cues about when to stop consuming anything. I mean, there is a reason that people get fat – it’s easy and cheap to get high-calorie, tasty food.
+ - I’m tired of good people getting ripped off by diet products that don’t work!
+ - Since I started CrossFit, I’ve read and heard about the critics talk about how unsafe it is, and my only response to that is any form of exercise can be unsafe if you don’t have the proper coaching, education and guidance.
+ - Whatever the parents are doing, the kids will follow suit.
+ - I found that people like rules, and I love to tell people what to do. It’s not rocket science when it comes to weight loss. It’s about eating a little less and moving a little bit more.
+ - Try a recipe that uses leafy vegetables like kale, or switch to filling, high fiber grains like whole-wheat pasta.
+ - The path to obesity is paved with bacon and white bread; the way to skinny is built on apples and Ezekiel.
+ - Stop talking about tomorrow. You owe it to yourself to do whatever you can to live you can to live a better life today.
+ - If you want to be right-sized in body, you’ve got to get rid of the supersize way of life.
+ - You can’t be a parent and say, ‘I need you to be more active and I need you to eat right,’ when you’re still choosing to have poor eating habits.
+ - Jessica Alba to me is on the top of the food chain. She’s gorgeous, she’s smart, and she really takes care of herself. I think that she looks great. I think that as Jennifer Aniston gets older, she looks better and better, and I really like that.
+
+27 quotes

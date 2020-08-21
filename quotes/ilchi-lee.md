@@ -1,0 +1,37 @@
+ - Now is a time for change, a time to become the greatest version of yourself. And a time to to make your grandest vision of the world .
+ - You must believe you have limitless potential in order to manifest your genius fully. Tell yourself every day, “I am a genius,” and believe it.
+ - Your mind creates everything. Your conscious mind has much greater power than you can ever imagine. Your mind can create blessings or disasters, can heal or harm, can bring abundance or absence. It is up to your mind whether the world looks hopeful or hopeless.
+ - To see truth as truth, we don’t need a lot of study. It’s not complicated. What we need is pure observation. An open mind and fresh eyes will serve us well.
+ - Our exclusive dependence on rational thought and language has obscured our natural ability to sense the flow of energy.
+ - Truth is truth, not the explanations of Truth. Truth is a living, moving process. Truth is constantly undulating and vibrating. You can become one with the Truth, but you cannot adequately explain it.
+ - Create the temperature of your passion!
+ - In order to be the master of your life, you must first recognize that you are the rightful master of your brain, its owner and operator.
+ - Meditation is earnest prayer, and when prayer progresses, it becomes true meditation.
+ - Believe in the life inside you, believe in the great and holy mind within you, and push forward with the dream you have chosen until you make it.
+ - Choice is the doorway to our creative power. To unleash this power, we must begin from the state of beingness.
+ - Your body is a flower that life let bloom...
+ - I existed before I received this body. I am the external and fundamental life energy of the universe.
+ - The best way to become more creative is to create nothing. By this, I mean that you should return to zero point. Rid yourself of all the mental and emotional blocks that keep you from manifesting your full creative potential.
+ - Recalibration of the mind means clearing our perceptions and recovering our capacity for pure observation.
+ - The energy of life entering and leaving your body flows evenly throughout the universe. With that current, the mind of the cosmos communicates with all things.
+ - The human brain represents the infinity opportunity our powers are endless if we understand, harness, and empower ourselves to look inside and educate ourselves on our potential.
+ - When we hear our inner voice and follow it, we can walk our own path.
+ - I believe in the goodness of fellow human beings. We have a true desire for greatness and genuine good intention to be helpful to others. That’s enough. Change is possible.
+ - Now the choices you make are not about finding your path. Rather, they are choices to open the path you have found.
+ - People’s hearts color the heart of the earth and the earth colors the hearts of people.
+ - To take another breath, we must first exhale. When we have breathed out and emptied our lungs, we can breathe in again.
+ - We may not be able to create or control all of the events that impact our lives but we can create and control our responses to everything that we experience.
+ - Everything in existence undergoes constant change. The things that surround us, even our selves are temporary manifestations of Ki energy.
+ - Only when you have a changeless sense of who you are, can real change take place.
+ - There is a serious discrepancy between what we really wants, and what we usually do to get what we think we want. What we really want is to fill the hole inside and become complete, and what we do is look for success and growth outside.
+ - Dreams are reality that has not become true. However, in the hearts of some people, they have already come true. People whose dreams are already achieved in their hearts, and who can see that as they boldly throw themselves into it, have true courage.
+ - We live with many thoughts, emotions, and habits, but at the same time we have other eyes, another mind capable of watching all of these things. Those who practice self-cultivation find that mind; they live with it and they die with it.
+ - Attention has its most powerful expression in purposeful action.
+ - Change is the very nature of nature.
+ - The sensation of energy expands with increasing relaxation.
+ - You can encounter the great life within you when you recover the zero point. When you encounter that great life, all limits created by the thoughts and emotions vanish and infinite creativity springs forth.
+ - When you find the absolute values, you are important to this world because you know what is important. Those who know what is truly important are helpful to this world, because they won’t put their personal concerns before what is important to all.
+ - The key to meditation is to exist one hundred percent in the here and now.
+ - The person with a safe center doesn’t fear change. We can choose change without fear before a challenge only when we are strongly centered.
+
+35 quotes

@@ -1,0 +1,233 @@
+ - Knowledge is proud that it knows so much; wisdom is humble that it knows no more.
+ - God moves in a mysterious way, His wonders to perform. He plants his footsteps in the sea, and rides upon the storm.
+ - Trials make the promise sweet, Trials give new life to prayer; Trials bring me to His feet, Lay me low, and keep me there.
+ - Judge not the Lord by feeble sense, but trust Him for His grace; Behind a frowning providence He hides a smiling face.
+ - Variety’s the very spice of life, That gives it all its flavor.
+ - Ye fearful saints fresh courage take, The clouds you so much dread Are big with mercy and shall break, With blessings on your head.
+ - Absence from whom we love is worse than death, and frustrates hope severer than despair.
+ - There is mercy in every place. And mercy, encouraging thought gives even affliction a grace and reconciles man to his lot.
+ - God made the country, and man made the town.
+ - The bud may have a bitter taste, But sweet will be the flower.
+ - No man can be a patriot on an empty stomach.
+ - God made bees, and bees made honey, God made man, and man made money, Pride made the devil, and the devil made sin; So God made a cole-pit to put the devil in.
+ - Heaven’s harmony is universal love.
+ - In a fleshly tomb, I am buried above ground.
+ - My soul is sick with every day’s report of wrong and outrage with which earth is filled.
+ - But oars alone can ne’er prevail To reach the distant coast; The breath of Heaven must swell the sail, Or all the toil is lost.
+ - The path of sorrow, and that path alone, leads to the land where sorrow is unknown.
+ - Tea – the cups that cheer but not inebriate.
+ - Oh to have a lodge in some vast wilderness. Where rumors of oppression and deceit, of unsuccessful and successful wars may never reach me anymore.
+ - Solitude, seeming a sanctuary, proves a grave; a sepulchre in which the living lie, where all good qualities grow sick and die.
+ - A life of ease is a difficult pursuit.
+ - And diff’ring judgments serve but to declare that truth lies somewhere, if we knew but where.
+ - Oh winter, king of fire side enjoyments, home born happiness.
+ - Satan trembles when he sees the weakest saint upon their knees.
+ - All we behold is miracle.
+ - When nations are to perish in their sins, ’tis in the Church the leprosy begins.
+ - Forced from home, and all its pleasures, afric coast I left forlorn; to increase a stranger’s treasures, o the raging billows borne. Men from England bought and sold me, paid my price in paltry gold; but, though theirs they have enroll’d me, minds are never to be sold.
+ - We turn to dust, and all our mightiest works die too.
+ - Some write a narrative of wars and feats, Of heroes little known, and call the rant A history.
+ - Spring hangs her infant blossoms on the trees, Rock’d in the cradle of the western breeze.
+ - England with all thy faults, I love thee still – My country! and, while yet a nook is left Where English minds and manners may be found, Shall be constrained to love thee.
+ - Lord, it is my chief complaint, That my love is weak and faint; Yet I love thee and adore, Oh for grace to love thee more!
+ - Thus happiness depends, as nature shows, less on exterior things than most suppose.
+ - The darkest day, if you live till tomorrow, will have passed away.
+ - Elegant as simplicity, and warm As ecstasy.
+ - England, with all thy faults I love thee still, My country!
+ - Glory, built on selfish principles, is shame and guilt.
+ - How sweet, how passing sweet, is solitude! But grant me still a friend in my retreat, whom I may whisper, solitude is sweet.
+ - Be it a weakness, it deserves some praise, We love the play-place of our early days; The scene is touching, and the heart is stone, That feels not at that sight, and feels at none.
+ - A noisy man is always in the right.
+ - The kindest and the happiest pair Will find occasion to forbear; And something, every day they live, To pity, and perhaps forgive.
+ - As creeping ivy clings to wood or stone, And hides the ruin that it feeds upon, So sophistry, cleaves close to, and protects Sin’s rotten trunk, concealing its defects.
+ - Grief is itself a medicine.
+ - They whom truth and wisdom lead, can gather honey from a weed.
+ - Misses! the tale that I relate This lesson seems to carry – Choose not alone a proper mate, But proper time to marry.
+ - Fate steals along with silent tread, Found oftenest in what least we dread; Frowns in the storm with angry brow, But in the sunshine strikes the blow.
+ - A life all turbulence and noise may seem To him that leads it wise and to be praised, But wisdom is a pearl with most success Sought in still waters.
+ - A glory gilds the sacred page, Majestic like the sun, It gives a light to every age, It gives, but borrows none.
+ - Habits are soon assumed; but when we strive to strip them off, ’tis being flayed alive.
+ - There is no flesh in man’s obdurate heart; he does not feel for man.
+ - The innocent seldom find an uncomfortable pillow.
+ - Admirals extolled for standing still, or doing nothing with a deal of skill.
+ - Absence of occupation is not rest; A mind quite vacant is a mind distressed.
+ - Reasoning at every step he treads, Man yet mistakes his way, Whilst meaner things, whom instinct leads, Are rarely known to stray.
+ - But war’s a game, which, were their subjects wise, Kings should not play at. Nations would do well To extort their truncheons from the puny hands Of heroes, whose infirm and baby minds Are gratified with mischief, and who spoil, Because men suffer it, their toy the world.
+ - Detested sport, That owes its pleasures to another’s pain.
+ - Some people are more nice than wise.
+ - The solemn fop; significant and budge; A fool with judges, amongst fools a judge.
+ - Blest be the art that can immortalize, – the art that baffles time’s tyrannic claim to quench it.
+ - I venerate the man whose heart is warm, Whose hands are pure, whose doctrine and whose life, Coincident, exhibit lucid proof That he is honest in the sacred cause.
+ - Existence is a strange bargain. Life owes us little; we owe it everything. The only true happiness comes from squandering ourselves for a purpose.
+ - Laugh at all you trembled at before.
+ - No tree in all the grove but has its charms, Though each its hue peculiar.
+ - O solitude, where are the charms That sages have seen in thy face? Better dwell in the midst of alarms, Than reign in this horrible place.
+ - A teacher should be sparing of his smile.
+ - The mind, relaxing into needful sport, Should turn to writers of an abler sort, Whose wit well managed, and whose classic style, Give truth a lustre, and make wisdom smile.
+ - With spots quadrangular of diamond form, ensanguined hearts, clubs typical of strife, and spades, the emblems of untimely graves.
+ - A tale should be judicious, clear, succinct; The language plain, and incidents well link’d; Tell not as new what ev’ry body knows; and, new or old, still hasten to a close.
+ - Now stir the fire, and close the shutters fast, Let fall the curtains, wheel the sofa around, And while the bubbling and loud-hissing urn Throws up a steamy column, and the cups That cheer but not inebriate, wait on each, So let us welcome peaceful evening in.
+ - Slaves cannot breathe in England; if their lungs Receive our air, that moment they are free; They touch our country, and their shackles fall.
+ - Made poetry a mere mechanic art.
+ - Pleasure admitted in undue degree, enslaves the will, nor leaves the judgment free.
+ - But, oh, Thou bounteous Giver of all good, Thou art, of all Thy gifts, Thyself thy crown!
+ - They best can judge a poet’s worth, Who oft themselves have known The pangs of a poetic birth By labours of their own.
+ - Give what thou canst, without Thee we are poor; And with Thee rich, take what Thou wilt away.
+ - Riches have wings, and grandeur is a dream.
+ - Truth is the golden girdle of the globe.
+ - How happy it is to believe, with a steadfast assurance, that our petitions are heard even while we are making them; and how delightful to meet with a proof of it in the effectual and actual grant of them.
+ - I am out of humanity’s reach.
+ - Man disavows, and Deity disowns me: hell might afford my miseries a shelter; therefore hell keeps her ever-hungry mouths all bolted against me.
+ - Without one friend, above all foes, Britannia gives the world repose.
+ - Lights of the world, and stars of human race.
+ - Words learn’d by rote a parrot may rehearse, But talking is not always to converse, Not more distinct from harmony divine The constant creaking of a country sign.
+ - Blest be the art that can immortalize.
+ - If hindrances obstruct the way, Thy magnanimity display. And let thy strength be seen: But O, if Fortune fill thy sail With more than a propitious gale, Take half thy canvas in.
+ - The man that dares traduce, because he can with safety to himself, is not a man.
+ - Still ending, and beginning still.
+ - Pleasure is labour too, and tires as much.
+ - The few that pray at all pray oft amiss.
+ - Good sense, good health, good conscience, and good fame, – all these belong to virtue, and all prove that virtue has a title to your love.
+ - The man that hails you Tom or Jack, and proves by thumps upon your back how he esteems your merit, is such a friend, that one had need be very much his friend indeed to pardon or to bear it.
+ - A moral, sensible, and well-bred manWill not affront me, and no other can.
+ - The dogs did bark, the children screamed, Up flew the windows all; And every soul bawled out, Well done! As loud as he could bawl.
+ - O, popular applause! what heart of man is proof against thy sweet, seducing charms?
+ - Man on the dubious waves of error toss’d.
+ - The cares of today are seldom those of tomorrow, and when we lie down at night we may safely say to most of our troubles, “Ye have done your worst, and we shall see you no more.”
+ - Absence of proof is not proof of absence.
+ - Ever let the Fancy roam, Pleasure never is at home.
+ - I pity bashful men, who feel the pain Of fancied scorn and undeserved disdain, And bear the marks upon a blushing face, OF needless shame, and self-impos’d disgrace.
+ - How much a dunce that has been sent to roam, excels a dunce that has been kept at home.
+ - The bird that flutters least is longest on the wing.
+ - I pity them greatly, but I must be mum, for how could we do without sugar and rum?
+ - Fanaticism, the false fire of an overheated mind.
+ - Whoever keeps an open ear For tattlers will be sure to hear The trumpet of contention.
+ - There goes the parson, oh illustrious spark! And there, scarce less illustrious, goes the clerk.
+ - The rich are too indolent, the poor too weak, to bear the insupportable fatigue of thinking.
+ - Sin let loose speaks punishment at hand.
+ - Ye therefore who love mercy, teach your sons to love it, too.
+ - His wit invites you by his looks to come, But when you knock, it never is at home.
+ - A story, in which native humour reigns, Is often useful, always entertains; A graver fact, enlisted on your side, May furnish illustration, well applied; But sedentary weavers of long tales Give me the fidgets, and my patience fails.
+ - A man renowned for repartee will seldom scruple to make free with friendship’s finest feeling, will thrust a dagger at your breast, and say he wounded you in jest, by way of balm for healing.
+ - No one was ever scolded out of their sins.
+ - Religion! what treasure untold resides in that heavenly word!
+ - Not to understand a treasure’s worth till time has stole away the slighted good, is cause of half the poverty we feel, and makes the world the wilderness it is.
+ - When I thinkof my own native land, In a moment I seem to be there; But alas! recollection at hand Soon hurries me back to despair.
+ - It chills my blood to hear the blest Supreme Rudely appealed to on each trifling theme.
+ - The proud are ever most provoked by pride.
+ - Built God a church and laughed His word to scorn.
+ - For ’tis a truth well known to most, That whatsoever thing is lost, We seek it, ere it comes to light, In every cranny but the right.
+ - War’s a game, which, were their subjects wise, Kings would not play at.
+ - Call’d to the temple of impure delight He that abstains, and he alone, does right. If a wish wander that way, call it home; He cannot long be safe whose wishes roam.
+ - Nature is a good name for an effect whose cause is God.
+ - Strange as it may seem, the most ludicrous lines I ever wrote have been written in the saddest mood.
+ - Accomplishments have taken virtue’s place, and wisdom falls before exterior grace.
+ - To follow foolish precedents, and wink With both our eyes, is easier than to think.
+ - Vice stings us even in our pleasures, but virtue consoles us even in our pains.
+ - Though peace be made, yet it’s interest that keep peace.
+ - Thieves at home must hang; but he that puts Into his overgorged and bloated purse The wealth of Indian provinces, escapes.
+ - The earth was made so various, that the mind Of desultory man, studious of change, And pleased with novelty, might be indulged.
+ - Ten thousand casks, Forever dribbling out their base contents, Touch’d by the Midas finger of the state, Bleed gold for ministers to sport away. Drink, and be mad then; ’tis your country bids!
+ - To impute our recovery to medicine, and to carry our view no further, is to rob God of His honor, and is saying in effect that He has parted with the keys of life and death, and, by giving to a drug the power to heal us, has placed our lives out of His own reach.
+ - The Frenchman, easy, debonair, and brisk, Give him his lass, his fiddle, and his frisk, Is always happy, reign whoever may, And laughs the sense of mis’ry far away.
+ - Religion, if in heavenly truths attired, Needs only to be seen to be admired.
+ - The man to solitude accustom’d long, Perceives in everything that lives a tongue; Not animals alone, but shrubs and trees Have speech for him, and understood with ease, After long drought when rains abundant fall, He hears the herbs and flowers rejoicing all.
+ - How various his employments whom the world Calls idle; and who justly in return Esteems that busy world an idler too!
+ - The art of poetry is to touch the passions, and its duty to lead them on the side of virtue.
+ - In indolent vacuity of thought.
+ - Religion Caesar never knew Thy posterity shall sway, Where his eagles never flew, None as invincible as they.
+ - No wild enthusiast could rest, till half the world like him was possessed.
+ - That good diffused may more abundant grow.
+ - Great contest follows, and much learned dust Involves the combatants; each claiming truth, And truth disclaiming both.
+ - Philologists, who chase A painting syllable through time and space Start it at home, and hunt it in the dark, To Gaul, to Greece, and into Noah’s Ark.
+ - There is in souls a sympathy with sounds.
+ - If my resolution to be a great man was half so strong as it is to despise the shame of being a little one...
+ - A heretic, my dear sir, is a fellow who disagrees with you regarding something neither of you knows anything about.
+ - The cares of today are seldom those of tomorrow.
+ - Spare feast! a radish and an egg.
+ - Is base in kind, and born to be a slave.
+ - Folly ends where genuine hope begins.
+ - Greece, sound, thy Homer’s, Rome thy Virgil’s name, But England’s Milton equals both in fame.
+ - Man may dismiss compassion from his heart, but God never will.
+ - We are never more in danger than when we think ourselves most secure, nor in reality more secure than when we seem to be most in danger.
+ - Most satirists are indeed a public scourge; Their mildest physic is a farrier’s purge; Their acrid temper turns, as soon as stirr’d, The milk of their good purpose all to curd. Their zeal begotten, as their works rehearse, By lean despair upon an empty purse.
+ - Could he with reason murmur at his case, Himself sole author of his own disgrace?
+ - He that negotiates between God and man, As God’s ambassador, the grand concerns Of judgment and of mercy, should beware Of lightness in his speech.
+ - I would not have a slave to till my ground, To carry me, to fan me while I sleep, And tremble when I wake, for all the wealth That sinews bought and sold have ever earn’d.
+ - Remorse begets reform.
+ - Lived in his saddle, loved the chase, the course, And always, ere he mounted, kiss’d his horse.
+ - Happy the man who sees a God employed in all the good and ills that checker life.
+ - Unmissed but by his dogs and by his groom.
+ - Remorse, the fatal egg that pleasure laid.
+ - There is in souls a sympathy with sounds: And as the mind is pitch’d the ear is pleased With melting airs, or martial, brisk or grave; Some chord in unison with what we hear Is touch’d within us, and the heart replies.
+ - He that runs may read.
+ - When was public virtue to be found when private was not?
+ - A fretful temper will divide the closest knot that may be tied, by ceaseless sharp corrosion; a temper passionate and fierce may suddenly your joys disperse at one immense explosion.
+ - Knowledge, a rude unprofitable mass, the mere materials with which wisdom builds, till smoothed and squared and fitted to its place, does but encumber whom it seems to enrich. Knowledge is proud that he has learned so much; wisdom is humble that he knows no more.
+ - Did Charity prevail, the press would prove A vehicle of virtue, truth, and love.
+ - Blind unbelief is sure to err, And scan his work in vain; God is his own interpreter, And he will make it plain.
+ - Religion, richest favor of the skies.
+ - The parson knows enough who knows a Duke.
+ - Stamps God’s own name upon a lie just made, To turn a penny in the way of trade.
+ - Hast thou not learnd what thou art often told, A truth still sacred, and believed of old, That no success attends on spears and swords Unblest, and that the battle is the Lords?
+ - He that has seen both sides of fifty has lived to little purpose if he has no other views of the world than he had when he was much younger.
+ - Where men of judgment creep and feel their way, The positive pronounce without dismay.
+ - The Spirit breathes upon the Word and brings the truth to sight.
+ - Events of all sorts creep or fly exactly as God pleases.
+ - There is a mixture of evil in everything we do; indulgence encourages us to encroach, while we Crabbe exercise the rights of children, we become childish.
+ - Some to the fascination of a name, Surrender judgment hoodwinked.
+ - What peaceful hours I once enjoy’d! How sweet their memory still! But they have left an aching void The world can never fill.
+ - Who loves a garden loves a greenhouse too.
+ - But conversation, choose what theme we may, And chiefly when religion leads the way, Should flow, like waters after summer show’rs, Not as if raised by mere mechanic powers.
+ - Tis Providence alone secures In every change both mine and yours.
+ - But slaves that once conceive the glowing thought Of freedom, in that hope itself possess All that the contest calls for; spirit, strength, The scorn of danger, and united hearts, The surest presage of the good they seek.
+ - Gardening imparts an organic perspective on the passage of time.
+ - Strength may wield the ponderous spade, May turn the clod, and wheel the compost home; But elegance, chief grace the garden shows, And most attractive, is the fair result Of thought, the creature of a polished mind.
+ - Toil for the brave! The brave that are no more.
+ - But still remember, if you mean to please, To press your point with modesty and ease.
+ - Far happier are the dead methinks than they who look for death and fear it every day.
+ - Transforms old print To zigzag manuscript, and cheats the eyes Of gallery critics by a thousand arts.
+ - But many a crime deemed innocent on earth Is registered in Heaven; and these no doubt Have each their record, with a curse annex’d.
+ - Great offices will have great talents.
+ - When all within is peace How nature seems to smile Delights that never cease The live-long day beguile.
+ - We sacrifice to dress till household joys and comforts cease. Dress drains our cellar dry, and keeps our larder lean.
+ - Then liberty, like day, Breaks on the soul, and by a flash from Heaven Fires all the faculties with glorious joy.
+ - It is a general rule of Judgment, that a mischief should rather be admitted than an inconvenience.
+ - Just knows, and knows no more, her Bible true,- A truth the brilliant Frenchman never knew.
+ - Mountains interposed Make enemies of nations, who had else Like kindred drops been mingled into one.
+ - When from soft love proceeds the deep distress, ah! why forbid the willing tears to flow?
+ - Ceremony leads her bigots forth, prepared to fight for shadows of no worth. While truths, on which eternal things depend, can hardly find a single friend.
+ - Heaven speed the canvas, gallantly unfurl’d, To furnish and accommodate a world, To give the Pole the produce of the sun, And knit the unsocial climates into one.
+ - Ages elapsed ere Homer’s lamp appear’d, And ages ere the Mantuan swan was heard: To carry nature lengths unknown before, To give a Milton birth, ask’d ages more.
+ - Those flimsy webs that break as soon as wrought, attain not to the dignity of thought.
+ - God forbid that Judges upon their oath should make resolutions to enlarge jurisdiction.
+ - O Winter, ruler of the inverted year!
+ - Great offices will have great talents, and God gives to every man the virtue, temper, understanding, taste, that lifts him into life, and lets him fall just in the niche he was ordained to fill.
+ - The beggarly last doit.
+ - How readily we wish time spent revoked, that we might try the ground again where once – through inexperience, as we now perceive – we missed that happiness we might have found!
+ - The still small voice is wanted.
+ - Perhaps thou gav’st me, though unseen, a kiss; Perhaps a tear, if souls can weep in bliss.
+ - It is a terrible thought, that nothing is ever forgotten; that not an oath is ever uttered that does not continue to vibrate through all times, in the wide spreading current of sound; that not a prayer is lisped, that its record is not to be found st.
+ - Meditation here may think down hours to moments. Here the heart may give a useful lesson to the head and learning wiser grow without his books.
+ - An idler is a watch that wants both hands; As useless if it goes as when it stands.
+ - A self-made man? Yes, and one who worships his creator.
+ - Books are not seldom talismans and spells.
+ - An inadvertent step may crush the snail That crawls at evening in the public path. But he that has humanity, forewarned, Will turn aside and let the reptile live.
+ - The only amarantine flower on earth Is virtue.
+ - If a great man struggling with misfortunes is a noble object, a little man that despises them is no contemptible one.
+ - Where thou art gone, adieus and farewells are a sound unknown.
+ - Visits are insatiable devourers of time, and fit only for those who, if they did not that, would do nothing.
+ - No traveler e’er reached that blest abode who found not thorns and briers in his road.
+ - But truths on which depends our main concern, That ’tis our shame and misery not to learn, Shine by the side of every path we tread With such a lustre he that runs may read.
+ - All truth is precious, if not all divine; and what dilates the powers must needs refine.
+ - All zeal for a reform, that gives offence To peace and charity, is mere pretence.
+ - We bear our shades about us; self-deprived Of other screen, the thin umbrella spread, And range an Indian waste without a tree.
+ - How soft the music of those village bells, Falling at interval upon the ear In cadence sweet; now dying all away, Now pealing loud again, and louder still, Clear and sonorous, as the gale comes on! With easy force it opens all the cells Where Memory slept.
+ - Mercy to him that shows it, is the rule.
+ - The things that mount the rostrum with a skip, And then skip down again, pronounce a text, Cry hem; and reading what they never wrote Just fifteen minutes, huddle up their work, And with a well-bred whisper close the scene!
+ - How fleet is a glance of the mind! Compared with the speed of its flight, The tempest itself lags behind, And the swift-winged arrows of light.
+ - Restraining prayer, we cease to fight; Prayer keeps the Christian’s armor bright; And Satan trembles when he sees The weakest saint upon his knees.
+ - But animated nature sweeter still, to soothe and satisfy the human ear.
+ - An epigram is but a feeble thing – With straw in tail, stuck there by way of sting.
+
+231 quotes

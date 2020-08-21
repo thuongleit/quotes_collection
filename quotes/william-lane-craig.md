@@ -1,0 +1,22 @@
+ - If you’re sincerely seeking God, God will make His existence evident to you.
+ - It’s no longer enough to teach our children Bible stories; they need doctrine and apologetics.
+ - Reason is a tool to help us better understand and defend our faith; as Anselm put it, ours is a faith that seeks understanding.
+ - Faith is trust or commitment to what you think is true.
+ - The Christian faith does not call for us to put our minds on the shelf, to fly in the face of common sense and history, or to make a leap of faith into the dark. The rational person, fully apprised of the evidence, can confidently believe...
+ - The person who follows the pursuit of reason unflinchingly toward its end will be atheistic or, at best, agnostic.
+ - Part of the broader task of Christian scholarship is to help create and sustain a cultural milieu in which the gospel can be heard as an intellectually viable option for thinking men and women.
+ - Certainty is an unrealistic and unattainable ideal.
+ - No one in the final analysis really fails to become a Christian because of lack of arguments; he fails to become a Christian because he loves darkness rather than light and wants nothing to do with God.
+ - If true love came at a price, the price would be all worth while if i was spending it on you.
+ - Should a conflict arise between the witness of the Holy Spirit to the fundamental truth of the Christian faith and beliefs based on argument and evidence then it is the former which must take precedence over the latter.
+ - The Bible says all men are without excuse. Even those who are given no good reason to believe and many persuasive reasons to disbelieve have no excuse, because the ultimate reason they do not believe is that they have deliberately rejected God’s Holy Spirit.
+ - The mere possibility provides no warrant for denying what I clearly grasp.
+ - Successful evangelism involves not only harvesting, but sowing and watering, too. We must never think that because a nonbeliever remained unconvinced by our case that our apologetic has failed. For one encounter is not the end of the story.
+ - The renaissance of Christian philosophy has been accompanied by a resurgence of interest in natural theology, that branch of theology that seeks to prove God’s existence apart from divine revelation.
+ - For the assertion that “There is no God” is just as much a claim to knowledge as is the assertion that “There is a God.” Therefore, the former assertion requires justification just as the latter does.
+ - Even if the disciples had believed in the resurrection of Jesus, it is doubtful they would have generated any following. So long as the body was interred in the tomb, a Christian movement founded on belief in the resurrection of the dead man would have been an impossible folly.
+ - Scepticism, ironically, draws its life’s blood from claims to have a good deal of knowledge. For example, your friends claim to know, ‘Since every possible option has not been explored, nothing can be said for certain.’ That statement is itself a claim to knowledge!
+ - But the argument is still unsound, because the first premise is false: there are other unmentioned alternatives, for example, that Jesus as described in the gospels is a legendary figure, so that the trilemma is false as it stands.
+ - It’s the combination of improbability with an independently given pattern that discredits chance.
+
+20 quotes

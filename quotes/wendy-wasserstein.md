@@ -1,0 +1,24 @@
+ - Don’t live down to expectations. Go out there and do something remarkable.
+ - Every year I resolve to be a little less the me I know and leave a little room for the me I could be. Every year I make a note not to feel left behind by my friends and family who have managed to change far more than I.
+ - Sometimes I want to clean up my desk and go out and say, respect me, I’m a respectable grown-up, and other times I just want to jump into a paper bag and shake and bake myself to death.
+ - The signature of a truly enviable woman is the tenacity and continuity of her women friends.
+ - The marriages come and go but your friendships stay, which is the opposite of what it used to be, so that there will be people in our lives for 30 years and often it is not your husband, it’s your women friends, male friends with whom you come of age.
+ - Sloth is the fastest-growing lifestyle movement in the world, and that’s because it is completely doable. If you embrace sloth, it’s the last thing you’ll ever have to do again.
+ - Being a grownup means assuming responsibility for yourself, for your children, and – here’s the big curve – for your parents.
+ - The real reason for comedy is to hide the pain.
+ - No matter how successful I become as a playwright, my mother would be thrilled to hear me tell her that I’d just lost twenty pounds, gotten married and become a lawyer.
+ - No matter how lonely you get or how many birth announcements you receive, the trick is not to get frightened. There’s nothing wrong with being alone.
+ - Anyone who is considered funny will tell you, sometimes without even your asking, that deep inside they are very serious, neurotic, introspective people.
+ - A diet counselor once told me that all overweight people are angry with their mothers and channel their frustrations into overeating. So I guess that means all thin people are happy, calm, and have resolved their Oedipal entanglements.
+ - Bruce was a genius, conveniently born on Christmas Eve with, according to my mother, Messiah potential.
+ - I really worked at becoming more assertive, and now none of my friends talk to me.
+ - I don’t much like to think that being a bachelor girl limits how you see the world. On the other hand, I know it certainly limits how the world sees you.
+ - The thing I longed for as a teenager is now an object of neglect and scorn. I’ve grown to hate my telephone.
+ - The struggle to be considered a grown-up begins, I believe, shortly after birth.
+ - Our lives are not totally random. We make commitments, we cause things to happen.
+ - As I ramble through life, whatever be my goal, I will unfortunately always keep my eye upon the doughnut and not upon the whole.
+ - I’m perpetually curious as to what happened to all those supposed prodigies who were singled out while I and my coterie of far more interesting malcontents passed on.
+ - I’m not going to throw my imagination away. I refuse to lie down to expectation. If I can just hold out till I’m thirty, I’ll be incredible.
+ - Work is a way of shutting out ambiguous sentiment.
+
+22 quotes

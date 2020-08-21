@@ -1,0 +1,40 @@
+ - Don’t give up before the miracle happens.
+ - Being a successful person is not necessarily defined by what you have achieved, but by what you have overcome.
+ - Remember if people talk behind your back, it only means you are two steps ahead.
+ - It’s always the darkest just before the glorious dawn.
+ - You know, a heart can be broken, but it keeps on beating, just the same.
+ - You never know what’s in a person’s heart until they’re tested, do you?
+ - You’re just a bee charmer, Idgie Threadgoode. That’s what you are, a bee charmer.
+ - I wonder how many people don’t get the one they want, but end up with the one they’re supposed to be with.
+ - Being an only child and losing both my parents at an early age, I have found that the friends I have made over the years are the people who help me get through life, good times and bad.
+ - Face it girls. I’m older and I have more insurance.
+ - It’s funny, when you’re a child you think time will never go by, but when you hit about twenty, time passes like you’re on the fast train to Memphis. I guess life just slips up on everybody. It sure did on me.
+ - That’s what I’m living on now, honey, dreams, dreams of what I used to do.
+ - Strangely enough, the first character in Fried Green Tomatoes was the cafe, and the town. I think a place can be as much a character in a novel as the people.
+ - If you cage a wild thing, you can be sure it will die, but if you let it run free, nine times out of ten it will run back home.
+ - Hazel always used to say There’s not enough darkness in the entire universe to snuff out the light of just one little candle.
+ - By the way, is there anything sadder than toys on a grave?
+ - The food in the South is as important as food anywhere because it defines a person’s culture.
+ - The ones that hurt the most always say the least.
+ - He had mourned each of those great trains as, one by one, they were pulled off the lines and left to rust in some yard, like old aristocrats, fading away; antique relics of times gone by.
+ - It’s funny, most people can be around someone and then gradually begin to love them and never know exactly when it happened.
+ - One gal drank a can of floor wax and topped it off with a cup of Clorox, trying to separate herself from the same world he was in.
+ - There Lives More Faith in Honest Doubt, Believe Me, Than Half the Creeds. – Alfred, Lord Tennyson.
+ - No matter what you look like, there’s somebody who’s gonna think you’re the handsomest man in the world.
+ - The line between the public life and the private life has been erased, due to the rapid decline of manners and courtesy. There is a certain crudeness and crassness that has suddenly become accepted behavior, even desirable.
+ - Yes, I suffer terribly from depression. I have to work at being happy, it’s not my natural instinct. My natural instinct is, if something wonderful happens, to throw water in my own face.
+ - It was a stretch to imagine that Barbara Walters might want to give it all up for Ed Couch, but Evelyn tried her hardest. Of course, even though she was not religious, it was a comfort to know that the Bible backed her up in being a doormat.
+ - I have a lot of friends that are ex-Miss Alabamas and ex-Miss Georgias.
+ - All right, then, I’d die for you. How about that? Don’t you think somebody could die for love?
+ - If you do everything in your power to avoid writing and still can’t, then you must be a writer.
+ - Are you a politician or does lying just run in your family?
+ - People cain’t help being what they are any more than a skunk can help being a skunk. Don’t you think if they had their choice they would rather be something else? Sure they would. People are just weak.
+ - I believe in God, but I don’t think you have to go crazy to prove it.
+ - I just know there’s an albino living in the colored quarters. I can feel it in my bones.
+ - In her opinion, Alexander Graham Bell and Clarence Birdseye are the two greatest Americans that ever lived excluding Robert E. Lee. She believes we never lost the War Between the States, that General Lee thought General Grant was the butler and just naturally handed him his sword.
+ - In order to be Miss Anybody you had to have excellent grades, and I had terrible grades because of my dyslexia.
+ - Daddy gave me real useful information to protect me in the real world. If anyone hits me, I’m not to hit them back. I wait until their back is turned, then hit them in the head with a brick.
+ - I think that people that are not sensitive, who seem to bang through life, do survive, but I don’t think they get the really soaring feelings that people who are more artistically bent can get.
+ - I longed to be a writer, always wanted to be a writer.
+
+38 quotes

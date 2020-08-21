@@ -1,0 +1,24 @@
+ - Once I was a scuba diver in the sea of words. Now I zip along the surface like a guy on a Jet Ski.
+ - In popular books and articles, information technology writer Carr has worried over the ways that algorithms like those employed by Google are reshaping the ways we think.
+ - What the book does as a technology is shield us from distraction.
+ - All reading was done in the early years out loud, there was no such thing as silent reading because you had to read out loud in order to figure out you know, where was a word ending and where is the word beginning.
+ - Once upon a time there was an island named Blogosphere, and at the very center of that island stood a great castle built of stone, and spreading out from that castle for miles in every direction was a vast settlement of peasants who lived in shacks fashioned of tin and cardboard and straw.
+ - I think if you look back through the intellectual history of human beings you can trace the way that intellectual technologies influence the way we think.
+ - As soon as you introduce the mechanical clock, you get a radically different view of time. Suddenly, it’s not a flow; it’s a series of discreet, precisely measurable units, seconds, minutes, hours, and so forth.
+ - I think, that after the arrival of the mechanical clock we see an explosion in scientific thinking and scientific discovery.
+ - What the Net does is shift the emphasis of our intelligence, away from what might be called a meditative or contemplative intelligence and more toward what might be called a utilitarian intelligence. The price of zipping among lots of bits of information is a loss of depth in our thinking.
+ - I think we begin to lose the ability to read in the deepest, most interpretive ways because were not kind of calming our mind and just focusing on the argument or the story.
+ - We become, after the arrival of the printing press in general, more attentive more attuned to contemplative ways of thinking.
+ - I think that the book in some ways is the most interesting from our own present standpoint, particularly when we want to think about the way the internet is changing us.
+ - The brain likes to be efficient and so even as its strengthening the pathways you’re exercising, it’s pulling – it’s weakening the connections in other ways between the cells that supported old ways of thinking or working or behaving, or whatever that you’re not exercising so much.
+ - One of the fascinating things about early writing on slates, on papyrus, even on early handwritten books, is for instance, there were no space between the words. People just wrote in continuous script.
+ - The book, I think, like the map before it, like the clock, created or help create a revolution in the human mind in the way our habits of mind and ultimately the way we use our brains.
+ - When somebody’s talking to us, they’re not putting pauses – carefully putting pauses between words. It all flows together. The problem with that though, it’s very hard to read.
+ - The practicality of technology may distinguish it from art, but both spring from a similar, distinctly human yearning.
+ - A lot of your mental energy goes to figuring out where does one word end and the next begin.
+ - A wise and clear-eyed book, Future Hype challenges the conventional wisdom about technological change and provides a fresh perspective on our so-called computer age.
+ - It’s interesting to think about how the book changed us.
+ - I think what the book did in addition to its practical uses, is it gave us a more attentive way of thinking.
+ - There are a whole lot of reasons to be very happy that our brains are able to adapt and adapt so readily because we do strengthen and become more efficient at things we do a lot of in changed ways of thinking that we might need.
+
+22 quotes

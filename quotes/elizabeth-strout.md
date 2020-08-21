@@ -1,0 +1,41 @@
+ - Traits don’t change, states of mind do.
+ - I’m so interested in the fact that we really don’t know anybody. We think we know the people close to us, but we don’t, we really don’t.
+ - The appetites of the body were private battles.
+ - I suspect the most we can hope for, and it’s no small hope, is that we never give up, that we never stop giving ourselves permission to try to love and receive love.
+ - You surely know that in the course of a long marriage it is not unusual for a husband or a wife to develop a crush on someone else.
+ - No exchange rate for the confidence of youth.
+ - I would hope that my readers feel a sense of awe at the quality of human endurance, at the endurance of love in the face of a variety of difficulties; that the quotidian life is not always easy, and is something worthy of respect.
+ - In case you haven’t noticed, people get hard-hearted against the people they hurt. Because they can’t stand it. Literally. To think we did that to someone. I did that. So we think of all the reasons why it’s okay we did whatever we did.
+ - The key to contentment was to never ask why; she had learned that long ago.
+ - I have to pay attention to what I have felt and observed, then push these responses to an extreme while keeping the story within the realm of being psychologically and emotionally true.
+ - I do reread, kind of obsessively, partly for the surprise of how the same book reads at a different point in life, and partly to have the sense of returning to an old friend.
+ - You couldn’t make yourself stop feeling a certain way, no matter what the other person did. You had to just wait. Eventually the feeling went away because others came along. Or sometimes it didn’t go away but got squeezed into something tiny, and hung like a piece of tinsel in the back of your mind.
+ - Each of his son’s had been his favorite child.
+ - For years I did most of my reading on the F train between Brooklyn and Manhattan. I had long commutes, and I read tons of books on that train; I loved it.
+ - I don’t especially like to travel, not the way many people do. I know many people that love to go to far-off and different places, and I’ve never been like that. I seem to get homesick as quickly as a child.
+ - He wanted to put his arms around her, but she had a darkness that seemed to stand beside her like an acquaintance that would not go away.
+ - Or maybe, he thought, returning to the boxes, it was part of being Catholic – you were made to feel guilty about everything.
+ - I love theater. I love sitting in an audience and having the actors right there, playing out what it means to be a human being.
+ - Bullies are just frightened people.
+ - My first job was when I was about 12, cleaning houses in the afternoons for different elderly women in town. I hated it.
+ - The facts didn’t matter. Their stories mattered, and each of their stories belonged to each of them alone.
+ - It’s tremendously hard work. Yes, I love arranging the words and having them fall on the ear the right way and you know you’re not quite there and you’re redoing it and redoing it and there’s a wonderful thrill to it. But it is hard.
+ - He put the blinker on, pulled out onto the avenue. “Well, that was nice,” she said, sitting back. They had fun together these days, they really did. It was as if marriage had been a long, complicatd meal, and now there was this lovely dessert.
+ - I actually see myself in all my characters. In order to imagine what it feels like to be another person I have to use my own experiences and responses to the world.
+ - I don’t want to live in Maine full time, but the physical beauty is very striking. It is the exact opposite of New York. When you walk through my small town to get a cup of coffee, you bump into five people you know.
+ - People like to think the younger generation’s job is to steer the world to hell. But it’s never true, is it? They’re hopeful and good – and that’s how it should be.
+ - But after a certain point in a marriage, you stopped having a certain kind of fight, Olive thought, because when the years behind you were more than the years in front of you, things were different.
+ - Had they known at these moments to be quietly joyful? Most likely not. People mostly did not know enough when they were living life that they were living it.
+ - Oh, I wish I organized my books. But I don’t. I’m not an organized person. The best I can do is put the books I really like in one sort of general area, and poetry in another.
+ - In a way, I’m very interested in writing about Maine, because I think Maine represents its own kind of history. It’s the oldest state, and it’s the whitest state.
+ - I’m writing for my ideal reader, for somebody who’s willing to take the time, who’s willing to get lost in a new world, who’s willing to do their part. But then I have to do my part and give them a sound and a voice that they believe in enough to keep going.
+ - I do write by hand. I just think – I don’t know, it’s a physical thing for me. It’s a bodily thing. It literally has to earn its way through my hand.
+ - I don’t think there was a particular book that made me want to write. They all did. I always wanted to write.
+ - And it was too late. No one wants to believe something is too late, but it is always becoming too late, and then it is.
+ - The fact of the matter is I always have a really high sense of responsibility to the reader, whether it’s a few readers that I get or a lot of readers, which I was lucky enough to get with ‘Olive.’ I feel responsible to them, to deliver something as truthful and straight as I can.
+ - If you get divorced in New York, you go into therapy and will talk to anybody you meet on the sidewalk about it.
+ - Without a doubt my mother was an inspiration for my writing. This is true in many ways, but mostly because she is a wonderful storyteller, without even knowing it.
+ - She remembered was hope was, and this was it. That inner churning that moves you forward, plows you through life the way the boats plowed the shiny water, the way the plane was plowing forward to a place new, and where she was needed.
+ - I’ve always been tremendously interested in criminal law. It goes to a deep interest I have in prisons and the criminal element, and what we do as a society with it. I’ve always been touched by the idea of criminality.
+
+39 quotes

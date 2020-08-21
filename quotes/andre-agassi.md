@@ -1,0 +1,78 @@
+ - Hate brings me to my knees, love gets me on my feet.
+ - Nothing can substitute for just plain hard work.
+ - Tennis uses the language of life. Advantage, service, fault, break, love – the basic elements of tennis are those of everyday existence, because every match is a life in miniature.
+ - All the good stuff is on the other side of tired.
+ - Remember this. Hold on to this. This is the only perfection there is, the perfection of helping others. This is the only thing we can do that has any lasting meaning. This is why we’re here. To make each other feel safe.
+ - I can live with losing, I can’t live without taking my chance.
+ - The best predictor of future events is probably past events.
+ - Life will throw everything but the kitchen sink in your path, and then it will throw the kitchen sink. It’s your job to avoid the obstacles. If you let them stop you or distract you, you’re not doing your job, and failing to do your job will cause regrets that paralyze you more than a bad back.
+ - To be inspired – that’s the secret.
+ - Being number two sucks.
+ - It’s easier to live with disappointment than regret.
+ - I play tennis for a living even though I hate tennis, hate it with a dark and secret passion and always have.
+ - A strong body listens. It obeys. A weak body commands. If your body is weak it tells you what to do. If your body is strong it’ll actually listen to you when you tell it to do something. If you build it right you can overcome some of the obstacles of age and recovery.
+ - Nothing can substitute for just plain hard work. I had to put in the time to get back. And it was a grind. It meant training and sweating every day. But I was completely committed to working out to prove to myself that I still could do it.
+ - A great coach can lead you to a place where you don’t need him any more.
+ - There are many ways of getting strong, sometimes talking is the best way.
+ - How lovely it is to dream while you are awake.
+ - If I’ve learned nothing else, it’s that time and practice equal achievement.
+ - Tennis is the loneliest sport.
+ - Even if it’s not your ideal life, you can always choose it. No matter what your life is, choosing it changes everything.
+ - This is the only perfection there is, the perfection of helping others.
+ - Freed from the thoughts of winning, I instantly play better. I stop thinking, start feeling. My shots become a half-second quicker, my decisions become the product of instinct rather than logic.
+ - Big dreams are so damn tiring.
+ - I envy Pete Sampras’s dullness. I wish I could emulate his spectacular lack of inspiration.
+ - I’ve been cheered by thousands, booed by thousands, but nothing feels as bad as the booing inside your own head during those ten minutes before you fall asleep.
+ - You’ll hear a lot of applause in your life, but none will mean more to you than that applause from your peers. I hope each of you hears that at the end.
+ - Our vision is to create an exceptional lifestyle offering worthy of Tamarack’s incredible surroundings. All of our partners involved in this development are committed to delivering the highest level of quality and luxury possible. We are excited to have Fairmont join us in this endeavor.
+ - What you feel doesn’t matter in the end; it’s what you do that makes you brave.
+ - Pride is bad, stress is good. I don’t want to feel confident. I want to feel rage. Endless, all consuming rage.
+ - I had moments of my actions and words not reflecting who it is I am – if that defines a punk, then yes, absolutely.
+ - Well, I actually tell my son that I don’t have any hair because he asked me the same question that I gave it to him when he was born, so he actually still believes that. He’s five years old.
+ - If I don’t do what I need to do to win, I won’t win, no matter who is on the other side of the net.
+ - My feelings are Yevgeny Kafelnikov should take his prize money when he is done here and go and buy some perspective.
+ - I question myself every day. That’s what I still find motivating about this. I don’t have the answers, I don’t pretend that I do just because I won the match. Just keep fighting and maybe something good happens.
+ - Now that I’ve won a slam, I know something very few people on earth are permitted to know. A win doesn’t feel as good as a loss feels bad, and the good feeling doesn’t last long as the bad. Not even close.
+ - It means a lot to you, to be out there. The highs are pretty high, and the lows are pretty low. You know, it’s easy to feel like you let the team down. I mean, at the end of the day we still got to figure out a way to get through the tie.
+ - I’m going to wake up tomorrow and start with not caring how I feel.
+ - This sport has given me so much that my hope would be to give back as much as I can for as long as I can.
+ - You don’t cheat anybody out of their experience, whatever it is.
+ - Success doesn’t always come in the form of a trophy. Keep striving for success.
+ - You know my dad pushed me to believe that I was going to be the best. I just never thought of life without tennis, even looking forward.
+ - There’s a lot of good waiting for you on the other side of tired. Get yourself tired...
+ - My accomplishments do not live up to my tennis game. Most people have to work really hard and win some big matches, and then they get money and popularity. For me it has been the reverse of everybody else. The exact opposite.
+ - Tennis was always sort of a – a learning. It was a vehicle for me to discover a lot about myself.
+ - I feel old when I see mousse in my opponent’s hair.
+ - I always felt tennis and winning was a byproduct of doing everything right.
+ - My father actually moved out from Chicago just so he could play tennis 365 days a year, so it was – it was a place we played every day. We played before school. We played after school. We woke up. We played tennis. We brushed our teeth in that order.
+ - Hitting a ball dead perfect – the only peace.
+ - Few of us are granted the grace to know ourselves, and until we do, maybe the best we can do is be consistent.
+ - It has meant a lot to me to challenge the best players in the world and to beat them. And it means a lot to me to be out here and fighting for the title and, you know, it hurts not to win it.
+ - Hitting the ball has never been my issue, so I can literally not pick up a racquet for two months and hit the ball, really, really nicely. I mean movement’s always an issue.
+ - There’s no such thing as an open draw. At least for me – I mean, obviously for Roger Federer, I think every draw feels open for him – but for me there’s no such thing as an open draw.
+ - Tennis is a very objective sport in the sense that the scoreboard doesn’t lie.
+ - When I was 7 years old I saw Jimmy Connors make someone carry his bag, as though he were Julius Caesar. I vowed then and there that I would always carry my own.
+ - You have to have the mentality of executing your game when you don’t feel like there’s a lot of hope. I think the best feeling is when somebody pushes you to the limit and you dig down a little bit extra. By the same token, you also need a little luck. Sometimes they come together.
+ - My only good result in 1997 was marrying Brooke Shields.
+ - That’s the greatest applause that any person will ever receive in their life when it comes from their peers.
+ - It never seizes to amaze me how much I enjoy playing here and how much you fans have meant to me over the years.
+ - I don’t always choose to stay fit by playing tennis, because that comes with its own wear-and-tear.
+ - I’ve been criticized for not having perspective in the past and I thought that of myself many times but not there.
+ - Yes, for a long time but I admired her and respected everything that I could sort of see in her from a distance, the pillars of her life, the loyalties, the relationships. It all got my interest and also the looks.
+ - I suppose you could never say never, but my experience would tell me that the most successful players in the world are gonna come from an environment that is more competitive at an early age.
+ - When you deal with somebody in the heat of battle, you see the best or the worst of them. So when you get through all that there is a great deal of respect.
+ - Tennis is at an amazing time when you’ve got two of the best players ever to play the game. You can argue the two very best playing in the same generation. It’s a rivalry I think that we’ve never seen in our sport.
+ - It’s shocking how little there is to do with tennis when you’re just thinking about nothing except winning every point.
+ - It’s always been eclectic; you never know what you’re going to get.
+ - Every now and then I will play; I try to focus on charitable work. I might do it because it’s an offer I can’t refuse, so I rally and try to stay in shape and keep myself active.
+ - I had my moments for sure but I wasn’t confrontational. And sometimes you get on the court and you’d find yourself very confrontational. It was all a discovery.
+ - Tennis is one of the only sports in America where the sport doesn’t grow with the size of the person – it just forces you to swallow the whole pill.
+ - He thinks it’s his day, and when you think it’s your day, it usually is.
+ - People who are interested with me have for sure gotten older over the years, for example, grandparents are coming up to me telling me they grew up watching me.
+ - No athletes talk to themselves like tennis players. Pitchers, golfers, goalkeepers, they mutter to themselves, but tennis players talk to themselves-and answer. Tennis players look like lunatics in a public square.
+ - Well, you know, I’ve bonded with a lot of people over the years, you know. We played the same tournaments year after year and we go back to the same place and many times the seats have been full and that has meant the world to me for sure.
+ - You’ve got to believe you can win. But I believe respect for the fact that you can lose is what you always have to keep in mind so that nothing suprises you.
+ - If you’re ranked number one in the world it’s because you’ve earned it, and I think the only way to really get there is to have that ability and to have it nurtured in a very competitive environment at an early age.
+ - Tennis was always sort of a – a learning. It was a vehicle for me to discover a lot about myself. And the things that I sort of discovered at times I not only didn’t want to see it for myself but I certainly didn’t want millions of people to see it.
+
+76 quotes

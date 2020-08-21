@@ -1,0 +1,22 @@
+ - We spend our whole lives recovering from high school.
+ - I feel like I’m addicted to the printed word.
+ - Good writing is remembering detail. Most people want to forget. Don’t forget things that were painful or embarrassing or silly. Turn them into a story that tells the truth.
+ - I deal with unhappy marriages a lot. I’ve never been married, I’m single.
+ - I try to be careful because technology changes so much over the years. But some things don’t change. Kids and parents have disagreements, kids try to manipulate, parents try to sit down with rules and regs. That part never changes.
+ - I think my books talk about kids learning to like and respect themselves and each other. You can’t write a message book; you just tell the best story you know how to tell.
+ - At age 12, I was put on tranquilizers when I should have gotten help. There was nothing major and awful, I just didn’t feel my family was supportive and emotionally generous.
+ - My father was a very unhappy person, very sarcastic, and my mother was very nervous and worried about what people thought. They weren’t monsters, but it wasn’t a good childhood.
+ - Pistachio nuts, the red ones, cure any problem.
+ - It’s not easy being so frightened of everything. And when I think of how much I’ve improved in the last year, I wonder when I’ll ever get finished with making changes and be really grown up.
+ - Mistakes are growth, and we learn not to do it again. But it doesn’t make you a terrible person. That’s important to me.
+ - In my next life, I want to be tall and thin, parallel park and make good coffee. But for now, I have lots of stuff to work out in my life, but I’ll have that until the day I die. I want to write more books.
+ - I made the choice long ago to write about real life. And life is both serious and funny.
+ - I wish I had had my books when I was a kid, I do.
+ - I’m very lucky. I’m very fortunate that my books have never gone out of print – none of them.
+ - Sometimes it’s easier to show than it is to tell.
+ - Normally, I name my characters after famous comedians.
+ - When my father would yell at me, I told myself someday I’d use it in a book.
+ - I tried to write with someone else once before, but it was not successful.
+ - I didn’t expect to be doing a whole bunch of Amber Browns. And because it was just one book, and the father had moved away, I didn’t realize I was going to have to deal more with shared custody, divorce and all those issues.
+
+20 quotes

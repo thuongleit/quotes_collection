@@ -1,0 +1,77 @@
+ - I am who I am. A coincidence no less unthinkable than any other.
+ - You can find the entire cosmos lurking in its least remarkable objects.
+ - The joy of writing. The power of preserving. Revenge of a mortal hand.
+ - Nothing’s a gift, it’s all on loan.
+ - When I pronounce the word Future, the first syllable already belongs to the past. When I pronounce the word Silence, I destroy it.
+ - Such certainty is beautiful, but uncertainty is more beautiful still.
+ - I am a tarsier and a tarsier’s son, the grandson and great-grandson of tarsiers, a tiny creature, made up of two pupils and whatever simply could not be left out...
+ - I’m one-time-only to the marrow of my bones.
+ - Everyone needs solitude, especially a person who is used to thinking about what she experiences. Solitude is very important in my work as a mode of inspiration, but isolation is not good in this respect. I am not writing poetry about isolation.
+ - I prefer the absurdity of writing poems to the absurdity of not writing poems.
+ - Nothing can ever happen twice. In consequence, the sorry fact is that we arrive here improvised and leave without the chance to practice.
+ - Carry on, then, if only for the moment that it takes a tiny galaxy to blink!
+ - I don’t know the role I’m playing. I only know it’s mine, non-convertible.
+ - After every war someone has to tidy up.
+ - I’m fighting against the bad poet who is prone to using too many words.
+ - Today when two people decide upon a thoughtless and precipitate abbreviation of the physical space between them, they think, at least at that moment, that they’re mutually attracted and drawn together by an overwhelming force.
+ - At the very beginning of my creative life I loved humanity. I wanted to do something good for mankind. Soon I understood that it isn’t possible to save mankind.
+ - Out of every hundred people, those who always know better: fifty-two.
+ - All imperfection is easier to tolerate if served up in small doses.
+ - I’m drowning in papers.
+ - All the best have something in common, a regard for reality, an agreement to its primacy over the imagination. Even the richest, most surprising and wild imagination is not as rich, wild and surprising as reality. The task of the poet is to pick singular threads from this dense, colorful fabric.
+ - It’s a well-known fact: in order to follow doctor’s orders, you have to be healthy as a horse.
+ - I slide my arm from under the sleeper’s head and it is numb, full of swarming pins, on the tip of each, waiting to be counted, the fallen angels sit.
+ - My choices are rejections, since there is no other way, but what I reject is more numerous, denser, more demanding than before. A little poem, a sigh, at the cost of indescribable losses.
+ - Any knowledge that doesn’t lead to new questions quickly dies out: it fails to maintain the temperature required for sustaining life.
+ - We’re extremely fortunate not to know precisely the kind of world we live in. One would have to live a long, long time, unquestionably longer than the world itself.
+ - All is mine but nothing owned, nothing owned for memory, and mine only while I look.
+ - And whatever I do will become forever what I’ve done.
+ - Let the people who never find true love keep saying that there’s no such thing. Their faith will make it easier for them to live and die.
+ - I like being near the top of a mountain. One can’t get lost here.
+ - Keep up the good work, if only for a while, if only for the twinkling of a tiny galaxy.
+ - No day copies yesterday, no two nights will teach what bliss is in precisely the same way, with precisely the same kisses.
+ - In the language of poetry, where every word is weighed, nothing is usual or normal. Not a single stone and not a single cloud above it. Not a single day and not a single night after it. And above all, not a single existence, not anyone’s existence in this world.
+ - I’m working on the world, revised, improved edition, featuring fun for fools blues for brooders, combs for bald pates, tricks for old dogs.
+ - It’s just not easy to explain to someone else what you don’t understand yourself.
+ - No one in my family has ever died of love. What happened, happened, but nothing myth-inspiring.
+ - God was finally going to believe in a man both good and strong, but good and strong are still two different men.
+ - They say the first love’s most important. That’s very romantic, but not my experience.
+ - Even the worst book can give us something to think about.
+ - They say the first sentence in any speech is always the hardest. Well, that one’s behind me, anyway.
+ - This terrifying world is not devoid of charms, of the mornings that make waking up worthwhile.
+ - Even a graphomaniac is an extremely complicated person.
+ - No one feels good at four in the morning. If ants feel good at four in the morning – three cheers for the ants.
+ - Every beginning is only a sequel, after all, and the book of events is always open halfway through.
+ - Something doesn’t start at its usual time. Something doesn’t happen as it should. Someone was always, always here, then suddenly disappeared and stubbornly stays disappeared.
+ - Poorly prepared for the dignity of life, I barely keep up with the pace of the action imposed. Reality demands.
+ - I have sympathy for young people, for their growing pains, but I balk when these growing pains are pushed into the foreground, when you make these young people the only vehicles of lifes wisdom.
+ - When it comes, you’ll be dreaming that you don’t need to breathe; that breathless silence is the music of the dark and it’s part of the rhythm to vanish like a spark.
+ - In every tragedy, an element of comedy is preserved. Comedy is just tragedy reversed.
+ - Existentialists are monumentally and monotonously serious; they don’t like to joke.
+ - Generally speaking, life is so rich and full of variety; you have to remember all the time that there is a comical side to everything.
+ - Their faith will make it easier for them to live and die.
+ - Memory at last has what I sought.
+ - Loveless work, boring work, work valued only because others haven’t got even that much, however loveless and boring – this is one of the harshest human miseries.
+ - Secret codes resound. Doubts and intentions come to light.
+ - Poetic talent doesn’t operate in a vacuum. There is a spirit of Polish poetry.
+ - Dying – you can’t do that to a cat.
+ - Each of us has a very rich nature and can look at things objectively, from a distance, and at the same time can have something more personal to say about them. I am trying to look at the world, and at myself, from many different points of view. I think many poets have this duality.
+ - All the best have something in common, a regard for reality, an agreement to its primacy over the imagination.
+ - Get to know other worlds, if only for comparison.
+ - I cannot speak for more than an hour exclusively about poetry. At that point, life itself takes over again.
+ - I’m old-fashioned and think that reading books is the most glorious pastime that humankind has yet devised.
+ - Even boredom should be described with gusto. How many things are happening on a day when nothing happens?
+ - Life lasts but a few scratches of the claw in the sand.
+ - But they know about us, they know, the four corners, and the chairs nearby us. Discerning shadows also know, and even the table keeps quiet.
+ - I cannot imagine any writer who would not fight for his peace and quiet.
+ - Somewhere out there the world must have an end.
+ - I usually write for the individual reader -though I would like to have many such readers. There are some poets who write for people assembled in big rooms, so they can live through something collectively. I prefer my reader to take my poem and have a one-on-one relationship with it.
+ - Though I may deny poets their monopoly on inspiration, I still place them in a select group of Fortune’s darlings.
+ - Is a decision made in advance really any kind of choice?
+ - I started earning a living as a poet rather early on.
+ - I’d have to be really quick to describe clouds – a split second’s enough for them to start being something else.
+ - Sometimes I write quickly, sometimes I spend several weeks on a single poem. I would really love for readers not to be able to guess which of the poems took so much work!
+ - Poets yearn, of course, to be published, read, and understood, but they do little, if anything, to set themselves above the common herd and the daily grind.
+ - When I mention somebody, that doesn’t necessarily mean that I identify with him, personally or poetically. I’m extremely happy when I encounter poets who are different than I am. The ones who have their own distinct poetics provide me with the greatest experiences.
+
+75 quotes

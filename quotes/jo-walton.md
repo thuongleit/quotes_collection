@@ -1,0 +1,28 @@
+ - There’s a sunrise and a sunset every single day, and they’re absolutely free. Don’t miss so many of them.
+ - Interlibrary loans are a wonder of the world and a glory of civilization.
+ - I’ve always thought fairies are like mushrooms, you trip over them when you’re not thinking about them, but they’re hard to spot when you’re searching for them.
+ - Libraries really are wonderful. They’re better than bookshops, even. I mean bookshops make a profit on selling you books, but libraries just sit there lending you books quietly out of the goodness of their hearts.
+ - There are some awful things in the world, it’s true, but there are also some great books.
+ - There is one law for rich and poor alike, which prevents them equally from stealing bread and sleeping under bridges.
+ - I am reading The Lord of the Rings. I suddenly wanted to. I almost know it by heart, but I can still sink right into it. I know no other book that is so much like going on a journey. When I put it down to this, I feel as if I am also waiting with Pippin for the echoes of that stone down the well.
+ - I do not miss my toys. I wouldn’t play with them anyway. I am fifteen. I miss my childhood.
+ - If I were omnipotent and omnibenevolent I wouldn’t be so damn ineffable.
+ - The thing about Tolkien, about The Lord of the Rings, is that it’s perfect. It’s this whole world, this whole process of immersion, this journey. It’s not, I’m pretty sure, actually true, but that makes it more amazing, that someone could make it all up. Reading it changes everything.
+ - If the purpose of literature is to illuminate human nature, the purpose of fantastic literature is to do that from a wider perspective. You can say different things about what it means to be human if you can contrast that to what it means to be a robot, or an alien, or an elf.
+ - Class is entirely intangible, and the way it affects things isn’t subject to scientific analysis, and it’s not supposed to be real but it’s pervasive and powerful. See; just like magic.
+ - Reading is awesome and flexible and fits around chores and earning money and building the future and whatever else I’m doing that day. My attitude towards reading is entirely Epicurean – reading is pleasure and I pursue it purely because I like it.
+ - There may be stranger reasons for being alive. There are books There’s interlibrary loan. There are books you can fall into and pull up over your head.
+ - All farms are much alike everywhere, and all wild places have their own beauty.
+ - If you love books enough, books will love you back.
+ - What you can’t pay back you pay forward.
+ - Magic isn’t inherently evil. But it does seem to be terribly bad for people.
+ - You know, class is like magic. There’s nothing there you can point to, it evaporates if you try to analyse it, but it’s real and it affects how people behave and makes things happen.
+ - You can’t do magic with books unless they’re very special copies.
+ - It doesn’t matter. I have books, new books, and I can bear anything as long as there are books.
+ - One of the things I’ve always liked about science fiction is the way it makes you think about things, and look at things from angles you’d never have thought about before.
+ - It’s amazing how large the things are that it’s possible to overlook.
+ - I care more about the people in books than the people I see every day.
+ - Before I got glasses, I thought Monet was the world’s only realist landscape painter.
+ - It’s wrong for libraries to have limited budgets.
+
+26 quotes

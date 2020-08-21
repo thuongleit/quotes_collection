@@ -1,0 +1,23 @@
+ - Immigration is the sincerest form of flattery.
+ - I’m complicated, sentimental, lovable, honest, loyal, decent, generous, likable, and lonely. My personality is not split; it’s shredded.
+ - We were ensconced as guests of the exclusive Beverly Hilton Hotel, an edifice so swank that the fire ax in the hall outside our suite said: “In case of fire-break crystal.”
+ - Looking back, my life seems like one long obstacle race, with me as the chief obstacle.
+ - In an interview Errol Flynn said that his hobby was acting but he doesn’t have time for it.
+ - Statistics show that many people watch our show from the bedroom. and people you ask into your bedroom have to be more interesting than those you ask into your living room. I kid you not!
+ - Poor people have more fun than rich people, they say; and I notice it’s the rich people who keep saying it.
+ - The only non-believer I encountered was Oscar Levant who wouldn’t visit Disneyland because he said he had his own hallucinations.
+ - To restore a sense of reality, I think Walt Disney should have a Hardluckland.
+ - The California cemeteries make dying sound so attractive it’s a real effort to keep breathing.
+ - It’s almost impossible to dislike me, because I do nothing.
+ - Then there was the time in Hollywood when I sat down in a breakaway chair and it collapsed on me. I was nearly knocked out and might have been even more seriously hurt but my fall was broken by the smog.
+ - Disneyland is such a big thing to Californians, I discovered that when you cross the border you have to raise your right hand and take an oath that you believe in Walt Disney.
+ - It was plain to see the Hollywood undertakers take care of everything. If you die you don’t have to lift a finger.
+ - Randy and I were goggle-eyed as we gazed over the wonders of what Walt Disney had wrought. It was a magnificent demonstration of what God could do if He had more imagination.
+ - I have never seen a bad television program, because I refuse to. God gave me a mind, and a wrist that turns things off.
+ - Hollywood, we decided, was a nice place to die, but we wouldn’t want to live there.
+ - Doing the show was like painting the George Washington Bridge. As soon as you finished one end, you started right in on the other.
+ - She should get a divorce and settle down.
+ - I’m not saying these flying discs don’t really exist, but nobody living in Kansas City has seen them and that’s a dry state.
+ - Personally, I like those mystery shows. Ever since I was a kid I’ve been crazy about blood and detectives and murder. Maybe I was born with a silver knife in my back.
+
+21 quotes

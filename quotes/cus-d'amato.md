@@ -1,0 +1,22 @@
+ - Fear is the greatest obstacle to learning. But fear is your best friend. Fear is like fire. If you learn to control it, you let it work for you. If you don’t learn to control it, it’ll destroy you and everything around you.
+ - The hero and the coward both feel the same thing, but the hero uses his fear, projects it onto his opponent, while the coward runs. It’s the same thing, fear, but it’s what you do with it that matters.
+ - A boy comes to me with a spark of interest. I feed the spark and it becomes a flame. I feed the flame and it becomes a fire. I feed the fire and it becomes a roaring blaze.
+ - Heroes and cowards feel exactly the same fear. Heroes just react to it differently.
+ - No matter what anyone says, no matter the excuse or explanation, whatever a person does in the end is what he intended to do all along.
+ - A fighter has to know fear.
+ - There is no difference between a hero and a coward in what they feel. It’s what they do that makes them different. The hero and the coward feel exactly the same, but you have to have the discipline to do what a hero does and to keep yourself from doing what the coward does.
+ - You got to be smart you got to be clever and not get hit and when your able to do this your a fighter.
+ - When two men step into the ring, one and only one deserves to win. When you step into the ring, you gotta know you deserve to win. You gotta know destiny owes you victory, cause you trained harder than your opponent. You sparred harder. You ran farther.
+ - Emotions, particularly anger, are like fire. They can cook your food and keep you warm, or they can burn your house down.
+ - Greatness is not a measure of how great you are but how great others came to be because of you.
+ - Boxing is a contest of character and ingenuity. The boxer with more will, determination, desire, and intelligence is always the one who comes out the victor.
+ - To see a man beaten not by a better opponent but by himself is a tragedy.
+ - People who are born round don’t die square.
+ - I believe nature’s a lot smarter than anyone thinks. During the course of a man’s life he develops a lot of pleasures and people he cares about. Then nature takes them away one by one. It’s her way of preparing you for death.
+ - Boxing is entertainment, so to be successful a fighter must not only win but he must win in an exciting manner. He must throw punches with bad intentions.
+ - If you can hit your opponent with two punches, you don’t hit him with one. Get off with some bad intentions in there. Believe in yourself. A guy can feel it if you don’t believe in yourself. Set your mind to make yourself do it.
+ - The punch that knocks a man out is the punch that he doesn’t see.
+ - There is no such thing as a natural puncher. There is a natural aptitude for punching and that is different. Nobody is born the best. You have to practice and train to become the best.
+ - I never teach until I’ve spoken to the fighter. I have to first determine his emotional state, get his background, to find out what I have to do, how many layers I have to keep peeling off so that I get to the core of the person so that he can recognize, as well as I, what is there.
+
+20 quotes

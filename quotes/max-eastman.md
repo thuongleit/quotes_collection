@@ -1,0 +1,23 @@
+ - A smile is the universal welcome.
+ - It is the ability to take a joke, not make one, that proves you have a sense of humor.
+ - People who demand neutrality in any situation are usually not neutral but in favor of the status quo.
+ - Patriotism is one of the unalterable facts of man’s nature. It is a virtue if you like it, and a vice if you don’t like it.
+ - Dogs laugh, but they laugh with their tails. What puts man in a higher state of evolution is that he has got his laugh on the right end.
+ - A joke is not a thing but a process, a trick you play on the listener’s mind. You start him off toward a plausible goal, and then by a sudden twist you land him nowhere at all or just where he didn’t expect to go.
+ - Dogs laugh, but they laugh with their tails.
+ - The worst enemy of human hope is not brute facts, but men of brains who will not face them.
+ - Humor is the instinct for taking pain playfully.
+ - The real guarantee of freedom is an equilibrium of social forces in conflict, not the triumph of any one force.
+ - The defining function of the artist is to cherish consciousness.
+ - There is something self-defeating in the too-conscious pursuit of pleasure.
+ - Robert Benchley has a style that is weak and lies down frequently to rest.
+ - A poet in history is divine, but a poet in the next room is a joke.
+ - Laughter is, after speech, the chief thing that holds society together.
+ - A liberal mind is a mind that is able to imagine itself believing anything.
+ - Classic art was the art of necessity: modern romantic art bears the stamp of caprice and chance.
+ - There is truth in the high opinion that in so far as a man conforms, he ceases to exist.
+ - I don’t know why it is we are in such a hurry to get up when we fall down. You might think we would lie there and rest for a while.
+ - Emotion is the surest arbiter of a poetic choice, and it is the priest of all supreme unions in the mind.
+ - Laughter puts your brain, your central nervous system and your whole being into a state of free play.
+
+21 quotes

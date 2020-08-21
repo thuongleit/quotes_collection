@@ -1,0 +1,36 @@
+ - Don’t depend too much on anyone in this world because even your own shadow leaves you when you are in darkness.
+ - The sign of the people of bid’ah is that they do not follow the salaf.
+ - If I remained silent and you remained silent, then who will teach the ignorant?
+ - A calamity that makes you turn to Allah is better for you then a blessing which makes you forget the remembrance of Allah.
+ - Don’t depend too much on anyone...
+ - What can my enemies do to me? My paradise is in my heart, it is with me wherever I go. To imprison me is to provide me with seclusion. To send me into exile is to send me away in the Path of Allah. And to kill me is to make me a martyr.
+ - If you do good in secret, Allah will shower His good on you in public.
+ - What can you do with me? My jannah is in my heart! If you take me to jail, I will make zikr of Allah. If you exile me out of my land, I will make takaffur. If you execute me, I would be a shaheed. What can you do with me? Because I am not limited to this dunya. I am living for al-akhira!
+ - Allah will support the just state even if it is led by unbelievers, but Allah will not support the oppressive state even if it is led by believers.
+ - The People of the Sunnah are the most knowledgeable of mankind concerning the truth, and the most merciful of the creation towards the rest of creation.
+ - Some people have the disease of criticising all the time. They forget the good about others and only mention their faults. They are like flies that avoid the good and pure places and land on the bad and wounds. This is because of the evil within the self and the spoiled nature.
+ - What really counts are good endings, not flawed beginnings.
+ - Guidance is not attained except with knowledge and correct direction is not attained except with patience.
+ - Make tawba not just for sins you’ve committed, but also for obligations you haven’t fulfilled.
+ - The disease that knowledge brings is arrogance, and the disease that worship brings is showing off.
+ - Avoiding the temptation to sin and being patient upon that, is greater than being patient whilst being afflicted with trials.
+ - When people help one another in sin and transgression, they finish by hating each other.
+ - No love that a man has will only give him pleasure in return- he shall also suffer pain because of it, except for love of Allah.
+ - Whatever is not done by the permission of Allah will not happen, and what is not done for the sake of Allah will not benefit or remain.
+ - Allah guards the justice loving government, even if it is the government of non-Muslims, and destroys the tyrant government, even if it is the government of Muslims.
+ - Verily, I constantly renew my Islam until this very day, as up to now, I do not consider myself to have ever been a good Muslim.
+ - Sins are like chains and locks preventing their perpetrator from roaming the vast garden of Tawheed and reaping the fruits of righteous actions.
+ - Remembrance is to the heart what water is to the fish. And what is the state of a fish that leaves water?
+ - The more humble, needy, and subdued you are before Allah, the closer you will be to Him.
+ - Contentment is the greatest door that one enters to Allah, it is the source of tranquility for the worshiper and paradise on earth. Whoever does not enter it will not enter the Paradise in the Hereafter.
+ - Men mixing with women is like fire mixing with wood.
+ - The sincere hearts and the pious supplications are soldiers which can never be defeated.
+ - This whole religion revolves around knowing the truth and acting by it, and action must be accompanied by patience.
+ - A man will never fear something besides Allah unless it be due to a disease in his heart.
+ - If you correct your hidden deeds subsequently, Allaah will correct your outward deeds.
+ - Sins cause harm and repentance removes the cause.
+ - Everyone experiences bouts of jealousy; but the dignified person conceals it, while the vulgar one acts upon it.
+ - Through patience and certainty, leadership in the religion is obtained.
+ - Perpetually is the servant either the recipient of a blessing from Allaah, in which case he is need of gratitude; or he is the perpetrator of sin, in which case he is in need of repentance; he is always moving from one blessing to another and is always is in need of repentance.
+
+34 quotes

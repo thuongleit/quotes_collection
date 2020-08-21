@@ -1,0 +1,130 @@
+ - Well, I like to have fun at work.
+ - And if you say a word about this over the radio, the next wings you see will belong to the flies buzzing over your rotting corpse.
+ - If you don’t interfere with me, I’ll always do something really good.
+ - People always say life is short. I’ve never been convinced of that – mine seems to have a tendency to go on and on.
+ - I’ve permitted myself to learn and to fail with some regularity. And that is probably the one thing I was given, and that I’m still grateful for.
+ - I don’t understand how somebody wouldn’t have a sense of humor about themselves.
+ - I’m not a very skeptical person.
+ - Nothing you do particularly matters. But I’m not sure that’s a great excuse for doing it poorly.
+ - Utopia means elsewhere.
+ - I don’t throw things or yell.
+ - People get up, they go to work, they have their lives, but you’ll never see the headlines say, ‘Six billion people got along rather well today.’ You’ll have the headline about the 30 people who shot each other.
+ - Art is not disposable. If you want it, you have to hold it and smell it and touch it and read the credits and enjoy it and put it on your wall.
+ - Along with the good qualities, if someone isn’t vulnerable I can’t be around them to a certain extent. And I don’t mean vulnerable to me or vulnerable to me in a sexual way. I just mean vulnerable, period.
+ - I was a very good baseball player and football player as a kid.
+ - The ghosts you chase you never catch.
+ - Some people die before their time so that others can live. It’s a cornerstone of civilization.
+ - My life before children I don’t really remember. I’ve heard references to it, but I really don’t remember.
+ - I don’t lose my temper very often now, and if I do, it’s well deserved.
+ - I’m a little bit of a fabric lunatic.
+ - I wouldn’t describe myself as lacking in confidence, but I would just say that – the ghosts you chase you never catch.
+ - If you’re too smart it can limit you because you spend so much time thinking that you don’t do anything.
+ - I don’t have a great intellect, and I can’t compete with people who do. I feel certain things. And all I know, and all I can do, is what I feel.
+ - The one natural gift I have is easy access. That’s the only natural I gift I have at all. You have to have that, the third eye.
+ - I have probably four or five male friends who have a real strong masculine side but some degree of a feminine side, too. They’re pretty rare, whereas I think women with a masculine side are much less rare.
+ - Sigmund Freud said we act out our own dreams, but if you are only an actor you are not acting out your own dream. You are simply participating in someone else’s dream.
+ - Some directors expect you to do everything; write, be producer, psychiatrist. Some just want you to die in a tragic accident during the shooting so they can get the insurance.
+ - My father could be very distancing. My clearest memory is of him squatting, watering plants for hours and hours at a time, completely silent. He was very self-contained; my mother was more outgoing and chatty and social. I’m certainly more like her.
+ - I can see how, given a certain degree of sensitivities, proclivities and rage, I could have ended up differently.
+ - Anybody doing something brings something to it. It’s not for me to say if it’s “growth”. Just by the nature of everyone has a different take on the material. Some people would.
+ - I don’t remember my life before I had children.
+ - A dog that has rabies probably will do things it wouldn’t do if it didn’t have rabies. But that doesn’t change the fact that it has rabies.
+ - There’s no worse feeling in the world than realizing the play you’ve directed doesn’t work.
+ - I know I have a fairly strong feminine side. I find myself really distanced from male behavior.
+ - When I have failed as an actor I’ve always thought it was my fault. But when I direct something, I wouldn’t want the actors to think it was their fault.
+ - There will be people who hate everything you do. And some people will really love it. But that’s not really different from the people who really hate it.
+ - I was a very good baseball and football player, but my father always told me I was much more interested in how I looked playing baseball or football than in actually playing. There’s great truth in that.
+ - I prefer to conduct my life based on how I treat people.
+ - I’m more likely to lose my temper on a film set than almost anywhere. Often the level of idiocy is so exalted that it’s impossible to comprehend.
+ - You can’t work in the movies. Movies are all about lighting. Very few filmmakers will concentrate on the story. You get very little rehearsal time, so anything you do onscreen is a kind of speed painting.
+ - I like design, I like details, to me it is just another form of self-expression.
+ - I am inspired by the appearance of a bohemian of the new millennium.
+ - And may the best of you – for it will only be the best of you, and even then only in the rarest and briefest moments – succeed in framing that most basic of questions, ‘how do we live?’
+ - I’m very much a typical midwesterner, and I don’t think the condition is curable.
+ - I’m not a control maniac.
+ - It’s tough to figure out how do we compete in Europe and North America, when obviously a living wage for us is very different than a living wage in Indonesia.
+ - My father was an exceptionally strong influence on me.
+ - I’d hate to see any film I’m involved in fail, especially artistically but also business-wise.
+ - I never really did a western western.
+ - I don’t care what other people think. I don’t think it matters.
+ - I like to direct movies, but I don’t like to goof around for eight years talking about it.
+ - It seems whenever I’ve had a method or what I perceived to be an intellectual groundwork of some sort – a kind of game plan – it’s always been the most morbid failure.
+ - I was never a fanatical movie person. There are many popular films I absolutely love like anyone else. Having said that, I don’t have time to go to the movies very much. I work a lot of different things, I’m always busy. But I’m always happy to see a popular movie.
+ - I think people seem to sort of associate me with danger. And I don’t see that at all.
+ - I’m not a psychiatrist. I’m not treating patients.
+ - You know, I’m really not interested in someone telling me that something’s good or bad.
+ - I’m supposed to be a pretty good theater actor.
+ - I haven’t physically attacked anyone in a couple of years.
+ - There’s a reason screens are only this thick.
+ - I don’t need to be liked.
+ - I can have incredible self-discipline. But see, I think it’s obviously a form of stupidity.
+ - Every country has their problems.
+ - My father was a very contradictory man.
+ - I’ve always been an avid reader. Everyone in my family read a lot. Considering we were from a little town, we were pretty literate.
+ - You can be a mason and build 50 buildings, but it doesn’t mean you can design one.
+ - In New York in the Forties or Fifties, everybody’s in a suit, an overcoat and a hat.
+ - As an actor there are no drawbacks.
+ - I don’t have a saviour or a royal family.
+ - Scary monsters are like Hula Hoops. They come in and out of fashion.
+ - The theater is so disappointing, really, that it’s hard to go again and again. It’s just too heartbreaking. I’d rather watch football or play a game or read.
+ - I still have a temper, I suppose.
+ - Even if you do succeed most people wouldn’t notice anyway.
+ - We have a tendency to think everyone’s idiotic and everyone’s only doing something idiotic, and the world is controlled by a not-so-secret group of morons. There’s great truth in that, I suppose, but then it’s also not true.
+ - I think probably when I was little, after my brother turned on me, I just had to play by myself or with myself. I’ve always done that. I think either it’s some kind of weirdly competitive streak or it takes my mind off whatever’s bothering me.
+ - I’ve done quite a few big American films.
+ - Most films, it doesn’t matter if you see them or not.
+ - Failure’s a natural part of life.
+ - Anybody doing something brings something to it.
+ - I mean, a lot of time rehearsals are taken up with other things other than preparing a character.
+ - I don’t mind tracksuits. At the track.
+ - Quite often – a lot of the work I had done had been extensively with women. Most especially in the theater, but also quite often in the movies. That has its own delights, and maybe pitfalls too.
+ - Where women are concerned, the rule is never to go out with anyone better dressed than you.
+ - I think with actors, if you just don’t set about trying to crush their confidence immediately, you’re usually OK.
+ - The most evocative thing to me is probably when a writer and a group of performers can collectively put together something compelling that asks the really simple question: ‘How do we live?’
+ - There are many, many benefits to being known for whatever it is you do. To deny that would be sort of asinine and vulgar.
+ - Unlike my grandfather or my brother, I’ve actually been able to make some money at a racetrack.
+ - I go around the world, working with all kinds of people who I love.
+ - When you think of how history is revealed, we know certain things to be facts at certain periods of time, which turn out not to be so factual as time marches on.
+ - You have to do things people see or you don’t get to do anything.
+ - I never wanted to be with someone who just hung around the house.
+ - I always wanted to be fashionable.
+ - I was never a fanatical movie person.
+ - Theater is so ephemeral, and I love that.
+ - I don’t really go through a process, it goes through me.
+ - Actors generally get to do things you probably shouldn’t do in real life – well, at least as much as one might like to or be tempted to. Though I suppose a lot of actors just go ahead and do it, don’t they?
+ - Imagine how asleep or utterly unperceptive and clueless you would have to be not to see yourself as absurd for the most part.
+ - When you do a really good play, the audience and the performers are looking into the same looking glass, the same microscope. And the specimen they are looking at is human life and that’s why I do it, that’s why I like it.
+ - Reviews are destructive by their very nature.
+ - I don’t like things too overstated in the cut or too perfect.
+ - I don’t really have a comprehension of being a public figure.
+ - One doesn’t know if one had a happy childhood or not. I don’t really know what it means.
+ - Of course it’s trivial, but then most things are.
+ - You can’t take a play someone has directed and do whatever you want with it.
+ - I mean, anything that money can be made off will never be a problem to make, no matter what it is.
+ - With acting it’s your neck up there in the end. And if you think the director can’t help you it’s one thing. But if you feel they’re reining you in when they need to be giving you some rope, or vice versa, then I just don’t tolerate that.
+ - I think I was born at a time when an American male had so many advantages and opportunities that weren’t available to men before or after, just a very brief period.
+ - Well, I design costumes because I started with the theater in Chicago, but somehow a few lines just sort of fell to me to do it. And I studied it in school and I always liked it.
+ - I don’t think my parents know what I do.
+ - I like very much to do movies.
+ - It never occurred to me to be an actor.
+ - I’m more boring and more conservative.
+ - You have to play your characters, not like them.
+ - It’s a little bit hard to have personal things subject to public scrutiny, and it’s a pressure that other people aren’t under, but then they’re under a lot of pressures that we’re not under.
+ - I wasn’t really raised to be the type of person to have doubts.
+ - I don’t want to be boring. But that’s not always easy.
+ - Most of the women that I like have a haunted quality – they’re sort of like women who live in a haunted house by themselves.
+ - I wouldn’t say anything I ever did in film would be something I’d use the word proud about. I’ve done better work in the theater.
+ - I don’t wake up drenched in sweat because I haven’t been on stage in years.
+ - Things are so much global and Americanised.
+ - Politics is not really my thing.
+ - I find it hard to pre-plan every element of everything I do. It’s not my thing.
+ - It’s funny – people think analysis or psychiatry is mad, and THEY go to CHURCH...
+ - The world is ruled by violence, or at least the imminent threat of violence. It always has been.
+ - The projects I look for to produce or direct would not be ones in which I would want to act.
+ - I don’t want a trillion-dollar empire to run.
+ - It’s not a gift of mine, but one given to me, to be able to criticise myself and not be crushed, by myself or by others.
+ - I think 1973 was the nadir of fashion. When you watch the coverage from that era, you’re struck by the astonishing ugliness of the clothes.
+ - I’m more comfortable with whatever’s wrong with me than my father was whenever he felt he failed or didn’t measure up to the standard he set.
+ - I love to watch good actors who surprise and amuse me.
+
+128 quotes

@@ -1,0 +1,34 @@
+ - Defense wins championships. A good offense is beat by a good defense, always.
+ - Instead of building housing in a wealthy neighborhood and saying, here you go, here’s some under the market which will, by the way, drop the market for everyone’s housing. Go into the lower income neighborhoods and say, here’s a business incentives, so that people can get jobs.
+ - Politicians saying one thing and doing another, celebrities though are some of the worst offenders.
+ - President Obama promised to usher in a new era of civility in our political discourse. We should make sure that, quote, “talk to each other in ways that heal, not in ways that wound,” close quote.
+ - Put the walls up. Get the better walls. There’s no reason the army website should be hacked.
+ - Here’s the thing: We have plenty of time. These are cockroaches and we want to kill them all. They’re just absolute pieces of garbage and we will get them. So why don’t we try the air campaign first?
+ - President Obama, right after the Gabby Gifford shooting said we need to usher in a new era of civil discourse in politics. But not heeding his own advice.
+ - A lot of people love Marco Rubio but they’re gonna have – they also love Jeb Bush. They are having a hard time trying to figure out how they gonna – you know, figure that one out.
+ - When other presidents used the executive pen, they used to it for things like should we lower the flag at half mast for someone who died and things like that. When President Obama uses it, he changes the way America does business.
+ - Animals are so beautiful. Why does an American dentist need to go to Africa to kill them? Look, I get it. You’re a hunter? Go kill a deer and eat it or a bear where there’s a lot of them. But I just don’t get it.
+ - If Hillary Clinton wants to win the White House, she’s gonna have to convince Americans they can trust her and if you seen the polls, they don’t. There’s one American who has faith in her, her husband Bill.
+ - There are so many numerical financial flaws in ObamaCare. Young people realize I’ll take the penalty. I’ll deal with whatever it takes for the next couple of years. Maybe a couple years down the road, they will start to pay.
+ - What we’re not for is negotiating with people with a bomb strapped to their chest.
+ - Take a job, do it for ten years and work at it, and you’ll succeed. Can I just add, take a job that you enjoy. If you don’t enjoy the job, it’s going to be a decade of hell.
+ - Hezbollah, Hamas, Al-Qaeda, they all have ties to Iranian money. I think they are the biggest exist – existential threat. Russia could be up there, but it would probably be to one of our NATO allies rather than the homeland.
+ - I also point out that the Democrat senator from Maryland, called the Tea Party, teabaggers.
+ - I’d never want to have a gun. I don’t think we need guns in this country and I hate it, and I think the NRA is a disaster area.
+ - The reason why rappers are living in – you know, driving in Mercedes-Benz’s and living in neighborhoods is because they’re selling their music, not just to the black community, but to the white community.
+ - You could pay a fair market price for a barrel of oil and cut 50 cents a barrel or a dollar barrel off what you’re going to pay Mexico and use that money and put it towards to the building a wall. If they don’t like it, too bad we’re go buy the oil.
+ - Isn’t that what our job to do is right there in media to discuss what politicians are doing so they stop doing it.
+ - Global warming is not a threat. It’s not a real threat. It’s not a credible threat. It’s not an imminent threat. ISIS is.
+ - A lot of unions are doing the same thing on the left that the NRA is doing on the right.
+ - In honor of Al Gore, green tea, not Tea Party, but Al Gore green tea. And by the way, it’s tree hugger-approved.
+ - And yet when you take Christianity, Judaism, Hinduism, Buddhism, whatever, their combined killings in the name of religion – well, that would be zero.
+ - When people don’t comply, things – bad things will happen afterwards.
+ - And there are a lot of groups or mayors that might say, hey, I need the money. I have budget deficit, so I have to do it and they do it. It doesn’t matter what the community wants or where the money comes from?
+ - American businesses are looking for are certainty and executive orders don’t really get them that.
+ - What’s the legacy of President Obama? I think this is just another, another example of passing the buck. It never stops at the White House.
+ - Pen in Barack Obama hands is far more dangerous than any other president, at least in modern history, if not ever.
+ - We’re not going to default. We just won’t default. I mean, there are ways of not defaulting even if you don’t raise the debt ceiling, and even if you don’t fund the government.
+ - People with felony convictions – pending felony convictions should not be able to buy gun, but they should be able to stay in sanctuary cities, if they’re illegal, if they cross the border.
+ - Whether they did or didn’t, America was certainly safe between 2000 and 2008. I don’t remember any terrorist attacks on American soil during that period of time.
+
+32 quotes

@@ -1,0 +1,42 @@
+ - God loves you simply because He has chosen to do so. He loves you when you don’t feel lovely. He loves you when no one else loves you. Others may abandon you, divorce you, and ignore you, but God will love you always. No matter what! ~~Max Lucado
+ - Be fearless, be brave, be bold, love yourself. ~~Haruki Murakami
+ - I love you for all that you are, all that you have been, all that you’re yet to be. ~~Ernest Hemingway
+ - The greatest gift you can give someone is your time, your attention, your love, your concern. ~~Joel Osteen
+ - If you love something, set it free. And if it really loves you, it will find a way to come back. ~~Selena Gómez
+ - The most dangerous distractions are the ones you love, but that don’t love you back. ~~Warren Buffett
+ - It’s not the love you make. It’s the love you give. ~~Nikola Tesla
+ - Your naked body should only belong to those who fall in love with your naked soul. ~~Charlie Chaplin
+ - If you don’t love yourself, it’s impossible for you to love others. You can’t give away what you don’t have. ~~Joyce Meyer
+ - Love yourself for who you are and just keep going. ~~Demi Lovato
+ - This is a subtle truth. Whatever you love, you are. ~~Rumi
+ - God loves you just the way you are, but he refuses to leave you that way. ~~Max Lucado
+ - It’s your unlimited power to care and to love that can make the biggest difference in the quality of your life. ~~Tony Robbins
+ - In the silence of LOVE you will find the Spark of LIFE. ~~Rumi
+ - You cannot convince people to love you. This is an absolute rule. No one will ever give you love because you want him or her to give it. Real love moves freely in both directions. Don’t waste your time on anything else. ~~Cheryl Strayed
+ - When you invest in people and lift them toward their potential, they will love you for it. ~~Jim Rohn
+ - I will love you unconditionally. ~~Katy Perry
+ - Aim high, work hard, and love your family. ~~Deborah Roberts
+ - Love your family, work super hard, live your passion. ~~Gary Vaynerchuk
+ - If you find a job you love, you’ll never work again... ~~Winston Churchill
+ - The world says love yourself, grab all you can, follow your heart. Jesus says deny yourself, grab your cross and follow me. ~~Francis Chan
+ - Success leaves clues, Proximity is power. Love your family, CHOOSE your peers. ~~Tony Robbins
+ - Jesus loves you, but everyone else thinks you’re an ass. ~~Stephen Hawking
+ - Every thing that you love, you will eventually lose, but in the end, love will return in a different form. ~~Franz Kafka
+ - You never know how long you have with someone, so don’t forget to say I love you while you can. ~~Michael Jackson
+ - Finding someone you love and who loves you back is a wonderful, wonderful feeling. But finding a true soul mate is an even better feeling. A soul mate is someone who understands you like no other, loves you like no other, will be there for you forever, no matter what. They say that nothing lasts forever, but I am a firm believer in the fact that for some, love lives on even after we’re gone. ~~Cecelia Ahern
+ - Unconditional love is all you have. You can’t overdose on love, you never can. It’s a beautiful thing. ~~Michael Jackson
+ - All days are nights to see till I see thee, And nights bright days when dreams do show thee me. ~~William Shakespeare
+ - He who is devoid of the power to forgive is devoid of the power to love. ~~Martin Luther King Jr.
+ - No one knows my Struggle, they only see the Trouble. Not knowing it’s hard to carry on when, No one loves you. ~~Tupac Shakur
+ - If you have your health, if you have people in your life to love, you are blessed. Slow down and enjoy the simple things in life. ~~Joel Osteen
+ - Not explaining science seems to me perverse. When you’re in love, you want to tell the world. ~~Carl Sagan
+ - Love of my life, I love you so. Love of my life, don’t ever go. ~~Frank Zappa
+ - Only people who are capable of loving strongly can also suffer great sorrow, but this same necessity of loving serves to counteract their grief and heals them. ~~Leo Tolstoy
+ - You can be the most beautiful woman in the world and see yourself as hideous. You must love yourself. To look in the mirror and tell yourself that you’re a rock star. ~~Demi Lovato
+ - The deeper you love yourself, the more the universe will affirm your worth. ~~Alan Cohen
+ - As you dissolve into love, your ego fades. You’re not thinking about loving; you’re just being love, radiating like the sun. ~~Ram Dass
+ - What counts in making a happy marriage is not so much how compatible you are but how you deal with incompatibility. ~~Leo Tolstoy
+ - Unconditional love really exists in each of us. It is part of our deep inner being. It is not so much an active emotion as a state of being. It’s not ‘I love you’ for this or that reason, not ‘I love you if you love me.’ It’s love for no reason, love without an object. ~~Ram Dass
+ - Marriage is not a ritual or an end. It is a long, intricate, intimate dance together and nothing matters more than your own sense of balance and your choice of partner. ~~Amy Bloom
+
+40 quotes

@@ -1,0 +1,41 @@
+ - Smile. Your eyes sparkle when you do.
+ - My boy of steel. My man of honor. My perfect friend. My timeless soldier.
+ - It’s a finger snapping kind of day.
+ - Life is wonderful when you’re the one to write it.
+ - I pull away, you pull me back, you grab my hand and wrap me around. What you did not know is – – my heart is my hand.
+ - Some girls need men to take them places. Others just click their heels, spread their own wings, and fly.
+ - Her heart had grown so familiar to the pain of life without him, that to respond now seemed too large a pleasure she could not endure. If pain was love, then she loved fiercely. Yet knew she could not be near that boy again.
+ - I wore your promise on my finger for one year I’ll wear your name on my heart til I die Because you were my boy, you were my only boy forever.
+ - In my story you’re the villain. But in my heart, you’re still the reigning King.
+ - Maybe she had it wrong all this time and her empty heart could never be filled by his ingenious broken spirit. Maybe this yearning had nothing to do with him, and everything to do with her.
+ - He brought out the worst in me, and was the best thing that ever happened to me.
+ - Make your choice and make it quick, either build a real heart, or get out of my way QUICK.
+ - Just friends? Alright friend we won’t kiss goodnight, and I won’t hold you tight and wish that you were mine just for one night. I will separate my dreams from my eyes, separate my heart from my spine, keep clean the lines between my hands and your innards.
+ - You don’t deserve my image in your head. You don’t deserve my memories in your chest.
+ - I’m too tired, too tired hearing your mean-wording, your pretending, your name-calling, sorry, not sorry, words you write, I should forgive because you didn’t mean them right? Oh plus I deserved them? Alright.
+ - Bittersweet? No, just bitter, the taste of your tongue. Words you can’t have back, so they linger.
+ - When it’s just you, just me, no one around to tell us how we should be – I know we could have made it. I know we could have fought it. I know we could have conquered.
+ - I hate you. I hate you like the girl who hates cake because it makes her fat and she can’t stop eating it.
+ - I don’t want to go viral, I want to set hearts on fire.
+ - I want to learn your trickery and feel what it’s like to have me wrapped around your finger. I want to lie to everyone because it gets me where I want faster. I want to be like you, because you are blind; and now that I finally see, I don’t want to.
+ - I miss your silent stature, your avoided days of disaster, your present state of distress. I’m cinnamon, cloves and fire, you are the rested cedarwood of desire.
+ - I want your most vital organ. I want it to be mine.
+ - Growth in love comes from a place of absence, where the imagination is left to it’s own devices and creates you to be much more then reality would ever allow.
+ - And I don’t even like you, but the pain of life without you is biting.
+ - She wanted to write about something other then love. Yet her freethinking pen seemed more adhered to her heart then to her head. A battle she never felt worth fighting.
+ - She had missed him so long now, that the feeling had become a part of her. As each day passed, the missing distanced itself from her heart. One day she woke, and realized the missing was there but the pain was gone. Missing without pain is tolerable. Pain linked to heartache is intolerable.
+ - I wait, you play. You speak, I cave. I promise, you break. You game me, daily, you play me.
+ - I am torn open, unabridged, hot and a bit crazy inside. This is the feeling which belongs to me, she has always been mine.
+ - You are my counterfeit mystery. My artificial company. My forged reality. My imaginary friend I can’t eradicate.
+ - I had hoped to be disliked by most, not by way of rebellion, but by way of excellence, disdain for the habitual, and the common man’s inability to grasp this. The act of being scorned? I saw it as a victory, my irreverent boast against this world which could never fully quench me.
+ - I pretended to be an open book, but I was closed off and conceited.
+ - Writing is hard. Not as hard as not writing. Not writing is torturous, bloody, chaotic and a gruesome winless battle. A writer who writes, knows peace, lives connected to truth. Not writing is ache, betrayal, death of the soul and imagination.
+ - All the risks have been taken. Allowing me room to fly.
+ - He’s just not that into you, if he doesn’t have a heart.
+ - You’ll never like me, but you’ll always love me.
+ - What I knew, adored, and fell for was a fantasy. He did not exist in human terms.
+ - If I wasn’t so phenomenal. I would go back to you.
+ - It is in this darkness that I have found all light – somehow become so bright, a shooting star on a stormy night.
+ - And why is it that time speeds and slows depending on your attendance? I’d like a steady clock, a reliable clock, isolated from the progressive beating of my heart.
+
+39 quotes

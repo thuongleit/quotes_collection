@@ -1,0 +1,135 @@
+ - Always keep your dignity and be true to yourself.
+ - Nothing’s worse than saying goodbye. It’s a little like dying.
+ - The way that you remember your life, it’s never linear. You have flashes of different moments of your life, and the flashes aren’t equal; they have different styles.
+ - In every religion, you find the same extremists.
+ - One can forgive but one should never forget.
+ - Culture and education are the lethal weapons against all kinds of fundamentalism.
+ - The best thing I ever did in my life was to ask, ‘Do I like everybody?’ And the answer was, ‘No.’ So why should everybody like me? If people are against me, so what? I’m against them too.
+ - I don’t make a career plan. I take things the way they come.
+ - I have my dark side. You have your dark side. From the second that we have a brain, there are things that are not right – we are human beings with all these illusions and complexes and everything. That’s attractive to me.
+ - The world is not about Batman and Robin fighting the Joker; things are more complicated than that. And nothing is scarier than the people who try to find easy answers to complicated questions.
+ - It’s fear that makes us lose our conscience. It’s also what transforms us into cowards.
+ - I realized then that I didn’t understand anything. I read all the books I could.
+ - Drawing is the first language of the human being before writing. It’s a transcription of how the human being sees reality, not reality itself.
+ - I respect humanity. That’s my religion. I can’t stand these religions that are really businesses. So much money everywhere that’s going to buy a really nice house in heaven – or what? I don’t get it.
+ - Once again, I arrived at my usual conclusion: one must educate oneself.
+ - Evil is international and the fanatic is international and universal. There is no difference between a Muslim fanatic, a Christian fanatic, even a secular fanatic.
+ - All big changes of the world come from words.
+ - A real love story has to finish bad. That is what I think.
+ - Life is absolutely unbearable. And we’re going to die.
+ - That’s the story of life – when you start enjoying people, it’s always too late.
+ - Anything that has a relationship with pleasure, we reject it. Eating, they talk about cholesterol; making love, they talk about AIDS; you talk about smoking, they talk about cancer. It’s a very sick society that rejects pleasure.
+ - I’m extremely unbearable. You know, I’m narcissistic and at the same time I’m very charming – I think.
+ - My real background was in art studies. At the beginning I was a painter, then I was this graphic designer, then I became an illustrator, then I was a comic artist. But for me it’s a different way of expression, a different field of art. They’re not separated; everything for me is related.
+ - I wasn’t made to take orders. My grandmother used to tell me: ‘Laws are for idiots.’ She was right.
+ - Cinema is a world of imagination.
+ - You see a picture and you understand perfectly, immediately, the basic thing that’s happening. It’s probably more accessible because we are in a culture of images. People are used to seeing stories that way. They understand looking at pictures.
+ - You hear people saying, ‘Oh I’m so tired, I’ve had enough of Cannes.’ How can you have enough of Cannes? It’s just the best place to be, like a fairytale.
+ - I was a westerner in Iran, an Iranian in the West. I had no identity. I didn’t even know anymore why I was living.
+ - War always takes you by surprise.
+ - We found ourselves veiled and separated from our friends.
+ - I wanted to make a real love story with a bad ending, because a love story that ends good is the life of everyone. I always say to people, You know, if Romeo and Juliet got married, nobody would care about them. Imagine Romeo and Juliet, six kids yelling, mama, mama, papa, papa.
+ - I don’t want to quit smoking. I am convinced that if I quit smoking, the world would go to hell.
+ - Racism is not nearly as important as poverty. That’s the same around the world. What look like ethnic problems are really economic issues. If you look closely at all these conflicts around the world, they come down to poverty and economics and resources. The more poverty, the worse the war.
+ - I had learned that you should always shout louder than your aggressor.
+ - For me, drawing is a question of death and life. Every day I draw, I write, I do something.
+ - Human beings have a lot of problems identifying themselves with other human beings who don’t resemble them exactly. But there’s something about drawing that means that anyone can identify to a drawing. I mean, people can identify themselves with Donald Duck and Mickey Mouse.
+ - I’m someone who lived in a war for five years. I received bombs on my head every day of my childhood. Did that stop me from living? Did that stop me from laughing?
+ - My mother was the favorite child of her parents. My father was the favorite child of his parents. The result of these two favorite children was me. And I am an only child. So I was convinced that I was the center of the universe.
+ - Here’s the problem: the description of the world is always reduced to yes or no, black or white. Superficial stories. Superhero stories. One side is the good one. The other one is evil.
+ - The first writing of the human being was drawing, not writing.
+ - In any case, it’s the cowardice of people like you who give dictators the chance to install themselves!
+ - My culture comes from everywhere. I’m sick of this notion of nationality, that if you’re brought up in the same city or same country you’re the same. Even three kids brought up in the same family with the same genes, they are not the same. Just consider a human a human.
+ - I love the French for their sarcasm, their irony. I love them for their bad moods.
+ - I have been brought up open-minded. If I didn’t know any people from other countries, I’d think everyone was evil based on news stories. But I know a lot of people, and know that there is no such thing as stark good and evil. Isn’t it possible there is the same amount of evil everywhere?
+ - It’s true that, in Iran, women have half of the rights men do. And yet 66 per cent of students are women.
+ - The real war is not between the West and the East. The real war is between intelligent and stupid people.
+ - I was in love with Darth Vader. He was extremely sexy to me. Once I had almost a sexual dream about Darth Vader. At the moment he was about to pull his helmet off, my husband woke me up and I was so annoyed. I told him, “I was on my way to kiss Darth Vader.”
+ - The Germans sell chemical weapons to Iran and Iraq. The wounded are then sent to Germany to be treated. Veritable human guinea pigs.
+ - This clash of the culture, East and the West, us and them, Muslim and Christian, does not exist.
+ - The novels have done so well because the drawings are abstract, black-and-white. This adds to the universality of the story. “Persepolis” also has dreamlike moments, and the drawings help maintain cohesion and consistency.
+ - I am very bad at computers. I don’t really know how to write email.
+ - I think animation is like running a marathon, and making a movie is like a 100 meter sprint. The question is: are you a marathon man or are you a sprinter? I realized that I was more of a sprinter than a marathon man. With a long, long project, I get bored easily.
+ - You know, they say in France that translation is like a woman: she is either beautiful or faithful.
+ - Teacher: What do you want to be when you grow up? Marji: I’ll be a prophet.
+ - I’m a very individualistic person. That is why I don’t belong to any political party or anything. I really believe in justice and freedom.
+ - Comics are just another medium to express yourself. It’s not cinema; it’s not literature; it’s just something else. It has a specific requirement, which is that images are used to tell the story. There are lots of crappy movies, with guns and action and Arnold Schwarzenegger or whatever.
+ - I like to make mechanical stuff. Once I make a film I have to do whatever I can make onstage I make it onstage.
+ - I think that all stories – if you make movies about zombies and aliens – it has always to do with your personal story. If not directly, it is about your fears, your obsessions, things like that.
+ - If people are given the chance to experience life in more than one country, they will hate a little less. It’s not a miracle potion, but little by little you can solve problems in the basement of a country, not on the surface.
+ - With live-action I think we’d have lost the universal appeal of the Persepolis story. With live-action, it would have turned into a story of ‘the Other’ – people living in a distant land who don’t look like us. It might have been exotic, but also a “Third-World” story.
+ - Not everybody loves their children. If that was a fact, all the children would be happy and they would make happy adults. Instead, we have lots of miserable children that later became miserable adults. This is a fact. We cannot change that.
+ - Drawing – it’s the first language of human beings, before writing, before even talking, before words, human beings was drawing.
+ - Of course, when you remember your life, you never remember anything in a chronological way. You always have pieces of memories, and some of these memories are full of details and very colorful. Some of them you just see the action and it’s completely blank.
+ - I don’t like the word ‘autobiography.’ I rather like the term ‘autofiction.’ The second you make a script out of the story of your life, it becomes fictional. Of course, the truth is never far. But the story is created out of it.
+ - Maybe the biggest problem is that there’s no empathy. Nobody puts themselves in the place of others. Everyone thinks they are the only one to suffer. Or that they’re the only ones who like ice cream or take their kids on vacation.
+ - I don’t believe in the clash of cultures. The culture is one. The culture is a ring off the same chain. Picasso was very much influenced by the African arts, and he influenced a whole other generation of artists. So everything influences everything.
+ - It’s always extremely interesting to speak at colleges. My books are taught in many colleges in America and are part of the educational system, so it’s really important to me. I don’t believe in so many things in life, but something I believe in is education.
+ - We can only feel sorry for ourselves when our misfortunes are still supportable. Once this limit is crossed, the only way to bear the unbearable is to laugh at it.
+ - I really didn’t know what to think about the veil. Deep down I was very religious but as a family we were very modern and avant-garde. I was born with religion. At the age of six I was already sure I was the last prophet. This was few years before the revolution.
+ - To tell you the truth, I never wanted to become a moviemaker. It was like I was a cinepihile, and I go, like, three or four times per week to the cinema, and I like to watch films.
+ - I try to look at life carefully and reproduce life the way life is. It’s a question of looking carefully at how it is. In life, you don’t have total happiness. People always say that. But you don’t have total sadness either, no matter what situation you are living in.
+ - Adaptation of books is never a success. When the author wants to make it, it’s even worse.
+ - A cat can never be well-trained because they’re too independent.
+ - There are things that I love in Iranian cinema and things that I don’t. In Iranian cinema, you have to use metaphor because you are living under a dictatorship.
+ - If you have a little sensibility or a heart, you have all the reason to be depressed once in a while. But the depression is like a motor for creation. I need a little bit of depression, a bit of acid in my stomach, to be able to create. When I’m happy, I just want to dance.
+ - The most exciting time is when I think of an idea and how I imagine I can make it. It would be wonderful if there was a projector inside my eye that and it could just put the idea on the screen for people to see.
+ - Revolutions just spread blood. Evolution – this is something that changes in the long term. Because history is long term. But today, we don’t talk about history. The past is two weeks ago, and the future is two weeks after.
+ - Revolutions just spread blood. Evolution – this is something that changes in the long term.
+ - I like making comics and animation because it takes such a long time. I’m not a runner of the 100 meter. I like marathons. The longer it takes, the better I feel.
+ - I realized that I was more of a sprinter than a marathon man. With a long, long project, I get bored easily.
+ - If today I have to make a political statement, it is, ‘I love beauty.’ I think beauty makes people better.
+ - I chose the actors that I was in love with. I cannot work with people that I don’t personally like a lot. They can be the best actor in the world, but if the first contact is not good, if I don’t fall in love with them, then I don’t want to work with them. It’s impossible.
+ - You cannot be completely nice. It’s impossible. Who is it? Who is the perfect guy? Show him to me! It doesn’t exist. And thank god.
+ - I think with pictures; I’m a very lousy writer. If I write without pictures, I become this pathetic chick sitting somewhere trying to be interesting.
+ - I’m not a politician. I don’t know how to solve the problems of the world. But as an artist, I have one duty: to ask questions.
+ - I’m not somebody that keeps the thing in her heart. I can get very angry for five minutes, but then it’s finished. Once I’ve yelled, it’s over.
+ - If it’s a good work of adaptation, the book should remain a book and the film should remain a film, and you should not necessarily read the book to see the film. If you do need that, then that means that it’s a failure. That is what I think.
+ - Whether this tale be true or false, none can tell, for none were there to witness it themselves.
+ - You draw the character from all angles – side, profile, back, etc. so the animator has this character in all the ways it looks like.
+ - The language in a comic book or a graphic novel and the cinematographic language are really not the same language. They are false brother and sister. It’s not at all the same.
+ - People, they think that animation is a style. Animation is just a technique. It’s like, people, they think that comics is a style, like comics is a superhero story. Comic is just a narration, and is a medium, you can say any kind of story in comics and you can say of any kind of story in animation.
+ - The movie business is not about the money. Of course, you need money to make the movie. If you have a small budget, adapt yourself. Having $200 million dollars doesn’t ensure that you’re definitely going to make a good movie. There’s so many examples that prove that.
+ - I think the best work of the director is to listen to what all the technicians around him have to say, but then the thing is to take the best decision, what you think is the best. Then, that is the moment where you have to have all the film in your head and imagine how all of that will fit together.
+ - The information I have about Iran is second hand.
+ - I had two major activities as a child. I was trying to put on shows with kids in my street, or I was drawing. Actually, what I’m doing now is exactly what I was doing then. Either I’m drawing, or I’m gathering people for a common project. The only difference is that now they are paying me for that.
+ - As a director, you have to understand what is happening – if I don’t understand it, you can’t make changes.
+ - I like to be sad once in a while. You need it for your equilibrium.
+ - I wanted to do my artistic work, and in Iran you have censorship. It was difficult for me to do the work I wanted to do.
+ - I don’t like ‘graphic novel.’ It’s a word that publishers created for the bourgeois to read comics without feeling bad. Comics is just a way of narrating – it’s just a media type.
+ - You never have these moments that, you know, are always perfect. Always something happens.
+ - Any medium can only live up to the strengths of the people working in it. If it’s been used to tell bad or boring stories, it’s not a problem with comics; it’s a problem with the writers of those comics.
+ - For me, who loves to draw and who loves to write and cannot choose between one or the other, the comic is the best form.
+ - You know, the cynicism that is in the politics, it is not for my soul. It makes me – out of me, an extremely bitter, cynical person that I hate to see in the mirror, really.
+ - I don’t think of myself as a rebel; I just say what I think.
+ - If you know a little bit the psychology of human beings, you have to understand that if you say something you should not do, then everybody wants to do it.
+ - I call Iran home because no matter how long I live in France, and despite the fact that I feel also French after all these years, to me the word ‘home’ has only one meaning: Iran. I suppose it’s that way for everyone: Home is the place where one is born and raised.
+ - Image is an international language.
+ - I was a child who had a life, who had hopes, and I wished that a bomb would not fall on my head.
+ - It’s cinematographic to smoke. Imagine Lauren Bacall without a cigarette.
+ - I took three years of karate because of Bruce Lee, you know. I was a green belt.
+ - I’m not a very good financing person. I don’t even know how much money I have in my bank account. I never have opened one single envelope from the bank – they freak me out.
+ - You have to be narcissistic to be an artist. You have to think you are the centre of the whole thing; otherwise, why do you create? The only thing is to recognise it, and then you make the best of it.
+ - I’m not a religious person at all.
+ - A Muslim fanatic and a Christian fanatic, a Jewish fanatic, a secular fanatic, an atheist fanatic, a communist fanatic – all of them are the same. The thinking that, ‘If you don’t think like me, that if you are not with me, then you are against me;’ this is something to condemn.
+ - Words also are filters. They have to be translated. Even in the original language, there is interpretation and some ambiguity. If there’s a cultural difference between the writer and the reader, that might come out in words. But with pictures, there’s more efficiency.
+ - I am absolutely not a feminist, I am against stupidity, and if it comes from males or females, it doesn’t change anything. If it means that women and men, they are equal, then OK, certainly I am a feminist.
+ - The things that I do today are the things I did as a child. When I was a child, either I was drawing or I was taking all the kids off my street and I wanted to make shows – I was all the time making! The only thing is, now I know how to do it better, and now they give me money for it.
+ - Writing is not for me. I completely lose my sense of humor when I write. I become extremely pathetic, very sensational. Images give me possibilities that I don’t have with words.
+ - I became the voice of a generation in a very surprising way, because many Iranians recognize themselves in it. But that is not what I wanted.
+ - I don’t consider myself as a feminist but more a humanist.
+ - America is a very special place. In this country, you have the best and the worst at the same time. Whatever you can imagine.
+ - Hunger eats civilization. The West is not hungry; that’s why they can say they’re so civilized. Civilization is the biggest bluff!
+ - A well-trained cat doesn’t exist because a cat remains a cat.
+ - But violence is news, to a certain extent, and people don’t want complicated news. Because as soon as you realize things are complicated, your life becomes more complicated.
+ - With animation, if something does not fit, you always have the time to change it. When you make a live-action movie, when your days of shooting are over, they are over forever.
+ - I had so many professions before. I didn’t want to do this particularly. It just happened.
+ - I’m very open and never write what I’m going to say. Speeches bore everybody else. I have to freestyle. Every time, from one program to another, everything changes and I improvise.
+ - My mother always told me I had to do 100 times better than a man. I had to work hard at maths, and learn four languages.
+ - Politicians think they have answers for everything. We artists, we only have questions.
+ - Well, I would have much preferred to have had a normal childhood. I would have loved it if my greatest dilemma, at 14, was whether to go to Benetton for my pullovers. I would have preferred not to have cried all the tears I have cried.
+ - Life is complex. You don’t have any person who is nice from the beginning until the end. You don’t always have the notion of redemption. The bad people don’t always pay.
+ - When you make a book or you make a movie, it is almost like hitting on somebody. It’s not because you want to seduce people that you will seduce them; you can hit on somebody and it doesn’t work. But when you hit on them and it works, then it’s really cool.
+ - Graphic novels are not traditional literature, but that does not mean they are second-rate. Images are a way of writing. When you have the talent to be able to write and to draw, it seems a shame to choose one. I think it’s better to do both.
+
+133 quotes

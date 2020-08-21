@@ -1,0 +1,79 @@
+ - In the face of such hopelessness as our eventual, unavoidable death, there is little sense in not at least trying to accomplish all of your wildest dreams in life.
+ - People have been telling me I’m a failure and that I’m doing it all wrong for 20 years now. Never trust anybody when they tell you how your story goes. You know your story. You write your own story.
+ - Keep your focus on what YOU want to do – not what anyone else wants or is doing. You lose time watching others succeed.
+ - Failure is success training.
+ - Live a “Why not?” life, man. Take the shot. The shot is always worth taking.
+ - Why take life seriously? No one gets out alive anyways.
+ - More often than not, a hero’s most epic battle is the one you never see; it’s the battle that goes on within him or herself.
+ - In this life, if you don’t celebrate yourself, nobody will.
+ - Is man indeed a walrus at heart?
+ - In my spare time, I smoke acres of weed.
+ - One man’s frankness is another man’s vulgarity.
+ - Stoners are cute; junkies are sad.
+ - There’s a trick to being whatever you want to be in life. It starts with the simple belief that you are what or who you say you are.
+ - It’s silly that anyone in this world tells you that there are only certain people that can marry you.
+ - In Hollywood you kind of fail upwards.
+ - Don’t let anybody tell you different, man: The main goal in life careerwise should always be to try to get paid to simply be yourself.
+ - I’m always cribbing from real life. I’m not a very creative filmmaker.
+ - People like to set the bar high. I like to put the bar on the ground and barely step over it. I like to keep the expectations really low.
+ - BRODIE: Hell hath no fury like a woman scorned for SEGA.
+ - Storytelling is my currency. It’s my only worth. The only thing of value I have in this life is my ability to tell a story, whether in print, orating, writing it down or having people acting it out.
+ - I know you’re supposed to tell kids not to do drugs, but, kids, do it! Do weed! Don’t do the other stuff, but weed is good.
+ - Everybody’s got one killer story. It doesn’t take talent to tell that story, it just takes experience.
+ - It’s like a dream come true. When somebody is paying you to talk about yourself, you’ve won.
+ - It takes nothing to encourage an artist.
+ - If you’re lucky, you go from being a movie fan to a movie maker.
+ - I’m not even supposed to be here today.
+ - Why do my movies make people feel so dead inside?
+ - I think it’s better to have ideas. You can change an idea. Changing a belief is trickier. Life should malleable and progressive; working from idea to idea permits that. Beliefs anchor you to certain points and limit growth; new ideas can’t generate. Life becomes stagnant.
+ - I try never to worry in general. Worry is interest paid in advance on a debt that never comes due.
+ - Sometimes the path you’re on is not as important as the direction you’re heading.
+ - You know, there’s a million fine looking women in the world, dude, but they don’t all bring you lasagna at work. Most of ’em just cheat on you.
+ - With what you don’t know about me, I could just about fill the Grand Canyon.
+ - Long time no see. I only pray the caliber of your questions has improved.
+ - All these people who say success changes people; well, no, it just magnifies what’s there.
+ - There’s something to be said for failing. It’s not the failure you feel, it’s the failure that people project when something disappoints. You’re back to ground zero, where there’s no expectations, and that’s where I like to be.
+ - Don’t go where the puck’s been; go where it’s gonna be.
+ - I made a deal with myself that whenever I smoke weed, I have to be doing something productive: writing, recording, cutting a podcast, editing, etc.
+ - The writer crafts their ideal world. In my world, everyone has really long conversations or just picks apart pop culture to death and everyone talks in monologue.
+ - Dudes know I’m not a threat. Chicks know I’m not a threat.
+ - T-shirts and long pants make me easier to find in a crowd, but also easy to disappear in a crowd because if I am wearing this and suddenly I am not, it’s like a Harry Potter invisibility cloak.
+ - If you grow up fat, you have to try harder.
+ - I feel like if you’re in Jersey, you have to be a Jersey Devils fan. Anybody born within the confines of the border of the state of New Jersey, I feel, should be a Jersey Devils fan.
+ - I just love movies, so suddenly, you’re political about movies, and that’s dark. It’s just not fun when something you love becomes calculated.
+ - I didn’t get into film to win Academy Awards. I wanted to have a conversation with the audience.
+ - I really would love to play a hannibal lector or PSYCO type character.
+ - I wanted to get my movie noticed WITHOUT spending any ad money. So I made a bit of a spectacle. I recorded lots of podcasts. I bickered with hate groups. I criticized critics. I banged pots together. I did everything I could to raise awareness without raising any money to do so.
+ - I sympathize far more with heavier people than I ever will with thin. I’ll never be thin. Let’s be honest.
+ - It’s too expensive, that’s the thing nobody wants to talk about. It is too expensive to make movies. That’s not true, it is too expensive to market movies. Making movies is not.
+ - I say what other people won’t.
+ - If you’re alive, kick into drive. Chase whimsies. See if you can turn dreams into a way to make a living, if not an entire way of life.
+ - My job is to say, ‘This is how I see the world. Do you agree?’
+ - Indie film isn’t dead, it just grew up.
+ - I saw Richard Linklater’s film ‘Slacker’ for my twenty-first birthday. That was the moment when it all seemed possible. This guy gave me hope.
+ - This is not an industry in which you curl up in a ball and shy away from the realities. It’s a time to scream to the clouds that we’re here and we’ve got great values and great prices. What better time to do that than the Super Bowl?
+ - It’s taken me 15 years to step behind a camera and make something everyone agrees looks like a movie.
+ - We love dirty oral on the Down Low, but no going steady.
+ - Generally, I wake up, honestly it’s creepy, but I wake up around 4:20.
+ - Im gonna try to pay for CLERKS III myself. As much as I love the crowd-funding model, thats an advancement in indie film that belongs to the next generation of artists. I started on my own dime, and if Im allowed, I should finish on my own dime.
+ - Haven’t two hundred years of failed missionary work overseas taught anybody anything? You can’t convert people to anything – whether religion, or something as inane as our flicks.
+ - Based on the timely and helpful responses to my support issues, I feel that I made the right decision to become a customer earlier this year. LuxSci is definitely a quality, customer-oriented business.
+ - For years, my job was to make the movie inexpensively. And I could bring it in. What I can’t control are the costs of marketing.
+ - So I know how I watch movies which is on my laptop, man. And that’s how I suspect a lot of people do it.
+ - When you’re an artist, all you’re trying to do is self-express.
+ - Other filmmakers make their movies and put them out and that’s that. For me, for some odd reason, it goes deeper than that.
+ - You can have 10 bucks to 10 million bucks and if you got a crew, imagination and a lot of people willing to turn in some work next to nothing, you going to have a feature. But you can’t get beyond how expensive marketing the movie is, it’s so crushing.
+ - I’ve always kind of ripped from real life to some degree or at least how I’m feeling in the moment.
+ - If there was no Internet, my career would have ended in 1995.
+ - I think the advent of the Internet gave us all a big boost, because by the time the Internet became mainstream and you could get it in your home, a lot of us were used to dealing in fan culture, writing to magazines or anything at the back of comic books.
+ - I always wanted to see if I could sell a movie to the public without doing any marketing because my philosophy was like, ‘Hey man, I’m reaching my audience everyday. I’m twittering with them. I’m in direct contact with them on the podcast.’
+ - Whenever I’m not shooting, I’m in the editing room with my footage. While the crew is taking 15 minutes to an hour to set up the next shot, I’m behind the Avid, putting the flick together.
+ - There was never any down side to casting friends over professionals. It was always fun seeing folks who never performed before stretching their wings.
+ - I liked hockey, and I still like hockey.
+ - I’ve always kind of ripped from real life to some degree or at least how I’m feeling in the moment. In fact, maybe that’s really it. In anything I’ve ever written, all the characters sound like me, which I don’t think is a bad thing.
+ - I know what it feels like to carry a lot of weight in a society that’s very image-conscious. It’s a thin person’s world, and we try to navigate within it without being made fun of.
+ - People tend to romanticize this job. So, it’s fun to let the air out of it.
+ - And George Carlin was a guy that the more he aged the younger he seemed.
+ - Any book is a self-help guide if you can take something from it.
+
+77 quotes

@@ -1,0 +1,64 @@
+ - Maybe God has a bigger plan for me than I have for myself.
+ - The future is about a plant-based diet.
+ - Cooking is the ultimate giving!
+ - Every child should be taught to cook in school, not just talk about nutrition all day. Good food can be made in 15 minutes. This could be the first generation where the kids teach the parents.
+ - Fight the staggering rise of type-2 diabetes by simply learning to cook healthy fresh food – it’s fun, and it could save your life!
+ - The public health of five million children should not be left to luck or chance.
+ - Stop being a vegan and start enjoying what you eat.
+ - Homicide is 0.8% of deaths. Diet-related disease is over 60%. But no one talks about it.
+ - My aim is to achieve sustainable change, not just make a cute little makeover.
+ - I profoundly believe that the power of food has a primal place in our homes, that binds us to the best bits of life.
+ - All I ever wanted to do was to make food accessible to everyone; to show that you can make mistakes – I do all the time – but it doesn’t matter.
+ - I hear loads of cynics saying that I’ll never be able to change anything. They say that junk food marketing and the ready availability of fast food is just too powerful. But I’d say in response, screw you. I know that most people, if they’re really honest, are fed up with the same old rubbish.
+ - There is not one thing we can do to fix the problem, it has to be an ambush!
+ - Pick a destination, go there, be open-minded and talk to the locals. Eat the things they eat and go where they go. You don’t need to be fluent, just as long as you’ve got a smile on your face- people will be jumping over themselves to show you the stuff they’re proud of.
+ - I love roasting because you can give it love, get it in the oven and go and play with the kids or whatever you’ve got to do, and then hours later you’ve got a lovely dinner.
+ - I wish for everyone to help create a strong, sustainable movement to educate every child about food, inspire families to cook again and empower people everywhere to fight obesity.
+ - The whole idea is to earn the flavor. No one gives it to you.
+ - My first outdoor cooking memories are full of erratic British summers, Dad swearing at a barbecue that he couldn’t put together, and eventually eating charred sausages, feeling brilliant.
+ - Industry, economy, honesty and kindness form a quartet of virtue that will never be improved upon.
+ - Imagine a world where children were fed tasty and nutritious, real food at school from the age of 4 to 18. A world where every child was educated about how amazing food is, where it comes from, how it affects the body and how it can save their lives.
+ - The world is blessed most by men who do things, not by those who merely talk about them.
+ - As usual, my timing is bizarrely good.
+ - When you are trying to move mountains, you want-and need-people on your side who want to move them with you.
+ - If you only design menus that are essentially junk or fast food, the whole infrastructure supports junk.
+ - Give your kids a bloody knife and fork and let me put some fresh food in front of them they can eat.
+ - Your child will live a life ten years younger than you because of the landscape of food that we’ve built around them.
+ - It’s very clear that there’s a lot of double standards going on. Should there be a 30mph speed limit? Of course there bloody should. And certainly with kids and school food, kids need to be nannied for sure. So give them a bloody good meal at school.
+ - The kitchen oven is reliable, but it’s made us lazy.
+ - If you can eat with mates or friends or family, I mean, it’s such a brilliant thing isn’t it? If you feel really rubbish and you have a nice bit of food it makes you feel good, you know?
+ - I hate making TV documentaries.
+ - Many kids can tell you about drugs but do not know what celery or courgettes taste like.
+ - Heads know that failing to invest in good, nutritious food is a false economy and parents won’t tolerate reconstituted turkey being put back on the menu.
+ - Basically, we’re taking a product that would be sold in the cheapest way for dogs, and after this process, is being given to human beings.
+ - I’m probably a bit romantic about it, but I think we humans miss having contact with fire. We need it.
+ - It’s just us trying to start a movement where everybody passes on a bit of cooking knowledge. We estimate that one person can potentially affect 180 others very quickly so we’re just trying to spread the word.
+ - What I’ve enjoyed most, though, is meeting people who have a real interest in food and sharing ideas with them. Good food is a global thing and I find that there is always something new and amazing to learn – I love it!
+ - If Obama wanted to make radical changes to America’s health long-term, all he has to do is treble the price of sugar and salt.
+ - Just because the Americans are so good at rattling out accessible and cheap junk food, nobody looks twice when it comes to their food. But there are golden nuggets everywhere.
+ - I could cook from quite an early age – purely because I liked it.
+ - When I was a schoolkid, I went to Castleton quite a few times. We’d be there studying rocks, going down these big hills. It was a great place!
+ - I’m better with my hands, and I always loved the slightly romantic idea of starting with bits of wood and being able to create something to sit on, to eat from, to store your clothes in.
+ - Food is one of life’s greatest joys yet we’ve reached this really sad point where we’re turning food into the enemy, and something to be afraid of.
+ - I challenge you, to go to any school and open 50 lunchboxes, and I guarantee you there will be one or two cans of Red Bull, there’ll be cold McDonald’s and jam sandwiches with several cakes.
+ - Now that I’ve got kids, it’s become really important for me on the health front to try to buy as much organic produce as possible.
+ - I wouldn’t say that processed food, ready meals and even takeaways aren’t relevant to modern life, it’s just that over the past 40 years there are three generations of people who have come out of school and gone through their home life without ever being shown how to cook properly.
+ - I like ties but I prefer not to wear one when I’m nervous.
+ - Why would any sensible human being put meat filled with ammonia in the mouths of their children?
+ - I want Americans to enjoy food. I want them to celebrate food. I want them to, on occasions, to have big cakes and great things. And I want them to indulge.
+ - I think there are definitely two types of student: the academic kids and the 50% who fail. It’s very clear to see – it’s fact. We’re not doing enough for those who fail; they need a more physical, tactile approach, involving people skills, team-building, problem-solving, building things.
+ - My general rule is that if everyone knew how to cook fresh produce from their local area, and Monday to Thursday within 20 minutes, you know, there’s millions of recipes out there to be had.
+ - I’ve cooked just about everything really.
+ - What we call barbecuing in this country is actually direct grilling. In many countries, it also means cooking in an enclosed box with a heat source, ideally wood, all year round.
+ - It’s not the extremes and the treats that are the problem. It’s the everyday.
+ - In England, you’re allowed to have an opinion – as long as it comes out of your mouth.
+ - As soon as I was old enough to peer over the worktops, I remember being fascinated by what went on in the kitchen. It just seemed such a cool place, everyone working together to make this lovely stuff and having a laugh doing it.
+ - I’ve made a few nice dishes in my time, but this must be the best I’ve ever made.
+ - I left school with basically nothing, I was a special needs kid. I did feel as though my school had let me down.
+ - From quite an early age I realised the effect that good food can have on others.
+ - The best food I’ve ever eaten in my life has come from the poorest communities.
+ - But I read Catching Fire. I loved disappearing into a story.
+ - Like most of the other teachers, I’d done a bit of teaching and we all think we’re great at what we do, but you realize that normally you have an audience who are all onside, who all want to listen.
+ - My life is really so much based in England.
+
+62 quotes

@@ -1,0 +1,24 @@
+ - Quitting is unthinkable and pain is just weakness leaving the body.
+ - It was all absurd, without reason or meaning. People who didn’t know each other were going to kill each other over a hill none of them cared about.
+ - When the peace treaty is signed, the war isn’t over for the veterans, or the family. It’s just starting.
+ - Once we recognize our shadow’s existence we must resist the enticing step of going with its flow.
+ - I knew many Marines had done brave deeds that no one saw and for which they got no medals at all. I was having a very hard time carrying those medals and didnt have the insight or maturity to know what to do with my combination of guilt and pride.
+ - I was given the ability to create stories and characters. That’s my part of the long chain of writers, publishers, agents, booksellers, librarians, and a host of others who eventually deliver literature to the world. I want to do for others what Eudora Welty did for me.
+ - The Marine Corps taught me how to kill, but it didn’t teach me how to deal with killing.
+ - Matterhorn is my metaphor of the Vietnam War – we built it, we abandoned it, we assaulted it, we lost, and then we abandoned it again.
+ - War is society’s dirty work, usually done by kids cleaning up failures perpetrated by adults.
+ - Vietnam was the first time that Americans of different races had to depend on each other. In the Second World War, they were segregated; it was in Vietnam that American integration happened in the military – and it wasn’t easy.
+ - I began writing ‘Matterhorn’ in 1975 and for more than 30 years I kept working on my novel in my spare time, unable to get an agent or publisher to even read the manuscript.
+ - This nation should be less worried about putting the Vietnam syndrome behind us than restarting the World War II victory syndrome that resulted in the Vietnam syndrome in the first place.
+ - I mean, if you’re proud of what you’ve done when you’ve served in the military, well then we call that bragging. And if you are unhappy about what happened, we call that complaining. And so what are you going to do?
+ - For every veteran who goes through a divorce, a wife goes through one, too. For every veteran alone in the basement, there is a wife upstairs, bewildered, isolated and in despair from the dark clouds of war that hangs over family life.
+ - He lay before God as a woman opens herself to a man, with legs apart, stomach exposed, arms open. But unlike some women, he did not have the inner strength that allowed them to do such a thing without fear. There was no woman’s strength in Mellas at all.
+ - How could you get mad at someone who neither needed to attack nor was at all worried about being able to defend? It was like getting mad at Switzerland.
+ - The time for debilitating fear is before and after the mission.
+ - When I first got back from the war, I said, ‘I’m gonna write the Great American Novel about the Vietnam War.’ So I sat down and wrote 1,700 pages of sheer psychotherapy drivel. It was first person, and there would be pages about wet socks and cold feet.
+ - I don’t want any romantics to go into the military. I’m not a pacifist. I think we need a military, and the better one we have, the better off we are. I don’t want kids going in there thinking that it’s John Wayne on Iwo Jima. That’s not healthy.
+ - Everything is touched by the holy when it is in the presence of death.
+ - And I think that it’s – the military has actually made improvements, so people are considering post-traumatic stress disorder as, at the least, a possible psychological problem. You know, when I was in Vietnam, it was just considered malingering. And we’re making progress.
+ - Really important books to me are the classics. I try very hard to read them well, especially once I got serious about writing.
+
+22 quotes

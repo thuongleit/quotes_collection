@@ -1,0 +1,133 @@
+ - Live for the moments you can’t put into words.
+ - I take the invasion of my personal space very seriously.
+ - I don’t steal things. I’m rich.
+ - Go where you’re celebrated, not tolerated. I’m celebrated in Detroit.
+ - Whatever your craft is, be a master of it. Being half assed at something, people will eventually see through.
+ - You get what you put in and people get what they deserve.
+ - I just don’t like being told what to do.
+ - I love to be pushed so I can prove myself, because once again, I will.
+ - I never said I wanted to be around for a long time. I always said I wanted to be here for a good time.
+ - I don’t make music to prove all the critics wrong. I do it to prove all my fans right.
+ - You’ve got to work hard for your success and you’ve got to have a steady presence. That’s the secret.
+ - I see friends who are in different genres of music, and they say they’re so burnt playing the same stuff every night. That’s why you see a country act wanting to go out and play an old classic rock song. But what cracks me up is that they all want to be Jimmy Buffett. I can’t figure that out.
+ - I still love old-school hip-hop, but there hasn’t been a lot that I’ve taken from the new stuff.
+ - I always say getting married was a ball. I had a blast getting married. Loved it so much I got married six or seven times or whatever it was.
+ - One thing that will make you quit smoking is sitting across from Keith Richards all night. I don’t mind being ugly, but I sure don’t want to look like that.
+ - I collect cars and bikes. One of my most special rides is a black 1930s Cadillac V16, and then I’ve got a few West Coast choppers.
+ - I don’t want to be tied down. I don’t want to settle down. I don’t want I love you.
+ - I care less if I can’t be part of your scene because I am the scene. I am everything that is.
+ - Make no mistake: Bob Ritchie’s up early in the morning taking pictures of his son on the first day of his senior year. Kid Rock is passed out in a hotel room somewhere with four scantily-clad women.
+ - I could care less about what people think. I’m a Devil Without A Cause.
+ - Getting married is the most fun you can have in life. Being married sucks.
+ - I don’t sit in my room and hide the whole time. I think people know my spirit is real.
+ - I’m in awe of people like Jerry Lee Lewis and Little Richard; they’re great musicians and people. But I’m most starstruck by people in the small town where I live. Especially single dads, like me, who are working five times as hard to raise their kids.
+ - I’m not worried about headlines affecting my family, especially my son. He knows who I am. Whatever these things he is reading, he has a different perspective than the rest of the world just as a lot of my friends do.
+ - As much as you don’t want to say you are a vengeful person, when someone drags your name through the mud and plays press games and puts things out there like that, you are kind of like, alright. US Weekly will be gone next week, the songs I am writing won’t.
+ - My good friends call me Bobby.
+ - The best formula for revenge is success.
+ - These poor kids in Baghdad have no running water, no showers. They wipe with baby wipes. My heart goes out to them.
+ - I fell in love. It was a great thing to be in love. I was a complete idiot in love.
+ - I just wasn’t raised a granola eating, peace love hippie type person. I’m from Michigan and was raised in and around Detroit where it is kind of you get respect and you give respect. That is how I feel.
+ - But honestly, it’s pretty weird; there are girls who’d do absolutely everything just to get a backstage pass. I don’t know what it is, but really, when you’re on national TV in America the girls love you. They all want you! And I’m not complaining!
+ - I didn’t want to go out and change anything. I just wanted to make the music that was part of my background, which was rock and blues and hip-hop.
+ - My shows aren’t about trying to save some place, because I don’t feel that’s the right venue for it. That’s my politics right there: Don’t bring politics to my shows.
+ - I get a feeling of peace from a low so high, as I sit in my chair and watch life go by.
+ - People ask all the time, ‘What would you be doing if you weren’t Kid Rock?’ It’s simple: I’d be broke Kid Rock.
+ - I remember coming home from school one time and saying very calmly to my mum, ‘I’m not going any more. It’s a waste of time. I gotta get going with this music thing. School’s getting in the way.’ It freaked her out.
+ - When I started out I thought I might make a little money, get some girls, get a taste of the rock ‘n’ roll life. It’s gone way beyond that.
+ - Detroit: Cars and rock ‘n’ roll. Not a bad combo.
+ - I have been to anger management twice. After the first session the lady was like, ‘Baby, you don’t seem that angry at all. You seem like a really nice guy.’
+ - I’m single and loving it. It is always weird talking about that stuff. When someone is talking about who they are going out with, I am always like, who cares? Talk about your music or something.
+ - I think what I’ve learned out of this lifetime is you should be proud of where you come from.
+ - Two of my grandparents died in a car crash. Sucks, ’cause they would have lived to a hundred.
+ - I am scared of being broke and famous. I think that would be the biggest curse.
+ - I have nightmares that I’m going to wake up, and everyone’s driving a Prius and living in a condo, and we’re all getting health insurance.
+ - There’s so many examples of just how lucky we are to be born anywhere in this world that is free.
+ - And there’s a feeling you get from making music that is unlike anything else in the world.
+ - Are some women and children going to die? Yeah. But it’s doing the right thing. You got money, you sit around talking about peace. People who don’t have money need some help.
+ - I am happy to make money. I want to make more money, make more music, eat Big Macs and drink Budweisers.
+ - I didn’t come from a trailer park. I grew up middle class and my dad had money and my mom made my lunch. I got a car when I was sixteen. I’m proud of that.
+ - That’s why I called my record Devil Without a Cause – I’m a white boy who’s so sick of hearing that white kids are going to steal rap.
+ - Knowing so many people like myself who are singers and in traveling bands, the people you’re in a relationship with feel slighted because they feel you’re giving all your energy to your fans, and there’s a lot of truth to that.
+ - Rap’s the occupation, but one day watch I’ll be Pimp of the Nation.
+ - Girls are always like, ‘Oh, you’re much better-looking in person than in pictures.’ I’m kinda like, ‘Er, thank you? I think? As in, I’m not as ugly as you thought?’
+ - I think celebrity endorsements hurt politicians.
+ - Money’s really – you know, song writing, yes, there’s money to be made and things like that. But really, when you talk about the real money, you talk about touring. No question.
+ - I want as many people as possible to hear my music. I’m happy to entertain people by being a star.
+ - I bought a book of Mark Twain quotes. That’s about my speed. I’ll read a couple quotes and put it down.
+ - I know I’m not the best. I’m not the best singer, I’m not the best songwriter, I’m not the best player.
+ - As far as my street cred goes, I’ll always have that, because I always hang with the kids. I’ll jump right off the stage and buy them a beer. I’ll be a star on stage, but I’ll always hang with the kids.
+ - Out stretched hands and one night stands, still I can’t find love.
+ - I think more and more people are starting to understand that you can’t believe half of everything you read or what you see. There are so many information outlets that are available that it’s almost too much, there is so much misinformation out there.
+ - I could write a book on the things I’ve done drunk.
+ - I’m a bit of an insomniac. I’m always thinking. I’ve got a lot of ideas for lyrics and shows. I have a notepad by the side of the bed and voice recorders around the house.
+ - I’ve got friends who didn’t vote. I want to smack them upside the head.
+ - I know a lot of people who are struggling musicians; it’s a hard life, and I’ve risked being that. The rewards are tremendous now that I’ve made it, I thank God every day. But I put it all on the line for it.
+ - I’m not a greedy man; there really is nothing I couldn’t live without. But if there was a fire, and I saved my child and my pets, I’d be happy.
+ - Europeans don’t seem to have the groupie mentality.
+ - I’ve never done songs with people just for the sake of the great combination. I’ve always done songs with friends.
+ - I have a couple of guys to do my laundry. Just because I’m lazy and rich.
+ - I don’t read books. I like to read newspapers and magazines, but I’ve never learnt to enjoy books or novels.
+ - I truly believe that people like myself, who are in a position of entertainers in the limelight, should keep their mouth shut on politics.
+ - Going out hanging out with the troops, and you know it’s kind of all summed up in the TV show, I don’t what else I can say about it. It’s a great thing to do, something I’m definitely proud of.
+ - I don’t rock for Cancer. I rock for cash, and the topless dancers.
+ - Being married sucked. Maybe for some people it is not meant to be.
+ - There’s always a Justin Bieber. Ever since I’ve been around, there’s always been one of him.
+ - I’m actually a pretty decent human being, and when I’m home I’m straight as an arrow.
+ - I always looked up to so many people before me and was lucky to become such good friends with them. I learned so much hanging out with those cats.
+ - I think generally I’m a pretty good person if I had to grade myself. Or toot my own horn.
+ - A lot of people told me that I’m committing musical suicide with my sound.
+ - On a scale of the United States, the Hollywood influence on what comes out, that’s not the majority views of across the country. What we read in Us Weekly or People magazine, or Entertainment Tonight, it’s not what the majority of the country is thinking.
+ - If you had told me when I was starting out that I would be coming down to Nashville, kind of weaving in and out of the country scene, I never would’ve thought that in a million years.
+ - As soon as somebody comes out for a politician, especially in Hollywood, when they all go, ‘I’m voting for this guy!’ – I go, ‘That’s not who I’m voting for!’
+ - But I’m a great father. That’s why I got custody.
+ - I do believe in standing up for what you believe in and your family and your friends.
+ - I see the people in Detroit are very – they’re like a lot of cities, but they’re very proud to be from there and they really want to see change and they really want to see good things happen.
+ - The program director at a radio station, by the way, is not the superstar. If he was a superstar, he’d be out creating songs, but he’s not. But he wants to act like he has control and power.
+ - Surround yourself with good people. Whether they’re the best or not, people are capable of learning if they’ve got good hearts and they’re good souls.
+ - Rock ‘n’ roll is much easier if you’re white.
+ - Everything I’ve done in my career has started in and around Detroit, you know, the metro area and Michigan.
+ - As a musician, you want the music in as many hands as you can get it into. More importantly, I want people to get the music for the fairest price, and in the most convenient way. And that’s really turned into iTunes when you’re talking about selling albums.
+ - People in north Michigan are not different at all from people in southern Alabama. Trust me, someone who’s spent a lot of time in both places. They’re all hardworking, simple people.
+ - Of course I want people to show up to the concerts and I am sure for that to decline would be a difficult thing.
+ - I play Rock ‘n’ Roll, that’s what I do.
+ - I’m thankful that I proved myself in music which is my first love, my first passion before I got involved in this media. I am hoping to bring it back to the music now.
+ - You know how much money the oil companies have? If you need some gas, just go fill your tank off and drive off – they’re not going to miss it.
+ - I’ve always made music from the heart, and that’s what I do.
+ - I make a lot of money. I can take a pay cut. All my friends are taking pay cuts that are in the unions, that are – that are farming in Alabama or whatever it is. I can surely take a pay cut, too, not cutting down my show or – or the people that work for me, I can take a pay cut.
+ - Politicians and music don’t mix. It’s like whiskey and wine.
+ - All girls want to be sexy.
+ - I like to make music, I like rap music. Even if I’m white, I support that music. If I want to support it or any other white kid wants to support it more power to them.
+ - A common man, even like myself, I don’t know how to pay my taxes.
+ - I’ve been to your mountains, I’ve been to your sea-side, and everywhere I went somebody’s wanted a free ride.
+ - I’m all about change, and I know things are going to move forward in life, and that’s just how it goes.
+ - If people had good albums, they’d be buying albums. But people are buying singles because they only have good songs.
+ - I don’t write songs thinking about formats, where is it going to get played, who am I gonna please, what’s the outlet for it.
+ - There’s no way anyone in the world is having more fun than I am. I truly believe that.
+ - I love women and I love the women I have been with. I always try to be kind and cautious and treat people nice.
+ - I signal with an independent label, Continuum. After that I put out a totally independent record, sold fourteen thousand of them from my basement, bought a house, started raising my kid, made a decent living.
+ - I know every Skynyrd and about all Johnny Cash songs.
+ - It’s not that I’m Mr. Goody-Two-Shoes now, but I’ve got my priorities in order.
+ - I was the little white kid who rocked the turntables.
+ - I’m not only a fan of Apple products, I have stock in the company. I think Steve Jobs has started one of the greatest corporations in the world.
+ - I always believed it would happen and stuck to my guns.
+ - Well, I was into music since I was a kid, ya know, back in Detroit. I say Detroit, but it was really a little suburb outside the city called Romeo.
+ - Chris Rock is a good friend of mine, and he is hysterical.
+ - I’ve always had a love of country music.
+ - I think I did every drug known to mankind, smoked crack, boozed, dropped acid, you name it.
+ - That’s what I love from metal, and that’s what I love from hip-hop. That’s what I love from any music that’s hard, that’s got an edge to it-The attitude in it.
+ - I just feel fortune just to have been lucky enough, and worked hard enough, and blessed.
+ - They believed you can’t mix rock, country, and rap, and that crossover is dead. I always knew it would work. And it will always work as long as you’re really into it and like what you’re doing.
+ - I have always touched on different genres whether it has been hip-hop, country and the rock element.
+ - You’re not going to get anything politically correct out of me.
+ - Playing a concert for 2 hours is pie. I would do that every minute of every day if I could. I love to perform. It’s the 22 hours before the next show that kills you.
+ - I’ve got my own studio, so I sit in my studio writing and if I get a great take, that’s the take.
+ - My take on rap is driven by straightforward American southern rock and blues.
+ - The personal antics have overshadowed the music. I never wanted that but I knew what I was getting into when I got into everything I got into.
+ - I do not believe that artists or actors and people should be out there like voicing their full-blown opinions on politics because, let’s face it, at the end of the day, I’m not that smart of a guy.
+ - I’ve paid for more pianos in hotel lobbies than you can imagine.
+ - Why does anything ever happen? Some things happen and some don’t.
+ - My past is a bit checkered.
+ - I’m no saint but I do believe in what is right.
+
+131 quotes

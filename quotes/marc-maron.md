@@ -1,0 +1,117 @@
+ - I’m not for everyone. I’m barely for me.
+ - That’s the big challenge of life – to chisel disappointment into wisdom so people respect you and you don’t annoy your friends with your whining.
+ - You can’t avoid pain in life. It’s how you handle pain, that’s what defines you.
+ - People who have babies tell me I will know a love that is beyond anything I can imagine, and a joy that is indescribable. Love and joy? That sounds horrifying. I have no way of knowing whether I can handle either of those. I’m much better with need and fear. They are what ground me.
+ - I didn’t really want to kill myself, it just made me feel better to know I could if I wanted to.
+ - In most cases the only difference between depression and disappointment is your level of commitment.
+ - I’m just saying, ‘Hey, throw me a bone. How about a smile, cute t-shirt? Look at me.’ Nothing – unless it’s a turn to their friends to go, ‘Hey, why is that weird guy looking at us?’
+ - That’s an animal fable about humility. If you survive your mistake, you must learn from it. Accept that you’re fragile, vulnerable, and sometimes stupid. Realize that you’re not immortal and you’ve got to take care of yourself. And then laugh it off and fly away.
+ - The truth is, I can’t read anything with any distance. Every book is a self-help book to me. Just having them makes me feel better.
+ - Dogs are too much to handle. I don’t need anything in my house that’s needier than me.
+ - My dad is actually a manic depressive, which is very exciting half the time.
+ - Jerusalem Syndrome is actually a rare psychological condition that occurs to some visitors to the Middle East. They get to Israel and just snap.
+ - Maybe depression is the most reasonable response to all the crap around us. Maybe it’s the happy people who need medication.
+ - I’m not a narcissist, but I definitely have gotten enough explosive narcissistic shrapnel from my father. I’m sort of wired that way, but I don’t feel that I’m pathological, so all I can pull from is my own existence and my knowledge.
+ - In show business, it takes 10 years to create an overnight success. You’ve heard that, right? But what you don’t hear is that that’s the exact same amount of time it takes to create a bitter failure.
+ - Have you ever had one of those moments when you look up and realize that you’re one of those people you see on the train talking to themselves?
+ - The Internet has usurped the collective unconscious and access to cosmic consciousness has become difficult and almost primitive.
+ - We need the children of Indonesia and the Philippines to manufacture our freedom of choice.
+ - I sort of get tired of myself sometimes. When you’re busy, your life becomes relatively small. But I never get tired of talking to other people.
+ - Americans don’t understand irony? I am an intelligent person living in the United States. My entire existence is ironic.
+ - I’m glad to be part of the war on sadness. I’m a part time employee of the illusion that keeps people stupid.
+ - For my next trick I will make everyone understand me.
+ - We live in a culture where people are self-centered and careerist and everybody seems to think they have too much on their plate or they just don’t have time for other people’s pain.
+ - Left wing, right wing, I am wingless and tired of trying to fly. Here comes the ground.
+ - I once talked about wanting to kill myself, but I don’t think I was ever really planning on doing it. It was just comforting to know that I could.
+ - Conversation is a beautiful thing. When I was a younger guy, just wandering around talking to people was what kept me connected to the world.
+ - There’s nothing more horrifying than the possibility or the idea that you will just fade away into obscurity.
+ - I remember seeing Richard Pryor’s first movie; it was a midnight movie when I was in high school. I must have been about fifteen. It was one of the most cathartic experiences of my life. I’d never laughed that much.
+ - I seem to offend everybody. I just never got into the universe. I don’t seem to have a tremendous amount of discipline or patience with having to follow a story that is really multi-leveled and science-fiction.
+ - When you actually meet the devil and he offers you a deal most artists eventually negotiate.
+ - I’m not completely sure we aren’t all living in a hallucination now.
+ - Any comic can get on the radio show and be funny. You can get that on any morning radio show or afternoon radio show. There are plenty of people who do that. It’s not a difficult format, to sit around with two or three comics and be funny.
+ - I’m not against people just being funny or telling stories. I don’t need to delve into the soft, dark core all the time. If it happens, it happens.
+ - Surveillance induced morality: relics of cultural retardation.
+ - I’m weird; I have a very strange emotional memory. I really somehow hold on to even passing moments with people.
+ - I’m proud to be part of a generation where reading is a ‘look.’
+ - You know when you make popcorn there are always those fluffy white kernels that are fun and good to eat but there are also always those burnt, black kernels that don’t pop. You know why they don’t pop? Because they have integrity.
+ - I don’t really compartmentalize well. I’m in a state of anxiety and panic a lot, but it’s for different reasons. It used to be because I had nothing going on, but I work very hard and there doesn’t seem to be an end to it.
+ - They are not testing comics for drugs. If our job is dependent on that, there would be three working comics in the country, and two of them would have puppets.
+ - I don’t care what anybody says, I think that George Bush is absolutely the right president to oversea the end of the world.
+ - The next evolutionary step is into the screen.
+ - I’ve always been someone who likes to talk to people. When I was a little kid, I sought out freaks and weirdos that wandered the streets by where I worked in high school. I would just bring them in and talk to them.
+ - Jokes do finish themselves. I really do see them as ongoing conversations about personal themes that I ruminate on.
+ - When you commit your life to something and it doesn’t work out, it is a tough place to be. Suicide can be the spiritual reprieve of a faithless person. I knew I could always just end it, and there was solace in that.
+ - Art is supposed to punch you in the brain, and it’s supposed to stay punched.
+ - There’s a fine line between cultural criticism and bitterness.
+ - It’s easy to maintain your integrity when no one is offering to buy it out.
+ - He does have that weird mixture of born again Christian and stupid that some people mistake for courage and focus.
+ - Faith in the face of disappointment is only enhanced by laughter in the face of pain.
+ - What appealed to me was the intimacy of the medium, the fact that I was doing it from my home, and the fact that I wanted to talk. I was not there to plug things. I don’t do a hell of a lot of research. I go on a sort of kindred-spirit bonding that preexists the interview, and just see what unfolds.
+ - If you can’t afford the good food or if you can’t afford health care or if you don’t have a job or if your car is dangerous because you can’t get it fixed and you DIE, you just lost the game-bzzzzz-thanks for playing extreme capitalism.
+ - There was a period when I was getting a lot of banana bread, because I mentioned someone cooked me banana bread, and then everyone cooked me baked stuff, and I would take it to the hotel, and it was making me fat.
+ - I think sharing experience makes everything better. When people get talking about how they’ve overcome something or how they haven’t, it’s nourishing.
+ - It may have lost its special-ness forever and the clubs might not being doing well but I think standup is in the best shape it has been in a long time.
+ - I’m sad to see the passing of the great drug warriors. I certainly did my part in that battle and I don’t regret any of it.
+ - I was married once before, and I stopped.
+ - How complicated can ice cream flavors be? How much can you put in there? I mean, when the flavor’s something like banana ice cream with caramel, fudge chunks, cheddar goldfish and pennies – you’ve got to draw a line there.
+ - I look at every book as a self-help book.
+ - Comedy is obviously a matter of personal taste and the world always needs a clown and some people have no taste at all and any clown will do.
+ - I think things evolve into jokes. I don’t generally write them down as jokes. I talk them out.
+ - Whether people know the evolution of the conversation or not, I don’t know, but thematically, as a comedian, I stay in the same ballpark – around my issues and my philosophy of life.
+ - I used to do a lot of drugs. I didn’t stop because I didn’t enjoy them; I stopped because I couldn’t handle the commitment.
+ - In the sixties and seventies you could probably name all the great comics. It was still special.
+ - What comics sacrifice and what lives they live – I know that most of their lives, their adult lives, they’re sitting around or walking around with notebooks, writing things down. Usually they’re fairly sensitive. Usually they’re very bright. And that makes them poets.
+ - As a performer you are being used to keep people watching so the commercial endorsements that support the network can be seen by as many people as possible.
+ - The way I figure it, if you can’t tell I’m high by looking at me, I win.
+ - As I became very conscious and more aware of things I got very into the beatniks and that kind of stuff. They were very important to me for a few years.
+ - When I was a young kid I loved Don Rickles, Buddy Hackett and Jackie Vernon.
+ - In a lot of ways, I’m seeking some sort of peace of mind for myself. I’m a fairly emotionally petty, resentful guy who has an inflated sense of himself, and I needed to take that down a notch.
+ - I live in Los Angeles, I know it exists. I know you’re not supposed to taste air.
+ - I think the reason Jesus is so popular, just on a celebrity level, is that he died at the peak of his career.
+ - I didn’t know that people compared Bill Hicks and I but certainly I’m flattered if they do. I knew Bill a bit. We had dinner a couple of times and played guitar together once. I really tried to keep my distance from him professionally.
+ - My cats, the ones that I have, were feral when I found them so the relationship that I have with them 10 years in is very mutual, earned, and evolved over time. It was never an easy thing. I like that they have a certain distance and have their own sense of selves.
+ - I find that if I don’t do interviews, I get a little squirrely. I think that when you engage with someone else, or when you engage in something you’re passionate about, you’re sort of out of your own head.
+ - I’m happy, certainly, given the times we’re living in, to be doing OK, and to not be worrying about money, and to be producing something I enjoy.
+ - I was also a big Woody Allen fan. When I got into college I listened to Lenny Bruce but it’s taken me years to put him into context historically and really get what he did.
+ - When you’re a kid, you always feel you have this weird kindred-spirit thing with other Jews, until you get older and you realize it’s just middle-class bourgeois Jews that sort of fit a template that your family fits into one way or another.
+ - Hopefully standup will become special again.
+ - I think seeing Pryor’s first movie, Live In Concert, when I was in high school changed my life. Pryor really put the heart in darkness for me.
+ - I’m just looking for authentic engagement of some kind, and usually, after an hour or more, you get that. Some people talk at you. Some people just want to answer questions, but a lot of times, all of a sudden you drift away, and you don’t remember you’re on the mic, and you’re in something real.
+ - Is it hard to make a living in show business? Yeah.
+ - Because we’re comics and we pass each other on campus, we know of each other, and a lot of the time there’s a mutual respect there.
+ - I found a great deal of relief and excitement watching comics when I was very young. My grandmother was very into them and so was my grandfather. They had a profound effect on me, so I just found myself watching comedians on the after-school shows: Merv Griffin and that kind of stuff.
+ - I knew most of my radio listeners were lefty political people, and I decided definitively not to be that guy – not to address politics.
+ - I’m just very sort of compulsive and lack the ability to keep things in perspective. If I’m not writing or playing guitar or on the microphone or out on the road, I’m cleaning pots and pans or freaking out about some plumbing issue or tweeting.
+ - Show business is one of the few businesses that the devil will actually agree to own just a portion of your soul because he knows if you have a performer’s ego you were probably working for him all along.
+ - When I was a bit older I had all of the George Carlin records, all of the Steve Martin records, all of the Cheech and Chong records and all of the Richard Pryor records.
+ - I always thought I was funny, but I was very sensitive, and very provocative just to get a rise out of people.
+ - It seems people are more willing to let other people control their minds now and recreational drug use doesn’t seem to have that same renegade sense of adventure that it once did.
+ - I have a very primitive sense that if I just turn on a radio or the television, that somebody’s playing that stuff for me.
+ - They used to have a smoking section at most airports. No more. They now have these glass-encased rooms. You’re not just a smoker, you’re an example to other people. You’re an exhibit at a futuristic zoo.
+ - Your insecurity and neediness is what makes you a big neurotic ball of comedy genius.
+ - Most of my comedy writing happens through improvisation on stage; doing it in the moment.
+ - The worst thing about living in this world, in general, is that things get overwhelming, and things cause a tremendous amount of despair and anxiety.
+ - You hope to see an arc of growth in your ability to become a character on television.
+ - Most of the comics that I talk to I’ve never talked to for more than ten minutes ever. So 95 percent of the time you’re really hearing the first conversation between me and that guy on the podcast.
+ - It’s great to have people come out. I do worry, though. They know me very intimately, in a way, if they listen to my show; they know a lot about me.
+ - I just wanted to be a good comic and had no sense of show business, but at some point you want the opportunity to write a show about your life.
+ - I immediately went out and bought a book on anger management. And now I have that book, and I don’t know if I’ll get to the book. But I’m certainly excited about the day where I can’t find the book, and I get to say, ‘Where the hell is my anger management book?!’
+ - The bile makes it better. I am an information wasting machine – 100s of words a day.
+ - Once I learned how to talk, personally, by myself to any number of people, which means do radio without talking to anyone in particular on the air – I just found that my brain became very free to engage in a sort of stream-of-consciousness style of doing what I do.
+ - You get all excited to give her the ring, and it’s real emotional, and you give it to her, and she cries. And a second later, you’re like, ‘Damn, I could have had a car.’
+ - It always astounds me that over the course of my career, and having lived in four comedy cities – New York, Boston, San Francisco, and Los Angeles – there’s very few people I haven’t run into.
+ - I don’t seek controversy. I don’t seek to antagonize. Sometimes it happens, but I’m not there to argue politics.
+ - I’m not fundamentally a writer. I know writers, and I have a tremendous amount of respect for them. It bothers me that no matter how well I do it, it’s not really my format.
+ - I’ve become less angry and a little more humble by age and by experience and by going through the ups and downs of life.
+ - I don’t make a list of questions. Ever. I think a lot of my interviews are driven by my need to feel connection.
+ - There are a lot of things that I’m allowing myself to be, but it’s a conscious effort to experience contentment for me. My brain doesn’t do that naturally. I’m very overwhelmed all of the time.
+ - Let’s be honest, this is a consumer based economy in America. That’s all we manufacture here is need and appetite. We are the world’s mouth. They make things in other countries, and they’re like, ‘Send it to America; they’ll eat it.’
+ - I think that standup has always been an acquired taste and there was always only a handful of performers that were really inspired.
+ - I feel bad for people who have never been addicted to anything, because they’re the real losers. You want to know why? Because they don’t know what it’s like to really want something – and then get it again and again and again.
+ - On some level any appearance on Television can be seen as a product endorsement.
+ - I know that the podcast is typically something I can do forever, because it’s mine; it’s just me and my producer and business partner, so it’s our business.
+ - My favorite part is being engaged with somebody’s story and life, and getting a laugh with people I have a tremendous amount of respect for or not, and being challenged by the immediacy of conversation.
+ - Comics seemed to have a handle on things. They could sort of disarm and get control over reality. I found it very comforting to laugh.
+
+115 quotes

@@ -1,0 +1,233 @@
+ - There is a crack in everything, that’s how the light gets in.
+ - Pay attention to the cracks, because that’s where the light gets in.
+ - Everybody knows that the dice are loaded, Everybody rolls with their fingers crossed, Everybody knows that the war is over, Everybody knows the good guys lost.
+ - Do not be a magician – be magic!
+ - I don’t consider myself a pessimist. I think of a pessimist as someone who is waiting for it to rain. And I feel soaked to the skin.
+ - We are so small between the stars, so large against the sky.
+ - We are so lightly here. It is in love that we are made. In love we disappear.
+ - How can I begin anything new with all of yesterday in me?
+ - I have tried in my way to be free.
+ - Act the way you’d like to be and soon you’ll be the way you act.
+ - And here you are hurried, And here you are gone; And here is the love, That it’s all built upon.
+ - If you don’t become the ocean, you’ll be seasick every day.
+ - Love is the only engine of survival.
+ - You go your way I’ll go your way too.
+ - In the broken places, the light shines through.
+ - I greet you from the other side of sorrow and despair, with a love so vast and shattered it will reach you everywhere.
+ - I wish I could say everything in one word. I hate all the things that can happen between the beginning of a sentence and the end.
+ - Dance me to your beauty with a burning violin Dance me through the panic ’til I’m gathered safely in Lift me like an olive branch and be my homeward dove Dance me to the end of love.
+ - Now I’ve heard there was a secret chord That David played, and it pleased the Lord But you don’t really care for music, do you? It goes like this the fourth, the fifth The minor fall, the major lift The baffled king composing Hallelujah.
+ - Music is the emotional life of the most people.
+ - We are ugly but we have the music.
+ - I speak of a clinical depression that is the background of your entire life, a background of anguish and anxiety, a sense that nothing goes well, that pleasure is unavailable and all your strategies collapse.
+ - It’s not a cry you can hear at night. It’s not somebody who has seen the light. It’s a cold and it’s a broken Hallelujah.
+ - You who wish to conquer pain, you must learn what makes one kind.
+ - Maybe there’s a god above but the only thing I learned from love was how to shoot at somebody who outdrew you.
+ - Never make a decision when you need to pee.
+ - May everyone live, And may everyone die. Hello, my love, And my love, Goodbye.
+ - You’ve got a deadline. Well, I do, too: death.
+ - Like a bird on a wire, like a drunk in a midnight choir, I have tried in my way to be free!!
+ - Follow me, the wise man said, but he walked behind.
+ - And sometimes when the night is slow The wretched and the meek We gather up our hearts and go A Thousand Kisses Deep.
+ - I don’t trust my inner feelings, inner feelings come and go.
+ - It’s the notion that there is no perfection – that there is a broken world and we live with broken hearts and broken lives but still there is no alibi for anything. On the contrary, you have to stand up and say hallelujah under those circumstances.
+ - It doesn’t matter what you do because it’s going to happen anyway.
+ - Take one step to the side and it’s all absurd.
+ - Songs don’t dignify human activity. Human activity dignifies the song.
+ - Don’t dwell on what has passed away or what is yet to be.
+ - I don’t know which side is anybody on any more. I don’t really care. There is a moment when we have to transcend the side we’re on and understand that we are creatures of a higher order.
+ - I’ve seen the future and it’s murder.
+ - If you want a lover I’ll do anything you ask. If you want a different kind of love I’ll wear a mask. If you want to strike me down in anger here I stand. If you want a partner in life take my hand. I’m your man.
+ - Poetry is just the evidence of life. If your life is burning well, poetry is just the ash.
+ - I’ve seen the nations rise and fall. I’ve heard their stories, heard them all, but love’s the only engine of survival.
+ - And what can I tell you, my brother, my killer, what can I possibly say? I guess that I miss you, I guess I forgive you, I’m glad you stood in my way.
+ - You win a while, and then it’s done – Your little winning streak.
+ - Love is not a victory march.
+ - Avoid the flourish. Do not be afraid to be weak. Do not be ashamed to be tired. You look good when you’re tired. You look like you could go on forever. Now come into my arms. You are the image of my beauty .
+ - Deprivation is the mother of poetry.
+ - No one masters the heart.
+ - May you be surrounded by friends and family, and if this is not your lot, may the blessings find you in your solitude.
+ - First we take Manhattan, then we take Berlin.
+ - The older I get, the surer I am that I’m not running the show.
+ - You lose your grip, and then you slip into the Masterpiece.
+ - Everybody knows the dice are loaded.
+ - Every heart to Love will come, but like a refugee.
+ - I found that things became a lot easier when I no longer expected to win. You abandon your masterpiece and sink into the real masterpiece.
+ - It’s four in the morning, the end of december I’m writing you now just to see if you’re better.
+ - Ring the bells that still can ring.
+ - Your servant here, he has been told to say it clear, to say it cold: It’s over, it ain’t going any further And now the wheels of heaven stop you feel the devil’s riding crop Get ready for the future: it is murder.
+ - I don’t even hate books anymore.
+ - You have to keep cracking yourself open or you become a parody of yourself.
+ - Reality is one of the possibilities I cannot afford to ignore.
+ - From bitter searching of the heart, quickened with passion and with pain we rise to play a greater part this is the faith from which we start.
+ - It’s you my love, you who are the stranger.
+ - I’m neither left or right. I’m just staying home tonight, getting lost in that hopeless little screen.
+ - I smile when I’m angry, I cheat and I lie. I do what I have to do to get by. But I know what is wrong and I know what is right, and I’d die for the truth in my secret life .
+ - All men will be sailors then Until the sea shall free them.
+ - I want to be paid for my work, not work for my pay.
+ - There is a war between the ones who say there is a war and the ones who say there isn’t.
+ - As the mist leaves no scar On the dark green hill So my body leaves no scar On you and never will.
+ - I’ll be marching through the morning, Marching through the night, Moving ’cross the borders Of My Secret Life.
+ - The troubles came and I saved what I could save. A thread of light, a particle, a wave.
+ - I’m planning a catastrophe.
+ - And I’ll dance with you in Vienna, I’ll be wearing a river’s disguise. The hyacinth wild on my shoulder my mouth on the dew of your thighs. And I’ll bury my soul in a scrapbook, with the photographs there and the moss. And I’ll yield to the flood of your beauty, my cheap violin and my cross.
+ - And I’ll bury my soul in a scrapbook, with the photographs there and the moths.
+ - It’s time that we began to laugh and cry and cry and laugh about it all again.
+ - Here is your cross, Your nails and your hill; And here is your love, That lists where it will.
+ - I’m afraid to live any place but in expectation. I’m no life-risk.
+ - I don’t really understand that process called reincarnation but if there is such a thing I’d like to come back as my daughter’s dog.
+ - To the men and women who own men and women those of us meant to be lovers we will not pardon you for wasting our bodies and time.
+ - When it all comes down to dust I will kill you if I must, I will help you if I can. When it all comes down to dust I will help you if I must, I will kill you if I can.
+ - Children show scars like medals. Lovers use them as secrets to reveal. A scar is what happens when the word is made flesh.
+ - I loved you when you opened like a lily to the heat; you see I’m just another snowman standing in the rain and sleet who loved you with his frozen love, his second hand physique, with all he is and all he was a thousand kisses deep.
+ - Oh the sisters of mercy, they are not departed or gone.
+ - I am not the one who loved, it’s love that chooses me. When hatred with it’s package comes, you forbid delivery.
+ - The candles burned The moon went down The polished hill The milky town Transparent, weightless, luminous Uncovering the two of us On that fundamental ground Where love’s unwilled, unleashed, unbound And half the perfect world is found.
+ - If I knew where the good songs came from, I’d go there more often. It’s a mysterious condition. It’s much like the life of a Catholic nun. You’re married to a mystery.
+ - What a beautiful testament to the creative spirit and its true motives, to creative contribution coming from a place of purpose rather than a hunger for profit.
+ - You say I took the name in vain I don’t even know the name But if I did, well really, what’s it to you? There’s a blaze of light in every word It doesn’t matter which you heard The holy or the broken Hallelujah.
+ - Women stand for the objective world for a man. They stand for the thing that you’re not and that’s what you always reach for in a song.
+ - Some say that no one ever leaves Montreal, for that city, like Canada itself, is designed to preserve the past, a past that happened somewhere else.
+ - Games are nature’s most beautiful creation.
+ - Silence And a deeper silence When the crickets Hesitate.
+ - I cannot understand why my arm is not a lilac tree.
+ - I loved you for a long, long time I know this love is real It don’t matter how it all went wrong That don’t change the way I feel And I can’t believe that time’s Gonna heal this wound I’m speaking of There ain’t no cure for love.
+ - When you call me close to tell me your body is not beautiful I want to summon the eyes and hidden mouths of stone and light and water to testify against you.
+ - Don’t call yourself a secret unless you mean to keep it.
+ - The last refuge of the insomniac is a sense of superiority to the sleeping world.
+ - The dreamers ride against the men of action. Oh see the men of action falling back.
+ - The wars they will be fought again The holy dove be caught again bought and sold and bought again; the dove is never free.
+ - The Maestro says it’s Mozart but it sounds like bubble gum when you’re waiting for the miracle to come.
+ - There are no letters in the mailbox And there are no grapes upon the vine And there are no chocolates in your boxes anymore And there are no diamonds in the mine.
+ - As our eyes grow accustomed to sight they armour themselves against wonder.
+ - This mental space is occupied and everything is mine.
+ - Lift me like an olive branch and be my homeward dove Dance me to the end of love...
+ - When you stop thinking about yourself all the time, a certain sense of repose overtakes you.
+ - Prayer is translation. A man translates himself into a child asking for all there is in a language he has barely mastered.
+ - My friends are gone and my hair is grey. I ache in places I used to play. And I’m crazy for love but I’m not coming on. I’m just paying my rent every day in the tower of song.
+ - Here’s to the few who forgive what you do, and the fewer who don’t even care.
+ - Please make me empty, if I’m empty then I can receive, if I can receive it means it comes from somewhere outside of me, if it comes from outside of me I’m not alone! I cannot bear this loneliness. Above all it is loneliness.
+ - I’m writing all the time. And as the songs begin to coalesce, I’m not doing anything else but writing. I wish I were one of those people who wrote songs quickly. But I’m not. So it takes me a great deal of time to find out what the song is.
+ - The cutting of the gem has to be finished before you can see whether it shines.
+ - When things get really bad, just raise your glass and stamp your feet and do a little jig. That’s about all you can do.
+ - When you’re not feeling holy, your loneliness says that you’ve sinned.
+ - We used to play music for fun. Much more than now. Now nobody picks up a guitar unless they’re paid for it.
+ - Friend, when you speak this carefully I know it is because you don’t know what to say.
+ - The blizzard of the world has crossed the threshold and it’s overturned the order of the soul...
+ - I lit a thin green candle to make you jealous of me, but the room just filled up with mosquitoes.
+ - I never really liked poetry readings; I liked to read poetry by myself, but I liked singing, chanting my lyrics to this jazz group.
+ - I almost went to bed without remembering the four white violets I put in the button-hole of your green sweater and how i kissed you then and you kissed me shy as though I’d never been your lover.
+ - Any startling piece of work has a subversive element in it, a delicious element often. Subversion is only disagreeable when it manifests in political or social activity.
+ - He knew that hair couldn’t feel; he kissed her hair.
+ - Your hair upon the pillow like a sleepy golden storm.
+ - A sip of wine, a cigarette, And then it’s time to go. I tidied up the kitchenette; I tuned the old banjo. I’m wanted at the traffic-jam. They’re saving me a seat.
+ - In our rags of light, all dressed to kill.
+ - The moon is swimming naked and the summer night is fragrant with a mighty expectation of relief.
+ - Everytime you grab at love you will lose a snowflake of your memory.
+ - My page was too white My ink was too thin The day wouldn’t write What the night pencilled in.
+ - Coroner’s inquest: death by drowning. And he hasn’t been to the sea-shore in ten years.
+ - Rust rust rust in the engines of love and time.
+ - I don’t remember lighting this cigarette and I don’t remember if I’m here alone or waiting for someone.
+ - I always thought that poetry is the verdict that others give to a certain kind of writing. So to call yourself a poet is a kind of dangerous description. It’s for others; it’s for others to use.
+ - Stunned and still not suffering. Swollen with care and anxiety and still not suffering. Useless, old and full of grief, but still not suffering.
+ - Dream after dream we all lie in each other’s arms.
+ - I am an old scholar, better-looking now than when I was young. That’s what sitting on your ass does to your face.
+ - Fare thee well my nightingale, I lived but to be near you. Thow you are singing somewhere still I can no longer hear you.
+ - If your life is a leaf that the seasons tear off and condemn they will bind you with love that is graceful and green as a stem.
+ - In dreams the truth is learned that all good works are done in the absence of a caress.
+ - You are locked into your suffering and your pleasures are the seal.
+ - She was made of flesh and eyelashes.
+ - History is a needle for putting men asleep anointed with the poison Of all they want to keep.
+ - What were the bodies like on the beach? Ugly and white and ruined by offices.
+ - Even without the mushroom cloud still I would have hated Listen I would have done the same things even if there were no death I will not be held like a drunkard under the cold tap of facts I refuse the universal alibi.
+ - This is the most challenging activity that humans get into, which is love. You know, where we have the sense that we can’t live without love. That life has very little meaning without love.
+ - I couldn’t feel so I learned to touch.
+ - A woman watches her body uneasily, as though it were an unreliable ally in the battle for love.
+ - I guess you go for nothing, if you really want to go that far.
+ - A heavy burden lifted from my soul, I heard that love was out of my control.
+ - Growing old becomes clear to you at a certain point. I think it’s after the age of 70 you realize – you begin to actually be convinced – you’re growing older.
+ - Well it’s true, ever since I stopped eating meat I feel a lot better among animals, I feel I can be much more honest when I pat a dog.
+ - Show me slowly what I only know the limits of Dance me to the end of love.
+ - I want history to jump on Canada’s spine with sharp skates.
+ - Like any joker, he was watching For the card that is so high and wild He’ll never need to deal another He was just some Joseph looking for a manger.
+ - And this is our time-keeper, with a passion for percussion.
+ - I listen to the radio and I like all kinds of music, you know, but I like to hear from people who have been there. Hank Williams has been there.
+ - I had the title poet, and maybe I was one for a while. Also, the title singer was kindly accorded me, even though I could barely carry a tune.
+ - I bargain now. I offer buttons for his love.
+ - The term clinical depression finds its way into too many conversations these days. One has a sense that a catastrophe has occurred in the psychic landscape.
+ - The duty of lovers is to tarnish the Golden Rule.
+ - We’re always experiencing joy or sadness. But there are lots of people who’ve closed down. And there are times in one’s life when one has to close down just to regroup.
+ - It’s a depressing habit you have of loving to sneeze and of eating apples as if they were juicier for you and being the first one to exclaim how good the movie is. You depress people. We like apples too.
+ - Who could have foretold the heart grows old from touching others.
+ - It’s hard to hold the hand of anyone who is reaching for the sky just to surrender.
+ - When we are touched by a song, it is because the artist cannot hide himself.
+ - A saint is someone who has achieved a remote human possibility. It is impossible to say what that possibility is. I think it has something to do with the energy of love...
+ - You who build these altars now to sacrifice these children, you must not do it anymore. A scheme is not a vision and you never have been tempted by a demon or a god .
+ - I fought against the bottle, but I had to do it drunk. Took my diamond to the pawn shop, but that don’t make it junk.
+ - I finally broke into the prison I found my place in the chain Even damnation is poisoned with rainbows.
+ - Shouldering your loneliness like a gun that you will not learn to aim, you stumble into this movie house then you climb, you climb into the frame.
+ - And clenching your fist for the ones like us Who are oppressed by the figures of beauty.
+ - My two great heroes are W. B. Yeats and Fernando Garcia Lorca.
+ - How bitter were the Prozac pills of the last few hundred mornings.
+ - The winter has not killed usagain!
+ - I have often prayed for you like this Let me have her.
+ - Everybody knows that you’ve been faithful, give or take a night or two.
+ - It is painful to recall a past intensity, to estimate your distance from the Belsen heap, to make your peace with numbers. Just to get up each morning is to make a kind of peace.
+ - People used to say my music was too difficult or too obscure, and I never set out to be difficult or obscure. I just set out to write what I felt as honestly as I could, and I am delighted when other people feel a part of themselves in the music.
+ - Well, I’ve been waiting, I was sure we’d meet between the trains we’re waiting for I think it’s time to board another Please understand, I never had a secret chart to get me to the heart of this or any other matter.
+ - I dreamed about you baby. It was just the other night. Most of you was naked Ah, but some of you was light.
+ - A community is an alibi for the failure of individual love.
+ - As a young man, Yeats spoke to me in a way I could understand. Shakespeare I couldn’t understand, but Yeats I could. It was his subject matter and also I really admired the way he put his personal life on the line.
+ - We do what only lovers can: make a gift out of necessity.
+ - I’m not a very nostalgic person. I don’t really look at the past and summon up regrets, or self-congratulations, it just is not a mechanism that operates very strongly in me. So I neither have regrets nor occasions for self-congratulations.
+ - So the great affair is over but whoever would have guessed, It would leave us all so vacant and so deeply unimpressed, It’s like our visit to the moon or to that other star, I guess you go for nothing if you really want to go that far.
+ - I alwaysthought of myself as a competent, minor poet. I know who I’m up against.
+ - At first first nothing will happen to us and later on it will happen to us again.
+ - My interest in this pack of failures betrays my character.
+ - Raise a million filters and the rain will not be clean, until the longing for it be refined in deep confession.
+ - Someone gave me wishes and I wished for an embrace.
+ - Dear Hitler Take away the torches I’m not guilty I had to have this.
+ - I swear by this song and by all that I have done wrong, I will make it all up to thee.
+ - I’ve forgotten most of what I’ve read and, frankly, it never seemed very important to me or to the world.
+ - You can say that I’ve grown bitter but of this you can be sure. The rich have get their channels in the bedrooms of the poor. And there’s a mighty Judgement coming but I may be wrong...
+ - The art of longing’s over, and it’s never coming back.
+ - All the lousy little poets coming around trying to sound like Charles Manson.
+ - It’s true that all the men you knew were dealers who said they were through with dealing Every time you gave them shelter. I know that kind of man It’s hard to hold the hand of anyone who is reaching for the sky just to surrender.
+ - The less I was of who I was, the better I felt.
+ - I have nothing against the Queen of England. Even in my heart I never resented her for not being Jackie Kennedy. She is, to my mind, a very gallant lady, victimized by whoever it is who designs the tops of her uniforms.
+ - Most of the time one is discouraged by the work, but now and again by some grace something stands out and invites you to work on it, to elaborate it or animate it in some way. It’s a mysterious process.
+ - Your body will never be familiar.
+ - Ah, grief makes us precise!
+ - He can love the shape of human beings, the fine and twisted shapes of the heart. It is good to have among us such men, such balancing monsters of love.
+ - I told the truth, I didn’t come to fool you.
+ - I can work on a verse for a very long time before realising it’s not any good and then, and only then, can I discard it.
+ - Let judges secretly despair of justice: their verdicts will be more acute. Let generals secretly despair of triumph; killing will be defamed. Let priests secretly despair of faith: their compassion will be true.
+ - Now, I don’t want to give you the impression that I’m a great musicologist, but I’m a lot better than what I was described as for a long, long time; you know, people said I only knew three chords when I knew five.
+ - I think the term poet is a very exalted term and should be applied to a man at the end of his work. When he looks back over the body of his work and he’s written poetry then let the verdict be that he’s a poet.
+ - I always felt I was scraping the bottom of the barrel trying to get a song together.
+ - I’ve always held the song in high regard because songs have got me through so many sinks of dishes and so many humiliating courting events.
+ - Creators care nothing for their systems except that they be unique.
+ - Out of the thousands who are known or who want to be known as poets, maybe one or two are genuine and the rest are fakes, hanging around the sacred precincts, trying to look like the real thing.
+ - I was 15 when I first became deeply touched by the rhythm and structure of words.
+ - His vision was just outstanding. If you think of him in the same way as Pele then you would come close.
+ - My sense of proprietorship has been so weak that actually I didn’t pay attention and I lost the copyrights on a lot of the songs.
+ - Journalists, especially English journalists, were very cruel to me. They said I only knew three chords when I knew five!
+ - No penance serves to renew them, no massive transfusions of trust. Why not even revenge can undo them, so twisted these vows and so crushed.
+ - After a while, if you are sufficiently bored or unemployed, you may want to read it from cover to cover.
+ - I don’t think you can write novels on the road. You need a certain stability.
+ - Well, for one thing, in the tradition of Zen that I’ve practiced, there is no prayerful worship and there is no affirmation of a deity.
+ - I didn’t want to write for pay. I wanted to be paid for what I write.
+ - G-d is alive. Magic is afoot. G-d is afoot. Magic is alive.
+ - And I had not much of a voice. I didn’t play that great guitar either.
+ - Do not believe the truth. The truth is tiny compared to what you have to do.
+ - One is distracted by this notion that there is such an thing as inspiration, that it comes fast and easy. And some people are graced by that style. I’m not. So I have to work as hard as any stiff to come up with my payload.
+ - Well I am the one who loves changing from nothing to one.
+ - Poetry is a verdict rather than an intention.
+ - To every people the land is given on condition. Perceived or not, there is a Covenant, beyond the constitution, beyond sovereign guarantee, beyond the nation’s sweetest dreams of itself.
+ - Although only one man may be receiving the favors of a woman, all men in her presence are warmed.
+ - And most people have a woman in their heart, most men have a woman in their heart and most women have a man in their heart.
+ - I always considered myself a minor writer. My province is small, and I try to explore it very, very thoroughly.
+ - I have to finish it in order to know whether it deserves to survive.
+ - Garages, barns and attics are always older than the buildings to which they are attached.
+
+231 quotes

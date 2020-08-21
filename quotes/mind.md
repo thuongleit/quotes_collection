@@ -1,0 +1,42 @@
+ - You either control your mind or it controls you. ~~Napoleon Hill
+ - A positive mind finds a way it can be done; a negative mind looks for all the ways it can’t be done. ~~Napoleon Hill
+ - The sky is not the limit. Your mind is. ~~Marilyn Monroe
+ - There is nothing more powerful than a changed mind. ~~Les Brown
+ - The greatest investment a young person can make is in their own education, in their own mind. Because money comes and goes. Relationships come and go. But what you learn once stays with you forever. ~~Warren Buffett
+ - You may think I’m small, but I have a universe inside my mind. ~~Yoko Ono
+ - Whatever you hold in your mind on a consistent basis is exactly what you will experience in your life. ~~Tony Robbins
+ - The mind once enlightened cannot again become dark. ~~Thomas Paine
+ - Control your own mind, and you may never be controlled by the mind of another. ~~Napoleon Hill
+ - Happiness is a state of mind. It’s just according to the way you look at things. ~~Walt Disney
+ - If you can believe it, the mind can achieve it. ~~Ronnie Lott
+ - Be an individual, work hard, study, get your mind straight, and trust nobody. ~~Tupac Shakur
+ - Empty your mind, be formless, shapeless – like water. ~~Bruce Lee
+ - All limits exist only in the mind, and it is only in the mind that they can be overcome. ~~Alan Cohen
+ - Keep your blood clean, your body lean, and your mind sharp. ~~Henry Rollins
+ - You’ll never find peace of mind until you listen to your heart. ~~George Michael
+ - Everyone should have their mind blown once a day. ~~Neil deGrasse Tyson
+ - There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. ~~Ronald Reagan
+ - My child, what I want is muscles of iron and nerves of steel, inside which dwells a mind of the same material as that of which the thunderbolt is made. ~~Swami Vivekananda
+ - Live the full life of the mind, exhilarated by new ideas, intoxicated by the Romance of the unusual. ~~Ernest Hemingway
+ - Happiness is not a possession to be prized, it is a quality of thought, a state of mind. ~~Daphne du Maurier
+ - We are dying from overthinking. We are slowly killing ourselves by thinking about everything. Think. Think. Think. You can never trust the human mind anyway. It’s a death trap. ~~Anthony Hopkins
+ - A grateful mind is a great mind which eventually attracts to itself great things. ~~Plato
+ - Happiness is a state of mind. You can be happy or you can be unhappy. ~~Walt Disney
+ - O Divine Providence, I ask not for more riches but more wisdom with which to make wiser use of the riches you gave me at birth, consisting in the power to control and direct my own mind to whatever ends I might desire. ~~Napoleon Hill
+ - There is no room for God in a mind that’s full of self. ~~T.D. Jakes
+ - Never neglect details. When everyone’s mind is dulled or distracted the leader must be doubly vigilant. ~~Colin Powell
+ - Beauty isn’t about having a pretty face it’s about having a pretty mind, a pretty heart, and a pretty soul. ~~Drake
+ - Lacking an external focus, the mind turns inward on itself and creates problems to solve, even if the problems are undefined or unimportant. If you find a focus, an ambitious goal that seems impossible and forces you to grow, these doubts disappear. ~~Tim Ferriss
+ - For peace of mind, we need to resign as general manager of the universe. ~~Larry Eisenberg
+ - The world needs different kinds of minds to work together. ~~Temple Grandin
+ - I’m most afraid of losing my mind. You lose your identity, your sense of who you are, where you are. ~~Stephen King
+ - A single idea from the human mind can build cities. An idea can transform the world and rewrite all the rules. ~~Leonardo DiCaprio
+ - I’m not sure what I’ll do, but – well, I want to go places and see people. I want my mind to grow. I want to live where things happen on a big scale. ~~F. Scott Fitzgerald
+ - The legislation of Quran will spread all over the world, because it agrees with the mind, logic and wisdom. ~~Leo Tolstoy
+ - Come hell or high water you will never take me back to the place I was before. I have been through too much to let life whoop me again. My faith is stronger than it’s ever been, my mind is more tenacious than it’s ever been, my soul is more absolute. ~~T.D. Jakes
+ - To go out of your mind at least once a day is tremendously important. By going out of your mind, you come to your senses. ~~Alan Watts
+ - As I hurtled through space, one thought kept crossing my mind – every part of this rocket was supplied by the lowest bidder. ~~John Glenn
+ - Health is a state of complete harmony of the body, mind and spirit. When one is free from physical disabilities and mental distractions, the gates of the soul open. ~~B.K.S. Iyengar
+ - Christmas is not a date. It is a state of mind. ~~Mary Ellen Chase
+
+40 quotes

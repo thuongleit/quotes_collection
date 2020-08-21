@@ -1,0 +1,28 @@
+ - Yeah, I’m a geek. I read sci-fi and I watch sci-fi films. I love my computer and I love to fix it. I’m a total nerd. I literally am a 12-year-old geeky boy trapped in a 32-year-old woman’s body.
+ - I am in an extended self-directed course of study. That is, I am in control of my own life.
+ - Life is short, and I’d rather be sitting in the poor house doing what I love doing than making a lot of money and being miserable. Life is very short.
+ - Actually, I love mythology. When I was a kid I was obsessed with myth and I wanted to be a mythologist when I grew up. Then I realized I really just like stories.
+ - I’m kissing Alyson Hannigan and I almost stuck my tongue in her mouth because we just got so into it at one point.
+ - I wouldn’t want to forget anything, even the weird stuff and the bad stuff. It makes you who you are.
+ - The acting is something that will always be a part of my life, but the writing gives me a lot more creative freedom. You’re a pawn in somebody else’s chess game, whereas as a writer and as a director, you get to call the shots. And that’s very thrilling.
+ - Acting is fantastic, but to be able to create a whole world on celluloid is amazing. It’s like taking your dreams straight from your head and projecting them onto a screen.
+ - I wanted to create a heroine that was flawed. I wanted her to be a real person. She’s selfish, she’s childish, she’s immature and because I’m doing a three-book arc I really played that up in the first book. I wanted the reader to be annoyed with her at times.
+ - I’m not going to throw up or over-exercise myself into oblivion to look like a model. People tell me, ‘You’d work all the time if you just lost twenty pounds.’ What am I going to do, cut off my head?!
+ - I admit it: I’m a freak who sits obsessively in front of my computer typing my name into Yahoo Search over and over again. I’m a closet Amberholic. Please help me!
+ - There is so much more to this world then outward appearances. Our society basks in the illusion of normalcy every day, and hides from the truth every night.
+ - I just feel lucky to have grown up where I did because I think it gave me a nice base. Hollywood can really mess with your sense of self and I feel like coming from the South keeps me pretty grounded.
+ - I think any good literature, whether it’s for children or for adults, will appeal to everybody. As far as children’s literature goes, adults should be able to read it and enjoy it as much as a child would.
+ - It doesn’t matter who you sleep with, it’s how you treat other people in this world.
+ - I’ve always been a big fan of books.
+ - I always said that, when I grow up, I want to be like Joss Whedon : I want to have my own world.
+ - Willow: Hey, clothes. Tara: Better not get used to ’em.
+ - If I wasn’t an actress I’d want to be a writer or else find a job where I got to read books and watch movies all day, everyday, for the rest of my life.
+ - I love sci-fi and fantasy.
+ - It’s all about what you feel on the inside – and I’m feeling like a chocolate chip cookie because I had about ten of them last night!
+ - I think that I have this core group of fans that fell in love with the character I played on Buffy and now they’re following me to everything I do. They’re very dedicated and loyal. I’m very lucky.
+ - I think people are starting to think of me less as an actor and more as a writer.
+ - I’m such a geek, I know all about mythology and I don’t know Marc Jacobs.
+ - You were doing a TV show – you don’t realise that you’re also making social commentary at the same time.
+ - I don’t think anything lives up to what you envisioned.
+
+26 quotes

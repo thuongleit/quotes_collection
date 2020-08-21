@@ -1,0 +1,26 @@
+ - To build a theory of international relations on accidents of geography and history is dangerous.
+ - If we gather more and more data and establish more and more associations, however, we will not finally find that we know something. We will simply end up having more and more data and larger sets of correlations.
+ - According to the first image of international relations, the locus of the important causes of war is found in the nature and behavior of man. Wars result from selfishness, from misdirected aggressive impulses, from stupidity.
+ - In anarchy there is no automatic harmony .
+ - Asking who won a given war, someone has said, is like asking who won the San Francisco earthquake. That in war there is no victory but only varying degrees of defeat is a proposition that has gained increasing acceptance in the twentieth century.
+ - In a zero-sum game, the problem is entirely one of distribution, not at all one of production.
+ - The implication of game theory, which is also the implication of the third image, is, however, that the freedom of choice of any one state is limited by the actions of the others.
+ - Is it capitalism or states that must be destroyed in order to get peace, or must both be abolished?
+ - War may achieve a redistribution of resources, but labor, not war, creates wealth.
+ - States in the world are like individuals in the state of nature. They are neither perfectly good nor are they controlled by law.
+ - Each man does seek his own interest, but, unfortunately, not according to the dictates of reason.
+ - If we are to have peace, we must learn loyalty to a larger group. And before we can learn loyalty, the thing to which we are to be loyal must be created.
+ - With many sovereign states, with no system of law enforceable among them, with each state judging its grievances and ambitions according to the dictates of its own reason or desire – conflict, sometimes leading to war, is bound to occur.
+ - No system of balance functions automatically.
+ - External pressure seems to produce internal unity.
+ - War most often promotes the internal unity of each state involved. The state plagued by internal strife may then, instead of waiting for the accidental attack, seek the war that will bring internal peace.
+ - Then what explains war among states? Rousseau’s answer is really that war occurs because there is nothing to prevent it.
+ - Once socialism replaces capitalism, reason will determine the policies of states.
+ - Each state pursues its own interest’s, however defined, in ways it judges best. Force is a means of achieving the external ends of states because there exists no consistent, reliable process of reconciling the conflicts of interest that inevitably arise among similar units in a condition of anarchy.
+ - The transitory interests of royal houses may be advanced in war; the real interests of all people are furthered by the peace.
+ - To solve these problems one needs as much an understanding of politics as an understanding of man – and the one cannot be derived from the other.
+ - It is not true that were the Soviet Union to disappear the remaining states could easily live in peace.
+ - The most important causes of political arrangements and acts are found in the nature and behavior of man.
+ - The best critical consideration of the inherent weakness of a federation of states in which the law of the federation has to be enforced on the states who are its members is contained in the Federalist Papers.
+
+24 quotes

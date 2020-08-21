@@ -1,0 +1,25 @@
+ - I like the idea of having a little bit of a mystery about me.
+ - There are always ups and downs, no matter how successful you are.
+ - I do have a very wonderful mentor, who helps me and reads my work and criticizes me, all the time. You’ve gotta have those people, who will tell you the truth and help you. You don’t want anyone buttering you up. I want someone to tell me what I can fix. That’s what I like.
+ - The first person I ever really got starstruck over was Nicole Kidman, because I looked up to her. When I was younger, I wouldn’t get parts because of how tall I was. I had the body of a 15-year-old but the face of a 12-year-old. I always looked at Nicole Kidman and thought, “Oh well, she works.”
+ - I tried softball and soccer. I just didn’t take as much of a liking to it as I did sitting in a movie theater and watching people recreate a story, and doing it myself, as well.
+ - I hate taking myself seriously. It drives me crazy!
+ - I don’t ever want to be bored, doing the same thing from 9 to 5. I’ve always loved pretending and being someone different.
+ - Theater is the only thing I always came back to. When I was 9, I asked my mom if I could be on TV. She was like, “Well, okay. You can try.”
+ - I don’t ever want an acting to be a job. I want this to be an outlet for my creativity, and something I just simply enjoy doing. I don’t ever want it to become something too serious.
+ - I love all kinds of movies. I love a really good comedy and not the cheesy ones. My parents hate this, but I love horror films. Those are my favorite, and of course, dramatic roles. Im really drawn to those as well. All different genres.
+ - I don’t necessarily look for what I respond to in a script. I look for things that scare me, and take that as an indication that I should probably do it. I don’t want to be bored. I look for challenges. I look for a variety of different things because it’s so easy to go the cliche route.
+ - When I was younger, I didn’t know who a lot of those people were because I couldn’t watch any of their movies. I actually get way more starstruck now. I think starstruck is the wrong word – I get overly enthusiastic about who I work with.
+ - I think the great thing about acting is that it’s not all the same. You’re constantly challenged and constantly pushed to your limit. It’s nice to see how your body can adapt to these things.
+ - I love Abby Lee Miller. Honestly, if there’s such a thing as past lives, I was definitely a dancer.
+ - Any actor has their moments of being stressed, but the great part about this job is that it’s so unpredictable, and that’s what I like. I love spontaneity. I don’t ever want to be bored, doing the same thing from 9 to 5.
+ - I think it would be great to play a superhero. That will be one of my goals.
+ - I think it’s important to keep the audience interested. But the best advice that I’ve gotten is to live in the moment. Sometimes you can get too into your head when you’re in a scene.
+ - I always saw my peers finding some cool passion, but every time I tried one of those things, it never clicked. I would leave school and go to my theater class, and that’s when I’d actually sit down and listen.
+ - I always want the audience to identify with my character in some way. I mean, sometimes you’ll get characters that aren’t very identifiable. Sometimes you can’t relate to your character at all.
+ - Some people say that they read the first 20 pages, and then decide if they want to do the film or not. But, I have to read the entire thing cause anything can change in a script.
+ - Acting is still fun. It’s still not even a career for me. I think the second it becomes a career is when I should stop.
+ - I love writing. I love to write, and I would eventually love to have some of my work produced.
+ - I don’t think I’d ever want to direct. I don’t think I have as much discipline to direct as I would like to have, and I don’t want my hair color to not go grey during that process.
+
+23 quotes

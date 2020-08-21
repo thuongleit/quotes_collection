@@ -1,0 +1,36 @@
+ - It is human nature to imagine, to put yourself in another’s shoes. The past may be another country. But the only passport required is empathy. ~~Geraldine Brooks
+ - She was like a butterfly, full of color and vibrancy when she chose to open her wings, yet hardly visible when she closed them. ~~Geraldine Brooks
+ - There are always a few who stand up in times of communal madness and have the courage to say that what unites us is greater than what divides us. ~~Geraldine Brooks
+ - Book burnings. Always the forerunners. Heralds of the stake, the ovens, the mass graves. ~~Geraldine Brooks
+ - The great thing about being always among people of noble manners was the inevitable elevation of one’s own. ~~Geraldine Brooks
+ - Despair is a cavern beneath our feet and we teeter on its very brink. ~~Geraldine Brooks
+ - God warns us not to love any earthly thing above Himself, and yet He sets in a mother’s heart such a fierce passion for her babes that I do not comprehend how He can test us so. ~~Geraldine Brooks
+ - A book is more than the sum of its materials. It is an artifact of the human mind and hand. ~~Geraldine Brooks
+ - And so, as generally happens, those who have most give least, and those with less somehow make shrift to share. ~~Geraldine Brooks
+ - They say the Lord’s Day is a day of rest, but those who preach this generally are not women. ~~Geraldine Brooks
+ - The day in 2004 when the radiologist told me I had invasive cancer, I walked down the hospital corridor looking for a phone to call my husband, and I could almost see the fear coming toward me like a big, black shadow. ~~Geraldine Brooks
+ - Here we are, alive, and you and I will have to make it what we can. ~~Geraldine Brooks
+ - I was not 15 anymore, and choices no longer had that same clear, bright edge to them. ~~Geraldine Brooks
+ - To know a man’s library is, in some measure, to know a man’s mind. ~~Geraldine Brooks
+ - I swim in a sea of words. They flow around me and through me and, by a process that is not fully clear to me, some delicate hidden membrane draws forth the stuff that is the necessary condition of my life. ~~Geraldine Brooks
+ - For most people, chemotherapy is no longer the chamber of horrors we often conceive it to be. Yes, it is an ordeal for some people, but it wasn’t for me, nor for most of the patients I got to know during my four months of periodic visits to the chemo suite. ~~Geraldine Brooks
+ - Writing is like bricklaying; you put down one word after another. Sometimes the wall goes up straight and true and sometimes it doesn’t and you have to push it down and start again, but you don’t stop; it’s your trade. ~~Geraldine Brooks
+ - Instead of idleness, vanity, or an intellect formed by the spoon-feeding of others, my girls have acquired energy, industry, and independence. ~~Geraldine Brooks
+ - I’m a praying atheist. When I hear an ambulance siren, I ask for a blessing for those people in trouble, knowing that no one’s listening. I think it’s just a habit of mindfulness. ~~Geraldine Brooks
+ - I borrowed his brightness and used it to see my way, and then gradually, from the habit of looking at the world as he illuminated it, the light in my own mind rekindled. ~~Geraldine Brooks
+ - Who is the brave man – he who feels no fear? If so, then bravery is but a polite term for a mind devoid of rationality and imagination. ~~Geraldine Brooks
+ - If there is one class of person I have never quite trusted, it is a man who knows no doubt. ~~Geraldine Brooks
+ - Because I worked as a newspaper reporter for about 14 years before attempting my first novel, I learned to write under almost any circumstances- by candle light, in longhand, in African villages where there was no power, under shelling in Kurdistan. ~~Geraldine Brooks
+ - The brave man, the real hero, quakes with terror, sweats, feels his very bowels betray him, and in spite of this moves forward to do the act he dreads. ~~Geraldine Brooks
+ - You go on. You set one foot in front of the other, and if a thin voice cries out, somewhere behind you, you pretend not to hear, and keep going. ~~Geraldine Brooks
+ - I think that you can honour the sacrifices of a common soldier without glorifying war. ~~Geraldine Brooks
+ - When you’re writing non-fiction, you go as far as you can go, and then ethically you have to stop. You can’t go. You can’t suppose. You can’t imagine. And I think there’s something in human nature that wants to finish the story. ~~Geraldine Brooks
+ - If screenwriters have to kill off a female character, they love to give her cancer. We’ve seen so many great actresses go down to the Big C: Ali MacGraw, Meryl Streep, Emma Thompson, Debra Winger, Susan Sarandon. ~~Geraldine Brooks
+ - My sentences tend to be very short and rather spare. I’m more your paragraph kind of gal. ~~Geraldine Brooks
+ - We were too intelligent, too cynical for war. Of course, you don’t have to be stupid and primitive to die a stupid, primitive death. ~~Geraldine Brooks
+ - Does any woman ever count the grains of her harvest and say: Good enough? Or does one always think of what more one might have laid in, had the labor been harder, the ambition more vast, the choices more sage? ~~Geraldine Brooks
+ - You can’t write about the past and ignore religion. It was such a fundamental, mind-shaping, driving force for pre-modern societies. I’m very interested in what religion does to us – its capacity to create love and empathy or hatred and violence. ~~Geraldine Brooks
+ - If a man is to lose his fortune, it is a good thing if he were poor before he acquired it, for poverty requires aptitude. ~~Geraldine Brooks
+ - I knew I was going to be a journalist when I was eight years old and I saw the printing presses rolling at the Sydney newspaper where my dad worked as a proofreader. ~~Geraldine Brooks
+
+34 quotes

@@ -1,0 +1,33 @@
+ - I admire anyone that follows the road less travelled.
+ - Building your own home is about desire, fantasy. But it’s achievable; anyone can do it.
+ - As a property developer, I learned a long time ago to choose your battles wisely and that, unfortunately, compromise is a given.
+ - Awesome is loud but awe is quiet.
+ - Life involves other people and it is a compromise.
+ - I cannot look at modern buildings without thinking of historical ones.
+ - Building your own house is a primal urge, one of those universal genetic drives like the need to provide for your family.
+ - I’m terribly fastidious. I like symmetry and neatness, but my house is as chaotic as any other family’s.
+ - Every decently-made object, from a house to a lamp post to a bridge, spoon or egg cup, is not just a piece of ‘stuff’ but a physical embodiment of human energy, testimony to the magical ability of our species to take raw materials and turn them into things of use, value and beauty.
+ - The greatest architectural illusion is not Baroque fancy or Victorian flamboyant, but minimalism.
+ - Sustainability is now a big baggy sack in which people throw all kinds of old ideas, hot air and dodgy activities in order to be able to greenwash their products and feel good.
+ - The thing that I champion is sustainability. My terror is that suddenly we see it as a luxury, not an essential. That’s a danger.
+ - Architecture was pretty much the sexiest thing to be doing from 1700-1800.
+ - A great deal of energy is wasted in hating people, and I can honestly say I’ve no wish to expend such a precious resource on being outraged about anyone.
+ - If you said to me, ‘Lie down on that concrete floor and fall asleep,’ I could do it. I can sleep anywhere at any time of day on any surface.
+ - I’ve got a farm in Somerset, and I think it’s God’s own country. I love it.
+ - Living an environmentally responsible lifestyle can seem like a Scrooge-like list of don’ts. Don’t take that flight, don’t buy that car, don’t eat those blueberries flown in from somewhere far-flung.
+ - Generally speaking, I think that if you do anything with commitment and passion, it will come good.
+ - I don’t want anything that I buy to have done any harm to anyone or anything.
+ - I have a recurring nightmare that I wake up in a gutter with nothing. I’ve had it all my life. That’s why I work, I think.
+ - I don’t enjoy living in a white box flooded with light. I like shadows, small spaces, old furniture.
+ - I like the absurd and the surreal: the Coen brothers, Bunuel, Kubrick.
+ - Building design isn’t trendy.
+ - I’ve forgiven all my enemies – even those who have stolen money from me.
+ - I was never a hugely successful theatre designer. I painted a lot of scenery and did the lighting, and my lighting business grew out of that.
+ - I don’t look at what people do with their homes in terms of money, but the social and personal value of what they’re trying to do and achieve.
+ - I’m not too fond of really cool design. I’ve got quite kitsch taste really, in things like tableware. I’m quite a sucker for 1930s pressed glass.
+ - My favourite authors include Trollope and Dickens.
+ - I’m driven by issues, not driven to be political.
+ - I spend a frightening amount of money on books.
+ - Every breath we take as human beings damages the planet.
+
+31 quotes

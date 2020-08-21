@@ -1,0 +1,97 @@
+ - Never doubt that you can change history. You already have.
+ - Life is the first gift, love is the second, and understanding the third.
+ - My strength and my weakness are twins in the same womb.
+ - If you want to be listened to, you should put in time listening.
+ - The best gift you can give is a hug: one size fits all and no one ever minds if you return it.
+ - Hope sleeps in our bones like a bear waiting for spring to rise and walk.
+ - A strong woman is a woman determined to do something others are determined not be done.
+ - The people I love the best, jump into work head first without dallying in the shallows.
+ - I like communicating with cats. I know them and their body language – as my own cats know mine very well. Cats are adept at reading subtle signals.
+ - I mourn in grey, grey as the sleeted wind the bled shades of twilight, gunmetal, battleships, industrial paint.
+ - Work is its own cure. You have to like it better than being loved.
+ - We must shine with hope, stained glass windows that shape light into icons, glow like lanterns borne before a procession. Who can bear hope back into the world but us...
+ - We seek not rest but transformation. We are dancing through each other as doorways.
+ - Learning to love differently is hard, love with the hands wide open, love with the doors banging on their hinges, the cupboard unlocked, the windroaring and whimpering in the rooms.
+ - A strong woman is a woman at work, cleaning out the cesspool of the ages, and while she shovels, she talks about how she doesn’t mind crying, it opens the ducts of the eyes, and throwing up develops the stomach muscles, and she goes on shoveling with tears in her nose.
+ - The pitcher cries for water to carry and a person for work that is real.
+ - Attention is love, what we must give children, mothers, fathers, pets, our friends, the news, the woes of others. What we want to change we curse and then pick up a tool. Bless whatever you can with eyes and hands and tongue. If you can’t bless it, get ready to make it new.
+ - Nobody can live on a bridge or plant potatoes but it is fine for comings and goings, meetings, partings and long views and a real connection to someplace else where you may in the crazy weathers of struggle how and again want to be.
+ - Every artist creates with open eyes what she sees in her dream.
+ - It’s really important to visit a site you are writing about. Even if you know it well, even if you have lived there, it’s important to take a fresh look in terms of your characters and your story.
+ - Doorways are sacred to women for we are the doorways of life and we must choose what comes in and what goes out.
+ - Connections are made slowly, sometimes they grow underground.
+ - Burning dinner is not incompetence but war.
+ - The art of fiction is one of constant seduction. You must persuade the reader on page 1 to start reading – on page 50, or page 150 and yes, on page 850.
+ - I never thought of myself as explaining cats in general. I simply viewed the cats I have known as characters in my life, often as quirky and complex as the humans with whom I have spent time.
+ - We admire predators – panthers, lions, tigers, even wolves. Maybe to be naturally thoughtful and hesitant to use violence is to be somehow second rate. To be in the middle of the social food chain. Especially if you’re a man. This society thinks real men are violent.
+ - Your anger was a climate I inhabited like a desert in a dry frigid weather of high thin air and ivory sun, sand dunes the wind lifted into stinging clouds that blinded and choked me where the only ice was in the blood.
+ - I am a driven writer. I feel guilty if I don’t write, not self-indulgent if I do.
+ - Any life is lived in a particular time and place. Every life is impacted by the family’s socio-economic circumstances, and, in later life, by the person’s.
+ - I don’t find that writing about parts of my life had much effect except in some cases to improve my memory. To get into parts of the past I want to recall very vividly, I use a form of directed meditation.
+ - We live in a media soup and are constantly being programmed or are fighting that programming. Thus any truthful account of a life, every part of a life, is about society as well as an individual.
+ - If what we change does not change us we are playing with blocks.
+ - There is no justice we don’t make daily like bread and love.
+ - History is a game played backwards only.
+ - The real writer is one who really writes. Talent is an invention like phlogiston after the fact of fire. Work is its own cure. You have to like it better than being loved.
+ - We can only know what we can truly imagine. Finally what we see comes from ourselves.
+ - I don’t think writers change the past any more than other people do, except in so far as we may mine our lives and change things for fictional use.
+ - There are obviously a great many ways to organize some fraction of the material in a life.
+ - One trouble: to be a professional anything in the United States is to think of oneself as an expert and one’s ideas as semisacred, and to treat others in a certain way – professionally.
+ - I think we validate our lives through our actions.
+ - The sense of being Jewish never left me, but when my grandmother died, I rebelled against Judaism as I knew it then, which was Orthodox. I saw the rituals, a lot of them, as very male, for a long time.
+ - Where I came from, the nights I had wandered and survived scared them, and where I would go they never imagined.
+ - The real writer is one who really writes.
+ - Obviously I find women more interesting than men to write about.
+ - Shall I tell you something I’ve been noticing? The mistrust this society has for women. All kinds of experts and officials are terrified because so many women are working. They really think that women have to be coerced into having babies and raising kids.
+ - I think that if you use something from you life in fiction, it metamorphosizes into something strange and different. Afterward it is hard to tell what actually was part of your life and what is part of the story of the fictional character.
+ - I’m probably the only novelist who has ever written about political fugitives who actually knew a lot about them, had contact with them, and had a realistic notion of how they survived.
+ - On this twelfth day of my diet I would rather die satiated than slim.
+ - The price of seeing is silence.
+ - We lie in each other’s arms eyes shut and fingers open and all the colors of the world pass through our bodies like strings of fire.
+ - Looking at my life was very difficult. I think I learned that I haven’t been as good a person as I’m inclined to think of myself as. I haven’t been as good friend, haven’t been as good a person, made a lot of mistakes.
+ - Long hair is considered bohemian, which may be why I grew it, but I keep it long because I love the way it feels, part cloak, part fan, part mane, part security blanket.
+ - Troubles cured you salty as a country ham, smoky to the taste, thick-skinned and tender inside.
+ - I wasn’t afraid of being poor; I rather took it for granted. I was good at getting by with very little. I couldn’t imagine sacrificing my writing to anything else.
+ - When I work I am pure as an angel tiger and clear is my eye and hot my brain and silent all the whining grunting piglets of the appetites.
+ - Love says, mine. Love says, I could eat you up. Love says, stay as you are, be my own private thing, don’t you dare have ideas I don’t share. Love has just got to gobble the other, bones and all, crunch. I don’t want to do that. I sure don’t want it done to me!
+ - Every Jewish holiday has a religious significance, a historical significance, and a relevance to the time of year in the natural calendar of the seasons and trees and growing things, as well as a personal significance. So you are always looking backward, outward, inward and forward.
+ - The powerful don’t make revolutions.
+ - You are built to pull a cart, to lift a heavy load and bear it, to haul up the long slope, and so am I, peasant bodies, earthy, solid shapely dark glazed clay pots that can stand on the fire.
+ - Remember that every son had a mother whose beloved son he was, and every woman had a mother whose beloved son she wasn’t.
+ - The mind wraps itself around a poem. It is almost sensual, particularly if you work on a computer. You can turn the poem round and about and upside down, dancing with it a kind of bolero of two snakes twisting and coiling, until the poem has found its right and proper shape.
+ - Whatever is not an energy source, is an energy sink.
+ - My grandmother was very important to me. She gave me my religious education. She gave me a sense of the female side of Judaism, of the rich store of stories and legends of the women of the schtetl.
+ - When midlist writers are treated like dirt, I would desist were I less stubborn and less committed.
+ - All women are misfits. We do not fit into this world without amputations.
+ - Sleeping together is a euphemism for people, but tantamount to marriage with cats.
+ - The ruling class isn’t dissatisfied: they are healthy, well-fed, live in beauty, enjoy their own importance: fun-loving cannibals.
+ - Like species, couples die out or evolve.
+ - Writing is a futile attempt to preserve what disappears moment by moment.
+ - The work of the world is common as mud.
+ - I think having a great range of experiences in my life had helped me as a writer, particularly a writer of fiction. I have known a great many different sorts of people in different situations, and I have a notion how very well of badly people can behave in times of stress or danger or violence.
+ - What a richly colored strong warm coat is woven when love is the warp and work is the woof.
+ - Suspense is one of the ways you persuade a reader to become engaged and stay engaged with your work.
+ - My idea of Hell is to be young again.
+ - Memory in Greek mythology is the mother of the muses, and it is so for me. Both personal and societal memory move me strongly, and that is one of the sources of my writing.
+ - With my poems, I finally won even my mother. The longest wooing of my life.
+ - People are very afraid of any controversy. We’ve become very passive spectator types. And when the kids were protesting globilization – quite reasonably – they really got bashed.
+ - I don’t apologize for being sexually adventurous. Why not? It was often fun. When it wasn’t – I didn’t continue what wasn’t pleasant.
+ - Pain is a forcing sieve that turns me to gruel.
+ - Our wedding plans please everybody as if we were fertilizing the earth and creating social luck.
+ - Live as if you like yourself, and it may happen.
+ - Every poet has a certain amount of “stuff.” That’s what you draw from for imagery. The more stuff you know well, not simply intellectually but sensually, emotionally, intimately, the wider the pool from which you draw.
+ - I don’t even remember what Mother and I quarreled about: it is a continual quarrel that began when I reached puberty.
+ - I wrote to make sense out of all the contradictions I experienced and to deal with the pain and loss I was undergoing.
+ - Too much self-regard has never struck me as dignified: trying to twist over my shoulder to view my own behind.
+ - Purple as tulips in May, mauve into lush velvet, purple as the stain blackberries leave on the lips, on the hands, the purple of ripe grapes sunlit and warm as flesh...
+ - The incidence of violent brand-loyalty to one’s own current dogma has risen.
+ - Sometimes when a character in a novel is difficult for me to enter, I sue something in myself or in my own life as a doorway into that character’s mind and emotions.
+ - The will to be totally rational is the will to be made out of glass and steel: and to use others as if they were glass and steel.
+ - If I observe my cats carefully, it is partly because I observe everyone I deal with as carefully as I can and partly because they amuse and entertain me. They are an important part of the fabric of my daily life.
+ - Everything you study, everything you learn, makes you a better writer, because you have more understanding of how things work.
+ - Art is a game only if you playat it, a mirror that reflects from the inside out.
+ - Shared laughter is erotic too.
+ - A new idea is rarely born like Venus attended by graces. More commonly it’s modeled of baling wire and acne. More commonly it wheezes and tips over.
+ - When she kissed him, he melted like a lump of milk chocolate.
+
+95 quotes

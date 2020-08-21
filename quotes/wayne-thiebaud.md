@@ -1,0 +1,27 @@
+ - Every paint-stroke takes you farther and farther away from your initial concept. And you have to be thankful for that.
+ - Art means something very rare, an extraordinary achievement.
+ - Common objects become strangely uncommon when removed from their context and ordinary ways of being seen.
+ - Discipline is not a restriction but an aid to freedom.
+ - I don’t make a lot of distinctions between things like landscape or figure painting, because to me the problems are inherently the same – lighting, color, structure, and so on – certainly traditional and ordinary problems.
+ - Painting is more important than art.
+ - Morandi gave an intimate view of his deepest thoughts. We watched him inquiring after the devilish questions of essences and substances.
+ - As far as I’m concerned, there is only one study and that is the way in which things relate to one another.
+ - Art is not delivered like the morning paper; it has to be stolen from Mount Olympus.
+ - If I don’t have anything better to do that day, I’ll copy paintings, generally by people who have some relationship to the work of the moment.
+ - The Gold Rush and the Pony Express made Sacramento a substantial place in terms of enterprise.
+ - If you stare at an object, as you do when you paint, there is no point at which you stop learning things from it.
+ - My sin as a painter is that I just want to paint anything I want to paint – and repaint.
+ - If we don’t have a sense of humor, we lack a sense of perspective.
+ - I think of myself as a beginner. Sometimes that’s the whole joy. If you could just do it, there’d be no point in doing it.
+ - I haven’t the slightest idea what art is, but to be a painter is something of which you have to prove.
+ - We all need critical confrontation of the fullest and most extreme kind that we can get. You can unnecessarily limit yourself by choosing your criticism...
+ - Art is one of the dirtiest words in our language; it’s mucked up with all kinds of meanings. There’s the art of plumbing; there’s the art of almost anything that you can say.
+ - A painter is always overjoyed when anybody pays any attention to him at all, puts him in any category, calls him anything – as long as they call him something.
+ - I’m not just interested in the pictorial aspects of the landscape – see a pretty place and try to paint it – but in some way to manage it, manipulate it, or see what I can turn it into.
+ - When you think of painting as painting it is rather absurd. The real world is before us – glorious sunlight and activity and fresh air, and high speed motor cars and television, all the animation – a world apart from a little square of canvas that you smear paint on.
+ - Diebenkorn was a very good critic, a very tough critic, tough on himself, tough on others. He expected the finest.
+ - I’m a believer in the notion that artists who do good work believe in the ideas of extremes.
+ - Morandi suggests we are all single in this world, hoping for independent repose. But our best opportunity for a community of excellence depends upon a collection of enlightened individuals.
+ - An artist needs the best studio instruction, the most rigorous demands, and the toughest criticism in order to tune up his sensibilities.
+
+25 quotes

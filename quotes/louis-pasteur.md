@@ -1,0 +1,89 @@
+ - Chance favors the prepared mind.
+ - Let me tell you the secret that has led me to my goal: my strength lies solely in my tenacity.
+ - Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world.
+ - A bottle of wine contains more philosophy than all the books in the world.
+ - Change only favours minds that are diligently looking and preparing for discovery.
+ - Little science takes you away from God but more of it takes you to Him.
+ - The Greeks bequeathed to us one of the most beautiful words in our language – the word ‘enthusiasm’ – en theos – a god within. The grandeur of human actions is measured by the inspiration from which they spring. Happy is he who bears a god within, and who obeys it.
+ - Posterity will one day laugh at the sublime foolishness of the modern materialistic philosophy. The more I study nature, the more I stand amazed at the work of the Creator. I pray while I am engaged at my work in the laboratory.
+ - The more I study nature, the more I stand amazed at the work of the Creator. Science brings men nearer to God.
+ - My strength lies solely in my tenacity.
+ - Live in the serene peace of laboratories and libraries.
+ - To know how to wonder and question is the first step of the mind toward discovery.
+ - Life comes only from life.
+ - The role of the infinitely small in nature is infinitely great.
+ - One does not ask of one who suffers: What is your country and what is your religion? One merely says: You suffer, that is enough for me.
+ - Did you ever observe to whom the accidents happen? Chance favors only the prepared mind.
+ - Will opens the door to success, both brilliant and happy.
+ - In the realm of scientific observation, luck is granted only to those who are prepared.
+ - La fortuna juega a favor de una mente preparada.
+ - Do not put forward anything that you cannot prove by experimentation.
+ - It is surmounting difficulties that makes heroes.
+ - Inspiration is the impact of a fact on a well-prepared mind.
+ - Science and peace will triumph over ignorance and war.
+ - These three things-work, will, success-fill human existences. Will opens the door to success, both brilliant and happy. Work passes these doors, and at the end of the journey success comes in to crown one’s efforts.
+ - Whether our efforts are, or not, favored by life, let us be able to say, when we come near to the great goal, I have done what I could.
+ - The universe is asymmetric.
+ - Science knows no country, because knowledge belongs to humanity, and is the torch which illuminates the world. Science is the highest personification of the nation because that nation will remain the first which carries the furthest the works of thought and intelligence.
+ - Work usually follows will.
+ - Do not promote what you can’t explain, simplify, and prove early.
+ - Wine is the most healthful and most hygienic of beverages.
+ - Question your priorities often, make sure God always comes first.
+ - The only thing that can bring joy is work.
+ - The Greeks understood the mysterious power of the below things. They are the ones who gave us one of the most beautiful words in our language, the word enthusiasm.
+ - Intuition is given only to him who has undergone long preparation to receive it.
+ - Imagination should give wings to our thoughts but we always need decisive experimental proof, and when the moment comes to draw conclusions and to interpret the gathered observations, imagination must be checked and documented by the factual results of the experiment.
+ - It is not the germs we need worry about. It is our inner terrain.
+ - There are no such things as applied sciences, only applications of science.
+ - If perchance you should falter during the journey, a hand would be there to support you. If that should be wanting, God, who alone could take that hand from you, would Himself accomplish its work.
+ - What did you do today to receive your instruction?
+ - Science belongs to no one country.
+ - Worship the spirit of criticism.
+ - Analogy cannot serve as proof.
+ - If science has no country, the scientist should have one, and ascribe to it the influence which his works may have in this world.
+ - Worship the spirit of criticism. If reduced to itself it is not an awakener of ideas or a stimulant to great things, but, without it, everything is fallible; it always has the last word.
+ - Science brings men nearer to God.
+ - When I approach a child, he inspires in me two sentiments; tenderness for what he is, and respect for what he may become.
+ - After death, life reappears in a different form and with different laws. It is inscribed in the laws of the permanence of life on the surface of the earth and everything that has been a plant and an animal will be destroyed and transformed into a gaseous, volatile and mineral substance.
+ - The grandeur of the acts of men are measured by the inspiration from which they spring.
+ - There is a time in every man’s life when he looks to his God, when he looks at his life, when he wonders how he will be remembered.
+ - It would seem to me that I was committing a theft if I were to let one day go by without doing some work.
+ - The controls of life are structured as forms and nuclear arrangements, in a relation with the motions of the universe.
+ - Science proceeds by successive answers to questions more and more subtle, coming nearer and nearer to the very essence of phenomena.
+ - The greatest derangement of the mind is to believe in something because one wishes it to be so.
+ - Bernard was right. The germ is nothing, the terrain is everything.
+ - I have the faith of a Breton peasant and by the time I die I hope to have the faith of a Breton peasant’s wife.
+ - You bring me the deepest joy that can be felt by a man whose invincible belief is that Science and Peace will triumph over Ignorance and War, that nations will unite, not to destroy, but to build, and that the future will belong to those who will have done most for suffering humanity.
+ - Never will the doctrine of spontaneous generation recover from the mortal blow struck by this simple experiment.
+ - Without theory, practice is but routine born of habit. Theory alone can bring forth and develop the spirit of inventions.
+ - I am on the edge of mysteries and the veil is getting thinner and thinner.
+ - Do not let yourself be tainted with a barren skepticism.
+ - The flavor of wine is like delicate poetry.
+ - Outsidetheir laboratories, thephysicianand chemist are soldiers without arms on the field of battle.
+ - In good philosophy, the word cause ought to be reserved to the single Divine impulse that has formed the universe.
+ - Blessed is he who carries within himself a God, an ideal, and obeys it.
+ - Posterity will one day laugh at the foolishness of modern materialistic philosophers.
+ - You have not succeeded in your experiments, that is all there is to it.
+ - If you suppress laboratories, physical science will be stricken with barrenness and death.
+ - One must not assume that an understanding of science is present in those who borrow the language.
+ - The artificial products do not have any molecular dissymmetry; and I could not indicate the existence of a more profound separation between the products born under the influence of life and all the others.
+ - How do you know that the incessant progress of science will not compel scientists to consider that life has existed during eternity, and not matter?
+ - God grant that by my persevering labours I may bring a little stone to the frail and ill-assured edifice of our knowledge of those deep mysteries of Life and Death where all our intellects have so lamentably failed.
+ - Happy is he who bears a god within.
+ - Since the most ancient times, all men, and particularly those who endeavored in the practice of medicine, have brought closer together two natural phenomena of capital importance: illness or fever and fermentation.
+ - There is no such thing as a special category of science called applied science; there is science and its applications, which are related to one another as the fruit is related to the tree that has borne it.
+ - As in the experimental sciences, truth cannot be distinguished from error as long as firm principles have not been established through the rigorous observation of facts.
+ - Could I but know all, I would have the faith of a Breton peasant woman.
+ - These are the living springs of great thoughts and great actions. Everything grows clear in the reflections from the Infinite.
+ - Blessed is he who carries within himself a God, an ideal, and who obeys it: ideal of art, ideal of science, ideal of the gospel virtues, therein lie the springs of great thoughts and great actions; they all reflect light from the Infinite.
+ - Time is the best appraiser of scientific work, and I am aware that an industrial discovery rarely produces all its fruit in the hands of its first inventor.
+ - Where are the real sources of human dignity, freedom and modern democracy, if not in the concept of infinity to which all men are equal?
+ - I give them experiments and they respond with speeches.
+ - Oh my goodness the mystery that has prompted my objective. My quality lies exclusively in my tirelessness.
+ - The greatest malfunction of spirit is to believe things.
+ - To bring one’s self to believe in a truth that has just dawned upon one is the first step towards progress; to persuade others is the second.
+ - When one works and imagines and dreams of nothing else than the search for answers that God has posed, it is difficult to be so still.
+ - Nothing is lost and nothing is created in the operations of art as those of nature.
+ - The greatest disorder of the mind is to let will direct it.
+
+87 quotes

@@ -1,0 +1,21 @@
+ - In Wicca, rituals are ceremonies which celebrate and strengthen our relationships with the Goddess, the God and the Earth.
+ - The magic begins in you. Feel your own energy, and realize similar energy exists within the Earth, stones, plants, water, wind, fire, colores, and animals.
+ - Seek wisdom in books, rare manuscripts, and cryptic poems if you will, but seek it out also in simple stones, and fragile herbs, and in the cries of wild birds. Listen to the whisperings of the wind and the roar of water if you would discover magic, for it is here that the old secrets are preserved.
+ - Magic is the projection of natural energies to produce needed effects.
+ - We can’t point at an image of an evil god, such as Satan, and blame it for our faults and weaknesses. We can’t blame fate. Every second of each day we’re creating our futures, shaping the courses of our lives.
+ - Read as much as you can, discarding negative or disturbing information. Learn by doing, and the Goddess and God will bless you with all that you truly need.
+ - Honor all living things, for we are of the stag, and the salmon, and the bee; so destroy not life, save it be to preserve your own.
+ - Earth magic can help to sort out, work through and solve many of the minor crises and problems facing us as individuals today. True, it is not a simple solution to the world’s problems, but it can bring order into our lives, and that’s a good start.
+ - If you would be a magician, honor the Earth. Honor life. Love. Know that magic is the birthright of every human being, and wisely use it.
+ - Magic is love. All magic should be performed out of love. The moment anger or hatred tinges your magic, you have crossed the border into a dangerous world, one that will ultimately consume you.
+ - We are not on this planet to ask forgiveness of our deities.
+ - Magic is the practice of causing change through the use of powers as yet not defined or accepted by science.
+ - The power is neutral. It cannot be divided into positive and negative energies. Power is power.
+ - The earth is one tiny part of a vast energy net work.
+ - Today evil spirits are seen as negativity which floats around the Earth in large quantities.
+ - Any and all religions are real, the genuine article, to their practitioners. There can never be one religion, prophet, or savior that will satisfy all six billion humans. Each of us must find our ideal way to attune with deity.
+ - Wicca has been, up until the past decade or so, a closed religion, but no more.
+ - Books can lift our spirits, heal our wounds, steel our courage and strengthen our religious resolve.
+ - Eventually, ritual was developed as a means of contacting and utilizing the energy within humans as well as in the nature world.
+
+19 quotes

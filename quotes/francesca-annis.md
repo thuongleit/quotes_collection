@@ -1,0 +1,31 @@
+ - However successful you are, there is no substitute for a close relationship. We all need them.
+ - I didn’t choose to be an actress.
+ - The minute anyone’s getting anxious I say, You must eat and you must sleep. They’re the two vital elements for a healthy life.
+ - I don’t believe in expending energy on something you can’t do anything about. If there was some easy way of fixing things, I’d probably do it.
+ - We all know now that people can look good for their age. It isn’t so extraordinary, I don’t know why people go on about it so much.
+ - The funny thing is I’m not bothered or sad about being on my own – after all I’ve never had a husband.
+ - I couldn’t imagine playing someone young now; it would be so boring.
+ - I’m the same weight now as I’ve always been-even before having children-but I have to say there’s been a redistribution of the flesh!
+ - There is not enough celebration of companionship. Relationships aren’t just about eroticism and sexuality.
+ - I think people have surgery for psychological reasons more than because of their looks.
+ - I’m trying to learn to smoke, which is rather weird when everyone is trying to stop. I’m not a smoker. But my character only smokes as an affectation.
+ - I have yet to see a drama that puts forward women who are successful and have a family. Women are nearly always seen as victims.
+ - I can feel the 60S looming. In my profession, I’ve just moved along with my age. By thinking in decades, rather than whether someone’s 42 or 47, you can give yourself a whole 10 years to turn yourself around in.
+ - I’ll dance to anything: Bob Marley or rap.
+ - I don’t really have an image of myself. Now, is that true? Well, maybe I do and it’s different, which is why I get shocked when I see how other people experience me. I see myself primarily in a domestic setting.
+ - When I was starting out, young actresses had the studio system to protect them. Now you have a host of sharks, from your agent to your publicist to your lawyer.
+ - The first thing you have to do is accept that decay sets in and there’s nothing you can do about it.
+ - The thing about doing anything artificial to your hair is that you have to look after it. So you’re always vulnerable to the weather and time.
+ - I never pursued being ‘famous.’
+ - I do find acting cathartic.
+ - Everything has changed. An interview has become such a confrontational thing. It makes you very defensive.
+ - I am pretty self-indulgent.
+ - I do think it’s important to live in the present because in that way you won’t be living in a state of regret.
+ - Some actors get fired up by the sound of the audience. I just want to retreat.
+ - I’ve never been too afraid of what other people have said, especially when I was younger, but I suppose that was the arrogance of youth.
+ - Judi Dench and Ian McKellen taught me how to work hard and respect the theatre.
+ - I was seen dancing at school by a director, who asked me to be in a TV play. And it had a huge impact. So I think thats what really started me off.
+ - The wonderful thing about acting is you move along with your decade. The older you get, the more interesting the parts you get to play and you bring more of your personal experience to the part.
+ - From one till seven, when we moved to England, I spoke only Portuguese. But I can’t speak a word of it now.
+
+29 quotes

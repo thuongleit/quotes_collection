@@ -1,0 +1,54 @@
+ - There’s no such thing as luck. Luck is where preparation meets opportunity.
+ - I would like to go for a ride with you, have you take me to stand before a river in the dark where hundreds of lightning bugs blink this code in sequence: right here, nowhere else! Right now, never again!
+ - I want to know everything about you, so I tell you everything about myself.
+ - Sometimes a flat-footed sentence is what serves, so you don’t get all writerly: ‘He opened the door.’ There, it’s open.
+ - When my mother died, my father’s early widowhood gave him social cachet he would not have had if they had divorced. He was a bigger catch for the sorrow attached.
+ - I think of the chimp, the one with the talking hands.
+ - The year I began to say vahz instead of vase, a man I barely knew nearly accidentally killed me.
+ - I’m not good at small talk; I’m not good at big talk; and medium talk just doesn’t come up.
+ - I moved through the days like a severed head that finishes a sentence.
+ - In my head there’s a broken balcony I fall off of when I speak.
+ - The worst of it is over now, and I can’t say that I am glad. Lose that sense of loss – you have gone and lost something else.
+ - There’s so much I can’t read because I get so exasperated. Someone starts describing the character boarding the plane and pulling the seat back. And I just want to say, Babe, I have been downtown. I have been up in a plane. Give me some credit.
+ - Just once in my life – oh, when have I ever wanted anything just once in my life?
+ - I meet a person, and in my mind I’m saying three minutes; I give you three minutes to show me the spark.
+ - Good leaders being scarce, following yourself is allowed.
+ - Sometimes I can better describe a person by another person’s reaction. In a story in my first book, I couldn’t think of a way to sufficiently describe the charisma of a certain boy, so the narrator says, “I knew girls who saved his gum.”
+ - The other day I was playing Scrabble. I saw that I could close the space in D-E- -Y. I had an N and an F. Which do you think I chose? What was the word I made?
+ - They say the smart dog obeys but the smarter dog knows when to disobey.
+ - As soon as I knew that I would be all right, I was sure that I was dead and didn’t know it. I moved through the days like a severed head that finishes a sentence. I waited for the moment that would snap me out of my seeming life.
+ - We can only die in the future, I thought; right now we are always alive.
+ - Just because you have stopped sinking doesn’t mean you’re not still underwater.
+ - I leave a lot out when I tell the truth.
+ - I thought, my love is so good, why isn’t it calling the same thing back.
+ - A love affair begins with a fantasy. For instance, that the beloved will always be there.
+ - And I see that not touching for so long was a drive to the beach with the windows rolled up so the waves feel that much colder.
+ - An idea might spark an essay, but never a story.
+ - I sleep with a glass of water on the nightstand so I can see by its level if the coastal earth is trembling or if the shaking is still me.
+ - I wanted to be a veterinarian, but slipped up when I hit organic chemistry.
+ - I know that homes burn and that you should think what to save before they start to. Not because, in the heat of it, everything looks as valuable as everything else. But, because nothing looks worth the bother, not even your life.
+ - The only time the word baby doesn’t scare me is the time that it should, when it is what a man calls me.
+ - When the beer is gone, so are they – flexing their cars on up the boulevard.
+ - I think you would like Warren. He drinks Courvoisier in a Coke can, and has a laugh like you’d find in a cartoon bubble.
+ - I do feel that if you can write one good sentence and then another good sentence and then another, you end up with a good story.
+ - Maybe this is not a come-down-from-the-ledge story. But I tell it with the thought that the woman on the ledge will ask herself a question, the question that occurred to that man in Bogota. He wondered how we know that what happens to us isn’t good?
+ - I’m not first and foremost interested in story and the what-happens, but I’m interested in who’s telling it and how they’re telling it and the effects of whatever happened on the characters and the people.
+ - I’ve always known when I start a story what the last line is. It’s always been the case, since the first story I ever wrote. I don’t know how it’s going to get there, but I seem to need the destination. I need to know where I end up. It never changes, ever.
+ - Dreams: the place most of us get what we need.
+ - Obviously, in journalism, you’re confined to what happens. And the tendency to embellish, to mythologize, it’s in us. It makes things more interesting, a closer call. But journalism taught me how to write a sentence that would make someone want to read the next one.
+ - A five-hour flight works out to three days and nights on land, by rail, from sea to shining sea. You can chalk off the hours on the back of the seat ahead. But seventy-some hours will not seem so long to you if you tell yourself first: This is where I am going to be for the rest of my natural life.
+ - He could not wait to get rid of them so he could enjoy remembering them.
+ - I probably have less revision than those who have that wonderful rush of story to tell – you know, I can’t wait to tell you what happened the other day. It comes tumbling out and maybe then they go back and refine. I kind of envy that way of working, but I just have never done it.
+ - I assemble stories-me and a hundred million other people-at the sentence level. Not by coming up with a sweeping story line.
+ - I exaggerated even before I began to exaggerate, because it’s true – nothing is ever quite as bad as it could be.
+ - I get rational when I panic.
+ - It is possible to imagine a person so entirely that the image resists attempts to dislodge it.
+ - He wondered how we know that what happens to us isn’t good.
+ - Since his mother died I have seen him steam a cucumber thinking it was zucchini. That’s the kind of thing that turns my heart right over.
+ - Look at me. My concerns-are they spiritual, do you think, or carnal? Come on. We’ve read our Shakespeare.
+ - For peace of mind, I will lie about any thing at any time.
+ - I often feel the effects of people only after they leave me.
+ - I had a mother I could only seem to please with verbal accomplishments of some sort or another. She read constantly, so I read constantly. If I used words that might have seemed surprising at a young age, she would recognize that and it would please her.
+ - Wear your heart on the page, and people will read to find out how you solved being alive.
+
+52 quotes

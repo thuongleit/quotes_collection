@@ -1,0 +1,30 @@
+ - The best education I have ever received was through travel.
+ - I’m determined to raise a strong girl.
+ - Coming from an Asian culture, I was always taught to respect my elders, to be a better listener than a talker.
+ - There’s so much grey to every story – nothing is so black and white.
+ - You should treat your marriage like a business that you wouldn’t want to let fail.
+ - I had a planned C-section, and I cried the entire day before I had the baby.
+ - The city of Oia is the most magnificently romantic place I’ve ever been.
+ - Try to accomplish things you have always dreamt of while you can. I know it sounds cliche, but the biggest lesson I have learned is that life is precious; enjoy it while it lasts.
+ - I used to be so twig skinny that I couldn’t eat enough, because I was just naturally skinny. Until I went to China.
+ - I never run hills. My quads are already big enough. I don’t run to build muscle; I do it for cardio.
+ - As a culture women are brought up to be fundamentally insecure.
+ - I have a zillion bottles of hot sauce. I love Trader Joe’s jalapeno. The whole right side of my fridge is filled with hot sauce.
+ - I’m a big Ping-Pong addict. I love it.
+ - I hope my desire to travel so much isn’t forever because it’s not the most conducive lifestyle for a relationship or a family by any means.
+ - There are so many kids in this world, and in this country, that need homes. And so we’re perfectly content to look into adoption one day, if for some reason we aren’t able to have a biological child.
+ - I am a crazy online shopper. My husband always jokes, Another box arrived! Airplanes used to be my sanctuary for reading books, but now I have to peruse Gilt sales.
+ - I fancy myself as being a fairly competent person.
+ - It is said that the way to prevent obesity is not to allow kids to become overweight in the first place. But it takes a multi-pronged approach that has to start with parents. Kids are just too young to understand the consequences of obesity.
+ - My husband and I try to spend some time every night that I’m home talking without distractions.
+ - My hope is that I can somehow raise the level of consciousness about world events.
+ - Too often, we spend our days thinking about what we don’t have rather than what we do have. Be grateful every day.
+ - We live in a culture where were bombarded with so much noise and so much insecurity.
+ - I like crunchy things like Baked Lays.
+ - Our time on Earth is so random.
+ - Refrain from being too judgmental. You’ll often be surprised by what people have to offer.
+ - I don’t know that I’m going to entirely do cloth diapers. I’d like to be ambitious about it, but in all honesty, I can’t say that I will.
+ - I honestly never had the biological need to reproduce until I met my husband. But by the same token, even if we were unsuccessful, we were totally okay with adopting.
+ - I hadn’t wanted to have a kid until I met my partner.
+
+28 quotes

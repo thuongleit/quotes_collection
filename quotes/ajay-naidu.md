@@ -1,0 +1,28 @@
+ - Rap is rhythm and poetry. Hip-hop is storytelling and poetry as well.
+ - When you get to play with the big boys, your game improves drastically.
+ - The loneliness is when you pick up and move, even if you are not originally from that place, and you have some memories that you want to embrace. Having a life in transit, I feel like you are always looking out the back window.
+ - It is important to keep your head up and follow what you believe is right.
+ - It is important to tell good stories. You can tell stories even if they are not huge, epic, and wonderful. You can still take the responsibility for being a scribe of your tribe.
+ - It is important to make your own stuff. Even if you are not an actor, it is important to not stop involving yourself as a creative person.
+ - I got heavily into the drum-and-bass scene, which is really wicked.
+ - My first acting job happened by accident when I was really young. I was in fifth grade and my teacher saw an ad in the paper and took me to the audition after school and I got the part.
+ - My family was very supportive of my acting. They didn’t really have a choice because I got jobs acting before anyone could really say anything. It paid my way through college and helped my family out.
+ - I like the theatre because you paint with broad strokes. To me the theatre is stretching its definition really far.
+ - I knew I was happy when I was dancing.
+ - I had been working early in my life in films – since I was 11.
+ - There is extraordinary similarities between the Midwest in America and Europe in that there is this sense of vast, open sky and loneliness and cold.
+ - I hear music as narrative.
+ - We make a contract within ourselves as actors or directors or writers about how much of ourselves we let into projects. You can actually figure out before you work on something how much blood you will have to let emotionally.
+ - I love films for the fact that it is like working under a microscope. It is sort of like a laboratory.
+ - Acting school was summer camp, and I needed concentration camp. I had so many different ideas swirling between culture and how to tie things together.
+ - In every character I play, I try to imbibe something. Every film is a learning process for me.
+ - Part of the work is determining through what instrument you are playing. Actors are physical, olympian storytellers and we should be able to create entire landscapes with nothing.
+ - I think that I have sold out sometimes.
+ - America makes up its own mind about what it wants to see.
+ - I think that rap is narrative, when it’s done right.
+ - I applied to American Repertory School up at Harvard at got in.
+ - I want to present interesting stories that don’t qualify themselves just by virtue of their ethnographic type.
+ - The camera is interested in what you are thinking as opposed to just what you are doing or saying.
+ - You have to work with what you are given, even in Shakespeare. we have our form and it is important that we free ourselves through it.
+
+26 quotes

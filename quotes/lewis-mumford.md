@@ -1,0 +1,103 @@
+ - Adding highway lanes to deal with traffic congestion is like loosening your belt to cure obesity.
+ - Restore human legs as a means of travel. Pedestrians rely on food for fuel and need no special parking facilities.
+ - I’m a pessimist about probabilities; I’m an optimist about possibilities.
+ - Trend is not destiny.
+ - The timelessness of art is its capacity to represent the transformation of endless becoming into being.
+ - Only when love takes the lead will the earth, and life on earth, be safe again. And not until then.
+ - By his very success in inventing labor-saving devices, modern man has manufactured an abyss of boredom that only the privileged classes in earlier civilizations have ever fathomed.
+ - Today, the degradation of the inner life is symbolized by the fact that the only place sacred from interruption is the private toilet.
+ - The city is a fact in nature, like a cave, a run of mackerel or an ant-heap. But it is also a conscious work of art, and it holds within its communal framework many simpler and more personal forms of art. Mind takes form in the city; and in turn, urban forms condition mind.
+ - Idealism and science continue to function in separate compartments; and yet ‘the happiness of man on earth’ depends upon their combination.
+ - Every transformation of humanity has rested upon deep stirrings and intuitions, whose rationalized expression takes the form of a new picture of the cosmos and the nature of the human.
+ - A picture was once a rare sort of symbol, rare enough to call for attentive concentration. Now it is the actual experience that is rare, and the picture has become ubiquitous.
+ - Order and creativity are complementary.
+ - In vulgar usage, progress has come to mean limitless movement in space and time, accompanied, necessarily, by an equally limitless command of energy: culminating in limitless destruction.
+ - Growth and self-transformation cannot be delegated.
+ - A certain amount of opposition is a great help to a man. Kites rise against, not with, the wind.
+ - The right to have access to every building in the city by private motorcar in an age when everyone possesses such a vehicle is actually the right to destroy the city.
+ - When cities were first founded, an old Egyptian scribe tells us, the mission of the founder was to ‘put gods in their shrines.’ The task of the coming city is not essentially different: its mission is to put the highest concerns of man at the center of all his activities.
+ - Utopias rest on the fallacy that perfection is a legitimate goal of human existence.
+ - If we never met again in our lives I should feel that somehow the whole adventure of existence was justified by my having met you.
+ - Above all we need, particularly as children, the reassuring presence of a visible community, an intimate group that enfolds us with understanding and love, and that becomes an object of our spontaneous loyalty, as a criterion and point of reference for the rest of the human race.
+ - New York is the perfect model of a city, not the model of a perfect city.
+ - A day spent without the sight or sound of beauty, the contemplation of mystery, or the search of truth or perfection is a poverty-stricken day; and a succession of such days is fatal to human life.
+ - Nothing is unthinkable, nothing impossible to the balanced person, provided it comes out of the needs of life and is dedicated to life’s further development.
+ - Moment to moment, it turns out, is not God’s conception, or nature’s. It is man conversing with himself about and through a piece of machinery he created.“We effectively became “time-keepers, and then time-savers, and now time-servers” with the invention of the clock.”
+ - In our entrancement with the motorcar, we have forgotten how much more efficient and how much more flexible the footwalker is.
+ - The ultimate gift of conscious life is a sense of the mystery that encompasses it.
+ - One of the functions of intelligence is to take account of the dangers that come from trusting solely to the intelligence.
+ - Modern Man is the victim of the very instruments he values most. Every gain in power, every mastery of natural forces, every scientific addition to knowledge, has proved potentially dangerous, because it has not been accompanied by equal gains in self-understanding and self-discipline.
+ - Architecture is either the prophecy of an unformed society or the tomb of a finished one.
+ - A man of courage never needs weapons, but he may need bail.
+ - To curb the machine and limit art to handicraft is a denial of opportunity.
+ - What was once called the objective world is a sort of Rorschach ink blot, into which each culture, each system of science and religion, each type of personality, reads a meaning only remotely derived from the shape and color of the blot itself.
+ - Forget the damned motor car and build the cities for lovers and friends.
+ - The convenience of timekeeping is greatly overrated; and the people who practice it so faithfully that they lose the capacity for appreciating the fixed and the static and the spatially related experiences cut themselves off from a good part of reality.
+ - Do you want to know what I most regret about my youth? That I didn’t dream more boldly and demand of myself more impossible things; for all one does in maturity is to carve in granite or porphyry the soap bubble one blew in youth! Oh to have dreamed harder!
+ - The great city is the best organ of memory man has yet created.
+ - Geneva has the sleepy tidiness of a man who combs his hair while yet in his pyjamas.
+ - We must give as much weight to the arousal of the emotions and to the expression of moral and aesthetic values as we now give to science, to invention, to practical organization. One without the other is impotent.
+ - It has not been for nothing that the word has remained man’s principal toy and tool: without the meanings and values it sustains, all man’s other tools would be worthless.
+ - The settlement of America had its origins in the unsettlement of Europe. America came into existence when the European was already so distant from the ancient ideas and ways of his birthplace that the whole span of the Atlantic did not widen the gulf.
+ - The chief enemy of peace is the spirit of unreason itself: an inability to conceive alternatives, an unwillingness to reconsider old prejudices, to part with ideological obsessions, to entertain new ideas or to improve new plans.
+ - The chief function of the city is to convert power into form, energy into culture, dead matter into the living symbols of art, biological reproduction into social creativity.
+ - The last step in parental love involves the release of the beloved; the willing cutting of the cord that would otherwise keep the child in a state of emotional dependence.
+ - Our national flower is the concrete cloverleaf.
+ - What plethora of material goods can possibly atone for a waking life so humanly belittling, if not degrading, as the push-button tasks left to human performers?
+ - The fact that order and creativity are complementary has been basic to man’s cultural development; for he has to internalize order to be able to give external form to his creativity.
+ - One’s worst enormities remain within, and it is only one’s vulgar commonplaces of error and folly that turn into murders and suicides, treasons, infidelities, and betrayals.
+ - The humanities and science are not in inherent conflict but have become separated in the twentieth century. Now their essential unity must be re-emphasized, so that twentieth-century multiplicity may become twentieth-century unity.
+ - Safety razors make it hard to grow beards in America: America would be a better place if there were a few bearded, savage, terrible old men.
+ - Every work of art is an abstraction from time; it denies the reality of change and decay and death.
+ - War is the supreme drama of a completely mechanized society.
+ - The vast material displacements the machine has made in our physical environment are perhaps in the long run less important than its spiritual contributions to our culture.
+ - Humor is our way of defending ourselves from life’s absurdities by thinking absurdly about them.
+ - The earth is the Lord’s fullness thereof: this is no longer a hollow dictum of religion, but a directive for economic action toward human brotherhood.
+ - In its revolt against congestion and sordor, a space-hungry generation has, I fear, developed eyes that are bigger than its stomach.
+ - Each person is a temporary focus of forces, vitalities, and values that carry back to an immemorial past and that reach forward into an unthinkable future.
+ - Unfortunately, once an economy is geared to expansion, the means rapidly turn into an end and “the going becomes the goal.”
+ - Whereas Freud was for the most part concerned with the morbid effects of unconscious repression, Jung was more interested in the manifestations of unconscious expression, first in the dream and eventually in all the more orderly products of religion and art and morals.
+ - For most Americans, progress means accepting what is new because it is new, and discarding what is old because it is old.
+ - Not sense data or atoms or electrons or packets of energy, but purposes, interests, and meanings, constitute the underlying facts of human experience.
+ - If mankind is to escape its programmed self-extinction the God who saves us will not descend from the machine: he will rise up again in the human soul.
+ - By putting business before every other manifestation of life, our mechanical and financial civilization has forgotten the chief business of life: namely, growth, reproduction, development. It pays infinite attention to the incubator-and it forgets the egg!
+ - Today, the notion of progress in a single line without goal or limit seems perhaps the most parochial notion of a very parochial century.
+ - The final goal of human effort is man’s self-transforma tion.
+ - As for the various kinds of montage photography, they are in reality not photography at all but a kind of painting in which photography is used – as pastiches of textiles are used in crazy-quilts – to form a mosaic. Whatever value the montage may have derives from painting rather than the camera.
+ - Without leisure there can be neither art nor science nor fine conversation, nor any ceremonious performance of the offices of love and friendship.
+ - If there are favourable habitats and favorable forms of association for animalsand plants, as ecology demonstrates, why not for men? If each particular natural environment has has its own balance; is there not perhaps an equivalent of this in culture?
+ - Traditionalists are pessimists about the future and optimists about the past.
+ - A Society that gives to one class all the opportunities for leisure and to another all the burdens of work condemns both classes to spiritual sterility.
+ - Life is the only art that we are required to practice without preparation, and without being allowed the preliminary trials, the failures and botches, that are essential for training.
+ - He who touches the soil of Manhattan and the pavement of New York, touches, whenever he knows or not, Walt Whitman.
+ - Nothing endures except life: the capacity for birth, growth, and renewal.
+ - The wonder is not that so much cacophony appears in our actual individual lives, but that there is any appearance of harmony and progression.
+ - Without fullness of experience, length of days is nothing. When fullness of life has been achieved, shortness of days is nothing. That is perhaps why the young have usually so little fear of death; they live by intensities that the elderly have forgotten.
+ - This metropolitan world, then, is a world where flesh and blood is less real than paper and ink and celluloid.
+ - Mechanical instruments, potentially a vehicle of rational human purposes, are scarcely a blessing when they enable the gossip of the village idiot and the deeds of the thug to be broadcast to a million people each day.
+ - Misery, mutilation, destruction, terror, starvation and death characterize the process of war and form a principal part of the product.
+ - The very people who shudder over the cruelty of the hunter are apt to forget that slaughter, in the grimmest sense of the word, is a process they entrust daily to the butcher; and that unlike the game of the forests, even the dumbest creatures of the slaughterhouse know what is in store for them.
+ - The cities and mansions that people dream of are those in which they finally live.
+ - War is a specific product of civilization.
+ - When vitality runs high, death takes men by surprise. But if they close their eyes to this possibility, what they gain in peace they lose in sensibility and significance.
+ - In war, the army is not merely a pure consumer, but a negative producer...
+ - Don’t take the will for the deed; get the deed.
+ - Deliberately, on every historic occasion, we piously fake events for the benefit of photographers, while the actual event often occurs in a different fashion; and we have the effrontery to call these artful dress rehearsals authentic historic documents.
+ - We have created an industrial order geared to automatism, where feeble-mindedness, native or acquired, is necessary for docile productivity in the factory; and where a pervasive neurosis is the final gift of the meaningless life that issues forth at the other end.
+ - War is both the product of an earlier corruption, and a producer of new corruptions.
+ - To the extent that the scientist’s capacity for pursuing the truth depends upon costly apparatus, institutional collaboration and heavy capital investment by government or industry he is no longer his own master.
+ - I would die happy if I knew that on my tombstone could be written these words, “This man was an absolute fool. None of the disastrous things that he reluctantly predicted ever came to pass!”
+ - War vies with magic in its efforts to get something for nothing...
+ - Life is an art we are required to practice without preparation, a score that we play at sight even before we have mastered our instruments.
+ - Henceforward, I shout to the heavens, I shall deliver no more lectures on behalf of good causes: I am the good cause that denies the need for such lectures. Avaunt, importuning world! Back to my cell.
+ - The way people in democracies think of the government as something different from themselves is a real handicap. And, of course, sometimes the government confirms their opinion.
+ - The self holds both a hell and a heaven.
+ - Every new baby is a blind desperate vote for survival: people who find themselves unable to register an effective political protest against extermination do so by a biological act.
+ - We have lost faith in the formal powers of the mind, not, as some suppose, because our universe is too difficult to grasp, but because we lack the inner principle of order.
+ - By fashion and built-in obsolescence the economies of machine production, instead of producing leisure and durable wealth, are duly cancelled out by the mandatory consumption on an even larger scale.
+ - The mind reproduces itself by transmitting its symbols to other intermediaries, human and mechanical, than the particular brain that first assembled them.
+ - Chaos, if it does not harden into a pattern of disorder, may be more fruitful than a regularity too easily accepted and a success too easily achieved.
+ - Faith in the creative process, in the dynamics of emergence, in the values and purposes that transcend past achievements and past forms, is the precondition of all further growth.
+ - Stieglitz conceived, though he never carried out, a series of photographs of the heads of stallions and mares, of bulls and cows, in the act of mating, hoping to catch in the brute an essential quality that would symbolize the probably unattainable photograph of a passionate human mating.
+
+101 quotes

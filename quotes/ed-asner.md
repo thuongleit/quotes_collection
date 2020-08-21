@@ -1,0 +1,26 @@
+ - As they used to say ‘What if they gave a war and nobody came?’ How worthwhile if they declared a day of peace and everybody came.
+ - There are genuinely sufficient resources in the world to ensure that no one, nowhere, at no time, should go hungry.
+ - Raising kids is part joy and part guerrilla warfare.
+ - We all moan and groan about the loss of the quality of life through the destruction of our ecology, and yet every one of us, in our own little comfortable ways, contributes daily to that destruction. It’s time now to awaken in each one of us the respect and attention our beloved Mother deserves.
+ - I got some news for you. One, there is no Jesus. Two, there is no God. Three, mind your own business and everything works out.
+ - A lot of people don’t want to feel anti-black by being opposed to Obama.
+ - The treasure shouldn’t do the hunting, and you’re a treasure.
+ - It’s like an athlete. He has a string of hot years, and then he fades into nothingness. The actor doesn’t necessarily fade into nothingness. After his hot years, he fades into a different category.
+ - All capitalists should be like Warren Buffett, and he says he should be taxed more.
+ - My first job was with an auto plant, Kansas City – they treated you like slaves. From there I went back to Chicago, worked in steel mills, drove a cab, stuff like that.
+ - I was a newspaper editor in high school, and I truly thought of journalism as a career. I loved it.
+ - I can do lovers. I can do Sir Galahad types. I’m not going to limit myself in voice-overs to irascible old men.
+ - The free access to information is not a privilege, but a necessity for any free society. One of my favorite things to do as a young man was wander through the stacks of my hometown library. I’d just browse until I found something interesting. Libraries have definitely changed my life.
+ - They say making laws is like making sausages. You shouldn’t watch. It’s the same for acting, especially for the actor who works unconsciously.
+ - I am not a method actor, though I studied for a year with Lee Strasburg.
+ - Never thought acting was something you could make a living at. It wasn’t until I was in college, and got a lead in a play, that I began to realize I might just be able to blunder into this profession.
+ - Some of my earliest political feelings were based on the anti-Japanese bubblegum cards I got. There were also Spanish Civil War bubblegum cards. Awful.
+ - I loved journalism until the day my journalism teacher, a man I revered, came by my desk and said, ‘Are you planning on going into journalism?’ I said, ‘Yeah.’ He said, ‘I wouldn’t.’ I said, ‘Well, why not?’ He said, ‘You can’t make a living.’
+ - The older I’ve gotten, the more the need to exert comedy no matter how tragic a character I may be portraying because they are essentials for presenting truth.
+ - I’m not sought after. I never get enough work. It’s the history of my career. There just isn’t anything to turn down, let me put it that way.
+ - I regard myself as a beautiful musical instrument, and my role is to contribute that instrument to scripts worthy of it.
+ - To my knowledge, there is no blacklist. But there is a mindset, even among liberal producers, that says ‘He may be difficult so let’s avoid him.’
+ - Where the work goes, I go. Wherever adulation occurs, that’s where you’ll find me.
+ - I also think that there is a strong streak of racism, and whenever we engage in foreign adventures. Our whole history in regime change has been of people of different color.
+
+24 quotes

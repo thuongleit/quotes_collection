@@ -1,0 +1,54 @@
+ - Freedom cannot be granted. It must be taken.
+ - Property exists by grace of the law. It is not a fact, but a legal fiction.
+ - The freedom of man is, in political liberalism, freedom from persons, from personal dominion, from the master; the securing of each individual person against other persons, personal freedom.
+ - The people’s good fortune is my misfortune!
+ - Liberty of the people is not my liberty!
+ - Everything sacred is a tie, a fetter.
+ - A race of altruists is necessarily a race of slaves. A race of free men is necessarily a race of egoists.
+ - Whoever will be free must make himself free. Freedom is no fairy gift to fall into a man’s lap. What is freedom? To have the will to be responsible for one’s self.
+ - Nothing is more to me than myself.
+ - The State practices “violence,” the individual must not do so. The state’s behavior is violence, and it calls its violence “law”; that of the individual, “crime”.
+ - The divine is God’s concern; the human, man’s. My concern is neither the divine nor the human, not the true, good, just, free, etc., but solely what is mine, and it is not a general one, but is – unique, as I am unique. Nothing is more to me than myself!
+ - If it is right for me, it is right. It is possible that it is wrong for others: let them take care of themselves!
+ - The object of the state is always the same: to limit the individual, to tame him, to subordinate him, to subjugate him.
+ - The moral man is necessarily narrow in that he knows no other enemy than the immoral man. He who is not moral is immoral! and accordingly reprobate, despicable, etc. Therefore, the moral man can never comprehend the egoist.
+ - Before what is sacred, people lose all sense of power and all confidence; they occupy a powerless and humble attitude toward it. And yet no thing is sacred of itself, but by my declaring it sacred, by my declaration, my judgment, my bending the knee; in short, by my conscience.
+ - The State calls its own violence, law; but that of the individual, crime.
+ - God sinks into dust before man.
+ - Man has not really vanquished Shamanism and its spooks till he possesses the strength to lay aside not only the belief in ghosts or in spirits, but also the belief in the spirit.
+ - The habit of the religious way of thinking has biased our mind so grievously that we are – terrified at ourselves in our nakedness and naturalness; it has degraded us so that we deem ourselves depraved by nature, born devils.
+ - Might is a fine thing, and useful for many purposes; for “one goes further with a handful of might than with a bagful of right.”
+ - He who must expend his life to prolong life cannot enjoy it, and he who is still seeking for his life does not have it and can as little enjoy it.
+ - What I have in my power, that is my own. So long as I assert myself as holder, I am the proprietor of the thing.
+ - Now why, if freedom is striven after for love of the I after all – why not choose the I himself as beginning, middle, and end?
+ - The young are of age when they twitter like the old; they are driven through school to learn the old song, and, when they have this by heart, they are declared of age.
+ - My power is my property. My power gives me property. My power am I myself, and through it am I my property.
+ - It is not recognized in the full amplitude of the word that all freedom is essentially self-liberation – that I can have only so much freedom as I procure for myself by my owness.
+ - We don’t call it sin today, we call it self-expression.
+ - He who is infatuated with Man leaves persons out of account so far as that infatuation extends, and floats in an ideal, sacred interest. Man, you see, is not a person, but an ideal, a spook.
+ - Whoever is a complete person does not need to be an authority.
+ - If the child has not an object that it can occupy itself with, it feels ennui; for it does not yet know how to occupy itself with itself.
+ - From the moment when he catches sight of the light of the world, a man seeks to find out himself and get hold of himself out of its confusion, in which he, with everything else, is tossed about in motley mixture.
+ - Then the necessary decline of non-voluntary learning and rise of the self-assured will which perfects itself in the glorious sunlight of the free person may be somewhat expressed as follows: knowledge must die and rise again as will and create itself anew each day as a free person.
+ - No knowledge, however thorough and extensive, no brilliance and perspicuity, no dialectic sophistication, will preserve us from the commmonness of thought and will. It is truly not the merit of the school if we do not come out selfish.
+ - Whoever knows how to take, to defend, the thing, to him belongs property.
+ - The people is dead! Good-day, Self!
+ - We do not aspire to communal life but to a life apart.
+ - It would be foolish to assert that there is no power above mine. Only the attitude that I take toward it will be quite another than that of the religious age: I shall be the enemy of every higher power, while religion teaches us to make it our friend and be humble toward it.
+ - Is not all the stupid chatter of most of our newspapers the babble of fools who suffer from the fixed idea of morality, legality, christianity and so forth, and only seem to go about free because the madhouse in which they walk takes in so broad a space?
+ - Religion itself is without genius. There is no religious genius and no one would be permitted to distinguish between the talented and the untalented in religion.
+ - One is not worthy to have what one, through weakness, lets be taken from him; one is not worthy of it because one is not capable of it.
+ - Every State is a despotism, be the despot one or many.
+ - The men of the future will yet fight their way to many a liberty that we do not even miss.
+ - What matters the party to me? I shall find enough anyhow who unite with me without swearing allegiance to my flag.
+ - Crimes spring from fixed ideas.
+ - Apart from any other basis which might justify a superiority, education, as a power, raised him who possessed it over the weak, who lacked it, and the educated man counted in his circle, however large or small it was, as the mighty, the powerful, the imposing one: for he was an authority.
+ - Man with the great M is only an ideal, the species only something thought of.
+ - Yes, yes, children must early be made to practise piety, godliness, and propriety; a person of good breeding is one into whom good maxims have been instilled and impressed, poured in through a funnel, thrashed in and preached in.
+ - Thus the radii of all education run together into one center which is called personality.
+ - The truth wears longer than all the gods; for it is only in the truth’s service, and for love of it, that people have overthrown the gods and at last God himself. “The truth” outlasts the downfall of the world of gods, for it is the immortal soul of this transitory world of gods; it is Deity itself.
+ - When one is anxious only to live, he easily, in this solicitude, forgets the enjoyment of life. If his only concern is for life, and he thinks “if I only have my dear life,” he does not apply his full strength to using, i. e., enjoying, life.
+ - Let us look and see, then, how they manage their concerns – they for whose cause we are to labour, devote ourselves, and grow enthusiastic.
+ - People is the name of the body, State of the spirit, of that ruling person that has hitherto suppressed me.
+
+52 quotes

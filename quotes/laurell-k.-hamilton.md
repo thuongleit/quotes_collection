@@ -1,0 +1,356 @@
+ - There are wounds that never show on the body that are deeper and more hurtful than anything that bleeds.
+ - If the only tool you have is a hammer, all your problems begin to look like nails. – Abraham Maslow.
+ - Be nice, be nice, until it’s time to stop being nice, then destroy them.
+ - Only love of a good woman will make a man question every choice, every action. Only love makes a warrior hesitate for fear that his lady will find him cruel. Only love makes a man both the best he will ever be, and the weakest. Sometimes all in the same moment. -Wicked.
+ - There comes a point when you either embrace who and what you are, or condemn yourself to be miserable all your days. Other people will try to make you miserable; don’t help them by doing the job yourself.
+ - My father had taught me to be nice first, because you can always be mean later, but once you’ve been mean to someone, they won’t believe the nice anymore. So be nice, be nice, until it’s time to stop being nice, then destroy them.
+ - People go away and they don’t come back.
+ - A girl could never have too much jewelry or too much weaponry.
+ - I loved him, but love isn’t enough. All the fairy tales, the romance novels, the soap operas; they’re all lies. Love does not conquer all.
+ - Sometimes you fight what you are, and sometimes you give in to it. And some nights you just don’t want to fight yourself anymore, so you pick someone else to fight.
+ - I’m not a morning person.
+ - Confidence is a fine trait. Over-confidence isn’t.
+ - And the moment you care that much, a man has you. He owns a little piece of your soul, and he can beat you to death with it.
+ - I think like a detective.
+ - Love is not about owning someone, but about loving them.
+ - Hesitation will get you killed.
+ - Giving up something that no longer serves a purpose, or protects you, or helps you, isn’t giving up at all, it’s growing up.
+ - Never trust people who smile constantly. They’re either selling something or not very bright.
+ - Like most creative people I don’t fit well into boxes.
+ - Because everything worth having hurts.
+ - Always having to have the last word is a bad trait. Pisses people off.
+ - Is this a private fight, or can anyone join?
+ - Love sucks. Sometimes it feels good. Sometimes it’s just another way to bleed.
+ - Before I knew you, I thought brave was not being afraid. You’ve taught me that bravery is being terrified and doing it anyway.
+ - Nothing turns to hate so bitter as what once was love.
+ - I’m not afraid of heights, but the idea of falling from them, well, that I’m afraid of.
+ - People are supposed to fear the unknown, but ignorance is bliss when knowledge is so damn frightening.
+ - Remember your personal demons should be afraid of you, because you are their home, their food, and as you heal, their executioner.
+ - Love mattered, in the end. A house without love would always fall, maybe not today or tomorrow, but in the end without love nothing could endure.
+ - What do you do when you know you are breaking someone’s heart, but to do anything else would break your own?
+ - If you love someone, truly love them, you should never cause them pain. Never fill their eyes with something so close to grief.
+ - Maybe they know what I know, that the true way to a man’s heart is six inches of metal between his ribs. Sometimes four inches will do the job, but to be really sure, I like to have six.
+ - The truth may not set you free, but used carefully, it can confuse the hell out of your enemies.
+ - Every relationship is messed up. What makes it really perfect is if you still want to be there when things suck.
+ - A certain type of man, when he loves for the first time, his love is not really love, it is possession. Possessions don’t have rights or feelings; they are something to owned and controlled. He had spent more than a year trying to do just that, and failing.
+ - We are not created equal in talent. But the place where we are least equal is the heart. You can work at a talent, take lessons, but love, love either works or it doesn’t. You love someone or you don’t. You can’t change it. You can’t undo it.
+ - When God ignores you, the devil starts looking good.
+ - A flower may be beautiful all on its own, but a person is never truly beautiful unless someone’s eyes show him that he is beautiful.
+ - Stupidity isn’t punishable by death. If it was, there would be a hell of a population drop.
+ - I enjoy my anger, it’s the only hobby I have.
+ - Not dating is a choice, not a failure.
+ - Never criticize, unless you can do a better job.
+ - Hatred makes us all ugly.
+ - When you apologize, try not to smile at the same time. It ruins the effect.
+ - One thing I’ve learned about vampires – they keep pulling new rabbits out of their cloaks. Big, fanged, carnivorous bunnies that’ll eat your eyeballs if you’re not paying attention.
+ - Is death such a high price to pay, when you will die anyway?
+ - I never said I was consistent.
+ - We hate most in others what we dislike in ourselves.
+ - That’s what you get for telling the truth. Someone calls you a liar. Most people will accept a likely lie to an unlikely truth. In fact, they prefer it.
+ - No name-calling truly bites deep unless, in some dark part of us, we believe it. If we are confident enough then it is just noise.
+ - One of the things cops learn first is that everyone lies. Some people to hide things, some people just for the hell of it, but everyone lies. Assume that everyone is hiding something, it saves time.
+ - It’s not about winning, Haven. I’m not a prize to be won. I’m not the princess that needs rescuing from the dragon. I’m the prince and I kill my own monsters. You need to be ok with that. -Anita Blake.
+ - Sometimes good and evil aren’t so much opposites as two sides of a coin. You toss it one way and it looks good, another way and it’s evil, sometimes it just depends on which end of the gun you’re on.
+ - Accidental sex. He made it sound like I fell down, and there just happened to be an erection in the way.
+ - If you fear nothing, then you are not brave. You are merely too foolish to be afraid.
+ - It always amazes me how many women like dangerous men. Men who almost from the moment you meet them, you know are bad news. Me, I prefer my men kinder, gentler, nice. Niceness is highly underrated by most people.
+ - Sometimes it’s not the optimist you need, but another pessimist to walk beside you and know, absolutely know, that the sound in the dark is a monster, and it really is as bad as you think. Did that sound hopeless? It didn’t feel hopeless. It felt reassuring. It felt – real.
+ - If you love someone, then your freedom is curtailed. If you love someone, you give up much of your privacy. If you love someone, then you are no longer merely one person but half of a couple. To think or behave any other way is to risk losing that love.
+ - Sometimes love makes you selfish. Sometimes it makes you stupid. Sometimes it reminds you why you love your gun.
+ - I will bathe in your warmth ma petite. Roll you around me until my heart beats only for you. My breath will grow warm from your kiss.
+ - I am sincere, ma petite, even when I lie.
+ - Hatred is a cold fire, and it gives no warmth.
+ - When in doubt, ignore and be horribly unimpressed.
+ - Some wounds cut us so deep that they stop us. Stop us from letting go, from growing up, from seeing the truth.
+ - Love, whether it’s friendship or more, is like a cup. It fills up drop by drop, until one last drop and the cup is full. The liquid hangs there almost above the rim, hangs there on surface tension alone and you know that one more drop and it will spill over.
+ - When you dance with the devil, it might as well be a devil who can give you your own corner of hell to rule.
+ - I thought of several alec smart remarks, but you should humor crazy people when you’re at their mercy; it’s a rule.
+ - Neither love nor evil conquers all, but evil cheats more.
+ - Fear will keep you alive; indifference won’t.
+ - If you keep a gun in your purse, you get killed, because no woman can find anything in her purse in under twelve minutes. It’s a rule.
+ - Death is the last intimate thing we ever do.
+ - There is some comfort in killing that which has hurt you, but it is cold comfort. It’ll destroy things inside of you that the original pain wouldn’t have harmed. Sometimes it’s not a question of whether a piece of your soul is going to go missing, only which piece it’s going to be.
+ - True love means you love the real person, not an ideal that you have in your head and superimpose over them. That’s illusion and lies to me.
+ - It’s better to be loved than feared, but if you can’t be loved, then fear will do.-Dino quoting Machiavelli.
+ - Death didn’t bother me much. Strong Christian and all that. Method of death did. Being eaten alive. One of my top three ways not to go out.
+ - It feels like we’re in a Harry Potter book talking about He-Who-Must-Not-Be-Named.
+ - I kissed him on the cheek and left to find Bobby Lee. Him, I trusted to be in the line of fire. But it was more than that: I wasn’t sleeping with bobby Lee. I didn’t love him. Sometimes love makes you selfish. Sometimes it makes you stupid. Sometimes it reminds you why you love your gun.
+ - Give a truly good person power, and they’re still a good person. Give a bad person power, and they’re still a bad person. The question is always about the person in between. The one that isn’t evil, or good, but just ordinary. You don’t always know what an ordinary person is like on the inside.
+ - I try to be a good cop. I try to be a good little soldier and follow orders up to a point. But in the end I’m not really a cop, or a soldier. I am a legally sanctioned murderer. I am the Executioner.
+ - Love is too precious to be ashamed of.
+ - When I was younger, I’d wanted someone to promise me that things would work out and nothing bad would ever happen again. But I understood now that that was a child’s wish. No one could promise that. No one. The grown-ups could try, but they couldn’t promise, not and mean it.
+ - I didn’t want to pick at Micah and me until we unraveled. I wanted to leave it alone and enjoy it. I just didn’t know how to do that.
+ - Women may get to wear lots of pretty colors, but men get the comfortable shoes. Anita Blake Vampire Hunter.
+ - I’d learned a long time ago that you can’t prove a negative. You can prove that you did something, but it’s the devil to prove you didn’t do something.
+ - Friends don’t count the cost of favors.
+ - Sometimes you deal with the devil not because you want to, but because if you don’t, someone else will.
+ - You are an abomination before God. Jesus loves you too, I said smiling.
+ - My characters surprise me constantly. My characters are like my friends – I can give them advice, but they don’t have to take it. If your characters are real, then they surprise you, just like real people.
+ - Better to assume the worst and be wrong than assume the best and be wrong.
+ - I sipped my own coffee, heavy on the sugar and cream, trying to make up for the late work the night before. Caffeine and sugar, the two basic food groups.
+ - Pity is an emotion that can get you killed. The only thing more dangerous is blind hate, and maybe love.
+ - He had this old southern idea of what a lady should be. A lady should not carry a gun and spend most of her time covered in blood and corpses. I had two words for that attitude. Yeah, those are the words.
+ - Sometimes it would be nice not to have to do my best. Sometimes it would just be nice not to have a crisis to deal with. – Anita Blake.
+ - That disapproving look was back in her eyes. Her teacher face. The one that could make you squirm from ten paces, even if you were innocent. And I hadn’t been innocent for years.
+ - But if anything will turn me off, it’s a very practiced approach, as if the man has done it a thousand times before, to a lot of different women. Which always seems to imply that I am no different from all the rest. Not flattering.
+ - He said,’Trust yourself, mon ami. You are not your friend with his so-sad tale. And Anita is not human. Through us she is more than that. Both of us huddle around her humanity like it is the last candle flame in a world of darkness. But by our very love, we make her less human, and more.
+ - If I was truly as brave as I thought I was, I’d have let him go. But I loved him, and I wasn’t that brave.
+ - I so wanted out of this conversation, but it was like a car accident: Once you started spinning, you could only wait and see what you hit.
+ - There’s no one so self-righteous as someone policing someone else’s morality.
+ - Vampires were always either trying to kill me, or own me. God I hated being popular.
+ - All I really wanted to do was cuddle back under the blankets, maybe with a certain stuffed toy penguin I knew. Yeah, hiding sounded good.
+ - Most women complain that there are no single, straight men left. I’d just like to meet one who’s human.
+ - Morals aren’t just for when it’s easy, Anita. They aren’t morals if you throw them aside every time it’s convenient.
+ - Nothing is more appealing than a handsome man who is also uncertain of himself.
+ - There had to be a circle of Hell where you were eternally fourteen, eternally in junior high. One of the lower circles.
+ - Somehow I think Trophy Wives wear more makeup and less cutlery. But hey, I haven’t ever met a Trophy Wife, maybe I’m wrong. Maybe they know what I know, that the true way to a man’s heart is six inches of metal between his ribs.
+ - Lust has less logic than love, sometimes, but it’s easier to fight.
+ - I give good advice. I do not always take it.
+ - Graves are for the living, not the dead. It gives us something to concentrate on instead of the fact that our loved one is rotting under the ground.
+ - Personally, I think neutral is just another way of saving your own ass at the expense of someone else’s.
+ - Life is often like that, the best balancing on a knife edge with the worst.
+ - She doesn’t understand what she’s asking, Jean-Claude said. No, but she asks, and if we do not do it, we will always wonder. I would rather thy and fail than regret having never tried at all.
+ - Zerbrowski said, “Try not. Do. Or do not. There is no try.” It took me a second to realize that he had just quoted Star Wars to me. It made me smile, and in that moment I loved him, just for that.
+ - Without hope, love dies and parts of you wither.
+ - I was shaking all over, and it wasn’t from the vampire. Memories have teeth, too.
+ - You may be a manipulative bastard sometimes, but you are our manipulative bastard.
+ - In chains and darkness, wherefore should I stay, And mourn in prison, while I keep the key.
+ - Edward’s grief if you die will be a terrible thing. It will hurt him, a lot, and men like him never grieve alone. He will spread his grief all over us, not because we failed, but because it’ll give him something to focus on so he doesn’t have to feel the pain.
+ - I would rather you love me, but if not love, fear will do.
+ - Besides I’m a sucker for a pair of pretty eyes.
+ - Sometimes the monsters are real, Anita. Sometimes they’re real and the only way to defeat them is to be the bigger monster.? – Chang Bibi to Anita.
+ - You either mellow at 30, or your head explodes – take your choice.
+ - I wasn’t crying, my eyes were running. My eyes were running because there were pieces of zombies all over my toys. Jesus.
+ - There are a thousand ways to hurt someone you love that have nothing to do with physical violence.
+ - The only good enemy is a dead enemy.
+ - A vampire victim. I’d never seen a lone kill. They were like potato chips; once a vamp tasted them, he couldn’t stop at just one.
+ - Vampires are people too!
+ - When you spend all your time worrying that the devil is right behind you, eventually you start seeing him whether he’s there or not.
+ - No, really, Ronnie, it’s good to share information when you know someone else is dating the lunarly challenged.
+ - Not knowing a thing is not ignorance. Feigning knowledge you don’t have can be – Sholto.
+ - I know the universe has a sense of irony, and sometimes you get reminded just how sadistic that can be.
+ - People talk of sorrow as if it is soft, a thing of water and tears. But true sorrow is not soft. True sorrow is a thing of fire, and rock. It burns your heart, crushes your soul under the weight of mountains. It destroys, and even if you keep breathing, keep going, you die.
+ - Everyone wants to grow up to be a faerie princess. Trust me, It’s overrated.
+ - Questions are great, but only if you know the answers. If you ask questions and the answers surprise you, you look silly.
+ - Every ruler should strive for his people to love him. But if they cannot love you, then make them fear you. Love is better, but fear will do the job.
+ - Mercy will get you killed, but sometimes it’s all that makes us human.
+ - Personally I didn’t believe God had a private torture chamber. Hell was being cut off from God, cut off from his power, his energy, Him.
+ - Magic, if that was the right word, often rises and falls on your own belief in your abilities. I’ve seen very powerful people completely crippled by self-doubt.
+ - If you’re alive, don’t move, if you’re dead, don’t worry about it.
+ - Surely being in love doesn’t cause you to lose your sense of good taste. If I ever buy a gown with sequins on it, someone just shoot me.
+ - My writing style is very sensual, as in sensory detail.
+ - Everyone has their weaknesses. Some people smoke. I collect stuffed penguins. If you won’t tell, I won’t.
+ - I worry that when you start quoting Machiavelli to justify your actions, you have ceased to be one of the good guys. No, quoting Nietzsche does that. Machiavelli is just cool.
+ - If your life works, and you work in it, then it’s okay, whatever is happening is okay.
+ - Oh, no, a leopard blew up and plastered itself all over everything, but hey, animal print was in this year.
+ - Never look back; something is always gaining on you.
+ - Pretend I asked, now answer the question...
+ - Chastity works better if you don’t keep testing it.
+ - You smell of other peoples blood, ma petite. It was no one you know. -Jean Claude and Anita.
+ - Out last chance is a cat’s magic sight. We are doomed.
+ - Sometimes you can learn things from the way a person denies something. The choice of lies can be almost as helpful as the truth.
+ - You fight so hard, so long, to cut someone out of your heart, but it’s not always your heart that betrays you.
+ - Never throw stones if you think they’re going to come back and hit you.
+ - Most hatred is based on fear, one way or another. Yeah. I wrapped myself in anger, with a dash of hate, and at the bottom of it all was an icy center of pure terror.
+ - How do you introduce boyfriend C to boyfriend A after boyfriend A has been such a good sport, of late, about boyfriend B, who is no longer in the picture?
+ - Just what I needed – a necromancer with an attitude. Oh, wait, I was a necromancer with an attitude.
+ - The ratman froze, staring at me. “Why are you laughing?” His voice held just a hint of unease. Good. I was hoping that the vampires would come for me soon and save me. You’ve got to admit that’s funny.
+ - I talk to myself everyone once in a while. Give myself very good advice. Sometimes I even take it.
+ - Regrets are about decisions that you know you should have done different.
+ - I should not have to flirt with someone while I’m trying to threaten someone else with a gun; it was too hard to do both.
+ - So many of us had been armed that there were holsters and weapons scattered among the passed-out bodies like mercenary prizes in a fleshy Cracker Jack box.
+ - If you think love makes you happy, you’ve either never been in love, or never been in love long enough to have to start compromising.
+ - To know another’s heart, you must first know your own.
+ - Only those who have never known fear are allowed to think less of others for being afraid. Frankly, I think anyone who has never been afraid of anything in their entire life is either a liar or lacks imagination.
+ - I am a very linear thinker, so I write beginning to end. I write hundreds of pages per book that never make it into print.
+ - What we prefer to read is sort of like sexual preference, you like what you like. Most of the time you have no clue why.
+ - Nill illigitamus carborundum.
+ - I knew from the moment I heard you, the moment I saw the gun and realized that this lovely, petit woman was the executioner, that you would never die waiting for me to save you – that you would save yourself.
+ - What is it about her that is so goddamned special?
+ - There are only two kinds of vampire hunters: good ones and dead ones.
+ - My right hand was sort of casually near my gun, without looking like I was reaching for my gun. It wasn’t easy. Reaching for a gun usually looks like reaching for a gun. No one seemed to notice though. Goody for our side.
+ - Children make that big a difference to you? He asked. I nodded. Yeah, they do. I never figured you as the maternal type. I’m not, but kids are people, Edward, little people trapped by the choices the adults around them make.
+ - Once upon a time wasn’t as long ago as it used to be.
+ - I’d have much rather gotten dragged into someone else’s fight than face what was waiting for me. Other people’s emotional pain, no matter how painful, is so much less painful than your own.
+ - I am the Executioner. Murder someone in my town, and I’m the one that you get to see. Once.
+ - Vampires can live a very long time, theoretically forever, which means their idea of getting down to business can be damn leisurely.
+ - One of my favorite things about hanging out with the monsters is the healing. Straight humans seemed to get killed on me a lot. Monsters survived. Let’s hear it for the monsters.
+ - Never argue when you’re winning.
+ - His eyes widened just a bit, his lips flexed. I realized he was trying not to laugh. I hate it when people find my threats amusing.
+ - I know who and what I am. I am the Executioner, and I don’t date vampires. I kill them.
+ - Twenty-three stories up and all I could see out the windows was grey smog. They could call it the City of the Angels if they wanted to, but if there were angels out there, they had to be flying blind.
+ - Ma petite is not a subtle woman. Unless you say it, she will not understand it.
+ - One of the many reasons that Padma will always be a secondary power on the Council is his belief that all power must be taken, that all power must come through fear. True power comes when others offer it to you and you merely accept it as a gift, not as the spoils of some personal war.
+ - A crowd is an elemental thing. A word, a glance, and a crowd becomes a mob.
+ - All men love to talk about themselves, even the ones who are completely buggers.
+ - Sticks and stones will break your bones, but failure will get you killed.
+ - I’d killed him in the end, but revenge only makes things all better in the movies. In real life, once the villain is dead the trauma lives on inside the victims.
+ - I’m very judgmental person. It’s one of my faults.
+ - It is a very natural human trait to destroy that which frightens us.
+ - Self-doubt is a self-fulfilling prophecy.
+ - I’ve lost track of the number of people who want to be writers but never actually write anything. Talking about writing, dreaming about writing, can be very fun, but it won’t get a book written. You’ve got to write.
+ - In real life I do violence, but for psychic stuff I do other things better.
+ - It has been my experience that women tell more intimate details to their friends than men do. Men may brag more, but women will talk the nitty-gritty and share the experience more.
+ - Zebrowski says that if you killed someone else just hide the body, he’s not starting over on the paperwork.
+ - I sounded like Horton the Elephant. “A person is a person no matter how small.” What the hell was I doing standing in the middle of a cave, in the dark, surrounded by wererats, quoting Dr. Seuss, and trying to kill a one-thousand-year-old vampire?
+ - Death cures all ills. Well, most of them.
+ - Compromise is an imperfect act.
+ - Now that I’m being very successful, publishers are trying to mainstream me, but I’m unabashedly genre. It’s what I like to read, what I like to write.
+ - A little boy who’s discovered the monster under the bed is actually real, and it’s screwing Mommy.
+ - To just let go, and not pick everything to death. To just let go and enjoy what you had. To just let go and not make everybody around you miserable with your own internal dialogue. To just let go and be happy. So simple. So difficult. So terrifying.
+ - I, Anita Blake, scourge of the undead-the human with more vampire kills than any other vampire executioner in the country-was dating a vampire. It was poetically ironic.
+ - It’s good not to be the only girl in the fight for once.
+ - I think that my vampires in general were influenced by my being allowed to watch the Hammer vampire films. Vampire Circus, also shown as Circus of Fear, was one of those movies.
+ - I hate to shop. I consider it one of life’s necessary evils, like brussels sprouts and high-heeled shoes.
+ - What happens in Vegas may stay in Vegas, but what happens in New Orleans, goes home with you.
+ - Heroes don’t get anything but dead.
+ - Larry’s zombie bag was a nearly virulent green with Teenage Mutant Ninja Turtles on it. I was almost afraid to ask what his vampire bag looked like.
+ - Maybe you’re not willing to give up a lover who’s colder than you are.
+ - If you have a choice between extra makeup or extra weapons always take the weapons. Just the fact that you’re debating between those two choices proves that you’re going to need the weapons more.
+ - Human lives are too short to waste in trivialities.
+ - I wondered if I had offended him. I wondered if I cared.
+ - I hate women who complain about being fat when they’re like a size 5. Anything under size 5 isn’t a woman. It’s a boy with breasts.
+ - A person likes to think of himself in a certain way, and when something happens that makes that no longer possible, you mourn the old self. The person you thought you were.
+ - Anyone who doesn’t believe that the forest is a deadly place has never been lost in one.
+ - An atheist waving a cross at a vampire was a truly pitiful sight.
+ - Is it better to outmonster the monsters or to be quietly devoured?
+ - Seventy percent of a first draft is garbage and 30 percent is gold, but you have to write 100 percent to get that 30.
+ - True power comes when others offer it to you and you merely accept it as a gift, not as the spoils of some personal war.
+ - Anyone who tells you size doesn’t matter has been seeing too many small knives.
+ - I spent the next fifteen minutes convincing a crying werewolf that I wasn’t going to hurt her. My life was getting too strange, even for me.
+ - Edward smiled, I smiled, even Bernardo smiled. Olaf just looked sinister.
+ - That was the true terror of love, that you could love with your whole heart, your whole soul, and lose both.
+ - He looked less handsome without the smile and glow in his eyes, but he also seemed more real. Being real will get me into trouble faster than any amount of charm.
+ - I’d been willing to kill for the people I loved for a very long time; now I had to start living for them.
+ - You take insult where none is intended, but if you will find insult where none is meant, then perhaps I should try harder to insult on purpose.
+ - Here’s the secret to finishing that first book. Don’t rewrite as you go.
+ - How could you love someone and not want them to be happy?
+ - If you only believe when it’s easy, you don’t really believe.
+ - Sometimes it’s not the optimist you need, but another pessimist to walk beside you.
+ - I know that look, Blake. You are a drowning woman, and the only way out is down the aisle.
+ - Some people just don’t seem to understand the concept of fiction. It is fiction; it ain’t true, folks.
+ - If I’d been easily discouraged, I could have been a one-hit wonder.
+ - Sometimes love isn’t about being smart. Sometimes it’s about being stupid together.
+ - Perfection is an unattainable goal. It isn’t going to be perfect. Just get words down on paper, and when you stumble to what you think is the end of the book, you will have hundreds of pages of words that came out of your head. It may not be perfect, but it looks like a book.
+ - Richard was a riddle with no answer, and I was tired of playing a game I couldn’t win.
+ - I knew what was like to finally be seduced by the thing you hunted. Mine just happened to be a more traditional seduction. Okay, at least I was still among the living.
+ - Silk didn’t care if it slid over scars or smooth, untouched skin. I’d earned my right to be paranoid.
+ - The rich and powerful always seem to prefer the tops of buildings. Hasn’t anyone ever explained to them that higher just means you have farther to fall? – Anita Blake.
+ - Hope will lie to you, but lust is what it is; it never lies.
+ - Most hatred is based on fear, one way or another.
+ - I don’t have a master. I’m not sure if I have an equal.
+ - I’m more influenced by my own interests than anyone else’s. Writers have to entertain themselves, or they can’t entertain anyone else.
+ - What is love? Sometimes it’s just letting yourself be who and what you are, and letting the person you’re supposed to love be who and what he is too. Or maybe what and who they are.
+ - Important safety tip – never look a vampire in the eye.
+ - My boyfriends are all more romantic than I am, and so are my lovers.
+ - I wanted to say something brilliant. My God, Holmes, how did you know the zombie was hiding in the flower pot? But I couldn’t lie.
+ - Still it might be nice, once in a while, not to have to choose between evils. Just once, couldn’t I choose the lesser good?
+ - We aren’t the good guys, Anita. We’re the necessary guys. -Edward.
+ - The Catholic Church sees voluntary vampirism as a kind of suicide. I tend to agree. Though the Pope also excommunicated all animators, unless we ceased raising the dead. Fine; I became Episcopalian.
+ - I just don’t believe in helping people who are going to torture me. Though I don’t see any bamboo slivers. How can you possibly torture someone without bamboo slivers?
+ - Nicky looked down at me with a knowledge on his face that he was holding the monster in his arms. I’d have comforted him, but it would have been all lies.
+ - If people would write exactly what I wanted to read I wouldn’t feel so compelled to write myself.
+ - It was two weeks before Christmas. A slow time of year for raising the dead.
+ - Guarantees are for major appliances, not for murder.
+ - Power makes you a monarch, and all the fancy robes in the world won’t do the job without it.
+ - The rule is that if they have a weapon and want to take you someplace else, it is so they can kill you slower – Peter.
+ - They say not to look back, but if you’re not sure what lies ahead, what else is there but looking back?
+ - If they cheat, can I shoot them?
+ - I’d never met coffee that wasn’t wonderful. It was just a matter of how wonderful it was.
+ - I didn’t want to understand. Bert had been thrilled that the police wanted to put me on retainer. He told me I would gain valuable experience working with the police. All I had gained so far was a wider variety of nightmares.
+ - You did not bring down two of the royal guard in an unceremonious heap because the woman in the middle tripped.
+ - It’s not the fur or the fangs that make you a monster, not always. Sometimes, it’s just where you draw the line.
+ - I will go to my grave seeing the look on your face at the last. Keep it up and you’ll go sooner than later.
+ - Assuming the worst was always safer. And usually truer.
+ - Never argue with your characters; they know themselves better than you do.
+ - I try not to worry about rewriting books that worked well the first time. I’m too busy writing new books to worry about things that are already in print.
+ - So many wonderful books to write, and not enough hours in the day. An embarrassment of riches.
+ - He will not let you come barging in to his world like the proverbial bull in the china shop.
+ - No. But then the American Government – whatever branch – has never really grasped the concept of tribal identity.
+ - If I went in the cage, I was going to end up eaten alive. That was actually one of my top five ways not to die...
+ - Sometimes the greatest wounds are the ones we try the hardest not to inflict.
+ - For me the Anita series is built like a mystery series, which means that as much as possible each book stands alone, so you have a mystery to solve from the beginning to the end of the book.
+ - Some issues stay fresh every time you open them up. It’s like evil magical Tupperware – it stays fresh forever.
+ - They be crazier than we are.
+ - There’s Only so much emotional super glue in a person’s soul, that everything just stays broken.
+ - I had been downright paranoid all afternoon, aware of everyone near me. By the time I went for the car, my neck and shoulders were knotted into one painful ache. The most frightening thing I’d seen all afternoon had been the prices on the designer clothing.
+ - He’d kill you all right. No sweat. But for the wrong reasons. Amateur’s reasons. Of course, you’ll be just as dead.
+ - The fey in this country keep to themselves, and are a separate nation, much like the American Indians, but with even more autonomy.
+ - I could probably have made the head shot from the railing, but with an unfamiliar gun, it was too risky. I didn’t want to accidentally shoot the woman in the head. Killing the hostage is always frowned upon.
+ - If I wanted death, Edward would give it to me. Because we both understand that it isn’t death that we fear. It’s living.
+ - Therapy can get you only so far with exorcising your childhood nightmares; after that it’s willpower, and you, and people you can trust to hold your hand along the way.
+ - The best lies are always at least partially true.
+ - A woman will forget that a man is male, if they are good enough friends, but men rarely forget that a woman is feminine.
+ - Everyone spends their lives trying to balance their world between good and evil.
+ - Different isn’t evil, it’s just different.
+ - He didn’t look the least bit tired. A morning person, even after no sleep at all. It was disgusting.
+ - Death, especially violent death, will turn the meanest bastard in the world into a nice guy. Why is that?
+ - I feel that if you are blessed, or lucky enough, to be doing well, you should help others.
+ - That was the problem with loving people: it made you weak. It made you need them. It made the thought of not having them the worst thing in the world.
+ - If the eyes are the window to the soul, then Edward’s in trouble ’cause no one is home.
+ - Knock your bad self out.
+ - I started off like everyone else does, slogging but having a compulsion to put words on paper. I didn’t write or read horror or fantasy, other than children’s fantasy, until I was in my teens.
+ - One of my rules is never explain. A writer is a lot like a magician, if you explain how the trick works then a lot of the magic turns mundane.
+ - I want a kiss to be so believable it gives the reader shivers.
+ - I wasn’t afraid of him anymore, because I could smell his fear. You never had to be afraid of anything that was afraid of you.
+ - Because all bad little vampires see me in the end.
+ - Larry had brought me blue jeans, a red polo shirt, jogging socks, my white Nikes, an extra cross from my suitcase, the silver knives, the Firestar complete with inner pants holster, and the Browning and its shoulder holster. He’d forgotten a bra, but hey, except for that it was perfect.
+ - I wanted to wipe the grin off his face with a fist. I resisted the urge. Who says I have no self-control?
+ - Who would have ever thought I’d be afraid of a zombie, any kind of zombie? Nicely ironic that.
+ - I laid my hand on top of theirs, and all I could think was, Is this how revolutions begin? Not with a proclamation or a riot, but with a few people in a room somewhere with their hands clasped and a purpose.
+ - He was twenty. I remembered twenty. I’d known everything at twenty. It took me another year to realize I knew nothing. I was still hoping to learn something before I hit thirty, but I wasn’t holding my breath.
+ - Nothing like fear to wash your mind clean.
+ - Everything I needed was in my car, even the chickens.
+ - He gave a small nod, and I smiled back, and that was it. He understood that I’d understood that he’d understood. It took us one sentence, two looks, and a nod – with another woman it would have been at least five minutes of out-loud talking. Lucky for me I spoke fluent guy.
+ - I spend most of my waking hours confronting and destroying things that I fear. A thousand-year-old master vampire was a tall order, but a girl’s got to have a goal.
+ - She stared up at me, and there was something in her eyes, something that said we finally had an understanding. She was afraid of me, and sometimes that’s the best you can do with people. I’d tried kindness. I’d tried friendship. I’d tried respect. But when all else fails, fear will do the job.
+ - If it works out, it’s the best thing in the world. If it doesn’t work out, it’s like having your heart torn out and chopped up into little pieces while you watch. It leaves a big hollow space that never really heals.
+ - Why is it that most things you might willingly do under other circumstances become distasteful when you have no choice?
+ - Since you won’t give me your names I’ll call you Thing One and Thing Two.
+ - I cannot do it. I cannot bear it. I cannot go back to what I was here. I cannot stand at her side and watch another take her. I am not that strong or that good.
+ - You’d think a sociopath assassin wouldn’t have a fan following but he does.
+ - You will never lose your nerve. Your life, probably, but never your nerve.
+ - Can you truly love anyone if you do not first love yourself? If you hate yourself, can you love anyone else? If you do not accept all of who you are, can you accept anyone else? Hard questions. It remains to be seen whether I get any answers, hard, or otherwise.
+ - I’m not terribly fond of soapboxes.
+ - I’ve been writing stories since I was 12. ‘Writer’s Digest’ was one of my writing teachers, actually.
+ - Nothing cuts deeper than when another person says exactly what you’re afraid to say out loud.
+ - If you’re open to it, New Orleans will teach you about yourself, but if you want to hide from who you really are, the city will help you do that, too.
+ - If I wasn’t dead already, I’d said I was having a heart attack.
+ - But we were all young once. It passes, like innocence and a sense of fair play. The only thing left in the end is a good instinct for survival.
+ - When crime busting is easier than your personal life, something has gone seriously wrong.
+ - Readers respond to every genre intensely, if it’s a genre that appeals to them. Again, who can say why anyone enjoys horror and dark fantasy? If I can’t answer the question for myself, I wouldn’t dream of trying to answer it for others.
+ - Pretend hard enough and maybe it will go away.
+ - Fear will bind you closer than love, or hate, and it works a hell of a lot quicker.
+ - The federal government has never been known for its sense of humor.
+ - They say there is no light without dark, no good without evil, no male without female, no right without wrong. That nothing can exist if it’s direct opposite does not also exist.
+ - Now that’s an Okay that really means Okay, not that Okay that women use that means everything but Okay.
+ - Worry about the things you can control; the rest will either work themselves out, or they’ll kill you. Either way, no more worries.
+ - Feelings are never stupid, they just make us feel stupid sometimes.
+ - There are only two things you can do when you’re dressed like Barbie Does Bondage; you can be embarrassed or you can be aggressive. Guess what my choice was.
+ - I love animals, always have, and it seemed natural to help the ASPCA. Animals have no voice of their own, so we have to be that voice.
+ - There are some things more important than physical survival. You gotta be able to look at yourself in the mirror.
+ - Nothing helps you sleep at night so much as being absolutely certain that you’re right, and everyone else is evil.
+ - By 17, I was submitting to publications and collecting my first rejection slips.
+ - I’d made sure I knew his name. You shouldn’t ask people to die for you if you don’t at least know their name.
+ - I hated missing the end of anything. I was always convinced that the bit I’d miss would be the best part.
+ - If I let you get killed, the other body guards will make fun of me.
+ - Fear, the strength of earth’s religions, gripping every living soul, Was a monstrous human error for the making of men whole.
+ - If you can’t impress yourself, then no one else really matters.
+ - The second you stop questioning yourself is the second that you become the monster. -Merry.
+ - If you’re dressed for my funeral, it’s too casual. If it’s just street clothes, then you must be scaring the tourists.
+ - Truth could be violent, could strip you of dignity and hope just as quickly as a gun.
+ - I wasn’t like most girls.
+ - What does it mean when the monsters are so afraid of you that you make them cry? That maybe monster depends on which end of the gun your on, or that I was just that good at my job.
+ - One serial killer sends me a human head in a box, and I get all spooked; Go figure.
+ - Methinks we have a clue. Be still, my heart.
+ - I cannot say how strongly I object to people using other people’s writing as research. Research is non-fiction, especially for horror, fantasy, science fiction. Do not take your research from other people’s fiction. Just don’t.
+ - I like conventions. I like meeting and greeting. I’m perched on that edge where I’m getting more attention than I quite know what to do with, though.
+ - Why was so much evil pleasant, pretty on the outside, like poisoned candy?
+ - I looked at Micah, who shrugged. I looked at Rafael, who shook his head. Nice that none of us knew why he was undressing.
+ - His parting shot to me had been, “I don’t want to love someone who is more at home with the monsters than I am.” What do you say to that? What can you say? Damned if I know. They say love conquers everything. They lie.
+ - Should I eat first or accuse the Master of the City of murder? Choices, choices. -Anita.
+ - There are things that can harm a lot more than physically.
+ - You can’t save everybody. In fact, there are days when I think you can’t save anyone. Each person has to save himself first, then you can move in and help. I have found this philosophy does not work during a gun battle, or a knife fight either. Outside of that it works just fine.
+ - I’m learning that you have to make time for what’s important. You have to fight to carve little pieces of happiness out of your life, or the everyday emergencies will eat up everything.
+
+354 quotes

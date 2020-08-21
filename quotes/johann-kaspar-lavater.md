@@ -1,0 +1,229 @@
+ - He who sedulously attends, pointedly asks, calmly speaks, coolly answers and ceases when he has no more to say is in possession of some of the best requisites of man.
+ - As your enemies and your friends, so are you.
+ - The great rule of moral conduct is next to God, respect time.
+ - Vanity and rudeness are seldom seen together.
+ - Where pride begins, love ceases.
+ - Three things characterize man: person, fate, merit – the harmony of these constitutes real grandeur.
+ - Be certain that he who has betrayed thee once will betray thee again.
+ - The jealous are possessed by a mad devil and a dull spirit at the same time.
+ - She neglects her heart who too closely studies her glass.
+ - Don’t speak evil of someone if you don’t know for certain, and if you do know ask yourself, why am I telling it?
+ - He who is passionate and hasty is generally honest. It is your cool, dissembling hypocrite of whom you should beware.
+ - The policy of adapting one’s self to circumstances makes all ways smooth.
+ - Thinkers are scarce as gold; but he whose thoughts embrace all his subject, and who pursues it uninterruptedly and fearless of consequences, is a diamond of enormous size.
+ - Neither refinement nor delicacy is indispensable to produce elegance.
+ - Stubbornness is the strength of the weak.
+ - Fools learn nothing from wise men, but wise men learn much from fools.
+ - He who purposely cheats his friend would cheat his God.
+ - Depend on no man, on no friend but him who can depend on himself. He only who acts conscientiously toward himself, will act so toward others.
+ - True genius repeats itself forever, and never repeats itself – one ever varied sense beams novelty and unity on all.
+ - Each particle of matter is an immensity, each leaf a world, each insect an inexplicable compendium.
+ - The worst of faces still is human.
+ - He can feel no little wants who is in pursuit of grandeur.
+ - God protects those he loves from worthless reading.
+ - Malice is poisoned by her own venom.
+ - Sensibility is the power of woman.
+ - Let none turn over books, or roam the stars in quest of God, who sees him not in man.
+ - The enemy of art is the enemy of nature; art is nothing but the highest sagacity and exertions of human nature; and what nature will he honor who honors not the human?
+ - Venerate four characters: the sanguine who has checked volatility and the rage for pleasure; the choleric who has subdued passion and pride; the phlegmatic emerged from indolence; and the melancholy who has dismissed avarice, suspicion and asperity.
+ - He who, silent, loves to be with us – he who loves us in our silence – has touched one of the keys that ravish hearts.
+ - A beautiful smile is to the female countenance what the sunbeam is to the landscape; it embellishes an inferior face and redeems an ugly one.
+ - Obstinacy is the strength of the weak. Firmness founded upon principle, upon the truth and right, order and law, duty and generosity, is the obstinacy of sages.
+ - He who seldom speaks, and with one calm well-timed word can strike dumb the loquacious, is a genius or a hero.
+ - Intuition is the clear conception of the whole at once.
+ - The manner of giving shows the character of the giver, more than the gift itself.
+ - Existence is self-enjoyment, by means of some object distinct from ourselves.
+ - True love, like the eye, can bear no flaw.
+ - The prudent see only the difficulties, the bold only the advantages, of a great enterprise; the hero sees both; diminishes the former and makes the latter preponderate, and so conquers.
+ - Vociferation and calmness of character seldom meet in the same person.
+ - Conscience is wiser than science.
+ - What do I owe to my times, to my country, to my neighbors, to my friends? Such are the questions which a virtuous man ought often to ask himself.
+ - The obstinacy of the indolent and weak is less conquerable than that of the fiery and bold.
+ - Where there is much pretension, much has been borrowed; nature never pretends.
+ - The craftiest trickery are too short and ragged a cloak to cover a bad heart.
+ - As you treat your body, so your house, your domestics, your enemies, your friends. Dress is a table of your contents.
+ - Borrowed wit is the poorest wit.
+ - It is one of my favorite thoughts that God manifests Himself to men in all the wise, good, humble, generous, great, and magnanimous men.
+ - All affectation is the vain and ridiculous attempt of poverty to appear rich.
+ - A single spark of occasion discharges the child of passions into a thousand crackers of desire.
+ - As a man’s salutations, so is the total of his character; in nothing do we lay ourselves so open as in our manner of meeting and salutation.
+ - You may tell a man thou art a fiend, but not your nose wants blowing; to him alone who can bear a thing of that kind, you may tell all.
+ - Modesty is silent when it would be improper to speak; the humble, without being called upon, never recollects to say anything of himself.
+ - Whenever a man undergoes a considerable change, in consequence of being observed by others, whenever he assumes another gait, another language, than what he had before he thought himself observed, be advised to guard yourself against him.
+ - A fop of fashion is the mercer’s friend, the tailor’s fool, and his own foe.
+ - He surely is most in need of another’s patience, who has none of his own.
+ - The mingled incentives which lead to action are often too subtle and lie too deep for us to analyze.
+ - Calmness of will is a sign of grandeur.
+ - Before thou callest a man hero or genius, investigate whether his exertion has features of indelibility; for all that is celestial, all genius, is the offspring of immortality.
+ - All belief that does not make us more happy, more free, more loving, more active, more calm, is, I fear, a mistaken and superstitious belief.
+ - The generous person is always just, and the just who is always generous may, unannounced, approach the throne of heaven.
+ - He is incapable of a truly good action who finds not a pleasure in contemplating the good actions of others.
+ - He whom common, gross, or stale objects allure, and when obtained, content, is a vulgar being, incapable of greatness in thought or action.
+ - The humblest star twinkles most in the darkest night.
+ - He who always prefaces his tale with laughter, is poised between impertinence and folly.
+ - Who has a daring eye tell downright truths and downright lies.
+ - If you mean to know yourself, interline such of these aphorisms as affect you agreeably in reading, and set a mark to such as left a sense of uneasiness with you; and then show your copy to whom you please.
+ - As the interest of man, so his God; as his God, so he.
+ - The greatest of characters, no doubt, would be he, who, free of all trifling accidental helps, could see objects through one grand immutable medium, always at hand, and proof against illusion and time, reflecting every object in its true shape and colour through all the fluctuation of things.
+ - Evasions are the common shelter of the hard-hearted, the false and impotent when called upon to assist; the really great alone plan instantaneous help, even when their looks or words presage difficulties.
+ - A gift – its kind, its value and appearance; the silence or the pomp that attends it; the style in which it reaches you – may decide the dignity or vulgarity of the giver.
+ - Be neither too early in the fashion, nor too long out of it; nor at any time in the extremes of it.
+ - Who makes quick use of the moment is a genius of prudence.
+ - A great passion has no partner.
+ - Who knows whence he comes, where he is, and whither he tends, he, and he alone, is wise.
+ - A sneer is often the sign of heartless malignity.
+ - Softness of smile indicates softness of character.
+ - Have you ever seen a pedant with a warm heart?
+ - Who begins with severity, in judging of another, ends commonly with falsehood.
+ - If you wish to appear agreeable in society, you must consent to be taught many things which you already know.
+ - Half talent is no talent.
+ - How few our real wants, and how vast our imaginary ones!
+ - Kiss the hand of him who can renounce what he has publicly taught, when convicted of his error; and who, with heartfelt joy, embraces the truth, though with the sacrifice of favorite opinions.
+ - Strange that cowards cannot see that their greatest safety lies in dauntless courage.
+ - Desire is the uneasiness a man finds in himself upon the absence of anything whose present enjoyment carries the idea of delight with it.
+ - Just so far as we are pleased at finding faults, are we displeased at finding perfection.
+ - The proportion of genius to the vulgar is like one to a million.
+ - He, who boldly interposes between a merciless censor and his prey, is a man of vigor: and he who, mildly wise, without wounding, convinces him of his error, commands our veneration.
+ - The procrastinator is not only indolent and weak, but commonly, false, too; most of the weak are false.
+ - To realize that you were mistaken, is just the acknowledgement, that you are wiser today than you were yesterday.
+ - Who affects useless singularities has surely a little mind.
+ - The creditor whose appearance gladdens the heart of a debtor may hold his head in sunbeams and his foot on storms.
+ - He who comes from the kitchen, smells of its smoke; and he who adheres to a sect, has something of its cant; the college air pursues the student; and dry inhumanity him who herds with literary pedants.
+ - Him, who incessantly laughs in the street, you may commonly hear grumbling in his closet.
+ - Dread more the blunderer’s friendship than the calumniator’s enmity.
+ - He also has energy who cannot be deprived of it.
+ - Be not the fourth friend of him who had three before and lost them.
+ - He, who cannot forgive a trespass of malice to his enemy, has never yet tasted the most sublime enjoyment of love.
+ - Avoid the eye that discovers with rapidity the bad, and is slow to see the good.
+ - The smiles that encourage severity of judgment hide malice and insincerity.
+ - He knows very little of mankind who expects, by any facts or reasoning, to convince a determined party man.
+ - The acquisition of will, for one thing exclusively, presupposes entire acquaintance with many others.
+ - There are no friends more inseparable than pride and hardness of heart, humility and love, falsehood and impudence.
+ - There are three classes of men; the retrograde, the stationary and the progressive.
+ - Receive no satisfaction for premeditated impertinence; forget it, forgive it, but keep him inexorably at a distance who offered it.
+ - He who, when called upon to speak a disagreeable truth, tells it boldly and has done is both bolder and milder than he who nibbles in a low voice and never ceases nibbling.
+ - Learn the value of a man’s words and expressions, and you know him. Each man has a measure of his own for everything; this he offers you inadvertently in his words. He who has a superlative for everything wants a measure for the great or small.
+ - The miser robs himself.
+ - And still, laughter is akin to weeping.
+ - Airs of importance are the credentials of impotence.
+ - Mistrust the man who finds everything good, the man who finds everything evil and still more the man who is indifferent to everything.
+ - It is a poor wit who lives by borrowing the words, decisions, mien, inventions and actions of others.
+ - You can depend on no man, on no friend, but him who can depend on himself.
+ - When you doubt between words, use the plainest, the commonest, the most idiomatic. Eschew fine words as you would rouge; love simple ones as you would the native roses on your cheek.
+ - The discovery of truth, by slow progressive meditation, is wisdom. – Intuition of truth, not preceded by perceptible meditation, is genius.
+ - Whatever obscurities may involve religious tenets, humility and love constitute the essence of true religion; the humble is formed to adore, the loving to associate with eternal love.
+ - Loudness is impotence.
+ - Too much gravity argues a shallow mind.
+ - Action, looks, words, steps, form the alphabet by which you may spell character.
+ - He who freely praises what he means to purchase, and he who enumerates the faults of what he means to sell, may set up a partnership with honesty.
+ - Who, under pressing temptations to lie, adheres to truth, nor to the profane betrays aught of a sacred trust, is near the summit of wisdom and virtue.
+ - He who prorogues the honesty of today till to-morrow will probably prorogue his to-morrows to eternity.
+ - He who seeks to imbitter innocent pleasure has a cancer in his heart.
+ - Wishes run over in loquacious impotence, will presses on with laconic energy.
+ - Injustice arises either from precipitation, or indolence, or from a mixture of both. – The rapid and slow are seldom just; the unjust wait either not at all, or wait too long.
+ - The cruelty of the effeminate is more dreadful than that or the hardy.
+ - Man without religion is a diseased creature, who would persuade himself he is well and needs not a physician; but woman without religion is raging and monstrous.
+ - The proverbial wisdom of the populace in the street, on the roads, and in the markets instructs the ear of him who studies man more fully than a thousand rules ostentatiously displayed.
+ - Who is open without levity; generous without waste; secret without craft; humble without meanness; bold without insolence; cautious without anxiety; regular, yet not formal; mild, yet not timid; firm, yet not tyrannical – is made to pass the ordeal of honor, friendship, virtue.
+ - You may depend upon it that he is a good man whose intimate friends are all good, and whose enemies are decidedly bad.
+ - Habit is altogether too arbitrary a master for me to submit to.
+ - True worth is as inevitably discovered by the facial expression, as its opposite is sure to be clearly represented there. The human face is nature’s tablet, the truth is certainly written thereon.
+ - Nothing is so pregnant as cruelty; so multifarious, so rapid, so ever teeming a mother is unknown to the animal kingdom; each of her experiments provokes another and refines upon the last; though always progressive, yet always remote from the end.
+ - The most stormy ebullitions of passion, from blasphemy to murder, are less terrific than one single act of cool villainy.
+ - Words are the wings of actions.
+ - Women are proverbially credulous.
+ - He knows not how to speak who cannot be silent; still less how to act with vigor and decision. Who hastens to the end is silent; loudness is impotence.
+ - Thinkers are as scarce as gold.
+ - Who is fatal to others is so to himself.
+ - Know in the first place, that mankind agree in essence, as they do in limbs and senses.
+ - The public seldom forgive twice.
+ - All finery is a sign of littleness.
+ - The loss of taste for what is right is loss of all right taste.
+ - The more unharmonious and inconsistent your objects of desire, the more inconsequent, inconstant, unquiet, the more ignoble, idiotical, and criminal yourself.
+ - What is the elevation of the soul? A prompt, delicate, certain feeling for all that is beautiful, all that is grand; a quick resolution to do the greatest good by the smallest means; a great benevolence joined to a great strength and great humility.
+ - Defeat serves to enlighten us.
+ - Who in the same given time can produce more than others has vigor; who can produce more and better, has talents; who can produce what none else can, has genius.
+ - Where consequence ceases, there folly, restlessness and misery begin.
+ - Indiscretion, rashness, falsehood, levity, and malice, produce each other.
+ - The freer you feel yourself in the presence of another, the more free is he.
+ - Truth, wisdom, love, seek reasons; malice only seeks causes.
+ - I am prejudiced in favor of him who, without impudence, can ask boldly. He has faith in humanity, and faith in himself. No one who is not accustomed to giving grandly can ask nobly and with boldness.
+ - The man who loves with his whole heart truth will love still more he who suffers for truth.
+ - Copiousness and simplicity, variety and unity, constitute real greatness of character.
+ - He who can conceal his joys, is greater than he who can hide his griefs.
+ - He scatters enjoyment who can enjoy much.
+ - Weaknesses, so called, are nothing more nor less than vice in disguise!
+ - The less you can enjoy, the poorer, the scantier yourself, – the more you can enjoy, the richer, the more vigorous.
+ - Who has witnessed one free and unconstrained act of yours, has witnessed all.
+ - Who forces himself on others is to himself a load. Impetuous curiosity is empty and inconstant. Prying intrusion may be suspected of whatever is little.
+ - The immoderate cannot laugh moderately.
+ - Wisdom is the repose of the mind.
+ - In the society of ladies, want of sense is not so unpardonable as want of manners.
+ - Not every one who has the gift of speech understands the value of silence.
+ - He has oratory who ravishes his hearers while he forgets himself.
+ - Who gives is positive; who receives is negative; still there remains an immense class of mere passives.
+ - Trust him not with your secrets, who, when left alone in your room, turns over your papers.
+ - Those who speak always and those who never speak are equally unfit for friendship. A food proportion of the talent of listening and speaking is the base of social virtues.
+ - There are many kinds of smiles, each having a distinct character. Some announce goodness and sweetness, others betray sarcasm, bitterness and pride; some soften the countenance by their languishing tenderness, others brighten by their spiritual vivacity.
+ - He who attempts to make others believe in means which he himself despises is a puffer; he who makes use of more means than he knows to be necessary is a quack; and he who ascribes to those means a greater efficacy than his own experience warrants is an impostor.
+ - The wrath that on conviction subsides into mildness, is the wrath of a generous mind.
+ - The quicker, the louder, the applause with which another tries to gain you over to his purpose – the bitterer his censure if he miss his aim.
+ - Beware of biting jests; the more truth they carry with them, the greater wounds they give, the greater smarts they cause, and the greater scars they leave behind them.
+ - Who will sacrifice nothing, and enjoy all, is a fool.
+ - Close thine ear against him that shall open his mouth secretly against another. If thou receivest not his words, they fly back and wound the reporter. If thou dost receive them, they fly forward and wound the receiver.
+ - The countenance is more eloquent than the tongue.
+ - Decided ends are sure signs of a decided character.
+ - Who cuts is easily wounded. The readier you are to offend the sooner you are offended.
+ - True philosophy is that which renders us to ourselves, and all others who surround us, better, and at the same time more content, more patient, more calm and more ready for all decent and pure enjoyment.
+ - Who despises all that is despicable is made to be impressed with all that is grand.
+ - The more uniform a man’s voice, step, manner of conversation, handwriting – the more quiet, uniform, settled, his actions, his character.
+ - Who is respectable when thinking himself alone and free from observation will be so before the eye of all the world.
+ - Who, in the midst of just provocation to anger, instantly finds the fit word which settles all around him in silence is more than wise or just; he is, were he a beggar, of more than royal blood, he is of celestial descent.
+ - He who has no taste for order, will be often wrong in his judgment, and seldom considerate or conscientious in his actions.
+ - If you see one cold and vehement at the same time, set him down for a fanatic.
+ - Let the degree of egotism be the measure of confidence.
+ - Who gives a trifle meanly is meaner than the trifle.
+ - He who goes round about in his requests wants commonly more than he chooses to appear to want.
+ - Trust him with none of thy individualities who is, or pretends to be, two things at once.
+ - To know yourself you have only to set down a true statement of those that ever loved or hated you.
+ - Trust him little who praise all, him less who censures all and him least who is indifferent about all.
+ - The ambitious sacrifices all to what he terms honor, as the miser all to money.
+ - It is possible that a wise and good man may be prevailed on to game; but it is impossible that a professed gamester should be a wise and good man.
+ - His calumny is not only the greatest benefit a rogue can confer on us, but the only service he will perform for nothing.
+ - Dress is an index of your contents.
+ - Every man has his devilish minutes.
+ - He who reforms himself has done more towards reforming the public than a crowd or noisy, impotent patriots.
+ - He whose pride oppresses the humble may perhaps be humbled, but will never be humble.
+ - Faces are as legible as books, only with these circumstances to recommend them to our perusal, that they are read in much less time, and are much less likely to deceive us.
+ - The worst of all knaves are those who can mimic their former honesty.
+ - Avoid him who from mere curiosity asks three questions running about a thing that cannot interest Him.
+ - Do not believe that a book is good, if in reading it thou dost not become more contented with thy existence, if it does not rouse up in thee most generous feelings.
+ - Humility with energy is often mistaken for pride.
+ - What knowledge is there of which man is capable that is not founded on the exterior, – the relation that exists between visible and invisible, the perceptible and the imperceptible?
+ - Who recollects distinctly his past adventures, knows his destiny to come.
+ - Who trades in contradictions will not be contradicted.
+ - Superstition always inspires littleness, religion grandeur of mind; the superstitious raises beings inferior to himself to deities.
+ - The more honesty a man has, the less he affects the air of a saint.
+ - Take here the grand secret; if not of pleasing all, yet of displeasing none, and court mediocrity, avoid originality, and sacrifice to fashion.
+ - Good-humor is always a success.
+ - As man’s love or hatred, so he. Love and hatred exist only personified.
+ - Have I done aught of value to my fellow-men? Then have I done much for myself.
+ - He who, in questions of right, virtue, or duty, sets himself above all ridicule, is truly great, and shall laugh in the end with truer mirth than ever he was laughed at.
+ - Three days of uninterrupted company in a vehicle will make you better acquainted with another, than one hour’s conversation with him every day for three years.
+ - Neatness begets order; but from order to taste there is the same difference as from taste to genius, or from love to friendship.
+ - Thousands are hated, while none are loved without a real cause.
+ - There is no mortal truly wise and restless at once; wisdom is the repose of minds.
+ - Say not you know another entirely till you have divided an inheritance with him.
+ - She whom smiles and tears make equally lovely may command all hearts.
+ - There is a manner of forgiveness so divine that you are ready to embrace the offender for having called it forth.
+ - The horse-laugh indicates brutality of character.
+ - The true friend of truth and good loves them under all forms, but he loves them most under the most simple form.
+ - He who can at all times sacrifice pleasure to duty approaches sublimity.
+ - Conscience is the sentinel of virtue.
+ - Who values gold above all, considers all else as trifling.
+ - No communication or gift can exhaust genius or impoverish charity.
+ - Happy the heart to whom God has given enough strength and courage to suffer for Him, to find happiness in simplicity and the happiness of others.
+ - He submits himself to be seen through a microscope, who suffers himself to be caught in a fit of passion.
+ - The affectation of sanctity is a blotch on the face of piety.
+
+227 quotes

@@ -1,0 +1,54 @@
+ - Punctuality is closely related to faithfulness and dependability. Being tardy can be linked to uninterest, apathy, slothfulness and procrastination...
+ - Satan has no power over us except as we give it to him. God never forces us to do right, and Satan has no power to force us to do wrong.
+ - Successful people follow successful patterns.
+ - One who works twice as hard will have four times as much accomplishment. If he works 3 times as hard he will have 9 times as much accomplishment and 9 times more fun in the process.
+ - If one neglects the laws of learning, a sentence is imposed that he is forever chained to his ignorance.
+ - Perhaps punctuality is a quality made even more valuable because it is found in so few people. Punctuality is not usually thought of in our day as a major virtue.
+ - Difficulty is one of the prices that we pay for our blessings.
+ - Hang on the walls of your mind the memory of your successes. Take counsel of your strength, not your weakness. Think of the good jobs you have done. For whenever excellence is recounted, it is increased.
+ - Paul had an almost missionary companion. His name was Demas. Paul wrote his entire history in nine words. He says: Demas has forsaken me, having loved this present world.
+ - The hottest coals of fire ever heaped upon the head of one who has wronged you are the coals of human kindness.
+ - No temptation is a temptation, unless we are entertaining it.
+ - Fighting is not the best way to win an argument. If carried to its ultimate conclusions, the old idea of “an eye for an eye” eventually ends in making everybody blind.
+ - Most procrastination is largely indecision. Someone has said that “hell is just truth seen too late.”
+ - The best way to improve our lives is to improve our thoughts.
+ - When you want knowledge and understanding as badly as you wanted air, you won’t have to ask anyone to give it to you.
+ - We get good grades or poor grades – according to our attitudes.
+ - A story is told that Whistler once painted a tiny picture of a spray of roses. The artistry involved in the picture was magnificent. Never before, it seemed, had the art of man been able to execute quite so deftly a reproduction of the art of nature.
+ - We can cross the rivers of doubt and discouragement on the bridge of faith even before we get to them.
+ - I neither look up to the rich or down to the poor.
+ - Wealth is not only what you have but it is also what you are.
+ - When the Lord starts out to make an oak tree, he takes a hundred years to do it in, but he can make a pumpkin in 90 days. More or less life is like that. We must choose whether we desire to become and oak tree or a pumpkin.
+ - Some intentionally injure others through mocking, sarcasm with no intent to help. Others are trying to help.
+ - One of the greatest possible sins would be to return to God the life which he has given us with our abilities undiscovered and our talents undeveloped an unutilized. One of Jesus most bitter rebukes was given to him who buried his talents in the ground.
+ - Planning is the mother of almost every other ability. Make your plan and set a timetable for its accomplishment in writing.
+ - Those who wallow around in the sickness of their immorality and degeneracy get very little joy out of life here and certainly not much promise is held out for them hereafter.
+ - Building a successful life is much like building anything else: it should be thoroughly thought about in advance and then carried through to completion.
+ - Everything depends on attitude. We are ambitious or lazy, enthusiastic or dull, loyal or undependable, according to our attitude.
+ - It is a great paradox – almost everyone wants to improve his circumstances but almost no one wants to improve himself.
+ - It is a serious mistake to judge God within the narrow limits of our own understanding and abilities.
+ - We are all human magnets. Our deeds, attitudes and thoughts attract in kind. Gets back with interest exactly what he sends.
+ - One of greatest thieves this world has is procrastination, and he is still at large. Are we aiding and abetting the criminal?
+ - Next to the human spirit the human body is the most marvelous of God’s creations.
+ - People would rather be praised than criticized but the later may help us make more progress.
+ - One of the greatest abilities is to be able to take criticism.
+ - Lack of industry is an attitude.
+ - Man is a thinking being; what and how we think largely determines what we are and what we will become.
+ - Ancient Chinese custom if you were a guest in one of their homes and you admired some particular thing, they would wrap it up and present it to you as a gift. But isn’t that what life does.
+ - There is one thing more serious than merely to not believe, and that is to not care.
+ - That man loves God who puts his own life in harmony with him, and who serves his fellow men as though his life depends upon it, as indeed it does.
+ - If I were asked to give the best idea of which I am capable, it would be that we should get out of the junk business and then start laying up treasures in heaven.
+ - Make sure that your ambitions are really lofty – not just seem to be. Sometimes instead of engaging in those so called “mountaintop employments of great value,” we spend our time in digging a pit and then falling therein, so that our temporary joy may become a permanent and bitter loss.
+ - We insist on near perfection in everyone except ourselves. But if our course is questioned we become offended.
+ - There is a blueprint for every accomplishment-all we need to do is to know how to follow it. Trial and error is ridiculous after the truth has once been established.
+ - How ridiculous it is to waste our lives experimenting with those things for which we already have the answers!
+ - One of the most productive things that we ever do in our lives is to think. To be able to think is to be able to decide, to judge, to have opinions and convictions, and to entertain a point of view. To be able to think is to be able to love, to believe, to work, to originate, and to organize.
+ - I know that what I have done I can do again.
+ - God did not intend that we should be cowards, or delinquents, or fools, or sinners or weaklings. He created us in his own image and commanded us to be men.
+ - We have one of our greatest human experiences when we get an active idea working in our minds.
+ - The greatest opportunity of our lives is to wake ourselves up and get going. There is so much to be done and so little time to do it. We should impress ourselves with the seriousness of slothfulness.
+ - Life begins when we begin and each day we ought to be born again.
+ - There is a fatality about unkept good resolutions. They are simply checks that men draw on a bank where they have no account.
+ - Someone has said that after age forty, each of us pretty much deserves the face he is wearing. He designed it form the inside.
+
+52 quotes

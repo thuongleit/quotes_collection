@@ -1,0 +1,25 @@
+ - Oh father high in heaven – smile down upon your sonWho’s busy with his money games – his women and his gun.
+ - Another tea-time, another day older.
+ - Cafe society is as old as the hills. Starbucks and its imitators are the coffee face of the new man in a hurry.
+ - I’m very much an observer and a conduit of thoughts and ideas.
+ - Bring me a wheel of oaken wood A rein of polished leather A Heavy Horse and a tumbling sky Brewing heavy weather.
+ - A lot of pop music is about stealing pocket money from children.
+ - Walk the lines of nature’s palm crossed with silver and with gold.
+ - I am not afraid to appear in Israel, although when I come to a place like Israel, I know it’s not a picnic by the Thames. I am aware of the tension and it saddens me.
+ - All the time I was playing the flute, the lines, the solos, the riffs, the construction, were based on my guitar skills. I did not play the flute to exploit its natural faculties, but I used it as a surrogate guitar.
+ - Question all as to their ways and learn the secrets that they hold.
+ - I kind of like the idea of living a rather ordinary life as a shopkeeper, and I examine that possibility as one of the outcomes of the young Gerald Bostock growing older.
+ - I don’t think successful musicians were really put on this planet in order to have a great time, pat themselves on the back and say, ‘Oh, what a clever boy I am!’ I think that, like most artists, we were put on the planet to suffer just a little. And we do.
+ - Why do the faithful have such a will, to believe in something? And call in the name they choose, having chosen nothing...
+ - I’m all in favor of banks that play their part in community endeavors, private individuals looking for loans, people who want to start up a little business, and that’s what banks are for.
+ - Not to be mean about it, but some great rock and rollers, like Bo Diddley and Chuck Berry, are pretty one-dimensional.
+ - There’s always going to be a little bit of autobiographical content to everything. It’s how you lend some authority to what you write – you give it that weight by drawing on your direct experiences and indirect experiences from people that you know well, or a little.
+ - There seems to be an inclination among rock musicians to be very carefree with money, but I negotiate the best flight and hotel deals on our tours to maximise the band’s income – I don’t want too see too much taken off the top line.
+ - Just once I would like to persuade the audience not to wear any article of blue denim. If only they could see themselves in a pair of brown corduroys like mine instead of this awful, boring blue denim.
+ - But the tune ends too soon for us all.
+ - The Rock and Roll Hall of Fame traditionally has had a management style that is very supportive of American talent, first and foremost, over everything else. And I think that’s right and proper.
+ - It might work with one orchestra, and the next orchestra – the oboe player might not get it. It’s different every time, but some of the orchestras do end up enjoying it and having a great time.
+ - I feel the audience has a right to know if some of the money they’re spending is going to a certain cause, and reassuring them the money is going to where it’s supposed to be going.
+ - Come with me to the Winged Isle- Northern father’s Western child Where the Dance of Ages is playing still through far marches of Acres Wild.
+
+23 quotes

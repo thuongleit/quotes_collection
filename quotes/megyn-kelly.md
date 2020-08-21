@@ -1,0 +1,41 @@
+ - The truth is I don’t watch a lot of news, except for when I’m here at the office watching Fox News. I get my news online primarily when I’m not watching the channel.
+ - I was brought up in an environment to believe that my opinion was important, that I had something to say, and that it was no less powerful because I was young, a girl, at the time really unattractive, definitely not the smartest kid in the class.
+ - Television is a service, but it’s also a business.
+ - I respect women like Gloria Steinem who paved the way. But when you say ‘feminist’ now, there is a message that if you are sexy and you acknowledge that part of your personality publicly, then it’s somehow an affront to women. And I reject that.
+ - There are lots of people who are red-carpet types, but that’s not me.
+ - Once I found professional happiness, it gave me time to think about other areas in my life in which I wasn’t happy. The next obvious candidate for introspection was my marriage.
+ - Im a soulless lawyer. Give me any opinion and I can argue it.
+ - So many people think that social studies and weird lessons in social studies, teaching kids in America are bad, is it the result of Common Core? And it’s not. It’s not. Common Core does not deal with social studies. It’s basically writing and math.
+ - I have the humor of a 9-year-old boy, and sometimes I’ve had laughing fits on-air.
+ - I’m a struggling guitar player.
+ - Obviously, I’m in a visual business, and people will talk to me about my appearance.
+ - When I was in 10th grade, I took one of those tests that’s supposed to tell you what you should be when you grow up. The test told me that I should be a journalist.
+ - Jesus was a white man, too. Its like we have, hes a historical figure thats a verifiable fact, as is Santa, I just want kids to know that. How do you revise it in the middle of the legacy in the story and change Santa from white to black?
+ - I have respect for my fellow journalists at the other networks, and I wish them all well. This is a tough business, so good for them.
+ - Typically, you get a year in prison for making a threat to assassinate the president.
+ - Some things are worth the fat and calories, although I have to watch it like a hawk.
+ - I think people have an idea of what Fox News is. If people don’t watch Fox News, then it’s just a caricature, it’s not real, they have it in their heads that it’s something very different than what it actually is.
+ - A lot of liberals don’t believe in American exceptionalism, but it doesn’t mean they don’t love America.
+ - Men should have more time with their newborn babies.
+ - I’m the worst tweeter ever. I don’t know what I’m doing. I really don’t.
+ - Fox News covers stories that some other news outlets won’t cover. We ask some questions that other news outlets wouldn’t ask. And sometimes that’s perceived as bias by people who’ve grown up in a world where there are only liberal outlets.
+ - I’m steeped in the news because I enjoy the news – I like reading papers, I like reading the blogs, I love talking to newsmakers and pundits, for that matter, about their opinions. I’m an information gatherer by nature, so that’s what attracted me about this industry.
+ - I don’t even watch Fox News usually in the prime time hours because I’m home with my kids and that’s more important to me.
+ - The way we do it on the Fox News Channel is the straight news anchors like us give a hard time to both sides.
+ - I – listen, racism – being a racist is the worst thing you can say about somebody. I mean, it is such a charged accusation. And I really think people should be very careful before they level that.
+ - I remember thinking that I’d never show my arms on TV, but over time you loosen up.
+ - I mean, Jesus was a white man too. He was a historical figure – that’s a verifiable fact.
+ - You know, I was not an attractive child – I never had a cute face.
+ - If I were Sarah Palin, would I want to sit in an interview with someone who was secretly out to get me? Probably not.
+ - Television can be a very fickle place.
+ - Before I got into TV, I wasn’t fashionable at all.
+ - I have to tell you I enjoy Jon Stewart. That’s the truth. I actually think he’s very funny. I’ve paid to see him do his stand-up routine.
+ - If you’re wearing a pair of shoes that’s a little flashy, then it’s important not to be flashy up top and vice versa.
+ - When I went to law school, which I put myself through for $100,000 dollars of debt, I didn’t expect anybody to pay for my health insurance, which I had none of. No health insurance.
+ - If you don’t believe in in-state tuition, you don’t have a heart.
+ - You defended your Medicaid expansion by invoking God.
+ - Reagan Republicans do not criticize the other Republicans.
+ - What I don’t like is talking points.
+ - In another life – and as I like to say, another body – I used to teach aerobics.
+
+39 quotes

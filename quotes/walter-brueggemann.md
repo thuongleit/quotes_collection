@@ -1,0 +1,30 @@
+ - The task of prophetic ministry is to nurture, nourish, and evoke a consciousness and perception alternative to the consciousness and perception of the dominant culture around us.
+ - Hope does not need to silence the rumblings of crisis to be hope.
+ - Sabbath is not simply the pause that refreshes. It is the pause that transforms.
+ - The gospel is fiction when judged by the empire, but the empire is fiction when judged by the gospel.
+ - Imagination is a danger thus every totalitarian regime is frightened of the artist. It is the vocation of the prophet to keep alive the ministry of imagination to keep on conjouring and proposing alternative futures to the single one the king wants to urge as the only thinkable one.
+ - We pray because our life comes from God and we yield it back in prayer. Prayer is a great antidote to the illusion that we are self-made.
+ - The Gospel is a very dangerous idea. We have to see how much of that dangerous idea we can perform in our own lives. There is nothing innocuous or safe about the Gospel. Jesus did not get crucified because he was a nice man.
+ - The church meets to imagine what our lives can be like if the gospel were true.
+ - Every imperial agent wants to reduce what is possible to what is available.
+ - Sabbath is the celebration of life beyond and outside productivity.
+ - Sabbath, in the first instance, is not about worship. It is about work stoppage. It is about withdrawal from the anxiety system of Pharaoh, the refusal to let one’s life be defined by production and consumption and the endless pursuit of private well-being.
+ - We do not live by what is possessed but by what is promised.
+ - On the other hand, hope is subversive, for it limits the grandiose pretension of the present, daring to announce that the present to which we have all made commitments is now called into question.
+ - Compassion constitutes a radical form of criticism, for it announces that the hurt is to be taken seriously, that the hurt is not to be accepted as normal and natural but is an abnormal and unacceptable condition for humanness.
+ - God will recruit as necessary from the human cast in order to reorder human history.
+ - The power of the future lies not in the hands of those who believe in scarcity but of those who trust God’s abundance.
+ - When serious people of good faith disagree, they’ve got to go back into the narratives and come at it again. One of the problems in the church is that people are not willing to do that. People have arrived at a place where they think they have got the answer.
+ - The world for which you have been so carefully prepared is being taken away from you, by the grace of God.
+ - The deep places in our lives – places of resistance and embrace – are reached only by stories, by images, metaphors and phrases that line out the world differently, apart from our fear and hurt.
+ - Those who sign on and depart the system of anxious scarcity become the historymakers in the neighborhood.
+ - Personal voice- prophesy- disrupts the state of communal numbness in which most of us exist.
+ - Hope requires a very careful symbolization. It must not be expressed too fully in the present tense because hope one can touch and handle is not likely to retain its promissory call to a new future. Hope expressed only in the present tense will no doubt be coopted by the managers of this age.
+ - If the church is to be faithful it must be formed andordered from the inside of its experience and confession and not by borrowing from sources extenal to its own life.
+ - The Eucharist has been preempted and redefined in dualistic thinking that leaves the status quo of the world untouched, so congregations can take the meal without raising questions of violence; the outcome is a “colonized imagination” that is drained of dangerous hope.
+ - There are buoyant powers of healing at work in the world that do not depend on us, that we need not finance or keep functioning and that are not at our disposal.
+ - And when we take ourselves too seriously, we are grim about the brothers and sisters, especially the dissenting ones, and there will be no health in us and no healing humor.
+ - Buechner uses words with such transformative power that any comment on them is like the moon palely reflecting the sun.
+ - Give us courage for your easy burden, so to live untaxed lives.
+
+28 quotes

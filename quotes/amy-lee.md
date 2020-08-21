@@ -1,0 +1,75 @@
+ - Writing music is my therapy. It’s very purifying!
+ - Don’t be afraid of the shadows, it only means there’s a light nearby.
+ - Nobody’s perfect. I’m perfectly flawed.
+ - Music is therapy for me. It’s my outlet for every negative thing I’ve ever been through. It lets me turn something bad into something beautiful.
+ - So many nights I cried myself to sleep. Now that you love me, I love myself. I never thought I would say this. I never thought there’d be you.
+ - You can’t control all the crazy stuff that happens to you. All you can control is the way you handle it.
+ - I love my cats more than I love most people. Probably more than is healthy.
+ - If people are making fun of you then you’re probably doing something right.
+ - I dream crazy vivid dreams. Like, entire movies. And sometimes I write songs about them.
+ - You are who you are, there’s nobody like you, and to try and be like someone else is just a lie.
+ - That’s where I spent of lot of my high-school years – in the closet. It wasn’t too cramped, but you do get really hot.
+ - You don’t have to be half-naked to be successful. Just be talented.
+ - Evanescence fans aren’t the popular kids in school. They aren’t the cheerleaders. It’s the art kids and the nerds and the kids who grow up to be the most interesting creative people.
+ - I refuse to accept Pluto’s resignation as a planet.
+ - It’s true we’re all a little insane.
+ - People told me I can’t dress like a fairy. I say, I’m in a rock band and I cand do whatever the hell I want!
+ - Something that’s fun for me is a challenge. When you have a challenge and you take on that challenge and succeed, that’s the best feeling.
+ - At the end of any really long tour you need to get your head in order.
+ - Life can be tough sometimes. But I think it just starts with admitting, ‘Okay, the world’s not perfect, how do we live our lives within that and not be miserable?’
+ - My darlings, if I can’t write dark, epic music, I can’t live!
+ - There’s nothing sexy about skin and bone. You gotta have some junk in the trunk.
+ - Like now what Urban Outfitters has become is very much how I always dressed in high school by going to garage sales and getting stuff for 50 cents. Cost a little more now, to look like crap.
+ - I really do listen to all types of music, not only rock, but everything from good pop music – which is usually older pop music – to RB and indie rock. I love indie rock more than a lot of the commercial stuff that you’d expect.
+ - When you go through tragedy, you can either let that destroy you and you become bitter and never let it go, or you can let it make you stronger and let it make you grow. And that’s what I did. My lyrics are coming from a place that I want people to relate to and feel that they’re not alone.
+ - There’s one thing I believe, is that I don’t know anything and anything could happen.
+ - Inspiration comes in the middle of the night when you should be doing homework.
+ - Christina Aguilera’s ‘Stripped’ had a lot of good songs. It’s my range, so I use it to warm up a lot.
+ - Too bad you can’t quote the look on my face.
+ - I’ve always been a very passionate, sometimes overly emotional person. Sometimes things affect me more than they should.
+ - I’m not the fastest writer. I can’t just crank out ideas that are good enough.
+ - I’ve gotten to where my hair is like my onstage prop; I need to hide behind it and throw it around – it’s my slo-mo effect.
+ - My best friend recently told me that I was the most passionate person she’s ever known. I don’t know if that was a compliment or an insult, honestly.
+ - I love tiny, plastic realistic food magnets. I don’t know why. They’re hilarious.
+ - The only comfort within chaos is admitting you have no control.
+ - I’m the goofball. I’m the person cracking people up.
+ - There are people hell-bent on the idea that we’re a Christian band in disguise, and that we have some secret message. We have no spiritual affiliation with this music. It’s simply about life experience.
+ - We’ve all fallen, but at the same time we’re not broken. There is the hint that we are going to get up again.
+ - I love the creative process. That’s always been the closest thing to my heart, creating something.
+ - A fan once asked if he could have a piece of my hair for voodoo. I said no, so he hugged me and plucked out a couple of hairs and ran off.
+ - Everyone knows a lot about me without actually knowing me at all.
+ - I try to be feminist in, like, I love myself and I don’t need someone else’s approval.
+ - I am Evanescence. I am the only original member. I have basically hired the band. Evanescence has become me. It is mine and it’s exactly how I want it to be.
+ - If all we ever sang about was how happy we are, we would be lying to ourselves. People try to escape their problems by getting drunk, partying and dancing them away. What really heals me is to sit down and think, face the facts, then you can get over it and be happy.
+ - Everyone on the bus can laugh at me, and I’ll be like, ‘Screw you guys: I look good!’
+ - When you’re miserable, you don’t want anyone around you to be happy.
+ - I never really did abandon my true self. It’s not like I invented this imaginary person and started to be her.
+ - It’s okay to laugh at me, I only look scary.
+ - The Nightmare Before Christmas is my number one biggest influence artistically in every way.
+ - The first real concert, other than going with my dad to see Three Dog Night, was Smashing Pumpkins and Garbage. I was fourteen or fifteen. I liked Shirley Manson because she reminded me of Annie Lennox. They both have these deep, sexy, powerful alto voices.
+ - I love sushi. But after too much of it, it just starts to taste like a dead animal that hasn’t been cooked.
+ - I love contrast in music. Being inspired by classical, actually – in high school especially – classical and metal both, I remember having this cool realization that they are really similar. It’s just different instrumentation.
+ - I like Israel. The fans are incredible. It was the best.
+ - I design a lot of things that I wear onstage, but I’m always looking for unique stuff. I like creative things, so anything I can find at a secondhand costume shop to a Helmut Lang store, it doesn’t matter – just unique stuff.
+ - It might not look it but rocking in a corset is harder than you think.
+ - When I was in high school, I listened to a lot of death metal bands.
+ - I’m singing from my heart now more than ever. I’ve gotten a lot braver with my writing.
+ - I was always a drama queen. I remember playing in the kitchen, trying to get my mom to think I was dead and call the police. When she didn’t, I would cry. I was always theatrical. I don’t think any of my relatives are surprised.
+ - I’ve realized that Evanescence is who I am.
+ - Whether it’s a relationship or what you’re wearing, or how much you weigh and what you said when you didn’t mean it, like – it’s hard to be totally under the microscope.
+ - When Evanescence took time off, I bought a big concert harp and started taking lessons like I was in high school again, which was really, really fun. I felt like I was learning again.
+ - Success gave me confidence as an artist. And now I’m able to do what I want without anybody thinking it’s dumb.
+ - I wanted to be a veterinarian until I saw a video of a vet performing surgery on a dog. Then I decided I wanted to be a pianist.
+ - I want to work with kids. I would love to be a teacher.
+ - We’ve never been a religious band, but the media wants us to be.
+ - I’m not ashamed of my spiritual beliefs, but I in no way incorporate them into this band.
+ - I think it’s important to realize that we’re all just human. I mean, nobody is supernatural.
+ - I don’t want to ever be a quote-unquote rock star. I want to just be me.
+ - My biggest dream from the beginning – besides Evanescence – is scoring film and writing music for film.
+ - The only place I’m recognized is at the mall, because that’s where the teens are.
+ - I write by myself initially. That’s the way I’ve always written, just working on pure thought by myself. Then I bring it to the table with whoever I’m collaborating with.
+ - I love folk; that’s a big part of my background.
+ - The way that I’ve always gone about making music, the rule of thumb, has just been to make what I love.
+ - I feel like for me the lyric writing really comes from just what’s going on in my heart and that’s what consumes me; think a lot of our heart is relationships. Not just with boyfriend or girlfriend but all your relationships in your life with other people and our interactions with other humans.
+
+73 quotes

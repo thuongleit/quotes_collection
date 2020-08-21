@@ -1,0 +1,447 @@
+ - If you want to make the world a better place, take a look at yourself, and make a change.
+ - As a wise man once said, ‘If not us, then who; if not now, then when?’
+ - I’m starting with the man in the mirror.
+ - Be humble, believe in yourself, and have the love of the world in your heart.
+ - In a world filled with hate, we must still dare to hope. In a world filled with anger, we must still dare to comfort. In a world filled with despair, we must still dare to dream. And in a world filled with distrust, we must still dare to believe.
+ - Beat me, hate me, you can never break me.
+ - You ain’t seen nothing yet, and the best is yet to come.
+ - Heal the world! Stop the hate. Lend a helping hand to those in need.
+ - I’m Starting With The Man In The Mirror I’m Asking Him To Change His Ways And No Message Could Have Been Any Clearer If You Wanna Make The World A Better Place Take A Look At Yourself, And Then Make A Change.
+ - You never know how long you have with someone, so don’t forget to say I love you while you can.
+ - Everyday create your history, every path you take you’re leaving your legacy.
+ - Music is my contribution to life. I have my heart in it.
+ - I’m a gentleman, call me old fashioned if you want.
+ - Whatever you believe, you become.
+ - The magic, the wonder, the mystery and the innocence of a child’s heart are the seeds of creativity that will heal the world.
+ - No matter what you do, give it everything you have. Be the best, not the second best.
+ - Be the best at what you do. Get to know more about your field than anybody alive.
+ - Lies run sprints, but the truth runs marathons.
+ - You can’t hurt me, I found peace within myself.
+ - Before you judge me, ask me about my childhood. And I will ask you about yours.
+ - We are the world, we are the children...
+ - Its all for love... L.O.V.E.
+ - Always believe in yourself. No matter who’s around you being negative or thrusting negative energy at you, totally block it off. Because whatever you believe, you become.
+ - Real charity is giving from the heart without taking credit.
+ - Start with the man in the mirror. Start with yourself. Dont be looking at all the other things. Start with you.
+ - I know who I am inside and outside, and I know what I want to do. And I will always go with my dreams.
+ - It doesn’t matter what blood or race or creed or color. Love is love and it breaks all boundaries and you just see it right away.
+ - Often people just don’t see what I see. They have too much doubt. You can’t do your best when you’re doubting yourself. If you don’t believe in yourself, who will?
+ - Together, we can make a change in the world. Together we can help to stop racism. Together we can help to stop prejudice. We can help the world live without fear. It is our only hope. And without hope we are lost.
+ - Thinking is the biggest mistake a dancer could make. You have to feel.
+ - Music is a mantra that soothes the soul. It’s therapeutic. It’s something our body has to have. It’s very important to understand the power of music.
+ - If you enter this world knowing you are loved and you leave this world knowing the same, then everything that happens in between can be dealt with.
+ - Don’t be afraid to be different.
+ - I love animals because all they really want from you is love. Too bad that’s even too much to ask for from some people.
+ - You know I’m bad, I’m bad. You know it.
+ - I’m a strong person. I’m a warrior and I know what is inside of me.
+ - I’m just a person who wants to be honest and do good, make people happy and give them the greatest sense of escapism through the talent God has given me. That’s where my heart is, that’s all I want to do. Just let me share and give, put a smile on people’s faces and make their hearts feel happy.
+ - To give someone a piece of your heart, is worth more than all the wealth in the world.
+ - I love fairytales. I like fantasy a lot, science fiction, I like magic. I like to create magic. I love magic.
+ - Always appreciate the gift of life! Be happy and have fun!
+ - The world should be full of love. Love. Love is the most important thing in the world.
+ - I don’t care if the whole world is against you or teasing you or saying you are not gonna make it. Believe in yourself, no matter what.
+ - I am an Instrument of Nature. Love is my message.
+ - Feeling free, let us fly, into the boundless, beyond the sky, for we were born to never die...
+ - People think they know me, but they don’t. Not really. Actually, I am one of the loneliest people on this earth. I cry sometimes, because it hurts. It does. To be honest, I guess you could say that it hurts to be me.
+ - I love composing and writing music and dancing and performing and conceptualizing creatively for visual mediums. I love to create.
+ - The Earth we share is not just a rock tossed through space, but a living, nurturing being. She cares for us, she deserves our care in return.
+ - I believe that through music we can help heal the world.
+ - We need to put love back into the world remind the world that love is important. We’re all one.
+ - I’m always Peter Pan in my heart.
+ - Please go for your dreams. Whatever your ideals, you can become whatever you want to become.
+ - Dancers come and go in the twinkling of an eye, but the dance lives on.
+ - In my business you can’t trust anyone because you don’t know who is your friend. Becoming successful means you become a prisoner.
+ - Never rush an emotion; everything in life has a rhythm, it is the pauses and silences that speak the truth.
+ - Escapism- that’s what I like. I’m not so crazy about the reality of everything.
+ - A lot of people misunderstand me. That’s because they don’t know me at all.
+ - It all begins with forgiveness, because to heal the world, we first have to heal ourselves. And to heal the kids, we first have to heal the child within, each and every one of us.
+ - People are always saying: ‘They’ll take care of it. The government will. Don’t worry, they will’. They who? It starts with us. It’s us. Or else it’ll never be done.
+ - We have to heal our wounded world. The chaos, despair, and senseless destruction we see today are a result of the alienation that people feel from each other and their environment.
+ - I love to read. I wish I could advise more people to read. There’s a whole new world in books. If you can’t afford to travel, you travel mentally through reading. You can see anything and go any place you want to in reading.
+ - Magic is easy if you put your heart into it.
+ - I’ve been through hell and back. I have, to be honest, and still I’m able to do what I do and nothing can stop me. No one can stop me, no matter what. I stop when I’m ready to stop. You know, and I’m just saying, you know, I will continue to move forward no matter what.
+ - Unconditional love is all you have. You can’t overdose on love, you never can. It’s a beautiful thing.
+ - I am Peter Pan. He represents youth, childhood, never growing up, magic, flying.
+ - Before you Judge me, Try hard to Love me.
+ - I’m a lover not a fighter.
+ - When children listen to music, they don’t just listen. They melt into the melody and flow with the rhythm. Something inside starts to unfold its wings – soon the child and the music are one.
+ - I’m never pleased with anything, I’m a perfectionist, it’s part of who I am.
+ - But I will never stop helping and loving people the way Jesus said to.
+ - When you want to be close to me, listen to the music. The love is stored there and will not die.
+ - Oh, no, I think I’d die on my own. I’d be so lonely. Even at home, I’m lonely. I sit in my room and sometimes cry. It is so hard to make friends, and there are some things you can’t talk to your parents or family about. I sometimes walk around the neighborhood at night, just hoping to find someone to talk to. But I just end up coming home.
+ - There was Michael Jackson, the King of Pop, an aloof superstar who had everything and needed no one. And Michael Jackson, the shy kid under the mask, who lacked even a single real friend.
+ - My goal in life is to give to the world what I was lucky to receive: the ecstasy of divine union through my music and my dance.
+ - Nothing’s real ,but all is possible if God is on my side.
+ - I love great music – it has no color, it has no boundaries.
+ - Music is the soundtrack to life. It plays the melody of our being.
+ - I put real pressure on myself and I demand the best out of myself.
+ - But if you don’t have that memory of being loved, you are condemned to search the world for something to fill you up. But no matter how much money you make or how famous you become, you will still feel empty. What you are really searching for is unconditional love, unqualified acceptance. And that was the one thing that was denied to you at birth.
+ - Feel good about yourself. You have been blessed and you might not have even realized it.
+ - Say what you want, but don’t play games with my affection. Take what you need, but don’t leave me with no direction.
+ - And that’s what innocence is. It’s simple and trusting like a child, not judgmental and committed to one narrow point of view. If you are locked into a pattern of thinking and responding, your creativity gets blocked. You miss the freshness and magic of the moment. Learn to be innocent again, and that freshness never fades.
+ - If you came to see the truth, the purity, it’s here inside a lonely heart.
+ - Holding on to love is not wrong, but you need to learn to hold it lightly, caressingly. Let it fly when it wants. When it’s allowed to be free, love is what makes life alive, joyful, and new. As long as love is in my heart, it’s everywhere.
+ - I believe in God... .I gain strength from God. I believe in Jehovah, God, very much... .I believe in God and love God.
+ - All of us are products of our childhood.
+ - I want to tell the children of the world, you are all our children, each one of you is my child and I love you all.
+ - I believe in love. It’s beautiful when it’s right. My love life is like my music.
+ - I always want to do music that inspires or influences another generation. You want what you create to live, be it sculpture or painting or music. Like Michelangelo, he said, “I know the creator will go, but his work survives. That is why to escape death, I attempt to bind my soul to my work.
+ - In their innocence, very young children know themselves to be light and love. If we will allow them, they can teach us to see ourselves the same way.
+ - I urge all young people to go for their dreams. If they do, many of the world’s problems will be solved.
+ - We only live once, since we are given the gift of life it should be our persistent endeavor to immortalize ourselves no matter what field of endeavor we choose.
+ - Success definitely brings on loneliness. People think you’re lucky, that you have everything. They think you can go anywhere and do anything, but that’s not the point. One hungers for the basic stuff.
+ - All over the walls of my room are pictures of Peter Pan. I’ve read everything that Barrie wrote. I totally identify with Peter Pan, the lost boy from Never Neverland.
+ - Entertainment is about taking people away from the regular order of things when there is some chaos and pain and stress.
+ - Honor your parents by not judging them. Give them the benefit of doubt.
+ - Love, joy and peace for the world, that’s what I want... peace for the world and love.
+ - I think about our planet. I mean how to make it a better planet. The global warming issue is a concern to me very much. Just make the world a better, happier place. It’s our home. I’d like to see us do a better job of taking care of it.
+ - I love Switzerland. It’s so clean and cool. We don’t get much snow where I live so I get real excited in Lausanne and Geneva. I’d like to buy a house there when I’m older and settle down. It’s all so cute that it looks like a movie set.
+ - I’m happy to be alive, I’m happy to be who I am.
+ - The meaning of life is contained in every single expression of life. It is present in the infinity of forms and phenomena that exist in all of creation.
+ - I’m really very self-confident when it comes to my work. When I take on a project, I believe in it 100%. I really put my soul into it. I’d die for it. That’s how I am.
+ - I could compose and write music and get to share it with the masses and the people around the world and to have them to receive it so beautifully – I love that.
+ - I just can’t conceive of how a person could hate another because of skin color. I love every race on the planet earth.
+ - I always like to plan ahead of time and follow up.
+ - Deep down inside we’re all the same. We all have the same emotions.
+ - You can always dream, and your dreams can come true. But you have to make them come true.
+ - I have been a vulnerable target for those who want money.
+ - The greatest education in the world is watching the masters at work.
+ - But they told me a man should be faithful, and walk when not able, and fight till the end but I’m only Human.
+ - I think justice is important because there are many injustices in the world and I hate injustice.
+ - Peace. That’s what I want all around the world, everywhere I go I always do the peace sign with my fingers.
+ - The teacher always used me as an example to the class of good English and good storytelling because we all had to write the same stories. But she used to make me go out front – which I hated – and read my story to the class and I would get huge applause. Not because of who I was but because they truly enjoyed the stories I wrote.
+ - Remember my strong advice; just remember to always think twice.
+ - I believe we are powerful but we don’t use our minds to full capacity. Your mind is powerful enough to help you attain whatever you want.
+ - No one should judge what I’ve done with my life, not unless they’ve been in my shoes every horrible day and every sleepless night.
+ - Let us dream of tomorrow where we can truly love from the soul, and know love as the ultimate truth at the heart of all creation.
+ - A star can never die. It just turns into a smile and melts back into the cosmic music, the dance of life.
+ - Ain’t no mountain that I can’t climb, baby.
+ - To live is to be musical, starting with the blood dancing in your veins. Everything living has a rhythm. Do you feel your music?
+ - Just doing as well as you did last time is not good enough.
+ - I try to be kind and generous, and to give to people, and to do what I think God wants me to do.
+ - Being on stage is magic. There’s nothing like it. You feel the energy of everybody who’s out there. You feel it all over your body. When the lights hit you, it’s all over, I swear it is.
+ - I do believe deeply in perfection. I’m never satisfied.
+ - What I enjoy most about performing is making people happy. Just to make a person smile means more to me than anything.
+ - In times like these, we need each other. We must bond together in spirit and in service.
+ - I’m going to search for my star until I find it. It’s hidden in the drawer of innocence, wrapped in a scarf of wonder.
+ - I’d say to myself: “This is my dream, this is my wish.” Because a wish is more than a wish. It is a goal. It is something your conscious and subconscious can help make reality.
+ - I find in animals the same thing I find so wonderful in children. That purity, that honesty, where they don’t judge you, they just want to be your friend. I think that is so sweet.
+ - I happen to be colorblind. Racism is not my motto. One day, I strongly expect every color to love as one family.
+ - I know that the creator will go, but his work survives. That is why to escape death, I attempt to bind my soul to my work.
+ - Follow the Golden Rule. Be kind to your neighbors, love them as much as you would love yourself, do unto others...
+ - I just want to bring the world together. Togetherness is what I want for this planet.
+ - I don’t like pop music.
+ - It’s been my dream since I was a child to somehow unite people of the world through love and music.
+ - I love to read. I wish I could advise more people to read. There’s a whole other world in books.
+ - Culture changes, fashions change, customs change. Great music is immortal.
+ - It’s easy to say I love you with your mouth. But I like when people say I love you with their heart.
+ - Who will dance on the floor in the round?
+ - I don’t think I’m better than other people, I think I’m different from other people, because I do different things.
+ - Look deep within yourself, and you’ll find something amazing.
+ - I’ll never let you part, for you’re always in my heart.
+ - There’s a Mother’s Day and there’s a Father’s Day, but there’s no Children’s Day. It would mean a lot. World peace.
+ - Be careful what you do, because the lie becomes the truth.
+ - I’m never satisfied with what I do. I always think I can do it a lot better.
+ - Wherever you go – in every country, or in every continent, people yearn and hunger for only one thing, to love and be loved. Love transcends international boundaries and heals the wounds of hatred, racial, prejudice, bigotry and ignorance. It is the ultimate truth at the heart of all creation.
+ - In a world filled with hate, we must still dare to hope.
+ - Music is colorless. It’s for everybody, it’s for the world, it’s for everybody to enjoy.
+ - Love is the human family’s most precious legacy. Its richest bequest. Its golden inheritance.
+ - I love my fans to pieces. They’re with me. They get it, you know? They get what I’m saying.
+ - One day my dad said, “If you guys ever stop singing, I’ll drop you like a hot potato.” That’s what he said. It hurt me. You don’t say that to children and I never forgot it.
+ - Tell the angels no, I don’t wanna leave my baby alone I don’t want nobody else to hold you That’s a chance I’ll take Baby I’ll stay, Heaven can wait No, if the angels took me from this earth I would tell them bring me back to her It’s a chance I’ll take, maybe I’ll stay Heaven can wait.
+ - If politicians can’t do it, I want to do it. We have to do it. Artists, put it in paintings. Poets, put it in poems, novels. That’s what we have to do. And I think it’s so important to save the world.
+ - Somebody once said it’s the SOUL that matters.
+ - I believe in wishes and in a person’s ability to make a wish come true, I really do. And a wish is more than a wish... it’s a goal that your conscience and subconscience can help make reality.
+ - I am here in spirit with you and you are in my prayers. Remember God is with you, and have faith in the fact that this too shall pass.
+ - I love the whole world of dance, because dancing is really the emotions through bodily movement. And however you feel, you just bring out the inner feeling through your mood... people don’t think about the importance of it.
+ - The planets are lining up, bringing brighter days.
+ - Out of the bliss comes magic, wonderment and creativity.
+ - I wake up from dreams and go, Wow, put this down on paper. The whole thing is strange. You hear the words, everything is right there in front of your face.
+ - I said if you’re thinkin’ of being my brother, it don’t matter if you’re black or white.
+ - The happiness and the joy that I see in the eyes of the children. They saved my life so I want to, give it back. I’m not joking.
+ - You know, don’t judge a person, do not pass judgement, unless you have talked to them one on one.
+ - I have the greatest fans in the world. I love them... All of them, I really do.
+ - I like people who can make you laugh without using vulgarity, or bad words.
+ - Some of us like to take a walk on the wild side.
+ - When all life is seen as divine, everyone grows wings.
+ - Prejudice is ignorance.
+ - Don’t blame it on the sunshine. Don’t blame it on the moonlight. Blame it on the boogie.
+ - I’ve learned that love is not possessive and I’ve learned that love won’t wait. Now I’ve learned that love needs expression, but I learned too late.
+ - I’ve never asked a girl out in my life, they have to ask me.
+ - The main thing that I hate the most is ignorance, like the prejudice problems of America. I know it is worse in some other countries. But I wish I could borrow, like from Venezuela or Trinidad, the real love of color-blind people and bring it to America.
+ - I love to create. I love to make magic. I love to create the unexpected.
+ - When they say the sky’s the limit to me that’s really true.
+ - Jew me, sue me, everybody do me.
+ - So I’m leaving Sony, a free agent, owning half of Sony. I own half of Sony’s Publishing. I’m leaving them, and they’re very angry at me, because I just did good business, you know.
+ - I totally enjoy what I’m doing and bringing joy into people’s lives. To me, and if I can bring one second of joy into a child or a grown-up’s life, then I have achieved my lifetime ambition.
+ - I think secretly and privately there is a destiny for me and just for me to stay on that track and follow it. I really believe and feel I am here for a reason and that’s my job, you know, to perform for the people and if they accept it that I am rewarded.
+ - Planet Earth, gentle and blue With all my heart, I love you. Dancing the Dream by Michael Jackson.
+ - Insult me all you want. Judge me as much as you want. Say what you think, everything you want. But one thing. Dont touch my fans.
+ - I love my family very much. I wish I could see them a little more often than I do. But we understand because we’re a show business family and we all work.
+ - We can fly, you know. We just don’t know how to think the right thoughts and levitate ourselves off the ground.
+ - Mama always told me, be careful what you do, don’t go around breaking young girls hearts.
+ - Look beyond yourself...
+ - I love you all very; very much and I shall never, ever forget you, I promise.
+ - Wherever you go, in every country, on every continent, people yearn and hunger for one thing: to love and be loved.
+ - Children are loving, they don’t gossip, they don’t complain, they’re just openhearted. They’re ready for you. They don’t judge. They don’t see things by way of color. They’re very child-like. That’s the problem with adults: they lose that child-like quality.
+ - I am going to say something I have never said before and this is the truth. I have no reason to lie to you and God knows I am telling the truth. I think all my success and fame and I have wanted it, I have wanted it because I wanted to be loved. That’s all. That’s the real truth.
+ - I’m interested in making a path instead of following a trail, and that’s what I want to do in life – in everything I do.
+ - My life is very complicated. I have a lot of things going on. I am juggling a lot of responsibilities. There is so much going on that it is astounding, it really is.
+ - A song is a mantra, something you repeat over and over. We need peace, we need giving, we need love, we need unity. I want the whole world to sing this song.
+ - I have always felt compassion for the planet. Sometime I just start to get emotional. I cry because I can almost feel the pain in the air. I put it in words and in song and in dance I think that is what artistry is.
+ - I want to continue to grow. To me, the biggest sin of all sins, is to be given a gift, a talent, because it’s actually a gift from God, to take that and not cultivate it and make it grow, that’s the biggest sin in the world.
+ - Love transcends international boundaries. It heals the wounds of racial hatred, prejudice, bigotry and ignorance.
+ - No matter what age you are, if you have it and you know it, then people should listen to you.
+ - Prejudice is taught. If the world were full of only children, it would be a much better place.
+ - The deeper I go into myself, the stronger I become, because I realize that my real self is much bigger than any fear.
+ - I can’t ignore someone that’s in need or is hurting. How can people just turn their heads from something like that.
+ - I don’t like to see anybody hurt or suffer, especially children.
+ - Music has been my outlet, my gift to all of the lovers in this world. Through it – my music, I know I will live forever.
+ - Hope is such a beautiful word, but it often seems very fragile. Life is still being needlessly hurt and destroyed.
+ - The idea is to take it a step forward and innovate. Or else why am I doing it? I don’t want to be just another can in the assembly line. I want to create – do something that is totally different and unusual.
+ - I’ve heard that Black people and Black faces don’t sell magazines, but one day you’re going to beg me to be on there.
+ - Creatures crawl in search of blood to terrorize your neighborhood. And whosoever shall be found without the soul for getting down, must stand and face the hounds of hell, and rot inside a corpse’s shell.
+ - We are Germans. We are Armenians. French, Italian, Russian, American, Asian, African... many other nationalities. We are Christians, Jewish, Muslim and Hindu. We are black, we are white. We are a community of some many differences, so complex and yet so simple. We do not need to have war!
+ - People write negatives things, cause they feel that’s what sells. Good news to them, doesn’t sell.
+ - My attitude is if fashion says it’s forbidden, I’m going to do it.
+ - People ask me how I make music. I tell them I just step into it. It’s like stepping into a river and joining the flow. Every moment in the river has its song.
+ - Yeah, Wacko Jacko, where did that come from? Some English tabloid. I have a heart and I have feelings. I feel that when you do that to me. It’s not nice.
+ - Each song is a child I nourish and give my love to. But even if you have never written a song, your life is a song. How can it not be?
+ - When you’re strong and good, then you’re Bad.
+ - I do think that marriage can be a wonderful thing if it’s the right thing for the two people involved. I believe in love – very much so – how can you not believe after you’ve experienced it? I believe in relationships. One day, I know I’ll find the right woman and get married myself.
+ - Nothing quenches the thirst like a wheat beer, or sharpens the appetite like an India pale ale. Nothing goes as well with seafood as a dry porter or stout, or accompanies chocolate like an imperial stout. Nothing soothes like a barleywine. These are just a few of the specialty styles of beer.
+ - With acting, it’s like becoming another person. I think that’s neat, especially when you totally forget. If you totally forget, which I love to do, that’s when it’s magic.
+ - Love and help all the children, all the days of your existence. They need us.
+ - My mission is healing, pure and simple.
+ - Change is inevitable and always good in one sense or the other.
+ - I’m a black American, I am proud of my race. I am proud of who I am. I have a lot of pride and dignity.
+ - Needless to say, I love the interaction between the sexes; it is a natural part of life and I love women. I just think that when sex is used as a form of blackmail or power, it’s a repugnant use of one of God’s gifts.
+ - The major ingredient of any recipe for fear is the unknown.
+ - I love to create magic – to put something together that’s so unusual, so unexpected that it blows people’s heads off. Something ahead of the times. Five steps ahead of what people are thinking.
+ - I can tell you there are rewards that go far beyond money and public acclaim and awards.
+ - If I could make anything disappear, it would be hate.
+ - Beer may cause you to digress – and lead a happier life.
+ - Deep in the darkness of passions insanity, I felt taken by lust’s strange inhumanity.
+ - What one wishes is to be touched by truth and to be able to interpret that truth so that one may use what one is feeling and experiencing, be it despair or joy, in a way that will add meaning to one’s life and will hopefully touch others as well.
+ - When I perform, I lose myself. I’m in total control of that stage. I don’t think about anything. I know what I want to do from the moment I step out there and I love every minute of it.
+ - Sometimes the heart is so heavy that we turn away from it and forget that its throbbing is the wisest message of life, a wordless message that says, “Live, be, move, rejoice – you are alive!” Without the heart’s wise rhythm, we could not exist.
+ - I’m actually relaxed onstage. Totally relaxed. It’s nice. I feel relaxed in the studio too. I know whether something feels right. If it doesn’t, I know how to fix it. Everything has to be in place and if it is you feel good, you feel fulfilled.
+ - Have you seen my childhood? I’m searching for the world that I came from cause I’ve been looking around in the lost and found of my heart.
+ - It’s a complete lie, why do people buy these papers? It’s not the truth I’m here to say. You know, don’t judge a person, do not pass judgement, unless you have talked to them one on one. I don’t care what the story is, do not judge them because it is a lie.
+ - Most people don’t know me, that is why they write such things in wich most is not true. I cry very very often because it hurts and I worry about the children, all my children all over the world, I live for them.
+ - The most loving thing to do is to share your bed with someone.
+ - There’s nothing that can’t be done if we raise our voice as one.
+ - How does it feel when you’re alone and you’re cold inside.
+ - I see God in the face of children. If there were no children on this Earth, if somebody announced that all kids are dead, I would jump off the balcony immediately. I’m done.
+ - I believe in the Bible and I try to follow the Bible. I know I’m an imperfect person, I’m not making myself out to be an angel. Because I’m not an angel & I’m not a devil either. I try to be the best I can and I try to do what I think is right. It’s that simple.
+ - There’s bits of my heart in different countries around the world in which I travel.
+ - Everyone’s Taking Control Of Me Seems That The World’s Got A Role For Me I’m So Confused Will You Show To Me You’ll Be There For Me And Care Enough To Bear Me.
+ - Find your star and throw it up to heaven. You still have it, don’t you?
+ - I never have felt that people should feel that they are better than others, simply because they just happen to possess a larger share of material items and monetary wealth than others less fortunate. I believe in sharing, assisting, and just lending a helping hand to people.
+ - I believe I’m one of the loneliest people in the world.
+ - On many occasions when I am dancing I’ve felt touched by something sacred. In those moments, I felt my spirit soar and become one with everything that exists !
+ - I was taught to be Biblical: “Forgive them for they know not what they do.”
+ - Yet, instead of loving our children more, we install metal detectors in our schools.
+ - Just because you read it in a magazine or see it on a TV screen doesn’t make it factual. To buy it is to feed it.
+ - The Bee Gees who are brilliant, I just love great music.
+ - Escapism and wonder is influence. It makes you feel good, and that allows you to do things. You just keep on moving ahead, and you say, ‘God, is this wonderful – do I appreciate it.’
+ - It all went by so fast, didn’t it? I wish I could do it all over again, I really do.
+ - I am a slave to the rhythm. I am a palette. I just go with the moment. You’ve got to do it that way because if you’re thinking, you’re dead. Performing is not about thinking; it’s about feeling.
+ - When you know something is wrong for you, you have to make difficult decisions and trust your instincts.
+ - I wasn’t aware that the world thought I was so weird and bizarre. But when you grow up, like I did, in front of 100 million people since the age of 5, you’re automatically different.
+ - Not the stars, not the farthest solar systems, not the millions of different species of animal life, but the child is the greatest of God’s creations.
+ - I never think about themes. I let the music create itself. I like it to be a potpourri of all kinds of sounds, all kinds of colors, something for everybody, from the farmer in Ireland to the lady who scrubs toilets in Harlem.
+ - That’s what’s great about show business. It’s escapism. You pay your five bucks to get in and sit there and you’re in another world. Forget about the problems in the world. It’s wonderful.
+ - I believe that all people living together in unity is one of the most important messages we can teach our children.
+ - Some friends, you only see them when the sun shines... My fans sustained me even in dark days. I owe them everything.
+ - I want to always be youthful and have the energy to run around and play hide and seek, which is one of my favorite games.
+ - For me, Love is something very pure.
+ - I do disguises for different reasons. I like to study people – be like the fly on the wall. Even if it’s two old ladies sitting on a bench or some kids on a swing. Because I don’t know what it’s like to fit in an everyday life situation.
+ - I would just go in my room and just scream out of anger because I didn’t understand how a person could be so vicious and mean.
+ - Yes, and I had pimples so badly it used to make me so shy. I used not to look at myself. I’d hide my face in the dark, I wouldn’t want to look in the mirror and my father teased me and I just hated it and I cried everyday.
+ - And I remember going to the record studio and there was a park across the street and I’d see all the children playing and I would cry because it would make me sad that I would have to work instead.
+ - Drinking really cold beer is like slapping yourself in the face with an ice pick.
+ - I made a terrible mistake. I got caught up in the excitement of the moment. I would never intentionally endanger the lives of my children. I love my children. I was holding my son tight. Why would I throw a baby off the balcony? That’s the dumbest, stupidest story I ever heard.
+ - We can help the world live without fear. It is our only hope, and without hope we are lost.
+ - I’m willing to forgive the press, or forgive anybody, I was taught to love and forgive, which I do have in my heart.
+ - A musician knows hit material. It has to feel right. Everything has to feel in place. It fulfills you and it makes you feel good. You know it when you hear it.
+ - Children show me in their playful smiles the divine in everyone.
+ - The lyrics, the strings, the chords, everything comes at the moment like a gift that is put right into your head and that’s how I hear it.
+ - The foundation of all human knowledge, the beginning of human consciousness, must be that each and every one of us is an object of love. Before you know if you have red hair or brown, before you know if you are black or white, before you know of what religion you are a part, you have to know that you are loved.
+ - Remember,the press is a business: Newspapers and magazines are in business to make money – sometimes at the expense of accuracy, fairness and even the truth.
+ - Damned indecision and cursed pride.
+ - I go around the world dealing with running and hiding... I can’t take a walk in the park. I can’t go to the store... I have to hide in the room. You feel like you’re in prison.
+ - My deepest gratitude to the Creator for His gift to me... the joy I receive in creating my music.
+ - How would I like to be remembered? As a person who came and brought light to the world, some escapism. Also as the voice for the voiceless children, because I love them.
+ - I always had this yearning to give and help and make people feel better.
+ - They say that parenting is like dancing. You take one step, your child takes another.
+ - Human knowledge consists not only of libraries of parchment and ink – it is also comprised of the volumes of knowledge that are written on the human heart, chiselled on the human soul, and engraved on the human psyche.
+ - Just because it’s in print doesn’t mean it’s the gospel.
+ - Life songs of ages, throbbing in my blood, have danced the rhythm of the tide and flood.
+ - Because I wanted to have a place that I could create everything that I that I never had as a child. So, you see rides. You see animals. There’s a movie theater.
+ - I’m just like anyone. I cut and I bleed and I embarass easily.
+ - I love movies and I love art – and an architect is an entertainer, the guy who builds a rollercoaster is an entertainer. He knows where to build the slopes, and the big anticipation when you go up... He makes you go, ‘Oh my God!’ when you get to the top before you come down. It’s just the same as structuring a show or a dance.
+ - I think Broadway is good for sharpening your skills. It’s the best for really reaching the zenith of your talent. You go so far and reach the peak of it and you say, “Maybe this is the best performance I can do.”
+ - I have been the artist with the longest career, and I am so proud and honored to be chosen from heaven to be invincible.
+ - They did it to try and belittle me, to try and to take away my pride. But I went through the whole system with them. And at the end, I – I wanted the public to know that I was okay, even though I was hurting.
+ - There was more to life than the things you could hold in your hands or see with your eyes.
+ - Some miners would have 20 pints after a hard day in the mine. Now that we sit behind computers all day, this is down to 18 or 19 pints.
+ - The record companies really do conspire against the artists. Especially the black artists.
+ - Whatever you see me do is spontaneous reactions on stage. It’s nothing planned. It’s nothing that I got in the room and tried to think of hard. It just happens through feeling.
+ - I hate labels because it should be just music. I don’t see anything wrong with disco. Call it anything. It’s music.
+ - Sometimes when you’re treated unfairly it makes you stronger and more determined. I admire that kind of strength. People who have it take a stand and put their blood and soul into what they believe.
+ - I love trees I have this thing for trees and the colors & changing of leaves. I love it I respect these kinds of things.
+ - Like the Bible says. A child should be leader of them all, and to be led by that kind of innocence. Didnt Jesus say bring on the children? Be like the children. Not childish, but child-like. That kind of innocence.
+ - Fred Astaire told me things I will never forget. Gene Kelly also said he liked my dancing. It was a fantastic experience because I felt I had been inducted into an informal fraternity of dancers, and I felt so honored because these were the people I most admired in the world.
+ - What can I do but bring forth the talent that God gave me? That’s all I wanted to do. To share the love and gift of entertainment. That’s all I want to do. I don’t want to hurt anybody.
+ - If I am guilty of anything it is of believing what God said about children: ‘Suffer little children to come unto me and forbid them not, for such is the Kingdom of Heaven.’ In no way do I think that I am God, but I try to be God-like in my heart.
+ - Lift your head up high, and scream to the world. I know I am someone, and let the truth unfurl.
+ - The dream we were conceived in will reveal a joyful face, and the world we once believed in will shine again in grace.
+ - I just want to say to fans in every corner of the earth, every nationality, every race, every language: I love you from the bottom of my heart. I would love your prayers and your goodwill, and please be patient and be with me and believe in me because I am completely, completely innocent. But please know a lot of conspiracy is going on as we speak.
+ - I want to do something to help those who lost their parents, who lost their mothers and their fathers. Those are our people. Those are our children. Those are our parents.
+ - God created animals. And they’re loving; they’re beautiful. I feel the way (anthropologist) Jane Goodall does or any of those naturalists. I don’t find my interest in animals weird or strange at all.
+ - My fans truly are a part of me, we share something that most people will never experience.
+ - When people leave my show, I want them to say, ‘I’ve never seen anything like that in my life... It’s amazing. He’s the greatest entertainer in the world.’
+ - I’m trying to imitate Jesus in the fact that he said to be like children, to love children, to be as pure as children and to make yourself as innocent and to see the world through eyes of wonderment and the whole magical quality of it all.
+ - I see God through my children. I speak to God through my children. I am humbled for the blessings He has given me.
+ - I am committed to my art. I believe that all art has as its ultimate goal the union between the material and the spiritual, the human and the divine. I believe that to be the reason for the very existence of art.
+ - But for me the sweetest contact with God has no form. I close my eyes, look within, and enter a deep soft silence. The infinity of God’s creation embraces me.
+ - Why can’t you share your bed? The most loving thing to do is to share your bed with someone. It’s very charming. It’s very sweet. It’s what the whole world should do.
+ - Today I feel more betrayed than perhaps ever before, that someone who had got to know my children, my staff and me, whom I let into my heart and told the truth, could then sacrifice the trust I placed in him and produce this terrible and unfair program.
+ - So popular is beer, the world’s best-selling alcoholic drink, that it is often taken for granted. Yet scientific analysis shows that a glass of beer has within it as many aromas and flavors as fine wine. Not everyone understands this, but an increasing number of people do.
+ - Because parents have power over children. They feel they have to do what their parents say. But the love of money is the root of all evil. And this is a sweet child. And to see him turn like this, this isn’t him. This is not him.
+ - I’ve been an ambassador of goodwill all over the world, spreading this message, did we do heal the world, treaty of all nations, circling this huge globe? What I don’t understand is just singing about sex and “I want to get in a hot tub with you baby and rub you all over” and, but I get battered in the press as the weirdo.
+ - Me and Janet really are two different people.
+ - And the dream we were conceived in will reveal a joyful face... and the world we once believed in will shine again in grace. Then why do we keep strangling life wound this Earth, crucify its soul. Though it’s plain to see, this world is heavenly. We could be God’s glow... Heal the world.
+ - Wherever you go, man-made things are man-made, but you’ve got to get out and see God’s beauty of the world.
+ - They scream, they cry, they love, they support, they defend, they listen. My fans are everything.
+ - I’m totally at home on the stage. That’s where I live. That’s where I was born. That’s where I’m safe.
+ - Each day I take time out to study the Bible, no matter where I am. The teachings of the Bible have added a new dimension to my life. It, somehow, makes me whole.
+ - I believe in my heart that the music community will come together as one and rally to the aid of thousands of innocent victims,... There is a tremendous need for relief dollars right now and through this effort each one of us can play an immediate role in helping comfort so many people.
+ - Those who criticize. They desire our blood, not our pain. But still I must achieve. I must seek truth in all things. I must endure for the Power I was sent forth. For the world. For the children. But have mercy, for Ive been bleeding a long time now.
+ - James Brown, Ray Charles, Jackie Wilson, Chuck Berry and Little Richard – I think they had strong influences on a lot of people, because these were the guys who really got rock’n’roll going. I like to start with the origin of things, because once it gets along it changes. It’s so interesting to see how it really was in the beginning.
+ - Being a world traveler, I’m touched and moved by everything that happens, especially to children. It gets me emotionally sick and I go through a lot of pain when I see that type of pain. I can’t pretend as if I don’t see it. It affects me very much.
+ - I’ll never forget that little apple box I stood on because I couldn’t reach the microphone. My name was written on it and it’s sitting at Diana Ross’s house now. She has all my little doodling papers I would draw and write.
+ - I know a tree feels it when the wind blows through it. It probably goes, ‘Chhhhhh, this is wonderful.’ And that’s how I feel when I’m singing some songs. It’s wonderful.
+ - I am scared of my father to this day. My father walked in the room – and God knows I am telling the truth – I have fainted in his presence many times. I have fainted once to be honest. I have thrown up in his presence because when he comes in the room and this aura comes and my stomach starts hurting and I know I am in trouble.
+ - There are people that I am in love with, totally in love with them. I would die for them. I love Michelangelo. I love Charlie Chaplin with all my heart. I love Walt Disney. These are the people I am nuts over. These are my people. I love the great ones.
+ - I’m a collector of cartoons. All the Disney stuff, Bugs Bunny, the old MGM ones. It’s real escapism, it’s like everything’s alright. It’s like the world is happening now in a far away city. Everything’s fine.
+ - Forever continue to love, heal and educate the children. The future shines on them.
+ - We listen, we watch, we learn. We open our hearts and we open our minds, open our souls.
+ - I feel guilty just sitting around when I know I can be doing something.
+ - I think a great artist should be able to create any style, any form, anything from rock to pop to gospel to spiritual, just wonderful music where everybody can sing it...
+ - I’m a person of the arts. I love the arts very, very, very much. And ah, I’m a musician, I’m a director, I’m a writer, I’m a composer, I’m a producer, and I love the medium. I love film very, very much. I think it’s the most expressive of all of the art mediums.
+ - Please, I don’t want anybody to think I’m starving, I’m not. My health is perfect, actually.
+ - I love putting on an outfit or a costume and just looking at myself in the mirror. Baggy pants or some real funky shoes and a hat and just feeling the character of it. That’s fun to me.
+ - I appreciate all my fans, on all occasions, everyday of my life. Its your presence & your loyalty that has given me great strength.
+ - The press has made up so much... God... awful, horrifying stories... it has made me realize the more often you hear a lie, I mean, you begin to believe it.
+ - Yeah, they are loyal, women. They have been loyal. They are activists. They will fight you about me.
+ - An artist’s imagination is his greatest tool.
+ - Just try to stay a child as long as you can. Don’t force into adulthood.
+ - Masquerading the heart is the height of haunting souls.
+ - With just a little love and a little caring, I have seen kids totally turn around. Where you can’t find any cancer at all anymore in their body. I’ve done it a lot of times. I’m not trying to say I’m Jesus Christ. We should just give a little more attention to the power of love and caring and faith and prayer.
+ - The key to being a wonderful writer is not to write. You just get out of the way. Leave room for God to walk in the room. And when I write something that I know is right, I get on my knees and say ‘thank you.’
+ - You have to be loyal and true to one another, or your love will never last!
+ - The fans don’t know how much I love them so. It really can get to a hurting feeling inside due to how strong I love them all.
+ - Because I think every child star suffers through this period because you’re not the cute and charming child that you were. You start to grow, and they want to keep you little forever.
+ - I don’t understand why the press is so interested in speculating about my appearance, anyway. What does my face have to do with my music or my dancing?
+ - I think God outdid Himself when He created children.
+ - May we continue to remember not to judge man by the color of his skin, but the content of his character.
+ - I am always writing a potpourri of music. I want to give the world escapism through the wonder of great music and to reach the masses.
+ - I say, ‘You should blanket me’ or ‘you should blanket her’, meaning like a blanket is a blessing. It’s a way of showing love and caring.
+ - When you have a special gift you don’t realize it because you think everyone else has the same gift.
+ - Sensationalism seems to sell more than wonderful-positive news.
+ - Deep inside I feel that this world we live in is really a big, huge, monumental symphonic orchestra. I believe that in its primordial form, all of creation is sound and that it’s not just random sound, that it’s music.
+ - I’ve seen lawyers who don’t represent me and spokespeople who do not know me speaking for me. These characters always seem to surface with dreadful allegations just as another project, an album, a video is being released.
+ - As corny as it sounds, natural highs are the greatest highs in the world. The stars, the mountains, children, babies smiling are just magic.
+ - I love the fans and they are the reason for my professional existence. When I’m out there doing a show and I see the fans dancing and singing, that’s what I love the most. It’s just the greatest feeling in the world.
+ - If – and it can be in a movie or in a department store – I hear someone arguing with their child, I break down and cry. Because it reflects how I was treated when I was little.
+ - No one can quite say what the creative process is. Because I have nothing to do with it of course. It’s created in space. It’s God’s work, not mine.
+ - Your thoughts are as free as any bird.
+ - When the world is on your shoulder, got to straighten up your act and boogie down.
+ - You can bring out your inner self and moods through dancing. Music does the same.
+ - There were times when I had great times with my brothers, pillow fights and things, but I was, used to always cry from loneliness.
+ - I just wish I could understand my father.
+ - The purpose of parenting is to provide steady and wide-ranging opportunities for a child. The child does the rest.
+ - They (children) are my teachers. I watch them and I learn. It is important for us to try and be like them and imitate them. They are golden.
+ - I’m not trying to be philosophical, but I really think it’s my job to help children. And I don’t care if people laugh.
+ - I will say again that I have never, and would never, harm a child. It sickens me that people have written untrue things about me.
+ - Jason Randal is without a doubt the finest in the world at what he does!
+ - Martin Bashir persuaded me to trust him, that his would be an honest and fair portrayal of my life and told me that he was the man that turned Dianas life around.
+ - I love realism. I don’t like plastics. Deep down inside we’re all the same.
+ - We must wave our banners even higher and belt out our voices even stronger and be unified as people. We’re going to make it through this!
+ - My house is about equidistant from the Young’s brewery and the Fuller’s brewery. This is no accident.
+ - I hate it. I hate taxidermy shops and all that crap.
+ - I have a loving family, a strong faith and wonderful friends and fans who have, and continue, to support me.
+ - Live, be, move, rejoice – you are alive! Without the heart’s wise rhythm, we could not exist.
+ - Tenderoni, you’ve got to be.
+ - I wouldn’t say I was sexy! But I guess that’s fine if that’s what they say. I like that in concert. That’s neat.
+ - I want people to appreciate talent and ability.
+ - Please keep an open mind and let me have my day in court.
+ - The most conspicuous thing about suffering is, as W.H. Auden once observed, its banality. The day is green, the sun is shinging, someone is eating, or opening a window, the torturer’s horse is scatching its innocent behind on a tree, and in a mere second someone we love is dead.
+ - I’m not a comedian. I’m not a show host. I’m a musician. That’s why I’ve turned down offers to host the Grammy Awards and the American Music Awards. Is it really entertaining for me to get up there and crack a few weak jokes and force people to laugh because I’m Michael Jackson, when I know in my heart that I’m not funny?
+ - They didn’t trademark everything back then. Now someone farts and they put a TM after it. Even Miller Lite says ‘A Fine Pilsner Beer’ on the label. It is a crime.
+ - If you’re satisfied with everything you’re just going to stay at one level and the world will move ahead.
+ - My father was a management genius. But what I really wanted was a dad.
+ - Songwriting is a very frustrating art form. You have to get on tape exactly what’s playing inside your head.
+ - I’ve helped many, many, many children, thousands of children, cancer kids, leukemia kids.
+ - I believe in doing better work. Just like the old saying, ‘You don’t get older, you get better’.
+ - Everyone who knows me will know the truth, which is that my children come first in my life and that I would never harm any child.
+ - With two children of my own, I know what it means to balance the demands of family and career – and let’s not even talk about finding a date for myself. Rabbi Shmuley keeps telling me he’ll find me the perfect woman. My response is, ‘As long as she’s not a journalist’.
+ - I love performing. It’s a phenomenal getaway. If you want to really let out everything you feel, that’s the time to do it.
+ - When I look into the eyes of my Prince, and my daughter Paris, I see miracles and I see beauty.
+ - My heart and prayers go out to every individual.
+ - All the things I’ve read in my school books about England and the Queen were okay, but my eyes are the greatest book in the world.
+ - I have a skin disorder that destroys the pigmentation of my skin, it’s something that I cannot help, OK?
+ - There is no greater bliss than dancing and performing.
+ - My idea of magic doesn’t have much to do with stage tricks and illusions. The whole world abounds in magic.
+ - Pierre Bordieu was right: “The all powerful is he who does not wait but makes others wait. Absolute power is the power to make oneself unpredictable and deny other people any reasonable anticipation, to place them in total uncertainty by offering no scope for their capacity to predict.”
+ - There are two kinds of music. One comes from the strings of a guitar, the other from the strings of the heart.
+ - It’s been my fate to compensate for the childhood I’ve never known.
+ - If you want to see eccentricities, I’ll be grotesque before your eyes.
+ - When I was five I was touring, singing and dancing. Always gone, always out of school.
+ - That’s why I hate to take credit for the songs I’ve written. I feel that somewhere, someplace, it’s been done and I’m just a courier bringing it out into the world.
+ - Xs were used because there was no mass literacy – a state we are rapidly approaching once more.
+ - The actor’s tense, he’s being taped and things are not falling naturally. That’s what I hate about Boadway. I feel like I’m giving a whole lot for nothing. I like to capture things and hold them there and share them with the whole world.
+ - Your cameras can’t control the minds of those who know, that you’ll even sell your soul just to get a story sold.
+ - I care about being paid fairly for what I do. When I approach a project, I put my whole heart and soul into it. Because I really care about it.
+ - Leinenkugels makes better beer now that Miller bought them. It will license insecure people to like craft beers.
+ - My mother is fine. For me it perfection.
+ - “In Africa,” S. B. once remarked, “if you do well, people close to you will hate you.”
+ - Criticizing reporters is like boo-ing at the Special Olympics.
+ - You want what you create to live, and I give my all in my work because I want it to live.
+ - Going to my shows, it’s like a religious experience, because you come out, you go in one person, you come out a different person.
+ - When it’s allowed to be free, love is what makes life alive, joyful and new.
+ - A lot of people think that I’m a Michael Jackson impersonator.
+ - I love John Travolta, who came off that Kotter show. Nobody knew he could dance or do all of those things. He is like – boom. Before he knew it, he was the next big Brando or something.
+ - I rememeber one time we were getting ready to go to South America and everything was packed up and in the car ready to go and I hid and I was crying because I really did not want to go, I wanted to play. I did not want to go.
+ - There is an inherent dissonancebetween the quasi-formal world of computer programs – defining the programmed machine in each system – and the non-formal problem world of the system requirements.
+ - An artist should let his style evolve naturally, spontaneously.
+ - To me, ballads are special, because you can have a pop song that’ll be know for three weeks and then you’ll hear nothing else about it. Nobody else will record it and it’ll just be gone. But if you do a good ballad, it’ll be in the world forever.
+ - Children are the only ones who don’t want anything of me.
+ - I truly love my fans. Truly, truly from the heart. That’s the real truth. I love them.
+ - The distortion of the truth bothers me.
+ - I’ve forgotten many things, but I’ll never forget a melody.
+ - This extravagant dwelling, as domineering as it was distant, brought home to me the intimateconnection between tyranny and abstraction, and put me in mind of John Berger’s observation that “abstraction’s capacity to ignore what is real is undoubtedly where most evil begins.”
+ - I want people to hear or watch something I’ve done and feel that I’ve given it everything I’ve got.
+ - I don’t know what I could do besides sing but I’m not worried because I figure I’ve got the rest of my life to find out!
+ - I think the actor or performer should be – to touch that truth inside of a person. Touch that reality so much that they become a part of what you’re going and you can take them anywhere you want to.
+ - Everything that I love is behind those gates. We have elephants, and giraffes, and crocodiles, and every kind of tigers and lions. And – and we have bus loads of kids, who don’t get to see those things. They come up sick children, and enjoy it.
+ - Well, you don’t get to do things that other children get to do, having friends and slumber parties and buddies. There were none of that for me. I didn’t have friends when I was little. My brothers were my friends.
+ - How many victims must that be? Slaughtered in vain across the land, And how many strugles must that be? Before we choose to live the profits plan Everybody sing- Every day create your History, Every path you take you’re leaving your legacy Every soldier dies in his glory Every legend tells of conquest and liberty.
+ - Look at how many great actors or entertainers have been lost to the world because they did a performance one night and that was it. With film, you capture that, it’s shown all over the world and it’s there forever.
+ - Don’t you believe what you read.
+ - Children have taught me to always be forgiving.
+ - You know, let’s put it this way, if all the people in Hollywood who have had plastic surgery, if they went on vacation, there wouldn’t be a person left in town.
+ - I prefer just being with people I like. That’s my way of celebrating.
+ - I always hated the world “acting” – to say, “I’m an actor.” It should be more like a believer.
+ - If I’m not creating, I’m not as happy.
+ - It’s always difficult for anyone trying to compete against their past achievements.
+ - Well, especially now I come to realize – and then – I would do my schooling which was three hours with a tutor and right after that I would go to the recording studio and record, and I’d record for hours and hours until it’s time to go to sleep.
+ - You try to be as original as you can be without thinking about statistics. You just go from the soul and from the heart.
+ - What’s the point? you can bring in 50 witnesses and it would not change what the tape clearly shows.
+ - They hunt you. It’s terrible... They never think about how the person feels about what they write.
+ - I want my work to help people rediscover the child that’s hiding in them.
+ - I always wanted to do music that influences and inspires each generation.
+
+445 quotes

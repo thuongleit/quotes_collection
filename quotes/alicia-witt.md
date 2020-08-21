@@ -1,0 +1,21 @@
+ - Acting is magical. Change your look and your attitude, and you can be anyone.
+ - Redheads get so stereotyped. Youre either exotic and wild or totally Victorian.
+ - I wanted to do a movie about being really good at something, yet being socially awkward and not as advanced in your personal life as you are in your creative life.
+ - You’ll say I’m self-destructive I constructed all this tragedy. Go tell them all it’s all my fault You’ll tell them I was crazy. And anyway it’s over now Nothing left to say.
+ - I don’t know that I’m actually bipolar, but I definitely have huge mood swings, and I’m definitely passionate about the way I feel. I’m not really lukewarm one way or the other.
+ - My so-called faith went up in flames Till I believed in all your lies, For the life of me I don’t know why. They got you wrong, You’re not that strong. I don’t belong here!
+ - On-screen relationships are the best because you don’t have to worry about saying the wrong things. And if the guy’s got a girlfriend, or I’m not attracted to him, it’s even better. It’s just my character kissing his character.
+ - I’d never been to a prom, I had never had the whole high school experience. I think I was kind of an anomaly. I don’t think they knew where to put me.
+ - Whatever you’ve accomplished there’s always more to experience .
+ - I compose my own stuff. I’ve been writing songs with words. I’ve been playing more on the keyboard because I can transpose it to sheet music on the computer.
+ - In my fantasy I was always the savior. I would come to ‘Peanuts’ land and save everybody. Charlie Brown would fall madly in love with me. Peppermint Patty was so jealous.
+ - All of those art-based fields are similar in that they’re all hard to make a living in and they all require an intense amount of training and discipline.
+ - You have to really concentrate on piano or acting. You can’t do both.
+ - I went to national piano competitions and did that whole circuit. Then I played professionally to support myself when I moved out to LA.
+ - It occured to me the other day that I’ve made out with more people on camera than I have in real life!
+ - Everything was okay, as long as I could dream. Its amazing, really, the difference between having a dream and not having any left that can come true. It’s the difference between living and dying .
+ - I was so happy that it filmed in New York not only because it’s an amazing city, but also because a lot of people across the world somehow started to think about New York as a dangerous place to be and envisioned it as some war zone after that happened.
+ - John Waters has certainly gotten to a place in his life where he doesn’t do anything he doesn’t want to do. He’s always been that way, but at this point, he’s greatly respected for it.
+ - Pianos tend to get better as they age, the more you play them. They grow into their sound.
+
+19 quotes

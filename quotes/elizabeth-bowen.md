@@ -1,0 +1,133 @@
+ - Nobody can be kinder than the narcissist while you react to life in his own terms.
+ - Intimacies between women often go backwards, beginning in revelations and ending in small talk.
+ - A romantic man often feels more uplifted with two women than with one: his love seems to hit the ideal mark somewhere between two different faces.
+ - The craft of the novelist does lie first of all in story-telling.
+ - The novel does not simply recount experience, it adds to experience.
+ - Childish fantasy, like the sheath over the bud, not only protects but curbs the terrible budding spirit, protects not only innocence from the world, but the world from the power of innocence.
+ - Silences have a climax, when you have got to speak.
+ - It is not our exalted feelings, it is our sentiments that build the necessary home.
+ - Autumn arrives in the early morning.
+ - We desert those who desert us; we cannot afford to suffer; we must live how we can.
+ - Chance is better than choice; it is more lordly. Chance is God, choice is man.
+ - But to be quite oneself one must first waste a little time.
+ - Style is the thing that’s always a bit phony, and at the same time you cannot write without style.
+ - I pity people who do not care for Society. They are poorer for the oblation they do not make.
+ - Solitary and farouche people don’t have relationships; they are quite unrelatable. If you and I were capable of being altogether house-trained and made jolly, we should be nicer people, but not writers.
+ - One can live in the shadow of an idea without grasping it.
+ - Have not all poetic truths been already stated? The essence of a poetic truth is that no statement of it can be final.
+ - Disappointment tears the bearable film of life.
+ - After inside upheavals, it is important to fix on imperturbable things. Their imperturbableness, their air that nothing has happened renews our guarantee.
+ - A Bowen, in the first place, made Bowen’s Court. Since then, with a rather alarming sureness, Bowen’s Court has made all the succeeding Bowens.
+ - Pity the selfishness of lovers: it is brief, a forlorn hope; it is impossible.
+ - To walk into history is to be free at once, to be at large among people.
+ - The heart may think it knows better: the senses know that absence blots people out. We really have no absent friends.
+ - I think the main thing, don’t you, is to keep the show on the road.
+ - The most striking fault in work by young or beginning novelists, submitted for criticism, is irrelevance – due either to infatuation or indecision. To direct such an author’s attention to the imperative of relevance is certainly the most useful – and possibly the only – help that can be given.
+ - Memory must be patchy; what is more alarming is its face-savingness. Something in one shrinks from catching it out – unique to oneself, one’s own, one’s claim to identity, it implicates one’s identity in its fibbing.
+ - All my life I have said, “Whatever happens there will always be tables and chairs” – and what a mistake.
+ - Short of a small range of physical acts-a fight, murder, lovemaking-dialogue is the most vigorous and visible inter-action of which characters in a novel are capable. Speech is what characters do to each other.
+ - Plot is the knowing of destination.
+ - Wariness had driven away poetry; from hesitating to feel came the moment when you no longer could.
+ - Temperamentally, the writer exists on happenings, on contacts, conflicts, action and reaction, speed, pressure, tension. Were he acontemplative purely, he would not write.
+ - The heart may think it knows better: the senses know that absence blots people out. We really have no absent friends. The friend becomes a traitor by breaking, however unwillingly or sadly, out of our own zone: a hard judgment is passed on him, for all the pleas of the heart.
+ - Some people are molded by their admirations, others by their hostilities.
+ - Someone soon to start on a journey is always a little holy.
+ - No, it is not only our fate but our business to lose innocence, and once we have lost that, it is futile to attempt a picnic in Eden.
+ - Nobody speaks the truth when there’s something they must have.
+ - Dialogue should show the relationships among people.
+ - She walked about with the rather fated expression you see in photographs of girls who have subsequently been murdered, but nothing had so far happened to her.
+ - Often when I write I am trying to make words do the work of line and color. I have the painter’s sensitivity to light. Much of my writing is verbal painting.
+ - Expectations are the most perilous form of dream, and when dreams do realise themselves it is in the waking world: the difference is subtly but often painfully felt.
+ - Exhibitionism and a nervous wish for concealment, for anonymity, thus battle inside the buyer of any piece of clothing.
+ - Makes of men date, like makes of car.
+ - The novelist’s – any writer’s – object is to whittle down his meaning to the exactest and finest possible point. What, of course, isfatal is when he does not know what he does mean: he has no point to sharpen.
+ - Dialogue is the ideal means of showing what is between the characters. It crystallizes relationships. It should, ideally, be so effective as to make analysis or explanation of the relationships between the characters unnecessary.
+ - Dialogue should convey a sense of spontaneity but eliminate the repetitiveness of real talk.
+ - But complex people are never certain that they are not crooks, never certain their passports are quite in order, and are, therefore, unnerved by the slightest thing.
+ - To the sun Rome owes its underlying glow, and its air called golden – to me, more the yellow of white wine; like wine it raises agreeability to poetry.
+ - Not only is there no question of solitude, but in the long run we may not choose our company.
+ - Solitary and farouche people don’t have relationships; they are quite unrelatable.
+ - At the age of twelve I was finding the world too small: it appeared to me like a dull, trim back garden, in which only trivial games could be played.
+ - The paradox of romantic love – that what one possesses, one can no longer desire – was at work.
+ - When one is a child, the disposition of objects, tables and chairs and doors, seems part of the natural order: a house-move lets in chaos – as it does for a dog.
+ - Good-byes breed a sort of distaste for whomever you say good-bye to; this hurts, you feel, this must not happen again.
+ - Writers do not find subjects; subjects find them.
+ - Love of privacy – perhaps because of the increasing exactions of society – has become in many people almost pathological.
+ - Dialogue must appear realistic without being so. Actual realism-the lifting, as it were, of passages from a stenographer’s take-down of a ‘real life’ conversation-would be disruptive. Of what? Of the illusion of the novel. In ‘real life’ everything is diluted; in the novel everything is condensed.
+ - Roughly, the action of a character should be unpredictable before it has been shown, inevitable when it has been shown. In the first half of a novel, the unpredictability should be the more striking. In the second half, the inevitability should be the more striking.
+ - Habit, of which passion must be wary, may all the same be the sweetest part of love.
+ - Education is not so important as people think.
+ - Everything is very quiet, the streets are never crowded, and the people one dislikes are out of town.
+ - Each of us keeps, battened down inside himself, a sort of lunatic giant; impossible socially, but full scale; and it’s the knockings and battering we sometimes hear in each other that keep our banter from utter banality.
+ - Good general-purpose manners nowadays may be said to consist in knowing how much you can get away with.
+ - Dialogue in fiction is what characters do to one another.
+ - The best that an individual can do is to concentrate on what he or she can do, in the course of a burning effort to do it better.
+ - Spoilt pleasure is a sad, unseemly thing; you can only bury it.
+ - There is no doubt that sorrow brings one down in the world. The aristocratic privilege of silence belongs, you soon find out, to only the happy state- or, at least, to the state when pain keeps within bounds.
+ - What is being said is the effect of something that has happened; at the same time, what is being said is in itself something happening, which will, in turn, leave its effect.
+ - With no banal reassuring grown-ups present, with grown-up intervention taken away, there is no limit to the terror strange children feel of each other, a terror life obscures but never ceases to justify. There is no end to the violations committed by children on children, quietly talking alone.
+ - Ghosts seem harder to please than we are; it is as though they haunted for haunting’s sake – much as we relive, brood, and smoulder over our pasts.
+ - One can suffer a convulsion of one’s entire nature, and, unless it makes some noise, no one notices. It’s not just that we are incurious; we completely lack any sense of each other’s existences.
+ - Some ideas, like dandelions in lawns, strike tenaciously: you may pull off the top but the root remains, drives down suckers and may even sprout again.
+ - Where would the Irish be without someone to be Irish at?
+ - What I have found is, anything one keeps hidden should now and then be hidden somewhere else.
+ - Forgiveness should be an act, but this is a state with him.
+ - Reason can never reconcile one to life: nothing allays the wants one cannot explain.
+ - There’s something so showy about desperation, it takes hard wits to see it’s a grandiose form of funk.
+ - On the subject of dress almost no one, for one or another reason, feels truly indifferent: if their own clothes do not concern them, somebody else’s do.
+ - Only in a house where one has learnt to be lonely does one have this solicitude for things. One’s relation to them, the daily seeing or touching, begins to become love, and to lay one open to pain.
+ - No one of the characters in my novels has originated, so far as I know, in real life. If anything, the contrary was the case: persons playing a part in my life – the first twenty years of it – had about them something semi-fictitious.
+ - Every love has a poetic relevance of its own; each love brings to light only what to it is relevant. Outside lies the junk-yard of what does not matter.
+ - The child lives in the book; but just as much the book lives in the child.
+ - Also, perhaps children are sterner than grown-up people in their refusal to suffer, in their refusal, even, to feel at all.
+ - All good dialogue perhaps deals with something unprecedented.
+ - Revenge was a very wild kind of justice...
+ - Silence sat in the taxi, as though a stranger had got in.
+ - Princess Bibesco delighted in a semi-ideal world – a world which, though having a counterpart in her experience, was to a great extent brought into being by her own temperament and, one might say, flair.
+ - Silences can be as different as sounds.
+ - I know that I have in my make-up layers of synthetic experiences, and that the most powerful of my memories are only half true.
+ - First love, with its frantic haughty imagination, swings its object clear of the everyday, over the rut of living, making him all looks, silences, gestures, attitudes, a burning phrase with no context.
+ - Jane Austen, much in advance of her day, was a mistress of the use of the dialogue. She used it as dialogue should be used-to advance the story; not only to show the characters, but to advance.
+ - Meetings that do not come off keep a character of their own. They stay as they were projected.
+ - Art, at any rate in a novel, must be indissolubly linked with craft...
+ - Though not all reading children grow up to be writers, I take it that most creative writers must in their day have been reading children.
+ - History is not a book, arbitrarily divided into chapters, or a drama chopped into separate acts; it has flowed forward. Rome is a continuity, called ‘eternal.’ What has accumulated in this place acts on everyone, day and night, like an extra climate.
+ - We have really no absent friends.
+ - Dogs are a habit, I think.
+ - Certain books come to meet me, as do people.
+ - The importance to the writer of first writing must be out of all proportion of the actual value of what is written.
+ - Sins cut boldly up through every class in society, but mere misdemeanours show a certain level in life.
+ - It is in this unearthly first hour of spring twilight that earth’s almost agonized livingness is most felt. This hour is so dreadful to some people that they hurry indoors and turn on the lights.
+ - When I read a story, I relive the moment from which it sprang. A scene burned itself into me, a building magnetized me, a mood orseason of Nature’s penetrated me, history suddenly appeared to me in some tiny act, or a face had begun to haunt me before I glanced at it.
+ - My writing, I am prepared to think, may be a substitute for something I have been born without – a so-called normal relation to society. My books are my relation to society.
+ - The story must spring from an impression or perception pressing enough to have made the writer write. It should magnetize the imagination and give pleasure.
+ - Bring all your intelligence to bear on your beginning.
+ - Sacrificers are not the ones to pity. The ones to pity are those they sacrifice.
+ - People in love, in whom every sense is open, cannot beat off the influence of a place.
+ - Nothing, that is say no one, can be such an inexorable tour-conductor as one’s own conscience or sense of duty, if one allows either the upper hand: the self-bullying that goes on in the name of sight-seeing is grievous.
+ - The silence of a shut park does not sound like the country silence; it is tense and confined.
+ - Young girls like the excess of any quality. Without knowing, they want to suffer, to suffer they must exaggerate; they like to have loud chords struck on them.
+ - For people who live on expectations, to face up to their realization is something of an ordeal.
+ - The most steady, the most self-sufficient nature depends, more than it knows, on its few chosen stimuli.
+ - Yes, writing a novel, my boy, is like driving pigs to market – you have one of them making a bolt down the wrong lane; another won’t get over the right stile...
+ - The passion of vanity has its own depths in the spirit, and is powerfully militant.
+ - Proust has pointed out that the predisposition to love creates its own objects; is this not also true of fear?
+ - One’s sentiments – call them that – one’s fidelities are so instinctive that one hardly knows they exist: only when they are betrayed or, worse still, when one betrays them does one realize their power.
+ - Sport and death are the two great socializing factors in Ireland...
+ - Characters are not created by writers. They pre-exist and have to be found.
+ - Don’t you understand that all language is dead currency? How they keep on playing shop with it all the same...
+ - I suspect victims; they win in the long run.
+ - I can’t see or feel the conflict between love and religion. To me, they’re the same thing.
+ - But surely love wouldn’t get so much talked about if there were not something in it?
+ - What’s the matter with this country is the matter with the lot of us individually – our sense of personality is a sense of outrage...
+ - Imagination of my kind is most caught, most fired, most worked upon by the unfamiliar: I have thrivenon the changes and chances, the dislocations andcontrasts which have made up so much of my life.
+ - In ‘real life’ everything is diluted; in the novel everything is condensed.
+ - Curiosity in Rome is a form of courtesy.
+ - With three or more people there is something bold in the air: direct things get said which would frighten two people alone and conscious of each inch of their nearness to one another. To be three is to be in public – you feel safe.
+ - Convention was our safeguard: could one have stronger?
+ - I do like Italian graves; they look so much more lived in.
+ - Raids are slightly constipating.
+ - Habit is not mere subjugation, it is a tender tie; when one remembers habit it seems to have been happiness.
+ - In big houses in which things are done properly, there is always the religious element. The diurnal cycle is observed with more feeling when there are servants to do the work.
+
+131 quotes

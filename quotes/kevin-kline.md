@@ -1,0 +1,30 @@
+ - Hindsight. It’s like foresight without a future.
+ - The worth of a life is not determined by a single failure or a solitary success.
+ - Ambition without contribution is of no significance.
+ - People ask, ‘What’s the best role you’ve ever played?’ The next one.
+ - I totally related to Cole Porter’s magnetic pull to any piano that was in the room, which he was famous for doing, as was Gershwin. You couldn’t drag them away from a piano.
+ - It never ceases to surprise me, the people I get to work with. I’m in a French film with Sandrine Bonnaire? I adore Sandrine Bonnaire. I’m doing a picture for Robert Redford? The Sundance Kid? I have to pinch myself sometimes.
+ - Nothing makes an actor feel freer and more inventive and more creative than being trusted.
+ - I think every American actor wants to be a movie star. But I never wanted to do stupid movies, I wanted to do films.
+ - Dogs do have feelings, I gather.
+ - I see God as a song-and-dance man. If I had my way, he’d be able to carry a tune, too. Preferably, one of mine.
+ - I’ve got the Jewish guilt and the Irish shame and it’s a hell of a job distinguishing which is which.
+ - Just because you’re not sweating doesn’t mean you’re not putting in the work.
+ - Don’t kiss a man who hasn’t shaved.
+ - It was all completely incomprehensible to me. I was fearful of the language. You had to look up every third word.
+ - Playing Shakespeare requires technique. You don’t play a Bach toccata by getting in the mood.
+ - I never went to class. That the university graduated me at all is an indictment of our educational system.
+ - We’re all animals, but we’re a different sort of animal. Maybe they’re better than us. They’re more loyal. They’re more pure. They’re more simple. They’re not neurotic. Well, there are some neurotic dogs.
+ - I just don’t think I’m a very good singer.
+ - You know, actors are fans, too. And talent is very attractive to me.
+ - Most of the comedies I’ve done have been rather farcical and extravagant.
+ - When you have satire, it has to be real. No matter how outrageous the comedy becomes, you have to believe in the characters.
+ - But, I do think, on a very simplistic level, that we can project onto dogs because they are so innocent. They don’t come with a lot of baggage.
+ - I had studied piano since I was 13, but I was surrounded by students who’d been playing since they were 5. I realized I was never going to be anything but mediocre.
+ - I’m a real pushover for animals.
+ - But you have to trust your instincts. Because you’re not going to try it 20 different ways during rehearsal. You’ll try it two or three different ways, maybe, but then you’ve got five other scenes you’re shooting that day. You’ve got to keep going.
+ - Some of my favorite characters that I’ve played have been very pompous because I love making fun of pompous people.
+ - I can play characters who sing, but I don’t like singing in a nightclub or something. It’s not my metier.
+ - I’ve never felt completely satisfied with what I’ve done. I tend to see things too critically. I’m trying to get over that.
+
+28 quotes

@@ -1,0 +1,75 @@
+ - When we die, we will turn into songs, and we will hear each other and remember each other.
+ - It’s kind of amazing how popular ‘Grey’s Anatomy’ is. What other show can boast such an annoyingly sincere cast of doctors, sniveling through such perfunctory love triangles?
+ - But bringing people together is what music has always done best.
+ - Every moment of my life has a soundtrack, so I never know when some song is going to jump me by surprise and bring the memory alive.
+ - In the old days, when a star left a still-thriving hit show, they’d celebrate by killing him or her off. But ‘The Office’ dispatched Michael Scott in a crueler and more final way: they made him normal. Since we’re talking about Michael Scott, ‘normal’ might be stretching it, obviously.
+ - Nothing connects to the moment like music. I count the music to bring me back, or more precisely, to bring her forward.
+ - But the answer is simple. Love is a mix tape.
+ - You know the Prince song where the girl’s phone rings but she tells him, “whoever’s calling couldn’t be as cute as you?” I long to live out this moment in real life.
+ - Ron Swanson is more than the MVP of the ‘Parks and Recreation’ squad, more than just the funniest character on TV – he’s the perfect depiction of aggrieved American manhood at the twilight of the empire.
+ - But MTV relishes its vestigial role as a star maker, so every year it puts all its clout into making the VMAs the biggest, splashiest, loudest show-biz extravaganza of the year, honoring all this music for existing, after a year of paying barely any attention to it.
+ - The hungry feeling and the lonely feeling merged until it was hard to tell them apart.
+ - The times you lived through, the people you shared those times with – nothing brings it all to life like an old mix tape. It does a better job of storing up memories than actual brain tissue can do. Every mix tape tells a story. Put them together, and they can add up to the story of a life.
+ - I was totally clueless about social interaction, and completely scared of girls. All I knew was that music was going to make girls fall in love with me.
+ - I’d shut the whole world down just to tell you.
+ - Tonight, I feel like my whole body is made out of memories. I’m a mix-tape, a cassette that’s been rewound so many times you can hear the fingerprints smudged on the tape.
+ - Our amour fou with ‘The Sopranos’ is headed for long-term parking, like so many of its most memorable characters. We’ll never see a show like this again.
+ - When Ke$ha tries to rap like L’Trimm, she sounds like any ordinary lonely teenage girl stuck in a nowhere town, singing along to her radio and dreaming of a party where she’s the star. Ke$ha’s greatness is that in her voice, you can hear both the loser girl and the star. All hail the Queen of Noi$e!
+ - Love dies in many different ways, and it’s natural for the grass to seem greener on the other side. But it’s not a competition; there’s plenty of pain to go around.
+ - I was the only kid at Camp Don Bosco who would admit he was an alter boy back home, so I served two masses a day all summer. But I loved the cassock and surplice, ringing the bells, lighting the candles – it was like being a glamrock roadie for God.
+ - Thanks to the greatest invention of recent years, the MP3-playing alarm clock, I can now choose the song that wakes me up in the morning.
+ - Monogamous musicians are like vegan hockey players.
+ - The Stones suggested that if you dabble in decadence, you could turn into a devil-worshipping junkie. Paul McCartney suggested that if you mess around with girl worship, you could turn into a husband. So Paul was a lot scarier.
+ - I’ve built my whole life around loving music. I’m a writer for ‘Rolling Stone,’ so I am constantly searching for new bands and soaking up new sounds.
+ - In my headphones, I led a life of romance and incident and intrigue, none of which had anything to do with the world outside my Walkman.
+ - It goes without saying that ‘Buncha Losers’ comedies speak to tough times. The massive unemployment of the Reagan years gave us ‘Taxi,’ ‘Cheers’ and the genre-defining ‘Night Court,’ a show you could never admit to watching without making people feel sorry for you.
+ - It was like trying to break up with the color orange, or Wednesday, or silent e. It was the most passionate and tumultuous relationship I’d ever known.
+ - A song nobody likes is a sad thing. But a love song nobody likes is hardly a thing at all.
+ - The dilemma of the eighth-grade dance is that boys and girls use music in different ways. Girls enjoy music they can dance to, music with strong vocals and catchy melodies. Boys, on the other hand, enjoy music they can improve by making up filthy new lyrics.
+ - Thank you for the music, Sleater-Kinney. This gang of three was the best American punk rock band ever. Ever.
+ - Falling in love with Renee was not the kind of thing you walk away from in one piece. I had no chance. She put a hitch in my git-a-long.
+ - Every mix tape tells a story. Put them together, and they add up to the story of life.
+ - But the rhythm of the mix tape is the rhythm of romance, the analog hum of a physical connection between two sloppy, human bodies.
+ - One of the best moments of any Liars show is hearing the crowd squawk ‘We’re doomed! We’re doomed!’ on cue during ‘We Fenced Other Houses with the Bones of Our Own.’ Maybe not the most uplifting audience sing-along in the indie rock world, but one of the most reliably entertaining.
+ - I get sentimental over the music of the ’90s. Deplorable, really. But I love it all. As far as I’m concerned the ’90s was the best era for music ever, even the stuff that I loathed at the time, even the stuff that gave me stomach cramps.
+ - Morrissey was my Mrs. Garrett, the house mother from the Facts of Life, a soothing adult figure giving me words of wisdom.
+ - Somtimes you lie in a strange room, in a strange person’s home, and you feel yourself bending out of shape. Melting, touching something hot, something that warps you in drastic and probably irreversible ways you won’t get to take stock of until its too late.
+ - It was bewildering and humbling to keep discovering how many brave things people can fail to talk themselves out of doing.
+ - I will always love the Clash, because I loved them so much when I was fourteen, and I love how you can start a conversation with almost literally any dude about the Clash.
+ - Sometimes great tunes happen to bad times, and when the bad time is over, not all the tunes get to move on with you.
+ - If the girls keep dancing, everybody’s happy. If the girls don’t dance, nobody’s happy.
+ - Anyone watching ‘30 Rock’ always knew Tina Fey was playing a fictionalized version of herself, a workaholic comedy writer who also plays one on TV. She’s the boss; Liz Lemon just works here.
+ - Every American wants a clean slate, but nobody wants to lose what they’ve got.
+ - That’s the secret of ‘True Blood’ – all the creatures that roam Bon Temps become a metaphor for our insatiable lusts and inner desires. Humans craving what they can’t have and those secret appetites transforming them into beasts, or even killers.
+ - Not being able to protect her from things was the most frightening thing I’d ever felt, and it kicked in as soon as we got together. With every year we spent together, I became more conscious that I now had an infinitely expanding number of reasons to be afraid. I had something to lose.
+ - The 2000s were the time when bromance became a kind of love that dared to speak its name. As a high-water mark of bro culture, nothing can ever top the MTV series ‘Bromance,’ with Brody Jenner and his search for a new BFF.
+ - Our lives were just beginning, our favorite moment was right now, our favorite songs were unwritten.
+ - One nice thing about growing up Catholic is it makes you open-minded about other people’s religions, since ours is nuttier than yours.
+ - I realize that I will never fully understand the millions of bizarre ways that music brings people together.
+ - There are all kinds of mix tapes. there is always a reason to make one.
+ - You’d think if anyone could charm America into caring about the evening news, it would be Katie Couric, the Tri Delt from Virginia who became America’s sweetheart on the ‘Today’ show. But her ratings have been dismal – she comes in last place every week.
+ - Like any teenager who reads The Great Gatsby, probably, I was madly in love with the teacher who had opened it up for me.
+ - Most of an award-show host’s job is showing up and keeping a cool head and soldiering through it, whether it’s the Oscars or the Hallmark Channel’s ‘Hero Dog Awards.’
+ - At an incredibly divisive point in pop history, Donna Summer managed to create an undeniable across-the-board experience of mass pleasure – after ‘Bad Girls,’ nobody ever tried claiming disco sucked again. It set the template for what Michael Jackson would do a few months later with ‘Off The Wall.’
+ - Rebecca Black might sing like a robot, but that’s just proof she has evolved beyond us. Her vocal is just a slightly exaggerated version of the robot glitch-twitch stutter that’s been mainstream pop vocalese for the past 10 years or so.
+ - We all get as miserable as Erika M. Andersen sometimes, but we rarely approach her musical-ideas-per-miserable-minute ratio.
+ - Donna Summer would be remembered as a ground-breaking artist today even if she’d retired the day after she recorded ‘I Feel Love’ in 1977.
+ - It’s always that one song that gets to you. You can hide, but the song comes to find you.
+ - On ‘Idol,’ Steven Tyler will be sitting at a table with two other judges, and part of his job will be keeping his yap zipped while they talk. This makes no sense at all, since Tyler has zero yap-zipping skills.
+ - I had no voice to talk with because she was my whole language.
+ - Ronnie Spector’s hair was taller and meaner and scarier than all four Shangri-La’s combined, plus the drummer from the Honeycombs. You just know her rat-tail comb was a switchblade.
+ - One of the billions of things I love about Beyonce: The harder she tries to come on crazy, the less crazy she sounds.
+ - Madonna was so flamboyant in terms of her look, her style, her public pronouncements, her religious taboo-smashing.
+ - You can hear the Celtic heartbeat all over Europe and America, from Bing Crosby to Jack White, from the Smiths to My Bloody Valentine, from House of Pain to Marky Mark and the Funky Bunch.
+ - Girls take up a lot of room. I had a lot of room for this one.
+ - It takes only one bad amp to turn your ears to oatmeal: That’s how old hippies became Yanni fans.
+ - The first season of ‘Community’ stumbled a bit because the plotlines too often veered into realism, but that is not a problem anymore. Not when prize episodes concern a campuswide blanket fort, or a secret garden with a magic trampoline.
+ - Hometown Aerosmith fans are different from other Aerosmith fans, and that mainly has to do with Joe Perry. It’s tough to overstate his strange grip on the local psyche. Tyler is a star who belongs to the whole world, but Perry, that dude belongs to Boston.
+ - Julia Louis-Dreyfus is just perfect in ‘Veep.’ She gets to show off the spiky claws beneath her patrician finesse. The obvious way to play ‘Veep’ would be to make Louis-Dreyfus a folksy heroine, one with more common sense or populist heart than her enemies. But she isn’t one.
+ - Like most fans of ‘So You Think You Can Dance,’ I wouldn’t know a pasodoble if it beat me with a rake.
+ - When you stick a song on a tape, you set it free.
+ - You can’t beat the beehive for glam punkette attitude.
+ - Celebrity despicability is a precious thing.
+ - I didn’t know what I was. I didn’t have a noun.
+
+73 quotes

@@ -1,0 +1,32 @@
+ - Forgiveness is a gift you give yourself.
+ - Visualize your ultimate goal and then do the work to make it happen.
+ - Cancer is not for sissies.
+ - It is difficult to get organic food at most restaurants, so when possible, eat at home. When not, do your best.
+ - All those spices and herbs in your spice rack can do more than provide calorie-free, natural flavorings to enhance and make food delicious. Theyre also an incredible source of antioxidants and help rev up your metabolism and improve your health at the same time.
+ - Reduce the stress levels in your life through relaxation techniques like meditation, deep breathing, and exercise. Youll look and feel way better for it.
+ - I saw pure love when my son looked at me, and I knew that I had to make a good life for the two of us...
+ - I made a lot of friends over the years and I would always look at what they were eating. All of them were skinny. I would think that I would like to eat like that.
+ - There are three types of chemotherapy that work for cancer. Testicular, like Lance Armstrong. Childhood leukemia, they’re doing great things. And lymphoma and non-Hodgkin’s.
+ - I have no bone loss, no brain loss, I have a lot of energy and a lot of strength, my heart is perfect so I think I ’m more ready than I would have been in my 20s, honest to God.
+ - Clean, tasty, real foods do not come processed in boxes or bags; they come from the earth, the sea, the field, or the farm.
+ - Forgive the person who has caused the most pain in your life and it will make you feel better.
+ - I happen to have the benefit of having a son-in-law who was the former Mr. France and a trainer. I like being his benefactor and I like the way he works.
+ - I started dieting. I dieted, dieted, dieted and tried all the diets and I would lose and then I would go back to normal eating and would put it on and then some.
+ - Around age 40 I put on twenty pounds. I had always had a perfect metabolism. But, my metabolism betrayed me as it does most people, except a very rare few who will always be thin.
+ - When people asked me what I did for a living, I told them I make pilots. They thought I was a stewardess.
+ - I actually have never been to a gym. I haven’t had time. I have been working for the last 25 years. I just don’t have time to put on a little outfit and go to the gym and work out and clean up and come home.
+ - When you breast feed your child, that breast milk that nature starts us out on has almost the same percentage of polyunsaturated, monounsaturated and saturated fat as butter. So nature clearly wanted us to have a high fat diet.
+ - You know, as long as you do everything in moderation, you don’t go overboard, you don’t, you know, turn your lips into guppy lips – I mean, a little zip or a little zap, that is not a big deal.
+ - I was told by six doctors over six days that they could start me on full-body chemotherapy. And I said, “If you know where I’m coming from, I’d rather die.”
+ - Sometimes, when you are in the public eye, you just really need to just be part of the crowd, and look at other people rather than other people look at you.
+ - Now I know that that is just the phenomena of eating this way. Most all of my letters say I hit a plateau and then one morning I woke up and the melt had happened.
+ - I don’t particularly gain water; I don’t have water retention.
+ - I have my hormones balanced. Most doctors are giving women synthetic hormones, which just eliminate the symptoms, but it’s doing nothing to actually replace the hormones you have lost. Without our hormones we die.
+ - I always knew how to cook and at one point in my career where I had done nine television pilots before Three’s Company and they all failed, I just got discouraged.
+ - What I really need is for people to know that I don’t just do this, I do this and this and this and this. We all have creativity in us and we all are multi-dimensional and we are all interested in a lot of things and that women are fabulous. We can handle a lot of things.
+ - I eat a lot. I eat three times a day and I snack.
+ - I was diagnosed with full-body cancer. I am the healthiest person you know. You know I do it all. I take vitamins. I grew my own food. I do everything. And it didn’t fit, and it was so awful.
+ - For years I have been going to the South of France to cool out.
+ - I started reading and talking and interviewing nutritionists and a thread was starting to form for me which is-a protein digests in a different rate of speed than a carbohydrate.
+
+30 quotes

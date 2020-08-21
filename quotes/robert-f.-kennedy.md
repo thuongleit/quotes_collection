@@ -1,0 +1,102 @@
+ - There are those that look at things the way they are, and ask why? I dream of things that never were, and ask why not?
+ - The purpose of life is to contribute in some way to making things better.
+ - Each time a man stands up for an ideal or acts to improve the lot of others or strikes out against injustice, he sends forth a tiny ripple of hope.
+ - Only those who have the courage to fail greatly achieve greatly.
+ - Fear not the path of Truth for the lack of People walking on it.
+ - Few will have the greatness to bend history itself; but each of us can work to change a small portion of events, and in the total; of all those acts will be written the history of this generation.
+ - Progress is a nice word. But change is its motivator. And change has its enemies.
+ - It is from numberless diverse acts of courage and belief that human history is shaped.
+ - This world demands the qualities of youth; not a time of life but a state of mind, a temper of the will, a quality of the imagination, a predominance of courage over timidity, of the appetite for adventure over the life of ease.
+ - In your hands lies the future of your world and the fulfilment of the best qualities of your own spirit.
+ - The future does not belong to those who are content with today Rather, it will belong to those who can blend vision, reason, and courage in a personal commitment.
+ - Some men see the world as it is and say ‘Why?’ I see the world as it could be and say, ‘Why not?’
+ - Let us dedicate ourselves to what the Greeks wrote so many years ago: to tame the savageness of man and make gentle the life of this world.
+ - Ultimately, America’s answer to the intolerant man is diversity, the very diversity which our heritage of religious freedom has inspired.
+ - Our attitude towards immigration reflects our faith in the American ideal. We have always believed it possible for men and women who start at the bottom to rise as far as the talent and energy allow. Neither race nor place of birth should affect their chances.
+ - Every time you stand up for an ideal, you send forth a tiny ripple of hope.
+ - There are people in every time and every land who want to stop history in its tracks. They fear the future, mistrust the present, and invoke the security of the comfortable past which, in fact, never existed.
+ - The future is not a gift: it is an achievement. Every generation helps make its own future. This is the essential challenge of the present.
+ - Every society gets the kind of criminal it deserves.
+ - Tragedy is a tool for the living to gain wisdom, not a guide by which to live.
+ - Courage is the most important attribute of a lawyer. It is more important than competence or vision. It can never be an elective in any law school. It can never be de-limited, dated or outworn, and it should pervade the heart, the halls of justice and the chambers of the mind.
+ - We can master change not though force or fear, but only though the free work of an understanding mind, though an openness to new knowledge and fresh outlooks, which can only strengthen the most fragile and most powerful of human gifts: the gift of reason.
+ - I believe that in this generation those with the courage to enter the conflict will find themselves with companions in every corner of the world.
+ - What is objectionable, what is dangerous about extremists is not that they are extreme, but that they are intolerant. The evil is not what they say about their cause, but what they say about their opponents.
+ - I’m tired of chasing people.
+ - Every society gets the kind of criminal it deserves. What is equally true is that every community gets the kind of law enforcement it insists on.
+ - The future is not completely beyond our control. It is the work of our own hands.
+ - People say I am ruthless. I am not ruthless. And if I find the man who is calling me ruthless, I shall destroy him.
+ - You’re happiest while you’re making the greatest contribution.
+ - I believe that, as long as there is plenty, poverty is evil. Government belongs wherever evil needs an adversary and there are people in distress.
+ - All of us might wish at times that we lived in a more tranquil world, but we don’t. And if our times are difficult and perplexing, so are they challenging and filled with opportunity.
+ - Too often we honor swagger and bluster and wielders of force; too often we excuse those who are willing to build their own lives on the shattered dreams of others.
+ - Each generation makes it’s own accounting to its children.
+ - Just because we cannot see clearly the end of the road, that is no reason for not setting out on the essential journey. On the contrary, great change dominates the world, and unless we move with change we will become its victims.
+ - The sharpest criticism often goes hand in hand with the deepest idealism and love of country.
+ - The greatest truth must be recognition that in every man, in every child is the potential for greatness.
+ - GDP does not allow for the health of our children, the quality of their education, or the joy of their play.
+ - He tells so many lies that he convinces himself after a while that he’s telling the truth. He just doesn’t recognize truth or falsehood.
+ - It is not enough to understand, or to see clearly. The future will be shaped in the arena of human activity, by those willing to commit their minds and their bodies to the task.
+ - Now I can go back to being ruthless again.
+ - If you never quit, youll never fail.
+ - I love this city. If I am elected, I’ll move the White House to San Francisco. Everybody’s so friendly.
+ - This much is clear: violence breeds violence, repression brings retaliation, and only a cleansing of our whole society can remove this sickness from our soul.
+ - We know that if one man’s rights are denied, the rights of all are endangered.
+ - Your life can be anything you want it to be.
+ - If our constitution had followed the style of Saint Paul, the First Amendment might have concluded: “But the greatest of these is speech.” In the darkness of tyranny, this is the key to the sunlight. If it is granted, all doors open. If it is withheld, none.
+ - Together, we can make ourselves a nation that spends more on books than on bombs, more on hospitals than the terrible tools of war, more on decent houses than military aircraft.
+ - Men and women with freed minds may often be mistaken, but they are seldom fooled. They may be influenced, but they cannot be intimidated. They may be perplexed, but they will never be lost.
+ - We develop the kind of citizens we deserve.
+ - Whenever men take the law into their own hands, the loser is the law. And when the law loses, freedom languishes.
+ - Since the days of Greece and Rome the word ‘citizen’ was a title of honor. We have often seen more emphasis put on the rights of citizenship than on its responsibilities.
+ - A life without criticism is not worth living.
+ - The Gross National Product measures everything except that which makes life worthwhile.
+ - I now know how Tojo felt when he was planning Pearl Harbor.
+ - If freedom makes social progress possible, so social progress strengthens and enlarges freedom. The two are inseparable partners in the great adventure of humanity.
+ - Courage is the most important attribute of a lawyer.
+ - It is the essence of responsibility to put the public good ahead of personal gain.
+ - Industrial agriculture now accounts for over half of America’s water pollution.
+ - While free markets tend to democratize a society, unfettered capitalism leads invariably to corporate control of government.
+ - In my judgment, the slogan “black power” and what has been associated with it has set the civil rights movement back considerably in the United States over the period of the last several months.
+ - I believe that, as long as there is plenty, poverty is evil.
+ - Each nation has different obstacles and different goals, shaped by the vagaries of history and of experience. Yet as I talk to young people around the world I am impressed not by the diversity but by the closeness of their goals, their desires and their concerns and their hope for the future.
+ - Nations around the world look to us for the leadership not merely by strength of arms but by strength of our convictions.
+ - All of us will ultimately be judged on the effort we have contributed to building a new world order.
+ - Men without hope, resigned to despair and oppression, do not make revolutions. It is when expectation replaces submission, when despair is touched with the awareness of possibility, that the forces of human desire and the passion for justice are unloosed.
+ - The natural state of a human being is dignity.
+ - Religion is a salve for confusion and misdirection.
+ - You knew that what is given or granted can be taken away, that what is begged can be refused; but that what is earned is kept.
+ - Change has its enemies.
+ - Too much and too long, we seem to have surrendered community excellence and community values in the mere accumulation of material things.
+ - I dream of things that are not and ask why not.
+ - One-fifth of the people are against everything all the time.
+ - Courage is the virtue that President Kennedy most admired. He sought out those people who had demonstrated in some way, whether it was on a battlefield or a baseball diamond, in a speech or fighting for a cause, that they had courage that they would stand up, that they could be counted on.
+ - It is immoral to see evil and not act on it.
+ - What happens to the country, to the world, depends on what we do with what others have left us.
+ - The enlargement of liberty for individual human beings must be the supreme goal and abiding practice of any western society.
+ - The intolerant man will not rely on persuasion, or on the worth of the idea. He would deny to others the very freedom of opinion or of dissent which he so stridently demands for himself. He cannot trust democracy.
+ - I think there is an obligation on the part of all of us to stay informed and aware.
+ - Every dictatorship has ultimately strangled in the web of repression it wove for its people, making mistakes that could not be corrected because criticism was prohibited.
+ - Yet it is the one essential, vital quality for those who seek to change a world which yields most painfully to change.
+ - I run because I am convinced that this country is on a perilous course and I have such strong feelings about what must be done.
+ - It is an unfinished society that we offer the world-a society that is forever committed to change, to improvement and to growth, that will never stagnate in the certitude of ideology or the finalities of dogma.
+ - I thought they’d get one of us, but Jack, after all he’s been through, never worried about it I thought it would be me.
+ - I was the seventh of nine children. When you come from that far down you have to struggle to survive.
+ - Victims of the violence are black and white, rich and poor, young and old, famous and unknown. They are most important of all, human beings whom other human beings loved and needed.
+ - My views on birth control are somewhat distorted by the fact that I was seventh of nine children.
+ - We in Government have begun to recognize the critical work which must be done at all levels-local, State and Federal-in ending the pollution of our waters.
+ - I am not one of those who think that coming in second or third is winning.
+ - Killing one man is murder. Killing millions is a statistic.
+ - The essential humanity of men can be protected and preserved only where government must answer, not just to the wealthy, not just to those of a particular religion, or a particular race, but to all its people.
+ - If communist unions ever gain a position to exercise influence in the transport lanes of the world, the free world will have suffered a staggering blow.
+ - Sometimes people think that because you have money and position you are immune from the human experience. But I can feel as lonesome and lost as the next man when I turn the key in the door and go into an empty house that is usually full of kids and dogs.
+ - I believe that as long as a single man may try, any unjustifiable barrier against his efforts is a barrier against mankind.
+ - The free way of life proposes ends, but it does not prescribe means.
+ - Punishment is not prevention. History offers cold comfort to those who think grievance and despair can be subdued by force.
+ - I love this city. If I’m elected, I will move the White House to San Francisco. I went to Fisherman’s Wharf and they even let me into Allioto’s. It may be Baghdad by the Bay to you, but to me it’s Resurrection City.
+ - Prejudice exists and probably will continue to ‘but we have tried to make progress and we are making progress. We are not going to accept the status quo.’
+ - After all, a bank without assets is hardly a bank at all.
+ - Perhaps to some extent we have lost sight of the fact that LSD can be very, very helpful in our society if used properly.
+ - It will help erase the idea that politics is a second-rate profession and a dirty business.
+
+100 quotes

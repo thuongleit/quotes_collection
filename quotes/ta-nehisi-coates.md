@@ -1,0 +1,33 @@
+ - The best part of writing is not the communication of knowledge to other people, but the acquisition and synthesizing of knowledge for oneself.
+ - Racism is not merely a simplistic hatred. It is, more often, broad sympathy toward some and broader skepticism toward others...
+ - If George Washington crossing the Delaware matters, so must his ruthless pursuit of the runagate Oney Judge.
+ - Two hundred fifty years of slavery. Ninety years of Jim Crow. Sixty years of separate but equal. Thirty-five years of racist housing policy. Until we reckon with our compounding moral debts, America will never be whole.
+ - The greatest reward of this constant interrogation, confrontation with the brutality of my country, is that it has freed me from hosts and myths.
+ - The standard progressive approach of the moment is to mix color-conscious moral invective with color-blind public policy.
+ - Just because you came here in 1880, 1950, whenever, you became an American. You get to celebrate July 4th like every other American. You don’t just get the good part. You get the bad part, too. You get all of it.
+ - I was a black boy at the height of the crack era, which meant that my instructors pitched education as the border between those who would prosper in America, and those who would be fed to the great hydra of prison, teenage pregnancy and murder.
+ - You can live in the world of myth and be taken seriously.
+ - The progressive approach to policy which directly addresses the effects of white supremacy is simple – talk about class and hope no one notices.
+ - What sets black people apart is not some deficit in personal responsibility. It’s the weight on our shoulders. That is what’s actually different. We have the weight and burden of history.
+ - All you need to understand is that the officer carries with him the power of the American state and the weight of an American legacy, and they necessitate that of the bodies destroyed every year, some wild and disproportionate number of them will be black.
+ - The essence of American racism is disrespect.
+ - To prevent enabling oppression, we demand that black people be twice as good. To prevent verifying stereotypes, we pledge to never eat a slice a watermelon in front of white people.
+ - I did not know then that this is what life is – just when you master the geometry of one world, it slips away, and suddenly again, you’re swarmed by strange shapes and impossible angles.
+ - The Knowledge Rule 2080: From maggots to men, the world is a corner bully. Better you knuckle up and go for yours than have to bow your head and tuck your chain.
+ - These were the days when I powerfully believed Breyers and Entenmann’s to be pioneers in the field of antidepressants.
+ - Is the Jewish race thriftier than the Arab race?
+ - Never forget that we were enslaved in this country longer than we have been free. Never forget that for 250 years black people were born into chains-whole generations followed by more generations who knew nothing but chains.
+ - What I am telling you is that you do not need to know to love, and it is right that you feel it all in any moment. And it is right that you see it through – that you are amazed, then curious, then belligerent, then heartbroken, then numb. You have the right to all of it.
+ - I am not asking you as a white person to see yourself as an enslaver. I’m asking you as an American to see all of the freedoms that you enjoy and see how they are rooted in things that the country you belong to condoned or actively participated in the past.
+ - Racism is, among other things, the unearned skepticism of one group of humans joined to the unearned sympathy for another.
+ - An America that looks away is ignoring not just the sins of the past but the sins of the present and the certain sins of the future.
+ - This feeling African-Americans have, this skepticism towards the police and the skepticism that the police show towards African-Americans is actually quite old. And it may be one of the most durable aspects of the relationship between black people and their country really in our history.
+ - When you have a policy of making sure that African Americans cannot build wealth, of plundering African American communities of wealth, giving opportunities to other people, it’s only right that you might want to, you know, pay that back.
+ - When nonviolence begins halfway through the war with the aggressor calling time out, it exposes itself as a ruse.
+ - Lot of folks like to mock dumb history, and pretend it’s just a few idiots. Isn’t. It’s the country.
+ - Barack Obama is the president of the United States of America. More specifically, Barack Obama is the president of a congenitally racist country, erected upon the plunder of life, liberty, labor, and land. This plunder has not been exclusive to black people. – Ta.
+ - I think, as a writer, I’m in my own head.
+ - Addressing the moral failings of black people while ignoring the centuries-old failings of their governments amounts to a bait and switch.
+ - Humans also tend to find community to be pleasurable, and within the boundaries of community relationships, words – often ironic and self-deprecating – are always spoken that take on other meanings when uttered by others.
+
+31 quotes

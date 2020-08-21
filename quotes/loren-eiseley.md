@@ -1,0 +1,67 @@
+ - If there is magic on this planet, it is contained in water.
+ - Each one of us is a statistical impossibility around which hover a million other lives that were never destined to be born.
+ - In the desert, an old monk had once advised a traveler, the voices of God and the Devil are scarcely distinguishable.
+ - As for men, those myriad little detached ponds with their own swarming corpuscular life, what were they but a way that water has of going about beyond the reach of rivers?
+ - The freedom to create is somehow linked with facility of access to those obscure regions below the conscious mind.
+ - It is a funny thing what the brain will do with memories and how it will treasure them and finally bring them into odd juxtapositions with other things, as though it wanted to make a design, or get some meaning out of them, whether you want it or not, or even see it.
+ - We cannot pluck a flower witout disturbing a star.
+ - I love forms beyond my own, and regret the borders between us.
+ - Each and all, we are riding into the dark. Even living, we cannot remember half the events of our own days.
+ - Modern man lives increasingly in the future and neglects the present.
+ - One does not meet oneself until one catches the reflection from an eye other than human.
+ - Once in a lifetime, perhaps, one escapes the actual confines of the flesh. Once in a lifetime, if one is lucky, one so merges with sunlight and air and running water that whole eons, the eons that mountains and deserts know, might pass in a single afternoon without discomfort.
+ - I am older now, and sleep less, and have seen most of what there is to see and am not very much impressed any more, I suppose, by anything.
+ - Like the herd animals we are, we sniff warily at the strange one among us.
+ - Man is always marveling at what he has blown apart, never at what the universe has put together, and this is his limitation.
+ - It has been asserted that we are destined to know the dark beyond the stars before we comprehend the nature of our own journey.
+ - We think we learn from teachers, and we sometimes do. But the teachers are not always to be found in school or in great laboratories. Sometimes what we learn depends upon our own powers of insight.
+ - Some degree of withdrawal serves to nurture man’s creative powers. The artist and the scientist bring out of the dark void, like the mysterious universe itself, the unique, the strange, the unexpected. Numerous observers have testified upon the loneliness of the process.
+ - We are rag dolls made out of many ages and skins, changelings who have slept in wood nests, and hissed in the uncouth guise of waddling amphibians. We have played such roles for infinitely longer ages than we have been human. Our identity is a dream. We are process, not reality.
+ - Without the gift of flowers and the infinite diversity of their fruits, man and bird, if they had continued to exist at all, would be today unrecognizable.
+ - We are one of many appearances of the thing called Life; we are not its perfect image, for it has no perfect image except Life, and life is multitudinous and emergent in the stream of time.
+ - Primitives of our own species, even today are historically shallow in their knowledge of the past. Only the poet who writes speaks his message across the millennia to other hearts.
+ - For the first time in four billion years a living creature had contemplated himself and heard with a sudden, unaccountable loneliness, the whisper of the wind in the night reeds.
+ - I am what I am and cannot be otherwise because of the shadows.
+ - What if I am, in some way, only a sophisticated fire that has acquired an ability to regulate its rate of combustion and to hoard its fuel in order to see and walk?
+ - I was a shadow among shadows brooding over the fate of other shadows that I alone strove to summon up out of the all-pervading dusk.
+ - In the days of the frost seek an minor sun.
+ - Every time we walk along a beach some ancient urge disturbs us so that we find ourselves shedding shoes and garments or scavenging among seaweed and whitened timbers like the homesick refugees of a long war.
+ - Every man contains within himself a ghost continent.
+ - Many of us who walk to and fro upon our usual tasks are prisoners drawing mental maps of escape.
+ - Over the whole earth- this infinitely small globe that possesses all we know of sunshine and bird song- an unfamiliar blight is creeping: man- man, who has become at last a planetary disease and who would, if his technology yet permitted, pass this infection to another star.
+ - At the core of the universe, the face of God wears a smile.
+ - Each man deciphers from the ancient alphabets of nature only those secrets that his own deeps possess the power to endow with meaning.
+ - The journey is difficult, immense. We will travel as far as we can, but we cannot in one lifetime see all that we would like to see or to learn all that we hunger to know.
+ - I am not nearly so interested in what monkey man was derived from as I am in what kind of monkey he is to become.
+ - The iron did not remember the blood it had once moved within, the phosphorous had forgot the savage brain.
+ - If it should turn out that we have mishandled our own lives as several civilizations before us have done, it seems a pity that we should involve the violet and the tree frog in our departure.
+ - Man no longer dreams over a book in which a soft voice, a constant companion, observes, exhorts, or sighs with him through the pangs of youth and age. Today he is more likely to sit before a screen and dream the mass dream which comes from outside.
+ - Man is dragged hither and thither, at one moment by the blind instincts of the forest, at the next by the strange intuitions of a higher self whose rationale he doubts and does not understand.
+ - After chiding the theologian for his reliance on myth and miracle, science found itself in the unenviable position of having to create mythology of its own: namely, the assumption that what, after long effort, could not be proved to take place today had, in truth, taken place in the primeval past.
+ - Lights come and go in the night sky. Men, troubled at last by the things they build, may toss in their sleep and dream bad dreams, or lie awake while the meteors whisper greenly overhead. But nowhere in all space or on a thousand worlds will there be men to share our loneliness.
+ - Tomorrow lurks in us, the latency to be all that was not achieved before...
+ - The secret, if one may paraphrase a savage vocabulary, lies in the egg of night.
+ - Subconsciously the genius is feared as an image breaker; frequently he does not accept the opinions of the mass, or man’s opinion of himself.
+ - The creature called man has a strange history. He is not of one piece, nor was he born of a single moment in time. His elementary substance is stardust almost as old as the universe.
+ - Mind is locked in matter like the spirit Ariel in a cloven pine. Like Ariel, men struggle to escape the drag of the matter they inhabit, yet it is the spirit that they fear.
+ - It is a commonplace of all religious thought, even the most primitive, that the man seeking visions and insight must go apart from his fellows and love for a time in the wilderness.
+ - It has been said that great art is the night thought of man. It may emerge without warning from the soundless depths of the unconscious, just as supernovas may blaze up suddenly in the farther reaches of void space.
+ - The future is neither ahead nor behind, on one side or another. Nor is it dark or light. It is contained within ourselves; its evil and good are perpetually within us.
+ - Fire, as we have learned to our cost, has an insatiable hunger to be fed. It is a nonliving force that can even locomote itself.
+ - It has been said repeatedly that one can never, try as he will, get around to the front of the universe. Man is destined to see only its far side, to realize nature only in retreat.
+ - It is frequently the tragedy of the great artist, as it is of the great scientist, that he frightens the ordinary man.
+ - When the human mind exists in the light of reason and no more than reason, we may say with absolute certainty that Man and all that made him will be in that instant gone.
+ - To have dragons one must have change; that is the first principle of dragon lore.
+ - Certainly science has moved forward. But when science progresses, it often opens vaster mysteries to our gaze. Moreover, science frequently discovers that it must abandon or modify what it once believed. Sometimes it ends by accepting what it has previously scorned.
+ - The plan is not what you think.
+ - Life, unlike the inanimate, will take the long way round to circumvent barrenness. A kind of desperate will resides even in a root.
+ - God knows how many things a man misses by becoming smug and assuming that matters will take their own course.
+ - There is nothing very ‘normal’ about nature.
+ - The great artist, whether he be musician, painter, or poet, is known for this absolute unexpectedness.
+ - It was the failures who had always won, but by the time they won they had come to be called successes.
+ - When man becomes greater than nature, nature, which gave us birth, will respond.
+ - You think that way as you begin to get grayer and you see pretty plainly that the game is not going to end as you planned.
+ - Choices, more choices than we like afterward to believe, are made far backward in the innocence of childhood.
+ - Man inhabits a realm half in and half out of nature, his mind reaching forever beyond the tool, the uniformity, the law, into some realm which is that of the mind alone.
+
+65 quotes

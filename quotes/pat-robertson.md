@@ -1,0 +1,126 @@
+ - Feminism is a socialist, anti-family, political movement that encourages women to leave their husbands, kill their children, practice witchcraft, destroy capitalism and become lesbians.
+ - The goal of the Christian is to grow up into Christ.
+ - The heart of man is “deceitful and desperately wicked.”
+ - There are demons and there are evil people in the world And you post a picture like that, and some cultist gets a hold of it or a coven and they begin muttering curses against an unborn child.
+ - You know, Saint Augustine said our hearts are restless ’til they rest in thee. And I had a restlessness in my heart. Something just wasn’t quite right.
+ - There’s no question that jihad historically means war.
+ - I know there are some Christians who believe that war and their participation in it are morally wrong. While I respect their views and must allow them to follow their consciences, I do not believe the Bible teaches pacifism.
+ - The real key to wealth is the gradual accumulation, it’s something Jesus talked about I call the law of use and you couple with the exponential curve.
+ - You’d have to be deaf, dumb, and blind to think that this earth that we live in only has 6000 years of existence. It just doesn’t.
+ - Mercy trumps justice.
+ - Adoptive parents are taking on enormous responsibility, both emotionally and financially. Quite frankly, they need as much disclosure as possible about the child’s background and health to assure the best fit and be prepared.
+ - Jesus Christ is a prince of peace. He told us to live in peace. He told us to love our enemies. He told us to do good to them that spitefully use us.
+ - I hate Alzheimer’s. It is one of the most awful things because, here is a loved one, this is the woman or man that you have loved for 20, 30, 40 years, and suddenly, that person is gone. They’re gone. They are gone.
+ - I have a zero tolerance for sanctimonious morons who try to scare people.
+ - I just think it’s shocking how many of these young people wind up in prison and they get turned into hardcore criminals because they had a possession of a very small amount of controlled substance.
+ - The wisdom of God’s Word is quite clear on believers being unequally yoked. And marrying someone who is not a Christian – who is not a daily disciple of Christ – is being unequally yoked, regardless of what their beliefs might be.
+ - Never place a comma where God has placed a period. God has spoken!
+ - Sickness and disease will be a part of life of this planet until Jesus comes back.
+ - The Antichrist is probably a Jew alive in Israel today.
+ - And it’s one thing to give people freedom and something else to deny the rights of Christians to assert their faith in order to keep Hindus from feeling upset.
+ - If you read back in the Bible, the letter of the apostle Paul to the church of Thessalonia, he said that in the latter days before the end of the age that the Earth would be caught up in what he called the birth pangs of a new order.
+ - Well the basic thesis is that there’s a god in heaven who is all powerful who wants to help people. And that – he will answer prayer, and does miraculous things in people’s lives. And so I’ve documented some of these wonderful things.
+ - Well, what was called the blessed hope of the Bible is that one day Jesus Christ would come back again, start a whole new era, that this world order that we know it would change into something that would be wonderful that we’d call the millennium.
+ - I cite in my book countless examples of the foundational documents of the colonial period in America and the writings of the leaders, that this was intended to be a Christian nation.
+ - In the eyes of the Associated Press, American Christianity, which springs from the Protestant Reformation, is fundamentalist. And Christian Fundamentalists, radical Muslims, Hindu extremists, and fanatical Zionists are all the same – bloodthirsty lunatics.
+ - I know one man who was impotent who gave AIDS to his wife and the only thing they did was kiss.
+ - I thought that communism, the tyranny of communism, was an abomination and I beseeched God to bring that terrible evil down and he did. It was a great triumph, it took awhile, but it happened.
+ - It seems to me the Washington Monument is a symbol of America’s power. It has been the symbol of our great nation. We look at the symbol and we say ‘this is one nation under God.’
+ - Satan is a tool of God’s love in the sense that he forces us to see God’s loving patience.
+ - Well, you know, Thomas Jefferson, who was the author of the Declaration of Independence said he wouldn’t have any atheists in his cabinet because atheists wouldn’t swear an oath to God. That was Jefferson and we have never had any Muslims in the cabinet.
+ - Women should listen and learn quietly and submissively. I do not let women teach men or have authority over them.
+ - God will judge people on the basis of what they did in light of what they knew.
+ - Those who are not Christians go to a place of suffering and torment called hell.
+ - I also pray for favor and His anointing on my life and ministry that I might have spiritual blessing when I minister to people. They’re my principal prayers; I don’t have a prayer list that I go down.
+ - Any woman who votes for no-fault divorce is like a turkey voting for Thanksgiving.
+ - You do not have to be in a church to be saved, but to continue in the things of God, you must be in some type of fellowship with other Christian people.
+ - I know this is painful for the ladies to hear, but if you get married, you have accepted the headship of a man, your husband. Christ is the head of the household and the husband is the head of the wife, and that’s the way it is, period.
+ - Well, actually, I manage a couple of stock portfolios or funds or whatever you want to call ’em, and I think I’ve done relatively well with them.
+ - Becoming active is the key remedy for depression.
+ - Of course there are peace-loving Muslims.
+ - You say you’re supposed to be nice to the Episcopalians and the Presbyterians and the Methodists and this, that, and the other thing. Nonsense. I don’t have to be nice to the spirit of the Antichrist. I can love the people who hold false opinions but I don’t have to be nice to them.
+ - My father was a lawyer.
+ - Our spirits are united with Jesus at salvation, but our minds are being progressively transformed into his nature.
+ - Dominican Republic is, is prosperous, healthy, full of resorts, etcetera.
+ - Islam is a violent, I was going to say religion, but it’s not a religion. It’s a political system. It’s a violent political system bent on the overthrow of the governments of the world and world domination. That is the ultimate aim.
+ - The Bible, and the peace that comes about through a continuous relationship with God are the best ways of knowing His will.
+ - And I think that George Bush really is a very godly person.
+ - I’m parodied as being some right-wing fundamentalist extremist, it just isn’t true. The parody doesn’t reflect reality.
+ - The average prison term for a convicted murderer in America is 6.5 years. The average tenure for a member of Congress is 13 years. We’ve got it backwards. We are giving early release to the wrong criminal class.
+ - I think we do want a front-runner from the Republican Party who can win the general election.
+ - In 1998, I founded the American Center for Law and Justice, probably the premier public interest law firm in America defending the rights of believers.
+ - Government was instituted by God to bring His laws to people and to carry out His will and purposes.
+ - Maybe we need a very small nuke thrown off on Foggy Bottom to shake things up.
+ - The problem we have in America is the systematic erosion of our religious values in an attempt by certain liberal groups to expunge our Christian heritage from the public square.
+ - When any civil government steps outside the mandate authorized by God Almighty, then that government does not have any further claim over its citizens.
+ - The rebuilding of Iraq has been terrible.
+ - Haiti is in desperate poverty.
+ - My friend Jerry Falwell was the one who said it, and he was a guest on my show, and it’s hard to take the blame for everybody who shows up on your show.
+ - The key in terms of mental ability is chess. There’s never been a woman Grand Master chess player. Once you get one, then I’ll buy some of the feminism...
+ - But there’s no reason why we should abdicate our foundational principles because certain groups don’t believe in them. You know, no majority should surrender its deeply held beliefs to those who don’t believe in anything.
+ - We don’t need a “New Covenant.” We need a new Congress.
+ - I’ve been to Israel many times – I’ve lost count of how many times.
+ - The evolutionists worship atheism. I mean, that’s their religion.
+ - I’ve personally backed off from direct political involvement.
+ - Homosexuals want to come into churches and disrupt church services and throw blood all around and try to give people AIDS and spit in the face of ministers.
+ - It’s just impossible to ignore the activists in your party. These are the people who stuff the envelopes, and walk the precincts, and make the telephone calls, and do all the so-called grunt work that brings about a successful campaign.
+ - The potential savings in the national budgets from the elimination of police, criminal courts, standing armies, pollution control agencies, drug enforcement, and many poverty programs is almost beyond calculation.
+ - After the Christian majority takes control, pluralism will be seen as immoral and evil and the state will not permit anybody to practice it.
+ - I have a relatively good track record.
+ - The Constitution was made for ordinary people.
+ - The Ten Commandments are the most visible symbol because these commandments are recognized by Christians and Jews alike as being the foundation of our system of public morality.
+ - But if there’s an erosion at home, you know, Thomas Jefferson warned about a tyranny of an oligarchy and if we surrender our democracy to the tyranny of an oligarchy, we’ve made a terrible mistake.
+ - Abortion’s a private decision. But I just think it shouldn’t be federalized.
+ - The Katrina matter was terrible.
+ - There’s an assault on human sexuality, as Judge Scalia said, they’ve taken sides in the culture war and on top of that if we have a democracy, the democratic processes should be that we can elect representatives who will share our point of view and vote those things into law.
+ - I think George Bush is going to win in a walk. I really believe I’m hearing from the Lord it’s going to be like a blowout election in 2004.
+ - Now you pray, and I’m going to pray for you that the Lord will speak to you.
+ - Like it or not, males have a tendency to wander a little bit. What you want to do is make a home so wonderful that he doesn’t want to wander.
+ - I can love the people who hold false opinions but I don’t have to be nice to them.
+ - Is there in all the history of human folly a greater fool than a clergymen in politics?
+ - The time will come when God has assembled a body of people who freely love Him, which will prove beyond any doubt that love is the most powerful force in the universe. With the triumph of love complete, God will then deal with Satan.
+ - Pope John Paul II stands like a rock against all opposition in his clear enunciation of the foundational principles of the Christian faith.
+ - We have enough votes to run the country. And when the people say, We’ve had enough, we are going to take over.
+ - You can imagine, if somebody’s approaching retirement, and all of a sudden the funds that he or she is depending on is depleted by 50% or however many, it gives them a sinking feeling in the pit of their stomach.
+ - They have kept us in submission because they have talked about separation of church and state. There is no such thing in the Constitution. It’s a lie of the left, and we’re not going to take it anymore.
+ - I really believe we should treat marijuana the way we treat beverage alcohol. I’ve never used marijuana and I don’t intend to, but it’s just one of those things that I think: this war on drugs just hasn’t succeeded.
+ - When I was in charge of the Christian Coalition I was available to mobilize grass roots support for somebody.
+ - I mean, George Bush is a man of prayer. He talks to the lord. He tries to get his direction from the lord.
+ - The courts are merely a ruse, if you will, for humanist, atheistic educators to beat up on Christians.
+ - I’m a person that just likes to speak the truth, and I don’t understand why in America it’s such a big deal that we won’t read the Koran and we won’t look at history.
+ - The founding document of the United States of America acknowledges the Lordship of Jesus Christ because we are a Christian nation.
+ - For decades, I have supported adoption, and have helped tens of thousands of children worldwide.
+ - It’s the tyranny of an oligarchy that I’m concerned about.
+ - But I never, never thought of the ministry nor did – of course, television when I was growing up, there was no television. So I didn’t know anything about it.
+ - The quickest way to recognize a cult is its treatment of Jesus.
+ - To say that it all came about 6,000 years ago is just nonsense, and I think it’s time we come off of that stuff and say this isn’t possible.
+ - I mean the terrorists are – are like a pimple, like a boil. They’ll go away.
+ - If you go all the way back to the days just following creation, men lived nine hundred years or more.
+ - Well – I was brought up as a Southern Baptist.
+ - I mean, if a person acts irresponsibly in his own life, he will pay the consequences. And it’s not so much divine retribution as it’s built into the law of nature.
+ - We don’t want a president who fails at domestic and foreign policy.
+ - I have friends who are Roman Catholics. I have friends who are Lutherans.
+ - McCain I’d vote against under any circumstance.
+ - Homosexuals are riding high in the media.
+ - The Islamic people, the Arabs, were the ones who captured Africans, put them in slavery, and sent them to America as slaves. Why would the people in America want to embrace the religion of slavers.
+ - Are we a Christian nation now? It’s doubtful. But did we start out as one? Without question.
+ - And these things are pretty much foundational: thou shall not kill, steal, bear false witness. All these things are embedded into the laws we enjoy in our nation.
+ - I think George Allen from Virginia was a distinguished governor, he’s a distinguished senator and head of the Senatorial Campaign Committee and won some significant victories. He is a very attractive guy and would make a tremendous president.
+ - We will see the presence of angels and we will see an intensification of miracles around the world.
+ - I think the Democrats are catering to them, but, you know, in the entire history of the United States of America, there has never been a judge who has been refused a vote when there was a majority of Senators willing to vote for his confirmation, never in history.
+ - I think ‘one man, one vote,’ just unrestricted democracy, would not be wise. There needs to be some kind of protection for the minority which the white people represent now, a minority, and they need and have a right to demand a protection of their rights.
+ - Whenever the civil government forbids the practice of things that God has commanded us to do, or tells us to do things He has commanded us not to do, then we are on solid ground in disobeying the government and rebelling against it.
+ - In Europe, the big word is tolerance. You tolerate everything.
+ - What I heard was that Bush is now positioned to have victory after victory. He’ll have Social Security reform passed, that he’ll have tax reform passed, that he’ll have conservative judges on the courts.
+ - There are thirty to forty thousand left-wing professors in the United States who are racists, murderers, sexual deviants and supporters of Al-Qaeda.
+ - You know, the Brits had a way of – running an empire. And I don’t think America is comfortable with an empire.
+ - Lord, give us righteous judges who will not try to legislate and dominate this society. Take control, Lord! We ask for additional vacancies on the court.
+ - The best way to know God’s will is to be familiar with the Bible.
+ - Homosexuals are like Judas: They look good in a robe, and their kisses are legendary.
+ - I’ve managed stations.
+ - There are times in history where a particular doctrine becomes a symbol of a greater problem.
+ - Every time the liberals pass a bill – I don’t care what it involves – they stick criminal sanctions on it. They don’t feel there is any way people are going to keep a law unless they can put them in jail.
+ - A government official is a man who has risen from obscurity to something worse.
+ - I am remarkably pleased with Obama. I had grave misgivings about him.
+
+124 quotes

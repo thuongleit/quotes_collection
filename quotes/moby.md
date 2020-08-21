@@ -1,0 +1,341 @@
+ - Nothing can stop us now ’cause we are all made of stars.
+ - Lord, I want to be up in my heart.
+ - And if we obey God, we must disobey ourselves, and it is in this disobeying ourselves, wherein the hardness of obeying God consists.
+ - I love nyc. It’s the city of my birth and probably the most amazing city on the planet.
+ - What fascinates me about addiction and obsessive behavior is that people would choose an altered state of consciousness that’s toxic and ostensibly destroys most aspects of your normal life, because for a brief moment you feel okay.
+ - For me my biggest inspiration is trying to make music that effects me as much as the music made by my heroes.
+ - I taught Bible Study, and there was period where I thought all of my beliefs were right, and everybody who disagreed with me was wrong.
+ - I think a lot of self-importance is a product of fear. And fear, living in sort of an un-self-examined fear-based life, tends to lead to narcissism and self-importance.
+ - A vegan who beats his wife is far further down the ethical ladder than a meat eater who’s kind to his children.
+ - Since I stopped drinking my love life has taken a really serious hit. Romantic encounters that seemed like a really good idea at three o’clock in the morning on the Lower East Side? Less so in sobriety.
+ - To truly live a creative life means that you will need to experiment in as many different fields as possible.
+ - Now small fowls flew screaming over the yet yawning gulf; a sullen white surf beat against its steep sides; then all collapsed; and the great shroud of the sea rolled on as it rolled five thousand years ago.
+ - The moment that you impose your will on another person or animal, that’s when we are allowed to say you have committed an ethical breach.
+ - I’ve experienced tons of failure. I’ve been making music for 30 years, and I’d say failure and success have happened in equal measure.
+ - If I spend 100 days in a row making music there’s a chance nothing will come of it. But if I spend 100 days not making music it’s guaranteed that nothing will come of it. So keep working.
+ - My goal with everything that I do is to present things in a way that I would want to see if I was in the audience or buying the record.
+ - Being a vegan is pretty easy these days, as almost every town and city has health food stores and vegetarian-friendly restaurants.
+ - I’d much rather go to a Banksy art show than a Moby art show. My art is painfully naive.
+ - To choose one type of music at the exclusion of another would feel kind of sad and arbitrary.
+ - When I was in my twenties, I thought I was bulletproof.
+ - It’s better to sail with a moody good captain than a laughing bad one.
+ - Doing interviews and touring are two ways that I can try to bring my music to people. It can be tiring, but it’s better than working at Burger King.
+ - Let peace and beauty reign.
+ - Better a loving single-parent family than a ‘conventional’ family where the parents hate each other and the father is a demagogue.
+ - There’s an aesthetic theme, which is cities at two o’clock in the morning. Not cities packed with people going out to clubs and dancing but desolate, empty streets. It’s off-putting but there’s a strange comfort to it as well, that desolate urban environment.
+ - Every single day the world seems like it is on the brink of falling apart. But then I look outside my window, and things look about the same as they did a week ago. It’s almost a form of cognitive dissonance.
+ - I like tea and yoga, but I don’t do yoga.
+ - Keep your weather eye open, and sing out every time.
+ - The strange thing about hotel rooms is that they look familiar and seem familiar and have many of the accoutrements that seem domestic and familiar, but they are really weird, alien and anonymous places.
+ - I feel like the vast majority of the world’s problems would disappear if suddenly everyone on the planet were relatively self-aware and capable of honest self-love and compassion.
+ - I’d strike the sun if it insulted me.
+ - The good thing about working alone is I get a lot done and I can experiment more. The bad thing is I miss out on the gregarious, social way that most musicians work.
+ - One of the main reasons I’m vegan is because I’m ethically lazy. My friends who eat meat or who eat eggs have to sometimes wrestle with the ethical consequences of their actions. By being vegan, I take the easy way out.
+ - I don’t think too much about how it might exist in the world in a commercial sense – I more just try and focus on making music that I love and trying to put it out into the world.
+ - It’s a very strange phenomenon being hated by people you’ve never met. Some journalists just seem to hate me and everything I do, and it’s disconcerting because I’ve never met this person.
+ - The term ‘renaissance man’ is always bandied about. I don’t think that applies to me. You think about Leonardo da Vinci, and he was a painter and a physicist and an architect, and that is a true renaissance man.
+ - I’ve been an animal rights activist and a vegan for 28 years. The entire time, I’ve asked myself: How do I best advance an animal rights agenda?
+ - Dogs have boundless enthusiasm but no sense of shame. I should have a dog as a life coach.
+ - All human belief systems are inherently flawed.
+ - So man’s insanity is heaven’s sense, and wandering from all mortal reason, man comes at last to that celestial thought, which, to reason, is absurd and frantic; and weal or woe, feels then uncompromised, indifferent as his God.
+ - I had an epiphany a few years ago where I was out at a celebrity party and it suddenly dawned on me that I had yet to meet a celebrity who is as smart and interesting as any of my friends.
+ - I like my coffee like I like my romantic partners: cold and bitter and prone to giving me anxiety attacks.
+ - The midlife crisis you’re having at 30 is indulgent, but the midlife crisis you have at 45 is to an extent thrust upon you.
+ - I like to quote Homer Simpson: ‘I’m like a chocoholic except for alcohol.’ I come from a long line of alcoholics. It’s funny because when I first started making records, I was at the tail end of a period of sobriety, so I somehow got this reputation as Captain Sober.
+ - There is a dysfunctional strangeness to Los Angeles that doesn’t exist in any other western city. The roads are crumbling, no-one knows what they’re doing, the city government barely works.
+ - But on a utilitarian level, I realize that to try to accomplish the greatest good for the greatest number of people, sometimes we have to become salesmen for what we believe, and part of being a salesman is being effective.
+ - You can sit down with Reason or Ableton and literally in a couple of hours make a very good-sounding record. But then a lot of people become contented with that, rather than pushing themselves to making something that sounds great.
+ - I’m not Catholic but the Virgin Mary fascinates me because she’s like a folk hero.
+ - Basically we should stop doing those things that are destructive to the environment, other creatures, and ourselves and figure out new ways of existing.
+ - I know, in my heart of hearts, I don’t do things for money.
+ - If one of my heroes comes to me and says, ‘Do you want to work on something?’ I just say, ‘Yes.’ I don’t ask for details; I don’t expect to get paid anything. I just love working with my heroes.
+ - There’s no wrong way to meditate. And meditation should never be a difficult practice that leads to self criticism.
+ - I truly don’t judge other people’s actions. But I think that factory farming is an abomination.
+ - For his sake I’m sorry that Robert Johnson sold his soul to the devil, but for our sake and the sake of music I’m glad he did.
+ - I saw people around me who were falling deeper and deeper into alcoholism and substance abuse. It’s seductive because alcohol is amazing and drugs are amazing, they work so well.
+ - Many of my friends back in New York and elsewhere have a glib or dismissive attitude toward Los Angeles. It’s a place of strip malls and traffic and not much else, in their opinion.
+ - When I was a drunk, New York was the greatest place in the world. You walk everywhere, everything is open until four in the morning, and people go to New York looking for debauchery.
+ - I would drink and drink and then at 3 o’clock in the morning take anything that was put in front of me. And I’d sometimes be disappointed when conventional things were put in front of me. Like, I’d do a line of something and be disappointed to find it was just cocaine.
+ - The average life expectancy of a celebrity is 20 years less than someone working in a coal mine.
+ - I wish I could sing. I don’t technically have a terrible voice, but it’s certainly not as good as most of my friends. Whenever I hear myself on a record, it just reminds me I’m not a very good singer.
+ - By being vulnerable, either with yourself or in the presence of another person, that’s where all growth and ultimate well-being comes from.
+ - I’ve dated attractive people and I don’t find a correlation between amorous enthusiasm and beauty and public figure status.
+ - When famous people are nice to me, it feels good, so I’m happy to hang out with them. It’s better than being at home, depressed, reading ‘The Hobbit.’
+ - How wondrous familiar is a fool!
+ - Sometimes I love the marriage of art and commerce; I love Donna Summer; I like the Rolling Stones.
+ - That softness around your eyes, a softness in your face. Almost the way you feel when you’re about to start crying. That, to me, is love. It can be romantic love, it can be friendship love, it can be family love, it can be love for a chipmunk. It can be love for anything.
+ - Can’t do any work with a rock star; you have to go through their lawyers and their agents and their managers and you have to book them hotel rooms. When you work with your friends, you just call them up and they come over and you record and then you go out to see a movie.
+ - I love lots of different types of music, but it’s music that has this up-swelling of beauty and emotion that is most important to me.
+ - More often than not, whenever gossip has been written about me, the gossip is more interesting than the reality. I know some public figures hate gossip, but personally I like it because it makes my life sound more glamorous and interesting than it really is.
+ - I will be very sad when global warming and toxins kill off all the toads and frogs and salamanders. Here’s hoping we, as humans, figure out a way to be less stupid.
+ - You know, if you love something, you should love it regardless of whether it costs five dollars or 500 or 5,000 dollars. Unfortunately, that’s not the way our culture works, and we do collectively buy into this idea that things that are more expensive probably have more value.
+ - I’m offended by the is-ought fallacy, which has been used to justify slavery, women not being allowed to vote, children working in factories.
+ - If we base our belief systems on the humble assumption that the complexities of the world are ontologically beyond our understanding, then maybe our belief systems will make more sense and end up causing less suffering.
+ - God took his chosen people and we are what’s left. He looked at what’s left and thought: I could kill you all, but let’s see what happens. A little social experiment.
+ - If someone is cynical and doesn’t vote and ends up with a crummy job in a crummy country with a decimated environment, they only have themselves to blame.
+ - The only sort of descriptive adjective or catch phrase for my music would be ‘eclectic.’
+ - It seems so antithetical to the teachings of Christ to proclaim your faith in public. I mean, of course you’re not supposed to hide your light under a bushel.
+ - Success usually breeds a degree of hubris.
+ - Actually, the most entitled people I’ve met are indie rockers and indie actors, because they really believe their press.
+ - My main interest is just to work with people who have beautiful, interesting, emotive voices; I’m not too concerned whether someone is famous.
+ - Whenever I’ve had success, I never learn from it. Success usually breeds a degree of hubris. When you fail, that’s when you learn.
+ - I remember I went to Berlin right after the Wall came down. I first went to East Berlin, and all the buildings were old and falling down, and now when you go back to Berlin, you know you’re in the East because all the buildings are brand new and very tall.
+ - My uncle is from Argentina, so I grew up hearing Spanish. My Spanish isn’t very good, but my pronunciation isn’t terrible.
+ - For me to speak out against the war in Iraq, you know – most of my fans are lefties anyway, so I don’t really get much flack for it.
+ - Because I’ve been that drunk person in the club so many thousands of times, when I’m in an environment where people are drunk or on drugs, I certainly don’t judge them. Because it’s almost a given that for much of my life I’ve been way more messed up than them.
+ - The worst case scenario is you really like someone’s work, then you meet them and they’re a self-involved, entitled douchebag.
+ - If a musician is making a mediocre, self-indulgent body of work, they have to know that, for the most part, people aren’t going to be interested.
+ - A great song is a great song, whether it’s on vinyl or CD or cassette or reel to reel or mp3. Then again, that might be an overly optimistic view, but I do think that great music will transcend the medium in which it is delivered.
+ - Traffic terrifies me.
+ - For better or worse, I’m interested in just about everything: every different type of music I can imagine. I can never see a reason to choose just one type of music at the exclusion of everything else. Different types of music are capable of being rewarding in different kinds of ways.
+ - When I went to university, I was a philosophy major, but because I’m not very bright I chose to study philosophy at a performing arts school, maybe because the philosophy program there wasn’t too rigorous or challenging.
+ - If I’m walking down the street and someone stops me and says, “Oh! A song that you wrote meant a lot to me, and I listened to it after I went to my sister’s funeral,” that’s when it hits me.
+ - I don’t think of myself as a singer; I usually end up singing when I can’t find anyone better to sing, or when I’m too lazy to find someone better.
+ - Music is just air moving around.
+ - I love the fact that no one’s ever bought my record because they were enamoured of the way I look. Maybe one person. There must be someone out there with compromised taste.
+ - A lot of people have realized that a good spiritual practice and a good meditation practice have real benefit. It’s not just something nice to do to make the universe happy.
+ - Maybe it’s a form of overcompensation, but whenever I’ve toured, I’ve always needed a huge performance component.
+ - If you don’t want to be beaten, imprisoned, mutilated, killed ot tortured, then you shouldn’t condone such behaviour towards anyone, be they human or not.
+ - What makes me vulnerable is any genuine expression of emotion in the presence of another person. It makes me vulnerable and my inclination is, of course, immediately to back away from anything that makes me vulnerable.
+ - NASA is an utterly fascinating place, and the fact that the buildings look so anonymous almost makes it more fascinating. You walk by a generic office-park-looking building, and you have no idea what’s going on inside.
+ - For some reason New York is the epicentre for people who hate me. Maybe this is another reason why I left New York but I get more hatred directed towards me there than any other place.
+ - I don’t sleep very well when I travel. And as a result, I tend to be awake in cities when everyone else is asleep.
+ - When I listen to gospel singers pouring their heart out to God, it’s the act of pouring their hearts out that interests me.
+ - I joined Facebook purely so I could play online Scrabble. You have eight tiles instead of seven, so you tend to have higher scores. I’m somewhere between 400 and 500.
+ - There is nothing terribly wrong with my face, even if some of its parts aren’t very inspiring.
+ - I’m sure most people have this experience: when you’re young you drink, you do drugs, you stay up late, and there are no consequences.
+ - Biologically we’re all the same. We all get sad, we all get happy, and we all die. Anyone who pretends that that’s not the case is either a sociopath or utterly delusional.
+ - In 1991 I did an interview wherein I described myself as a ‘teetotal Christian,’ which was an exaggeration, although I do like tea and Christ.
+ - I’m envious of people who can sleep as long as they want. I have the circadian rhythm of a farmer.
+ - I think that growing up very poor in a very wealthy town gave me a sense of being an outsider, and I hated it when I was growing up.
+ - I run into a lot of people who are instantly filled with ridicule at the idea that someone wouldn’t eat meat.
+ - The good thing about not being drop-dead gorgeous is that as time passes, I don’t have much to worry about. I have friends who are actors and every day they look in the mirror with trepidation.
+ - I think the word ‘blog’ is an ugly word. I just don’t know why people can’t use the word ‘journal.’
+ - I love the idea of making records that people can use, records that have a sense of utility.
+ - As people continue to do more and buy more over the Internet, continue to meet people over the Internet, connection speeds are going to get faster, and the Internet is just going to become an even more integral part of people’s lives.
+ - You could spend every waking moment online and still only experience one-trillionth of what’s out there. I find that a little overwhelming.
+ - One problem with a lot of musicians is that they remove themselves in a studio and make a record and assume people are going to pay attention to it just because they’ve made it.
+ - People assume that somehow fame and wealth will keep mortality at bay.
+ - I realized the universe is 15 billion years old and unspeakably complicated. I still love the teachings of Christ, but I also believe that the human condition prevents us from having any true objective knowledge and understanding of the universe.
+ - Call me a nerd if you like, but I do find it hard to leave home without my laptop and a good book.
+ - When I was growing up, all I wanted to do was fit in, but if you’re perpetually an outsider, it gives you a perspective that might have a little more objectivity than people who really feel connected to their social environment in which they grow up.
+ - We almost need to cultivate – I hate to sound New Age-y – but to cultivate a positive bias, and really work to focus on those things and notice those things that are wonderful and uplifting.
+ - What I love about making albums in the 21st century is that so few people buy albums! I can make an album without any commercial concerns whatsoever.
+ - Growing up in Connecticut, all the Colonial houses looked alike. In Los Angeles, the diversity is so extreme, it’s baffling.
+ - I love it when celebrities fall apart.
+ - My secret is being not terrible at a lot of things.
+ - In the course of my life, I’ve made some happy songs but it’s the more sort of like pathos-laden, emotional, melancholic music that either I make or that other people make that really resonates with me.
+ - At the risk of sounding pedestrian, I’ll be completely honest: the first thing I do in the morning is check Google News, partially because it seems sort of random and unbiased and partially because I tend to stay in hotels that don’t necessarily have the fastest Internet connections.
+ - I may be a lifelong ‘downtowner,’ but Central Park really is the most amazing and the most beautiful part of New York City.
+ - A part of me wants to sort of try and sound cool and feed this myth that I’m some sort of glamorous lothario, but I was raised by women – my mother and her mother and my aunts – and as a result, most of my friends have always been women.
+ - If you look at the history of popular music, the most successful musicians have started out being really marginal and esoteric. The Beatles and the Rolling Stones. Madonna. Prince. Bruce Springsteen. Fleetwood Mac. David Bowie. Public Enemy. Nirvana.
+ - My job of being a musician in a recording studio has nothing to do with being a musician being on tour performing.
+ - When playing big festivals, I tend to play big, over the top techno tracks, like hands in the air songs that make sense being played in front of 30,000 people. I steer away from subtlety in the interests of big bombastic dance music.
+ - I like being vegan, I think it’s good for my health.
+ - Luckily almost no one buys music anymore, so selling music doesn’t really affect any of my professional decisions.
+ - One of the goals of a spiritual practice is self-awareness, and one of the best tools of self-awareness is simple emotional vulnerability.
+ - Without David Bowie, popular music as we know it pretty much wouldn’t exist.
+ - If you make a record, you should ask yourself, ‘Did it make someone cry, in a good way, not a bad way?’ There should almost be subjective emotional criteria for evaluating work, instead of just profitability.
+ - When Britney shaves off all her hair and beats paparazzi with umbrellas – that’s what celebrities are supposed to do. They’re not supposed to be reasonable, middle-aged guys drinking organic tea talking about semiotics.
+ - I realized that I don’t like touring. I’ll never complain about it because no one wants to hear about a relatively successful musician complain about the hardships of staying in a hotel.
+ - To paraphrase Paul from the New Testament, he has a great soliloquy about love, where he’s basically saying, if I’ve figured out the secrets of the universe but I don’t have love, figuring out the secrets of universe means nothing.
+ - I grew up obsessed with science fiction, and when I was really young, I wanted to be a scientist.
+ - The truth is that genetics has robbed me of hair. But it’s not interesting to blame genetics.
+ - For my most of my career I’ve been a falling-down drunk. Most of my interviews were done hungover, and for a while it was great.
+ - You can’t find an uglier urban environment than the centre of Hollywood, but then you go to Griffith Park, you go to the beach, you go to the mountains, and it’s rural. I live up in the Hollywood Hills and I have frogs, owls, coyotes, mountain lions – but I’m ten minutes from the centre of the city.
+ - I honestly just love being in my studio working on music. That’s all the inspiration I need. And I don’t write with an end result in mind, I just write for the simple love of writing.
+ - I have nothing against bombastic music, but when it comes to making albums, I’d prefer to make music that has a sort of vulnerable subtlety to it.
+ - The young have to kill the old. The young, if they want to achieve their own platform, have to diminish the reputations of the ones that have gone before. That’s how life works.
+ - No one wants to be hated, in public, by lots of people.
+ - In the long, nonillustrious history of white people pilfering African American culture, have I just perpetrated that? I’m motivated by a love for the music and by a love of the performances, and I really hope I haven’t done anything bad.
+ - New York is such a competitive place; it tears people apart. People come here and, if they can’t make it in the first month, they get torn apart and they have to go back to where they came from. I don’t think that’s terribly healthy.
+ - I won’t complain about touring, because I really do believe that a public-figure musician complaining about being a public-figure musician is just absurd. Like, ‘Boo hoo hoo! I have to stand on stage and people pay attention to me!’
+ - Though in many of its aspects this visible world seems formed in love, the invisible spheres were formed in fright.
+ - I always just made music that resonates with me emotionally.
+ - If there is true evil in the world – it is Republican conservatives.
+ - What sounds good on the radio is really loud kick drums and loud snare drums, when everything’s bombastic and in your face. It’s the equivalent of a houseguest who screams all the time.
+ - I can spend years studying and being in therapy and having a very analytic spiritual meditation practice, but without the emotional component, without the softening that comes with love and vulnerability, everything else I do is really just surface.
+ - Over time, I started becoming more and more aware of the vastness and complexity of the universe, which led me away from any sort of conventional Christianity.
+ - The moment somebody becomes famous, 15 years gets knocked off their life. They’re gonna get divorced a few times, they’re gonna be addicted to things, they’re gonna be in therapy.
+ - For me, New York still ranks as the most beautiful and the most interesting city in the world. It is also the most varied in terms of the things it has to offer.
+ - When I saw music as a means to an end – more fame, more money, dating celebrities – that’s when things have gone terribly wrong. Now my life is focused on just trying to keep making music. Because when it’s really good, it’s just the most remarkable feeling on the planet.
+ - When I dj at big venues I try to play tracks that I would want to hear if I were e’d up in a field with 50,000 other people.
+ - There are so many musicians, friends of mine, who play shows for ten people a night, or always desperately wanted a record contract. So even if every person on the planet loathes me, I have nothing to complain about. My job is not a bad job, so I can’t complain.
+ - I still never get recognized. Small, bald white guys like myself – we all kind of look the same.
+ - The most emotional part is when I go into my studio every day and pretty much never have an idea of what’s gonna happen.
+ - I think that Eminem is very talented and remarkably bright, and I actually do like a lot of his music.
+ - It’s perfectly natural for me to sit down and talk about meditating and spiritual practice with my friends. But then I realize, how would it sound to a drunk cynical guy in London?
+ - God has taken his chosen people, the problem being you are the only non-chosen person.
+ - So in 1987 I gave up all animal products and became a vegan. Simply so that I could eat and live in accordance with my beliefs that animals have their own lives, that they’re entitled to their own lives and that contributing to animal suffering is something that I don’t want to be a part of.
+ - I met Elton John at an Interview dinner, and we just sort of became friends. He’s got such a wicked sense of humor.
+ - Research performed on animals is, by definition, scientifically unsound.
+ - I like noise. It’s always puzzled me why one of the goals of contemporary recording is to get rid of noise and to eliminate any element of a performance.
+ - Scotland is one of my favourite places to perform: it’s really something special. Scottish audiences are just so enthusiastic; their approach to dance music just feels similar to my own somehow.
+ - I think it’d be great if Prince made an album of just romantic, slow ballads.
+ - No one drives in Manhattan – in fact, many of the folks who live in Manhattan don’t even have driving licenses!
+ - When I do have time to work on music, I’m kind of selfish, and would rather work on my own stuff than someone else’s.
+ - I find myself for whatever reason unable to live in the apartment I renovate and have to sell.
+ - Because we find somethings distasteful is not justification enough for us to deem them criminal.
+ - It will be interesting to see what the long term fruits of our national apathy will be, ’cos so far they’ve been pretty foul.
+ - For years, my mom dated a man who was really active in the Baptist church in the town next to the town I grew up in, and so he used to drag me to these Baptist church services that lasted forever. I remember that I didn’t like the church services, but I really liked the music.
+ - I thought that my life would be spent working in a bookstore, teaching community college, and making music in my spare time that no one would be willing to listen to.
+ - I truly believe, as an institution, most major labels should just die.
+ - I’d rather be around broken people who have a degree of humility, and just get on with their work.
+ - I love that vinyl is actually growing in popularity, and that there are so many great record stores.
+ - I used to have a lot of envy for those musicians who have been universally loved.
+ - It just seems like musicians want to sell a few records and put out a perfume line, and I think it’s so sad that there are so many musicians who don’t want to change the world.
+ - One of the problems with being relatively conscious and human is that you want to help everybody.
+ - The reason I didn’t like cocaine is it made me do stupid things, have stupid conversations, and stay awake until 11 o’clock in the morning unable to think, read, sleep or speak.
+ - I wasn’t raised Catholic; I just really like the image of a neutral and benign Mary floating around somewhere, being nice to people.
+ - It takes a unique woman to see me as any sort of catch.
+ - We do all, myself included, we tend to hold ourselves to pretty low standards. But when it comes to judging public figures or politicians or people we’ve never met, we tend to hold people to very high standards, and, if we held ourselves to those standards, we’d always fall short.
+ - One of the central flaws in the state of contemporary music is that the major record companies have failed to incorporate that simple fact into their business plans. They’ve come into an industry that’s based on idiosyncratic artists and tried to erase every idiosyncratic aspect out of it.
+ - I was never encouraged to believe anything. I was brought up in a profoundly agnostic or pantheistic community.
+ - What makes me feel old is having no hair on the top of my head.
+ - The main thing that excites me and makes me want to get out of bed is the thought of being able to go into my studio to work on music.
+ - Music can always serve a role in people’s lives when it’s emotional and warm and inviting and beautiful.
+ - The solution probably doesn’t look like the problem. If we have this propensity to worry, to be anxious, to be depressed, to be angry – focusing on the worry, anxiety, depression, and anger? Probably not gonna be the solution.
+ - Oftentimes things that seem really difficult and traumatic in the short term seem a lot less difficult and traumatic in the long term.
+ - If someone writes a nice review of my record, I feel like I should take them out to dinner or go over and clean their apartment.
+ - When public figures think they can open a business even though they’ve got no business experience, it’s a bad idea.
+ - If you and I become vegans, the global consequences aren’t going to be that much. But if we can get a few hundred million people to become a little more aware and cut back on their animal consumption, the consequences will be great.
+ - I know it’s simple, but my main inspiration is just my love of music. I know that sounds overly naive. But it’s true.
+ - Up until I started working with him, I had thought that music was a nice thing that I enjoyed and liked making, but it wasn’t a serious healing modality. What Dr. Sacks has proven is that music is actually a quantifiable, profound healing modality.
+ - This isn’t like naming your dog Spot.
+ - I don’t have children, but I imagine if parents are really pushed on the subject, they probably have favorite children.
+ - As far as I’m concerned, the whole point of making music is to get it heard by as many people as possible.
+ - One simple word: ugh. Is something still considered a conspiracy if it’s played out right under our noses?
+ - I don’t think there’s anything wrong with not knowing how to play an instrument, but the rise of the non-musical producer has done away with musicianship and focused attention purely on the song’s hook.
+ - There are some public figures who are very private and almost hide behind their work. I try to be as open as possible.
+ - Shaving your head is acceptable. It’s when you start wearing toupees and brushing your hair over that things go wrong.
+ - There’s a fairly extensive network of musicians on tour who are all trying to stay sober, and we generally reach out to each other and offer support when and where we can.
+ - I have to say that being a vegan in 1986 or whenever was a lot different than being a vegan in 2012. You’d go to health foods stores and basically your choice was between Mung beans and nutritional yeast, and that’s about it.
+ - An artist in 2014 who is thinking about album sales is either sadly deluded or has to make so many commercial compromises that it sort of takes the joy out of making music.
+ - But when a man’s religion becomes really frantic; when it is a positive torment to him; and in fine, makes this earth of ours an uncomfortable inn to lodge in; then I think it high time to take that individual aside and argue the point with him.
+ - Musically, New York is a big influence on me. Walk down the street for five minutes and you’ll hear homeless punk rockers, people playing Caribbean music and reggae, sacred Islamic music and Latino music, so many different types of music.
+ - Have I dated a supermodel? Of course not. I’d look ridiculous.
+ - I wanted to have a title that wasn’t in English so that someone in France, for instance, could ask for ‘dix-huit’ or the someone in Japan could ask for ‘juhachi.’
+ - I’ve made records that everyone has hated and I’ve loved, and made records that everyone has loved and I’ve deemed, at best, mediocre.
+ - People love their favorite records. And I aspire to make a record someone might be able to love in that way.
+ - I think there are two types of photographers, those who want to document the world and those who want to create their own world. I am more interested in documenting the world and presenting it to people with the question attached, ‘Does this make any sense to you?’
+ - There are a lot of great animal rights organizations who save dogs and save cats, but the Humane Society is actually really good at working with Congress and getting legislation actually passed.
+ - The idea of feeling old is much more the worry of a slightly younger person. When you are getting old, that becomes – psssh – completely secondary to the absolute understanding of how short your life is.
+ - In the past I’ve had public feuds with people, and I have really not benefited from any of them. The feud with Eminem did kind of torpedo my career in the United States, but it also introduced me to Middle America in a way I never could have conceived of.
+ - My interest in gospel music and liturgical art and Biblically-inspired literature has nothing to do with organised religion and everything to do with human beings trying to figure out their place on this planet.
+ - When you’re signed to a big label you’re always in the position of convincing them, especially now because labels are barely keeping the lights on, so getting them to spend a little bit of money is really hard.
+ - Sit down, close your eyes, and think about dogs for ten minutes. On a very clear, physiological, and neurochemical level, your body is changed by these really positive thoughts.
+ - I feel like someone who’s meditating could possibly benefit their meditation practice and their well-being just by sitting down and thinking about things that they love for ten minutes.
+ - I’m like a bad musical cliche because I bring my guitar on the road and try to write songs in hotel rooms.
+ - But at the same time, I don’t let myself regret things to the point that I’m paralyzed.
+ - I’ve never seen ‘Friends;’ I’ve never seen ‘Seinfeld.’ I’ve heard people reference these things but I’ve never seen them.
+ - I read the New Testament, specifically the gospels and I was struck at their divinity, feeling that humans could not have figured this out on their own. We’re just not bright enough.
+ - There’s really no reason for any musician, writer, actor to ever take themselves seriously. If you work in a needle exchange, take yourself seriously. You’re doing good work. If you’re involved in hostage negotiations and saving lives, you can have a sense of entitlement.
+ - As a New Yorker you can’t help but be proud of the fact that so much music and culture started here. Punk rock, jazz, hip-hop and house music started here, George Gershwin debuted ‘Rhapsody in Blue’ here; the Velvet Underground are from New York.
+ - I love to be busy. I’m envious of people who are able to take their spare time and relax. All I like to do is work. Perhaps it’s lingering Calvinist guilt?
+ - When ‘Play’ first came out, journalists didn’t review it; it didn’t get radio play. And then it became this big successful record and, I hate to admit this, I found myself liking the fame. I bought into it.
+ - People who meditate and have a good spiritual practice, their immune systems are stronger. Generally, they are happier and healthier.
+ - There’s nothing in the actual Bible that limits a Christian in their appreciation of or interest in science. Anti-science is purely a function of ignorant fundamentalism.
+ - When I was very young, I played in a punk-rock band, but I also studied music theory and classical music.
+ - When I say, ‘I love Christ and love the teachings of Christ,’ I mean that in the most simple and naive way. I’m not saying I’m right.
+ - I remember New York in the ’80s as a place with vacant lots that would eventually give over to nature. Weeds would grow up, squirrels would move in. That entropy is gone now. It’s too expensive to let a vacant lot go natural.
+ - This whole world is run by brutes for the common and the stupid.
+ - I feel compelled to make art that on one hand reflects and sometimes almost creates like a sense of comfort when confronted with the strangeness of the world.
+ - There is a lot of music in the world that I love that does not always get the appropriate exposure.
+ - When I was growing up, I was the most pretentious person I have ever met. I only read obscure books and watched obscure movies and only listened to obscure music.
+ - I can’t think of any musician or producer who has influenced me more than Brian Eno. From when he was in Roxy Music, producing Devo, the Talking Heads and My Life in the Bush of Ghosts.
+ - I feel like people might be slightly less inclined to hate me as much as they did in the past, and I think part of that is selling fewer records.
+ - Since I was really little, I’ve just always had an obsession with, not just science fiction, but science and space. And also because as time passes and the more advanced science becomes, the more interesting it becomes.
+ - I feel like once the song is done, you put it out there and if people want to do bizarre remixes, if people want to make strange videos, great. You know, like chaos theory applied to the music business.
+ - You make mistakes and you learn from them.
+ - When I tour I’m going to countries to play music for people. My presence in a country is not an endorsement or a condemnation of that country’s policies. My presence in a country is an effort to connect with people through playing music.
+ - I always feel kind of absurd and presumptuous presenting a speech.
+ - I’d much rather go out and have music randomly presented to me by different DJs than stay home and discover it on my own.
+ - If you look at someone like Joe Strummer or John Lennon, when you heard their music you knew that they wrote it and they cared about it.
+ - I see ‘Ahab’s Wife’ as offering an alternative vision to.
+ - I’ve been making music for thirty-six years and, you know, I’m still just as in love with working on music now as I was thirty-six years ago.
+ - Personally I find the democratic chaos of the Internet fascinating, and for the most part really benign.
+ - If Nirvana had remained a small, underground punk rock band, Kurt Cobain would still be alive. And he’d probably be living in Seattle, getting kind of fat and balding, be relatively happy and producing records for other people.
+ - There are a lot of public figures who, before they take a stand on a issue, they talk about it with their publicist and they figure out how it’s going to affect record sales. Life is really too short to worry about that sort of thing.
+ - I’m a terrible cook, so I usually eat out with friends.
+ - I’ve been having a midlife crisis since I was four years old.
+ - I find London really exciting but there’s a lot of vicious success here. Like New York, there’s a lot of incredibly successful people who feel incredibly entitled, perhaps justifiably, but I don’t want to be around viciously entitled people.
+ - I sort of use as my guiding principle that show The Fall and Rise of Reginald Perrin. Whenever possible, do the stupid thing.
+ - I’m not sure how healthy it is to shoot police helicopters with bazookas.
+ - It’s heartbreaking that so many hundreds of millions of people around the world are desperate for the right to vote, but here in America people stay home on election day.
+ - David Lynch is my friend, and I love his movies and his art and his music. Few things make me happier than working with him.
+ - There was a time when I was way too reliant upon other people’s opinions and perspective of me. And I guess over time came to see how unhealthy that was. I mean it’s almost like a sign of mental illness to base your self-worth on the opinions of complete strangers.
+ - If I found myself married with children and had tons of puppies and a fun place to live, I imagine I’d be happier, but I kind of like being a little bit isolated and lonely.
+ - Sacha Baron Cohen is one of my heroes.
+ - Once the pathological low self-esteem goes, that’s when things go downhill.
+ - There are certain songs that if people come up to me and tell me how much that song meant to them, I think, You should have better taste, then, because I don’t really like that song.
+ - Whereas for me, touring tends to be a very strange and isolating experience.
+ - I’ve done the performing monkey stuff and massive breakdowns, it’s just they weren’t documented.
+ - For me, love is very non-academic. Love, it’s a very physical thing. I don’t mean physical in terms of – I mean, it can be sexual. But those moments when I’m aware of the fact that I love someone or love something, it really manifests physically.
+ - I’ve been making electronic music for twenty some odd years but, because I grew up playing in punk rock bands, when I started touring, I thought in order to be a viable touring musician I had to do it with a band. I would DJ or tour with a full rock band.
+ - My mother and I were on welfare and food stamps until I was 18, so I’ve always had this ethos of, like, ‘try and make a little bit of money now because you don’t know what’s going to happen tomorrow.’
+ - In a perfect world, I would be 6-foot-3 and have a perfect head of hair and look like Orlando Bloom.
+ - A lot of times good, pristine recordings prevent the listener from getting emotionally involved in the music.
+ - I’m obsessed with politics, and I talk about it any chance I can get. I have strong opinions about how the world should be run.
+ - I have actually found myself buying up more and more old analogue gear. I have this strange obsession with old drum machines.
+ - I don’t put a lot of pressure on myself when I’m writing. It feels like if I come up with something good, or I come up with something bad, I’m not too worried.
+ - I think we’re like farm animals before an earthquake.
+ - I’m perfectly happy for my videos to be on YouTube, whether I’m getting paid for them or not. If they’re on YouTube, people will see them. If for some reason my videos get taken down from YouTube, well, I apologize. If it was up to me they’d all be up there and they’d all be free.
+ - Musicians, actors, writers – we’re all neurotic, odd people who’ve lucked into accidental careers. So I just don’t like being around public figures with that sense of entitlement, it just seems unhealthy, and it strips so much potential for them to develop as a human being.
+ - Never have public feuds with anyone who’s surrounded by people who carry guns.
+ - One of the nice things about licensing music to movies or advertisements is you can reach a lot of people who normally wouldn’t hear music.
+ - The moment a career is on a quantitative downswing, your loathsomeness is sort of attenuated.
+ - It’s sometimes too easy to point fingers when circumstances dramatically go awry, but as an addict, I’m ultimately responsible for my own decisions, no matter how benign or tragic the consequences.
+ - I’m like a monk with a taste for hookers.
+ - Punishing people for listening to music is exactly the wrong way to protect the music business.
+ - I made a record in 1996 called ‘Animal Rights’ that was a very difficult, very dark punk-rock record. Of all the records I’ve made, it’s my favorite one. It’s also the one that got the worst reviews and sold the worst.
+ - There might be a lot of difference between Republicans and Democrats on key social issues like women’s rights and health care. But when it comes to taking corporate cash, they’re pretty much the same beast.
+ - When I was growing up I was an atheist, then an agnostic, and then I had a good eight or ten years of being quite a serious Christian.
+ - The demise of the monolithic record industry has been, for a lot of people, really liberating and emancipating.
+ - I find the fact that so few people buy albums to be strangely emancipating. There’s absolutely no reason for 99% of musicians making albums to think about actually selling albums. So as a musician you can just make an album for the love of making albums.
+ - Everyone feels awkward, everyone feels uncomfortable, everyone gets older, everyone gets lonely, everyone gets sick, everyone eventually dies.
+ - We need to finally accept that all sentient creatures are deserving of basic rights. I define basic rights as this -the ability to pursue life without having someone else’s will involuntarily forced upon you.
+ - I need an audience way more than an audience needs me.
+ - As music became more profitable in the 1990s, it seemed like it attracted a lot of people who were just interested in the financial aspect of it, which is depressing.
+ - A lot of people do talk about the demise of the album, but I still believe that if an artist tries hard to make a great album, people will buy it and listen to it as an album, rather than just a collection of random songs.
+ - New York has inspired more remarkable music than any other city I can think of.
+ - In some of the greatest recordings ever made, the performance is a part of the recording. Dylan’s ‘Rainy Day Women No. 12 and 35’ is all about the esthetic of that performance. You can hear the room.
+ - I’ve had my Charlie Sheen moments, it was usually just at the Mars Bar on the corner of First Avenue with me and a few homeless guys.
+ - I like singing, but it’s certainly not my strong point.
+ - My goal is to make one-not a hodgepodge, but just the sort of record that I would want to listen to.
+ - Most artists, you know, you spend their entire lives learning how to play music and write songs, and they don’t really know how the music business works.
+ - I was on food stamps until I was 18 and became an adult.
+ - As long as the world continues to be strange and interesting, I still want to take pictures of it.
+ - A lot of my friends who grew up in Manhattan have a strange phobia about Brooklyn. It’s big and scary and they get lost.
+ - I have no perspective as regards my work. One reason I put out records and books is people respond to it, and it enables you to actually see the work more clearly. It’s a form of therapy for me. Sometimes abusive therapy.
+ - I love going on tour and playing music for people.
+ - Moby lives the simplest of any person I think I know.
+ - I’m pretty much a realist. There’s a certain age you get to when you’re not really going to be shown anymore.
+ - I’m a weird, bald musician who makes records in his bedroom and lives in the Lower East Side.
+ - One of the reasons why fundamentalists are so aggressive in trying to promote fundamentalism is because deep down they know it’s arbitrary. If you’re comfortable with your belief you don’t need to convince other people to agree with you.
+ - I’ve had insomnia since I was a little kid and I never sleep well. Sometimes I sleep very badly and sometimes I sleep slightly badly. I get it especially when I’m on tour because you cross a lot of time zones, and I’m not very adaptable.
+ - Mainly I’m a vegan because I like animals, and I don’t want to be involved in their suffering. Also, it’s better for my health and for the environment.
+ - If I were to be really petulant, I would say New York is the one doing the betraying. Because the New York I fell in love with doesn’t really exist anymore.
+ - I’ve been friends with madonna for ever. In fact she was at my 3rd solo performance in 1990, and there were only 10 people in the audience.
+ - If I had to label myself now, I’d call myself a Taoist-Christian-agnostic quantum mechanic.
+ - All I want to do with my life is try and make music that I really love, and so every day I try and work on music.
+ - That is not all I need. I need dogs. A house filled with dogs and a smart, funny, kind, loving girlfriend or wife.
+ - Some of the songs I’ve made, I’m really disappointed in how I mixed them.
+ - There is a long and interesting tradition of really marginal left-field music that becomes commercially successful. And I will, for a brief minute, fit into that tradition.
+ - I buy things with the best of intention of living in them and then life intercedes.
+ - I did a cover of the James Bond theme, and I felt like such a fraud, because the original is so good.
+ - I don’t think I’m a particularly good writer, and I’m not terribly insightful.
+ - I guess the most emotional part is when I have that moment when I end up writing something that I really, really love. So not only is there the emotional connection with the music that’s being created, but there’s also the magic of the fact that you’re essentially creating something from nothing.
+ - When someone comes to me and says the music I’ve made has affected them emotionally, that’s the most gratifying part of my job.
+ - There’s not a lot of precedent for weird, bald musicians in the Lower East Side making records in their bedrooms and going on to sell a lot of copies of the record. Especially if you look at the pop climate.
+ - It’s enshrined in our Constitution that an individual has a right to release information and disseminate information that makes the powers that be uncomfortable.
+ - Whether the Virgin Mary existed, I don’t know. But the human need for her to appear in tortilla, that’s what inspires my interest.
+ - My records are fairly quiet and my dj sets are really loud. And then the live shows are like a robot soul revue. So i understand people’s confusion.
+ - I like the humility that comes from being hated. Hopefully some humility and compassion comes out of that.
+ - I have no patience for anyone who thinks they’ve figured things out, no patience for people who think they’re right at the expense of everyone else. The world is too connected and too complicated to conform to any of our rigid ideas of what it should be like.
+ - I’m just fascinated with the world that I can see, but I’m even more fascinated with the world that I can’t see.
+ - Somehow, magically, I’ve become an electronic musician, and I have a recording studio that looks like the bridge of the Enterprise.
+ - I don’t know many artists who are happy with themselves all of the time.
+ - I stopped drinking and realised New York still has a lot of charm, but it has become so bourgeois and affluent – and I can’t really complain because I’m sort of bourgeois and affluent myself, but I like living in a place where artists and musicians and writers can actually pay the rent.
+ - To quote Homer Simpson, alcohol is the cause and solution to all of life’s problems. I don’t think there’s anything wrong with drinking and drug use, if people can do it and not hurt themselves. But it got to the point where I was really hurting myself.
+
+339 quotes

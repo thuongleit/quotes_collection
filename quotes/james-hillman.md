@@ -1,0 +1,114 @@
+ - Psychology is ultimately mythology, the study of the stories of the soul.
+ - We forget that the soul has its own ancestors.
+ - You know, people come to therapy really for a blessing. Not so much to fix what’s broken, but to get what’s broken blessed.
+ - Tell me what you yearn for and I shall tell you who you are. We are what we reach for, the idealized image that drives our wandering.
+ - Anytime you’re gonna grow, you’re gonna lose something. You’re losing what you’re hanging onto to keep safe. You’re losing habits that you’re comfortable with, you’re losing familiarity.
+ - Yes, there’s genetics. Yes, there are chromosomes. Yes, there’s biology. Yes, there are environment, sociology, parenting, economics, class, and all of that. But there is something else, as well.
+ - Depression opens the door to beauty of some kind.
+ - Each person enters the world called.
+ - It’s important to ask yourself, How am I useful to others? What do people want from me? That may very well reveal what you are here for.
+ - Follow the lead of your symptoms, for there’s usually a myth in the mess, and a mess is an expression of soul.
+ - Until the culture recognizes the legitimacy of growing down, each person in the culture struggles blindly to make sense of the darkness that the soul requires to deepen into life.
+ - The easy path of aging is to become a thick-skinned, unbudging curmudgeon, a battle-ax. To grow soft and sweet is the harder way.
+ - Pathology is not a problem to be solved, but the soul’s way of working on itself.
+ - I’ve found that contemporary psychology enrages me with its simplistic ideas of human life, and also its emptiness.
+ - I’m cautious about a lot of words.
+ - Love alone is not enough. Without imagination, love stales into sentiment, duty, boredom. Relationships fail not because we have stopped loving but because we first stopped imagining.
+ - Food is so fundamental, more so than sexuality, aggression, or learning, that it is astounding to realize the neglect of food and eating in depth psychology.
+ - By seeing differently, we do differently.
+ - How can Hitler, or some other murderer, appear in this world? I don’t think any single theory can account for the phenomenon, and I think it’s a mistake to try to reduce it to being brutalized by your parents or having grown up in some horrible situation – like Charles Manson.
+ - Words, like angels, are powers which have invisible power over us...
+ - To hope for nothing, to expect nothing, to demand nothing. This is analytical despair.
+ - The moment the angel enters a life it enters an environment. We are ecological from day one.
+ - Each morning, we return from the dream soul trying to adjust to the day world, that moment when the two souls exchange places in the driver’s seat.
+ - If there were a god of New York, it would be the Greek’s Hermes, the Roman’s Mercury. He embodies New York qualities: the quick exchange, the fastness of language and style, craftiness, the mixing of people and crossing of borders, imagination.
+ - The idea of death robs inquiry of its passionate vitality and empties our efforts of their purpose by coming to one predestined conclusion, death. Why inquire if you already know the answer?
+ - Just stop for a minute and you’ll realize you’re happy just being. I think it’s the pursuit that screws up happiness. If we drop the pursuit, it’s right here.
+ - Attention is the cardinal psychological virtue. On it depends perhaps the other cardinal virtues, for there can hardly be faith nor hope nor love for anything unless it first receives attention.
+ - The gift of an image is that it provides a place to watch your soul.
+ - Loss means losing what was We want to change but we don’t want to lose. Without time for loss, we don’t have time for soul.
+ - I sometimes get short-tempered in a public situation because I think, Oh God, I can’t go back over that again. I can’t put that into a two-word answer. I can’t. Wherever I go, people say, “Can I ask you a quick question?” It’s always, “a quick question.” Well, my answers are slow.
+ - In the history of the treatment of depression, there was the dunking stool, purging of the bowels of black bile, hoses, attempts to shock the patient. All of these represent hatred or aggression towards what depression represents in the patient.
+ - We can’t change anything until we get some fresh ideas, until we begin to see things differently.
+ - The transfiguration of matter occurs through wonder.
+ - I see happiness as a by-product. I don’t think you can pursue happiness. I think that phrase is one of the very few mistakes the Founding Fathers made.
+ - Well, if I’m only a result of past causes, then I’m a victim of those past causes. There is no deeper meaning behind things that gives me a reason to be here.
+ - To see the angel in the malady requires an eye for the invisible, a certain blinding of one eye and an opening of the other to elsewhere.
+ - Character forms a life regardless of how obscurely that life is lived and how little light falls on it from the stars.
+ - Aptitude can show calling, but it isn’t the only indicator. Ineptitude or dysfunction may reveal calling more than talent, curiously enough.
+ - In the cosmology that’s behind psychology, there is no reason for anyone to be here or do anything.
+ - Many people nowadays who discover that they have a major symptom, whether psychological or physical, begin to study it. They get drawn very deeply into the area of their trouble. They want to know more than their doctor. That’s a curious thing, and not at all the way it used to be.
+ - Open your heart, your gaze, to the visitations of angels, even if the gifts they bring may not be centeredness and balance but eccentricity and a wholly unfamiliar sense of pleasure called joy.
+ - Instead of seeing depression as a dysfunction, it is a functioning phenomenon. It stops you cold, sets you down, makes you damn miserable.
+ - Our lives are determined less by our childhood than by the traumatic way we have learned to remember our childhoods.
+ - As Plotinus tells us, we elected the body, the parents, the place, and the circumstances that suited the soul and that, as the myth says, belongs to its necessity.
+ - Too many people have been analyzing their pasts, their childhoods, their memories, their parents, and realizing that it doesn’t do anything-or that it doesn’t do enough.
+ - The circumstances, including my body and my parents, whom I may curse, are my soul’s own choice and I do not understand this because I have forgotten.
+ - It’s the only way we can get out of being so human-centered: to remain attached to something other than humans.
+ - My goal is to create a therapy of ideas, to try to bring in new ideas so that we can see the same old problems differently.
+ - We vote for Perot. We think he’s a great, marvelous, honest man. We send money to his campaign, even though he is one of the richest capitalists in our culture. Imagine, sending money to Perot! It’s unbelievable, yet it’s part of that worship of individuality.
+ - The comic spirit masquerades in all things we say and do. We are each a clown and do not need to put on a white face.
+ - Many of our troubles are chronic. Life is chronic.
+ - Fear is a huge thing for older people.
+ - What I try to point out is the role an ordinary person can have in seeing the child’s destiny. You have to have a feeling for the child.
+ - Art, for example, becomes “art therapy.” When patients make music, it becomes “music therapy.” When the arts are used for “therapy” in this way, they are degraded to a secondary position.
+ - Our life is psychological, and the purpose of life is to make psyche of it, to find connections between life and soul.
+ - The psyche is highly flammable material. So we are always wrapping things in asbestos, keeping our images and fantasies at arm’s length because they are so full of love.
+ - Each of us needs an adequate biography: How do I put together into a coherent image the pieces of my life? How do I find the basic plot of my story?
+ - Beauty is something everybody longs for, needs, and tries to obtain in some way – whether through nature, or a man or a woman, or music, or whatever. The soul yearns for it. Psychology seems to have forgotten that.
+ - I am not caused by my history-my parents, my childhood and development. These are mirrors in which I may catch glimpses of my image.
+ - By setting up a universe which tends to hold everything we do, see, and say in the sway of its cosmos, an archetype is best comparable with a God.
+ - I think there is such a thing as a bad seed that comes to flower in certain people. The danger with that theory is that we begin to look for those “troublemakers” early on and try to weed them out. That’s very dangerous, because it could work against kids who are just routine troublemakers.
+ - I think we’re miserable partly because we have only one god, and that’s economics.
+ - Vessels expose the invisible Zeitgeist, the visible formed by the invisible.
+ - It’s a terrible cruelty of predatory capitalism: both parents now have to work. A family has to have two incomes in order to buy the things that are desirable in our culture. So the degradation of motherhood – the sense that motherhood isn’t itself a calling – also arises from economic pressure.
+ - I’m the result of upbringing, class, race, gender, social prejudices, and economics. So I’m a victim again. A result.
+ - Just stop for a minute and you’ll realize you’re happy just being.
+ - If you are still being hurt by an event that happened to you at twelve, it is the thought that is hurting you now.
+ - I can no longer be sure whether the psyche is in me or whether I’m in the psyche...
+ - I don’t think anything changes until ideas change.
+ - Without time for loss you don’t have time for soul.
+ - You don’t attack the grunts of Vietnam; you blame the theory behind the war. Nobody who fought in that war was at fault. It was the war itself that was at fault.
+ - It is impossible to see the angel unless you first have a notion of it.
+ - The word power has such a generally negative implication in our society. What are people talking about? Are they talking about muscles, or control?
+ - Too often in the west we fail to realize that even in eastern disciplines the spiritual life is not meant as an escape from the worldly life. There is karma to be fulfilled on earth, within the dharma of necessity.
+ - We cannot be studied or cured apart from the planet...
+ - I don’t think you can revive traditions on purpose.
+ - We dull our lives by the way we conceive them.
+ - The whole culture is under terrible pressure and fraught with worry. It’s hard to get out of that box. That’s the dominant situation all over the world.
+ - The culture is going into a psychological depression. We are concerned about our place in the world, about being competitive: Will my children have as much as I have? Will I ever own my own home? How can I pay for a new car? Are immigrants taking away my white world?
+ - The new age self-help phenomenon is pretty mushy, but it’s also very American. Our history is filled with traveling preachers and quack medicine and searches for the soul. I don’t see this as a new thing. I think the new age is part of a phenomenon that’s been there all along.
+ - You don’t know what you’re going to get into when you follow your bliss.
+ - From my perspective as a depth psychologist, I see that those who have a connection with story are in better shape and have better prognosis than those to whom story must be introduced.
+ - We approach people the same way we approach our cars. We take the poor kid to a doctor and ask, What’s wrong with him, how much will it cost, and when can I pick him up?
+ - All we can do when we think of kids today is think of more hours of school, earlier age at the computer, and curfews. Who would want to grow up in that world?
+ - Economics is a slave-driver. No one has free time; no one has any leisure.
+ - It’s better to go into the world half-cocked than not to go into the world at all.
+ - It’s very important for men to look downward, to the next generation.
+ - Psychology, so dedicated to awakening human consciousness, needs to wake itself up to one of the most ancient human truths: we cannot be studied or cured apart from the planet.
+ - In the past, friendship was a huge thing. But it’s hard for us to think of friendship as a calling, because it’s not a vocation.
+ - We are driven by the results of the Big Bang, billions of years ago, which eventually produced life, which eventually produced human beings, and so on. But me? I’m an accident – a result – and therefore a victim.
+ - Yes, we worship the idea of the “self-made man” – otherwise we’d go on strike against Bill Gates having all that money! We worship that idea.
+ - Any symptom can force you to go deeper into some area.
+ - We are human less by virtue of our ideal goals than by the vice of our inferiority.
+ - It’s not enough just to be a mother. It’s not only the social pressure on mothers by certain kinds of feminism and other sources. There is also economic pressure on them.
+ - Calling can refer not only to ways of doing – meaning work – but also to ways of being.
+ - It’s very hard to know what wisdom is.
+ - An individual’s harmony with his or her ‘own deep self’ requires not merely a journey to the interior but a harmonizing with the environmental world.
+ - We have to give value to authority. We have to give value to office, being in office, holding office.
+ - You may not become a celebrity. You may even experience lots of illness or divorce, or unhappiness. But I think there is still a thread of individual character that determines how you live through those things.
+ - We’re an air bag society that wants guarantees on everything that we buy. We want to be able to take everything back and get another one. We want a 401-k plan and Social Security.
+ - We need to get back to trusting our emotional rapport with children, to seeing a child’s beauty and singling that child out. That’s how the mentor system works – you’re caught up in the fantasy of another person. Your imagination and their come together.
+ - So when you consider the archetypal, historical, and cultural background of whatever you do, it gives you a sense that your occupation can be a calling and not just a job.
+ - I tend to think that you fulfill your own destiny, whether you realize it or not.
+ - When they talk about family values, it’s in a repressive way, as if our American tradition were only the Puritan tradition or the 19th century oppressive tradition. The Christian tradition.
+ - It’s very hard in our adversarial society to find a third view. Take journalism, where everything is always presented as one person against another: “Now we’re going to hear the opposing view.” There is never a third view.
+ - I know my own deficiencies, one of which is that I had lived away from America for such a long time. It’s called expatriate.
+ - Teachers today can’t take to a child.
+ - We need to work on the world so it will not be so oppressive.
+ - I don’t think anything changes until ideas change. The usual American viewpoint is to believe that something is wrong with the person.
+ - Whether we like it or not, men have more of the offices, more of the higher jobs, more of the seats in Congress. Men need to re-examine what their power is. We need to understand how to use it.
+ - Psychotherapy theory turns it all on you: you are the one who is wrong. If a kid is having trouble or is discouraged, the problem is not just inside the kid; it’s also in the system, the society.
+ - People used to trust their doctor. They went to an expert. Now people have new ideas and are thinking for themselves. That’s a very important change in our collective psychology.
+
+112 quotes

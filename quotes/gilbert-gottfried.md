@@ -1,0 +1,78 @@
+ - I think a lot of people have too much time on their hands.
+ - You never know what people will choose to be offended by.
+ - If someone else is paying for it, food just tastes a lot better.
+ - Off-camera, I sound like Perry Como.
+ - The joy of the roasts is to watch people get hurt and offended, and then have to laugh to pretend they’re a good sport.
+ - No, generally I think influence is used as a nice word for plagiarism.
+ - If I could cause world peace by taking someone out to lunch, I’d go, ‘Well, war isn’t that terrible.’
+ - A landlord is showing a couple around an apartment. The husband looks up and says, ‘Wait a minute. This apartment doesn’t have a ceiling.’ The landlord answers, ‘That’s OK. The people upstairs don’t walk around that much.’
+ - There are times when I’ve had ideas walking down the street that I thought were great, and the minute I got onstage, I would think of them and go, ‘Wow, that would never work,’ even before I did it in front of the audience.
+ - A man goes to the doctor for a check, and the doctor exams him and says I’ve got bad news, you’ve got cancer and alzheimers. The man goes Thank god I don’t have cancer.
+ - Well, I play Jews and parrots. Parrots are how I’ve branched out.
+ - You know what my theory is? Accept me or go to hell.
+ - I’d make Jack Benny look like a philanthropist.
+ - Comedy historians take note: this Gottfried character doesn’t have the best eye for detail – and, for a Jew, he doesn’t have the best eye for retail, either.
+ - In real life I’m a tall, blond Christian.
+ - I’ve never understood people who say they’re not a practicing Jew. You never hear a black guy say he’s not a practicing African-American. What does it even mean?
+ - If you’re a lead actor, people are just waiting to say ‘you’re too old’ or ‘you’re too unhip.’ If you’re a supporting actor, you can just work forever.
+ - I’ve never been one of those who wanted to fill my calendar up 90 percent of the time.
+ - I just don’t accept midgets as human beings. There’s only so much political correctness I can accept.
+ - At the Last Supper how come no one sat on the other side of the table? See, I think originally there were people sitting on the other side but those were the people going, You know, the air conditioning hits me right on the back on the neck.
+ - With me, traveling for work is arriving at the airport, checking into the hotel, leaving the hotel the next morning at 4 or 5 to do something like ‘The Jimmy and Jackie Captain Crazy Morning Zoo,’ doing a bunch of those in a row, then going back to the hotel, and then finally going to the club.
+ - Reality TV has totally destroyed soap operas. They’re gone. They used to be the biggest thing in the world – they’re gone.
+ - If you have the Old Testament at home, if you flip the corner pages, you can see Jesus riding a horse.
+ - Some comedians tell nice jokes that you can tell to your kids. Some use bad words – they work ‘blue.’ If you don’t want to hear a joke that’s blue, you shouldn’t go to a comedy club where a comedian who makes blue jokes is performing.
+ - I don’t know if I change my act from century to century. Sometimes I’m onstage doing imitations and references to people who have been dead for 50 years.
+ - I was the class podiatrist. I never made it to class clown. I wasn’t funny enough. I would examine feet and prescribe and ointment. It was a sad childhood.
+ - One pleasant surprise was when I interviewed Butch Patrick. I was expecting this bitter old drunk, and instead he had a total sense of humor about his career and his drinking and drug problem.
+ - I was talking to Jesus, and I said, Jesus, I feel like no one will ever accept me. And Jesus looked at me and said, You know what my theory is? Accept me or go to hell.
+ - R2D2 has gotten more work since “Star Wars” than Carrie Fisher.
+ - The ‘Phoenix Sun’ did a list of the unsexiest men in the world, and I made it to number one. I beat out Bin Laden. He’s a terrorist, hasn’t bathed in months. I beat him out. To me it was a great honor.
+ - With the Internet, if you erase something it just means you have to spend another half-minute to find it.
+ - Every time something pops in my head, I think twice about it and I do it anyway.
+ - My family originally lived in Brooklyn. Our first apartment was a little place above my father and uncle’s hardware store in Coney Island. Now, don’t get the impression that we were surrounded by merry-go-rounds, roller coasters and Ferris wheels. Nope, this was a little side street.
+ - I’m terrible when I have to fill up free time. My days, if I’m not working, I wake up and figure out a way to kill time until it’s time to go to sleep.
+ - Nothing can help my comedy.
+ - A lot of people who claim they’re political comedians are just comedians who have opinions. But they stop being funny the minute they give their opinions.
+ - I always try to avoid anything that has to do with my life.
+ - Back when Jerry Seinfeld was just another comedian hanging around the clubs, I’d imitate him to amuse myself and the other comics. The club owners would say, ‘What are you doing that for? Nobody knows him.’
+ - I just split up with my girlfriend, but like the Japanese say, ‘They’ll be another one floating by any minute now.’
+ - I can’t even find someone for a platonic relationship, much less the kind where someone wants to see me naked.
+ - I remember being at the premiere of ‘Beverly Hills Cop II’ and the tremendous reaction from the crowd outside, then going to a party at a hotel afterwards where the speakers were blasting ‘Shakedown,’ a song from the movie. That felt like a show biz moment to me.
+ - My Bubbie lived to 104, which is probably a little too old to consider a ripe old age, because she had already started to turn. I still say she died young.
+ - I’m one of those people, in any country I’m in, if somebody could just put me in a car or a bus, I’ll look out the window and say, ‘OK, there’s the Tower of London, there’s Buckingham Palace, there’s Big Ben,’ and if it all takes about five minutes, perfect. I’ve seen all of it and I can go home.
+ - People have many theories about comedy, but being just plain funny is the one most important thing.
+ - What do Japanese Jews love to eat? Hebrew National Tsunami.
+ - I’m known for my slightly inappropriate remarks.
+ - One thing I can take credit for, along with the rest of show business, is when the red ribbons were out, we cured AIDS. Any advancements that came towards fighting AIDS were not done by scientists or doctors – it was people with little ribbons on their lapels.
+ - I would show up at a party for Al Qaeda if you said there’s going to be a dinner.
+ - Every time I give a straight answer and read it in a magazine, I say, ‘Ouch.’ One day I’d like to talk to a psychoanalyst about why celebrities reveal so much of themselves in interviews.
+ - The pressure to being a comedian is being funny, but I’ve given that up, so there is no pressure whatsoever.
+ - I understand being less sexy than Osama bin Laden, but not less sexy than Carrot Top. That, I find offensive.
+ - Japan is really advanced. They don’t go to the beach. The beach comes to them.
+ - If they’d wanted a nice parrot, they wouldn’t have asked for me.
+ - When you watch Robin Williams, you can see a lot of Jonathan Winters. Robin is the first one to admit that; he worshiped Jonathan Winters.
+ - I always feel that most political jokes, if you’re going to do them, you have to do them within the next five minutes, or else they’re outdated. By the time you’ve got it to the point that it’s strong, it would be 12 years old.
+ - I think of Alan Thicke as Perry Como without the excitement.
+ - I sincerely apologize to anyone who was offended by my attempt at humor regarding the tragedy in Japan. I meant no disrespect, and my thoughts are with the victims and their families.
+ - I’m one of those people that picks up the remote control and just keep hitting constantly, even if I like the show I’m watching.
+ - I predict one of these two teams will win the Super Bowl.
+ - I found out about Jonathan Winters death a day after it happened. That seems wrong. A talent like his should be more revered. The world knew about Kim Kardashians divorce before she did.
+ - I’m a very anti-vacation person. Because I’m always getting on planes for work, to me, a vacation is when I don’t have to get on a plane.
+ - Unfortunately, I’ve never been mistaken as Johnny Depp.
+ - I’m eventually gonna take the Daryl Hannah parts.
+ - Any misfortune that happens to another person is funny. If it happens to someone else and not me, it’s very funny.
+ - I’ve done a lot of Fox shows since then – Married with Children, Living Single and a whole bunch of other Fox things.
+ - I wanted to be a brain surgeon, but I had a bad habit of dropping things.
+ - There definitely is exposure in reality shows, but the exposure will basically get you more reality shows.
+ - If someone says that I’m the best at anything, I always just agree with them. I’m certainly not gonna argue.
+ - I’d like to have a kid, but I’d probably get a Frank Sinatra Jr. instead of a Gilbert Gottfried Jr. I’d totally screw up like that.
+ - I changed the face of comedy. I used to be funny.
+ - I guess if they ever do a remake of ‘Sophie’s Choice,’ I could play the Meryl Streep part. I’ve got to work on my Polish accent. Maybe I’ll be the definitive King Lear one day. You know, if they ever feel that King Lear should be more Jewy.
+ - I find Washington audiences are basically the same as every other audience; they watch me and go, ‘Who’s idea was it to go see him? And is it too late to ask for my money back?’
+ - If the police ever try to pick me up, Michael Jackson told me I can hide out at his house.
+ - I personally think Miles Davis is a lot funnier than me. And he’s working more.
+ - There are certain things I don’t want to joke about. If it’s about somebody else, it’s fine. If it’s about me, I think it’s totally insensitive!
+ - I’m used to explaining to people why my jokes were funny.
+
+76 quotes

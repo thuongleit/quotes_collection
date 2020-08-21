@@ -1,0 +1,23 @@
+ - Satan’s number one weapon is pride. God’s number one defense is humility.
+ - Over commitment in business is usually due to a lack of faith, which results in fear – specifically, the fear of failure. But if we really believe God is in control, then we also should believe He’s able to make us successful while we are keeping our lives in balance.
+ - Perhaps nothing in our society is more needed for those in positions of authority than accountability.
+ - Always be ready to give a good testimony for the Lord, but remember that the best testimony a Christian can have is a love for others and good work habits.
+ - If you’ll do now what other people won’t, you’ll do later what other people can’t.
+ - The more we listen to God’s voice, the easier it is to recognize when He speaks to us.
+ - The one principle that surrounds everything else is that of stewardship; that we are the managers of everything that God has given us.
+ - Trusting God is the answer. He will never let you down.
+ - My greatest fear in life is standing before the Lord and hearing Him say, ‘I had so much more for you, but you held on too tightly.’
+ - Money is either the best or the worst area of communication in our marriages.
+ - When we surrender every area of our lives- including our finances-to God, then we are free to trust Him to meet our needs. But if we would rather hold tightly to those things that we possess, then we find ourselves in bondage to those very things.
+ - The black family unit that had survived 150 years of slavery was decimated in less than 30 years by welfare payments that stopped if the family structure remained intact.
+ - The measure of true giving is to share with someone who has no platform from which to speak and may never benefit us in any way. After all, isn’t that what true love is all about?
+ - Few Christians understand the concept of eternal rewards, even thought the Lord dedicated a great deal of His precious time on earth to teaching about them. The one certainty is that our position in the Lord’s kingdom will be inversely proportional to how we indulge ourselves in this lifetime.
+ - Decide that you’re going to love the people around you, even those you don’t particularly like – or perhaps especially those you don’t like.
+ - The cheapest car anyone can ever own is always the car they presently own.
+ - In business, organization is an absolute necessity, not an alternative.
+ - I drive a car till it turns to dust, then I sweep up the dust and ride on the dust.
+ - The average Christian pays more in interest than he gives to the Lord’s work. In a church of 100 families 37 will give nothing.
+ - The unwillingness to be accountable to a spouse makes most men, and now women, vulnerable to sin in their lives.
+ - It is amazing to me that we allow so many people with so little proven character to set our national policy on issues that will ultimately be paid for by the rest of us.
+
+21 quotes

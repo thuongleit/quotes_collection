@@ -1,0 +1,22 @@
+ - There is no medicine to cure a fool!
+ - Even the severed branch grows again, and the sunken moon returns: wise men who ponder this are not troubled in adversity.
+ - I have not wasted life, but life hath wasted me.
+ - Man is but a beast without it: such a glorious god is Learning.
+ - Idleness is a great enemy to mankind. There is no friend like energy, for, if you cultivate that, it will never fail.
+ - Knowledge is wonderful and truth serene But man in their service bleeds.
+ - Trees bend low with ripened fruit; clouds hang down with gentle rain; noble people bow graciously. This is the way of generous things.
+ - Fate’s sentence written on the brow no hand can e’er efface.
+ - Kindness can turn the bad man’s heart, and fools convert to wise, Make poison into nectar-juice, and friends of enemies.
+ - Trees loaded with fruit are bent down; the clouds when charged with fresh rain hang down near the earth: even so good men are not uplifted through prosperity. Such is the natural character of the liberal.
+ - The moth unwitting rushes on the fire, Through ignorance the fish devours the bait, We men know well the foes that lie in wait, Yet cannot shun the meshes of desire.
+ - Those from whom we were born have long since departed, and those with whom we grew up exist only in memory. We, too, through the approach of death, become, as it were, trees growing on the sandy bank of a river.
+ - For a moment man is a boy, for a moment a lovesick youth, for a moment bereft of wealth, for a moment in the height of prosperity; then at life’s end with limbs worn out by old age and wrinkles adorning his face, like an actor he retires behind the curtain of death.
+ - The pearl on my beloved’s neck, Afflicted sore the oyster!
+ - Let us keep a firm grip upon our money, for without it the whole assembly of virtues are but as blades of grass.
+ - The constant man loses not his virtue in misfortune. A torch may point towards the ground, but its flame will still point upwards.
+ - The good man shuns evil and follows good; he keeps secret that which ought to be hidden; he makes his virtues manifest to all; he does not forsake one in adversity; he gives in season: such are the marks of a worthy friend.
+ - Those who possess that treasure which no thief can take away, Which, though on suppliants freely spent, increaseth day by day, The source of inward happiness which shall outlast the earth – To them e’en kings should yield the palm, and own their higher worth.
+ - Three courses open lie to wealth, to give, enjoy, or lose, Who shrinketh from the former two, perforce the third doth choose.
+ - I’ve wandered over many lands, and reaped withal no fruit, I’ve laid my pride of rank aside, and pressed my baffled suit, At stranger boards, like shameless crow, I’ve eaten bitter bread, But fierce Desire, that raging fire, still clamours to be fed.
+
+20 quotes

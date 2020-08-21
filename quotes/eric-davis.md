@@ -1,0 +1,56 @@
+ - Life is too short to worry about anything. You had better enjoy it because the next day promises nothing.
+ - Life is too short to worry about anything.
+ - Never give up and don’t ask why because every situation does not need an answer. I’m a firm believer that I don’t worry about anything I can’t control.
+ - It’s easy to see why pitchers respect McGwire. If you hit behind him, they’re saying that they don’t respect you. You have to change their thinking.
+ - I don’t listen to what people say about me and I don’t read what they write about me. People can compare me to anyone they want to, but I’m not going to worry about it.
+ - Circulating through the children’s ward and seeing terminally ill kids, heads shaved, smiling and having a ball despite the tubes and needles sticking into them, I thought: What do I have to worry about? If God takes me, at least I’ve lived for 35 years.
+ - If you don’t believe in something, you’ll fall for anything. I believe everything happens for a reason. If you are strong from within, you can will anything. I’m a firm believer that where there’s a will, there’s a way.
+ - It takes a lot of energy to be negative. You have to work at it. But smiling is painless. I’d rather spend my energy smiling.
+ - Blessings can come in a number of ways. The Lord doesn’t give you what you want, the Lord gives you what you need.
+ - People spend time worrying about things they think they have to have and lose perception of what they do have. You can have all the money and material things you want. If you aren’t here to enjoy them, what good do they do?
+ - I’m having a good time. I’m going to treat every game and every day as if they are my last because I now know that they could be.
+ - I’m being compared to the impossible. I never saw Mays, Aaron or Clemente play. What about the people I face every day? Tim Raines is the best? Mattingly is the best? Why not compare me to my peers?
+ - I ate while I was taking chemo. The doctors didn’t know. I really didn’t get any nausea. I didn’t have side effects. I would be drained for a day and a half.
+ - I know people are pretty well embarrassed just at the mention of colon cancer. Sticking a tube in you to find out what’s wrong is not a nice thing. But I can tell them, a 30- or 40-minute test is worth it. We have to make them feel more comfortable about getting screened.
+ - I’m no different than others with cancer. I just happen to play professional baseball. I’m part of those statistics that cancer has touched as well.
+ - I’d never heard of colon cancer. Baseball wasn’t even important to me. I have a wife and two girls. That’s what was important. The doctors told me and all I could say was, ‘When are we going to get this thing out?’
+ - People saw me as being heroic, but I was no more heroic than I was with other injuries I had, like the lacerated kidney I suffered during the 1990 World Series. It’s just that people haven’t known anyone with a lacerated kidney, but everyone can relate to someone with cancer.
+ - Most of the places I’ve been, I’ve been a main piece of the puzzle.
+ - I don’t think any player lives up to his potential, because people out there put you so high on a pedestal, you’ll never be as good as they expect.
+ - If you’re feeling pressure, then you shouldn’t be here.
+ - I was hitting .360 when I was diagnosed. I didn’t forget how to play while I was recovering. I don’t know if the cancer is gone for good. I don’t think anyone ever knows, but no one is going to steal my joy for as along as I’m able to play baseball.
+ - You can’t shelter it. You can’t hide it. You have to let people know what you’re going through, what you’re feeling, what you think you have that’s a problem.
+ - I love the game, it’s the greatest game on earth, that’s why I can’t understand all of this talk about trying to make the game better. People talk about the high strike zone and changing this and that. Why? To speed up the game? That’s the beauty of baseball. There is no time element.
+ - I will be a role model for cancer patients for the rest of my life. But you know what? When I was getting chemo, those people inspired me.
+ - People always ask me how I can hit the ball so far, and I say, ‘I just swing.’ It’s the coaches who first told me I had good bat speed. I was just swinging, and I guess it was fast. I’m pretty fast at everything.
+ - I’ve been operated on 13 times.
+ - I was disappointed in everything – my start and the team’s start. People got down on me, but I never got down on myself. I still believed I could be the type of player everyone, including me, thought I was going to be.
+ - I don’t want to be famous. I want to be secure. I don’t want the world. I just want a piece of it. I want people to remember Eric Davis.
+ - Nothing I did contributed to me having cancer, so I can’t sit back and say, ‘Oh why me.’ Why not me? Why does tragedy always have to hit someone else?
+ - I remember in 1990, there were five of us making $3 million a year. When guys passed us, we didn’t cry. Why would we cry? You didn’t get mad when someone got $6 million. Or $8 million.
+ - I have figured out it’s not what you do on the field, it’s how many games you play in.
+ - I was able to get operated on four days after I was diagnosed. It was just a matter of getting this baseball-sized tumor out of me. I reflect now on how lucky I was to be in the situation where I could get the best possible help and treatment.
+ - I could’ve played basketball, but my mind was on baseball. I didn’t know what I was in for. In high school it was a matter of talent. No one told you what to do.
+ - My only goal is to play 162 games and help this team win. If I can do that, everything will take care of itself.
+ - The last two times I went to spring training, I had to win a job, and if I didn’t get off to a blazing start, I’m on the bench. Now, I’ve proven myself, so it’s not essential that I get off to a real good start.
+ - You don’t protect Mark McGwire. The only way to protect him is hit 70 homers yourself.
+ - I was fortunate to play for Pete Rose and have teammates like Ken Griffey Sr., Tony Perez and Dave Concepcion. I grew up in the game with a mature attitude. I’ve always known it was better to be seen and not heard.
+ - There’s only one Mark McGwire. The man walked over 160 times. Just think. If he walks 60 times, he might hit 100 homers.
+ - When you get back on the field and do things, any doubts you’ve developed leave. The more consistent you become, the fewer doubts you have.
+ - Come on, when does it come to the point where your name can’t come up in trade talks? Willie Mays got traded. Pedro Martinez got traded. So what? That’s part of the game.
+ - You can’t get more appreciation than that, to be elected by the fans. That’s the ultimate, really.
+ - I don’t even take aspirin.
+ - Baseball is not what I love. It’s my job.
+ - I’m not head-strong, and I’m not egotistical. I understand certain things better now. I won’t be trying to be play everyday. There’s only one Cal Ripken, one Lou Gehrig and one Joe DiMaggio. What is good for them isn’t necessarily good for Eric Davis.
+ - For me to become the highest paid player in the franchise, it was something I didn’t anticipate. But I’m glad. I like playing for Cincinnati.
+ - Not being re-signed in Baltimore was probably the lowest point, mentally, of my career. That city was the only place where I wanted to be at the time, based on everything that had transpired.
+ - That’s just my family’s mentality. We are a very loving, hugging and kissing kind of family. And we grew up in a church atmosphere and still have that atmosphere. There is no negativity.
+ - I’ve been hearing this since I first joined the Reds organization, that I’m going to be the next this or that. It’s tough on a young player coming up. You show some positive things and everybody jumps on that and says you should be the next Willie Mays.
+ - Everyone would like to play in their hometown, but right now I like Cincinnati, I like the way it’s going. I’m happy.
+ - The kids competed for a full 32 minutes. We want the kids to compete on every possession.
+ - Just putting my uniform on keeps me going. Being able to get out there keeps me going. That’s the best therapy.
+ - I tell you, revenge plays a big part in momentum down here.
+ - I want to establish myself as the first Eric Davis, not the next Willie Mays.
+ - I think we now come to the park expecting to win instead of playing not to lose.
+
+54 quotes

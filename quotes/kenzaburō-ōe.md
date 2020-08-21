@@ -1,0 +1,33 @@
+ - The ideal teacher student relationship exists when the student is better than the teacher.
+ - However, please allow me to say that the fundamental style of my writing has been to start from my personal matters and then to link it up with society, the state and the world.
+ - To be upright and to have an imagination: that is enough to be a very good young man.
+ - The destination of the soul: this is what I, led on by Nils Holgersson, came to seek in the literature of Western Europe. I fervently hope that my pursuit, as a Japanese, of literature and culture will, in some small measure, repay Western Europe for the light it has shed upon the human condition.
+ - It is the second job of literature to create myth. But its first job is to destroy it.
+ - I don’t think young people need to see the face of the deceased.
+ - I think, we can only write very personal matters through our experience. When I named my first novel about my son A Personal Matter, I believe I knew the most important thing: there is not any personal matter; we must find the link between ourselves, our personal matter, and society.
+ - After I got married, the first child born to us was mentally handicapped.
+ - From another point of view, a new situation now seems to be arising in which Japan’s prosperity is going to be incorporated into the expanding potential power of both production and consumption in Asia at large.
+ - I think I am doing my works to link myself, my family, with society – with the cosmos. To link me with my family to the cosmos, that is easy, because all literature has some mystic tendency. So when we write about our family, we can link ourselves to the cosmos.
+ - To talk of prayer after admitting he professed no faith was, in my opinion, a breach of common courtesy. In this sense, he did make a social blunder, for which I think he well deserved some minor castigation.
+ - Paradoxically, the people and state of Japan living on such moral props were not innocent but had been stained by their own past history of invading other Asian countries.
+ - In Japan itself there have all along been attempts by some to obliterate the article about renunciation of war from the Constitution and for this purpose they have taken every opportunity to make use of pressures from abroad.
+ - By reading Huckleberry Finn I felt I was able to justify my act of going into the mountain forest at night and sleeping among the trees with a sense of security which I could never find indoors.
+ - After the end of the Second World War it was a categorical imperative for us to declare that we renounced war forever in a central article of the new Constitution.
+ - It takes a person of great care and insight to watch for any abnormality in the green grass even while it grows abundantly and healthily.
+ - The people of Hiroshima went to work at once to restore human society in the aftermath of the great atomic flood. They were concerned to salvage their own lives, but in the process they also salvaged the souls of the people who have brought the atomic bomb.
+ - The dead can survive as part of the lives of those that still live.
+ - My observation is that after one hundred and twenty years of modernisation since the opening of the country, present-day Japan is split between two opposite poles of ambiguity.
+ - The Japanese chose the principle of eternal peace as the basis of morality for our rebirth after the War.
+ - The ambiguous orientation of Japan drove the country into the position of an invader in Asia.
+ - In the recent years there have been criticisms levelled against Japan suggesting that she should offer more military forces to the United Nations forces and thereby play a more active role in the keeping and restoration of peace in various parts of the world.
+ - The way Japan had tried to build up a modern state modelled on the West was cataclysmic.
+ - As I grew up, I was continually to suffer hardships in different realms of life – in my family, in my relationship to Japanese society and in my way of living at large in the latter half of the twentieth century.
+ - I am one of the writers who wish to create serious works of literature which dissociate themselves from those novels which are mere reflections of the vast consumer cultures of Tokyo and the subcultures of the world at large.
+ - If any suffering was fruitless it was the agony of a hangover; what he suffered now could not expiate suffering of any other kind.
+ - I have survived by representing these sufferings of mine in the form of the novel.
+ - Fundamentally a good author has his or her own sense of style. There is a natural, deep voice, and that voice is present from the first draft of a manuscript. When he or she elaborates on the initial manuscript, it continues to strengthen and simplify that natural, deep voice.
+ - Even though we now have the half-century-old new Constitution, there is a popular sentiment of support for the old one that lives on in reality in some quarters.
+ - There’s no better reading experience than going to the place where a text was written.
+ - Understanding comes hard to persons of high rank who are accustomed to phony lifestyles that involve no daily work.
+
+31 quotes

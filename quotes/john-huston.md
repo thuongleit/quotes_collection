@@ -1,0 +1,23 @@
+ - Trust your instincts, and take control.
+ - You walk through a series of arches, so to speak, and then, presently, at the end of a corridor, a door opens and you see backward through time, and you feel the flow of time, and realize you are only part of a great nameless procession.
+ - Even Michelangelo on his deathbed thought he’d done nothing to ennoble art. He wanted to destroy his work-the Pieta! And this from the greatest artist who ever lived. Of course I am not comparing my work to Michelangelo’s. But this eternal dissatisfaction of the artist is what I was talking about.
+ - I prefer to think that God is not dead, just drunk.
+ - I would spend more time with my children. I would make my money before spending it. I would learn the joys of wine instead of hard liquor. I would not smoke cigarettes when I had pneumonia. I would not marry a fifth time.
+ - Most people never have to face the fact that at the right time and the right place they’re capable of anything.
+ - I am more lost in wonder than ever.
+ - I don’t approve of censorship. I like the French theatre idea. Put on the play, and if the audience doesn’t care for it, or feels offended by it, they rip up the seats.
+ - Crime is a left- handed form of human endeavor.
+ - For sheer strength of character, I wouldn’t have dared to cross swords with Callas. I would rather have gone six rounds with Jack Dempsey.
+ - The directing of a picture involves coming out of your individual loneliness and taking a controlling part in putting together a small world.
+ - A work of art doesn’t dare you to realize it. It germinates and gestates by itself.
+ - What to do when inspiration doesn’t come; be careful not to spook, get the wind up, force things into position. You must wait around until the idea comes.
+ - A picture is made. You put a frame around it and move on. And one day you die. That is all there is to it.
+ - Whenever something is convenient or was modified after 1970, you probably shouldn’t use it as root.
+ - Once you have found the right shot to introduce the scene-written your first declarative sentence-then the rest flows. You’ve found the key to the whole scene.
+ - I Don’t Try to Guess What a Million People Will Like. It’s Hard Enough to Know What I Like.
+ - You’re good, you’re real good.
+ - Critics have never been able to discover a unifying theme in my films. For thatmatter, neither have I.
+ - When you make motion pictures, each picture is a life unto itself. When you finish and the picture is over, there’s an understanding, a realization that we’ll never be assembled this way again. That these relationships are severed forever and ever. And each of these films is a little life.
+ - I relieve myself from the rigours of directing by casting the movie correctly.
+
+21 quotes

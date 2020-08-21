@@ -1,0 +1,61 @@
+ - Did you do every single thing you could today, to be your best?
+ - It’s an individual sport, but collectively everybody shares the same motto that Ironman stands for: anything is possible.
+ - If you put your mind to something, if you give 100 percent, if you sacrifice, and if you dedicate yourself, anything is truly possible.
+ - If I have given my all and still do not win, I haven’t lost. Others might remember winning or losing; I remember the journey.
+ - If it wasn’t for my sport and my father, I’d probably be a fallen statistic. I’d be dead; I’d be in jail. Luckily, I had a great dad in my life.
+ - Every single experience, every single thing that’s happened in my life, struggle, obstacle, trials and tribulations, I think they’ve all molded me to become the character and the person who I am.
+ - My dad’s great. He’s my biggest supporter. He’s always told me that whatever I choose to do, I can do it. I just gotta put my mind to it.
+ - My mantra has always been to have zero regrets in life. Everything I do at one speed, I go all-out.
+ - For me, the ’60s in the automotive industry was awesome. The cars are heavy, huge, rolling works of art.
+ - I think we should all be pursuing something of zero regrets, and how do we become greater than we were yesterday.
+ - I tend to build bulk and muscle easily, and running seems to make sure I stay kind of stringy, if that makes sense.
+ - When there’s somebody racing side-by-side, when somebody’s right next to me and they’re pushing and we’re both tired, we’re both fatigued, I want to be able to beat them mentally.
+ - You can’t dwell on what happened. You can’t live even a moment stewing in bitterness.
+ - I think so many times we focus so much on just the end result when when we finally reach that point we realize that was never the true goal. That was never really what it was all about.
+ - It’s important to be driven and have goals. You want an independent woman who knows what she wants and isn’t afraid to go after it. It’s attractive to me when a woman is doing what she loves. It makes me want to know more.
+ - Japan, not only a mega-busy city that thrives on electronics and efficiency, actually has an almost sacred appreciation of nature. One must travel outside of Tokyo to truly experience the ‘old Japan’ and more importantly feel these aspects of Japanese culture.
+ - When I look at my life now and all the mistakes I’ve made, all the bad decisions I’ve made, all the things I could have done differently or done more in, I don’t think I would have changed anything.
+ - I can look into someone’s eyes and feel like I know her better, versus a phone call, where you can’t get that same type of emotion. That’s why text messaging gets you in trouble: You can’t bond, and emoticons explain only so much.
+ - My father is 100% Japanese and came to the United States when he was only 18 years old. My grandmother still resides in Japan, which has allowed me to travel to the roots of my ancestors with my father.
+ - When you watch a tea ceremony, every single movement, every single gesture is very calculated. It’s very precise, and it’s all protocol. It’s all a part of the system. And it’s almost like they’ve sacrificed every single thing to make that perfect. It’s like their craft.
+ - My first car was a Toyota 4Runner when I was 17. I paid for it myself. I was very happy.
+ - With speed skating, it’s like doing one-legged squats over and over again, with that one leg absorbing more than 80 percent of your weight. It takes an enormous amount of strength, and you’re in such a weird position.
+ - In school I studied international business and marketing, so I’ve always been attracted to business.
+ - I have a scar on my left thigh, kind of almost near my knee. I essentially fell in the 2002 Olympics and when I hit the wall – because of the impact – my right leg kind of came in at like a knife-type angle and stabbed my leg with my own skate blade.
+ - I believe my father has and always will be the strongest influence in my life, as he has guided me on many paths.
+ - I wanted to go back on ‘Dancing With the Stars,’ I did it. One of my favorite shows is ‘Hawaii Five-0.’ I went on, guest starred. I wanted to be in a film, did ‘Tasmanian Devils’ in Vancouver. Wanted to host a show, boom, did it.
+ - I’ve always wanted to play a role in inspiring people to be better, to live higher quality lives and to feel good about the way that they look and feel.
+ - Champions all get kicked when they’re down.
+ - Broadcasting is definitely in my cards for the future, and I’m determined to work hard at it – to perfect it and create my style and niche.
+ - I had a ton of energy, ran around like crazy – more than a handful for my dad. I was crazy. Dad barely handled it. I was never diagnosed ADHD or anything like that, but I’m pretty sure I had it when I was younger. It’s the only thing that would explain me getting into trouble all the time.
+ - My ‘go to’ workout is called the Asylum from Beach Body. It’s intense training with lots of intervals, core work. It’s hard! I travel a lot, so I can take it on the road with me and do it in a hotel room.
+ - Vancouver is an amazing city and luckily, growing up in the Seattle area, I was able to immerse myself into the culture at a young age, traveling back and forth across the border for skating competitions as a youngster.
+ - Michael Phelps is a good friend of mine, so I’m very supportive of him.
+ - I know exactly what I’m doing on the ice, and I’m in my element.
+ - I am a believer in nutrient timing and supplementation, through 8Zone. I love eggs, apples, wild fish, leafy greens, brown rice, pasta, oatmeal, home grown Washington Potatoes, and cooking with coconut and olive oils.
+ - My girlfriend has been the ice.
+ - I know that BMW is now a sponsor of the USOC – of the United States Olympic Committee – so they offer the use of their aerodynamic speed-tunnel for testing and such for the athletes, which is a great advantage. But to be honest with you, I’d rather have a free car!
+ - A lot of times, some of my best ideas happen when I’m running. That’s when I do my best thinking.
+ - I’ve been an athlete most of my life and on a disciplined schedule. Working out for me is just part of my every day.
+ - It’s just a goatee. That sounds kind of weird. A soul patch? I don’t know how ‘soul’ it is.
+ - Being a competitor, you always believe you can come back. I’ll be up at 3 in the morning watching World Cup races in my hotel whether I’m in Asia on a business trip or in New York City and have to get up in 2 hours.
+ - My dad always used to tell me that sometimes you have to have a massive storm in order to clear the sky.
+ - As I grow older, I have a growing curiosity about my other half. My dad did a wonderful job raising me, and I wouldn’t change it for the world, but at the same time there is a growing curiosity about my other half.
+ - On the ice, if I slow down, I can coast behind somebody for a couple of laps. If I slow down on the run, it’ll turn into a walk.
+ - I was always active as a child. My dad tried to place me in every sport imaginable. I had so much energy, he wanted to push me in a direction where that energy was used appropriately to keep me out of trouble and focused while I was in school.
+ - Olympic athletes have to find a job right after they’re done competing.
+ - When you reach that competing point, when you reach that time when the gun is about to go off, everyone’s level is pretty much the same. The one thing that’s going to separate you from everybody else is how you deal with those pressures, how you stay relaxed.
+ - An Olympic pursuit really takes a full three to four years of Olympic preparation.
+ - Who cares if somebody dances better? Doing my very best is rewarding internally.
+ - I could never focus on my upper body as a skater, so I’m enjoying having symmetrical upper and lower body muscle.
+ - Every Olympic athlete prepares differently. For me, I am 100 percent into the sport. And if I decide to really make a crucial career decision to say, ‘This is something I want to do,’ I want to leave no stone unturned in my preparation.
+ - I’ve always liked game shows – the competitive aspect and the character-driven personalities you see.
+ - I wanted to play football or be a boxer, but my dad didn’t want that because of all the impact. But in 1992 I was watching short track, and it was obscure, but they looked like superheroes in their tight outfits, and I thought it was amazing. I wanted to do that. I made the national team at 14.
+ - I rolled the second car that I ever owned, a Toyota 4 Runner. This was winter in Colorado, two weeks before the 2002 Olympic trials. I was driving in the outside lane, and my rear tire caught some black ice, and we totally turned sideways to the point where we were heading right toward the median.
+ - I was an avid swimmer and was state champ at age 12.
+ - Generally, speed skaters don’t run that much. I’m a little bit of an exception in that I run a lot.
+ - I think that Subway has shown their own personal commitment as a company and how they believe in healthy choices.
+ - Music to me is life. It’s what gets me going.
+ - When you are at the Olympic Games, it comes down to a ten thousandth of a hair between making the next round or winning a race or getting second or third.
+
+59 quotes

@@ -1,0 +1,44 @@
+ - Eagles commonly fly alone. They are crows, daws, and starlings that flock together.
+ - Whether we fall by ambition, blood, or lust Like diamonds we are cut with our own dust.
+ - I am Duchess of Malfi still.
+ - See, a good habit makes a child a man, Whereas a bad one makes a man a beast.
+ - Love mixed with fear is sweetness.
+ - Cowardly dogs bark loudest.
+ - Ambition, madam, is a great man’s madness.
+ - The misery of us, that are born great, We are forced to woo because none dare woo us.
+ - Is not old wine wholesomest, old pippins toothsomest, old wood burn brightest, old linen wash whitest? Old soldiers, sweethearts, are surest, and old lovers are soundest.
+ - The soul was never put in the body to stand still.
+ - I do love these ancient ruins. We never tread upon them but we set Our foot upon some reverend history.
+ - How tedious is a guilty conscience!
+ - That friend a great man’s ruin strongly checks, who rails into his belief all his defects.
+ - Cover her face; mine eyes dazzle. She died young.
+ - Though lust do masque in ne’er so strange disguise she’s oft found witty, but is never wise.
+ - A politician is the devil’s quilted anvil; He fashions all sins on him, and the blows are never heard.
+ - Lay this unto your breast: Old friends, like old swords, still are trusted best.
+ - Glories, like glow-worms, afar off shine bright, But looked to near, have neither heat nor light.
+ - Sorrow is held the eldest child of sin.
+ - In all our quest of greatness, like wanton boys, whose pastime is their care, we follow after bubbles, blown in the air.
+ - Do you not weep? Other sins only speak; murder shrieks out. The element of water moistens the earth, But blood flies upwards and bedews the heavens.
+ - Heaven fashioned us of nothing; and we strive to bring ourselves to nothing.
+ - Were there no heaven nor hell I should be honest.
+ - Lust carries her sharp whip At her own girdle.
+ - For the subtlest folly proceeds from the subtlest wisdom.
+ - That realm is never long in quiet, where the ruler is a soldier.
+ - When a man’s mind rides faster than his horse can gallop they quickly both tire.
+ - I have long served virtue, And never ta’en wages of her.
+ - Gold that buys health can never be ill spent, Nor hours laid out in harmless merriment.
+ - Knowledge Is Power! Train smart and obtain power!
+ - See, the curse of children! In life they keep us frequently in tears, And in the cold grave leave us in pale fears.
+ - Vain the ambition of kings Who seek by trophies and dead things To leave a living name behind, And weave but nets to catch the wind.
+ - Man is most happy, when his own actions are arguments and examples of his virtue.
+ - Physicians are like kings- They brook no contradiction.
+ - Poor maids have more lovers than husbands.
+ - When we prohibit others from being different, we end up forfeiting our own right to Liberty...
+ - All the damnable degrees Of drinking have you staggered through.
+ - How many ills spring from adultery? First the supreme law that is violated, Nobility oft stain’d with bastardy, Inheritance of land falsely possessed, The husband scorn’d, wife sham’d, and babes unbless’d.
+ - All things do help the unhappy man to fall.
+ - Imyself haveheard averygood jest, and havescornedto seem to have so sillya wit as to understand it.
+ - Woman to man Is either a God or a wolfe.
+ - Oh, yes, thy sins Do run before thee to fetch fire from hell, To light thee thither.
+
+42 quotes

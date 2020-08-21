@@ -1,0 +1,110 @@
+ - No great achiever – even those who made it seem easy – ever succeeded without hard work.
+ - Follow your passion. Nothing – not wealth, success, accolades or fame – is worth spending a lifetime doing things you don’t enjoy.
+ - True freedom requires the rule of law and justice, and a judicial system in which the rights of some are not secured by the denial of rights to others.
+ - God has given us many faiths but only one world in which to co-exist. May your work help all of us to cherish our commonalities and feel enlarged by our differences.
+ - The supreme religious challenge is to see God’s image in one who is not in our image.
+ - It is through exchange that difference becomes a blessing, not a curse.
+ - The Holocaust survivors are among the most inspiring people I have had the privilege to meet.
+ - Values are tapes we play on the Walkman of the mind: any tune we choose so long as it does not disturb others.
+ - The test of faith is whether I can make space for difference. Can I recognize God’s image in someone who is not in my image, who language, faith, ideal, are different from mine? If I cannot, then I have made God in my image instead of allowing him to remake me in his.
+ - In our interconnected world, we must learn to feel enlarged, not threatened, by difference – that is what I have argued.
+ - Happiness is not made by what we own. It is what we share.
+ - To defend a country you need an army, but to defend a civilization you need education.
+ - Make space in your life for the things that matter, for family and friends, love and generosity, fun and joy. Without this, you will burn out in mid-career and wonder where your life went.
+ - What creates freedom? A revolution in the streets? Mass protest? Civil war? A change of government? The ousting of the old guard and its replacement by the new? History, more often than not, shows that hopes raised by such events are often dashed, sooner rather than later.
+ - Some years ago there was a study to discover the most stressful occupation. It turned out not to be the head of a large business, football manager or prime minister, but rather: bus driver.
+ - Just as the natural environment depends on biodiversity, so the human environment depends on cultural diversity, because no one civilization encompasses all the spiritual, ethical and artistic expressions of mankind.
+ - There’s always hope. You can lose everything else in the world, but Jews never lose hope.
+ - Close to a billion people – one-eighth of the world’s population – still live in hunger. Each year 2 million children die through malnutrition. This is happening at a time when doctors in Britain are warning of the spread of obesity. We are eating too much while others starve.
+ - Faith is not a certainty. Faith is the courage to live with uncertainty.
+ - Science takes things apart to see how they work. Religion puts things together to see what they mean.
+ - Technology gives us power, but it does not and cannot tell us how to use that power. Thanks to technology, we can instantly communicate across the world, but it still doesn’t help us know what to say.
+ - Cyberspace can’t compensate for real space. We benefit from chatting to people face to face.
+ - If you want a free society, teach your children what oppression tastes like. Tell them how many miracles it takes to get from here to there. Above all, encourage them to ask questions. Teach them to think for themselves.
+ - Parenthood involves massive sacrifice: money, attention, time and emotional energy.
+ - We do not always appreciate the role the Queen has played in one of the most significant changes in the past 60 years: the transformation of Britain into a multi-ethnic, multi-faith society. No one does interfaith better than the Royal family, and it starts with the Queen herself.
+ - God’s forgiveness allows us to be honest with ourselves. We recognize our imperfections, admit our failures, and plead to God for clemency.
+ - The wisest rule in investment is: when others are selling, buy. When others are buying, sell. Usually, of course, we do the opposite. When everyone else is buying, we assume they know something we don’t, so we buy. Then people start selling, panic sets in, and we sell too.
+ - The world we build tomorrow is born in the stories we tell our children today. Politics moves the pieces. Education changes the game.
+ - When we love and make loving commitments, we create families and communities within which people can grow and take risks, knowing that hands will be there to catch them should they fall.
+ - When money rules, we remember the price of things and forget the value of things, and that is dangerous.
+ - In Judaism faith means wrestling with God as Jacob once wrestled with an angel...
+ - We should challenge the relativism that tells us there is no right or wrong, when every instinct of our mind knows it is not so, and is a mere excuse to allow us to indulge in what we believe we can get away with. A world without values quickly becomes a world without value.
+ - Religion survives because it answers three questions that every reflective person must ask. Who am I? Why am I here? How then shall I live?
+ - The first of the request prayers in the daily Amidah is a fractal. It replicates in miniature the structure of the Amidah as a whole.
+ - Freedom is not won by merely overthrowing a tyrannical ruler or an oppressive regime. That is usually only the prelude to a new tyranny, a new oppression.
+ - Religious ritual is a way of structuring time so that we, not employers, the market or the media, are in control. Life needs its pauses, its chapter breaks, if the soul is to have space to breathe.
+ - A perfect storm is in the making: financial uncertainty, economic downturn, government cuts, rising unemployment and a future that looks less clear the more we try to fathom it.
+ - Jews read the books of Moses not just as history but as divine command. The question to which they are an answer is not, ‘What happened?’ but rather, ‘How then shall I live?’ And it’s only with the exodus that the life of the commands really begins.
+ - Jews survived all the defeats, expulsions, persecutions and pogroms, the centuries in which they were regarded as a pariah people, even the Holocaust itself, because they never gave up the faith that one day they would be free to live as Jews without fear.
+ - Jews know this in their bones. Our community could not exist for a day without its volunteers. They are the lifeblood of our organizations, whether they involve welfare, youth, education, care of the sick and elderly, or even protection against violence and abuse.
+ - Jews have deep respect for the Queen and the royal family. We say a prayer for them every Sabbath in synagogue. We recite a special blessing on seeing the Queen.
+ - In virtually every Western society in the 1960s there was a moral revolution, an abandonment of its entire traditional ethic of self-restraint.
+ - The message of Passover remains as powerful as ever. Freedom is won not on the battlefield but in the classroom and the home. Teach your children the history of freedom if you want them never to lose it.
+ - In an ecology of love, people can relate in trust and face the future without fear. They do not need to play it safe. They can take uncertainty in their stride.
+ - The greatest single antidote to violence is conversation.
+ - If the history of the Day of Atonement has anything to say to us now it is: never relieve individuals of moral responsibility. The more we have, the more we grow.
+ - After the destructionofthe Second Temple Jewslived by an ancient and fundamental insight, that God does not live in buildings but in the human heart.
+ - The faith religious believers have in God is small compared to the faith people put in politicians, knowing how many times they have been disappointed in the past but still insisting that this time it will be different.
+ - The Hebrew Bible contains multiple provisions to ensure that no one would go hungry. The corners of the field, forgotten sheaves of grain, gleanings that drop from the hands of the gleaner, and small clusters of grapes left on the vine were to be given to the poor.
+ - I see in the rising crescendo of ethnic tensions, civilization clashes and the use of religious justification for acts of terror, a clear and present danger to humanity.
+ - People are feeling and sensing a return of anti-Semitism – even in Europe, which, seventy years after the Holocaust, is a very scary thing. I think they are feeling that Israel is very isolated and doesn’t always get what they see as fair treatment in the European media.
+ - We from every religion feel comfortable in Britain because there is a host. The Church of England is a good host, it has been a major force in shaping England into such a tolerant society.
+ - We need to rediscover the idea of the common good and work together to build a home.
+ - The twenty-first century is, and will remain, the Age of Insecurity.
+ - Frequent worshippers are also significantly more active citizens. They are more likely to belong to community organizations, especially those concerned with young people, health, arts and leisure, neighborhood and civic groups and professional associations.
+ - The market economy is deeply congruent with the values set out in the Hebrew Bible. Material prosperity is a divine blessing. Poverty crushes the spirit as well as the body, and its alleviation is a sacred task. Work is a noble calling.
+ - Find people not to envy but to admire. Do not the profitable but the admirable deed. Live by ideals.
+ - Yahoo has gone too far in wrongfully accusing us of a conspiracy that doesn’t exist. If they are having problems retaining engineers, they should be looking at the internal sources of employee dissatisfaction rather than trying to cover that up with this legal action.
+ - The Jewish festival of freedom is the oldest continuously observed religious ritual in the world. Across the centuries, Passover has never lost its power to inspire the imagination of successive generations of Jews with its annually re-enacted drama of slavery and liberation.
+ - In her religious role, the Queen is head of the Church of England, but in her civic role she cares for all her subjects, and no one is better at making everyone she meets feel valued.
+ - Europe is dying. That is one of the unsayable truths of our time. We are undergoing the moral equivalent of climate change and no one is talking about it.
+ - The universe is more than mere matter in motion. It and we were brought into being by a Creator who seeks our good.
+ - Giving is what makes a nation great.
+ - We have no idea where the world is going, except that it’s going there very fast.
+ - Those who believe that liberal democracy and the free market can be defended by the force of law and regulation alone, without an internalised sense of duty and morality, are tragically mistaken.
+ - The meaning of the universe lies outside the universe.
+ - Israel is a democratic state with an independent judiciary, a free press and a diverse population of many cultures, religions and creeds.
+ - Science will explain how but not why. It talks about what is, not what ought to be. Science is descriptive, not prescriptive; it can tell us about causes but it cannot tell us about purposes. Indeed, science disavows purposes.
+ - While everyone else is thinking about economics and politics, executive salaries and the future of the euro, do the opposite, even if it’s hard. Invest in the spirit.
+ - The royals – all of them, especially Prince Philip and Prince Charles – have done outstanding work with the faith communities.
+ - Islamophobia is a complex phenomenon.
+ - A Martian would think that the English worship at supermarkets, not in churches.
+ - The build-up of personal and collective debt in America and Europe should have sent warning signals to anyone familiar with the biblical institutions of the Sabbatical and Jubilee years, created specifically because of the danger of people being trapped by debt.
+ - Focus on the mind and the soul. Read. Study. Enrol in a course of lectures. Pray. Become a member of a religious congregation. Study the Bible or other ancient works of wisdom.
+ - Europe today is the most secular region in the world. Europe is the only region in the world experiencing population decline. Wherever you turn today the more religious the community, the larger on average are their families.
+ - Freedom begins with what we teach our children. That is why Jews became a people whose passion is education, whose heroes are teachers and whose citadels are schools.
+ - With wealth comes responsibility.
+ - Hope, even more than necessity, is the mother of invention.
+ - God is back and Europe as a whole still doesn’t get it. It is our biggest single collective cultural and intellectual blind spot.
+ - A society in which there are high levels of voluntary activity will simply be a better, happier place than one where there are not.
+ - If we are to cherish freedom, and to guard it, we must remember what the alternative is: the bread of affliction and the bitter herbs of slavery.
+ - Dreams are where we visit the many lands and landscapes of human possibility and discover the one where we feel at home. The great religious leaders were all dreamers.
+ - I think our people in Britain have a normative expectation of ethical conduct.
+ - While we can remember the past, we cannot write the future. Only our children, the future of our community, can do that.
+ - Volunteering has been undervalued in Britain for a long time. Often it has been seen as a kind of cut-price, amateur version of work that would be better done by the state. When politicians speak about it, people hear in the background the sound of budgets being cut.
+ - The evidence shows that religious people – defined by regular attendance at a place of worship – actually do make better neighbors.
+ - We have lots of heroes today – sportsmen, supermodels, media personalities. They come, they have their 15 minutes of fame, and they go. But the influence of good teachers stays with us. They are the people who really shape our lives.
+ - Governments cannot make marriages or turn feckless individuals into responsible citizens. That needs another kind of change agent.
+ - Marriage, sanctified by the bond of fidelity, is the nearest life gets to a work of art.
+ - Much can and must be done by governments, but they cannot of themselves change lives.
+ - Food prices are often kept artificially high. The result is that the Millennium Development Goals set out by the United Nations at the start of the new millennium are not being reached. Fine words have not yet been turned into deeds.
+ - Since Hiroshima and the Holocaust, science no longer holds its pristine place as the highest moral authority. Instead, that role is taken by human rights. It follows that any assault on Jewish life – on Jews or Judaism or the Jewish state – must be cast in the language of human rights.
+ - Peace can be agreed around the conference table, but unless it grows in ordinary hearts and minds, it does not last. It may not even begin.
+ - As the political leaders of Europe meet to save the euro and European Union, so should religious leaders.
+ - Since the 18th century, many Western intellectuals have predicted religion’s imminent demise.
+ - That this occurred at the launch of the report into the Labour Party’s recent troubles with antisemitism shows how deep the sickness is in parts of left of British politics today.
+ - Why did God create mankind? Because God likes stories.
+ - The people of Israel are entitled, as is any other nation, to live in peace and safety.
+ - Which European leader today would not relish the wonder-working powers of a Moses? Budget deficit? Unpopular cuts? How about just a little miracle, an overnight increase in gold reserves, a new oil field, or the next world-changing communications technology? Surely that’s not too much to ask.
+ - Man was not made for the service of economies; economies were made to serve mankind; and men and women were made – so we believe – to serve one another, not just ourselves.
+ - Religious law is like the grammar of language. Any language isgoverned by such rules; otherwise it ceases to be a language. But within them, you can say many different sentences and write many different books.
+ - Part of the beauty of Judaism, and surely this is so for other faiths also, is that it gently restores control over time. Three times a day we stop what we are doing and turn to God in prayer. We recover perspective. We inhale a deep breath of eternity.
+ - Religiosity turns out to be the best indicator of civic involvement: it’s more accurate than education, age, income, gender or race.
+ - Religion is the best antidote to the individualism of the consumer age. The idea that society can do without it flies in the face of history and, now, evolutionary biology.
+ - Faced with destruction, the Jewish people survived.
+ - ISIS is a terrorist entity whose barbarities have been condemned by all those who value our common humanity. In the current political climate, when hate crimes are rising and political rhetoric is increasingly divisive, this is all the more shocking.
+ - I do not want to suggest that you have to be religious to be moral.
+ - If we are to negotiate the coming years safely, we may need a new kind of leadership. To put it more precisely, we need the rediscovery of an ancient kind of leadership that has rarely been given the prominence it deserves. I mean the leader as teacher.
+
+108 quotes

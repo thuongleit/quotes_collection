@@ -1,0 +1,24 @@
+ - I’m very sensitive. It’s always been something I’m very in tune with. I am very emotional. Sometimes to the point of where I just want to hide away, because I can’t get a handle on myself.
+ - One of the biggest things I think we all can do is just try to live the best lives we can, and seek the best.
+ - One thing I’m recognizing more and more in myself – and looking to change – is going down more of a self-destructive path when I feel pain. I’m trying to avoid that as much as possible. That is an impulse, when I feel out of control.
+ - Knowing the right questions is better than having all the right answers.
+ - As life goes on I’m learning to trust myself more, so I am more comfortable – you have to be, doing things in front of people, especially when there’s lots of pressure. I have to make decisions.
+ - I have exes Im friends with and exes Im not friends with. It depends on what you decide together. I do think that sometimes trying to maintain that bond can be healthier than walking away.
+ - If we seek the most happiness we can as individuals, it sort of bleeds into other people’s lives.
+ - My interests lie in nurturing children. That’s part of the reason why the bullying thing has become an aspect of my life. I was bullied a lot growing up. I know firsthand the amount of life that is sucked out of you every time that happens, and how it affected me as a young adult.
+ - I do try to experience the emotions as they come, but sometimes it becomes just too much.
+ - Obviously when I’m put in a situation where there is a lot of attention on me, it’s this weird dichotomy – I like it, because I feel like I’m a natural born performer. But I do feel the most vulnerable.
+ - In a lot of ways, certain things, it feels like they’re never going to go away. The best thing to do is continue to ask questions, look that fear in the eye.
+ - I really like individualism based on truth. That’s something I try to think about. What do I actually think about that, what do I actually feel right now? As opposed what should I feel.
+ - I think children need to be nurtured for what they are as opposed to what you want them to be. I think that’s when those ideas come into your head of like, What should I feel in this moment? It’s because someone told you, “Your instinct was incorrect.” And you’re like, Why? Why is that wrong?
+ - I love women, and I just think that they’re great. I mean, yes, they can be a little nutty sometimes, but they’re great.
+ - As a kid, I was mischievous, necessarily, but I always wanted to do adventurous stuff.
+ - I hardly ever remember my dreams.
+ - Instead of spreading antagonism or hate, try to make a positive remark about something.
+ - I’m not really big into Twitter and stuff, but I like to post really cool music videos, just sort of spread a positive light on things that interest me. As opposed to, “I hate so-and-so because they were wearing the same hat as me.” That’s just so pointless.
+ - I feel like from a very early age, we know who we are as individuals. I love when I see parents with their kids in these crazy outfits and they’re like, “That’s what they wanted to wear.” Those small things are so important.
+ - If you have an ideal world, your actions should follow suit. And that will sort of hopefully spread.
+ - When you’re put in a position where you’re having to decide, Is this a good decision? Is this the right decision for everybody involved? – it makes me feel a little unsteady, unsure.
+ - If you have a solid friendship before dating, there’s this understanding that you can be just youBut you should still have fun hooking up!
+
+22 quotes

@@ -1,0 +1,57 @@
+ - People who are really serious about software should make their own hardware.
+ - It’s easier to invent the future than to predict it.
+ - Don’t worry about what anybody else is going to do. The best way to predict the future is to invent it.
+ - A change in perspective is worth 80 IQ points. Perspective is worth 80 IQ points. Point of view is worth 80 IQ points.
+ - Simple things should be simple and complex things should be possible.
+ - If you’re not failing 90% of the time, then you’re probably not working on sufficiently challenging problems.
+ - Perspective is worth 80 IQ points.
+ - Artificial intelligence is what we don’t know how to do yet.
+ - The most disastrous thing that you can ever learn is your first programming language.
+ - The only way you can predict the future is to build it.
+ - An important technology first creates a problem and then solves it.
+ - Lisp isn’t a language, it’s a building material.
+ - I had the fortune or misfortune to learn how to read fluently starting at the age of three. So I had read maybe 150 books by the time I hit 1st grade. And I already knew that the teachers were lying to me.
+ - Change is easy, except for the changed part.
+ - I hired finishers because I’m a good starter and a poor finisher.
+ - In computers, every ‘new explosion’ was set off by a software product that allowed users to program differently.
+ - The Internet was done so well that most people think of it as a natural resource like the Pacific Ocean, rather than something that was man-made. When was the last time a technology with a scale like that was so error-free? The Web, in comparison, is a joke. The Web was done by amateurs.
+ - If you’re utopian, you’re never satisfied.
+ - The biggest problem we have as human beings is that we confuse our beliefs with reality.
+ - Some people worry that artificial intelligence will make us feel inferior, but then, anybody in his right mind should have an inferiority complex every time he looks at a flower.
+ - School is basically about one point of view – the one the teacher has or the textbooks have. They don’t like the idea of having different points of view,...
+ - Humans are communications junkies. We just can’t get enough.
+ - If the pros at Sun had had a chance to fix Java, the world would be a much more pleasant place. This is not secret knowledge. It’s just secret to this pop culture.
+ - The greatest single programming language ever designed.
+ - Any company large enough to have a research lab is too large to listen to it.
+ - Scratch the surface in a typical boardroom and we’re all just cavemen with briefcases, hungry for a wise person to tell us stories.
+ - Technology is anything invented after you were born, everything else is just stuff.
+ - A computer scientist is a machine for converting coffee into urine.
+ - The computer is simply an instrument whose music is ideas.
+ - Most software today is very much like an Egyptian pyramid with millions of bricks piled on top of each other, with no structural integrity, but just done by brute force and thousands of slaves.
+ - A new friend is new wine, when it grows old, you will enjoy drinking it.
+ - The future is not laid out on a track. It is something that we can decide, and to the extent that we do not violate any known laws of the universe, we can probably make it work the way that we want to.
+ - Science requires a society because even people who are trying to be good thinkers love their own thoughts and theories – much of the debugging has to be done by others.
+ - Technology is anything that wasn’t around when you were born.
+ - Quite a few people have to believe something is normal before it becomes normal – a sort of ‘voting’ situation. But once the threshold is reached, then everyone demands to do whatever it is.
+ - I fear – as far as I can tell – that most undergraduate degrees in computer science these days are basically Java vocational training.
+ - The flip side of the coin was that even good programmers and language designers tended to do terrible extensions when they were in the heat of programming, because design is something that is best done slowly and carefully.
+ - Understanding- -like civilization, happiness, music, science and a host of other great endeavors – is not a state of being, but a manner of traveling. This great road has no final destination. The journey itself is the reward.
+ - Knowledge is silver. Outlook is gold. IQ is a lead weight.
+ - Sun Microsystems had the right people to make Java into a first-class language, and I believe it was the Sun marketing people who rushed the thing out before it should have gotten out.
+ - I don’t know how many of you have ever met Dijkstra, but you probably know that arrogance in computer science is measured in nano-Dijkstras.
+ - The result is – document destruction – we’re really not going to be able to prove beyond a truth the negatives and some of the positive conclusions that we’re going to come to. There will be always unresolved ambiguity here.
+ - In our society we have hard nerds and soft nerds. The hard nerds are the ones who used to have the slide rules at their belt; now they have calculators. The soft nerds are the ones who get violently ill whenever anybody mentions an integral sign.
+ - Perl is another example of filling a tiny, short-term need, and then being a real problem in the longer term.
+ - As far as Apple goes, it was a different company every few years from the time I joined in 1984.
+ - Any medium powerful enough to extend man’s reach is powerful enough to topple his world.
+ - Television should be the last mass communication medium to be naively designed and put into the world without a surgeon-general’s warning.
+ - The real romance is out ahead and yet to come. The computer revolution hasn’t started yet.
+ - The tree of research must be fed from time to time with the blood of bean-counters, for it is its natural manure.
+ - Having an intelligent secretary does not get rid of the need to read, write, and draw, etc. In a well functioning world, tools and agents are complementary.
+ - In success there’s a tendency to keep on doing what you were doing.
+ - To get the medium’s magic to work for one’s aims rather than against them is to attain literacy.
+ - The protean nature of the computer is such that it can act like a machine or like a language to be shaped and exploited.
+ - Every technology really needs to be shipped with a special manual – not how to use it but why, when and for what.
+ - I think the trick with knowledge is to “acquire it, and forget all except the perfume” – because it is noisy and sometimes drowns out one’s own “brain voices”. The perfume part is important because it will help find the knowledge again to help get to the destinations the inner urges pick.
+
+55 quotes

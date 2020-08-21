@@ -1,0 +1,502 @@
+ - Become who you are.
+ - Without music, life would be a mistake.
+ - There are two different types of people in the world, those who want to know, and those who want to believe.
+ - You must have chaos within you to give birth to a dancing star.
+ - And those who were seen dancing were thought to be insane by those who could not hear the music.
+ - The higher we soar the smaller we appear to those who cannot fly.
+ - That which does not kill us makes us stronger.
+ - He who has a why to live for can bear almost any how.
+ - You have your way. I have my way. As for the right way, the correct way, and the only way, it does not exist.
+ - Whoever fights monsters should see to it that in the process he does not become a monster. And if you gaze long enough into an abyss, the abyss will gaze back into you.
+ - Every deep thinker is more afraid of being understood than of being misunderstood.
+ - The individual has always had to struggle to keep from being overwhelmed by the tribe. If you try it, you will be lonely often, and sometimes frightened. But no price is too high to pay for the privilege of owning yourself.
+ - All truly great thoughts are conceived while walking.
+ - I know of no better life purpose than to perish in attempting the great and the impossible.
+ - I’m not upset that you lied to me, I’m upset that from now on I can’t believe you.
+ - The snake which cannot cast its skin has to die. As well the minds which are prevented from changing their opinions; they cease to be mind.
+ - All I need is a sheet of paper and something to write with, and then I can turn the world upside down.
+ - The true man wants two things: danger and play. For that reason he wants woman, as the most dangerous plaything.
+ - He who climbs upon the highest mountains laughs at all tragedies, real or imaginary.
+ - In heaven, all the interesting people are missing.
+ - I am a forest, and a night of dark trees: but he who is not afraid of my darkness, will find banks full of roses under my cypresses.
+ - When we are tired, we are attacked by ideas we conquered long ago.
+ - All things are subject to interpretation. Whichever interpretation prevails at a given time is a function of power and not truth.
+ - That which is done out of love is always beyond good and evil.
+ - In individuals, insanity is rare; but in groups, parties, nations and epochs, it is the rule.
+ - It is my ambition to say in ten sentences what others say in a whole book.
+ - The surest way to corrupt a youth is to instruct him to hold in higher esteem those who think alike than those who think differently.
+ - Man is the cruelest animal.
+ - There is always some madness in love. But there is also always some reason in madness.
+ - It is not a lack of love, but a lack of friendship that makes unhappy marriages.
+ - The advantage of a bad memory is that one enjoys several times the same good things for the first time.
+ - To live is to suffer, to survive is to find some meaning in the suffering.
+ - What does your conscience say? — 'You should become the person you are'.
+ - The author must keep his mouth shut when his work starts to speak.
+ - Perhaps I know best why it is man alone who laughs; he alone suffers so deeply that he had to invent laughter.
+ - The visionary lies to himself, the liar only to others.
+ - One repays a teacher badly if one always remains nothing but a pupil.
+ - That which does not kill me, makes me stronger.
+ - We have art in order not to die of the truth.
+ - Art is the proper task of life. 
+ - Live dangerously.
+ - There are no facts, only interpretations.
+ - Ah, women. They make the highs higher and the lows more frequent.
+ - We should consider every day lost on which we have not danced at least once.
+ - Amor Fati – “Love Your Fate”, which is in fact your life.
+ - One ought to hold on to one's heart; for if one lets it go, one soon loses control of the head too.
+ - God is dead, God remains dead, and we have killed him.
+ - Thoughts are the shadows of our feelings – always darker, emptier and simpler.
+ - A good writer possesses not only his own spirit but also the spirit of his friends.
+ - And once you are awake, you shall remain awake eternally.
+ - Faith: not wanting to know what the truth is.
+ - What is the truth, but a lie agreed upon.
+ - Distrust all in whom the impulse to punish is powerful.
+ - Is man merely a mistake of God’s? Or God merely a mistake of man?
+ - If you know the why, you can live any how.
+ - Invisible threads are the strongest ties.
+ - Is it better to out-monster the monster or to be quietly devoured?
+ - I assess the power of a will by how much resistance, pain, torture it endures and knows how to turn to its advantage.
+ - Hope in reality is the worst of all evils because it prolongs the torments of man.
+ - A thought, even a possibility, can shatter and transform us.
+ - Silence is worse; all truths that are kept silent become poisonous.
+ - Blessed are the forgetful, for they get the better even of their blunders.
+ - Many are stubborn in pursuit of the path they have chosen. Few in pursuit of the goal.
+ - There is more wisdom in your body than in your deepest philosophy.
+ - He who would learn to fly one day must first learn to walk and run and climb and dance; one cannot fly into flying.
+ - The man of knowledge must be able not only to love his enemies but also to hate his friends.
+ - One must give value to their existence by behaving as if ones very existence were a work of art.
+ - The lonely one offers his hand too quickly to whomever he encounters.
+ - A thinker sees his own actions as experiments and questions – as attempts to find out something. Success and failure are for him answers above all.
+ - As long as you still experience the stars as something “above you”, you lack the eye of knowledge.
+ - Nothing on earth consumes a man more quickly than the passion of resentment.
+ - What is the seal of liberation? Not to be ashamed in front of oneself.
+ - Talking much about oneself can also be a means to conceal oneself.
+ - A thought comes when it will, not when I will.
+ - One must pay dearly for immortality; one has to die several times while still alive.
+ - If we train our conscience, it kisses us while it hurts.
+ - After coming into contact with a religious man I always feel I must wash my hands.
+ - It is hard enough to remember my opinions, without also remembering my reasons for them.
+ - Stupidity in a woman is unfeminine.
+ - There is an innocence in admiration: it occurs in one who has not yet realized that they might one day be admired.
+ - All great things must first wear terrifying and monstrous masks, in order to inscribe themselves on the hearts of humanity.
+ - Love is a state in which a man sees things most decidedly as they are not.
+ - Without forgetting it is quite impossible to live at all.
+ - Only sick music makes money today.
+ - For art to exist, for any sort of aesthetic activity or perception to exist, a certain physiological precondition is indispensable: intoxication.
+ - The most perfidious way of harming a cause consists of defending it deliberately with faulty arguments.
+ - The earth has a skin and that skin has diseases; one of its diseases is called man.
+ - A casual stroll through the lunatic asylum shows that faith does not prove anything.
+ - We do not place especial value on the possession of a virtue until we notice its total absence in our opponent.
+ - No shepherd and one herd! Everybody wants the same, everybody is the same: whoever feels different goes voluntarily into a madhouse.
+ - Of all that is written I love only what a man has written in his own blood.
+ - The life of the enemy. Whoever lives for the sake of combating an enemy has an interest in the enemy’s staying alive.
+ - The Christian resolution to find the world ugly and bad has made the world ugly and bad.
+ - The worst readers are those who behave like plundering troops: they take away a few things they can use, dirty and confound the remainder, and revile the whole.
+ - Poets are shameless with their experiences: they exploit them.
+ - I am one thing, my writings are another.
+ - You look up when you wish to be exalted. And I look down because I am exalted.
+ - He who possesseth little is so much the less possessed. Blessed be moderate poverty!
+ - A subject for a great poet would be God’s boredom after the seventh day of creation.
+ - The desire to annoy no one, to harm no one, can equally well be the sign of a just as of an anxious disposition.
+ - He who delights in solitude is either a wild beast or a god.
+ - No price is too high to pay for the privilege of owning yourself.
+ - If you stare into the Abyss long enough the Abyss stares back at you.
+ - No artist tolerates reality.
+ - What is good? All that heightens the feeling of power, the will to power, power itself. What is bad? All that is born of weakness. What is happiness? The feeling that power is growing, that resistance is overcome.
+ - Plato was a bore.
+ - Enjoy life. This is not a dress rehearsal.
+ - Everything matters. Nothing’s important.
+ - My formula for greatness in a human being is amor fati: that one wants nothing to be different, not forward, not backward, not in all eternity. Not merely bear what is necessary, still less conceal it – all idealism is mendaciousness in the face of what is necessary – but love it.
+ - I teach you the Overman. Man is something which shall be surpassed.
+ - On the mountains of truth you can never climb in vain: either you will reach a point higher up today, or you will be training your powers so that you will be able to climb higher tomorrow.
+ - My solitude doesn’t depend on the presence or absence of people; on the contrary, I hate who steals my solitude without, in exchange, offering me true company.
+ - There will always be rocks in the road ahead of us. They will be stumbling blocks or stepping stones; it all depends on how you use them.
+ - Nobody is more inferior than those who insist on being equal.
+ - My formula for greatness in a human being is amor fati: that one wants nothing to be other than it is, not in the future, not in the past, not in all eternity.
+ - Become who you are. Make what only you can make.
+ - Life is the will to power; our natural desire to dominate and reshape the world to fit our own preferences and assert our personal strength to the fullest degree.
+ - Today as always, men fall into two groups: slaves and free men. Whoever does not have two-thirds of his day for himself, is a slave, whatever he may be: a statesman, a businessman, an official, or a scholar.
+ - The doer alone learneth.
+ - They muddy the water, to make it seem deep.
+ - There are no beautiful surfaces without a terrible depth.
+ - Liberalism is the transformation of mankind into cattle.
+ - Live dangerously. Build your cities on the slopes of Vesuvius.
+ - No one can construct for you the bridge upon which precisely you must cross the stream of life, no one but you yourself alone.
+ - Everything the State says is a lie, and everything it has it has stolen.
+ - My humanity is a constant self-overcoming.
+ - Man is a rope stretched between the animal and the Superman-a rope over an abyss. A dangerous crossing, a dangerous wayfaring, a dangerous looking-back, a dangerous trembling and halting.
+ - Whoever has not two-thirds of his time to himself, is a slave.
+ - What makes us heroic? – Confronting simultaneously our supreme suffering and our supreme hope.
+ - Sometimes people don’t want to hear the truth because they don’t want their illusions destroyed.
+ - But he who is hated by the people, as the wolf by the dogs – is the free spirit, the enemy of fetters, the non-adorer, the dweller in the woods.
+ - One must be a sea, to receive a polluted stream without becoming impure.
+ - You who hate the Jews so, why did you adopt their religion?
+ - Ultimately, it is the desire, not the desired, that we love.
+ - The real world is much smaller than the imaginary.
+ - The essence of all beautiful art, all great art, is gratitude.
+ - I have forgotten my umbrella.
+ - Do you want to have an easy life? Then always stay with the herd and lose yourself in the herd.
+ - If you look long enough into the void, the void begins to look back through you.
+ - I notice that Autumn is more the season of the soul than of nature.
+ - Strength is the morality of the man who stands out from the rest, and it is mine.
+ - Denn was ist Freiheit? Dasz man den Willen zur Selbstverantwortlichkeit hat.
+ - Society tames the wolf into a dog. And man is the most domesticated animal of all.
+ - The world is beautiful, but has a disease called man.
+ - To those human beings who are of any concern to me, I wish suffering, desolation, sickness, ill treatment, indignities, profound self-contempt, the torture of self-mistrust, and the wretchedness of the vanquished.
+ - The secret of reaping the greatest fruitfulness and the greatest enjoyment from life is to live dangerously.
+ - What is evil?-Whatever springs from weakness.
+ - The greater the obstacle the more glory in overcoming it. – What does not destroy makes me stronger.
+ - To live alone one must be a beast or a god, says Aristotle. Leaving out the third case: one must be both – a philosopher.
+ - Convictions are more dangerous foes of truth than lies.
+ - Happiness is a fata morgana. the only way to not end up unhappy is to not long for happiness.
+ - Was that life? Well then, once more!
+ - Love your enemies because they bring out the best in you.
+ - Of all evil I deem you capable: Therefore I want good from you. Verily, I have often laughed at the weaklings who thought themselves good because they had no claws.
+ - The thought of suicide is a great consolation: by means of it one gets through many a dark night.
+ - In every real man a child is hidden that wants to play.
+ - Everyone who has ever built anywhere a “new heaven” first found the power thereto in his own hell.
+ - When you look into an abyss, the abyss also looks into you.
+ - I would believe only in a God that knows how to dance.
+ - Man is the cruelest animal. At tragedies, bullfights, and crucifixions he has so far felt best on earth; and when he invented hell for himself, behold, that was his very heaven.
+ - The most intelligent men, like the strongest, find their happiness where others would find only disaster: in the labyrinth, in being hard with themselves and with others, in effort; their delight is self-mastery; in them asceticism becomes second nature, a necessity, as instinct.
+ - Art is the highest task and the proper metaphysical activity of this life.
+ - Every day I count wasted in which there has been no dancing.
+ - Your god is dead and only the ignorant weep. And if you claim there is a hell, then we shall meet there!
+ - Call me whatever you like; I am who I must be.
+ - I am really very, very tired of everything – more than tired.
+ - Be careful, lest in casting out your demon you exorcise the best thing in you.
+ - Never trust a thought that didn’t come by walking.
+ - From which stars have we fallen to meet each other here?
+ - The most fundamental form of human stupidity is forgetting what we were trying to do in the first place.
+ - Those you cannot teach to fly, teach to fall faster.
+ - God remains dead. And we have killed him. Yet his shadow still looms. How shall we comfort ourselves, the murderers of all murderers?
+ - It is impossible to suffer without making someone pay for it; every complaint already contains revenge.
+ - Man Is Something That Must Be Overcome.
+ - Egoism is the very essence of a noble soul.
+ - Here the ways of men divide. If you wish to strive for peace of soul and happiness, then believe; if you wish to be a disciple of truth, then inquire.
+ - The essential thing ‘in heaven and earth’ is that there should be a long obedience in the same direction; there thereby results, and has always resulted in the long run, something which has made life worth living.
+ - Every profound spirit needs a mask: even more, around every profound spirit a mask is continually growing.
+ - If we have our own why of life, we shall get along with almost any how. Man does not strive for pleasure; only the Englishman does.
+ - One day soon you will meet a man, and he will rise like a phoenix from the ashes, and it is my greatest hope that he will not give you syphilis.
+ - Yes, life is a woman!
+ - While every noble morality develops from a triumphant affirmation of itself, slave morality from the outset says No to what is “outside,” what is “different,” what is “not itself”; and this No is its creative deed.
+ - A living being seeks, above all, to discharge its strength. Life is will to power.
+ - Love is blind. Friendship closes its eyes.
+ - In some remote corner of the universe, poured out and glittering among innumerable solar systems, there once was a star on which clever animals invented knowledge.
+ - We love life, not because we are used to living but because we are used to loving.
+ - In revenge and in love, woman is more barbarous than man.
+ - Few are made for independence, it is the privilege of the strong.
+ - Happiness is the feeling that power increases – that resistance is being overcome.
+ - There are more idols than realities in the world: that is my “evil eye” for this world, which is also my “evil ear”...
+ - He who cannot command himself should obey. And many can command themselves, but much is still lacking before they can obey themselves.
+ - But it is the same with man as with the tree. The more he seeks to rise into the height and light, the more vigorously do his roots struggle earthword, downword, into the dark, the deep – into evil.
+ - For a tree to become tall it must grow tough roots among the rocks.
+ - By losing your goal, You have lost your way.
+ - A life without music is an error.
+ - I overcame myself, the sufferer; I carried my own ashes to the mountains; I invented a brighter flame for myself.
+ - Evaluation is creation: hear it, you creators! Evaluating is itself the most valuable treasure of all that we value. It is only through evaluation that value exists: and without evaluation the nut of existence would be hollow. Hear it, you creators!
+ - Man makes god in his own image.
+ - Nihilism: any aim is lacking, any answer to the question “why” is lacking. What does nihilism mean? – that the supreme values devaluate themselves.
+ - Man does not strive for happiness; only the Englishman does that.
+ - There is an old illusion. It is called good and evil.
+ - The discipline of suffering, of great suffering – do you not know that it is this discipline alone that has produced all the elevations of humanity so far?
+ - Human, all too human.
+ - Time, space, and causality are only metaphors of knowledge, with which we explain things to ourselves.
+ - There are no eternal facts, as there are no absolute truths.
+ - The snake that cannot shed its skin perishes.
+ - Man would sooner have the Void for his purpose than be void of Purpose.
+ - Dead are all gods: now we want the overman to live.
+ - This verse gets me through each day, what doesn’t kill us makes us stronger! I am not afraid of anything because the lord is my shepherd!
+ - In his lonely solitude, the solitary man feeds upon himself; in the thronging multitude, the many feed upon him. Now choose.
+ - I know my fate. One day my name will be associated with the memory of something tremendous – a crisis without equal on earth, the most profound collision of conscience, a decision that was conjured up against everything that had been believed, demanded, hallowed so far. I am no man, I am dynamite.
+ - The ‘kingdom of Heaven’ is a condition of the heart – not something that comes ‘upon the earth’ or ‘after death.’
+ - Is man one of God’s blunders? Or is God one of man’s blunders?
+ - A politician divides mankind into two classes: tools and enemies.
+ - All great men are play actors of their own ideal.
+ - They call you heartless; but you have a heart and I love you for being ashamed to show it.
+ - Free will without fate is no more conceivable than spirit without matter, good without evil.
+ - Our greatest experiences are our quietest moments.
+ - We often refuse to accept an idea merely because the tone of voice in which it has been expressed is unsympathetic to us.
+ - This world is the will to power and nothing besides!
+ - I was in darkness, but I took three steps and found myself in paradise. The first step was a good thought, the second, a good word; and the third, a good deed.
+ - Master-morality and Slave-morality.
+ - Perhaps no philosopher is more correct than the cynic. The happiness of the animal, that thorough cynic, is the living proof of cynicism.
+ - But what if pleasure and pain should be so closely connected that he who wants the greatest possible amount of the one must also have the greatest possible amount of the other, that he who wants to experience the “heavenly high jubilation,” must also be ready to be “sorrowful unto death”?
+ - In music the passions enjoy themselves.
+ - The higher you ascend, the smaller you appear to the eye of envy. But most of all they hate those who fly.
+ - The future influences the present just as much as the past.
+ - When a woman has scholarly inclinations there is usually something wrong with her sexuality.
+ - The earth has become small, and on it hops the last man, who makes everything small. His race can no more be exterminated than the flea can be. The last man lives the longest.
+ - I and me are always too deeply in conversation.
+ - The devotion of the greatest is to encounter risk and danger, and play dice for death.
+ - We are so fond of being out among nature, because it has no opinions about us.
+ - A Dionysian life task needs the hardness of the hammer and one of its first essentials is without doubt the joy to be found even in destruction.
+ - Man is a rope, tied between beast and Superman – a rope over an abyss.
+ - If a man wishes to become a hero, then the serpent must first become a dragon: otherwise he lacks his proper enemy.
+ - The growth of wisdom may be gauged exactly by the diminution of ill-temper.
+ - Buddhism is a hundred times as realistic as Christianity it is part of its living heritage that it is able to face problems objectively and coolly; it is the product of long centuries of philosophical speculation.
+ - The grand style arises when beauty wins a victory over the monstrous.
+ - The child is innocence and forgetting, a new beginning, a game, a wheel rolling on its own, a prime movement, a sacred Yes.
+ - Untroubled, scornful, outrageous – that is how wisdom wants us to be: she is a woman and never loves anyone but a warrior.
+ - I go in solitude, so as not to drink out of everybody’s cistern. When I am among the many I live as the many do, and I do not think I really think; after a time it always seems as if they want to banish myself from myself and rob me of my soul.
+ - Dancing in all its forms cannot be excluded from the curriculum of all noble education; dancing with the feet, with ideas, with words, and, need I add that one must also be able to dance with the pen?
+ - When one has a great deal to put into it a day has a hundred pockets.
+ - Man’s task is simple. He should cease letting his existence be a thoughtless accident.
+ - Sleeping is no mean art: for its sake one must stay awake all day.
+ - The higher man is distinguished from the lower by his fearlessness and his readiness to challenge misfortune.
+ - Words are but symbols for the relations of things to one another and to us; nowhere do they touch upon absolute truth.
+ - For what purpose humanity is there should not even concern us: why you are here, that you should ask yourself: and if you have no ready answer, then set for yourself goals, high and noble goals, and perish in pursuit of them!
+ - All truth is crooked, time itself is a circle.
+ - What can everyone do? Praise and blame. This is human virtue, this is human madness.
+ - The pure soul is a pure lie.
+ - For it is only as an aesthetic phenomenon that existence and the world are eternally justified.
+ - I fear animals regard man as a creature of their own kind which has in a highly dangerous fashion lost its healthy animal reason – as the mad animal, as the laughing animal, as the weeping animal, as the unhappy animal.
+ - The purpose of criminal law is to punish the enemies of those in power.
+ - It is some fundamental certainty which a noble soul has about itself, something which is not to be sought, is not to be found, and perhaps, also, is not to be lost. The noble soul has reverence for itself.
+ - Convictions are prisons.
+ - Regarding life, the wisest men of all ages have judged alike: it is worthless.
+ - All isolation is wrong so say the herd. And long didst thou belong to the herd.
+ - Two great European narcotics, alcohol and Christianity.
+ - Your educators can only be your liberators.
+ - I am not a human being, I am dynamite.
+ - There is more wisdom in your body than in your best wisdom. And who then knows why your body needs precisely your best wisdom?
+ - The demand to be loved is the greatest of all arrogant presumptions.
+ - Memory says, ‘I did that.’ Pride replies, ‘I could not have done that.’ Eventually, memory yields.
+ - One can promise actions, but not feelings, for the latter are involuntary. He who promises to love forever or hate forever or be forever faithful to someone is promising something that is not in his power.
+ - The tree that would grow to heaven must send its roots to hell.
+ - I am alone again and I want to be so; alone with the pure sky and open sea.
+ - You know a moment is important when it is making your mind go numb with beauty.
+ - Be careful who you choose as your enemy because that’s who you become most like.
+ - Life is that which must overcome itself again and again.
+ - Under peaceful conditions a warlike man sets upon himself.
+ - Better know nothing than half-know many things.
+ - All truths are bloody truths to me.
+ - In loneliness, the lonely one eats himself; in a crowd, the many eat him. Now choose.
+ - Beware of spitting against the wind!
+ - There’s no defense against stupidity.
+ - What is more harmful than any vice? Practical sympathy and pity for all the failures and all the weak : Christianity.
+ - The lie is a condition of life.
+ - Necessity is not an established fact, but an interpretation.
+ - Your only problem, perhaps, is that you scream without letting yourself cry.
+ - He who fights with monsters might take care lest he thereby become a monster. Is not life a hundred times too short for us to bore ourselves?
+ - The Greeks, with their truly healthy culture, have once and for all justified philosophy simply by having engaged in it, and having engaged in it more fully than any other people.
+ - You’re going to women? Don’t forget your whip!
+ - One should die proudly when it is no longer possible to live proudly.
+ - Only strong personalities can endure history, the weak ones are extinguished by it.
+ - Immature is the love of the youth, and immature his hatred of man and earth. His mind and the wings of his spirit are still tied down and heavy.
+ - God is dead, but considering the state the species man is in, there will perhaps be caves, for ages yet, in which his shadow will be shown.
+ - I wasn’t sure what day it was because life is meaningless. Turns out it’s Thursday. The thing about life still applies.
+ - Give me today, for once, the worst throw of your dice, destiny. Today I transmute everything into gold.
+ - Beyond Good and Evil, Aphorism 153.
+ - Danger alone acquaints us with our own resources, our virtues, our armor and weapons, our spirit, and forces us to be strong.
+ - The world is a work of art that gives birth to itself.
+ - Man alone suffers so excruciatingly in the world that he was compelled to invent laughter.
+ - To predict the behavior of ordinary people in advance, you only have to assume that they will always try to escape a disagreeable situation with the smallest possible expenditure of intelligence.
+ - Death is close enough at hand so we do not need to be afraid of life.
+ - Woman was God’s second mistake.
+ - Marriage was contrived for ordinary people, for people who are capable of neither great love nor great friendship, which is to say, for most people – but also for those exceptionally rare ones who are capable of love as well as of friendship.
+ - What was a lie in the father becomes a conviction in the son.
+ - Out of damp and gloomy days, out of solitude, out of loveless words directed at us, conclusions grow up in us like fungus: one morning they are there, we know not how, and they gaze upon us, morose and gray. Woe to the thinker who is not the gardener but only the soil of the plants that grow in him.
+ - If there were gods, how could I endure not to be a god? Therefore there are no gods.
+ - Those who cannot understand how to put their thoughts on ice should not enter into the heat of debate.
+ - This crown to crown the laughing man, this rose-wreath crown: I myself have set this crown upon my head, I myself have pronounced my laughter holy.
+ - The value of a thing sometimes lies not in what one attains with it, but in what one pays for it – what it costs us.
+ - No victor believes in chance.
+ - In war personal revenge maintains its silence.
+ - It is always consoling to think of suicide: in that way one gets through many a bad night.
+ - Creating-that is the great salvation from suffering, and life’s alleviation. But for the creator to appear, suffering itself is needed, and much transformation.
+ - If you go to see the woman, do not forget the whip.
+ - Woman is essentially unpeaceful, like the cat, however well she may have trained herself to present an appearance of peace.
+ - Folk music is the original melody of man; it is the musical mirror of the world.
+ - Do whatever you will, but first be such as are able to will.
+ - Great intellects are skeptical.
+ - But by my love and hope I beseech you: do not throw away the hero in your soul! Hold holy your highest hope!
+ - The advocates of a criminal are seldom artists enough to turn the beautiful terribleness of the deed to the advantage of the doer.
+ - If a man wishes to rid himself of a feeling of unbearable oppression, he may have to take hashish.
+ - Probability but no truth, facility but no freedom – it is owing to these two fruits that the tree of knowledge cannot be confused with the tree of life.
+ - The best friend will probably acquire the best wife, because a good marriage is founded on the talent for friendship.
+ - The god on the cross is a curse on life, a signpost to seek redemption from life; Dionysus cut to pieces is a promise of life: it will be eternally reborn and return again from destruction.
+ - Winter, a bad guest, sitteth with me at home; blue are my hands with his friendly handshaking.
+ - This is one of the stout-hearted old warriors: he is angry with civilization because he supposes that its aim is to make all goodthings – honors, treasures, beautiful women – accessible even to cowards.
+ - He who has always spared himself much will in the end become sickly of so much consideration. Praised be what hardens!
+ - What destroys a man more quickly than to work, think and feel without inner necessity, without any deep personal desire, without pleasure – as a mere automaton of duty?
+ - But thus do I counsel you, my friends: distrust all in whom the impulse to punish is powerful! Distrust all those who talk much of their justice!
+ - Christianity gave Eros poison to drink; he did not die of it, certainly, but degenerated to Vice.
+ - Men should learn to live with the same seriousness with which children play.
+ - Be careful when you fight the monsters, lest you become one.
+ - A beautiful woman seductively dressed will never catch cold no matter how low-cut her gown.
+ - The superman is the meaning of the earth. Let your will say: the superman is to be the meaning of the earth! I beseech you, my brothers, be true to the earth, and do not believe those who speak to you of otherworldly hopes! They are poisoners, whether they know it or not.
+ - Women are considered deep – why? Because one can never discover any bottom to them. Women are not even shallow.
+ - The earth is like the breasts of a woman: useful as well as pleasing.
+ - The thirst for equality can express itself either as a desire to draw everyone down to one’s level, or to raise oneself and everyone else up.
+ - Love and hatred are not blind, but are blinded by the fire they bear within themselves.
+ - Pity makes suffering contagious.
+ - A man who possesses genius is insufferable unless he also possesses at least two other things: gratitude and cleanliness.
+ - Suspicious.- To admit a belief merely because it is a custom – but that means to be dishonest, cowardly, lazy! – And so could dishonesty, cowardice and laziness be the preconditions for morality?
+ - Did you ever say yes to a pleasure? oh my friends, then you also said yes to all pain. all things are linked, entwined, in love with one another.
+ - At the beginning of a marriage ask yourself whether this woman will be interesting to talk to from now until old age. Everything else in marriage is transitory: most of the time is spent in conversation.
+ - A small revenge is more human than no revenge at all.
+ - Love is more afraid of change than destruction.
+ - Never to talk about oneself is a very refined form of hypocrisy.
+ - The text has disappeared under the interpretation.
+ - The poison by which the weaker nature is destroyed is strengthening to the strong individual and he does not call it poison.
+ - When one has not had a good father, one must create one.
+ - The state lies in all languages of good and evil; and whatever it says, it lies-and whatever it has, it has stolen.
+ - Women want to serve, and this is where their happiness lies: but the free spirit does not want to be served, and this is where hishappiness lies.
+ - I consist of body and soul – in the worlds of a child. And why shouldn’t we speak like children? But the enlightened, the knowledgealbe would say: I am body through and through, nothing more; and the soul is just a word for something on the body.
+ - The beautiful exists just as little as the true. In every case it is a question of the conditions of preservation of a certain type of man: thus the herd-man will experience the value feeling of the true in different things than will the overman.
+ - How much rationality and higher protection there is in such self-deception, and how much falseness I still require in order to allow myself again and again the luxury of my sincerity.
+ - The good four. Honest with ourselves and with whatever is friend to us; courageous toward the enemy; generous toward the vanquished; polite-always that is how the four cardinal virtues want us.
+ - Nothing in life possesses value except the degree of power – assuming that life itself is the will to power.
+ - The woman and the genius do not work. Up to now, woman has been mankind’s supreme luxury. In all those moments when we do our best, we do not work. Work is merely a means to these moments.
+ - You gave him an opportunity of showing greatness of character and he did not seize it. He will never forgive you for that.
+ - He who obeys, does not listen to himself!
+ - The Christian faith from the beginning, is sacrifice the sacrifice of all freedom, all pride, all self-confidence of spirit, it is at the same time subjection, self-derision, and self-mutilation.
+ - Learn to laugh at yourselves as one must laugh!
+ - War has always been the grand sagacity of every spirit which has grown too inward and too profound; its curative power lies even in the wounds one receives.
+ - The end of a melody is not its goal: but nonetheless, had the melody not reached its end it would not have reached its goal either. A parable.
+ - I need solitude, which is to say, recovery, return to my self, the breath of a free, light, playful air.
+ - We forget our guilt when we have confessed it to another, but the other does not usually forget it.
+ - Many a peacock hides his peacock tail from all eyes – and calls it his pride.
+ - Freedom is the will to be responsible for ourselves. It is to preserve the distance which separates us from other men. To grow more indifferent to hardship, to severity, to privation, and even to life itself.
+ - Everything in the world displeases me: but, above all, my displeasure in everything displeases me.
+ - Man’s maturity: to have regained the seriousness that he had as a child at play.
+ - If a woman seeks education it is probably because her sexual apparatus is malfunctioning.
+ - Along the journey we commonly forget its goal. Almost every vocation is chosen and entered upon as a means to a purpose but is ultimately continued as a final purpose in itself. Forgetting our objectives is the most frequent stupidity in which we indulge ourselves.
+ - Battle not with Hello Kitty lest ye become Hello Kitty; and if you gaze into the abyss the abyss gazes into you with huge eyes and a helpless disposition.
+ - Once the decision has been made, close your ear even to the best counter argument: sign of a strong character. Thus an occasional will to stupidity.
+ - Without cruelty there is no festival: thus the longest and most ancient part of human history teaches and in punishment there is so much that is festive!
+ - Surrounded by the flames of jealousy, the jealous one winds up, like the scorpion, turning the poisoned sting against himself.
+ - Does not the discipline of the scientific spirit just commence when one no longer harbours any conviction?
+ - I love him whose soul is deep even in the wounding.
+ - People are always angry at anyone who chooses very individual standards for his life; because of the extraordinary treatment which that man grants to himself, they feel degraded, like ordinary beings.
+ - Love brings to light a lover’s noble and hidden qualities-his rare and exceptional traits: it is thus liable to be deceptive of his normal qualities.
+ - The strength required for the vision of the most powerful reality is not only compatible with the most powerful strength for action, for monstrous action, for crime – it even presupposes it.
+ - What I understand by “philosopher”: a terrible explosive in the presence of which everything is in danger.
+ - The final reward of the dead – to die no more.
+ - Your soul will be dead even before your body: fear nothing further.
+ - It is very noble hypocrisy not to talk of one’s self.
+ - At a certain place in Beethoven’s Ninth Symphony, for example, he might feel that he is floating above the earth in a starry dome, with the dream of immortality in his heart; all the stars seem to glimmer around him, and the earth seems to sink ever deeper downwards.
+ - Madness is the exception in individuals but the rule in groups.
+ - One can lie with the mouth, but with the accompanying grimace one nevertheless tells the truth.
+ - Is life not a thousand times too short for us to bore ourselves?
+ - A sedentary life is the real sin against the Holy Spirit. Only those thoughts that come by walking have any value.
+ - Every talent must unfold itself in fighting.
+ - To forget one’s purpose is the commonest form of stupidity.
+ - Madness is not a consequence of uncertainty but of certainty.
+ - From the Sun I learned this: when he goes down, overrich; he pours gold into the sea out of inexhaustible riches, so that even the poorest fisherman still rows with golden oars. For this I once saw and I did not tire of my tears as I watched it.
+ - Where is the lightning to lick you with its tongue? Where is the madness with which you should be cleansed? Behold, I show you the Superman. He is this lightning, he is this madness.
+ - Against boredom even gods struggle in vain.
+ - The only excuse for God is that he doesn’t exist.
+ - The vain.- We are like shop windows in which we are continually arranging, concealing or illuminating the supposed qualities other ascribe to us – in order to deceive ourselves.
+ - Rational thought is interpretation according to a scheme which we cannot escape.
+ - The definition of morality: Morality is the idiosyncrasy of decadents having the hidden desire to revenge themselves upon life – and being successful.
+ - Free from what? What does that matter to Zarathustra! Clearly, however, shall your eye show to me: free for what?
+ - Asceticism is the right way of thinking for those who have to extirpate their sensual drives because they are ravening beasts of prey. But only for those!
+ - You lack the courage to be consumed in flames and to become ashes: so you will never become new, and never young again!
+ - The higher its type, the more rarely a thing succeeds.
+ - Companions the creator seeks, not corpses, not herds and believers. Fellow creators the creator seeks – those who write new values on new tablets. Companions the creator seeks, and fellow harvesters; for everything about him is ripe for the harvest.
+ - One does not kill by anger but by laughter.
+ - The idealist is incorrigible: if he is thrown out of his heaven he makes an ideal of his hell.
+ - And it is the great noon when man stands at the midpoint of his course between beast and superman and celebrates his way to the evening as his highest hope: for it is the way to a new morning.
+ - Faith is the path of least resistance.
+ - All things that are truly great are at first thought impossible.
+ - If the all powerful god controls satan he is an accomplice, and if he doesn’t, he is not an all powerful god.
+ - Our destiny rules over us, even when we are not yet aware of it; it is the future that makes laws for our today.
+ - Loving and perishing: it’s been a rhyme all these eternities. The will to love: that is, also being willing to die.
+ - The reasons and purposes for habits are always lies that are added only after some people begin to attack these habits and to ask for reasons and purposes. At this point the conservatives of all ages are thoroughly dishonest: they add lies.
+ - These small things – nutrition, place, climate, recreation, the whole casuistry of selfishness – are inconceivably more important than everything one has taken to be important so far.
+ - Something unappeased, unappeasable, is within me.
+ - The moral earth, too, is round! The moral earth, too, has its antipodes! The antipodes, too, have their right to exist! There is still another world to be discovered – and more than one! Set sail, you philosophers!
+ - Thus I spoke, more and more softly; for I was afraid of my own thoughts and the thoughts behind my thoughts.
+ - Everything about woman is a riddle, and everything about woman has a single solution: that is, pregnancy.
+ - I will believe in the Redeemer when the Christians look a little more redeemed.
+ - Pity is extolled as the virtue of prostitutes.
+ - Whoever gives advice to the sick gains a sense of superiority over them, no matter whether his advice is accepted or rejected. That is why sick people who are sensitive and proud hate their advisors even more than their illnesses.
+ - My philosophy is inverted Platonism: the further a thing is from true being, the purer, the lovelier, the better it is. Living inillusion as a goal!
+ - I mistrust all systematizers and avoid them. the will to a system is a lack of integrity.
+ - Not with wrath do we kill, but with laughter. Come, let us kill the spirit of gravity!
+ - Women and egoistic artists entertain a feeling towards science that is something composed of envy and sentimentality.
+ - One has to take a somewhat bold and dangerous line with this existence: especially as, whatever happens, we are bound to lose it.
+ - The Gay Science, section 108.
+ - Rather perish than hate and fear, and twice rather perish than make oneself hated and feared – this must some day become the highest maxim for every single commonwealth.
+ - Remorse. – Never yield to remorse, but at once tell yourself: remorse would simply mean adding to the first act of stupidity a second.
+ - I welcome all the signs indicating that a more manly and warlike age is commencing, which will, above all, bring heroism again into honour!
+ - One should part from life as Odysseus parted from Nausicaa-blessing it rather than in love with it.
+ - A very popular error: having the courage of one’s convictions; rather it is a matter of having the courage for an attack on one’s convictions.
+ - Someone who does not write books, who thinks a lot, and who lives in unsatisfying society will usually be a good letter- writer.
+ - Life is an instinct for growth, for survival, for the accumulation of forces, for power.
+ - Sensuality often hastens the “Growth of Love” so much that the roots remain weak and are easily torn up.
+ - The best weapon against an enemy is another enemy.
+ - Art furnishes us with eyes and hands and above all the good conscience to be able to turn ourselves into such a phenomenon.
+ - Whoever writes in blood and aphorisms wants not to be learned but to be learned by heart.
+ - My genius is in my nostrils.
+ - O Voltaire! O humanity! O idiocy! There is something ticklish in “the truth,” and in the SEARCH for the truth; and if man goes about it too humanely-“il ne cherche le vrai que pour faire le bien”-I wager he finds nothing!
+ - Objectivity and justice have nothing to do with one another.
+ - The Germans are like women, you can scarcely ever fathom their depths – they haven’t any.
+ - Whoever knows he is deep tries to be clear, but whoever wants to seem deep to the crowd tries to be obscure. For the crowd supposes that anything it cannot see to the bottom must be deep: it is so timid and goes so unwillingly into the water.
+ - To recognize untruth as a condition of life – that certainly means resisting accustomed value feelings in a dangerous way; and a philosophy that risks this would by that token alone place itself beyond good and evil.
+ - Spirit is the life that itself cuts into life: with its own torment it increases its own knowledge. Did you already know that?
+ - In solitude there grows what anyone brings into it, the inner beast too. Therefore solitude is inadvisable to many.
+ - Do not be deceived! The busiest people harbor the greatest weariness, their restlessness is weakness – they no longer have the capacity for waiting and idleness.
+ - One must have all the virtues to sleep well. Shall I bear false witness? Shall I commit adultery? Shall I covet my neighbor’s maid? All that would go ill with good sleep.
+ - Strong hope is a much greater stimulant to life than any single realized joy could be.
+ - The weak and misbegotten shall perish: first principle of our brotherly love. And they shall be given every assistance.
+ - I have exposed myself and am not ashamed to stand there naked. “Shame” is what we call the monster that attached itself to men when they aspired beyond the animals.
+ - Happiness: being able to forget or, to express in a more learned fashion.
+ - I know no other way to associate with great tasks than as play: as a sign of greatness, this is an essential presupposition.
+ - The more abstract the truth you wish to teach, the more you need to seduce the senses to it.
+ - The greatest cure for love is still that time honoured medicine – love returned.
+ - I looked for great men, but all I found were the apes of their ideals.
+ - The will to overcome an emotion, is ultimately only the will of another, or of several other, emotions.
+ - The deeper minds of all ages have had pity for animals.
+ - Even cohabitation has been corrupted – by marriage.
+ - Morality is the herd-instinct in the individual.
+ - In our interactions with people, a benevolent hypocrisy is frequently required – acting as though we do not see through the motivesof their actions.
+ - Do not allow yourselves to be deceived: Great Minds are Skeptical.
+ - Reality is captured in the categorical nets of Language only at the expense of fatal distortion.
+ - Illusions are certainly expensive amusements; but the destruction of illusions is still more expensive, if looked upon as an amusement, as it undoubtedly is by some people.
+ - Belief in truth begins with doubting all that has hitherto been believed to be true.
+ - All signs of superhuman nature appear in man as illness or insanity.
+ - I understand by ‘freedom of spirit’ something quite definite – the unconditional will to say No, where it is dangerous to say No.
+ - The bite of conscience, like the bite of a dog into a stone, is a stupidity.
+ - O my brothers, am I then cruel? But I say: that which is falling should also be pushed!
+ - He who speaks a bit of a foreign language has more delight in it than he who speaks it well; pleasure goes along with superficial knowledge.
+ - Generally speaking, the greater a woman’s beauty, the greater her modesty.
+ - Should not the giver be thankful that the receiver received? Is not giving a need? Is not receiving, mercy?
+ - Christianity is Platonism for the people.
+ - We are, all of us, growing volcanoes that approach the hour of their eruption, but how near or distant that is, nobody knows- not even God.
+ - Precisely the least, the softest, lightest, a lizard’s rustling, a breath, a flash, a moment – a little makes the way of the best happiness.
+ - The word ‘Christianity’ is already a misunderstanding – in reality there has been only one Christian, and he died on the Cross.
+ - God is a gross answer, an indelicacy against us thinkers- at bottom merely a gross prohibition for us: you shall not think!
+ - Only idiots fail to contradict themselves three times a day.
+ - The wisest man would be the one richest in contradictions, who has, as it were, antennae for all types of men – as well as his great moments of grand harmony – a rare accident even in us! A sort of planetary motion –.
+ - Wherever on earth the religious neurosis has appeared we find it tied to three dangerous dietary demands: solitude, fasting, and sexual abstinence.
+ - The relatives of a suicide hold it against him that out of consideration for their reputation he did not remain alive.
+ - Love, too, has to be learned.
+ - Fall down seven times, stand up eight. – Chinese proverbWithout music, life would be a mistake.
+ - What we do in dreams we also do when we are awake: we invent and fabricate the person with whom we associate-and immediately forget we have done so.
+ - Spiritual strength and passion, when accompanied by bad manners, only provoke loathing.
+ - The existence of forgetting has never been proved: We only know that some things don’t come to mind when we want them.
+ - Only individuals have a sense of responsibility.
+ - Is it not better to fall into the hands of a murderer, than into the dreams of a lustful woman?
+ - Evolution does not make happiness its goal; it aims simply at evolution and nothing else.
+ - A joke is an epigram on the death of a feeling.
+ - A friend should be a master at guessing and keeping still: you must not want to see everything.
+ - Only where there are graves are there resurrections.
+ - There is not enough love and goodness in the world to permit giving any of it away to imaginary beings.
+ - The Christian church has left nothing untouched by its depravity; it has turned every value into worthlessness, and every truth into a lie.
+ - So long as the priest, that professional negator, slanderer and poisoner of life, is regarded as a superior type of human being, there cannot be any answer to the question: What is Truth?
+ - Even the most beautiful scenery is no longer assured of our love after we have lived in it for three months, and some distant coast attracts our avarice: possessions are generally diminished by possession.
+ - Or shall I go out as a light does, not first blown out by the wind, but grown tired and weary of itself – a burnt out light? Or finally, shall I blow myself out, so as not to burn out?
+ - The last Christian died on a cross.
+ - Every church is a stone on the grave of a god-man: it does not want him to rise up again under any circumstances.
+ - Be your self! All you are now doing, thinking, desiring, is not you yourself.
+ - What is the task of higher education? To make a man into a machine. What are the means employed? He is taught how to suffer being bored.
+ - Solitude makes us tougher towards ourselves and tenderer towards others. In both ways it improves our character.
+ - I cannot believe in a God who wants to be praised all the time.
+ - The happiness of man is: I will. The happiness of woman is: he wills.
+ - Arrogance on the part of the meritorious is even more offensive to us than the arrogance of those without merit: for merit itself is offensive.
+ - Christianity, alcohol the two great means of corruption.
+
+500 quotes

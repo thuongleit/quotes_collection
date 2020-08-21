@@ -1,0 +1,23 @@
+ - What can I say? Librarians rule.
+ - Im involved in the stock market, which is fun and, sometimes, very painful.
+ - The only time France wants us to go to war is when the German Army is sitting in Paris sipping coffee.
+ - More people should use their library.
+ - I plan on getting out there and mixing with the crowd. I want to show everyone what happens in Times Square not from a distance, but from right there in the crowd.
+ - I try to stay in shape, I work out in the gym, take my vitamins every day, and I guess maybe I have some good genes, but lately Ive been feeling it. You know, after all these years it does catch up with you. But just for now.
+ - A lot of guys really I get the feeling don’t care whether you like their show or not, you know. I want people to enjoy what I do, and understand what I’m doing is for their enjoyment, it’s all I can ask for.
+ - I guess I’m afraid to retire because I don’t know what I would do. I don’t know what my talent is. So I don’t know. So maybe I’m afraid to stop, but I’ve got to stop.
+ - I have a thing against reality shows. I think they are so fake. I think they are produced before they begin. I think people know where they’re going, what they’re going to say, what the situation is. These things just don’t happen and you know that.
+ - I’ve worked for 55 years. I’m going to take a little time off, to tell you the truth. It’s just that now in the last couple of weeks, Gelman is pouring it on. ‘Farewell to Regis!’ It’s getting embarrassing.
+ - Anderson Cooper every night dreams about getting my job permanently really.
+ - I guess people wonder if I’m the same on camera as I am off, and I’m pretty much the same, I really am. But that’s always asked of me.
+ - It means a lot in my business and its a wonderful feeling to be recognized for what you have done over a lifetime, but I didn’t go crazy. I still eat my cereal in the morning, have a sandwich in the afternoon, go to bed at night. You know, nothing really different.
+ - It’s almost seems as though there’s a battle going on between the public and all the fast-food establishments, and, believe me, I think it’s very tasty food.
+ - When are four women ever happy for another woman getting something they’d love to have? Tell me that.
+ - I had my years of struggling. Some of my shows failed miserably, and I was upset by it and it dented my confidence. But I never stopped. I kept going for it.
+ - You get a taste here in New Orleans that you don’t get anywhere else in the country.
+ - I think theres a little bit of sizzling here. Honestly, I can feel it. The ions are flying back and forth.
+ - So when I got the chance to do my first talk show, 50 years ago last month, I never had any writers. There was no budget – it was just me and the camera and my friend who was the director. I talked about what I’d done that week.
+ - As a matter of fact I don’t like politics. I really don’t. I think it’s so jaded now and everybody has to follow the party line.
+ - The original reality show.
+
+21 quotes

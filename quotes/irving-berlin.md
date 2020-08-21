@@ -1,0 +1,39 @@
+ - Life is 10 percent what you make it, and 90 percent how you take it.
+ - God bless America, land that I love.
+ - The song is ended, but the melody lingers on...
+ - God bless America, land that I love. Stand beside her, and guide her through the night with a light from above.
+ - Let’s face the music and dance.
+ - How much do I love you? I’ll tell you no lie. How deep is the ocean? How high is the sky?
+ - They say that falling in love is wonderful, it’s wonderful, so they say.
+ - There’s no business like show business.
+ - When I’m worried and I can’t sleep I count my blessings instead of sheep.
+ - Our attitudes control our lives. Attitudes are a secret power working twenty-four hours a day, for good or bad. It is of paramount importance that we know how to harness and control this great force.
+ - I’ve got my love to keep me warm.
+ - The toughest thing about success is that you’ve got to keep on being a success.
+ - I’m dreaming of a white Christmas, just like the ones I used to know.
+ - In your Easter bonnet, with all the frills upon it, you’ll be the grandest lady in the Easter parade.
+ - A pretty girl is like a melody. That haunts you night and day.
+ - There may be trouble ahead – But while there’s moonlight, and music, and love, and romance -Let’s face the music and dance.
+ - Talent is only the starting point.
+ - Lord help the mister that comes between me and my sister...
+ - I long to be out in the sun with no work to be done.
+ - All alone by the telephone.
+ - Blue skies Smiling at me Nothing but blue skies Do I see Bluebirds Singing a song Nothing but bluebirds All day long.
+ - Music is so important. It changes thinking, it influences everybody, whether they know it or not. Music knows no boundary lines.
+ - The toughest thing about success is that you’ve got to keep on being a success. Talent is only a starting point in this business. You’ve got to keep on working that talent. Someday I’ll reach for it and it won’t be there.
+ - The world would not be in such a snarl, had Marx been Groucho instead of Karl.
+ - Listen kid, take my advice, never hate a song that has sold half a million copies.
+ - There is an element of truth in every idea that lasts long enough to be called corny.
+ - Everybody ought to have a lower East Side in their life.
+ - Talent is only a starting point in business. You’ve got to keep working that talent.
+ - A patriotic song is an emotion and you must not embarrass an audience with it, or they will hate your guts.
+ - Popular music is popular because a lot of people like it.
+ - Dancing cheek to cheek.
+ - You can’t write a song out of thin air you have to feel and know what you are writing about.
+ - We got to keep on being a success.
+ - It’s February the 22ndAnd I can’t tell a lie.
+ - You’re not sick you’re just in love.
+ - After you get what you want you don’t want it.
+ - A man may be hot but he’s not when he’s shot cause you can’t get a man with a gun.
+
+37 quotes

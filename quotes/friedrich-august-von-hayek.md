@@ -1,0 +1,149 @@
+ - The idea of social justice is that the state should treat different people unequally in order to make them equal.
+ - Liberty and responsibility are inseparable.
+ - If socialists understood economics, they wouldn’t be socialist.
+ - There is all the difference in the world between treating people equally and attempting to make them equal.
+ - The curious task of economics is to demonstrate to men how little they really know about what they imagine they can design.
+ - In government, the scum rises to the top.
+ - You can have economic freedom without political freedom, but you cannot have political freedom without economic freedom.
+ - A society that does not recognise that each individual has values of his own which he is entitled to follow can have no respect for the dignity of the individual and cannot really know freedom.
+ - Any man who is only an economist is unlikely to be a good one.
+ - Conservatism is only as good as what it conserves.
+ - The more the state “plans” the more difficult planning becomes for the individual.
+ - Social justice rests on the hate towards those that enjoy a comfortable position, namely, upon envy.
+ - It is possible for a dictator to govern in a liberal way. And it is also possible for a democracy to govern with a total lack of liberalism. Personally I prefer a liberal dictator to democratic government lacking liberalism.
+ - A claim for equality of material position can be met only by a government with totalitarian powers.
+ - And who will deny that a world in which the wealthy are powerful is still a better world than one in which only the already powerful can acquire wealth?
+ - The chief evil is unlimited government, and nobody is qualified to wield unlimited power.
+ - To be controlled in our economic pursuits means to be controlled in everything.
+ - Freedom granted only when it is known beforehand that its effects will be beneficial is not freedom.
+ - Fascism is the stage reached after communism has proved an illusion.
+ - To combat the depression by a forced credit expansion is to attempt to cure the evil by the very means which brought it about.
+ - Without a theory the facts are silent.
+ - Planning leads to dictatorship because dictatorship is the most effective instrument of coercion and the enforcement of ideals and, as such, essential if central planning on a large scale is to be possible.
+ - Through the inevitable mismanagement of resources and goods at the disposal of the state, all forms of collectivism lead eventually to tyranny.
+ - We must raise and train an army of fighters for freedom.
+ - The history of government management of money has, except for a few short happy periods, been one of incessant fraud and deception.
+ - The principle that the end justifies the means is in individualist ethics regarded as the denial of all morals. In collectivist ethics it becomes necessarily the supreme rule.
+ - Freedom can be preserved only if it is treated as a supreme principle which must not be sacrificed for particular advantages.
+ - Nowhere has democracy ever worked well without a great measure of local self-government, providing a school of political training for the people at large as much as for their future leaders.
+ - Human reason can neither predict nor deliberately shape its own future. Its advances consist in finding out where it has been wrong.
+ - A policy of freedom for the individual is the only truly progressive policy.
+ - Nothing distinguishes more clearly conditions in a free country from those in a country under arbitrary government than the observance in the former of the great principles known as the Rule of Law.
+ - When it becomes dominated by a collectivist creed, democracy will inevitably destroy itself.
+ - Once wide coercive powers are given to governmental agencies for particular purposes, such powers cannot be effectively controlled by democratic assemblies.
+ - Our moral traditions developed concurrently with our reason, not as its product.
+ - By giving the government unlimited powers, the most arbitrary rule can be made legal; and in this way a democracy may set up the most complete despotism imaginable.
+ - Socialism has never and nowhere been at first a working-class movement.
+ - The mischievous idea that all public needs should be satisfied by compulsory organization and that all the means that individuals are willing to devote to pubic purposes should be under the control of government, is wholly alien to the basic principles of a free society.
+ - We shall not grow wiser before we learn that much that we have done was very foolish.
+ - We must face the fact that the preservation of individual freedom is incompatible with a full satisfaction of our views of distributive justice.
+ - The idea that human kind can shape the world according to wish is what I call the fatal conceit.
+ - Once politics become a tug-of-war for shares in the income pie, decent government is impossible.
+ - I was quite depressed two weeks ago when I spent an afternoon at Brentano’s Bookshop in New York and was looking at the kind of books most people read. Once you see that you lose all hope.
+ - To create conditions in which competition will be as effective as possible, to prevent fraud and deception, to break up monopolies- these tasks provide a wide and unquestioned field for state activity.
+ - We shall all be the gainers if we can create a world fit for small states to live in.
+ - It is no accident that on the whole there was more beauty and decency to be found in the life of the small peoples, and that among the large ones there was more happiness and content in proportion as they had avoided the deadly blight of centralization.
+ - It seems to be almost a law of human nature that it is easier for people to agree on a negative program – on the hatred of an enemy, on the envy of those better off – than on any positive task.
+ - We must make the building of a free society once more an intellectual adventure, a deed of courage.
+ - This is the constitutional limitation of man’s knowledge and interests, the fact that he cannot know more than a tiny part of the whole of society and that therefore all that can enter into his motives are the immediate effects which his actions will have in the sphere he knows.
+ - Even the striving for equality by means of a directed economy can result only in an officially enforced inequality – an authoritarian determination of the status of each individual in the new hierarchical order.
+ - Once you admit that the individual is merely a means to serve the ends of the higher entity called society or the nation, most of those features of totalitarianism which horrify us follow of necessity.
+ - The system of private property is the most important guaranty of freedom, not only for those who own property, but scarcely less for those who do not.
+ - Least of all shall we preserve democracy or foster its growth if all the power and most of the important decisions rest with an organization far too big for the common man to survey or comprehend.
+ - It is of the essence of the demand for equality before the law that people should be treated alike in spite of the fact that they are different.
+ - The greatest danger to liberty today comes from the men who are most needed and most powerful in modern government, namely, the efficient expert administrators exclusively concerned with what they regard as the public good.
+ - There is, in a competitive society, nobody who can exercise even a fraction of the power which a socialist planning board would possess.
+ - Should our moral beliefs really prove to be dependent on factual assumptions shown to be incorrect, it would be hardly moral to defend them by refusing to acknowledge the facts.
+ - If freedom is to flourish the philosophic foundations of a free society must be kept a living intellectual issue and its implementation a task which challenges the ingenuity and imagination of the liveliest minds.
+ - Money is one of the greatest instruments of freedom ever invented by man. It is money which in existing society opens an astounding range of choice to the poor man, a range greater than that which not many generations ago was open to the wealthy.
+ - Competition is like experimentation in science, a discovery process, and it must rely on the self interest of producers, it must allow them to use their knowledge for their purposes, because nobody else possesses the information.
+ - With the exception only of the period of the gold standard, practically all governments of history have used their exclusive power to issue money to defraud and plunder the people.
+ - The mind cannot foresee its own advance.
+ - Personally I prefer a liberal dictator to democratic government lacking liberalism.
+ - Never will man penetrate deeper into error than when he is continuing on a road which has led him to great success.
+ - Capitalism created the possibility of employment.
+ - Is there a greater tragedy imaginable than that, in our endeavour consciously to shape our future in accordance with high ideals, we should in fact unwittingly produce the very opposite of what we have been striving for?
+ - In no other field has the world yet paid so dearly for the abandonment of nineteenth-century liberalism as in the field where the retreat began: in international relations. Yet only a small part of the lesson which experience ought to have taught us has been learned.
+ - Justice, like liberty and coercion, is a concept which, for the sake of clarity, ought to be confined to the deliberate treatment of men by other men.
+ - If I am not mistaken, psychology, psychiatry and some branches of sociology, not to speak about the so-called philosophy of history, are even more affected by what I have called the scientistic prejudice, and by specious claims of what science can achieve.
+ - I regard it in fact as the great advantage of the mathematical technique that it allows us to describe, by means of algebraic equations, the general character of a pattern even where we are ignorant of the numerical values which will determine its particular manifestation.
+ - Many of the greatest things man has achieved are not the result of consciously directed thought, and still less the product of a deliberately coordinated effort of many individuals, but of a process in which the individual plays a part which he can never fully understand.
+ - It is neither necessary nor desirable that national boundaries should mark sharp differences in standards of living, that membership of a national group should entitle to a share in a cake altogether different from that in which members of other groups share.
+ - We know, in other words, the general conditions in which what we call, somewhat misleadingly, an equilibrium will establish itself: but we never know what the particular prices or wages are which would exist if the market were to bring about such an equilibrium.
+ - He will therefore have to use what knowledge he can achieve, not to shape the results as the craftsman shapes his handiwork, but rather to cultivate a growth by providing the appropriate environment, in the manner in which the gardener does this for his plants.
+ - It is because freedom means the renunciation of direct control of individual efforts that a free society can make use of so much more knowledge than the mind of the wisest ruler could comprehend.
+ - If we can reduce the risk of friction likely to lead to war, this is probably all we can reasonably hope to achieve.
+ - We know: of course, with regard to the market and similar social structures, a great many facts which we cannot measure and on which indeed we have only some very imprecise and general information.
+ - We did not realise how fragile our civilisation was.
+ - We must shed the illusion that we can deliberately “create the future of mankind.” This is the final conclusion of the forty years which I have now devoted to the study of these problems.
+ - We can either have a free Parliament or a free people. Personal freedom requires that all authority is restrained by long-run principles which the opinion of the people approves.
+ - It is rather a problem of how to secure the best use of resources known to any of the members of society, for ends whose relative importance only those individuals know.
+ - Unlike the position that exists in the physical sciences, in economics and other disciplines that deal with essentially complex phenomena, the aspects of the events to be accounted for about which we can get quantitative data are necessarily limited and may not include the important ones.
+ - It used to be the boast of free men that, so long as they kept within the bounds of the known law, there was no need to ask anybody’s permission or to obey anybody’s orders. It is doubtful whether any of us can make this claim today.
+ - Hayek was making us think of the productive process as a process in time, inputs coming before outputs.
+ - The credit which the apparent conformity with recognized scientific standards can gain for seemingly simple but false theories may, as the present instance shows, have grave consequences.
+ - Wherever liberty as we understand it has been destroyed, this has almost always been done in the name of some new freedom promised to the people.
+ - Socialism has never and nowhere been at first a working-class movement. It is by no means an obvious remedy for the obvious evil which the interests of that class will necessarily demand. It is a construction of theorists.
+ - As is true with respect to other great evils, the measures by which war might be made altogether impossible for the future may well be worse than even war itself.
+ - It would clearly not be an improvement to build all houses exactly alike in order to create a perfect market for houses, and the same is true of most other fields where differences between the individual products prevent competition from ever being perfect.
+ - Why should we, however, in economics, have to plead ignorance of the sort of facts on which, in the case of a physical theory, a scientist would certainly be expected to give precise information?
+ - If most people are not willing to see the difficulty, this is mainly because, consciously or unconsciously, they assume that it will be they who will settle these questions for the others, and because they are convinced of their own capacity to do this.
+ - Socialism is simply a re-assertion of that tribal ethics whose gradual weakening had made an approach to the Great Society possible.
+ - Nobody with open eyes can any longer doubt that the danger to personal freedom comes chiefly from the left.
+ - Without the rich – without those who accumulated capital – those poor who could exist at all would be very much poorer indeed, scratching a livelihood from marginal lands on which every drought would kill most of the children they would be trying to raise.
+ - That there is little hope of international order or lasting peace so long as every country is free to employ whatever measures it thinks desirable in its own immediate interest, however damaging they may be to others, needs little emphasis now.
+ - I must confess that if I had been consulted whether to establish a Nobel Prize in economics, I should have decidedly advised against it.
+ - Economic transactions between national bodies who are at the same time the supreme judges of their own behavior, who bow to no superior law, and whose representatives cannot be bound by any considerations but the immediate interest of their respective nations, must end in clashes of power.
+ - Perhaps even more than elsewhere current notions of what is desirable and practicable are here still of a kind which may well produce the opposite of what they promise.
+ - The progress of the natural sciences in modern times has of course so much exceeded all expectations that any suggestion that there may be some limits to it is bound to arouse suspicion.
+ - It seems to me that socialists today can preserve their position in academic economics merely by the pretense that the differences are entirely moral questions about which science cannot decide.
+ - What a free society offers to the individual is much more than what he would be able to do if only he were free.
+ - Whenever it is necessary that one of several conflicting opinions should prevail and when one would have to be made to prevail by force if need be, it is less wasteful to determine which has the stronger support by counting numbers than by fighting.
+ - This is not a dispute about whether planning is to be done or not. It is a dispute as to whether planning is to be done centrally, by one authority for the whole economic system, or is to be divided among many individuals.
+ - At a time when most movements that are thought to be progressive advocate further encroachments on individual liberty, those who cherish freedom are likely to expend their energies in opposition. In this they find themselves much of the time on the same side as those who habitually resist change.
+ - Competition means decentralized planning by many separate persons.
+ - The power which a multiple millionaire, who may be my neighbor and perhaps my employer, has over me is very much less than that which the smallest “functionaire” possesses who wields the coercive power of the state, and on whose desecration it depends whether and how I am allowed to live or to work.
+ - No human mind can comprehend all the knowledge which guides the actions of society.
+ - I am certain, however, that nothing has done so much to destroy the juridical safeguards of individual freedom as the striving after this mirage of social justice.
+ - We shall never prevent the abuse of power if we are not prepared to limit power in a way which occasionally may prevent its use for desirable purposes.
+ - From the saintly and single-minded idealist to the fanatic is often but a step.
+ - The ultimate decision about what is accepted as right and wrong will be made not by individual human wisdom but by the disappearance of the groups that have adhered to the “wrong” beliefs.
+ - Many who think themselves infinitely superior to the aberrations of Nazism, and sincerely hate all manifestations, work at the same time for ideals whose realization would lead straight to the abhorred tyranny.
+ - I do not think it is an exaggeration to say history is largely a history of inflation, usually inflations engineered by governments for the gain of governments.
+ - Nothing is more securely lodged than the ignorance of the experts.
+ - Freedom necessarily means that many things will be done which we do not like.
+ - If democracy is a means rather than an end, its limits must be determined in the light of the purpose we want it to serve.
+ - The attitude of the liberal towards society is like that of the gardener who tends a plant and, in order to create the conditions most favorable to its growth, must know as much as possible about its structure and the way it functions.
+ - By the time any view becomes a majority view, it is no longer the best view: somebody will already have advanced beyond the point which the majority have reached.
+ - Perhaps the fact that we have seen millions voting themselves into complete dependence on a tyrant has made our generation understand that to choose one’s government is not necessarily to secure freedom.
+ - Few are ready to recognize that the rise of fascism and naziism was not a reaction against the socialist trends of the preceding period but a necessary outcome of those tendencies.
+ - I have arrived at the conviction that the neglect by economists to discuss seriously what is really the crucial problem of our time is due to a certain timidity about soiling their hands by going from purely scientific questions into value questions.
+ - Socialism can only be put into practice only by methods which most socialists disapprove.
+ - There can be little doubt that man owes some of his greatest successes in the past to the fact that he has not been able to control social life. His continued advance may well depend on his deliberately refraining from exercising controls which are now in his power.
+ - The freedom that will be used by only one man in a million may be more important to society and more beneficial to the majority than any freedom that we all use.
+ - The state itself becomes more and more identified with the interests of those who run things than with the interests of the people in general.
+ - We have indeed at the moment little cause for pride: as a profession we have made a mess of things.
+ - It is because every individual knows little and, in particular, because we rarely know which of us knows best best that we trust the independent and competitive efforts of many to induce the emergence of what we shall want when we see it.
+ - It is perhaps the most characteristic feature of the intellectual that he judges new ideas not by their specific merits but by the readiness with which they fit into his general conceptions, into the picture of the world which he regards as modern or advanced.
+ - This means that to entrust to science – or to deliberate control according to scientific principles – more than scientific method can achieve may have deplorable effects.
+ - Liberty is an opportunity for doing good, but this is only so when it is also an opportunity for doing wrong.
+ - Socialism constitutes a threat to the present and future welfare of the human race, in the sense that neither socialism nor any other known substitute for the market order could sustain the current population of the world.
+ - It is when it is contended that “in a democracy right is what the majority makes it to be” that democracy degenerates into demagoguery.
+ - The Germans would appear as the disturbers of peace, as they already do to some people, merely because they were the first to take the path along which all the others were ultimately to follow.
+ - The argument for liberty is not an argument against organization, which is one of the most powerful tools human reason can employ, but an argument against all exclusive, privileged, monopolistic organization, against the use of coercion to prevent others from doing better.
+ - There may be few instances in which the superstition that only measurable magnitudes can be important has done positive harm in the economic field: but the present inflation and employment problems are a very serious one.
+ - One need not be a prophet to be aware of impending dangers. An accidental combination of experience and interest will often reveal events to one man under aspects which few yet see.
+ - The Nobel Prize confers on an individual an authority which in economics no man ought to possess.
+ - If we wish to preserve a free society, it is essential that we recognize that the desirability of a particular object is not sufficient justification for the use of coercion.
+ - To act on the belief that we possess the knowledge and the power which enable us to shape the processes of society entirely to our liking, knowledge which in fact we do not possess, is likely to make us do much harm.
+ - In any society freedom of thought will probably be of direct significance for a small minority. But this does not mean that anyone is competent, or ought to have power, to select those to whom this freedom is to be reserved.
+ - Whatever men live for, today most live only because of the market order.
+ - It is indeed probable that more harm and misery have been caused by men determined to use coercion to stamp out a moral evil than by men intent on doing evil.
+ - We certainly do not regard it as right that the citizens of a large country should dominate those of a small adjoining country merely because they are more numerous.
+ - All political theories assume, of course, that most individuals are very ignorant. Those who plead for liberty differ from the rest in that they include among the ignorant themselves as well as the wisest.
+ - The great aim of the struggle for liberty has been equality before the law.
+ - It can hardly be denied that such a demand quite arbitrarily limits the facts which are to be admitted as possible causes of the events which occur in the real world.
+ - Humiliating to human pride as it may be, we must recognize that the advance and even the preservation of civilization are dependent upon a maximum of opportunity for accidents to happen.
+ - To discover the meaning of what is called “social justice” has been one of my chief preoccupations for more than 10 years. I have failed in this endeavour or rather, have reached the conclusion that, with reference to society of free men, the phrase has no meaning whatever.
+
+147 quotes

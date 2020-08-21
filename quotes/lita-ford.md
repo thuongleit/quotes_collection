@@ -1,0 +1,34 @@
+ - If I close my eyes forever will it all remain unchanged?
+ - I’m happy when I’m doing what I do best.
+ - Stiletto, I look at it more as an attitude as opposed to a high-heeled shoe.
+ - I was never ready to give up, but I did get words of confidence to move forward from a few musicians that had climbed up the totem pole of rock. They were encouraging words that struck a nerve with me and made me stronger.
+ - I need that aggressive attitude to play my music and more men have that attitude than women.
+ - I have very heartwarming fans.
+ - But duets are a lot of fun, I’d love to do another one.
+ - It’s nice when they say I inspire them, it inspires me.
+ - We’ve got horse property and there’s other stuff to do. Like, four wheel driving, we barbeque, drink beers, sit around and play guitars and have a merry ’ol time.
+ - You can never learn it all and I hope to continue my growth as a person and a musician.
+ - I don’t smoke, so they never sent me a copy.
+ - I like to travel. I love touring, I love playing.
+ - I’m not much of a political person and even if I was, look, Rock ‘n’ Roll is supposed to be fun and sexy and a little bit dangerous.
+ - It’s better for me to play with guys because Rock ‘n’ Roll has such an aggressive attitude.
+ - I worked at the cosmetic counter at a fine department store.
+ - We don’t have a lot of neighbors so we can blast the stereo.
+ - Life has become serious for me, although I do like to party every now and then.
+ - I’m not much of a club goer because every time I do go I get in trouble.
+ - I had funny memories, too, but the music was more important to me than anything else.
+ - I have no skanky guys in my band nor on my bus. If they are they get the boot real quick.
+ - I don’t really have any “must work withs,” but I would never refuse if a celebrity or fellow musician came along who is willing to write or sing or play on a Lita song.
+ - I was eleven and I wanted to play it because it was in my blood. It was a feeling I couldn’t deny.
+ - Don’t get me wrong, I’ve seen some very excellent women musicians.
+ - But when I record my next studio album, of course I’ll do the lead vocals.
+ - I have a lot of female fans.
+ - I didn’t tour Europe, because I didn’t have any label support.
+ - Joe Walsh is a great guy and and an unbelievable talent, Id like to work with him again someday.
+ - I loved Herman’s Head. And it was a great experience.
+ - I would like to work with a great producer who I haven’t met yet. I’m not sure who he is, but I’m looking for someone to take me to the next level.
+ - I’ve got a great place, it’s a country house.
+ - You’re stuck in front of the microphone. You can’t use your hands. I like to do things.
+ - I did play every little note on the guitar on that record.
+
+32 quotes

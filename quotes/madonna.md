@@ -1,0 +1,439 @@
+ - A lot of people are afraid to say what they want. That's why they don't get what they want.
+ - No matter who you are, no matter what you did, no matter where you've come from, you can always change, become a better version of yourself.
+ - I’m tough, I’m ambitious, and I know exactly what I want. If that makes me a bitch, okay.
+ - Poor is the man whose pleasure depends on the permission of another.
+ - Power is being told you're not loved and not being destroyed by it.
+ - If your joy is derived from what society thinks of you, you're always going to be disappointed.
+ - To be brave is to love someone unconditionally, without expecting anything in return. To just give. That takes courage, because we don't want to fall on our faces or leave ourselves open to hurt.
+ - No one knows you better than you know yourself. Do the thing you want. Don’t wait for someone else.
+ - I stand for freedom of expression, doing what you believe in, and going after your dreams.
+ - Set your goals high and go far. Don’t put off tomorrow what you can do today.
+ - Express yourself, don’t repress yourself.
+ - I've been popular and unpopular, successful and unsuccessful, loved and loathed, and I know how meaningless it all is. Therefore, I feel free to take whatever risks I want.
+ - The self-confidence one builds from achieving difficult things and accomplishing goals is the most beautiful thing of all.
+ - Nothing really matters; love is all we need.
+ - I don’t care if you hate me or love me, as long as I make you think.
+ - I always wished that I could find someone as beautiful as you, but in the process I forgot that I was special too. 
+ - You’re frozen when your heart’s not open.
+ - If you want to change the world, change yourself.
+ - We all need to treat each other with human dignity and respect.
+ - The essence of femininity is to absolutely love being a woman.
+ - If you want something bad enough the whole world conspires to help you get it.
+ - I’ll rest when I’m dead. I’m hungry and life is short!
+ - When I get down on my knees, it is not to pray.
+ - Don’t just stand there let’s get to it. Strike a pose, there’s nothing to it.
+ - Its boring not to take risks.
+ - There’s no greater power than the power of good-bye.
+ - Freedom comes when you learn to let go, creation comes when you learn to say ‘no’
+ - If we took a holiday, took some time to celebrate, just one day out of life, it would be, it would be so nice.
+ - I am my own experiment. I am my own work of art.
+ - Don’t go for second best. Put your love to the test.
+ - I want to be like Gandhi and Martin Luther King and John Lennon but i want to STAY ALIVE.
+ - You only see what your eyes want to see. How can life be what you want it to be?
+ - Deep in my heart I’m concealing things that I’m longing to say. Scared to confess what I’m feeling – frightened you’ll slip away.
+ - I must confess that I am usually drawn to sadness, and loneliness has never been a stranger to me. But love tried to welcome me, but my soul drew back, guilty of lust and sin.
+ - Never forget to dream.
+ - Why did I want to break all the rules? Because the rules didn’t make sense, that’s why.
+ - We are living in a material world and I’m a material girl.
+ - I am a survivor. I am like a cockroach, you just can’t get rid of me.
+ - Yoga is a metaphor for life. You have to take it really slowly. You can’t rush. You can’t skip to the next position. You find yourself in very humiliating situations, but you can’t judge yourself. You just have to breathe, and let go. It is a workout for your mind, your body and your soul.
+ - I’m not a feminist, I’m a humanist.
+ - I don’t give a damn if I go to hell. I love you Satan. The road to hell is paved with good intentions.
+ - I am not reinventing myself. I am going through the layers and revealing myself. I am on a journey, an adventure that’s constantly changing shape.
+ - This will be a revolution of inquiring further, of not worrying about winning other people’s approval, of not wishing you were someone else but perfectly content to be who you are. Someone unique, and rare, and fearless. I want to start a revolution of love.
+ - Happiness lies in your own hand.
+ - There’s a certain satisfaction in a little bit of pain.
+ - Like a virgin, touched for the very first time.
+ - If it’s bitter at the start, then it’s sweeter in the end.
+ - A good relationship is a competition of generosity.
+ - If the land of make believe is inside your heart it will never leave.
+ - Only when I’m dancing can I feel this free.
+ - Girls can wear jeans and cut their hair short, wear shirts and boots cause it’s okay to be a boy. But for a boy to look like a girl is degrading cause you think being a girl is degrading.
+ - One is that we are all responsible for our actions, our behavior, and our words, and we must take responsibility for everything we say and do. I am the architect of my destiny. You can’t blame other people for things that happened to you.
+ - I am because we are. We all bleed the same color. We all want to love and be loved.
+ - Tell me love isn’t true, it’s just something that we do.
+ - Nothing cheers a girl up like SHOPPING!
+ - I don’t take drugs. I never did. All the feelings that drugs are supposed to produce in you – confidence or energy – I can produce naturally.
+ - I ran to the forest, I ran to the trees. I ran and I ran, I was looking for me.
+ - I want the good life, but I don’t want an easy ride. What I want is to work for it, feel the blood and sweat on my fingertips.
+ - Cosmic systems intertwine, astral bodies drip like wine, all of nature ebbs and flows. Comets shoot across the sky, can’t explain the reasons why, this is how creation goes.
+ - I was thinking about dying the other day the death thought came while I was sitting on the toilet peeing – that’s where I have my most contemplative thoughts.
+ - When I came to New York it was the first time I’d ever taken a plane, the first time I’d ever gotten a taxi-cab, the first time for everything. And I came here with 35 dollars in my pocket. It was the bravest thing I’d ever done.
+ - I think you can be defiant and rebellious and still be strong and positive.
+ - Not only does society suffer from racism and sexism but it also suffers from ageism. Once you reach a certain age you’re not allowed to be adventurous, you’re not allowed to be sexual. I mean, is there a rule? Are you supposed to just die?
+ - I have had many challenges in my life, including some very big ones when I was young and I’ve learned a lot of valuable lessons along the way. I have seen life from just about every angle you can see it from.
+ - Crucifixes are sexy because there’s a naked man on them.
+ - Strong women leave big hickies.
+ - Beauty’s where you find it; not just where you bump and grind it.
+ - I wouldn’t say I wanna conquer the world anymore. But I want to be a part of making the world a better place. I want to inspire people and I wanna be part of the solution.
+ - Manipulating people, that’s what I’m good at.
+ - Having money is just the best thing in the world.
+ - You have to reinvent to stay fresh, to stay in the game.
+ - I didn’t set out to write certain kinds of songs – I just set out to write good songs.
+ - Who needs a smile when a tear’s so full of love?
+ - I always acted like a star long before I was one.
+ - Sick and perverted always appeals to me.
+ - Hand fits giving, so do it, that’s what the Gospel said to me. Life fits living, so let your judgments go.
+ - I’m not going to compromise my artistic integrity.
+ - When my world seems to crumble all around, and foolish people try to bring me down, I just think of your smile face, and I’m flying.
+ - Isn’t everyone just travelling down their own road watching the signs as they go?
+ - All you need is your own imagination. So use it that’s what it’s for.
+ - Britney Spears became my talisman. I became obsessed with wearing Britney T-shirts. I felt it would bring me luck. And it did.
+ - May the angels protect you, and sadness forget you.
+ - You’ll always be two steps behind me.
+ - I fear the future I wish for my children is at risk, so I’m taking action. Please join me...
+ - Truth is never far behind.
+ - Sometimes you want to go for a walk and you don’t want to be watched. You just want to be anonymous and blend in. Especially when I travel, I feel that way, because I can’t really go out and see a city the way other people can and I miss out on a lot.
+ - I suffered fools so gladly.
+ - Art can heal it if art is allowed to exist. And if art is slowly wiped off the face of the planet, then what tools do we have to reach people, to appeal to them and all of their senses?
+ - I became an overachiever to get approval from the world...
+ - Publicly humiliating someone for your own gain will only come and haunt you. God’s going to have his revenge.
+ - I wouldn’t have turned out the way I was if I didn’t have all those old-fashioned values to rebel against.
+ - People who have nothing better to do than talk about my hair color have no lives.
+ - Filmmaking is such a collaboration. At a certain point, I suppose you do have to let go and trust the people you’re working with.
+ - I believe what I practice has to do with something deeper than religion, that it embodies all religions, including Judaism. And Christianity. And Islam.
+ - Elvis Presley? He’s God.
+ - One set of circumstances does not complete you. Maybe nothing ever does. So you work on your life and you work on your ‘work’ and you try to live every single day like it’s your last. And you try to be better, to yourself and to others. I don’t always succeed. But I try and it’s my goal.
+ - I think most children who are adopted ultimately want to meet their biological parents and often do. I think that is an important journey for children who are adopted to go on.
+ - The world is not so kind, people trap your mind.
+ - To me punk rock is thinking outside of the box, outside of the program, outside the establishment.
+ - I don’t think I have to introduce myself, unless you don’t recognize me with my clothes on.
+ - Just like a prayer, your voice can take me there.
+ - Education is not a luxury, it is a basic human right.
+ - You don’t want to be the smartest person in the room; you want to be the dumbest in the room. You want to be surrounded by other thinking people who are going to say something that makes you think, “Oh, my God, that’s an amazing idea. Why didn’t I think of that.”
+ - You can be sexy, but you can’t be 50.
+ - Let love shine and we will find a way to come together.
+ - Why did God create men? Because vibrators can’t mow the lawn.
+ - I’m a role model for those who dare to be different. For those who dare to take a stand in their life and have an opinion.
+ - A fire lit under my ass? Yeah, that’s true. No time to waste.
+ - As much good as it does, social media can also encourage stupidity and degradation.
+ - We all fall to the floor at some point. It’s how you pick yourself up that’s the real challenge. Isn’t it?
+ - Power is a great aphrodisiac and I am a very powerful person.
+ - Fame is a by-product. It’s not a goal. What matters is loving your work and loving what you do.
+ - When I’m dead and no longer the threat. My comfort is that all the great artists since the beginning of time have always been completely misunderstood and never fully appreciated until they were dead.
+ - I know where beauty lives, I’ve seen it once, I know the warmth she gives.
+ - I don’t think ultimately God punishes. I think we bring about our own destruction or our own creation.
+ - Fame is a form of misunderstanding.
+ - There’s no borderline for the things that I can say, do, and create...
+ - Losing my virginity was a career move.
+ - In my coming-of-age time, there was no internet, no social networking, nothing. It was just show after show, hoping one day somebody would notice you.
+ - It takes a Real man to fill my shoes.
+ - I know the aspect of my personality, being the vixen, the heartbreaker and the incredibly provocative girl is a very marketable image, but it’s not insincere. You just can’t take it seriously.
+ - It’s weird juggling children in a rhinestone outfit.
+ - My priority is my family, absolutely, 100 percent.
+ - Sometimes you just have to go and make a mess of things to get people to pay attention.
+ - I don’t think about my old stuff. I just move forward.
+ - Life’s too short to be bitter, I’m too short to be bitter.
+ - We live in a very scary time. Or should I say we don’t live at all.
+ - With all the chaos, pain and suffering in the world, the fact that my adoption of a child from who was living in an orphanage, you know, was the number one story for a week in the world. To me, that says more about our inability to focus on the real problems.
+ - I don’t care anymore if people dress like me, now I want them to think like me.
+ - It’s not easy having a good marriage – but I don’t want easy. Easy doesn’t make you grow. Easy doesn’t make you think. I thank God everyday that I am married to a man who makes me think. That’s my definition of true love.
+ - I like film soundtracks. I like the soundtracks better than the movies.
+ - Motherhood was the beginning of my own journey asking the question, ‘Why am I here?’ I had to stop and think: What am I doing to teach my daughter? What do I believe in?
+ - Only the one that hurts you can make you feel better. Only the one that inflicts pain can take it away.
+ - It takes more strength to cry, admit defeat. I have truth on my side, you only have deceit.
+ - I’m so used to people slagging me off. Since the beginning of my career I’ve been told I have no talent, I can’t sing and I’m a one-hit wonder.
+ - Bad girl, drunk by six, kissing someone else’s lips. Smoked to many cigarettes today, I’m not happy when I act this way.
+ - If those civil rights groups are going into those orphanages and offering to look after those children, then they have every right to make a stink about it. But they’re not. They’re not offering a solution.
+ - I have the most perfect belly button. When I stick my fingers in it, I feel a nerve in the center of my body shoot up my spine.
+ - People have this idea that if you’re sexual and beautiful and provocative, then there’s nothing else you could possibly offer.
+ - In our house we don’t use words like “despise” and ‘hate,’ we say “strongly dislike.”
+ - When you make a movie, it’s just a huge bureaucracy because movies cost so much money. Millions of people get involved, and pretty soon the creative idea gets tramped on and watered down or filtered through a huge system.
+ - I just like the idea of pills. I like to collect them but not actually take them. When I fell off my horse, I got tons of stuff: Demerol and Vicodin and Xanax and Valium and Oxycontin, which is supposed to be like heroin. And I’m quite scared to take them. I’m a control freak.
+ - I think lines are meant to be crossed anyways. The entire time I was singing on the cross, there’s numbers flipping over my head. You know, starting at one and going up to 12 million.
+ - Things were a lot simpler in Detroit. I didn’t care about anything but boyfriends.
+ - I have great respect for Sean Penn. It’s like most relationships that fail. It’s not one thing, it’s many thing that go on over a period of time.
+ - The media is something that affects a lot of people, so you’re constantly trying to strike a balance between respecting something and not caring about it.
+ - Sometimes I was in a mood to write a song as if I was writing in my journal and reveal certain parts of me that I was ready to reveal.
+ - I think that everyone should get married at least once, so you can see what a silly, outdated institution it is.
+ - And, it seems like a whole new generation of kids have discovered his genius and are bringing him to life again. I hope that wherever Michael is right now he is smiling about this. Yes, Michael Jackson was a human being but he was a king. Long live the king.
+ - When I’m hungry, I eat. When I’m thirsty, I drink. When I feel like saying something, I say it.
+ - You can tell how much fun a city is going to be if Nobu is in it.
+ - I try to have thick skin, but every once in a while I read something that someone says about me, and it’s so slanderous and moralistic and it has nothing to do with my music.
+ - Rejection is the greatest aphrodisiac.
+ - In some respects I will never die. Because art is immortal. What we leave behind and what we create – the energy that we put out into the world is eternal.
+ - My life is not a game that I play to entertain you.
+ - One must dare to show what he wants. You have to go and ask for things rather than wait for them to happen.
+ - To me, the most important thing – aside from meeting people’s physical needs, whether that’s education, health care, clothing, food, a roof over their heads – is changing the mind-set and educating people. And most of all, most important, is empowering people and making them self-sustaining.
+ - Effeminate men intrigue me more than anything in the world. I see them as my alter egos. I feel very drawn to them. I think like a guy, but I’m feminine. So I relate to feminine men.
+ - Thanks for all the birthday love! I feel like the luckiest girl in the world today!
+ - I love being a mother. My children fill me up in many ways, and inspire me in many ways, but I need a partner in my life and I think most people feel that way.
+ - Dress like Britney Spears and think like me, and everything will be fine.
+ - Words are useless, especially sentences.
+ - I learned a lot about humility and patience, keeping my mouth shut.
+ - I was never satisfied with casual encounters, I can’t hide my need for two hearts that bleed with burning love.
+ - You bring me to my knees, while I’m scratching out the eyes of a world I want to conquer, and deliver, and despise. And right while I am kneeling there, I suddenly begin to care. And understand that there could be a person that loves me.
+ - Sometimes I look back at myself and remember things I used to say, or my hairstyle, and I cringe.
+ - Beauty is where you find it.
+ - Power without guilt, love without doubt...
+ - We learn our lessons; we get hurt; we want revenge. Then we realize that actually, happiness and forgiving people is the best revenge.
+ - I could bring you so much pleasure, erotic, erotic, put your hands all over my body.
+ - You took a poison arrow and you aimed it at my heart. It’s heavy and it’s bitter, and it’s tearing me apart.
+ - When I discovered that I could write music, it felt like the most natural way for me to connect with people and tell my stories. I’ve always thought of that as what I do: I tell stories.
+ - The critics have been writing me off for 20 years. That’s nothing new. As far as I know I still have plenty of fans and sell lots of records. Do I care what critics say about me? No, and I don’t read reviews.
+ - I think the silence would be good with me, and not interacting with people would be okay. But not being able to move outside of the space would be hard. Not being able to walk around – the stillness of my body, physically – that would be the challenge.
+ - I am a tip-top starlet. That is my job that I am paid to do.
+ - Economic markets are collapsing. People all over the world are suffering and people afraid. What happens when peep are afraid? They become intolerant.
+ - The beast is the modern world that we live in! The material world. The physical world. The world of illusion that we think is real. We live for it; we’re enslaved by it. And it will ultimately be our undoing.
+ - If you have to ask for something more than once or twice, it wasn’t yours in the first place. And that’s hard to accept when you love someone.
+ - I feel like I’ve survived so much, and been through so much. And sometimes I miss the innocence of those times. Life was different. New York was different. The music business was different. I miss the simplicity of it, the naivete of everyone around me.
+ - Rebel Heart changed everything. First of all, it drove me insane – and made me feel an overwhelming sense of anxiety. It made me second guess everything, because suddenly I thought, ‘Oh god, everyone’s heard all these demos.’
+ - I think art should be controversial. I think it should make people think.
+ - When you make a movie, it seems like there’s nothing but resistance. It’s kind of a miracle that any movie ever gets made.
+ - I’m not claiming to appeal to the same people that Christina Aguilera or Britney Spears are going to appeal to. I’m not trying to. I’m doing what I want to do.
+ - I don’t give a damn if I go to hell.
+ - I’m constantly exploring spirituality, sexuality, different aspects of love, whether it’s romantic love or the love you have for your children. And love can be as devastating and destructive as it can be rejuvenating and life-giving. I guess I try to capture all of that.
+ - I feel like everybody needs to take a sabbatical and go to Russia and Africa and work in orphanages and really witness true suffering. And then you’ll just feel ridiculous for ever complaining about anything. Everybody needs that kind of reality check.
+ - I was a buffoon and an idiot until the age of forty.
+ - Do I have to change my name, will it get me far? Should I lose some weight, am I gonna be a star?
+ - I guess some people are brilliant enough to be brilliant on their own and never doubt anything and come up with fabulous things. But I think it’s good to get into arguments with people and have them say, ‘That sucks’ or ‘You’re crazy’ or ‘That’s cheesy’ or ‘What do you think of this?’
+ - I do think of myself as a queen, but I don’t think I’m the only queen. There’s room for other queens. We reign over different kingdoms.
+ - In America it is not considered to be mentally ill when a woman advances on her prey in a discotheque setting with hardy cocktails present.
+ - It amazes me when I talk to people in their early 20s and they’ve never read the classics, things we read as children. When you don’t have knowledge and understanding, then fear rises in you.
+ - I think everybody has a bisexual nature. That’s my theory. I could be wrong.
+ - Family is everything. Family comes first. It’s not what I expected it to be, but nothing ever is.
+ - I refuse to act the way someone expects me to.
+ - Marriage? I don’t know what I really think about marriage. I’m a bit confused on that issue.
+ - Obviously, I feel a great sense of responsibility being a good parent and raising my children. I don’t take that job very lightly. Who they are, what they become and what they contribute to the world is very important to me.
+ - When I think about popular culture, I can’t help but think that we’re living in the age of loneliness. There’s this illusion that we all have instant access to each other, but we actually have no real connection.
+ - In everyday life I am quiet and reserved, not the housekeeper type but cool and relaxed. I don’t get up in the morning wearing false eyelashes and I don’t wear fancy underwear when I’m cooking popcorn. I’m a nice little ducky.
+ - When I first moved to New York I wanted to be a dancer, I danced professionally for years, living a hand-to-mouth existence.
+ - Some people out there think everything I do is a publicity stunt, they think when I go to the bathroom it’s a publicity stunt.
+ - My heart goes out to the families of innocent children who were killed today in Pakistan!! I do not accept a world where kids are killed for wanting an education! This violence and ignorance has to stop!!!! It starts with all of us treating all human beings with dignity and respect!!
+ - I hate polite conversation. I hate it when people stand around and go, ‘Hi, how are you?’ I hate words that don’t have any reason or meaning. Also I hate it when people smoke in elevators and closed in places. It’s just so rude.
+ - I wanted to be famous. I wanted everybody to love me. I wanted to be a star. I worked really hard and my dream came true.
+ - I hope my child will be a good Catholic like me.
+ - Hurt that’s not supposed to show, and tears that fall when no one knows.
+ - Hanging a noose on my door reeks of cowardice and fear on many, many levels.
+ - I came to the realization that a strong female is frightening to everybody, because all societies are male-dominated – black societies, poor people, rich people, any racial group, they’re all dominated by men. A strong female is going to threaten everybody across the board.
+ - It’s not my nature to just kick back.
+ - We’re very privileged as Americans – it’s easy to forget about the rest of the world and to think that your problems are the most important problems. Even poor people in America live better than poor people most everywhere else.
+ - I don’t trust any man who hasn’t kissed another man.
+ - I am very proud to be Italian.
+ - Rita Haywood gave good face.
+ - I loved nuns when I was growing up. I thought they were beautiful. For several years I wanted to be a nun. I saw them as really pure, disciplined, above average people. They had these serene faces. Nuns are sexy.
+ - I think that its an artist’s responsibility to have a point of view. Society takes its cue from popular art. People need something to look to, something to provoke them into questioning whether they completely hate something or completely love something.
+ - Jean-Baptiste Mondino: “She’s John Lennon and Yoko Ono at the same time”.
+ - I keep telling everyone that I want to start a revolution but no one is taking me seriously. If I had black skin and an afro, would you take me seriously? If I was an Arab waving a hand grenade, would you take me seriously?
+ - Death was a big part of my life growing up. I went to lots of funerals.
+ - The one thing I don’t understand is when people make comments who are clearly not fans of mine. I think, why are you here? Why are you wasting your time? It’s fascinating.
+ - I miss New York. I still love how people talk to you on the street – just assault you and tell you what they think of your jacket.
+ - Every time I reach a new peak, I see a new one I want to climb.
+ - I like to change. A new lamp, a piece of art, can transform a room.
+ - I know I’m not the greatest singer or dancer, but that doesn’t interest me, I’m interested in being provocative and pushing people’s buttons.
+ - People who listen to them properly don’t underestimate them. Unfortunately, there’s so much about my career and me that distracts people from the actual content of most of my songs.
+ - I’ve read a couple of reviews that say I’m getting harder in my old age but I don’t think that’s true at all. I think that you can’t help but become a little cynical about life and love but I’m still a romantic, I’m still an idealist.
+ - I hope I will always have the ability to create art and live in a world where I can speak freely, and I can inspire people. I don’t know what form that will take.
+ - Romance should be spontaneous, but in my career I’m totally in control.
+ - I think they probably got it on, Jesus and Mary Magdalene.
+ - One of the many things I learned from all of this: If you aren’t willing to fight for what you believe in, then don’t even enter the ring.
+ - I don’t think anyone strives to be anything negative. I just think that it’s our nature to only focus on a few things in life and forget about a lot of other stuff.
+ - If at first you don’t succeed, you’re obviously not me.
+ - Fame gets you in the door but it doesn’t keep you in the room.
+ - Do everything you’re told. Be a good cheerleader. And never, never say, ‘It’s not so bad.’ Say ‘You are almost there!’ And say it a lot.
+ - I don’t want no lies, I don’t watch TV. I don’t waste my time, won’t read a magazine.
+ - My nature is to provoke, that’s true. I can’t help myself. But it’s always with good intentions.
+ - What else is there for me to conquer? Hopefully my ego.
+ - My idea of the perfect man would be someone intelligent and clever enough, but also kind and compassionate enough to stand up to me – to stand up to me with compassion.
+ - I’ve always been interested in electronica, techno, trip-hop, that kind of music. The thing that bothered me about a lot of that music, though, was it seemed devoid of emotion. There wasn’t a lot that felt personal.
+ - There are moments when I can’t believe I’m as old as I am. But I feel better physically than I did 10 years ago. I don’t think, Oh God, I’m missing something.
+ - Everyone is entitled to my opinion.
+ - It doesn’t matter who you are, it’s what you do that takes you far.
+ - I tried to be a boy, I tried to be a girl, I tried to be a mess.
+ - I like to be a team player. All the projects I do are collaborations. And I want to solicit the opinions and help of other people. I’m not interested in being the one in charge.
+ - My son youngest son David’s favorite song – he plays guitar – and he likes “Devil Pray.” That’s his favorite.
+ - Catholicism is a really mean religion, and it’s incredibly hypocritical. But it plays a role in my life ’cause you can’t really get a lot of things out of your head, such as what Jesus Christ looks like and that divorce is a horrible thing.
+ - I love horses. I think I may have been one of Henry VIII’s knights in another life, riding through a great forest.
+ - They’re only words, unless they’re true.
+ - Nos are just as valuable as yeses in the game of life. In fact, they’re essential.
+ - I don’t have a religion because I don’t like that word religion.
+ - Say hello to your life.
+ - I see a huge paradox in me – the intense need to be loved and the search for approval juxtaposed with the need to nurture other people, to be the mother I never had.
+ - My home base – pop music and the Catholic Church.
+ - Being loved keeps you young.
+ - I do some of my best stand-up comedy during sound checks.
+ - That consciousness is everything and that all things begin with a thought. That we are responsible for our own fate, we reap what we sow, we get what we give, we pull in what we put out.
+ - I became very obsessed with death, and the idea that you never know when death will arrive, so one has to do as much as possible all the time to get the most out of life. That would be a motivating force.
+ - I don’t know what our government does except put us into debt and blow up other countries.
+ - My daughter has a problem picking things up in her room. So if you leave your clothes on the floor, we put them in a trash bag. She has to earn them back by being tidy. I’m a disciplinarian. Guy’s the spoiler.
+ - With every breath, I’m deeper in you.
+ - I want to keep growing and living life to the fullest for as long as I’m on this planet.
+ - Popularity comes and goes. You need to know who you are, what you stand for, and why you’re here.
+ - I would like to see the Pope wearing my T-shirt.
+ - I always thought I should be treated like a star.
+ - The only way we know we love ourselves and the people in our life is by the agreements we are willing to make and keep.
+ - Many people see Eva Peron as either a saint or the incarnation of Satan. That means I definitely can identify with her.
+ - I’ll flirt with anyone from garbagemen to grandmothers.
+ - You’re getting angry, you know I can see. You’re just jealous, cause you can’t be me.
+ - Isn’t it amazing that there are laws of the universe that you can actually find out about, live your life according to and change the world for the better?
+ - I’m not a reluctant pop star. I’m very grateful and happy for everything that I have and for things when they go well. On the other hand, I’ve had enough of the other side to know that if it doesn’t, I will survive that and life goes on.
+ - I feel just as hungry today as I did the day I left home.
+ - Being able to step outside of yourself in order to help someone else is why we’re all here, it’s what we should all be doing if we can.
+ - Nowadays New-York is not the exciting place it used to be. It still has great energy; I still put my finger in the socket. But it doesn’t feel alive, cracking with that synergy between the art world and music world and fashion world that was happening in the 80s. A lot of people died.
+ - Hollywood is about playing the game, and I can’t think of any successful actresses who didn’t play the game. There’s a lot more renegades in the music business, from Patti Smith to Janis Joplin.
+ - David Bowie really played with ideas, and iconography and imagery. He’s brilliant man. And a gentleman, too.
+ - I’ve gone from having a huge fan base to losing a huge fan base to having a kind of fluctuating fan base. I’ve always had a core of fans who’ve stuck by me but, depending on the kind of music I do, I end up appealing to certain groups of people and alienating others.
+ - We live in a world where people like to pit women against each other. And this is why I love the idea of embracing other females who are doing what I’m doing. It’s important for us to support each other.
+ - For me, it’s all about being in a tiny room with little windows. It’s almost like you have to be in a prison.
+ - Catholicism is not a soothing religion. It’s a painful religion. We’re all gluttons for punishment.
+ - I think passive beauties have their place in the world. It’s hard for me to relate to that.
+ - What else is there for me to conquer? Hopefully my ego. How will I know when I’ve succeeded? When I stop caring what anyone thinks.
+ - My daughter’s birth was like a rebirth for me.
+ - Everyone probably thinks that I’m a raving nymphomaniac, that I have an insatiable sexual appetite, when the truth is I’d rather read a book.
+ - But I love the idea – whether it’s in my work or where I live – exploring new frontier, and I like putting myself in strange places and trying to survive and figure things out and gather up an infrastructure. I like knowing that I could figure out a way to live anywhere.
+ - Having children made me go down a road of serious introspection and self-examination. I think it’s informed and hopefully enhanced my creativity.
+ - Hey you! Don’t be silly! Put a rubber on your willie!
+ - Part of the reason I sort of shot out like a cannon out of Michigan and left home at such an early age is because I had to feel independent.
+ - Go down where all life begins, go down that’s where my love is.
+ - Hollywood, how can it hurt you when it looks so good?
+ - I know there’s a lot of competition in the world of magazines and newspapers and we have to make headlines and be sensational and sell, and saying bad things about me is going to sell more papers than writing good things about me.
+ - Sexism – you can’t be sexy and intelligent. It’s not allowed.
+ - In the midnight hour, I can feel your power.
+ - You took a pretty picture and you smashed it into bits, sank me into blackness and you sealed it with a kiss.
+ - You don’t have to have a language in common with someone for a sexual rapport. But it helps if the language you don’t understand is Italian.
+ - I’ve always wanted to be taller. I feel like a shrimp, but that’s the way it goes. I’m five-foot four-and-a-half-inches – that’s actually average. Everything about me is average. Everything’s normal, in the books. It’s the things inside me that make me not average.
+ - If I’m smart then I’ll run away, but I’m not so I guess I’ll stay.
+ - I hate being called a pop star. I hate that.
+ - And I feel faster than the speeding light.
+ - Fame can be very disruptive. It can be like a drug. It gives you the feeling that you’re happy, it gives you the feeling of self-importance, it gives you the feeling of fullfilment; but it can distract you from what is really important.
+ - Looking at my life, it’s very clear to me, I lived so selfishly.
+ - I’m encouraging other people, whether they’re professionals or not, to use their creativity to express themselves, to get a conversation going, to get the party started, really.
+ - When the day is done the most important thing is loving people and sharing love.
+ - You realise that having a number one record and being loved and adored isn’t the most important thing in the world. But at the same time, I don’t have a problem with it.
+ - As an artist myself, I know what it’s like to put your heart and soul into something. You can feel the presence of another person.
+ - There is a very modest side to me too. How far away from me is the image? It’s about 20 steps away.
+ - I’ve always been under scrutiny. But I used to just not really pay attention to what people said.
+ - I wanted to be a nun. I saw nuns as superstars. When I was growing up I went to a Catholic school, and the nuns, to me, were these superhuman, beautiful, fantastic people.
+ - My father was very strong. I don’t agree with a lot of the ways he brought me up. I don’t agree with a lot of his values, but he did have a lot of integrity, and if he told us not to do something, he didn’t do it either.
+ - You didn’t understand or care to know, you get your education from your lovers.
+ - Sure, having my pictures taken in the nude and doing things that I did got me in the door but it didn’t keep me in the room. To have lasted as long as I’ve lasted, obviously, I have to have something more going for me.
+ - Everything looks true written down. What you read in National Enquirer and News Of The World looks true written down.
+ - Younger people are generally more adventurous – they’re more open, more fun – have you met many guys my age? Guys my age are married or divorced or grumpy, fat and balding.
+ - There isn’t a performer on earth that isn’t an exhibitionist. There isn’t any point in being in this business if you’re not an exhibitionist. And, by the way, you can be an exhibitionist and be very shy as well.
+ - I am the result of the good choices I’ve made and the bad choices.
+ - If I was a girl again, I would like to be like my fans, I would like to be like Madonna.
+ - Nothing lasts forever. Should I?
+ - I’d love to be a memorable figure in the history of entertainment in some sexual, comic, tragic way. I’d like to leave the impression that Marilyn Monroe did, to be able to arouse so many different feelings in people.
+ - When we take a picture, we have a negative. We put the right solution on it and, suddenly, the picture comes to life. So what do we do? We take the negative and turn it into a positive.
+ - Because I’ve taken my clothes off in public doesn’t mean that I’ve revealed every inch of my soul.
+ - After years and years of everybody commenting on the way I look and dress and being photographed, one starts to become self-conscious and starts to plan things more. You end up judging yourself more, what looks good and what doesn’t.
+ - I’ve been practicing yoga very seriously for a little over a year and I believe that helped my voice and affected my singing.
+ - Some people are medicating themselves all the time so that they don’t have to embrace themselves. If you can’t feel, you can’t embrace.
+ - I wouldn’t live in Chicago cause it’s too conservative, aside for the fact that Oprah Winfrey lives there.
+ - I am rich and famous. I have a talented and gorgeous husband and two beautiful children. I could go on.
+ - The fact of the matter is that you can use your beauty and use your charm and be flirtatious, and you can get people interested in your beauty. But you cannot maintain that. In the end, talent is the only thing. My work is the only thing that’s going to change any minds.
+ - Everybody in our family studied a musical instrument. My father was really big on that. Somehow I only took a year or two of piano lessons and I convinced my father to let me take dancing lessons.
+ - We’re in the world of creating illusions and giving people the ability to dream and to be inspired or moved.
+ - I felt very awkward and out of place in school. Not popular, not attractive, not special in any way and I was longing for love and approval from someone.
+ - I do think that the birth of my daughter was sort of a rebirth for me. It made me look at life in a completely new way. And that made me appreciate life in a way I don’t think I ever had before.
+ - As much as I think I’ve inspired people in the world, I’d like to be more involved bringing about world peace.
+ - I always felt like I was a freak when I was growing up and that there was something wrong with me because I couldn’t fit in anywhere.
+ - I worked for everything that I got and I worked long and hard before I got to this point so when I got it I thought I deserve it.
+ - I have the same goal I’ve had ever since I was a girl: I want to rule the world.
+ - Prince Charles is very relaxed at the table, throwing his salad around willy-nilly. I didn’t find him stiff at all.
+ - I really want to see everything. If it’s around me and it’s part of my show, I need to be a part of all of it. From the creation of the music, to the surface of the floor, to everyone’s hairstyle, to the details with the buttons and the bows and the snaps and the zippers. All of those things!
+ - The idea of service to humanity, putting yourself in situations where people have much less than you do, puts life in perspective.
+ - Before doing any interviews I like to know who I’m meeting with and get a bit of an idea of their sensibilities.
+ - On the one hand, the idea of marriage and the sort of traditional family life repulses me. But on the other hand, I long for it, you know what I mean? I’m constantly in conflict with things. And it is because of my past and my upbringing and the journey that I’ve been on.
+ - I don’t even remember why I called myself an idiot. I can be very harshly critical of myself. It depends on my mood, and obviously it depends on where I am in my life. Yes, embracing myself – I’m working on that.
+ - Brushing my Grilzz Before I Booty Pop. A Woman’s work is never Done!
+ - Honestly, I don’t read newspapers, magazines, whatever. They’re just not part of my lexicon. I don’t want to be manipulated, or manipulated about other people’s work.
+ - I guess I like to have fun.
+ - I think love resides in all of the songs, even when they are overtly sexual.
+ - If I can’t be daring in my work or the way I live my life, then I don’t really see the point of being on this planet.
+ - If any of you have seen my shows, you know that I don’t skimp on them and the same is true for the gym. We spend what it takes to make a globally first-class gym.
+ - Just because I’m presented life in a certain way doesn’t mean I do all these things. It’s just something I choose to express.
+ - I grew up in a high school where it was very conservative, and I felt like people disapproved of me, and I felt like an outsider.
+ - To me, the whole process of being a brush stroke in someone else’s painting is a little difficult.
+ - I like that you have four minutes to zero in on something and evoke a specific feeling and take people on some sort of journey.
+ - I panic every time I put out a record. I think every artist does.
+ - I used to believe in the pretty pictures that were all around me, but now I know for sure that I was stupid.
+ - Who is my role model and how long can I keep this going? I just move around and do different things and come back to music, try making films and come back to music, write children’s books and come back to music.
+ - I sometimes think I was born to live up to my name. How could I be anything else but what I am having been named Madonna? I would either have ended up a nun or this.
+ - Its better to live a goat than 100 sheep.
+ - There’s always elements of danger in New York, but people are always out on the street. I don’t feel scared there at all.
+ - Hey, wait a minute, I was a Spice Girl once!
+ - My mother died when I was five, and all I did was sit and cry. I cried and cried and cried all day, until the neighbors went away.
+ - I love the art form, but working in film can be a disheartening experience.
+ - It’s none of your business what people say about you.
+ - If I have to be the person who opens the door for women to believe and understand and embrace the idea that they can be sexual and look good and be as relevant in their 50s or their 60s as they were in their 20s, then so be it.
+ - I’d like to think I am taking people on a journey; I am not just entertaining people, but giving them something to think about when they leave.
+ - The physical body is assembled just like a chair or a building or a flower, but the revolutions we start, the people we affect and inspire, that is eternal. So, in that respect, we do achieve immortality, and that makes me less fearful.
+ - Being poor in Africa is something people in America can’t relate to. Part of the challenge is bringing that reality to people and moving them. You have to arouse compassion.
+ - And I’ll remember the love that you gave me, now that I am standing on my own, I’ll remember the way that you changed me, I’ll remember.
+ - I love being photographed, or I should say I love the art of photography. It’s about people taking photographs of you, stealing them, and then presuming or assuming or captioning. Words can never be taken back, photographs can never be taken back, nothing can ever be taken back.
+ - I was more of a dancing kid than a singing kid. I mean, I sang in school choirs and I sang in school musicals, but I was much more interested in dancing than singing.
+ - I think there probably was a time when I was less provocative. That’s when I was married.
+ - Raising kids makes most people, including me, grow up at least a little.
+ - I don’t like rooms you never use or that are wasted space but I also like a sparseness and a cleanness.
+ - In England especially, I’ve found that if you bring up King Edward VIII and Wallis Simpson at a dinner party or a social gathering, it’s like throwing a Molotov cocktail into the room.
+ - I don’t doubt love for a second. I’m living for love. Listen to my songs!
+ - And then, going to high school, I saw how popular girls had to behave to get the boys. I knew I couldn’t fit into that. So I decided to do the opposite. I refused to wear makeup, to have a hairstyle. I refused to shave. I had hairy armpits.
+ - If I have a problem, I want to work it out, right now.
+ - It is difficult to believe in a religion that places such a high premium on chastity and virginity.
+ - I was used to dancing, but only when someone told you what to do. So in the nightclub I was all over the place, I combined everything. Street dance, modern dance, a bit of jazz and ballet, I was Twyla Tharp, I was Alvin Ailey, I was Michael Jackson. I didn’t care, I was free.
+ - My daughter is a fan of mine but she doesn’t want to be too obvious about it because I’m her mum and it’s not cool.
+ - I think the biggest reason I was able to express myself and not be intimidated was by not having a mother. For example, mothers teach you manners. And I absolutely did not learn any of those rules and regulations.
+ - Sleeping is the most difficult part of what I do, relaxing afterwards. Letting things go.
+ - Better to live one year as a tiger, then a hundred as sheep.
+ - I want people to be moved, to feel called to action. That’s what I want to do.
+ - If you’re going to be an artist, real life is your inspiration.
+ - That’s what I mean about Catholicism – your sexual life is supposed to be dead if you’re a good Catholic. That’s wrong. It’s human nature to be sexual, so why would God want you to deny your human nature?
+ - Being blond is definitely a different state of mind. I can’t really put my finger on it, but the artifice of being blond has some incredible sort of sexual connotation.
+ - I get strength from my art – all the paintings I own are powerful.
+ - Powerful women are a threat in any society which is why I am such a target.
+ - I know I can feel bad, when I get in a bad mood, and the world can look so sad, only you make me feel good.
+ - To be brave is to love unconditionally without expecting anything in return.
+ - You’re so consumed with how much you get, you waste your time with hate and regret.
+ - People want to hear the dirt. But this is not really anything I want to talk about.
+ - My father had to go to work, I used to think he was a jerk. I didn’t know his heart was broken, and not another word was spoken.
+ - I’m not particularly fond of kissing strange men-contrary to popular belief.
+ - I think in the end, when you’re famous, people like to narrow you down to a few personality traits. I think I’ve just become this ambitious, say-whatever’s-on-her-mind, intimidating person. And that’s part of my personality, but it’s certainly not anywhere near the whole thing.
+ - I’ve slept with Prince.
+ - I don’t go to the sale rack. But I wouldn’t say I am decadent in my spending. I am careful.
+ - On any given night, catch me on the floor, working up a sweat, that’s what music’s for.
+ - My point of view and philosophy continues to change and grow. As the years go by you go through this evolution.
+ - Once you start turning over rocks and reaching out to help people, there’s a whole avalanche coming right behind it. And it seems never-ending. But when you see the fruits of your labor, you feel like it’s possible.
+ - I like coming up with these spectacular extravaganzas that will, hopefully, totally blow people away. But I also like the intimacy of stopping it all and sitting at the edge of the stage and connecting with individual people in the audience.
+ - I think they were scared of me because I was different.
+ - People think they will wake up one day and I’ll be gone. But I’m never going away.
+ - I’m ambitious. But if I weren’t as talented as I am ambitious, I would be a gross monstrosity.
+ - I’m very grateful that I had work to do. I may have thrown myself off a building.
+ - One thing I’ve learned is that I’m not the owner of my talent; I’m the manager of it.
+ - I can’t stand when I walk into a room and everyone’s not talking to each other and just on their phones.
+ - People love pitting strong females against each other.
+ - A lot of places I go are dangerous, like Tel Aviv or Rio, but that never stops me from going there and putting on a show. I have good security. I don’t worry about that.
+ - I don’t affiliate myself with any specific religious group. I connect to different ritualistic aspects of different belief systems, and I see the connecting thread between all religious beliefs.
+ - Ever since my daughter was born I feel the fleetingness of time. And I don’t want to waste it on getting the perfect lip color.
+ - Ultimately it boils down to the same thing all relationships boil down to: eating humble pie. I sometimes eat quite a lot. But, however bitter it might taste, it’s the best pie. It’s on the menu constantly for both parties.
+ - You have to be patient. I’m not!
+ - The thing I like least about being famous is being overly scrutinized for everything I say and do.
+ - I think they were scared of me because I was different. I’ve always asked, ‘Why? Why do I have to do that? Why do I have to look this way? Why do I have to dress this way? Why do I have to behave this way?’
+ - I made a vow that I would never need another person ever. Turned my heart into a cage, a victim of a kind of rage.
+ - If you’re sure of who you are it doesn’t really matter what people call you, does it?
+ - I’m sure other people have a very strange view of my lifestyle.
+ - There’s one thing you can’t download and that’s a live performance. And I know how to put on a show, and enjoy performing, and I’ll always have that.
+ - People hear the soul, black influence in my voice. I grew up listening to CKLW and all the black stations like WLBS.
+ - People have no morals, I swear to God. The things that people do for ratings! It’s unforgivable.
+ - Everyone who knows me thinks I’m a bit of a work Nazi.
+ - Make no mistake, Madonna is always in control of the image she wants you to see.
+ - I chose to start my world tour in Israel for a very specific and important reason. As you know, the Middle East and all the conflicts that occur here and that have been occurring for thousands of years, they have to stop. You can’t be a fan of mine and not want peace in the world.
+ - I like the idea of going to one of those retreats where you don’t speak – like, silence for five days.
+ - Every actor wants to get their two cents in about a scene at the end of the day.
+ - I actually always try to have a moment in my show where I can just lay down on stage and talk to people for a little while.
+ - People don’t know what Kabbalah is, and so they jump to conclusions. For me, studying Kabbalah is studying – is just – is asking questions. And I encourage all of my children to be that way, and I think people don’t understand that. And so they make assumptions and they judge.
+ - I loved Prince then, I love him now and will love him eternally. He’s with our son now.
+ - I’m not interested in being Wonder Woman in the delivery room. Give me drugs.
+ - I think all of us make the mistake of thinking we’re going to change people when we get together. But we’re not. People are who they are. And people change in their own time.
+ - When you’re writing something and you know it’s good, you get flushed, you can feel the blood coursing through your veins, you feel alive, all your nerve endings stand up, something just clicks.
+ - I don’t like guys my age because they are normally either married or divorced and grumpy, fat and balding.
+ - When you’re 25, it’s a little bit easier to be daring, especially if you are a pop star, because eccentric behavior is expected from you.
+ - I shouldn’t have stayed so long away. Every time I come here, I get so supercharged with energy. I truly believe that Israel is the energy centre of the world. And I also believe that if we can all live together in harmony in this place, then we can live in peace all over the world.
+ - My work gives me a sense of purpose that I never really had before – it gives me a lot of joy, and it would be wonderful to invite other people to get involved.
+ - Some girls they like candy and others they like to grind. I’ll settle for the back of your hand somewhere on my behind.
+ - Children always think they did something wrong when their parents disappear.
+ - I’m attracted to men who are going to stand up to me.
+ - Suffering is a big informer, a big catalyst for creation. You take your sadness, your despair, your sense of injustice, and you put it in your work.
+ - I’ve never really lived a conventional life, so I think it’s quite foolish for me or anyone else to start thinking that I am going to start making conventional choices.
+
+437 quotes

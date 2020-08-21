@@ -1,0 +1,101 @@
+ - Adversity is preparation for greatness.
+ - When faced with a decision, many people say they are waiting for God. But I understand, in most cases, God is waiting for me.
+ - Every good thing that has happened in your life happened because something changed.
+ - Self-discipline is the ability to make yourself do something you don’t necessarily want to do, to get a result you would really like to have.
+ - Life itself is a privilege, but to live life to the fullest- well, that is a choice.
+ - Everything you do matters to all of us forever.
+ - Adversity builds muscle. Adversity creates strength. Adversity, it turns out, is preparation for success.
+ - If I associate with chickens, I will learn to scratch at the ground and squabble over crumbs. If I associate with eagles, I will learn to soar to great heights.
+ - I will not waste time on second thoughts. My life will not be an apology. It will be a statement.
+ - Challenges are gifts, opportunities to learn.
+ - Intention without action is an insult to those who expect the best from you.
+ - Successful people make their decisions quickly and change their minds slowly. Failures make their decisions slowly and change their minds quickly.
+ - Even in the worst time of life, if you are still breathing, that means you are still alive. If you are still here, you haven’t accomplished what is still to be accomplished. The most important part of your life is still ahead of you.
+ - Whatever you focus upon, increases.
+ - My life – my personality, my habits, even my speech – is a combination of the books I choose to read, the people I choose to listen to, and the thoughts I choose to tolerate in my mind.
+ - While public opinion might sway back and forth, right and wrong do not.
+ - When I choose to smile I become the master of my emotions.
+ - Remember, the goal is not to raise great kids; it’s to raise kids who become great adults.
+ - There are generations yet unborn, whose very lives will be shifted and shaped by the moves you make and the actions you take.
+ - We’re not trying to raise good kids. We’re trying to raise kids who become great adults. That’s a very different thing. We all know parents who had kids that when they turned 18 left the house and went nuts.
+ - Experience is not the best teacher. Other people’s experience is the best teacher.
+ - When confronted with a challenge, the committed heart will search for a solution. The undecided heart searches for an escape.
+ - Everybody wants to reach the top of the mountain, but there is no growth at the peak. It is in the valley that we slog through the lush grass and rich soil, learning and becoming what enables us to summit life’s next peak.
+ - A grateful perspective brings happiness and abundance into a person’s life.
+ - I believe persistence is a major key to success in any great endeavor. I want to remind folks to PERSIST in whatever they are tackling at the moment!
+ - We are all in situations of our own choosing. Our thinking creates a pathway to success or failure. By disclaiming responsibility for our present, we crush the prospect of an incredible future that might have been ours.
+ - If you worry about what other people think of you, then you will have more confidence in their opinion than you have in your own.
+ - WHAT a person thinks is determined by HOW a person thinks.
+ - And that destination for which we should strive is one of a successful life not necessarily a life of success.
+ - In the game of life, nothing is less important than the score at halftime.
+ - The very beating of your heart has meaning and purpose. Your actions have value far greater than silver or gold.
+ - Everybody wants to make a difference, but nobody wants to be different. And you simply cannot have one without the other.
+ - When you know that everything matters – that every move counts as much as any other – you will begin living a life of permanent purpose.
+ - Poor is the man whose future depends on the opinions and permission of others. Remember this, if you are afraid of criticism, you will die doing nothing!
+ - Keep your head and heart clear. Perspective can just as easily be lost as it can be found.
+ - Much of your success in life is determined by how you choose to act in spite of how you feel.
+ - It is never the duty of a leader to struggle for someone else; a leader must encourage others to struggle and assure them that the struggles are worthwhile. Do battle with the challenges of your present, and you will unlock the prizes of your future.
+ - I am not a “Christian author.” I am an author who is a Christian. While my books reflect my faith, they are not intended as teaching tools for a Christian audience per se. My books are stories created around principles that work for everyone and they work every time.
+ - Times of calamity and distress have always been producers of the greatest men. The hardest steel is produced from the hottest fire; the brightest star shreds the darkest night.
+ - A life filled with opportunities and encouragement finds more and more opportunities and encouragement, and success becomes inevitable.
+ - Until a person takes responsibility for where he is, there is no basis for moving on. The bad news is that the past was in your hands, but the good news is that the future, my friend, is also in your hands.
+ - You have chosen the pathway to your present destination. The responsibility for your situation is yours.
+ - I start every day making sure I’m where I need to be and thinking like I need to think.
+ - After all, the seeds of depression cannot take root in a grateful heart.
+ - The words It’s not my fault! should never again come from your mouth. The words It’s not my fault! have been symbolically written on the gravestones of unsuccessful people ever since Eve took her first bite of the apple.
+ - All people – all lives – are either in a crisis, coming out of a crisis, or headed for a crisis.
+ - Everyone has a worst time in their life. There’s always a worse time. We are all either in a crisis, coming to one or coming out of one.
+ - To be great at whatever it is that you do, it’s going to take some discipline to separate yourself from the average.
+ - It isn’t until you forgive what’s in the past that you’ll be able to receive the gift of the present.
+ - Those who are critical of my goals and dreams simply do not understand the higher purpose to which I have been called.
+ - One way to define wisdom is the ability to see, into the future, the consequences of your choices in the present. That ability can give you a completely different perspective on what the future might look like.
+ - I started finding humor in everything. I used to watch a lot of TV, and I finally figured I didn’t need to watch TV to find funny stuff. I just watch the commercials. I mean, the commercials just blew my mind.
+ - Worry is just imagination used in an unproductive way.
+ - While it is true that most people never see or understand the difference they make, or sometimes only imagine their actions having a tiny effect, every single action a person takes has far-reaching consequences.
+ - It’s time to stop letting your history control your destiny.
+ - When you don’t know what to do, do something. I know you don’t know what to do and I know you can’t do everything right now, but you can do something.
+ - We think in our society today that the way people change is that they have to have a deep desire to change or that the way they change is they have to hit rock bottom. But neither of those things is true.
+ - Only true remorse and “Will you forgive me?” can press the reset button.
+ - I was not called to be a preacher. I am a speaker who is a Christian. I’m not a Christian speaker.
+ - Remember, young man, experience is not the best teacher. Other people’s experience is the best teacher. By reading about the lives of great people, you can unlock the secrets to what made them great.
+ - Do battle with the challenges of your present, and you will unlock the prizes of your future.
+ - I just think it’s amazing that a person could lose everything, chasing nothing.
+ - Your big picture will never be a masterpiece if you ignore the tiny brushstrokes. You’re trying so hard to be successful that true success is eluding you.
+ - Ask yourself this question everyday: What is it about me that other people would change if they could?
+ - By your hand the people shall live.
+ - Even a small amount of perspective can change our lives. Because even the smallest amount of perspective can change how we are able to navigate hard times.
+ - Wisdom is what separates average people from extraordinary people.
+ - Are you smiling when you talk? Try it today, and I guarantee you will notice a difference in your life.
+ - Every man of character will have that character questioned. Every man of honor and courage will be faced with unjust criticism, but never forget that unjust criticism has no impact whatsoever upon the truth. And the only sure way to avoid criticism is to do nothing and be nothing.
+ - It is not enough to recognize what is right and true. One must control the impulse to do what is wrong and easy.
+ - I guarantee you there is someone in your life that deserves more appreciation. Who is it? Find that person and let them know!
+ - There are no hopeless situations, sweetheart, only people who have grown hopeless about them. You still have choices you can make.
+ - I tell people that I’m not necessarily any good, it’s just that there is nobody like me. I just promise you will not be bored.
+ - If, in fact, it is what’s inside us that makes all the difference, then the difference is made when we choose what goes inside.
+ - I always want to teach things that help people with their personal lives, their financial lives and their legacies, so this was a huge thing for me.
+ - I think a lot of what is involved in finding a noticer is to watch people and see what fruit people have on the tree. You examine that life and see if it has the kind of fruit you want to produce in your life.
+ - By your hand, millions – billions – of lives will be altered, caught up in a chain of events begun by you this day.
+ - It’s a lot more interesting to learn and discover real-life principles when they are revealed in the form of a story.
+ - People who are labeled as disrespectful do not get the same opportunities afforded to those who are labeled as respectful.
+ - People who other people value get job offers, they get opportunities, and they get encouragement all because they are valued.
+ - But did you know that during the past quarter century, no presidential election has been won by more than ten million ballots cast? Yet every federal election during the same time period had at least one hundred million people of voting age who did not bother to vote!
+ - When a king begins to act like a king, it is not long before someone else is king! Serving is a way we can place value on one another. A wise man is a server.
+ - Anytime God wanted to reach people he always used people to do it. So, anytime the Holy Spirit wants to reach other people, it is always through people.
+ - What I’m doing when I’m doing my speaking engagements is that I’m delivering serious material with humor. So, instead of delivering humor without a particular point other than to entertain people, I’m delivering comedy in a serious way.
+ - I had always been able to make people laugh in school, so I really developed that and worked on it and I got pretty good at it and it turned into a career.
+ - I am a teacher and the reason I’m a teacher is because I’m learning as hard as I can. I’m not any different from anybody else. I am searching and having some success finding answers.
+ - There are so many common occurrences in raising children that people just can’t seem to figure out.
+ - Truth is like a wild animal; let it loose and it will defend itself!
+ - I’m not saying find someone and ask them if you can mow their grass for ten dollars. I’m saying find weeds that need pulling and pull them.
+ - When people have something proven to them, and they see that it really benefits them, they don’t have to be looking for a change or be at rock bottom. When they see something proven that is of benefit to them, they’ll turn around 180 degrees and never look back.
+ - Knowledge is one thing. We’re awash in knowledge. Wisdom is rare. There’s a big difference.
+ - It’s also a lot easier to convince people to read an entertaining story than any other type of book!
+ - I believe that any type of education can be great, but an education about ourselves can create something wonderful. I am a comedian, but people have called me a motivational speaker. I don’t really consider myself that at all.
+ - People tend to read books about a guy who goes back in time or a guy who is living under a pier.
+ - We have to prepare our teenagers and our children for a world away from us. That requires explanations. That requires understanding.
+ - No matter how long it takes or how desperately a person battles or denies, the truth always-always-makes itself known.
+ - The situations that have been the biggest wins for me have been because I was forced to think differently.
+ - Jesus is Jesus. So, I’m not sure I’d get into the business of making somebody into Jesus. That’s just me.
+ - I understand that what I am to do is to be a bridge between the people who would never set foot in a church in their entire lives and people who would like to get them there. So I write books that Christians can give to their non-Christian friends that they will actually read.
+
+99 quotes

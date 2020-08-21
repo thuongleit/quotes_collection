@@ -1,0 +1,29 @@
+ - I’m an afternoon person.
+ - I think all women have a certain elegance about them which is destroyed when they take off their clothes.
+ - I’ve had a lot of unhappiness in my life – and a lot of happiness. Who doesn’t? Maybe I’ve learned enough to be able to guide my daughters.
+ - We are all tied to our destiny and there is no way we can liberate ourselves.
+ - Men fell in love with Gilda, but they wake up with me.
+ - All I wanted was just what everybody else wants, you know, to be loved.
+ - To Yesterday’s Companionship and Tomorrow’s Reunion.
+ - Who wouldn’t prefer having breakfast in bed to getting up at the crack of dawn and having a cup of coffee in a studio makeup department?
+ - Basically, I am a good, gentle person, but I am attracted to mean personalities.
+ - When you’re in love you’re living, you matter.
+ - Dancing in Tijuana when I was 13 – that was my ‘summer camp.’ How else do you think I could keep up with Fred Astaire when I was 19?
+ - Movies were much better in the days when I was doing them.
+ - No one can be Gilda twenty-four hours a day.
+ - Whatever you write about me, don’t make it sad.
+ - I always thought that if I ever got good reviews I’d be happy. It’s so empty. It’s never what I wanted, ever. All I wanted was just what everybody else wants, you know – to be loved.
+ - What surprises me in life are not the marriages that fail, but the marriages that succeed.
+ - I like having my picture taken and being a glamorous person. Sometimes when I find myself getting impatient, I just remember the times I cried my eyes out because nobody wanted to take my picture at the Trocadero.
+ - Every man I have ever known has fallen in love with Gilda and awakened with me.
+ - Old age – that’s when a woman takes vitamins A through G, and still looks like H.
+ - When I look back on my marriages, or the breakups, sure I know the pain I went through, but that’s part of life and it has its own value.
+ - Every actor, every director, everybody needs an Oscar. You have to have that little statue in Hollywood, or else you’re nothing!
+ - I haven’t had everything from life. I’ve had too much.
+ - Just because I was married to Aly Khan, people think I’m rich. Well, I’m not. I never got a dime from Aly or from any of my husbands.
+ - Sensitive, shy-of course I was. The fun of acting is to become someone else.
+ - Increasingly, stars are recruited from the ranks of professional models, with the result that today’s starlets are better dressed and better groomed than ever before, though it is doubtful if they are better actresses.
+ - I can’t take his genius any more.
+ - From the time I was twelve I was dancing for bread and butter, but in my heart I was always an actress.
+
+27 quotes

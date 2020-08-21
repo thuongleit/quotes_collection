@@ -1,0 +1,27 @@
+ - In a quantum universe, magic is not the exception but the rule.
+ - However beautifully you play the violin, you can always play the violin even more beautifully again...
+ - However much you may have expressed love through your life, you can always express love more.
+ - That’s the translucent life. You are continuously discovering how you can ooze more Spirit into your personal life and there’s no end to that process. It goes on and on and deepens and deepens and deepens.
+ - A translucent person appears to glow as if from the inside. It’s as though they’ve been lit up from inside and they appear to emit light.
+ - Whenever we release our need to be right about everything as parents, we are able to meet our children in a relationship of mutuality and respect.
+ - The Iago trance is a state that we’ve really come to accept as normal, even if we may not feel it to be natural.
+ - Feminine spirituality is much more about the emanation of love in this moment, feeling into this moment, feeling the texture of this moment through the skin, through the body, and then letting your life become an emanation of love.
+ - Iago is the dominant trance state of our planet. It influences our relationships, our sexuality, our parenting, and our attempts to relax. It permeates corporate business, international politics, and our economic system.
+ - The dominant trance of the planet is that we live in a perpetual sense of lack, a perpetual sense of, “If only I could make this small tweak, then I would feel okay.” And, of course, none of the tweaks ever work in the long term.
+ - Masculine people, by their nature, tend to want to make everything into a journey with a goal.
+ - The most important thing about translucent people is that their life has been deeply transformed by an awakening.
+ - Most of the myths that we carry about spirituality are because we have been dominated by this hyper-masculine trance.
+ - I enjoy spending time with other awakened people and feeling the shared vibration of that, whereas just fun for its own sake might no longer be quite so enticing as it used to be.
+ - There were statistically more women than men on the planet. Why should every major religion have been founded by men and propagated by men?
+ - What was considered a peak mystical experience a few years ago is today the basic platform of sanity from which our exploration begins.
+ - I think the myths are keeping us limited to, and tied to, what I would call the hyper-masculine tradition. All the major religions in the world have been founded by men and propagated by men.
+ - However much your life may have become an expression of creativity, of generosity of spirit, there’s always the further possibility of more or just expressing it in different ways.
+ - Awakening is usually precipitated by the honest, sincere, inquiry into who you really are.
+ - Once we meet our children, even for moments, in a place of “I don’t know,” of relinquished authority, we return to the realms of mystery and magic, where real connection becomes alive again.
+ - My own awakening came in 1991 and my teacher then, in India, asked me to return to the West and to share this kind of inquiry.
+ - I think the main way that somebody would know they’re translucent is that their life has become more about the embodiment of Spirit than about acquisition, and that may be something that creeps up on you.
+ - They see that who they are is the silence in which sound is happening, the spaciousness in which movement occurs. This kind of recognition, whether fleeting or abiding, is called an awakening.
+ - I don’t think there is any end to translucence. It’s an endless journey, rather like playing the violin.
+ - The translucent life is very much about overflowing with a gift to the world, rather than being here to consume or to get something for yourself.
+
+25 quotes

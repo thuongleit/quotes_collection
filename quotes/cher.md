@@ -1,0 +1,116 @@
+ - Do you believe in life after love?
+ - If it doesn’t matter in five years, it doesn’t matter.
+ - Living your life the way you want to live it is the most important thing so if you have to pay small prices along the way, it’s not important.
+ - Until you’re ready to look foolish, you’ll never have the possibility of being great.
+ - The only thing in the world you can change is yourself and that makes all the difference in the world.
+ - Words are like weapons; they wound sometimes.
+ - Women are the architects of society.
+ - Honesty makes me feel powerful in a difficult world.
+ - If you really want something you can figure out how to make it happen.
+ - When you stop trying to find the right man and start becoming the right woman, the right man will find his way to you.
+ - Come hell or water high you’ll never see me cry this is our last good bye.
+ - What am I supposed to do, Sit around and wait for you? Well I can’t do that, And there’s no turning back. I need time to move on, I need love to feel strong. Cause I’ve got time to think it through, And maybe I’m too good for you!
+ - I’ve always taken risks, and never worried what the world might really think of me.
+ - Men are a luxury, not a necessity.
+ - Fitness – if it came in a bottle, everybody would have a great body.
+ - Life is about enjoying yourself and having a good time.
+ - I only answer to two people, myself and God.
+ - Sometimes you have to show a little skin. This reminds boys of being naked, and then they think of sex.
+ - I have a belief: What belongs to you, comes to you.
+ - A girl can wait for the right man to come along but in the meantime that still doesn’t mean she can’t have a wonderful time with all the wrong ones.
+ - If grass can grow through cement, love can find you at every time in your life.
+ - You can’t just sit around and watch life pass you by. You have to keep dreaming. Sonny taught me that, and I intend to do him proud.
+ - Nothing lifts me out of a bad mood better than a hard workout on my treadmill. It never fails. Exercise is nothing short of a miracle.
+ - Where’s my white collarless shirt from Fred Segal? It’s my most capable-looking outfit!
+ - I felt impotent and out of control, which I really, really hate. I had to find sanctuary in a place where I could gather my thoughts and regain my strength.
+ - I love ghosts; I prefer ghosts to some people.
+ - I can’t listen to my own voice, I don’t like it. You see all your mistakes when you hear your voice. You see all your imperfections.
+ - I’m from a Gypsy background!
+ - I wear my clothes, my clothes don’t wear me.
+ - In my personal life I’m not very tough at all, but in my professional life, having to deal with being a woman in a man’s world, I’m really tough. I never back down from a fight or an argument. I’m willing to stand there toe to toe with anyone.
+ - I would have gone home to my mother, but I’m not that crazy about my mother.
+ - Yes, it’s a man’s world, but that’s all right because they’re making a total mess of it. We’re chipping away at their control, taking the parts we want. Some women think it’s a difficult task, but it’s not.
+ - I’m not a role model, nor have I ever tried to be a role model. The only thing about me as a role model is I’ve managed to stay here and be working and survive. For 40 years.
+ - Until mankind is peaceful enough not to have violence on the news, there’s no point in taking it out of shows that need it for entertainment value.
+ - There are lots of things that I’d like to be, and nice just doesn’t seem good enough.
+ - I am the girl who everyone said was never going anywhere. I guess I shocked a few people.
+ - Men aren’t necessities. They’re luxuries.
+ - Credibility is to be good. You must be good. That’s all I ever wanted – to be good at what I did.
+ - I don’t need a man. But I’m happier with one. I like to have someone I can touch and squeeze and kiss. But I don’t fold up and die if I don’t have a man around.
+ - My mother once said “If you don’t pay attention to age, then it won’t pay attention to you.” And she says it, and it sounds nice, but I don’t buy it.
+ - If you’re waiting for someone to believe in you, you’ll be waiting forever. You must believe in yourself.
+ - If you can’t go straight ahead, you go around the corner.
+ - If a man’s a good kisser, he’s a great f-.
+ - I just wanted my daughter to grow up, get married, have children and get divorced like everyone else.
+ - Searching for a boy in high school is as useless as searching for meaning in a Pauly Shore movie.
+ - Would you look at that body language? Legs crossed towards each other. That is an unequivocal sex invite.
+ - It’s not always a happy ending when sometimes you say things that you think, and it goes against the grain of the larger group. It doesn’t always turn out.
+ - I think that the longer I look good, the better gay men feel.
+ - For someone who likes tattoos, the most precious thing is bare skin.
+ - I never cared about money. I’m not destined to be a rich woman. I’m destined to be a woman who makes a lot of money and never has any. I’ve made millions and millions and millions of dollars and I just spend it.
+ - I can’t do coffee, but I can do Dr. Pepper.
+ - Hate crimes are the scariest thing in the world because these people really believe what they’re doing is right.
+ - It’s a dirty job being ridiculous, but I’ll do it.
+ - You don’t have to be smart to act – look at the outgoing president of the United States.
+ - Men should be like Kleenex, soft, strong and disposable.
+ - Performers love to perform – that’s the thing that we do. I think one of the best things was being able to imagine anything that I wanted, anything that I came up with we could do, because this theater is unbelievable.
+ - My relationships usually last a few years. When I’m involved with a man, other men are fascinated with me, but the minute I’m single again, half of those men disappear because they don’t have the balls to really want me.
+ - I’ve been up and down so many times that I feel as if I’m in a revolving door.
+ - It’s not necessary, in order to be a complete person, that I have a man. It’s not the end-all, be-all of my life.
+ - I’ve been screaming at the top of my lungs at my family, ‘Work out! Work out! Old age is coming!’
+ - Don’t take your toys inside just because it’s raining.
+ - Someone once said “The only thing that will be left after a nuclear holocaust is Cher and cockroaches.” I think that’s funny, because, you know, I am a survivor. If I am anything, that’s what I am.
+ - I haven’t a clue why I’ve lasted so long. There’s no reason. There are many people more talented than me. I think it’s luck.
+ - It’s my body and if I want to do it like Michael Jackson, I will. My nose bothered me for a long time. Now it’s smaller and I’m happy. If I wanna put my tits on my back, they’re mine!
+ - I’m scared to death of being poor. It’s like a fat girl who loses 500 pounds but is always fat inside. I grew up poor and will always feel poor inside. It’s my pet paranoia.
+ - I won’t be able to do what I’m doing forever. There aren’t that many scripts floating around for fifty-year-old chicks.
+ - Women, unlike most men, are able to accept mystery, accept whatever comes to them – even if it’s not logical.
+ - All of us invent ourselves. Some of us just have more imagination than others.
+ - Younger men are more supportive and a lot less demanding, and they also have more time for their relationships.
+ - The trouble with some women is that they get all excited about nothing – and then marry him.
+ - I just don’t understand how anyone would want to be a Republican. I just can’t figure it. I don’t understand. If you’re poor, if you’re any kind of minority – gay, black, Latino, anything. If you’re not a rich born-again-Christian, I don’t get it.
+ - I can trust my friends These people force me to examine myself, encourage me to grow.
+ - Sometimes I feel like an old hooker.
+ - Meryl Streep is an acting machine in the same sense that a shark is a killing machine.
+ - The only grounds for divorce in California are marriage.
+ - Donald Trump can’t come up with a hairstyle that looks human, how can he come up with a plan to defeat ISIS.
+ - I wouldn’t mind living with someone forever. I don’t really want to get married. I don’t see any reason for it. And yet I’m so romantic that every time I think I meet someone I want to live with them forever and ever.
+ - The truth is that in my job, becoming old and becoming extinct are one and the same thing.
+ - Some years I’m the coolest thing that ever happened, and then the next year everyone’s so over me, and I’m just so past my sell date.
+ - Anyone who’s a great kisser I’m always interested in.
+ - Women have to harness their power – it’s absolutely true. It’s just learning not to take the first no. And if you can’t go straight ahead, you go around the corner.
+ - I’ve never compromised who I am not ever. If I’ve gotten anywhere in my life it’s been on my own merits.
+ - Singing is like going to a party at someone else’s house. Acting is like having the party at your house.
+ - There’s not someone who tells you how adorable you are and rubs your head and goes into a crowded press conference and stands at the back and winks at you so that you think, ‘I can get through this.’
+ - The first concert I attended was an Elvis concert when I was eleven. Even at that age he made me realize the tremendous effect a performer could have on an audience.
+ - I’m just the worst little Buddhist in town.
+ - I’m going to have wrinkles really soon.
+ - I went through absolute stress and mayhem. I couldn’t go out, because people were constantly on my back all the time.
+ - When I grew up, it was a time when women were just supposed to be cute and not have many opinions. My mother and her friends were quite different. They were all the most beautiful women you’ve ever seen, and they were very strong women.
+ - I’m still friends with all my exes, apart from my husbands.
+ - If you are going to wait for someone to encourage you to do something, you just better give up.
+ - I really don’t think of myself as a singer. I think of myself as an entertainer, and the best place I do it is onstage.
+ - You see how picky I am about my shoes and they only go on my feet.
+ - My mother was the most creative, fantastic person and would come up with great things for us to do. She’d buy art supplies and all of us would sit around painting. I was lucky.
+ - Husbands are like fires – they go out when they’re left unattended.
+ - I’m the female equivalent of a counterfeit $20 bill. Half of what you see is a pretty good reproduction, the rest is a fraud.
+ - Elvis was the first person in music that I really identified with.
+ - People are negative no matter what you do.
+ - To me marriage is for five or ten years.
+ - I am never offended when I see the drag-queens dressed up like me.
+ - I am a part of history whether people want to take it seriously or not.
+ - If you’re black in this country, if you’re a woman in this country, if you are any minority in this country at all, what could possibly possess you to vote Republican?
+ - I remember a great America where we made everything. There was a time when the only thing you got from Japan was a really bad cheap transistor radio that some aunt gave you for Christmas.
+ - There is only one value to having the look you have when you are young and no value to the look you have when you are older.
+ - Going hungry never bothered me – it was having no clothes.
+ - I’m not gonna become Ann Bancroft or Meryl Streep and have all the burden that being a “serious actress” entails.
+ - One thing about prejudices – once you break one of them, you’re screwed, because then they all have got to go.
+ - I don’t like Bush. I don’t trust him. I don’t like his record. He’s stupid. He’s lazy.
+ - I know I’m not supposed to have any opinions about politics, because I’m famous.
+ - Christian said he’d call the next day, but in boy time that meant Thursday.
+ - You know, honey, husbands come and go but I’m still Cher at the end of the day.
+ - I’ve had so many rebirths, I should come with my own midwife by now.
+ - Don’t buy into the idea that women aren’t strong enough to do anything they want on their own.
+ - In the recession people are going to be looking even more at what movie stars are wearing, as it provides a fantasy outlet.
+
+114 quotes

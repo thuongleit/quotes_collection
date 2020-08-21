@@ -1,0 +1,66 @@
+ - Your reality, isn’t restricted by this cell we live in. If you read something, if you study something, you transcend any cell you’re inside of.
+ - I allow my intuition to lead my path.
+ - I believe that people who don’t achieve anything in life are isolated and resent those that are successful.
+ - What better model of a synthesis than a nocturnal dream? Dreams simplify, don’t they?
+ - The nicest thing about feeling happy is that you think you’ll never be unhappy again.
+ - Tardiness in literature can make me nervous.
+ - I don’t want to name names, but the least I can say about rock and roll is that I’m suspicious.
+ - I’m not a best-seller, but through translations, I’ve accumulated some money.
+ - If the novelist shares his or her problems with the characters, he or she is able to study his personal unconscious.
+ - Teaching is a good distraction, and I am in contact with young people, which is very gratifying.
+ - I felt the need to tell stories to understand myself.
+ - I would very much like to become a best-selling author.
+ - I only understand realism.
+ - I don’t think humor is forced upon my universe; it’s a part of it.
+ - In film, you can’t go into analytical explorations because the audience will reject that.
+ - What’s better, a poetic intuition or an intellectual work? I think they complement each other.
+ - I believe realism is nothing but an analysis of reality. Film scripts have a synthetical constitution.
+ - Kafka truly illustrates the way the environment oppresses the individual. He shows how the unconscious controls our lives.
+ - I’m not terribly happy about rock and roll. Certain rock music is uninspiring, numbing; it makes you feel like an idiot.
+ - In a country like France, so ancient, their history is full of outstanding people, so they carry a heavy weight on their back. Who could write in French after Proust or Flaubert?
+ - I locate that special problem in a character and then try to understand it. That’s the genesis of all my work.
+ - The essayist has to follow a certain intellectual pattern. The novelist has the advantage of using fantasy, of being subjective.
+ - Contrary to what Kafka does, I always like to refer all of my fictions to the level of reality, He, on the other hand, leaves them at an imaginary level.
+ - Ironically, Latin American countries, in their instability, give writers and intellectuals the hope that they are needed.
+ - I do believe that reading can help you understand what you’re writing and see what others are doing. But sometimes the desire for more information can act as an inhibitor.
+ - If a spectator with a philosophical mind, somebody accustomed to reading books, gets the same kind of information in a movie, he might not fully understand it.
+ - I am only interested in bad taste if I can enjoy a gruesome tango or watch a movie that makes me cry.
+ - I don’t have traceable literary models because I haven’t had great literary influences in my life.
+ - It’s essential not to have an ideology, not to be a member of a political party. While the writer can have certain political views, he has to be careful not to have his hands tied.
+ - As a rule, one should never place form over content.
+ - Writers are not meant for action.
+ - Modern American cinema seems to me superficial. The intention is to understand a certain reality, and the result is nothing but a photographing of that reality.
+ - I didn’t choose literature. Literature chose me. There was no decision on my side.
+ - I began teaching in New York because I needed to stay in the United States and didn’t have my immigration papers in order, so working for a university was a way of resolving the issue.
+ - I can work in films as long as the story doesn’t have a realistic nature. If I’m working with an allegory, a fantasy, it can be developed in synthetic terms.
+ - For someone who writes fiction, in order to activate the imagination and the unconscious, it’s essential to be free.
+ - If it’s great stuff, the people who consume it are nourished. It’s a positive force.
+ - One performs a very different act when reading a movie and when reading a novel. Your attention behaves differently.
+ - I believe in characters as vehicles of exposition. Their voices are full of hidden clues, and I like to listen to them.
+ - The writer needs to react to his or her own internal universe, to his or her own point of view. If he or she doesn’t have a personal point of view, it’s impossible to be a creator.
+ - Hitchcock makes it very clear to us. There’s an objective and a subjective camera, like there’s a third- and a first-person narrator in literature.
+ - Most of the movies I saw growing up were viewed as totally disposable, fine for quick consumption, but they have survived 50 years and are still growing.
+ - I am very interested in what has been called bad taste. I believe the fear of displaying a soi-disant bad taste stops us from venturing into special cultural zones.
+ - All of my problems are rather complicated – I need an entire novel to deal with them, not a short story or a movie. It’s like a personal therapy.
+ - I’ve always wondered why there isn’t a great French novel about the German occupation. The nouveau roman authors weren’t interested in telling that sort of thing.
+ - Whenever I write, I’m always thinking of the reader.
+ - The translator’s task is to create, in his or her own language, the same tensions appearing in the original. That’s hard!
+ - My greatest aspiration was always to live in the tropics.
+ - I started writing movie scripts. They excited me a lot, but I didn’t like them when they were finished because they were simple copies of the films I saw in childhood.
+ - My only fantasy about writing was that in my old days, after directing many masterpieces, I would write my memoirs.
+ - I think cinema is closer to allegories than to reality. It’s closer to our dreams.
+ - It doesn’t matter that the way of life shown by Hollywood was phony. It helped you hope.
+ - I like the beauty of Faulkner’s poetry. But I don’t like his themes, not at all.
+ - I write for somebody who has my own limitations. My reader has a certain difficulty with concentrating, which in my case comes from being a film viewer.
+ - We should try to understand our innermost needs. We shouldn’t use irony to reduce their power.
+ - I haven’t been the kind of writer about whom book-length academic studies have been written.
+ - I’ve never seen a worse situation than that of young writers in the United States. The publishing business in North America is so commercialized.
+ - I had stories that needed more space than the hour and a half or two hours a movie gives you.
+ - Book reviews have never helped me. Most of them erred in their interpretations and their work has been a waste of time.
+ - I have written every one of my novels to convince somebody of something.
+ - I write novels because there is something I don’t understand in reality.
+ - My stories are very somber, so I think I need the comic ingredient. Besides, life has so much humor.
+ - My pleasure was to copy, not to create.
+ - It’s my own personal unconscious that ultimately creates the novel’s aesthetic facade.
+
+64 quotes

@@ -1,0 +1,39 @@
+ - Who has the data has the power.
+ - Pursue something so important that even if you fail, the world is better off with you having tried.
+ - Create more value than you capture.
+ - Being too early is indistinguishable from being wrong.
+ - We’re entering a new world in which data may be more important than software.
+ - What new technology does is create new opportunities to do a job that customers want done.
+ - The future is always scary to those who cling to the past.
+ - Money is like gasoline during a road trip. You don’t want to run out of gas on your trip, but you’re not doing a tour of gas stations.
+ - Empowerment of individuals is a key part of what makes open source work, since in the end, innovations tend to come from small groups, not from large, structured efforts.
+ - An invention has to make sense in the world it finishes in, not in the world it started.
+ - Web 2.0 is the business revolution in the computer industry caused by the move to the Internet as platform, and an attempt to understand the rules for success on that new platform.
+ - There’s not a single business model, and there’s not a single type of electronic content. There are really a lot of opportunities and a lot of options and we just have to discover all of them.
+ - When you have to prove the value of your ideas by persuading other people to pay for them, it clears out an awful lot of woolly thinking.
+ - Life is not a tour of gas stations.
+ - The network is opening up some amazing possibilities for us to reinvent content, reinvent collaboration.
+ - Just do something that lights you up, and lights up your customers, and lights up the world and scale to that.
+ - The problem for most artists isn’t piracy, it’s obscurity.
+ - Data is the next Intel Inside.
+ - Architecture trumps licensing any time.
+ - Share what you do profusely, because it will be remixed by others into something new, rich and strange.
+ - There are more than 21 eBook channels already. Authors can’t possibly get to these and do what they do best.
+ - A key function of a publishing brand is the bestowal of status by who and what you pay attention to.
+ - The biggest mistake we see companies make when they first hit Twitter is to think about it as a channel to push out information.
+ - I think that Microsoft will increasingly feel margin pressure from Linux as well as people saying: well actually the applications that really matter to me are not on my PC. And so they’re going to be able to extract less of a monopoly rent, so to speak.
+ - In social networks, you gain and bestow status through those you associate with.
+ - Obscurity is a bigger problem for authors than piracy.
+ - My basic belief is you need to ride the horse in the direction that it’s going.
+ - A book is always a dialogue with other readers and other books.
+ - Early on, when software was developed by computer scientists, just people working with computers, people passed around software because that was how you got computers to do things.
+ - You have to pay attention to money, but it shouldn’t be about the money.
+ - Anyone who puts a small gloss on a fundamental technology, calls it proprietary, and then tries to keep others from building on it, is a thief.
+ - It’s a great discipline to have to report to somebody, even if you’re the sole owner.
+ - Apple is in a position they’ve been in a lot of times before. They’re like Moses showing the way to the promised land, but they don’t actually go there.
+ - I think that companies always become complacent, over time. Or most companies, that is.
+ - I think Microsoft will have to change. I think that the business of Microsoft, the company of Microsoft, is going to continue to succeed. But I think the business model of Microsoft is going to have to change.
+ - No matter your sector, chances are that people are already twittering about your products, your brand, your company or at least your industry.
+ - We often get blinded by the forms in which content is produced, rather than the job that the content does.
+
+37 quotes

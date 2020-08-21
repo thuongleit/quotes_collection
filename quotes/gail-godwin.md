@@ -1,0 +1,30 @@
+ - Good teaching is one-fourth preparation and three-fourths pure theatre.
+ - Learning when ‘enough is enough’ is the discipline of a lifetime.
+ - The best antidote I have found is to yearn for something. As long as you yearn, you can’t congeal: There is a forward motion to yearning.
+ - Something’s your vocation if it keeps making more of you.
+ - The act of longing for something will always be more intense than the requiting of it.
+ - Some things arrive in their own mysterious hour, on their own terms and not yours, to be seized or relinquished forever.
+ - Dreams say what they mean, but they don’t say it in daytime language.
+ - One is taught by experience to put a premium on those few people who can appreciate you for what you are.
+ - The race of children possesses magically sagacious powers.
+ - You’re supposed to get tired planting bulbs. But it’s an agreeable tiredness.
+ - None of us suddenly becomes something overnight. The preparations have been in the making for lifetime.
+ - I believe that dreams transport us through the underside of our days, and that if we wish to become acquainted with the dark side of what we are, the signposts are there, waiting for us to translate them.
+ - The more you respect and focus on the singular and the strange, the more you become aware of the universal and infinite.
+ - How easy it was to make people happy, when you didn’t want or need anything from them.
+ - During the act of writing I have told myself something that I didn’t know I knew.
+ - Negative people present us with an accelereted personal growth opportunity.
+ - What did a few ripples in the flesh matter when, all too soon, now or later, that flesh would be making its return journey to dust?
+ - I work continuously within the shadow of failure. For every novel that makes it to my publisher’s desk, there are at least five or six that died on the way. And even with the ones I do finish, I think of all the ways they might have been better.
+ - The characters that I create are parts of myself and I send them on little missions to find out what I don’t know yet.
+ - Actors between plays are like ghosts looking for bodies to inhabit.
+ - Who wanted to creep along in comfort when there was one chance in a thousand of flying?
+ - Much of the activity we think of as writing is, actually, getting ready to write.
+ - If there is such a thing as sin in this world, I think it must be shutting oneself up against hope.
+ - Heroics are not easily had for the young in our times. Perhaps that is why they go to such extremes to create their own dangers.
+ - Hope does not necessarily have to take an object...
+ - I’m always aware that I risk being taken for a neurasthenic prima donna when I explain to someone who wants ‘just a little’ of my time that five minutes of the wrong kind of distraction can ruin a working day.
+ - I read constantly. If I don’t have a good book, I’m beside myself.
+ - I believe that with enough practice and good faith, you can learn to recognize when the work is achieved.
+
+28 quotes

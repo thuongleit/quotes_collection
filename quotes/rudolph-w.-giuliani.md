@@ -1,0 +1,105 @@
+ - Change is not a destination, just as hope is not a strategy.
+ - It is in times of crisis that good leaders emerge.
+ - Courage is being afraid, but then doing what you have to do anyway.
+ - Compassion doesn’t weaken leadership, it makes it stronger.
+ - What children need most are the essentials that grandparents provide in abundance. They give unconditional love, kindness, patience, humor, comfort, lessons in life. And, most importantly, cookies.
+ - When you confront a problem you begin to solve it.
+ - The nightmare of the Cold War was nuclear weapons in the hands of an irrational person. I don’t want to live through that nightmare.
+ - To be locked into partisan politics doesn’t permit you to think clearly.
+ - It’s about time law enforcement got as organized as organized crime.
+ - America is the greatest nation in the history of the world. There’s nothing like America.
+ - My father used to say to me, ‘Whenever you get into a jam, whenever you get into a crisis or an emergency, become the calmest person in the room and you’ll be able to figure your way out of it.’
+ - Revenge is not a noble sentiment, but it is a human one.
+ - God bless every soul that we lost. God bless the families who have to endure that loss, and God guide us to our reunion in heaven, and God bless the United States of America.
+ - Courage is managing fear to accomplish what you want to accomplish. And it’s a great demonstration of love. It’s really what love is. It’s finding areas in which other people are more important than you.
+ - You never agree with any one candidate 100 percent. I don’t agree with myself 100 percent. You don’t even agree with me 100 percent.
+ - Thank God we’re safe. What I anticipated on Sept. 11 was that we would be attacked many times between then and now, and we haven’t been.
+ - There are many qualities that make a great leader. But having strong beliefs, being able to stick with them through popular and unpopular times, is the most important characteristic of a great leader.
+ - The way you get through tragedy is to look at the good things in life.
+ - Obviously murder and graffiti are two vastly different crimes. But they are part of the same continuum, and a climate that tolerates one is more likely to tolerate the other.
+ - Leaders need to be optimists. Their vision is beyond the present.
+ - Quit Iraq Study Group to avoid politicizing it.
+ - We don’t all agree on everything. I don’t agree with myself on everything.
+ - Freedom is about authority. Freedom is about the willingness of every single human being to cede to lawful authority a great deal of discretion about what you do.
+ - You know, in the horror movie you kill the monster, and the hand re-emerges. And if you’re not looking, the hand grows back and then the monster’s there again. That cannot be allowed to happen.
+ - The attacks of September 11th were intended to break our spirit. Instead we have emerged stronger and more unified.
+ - I support security at the borders. I think security is enormously important in the post-September 11th period. I think we have to know who’s coming into this country. We have to be able to identify them; we have to be able to figure out who they are.
+ - We are more determined than ever to live our lives in freedom.
+ - It’s part of the Constitution. People have the right to bear arms. Then the restrictions of it have to be reasonable and sensible. You can’t just remove that right. You’ve got to regulate, consistent with the Second Amendment.
+ - And it’s a little – very humbling to think that running for president of the United States is – for a kid from Brooklyn, it’s quite a step.
+ - No magic formula can completely prepare us for crises in life. However, each choice we make now will impact how we handle those crises in the future. Make your choice count. Dedicate time each day to developing your character. If you do, courage will be there when you need it most.
+ - I have no objection to the concept of domestic partnership.
+ - I was Mayor of New York during a great Yankees dynasty. I got to preside over the city during four Yankees championships.
+ - The reality is you’ve got to be yourself. You’ve got to be who you are. You’ve got to be honest with people. If your views change on something, you’ve got to be willing to express it.
+ - Being mayor of New York was a crisis a week and an emergency every other day.
+ - The use of military force against Iran would be very dangerous. It would be very provocative. The only thing worse would be Iran being a nuclear power.
+ - Didn’t vet Bernard Kerik sufficiently for DHS recommendation.
+ - We can’t accommodate terrorism. When someone uses the slaughter of innocent people to advance a so-called political cause, at that point the political cause becomes immoral and unjust and they should be eliminated from any serious discussion, any serious debate.
+ - God help this country if we’re now prepared to vote for someone we don’t trust. But every election cycle we do things we never dreamed of.
+ - St. Paul’s Chapel stands – without so much as a broken window. Little miracle.
+ - Freedom is not a concept in which people can do anything they want, be anything they can be. Freedom is about authority.
+ - We have to be on offense against terrorists, that we have to make it bipartisan, that it isn’t about being a Democrat or a Republican. It’s about being an American.
+ - I believe in a woman’s right to choose.
+ - If we take back the labor unions, the legitimate businesses, eventually they become just another street gang. Spiritually, psychologically, they’ve always been just a street gang.
+ - Although I have to leave you as mayor soon, I resume the much more honorable title of citizen of New York, and citizen of the United States.
+ - If you don’t find a way to do something as work that is fulfilling and enjoyable, then your life is going to be really sad.
+ - You believe that you can win the nomination of your party, and then you believe that you’re the strongest candidate to win the election for your party.
+ - I am a free market Republican. I am against subsidies, in most cases.
+ - The Republican Party would be well advised to get the heck out of people’s bedrooms.
+ - I want the people of New York to be an example to the rest of the country, and the rest of the world, that terrorism can’t stop us.
+ - I would appoint judges that interpreted the Constitution rather than invented it, understood the difference between being a judge and being a legislator.
+ - The best way to contain China and make it the peaceful rise of China is for us to have an enormously robust navy that is the greatest navy in the world, that can patrol two oceans, that can fight two or three wars, and China will not challenge us because the Chinese are practical.
+ - You can be a patriotic American and be a critic, but then you’re not expressing that kind of love that we’re used to from a president.
+ - I understand the Second Amendment. I support it. People have the right to bear arms.
+ - There’s never any guarantee at war.
+ - The thoughts I express, whether clearly or ambiguously, are my own and they are my individual responsibility.
+ - All leaders are influenced by those they admire. Reading about them and studying their traits inevitably allows an inspiring leader to develop his own leadership traits.
+ - Now we understand much more clearly. why people from all over the world want to come to New York and to America. It’s called freedom.
+ - If there’s no other alternative, I support civilian trials for terrorists.
+ - Lincoln made mistakes. Roosevelt made mistakes. Eisenhower made mistakes. The Battle of the Bulge was the biggest intelligence failure in American military history, much bigger than any in Vietnam or now. We didn’t know that the Soviets were moving 400,000 or 500,000 troops. We missed it.
+ - Life needs penalties and rewards for people. You can’t control people with only penalties. You have to think how to create rewards.
+ - I lowered taxes in New York. I reduced the size of government in New York. I took a $2.4 billion deficit and turned it into a $3.2 billion surplus. And I reduced taxes over 23 times or 23 times.
+ - In choosing a president, we really don’t choose a Republican or Democrat, a conservative or liberal. We choose a leader.
+ - If we were building our navy, rather than reducing our navy to pre-World War I levels, China would not be thinking about increasing its navy to take over the South China Sea.
+ - I do think you have sort of a general philosophical approach that you want from a justice, and I think a strict constructionist would be probably the way I’d describe it.
+ - So I think we’re, we’re, we’re as broad a political party, if not broader than the Democratic Party, just in a different political spectrum.
+ - One can look at John McCain and say that he’s not ready to be commander-in-chief.
+ - Rick Perry I have a great fondness for. And what Rick Perry has, like Jeb Bush has, it will be interesting to compare their two records as governor, very close, great economic development, low taxes, all the things we want domestically out of a president.
+ - The number of casualties will be more than most of us can bear.
+ - I’m probably one of the four or five best known Americans in the world.
+ - I think that sometimes the most intelligent things that prosecutors do is when they exercise their discretion not to go forward with a case.
+ - First thing you have to do is say to yourself what can I bring to it, what can I do and how can I make the country better? How can I improve it?
+ - It’s a phony issue. To pretend the death penalty is going to end crime in the United States is to fool people, to promote public ignorance.
+ - I haven’t seen it. I don’t really need Michael Moore to tell me about September 11th.
+ - I lived through crises. September 11 is obviously the biggest one that I’ve lived through.
+ - The past is what we have to learn about how to direct America to the future.
+ - I don’t think anyone has campaigned much more than I have for Republican candidates, going back to 1998. I mean, I’ve been in 45 states on behalf of 200 candidates – all Republicans.
+ - The minute Putin went into Crimea, what Obama should have done is sent 50,000 troops to NATO. He didn’t have to engage them, just send them. That puts the fear of God into people.
+ - I’ve campaigned many, many times together with Senator McCain. He’s campaigned for me; I’ve campaigned for him, good friend.
+ - It wouldn’t quite be fair to say September 11, like, made my career.
+ - Keep pressure on Iran, because pressure works.
+ - I’m looking for a president that’ll be like a Ronald Reagan to a Jimmy Carter.
+ - I’ve never seen a guy change his position so many times, so fast, on a dime.
+ - With the spirit of my administration, New York City is poised for dramatic change. The era of fear has had a long enough reign.
+ - And if you have a law that isn’t working, and you have thousands and thousands and millions of people, then the terrorists hide among them. And we have to have a law that makes sense.
+ - In 2012 President Obama didn’t go anywhere near African-American communities. Why? Because unemployment was so high there, he didn’t want to address it.
+ - The most visible symbol in New York is the spirit of a free people.
+ - When I said the city would be stronger, I didn’t know that. I just hoped it. There are parts of you that say, ‘Maybe we’re not going to get through this.’ You don’t listen to them.
+ - America needs to be defended. We need missile defense to better police the skies over the United States.
+ - Disagrees with neocon adviser on immediate need to bomb Iran.
+ - We should be tolerant, fair, open, and we should understand the rights that all people have in our society.
+ - He changed his position on virtually everything. I’m a moderate Republican, that’s what I am, so I’d be inclined to support someone like Mitt Romney. But all those changes give me pause.
+ - The Republican Party is a much bigger tent than people give it credit for. We have a lot of what I guess you all call moderate Republicans.
+ - A leader must not let critics set the agenda.
+ - I’m not sure if President Obama is an ideologue or a pragmatist. I am hoping and praying he’s a pragmatist.
+ - People have a right to protest; they have a right to make their opinion. They can be very upset about what they consider to be a murder of a person in custody, but you cannot destroy property. First person does it goes to jail.
+ - My major focus is national security because that’s really what the president runs.
+ - You have to be willing – you have strong ideas, you have strong views, but you have to be willing also to look at experience.
+ - I don’t feel like I’m running against them, I feel like I’m running to try to show the American people what I can do and what I can accomplish.
+ - No time limit in Iraq; stay until we achieve stability.
+ - We want everyone to prepare themselves for the reality that we are not going to be able to recover significant numbers of people.
+ - In choosing Governor Sarah Palin as his running mate, John McCain has chosen for the future.
+ - Did business with Qatar, a US ally which protects al-Qaeda.
+ - I was a Yankee fan in Brooklyn because my father was a Yankee fan. And my father was required to live in Brooklyn with my mothers family, who were all Dodger fans. So he was surrounded by Dodger fans. He was a Yankee fan. So his revenge was to make me a Yankee fan.
+
+103 quotes

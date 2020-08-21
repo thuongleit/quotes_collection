@@ -1,0 +1,22 @@
+ - Music gives the soul this inner self-expression, a voice. It gives the soul a sound, the sound of the Muse.
+ - Life is about rhythm. We vibrate, our hearts are pumping blood, we are a rhythm machine, that’s what we are.
+ - Art in the classroom not only spurs creativity, it also inspires learning.
+ - When I heard Grateful Dead music, I knew that it was the most powerful force on the planet.
+ - Adventures don’t begin until you get into the forest. That first step is an act of faith.
+ - The Grateful Dead were very kind. It was Santa Claus. It did good things. It allowed other people to benefit. The benefits that we played were enormous, and we played free. So youve got a band that loves to play free, and that was a wonderful thing.
+ - In the beginning, there was noise. Noise begat rhythm, and rhythm begat everything else.
+ - I hated science in high school. Technology? Engineering? Math? Why would I ever need this? Little did I realize that music was also about science, technology, engineering and mathematics, all rolled into one.
+ - When you are drumming and really feeling the music, the beat, it is like you are transported to a different place, where you feel so exhilirated and calm through your whole body.
+ - Dreams sometimes foretell the future.
+ - The adventure of composition is a mystery. The muse has her ways, she hides from you, comes for you in the middle of the night, at midday, at dawn. You must believe wholeheartedly in this divine power. Its an elusive gift that can appear at any time, anywhere. Artists are in awe of it.
+ - There’s nothing like music to relieve the soul and uplift it.
+ - The voice of the drum is a spirit thing.
+ - A good groove releases adrenaline in your body. You feel uplifted, you feel centered, you feel calm, you feel powerful. You feel that energy. That’s what good drumming is all about.
+ - Egyptian drumming happens to be a favorite of mine. It’s a really simple instrument, but it’s really difficult to play. You can take it anywhere with you – you can play it in your room, in an airport. It’s very quiet, so you explore the quiet side.
+ - What is the best music is impossible to define. Just because it’s played by a virtuoso player, doesn’t mean it’s great music. It might not reflect the soul of a people, which is really my criteria for great music.
+ - When the Grateful Dead needed a quality sound system to deliver our sonic payload, I learned electronics and speaker design.
+ - Everywhere you look on the planet people are using drums to alter consciousness.
+ - The point is that the arts are important enough to have influenced the greatest minds and talents we know. Albert Einstein said that if he were not a physicist, he would probably be a musician.
+ - People will always try to find themselves and their place in the world.
+
+20 quotes

@@ -1,0 +1,42 @@
+ - Everything is practice. ~~Pelé
+ - Success is no accident. It is hard work, perseverance, learning, studying, sacrifice and most of all, love of what you are doing or learning to do. ~~Pelé
+ - If you do not believe you can do it then you have no chance at all. ~~Arsene Wenger
+ - Keep working even when no one is watching. ~~Alex Morgan
+ - If you are first you are first. If you are second, you are nothing. ~~Bill Shankly
+ - I once cried because I had no shoes to play soccer, but one day, I met a man who had no feet. ~~Zinedine Zidane
+ - My heroes were always soccer players. ~~Ronaldinho
+ - You will go through tough times, it’s about getting through them. ~~David Beckham
+ - I’m living a dream I never want to wake up from. ~~Cristiano Ronaldo
+ - All I know of morality I learned from football. ~~Albert Camus
+ - Behind every kick of the ball there has to be a thought. ~~Dennis Bergkamp
+ - If it doesn’t matter who wins or loses, then why do they keep score? ~~Vince Lombardi
+ - All human history moves towards one great goal. ~~James Joyce
+ - I don’t believe there is such a thing as a ‘born’ soccer player. Perhaps you are born with certain skills and talents, but quite frankly it seems impossible to me that one is actually born to be an ace soccer player. ~~Pelé
+ - The great thing about him, is that he will not quit. ~~Cristiano Ronaldo
+ - The number 7 shirt is an honor and a responsibility. I hope it brings me a lot of luck. ~~Cristiano Ronaldo
+ - The trouble with referees is that they know the rules, but they do not know the game. ~~Bill Shankly
+ - I’d rather play tennis than go to the dentist. I’d rather play soccer than go to the doctor. I’d rather play Hurk than go to work. Hurk? Hurk? What’s Hurk? I don’t know but it MUST be better than work! ~~Shel Silverstein
+ - Look at my haircut. I am ready for the war. The objective is to win the Premiershp. I don’t want to dominate, to finish without defeat, record points or goals or consecutive wins. The Premiership is so difficult you cannot be focused on that. I just think about winning. ~~Jose Mourinho
+ - Every kid around the world who plays soccer wants to be Pele. I have a great responsibility to show them not just how to be like a soccer player, but how to be like a man. ~~Pelé
+ - I have practically no private life. I’m already used to this and ready for it. Yes, sometimes it is hard, but it is the choice I made. ~~Cristiano Ronaldo
+ - When you lose a person you love so much, surviving the loss is difficult. ~~Cristiano Ronaldo
+ - A penalty is a cowardly way to score. ~~Pelé
+ - If you’re in the penalty area and don’t know what to do with the ball, put it in the net and we’ll discuss the options later. ~~Bob Paisley
+ - They say Rome wasn’t built in a day, but I wasn’t on that particular job. ~~Brian Clough
+ - I take pride in the fact that people go home having felt that for 90 minutes today, life is beautiful – and that’s it, basically. That’s why professional football exists. ~~Arsene Wenger
+ - I never promise anything. I don’t promise anything to my mum. I don’t promise anything to the supporters. ~~Cristiano Ronaldo
+ - Why lie? I’m not going to be a hypocrite and say the opposite of what I think, like some others do. ~~Cristiano Ronaldo
+ - He’s a gift from heaven, he is truly a gift from heaven. Whatever he touches turns to gold. ~~Cristiano Ronaldo
+ - I like physical exercise. I actually like sports in general. I really like snowboarding and playing soccer, too. ~~Valentino Rossi
+ - A champion is someone who does not settle for that day’s practice, that day’s competition, that day’s performance. They are always striving to be better. They don’t live in the past. ~~Briana Scurry
+ - Football is a thinly disguised re-enactment of hunting; we played it before we were human. ~~Carl Sagan
+ - I don’t think about one trick or the other, they just happen. ~~Cristiano Ronaldo
+ - Ronaldo can do whatever he wants as a footballer. There are some things he does with the ball that make me touch my head and wonder how he did it. ~~Cristiano Ronaldo
+ - I want no epitaphs of profound history and all that type of thing. I contributed. I would hope they would say that, and I would hope somebody liked me. ~~Brian Clough
+ - I have never played against anybody like that in my life and I was pleased to be taken off. ~~Cristiano Ronaldo
+ - After we played Sporting last week, the lads in the dressing room talked about him constantly, and on the plane back from the game they urged me to sign him. That’s how highly they rated him. ~~Cristiano Ronaldo
+ - I don’t know if we are the best team in the world. I am lucky to be playing alongside some of the best players around. It’s a dream. ~~Zinedine Zidane
+ - So, Arsenal have signed Arsene Wenger because his name sounds a bit like the club. How long before Man Utd sign Stefan Kuntz? ~~Frank Skinner
+ - Soccer is popular because stupidity is popular. ~~Jorge Luis Borges
+
+40 quotes

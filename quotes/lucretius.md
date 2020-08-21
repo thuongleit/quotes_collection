@@ -1,0 +1,113 @@
+ - Constant dripping hollows out a stone.
+ - One Man’s food is another Man’s Poison.
+ - All religions are equally sublime to the ignorant, useful to the politician, and ridiculous to the philosopher.
+ - The water hollows out the stone, not by force but drop by drop.
+ - Fear was the first thing on Earth to create gods.
+ - The drops of rain make a hole in the stone not by violence but by oft falling.
+ - The old must always make way for the new, and one thing must be built out of the ruins of another. There is no murky pit of hell awaiting anyone.
+ - What is food to one man may be fierce poison to others.
+ - Therefore there is not anything which returns to nothing, but all things return dissolved into their elements.
+ - Time changes the nature of the whole world; Everything passes from one state to another And nothing stays like itself.
+ - The mask is torn off, while the reality remains.
+ - Anything made out of destructible matter Infinite time would have devoured before. But if the atoms that make and replenish the world Have endured through the immense span of the past Their natures are immortal-that is clear. Never can things revert to nothingness!
+ - Not they who reject the gods are profane, but those who accept them.
+ - It is great wealth to a soul to live frugally with a contented mind.
+ - No single thing abides; but all things flow. Fragment to fragment clings – the things thus grow Until we know them and name them. By degrees They melt, and are no more the things we know.
+ - Never trust the calm sea when she shows her false alluring smile.
+ - True piety lies rather in the power to contemplate the universe with a quiet mind.
+ - There is no place in nature for extinction.
+ - You alone govern the nature of things. Without you nothing emerges into the light of day, without you nothing is joyous or lovely.
+ - The greatest wealth is to live content with little, for there is never want where the mind is satisfied.
+ - The first beginnings of things cannot be distinguished by the eye.
+ - Death is nothing to us, it matters not one jot, since the nature of the mind is understood to be mortal.
+ - Falling drops will at last wear away stone.
+ - It’s easier to avoid the snares of love than to escape once you are in that net whose cords and knots are strong; but even so, enmeshed, entangled, you can still get out unless, poor fool, you stand in your own way.
+ - All things around, convulsed with violent thunder, seem to tremble, and the mighty walls of the capacious world appear at once to have started and burst asunder.
+ - For there is a VOID in things; a truth which it will be useful for you, in reference to many points, to know; and which will prevent you from wandering in doubt.
+ - Life is one long struggle in the dark.
+ - For men know not what the nature of the soul is; whether it is engendered with us, or whether, on the contrary, it is infused into us at our birth, whether it perishes with us, dissolved by death, or whether it haunts the gloomy shades and vast pools of Orcus.
+ - Nothing from nothing ever yet was born.
+ - What can give us more sure knowledge than our senses? How else can we distinguish between the true and the false?
+ - To none is life given in freehold; to all on lease.
+ - Globed from the atoms falling slow or swift I see the suns, I see the systems lift Their forms; and even the systems and the suns Shall go back slowly to the eternal drift.
+ - From the heart of the fountain of delight rises a jet of bitterness that tortures us among the very flowers.
+ - We cannot conceive of matter being formed of nothing, since things require a seed to start from.
+ - The wailing of the newborn infant is mingled with the dirge for the dead.
+ - Rest, brother, rest. Have you done ill or well Rest, rest, There is no God, no gods who dwell Crowned with avenging righteousness on high Nor frowning ministers of their hate in hell.
+ - Fear is the mother of all gods.
+ - So, little by little, time brings out each several thing into view, and reason raises it up into the shores of light.
+ - It’s easier to avoid the snares of love than to escape once you are in that net.
+ - Were a man to order his life by the rules of true reason, a frugal substance joined to a contented mind is for him great riches; for never is there any lack of a little.
+ - Out beyond our world there are, elsewhere, other assemblages of matter making other worlds. Ours is not the only one in air’s embrace.
+ - Nature obliges everything to change about. One thing crumbles and falls in the weakness of age; Another grows in its place from a negligible start. So time alters the whole nature of the world And earth passes from one state to another.
+ - The mind like a sick body can be healed and changed by medicine.
+ - Such are the heights of wickedness to which men are driven by religion.
+ - So potent was religion in persuading to evil deeds.
+ - So it is more useful to watch a man in times of peril, and in adversity to discern what kind of man he is; for then at last words of truth are drawn from the depths of his heart, and the mask is torn off, reality remains.
+ - Even if I knew nothing of the atoms, I would venture to assert on the evidence of the celestial phenomena themselves, supported by many other arguments, that the universe was certainly not created for us by divine power: it is so full of imperfections.
+ - Mother of Aeneas, pleasure of men and gods. -Aeneadum genetrix, hominum divomque voluptas.
+ - By protracting life, we do not deduct one jot from the duration of death.
+ - For piety lies not in being often seen turning a veiled head to stones, nor in approaching every altar, nor in lying prostratebefore the temples of the gods, nor in sprinkling altars with the blood of beastsbut rather in being able to look upon all things with a mind at peace.
+ - The body searches for that which has injured the mind with love.
+ - For thee the wonder-working earth puts forth sweet flowers.
+ - All things obey fixed laws.
+ - What once sprung from the earth sinks back into the earth.
+ - Pleasant it to behold great encounters of warfare arrayed over the plains, with no part of yours in peril.
+ - For fools admire and love those things they see hidden in verses turned all upside down, and take for truth what sweetly strokes the ears and comes with sound of phrases fine imbued.
+ - Human life lay foul before men’s eyes, crushed to the dust beneath religion’s weight.
+ - There is nothing that exists so great or marvelous that over time mankind does not admire it less and less.
+ - Sweet it is, when on the high seas the winds are lashing the waters, to gaze from the land on another’s struggles.
+ - The nature of the universe has by no means been made through divine power, seeing how great are the faults that mar it.
+ - Beauty and strength were, both of them, much esteemed; Then wealth was discovered and soon after gold Which quickly became more honoured than strength or beauty. For men, however strong or beautiful, Generally follow the train of a richer man.
+ - Do we not see all humans unaware Of what they want, and always searching everywhere, And changing place, as if to drop the load they bear?
+ - So much wrong could religion induce.
+ - Did men but know that there was a fixed limit to their woes, they would be able, in some measure, to defy the religious fictions and menaces of the poets; but now, since we must fear eternal punishment at death, there is no mode, no means, of resisting them.
+ - And part of the soil is called to wash away In storms and streams shave close and gnaw the rocks. Besides, whatever the earth feeds and grows Is restored to earth. And since she surely is The womb of all things and their common grave, Earth must dwindle, you see and take on growth again.
+ - Truths kindle light for truths.
+ - Men are eager to tread underfoot what they have once too much feared.
+ - One thing is made of another, and nature allows no new creation except at the price of death.
+ - Tis pleasant to stand on shore and watch others labouring in a stormy sea.
+ - Victory puts us on a level with heaven.
+ - Though the dungeon, the scourge, and the executioner be absent, the guilty mind can apply the goad and scorch with blows.
+ - How many evils have flowed from religion.
+ - Lucretius was passionate, and much more in need of exhortations to prudence than Epicurus was. He committed suicide, and appears to have suffered from periodic insanity – brought on, so some averred, by the pains of love or the unintended effects of a love philtre.
+ - The highest summits and those elevated above the level of other things are mostly blasted by envy as by a thunderbolt.
+ - Thus the sum of things is ever being reviewed, and mortals dependent one upon another. Some nations increase, others diminish, and in a short space the generations of living creatures are changed and like runners pass on the torch of life.
+ - Violence and injury enclose in their net all that do such things, and generally return upon him who began.
+ - Certainly it was no design of the atoms to place themselves in a particular order, nor did they decide what motions each should have. But atoms were struck with blows in many ways and carried along by their own weight from infinite times up to the present.
+ - It is a pleasure for to sit at ease Upon the land, and safely for to see How other folks are tossed on the seas That with the blustering winds turmoiled be.
+ - O goddess, bestow on my words an immortal charm.
+ - The sum total of all sums total is eternal.
+ - Whenever anything changes and quits its proper limits, this change is at once the death of that which was before.
+ - Forbear to spew out reason from your mind, but rather ponder everything with keen judgment; and if it seems true, own yourself vanquished, but, if it is false, gird up your loins to fight.
+ - Nothing can be created out of nothing.
+ - If men saw that a term was set to their troubles, they would find strength in some way to withstand the hocus-pocus and intimidations of the prophets.
+ - How is it that the sky feeds the stars?
+ - We, peopling the void air, make gods to whom we impute the ills we ought to bear.
+ - Religious questions have often led to wicked and impious actions.
+ - Violence and wrong enclose all who commit them in their meshes and do mostly recoil on him from whom they begin.
+ - Men conceal the past scenes of their lives.
+ - It is pleasurable, when winds disturb the waves of a great sea, to gaze out from land upon the great trials of another.
+ - If anyone decided to call the sea Neptune, and corn Ceres, and to misapply the name of Bacchus rather than to give liquor its right name, so be it; and let him dub the round world “Mother of the Gods” so long as he is careful not really to infest his mind with base superstitions.
+ - Gently touching with the charm of poetry.
+ - Why dost thou not retire like a guest sated with the banquet of life, and with calm mind embrace, thou fool, a rest that knows no care?
+ - Things stand apart so far and differ, that What’s food for one is poison for another.
+ - Only religion can lead to such evil.
+ - Such crimes has superstition caused.
+ - To ask for power is forcing uphill a stone which after all rolls back again from the summit and seeks in headlong haste the levels of the plain.
+ - We notice that the mind grows with the body, and with it decays.
+ - We plainly perceive that the mind strengthens and decays with the body.
+ - Under what law each thing was created, and how necessary it is for it to continue under this, and how it cannot annul the strong rules that govern its lifetime.
+ - Air, I should explain, becomes wind when it is agitated.
+ - And life is given to none freehold, but it is leasehold for all.
+ - Such evil deeds could religion prompt.
+ - But centaurs never existed; there could never be So to speak a double nature in a single body Or a double body composed of incongruous parts With a consequent disparity in the faculties. The stupidest person ought to be convinced of that.
+ - Those things that are in the light we behold from darkness.
+ - First, then, I say, that the mind, which we often call the intellect, in which is placed the conduct and government of life, is not less an integral part of man himself, than the hand, and foot, and eyes, are portions of the whole animal.
+ - You may complete as many generations as you please during your life; none the less will that everlasting death await you.
+ - In a brief space the generations of beings are changed, and, like runners, pass on the torches of life.
+ - Nature impelled men to make sounds with their tongues And they found it useful to give names to things Much for the same reason that we see children now Have recourse to gestures because they cannot speak And point their fingers at things which appear before them.
+ - Pleasant it is, when over a great sea the winds trouble the waters, to gaze from shore upon another’s great tribulation; not because any man’s troubles are a delectable joy, but because to perceive you are free of them yourself is pleasant.
+ - If the matter of death is reduced to sleep and rest, what can there be so bitter in it, that any one should pine in eternal grief for the decease of a friend?
+
+111 quotes

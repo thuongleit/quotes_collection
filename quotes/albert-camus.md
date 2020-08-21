@@ -1,0 +1,502 @@
+ - Should I kill myself, or have a cup of coffee?
+ - Don't walk behind me; I may not lead. Don't walk in front of me; I may not follow. Just walk beside me and be my friend.
+ - In the midst of winter, I found there was, within me, an invincible summer. And that makes me happy. For it says that no matter how hard the world pushes against me, within me, there’s something stronger – something better, pushing right back.
+ - Man is the only creature who refuses to be what he is.
+ - You will never be happy if you continue to search for what happiness consists of. You will never live if you are looking for the meaning of life.
+ - The only way to deal with an unfree world is to become so absolutely free that your very existence is an act of rebellion.
+ - Freedom is nothing but a chance to be better.
+ - Always go too far, because that's where you'll find the truth.
+ - I rebel; therefore I exist.
+ - The purpose of a writer is to keep civilization from destroying itself.
+ - Life is the sum of your choices.
+ - Nobody realizes that some people expend tremendous energy merely to be normal.
+ - One must imagine Sisyphus happy.
+ - In the depth of winter, I finally learned that within me there lay an invincible summer.
+ - The struggle itself towards the heights is enough to fill a man’s heart. One must imagine Sisyphus happy.
+ - Fiction is the lie through which we tell the truth.
+ - When you have once seen the glow of happiness on the face of a beloved person, you know that a man can have no vocation but to awaken that light on the faces surrounding him. In the depth of winter, I finally learned that within me there lay an invincible summer.
+ - Blessed are the hearts that can bend; they shall never be broken.
+ - There is scarcely any passion without struggle.
+ - Life should be lived to the point of tears.
+ - Psychology is action, not thinking about oneself.
+ - Peace is the only battle worth waging.
+ - A man without ethics is a wild beast loosed upon this world.
+ - People hasten to judge in order not to be judged themselves.
+ - When the soul suffers too much, it develops a taste for misfortune.
+ - Sometimes, carrying on, just carrying on, is the superhuman achievement.
+ - Yes, everything is simple. It’s people who complicate things.
+ - There is but one truly serious philosophical problem and that is suicide.
+ - Some people talk in their sleep. Lecturers talk while other people sleep.
+ - The realization that life is absurd cannot be an end, but only a beginning.
+ - Find your happiness in yourself.
+ - Life is meaningless, but worth living, provided you recognize it’s meaningless.
+ - You cannot create experience. You must undergo it.
+ - The only serious question in life is whether to kill yourself or not.
+ - We are rebels for a cause, poets with a dream, and we won’t let this world die without a fight.
+ - I know of only one duty, and that is to love.
+ - An intellectual is someone whose mind watches itself.
+ - But in the end one needs more courage to live than to kill himself.
+ - What is a rebel? A man who says no.
+ - For ever, I shall be a stranger to myself.
+ - I would rather live my life as if there is a God and die to find out there isn’t, than live as if there isn’t and to die to find out that there is.
+ - There is so much stubborn hope in the human heart.
+ - There is no sun without shadow, and it is essential to know the night.
+ - There is no shame in preferring happiness.
+ - One cannot be a part-time nihilist.
+ - I do not believe in God and I am not an atheist.
+ - Integrity has no need of rules.
+ - Everything considered, a determined soul will always manage.
+ - But above all, in order to be, never try to seem.
+ - The real 19th century prophet was Dostoevsky, not Karl Marx.
+ - Without work, all life goes rotten. But when work is soulless, life stifles and dies.
+ - A work of art is a confession.
+ - This world, such as it is, is not tolerable. Therefore I need the moon, or happiness, or immortality, I need something which is perhaps demented, but which is not of this world.
+ - Real generosity toward the future lies in giving all to the present.
+ - You know very well that I no longer think. I am far too intelligent for that.
+ - Thoughts of suicide have got me through many a bad night.
+ - There is in me an anarchy and frightful disorder. Creating makes me die a thousand deaths, because it means making order, and my entire being rebels against order. But without it I would die, scattered to the winds.
+ - Travel, which is like a greater and a graver science, brings us back to ourselves.
+ - And never have I felt so deeply at one and the same time so detached from myself and so present in the world.
+ - I opened myself to the gentle indifference of the world.
+ - For the absurd man, it is not a matter of explaining and solving, but of experiencing and describing. Everything begins with lucid indifference.
+ - Poor and free rather than rich and enslaved. Of course, men want to be both rich and free, and this is what leads them at times to be poor and enslaved.
+ - It is the job of thinking people not to be on the side of the executioners.
+ - Autumn is a second spring when every leaf is a flower.
+ - The absurd has meaning only in so far as it is not agreed to.
+ - All great deeds and all great thoughts have a ridiculous beginning.
+ - Nihilism is not only despair and negation, but above all the desire to despair and to negate.
+ - Idleness is fatal only to the mediocre.
+ - There is always a philosophy for lack of courage.
+ - You will always win if you make an effort, no matter how much. However, if you failed it means you were too lazy.
+ - The absurd hero’s refusal to hope becomes his singular ability to live in the present with passion.
+ - Where there is no hope, it is incumbent on us to invent it.
+ - A man who has become conscious of the absurd is for ever bound to it.
+ - The need to be right is the sign of a vulgar mind.
+ - I know myself too well to believe in pure virtue.
+ - Democracy is not the law of the majority but the protection of the minority.
+ - Mother died today. Or maybe yesterday; I can’t be sure.
+ - Nothing in life is worth, turning your back on, if you love it.
+ - Betrayal answers betrayal, the mask of love is answered by the disappearance of love.
+ - But what is happiness except the simple harmony between a man and the life he leads?
+ - Beauty is unbearable, drives us to despair, offering us for a minute the glimpse of an eternity that we should like to stretch out over the whole of time.
+ - Freedom is not a gift received from the State or leader, but a possession to be won every day by the effort of each and the union of all.
+ - Life can be magnificent and overwhelming – that is the whole tragedy. Without beauty, love, or danger it would almost be easy to live.
+ - This very heart which is mine will forever remain indefinable to me. Between the certainty I have of my existence and the content I try to give to that assurance, the gap will never be filled. Forever I shall be a stranger to myself.
+ - What is a rebel? A man who says no: but whose refusal does not imply a renunciation.
+ - All I know of morality I learned from football.
+ - At any street corner the feeling of absurdity can strike any man in the face.
+ - I’ve seen of enough of people who die for an idea. I don’t believe in heroism; I know it’s easy and I’ve learned it can be murderous. What interests me is living and dying for what one loves.
+ - There is no love of life without despair of life.
+ - Travel breaks down a kind of inner structure we have. Stripped of our props, deprived of our masks, we are completely on the surface of ourselves.
+ - To be born to create, to love, to win at games is to be born to live in time of peace. But war teaches us to lose everything and become what we were not. It all becomes a question of style.
+ - The Byronic hero, incapable of love, or capable only of an impossible love, suffers endlessly. He is solitary, languid, his condition exhausts him. If he wants to feel alive, it must be in the terrible exaltation of a brief and destructive action.
+ - The most knowledgeable person in one domain may be the most ignorant in another.
+ - I should like to be able to love my country and still love justice.
+ - Every minute of life carries with it its miraculous value, and its face of eternal youth.
+ - It is always easy to be logical. It is almost impossible to be logical to the bitter end.
+ - Every ideology is contrary to human psychology.
+ - A nihilist is not one who believes in nothing, but one who does not believe in what exists.
+ - The harshest winter finds an invincible summer in us.
+ - There is no fate that cannot be surmounted by scorn.
+ - All that I know most surely about morality and obligations I owe to football.
+ - Those who lack the courage will always find a philosophy to justify it.
+ - A man’s work is nothing but this slow trek to rediscover, through the detours of art, those two or three great and simple images in whose presence his heart first opened.
+ - The most important thing you do everyday you live is deciding not to kill yourself.
+ - The gods had condemned Sisyphus to ceaselessly rolling a rock to the top of a mountain, whence the stone would fall back of its own weight. They had thought with some reason that there is no more dreadful punishment than futile and hopeless labor.
+ - We always deceive ourselves twice about the people we love – first to their advantage, then to their disadvantage.
+ - Without culture, and the relative freedom it implies, society, even when perfect, is but a jungle. This is why any authentic creation is a gift to the future.
+ - For there is merely bad luck in not being loved; there is misfortune in not loving.
+ - The evil that is in the world almost always comes of ignorance, and good intentions may do as much harm as malevolence if they lack understanding.
+ - Truly fertile Music, the only kind that will move us, that we shall truly appreciate, will be a Music conducive to Dream, which banishes all reason and analysis. One must not wish first to understand and then to feel. Art does not tolerate Reason.
+ - The greatness of man lies in his decision to be stronger than his condition.
+ - I may not have been sure about what really did interest me, but I was absolutely sure about what didn’t.
+ - In order to understand the world, one has to turn away from it on occasion.
+ - Real nobility is based on scorn, courage, and profound indifference.
+ - There are plagues, and there are victims, and it’s the duty of good men not to join forces with the plagues.
+ - I can feel this heart inside me and I conclude it exists. I can touch this world and I also conclude that it exists. All my knowledge ends at this point. The rest is hypothesis.
+ - To be happy we must not be too concerned with others.
+ - Note, besides, that it is no more immoral to directly rob citizens than to slip indirect taxes into the price of goods that they cannot do without.
+ - Lucifer also has died with God, and from his ashes has arisen a spiteful demon who does not even understand the object of his venture.
+ - With rebellion, awareness is born.
+ - Truth, like light, blinds. Falsehood, on the contrary, is a beautiful twilight that enhances every object.
+ - There is a life and there is a death, and there are beauty and melancholy between.
+ - Utopia is that which is in contradiction with reality.
+ - A free press can, of course, be good or bad, but, most certainly without freedom, the press will never be anything but bad.
+ - Seeking what is true is not seeking what is desirable.
+ - But what does it mean, the plague? It’s life, that’s all.
+ - The rebel can never find peace. He knows what is good and, despite himself, does evil. The value which supports him is never given to him once and for all – he must fight to uphold it, unceasingly.
+ - There is but one freedom, to put oneself right with death. After that everything is possible.
+ - Happiness and the absurd are two sons of the same earth. They are inseparable.
+ - Everybody knows life isn’t worth living.
+ - A writer cannot put himself today in service of those who make history; he is at the service of those who suffer it.
+ - Retaliation is related to nature and instinct, not to law. Law, by definition, cannot obey the same rules as nature.
+ - Only it takes time to be happy. A lot of time. Happiness, too, is a long patience.
+ - For rich people, the sky is just an extra, a gift of nature. The poor, on the other hand, can see it as it is, a gift of infinite grace.
+ - Man stands face to face with the irrational. He feels within him his longing for happiness and for reason. The absurd is born of this confrontation between the human need and the unreasonable silence of the world.
+ - If God did not exist, we should have to invent him. If God did exist, we should have to abolish Him.
+ - Psychology is action, not thinking about oneself. We continue to shape our personality all our life. To know oneself, one should assert oneself.
+ - In order to be created, a work of art must first make use of the dark forces of the soul.
+ - The tragedy is not that we are alone, but that we cannot be. At times I would give anything in the world to no longer be connected by anything to this universe of men.
+ - Maman died today. Or yesterday maybe, I don’t know. I got a telegram from the home: ‘Mother deceased. Funeral tomorrow. Faithfully yours.’ That doesn’t mean anything. Maybe it was yesterday.
+ - After awhile you could get used to anything.
+ - That’s love, giving everything, sacrificing all without hope of return.
+ - It takes time to live. Like any work of art, life needs to be thought about.
+ - Every act of rebellion expresses a nostalgia for innocence and an appeal to the essence of being.
+ - Charm is a way of getting the answer ‘Yes’ without asking a clear question.
+ - If the world were clear, art would not exist.
+ - Nothing is more despicable than respect based on fear.
+ - Forever I shall be a stranger to myself. In psychology as in logic, there are truths but no truth.
+ - I realized then that a man who had lived only one day could easily live for a hundred years in prison. He would have enough memories to keep him from being bored.
+ - If something is going to happen to me, I want to be there.
+ - We get into the habit of living before acquiring the habit of thinking.
+ - In order to exist, man must rebel.
+ - At a certain level of suffering or injustice no one can do anything for anyone. Pain is solitary.
+ - Rebellion cannot exist without a strange form of love.
+ - The best revenge you can have on intellectuals is to be madly happy.
+ - It was previously a question of finding out whether or not life had to have a meaning to be lived. It now becomes clear on the contrary that it will be lived all the better if it has no meaning.
+ - For the first time, the first, I laid my heart open to the benign indifference of the universe. To feel it so like myself, indeed so brotherly, made me realize that I’d been happy, and that I was happy still.
+ - On good days, if you trust life, life has to answer you.
+ - I used to advertise my loyalty and I don’t believe there is a single person I loved that I didn’t eventually betray.
+ - Women are all we know of paradise on this earth.
+ - Since we’re all going to die, it’s obvious that when and how don’t matter.
+ - In order to exist, man must rebel, but rebellion must respect the limits that it discovers in itself – limits where minds meet, and in meeting, begin to exist.
+ - What is called a reason for living is also an excellent reason for dying.
+ - Truth and freedom, having few lovers, are demanding mistresses.
+ - Having money is a way of being free of money.
+ - Purely historical thought is nihilistic; it wholeheartedly accepts the evil of history.
+ - Creating is living doubly. The groping, anxious quest of a Proust, his meticulous collecting of flowers, of wallpapers, and of anxieties, signifies nothing else.
+ - Everything is true, and nothing is true!
+ - The slave begins by demanding justice and ends by wanting to wear a crown.
+ - The danger of lectures is that they create the illusion of teaching for teachers, and the illusion of learning for learners.
+ - A true masterpiece does not tell everything.
+ - He who despairs of the human condition is a coward, but he who has hope for it is a fool.
+ - Existence is illusory and it is eternal.
+ - To grow old is to pass from passion to compassion.
+ - Man is always prey to his truths. Once he has admitted them, he cannot free himself from them.
+ - The absurd is sin without God.
+ - Men die and they are not happy.
+ - The absurd is a shadow cast over everything we do and even if we try to live life as if it has meaning as if there are reasons for doing things the absurd will linger in the back of our minds as a nagging doubt that perhaps there is no point.
+ - I feel like getting married, or committing suicide, or subscribing to L’Illustration. Something desperate, you know.
+ - Without freedom, no art; art lives only on the restraints it imposes on itself, and dies of all others.
+ - Truth is mysterious, elusive, always to be conquered. Liberty is dangerous, as hard to live with as it is elating. We must march toward these two goals, painfully but resolutely, certain in advance of our failings on so long a road.
+ - A person I knew used to divide human beings into three categories: those who prefer to have nothing to hide rather than being obliged to lie, those who prefer lying to having nothing to hide, and finally those who like both lying and the hidden.
+ - When I look at my life and its secret colours, I feel like bursting into tears.
+ - Great ideas come into the world as gently as doves.
+ - Have pity, Lord, on those who love and are separated.
+ - Happiness implied a choice, and within that choice a concerted will, a lucid desire.
+ - Marxism is not scientific: at the best, it has scientific prejudices.
+ - Am well. Thinking of you always. Love.
+ - I was born poor and without religion, under a happy sky, feeling harmony, not hostility, in nature. I began not by feeling torn, but in plenitude.
+ - At 30 a man should know himself like the palm of his hand, know the exact number of his defects and qualities, know how far he can go, foretell his failures – be what he is. And, above all, accept these things.
+ - There can be no question of holding forth on ethics. I have seen people behave badly with great morality and I note every day that integrity has no need of rules.
+ - Only a philosophy of eternity, in the world today, could justify non-violence.
+ - For if there is a sin against life, it consists perhaps not so much in despairing of life as in hoping for another life and in eluding the implacable grandeur of this life.
+ - When silence or tricks of language contribute to maintaining an abuse that must be reformed or a suffering that can be relieved, then there is no other solution but to speak out and show the obscenity hidden under the verbal cloak.
+ - I always found misogyny vulgar and stupid, and I found almost all the women I have known to be my betters. However, placing them so high, I used them more often than I served them. How does one make sense of this?
+ - It is natural to give a clear view of the world after accepting the idea that it must be clear.
+ - The absurd is lucid reason noting its limits.
+ - Whoever gives nothing, has nothing. The greatest misfortune is not to be unloved, but not to love.
+ - I am too far away from what I love and my distance is without remedy.
+ - If those whom we begin to love could know us as we were before meeting them they could perceive what they have made of us.
+ - As a remedy to life in society I would suggest the big city. Nowadays, it is the only desert within our means.
+ - Your success and happiness are forgiven you only if you generously consent to share them. But to be happy it is essential not to be too concerned with others. Consequently, there is no escape. Happy and judged, or absolved and wretched.
+ - If nothing had any meaning, you would be right. But there is something that still has a meaning.
+ - A man devoid of hope and conscious of being so has ceased to belong to the future.
+ - A profound thought is in a constant state of becoming; it adopts the experience of a life and assumes its shape.
+ - There always comes a time when one must choose between contemplation and action. This is called becoming a man.
+ - Sometimes at night I would sleep open-eyed underneath a sky dripping with stars. I was alive then.
+ - The truth is that everyone is bored, and devotes himself to cultivating habits.
+ - I know simply that the sky will last longer than I.
+ - Once crime was as solitary as a cry of protest; now it is as universal as science. Yesterday it was put on trial; today it determines the law.
+ - And then came human beings; humans wanted to cling but there was nothing to cling to.
+ - Outside of that single fatality of death, everything, joy or happiness, is liberty.
+ - More and more, when faced with the world of men, the only reaction is one of individualism. Man alone is an end unto himself. Everything one tries to do for the common good ends in failure.
+ - I looked up at the mass of signs and stars in the night sky and laid myself open for the first time to the benign indifference of the world.
+ - I’d buy myself a cabin on the beach, I’d put some glue in my navel, and I’d stick a flag in there. Then I’d wait to see which way the wind was blowing.
+ - Metaphysical rebellion is a claim, motivated by the concept of a complete unity, against the suffering of life and death and a protest against the human condition both for its incompleteness, thanks to death, and its wastefulness, thanks to evil.
+ - A sub-clerk in the post-office is the equal of a conqueror if consciousness is common to them.
+ - Believe me, the hardest thing for a man to give up is that which he really doesn’t want, after all.
+ - Capital punishment is the most premeditated of murders.
+ - Some cry: ‘Love me!!’ Others: ‘Don’t love me!!’ But a certain genus, the worst and most unhappy, cries: ‘Don’t love me and be faithful to me!!’
+ - God put self-pity by the side of despair like the cure by the side of the disease.
+ - A taste for truth at any cost is a passion which spares nothing.
+ - You have so much inside you, and the noblest happiness of all. Don’t just wait for a man to come along. That’s the mistake so many women make. Find your happiness in yourself.
+ - We are all special cases.
+ - She was waiting, but she didn’t know for what. She was aware only of her solitude, and of the penetrating cold, and of a greater weight in the region of her heart.
+ - To create today is to create dangerously. Any publication is an act, and that act exposes one to the passions of an age that forgives nothing.
+ - We all carry within us places of exile, our crimes, our ravages. Our task is not to unleash them on the world; it is to transform them in ourselves and others.
+ - Absolute justice is achieved by the suppression of all contradiction, therefore it destroys freedom.
+ - Nature is a burning and frigid, transparent and limited universe in which nothing is possible but everything is given.
+ - The slave and those whose present life is miserable and who can find no consolation in the heavens are assured that at least the future belongs to them. The future is the only kind of property that the masters willingly concede to the slaves.
+ - At the heart of all beauty lies something inhuman.
+ - No cause justifies the deaths of innocent people.
+ - It is normal to give away a little of one’s life in order not to lose it all.
+ - An achievement is a bondage. It obliges one to a higher achievement.
+ - Rebellion cannot exist without the feeling that somewhere, in some way, you are justified.
+ - Against eternal injustice, man must assert justice, and to protest against the universe of grief, he must create happiness.
+ - Don’t wait for the last judgment – it takes place every day.
+ - Men are never convinced of your reasons, of your sincerity, of the seriousness of your sufferings, except by your death. So long as you are alive, your case is doubtful; you have a right only to their skepticism.
+ - No one who lives in the sunlight of gratitude that things aren’t worse makes a failure of his or her life.
+ - The modern mind is in complete disarray. Knowledge has stretched itself to the point where neither the world nor our intelligence can find any foot-hold. It is a fact that we are suffering from nihilism.
+ - We spend our days in deliberating, and we end them without coming to any resolve.
+ - That’s the way man is, cher monsieur. He has two faces: he can’t love without self-love.
+ - Whereas the Greeks gave to will the boundaries of reason, we have come to put the will’s impulse in the very center of reason, which has, as a result, become deadly.
+ - I have a good, hearty laugh and an energetic handshake, and those are trump cards.
+ - Conscious of not being able to separate myself from my time, I have decided to become part of it.
+ - Every authentic work of art is a gift offered to the future.
+ - Artistic creation is a demand for unity and a rejection of the world.
+ - I have no friends, I only have accomplices now. On the other hand, my accomplices are more numerous than my friends: they are the human race.
+ - If the only significant history of human thought were to be written, it would have to be the history of its successive regrets and its impotences.
+ - To know oneself, one should assert oneself.
+ - To govern means to pillage, as everyone knows.
+ - Accept life, take it as it is? Stupid. The means of doing otherwise? Far from our having to take it, it is life that possesses us and on occasion shuts our mouths.
+ - It’s not the struggle that makes us artists, but Art that makes us struggle.
+ - Every man, and for stronger reasons, every artist, wants to be recognized. So do I.
+ - In the end, we would like not to be guilty while at the same time being dispensed of the effort of purifying ourselves. Not enough cynicism and not enough virtue.
+ - After all perhaps the greatness of art lies in the perpetual tension between beauty and pain, the love of men and the madness of creation, unbearable solitude and the exhausting crowd, rejection and consent.
+ - There are means that cannot be excused. And I should like to be able to love my country and still love justice. I don’t want just any greatness for it, particularly a greatness born of blood and falsehood. I want to keep it alive by keeping justice alive.
+ - I had only a little time left and I didn’t want to waste it on God.
+ - The French Revolution gave birth to no artists but only to a great journalist, Desmoulins, and to an under-the-counter writer, Sade. The only poet of the times was the guillotine.
+ - You will never be able to experience everything. So, please, do poetical justice to your soul and simply experience yourself.
+ - Those who prefer their principles over their happiness, they refuse to be happy outside the conditions they seem to have attached to their happiness.
+ - I hope the dogs don’t bark tonight. I always think it’s mine.
+ - Absolute virtue is impossible and the republic of forgiveness leads, with implacable logic, to the republic of the guillotine.
+ - I would like to be able to breathe – to be able to love her by memory or fidelity. But my heart aches. I love you continuously, intensely.
+ - To live is in itself a value judgment. To breathe is to judge.
+ - I do not want to believe that death is the gateway to another life. For me, it is a closed door. I do not say it is a step we must all take, but that it is a horrible and dirty adventure.
+ - If we believe in nothing, if nothing has any meaning and if we can affirm no values whatsoever, then everything is possible and nothing has any importance.
+ - There is a terrible emptiness in me, an indifference that hurts.
+ - I like people who dream or talk to themselves interminably; I like them, for they are double. They are here and elsewhere.
+ - To abandon oneself to principles is really to die – and to die for an impossible love which is the contrary of love.
+ - Wandering seemed no more than the happiness of an anxious man.
+ - All healthy men have thought of their own suicide.
+ - I cling like a miser to the freedom that disappears as soon as there is an excess of things.
+ - A lot of jobs don’t allow you to be who you are. There is dignity in work only when it is work freely accepted.
+ - The innocent is the person who explains nothing.
+ - The temptation shared by all forms of intelligence: cynicism.
+ - Then we understand that rebellion cannot exist without a strange form of love. Those who find no rest in God or in history are condemned to live for those who, like themselves, cannot live; in fact, for the humiliated.
+ - People don’t love each other at our age, Marthe – they please each other, that’s all. Later on, when you’re old and impotent, you can love someone. At our age, you just think you do. That’s all it is.
+ - In Oran, as elsewhere, for want of time and thought, people have to love one another without knowing it.
+ - Don’t believe your friends when they ask you to be honest with them. All they really want is to be maintained in the good opinion they have of themselves.
+ - Without giving up anything on the plane of justice, yeild nothing on the plane of freedom.
+ - I have no idea what’s awaiting me, or what will happen when this all ends. For the moment I know this: there are sick people and they need curing.
+ - If man is reduced to being nothing but a character in history, he has no other choice but to subside into the sound and fury of acompletely irrational history or to endow history with the form of human reason.
+ - We are not so mad as to think that we shall create a world in which murder will not occur. We are fighting for a world in which murder will no longer be legal.
+ - No code of ethics and no effort are justifiable a priori in the face of the cruel mathematics that command our condition.
+ - Yes, I’m happy, in human terms.
+ - But, you know, I feel more fellowship with the defeated than with saints. Heroism and sanctity don’t really appeal to me, I imagine. What interests me is being a man.
+ - Basically, at the very bottom of life, which seduces us all, there is only absurdity, and more absurdity. And maybe that’s what gives us our joy for living, because the only thing that can defeat absurdity is lucidity.
+ - It’s a kind of spiritual snobbery that makes people think they can be happy without money.
+ - The more I accuse myself, the more right I have to judge you. Even better, I make you judge yourself, which comforts me the more.
+ - I was assailed by memories of a life that wasn’t mine anymore, but one in which I’d found the simplest and most lasting joys.
+ - I know that man is capable of great deeds. But if he isn’t capable of great emotion, well, he leaves me cold.
+ - My chief occupation, despite appearances, has always been love.
+ - Happiness is not everything and men have their duties. Mine is to find my mother, a homeland.
+ - I don’t know whether this world has a meaning that transcends it. But I know that I cannot know that meaning and that it is impossible for me just now to know it.
+ - Every man needs slaves like he needs clean air. To rule is to breathe, is it not? And even the most disenfranchised get to breathe. The lowest on the social scale have their spouses or their children.
+ - I enjoyed my own nature to the fullest, and we all know there lies happiness, although, to soothe one another mutually, we occasionally pretend to condemn such joys as selfishness.
+ - For who would dare to assert that eternal happiness can compensate for a single moment’s human suffering.
+ - We’re going forward, but nothing changes.
+ - The future is the only transcendental value for men without God.
+ - So all a man could win in the conflict between plague and life was knowledge and memories.
+ - Politics and the fate of mankind are formed by men without ideals and without greatness. Those who have greatness within them do not go in for politics.
+ - I sometimes need to write things which I cannot completely control but which therefore prove that what is in me is stronger than I am.
+ - I felt as though I was partly unlearning what i had never learned and yet knew so well: I mean, how to live.
+ - The urge to revolt is one of the essential dimensions of human nature.
+ - A fate is not a punishment.
+ - Healthy people have a natural skill of avoiding feverish eyes.
+ - There can be no true goodness, nor true love, without the utmost clear-sightedness.
+ - A man wants to earn money in order to be happy, and his whole effort and the best of a life are devoted to the earning of that money. Happiness is forgotten; the means are taken for the end.
+ - Finally, and most of all, words failed him.
+ - I don’t want to be a genius-I have enough problems just trying to be a man.
+ - You know, a man always judges himself by the balance he can strike between the needs of his body and the demands of his mind. You’re judging yourself now, Mersaut, and you don’t like the sentence.
+ - Human relationships always help us to carry on because they always presuppose a future...
+ - Madness such as this, its like trying to stop a fire with the moisture from a kiss.
+ - Can one be a saint if God does not exist? That is the only concrete problem I know of today.
+ - All that remains is a fate whose outcome alone is fatal. Outside of that single fatality of death, everything, joy or happiness, is liberty. A world remains of which man is the sole master. What bound him was the illusion of another world.
+ - These are facts the heart can feel; yet they call for careful study before they become clear to the intellect.
+ - The kingdom of heaven will, in fact, appear on earth, but it will be ruled over by men a mere handful to begin with, who will be the Cassars, because they were the first to understand and later, with time, by all men.
+ - To lose one’s life is no great matter; when the time comes I’ll have the courage to lose mine. But what’s intolerable is to see one’s life being drained of meaning, to be told there’s no reason for existing. A man can’t live without some reason for living.
+ - I was absent at the moment I took up the most space.
+ - A loveless world is a dead world.
+ - To correct a natural indifference I was placed half-way between misery and the sun. Misery kept me from believing that all was well under the sun, and the sun taught me that history wasn’t everything.
+ - To stay or to go, it amounted to the same thing.
+ - The nobility of our calling will always be rooted in two commitments difficult to observe: refusal to lie about what we know, and resistance to oppression.
+ - Independence is earned by a few words of cheap confidence.
+ - A liking for truth at any cost is a passion that spares nothing and that nothing resists. It’s a vice, at times a comfort, or a selfishness.
+ - Some are created to love, while the others – to live.
+ - Revolution, in order to be creative, cannot do without either a moral or metaphysical rule to balance the insanity of history.
+ - The most eloquent eulogy of capitalism was made by its greatest enemy. Marx is only anti-capitalist in so far as capitalism is out of date.
+ - Beauty, no doubt, does not make revolutions. But a day will come when revolutions will have need of beauty.
+ - But it’s not easy. I’ve been thinking it over for years. While we loved each other we didn’t need words to make ourselves understood. But people don’t love forever. A time came when I should have found the words to keep her with me, only I couldn’t.
+ - In default of inexhaustible happiness, eternal suffering would at least give us a destiny. But we do not even have that consolation, and our worst agonies come to an end one day.
+ - Humans are creatures, who spent their lifes trying to convince themselves, that their existence is not absurd.
+ - The world I live in is loathsome to me, but I feel one with the men who suffer in it.
+ - Believe me, religions are on the wrong track the moment they moralize and fulminate commandments. God is not needed to create guilt or to punish. Our fellow men suffice, aided by ourselves.
+ - Somebody has to have the last word. If not, every argument could be opposed by another and we’d never be done with it.
+ - When the body is sad, the heart languishes.
+ - Our reason has driven all away. Alone at last, we end up ruling over a desert.
+ - The future is the only kind of property that the masters willingly concede to the slaves.
+ - It is not humiliating to be unhappy. Physical suffering is sometimes humiliating, but the suffering of being cannot be, it is life.
+ - Have you noticed that only death arouses our emotions? How we love thee friends who have just passed away, right? How we admire those master who no longer speak, their mouths full of dirt. We them we are not obligated.
+ - From the evening breeze to this hand on my shoulder, everything has its truth.
+ - Those who write clearly have readers.
+ - Here lives a free man. Nobody serves him.
+ - It is in the thick of calamity that one gets hardened to the truth – in other words, to silence.
+ - The absurd is the essential concept and the first truth.
+ - In the past, the poverty they shared had a certain sweetness about it. When the end of the day came and they would eat their dinner in silence with the oil lamp between them, there was a secret joy in such simplicity, such retrenchment.
+ - Suffering gives us no special rights.
+ - This is the century of fear.
+ - The most exhausting effort in my life has been to suppress my own nature in order to make it serve my biggest plans.
+ - A character is never the author who created him. It is quite likely, however, that an author may be all his characters simultaneously.
+ - I grew up with the sea, and poverty for me was sumptuous; then I lost the sea and found all luxuries gray and poverty unbearable.
+ - The primordial sea indefatigably repeats the same words and casts up the same astonished beings on the same sea-shore.
+ - The day when I am no more than a writer I shall cease to be a writer.
+ - Great feelings take with them their own universe, splendid or abject.
+ - Fate is not in man but around him.
+ - I continue to believe that this world has no ultimate meaning. But I know that something in it has a meaning and that is man, because he is the only creature to insist on having one.
+ - Every rebellion implies some kind of unity.
+ - In art, rebellion is consummated and perpetuated in the act of real creation, not in criticism or commentary.
+ - There is nothing abstract about pain. It is specific, it is real, and, when it is intense, it is world destroying.
+ - The laws of nature may be operative up to a certain limit, beyond which they turn against themselves to give birth to the absurd.
+ - Obstinacy alone is not a virtue.
+ - Art, at least, teaches us that man cannot be explained by history alone and that he also finds a reason for his existence in the order of nature.
+ - Beginning to think is beginning to be undermined.
+ - Much unhappiness has come into the world because of bewilderment and things left unsaid.
+ - It is terrifying to see how easily, in certain people, all dignity collapses. Yet when you think about it, this is quite normal since they only maintain this dignity by constantly striving against their own nature.
+ - Big tears of frustration and exhaustion were streaming down his cheeks. But because of all the wrinkles, they weren’t dripping off. They spread out and ran together again, leaving a watery film over his ruined face.
+ - Friendship is not so simple. It is hard to get and takes a long time, but when one ha it one cannot get rid of it, one has to face it.
+ - To two men living the same number of years, the world always provides the same sum of experiences. It is up to us to be conscious of them.
+ - In the vast reaches of the dry, cold night, thousands of stars were constantly appearing, and their sparkling icicles, loosened at once, began to slip gradually toward the horizon.
+ - Modern conquerors can kill, but do not seem to be able to create. Artists know how to create but cannot really kill. Murderers are only very exceptionally found among artists.
+ - The ancients, even though they believed in destiny, believed primarily in nature, in which they participated wholeheartedly. To rebel against nature amounted to rebelling against oneself. It was butting one’s head against a wall.
+ - Stupidity has a knack of getting its way.
+ - I have never been able to renounce the light, the pleasure of being, and the freedom in which I grew up.
+ - What’s true of all the evils in the world is true of plague as well. It helps men to rise above themselves.
+ - Art and revolt will die only with the last man.
+ - Too many have dispensed with generosity in order to practice charity.
+ - Children will still die unjustly even in a perfect society. Even by his greatest effort, man can only propose to diminish, arithmetically, the sufferings of the world.
+ - Greatness consists in trying to be great. There is no other way.
+ - There are always reasons for murdering a man. But there is no justification for his existence.
+ - True debauchery is liberating because it creates no obligations. In it you possess only yourself, hence it remains the favorite pastime of the great lovers of their own person.
+ - Whoever today speaks of human existence in terms of power, efficiency, and historical tasks is an actual or potential assassin.
+ - He had been bored, that’s all, bored like most people. Hence he had made himself out of whole cloth a life full of complications and drama. Something must happen – and that explains most human commitments. Something must happen, even loveless slavery, even war or death. Hurray then for funerals!
+ - O light! This the cry of all the characters of ancient drama brought face to face with their fate. This last resort was ours, too, and I knew it now. In the middle of winter I at last discovered that there was in me an invincible summer.
+ - Yes, there was an element of abstraction and unreality in misfortune. But when an abstraction starts to kill you, you have to get to work on it.
+ - They came to know the incorrigible sorrow of all prisoners and exiles, which is to live in company with a memory that serves no purpose.
+ - A living man can be enslaved and reduced to the historic condition of an object. But if he dies in refusing to be enslaved, he reaffirms the existence of another kind of human nature which refuses to be classified as an object.
+ - To those who despair of everything reason cannot provide a faith, but only passion, and in this case it must be the same passion that lay at the root of the despair, namely humiliation and hatred.
+ - The society based on production is only productive, not creative.
+ - In the world there is, parallel to the force of death and constraint, an enormous force of persuasion that is called culture.
+ - The absurd is essentially a divorce. It lies in neither of the elements compared; it is born of their confrontation.
+ - Cruel irony, the poor man tormented with hunger feeds those who plead his case.
+ - I feel more fellowship with the defeated than with saints.
+ - The truth is that nothing is less sensational than pestilence, and by reason of their very duration great misfortunes are monotonous.
+ - I have a very old and very faithful attachment for dogs. I like them because they always forgive.
+ - The artist forges himself to the others, midway between the beauty he cannot do without and the community he cannot tear himself away from. That is why true artists scorn nothing: they are obliged to understand rather than to judge.
+ - I make myself strict rules in order to correct my nature. But it is my nature that i finally obey.
+ - Yes, and when the love of life disappears, no meaning can console us.
+ - My great idea is that we must forgive the Pope. First of all, he needs it more than anyone else. Besides, it is the only way of placing oneself above him.
+ - In fact, other people create for lack of power. I, on the other hand, do not need a work: I live.
+ - Everybody knows that pestilences have a way of recurring in the world; yet somehow we find it hard to believe in ones that crash down on our heads from a blue sky.
+ - It is not true that the heart wears out – but the body creates this illusion.
+ - Without work all life goes rotten.
+ - The absurd depends as much on man as on the world. For the moment, it is all that links them together.
+ - The desire for possession is insatiable, to such a point that it can survive even love itself. To love, therefore, is to sterilize the person one loves.
+ - It is a well-known fact that we always recognize our homeland when we are about to lose it.
+ - No matter how the sun shone, the sea held forth no more promises.
+ - A novel is never anything but a philosophy expressed in images. And in a good novel the philosophy has disappeared into the images.
+ - I realized people would soon forget me once I was dead. I couldn’t even say that this was hard to stomach; really, there’s no idea to which one doesn’t get acclimatized in time.
+ - No, Father, I’ve a very different idea of love. And until my dying day I shall refuse to love a scheme of things in which children are put to torture.
+ - No doubt our love was still there, but quite simply it was unusable, heavy to carry, inert inside of us, sterile as crime or condemnation. It was no longer anything except a patience with no future and a stubborn wait.
+ - It is better to burn than to disappear.
+ - I had the whole sky in my eyes and it was blue and gold.
+ - The mind’s deepest desire, even in its most elaborate operations, parallels man’s unconscious feeling in the face of his universe: it is an insistence upon familiarity, an appetite for clarity.
+ - When love ceases to be tragic it is something else and the individual again throws himself in search of tragedy.
+ - Men and women consume one another rapidly in what is called “the act of love,” or else settle down to a mild habit of conjugality. We seldom find a mean between these two extremes.
+ - In our society, any man who doesn’t cry at his mother’s funeral is liable to be condemned to death.
+ - Lying is not only saying what isn’t true. It is also, in fact especially, saying more than is true and, in the case of the human heart, saying more than one feels. We all do it, every day, to make life simpler.
+ - To live is to hurt others, and through others, to hurt oneself. Cruel earth! How can we manage not to touch anything? To find what ultimate exile?
+ - There is no longer a single idea explaining everything, but an infinite number of essences giving a meaning to an infinite number of objects. The world comes to a stop, but also lights up.
+ - I felt that I had been happy and that I was happy again. For everything to be consummated, for me to feel less alone, I had only to wish that there be a large crowd of spectators the day of my execution and that they greet me with cries of hate.
+ - If there is a soul, it is a mistake to believe that it is given to us fully created. It is created here, throughout a whole life. And living is nothing else but that long and painful bringing forth.
+ - Maman used to say that you can always find something to be happy about.
+ - People believe a man is in distress because his loved one dies in one day. But his real pain is less futile: it is that he finds out that sadness too does not last. Even pain has no meaning.
+ - Those who love, friends and lovers, know that love is not only a blinding flash, but also a long and painful struggle in the darkness for the realization of definitive recognition and reconciliation.
+ - I love life – that’s my real weakness. I love it so much that I am incapable of imagining what is not life.
+ - To feel absolutely right is the beginning of the end.
+ - Death means nothing to men like me. It’s the event that proves them right.
+ - I’d have given ten conversations with Einstein for a first meeting with a pretty chorus girl.
+ - I have always felt I lived on the high seas, threatened, at the heart of a royal happiness.
+ - Perhaps we cannot prevent this world from being a world in which children are tortured. But we can reduce the number of tortured children.
+ - At that time, I often thought that if I had had to live in the trunk of a dead tree, with nothing to do but look up at the sky flowing overhead, little by little I would have gotten used to it.
+ - People have played on words and pretended to believe that refusing to grant a meaning to life necessarily leads to declaring that it is not worth living. In truth, there is no necessary common measure between these two judgments.
+ - On my way out I was even going to shake his hand, but I remembered just in time that I’d killed a man.
+ - Youth is above all a collection of possibilities.
+ - And so I learned that familiar paths traced in the dusk of summer evenings may lead as well to prison as to innocent untroubled sleep.
+ - Every time I hear a political speech or I read those of our leaders, I am horrified at having, for years, heard nothing which sounded human. It is always the same words telling the same lies.
+ - Although it was the middle of winter, I finally realized that, within me, summer was inextinguishable.
+ - Thus I draw from the absurd three consequences, which are my revolt, my freedom, and my passion. By the mere activity of consciousness I transform into a rule of life what was an invitation to death – and I refuse suicide.
+ - Culture: the cry of men in face of their destiny.
+ - There is not a single true work of art that has not in the end added to the inner freedom insight and life of each person who has known and loved it.
+ - We turn our backs on nature; we are ashamed of beauty. Our wretched tragedies have a smell of the office clinging to them, and the blood that trickles from them is the color of printer’s ink.
+ - If the descent is thus sometimes performed in sorrow, it can also take place in joy.
+ - Does the end justify the means? That is possible. But what will justify the end? To that question, which historical thought leaves pending, rebellion replies: the means.
+ - The human heart has a tiresome tendency to label as fate only what crushes it. But happiness likewise, in its way, is without reason, since it is inevitable.
+ - I draw from the Absurd three consequences: my revolt, my liberty, my passion.
+ - The only real progress lies in learning to be wrong all alone.
+ - We must learn how to lend ourselves to dreaming when dreams lend themselves to us.
+ - I have never been able, really, to regret anything in all my life. I have always been far much too absorbed in the present moment or the immediate future to think back.
+ - Love is the kind of illness that does not spare the intelligent or the dull.
+ - If Christianity is pessimistic as to man, it is optimistic as to human destiny. Well, I can say that, pessimistic as to human destiny, I am optimistic as to man.
+ - It is necessary to fall in love – the better to provide an alibi for all the despair we are going to feel anyway.
+ - I have always thought it would be easier to redeem a man steeped in vice and crime than a greedy, narrow-minded, pitiless merchant.
+ - I am alive again, now that I can no longer stand to live.
+ - After all, every murderer when he kills runs the risk of the most dreadful of deaths, whereas those who kill him risk nothing except promotion.
+ - He seemed so certain about everything, didn’t he? And yet none of his certainties was worth one hair of a woman’s head. He wasn’t even sure he was alive, because he was living like a dead man.
+ - One plays at being immortal and after a few weeks one doesn’t even know whether or not one can hang on till the next day.
+ - Happiness too is inevitable.
+ - Likewise and during every day of an unillustrious life, time carries us. But a moment always comes when we have to carry it.
+ - Each generation doubtless feels called upon to reform the world. Mine knows that it will not reform it, but its task is perhaps even greater. It consists in preventing the world from destroying itself.
+ - When one has extensively pondered about men, as a career or as a vocation, one sometimes feels nostalgic for primates. At least they do not have ulterior motives.
+ - Everyone would like to behave like a pagan, with everyone else behaving like a Christian.
+ - To lose the touch of flowers and women’s hands is the supreme separation.
+ - Absolute freedom mocks at justice. Absolute justice denies freedom.
+ - What made me run away was doubtless not so much the fear of settling down, but of settling down permanently in something ugly.
+ - One grows out of pity when it’s useless.
+ - Of course, true love is exceptional – two or three times a century, more or less. The rest of the time there is vanity or boredom.
+ - One always has exaggerated ideas about what one doesn’t know.
+ - My dear friend, we mustn’t give them even the slightest excuse to judge us! Otherwise, we end up in pieces.
+ - We don’t have the time to completely be ourselves. We only have the room to be happy.
+ - Man cannot do without beauty, and this is what our era pretends to want to disregard.
+ - It is not your paintings I like, it is your painting.
+ - This divorce between man and his life, the actor and his setting, is properly the feeling of absurdity.
+ - No longer were there individual destinies; only a collective destiny, made of plague and emotions shared by all.
+ - I am too much in love with my lies and hypocrisies not to confess them fervently.
+ - There are crimes of passion and crimes of logic. The boundary between them is not clearly defined.
+ - A man is more a man through the things he keeps to himself than through those he says.
+ - But all the long speeches, all the interminable days and hours that people had spent talking about my soul, had left me with the impression of a colorless swirling river that was making me dizzy.
+ - Liberty is the right not to lie.
+ - Martyrs, my friend, have to choose between being forgotten, mocked or used. As for being understood – never.
+ - By definition, a government has no conscience. Sometimes it has a policy, but nothing more.
+ - And it was like knocking four quick times on the door of unhappiness.
+ - The welfare of the people in particular has always been the alibi of tyrants.
+ - In short, they were gambling on their luck, and luck is not to be coerced.
+ - At times I feel myself overtaken by an immense tenderness for these people around me who live in the same century.
+ - Art does not tolerate reason.
+ - There is only one class of men, the privileged class.
+ - This absurd, godless world is, then, peopled with men who think clearly and have ceased to hope. And I have not yet spoken of the most absurd character, who is the creator.
+ - Only the sea, murmurous behind the dingy checkerboard of houses, told of the unrest, the precariousness, of all things in this world.
+ - Do not be surprised. I do not like writers and I cannot stand their lies. They speak so as not to listen to themselves speak. If they did listen, they would know that they are nothing and then they would no longer be able to speak.
+ - Still, obviously, one can’t be sensible all the time.
+ - Any country where I am not bored is a country that teaches me nothing.
+ - If you keep on excusing, you eventually give your blessing to the slave camp, to cowardly force, to organized executioners, to the cynicism of great political monsters; you finally hand over your brothers.
+ - Something must happen; that is the reason for most human relationships. Something must happen; even servitude in love, in war, ordeath.
+ - Old women even forget how to love their sons. The heart gets worn out, Monsieur.
+ - Those who weep for the happy periods which they encounter in history acknowledge what they want; not the alleviation but the silencing of misery.
+ - What, in fact, is a novel but a universe in which action is endowed with form, where final words are pronounced, where people possess one another completely, and where life assumes the aspect of destiny?
+ - Maman used to say that you can always find something to be happy about. In my prison, when the sky turned red and a new day slipped into my cell, I found out that she was right.
+ - No matter what cause one defends, it will suffer permanent disgrace if one resorts to blind attacks on crowds of innocent people.
+ - I felt as I hadn’t felt for ages. I had a foolish desire to burst into tears. for the first time I’d realized how all these people loathed me.
+
+500 quotes

@@ -1,0 +1,48 @@
+ - It’s easy to make a buck. It’s a lot tougher to make a difference.
+ - Heroes are people who rise to the occasion and slip quietly away.
+ - Bias, like beauty, is often in the eye of the beholder. Facts are your firewall against bias.
+ - In your pursuit of your passions, always be young. In your relationship with others, always be grown-up.
+ - It is, I believe, the greatest generation any society has ever produced.
+ - It is not enough to wire the world if you short-circuit the soul. Technology without heart is not enough.
+ - We were not just competitors and colleagues, we were friends. We had a lot of opportunities to reflect on this in the last year. It was a competitive brotherhood.
+ - Don’t be afraid to do something unconventional, to take a chance, to risk something.
+ - If fishing is a religion, fly fishing is the high church.
+ - Think of it as your ticket to change the world.
+ - Life is filled with seasons and this is a different season.
+ - The Warmth of Other Suns is a sweeping and yet deeply personal tale of America’s hidden 20th century history – the long and difficult trek of Southern blacks to the northern and western cities. This is an epic for all Americans who want to understand the making of our modern nation.
+ - It will do us little good to wire the world if we limit our vision. It will do us little good to wire the world if we short circuit our souls.
+ - A common lament of the World War II generation is the absence today of personal responsibility.
+ - No text message will ever replace the first kiss.
+ - The meaningful role of the father of the bride was played out long before the church music began. It stretched across those years of infancy and puberty, adolescence and young adulthood. That’s when she needs you at her side.
+ - A big part of making your own luck is just charging out of the gate every morning.
+ - There is no delete button for bigotry.
+ - Judy Miller is the most innocent person in this case. I really thought that was outrageous that she was jailed and we needed as journalists to draw a line in the sand in a strong but thoughtful way.
+ - Bob Hope was an entertainment colossus, shrewd and influential well beyond show business. Richard Zoglin’s biography captures it all – the public and private Hope.
+ - Speaking generally, people who are drawn to journalism are interested in what happens from the ground up less than they are from the top down.
+ - What I think is highly inappropriate is what’s going on across the Internet, a kind of political jihad against Dan Rather and CBS News that’s quite outrageous.
+ - I hope the World War II generation doesn’t lose that quality that made them so appealing: their modesty, and the way they are always looking forward and seldom back.
+ - When you run in places you visit, you encounter things you’d never see otherwise.
+ - David Brinkley was an icon of modern broadcast journalism, a brilliant writer who could say in a few words what the country needed to hear during times of crisis, tragedy and triumph.
+ - Forty years after the greatest scandal of the American presidency, Elizabeth Drew’s account in Washington Journal remains fresh and riveting, instructive and evocative. Her afterword on Nixon’s post-Watergate life is equally compelling.
+ - Ratings to me are a little like the Chinese Government. I don’t fully understand what makes a rating go. I don’t know what makes the American television audience respond to one person and not t another. There very seldom are great differences between many television personalities.
+ - I remain the luckiest guy I know.
+ - Votes are something that you earn.
+ - There are more facts and more truths told in the first eight minutes of The Daily Show than most political news conferences in Washington.
+ - I wanted to see what was going on in the world. I sometimes think I overwished.
+ - One of the things that we don’t want to do is to destroy the infrastructure of Iraq, because in a few days we’re going to own that country.
+ - People do not like to have their favorite myths of idols challenged and as a rule I think that the public does not like bad news.
+ - Sackcloth and kelp soup are not required, but the Buddhist reminder of the need to live lightly on the earth is a helpful guide to the daily habits and needs of us all.
+ - It doesn’t do any good to wire the world if we short circuit the soul.
+ - I think they are paying a lot more attention to news now, by the way, in part because of national-security issues. A lot of young people have friends or family in the military today.
+ - TV is a fickle business. I’m only good for the length of my contract.
+ - I always think there are people looking not so much for information as for reassurance and reaffirmation of their views.
+ - I like Washington a great deal. I enjoyed living there. But then I’ve enjoyed living almost everywhere I’ve ever been. I just find that it’s a different menu wherever you go.
+ - It’s so much easier to do it right than to do it wrong.
+ - I think it’s very much a matter between Barbara Walters and ABC.
+ - I’m not going to sit on the porch of the old anchorman’s home with a drool cup.
+ - Continuous coverage of the war in the Persian Gulf will resume in a moment.
+ - Our obligation at the network is where do we fit into that and how can we best capitalize on that to make sure that our piece of that remains important to those young people.
+ - It’s not the questions that get us in trouble – it’s the answers...
+ - Washington tends to be full of too many traps. I think reporters there do a lot of attending news briefings and news conferences expecting to get the real news out of those relatively sterile environments. But you’ve got to deal with the obscure people as well as the names.
+
+46 quotes

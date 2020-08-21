@@ -1,0 +1,28 @@
+ - My parents always told me, ‘Do what you love because that is what you will do well in.’ They told me to make sure that you are happy.
+ - Candy is childhood, the best and bright moments you wish could have lasted forever.
+ - I believe dancing is the best stress reliever.
+ - My husband is the cook at our house. I can make dessert and salad, but I stay away from meals. He makes amazing omelets, fish, and grilled vegetables like Brussels sprouts and cauliflower.
+ - I am a picky eater. By that I mean, I love to pick the raisins out of oatmeal raisin cookies, the chips out of chocolate chip cookies, the white side off of black and white cookies, and the vanilla center out of Oreos.
+ - My friends call me Clark Kent: I’m known to change in phone booths.
+ - When I think of flavours, I think colour, so lemon should be yellow and orange is orange.
+ - I find that the people who don’t eat as much candy are really into heavy protein, like steak. I don’t eat that.
+ - Every two months, I allow myself a splurge day where I eat thick, doughy pizza from Pizzeria Uno or an ice cream sundae from my store with birthday-cake ice cream, Marshmallow Fluff, and toppings mixed in.
+ - Summer is very precious.
+ - For a while after college, I was thinking of becoming a fitness trainer, and I am a certified aqua trainer.
+ - My favorite place in the world is my dad’s house in Montauk.
+ - My parents were inspired by Bob Dylan and Dylan Thomas when naming me. They specifically saved this masculine name for their only girl.
+ - Pinterest has been helpful to my business. Making inspiration boards is really key to developing products. When I was getting married, I literally cut out tear sheets and put my own boards together. Had I known about Pinterest, I would have been able to do it so much more easily.
+ - My mom is a painter and photographer and my grandfather was an artist, so I’ve always been surrounded by creative people.
+ - I always liked the idea of leadership and being a captain.
+ - There’s no denying that candy is comfort food and it’s affordable.
+ - Everything I own has some significance to me.
+ - The best thing in business is to follow your gut. If a decision is not sitting well with you, don’t just make it.
+ - If these rich women from 5th Avenue spend a fortune on cashmere sweaters, they will come to my store to buy gummy bears.
+ - I’ve been entrepreneurial since middle school. I was always arranging bake sales, dances and school trips to raise money for the Dalton School.
+ - Anytime you can promote young artists and designers is a cool thing.
+ - I don’t like sitting still at a desk and often conduct business on my Blackberry or in walking meetings.
+ - I know everything about candy. Would you believe I even know where to find gumballs in the middle of Africa?
+ - When I started Dylan’s Candy Bar in 2001, I wanted it to be a place that merged my love of pop culture, fashion, art and music with candy. Since then, we have been fortunate to pioneer artistic partnerships with many legends.
+ - Watching my dad, Ralph Lauren, design clothes when I was young, I was always inspired.
+
+26 quotes

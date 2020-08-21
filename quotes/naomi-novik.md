@@ -1,0 +1,23 @@
+ - The Magicians brilliantly explores the hidden underbelly of fantasy and easy magic, taking what’s simple on the surface and turning it over to show us the complicated writhing mess beneath. It’s like seeing the worlds of Narnia and Harry Potter through a 3-D magnifying glass.
+ - And we must still try or we would be leaving our friends to fight without us. I think this is what you have meant by duty, all along; I do understand, at least this much of it.
+ - Justice is expensive. That is why there is so little of it, and it is reserved for those few with enough money and influence to afford it.
+ - I should rather have you than a heap of gold, even if it were very comfortable to sleep on.
+ - You can actually muck with history and think about what if, why not. What if there were dragons in the Incan Empire that allowed them to resist colonization? What if there were a massive dragon empire in the middle of the interior of southern Africa that decided to take objection to the slave trade?
+ - I am very tired of this Government, which I have never seen, and which is always insisting that I must do disagreeable things, and does no good to anybody.
+ - I’m an engineer and a writer. And I find that those two things are not uncomplementary.
+ - It seems to me after a fellow has been mutinied against three or four times, there is something to it besides bad luck.
+ - Something about that whole process of building the structure of that game turned into a real kind of lightbulb moment for me as a writer.
+ - What could make the Napoleonic Wars more exciting? Dragons.
+ - Would you believe it’s harder to find a virgin than a unicorn in New York?
+ - As a novelist you have just unlimited budget, total creative control. You really get to have your cake – all the cake – and then you can have a second cake if you wanted to.
+ - Well, I would have struck him, but I would have had to get up. You have no notion how difficult it is to arrange skirts when sitting down; it took me five minutes together the first time.
+ - Temeraire – Never fear; I am going; the Son of Heaven will not tolerate delays, and Barham gives me leave. Allegiance will carry us! Pray eat something – L.
+ - It seems to me that if you wish to apply laws to us, it were only reasonable to consult us on them, and from what you have read to me about Parliament, I do not think any dragons are invited to go there.
+ - Next you will cry about taxation without representation, and throw a basket of tea into the harbor. You are indeed a very Jacobin at heart, and I think I must give up trying to cure you of it; I can but wash my hands and deny responsibility.
+ - Enough of that, you damned conspirators, you will have us hanged a great deal sooner than we will.
+ - I will tell you what we shall do: if ever you need to rescue Catherine, or you Berkley, Maximus, I will help you, and you will do as much for me. Then we do not need to worry, I do not suppose anyone could stop all three of us, at least not before we can escape.
+ - Trying to out-guess Bonaparte; the thought makes my blood run cold.
+ - All of a sudden, I sort of started to feel that I was constrained by the characters as opposed to enjoying them. And that remains for me to this day the line that I know where it’s like, OK, you’re not writing fan fiction anymore.
+ - I ended up rooming in a dorm that was basically a solid wall of female scientists. And every Wednesday, we would all watch “Star Trek: Next Generation.”
+
+21 quotes

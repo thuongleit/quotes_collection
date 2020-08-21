@@ -1,0 +1,77 @@
+ - Nothing important comes with instructions.
+ - Value yourself according to the burdens you carry, and you will find everything a burden.
+ - To condemn your sin in another is hypocrisy. Not to condemn is to reserve your right to sin.
+ - The happy and the suffering probably understand life equally well, but the sufferers may see a little more clearly how little it is that they understand.
+ - Impatience is not wanting to understand that you don’t understand.
+ - It is the empty seats that listen most raptly.
+ - Water deepens where it has to wait.
+ - If I do not waste time, I am wasting my time.
+ - Judging itself brings the pain of being judged. The wicked judge mistakes this for another crime of the accused and lengthens his sentence.
+ - The best way to know your faults is to notice which ones you accuse others of.
+ - The first abuse of power is not realizing that you have it.
+ - There are silences harder to take back than words.
+ - Success is whatever humiliation everyone has agreed to compete for.
+ - Patience is decisive indecision.
+ - Say too soon what you think and you will say what everyone else thinks.
+ - If you do more than your share you’d better want to: otherwise, you’re paying yourself in a currency recognized nowhere else.
+ - Envy is ashamed of itself. If it weren’t hanging back, it would go all the way to emulation and love.
+ - So many times I’ve made myself stupid with the fear of being outsmarted.
+ - How sure we are that everyone’s watching. How sure we are that no one sees.
+ - There is no road to the land without roads.
+ - Sophistication is upscale conformity.
+ - Bitterness is a greater failure than failure.
+ - Embarrassment is the greatest teacher, but since its lessons are exactly those we have tried hardest to conceal from ourselves, it may teach us, also, to perfect our self-deception.
+ - To practice Sincerity is to burden everyone else with believing you.
+ - The procrastinator dreads beginning, the workaholic, ending.
+ - I am not unambitious. I am just too ambitious for what you call ambitions.
+ - Too much apology doubles the offense.
+ - Writing is like washing windows in the sun. With every attempt to perfect clarity, you make a new smear.
+ - Happiness, like water, is always available, but so often it seems we’d prefer a different drink.
+ - The first quest or the first love is also the last. The second isn’t.
+ - You have two kinds of secrets. The ones only you know. The ones only you don’t.
+ - The cynic suffers the form of faith without love. Incredulity is his piety.
+ - The road reaches every place, the short cut only one.
+ - Only half of writing is saying what you mean. The other half is preventing people from reading what they expected you to mean.
+ - Anger has been ready to be angry.
+ - On what is valuable thieves and the law agree.
+ - Tyranny and fantasy both like to write everyone else’s lines.
+ - Think of all the smart people made stupid by flaws of character. The finest watch isn’t fine long when used as a hammer.
+ - Your choices: spend, and believe in things; save, and believe in money.
+ - Who breaks the thread, the one who pulls, the one who holds on?
+ - Any virtue systematically applied becomes a vice. Morality is attention, not system.
+ - God help my neighbors if I loved them as I love myself.
+ - Solitude takes time. One becomes alone, like a towel drying.
+ - If it can be used again, it is not wisdom but theory.
+ - I aspire to know when best to walk or eat, which music I need, and how to keep myself sitting as I am now, stubbornly enraptured with doing practically nothing.
+ - All work is the avoidance of harder work.
+ - How often feelings are circular. How embarrassing to be embarrassed. How annoying to be annoyed.
+ - Beware of knowing your virtues; you may lose them. Beware of knowing your vices; you may forgive them.
+ - Seizing on a piece of business, I become tiny, eager, efficient: roiled water I cannot see into.
+ - Reason is the lesser faith that steers us when we have already lost a greater one.
+ - What I’m not changes more than what I am.
+ - I don’t know what’s meant by Know thyself, which seems to ask a window to look at a window.
+ - The best way to get people to do what you want is not to be too particular about what you want.
+ - Easier to keep changing your life than to live it.
+ - Patience is not very different from courage. It just takes longer.
+ - I’ll buy that means also I believe it.
+ - What is more yours than what always holds you back?
+ - Let me have my dreams but not what I dream of.
+ - Greater than the temptations of beauty are those of method.
+ - The drives were nature’s first provision: thinking was added later, to get us around the world’s obstacles to them.
+ - What’s thinking? You live in a grandly appointed house, but spend all your time rummaging around in the attic for any little trinket you hadn’t known was there.
+ - The god of many cannot remain the true god.
+ - When I am trying to write I turn on music so I can hear what is keeping me from hearing.
+ - I sell my time to get enough money to buy it back.
+ - There are crimes I don’t commit mainly because I don’t want to find out I could.
+ - To know, you just have to know. To believe, you have to make others believe.
+ - Happiness is the readiness to be happy.
+ - A belief is a question we have put aside so we can get on with what we believe we have to do.
+ - I would never accuse Willie Brown of slowing down, because he never does.
+ - Books serve us simply by opening a window on all we wanted to say and feel and think about. We may not even notice that they have not said it themselves till we go back to them years later and do not find what we loved in them. You cannot keep the view by taking the window with you.
+ - The mind is like a well-endowed museum, only a small fraction of its holdings on view at any one time.
+ - It’s amazing that I sit at my job all day and no one sees me clearly enough to say What is that boy doing behind a desk?
+ - That others know: science. That others choose: politics.
+ - A day is only a day. But a life is only a life.
+ - Those who are too slow to be intelligent deserve our patience, those who are too quick, our pity.
+
+75 quotes

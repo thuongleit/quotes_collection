@@ -1,0 +1,38 @@
+ - Nothing is ever finished and done with in this world. You may think a seed was finished and done with when it falls like a dead thing into the earth; but when it puts forth leaves and flowers next spring you see your mistake.
+ - He had discovered that the choice between self-love or love of something other than self offers no escape from suffering either way, it is merely a choice between two woundings, of the pride or of the heart.
+ - The child in us is always there, you know, and it’s the best part of us, the winged part that travels farthest.
+ - To be sorry and glad together is to be perceptive to the richness of life.
+ - He grinned at her, and she grinned at him, and it seemed to Maria that suddenly the sun came out.
+ - All we are asked to bear we can bear. That is a law of the spiritual life. The only hindrance to the working of this law, as of all benign laws, is fear.
+ - Not quite birds, as they were not quite flowers, mysterious and fascinating as are all indeterminate creatures.
+ - In a world where thrushes sing and willow trees are golden in the spring, boredom should have been included among the seven deadly sins.
+ - But a hare, now, that is a different thing altogether. A hare is not a pet but a person. Hares are clever and brave and loving, and they have fairy blood in them. It’s a grand thing to have a hare for a friend.
+ - The lovers of life, they are children at heart always in their wonder and delight, but they do not grab.
+ - The perfect moment, once lost, is not easily found again.
+ - Imagination comes from yourself and can deceive you, but vision is a gift from outside yourself – like light striking on your closed eyelids and lifting them to see what’s really there.
+ - There is always something particularly delightful about exceptions to a rule.
+ - Acting a part is not always synonymous with lying; it is far often the best way of serving the truth. It is more truthful to act what we should feel if the community is to be well served rather than behave as we actually do feel in our selfish private feelings.
+ - She realized with deep respect that this woman had always done what she had to do and faced what she had to face. If many of her fears and burdens would have seemed unreal to another woman, there was nothing unreal about her courage.
+ - Sensible fathers and mothers, when their children marry, go back to the old days and renew their youth.
+ - Nothing living should ever be treated with contempt. Whatever it is that lives, a man, a tree, or a bird, should be touched gently, because the time is short. Civilization is another word for respect for life...
+ - I have known him nearly all my life, and I am going to marry him, so that there won’t ever be a time when I shan’t know him.
+ - All human beings have their otherness and it is that which cries out to the heart.
+ - Don’t waste hate on pink geranium.
+ - Happy the man who lives long enough to acknowledge his ignorance.
+ - Faith given back to us after a night of doubt is a stronger thing, and far more valuable to us than faith that has never been tested.
+ - Being ill makes you feel what well people call sentimental, but what you feel is nonetheless genuine whatever they call it.
+ - A well-trained dog is like religion, it sets the deserving at their ease and is a terror to evildoers.
+ - I doubt if we nuns are really as self-sacrificing as we must seem to be to you who live in the world. We don’t give everything for nothing, you know. The mystery plays fair.
+ - Writers and painters have a medium that can foster self-effacements. Actors haven’t. An actor can’t hide himself behind paper or canvas. If you’re not there your art’s not there. That’s why we actors are often such self-centered objects.
+ - This modern craze for putting the young in positions of authority – headmasters in their thirties, bishops without a gray hair on their heads, generals who scarcely need to use a razor – ever since it took hold the world’s gone steadily downhill.
+ - All we are asked to bear we can bear.
+ - One was born a certain sort of person, and though by ceasless struggle one might become as nice as that sort of person ever is, one could never become as nice as a nicer sort of person.
+ - Most of the basic truths of life sound absurd at first hearing.
+ - In my opinion, too much attention to weather makes for instability of character.
+ - The elements were “seeking” each other in rage and confusion, and in the fury of the conflict boastful man was utterly humiliated, sucked down, drowned.
+ - One is seldom unchanged by the death of those one loves. It gives me a deeper knowledge of them, and so of oneself in regard to them.
+ - All the best things are seen first of all at a far distance.
+ - Cleanliness’, chuckled Sir Benjamin, noting his great niece’s delighted smile as her eyes rested upon him, ’comes next to godliness, eh, Maria?
+ - Humanity can be roughly divided into three sorts of people – those who find comfort in literature, those who find comfort in personal adornment, and those who find comfort in food;.
+
+36 quotes

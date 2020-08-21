@@ -1,0 +1,35 @@
+ - Sometimes in life if you wanna do something good, you gotta do something bad.
+ - It’s easy to be quick on the draw when no one has got real bullets.
+ - Kids on the set tend to be a pain, and if they’re not, their parents are.
+ - You’re never quite sure, when you first get something if you really have a sense of what an opportunity it is.
+ - I punch a lot of guys on set. It’s much easier than in real life as your hands don’t hurt afterwards. The key is that you miss.
+ - I’m attracted to roles that are unpredictable, and if I can get my hands on something like that, I’m thrilled. I like performances where you don’t know what’s coming, moment to moment.
+ - It’s always fun to play cops and robbers.
+ - If I were to direct an episode, then there would be no one for me to blame, and that’s not any fun. It’s more about sitting in the back seat and trying to drive.
+ - I’m not looking for answers when I show up to the set. I’m just asking the questions, over and over.
+ - Larry Kasdan has made some of my favorite movies of all time so just to be working with him was a pleasure. Now that I have, I not only respect his work but I just love and respect him as a person.
+ - Um, accidents happen. Especially if there’s a co-star that you’re not that fond of – you might ‘accidentally’ deck him. But no, I’m a professional. I’m just saying that can happen.
+ - Honestly, I feel like I spent the last 10 years just trying to work, just get my hands on the best material I could. I’d like to say that it was quite calculated and genius, my ability to take one step forward and two steps back.
+ - As the saying goes, Bruce Jenner is a millionaire, and Mark Spitz is a dentist. It’s the wrong sport.
+ - Like any good parent you are trying to get the kid in a position where he is stronger and more powerful, and able to achieve things that you couldn’t.
+ - In my mind, I’m doing everything, but in reality, I’m doing very, very little. You come up with one idea, one moment, one line that leads to something and you feel like it’s easy. And then, you sit back and think there would be no show without that.
+ - The basic thing a man should know is how to change a tyre and how to drive a tractor. Whatever that bearded dude is doing on the Dos Equis beer commercials sets the bar. That’s your guy. Every man should be aiming to be like him. The beard is just the tip of the iceberg.
+ - Sometimes, people aren’t as consciously aware of their decisions as they should be.
+ - I didn’t inherit any great success and the problems that came with it, and yet I was able to keep working and supporting myself and later a family. I’m crazy fortunate.
+ - My roles don’t centre around drugs at all! Shadiness is different – it’s drama. We’re making movies! You’ve gotta have conflict.
+ - There’s not much to do in Atlanta, so the cast went to the gym together, went shopping together, and dinner was always a group thing. It’s that whole summer-camp experience that making movies tends to be anyway.
+ - On ‘Justified,’ we’re driving all around Southern California trying to find a location that we can call Kentucky.
+ - I think at this point in my life, I’d like to play more good guys than bad guys.
+ - In my mind, I’m hilarious, so I would love to do some comedy. But, I’m not exactly sure my perspective is a healthy one.
+ - I’ve been working for a long time and I’ve just really been allowed to work, with very little of the baggage and the pressures that can come with my job.
+ - People love to be scared. I guess it’s a primal deal.
+ - It’s great if a pilot starts off great and if it doesn’t start off so great it’s not that big a deal: everybody’s baby is born ugly. But you want to know, if given the opportunity: Where are we going? What’s the story we’re trying to tell?
+ - If Martin Scorsese calls, I am available. And then there the ones, well, you can just run down the list – any of those Oscar-nominated films, they have amazing directors across the board.
+ - Usually, in romantic comedies, you end up sacrificing a great deal of the complexity – you know, just two attractive people and a good soundtrack.
+ - I’ve always sort of admired and respected one’s ability to be comfortable with other people’s discomfort or, you know, their being comfortable making other people uncomfortable.
+ - What am I going to wear to the Emmys? Something with a tie.
+ - It’s changed throughout the years, but at one time I was a really big bubble gum ice cream fan. I’d spit the bubble gum pieces in a cup and then collect them.
+ - You know, what a producer does is one of the great mysteries in life, so anyone can be one.
+ - I like my job. That’s become very clear to me. I know how to pretend to do things that I otherwise didn’t know how to do.
+
+33 quotes

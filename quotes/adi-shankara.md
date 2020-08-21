@@ -1,0 +1,22 @@
+ - The world, like a dream full of attachments and aversions seems real until the awakening.
+ - Do not be proud of wealth, people, relations and friends, or youth. All these are snatched by time in the blink of an eye. Giving up this illusory world, know and attain the Supreme.
+ - Curb your senses and your mind and see the Lord within your heart.
+ - Reality can be experienced only with the eye of understanding, not just by a scholar.
+ - As gold purified in a furnace loses its impurities and achieves its own true nature, the mind gets rid of the impurities of the attributes of delusion, attachment and purity through meditation and attains Reality.
+ - Space seems broken and diverse because of the many forms in it. Remove the forms and pure space remains. So, too with the Omnipresent Self.
+ - Like the appearance of silver in mother of pearl, the world seems real until the Self, the underlying reality, is realized.
+ - Do not look at anybody in terms of friend or foe, brother or cousin; do not fritter away your mental energies in thoughts of friendship or enemity. Seeking the Self everywhere, be amiable and equal-minded towards all, treating all alike.
+ - When your last breath arrives, Grammar can do nothing.
+ - Loud speech, profusion of words, and possessing skillfulness in expounding scriptures are merely for the enjoyment of the learned. They do not lead to liberation.
+ - Knowing that I am different from the body, I need not neglect the body. It is a vehicle that I use to transact with the world. It is the temple which houses the Pure Self within.
+ - You never identify yourself with the shadows cast by your body, or with its reflection, or with the body you see in a dream or in your imagination. Therefore you should not identify yourself with this living body either.
+ - There is sorrow in finitude. The Self is beyond time, space and objects. It is infinite and hence of the nature of absolute happiness.
+ - What is enquiry into the Truth? It is the firm conviction that the Self is real, and all, other than That, is unreal.
+ - Each thing tends to move towards its own nature. I always desire happiness which is my true nature. My nature is never a burden to me. Happiness is never a burden to me, whilst sorrow is.
+ - The treasure I have found cannot be described in words, the mind cannot conceive of it.
+ - Give up identification with this mass of flesh as well as with what thinks it a mass. Both are intellectual imaginations. Recognise your true self as undifferentiated awareness, unaffected by time, past, present or future, and enter Peace.
+ - Who but the Atman is capable of removing the bonds of ignorance, passion and self-interested action?
+ - From a clear knowledge of the Bhagavad-gita all the goals of human existence become fulfilled. Bhagavad-gita is the manifest quintessence of all the teachings of the Vedic scriptures.
+ - All the manifested world of things and beings are projected by imagination upon the substratum which is the Eternal All pervading Vishnu, whose nature is Existence- Intelligence ; just as the different ornaments are all made out of the same gold.
+
+20 quotes

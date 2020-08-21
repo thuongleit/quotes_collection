@@ -1,0 +1,40 @@
+ - It’s a journalist’s job to be a witness to history. We’re not there to worry about ourselves. We’re there to try and get as near as we can, in an imperfect world, to the truth and get the truth out.
+ - I do not make stories up, full stop.
+ - In one way, I fear all Damascus is a dungeon. Or do you have to live here to appreciate that?
+ - At Baalbek Nuts I bought pistachios from the Lebanese owners, who answered my request for their thoughts on the war with the typically Lebanese response of no problem. It’s a lie, as we all knew.
+ - The sheer violence of it, the howl of air raid sirens and the air-cutting fall of the missiles carried its own political message; not just to President Saddam but to the rest of the world. We are the superpower, those explosions said last night. This is how we do business.
+ - War is primarily not about victory or defeat but about death and the infliction of death. It represents the total failure of the human spirit.
+ - The Syrian army is tired of corruption. It is tired of party nepotism. It is becoming very angry with those it blames for the war.
+ - We live in a society in the West, where, when men do violent things, they do them under orders. They are soldiers carrying out orders or mafia men carrying out killings for bosses. But the way things happen in the Middle East is not the same as in the West.
+ - It’s very easy to start a war but the muftah, as the Arabs say, the key to switch off a war, is very difficult to find.
+ - It is always an eerie experience to sit among Bashar al-Assad’s soldiers.
+ - A businessman admits that he ‘let go’ an employee because he was a Sunni Muslim. You simply have to look after yourself, he explains. I am shocked, like a good Westerner should be.
+ - When you have a crime against humanity that is so awesome in scale and death, it is more than permissible to look around and say, who recently has been declaring war on the United States? Of course, the compass points straight to bin Laden.
+ - Everyone outside the Roman Empire was called a barbarian. Everyone outside Obama’s empire is called a terrorist.
+ - The word ‘democracy’ and the name of Assad do not blend very well in much of Syria.
+ - People turn to violence, because they have no other avenue left.
+ - Israel lost its war. Will Assad’s enemies lose, too?
+ - And it’s true, you hear things in Damascus and, after a few hours, the human double-take stops operating.
+ - The dead cannot speak. But hitherto unknown information has emerged from the confidential archives of the Syrian presidency and foreign ministry, published in a new book by Bouthaina Shaaban, who spent ten years as Hafez’s interpreter and is still an adviser to his son Bashar.
+ - And history s fingers never relax their grip, never leave us unmolested, can touch us even when we would never imagine their presence.
+ - Individuals in various countries like Egypt and Saudi Arabia listen to the tapes of bin Laden. They gather in groups of four or five. They feel they want to do something to express their support for what they’ve heard. The idea that they were taking orders is a particularly Western idea.
+ - I don’t know what happens if they get bin Laden. I’m much more interested in what happens if they don’t get bin Laden.
+ - Clinton impressed Assad: a young man who appeared to want to be neutral in the Arab-Israeli dispute – an illusion of course, but that’s what Assad thought.
+ - Tanks come in two forms: the dangerous, deadly kind and the “liberating” kind.
+ - Bin Laden was very keen to point out to me that his forces had fought the Americans in Somalia. He also wanted to talk about how many mullahs in Pakistan were putting up posters saying, “We follow bin Laden.” He even produced a sort of Kodak set of snapshots of graffiti supporting him.
+ - The Americans may think they have ‘liberated’ Baghdad but the tens of thousands of thieves – they came in families and cruised the city in trucks and cars searching for booty – seem to have a different idea what liberation means.
+ - I wouldn’t say I was part of an anti-war campaign.
+ - And I think, in the end, that is the best definition of journalism I have heard; to challenge authority – all authority – especially so when governments and politicians take us to war, when they have decided that they will kill and others will die.
+ - Fundamentalism is not bred in poverty. There are plenty of poor countries in the world that don’t have violence because amid the poverty there is a kind of justice and in some countries a democracy.
+ - Bin Laden is not well read and he’s not sophisticated, but he will have worked out very coldly what America would do.
+ - Refuse to accept the narrative of history laid down by presidents, prime ministers, generals and journalists.
+ - When I saw the pictures of New York without the World Trade Center, New York looked like a shadow of itself.
+ - Whatever the political injustices are that created an environment that brought this about, it was not Americans who flew those planes into those buildings. And we should remember that. The crimes against humanity were perpetrated by people who were Arab Muslims.
+ - In just one year in Bosnia, thirty of my colleagues died. There is a little Somme waiting for all innocent journalists.
+ - President Bush will come here and there will be new “friends” of America to open a new relationship with the world, new economic fortunes for those who “liberated” them.
+ - I suppose, in the end, we journalists try – or should try – to be the first impartial witnesses of history. If we have any reason for our existence, the least must be our ability to report history as it happens so that no one can say: ’we didn’t know – no one told us.
+ - President Bush cruelly manipulated the grief of the American people – and the sympathy of the rest of the world – to introduce a ‘world order’ dreamed up by a clutch of fantasists advising the Secretary of Defence, Donald Rumsfeld.
+ - Bin Laden was constantly revolving in his mind the fact that he had got rid of the Russians; therefore, the Americans can be got rid of, too. And where better than in the country where he knows how to fight?
+ - At the end of the day, bin Laden’s interest is not Washington and New York, it’s the Middle East. He wants Saudi Arabia. He wants to get rid of the House of Saud.
+
+38 quotes

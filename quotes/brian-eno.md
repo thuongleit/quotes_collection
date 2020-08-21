@@ -1,0 +1,247 @@
+ - Ambient music is intended to induce calm and a space to think.
+ - Honor thy error as a hidden intention.
+ - Saying that cultural objects have value is like saying that telephones have conversations.
+ - Ambient music must be as ignorable as it is interesting.
+ - Ambient Music must be able to accommodate many levels of listening attention without enforcing one in particular; it must be as ignorable as it is interesting.
+ - Genius is individual, scenius is communal.
+ - Cooking is a way of listening to the radio.
+ - Culture is everything you don’t have to do.
+ - Complexity and intelligence grow from simplicity, not from greater complexity.
+ - I prefer to shoot the arrow, then paint the target around it. You make the niches in which you finally reside.
+ - Editing is now the easiest thing on earth to do, and all the things that evolved out of word processing – ‘Oh, let’s put that sentence there, let’s get rid of this’ – have become commonplace in films and music too.
+ - If you had a sign above every studio door saying ‘This Studio is a Musical Instrument’ it would make such a different approach to recording.
+ - The problem with computers is that there is not enough Africa in them.
+ - It’s not the destination that matters. It’s the change of scene.
+ - Everything is an experiment until it has a deadline. That gives it a destination, context, and a reason.
+ - I have a definite talent for convincing people to try something new. I am a good salesman. When I’m on form, I can sell anything.
+ - The computer brings out the worst in some people.
+ - I think one of my pursuits over the years is trying to answer the question of, ‘What else can you do with a voice other than stand in front of a microphone and sing?’
+ - Emotion creates reality, reality demands action.
+ - What matters in modern music is not the part you can write down, the words and the tune, but the rest – the texture, the atmosphere, the references and associations.
+ - I believe that singing is the key to long life, a good figure, a stable temperament, increased intelligence, new friends, super self-confidence, heightened sexual attractiveness, and a better sense of humor.
+ - I’ve never used a PC in my life; I don’t like them.
+ - Art is not an object, but a trigger for experience.
+ - I’m very opinionated.
+ - Possessions are a way of turning money into problems.
+ - I love good, loud speakers.
+ - Any constraint is part of the skeleton that you build the composition on – including your own incompetence.
+ - People who are very confident in themselves aren’t hurt by criticism. They make use of it.
+ - I felt extremely uncomfortable as the focal point, in the spotlight. I really like the behind the scenes role, because all my freedom is there.
+ - The prospect of music being detachable from time and place meant that one could start to think of music as a part of one’s furniture.
+ - I’m fascinated by musicians who don’t completely understand their territory; that’s when you do your best work.
+ - All cultures have these feelings about non-functional areas of activity. And the more time people have on their hands, the more they commit it to those areas.
+ - Anything popular is populist, and populist is rarely a good adjective.
+ - The point about working is not to produce great stuff all the time, but to remain ready for when you can.
+ - In art, you CAN crash your plane and walk away from it.
+ - You shoot your arrow and then you paint your bulls eye around it, and therefore you have hit the target dead centre.
+ - I do sometimes look back at things I’ve written in the past, and think, ‘I just don’t remember being the person who wrote that.’
+ - Well, I am a dilettante. It’s only in England that dilettantism is considered a bad thing. In other countries it’s called interdisciplinary research.
+ - Instead of shooting arrows at someone elses target, which Ive never been very good at, I make my own target around wherever my arrow happens to have landed. You shoot your arrow and then you paint your bulls eye around it, and therefore you have hit the target dead centre.
+ - The smart thing in the art world is to have one good idea and never have another.
+ - Every increase in your knowledge is a simultaneous decrease. You learn and you unlearn at the same time. A new certainty is a new doubt as well.
+ - The trouble begins with a design philosophy that equates ‘more options’ with ‘greater freedom.’
+ - A big ego isn’t necessarily a bad thing. A big ego means that you have some confidence in your abilities, really, and that you’re prepared to take the risk of trying them out.
+ - If there is a new fascism, it won’t come from skinheads and punks; it will come from people who eat granola and think they know how the world should be.
+ - Feelings are more dangerous than ideas, because they aren’t susceptible to rational evaluation. They grow quietly, spreading underground, and erupt suddenly, all over the place.
+ - The first Velvet Underground album only sold 10,000 copies, but everyone who bought it formed a band.
+ - If you want to make someone feel emotion, you have to make them let go. Listening to something is an act of surrender.
+ - Every collaboration helps you grow. With Bowie, it’s different every time. I know how to create settings, unusual aural environments. That inspires him. He’s very quick.
+ - Avant-garde music is sort of research music. You’re glad someone’s done it but you don’t necessarily want to listen to it.
+ - Well, there are some things that I just can’t get out of my head, and they start to annoy me after a while. Sometimes they’re of my own creation, as well – and they’re just as annoying. It’s not only other people’s ear worms that bug me, it’s my own, as well.
+ - Not many people bought Velvet Underground LPs, but those who did, started a band.
+ - If you grow up in a very strong religion like Catholicism you certainly cultivate in yourself a certain taste for the intensity of ideas.
+ - Being an artist is a job for life.
+ - Given the chance, i’ll die like a baby, on some faraway beach, when the season’s over.
+ - Listening to something is an act of surrender.
+ - I see TV as a picture medium rather than a narrative medium.
+ - Lyrics are always misleading because they make people think that that’s what the music is about.
+ - The whole history of pop music had rested on the first person singular, with occasional intrusions of the second person singular.
+ - I’m kind of an evangelical atheist.
+ - I don’t live in the past at all; I’m always wanting to do something new. I make a point of constantly trying to forget and get things out of my mind.
+ - People tend to play in their comfort zone, so the best things are achieved in a state of surprise, actually.
+ - In England and Europe, we have this huge music called ambient – ambient techno, ambient house, ambient hip-hop, ambient this, ambient that.
+ - I always use the same guitar; I got this guitar years and years ago for nine pounds. It’s still got the same strings on it.
+ - I remember when in the early days of rock’n’roll, when everything sounded totally different, all amazing and blah blah blah blah blah. Now you can play me one second of any record from that time, and I’ll say “1959” or “1961.” I can hear precisely. It’s like it has a huge date stamp on it.
+ - Sometimes something intrigues me about particular sounds, how they work together, and I think “Okay, I’ve found something here; I’m going to take it somewhere.” And sometimes just to find a name for that sound, whatever it is, ends up becoming a title of the piece or becoming part of the title.
+ - The basis of computer work is predicated on the idea that only the brain makes decisions and only the index finger does the work.
+ - The great benefit of computer sequencers is that they remove the issue of skill, and replace it with the issue of judgement.
+ - Once I started working with generative music in the 1970s, I was flirting with ideas of making a kind of endless music – not like a record that you’d put on, which would play for a while and finish.
+ - You can’t really imagine music without technology.
+ - A part of me has become immortal, out of my control.
+ - I wanted to use the studio like a microscope for sound, which is what good engineers do.
+ - The philosophical idea that there are no more distances, that we are all just one world, that we are all brothers, is such a drag! I like differences.
+ - All music has political dimensions because it suggests a way of being.
+ - When people censor themselves they’re just as likely to get rid of the good bits as the bad bits.
+ - Music in itself carries a whole set of messages which are very, very rich and complex, and the words either serve to exclude certain ones or point up certain others.
+ - Some people are very good at being ‘stars’ and it suits them. I’m grudging about it and I find it annoying.
+ - Something I’ve realized lately, to my shock, is that I am an optimist, in that I think humans are almost infinitely capable of self-change and self-modification, and that we really can build the future that we want if we’re smart about it.
+ - Law is always better than war.
+ - Lyrics are the only thing to do with music that haven’t been made easier technically.
+ - I’m actually an evangelical atheist, but there is something I recognise about religion: that it gives people a chance to surrender.
+ - It must be quite mysterious to some people why I bother to carry on. Because, you know, I don’t sell that many records.
+ - Be the first to not do what nobody has ever thought of not doing before.
+ - My guitar only has five strings ’cause the top one broke and I decided not to put it back on: when I play chords I only play bar chords, and the top one always used to cut me there.
+ - The biology of purpose keeps my nose above the surface.
+ - American television really is pathetic.
+ - Don’t be ashamed of your own ideas. Most musicians get applauded for sounding like someone else.
+ - Painting, I think it’s like jazz.
+ - Whenever you listen to a piece of music, what you are actually doing is hearing the latest sentence in a very long story you’ve been listening to – all the pieces of music you’ve ever heard.
+ - Ideas reflect the moment, and so you have to use them. If you store ideas, they wither.
+ - Stop thinking about art works as objects, and start thinking about them as triggers for experiences.
+ - I thought it was magic to be able to catch something identically on tape and then be able to play around with it, run it backwards; I thought that was great for years.
+ - Of course, like anybody I repeat myself endlessly, but I don’t know that I’m doing it, usually.
+ - The point about melody and beat and lyric is that they exist to engage you in a very particular way. They want to occupy your attention.
+ - I’m struck by the insidious, computer-driven tendency to take things out of the domain of muscular activity and put them into the domain of mental activity.
+ - If something is good, you must torture it mercilessly until it is either dead or great.
+ - I believe in singing. I believe in singing together.
+ - I never wanted to write the sort of song that said, ‘Look at how abnormal and crazy and out there I am, man!’
+ - The thing that obsesses me more than anything is waste – the waste of human intelligence and creativity.
+ - One of the interesting things about having little musical knowledge is that you generate surprising results sometimes; you move to places you wouldn’t if you knew better.
+ - In the 1960s, people were trying to get away from the pop song format. Tracks were getting longer, or much, much shorter.
+ - I hate the way CDs just drone on for bloody hours and you stop caring.
+ - I had a lot of trouble with engineers, because their whole background is learning from a functional point of view, and then learning how to perform that function.
+ - I describe things in terms of body movements. I dance a bit to describe what sort of movement it ought to make, and that’s a good way of talking to musicians. Particularly bass players.
+ - At the beginning of the 20th century, the ambition of the great painters was to make paintings that were like music, which was then considered as the noblest art.
+ - I hate talking about music, to tell you the truth.
+ - There are certain sounds that I’ve found work well in nearly any context. Their function is not so much musical as spatial: they define the edges of the territory of the music.
+ - One of the things you’re doing when you make art, apart from entertaining yourself and other people, is trying to see what ways of working feel good, what feels right.
+ - People do dismiss ambient music, don’t they? They call it ‘easy listening,’ as if to suggest that it should be hard to listen to.
+ - When I was young, an eccentric uncle decided to teach me how to lie. Not, he explained, because he wanted me to lie, but because he thought I should know how it’s done so I would recognise when I was being lied to.
+ - More and more I find I want to be living in a Big Here and a Long Now.
+ - I have lived in countries that were coming out of conflict: Ireland, South Africa, the Czech republic. People there are overflowing with energy.
+ - Everybody thinks that when new technologies come along that they’re transparent and you can just do your job well on it. But technologies always import a whole new set of values with them.
+ - I think generally playing live is a crap idea. So much of stage work is the presentation of personality, and I’ve never been interested in that.
+ - The reason conservatives cohere and radicals fight: everyone agrees about fears, no one about visions.
+ - Pop is totally results-oriented and there is a very strong feedback loop.
+ - Also something that you don’t have to listen to from beginning to end – you can enter at any point and leave at any point.
+ - It’s amazing how quickly people get used to bad quality.
+ - I despise computers in many ways. I think they’re hopelessly underevolved and overrated.
+ - It infuriates me that stuff from the Internet routinely doesn’t include all the credits. Because as soon as I listen to something, if I like it, I want to know, “Who’s the bass player?” “Who did that?” “Who’s the engineer on this?”
+ - A culture is the sum of all the things about which humanity can choose to differ.
+ - My kind of composing is more like the work of a gardener. The gardener takes his seeds and scatters them, knowing what he is planting but not quite what will grow where and when – and he won’t necessarily be able to reproduce it again afterwards either.
+ - I’d love it if American kids were listening to Muslim music.
+ - The difficulty of always feeling that you ought to be doing something is that you tend to undervalue the times when you’re apparently doing nothing, and those are very important times.
+ - I enjoy working with complicated equipment. A lot of my things started just with a rhythm box, but I feed it through so many things that what comes out sounds very complex and rich.
+ - I do love being in my studio. Especially at night.
+ - I want to rethink ‘surrender’ as an active verb.
+ - I think, if you spend a day or as many people do a life working only with that aspect of your being, the cerebrum connected to a finger, I feel that the rest of you atrophies, essentially.
+ - I think audiences are quite comfortable watching something coming into being.
+ - I’m very good with technology, I always have been, and with machines in general. They seem not threatening like other people find them, but a source of fun and amusement.
+ - Some people say Bowie is all surface style and second-hand ideas, but that sounds like a definition of pop to me.
+ - I don’t like celebrity programmes – but I do like programmes about how ideas are formed and evolve.
+ - I want to make things that put me in the position of innocence, that recreate the feeling of innocence in you.
+ - The reason I don’t tour is that I don’t know how to front a band. What would I do? I can’t really play anything well enough to deal with that situation.
+ - I’m always interested in something when it isn’t familiar to me.
+ - Perhaps when music has been shouting for so long, a quieter voice seems attractive.
+ - You don’t have to act as if you know what you’re doing.
+ - With all fashion, what we do is play at being somebody else. We play at inhabiting another kind of world.
+ - I have these headphones, which pretty much exclude everything else so that you can really completely control the sound that you’re hearing. I don’t use them very much, I have to say. I very rarely listen on headphones.
+ - I set up situations that involve abandoning control and finding out what happens.
+ - I got interested in the idea of music that could make itself, in a sense, in the mid 1960s really, when I first heard composers like Terry Riley, and when I first started playing with tape recorders.
+ - It’s actually very easy for democracy to disappear.
+ - The lyrics are constructed as empirically as the music. I don’t set out to say anything very important.
+ - I take sounds and change them into words.
+ - For the world to be interesting, you have to be manipulating it all the time.
+ - I often say to people that producing is the best paid form of cowardice. When you produce things you almost always get credit, if it’s a good record, but you hardly ever get the blame if it’s not! You don’t really take responsibility for your work.
+ - We are increasingly likely to find ourselves in places with background music. No composers have thought to write for these modern spaces, which represent 30% of our musical experience.
+ - I don’t like headphones very much, and I rarely listen to music on headphones.
+ - I make a lot of pieces of music that I never release as CDs.
+ - Composition is a way of living out your philosophy and calling it art.
+ - When you make something you are always offering some choices and denying others.
+ - I belong to a gospel choir. They know I am an atheist but they are very tolerant.
+ - John Cage made you realise that there wasn’t a thing called noise, it was just music you hadn’t appreciated.
+ - If you’ve spent a long time developing a skill and techniques, and now some 14 year-old upstart can get exactly the same result, you might feel a bit miffed I suppose, but that has happened forever.
+ - You either believe that people respond to authority, or that they respond to kindness and inclusion. I’m obviously in the latter camp. I think that people respond better to reward than punishment.
+ - Put out as much as you can. It doesn’t do anything sitting on a shelf.
+ - I think most artists would be happy to have bigger audiences rather than smaller ones. It doesn’t mean that they are going to change their work in order necessarily to get it, but they’re happy if they do get it.
+ - The problem with improvisation is, of course, that everyone just slips into their comfort zone and does sort of the easy thing to do, the most obvious thing to do with your instrument.
+ - I believe in singing.
+ - It’s easy to forget that your best work is done when your attention is fully engaged.
+ - I know that if I had a television in my flat I would convince myself that everything on it was really interesting. I would say, ‘I’m a Celebrity – Get Me Out of Here!’ is so sociologically fascinating that I think I’d better watch.
+ - I’ve got a feeling that music might not be the most interesting place to be in the world of things.
+ - Nothing so dates an era as its conception of the future.
+ - It’s nice, I think, when people use your music for things you didn’t think of.
+ - If I tried to make a commercial album, it would be a complete flop. I have no idea what the world at large likes.
+ - A studio is an absolute labyrinth of possibilities – this is why records take so long to make because there are millions of permutations of things you can do. The most useful thing you can do is to get rid of some of those options before you start.
+ - The artists of the past who impressed me were the ones who really focused their work.
+ - The only value of ideology is to stop things becoming showbiz.
+ - Set up a situation that presents you with something slightly beyond your reach.
+ - When I went back to England after a year away, the country seemed stuck, dozing in a fairy tale, stifled by the weight of tradition.
+ - Everything good proceeds from enthusiasm.
+ - I love the sort of ambivalence of this, the ambiguity of something being, for instance, in a quite busy Mexican restaurant with one of these very gentle tracks playing I remember as being particularly nice.
+ - I think the idea that people walk around to music is very interesting. They are actually creating the soundtrack to their lives as they walk around to it.
+ - I’m always interested in what you can do with technology that people haven’t thought of doing yet.
+ - When I started making my own records, I had this idea of drowning out the singer and putting the rest in the foreground. It was the background that interested me.
+ - Repetition doesn’t really exist.
+ - My interest in making music has been to create something that does not exist that I would like to listen to. I wanted to hear music that had not yet happened, by putting together things that suggested a new thing which did not yet exist.
+ - What people call unemotional just doesnt have a single overriding emotion to it. The things that I like best are the ones that ambiguous on the emotional level.
+ - The most important thing in a piece of music is to seduce people to the point where they start searching.
+ - One often makes music to supplement one’s world.
+ - Everybody is entertained to death.
+ - If you are part of a religion that very strongly insists that you believe then to decide not to do that is quite a big hurdle to jump over. You never forget the thought process you went through. It becomes part of your whole intellectual picture.
+ - Most big concerts sound disgusting and awful and insultingly bad. It’s like going to the cinema and been shown a scratchy film which is upsidedown and the bulb had gone on the projector. The quality of large-scale live music is so shocking.
+ - I think it’s a myth that American public or any other public is so stupid that they need to be constantly pricked.
+ - Most of those melodies are me trying to find out what notes fit, and then hitting ones that don’t fit in a very interesting way.
+ - Once you’ve grown to accept something and it becomes part of the system you’ve inherited, you don’t even notice it any longer.
+ - If I had a stock of fabulous sounds I would just always use them. I wouldn’t bother to find new ones.
+ - I’ve had quite a lot of luck with dreams. I’ve often awoken in the night with a phrase or even a whole song in my head.
+ - Every collaboration helps you grow.
+ - I hate the rock music tradition. I can’t bear it!
+ - All the best lyrics are written in ten minutes.
+ - The most important thing is the thing most easily forgotten.
+ - I’m bloody awful at multi-tasking.
+ - Reggie Watts is a most unusual talent: a huge vocal range, a natural musicality, and a sidesplitting wit. Is he a comedian? A singer? A performance artist? I’ve seen him a few times since then and I still can’t decide. Whatever, he ain’t like nobody else.
+ - There is a sort of convergence starting to happen between the computer and musical instruments, but it’s still quite a long way off.
+ - When I’ve finally got the title, I think, “Okay, yes, now I know where we are. Now I know what it is. Fine, that must be finished or nearly finished.”
+ - Admirers can be a tremendous force for conservatism.
+ - I wanted to get rid of the element that had been considered essential in pop music: the voice.
+ - Human development thus far has been fueled and guided by the feeling that things could be, and are probably going to be, better.
+ - For instance, I’m always fascinated to see whether, given the kind of fairly known and established form called popular music, whether there is some magic combination that nobody has hit upon before.
+ - Good teachers realise that the students are the antenna; they are sensing things that the teachers don’t yet sense.
+ - In the wake of the events of 11 September 2001, it now seems clear that the shock of the attacks was exploited in America.
+ - Of all the things you can now do, which do you choose to do?
+ - I had wanted a tape recorder since I was tiny. I thought it was a magic thing. I never got one until just before I went to art school.
+ - My lyrics are generated by various peculiar processes. Very random and similar to automatic writing.
+ - I’d rather hold one note for an hour and modulate it so that it means something than play 3,000 notes in 15 seconds.
+ - Being completely free to choose what to do is actually quite difficult.
+ - I would like to see a future where artists think that they have a right to contemplate things like global warming.
+ - The idea that something is uncool because it’s old or foreign has left the collective consciousness.
+ - People assume that the meaning of a song is vested in the lyrics. To me, that has never been the case. There are very few songs that I can think of where I remember the words.
+ - Most game music is based on loops effectively.
+ - One of the great breakthroughs of evolution theory is that you start with simple things and they will grow into complexity.
+ - As struggles go, being an artist isn’t that much of one.
+ - Attention is what creates value. Artworks are made as well by how people interact with them – and therefore by what quality of interaction they can inspire.
+ - If you watch any good player, they’re using different parts of their body and working with instruments that respond to those movements. They’re moving in many dimensions at once.
+ - I often work by avoidance.
+ - I’ve got nothing against records – I’ve spent my life making them – but they are a kind of historical blip.
+ - As soon as I hear a sound, it always suggests a mood to me.
+ - I think very often producers are really trying to repeat things. When they hear something in the new songs that they recognize as being a bit like something that was a success on a previous record, they’re inclined to encourage that.
+ - I don’t want to do free jazz! Because free jazz – which is the musical equivalent of free marketeering – isn’t actually free at all. It’s just constrained by what your muscles can do.
+ - I’ve noticed a terrible thing, which is I will agree to anything if it’s far enough in the future.
+ - Agressive music can only shock you once. Afterwards its impact declines. It’s inevitable.
+ - Musicians are there in front of you, and the spectators sense their tension, which is not the case when you’re listening to a record. Your attention is more relaxed. The emotional aspect is more important in live music.
+ - I cant duplicate my own successes, because part of the creation of that effect is making something happen that you didn’t expect.
+ - For me it’s always contingent on getting a sound-the sound always suggests what kind of melody it should be. So it’s always sound first and then the line afterwards.
+ - I can see the use and value of religion, just as I can see the use of mud wrestling, yoga, astronomy and sadomasochism. but I reject the idea that you can’t be a deep human being without it or any of them.
+ - Cultural objects have no notable identity outside of that which we confer upon them. Their value is entirely a product of the interaction that we have with them.
+ - In my normal life I’m a very unadventurous person.
+ - Songs that don’t depend on composition depend instead on performance – so the fire has to be there in the playing.
+ - My shows are not narratives.
+ - Rationality is what we do to organize the world, to make it possible to predict. Art is the rehearsal for the inapplicability and failure of that process.
+ - Try to make things that can become better in other people’s minds than they were in yours.
+ - Things that are very popular are not taken seriously, because the snobbish side of one says, “Well, if everyone likes it it can’t be that good.” Whereas if only I and a couple of other people like it, then it must be really something special.
+ - You can’t do anything interesting with cutting-edge technology except not make it cutting-edge.
+ - Sometimes you recognize that there is a category of human experience that has not been identified but everyone knows about it. That is when I find a term to describe it.
+ - I’ve discovered this new electronic technique that creates new speech out of stuff that’s already there.
+ - Even though I’m known as a pop musician, I have a seriousness about what I do.
+ - Every band I’ve worked with also wants to be countercultural in the sense that they want to feel that they’ve gone somewhere that nobody else has been.
+ - Nearly all the things I do that are of any merit at all start off just being good fun.
+ - As soon as you externalize an idea you see facets of it that weren’t clear when it was just floating around in your head.
+ - If you’re in a forest, the quality of the echo is very strange because echoes back off so many surfaces of all those trees that you get this strange, itchy ricochet effect.
+ - I think we’re about ready for a new feeling to enter music. I think that will come from the Arabic world.
+ - We’re going through this super-uptight era, which I think comes entirely from literacy, actually. It’s the result of machines that were designed as word processors being used for making music.
+ - I suppose I am reluctant about being any sort of ‘star’ and I didn’t particularly want to be portrayed as one.
+ - I’m not interested in possible complexities. I regard song structure as a graph paper.
+ - Robert Fripp and I will be recording another LP very soon. It should be even more monotonous than the first one!
+
+245 quotes

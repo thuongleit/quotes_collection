@@ -1,0 +1,28 @@
+ - Now, one thing I tell everyone is learn about real estate. Repeat after me: real estate provides the highest returns, the greatest values and the least risk.
+ - Networking is an essential part of building wealth.
+ - A global democracy works only when countries trust one another.
+ - You must develop personal contacts if you want to be successful.
+ - Let’s remember the children who come from broken homes, surrounded by crime, drugs, temptation, their peers having babies out of wedlock, but who still manage to get a good education despite the many obstacles they face every day.
+ - In Washington, DC, politics dominate even the most casual conversations.
+ - Bottom line: if you show a genuine interest in learning about how others became successful, you can open up a world of opportunities.
+ - We cannot solve the problem of terrorism by asserting our will on the world.
+ - Therefore the great mediator of any community is human morality.
+ - At the end of the day, there is no doubt that the unique spirit embodied by this country has worked, not just to make the world safer, but to make it better.
+ - A belief in God helps provide a foundation to arbitrate our decisions. Without this foundation, we are condemned to live essentially formless lives.
+ - Even during the worst hardships, when the other things in our lives seem to fall apart, we can still find peace in the eternal love of God.
+ - Receiving far less attention are the working class heroes, who go about their solitary work routines with quiet dignity, come home from another grueling day, yet still find time to interact with their children.
+ - At some point we must realize that actively defending against radical Islamic teachings is not a matter of cultural relativity. It is a matter of universally recognized human rights.
+ - Democratic societies can no longer give religious fanatics a free hand to abuse and murder non believers. Such action betrays contempt for the basic human rights which animate any democracy with meaning.
+ - My point is, if you want to achieve anything in life, it is not enough to merely wish for it. You must develop that kind of 4:30 AM discipline that distinguishes you from others.
+ - At some point we must make a decision not to allow the mere threat of charges of cultural or religious insensitivity to stop us from dealing with this evil.
+ - That is what great athletes can do: they give us a model of striving for human perfection.
+ - The liberation of Iraq was part of a broader effort to seriously confront the greatest threat to world security: rogue states capable of obtaining long range weapons of mass destruction.
+ - One of the genuine phenomenons over the past four decades has been the liberal community’s steadfast insistence that God should be barred from the public sphere. This is not law. It is religious prejudice.
+ - The greatest job I ever had was working on my family farm. Each morning my father would come into my bedroom around 4:30 am and command me to get up and work the fields. I would spend the next two hours before school slopping pigs and cropping tobacco.
+ - Patients describing the benefits of prayer often talk about how it provides a sense of well being.
+ - Very simply, the culture of another people does not have to be accepted when it is subhuman!
+ - In short, we cannot grow, we cannot achieve authentic discovery, and our eyes cannot be cleansed to the truly beautiful possibilities of life, if we simply live a neutral existence.
+ - With the rise of America, the global balance of power shifted away from the old European powers.
+ - Sports nurtures dreams of achieving self confidence and masculine striving for the skinny kid watching a boxer dance around the ring with sublime ease.
+
+26 quotes

@@ -1,0 +1,100 @@
+ - Don’t only practice your art, but force your way into its secrets; art deserves that, for it and knowledge can raise man to the Divine.
+ - Music is a higher revelation than all wisdom and philosophy. Music is the electrical soil in which the spirit lives, thinks and invents.
+ - Music can change the world.
+ - What I have in my heart and soul – must find a way out. That’s the reason for music.
+ - Music is the mediator between the spiritual and the sensual life. Although the spirit be not master of that which it creates through music, yet it is blessed in this creation, which, like every creation of art, is mightier than the artist.
+ - To play without passion is inexcusable!
+ - I know no other sign of superiority than Goodness.
+ - Only art and science can raise men to the level of God.
+ - Then let us all do what is right, strive with all our might toward the unattainable, develop as fully as we can the gifts God has given us, and never stop learning.
+ - Music is the mediator between the spiritual and the sensual life.
+ - I shall hear in heaven.
+ - Music should strike fire from the heart of man, and bring tears form the eyes of woman.
+ - I am resolved to rise superior to every obstacle. With whom need I be afraid of measuring my strength? I will take Fate by the throat. It shall not overcome me. O how beautiful it is to be alive – would that I could live a thousand times!
+ - This is the mark of a really admirable man: steadfastness in the face of trouble.
+ - I would rather write 10,000 notes than a single letter of the alphabet.
+ - Hide your secret even from the closest friend; learn to be silent...
+ - Music is like a dream. One that I cannot hear.
+ - Oh continue to love me – never misjudge the most faithful heart of your beloved. ever thine ever mine ever ours.
+ - Wherever you are, I am there also.
+ - Beethoven can write music, thank God, but he can do nothing else on earth.
+ - It is the power of music to carry one directly into the mental state of the composer.
+ - I will seize fate by the throat; it shall certainly never wholly overcome me.
+ - Life would be flat without music. It is the background to all I do. It speaks to the heart in its own special way like nothing else.
+ - When I open my eyes I must sigh, for what I see is contrary to my religion, and I must despise the world which does not know that music is a higher revelation than all wisdom and philosophy.
+ - What you are, you are by accident of birth; what I am, I am by myself. There are and will be a thousand princes; there is only one Beethoven.
+ - He who understand my music will remain free from the miseries that the other men are dragging with them .
+ - There are and always will be thousands of princes, but there is only one Beethoven!
+ - Music is the one incorporeal entrance into the higher world of knowledge which comprehends mankind but which mankind cannot comprehend.
+ - The guitar is an orchestra in itself.
+ - Love, and love alone, is capable of giving you a happier life.
+ - Music is the wine which inspires one to new generative processes, and I am Bacchus who presses out this glorious wine for mankind and makes them spiritually drunken.
+ - We mortals with immortal minds are only born for sufferings and joys, and one could almost say that the most excellent receive joy through sufferings.
+ - You’re a happy fellow, for you’ll give happiness and joy to many other people. There is nothing better or greater than that.
+ - It is my wish that you may have at better and freer life than I have had. Recommend virtue to your children; it alone, not money, can make them happy. I speak from experience; this was what upheld me in time of misery.
+ - Only art and science make us suspect the existence of life to a higher level, and maybe also instill hope thereof.
+ - Everything should be at once surprising and inevitable.
+ - No friend have I. I must live by myself alone; but I know well that God is nearer to me than others in my art, so I will walk fearlessly with Him.
+ - Nothing is more intolerable than to have to admit to yourself your own errors.
+ - I can live only wholly with you or not at all.
+ - There is no greater pleasure for me than to practice and exhibit my art.
+ - I love a tree more than a man.
+ - Never forget the days I spent with you. Continue to be my friend, as you will always find me yours.
+ - I have never thought of writing for reputation and honor. What I have in my heart must come out; that is the reason why I compose.
+ - The barriers are not erected which can say to aspiring talents and industry, ‘Thus far and no farther.’
+ - To do good whenever one can, to love liberty above all else, never to deny the truth, even though it be before the throne.
+ - Anyone who tells a lie has not a pure heart, and cannot make a good soup.
+ - Art demands of us that we shall not stand still.
+ - To me the highest thing, after God, is my honor.
+ - One must not hold one’s self so divine as to be unwilling occasionally to make improvements in one’s creations.
+ - Love demands all, and has a right to all.
+ - I don’t want to know anything about your system of ethics. Strength is the morality of the man who stands out from the rest, and it is mine.
+ - My heart is full of many things there are moments when I feel that speech is nothing after all.
+ - If I contemplate myself as part of the Universe: what am I?
+ - Fate gave to man the courage of endurance.
+ - Oh, how beautiful it is to be alive – would that I could live a thousand times.
+ - Handel, to him I bow the knee.
+ - What is to reach the heart must come from above; if it does not come from thence, it will be nothing but notes, body without spirit.
+ - I want to seize fate by the throat.
+ - The foundation of friendship demands the greatest likeness of human souls and hearts.
+ - It seemed unthinkable for me to leave the world forever before I had produced all that I felt called upon to produce.
+ - In the world of art, as in the whole of creation, freedom and progress are the main objectives.
+ - Richard Wagner commenting on the music of Ludvig Van Beethoven: He was a Titan, wrestling with the Gods.
+ - We all make mistakes, but everyone makes different mistakes.
+ - Do you think I give a damn about your and your pathetic violin?
+ - Music is the electric soil in which the spirit thinks, lives and invents. All that’s electrical stimulates the mind to flowing surging musical creation. I am electrical by nature.
+ - There is no loftier mission than to approach the Divinity nearer than other men, and to disseminate the divine rays among mankind.
+ - She was such a good loving mother, my best friend. Oh, who was happier than I when I could still say the dear name “Mother,” and it was heard, and whom can I say it to now?
+ - Mistakes – mistakes – you yourself are a unique mistake!
+ - From the glow of enthusiasm I let the melody escape.
+ - Tones sound, and roar and storm about me until I have set them down in notes.
+ - Even in poverty I lived like a king for I tell you that nobility is the thing that makes a king.
+ - Of all my children, this is the one that cost me the worst birth-pangs and brought me the most sorrow; and for that reason it is the one most dear to me.
+ - I liked your opera. I think I will set it to music.
+ - I alter some things, eliminate and try again until I am satisfied. Then begins the mental working out of this material in its breadth, its narrowness, its height and depth.
+ - I carry my thoughts about with me for a long time, often for a very long time, before writing them down.
+ - A great poet is the most precious jewel of a nation.
+ - Strange, I feel as if up to now I had written no more than a few notes.
+ - He that divines the secret of my music is freed from the unhappiness that haunts the whole world of men.
+ - An artist is someone who has learned to trust in himself.
+ - The world is a king, and like a king, desires flattery in return for favor; but true art is selfish and perverse – it will not submit to the mold of flattery.
+ - Artists are fiery, they do not weep!
+ - In the country It seems as if every tree Said to me ‘Holy! Holy!’ Who can ever express The ecstasy of the woods! Almighty One, In the woods I am blessed. Happy every one in the woods. Every tree speaks through Thee. O God! What glory in the woodland.
+ - Let your deafness no longer be a secret – even in art.
+ - Recommend virtue to your children, that alone – not wealth – can give happiness. It upholds in adversity and the thought of it and my art prevents me from putting an end to my life.
+ - Rossini would have been a great composer if his teacher had spanked him enough on his backside.
+ - There ought to be only one large art warehouse in the world, to which the artist could carry his art-works and from which he could carry away whatever he needed. As it is one must be half a tradesman.
+ - Art! Who comprehends her? With whom can one consult concerning this great goddess?
+ - The amount of money one needs is terrifying...
+ - Recommend to your children to be virtuous, only the virtue can bring us happiness, not the money.
+ - Don’t regard yourself as too divine to improve, occasionally, your own works.
+ - Art always demands of us something new.
+ - After Rossini dies, who will be there to promote his music?
+ - Artists who have won fame are often embarrassed by it; thus their first works are often their best.
+ - I know of no more sacred duty than to rear and educate a child.
+ - All my life I have regarded myself as one of Mozart’s greatest admirers, and I will remain one until my last breath.
+ - Only the flint of a man’s mind can strike fire in music.
+ - I have always reckoned myself among the greatest admirers of Mozart, and shall do so till the day of my death.
+ - Men are not only together when they are with each other; even the distant and the dead live with us.
+
+98 quotes

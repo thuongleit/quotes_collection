@@ -1,0 +1,31 @@
+ - I strive for an architecture from which nothing can be taken away.
+ - For me, drawing generates thinking and vice versa.
+ - Every building is a prototype. No two are alike.
+ - A good engineer thinks in reverse and asks himself about the stylistic consequences of the components and systems he proposes.
+ - We prefer synthetic rather than natural materials. Natural products are almost too valuable. Wood is much harder to produce than metal. And metal is recyclable, while wood isn’t.
+ - Transparency is not the same as looking straight through a building: it’s not just a physical idea, it’s also an intellectual one.
+ - I wanted to improve the suburban office building; to create a great urban space in a suburban environment with all that implies about interaction, collaboration and creativity.
+ - I think the younger generation, the people poised to dominate the workforce, are more socially conscious. They are more demanding in terms of environment and how that environment contributes to their life.
+ - The architecture profession has lost a lot of its integrity, especially in the USA. The general architect here has no scruples, no ambitions.
+ - We are creating a unique experience. It’s starts with how you see the building from a distance.
+ - I find if my body feels well and I exercise regularly, I think better, work better and feel better.
+ - German and English firms operate internationally, while French firms do not. The only place where they all have work is in China. Anybody can sell himself in China!
+ - A building is hard to judge. It takes many years to find out whether it works. It’s not as simple as asking the people in the office whether they like it.
+ - Sometimes I have to accept a job I don’t really want. Hardly anybody comes up to you with a commission; it’s all competitions these days.
+ - Chinese buildings are like American buildings, with big footprints. People don’t care about daylight or fresh air.
+ - Creativity has more to do with the elimination of the inessential than with inventing something new.
+ - In Europe, architects consider themselves artists. They think they’re special when they win a competition.
+ - It’s my goal to make a building as immaterial as possible. Architecture is a very material thing. It takes a lot of resources, so why not eliminate what you don’t need as long as you’re able to achieve the same result?
+ - When I think of some of my earlier work, it really seems a fortunate coincidence that I succeeded.
+ - Critics are entitled to have an opinion, but how can they judge how comfortable a building is? No critic is smart enough to judge how a building will perform over time.
+ - America has always imported history.
+ - Higher ceilings allow the use indirect lighting, which is much healthier and reduces glare.
+ - You’d never think of taking a cab if you had to walk a mile down Chicago’s Michigan Avenue. But in a bad city you take a cab just to go around the corner.
+ - I’ve never looked at a suburban building as being a minor building and an urban building as being a major building.
+ - When I came to America in the ’60s, it was the place to be. I wonder if I’d come here today.
+ - A city building, you experience when you walk; a suburban building, you experience when you drive.
+ - Most architects say: I want to use this type of glass, even if it’s too reflective or doesn’t let enough light in. However, the use of a certain type of glass might change the comfort level.
+ - The American attitude towards efficiency and execution should always underlie architecture.
+ - You don’t know what the Chinese expect in the way of beauty. The presentation is just a farce. You come into a room filled with 50 people and they don’t talk to you. There’s very little interaction.
+
+29 quotes

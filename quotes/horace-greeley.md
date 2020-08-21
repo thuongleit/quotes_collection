@@ -1,0 +1,46 @@
+ - Fame is a vapor, popularity an accident, and riches take wings. Only one thing endures and that is character.
+ - Common sense is very uncommon.
+ - Go West, young man, go West. There is health in the country, and room away from our crowds of idlers and imbeciles.
+ - Journalism will kill you, but it will keep you alive while you’re at it.
+ - It is impossible to enslave, mentally or socially, a bible-reading people. The principles of the bible are the groundwork of human freedom.
+ - Go West, young man, go West and grow up with the country.
+ - Bigotry is chronic dogmatism.
+ - Washington is not a place to live in. The rents are high, the food is bad, the dust is disgusting and the morals are deplorable. Go West, young man, go West and grow up with the country.
+ - We hope never to live in a Republic where one section is pinned to the other section by bayonets.
+ - We are not one people. We are two peoples. We are a people for Freedom and a people for Slavery. Between the two, conflict is inevitable.
+ - The darkest hour in any man’s life is when he sits down to plan how to get money without earning it.
+ - Morality and religion are but words to him who fishes in gutters for the means of sustaining life, and crouches behind barrels in the street for shelter from the cutting blasts of a winter night.
+ - Apathy is a sort of living oblivion.
+ - Our country right or wrong is an evil motto – what if your country be in the wrong? It will only compound her injury. I wish to serve the republic with an honest and fearless criticism.
+ - I am too sick to be out of bed, too crazy to sleep, and am surrounded by horrors.
+ - There is no bigotry like that of “free thought” run to seed.
+ - Great grief makes sacred those upon whom its hand is laid. Joy may elevate, ambition glorify, but sorrow alone can consecrate.
+ - The best style of writing, as well as the most forcible, is the plainest.
+ - If any young man is about to commence the world, we say to him, publicly and privately, Go to the West.
+ - Printer’s ink is the great apostle of progress, whose pulpit is the press.
+ - I am the inferior of any man whose rights I trample underfoot.
+ - While boasting of our noble deeds we’re careful to conceal the ugly fact that by an iniquitous money system we have nationalized a system of oppression which, though more refined, is not less cruel than the old system of chattel slavery.
+ - The word “rest” is not in my vocabulary.
+ - Stupidity has no friends, and wants none.
+ - You may be witty, but not satirical.
+ - Duty and to-day are ours; results and futurity belong to God.
+ - The darkest day in a man’s career is that wherein he fancies there is some easier way of getting a dollar than by squarely earning it.
+ - The way we do things is to begin.
+ - Ease up, the play is over.
+ - Talent without tact is only half talent.
+ - No amount of preaching, exhortation, sympathy, benevolence, will render the condition of our working women what it should be, so long as the kitchen and needle are substantially their only resources.
+ - The Republic needed to be passed through chastening, purifying fires of adversity and suffering: so these came and did their work and the verdure of a new national life springs greenly, luxuriantly, from their ashes.
+ - Ah! if the pulpit would practice what it preaches, then all would be well.
+ - Men who have great riches and little culture rush into business, because they are weary of themselves.
+ - Answering a letter from a church asking what else they should try after having failed to raise enough money on bake sales, bazaars, suppers, etc. Why not try religion?
+ - Mr. Lincoln is already defeated. He cannot be re-elected.
+ - The best use of a journal is to print the largest practical amount of important truth: truth which tends to make mankind wiser, and thus happier.
+ - Nine-tenths of the world is entertained by scandalous rumors, which are never dissected until they are dead and, when pricked, collapse like an empty bladder.
+ - The illusion that times that were are better than those that are, has probably pervaded all ages.
+ - Money is more trouble than it is worth.
+ - A widow of doubtful age will marry almost any sort of a white man.
+ - There is no doctrine of Christianity but what has been anticipated by the Vedas.
+ - Wisdom is never dear, provided the article be genuine.
+ - I do not regret having braved public opinion, when I knew it was wrong and was sure it would be merciless.
+
+44 quotes

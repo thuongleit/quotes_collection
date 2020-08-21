@@ -1,0 +1,33 @@
+ - You’re never alone when you’re reading a book.
+ - There is something about losing your mother that is permanent and inexpressable – a wound that will never quite heal.
+ - There’s a kind of love that has the power to save you, to get you through life. It’s like breathing. You have to do it or you’ll die. And when it’s over, your soul starts to bleed. There’s no pain in the world like it, I swear.
+ - You are TSTL. I beg your pardon. Too stupid to live.
+ - In all my novels, a sense of place – not just geographic but social – is a critical element. I have always been drawn to the novels of Edith Wharton, among others, where social dynamics are crucial. Wharton’s class consciousness fascinates me, and some of the tension in my books stems from that.
+ - She knew with painful certainty that the opposite of love was not hate, but indifference.
+ - Scary thought – what if I get to know myself and I’m someone I don’t want to be?
+ - Unexpected change is like a breath of fresh air – a little brisk at first, but magic for the body and soul.
+ - I love my life, my family and my friends, and I’m drawn to ‘relationship’ novels because of their affirming focus on the power of love to heal wounds and transform lives.
+ - What’s difficult to understand about German opera? It’s always the same. Boy meets girl, boy falls in love, girl gets devoured by horrible winged creature with claws.
+ - The human heart was such a complex organ, fragile and sturdy all at once.
+ - She watched the gap between ship and shore grow to a huge gulf. Perhaps this was a little like dying, the departed no longer visible to the others, yet both still existed, only in different worlds.
+ - Here’s the thing about broken hearts. You can always survive them. Always. No matter how deep the hurt, the capacity to heal and move on is even stronger.
+ - Fear and love were sometimes the same thing both necessary unavoidable. Now she understood that it was okay to bleed if you know how to heal.
+ - I lived in upstate New York until I was ten years old and we moved overseas. I have a lot of nostalgic memories of that part of the world, and I love going back there by writing the Lakeshore books.
+ - My adult life has been a patchwork of projects, most of which were fleeting fancies of overreaching vision. I tend to seize on things, only to abandon them due to a lack of time, talent or inclination.
+ - Writing is a struggle no matter what the genre.
+ - At the centre of every fairy tale lay a truth that gave the story its power.
+ - I’ve always loved writing emotionally rich, character-driven novels that explore the way people fall in love and deal with life’s triumphs and tragedies. I enjoy writing the contemporary and historical books equally, though perhaps ‘enjoy’ is the wrong word.
+ - Tell the story that’s in your heart, and don’t hold back. Write a book the reader will want to melt into.
+ - When you’re with the person you love, you’re home.
+ - I never felt I was incapable of succeeding because I felt confident I could always learn what I needed to know.
+ - Kids aren’t supposed to have to figure out how to be happy. They just are.
+ - Teachers are by nature idealists, and they believe anything can be learned.
+ - Talent is required, but much of writing is a matter of craft, which develops with time, attention, patience and practice, like playing an instrument or learning to dance.
+ - Everybody’s in love when they’re eighteen. And everybody gets dumped.
+ - An event in the present evokes past sensations. But science couldn’t explain how a foolish heart had the power to overrule common sense.
+ - It is a great virtue to be needed. Greater, even, than being liked.
+ - On Sunday, something washed up on shore.
+ - Honestly, the essence of publishing hasn’t changed. Since the days of the cave man carving stuff on the cave walls, people have wanted stories, and storytellers have wanted an audience. That is still the case. The changes are really a matter of format.
+ - Insults sting but a little when they stem from a man’s ignorance.
+
+31 quotes

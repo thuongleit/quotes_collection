@@ -1,0 +1,101 @@
+ - We have to learn to walk before we can run.
+ - I love you and all your kinky fuckery.
+ - Raising the ordinary to extraordinary.
+ - I’m drawn, Icarus to the sun. I’ve been burned already, and yet here I am again.
+ - There’s a very fine line between pleasure and pain. They are two sides of the same coin, one not existing without the other.
+ - Yes, I’m rich. Get use to it. – Christian Grey.
+ - You have to kiss a lot of frogs before you find your prince.
+ - I gasp, and I’m Eve in the Garden of Eden, and he’s the serpent, and I cannot resist.
+ - I’ve never wanted more, until I met you. – Christian Grey, Fifty Shades of Grey.
+ - You’re the only person I’d fly three thousand miles to see.
+ - I can’t bear to hurt you because I love you.
+ - We always hurt the ones we love, darling.
+ - We aim to please Miss Steele.
+ - Don’t run, please-have a little faith in me and a little patience. Please.
+ - Any relationship that you have is about negotiation – anything – whether there is a written contract or not.
+ - Placing my head on my knees, I let the irrational tears fall unrestrained. I am crying over the loss of something I never had. How ridiculous. Mourning something that never was – my dashed hopes, my dashed dreams, and my soured expectations.
+ - Even a pain in the ass needs someone to care about them.
+ - Sometimes I wonder if there’s something wrong with me. Perhaps I’ve spent too long in the company of my literary romantic heroes, and consequently my ideals and expectations are far too high.
+ - Never trust a man who can dance.
+ - I always want more, with you.
+ - It’s much easier to wear your pain on the outside.
+ - Laters, baby.
+ - We’ve chased the dawn, Anastasia, now the dusk.
+ - But I’m a selfish man. I’ve wanted you since you fell into my office. You are exquisite, honest, warm, strong, witty, beguilingly innocent; the list is endless. I’m in awe of you. I want you, and the thought of anyone else having you is like a knife twisting in my dark soul.
+ - I see your pain. It’s hard knowing that I’m the one that has made you feel this way.
+ - If you were mine, you wouldn’t be able to sit down for a week after the stunt you pulled yesterday.
+ - My inner goddess is jumping up and down, clapping her hands like a five year old.
+ - So you’ve just slept with him, given him your virginity, a man who doesn’t love you. In fact, he has odd ideas about you, wants to make you some sort of kinky sex slave.
+ - Christian, you are the state lottery, the cure for cancer, and the three wishes from Aladdin’s lamp all rolled into one.
+ - Men aren’t really complicated, Ana, honey. They are very simple, literal creatures. They usually mean what they say. And we spend hours trying to analyze what they’ve said – when really it’s obvious. If I were you, I’d take him literally. That might help.
+ - Inside me! I gasp, and all the muscles deep in my belly clench. My inner goddess is doing the dance of the seven veils.
+ - It’s very hard to grow up in a perfect family when you’re not perfect.
+ - I’m going to say hi to my girl now.
+ - Sarcasm is the lowest form of wit.
+ - Once you’re in charge of your job, your house, your children, getting the food on the table, doing all of this, all of the time, it’d be nice for someone else to be in charge for a bit maybe.
+ - Language evolves and moves on. It is an organic thing. It is not stuck in an ivory tower, hung with expensive works of art.
+ - God forbid that women have fantasies.
+ - Man can hope, dream even.
+ - What is it about elevators?
+ - I’m intoxicated with this man, my man, my Fifty Shades.
+ - Just remember that men are from a different planet, and you’ll be fine.
+ - I want my world to start and end with you.
+ - I just want to bury myself in you and just forget everything but us.
+ - I’ve never felt the way I felt when you left, Anastasia. I would move heaven and earth to avoid feeling like that again.
+ - What a time to have a brain-to-mouth filter malfunction.
+ - I think you can only be truly mad at someone you really love. – Grace Trevelyan.
+ - I’ve kissed a prince, Mom. I hope it doesn’t turn into a frog.
+ - To: Christian Grey You’ve made me cry again. I love the iPad. I love the songs. I love the British Library App. I love you. Goodnight. Ana xx.
+ - I do not look at the world in terms of black and white – and I find people who do rather scary. I think it’s all shades of grey.
+ - He makes me graceful, that’s his skill. He makes me sexy, because that’s what he is. He makes me feel loved, because in spite of his fifty shades, he has a wealth of love to give.
+ - And in this quiet moment, as I close my eyes, spent and sated, I think I’m in the eye of the storm. And in spite of all he’s said and what he hasn’t said, I don’t think I have ever been so happy.
+ - Three little words. My world stands still, tilts, then spins on a new axis.
+ - He’s naked except for those soft ripped jeans, top button casually undone. Jeez, he looks so freaking hot. My subconscious is frantically fanning herself, and my inner goddess is swaying and writhing to some primal carnal rhythm.
+ - My inner goddess is doing the merengue with some salsa moves.
+ - Miss Steele, I do believe you’re making my palm twitch.
+ - Why does he have such an unnerving effect on me? His over-whelming good looks maybe? The way his eyes blaze at me? The way he strokes his index finger against his lower lip? I wish he’d stop doing that.
+ - Your lips are so soft when you cry.
+ - Who’s he kidding? He’s no gentleman. He has my panties.
+ - How does he do this to me? He’s just touching a small area of my body and the hormones are flying.
+ - I’d like to bite that lip.
+ - The only man I’ve ever been attracted to, and he comes with a bloody contract, a flogger, and a whole world of issues.
+ - My subconscious is furious, medusa-like in her anger, hair flying, her hands clenched around her face like Edvard Munch’s Scream.
+ - I’ve set the bar quite high in terms of storytelling.
+ - A controlling man, surely a mythical creature?
+ - You see, Ana men think that anything that comes out of a woman’s mouth is a problem to be solved. Not some vague idea that we’d like to kick around and talk about for a while and then forget. Men prefer action.
+ - My belief is to achieve success in any scheme one has to make oneself master of that scheme, know it inside and out, know every detail.
+ - My favorite sound in the whole world is your giggle, Anastasia.
+ - There is something about Christian that is old-fashioned and romantic.
+ - He’s like several different people in one body. Isn’t that a symptom of schizophrenia? I must Google that.
+ - His words make me squirm. He wouldn’t dare! He and his twitchy palm.
+ - I’m not a great writer.
+ - He does, and his eyes shoot to mine, wide and gray, alive with wonder and joy. His lip part in disbelief. The word YES flashes on and off on the key ring. “Happy birthday”, I whispered.
+ - Supposing I’ve said I hate him, or worse still, that I love him, in my sleep.
+ - I’m looking forward to getting back to my house and my Ugg boots and not washing sometimes, and getting back to writing.
+ - From his inside jacket pocket he produces a ring and gazes up at me, his eyes bright gray and raw, full of emotion. “Anastasia Steele, I love you. I want to love, cherish and protect you for the rest of my life. Be mine. Always. Share my life with me. Marry me”.
+ - If you’ve been married for 400 years, as I have, it’s nice to experience first love again and you can vicariously through a book.
+ - I cannot be with someone who takes pleasure in inflicting pain on me, someone who can’t love me.
+ - Well, when you were nearly run over by the cyclist-and i was holding you and you were looking up at me – all ’kiss me, kiss me, Christian.
+ - I Ignore the unwelcome stab of disappointment. Why do I want to spend every single minute with this controlling sex god? Oh yes, I’ve fallen in love with him, and he can fly.
+ - Oh my, the look he gives me could be solely responsible for global warming.
+ - Stow your twitchy palm!
+ - I love him. Simple.
+ - I struggle to keep up with him because my wits have been thoroughly and royally scattered all over the floor and walls of elevator three in the Heathman Hotel.
+ - Perhaps Mr. Grey insists on all his employees being blonde. I’m wondering idly if that’s legal.
+ - Oh no! My subconscious slams down her Complete Works of Charles Dickens, leaps up from her armchair, and puts her hands on her hips.
+ - My inner goddes has her sequins on and is warming up to dance the rumba.
+ - Crusty and Cross here,? he says and I grin. He’s still playful Fifty. My inner goddess is clapping her hands with glee like a small child.
+ - I think virgins are far more interesting to write about. If we’ve been around the block a few times, we know what to expect. Not so with virgins.
+ - I don’t know any other way. Anastasia. This is who I am.
+ - Interviews seem like such artificial situations, everyone on their best behavior trying desperately to hide behind a professional facade. Did my face fit? I shall have to wait and see.
+ - Anatasia You Are My More My Love, My Life Christian.
+ - All a writer wants is to be read, and people are so flattering and lovely. I mean, there are witches out there as well. But most are so kind.
+ - He pulls up outside my duplex. I belatedly realize he’s not asked me where I live – yet he knows. But then he sent the books, of course he knows where I live. What able, cell-phone-tracking, helicopter owning, stalker wouldn’t.
+ - The best person to write for is yourself – and what better place to start than in a journal.
+ - I came up with a story and I wrote it.
+ - I think women love to read love stories.
+ - Women basically want the same thing – a good passionate story, a great fantasy – and for our partners to do the laundry and the washing up.
+ - Oh my.
+ - I really like clever men who challenge you.
+
+99 quotes

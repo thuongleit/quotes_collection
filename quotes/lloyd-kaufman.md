@@ -1,0 +1,26 @@
+ - I believe that independent film making is the last frontier of creative expression available. So I’m always willing to lend a helping hand to a young film maker who’s just getting into the business.
+ - Mickey Mouse should be in the public domain by now. What a better world it would be if other people were doing things with Mickey Mouse!
+ - I hope that all new filmmakers see that the Internet and social media are helpful tools in establishing a fan base as well as being able to interact with your fans.
+ - I like fat people more then I like thin people, things are always a lot more funnier when they happen to fat people.
+ - The nice thing about piracy is, it allows the public to get independent art, to get a variety of music and movies.
+ - I didn’t even know what a film director was. To me, Charlie Chaplin was a goofy clown, and John Ford – what? Never heard of him.
+ - Comedy is not commercial; it is risky, because what is funny in one place isn’t always funny somewhere else.
+ - If someone offered me a hundred million dollars to make a movie? I would first remind him that there are 850 million people in the world who don’t have enough to eat.
+ - The person who goes to the Troma movie knows that he or she may love the Troma movie or, he or she may hate the Troma movie; but the movie goer knows that he or she will never forget the Troma movie.
+ - If Shakespeare had lived in our age, he would have been sued for writing Romeo And Juliet, because as everybody knows, he plagiarized that from an Italian play.
+ - The dean of the American Film Institute has written that I’m one of the very few auteurs in America. I’ve had freedom for 40 years to create art that is totally personal and is what I believe in.
+ - If you’re an independent, you don’t get on TV. And in the rare instances that you do get on, you get a fraction of what that very same movie would get if it came in through Fox or Viacom.
+ - Luckily, I’ve never been offered a directing job that was lucrative. I’ve never heard, “Here’s $800,000 to remake Sisters.”
+ - I majored in Chinese Studies. I’m probably the only director of chicken Indian zombie movies who can speak pretty good Mandarin.
+ - I was going to be a teacher and improve the world. Teach people with hooks for hands to fingerpaint, and teach bums to draw happy faces on beads.
+ - The thing I find about the movie industry is that 99 percent of the people are absolute scum. They’re horrible people, they really are. Very nasty killer rabbits who hate movies. But the other 1 percent are really the greatest, most wonderful people in the world.
+ - Movies are art and the spirit of the movie depends on the creators.
+ - My favorite film is always the one that I most recently worked on.
+ - I would only make a movie that I believe in. If I didn’t believe in it, it would be unworthy.
+ - My roommate at Yale University introduced me to the auteur theory of filmmaking. I soon became a big fan of the works of John Ford, Kenji Mizoguchi, Ernst Lubitsch, and Stan Brakhage. I then decided to make my own films!
+ - In our racist, sexist society, Christmas is the 8 hours when we stop killing each other and gratuitous over eating is encouraged so that the starving and other people in the world can die!
+ - I’m from the ’60s, but no one has ever accused me of being a hippie. I never had much interest in the Woodstock crowd, which partied to change the world, while real people were starving to death in Africa.
+ - There is no way I could have ever dared to make a documentary, much less have the money to make a documentary, if it was on 16mm. But, with the magic of digital.
+ - The first time I took acid, I made the decision that I would stay in New York and find an independent film company to get a job with.
+
+24 quotes

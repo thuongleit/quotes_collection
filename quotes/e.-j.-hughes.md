@@ -1,0 +1,24 @@
+ - One of the main reasons I paint is because I think nature is so wonderful. I want to try to get my feelings of that down on canvas, if possible.
+ - If I didn’t have a conviction that a serious painter can portray Nature more profoundly than the best colour photography, I’d probably give it all up or go abstract or take up photography.
+ - I am hoping that, with the added wisdom of old age, I can still look ahead for an improvement in tone, line, colour and composition.
+ - My goal is to make all my paintings clear and realistic, even more understandable than a photograph.
+ - It takes more time to rework a painting than it takes to fill in the canvas in the first place. I wish I could get them all right with the first coat like many of the old masters could, but seem destined to have to rework to make them even passable.
+ - I’m going to just sit down for a couple of weeks and do nothing but read who-dunnits and Art books. I feel my work is getting a bit dull and mechanical and this proposed resting should work up some enthusiasm in me.
+ - Worry, about the ‘thousand and one’ details entailed. My one-track mind has to be relieved of these worries completely or I cannot get started working on my paintings, or even get to sleep at night.
+ - I don’t know just what, but there will have to be some drastic changes made besides cutting down on boating to get my mind more on painting.
+ - Unfortunately when I start to talk or when someone watches over my shoulders my pencil either stops or I draw meaningless lines.
+ - As you can see, at my age – 48 – Art is still one big experiment.
+ - It feels much better to me to think that an artist is working to show his appreciation of what already has been created than creating things himself.
+ - It is definitely mostly due to the invention of the camera that all this design and emphasized paint quality have come into painting.
+ - The primitive style makes nature look like stage scenery.
+ - I’ve found from years of trial that the only way I can work is to make sketches in pencil from Nature, purely as reference material for future use in the studio.
+ - When I see these primitive effects coming into my pictures subconsciously, even though the perspective may be slightly out, I leave them in if it helps the general composition.
+ - The small figures that appear in my paintings are there only because they were there when I was working from nature on my preliminary sketches with pencil.
+ - It is a matter mostly of having the time to spare from my finished paintings to put in on travelling and sketching out of doors.
+ - I hope my work isn’t dismissed by the critics as illustration or photography.
+ - Leonardo’s Mona Lisa sure would have lost out if he had spent only 2 of the 4 or 5 years he took to complete it. It is thinking about him and Ryder, among others, that partly makes me feel so awful to send away a ‘half-baked’ painting.
+ - One of the things I like about our contract is that you have relieved me of a great deal of personal interviewing and corresponding, among other things, which allows me a lot more time for painting.
+ - I am trying to get my paintings a bit lighter in tone, as some of my recent oils have been mistaken for night scenes.
+ - I felt landscapes would sell more readily, and not being equipped psychologically to be a teacher or commercial artist, that was important.
+
+22 quotes

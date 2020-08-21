@@ -1,0 +1,29 @@
+ - Be an artist of consciousness. Your picture of reality is your most important creation. Make it powerfully profoundly beautiful.
+ - The good that binds us is Love, it comes from our Soul, it flows through our center, and connects us with everything.
+ - The purpose of truly transcendent art is to express something you are not yet, but something that you can become.
+ - In a society that tries to standardize thinking, individuality is not highly prized.
+ - I felt I had dissolved into a pure energy state and become one with the magnetic field surrounding the earth.
+ - Share your presence with others, no boundaries, completely, openly, lovingly. Love is what makes us alive.
+ - You are one with the same force that provides the spiral arms of the galaxy. That universal creativity. It’s also what you are as well. And when the mystic eye is open and sees that, a person is forever changed !
+ - Realism and Naturalism rely mostly on the eye of the flesh. Abstract, conceptual and surrealistic art rely mostly on the eye of the mind. Great works of art rely on the eye of contemplation, the eye of the spirit.
+ - I acknowledge the privilege of being alive in a human body at this moment, endowed with senses, memories, emotions, thoughts, and the space of mind in its wisdom aspect.
+ - The web of life, love, suffering and death unites all beings.
+ - The cosmos is evolving toward greater self-reflection, allowing us to open the eye of Spirit and see our source.
+ - To bare our souls is all we ask, to give all we have to life and the beings surrounding us. Here the nature spirits are intense and we appreciate them, make offerings to them – these nature spirits who call us here – sealing our fate with each other, celebrating our love.
+ - Love, consciousness, and creativity are the highest refinements of the cosmic evolutionary force.
+ - It is very easy to take for granted the phenomenon that we are each alive, but we must try not to.
+ - Art is a delivery system for worldviews.
+ - Artists are most themselves when they are out of their minds, transcending the ego skirmishes of conceptual thought, and intuitively relinquishing control to the greater Creator.
+ - The infinite vibratory levels, the dimensions of interconnectedness are without end. There is nothing independent. All beings and things are residents in your awareness.
+ - I think that that’s why artists make art – it is difficult to put into words unless you are a poet. What it takes is being open to the flow of universal creativity. The Zen artists knew this.
+ - Life is a wave of creative consciousness rippling through space and time that we have the honor of aesthetically surfing.
+ - The creative principle is less about dogma and more about opening ourselves to the evolution of consciousness.
+ - Journeying through secret doors, curving corridors, and connecting rooms into the mountain was like being digested by the different organs of a deity.
+ - Do solemnly swear to love, honor and obey my soul, my path to realization and relationship with a higher, deeper creative power, for better or worse, for richer or poorer, in sickness and in health, from now and forever more.
+ - When artists give form to revelation, their art can advance, deepen and potentially transform the consciousness of their community.
+ - The inevitable consequence of love is the building of temples.
+ - When we gaze into the eyes of our beloved, we’re staring into the eyes of a sacred mirror, and we recognize our oneness.
+ - It was 1975. I had spent the year at the Boston Museum School doing some very bizarre performance works. The last one included going to the North Magnetic Pole and spending all of my money.
+ - It is the prayer of my innermost being to realize my supreme identity in the liberated play of consciousness, the Vast Expanse. Now is the moment, Here is the place of Liberation.
+
+27 quotes

@@ -1,0 +1,100 @@
+ - Music is moonlight in the gloomy night of life.
+ - Humanity is never so beautiful as when praying for forgiveness, or else forgiving another.
+ - Repetition is the mother of education.
+ - You prove your worth with your actions, not with your mouth.
+ - The German language is the organ among the languages.
+ - The guardian angels of life sometimes fly so high as to be beyond our sight, but they are always looking down upon us.
+ - Paradise is always where love dwells.
+ - Without God there is for mankind no purpose, no goal, no hope, only a wavering future, an eternal dread of every darkness.
+ - In women everything is heart, even the head.
+ - People will not bear it when advice is violently given, even if it is well founded. Hearts are flowers; they remain open to the softly falling dew, but shut up in the violent downpour of rain.
+ - Art is indeed not the bread but the wine of life.
+ - The darkness of death is like the evening twilight; it makes all objects appear more lovely to the dying.
+ - Never part without loving words to think of during your absence. It may be that you will not meet again in this life.
+ - Because the heart beats under a covering of hair, of fur, feathers, or wings, it is, for that reason, to be of no account?
+ - Laughing cheerfulness throws the light of day on all the paths of life.
+ - For sleep, riches and health to be truly enjoyed, they must be interrupted.
+ - Joys are our wings, sorrows our spurs.
+ - A timid person is frightened before a danger, a coward during the time, and a courageous person afterward.
+ - Every friend is to the other a sun, and a sunflower also. He attracts and follows.
+ - Like a morning dream, life becomes more and more bright the longer we live, and the reason of everything appears more clear. What has puzzled us before seems less mysterious, and the crooked paths look straighter as we approach the end.
+ - We learn our virtues from our friends who love us; our faults from the enemy who hates us. We cannot easily discover our real character from a friend. He is a mirror, on which the warmth of our breath impedes the clearness of the reflection.
+ - Our birthdays are feathers in the broad wing of time.
+ - Only deeds give strength to life, only moderation gives it charm.
+ - Jesus is the purest among the mighty, and the mightiest among the pure, who, with his pierced hand has raised empires from their foundations, turned the stream of history from its old channel, and still continues to rule and guide the ages.
+ - The gymnasium of running, walking on stilts, climbing, etc. stells and makes hardy single powers and muscles, but dancing, like a corporeal poesy, embellishes, exercises, and equalizes all the muscles at once.
+ - Recollection is the only paradise from which we cannot be turned out.
+ - Passion makes the best observations and the sorriest conclusions.
+ - Romanticism is beauty without bounds-the beautiful infinite.
+ - Man’s feelings are always purest and most glowing in the hour of meeting and of farewell.
+ - The miracle on earth are the laws of heaven.
+ - Flowers never emit so sweet and strong a fragrance as before a storm. When a storm approaches thee, be as fragrant as a sweet-smelling flower.
+ - The conscience of children is formed by the influences that surround them; their notions of good and evil are the result of the moral atmosphere they breathe.
+ - Men, like bullets, go farthest when they are smoothest.
+ - Each departed friend is a magnet that attracts us to the next world.
+ - A man never discloses his own character so clearly as when he describes anothers.
+ - Sorrows are like thunderclouds, in the distance they look black, over our heads scarcely gray.
+ - Strong characters are brought out by change of situation, and gentle ones by permanence.
+ - Universal love is a glove without fingers, which fits all bands alike and none closely; but true affection is like a glove with fingers, which fits one hand only, and sits close to that one.
+ - Memory, wit, fancy, acuteness, cannot grow young again in old age, but the heart can.
+ - There are souls which fall from heaven like flowers, but ere they bloom are crushed under the foul tread of some brutal hoof.
+ - Like the greatest virtue and the worst dogs, the fiercest hatred is silent.
+ - The last, best fruit which comes to late perfection, even in the kindliest soul, is tenderness toward the hard, forbearance toward the unforbearing, warmth of heart toward the cold, philanthropy toward the misanthropic.
+ - Courage consists not in blindly overlooking danger, but in seeing it, and conquering it.
+ - A variety of nothing is superior to a monotony of something.
+ - There are souls in this world which have the gift of finding joy everywhere and of leaving it behind them when they go.
+ - Death gives us sleep, eternal youth, and immortality.
+ - Individuality is to be preserved and respected everywhere, as the root of everything good.
+ - The end we aim at must be known, before the way can be made.
+ - As winter strips the leaves from around us, so that we may see the distant regions they formerly concealed, so old age takes away our enjoyments only to enlarge the prospect of the coming eternity.
+ - It is simpler and easier to flatter people than to praise them.
+ - As a man grows older it is harder and harder to frighten him.
+ - Education should bring to light the ideal of the individual.
+ - I would rather dwell in the dim fog of superstition than in air rarefied to nothing by the air-pump of unbelief-in which the panting breast expires, vainly and convulsively gasping for breath.
+ - A sky full of silent suns.
+ - Has it never occurred to us, when surrounded by sorrows, that they may be sent to us only for our instruction, as we darken the eyes of birds when we wish them to sing?
+ - Every man has a rainy corner of his life whence comes foul weather which follows him.
+ - The words that a father speaks to his children in the privacy of home are not heard by the world, but, as in whispering galleries, they are clearly heard at the end, and by posterity.
+ - Whenever, at a party, I have been in the mood to study fools, I have always looked for a great beauty: they always gather round her like flies around a fruit stall.
+ - The burden of suffering seems a tombstone hung about our necks, while in reality it is only the weight which is necessary to keep down the diver while he is hunting for pearls.
+ - The heart needs not for its heaven much space, nor many stars therein, if only the star of love has arisen.
+ - Joy descends gently upon us like the evening dew, and does not patter down like a hailstorm.
+ - Sorrows gather around great souls as storms do around mountains; but, like them, they break the storm and purify the air of the plain beneath them.
+ - Ah! The seasons of love roll not backward but onward, downward forever.
+ - Variety of mere nothings gives more pleasure than uniformity of something.
+ - Beauty attracts us men; but if, like an armed magnet it is pointed, beside, with gold and silver, it attracts with tenfold power.
+ - Love lessens woman’s delicacy and increases man’s.
+ - It is not the end of joy that makes old age so sad, but the end of hope.
+ - Every man regards his own life as the New Year’s Eve of time.
+ - Poverty is the only load which is the heavier the more loved ones there are to assist in bearing it.
+ - The romance of life begins and ends with two blank pages. Age and extreme old age.
+ - What makes old age so sad is not that our joys but our hopes cease.
+ - The purer the golden vessel, the more readily is it bent; the higher worth of woman is sooner lost than that of man.
+ - Fancy rules over two thirds of the universe, the past, and future, while reality is confined to the present.
+ - Age doesn’t matter, unless your cheese.
+ - There is a joy in sorrow which none but a mourner can know.
+ - God is an unutterable sigh, planted in the depths of the soul.
+ - If self-knowledge is the road to virtue, so is virtue still more the road to self-knowledge.
+ - Remembrances last longer than present realities.
+ - Despair is the only genuine atheism.
+ - Never write on a subject without first having read yourself full on it; and never read on a subject till you have thought yourself hungry on it.
+ - Gray hairs seem to my fancy like the soft light of the moon, silvering over the evening of life.
+ - Man has here two and a half minutes-one to smile, one to sigh, and a half to love: for in the midst of this minute he dies.
+ - A loving maiden grows unconsciously more bold.
+ - No heroine can create a hero through love of one, but she can give birth to one.
+ - How narrow our souls become when absorbed in any present good or ill! It is only the thought of the future that makes them great.
+ - A scholar knows no boredom.
+ - The look of a king is itself a deed.
+ - Woman and men of retiring timidity are cowardly only in dangers which affect themselves, but the first to rescue when others are in danger.
+ - I have made as much out of myself as could be made of the stuff, and no man should require more.
+ - What Cicero said of men-that they are like wines, age souring the bad, and bettering the good-we can say of misfortune, that it has the same effect upon them.
+ - In science the new is an advance; but in morals, as contradicting our inner ideals and historic idols, it is ever a retrogression.
+ - See, indeed, that your daughter is thoroughly grounded and experienced in household duties; but take care, through religion and poetry, to keep her heart open to heaven.
+ - For no one does life drag more disagreeably than for those who try to speed it up.
+ - The Infinate has sowed His name in the heavens in burning stars, but on earth He has sowed His name in tender flowers.
+ - With so many thousand joys, is it not black ingratitude to call the world a place of sorrow and torment?
+ - Two aged men, that had been foes for life, Met by a grave, and wept – and in those tears They washed away the memory of their strife; Then wept again the loss of all those years.
+ - Nations and men are only the best when they are the gladdest, and deserve heaven when they enjoy it.
+ - Humankind’s chief fault is that they have so many small ones.
+
+98 quotes

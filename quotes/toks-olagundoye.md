@@ -1,0 +1,21 @@
+ - We are all different and that’s okay.
+ - I don’t t drink coffee, but I’m a tea addict.
+ - People tend to comment on my feet a lot. In daily life.
+ - The only way to come to a full acceptance and understanding of yourself is to embrace your own culture, quirks and differences while learning about those around you and exploring, incorporating and embracing their cultures, differences, quirks, etcetera.
+ - Be sure of what you want, focus, work hard, be ready to pick yourself up, do not take rejection personally, be as prepared as you can, always be learning, and eliminate negative people from your life regardless of who they are.
+ - I was a musical theatre geek in high school and college.
+ - Basically, we are all different and we all have something to learn and it doesn’t mean people need to change who you are but one should be open to new things and, above all, tolerance and understanding are essential for growth and happiness.
+ - I pretty much only wear high heels.
+ - All my friends are funny, witty, fun-loving people. As are my parents, and the people I work with. I get at least a couple of good laughs in every day.
+ - I was born and raised in Nigeria. We lived in England when I was 3 and 4, and I would go to summer school every year in Switzerland.
+ - Not to be purple, but I’ve never been a ‘bad boy’ kind of girl. I like manners.
+ - You’re able to do more when you’re not clouded with wasted anxiety.
+ - I just have fun doing what I do. If it looks like a good time, I’m up for it!
+ - Other people do better going on to grad school and others yet are naturally inclined and do just fine without any formal training at all. Everyone is different. The only things I think are imperative are focus, determination and hard work.
+ - I’m an avid shoe fan. I got my first pair of Louboutins as a birthday gift from Jami Gertz.
+ - I love being an actor and a job is a job, and I’m always happy to have a job.
+ - I identify myself as a Nigerian because that is where I was born and raised and where my family still lives.
+ - I don’t believe in paying full price for clothing.
+ - I’m more likely to try and tackle a fear than let it control me.
+
+19 quotes

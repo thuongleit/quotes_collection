@@ -1,0 +1,35 @@
+ - For me, cooking is an expression of the land where you are and the culture of that place.
+ - A lot of restaurants serve good food, but they don’t have very good service.
+ - One thing I always say is being a great chef today is not enough – you have to be a great businessman.
+ - Prep things in advance so that you don’t have to cook everything at the last moment.
+ - When you have made as many mistakes as I have, then you can be as good as me.
+ - Cooking is like painting or writing a song. Just as there are only so many notes or colors, there are only so many flavors – it’s how you combine them that sets you apart.
+ - There is no value with just one restaurant or with one person. The brand has to be bigger than the person.
+ - A good chef has to be a manager, a businessman and a great cook. To marry all three together is sometimes difficult.
+ - Only you can judge your life. You have to live up to your own expectations.
+ - Italian food is all about ingredients and it’s not fussy and it’s not fancy.
+ - A chef is a mixture maybe of artistry and craft. You have to learn the craft really to get there.
+ - When you meet someone, ask about what hobby they have, not what they do. People always ask me about cooking, but I prefer to talk about tennis or boxing.
+ - I really love Paris. It’s my favorite city.
+ - I like the Japanese knives, I like French knives. Whatever’s sharp.
+ - I grew up so poor in Austria that we never took a vacation with my family.
+ - Young people want to be famous before they know how to cook, before they know how to treat people, before they know what hospitality means. I stayed in France for seven years and Austria for three, so before I was a chef anywhere I was already cooking for 10 years.
+ - For me, I don’t expect to have a really amazing meal each time I dine out. Having a good meal with your loved ones – that’s what makes the experience.
+ - Restaurants are like having children: its fun to make them, maybe, but then you have them for good and bad. You are going to have to raise them and if something goes wrong when they are 30 years old, they will still be your little boy.
+ - There’s a lot of processed food in America and I know that can make some tourists who’re used to fresh food feel sick.
+ - To me, an airplane is a great place to diet.
+ - I think it’s really important to keep on staying motivated.
+ - I learn more from the one restaurant that didn’t work than from all the ones that were successes.
+ - I like to be firm. But it is easier to be nice than to be nasty.
+ - Television in the ’80s was very limited. There was no Food Network.
+ - Now everybody thinks that once you do Top Chef, then 13 weeks later you’re a chef. Nobody wants to learn to cook anymore.
+ - What I don’t like is breakfast in the morning. I have a double-espresso cappuccino, but no food.
+ - I think the time of the formal dinners is over.
+ - When I was 27, if I didn’t put 15 things in one dish I wasn’t happy.
+ - I left school when I was 14 to work in kitchens.
+ - A lot of chefs are traditional and do it very well. But the ones who are the most successful are the ones who change things. That is why someone like Heston Blumenthal is a genius.
+ - The most important thing for me is to really buy the best ingredient.
+ - I tell everybody the same thing: You have to make every dish so when you taste it, you should remember it when you go home.
+ - I believe that London is the most exciting food city in Europe.
+
+33 quotes

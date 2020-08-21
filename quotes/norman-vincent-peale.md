@@ -1,0 +1,360 @@
+ - Change your thoughts and you change your world.
+ - The trouble with most of us is that we would rather be ruined by praise than saved by criticism.
+ - If you want things to be different, perhaps the answer is to become different yourself.
+ - Live your life and forget your age.
+ - The more you lose yourself in something bigger than yourself, the more energy you will have.
+ - A peaceful mind generates power.
+ - When a problem comes along, study it until you are completely knowledgeable. Then find that weak spot, break the problem apart, and the rest will be easy.
+ - It’s always too early to quit.
+ - Yesterday ended last night. Every day is a new beginning. Learn the skill of forgetting. And move on.
+ - Affirm it, visualize it, believe it and it will actualize itself.
+ - Watch your manner of speech if you wish to develop a peaceful state of mind. Start each day by affirming peaceful, contented and happy attitudes and your days will tend to be pleasant and successful.
+ - The first step is to fill your life with positive faith that will help you through anything. The second step is to start where you are.
+ - Our happiness depends on the habit of mind we cultivate. So practice happy thinking every day. Cultivate the merry heart, develop the happiness habit, and life will become a continual feast.
+ - The really happy people are those who have broken the chains of procrastination, those who find satisfaction in doing the job at hand. They’re full of eagerness, zest, productivity. You can be, too.
+ - People become really quite remarkable when they start thinking that they can do things. When they believe in themselves they have the first secret of success.
+ - Learn to relax. Your body is precious, as it houses your mind and spirit. Inner peace begins with a relaxed body.
+ - The way to happiness: Keep your heart free from hate, your mind from worry. Live simply, expect little, give much. Scatter sunshine, forget self, think of others. Try this for a week and you will be surprised.
+ - Become a possibilitarian. No matter how dark things seem to be or actually are, raise your sights and see possibilities – always see them, for they’re always there.
+ - Any fact facing us is not as important as our attitude toward it, for that determines our success or failure.
+ - The greatest risk in life is to risk nothing. The person who risks nothing, does nothing, has nothing, is nothing and becomes nothing.
+ - Christmas is the season of joy, of holiday greetings exchanged, of gift-giving, and of families united.
+ - Repetition of the same thought or physical action develops into a habit which, repeated frequently enough, becomes an automatic reflex.
+ - When you expect the best you release a magnetic force in your mind which by a law of attraction tends to bring the best to you.
+ - The only people who don’t have problems are in a cemetery.
+ - There is nothing in life so difficult that it cannot be overcome. This faith can move mountains. It can change people. It can change the world. You can survive all the great storms in your life.
+ - Let go and let God. Let Him take over your life and run it. He knows how.
+ - If you want to get somewhere you have to know where you want to go and how to get there. Then never, never, never give up.
+ - Think excitement, talk excitement, act out excitement, and you are bound to become an excited person.
+ - Action is a great restorer and builder of confidence. Inaction is not only the result, but the cause, of fear.
+ - The mind, ever the willing servant, will respond to boldness, for boldness, in effect, is a command to deliver mental resources.
+ - When obstacles or difficulties arise, the positive thinker takes them as creative opportunities.
+ - Every problem contains the seed of it’s own solution.
+ - Negative thinking definitely attracts negative results.
+ - Whenever a negative thought concerning your personal power comes to mind, deliberately voice a positive thought to cancel it out.
+ - To be successful is to be helpful, caring and constructive, to make everything and everyone you touch a little bit better.
+ - Worry is an unhealthy and destructive mental habit.
+ - Go at life with abandon; give it all you’ve got. And life will give all it has to you.
+ - Christmas waves a magic wand over this world, and behold, everything is softer and more beautiful. 
+ - Begin where you are. Don’t wait for someone else to change things for you. Do it yourself.
+ - There is a real magic in enthusiasm. It spells the difference between mediocrity and accomplishment.
+ - Nobody ever mastered any skill except through intensive persistent and intelligent practice.
+ - You can have peace of mind, improved health and an ever-increasing flow of energy. Life can be full of joy and satisfaction.
+ - Every person, if he is to have mental health and live successfully, must move away from past failures and mistakes and go forward without letting them be a weight upon him. The art of forgetting is absolutely necessary.
+ - You must feed your mind even as you feed your body, and to make your mind healthy, you must feed it nourishing, wholesome thoughts.
+ - Forget the mistakes of the past and press on to the greater achievements of the future. Give everyone a smile. Spend so much time improving yourself that you have no time left to criticize others. Be too big for worry and too noble for anger.
+ - If you put off everything till you’re sure of it, you’ll never get anything done.
+ - Plan your work – work your plan. Lack of system produces that ‘I’m swamped’ feeling.
+ - All successful people have a goal. No one can get anywhere unless he knows where he wants to go and what he wants to be or do.
+ - Every day practice emptying your mind of all unhealthy attitudes.
+ - Expect the best and get it.
+ - God answers prayer in three ways: yes, no, and wait awhile.
+ - Make a mental list of happy thoughts and pass them through your mind several times every day.
+ - Plant seeds of expectation in your mind; cultivate thoughts that anticipate achievement. Believe in yourself as being capable of overcoming all obstacles and weaknesses.
+ - Life is not all fun and easy going. Far from it; there are many rough times. But, sadly, we too often let the hard times dull our enthusiasm. And that is dangerous, if not fatal, to our lives.
+ - Never talk defeat. Use words like hope, belief, faith, victory.
+ - People who are really efficient seem to do things easily, with a minimum of effort. In doing so they release maximum power.
+ - Nothing is more confusing than people who give good advice but set a bad example.
+ - The as if principle works. Act as if you were not afraid and you will become courageous, as if you could and you’ll find you can. Act as if you like a person and you’ll find a friendship.
+ - Old unhealthy thoughts can block off inspiration and motivation. Dropping them releases a strong flow of power through the mind.
+ - Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you.
+ - Let a series of happy thoughts run through your mind. They will show on your face.
+ - To go fast, row slowly.
+ - I believe in the power of Jesus Christ to resolve any difficulty, to remove any weakness, to heal any disease.
+ - If you paint in your mind a picture of bright and happy expectations, you put yourself into a condition conducive to your goal.
+ - Think health, eat sparingly, exercise regularly, walk a lot, and think positively about yourself.
+ - It is a fact that you project what you are.
+ - Do not build up obstacles in your imagination. Difficulties must be studied and dealt with, but they must not be magnfiied by fear.
+ - Never react emotionally to criticism. Analyze yourself to determine whether it is justified. If it is, correct yourself. Otherwise, go on about your business.
+ - To change your circumstances, first start thinking differently. Do not passively accept unsatisfactory circumstances, but form a picture in your mind of circumstances as they should be. Believe and succeed.
+ - Hold an image of the life you want, and that image will become fact.
+ - If you think in positive terms, you will achieve positive results.
+ - Fear is never a reason for quitting; it is only an excuse.
+ - Nothing of great value in this life comes easily. The things of highest value sometimes come hard. The gold that has the greatest value lies deepest in the earth, as do the diamonds.
+ - Believe that problems do have answers, that they can be overcome, and that you can solve them.
+ - Check what you did right and don’t get lost in basking on your glory. It will make it easier to repeat whatever you did that created the success.
+ - You’ll always get an idea if you think and don’t panic.
+ - Throw your heart over the fence and the rest will follow.
+ - The negative principle negates. The positive principle creates. The negative principle doubts. The positive principle believes. The negative principle accepts defeat. The positive principle goes for victory.
+ - Expect great things, and great things will come.
+ - Before you go to sleep, run over your personal world mentally and thank God for everyone and everything.
+ - Fill the day with enthusiasm. Give the day all you’ve got and it will give you all it’s got, which will be plenty.
+ - Scatter good will and love and prayers all around, everywhere, and you will be astonished, not only by what it does for other people, but how it comes back to you in generous abundance.
+ - Nothing of great value in this life comes easily.
+ - The cyclone derives its powers from a calm center. So does a person.
+ - There is only one person with whom to compete and that is yourself. Keep aiming to surpass your own best performance and ever strive to reach higher levels.
+ - Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy.
+ - Silence fertilizes the deep place where personality grows. A life with a peaceful center can weather all storms.
+ - Remember: what you think you will become – good or bad, weak or strong, defeated or victorious.
+ - Practice hope. As hopefulness becomes a habit, you can achieve a permanently happy spirit.
+ - Dwelling on negative thoughts is like fertilizing weeds.
+ - We tend to get what we expect.
+ - Constantly reemphasize to yourself the great fact that God built potential strength into your nature. By affirming it and practicing it, this basic strength will toughen up as muscles do.
+ - Never allow sick attitudes to poison your thinking, nor let ill will make you ill. Avoid making your mind sore by that painful rehurting called resentment.
+ - In adversity keep motivated, for often the best comes from difficulty.
+ - When learning stops, decay sets in.
+ - Stop resisting your problems so furiously in your mind. Stop struggling to solve them. If you do that, a great sense of peace followed by a great sense of power will come to you.
+ - Any action is better than no action at all.
+ - The controlled person is a powerful person. He who always keeps his head will get ahead.
+ - Take a new look at your present “impossible.” Consider positive ways to handle it.
+ - How you think about a problem is more important than the problem itself. So always think positively.
+ - There is only one group of people who do not have problems, and they are all dead. Problems are a sign of life, so the more problems you have, the more alive you are.
+ - The man who lives for himself is a failure; the man who lives for others has achieved true success.
+ - Four things for success: work and pray, think and believe.
+ - If you have zest and enthusiasm you attract zest and enthusiasm. Life does give back in kind.
+ - I believe there are two sides to the phenomenon known as death, this side where we live, and the other side where we shall continue to live. Eternity does not start ith death. We are in eternity now.
+ - Put your trust in God and just go calmly on your way.
+ - Empty pockets never held anyone back. Only empty heads and empty hearts can do that.
+ - I place this day, my life, my loved ones, my work in the Lord’s hands. There is no harm in the Lord’s hands, only good. Whatever happens, whatever results, if I am in the Lord’s hands it is the Lord’s will and it is good.
+ - Happiness consists not in having, but of being, not of possessing, but of enjoying. It is the warm glow of a heart at peace with itself.
+ - I expect the best and with God’s help will attain the best.
+ - Imagination is the true magic carpet.
+ - Life’s blows cannot break a person whose spirit is warmed at the fire of enthusiasm.
+ - Enthusiasm releases the drive to carry you over obstacles and adds significance to all you do.
+ - Be an all-out, not a hold-out.
+ - Positive thinking is how you think about a problem. Enthusiasm is how you feel about a problem. The two together determine what you do about a problem.
+ - Nothing during the year is so impressively convincing as the vision Christmas brings of what this world would be if love became the daily practice of human beings.
+ - Believe you are defeated, believe it long enough, and it is likely to become a fact.
+ - Have great hopes and dare to go all out for them. Have great dreams and dare to live them. Have tremendous expectations and believe in them.
+ - Think enthusiastically about everything; but especially about your job. If you do so, you’ll put a touch of glory in your life. If you love your job with enthusiasm, you’ll shake it to pieces.
+ - Dare to be what your best self knows you ought to be; dare to be a bigger human being than you have ever been.
+ - Frequently remind yourself that God is with you, that He will never fail you, that you can count upon him. Say these words, “God is with me, helping me.”
+ - The tests of life are not to break you but to make you.
+ - In every difficult situation is potential value. Believe this, then begin looking for it.
+ - Your enthusiasm will be infectious, stimulating and attractive to others. They will love you for it They will go for you and with you.
+ - The person who sends out positive thoughts activates the world around him positively and draws back to himself positive results.
+ - Promise yourself success at the beginning of each day, and you’ll be surprised how often things will turn out that way.
+ - When you wholeheartedly adopt a ‘with all your heart’ attitude and go all out with the positive principle, you can do incredible things.
+ - The secret of the law of abundance is this: In order to receive and appreciate the good things of life, you must first give.
+ - If you want a quality, act as if you already have it. If you want to be courageous, act as if you were – and as you act and persevere in acting, so you tend to become.
+ - Faith is the most powerful of all forces operating in humanity and when you have it in depth nothing can get you down.
+ - When you pray for anyone you tend to modify your personal attitude toward him.
+ - Drop the idea that you are Atlas carrying the world on your shoulders. The world would go on even without you. Don’t take yourself so seriously.
+ - Fear is strong, but faith is stronger yet.
+ - Our happiness depends on the habit of mind we cultivate.
+ - Americans used to roar like lions for liberty; now we bleat like sheep for security.
+ - Problems are to the mind what exercise is to the muscles, they toughen and make strong.
+ - Become a possibilitarian.
+ - When every physical and mental resources is focused, one’s power to solve a problem multiplies tremendously.
+ - When we start focusing on things we can do and don’t think so much about the things we can’t do, things really start to happen.
+ - The big question isn’t whether you have problems; the all-important factor is your attitude toward problems. How you think of the problem is more important than the problem itself.
+ - The world in which you live is not primarily determined by outward conditions and circumstances but by the thoughts that habitually occupy your mind.
+ - It takes struggle, a goal and enthusiasm to make a champion.
+ - Develop a tremendous faith in God and that will give you a humble yet soundly realistic faith in yourself.
+ - Never think negatively, for the negative thinker does a very dangerous thing. He pumps out negative thoughts into the world around him and thus activates the world negatively.
+ - Talk peaceful to be peaceful.
+ - Only the person who risks is truly free. A man’s conquest of himself dwarfs the conquest of Mt. Everest.
+ - Forget yourself! Think courage.
+ - Make a true estimate of your own ability, then raise it ten per cent.
+ - Can anything be sadder than work left unfinished? Yes, work never begun. Change your thoughts and you change your world.
+ - As long as enthusiasm holds out, so will new opportunities.
+ - I truly believe that if we keep telling the Christmas story, singing the Christmas songs, and living the Christmas spirit, we can bring joy and happiness and peace to this world.
+ - God never made anyone else exactly like you, and he never will again. Thank him for yourself and then for all the rest of his glorious handiwork.
+ - Optimism is a philosophy based on the belief that basically life is good, that, in the long run, the good in life overbalances the evil.
+ - You become a worrier by practicing worry. You can become free of worry by practicing the opposite and stronger habit of faith. With all the strength and perseverance you can command, start practicing faith.
+ - One way to become enthusiastic is to look for the plus sign. To make progress in any difficult situation, you have to start with what’s right about it and build on that.
+ - A positive thinker does not refuse to recognize the negative; he refuses to dwell on it.
+ - A basic law: the more you practice the art of thankfulness, the more you have to be thankful for.
+ - Think joy, talk joy, practice joy, share joy, saturate your mind with joy, and you will have the time of your life today and every day all your life.
+ - The antidote to frustration is a calm faith, not in your own cleverness, or in hard toil, but in God’s guidance.
+ - When a person applies enthusiasm to his job, the job will itself become alive with exciting new possibilities.
+ - Never let any mistake cause you to stop believing in yourself. Learn from it and go on.
+ - When you affirm big, believe big and pray big, big things happen.
+ - You have to picturize, prayerize and actualize.
+ - Part of the happiness of life consists not in fighting battles, but in avoiding them. A masterly retreat is in itself a victory.
+ - Decide that you will not try to do everything at once. That is why time is spread out.
+ - Stand up to an obstacle. Just stand up to it, that’s all, and don’t give way under it, and it will finally break. You will break it. Something has to break, and it won’t be you, it will be the obstacle.
+ - Life is a blend of laughter and tears, a combination of rain and sunshine.
+ - Confidently receive God’s abundant blessings. Think abundance, prosperity, and the best of everything.
+ - Medication is of course important but do not conclude that a pill dissolving in your stomach is necessarily more powerful than a healing thought in your mind.
+ - Never react emotionally to what happens but always look for and find in every circumstance the good that’s surely present there.
+ - By acting as you wish yourself to be, in due course you will become as you act.
+ - Go forward confidently, energetically attacking problems, expecting favorable outcomes.
+ - Do not let circumstances defeat you. You can if you think you can.
+ - A true apology is more than just aknowledgment of a mistake. It is recognition that something you have said or done has damaged a relationship and that you care enough about the relationship to want it repaired and restored.
+ - Believe that you are bigger than your difficulties, for you are, indeed.
+ - Be humble, be big in mind and soul, be kindly; you will like yourself that way and so will other people.
+ - Lots of people limit their possibilities by giving up easily. Never tell yourself this is too much for me. It’s no use. I can’t go on. If you do you’re licked, and by your own thinking too. Keep believing and keep on keeping on.
+ - Believe in yourself, believe in your future.
+ - There is nothing at all wrong with having money unless money has you.
+ - We struggle with the complexities and avoid the simplicities.
+ - When fate throws a dagger at you, there are ways to catch it. If you catch it by the blade, you can harm yourself. But if you catch it by the handle, you can use it to help you fight through the obstacles ahead.
+ - Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can.
+ - When you get up in the morning, you have two choices – either to be happy or to be unhappy. Just choose to be happy.
+ - You can do amazing things if you have strong faith, deep desire, and just hang in there.
+ - One of the simplest things about all facts of life is that to get where you want to go, you must keep on keeping on.
+ - The life of inner peace, being harmonious and without stress, is the easiest type of existence.
+ - You will soon break the bow if you keep it always stretched.
+ - The only figure in history who endures is Jesus.
+ - Believe it is possible to solve your problem. Tremendous things happen to the believer. So believe the answer will come. It will.
+ - Know that you yourself are a miracle.
+ - The how thinker gets problems solved effectively because he wastes no time with futile ifs but goes right to work on the creative how.
+ - If you are not getting as much from life as you want to, then examine the state of your enthusiasm.
+ - When you become detached mentally from yourself and concentrate on helping other people with their difficulties, you will be able to cope with your own more effectively. Somehow, the act of self – giving is a personal power – releasing factor.
+ - There are some things you can’t learn from others. You have to pass through the fire.
+ - God is with me, helping me.
+ - I believe absolutely and certainly that, when you die, you will meet your loved ones and know them and be reunited with them, never to be separated again.
+ - Watch your manner of speech if you wish to develop a peaceful state of mind.
+ - A vital part of the happiness formula is self-discipline. Whoever conquers himself knows deep happiness that fills the heart with joy.
+ - The power of the Plus Factor is potential but it is not self-activating. It is latent in human beings and will remain latent until it is activated.
+ - Optimism, when applied to your life, develops strength and peace within you.
+ - If there is no fun in it, something is wrong with all you are doing.
+ - Don’t duck the most difficult problems. That just ensures that the hardest part will be left when you are most tired. Get the big one done – it’s downhill from then on.
+ - Having asked God for forgiveness, accept release, then truly forgive yourself and turn your back definitely on the matter.
+ - Whatever your problem, no matter how difficult, you can release spiritual power sufficient to solve your problem. The secret is – pray and believe.
+ - Every night empty your mind of unhappy thoughts as you empty your pockets and come alive.
+ - When you discover the wonder of giving, you will wonder how you could have lived so long in any other way.
+ - Masterly retreat is in itself a victory.
+ - You only lose energy when life becomes dull in your mind. Your mind gets bored and therefore tired of doing nothing.
+ - God loves you. God doesn’t want anyone to be hungry and oppressed. He just puts his big arms around everybody and hugs them up against himself.
+ - Thinking about forgiving is not enough. You must come to a moment when you say, “With God’s help I now forgive.”
+ - Ask for what you want, but be willing to take what God gives you. It may be better than what you asked for.
+ - Cherish your family connections. They are one of God’s greatest ways of demonstrating his love and fellowship.
+ - Jesus made it clear that the most important thing in the world is our relationship to God and to others. When we achieve that, everything good will follow.
+ - Infantile people complain and say that God is cruel or that there is no God. Mature people, however, know that there is wisdom and sometimes an eternal kindness in God’s refusals.
+ - Miracles are of all sizes. And if you start believing in little miracles, you can work up to the bigger ones.
+ - Stress the thought of plenty. Thoughts of plenty help create plenty.
+ - Promises are like crying babies in a theater, they should be carried out at once.
+ - Trouble is here. It is for a purpose. Use it for the purpose for which it was intended – to help you grow. Thank God for your troubles.
+ - No matter how dark things become, someone is always with you – and that someone is God. He helps by giving you peace and a positive mental attitude.
+ - Good intentions are no substitute for obedience.
+ - Every day remind yourself of your own ability, of your good mind and affirm that you can make something really good out of your life.
+ - Do not build up obstacles in your imagination.
+ - And if the mind thinks with a believing attitude one can do amazing things.
+ - First thing every morning before you arise say out loud, I believe.
+ - Put God to work for you and maximize your potential in our divinely ordered capitalist system.
+ - If Jesus were alive today, he’d probably be at the Super Bowl.
+ - Have absolutely no sense of guilt about being happy and successful if you operate honestly and with a sense of social responsibility.
+ - Always remember, there is more strength in you than you ever realized or even imagined. Certainly nothing can keep you down if you are determined to get on top of things and stay there.
+ - Don’t tense up no matter what, for you only close off creative power when you do.
+ - Prayer is more than words. It’s listening, seeing and feeling.
+ - Remind yourself that God is with you and nothing can defeat him.
+ - Change yourself and your work will seem different.
+ - Just a moment ago nature put on one of its most spectacular demonstrations.
+ - Don’t let any obstacle stop you. Always remember that you have spiritual and mental qualities within you that can overcome even the seemingly impossible.
+ - To cure worry, spend fifteen minutes daily filling your mind full of God. Worry is just a very bad mental habit. You can change any habit with God’s help.
+ - And what marvelous things there are for which to be grateful in God’s great Creation!
+ - Do not exclusively say your prayers in the form of asking God for something. The prayer of thanksgiving is much more powerful.
+ - Not every day can be an easy one, nor every day fully happy; but even a day of tough going and difficulty can be a good day.
+ - The great secret of getting what you want from life is to know whay you want and believe you can have it. Always do something for others, then ask God to help you get at it.
+ - To have a mind full of peace, merely fill it full of peace. It’s as simple as that.
+ - Families, like individuals, are unique.
+ - I truly believe that the individual who learns to practice thanksgiving activates within himself and around himself continuous victories and blessings from God.
+ - Every individual forms his own estimate of himself and that basic estimate goes far toward determining what he becomes.
+ - If you can only believe! If you will only believe! Then nothing, nothing, will be impossible for you! That is the truth and the Gospel, and it is wonderful. It’s the good news.
+ - The Bible tells us that the sins of the fathers are passed to succeeding generations. The virtues of the fathers can be passed along, too.
+ - America has become so tense and nervous it has been years since I have seen anyone sleep in church – and that is a sad situation.
+ - Expect the best, not the worst, and you will attain your heart’s desire.
+ - Who decides whether you shall be happy or unhappy? You do!
+ - The individual who knows the score about life sees difficulties as opportunities.
+ - Motivation is like nutrition. It must be taken daily and in healthy doses to keep it going.
+ - Practice excited thinking until you become excited and exciting.
+ - Faith supplies staying power. Anyone can keep going when the going is good, but some extra ingredient is needed to keep you fighting when it seems that everything is against you.
+ - Cultivate will power, that massive creative force that God the creator built into you. Do not let it remain flabby but strengthen it by use and exercise.
+ - Listen to the magic word of motivation and you will hear it. Then the sky is the limit.
+ - Americans are so tense and keyed up that it is impossible even to put them to sleep with a sermon.
+ - Avoid arguments, but whenever a negative attitude is expressed, counter with a positive and optimistic opinion.
+ - Those who are fired with an enthusiastic idea and who allow it to take hold and dominate their thoughts find that new worlds open for them. As long as enthusiasm holds out, so will new opportunities.
+ - Cushion the painful effects of hard blows by keeping the enthusiasm going strong, even if doing so requires struggle.
+ - Thoughts and words form your mental image. And since we become what we picture be sure your thoughts and words express prosperity and blessing rather than poverty and defeat.
+ - What is hope? Hope is wishing for a thing to come true; faith is believing that it will come true.
+ - Whatever you are doing in the game of life, give it all you’ve got.
+ - Once we roared like lions for liberty; now we bleat like sheep for security! The solution for America’s problem is not in terms of big government, but it is in big men over whom nobody stands in control but God.
+ - We may live victoriously, not because we have any power within ourselves, but because when we give ourselves to God, He gives himself to us.
+ - It is of practical value to learn to like yourself. Since you must spend so much time with yourself you might as well get some satisfaction out of the relationship.
+ - Do not always ask when you pray, but instead affirm that God’s blessings are being given, and spend most of your prayers giving thanks.
+ - People fail to understand that unless they are themselves willing to give, they will never receive.
+ - I firmly believe that when you die you will enter immediately into another life. They who have gone before us are alive in one form of life and we in another.
+ - Jesus is not a memory. He is an actual, contemporary, reachable Person. He is the living Christ, who has the power to enter into people’s lives and change and lift them up.
+ - The greatest measure of a human being isn’t how he handles himself when things are going well, but how he handles himself when things are going badly, when defeat comes.
+ - Anybody can do just about anything with himself that he really wants to and makes up his mind to do. We are all capable of greater things than we realize.
+ - You don’t have to be tired and bored. Get interested in something. Get absolutely enthralled in something. Throw yourself into it with abandon.
+ - What seems impossible one minute becomes, through faith, possible the next.
+ - You can make yourself enthusiastic by affirming enthusiasm and by thinking, talking, acting enthusiastic.
+ - Go to inspirational meetings, get to know men and women who are doing inspiring things. Above all, run as hard as you can from the cynics and gripers and the negativists. They are not going anywhere. You are.
+ - You are overcome by the fact because you think you are.
+ - If you visualize a failure, you tend to create the conditions that produce failure. Visualize-believe-and thank God in advance.
+ - When the student is ready, the messenger appears.
+ - No one can ever overcome anything until his thoughts are creative and positive.
+ - Our problem is to become acquainted with our own selves, letting our personalities loose upon the world for the sheer adventure of their full development and in the positive hope that they may in their own way lift the level of humanity.
+ - The word “no” denotes a shutting of the door. It means failure, defeat, delay. But spell in backwards and take new hope, for backwards it spells “on.”
+ - Religion does not blithely promise some sort of no-trouble, no-problem, no-poverty world; but rather a spirit, a power, an enthusiasm that endows everyone with the ability to overcome any and all of it.
+ - The Gateway to Christianity is not through an intricate labyrinth of dogma, but by a simple belief in the person of Christ.
+ - Happiness will never come if it’s a goal in itself; happiness is a by-product of a commitment of worthy causes.
+ - The mind quickly responds to teaching and discipline. You can make the mind give you back anything you want.
+ - Never forget that all the enthusiasm you need is in your mind. Let it out – let it live – let it motivate you.
+ - Realize that there are not hopeless situations; there are only people who take hopeless attitudes.
+ - Remember that “Help us grow this grass” is a far more effective sign than “Keep off the grass”.
+ - Faced with the election of a Catholic, our culture is at stake.
+ - Keep thinking, keep interested, keep praying, keep dreaming. Be mentally sensitive at all times so that the magic word that motivates you may one day speak to your deep inner self.
+ - Almighty God freely bestows the good things in this world in proportion to a person’s mental readiness to receive.
+ - Don’t take tomorrow to bed with you.
+ - When we have peace in our hearts, we also have love in our hearts and good will toward all men.
+ - Understanding can overcome any situation, however mysterious or insurmountable it may appear to be.
+ - Only the believers pick up the prizes in life.
+ - If you think lack you tend to create a condition of lack. Shift your thought pattern to one of abundance and believe that God is now in the process of giving you the abundance you need.
+ - Great issues develop from small beginnings.
+ - Try to see the joyful side of life. One must see the pain of life with clear eyes, and help all he can; but there is also lots of joy, and on should see that, too.
+ - The trouble with the average person is that he doesn’t trust himself sufficiently to create and deliver ideas.
+ - Begin where you are. Begin now.
+ - Today any successful and competent businessman will employ the latest and best-tested methods in production, distribution, and administration. Many are discovering that one of the greatest of all efficiency methods is prayer power.
+ - Help other people to cope with their problems, and your own will be easier to cope with.
+ - Always maintain hopefulness, especially when the going is hard.
+ - A wish is an attitude of mind to which wings have been attached. You wish and you dream, and your whole nature focuses to bring your wishes and dreams to pass.
+ - We’ve all heard that we have to learn from our mistakes, but I think it’s more important to learn from successes. If you learn only from your mistakes, you are inclined to learn only errors.
+ - Getting people to like you is merely the other side of liking them.
+ - The more you venture to live greatly, the more you will find within you what it takes to get on top of the things and stay there.
+ - Go out of your way to talk optimistically about everything.
+ - Always remember that problems contain values that have improvement potential.
+ - Hope is wanting something so eagerly that-in spite of all the evidence that you’re not going to get it-you go right on wanting it.
+ - Keep your mental and spiritual contact points cleaned so that God can operate through your mind.
+ - When you are afraid, do the thing you are afraid of and soon you will lose your fear of it.
+ - It is indeed possible for those who have the will, courage and faith.
+ - Practice loving people. It is true that this requires effort and continued practice, for some are not very lovable, or so it seems – with emphasis on seems. Every person has lovable qualities when you really learn to know him.
+ - Dare to be what you ought to be, dare to be what you dream to be, dare to be the finest you can be. The more you dare, the surer you will be of gaining just what you dare!
+ - You are greater than anything that can happen to you. In a big and terrifying crisis, people find within themselves a power and a strength and also a wisdom they had no idea they possessed.
+ - The whole trend and quality of anyone’s life is determined in the long run by the choices that are made.
+ - Hold the thought of all elements of the body working together in perfect rhythm.
+ - One of the few greatest satisfactions of this life is to handle problems efficiently and well.
+ - Believe and create is a basic fact of successful living.
+ - No matter how many worries and anxieties harass you, remember always that they are removable. Enthusiasm with its immense mental and spiritual power can cancel out all fear.
+ - Often we have no choice about doing things, but we can always choose how to do them.
+ - The Bible – the wisest document ever known in human existence, which defies the ravages of time and change because it contains the truth that cannot be changed or invalidated.
+ - Nothing can stand in the way of the man who focuses his entire self on a problem.
+ - Never use the word “impossible” seriously again. Toss it into the verbal wastebucket.
+ - The capacity to be either happy or unhappy is determined by the manner in which you react to whatever happens.
+ - One of the greatest moments in anybody’s developing experience is when he no longer tries to hide from himself but determines to get acquainted with himself as he really is.
+ - Believe you can, and you can. Belief is one of the most powerful of all problem dissolvers. When you believe that a difficulty can be overcome, you are more than halfway to victory over it already.
+ - The bigger your problems, the bigger your prayer should be.
+ - If you worry, you are a worrier because your mind is saturated with worry thoughts. To counteract these, mark every passage in your Bible that speaks of faith, hope, and courage.
+ - Make a list of your friends and determine who is the most positive thinker among them and deliberately cultivate his society.
+ - Cut the “im” out of impossible, leading that dynamic word standing out free and clear-possible.
+ - When I dig another out of trouble, the hole from which I lift him is the place where I bury my own.
+ - Think, the successful idea is always in your mind. Think it out.
+ - The most vital, creative, and positive thoughts are those stated in the Bible. Its words are alive and form powerful thought processes.
+ - The one person who most blocks you from a full, happy, and successful life is you.
+ - A primary method for gaining a mind of full peace is to practice emptying the mind.
+ - One of the greatest of all principles is that men can do what they think they can do.
+ - By success, of course, I do not mean that you may become rich, famous, or powerful for that does not, of necessity, represent achievement. Indeed, not infrequently, such individuals represent pathetic failure as persons.
+ - Don’t bother. The glass is half-empty.
+ - Good will cannot flow toward you unless it flows from you.
+ - Make sure you pay attention to what’s right with your life, not just what’s wrong.
+ - We live in the midst of the greatest scientific civilization in the history of the world. But the greatest wisdom walking our streets is not in any laboratory scientist, but the wisdom of Jesus Christ.
+ - One of the basic laws of human existence is: find yourself, know yourself, be yourself.
+ - Believe that all the resources you need are in your mind. That is a formula that really works.
+ - There is no sound basis upon which it may be assumed that all poor men are godly and all rich men are evil, no more than it could be assumed that all rich men are good and all poor men are bad.
+ - You do not need to let anything get you down, but if you are down you certainly need not let anything keep you down.
+ - I’ve got great faith in the essential fairness and decency – you may say goodness – of the human being.
+ - The Plus Factor makes its appearance in a person’s life in proportion as that person is in harmony with God and His universal laws.
+ - Joy increases as you give it, and diminishes as you try to keep it for yourself.
+ - Know what you want and believe that you can have it.
+ - Fear can infect us early in life until eventually it cuts a deep groove of apprehension in all our thinking. To counteract it, let faith, hope and courage enter your thinking. Fear is strong, but faith is stronger yet.
+ - Religious faith may very well be considered a science, for it responds invariably to certain formulae. Perform the technique of faith according to the laws which have been proved workable in human experience and you will always get a result of power.
+ - You can be greater than anything that can happen to you.
+ - Do you think Christianity could have lasted for nearly two thousand years on its promises unless the Lord could deliver on them?
+ - There are no circumstances in your life where God will not stand will not stand with you and help you, no matter what the trouble may be.
+ - Humans will never be hampered as smooth bag. They just dragged and dropped upon his head and empty heart.
+ - Getting along with the gang in one place is not any harder than getting along in another. It depends about 98 percent on your own behavior.
+ - Stand up to your obstacles and do something about them.
+
+358 quotes

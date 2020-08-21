@@ -1,0 +1,21 @@
+ - Life is just a short walk from the cradle to the grave – and it sure behooves us to be kind to one another along the way.
+ - The Black writer explains pain to those who inflict it.
+ - Some truth has no nourishment in it.
+ - I think women need kindness more than love. When one human being is kind to another, it’s a very deep matter.
+ - We think of poverty as a condition simply meaning a lack of funds, no money, but when one sees fifth, sixth, and seventh generation poor, it is clear that poverty is as complicated as high finance.
+ - I believe racism has killed more people than speed, heroin, or cancer, and will continue to kill until it is no more.
+ - Like snowflakes, the human pattern is never cast twice.
+ - Who wants to live with one foot in hell just for the sake of nostalgia Our time is forever now.
+ - Like snowflakes, the human pattern is never cast twice. We are uncommonly and marvelously intricate in thought and action, our problems are most complex and, too often, silently borne.
+ - Thoughts can hurt like real pain.
+ - Everybody’s got some sin, but if it troubles your heart you’re a gentle sinner, just a good soul gone wrong.
+ - It’s a poor kind of man that won’t fight for his own freedom.
+ - Truth is simply whatever you can bring yourself to believe.
+ - I was so mad you could have boiled a pot of water on my head.
+ - It becomes almost second nature to be on guard against the creative pattern of our own thought.
+ - And realizing there is no such thing as the Black experience. Time and events allow for change on both sides.
+ - I’m independent as a hog on ice and a hog on ice is dead, cold, well-preserved and don’t need a mother’grabbin, thing.
+ - I am lonesome so regular it’s like a job I gotta report to every day.
+ - Some feminists feel that a woman should never be wrong. We have a right to be wrong.
+
+19 quotes

@@ -1,0 +1,26 @@
+ - Hate heals, you should try it sometime.
+ - If I’m ever feeling uninspired, all I have to do is go see Exodus or Arch Enemy, and think ‘Oh yeah, that’s what we’re doing this for.’
+ - I think no matter what kind of music you play, there will be moments when you feel like it’s all been done before.
+ - My first figure was a SLAYER eagle. And the dragons and the tribals are all I have got.
+ - Venom were the first thrash band i heard on record-it really pushed me to the best!
+ - I’ve never thrown out a TV set out of some hotel’s window, but I have thrown a microwave out of one ’coz it was cooler.
+ - Best Buy. I heard recently they are downsizing and I got sad! I remember when Circuit City was around, I never understood why people would shop there. I always thought Best Buy had a better selection and cheaper prices.
+ - If I’m in a corner, I like my corner. It’s the coolest corner I’ve ever been in.
+ - I have tons of friends in the heavy-metal music world, and just going to see them inspires me.
+ - I remember in the old days, when we were promoting a show, we’d be out taping flyers to high-school lockers. Now you just announce the show online, and it’s a full house.
+ - In the crazy world of touring, if something gets stuck at customs, I can do a show with just my amp!
+ - I just saw Jensen the other day. They are gonna be in the States at the same time when we are doing the tour, Se we’ll see if we are going to see somewhere.
+ - Check bags are fun. I just make sure there won’t be anything illegal in my check bag which is forbidden at a cabin of a plane. Just leaving things like scissors and such out of my carry-on things in order to avoid troubles with some certain airline, y’know.
+ - I’m always using a towel around my head. Airports don’t worry about me.
+ - It’s hard ’coz you have got different time zones; you can’t sleep and y’know, it’s boring way for the show to happen, but you do off the stage. Y’know, onstage it’s all better.
+ - It’s fun when you are on tour to go a place you are familiar with in any given city. It’s like being home away from home.
+ - I write when I have to; I write when the song is done and I deal with the idea and I just go with it and I’ll become what that song is all about until I have finished it. And when you do that, it makes the song more visual, it makes it more personal.
+ - When something irritates me, I don’t go home and write; I just don’t do that.
+ - My strangest media moment a photo session they all had dressed up like 50 gangsters. That was pretty cool. We have to get some more of those kind of photos sometimes.
+ - The worst thing about touring is the travel.
+ - Chart numbers can be deceiving. An album doesn’t have to sell that much these days to show up really high on the charts.
+ - This record was supposed to come out in July already, but it just got delayed and delayed, so, well, I guess it was just coincidence.
+ - I don’t reflect much, unless I’m talking to the media. I have more of a ‘Forward, march!’ kind of attitude.
+ - We haven’t played that many of them because all our gear was over here waiting for us when we could get here. So we didn’t get to rehearse any of the new stuff, so we have planned to play 3 or 4 new ones.
+
+24 quotes

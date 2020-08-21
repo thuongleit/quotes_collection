@@ -1,0 +1,29 @@
+ - Love is a state of being in harmony with oneself.
+ - The body is the vehicle, consciousness the driver. Yoga is the path, and the chakras are the map.
+ - As you transform yourself, you transform the world.
+ - Liberation is the path of transcendence. Manifestation is the path of immanence. Both lead to the same place: the divine.
+ - The universe exists only through a constant dance of consistency and change. Through consistency, consciousness finds meaning; through change it finds stimulation and expansion. To find consistency within change is to embrace the unfolding flow.
+ - Chakras are organizational centers for the reception, assimilation, and transmission of life-force energy. They are the stepping stones between heaven and earth.
+ - Like a garden that is carefully tended, the rewards are well worth the effort.
+ - The Presence of the demon keeps the chakra from doing its job, but that challenge also forces us to bring more awareness to that job, so eventually we can do it better.
+ - We cannot enter the realm of the heart where one gender, representing half of the human race, is subordinated, suppressed, or forgotten. In fact, such a system negatively affects both men and women, holding us all back from true integration, collaboration, and union.
+ - It’s not only for unanswered questions that we seek knowledge but also for the examination of unquestioned answers.
+ - We either get success or lessons. If we learn our lessons successfully, we get both.
+ - Scared is what happens when the sacred gets scrambled.
+ - It is only by embracing the full spectrum of human consciousness that we can bring about a true awakening of the heart.
+ - World peace is the most essential outer realization of our time.
+ - The cultural transformation from the love of power to the power of love is the drama of our time.
+ - To lose our connection with the body is to become spiritually homeless. Without an anchor we float aimlessly, battered by the winds and waves of life.
+ - Believe those who are seeking the truth. Doubt those who claim to have found it.
+ - It’s not the meaning of life we seek but our aliveness. Once we have that, the meaning of life is obvious.
+ - Ascetic spirituality is a symptom of the very disease which it intends to cure.
+ - Obstacles do not appear in your way in order to stop you. Rather, they appear in order to strengthen and hone you and your plans. They are not your enemy. They are your secret ally, but only if you treat them as friendly forces of nature.
+ - The material world may be nothing but illusion...
+ - Human consciousness is now being drawn inexorably toward the same issues, the gaze of collective attention focused like never before.
+ - As civilization grows more complex, it is simultaneously becoming increasingly interrelated. We are converging upon ourselves, and this is forcing us to relate.
+ - For it is indeed consciousness that makes the body fully alive, and the body that gives consciousness a place to live.
+ - We’ve created the almost godly power of being able to alter the climate, to change the face of the earth, now we need to develop the consciousness of gods, and wield that power wisely.
+ - Mind severed from body, culture from planet- to lose our ground is to lose our home.
+ - To love ourselves is to act respectfully toward ourselves, to enjoy our own company when in solitude, to honor our limits and speak our truths.
+
+27 quotes

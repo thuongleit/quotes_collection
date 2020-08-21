@@ -1,0 +1,58 @@
+ - Translation is that which transforms everything so that nothing changes.
+ - I did not volunteer for the Waffen SS, but was, as were thousands of my year group, conscripted. I did not then know as a 17-year-old that it was a criminal unit. I thought it was an elite unit.
+ - We already have the statistics for the future: the growth percentages of pollution, overpopulation, desertification. The future is already in place.
+ - The job of a citizen is to keep his mouth open.
+ - On sorrow floats laughter.
+ - And when the sun goes down and the mood comes upon me, I’ll watch the play of the colors on the water, yield to the fleetly dissolving images, and turn into pure feeling, all soft and nice...
+ - I have heard my fill of hurtful words. I think it’s especially egregious when citizens like me, who point out abuses in their country, are referred to as ‘do-gooders.’ This is how a phrase that can be used to stop an argument dead becomes part of common usage.
+ - People change with time. There are things that happened to a person in his childhood and years later they seem to him alien and strange. I am trying to decipher that child. Sometimes he is a stranger to me. When you think about when you were 14, don’t you feel a certain alienation?
+ - An empty bus hurtles through the starry night Perhaps the driver is singing and happy because he sings.
+ - I am not faithful but I am attached.
+ - Information networks straddle the world. Nothing remains concealed. But the sheer volume of information dissolves the information. We are unable to take it all in.
+ - Art is uncompromising, and life is full of compromises.
+ - In statistics, what disappears behind rows of numbers is death.
+ - Melancholy and utopia are heads and tails of the same coin.
+ - Even bad books are books and therefore sacred.
+ - Melancholy has ceased to be an individual phenomenon, an exception. It has become the class privilege of the wage earner, a mass state of mind that finds its cause wherever life is governed by production quotas.
+ - The patience of poverty. In rice fields, backs bent forever. Amazing, man outoxens the oxen and still smiles. The mystery of India, say Indologists.
+ - Art is hard for a puritan to understand.
+ - Art is accusation, expression, passion. Art is black charcoal crushing white paper.
+ - Today I know that all things are watching, that nothing goes unseen, that even wallpaper has a better memory than human beings.
+ - What makes books – and with them writers – so dangerous that church and state, politburos and the mass media feel the need to oppose them?
+ - I expected more from literature than from real, naked life.
+ - Everybody knows how fallible memory can sometimes be. You remember certain fragments precisely, but as soon as you try to join the fragments together, for a story, there is a certain – not falsification, but a shifting.
+ - Art is so wonderfully irrational, exuberantly pointless, but necessary all the same. Pointless and yet necessary, that’s hard for a puritan to understand.
+ - It’s dangerous to watch staggering butterflies. They have a plan but it has no meaning.
+ - After the collapse of socialism, capitalism remained without a rival. This unusual situation unleashed its greedy and – above all – its suicidal power. The belief is now that everything – and everyone – is fair game.
+ - You are vain and wicked- as a genius should be.
+ - What I do is sometimes – at least in Germany – met with wounding campaigns. I always face the question: should I grow myself a thick skin and ignore it, or should I let myself be wounded? I’ve decided to be wounded, since, if I grew a thick skin, there are other things I wouldn’t feel any more.
+ - When Satan’s not in the mood, virtue triumphs. Hasn’t even Satan a right not to be in the mood once in a while?
+ - It makes me realise that the fantasy of nature is much larger than my own fantasy. I still have things to learn.
+ - Lies that do not hurt, which are different from lies that protect oneself or hurt another person. That is not my business. But the truth is mostly very boring, and you can help it along with lies. There is no harm in that.
+ - Whenever there has been talk of exterminating rats, others, who were not rats, have been exterminated.
+ - As a child I was a great liar. Fortunately my mother liked my lies. I promised her marvelous things.
+ - I don’t believe in writing at night because it comes too easily. When I read it in the morning it’s not good. I need daylight to begin. Between nine and ten o’clock I have a long breakfast with reading and music.
+ - How easily the routine of sin establishes itself.
+ - I have found that words that are loaded with pathos and create a seductive euphoria are apt to promote nonsense.
+ - Believing: it means believing in our own lies. And I can say that I am grateful that I got this lesson very early.
+ - My relationship with Wilhelm and Jacob Grimm reaches far back into my childhood. I grew up with Grimm’s fairy tales. I even saw a theater production of ‘Tom Thumb’ during Advent at the State Theater in Danzig, which my mother took me to see.
+ - There must be reasons why we men are so hipped on breasts as if we’d all been weaned too soon.
+ - The human head is bigger than the globe. It conceives itself as containing more. It can think and rethink itself and ourselves from any desired point outside the gravitational pull of the earth. It starts by writing one thing and later reads itself as something else. The human head is monstrous.
+ - Everything bigger than life attracts a crowd.
+ - Everyone is born into a certain era. I wouldn’t want to see anyone faced with the circumstances that prevailed at the time, when there were few or no alternatives.
+ - Granted: I AM an inmate of a mental hospital; my keeper is watching me, he never lets me out of his sight; there’s a peep-hole in the door, and my keeper’s eye is the shade of brown that can never see through a blue-eyed type like me.
+ - Who can deny that the environment has been destroyed?
+ - When the young woman leans over the sky, about to water the flowers as well as the weeds, her white front splits open until her milk runs.
+ - What can you say about a guy who lets himself be saddled with a baby when he’s thirty-five and losing his hair? Love? Forget about that till you’re past seventy, and by then the parts will have stopped working anyway.
+ - In general, I agree with Jacob Grimm and feel that we ought to permit changes and uncontrolled growth in language. Even though that also allows potentially threatening new words to develop, language needs the chance to constantly renew itself.
+ - If work and leisure are soon to be subordinated to this one utopian principle – absolute busyness – then utopia and melancholy will come to coincide: an age without conflict will dawn, perpetually busy – and without consciousness.
+ - Writers know that sometimes things are there in the drawer for decades before they finally come out and you are capable of writing about them.
+ - Often I had to imagine the things I needed. I learned very early to read amidst noise. And so I started writing and drawing at an early age.
+ - I belonged to the generation that grew up under National Socialism, and was blinded and led astray – and allowed itself to be led astray.
+ - If Jesus had been a hunchback, they could hardly have nailed him to the cross.
+ - Can it be that action is active resignation? Something is trying to develop; it moves ever so slightly, and there comes your man of action and bashes in the hothouse windows.
+ - Even if surrounded with explanations, Auschwitz can never be grasped.
+ - I have often supported Israel, I have often visited the country and want the country to exist and at last find peace with its neighbours.
+ - Students who don’t want to get anywhere are sure to get somewhere.
+
+56 quotes

@@ -1,0 +1,74 @@
+ - Learning a foreign language, and the culture that goes with it, is one of the most useful things we can do to broaden the empathy and imaginative sympathy and cultural outlook of children.
+ - It is literally the case that learning languages makes you smarter. The neural networks in the brain strengthen as a result of language learning.
+ - The accumulation of cultural capital – the acquisition of knowledge – is the key to social mobility.
+ - I love my parents in the way most children would: for having been there at every point in my youth and childhood, ready to pick me up when I fell and support me when I stumbled.
+ - It’s critical that children spend time before they arrive in school in a warm, attractive and inclusive environment, where they can learn through play, master social skills and prepare for formal schooling.
+ - My father had a fishing business in Aberdeen destroyed by the European Union and the Common Fisheries Policy, the European Union.
+ - It’s often the case that successful people invite criticism.
+ - Turkey will “inevitably” join the EU in our lifetime unless we vote to leave.
+ - The single most important thing in a child’s performance is the quality of the teacher. Making sure a child spends the maximum amount of time with inspirational teachers is the most important thing.
+ - I want there to be an open and positive debate about the path the country will now take. Whatever the verdict of that debate I will respect it.
+ - If we are to make the most of the opportunities ahead we need a bold break with the past.
+ - As long as there are people in education making excuses for failure, cursing future generations with a culture of low expectations, denying children access to the best that has been thought and written, because Nemo and the Mister Men are more relevant, the battle needs to be joined.
+ - If we leave the European Union, yes there will be bumps in the road, inevitably, but we will be in a better position to deal with them.
+ - Adopting means opening your home, and heart, to a life you’ve never known. But there is nothing as richly rewarding as being an adoptive parent.
+ - Children in dysfunctional homes at risk of abuse are kept in danger for too long because politically correct rules mean we won’t challenge unfit parents.
+ - I will put my heart and soul into making sure that the care your son or daughter or mum or dad receives is the same I would want for my own family.
+ - I notice that the number of cosmetic-surgery operations has risen by 34 per cent in the past year. Once we subtract Jordan, Jodie Marsh and Michael Jackson from those figures, we can see that demand overall may have stabilised.
+ - You come home to find your 17-year-old daughter engrossed in a book. Which would delight you more – if it were ‘Twilight’ or ‘Middlemarch?’
+ - The promise to leave the European Union, end the supremacy of EU law and take back control of our democracy. With my leadership, it will be delivered.
+ - I think that the message I have of optimism and hope about Britain’s bright future outside the European Union is shared by many Conservative members and voters – indeed by a majority of the country.
+ - You know, you don’t see hospital consultants going on strike, and I don’t believe that teachers and headteachers should. It’s within their rights, it’s a civil right, but I think it is wrong in terms of the reputation of the profession.
+ - I think more and more respect has been accorded to teachers, and quite rightly so.
+ - The challenges facing Britain required not just a cool head, but a heart burning with the desire for change – not business as usual but a bold vision.
+ - The big shift in approach on education that we are taking – which is different from what happened before – is that we trust teachers and we trust heads.
+ - Boris Johnson is a man of great attributes and great qualities.
+ - I believed we needed someone who would be able to build a team, lead and unite. I hoped that person would be Boris Johnson.
+ - When I talk to teachers they tell me the things they’d most like from any government are a reduction in bureaucracy, support to help ensure good discipline and a reformed Ofsted.
+ - The promise to take back control of our borders. I will end free movement, introduce an Australian-style points-based system for immigration, and bring numbers down. With my leadership, it will be delivered.
+ - In this fallen world, I suspect we will never achieve perfection. But that won’t stop me trying.
+ - If I’m the British prime minister I won’t be dictated to on the timetable or the manner of the negotiations.
+ - Teachers themselves know if there’s a colleague who can’t keep control or keep the interest of their class, it affects the whole school.
+ - In particular, I wanted to help build a team behind Boris Johnson so that a politician who argued for leaving the European Union could lead us to a better future.
+ - I know what it’s like to see someone lose their job as a result of the European Union. I saw my father lose his job, I saw his business go to the wall, I saw 24 people who he employed also lose their jobs.
+ - One of reasons I was able to go to university was because of the sacrifices my family made.
+ - The promise to use the money we currently send to Brussels and invest it instead on the priorities of the British people – principally in the NHS – and to cut VAT on domestic fuel. With my leadership, it will be delivered.
+ - Proper history teaching is being crushed under the weight of play-based pedagogy which infantilises children, teachers and our culture.
+ - I will do everything that is required in order to bring immigration down to a level that is manageable, that the public believe is right.
+ - For a few spotty years, I was that tragic geek.
+ - I think it’s appropriate that we simplify, clarify and strengthen, so instead of this nebulousness, we have clarity and authority invested in teachers once more.
+ - The first four months of my life were spent in care, before I was adopted by my wonderful parents – my mum and dad – Ernie and Christine. They went on to adopt my sister, who is profoundly deaf, and invested both of us with a love and support that informs everything I do today.
+ - The current leadership of the Labor party react to the idea that working-class students might study the subjects they studied with the same horror that the Earl of Grantham showed when a chauffeur wanted to marry his daughter.
+ - Our most important public service will always be the NHS. And I want to say something clear and unambiguous about the future of the health service.
+ - I’m a decentralizer. I believe in trusting professionals.
+ - It is a belief in human potential that has guided me through my time in Government.
+ - Let me first of all congratulate both of the candidates who have made it through – both Theresa May and Andrea Leadsom are formidable politicians and they have fought great campaigns and they deserve to be in the final two.
+ - We need to face the fact that we need more money in order to deliver Jeremy Hunt’s absolutely correct drive to guarantee even better standards of care.
+ - Whatever else I know, I know that if you invest love and care in any individual you can help them to make a difference, to write their own life story.
+ - One of the problems we have is children are not in school long enough in the day and during the year.
+ - I felt we needed someone to lead this country who believed heart and soul in leaving the European Union.
+ - The reason I entered politics was a belief that the people of this country – having achieved so much that was good and noble in our past – had the potential to do amazing things in the future.
+ - A coalition with Tories and Liberal Democrats together is a golden opportunity to create the sort of planning reform that means not only can we have more environmentally sensitive planning, but we can have more homes and more schools.
+ - The British people rejected politics as usual and government as usual. They want and need a new approach to running this country.
+ - Ever since going up to university, I have accumulated new debt, and new means of becoming indebted.
+ - I am delighted by the support I have received from colleagues. It reflects the optimistic message that I’ve been putting forward.
+ - We need a national ambition to build hundreds of thousands of new homes a year, both private and socially-rented – led by someone who will not take no for an answer and who will push for diggers in the ground and homes for all come what may.
+ - I’m clear that we do need to improve what’s happening in our schools.
+ - I have a different starting premise from those 100 academics who are so heavily invested in the regime of low expectations and narrow horizons which they have created.
+ - Children themselves know they are being cheated. Ultimately we owe it to our children. They are in school for 190 days a year. Every moment they spend learning is precious. If a year goes by and they are not being stretched and excited, that blights their life.
+ - Government has got to invest more money in our NHS. The people who work in it are heroic. They do an amazing job.
+ - I will ensure we honour the instructions the British people have given us. I argued for specific changes in the referendum campaign, I believe in them, I will deliver them.
+ - I hope that in the days to come, I’ll be able to convince my colleagues that I should be one of the candidates that Conservative party members can choose from.
+ - I will lay out my plan for the United Kingdom which I hope can provide unity and change.
+ - There are huge challenges ahead for this country but also huge opportunities. We can make this country stronger and fairer.
+ - We have a unique chance to heal divisions, give everyone a stake in the future and set an example as the most creative, innovative and progressive country in the world.
+ - Now that Britain has voted to leave, I think the country deserves to have a leader who believes in Britain outside the European Union and who also has experience at the highest level of government.
+ - One of the things I know about the European Union is that the European Union can destroy jobs.
+ - The common fisheries policy unfortunately led to the devastation of fishing in Scotland. My dad had to close his business. As a result something that he been built up by by grandfather and maintained by my dad disappeared. So my dad suffered.
+ - Whoever the next prime minister of this country will be, it will be a female prime minister and a female prime minister who has formidable skills and I know whichever one of the two wins they will lead this country well.
+ - The British prime minister will want to have a strong and positive relationship with European leaders always.
+ - Many more schools can be outstanding.
+ - With the single exception of Park Lane, every north-south route in London slows traffic to the pace of a wounded gnat with pleurisy struggling with a squaddie’s backpack.
+ - In order to be able to reduce migration we need to be outside the European Union.
+
+72 quotes

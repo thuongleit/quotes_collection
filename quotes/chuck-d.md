@@ -1,0 +1,87 @@
+ - If I can’t change the people around me, I change the people around me.
+ - Music and art and culture is escapism, and escapism sometimes is healthy for people to get away from reality. The problem is when they stay there.
+ - Culture is this thing that we can exchange among ourselves as human beings to knock aside our differences and build upon our similarities. Cultural exchange is the ultimate exchange.
+ - To live a life you love, you must Love the life you live.
+ - Reflect each day on all you have to be grateful for and you will receive more to be grateful for.
+ - Being positive is like going up a mountain. Being negative is like sliding down a hill. A lot of times, people want to take the easy way out, because it’s basically what they’ve understood throughout their lives.
+ - Black folks are judged by quantity, not quality. It’s a decimal point or figure. How different is that from slavery? There’s no moral code, it’s just about successful business for America.
+ - Right is right, and wrong is wrong, and when people start getting it confused, that means they need to sit down with some real people.
+ - Most of my heroes don’t appear on no stamps.
+ - Government and culture are two diametrically opposed forces – the one blinds and oppresses, the other uplifts and unites.
+ - My daughter’s 19. I’m not asking her to develop as an artist. I’m just asking her to develop as a full person, human being.
+ - With black people, there are 50 Hitlers over the course of history.
+ - What made me want to become a recording artist; I was the first artist that was repeatedly asked by a label to record with them. That label was Def Jam Records.
+ - Rap comes from the humble beginnings of rebelling against the status quo. Now, rappers have become the status quo themselves. You can’t rebel against the Queen and then become the Queen yourself. I attribute much of the blame to testosterone-male dominance and patriarchy.
+ - The Illuminati is just the evil, ‘nameless’ people who are behind governments.
+ - Knowledge, wisdom, and understanding don’t come out of the microwave. You got to keep moving forward because the evil doesn’t sleep.
+ - Minds are the real estate of the 21st century.
+ - I know I am judged unfairly by my physical characteristics and ostracized because of that so I say, “Yes, I’m a black man.”
+ - I’ve signed with major labels, and I haven’t had any control over the money.
+ - Where else can you go with respect to the work, lyrics, and message of the music? If you are past high school age, you can get by with saying very little the first or second time around. However, after a while you know you are going to have to say something beyond high school stuff.
+ - One side of the street is a Church; across the road is a liquor store. Both of ’em keepin us poor.
+ - I adhere to the philosophy, “I don’t care who writes the laws, let me write the songs.”
+ - Eminem has talent, and his talent is the thing that influences many young people who would have never gone anywhere near rap. White kids in different parts of the world use him as a barometer and the standard to live up to. In some ways, Eminem is an artist who has ushered in a new movement.
+ - I’m a multi-tasker. I was down with that stuff before they invented the term.
+ - I became tired of submitting my art to a panel of corporate strategists who decide if it meets their standard of what gets into stores or not. It was quite simple for me: they act like judge and jury of my art, and that is unacceptable. I wanted to give it right to the public.
+ - Once you think bigger than yourself then the cause becomes the issue if you think on a higher plain you can come together to work on our problems.
+ - DJ culture always made us aware that the best records were going to come from the small shops.
+ - As black people we were out to further our equality. I don’t pay attention to the controversial connotations put on by media and the undermining labels they place on us. We pay attention to what our community situation is and what we need.
+ - When you travel the world, you have to watch and you have to listen. We’re not going to come in to Ireland without an understanding that there’s a history that’s very sensitive.
+ - I spread the message of hope and of unity. That’s what gets me up in the morning. I can tell you what is wrong, but I can’t tell you how to fix it. I’m a raptivist, not a politician. I deal in hope.
+ - I grew up as a sports fan, and I know that a hall of fame is very different than an award for being the best of the year. It’s a nod to the longevity of our accomplishment.
+ - Never try to make the same record twice, even when people are screaming for the same sound.
+ - I always remain optimistic.
+ - The biggest thing that has happened to hip-hop is the clinging on to the corporation as the all-mighty hub of the music.
+ - No matter what the name, we’re all the same pieces in one big chess game.
+ - I want to always move forward with everything I am doing. So, I do the radio show, speak at universities and other social institutions all around the world, appear on TV, and continue to create music all in the hope to keep the struggle alive.
+ - We don’t see the people who are doing real things getting enough props. We often see politicians who are everywhere but nowhere at the same goddamn time. You know the kind of person: You see them everywhere on television but nowhere in front of your face.
+ - Don’t anoint me when you can anoint yourself.
+ - The Internet is one area that I have used pretty effectively to break free of corporate control.
+ - You should be a person inside the world with knowledge of your terrain. And if you lock yourself into the 2,000-by-3,000-square-mile, lower-48 box of the United States, you’re going to be frustrated by its limitations. You gotta think outside the box.
+ - I think too much of the music industry is for the lawyer and accountant mentality.
+ - People are so confused about race and hip-hop that people didn’t even consider the Beastie Boys one of the greatest rap groups of all time because they were white.
+ - Rappers should just be able to perform what they create and satisfy the people that like and love them.
+ - The best way to boycott is to build your own.
+ - I think the Internet was the saving grace for Public Enemy. Before that, travelling the world saved Public Enemy.
+ - One of the problems with hip hop is lack of infrastructure and not being able to control its own course. I don’t like that hip hop is full of infantile 35-year-olds. Hip hop cannot afford to be lazy.
+ - Why would twenty-six-year-old “teenagers” care about political ramifications if their backs are not up against the wall? But if their backs are against the wall they may be plucked to fight in Iraq, and all of sudden they become politicized real quick.
+ - It’s not about what you get out but what you put into hip hop as a genre.
+ - The Internet was a saving grace for promoting and exposing, and even creating. It’s a parallel world to the music industry that already exists, and I’m glad to be a part of it.
+ - There’s nothing worse than a good video and good song, and you see a band and hate them because they can’t perform. That’s wack.
+ - Real people do real things. A collective of a whole bunch of people who do things in their own locale, in their own neighborhoods – the sum is bigger than the parts, and the parts will grow.
+ - Your closest and your most dedicated fans will be your ultimate test. They will test you.
+ - Rap is supposed to be about keeping it real and not relinquishing your roots in the community. Without that, it’s just posturing. Somebody who claims to speak for the ’hood don’t need no private jet.
+ - Public Enemy is the security of the hip-hop party.
+ - I always remain optimistic. There are three levels of music production: the majors, indies, and what I call “inties,” music distributed via the Internet. The Internet is one area that I have used pretty effectively to break free of corporate control.
+ - I think governments are the cancer of civilization.
+ - Most artists are always fighting for their fame. They have that fear, like the saying goes, “out of sight, out of mind.” They need to keep themselves out there. I have never had that fear. If I have any fear, it’s not doing enough to reach people.
+ - I was inspired by the classic rock radio of the Seventies. They separated Chuck Berry and the Beatles from the Led Zeppelins and Bostons and Peter Framptons of the time. In many ways, classic rock became bigger than mainstream rock.
+ - Downloadable music is the biggest musical phenomenon since the Beatles, and the music industry is slow to come to grips with that.
+ - People aren’t going to support an artist just because they have an audio file. They have to feel a real connection.
+ - Of course voting is useful. But then again, I don’t put a big glow to it. Voting is about as essential as washing yourself. It’s something you’re supposed to do. Now, you can’t go around bragging, expecting to get props because you voted. That’s stupid.
+ - Someone like Jay-Z does have a timeless quality, but it’s much different than ours. You can look back at something like “At the Hop” by Danny and the Juniors or the music that was on American Bandstand in the 1950s-’60s.
+ - You can’t master time, but you have to work your hardest to manage it.
+ - I think right about now we have to beware of marketed Malcolms and Martins. Real people do real things.
+ - You have to wait for people to program you. The only difference is the amount of people that you’re going to reach but that’s going to even out in the next two or three years anyway. Computers are being bought faster than televisions right now.
+ - The best American is one who considers themselves as a citizen of the world.
+ - I’m recording freely, and if I make a song, I release it immediately, so I’m more likely to believe in one song at a time as opposed to albums.
+ - So, rather than trying to humbly mix with the rest of the world, we are forcing ourselves upon it. We seem to create conflicts with everyone.
+ - I like Rick Ross as a person. I like Jay-Z and Kanye West as people. But I hate the companies that they record for.
+ - Some artists are told what to like and told definitions of what the music business is. That’s a problem. Music is artistry, and you want your music heard, your act known. But artists don’t know. They are ignorant the minute they sign a contract.
+ - I encourage more blacks and people of color to get a passport. That’s one way to help put people on an equal platform.
+ - Alternative spaces, independent media, satellite, these all provide some tools by which we can work more independently and deal more directly with communities we hope to reach. Distribution is key, and finding alternative ways to do that with new media is critical.
+ - I totally hate when somebody takes a classic and desecrates it. I like Jimmy Page and P. Diddy, but what they did to ‘Kashmir’ was a debacle.
+ - I came from a mother and father who always made me secure in my beliefs, and that’s where the love came from.
+ - If you go get a passport, it might encourage you to at least consider the world around you.
+ - I’d rather have a hundred thousand or a million people saying I’m nuts and I’m crazy for my musical choices and what I’ve said lyrically, than a million people all raising their hand on the first day.
+ - My work throughout my life is always representative of the time we live in. It’s all about keeping it in order and keeping it in gear.
+ - The powers that be are trying to meld, shape, and corral the culture of hip-hop into another speaking voice for the government.
+ - Slavery was incredibly prosperous for some people, at that time. It was not a bad business plan, but it was terrible and inhumane. But as a business it worked.
+ - If they can send you to war at 18, maybe it’s beneficial for some people to think that most of us gotta go to war for our own existence.
+ - You’re always going to sound like yourself, but you can make really strong attempts to keep some similarities, but move away from what you did before for popularity’s sake.
+ - I tell each artist they have to grow toward a revenue stream.
+ - I think traveling the world has helped to keep Public Enemy alive. We’ve never solely depended on the United States.
+ - My mother went to university, my father didn’t. But they are very educated, very wise people. My father went to the military, so he’s worldly.
+ - I’m envious of the way that electronic dance music has organised itself. It has been able to understand what it ain’t rather than what it is. And I think that slipped away from hip-hop as soon as the DJs lost the majority of the say so in the direction of the music.
+
+85 quotes

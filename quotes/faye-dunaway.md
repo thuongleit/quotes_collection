@@ -1,0 +1,24 @@
+ - You are not an extra in somebody else’s film. You are the star in your own life.
+ - Fear is a pair of handcuffs on your soul.
+ - I’m kind of a recluse.
+ - I still have, I hope, a lot of years and there are still a lot of things I want to do.
+ - So many people are called but few serve as actors, you know what I mean?
+ - When I think of Peter Wolf I always remember the Portuguese proverb: ‘Never say you will not drink from that glass again.’
+ - You just sort of let them go for a while, but it was time to have something done to my teeth. I’m glad. It’s going to be good. Tom Cruise has braces now, too. I’m right in style.
+ - My mother’s passion for something more, to write a different destiny for a dirt-poor farmer’s daughter, was to shape my entire life.
+ - I’m still the little southern girl from the wrong side of the tracks who really didn’t feel like she belonged.
+ - You are an athlete when you’re onstage. You can’t get tired.
+ - Since Star Wars, that film’s success led to bigger budgets, more hardware, that the great movies like the ones I did, which were studio movies, are now independent movies. They range from half a million to several million, and a lot of those have very interesting roles.
+ - I often say the last role I played that really touched me and where I was able to access what I really am was Bonnie, which is kind of sad when you think how early in my career that was.
+ - I like being very busy. I think that’s the definition of stardom, really. It’s energy. It really is.
+ - I would like a partner but I can see myself without a marriage. I’d love to have someone to sit and talk with and walk on the beach with at 80.
+ - Success is a relative quotient, and fame can be ephemeral. An Oscar is something that becomes a part of your record, a tangible acknowledgement that your efforts have made a difference.
+ - I’ve been working on this feature script for Master Class, a play by Terrence McNally that won a lot of Tonys.
+ - You can’t take responsibility for everything. You can’t have that kind of control At some point, it’s all out of our hands.
+ - I mean, I was always interested in people like Lenny Bruce, people who are breaking the old rules and making new ones.
+ - Years are not important, my dear.
+ - It’s interesting as one grows older to keep in touch with the cutting edge.
+ - Do you know what I’m working on now? My first feature as a director.
+ - It’s true, I did a lot of great movies, and I’m happy. It was what it was, and now I think all of that has fed into where I am now, and I think it has taught me a lot.
+
+22 quotes

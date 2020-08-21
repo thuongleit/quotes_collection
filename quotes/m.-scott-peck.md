@@ -1,0 +1,130 @@
+ - Until you value yourself, you won’t value your time. Until you value your time, you will not do anything with it.
+ - The truth is that our finest moments are most likely to occur when we are feeling deeply uncomfortable, unhappy, or unfulfilled. For it is only in such moments, propelled by our discomfort, that we are likely to step out of our ruts and start searching for different ways or truer answers.
+ - Share our similarities, celebrate our differences.
+ - Life is difficult. This is the great truth, one of the greatest truths-it is a great truth because once we see this truth, we transcend it.
+ - Servant-leadership is more than a concept, it is a fact. Any great leader, by which I also mean an ethical leader of any group, will see herself or himself as a servant of that group and will act accordingly.
+ - The path of spiritual growth is a path of lifelong learning.
+ - Mental health is an ongoing process of dedication to reality at all costs.
+ - Problems do not go away. They must be worked through or else they remain, forever a barrier to the growth and development of the spirit.
+ - An essential part of true listening is the discipline of bracketing, the temporary giving up or setting aside of one’s own prejudices, frames of reference and desires so as to experience as far as possible the speaker’s world from the inside, step in inside his or her shoes.
+ - You cannot truly listen to anyone and do anything else at the same time.
+ - Delaying gratification is a process of scheduling the pain and pleasure of life in such a way as to enhance the pleasure by meeting and experiencing the pain first and getting it over with. It is the only decent way to live.
+ - When we avoid the legitimate suffering that results from dealing with problems, we also avoid the growth that problems demand from us.
+ - Ultimately love is everything.
+ - As Benjamin Franklin said, ‘Those things that hurt, instruct.’ It is for this reason that wise people learn not to dread but actually to welcome problems and actually to welcome the pain of problems.
+ - Discipline is the basic set of tools we require to solve life’s problems. Without discipline we can solve nothing. With only some discipline we can solve only some problems. With total discipline we can solve all problems.
+ - Love is the free exercise of choice. Two people love each other only when they are quite capable of living without each other but choose to live with each other.
+ - Genuine love not only respects the individuality of the other but actually cultivates it, even at the risk of separation or loss. The ultimate goal of life remains the spiritual growth of the individual, the solitary journey to peaks that can be climbed only alone.
+ - Emotional sickness is avoiding reality at any cost. Emotional health is facing reality at any cost.
+ - Doubt is often the beginning of wisdom.
+ - Problems call forth our courage and our wisdom; indeed, they create our courage and wisdom.
+ - Love is too large, too deep ever to be truly understood or measured or limited within the framework of words.
+ - The whole course of human history may depend on a change of heart in one solitary and even humble individual – for it is in the solitary mind and soul of the individual that the battle between good and evil is waged and ultimately won or lost.
+ - To heal your body, you must first heal your spirit.
+ - Going into the unknown is invariably frightening, but we learn what is significantly new only through adventures.
+ - Human beings are poor examiners, subject to superstition, bias, prejudice, and a PROFOUND tendency to see what they want to see rather than what is really there.
+ - True love is not a feeling by which we are overwhelmed. It is a committed, thoughtful decision.
+ - What people get admired and appreciated for in community are their soft skills: their sense of humor and timing, their ability to listen, their courage and honesty, their capacity for empathy.
+ - Nirvana or lasting enlightenment or true spiritual growth can be achieved only through persistent exercise of real love.
+ - Since the primary motive of the evil is disguise, one of the places evil people are most likely to be found is within the church. What better way to conceal one’s evil from oneself as well as from others than to be a deacon or some other highly visible form of Christian within our culture.
+ - God wants us to become himself or herself or itself. We are growing toward Godhood. God is the goal of evolution.
+ - The feeling of being valuable is a cornerstone of self-discipline because when you consider yourself valuable you will take care of yourself- including things like using your time well. In this way, self-discipline is self-caring.
+ - The difficulty we have in accepting responsibility for our behavior lies in the desire to avoid the pain of the consequences of that behavior.
+ - Teach us to number our days aright.
+ - Courage is not the absence of fear; it is the making of action in spite of fear.
+ - Life is a series of problems. Do we want to moan about them or solve them?
+ - If your goal is to avoid pain and escape suffering, I would not advise you to seek higher levels of consciousness or spiritual evolution.
+ - Self examination is the key to insight, which is the key to wisdom.
+ - The overall purpose of human communication is – or should be – reconciliation. It should ultimately serve to lower or remove the walls of misunderstanding which unduly separate us human beings, one from another.
+ - One extends one’s limits only by exceeding them.
+ - We are most often in the dark when we are the most certain, and the most enlightened when we are the most confused.
+ - Spiritually evolved people, by virtue of their discipline, mastery and love, are people of extraordinary competence, and in their competence they are called on to serve the world, and in their love they answer the call.
+ - If we know exactly where we’re going, exactly how to get there, and exactly what we’ll see along the way, we won’t learn anything.
+ - Discipline is wisdom and vice versa.
+ - The life of wisdom must be a life of contemplation combined with action.
+ - All my life I used to wonder what I would become when I grew up. Then, about seven years ago, I realized that I was never going to grow up – that growing is an ever ongoing process.
+ - There is no act of love that is not an act of work or courage. No exceptions.
+ - Community is and must be inclusive. The great enemy of community is exclusivity. Groups that exclude others because they are poor or doubters or divorced or sinners or of some different race or nationality are not communities; they are cliques – actually defensive bastions against community.
+ - Often the most loving thing we can do when a friend is in pain is to share the pain-to be there even when we have nothing to offer except our presence and even when being there is painful to ourselves.
+ - The only real security in life lies in relishing life’s insecurity.
+ - Discipline, it has been suggested, is the means of human spiritual evolution. What provides the motive, the energy for discipline? This force I believe to be love. I define love thus: The will to extend one’s self for the purpose of nurturing one’s own or another’s spiritual growth.
+ - It is only because of problems that we grow mentally and spiritually.
+ - The will to grow is, in essence, the same phenomenon as love. Genuinely loving people are, by definition, growing people.
+ - Listening well is an exercise of attention and by necessity hard work. It is because they do not realize this or because they are not willing to do the work that most people do not listen well.
+ - Falling in love is not an extension of one’s limits or boundaries; it is a partial and temporary collapse of them.
+ - Not only do self-love and love of others go hand in hand but ultimately they are indistinguishable.
+ - I make no distinction between the mind and the spirit, and therefore no distinction between the process of achieving spiritual growth and achieving mental growth. They are one and the same.
+ - A discussion becomes destructive when it begins to generate more heat than light.
+ - The quickest way to change your attitude toward pain is to accept the fact that everything that happens to us has been designed for our spiritual growth.
+ - Whenever we think of ourselves as doing something for someone else, we are in some way denying our own responsibility. Whatever we do is done because we choose to do it, and we make that choice because it is the one that satisfies us the most.
+ - When we cling, often forever, to our old patterns of thinking and behaving, we fall to negotiate any crisis, to truly grow up, and to experience the joyful sense of rebirth that accompanies the successful transition into greater maturity.
+ - We cannot solve life’s problems except by solving them.
+ - Integrity is never painless.
+ - It is our task-our essential, central, crucial task-to transform ourselves from mere social creatures into community creatures.
+ - We cannot solve a problem by saying, “It’s not my problem.” We cannot solve a problem by hoping that someone else will solve it for us. I can solve a problem only when I say, “This is my problem and it’s up to me to solve it.”
+ - There can be no vulnerability without risk; there can be no community without vulnerability; there can be no peace, and ultimately no life, without community.
+ - Jesus was lonely and sorrowful and scared-an unbelievably real person.
+ - Falling in love is not an act of will. It is not a conscious choice. No matter how open to or eager for it we may be, the experience may still elude us. Contrarily, the experience may capture us at times when we are definitely not seeking it, when it is inconvenient and undesirable.
+ - The path to holiness lies through questioning everything.
+ - When any institution becomes large and compartmentalized, with departments and subdepartments, then the conscience of the institution will often become so fragmented and diluted as to be virtually nonexistent, and the organization becomes inherently evil.
+ - In and through community lies the salvation of the world.
+ - An unconscious, gentle process whereby people who want to be loving attempt to be so by telling little white lies, by withholding some of the truth about themselves and their feelings in order to avoid conflict. Pseudocommunity is conflict-avoiding; true community is conflict-resolving.
+ - If we deny our anger, our pain, our ambition, or our goodness, we will suffer.
+ - All human interactions are opportunities either to learn or to teach.
+ - The best decision-makers are those who are willing to suffer the most over their decisions but still retain their ability to be decisive.
+ - Everything that happens in life is there to aid our spiritual growth.
+ - The great awareness comes slowly, piece by piece. The path of spiritual growth is a path of lifelong learning. The experience of spiritual power is basically a joyful one.
+ - I have learned nothing in twenty years that would suggest that evil people can be rapidly influenced by any means other than raw power. They do not respond, at least in the short run, to either gentle kindness or any form of spiritual persuasion with which I am familiar.
+ - There is no worse bitterness than to reach the end of your life and realized you have not lived.
+ - When we teach ourselves and our children discipline, we are teaching them and ourselves how to suffer and also how to grow.
+ - America’s greatest sin is the refusal to delay gratification.
+ - With total discipline we can solve all problems.
+ - Whenever we seek to avoid the responsibility for our own behavior, we do so by attempting to give that responsibility to some other individual or organization or entity. But this means we then give away our power to that entity.
+ - I guess if you want to know one single thing I’m about, it’s that I’m against easy answers.
+ - We cannot let another person into our hearts or minds unless we empty ourselves. We can truly listen to him or truly hear her only out of emptiness.
+ - The denial of suffering is, in fact a better definition of illness than its acceptance.
+ - I am dubious as to how far we can move toward global community-which is the only way to achieve international peace-until we learn the basic principles of community in our own individual lives and personal spheres of influence.
+ - The major threats to our survival no longer stem from nature without but from our own human nature within. It is our carelessness, our hostilities, our selfishness and pride and willful ignorance that endanger the world.
+ - Genuine love is volitional rather than emotional.
+ - A life of total dedication to the truth also means a life of willingness to be personally challenged.
+ - God creates each soul differently, so that when all the mud is finally cleared away, His light will shine through it in a beautiful, colorful, totally new pattern.
+ - There is no virtue inherent in un-constructive suffering.
+ - Real love is a permanently self-enlarging experience.
+ - The act of loving is an act of self-evolution even when the purpose of the act is someone else’s growth.
+ - I have said I have met Satan, and this is true. But it is not tangible. It no more has horns, hooves and a forked tail than God has a long white beard. Even the name, Satan, is just a name we have given to something basically nameless.
+ - Sickness begets chaos, which, through hard work and a touch of grace, leads to growth and resurrection.
+ - When we love something it is of value to us, and when something is of value to us we spend time with it, time enjoying it and time taking care of it...
+ - Commitment is inherent in any genuinely loving relationship.
+ - I have a very full and busy life and occasionally I am asked, Scotty, how can you do all that you do? The most telling reply I can give is: Because I spend at least two hours a day doing nothing.
+ - Many addictions can be far more dangerous than addiction to drugs. The addiction to power...
+ - Listen to your child enough and you will come to realize that he or she is quite an extraordinary individual. And the more extraordinary you realize your child to be the more you will be willing to listen. And the more you will learn.
+ - Good discipline requires time. When we have no time to give our children, or no time that we are willing to give, we don’t even observe them closely enough to become aware of when their need for our disciplinary assistance is expressed subtley.
+ - I can remember years ago sitting on my bed and suddenly thinking, “I am God.”
+ - But for the first time, I had a religious identity. I had come home. And so I called myself a Zen Buddhist at the age of 18.
+ - We cannot be a source for strength unless we nurture our own strength.
+ - Love always requires courage and involves risk.
+ - Although the act of nurturing another’s spiritual growth has the effect of nurturing one’s own, a major characteristic of genuine love is that the distinction between oneself and the other is always maintained and preserved.
+ - Let me simply state that it is wrong to regard any other human being, a priori, as an object, or an ‘It.’ This is so because each and every human being – you, every friend, every stranger, every foreigner – is precious.
+ - I’ve had all kinds of experiences with God in terms of revelation through a still, small voice or dreams or coincidences.
+ - Although I was raised in a profoundly secular home, I had a belief, an awareness of God, from as far back as I can remember.
+ - We know a great deal more about the causes of physical disease than we do about the causes of physical health.
+ - If we seek to be loved – if we expect to be loved – this cannot be accomplished; we will be dependent and grasping not genuinely loving.
+ - Consciousness is the foundation of all thinking; and thinking is the foundation of all consciousness.
+ - From the age of three on, as far back as I remember, I just knew there was a God behind everything.
+ - But I already saw no great difference between the psyche and spirituality. To amass knowledge without becoming wise is not my idea of progress in therapy.
+ - I believe it would be considerably healthier for us to dare to live without a reason for many things than with reasons that are simplistic.
+ - The more effort we make to appreciate and perceive reality, the larger and more accurate our maps will be. But many do not want to make this effort.
+ - As I grow through love, so grows my joy, ever more present, ever more constant.
+ - Examination of the world without is never as personally painful as examination of the world within.
+ - When you consider yourself valuable you will take care of yourself in all ways that are necessary.
+ - The principal form that the work of love takes is attention. When we love another person we give him or her our attention; we attend to that person’s growth.
+ - We skim over the surface thoughtlessly. But we must acknowledge that thinking well is a time-consuming process. We can’t expect instant results. We have to slow down a bit, and take the time to contemplate, meditate, and even pray. It is the only route to a more meaningful and efficient existence.
+ - How strange that we should ordinarily feel compelled to hide our wounds when we are all wounded.
+ - The key to community is the acceptance, in fact the celebration of our individual and cultural differences. It is also the key to world peace.
+ - Our view of reality is like a map with which to negotiate the terrain of life. If the map is true and accurate, we will generally know how to get there. If the map is false and inaccurate, we generally will be lost.
+ - It is not easy for us to change. But it is possible and it is our glory as human beings.
+ - Do what you feel called to do, but also be prepared to accept that you don’t necessarily know what you’re going to learn. Be willing to be surprised by forces beyond your control, and realize that a major learning on the journey is the art of surrender.
+ - If we want to be heard we must speak in a language the listener can understand and on a level at which the listener is capable of operating.
+ - If you wish to discern either the presence or absence of integrity, you need to ask only one question. What is missing? Has anything been left out?
+
+128 quotes

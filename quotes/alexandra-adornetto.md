@@ -1,0 +1,44 @@
+ - Sometimes it’s the little things that count most.
+ - Sometimes you meet a person and you just click-you’re comfortable with them, like you’ve known them your whole life, and you don’t have to pretend to be anyone or anything.
+ - Be grateful for small mercies.
+ - Some say we can’t choose who we fall in love with; love chooses us. Sometimes people fall for the complete antithesis of everything they believe they’re looking for.
+ - Sometimes it’s better to stop trying to make sense of things. Life isn’t clear cut, there are always gray areas.
+ - Put no obstacle in her path and this will surely die a natural death; obstruct her, and it will give the situation an importance to worth fighting for.
+ - Some say we can’t choose who we fall in love with; love chooses us.
+ - The righteous ones are always exhausting to have around.
+ - Life’s a game-and I happen to know how to play.
+ - To make one person the center of your world is bound to end in disaster. There are too many factors outside your control.
+ - Envy is a deadly sin!
+ - A man in love can do extraordinary things, I don’t care if you’re an angel, you’re my angel, and I won’t let you go.
+ - She had the face of an angel I saw mirrors in her eyes We were the same, she and I Both bound by potent lies. In him I saw my future In him I saw my friend In him I saw my destiny Both my beginning and my end.
+ - Never love that which you cannot keep.
+ - Some things are beyond human understanding.
+ - Without complexity, there’s no intensity.
+ - I thought you were gone forever, I thought you’d walked away from everything, because I failed, because I destroyed the only thing that ever mattered to me. I waited for you to come, but you didn’t.
+ - I think life’s too complex to be an accident.
+ - That was one of the saddest things about people – their most important thoughts and feelings often went unspoken and barely understood.
+ - The lake of fire awaits my lady.
+ - A body is merely a vehicle. The deepest emotions are experienced through the soul.
+ - Xavier: They, whoever they are, shouldn’t have control over our lives. I’m not about to lose you. I’ve been through that before, and I’ll do whatever it takes to make sure it doesn’t happen again.
+ - That is when you need faith the most. Not when everything is going your way, not when you have much to be thankful for, but when there is darkness all around.
+ - If you try to use Christ as a solution to your problems, it will not work. You have to serve Him in order for Him to serve you.
+ - Molly: So how do you think of Bryce Hamilton crowd so far? Boys hot enough for you? Bethany: I wouldn’t say hot. Most of them seem to have a normal body temperature.
+ - Love has to be reciprocated for it to be real.
+ - I’m a girl; of course I have a built-in miss-o-meter.
+ - Fine – I said huffily. – But I hope I’m at least allowed to fly around the corridors during lunch hour. Gabriel threw me a disapproving look. I waited for him to get my joke, but his eyes remained serious. I sighed. Much as I loved him, Gabriel could be totally lacking in any sense of humor.
+ - I prayed for all his dreams to come true. I prayed that I would always be able to connect with him – even if I was no longer on earth.
+ - It was ironic how love could awaken them to the wonders of the universe, while at the same time confine their attention to one another.
+ - There was that half-smirk again, playing around his lips, as if he was deciding whether the situation was amusing enough to warrant a full smile.
+ - Don’t worry, Beth; there’s nothing I love more than a challenge.
+ - The angel came, the angel saw, the angel fell.
+ - One does not need to lock up that which is not dangerous.
+ - Even though Xavier was only human, it seemed he could protect me from anything and everything. I wouldn’t have been worried if a fire-breathing dragon had torn of the roof, because I knew that Xavier was there. I wondered fleetingly if I was expecting to much og him, but dismissed the idea.
+ - Just because you like me doesn’t make me what you want or need.
+ - If he didn’t want to be mauled, he shouldn’t have put himself right in my path.
+ - There was an extensive collection of cookbooks in the well-stocked library, and he took to pouring over these in the evenings.
+ - Well, now that you set him on fire, I’m sure we’re well on the path to reconciliation.
+ - Just because I’ve walked into this crazy fantasy doesn’t mean I can just abandon my other plans, much as I might want to.
+ - The bubble’s been engineered to allow us to learn from within it.
+ - It’s easy to forget people are blood and bone. They’re not indestructible.
+
+42 quotes

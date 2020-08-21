@@ -1,0 +1,45 @@
+ - Pretend it doesn’t hurt, and hope like hell that one day it doesn’t anymore.
+ - Maybe I’m a supernatural retard.
+ - Being committed or loyal to someone doesn’t mean you won’t ever be attracted to someone else. It means you won’t physically act upon the attraction.
+ - Thanks, but that’s not going to fix anything. It’s like putting a Band-Aid on a bullet wound.
+ - Life isn’t supposed to be easy. Generally speaking, the harder something is the more rewarding the results will be.
+ - But you are making assumptions without all the facts, and that’s not a sign of intelligence.
+ - Life’s hard, Love’s harder.
+ - But I have to go. Thank you, Kylie Galen. Thank you for being my friend. Thank you for teaching me to think beyond myself. Thank you for everything.
+ - When he didn’t answer, she didn’t know if it was because he couldn’t or if he was back to not talking to her. Back to pushing her out of his life. Men! Why was it that boys said girls were so hard to understand, when she hadn’t known a single guy who hadn’t confused her to the point of screaming?
+ - Just because a person is young doesn’t mean that being loyal to someone isn’t important. And it still hurts if someone isn’t loyal to you.
+ - She cut her eyes to the woods and whispered, “We’re not alone, remember?” “I don’t care who hears it. I love you!” His voice rose louder this time. She frowned. “Nothing’s changed.” “Everything has changed,” he said.
+ - You told dad you didn’t know what happened to his underwear. But You’d just flame-broiled his shorts on the grill.
+ - What you are doesn’t matter. Because what you are isn’t going to change who you are.
+ - I don’t know what to tell you, Perry. Life’s hard. Love’s harder.
+ - Kylie didn’t know which one of the fairies were doing it, or if it was both- she honestly didn’t care- but the thousands of tiny pinpricks of panic started to fade. She felt safe and that was all that mattered.
+ - When we care about people, we sometimes overstep our grounds.
+ - Kylie thought hell would be announcing a snow day before she agreed with anything her mom said. But right now, Kylie wondered how many inches they were predicting.
+ - We just hide from the people we love. Sad, isn’t it?
+ - She simply stood there and waited for him to show her the next move. And hoped it only involved sword fighting and not seduction.
+ - I became blinded by what I thought I needed to do. I was wrong. I was stupid. But not for one minute did I ever stop loving you. And that’s why I deserve to be forgiven.
+ - Not everyone in the world is alike. And some of us are a lot more different than others. Some of us were born like this, some of us were changed. But no matter how this happened to you, if you are here it is because this is your destiny. It was chosen for you.
+ - You will be what you are, and whatever it is, you will be fine. Everyone has to accept that and love you for who you are; it doesn’t really matter where your heritage comes from.
+ - Just because a guy rings your bell, doesn’t mean you have to toot his horn.
+ - She couldn’t help wondering if that was how one made the decision to forgive or not. If letting go hurt more than accepting someone’s mistakes.
+ - She remembered when they were kids and he’d caught the rock that the bullies had thrown at her. At six, she’d considered him a hero. At sixteen, she considered him a heartbreaker.
+ - Bite my ass Mr. James.
+ - I’ve dug so deep into his background, I can practically tell you when he stopped waring diapers.
+ - Kylie watched as his shirttail upward, exposing a very hard abdomen. The hem of his shirt inched higher, and she took in the cutest inny belly button she’d ever seen. And then his chest. Solid. Hard. A few drops of water glistened against his skin. Hear heart beat to the sound of passion again.
+ - She leaned into him to soak up his warmth. “You are so hot,” she said. “It’s about time you noticed,” he teased.
+ - Whatever you are, whatever gifts you end up getting, you’ll find that time will make those changes less scary as well.
+ - His eyes widened. Oh, hell, you think I’m going to let him bite me? No way. It’s too risky and way too guy.
+ - You couldn’t always control life, just your response to it.
+ - She’s a serial kisser. I think her parents are French.
+ - That’s the tricky thing about love. It walks like a duck, quacks like a duck, and smells like a duck. But after you sleep with it a month or so, or get dumped at the altar by it, it starts smelling more like a skunk.
+ - She already had a headache-she didn’t want to add ‘get tortured’ to today’s to-do list.
+ - Long story short, ghosts just coming out of the closet sucked at communication. Probably as bad as a beginner ghost whisperer sucked at getting them to communicate.
+ - Kylie turned and the spirit of the murderous woman stood beside her. ‘You did this, didn’t you?’ ‘Why would I burn up my own phone?’ Derek asked.
+ - You gotta love an attentive vampire – Kylie.
+ - Couldn’t I just be a bit loony instead of gifted?
+ - I personally think the downside of being able to change into anything is the fear that you don’t know who you really are.
+ - Burnett wasn’t fooled, that was aparent by his expression, but he didn’t argue, either. Well, as long as one didn’t call slamming the door an argument. “Jerk” Holiday muttered. “I can hear you” he retorted from the other side of the wall.
+ - Burnett fidgeted. She had never seen Burnett like this. He looked like a kid who needed to go to the bathroom.
+ - Nana used to say whenever you start feeling like the world is taking a bite out of you, bite back by counting your blessings.
+
+43 quotes

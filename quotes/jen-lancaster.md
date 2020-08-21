@@ -1,0 +1,40 @@
+ - I tried, it was hard, I quit, the end. Story of my life.
+ - I don’t care how happily married you are or how deeply enmeshed you are with your children and family and career – every woman needs a couple of chicks who’ll break out the sangria just because you need to vent.
+ - Despite my best efforts, I’m not quite perfect. Let’s just say I’m like one of those Hopi blankets where they leave a tiny flaw so as to not affront the Lord.
+ - I’m not lazy. I’m simply judicious about excess movement.
+ - I’ve determined the ideal job for me is one where I can write clever essays about my life and my employer will give me enough money not only to live a comfortable existence, but also to buy many, many new pairs of shoes.
+ - Kiss the fattest part of my ass.
+ - I can’t believe anyone would voluntarily run 26 miles. Sometimes I sit on the couch cross-legged because I don’t feel like walking to the bathroom.
+ - Ambien might have mentally just tossed my salad. WITH CROUTONS.
+ - Owning a dog is slightly less expensive than being addicted to crack.
+ - In real life, I tend to yell at people a lot. Not because I’m bossy or mean, but because I’m frustrated.
+ - I still believe in the Holy Trinity, except now it’s Target, Trader Joe’s, and IKEA.
+ - Maybe I’ve moved to the dark side, but it’s clean and nice and we never run out of toilet paper.
+ - No matter how happy anyone is with their choices, I believe it’s human nature to wonder about the path not taken.
+ - Some people are destined to be deep thinkers. I am not one of those people.
+ - When did the cell phone become a license to be rude? And why must I be subjected to your personal conversations?
+ - I’m very detail oriented. I think that’s why people enjoy my memoirs – because I tend to remember everything.
+ - I’ve always been able to cook Italian food. That’s in my blood because I’m half Sicilian.
+ - As I examine my life through this book, I can’t help but wonder if my mother was right. Maybe I really was what I ate. And maybe if she’d let me eat a little more sugar, I’d have come out sweeter.
+ - I yearn to be a woman of more depth, but I’m not so fond of the path I’d need to follow to get there.
+ - I never sleep on the plane. I have to be awake and using my mind power to keep it in the air.
+ - I believe that I have such a vanilla life.
+ - You know what it was like? It was like thinking I was heading to a surprise party and instead it was a surprise pap smear.
+ - You can’t all of a sudden go to sleep one night and wake up Martha Stewart. It’s bit by bit by bit.
+ - This is terrific! What fun! Maybe tomorrow I can go to the prom with my brother. The day after, perhaps I can wear white pants and unexpectedly get my period.
+ - No, it’s not a ‘corpse thing.’ I feel I lack the emotional capacity to deal with those in mourning...
+ - Fletch then kisses me on the forehead before opening the cabinet under the coffeemaker to grab placemats and napkins. Retrieving these items is his job because I kind of don’t like to bend. I also refuse to carry anything heavier than my purse.
+ - Writing is something that I’ve always loved. That stems from my love of being a reader.
+ - I’m a humor writer, so I don’t always present myself in the best light.
+ - I would rather receive a Pap smear from Captain Hook than venture out on New Year’s Eve.
+ - I’m such a fangirl when it comes to other writers. I read 250 books a year, and I’m always talking up books by other authors.
+ - The best thing about being 45 is not taking myself so seriously.
+ - For the record? I have never been her baby. In fact, I reject the notion of coming out of her body. I prefer to believe I was hatched, or perhaps purchased.
+ - Everyone who reads me is someone I’d like to hang out with.
+ - Fortunately, all it takes for us to be of one mind is some buttercream frosting.
+ - As a reader, I notice political views regardless of whether or not the book is fiction. What annoys me is when said views do nothing to advance the narrative.
+ - Expressing political opinion can be a powerful way to establish a character’s voice when writing fiction.
+ - Point? Maybe you aren’t a Carrie or a Samantha or a Charlotte or a Miranda. Maybe you’re just you.
+ - You think you’re so cool just because you can walk!
+
+38 quotes

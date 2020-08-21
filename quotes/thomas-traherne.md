@@ -1,0 +1,41 @@
+ - You never enjoy the world aright, till the sea itself floweth in your veins, till you are clothed with the heavens and crowned with the stars.
+ - You are as prone to love as the sun is to shine; it being the most delightful and natural employment of the soul of humans.
+ - A stranger here Strange things doth meet, strange glories see; Strange treasures lodged in this fair world appear, Strange all, and new to me. But that they mine should be, who nothing was, That strangest is of all, yet brought to pass.
+ - Your enjoyment of the world is never right, till every morning you awake in Heaven: see yourself in your Father’s palace; and look upon the skies, the earth, and the air as celestial joys: having such a reverend esteem of all, as if you were among the angels.
+ - The Soul is shriveled up and buried in a grave that does not love.
+ - The soul is made for action, and cannot rest till it be employed. Idleness is its rust. Unless it will up and think and taste and see, all is in vain.
+ - An empty book is like an infant’s soul, in which anything may be written. It is capable of all things, but containeth nothing. I have a mind to fill this with profitable wonders.
+ - As nothing is more easy than to think, so nothing is more difficult than to think well.
+ - To love one person with a private love is poor and miserable: to love all is glorious.
+ - We do not ignore maturity. Maturity consists in not losing the past while fully living in the present with a prudent awareness of the possibilities of the future.
+ - How like an angel came I down!
+ - Certainly Adam in Paradise had not more sweet and curious apprehensions of the world, than I when I was a child.
+ - To walk abroad is, not with eyes, But thoughts, the fields to see and prize; Else may the silent feet, Like logs of wood, Move up and down, and see no good, Nor Jor nor glory meet.
+ - The world is a mirror of infinite beauty, yet no man sees it.
+ - The corn was orient and immortal wheat, which never should be reaped, nor was ever sown. I thought it had stood from everlasting to everlasting.
+ - The world is a mirror of infinite beauty, yet no man sees it. It is a Temple of Majesty, yet no man regards it. It is a region of Light and Peace, did not men disquiet it. It is the Paradise of God.
+ - Had we not loved ourselves at all, we could never have been obliged to love anything. So that self-love is the basis of all love...
+ - You are as prone to love, as the sun is to shine.
+ - Sleep is cousin-german unto death: Sleep and death differ, no more, than a carcass And a skeleton.
+ - Sure Man was born to meditate on things, And to contemplate the eternal springs Of God and Nature, glory, bliss and pleasure: That life and love might be his eternal treasure.
+ - You never know yourself till you know more than your body.
+ - Happiness was not made to be boasted, but enjoyed. Therefore tho others count me miserable, I will not believe them if I know and feel myself to be happy; nor fear them.
+ - We love we know not what, and therefore everything allures us.
+ - This moment exhibits infinite space, but there is a space also wherein all moments are infinitely exhibited, and the everlasting duration of infinite space is another region and room of joys.
+ - The sense itself was I. I felt no dross or matter in my soul, no brims or borders, such as in a bowl we see. My essence was capacity.
+ - This visible world is wonderfully to be delighted in, and highly to be esteemed, because it is the theatre of God’s righteous Kingdom.
+ - Is it not strange, that an infant should be heir of the whole world, and see those mysteries which the books of the learned never unfold?
+ - Let those parents that desire Holy Children learn to make them possessors of Heaven and Earth betimes; to remove silly objects from before them, to magnify nothing but what is great indeed, and to talk of God to them, and of His works and ways. before they can either speak or go.
+ - I will not by the noise of bloody wars and the dethroning of kings advance you to glory: but by the gentle ways of peace and love.
+ - By this you may see who are the rude and barbarous Indians: For verily there is no savage nation under the cope of Heaven, that is more absurdly barbarous than the Christian World. They that go naked and drink water and live upon roots are like Adam, or Angels in comparison of us.
+ - Till you can sing and rejoice and delight in God as misers do in gold, and kings in scepters, you can never enjoy the world.
+ - A little grit in the eye destroyeth the sight of the very heavens, and a little malice or envy a world of joys. One wry principle in the mind is of infinite consequence.
+ - More company increases happiness, but does not lighten or diminish misery.
+ - He knoweth nothing as he ought to know it, who thinketh he knoweth anything without seeing its place and the manner how it relateth to God, angels, and men, and to all the creatures in earth, heaven and hell, time and eternity.
+ - To think well is to serve God in the interior court.
+ - Be sensible of your wants, that you maybe sensible of your treasures.
+ - Principles are like a seed in the ground; they must continually be visited with heavenly influences or else your life will be a barren field.
+ - Natural things are glorious, and to know them is glorious.
+ - To think the world therefore a general Bedlam, or place of madmen, and oneself a physician, is the most necessary point of present wisdom: an important imagination, and the way to happiness.
+
+39 quotes

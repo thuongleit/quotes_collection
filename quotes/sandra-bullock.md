@@ -1,0 +1,129 @@
+ - There’s no race, no religion, no class system, no color – nothing – no sexual orientation, that makes us better than anyone else. We’re all deserving of love.
+ - Go find your joy. It’s what you’re going to remember in the end.
+ - There is something sexy about a computer nerd.
+ - Childhood is what you spend the rest of your life trying to overcome.
+ - Your imperfections are what make you beautiful.
+ - Magic exists if you allow it. If you open yourself up to it.
+ - We don’t trust anyone who does anything nice. That’s just the sad world we live in.
+ - If you spend enough time with yourself in silence, you’ll be surprised what goes through your head.
+ - I love the written word; I love when someone takes the time or leaves you a note or sends a letter.
+ - People care about people who care about themselves.
+ - I like normal, simple, good people.
+ - I’ve been trying to find the word that says what I need to be in life. ‘Brave’ is the only word. It’s the only thing that I ask myself to be.
+ - She says that beginnings are scary, endings are usually sad, but it’s the middle that counts the most.
+ - I’ll do anything for free stuff.
+ - I have achieved everything through either hard work or luck.
+ - I go to bed wearing a very baggy one-piece cheetah suit, just because it makes my son laugh. My sexy lingerie has been locked in a drawer for a while.
+ - I do believe in choice, the freedom of choice and carving out your own happiness.
+ - We all grow into the beautiful person that we’re supposed to be, some earlier, some later.
+ - Savor what you are and not what everyone else wants you to be.
+ - Human beings exist that have integrity, that know how to keep their mouth shut, that know the bigger picture, that don’t sell out their friends.
+ - I’m aware that I can be annoying.
+ - I used to be an optimist, but now I know that nothing is going to turn out as I expect.
+ - When I was a struggling actress in New York in my 20s I worked in a burger joint called Diane’s Uptown. I actually loved waiting tables. I still keep who I was in my mind and never take anything for granted.
+ - I don’t need any more stories. I have enough stories. I need a life.
+ - Yeah, I’m nervous. I’m wearing heels in public for crying out loud.
+ - Women should do a lot more fighting. I don’t think it’s fair that we can’t get into a good fight...
+ - I’ve learned that success comes in a very prickly package. Whether you choose to accept it or not is up to you.
+ - Poop humor is fun. If you do the toilet scenes well and commit to them, they can be really, really powerful.
+ - I love thongs. The day they were invented, sunshine broke through the clouds.
+ - When people are like, Life is good, I go, No, life is a series of disastrous moments, painful moments, unexpected moments, and things that will break your heart. And in between those moments, that’s when you savor, savor, savor.
+ - I hate the word assistant. No one works for me. I work with everyone because I couldn’t do anything without the people that I work with.
+ - The most beautiful woman in the world is the one who protects and supports other women.
+ - I’ve done all my tricks. I’m tired of myself.
+ - My goal now is to remember every place I’ve been, only do things I love, and not say yes when I don’t mean it.
+ - Nothing makes me happier than dancing. It transforms me. It’s the only time I let out what is inside and I feel completely sensual and sexy and alive.
+ - Every day is amazing, even when it’s awful, because everything is for a reason. I know that this horrible thing that’s happening today is going to bring something so amazing.
+ - Chocolate is the greatest gift to women ever created.
+ - I feel a huge responsibility to anyone who’s younger than me, in helping them take the road less traveled, or finding no road at all and blazing a new trail.
+ - You never quite know what the change is until, one day, you wake up and go, “Wow, I’m reacting to things differently and I feel differently.”
+ - I’m very musically inclined. My parents were opera singers. As a young child, I could hear operas and I knew if they were sad, or if they reminded me of something, or they brought back a memory.
+ - No one has ever bought me underwear, and I’m a little bummed about that. Maybe it’s not such a big deal any more.
+ - On the Hugh Grant romance rumours: We’re not dating and I’m not pregnant. We have not kissed or touched. We have not fought and broken up.
+ - I’d rather take risks than make something that’s cookie cutter.
+ - I don’t ever want to come home saying, ‘I should have spoken my mind. I shouldn’t have let someone say something that I didn’t feel was right.’
+ - It’s the rare happening when actors get together and you have chemistry, connection, just something that works, that’s bigger than what’s on the page.
+ - There’s no magic numbers in birthdays in my life, there are no milestones, there’s no event. Every birthday has to be celebrated to its fullest, even if it’s with one person or with 20.
+ - I still love being creative. I still love the aspects of working together with great, talented people. But it’s a weird dichotomy; I’m being blessed with more opportunities, but I’m going to be taking less of them.
+ - Falling in love-you should go with it, regardless of whether or not your heart gets smashed. You’ll be a better person.
+ - It’s just too much if you make your career everything. It is everything when you’re doing it. But you have to find things you love just as much.
+ - To me, the producing falls into the same as acting. It requires so much time out of your life, and I take it very personally, I realize, so if I do something, it just has to be something I love and I don’t want anyone else to do.
+ - I love fashion. I love couture. I’m going to erect a shelf in my bedroom with an art light to be the spot for the shoes of the month.
+ - Makeup is scary. When I do it myself, it’s just mascara, and sometimes I forget even to do that.
+ - I don’t want an opportunity to go missing because of my lack of organization.
+ - I’m like the queen of planning and scheduling and I’m trying very hard to stop it. I just want to finish what I’m doing and go home. I want to have a weekend. I want to have breakfast, a stack of pancakes.
+ - You’re never in control. That – that is the greatest fallacy of the – you know, there’s over 200 people that it requires to make a film. And there’s people who are in control of how you look, what your performance is, what takes are used, what – you’re only in control of how you say no.
+ - I was rejected in school because I didn’t look like the big-breasted, beautiful girls. I was awkward and sad. My mother always said, “Be original!” but I didn’t understand until I changed to be like everyone else.
+ - I basically became a cheerleader because I had a very strict mom. That was my way of being a bad girl.
+ - The people I find most beautiful are the ones who aren’t trying.
+ - I can’t selfishly take journeys anymore because I have to take a little boy along with me.
+ - Chocolate is the greatest gift to women ever created, next to the likes of Paul Newman and Gene Kelly. It’s something that should be had on a daily basis.
+ - My job is not to talk smack about anything. This is why I dislike strongly doing magazine articles: My personality does not translate to print. People don’t read it as sarcasm, and it just comes off badly.
+ - I’m one of those people who knows how lucky she is. And every day, I look around the house, and I count my blessings. They’re all there under that roof.
+ - Every movie is a love story.
+ - Everything in large doses is gonna kill you. Even happiness.
+ - I don’t understand why there needs to be a love interest to make women go see a film. I think society sort of makes us feel that way – that if you don’t have a guy, you’re worthless.
+ - Ironing is comfort. It’s control. I’m a nutty person who likes to make sure everything is in its place.
+ - Sure, I’m an optimistic, joyous person, but I’m also afraid and insecure...
+ - Did I really earn this, or did I just wear you all down?
+ - I rely on music heavily, just in life and in my work.
+ - I would love to be on ‘Top Gear’ as a star in a reasonably priced car.
+ - The Hollywood I know has allowed me the opportunity after opportunity to keep doing new things and not send me out to pasture. I don’t want to go to pasture. It’s cold. I’m allergic to grass. And the cows are mean.
+ - Everyone told me to pass on Speed because it was a ‘bus movie.’
+ - I think everything is going to be devastatingly sad – when the phone rings, I know somebody in my family’s been hurt, somebody’s going to die. I’m sure a therapist would go, ‘That’s not a good way to live,’ but every time it’s not that bad thing, I’m so thankful and appreciative.
+ - My parents were opera singers and voice teachers, so growing up, I admired musicians and dancers.
+ - Everyone does things for love.
+ - Why is marriage the pinnacle for everyone? People get married for the wrong reasons. We need to start looking at different packages, whether it’s living together, or being with six partners, or dedicating your life to taking care of flowers.
+ - If you don’t have kids and animals, you don’t truly know what life is about.
+ - Once you learn how to say no, that’s about the only place that you’ll have control of your work and what you do.
+ - When you’re an actor, seeing yourself for the first time, you spend all your time just watching yourself and hating yourself and picking your performance apart. You say, “I look horrible. I should quit.”
+ - I love humor. I always will fall back on humor. That’s something that I think you can’t ever get enough of and, if it’s done well, it’s great. When it’s bad, it’s horrible.
+ - It’s such a joy to be able to play someone who is angry. It’s a joy and a relief. Having to be nice all the time is exhausting and boring.
+ - Lemons clean everything. It’s the greatest disinfectant.
+ - I’ve never had good fortune with sequels. Everyone says this time is going to be better. And then I’ve done them and they’ve just been not – they weren’t better.
+ - If all of a sudden someone said, ‘You have five more kids,’ I’d be totally OK with it.
+ - I think a lot of actors, comedians, musicians, artists are drawn to this world, because you’re allowed to excavate whatever it is that you’re struggling with, and hopefully turn it into art.
+ - I realize that once I stopped fighting the technical process of how to move my body, I made it choreography.
+ - I’m a huge lover of going to the theater and having that experience of people in the room. Any time you go to an experience like this, you hear it in a different way because sound systems are different.
+ - I admire actresses who are good to women. I don’t like the ones who just don’t like women. You can feel it. They’re degrading themselves.
+ - At this critical time, I am grateful to Sandra Bullock for once again demonstrating her leadership, compassion and belief in our global humanitarian mission. Sandra continues to enable our lifesaving work and is a model for personal generosity.
+ - I have an expensive hobby: buying homes, redoing them, tearing them down and building them up the way they want to be built. I want to be an architect.
+ - I don’t want to not enjoy where I am at this very moment. So, every time I plan something the exact opposite happens. I hope that I’m always satisfied and content like I am right at this very moment.
+ - I am a lover like no lover has ever loved before!
+ - I have these big piano-playing hands. I feel like I should be picking potatoes.
+ - To me, true beauty isn’t something that will wash off in the shower at the end of the day. It’s something that’s still there, before you go to bed and wake up in the morning. And, you know, they always say that’s inner beauty, but it is.
+ - I would say if you are going to party, show up on time to work.
+ - I realised that conforming didn’t accomplish anything. Do your own thing. As long as you learn that, you’re cool.
+ - Great acting may be a turn-on, but it won’t make me fantasize about the person for a week.
+ - I love New Orleans I love the way it looks. I love the way it feels.
+ - I don’t think there’s ever what could be called a ‘chilled state’ in my head.
+ - Anything sweet, really sweet, that I have was nothing that I planned.
+ - The joke or the pratfall is easy for me to do.
+ - It’s sad when you say a $30 million film is an inexpensive film, but it is.
+ - I’ve never been a blind romantic.
+ - We don’t have to pretend to be something that we’re not.
+ - Not everything has to be immediate.
+ - I don’t think we are the only planet that has life.
+ - Crushes are wonderful-they make you feel like you’re two years old, and you say the stupidest things.
+ - Whoever established the high road, and how high it should be, should be fired.
+ - The truth is in the kisses.
+ - I have no desire to maintain a lifestyle. I am a horrible celebrity. If I am out in public I dress like a pig.
+ - There weren’t roles for females in comedies for a really long time.
+ - I realized that being an actor was something I never owned up to, in a weird way. I would be a hostess or a waitress or a house restorer before I would consider myself an actor, because I never thought I was good enough.
+ - I think people who do comedy tend to do it well, and to do it painfully and truthfully. So making the leap to drama is easier for them because everything they’ve done is from pain anyway.
+ - Music, somehow, breaks through, to everybody.
+ - Anyone who has been given the gift of being opposite an actor who gives and gives, it just makes you better.
+ - I’ve made mistakes, and I know why I made them, but I made that choice. Nobody’s ever made a choice for me.
+ - You don’t. It doesn’t work. One day, you wake up, and you’ve learned how to store it, and you go to another part of the heart.
+ - I’ve always been very skeptical about marriage, because I only want to do it once; I want to do it the right way.
+ - Getting into television was a total fluke.
+ - Uniqueness was something my mother pounded into me.
+ - I stopped doing romantic comedies. I just stopped. They’re terrible. They’re bad. They’re not funny and so they shouldn’t be a romantic comedy because most of the time they’re not romantic. They shouldn’t be called romantic comedy.
+ - I’m just having fun. And giving a sort of second shot at childhood and life – and I need to be present to do it.
+ - You can’t really dance properly to James Brown. If you dance to James Brown, you look like an idiot. There’s a lot of jerking.
+ - I believe that every human being has mental challenges.
+ - You know, people ask, “How does the chemistry happen?” It’s like being in a bar when you’re drunk. You see the person, and you don’t know why, it just works. And it’s like everything goes in slow-motion.
+ - When you have adversity and you have pain, you never feel more alone than you do at that moment. And you can be surrounded by hundreds of thousands of people.
+ - I’ve pretty much kicked over every stone. And there’s nothing in me that says, “I must create this particular thing.”
+
+127 quotes

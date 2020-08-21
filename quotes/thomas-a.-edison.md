@@ -1,0 +1,246 @@
+ - Many of life’s failures are people who did not realize how close they were to success when they gave up.
+ - I have not failed. I’ve just found 10,000 ways that won’t work.
+ - There's a way to do it better - find it.
+ - Genius is 1% inspiration, and 99% perspiration.
+ - Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time.
+ - There is no substitute for hard work.
+ - There are no rules here – we’re trying to accomplish something.
+ - Five percent of the people think; ten percent of the people think they think; and the other eighty-five percent would rather die than think.
+ - We often miss opportunity because it’s dressed in overalls and looks like work.
+ - I never did a day's work in my life, it was all fun.
+ - When you have exhausted all possibilities, remember this – you haven’t.
+ - If we all did the things we are really capable of doing, we would literally astound ourselves.
+ - Negative results are just what I want. They’re just as valuable to me as positive results. I can never find the thing that does the job best until I find the ones that don’t.
+ - The three great essentials to achieve anything worthwhile are, first, hard work; second, stick-to-itiveness; third, common sense.
+ - Tomorrow is my exam but I don’t care because a single sheet of paper can’t decide my future.
+ - Everything comes to him who hustles while he waits.
+ - I never did anything worth doing by accident, nor did any of my inventions come by accident; they came by work.
+ - I have friends in overalls whose friendship I would not swap for the favor of the kings of the world.
+ - To invent, you need a good imagination and a pile of junk.
+ - Just because something doesn’t do what you planned it to do doesn’t mean it’s useless.
+ - The value of an idea lies in the using of it.
+ - Vision without execution is delusion.
+ - The doctor of the future will no longer treat the human frame with drugs, but rather will cure and prevent disease with nutrition.
+ - I never quit until I get what I want.
+ - I didn’t fail 1000 times. The light bulb was an invention with 1000 steps.
+ - Our greatest weakness lies in giving up.
+ - Time is really the only capital that any human being has, and the only thing he can’t afford to lose.
+ - I failed my way to success.
+ - Seeming to do is not doing.
+ - Never Say I Failed 99 Times, Say I Discovered 99 Ways Which Causes Failure!
+ - A man’s best friend is a good wife.
+ - The successful person makes a habit of doing what the failing person doesn’t like to do.
+ - Each time you fail, you have eliminated another wrong option.
+ - The doctor of the future will give no medicine, but will involve the patient in the proper use of food, fresh air and exercise.
+ - Being busy does not always mean real work. The object of all work is production or accomplishment and to either of these ends there must be forethought, system, planning, intelligence, and honest purpose, as well as perspiration. Seeming to do is not doing.
+ - Every failure is a lesson learned about your strategy.
+ - To get a great idea, come up with lots of them.
+ - Most of my ideas belonged to other people who never bothered to develop them.
+ - Genius is one percent inspiration and ninety-nine percent perspiration. As a result, a genius is often a talented person who has simply done all of his homework.
+ - The world owes nothing to any man, but every man owes something to the world.
+ - Success depends on how many experiments you can fit into 24 hours.
+ - The first requisite of success is the ability to apply your physical and mental energies to one problem without growing weary.
+ - Until man duplicates a blade of grass, nature can laugh at his so called scientific knowledge.
+ - To do much clear thinking a person must arrange for regular periods of solitude when they can concentrate and indulge the imagination without distraction.
+ - An idea is something that won’t work unless you do.
+ - There is far more opportunity than there is ability.
+ - This problem, once solved, will be simple.
+ - My success is due more to my ability to work continuously on one thing without stopping than to any other single quality.
+ - Genius is 99% perspiration and 1% inspiration.
+ - Good fortune is what happens when opportunity meets with planning.
+ - First be sure a thing is wanted or needed, then go ahead.
+ - Non-violence leads to the highest ethics, which is the goal of all evolution. Until we stop harming all other living beings, we are still savages.
+ - There is great value in disaster. All our mistakes are burned up. Thank God we can start a new.
+ - We will make electricity so cheap that only the rich will burn candles.
+ - I would rather have one man with enthusiasm working with me than ten who are complacent.
+ - Never be discouraged, because every wrong turn attempt, when left behind you, is another step forward taking you closer to your goals.
+ - Keep on the lookout for novel ideas that others have used successfully. Your idea has to be original only in its adaptation to the problem you’re working on.
+ - Focus on how the end-user customers perceive the impact of your innovation – rather than on how you, the innovators, perceive it.
+ - The reason a lot of people do not recognize opportunity is because it usually goes around wearing overalls looking like hard work.
+ - I make more mistakes than anyone else I know, and sooner or later, I patent most of them.
+ - Failure is really a matter of conceit. People don’t work hard because, in their conceit, they imagine they’ll succeed without ever making an effort. Most people believe that they’ll wake up some day and find themselves rich. Actually, they’ve got it half right, because eventually they do wake up.
+ - I believe in the existence of a Supreme Intelligence pervading the Universe.
+ - Your worth consists in what you are and not in what you have.
+ - The only time I really become discouraged is when I think of all the things I would like to do and the little time I have in which to do them.
+ - I owe my success to the fact that I never had a clock in my workroom. Seventy-five of us worked twenty hours every day and slept only four hours – and thrived on it.
+ - I never once failed at making a light bulb. I just found out 99 ways not to make one.
+ - No, I haven’t failed thousands of times. On the contrary, I have successfully eliminated thousands of ideas that do not work!
+ - Consider data without prejudice.
+ - Accomplishing something provides the only real satisfaction in life.
+ - Of the 200 light bulbs that didn’t work, every failure told me something that I was able to incorporate into the next attempt.
+ - When you become quiet, it just dawns on you.
+ - Large portions of life’s disappointments are individuals who did not understand that they were so near achievement when they surrendered.
+ - The thing I lose patience with the most is the clock. Its hands move too fast.
+ - The stomach is the only part of man which can be fully satisfied. The yearning of man’s brain for new knowledge and experience and for more pleasant and comfortable surroundings never can be completely met. It is an appetite which cannot be appeased.
+ - I have not failed 700 times. I have not failed once. I have succeeded in proving that those 700 ways will not work. When I have eliminated the ways that will not work, I will find the way that will work.
+ - If I could solve all the problems myself, I would.
+ - Great ideas originate in the muscles.
+ - The perils of overwork are slight compared with the dangers of inactivity.
+ - Every wrong attempt discarded is another step forward.
+ - The body is a community made up of its innumerable cells or inhabitants.
+ - I will not say I failed 1000 times, I will say that I discovered there are 1000 ways that can cause failure.
+ - I am a vegetarian as well as a passionate anti-alcoholic, because I can thus make better use of my brain.
+ - The radio craze will die out in time.
+ - Life’s most soothing things are a child’s goodnight and sweet music.
+ - I do not believe any type of religion should ever be introduced into the public schools of the United States.
+ - Anything that won’t sell, I don’t want to invent. Its sale is proof of utility, and utility is success.
+ - A lawsuit is the suicide of time.
+ - I do not believe in the God of the theologians; but that there is a Supreme Intelligence I do not doubt.
+ - When down in the mouth, remember Jonah. He came out all right.
+ - My mother was the making of me.
+ - I was always afraid of things that worked the first time. Long experience proved that there were great drawbacks found generally before they could be got commercial; but here was something there was no doubt of.
+ - Until man duplicates a blade of grass, nature can laugh at his so-called scientific knowledge. Remedies from chemicals will never stand in favor compared with the products of nature, the living cell of the plant, the final result of the rays of the sun, the mother of all life.
+ - To my mind the old masters are not art; their value is in their scarcity.
+ - There is far more danger in public than in private monopoly, for when Government goes into business it can always shift its losses to the taxpayers. Government never makes ends meetand that is the first requisite of business.
+ - Not only will atomic power be released, but someday we will harness the rise and fall of the tides and imprison the rays of the sun.
+ - I have determined that there is no market for talking pictures.
+ - I am so deaf I am debarred from hearing all the time articulation and have to depend on the judgment of others.
+ - There is a better way for everything. Find it.
+ - I think that Ingersoll had all the attributes of a perfect man, and, in my opinion, no finer personality ever existed. Judging from the past, I cannot help thinking that the intention of the Supreme Intelligence that rules the world is to ultimately make such a type of man universal.
+ - The money one gets for selling one’s soul is always spent in deadening one’s conscience, so the net gain at the end of a lifetime is no greater than if the diabolic bargain had not been struck.
+ - Radio is just a fashion contrivance that will soon die out. It is obvious that there never will be invented a proper receiver!
+ - Continued innovation is the best way to beat the competition.
+ - Sleep is like a drug. Take too much at a time and it makes you dopey. You lose time and opportunities.
+ - What you are will show in what you do.
+ - The inventor can’t do it all, you’ve got to change people. We have an enormous capacity to invent super-machinery. But our desire to install the device is weak. Human inertia is the problem, not invention. Something in man makes him resist change.
+ - The endeavor to change universal power by selfish supplication I do not believe in.
+ - A genius is a talented person who does his homework.
+ - Show me a thoroughly satisfied man and I will show you a failure.
+ - A good intention, with a bad approach, often leads to a poor result.
+ - Work while others are wishing.
+ - I believe that the science of chemistry alone almost proves the existence of an intelligent creator.
+ - The greatest invention in the world is the mind of a child.
+ - Being busy does not always mean real work.
+ - I’d put my money on the sun and solar energy. What a source of power! I hope we don’t have to wait til oil and coal run out before we tackle that.
+ - I did not fail two thousand times. I merely found two thousand ways not to make a lightbulb.
+ - The First 40 hours of work per week are for survival. Everything after that is for success.
+ - Discontent is the first necessity of progress.
+ - I have better use for my brain than to poison it with alcohol. To put alcohol in the human brain is like putting sand in the bearings of an engine.
+ - My mother was the making of me. She was so true and so sure of me, I felt that I had someone to live for – someone I must not disappoint. The memory of my mother will always be a blessing to me.
+ - From his neck down a man is worth a couple of dollars a day, from his neck up he is worth anything that his brain can produce.
+ - I find out what the world needs. Then I go ahead and try to invent it.
+ - I’ve never made a mistake. I’ve only learned from experience.
+ - The best thinking has been done in solitude. The worst has been done in turmoil.
+ - We don’t know a millionth of one percent about anything.
+ - Success is based on imagination plus ambition and the will to work.
+ - The chief function of the body is to carry the brain around.
+ - Nearly every man who develops an idea works it up to the point where it looks impossible, and then he gets discouraged. That’s not the place to become discouraged.
+ - We haven’t failed. We now know a thousand things that won’t work, so we are much closer to finding what will.
+ - What is a college? An institute of learning. What is a business? An institute of learning. Life, itself, is an institute of learning.
+ - Personally, I enjoy working about 18 hours a day. Besides the short catnaps I take each day, I average about four to five hours of sleep per night.
+ - We shall have no better conditions in the future if we are satisfied with all those which we have at present.
+ - Success is the result of hard work.
+ - We have merely scratched the surface of the store of knowledge which will come to us. I believe that we are now, a-tremble on the verge of vast discoveries – discoveries so wondrously important they will upset the present trend of human thought and start it along completely new lines .
+ - There seems to be no limit to which some men will go to avoid the labor of thinking. Thinking is hard work.
+ - The strength of the Constitution, lies in the will of the people to defend it.
+ - A diamond is a piece of coal that stuck to the job.
+ - I never failed once. It just happened to be a 2000-step process.
+ - The real measure of success is the number of experiments that can be crowded into 24 hours.
+ - Fools call wise men fools. A wise man never calls any man a fool.
+ - Sticking to it is the genius.
+ - None of my inventions came by accident. I see a worthwhile need to be met and I make trial after trial until it comes. What it boils down to is one per cent inspiration and ninety-nine per cent perspiration.
+ - Maturity is often more absurd than youth and very frequently is most unjust to youth.
+ - I start where the last man left off.
+ - Failure is the most effective technique to optimize strategic planning, implementation and processes.
+ - As a cure for worrying, work is far better than whiskey. I always found that, if I began to worry, the best thing I could do was focus upon doing something useful and then work very hard at it. Soon, I would forget what was troubling me.
+ - Do the thing and the power will come.
+ - The man who doesn’t make up his mind to cultivate the habit of thinking misses the greatest pleasure in life.
+ - The first requisite for success is to develop the ability to focus...
+ - Absorb ideas from every source.
+ - I am long on ideas, but short on time. I expect to live to be only about a hundred.
+ - If I had not had so much ambition and not tried to do so many things, I probably would have been happier, but less useful.
+ - Religion is all bunk.
+ - The inventor tries to meet the demand of a crazy civilization.
+ - For faith, as well intentioned as it may be, must be built on facts, not fiction – faith in fiction is a damnable false hope.
+ - Be courageous. I have seen many depressions in business. Always America has emerged from these stronger and more prosperous. Be brave as your fathers before you. Have faith! Go forward!
+ - Let the public throw bouquets to the inventors and in time we will all be happy.
+ - I have never seen the slightest scientific proof of the religious theories of heaven and hell, of future life for individuals, or of a personal God.
+ - I believe that the motion picture is destined to revolutionize our educational system and that in a few years it will supplant largely, if not entirely, the use of textbooks.
+ - Even though I am nearly deaf, I seem to be gifted with a kind of inner hearing which enables me to detect sounds and noises which the ordinary person does not hear.
+ - It is a terrible situation when the Government, to insure the National Wealth, must go in debt and submit to ruinous interest charges, at the hands of men, who control the fictitious value of gold. Interest is the invention of Satan.
+ - Two per cent. is genius, and ninety-eight per cent. is hard work.
+ - To Monsieur Eiffel the Engineer, the brave builder of so gigantic and original a specimen of modern Engineering from one who has the greatest respect and admiration for all Engineers including the Great Engineer the Bon Dieu.
+ - Everyone steals in commerce and industry. I’ve stolen a lot, myself. But I know how to steal! They don’t know how to steal!
+ - Any large extension of the Government into business affairs – no matter what the pretense and no matter how the the extension is labeled – will be bound to promote waste and put a curb on our prosperity and progress.
+ - The dove is my emblem.
+ - Interest is the invention of Satan.
+ - I have had a lot of success with failure.
+ - I never view mistakes as failures. They are simply opportunities to find out what doesn’t work.
+ - M. A. Rosanoff: Mr. Edison, please tell me what laboratory rules you want me to observe. Edison: There ain’t no rules around here. We’re trying to accomplish somep’n!
+ - The greatest discoveries will be along spiritual lines. This is the field where miracles are going to happen. Spiritual power is the greatest underdeveloped power and has the greatest future.
+ - I owe my success to the fact that I never had a clock in my workroom.
+ - People are not remembered by how few times they fail, but by how often they succeed. Every wrong step is another step forward.
+ - Be brave as your fathers before you. Have faith and go forward.
+ - You can’t realize your dreams unless you have one to begin with.
+ - I am 67, but I’m not too old to make a fresh start.
+ - There will one day spring from the brain of science a machine or force so fearful in its potentialities, so absolutely terrifying, that even man, the fighter, who will dare torture and death in order to inflict torture and death, will be appalled, and so abandon war forever.
+ - Of all my inventions, I liked the phonograph best.
+ - Results! Why, man, I have gotten a lot of results. I know several thousand things that won’t work.
+ - The memory of my mother will always be a blessing to me.
+ - It is remarkable to what lengths people will go to avoid thought.
+ - Because I readily absorb ideas from every source – frequently starting where the last person left off – I never pick up an item without thinking of how I might improve it.
+ - The trouble with most people is that they quit before they start.
+ - I’ve realized that most of my best ideas have followed a good night’s sleep.
+ - In creating technology for ourselves we created it for the world.
+ - I find my greatest pleasure, and so my reward, in the work that precedes what the world calls success.
+ - Youth doesn’t take advice.
+ - Through all the years of experimenting and research, I never once made a discovery. I start where the last man left off. All my work was deductive, and the results I achieved were those of invention pure and simple.
+ - I have not failed. I’ve just found 10,000 foundations and individual donors whose priorities don’t align with my organization’s.
+ - Nobody knows whether our personalities pass on to another existence or sphere, but if we can evolve an instrument so delicate to be manipulated by our personality as it survives in the next life such an instrument ought to record something...
+ - Direct thought is not an attribute of feminity. In this, women are now centuries behind man.
+ - I remember that I was never able to get along at school. I was at the foot of the class.
+ - Most of the exercise I get is from standing and walking around laboratory tables all day. I derive more benefit and entertainment from this than some of my friends and competitors get from playing games like golf.
+ - The roots of tobacco plants must go clear through to hell. Satan’s principal agent Dyspepsia must have charge of this branch of the vegetable kingdom.
+ - I get my ideas from listening from within.
+ - I have been at work for some time building an apparatus to see if it is possible for personalities which have left this earth to communicate with us.
+ - Many a person who could not comprehend Rousseau, and would be puzzled by Montesquieu, could understand Paine as an open book. He wrote with a clarity, a sharpness of outline and exactness of speech that even a schoolboy should be able to grasp.
+ - Friendship is the heaven of life.
+ - Waste is worse than loss. The time is coming when every person who lays claim to ability will keep the question of waste before him constantly. The scope of thrift is limitless.
+ - I can never pick up a thing without wishing to improve it.
+ - I know this world is ruled by infinite intelligence. Everything that surrounds us- everything that exists – proves that there are infinite laws behind it. There can be no denying this fact. It is mathematical in its precision.
+ - My mind is incapable of conceiving such a thing as a soul. I may be in error, and man may have a soul; but I simply do not believe it.
+ - I never knew I had an inventive talent until Phrenology told me so. I was a stranger to myself until then!
+ - It is the best book ever written on the subject. There is nothing like it!
+ - It is astonishing what an effort it seems to be for many people to put their brains definitely and systematically to work.
+ - The very first thing an executive must have is a fine memory. Of course it does not follow that a man with a fine memory is necessarily a fine executive. But if he has the memory he has the first qualification, and if he has not the memory nothing else matters.
+ - I am proud of the fact that I never invented weapons to kill.
+ - Surprises and reverses can serve as an incentive for great accomplishment. There are no rules here, we’re just trying to accomplish something.
+ - Whatever the mind of man creates, should be controlled by man’s character.
+ - We are striking it big in the electric light, better than my vivid imagination first conceived. Where this thing is going to stop Lord only knows.
+ - Inspiration can be found in a pile of junk. Sometimes, you can put it together with a good imagination and invent something.
+ - I try not to invent things that people don’t need.
+ - Education isn’t play – and it can’t be made to look like play. It is hard, hard work. But it can be made interesting work.
+ - The great trouble is that the preachers get the children from six to seven years of age and then it is almost impossible to do anything with them.
+ - I cannot believe in the immortality of the soul. No, all this talk of an existence for us, as individuals, beyond the grave is wrong. It is born of our tenacity of life – our desire to go on living – our dread of coming to an end.
+ - In ‘Common Sense’ Paine flared forth with a document so powerful that the Revolution became inevitable. Washington recognized the difference, and in his calm way said that matters never could be the same again.
+ - All bibles are man-made.
+ - They say President Wilson has blundered. Perhaps he has, but I notice he usually blunders forward.
+ - The entity that gives life and motion to the human body is finer still and lies infinitely beyond the reach of our finest scientific instruments. When this entity deserts the body, the body is like a ship without a rudder – deserted, motionless, dead.
+ - Smoking too much makes me nervous. Must lasso my natural tendency to acquire such habits. Holding heavy cigar constantly in my mouth has deformed my upper lip, it has a sort of Havana curl.
+ - As Danand Ian over at the Lifestyle Business Podcast say: Rush to failure.
+ - I love great music and art, but I think ‘cubist’ songs and paintings are hideous.
+ - Nature is truly wonderful. Only man is truly foul.
+ - What a man’s mind can create, man’s character can control.
+ - A failure teaches you that something can’t be done-that way.
+ - I think work is the world’s greatest fun.
+ - There cannot be overproduction of anything which men and women want. And their wants are unlimited, except by the size of their stomachs.
+ - I start where the last man left off. What the mind of man can conceive and believe, the mind of a man can achieve.
+ - His genius he was quite content in one brief sentence to define; Of inspiration one percent, of perspiration, ninety nine.
+ - To me, the idea and expectation that the day is slowly and surely coming when we will be able to honestly say we are our brother’s keeper and not his oppressor is very beautiful .
+ - Incurably religious, that is the best way to describe the mental condition of so many people.
+ - No Such Thing as Bad Results.
+ - I was at the foot of my class.
+ - I am much less interested in what is called God’s word than in God’s deeds. All bibles are man-made.
+ - I am both pleased but astonished by the fact that mankind has not yet begun to use all the means and devices that are available for destruction. I hope that such weapons are never manufactured in quantity.
+ - When there’s no experimenting there’s no progress. Stop experimenting and you go backward. If anything goes wrong, experiment until you get to the very bottom of the trouble.
+ - Somewhere between the ages of eleven and fifteen, the average child begins to suffer from an atrophy, the paralysis of curiosity and the suspension of the power to observe. The trouble, I should judge, to lie with the schools.
+ - The biggest failure of man is that he gives up before he realizes how close he was to success.
+ - I would construct and work along various lines until I found them untenable. When one theory was discarded, I developed another at once. I realized very early that this was the only possible way for me to work out all the problems.
+ - I never did anything worth doing by accident, nor did any of my inventions come indirectly through accident, except the phonograph. No when I have fully decided that a result is worth getting, I go about it, and make trial after trial, until it comes.
+ - Baseball is the greatest of American games. Some say football, but it is my firm belief, and it shall always be, that baseball has no superior.
+ - An average American loves his family. If he has any love left over for some other person, he generally selects Mark Twain.
+ - I consider Paine our greatest political thinker. As we have not advanced, and perhaps never shall advance, beyond the Declaration and Constitution, so Paine has had no successors who extended his principles.
+ - Nothing that’s good works by itself, you’ve got to make the damn thing work.
+ - I am not overly impressed by the great names and reputations of those who might be trying to beat me to an invention. It’s their ‘ideas’ that appeal to me. I am quite correctly described as ’more of a sponge than an inventor.
+
+244 quotes

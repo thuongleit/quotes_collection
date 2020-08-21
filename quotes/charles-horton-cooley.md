@@ -1,0 +1,61 @@
+ - An artist cannot fail; it is a success to be one.
+ - Unless a capacity for thinking be accompanied by a capacity for action, a superior mind exists in torture.
+ - The need to exert power, when thwarted in the open fields of life, is the more likely to assert itself in trifles.
+ - One should never criticize his own work except in a fresh and hopeful mood. The self-criticism of a tired mind is suicide.
+ - Our individual lives cannot, generally, be works of art unless the social order is also.
+ - The imaginations which people have of one another are the solid facts of society.
+ - If we divine a discrepancy between a man’s words and his character, the whole impression of him becomes broken and painful; he revolts the imagination by his lack of unity, and even the good in him is hardly accepted.
+ - Prudence and compromise are necessary means, but every man should have an impudent end which he will not compromise.
+ - To cease to admire is a proof of deterioration.
+ - The social self is simply any idea, or system of ideas, drawn from the communicative life, that the mind cherishes as its own.
+ - The passion of self-aggrandizement is persistent but plastic; it will never disappear from a vigorous mind, but may become morally higher by attaching itself to a larger conception of what constitutes the self.
+ - If youth is the period of hero-worship, so also is it true that hero-worship, more than anything else, perhaps, gives one the sense of youth. To admire, to expand one’s self, to forget the rut, to have a sense of newness and life and hope, is to feel young at any time of life.
+ - It is surely a matter of common observation that a man who knows no one thing intimately has no views worth hearing on things in general.
+ - Life is a theatre of alarms and contentions.
+ - We have no higher life that is really apart from other people. It is by imagining them that our personality is built up; to be without the power of imagining them is to be a low-grade idiot.
+ - The thing that moves us to pride or shame is not the mere mechanical reflection of ourselves but the imagined effect of this reflection upon another’s mind.
+ - The bashful are always aggressive at heart.
+ - As social beings we live with our eyes upon our reflection, but have no assurance of the tranquillity of the waters in which we see it.
+ - The human mind is indeed a cave swarming with strange forms of life, most of them unconscious and unilluminated. Unless we can understand something as to how the motives that issue from this obscurity are generated, we can hardly hope to foresee or control them.
+ - A talent somewhat above mediocrity, shrewd and not too sensitive, is more likely to rise in the world than genius.
+ - To retire to the monastery, or the woods, or the sea, is to escape from the sharp suggestions that spur on ambition.
+ - The chief misery of the decline of the faculties, and a main cause of the irritability that often goes with it, is evidently the isolation, the lack of customary appreciation and influence, which only the rarest tact and thoughtfulness on the part of others can alleviate.
+ - The mind is not a hermit’s cell, but a place of hospitality and intercourse.
+ - The literature of the inner life is very largely a record of struggle with the inordinate passions of the social self.
+ - To have no heroes is to have no aspiration, to live on the momentum of the past, to be thrown back upon routine, sensuality, and the narrow self.
+ - The idea that seeing life means going from place to place and doing a great variety of obvious things is an illusion natural to dull minds.
+ - The more developed sexual passion, in both sexes, is very largely an emotion of power, domination, or appropriation. There is no state of feeling that says mine, mine, more fiercely.
+ - When we hate a person, with an intimate, imaginative, human hatred, we enter into his mind, or sympathize – any strong interest will arouse the imagination and create some sort of sympathy.
+ - Every general increase of freedom is accompanied by some degeneracy, attributable to the same causes as the freedom.
+ - By recognizing a favorable opinion of yourself, and taking pleasure in it, you in a measure give yourself and your peace of mind into the keeping of another, of whose attitude you can never be certain. You have a new source of doubt and apprehension.
+ - Each man must have his I; it is more necessary to him than bread.
+ - A strange and somewhat impassive physiognomy is often, perhaps, an advantage to an orator, or leader of any sort, because it helps to fix the eye and fascinate the mind.
+ - To desire to be an artist is to desire to be a complete man in respect to some one function, to realize yourself utterly. A man is a poor thing who is content not to be an artist.
+ - Institutions – government, churches, industries, and the like – have properly no other function than to contribute to human freedom; and in so far as they fail, on the whole, to perform this function, they are wrong and need reconstruction.
+ - There is hardly any one so insignificant that he does not seem imposing to some one at some time.
+ - Each man must have his I; it is more necessary to him than bread; and if he does not find scope for it within the existing institutions he will be likely to make trouble.
+ - Faith in our associates is part of our faith in God.
+ - There is nothing less to our credit than our neglect of the foreigner and his children, unless it be the arrogance most of us betray when we set out to “Americanize” him.
+ - The most effective way of utilizing human energy is through an organized rivalry, which by specialization and social control is, at the same time, organized co-operation.
+ - Freedom is the opportunity for right development, for development in accordance with the progressive ideal of life that we have in conscience.
+ - It is partly to avoid consciousness of greed that we prefer to associate with those who are at least as greedy as we ourselves. Those who consume much less are a reproach.
+ - To get away from one’s working environment is, in a sense, to get away from one’s self; and this is often the chief advantage of travel and change.
+ - I is a militant social tendency, working to hold and enlarge its place in the general current of tendencies. So far as it can it waxes, as all life does. To think of it as apart from society is a palpable absurdity of which no one could be guilty who really saw it as a fact of life.
+ - So far as discipline is concerned, freedom means not its absence but the use of higher and more rational forms as contrasted with those that are lower or less rational.
+ - A person of definite character and purpose who comprehends our way of thought is sure to exert power over us. He cannot altogether be resisted; because, if he understands us, he can make us understand him, through the word, the look, or other symbol.
+ - Between richer and poorer classes in a free country a mutually respecting antagonism is much healthier than pity on the one hand and dependence on the other, as is, perhaps, the next best thing to fraternal feeling.
+ - Failure sometimes enlarges the spirit. You have to fall back upon humanity and God.
+ - To persuade is more trouble than to dominate, and the powerful seldom take this trouble if they can avoid it.
+ - There is no way to penetrate the surface of life but by attacking it earnestly at a particular point.
+ - Could anything be more indicative of a slight but general insanity than the aspect of the crowd on the streets of Chicago?
+ - We are born to action and whatever is capable of suggesting and guiding action has power over us from the first.
+ - The idea of freedom is quite in accord with a general, though vague, sentiment among us; it is an idea of fair play, of giving everyone a chance; and nothing arouses more general and active indignation among our people than the belief that some one or some class is not getting a fair chance.
+ - We are ashamed to seem evasive in the presence of a straightforward man, cowardly in the presence of a brave one, gross in the eyes of a refined one, and so on. We always imagine, and in imagining share, the judgments of the other mind.
+ - A cat cares for you only as a source of food, security and a place in the sun.
+ - When one ceases from conflict, whether because he has won, because he has lost, or because he cares no more for the game, the virtue passes out of him.
+ - If love closes, the self contracts and hardens: the mind having nothing else to occupy its attention and give it that change and renewal it requires, busies itself more and more with self-feeling, which takes on narrow and disgusting forms, like avarice, arrogance and fatuity.
+ - No matter what a man does, he is not fully sane or human unless there is a spirit of freedom in him, a soul unconfined by purpose and larger than the practicable world.
+ - Selfishness of the stable or rigid sort is as a rule more bitterly resented than the more fickle variety, chiefly, no doubt, because, having more continuity and purpose, it is more formidable.
+ - One of the great reasons for the popularity of strikes is that they give the suppressed self a sense of power. For once the human tool knows itself a man, able to stand up and speak a word or strike a blow.
+
+59 quotes

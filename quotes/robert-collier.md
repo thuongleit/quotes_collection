@@ -1,0 +1,75 @@
+ - Success is the sum of small efforts, repeated day in and day out.
+ - Visualize this thing you want. See it, feel it, believe in it. Make your mental blueprint and begin.
+ - You can do anything you wish to do, have anything you wish to have, be anything you wish to be.
+ - Our subconscious minds have no sense of humor, play no jokes and cannot tell the difference between reality and an imagined thought or image. What we continually think about eventually will manifest in our lives.
+ - Constant repetition carries conviction.
+ - If you don’t make things happen then things will happen to you.
+ - All power is from within and therefore under our control.
+ - The first principle of success is desire – knowing what you want. Desire is the planting of your seed.
+ - All riches have their origin in mind. Wealth is in ideas – not money.
+ - In every adversity there lies the seed of an equivalent advantage. In every defeat is a lesson showing you how to win the victory next time.
+ - The great successful men of the world have used their imaginations.
+ - See things that you want as already yours. Know that they will come to you at need. Then let them come. Don’t fret and worry about them. Don’t think about your lack of them. Think of them as yours, as belonging to you, as already in your possession.
+ - Always enter the conversation already taking place in the customer’s mind.
+ - All of us have bad luck and good luck. The man who persists through the bad luck – who keeps right on going – is the man who is there when the good luck comes – and is ready to receive it.
+ - You can do anything you think you can. This knowledge is literally the gift of the gods, for through it you can solve every human problem. It should make of you an incurable optimist. It is the open door.
+ - A single idea – the sudden flash of a thought – may be worth a million dollars.
+ - People blame their environment. There is only one person to blame – and only one – themselves.
+ - Start where you are. Distant fields always look greener, but opportunity lies right where you are. Take advantage of every opportunity of service.
+ - Desire is proof of the availability...
+ - The great successful men of the world have used their imagination. They think ahead and create their mental picture in all its details, filling in here, adding a little there, altering this a bit and that a bit, but steadily building – steadily building.
+ - Vision gives you the impulse to make the picture your own.
+ - Use the talents God has given you to make the world better for your having been in it.
+ - Plant the seed of desire in your mind and it forms a nucleus with power to attract to itself everything needed for its fulfillment.
+ - There is nothing on earth that you can not have once you have mentally accepted the fact that you can have it.
+ - You have to sow before you can reap. You have to give before you can get.
+ - The essence of this law is that you must think abundance; see abundance, feel abundance, believe abundance. Let no thought of limitation enter your mind.
+ - We can do only what we think we can do. We can be only what we think we can be. We can have only what we think we can have. What we do, what we are, what we have, all depend upon what we think.
+ - Mind is all that counts. You can be whatever you make up your mind to be.
+ - Make every thought, every fact, that comes into your mind pay you a profit. Make it work and produce for you. Think of things not as they are but as they might be. Don’t merely dream – – but create!
+ - See things as you would have them be, instead of as they are.
+ - Take the first step, and your mind will mobilize all its forces to your aid. But the first essential is that you begin. Once the battle is started, all that is within and without you will come to your assistance.
+ - Decide the effect you want to produce in your reader.
+ - Knowing that you have working with you a force, which never yet has failed in anything it has undertaken, you can go ahead in the confident knowledge that it will not fail in your case, either.
+ - Control your thoughts and you control your circumstance.
+ - Mind is all that counts.
+ - Playing safe is probably the most unsafe thing in the world. You cannot stand still. You must go forward.
+ - If you see yourself as prosperous, you will be. If you see yourself as continually hard up, that is exactly what you will be.
+ - The mere fact that you have obstacles to overcome is in your favor...
+ - All motion is cyclic. It circulates to the limits of its possibilities and then returns to its starting point.
+ - One comes to believe whatever one repeats to oneself sufficiently often, whether the statement be true or false.
+ - As fast as each opportunity presents itself, use it! No matter how tiny an opportunity it may be, use it!
+ - It is only through your conscious mind that you can reach the subconscious. Your conscious mind is the porter at the door, the watchman at the gate. It is to the conscious mind that the subconscious looks for all its impressions.
+ - Think of things not as they are, but as they might be. Don’t merely dream- but create.
+ - Your real self – the I am I – is master of this land, the ruler of this empire. You rightfully have power and dominion over it, all its inhabitants, and all contained in its realm.
+ - You must intensify and render continuous by repeatedly presenting with suggestive ideas and mental pictures of the feast of good things, and the flowing fountain, which awaits the successful achievement or attainment of the desires.
+ - If you have any lack, if you are prey to poverty or disease, it is because you do not believe or do not understand the power that is yours. It is not a question of the universal giving to you. It offers everything to everyone – there is no partiality.
+ - First the stalk – then the roots. First the need – then the means to satisfy that need. First the nucleus -then the elements needed for its growth.
+ - One might as well try to ride two horses moving in different directions, as to try to maintain in equal force two opposing or contradictory sets of desires.
+ - Achievement is the entirety of little deliberations, rehashed all the live long day.
+ - The headline of an advertisement accounts for 60% of the pull of that ad. In the same way, the start of a letter makes or breaks the letter, because if the start does not interest your reader, he never gets down to the rest of your letter.
+ - It is your work to clear away the mass of encumbering material of thoughts, so that you may bring into plain view the precious thing at the center of the mass.
+ - We have become so accustomed to hearing everyone claim that his product is the best in the world, or the cheapest, that we take all such statements with a grain of salt.
+ - You cannot hold on to anything good. You must be continually giving – and getting. You cannot hold on to your seed. You must sow it – and reap anew. You cannot hold on to riches. You must use them and get other riches in return.
+ - Face towards the perfect image of every organ and the shadows of disease will never touch you.
+ - Supply always comes on the heels of demand.
+ - Faith is the confidence, the assurance, the enforcing truth, the knowing...
+ - All through nature, you will find the same law. First the need, then the means.
+ - Sooner or later comes a crisis in our affairs, and how we meet it determines our future happiness and success. Since the beginning of time, every form of life has been called upon to meet such crisis.
+ - The greater the prevalence of positive thoughts, the more likely you are to receive a positive outcome.
+ - Pictures help you to form the mental mold.
+ - The power for happiness, for good, for everything we need of life is within each one of us. The power is there – unlimited power.
+ - Your belief that you can do the thing gives your thought forces their power.
+ - Vision – It reaches beyond the thing that is, into the conception of what can be. Imagination gives you the picture. Vision gives you the impulse to make the picture your own.
+ - Every contrivance of man, every tool, every instrument, every utensil, every article designed for use, of each and every kind, evolved from a very simple beginnings.
+ - Something must be done when you find an opposing set of desires of this kind well to the fore in your category of strong desires. You must set in operation a process of competition, from which one must emerge a victor and the other set be defeated.
+ - Study your reader first – your product second. If you understand his reactions, and present those phases of your product that relate to his needs, then you cannot help but write a good letter.
+ - Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted.
+ - Begin to free yourself at once by doing all that is possible with the means you have, and as you proceed in this spirit the way will open for you to do more.
+ - It sometimes seems that we have only to love a thing greatly to get it.
+ - The first essentials, of course, is to know what you want.
+ - The great thing is the start – to see an opportunity for service, and to start doing it, even though in the beginning you serve but a single customer – and him for nothing.
+ - Make your mold. The best flux in the world will not make a usable shape unless you have a mold to pour it in.
+ - It is only when you despair of all ordinary means, it is only when you convince it that it must help you or you perish, that the seed of life in you bestirs itself to provide a new resource.
+
+73 quotes

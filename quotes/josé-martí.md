@@ -1,0 +1,97 @@
+ - Literature is the most beautiful of countries.
+ - The only way to be totally free is through education.
+ - A selfish man is a thief.
+ - Do something useful and you will have everything you want. Doors are shut for those who are dull and lazy; life is secure for those who obey the law of work.
+ - The force of passion is balanced by the force of interest.
+ - Our wine is bitter, but it is our wine.
+ - To beautify life is to give it an object.
+ - Men are like the stars; some generate their own light while others reflect the brilliance they receive.
+ - A genuine man goes to the roots. To be a radical is no more than that: to go to the roots.
+ - Every human being has within him an ideal man, just as every piece of marble contains in a rough state a statue as beautiful as the one that Praxiteles the Greek made of the god Apollo.
+ - I have lived in the monster and I know its insides; and my sling is the sling of David .
+ - One revolution is still necessary: the one that will not end with the rule of its leader. It will be the revolution against revolutions, the uprising of all peaceable individuals, who will become soldiers for once so that neither they nor anyone else will ever have to be a soldier again.
+ - The first duty of a man is to think for himself.
+ - Strength comes from waiting.
+ - One just principle from the depths of a cave is more powerful than an army.
+ - Mountains culminate in peaks, and nations in men.
+ - Happiness exists on earth, and it is won through prudent exercise of reason, knowledge of the harmony of the universe, and constant practice of generosity.
+ - It is a sin not to do what one is capable of doing.
+ - To educate is to give man the keys to the world, which are independence and love, and to give him strength to journey on his own, light of step, a spontaneous and free being.
+ - To change masters is not to be free.
+ - Only oppression should fear the full exercise of freedom.
+ - All is beautiful and unceasing, all is music and reason, and all, like diamond, is carbon first, then light .
+ - The vote is a trust more delicate than any other, for it involves not just the interests of the voter, but his life, honor and future as well.
+ - Man loves liberty, even if he does not know that he loves it. He is driven by it and flees from where it does not exist.
+ - Men of action, above all those whose actions are guided by love, live forever.
+ - Hatred, slavery’s inevitable aftermath.
+ - Everything that divides men, everything that separates or herds men together in categories, is a sin against humanity.
+ - I come from all places and to all places I go: I am art among the arts and mountain among mountains. I know the strange names of flowers and herbs and of fatal deceptions and magnificent griefs. In night’s darkness I’ve seen raining down on my head pure flames, flashing rays of beauty divine.
+ - My poems are like a dagger Sprouting flowers from the hilt; My poetry is like a fountain Sprinkling streams of coral water.
+ - An insatiable appetite for glory leads to sacrifice and death, but innate instinct leads to self-preservation and life.
+ - People can only be free if they are truly educated.
+ - Let those who desire a secure homeland conquer it. Let those who do not conquer it live under the whip and in exile, watched over like wild animals, cast from one country to another, concealing the death of their souls with a beggar’s smile from the scorn of free men.
+ - We light the oven so that everyone may bake bread in it.
+ - If I survive, I will spend my whole life at the oven door seeing that no one is denied bread and, so as to give a lesson of charity, especially those who did not bring flour.
+ - The nation that buys commands, the nation that sells serves; it is necessary to balance trade in order to ensure freedom; the country that wants to die sells only to one country, and the country that wants to survive sells to more than one.
+ - The wretch who lives without freedom feels like dressing in the mud from the streets Those who have you, o Liberty, do not know. you. Those who do not have you should not speak of you, but win you.
+ - Habit creates the appearance of justice; progress has no greater enemy than habit.
+ - Like bones to the human body, the axle to the wheel, the wing to the bird, and the air to the wing, so is liberty the essence of life. Whatever is done without it is imperfect.
+ - Love is the bond between men, the way to teach and the center of the world.
+ - In a time of crisis, the peoples of the world must rush to get to know each other.
+ - Men have no special right because they belong to one race or another: the word man defines all rights.
+ - Rights are to be taken, not requested; seized, not begged for.
+ - My poems please the brave : My poems, short and sincere, Have the force of steel Which forges swords .
+ - This is the age in which hills can look down upon the mountains.
+ - Charm is a product of the unexpected.
+ - But when women are moved and lend help, when women, who are by nature calm and controlled, give encouragement and applause, when virtuous and knowledgeable women grace the endeavor with their sweet love, then it is invincible.
+ - The dagger plunged in the name of freedom is plunged into the breast of freedom.
+ - We are free, but not to be evil, not to be indifferent to human suffering, not to profit from the people, from the work created and sustained through their spirit of political association, while refusing to contribute to the political state that we profit from.
+ - Freedoms, like privileges, prevail or are imperiled together You cannot harm or strive to achieve one without harming or furthering all.
+ - Books console us, calm us, prepare us, enrich us and redeem us.
+ - To busy oneself with what is futile when one can do something useful, to attend to what is simple when one has the mettle to attempt what is difficult, is to strip talent of its dignity.
+ - Only those who spread treachery, fire, and death out of hatred for the prosperity of others are undeserving of pity.
+ - Man has to suffer. When he has no real afflictions, he invents some.
+ - To use for our exclusive benefit what is not ours is theft.
+ - Others go to bed with their mistresses; I with my ideas.
+ - There is happiness in duty, although it may not seem so.
+ - Liberty is the right of every man to be honest, to think and to speak without hypocrisy.
+ - The spirit of a government must be that of the country. The form of a government must come from the makeup of the country. Government is nothing but the balance of the natural elements of a country.
+ - It is necessary to make virtue fashionable.
+ - In truth, men speak too much of danger.
+ - Other famous men, those of much talk and few deeds, soon evaporate. Action is the dignity of greatness.
+ - A child, from the time he can think, should think about all he sees, should suffer for all who cannot live with honesty, should work so that all men can be honest, and should be honest himself.
+ - Men are products, expressions, reflections; they live to the extent that they coincide with their epoch, or to the extent that they differ markedly from it.
+ - The truthe wakes up once and never dies.
+ - Man needs to go outside himself in order to find repose and reveal himself.
+ - Culture, which makes talent shine, is not completely ours either, nor can we place it solely at our disposal. Rather, it belongs mainly to our country, which gave it to us, and to humanity, from which we receive it as a birthright.
+ - He who uses the office he owes to the voters wrongfully and against them is a thief.
+ - But love, like the sun that it is, sets afire and melts everything. what greed and privilege to build up over whole centuries the indignation of a pious spirit, with its natural following of oppressed souls, will cast down with a single shove.
+ - Just as he who gives his life to serve a great idea is admirable, he who avails himself of a great idea to serve his personal hopes of glory and power is abominable, even if he too risks his life.
+ - In this world, there must be a certain degree of honor just as there must be a certain amount of light. When there are many men without honor, there will always be some others who bear in themselves the honor of many men.
+ - Like stones rolling down hills, fair ideas reach their objectives despite all obstacles and barriers. It may be possible to speed or hinder them, but impossible to stop them.
+ - America is a land of creators and rebels.
+ - It is the duty of man to raise up man.
+ - We are free, but no to be evil.
+ - Fortunately, there is a sane equilibrium in the character of nations, as there is in that of men.
+ - No fruit on earth can rival the cemetery’s crop.
+ - He who could have been a torch and stoops to being a pair of jaws is a deserter.
+ - A poem is something sacred. Let no one Take it for anything except itself.
+ - Peoples are made of hate and of love, and more of hate than love.
+ - Oh, what company good poets are!
+ - Man is a living duty, a depository of powers that he must not leave in a brute state. Man is a wing.
+ - Poetry is the work of the bard and of the people who inspire him.
+ - Terrible times in which priests no longer merit the praise of poets and in which poets have not yet begun to be priests.
+ - The brave forget. It is those who fought less bravely, or those who fought without justice and live in fear of their victory, who forget the least.
+ - He who receives money in trust to administer for the benefit of its owner, and uses it either for his own interest or against the wishes of its rightful owner, is a thief.
+ - I know that when the world surrenders, pallid, to repose, the murmur of a tranquil stream through the deep silence flows.
+ - A grain of poetry suffices to season a century.
+ - The struggles waged by nations are weak only when they lack support in the hearts of their women.
+ - It is terrible to speak of you, Liberty, for one who lives without you.
+ - A child who does not think about what happens around him and is content with living without wondering whether he lives honestly is like a man who lives from a scoundrel’s work and is on the road to being a scoundrel.
+ - A knowledge of different literatures is the best way to free one’s self from the tyranny of any of them.
+ - Talent is a gift that brings with it an obligation to serve the world, and not ourselves, for it is not of our making.
+ - He who does not see things in their depth should not call himself a radical.
+ - Nature has placed the need to see justice done in some souls, and the need to flout and affront it in others.
+ - Perhaps the enemies of liberty are such only because they judge it by its loud voice.
+
+95 quotes

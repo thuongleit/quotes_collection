@@ -1,0 +1,25 @@
+ - Multimedia? As far as I’m concerned, it’s reading with the radio on!
+ - I have late onset ADHD. I take on too much and end up spinning plates, but its entertaining, and it helps you make quick connections if youre a comedian, if you have a brain that can dance around too much.
+ - Politics now is rather like going into Starbucks for a coffee.
+ - In a more intellectually rigorous age, I wouldn’t be talked about as a satirist at all. I would just be a topical comedian.
+ - I’ve no idea what they make of me. People usually don’t recognise themselves in an impression.
+ - I remember driving home one evening while they were reviewing the papers on the radio. One of the articles was about me separating from my wife. It’s a weird thing to listen to a news report about the break-up of your marriage.
+ - I love the 6 Nations rugby. I feel very Scottish then. I feel very Scottish now, sitting in the middle of Chelsea. But thats part of our heritage – being part of Britain, part of Europe. I love being European.
+ - My first public impression was my French teacher, Derek Swift.
+ - I used to do my Nelson Mandela voice to blag restaurant tables in Cape Town. It rarely worked. Now what a great city that is.
+ - My mum called me scatty because I could never sit still. But there was no sense I was suffering from a medical condition as such.
+ - When George Bush finally leaves the White House, the satire industry will briefly join the rest of the economy in recession. It will certainly be the end of an era.
+ - Just when exactly does the Millennium begin? Some say 1999, some say 2000, and some say 2001. You wait a thousand years for one, and three turn up at once.
+ - When you consider what Tony Blair was saying about liberty, human rights and that sort of thing, it would be terribly revolutionary to sell the speeches he and Jack Straw made in 1994.
+ - British politics is more nuanced. Part of the problem with New Labour is that they are a moving target.
+ - I’m much more used to the TV shows, which are demanding to write and perform but very fulfilling.
+ - I am just fascinated by this reassurance from a menacing figure. It is rather frightening.
+ - It is almost impossible to say the name of Thai prime minister Yingluck Shinawat without adding ‘give a dog a bone’
+ - Now I’m instantly nervous about the demands of doing a weekly column.
+ - People may say that what I do is very clever, but it’s not really at all. It’s not Swift.
+ - William Hague, the world’s favourite hairline.
+ - It is a weird thing, because most people tend to get more conservative as they get older, but I find myself going the opposite way. I am sure that by the end I will be selling Marxist pamphlets on the Holloway Road.
+ - Tony Blair has always said he will be judged by history. Now Alastair Campbell is history we await his judgment.
+ - But let’s be clear. We’re talking about a country where there’s no opposition. As leader he can ignore Parliament and – sorry that’s Tony Blair isn’t it? Um, so he doesn’t even have to ask the country before he goes to war – sorry that’s still Tony Blair.
+
+23 quotes

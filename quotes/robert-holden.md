@@ -1,0 +1,81 @@
+ - Your relationship with yourself sets the tone for every other relationship you have.
+ - The real gift of gratitude is that the more grateful you are, the more present you become.
+ - No amount of self-improvement can make up for any lack of self-acceptance.
+ - Stop talking to people about what you will do; show them instead what your are doing.
+ - A Course In Miracles is a constant affirmation that you are created by an unconditional thought of love that appears to have lost itself in a world of fear. Freedom, joy and peace of mind are yours again, when you remember and re-connect to your unconditional self.
+ - You are what you seek.
+ - Love thyself, so that you can love another. Love thyself so that you cannot project fear. Love thyself so as to let others love you. Love thyself so as to let people near.
+ - Today is just another normal day full of miracles, gifts, and opportunities.
+ - The world is only a mirror. You will only see in the world what you’re prepared to see in yourself-nothing more and nothing less.
+ - The final and only act of healing is to accept that there is nothing wrong with you.
+ - Make a commitment to having fun. See your best friends and make time for your hobbies and passions.
+ - Sometimes in order to be happy in the present moment you have to be willing to give up all hope for a better past.
+ - You did not come here to be normal, you came here to be you.
+ - Some people CHASE happiness. And some people CHOOSE happiness...
+ - Love is the ultimate coach. Do what you love, let love guide you, and let love inspire you.
+ - The greatest influence you can have in any situation is to be the presence of love.
+ - Happiness is a way of travelling and not a final destination.
+ - Healing is to remind us we are not the experiences of the world.
+ - First you believe, and then you see the Light. Next you go towards the Light. Soon you are IN the Light. Now you ARE the Light.
+ - Dedicate yourself to Love. Decide to let Love be your intention, your purpose, and your point. And then let Love inspire you, support you and guide you in every other dedication you make thereafter.
+ - The journey to true happiness and to happiness now is not a journey of physical distance or time; it is one of personal “self-recovery,” where we remember and reconnect consciously to an inner potential for joy – a paradise lost – waiting to be found.
+ - If you think something is missing in your life, it is probably YOU...
+ - A true healer helps you to remember and reconnect consciously with your inner light.
+ - Work out what is truly important to you. Research shows people with consistently high happiness scores prioritise their life according to the things they value. They’ve worked out what is most important to them and don’t allow themselves to get sidetracked.
+ - True forgiveness is a self-healing process which starts with you and gradually extends to everyone else.
+ - The more you strive and search for happiness, the more you overlook the possibility that it is here already.
+ - Nothing real stands between you and your happiness, only illusion and confusion.
+ - Writing is a spiritual path. It helps you listen to your heart, trust your inner guidance, and live your life full-out.
+ - Happiness is not in things; happiness is in you.
+ - Your intention to love, no matter what, is the absolute key to happiness.
+ - To have time for what is valuable, you have to stop giving time to what isn’t.
+ - You can’t hold on to a grievance and be happy. Time to make a choice!
+ - Nothing in the world can make you happy; everything in the world can encourage you to be happy.
+ - Life is like art – it is all about interpretation.
+ - Happiness does not have to be deserved, earned, worked for or paid for; it simply has to be accepted.
+ - There is a prayer that lives in the center of your heart. If you pray it, it will change your life. How does it begin?
+ - You can make anything out of anything.
+ - The key to happiness is not to make yourself into a different person; it is to let yourself be even more of who you really are.
+ - Leadership is a dare – and the dare is, ‘Are you willing to show up?’
+ - When you’re truly happy, you are being yourself.
+ - Being our Self is the wisest philosophy, the bravest action, the kindest consideration and the greatest act of healing imaginable.
+ - Happiness is your original nature, it is YOU, minus your neurosis.
+ - NOW is the most abundant moment of your life.
+ - Practise wonder today – be present, begin again, know nothing, and allow everything to surprise you, inspire you, excite you, entertain you, teach you. Be fully open to life, today, and let yourself live wonder-fully.
+ - Happiness is free, there are no conditions.
+ - Keep a gratitude journal. Write down at least three things a day you are either thankful for, made you smile or genuinely inspired you.
+ - Love is the real work of your life. It is your spiritual path. It is the key to your growth and evolution.
+ - Happiness is attractive. Once you decide to be happy, you attract great things into your life.
+ - Your happiness is a gift because it literally brings out the best in you.
+ - To be happy you have to know what you really want. After all, you can never have enough of what you didn’t want in the first place. True happiness isn’t a thing or a commodity, it’s something you cultivate and share.
+ - You may be cool under pressure and challenge, but can you be cool under success?
+ - Some people ‘go’ through life; and other people ‘grow’ through life. Which one are you?
+ - You’re so good at helping everybody else, I think you’re in danger of leaving yourself out of your own life.
+ - One of the big mistakes I think we make in relationships is that we don’t give our best energy to the people that matter most.
+ - Your happiness is your gift to the world.
+ - The difference between happiness is no-where and happiness is now-here has something to do with the event, and everything to do with how you see the event. Your perception is key.
+ - Stress is a message. It is a personal invitation to make a change for the better.
+ - Laughter is a highly addictive positive contagion: if somebody starts, it’s very difficult to stop.
+ - Your ego is an avid interpreter. It is so quick to interpret events as ‘bad’ or ‘good,’ ‘wrong’ or ‘right.’ It never fails to see ’the little picture.
+ - Laughter is the best way To make somebody’s heart beat.
+ - You are the key to happiness.
+ - A job is a sacrifice. Following an interest – that’s a contribution. And we’re here on the planet, not to sacrifice ourselves, but to make a contribution.
+ - Unless you are happy with yourself, you will not be happy.
+ - Happiness is present time, it has nothing to do with the future.
+ - Happiness is all about milking the “sacred now”.
+ - People will treat you the way YOU treat you.
+ - True forgiveness is a willingness to change your mind about your Self.
+ - Making a wholehearted commitment to being happy is a powerful medicine.
+ - Happiness doesn’t come and go, what comes and goes is your attunement to happiness.
+ - At the heart of excessive individualism is a broken heart.
+ - Joy waits on welcome, not time.
+ - Are the choices you are making going to really make you happy NOW or happy eventually?
+ - Love does not come and go; we are the ones who come and go.
+ - People who follow their joy discover a depth of creativity and talent that inspires the world.
+ - Meaning is not found in things; meaning is what you make of things.
+ - Committing to happiness increases your chances for success.
+ - Whoever said happiness needs a plan?
+ - The most damaging erroneous belief about happiness is, of course, that happiness is somewhere else – that is, that it is not with you.
+ - When do you feel most authentic? Authenticity feels so natural, so why isn’t it easy?
+
+79 quotes

@@ -1,0 +1,42 @@
+ - Respect yourself and others will respect you. ~~Confucius
+ - Work out your own salvation. Do not depend on others. ~~Buddha
+ - You were not born a winner, and you were not born a loser. You are what you make yourself be. ~~Lou Holtz
+ - Self care isn’t selfish. It’s self esteem. ~~Ashley Judd
+ - Action will destroy your procrastination. ~~Og Mandino
+ - You are the most influential person you will talk to all day. ~~Zig Ziglar
+ - If you want a quality, act as if you already had it. ~~William James
+ - Man is made by his belief. As he believes, so he is. ~~Johann Wolfgang von Goethe
+ - Self-esteem and self-love are the opposites of fear; the more you like yourself, the less you fear anything. ~~Brian Tracy
+ - Always concentrate on the most valuable use of your time. This is what separates the winners from the losers. Self-esteem is the reputation you have with yourself. ~~Brian Tracy
+ - You’re not free, unless you come to the place where you have nothing to prove. ~~Joyce Meyer
+ - Never, never, never give in! ~~Winston Churchill
+ - Lend yourself to others, but give yourself to yourself. ~~Michel de Montaigne
+ - If you have a strong belief in yourself, in what you are doing and what you want to do, no adversity is too difficult to overcome. ~~Napoleon Hill
+ - Man is not made for defeat. ~~Ernest Hemingway
+ - I am larger, better than I thought; I did not know I held so much goodness. ~~Walt Whitman
+ - High self-esteem comes from feeling like you have control over events not that events have control over you. ~~Tony Robbins
+ - The solution to low self-esteem is to get over yourself and get a higher purpose. ~~Marianne Williamson
+ - It’s not about eating healthy to lose weight. It’s about eating healthy to feel good. ~~Demi Lovato
+ - Science may have found a cure for most evils; but it has found no remedy for the worst of them all – the apathy of human beings. ~~Helen Keller
+ - We all have ability. The difference is how we use it. ~~Stevie Wonder
+ - What you do, the way you think, makes you beautiful. ~~Scott Westerfeld
+ - Self-worth comes from one thing – thinking that you are worthy. ~~Wayne W. Dyer
+ - No man is free who is not master of himself. ~~Epictetus
+ - The more you like yourself, the less you are like anyone else, which makes you unique. ~~Walt Disney
+ - Sometimes it just feels so amazing to finally stand up for yourself. I highly recommend it. Life is too short to be taken for granted. ~~Demi Lovato
+ - Tired of being unhappy? Fix it. ~~Demi Lovato
+ - Go where you are wanted and stray from where you aren’t. Surround yourself with positive people and environments. ~~Demi Lovato
+ - To love yourself, truly love yourself, is to finally discover the essence of personal courage, self-respect, integrity, and self-esteem. These are the qualities of grace that come directly from a soul with stamina. ~~Caroline Myss
+ - Asking is the beginning of receiving. Make sure you don’t go to the ocean with a teaspoon. At least take a bucket so the kids won’t laugh at you. ~~Jim Rohn
+ - The reward for conformity is that everyone likes you but yourself. ~~Rita Mae Brown
+ - Trying to define yourself is like trying to bite your own teeth. ~~Alan Watts
+ - To establish true self-esteem we must concentrate on our successes and forget about the failures and the negatives in our lives. ~~Denis Waitley
+ - Whatever good things we build end up building us. ~~Jim Rohn
+ - There is nothing in life so difficult that it cannot be overcome. This faith can move mountains. It can change people. It can change the world. You can survive all the great storms in your life. ~~Norman Vincent Peale
+ - Self-esteem is that deep-down inside the skin feeling you have of your own self-worth. ~~Denis Waitley
+ - Don’t workout because you think you ‘need’ to, do it because your body deserves love, respect and healthy attention. ~~Demi Lovato
+ - Always remember, actions speak louder than words. No one’s perfect, but we can all strive to be better people. ~~Demi Lovato
+ - Scarcity of self value cannot be remedied by money, recognition, affection, attention or influence. ~~Gary Zukav
+ - We must overcome the notion that we must be regular. It robs you of the chance to be extraordinary and leads you to the mediocre. ~~Uta Hagen
+
+40 quotes

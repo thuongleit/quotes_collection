@@ -1,0 +1,502 @@
+ - If you focus on success, you’ll have stress. But if you pursue excellence, success will be guaranteed.
+ - When you make a choice, you change the future.
+ - Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future.
+ - Instead of thinking outside the box, get rid of the box.
+ - The most creative act you will ever undertake is the act of creating yourself.
+ - You must find the place inside yourself where nothing is impossible.
+ - In the midst of movement and chaos, keep stillness inside of you.
+ - Holding on to anything is like holding on to your breath. You will suffocate. The only way to get anything in the physical universe is by letting go of it. Let go and it will be yours forever.
+ - Don't try to steer the river.
+ - Meditation is not a way of making your mind quiet. It is a way of entering into the quiet that is already there – buried under the 50,000 thoughts the average person thinks every day.
+ - To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless.
+ - Walk with those seeking truth. Run from those who think they've found it. 
+ - Ask for nothing less than inspiration.
+ - Language creates reality. Words have power. Speak always to create joy.
+ - If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return.
+ - You will be transformed by what you read.
+ - Whatever relationships you have attracted in your life at this moment, are precisely the ones you need in your life at this moment. There is a hidden meaning behind all events, and this hidden meaning is serving your own evolution.
+ - What keeps life fascinating is the constant creativity of the soul.
+ - Nothing brings down walls as surely as acceptance.
+ - When you struggle with your partner, you are struggling with yourself. Every fault you see in them touches a denied weakness in yourself.
+ - Because I always have a choice, I choose love.
+ - All great changes are preceded by chaos.
+ - Mathematics expresses values that reflect the cosmos, including orderliness, balance, harmony, logic, and abstract beauty.
+ - When mind, body, and spirit are in harmony, happiness is the natural result.
+ - Obstacles are Opportunities in disguise.
+ - Fear is the memory of pain. Addiction is the memory of pleasure. Freedom is beyond both.
+ - The Ego, however, is not who you really are. The ego is your self-image; it is your social mask; it is the role you are playing. Your social mask thrives on approval. It wants control, and it is sustained by power, because it lives in fear.
+ - If you want to be happy, make someone else happy. If you want to find the right person in your life, be the right person. If you want to see change in the world, become the change you want to see.
+ - Always go with your passions. Never ask yourself if it’s realistic or not.
+ - Be happy for no reason, like a child.
+ - Meditation is a vital way to purify and quiet the mind, thus rejuvenating the body.
+ - Stop. Take 3 deep breaths and smile everywhere in your body, observing what’s happening in your body. Proceed now with kindness and understanding.
+ - Happiness is the ultimate goal. It is the goal of all other goals.
+ - Everyone is acting from his own level of consciousness. This is all we can ask of ourselves or anyone else. However hurtful someone is, he is doing the best he can, given the limits of his consciousness.
+ - Prayer is you speaking to God. Meditation is allowing the spirit to speak to you.
+ - What other people think of you is not your business. If you start to make that business your business, you will be offended for the rest of your life.
+ - I am here to serve. I am here to inspire. I am here to love. I am here to live my truth.
+ - Happiness for a reason is just another form of misery because the reason can be taken away from us at any time.
+ - A quiet mind is more important than a positive mind.
+ - Be happy for no reason, like a child. If you are happy for a reason, you’re in trouble, because that reason can be taken from you.
+ - In my life nothing goes wrong. When things seem to not meet my expectations, I let go of how I think things should be. It’s a matter of not having any attachment to any fixed outcome.
+ - Inner silence promotes clarity of mind; It makes us value the inner world; It trains us to go inside to the source of peace and inspiration when we are faced with problems and challenges.
+ - Real bliss is to have peace of mind.
+ - The best use of imagination is creativity. The worst use of imagination is anxiety.
+ - In the process of letting go you will lose many things from the past, but you will find yourself.
+ - Karma means your have to live with the consequences of the actions you have taken in the past. Whatever you put out is coming back.
+ - Give up being right. Instead radiate peace, harmony, love, and laughter from your heart.
+ - A job is how you make money. A career is how you make your mark. A calling is how you acknowledge a higher vision, whatever it may be.
+ - What you pay attention to grows. If your attention is attracted to negative situations and emotions, then they will grow in your awareness.
+ - The choices you make today design your future.
+ - If you had all the money and all the time in the world, what would you do?!
+ - To define yourself is to limit yourself. Without labels you remain the infinite being.
+ - Love without action is meaningless and action without love is irrelevant.
+ - Embrace the wisdom of uncertainty.
+ - I used to be an atheist until I realized that I was God.
+ - Religion is believing someone else’s experience, spirituality is having your own experience.
+ - Synchronicity is choreographed by a great, pervasive intelligence that lies at the heart of nature, and is manifest in each of us through intuitive knowledge.
+ - To make the right choices in life, you have to get in touch with your soul. To do this, you need to experience solitude, which most people are afraid of, because in the silence you hear the truth and know the solutions.
+ - I often say ‘pursue excellence, ignore success.’ Success is a by-product of excellence.
+ - I remember the past, and I learn from it. I rejoice and celebrate in the present, and I re-imagine the future. Now is the moment that never ends.
+ - It helps if you remember that everyone is doing their best from their level of consciousness.
+ - The secret of attraction is to love yourself. Attractive people judge neither themselves nor others.
+ - Your entire universe is in your mind and nowhere else. To expand the universe, expand your mind.
+ - Relinquish your attachment to the known, step into the unknown, and you will step into the field of all possibilities.
+ - The goal is to be the observer of your thoughts and not let your thoughts control you.
+ - Every cell in your body is eavesdropping on your thoughts.
+ - There are no extra pieces in the universe. Everyone is here because he or she has a place to fill, and every piece must fit itself into the big jigsaw puzzle.
+ - Your only identity is I AM undefined and infinite. Any label you give yourself limits yourself.
+ - The love you seek is seeking you at this moment.
+ - I create my success from within.
+ - We are the universe pretending to be individuals.
+ - Addiction is when you can’t get enough of what you don’t want any more.
+ - As is the microcosm, so is the macrocosm, As is the atom, so is the universe, As is the human mind, so is the cosmic mind.
+ - I am perfect as I am. Everything in my life is working just the way it should. I am loved, and I am love.
+ - DNA is a quantum computer that localizes a non local omnipresent consciousness or spirit into space time energy information and matter.
+ - Trust that your soul has a plan, and even if you can’t see it completely, know that everything will unfold as it is meant to.
+ - Money is life energy that we exchange and use as a result of the service we provide to the universe.
+ - Through silence, through meditation, and through non-judgment, you will access the first law, the Law of Pure Potentiality.
+ - You are the world. When you transform yourself, the world you live in will also be transformed.
+ - Health is not just the absence of a disease. It’s an inner joyfulness that should be ours all the time; a state of positive well-being.
+ - For everyone, well-being is a journey. The secret is committing to that journey and taking those first steps with hope and belief in yourself.
+ - If you change your relationship with time, you will change your life. The most important time of your life is right now.
+ - Your inner strength is invulnerable to fear.
+ - My intent is to be generous of spirit and live with total integrity every day of my life.
+ - The reason that ego and love are not compatible comes down to this: you cannot take your ego into the unknown, where love wants to lead. If you follow love, your life will become uncertain, and the ego craves certainty.
+ - You break free when you feel neither beneath anyone nor superior to anyone, when you shed the need to control other people, when you create space for others to be who they are and for your real self to be what it is.
+ - You believe that you live in the world, where in fact the world lives within you.
+ - You are here for a reason.
+ - When the material, psychological and spiritual dimensions are brought into balance, life becomes whole, and this union brings feelings of comfort and security.
+ - The spiritual meaning of love is measured by what it can do. Love is meant to heal. Love is meant to renew. Love is meant to bring us closer to God.
+ - Christ wasn’t a Christian and Buddha wasn’t a Buddhist and Muhammad wasn’t Muslim. These people were having the experience of unity consciousnesses and universal consciousness and they spoke of it in words.
+ - Neurons that fire together wire together. You can rewire your brain for higher consciousness by focusing on love.
+ - Sex is a spiritual experience.
+ - Synchronicity is God sending us messages anonymously.
+ - Slip into the gap, have the desire, detach from the outcome, and let the universe take care of the details.
+ - Instead of resisting any emotion, the best way to dispel it is to enter it fully, embrace it and see through your resistance.
+ - The ultimate goal of all goals is to be happy. If you want to be happy make someone else happy.
+ - An intention synchronistically organizes its own fulfillment.
+ - Stop attaching so much weight to being right. In the grand scheme of things, being right is insignificant compared with being happy.
+ - If love is universal, no one can be left out.
+ - Karma, memory, and desire are just the software of the soul. It’s conditioning that the soul undergoes in order to create experience. And it’s a cycle. In most people, the cycle is a conditioned response. They do the same things over and over again.
+ - Awakening is not changing who you are, but discarding who you are not.
+ - Life is a field of unlimited possibilities.
+ - EVERYTHING that happens in the universe starts with an INTENTION.
+ - As I let go of the need to arrange my life, the universe brings abundant good to me.
+ - Every decision I make is a choice between a grievance and a miracle.
+ - Embrace the unpredictable and unexpected. It is the path to the infinitely creative in you.
+ - The past is gone, the future is not here, now I am free of both. Right now, I choose joy.
+ - Smile, breathe, and go slowly. Thich Nhat Hanh Don’t try to steer the river.
+ - Abundance comes from within it comes from thought, intention, attention and expectation.
+ - Take responsibility for your last bad decision, and then let it go. Don’t blame others or make excuses for yourself.
+ - Today, I behold all the abundance that surrounds me.
+ - Impermanence is not something to be afraid of. It’s the evolution, a never-ending horizon.
+ - When emotional intelligence merges with spiritual intelligence, human nature is transformed.
+ - By making a soul connection, your true purpose in life will become the foundation of everything you do.
+ - When you contact the Higher Self, the source of power within, you tap into a reservoir of infinite power.
+ - I place my intention into the vast ocean of all possibilities and allow the universe to work through me.
+ - Living in the present moment creates the experience of eternity.
+ - Everything I desire is within me.
+ - Human nature is divided; it contains both darkness and light. You can choose to accept the darkness and lament it, or you can choose to expand the light until the darkness no longer dominates.
+ - All relationship is a reflection of your relationship with yourself.
+ - When you blame and criticize others, you are avoiding some truth about yourself.
+ - Without transcendence, life has no beauty.
+ - No matter what the situation, remind yourself “I have a choice.”
+ - All thinking, knowing, perception, space-time, occur in consciousness. You are a non-local consciousness. The world is in you.
+ - The way to fill your life with love is very simple: if you want more love, give more love.
+ - Thinking happy thoughts literally creates a positive chemical change in the brain which stimulates both positive physical and psychological benefits.
+ - There is a light within each of us that can never be diminished or extinguished. It can only be obscured by forgetting who we are.
+ - Compassion is the feeling of shared suffering. When you feel someone else’s suffering, there is the birth of understanding.
+ - Life is the coexistence of all opposite values. Joy and sorrow, pleasure and pain, up and down, hot and cold, here and there, light and darkness, birth and death. All experience is by contrast, and one would be meaningless without the other.
+ - The secret of attraction is to love yourself. Attractive people judge neither themselves nor others. They are open to gestures of love. They think about love, and express their love in every action. They know that love is not a mere sentiment, but the ultimate truth at the heart of the universe.
+ - Today wherever you go, carry the intention of peace, love, and harmony in your heart.
+ - I am beneath or above no one. When I am independent of the good or bad opinion of others, I stand strong in my own divine power.
+ - The first question an Ayurvedic physician asks is not ‘What disease does my patient have?’ but ‘Who is my patient?’ By ‘who,’ the physician does not mean your name, but how you are constituted.
+ - If you obsess over whether you are making the right decision, you are basically assuming that the universe will reward you for one thing and punish you for another.
+ - Today is a good day for war to end.
+ - Gratitude is a divine attitude in the wisdom traditions. It takes you out from the ego self and takes you into the higher self. That higher state of consciousness initiates self repair, self regulation and healing.
+ - What people think of you is none of your business.
+ - Pursue excellence; ignore success.
+ - Mindfulness creates centered awareness. When you do one thing at a time, you’re guaranteed excellent results. If you do too many things simultaneously, it messes up your neural circuits. Focus on one thing at a time.
+ - If you restore balance in your own self, you will be contributing immensely to the healing of the world.
+ - Passivity is the same as defending injustice.
+ - Quantum physics has found that there is no empty space in the human cell, but it is a teeming, electric-magnet ic field of possibility or potential.
+ - The quality of one’s life depends on the quality of attention. Whatever you pay attention to will grow more important in your life. There is no limit to the kinds of changes that awareness can produce.
+ - Every day in every way, I am increasing my mental and physical capacity. I am reversing my biological age.
+ - The goal of all goals is happiness, and our emotions are like road signs on that journey toward the goal of happiness.
+ - Don’t spend money that you don’t have to impress people that you don’t like.
+ - Our real reality is beyond the five senses.
+ - In every moment you have the choice to be a victim or a creator.
+ - Medicine in the future will give everyone the ability to become their own best healer.
+ - You can’t make positive choices for the rest of your life without an environment that makes those choices easy, natural, and enjoyable.
+ - The worst curse to befall anyone is stagnation, a banal existence, the quiet desperation that comes out of a need for conformity.
+ - Negative people deplete your energy. Surround yourself with love and nourishment and do not allow the creation of negativity in your environment.
+ - The Higher Self is whispering to you softly in the silence between your thoughts.
+ - Healing is the return of the memory of wholeness. Healing, health, whole and holy all mean inclusiveness. Body, mind, spirit, environment, relationships, social interactions are all one wholeness, and you’re a part of that one wholeness.
+ - Uncertainty is the fertile ground of pure creativity and freedom.
+ - Yoga means union of the individual mind with universal mind, so meditation is considered the essence of yoga. The transformation of the mind and body during meditation is significantly more profound than simply resting with your eyes closed.
+ - Non-judgment quiets the internal dialogue, and this opens once again the doorway to creativity.
+ - Love is the ultimate truth at the heart of the universe and transcends all boundaries.
+ - Giving connects two people, the giver and the receiver, and this connection gives birth to a new sense of belonging.
+ - In our willingness to step into the unknown, we surrender ourselves to the creative mind that orchestrates the dance of the universe.
+ - Happy thoughts create happy molecules, and healthy thoughts create healthy molecules.
+ - Today, I embrace my potential to be, do, and have whatever I can dream.
+ - First, say to yourself, ‘I’m totally independent of the good or bad opinions of others.’ Second: ‘I’m beneath no one.’ Third: ‘I’m fearless in the face of any and all challenges.’
+ - The ego relies on the familiar. It is reluctant to experience the unknown, which is they very essence of life.
+ - Know that people are doing the best they can from their level of awareness. Accept people for who they are and always be ready to forgive.
+ - The human body is river of intelligence, energy and information that is constantly renewing itself in every second of its existence.
+ - Love is the beginning of the journey, its end, and the journey itself.
+ - No matter how much it gets abused, the body can restore balance. The first rule is to stop interfering with nature.
+ - The universe has much bigger plans for you than you ever dreamed of for yourself.
+ - Once you know who you really are, being is enough. You feel neither superior to anyone nor inferior to anyone and you have no need for approval because you’ve awakened to your own infinite worth.
+ - The more clarity you achieve, the more you will find that the universe is on your side, supporting your thoughts and intentions. Therefore, focus on clarity, not on getting results. The results will come according to their own rhythm and timing.
+ - Meditation will change your life for the better, enhance your physical health, improve your sleep, and help you achieve your goals, both material and spiritual.
+ - Put yourself in the hands of the universe-then you will have no need for control.
+ - I can affect change by transforming the only thing that I ever had control over in the first place and that is myself.
+ - Bliss is not a feeling but a state of being. In the state of bliss, everything is loved.
+ - Every drop of water in an ocean contains the flavor of the whole ocean. So too, every moment in time contains the flavor of eternity, if you could live in that moment, but most people do not live in the moment which is the only time they really have.
+ - The best way to get rid of the pain is to feel the pain. And when you feel the pain and go beyond it, you’ll see there’s a very intense love that is wanting to awaken itself.
+ - Each of the seven chakras are governed by spiritual laws, principles of consciousness that we can use to cultivate greater harmony, happiness, and wellbeing in our lives and in the world.
+ - The mind and the body are like parallel universes. Anything that happens in the mental universe must leave tracks in the physical one.
+ - Sex is always about emotions. Good sex is about free emotions; bad sex is about blocked emotions.
+ - What you seek, you already are.
+ - Expectations determine outcome, always!
+ - If you want to reach a state of Bliss – make a decision to relinquish the need to control, the need to be approved and the need to judge.
+ - Children need loving attention, closeness and deep affection and also loving touch. Love will make them feel safe.
+ - The healthiest response to life is joy.
+ - To make the right choices in life, you have to get in touch with your soul.
+ - Choosing stillness in the midst of chaos is the path toward living in peace.
+ - There is a plan, and your soul knows what it is.
+ - The path to love is our spiritual destiny.
+ - A flow of happiness and abundance will manifest when you have reached the deepest level of yourSelf.
+ - Emotional intelligence grows through perception. Look around at your present situation and observe it through the level of feeling.
+ - If you live the questions, life will move you into answers.
+ - God is the evolutionary impulse of the universe. God is infinite creativity, infinite love, infinite compassion, infinite caring.
+ - Happiness is a continuation of happenings which are not resisted.
+ - You give to the world your greatest gift when you’re being yourself.
+ - You can believe the diagnosis, not the prognosis.
+ - At any given time the universe is giving you the best result possible.
+ - You are not creating a new you; you are releasing a hidden you. The process is one of self discovery. The hidden you that wants to emerge is in perfect balance.
+ - Nothing is more important than reconnecting with your bliss. Nothing is as rich. Nothing is more real.
+ - Those trees are your lungs. The earth recycles as your body. The rivers recycle as your circulation. The air is your breath. So what do we call the environment?
+ - When you combine the ability to express your unique talent with service to humanity, then you make full use of The Law of Dharma.
+ - Success, wealth, good health and nurturing relationships are by-products of happiness, not the cause.
+ - Joy is a return to the deep harmony of body, mind, and spirit that was yours at birth and that can be yours again. That openness to love, that capacity for wholeness with the world around you, is still within you.
+ - We have a pharmacy inside us that is absolutely exquisite. It makes the right medicine, for the precise time, for the right target organ – with no side effects.
+ - If you say you don’t have time to do it once a day, then you’re the one who probably needs it twice a day.
+ - So the universe is constantly moving in the direction of higher evolutionary impulses, creativity, abstraction, and meaning.
+ - Ecstasy is the energy of spirit. When life flows, ecstasy is natural.
+ - Before making a decision, ask inside for guidance. Be patient and await an answer. Act only when you feel calm and certain.
+ - Unity consciousness is a state of enlightenment where we pierce the mask of illusion which creates separation and fragmentation. Behind the appearance of separation is one unified field of wholeness. Here the seer and the scenery are one.
+ - The deep problem facing everyone is how to break free when being a prisoner is the only comfortable way you know how to live.
+ - When you meet someone, you can silently send them a blessing, wishing them happiness, joy and laughter. This kind of silent giving is very powerful.
+ - Success in life could be defined as the continued expansion of happiness and the progressive realization of worthy goals.
+ - You alone are the judge of your worth and your goal is to discover infinite worth in yourself, no matter what anyone else thinks.
+ - The power of intention is a critical factor in all areas of life. Simply by intending to create synchronicity in your life, you can nurture that result.
+ - I try not to live my life worrying about what others think. A core spiritual quality is nonjudgment, which is not just about not judging others, but also not living your life worried about others judging you.
+ - The highest levels of performance come to people who are centered, intuitive, creative, and reflective – people who know to see a problem as an opportunity.
+ - The universe has a body and soul and evolves through cosmic time. As microcosms of stardust, we do the same.
+ - And I believe that if 100 million people became embodiments of peace, the world would transform, because consciousness is a collective phenomenon. And what we see as good and evil is the balance between forces.
+ - Who am I? is the only question worth asking and the only one never answered.
+ - In the light of trust, as it develops slowly over time, you will find that you are a privileged child of the universe, entirely safe, entirely supported, entirely loved.
+ - Pursue excellence and ignore success. If you are excellent you will be successful.
+ - The universe has no restrictions. You place restrictions on the universe with your expectations.
+ - Success comes when people act together; failure tends to happen alone.
+ - The body is held together by sound. The presence of disease indicates that some sounds have gone out of tune.
+ - When you live your life with an appreciation of coincidences and their meanings, you connect with the underlying field of infinite possibilities.
+ - Treat every moment as a gift, that is why it is called the present.
+ - Life gives you plenty of time to do whatever you want to do if you stay in the present moment.
+ - If a child is poor in math but good at tennis, most people would hire a math tutor. I would rather hire a tennis coach.
+ - If you want to know what your thoughts were like in the past, look at your body today. If you want to know what your body will look like in the future, look at your thoughts today.
+ - You are not the drop in the ocean, but the ocean in the drop.
+ - By becoming self-aware, you gain ownership of reality; in becoming real, you become the master of both inner and outer life.
+ - This is the key to life: the ability to reflect, the ability to know yourself, the ability to pause for a second before reacting automatically. If you can truly know yourself, you will begin the journey of transformation.
+ - Understand that if a deep desire lives in your heart, a dream that is part of your soul’s fiber, a path exists to bring it to life.
+ - If you want something, give it.
+ - Gratitude is a state of being in which we feel connected to everything in the universe. It is a fullness of the heart that recognizes the blessings of Nature within and without. Gratitude is love for the goodness of life itself.
+ - The inward journey is about finding your own fullness, something that no one else can take away.
+ - The present moment dies every moment to become the past, is reborn every moment into the future. All experience is now. Now never ends.
+ - Soul loss is regarded as the most serious diagnosis and the single greatest cause of premature death or serious illness by the traditionals, and it’s not even mentioned in our Western medical textbooks.
+ - The scenery is time bound but the seer is timeless. You are the timeless seer in the midst of time bound scenery.
+ - Love doesn’t need reason. It speaks from the irrational wisdom of the heart.
+ - Coincidences are not accidents but signals from the universe which can guide us toward our true destiny.
+ - The world is a mirror for us – whatever you say about others is really how you feel about yourself.
+ - I teach people that no matter what the situation is, no matter how chaotic, no matter how much drama is around you, you can heal by your presence if you just stay within your center.
+ - Negative emotions are like unwelcome guests. Just because they show up on our doorstep doesn’t mean they have a right to stay.
+ - Space and time are not objects of perception, but qualities of awareness.
+ - In every failure lies the seeds of success.
+ - Total self acceptance is empowering. It means allowing others to see you as they choose, without being offended.
+ - Meditation is all about connecting with your soul. Part of maintaining your well-being is taking the time to disconnect from the outside to go within.
+ - Remember, in our inmost being, we are all completely lovable because spirit is love. Beyond what anyone can make you think or feel about yourself, your unconditioned spirit stands, shining with a love nothing can tarnish.
+ - This moment – the one you’re experiencing right now – is the culmination of all the moments you have experienced in the past. This moment is as it is because the entire universe is as it is.
+ - The use of love is to heal. When it flows without effort from the depth of the Self, love creates health.
+ - We have approximately 60,000 thoughts in a day. Unfortunately, 95% of them are thoughts we had the day before.
+ - We are powerful magical beings.
+ - To think is to practice brain chemistry.
+ - We must find out for ourselves that inside us is a god or goddess in embryo that wants to be born so that we can express our divinity.
+ - Compassion is a living, breathing, organic emotion that vibrates through you and links you to those around you.
+ - When you were a child you had dreams of becoming somebody as an adult. Have you lived up to your dreams?
+ - From a pure heart anything can be accomplished. If you ask what the universe is doing, it is eavesdropping on your every desire.
+ - I am not in the world. The world is in me.
+ - Instead of looking for the right person become the right person.
+ - Emotion brings in the dimension of bonding or tuning in: An experience that touches your heart makes the meaning that much more personal.
+ - When you let go of the need for any and all outcomes life becomes a creative magical adventure.
+ - Self-awareness moves us beyond the old, well-worn pathways in the brain that support fixed, unconscious habits.
+ - Being more aware creates responsibility. What does responsibility mean? It means the ability to respond. The more conscious you are in your ability to respond, the more creative you’ll be.
+ - If you want to do really important things in life and big things in life, you can’t do anything by yourself. And your best teams are your friends and your siblings.
+ - The symbolic language of the crucifixion is the death of the old paradigm; resurrection is a leap into a whole new way of thinking.
+ - When we accept all of life’s contradictions, when we can comfortably flow between the banks of pleasure and pain, experiencing them both while getting stuck in neither, then we are free.
+ - Let us realize that engagement and detachment aren’t opposite-the more engaged we become, the more detached we will have to be...
+ - My body is a projection of my consciousness.
+ - Challenges are solved by rising to a level higher than the challenge.
+ - We must go beyond the constant clamor of ego, beyond the tools of logic and reason, to the still, calm place within us: the realm of the soul.
+ - The world is a projection of our collective consciousness. If our collective consciousness reaches that place of peace, harmony, laughter and love, it will be a different world.
+ - Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined.
+ - Each of us is a unique strand in the intricate web of life and here to make a contribution.
+ - Every intention is a trigger for transformation.
+ - That silent gap between your thoughts is your window to the cosmic mind.
+ - Be kind to yourself and others. Come from love every moment you can.
+ - Sex wasn’t God’s big mistake. Judging against sex was humanity’s big mistake. Pleasure is as divine as any cathedral, any temple.
+ - Like a cube of ice, anger cannot be eliminated by applying force, only by applying warmth, compassion and kindness.
+ - We are programmed by our past beliefs, which we inherited from our parents, our cultural traditions sometimes, and our social conditioning.
+ - However good or bad you feel about your relationship, the person you are with at this moment is the “right” person, because he or she is the mirror of who you are inside.
+ - This moment is as it should be.
+ - By becoming a conscious choice-maker, you begin to generate actions that are evolutionary for you.
+ - I experience true freedom when I accept, understand, and move on from the conditioning of the past.
+ - There are receptors to these molecules in your immune system, in your gut and in your heart. So when you say, ‘I have a gut feeling’ or ‘my heart is sad’ or ‘I am bursting with joy,’ you’re not speaking metaphorically. You’re speaking literally.
+ - When we harness the natural force of harmony, joy, and love, we create success and good fortune with effortless ease.
+ - In order to be not bound by the tether of time, we must have a relationship with the timeless.
+ - Fear is the anticipation of the pain in the future. Anger is the remembrance of pain in the past. Hostility is wanting to get even.
+ - The way you think, the way you behave, the way you eat, can influence your life by 30 to 50 years.
+ - Mature workers are less impulsive, less reactive, more creative and more centered.
+ - Don’t obsess over risks. Keep your focus on positive outcomes.
+ - In your present-moment awareness, awaken to your innocence, your trust, your love, your eternal being.
+ - The gifts of caring, attention, affection, appreciation, and love are some of the most precious gifts you can give, and they don’t cost you anything.
+ - Life is a walk to the edge of a cliff. Every day we get a step nearer and what lies over the brink, no one can tell.
+ - Our essential nature is one of pure potentiality.
+ - Anything that is of value in life only multiplies when it is given.
+ - You and I are essentially infinite choice-makers. In every moment of our existence, we are in that field of all possibilities where we have access to an infinity of choices.
+ - Today, and everyday, I give that which I want to receive.
+ - Never forget your real identity. You are a luminous conscious stardust being forged in the crucible of cosmic fire.
+ - In religion, the ego manifests as the devil. And of course, no one realizes how smart the ego is because it created the devil so you could blame someone else.
+ - There is no fixed physical reality, no single perception of the world, just numerous ways of interpreting world views as dictated by one’s nervous system and the specific environment of our planetary existence.
+ - When you drink in nature through your senses, you deepen your awareness of the great silent intelligence flowing through all things. You nourish your mind, body, and spirit as you connect to the divine love of Being.
+ - The true purpose of yoga is to discover that aspect of your being that can never be lost.
+ - Love is like water. If it doesn’t flow, it stagnates.
+ - We’re all born with infinite potential and creativity. We all have it in us. Each and every one of us. That’s the only truth.
+ - In my stillness I am the eternal possibility. In my movement I am the cosmos.
+ - Spiritual energy-the energy that comes from pure consciousness-is the creative energy of the universe.
+ - Preventive medicine isn’t part of a physician’s everyday routine, which is spent dispensing drugs and performing surgery.
+ - Inherent in every intention and desire is the mechanics for its fulfillment. And when we introduce an intention in our pure potentiality, we put this infinite organizing power to work for us.
+ - There is just no getting around that turning bad things into good things is up to you.
+ - Accept that living in the present moment, with your present desires, is the best, the highest thing you can do.
+ - Discover your own discontent, and be grateful, for without divine discontent there would be no creative force.
+ - If you want to reach a state of bliss, then go beyond your ego and the internal dialogue.
+ - Within every desire is the mechanics of its fulfillment.
+ - Change your story, change your life. Basically, that’s what it is.
+ - Owning your own feelings, rather than blaming them on someone else, is the mark of a person who has moved from contracted to expanded awareness.
+ - In God’s eyes, walking on water is no more miraculous than the ability of hemoglobin to bond with oxygen inside a red blood corpuscle.
+ - The less you open your heart to others, the more your heart suffers.
+ - The solution is never at the level of the problem. The solution is always love, which is beyond problems.
+ - The Universe contains three things that cannot be destroyed; Being, Awareness and LOVE.
+ - In reality there is nothing to fear in the present. Fear is projected onto the present by memory.
+ - The cosmos is structured to bring about growth, and growth is always in the direction of greater love and happiness.
+ - Love is what we are in our essence, and the more love we feel in our hearts, the more it will be brought to us.
+ - Our collective future depends on opening channels of compassion, acceptance, and understanding of others.
+ - Know that you are a miracle and that you have a unique place in the cosmic plan. You are here to be the presence of love. You are here to be the presence of joy. You are here to be the presence of peace.
+ - I have all the time in the world. I am in touch with the timeless. I am surrounded by infinity. When I think like that, it doesn’t mean I’m going to miss my train, it just means that I’m not thinking about it right now because I’m speaking to you.
+ - You don’t give up the intention, and you don’t give up the desire. You give up your attachment to the results.
+ - There is always a reason to be grateful.
+ - Silence is the great teacher and to learn its lessons you must pay attention to it. There is no substitute for the creative inspiration, knowledge, and stability that come from knowing how to contact your core of inner silence.
+ - Passion is the energy that love creates with no object other than itself.
+ - Just as a wave is a movement of the whole ocean, you are the energy of the cosmos. Don’t underestimate your power.
+ - Everyone has a spark of divinity inside them. After all, we were created in the image of God.
+ - The body is holographic; therefore, when you change one biomarker you influence them all.
+ - Meditation helps you do less and accomplish more.
+ - The best way to motivate other people to help YOU fulfil your goals is to help them fulfil THEIR goals.
+ - The body does not create the mind; the Mind creates the body.
+ - We confuse ourselves with space-time events, when in fact we are the ones who generate these space-time events.
+ - Mastery of awareness requires that you never take personal offense.
+ - Aromatherapy is extremely useful. If you want to go to sleep at night, and you have an aroma that calms your mind, it will help you sleep.
+ - Our minds influence the key activity of the brain, which then influences everything; perception, cognition, thoughts and feelings, personal relationships; they’re all a projection of you.
+ - The more boundless your vision, the more real you are.
+ - The soul knows everything. Be who you are and your life will transform forever.
+ - We exist in order to actualize the deepest desires of our hearts.
+ - Think Positive.
+ - Awareness is the birthplace of possibility. Everything you want to do, everything you want to be, starts here.
+ - Intentions are the triggers for transformation in the body. If you want to wiggle your toes, you do it through intention.
+ - Most people believe that aging is painful and we know that pain is from diseases that are preventable, not from aging.
+ - I cherish my every connection. I see the other in myself and myself in others.
+ - Seeing yourself with the eyes of love makes it natural to see the Divine Spirit in everyone you meet.
+ - If we could learn to live from the level of the soul, we would see that the best most luminous part of ourselves is connected to all the rhythms of the universe. We would truly know ourselves as the miracle-makers we are capable of being.
+ - Discover your divinity, find your unique talent, serve humanity with it.
+ - When the body is in pain, a distorted area of awareness is crying out to the rest of awareness for help.
+ - The world ‘out there’ won’t change until the world ‘in here’ does.
+ - Spirituality is meant to take us beyond our tribal identity into a domain of awareness that is more universal.
+ - Surrender is faith that the power of Love can accomplish anything even when you cannot forsee the outcome.
+ - The true self, once discovered, is the source of creativity, intelligence and personal growth. No external solution has such power.
+ - The most positive action we can take about the past is to change our perception of it.
+ - Either you’re a person wondering if you have a soul, or you’re a soul who knows that being a person isn’t real.
+ - When you expand your awareness, seemingly random events will be seen to fit into a larger purpose.
+ - The more you expand your awareness, the more naturally you will be present without effort.
+ - You can reverse your biological age by changing your perceptions.
+ - Whoever we understand, we love.
+ - Words can wound or heal. The purpose of speech must always be to create joy in the listener.
+ - The only people who really worry about money are the very poor and the very rich.
+ - I want to offer the possibility that Jesus was truly, as he proclaimed, a savior. Not the savior, not the one and only Son of God. Rather Jesus embodied the highest level of enlightenment.
+ - Forgiveness in the heart comes about when the walls of separation in the mind fall.
+ - Solving problems should be a joy, a welcome challenge to our creativity.
+ - Inspiration is that state in which mind and heart are connected.
+ - Spirit is passionate; without passion no one can be truly spiritual.
+ - If your attention is focused only on the result, then you are no longer in the process. But if you’re in the process, then the result is guaranteed.
+ - See the world as if for the first time; see it through the eyes of a child, and you will suddenly find that you are free.
+ - Fill your plate with the colours of the rainbow. What pleases the eye, pleases the body.
+ - For me and my family personally, September 11 was a reminder that life is fleeting, impermanent, and uncertain. Therefore, we must make use of every moment and nurture it with affection, tenderness, beauty, creativity, and laughter.
+ - The key to lasting happiness is to stop looking for it, and to know that you already have it.
+ - You are the most important part of the family. Take care of yourself first. Then you’ll be able to take care of everyone else even better.
+ - All belief is a cover-up for insecurity.
+ - In the wisdom of uncertainty lies the freedom from our past, from the known, from the prison of past conditioning. Uncertainty is the fertile ground of creativity and freedom.
+ - Just as light brightens darkness, discovering inner fulfillment can eliminate any disorder or discomfort. This is truly the key to creating balance and harmony in everything you do.
+ - An intimate relationship is one that allows you to be yourself.
+ - The small things you do everyday- smiling at a stranger or paying someone a compliment -bring you closer to your spiritual truth, the purity of your soul.
+ - Passively accepting your sadness is the same as forgetting to build your own happiness. Happiness is more than a mood. It’s a long-lasting state that is more accurately called well-being.
+ - Love can heal. Love can renew. Love can make us safe. Love can inspire us with its power. Love can bring us closer to God.
+ - Network Spinal Analysis inspires us to trust the healing power within.
+ - People need to know that they have all the tools within themselves. Self-awareness, which means awareness of the body, awareness of their mental space, awareness of their relationships – not only with each other, but with life and the ecosystem.
+ - Life is like a tree and its root is consciousness. Therefore, once we tend the root, the tree as a whole will be healthy.
+ - Before the art of medicine comes the art of belief.
+ - The purpose of meditation is to stop thinking for a time, wait for the fog of thought to thin, and glimpse the spirit within.
+ - I think that is a very important component, to have passion, to have a dream, to have a purpose in life.
+ - Go first class all the way and the universe will respond by giving you the best.
+ - Replace fear-based thinking with love-based thinking. Every time you’re making a choice, ask yourself if it’s going to cultivate the experience of unity and love or the experience of separation and stress.
+ - With spiritual growth comes new creative potential, leading to the realization that you are pure potential, able to fill any creative impulse.
+ - We are ripples of consciousness of the vast ocean of consciousness. If we get agitated and become part of the reactionary and vitriolic behavior sometimes around us, we will only add to the disturbance.
+ - To graciously receive is an expression of the dignity of giving.
+ - For nearly a hundred years, we have known that the material world is an illusion. Everything that seems solid – a rock, a tree, your body – is actually 99.999% empty space.
+ - Access to your true essence will give you insight into the mirror of relationship, because all relationship is a reflection of your relationship with yourself.
+ - Everything is the same spirit watching itself through the eyes of different observers.
+ - The love you feel in life is a reflection of the love you feel in yourself.
+ - Most of us take for granted that time flies, meaning that it passes too quickly. But in the mindful state, time doesn’t really pass at all. There is only a single instant of time that keeps renewing itself over and over with infinite variety.
+ - Feel the world, instead of trying to understand the world.
+ - Every spiritual tradition has this idea of death and resurrection. It’s not unique to Christianity.
+ - When resources become skimpy, human beings don’t suddenly cooperate to conserve what’s left. They fight to the last scrap for possession of a diminishing resource.
+ - Intentions compressed into words enfold magical power.
+ - You can wish for things in the future to be different, but in this moment you have to accept things as they are.
+ - My true self contains every possibility.
+ - Ecstasy carries you completely outside your ego boundaries. In ecstasy you know yourself as cosmic ego, unbounded in time and space.
+ - Reality isn’t a vast, fixed scheme trapping you without choice. At any moment you have the choice to break out of what is really trapping you-your automatic reactions dredged up from the past.
+ - Human beings are made of body, mind and spirit. Of these, spirit is primary, for it connects us to the source of everything, the eternal field of consciousness.
+ - The essence of wisdom is to see that there is always a solution once you realize that the mind, which seems to create so much suffering, has infinite potential to create fulfillment instead.
+ - When you practice positive inner dialogue, people will want to bond with you, help you, be near you. They want to share in the bliss that shines through your eyes and is reflected in your every action.
+ - Every experience in life changes the brain’s anatomy.
+ - When we develop reverence for food and the miracle of transformation inherent in it, just the simple act of eating creates a ritual of celebration.
+ - A single event can shape our lives or change the course of history.
+ - When we connect to the infinite source of wisdom within, creative new ideas, opportunities, and healing spontaneously unfold.
+ - Daydream, imagine, and reflect. It’s the source of infinite creativity.
+ - Any cell, tissue, or organ is capable of crying for attention, and when you give it some, the healing process begins.
+ - Let your body take care of you.
+ - When you express your unique talents and use them in the service of humanity, you create abundance in your life and the lives of others.
+ - Nature goes to the same place to create a galaxy of stars: a cluster of nebulas, a rain forest, a human body, or a thought. That place is Spirit.
+ - The most effective way to transform into higher consciousness is to pay attention in the present moment.
+ - Apakah penampilanku satu-satunya hal yang membuatku berharga? Jika begitu, jangan tatap aku. Wajahku bisa menyembunyikan hati yang palsu.
+ - 98% of the atoms in your body were not there a year ago.
+ - The most powerful way to manifest is through subtle intention and choiceless awareness-inten d to let go and flow.
+ - Globalism began as a vision of a world with free trade, shared prosperity, and open borders. These are good, even noble things to aim for.
+ - Fear of pain has resulted in many women losing sight of birth as normal and natural, and of themselves as powerful and capable. Labor is an opportunity for women to learn about themselves and discover the strength and wisdom inherent in their bodies.
+ - Approach every day as if it’s a new world, because it IS.
+ - You belong in the scheme of the universe. There’s nothing to be afraid of. You are Safe.
+ - Each of us is here to discover our true selves; that essentially we are spiritual beings who have taken manifestation in physical form; that we’re not human beings that have occasional spiritual experiences, that we’re spiritual beings that have occasional human experiences.
+ - The beginning of suffering is often a refusal to look at the situation as it really is.
+ - Only creativity can see past problems to find solutions. This holds true for every area of life.
+ - Why are we here? We exist not to pursue happiness, which is fleeting, or outer accomplishment, which can always be bettered. We are here to nourish the self.
+ - Being fully in the present, you experience the timeless. In the timeless, you find your true self.
+ - We are who we are, and when you accept people instead of trying to change them to fit your needs, your relationships can fully blossom.
+ - When you are in the field of creativity, you lose track of time. Only the flow exists.
+ - To have weakness is not to be flawed – it’s to be complete.
+ - The healthiest people were those who didn’t spend money that they hadn’t earned, to buy things that they didn’t need, to impress people that they didn’t like.
+ - When you make contact with your Higher Self, you’ll have the support of Nature, which will allow for the manifestation of all you desire.
+ - Intimacy blossoms anytime you let down your socially acceptable mask.
+ - We must revisit the idea that science is a methodology and not an ontology.
+ - Consciousness regulates and becomes the flow of energy and information in your body, your relationships, and your world.
+ - The transformation from separation to unity, from conflict to peace, is the goal of all spiritual traditions.
+ - If the fate of the universe was decided in a single moment at the instant of the Big Bang, that was the most creative moment of all.
+ - Life is about fulfillment. If your life isn’t fulfilled, your stomach can never supply what’s missing.
+ - Self-acceptance leads to success, not the other way around.
+ - The secret to making your holiday inspiring is actually quite simple. Be inspiring yourself. As with any change, you must be the change you want to see in others.
+ - Unless there’s a personal transformation, there can be no social transformation.
+ - The mind loves whatever repeats a pleasurable experience from the past. “I love this” basically means “I love repeating what felt so good before”.
+ - Affluence includes money but is not just money. It is the abundance, the flow, the generosity of the universe, where every desire we have must come true, because inherent in having the desire are the mechanics for its fulfillment.
+ - In order to trust your body as a guide, the first step is to begin to understand it.
+ - Terrorism isn’t insanity. It grows out of social conditions that are well known: poverty, social oppression, dictatorship, and a void of meaning in the lives of ordinary people.
+ - In a person’s career, well, if you’re process-oriented and not totally outcome-oriented, then you’re more likely to be success. I often say ‘pursue excellence, ignore success.’ Success is a by-product of excellence.
+ - The best work flows from us effortlessly. Allow the gifts of spirit to come to you.
+ - Look into the mirror of the world, and you will see only yourself.
+ - Eat, breathe, meditate and love and you’re all set.
+ - So many things happen for every event, and if you try to manipulate it, it means you are struggling against the whole universe, and that’s just silly.
+ - Nutritional supplements are not a substitute for a nutritionally balanced diet.
+ - Creativity is the evolutionary impulse in the Universe.
+ - Craving security is the cause of insecurity. Freedom is knowing that the only point of arrival is now.
+ - When you perceive yourself as spirit, you will not simply feel love – you will BE love.
+ - The greatest mystery of existence is existence itself.
+ - Impulses of intelligence constantly create the body in new forms every second.
+ - The masculine energy was about survival. The male was the hunter who risked his life and had to be in the fight-flight mode.
+ - Laughter is Humanity’s mechanism to escape suffering.
+ - The fear of death comes from limited awareness.
+ - There is a creative solution to every problem. Every possibility holds the promise of abundance.
+ - You’ll never get anywhere unless you’re independent of the good and bad opinion of others. Be fearless.
+ - To be in touch with yourself requires great sensitivity to everything that’s going on here and now.
+ - Every cell in your body is seeking fulfillment through joy, beauty, love and appreciation.
+ - In order to create success and money in your life, your intent and focus must be clear. You can then let the universe take care of the details.
+ - It is much more beneficial to your health if you feel your way through life than think your way through life.
+ - We all feel the urge to condemn ourselves out of guilt, to blame others for our misfortunes and to fantasize about total disaster.
+ - Our most natural state is joy. It is the foundation for love, compassion, healing, and the desire to alleviate suffering.
+ - Our body is the place that our memories and dreams call home for the time being.
+ - You are not merely the physical body that you identify with out of habit. Your essential state is a field of infinite possibilities.
+ - When I make the effort to pay attention to the sights, sounds and sensations around me, I’m encouraging myself to live in the present moment.
+ - When you feel small and weak, remind yourself that you are a child of the universe who is connected to the infinite source.
+ - Everything that is happening at this moment is a result of the choices you’ve made in the past.
+ - If you consciously let your body take care of you, it will become your greatest ally and trusted partner.
+ - Our consciousness is our contribution to reality. What we perceive as real, becomes real.
+ - The power of a positive self-image plays a vital role in experiencing perfect health.
+ - We go where our deepest desires take us.
+ - When we transcend our own thoughts, we get in touch with the womb of creation.
+ - True success is the progressive expansion of happiness. It is the ability to express spontaneous joy and share it with others.
+ - I like Muhammad a lot, because he’s like us more than anybody else. Jesus is just so exalted, and Buddha is just so exalted, it’s almost beyond our reach.
+ - To find oneself living in an age of doubt is not such a curse. There is a kind of reverence in undertaking the quest for truth, even before the first scrap has been found.
+ - The universe is alive and conscious, and it responds to our intent when we have our intimate relationship with the universe and see it not as separate but as our extended body.
+ - Take away all your labels and you are the Infinite Being.
+ - My every thought has the power either to wound or heal. I will use my thoughts wisely and respect their power.
+ - When someone else makes a mistake, it is their responsibility to correct it, but it is your responsibility to handle how you feel about it.
+ - Differentiation is how ONE becomes many while remaining ONE. Differentiation is not separation.
+ - The direction of life is from duality to unity.
+ - Forgiveness is attention without judgment. It heals the one who forgives and the one who is forgiven.
+ - My Intent today is to expand the flow of abundance through the energy of gratitude.
+ - I can give you high blood pressure just on the phone by criticizing you. On the other hand, I can send a tweet to somebody in China and give them a dopamine hit.
+ - Inertia is depression’s best friend. There’s always a hump to get over before you can actually change. So pushing yourself over the hump is like opening a door to a new brain pattern.
+ - Bliss cannot be found by remembering the past or anticipating the future.
+ - Every child who is born is the universe looking at itself with fresh eyes.
+ - The whole world opens when we accept this moment, this very moment.
+ - The basic theme of the kapha metabolic type is relaxed.
+ - The Self is not in the realm of thought. The Self is in the gap between our thoughts. The cosmic psyche whispers to us softly in the gap between our thoughts.
+
+500 quotes

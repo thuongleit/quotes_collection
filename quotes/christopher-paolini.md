@@ -1,0 +1,156 @@
+ - Without fear there cannot be courage.
+ - Live in the present, remember the past, and fear not the future, for it doesn’t exist and never shall. There is only now.
+ - Books are my friends, my companions. They make me laugh and cry and find meaning in life.
+ - Into the sky to win or die.
+ - Better to die than to live in fear.
+ - I always say, better ask forgiveness than permission.
+ - Define Normal.
+ - The sea is emotion incarnate. It loves, hates, and weeps. It defies all attempts to capture it with words and rejects all shackles. No matter what you say about it, there is always that which you can’t.
+ - The monsters of the mind are far worse than those that actually exist.
+ - Keep in mind that many people have died for their beliefs; it’s actually quite common. The real courage is in living and suffering for what you believe.
+ - Wise? No, I simply learned to think.
+ - Sometimes there are no answers.
+ - Life is too short to fight every idiot along your way.
+ - Perhaps not one religion contains all of the truth of the world. Perhaps every religion contains fragments of the truth, and it is our responsibility to identify those fragments and piece them together.
+ - A good compromise leaves everyone angry.
+ - Death is part of who we are. It guides us. It shapes us. It drives us to madness. Can you still be human if you have no mortal end.
+ - Because you can’t argue with all the fools in the world. It’s easier to let them have their way, then trick them when they’re not paying attention.
+ - The trickster, the riddler, the keeper of balance, he of the many faces who finds life in death and who fears no evil; he who walks through doors.
+ - I have 20 or 30 books completely plotted out in my mind – mysteries, thrillers, horror, romance, science fiction. You name it.
+ - I am the victor. In the end nothing else matters.
+ - Life is both pain and pleasure. If this is the price you must pay for the hours you enjoy, is it too much?
+ - Find peace in where and what you are.
+ - You would be amazed how many magicians have died after being bitten by mad rabbits. It’s far more common than you might think. -Angela the Herbalist.
+ - The greatest enemy is one that has nothing to lose.
+ - In my writing, I strive for a lyrical beauty somewhere between Tolkien at his best and Seamus Heaney’s translation of Beowulf.
+ - Let no man, in whatever rank or superiority, control your mind and tell you what to do.
+ - One part brave, three parts fool!
+ - As they spread out their blankets, Saphira commented with satisfaction, We are becoming more powerful, Eragon, both of us. Soon no one will be able to stand in our way. Yes, but which way shall we choose? Whichever one we want, she said smugly, settling down for the night.
+ - Love can be a terrible curse, Eragon. It can make you overlook even the largest flaws in a person’s behavior.
+ - I am not who I was, but I know who I am.
+ - Atra gulai un ilian tauthr ono un atra ono waise skolir fra rauthr. – Let luck and happiness follow you and may you be shielded from misfortune.
+ - Sword, I name thee Brisingr! And with a sound of rushing wind the blade burst into flame, an envelope of sapphire-blue fire writhing about the razor-sharp steel.
+ - Do not dwell on what once was, but rather look forward and ponder how you can make the future brighter.
+ - It’s impossible to go through life unscathed. Nor should you want to. By the hurts we accumulate, we measure both our follies and our accomplishments.
+ - Go slowly, so that you do not bite your tail by accident.
+ - Congratulations, you’ve just been promoted!
+ - Change itself is neither good nor bad, but knowledge is always useful.
+ - And the ship sailed onward, gliding serenely down the moonlit river toward the dark lands beyond.
+ - You named your sword Fire? Fire? What kind of a boring name is that? You might as well name your sword ‘Blazing Blade’ and be done with it. Fire indeed. Humph. Wouldn’t you rather have a sword called Sheepbiter or Chrysanthemum Cleaver or something else with imagination?
+ - It’s better to be sworn to an honest fool than to a lying scholar.
+ - There is no more exciting sport than flying, for if you lose, you die.
+ - I refuse to repent, and I won’t plague myself over what is done and past.
+ - Books should go where they will be most appreciated, and not sit unread, gathering dust on a forgotten shelf, don’t you agree?
+ - It is an overactive imagination that turns men into cowards, not a surfeit of fear, as many believe.
+ - Until we invent telepathy, books are our best choice for understanding the rest of humanity.
+ - I’m afraid I’ve degenerated into a bibliophile.
+ - What will happen will happen and I won’t waste my time worrying.
+ - It got so that when he closed his eyes, letters and words danced in his mind. He thought of little else during that time.
+ - If he fancied her anymore,? Saphira said to both Eragon and Roran, ‘I’d be trying to kiss Arya myself.’ ‘Saphira!’ Mortified, Eragon swatted her on the leg.
+ - Ah, pay no heed if your enemies laugh. They’ll not be able to once you lop off their heads.
+ - Really! Between you and Eragon, I seem to spend most of my time among the Varden healing people to silly to realize they need to avoid getting chopped into tiny little pieces.
+ - People have an annoying habit of remembering things they shouldn’t.
+ - What a strange expression said the herbalist who would compare themselves to chopped liver in the first place? If you have to to choose an organ why not pick a gallbladder or a thymus gland instead? Much more interesting than a liver. Or what about chopped t-.
+ - Heart broken-he felt a deep ache in his chest, like that of a sore muscle, and each beat of his heart pained him.
+ - What is the worth of anything we do? The worth is in the act. Your worth halts when you surrender the will to change and experience life.
+ - Forgive me if I stare, I knew you were young, but even then I was expecting someone a little more, well, more.
+ - You must be willing to protect yourself and what you cherish, no matter what the cost.
+ - It’s overwhelming. I feel as if I am living in an illusion a dream where all things are possible. Amazing things do happen I know but always to someone else always in some far off place and time.
+ - If any honor existed in war, it was in fighting to protect others from harm.
+ - Wind howled throught the night, carrying the scent that would change the world.
+ - Treat all fairly or they will seek revenge.
+ - Fame or infamy, either one is preferable to being forgotten when you have passed from this realm.
+ - From the corner of his eye, Eragon saw Orik hewing Urgal necks with mighty blows of his ax.
+ - Fight if you wish. Deny what is before you if it comforts you. But nothing you do can change your fate.
+ - Anger has its place, but it will not serve you here, the way of the warrior is the way of knowing. Of that knowledge requires you to use anger, then you use anger, but you cannot wrest forth knowledge by losing your temper.
+ - From now on, I promise I wil consult with you before I do anything you don’t expect. Is that acceptable? Only if it involves weapons, magic, kings, or family members, she said. Or flowers. Or flowers, she agreed.
+ - Do not become so attached to any one belief than you cannot see past it to another possibility. Brom to Eragon.
+ - I’ve never been helpless, I just have powerful enemies.
+ - Respect the past; you never know how it may affect you.
+ - Moderation is a wiser policy than zealotry.
+ - After all, how can a mere dragon expect to tell a man like yourself what to do? In fact, everyone should stand in awe of your brilliance of finding the only dead end. – Saphira.
+ - Kvetha, Shur’tugal Greetings, Dragon Rider.
+ - You’ve seen things through my eyes.
+ - He closed his eyes and sank into the warm dusk that separates consciosness and sleep, where reality bends and sways to the wind of thought, and where creativity blossoms in its freedom from boundaries and all things are possible.
+ - He who stands like a pilar dies in battle. He who bends like a reed is triumphant!
+ - I love telling stories and I love writing so the fact that I can do it professionally is something that I’ve always been very grateful for.
+ - Misfoutune always comes to those who wait. The trick is to find happiness in the breif gaps between distaters.
+ - If you don’t make a few ememies now and then, you’re a coward-or worse. Besides, it as worth it to see his reaction. Oh, he was angry! – Angela to Eragon.
+ - It s funny to see a hatchling like you beaten by the old one.
+ - For my love, I will wade through an ocean of blood, even if it destroys me.
+ - Only if you are afraid of looking foolish, and I would have looked far more foolish if I persisted with an erroneous belief.? Eragon said. Why, little one, you just said something wise!’Saphira teased.
+ - It is a better world. A place where we ate responsible for our actions, where we can be kind to one another because we want to and becauseit is the right thing to do instead of being frightened into behaving by the threat of divine punishment.
+ - To know who you are without any delusions or sympathy is a moment of revelation that no one experiences unscathed.
+ - I know what we do is right but right doesn’t always mean easy.
+ - Only men would think of cutting themselves to determine who the packleader is. Idiots.
+ - Whatever you make, base it upon that which is most important to you. Only then will it have depth and meaning, and only then will it resonate with others.
+ - To while away the day contemplating evils that might have been is to poison the happiness we already have.
+ - Anger is poison. You must purge it from your mind or else it will corrupt your better nature.
+ - From now on you’re going to have to think. There’s a reason why we’re born with brains in our heads, not rocks.
+ - You cannot miss what you have never had.
+ - Too late. It’s hatched.
+ - I built two forges when I was in my teens. I was just really, really into metalworking and making stuff.
+ - He inclined his head ever so slightly, displaying with his bearing the supreme confidence, even arrogance, that is the sole providence of cats, dragons, and certain highborn women.
+ - For her, choices were simple; either there was an action she could take to improve the situation, in which case she took it, or there was not, and everything else said on the subject was so much meaningless noise.
+ - Personally, I had a great education. My mum was a trained teacher, a Montessori teacher, and I know that I could not have written ‘Eragon’ if I had gone into a public school system because I would have just been too busy attending classes and doing homework – I wouldn’t have had the time to write.
+ - When you teach them-teach them not to fear. Fear is good in small amounts, but when it is a constant, pounding companion, it cuts away at who you are and makes it hard to do what you know is right.
+ - Pain is pain. It needs no description.
+ - Are not all religions strange to those who stand outside of them?
+ - Let’s drop rocks on them!
+ - Regardless of whether I can shift my affections to another – and the heart, as you observed, is a notoriously fickle beast – the question remains: should I?
+ - Having no other recourse, Roran resorted to the unexpected: he stuck his head and neck out and shouted, “BAH!” just as he would if he were trying to scare someone in a dark hallway...
+ - They have not the heart for this battle. So think of your families, think of your homes, and remember it is they you are fighting for.
+ - My mind is the only sanctuary that has not been stolen from me.
+ - They may fight with us, but they don’t fight for us.
+ - It is foolish to conjure up woe where none exists.
+ - If a dragon has already transferred their consciousness to their heart of hearts, then they will die a true death.
+ - The best remedy for what ails me is being with you here under the sun.
+ - Her sculptured face was as perfect as a painting.
+ - When someone refuses to tell me a certain piece of information, it only makes me that much more determined to find out the truth. I hate being ignorant. For me, a question unanswered is like a thorn in my side.
+ - I warn you, Eragon, beware of whom you fall in love with, for fate seems to have a morbid interest in our family.
+ - Those whom we most love are often the most alien to us.
+ - The songs of the dead are the lamentations of the living.
+ - When you can have anything you want by uttering a few words, the goal matters not, only the journey to it.
+ - A negative outlook is more of a handicap than any physical injury.
+ - On the beach, Roran stood alone, watching them go. Then he threw back his head and uttered a long, aching cry, and the night echoed with the sound of his loss.
+ - Magic is the art of thinking, not strength or language.
+ - It was as if his point of view had, within seconds, gone from that of an ant to that of an eagle. For the sky was hollow, and the world was round.
+ - May your swords stay sharp -Brom.
+ - Eragon. Is that all you say? Yes.
+ - Don’t defoul the air. It ill becomes you. – Oromis.
+ - The purpose of life is not to do what we want but what needs to be done.
+ - I believe, Eragon, that you are full of love and that you are looking for one who will reciprocate your affection. No shame exists in that.
+ - Die puny human!
+ - Root of a tree, fruit of a vine, let me pass by this blood of mine.
+ - With her jaws and talons, Saphira tore through an Urgal.
+ - It’s amazing that a man who is dead can talk to people through these pages. As long as this books survives, his ideas live.
+ - Ajihad: You are an enigma, Eragon, a quandary that no one knows how to solve.
+ - No-one can function properly without occasional peace and quiet.
+ - You must learn to see, what you are looking at.
+ - A person must earn enlightenment, Eragon. It is not handed down to you by others, regardless of how revered they be.
+ - I took a bunch of pictures. You can see ’em on my MySpace page, along with my favorite songs and movies and things that other people have created but that I use to express my individualism.
+ - I’m the sort of person that starts digging a hole and doesn’t stop until it’s finished.
+ - Of course you like him; everyone enjoys flattery.
+ - Show respect for those in power, but do not follow them blindly.
+ - Do I look dead to you?!
+ - Characters are born from necessity.
+ - Better to see widely than to see too closely and allow some feature of place or situation to catch you unawares. Do you understand?
+ - It never struck me as interesting that I didn’t go to school – we had our own little world. I always thought of kids who were going to regular school as if they’re the others, the separate ones.
+ - It is better to be taught to think critically than to be told on what to believe.
+ - Basically, I would be happy with any profession where I got to be creative and make things.
+ - These books are my friends, my companions.
+ - Keep in mind, Eragon, that no one thinks himself a villain, and few make decisions they think are wrong. A person may dislike his choice, but he will stand by it because, even in the worst circumstances, he believes that it was the best option available to him at the time.
+ - I need no master to punish me in order to behave as I ought. If I did, I would be no more than a child who obeys his father’s rules only because he fears the whip, and not because he actually means good.
+ - Leave the dead to the Earth. They are not for us. – Valdr.
+ - My mind is the only sanctuary that has not been stolen from me. Men have tried to breach it before, but I’ve learned to defend it vigorously, for I am only safe with my innermost thoughts.
+ - Though they live far from the coast, they retain a great fascination and passion for the ocean. The sound of crashing waves, the smell of salt air, it affects them deeply and has inspired many of their lovliest songs. There is one that tells of this love, if you want to hear it.
+ - The whole of the world could be deduced from the smallest grain of sand, if one studied it closely enough.
+ - There are decades in the making of the one man of renown; Multitudes that go unnoticed who must wreathe for him a crown.
+ - You cannot learn what you are made of if you rely on anyone or anything else to help you.
+ - If I spent my time worrying about what other people would think of my work, I would be too self-conscious to write.
+ - To have a child is the greatest honor and responsibility that can be bestowed upon any living being. – Arya.
+ - The future will be what it will, and fretting about it will only make your fears more likely to come true.
+ - A man rarely knows the day and hour when he will die. I could be killed any moment and there’s not a blasted thing I can do about it.
+ - Whatever you do, protect those you care for. Without them, life is more miserable than you can imagine.
+
+154 quotes

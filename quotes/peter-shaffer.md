@@ -1,0 +1,35 @@
+ - The trouble is if you don’t spend your life yourself, other people spend it for you.
+ - If London is a watercolor, New York is an oil painting.
+ - I speak for all mediocrities in the world. I am their champion. I am their patron saint.
+ - Rehearsing a play is making the word flesh. Publishing a play is reversing the process.
+ - Black Comedy is a farce that is played in the dark, as you know, with the lights full on. It’s the Chinese convention of reversing light and dark, and exactly where anybody is at any given moment is the play.
+ - Goodness is nothing in the furnace of art.
+ - All I ever wanted was to sing to God. He gave me that longing and then made me mute.
+ - I was an accomplice in my own frustration.
+ - Passion, you see, can be destroyed by a doctor. It cannot be created.
+ - The Normal is the good smile in a child’s eyes- all right. It is also the dead stare in a million adults. It both sustains and kills- like a God. It is the Ordinary made beautiful; it is also the Average made leathal. The Normal is the indispensable, murderous God of Health...
+ - You have your words, and I have mine.
+ - Watching Italian opera, all those male sopranos screeching, stupid fat couples rolling their eyes about. That’s not love, it’s just rubbish.
+ - You can’t always let people do their own thing.
+ - Tragedy, for me, is not a conflict between right and wrong, but between two different kinds of right.
+ - What use, after all, is man, if not to teach God His lessons?
+ - I made, over the years in Cambridge, several very good American friends, and America appeared to me, a land of promise in every sense of that word, a land of freedom from the inhibitions and restrictions that I felt in England.
+ - What the eye does not see, the heart does not grieve over, does it?
+ - I was born in Liverpool in England, and I lived there for the first nine years of my life.
+ - The Normal is the good smile in a child’s eyes – all right. It is also the dead stare in a million adults.
+ - The Devil isn’t made by what Mommy says, or what Daddy says. The Devil is there.
+ - The best of Mozart’s works cannot be even slightly rewritten without diminishment.
+ - Can you think of anything worse one can do to anybody than take away their worship?
+ - A child is born into a world of phenomena all equal in their power to enslave.
+ - Librarians as a race tend to be tedious.
+ - Everything we feel is made of Time. All the beauties of life are shaped by it.
+ - And in fact, I think one of the best guides to telling you who you are, and I think children use it all the time for this purpose, is fantasy.
+ - Love is the only doorway from the prison of ourselves.
+ - You never quite know what’s going to strike your imagination, or something that won’t going to leave you alone, not going to leave alone, and this was one for me.
+ - My actual childhood, as opposed to my adolescence, was not spent in London.
+ - All my wife has ever taken from the Mediterranean – from that whole vast intuitive culture – are four bottles of Chianti to make into lamps, and two china condiment donkeys labelled Sally and Peppy.
+ - I think people nowadays do tend to blame their parents for everything.
+ - I think plays, like books, are endemic. They grow out of the soil of the writer and the place he’s writing about. I think, you just can’t move them about, you know.
+ - I think I did have fantasies about being an actor. In fact, I know I did.
+
+33 quotes

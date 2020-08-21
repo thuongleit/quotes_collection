@@ -1,0 +1,22 @@
+ - The world in which you were born is just one model of reality. Other cultures are not failed attempts at being you; they are unique manifestations of the human spirit.
+ - The world can only appear monochromatic to those who persist in interpreting what they experience through the lens of a single cultural paradigm, their own. For those with the eyes to see and the heart to feel, it remains a rich and complex topography of the spirit.
+ - Change is no threat to culture.
+ - Heroes are never perfect, but they’re brave, they’re authentic, they’re courageous, determined, discreet, and they’ve got grit.
+ - The surface of the Earth itself is an immense loom upon which the sun weaves the fabric of existence.
+ - So be patient. Do not compromise. And give your destiny time to find you.
+ - Risk discomfort and solitude for understanding.
+ - The measure of a society is not only what it does but the quality of its aspirations.
+ - To have that powder blown up your nose is rather like being shot out of a rifle barrel lined with Baroque paintings and landing on a sea of electricity.
+ - Genocide, the physical extinction of a people, is universally condemned, but ethnocide, the destruction of people’s way of life, is not only not condemned, it’s universally celebrated as part of a development strategy.
+ - What is science but the pursuit of the truth? What is Buddhism but 2500 years of observation as to the nature of mind?
+ - Language is an old-growth forest of the mind.
+ - Its haunting to realize that half of the languages of the world are teetering on the brink of extinction.
+ - Only, in Haiti, I realized, is it possible to drink rum and haggle with a god.
+ - What could be more lonely than to be enveloped in silence, to be the last of your people to speak your native tongue, to have no way to pass on the wisdom of the elders, to anticipate the promise of the children. This tragic fate is indeed the plight of someone somewhere roughly every two weeks.
+ - In the West we cling to the past like limpets. In Haiti the present is the axis of all life. As in Africa, past and future are but distant measures of the present, and memories are as meaningless as promises.
+ - You know, once something freezes, it’s solid. That’s the key to the arctic – they didn’t fear the cold, they made use of it.
+ - Mining in BC’s Sacred Headwaters is like drilling for oil in the Sistine Chapel.
+ - On paper I would be a rather bold individual in our culture.
+ - All cultures through all time have constantly been engaged in a dance with new possibilities for life. Change is the one constant in human history.
+
+20 quotes

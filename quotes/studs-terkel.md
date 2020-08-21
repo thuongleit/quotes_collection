@@ -1,0 +1,79 @@
+ - Work is about a search for daily meaning as well as daily bread, for recognition as well as cash, for astonishment rather than torpor; in short, for a sort of life rather than a Monday through Friday sort of dying.
+ - Don’t be an examiner, be the interested inquirer.
+ - Ordinary people are capable of doing extraordinary things, and that’s what it’s all about. They must count.
+ - An agnostic is a cowardly atheist.
+ - I hope for peace and sanity – it’s the same thing.
+ - We’re born eventually to die, of course. But what happens between the time we’re born and we die? We’re born to live. One is a realist if one hopes.
+ - Hope never trickles down. It always springs up.
+ - To survive the day is triumph enough for the walking wounded among the great many of us.
+ - Think of what’s stored in an 80- or a 90-year-old mind. Just marvel at it. You’ve got to get out this information, this knowledge, because you’ve got something to pass on. There’ll be nobody like you ever again. Make the most of every molecule you’ve got as long as you’ve got a second to go.
+ - I was born in the year the Titanic sank. The Titanic went down, and I came up. That tells you a little about the fairness of life.
+ - I’m not a Luddite completely; I believe in refrigerators to cool my martinis, and washing machines because I hate to see women smacking their laundry against a rock. When I hear about hardware, I think of pots and pans, and when I hear about software, I think of sheets and towels.
+ - I’m not an optimist. I’m hopeful.
+ - Work is born in us. We take to it kindly or unkindly. The terms may be easy or harsh, but the contract is binding.
+ - I find labels “liberal” and “conservative” of little meaning. Our language has become perverted along with the thoughts of many of us.
+ - The issue is jobs. You can’t get away from it: jobs. Having a buck or two in your pocket and feeling like somebody.
+ - The answer is to say ‘No!’ to authority when authority is wrong.
+ - At a time when pimpery, lick-spittlery, and picking the public’s pocket are the order of the day – indeed, officially proclaimed as virtue – the poet must play the madcap to keep his balance. And ours.
+ - I always love to quote Albert Einstein because nobody dares contradict him.
+ - We use the word ‘hope’ perhaps more often than any other word in the vocabulary: ‘I hope it’s a nice day.’ ‘Hopefully, you’re doing well.’ ‘So how are things going along? Pretty good. Going to be good tomorrow? Hope so.’
+ - On the evening bus, the tense, pinched faces of young file clerks and elderly secretaries tell us more than we care to know. On the expressways, middle management men pose without grace behind their wheels as they flee city and job.
+ - When I put the plate down, you don’t hear a sound. When I pick up a glass, I want it to be just right. When someone says, “How come you’re just a waitress?” I say, “Don’t you think you deserve being served by me?”
+ - Perhaps it is this specter that most haunts working men and women: the planned obsolescence of people that is of a piece with the planned obsolescence of the things they make. Or sell.
+ - But once you become active in something, something happens to you. You get excited and suddenly you realize you count.
+ - Reading a book should not be a passive exercise, but rather a raucous conversation.
+ - Cannot Hannah Arendt’s ‘banality of evil’ be subject to transposition: the evil of banality?
+ - Having been blacklisted from working in television during the McCarthy era, I know the harm of government using private corporations to intrude into the lives of innocent Americans. When government uses the telephone companies to create massive databases of all our phone calls it has gone too far.
+ - You happen to be talking to an agnostic. You know what an agnostic is? A cowardly atheist.
+ - If there is knowledge, it lies in the fusion of the book and the street.
+ - I want, of course, peace, grace, and beauty. How do you do that? You work for it.
+ - There are nascent stirrings in the neighborhood and in the field, articulated by non-celebrated people who bespeak the dreams of their fellows. It may be catching. Unfortunately, it is not covered on the six o’clock news.
+ - People are hungry for stories. It’s part of our very being. Storytelling is a form of history, of immortality too. It goes from one generation to another. -Studs Terkel.
+ - People are hungry for stories. It’s part of our very being.
+ - With optimism, you look upon the sunny side of things. People say, ‘Studs, you’re an optimist.’ I never said I was an optimist. I have hope because what’s the alternative to hope? Despair? If you have despair, you might as well put your head in the oven.
+ - The trouble with censorship is that once it starts it is hard to stop. Just about every book contains something that someone objects to.
+ - That’s what we’re missing. We’re missing argument. We’re missing debate. We’re missing colloquy. We’re missing all sorts of things. Instead, we’re accepting.
+ - I never drove a car. I’m hopeless that way. I press the wrong buttons on the tape recorder. But if the person I’m interviewing helps me out, that person feels needed. People need to feel needed.
+ - More and more we are into communications; and less and less into communication.
+ - I’ve always felt, in all my books, that there’s a deep decency in the American people and a native intelligence – providing they have the facts, providing they have the information.
+ - I’m called an oral historian, which is something of a joke. Oral history was here long before the pen, long before Gutenberg and the printing press. The difference is I have a tape recorder in my hand.
+ - Chicago is not the most corrupt American city. It’s the most theatrically corrupt.
+ - I’m celebrated for celebrating the uncelebrated.
+ - How come you don’t work fourteen hours a day? Your great-great-grandparents did. How come you only work the eight-hour day? Four guys got hanged fighting for the eight-hour day for you.
+ - I guess I was seeking some balance in the wildlife of the city as Rachel Carson sought it in nature. In unbalanced times, balance is as difficult to come by as Parsifal’s Grail.
+ - If solace is any sort of succor to someone, that is sufficient. I believe in the faith of people, whatever faith they may have.
+ - My doctors were of one mind: unless something was immediately done, I had maybe six months to live. A quintuple bypass was suggested. Quintuple! I was impressed, though somewhat disturbed because I was in the middle of work on a new book.
+ - Never go to bed with someone whose problems are greater than yours.
+ - I said, “Suppose communists come out against cancer, do we have to automatically come out for cancer?‘” I can’t take back that I’m against the poll tax, that I’m against lynching, that I’m for peace.
+ - I think it’s realistic to have hope. One can be a perverse idealist and say the easiest thing: ‘I despair. The world’s no good.’ That’s a perverse idealist. It’s practical to hope, because the hope is for us to survive as a human species. That’s very realistic.
+ - Most of us have jobs that are too small for our spirits.
+ - I want a language that speaks the truth.
+ - I am paraphrasing Einstein. I love to do that: nobody dares contradict me.
+ - I want people to talk to one another no matter what their difference of opinion might be.
+ - Once you wake up the human animal, you can’t put it back to sleep again.
+ - So how are things going along? Pretty good. Going to be good tomorrow? Hope so.
+ - All you need in life is truth and beauty and you can find both at the Public Library.
+ - I have a big mouth, and I never met a petition I didn’t like, so of course in the McCarthy days I got in trouble.
+ - We are living in the United States of Alzheimer’s. A whole country has lost its memory. When it can’t remember yesterday, a country forgets what it once wanted to be.
+ - Nonetheless, do I have respect for people who believe in the hereafter? Of course I do. I might add, perhaps even a touch of envy too, because of the solace.
+ - I thought, if ever there were a time to write a book about hope, it’s now.
+ - People are ready to say, ‘Yes, we are ready for single-payer health insurance.’ We are the only industrialized country in the world that does not have national health insurance. We are the richest in wealth and the poorest in health of all the industrial nations.
+ - You can work next to a guy for months without even knowing his name.
+ - When you become part of something, in some way you count. It could be a march; it could be a rally, even a brief one. You’re part of something, and you suddenly realize you count. To count is very important.
+ - I’d want the human voice expressing grievances, or delight, or whatever it might be. But something real.
+ - Religion obviously played a role in this book and the previous book, too.
+ - Dorothy Day said – and I’m sure that Kathy Kelly would say the same thing – ‘I’m working toward a world in which it will be easier for people to behave decently.’ Now, think about that: a world in which it will be easier for people to behave decently.
+ - Marvin Miller, I suspect, is the most effective union organizer since John L. Lewis.
+ - Tom Paine was a great American visionary. His book, Common Sense, sold a couple of hundred thousand copies in a population of four or five million. That means it was a best seller for years. People were thoughtful then. Hope is one thing. But you need to have hope with thought.
+ - Something was still there, that something that distinguishes an artist from a performer: the revealing of self. Here I be. Not forlong, but here I be. In sensing her mortality, we sensed our own.
+ - I read somewhere that when a person takes part in community action, his health improves. Something happens to him or to her biologically. It’s like a tonic.
+ - You know, ‘power corrupts, and absolute power corrupts absolutely?’ It’s the same with powerlessness. Absolute powerlessness corrupts absolutely. Einstein said everything had changed since the atom was split, except the way we think. We have to think anew.
+ - All the other books ask, ‘What’s it like?’ What was World War II like for the young kid at Normandy, or what is work like for a woman having a job for the first time in her life? What’s it like to be black or white?
+ - I want to praise activists through the years. I praise those of the past as well, to have them honored.
+ - It is still the arena of those who dream of the City of Man and those who envision a City of Things. The battle appears to be forever joined. The armies, ignorant and enlightened, clash by day as well as night. Chicago is America’s dream, writ large. And flamboyantly.
+ - I hope that memory is valued – that we do not lose memory.
+ - We hear the term independent contractors in Iraq. Independent contractors? Mercenaries!
+ - Taking life seriously requires taking death seriously.
+ - When it comes to the news, the corporate view is ‘objective,’ all else is propaganda.
+
+77 quotes

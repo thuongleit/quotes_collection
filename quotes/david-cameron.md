@@ -1,0 +1,86 @@
+ - What you call austerity is what I might call efficiency.
+ - In a race for limited resources, it is the energy efficient that will win the race.
+ - I think the prospect of bringing back grammar schools has always been wrong and I’ve never supported it. And I don’t think any Conservative government would have done it.
+ - We all say in our own lives that money isn’t everything. Love matters, friendships matter. My relationship with my kids matters. It shouldn’t be a giant leap to take that thought and introduce it into political dialogue.
+ - There should be no means of communication which we cannot read.
+ - No treaty should be ratified without consulting the British people in a referendum.
+ - For too long, we have been a passively tolerant society, saying to our citizens: as long as you obey the law, we will leave you alone.
+ - We must consider teaching the Egyptian revolution in schools.
+ - The political system is broken, the economy is broken and so is society. That is why people are so depressed about the state of our country.
+ - Now I know which came first – the chicken not the egg.
+ - I’m all for apprenticeships, but this is no time for a novice.
+ - It would be wrong to suggest that Scotland could not be another such successful, independent country.
+ - It’s probably the most unpopular policy I’m responsible for. I know it is very unpopular, culling badgers. But I believe it is the right thing to do. You have to make choices as a politician. Sometimes it means doing something you know people don’t like.
+ - When you’re taking the country through difficult times and difficult decisions you’ve got to take the country with you. That means permanently trying to make the argument that what you’re doing is fair and seen to be fair.
+ - NCS – National Citizen Service is a fantastic programme. I want it to be available for every young person in the country.
+ - The prime minister says he has a vision for change, well put that to the people of the country.
+ - We can’t afford to waste time going slow on changing our party so now is not the time to put our foot on the brake. Now is the time to press on the accelerator.
+ - I think in any organisation it’s right to set out what you stand for, what you’re fighting for and bring that together in one document so that people can see that the modern compassionate Conservative Party is in it for everybody – not just the rich.
+ - We cannot go on as we are with 2.6 million people on incapacity benefit, 500,000 of them are under 35. Are we really saying there are half a million people in this country under 35 who are simply too ill to work? I don’t think that’s right.
+ - The well of public opinion has been well and truly poisoned by the Iraq episode.
+ - We’re all agreed that climate change is one of the greatest and most daunting challenges of our age. We have a moral imperative to act and act now.
+ - Corruption is one of the greatest enemies of progress in our time. It is the cancer at the heart of so many of the world’s problems.
+ - Just as I believe that Britain should want to remain in the EU so the EU should want us to stay.
+ - I want the European Union to be a success. And I want a relationship between Britain and the EU that keeps us in it.
+ - I believe it is wrong to undermine public safety, and indeed public confidence in the concept of human rights, by allowing highly dangerous criminals and terrorists to trump the rights of the people of Britain to live in security and peace.
+ - It’s time we admitted that there’s more to life than money, and it’s time we focused not just on GDP, but on GWB – general well-being.
+ - We have put our country on solid ground, but let me tell you: The next five years are much, much more important. The next five years are about turning the good news in our economy into a good life for you and your family.
+ - I intend to end the something for nothing culture.
+ - I want to be the voice of change and hope. I want to confront the big challenges this country faces.
+ - Easter is all about remembering the importance of change, responsibility, and doing the right thing for the good of our children.
+ - Complex rules restricting our labour markets are not some naturally occurring phenomenon. Just as excessive regulation is not some external plague that’s been visited on our businesses.
+ - I want to talk about the internet, the impact it is having on the innocence of our children, how online pornography is corroding childhood and how, in the darkest corners of the internet, there are things going on that are a direct danger to our children, and that must be stamped out.
+ - The best chapters in our economic history are those that embrace the many, not the few.
+ - Because I’m a democrat! The will of the people is sovereign.
+ - Humanitarian goods and people must flow in both directions. Gaza cannot and must not be allowed to remain a prison camp.
+ - I believe man-made climate change is one of the most serious threats that this country and this world face.
+ - It’s time to place the market within a moral framework – even if that means standing up to companies who make life harder for parents and families.
+ - People are crying out for a Conservative Party that is decent, reasonable, common sense and in it for the long term of this country.
+ - I like democracy. I like to be able to throw out my political leaders when they get things wrong, and we don’t get to do that with Brussels.
+ - Britain could make her own way in the world, outside the EU, if we chose to do so. So could any other Member State. But the question we will have to ask ourselves is this: is that the very best future for our country? We will have to weigh carefully where our true national interest lies.
+ - I mean UKIP, I mean it’s just a sort of, you know, bunch of fruitcakes and loonies and closet racists, basically.
+ - The murders in Paris are sickening, we stand with the French people in the fight against terror and defending the freedom of the press.
+ - When people’s love is divided by law, it is the law that needs to change.
+ - Press freedom does not mean that the press should be above the law. While it’s vital that a free press can tell truth to power, it is equally important that those in power can tell truth to the press.
+ - Every time I visit Iraq or Afghanistan I am blown away.
+ - Lots of people call me Dave, my mum calls me David, my wife calls me Dave, I don’t really notice what people call me.
+ - It is nonsense that people shopping online in some parts of Europe are unable to access the best deals because of where they live. I want completing the single market to be our driving mission.
+ - I’ve always said, not giving too much away, I’m a believer in having all your stars on the pitch...
+ - Nelson Mandela was a towering figure in our time; a legend in life and now in death – a true global hero.
+ - It is national parliaments, which are, and will remain, the true source of real democratic legitimacy and accountability in the EU.
+ - There is such a thing as society. It’s just not the same thing as the state.
+ - You can be walking down the street for a chat, but until you’ve got the selfie out of the way, people aren’t ready to talk.
+ - The European Union that emerges from the Eurozone crisis is going to be a very different body. It will be transformed perhaps beyond recognition by the measures needed to save the Eurozone.
+ - Mrs Cameron keeps a rather better weekend diary than I do.
+ - We need to have a bigger and more significant role for national parliaments. There is not, in my view, a single European demos.
+ - At the core of the European Union must be, as it is now, the single market. Britain is at the heart of that Single Market, and must remain so.
+ - I am Conservative to the core of my being, as those who know me best will testify.
+ - The EU must be able to act with the speed and flexibility of a network, not the cumbersome rigidity of a bloc.
+ - I think it was right to remove Saddam Hussein. I think it was the right decision then and I still think it was right now.
+ - I am just not a great fan of the Piers Morgan format. I would rather do something a bit more substantial.
+ - Normally when people say they haven’t decided, they’re being polite but they’re definitely not voting for you. I think it’s different this time. People are thinking hard about the issues.
+ - Warm congratulations to my friend Barack Obama. Look forward to continuing to work together.
+ - Look at me and think of Schwarzenegger.
+ - It’s not just other countries in Europe having a say over what we do. It’s unelected bureaucrats in Brussels on sort of six-figure, huge salaries telling us how we run our country despite having never stood for an election themselves.
+ - We are a great country, and whatever choice we make we will still be great. But I believe the choice is between being an even greater Britain inside a reformed EU or a great leap into the unknown.
+ - Simply asking the British people to carry on accepting a European settlement over which they have had little choice is a path to ensuring that when the question is finally put – and at some stage it will have to be – it is much more likely that the British people will reject the EU.
+ - I’ll be explaining that Britain will be leaving the European Union, but I want that process to be as constructive as possible. And I hope the outcome can be as constructive as possible because of course while we’re leaving the European Union, we mustn’t be turning our backs on Europe.
+ - You’ve taxed too much, borrowed too much and are a roadblock to reform.
+ - I think it will help people have a better work-life balance, that’s really important – that’s the centre ground for me, it’s the issues people care about in their lives.
+ - Some members, like Britain and France, are ready, willing and able to take action in Libya or Mali. Others are uncomfortable with the use of military force. Let’s welcome that diversity, instead of trying to snuff it out.
+ - My question right now would be to Colonel Gaddafi, which is: ‘What on earth do you think you are doing? Stop it.’
+ - Britain is characterised not just by its independence but, above all, by its openness. We have always been a country that reaches out. That turns its face to the world...
+ - We will reflect the country we aspire to govern, and the sound of modern Britain is a complex harmony, not a male voice choir.
+ - The economies in Europe that will prosper, are those that are the greenest and the most energy efficient.
+ - Government has the power to help improve well-being.
+ - I am not a British isolationist. I don’t just want a better deal for Britain. I want a better deal for Europe too.
+ - Far from being a drag on growth, making our energy sources more sustainable, our energy consumption more efficient, and our economy more resilient to energy price shocks – those things are a vital part of the growth and wealth that we need.
+ - Yes, America must do the right thing, but to provide moral leadership, America must do it in the right way, too.
+ - Whatever new arrangements are enacted for the Eurozone, they must work fairly for those inside it and out.
+ - Today the main, over-riding purpose of the European Union is different: not to win peace, but to secure prosperity.
+ - Billions raised, billions spent. No idea where the money has gone. With a record like that the chancellor should be running for treasurer of the Labour Party.
+ - Since 2004, Britain has been the destination for 1 in 5 of all inward investments into Europe. And being part of the Single Market has been key to that success.
+ - All those countries who keep their aid promises should be proud of what they’ve done.
+ - There is not, in my view, a single European demos.
+
+84 quotes

@@ -1,0 +1,217 @@
+ - The best preparation for tomorrow is doing your best today.
+ - Twenty years from now you will be more disappointed by the things that you didn’t do than by the ones you did do. So throw off the bowlines. Sail away from the safe harbor. Catch the trade winds in your sails. Explore. Dream. Discover.
+ - Never give up on what you really want to do
+ - Don’t waste time waiting for inspiration. Begin, and inspiration will find you.
+ - Nothing is more expensive than a missed opportunity.
+ - Never give up on what you really want to do. The person with big dreams is more powerful than one with all the facts.
+ - Live so that when your children think of fairness, caring, and integrity, they think of you.
+ - Don’t forget, a person’s greatest emotional need is to feel appreciated.
+ - Let perseverance be your engine and hope your fuel.
+ - Be bold and courageous. When you look back on your life, you’ll regret the things you didn’t do more than the ones you did.
+ - Be happy with what you have while working for what you want.
+ - Strive for excellence, not perfection.
+ - Don’t say you don’t have enough time. You have exactly the same number of hours per day that were given to Helen Keller, Pasteur, Michaelangelo, Mother Teresa, Leonardo da Vinci, Thomas Jefferson, and Albert Einstein.
+ - Love is when the other person’s happiness is more important than your own.
+ - Life doesn’t require that we be the best, only that we try our best.
+ - Don’t burn bridges. You’ll be surprised how many times you have to cross the same river.
+ - Remember that children, marriages, and flower gardens reflect the kind of care they get.
+ - When you can’t change the direction of the wind – adjust your sails.
+ - Today, give a stranger one of your smiles. It might be the only sunshine he sees all day.
+ - Become the most positive and enthusiastic person you know.
+ - Opportunity dances with those already on the dance floor.
+ - Be willing to lose a battle in order to win the war.
+ - Remember that the happiest people are not those getting more, but those giving more.
+ - If you’re doing your best, you won’t have any time to worry about failure.
+ - Never let the odds keep you from doing what you know in your heart you were meant to do.
+ - You must take action now that will move you towards your goals. Develop a sense of urgency in your life.
+ - Our character is what we do when we think no one is looking.
+ - Remember that everyone you meet is afraid of something, loves something and has lost something.
+ - Celebrate even small victories.
+ - Never give up on anybody. Miracles happen everyday.
+ - Never underestimate your power to change yourself...
+ - Don’t work for recognition, but do work worthy of recognition.
+ - Life is slippery. Here, take my hand.
+ - In the confrontation between the stream and the rock, the stream always wins, not through strength but by perseverance.
+ - Love your work, then you will find pleasure in mastering it.
+ - Let the refining and improving of your own life keep you so busy that you have little time to criticize others.
+ - Do you always want to be right or do you want to be happy?
+ - Every person that you meet knows something you don’t; learn from them.
+ - Remember that what’s right isn’t always popular, and what’s popular isn’t always right.
+ - Develop a sense of urgency in your life.
+ - Never forget the three powerful resources you always have available to you: love, prayer, and forgiveness.
+ - Never make fun of someone who speaks broken English. It means they know another language.
+ - Be tough minded but tenderhearted.
+ - It’s not your job to get people to like you, it’s your job to like people.
+ - I’ve learned that every great achievement was once considered impossible.
+ - Improve your performance by improving your attitude.
+ - Give people a second chance, but not a third.
+ - Your mind can only hold one thought at a time. Make it a positive and constructive one.
+ - It doesn’t take talent to hustle.
+ - Talent without discipline is like an octopus on roller skates. There’s plenty of movement, but you never know if it’s going to be forward, backwards, or sideways.
+ - Happiness is not based on possessions, power or prestige, but on relationships with people you love and respect.
+ - Earn your success based on service to others, not at the expense of others.
+ - Be kinder than necessary.
+ - Choose your life’s mate carefully. From this one decision will come 90 percent of all your happiness or misery.
+ - Empower your dreams with deadlines.
+ - Sometimes the heart sees what is invisible to the eye.
+ - Never laugh at anyone’s dreams.
+ - Don’t let weeds grow around your dreams.
+ - Learn to listen. Opportunity sometimes knocks very softly.
+ - Be modest. A lot was accomplished before you were born.
+ - Protect your enthusiasm from the negativity of others.
+ - Everyone wears an invisible sign that reads “Notice me. Make me feel important.”
+ - Remember that the more you know, the less you fear.
+ - Remember that the biggest gap in the world is between ‘I should’ and ‘I did.’
+ - Good manners sometimes means simply putting up with other people’s bad manners.
+ - Don’t expect others to listen to your advice and ignore your example.
+ - Believe in miracles but don’t depend on them.
+ - Find a job you like and you add five days to every week.
+ - You either make dust or eat dust.
+ - Judge your success by the degree that you’re enjoying peace, health, and love.
+ - Seek opportunity, not security. A boat in the harbor is safe, but in time its bottom will rot out.
+ - I never expect to lose. Even when I’m the underdog, I still prepare a victory speech.
+ - May your dreams defy the laws of gravity.
+ - Volunteer. Sometimes the jobs no one wants conceal big opportunities.
+ - Get your priorities straight. No one ever said on his death bed, ‘Gee, if I’d only spent more time at the office.’
+ - Never waste an opportunity to tell someone you love them.
+ - Be the first to say, “Hello”.
+ - When opportunity knocks, invite it to stay for dinner.
+ - People take different roads seeking fulfilment and happiness. Just because they’re not on your road doesn’t mean they’ve gotten lost.
+ - Live and learn and pass it on.
+ - Remember that the most valuable antiques are dear old friends.
+ - Remember that almost everything looks better after a good night’s sleep.
+ - Don’t delay acting on a good idea. Chances are someone else has just thought of it, too. Success comes to the one who acts first.
+ - People who accomplish big things did small things well.
+ - Become the kind of person who brightens a room just by entering it.
+ - Nothing important was ever achieved without someone taking a chance.
+ - Read carefully anything that requires your signature. Remember the big print giveth and the small print taketh away.
+ - Apply this simple rule to your conversations: If you wouldn’t write it down and sign it, don’t say it.
+ - May your life be crowded with unexpected joys.
+ - Don’t confuse wealth with success.
+ - While earning your daily bread, be sure you share a slice with those less fortunate.
+ - Loosen up. Relax. Except for rare life-and-death matters, nothing is as important as it first seems.
+ - You cannot make someone love you. All you can do is be someone who can be loved. The rest is up up them.
+ - Never forget the nine most important words of any family- I love you. You are beautiful. Please forgive me.
+ - Don’t flaunt your success, but don’t apologize for it either.
+ - Approach love and cooking with reckless abandon.
+ - Fight fairly. Give generously. Laugh loudly. Love deeply.
+ - A kiss on the beach when there is a full moon is the closest thing to heaven.
+ - Become someone’s hero.
+ - Commit yourself to a mighty purpose.
+ - Regardless of the situation, react with class.
+ - I’ve learned that education, experience, and memories are three things that no one can take away from you.
+ - Become the world’s most thoughtful friend.
+ - Remember that just the moment you say, “I give up,” someone else seeing the same situation is saying, “My, what a great opportunity.”
+ - Think big thoughts but relish small pleasures.
+ - Don’t overlook life’s small joys while searching for the big ones.
+ - Don’t judge those who try and fail. Judge only those who fail to try.
+ - If someone offers you a breath mint, accept it.
+ - If you know someone who tries to drown their sorrows, you might tell them sorrows know how to swim.
+ - Remember that a good example is the best sermon.
+ - Remember that how you say something is as important as what you say.
+ - Your religion is what you do when the sermon is over.
+ - When there’s a piano to be moved, don’t reach for the stool.
+ - Share your knowledge and you become immortal.
+ - Good character is more to be praised than outstanding talent. Most talents are, to some extent, a gift. Good character, by contrast, is not given to us. We have to build it, piece by piece – by thought, choice, courage, and determination.
+ - Remember that winners do what losers don’t want to do.
+ - Spend your life lifting people up, not putting them down.
+ - Kind words and good deeds are eternal. You never know where their influence will end.
+ - When you invite trouble, it’s usually quick to accept.
+ - The shortest way to get anywhere is to have good company.
+ - When declaring your rights, don’t forget your responsibilities.
+ - Swallowing angry words before you say them is better than having to eat them afterwards.
+ - When lending people money, be sure their character exceeds their collateral.
+ - Turn enemies into friends by doing something nice for them.
+ - A true friend encourages us, comforts us, supports us like a big easy chair, offering us a safe refuge from the world.
+ - Take care of your reputation. It’s your most valuable asset.
+ - Plant more flowers than you pick.
+ - After you’ve work hard to get what you want, take the time to enjoy it.
+ - Talent without discipline is like an octopus on roller skates.
+ - Win without boasting, lose without excuses – internalize your failures and externalize your victories.
+ - Remember that life’s big changes rarely give advance warning.
+ - May our adversities make us strong. May our victories make us wise. May our actions make us proud.
+ - Every so often, push your luck.
+ - Lie on your back and look at the stars.
+ - Dishonesty is like a boomerang. About the time you think all is well, it hits you in the back of the head.
+ - Always kiss your children goodnight, even if they’re already asleep.
+ - If your life is free of failures, you’re not taking enough risks.
+ - No partnership matters more. The relationship with the one you marry provides 90 percent of your happiness and 90 percent of your misery.
+ - If you kiss someone on the back of the neck, it spreads.
+ - When you hear a kind word spoken about a friend, tell him so.
+ - Ask an older person you respect to tell you his or her greatest regret.
+ - Don’t be so concerned with your rights that you forget your manners.
+ - Remember that everyone is influenced by kindness.
+ - Give children toys that are powered by their imagination, not by batteries.
+ - Remember that no time is ever wasted that makes two people better friends.
+ - You can’t hide broccoli in your glass of milk.
+ - Pride makes us do things well. But it is love that makes us do them to perfection.
+ - Always have something beautiful in sight, even if it’s just a daisy in a jelly glass.
+ - Never resist a generous impulse.
+ - You can get by on charm for about 15 minutes. After that, you better know something.
+ - Oh, the difference between nearly right and exactly right.
+ - No matter how hard you hug your money, it never hugs back.
+ - Never deprive someone of hope; it might be all they have.
+ - Remember that creating a successful marriage is like farming: you have to start over again every morning.
+ - Show respect for everyone who works for a living, regardless of how trivial their job.
+ - Watch for big problems. They disguise big opportunities.
+ - Drive inexpensive cars, but own the best house you can afford.
+ - Work at something you enjoy and that’s worthy of your time and talent.
+ - A racehorse that consistently runs just a second faster than another horse is worth millions of dollars more. Be willing to give that extra effort that separates the winner from the one in second place.
+ - We seldom enjoy leisure we haven’t earned.
+ - Remember that a gesture of friendship, no matter how small, is always appreciated.
+ - Make a list of twenty-five things you want to experience before you die. Carry it in your wallet or purse and refer to it often.
+ - Do your homework and know your facts, but remember it’s passion that persuades.
+ - Don’t be called out on strikes. Go down swinging.
+ - When you have nothing important or interesting to say, don’t let anyone persuade you to say it.
+ - When you are angry or frustrated, what comes out? Whatever it is, it’s a good indication of what you’re made of.
+ - Grind it out. Hanging on just one second longer than your competition makes you the winner.
+ - May good fortune be your constant companion.
+ - Believe in love at first sight.
+ - What you must do, do cheerfully.
+ - Don’t think you can relax yourself to happiness. Happiness comes as a result of doing.
+ - Perform your job better than anyone else can. That’s the best job security I know.
+ - Ask yourself if you would feel comfortable giving your two best friends a key to your house. If not, look for some new best friends.
+ - When starting out, don’t worry about not having enough money. Limited funds are a blessing, not a curse. Nothing encourages creative thinking in quite the same way.
+ - Spend your time and energy creating, not criticizing.
+ - In business or in life, don’t follow the wagon tracks too closely.
+ - Luck marches with those who give their very best.
+ - Mature love is composed and sustaining; a celebration of commitment, companionship, and trust.
+ - Buy whatever kids are selling on card tables in their front yard.
+ - When you’re feeling terrific, notify your face.
+ - Someone will always be looking at you as an example of how to behave. Don’t let him down.
+ - If you were to sell your character, would you get full retail or would it go for a bargain-basement price?
+ - All that mankind has ever learned is nothing more than a single grain of sand on a beach that reaches to infinity.
+ - If you need to bring in a business partner, make sure your partner brings along some money.
+ - Don’t do business with anyone who has a history of suing people.
+ - Wear audacious underwear under the most solemn business attire.
+ - Remember, a good marriage is like a campfire. Both grow cold if left unattended.
+ - I’ve learned that you know your husband still loves you when there are two brownies left and he takes the smaller one.
+ - Be quick to take advantage of an advantage.
+ - You can’t hire someone to practice for you.
+ - It’s true; once you are a father, there’s no turning back. Your heart strings as well as your purse strings are never again the same.
+ - Every once in a while, take the scenic route.
+ - Be smarter than other people, just don’t tell them so.
+ - Have a grateful heart to be happy.
+ - Every so often, let your spirit of adventure triumph over your good sense.
+ - Inflation hasn’t ruined everything. A dime can still be used as a screwdriver.
+ - I’ve learned that regardless of color or age, we all need about the same amount of love.
+ - You can always tell when a man’s well informed. His views are pretty much like your own.
+ - Life is slippery. We all need a loving hand to hold onto.
+ - We’re constantly striving for success, fame and comfort when all we really need to be happy is someone or some thing to be enthusiastic about.
+ - Measure your wealth by what you’d have left if you lost all your money.
+ - Encourage anyone who is trying to improve mentally, physically, or spiritually.
+ - At the end of your days, be leaning forwards, not falling backwards.
+ - Ask someone you’d like to know to list five people they would most like to meet. It will tell you a lot about them.
+ - Overpay good baby-sitters.
+ - Young love is wild and outrageous, laughing at moderation and blinding us to common sense.
+ - Once a month, go to lunch with someone who knows more about your business than you do.
+ - A friend is someone who knows you and loves you for what you were and who you are, and who also shares your hopes and dreams for who you can become.
+ - Never be ashamed of your patriotism.
+ - Read a lot when you’re on vacation, but nothing that has to do with your business.
+ - I’ve learned that it doesn’t matter how your husband squeezes the toothpaste, the important thing is how he squeezes you.
+ - Hire people more for their judgment than for their talents.
+ - Pay as much attention to the things that are working positively in your life as you do to the things that give you trouble.
+ - Life doesn’t come with an instruction book; that’s why we have fathers.
+ - Use your past successes as a trampoline, not an easy chair.
+
+215 quotes

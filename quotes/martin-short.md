@@ -1,0 +1,37 @@
+ - The thing you can always rely on, your core person, comes from your family’s attention and love.
+ - If you have wonderful moments, don’t second-guess them, just enjoy them.
+ - I pretend I’m one of the royal family when I’m in a hotel and that the hotel belongs to me – it is a palace.
+ - Ill give you an idea of how Jewish Mel Brooks is: Thats a nose job.
+ - I’m totally aware of how lucky I am. I have health, family, children. I do work that gives me total joy and allows me to make a living, and maybe, if I’m lucky enough, I’ll feel I’ve fulfilled a little bit of service to society because I brought other people some laughter.
+ - It’s better to love a short...
+ - Someone once asked me what was the weirdest question I was ever asked. And I was stymied.
+ - Sometimes people get passionate about the obscure jokes.
+ - My mother was the concert master of the symphony. Absurdity and eccentricity were not criticized.
+ - I have sometimes imagined my own death and brought myself to tears.
+ - People do think I’m Jewish. But we’re Irish Catholic. My father had a brogue.
+ - I think I’m funny because my family, my siblings were funny.
+ - A few years ago, I won a Tony for Little Me and I learned two important lessons from that experience. 1. Fair-weather friends are so much more interesting to be around and 2. It’s amazing what this award fetches on E-Bay.
+ - When you have to worry about paying the rent, you’re never bored. You’re just happy to have that job. But once you don’t have to worry and reach the point where it’s no longer about the money, you’re able to look at other opportunities outside of your comfort zone.
+ - Whether arrogantly or what, I view myself simply as an actor.
+ - One of my great influences was Don Knotts as Barney Fife.
+ - An actor can spew out thoughts, but they’re not all gold.
+ - I’m an actor who loves doing comedy.
+ - What’s great about being a character actor is you know that you can survive forever. It’s not about the gloss of your eyebrows.
+ - I hate to lull the audience into letting them think that something is something. It’s always fun to defy expectations.
+ - All these things that enter your head are assignments. You write them up and then throw them out there and if someone wants to do it, your assignment is done.
+ - You try to figure out things to keep yourself interested. It’s very easy to get lulled.
+ - I have a kind of objective luxury about my career.
+ - I think loss can fuel how you lead your whole life.
+ - When you start a new project and they say, “Your director is going to be Joe Blo,” you’re hoping that Joe Blo will be the next Martin Scorsese, but it doesn’t always work out that way.
+ - I think I’ve been really lucky to keep my career so varied, and to be open. There’s safety in repetition, but there’s also a trap there.
+ - No one is any one thing.
+ - There was an era when people would turn on their radio and hear a radio drama. Now, you could be as scared by that as seeing it filmed. In those days, people used to sit by the fire and imagine what they were hearing. Everything is its own art form.
+ - I’ve never done an improvised movie as a fictitious character. I think that’s the challenge.
+ - All you’re trying to do in an improvisation is get as much material as possible for the editing room.
+ - I still do live concerts all over the country – about four a month – with singing and characters and improv. It keeps me limber. I’ll never lose that. And comedy is still the bread and butter.
+ - I’ve done lots of improv things but not a whole movie.
+ - A musical is only as good as its director. The same can also be said for the CIA.
+ - Being the youngest of five, you’re adored, you’re fueled with confidence.
+ - I’ve chosen to treat my life more like a party than something to stress about.
+
+35 quotes

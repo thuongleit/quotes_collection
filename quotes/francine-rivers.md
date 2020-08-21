@@ -1,0 +1,40 @@
+ - Stand firm in the Lord. Stand firm and let Him fight your battle. Do not try to fight alone.
+ - Beloved, surrender wholeheartedly to Jesus Christ, who loves you. As you drink from the deep well of Scripture, the Lord will refresh you and cleanse you, mold you and re-create you through His Living Word. For the Bible is the very breath of God, giving life eternal to those who seek Him.
+ - I want you to love me. I want you to trust me enough to let me love you, and I want you to stay here with me so we can build a life together. That’s what I want.
+ - Love God and He will enable you to love others even when they disappoint you.
+ - Though He slay me, yet will I trust Him.? Whatever happens is to His good purpose and for His glory. I am not afraid.
+ - Love the Lord your God, and love one another. Love one another as He loves. Love with strength and purpose and passion and no matter what comes against you. Don’t weaken. Stand against the darkness, and love. That’s the way back into Eden. That’s the way back to life.
+ - Love is the way back into Eden. It is the way back to life.
+ - Jesus has given me eternal life in Him. Let them take my life here, but God holds me in the palm of His hand and no one can take Him from me.
+ - The Lord will provide.
+ - I’m only a tool, beloved. Not your Savior.
+ - Lord, you are God! You made us. Who better to know how to fix us when we’ve gone wrong? who better to set us to rights again? Who better to love us through the fire and refine us into something beautiful and useful despite our wrongs?
+ - Have faith have faith. When you have nothing else have faith.
+ - The battle would not take place in the mountains, valleys, or plains of Israel. It would take place in the wilderness of the human heart.
+ - I used to believe the purpose in life is to find happiness. I don’t believe that anymore. I believe we are all given gifts from our Father, and that our purpose is to offer them to Him. He knows how He wants us to use them.
+ - I’ve done everything for the wrong reasons. All the good works people credit to me are nothing because I did them expecting God to repay me. I thought if I worked hard enough, God would have to give me what I wanted. The truth is I’ve never served the Lord at all. I was always serving myself.
+ - True beauty is rare, and seldom recognized by the one who possesses it.
+ - Never doubt God in the darkness what he has given us in the light.
+ - Love one another, Jesus said. Sometimes it took a lifetime to learn how. Sometimes it took someone to hit rock bottom to make someone reach up and grasp hold and be lifted from the mire to stand on a firm foundation.
+ - God would light the way. Faith would keep them on the right path.
+ - We bear the consequences for what we have done to ourselves, and for the sin that rules this world. Jesus forgave the thief, but he didn’t take him down off the cross.
+ - Mara, that’s the life I want to give you. That’s what I’m offering you. I want to fill you life with color and warmth. I want to fill it with light. Give me a chance.
+ - I gave up what I can’t keep for something I can never lose.
+ - We all wanted what we wanted, and when the Lord fulfilled HIS purpose rather than ours, we struck out against him. In anger. In disappointment. Yet, it is God’s will that prevails.
+ - Calamity is a blessing when it brings one to God. – Hadassah.
+ - As gentle a man as he was, as tender as was his heart, there was nothing weak about Michael Hosea. He was the strongest-minded man Joseph had ever met. A Man like Noah. A Man like the Shepherd-king David. A man after God’s own heart.
+ - You said go to her, and I let pride stand in my way. You said she needed me, and I didn’t believe. You said love her, and I thought it would be easy.
+ - Everyone wanted to be the best. Best student. Best servant. Best Christian. They got caught up in it, pressing and pushing until they forgot whom it was they were trying to please.
+ - Unless we have something worth dying for, Atretes, we’ve nothing worth living for.
+ - Maybe it’s only those who’ve made such chaos of their lives who can understand the heights and depths of God’s mercy.
+ - Michael had once read to her how God had cast a man and woman out of paradise. Yet, for all their human faults and failures. God had shown them the way back in.
+ - Better the discomfort that leads to repentance and restoration than temporal comfort and eternal damnation.
+ - Fiction can serve in a non-threatening way to open minds and, I hope, hearts to the Word of God.
+ - That is one of the reasons I write: to feel the Presence of God and know He is speaking to me in a very personal way, instructing me, correcting me, redirecting me.
+ - Julia looked back at Hadassah on the bloodstained sand. A great emptiness opened within her as she looked at the still form. Gone, too, was the salt that had kept her from completely corruption.
+ - Anything less than your best dishonors God.
+ - Better than sweet tea on a veranda. I want to live at Belmont!
+ - How is it possible to hold such anger against something you don’t believe in?
+ - Why is it only in darkness that we remember what sustained us even in the light?
+
+38 quotes

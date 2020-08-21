@@ -1,0 +1,50 @@
+ - You could be great. You could rattle the stars. You could do anything if only you dared.
+ - Libraries were full of ideas–perhaps the most dangerous and powerful of all weapons.
+ - She was the heir of ash and fire, and she would bow to no one.
+ - And then I am going to rattle the stars.
+ - You could do anything, if only you dared. And deep down, you know it, too. That’s what scares you most.
+ - No. I can survive well enough on my own – if given the proper reading material.
+ - Second place is a nice title for the first loser.
+ - Names are not important. It’s what lies inside of you that matters.
+ - Don’t feel bad for one moment about doing what brings you joy.
+ - Pity those who don’t feel anything at all.
+ - We each survive in our own way.
+ - What’s the point in having a mind if you don’t use it to make judgements?
+ - Words could be just as deadly as steel.
+ - She was Aelin Ashryver Galathynius- and she would not be afraid.
+ - If you can learn to endure pain, you can survive anything. Some people learn to embrace it- to love it. Some endure it through drowning it in sorrow, or by making themselves forget. Others turn it into anger.
+ - Apparently, a woman can only go so long without a sword between her hands.
+ - The best lies were always mixed with truth.
+ - Life isn’t easy, no matter where you are. You’ll make choices you think are right, and then suffer for them.
+ - We need hope, or else we cannot endure.
+ - You cannot pick and choose what parts of her to love.
+ - The people you love are just weapons that will be used against you.
+ - I worry because I care. Gods help me, I know I shouldn’t, but I do. So I will always tell you to be careful, because I will always care what happens.
+ - Still, the image haunted his dreams throughout the night: a lovely girl gazing at the stars, and the stars who gazed back.
+ - It would not take a monster to destroy a monster – but light, light to drive out darkness.
+ - Some things you hear with your ears. Others, you hear with your heart.
+ - Sometimes, the wicked will tell us things just to confuse us–to haunt our thoughts long after we’ve faced them.
+ - If they wanted Adarlan’s Assassin, they’d get her. And Wyrd help them when she arrived.
+ - Witches didn’t need blood to survive, but humans didn’t need wine, either.
+ - And from today onward, I want to never be separated from you. Wherever you go, I go. Even if that means going to he’ll itself, wherever you are, that’s where I want to be. Forever.
+ - I claim you, Rowan Whitethorn. I don’t care what you say and how much you protest. I claim you as my friend.
+ - The rest of the world quieted into nothing. In that moment, after ten long years, Celaena looked at Chaol and realised she was home.
+ - After a too-long moment, the crown prince spoke. “I don’t quite comprehend why you’d force someone to bow when the purpose of the gesture is to display allegiance and respect.” His words were coated with glorious boredom.
+ - Then Celaena and the King of Adarlan smiled at each other, and it was the most terrifying thing Dorian had ever seen.
+ - It was like coming home or being born or suddenly finding an entire half of herself that had been missing.
+ - She watched him, her head angled. He sometimes felt that she looked at him the way a cat regards a mouse. He just wondered how long it would take for her to pounce.
+ - Everyone sounded the same when they died.
+ - I wasn’t going to kill him, you buffoon.
+ - Celaena was the lost Queen of Terrasen. Chaol sank to his knees.
+ - Surprising, I know. Everyone thinks I’m older.
+ - I was as unburdened as a piece of dandelion fluff, and he was the wind that stirred me about the world.
+ - I can’t tell if I should be ashamed of wanting to hold you on this day, or grateful that, despite what happened before now, it somehow brought me to you.
+ - Because she wasn’t human, Chaol realized, gaping at her from where he still crouched over Fleetfoot. No – she wasn’t human at all. Celaena was Fae.
+ - He wouldn’t let his servants change the sheets on his bed because they still smelled like her, because he went to sleep dreaming that she was still lying beside him.
+ - No one deserves to be whipped like an animal.
+ - In the silence of her bedroom, she swore an oath to the moonlight that if Sam were hurt, no force in the world would hold her back from slaughtering everyone responsible.
+ - He was done with politics and intrigue. He loved her, and no empire, no king, and no earthly fear would keep him from her. No, if they tried to take her from him, he’d rip the world apart with his bare hands. And for some reason, that didn’t terrify him.
+ - You don’t bite the women of other males.
+ - Nor had she missed when they zigzagged between levels, even though the building was a standard grid of hallways and stairwells. As if she’d lose her bearings that easily. She might have been insulted if he wasn’t trying so hard.
+
+48 quotes

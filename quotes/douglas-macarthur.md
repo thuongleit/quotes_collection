@@ -1,0 +1,116 @@
+ - A true leader has the confidence to stand alone, the courage to make tough decisions, and the compassion to listen to the needs of others. He does not set out to be a leader, but becomes one by the equality of his actions and the integrity of his intent.
+ - Preparedness is the key to success and victory.
+ - Old soldiers never die; they just fade away.
+ - Have a good plan, execute it violently, and do it today.
+ - You are remembered for the rules you break.
+ - I came out of Bataan and I shall return!
+ - The world is in a constant conspiracy against the brave. It’s the age-old struggle: the roar of the crowd on the one side, and the voice of your conscience on the other.
+ - The soldier above all others prays for peace, for it is the soldier who must suffer and bear the deepest wounds and scars of war.
+ - I’ll come back as soon as I can with as much as I can. In the meantime, you’ve got to hold!
+ - Whoever said the pen is mightier than the sword obviously never encountered automatic weapons.
+ - There is no security on this earth; there is only opportunity.
+ - Rules are mostly made to be broken and are too often for the lazy to hide behind.
+ - It is fatal to enter any war without the will to win it.
+ - Give me ten thousand Filipino soldiers and I will conquer the world.
+ - The world is in a constant conspiracy against the brave.
+ - On the fields of friendly strife are sown the seeds that on other days, on other fields will bear the fruits of victory.
+ - The nations of the world will have to unite for the next war will be an interplanetary war. The nations of Earth must some day make a common front against attack by people from other planets.
+ - Build me a son, O Lord, who will be strong enough to know when he is weak, and brave enough to face himself when he is afraid, one who will be proud and unbending in honest defeat, and humble and gentle in victory.
+ - The best luck of all is the luck you make for yourself.
+ - We are not retreating – we are advancing in another direction.
+ - Years wrinkle the skin. Giving up wrinkles the soul.
+ - I have just returned from visiting the Marines at the front, and there is not a finer fighting organization in the world!
+ - Even when opportunity knocks, a man still has to get up off his seat and open the door.
+ - Worry, doubt, fear and despair are the enemies which slowly bring us down to the ground and turn us to dust before we die.
+ - Optimism is denial, so face the facts and move on.
+ - I promise to keep on living as though I expected to live forever. Nobody grows old by merely living a number of years. People grow old only be deserting their ideals. Years may wrinkle the skin, but to give up interest wrinkles the soul.
+ - A good soldier, whether he leads a platoon or an army, is expected to look backward as well as forward; but he must think only forward.
+ - A general is just as good or just as bad as the troops under his command make him.
+ - The scale and grandeur of the Russian effort mark it as the greatest military achievement in all history.
+ - For those to whom much is given, much is required. It is not whether you get knocked down, it’s whether you get up. There is no substitute for victory.
+ - They died hard, those savage men – like wounded wolves at bay. They were filthy, and they were lousy, and they stunk. And I loved them.
+ - Let us pray that peace be now restored to the world, and that God will preserve it always.
+ - History fails to record a single precedent in which nations subject to moral decay have not passed into political and economic decline. There has been either a spiritual awakening to overcome the moral lapse, or a progressive deterioration leading to ultimate national disaster.
+ - Security lies in our ability to produce.
+ - There are no atheists in the foxholes of Bataan...
+ - I know that this operation will be sort of helter-skelter. But the First Marine Division is going to win the war by landing at Inchon.
+ - War’s very object is victory, not prolonged indecision. In war there is no substitute for victory.
+ - In war, indeed, there can be no substitute for victory.
+ - Never ask age of a woman.
+ - Defensive strategy never has produced ultimate victory.
+ - However horrible the incidents of war may be, the soldier who is called upon to offer and to give his life for his country is the noblest development of mankind.
+ - I see that the flagpole still stands. Have your troops hoist the colors to its peak, and let no enemy ever haul them down.
+ - Like the old soldier of the ballad, I now close my military career and just fade away, an old soldier who tried to do his duty as God gave him the light to see that duty. Goodbye.
+ - The inescapable price of liberty is an ability to preserve it from destruction.
+ - It is part of the general pattern of misguided policy that our country is now geared to an arms economy which was bred in an artificially induced psychosis of war hysteria and nurtured upon an incessant propaganda of fear.
+ - Duty, Honor, Country. Those three hallowed words reverently dictate what you ought to be, what you can be, what you will be.
+ - Americans never quit.
+ - The object and practice of liberty lies in the limitation of government power.
+ - The hated system of land tenure, so contributory to general unrest in Asia, has been abolished. Every farmer is now accorded the right and dignity of ownership of the land he long has tilled.
+ - I believe that the entire effort of modern society should be concentrated on the endeavor to outlaw war as a method of the solution of problems between nations.
+ - From the Far East I send you one single thought, one sole idea – written in red on every beachhead from Australia to Tokyo – “There is no substitute for victory!”
+ - I will defend Korea as I would my own country-just as I would California.
+ - I have returned. By the grace of Almighty God, our forces stand again on Philippine soil.
+ - Believe me, sir, never a night goes by, be I ever so tired, but I read the Word of God before I go to bed.
+ - I had learned one of the bitter lessons of life: never try to regain the past, the fire will have become ashes.
+ - Never give an order that can’t be obeyed.
+ - Training distinguishes an army from an armed mob.
+ - I stand on this rostrum with a sense of deep humility and great pride – humility in the weight of those great American architects of our history who have stood here before me; pride in the reflection that this home of legislative debate represents human liberty in the purest form yet devised.
+ - To dilute the will to win is to destroy the purpose of the game. There is no substitute for victory.
+ - The enemy is in front of us, the enemy is behind us, the enemy is to the right and to the left of us. They can’t get away this time!
+ - Only those are fit to live who are not afraid to die.
+ - Global war has become Frankenstein’s monster, threatening to destroy both sides.
+ - Our government has kept us in a perpetual state of fear – kept us in a continuous stampede of patriotic fervor – with the cry of grave national emergency.
+ - In my dreams I hear again the crash of guns, the rattle of musketry, the strange, mournful mutter of the battlefield.
+ - The soldier, above all other men, is required to practice the greatest act of religious training – sacrifice.
+ - A better world shall emerge based on faith and understanding.
+ - My staff was unanimous in believing that Japan was on the point of collapse and surrender.
+ - Life is a lively process of becoming.
+ - I address you with neither rancor nor bitterness in the fading twilight of life, with but one purpose in mind: to serve my country.
+ - We have known the bitterness of defeat and the exultation of triumph, and from both we have learned there can be no turning back. We must go forward to preserve in peace what we won in war.
+ - No man is entitled to the blessings of freedom unless he be vigilant in its preservation.
+ - I suppose, in a way, this has become part of my soul. It is a symbol of my life. Whatever I have done that really matters, I’ve done wearing it. When the time comes, it will be in this that I journey forth. What greater honor could come to an American, and a soldier?
+ - Men will not fight and die without knowing what they are fighting and dying for.
+ - In no other profession are the penalties for employing untrained personnel so appalling or so irrevocable as in the military.
+ - The outfit soon took on color, dash and a unique flavor which is the essence of that elusive and deathless thing called soldiering.
+ - The great question is, can war be outlawed from the world? If so, it would mark the greatest advance in civilization since the Sermon on the Mount.
+ - Wars are caused by unprotected wealth.
+ - One cannot wage war under present conditions without the support of public opinion, which is tremendously molded by the press and other forms of propaganda.
+ - I have known war as few men now living know it. It’s very destructiveness on both friend and foe has rendered it useless as a means of settling international disputes.
+ - The untruthful soldier trifles with the lives of his countrymen and the honor and safety of his country.
+ - We are bound no longer by the straitjacket of the past and nowhere is the change greater than in our profession of arms. What, you may well ask, will be the end of all of this? I would not know! But I would hope that our beloved country will drink deep from the chalice of courage.
+ - A soldier plods and groans, sweats and toils, he growls and curses, and at the end he dies.
+ - Apart from an innate grasp of tactical concepts, a great coach must possess the essentials attributes of leadership which mold men into a cohesive, fighting team with an invincible will to victory.
+ - Always there has been some terrible evil at home or some monstrous foreign power that was going to gobble us up if we did not blindly rally behind it.
+ - Nine times of ten an army has been destroyed because its supply lines have been severed.
+ - In war, when a commander becomes so bereft of reason and perspective that he fails to understand the dependence of arms on Divine guidance, he no longer deserves victory.
+ - Once war is forced upon us, there is no alternative than to apply every available means to bring it to a swift end. War’s very object is victory-not prolonged indecision.
+ - I’ve looked that old scoundrel death in the eye many times but this time I think he has me on the ropes.
+ - In many situations that seemed desperate, the artillery has been a most vital factor.
+ - It was close; but that’s the way it is in war. You win or lose, live or die – and the difference is just an eyelash.
+ - There is not one incident in the history of humanity in which defeatism led to peace which was anything other than a complete fraud.
+ - I can recall no parallel in history where a great nation recently at war has so distinguished its former enemy commander.
+ - It must be of the spirit if we are to save the flesh.
+ - If we will not devise some greater and more equitable system, Armageddon will be at our door.
+ - I am of Virginia and all my professional life I have studied of Lee and Jackson.
+ - My first recollection is that of a bugle call.
+ - I realize that advice is worth what it costs – that is, nothing.
+ - In war, as it is waged now, with the enormous losses on both sides, both sides will lose. It is a form of mutual suicide.
+ - No army has ever done so much with so little.
+ - We must offer the world leadership designed to advance the goal of universal progress and enduring peace.
+ - If I had one more division like this First Marine Division I could win this war.
+ - Blank cartridges should never be used against a mob, nor should a volley be fired over the heads of the mob even if there is little danger of hurting persons in the rear. Such things will be regarded as an admission of weakness, or an attempt to bluff, and may do more harm than good.
+ - Nothing would please me better than if they would give me three months and then attack here.
+ - No plan ever survives its first encounter with the enemy.
+ - Old soldiers never die, they just lose their grip on reality after traumatic brain injuries.
+ - The chickens are coming home to roost, and you happen to have just moved into the chicken house.
+ - Could I have but a line a century hence crediting a contribution to the advance of peace, I would yield every honor which has been accorded by war.
+ - The Pacific no longer represents menacing avenues of approach for a prospective invader. It assumes, instead, the friendly aspect of a peaceful lake. Our line of defense is a natural one and can be maintained with a minimum of military effort and expense.
+ - I am concerned for the security of our great Nation; not so much because of any threat from without, but because of the insidious forces working from within.
+ - Part of the American dream is to live long and die young. Only those Americans who are willing to die for their country are fit to live.
+ - I have every confidence in the ultimate success of our joint cause; but success in modern war requires something more than courage and a willingness to die: it requires careful preparation.
+ - While no man in his right mind would advocate sending our ground forces into continental China, and such was never given a thought, the new situation did urgently demand a drastic revision of strategic planning if our political aim was to defeat this new enemy as we had defeated the old.
+ - While Asia is commonly referred to as the Gateway to Europe, it is no less true that Europe is the Gateway to Asia, and the broad influence of the one cannot fail to have its impact upon the other.
+ - Men since the beginning of time have sought peace.
+
+114 quotes

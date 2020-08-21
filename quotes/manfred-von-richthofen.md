@@ -1,0 +1,27 @@
+ - The murder of a man is still murder, even in wartime.
+ - What’s the hurry? Are you afraid I won’t come back?
+ - Fight on and fly on to the last drop of blood and the last drop of fuel, to the last beat of the heart.
+ - Success flourishes only in perseverance ceaseless, restless perseverance.
+ - The aggressive spirit, the offensive, is the chief thing everywhere in war, and the air is no exception.
+ - I never was good at learning things. I did just enough work to pass. In my opinion it would have been wrong to do more than was just sufficient, so I worked as little as possible.
+ - I honored the fallen enemy by placing a stone on his beautiful grave.
+ - Find the enemy and shoot him down. Anything else is nonsense.
+ - The quality of the box matters little. Success depends upon the man who sits in it.
+ - If I should come out of this war alive, I will have more luck than brains.
+ - The duty of the fighter pilot is to patrol his area of the sky, and shoot down any enemy fighters in that area. Anything else is rubbish.
+ - The English had hit upon a splendid joke. They intended to catch me or to bring me down.
+ - My dear Excellency! I have not gone to war to collect cheese and eggs, but for another purpose.
+ - It is a pity that my collection of trophies contains not a single Russian.
+ - In the heat of the Russian summer a sleeping car is the most horrible instrument of martyrdom imaginable.
+ - The important thing in aeroplanes is that they shall be speedy.
+ - Of course, with the increasing number of aeroplanes one gains increased opportunities for shooting down one’s enemies, but at the same time, the possibility of being shot down one’s self increases.
+ - Everything depends on whether we have for opponents those French tricksters or those daring rascals, the English. I prefer the English. Frequently their daring can only be described as stupidity. In their eyes it may be pluck and daring.
+ - Whatever Boelcke told us was taken as Gospel!
+ - One can become enthusiastic over anything. For a time I was delighted with bomb throwing. It gave me a tremendous pleasure to bomb those fellows from above.
+ - As a little boy of eleven I entered the Cadet Corps. I was not particularly eager to become a Cadet, but my father wished it. So my wishes were not consulted.
+ - I started shooting when I was much too far away. That was merely a trick of mine. I did not mean so much as to hit him as to frighten him, and I succeeded in catching him. He began flying curves and this enabled me to draw near.
+ - I have had an experience which might perhaps be described as being shot down. At the same time, I call shot down only when one falls down. Today I got into trouble but I escaped with a whole skin.
+ - It is better that one’s customers come to one’s shop than to have to look for them abroad.
+ - When one has shot down one’s first, second or third opponent, then one begins to find out how the trick is done.
+
+25 quotes

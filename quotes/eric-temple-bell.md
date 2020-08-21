@@ -1,0 +1,25 @@
+ - Obvious is the most dangerous word in mathematics.
+ - If a lunatic scribbles a jumble of mathematical symbols it does not follow that the writing means anything merely because to the inexpert eye it is indistinguishable from higher mathematics.
+ - It is the perennial youthfulness of mathematics itself which marks it off with a disconcerting immortality from the other sciences.
+ - Pick the assumptions to pieces till the stuff they are made of is exposed to plain view – this is the cardinal rule for understanding the basis of our beliefs.
+ - Time makes fools of us all. Our only comfort is that greater shall come after us.
+ - If “Number rules the universe” as Pythagoras asserted, Number is merely our delegate to the throne, for we rule Number.
+ - Even stranger things have happened; and perhaps the strangest of all is the marvel that mathematics should be possible to a race akin to the apes.
+ - Euclid taught me that without assumptions there is no proof. Therefore, in any argument, examine the assumptions.
+ - Guided only by their feeling for symmetry, simplicity, and generality, and an indefinable sense of the fitness of things, creative mathematicians now, as in the past, are inspired by the art of mathematics rather than by any prospect of ultimate usefulness.
+ - Science makes no pretension to eternal truth or absolute truth.
+ - Fashion as King is sometimes a very stupid ruler.
+ - The mistakes and unresolved difficulties of the past in mathematics have always been the opportunities of its future.
+ - The very basis of creative work is irreverence! The very basis of creative work is bold experimentation. There has never been a creator of lasting importance who has not also been an innovator.
+ - The Handmaiden of the Sciences.
+ - Wherever groups disclosed themselves, or could be introduced, simplicity crystallized out of comparative chaos.
+ - Nevertheless, the consuming hunger of the uncritical mind for what it imagines to be certainty or finality impels it to feast upon shadows in the prevailing famine of substance.
+ - Any impatient student of mathematics or science or engineering who is irked by having algebraic symbolism thrust upon him should try to get along without it for a week.
+ - Abstractness, sometimes hurled as a reproach at mathematics, is its chief glory and its surest title to practical usefulness. It is also the source of such beauty as may spring from mathematics.
+ - If indeed, as Hilbert asserted, mathematics is a meaningless game played with meaningless marks on paper, the only mathematical experience to which we can refer is the making of marks on paper.
+ - The pursuit of pretty formulas and neat theorems can no doubt quickly degenerate into a silly vice, but so can the quest for austere generalities which are so very general indeed that they are incapable of application to any particular.
+ - The longer mathematics lives the more abstract – and therefore, possibly also the more practical – it becomes.
+ - The only royal road to elementary geometry is ingenuity.
+ - I have always hated machinery, and the only machine I ever understood was a wheelbarrow, and that but imperfectly.
+
+23 quotes

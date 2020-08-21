@@ -1,0 +1,33 @@
+ - To be a star, you must walk your own path, shine your own light and not be afraid of the darkness, that’s when a star shines the brightest.
+ - Have courage, pursue your dreams, and make it happen!
+ - If you surround yourself with positive people who build you up, the sky is the limit.
+ - The only thing that stands between you and your dream is the will to try and the belief that it is actually possible.
+ - When it comes to your dreams, every risk is worth it.
+ - Don’t look back! For a bright future is ahead of you.
+ - Never over think! Make a decision and take action!
+ - We only get what we believe that we deserve. Raise the bar, raise your standards and you will receive a better outcome.
+ - Conquer all your fears and you’ll be amazed at how awesome your life can become.
+ - You are either moving towards or away from success at any given time. What direction are you headed in?
+ - The ‘Amazing’ can only be created by facing fear, risk and failure during the process.
+ - You can’t just wish for a better life, you must go out there and create it.
+ - Success is a habit. More of what you do, is more of what you become.
+ - Don’t let your negative self beliefs haunt you out of taking action. You owe it to yourself to live the life that you desire.
+ - If you doubted your fears instead of doubting your dreams, imagine how much in life you’d accomplish.
+ - Life isn’t about waiting for the time to come. It’s all about making the most of things in the time that is given to you.
+ - Your success is determined by how much you can really learn from your failures.
+ - The awesome thing about failure is that it is only temporary. Embrace it, learn the lesson and come back blazing.
+ - It’s not the failures in our life that define us, it’s the moments when we decide that getting back up is all that matters.
+ - You decide every day who you will and will not be. Be bold in your decision but remember, choose wisely.
+ - Place bets on your dreams and be your own hero!
+ - Whatever you do, just don’t stand still. Make the changes you need today, so you can live the life you want, tomorrow.
+ - There are no limitations, just dreams to be fulfilled.
+ - You can only be brave by being afraid. Embrace what you are scared of and shift its energy to destroy your fears.
+ - Most people chasing their dreams don’t see the bigger picture, they just see the silhouette. Make the vision real!
+ - Imagine what we could accomplish if our dreams were bigger than our fears.
+ - Forget the haters! They just want the crown!
+ - Your full potential can only be awaken by the spirit of a powerful and positive attitude.
+ - Be ready and willing to be a beginner every morning. That’s how you grow and step into your greatness.
+ - Often, our most rewarding dreams are staring us right in the face, but for some reason we focus on how hard things are, how we are scared of the unknown and what would happen if we failed.
+ - This is why I turned down multiple $Million Dollar Offers for my website. Because the positive impact you have in other lives is more important than a quick cash out.
+
+31 quotes

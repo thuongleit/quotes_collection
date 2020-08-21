@@ -1,0 +1,50 @@
+ - But if the technological Singularity can happen, it will.
+ - Even the largest avalanche is triggered by small things.
+ - Politics may come and go, but Greed goes on forever.
+ - What we have is a data glut.
+ - Technical people don’t make good slaves. Without their wholehearted cooperation, things fall apart.
+ - So much technology, so little talent.
+ - Poor humans; they will all die.“”Poor us; we will not.
+ - It was not called the Net of a Million Lies for nothing.
+ - The physical extinction of the human race is one possibility.
+ - I have argued above that we cannot prevent the Singularity, that its coming is an inevitable consequence of the humans natural competitiveness and the possibilities inherent in technology.
+ - If there be only hours, at least learn what there is time to learn.
+ - In fact, there was general agreement that minds can exist on nonbiological substrates and that algorithms are of central importance to the existence of minds.
+ - Pham Nuwen plunked himself down, stretching indolently.
+ - I say, let’s learn more and then speculate.
+ - How to explain? How to describe? Even the omniscient viewpoint quails.
+ - Peregrine Wickwrackscar was flying. A pilgrim with legends that went back almost a thousand years-and not one of them could come near to this!
+ - Intelligence is the handmaiden of flexibility and change.
+ - The heart of manipulation is to empathize without being touched.
+ - I argue in this paper that we are on the edge of change comparable to the rise of human life on Earth.
+ - We humans have millions of years of evolutionary baggage that makes us regard competition in a deadly light.
+ - Politics is good; when it works properly, disagreements get solved without people beating each other up. But when a regime knows its days are numbered, there’s always the chance it may use its position to change the rules and make the debate it is losing irrelevant.
+ - The dilemma felt by science fiction writers will be perceived in other creative endeavors.
+ - Sometimes terror and pain are not the best levers; deception, when it works, is the most elegant and the least expensive manipulation of all.
+ - Within thirty years, we will have the technological means to create superhuman intelligence. Shortly after, the human era will be ended.
+ - I never guessed I could cry so hard my face hurt.
+ - The illusion of self-awareness. Happy automatons, running on trivial programs. I’ll bet you never guess. From the inside, how can you?
+ - We’re endangered by our own success.
+ - One of his greatest talents was empathy; no sadist can aspire to perfection without that diagnostic ability.
+ - How will the approach of the Singularity spread across the human world view?
+ - The voice was gentle, like a scalpel petting the short hairs of your throat.
+ - Sometimes the biggest disasters aren’t noticed at all – no one’s around to write horror stories.
+ - IA is something that is proceeding very naturally, in most cases not even recognized by its developers for what it is.
+ - We’re long on high principles and short on simple human understanding.
+ - Peregrine Wickwrackrum was of two minds about evil: when enough rules get broken, sometimes there is good amid the carnage.
+ - The problem is not simply that the Singularity represents the passing of humankind from center stage, but that it contradicts our most deeply held notions of being.
+ - He was guided by what he saw rather than by what he wanted to believe.
+ - He claimed that nearby gun thunder cleared the mind – but most everybody else agreed it made you daft.
+ - Animals can adapt to problems and make inventions, but often no faster than natural selection can do its work – the world acts as its own simulator in the case of natural selection.
+ - Another symptom of progress toward the Singularity: ideas themselves should spread ever faster, and even the most radical will quickly become commonplace.
+ - Once upon a time I was such a good liar; I could talk the fish right into my mouths.
+ - But every time our ability to access information and to communicate it to others is improved, in some sense we have achieved an increase over natural intelligence.
+ - When I began writing science fiction in the middle 60s, it seemed very easy to find ideas that took decades to percolate into the cultural consciousness; now the lead time seems more like eighteen months.
+ - When people speak of creating superhumanly intelligent beings, they are usually imagining an AI project.
+ - All evil and good is petty before Nature. Personally, we take comfort from this, that there is a universe to admire that cannot be twisted to villainy or good, but which simply is.
+ - Note that I am not proposing that AI research be ignored or less funded.
+ - The work that is truly productive is the domain of a steadily smaller and more elite fraction of humanity.
+ - Life is a green madness just now, trying to squeeze the last bit of warmth from the season.
+ - Effective translation of natural languages comes awfully close to requiring a sentient translator program.
+
+48 quotes

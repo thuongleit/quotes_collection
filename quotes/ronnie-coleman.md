@@ -1,0 +1,26 @@
+ - Hard work and training. There’s no secret formula.
+ - Everybody wants to be a bodybuilder, but don’t nobody wanna lift no heavy ass weight.
+ - Everybody wants to be a bodybuilder...
+ - When you hit failure your workout has just begun.
+ - Women really do pay attention to a man’s glutes. A tight, compact ass is often voted even more desirable than muscular arms and chest. So, if you’re lacking, start squatting!
+ - I’ve been training so long, its second nature to push myself to the limit.
+ - Never underestimate the power of wide-grip pull-ups to develop width and size.
+ - I’m always positive when it comes to professional bodybuilding, hell I’m Mr. Olympia for God’s sake. If I’m number one in our sport and I have a negative attitude then our sport don’t need me and I don’t need our sport. There are problems and controversy in all sports. That’s really unavoidable.
+ - The more I have to do, the better off I am. I’m not really one to sit around and relax and take it easy. I always like having something to do. Even though I’m not competing, I’m going to be making a lot of appearances, doing guest posings and seminars.
+ - Your body produces a lot less testosterone each and every single year no matter who you are. We are all human, nobody is super human.
+ - I always train heavy and it worked well for me. I always train heavy and put on size for a competition. Most people would be worried about an injury but if you’re gonna worry about it so much, it’s gonna happen anyway.
+ - I’ve never really considered myself as being the best bodybuilder. I always try to let the people decide that. I just try to do the best I can do at whatever it is that I’m doing.
+ - Recovery is not a gift from clinicians, but the responsibility of us all. We must become confident in our own ability to change our lives, we must give up being reliant on others doing everything for us. We must have the confidence to give up being ill so that we can start being recovered.
+ - My biggest competition is always myself. I mean no disrespect, but I do not look at any of the guys as being my competition for the simple reason that I can’t control how they’re going to look. I can only control how I look.
+ - It is important to have people believe in you. With this support, what you can achieve is limitless.
+ - Just because your triceps have fallen behind your biceps, doesn’t mean you should back off your triceps workouts.
+ - I never focus on contraction. I’m focusing on my muscle. I’m not focusing on a certain style of lifting or contracting. I’m just trying to get the weight up. I’m trying to build muscle.
+ - If you take a hammer and hit something over and over again, it’s gonna be destroyed. I don’t wanna destroy my body cause I want my body to last me as long as it possible can. If you train hard and push it everyday, your body is going to wear out. So I give my body time to recover.
+ - Bodybuilding is a hobby. At least for me it is. I’ve trained since i was 12 or 13 years old. It’s a hobby I just have so much fun with it. I get so much enjoyment from it. To have your job as your hobby – life don’t get better than that.
+ - I know that in order for something to work for me it has to be extremely powerful.
+ - Most people know who I am. Then I get the people who don’t know who I am and just want to take a picture with a guy with muscles. I get more people that know me than anything.
+ - Training has always been a hobby, and my whole life has revolved around training. It’s something I truly love doing. I wanna do what I wanna do and this is something I wrestled with, because I have to make many sacrifices to do what I wanna do.
+ - I’ve attained my mass basically by training hard and very, very heavy.
+ - The next thing I would have to go with is diet because it is so hard and mentally tough. By comparison the training is the easiest of them all because it’s my hobby as well as my job.
+
+24 quotes

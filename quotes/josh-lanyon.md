@@ -1,0 +1,47 @@
+ - Knowing and believing are two different things.
+ - I know you’ve all heard the advice, “Show, don’t tell.” The best writers don’t tell you, and quite frankly they don’t just show you – they make you feel it, live it, taste it, touch it. Storytelling is about being in the moment with the characters.
+ - If there was one life skill everyone on the planet needed, it was the ability to think with critical objectivity.
+ - I liked you the first time I saw you. You were sitting on the floor surrounded by books, and you looked up when I opened the door and smiled right at me. It felt like you had been waiting for me, like you were welcoming me home.
+ - This is how God made me. You are how God made you. All God’s chillun are made how God made ’em. You think God made a mistake, take it up with Him.
+ - The problem with a life spent reading is you know too much.
+ - Vintage books, old china, antiques; maybe I love old things so much because I feel impermanent myself.
+ - You know that thing about Death Be Not Proud? Well, Fear Be Not Proud either. And Fear Be Not Elegant. What Fear be is stumbling, bumbling flight, crashing through brush, slip-sliding on pine needles, sloshing through puddles that are always deeper than you expect.
+ - Hearts got broken every day. Nobody died from that. But it did kind of fade the sunlight and drain the color from the days.
+ - Jake’s mouth found mine, his lips molding hot and soft to my own. His tongue tentatively tested the seal of my lips; I parted them and he pushed inside. It was startlingly sweet and achingly familiar, like finding harbor.
+ - Focus on someone else’s problems for a change, I instructed myself. You need the practice. From now on you’ll have to live in a world you didn’t make up. Horrible thought.
+ - I’m not insane. This is very simple, very straightforward. Provided he doesn’t kill me, its foolproof.
+ - How did people get over this? They obviously did. Every day someone fell in love with the wrong person and had to pack up all their fragile, misguided hopes and unwanted affection, and move on to the next picnic table.
+ - He never lied to me. I just didn’t ask the questions I didn’t want to know the answers to.
+ - You’re kind of a smart ass when you’re not flat on your face.
+ - When you live with a potentially life-threatening condition you get used to the thought of dying. You accept it, you push on. The thing that scared me was the picture of dying slowly and painfully, the loss of independence and identity to illness.
+ - You got a little bit of an attitude, Mr. English, if you don’t mind my saying so. I don’t mind.
+ - I don’t know if real courage lies in storming barricades or simply not denying the truth.
+ - All cynics are disappointed idealists. The more stars in the eyes, the harder the fall.
+ - Drink your coffee – people in Africa are sleeping.
+ - He needed fresh air and sunshine. A walk in the woods and afterward a good book to read by the fire. Yeah, that was the life.
+ - And why is it the best looking ones are always straight?
+ - He scooped up Victoria practically before she hit the ground, well within the five-second rule. If she’d been a potato chip, he could have still eaten her. Not something I particularly wanted to contemplate.
+ - I hadn’t liked him at first. He did sort of grow on you after a while. Like the cosmopolitans. Or maybe because of the cosmopolitans.
+ - Rachel delivered it like an official pronouncement. Like she was one of the fairies gifting Sleeping Beauty’s christening: Beauty. Intelligence. Heterosexual.
+ - Shrugging out of the damaged shirt, Jake said roughly, “I still dream about you.” “I have nightmares about you.” I dragged my T-shirt over my head, threw it aside.
+ - Have I ever told you, you look like Monty Clift? he inquired in a deep, seductive voice. Before or after the accident?
+ - One thing I’ve noticed about getting older, it takes twice as much work to get half the results one formerly achieved by falling out of bed.
+ - She shrugged another plump shoulder. “I never listened to Porter when he got going.” Ah. At last. The secret to a successful marriage.
+ - A pause followed my greeting. Then “We’re watching you ” whispered the voice on the other end. “Yeah? Did you see what I did with my keys? ” Silence. Then dial tone. These younger demons. So easily discouraged.
+ - The only thing worse than opera is someone who hums along with opera.
+ - Anyone who wasn’t half-stoned on pain meds would have instantly realized what a really bad idea this plan was, but since that didn’t include me, I didn’t worry about it.
+ - Kevin refilled my plastic cup with more box wine. I smiled thanks. Kevin smiled welcome. Jake kicked my ankle.
+ - Not as intolerable as being dead, in my opinion, but I’m very fond of me. I would miss me a lot.
+ - People loved you in the way they knew how – and often it was not the way you knew. Or needed.
+ - And I thought maybe I didn’t need to worry about my heart anymore because it had stopped beating a couple of seconds earlier, and I was still sitting there living and breathing-though admittedly I wasn’t feeling much of anything.
+ - I want people to react to my work, to think, to question, to challenge, to cry and laugh and feel.
+ - I didn’t approve of murder on general principles. Not even of people who seemed to go around begging for it.
+ - The battle rages eternal, though the race, religion, gender or sexual orientation of those discriminated against changes regularly. Maybe man’s need for a scapegoat is genetically programmed into him.
+ - I never meant to get involved with you, Adrien. Rest easy; you’re not.
+ - I’m never wrong? Who besides Republican presidents and evil masterminds can say that with a straight face?
+ - He went through the cupboards, found the olive oil, and started upstairs again. He glanced down at the green and gold label and had to bite back a laugh at the words Extra Virgin. That about summed it up.
+ - You were the first in every way that counted.
+ - Like true philosophers I’ve come to believe that religion is an illusion of childhood, outgrown after proper education.
+ - I thought again how odd it was to be on formal terms with someone you had once permitted to lick your ears.
+
+45 quotes

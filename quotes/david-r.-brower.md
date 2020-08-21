@@ -1,0 +1,58 @@
+ - Overpopulation is perhaps the biggest problem facing us, and immigration is part of that problem. It has to be addressed.
+ - There is no business on a dead planet.
+ - The wild places are where we began. When they end, so do we.
+ - Bring diversity back to agriculture. That’s what made it work in the first place.
+ - All technology should be assumed guilty until proven innocent.
+ - Have fun saving the world, or you are just going to depress yourself.
+ - Understanding how DNA transmits all it knows about cancer, physics, dreaming and love will keep man searching for some time.
+ - I’m always impressed with what young people can do before older people tell them it’s impossible.
+ - Let the mountains talk, let the river run. Once more, and forever.
+ - Childbearing should be a punishable crime against society, unless the parents hold a government license. All potential parents should be required to use contraceptive chemicals, the government issuing antidotes to citizens chosen for childbearing.
+ - Politicians are like weather vanes. Our job is to make the wind blow.
+ - We must begin thinking like a river if we are to leave a legacy of beauty and life for future generations.
+ - The more we pour the big machines, the fuel, the pesticides, the herbicides, the fertilizer and chemicals into farming, the more we knock out the mechanism that made it all work in the first place.
+ - There are many ways to salvation, and one of them is to follow a river.
+ - A great deal of pressure was then built up to remove me from the club and my resignation was, finally, a forced one.
+ - Without wilderness, the world’s a cage.
+ - There is more inside you than you dare think.
+ - The goal now is a socialist, redistributionist society, which is nature’s proper steward and society’s only hope.
+ - We may learn anew what compassion and beauty are, and pause to listen to the Earth’s music.
+ - To me, a wilderness is where the flow of wildness is essentially uninterrupted by technology; without wilderness the world is a cage.
+ - I was actually telling people that – by harnessing the atom – we could enter a new era of unlimited power that would do away with the need to dam our beautiful streams.
+ - If you want to get people off drugs, improve reality.
+ - Sometimes luck is with you, and sometimes not, but the important thing is to take the dare. Those who climb mountains or raft rivers understand this.
+ - While the death of young men in war is unfortunate, it is no more serious than the touching of mountains and wilderness areas by humankind.
+ - Politics is democracy’s way of handling public business. We won’t get the type of country in the kind of world we want unless people take part in the public’s business.
+ - Keep your rivers flowing as they will, and you will continue to know the most important of all freedoms-the boundless scope of the human mind to contemplate wonders, and to begin to understand their meaning.
+ - I believe that the average guy in the street will give up a great deal, if he really understands the cost of not giving it up. In fact, we may find that, while we’re drastically cutting our energy consumption, we’re actually raising our standard of living.
+ - There are many different kinds of radioactive waste and each has its own half-life so, just to be on the safe side and to simplify matters, I base my calculations on the worst one and that’s plutonium.
+ - Polite conversationalists leave no mark save the scars upon the Earth that could have been prevented had they stood their ground.
+ - Once we open the door to the plutonium economy, we expose ourselves to absolutely terrible, horrifying risks from these people.
+ - If something’s going wrong with this planet we’d better fix it here and not look for some sort of escape.
+ - We are no longer inheriting the Earth from our parents, we are stealing it from our children.
+ - It is absolutely imperative that we protect, preserve and pass on this genetic heritage for man and every other living thing in as good a condition as we received it.
+ - You don’t have a conservation policy unless you have a population policy.
+ - Let man heal the hurt places and revere whatever is still miraculously pristine.
+ - For how many people do you think might yet stand on this planet before the sun grows cold? That’s the responsibility we hold in our hands.
+ - Even if you build the perfect reactor, you’re still saddled with a people problem and an equipment problem.
+ - The Sierra Club is a very good and a very powerful force for conservation and, as a matter of fact, has grown faster since I left than it was growing while I was there! It must be doing something right.
+ - Some otherwise sane scientists have seriously proposed that we tuck this deadly garbage under the edges of drifting continents but how can they be sure the moving land masses will climb over the waste and not just push it forward?
+ - We cannot go on fiddling while the earth’s wild places burn...
+ - Until four years ago, in fact, I was absolutely in love with the atom.
+ - Is the minor convenience of allowing the present generation the luxury of doubling its energy consumption every 10 years worth the major hazard of exposing the next 20,000 generations to this lethal waste?
+ - Truth and beauty can still win battles. We need more art, more passion, more wit in defense of the Earth.
+ - The Peninsula is what we have and there is no more where it came from.
+ - People have alleged that I have inspired many young people over the years, but I say, it was just the opposite.
+ - True wilderness is where you keep it, and real wilderness experience cannot be a sedentary one; you have to seek it out not seated, but afoot.
+ - What we are finding out now is that there are not only limits to growth but also to technology and that we cannot allow technology to go on without public consent.
+ - There is no place where we can safely store worn-out reactors or their garbage. No place!
+ - We need the sea. We need a place to stand and touch and listen – to feel the pusle of the world as the surf rolls in.
+ - It seems that every time mankind is given a lot of energy, we go out and wreck something with it.
+ - Perhaps we’ll realize that each of us has not one vote but ten thousand or a million.
+ - We still need conservationists who will attempt the impossible, achieving it because they aren’t aware how impossible it is.
+ - I began working with the John Muir Institute and then started helping found Friends of the Earth organizations here and there in other countries. That pretty well brings us up to the present.
+ - I sort of kept my hand in writing and went to work for the Sierra Club in ’52, walked the plank there in ’69, founded Friends of the Earth and the League of Conservation Voters after that.
+ - When people say, ‘You’re not being realistic,’ they’re just trying to tag some thoughts that they can’t otherwise handle.
+ - I believe in the rights of creatures other than man.
+
+56 quotes

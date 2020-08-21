@@ -1,0 +1,49 @@
+ - Everyday is a new beginning and a chance to blow it.
+ - When life gives you lemons, squirt someone in the eye.
+ - The story of a mother’s life: Trapped between a scream and a hug.
+ - Sometimes the best Christmas present is remembering what you’ve already got.
+ - My mother had always taught me to write about my feelings instead of sharing really personal things with others, so I spent many evenings writing in my diary, eating everything in the kitchen and waiting for Mr. Wrong to call.
+ - Now I’m searching for a slightly overweight, single, childless woman who doesn’t have a date and isn’t too depressing to be around. It’s getting harder to find a girlfriend than a boyfriend.
+ - A lot of married people certainly have wonderful relationships with their dogs, but when you’re single and your dog is the only other living thing in your house, it’s a really special relationship which I wanted CATHY to have.
+ - All mothers have intuition. The great ones have radar.
+ - What happened to the good old days of “Woman as passive recipient?” What happened to being courted? What happened to sitting back under a parasol and granting someone a chance to try to win us over?
+ - A young bride can put on makeup at 6 in the morning and look fabulous at midnight. I have about a 15-minute window where I actually look good, and then I have to wash my face and start over.
+ - Mothers send strips to daughters to make a point. Daughters smack strips down on the breakfast table to make a point. My own mom sometimes cuts a strip out and sends it to me to make sure I understand her.
+ - All parents believe their children can do the impossible. They thought it the minute we were born, and no matter how hard we’ve tried to prove them wrong, they all think it about us now. And the really annoying thing is, they’re probably right.
+ - Food, love, career, and mothers, the four major guilt groups.
+ - Defy your own group. Rebel against yourself.
+ - This is a business meal. The calories do not count. I am mentally labeling these as ‘business calories’ so my body will know they were eaten in the line of duty and will process them differently.
+ - I understand the sensitivities of grown children with little ones of their own!! They’ll turn away a mother full of advice, but they’ll never say no to one holding a mop.
+ - Imagine my surprise when, after a lifetime of teaching me to keep personal things to myself, Mom insisted my drawings were the start of a comic strip for millions of people to enjoy.
+ - Wake me up when I’m a size 5.
+ - Every time I get something under control in my own life, the world provides more material.
+ - Because the majority of my readers are women, I feel that one public service I can provide to them is to spread the message of regular mammograms and early detection within the strip.
+ - The biggest change in my life is that I now have to apologize for being thin.
+ - I’ve found it’s better to talk to the machine and hang up if I get the person.
+ - The specific story line that people have responded to the most has been the horror of bathing suit shopping.
+ - Each of us wages a private battle each day between the grand fantasies we have for ourselves and what actually happens.
+ - After 14 years of dieting, there are only two things I’ve never lost. Hope and weight.
+ - Cartooning is a wonderful career, and I’d like more women to get to have it. I can’t think of any reason why we won’t see more syndicated female cartoonists in the future.
+ - My dog was with me all the time. I talked to my dog. She was my best buddy. I shared all my secrets with her, but I don’t think I every really tried jokes out with the dog.
+ - The relationship between Cathy and Mom in the strip is the one relationship drawn from real life that I have proudly never even tried to disguise.
+ - Allow yourself to graduate, every five years.
+ - I was going to sip on a diet soda, but a little voice convinced me I needed the extra calcium from a cup of hot chocolate.
+ - So often, happiness is the extent to which we balance our grandiose expectations with reality.
+ - Otherwise, my whole career has just been flinging myself at whatever is most overdue first and letting everything else stack up.
+ - I’m married, which means that instead of occasionally wondering about men from afar, I actually live with one and can be constantly astounded by the strange male brain.
+ - One day, in 1982, for 15 minutes, my hair was perfect.
+ - I’d love to see more equal representation of female and male cartoonists on the comics page.
+ - I’m more financially successful, but it just means the shopping blunders I make are bigger now.
+ - I’m lucky that my real-life Mom has both a great sense of humor about herself and an amazing ability to slip into complete denial if the subject matter gets a little too close to home.
+ - Breaking up: It’s so easy to return their possessions, but so hard to get our brain cells back.
+ - Men should come with instruction booklets.
+ - Animal welfare issues have always been important to me.
+ - Cathy was the first widely syndicated humor strip created by a woman. The strip was pretty revolutionary at the time not only because it starred a female, but also because it was so emotionally honest about all the conflicting feelings many women had in 1976.
+ - I can’t tell my conscience from my insecurities.
+ - I’m most proud of having created something that men never completely get.
+ - My heart always belongs to the one who doesn’t want it.
+ - Men date. Women have relationships.
+ - I have an office in my house and one about five minutes from my house. I worked solely out of my house for many years, but find, with children, that I have to be in a different ZIP code to think.
+ - In 1976 I wrote a lot about women trying to claim the right to work.
+
+47 quotes

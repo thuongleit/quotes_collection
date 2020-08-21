@@ -1,0 +1,33 @@
+ - Racism and discrimination of any kind have no place in football.
+ - I am a mountain goat that keeps going and going and going, I cannot be stopped, I just keep going.
+ - I am the president now, the president of everybody.
+ - FIFA’s goal of making the world a better place through football cannot be achieved through our efforts alone – equally important is the power which every fan of the beautiful game has at their disposal.
+ - FIFA stands for discipline, respect, fair-play, not just on the field of play, but in our society as well.
+ - You cannot ask everyone to behave ethically.
+ - We shall wonder if one day our game is played on another planet? Why not? Then we will have not only a World Cup we will have inter-planetary competitions.
+ - I do not feel that I have a mandate from the entire world of football – the fans, the players, the clubs, the people who live, breathe and love football.
+ - All religions, they play football – even nowadays all girls and women have the right to play football in cultures like the Arabic countries in the Muslim they play football.
+ - Football is hope. To be a better human being but also hope one day, one day, to leave your country to be somewhere, let’s say admired, as a football star.
+ - What I am most proud of is the legacy of hope that FIFA and football leaves around the world. It makes all of the efforts and energy I pour into this job worth it.
+ - Fifa cannot sit by and see greed rule the football world. Nor shall we.
+ - As long as you’ve got serious investors who wish to put money into football, I applaud. It proves that football is attractive. What upsets me, what I find scandalous, is when clubs accept fools.
+ - Many people hold me ultimately responsible toward the actions and reputation of the global football community. I cannot monitor everyone all of the time.
+ - There is no systematic corruption in FIFA. That is nonsense. We are financially clean and clear.
+ - Why is it good for football to take the excitement away from fans by overcharging them for tickets to see their team?
+ - It is very important that football can see beyond religion but FIFA does not just ignore its impact.
+ - It’s up to the national associations and their leagues to limit the entry of foreign players.
+ - The World Cup must remain the number one competition, because it is our only source of money and, with that money, we can develop football in the whole world.
+ - I have no problem with G14. How can I oppose something that as far as I am concerned, does not exist?
+ - Racism is if there are spectators or, outside the field of play, there are movements to discrimination, but, on the field of play, I deny that there is racism.
+ - Liverpool have won everything but never a World Championship. I am sure in the future they will once again make the effort to win the tournament. They have had good rhythm in the Premier League this season.
+ - The important thing for me was that the World Cup should travel round the world.
+ - What we have to do is to find a solution that the interests of the national teams are respecting the interests of the clubs. And also the clubs they shall respect the interests and the aspirations of national teams.
+ - What matters to me more than anything is that when all of this is over, football is the winner.
+ - There is a movement in club football, which I don’t necessarily consider a prime example of solidarity, because it leads us to conclude the rich are getting richer and they are using everything in the market to create an exodus from Africa.
+ - We, or I, cannot monitor everyone all of the time. If people want to do wrong, they will also try to hide it.
+ - Any country if you go really, really in depth somewhere, the human rights are not totally respected.
+ - Footballers are slaves. I know this from the personal experience of being a footballer.
+ - I can understand that people are not happy, but they should not use football to make their demands heard.
+ - Yes, in general, I think there is too much club football on TV.
+
+31 quotes

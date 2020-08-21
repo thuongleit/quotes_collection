@@ -1,0 +1,109 @@
+ - That’s my feeling – that real God and religion are two different things and that religion is trying to obscure what God really is.
+ - Generally I don’t listen to sad songs if I’m sad. I listen to happy songs.
+ - There is a God. God exists.
+ - Minors should not be exposed to what is going on in the so-called news.
+ - Easy to keep faith. God is good. Only one mistake he made. Free will, therefore can’t intervene unless we ask, but gospels show, when we ask we must believe we will be answered. Then all manner of things will be well.
+ - You can’t have a church run by people who don’t believe in God.
+ - Remember what I told you. If they hated me, they will hate you.
+ - I don’t believe in any kind of artistic snobbery or musical snobbery. You know, to me, the sexiest and the most spiritual words ever uttered in rock and roll are wop babaloo balop bam boom.
+ - It’s been seven hours and fifteen days, since you took your love away.
+ - When you’re young, you don’t really know quite what you’re aiming at. You’re very impulsive and acting on impulse, which is very important and valuable. But you’re kind of swimming in a blind sea. When you get older, you have more of a sense of direction.
+ - My creative process is quite slow. I hear melodies in my head while I’m washing the dishes and I allow my subconscious to do the work.
+ - Suicide doesn’t solve your problems. It only makes them infinitely, un-countably worse.
+ - Maybe it was mean, but I really don’t think so. You asked for the truth and I told you.
+ - When I kissed you, you didn’t mind. I thought I tasted of too many cigarettes, but you tasted like wine.
+ - Look at all our old men in pubs. Look at all our young people on drugs.
+ - It’s OK to assert yourself. Obviously, as a woman, I do experience the consequence of asserting yourself – you’re not supposed to assert yourself.
+ - I don’t feel like me unless I have my hair shaved. So even when I’m an old lady, I’m going to have it.
+ - When you dishonor the the utter glory and majesty of black people, you lie. Your heart lies to you and you let it.
+ - I h a v e a l l t h a t I r e q u e s t e d and I do not want what I haven’t got. I have learned this from my mother ; see how happy she has made me. I will take this road much further though I know not where it takes me.
+ - Women are to be valued for so much more than their sexuality. We aren’t merely objects of desire.
+ - I don’t want to go shoving what I believe down anyone’s throat. Whatever I believe about Jesus is a personal thing, but it doesn’t exclude all the others.
+ - To say what you feel is to dig your own grave.
+ - It should be a crime to abandon your child, and it’s not. It would be wonderful if it could be criminalized.
+ - I love songs, and I love songwriting, and there’s a standard of songwriting within Chicago blues in particular. I don’t like the sad blues, necessarily; the Chicago blues is what I like, which is the kind of blues you can dance to.
+ - You have to hide what you are and it’s really stressful and very bad for your self esteem. Because it’s not obvious to people that you are ill, they treat you as if you’re a pain in the ass, then you beat yourself up and you are already beating yourself up as a part of mental illness.
+ - I love the Holy Spirit. I can’t stand to see it being disrespected. It’s been there for me at times when I really needed it. Therefore, I have a duty to stand for it is how I feel.
+ - Forgiveness is the most important thing. We all have to forgive what was done to us – the Irish people have to forgive. The African people. The Jewish people. We all have to forgive and understand the only way to stop the cycle of hate and abuse is not to allow yourself to get caught in it.
+ - You must not try to be too pure, you must fly closer to the sea.
+ - I don’t want any man to have control over me.
+ - I seek no longer to be a ‘famous’ person, and instead I wish to live a ‘normal’ life.
+ - In my belief, there’s one spirit. I prefer to call it the Holy Spirit. I don’t think it matters if you call it God or Allah or Jesus or Fred or David or too early in the morning or whatever.
+ - I am someone who really does believe very strongly in the Holy Spirit. I feel I’m someone who, since I was a very, very small child, of being engaged in a very strong relationship with the Holy Spirit.
+ - There’s a difference between, you know, God loves unconditionally in my feeling and religion loves conditionally. Religion spends an awful lot of time dictating who God can love and can’t love.
+ - I think “God” is an off-putting word. I don’t think there’s a name for this. I think it’s a presence that is best for us, but unfortunately, it can’t intervene if we don’t ask it, and religion has us talking to the wall because the god that religion is selling isn’t the reality.
+ - I’m great at washing dishes and I’m great at cleaning the house and all that kind of stuff. I don’t like doing it, but I’m...
+ - When you live with the Devil you learn there’s a God very quickly.
+ - I have no shame around the fact that I can be shot into suicidal feelings by certain people’s treatment of me. I am no different to any other person, I therefore act as I believe any other person should be free to.
+ - God is something that needs rescuing from religion.
+ - There’s a weighing kind of overemphasis on sexuality, which disempowers music generally, because it silences all the other voices; it makes music a very powerless force for changing the world.
+ - God needs to get rescued from religious music.
+ - I don’t do anything in order to cause trouble. It just so happens that what I do naturally causes trouble. I’m proud to be a troublemaker.
+ - Protection of children from violence and abuse has always been my main activity or campaign.
+ - As a parent, I don’t really want my child to know about all this horrible violence that people seem to be wanting to tell them every time they go to buy some candy.
+ - I have also Post Traumatic Stress Disorder, and I wouldn’t have survived that if not for music. So I think for me, music was a soothing thing and it was also a place where you could say all the stuff that you couldn’t say anywhere else.
+ - We have a tradition of passing our history orally and singing a lot of it and writing songs about it and there’s kind of a calling in Irish voices when they’re singing in their Irish accent.
+ - Until everyone in this country over 35 has passed away, the theocracy will still be alive. And I am not actually of the theocracy, and that could bother people. I think I’ve probably taken a bit of flak for that, as well as being an arsehole occasionally, obviously.
+ - Every pore of you is crying and you don’t even understand why or what. I actually kind of died and got born again as a result of taking the meds and having a chance to, you know, build a life.
+ - I suppose the danger when you have a job that involves writing is you can be a bit isolated.
+ - Songs are like ropes that you can kind of hang on to or pull yourself up on.
+ - My story is the story of countless millions of children whose families and nations were torn apart for money in the name of Jesus Christ.
+ - I’m a great cleaner. I’m actually kind of addicted to cleaning. I could clean anything.
+ - All of my life, actually, I had a real strong relationship with God, but I was always in the closet about it. The only distance out of the closet I really want to come there is having my tattoo or wearing my t-shirt.
+ - This is how you know religion is failing because people think you’re bonkers if you believe in God and also because it’s so uncool believing in Jesus and everything.
+ - What pisses me off is when I’ve got seven or eight record company fat pig men sitting there telling me what to wear.
+ - I know that I have done many things to give you reason not to listen to me.
+ - There’s a standard of songwriting that, when you start immersing yourself in those types of songs, it raises your own bar as a songwriter. There’s also simplicity in the songwriting. It’s much harder to be simple than it is to be complicated.
+ - It was the case in the 70s and 80s that people believed music could change the world. But now people aren’t making music because they want to change the world; they’re making music because they want to just make a ton of money.
+ - I don’t agree with this romantic fantasy that people who suffer from depression are more likely to be artists. I find that I am more creative when I am happy actually.
+ - They’re my positive chaos, my children.
+ - As long as the house of The Holy Spirit remains a haven for criminals the reputation of the church will remain in ruins.
+ - I guess there’s a song for absolutely everything that could possibly happen to a person.
+ - Nobody gets between me and my microphone.
+ - I think in the first place hearing the music inside of you is very soothing, very comforting. For me there always been, if you like, a spiritual connection between myself and music.
+ - I’m a Holy Spirit maniac, yeah. When I say maniac, to me, a maniac is a person that goes around telling you what you should believe. You know, you have to believe what I believe, and I don’t believe that.
+ - My kids really are my center. They create a beautiful chaos. It’s always a nice chaos with them.
+ - The important thing about “brave” is, it doesn’t mean you’re not terrified.
+ - I grew up in a situation of extreme abuse, but there was no chance to talk about it, so music became the escape if you like.
+ - If there was acceptance of the mentally ill in the Catholic Church, the entire Curia would resign!
+ - Irish artists have a tradition of being very heavily engaged in what is happening in their own society. So it was important that they had a voice.
+ - I understand that we are actually complicated people but we are also dreadfully simple.
+ - I think there’s a difference between God and religion.
+ - It’s very hard to be perceived as a boss, and behaving like a boss or wanting to be treated like one.
+ - If you were the boss of a company and some of the employees of your company were known to sexually abuse children, you would fire them instantly.
+ - I think a lot of artists go waving their Grammies around thanking God for their Grammy, but when it comes to a pitch battle in the street for the honor of God, none of them is anywhere to be found.
+ - People who express suicidal feelings are least likely to act on them.
+ - I feel that I was a useful contributor to society, and that I couldn’t be a contributor to society in any other way.
+ - The irony is that musical artists have enormous public voices, but behind the scenes we’re voiceless, actually.
+ - You can’t solve a spiritual problem with politics. You may as well as throw the Parliament to a drowning man.
+ - I really believe that God and religion is two different things.
+ - What I like about being a musician is that I find the thing soothing, but I also give the soothing to other people;.
+ - I think that music has been a great help to me and this has been confirmed by every psychiatrist I have seen. I would probably be dead if not for music.
+ - I could stand in the street and sing and get enough to pay the bills. I don’t need millions of dollars.
+ - There’s nothing in the recent past I want to write about.
+ - I think people think they’re not brave if they’re frightened, and that’s not true at all.
+ - I guess I’m a Holy Spirit maniac. I’m not a religious maniac. I love religion, but I don’t like it.
+ - If you really ever love someone, that doesn’t go away, although you wish it would.
+ - When I sing, it’s the most solitary state: just me, and the microphone, and the holy spirit. It’s not about notes or scales, it’s all about emotion.
+ - I’ve been married before, but I’ve never had my dream wedding in Vegas. I wanted to do it there because it’s casual, quick, not religious and, most of all, very romantic.
+ - I suppose is very cathartic to do a show to the masses and you get to make magic in a manner that you can’t do in regular life, but I suppose that self esteem effect is one of the most powerful.
+ - As far as I’m concerned, I’m now in the business of making spiritual records and using my voice for that purpose. I’m not going to be singing songs that I made in the past. I closed the door on that incarnation of Sinead O’Connor.
+ - I’m on fire when I’m singing, I’m completely in character, I use my sense memories, and every syllable of it is meant. It’s a very special thing.
+ - I think there’s a lot that’s beautiful about religion and very inspiring, obviously, but I do think that God needs to be rescued from religion actually.
+ - The music business is a place where the artists are all treated like we’re working for the people who are working for us. That can obviously be exaggerated when you’re a female.
+ - I always feel there is a link between music and spirituality.
+ - Biggest lesson I’ve ever had in life is that blues had a baby and they named it rock ‘n’ roll.
+ - I only feel better because people aren’t being so abusive to me about my weight.
+ - The sexuality is being sold to the artists as power when in fact it’s not; it’s a way of hypnotizing their audience.
+ - What I hope is to really focus on being a songwriter. I’d love to write songs for other people; that’s something I’d really like to start doing.
+ - I was getting a lot of pressure from people in show business about my being overweight because of medication, I was on 200 mg of amitriptiline. When I said this to my doctor, for some reason she took me completely off medication and she didn’t really supervise properly.
+ - People often talk about me as a singer, but they don’t often talk about you when you’re a woman as a songwriter.
+ - Unfortunately in my case, because of what I do for living, here in Ireland is very hard for me to find a doctor who can just deal with me as a person, that can get beyond Sinead O’Connor. I had to go to England to find a psychiatrist for my case.
+ - I listen to, like, funky Chicago blues. I love blues, but I love the funky, happy blues. There’s a song about pretty much everything, including kidney stones, believe it or not. So there’s something there for whatever you happen to be suffering, you know?
+ - I’ve been married three times, really I should only have been married once.
+ - My favorite way of working is if somebody gives me a piece of music, because I’m quite limited as a player, so it’s my favorite thing if somebody gives me a piece of music, and then I can write lyrics and melodies.
+ - At some point the entire population of the earth is gonna have to look back at the kind of essence of spirituality which is basically caring about each other.
+ - It’s so hard to retain what your purpose is – or to even realize what it is.
+ - I’m a very good dishwasher. I’m a terrible cook. I’m an awful cook.
+
+107 quotes

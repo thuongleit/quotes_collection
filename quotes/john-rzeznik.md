@@ -1,0 +1,29 @@
+ - I just want you to know who I am.
+ - People who have nothing to say, speak the loudest.
+ - I don’t like critics; I really don’t like them. I think most of them are ignorant and don’t have a clue!
+ - You grew up way too fast and now there’s nothing to believe; and re-runs all become our history.
+ - I work out. I try to work out every day. That keeps me in the moment, which is great. Keeps my head from thinking about the future and the past too much. I love working out. That really helps me a lot.
+ - It’s better to have a pocket full of regrets than to never have lived.
+ - Scars are souvenirs you never lose, the past is never far, did you lose yourself somewhere out there, did you get to be a star, and don’t it make you sad to know that life is more than who you are?
+ - With every decision you make in your life, you’re going to have some regrets about the way it goes. You just have to chose which set of regrets you can live with the best, and try to minimize the amount of regrets you have.
+ - The disparity between being a 10-year-old boy playing air guitar, wishing I was a rock star, and the reality of the whole thing is insane. A girl will throw her bra onstage, and I say to myself, if I was the guy that pumped your gas today, would you throw your bra at me?
+ - If you find yourself perplexed, or perhaps in a quandary, remember that human growth is perpendicular. We grow up and we grow forward, we just have to keep on growing steadily in both ways.
+ - When I was 18, there were 50 people that I called my friends. Today, there are only three, but I’m glad to have those three. If you have three people that you can really call your friends, then you truly have it made.
+ - The fear of rejection really kind of stunts your growth as a person. I mean, it’s like a friend of mine says, who cares if you fail? Who cares if you fail? It’s like babies try to get up and walk all the time and they keep falling down. If we just gave up, we’d all be crawling around.
+ - When I’m around people who are incredibly passionate about what they’re doing, people who live their lives in a more selfless way than most people. That’s when I’m inspired. That’s what I aspire to do and be.
+ - Whenever I get upset, I remember that it takes 42 muscles to frown and only 4 to stick up your middle finger.
+ - I’m a guy so I equate vulnerability with fear. What makes me fearful. I feel vulnerable when I release material, my work, to the world, and I have no control over the outcome. Those are very vulnerable moments. I’m getting married on Friday.
+ - I have to let myself be vulnerable in order to have a good marriage. That’s something I’m really going to have to work on. A lot of times I’m really guarded because of what I do for a living, what I’ve done in my life.
+ - If Life hands you a lemon, throw it at someone.
+ - I wasn’t good at sports and I needed a way to make girls like me.
+ - There are a lot of reasons to be hated in pop culture, and being a straight white male is one of them. In fact, I almost hate me.
+ - It’s such a thrill to perform live. You never know if you’re going to get hit with a bottle or a bra.
+ - It’s liberating to live at home during the week, but on the weekend it’s like, Jesus Christ, how much History Channel can one human being watch?
+ - I think the work is always personal. This album differs. It seems to be a lot more positive. It seems to have a certain amount of optimism about it.
+ - I’m a guy so I equate vulnerability with fear.
+ - Things just evolve. I sort of have no control over what happens with the songs. Sometimes I’m afraid I might wake up one morning with an entire record of polka songs.
+ - Punk’s not dead, it’s just at K-Mart.
+ - I don’t write music for critics or hipsters. I write for me.
+ - I think we got started like all bands. We wanted to make some noise, hang out, and have some fun. Remember, we’re from Buffalo – there isn’t really that much to do. When we started we were a cover band and slowly developed our own material.
+
+27 quotes

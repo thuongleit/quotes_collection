@@ -1,0 +1,42 @@
+ - The life of a designer is a life of fight. Fight against the ugliness. Just like a doctor fights against disease. For us, the visual disease is what we have around, and what we try to do is cure it somehow with design.
+ - If you do it right, it will last forever.
+ - Graphic Design is the communication of information in an appropriate visual manner.
+ - If you can design one thing, you can design everything.
+ - Styles come and go. Good design is a language, not a style.
+ - In design, be logical, search for truth, be clear.
+ - The repercussion of ugliness is endless.
+ - One life is too short for doing everything.
+ - The life of a designer is a life of fight: fight against the ugliness.
+ - There is no design without discipline. There is no discipline without intelligence.
+ - Design is not art. Design is utilitarian, art is not.
+ - Don’t be governed by the grid, govern the grid. A grid is like a lion cage – if the trainer stays too long it gets eaten up. You have to know when to leave the cage – you have to know when to leave the grid.
+ - You do design because you feel it inside; you have a moral issue to spread quality in our environment.
+ - It’s the space you put between the notes that make the music.
+ - Good design is a matter of discipline. It starts by looking at the problem and collecting all the available information about it. If you understand the problem, you have the solution. It’s really more about logic than imagination.
+ - You cannot play the piano by telling a pianist what to do, go a little more to the left or to the right. And the same is for the computer, really. You have to play yourself to get the most out of it.
+ - Good design is ubiquitous and forever.
+ - A designer without a sense of history is worth nothing.
+ - The pencil you leave it there, and it’s dead. It doesn’t do anything and it doesn’t move by itself. It doesn’t offer anything; it’s totally submissive to you.
+ - It is better to starve than get a bad client.
+ - Any color works if you push it to the extreme.
+ - I like it to be visually powerful, intellectually elegant, and above all, timeless.
+ - The computer is really like a pencil, you know. It used to be. The pencil can do anything you want to, but you have to do it, and the same is with the computer.
+ - Most of the manufacturers they tend to design things to sell they are more interested in the money side than anything else.
+ - A grid is like underwear, you wear it but it’s not to be exposed.
+ - The first thing you need to make clear to a client is that you aren’t there to answer his wants but to answer his needs.
+ - You can reach timelessness if you look for the essence of things and not the appearance. The appearance is transitory – the appearance is fashion, the appearance is trendiness – but the essence is timeless.
+ - Greed is really the religion of vulgarity.
+ - It’s not important to develop your own style but your own approach.
+ - I see graphic design as the organization of information that is semantically correct, syntactically consistent and pragmatically understandable.
+ - Scale is extremely important. Scale is not dimensions. Dimensions are physical and scales are mental.
+ - Designers take care of everything around us. Everything that is around us, this table, this chair, this lamp, this pen has been designed. All of these things, everything has been designed by somebody.
+ - I’m not a designer, I’m a sifter. I can sift everything, all the time. My sift level lines keep shaking all the time for everything that is around.
+ - There are people that thinks that type should be expressive. They have a different point of view from mine.
+ - In the new computer age, the proliferation of typefaces and type manipulations represents a new level of visual pollution threatening our culture. Out of thousands of typefaces, all we need are a few basic ones, and trash the rest.
+ - Design without discipline is anarchy, an exercise of irresponsibilit y.
+ - Middle management is a disease.
+ - The scale relates to everything. The thickness of a pipe, the thickness of a leg of the furniture. Even color could have a scale.
+ - The only way to stay in fashion is never be in. If you are never in fashion, you are never out of fashion.
+ - If you do the best thing everyday of your life, but nothing shakes you nor shakes the table for you and others, it is stale and its not worth it.
+
+40 quotes

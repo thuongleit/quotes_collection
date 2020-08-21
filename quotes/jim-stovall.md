@@ -1,0 +1,25 @@
+ - Education is a lifelong journey whose destination expands as you travel.
+ - When we help one another, everybody wins.
+ - He who loves his work never labors.
+ - Being successful is a choice and, therefore, being defeated is a decision.
+ - Love is a treasure for which we can never pay. The only way we keep it is to give it away.
+ - Laughter is good medicine for the soul. Our world is desperately in need of more medicine.
+ - You need to be aware of what others are doing, applaud their efforts, ackowledge their successes, and encourage them in their pursuits. When we all help one another, everybody wins.
+ - Some people are born into wonderful families. Others have to find or create them. Being a member of a family is a priceless membership that we pay nothing for but love.
+ - In the end, a person is only known by the impact he or she has on others.
+ - A journey may be long or short, but it must start at the very spot one finds oneself.
+ - Life at its essence boils down to one day at a time. Today is the day!
+ - Money is nothing more than a tool. It can be a force for good, a force for evil, or simply idle.
+ - Problems may only be avoided by exercising good judgment. Good judgment may only be gained by experiencing life’s problems.
+ - It is a wealthy person, indeed, who calculates riches not in gold but in friends.
+ - You don’t begin to live, until you’ve lost everything.
+ - Only when we try to understand one another’s suffering can we begin to bring each other joy.
+ - Faith is all that dreamers need to see into the future.
+ - In the end, life lived to its fullest is its own Ultimate Gift.
+ - The only way you can truly get more out of life for yourself is to give part of yourself away.
+ - Control what you can, acknowledge what you cannot.
+ - If we are not allowed to deal with small problems, we will be destroyed by slightly larger ones. When we come to understand this, we live our lives not avoiding problems, but welcoming them them as challenges that will strengthen us so that we can be victorious in the future.
+ - In those times we yearn to have more in our lives, we should dwell on the things we already have. In doing so, we will often find that our lives are already full to overflowing.
+ - Remember that a wish held fervently turns into belief, and a belief held diligently becomes reality.
+
+23 quotes

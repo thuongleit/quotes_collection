@@ -1,0 +1,75 @@
+ - I don’t think you’re happier if you’re thin or beautiful or rich or married. You have to make your own happiness. My heroines do not become beautiful elegant swans, they become confident ducks and get on with life.
+ - In Ireland every place you visit and every person you meet has a story. And they love to tell you their stories. Everyone is interested in everything; in a land of storytellers, you will never be bored.
+ - I am not a member of Fat Liberation, nor do I think that obesity is healthy. But I do believe that in many ways my life has been a more charmed and happy one because I was always large.
+ - Always write as if you are talking to someone. It works. Don’t put on any fancy phrases or accents or things you wouldn’t say in real life.
+ - Nobody is ordinary if you know where to look.
+ - Everybody is a hero in their own story if you just look.
+ - I’m an escapist kind of writer.
+ - Money doesn’t make you happy, but it gives a zone of comfort around you.
+ - The whole art of life is knowing the right time to say things.
+ - Success is not like a cake that needs to be divided. It’s more like a heap of stones – a cairn. If someone is successful, they add a stone to the cairn. It gets very high and can be seen from all over the world. That’s how I see it.
+ - The great thing about getting older is that you become more mellow. Things aren’t as black and white, and you become much more tolerant. You can see the good in things much more easily rather than getting enraged as you used to do when you were young.
+ - I don’t have ugly ducklings turning into swans in my stories. I have ugly ducklings turning into confident ducks.
+ - Women who start out as ugly ducklings don’t become beautiful swans. What they mainly become is confident ducks. They take charge of their lives.
+ - Happiness is in our own hearts. I have no regrets of anything in the past. I’m totally cheerful and happy, and I think that a lot of your attitude is not in the circumstances you find yourself in, but in the circumstances you make for yourself.
+ - I have been lucky enough to travel a lot, meet great people in many lands. I have liked almost everyone I met along the way.
+ - I think I’m brave because I’ve made decisions based – I hope not entirely selfishly – on what I think is right for me to do next.
+ - I didn’t get excited by weight loss, and since I was already happy being fat, I couldn’t see the point of it all. I’m 6 ft. and weigh about 18 st. or 19 st., but weighing myself is not something I do with much pleasure.
+ - Happiness is knowing and appreciating what you’ve got. I am very, very, very grateful for what, to me, is dead easy.
+ - I’m pleased to have outsold great writers. But I’m not insane – I realize I am a writer people buy to take on vacation.
+ - If you don’t go to a dance, you can never be rejected, but you’ll never get to dance, either.
+ - If I had my life to live all over again, I really think I would have been a fit person. Looking around me, I realise that the men and women who walked and ran and swam and played sport look better and feel better than the rest of us.
+ - I never wanted to write. I just wrote letters home from a kibbutz in Israel to reassure my parents that I was still alive and well fed and having a great time. They thought these letters were brilliant and sent them to a newspaper. So I became a writer by accident.
+ - We have to make our own happiness, and we have to make our own decisions and play the hand that is dealt to us.
+ - I have always believed that life is too short for rows and disagreements. Even if I think I’m right, I would prefer to apologize and remain friends rather than win and be an enemy.
+ - I have an irregular heartbeat, so that means a fair amount of medication – and I have blood pressure pills, too, but no vitamins or supplements.
+ - I remember watching myself on video and being so disappointed with myself because I was constantly moving around the place and laughing. I thought, ‘I must be so much louder than I think I am. From inside it feels fine.’
+ - My brother married young, and his is the best marriage I know.
+ - I’ve had a good life, full of more success and happiness than I ever expected.
+ - I was the big, bossy older sister, full of enthusiasms, mad fantasies, desperate urges to be famous, and anxious to be a saint – a settled sort of saint, not one who might have to suffer or die for her faith.
+ - I once got a huge, expensive flower arrangement from a person I didn’t like, who sent it out of pure guilt. It had a hideous bird-of-paradise in the middle, and I thought it would never fade and die. I hated it.
+ - I’m mainly an airport author, and if you’re trying to take your mind off the journey, you’re not going to read ‘King Lear.’
+ - I look placid, you see, that’s why people think I’m fine. Inside I worry a lot.
+ - She put her head down on the table and cried all the tears that she knew she should have cried in the past year and a half. But they weren’t ready then, they were now.
+ - I’ve been very lucky and I have a happy old age with good family and friends still around.
+ - I have great family and good friends; the stories I told became popular, and people all over the world bought them.
+ - Of course, I should have done what doctors said and walked for miles every day and not eaten great amounts of butter. But then, life is life, and if we all did what they said we should do, it would be a different world.
+ - I have no idea whether what I write will be of the remotest interest to anyone else. Some mornings when I read what I wrote the previous day I think it’s fairly entertaining; other times I think it’s pure rubbish. The main thing is not to take any notice, not to be elated or upset, just keep going.
+ - When my sister Joan arrived, I asked if I could swap her for a rabbit. When I think what a marvellous friend she’s been, I’m so glad my parents didn’t take me at my word.
+ - I think I was dealt a good hand. I have happy genes.
+ - I thought it must be desperate to be old. To wake up in the morning and remember that you were ancient – and so behave that way. I thought old people were full of aches and pains and horrible illnesses.
+ - On the first day of school, my father told me I’d be the most popular girl and everyone would love me and want to be my friend. It wasn’t so, but it gave me an enormous amount of confidence.
+ - I had a very happy childhood, which is unsuitable if you’re going to be an Irish writer.
+ - I’m particularly fond of boned chicken breasts with a little garlic under the flesh and cooked in a casserole for 40 minutes with a jar of olives, some cherry tomatoes and a spoonful of olive oil.
+ - An English journalist called Michael Viney told me when I was 25, that I would write well if I cared a lot what I was writing about. That worked. I went home that day and wrote about parents not understanding their children as well as we teachers did, and it was published the very next week.
+ - We are all the heroes and heroines of our own lives. Our love stories are amazingly romantic; our losses and betrayals and disappointments are gigantic in our own minds.
+ - My father went to work by train every day. It was half an hour’s journey each way, and he would read a paperback in four journeys. After supper, we all sat down to read – it was long before TV, remember!
+ - Never mind money; the gifts of time and skill call into being the richest marketplace in the world.
+ - My mother was a trained nurse, and she’d tell me that patients would fight as they were administered anaesthetic, grappling to get the gas mask off their face.
+ - I try to make my characters kind of ordinary, somebody that anybody could be. Because we’ve all had loves, perhaps love and loss, people can relate to my characters.
+ - I discovered that men were just like everyone else, really. They liked you if you were good-tempered and easy to talk to. And being a big girl meant other females trusted you more and confided in you.
+ - I do try to live every day as if it were my last, and it has worked for me so far.
+ - We’re nothing if we’re not loved. When you meet somebody who is more important to you than yourself, that has to be the most important thing.
+ - You say to yourself: ‘What could people, in all these countries, find in my books?’ and yet I think we’re all the same, anywhere. Everybody is a hero or a dramatic person in their own story if you just know where to look.
+ - The biggest influence on my books was the fact that I had worked in a newspaper for so long. In a daily paper, you learn to write very quickly; there is no time to sit and brood about what you are going to say.
+ - The most important thing to realize is that everyone is capable of telling a story.
+ - In my stories, whenever there’s somebody wonderful and charming and bright and intelligent, that’s me!
+ - I have been luckier than anyone I know or even heard of. I had a very happy childhood, a good education, I enjoyed working as a teacher, journalist and author. I have loved a wonderful man for over 33 years, and I believe he loves me, too.
+ - You can’t lay down laws for what people think and hope.
+ - I love thriller writers. My favourites are Harlan Coban, Lee Child, Ian Rankin, Kathy Reichs and Ed McBain.
+ - My memory of my home was that it was very happy, and that there was more fun and life there than there was anywhere else.
+ - I believed that old people never laughed. I thought they sighed a lot and groaned. They walked with sticks, and they didn’t like children on bicycles or roller skates or with big dogs.
+ - I couldn’t have children, so that’s the bad side. But compared to everything else I have, it’s not all that terribly bad. I count my winners rather than my losers.
+ - I’m getting better, happier, and nicer as I grow older, so I would be terrific in a couple of hundred years time.
+ - If you woke up each morning, and immediately dwelt on your ills, what sort of a day could you look forward to?
+ - I was lucky enough to be fairly quick at understanding what was taught, but unlucky enough not to be really interested in it, so I always got my exams but never had the scholar’s love of learning for its own sake.
+ - I’ve seen a lot of people buy my books and then fall asleep on the plane soon afterwards.
+ - When I was younger, I avoided exercise or anything strenuous. I didn’t even enjoy walking. As I got older, I spent so much time marking books or sitting at a desk writing that there was no room for exercise – not that I would have bothered anyway.
+ - All I ever wanted to do is to write stories that people will enjoy and feel at home with.
+ - I didn’t have a sweet tooth, but I liked butter, and I liked sauces, and I liked wine and curry and cheeses.
+ - After my hip operation, I had to cut out butter, which I loved, and salt. I no longer eat desserts with lots of cream, and I’ve cut right back on alcohol.
+ - I think you’ve got to play the hand that you’re dealt and stop wishing for another hand.
+ - I’m a great will maker. I’ve made my will every year since I was 21.
+ - Of course I wanted children. Bright, gorgeous, loving children. I could almost see them.
+
+73 quotes

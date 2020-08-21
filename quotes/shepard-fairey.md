@@ -1,0 +1,28 @@
+ - Creating is about sharing ideas, sharing aesthetics, sharing what you believe in with other people.
+ - The way I make art, the way a lot of people make art, is as an extension of language and communication, where references are incredibly important.
+ - I’ve never really considered myself just a street artist. I consider myself a populist.
+ - If you’re creating something that has some sort of cultural currency – if the idea is getting out there – then that will probably yield money in some form, whether it’s through selling art or selling books or being asked to give a lecture.
+ - Public art is ephemeral by nature. Google ’s new project not only catalogs an artist’s work but archives it and allows people to see the art long after it has disappeared.
+ - I think the freedom to express one’s views is more important than intellectual property.
+ - I’m mischievous. The idea of taking risks and having real-world consequences energizes me.
+ - I’ve never had an original thought in my lifeand there’s tons of people on the internet happy to tell me just that.
+ - There’s good and bad in every arena. It’s funny, some people, the reason they’re in the underground is because they’re lazy and don’t make things happen for themselves.
+ - Every spoof gives more power to the original.
+ - The problem with copyright enforcement is that when the parameters aren’t incredibly well defined, it means big corporations, who have deeper pockets and better lawyers, can bully people.
+ - As a street artist, I’m used to sharing my stuff with the public. It’s a communal experience. I’ve learned not to be so precious, but rather to enjoy the process.
+ - The world has lost a great musician who will always be an inspiration to me and those at OBEY GIANT.
+ - I think “punk” should really be defined as paving your own way creatively and by defying any sort of orthodoxy or commercial pressure.
+ - Art shows and the institutions end up being the couriers for culture for the next generation and are an important component as well. It may seem ironic from one perspective, but I think if you look at my overall strategy, it’s actually not out of step.
+ - Why is non-commercial public expression considered criminal?
+ - I love the classic trucker jacket as an icon of rock ‘n’ roll and rebellion.
+ - If being original means having to throw paint in front of a jet turbine to hit a canvas 50 ft away then lets not be original.
+ - If the idea that my safety can only be enhanced by putting other people’s privacy and safety in danger, then I don’t want to be more safe.
+ - A lot of people thought I got famous as a studio artist, then decided to cash in on it. But it actually was just a matter of survival for many years, and I felt it was really important for me to be able to say whatever I wanted with my street art and fine art.
+ - The Internet wasn’t even an option for me, so one of the reasons I was so motivated to do street art was because there was no other outlet. Maybe if the Internet had been around then, I would have tried to do stuff that went viral and was clever and got me a lot of hits.
+ - I think the biggest thing that people fear when it comes to art becoming a business is those authentic, pure aspirations of art being compromised.
+ - I think the Internet has definitely made it easier for people to have stuff seen, but it’s also encouraged a level of ADD, where you see so much that if it doesn’t make an impact on you immediately, you don’t look at it.
+ - I wear some of my stuff, but usually the less in-your-face designs. I get a little self conscious, there is a fine line between pride and ego.
+ - The great thing about the Internet is, it has made it easier for people who are clever and resourceful to promote themselves.
+ - Just because you’ve reached a certain level of success, that doesn’t mean you’ve become corrupted by the system.
+
+26 quotes

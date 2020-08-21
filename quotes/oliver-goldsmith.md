@@ -1,0 +1,289 @@
+ - You can preach a better sermon with your life than with your lips.
+ - Success consists of getting up just one more time than you fall.
+ - I love everything that is old; old friends, old times, old manners, old books, old wines.
+ - The loud laugh that spoke the vacant mind.
+ - Laws grind the poor, and rich men rule the law.
+ - Life is a journey that must be traveled no matter how bad the roads and accommodations.
+ - And still they gazed, and still the wonder grew, that one small head could carry all he knew.
+ - If we do not find happiness in the present moment, in what shall we find it?
+ - The first time I read an excellent book, it is to me just as if I had gained a new friend. When I read a book over I have perused before, it resembles the meeting with an old one.
+ - People seldom improve when they have no other model but themselves to copy.
+ - The more various our artificial necessities, the wider is our circle of pleasure; for all pleasure consists in obviating necessities as they rise; luxury, therefore, as it increases our wants, increases our capacity for happiness.
+ - The ambitious are forever followed by adulation for they receive the most pleasure from flattery.
+ - Logicians have but ill defined As rational the human mind; Reason, they say, belongs to man, But let them prove it if they can.
+ - He cast off his friends as a huntsman his pack, For he knew when he pleas’d he could whistle them back.
+ - Prudery is ignorance.
+ - To husband out life’s taper at the close, And keep the flames from wasting by repose.
+ - Age, that lessens the enjoyment of life, increases our desire of living.
+ - Wealth accumulates, and men decay.
+ - The mind is ever ingenious in making its own distress.
+ - The hawthorn bush, with seats beneath the shade, For talking age and whispering lovers made.
+ - The hours we pass with happy prospects in view are more pleasing than those crowded with fruition.
+ - In my time, the follies of the town crept slowly among us, but now they travel faster than a stagecoach.
+ - Pity and friendship are two passions incompatible with each other.
+ - If one wishes to become rich they must appear rich.
+ - Little things are great to little men.
+ - And fools who came to scoff remain’d to pray.
+ - To make a fine gentleman, several trades are required, but chiefly a barber.
+ - And what is friendship but a name, A charm that lulls to sleep, A shade that follows wealth or fame, And leaves the wretch to weep?
+ - Remote, unfriended, melancholy, slow, Or by the lazy Scheld or wandering Po.
+ - Silence is become his mother tongue.
+ - Ill fares the land, to hastening ills a prey, Where wealth accumulates, and men decay. Princes and lords may flourish or may fade,- A breath can make them, as a breath has made; But a bold peasantry, their country’s pride, When once destroy’d, can never be supplied.
+ - Turn, gentle Hermit of the Dale, And guide my lonely way To where yon taper cheers the vale With hospitable ray.
+ - A kind and gentle heart he had, To comfort friends and foes; The naked every day he clad When he put on his clothes.
+ - A man he was to all the country dear, And passing rich with forty pounds a year.
+ - And his best riches, ignorance of wealth.
+ - Every absurdity has a champion to defend it.
+ - As some tall cliff that lifts its awful form, Swells from the vale, and midway leaves the storm,- Though round its breast the rolling clouds are spread, Eternal sunshine settles on its head.
+ - Friendship is a disinterested commerce between equals; love, an abject intercourse between tyrants and slaves.
+ - Crime generally punishes itself.
+ - The volume of Nature is the book of knowledge.
+ - Fine declamation does not consist in flowery periods, delicate allusions of musical cadences, but in a plain, open, loose style, where the periods are long and obvious, where the same thought is often exhibited in several points of view.
+ - The very pink of perfection.
+ - Let schoolmasters puzzle their brain, With grammar, and nonsense, and learning, Good liquor, I stoutly maintain, Gives genius a better discerning.
+ - Pride in their port, defiance in their eye, I see the lords of humankind pass by.
+ - Elegy on the Death of a Mad Dog And in that town a dog was found, As many dogs there be, Both mongrel, puppy, whelp, and hound, And curs of low degree.
+ - Blest that abode, where want and pain repair, And every stranger finds a ready chair.
+ - Hope is such a bait, it covers any hook.
+ - One man is born with a silver spoon in his mouth, and the other with a wooden ladle.
+ - A volcano may be considered as a cannon of immense size.
+ - Careless their merits or their faults to scan, His pity gave ere charity began. Thus to relieve the wretched was his pride, And even his failings lean’d to Virtue’s side.
+ - They say women and music should never be dated.
+ - The watch-dog’s voice that bay’d the whispering wind, And the loud laugh that spoke the vacant mind.
+ - The ingratitude of the world can never deprive us of the conscious happiness of having acted with humanity ourselves.
+ - The greatest object in the universe, says a certain philosopher, is a good man struggling with adversity; yet there is still a greater, which is the good man who comes to relieve it.
+ - Teach erring man to spurn the rage of gain.
+ - All the bloomy flush of life is fled.
+ - Like the bee, we should make our industry our amusement.
+ - The genteel thing is the genteel thing any time, if as be that a gentleman bees in a concatenation accordingly.
+ - The nakedness of the indigent world may be clothed from the trimmings of the vain.
+ - Whatever mitigates the woes, or increases the happiness of others, is a just criterion of goodness; and whatever injures society at large, or any individual in it, is a criterion of iniquity.
+ - O Luxury! thou curst by Heaven’s decree!
+ - Were I to be angry at men being fools, I could here find ample room for declamation; but, alas! I have been a fool myself; and why should I be angry with them for being something so natural to every child of humanity?
+ - Tenderness is a virtue.
+ - Error is always talkative.
+ - Her modest looks the cottage might adorn, Sweet as the primrose peeps beneath the thorn.
+ - A traveler of taste will notice that the wise are polite all over the world, but the fool only at home.
+ - The man recovered of the bite, The dog it was that died.
+ - Creation’s heir, the world, the world is mine!
+ - The pictures placed for ornament and use, The twelve good rules, the royal game of goose.
+ - Sweet Auburn, loveliest village of the plain.
+ - A man who leaves home to mend himself and others is a philosopher; but he who goes from country to country, guided by the blind impulse of curiosity, is a vagabond.
+ - The sports of children satisfy the child.
+ - Don’t let us make imaginary evils, when you know we have so many real ones to encounter.
+ - Silence gives consent.
+ - Death when unmasked shows us a friendly face and is a terror only at a distance.
+ - To me more dear, congenial to my heart, One native charm, than all the gloss of art.
+ - Well had the boding tremblers learned to trace the day’s disasters in his morning face.
+ - But winter lingering chills the lap of May.
+ - Hope, like the gleaming taper.
+ - The company of fools may first make us smile, but in the end we always feel melancholy.
+ - Where wealth and freedom reign contentment fails, And honour sinks where commerce long prevails.
+ - A French woman is a perfect architect in dress: she never, with Gothic ignorance, mixes the orders; she never tricks out a snobby Doric shape with Corinthian finery; or, to speak without metaphor, she conforms to general fashion only when it happens not to be repugnant to private beauty.
+ - Those who think must govern those that toil.
+ - In arguing one should meet serious pleading with humor, and humor with serious pleading.
+ - Romance and novel paint beauty in colors more charming than nature, and describe a happiness that humans never taste. How deceptive and destructive are those pictures of consummate bliss!
+ - How wide the limits stand Between a splendid and a happy land.
+ - I do not love a man who is zealous for nothing.
+ - Honour sinks where commerce long prevails.
+ - To the last moment of his breath, On hope the wretch relies; And even the pang preceding death Bids expectation rise.
+ - You, that are going to be married, think things can never be done too fast: but we that are old, and know what we are about, must elope methodically, madam.
+ - He makes a very handsome corpse and becomes his coffin prodigiously.
+ - I hate the French because they are all slaves and wear wooden shoes.
+ - Life at the greatest and best is but a froward child, that must be humored and coaxed a little till it falls asleep, and then all the care is over.
+ - Thou source of all my bliss and all my woe, That found’st me poor at first, and keep’st me so.
+ - And the weak soul, within itself unbless’d, Leans for all pleasure on another’s breast.
+ - I always get the better when I argue alone.
+ - O friendship! thou fond soother of the human breast, to thee we fly in every calamity; to thee the wretched seek for succor; on thee the care-tired son of misery fondly relies; from thy kind assistance the unfortunate always hopes relief, and may be sure of – disappointment.
+ - When lovely woman stoops to folly, and finds too late that men betray, what charm can soothe her melancholy, what art can wash her guilt away?
+ - The heart of every man lies open to the shafts of correction if the archer can take proper aim.
+ - The little mind who loves itself, will wr’te and think with the vulgar; but the great mind will be bravely eccentric, and scorn the beaten road, from universal benevolence.
+ - Pity, though it may often relieve, is but, at best, a short-lived passion, and seldom affords distress more than transitory assistance; with some it scarce lasts from the first impulse till the hand can be put into the pocket.
+ - A mind too vigorous and active, serves only to consume the body to which it is joined.
+ - All that a husband or wife really wants is to be pitied a little, praised a little, and appreciated a little.
+ - Trade’s proud empire hastes to swift decay.
+ - Aspiring beggary is wretchedness itself.
+ - A man’s own heart must ever be given to gain that of another.
+ - The English laws punish vice; the Chinese laws do more, they reward virtue.
+ - True genius walks along a line, and, perhaps, our greatest pleasure is in seeing it so often near falling, without being ever actually down.
+ - Titles and mottoes to books are like escutcheons and dignities in the hands of a king. The wise sometimes condescend to accept of them; but none but a fool would imagine them of any real importance. We ought to depend upon intrinsic merit, and not the slender helps of the title.
+ - We had no revolutions to fear, nor fatigues to undergo; all our adventures were by the fireside, and all our migrations from the blue bed to the brown.
+ - Friendship is made up of esteem and pleasure; pity is composed of sorrow and contempt: the mind may for some time fluctuate between them, but it can never entertain both at once.
+ - It is not easy to recover an art when once lost.
+ - As for murmurs, mother, we grumble a little now and then, to be sure; but there’s no love lost between us.
+ - Who mix’d reason with pleasure, and wisdom with mirth: If he had any faults, he has left us in doubt.
+ - This same philosophy is a good horse in the stable, but an arrant jade on a journey.
+ - The true use of speech is not so much to express our wants as to conceal them.
+ - As ten millions of circles can never make a square, so the united voice of myriads cannot lend the smallest foundation to falsehood.
+ - Conscience is a coward, and those faults it has not strength enough to prevent it seldom has justice enough to accuse.
+ - Of praise a mere glutton, he swallow’d what came, And the puff a dunce, he mistook it for fame; Till his relish grown callous, almost to displease, Who pepper’d the highest was surest to please.
+ - I chose my wife, as she did her wedding gown, for qualities that would wear well.
+ - A silent address is the genuine eloquence of sincerity.
+ - One writer, for instance, excels at a plan or a title page, another works away at the body of the book, and a third is a dab at an index.
+ - If frugality were established in the state, and if our expenses were laid out to meet needs rather than superfluities of life, there might be fewer wants, and even fewer pleasures, but infinitely more happiness.
+ - The bashful virgin’s sidelong looks of love.
+ - Good people all, with one accord, Lament for Madam Blaize, Who never wanted a good word From those who spoke her praise.
+ - With disadvantages enough to bring him to humility, a Scotsman is one of the proudest things alive.
+ - To what fortuitous occurrence do we not owe every pleasure and convenience of our lives.
+ - What is genius or courage without a heart?
+ - There is unspeakable pleasure attending the life of a voluntary student.
+ - Our Garrick ’s a salad; for in him we see Oil, vinegar, sugar, and saltness agree!
+ - We are all sure of two things, at least; we shall suffer and we shall all die.
+ - Fortune is ever seen accompanying industry.
+ - Good counsel rejected returns to enrich the givers bosom.
+ - Absence, like death, sets a seal on the image of those we love: we cannot realize the intervening changes which time may have effected.
+ - Why was this heart of mine formed with so much sensibility! Or why not my fortune adapted to its impulses! Tenderness without a capacity of relieving only makes the man who feels it more wretched than the object which sues for assistance.
+ - And learn the luxury of doing good.
+ - By every remove I only drag a greater length of chain.
+ - To aim at excellence, our reputation, and friends, and all must be ventured; to aim at the average we run no risk and provide little service.
+ - Thus ’tis with all; their chief and constant care Is to seem everything but what they are.
+ - As few subjects are more interesting to society, so few have been more frequently written upon than the education of youth.
+ - A great source of calamity lies in regret and anticipation; therefore a person is wise who thinks of the present alone, regardless of the past or future.
+ - Fear guides more to their duty than gratitude; for one man who is virtuous from the love of virtue, from the obligation he thinks he lies under to the Giver of all, there are ten thousand who are good only from their apprehension of punishment.
+ - That virtue which requires to be ever guarded is scarce worth the sentinel.
+ - Here let me sit in sorrow for mankind.
+ - Though very poor, may still be very blest.
+ - Religion does what philosophy could never do; it shows the equal dealings of Heaven to the happy and the unhappy, and levels all human enjoyments to nearly the same standard. It gives to both rich and poor the same happiness hereafter, and equal hopes to aspire after it.
+ - Man wants but little here below, Nor wants that little long.
+ - Elegy of the Death of a Mad Dog The dog, to gain some praivate ends, Went mad and bit the man.
+ - Amid thy desert-walks the lapwing flies, And tires their echoes with unvaried cries.
+ - Fancy restrained may be compared to a fountain, which plays highest by diminishing the aperture.
+ - In all the silent manliness of grief.
+ - I have known a German Prince with more titles than subjects, and a Spanish nobleman with more names than shirts.
+ - Even children follow’d with endearing wile, And pluck’d his gown, to share the good man’s smile.
+ - Some fleeting good, that mocks me with the view.
+ - Wept o’er his wounds, or tales of sorrow done, Shoulder’d his crutch, and shew’d how fields were won.
+ - Villainy, when detected, never gives up, but boldly adds impudence to imposture.
+ - The person whose clothes are extremely fine I am too apt to consider as not being possessed of any superiority of fortune, but resembling those Indians who are found to wear all the gold they have in the world in a bob at the nose.
+ - Blame where you must, be candid where you can, And be each critic the Good-natured Man.
+ - Unequal combinations are always disadvantageous to the weaker side.
+ - We sometimes had those little rubs which Providence sends to enhance the value of its favors.
+ - If you don’t ask me questions, I can’t give you an untrue answer.
+ - Modesty seldom resides in a breast that is not enriched with nobler virtues.
+ - The youth who follows his appetites too soon seizes the cup, before it has received its best ingredients, and by anticipating his pleasures, robs the remaining parts of life of their share, so that his eagerness only produces manhood of imbecility and an age of pain.
+ - And e’en while fashion’s brightest arts decoy, The heart distrusting asks if this be joy.
+ - I was ever of the opinion, that the honest man who married and brought up a large family, did more service than he who continued single, and only talked of population.
+ - Measures, not men, have always been my mark.
+ - Books are necessary to correct the vices of the polite; but those vices are ever changing, and the antidote should be changed accordingly should still be new.
+ - The life of a scholar seldom abounds with adventure.
+ - The polite of every country seem to have but one character. A gentleman of Sweden differs but little, except in trifles, from one of any other country. It is among the vulgar we are to find those distinctions which characterize a people.
+ - Girls like to be played with and rumpled a little too sometimes.
+ - Our pleasures are short, and can only charm at intervals; love is a method of protraction our greatest pleasure.
+ - The first blow is half the battle.
+ - No one but a fool would measure their satisfaction by what the world thinks of it.
+ - It seemed to me pretty plain, that they had more of love than matrimony in them.
+ - While selfishness joins hands with no one of the virtues, benevolence is allied to them all.
+ - What if in Scotland’s wilds we viel’d our head, Where tempests whistle round the sordid bed; Where the rug’s two-fold use we might display, By night a blanket, and a plaid by day.
+ - The wisdom of the ignorant somewhat resembles the instinct of animals; it is diffused in but a very narrow sphere, but within the circle it acts with vigor, uniformity, and success.
+ - To a philosopher no circumstance, however trifling, is too minute.
+ - He watched and wept and prayed and felt for all.
+ - There are some faults so nearly allied to excellence that we can scarce weed out the vice without eradicating the virtue.
+ - We seldom speak of the virtue which we have, but much oftener of that which we lack.
+ - There is a greatness in being generous, and there is only simple justice in satisfying creditors. Generosity is the part of the soul raised above the vulgar.
+ - The volumes of antiquity, like medals, may very well serve to amuse the curious, but the works of the moderns, like the current coin of a kingdom, are much better for immediate use.
+ - Blest be those feasts, with simple plenty crowned, Where all the ruddy family around Laugh at the jests or pranks that never fail Or sigh with pity at some mournful tale.
+ - They please, are pleas’d, they give to get esteem Till, seeming blest, they grow to what they seem.
+ - One should not quarrel with a dog without a reason sufficient to vindicate one through all the courts of morality.
+ - Politics resemble religion; attempting to divest either of ceremony is the most certain mode of bringing either into contempt.
+ - Want of prudence is too frequently the want of virtue.
+ - Nothing is so contemptible as that affectation of wisdom, which some display, by universal incredulity.
+ - Aromatic plants bestow no spicy fragrance while they grow; but crush’d or trodden to the ground, diffuse their balmy sweets around.
+ - A flattering painter, who made it his care To draw men as they ought to be, not as they are.
+ - And as a bird each fond endearment tries To tempt its new-fledg’d offspring to the skies, He tried each art, reprov’d each dull delay, Allur’d to brighter worlds, and led the way.
+ - The fortunate circumstances of our lives are generally found, at last, to be of our own producing.
+ - An emperor in his nightcap will not meet with half the respect of an emperor with a crown.
+ - In proportion as society refines, new books must ever become more necessary.
+ - The soul may be compared to a field of battle, where the armies are ready every moment to encounter. Not a single vice but has a more powerful opponent, and not one virtue but may be overborne by a combination of vices.
+ - Who pepper’d the highest was surest to please.
+ - I fancy the character of a poet is in every country the same, – fond of enjoying the present, careless of the future; his conversation that of a man of sense, his actions those of a fool.
+ - Surely the best way to meet the enemy is head on in the field and not wait till they plunder our very homes.
+ - Take a dollar from a thousand and it will be a thousand no more.
+ - They liked the book better the more it made them cry.
+ - Of all kinds of ambition, that which pursues poetical fame is the wildest.
+ - A night-cap deck’d his brows instead of bay,- A cap by night, a stocking all the day.
+ - Life has been compared to a race, but the allusion improves by observing, that the most swift are usually the least manageable and the most likely to stray from the course. Great abilities have always been less serviceable to the possessors than moderate ones.
+ - Is it that Nature, attentive to the preservation of mankind, increases our wishes to live, while she lessens our enjoyments, and as she robs the senses of every pleasure, equips imag-ination in the spoil?
+ - The way to acquire lasting esteem is not by the fewness of a writer’s faults, but the greatness of his beauties, and our noblest works are generally most replete with both.
+ - Whichever way we look the prospect is disagreeable. Behind, we have left pleasures we shall never enjoy, and therefore regret; and before, we see pleasures which we languish to possess, and are consequently uneasy till we possess them.
+ - Wisdom makes a slow defense against trouble, though a sure one in the end.
+ - In a polite age almost every person becomes a reader, and receives more instruction from the Press than the Pulpit.
+ - Wit generally succeeds more from being happily addressed than from its native poignancy. A jest, calculated to spread at a gaming-table, may be received with, perfect indifference should it happen to drop in a mackerel-boat.
+ - It world be well had we more misers than we have among us.
+ - All the sciences are, in some measure, linked with each other, and before the one is ended, the other begins.
+ - Be not affronted at a joke. If one throw salt at thee, thou wilt receive no harm, unless thou art raw.
+ - The premises being thus settled, I proceed to observe that the concatenation of self-existence, proceeding in a reciprocal duplicate ratio, naturally produces a problematical dialogism, which in some measure proves that the essence of spirituality may be referred to the second predicable.
+ - Persecution is a tribute the great must always pay for preeminence.
+ - The folly of others is ever most ridiculous to those who are themselves most foolish.
+ - All that philosophy can teach is to be stubborn or sullen under misfortunes.
+ - Both wit and understanding are trifles without integrity.
+ - While Resignation gently slopes away, And all his prospects brightening to the last, His heaven commences ere the world be past.
+ - If the soul be happily disposed, every thing becomes capable of affording entertainment, and distress will almost want a name.
+ - I find you want me to furnish you with argument and intellects too. No, sir, these, I protest you, are too hard for me.
+ - To be poor, and to seem poor, is a certain method never to rise.
+ - All his faults are such that one loves him still the better for them.
+ - Could a man live by it, it were not unpleasant employment to be a poet.
+ - Our chief comforts often produce our greatest anxieties, and the increase in our possessions is but an inlet to new disquietudes.
+ - Such dainties to them, their health it might hurt; It ’s like sending them ruffles when wanting a shirt.
+ - Ridicule has always been the enemy of enthusiasm, and the only worthy opponent to ridicule is success.
+ - It has been remarked that almost every character which has excited either attention or pity has owed part of its success to merit, and part to a happy concurrence of circumstances in its favor. Had Caesar or Cromwell exchanged countries, the one might have been a sergeant and the other an exciseman.
+ - Whatever be the motives which induce men to write, – whether avarice or fame, – the country becomes more wise and happy in which they most serve for instructors.
+ - This is that eloquence the ancients represented as lightning, bearing down every opposer; this the power which has turned whole assemblies into astonishment, admiration and awe- – that is described by the torrent, the flame, and every other instance of irresistible impetuosity.
+ - Nobody with me at sea but myself.
+ - Them that asks no questions isn’t told a lie.
+ - Every want that stimulates the breast becomes a source of pleasure when redressed.
+ - As boys should be educated with temperance, so the first greatest lesson that should be taught them is to admire frugality. It is by the exercise of this virtue alone they can ever expect to be useful members of society.
+ - When we take a slight survey of the surface of our globe a thousand objects offer themselves which, though long known, yet still demand our curiosity.
+ - Here lies David Garrick, describe me who can, An abridgment of all that was pleasant in man.
+ - The bounds of a man’s knowledge are easily concealed, if he has but prudence.
+ - How blest is he who crowns in shades like these A youth of labour with an age of ease!
+ - Novels teach the youthful mind to sigh after happiness that never existed.
+ - Whatever the skill of any country may be in the sciences, it is from its excellence in polite learning alone that it must expect a character from posterity.
+ - Both wit and understanding are trifles without integrity. The ignorant peasant without fault is greater than the philosopher with many. What is genius or courage without a heart?
+ - The malicious sneer is improperly called laughter.
+ - It has been well observed that few are better qualified to give others advice than those who have taken the least of it themselves.
+ - There is nothing so absurd or ridiculous that has not at some time been said by some philosopher. Fontenelle says he would undertake to persuade the whole public of readers to believe that the sun was neither the cause of light or heat, if he could only get six philosophers on his side.
+ - Taste is the power of relishing or rejecting whatever is offered for the entertainment of the imagination.
+ - Every acknowledgment of gratitude is a circumstance of humiliation; and some are found to submit to frequent mortifications of this kind, proclaiming what obligations they owe, merely because they think it in some measure cancels the debt.
+ - The pregnant quarry teem’d with human form.
+ - As writers become more numerous, it is natural for readers to become more indolent; whence must necessarily arise a desire of attaining knowledge with the greatest possible ease.
+ - I can’t say whether we had more wit among us now than usual, but I am certain we had more laughing, which answered the end as well.
+ - So the loud torrent, and the whirlwind’s roar, But bind him to his native mountains more.
+ - The whitewash’d wall, the nicely sanded floor, The varnish’d clock that click’d behind the door; The chest, contriv’d a double debt to pay,- A bed by night, a chest of drawers by day.
+ - Ceremonies are different in every country, but true politeness is everywhere the same.
+ - Politeness is the result of good sense and good nature.
+ - Those who place their affections at first on trifles for amusement, will find these trifles become at last their most serious concerns.
+ - Like the tiger, that seldom desists from pursuing man after having once preyed upon human flesh, the reader who has once gratified his appetite with calumny makes ever after the most agreeable feast upon murdered reputations!
+ - She who makes her husband and her children happy, who reclaims the one from vice, and trains up the other to virtue, is a much greater character than the ladies described in romance, whose whole occupation is to murder mankind with shafts from their quiver or their eyes.
+ - Ill fares the land, to hastening ills a prey, Where wealth accumulates, and men decay.
+ - If you were to make little fishes talk, they would talk like whales.
+ - There is nothing so absurd or ridiculous that has not at some time been said by some philosopher.
+ - Embosom’d in the deep where Holland lies. Methinks her patient sons before me stand, Where the broad ocean leans against the land.
+ - An Englishman fears contempt more than death.
+ - Mortifications are often more painful than real calamities.
+ - I have visited many countries, and have been in cities without number, yet never did I enter a town which could not produce ten or twelve little great men; all fancying themselves known to the rest of the world, and complimenting each other upon their extensive reputation.
+ - I learn several great truths; as that it is impossible to see into the ways of futurity, that punishment always attends the villain, that love is the fond soother of the human breast.
+ - A book may be very amusing with numerous errors, or it may be very dull without a single absurdity.
+ - Paltry affectation, strained allusions, and disgusting finery are easily attained by those who choose to wear them; they are but too frequently the badges of ignorance or of stupidity, whenever it would endeavor to please.
+ - The jests of the rich are ever successful.
+ - A boy will learn more true wisdom in a public school in a year than by a private education in five. It is not from masters, but from their equals, that youth learn a knowledge of the world.
+ - True generosity is a duty as indispensably necessary as those imposed upon us by the law. It is a rule imposed upon us by reason, which should be the sovereign law of a rational being.
+ - There are but few talents requisite to become a popular preacher; for the people are easily pleased if they perceive any endeavors in the orator to please them. The meanest qualifications will work this effect if the preacher sincerely sets about it.
+ - Write how you want, the critic shall show the world you could have written better.
+ - Whenever you see a gaming table be sure to know fortune is not there. Rather she is always in the company of industry.
+ - When a person has no need to borrow they find multitudes willing to lend.
+ - Man seems the only growth that dwindles here.
+ - Our bounty, like a drop of water, disappears, when diffus’d too widely.
+ - What real good does an addition to a fortune already sufficient procure? Not any. Could the great man, by having his fortune increased, increase also his appetites, then precedence might be attended with real amusement.
+ - There is probably no country so barbarous that would not disclose all it knew, if it received equivalent information; and I am apt to think that a person who was ready to give more knowledge than he received would be welcome wherever he came.
+ - Vain, very vain is my search to find; that happiness which only centers in the mind.
+ - True wisdom consists of tracing effects to their causes.
+ - People seek within a short span of life to satisfy a thousand desires, each of which is insatiable.
+ - I have found by experience that they who have spent all their lives in cities contract not only an effeminacy of habit, but of thinking.
+ - The work of eradicating crimes is not by making punishment familiar, but formidable.
+ - In two opposite opinions, if one be perfectly reasonable, the other can’t be perfectly right.
+ - For the first time, the best may err, art may persuade, and novelty spread out its charms. The first fault is the child of simplicity; but every other the offspring of guilt.
+ - Fear guides more than gratitude.
+ - As for disappointing them I should not so much mind; but I can’t abide to disappoint myself.
+ - In arguing too, the parson own’d his skill, For e’en though vanquish’d he could argue still; While words of learned length and thundering sound Amaz’d the gazing rustics rang’d around; And still they gaz’d, and still the wonder grew That one small head could carry all he knew.
+
+287 quotes

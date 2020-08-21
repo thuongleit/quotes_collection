@@ -1,0 +1,23 @@
+ - To young men contemplating a voyage I would say go.
+ - Remember, Lord, my ship is small and thy sea is so wide!
+ - I had already found that it was not good to be alone, and so I made companionship with what there was around me, sometimes with the universe and sometimes with my own insignificant self; but my books were always my friends, let fail all else.
+ - The days pass happily with me wherever my ship sails.
+ - But where, after all, would be the poetry of the sea were there no wild waves?
+ - As for myself, the wonderful sea charmed me from the first.
+ - On this day there was soon wind enough and to spare. The same might have been said of the sea. The Spray was in the midst of the turbulent Gulf Stream itself. She was jumping like a porpoise over the uneasy waves.
+ - My ship was also in better condition than when she sailed from Boston on her long voyage. She was still as sound as a nut, and as tight as the best ship afloat. She did not leak a drop – not one drop!
+ - Good work in the building of my vessel stood me always in good stead.
+ - Captain Fisher, the commander, with a party of young ladies from the city and gentlemen belonging to his ship, came one day to pay me a visit in the midst of a deluge of rain.
+ - Now, it it well known that one cannot step on a tack without saying something about it.
+ - I was born in the breezes, and I had studied the sea as perhaps few men have studied it, neglecting all else.
+ - They made a shrewd guess that I could give them some useful information, and they were the first to meet me. Some one said they came to arrest me, and – well, let it go at that.
+ - I once knew a writer who, after saying beautiful things about the sea, passed through a Pacific hurricane, and he became a changed man.
+ - And now, without having wearied my friends, I hope, with detailed scientific accounts, theories, or deductions, I will only say that I have endeavoured to tell just the story of the adventure itself.
+ - To know the laws that govern the winds, and to know that you know them, will give you an easy mind on your voyage round the world; otherwise you may tremble at the appearance of every cloud.
+ - If the Spray discovered no continents on her voyage, it may be that there were no more continents to be discovered. She did not seek new worlds, or sail to pow-wow about the dangers of the sea.
+ - To be taken into account were some years of schooling, where I studied with diligence Neptune’s laws, and these laws I tried to obey when I sailed overseas; it was worth the while.
+ - Nothing escapes the vigilance of the New South Wales police; their reputation is known the world over.
+ - Anyhow, a philosophical turn of thought now was not amiss, else one’s patience would have given out almost at the harbour entrance. The term of her probation was eight days.
+ - Was the crew well? Was I not? I had profited in many ways by the voyage. I had even gained flesh, and actually weighed a pound more than when I sailed from Boston.
+
+21 quotes

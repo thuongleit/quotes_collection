@@ -1,0 +1,132 @@
+ - Being defeated is often a temporary condition. Giving up is what makes it permanent.
+ - To acquire knowledge, one must study; but to acquire wisdom, one must observe.
+ - Success is achieved by developing our strengths, not by eliminating our weaknesses.
+ - Experts say you can’t concentrate on more than one task at a time.
+ - A good idea will keep you awake during the morning, but a great idea will keep you awake during the night.
+ - There’s plenty of intelligence in the world, but the courage to do things differently is in short supply.
+ - If your head tells you one thing, and your heart tells you another, before you do anything, you should first decide whether you have a better head or a better heart.
+ - An act of justice closes the book on a misdeed; an act of vengeance writes one of its own.
+ - Feeling is what you get for thinking the way you do.
+ - Although spoken English doesn’t obey the rules of written language, a person who doesn’t know the rules thoroughly is at a great disadvantage.
+ - Multi-tasking arises out of distraction itself.
+ - Avoid using cigarettes, alcohol, and drugs as alternatives to being an interesting person.
+ - Spending waiting moments doing crossword puzzles or reading a book you brought yourself.
+ - The squeaky wheel may get the most oil, but it’s also the first to be replaced.
+ - Be able to meet any deadline, even if your work is done less well than it would be if you had all the time you would have preferred.
+ - If you’re wondering if you’re dreaming, you’re dreaming.
+ - When our spelling is perfect, it’s invisible. But when it’s flawed, it prompts strong negative associations.
+ - You can’t be wise without being intelligent, but you certainly can be intelligent without being wise.
+ - The length of your education is less important than its breadth, and the length of your life is less important than its depth.
+ - Be sure to expose yourself to criticism: A fine polish requires an abrasive.
+ - Be able to analyze statistics, which can be used to support or undercut almost any argument.
+ - Success may be the ability to be happy with whatever we’re stuck with.
+ - Teens think listening to music helps them concentrate. It doesn’t. It relieves them of the boredom that concentration on homework induces.
+ - A 45-year old looks a lot like a 25-year old who’s been out all night. And feels just as good about having survived the experience.
+ - I would not encourage children or teens to multitask because we don’t know where those efforts may lead.
+ - Know the function of a fuse box and the appearance of a tripped circuit breaker.
+ - Profit is what we have left after we make a donation to a worthwhile cause.
+ - My thoughts are like waffles – the first few don’t look so good.
+ - Know what to do if you feel faint or dizzy, especially if you might fall and hit your head.
+ - Many people feel they must multi-task because everybody else is multitasking, but this is partly because they are all interrupting each other so much.
+ - If achieving your potential requires favorable judgment by others, you are much less likely to succeed.
+ - It is a lot easier to prove that you don’t love someone than it is to prove that you do, but one of the best ‘proofs’ I know is the desire to devote time to the person with no expectation of any sort of compensation, including gratitude, in return.
+ - Learn at least two classic ballroom dances, at least one of them Latin.
+ - Revenge feels right only to those directly involved. Justice feels right even to outsiders.
+ - Try square dancing-at least long enough to no longer feel silly and begin to have fun.
+ - Scientists and creationists are always at odds, of course.
+ - Be able to confide your innermost secrets to your mother and your innermost fears to your father.
+ - I believe a ‘talented’ person is one who has learned how to effectively cultivate and polish any of the many desirable capabilities with which most of us are born but few of us nurture.
+ - An error becomes a mistake when we refuse to admit it.
+ - Be able to decline a date so gracefully that the person isn’t embarrassed that he or she asked.
+ - Almost all of the finer things in life are free or nearly free. You don’t have to pay for the sky at night or snow in the morning or a kiss on the nose when you’re sick. Forgetting that may put you at the mercy of those who seek to profit by convincing you to want whatever it is they have to sell.
+ - Be able to live alone, even if you don’t want to and think you will never find it necessary.
+ - I believe that love – not imitation – is the sincerest form of flattery. Your imitator thinks that you can be duplicated; your lover knows you can’t.
+ - The only real meaning in life can be found in a good man. And maybe Paris. Preferably the two together.
+ - Loving behavior contributes to the group at the expense of the individual. Competition contributes to the survival of the individual at the expense of the group. In the garden of life, some people are more like flowers, and other people are more like weeds.
+ - Be in the habit of getting up bright and early on the weekends. Why waste such precious time in bed?
+ - A fool is someone whose pencil wears out before its eraser does.
+ - The lower our self-esteem, the more we’re attracted to our opposite, and the higher our self-esteem, the more we are attracted to another like ourselves.
+ - Have enough sense to know, ahead of time, when your skills will not extend to wallpapering.
+ - Email, instant messaging, and cell phones give us fabulous communication ability, but because we live and work in our own little worlds, that communication is totally disorganized.
+ - I’ve never found an interesting person with a foul mouth.
+ - Be able to set a table so that you feel like you’re dining, not just sitting and eating.
+ - Have you ever noticed that when you must struggle to hear something, you close your eyes?
+ - Skill is successfully walking a tightrope between the twin towers of New York’s World Trade Center. Intelligence is not trying.
+ - Ultimately, our future is like a mirror. Whenever we face it, it always reflects what we left behind.
+ - You’re who you think you are, even if you never admit it to yourself or to anyone else. You may be in the worst position to judge, but you’re in the best position to know.
+ - One cannot inherit a talent for the violin – there are no violins in nature. Instead, one must be motivated, able to benefit from practice, and persevering.
+ - Think of a hypothesis as a card. A theory is a house made of hypotheses.
+ - Be able to keep a secret or promise when you know in your heart that it is the right thing to do.
+ - Understand why casinos and racetracks stay in business – the gambler always loses over the long term.
+ - Be able to recognize the dangerous snakes, spiders, insects, and plants that live in your area of the country.
+ - At first, I only laughed at myself. Then I noticed that life itself is amusing. I’ve been in a generally good mood ever since.
+ - Be able to notice all the confusion between fact and opinion that appears in the news.
+ - The 40s are when you start trading your psychological problems for physical ones.
+ - Know how to treat frostbite until you can get indoors.
+ - No one would choose to be jerked randomly off task again and again until you have half a dozen things you’re trying to get done, all at the same time.
+ - Know the difference between principles based on right or wrong vs. principles based on personal gain, and consider the basis of your own principles.
+ - Be able to defend your arguments in a rational way. Otherwise, all you have is an opinion.
+ - Know how to behave at a buffet. Take a clean plate for a second helping.
+ - Be able to identify the most common breeds of dogs and cats on sight.
+ - Know why certain foods, such as truffles, are expensive. It’s not because they taste best.
+ - Know how weather, especially humidity, can affect the movement of doors and windows.
+ - Common sense comes from experience, and kids need to fail as well as succeed in order to learn it. It’s difficult to develop common sense when you spend a lot of time in your room where nothing much happens.
+ - Society needs people who can manage projects in addition to handling individual tasks.
+ - Know how to behave at a fine restaurant, which is a telltale measure of social maturity.
+ - While you’re writing, you can’t concentrate nearly as well on what the speaker is saying.
+ - Be able to go shopping for a bathing suit and not become depressed afterward.
+ - Be able to describe anything visual, such as a street scene, in words that convey your meaning.
+ - I believe that one becomes stronger emotionally by taking life less personally. If your employer criticizes your report, don’t take it personally. Instead, find out what’s needed and fix it. If your girlfriend laughs at your tie, don’t take it personally. Find another tie or find another girlfriend.
+ - Play more than one game at a time. This is a painless way to learn how to do many things at once.
+ - Be able to read blueprints, diagrams, floorplans, and other diagrams used in the construction process.
+ - Know how to travel from your town to a nearby town without a car, either by bus or by rail.
+ - Attention-deficit disorders seem to abound in modern society, and we don’t know the cause.
+ - Know how and how much to tip people who expect gratuities, even in the case of poor service.
+ - Know how to drive safely when it’s raining or when it’s snowing. The two conditions are different.
+ - Make a habit of canceling every subscription to anything you don’t have time to read.
+ - Be able to blow out a dinner candle without sending wax flying across the table.
+ - Know how your representatives stand on major national or state issues.
+ - Be able to recognize when you’re reading or hearing material biased to your own side.
+ - The chess player who develops the ability to play two dozen boards at a time will benefit from learning to compress his or her analysis into less time.
+ - Be able to cite three good qualities of every relative or acquaintance that you dislike.
+ - Be able to correctly pronounce the words you would like to speak and have excellent spoken grammar.
+ - Be able to recognize many of the major constellations and know the stories behind them.
+ - Know about the appeals process, especially in the case of the most serious crimes.
+ - Know what happens when an individual declares bankruptcy and how it affects his or her life.
+ - Know the official post office abbreviations for all 50 states without having to consult a list.
+ - Know which officials are voted into office and which are appointed, and by whom.
+ - Know how to effectively voice a complaint or make a claim at a retail store.
+ - Be able to draw an illustration as least well enough to get your point across to another person.
+ - A person who learns to juggle six balls will be more skilled than the person who never tries to juggle more than three.
+ - Stop asking for directions so much. Assuming that you’re in a safe environment, pay attention and figure things out for yourself. Have the nerve to take a wrong turn now and then. You’ll develop better working instincts and have more self-esteem too.
+ - If you never heard opportunity knock, maybe you’re never at home.
+ - A friend is someone who stays by your side all through the troubles he’s caused you.
+ - The difference between talking on your cell phone while driving and speaking with a passenger is huge. The person on the other end of the cell phone is chattering away, oblivious.
+ - Relatively few of us will find the time-or take it-to live an ever enlarging life.
+ - Know where to find the sunrise and sunset times and note how the sky looks at those times, at least once.
+ - Geometry is beautifully logical, and it teaches you how to think and prove that things are so, step by step by step. Proofs are excellent lessons in reasoning. Without logic and reasoning, you are dependent on jumping to conclusions or – worse – having empty opinions.
+ - Know the names of past and current artists who are most famous for playing their instruments.
+ - Be in the habit of experimenting with your clothing so that you don’t get stuck for life with a self-image developed over the course of high school.
+ - Be able to sneeze without sounding ridiculous. That means neither stifling yourself or spraying your immediate vicinity.
+ - Working in an office with an array of electronic devices is like trying to get something done at home with half a dozen small children around. The calls for attention are constant.
+ - People who work crossword puzzles know that if they stop making progress, they should put the puzzle down for a while.
+ - A good leader needs to stand behind his or her followers as often as he or she needs to stand in front of them.
+ - Evolution has long been the target of illogical arguments that use presumption.
+ - Just because you’re unemployed doesn’t mean you’re not doing anything useful. You are, for example, at least keeping your mother-in-law’s wit sharp.
+ - Be able to suffer wearing a necktie or slightly high heels for an entire evening without complaint or early removal.
+ - I love having ten times as much stuff to do as I can possibly find time to do. That way, I can pick the one-tenth that I want to do most. But if I only have enough to just occupy all my time, I’m stuck doing all of whatever stuff it happens to be.
+ - Know how to garnish food so that it is more appealing to the eye and even more flavorful than before.
+ - Be able to tell whether garments that look good on the hanger actually look good on you.
+ - Be able to hiccup silently, or at least without alerting neighbors to your situation. The first hiccup is an exception.
+ - Capital punishment is the source of many an argument, both good and bad.
+ - When you’re in a good mood, bring up the past. When you’re in a bad mood, stick to the present. And when you’re not feeling emotional at all, it’s time to talk about the future.
+ - Be able to back up a car for a considerable distance in a straight line and back out of a driveway.
+ - The freedom to be an individual is the essence of America.
+ - An ounce of sequins can be worth a pound of home cooking.
+ - One of the few articles of clothing that a man won’t try to remove from a woman is an apron.
+ - Everybody loves an accent. It you’ve been unlucky in love, consider pulling up stakes and moving to another country. Then you’ll be the one with a neat foreign accent.
+ - I believe that one can indeed work on two or more tasks at once, but in ways yet to be understood.
+ - The magnitude of an action may change not only the strength of its impact, but the direction. If you became a dentist, for example, you would certainly be an asset to our society. But what if everyone became a dentist? Who would bake the bread? Who would build the houses?
+ - What is the essence of America? Finding and maintaining that perfect, delicate balance between freedom ‘to’ and freedom ‘from.’
+
+130 quotes

@@ -1,0 +1,27 @@
+ - It doesn’t feel like you’re preaching, if you can say something in a joke.
+ - I won’t work on anyone’s else’s script. I won’t write for anyone else. I write my own stuff and make that when the time is right.
+ - I don’t feel I have to defend myself for being English or for being Irish, because, in a way, I don’t feel either. And, in another way, of course, I’m both.
+ - It isn’t about being or not being dead, it’s about what you leave behind.
+ - There have to be moments when you glimpse something decent, something life-affirming even in the most twisted character. That’s where the real art lies. See, I always suspect characters who are painted as lovely, decent human beings. I would always question where the darkness lies.
+ - Dublin people think they are the center of the world and the center of Ireland. And they don’t realize that people have to leave Ireland to get work, and they look down on people who do.
+ - I never feel like a smug or a smart-alec film director, and there are plenty of those around.
+ - I think if you’re writing a play, it should be its own end game; you’ll never get to do a good one unless you know it’s not a blueprint for a film; you’re not going to get the action right and the story right.
+ - When I’m happiest writing is just not knowing where it goes and just let the characters bring you there.
+ - All my work shares a kind of balance between black comedy and sad and despairing melancholy.
+ - It’s the periods and the commas that you have to forget about. The words never change, but the intonations change.
+ - Theatre was an art form that I didn’t really respect, and because I wanted to shake it up and do different things on stage, I was able to combine all the things I’d learnt through writing on my own.
+ - I think as a writer you never have to flee from fame because you’re not that visible in the first place, but, after the Broadway success of ‘Beauty Queen,’ people were coming up to me all the time, and I wasn’t really prepared for that level of attention.
+ - I don’t even subscribe to writer’s block being a truthful thing. I’ve had writer’s laziness quite often. But I think it’s all about sitting down and facing down the blank page and doing it, and I’ve always been ok at that.
+ - My plays are always pushing towards cinema anyway. They’re down and dirty, real and more fun.
+ - I hope there’s some kind of morality in all my work.
+ - I seldom feel comfortable in a theatre. I always feel like I own a cinema. I feel equally happy in an empty one as a full one. Probably happier in an empty one!
+ - The fact that ticket prices are way too expensive, and there’s only one bunch of people going to see Broadway shows, is something I’ve never liked.
+ - Though it may not seem like it, I never try to write about a place, per se; it’s always, first and last, about story. Story is everything. Story and a bit of attitude.
+ - It’s like two years straight out of your life doing a film. It’s very enjoyable, especially working with the guys, but I kind of like the idea of traveling and growing, and developing as a writer and as a filmmaker.
+ - I’d just like to thank everybody who was involved in the film, especially Brendan Gleeson and Ruaidhri Conroy. And Ruaidhri, I’m sorry that you couldn’t be here tonight, but I hope next time they let you into the country.
+ - I realize that I am never going to grow up.
+ - If you’ve got time to waste, you might as well waste it listening to people.
+ - When you’ve got good actors, they’re going to come up with good stuff, but you’re never quite sure how the dynamics are going to work between them.
+ - I pick and choose what I want to do at any given time, and what not to do, importantly. My agents, I won’t hear about any offers or options.
+
+25 quotes

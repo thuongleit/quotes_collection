@@ -1,0 +1,78 @@
+ - Health care is a right, not a privilege.
+ - What divides us pales in comparison to what unites us.
+ - Integrity is the lifeblood of democracy. Deceit is a poison in its veins.
+ - There is no morality in the mushroom cloud. The black rain of nuclear ashes will fall alike on the just and the unjust. And then it will be too late to wish that we had done the real work of this atomic age, which is to seek a world that is neither red nor dead.
+ - Have faith in yourself and in the future.
+ - For me, a few hours ago, this campaign came to an end. For all those whose cares have been our concern, the work goes on, the cause endures, the hope still lives, and the dream shall never die.
+ - Health care is not just another commodity. It is not a gift to be rationed based on the ability to pay. It is time to make universal health insurance a national priority, so that the basic right to health care can finally become a reality for every American.
+ - Violence is an admission that one’s ideas and goals cannot prevail on their own merits.
+ - I get up very early in the morning. I enjoy the quietness, the stillness, the rawness in the winter and fall. It’s a special time.
+ - My brother need not be idealized or enlarged in death beyond what he was in life, to be remembered as a good and decent man, who saw wrong and tried to right it, saw suffering and tried to heal it, saw war and tried to stop it.
+ - Sometimes a party must sail against the wind. We cannot heed the call of those who say it is time to furl the sail. The party that tore itself apart over Vietnam in the 1960s cannot afford to tear itself apart today over budget cuts in basic social programs.
+ - If I can leave a single message with the younger generation, it is to lash yourself to the mast, like Ulysses if you must, to escape the siren calls of complacency and indifference.
+ - We need the breast and the brightest to- umm the best and the brightest...
+ - The Constitution does not just protect those whose views we share; it also protects those with whose views we disagree.
+ - I hate to see a young man get ahead on the basis of a famous family name.
+ - For all my years in public life, I have believed that America must sail toward the shores of liberty and justice for all. There is no end to that journey, only the next great voyage. We know the future will outlast all of us, but I believe that all of us will live on in the future we make.
+ - Don’t sacrifice your political convictions for the convenience of the hour.
+ - There was no imminent threat. This was made up in Texas, announced in January to the Republican leadership that war was going to take place and was going to be good politically. This whole thing was a fraud.
+ - Do we operate under a system of equal justice under law? Or is there one system for the average citizen and another for the high and mighty?
+ - There is no safety in hiding. Like my brothers before me, I pick up a fallen standard. Sustained by the memory of our priceless years together, I shall try to carry forward that special commitment to justice, excellence and courage that distinguished their lives.
+ - I think a child calling for his mother is the most beautiful sound in the world.
+ - We know the future will outlast all of us, but I believe that all of us will live on in the future we made.
+ - As we have seen from Justice Sandra Day O’Connor’s example, even one justice can profoundly alter the meaning of those words for our citizens. Even one justice can deeply affect the rights and liberties of the American people.
+ - Will a nominee embrace and uphold the essential meaning of the four words inscribed above the entrance of the Supreme Court building: Equal justice under law?
+ - Justice Lewis Powell spoke for all of us when he said: Equal justice under law is perhaps the most inspiring idea of our society. It is one of the ends for which our entire legal system exists.
+ - She’s a wonderful, wonderful person, and we’re looking to a happy and wonderful night – ah, life.
+ - The core values of our constitution are at the heart of our nation’s progress.
+ - Never listen to a phone call that isn’t meant for you. Never read a letter that isn’t meant for you. Never pay attention to a comment that isn’t meant for you. Never violate people’s privacy. You will save yourself a lot of anguish.
+ - I have fallen short in my life, but my faith has always brought me home.
+ - Frankly, I don’t mind not being President. I just mind that someone else is.
+ - We were taught never to give up, never to passively accept fate, but to exhaust every last ounce of will and hope in the face of any challenge.
+ - I hope for an America where we can all contend freely and vigorously, but where we will treasure and guard those standards of civility which alone make this nation safe for both democracy and diversity.
+ - Under the Bush administration, openness and accountability have been replaced by secrecy and evasion of responsibility. They abuse their power, conceal their actions from the American people, and refuse to hold officials accountable.
+ - There is no doubt that Saddam Hussein’s regime is a serious danger, that he is a tyrant, and that his pursuit of lethal weapons of mass destruction cannot be tolerated. He must be disarmed.
+ - I hope for an America where the power of faith will always burn brightly, but where no modern inquisition of any kind will ever light the fires of fear, coercion, or angry division.
+ - The great adventures which our opponents offer is a voyage into the past. Progress is our heritage, not theirs. What is right for us as Democrats is also the right way for Democrats to win.
+ - What we have in the United States is not so much a health-care system as a disease-care system.
+ - The more our feelings diverge, the more deeply felt they are, the greater is our obligation to grant the sincerity and essential decency of our fellow citizens on the other side.
+ - Separation of church and state cannot mean an absolute separation between moral principles and political power.
+ - No one who works for a living should live in poverty.
+ - Supreme Court nominations are an occasion to pause and reflect on the values that make our nation strong, just and fair. And we must determine whether a nominee has a demonstrated commitment to those basic values.
+ - The Supreme Court must serve as an independent check on abuses by the executive branch and the protector of our liberties, not a cheerleader for an imperial presidency.
+ - If you persevere, stick with it, wok at it, you have a real opportunity to achieve. If you do your best and keep a true compass, you’ll get there.
+ - Individual faults and frailties are no excuse to give in – and no exemption from the common obligation to give of ourselves.
+ - It’s disgraceful that year after year, Congress has bowed to the tobacco lobby and refused to act.
+ - I favor access to discrimination on the basis of sexual orientation.
+ - Keep your tax-cutting, greedy hands off our medicare.
+ - Ultimately, the courts will make the final judgment whether the White House has gone too far. Independent and impartial judges must assess the proper balance between protecting our liberties and protecting our national security.
+ - The tax system is stacked against the average taxpayer.
+ - I applaud the fact that the president has reached out to the members of Judiciary Committee. And I applaud. the fact that he has been meeting with members of the Judiciary Committee. He’s been seeking out Republicans as well as Democrats.
+ - I hope for an America where neither “fundamentalist” nor “humanist” will be a dirty word, but a fair description of the different ways in which people of good will look at life and into their own souls.
+ - The demand of our people in 1980 is not for smaller government or bigger government but for better government.
+ - I hope for an America where no president, no public official, no individual will ever be deemed a greater or lesser American because of religious doubt – or religious belief.
+ - We have to respect that any nominee to the Supreme Court would have to defer any comments on any matters, which are either before the court or very likely to be before the court.
+ - That is a pretty big deal from a commitment standpoint.
+ - Floating screw – that’s what people used to call me.
+ - A good marriage is loving someone in a lot of different circumstances. Respect for them and their views and ideas and the life that they’re leading with you. Shared values and interests. A good sense of humour. And a little volatility along the way.
+ - It appears that legal positions that you have supported have been used by the administration, the military, and the CIA to justify torture and Geneva Convention violations by military and civilian personnel.
+ - Dad, I’m in some trouble. There’s been an accident and you’re going to hear all sorts of things about me from now on. Terrible things.
+ - It’s better to send in the Peace Corps than the Marine Corps.
+ - Judges are appointed by and with the advice and consent of the Senate. And it is our duty to ask questions on great issues that matter to the American people and to speak for them.
+ - Make no mistake about it! There is an organized movement against organized labor and it’s called the Bush Administration.
+ - In fact, the legal system is in part responsible for their very size and growth. And too often when the individual finds himself in conflict with these forces, the legal system sides with the giant institution, not the small businessman or private citizen.
+ - We have known for many years that Saddam Hussein is seeking and developing weapons of mass destruction.
+ - Our struggle is not with some monarch named George who inherited the crown. Although it often seems that way.
+ - It’s now clear that from the very moment President Bush took office, Iraq was his highest priority as unfinished business from the first Bush Administration. His agenda was clear: find a rationale to get rid of Saddam.
+ - Immigration reforms are always controversial. Our Congress was created to muster political will to answer such challenges. Today we didn’t, but tomorrow we will. I yield the floor.
+ - The Republicans are looking after the financial interests of the wealthiest individuals in this country.
+ - Even one justice can advance or reverse the progress of our journey.
+ - I won’t yield to anyone about guns in our society. I know enough about it.
+ - Democrats may be in the minority in Congress, but we speak for the majority of Americans.
+ - The city of Hiroshima stands as more than a monument to massive death and destruction. It stands as a living testament to the necessity for progress toward nuclear disarmament.
+ - As Justice Sandra Day O’Connor stated, even a state of war is not a blank check for a president to do whatever he wants.
+ - Thus, the controversy about the Moral Majority arises not only from its views, but from its name – which, in the minds of many, seems to imply that only one set of public policies is moral and only one majority can possibly be right.
+ - I had the privilege of chairing Judge Samuel Alito confirmation hearing in 1990. And at that time, he had practiced law for 14 years, but only represented one client, the United States government.
+ - I don’t think you’re going to be a success in anything if you think about losing, whether it’s in sports or in politics.
+
+76 quotes

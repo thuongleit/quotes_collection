@@ -1,0 +1,182 @@
+ - The biggest guru-mantra is: never share your secrets with anybody. It will destroy you.
+ - Your feelings are your god.
+ - God is not present in idols. Your feelings are your god. The soul is your temple.
+ - As soon as the fear approaches near, attack and destroy it.
+ - Good behavior wins even an enemy.
+ - Till the enemy’s weakness is known, he should be kept on friendly terms.
+ - Education beats the beauty and the youth.
+ - Do not reveal what you have thought upon doing, but by wise council keep it secret being determined to carry it into execution.
+ - A man is great by deeds, not by birth.
+ - There is some self-interest behind every friendship. There is no friendship without self-interests. This is a bitter truth.
+ - He who gives up shyness in monetary dealings, in acquiring knowledge, in eating and in business, becomes happy.
+ - Before you start some work, always ask yourself three questions – Why am I doing it, What the results might be and Will I be successful. Only when you think deeply and find satisfactory answers to these questions, go ahead.
+ - Enemies strike at weak points.
+ - Even if a snake is not poisonous, it should pretend to be venomous.
+ - A person becomes great not by sitting on some high seat, but through higher qualities. A crow does not become an eagle by simply sitting on the top of a palatial building.
+ - Education is the best friend. An educated person is respected everywhere. Education beats the beauty and the youth.
+ - The one excellent thing that can be learned from a lion is that whatever a man intends doing should be done by him with a whole-hearted and strenuous effort.
+ - The fragrance of flowers spreads only in the direction of the wind. But the goodness of a person spreads in all direction.
+ - Books are as useful to a stupid person as a mirror is useful to a blind person.
+ - People’s Fury is above all the furies.
+ - Once you start a working on something, don’t be afraid of failure and don’t abandon it. People who work sincerely are the happiest.
+ - A person should not be too honest. Straight trees are cut first and honest people are screwed first.
+ - Time perfects men as well as destroys them.
+ - An egoist can be won over by being respected, a crazy person can be won over by allowing him to behave in an insane manner and a wise person can be won over by truth.
+ - A debt should be paid off till the last penny; An enemy should be destroyed without a trace.
+ - Never make friends with people who are above or below you in status. Such friendships will never give you any happiness.
+ - Avoid him who talks sweetly before you but tries to ruin you behind your back, for he is like a pitcher of poison with milk on top.
+ - Do not put your trust in a bad companion nor even trust an ordinary friend, for if he should get angry with you, he may bring all your secrets to light.
+ - The disgrace of one’s people brings sorrow to the Nobel minded.
+ - Knowledge is lost without putting it into practice; a man is lost due to ignorance; an army is lost without a commander; and a woman is lost without a husband.
+ - Let not a single day pass without your learning a verse, half a verse, or a fourth of it, or even one letter of it; nor without attending to charity, study and other pious activity.
+ - Skills are called hidden treasure as they save like a mother in a foreign country.
+ - In trans-border relations, there are no permanent friends or permanent enemies or even permanent borders. There are only permanent interests and everything should be done to secure these interests.
+ - Our bodies are perishable, wealth is not at all permanent and death is always nearby. Therefore we must immediately engage in acts of merit.
+ - A permanent relationship is dependent on particular purpose or wealth.
+ - Time perfects all living beings as well as kills them; it alone is awake when all others are asleep. Time is insurmountable.
+ - Rain which falls upon the sea is useless; so is food for one who is satiated; in vain is a gift for one who is wealthy; and a burning lamp during the daytime is useless.
+ - Poverty, disease, sorrow, imprisonment and other evils are the fruits borne by the tree of one’s own sins.
+ - He whose son is obedient to him, whose wife’s conduct is in accordance with his wishes, and who is content with his riches, has his heaven here on earth.
+ - The learned are envied by the foolish; rich men by the poor; chaste women by adulteresses; and beautiful ladies by ugly ones.
+ - If a king is energetic, his subjects will be equally energetic.
+ - He who loses his money is forsaken by his friends, his wife, his servants and his relations; yet when he regains his riches those who have forsaken him come back to him. Hence wealth is certainly the best of relations.
+ - There is no disease so destructive as lust.
+ - Water is the medicine for indigestion; it is invigorating when the food that is eaten is well digested; it is like nectar when drunk in the middle of a dinner; and it is like poison when taken at the end of a meal.
+ - Learning is like a cow of desire. It, like her, yields in all seasons. Like a mother, it feeds you on your journey. Therefore learning is a hidden treasure.
+ - O wise man! Give your wealth only to the worthy and never to others. The water of the sea received by the clouds is always sweet.
+ - Although an ass is tired, he continues to carry his burden; he is unmindful of cold and heat; and he is always contented; these three things should be learned from the ass.
+ - One whose knowledge is confined to books and whose wealth is in the possession of others, can use neither his knowledge nor wealth when the need for them arises.
+ - A father who is a chronic debtor, an adulterous mother, a beautiful wife, and an unlearned son are enemies in one’s own home.
+ - Beauty is spoiled by an immoral nature; noble birth by bad conduct; learning, without being perfected; and wealth by not being properly utilised.
+ - Those born blind cannot see; similarly blind are those in the grip of lust. Proud men have no perception of evil; and those bent on acquiring riches see no sin in their actions.
+ - This world is a bitter tree, it has only two sweet nectar like fruits – one is soft voice and the other is company of gentlemen.
+ - For the moon though one, dispels the darkness, which the stars, though numerous, do not.
+ - Many a bad habit is developed through overindulgence, and many a good one by chastisement; therefore, beat your son as well as your pupil; never indulge them.
+ - Knower of the means makes impossible tasks also possible.
+ - Religion is preserved by wealth; knowledge by diligent practice; a king by conciliatory words; and a home by a dutiful housewife.
+ - He who is overly attached to his family members experiences fear and sorrow, for the root of all grief is attachment. Thus one should discard attachment to be happy.
+ - As a whole forest becomes fragrant by the existence of a single tree with sweet-smelling blossoms in it, so a family becomes famous by the birth of a virtuous son.
+ - For the protection of state and welfare of the people, a ruler shold collect all types of wealth. By suing devices of sama, dama, danda, bheda, he shold increase income of the state, strong administration helps in collecting different type of taxes fro exchequer.
+ - A ruler wishing to win shold not trust a cpterued enemy even if he may be extending had to be friend. Because deep rooted enemity, however, concealed, will ruerely come to light.
+ - A good wife is one who serves her husband in the morning like a mother does, loves him in the day like a sister does and pleases him like a prostitute in the night.
+ - The earth is supported by the power of truth; it is the power of truth that makes the sun shine and the winds blow; indeed all things rest upon truth.
+ - Swans live wherever there is water, and leave the place where water dries up; let not a man act so – and comes and goes as he pleases.
+ - For good days one should save money, women should be protected even if it takes the money saved. But for self preservation the money and the women should be sacrificed!!
+ - Trees on a riverbank, a woman in another man’s house, and kings without counselors go without doubt to swift destruction.
+ - The forest fire burns even tree like sandalwood.
+ - He who has wealth has friends and relations; he alone survives and is respected as a man.
+ - All the creatures are pleased by loving words; and therefore we should address words that are pleasing to all, for there is no lack of sweet words.
+ - Brass is polished by ashes; copper is cleaned by tamarind; a woman, by her menses; and a river by its flow.
+ - Prosperity last long for one who acts after proper consideration.
+ - He who has wealth has friends.
+ - He who lives in our mind is near though he may actually be far away; but he who is not in our heart is far though he may really be nearby.
+ - There is no austerity equal to a balanced mind, and there is no happiness equal to contentment; there is no disease like covetousness, and no virtue like mercy.
+ - He who befriends a man whose conduct is vicious, whose vision impure, and who is notoriously crooked, is rapidly ruined.
+ - Lakshmi, the Goddess of wealth, comes of Her own accord where fools are not respected, grain is well stored up, and the husband and wife do not quarrel.
+ - A man or a ruler should always take up a task after thoroughly considering its consequences. Otherwise fate also cannot protect his wealth.
+ - When one is consumed by the sorrows of life, three things give him relief: offspring, a wife, and the company of the Lord’s devotees.
+ - Charity puts and end to poverty; righteous conduct to misery; discretion to ignorance; and scrutiny to fear.
+ - Accumulated wealth is saved by spending just as incoming fresh water is saved by letting out stagnant water.
+ - The wise man should restrain his senses like the crane and accomplish his purpose with due knowledge of his place, time and ability.
+ - One who is to be pardoned should not be harassed.
+ - The house of a childless person is a void, all directions are void to one who has no relatives, the heart of a fool is also void, but to a poverty stricken man all is void.
+ - If one has a good disposition, what other virtue is needed? If a man has fame, what is the value of other ornamentation?
+ - The fire of the forest burns trees to ashes. Even expensive sandalwood tree which is endowed with qualities of cooling and fragrance, cannot escape from burning. In the same way wicked cause harm to their benefactors also.
+ - Those base men who speak of the secret faults of others destroy themselves like serpents that stray onto anthills.
+ - Even as the unborn babe is in the womb of his mother, these five are fixed as his life destiny: his life span, his activities, his acquisition of wealth and knowledge, and his time of death.
+ - He who nurtures benevolence for all creatures within his heart overcomes all difficulties and will be the recipient of all types of riches at every step.
+ - The beauty of a cuckoo is in its notes, that of a woman in her unalloyed devotion to her husband, that of an ugly person in his scholarship, and that of an ascetic in his forgiveness.
+ - He who forsakes his own community and joins another perishes as the king who embraces an unrighteous path.
+ - As water collected in a tank gets pure by filtration, so accumulated wealth is preserved by being employed in charity.
+ - Generosity, pleasing address, courage and propriety of conduct are not acquired, but are inbred qualities.
+ - Punishment when awarded with due consideration, makes the people devoted to righteousness and to works productive of wealth and enjoyment.
+ - As long as your body is healthy and under control and death is distant, try to save your soul; when death is immanent what can you do?
+ - Everybody has same or the other weakness. This eis also a a general tendency to conceal theee weaknesses. For people may not harm for these, but they will surely ridicule or make fun of. Friendship, of course feigned should be retained with enemy till his weakness is known. Let him remain elated.
+ - Considersing the forebearance of a person, Do not harass him.
+ - The happiness and peace attained by those satisfied by the nectar of spiritual tranquillity is not attained by greedy persons restlessly moving here and there.
+ - Do not say, What what fear has a rich man of calamity.
+ - No amount of advice change his attitude. He does not listed to good advice. Rather he gets angry.
+ - He who shall practice these twenty virtues shall become invincible in all his undertakings.
+ - If the bees which seek the liquid oozing from the head of a lust-intoxicated elephant are driven away by the flapping of his ears, then the elephant has lost only the ornament of his head. The bees are quite happy in the lotus filled lake.
+ - Svanaja includes in itself the whole subject, officials and ministers. If there is something wrong in the conduct of these people, it would be damaging the state. An administrator should strictly deal with it.
+ - Don’t judge the future of a person based on his present conditions, becausetime has the power to change black coal to shiny diamond.
+ - Women have hunger two-fold, shyness four-fold, daring six-fold, and lust eight-fold as compared to men.
+ - Test a servant while in the discharge of his duty, a relative in difficulty, a friend in adversity, and a wife in misfortune.
+ - One who is in search of knowledge should give up the search of pleasure and the one who is in search of pleasure should give up the search of knowledge.
+ - Whoever imposes severe punishment becomes repulsive to the people; while he who awards mild punishment becomes contemptible. But whoever imposes punishment as deserved becomes respectable.
+ - A man is born alone and dies alone; and he experiences the good and bad consequences of his karma alone; and he goes alone to hell or the Supreme abode.
+ - The world’s biggest power is the youth and beauty of a woman.
+ - Those parents who do not educate their sons are their enemies; for as is a crane among swans, so are ignorant so are ignorant sons in a public assembly.
+ - The low minded are fond of deception the nature of low-minded people never changes.
+ - By means of hearing one understands dharma, malignity vanishes, knowledge is acquired, and liberation from material bondage is gained.
+ - The life of an uneducated man is as useless as the tail of a dog which neither covers its rear end, nor protects it from the bites of insects.
+ - Even a pandit comes to grief by giving instruction to a foolish disciple, by maintaining a wicked wife, and by excessive familiarity with the miserable.
+ - Virtuous persons and fruit-laden trees bow, but fools and dry sticks break because they do not bend.
+ - Do not keep company with a fool for as we can see he is a two-legged beast. Like an unseen thorn he pierces the heart with his sharp words.
+ - Everynbody tries not to reveal his weaknesses, so that he may not be ridiculed. Specially before the enemy. One’s weakpoits shold not be revealed. Becaues ohe canstrike on those to ruin us. So one shold remain strong before the enemy.
+ - A wise man should marry a virgin of a respectable family even if she is deformed. He should not marry one of a low-class family, through beauty. Marriage in a family of equal status is preferable.
+ - A wicked wife, a false friend, a saucy servant and living in a house with a serpent in it are nothing but death.
+ - The king shall lose no time when the opportunity waited for arrives.
+ - What good is a cow that neither gives milk nor conceives? Similarly, what is the value of the birth of a son if he becomes neither learned nor a pure devotee of the Lord?
+ - Foolishness is indeed painful, and verily so is youth, but more painful by far than either is being obliged in another person’s house.
+ - Evil person causes harm even if treated will.
+ - Constant travel brings old age upon a man; a horse becomes old by being constantly tied up; lack of sexual contact with her husband brings old age upon a woman; and garments become old through being left in the sun.
+ - The serpent, the king, the tiger, the stinging wasp, the small child, the dog owned by other people, and the fool: these seven ought not to be awakened from sleep.
+ - Purity of speech, of the mind, of the senses, and of a compassionate heart are needed by one who desires to rise to the divine platform.
+ - As a single withered tree, if set aflame, causes a whole forest to burn, so does a rascal son destroy a whole family.
+ - It is better to live under a tree in a jungle inhabited by tigers and elephants, to maintain oneself in such a place with ripe fruits and spring water, to lie down on grass and to wear the ragged barks of trees than to live amongst one’s relations when reduced to poverty.
+ - Wicked ones are like fire. Even if pu on hea, they burn only. They do not leave unhurt even their well – wishers and benefactors.
+ - We should not feel pride in our charity, austerity, valour, scriptural knowledge, modestyandmorality for the world is full of the rarest gems.
+ - Do not pass between two brahmanas, between a brahmana and his sacrificial fire, between a wife and her husband, a master and his servant, and a plough and an ox.
+ - A low-minded person should not be given good advice.
+ - We should not fret for what is past, nor should we be anxious about the future; men of discernment deal only with the present moment.
+ - Do not be very upright in your dealings for you would see by going to the forest that straight trees are cut down while crooked ones are left standing.
+ - The king shall singly deliberate over secret matters; for ministers have their own ministers, and these latter some of their own; this kind of successive line of ministers tends to the disclosure of counsels.
+ - Wealth, a friend, a wife, and a kingdom may be regained; but this body when lost may never be acquired again.
+ - It is better to die than to preserve this life by incurring disgrace. The loss of life causes but a moment’s grief, but disgrace brings grief every day of one’s life.
+ - How well u treat the wicked people, they do nto give up their wickedness. They derive pleasure in hurting others. A serpent made to drink milk, it ejects poison only.
+ - He who is prepared for the future and he who deals cleverly with any situation that may arise are both happy; but the fatalistic man who wholly depends on luck is ruined.
+ - My dear child, if you desire to be free from the cycle of birth and death, then abandon the objects of sense gratification as poison. Drink instead the nectar of forbearance, upright conduct, mercy, cleanliness and truth.
+ - Moral excellence is an ornament for personal beauty; righteous conduct, for high birth; success for learning; and proper spending for wealth.
+ - Treat your kid like a darling for the first five years. For the next five years, scold them. By the time they turn sixteen, treat them like a friend. Your grown up children are your best friends.
+ - That man who is without religion and mercy should be rejected. A guru without spiritual knowledge should be rejected. The wife with an offensive face should be given up, and so should relatives who are without affection.
+ - He shall despise none, but hear the opinions of all. A wise man shall make use of even a child’s sensible utterance.
+ - The Goddess of wealth is unsteady, and so is the life breath. The duration of life is uncertain, and the place of habitation is uncertain; but in all this inconsistent world religious merit alone is immovable.
+ - There is poison in the fang of the serpent, in the mouth of the fly and in the sting of a scorpion; but the wicked man is saturated with it.
+ - The foolish wish to speak out what was spoken in secret by the master.
+ - Fire, even if put on head, burns only.
+ - A still-born son os superior to a foolish son endowed with a long life. The first causes grief for but a moment while the latter like a blazing fire consumes his parents in grief for life.
+ - Save your wealth against future calamity. Do not say, “what fear has a rich man of calamity?” Wealth sometimes vanishes away and large accumulations perish.
+ - The poor wish for wealth; animals for the faculty of speech; men wish for heaven; and godly persons for liberation.
+ - A thing may be dreaded as long as it has not overtaken you.
+ - Task performed by an unintelligent person should not be rated high.
+ - The demerits of our own people bringh infamiy. Their disgrace is our own disgrace. That is why infamy os such people relly hurts. It is desifrable that the ruler or the administrator may work in a way that such disgraceful conduct may not occur.
+ - Even a captured enemy is not to be trusted.
+ - Sometimes coincidentally an unintelligent person can accomplish a task but that does not mean that he is a knower of means and device or is experienced. A ruler should be careful enough to designate other tasks to such persons.
+ - No one should ever be disrespected.
+ - Who realises all the happiness he desires? Everything is in the hands of God. Therefore one should learn contentment.
+ - Defect in one’s limb ruins a man.
+ - What good can the scriptures do to a man who has no sense of his own? Of what use is as mirror to a blind man?
+ - One destitute of wealth is not destitute, he is indeed rich, but the man devoid of learning is destitute in every way.
+ - He who wears unclean garments, has dirty teeth, is a glutton, speaks unkindly and sleeps after sunrise – although he may be the greatest personality – will lose the favour of Lakshmi.
+ - A wise man should not divulge the formula of a medicine which he has well prepared; an act of charity which he has performed; domestic conflicts; private affairs with his wife; poorly prepared food he may have been offered; or slang he may have heard.
+ - Offspring, friends and relatives flee from a devotee of the Lord: yet those who follow him bring merit to their families through their devotion.
+ - Eschew wicked company and associate with saintly persons. Acquire virtue day and night, and always meditate on that which is eternal forgetting that which is temporary.
+ - Sinfully acquired wealth may remain for ten years; in the eleventh year it disappears with even the original stock.
+ - All types of riches should be amassed by all means.
+ - Learning is a friend on the journey; a wife in the house; medicine in sickness; and religious merit is the only friend after death.
+ - It is better to be without a king than to have a bad one.
+ - If a king is energetic, his subjects will be equally energetic. If he is reckless, they will not only be reckless likewise, but also eat into his works.
+ - It is narual for enemy to attack on the weaker side of the adversary.
+ - The man who is praised by others is regarded as worthy though he may be really void of all merit. But the man who sings his own praises becomes disgraced though he should be Indra, the possessor of all excellencies.
+ - He who runs away from a fearful calamity, a foreign invasion, a terrible famine, and the companionship of wicked men is safe.
+ - Do not put your trust in rivers, men who carry weapons, beasts with claws or horns, women, and members of a royal family.
+ - Low minded people are fraudulent, wicked and chaeat. They shouldnot be trusted. To h ave faith in low minded ones is mistake in policy and useless because they are not trustworthy. An administrator should not invited calamity by trusting the low minded ones.
+ - A single son endowed with good qualities is far better than a hundred devoid of them.
+ - The man who remains a fool even in advanced age is really a fool, just as the Indra-Varuna fruit does not become sweet no matter how ripe it might become.
+ - Chankaya is referring there to the probibition of entry of the untrustworthy in the counsel-room. Disloyal persons foolishly speak out the secrets of the counsel not knowing the harmful effects of the same. Disclosing the secrets of the counsel mars the welfare of the country.
+ - If one limb of the body is defected or inflicted with, disease, the whole feels tha pai. Some way if any department, minister or official of the state is faulty, the whole country is effected. An administrator should try hard to curb it.
+ - The power of a king lies in his mighty arms; that of a brahmana in his spiritual knowledge; and that of a woman in her beauty youth and sweet words.
+ - A friend, even if he be the enemy’s son, should be protected.
+
+180 quotes

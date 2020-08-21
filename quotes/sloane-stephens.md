@@ -1,0 +1,21 @@
+ - I’ve heard that I’m ‘the future of tennis.’ But that’s all just random stuff.
+ - I don’t listen well at all. I don’t take direction well at all. I have to admit that is my main fault.
+ - When you have confidence, you can do anything.
+ - It’s always good to be recognized, you know, for sport. I think being up there with Venus and Serena, I think, that’s awesome. I’m excited. I’m happy that I am improving and getting better, and that I can be here.
+ - I’m obviously coming out of the Australian summer with amazing momentum, knowing I can pretty much hang in there with anybody and even beat some of the best players. So for me, it’s definitely a good feeling, I think.
+ - I want John Legend to sing at my wedding.
+ - I train Monday through Saturday. I usually have fitness training for 90 minutes, then I’m on the tennis court for 3 to 4 hours.
+ - Id rather be able to play great tennis at a slam than make eight finals of little tournaments and then lose first round of a slam. That doesnt sound too good.
+ - Fashion is very judgmental. It’s something where you have to be careful. I have a long way to go before I can be a designer. I’d love to one day, but we’ll see.
+ - I like to shop. That’s what I do. Online shopping; any kind of shopping.
+ - Good music just makes me happy and keeps me from getting distracted.
+ - I love to sing. Seriously, in my past life I was Miley Cyrus or something. I swear I’m a singer, but I know I’m not. If I could sing, I would be the happiest person on Earth.
+ - I watch the ball fiercely to see its height and speed off my opponent’s racket so I can decide how I want to hit it.
+ - I try to look cute all the time.
+ - Always staying focused is something that’s been very tough for me. I’m still working on it.
+ - You fight and fight. Get every ball back, run every ball down and never, ever doubt.
+ - The media has dubbed me as someone who can only get up for the big tournaments, and that is not who I want to be.
+ - I always have applesauce in my fridge, and when traveling I take protein bars just in case I get hungry. They’re my go-to snack.
+ - My favorite food is macaroni and cheese that my grandma makes. My favorite drink has to be Vita Coco coconut water.
+
+19 quotes

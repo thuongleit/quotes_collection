@@ -1,0 +1,115 @@
+ - I go to seek a Great Perhaps.
+ - Everything comes in time to those who can wait.
+ - Ignorance is the mother of all evils.
+ - Death is the vast perhaps.
+ - Wisdom entereth not into a malicious mind.
+ - Bring down the curtain, the farce is over.
+ - It is my feeling that Time ripens all things; with Time all things are revealed; Time is the father of truth.
+ - When I drink, I think; and when I think, I drink.
+ - The appetite grows with eating.
+ - If the skies fall, one may hope to catch larks.
+ - For God, nothing is impossible. And, if he wanted, in the future women would give birth from their ears.
+ - I’ve often heard it said, as the common proverb goes, that a fool can teach a wise man well.
+ - Science without conscience is the soul’s perdition.
+ - It is better to write of laughter than of tears, for laughter is the property of man.
+ - No noble man ever hated good wine.
+ - One falls to the ground in trying to sit on two stools.
+ - The right moment wears a full head of hair: when it has been missed, you can’t get it back; it’s bald in the back of the head and never turns around.
+ - We always long for the forbidden things, and desire what is denied us.
+ - One inch of joy surmounts of grief a span, Because to laugh is proper to the man.
+ - It’s a shame to be called “educated” those who do not study the ancient Greek writers.
+ - He that has patience may compass anything.
+ - If you wish to avoid seeing a fool, you must first break your mirror.
+ - Petite ville, grand renom. Small town, great renown.
+ - Bottle, whose Mysterious Deep Do’s ten thousand Secrets keep, With attentive Ear I wait; Ease my Mind, and speak my Fate.
+ - To good and true love, fear is forever affixed.
+ - The Devil was sick – the Devil a monk would be, The Devil was well the devil a monk was he.
+ - Let every one be fully convinced in his own mind.
+ - I’d rather write about laughing than crying, For laughter makes men human, and courageous.
+ - Tell the truth and shame the devil.
+ - All things have their ends and cycles. And when they have reached their highest point, they are in their lowest ruin, for they cannot last for long in such a state. Such is the end for those who cannot moderate their fortune and prosperity with reason and temperance.
+ - Because just as arms have no force outside if there is no counsel within a house, study is vain and counsel useless that is not put to virtuous effect when the time calls.
+ - Don’t limp in front of the lame.
+ - How do you know antiquity was foolish? How do you know the present is wise? Who made it foolish? Who made it wise?
+ - So much is a man worth as he esteems himself.
+ - Never did a great man hate good wine.
+ - From the gut comes the strut, and where hunger reigns, strength abstains.
+ - Frugality is for the vulgar.
+ - A certain jollity of mind, pickled in the scorn of fortune.
+ - I build only living stones – men.
+ - I owe much; I have nothing; the rest I leave to the poor.
+ - There are more old drunkards than old physicians.
+ - How shall I be able to rule over others, that have not full power and command of myself?
+ - If you understand why a monkey in a family is always mocked and harassed, you understand why monks are rejected by all – both old and young.
+ - I have known many who could not when they would, for they had not done it when they could.
+ - There is no truer cause of unhappiness amongst men than, where naturally expecting charity and benevolence, they receive harm and vexation.
+ - But where are the snows of last year? That was the greatest concern of Villon, the Parisian poet.
+ - If you say to me: “Master, it would seem that you weren’t too terribly wise to have written these bits of nonsense and pleasant mockeries,” I respond that you are hardly more so in finding amusement in reading them.
+ - Pantagruel was telling me that he believed the queen had given the symbolic word used among her subjects to denote sovereign good cheer, when she said to her tabachins, A panacea.
+ - When my soul leaves this human dwelling, I will not consider myself to have completely died, but to pass from one state to another, given that, in you and by you, I remain in my visible image in this world.
+ - Half the world does not know how the other half lives.
+ - I drink for the thirst to come.
+ - Not everyone is a debtor who wishes to be; not everyone who wishes makes creditors.
+ - I do not drink more than a sponge.
+ - Indeed, said the monk, a mass, a matins, and vespers well rung are half-said.
+ - Wait a second while I take a swig off this bottle: it’s my true and only Helicon, my Caballine fount, my sole Enthusiasm. Here, drinking, I deliberate, I reason, I resolve and conclude. After the epilogue I laugh, I write, I compose, I drink. Ennius drinking would write, writing would drink.
+ - I never sleep comfortably except when I am at sermon or when I pray to God.
+ - Early rising is no pleasure; early drinking’s just the measure.
+ - War begun without good provision of money beforehand for going through with it is but as a breathing of strength and blast that will quickly pass away. Coin is the sinews of war.
+ - Nature abhors a vacuum.
+ - Keep running after a dog and he will never bite you.
+ - Gestures, in love, are incomparably more attractive, effective and valuable than words.
+ - Between two stools one sits on the ground.
+ - Languages exist by arbitrary institutions and conventions among peoples; words, as the dialecticians tell us, do not signify naturally, but at our pleasure.
+ - When undertaking marriage, everyone must be the judge of his own thoughts, and take counsel from himself.
+ - Plain as a nose in a man’s face.
+ - The belly has no ears nor is it to be filled with fair words.
+ - We will take the good-will for the deed.
+ - The scent of wine, oh how much more agreeable, laughing, praying, celestial and delicious it is than that of oil!
+ - There is nothing holy nor sacred to those who have abandoned God and reason in order to follow their perverse desires.
+ - The most Christian France is the sole wet-nurse to the Roman court.
+ - I’d gladly do without a valet. I’m never so well treated as when I’m without a valet.
+ - The probity that scintillizes in the superfices of your persons informs my ratiocinating faculty, in a most stupendous manner, of the radiant virtues latent within the precious caskets and ventricles of your minds.
+ - I place no hope in my strength, nor in my works: but all my confidence is in God my protector, who never abandons those who have put all their hope and thought in him.
+ - I never drink without a thirst, either present or future.
+ - Machination is worth more than force.
+ - An old monkey never makes a pretty face.
+ - I drink eternally. For me it is an eternity of drinking, and a drinking up of eternity.
+ - Friends, you will notice that in this world there are many more ballocks than men. Remember this.
+ - A man of good sense always believes what he is told, and what he finds written down.
+ - In this mortal life, nothing is blessed throughout.
+ - A bellyful is a bellyful.
+ - How comes it that you curse, Frere Jean? It’s only, said the monk, in order to embellish my language. They are the colors of Ciceronian rhetoric.
+ - Time, which gnaws and diminisheth all things else, augments and increaseth benefits; because a noble action of liberality, done to a man of reason, doth grow continually by his generous thinking of it and remembering it.
+ - A war undertaken without sufficient monies has but a wisp of force. Coins are the very sinews of battles.
+ - If in your soil it takes, to heaven A thousand thousand thanks be given; And say with France, it goodly goes, Where the Pantagruelion grows.
+ - All’s well in the end, if you’ve only the patience to wait.
+ - Remove idleness from the world and soon the arts of Cupid would perish.
+ - If the head is lost, all that perishes is the individual; if the balls are lost, all of human nature perishes.
+ - Strike the iron whilst it is hot.
+ - How can I govern others, who can’t even govern myself?
+ - One should never pursue the hazards of fortune to their very ends andit behooves all adventurers to treat their good luck with reverence, neither bothering nor upsetting it.
+ - Can there be any greater dotage in the world than for one to guide and direct his courses by the sound of a bell, and not by his own judgment.
+ - A habit does not a monk make.
+ - A crier of green sauce.
+ - Ha! for a divine and lordly manor, there is nothing like solid ground.
+ - Such is the nature and make-up of the French that they are only good at the start. Then they are worse than devils, but, given time, they’re less than women.
+ - Pantagruelism is a certain gaitey of the spirit consisting in a disdain for the hazards of fortune.
+ - The Lord forbid that I should be out of debt, as if indeed I could not be trusted.
+ - Believe me, ’tis a godlike thing to lend; to owe is a heroic virtue.
+ - No clock is more regular than the belly.
+ - I know of a charm by way of a prayer that will preserve a man from the violence of guns and all manner of fire-weapons and engines but it will do me no good because I do not believe it.
+ - He who has not an adventure has not horse or mule, so says Solomon. – Who is too adventurous, said Echephron, – loses horse and mule.
+ - It is quite a common and vulgar thing among humans to understand, foresee, know and predict the troubles of others. But oh what a rare thing it is to predict, know, foresee and understand one’s own troubles.
+ - The remedy for thirst? It is the opposite of the one for a dog bite: run always after a dog, he’ll never bite you; drink always before thirst, and it will never overtake you.
+ - I won’t undertake war until I have tried all the arts and means of peace.
+ - It is said, proverbially, that happy is the doctor who is called in when the disease is on its way out.
+ - Hungry bellies have no cars.
+ - Thought I to myself, we shall never come off scot-free.
+ - To laugh is proper to man.
+ - Misery is the company of lawsuits.
+ - In their rules there was only one clause: Do what you will.
+ - It is folly to put the plough in front of the oxen.
+ - Debts and lies are generally mixed together.
+
+113 quotes

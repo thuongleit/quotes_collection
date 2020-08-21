@@ -1,0 +1,152 @@
+ - Chocolate says “I’m sorry” so much better than words.
+ - Whoever said it is better to have loved and lost than never to have loved was full of crap.
+ - You don’t know me. Don’t ever think you know me. The only things you know about me are the things you made me do, and that illustrates your character, not mine.
+ - If I love you more than you love me, I’m as good as dead. Yet I can’t make myself take it back. I can’t just walk away from you, because every time you pass by me without smiling, without touching my hand, or at least making eye contact, it feels like I’m dying inside.
+ - Even before the withdrawal sets in, you’ll do anything to get that feeling back, because as long as it lasts, nothing’s wrong. It doesn’t matter if you forget something, or lose something. Or if you fail someone. Nothing’s wrong and everything feels good, and you never want it to end.
+ - I’m searching for a shred of humanity in that shriveled tangle of arteries you call a heart.
+ - If you live in the dark long enough, you start to forget what light looks like.
+ - It was an addiction. A pointless, self-destructive addiction. But really, is there any other kind?
+ - Congratulations. Your official super-nerd badge is in the mail.
+ - Whatever your weakness, there’s a hellion to exploit it.
+ - Stay for me. Stay with me. There will never be anyone else. Not in my bed. Not in my life. And not in my heart.
+ - I’m dead, not impotent. Nasty rumors like that must be squashed before they gain momentum. Feel free to emphasize how very functional I am.
+ - Some things are private. Some things needed to be said, even when the person who needed to hear them couldn’t hear anything. Ever again.
+ - Yeah. She wants him back and has decided I’m in her way. But I have news for that little sleep-terrorist – it’s going to take more than a couple of bad dreams to scare me off, so I hope she has something bigger up her sleeve.
+ - Sometimes I suspected Ryan was merely visiting the real world, on vacation from his permanent residence in la-la land.
+ - When you push someone too far, they will push back and they push hard.
+ - You know, most girls sleep with a teddy bear or an extra pillow. But I gotta say, that’s kinda hot...
+ - He shrugged, looking right into my eyes. “Right now, this is all I feel.” He held our intertwined hands up for me to see and I wanted to look away, but I couldn’t break the hold his gaze had on me, like he could see more than anyone else saw. Things I couldn’t see myself.
+ - I want you. I want only you. I want all of you. But I’ll take whatever you’re ready to give.
+ - What if I was the sexual equivalent of popcorn? Suitable for light snacking only?
+ - Maybe I won’t look so bad when you’re not standing next to me.
+ - I got swirling eyes and the capacity to shatter windows with my bare voice. Tod got teleportation and invisibility. The supernatural world is so far from fair.
+ - I love you, Kaylee. More than I’ve ever loved anyone. More than I will ever love anyone. If I could freeze this moment in time and never have to let you go, I would do it without a second thought.
+ - But if there was a protocol for how to say goodbye to your newly ex-boyfriend’s brother, right after you kissed him and probably sent your ex into the arms of his willing ex-girlfriend, I didn’t know what it was.
+ - You’re not lost, Kaylee. You can’t ever be lost, because I’ll always know where you are. And if I’m not there with you, I’m on my way, and nothing standing between us will be standing for very long.
+ - You just say the word, and I’ll make the rest of the world go away. I’ll take you someplace safe, where no one else can reach us.
+ - I wanted a do over. A time machine. That magic wand. But real life didn’t have any easy outs, and very few happily-ever-afters. The real world was more like a Choose Your Own Adventure book, with most of the choices ripped out before you even opened the cover.
+ - Did you think you could dump me, and I’d bounce back to her and miraculously be happy? I’m not a Ping-Pong ball. You can’t just swat me back and forth and expect me to be content wherever I land. If Tod dumped you tomorrow, would you come back to me?
+ - The world lost something when you died, Tod, and I know that wasn’t easy for your family. But the world’s loss was Kaylee’s gain. I hope the two of you have the forever her mother and I never got. I will do my damnedest to make sure of that. I know you will.
+ - I’d just stepped out of the kiddie pool and into the deep end, with no floaties. And drowning was not an option.
+ - In the end, it only comes down to one thing: choosing the one you can’t live without.
+ - Em didn’t truly understand about my panic attacks – no one did. But she’d never pushed me to explain, never tried to ditch me when things got weird, and never once looked at me like I was a freak.
+ - The worst memories stick with us, while the nice ones always seem to slip through our fingers.
+ - Anger is great. It’s powerful, when you need something to hold you up. Something to steel your spine. But in the dark, when you’re alone with the truth, anger can’t survive. The only thing that can live in the dark with you is fear.
+ - Relief washed over me like that first air-conditioned breeze on a hot summer day.
+ - I fell into that kiss like Alice into Wonderland, headfirst and flailing, heart pounding the whole time. The world spun around me and still I fell, and I only crashed down to earth again when someone called my name.
+ - I want you. I want you so badly I can’t stand it. When you left, it felt like the world got darker. Like I couldn’t truly see anything. Couldn’t feel anything.
+ - So, ‘reaper’ is really just a nice word for ‘covert pervert?’ Is that what you’re saying?
+ - In the office, Michael sat behind our father’s desk, clicking away at the computer with his right hand, and making notes with his left. Ambidextrous freak.
+ - The school sent you flowers. I’m sure that totally makes up for the fact that they hired the psychotic, soul-stealing pedophile who murdered you in your own home.
+ - You shouldn’t talk about things you don’t understand. Which should leave you pretty damn quiet.
+ - Unfortunately, what my head wanted and what my heart wanted were two completely different things.
+ - I’m glad you think so. I’ve always considered my sense of humor to be largely underappreciated, so it’s nice to finally meet a fan.
+ - He went down like a cheerleader after prom.
+ - From adult diapers to bedpans? Move over, Elvis, I’m the afterlife of the party!
+ - Ethan was loyal and funny and protective. When we were little, he was the brother most likely to make me cry – and mostly likely to wipe away my tears.
+ - Ask for the impossible, then settle instead for what you really wanted in the first place.
+ - Can’t clean up after you anymore, baby brother, so don’t punk out. Make it count.
+ - Regret couldn’t fix what he’s broken. Apologies couldn’t bring back what he’s lost. What we’d lost.
+ - I liked that about her. I liked how laid back she was, when she wasn’t trying to stab me.
+ - Because the alternative sucks!
+ - I’d learned that my mother was a badass in disguise. She was Van Helsing in an apron and heels, and – at least for the time being – I couldn’t think of a single thing cooler than that.
+ - How is it wrong to put everything you have into getting what you want most in the world?
+ - I don’t have you, and without you, it feels like what I do have doesn’t matter.
+ - Great. I’m psychotic and sparkly.
+ - What matters is the face you show the world, not the quaking mess behind it.
+ - Oh fine. I’ll play nice with the pretty people.
+ - She just got out of the hospital. Why don’t you go gossip behind her back, like decent people?
+ - When he finally stopped calling, the hush felt strange. It felt like the whole world went silent when Marc did, as if I could see peoples mouths moving, but I couldnt hear what they were saying. Like I’d gone deaf.
+ - Kaylee, you’re adding two and two and coming up with seven.
+ - If Eastlake High School were the universe, I would be one of the moons circling Planet Emma, constantly hidden by her shadow, and glad to be there. Nash Hudson would be one of the stars: too bright to look at, too hot to touch and at the center of his own solar system.
+ - My shirt got torn in a fight. Yours evidently has a fast-release tab.
+ - Think of it as a second opinion on his value. If he wasn’t worth the fight, wouldn’t she just let him go? Wouldn’t you?
+ - Pain is what I feed from when nothing else will nourish the noxious fury in my heart. It’s what I cling to when everything else – everyone else – slips right between my grasping fingers.
+ - Anyway, I was the one in real danger. I got cornered by a pack of wild sorority girls in the food court. Apparently it’s mating season.
+ - Nash has been the sun lighting up the horizon of my life, outshining everything else in my world. I’d thought once that he was to good to be true. Turns out I was right.
+ - I’m confiscating your hair dryer – you’ve fried your brain.
+ - He’s like the Rasputin of reapers.
+ - His safety was more important than anything to me. Even if he would never know enough to understand that.
+ - Crap. He was actually crying. I didn’t know how to deal with a crying father. I barely knew how to deal with a normal one.
+ - It’s not the length of the word; it’s how well you use it!
+ - I held her tighter, just because I could. Because she was fierce, and beautiful, and mind.
+ - Most aspects of my training didn’t agree with me. There wasn’t as much bossing around as I’d hoped for, and there was way too much following orders.
+ - You should be careful, tossing descriptors like that around in a situation like this. My ‘problem’ isn’t little. Unless you’re drawing some pretty wild comparisons. Please tell me you’re not drawing wild comparisons. Or blood-relative comparisons.
+ - Apparently the complete works of Shakespeare packed quite a wallop. To think, my mother said I’d never find use for an English degree. Ha! I’d like to see her knock someone silly with an apron and a cookie press.
+ - Eastlake High makes Buffy’s hellmouth look like a crack in the sidewalk.
+ - Should I assume the lure is a certain attractive young dead man?
+ - The moment the door opened I knew an ass-kicking was inevitable. Whether I’d be giving it or receiving it was still a bit of a mystery.
+ - Sabine gestured to him with the half-eaten crust. “I like him. Not sure why he’s wasting his time with the pole dancer, though.” Tod laughed out loud and I groaned. “Sophie takes ballet and jazz. She’s not a pole dancer.” “There’s more money in pole dancing,” Sabine insisted.
+ - I wanted more firsts with Tod. But all I had left was a handful of lasts.
+ - He took both of my hands, twisting to face me more fully on the flattened box beneath us, and again the colors in his irises seemed to pulse with my heartbeat.
+ - He’s not like you, Tod. Aside from a couple of notable exceptions, you tend to think things through, but Nash is ruled by his heart –.
+ - Then strong, warm arms wrapped around me from behind. “I’ve got you,” Tod whispered in my ear.
+ - Marc didn’t want to win by default. He wanted to win for real. Forever.
+ - Not even if you fed me your firstborn, still wet and screaming.
+ - Was I wearing my ‘I’m done with my virginity, please get rid of it for me’ T-shirt?
+ - It would be so much easier if there were a secret password, or handshake. Netherworld, open sesame! Yeah, that didn’t work, either.
+ - You thought you could figure that out online? Somehow I don’t think hellions are much into social networking.
+ - Of every moment I’ve ever not-lived through, this one is the best.
+ - He was half again my size, but when we embraced, I felt like I was holding him up, and it was all I could do to remain standing. He buried his face in my hair, his body shaking against me with the spasmodic rhythm of unrestrained sobs. It was almost more than I could bear gracefully.
+ - Come near me and I’ll rip your wings off and beat you with them.
+ - So, did the costume come with a condom, or is that sold separately?
+ - Talking. According to Marc, I could talk the color off a crayon.
+ - My aunt and overprivileged cousin only recognize two states of being: glitter and grunge. And if you weren’t glitter, well, that only left one other option.
+ - I want you, Kaylee, like I’ve never wanted anything. Ever. I want the fire. I want the heat, and the light, and I want the burn.
+ - The problem with getting everything you want in life is that you’re not prepared for disappointment when it comes.
+ - And anyway, considering that her mother dies and her boyfriend’s spending a small fortune to get high off someone else’s bad breath, I’d say Sophie’s next in line for therapy.
+ - Tod laughed. He was always able to find the humour in even the creepiest situations. I’d thought that it was an undead thing, until I became a member of the undead. Then I realized it was a Tod-thing.
+ - If she were going to die, I’d already be screaming. I’m a Banshee. That’s what we do.
+ - I should have mixed something stronger than Coke floats.
+ - Screw this. He’d blown his shot at nice-and-easy, which only left quick-and-brutal – my favorite way to play.
+ - I can’t believe they even bothered filling that faculty position again. They might as well rename the class Defense Against the Dark Arts. I mean, seriously, who would answer an ad for this job?
+ - Like I’m going to pass up an opportunity to smack your cousin.
+ - She wasn’t feeling nothing. She was feeling too much. She was blocking it all out. That was a survival skill, and her still-beating heart was proof that it worked.
+ - I am not cute. I am the dreaded Grim Reaper. People fear me, you know. There’s a whole song about it.
+ - There were a million What Ifs that could have stopped the whole thing. A million things I wished I’d done differently. But in the end, I was left with what actually happened. With my mistakes and his.
+ - Walking around nude in front of humans was not a good way to keep a low profile with the community. It was an excellent way to make new friends, though.
+ - Harmony glanced to her left, and my gaze followed hers to the living room, where my aunt had died, my cousin had been restored, and I’d whacked a psychotic grim reaper with a cast-iron skillet. Weirdest. Tuesday. Ever.
+ - I had no desire to hear another woman tell my boyfriend how hot he was. If I wanted him to know, I’d damn well tell him myself.
+ - When mice run, cats give chase.
+ - But more than any of that, I was thankful for the possibility he’d shown me: that a man really could love a woman enough that he’d do anything to protect her. That’s how much Tod loved Addy. That’s how much I wanted Nash to love me.
+ - I could take care of that obstacle for her – I’d tear down anything standing between us – but I couldn’t destroy what I couldn’t even see.
+ - So don’t. Come hang out with me at work. We can play naughty dress up with the hospital gowns and rearrange the supply closets.
+ - Sophie glanced from me to Sabine, then back, scowling. “I’m not scared of her. I can handle myself.” “Yeah, and hissing kittens think they’re badass too,” Sabine said.
+ - Because in most cases, I believe that people deserve a second chance. And because I couldn’t have lived with myself if I’d stood by and let them both die souless, when I could have helped.
+ - 10:38 AM – Third period. Kaylee has no class this period. I have no one to kill. Coincidence, or fate?
+ - There was just no good way for a dead son to greet his mother almost two weeks after his funeral.
+ - Wonderful, a death match on my first day behind bars. Some girls have all the luck.
+ - Forever used to feel like a curse. Now it feels like a promise.
+ - Unfortunately, unless the job description included a translation of the prologue of The Canterbury Tales, I was dreadfully under-qualified.
+ - I think I was born ‘in to deep,’ and bad things happen every day. Sometimes I have to stab hellions. Sometimes I have to frame friends for murder, and stab evil math teachers, and watch my best friend die. Again. We deal with it, then we move on.
+ - I’m saying that I can wait. For now. But when things get back to normal – assuming that ever happens – I want my shot. We can make each other happy, Faythe. I know it. And I’m done walking away from things I want just because they don’t come easily. You’re worth the work.
+ - Survival strategy. If you’re not careful, this place will eat you alive, and Kaylee’s like bait for the beasts.
+ - There’s pressure, but that’s true no matter who you are or what you do.
+ - She watched me with a creepy sort of detached curiosity, as if I were a bug crawling across the sidewalk in front of her. I wondered briefly if she was the ant stomper type.
+ - Is that a joke? Please tell me you’re joking. -Sophie I never joke about carnivorous bunnies. -Luca.
+ - It’s kind of like when a clock battery runs down. The hour and minute hands don’t disappear, but they don’t keep ticking either. They freeze on the last minute they measured.
+ - Now if you’ll excuse me, Death waits for no man. Except me.
+ - And the council doesn’t recognize any kind of temporary insanity defense. Which was a real shame, because most of the councilmen had considered me crazy for most of my life.
+ - I don’t hate it. It does no good to hate something you can’t change.
+ - Come on, Kaylee, before I choke on testosterone and melodrama.
+ - But I had no plans to end my own life, and accidents couldn’t be predicted. Neither could murder, unless my aunt and uncle were planning to take me out themselves.
+ - So could we please not mob the three-thousand-plus-year-old reaper like tweens at a boy-band concert?
+ - Had I just begged for an audience with Death?
+ - Dad, I can count the number of normal school days I’ve had this year on one hand.
+ - Can we save the live demo for later, please? Bean Sidhe in angst, here.
+ - Sorry, but the whole walking corpse epiphany kind of threw me off my game.
+ - So, you reap souls and crush hopes? Is that part of the job, or just a service you offer for free?
+ - I realized that I’d rather die with you than live with someone else.
+ - He was beyond gorgeous. But Eastlake High was full of pretty people who acted like total freaks. I blame the local water supply. Which was why I drank bottled water.
+ - I couldn’t see who swam in the darkness, who wore shadows like a second skin.
+ - Lit majors are not known for watching where they’re going; most of us walk with our eyes in a book instead of on the path ahead.
+ - Just FYI, in your case, I think it’s okay to fear the reaper.
+ - I’ve seen this episode. This is the one where Sylvester eats Tweety.
+ - Her mouth was open, as if she wanted to say something, and I wanted to kiss her to show her that sometimes you don’t need words. Sometimes they only get in the way, and you end up talking yourself out of things you need. People you want.
+ - A smart woman would have shut up. Did I? Hell no. Intelligence is overrated anyway.
+ - I was fine with that. The very idea of Death knowing my name made my skin crawl. Even if this particular Death was only one of many, and almost too pretty to look at.
+ - Bold. Risky. Dramatic. I approve.
+ - Uh, yeah, I do. The scythe was a little tricky at first, but – much like golf – turns out it’s all in the swing.
+ - So you’re saying the afterlife is hard on the libido? FYI, that’s probably not a good bullet point for your recruiting brochure.
+
+150 quotes

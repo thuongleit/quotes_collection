@@ -1,0 +1,23 @@
+ - We owe our World War II veterans – and all our veterans – a debt we can never fully repay.
+ - V-J Day, or Victory in Japan Day, marks the date of the Japanese surrender that ended fighting in the Pacific.
+ - We will never forget and we will not relent until our job is done.
+ - In six short years, small business owners and family farmers will once again be assessed a tax on the value of their property at the time of their death, despite having paid taxes throughout their lifetime.
+ - The road ahead is not easy. Iraq is currently the center of the war on terror.
+ - We remain united with the British, and our allies around the world, in our resolve to defeat terrorism and bring those who commit these acts to justice.
+ - In the over two centuries since the signing of the Declaration of Independence, millions of Americans have bravely served our nation in uniform so that all generations can continue to enjoy those same liberties.
+ - We know we must win the war on terror to protect innocent people and the freedoms that define our way of life.
+ - 137 years later, Memorial Day remains one of America’s most cherished patriotic observances. The spirit of this day has not changed – it remains a day to honor those who died defending our freedom and democracy.
+ - Those who committed these cowardly acts may believe that they have shaken our resolve to defeat terrorism. They could not be more wrong.
+ - I am confident that in the end freedom and democracy will prevail over terror and tyranny. We will win this war on terror – and when we do Americans, the British, Iraqis, and people around the world will be more secure.
+ - In remembering those who lost their lives in the London attacks and the September 11th attacks we continue our commitment to fighting for freedom, democracy and justice.
+ - The most basic obligation we have to our veterans is that we keep the promises that were made to them. That is what makes the recent failures of the Veterans Administration so shameful.
+ - Eliminating the death tax is particularly important for the many small business owners and family farmers that call Central Washington home.
+ - The need for this clinic is clear to me, to the veterans who are currently forced to travel hours to receive care, and even to the Veterans Administration that itself identified creation of a clinic in this part of our state as a priority to be completed by 2006.
+ - With my support, the House of Representatives recently voted to permanently repeal the death tax so that family farms and businesses can be passed down to children and grandchildren.
+ - Since September 11th Congress has created the Department of Homeland Security, more than doubled the homeland security budget and implemented a bipartisan overhaul of our intelligence systems.
+ - As long as every generation rises to its challenges and stands up in defense of liberty – as Americans have done in the past and as our men and women continue to do today – our nation will remain free and strong.
+ - This is a form of double taxation and it’s simply unfair.
+ - Like many Americans my thoughts and prayers are with the people of London. My deepest sympathies are extended to those who lost a loved one in the recent terror attacks.
+ - In addition to demanding answers and accountability from the Veterans Administration, Congress had to act to ensure veterans do not suffer because of the actions of a federal agency.
+
+21 quotes

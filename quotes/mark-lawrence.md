@@ -1,0 +1,62 @@
+ - Let’s go to Valhalla with the sun on our faces.
+ - No half measures. Some things can’t be cut in half. You can’t half-love someone. You can’t half-betray, or half-lie.
+ - I maintain a balanced view of the world, but that balance is always in my favour.
+ - We die a little every day and by degrees we’re reborn into different men, older men in the same clothes, with the same scars.
+ - You can only win the game when you understand that it is a game. Let a man play chess, and tell him that every pawn is his friend. Let him think both bishops holy. Let him remember happy days in the shadows of his castles. Let him love his queen. Watch him lose them all.
+ - Memories are dangerous things. You turn them over and over, until you know every touch and corner, but still you’ll find an edge to cut you.
+ - A dark time comes. My Time. If it offends you. Stop me.
+ - I’ve always seen ‘no’ as a challenge rather than an answer.
+ - The biggest lies we save for ourselves.
+ - Hate will keep you alive where love fails.
+ - Take a rest and the world catches up with you. Lesson in life – keep moving.
+ - Hold to a thing long enough, a secret, a desire, maybe a lie, and it will shape you.
+ - There’s a road to hell that is paved with good intentions but it’s a long route. The quicker path is paved with the kind of ignorance that clever men who just don’t want to know are best at.
+ - You can’t grow if you’re constantly defined by this collection of frozen moments that you keep returning to. And if you can’t grow, you’re not alive.
+ - When you’re in a dark place, and your light is going to run out before too long, you get on with things. It’s a wonder to me how few people apply that same logic to their lives.
+ - There’s something brittle in me that will break before it bends.
+ - Anything that you cannot sacrifice pins you. Makes you predictable, makes you weak.
+ - I may be running out of options, but running out isn’t an option.
+ - There is no sound more annoying than the chatter of a child, and none more sad than the silence they leave when they are gone.
+ - We can’t be trapped by fear. Lives lived within such walls are just slower deaths.
+ - It’s an irony of our times that men seeking peace must make war.
+ - I think maybe we die every day. Maybe we’re born new each dawn, a little changed, a little further on our own road. When enough days stand between you and the person you were, you’re strangers. Maybe that’s what growing up is. Maybe I have grown up.
+ - Memory is all we are. Moments and feelings, captured in amber, strung on filaments of reason. Take a man’s memories and you take all of him. Chip away a memory at a time and you destroy him as surely as if you hammered nail after nail through his skull.
+ - Cowards make the best torturers. Cowards understand fear and they can use it.
+ - Each day the memories weigh a little heavier. Each day they drag you down that bit further. You wind them around you, a single thread at a time, and you weave your own shroud, you build a cocoon, and in it madness grows.
+ - There’s a slope down toward evil, a gentle gradient that can be ignored at each step, unfelt. It’s not until you look back, see the distant heights where you once lived, that you understand your journey.
+ - Dark times call for dark choices. Choose me.
+ - Some truths should perhaps be left unsaid. Some doors unopened. An angel once told me to let go of the ills I held too close, to let go of the flaws that shaped me.
+ - A strange thing – nails will hold a building together, but there’s nothing better for taking a man apart.
+ - It was a defeat, resorting to crude threats in a game of subtlety, but sometimes one must sacrifice a battle to win the war.
+ - It is purity of spirit that will keep corruption from the flesh.
+ - Some pain you can distance yourself from, but a headache sits right where you live.
+ - Running ain’t no bad thing. Leastways if you run in the right direction.
+ - Few things worth having can be got easily.
+ - A fool may scrawl on a slate and if no one has the wit to wipe it clean for a thousand years, the scrawl becomes the wisdom of ages.
+ - You got responsibilities when you’re a leader. You got a responsibility not to kill too many of your men. Or who’re you going to lead?
+ - Sometime, It’s easier to love someone with flaws you can forgive in return for them forgiving yours.
+ - Men think if they’re getting laid, everything is fine. Women think if they feel good, everything is fine. Neither turns out to be a very good indicator.
+ - It never pays to walk blindly. Especially not in your own castle where familiarity hides so much – even when we have the eyes to see.
+ - Humanity can be divided into madmen and cowards. My personal tragedy is in being born into a world where sanity is held to be a character flaw.
+ - I’ve always felt that the placement of a man’s testicles is an eloquent argument against intelligent design.
+ - Questions for questions. You’re a man who’s spent time at court.
+ - She’ll never love you better than she loves her own children.
+ - Four years and everything was the same, except me.
+ - Confusing the author and the character seems to be a popular and rather unsophisticated reaction to books.
+ - I wanted to go home and if Hell rose up to stop me, it would make me desire it more.
+ - A man can reach into anything and turn it to his cause. It’s not want, or desire, just certainty. Only be assured that whatever you reach into will reach into you in turn.
+ - Lundist held that a man who can observe is a man apart. Such a man can see opportunities where others see only the obstacles.
+ - Most men have at least one redeeming feature. Finding one for Brother Rike requires a stretch. Is ‘big’ a redeeming feature?
+ - All lives are tales. Some spread, and grow in the telling. Others are just told between us and the gods, muttered back and forth behind our days, but those tales grow too and shake us just as fierce.
+ - There’s a purity to the struggle to reach a peak. You leave your world behind and take only what you need. For a creature like me there is nothing closer to redemption.
+ - Some men are too dull to feel what might happen. Others torture themselves with maybes and populate their dreams with horrors more terrible than their worst enemy could inflict upon them.
+ - I like mountains, always have done. Big obstinate bits of rock sticking up where they’re not wanted and getting in folk’s way. Great. Climbing them is a different matter altogether though. I hate that.
+ - You’re a Good Little Slave.
+ - Every man has his thorns, not of him, but in him, deep as bones.
+ - I think you need to have lived more to truly know a man’s heart. You need to have made more transactions in life to know the worth of the coin you spend so freely.
+ - If the sins of the flesh ever got old I didn’t ever want enough years on me to know it.
+ - When you take a woman away from her man, what you get is a woman who can be taken away from her man.
+ - If you must run, have something to run toward, so it feels less like cowardice.
+ - You soon learn there’s no elegance or dignity in death if you spend time in the castle kitchens. You learn how ugly it is, and how good it tastes.
+
+60 quotes

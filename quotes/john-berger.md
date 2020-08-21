@@ -1,0 +1,92 @@
+ - All creation is in the art of seeing.
+ - You painted a naked woman because you enjoyed looking at her, put a mirror in her hand and you called the painting “Vanity,” thus morally condemning the woman whose nakedness you had depicted for you own pleasure.
+ - What makes photography a strange invention is that its primary raw materials are light and time.
+ - For the artist, drawing is discovery. And that is not just a slick phrase; it is quite literally true.
+ - The zoo cannot but disappoint.
+ - Words are so often used in the opposite sense, as a screen of diversion. It’s the struggle towards truthfulness which is the same whether one is writing a poem, a novel or an argument.
+ - To be desired is perhaps the closest anybody in this life can reach to feeling immortal.
+ - Seeing comes before words. The child looks and recognizes before it can speak.
+ - Your lips, beloved, are like a honeycomb: honey and milk are under the tongue. And the smell of your clothes is like the smell of my home.
+ - The relation between what we see and what we know is never settled. Each evening we see the sun set. We know that the earth is turning away from it. Yet the knowledge, the explanation, never quite fits the sight.
+ - We only see what we look at. To look is an act of choice.
+ - A drawing is essentially a private work, related only to the artist’s own needs; a ‘finished’ statue or canvas is essentially a public, presented work – related far more directly to the demands of communication.
+ - Drawing is a way of coming upon the connection between things, just like metaphor in poetry reconnects what has become separated.
+ - Every painted image of something is also about the absence of the real thing. All painting is about the presence of absence.
+ - What any true painting touches is an absence – an absence of which without the painting, we might be unaware. And that would be our loss.
+ - The camera relieves us of the burden of memory.
+ - Never again shall a single story be told as though it were the only one.
+ - The opposite of love is not to hate but to separate. If love and hate have something in common it is because, in both cases, their energy is that of bringing and holding together.
+ - All publicity works upon anxiety.
+ - History always constitutes the relation between a present and its past. Consequently fear of the present leads to mystification of the past.
+ - Men look at women. Women watch themselves being looked at.
+ - Ours is the century of enforced travel of disappearances. The century of people helplessly seeing others, who were close to them, disappear over the horizon.
+ - Propaganda requires a permanent network of communication so that it can systematically stifle reflection with emotive or utopian slogans. Its pace is usually fast.
+ - When we read a story, we inhabit it. The covers of the book are like a roof and four walls.
+ - Whenever the intensity of looking reaches a certain degree, one becomes aware of an equally intense energy coming towards one through the appearance of whatever it is one is scrutinizing.
+ - We can become anything. That is why injustice is impossible here. There may be the accident of birth, there is no accident of death. Nothing forces us to remain what we were.
+ - Without ethics, man has no future. This is to say, mankind without them cannot be itself. Ethics determine choices and actions and suggest difficult priorities.
+ - Paris, I believe, is a man in his twenties in love with an older woman.
+ - Protest and anger practically always derives from hope, and the shouting out against injustice is always in the hope of those injustices being somewhat corrected and a little more justice established.
+ - Common-sense is part of the home-made ideology of those who have been deprived of fundamental learning, of those who have been kept ignorant.
+ - In the average European oil painting of the nude the principal protagonist is never painted. He is the spectator in front of the picture and he is presumed to be a man.
+ - Between the experience of living a normal life at this moment on the planet and the public narratives being offered to give a sense to that life, the empty space, the gap, is enormous.
+ - Nakedness reveals itself. Nudity is placed on display. The nude is condemned to never being naked. Nudity is a form of dress.
+ - Photography, because it stops the flow of life, is always flirting with death.
+ - Hair is associated with sexual power. With passion. The woman’s sexual passion needs to be minimized, so that the spectator may feel that he has the monopoly on such passion.
+ - That we find a crystal or a poppy beautiful means that we are less alone, that we are more deeply inserted into existence than the course of a single life would lead us to believe.
+ - To remain innocent may also be. to remain ignorant.
+ - Never chain your dogs together with sausages. One must accustom one’s self to be bored.
+ - The strange power of art is sometimes it can show that what people have in common is more urgent than what differentiates them. It seems to me it’s something that theatre can do, but it’s rare; it’s very rare.
+ - All weddings are similar, but every marriage is different.
+ - Glamour cannot exist without personal social envy being a common and widespread emotion.
+ - Hope is a contraband passed from hand to hand and story to story.
+ - The contradiction in perspective was that it structured all images of reality to address a single spectator who, unlike God, could only be in one place at a time.
+ - The animal has secrets which, unlike the secrets of caves, mountains, seas are specifically addressed to man.
+ - Advertising is not merely an assembly of competing messages; it is a language itself which is always being used to make the same general proposal.
+ - The camera relieves us of the burden of memory. It surveys us like God, and it surveys for us. Yet no other god has been so cynical, for the camera records in order to forget.
+ - We who draw do so not only to make something observed visible to others, but also to accompany something invisible to its incalculable destination.
+ - Publicity is the life of this culture – in so far as without publicity capitalism could not survive – and at the same time publicity is its dream.
+ - Autobiography begins with a sense of being alone. It is an orphan form.
+ - The spectator-buyer is meant to envy herself as she will become if she buys the product. She is meant to imagine herself transformed by the product into an object of envy for others, an envy which will then justify her loving herself.
+ - To be naked is to be oneself.
+ - Modern thought has transferred the spectral character of Death to the notion of time itself. Time has become Death triumphant over all.
+ - Post-modernism has cut off the present from all futures. The daily media add to this by cutting off the past. Which means that critical opinion is often orphaned in the present.
+ - I wanted to write about looking at the world, so it’s more about helping people, or persuading people, to see what is around us; both the marvellous and the terrible.
+ - The poverty of our century is unlike that of any other. It is not, as poverty was before, the result of natural scarcity, but of a set of priorities imposed upon the rest of the world by the rich.
+ - A drawing is an autobiographical record of one’s discovery of an event – either seen, remembered or imagined. A ‘finished’ work is an attempt to construct an event in itself.
+ - Fanaticism comes from any form of chosen blindness accompanying the pursuit of a single dogma.
+ - One can say of language that it is potentially the only human home, the only dwelling place that cannot be hostile to man.
+ - Compassion has no place in the natural order of the world which operates on the basis of necessity. Compassion opposes this order and is therefore best thought of as being in some way supernatural.
+ - What is saved in the cinema when it achieves art is a spontaneous continuity with all mankind.
+ - Unlike any other visual image, a photograph is not a rendering, an imitation or an interpretation of its subject, but actually a trace of it. No painting or drawing, however naturalist, belongs to its subject in the way that a photograph does.
+ - Do you know the legend about cicadas? They say they are the souls of poets who cannot keep quiet because, when they were alive, they never wrote the poems they wanted to.
+ - A cigarette is a breathing space. It makes a parenthesis. The time of a cigarette is a parenthesis, and if it is shared, you are both in that parenthesis. Its like a proscenium arch for a dialogue.
+ - The past grows gradually around one, like a placenta for dying.
+ - Emigration, forced or chosen, across national frontiers or from village to metropolis, is the quintessential experience of our time.
+ - The publicity image steals her love of herself as she is, and offers it back to her for the price of the product.
+ - It is not usually possible in a poem or a story to make the relationship between particular and universal fully explicit. Those who try to do so end up writing parables.
+ - We live in a dominant culture of ceaseless Departure and Progress that has so far lasted two or three centuries.
+ - If everything that existed were continually being photographed, every photograph would become meaningless.
+ - The past is the one thing we are not prisoners of. We can do with the past exactly what we wish. What we can’t do is to change its consequences.
+ - Oil painting did to appearances what capital did to social relations. It reduced everything to the equality of objects. Everything became exchangeable because everything became a commodity.
+ - It is comparatively easy to achieve a certain unity in a picture by allowing one colour to dominate, or by muting all the colours. Matisse did neither. He clashed his colours together like cymbals and the effect was like a lullaby.
+ - You can plan events, but if they go according to your plan they are not events.
+ - Today the discredit of words is very great.
+ - I use charcoal a lot. Partly because it has such a fantastic range but also because it is very easy to erase. For me, drawing is a lot to do with taking out, with returning to the white of the paper.
+ - A peasant becomes fond of his pig and is glad to salt away its pork. What is significant, and is so difficult for the urban stranger to understand, is that the two statements are connected by an and not by a but.
+ - The media network has its idols, but its principal idol is its own style which generates an aura of winning and leaves the rest in darkness. It recognizes neither pity nor pitilessness.
+ - Painting is something that you need to do, if not every day, then certainly most days. It is almost like being a pianist: if you stop, you lose something.
+ - Nothing in the nature around us is evil. This needs to be repeated since one of the human ways of talking oneself into inhuman acts is to cite the supposed cruelty of nature.
+ - When we read a story, we inhabit it. The covers of the book are like a roof and four walls. What is to happen next will take place within the four walls of the story. And this is possible because the story’s voice makes everything its own.
+ - We never look at just one thing; we are always looking at the relation between things and ourselves.
+ - At times failure is very necessary for the artist. It reminds him that failure is not the ultimate disaster. And this reminder liberates him from the mean fussing of perfectionism.
+ - The true content of a photograph is invisible, for it derives from a play, not with form, but with time.
+ - It can happen that a book, unlike its authors, grows younger as the years pass.
+ - The autobiographical doesn’t interest me. I could think of few things less interesting than rooting about in my life.
+ - If every event which occurred could be given a name, there would be no need for stories.
+ - Ever since the Greek tragedies, artists have, from time to time, asked themselves how they might influence ongoing political events.
+ - Every city has a sex and age which have nothing to do with demography.
+ - It is seeing which establishes our place in the surrounding world; we explain that world with words, but words can never undo the fact that we are surrounded by it.
+ - If the public photograph contributes to a memory, it is to the memory of an unknowable and total stranger.
+
+90 quotes

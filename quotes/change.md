@@ -1,0 +1,42 @@
+ - Without a struggle, there can be no progress. ~~Frederick Douglass
+ - Don’t wait. The time will never be just right. ~~Napoleon Hill
+ - Life has no limitations, except the ones you make. ~~Les Brown
+ - Change your thoughts and you change your world. ~~Norman Vincent Peale
+ - When we strive to become better than we are, everything around us becomes better, too. ~~Paulo Coelho
+ - Anyone who has never made a mistake has never tried anything new. ~~Albert Einstein
+ - Everyone thinks of changing the world, but no one thinks of changing himself. ~~Leo Tolstoy
+ - The future belongs to those who believe in the beauty of their dreams. ~~Eleanor Roosevelt
+ - You change your life by changing your heart. ~~Max Lucado
+ - God, grant me the serenity to accept the things I cannot change, courage to change the things I can, and wisdom to know the difference. ~~Serenity Prayer
+ - You must take personal responsibility. You cannot change the circumstances, the seasons, or the wind, but you can change yourself. That is something you have charge of. ~~Jim Rohn
+ - The curious paradox is that when I accept myself just as I am, then I can change. ~~Carl R. Rogers
+ - Failure is not fatal, but failure to change might be. ~~John Wooden
+ - One secret of success in life is for a man to be ready for his opportunity when it comes. ~~Benjamin Disraeli
+ - Whenever you find yourself on the side of the majority, it is time to pause and reflect. ~~Mark Twain
+ - The illiterate of the 21st century will not be those who cannot read and write, but those who cannot learn, unlearn, and relearn. ~~Alvin Toffler
+ - When we are no longer able to change a situation – we are challenged to change ourselves. ~~Viktor E. Frankl
+ - There is nothing like returning to a place that remains unchanged to find the ways in which you yourself have altered. ~~Nelson Mandela
+ - There is no death, only a change of worlds. ~~Chief Seattle
+ - Why do you go away? So that you can come back. So that you can see the place you came from with new eyes and extra colors. And the people there see you differently, too. Coming back to where you started is not the same as never leaving. ~~Terry Pratchett
+ - The secret of change is to focus all of your energy, not on fighting the old, but on building the new. ~~Socrates
+ - One day your life will flash before your eyes. Make sure it’s worth watching. ~~Gerard Way
+ - If you focus on results, you will never change. If you focus on change, you will get results. ~~Jack Dixon
+ - We must be willing to let go of the life we planned so as to have the life that is waiting for us. ~~Joseph Campbell
+ - Change before you have to. ~~Jack Welch
+ - I can accept failure, everyone fails at something. But I can't accept not trying. ~~Michael Jordan
+ - Change your life today. Don’t gamble on the future, act now, without delay. ~~Simone de Beauvoir
+ - Man cannot discover new oceans unless he has the courage to lose sight of the shore. ~~André Gide
+ - Education is the most powerful weapon which you can use to change the world. ~~Nelson Mandela
+ - To improve is to change; to be perfect is to change often. ~~Winston Churchill
+ - In any moment of decision, the best thing you can do is the right thing, the next best thing is the wrong thing, and the worst thing you can do is nothing. ~~Theodore Roosevelt
+ - Today is the first day of the rest of your life. ~~Abbie Hoffman
+ - Intelligence is the ability to adapt to change.  ~~Stephen Hawking
+ - Your life does not get better by chance, it gets better by change. ~~Jim Rohn
+ - If you don’t like something, change it. If you can’t change it, change your attitude. ~~Maya Angelou
+ - There are three constants in life: change, choice and principles. ~~Stephen R. Covey
+ - All our dreams can come true, if we have the courage to pursue them. ~~Walt Disney
+ - Only I can change my life. No one can do it for me. ~~Carol Burnett
+ - We can have more than we've got because we can become more than we are. ~~Jim Rohn
+ - I can be changed by what happens to me, but I refuse to be reduced by it. ~~Maya Angelou
+
+40 quotes

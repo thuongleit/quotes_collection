@@ -1,0 +1,29 @@
+ - Know yourself to improve yourself.
+ - Ideas govern the world, or throw it into chaos.
+ - Everything is relative; and only that is absolute.
+ - The sacred formula of positivism: love as a principle, the order as a foundation, and progress as a goal.
+ - Religion is an illusion of childhood, outgrown under proper education.
+ - The dead govern the living.
+ - Positivism is a theory of knowledge according to which the only kind of sound knowledge available to human kind is that if science grounded in observation.
+ - Induction for deduction, with a view to construction.
+ - Nothing is destroyed until it is replaced.
+ - Woman is the most moral element in all humanity.
+ - To understand a science it is necessary to know its history.
+ - Humanity is always made up of more dead than living.
+ - Every science consists in the coordination of facts; if the different observations were entirely isolated, there would be no science.
+ - To reorganize society without God or King, by the systematic culture of Humanity.
+ - If we do not allow free thinking in chemistry or biology, why should we allow it in morals or politics?
+ - The universe displays no proof of an all-directing mind.
+ - The only real life is the collective life of the race; individual life has no existence except as an abstraction.
+ - In mathematics we find the primitive source of rationality; and to mathematics must the biologists resort for means to carry out their researches.
+ - The law is this: that each of our leading conceptions-each branch of our knowledge-passes successively through three different theoretical conditions: the Theological, or fictitious: the Metaphysical, or abstract; and the Scientific, or positive.
+ - History has now been for the first time systematically considered, and has been found, like other phenomena, subject to invariable laws.
+ - But now, I, August Comte, have discovered the truth. Therefore, there is no longer any need for freedom of thought or freedom of the press. I want to rule and to organize the whole country.
+ - Each department of knowledge passes through three stages. The theoretic stage; the theological stage and the metaphysical or abstract stage.
+ - The word right should be excluded from political language, as the word cause from the language of philosophy.
+ - The heavens declare the glory of Kepler and Newton.
+ - Monotheism occupies so large a space in the view of modern minds, that it is scarcely possible to form a just estimate of the preceding phases of the theological philosophy.
+ - All good intellects have repeated, since Bacon’s time, that there can be no real knowledge but which is based on observed facts.
+ - Language forms a kind of wealth, which all can make use of at once without causing any diminution of the store, and which thus admits a complete community of enjoyment; for all, freely participating in the general treasure, unconsciously aid in its preservation.
+
+27 quotes

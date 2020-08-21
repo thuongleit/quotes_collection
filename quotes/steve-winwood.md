@@ -1,0 +1,29 @@
+ - Think about it, there must be higher love Down in the heart or hidden in the stars above Without it, life is a wasted time Look inside your heart, I’ll look inside mine.
+ - Networking is rubbish; have friends instead.
+ - The voices inside you can lead your soul astray Believe in what you dream Don’t turn away don’t you turn away. Reach for the light You might touch the sky Stand on the mountaintop and see yourself flying Reach for the light to capture a star Come out of the darkness and find out who you are.
+ - Where’s that higher love I keep thinking of?
+ - When life is too much, roll with it, baby.
+ - I’m the same boy I used to be.
+ - Music is a science, in many ways it’s mathematical.
+ - While there is time, let’s go out and do everything.
+ - The percentage you’re paying is too high priced While you’re living beyond all your means And the man in the suit has just bought a new car From the profit he’s made on your dreams.
+ - The finer things I feel in me, the golden dance life could be.
+ - Look inside your heart, I’ll look inside mine.
+ - When the rhythm and night ride, no heart can hide.
+ - Time is a river rolling into nowhere. We must live while we can, and we’ll drink our cup of laughter.
+ - Don’t you know by now, luck don’t lead to anything or why you keep on moving.
+ - Savor the throne, but don’t mind the stool.
+ - If you call someone up on a mistake – if the drummers put an extra beat in a bar or something – you have a lot more authority if you can show them how to do it right.
+ - If nothing is the way it seems, then this life is just a haunted dream.
+ - What selfish seeds I plant along the way, black harvest today.
+ - While you see a chance take it, find romance, fake it, because it’s all on you.
+ - The living together is very important in a way. It’s important for writing. It wouldn’t be important if we were like just getting other people’s numbers together, we’d just have to meet at rehearsals, but writing is something almost completely different.
+ - In life you can get a feeling which is part of a person, the same as in the songs. Music is almost our representation of our fantasies and so our songs are representations of our fantasies.
+ - A lot of people think that the music was responsible for a lot of changes in the Sixties, but I think the music came out of it. The music wouldnt have happened without the social changes.
+ - If you hold me, I will let you into my dreams.
+ - Half of us is easy, the other half is hard. Even though we do our best, we end up being scarred.
+ - One of my problems is I’m not really sure if I slot into rock or not. I’ve always tried to combine world music, folk, jazz, blues and rock, and have done since Traffic.
+ - The music I write, I feel, is not the kind of music for a 25-year-old.
+ - One man puts the fire out, the other lights the fuse.
+
+27 quotes

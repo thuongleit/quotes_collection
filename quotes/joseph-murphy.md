@@ -1,0 +1,43 @@
+ - The law of life is the law of belief.
+ - Once the subconscious mind accepts an idea, it begins to execute it.
+ - As you sow in your subconscious mind, so shall you reap in your body and environment.
+ - Your desire is your prayer. Picture the fulfillment of your desire now and feel its reality and you will experience the joy of the answered. Dr. Joseph Murphy.
+ - Never finish a negative statement; reverse it immediately, and wonders will happen in your life.
+ - Be still and quiet, tune in with the Infinite Intelligence, and continue in right thought, right feeling, and right action, and you will arrive at your goal.
+ - Just keep your conscious mind busy with expectation of the best.
+ - When you imagine the reality of the fulfilled desire and feel the thrill of accomplishment, your subconscious brings about the realisation of desire.
+ - The infinite intelligence of my subconscious mind reveals to me my true place in life.
+ - Your subconscious mind does not argue with you. It accepts what your conscious mind decrees. If you say, “I can’t afford it,” your subconscious mind works to make it true. Select a better thought. Decree, “I’ll buy it. I accept it in my mind.”
+ - The great secret possessed by the great men of all ages was their ability to contact and release the powers of their subconscious mind. You can do the same.
+ - As a person thinks, feels, and believes, so is the condition of his or her mind, body, and circumstances.
+ - You can develop the right mental attitude when you realize that nothing external can upset you or hurt you without your mental consent.
+ - God is the source of my supply. His riches flow to me freely, copiously, and abundantly. All my financial and other needs are met at every moment of time and point of space; there is always a divine surplus.
+ - Don’t fight your problem. Know that there is a solution.
+ - The way to get rid of darkness is with light; the way to overcome cold is with heat; the way to overcome the negative thought is to substitute the good thought. Affirm the good, and the bad will vanish.
+ - Whatever your conscious mind assumes and believes to be true, your subconscious mind will accept and bring to pass. Believe in good fortune, divine guidance, right action, and all the blessings of life.
+ - Your desire is your prayer.
+ - The Law of Attraction attracts to you everything you need, according to the nature of your thought life.
+ - A knowledge of the interaction of your conscious and subconscious minds will enable you to transform your whole life.
+ - The only path by which another person can upset you is through your own thought.
+ - Watch your thoughts. Every thought accepted as true is sent by your brain to your solar plexus – your abdominal brain – and is brought into your world as a reality.
+ - Fear is a negative thought in your mind. Supplant it with a constructive thought. Fear has killed millions. Confidence is greater than fear. Nothing is more powerful than faith in God and the good.
+ - Remember that the subconscious mind has determined the success and wonderful achievements of all great scientific workers.
+ - Busy your mind with the concepts of harmony, health, peace, and good will, and wonders will happen in your life.
+ - The law of your mind is the law of belief. This means to believe in the way your mind works, to believe in belief itself.
+ - You can build radiant health, success and happiness by the thoughts you think in the hidden studio of your mind.
+ - There is no virtue in poverty.
+ - Happiness is the harvest of a quiet mind. Anchor your thoughts on peace, poise, security and divine guidance and your mind will be productive of happiness.
+ - If you really want peace of mind and inner calm, you will get it. Regardless of how unjustly you have been treated, or how unfair the boss has been, or what a mean scoundrel someone has proved to be, all this makes no difference to you when you awaken to your mental and spiritual powers.
+ - The truth is you can acquire any quality you want by acting as though you already have it.
+ - Specialize in your particular field and try to know more about it than anyone else.
+ - Desire is the motivating force behind all progress and advancement in science, art, industry and in all phases of life.
+ - Millions of people are afraid of the past, the future, old age, insanity and death. But fear is a thought in your mind. This means that you are afraid of your own thoughts.
+ - All you have to do is unite, mentally and emotionally with the good you wish to embody. The creative powers of your subconscious will respond accordingly.
+ - All of us have our own inner fears, beliefs, opinions. These inner assumptions rule and govern our lives. A suggestion has no power in and of itself. its power arises from the fact that you accept it mentally.
+ - Trying to accumulate wealth by the sweat of your brow and hard labor is one way to become the richest man in the graveyard. You do not have to strive or slave hard.
+ - Prayer is the soul’s sincere desire. Your desire is your prayer. It comes out of your deepest needs and it reveals the things you want in life.
+ - Whether the object of your faith is real or false, you will get results. Your subconscious mind responds to the thought in your mind. Look upon faith as a thought in your mind and that will suffice.
+ - Infinite riches are all around you if you will open your mental eyes and behold the treasure house of infinity within you. There is a gold mine within you from which you can extract everything you need to live life gloriously, joyously, and abundantly.
+ - Success means successful living. When you are peaceful, happy, joyous and doing what you love to do, you are successful.
+
+41 quotes

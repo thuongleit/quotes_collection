@@ -1,0 +1,34 @@
+ - I wish I played an instrument, but I could never decide which one, and I ended up playing nothing.
+ - I want to feel good, I want to feel proud, I want to feel that I give someone enough and that I get enough.
+ - I want to do movies but not talk about them.
+ - And you must dare to do as many things as you dream of.
+ - It should be only a part of my life, but it isn’t. I have only one thing: my work.
+ - I’m pretty much a vegetarian, but I do eat fish and sometimes chicken.
+ - It’s true what people say – that actors are the closest thing there is to children. They play.
+ - The years go so fast. I mean, I just realized that at the end of the year I will be twenty-two, and I just turned twenty-one.
+ - I love men who make me laugh.
+ - I wish I had had a great disappointment, a real one.
+ - I love oldies just kind of sweet, slinky, Fifties music. The slow stuff. And Billie Holiday.
+ - I used to dance when I was younger – ballet and modern dance.
+ - My parents found what I was interested in and encouraged me. They didn’t put me in front of a television and buy lots of toys, the way some American parents do.
+ - It’s so great to love somebody and, out of that, to make a child. So that’s my goal.
+ - Actors, after all, dream.
+ - But when it really happens I’m very fascinated, I’m waiting for the moment, because the moment where life abandons you and death steps in, that moment must be fantastic, no?
+ - Water for me is so essential, like swimming.
+ - I live for being with the people I love and to live as happily as possible.
+ - It’s pleasant and bothersome and embarrassing all at once. Especially when you haven’t done much and are a celebrity.
+ - I love running, swimming and riding, sleeping and eating, reading and loving things that everybody likes.
+ - I do wear lipstick because when I suddenly get pale or green, it seems whole blood goes away.
+ - You can learn so much from children, and you can give them so much.
+ - Not that I want everything right now; but I do want everything.
+ - When I cannot get that moment of truth where you feel yourself opening up like a flower, I absolutely loathe the bloody camera. I can just feel this black hole eyeing me, sucking me in, and I feel like smashing it to smithereens.
+ - You play a part, and as soon as a movie is over and the camera stops, you go home and you’re not really responsible for what you’ve done.
+ - Having children is what a woman is born for, really.
+ - To be successful for a moment because of one movie doesn’t mean anything.
+ - I have these visions of myself being thirty, thirty-five, forty having a family.
+ - I’d also like to do a play. I’ve never done theater, and constantly changing and refining a performance is something I’d like to do, even though it may sound like work to some people – and it probably is work.
+ - I had a great childhood. I had such fun.
+ - Water is always a support or a healing thing apart from, you know, love or peace of mind.
+ - Even though things happen by accident, you also unconsciously choose things that help you.
+
+32 quotes

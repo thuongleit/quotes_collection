@@ -1,0 +1,122 @@
+ - When you’ve got God, you got a friend. And that friend is you.
+ - Life is not fair, it never was and it is now and it won’t ever be. Do not fall into the trap. The entitlement trap, of feeling like you’re a victim. You are not.
+ - There are three things, to my account, that I need each day. One of them is something to look up to, another is something to look forward to, and another is someone to chase.
+ - It’s a scientific fact that gratitude reciprocates.
+ - I know who I am. And after all these years, there’s a victory in that.
+ - Life’s barely long enough to get good at one thing. So be careful what you get good at.
+ - There’s a difference in thinking you are a champion and knowing that you are.
+ - It’d be a lot cooler If you did.
+ - The law says you cannot touch, but I see a lot of lawbreakers up in this house.
+ - Vanity is great motivation, to be fair.
+ - The male is always the pawn in a romantic comedy. Come together, break up, go chase her, get her, roll credits. That’s what happens in all of them.
+ - The best education I’ve had in my life is to travel.
+ - My life is the road, man. I need to keep moving.
+ - So, to any of us, whatever those things are, whatever it is we look up to, whatever it is we look forward to, and whoever it is we’re chasing, to that I say, ‘Amen.’ To that I say, ‘Alright, alright, alright.’ To that I say ‘just keep living.’ Thank you.
+ - I’m a football fan, a sports fan, a fan of competition.
+ - I want to thank God because that’s who I look up. He’s graced my life with opportunities. He’s shown me that it’s a scientific fact that gratitude reciprocates.
+ - My rule is to break one sweat a day.
+ - I have my own vocabulary. I love linguistics. That surprises people.
+ - I always wanted to be a father and thought it would be great, but it just took the right woman and the right time to make it all happen.
+ - I’m a fan of the word selfish. Self. Ish. When I say I have gotten a lot more self-ish, I mean I am less concerned with what people think of me. I’m not worried about how I’m perceived. Selfish has always gotten a bad rap. You should do for you.
+ - Life is a series of commas, not periods.
+ - That’s what I love about these high school girls, man. I get older, they stay the same age.
+ - Now, you lose something in your life, or you come into a conflict, and there’s gonna come a time that you’re gonna know: There was a reason for that. And at the end of your life, all the things you thought were periods, they turn out to be commas. There was never a full stop in any of it.
+ - My best quality is that I’m a big hearted person. I’m resilient, too. My worst quality is selfishness, although everyone is guilty of that to an extent. Everyone should be, I think – you need to respect yourself.
+ - I don’t want to just revolve. I want to evolve. As a man, as a human, as a father, as a lover.
+ - I only pick one thing; North, South, East or West. I just get on the road and go. That’s the point. The only governor I give myself is what’s the time limit.
+ - They eat, they crap, they sleep, and if they’re crying they need to do one of the three and they’re having trouble doing it. Real simple.
+ - I will say this: one of the things that is a pain when you’re expecting children is how much advice unsolicited people give you when you’re not asking for it.
+ - Try not to make a straight line crooked.
+ - You want to be a writer? Start writing. You want to be a filmmaker? Start shooting stuff on your phone right now.
+ - Bringing a baby into the world is something I’ve always wanted, and now I’m completely ready for my life to start revolving around another human being.
+ - I never go online on my iPhone. Sometimes I’m tempted but I remind myself and the kids – it’s a tool. Use it as a tool. You’re not the tool. My iPhone, 85% of the time I’m writing down ideas.
+ - There’s two sorts of fear: one you embrace and one you should listen to and turn the other way.
+ - Sure, I can get a little bit jealous. The good part about jealousy is that it comes from passion. It’s also the dangerous part and it’s an ugly emotion that hurts.
+ - My father – who I know is up there right now, with a big pot of gumbo, he’s got a lemon meringue pie, he’s probably in his underwear, and he’s got a cold can of Miller Lite – and he’s dancing.
+ - When you have good friends you’ve been around, every time they talk, you don’t give them your full attention. You don’t look them in the eye and stop. Half the time, you’re listening, half the time, you are ignoring them.
+ - I believe in living in the present and making each day count. I don’t pay much attention to the past or the future.
+ - We have a big appetite for putting people down but, at the heart of everyone, there’s enough room for all of us to succeed.
+ - I am vain. I think vanity is a good thing. It’s done more good things for me than it has not.
+ - I think it’s because we’re looking for the meaning. Where is the meaning? We have mindless jobs, we take frantic vacations, deficit finance trips to the mall to buy more things that we think are going to fill these holes in our lives. Is it any wonder that we’ve lost our sense of direction?
+ - There aren’t many things that are universally cool, and it’s cool not to litter. I’d never do it.
+ - Man who invented the hamburger was smart; man who invented the cheeseburger was a genius.
+ - Don’t play an attitude; don’t play a guy who’s negative. Play a guy who’s not trying to sell anybody on anything, he’s just saying how it is and if you want to come by what he’s thinking, you’re welcome. If you do not, then do not.
+ - No computer, no gadget, no trickery. I am an animal, it is a plant. I will beat the weed!
+ - I’m a pretty loyal guy with friends and family, I’ve had the same friends for a long time.
+ - I love having my hands in the dirt. It is never a science and always an art. There are no rules. And if it comes down to me versus that weed I’m trying to pull out of the ground that doesn’t want to come out? I know I’ll win.
+ - We dissect failure a lot more than we dissect success.
+ - If you want your hair to be thicker, cut it when the moon is about to be full – a heavy, full, waxing moon. Do not cut it when the moon’s waning.
+ - It’s nice when they notice the deep voice from across the house, and they know it’s papa. They know it’s Dad.
+ - When I’m surfing, I’m sure not thinking about the paparazzi. I guess if they start getting on floaties and coming out there in the water, then I might be a little upset.
+ - A drunk doesn’t try to stand up; a drunk tries not to fall down.
+ - A creep is someone who claims he’s one thing but he’s actually another.
+ - Cynicism can be funny. But it’s the easy way. You’ll forget to enjoy anything. I try to make the evolving choice, the forward-moving, life-giving choice. Just keep living, man.
+ - I love Los Angeles, and it’s been very good to me, but if everyone is running around telling the stories, who’s living them? You don’t play characters that are celebrities – you play guys who know what to do when their septic tank’s blocked.
+ - I’ve never been a manipulator, even in my bachelor days. I never wanted to do things to people that could catch up with me later on.
+ - I’m not trying to put on airs for anybody. I’m only trying to impress myself by doing the best job I can do.
+ - Romantic comedies are built to be light. They’re built for a certain buoyancy.
+ - I had a van that I customized so I could basically live out of that while I traveled and then I graduated to an Airstream. I’ve got three Airstreams now and they’re all customized different ways. The good thing about those is there’s not enough square footage to blow all your money.
+ - When I see grace in a woman, that’s very sexy. You can tell by how someone moves or their rhythm.
+ - We found a great rhythm. Contractions started kicking in. I sat there with her, right between her legs. We got tribal on it, we danced to it! I was DJ-ing this Brazilian music.
+ - Good ideas are free – or at least they should be.
+ - The challenge for me as an actor is if you become a celebrity, you don’t meet strangers anymore. And strangers are where we have our anonymity. And I believe it’s essential for the soul to be anonymous, especially if you’re going to be an actor.
+ - I don’t dabble and spend much mind or time dealing with, I don’t know, people’s perceptions of me. I truly don’t.
+ - Africa is probably one of the most beautiful places I have ever been.
+ - I personally don’t like to go see romantic comedies. But people do want to see them, and they seem to want to see me in them.
+ - It’s one of the things I love about making films: the places I’ve got to travel that I would never have gone to before.
+ - I love it. It’s silly to say that it is a world of false and stupid people. Sure there are witches and swindlers, but you can meet there many creative, talented and generous persons too. Hollywood is a pleasant place, when you are hip to the game and you enjoy it for what it is really.
+ - I’ve been wanting to have my own family since I was young. It just took me a while to find the perfect woman.
+ - I like to be able to wear something that is appropriate for wherever the day takes me: to work, on a hike and then out to dinner. I like to take the formality out of the day’s schedule and be ready for any off-road detour.
+ - I’ve never been a jealous person, and I’ve never felt built up by someone else’s failure – that’s a cheap thrill.
+ - Offers dried up after a few years and it was like I had fallen off the radar.
+ - I like quips. I like whiffs of cynicism and I think they can be witty. But I don’t really know where wittiness is constructive.
+ - I get it. You have the right to have guns. But look, let’s forget that right. Let’s forget the pleasure you get safely on your range, because it’s in the wrong hands in other places.
+ - I like having my hands in the clay. I like the movie-making process.
+ - My last name is originally Irish. I’m not exactly sure whereabouts it’s from, but I’ve got family branches that were traced back there.
+ - When I first starting making money, when I first made my first six-digits, I was – my big thing was I went to put super unleaded in my truck for the first time.
+ - I’m a golfer, and what are the two sports you can do till you drop? Golf and surfing. They’re great for you limber-wise, they’re great for you health-wise, and they put you in sweet locations.
+ - Cameras aren’t guns. They can’t really hurt you.
+ - If you can be mentally stimulated by the workout and find out how to get through it, it’s more fun.
+ - My favorite dish is cleaning out the fridge on Sunday night and improvising a great medley.
+ - Starting at about, I guess, forever, I’ve always looked forward to getting older. When I was 14, I couldn’t wait to be 16 and get a driver’s license.
+ - My experience in work, even going to work with Scorsese, is that people always think there’s some magic trick. There’s no magic trick. The people who are really good at what they do do simple things really, really well.
+ - There are certain nights you and your image just aren’t in the same bed.
+ - What the heck is true love? I remember feeling, back when I was 12 and ‘going’ with this girl, ‘Is this true love?’
+ - I don’t know how to work a room. It’s a real skill.
+ - I work through life with commas. I don’t even know, do you have parentheticals?
+ - A coach, especially at a college level – much more at a college or high school level, than at a pro level – you’re more of a teacher than an actual coach.
+ - As an actor for hire, my job is to do some pre-production work for myself. Then my job is to show up and give the best performance I can.
+ - I keep a diary – one for each film and foreign land I travel to.
+ - I got interested in the justice system. If I was, I’d probably be a defense lawyer. I was headed that way, but luckily changed my track to film school.
+ - Is it not lawful for me to do what I will with mine own?
+ - My whole family are hams. They’re storytellers and everyone outdoes the next one.
+ - Music is a really great creative tool for me, for different roles.
+ - The one thing that will be the bane of my existence with my kid will probably be the way he or she is most like me in some ways.
+ - I’ve done films where we don’t rehearse, and I’ve done films where we heavily rehearse. I like rehearsals.
+ - Having children has helped me become a better actor because they remind you to play make believe. It’s the ease and naturalness of their beings. They just play and it’s completely real for them at the time. As an actor, if we do it well, we make you believe.
+ - I’m obsessed with trying to understand what somebody is talking about and trying to get them to understand me.
+ - I think I can keep a rhythm to a beat, but there are quite a few people who would argue with me.
+ - The “Dazed” fans are the best! “Dazed” fans never even want an autograph or nothin’.
+ - See, ‘A Time to Kill’ was the one I got famous off of. Big ka-boom, over one weekend. After that, I did films that I really wanted to do.
+ - I’m not arrogant enough to look back on my career and criticize my choices. It’s really not my place.
+ - I like to be directed, but when I’m flying and I’m on fire, I don’t want someone coming and getting in my way just because they feel like they need to.
+ - Traveling is a great love of mine. I love South America and Africa. I’m your ultimate backpacker when I’m away. It’s just me and my backpack. It’s good for getting away from the industry.
+ - I hated repeating myself. The last films I’ve done – not once did I ever have the feeling that I was dialing it in.
+ - I talk to myself all the time. Just make sure you answer.
+ - I think the discipline comes with turning that cellphone and Blackberry off and unplugging completely. You do that and you go through some withdrawals in the beginning. You start thinking, ‘Oh, do I need to do this? Do I need to do that?’ You forget that we were doing just fine with the payphone.
+ - The first step that leads to our identity in life is usually not ‘I know who I am,’ but rather ‘I know who I am not.’
+ - For me, one of the toughest things about Valentine’s Day is that it gets geared up as the day to profess your love. See, T-E-S-T – that’s a bad word that doesn’t go with L-O-V-E.
+ - I like to customize things. I customized the back of old Lincoln to be my mobile office. I had one of those little laptop desks like in a police car, and I had a cooler in there, so that was my mobile office.
+ - Yes, it is the Big Easy, home of the shortest hangover on the planet, where libation can greet you on Monday morning with the same smile as it did on Saturday night.
+ - Absolutely not. I have no problem with commitment. In fact, I love having someone in my life.
+ - I like the ‘Alive’ part. Now I’ve made it. Wait until you see the roles I could take after this. You’re going to see my gut hanging over, plus 22lbs. It’ll be a whole new kind of sexy!
+ - I go on The Daily Beast. The Daily Beast is one of the websites that I check out.
+ - The best advice comes from people who don’t give advice.
+ - I think most defense attorneys know, to some extent, their clients are guilty.
+ - My lawyer has been a good friend of mine for a long time. He and I continuously have conversations.
+ - I love good film, whether it’s an independent or studio film. The independent films, I think the good ones aren’t necessarily eccentric ones but they’re the more specific ones.
+ - I’ve been in a couple of weddings where the coolest people that were the most day before so mellow and then the day of the wedding freaking out.
+ - I say to the paparazzi, ‘Fellas, take your shot and go.’ It’s just they usually find me on a beach.
+ - I’ve got a great sense of humor, and if I’m able to say or do something in a movie that people feel like they want to repeat, that’s hugely flattering.
+
+120 quotes

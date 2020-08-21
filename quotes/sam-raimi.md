@@ -1,0 +1,33 @@
+ - Every filmmaker knows that when you make a book into a movie, the first thing you have to do is kill the book, unfortunately. You’ve got to recreate it.
+ - I’m not certain, but I have a little gypsy blood in me. And my mother always told me that her grandma could give someone the evil eye, and I’d better not cross her because she had some of that blood in her. Mother always believed that she could predict the future, and she had dreams that came true.
+ - Well it’s always been an element of the horror film to show us the gross out. I mean that’s one option for all filmmakers making a horror film and it’s not something I’ve found myself above either.
+ - I used to get headaches in 3D movies, and I didn’t want the movie to give people headaches.
+ - My father told me to dress to reflect the respect you have for the people around you. I’ve never forgotten that.
+ - When we read stories of heroes, we identify with them. We take the journey with them. We see how the obstacles almost overcome them. We see how they grow as human beings or gain qualities or show great qualities of strength and courage and with them, we grow in some small way.
+ - That’s what heroic stories do for us. They show us the way. They remind us of the good we are capable of.
+ - I feel the horror audience is a great audience, and I would ideally make a movie that would give them as much energy as they’re willing to give to the picture.
+ - I’ve always been interested in the camera and the effects of it – that’s what drew me to film in the first place.
+ - Any time anyone makes a comic book into a movie, in some way, I think they have to kill the comic book.
+ - Nowadays everyone’s got the nose rings and the colored hair, so for me to wear the suit and tie is a different way to go.
+ - Every picture has been a learning opportunity for me.
+ - The domination of one’s spirit and mind is not a pretty thing, but I think it happens.
+ - I’ve always heard people’s criticisms twice as loudly as their praise.
+ - I realized what interested me as a student of film was one thing and the movies that I liked were another.
+ - If a remake is not good, no one wants to see it and, again, it doesn’t hurt the original.
+ - I don’t like movies about serial killers, necessarily; it’s too real and unpleasant for me.
+ - I’m too obsessed that the people who say critical things about me are right, even though I’m getting to do something I love.
+ - I don’t really approach stories to make them different from other stuff I’ve seen, I just try to get into the character, into his or her head. Try to make it as funny, as scary or as wild as I can so that I really like it.
+ - I had a reporter ask me what it was like to have my best years over so soon. It stayed with me.
+ - I like a good mono track, it’s right up front. I don’t need all the surrounds telling me there are birds in the neighbourhood.
+ - I think in every picture that I’ve ever made. Everything that I’ve done torments me. I really would like another chance except I’d be too embarrassed to ever really try to do them again and no one would want to see the same movie just done differently.
+ - It’s lovely being a producer. It’s really a lot of fun and I can learn a lot.
+ - I don’t like shows, I don’t like to put on a show, I just really want to work intimately with my actors.
+ - I’ve always worked with a team of actors and filmmakers ever since I was a kid in Michigan making Super-8 movies.
+ - I’ve always made sequels, even when I was making Super 8 movies if the audience liked it.
+ - I love cats. I’ve had cats as pets.
+ - Money opens up wonderful worlds of possibilities.
+ - R is for wussies if you’re talking about blood and guts.
+ - As I began making my feature films, it was a great adventure. It was about constructing something I saw in my head or I had designed on storyboards and capturing that on film.
+ - You know, I put my little brother in the movies and he’s still in the pictures. My mother makes me put him in the pictures.
+
+31 quotes

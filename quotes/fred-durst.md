@@ -1,0 +1,71 @@
+ - The future is easy because it doesn’t exist; but the past is painful because it lives forever.
+ - That’s your best friend and your worst enemy – your own brain.
+ - To walk around with an ego is a bad thing. To have confidence in yourself is a great thing.
+ - I want to clear my mind a little bit and give my mind a little bit of time to breathe so I can pinpoint or at least nail down feelings I’m having and that I’ve had for the last however long. I need to nail them down long enough to actually write about and elaborate on them.
+ - I love electronic music, and I love drum and bass.
+ - I love jazz music and sad music.
+ - Everybody loves the underdog, and then they take an underdog and make him a hero and they hate him.
+ - I’m OCD beyond comparison.
+ - I love jazz music and sad music. I’m a sentimental guy. I’m a romantic guy.
+ - There’s some people who are not understanding what Limp Bizkit is about. But, then again, who am I to tell people what they can use art for or how they can interpret it?
+ - I’m 38 years old and Limp Bizkit is just something I do. If I was a painter, it would just be a type of painting I make.
+ - I think the key is to realize that life is temporary and spending life questioning life is a waste of time.
+ - I made a lot mistakes that I’m grateful for, because I won’t make them again and I won’t let my artists make them, or I’ll tell them, ‘Don’t do this.’ A lot of them still make them anyway, but you can’t be told things when you’re doing your own thing.
+ - If you wanna know how not secure you are, just take a look around. Nothing’s secure. Nothing’s safe. I don’t hate technology, I don’t hate hackers, because that’s just what comes with it, without those hackers we wouldn’t solve the problems we need to solve, especially security.
+ - Prague is a dark place.
+ - I didn’t want to do a throwaway, mindless movie with fart jokes just to make 6-year-olds laugh. I want to provide my children with some substance.
+ - I’m a sensitive guy; I respond to things that make my eyes well up a little bit, or make me root for people. I find the human condition interesting.
+ - I’m a sentimental guy.
+ - Limp Bizkit Ice Cream would taste like the sweetest pair of panties in the world. It would taste like sushi. Sushi or panties.
+ - I wouldn’t support Limp Bizkit being on some snuff backyard brawling, fighting contest.
+ - I’m always looking for new talent.
+ - There’s definitely an obstacle in developing a brand for yourself that people can rely on when you’re so eclectic.
+ - I loved the Cure and Bauhaus and the Smiths. The people in my town weren’t privy to that kind of music and I got abused. I discovered the microphone to get out some of that angst.
+ - When you reminisce aren’t the times that someone’s forcing you to reminisce. You reminisce other times in your life.
+ - One of the things that was confusing about Limp Bizkit to some people is that our tastes were very different.
+ - I usually find several ways to express myself: different moods, different days, different voices, different things, ‘I’m lighthearted today, I’m gonna do this.’
+ - My life. The life I’m living that’s where all my inspiration comes from. Real life experiences.
+ - Once you get in a position where your rent is taken care of and you do have a job, you really get to deal with yourself and really become one with yourself. And you wake to your mind every day. That’s your best friend and your worst enemy – your own brain.
+ - Without those hackers, we wouldn’t solve the problems we need to solve, especially security.
+ - There’s an insecure part of me that comes out of me, I get nervous. I don’t know why, I wish I could overcome it because it gives me an anxiety feeling.
+ - I don’t think my name would necessarily draw people to come see the movie. It might hurt the movie, honestly.
+ - Sometimes you feel like it’s cursed when something takes so long to come out and you don’t know if it’s going to really come out.
+ - When Wes came back to Limp Bizkit, we really wanted to do something different. We wanted to make a core record that we didn’t care who liked or who disliked.
+ - When life was worrying about a car payment or a rent payment and a bill, you’re so consumed with that, you really don’t have time to know yourself. That’s surviving and getting by.
+ - I’ve been around golf my whole life. My father did it all the time, and I resented him for it. But a couple years ago I picked up a golf club and I understood the physics of it. If anyone knows anything about golf, it’s that once you hit a few shots, you’ll become addicted.
+ - Being in front of all these people staring at you and it helps you to dig down and become more emotional and get lost in it as you’re feeding on people’s energy.
+ - Emotionally, I was affected a lot by Rage Against the Machine, not specifically the literal intention of the words or what it was about, but the feel, the sound, those phrases that got me.
+ - You know, in my music career there was a moment where the irony was just so heavy. There were people in my audience that were the reason I developed neuroses. These people that tortured my life were using my art, my poetry, as fuel for them, to torture other people.
+ - Sometimes I feel like I used to be a person that liked to express himself a lot and put my feelings out there.
+ - Imperfections make someone perfect to me.
+ - Anybody who wears their feelings on their sleeve and has a harder, crusty shell – like I do – is definitely protecting an inner sensitivity.
+ - When you’re a kid, you see your parents reading the newspaper and you’re like, ‘God, why are they reading the newspaper?’ When you’re young, you’re not reading the newspaper. But there comes a time in your life when the newspaper’s cool.
+ - It’s not about how much movement you do, how much interaction there is, it just reeks of credibility if it’s real. If it’s contrived, it seems to work for a while for the people who can’t filter out the real and unreal.
+ - I’m in touch with the social networks and stuff.
+ - It’s amazing how, over time, a person’s perspective can be altered.
+ - I’m definitely on the incline to a peak.
+ - Directing a film is a lot of work.
+ - When I look back on my knee-jerk reactions now, I realize I should have just taken a breath.
+ - I don’t fight people for fun.
+ - I was a kid who got picked on in school, and now the guys beating up those kids were wearing red caps and using my music to fuel that aggression. But if they listen to the lyrics, the aggression is targeted at them.
+ - My Web site, everything I write in there is from me.
+ - People evolve and grow, and life is fascinating and fun and tragic.
+ - I have always been Fred Durst and I’ve always been me.
+ - Directing a movie is serious, it’s not a joke.
+ - I love finding EPs for bands that you just discover.
+ - I’m my own salesman. I can’t let anybody do anything for me.
+ - When I go to shows, I’m really looking forward to hearing the songs I know. I don’t like it when a band tries to expose me to new stuff.
+ - I stopped predicting the future a long time ago.
+ - I’ve always wanted to make movies.
+ - I’m obsessed by film. I’m obsessed with music and producing and making things happen.
+ - And touring is difficult when everybody’s heads aren’t in the same place.
+ - Our music has always been instant reactive and I guess taking our time to absorb things and say what you really want to say could be much more offensive than anything we’ve ever done.
+ - I was a kid who got picked on in school and got beat up by popular, athletic soccer-type people.
+ - I’m an actor’s director. I love it when talented actors can bring characters to life.
+ - I do think that some bands seem to be dabbling in the rock-hip-hop world and are not necessarily serious about it.
+ - I’m the same guy at that podium preaching to the people on every single song. I’m not doing a dance for you on another song. It’s all a direct assault.
+ - As much as I want to go out and tour every single day and I’m ready to rip it right now, there’s five people in the band, there’s five people who’ve evolved and grown and there’s five people who have to get on the same page and want the same things, and it takes a lot to tour.
+ - I love collaborating.
+ - I won’t deny a song or a melody. I can’t deny it.
+
+69 quotes

@@ -1,0 +1,79 @@
+ - God’s timing is always perfect. Trust His delays. He’s got you.
+ - A kingdom man is the kind of man that when his feet hit the floor each morning the devil says, “Oh crap, he’s up!”
+ - Sometimes God lets you hit rock bottom so that you will discover He is the Rock at the bottom.
+ - Faith is acting like God is telling the truth.
+ - Don’t worry about locating your purpose. If you are seeking after God, your purpose will locate you.
+ - Faith doesn’t make sense. It makes miricles.
+ - You cannot change the way you feel until you change the way you think because your thoughts will determine the way you feel.
+ - Brokenness is often the road to breakthrough. Be encouraged.
+ - The Proverbs 31 woman is not the model of a perfect woman. She is the model of a committed woman under God.
+ - God is the source. Everything else is a resource.
+ - Prayer is the means by which God has established for God’s people to invite the spiritual into the physical, and the invisible realm into the visible realm.
+ - Jesus wants men who will rule well.
+ - Insisting on living in your past will kill your future. Let it go.
+ - A kingdom man is a man who visibly demonstrates the comprehensive rule of God underneath the Lordship of Jesus Christ in every area of his life.
+ - Peace doesn’t mean that you will not have problems. Peace means that your problems will not have you.
+ - Because Jesus Christ is a man, He feels what we feel. Because He is God, He can do something about it.
+ - If the Lord is your shepherd, He is sufficient for all your needs.
+ - Men, God is not opposed to greatness. God is opposed to pride. Big difference. Unfortunately, it is a difference not widely understood or embraced.
+ - Young men need a positive influence, especially when they don’t have a strong male figure in their lives. They can be influenced by a great, godly man in the church, which gives men a great mission in the church to influence these kids.
+ - It’s easier to shape a child than to repair an adult.
+ - Faith is not about how much you believe in what you believe. Faith is about believing that the One you believe in is believable.
+ - God established the family as the foundation of civilization.
+ - God can take the good, bad and the bitter and create a masterpiece called your destiny.
+ - Don’t wait until you are a big shot to do big shot things.
+ - The Bible is the voice of God in print.
+ - A kingdom man understands that God never said a godly life would be easy; He just said it would be worth it.
+ - God doesn’t need a lot to do a lot. All David had was five stones. And all David used was one.
+ - There is no area of life that does not have a biblical worldview attached to it.
+ - Men, you are in a battle. You are in a war. The stakes of this war and its casualties are higher than a checkmark in the win or loss column. Lives will be lost. Eternities will be shaped. Destinies will either be discovered or dismissed. Dreams will be attained or relinquished.
+ - His enemies had counted on the lions taking care of Daniel. What they hadn’t counted on was his God taking care of Daniel.
+ - As created beings, angels are not to be worshipped, glorified, or adored in and of themselves. The angels were created to worship, glorify, adore, and obey God.
+ - A kingdom always includes three fundamental components: a ruler, a realm of subjects who fall under his rule, and the rules or governances.
+ - Paul, we are going to kill you. That is cool, then I will go to Christ. Ok Paul, we are going to let you live. That is great, then I can witness Christ. Ok, then we will torture you. That is fine, then I will receive a reward in Heaven one day.
+ - Disciples are people who operate under the rule of God, and if we’re not operating under the rule of God, we can’t expect the broader society to take God seriously.
+ - You entrust your money to banks, God entrusts His money to you. How would you feel if the bank took your money and used it to play the lottery or gamble with it? So, how does God feel?
+ - I believe that feminists of the more aggressive persuasion are frustrated women unable to find the proper male leadership. If a woman were receiving the right kind of love and attention and leadership, she would not want to be liberated from that.
+ - The more people marginalize the true God of the Bible the more chaotic things become.
+ - One of the reasons so many singles are dissatisfied is that they’re looking for a change in status to define their significance, rather than finding a purpose in life, granted by God, that gives them significance regardless of the status they’re in.
+ - Many of us are being held hostage by bitterness because we are not willing to give to others what we have been given.
+ - Never has our nation, or our world, stood on the precipice of adversity in such dire need of men answering the cry to rule well.
+ - A man who brags about satisfying 30 women is immature. A real man is one who can satisfy the same woman for 30 years.
+ - It often takes the darkness of a storm to show us the light of God’s presence.
+ - Other men look to him as someone to emulate. His church calls on him for strength and leadership. He is a preserver of culture and a champion of society to keep out evil and usher in good.
+ - Sometimes God lets you be in a situation that only He can fix so that you can see that He is the One who fixes it. Rest. He’s got it.
+ - If God can’t get the attention of the church house, He’s certainly not going to stop by the White House.
+ - Don’t you understand, mister, you are royalty and God has chosen you to be priest of your home?
+ - When you understand the values of God’s kingdom, you will best understand His agenda.4 However, it is my conviction that the message of the kingdom, and the values therein, are sorely lacking in understanding today.
+ - If God is your problem, only God is your solution.
+ - If you have faith, you can do what others can’t do, because you can see what others can’t see.
+ - The demise of our community and culture is the fault of sissified men who have been overly influenced by women.
+ - The primary role of the church is to reflect God’s value system in society and to train people in that value system. It’s not the government’s responsibility, nor are they equipped to do that on the most local level where the need exists.
+ - Thanksgiving is not just a warm, cozy holiday. It’s not merely a time of recreation and relaxation and watching football all day. As we give thanks, we need to put our mind, soul and spirit into our thanks and into our praise.
+ - These systems attempt to box God into a government confined within the perspective of man. Yet when humanity is used as the starting point for interpreting and interacting with God’s creation, faulty theology and sociology emerge as mankind attempts to fashion God into the image of man.
+ - Every voting choice you exercise ought to be for the candidate, platform, party, or policy that will best represent the values of the kingdom of God.
+ - The primary cause of this national crisis is the feminization of men.
+ - God only promises to bless the nation that recognizes His authority.
+ - The reason so many believers are struggling is that we have voted in the past asking God to bless our plans rather than casting our votes based on seeking His agenda. We want God to sign off on our decisions rather than us following His.
+ - Even though Eve ate the fruit first, God went looking for Adam. It had been Adam whom God had revealed himself to as LORD God in the context of giving Adam divine instruction.
+ - My fellow believers, it is time to return to the Book. It is time to look to the one source that holds the answers for how our country should operate, the Bible.
+ - As a believer and a child of the King, to consider casting a vote for someone or for something that would go against what God would vote for ought to be out of the question.
+ - If you limit worship to where you are, the minute you leave that place of worship you will leave your attitude of worship behind like a crumpled-up church bulletin.
+ - Trials are to see if you believe what you say you believe.
+ - God can take your most monstrous failures and turn them into triumphs such as you never could imagine.
+ - When it comes to politics and elections, far too many Christians spend more time appealing to family, history and tradition, culture, racial expediency, and personal preference than they do to what the Bible teaches.
+ - Many, if not most, Christians begin with the wrong question of who they should vote for rather than the more important question of how they should vote.
+ - The real issue at hand is how God is going to respond to a culture when the majority of the people seek to veto Him.
+ - People wonder why they have so little of God when God has so little of them.
+ - You cannot read the Bible and ignore the political realm.
+ - Churches are having a limited impact on society because they fail to understand that the goal of the church is not the church itself but the kingdom.
+ - As a result, socialism and communism, in particular, use government to suppress religion to such a degree as to leave the one true God out entirely.
+ - Unless God and His revealed Word is the overarching influencer and rationale over how our electoral decisions are made as believers, then we cannot expect God to be the overarching influencer in our nation.
+ - Scripture would not only solve the individual and family divisions, but it would also solve the ecclesiastical confusion.
+ - One of the major failures of the church is not a focus on building disciples but a focus on building members.
+ - God is in charge, and alone sits as the ultimate government over His creation. All other governments are then to reflect His ultimate rule.
+ - In fact, it is precisely because we have changed books that the chaos in our country has gotten worse than ever before.
+ - The primary component upon which all else rests in a kingdom is the authority of the ruler. Without that, there is anarchy resulting in mess.
+ - Churches must extend their influence beyond the lives of church members to impact the broader community that they serve.
+
+77 quotes

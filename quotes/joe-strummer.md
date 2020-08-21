@@ -1,0 +1,46 @@
+ - The future is unwritten.
+ - Don’t write slogans, write truths.
+ - I’m far more dangerous now, because I don’t care at all.
+ - Punk rock isn’t something you grow out of Punk rock is an attitude, and the essence of that attitude is ‘give us some truth’
+ - Strummer’s Law: No input, no output.
+ - There is nothing more common than unsuccessful men with talent.
+ - The way you get a better world is, you don’t put up with substandard anything.
+ - The toughest thing is facing yourself. Being honest with yourself, that’s much tougher than beating someone up. That’s what I call tough.
+ - We aren’t particularly talented. We try harder!
+ - I like to read because it’s the opposite of being on the go. Reading is the perfect antidote.
+ - All the power’s in the hands of people rich enough to buy it.
+ - When you blame yourself, you learn from it. If you blame someone else, you don’t learn nothing, cause hey, it’s not your fault, it’s his fault, over there.
+ - People can change anything they want to, and that means everything in the world.
+ - With The Simpsons you can go back to work with a keen heart.
+ - Everyone has got to realise you can’t hold onto the past if you want any future. Each second should lead to the next one.
+ - Greed, it ain’t going anywhere. They should have that in a big billboard across Times Square. Without people you’re nothing.
+ - It is fun to be alive. It’s a hell of a lot better than being dead.
+ - There is a time to dance to techno and a time not to.
+ - I don’t want to look back. I want to keep going forward, I still have something to say to people.
+ - If you ain’t thinkin about man and God and law, then you ain’t thinkin about nothin’.
+ - My motto is, ‘What’s the hurry?’ I’m trying to get it across to the modern world that we need to sit around and think a little bit more.
+ - I have a weird life because I live on songwriting royalties, which are a strange income. Sometimes it rains, sometimes it doesn’t.
+ - I like to just feel how I feel and not worry about it really.
+ - You’ve gotta be slightly stupid.
+ - A lot of the time I’m semi-insane, but there is a slight bit of intelligence there.
+ - In fact, punk rock means exemplary manners to your fellow human beings.
+ - I don’t have any other message than don’t forget you are alive.
+ - Nonsmokers should be banned from buying any product a smoker created.
+ - If I had five million pounds I’d start a radio station because something needs to be done. It would be nice to turn on the radio and hear something that didn’t make you feel like smashing up the kitchen and strangling the cat.
+ - When you’re out to get the honey you don’t go killing all the bees.
+ - The only place I considered home was the boarding school, in Yorkshire, my parents sent me to.
+ - The hippy movement was a failure.
+ - Yeah, all those things, responsibility, pressure. It’s a bit stressful. I try and come to terms with it by not thinking about it.
+ - We’re all going to have to learn to live together and develop a greater tolerance and get rid off whatever our fathers gave us in the way of hatred between nations.
+ - Authority is supposedly grounded in wisdom, but I could see from a very early age that authority was only a system of control and it didn’t have any inherent wisdom. I quickly realised that you either became a power or you were crushed.
+ - You have the right not to be killed, unless it was done by a policeman or an aristocrat.
+ - If they can’t hear it, they’re not supposed to hear it. It’s not for them if they can’t understand it.
+ - I want to grow up with my audience. I don’t expect to be getting through to the younger pop crowd. I learned that from Paul Simon.
+ - All hippies around now just represent complete apathy.
+ - Anybody who makes speeches written by someone else is just a robot.
+ - There isn’t a town in the world I haven’t run amok in.
+ - I’m kind of like one of those people that picks up small and interesting bits of wood and doesn’t want to let go of them. Or, you know, I’m fascinated with the wrapper on a sardine can. A little cuckoo.
+ - For me the music is a vehicle for my lyrics. It’s a chance to get some really good words across.
+ - I think we’re going to have to forget about the radio and just go back to word of mouth.
+
+44 quotes

@@ -1,0 +1,96 @@
+ - She stood in the storm, and when the wind did not blow her way, she adjusted her sails.
+ - Resilience is accepting your new reality, even if it’s less good than the one you had before. You can fight it, you can do nothing but scream about what you’ve lost, or you can accept that and try to put together something that’s good.
+ - Resilience is accepting your new reality, even if it’s less good than the one you had before.
+ - I’m not praying for God to save me from cancer. I’m not. God will enlighten me when the time comes. And if I’ve done the right thing, I will be enlightened. And if I believe, I’ll be saved. And that’s all he promises me.
+ - Brave people are the firemen who run into the burning building. That’s brave.
+ - Concentrate on the things that matter to you.
+ - I love children, love spending time with them; I love getting things for them.
+ - I think self-knowledge is the rarest trait in a human being.
+ - My job is to stay alive until the medicine and research catch up.
+ - Part of resilience is deciding to make yourself miserable over something that matters, or deciding to make yourself miserable over something that doesn’t matter.
+ - You’re young. Maybe there’ll be time for a do-over if you don’t get it right the first time. But there are no guarantees. There will come a time as it has for me when there’s no time for a do-over.
+ - I took my son’s name. I didn’t take my husband’s name.
+ - It takes a lot of work to put together a marriage, to put together a family and a home.
+ - I was a 16-year-old girl at one point, so of course I wrote poetry.
+ - My heart goes out to the grieving parents who lost their two-year-old or their newborn.
+ - I’m not a victim – I never want to be perceived that way.
+ - The days of our lives, for all of us, are numbered. We know that. And yes, there are certainly times when we aren’t able to muster as much strength and patience as we would like. It’s called being human.
+ - But I have found that in the simple act of living with hope, and in the daily effort to have a positive impact in the world, the days I do have are made all the more meaningful and precious. And for that I am grateful.
+ - This diagnosis is a reminder that this is the life you’ve got. And you’re not getting another one. Whatever has happened, you have to take this life and treasure and protect it.
+ - You know, everybody knows some of what politicians say is malarkey, and having somebody there to call them on it is good. I’d be happy to do that any time and any place.
+ - Growing up in an Italian family, you use a harsh tone and 10 minutes later everybody forgets about it.
+ - You know, I once read a short story about how much you could tell about people from their shoes. You could tell where they had been, what they did, whether they were real walkers.
+ - Maybe we all change over time.
+ - You all know that I have been sustained throughout my life by three saving graces – my family, my friends, and a faith in the power of resilience and hope. These graces have carried me through difficult times and they have brought more joy to the good times than I ever could have imagined.
+ - The worst thing to me would be that you put on the face you think people want to see, and then they don’t like it and you think, Would they have liked the real me?
+ - I’m a recovering lawyer. The practice of law has changed. Every agreement is a fight.
+ - Either you push forward with the things that you were doing yesterday or you start dying.
+ - A positive attitude is not going to save you. What it’s going to do is, everyday, between now and the day you die, whether that’s a short time from now or a long time from now, that every day, you’re going to actually live.
+ - I have a husband who adores me.
+ - You recognize a survivor when you see one. You recognize a fighter when you see one.
+ - To be perfectly frank, there is an odd place after losing a child, where you think somehow your life is worth less.
+ - Those who need a champion cannot afford compromise, in the face of forces that are powerful, persistent and pernicious and greedy.
+ - Life is this great big blackboard, and on it you write all the things that you do.
+ - The military is already sexually integrated.
+ - If people think that you’re throwing babies out, dissecting children, to do stem-cell research, I’m not for that.
+ - Successful health reform must not just make health insurance affordable, affordable health insurance has to make health care affordable.
+ - There is nothing about resilience that I can say that my father did not first utter silently in eighteen years of living inside a two-dimensional cutout of himself.
+ - It’s more likely in America that your parents will file for bankruptcy than divorce. We think of divorce as so prevalent, but we all know that happens because somebody moves out of the house.
+ - I have less energy than I did when I was a younger parent, although I was never really a young parent.
+ - Everybody has their burdens, their grief that they carry with them.
+ - I’m actually one of those people who get up energetic in the morning.
+ - Leave me if you must, but be faithful to me if you are with me.
+ - I want to reclaim who I am.
+ - You have to have enough respect for other human beings to leave their lives alone. If you admire that life, build it for yourself. Don’t just try to come in and take somebody else’s life.
+ - A lot of people have great hope, and a lot of people who have great hope live. And, some of them who have great hope die. So it’s not that hope is going to save you.
+ - I don’t expect to get yesterday’s medicine. If I can help it, I’d like to get tomorrow’s medicine.
+ - Compromise today is too often applauded simply for itself. The cost of compromise to principles and real lives doesn’t seem to matter.
+ - We’re all going to die.
+ - We have a middle class that lives on a razor blade. So sometimes when you say poverty, you neglect a large portion of the population.
+ - I think I did marry a marvelous man.
+ - I can’t turn on the television without seeing me, or open the newspaper without seeing me and, honestly, I’m sick to death of me.
+ - My father had gone to Vietnam.
+ - I’m not worried about me or what’s going to happen to me.
+ - A lot of sad stories in a row – that wears on you.
+ - I was an English major in college, and then I went to graduate school in English at the University of North Carolina for three years.
+ - You don’t have to be perfect; you just have to be open.
+ - You wouldn’t know I was sick unless you knew I was sick.
+ - I grew up in a Navy family.
+ - Part of what I want to do is sort of reclaim my story – it belongs to me and to my children, who have to live with whoever their mother is.
+ - Sometimes you get politicians who dig their feet into the sand and aren’t willing to listen to another voice.
+ - It’s just a part of our nature to hope.
+ - You never know when something’s going to hit you in a particular way and just knock you loose.
+ - My job as the mother of daughters is to make sure my children see that every opportunity is available to them.
+ - I’ve had to come to grips with a God that fits my own experience, which is, my God could not be offering protection and not have protected my boy.
+ - People find it a great blessing if their child left behind a child.
+ - I have a lot that I intend to do in this life.
+ - I have an obligation to try to live as long as I can for my family.
+ - Tabloid news is tabloid news.
+ - By what you do, you teach your children how to respond to difficult information.
+ - You know, there are no guarantees on prognosis.
+ - In a sense, having cancer takes you by the shoulders and shakes you.
+ - If I say something that ends up on the front page of Drudge, I haven’t done it right.
+ - One of the things that I think you see sometimes in politics is a certain degree of caution. It’s usually advised by consultants who don’t want to see you march to the end of a limb.
+ - I would have made different choices. You know, I might have married somebody else.
+ - Every parent has gone through a period when their child wasn’t so happy with them.
+ - Almost everybody embraces life.
+ - I think that it is our intention to deny cancer any control over us.
+ - I think being an effective First Lady is first of all being the partner that your husband needs.
+ - I have three living children for whom this is a father who I want them to love and on whom they’re going to have to rely if my disease takes a bad turn.
+ - I’ve spent a lot of words on my own mortality.
+ - Everybody makes personal decisions that are right for them and if you’re in political life, you’re used to having those analyzed.
+ - I don’t know why someone else’s marriage has anything to do with me.
+ - Whenever anyone pulls out of the race, you know, unless they’ve just been trounced in the days before, there’s also – always a lot of questions about why that happened.
+ - The photograph contains and constrains within its own boundaries, excluding all else, a microcosmic analogue of the framing of space which is knowledge. As such it becomes a metaphor of power, having the ability to appropriate and decontextualize time and space and those who exist within it.
+ - I’m part of a community that holds each other up, and it’s been great to be held up too.
+ - Honestly, I get energized by the crowds. They feed me emotionally.
+ - The way campaign funds are distributed are all a matter of record.
+ - I’ve had experiences that, you know, really couldn’t be replaced.
+ - We were never a family that had a lot. We had enough, but not a lot.
+ - I do think voters do take into consideration – particularly early state voters – take into consideration a wide range of factors, including electability, and they know that part of electability is the total package that you’re presenting.
+ - I think that we’re foolhardy to not be engaging in federal funding of stem-cell research in the most aggressive way we possibly can.
+ - I come out of real life.
+ - What happened after Katrina is that people were stirred to action; there were an enormous number of contributions by people trying to make a difference. But then we forget. We’ve forgotten Katrina victims, we’ve forgotten the face of poverty.
+ - I certainly have a lot to lament, as do we all, everybody has their griefs. But the griefs we can fix, shouldn’t we go around fixing them?
+
+94 quotes

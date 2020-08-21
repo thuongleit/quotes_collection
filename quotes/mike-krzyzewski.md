@@ -1,0 +1,151 @@
+ - Effective teamwork begins and ends with communication.
+ - A basketball team is like the five fingers on your hand. If you can get them all together, you have a fist. That’s how I want you to play.
+ - Champions play as they practice. Create a consistency of excellence in all your habits.
+ - Our goal is not to win. It’s to play together and play hard. Then, winning takes care of itself.
+ - The truth is that many people set rules to keep from making decisions. Not me. I don’t want to be a manager or a dictator. I want to be a leader-and leadership is ongoing, adjustable, flexible, and dynamic. As such, leaders have to maintain a certain amount of discretion.
+ - Always get back to your core principles.
+ - In leadership, there are no words more important than trust. In any organization, trust must be developed among every member of the team if success is going to be achieved.
+ - In order to be a winner, you have to look for ways of getting things done and not for reasons why things can’t be done. People who live with excuses have things that can’t be done hovering around them all the time.
+ - Two are better than one if two act as one.
+ - My hunger is not for success, it is for excellence. Because when you attain excellence, success just naturally follows.
+ - If what you have done yesterday still looks big to you. You haven’t done much today.
+ - People want to be on a team. They want to be part of something bigger than themselves. They want to be in a situation where they feel that they are doing something for the greater good.
+ - Courage gives a leader the ability to stand straight and not sway, no matter which way the wind blows.
+ - A common mistake among those who work in sport is spending a disproportional amount of time on “x’s and o’s” as compared to time spent learning about people.
+ - Courage and confidence are what decision making is all about.
+ - A leader may be the most knowledgeable person in the world, but if the players on his team cannot translate that knowledge into action, it means nothing.
+ - A team is a fist-not five fingers.
+ - When a leader takes responsibility for his own actions and mistakes, he not only sets a good example, he shows a healthy respect for people on his team.
+ - I believe work is good. There is dignity in work. I also believe that a hard-work ethic forges strong leaders.
+ - It takes courage not only to make decisions, but to live with those decisions afterward.
+ - When you first assemble a group, it’s not a team right off the bat. It’s only a collection of individuals.
+ - I have a rule on my team: When we talk to one another, we look each other right in the eye, because I think it’s tough to lie to somebody. You give respect to somebody.
+ - You don’t just be a team. You become a team. Through tough games you find that you need each other.
+ - Leaders have to search for the heart on a team, because the person who has it can bring out the best in everybody else.
+ - You can’t defer if you’re the person who’s in the leadership position.
+ - Effort is fully replenishable. There is no need to save any of it. Leave every bit you have on the playing field.
+ - There are five fundamental qualities that make every team great: communication, trust, collective responsibility, caring and pride. I like to think of each as a separate finger on the fist. Any one individually is important. But all of them together are unbeatable.
+ - When you are passionate, you always have your destination in sight and you are not distracted by obstacles. Because you love what you are pursuing, things like rejection and setbacks will not hinder you in your pursuit. You believe that nothing can stop you!
+ - I have a plan of action, but the game is a game of adjustments.
+ - To me, teamwork is the beauty of our sport, where you have five acting as one. You become selfless.
+ - Discipline is doing what you are supposed to do in the best possible manner at the time you are supposed to do it.
+ - In leadership, there are no words more important than trust.
+ - Play and practice like you are trying to make the team.
+ - People have to be given the freedom to show the heart they possess. I think it’s a leader’s responsibility to provide that type of freedom. And I believe it can be done through relationships and family. Because if a team is a real family, it’s members want to show you their hearts.
+ - Leaders show respect for people by giving them time.
+ - Imagination has a great deal to do with winning.
+ - Every season is a journey. Every journey is a lifetime.
+ - Growth creates complexity, which requires simplicity.
+ - For a college basketball player or coach, to reach the Final Four is la-la land. You’ve achieved, you’ve got your stamp of approval. My first team to do that was in 1986. Then we did it in ’88, ’89 and ’90.
+ - The person who has inspired me my whole life is my Mom, because she taught me commitment. She sacrificed.
+ - In developing teams, I don’t believe in rules. I believe in standards. Rules don’t promote teamwork, standards do.
+ - You develop a team to achieve what one person cannot accomplish alone. All of us alone are weaker, by far, than if all of us are together.
+ - In our program, the truth is the basis of all we do. There is nothing more important than the truth because there’s nothing more powerful than the truth. Consequently, on our team, we always tell each other the truth. We must be honest with one another. There is no other way.
+ - Friendships, along with love, make life worth living.
+ - I never want to lead a team that is not allowed the freedom to pursue what’s in their hearts. If you want your team to be fully committed, then you’d better be fully committed.
+ - That’s why basketball was so good, because I didn’t really need you or anyone else to play it. It would be better if we played four-on-four or five-on-five, but I could go out there alone.
+ - During critical periods, a leader is not allowed to feel sorry for himself, to be down, to be angry, or to be weak. Leaders must beat back these emotions.
+ - I think coaching is confused at times as being an arrow that only goes to a player. Those players send arrows back to you, and that’s where a relationship is developed. I don’t make a player, and a player doesn’t make me a coach. We make each other.
+ - I had a really bad temper, when I was growing up. Sport helped me channel that temper into more positive acts.
+ - Never delegate. Always empower.
+ - Almost everything in leadership comes back to relationships.
+ - In putting together your standards, remember that it is essential to involve your entire team. Standards are not rules issued by the boss; they are a collective identity. Remember, standards are the things that you do all the time and the things for which you hold one another accountable.
+ - If a team cannot perform with excellence at a moment’s notice, they probably will fail in the long run.
+ - Confidence shared is better than confidence only in yourself.
+ - I’m looking for players who make their teammates better. You do that with enthusiasm and passion.
+ - You start developing a championship attitude by, first of all, telling kids that they are really good and that they have the potential to become better.
+ - Whatever a leader does now sets up what he does later. And there’s always a later.
+ - The truth is that many people set rules to keep from making decisions.
+ - I think you’re not a human being unless you have doubts and fears.
+ - Never let a person’s weakness get in the way of their strength.
+ - I think some parents now look at a youngster failing as the final thing. It’s a process, and failure is part of the process. I would like it if the teacher and the parents would connect more. I think that used to be, but we’re losing a little bit of that right now.
+ - Defense is one man guarding the ball and four others helping him.
+ - Don’t do anything as an individual that will make you stand out from your teammates.
+ - I’ve tried to handle winning well, so that maybe we’ll win again, but I’ve also tried to handle failure well. If those serve as good examples for teachers and kids, then I hope that would be a contribution I have made to sport. Not just basketball, but to sport.
+ - Encourage members of your team to take the initiative and act on their own.
+ - Goals should be realistic, attainable, and shared among all members of the team.
+ - Great rivalries don’t have to be built on hatred. They’re built on respect, on a respect for excellence.
+ - As a leader you can get sidetracked but you have to complete your mission.
+ - A leader has to show the face his team needs to see.
+ - A leader’s responsibility to his team is paramount. It overshadows even his own personal feelings at any given time.
+ - That’s what I do now: I lead and I teach. If we win basketball games from doing that, then that’s great, but I lead and teach. Those are the two things I concentrate on.
+ - There are always those times when you’re going to be down. It’s how you step through it that makes you the person you are.
+ - Throughout the season, I look into my players eyes to gauge feelings, confidence levels, and to establish instant trust.
+ - Making shots counts, but not as much as the people who make them.
+ - In high school, in sport, I had a coach who told me I was much better than I thought I was, and would make me do more in a positive sense. He was the first person who taught me not to be afraid of failure.
+ - I don’t look at myself as a basketball coach. I look at myself as a leader who happens to coach basketball.
+ - Confrontation simply means meeting the truth head-on.
+ - There are kids don’t want to do something because they’re afraid of looking stupid to their peers. There comes a time when they start protecting themselves, instead of extending. I want to make sure that they’re always trying to extend themselves.
+ - You should do things because of what your expectations are of yourself.
+ - Turning down the Lakers was tough, but it is always good to renew your vows to the loves of your life.
+ - I believe a big part of leadership is about winning the moment.
+ - Why do you play a game? I play a game to see how good we can be.
+ - Fun is to experience things you would not have been able to experience in any other setting.
+ - You cannot merely expect culture to be a natural occurrence; it has to be taught and made a part of your everyday routine.
+ - Mutual commitment helps overcome the fear of failure – especially when people are part of a team sharing and achieving goals. It also sets the stage for open dialogue and honest conversation.
+ - I’ve been so fortunate in my life that my family has never been jealous of my success. They have shown true love and commitment to me by being supportive. They shared in it.
+ - Sometimes in a defeat, you can set the stage for future victory. I wanted them to feel good about what they had accomplished. Not to like losing, but to like the success that they had.
+ - My mom gave me unconditional support and unfailing love. You can’t get any better than that. That’s why I’ve never been afraid to lose.
+ - When you cleanse yourself of a big victory, you may open yourself up to the opportunity for an even bigger victory.
+ - As teachers and coaches, we must remember that when mere winning is our only goal, we are doomed to disappointment and failure. But when our goal is to try to win, when our focus is on preparation and sacrifice and effort instead of on numbers on a scoreboard then we will never lose.
+ - Believe that the loose ball that you are chasing has your name wirtten on it.
+ - Footwork is one of the primary prerequisites to becoming a great player.
+ - One of the worst things anybody can do is assume. I think fools assume. If people have really got it together, they never assume anything. They believe, they work hard, and they prepare- but they don’t assume.
+ - I’m still not a great reader, but my wife is and my daughters are, and I envy them. I think I got into a bad habit of trying to do something all the time, instead of trying to sit down and take my time a little bit.
+ - I think leadership is never singular. In a good organization, it’s plural.
+ - I try to see each new season as a new challenge because I have a new team to work with, new opponents to encounter, and often new ideas and theories to try.
+ - Don’t let a single game break your heart.
+ - A leader is someone who puts their people in position to be successful all the time.
+ - Throughout my life, my mom has been the person that I’ve always looked up to.
+ - Leadership is an ever-evolving position.
+ - I’m fortunate now that I coach at Duke University and we’ve won a lot. I have some kids who haven’t failed that much. But when they get to college, they’re going to fail some time. That’s a thing that I can help them the most with.
+ - Actually, the Kentucky moment was better than winning the two National Championships, because it was the epitome of what I try to get from a team in a crisis situation.
+ - Good sound habits are more important than rules – use concepts.
+ - When I was growing up, there weren’t any Little Leagues in the city. Parents worked all the time. They didn’t have time to take their kids out to play baseball and football.
+ - Each group and each youngster is different. As a leader or coach, you get to know what they need.
+ - It’s funny what happens when you become a grandparent. You start to act all goofy and do things you never thought you’d do. It’s terrific.
+ - That’s another thing, we made up games. We didn’t have equipment. When it snowed, we would play slow motion tackle football. We would play hockey, but we wouldn’t skate. We just made things up. I loved doing that.
+ - Basketball was not my main sport in grade school, or even the first year of high school.
+ - Embrace the hell out of personal responsibility.
+ - Leaders should be reliable without being predictable. They should be consistent without being anticipated.
+ - My parents didn’t really understand too much about sport. At that time, we were in a Polish community in the inner city of Chicago, and I was the youngest of a bunch of cousins. Polish families are real big, with cousins and aunts and uncles.
+ - Even though we want huge individual egos, our collective ego is unbelievable.
+ - Pete Newell told me ‘get as much information and learn as much about the game as you can, but use your own personality to teach it.’
+ - When you win, sometimes it overshadows a poor performance.
+ - When I was in sixth grade, I wanted to become a priest.
+ - Every leader needs to remember that a healthy respect for authority takes time to develop. It’s like building trust. You don’t instantly have trust, it has to be earned.
+ - Therefore, as a player, as a coach, even though we might have lost in a season or not won a championship, it was like a self-fulfilling prophecy that I’m going to win some time. I’ve never felt myself a loser.
+ - If you set up an atmosphere of community and trust, it becomes a tradition. Older team members will establish your credibility with newer ones. Even if they don’t like everything about you, they’ll say, ‘He’s trustworthy, committed to us as a team.’
+ - The life expectancy of a team is about eight months. Then the next year, it’s a whole new team.
+ - Don’t worry about losing. Think about winning.
+ - With me and basketball, it became part of me.
+ - If you win a National Championship, or you win two, people think you have not only seen the Holy Grail, but you’ve embraced it. Basically, I do what a lot of people do, but I’ve been able to win.
+ - If you have talent with teamwork, you’ve got a chance to be a championship team.
+ - You can see and you can listen, but you have to have moments in which you feel.
+ - It is the ultimate honor for a coach to be his country’s coach.
+ - First of all, what happens is, when you’re good at something, you spend a lot of time with it. People identify you with that sport, so it becomes part of your identity.
+ - Leaders have to give time for relationships. But more demands will be placed on their time as they become more successful. So if a person’s success is based on developing relationships, then they have to continually find new ways of getting it done.
+ - My ambition in high school was to be a high school coach and teacher, and that’s still what I do: teach.
+ - I don’t think you play for other people’s expectations, you know. You don’t go and become a lawyer because your mother or father want you to, you don’t become a coach because somebody wants you to.
+ - I don’t think we surprise people. We try to out-execute them.
+ - The only way you’re going to grow is to be in difficult situations.
+ - The team that trusts-their leader and each other-is more likely to be successful.
+ - The best teams are team in any sport that lose themselves in the team. The individuals lose their identity. And their identities come about as a result of being in the team first.
+ - It’s always an honor to be ranked high, but whatever is said about you, you take it and then take a realistic look at yourself and who you are.
+ - With accomplishments comes confidence and with confidence comes belief. It has to be in that order.
+ - Everybody wants to take responsibility when you win, but when you fail, all these fingers are pointing.
+ - When I had troubles, I’d go out with basketball – you can do it by yourself, too. So you’d go out and shoot, and you’d fantasize.
+ - Parents can really help, but they can also really hinder the development of their youngsters.
+ - The thing I loved the most – and still love the most about teaching – is that you can connect with an individual or a group, and see that individual or group exceed their limits.
+ - I love practice. It is when a coach exercises the most control over the improvement of his or her team.
+ - If the only reason I coached was to win basketball games, my life would be pretty shallow.
+ - Leadership is simple: Add value to people everyday.
+ - I always wanted to teach.
+ - The other thing I knew I had was a high level of competitiveness.
+ - Playing sport was somewhat frivolous, but I liked it. I rebelled a little bit, and wouldn’t go to music lessons and things like that, but I would go and play ball. My parents learned to love it because they saw how much I got out of it.
+ - I always won in my imagination. I always hit the game-winning shot, or I hit the free throw. Or if I missed, there was a lane violation, and I was given another one.
+ - Sometimes it’s not bad to hurt. Sometimes you don’t want things until you get hurt. We got hurt today, let’s see what we do.
+ - A leader has to be positive about all things that happen to his team. Look at nothing in the past as failure.
+ - Once you win a National Championship, how do you do that again? How do you get the passion to do that again? We won it again right away, the next year. A lot of it had to do with the fact that I didn’t give myself an opportunity to enjoy the first one.
+
+149 quotes

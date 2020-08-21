@@ -1,0 +1,168 @@
+ - Either I will find a way, or I will make one.
+ - It is not good to wake a sleeping lion.
+ - They are never alone that are accompanied with noble thoughts.
+ - Whoever gossips to you will gossip about you.
+ - It is the nature of the strong heart, that like the palm tree it strives ever upwards when it is most burdened.
+ - Ungratefulness is the very poison of manhood.
+ - Nature never set forth the earth in so rich tapestry as divers poets have done; neither with pleasant rivers, fruitful trees, sweet-smelling flowers, nor whatsoever else may make the too-much-loved earth more lovely; her world is brazen, the poets only deliver a golden.
+ - Shallow brooks murmur most, deep and silent slide away.
+ - The best legacy I can leave my children is free speech, and the example of using it.
+ - A noble heart, like the sun, showeth its greatest countenance in its lowest estate.
+ - Ring out your bells! Let mourning show be spread! For Love is dead.
+ - A churlish courtesy rarely comes but either for gain or falsehood.
+ - I seek no better warrant than my own, conscience.
+ - Alexander received more bravery of mind by the pattern of Achilles, than by hearing the definition of fortitude.
+ - Self-love is better than any gilding to make that seem gorgeous wherein ourselves be parties.
+ - Sweet food of sweetly uttered knowledge.
+ - Malice, in its false witness, promotes its tale with so cunning a confusion, so mingles truths with falsehoods, surmises with certainties, causes of no moment with matters capital, that the accused can absolutely neither grant nor deny, plead innocen.
+ - The day seems long, but night is odious; no sleep, but dreams; no dreams but visions strange.
+ - Fear is the underminer of all determinations; and necessity, the victorious rebel of all laws.
+ - They love indeed who quake to say they love.
+ - High erected thoughts seated in the heart of courtesy.
+ - The only disadvantage of an honest heart is credulity.
+ - A true knight is fuller of bravery in the midst, than in the beginning of danger.
+ - Come Sleep! Oh Sleep, the certain knot of peace, the baiting-place of wit, the balm of woe, the poor man’s wealth, the prisoner’s release, the indifferent judge between the high and low.
+ - There is nothing sooner overthrows a weak head than opinion by authority, like too strong a liquor for a frail glass.
+ - Who shoots at the mid-day sun, though he be so sure he shall never hit the mark, yet as sure as he is, he shall shoot higher than he who aims at a bush.
+ - I am no herald to inquire into men’s pedigree; it sufficeth me if I know their virtues.
+ - In victory, the hero seeks the glory, not the prey.
+ - Fear is far more painful to cowardice than death to true courage.
+ - The journey of high honor lies not in smooth ways.
+ - Contentions for trifles can get but a trifling victory.
+ - Anger, the Stoics said, was a short madness.
+ - With a tale, forsooth, he cometh unto you; with a tale which holdeth children from play, and old men from the chimney corner.
+ - Valor is abased by too much loftiness.
+ - The many-headed multitude, whom inconstancy only doth by accident guide to well-doing! Who can set confidence there, where company takes away shame, and each may lay the fault upon his fellow?
+ - No is no negative in a woman’s mouth.
+ - Like the air-invested heron, great persons should conduct themselves; and the higher they be, the less they should show.
+ - What is mine, even to my life, is hers I love; but the secret of my friend is not mine!
+ - As the fertilest ground, must be manured, so must the highest flying wit have a Daedalus to guide him.
+ - Blasphemous words betray the vain foolishness of the speaker.
+ - Indeed, the Roman laws allowed no person to be carried to the wars but he that was in the soldiers roll.
+ - Truth is the ground of science, the centre wherein all things repose, and is the type of eternity.
+ - The ingredients of health and long life, are great temperance, open air, easy labor, and little care.
+ - Happiness is a sunbeam, which may pass though a thousand bosoms without losing a particle of its original ray.
+ - Whether your time calls you to live or die, do both like a prince.
+ - A brave captain is as a root, out of which, as branches, the courage of his soldiers doth spring.
+ - Provision is the foundation of hospitality, and thrift the fuel of magnificence.
+ - Unlawful desires are punished after the effect of enjoying; but impossible desires are punished in the desire itself.
+ - Laughter almost ever cometh of things most disproportioned to ourselves and nature: delight hath a joy in it either permanent or present; laughter hath only a scornful tickling.
+ - Who doth desire that chaste his wife should be, first be he true, for truth doth truth deserve.
+ - A noble cause doth ease much a grievous case.
+ - Courage without discipline is nearer beastliness than manhood.
+ - Liking is not always the child of beauty; but whatsoever is liked, to the liker is beautiful.
+ - It is no less vain to wish death than it is cowardly to fear it.
+ - Open suspecting of others comes of secretly condemning ourselves.
+ - Friendship is made fast by interwoven benefits.
+ - The scourge of life, and death’s extreme disgrace, The smoke of hell, – that monster called Paine.
+ - Gold can gild a rotten stick, and dirt sully an ingot.
+ - The first mark of valor is defence.
+ - Whatever comes out of despair cannot bear the title of valor, which should be lifted up to such a height that holding all things under itself, it should be able to maintain its greatness, even in the midst of miseries.
+ - Some are unwisely liberal, and more delight to give presents than to pay debts.
+ - What is birth to a man if it shall be a stain to his dead ancestors to have left such an offspring?
+ - Cupid makes it his sport to pull the warrior’s plum.
+ - In shame there is no comfort but to be beyond all bounds of shame.
+ - A dull head thinks of no better way to show himself wise, than by suspecting everything in his way.
+ - Reason! how many eyes hast thou to see evils, and how dim, nay, blind, thou art in preventing them.
+ - Give tribute, but not oblation, to human wisdom.
+ - Woman was formed to admire; man to be admirable. His are the glories of the sun at noonday; hers the softened splendors of the midnight moon.
+ - The end of all knowledge should be in virtuous action.
+ - It is cruelty in war that buyeth conquest.
+ - For the uttering sweetly and properly the conceit of the mind, English hath it equally with any other tongue in the world.
+ - There is little hope of equity where rebellion reigns.
+ - Plato found fault that the poets of his time filled the world with wrong opinions of the gods, making light tales of that unspotted essence, and therefore would not have the youth depraved with such opinions.
+ - A just cause and a zealous defender make an imperious resolution cut off the tediousness of cautious discussions.
+ - High honor is not only gotten and born by pain and danger, but must be nursed by the like, else it vanisheth as soon as it appears to the world.
+ - It many times falls out that we deem ourselves much deceived in others because we first deceived ourselves.
+ - It is a lively spark of nobleness to descend in most favour to one when he is lowest in affliction.
+ - O sweet woods, the delight of solitariness!
+ - It is manifest that all government of action is to be gotten by knowledge, and knowledge best, by gathering many knowledges, which is reading.
+ - Take thou of me, sweet pillowes, sweetest bed; A chamber deafe of noise, and blind of light, A rosie garland and a weary hed.
+ - The violence of sorrow is not at the first to be striven withal; being, like a mighty beast, sooner tamed with following than overthrown by withstanding.
+ - No decking sets forth anything so much as affection.
+ - To the disgrace of men it is seen that there are women both more wise to judge what evil is expected, and more constant to bear it when it happens.
+ - The truly great and good, in affliction, bear a countenance more princely than they are wont; for it is the temper of the highest hearts, like the palm-tree, to strive most upwards when it is most burdened.
+ - There is a certain delicacy which in yielding conquers; and with a pitiful look makes one find cause to crave help one’s self.
+ - My thoughts, imprisoned in my secret woes, with flamy breaths do issue oft in sound.
+ - Remember always, that man is a creature whose reason is often darkened with error.
+ - Ambition, like love, can abide no lingering; and ever urgeth on his own successes, hating nothing but what may stop them.
+ - Approved valor is made precious by natural courtesy.
+ - It is hard, but it is excellent, to find the right knowledge of when correction is necessary and when grace doth most avail.
+ - In forming a judgment, lay your hearts void of foretaken opinions; else, whatsoever is done or said, will be measured by a wrong rule; like them who have jaundice, to whom everything appears yellow.
+ - Confidence in one’s self is the chief nurse of magnanimity, which confidence, notwithstanding, doth not leave the care of necessary furniture for it; and therefore, of all the Grecians, Homer doth ever make Achilles the best armed.
+ - Our erected wit maketh us to know what perfection is.
+ - There have been many most excellent poets that have never versified, and now swarm many versifiers that need never answer to the name of poets.
+ - As in labor, the more one doth exercise, the more one is enabled to do, strength growing upon work; so with the use of suffering, men’s minds get the habit of suffering, and all fears and terrors are not to them but as a summons to battle, whereof they know beforehand they shall come off victorious.
+ - A popular license is indeed the many-headed tyrant.
+ - Thinking nurseth thinking.
+ - Fearfulness, contrary to all other vices, maketh a man think the better of another, the worse of himself.
+ - The general goodness, which is nourished in noble hearts makes every one think that strength of virtue to be in another whereof they find assured foundation in themselves.
+ - Reason cannot show itself more reasonable than to cease reasoning on things above reason.
+ - The lightsome countenance of a friend giveth such an inward decking to the house where it lodgeth, as proudest palaces have cause to envy the gilding.
+ - Great captains do never use long orations when it comes to the point of execution.
+ - Our poor eyes were so enriched as to behold, and our low hearts so exalted as to love, a maid who is such, that as the greatest thing the world can show is her beauty, so the least thing that may be praised in her is her beauty.
+ - Courage ought to be guided by skill, and skill armed by courage. Neither should hardiness darken wit, nor wit cool hardiness. Be valiant as men despising death, but confident as unwonted to be overcome.
+ - How violently do rumors blow the sails of popular judgments! How few there be that can discern between truth and truth-likeness, between shows and substance!
+ - In the performance of a good action, we not only benefit ourselves, but we confer a blessing upon others.
+ - There is no dearth of charity in the world in giving, but there is comparatively little exercised in thinking and speaking.
+ - The observances of the church concerning feasts and fasts are tolerably well kept, since the rich keep the feasts and the poor the fasts.
+ - Solitude, the sly enemy that doth separate a man from well-doing.
+ - The heavens do not send good haps in handfuls; but let us pick out our good by little, and with care, from out much bad, that still our little world may know its king.
+ - I willingly confess that it likes me better when I find virtue in a fair lodging than when I am bound to seek it in an ill-favored creature.
+ - When it shall please God to bring thee to man’s estate, use great providence and circumspection in choosing thy wife. For from thence will spring all thy future good or evil; and it is an action of life, like unto a stratagem of war; wherein a man can err but once!
+ - Commonly they must use their feet for defense whose only weapon is their tongue.
+ - Much more may a judge overweigh himself in cruelty than in clemency.
+ - Doing good is the only certainly happy action of a man’s life.
+ - Laws are not made like lime-twigs or nets, to catch everything that toucheth them; but rather like sea-marks, to guide from shipwreck the ignorant passenger.
+ - As the love of the heavens makes us heavenly, the love of virtue virtuous, so doth the love of the world make one become worldly.
+ - Hope itself is a pain, while it is overmatched by fear.
+ - What doth better become wisdom than to discern what is worthy the living.
+ - Honor, thou strong idol of man’s mind.
+ - Often extraordinary excellence, not being rightly conceived, does rather offend than please.
+ - Nothing has a letter effect upon children than praise.
+ - True bravery is quiet, undemonstrative.
+ - Every base occupation makes one sharp in its practice, and dull in every other.
+ - Who will adhere to him that abandons himself?
+ - The judgment of the world stands upon matter of fortune.
+ - The highest point outward things can bring unto, is the contentment of the mind; with which no estate can be poor, without which all estates will be miserable.
+ - Sweet speaking oft a currish heart reclaims.
+ - He whom passion rules, is bent to meet his death.
+ - It depends on education – that holder of the keys which the Almighty hath put into our hands – to open the gates which lead to virtue or to vice, to happiness or misery.
+ - There is nothing evil but what is within us; the rest is either natural or accidental.
+ - Fortify courage with the true rampart of patience.
+ - Vice is but a nurse of agonies.
+ - Misery and misfortune is all one; and of misfortune fortune hath only the gift.
+ - It is against womanhood to be forward in their own wishes.
+ - Weigh not so much what men assert, as what they prove. Truth is simple and naked, and needs not invention to apparel her comeliness.
+ - If you neglect your work, you will dislike it; if you do it well, you will enjoy it.
+ - Remember that in all miseries lamenting becomes fools, and action, wise folk.
+ - The glory and increase of wisdom stands in exercising it.
+ - To be ambitious of true honor and of the real glory and perfection of our nature is the very principle and incentive of virtue; but to be ambitious of titles, place, ceremonial respects, and civil pageantry, is as vain and little as the things are which we court.
+ - As well the soldier dieth who standeth still as he that gives the bravest onset.
+ - Many delight more in giving of presents than in paying their debts.
+ - Lovely sweetness is the noblest power of woman, and is far fitter to prevail by parley than by battle.
+ - For as much as to understand and to be mighty are great qualities, the higher that they be, they are so much the less to be esteemed if goodness also abound not in the possessor.
+ - All is but lip-wisdom which wants experience.
+ - You will never live to my age without you keep yourselves in breath with exercise, and in heart with joyfulness.
+ - In the clear mind of virtue treason can find no hiding-place.
+ - God has appointed us captains of this our bodily fort, which, without treason to that majesty, are never to be delivered over till they are demanded.
+ - Since bodily strength is but a servant to the mind, it were very barbarous and preposterous that force should be made judge over reason.
+ - He travels safe and not unpleasantly who is guarded by poverty and guided by love.
+ - Every present occasion will catch the senses of the vain man; and with that bridle and saddle you may ride him.
+ - The truly valiant dare everything but doing anybody an injury.
+ - There is no man suddenly either excellently good or extremely evil, but grows either as he holds himself up in virtue or lets himself slide to viciousness.
+ - It is great happiness to be praised of them who are most praiseworthy.
+ - A fair woman shall not only command without authority but persuade without speaking.
+ - There is nothing so great that I fear to do it for my friend; nothing so small that I will disdain to do it for him.
+ - Ambition thinks no face so beautiful as that which looks from under a crown.
+ - Inquisitiveness is an uncomely guest.
+ - In the truly great, virtue governs with the sceptre of knowledge.
+ - Love, one time, layeth burdens; another time, giveth wings.
+ - The truly great man is as apt to forgive as his power is able to revenge.
+ - My true love hath my heart, and I have his.
+ - Great is not great to the greater.
+ - To be rhymed to death as is said to be done in Ireland.
+ - There needs not strength to be added to inviolate chastity; the excellency of the mind makes the body impregnable.
+ - Who will ever give counsel, if the counsel be judged by the event, and if it be not found wise, shall therefore be thought wicked?
+
+166 quotes

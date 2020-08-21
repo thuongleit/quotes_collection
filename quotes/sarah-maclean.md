@@ -1,0 +1,30 @@
+ - Sometimes, love was not enough.
+ - Meditation is an essential travel partner on your journey of personal transformation. Meditation connects you with your soul, and this connection gives you access to your intuition, your heartfelt desires, your integrity, and the inspiration to create a life you love.
+ - I had a perfect life in my reach once, and it was a crashing bore. Perfect is too clean, too easy. I don’t want perfect any more than I want to be perfect. I want imperfect.
+ - Let me be clear. Last I was aware you were neither my husband nor my father nor my King. Therefore, any control you may imagine you hold over me is just that- imaginary.
+ - I enjoyed every bit of the evening. I may not drink scotch or smoke a cheroot again, but I shall always cherish the fact that I did those things. The adventure is well worth the disappointing experience.
+ - Temptation turns you. It makes you into something you never dreamed, it presses you to give up everything you ever loved, it calls you to sell your soul for one, fleeting moment.
+ - Un momento con una donna capricciosa vale undici anni di vita noiosa. A single moment with a fiery female is worth eleven years of a boring life.
+ - If I am an empress, he is the only man worthy of being my emperor.
+ - She winced, knowing what was to come, “Calpurnia.” She closed her eyes again, embarrassed by the extravagant name – a name with which no one but a helplessly romantic mother with an unhealthy obsession with Shakespeare would have considered saddling a child.
+ - But she had dreamed of being his for too long. He had quite ruined her for a marriage of convenience. She wanted everything from him: his mind, his body, his name and, most of all, his heart.
+ - I’ve loved him for a decade. And I had him for one day before I made a complete and utter mess of things. Or he did. I’m still not sure about that.
+ - But there, in that remarkable room, surrounded by a laughing, rollicking, unseeing collection of London’s brightest and wickedest, Pippa’s knowledge of anatomy expanded. It seemed there was such a thing as a broken heart.
+ - I do not traditionally speak ill of women, but your governess is a cabbagehead.
+ - Kisses should not leave you satisfied.
+ - She was all he wanted. He would give everything for her. Without thought. Without regret.
+ - Even as she’d come to know the real Ralston – the Ralston who was not cut from heroic cloth – Callie had failed to see the truth. And, instead of seeing her own heartbreak coming, she had fallen in love, not with her fantasy, but with this new, flawed Ralston.
+ - Benedick looked to the ceiling as though begging for divine patience. Or for the Lord to strike his sister down. Callie couldn’t quite discern which.
+ - How could she go on without him? And, at the same time, how could she go on knowing that every moment of their time together had meant so little to him.
+ - In fiction, as in real life, love might inspire acts that are at best foolish and at worst life-threatening, but in the best romances, love is the final, secret ingredient that turns mere mortals into heroes and heroines.
+ - He was struck dumb at the words though he should not be surprised; his wife kept him in a perpetual state of speechlessness.
+ - I, for one, have no interest at all in having my heart stolen.
+ - It was a terrifying feeling. And if it was love, he wanted none of it.
+ - And as the bullet ripped through his flesh, Ralston was consumed by a single thought: I never told her that I loved her.
+ - Men are not nearly as evolved as women are, nor as intelligent, evidently.
+ - You should see what she’s wearing, Callie. It’s velvet. Canary yellow velvet. Turban to match. She looks like a furry banana.
+ - It didn’t matter the quality of the writing – Callie’s fantasies about her fictional heroes were entirely democratic.
+ - Colleen McCullough taught me that desire is the heart of romance.
+ - This new world was already turning her into a cabbagehead, and she’d only been a part of it for an evening.
+
+28 quotes

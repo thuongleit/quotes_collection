@@ -1,0 +1,66 @@
+ - You must not allow yourself to dwell for a single moment on any kind of negative thought.
+ - The art of life is to live in the present moment.
+ - Welcome any change that comes into any phase in your life; insist that it is going to turn out for the better – and it will. See the Angel of God in it, and the Angel of God will make all things new.
+ - Love is by far the most important thing of all.
+ - If you have no time for prayer and meditation, you will have lots of time for sickness and trouble.
+ - Life is consciousness.
+ - Criticism is an indirect form of self-boasting.
+ - Supply yourself with a mental equivalent, and the thing must come to you.
+ - You must not under any pretense allow your mind to dwell on any thought that is not positive, constructive, optimistic, kind.
+ - Live in the present moment and find your interest and happiness in the things of today.
+ - There is no difficulty that enough love will not conquer.
+ - A smile costs nothing in money, time, or effort but it is literally true that it can be of supreme importance in ones life.
+ - If you could only love enough, you could be the most powerful person in the world.
+ - Your Heart’s Desire is the Voice of God, and that Voice must be obeyed sooner or later.
+ - I send out thoughts of love and peace and healing to the whole universe: to all trees and plants and growing things, to all beasts and birds and fishes, and to every man, woman and child on earth, without any distinction.
+ - If people would reflect that one can only do one thing at a time and therefore there is never more than one thing to do at a time, there would be less fatigue in the world.
+ - To be afraid is to have more faith in evil than in God.
+ - A man dies daily, only to be reborn in the morning, bigger, better and wiser.
+ - It is not possible that you could ever find yourself anywhere where God was not fully present, fully active, able and willing to set you free.
+ - Recognize success with thanksgiving and build more success on that.
+ - Look where you are going because you will inevitably go where you are looking.
+ - Read The Golden Key several times. Do exactly what it says, and if you are persistent enough you will overcome any difficulty.
+ - Do it trembling if you must, but do it!
+ - It makes no difference how deeply seated may be the trouble, how hopeless the outlook how muddled the tangle, how great the mistake. A sufficient realization of love will dissolve it all.
+ - When the mind changes the outer expression must change to correspond. We are transferred by the renewing of our minds.
+ - I will not entertain or dwell on negative things.
+ - We make our own world by the way in which we think; for we really do live in a world of our own thoughts.
+ - Fear is the ultimate cause of failure and disappointment.
+ - Stop thinking about your difficulties, whatever they are, and start thinking about God instead.
+ - Where you stand today does not matter; it is the direction in which your are moving, and the rate at which you travel, that count.
+ - When things are going wrong declare constantly that you are not going to be afraid or intimidated by any outer condition.
+ - Never forget that the circumstances of your life for tomorrow are molded by your mental conduct today.
+ - It is the food which you furnish to your mind that determines the whole character of your life.
+ - The great difference between the two feelings is that love is always creative, and fear is always destructive.
+ - If you seem to yourself to be lacking in certain necessary qualities, if your character seems to lack strength, ask God to give you what you need – and He will. You can build any quality into your mentality by meditating upon that quality every day.
+ - You can never solve a problem on the same level as the problem.
+ - The art of life is to live in the present moment, and to make that moment as perfect as we can by the realization that we are the instruments and expression of God Himself.
+ - Constant rhythmical movement is necessary to health and harmony. Much ill health is due to emotional congestion.
+ - Affirm for yourself that you are a success. Affirm that you are successful in getting rid of your clutter. If you are having a hard time getting started, be grateful that you are such a successful clutterer. Who else could have amassed such a collection of stuff?
+ - When you are in difficulties, look upon the overcoming of them as a great adventure.
+ - Attention is the key to life. Whatever you really give your attention to, you become. Whatever you really concentrate upon will come into your life. We grow into the thing that fills our thoughts as inevitably as the stream merges into the ocean at last.
+ - What we experience is our own concept of things. That is why no two people see quite the same world, and why, in many cases, different people see such different worlds. To put it another way, we make our own world by the way in which we think; for we really do live in a world of our own thoughts.
+ - The story of your life is really the story of the relations between yourself and God.
+ - Each day is a new life. Each moment is really a new life. What we call memories are really present thoughts. What we call anticipations are really present thoughts. No one has ever lived in any moment except the present.
+ - Whatever you experience in your life is really but the outpicturing of your own thoughts and beliefs. Now, you can change these thoughts and beliefs, and then the outer picture must change too. The outer picture cannot change until you change your thought.
+ - Make friends with nature by working in harmony with her and she will make friends with you.
+ - If you want to dismiss a negative thought, the only way to do so is to think of something positive and constructive.
+ - As thy days, so shall thy strength be which, in modern language, may be translated as thy thoughts so shall thy life be.
+ - Let us be merciful in our mental judgments of our brothers and sisters, for, in truth, we are all one, and the more deeply they seem to err, the more urgent is the need for us to help them with the right thought, and so make it easier for them to get free.
+ - Bless a thing and it will bless you. Curse it and it will Curse you.
+ - To become proficient in any field you must practise. There is simply no achievement without practice and the more practice, provided it is done intelligently, the greater will the proficiency be and the sooner will it be attained.
+ - Most people who have a problem concentrate on the problem. They take it to bed with them and stay awake all night thinking it over. Let go of that problem. Rise above it in consciousness.
+ - Whenever you are afraid of something you are worshipping it. Whatever you fear, you bow down to and give it power.
+ - Claim your divine, glorious selfhood. Think it, talk it, live it and it will demonstrate itself in your life.
+ - We grow into that which we admire.
+ - The root of all difficulties is a lack of the sense of the Presence of God.
+ - When you resist a difficulty you antagonize it, and it bites back.
+ - We build in thought the conditions that will later come into manifestation on the physical plane.
+ - You are not happy because you’re healthy, you are healthy because you’re happy.
+ - To radiate any quality, that quality must be within yourself.
+ - Whatever you think rightly concerning will go well. Whatever you think wrongly concerning, will go ill.
+ - You cannot be healthy; you cannot be happy; you cannot be prosperous; if you have a bad disposition.
+ - We affirm the harmony that we seek in order to provide the subconscious with a blue print of the work to be done.
+ - Your fixed convictions concerning the things that really matter mold your destiny.
+
+64 quotes

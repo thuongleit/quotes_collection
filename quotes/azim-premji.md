@@ -1,0 +1,27 @@
+ - If people are not laughing at your goals, your goals are too small.
+ - Success is achieved twice. Once in the mind and the second time in the real world.
+ - Leadership is the self-confidence of working with people smarter than you.
+ - A girl child who is even a little bit educated is more conscious of family planning, health care and, in turn, her children’s own education.
+ - When the rate of change outside is more than what is inside, be sure that the end is near.
+ - People are the key to success or extraordinary success.
+ - As you get bigger, you have to learn to delegate.
+ - In our way of working, we attach a great deal of importance to humility and honesty; With respect for human values, we promise to serve our customers with integrity.
+ - I strongly believe that those of us, who are privileged to have wealth, should contribute significantly to try and create a better world for the millions who are far less privileged.
+ - We believe this combination of excellence in operations and strong execution of our strategy is critical to achieve our vision. We will continue to focus on both in future as well.
+ - We give people major responsibilities even if they are only 60 per cent ready. Our experience is that people are pretty elastic when you give them responsibility, and they just grow rapidly with the job.
+ - The important thing about outsourcing or global sourcing is that it becomes a very powerful tool to leverage talent, improve productivity and reduce work cycles.
+ - As an advisor, I can say what I want. If I were a politician, I would constantly have to compromise, and I’m incapable of doing that.
+ - As you get bigger, you have to learn to delegate. It’s also an excellent way to get staff involved in the company’s operations.
+ - With the attention I got on my wealth, I thought I would have become a source of resentment, but it is just the other way around – it just generates that much more ambition in many people.
+ - Inflation is taking up the poverty line, and poverty is not just economic but defined by way of health and education.
+ - I think the advantage of democracy is that it makes us less dependent on a group of leaders.
+ - I want Wipro to be among the top ten IT companies in the world.
+ - My company believes in hiring people based on merit.
+ - You cannot get into business for the fashion of it.
+ - The Indian community in Canada has integrated much better than the Indian community in United States. They’ve become really Canadian at the same time as keeping all their Indian characters and customs and social groups.
+ - One of the pre – requisites for children becoming proactive and responsible citizens is the availability of enough role models inside and outside the school.
+ - The Western world loves liberalisation, provided it doesnt affect them.
+ - The strategic initiatives we propose to undertake as part of our plan over the next few years position us well to lead this evolution.
+ - There are millions of children today who don’t attend school. However, education is the only way to get ahead in this country.
+
+25 quotes

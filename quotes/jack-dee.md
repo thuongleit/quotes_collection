@@ -1,0 +1,31 @@
+ - Maybe I fear things going wrong so much that I pre-empt them by not getting excited about them when they appear to be. going well.
+ - I think it is more a cautiousness that protects me from enthusiasm about things. I tend not to get excited. People perceive it as a scowl, which is fair enough.
+ - Comedy and tragedy are two sides of the same coin. A talent in one area might also lead to a predisposition in the other.
+ - People who are pro smacking children say, ‘It’s the only language they understand.’ You could apply that to tourists.
+ - I’m not really part of any group or clique or gang because that’s always been my nature.
+ - I spent the first 25 years of my life not knowing what I wanted to do.
+ - And people are intrigued if I really am as grumpy in real life. People feel a bit let down if I’m laughing or smiling.
+ - Depression is something that has always figured in my life but now I’m dealing with it. I wish I’d done this years ago because it’s been really helpful.
+ - The rain forest has Sting. Now Siberia has Jack Dee. Someone had to draw the short straw. In this case it was the rain forest.
+ - My character, Rick Spleen, is a what-if version of me, really, where nothing did quite turn out right and everything else is still around the corner.
+ - In particular, I found praying very disturbing, like swimming with bricks tied to your feet. And yet I was drawn to it constantly.
+ - They call it ‘surfing’ the net. It’s not surfing. It’s typing in your bedroom.
+ - I love mixing with comedians when I’m working with them, but when I’m not I don’t feel the need to hang around with them.
+ - I took religion much too seriously, however, and its overall effect was depressing. I would have really liked to discard it, but somehow I couldn’t.
+ - I had a longing for ritual, something I could cling to, a routine to make me feel well and contented. I hoped that reading Bible commentaries and theological critiques would nudge me closer to some kind of absolute that I could hold up as a torch to light my way.
+ - I was on various anti-depressants, but not for long – I didn’t function very well on them. I felt sort of flattened out.
+ - I don’t like men who blow-dry their hair. If you are a man and you blow-dry your hair, then I don’t like you and that’s all there is to it.
+ - I really like rustic mediterranean cooking. And I like trying out curry takeaways.
+ - The film industry is like Anne Robinsonalways on the look-out for a new face.
+ - The jokes are great but what really matters for a comedian is his performance, his whole attitude, and the laughs that he gets between the jokes rather than on top of the jokes.
+ - I was so keen to become a comedian that actually doing the comedy itself almost came second.
+ - One of my friends went on a murder weekend, now he is doing life for it.
+ - Make lots of money. Enjoy the work. Operate within the law. Choose any two of three.
+ - If I’ve inadvertently become some sort of role model for failed comedians, then it’s really backfired very badly on me.
+ - I have had issues with depression all my life, and it’s probably true to say there was a tendency towards it even when I was very young, during my schooldays. There was often – and this is quite common with comics – a sense of not feeling as if I belonged anywhere.
+ - I really hated fighting people and hurting them, but felt unable to stop.
+ - In many ways, not fitting in has been a comedic asset and a comedic resource.
+ - One Saturday in 1984, I walked into my first AA meeting. I went regularly for six years and only stopped when I came to realize my underlying problem was not genuine alcoholism, but depression.
+ - Whenever you’re in any acting role you are mortgaging your own character.
+
+29 quotes

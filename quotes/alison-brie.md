@@ -1,0 +1,25 @@
+ - Stay at home mom is still a job.
+ - I think it’s important to be honest with yourself about what you want and it’s important to be honest with your partner about what you need.
+ - I kind of love going to weddings – it’s a guilty pleasure. I’ve never been the wedding-y type girl dreaming about the big day, the dress, but I always cry. Always. Even if I don’t know the bride that well, I’m verklempt!
+ - I think it’s never too late to learn – or it’s a lesson that’s good to continue learning – that you need to treat everyone on a set with respect.
+ - In my personal life, I’m hilarious! I was always a bit of a jokester.
+ - I look really good in a scuba suit.
+ - I always wanted to play a mental patient. I was fascinated with playing crazy people in college, and I don’t know if I ever quite perfected it.
+ - I get pigeonholed into type-A personality characters, but I’m really not type A. I’m kind of a spaz.
+ - I love Jason Bateman. He’s so funny.
+ - Alien is one of my favourite films. I’m a classic horror fan. It’s a tough one for me, because I get scared quite easily.
+ - I feel like any time John Oliver is added to something, the comedy is instantly there. He’s so funny.
+ - There’s a lot of opportunities for scene-stealing if you’re a dog.
+ - I enjoy doing drama, and I enjoy doing comedy equally.
+ - I’m a generally optimistic person.
+ - Money means better meals at better places.
+ - A lot of people come to Los Angeles and think that they’re going to be famous, just like that.
+ - What is about women that they just go right for the guy that repulses them?
+ - Ted Danson is amazing. He’s incredible.
+ - I think Twitter is such a cool thing because it really is a direct line to the fans and for fans back to you, and it’s such a new thing. I think in the past there’s been usually fan mail and that’s really good, but Twitter, it gets an immediate response.
+ - My parents are definitely reformed hippies.
+ - I like to be in pain when I’m getting massaged. That way I know I’m getting my money’s worth.
+ - I’ve always loved film and wanted to work in film. I just love working and creating new characters, and trying different genres and different things.
+ - I try to be very much in control when it comes to work. I have a strong work ethic.
+
+23 quotes

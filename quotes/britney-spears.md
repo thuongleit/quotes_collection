@@ -1,0 +1,154 @@
+ - There’s always a way. Where there’s a will there is a way. You have to believe.
+ - I go through life like a Karate Kid.
+ - Never doubt yourself. Never change who you are. Don’t care what people think and just go for it.
+ - Be fearless in your choices and don’t be afraid to be yourself.
+ - My loneliness ain’t killing me no more.
+ - I think God has plans for everyone, and I’m just thankful this is his plan for me.
+ - I choose to be a happy person. I choose not to be a bitter person.
+ - I think you should never put boundaries on yourself. You should always want to grow.
+ - Yes I’m a virgin and proud of it.
+ - For me, success is a state of mind. I feel like success isn’t about conquering something, it’s being happy with who you are.
+ - I had totally lost my way. I lost focus. I lost myself.
+ - With love, you should go ahead and take the risk of getting hurt because love is an amazing feeling.
+ - You do something wrong, you learn from it, you move on.
+ - Sometimes it’s our secrets that define us.
+ - Women complicate everything.
+ - I’m still the same person I’ve always been.
+ - I get to go to overseas places, like Canada.
+ - I sold my soul to the industry. I’m a slave for you. Dancing in the dark. I took a sip from my devil’s cup. Slowly It’s taking over me. Satan’s our lord. Devil’s lease.
+ - Onstage I’m the happiest person in the world.
+ - I need to do psychology classes. That would be so interesting to me, studying people.
+ - I’ve never really wanted to go to Japan. Simply because I don’t like eating fish.
+ - I don’t like defining myself. I just am.
+ - Bottom line: If you love yourself, it will all work out.
+ - Where the hell is Australia anyway?
+ - All of my songs are f–ing amazing.
+ - I don’t like going out. I hate clubs. I hate being around too many people. I love my home and staying in bed and watching Dancing With the Stars or reading a Danielle Steel novel. I’m kind of boring.
+ - I don’t want to say my biggest mistake – I don’t want to tell the whole world that. Trust me, I’ve made plenty. But I don’t regret them because they’ve made me the person that I am right now.
+ - Our love is strong. Why carry on without me?
+ - I have no regrets. I find everything happens for a reason and the reason why maybe this is happening is I won’t take BS from anyone. And I think it’s making me stand out on my own and be very independent and fight for what I believe in.
+ - I believe we all have one true love, somewhere in this world I do.
+ - Britney: My love doesn’t scare me. Other people’s love scares me.
+ - I’m a slave for you. Dancing in the dark.
+ - You’ll Never See It My Way, Because You’re Not Me!
+ - I would like to be called an inspiration to people, not a role model – because I make mistakes like everybody else. When I’m offstage, I’m just like everybody else.
+ - No matter what you do, at the end of the day you can’t please everybody. I’m not hear to please.
+ - I need to sing and I love to travel.
+ - Broken hearts are like cuts you hate them but you have them.
+ - If I met me, I would say a quick hello and then think that I was a really nice girl.
+ - I used to be a cool chick but I feel like the paparazzi has taken that away from me, like, the way I used to live my life. I used to be a cool chick but I’m not anymore.
+ - I have no sugar. I don’t eat fruit or even fruit juice because of the sugar. I eat chicken and salmon and rice.
+ - I trip and I burp and I fart, like everybody else.
+ - Lingerie has gotten really cute, with little booty underwear and the cute little bras. They’ve gotten really detailed. I saw one the other day with little baby pearls on the strap. I had to have it.
+ - I’m gonna start off somewhere small like London or England.
+ - Sundance is weird. The movies are weird – you actually have to think about them when you watch them.
+ - I dress the way I want. I don’t pretend to be someone I’m not.
+ - You think I’m in love, that I’m sent from above, I’m not that innocent.
+ - I wish my hair was thicker, and I wish my feet were prettier. My toes are really ugly. I wish my ears were smaller. And my nose could be smaller too.
+ - This may sound weird but I miss traveling. I miss the road, seeing different places and being with the dancers and having fun. That feeling of being on the stage, knowing it’s your best – I love that. I needed a break. I needed to be hungry again.
+ - I don’t think anyone can give you advice when you’ve got a broken heart.
+ - The cool thing about being famous is traveling. I have always wanted to travel across seas, like to Canada and stuff.
+ - I always call my cousin because we’re so close. We’re almost like sisters, and we’re also close because our mom’s are sisters.
+ - I think Elvis is the sexiest man to ever walk the earth, I love him.
+ - Justin Timberlake is everything, and what more could you want in a person? He’s funny. He’s cute. He’s great. He just understands. I get him and he gets me, and that’s cool.
+ - People shave their heads all the time.
+ - Yeah, I love ponytails. I’m a wash-and-go girl. But, oh yeah, I like to whip it.
+ - I don’t like going out. I hate clubs. I hate being around too many people.
+ - Honestly, I think we should just trust our president in every decision he makes and should just support that, you know, and be faithful in what happens.
+ - Success is sometimes harder than failure, because when you are successful, people expect so much more out of you.
+ - I’m way too focused to let anything stop me.
+ - I’m very, very blessed. But my safety, my privacy, and my respect are three things that I feel like are trying to be taken away from me right now. As a mother I have to speak up and say something. I have to speak up.
+ - I think I’m still clean living. That’s – I mean I don’t go home and have orgies or anything like that. I’m still the same person I’ve always been.
+ - Lady Gaga will dominate the charts next year. She let me listen to a couple of new songs, she is a legend.
+ - You are better off being homeless than being me.
+ - Don’t treat me like a little girl.
+ - I love my life, I wouldn’t give it up for the world.
+ - I performed at Mom and Dad’s party when I was four. Oh my gosh, I was singing a Madonna song, and I peed myself!
+ - What’s the big deal? I have really strong morals, and just because I look sexy on the cover of Rolling Stone doesn’t mean I’m a naughty girl. I’d do it again. I thought the pictures were fine. And I was tired of being compared to Debbie Gibson and all of this bubblegum pop all the time.
+ - I’m sorry. I’m very young.
+ - Friendship could be right under your nose but if you are caught up in yourself you will never find it.
+ - Love is love! People should be able to do whatever makes them happy!
+ - I don’t understand the whole dating thing. I know right off the bat if I’m interested in someone, and I don’t want them to waste their money on me and take me out to eat if I know I’m not interested in that person.
+ - When people say I’m powerful, it scares me in a way. If you saw what I see when I wake up in the morning, you wouldn’t think that either.
+ - You have babies at home. And you have a life. And if you don’t, you have to realize that we’re people and that we just need privacy and we need our respect. And those are things that you have to have as a human being.
+ - I’m not a diva. I know what I like and I know what I want.
+ - I would love to show my clevage and more body parts off but my record company won’t let me.
+ - Sometimes I think I’m more comfortable onstage than I am in my own room. When I get onstage, it’s kind of like your chance to let go and be something that you’re not maybe. It’s your time to dream.
+ - Whereas before I was a young, blonde girl who would do what she was told. I know who I am as a person and I’m getting damn strong.
+ - When you’re comfortable with someone you love, the silence is the best.
+ - Being pregnant, makes me want to do the wildest things.
+ - Being famous is just a job.
+ - Media over here, coming to ya like a world premiere. Trench coat and my underwear, let’s go with this freak show.
+ - I don’t allow anybody to change me. I still walk outta my house in rollers and I take walks. I do not care what people think.
+ - Seriously, I have the best fans ever.
+ - I notice that if there are some times I’ve been stressed, because I’m human and stress about things, that affects your kids. So you have to make sure you’re a happy mom so they can be happy.
+ - You can’t really control what people think. You can’t really worry about what they think, and attitude is really the one to have.
+ - I would really, really, really like to be a legend like Madonna. Madonna knows what to do next, and when she’s performing, the audience is just in awe of her.
+ - I only wear these crop tops because other clothes would make me sweat when I dance.
+ - Marry Prince William? I’d love that. Who wouldn’t want to be a princess?
+ - I think with anybody who’s doing well in the public eye or whatever, there’s always gonna be a shift because people don’t wanna see somebody happy all the time. And they’re gonna try to take shots at people.
+ - I’m not at the point where I’d feel safe in a house alone. I would be really scared. I’m the kind of person that when I get up to go use the bathroom I have this big long hallway, and I just know someone’s going to jump out and get me.
+ - A lot of the clothes out are very adult-driven and it would be cool if they were a little bit more fun and trendy. Clothes should be fun.
+ - I have to feel connected before I record and the song has to spark something inside me. Very few songs do that. I guess it’s a good process because I love all of my music.
+ - There will be a “Oops 100.” They’ll be plenty more oopses. I’m not perfect. I’m human.
+ - I used to be a cool chick but I’m not anymore.
+ - I can’t go anywhere without someone judging me.
+ - Christina Aguilera and I are friends no matter what the media makes up.
+ - The best thing about being cheated on is I get to go on more first dates.
+ - Acting is so much fun. It is a different ball game and I want to concentrate on that at the moment. I’m really passionate about what I do. I love entertainment and telling stories to people and I am very lucky that I am doing what I want to do.
+ - I like meeting all my fans and signing autographs, although it can all get a bit crazy. Yesterday, for example, a boy just came over and planted a big kiss on my face! I was like, ‘Hello?’
+ - I’m usually all about the tight jeans and little T-shirt, but sometimes I want to put on a black, sequined dress and be a freaking girl.
+ - Whatever I put on – if I’m feeling trendy or if I’m feeling sexy – my clothes definitely represent who I am at the time.
+ - Saying no is so heartbreaking.
+ - The music business has let me touch a lot of people with my talent.
+ - Performing is my therapy, to become different people onstage.
+ - I go out with friends, but I don’t have time to get in trouble.
+ - Every night, I have to read a book, so that my mind will stop thinking about things that I stress about.
+ - I do love Justin with all my heart and we have a lot of trust for each other.
+ - I don’t really have time to sit down and write. But when I think of a melody, I call up my answering machine and sing it, so I won’t forget it.
+ - I have always been heavily involved in every album I have ever made. I’m very stubborn when it comes to recording and will only record songs I love, which is why it takes me a long time to make an album.
+ - I think I’m more grounded, you know, and I know what I want out of life and I’m, you know, my morals are really, you know, strong and I have major beliefs about certain things and I think that has helped me, you know, from being, you know, coming from a really small town.
+ - A woman who feels ugly can go to the best party and have a terrible time, but a woman who likes the way she looks can go to a funeral and have a marvellous time.
+ - I think it’s a positive for girls not to depend on guys.
+ - You can’t help but change a little bit, but on the inside I’m still completely the same person.
+ - My views on virginity have not changed.
+ - I love performing and having people hear my music more that anything...
+ - England is one of my favorite places. The fans are just so crazy.
+ - I just sing what I’m feeling at the time and hope my fans will like that and appreciate that.
+ - It’s shocking how bright your star is.
+ - I think when you experience things in your life, dealing with good and bad things, you just become stronger in so many ways.
+ - I don’t want to pierce anything. I think it’s outdated. Belly rings and all are, like, old.
+ - I’m actually a huge fan of hip-hop. I like hip-hop music. I love rap. I like cabaret music, as well. I just love live music and bands.
+ - Oh, I’ve wept. Yeah, I’ve definitely wept just with the world, you know, how judgmental they are. You know what, I know I’m a good mom.
+ - When it’s time to pull and tuck, I’m sure I will consider it.
+ - I did not have implants, I just had a growth spurt.
+ - Actually, I was a little rejected at first. I kind of got slapped down.
+ - I don’t see myself as an icon, because I just wear whatever I want to wear.
+ - I know not everyone will like me, but this is who I am so if you don’t like it, tough!
+ - I like most of the places I’ve been to, but I’ve never really wanted to go to Japan, simply because I don’t really like eating fish, and I know that’s very popular out there in Africa, but the whole thing just doesn’t appeal to me.
+ - I’m a little nervous of older male fans.
+ - I always wanted to be a singer, it’s what I wanted to do since I was little. I’m doing it now and I couldn’t be happier.
+ - As a mother, the one thing that always goes through your head is, You’re never enough. You never can be enough – or do enough – for your kids. It’s a never-ending issue for me.
+ - I love Jessica Simpson. I love her voice. She’s amazing.
+ - I want to be an artist that everyone can relate to, that’s young, happy and fun.
+ - The only person I do worry about, that I want to be a good person for, I think is my responsibility, is my sister. I’m going to be cool for you, okay. I like, I need to, I like being by myself right now. I think it’s good for me.
+ - I’m so happy to be able to give kids the opportunity to learn about amazing world of dance and music that I’ve have been lucky enough to make such a big part of my own life.
+ - I find it so funny that people find me so interesting.
+ - I’m a mother! So I am more conscious of what I wear. Because when I was younger I would wear just about anything – and I would always show my belly. I mean, I still do that now when I perform, but it’s just done more in a tasteful manner.
+ - I remember I read this harsh review about my show, and one of my friends told me that this was the exact same stuff people said about Madonna. And it’s like, she didn’t care. Madonna just came out and was herself. I respect that a lot.
+ - It all boils down to the music. That’s what causes longevity.
+ - I think it’s an okay thing to express yourself.
+ - I’m pretty normal. Tthe type of day I love is just like everybody else’s. I’m like everybody else.
+ - I’m more straightforward, and I speak up more than I did before. When I was younger, I wouldn’t speak up as much, but now that I’m a mom, things have changed.
+ - I definitely like to go out and dance. I’m a big vibe person when it comes to music so a song really has to make me feel a certain way in order for me to fall in love with it.
+ - I’m attracted to guys who are really confident and make conversation.
+ - I think it’s important to set up that boundary of respect for your kids at a young age, so they will know, I better listen to Mommy.
+ - The best part is the fans loving you. And the free clothes.
+ - I hate it when you go somewhere and 9 million people are staring at you.
+ - I really love doing yoga. My main ritual is yoga. I do A LOT of yoga.
+ - I think everybody should be pro love.
+ - I still have a lot to learn – about the business, about music, and about myself. Its exciting.
+ - I’m famous, but I’m not famous like freaking Brad Pitt or Jennifer Aniston.
+ - I would love to win an Oscar.
+
+152 quotes

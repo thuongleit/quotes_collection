@@ -1,0 +1,113 @@
+ - We all have bad days, but one thing is true; no cloud is so dark that the sun can’t shine through.
+ - Focus your intention on your dreams, you can wave magic when you set your heart and mind to it.
+ - We are limited only by our thoughts.
+ - All flowers are beautiful in their own way, and that’s like women too.
+ - Rose quartz is said to be the stone of unconditional love. This crystal opens the heart chakra and is believed to encourage self-love and forgiveness, and to help you let go of anger, resentment, and jealousy.
+ - I’m a pretty driven person, and I’ve accepted that about myself. For a long time, I was like, ‘I’m a very laid-back person, I grew up in the country,’ but I’m also very driven, otherwise I wouldn’t be where I am right now.
+ - Everyone has a different beauty and different qualities and I think that women need to learn to love their qualities and be comfortable in the fact that everyone is different.
+ - I am grateful for who I am and who I am not. I am grateful for the life I have been given and for all that I have and all that I don’t. Every breath I take is a blessing and an opportunity to fully experience the sheer joy of being alive.
+ - Only you have the power to change your thoughts. Alter your thoughts and you alter your world.
+ - I also carry a clear-and-rose-quartz chakra wand in my handbag.
+ - If you want to relax, watch the clouds pass by if you’re laying on the grass, or sit in front of the creek; just doing nothing and having those still moments is what really rejuvenates the body.
+ - I want to encourage women to embrace their own uniqueness. Because just like a rose is beautiful, so is a sunflower, so is a peony. I mean, all flowers are beautiful in their own way, and that’s like women too.
+ - I think for any relationship to be successful, there needs to be loving communication, appreciation, and understanding.
+ - What I find really works for me is dry body brushing; it helps improve the circulation and exfoliates your skin.
+ - I feel like life is really short, and it’s important to enjoy yourself and embrace whatever comes your way, whether it’s a challenging day or a great day, just welcome it with open arms. No matter who you are, you can’t escape challenges; they are part of life.
+ - A nice person is a ‘yes’ person, whereas a good person is a person who accepts their responsibility in things and moves forward and tries to constantly evolve and isn’t afraid to say no or challenge someone or be honest or truthful.
+ - I am proud to be a woman. I am sensual, nurturing and compassionate woman. I am a woman of my word and I love who I am.
+ - Food is my friend and consistency is the key.
+ - For me it’s all about keeping things simple and feeling comfortable in what I am wearing. I prefer investing in classic well-tailored pieces.
+ - I believe that everything in moderation is best.
+ - Amethyst is a meditative and calming stone that works in the emotional, spiritual, and physical planes to provide calm, balance, patience, and peace.
+ - I find the practice of yoga very spiritual and taking the time to just be and to reflect through meditation and chanting helps me to connect to a higher energy.
+ - I work really, really hard and it’s challenging going through all of those time zones and having to be awake when you’re supposed to be asleep. I literally fly more than a pilot.
+ - My mistake in my relationships has been to feel that I can do it all on my own: ‘I don’t need a man.’ That is definitely a mistake. Women generally want to feel loved and appreciated. It’s something that I am working on every day, trust me! It’s a challenge for me to do that.
+ - I am my own person caoable of making my own decisions and choosing powerfully how i live. I appreciate and respect what others have to say but ultimately I choose how I live my life.
+ - I’m really into rooibos tea with goat’s milk and a little bit of honey. I also drink dandelion tea, Earl Grey, and sometimes a green tea. I’m very into tea.
+ - We all have wings, but it is up to each one of us to have the courage to fly.
+ - Knowing yourself and coming to trust your feelings and your intuition will open up your life to greater possibilities and keep you moving toward your goals. One thing I have learned is that I should trust my ‘gut’ instincts. Ultimately, only we know what is best for us.
+ - Some sunshine is good for the soul, but I always make sure I wear a big hat.
+ - I really love over-the-knee boots. I think they’re super sexy and they’re fun. And they’re also very strong and empowering.
+ - I can’t feel bad about being who I am, just like the girl next to me can’t feel bad about being who she is. Because a rose can never be a sunflower, and a sunflower can never be a rose.
+ - When you accept and appreciate yourself you can handle any situation with class, dignity and respect.
+ - I appreciate both men and women. I love the female body and truly appreciate the female form. I really enjoy sketching women, especially their backs. I definitely need a man in the bedroom, however-a nice strong chest to lie on. Still, I want to explore. Never say never.
+ - To wake up to the sound of my son saying ‘Mama, mama!’ It’s the best sound ever.
+ - When I get home, I’m not the boss like I am at work – I slip into a more feminine role. I take everything off and put on my Stella McCartney silk robe. I’ll put on a red lip or red nails, and it lifts my mood. Sexy underwear also gives you a spark.
+ - I love handbags. And shoes. Investing in like a great handbag or a pair of shoes can really make or break an outfit. It’s fun to mix and match high street with luxury brands and throw in a bit of vintage as well.
+ - Models are some of the most insecure people I’ve ever met. They’re constantly being told they’re not good enough. You’ve really got to practice loving yourself.
+ - My parents both worked – my mom was an accountant, and my dad is a builder – and that taught me about having a really strong work ethic, and I respected them a lot for that.
+ - I must have been a koala in my past life.
+ - A celebrity life can be very fast-paced, and it can be hard to find meaning in it. I believe that everyone is looking for the answers, but the answers are within ourselves.
+ - I love playing the piano. I really want to start taking lessons but need to find the time.
+ - Each of us has a responsibility for the sustainability of our planet and each of us can make a difference if we choose to do so.
+ - I consider myself a good person. And I think people perceive me to be, ‘Oh, she’s nice,’ but being a good person, knowing your strengths and working towards those strengths, and encouraging those around you to do the same, that’s a good person.
+ - My ambition comes from my passion: finding what I love and then expanding on that.
+ - I still feel like the same person, in every way – it is just some of my surroundings have changed and there are lots of new people in my life.
+ - As a child, I was very active. I was a gymnast, I played touch football, netball and basketball. When I was 16 years old, I started yoga. I started working out at an early age.
+ - I was blessed with good genetics, but my essence is very happy and warm and I don’t take my job too seriously. I’m not saving lives here.
+ - Yoga is at the core of my health and wellness routine; even if it’s only for 10 to 15 minutes I find it helps me to re-center and to focus as well as improve my overall core strength.
+ - I got stuck up a tree when I was about seven, and my dad had to come and get the ladder to get me down. I loved to climb all the way up to the top. I must have been a koala in my past life.
+ - I try to be consistent, so I practice yoga and Pilates to help keep my body and mind balanced.
+ - I have a weird sense of humour. My dad’s the same. We love watching ‘Monty Python’ together.
+ - One thing I have learned is that I should trust my ‘gut’ instincts. Ultimately, only we know what is best for us.
+ - Time seems to slow down for me when I focus on staying in the moment and that helps me maintain a sense of balance.
+ - I am a health nut and only do things that are good for my body.
+ - I feel nowadays that both women and men are embracing their individuality rather than being defined by gender roles.
+ - I guess I’m just an open-hearted, fair, good person. I try to encourage people to be their best and look inside themselves and find out what they are passionate about and expand on that and enjoy life.
+ - Clear quartz is known as the “master healer,” and can amplify energy and thought. It draws off negative energy, and it can neutralize background radiation. It balances and revitalizes the physical, mental, emotional, and spiritual planes.
+ - I enjoy experimenting and trying new beauty products. It is fun to try new looks!
+ - I love yoga and I feel like yoga for me is incredible.
+ - It is sad to see anyone neglecting their body no matter who they are and what they do. You simply cannot be healthy or look great on the outside if you are not healthy on the inside.
+ - I always see myself as, like, equal to everyone.
+ - I don’t really enjoy cardio, but I find activities like cranking up the music and dancing around my house keep me energized and feeling good.
+ - I try my best to eat healthy the majority of the time so that I feel good and have more energy. I am so passionate about eating healthily, I am actually certified in nutrition. I try my best to eat organic whenever possible, but it’s important not to be too strict about it. Just do the best you can.
+ - I believe in having a vision for the future but living each day at a time.
+ - I’ve been wanting to cut my hair now for at least a year. I’ve often fantasized about it but I haven’t been able to do it because of the contracts that I’ve had.
+ - I believe in celebrating the female figure and embracing what we’ve been given, not hiding that.
+ - I will not go a day without coconut oil. I personally take four tablespoons per day, either on my salads, in my cooking or in my cups of green tea.
+ - I love being outdoors. I love listening to the crickets. I want to embrace nature.
+ - I love being outdoors and try to work out outside when I can. I spent most of my childhood outdoors.
+ - I treat myself occasionally and don’t have any guilt or conditions placed on it.
+ - Maybe I am too traditional, but men feel important when you ask for their help instead of thinking you can do it all on your own.
+ - Confidence, the sexiest thing I put on in the morning.
+ - I live by the philosophy that beauty starts from within, and I make a conscious effort to fill my body with nutrients through the food I eat.
+ - I always have a few different books going at once.
+ - Becoming a mother has made me even more aware and more passionate about nutrition and wellness. So much so that I am now a certified health coach practitioner.
+ - I really love a red lip, especially when I am feeling tired, as it brightens my whole face.
+ - At the front of my home, in the garden, is a huge piece of clear quartz.
+ - I celebrated my 18th birthday in Japan, which was quite memorable; I was quite fascinated by the different traditions and the culture; it was so completely different to Australian culture.
+ - I want to be a good role model for girls and show them they can do whatever they feel passionate about and still live a healthy life.
+ - What I like about modelling is that it has given me that opportunity to travel and experience different cultures, work with creative people, and now it’s given me a voice, and with that voice hopefully I can do good things with it.
+ - I’m very direct. It’s part of my personality. I’ve actually grown into that.
+ - When you are healthy you look your best and in modeling when you look and feel your best, you get the best results.
+ - When you can, it’s good to make healthy choices. But, I also believe in balance. It’s not about being 100 percent this way or that way. It’s about making healthy choices when you can.
+ - My goal involves a hammock, a vegetable patch, and a solar-powered house. And I hope to eventually get there.
+ - I have crystals all around my home, both inside and out.
+ - Women, I think we can feel like we need to do it all and be it all. What’s important is that we do the best we can, and just make time for yourself because when you do make time for yourself, you give back more as a mother; you give back more to your work.
+ - Meditation is a great way to stay centered and I think inversions are great for aging. Specifically, I think the Kundalini yoga is really a life changer.
+ - There’s something so comforting to me about having a cup of tea, and it really needs to be made with love – I can taste the difference.
+ - I really feel that my body craves to be in the mountains or by the ocean or in the countryside.
+ - I’m quite tactile, so I like fabrics that feel good. I try to avoid fabrics that crease – especially with my son. When you have a child, that’s important. A great pair of a jeans, a t-shirt and some loafers, that’s what I always wear.
+ - When I was young I wanted to be a gymnast. I used to compete at it, but then I grew too tall.
+ - I don’t really time how long it steeps, but in general I don’t plan much when it comes to tea or cooking. I’m more about the feeling.
+ - I’ve always been very comfortable wearing not much, in my swimwear or my underwear, or running around naked. I’ve always been very free like that. I don’t really know why, exactly, but I just have been. Not really too shy about that.
+ - I love to sing, and I’ve recorded a few covers and originals with friends, but I haven’t written any songs.
+ - My beauty routine stays the same; I try to be well hydrated and rested. Most importantly, I always try to make a little time for myself!
+ - If I was as relaxed as what I perceived myself to be, I would not be able to multi-task the way I multi-task.
+ - I love taking pictures of food.
+ - I grew up sitting beside my grandmother playing the piano and singing.
+ - Never say never! I’m open to trying new things.
+ - I love singing just for my own benefit.
+ - I think that, as a woman, it’s much healthier and more positive to focus on your good parts and the things you like about yourself, not pick yourself apart.
+ - I love wearing trackies to lounge around the house in and the strange thing is, it doesn’t matter how many new ones I get I still tend to feel most comfortable in my old ones.
+ - Luckily, eating healthy and exercise are activities I enjoy, but I still like to indulge every now and then. I don’t deprive myself, but I’m thoughtful about my choices.
+ - I do enjoy wearing a little heel when I’m at work, but when I’m running around with my son, it’s a different story!
+ - For me, family is life. The decision to start one wasn’t complex at all. My career has been wonderful, but it’s not my life. I don’t feel pressure to get back to work.
+ - Don’t feel like you have to do and be everything.
+ - I love going for walks and like to do fun active things outdoors.
+ - Life seems to be busy for most people and if you know you are doing the best you can then there really is nothing more you can do then that.
+ - I have amethyst geodes by my meditation – yoga room and large rose quartz throughout my back garden.
+ - Every day, put a little makeup on, put on some nice underwear, and you’ll keep your husband.
+ - I’m that person who says, ‘No matter what the problem is, there’s a solution.’ That’s the way my brain is wired. If someone says to me, ‘Well, that’s not possible. It can’t happen,’ I say, ‘Yes it is. I’m going to sit here and show you that it can.’
+
+111 quotes

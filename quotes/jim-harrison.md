@@ -1,0 +1,82 @@
+ - Beware, O wanderer, the road is walking too.
+ - Barring love I’ll take my life in large doses alone – rivers, forests, fish, grouse, mountains. Dogs.
+ - Poetry at its best is the language your soul would speak if you could teach your soul to speak.
+ - No one else can hold your hand or take this voyage of the soul for you.
+ - The simple act of opening a bottle of wine has brought more happiness to the human race than all the collective governments in the history of earth.
+ - That is simply the most beautiful publishing office in the world, with that cranky old building in that wonderful park.
+ - I can maintain my sense of the sacredness of existence only by understanding my own limitations and losing my self-importance.
+ - It is easy to forget that in the main we die only seven times more slowly than our dogs.
+ - I’m hoping to be astonished tomorrow by I don’t know what.
+ - How wonderful it was to love something without the compromise of language.
+ - Being a writer requires an intoxication with language.
+ - There is a neurologist, a woman over at Harvard who wanted me to come talk to them, and in France I have a lot of readers in the sciences. I can’t tell you why.
+ - I seek the substantial in life.
+ - I can write anywhere.
+ - I write novellas because I don’t like loose sprawling prose.
+ - We set this house on fire forgetting that we live within.
+ - The days are stacked against what we think we are.
+ - Every day I wonder how many things I am dead wrong about. – True North.
+ - Sometimes the only answer to death is lunch.
+ - The answer is always in the entire story, not a piece of it.
+ - I would rather give full vent to all human loves and disappointments, and take a chance on being corny, than die a smartass.
+ - Marriage is survived just on the basis of ordinary etiquette, day in and day out. Also cooking together helps a lot.
+ - Fishing makes us less the hostages to the horrors of making a living.
+ - The wilderness does not make you forget your normal life so much as it removes the distractions for proper remembering.
+ - Dad said I would always be “high minded and low waged” from reading too much Ralph Waldo Emerson. Maybe he was right.
+ - Death steals everything except our stories.
+ - The world that used to nurse us now keeps shouting inane instructions. That’s why I ran to the woods.
+ - We Americans are trained to think big, talk big, act big, love big, admire bigness but then the essential mystery is in the small.
+ - You touch things lightly or deeply; you move along because life herself moves, and you can’t stop it.
+ - What cannot be said, will get wept.
+ - I have closely noted that people who watch a great deal of TV never again seem able to adjust to the actual pace of life. The speed of the passing images becomes the speed the aspire to and they seem to develop an impatience and boredom with anything else.
+ - Fate has never ladled out hardship very evenly, and this frequently trips our often infantile sense of justice.
+ - That’s my only defense against this world: to build a sentence out of it.
+ - Life is sentimental. Why should I be cold and hard about it? That’s the main content. The biggest thing in people’s lives is their loves and dreams and visions, you know.
+ - We are all naturally xenophobic.
+ - The reason to moderate is to avoid having to quit.
+ - Fishing tournaments seem a little like playing tennis with living balls...
+ - After a lifetime of world travel I’ve been fascinated that those in the third world don’t have the same perception of reality that we do.
+ - Nothing on my trip thus far was as I expected which shows you that rather than simply read about the United States you have to log the journey.
+ - Strangely, when I totally emerged from this slump I couldn’t comprehend how I had almost drowned it it.
+ - One of the curious effects of a bad hangover is that you think you’re wrong whether you are or not. Not wrong in particulars, but wrong in general, wrong about everything.
+ - When we were children we were errant enough to wish to be birds for the day but there’s nothing easier to lose than playfulness.
+ - Success and money can really be quite blinding.
+ - Because most writers have totally unrealistic concepts of how publishing works.
+ - New Yorkers are mostly interested in New York – in case you haven’t noticed.
+ - A poet must discover that it’s his own story that is true, even if the truth is small indeed.
+ - I rarely read or buy a book because of a review.
+ - I got $30 from Nation magazine for a poem and $500 for my first book of poems.
+ - The only advice I can give to aspiring writers is don’t do it unless you’re willing to give your whole life to it. Red wine and garlic also helps.
+ - I don’t know what psychotherapy does. I have been seeing the same person for 26 years now.
+ - I thought, frankly, that it would be more pleasant to write a memoir than it was.
+ - Michigan is two radically different places – the North and the South which makes for good drama and contrast.
+ - I’m not rational enough to be a good journalist.
+ - I don’t see gender as the most significant fact of human existence.
+ - Writing as a woman presents enormous problems but I have attempted it several times and haven’t had many complaints.
+ - Zen is the vehicle of reality.
+ - I’d rather get a brain tumor than go back to teaching.
+ - I’ve never felt influenced by Ernest Hemingway though I suppose there is something inevitable there.
+ - I asked a French critic a couple of years ago why my books did so well in France. He said it was because in my novels people both act and think. I got a kick out of that.
+ - Naturally we would prefer seven epiphanies a day and an earth not so apparently devoid of angels.
+ - When we die we are only stories in the minds of others, I thought.
+ - I should add that I very much enjoy certain cities especially Paris, New York and Chicago.
+ - Your kids inevitably want to move where they had their vacations when they were younger.
+ - I see more genuine sociability between the races in Mississippi than I see in Michigan. No question.
+ - I do have trouble with titles.
+ - The fact is, the media never gets off the interstate unless there’s a major explosion.
+ - The old fun thing is when somebody typed up the first chapter of War and Peace. And then made a precis of the rest of it and sent it out and only one publisher recognized it.
+ - I couldn’t run a tight schedule, and if you’re any good at teaching, you get sucked dry because you like your students and you’re trying to help them, but you don’t have any time left to write yourself.
+ - So when I made some money, I didn’t have any idea how one handled such a situation because no one in our family ever had any money.
+ - All artists as a type seem to suffer a great deal, but then so do miners.
+ - Life is an honor, albeit anonymously delivered.
+ - I’m actually forced to write about Michigan because as a native of that state it’s the place I know best.
+ - I had let my digust with teaching ruin my love of literature.
+ - Yeah, but now suddenly – you know, universities are notoriously market oriented, too.
+ - I enjoy about 1 out of 100 movies, it’s about the same proportion to books published that I care to read.
+ - Everybody has a gun in their car in Detroit.
+ - I used to get criticized for putting food in novels.
+ - My advice is, do not try to inhabit another’s soul. You have your own.
+ - Short things are short all over and long things are long all over.
+ - I was on the verge of jumping into one of those holes in life out of which we emerge a bit tattered and bloody, though we remain sure nonetheless that we had to make the jump.
+
+80 quotes

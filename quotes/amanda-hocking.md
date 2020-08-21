@@ -1,0 +1,86 @@
+ - When you dance with the devil, the devil doesn’t change. The devil changes you.
+ - A foolish man thinks he knows everything. A wise man knows he doesn’t.
+ - Not all prisons have bars.
+ - This is the way the world ends; not with a bang or a whimper, but with zombies breaking down the back door.
+ - You don’t want me here, I don’t wanna be here, so why am I here?
+ - For me to be a billion-dollar author, I need to have people buying my books at Wal-Mart.
+ - Some books and authors are best sellers, but most aren’t. It may be easier to self-publish than it is to traditionally publish, but in all honesty, it’s harder to be a best seller self-publishing than it is with a house.
+ - Sometimes the best course in the search for the meaning of life is to busy yourself until you forget that you don’t know the meaning of life.
+ - I will make this world a better place, whether they like it or not. That’s the fun of being Queen.
+ - Sometimes it seems to me that that’s all my life has been, a series of things that I loved deeply that I could never have.
+ - If im lucky, i will never have to see you again. Because if i do, that means we are at war, and id have to hurt you.
+ - You could kill me, Alice, he looked at me seriously. That’s how much you mean to me. As foolish and masochistic as that makes me, you are so much to me that even if it destroys me to be with you, I’ll be with you!
+ - Fine. Whatever. I don’t. Nobody understands your pain, Mae. Because it is so unique! Nobody’s ever loved something so much they would do anything to save it, except for you, Mae. You cornered that market!
+ - It’s not my fault everybody wants me.
+ - You can’t let doubt or fear or guilt eat away at you. You are good and you need to remember that above all else. Love is stronger than hatred, and you are made of love.
+ - His lips brushed against mine. Delicately at first, almost testing to see if this was real.
+ - If Peter Pan had been real, he would’ve gone mad and killed everyone in Neverland.
+ - I had called him out on being creepy, justifiably so, and it didn’t faze him at all. He didn’t stammer an apology or flush with shame and regret. He just kept looking at me evenly. Most likely, he was a damn sociopath, and for whatever reason, I found that endearing.
+ - My mama didn’t raise any fools and she didn’t raise any heroes.
+ - And I’m stuck in it with no way out. I love you, and I can’t stop, and you don’t even care!
+ - Wendy: Why are you staring at me? Finn: Because you’re standing in front of me.
+ - Finn: I look at you because I can’t look away Wendy. Wendy: That’s kinda creepy. Finn: I will work on being less creepy then.
+ - While it did smash, breaking a bottle over someone’s head requires a lot more force than movies had led me to believe.
+ - I’m not all you need, and I don’t even want to be. I just want to love you, for the rest of my life, and as long as you let me do that, we’ll be okay.
+ - In case you haven’t noticed, I’m a lover not a fighter.
+ - And I have two eyes. I’ve seen that little melodrama play out between you and that other tracker. Fish? Flounder? What’s his name?
+ - I was always depressed growing up. There wasnt a reason for it, I just was. I was sad and morose. I cried a lot, I wrote a lot, and I read a lot; and that was how I dealt with it.
+ - Being liked for the way you looked is worse than not being liked at all.
+ - When something is important to you, you make sure its safe.
+ - No! If you die, I die! You asked me to spend forever with you, and I’m going to!
+ - Travelling is a great time to catch up on my reading. It’s hard falling asleep in new places, but a good book always makes it easier.
+ - You can bite me if you want. I want you to.
+ - As a rule, I don’t enjoy being tossed into closets and having the door shut on my face, but I knew he was protecting me.
+ - I only saw fire and chandeliers and smoke. No people. Not the room. Not even a time frame. Do you know how many chandeliers there are in the south wing alone? What was I supposed to do? Tell everyone to avoid chandeliers forever?
+ - Nothing is ‘just’ anything with you.
+ - You’re killing me here! You are far more dangerous than I am!
+ - I hate that you do this to me. I hate how crazy you make me. I hate you! – Wendy.
+ - I decided to go along with it. If he tried to give me the runaround, I would bolt. I didn’t have time to waste on vague answers and evasive language. Matt and Rhys were captive, and Rhys couldn’t even sit down.
+ - In that moment, Lux felt complete for the first time. He hadn’t even realized anything was missing until he met her, but now, with her curled up in his arms, her hair tickling against his chin, he couldn’t imagine existing without her – Virtue – A Fairy Tale.
+ - I get that we can’t be together. And it’s not like I’m so weak-willed that the simple act of saying hello to me will cause me to jump your bones in the hall.
+ - I want to be a writer. I do not want to spend 40 hours a week handling e-mails, formatting covers, finding editors, etc.
+ - I don’t care where I come from or who you are. I can make you happy, and you make me happy. We could have a happily ever after.
+ - You know what would be fun? Nobody wants to play Guitar Hero. But you can play the Beatles! You loved the Beatles!
+ - He hadn’t been peeping intentionally; he’d been trying to sneak into my room. So that was slightly less creepy, I supposed.
+ - I think I draw most inspiration from writers like Richelle Mead and filmmakers like John Hughes. They both really understand the experience of being a teenager and how insistent and intense everything feels, but they’re also smart, savvy, and fun.
+ - I tended to hate people that hit me in the head without warning.
+ - I priced my books at what I would want to spend on an electronic book.
+ - When I was a little kid, before I learned how to write, I would tell stories.
+ - Tove had blown the doors open with his abilities, and he stood on the other side of them, looking astonishigly bad ass.
+ - My mom has a tape from when I was, like, 2 years old, talking with my grandma, telling her a story that’s really elaborate about werewolves and wolves.
+ - I don’t want only one night. I want all the nights. I want all of you, forever.
+ - How had it turned into this? I had lived my whole stupid life without him, and now I could barely make it through the hour.
+ - You know, back in the day, when a guy saved a Princess’s life, she would reward him with a kiss...
+ - Self-publishing is great, but I don’t want to be an icon for it, or anything else.
+ - Because you’re here with me, Jack said. Any night that ends with that can’t be that bad.
+ - He stepped into my room with one graceful move, as if entering through bedroom windows was nothing out of the ordinary.
+ - I don’t really like fairies.
+ - It smelled pretty rank, but I was getting used to the smell of death, as much as anyone could get used to it.
+ - I looked at him like he was an idiot, but he didn’t notice. Or maybe he got it so often, he thought that was how people looked at him.
+ - I guess what I’m trying to say is that you can’t live somebody else’s life for them. They have to make their own choices, and sometimes all we can do is learn to live with them.
+ - I don’t think I’ve ever really had a home before, not until I met you.
+ - What I told you before is still true. I want to know that when you’re with me, it’s because you want to be, not because you have to be.
+ - As I drifted off to sleep, I could hear him breathing, and that definitely helped me relax.
+ - Oh yeah. That’s why. Like a fairy tale. I was marrying the Prince. I just happened to be in love with the pauper.
+ - I don’t want to be famous per se, but I want to write books for as long as I can. And I plan on writing a lot.
+ - When I said it aloud, it sounded terribly creepy, which is why I had said it aloud.
+ - This was good, except that now I had two crazed, burning zombies standing between me and the exit, plus another one that wasn’t on fire. I had not thought this plan through at all.
+ - I’m not a bloody cockroach. What’s all this about? What are you trying to find out?
+ - Right then, it didn’t matter what his reasons were. All I knew that I was sick of him breaking my heart.
+ - The desperation was coming off you in waves. You were all but begging to dance with me. I am doing you a favor.
+ - My only experience with dances was what I had seen on TV, but it really wasn’t that far off. The theme appeared to be “Crepe Paper in the Gymnasium,” and they had mastered it perfectly.
+ - I look at you because I can’t look away.
+ - I still have the same friends I’ve had for the last 15 or 20 years.
+ - People have bad things to say about publishers, but I think they still have services, and I want to see what they are. And if they end up not being any good, I don’t have to keep using them.
+ - The only consent hinge in life is that everyhin is changing. And that’s a little scary, but it means that hints can’t be bad or hard forever.
+ - I’ve always kind of wrote when I wanted to. Once I get the idea in my head and get it outlined out, I usually just sit and write until it’s done.
+ - I’ve taken every writing class I’ve had available. I took classes in high school, and I took English and writing classes in community college, but I dropped out of college. I also attended a local writing workshop two years ago.
+ - He kissed me desperately, like a drowning man and I was his oxygen.
+ - He might as well have been telling me to build a damn rocketship. I had no idea what to do.
+ - Writing has always felt like a compulsion. Even at high school there’d be times when people would ask me if I wanted to go and hang out and I’d sit home and write instead.
+ - There was something almost painful about that, the intensity of being so vulnerable and so intimate with him.
+ - How did I look at you? I asked thickly. Like you had to, like I was a magnet you were pulled to. There was no choice, he said. And when you look at Jack, it’s because when he’s around, why would you want to look at anything else? You love him the way you could never love me.
+ - It feels so weird to be able to just kind of buy things when I want them or need them.
+ - Unfortunately, zombies aren’t very flammable, and it went out instantly.
+
+84 quotes

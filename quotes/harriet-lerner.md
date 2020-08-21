@@ -1,0 +1,64 @@
+ - Anger is a tool for change when it challenges us to become more of an expert on the self and less of an expert on others.
+ - We cannot make another person change his or her steps to an old dance, but if we change our own steps, the dance no longer can continue in the same predictable pattern.
+ - Only through our connectedness to others can we really know and enhance the self. And only through working on the self can we begin to enhance our connectedness to others.
+ - If you pursue a distancer, he or she will distance more. Consider it a fundamental law of physics.
+ - Keep in mind that the tendency to be judgmental – toward yourself or another person – is a good barometer of how anxious or stressed out you are. Judging others is simply the flip side of judging yourself.
+ - If we only listened with the same passion that we feel about being heard.
+ - People marry with a deep longing that their partner will tend to their wounds, not throw salt in them. Honor your partner’s vulnerability.
+ - The rush of sexual attraction can act like a drug and blur our capacity for clear thinking. This can lead us to distance ourselves from our friends or even abandon our life plan for someone who couldn’t otherwise be relied on to water our plants and feed our cat.
+ - The more we seek exclusivity in friendship, the more it becomes obligatory and the less likely it is to fulfill the wonderful vision of what true friendship can be.
+ - Anxiety is extremely contagious, but so is calm.
+ - Being who we are requires that we can talk openly about things that are important to us, that we take a clear position on where we stand on important emotional issues, and that we clarify the limits of what is acceptable and tolerable to us in a relationship.
+ - An intimate relationship is one in which neither party silences, sacrifices, or betrays the self and each party expresses strength and vulnerability, weakness and competence in a balanced way.
+ - Whole-hearted listening is the greatest spiritual gift you can give to the other person.
+ - Telling a true story about personal experience is not just a matter of being oneself, or even or finding oneself. It is also a matter of choosing oneself.
+ - The strongest relationships are between two people who can live without each other but don’t want to.
+ - Silence can pose a greater threat than the difficult truth.
+ - Believing that all women should want to be mothers makes about as much sense as believing that all men should want to be engineers.
+ - As long as we can feel hope, there is hope.
+ - We will be in tune with our bodies only if we truly love and honor them. We can’t be in good communication with the enemy.
+ - The miracle is that your children will love you with all your imperfections if you can do the same for them.
+ - Anger is a signal, and one worth listening to.
+ - Through words we come to know the other person – and to be known. This knowing is at the heart of our deepest longings for intimacy and connection with others. How relationships unfold with the most important people in our lives depends on courage and clarity in finding voice.
+ - Intimate relationships cannot substitute for a life plan. But to have any meaning or viability at all, a life plan must include intimate relationships.
+ - It is an act of courage to acknowledge our own uncertainty and sit with it for a while.
+ - Feeling inadequate is an occupational hazard of motherhood.
+ - Feeling essentially superior to other people is as sure a sign of poor self-esteem as feeling essentially inferior.
+ - Intensity is not the same as intimacy, although we tend to confuse these two words.
+ - Sometimes the most helpful thing you can do is to stop trying to be helpful.
+ - If you want a recipe for relationship failure, just wait for the other person to change first.
+ - The bolder and more courageous you are, the more you will learn about yourself.
+ - Your children are not little mirrors reflecting back the good or bad job you’ve done.
+ - Although it’s not useful to drown in despair, it’s also not useful to keep a ‘positive attitude’ when this means concealing or denying real emotions.
+ - Wherever you find a wife and mother-in-law slugging it out, you’ll find a son who’s not speaking up to either his mother or his wife.
+ - When anxiety disrupts functioning, it’s psychiatric illness.
+ - I’m a good example of wanting to apologize only for my precise share of a problem – as I calculate it, of course – and I expect my husband Steve to apologize for his share, also as I calculate it. Since we’re not always of one mind on the math, it can lead to the theater of the absurd.
+ - My debt to feminism is simply incalculable. Feminism allowed me to see past a ‘reality’ that I had once taken as a given. It helped me to pay attention to countless voices, my own included, that I had been taught ‘don’t count.’ Feminism allows me to maintain hope.
+ - When you can’t see yourself objectively, you won’t see anyone else objectively, either.
+ - We’ll always be disappointed if we believe that we can plan for a peak experience and make it happen. True joy can’t be anticipated or planned. It just strikes.
+ - Differences don’t just threaten and divide us. They also inform, enrich, and enliven us.
+ - Many of our problems with anger occur when we choose between having a relationship and having a self.
+ - Those of us who are locked into ineffective expressions of anger suffer as deeply as those of us who dare not get angry at all.
+ - We all fear change, even as we seek it.
+ - Love alone is never a good enough reason to marry.
+ - Kids want nothing more than for all the important adults in their life to get along.
+ - If what we are doing with our anger is not achieving the desired result, it would seem logical to try something different.
+ - We need to hear the sound of our voice for what we think and need.
+ - Pretending can be a bold form of experimentation and inventiveness. In pretending joy or happiness, we may discover or enhance our capacity for it.
+ - Although the connections are not always obvious, personal change is inseparable from social and political change.
+ - The first world we find ourselves in is a family that is not of our choosing.
+ - Fear is a message – sometimes helpful, sometimes not – but often conveying critical information about our beliefs, our needs, and our relationship to the world around us.
+ - Being in touch with our bodies, or more accurately, being our bodies, is how we know what is true. Harriet.
+ - Self-help books for women are part of a multibillion-dollar industry, sensitively attuned to our insecurities and our purses.
+ - We commonly confuse closeness with sameness and view intimacy as the merging of two separate I’s into one worldview.
+ - Underground issues from one relationship or context invariably fuel our fires in another.
+ - Nothing you say can ensure that the other person will get it, or respond the way you want. You may never exceed his threshold of deafness.
+ - No book or expert can protect us from the range of painful emotions that make us human.
+ - It’s remarkable how many couples can precisely describe their particular pattern of painful fighting, and claim to be helpless to change it.
+ - Don’t count on the power of your love or your nagging to create something that wasn’t there to begin with.
+ - You can’t evaluate a prospective partner if you insulate your relationship from your family and friends – and his.
+ - As many have observed, it is easy to tell a lie, but it is almost impossible to tell only one.
+ - What initially attracts us and what later becomes ‘the problem’ are usually one and the same.
+ - Fear has never helped anybody make good choices. It leads to clinging when we should be walking.
+
+62 quotes

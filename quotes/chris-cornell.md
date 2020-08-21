@@ -1,0 +1,48 @@
+ - Be yourself is all that you can do.
+ - Everybody is influenced by someone.
+ - She gives the night its dreams.
+ - People don’t realize how much fun it is to be depressed.
+ - And if you don’t believe the sun will rise, stand alone and greet the coming night in the last remaining light.
+ - The words you say never live up to the words in your head.
+ - I’m not usually in a talkative mode.
+ - I used to work in jobs I hated because I needed the money to buy a guitar. I know what it feels like to be depressed. On the other hand, I also know what it feels like to have money, to be successful, to be independent, but I can tell you that money and success never solve your problems.
+ - Children should always feel like the adults are living in this world to nurture them, to take care of them, to protect them from any bad thing that might come.
+ - I’m looking California and feeling Minnesota.
+ - I’m not a lyric writer to make statements. What I enjoy doing is making paintings with lyrics, creating colorful images. I think that’s more what entertainment and music should be.
+ - Once you sit in front of people and start playing songs, it’s all on you. No matter what happens, it’s entirely your responsibility the entire time. I like that intensity.
+ - Maybe sincerity is the new punk. But to me, I think I have to connect with something emotionally, on some level, or I don’t care about it. And if I don’t care about it, then I don’t think anyone listening to it will, either.
+ - To me, music shouldn’t be ego-driven. When you go out on stage and play songs, it is. But when you’re sitting in a room, writing songs, it’s a completely different process. It’s a completely different place. It’s a creative place, a musical place. It has nothing to do with who likes what.
+ - If you are trying to think ahead musically, it is not going to help you. It is better to ignore what is happening melodically and just look at the little dots coming at you and the corresponding colors and try to do it at the right time.
+ - There’s something about losing friends, particularly young people, where it’s not something that you get over. I don’t believe there’s a healing process.
+ - Led Zeppelin is just a bunch of stupid idiots who wrote cool riffs.
+ - I don’t really go mountain biking per se, like a proper sport.
+ - Sometimes, if a song is written, in essence, to be that stripped down, it’s very touchy when you start adding things, because even the smallest thing can have a huge impact. Somebody has to make the decision that there’s a better song in there if there’s less.
+ - I’ve had a long career and I want to continue to have a long career. The way to do that is not to go away.
+ - Friends of mine that are from here or that have spent time here have told me about Israel and how warm the people are and that I should someday come here.
+ - It’s great when you play to an audience that knows the words to all your songs, and sings them back to you.
+ - My first favorite band that made music important to me was the Beatles. I was a little kid. I didn’t know who was singing what song or who wrote what song.
+ - An acoustic show is all about you, and any little nuance or mistake is amplified.
+ - What makes that song, I think, is how stark it is.
+ - I never wrote music or arranged songs or lyrics when I was under the influence of anything but coffee. That’s not gone away.
+ - Due to irresolvable personality conflicts as well as musical differences, I am permanently leaving the band Audioslave. I wish the other three members nothing but the best in all of their future endeavours.
+ - What do you think Jesus would twitter, ‘Let he who is without sin cast the first stone’ or ‘Has anyone seen Judas? He was here a minute ago.’
+ - I play Texas Hold’em on my Blackberry. I have amassed a fortune on that. I have almost 30 million dollars from playing. It is unreal.
+ - I don’t get in there and create a character. It’s more of a voice that I hear living inside the music.
+ - At the end of the day it’s the fans who make you who you are.
+ - I had to teach myself to let go of the conventional rock way of playing guitar and singing. Some things you wouldn’t expect to work, did and some things won’t ever work.
+ - Most frontmen are not born hams like David Lee Roth. We’re more like Joey Ramone: awkward geeks who somehow find our place in the world on the stage.
+ - A true musician, like Johnny Cash, should be able to walk into a room with nothing but an instrument and capture people’s attention for two hours.
+ - Radio and TV can still push a band, but things need to be shaken up. There is the Internet, but mostly what I see there is little kids on YouTube playing music.
+ - I think that one of the main privileges of what I do, which I am just starting to learn, is to have the ability to travel all over the world and experience different cultures.
+ - In the United States, workouts tend to focus on body image and how you look. For me, it’s really all about the brain.
+ - I can go from one extreme to another, from playing at the Sydney Opera House on the Songbook tour to shows with Soundgarden at Voodoo Fest, all in a week.
+ - If I’m going to go out to be a solo artist, it’s because I want to do something different without having to wait on someone else’s schedule or hobbies or be limited by other people’s prejudices. I’d be kind of stupid not to exercise that.
+ - I got in touch with the creative process between the age of 14 and 16, mainly because I was alone so much.
+ - If I had a musical identity that was definable then it would be time to get into painting or something else. Race car driving.
+ - There wasn’t a key moment when I knew I wanted to quit.
+ - I feel like you’re not a real musician or entertainer if you can’t go into a room, pick up an instrument and entertain people.
+ - I think it’s important for fans to know that but if I’m doing something that inspires me musically then I think it will inspire someone else too.
+ - My brother brought home ‘At San Quentin’ when I was about 7, and we played it over and over again.
+ - I actually think to some degree that people are down for longer shows with an acoustic show.
+
+46 quotes

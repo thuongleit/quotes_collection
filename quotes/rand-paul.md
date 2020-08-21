@@ -1,0 +1,248 @@
+ - Foreign aid goes from poor people in rich countries to rich people in poor countries.
+ - The Constitution was not written to restrain the citizen’s behavior, it was writtne to restrain the government’s behavior.
+ - Bipartisanship is not what is missing in Washington. Common sense is.
+ - I call myself a constitutional conservative.
+ - We don’t need bigger government. We need to shrink the size of government.
+ - I will not let the patriot act, the most un-patriotic of acts, go unchallenged.
+ - Of strong importance to me is the defense of minority rights, not just racial minorities, but ideological and religious minorities.
+ - The Stamp Act was a direct tax imposed on the colonies by King George III. This act inevitably led to the American Revolution. Just as the Stamp Act did in 1765, Obamacare should act as a wake-up call. Chief Justice Roberts provides us with a similar call to action.
+ - I do believe people ought to be left alone. I don’t care who you are or what you do at home or who your friends are or where you hang out, what kind of music you listen to, what you do in your home is your own business. That’s always been who I am. I am a leave me alone kind of guy.
+ - I think what happened during the Great Depression was that African Americans understood that Republicans championed citizenship and voting rights but they became impatient for economic emancipation.
+ - Congress shall pass no law that exempts themselves!
+ - Do you hate poor people or do you just hate poor people with jobs?
+ - The history of African-American repression in this country rose from government-sanctioned racism. Jim Crow laws were a product of bigoted state and local governments.
+ - For liberty to expand, government must shrink. For the economy to grow, government must get out of the way.
+ - If our freedom is taken, the American dream will wither and die.
+ - The power to tax and spend is restricted by the enumerated powers.
+ - I have a question, a question for the president: Do you hate all rich people, or just rich people who don’t contribute to your campaign? Do you hate poor people or do you just hate poor people with jobs?
+ - I support local solutions to illegal immigration as protected by the 10th amendment. I support making English the official language of all documents and contracts...
+ - We live in a world, a medieval type of world, where someone can accuse you – through gossip and hearsay, and all of a sudden you’re supposed to respond to specific charges from people you don’t know, are not aware of who these people are, and you’re supposed to respond to their specific allegations?
+ - Let’s start that conversation by acknowledging we aren’t going to deport 12 million illegal immigrants. If you wish to work, if you wish to live and work in America, then we will find a place for you.
+ - Every child in every neighborhood, of every color, class and background, deserves a school that will help them succeed.
+ - America’s not the world’s policeman. Terrible things happen across the globe and it is beyond our means to right every wrong. But when, with modest effort and risk, we can stop children from being gassed to death and thereby make our own children safer over the long run, I believe we should act.
+ - In a free society, we will tolerate boorish people, who have abhorrent behavior, but if we’re civilized people, we publicly criticize that, and don’t belong to those groups, or don’t associate with those people.
+ - I don’t want to live in a nanny state where people are telling me where I can go and what I can do.
+ - Gun control is not part of a strategy to defeat radical Islam or take ISIL down. However it is a problem back here at home. A million people have been adjudicated a danger to themselves or to others at the state court level.
+ - If congress refuses to obey its own rules. If congress refuses to pass a balanced budget. If congress refuses to read the Bills. Then I say, sweep the place clean, limit their terms, and send them HOME!
+ - I say not one penny more to countries that are burning our flag.
+ - We should be proud that so many want to come to America, that it is still seen as the land of opportunity. Let’s make it a land of legal work, not black-market jobs. Let’s make it a land of work, not welfare. Our land should be one of assimilation, not hiding in the shadows.
+ - We still need to secure our southern border. The other thing I would say is we need to secure who visits us in the country.
+ - We have to have a more realistic foreign policy and not a utopian one where we say, oh, we’re going to spread freedom and democracy, and everybody in the Middle East is going to love us. They are not going to love us.
+ - Well, I think a handshake is something that honorable men do. Before we had contracts we had handshakes that expressed that we were making an arrangement that was based on our honor. And I don’t think I can shake the hand of someone who shows and lacks honor by attacking a man’s faith.
+ - My first choice had always been my father. He’s still my first pick. Now that the nominating process is over, tonight, I’m happy to announce that I’m going to be supporting Governor Romney.
+ - The Founders never intended for Americans to trust their government. Our entire Constitution was predicated on the notion that government was a necessary evil, to be restrained and minimized as much as possible.
+ - The First Amendment says keep government out of religion. It doesn’t say keep religion out of government.
+ - Any time we give people the ability to use force, we have to be very careful. It’s sort of like the people who spy on us – you’ve got to watch the watchers.
+ - Just because a couple people on the Supreme Court declare something to be ‘constitutional’ does not make it so.
+ - The source of the problem is in Syria. Raqqa is the headquarters of ISIL, which is a lethal terrorist organization, now army. If you don’t go after them over there, they’re going to hit us over here, and there’s no substitute for that in my view.
+ - A free society will abide unofficial, private discrimination, even when that means allowing hate-filled groups to exclude people based on the color of their skin.
+ - A Tea Party tidal wave is coming.
+ - The key to winning any general election in the USA is to excite your base and then expand your base – get independent voters and voters who haven’t been voting for your party to come to your party.
+ - Does the owner of the restaurant own his restaurant? Or does the government own his restaurant?
+ - How much liberty do with want to give up for a false sense of security?
+ - The Fourth Amendment was what we fought the revolution over!
+ - If you hear me out, I believe you’ll discover that what motivates me more than any other issue is the defense of everyone’s rights.
+ - There comes a time, there comes a time in the history of nations when fear and complacency allow power to accumulate and liberty and privacy to suffer. That time is now and I will not let the Patriot Act, the most unpatriotic of acts go unchallenged.
+ - We had people coming to our Foreign Relations Committee and saying, “Oh, we need to arm the allies of Al Qaida.” They are still saying this. It is a crazy notion. This is the biggest debate we should be having is is regime change a good idea; has it been a good idea.
+ - This whole sort of ‘war on women’ sort of thing, I’m scratching my head because if there was a war on women, I think they won.
+ - I think it’s a conundrum. If we have no laws on this, people take it to one extension further, does it have to be humans, you know?
+ - When you ask yourself, whoever you are, that think you’re going to support Donald Trump, think, do you believe in the Constitution? Are you going to change the Constitution?
+ - Big and oppressive government has long been the enemy of freedom, something black Americans know all too well.
+ - You can be strong without being involved in every single civil war around the world.
+ - Out of regime change you get chaos. From the chaos you have seen repeatedly the rise of radical Islam. So we get this profession of, oh, my goodness, they want to do something about terrorism and yet they’re the problem because they allow terrorism to arise out of that chaos.
+ - No Republican questions or disputes civil rights. I have never wavered in my support for civil rights or the civil rights act.
+ - Both sides of the aisle – Republican and Democrat – have been unwilling and afraid to address the deficit, and someone’s got to.
+ - I tell people I won’t vote to go to war unless I’m ready to go or send my kids.
+ - We do not project power from bankruptcy court. We’re borrowing a million dollars a minute.
+ - I think ultimately that the rules that you make for gun control, people who are intent on killing themselves aren’t too concerned with the rules. Law-abiding citizens are.
+ - Inherent to socialism is the absence of choice. If I want to choose my own pretzels or books or iphones, they prevent me – they fine me, or imprison me. And those systems, not infrequently have historically, have developed into systems where there are pogroms.
+ - If you give up your rights now, don’t expect to get them back.
+ - If you’re white and you’re rich in the USA, if you get busted for drugs, you get a good attorney, and you in all likelihood serve no time. But if you’re poor, black, Hispanic, or poor and white for that matter, you can get put in jail.
+ - The state doesn’t own your children. Parents own the children.
+ - Join us in the fight to defeat the Washington machine. It’s fun and easy to get started. You can make a difference and change the direction of our country! Join today.
+ - The GOP of old has grown stale and moss-covered. I don’t think we need to name any names, do we? Our party is encumbered by an inconsistent approach to freedom. The new GOP will need to embrace liberty in both the economic and the personal sphere.
+ - The Democrats promised equalizing outcomes through unlimited federal assistance while Republicans offered something that seemed less tangible – the promise of equalizing opportunity through free markets.
+ - Because Republicans believe that the federal government is limited in its function-some have concluded that Republicans are somehow inherently insensitive to minority rights. Nothing could be further from the truth.
+ - What I’ve always said is that I’m opposed to institutional racism, and I would’ve, had I’ve been alive at the time, I think, had the courage to march with Martin Luther King to overturn institutional racism, and I see no place in our society for institutional racism.
+ - We shouldn’t have a program where we just say that we’re going to take care of the world’s refugees. Nobody in the Middle East is doing anything. Saudi Arabia, Qatar, Kuwait – all the Gulf nations are doing nothing.
+ - I’m not in favor of any discrimination of any form.
+ - The problem is that in our country, they make it almost impossible for politicians to win anything. In England it’s easier to win a libel suit.
+ - I think it’s a huge mistake. I think regime change in Syria, and this is what – I’ve been saying this for several years now. In 2013 when we first went in, I said, you are going to give arms to the allies of al Qaida, to radical jihadists? That’s crazy.
+ - You need to have people within your own party that have the wherewithal to stand up to you.
+ - Some people say I chastise the Republican Party too much.
+ - The only way to save Social Security is to raise the retirement age.
+ - I want to see the original long-form certificate of Donald Trump’s Republican registration.
+ - You can send a clear message to the establishment.
+ - I would never belong to any club that excluded anybody for race.
+ - We should understand the limitations of war. We should understand the sacrifices our young men and women go through losing lives and limbs. And they should only do it for the highest of purposes.
+ - And when the time is right, I hope that African Americans will again look to the party of emancipation, civil liberty, and individual freedom.
+ - We must protect ourselves from jihadis without losing ourselves.
+ - If Americans were attacked, it does change the equation. The problem is, is that with regard to this is there’ve been horrendous killings of civilians with conventional weapons.
+ - I think the vast majority of the American people say you shouldn’t be able to collect my phone records if I’m not suspicious, if you don’t have probable cause.
+ - There comes a time, in the history of Nations when fear and forgetfulness cause a nation to hesitate, to waver and perhaps even to succumb. When that time comes those who love liberty must rise to the occasion. Will you? Will you lovers of liberty, will you rise to the occasion?
+ - There is often variations of evil on both sides of the war. What we have to decide is whether or not regime change is a good idea. It’s what the neoconservatives have wanted. It’s what the vast majority of those on the stage want.
+ - The great and abiding lesson of American history, particularly the cold war, is that the engine of capitalism, the individual, is mightier than any collective.
+ - Let’s means-test benefits – let’s means-test Social Security and Medicare and make the rich pay more for these benefits.
+ - We have to think before we act.
+ - I don’t want my marriage or my guns registered in Washington.
+ - Well, let’s be clear I’m the only one on the stage who actually has a five-year budget that balances.
+ - On the Gang of Eight bill, there was no provisions really for extra scrutiny or safety for refugees. At the time the bill came up, two Iraqi refugees came to my home town, Bowling Green, Kentucky. Their fingerprints were on a bomb from Iraq. They were in the database, but we didn’t pick them up.
+ - Toppling secular dictators in the Middle East has only led to chaos and the rise of radical Islam.
+ - I’ve put pencil to paper and I’ve said I would cut spending, and I’ve said exactly where. Each one of my budgets has taken a meat axe to foreign aid, because I think we ought to quit sending it to countries that hate us.
+ - My grandfather would live to see his children become doctors and ministers, accounts and professors.
+ - We should not have drug laws or a court system that disproportionately punishes the black community.
+ - We need to be fearful of companies that get so big that they can actually be directing policy.
+ - We will not cut one penny from the safety net until we’ve cut every penny from corporate welfare.
+ - Are you so afraid that you are willing to trade your freedom for security?
+ - I believe we should work to end all racism in American society and staunchly defend the inherent rights of every person.
+ - Should it be prohibited for private entities such as a church, bed-and-breakfast or retirement neighborhood that doesn’t want noisy children? Absolutely not. Decisions concerning private property and associations should in a free society be unhindered.
+ - We all either work for rich people or we sell stuff to rich people. So just punishing rich people is as bad for the economy as punishing anyone. Let’s not punish anyone. Let’s keep taxes low and let’s cut spending.
+ - I’ve been accused of wanting to allow terrorists to have weapons to attack America.
+ - I’m the third of five children.
+ - I think if we ban certain religions, if we censor the Internet, I think that at that point the terrorists will have won.
+ - Whether or not regime change is a good idea or a bad idea. I don’t think because I think the regime change was a bad idea it means that Hussein was necessarily a good idea.
+ - There’s 150,000 students here from the Middle East. If 40% of them have overstayed their visa, don’t we need to know where they are, what they’re doing, are they obeying our rules?
+ - I’ve introduced legislation to say, “For right now, let’s stop it,” from about 34 countries.
+ - If you force legislators to balance, at the end of the day, if it has to be balanced, then they step up and they become legislators and can find out where to cut.
+ - What most Americans don’t realize is there is an unholy alliance. They come together. There’s a secret handshake. We spend more money on everything. And we are not stronger nation if we go further into debt. We are not projecting power from bankruptcy court.
+ - Giving someone a one-time stimulus check, or a one-time tax cut that expires doesn’t allow the predictability that business needs.
+ - Hardened terrorists are coming here to hit us hard if we don’t hit them first.
+ - Really, while gas is an awful thing to watch – the death is painful – to even watch these deaths – it’s also bad to die from a bullet, a hand grenade, or a machete.
+ - In 1997, I, along with 200 other young ophthalmologists formed the National Board of Ophthalmology to protest the American Board of Ophthalmology’s decision to grandfather in the older ophthalmologists and not require them to recertify.
+ - It’s curious that only in Washington can you spend $2 billion and claim that you’re saving money.
+ - Many states and even many people who are in support of the death penalty question their support of the death penalty because of the imperfection of our courts. Through DNA testing, we don’t always get it right, even with that.
+ - I think this sets a very bad precedent, the president unilaterally on his own starting war without any consent from Congress.
+ - I’m in favor of everything with regards to ending institutional racism.
+ - I think if we want to defeat terrorism, I think if we truly are sincere about defeating terrorism, we need to quit arming the allies of ISIS. If we want to defeat terrorism, the boots on the ground – the boots on the ground need to be Arab boots on the ground.
+ - I don’t think we’re doing an adequate vetting process of those who are coming to our country.
+ - My great-grandfather, like many, came to this country in search of the American dream.
+ - In a reality, what we should be doing is having quiet diplomacy with the Russians to convince them that it’s in their self-interest to have a more stable Middle East because trade enriches us all.
+ - Using taxes to punish the rich, in reality, punishes everyone because we are all interconnected. High taxes and excessive regulation and massive debt are not working.
+ - We shouldn’t be fearful of freedom, we shouldn’t be fearful of individual liberty.
+ - You know, when Republicans were in charge, we doubled the debt. But, now, our concern is the Democrats are in charge and they’re tripling the debt. So, really, our concern is that we want smaller government.
+ - I think we’re never fully protected, but I think we need to do everything we can to stop threats to us.
+ - I’ve never argued against any technology being used when you have an imminent threat, an active crime going on. If someone comes out of a liquor store with a weapon and fifty dollars in cash, I don’t care if a drone kills him or a policeman kills him.
+ - The 11 million, I think, are never going home, don’t need to be sent home, and I would incorporate them into our society by giving them work visas and making them taxpayers.
+ - The greatest threat to our national security is our debt. We borrow a million dollars a minute.
+ - I think most people, in their lifetime, have seen somebody who has the ability to use force lord it over other individuals. I see a lot of those videos, and I am disturbed by people being yanked out of their cars, and it seems to be a disproportionate amount of young black men. I’m disturbed by it.
+ - If I had been told to get out of the street as a teenager, there would have been a distinct possibility that I might have smarted off. But, I wouldn’t have expected to be shot.
+ - The Republican Party is an empty vessel unless we imbue it with values.
+ - You shouldn’t have one opinion when you’re running and another when you’re president.
+ - We have a lot of politicians who have really small brains and really big hearts.
+ - I think really that you shouldn’t run as a conservative if you’re not.
+ - The main thing I say on war is that we need to obey the law and formally declare war.
+ - You can tell a person’s religion 85 percent of the time from their phone records.
+ - I would pay to have those adjudications enrolled into the federal background system so we could detect people who are mentally ill before they buy a gun. That is a real problem.
+ - I think we defeat terrorism by showing them that we do not fear them.
+ - If someone has Ebola at a cocktail party, they’re contagious and you can catch it from them.
+ - The vast majority of my time is traveling and talking about the issues. It isn’t really calling and asking for money.
+ - Everybody is looking for an election where they can do something and participate.
+ - I read all of Ayn Rand’s novels when I was 17.
+ - These attacks prove one thing for certain: the liberal establishment is desperate to keep leaders like me out of office, and we are sure to hear more wild, dishonest smears during this campaign.
+ - To understand how Republicans lost the African American vote, we must first understand how we won the African American vote.
+ - I’m the leading voice in America for not arming the allies of ISIS.
+ - I don’t care if you’re a Republican or a Democrat, there is something profoundly un-American about using the brute force of government to bully someone.
+ - My belief has always been that national defense is the most important thing we do, but we shouldn’t borrow to pay for it.
+ - I think there is some overreach in the sense that the EPA now says: if Congress doesn’t pass greenhouse emissions regulations or testing, we’ll simply do it on our own. I think that’s an arrogance of a regulatory body run amok.
+ - As commander-in-chief, I will do whatever it takes to defend America. But in defending America, we cannot lose what America stands for.
+ - Washington is horribly broken. We are encountering a day of reckoning and this movement, this Tea Party movement, is a message to Washington that we’re unhappy and that we want things done differently.
+ - What is immoral for an individual to do, is immoral for a government to do.
+ - Someone is an ignoramus who would say that, ‘Oh, we had three hurricanes this year. This proves that somehow the climate is warming.’ The earth is 4.5 billion years old, and you’re going to say that we had four hurricanes and so it proves a theory?
+ - You either believe in the Constitution, or you don’t.
+ - It is impossible for African-Americans not to feel like their government is particularly targeting them.
+ - The people who get the ability to use force have to be watched carefully by civilians to make sure they don’t use it excessively.
+ - I think when we think about the judgment of someone who might want World War III, we might think about someone who might shut down a bridge because they don’t like their friends;.
+ - The more we can have peaceful trade both with Russia, with China, and with others, you know, there’s a self interest in this for everyone.
+ - You can not be a conservative if you’re going to keep promoting new programs that you’re not going to pay for.
+ - I don’t plan on being bashful.
+ - You know, you look at term limits, you poll term limits, 70, 80 percent of Republicans or Democrats are for it.
+ - I’ve had an interest in politics since I was a little kid.
+ - I don’t think we’re actually using the constitutional tools that we have in an appropriate fashion.
+ - I would argue that the objective evidence shows that big government is not a friend to African Americans.
+ - The president began this program by executive order. He should immediately end it by executive order. For over a year now, he has said the program is illegal, and yet he does nothing.
+ - If I have a weakness, it’s that I try to live by the rules. I try to live by the rules, no matter what they are, and I was brought up that way as a kid. Play by the rules.
+ - I will not vote to send my sons, or your sons, daughters, brothers, sisters or friends to fight for a stalemate.
+ - I am encouraged President Obama now says he will fulfill his constitutional obligation to seek authorization for any potential military action in Syria. This is the most important decision any President or any Senator must make, and it deserves vigorous debate.
+ - The Republican platform specifically says we don’t believe in bailing out private business, and yet we did.
+ - I think that most manufacturing and mining should be under the purview of state authorities.
+ - Democrats in Louisville were led by Courier-Journal editor Henry Watterson and were implacably opposed to blacks voting.
+ - I have a message from the Tea Party, a message that is loud and clear and does not mince words. We’ve come to take our government back.
+ - Well, there’s 10 – there’s 10 different – there’s 10 different titles, you know, to the Civil Rights Act, and nine out of 10 deal with public institutions and I’m absolutely in favor of. One deals with private institutions, and had I been around, I would have tried to modify that.
+ - What gets lost is that the Republican Party has always been the party of civil rights and voting rights.
+ - I think if you have a two-story office and you hire someone who’s handicapped, it might be reasonable to let him have an office on the first floor rather than the government saying you have to have a $100,000 elevator.
+ - I don’t think I’m really open to having Washington change me.
+ - I’m a Reagan conservative. Reagan did negotiate with the Soviets. But you have to negotiate from a position of strength.
+ - I just can’t vote to go to war unless I think there’s a real clear-cut American purpose in the war, that we’re going to win and that we’re not going fight for stalemate.
+ - Let’s make the haystack smaller. Let’s say for a while, until we can figure out who’s coming, who’s going, and who’s overstayed their visa, let’s have extra scrutiny and figure out what’s going on, because there’s a whole segment of the world that is intent on sending people here to attack us.
+ - I was told I got 10 measly minutes, but just in case, I brought 13 hours worth of material.
+ - The government has investigated our program of collecting through a generalized fashion, everyone’s phone records in the country. And they found that no terrorist case has been thwarted through this.
+ - Roll back federal spending to 2008 levels.
+ - I think my dad has helped me tremendously.
+ - I would have voted ‘no’ on the Iraq war and ‘yes’ to Afghanistan.
+ - ISIL is not the JV team. I cannot stress enough that there’s a terrorist army in Syria and Iraq that wants to attack the homeland and we’re not doing anything about it. So how do you defeat the ideology? Build up others? You reject Rand Paul.
+ - Republicans traditionally say, ‘oh, we’ll cut domestic spending, but we won’t touch the military.’ The liberals – the ones who are good – will say, ‘oh, we’ll cut the military, but we won’t cut domestic spending.’
+ - Our legislative victory – an end to earmarks.
+ - There is nothing conservative about bailing out Wall Street. Likewise, there is nothing progressive about billion dollar loans to millionaires to build solar panels.
+ - To put everyone in government housing and food stamps and bring them in from around the world I think is a mistake. To give of your own money, I’ve given to my church. My church has helped people that came from Bosnia. That’s a good thing.
+ - Al Qaeda has been placed on the run, but not destroyed.
+ - Do we fear terrorism so much that we throw out our Constitution, and are we unwilling and afraid to debate our Constitution?
+ - Foreign aid is not something the vast majority of Americans support, but definitely not conservatives.
+ - All issues of crime are better addressed at the state level.
+ - Unless you really stand for something, people aren’t motivated to go out and vote for you.
+ - 2007 was a long time ago, and events do change over long periods of time.
+ - I say the phone records of law abiding citizens are none of their damn business!
+ - I think we’ve made the collection haystack so big, no one’s ever getting through the haystack to find the needle. What we really need to do is isolate the haystack into a group of suspicious people and spend enormous resources looking at suspicious people, people who we have probable cause.
+ - I’m an internationalist. I want to help others, not just kill terrorists.
+ - I think that we have to be very careful about who comes here from the Middle East.
+ - I do not yet know if I will find a Romney presidency more acceptable on foreign policy. But I do know that I must oppose the most recent statements made by Mitt Romney in which he says he, as president, could take us to war unilaterally with Iran, without any approval from Congress.
+ - I think the entire world knows, and North Korea knows, that if they used any weapons on our soldiers they would be obliterated. And it would be an overwhelming response.
+ - People don’t like to vote against something that’s so incredibly popular.
+ - You don’t win as a party unless you become a bigger party.
+ - We must always embrace individual liberty and enforce the constitutional rights of all Americans-rich and poor, immigrant and native, black and white.
+ - I really think that discrimination and racism is a horrible thing. And I don’t want any form of it in our government, in our public sphere.
+ - The GOP of old has grown old and moss covered.
+ - I would introduce and support legislation to send Roe v. Wade back to the states.
+ - I think a lot of things could be handled locally.
+ - Perhaps it is time to be more careful what we ask government to do, and where we allow it to become part of our lives.
+ - The most important thing you will do is yet to be seen. For me, I found my important thing to do when I learned to do surgery on the eye, when I learned to restore a person’s vision.
+ - I think we need to treat everybody with dignity.
+ - I’m not someone who’s sort of still trying to figure out what I believe in.
+ - Cut defense spending as part of cutting all federal spending.
+ - The Republican promise is for policies that create economic growth. Republicans believe lower taxes, less regulation, balanced budgets, a solvent Social Security and Medicare will stimulate economic growth.
+ - To me, there is no greater threat than our debt. I’m the only fiscal conservative on the stage because I’m willing to hold the line on all spending.
+ - I think there’s a racial outcome to a lot of what goes in America, but I don’t think race is always the reason.
+ - Is Donald Trump a serious candidate? The reason I ask this is, if you’re going to close the Internet, realize, America, what that entails. That entails getting rid of the First amendment, ok? It’s no small feat.
+ - I am running for president to return our country to the principles of liberty and limited government.
+ - I think women have come a long way. Women are in positions not because they’re women, they’re in positions because they’re intelligent and they should be equal to their counterparts and treated equally.
+ - I’m not opposed to letting people work and labor in our country, but we shouldn’t provide an easy route to citizenship. We’re the only country I know of where a person can come in illegally and that baby becomes a citizen and I think that should stop also.
+ - You don’t go into politics unless you want to win.
+ - The callous use of general warrants and the disregard for the Bill of Rights must end. Forcing us to choose between our rights and our safety is a false choice and we are better than that as a nation and as a people.
+ - We didn’t create ISIS – ISIS created themselves, but we will stop them, and one of the ways we stop them is by not funding them, and not arming them.
+ - I think that, most importantly, when I see issues of war, I see them in a personal vein, and I am reluctant to go to war unless there’s a real, valid American interest because I’ve seen the wounded soldiers.
+ - We have 11 million people said to be in our country illegally. Forty percent of them are said to have overstayed their visa. Do we know where they are?
+ - American inventiveness and the desire to build developed because we were guaranteed the right to own our success.
+ - What I say is, national defense is the most important thing we do in Washington, but there’s still waste in the military budget.
+ - I’m being unfairly targeted by a bunch of hacks and haters.
+ - I think you’ll find that these are measures that have great bipartisan support, and so I expect, not only did we do well in the primary, I think we’ll win by a wide margin in the fall because we’re going to get a lot of independents and conservative Democrats coming to us.
+ - The president’s rattling the saber and beating the drums may have an effect.
+ - If you are accused of being associated with terrorism, which could mean you are an Arab- American and you’ve sent e-mails to a relative in the Middle East, you should get your day in court, and I think you should get a lawyer and a trial, and I think most Americans agree to that.
+ - In our state, I’m really proud of the fact that the ones who overturned Jim Crow in Kentucky were Republicans fighting against an entirely unified Democrat Party. So I am proud to be Republican. I can’t imagine being anything else.
+ - Parents own the children, and it is an issue of freedom and public health.
+ - No president has the right to say he is judge, jury and executioner.
+ - For most of our history, no one dared to tell Americans, ‘you don’t build that.’
+ - Let me be clear: I support the Civil Rights Act because I overwhelmingly agree with the intent of the legislation, which was to stop discrimination in the public sphere and halt the abhorrent practice of segregation and Jim Crow laws.
+ - The Republican Party’s history is rich and chock full of emancipation and black history.
+ - I hate that Mosul is falling, but I also think that for 10 years we have supplied the Iraqis and they can’t stand up and do anything to defend their country, and it is all up to us?
+ - I need to be very careful about going on certain networks that seem to have a bias.
+ - As long as I sit at Henry Clay’s desk, I will remember his lifelong desire to forge agreement, but I will also keep close to my heart the principled stand of his cousin, Cassius Clay, who refused to forsake the life of any human, simply to find agreement.
+ - Republicans who criticize the use of two languages, I think, make a great mistake.
+ - We are borrowing $40,000 per second.
+ - We as Republicans have taken the easy way out a lot of times.
+ - The president wants more tax money in Washington. I want more money left in the communities, particularly poor communities, particularly communities that have high unemployment.
+ - I think if Russia is really an honest signatory to the chemical weapons ban, if Syria wants to be, ultimately someone has to be responsible for killing civilians. And that’s the hard part out of this.
+ - People who want to come to this country don’t have constitutional rights. Once they get here, they do. But coming here is not a constitutional right. So with do, as a nation, have the ability and should have the ability to decide who comes here and when they come here.
+ - If you are going to kill the families of terrorists, realize that there’s something called the Geneva Convention we’re going to have to pull out of. It would defy every norm that is America.
+ - You can’t have it both ways. You can’t tell me that you’re taxed enough already, and that you want constitutional government and then in the next breath say, ‘Bring me home some bacon.’ The pig has been picked clean.
+ - Who gets to decide who’s an enemy combatant and who’s an American citizen? Are we really so frightened and so easily frightened that we would give up a thousand-year history?
+
+246 quotes

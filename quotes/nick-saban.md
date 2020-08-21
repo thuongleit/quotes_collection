@@ -1,0 +1,53 @@
+ - A good process produces good results.
+ - You can’t win together if you don’t work together.
+ - There are two pains in life. There is the pain of discipline and the pain of disappointment. If you can handle the pain of discipline, then you’ll never have to deal with the pain of disappointment.
+ - Focus on the process of what it takes to be successful.
+ - Mediocre people hate high achievers, and high achievers hate mediocre people.
+ - Success doesn’t come from pie-in-the-sky thinking. It’s the result of consciously doing something each day that will add to your overall excellence.
+ - High achievers don’t like mediocre people, mediocre people don’t like high achievers.
+ - What happened yesterday is history. What happens tomorrow is a mystery. What we do today makes a difference – the precious present moment.
+ - There is no continuum for success. Focus on the progress, not the results.
+ - I’m tired of hearing all this talk from people who don’t understand the process of hard work-like little kids in the back seat asking ‘Are we there yet?’ Get where you’re going 1 mile-marker at a time.
+ - One thing about championship teams is that they’re resilient. No matter what is thrown at them, no matter how deep the hole, they find a way to bounce back and overcome adversity.
+ - Live by the creed that a strong work ethic, playing by the rules, and doing things the right way will bring about opportunities for success and, ultimately, happiness.
+ - Every choice, every decision, everything we do everyday, we want to be a champion.
+ - I don’t care what you did yesterday. If you’re happy with that, you have bigger problems.
+ - We create a standard for how we want to do things and everybody’s got to buy into that standard or you really can’t have any team chemistry. Mediocre people don’t like high-achievers and high-achievers don’t like mediocre people.
+ - Discipline is not punishment. Discipline is changing someone’s behavior.
+ - Eliminate the clutter and all the things that are going on outside and focus on the things that you can control with how you sort of go about and take care of your business. That’s something that’s ongoing, and it can never change.
+ - Teaching is the ability to inspire learning.
+ - Your character is your accumulation of your thoughts, habits and priorities on a day-to-day basis.
+ - The more one emphasizes winning, the less he or she is able to concentrate on what actually causes success.
+ - We’re not going to talk about what we’re going to accomplish, we’re going to talk about how we’re going to do it.
+ - Be on time because it shows you care.
+ - I think everybody should take the attitude that we’re working to be a champion, that we want to be a champion in everything that we do. Every choice, every decision, everything that we do every day, we want to be a champion.
+ - We have got to use every opportunity to improve individually so we can improve collectively.
+ - I don’t like to lose. I don’t expect to lose.
+ - We have to compete within ourselves relative to the determination it takes to be successful.
+ - It doesn’t matter what you are ranked until the end.
+ - Be all you can be in whatever you choose to do. The sky is the limit, so go for it. And do not create any self-imposed limitations.
+ - The roster that we have today may change tomorrow. It is what it is for right now.
+ - You can’t get from A to Z by passing up B.
+ - If you don’t get result-oriented with the kids, you can focus on the things in the process that are important to them being successful.
+ - I’m not going to be the Alabama coach.
+ - The formula for success is every guy can make a difference for the entire team in whatever his role is. And to do it right, to get it right, is a critical factor in being successful.
+ - Our goal is to work against things we have not seen that we will see in the near future.
+ - I don’t think it’s about who you play, I think it’s about who you are.
+ - Do what you do and be who you are.
+ - People who are role models for the principles and values of the organization, who buy in and understand the vision of what the organization is trying to accomplish, and have the personality to inspire other people to the vision. You know, that’s what team chemistry and leadership is all about.
+ - Anyone who doesn’t win their conference has no business playing in the national championship game.
+ - Any team that does not win it’s conference championship game should not play in the BCS title game.
+ - Focus on the play like it has a history and a life of its own.
+ - I think I’m pretty misunderstood, because I’m not just about football.
+ - I think everybody makes mistakes. People do things that they regret.
+ - I don’t control what people put on dot-com or anything else. So I’m just telling you there’s no significance, in my opinion, about this, about me, about any interest that I have in anything other than being the coach here.
+ - College football is the only game in the country, of any kind, that the college game is longer than the pro game.
+ - The number one thing on any team that will keep your players from being selfish is respect for the other players.
+ - In the NFL you get one first-round draft pick if you’re lucky. You couldn’t really outwork anybody else. In college I could recruit ten players with first-round talent every year.
+ - I’ve always been able to stay focused on trying to recruit good players and trying to develop those players.
+ - I’ve never considered joining Twitter, nor do I know why anybody would.
+ - The thing that concerns me the most is when I hear that people are making a lot of money a lot of ways except for the athletes, whether it’s on the bowl games, the TV contracts, the conferences, the schools, the coaches, however you want to say it.
+ - The difference nowadays is that when I go on vacation I work some of the time rather than all of the time.
+ - I asked my priest if it was a sin to play golf on Sunday. And he said, “It’s a sin for you to play anytime.”
+
+51 quotes

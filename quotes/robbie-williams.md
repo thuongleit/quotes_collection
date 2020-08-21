@@ -1,0 +1,78 @@
+ - Lord I’m Doing All I Can To Be A Better Man.
+ - I don’t want to die but I ain’t keen on living either.
+ - I sit and talk to God, and he just laughs at my plans.
+ - And I feel that love is dead, I’m loving angels instead.
+ - If you’re willing to change the world let love be your energy.
+ - I didn’t lose my mind, it was mine to give away.
+ - I know I’m gonna die so my revenge is living well.
+ - I enjoy nakedness. I am a bit of a naturist at heart.
+ - All your friends think you’re satisfied, but they can’t see your soul, no, no, no...
+ - I’m quite open to the fact that I might be a tinfoil-hat freak.
+ - There’s no point regretting things. If you can’t do the time, don’t do the crime. Life’s too short to worry about things I’ve said.
+ - Oh Lord, make me pure, but not yet.
+ - I can do anything I want to do really, I might as well.
+ - I miss your love, I miss your touch But I’m feeling you every day. And I can almost hear you say You’ve come a long way baby...
+ - I miss having someone to cuddle up and have an early night with. But I’m looking. Meanwhile, I’m having a few relationships that don’t mean much.
+ - I show off – I’m a very good show off. It’s what I do, it’s what I’m good at.
+ - You can’t argue with popularity. Well, you could, but you’d be wrong!
+ - Sometimes I feel like I’m sailing on a sunken dream.
+ - Is there a tumor in your humor?
+ - I want you to remember something for me. My name is Robbie Williams. I’m a singer, a songwriter, and a born entertainer.
+ - I have to be careful what I ask for in life, cause I always seem to get it! The good thing is, Ive got a purpose now, whereas before my purpose was to go out and party.
+ - I’m on good form. I’m an older guy. I feel healthy, I’ve been training, I’m looking after myself, I get up early. I look after the dogs. I’m happy.
+ - We know we are falling from grace, millennium.
+ - I’m quite obviously not the world’s most handsome man – I’m the second world’s most handsome man!
+ - Inside me there is a fat man dying to get out.
+ - I’m really, really enjoying myself, I seem to have a lot of purpose in my life. I’m enjoying what I’m doing, you know, and people are liking it. So, it’s great, you know.
+ - I feel like I’m always having to justify why I haven’t kept in touch with anyone from the old days in Stoke-on-Trent, but I’m like that with anybody. I don’t let anybody in. I just rely on myself.
+ - I like me food. I also don’t like me exercising. It’s something me don’t do very well. But it’s something I’ve got to get into.
+ - The problem is, I don’t think I’ve got too much to offer at the minute. I’m busy working on myself. This sounds like real therapy talk, but it’s like, you’ve got to be happy with yourself before you can go out and get yourself a girl.
+ - I’m a born entertainer. When I open the fridge door and the light goes on, I burst into song.
+ - I am the first to admit I have made a couple of mistakes: two trips to rehab, Rudebox, the album, Geri Halliwell. I should have gone for Victoria, really, shouldn’t I? I’d have been really famous.
+ - I’m sure that when my daughter will bring home her first boyfriend, I’ll be so intimidating that he’ll run away, but embarrassing as well, just to have a bit of fun.
+ - It’s success, not fame, that is quite addictive. I’m addicted to a lot of things and, as it happens, success is one of them.
+ - When people come out of rehab, they usually go to secondary rehab for another six months and then enter back into society gradually. But I came out and did Top Of The Pops straight away!
+ - I’m off everything apart from the fags and the coffee. I don’t know if it’s worked. It works up until you take your first drink.
+ - My friends are so cynical, they refuse to keep the faith.
+ - I still find trusting people quite hard. I’ve got a couple of mates that I do let in, but that’s it. It’s something I’ve got to sort out – I cut people off.
+ - I couldn’t live without my music, man. Or me mum.
+ - I’ve been watching what I eat. When I was putting on all the weight, I was drinking Guinness and not eating. I didn’t have room to because I was drinking all the time.
+ - I don’t have anything that I treasure at all. They’re just things. I tend to buy an awful lot of stuff, like clothes and things. But I wouldn’t be bothered if my house burns down tomorrow.
+ - Madonna looked amazing. I can’t believe she’s 89 and looks like that.
+ - I come from the tradition of a big Irish family that loves to sing. I love to perform.
+ - You don’t want the truth. Truth is boring.
+ - When Daddy goes to work, there’s a mouth to feed, a point to life and a reason to do things.
+ - I have a gigantic ego and need to be at the top of the pile and be doing amazingly well; also, at the same time, I’m just pleased to be anywhere.
+ - It would be great to see somebody like Kid Rock kissing a man. But I’m sure that he wouldn’t like the prospect of it put to him, and I won’t even go there with Eminem.
+ - Don’t throw me teddy-bears, I’m 23! I’m a man! Throw me condoms or money! Paper, not coins.
+ - My dad sent Frank Sinatra a dollar bill to autograph, and when it came back, signed, he had it framed: it was always up on the wall in whatever flat we were in.
+ - I am not as bad as people would suggest. Not as good as I would like to be.
+ - What was I like? I had a high-pitched voice. Sounded a bit like a girl. Spoke with a Stoke accent, tremendously naive. Overconfident. Tremendously overconfident. And underconfident at the same time – really, really bad combination! Gets you places, though.
+ - I think you’re very lucky to find somebody you can coexist with without straying or going mad or being angry. That’s whether you’re Liam Gallagher and Nicole Appleton, Robbie Williams and Ayda Field, or Tim and June from down the road.
+ - I’ve really been grappling with depression. It’s all linked with my cocaine and ecstasy abuse.
+ - I’ve deliberately tried to calm myself down because eventually I want to be a good role model to my kids.
+ - I did the rock ’n roll-pop cliche of getting burnt out. I’m not the first person that happened to, and I’m sure I won’t be the last.
+ - It’s a huge responsibility being a solo act.
+ - I am the only man who can say he’s been in Take That and at least two members of the Spice Girls.
+ - I refuse to totally grow up. I’ve always been someone who says and does things that push politically correct boundaries.
+ - Love is getting to be cynical, passion’s just physical.
+ - I like listening to good music – and I can’t stop playing my album.
+ - I think there are ghosts. I haven’t seen or heard anything. I’ve definitely felt something, but it’s not scary.
+ - I have only one ambition, which is to be famous.
+ - I’m mainstream, and I have pretty chart-tastic tastes. I don’t often veer away from a big melodic song with big words for big stadiums.
+ - There is a lot of snobbery towards pop music, to me and pop in general – it’s kind of a despised art form.
+ - There aren’t many great adverts for marriage or parenthood. It always looks so stressful, and that’s what I’ve been scared of. What you don’t realise is how much you’re going to get back.
+ - I like to be comfortable, but I do enjoy being a British gent and dressing up a bit.
+ - Look at Paul McCartney, look at Elton John. They’re jealous of Justin Timberlake. I’m sure they were jealous of me when I was in my imperial phase.
+ - People change. I wouldn’t like to be accountable for the interviews I’ve done, or the person I was when I was 20, 21.
+ - I’ve nothing against anyone following their dreams – but not if they’re crap.
+ - With the war and everything that’s going on, unless you’re Susan Sarandon, the best route is to keep your mouth shut. For me it is, anyway!
+ - If you want to sell the most records, duet with me. If you need someone to come in and bless your record sales, I’m your man.
+ - I’ve never, ever, raised a fist to anybody in my life.
+ - Do I think I’m a national treasure? I don’t see why not? I don’t see why I shouldn’t be. I’m a good lad, really.
+ - The entertainment industry and my place in it is a place where you burn brightly for as long as you can.
+ - Yes I had to dress up in drag but what fun. And now I feel like a real lady.
+ - As a 29-year-old, the only thing that I can possibly think is that if I’m still performing at 50, it’s because I’ll have had disastrous marriages and I have to pay for them.
+ - I’m a bit hesitant to do anything because I’m actually kind of lazy and I’d like an easier life from now on. The world’s a massive place with lots of early mornings and late starts when you’re working.
+
+76 quotes

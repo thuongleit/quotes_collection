@@ -1,0 +1,27 @@
+ - Fool me once, shame on you. Fool me twice, shame on you.
+ - The American flag is the most recognized symbol of freedom and democracy in the world.
+ - The number of kids affected by obesity has tripled since 1980, and this can be traced in large part to lack of exercise and a healthy diet.
+ - China’s idea of fair trade is government subsidies of its textile and apparel exports to the United States, currency manipulation, and forgiveness of loans by its government banks.
+ - Our brave soldiers and support personnel are engaged in a battle as important as any the United States has ever before waged, for the success of democracy in Iraq is a crucial test of the ideals this Nation was founded upon.
+ - From a parent’s right to know what their children are doing, to protecting citizens across the country from the growing threat of gang violence, the House Democrat leadership is simply out to lunch.
+ - Obesity among young Americans is a serious problem that can have serious ramifications in the long run.
+ - Challenging unfairly subsidized products, fighting counterfeit goods and intellectual property theft and holding countries accountable for an unfair currency regime will help American companies remain competitive.
+ - In the face of terrorism, a united front is one of the strongest weapons.
+ - A stem cell is essentially a blank cell capable of becoming another, more differentiated cell-type in the body, such as a skin cell, a muscle cell or a nerve cell.
+ - The life expectancy is much longer today than it was when Social Security was created.
+ - There is an abundance of misinformation, exaggeration, and blatant lies being spread by interest groups regarding the prospects for embryonic stem cell research.
+ - This bill reminds me of the tactics of the former Soviet Union and we know how successful that was.
+ - In times of war, it is often best to look to our history to see how past generations of Americans dealt with the loss of their countrymen in just causes.
+ - America does not fight for land, glory or riches.
+ - Liberty is not the unique right of Americans or even Westerners, but is mankind’s right.
+ - I like the idea of giving workers control and putting their money into their personal accounts.
+ - China is crippling our manufacturing economy and eliminating our jobs by illegally flooding our markets.
+ - Democrats believe they can win at the ballot box by obstructing, and they would rather win the next election than move America forward.
+ - If we do not make tough decisions now, future Americans will have to make even tougher ones.
+ - The American people must not buy into the Democrat rhetoric.
+ - Democrat leaders are not only out of the American mainstream, but are also out of the Democratic mainstream.
+ - One poll shows that by 61 percent to 29 percent Americans under 40 say that Social Security needs to be fixed.
+ - A terrorist network that believes a nation so tested will fold under pressure of a few horrific acts may capture its attention, but will not achieve its submission.
+ - Adult stem cells tend not to form tumors.
+
+25 quotes

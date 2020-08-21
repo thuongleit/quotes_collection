@@ -1,0 +1,226 @@
+ - Maybe my pain was my motivation.
+ - Don’t be afraid of failure. This is the way to succeed.
+ - In Northeast Ohio, nothing is given. Everything is earned. You work for what you have.
+ - The best teacher in life is experience.
+ - I like criticism. It makes you strong.
+ - Once you squeeze toothpaste out, you can’t put it back into the tube. The same is true with our words. Once we say something hurtful, we can’t take it back.
+ - I’m just a little kid from Akron.
+ - I was blessed with a God-given talent and my mother raised me the right way.
+ - Ask me to play. I’ll play. Ask me to shoot. I’ll shoot. Ask me to pass. I’ll pass. Ask me to steal, block out, sacrifice, lead, dominate. Anything. But it’s not what you ask of me. It’s what I ask of myself.
+ - I’m ready to accept the challenge. I’m coming home.
+ - When I miss you, sometimes I listen to music or look at pictures of you, not to remind me of you but to make me feel as if I’m with you. It makes me forget the distance and capture you.
+ - There’s that moment every morning when you look in the mirror: Are you committed, or are you not?
+ - You have to do what’s best for you and what’s going to make you happy at the end of the day because no one can live with the consequences or anything that comes with your decision besides you.
+ - You can’t be afraid to fail. It’s the only way you succeed – you’re not gonna succeed all the time, and I know that.
+ - You have to be able to accept failure to get better.
+ - Be doers of the word and not hearers only, deluding yourselves.
+ - I’m going to use all my tools, my God-given ability, and make the best life I can with it.
+ - A double-minded man is unstable in all his ways.
+ - You can’t let nobody run your train.
+ - I’m not afraid of nothing, I just like the challenge, and I love being here.
+ - I feel confident because I’m the best player in the world. It’s that simple.
+ - I treated it like every day was my last day with a basketball.
+ - I always say, decisions I make, I live with them. There’s always ways you can correct them or ways you can do them better. At the end of the day, I live with them.
+ - Every night on the court I give my all, and if I’m not giving 100 percent, I criticize myself.
+ - Some times your best effort just isn’t good enough.
+ - If I could have gave more, I would have done it. I gave everything I had.
+ - Messi is the best player in the world. If he’s not already, he’ll be the best footballer of all time.
+ - That’s one of my biggest obstacles. I’m afraid of failure. I want to succeed so bad that I become afraid of failing.
+ - I don’t need too much. Glamour and all that stuff don’t excite me. I am just glad I have the game of basketball in my life.
+ - I enjoy the competition and whatever it takes throughout the competition, I will do it.
+ - I’m LeBron James, from Akron, Ohio, from the inner city. I’m not even supposed to be here. That’s enough. Every night I walk into the locker room, I see a No. 6 with James on the back, I’m blessed. So what everybody says about me off the court, don’t matter. I ain’t got no worries.
+ - I do have motivation. A lot of motivation.
+ - I went through a lot of battles in high school.
+ - I make impact plays. I make game-changing plays.
+ - Losing a basketball game hurts but when you see what you’ve been through, you look on it and say well if this is the worst thing that can happen to me, then I’m okay.
+ - My mom and I have always been there for each other. We had some tough times, but she was always there for me.
+ - My dream has become a reality now, and it’s the best feeling I’ve ever had.
+ - I think, team first. It allows me to succeed, it allows my team to succeed.
+ - Know that I’m better solo. I invented solo.
+ - I love seeing my teammates succeed. That’s what I get more excited about than anything.
+ - But ever since I was a kid, I was always the winner.
+ - To all the positions, I just bring the determination to win. Me being an unselfish player, I think that can carry on to my teammates. When you have one of the best players on the court being unselfish, I think that transfers to the other players.
+ - I’m a guy who tries to be successful in all that I do, and when you fall short, it hurts.
+ - We aren’t comfortable. We are not satisfied. We have to stay even-keeled.
+ - We have an opportunity to get better.
+ - I’m like a superhero. Call me Basketball Man.
+ - If I could clone myself, we’d be all right. But I can’t.
+ - Basketball is my passion, I love it. But my family and friends mean everything to me. That’s what’s important. I need my phone so I can keep in contact with them at all times.
+ - You know, softball is the other sport I do besides basketball.
+ - The man above has given me some unbelievable abilities to play the game of basketball. I just try to take advantage of it every night. I got the trust of my teammates and my coaching staff to go in there and let it go.
+ - I need music. It’s like my heartbeat, so to speak. It keeps me going no matter what’s going on – bad games, press, whatever!
+ - You know, my family and friends have never been yes-men: ‘Yes, you’re doing the right thing, you’re always right.’ No, they tell me when I’m wrong, and that’s why I’ve been able to stay who I am and stay humble.
+ - You know, God gave me a gift to do other things besides play the game of basketball.
+ - I laugh and joke, but I don’t get distracted very easily.
+ - Everywhere I’ve been, I’ve been the best player. I love being a leader, and I love being the best. I just want to get better. It’s not about being cocky or selfish or anything like that. It’s just how I am.
+ - I got a goal, and it’s a huge goal, and that’s to bring an NBA championship here to Cleveland, and I won’t stop until I get it.
+ - It just wasn’t our time.
+ - I do Pilates and yoga to stay in front of the curve. I feel like it’s helping me. Does it work for everybody? I don’t know. I’m not a guru on how to be in the best condition. Let me sit here and tell you that. But it works for me.
+ - I mean, when you grow up in the inner city and you grow up in a single-parent household, that’s – those are humbling times, you know?
+ - When you have that respect from your teammates, it makes it a lot more comfortable.
+ - For if any be a hearer of the word, and not a doer, he is like a man beholding his natural face in a glass: for he beholdeth himself, and goeth his way, and straightaway forgetteth what manner of man he was.
+ - My relationship with Northeast Ohio is bigger than basketball. I didn’t realize that four years ago. I do now.
+ - But I mean, even my family gets spoiled at times watching me doing things that I do, on and off the court.
+ - I hear my friends and my mom tell me I’m special, but honestly, I still don’t get it.
+ - In this fall – this is very tough – in this fall I’m going to take my talents to South Beach and join the Miami Heat.
+ - There is a lot of pressure put on me, but I don’t put a lot of pressure on myself. I feel if I play my game, it will take care of itself.
+ - You learn from mistakes, you learn from losses, but this game doesn’t put something on me where it’s, ‘Hey, I’ve finally done it. This was a big game. We won it and we have to move on.’
+ - The best thing that ever happened to me was losing last year in the Finals. I had to change.
+ - Sometimes the coaches tell me to be selfish, but my game won’t let me be selfish.
+ - I always believed that I’d return to Cleveland and finish my career there.
+ - My family is happy. That makes my job a lot easier. For the fans, I try to put it all out there on the floor.
+ - In fourth grade, I missed 82 days of school. Out of 160.
+ - The Greater Man upstairs know when it’s my time. Right now isn’t the time.
+ - It’s not just straight-line speed. He’s got the agility and the quickness to go with it. His vision on the field is phenomenal. It just opens the playbook so much as a coach that I’m really looking forward to it.
+ - It’s always a struggle growing up in Akron.
+ - Just wanted to inspire my teammates. Obviously, I didn’t do enough.
+ - With that locker room I could sleep there after games.
+ - I’ve got extra motivation that I won’t talk about right now.
+ - Before anyone ever cared where I would play basketball, I was a kid from Northeast Ohio. It’s where I walked. It’s where I ran. It’s where I cried. It’s where I bled. It holds a special place in my heart.
+ - I learn from winning, because it’s much easier to point out things when you lose. But I think the alternate competitors can point out a lot of things when you win.
+ - I expect us to win. I expect us to get better every day.
+ - I’m very, very confident in my ability to see the game – even before it’s played.
+ - I don’t read books much.
+ - I don’t know how tall I am or how much I weigh. Because I don’t want anybody to know my identity. I’m like a superhero. Call me Basketball Man.
+ - I spoil a lot of people with my play. If you have three bad games in a seven-year career, people are going to point that out.
+ - A lot of players know how to play the game, but they really don’t know how to play the game, if you know what I mean. They can put the ball in the hoop, but I see things before they even happen. You know how a guy can make his team so much better? That’s one thing I learned from watching Jordan.
+ - A LeBron James team is never desperate.
+ - But now, being a parent, I go home and see my son and I forget about any mistake I ever made or the reason I’m upset. I get home and my son is smiling or he comes running to me. It has just made me grow as an individual and grow as a man.
+ - There are always people always asking you for something. But I feel like I have a foundation. I have a supporting cast where it doesn’t bother me too much.
+ - For me, already being part of a single parent household and knowing it was just me and my mom, you’d would wake up times and hope that the next day you’d be able to be alongside your mother because she was out trying to make sure that I was taken care of. But all I cared about was her being home.
+ - That team across the way, you tip your hat to them. They did a great job. It showed in these Finals.
+ - I might play in shorts, but I wear the pants.
+ - I’m taking my talents to South Beach.
+ - There’s no reason to play in the NBA if you don’t believe you can win it all.
+ - We want to win it all. The only reason we play this game is to win championships.
+ - I’m a pretty funny guy, and I would love to do a comedy with a bunch of funny guys – movie-star guys, where they could help me through it.
+ - But sports carried me away from being in a gang, or being associated with drugs. Sports was my way out.
+ - Where I grew up – I grew up on the north side of Akron, lived in the projects. So those scared and lonely nights – that’s every night. You hear a lot of police sirens, you hear a lot of gunfire. Things that you don’t want your kids to hear growing up.
+ - Certain money is not always good money. It could be just being at the wrong place at the wrong time. I mean, if you have your priorities in check then for the most part it’s easy.
+ - A lot of people were saying that I was a selfish person and a selfish player. You know, it got to me.
+ - I have a responsibility to lead, in more ways than one, and I take that very seriously.
+ - I didn’t think we’d get to this point that we’re at now, but I was ready to lead If we got to this point.
+ - I don’t let individual statistics make me a focus or more of a focus. I just tried to come out and attack early and get a big lead. We were able to take it in overtime and win.
+ - I’m under a super microscope. I’ve got my friends to keep me cool. As long as you’ve got friends, you’ve got nothing to worry about.
+ - People who say “It is better to have loved and lost than never to have loved at all” never felt a broken heart.
+ - When you work out or you’re doing anything active, it’s more fun as a group. You may lose track of the time, and the next thing you know, you’re working out for two hours because you’re having fun.
+ - If I didn’t believe in this team and this organization and the direction that we’re headed, I wouldn’t have signed the extension.
+ - I was so used to going out and winning state championships and playing in the postseason.
+ - No place is better than Akron.
+ - Your teammates give you the confidence. They give me the confidence all year, all postseason.
+ - My favorite thing about being a father is just seeing my kids grow and do some of the same things that I did when I was a kid, man.
+ - There’s no encyclopedia or book about parenthood. You learn on the fly.
+ - It’s a humbling experience for me to be in this position.
+ - This is a job and we want to have fun. But it’s a job and we should look like we’re going to work.
+ - These fans here are unbelievable. They showed up and showed out tonight. We needed every little bit of it.
+ - I can’t play the game of basketball and live my life on what other people expect me to do or what they think I should do. That doesn’t make me happy. What makes me happy is being able to make plays for my teammates, to be able to represent the name on the back of my jersey.
+ - I’m not about saving franchises.
+ - We were playing every game to win, we just happened to win 27 in a row. Our motto was to try and go out and win every game, but there’s nothing really to talk about.
+ - I just want you guys to see it also. To see what type of words that are said toward me, and towards us as professional athletes. Everybody thinks it is a bed of roses and it’s not.
+ - It would be easier if I didn’t even make the playoffs, it would hurt less. But then I start thinking about how much fun it is.
+ - A kid with a dream from Akron Ohio. Now chopping it up with the Prez. Life is Good.
+ - Why should I care? I have all the money in the world.
+ - I’ve put our guys in position. I gave them the blueprint. I think they’re ready.
+ - That’s all our team is about. If we stop people, we’re the most athletic team in this whole tournament and we can get out and get easy buckets.
+ - It’s hard to win in the league, because every team is good, they got players on their team. A lot harder than high school. It’s competitive, and that’s what I most love about it.
+ - The only thing on my mind right now is trying to win the whole thing.
+ - We ran out of talent tonight. The guys played as hard as they could, as long as we could.
+ - It all depends on how you want to define what an MVP is. I’ve been fortunate to win the trophy four times, but I’ve been the MVP of my team for a long time – just because of the way I lead and the way I approach us being professionals off the floor.
+ - Sometimes in the past when I played something might make me lose focus, or I would go home after a game where I thought I could have played better and I would let it hang over my head for a long time when it shouldn’t.
+ - They continue to criticize me for my outside shooting, but I continue to make outside shots.
+ - It’s a lot of talent sitting in suits.
+ - I never wanted to leave Cleveland. My heart will always be in that area – in a perfect world I would have loved to stay.
+ - Cleveland fans are awesome.
+ - As a professional athlete a lot is going to be said about you – but I just try to move forward and try to achieve my goals.
+ - Being the only man in the household with my mom definitely helped me grow up fast.
+ - Everything is sore right now. Everything. I look like I’m doing okay but I can’t wait to get home.
+ - I started thinking about what it would be like to raise my family in my hometown. I looked at other teams, but I wasn’t going to leave Miami for anywhere except Cleveland. The more time passed, the more it felt right. This is what makes me happy.
+ - I was supposed to take the ball out. I told coach there’s no way I’m taking the ball out, unless I can shoot it over the backboard and it goes in. I told him, ‘Have somebody else take the ball out, give me the ball, and everybody get out of the way.’
+ - I never thought basketball was going to be my future. I just wanted to play because it gets you girls.
+ - I never get too high on my stardom or what I can do.
+ - We don’t want to get frustrated because it sticks in your mind too much. We have to work at it and see what we did wrong.
+ - I’m not promising a championship. I know how hard that is to deliver. We’re not ready right now.
+ - I’ve sort of gotten into the habit of looking for the vulnerable guy, the guy who makes mistakes, the guy who can’t figure things out all the time but keeps at it.
+ - As a society how do we do better and stop things like this happening time after time!! I’m so sorry to these families. Violence is not the answer people. Retaliation isn’t the solution as well.
+ - As a parent you protect your kids as much as possible.
+ - Once you get on the playing field it’s not about whether you’re liked or not liked. All that matters is to play at a high level and do whatever it takes to help your team win. That’s what it’s about.
+ - A team like Golden State, when they get into a rhythm they make shots.
+ - We did what we are supposed to. We protected home. We have to try to do it again Thursday night.
+ - As a kid, we would drive up and down 77 North – that’s our highway – there would be office buildings on the side of the highway and I’d be like, that’s what my house is going to look like when I get older. I’m going to start making my house look like this.
+ - If they are the league ain’t doing a good job of it.
+ - There are some teams and logos you see, no matter where you are in the world, and you know exactly who they are and what they mean.
+ - Warren Buffet told me once and he said always follow your gut. When you have that gut feeling, you have to go with don’t go back on it.
+ - But I get a thrill out of bringing a group together and helping them reach a place they didn’t know they could go. I see myself as a mentor now and I’m excited to lead some of these talented young guys.
+ - The modern athlete is an individual corporation. I’m not quite sure it’s very good for sport, or good for team work, or those different things that sport says it’s about. This is about business.
+ - Maybe the ones burning my jersey were never LeBron fans anyway.
+ - I hope I can help guys coming out of high school, if they need advice. I know the ins and outs of everything.
+ - Tonight we had our chances but we ran out of talent.
+ - My game is really played above time. I don’t say that like I’m saying I’m ahead of my time. I’m saying, like, if I’m on the court and I throw a pass, the ball that I’ve thrown will lead my teammate right where he needs to go, before he even knows that that’s the right place to go to.
+ - I’ve given these guys the blueprint on how to win a premiership, now I just have to be patient until they’re ready.
+ - I’ve always been an unselfish guy, and that’s the only way I know how to play on the court and I try to play to the maximum of my ability – not only for myself but for my teammates.
+ - But then I lock back in and I start thinking about how fun it is to compete during the playoffs and the first round, the second round, and Eastern Conference Finals. If I’m lucky enough to get here again, it will be fun to do it.
+ - We lost one, we won two and we lost another one. We’ll take 50 percent in four years in championships any day. Obviously, we want to win all of them, but that’s just the nature of the game. Not proud of the way we played in this series.
+ - There is no room for Donald Sterling in our league. There is no room for him.
+ - You know, when I have a bad game, it continues to humble me and know that, you know, you still have work to do and you still have a lot of people to impress.
+ - When you get to know some of the history of the game, Oscar Robertson is one of the names that pops up first.
+ - I wouldn’t feel good about it at all. At the end of the day I’m here to win a team prize, and that’s to win a championship, not an individual prize.
+ - D-Wade is the unselfish guy here-he is welcoming Chris Bosh and LeBron James to his team.
+ - Well, I mean, to me, I think my ultimate – my ultimate goal is winning championships and – and I understand that me going down as one of the greats will not happen until I, you know, win a championship.
+ - I don’t want to be called a point guard, but I can’t stop it.
+ - I love the success of my teammates more than my individual achievements. I’ve just always cared more about that since I started playing.
+ - I don’t know any other other team that got to the finals without two all stars.
+ - They jumped on us. They were the aggressor. They had us on our heels from the beginning.
+ - You become a champion as a team. I understand that. I know the history of the game.
+ - And winning is a huge thing for me.
+ - James also revealed he and his teammates smoked marijuana one night after getting access to a hotel room in Akron.
+ - I won at every level – all the way since I started playing the game of basketball at nine. I’ve won at every level, won championships at every level. And, you know, it won’t be fulfilled until I win at the highest level.
+ - I will have no problem coming to practice on time. The locker room is great, but we have to prove ourselves on the court.
+ - Volleyball, I could be pretty good. After a few practices I could be that striker, or whatever they call it.
+ - I just do what I got to do and go out and be myself, on and off the court, and take care of my obligations. That’s generally your own destiny-knowing what you have to take care of.
+ - I played football for a team called the East Dragons on the east side of town. We only had six regular season games. And six games I played tail back and I had 18 touchdowns in six games. That’s when I knew I had some athletic ability.
+ - Just because we are back home, don’t get comfortable. Have that same uptight feeling like it’s just us against everyone.
+ - Don’t think for one min that I haven’t been taking mental notes of everyone taking shots at me this summer. And I mean everyone!
+ - I have short goals – to get better every day, to help my teammates every day – but my only ultimate goal is to win an NBA championship. It’s all that matters. I dream about it. I dream about it all the time, how it would look, how it would feel. It would be so amazing.
+ - We have to continue at a high level and make them take tough shots.
+ - I assure you, you will never survive on your wits alone.
+ - Teams make it tough on us, we make it tough on them. When you have two well coached teams that wanna win, it’s going to be a competitive game.
+ - Yoga isn’t just about the body, it’s also about the mind and it’s a technique that has really helped me.
+ - We hated Cleveland growing up. There’s a lot of people in Cleveland we still hate to this day.
+ - The first time I stepped on an NBA court I became a businessman.
+ - This is a proud moment for our city. This is the first time we have won a Finals game in this city, and I’m happy to be part of the history.
+ - Working with all of these kids is great. It doesn’t get any better than this, to come down and inspire kids who want to play the game of basketball and put smiles on their faces.
+ - I love showcasing my talents – not only to my hometown fans and my own team but to the world.
+ - Commitment is a big part of what I am and what I believe. How committed are you to winning? How committed are you to being a good friend?
+ - My childhood was never great. We moved from place to place a lot. There were times when we had no definite place to stay. So, a basic level of security was not always there. Therefore, when you finally make it out, and you become who I am, you’re humbled by the memories of those situations.
+ - I am just happy to be part of the Nike family.
+ - I think the reason why I’m the person who I am today is because I went through those tough times when I was younger.
+ - We defended. We made them keep tough shots, and we executed offensively.
+ - Obviously I’m not getting much sleep. You guys can see I’m not getting much sleep right now, but I’m OK with that. I’m OK with not sleeping to be able to prepare myself and mentally keep myself intact on what’s the main objective for me right now.
+ - If you put everything together as far as my mind, my body, my game. If you put everything in one bottle, this is probably the best I’ve been.
+ - We played well all the way until, like, the second quarter.
+ - You lose in the Finals, they’re all disappointing. Doesn’t matter if I’m playing in Miami, Cleveland or on Mars. You lose the Finals, it’s disappointing.
+ - I was a Chicago Bulls, Michael Jordan fan growing up.
+ - I told myself if I ever made it to the level I want to be at, I’m gonna give back.
+ - A team can’t work when a guy puts himself in front of a team. I have yet to be on a team like that.
+ - To be honest, the play that was drawn up, I scratched it. I just told coach, ‘Give me the ball.’ We’re either going to go to overtime or I’m going to win it for us. It was that simple.
+ - I can’t worry about what other people say.
+ - As a parent, if you have multiple kids, you can’t teach them all the same thing because they all have different personalities. They’re their own person.
+ - Akron, Ohio, is my home. I will always be here. I’m still working out at my old high school.
+ - I’m not going to fight because I mean too much to our team, and I can’t afford to be suspended for a game or do something stupid to get me kicked out of a playoff game.
+ - Steph is scary. I’ve never seen anyone who can shoot the ball off the dribble like him. He got it going in 4th. Every game is different.
+ - I’m going to be one of the top four that’s ever played this game, for sure. And if they don’t want me to have one of those top four spots, they’d better find another spot on that mountain. Somebody’s gotta get bumped, but that’s not for me to decide. That’s for the architects.
+ - When did I know I had talent? I think it started when I first started playing sports, organized sports.
+ - I like being around people.
+ - I like to get out and get up the court, using my speed and aggressiveness toward the hoop.
+ - But put my body through a lot, you know, but it’s the price for your body feeling this way for winning. Did I win? I didn’t win a championship, but I’ve done a lot of good things in this first year back, and hopefully I can continue it.
+ - When I got back from the war in 1946 people didn’t want the Mr. Smith kind of movie any more, and I refused to make war pictures.
+ - I love sharing the ball with my teammates. I see a lot of things before my teammates see them.
+ - Hollywood dishes out too much praise for small things I won’t let it get me, but too much praise can turn a fellow’s head if he doesn’t watch his step.
+ - I’m very good at noticing talent. I knew he was special then and obviously he is now.
+ - I’m a leader. I’m the leader of this team, and they look for me at any point in the game, and that’s not just scoring-wise, I do other things.
+ - The same way you slow me down. You can’t.
+ - I’ve always been a leader. I’ve always kind of been the tallest person on the team when I was younger but always kind of the smartest. I was ahead of my time. I wasn’t always the oldest, I kind of was the youngest on the team, but, I kind of knew what to do at times.
+ - When I was 5, some financial things happened, and I moved seven times in a year. We moved from apartment to apartment, sometimes living with friends. My mom would always say, ‘Don’t get comfortable, because we may not be here long.’
+ - I’m confident with my ability.
+
+224 quotes

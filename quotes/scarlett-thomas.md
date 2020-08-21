@@ -1,0 +1,29 @@
+ - Routine kills creative thought.
+ - I hate stereotypes and I hate cliche.
+ - It’s not even a question of whether the universe is meaningful or meaningless. It’s in what way could it be meaningful, or in what way, if it was meaningful, could that be even more meaningless than normal meaninglessness?
+ - In real life nothing means anything. Stuff happens and there just is no structure.
+ - For other people, love is like some rare orchid that can only grow in one place under a certain set of conditions. For me it’s like bindweed. It grows with no encouragement at all, under any conditions, and just strangles everything else.
+ - I wonder at what point my life swerved to avoid that, and if that life would have been nicer than the one I’ve got.
+ - What folly takes light through ether to each eye from every horizon.
+ - The sky was the colour of sad weddings.
+ - In some ways I’m a frustrated scientist or mathematician. The amount of times I’ve thought I’d go back to university and do theoretical physics because I like the big questions, but really I know now that that’s not quite me. What’s me is to do it in novels.
+ - One of the paradoxes of writing is that when you write non-fiction everyone tries to prove that it’s wrong, and when you publish fiction, everyone tries to see the truth in it.
+ - People make events into stories. Stories give events meaning.
+ - I think predictability is built into any good novel in some way – you begin reading Anna Karenina and you know pretty much what’s going to happen at the end. But that doesn’t mean you know what’s going to happen in the middle. For me, it’s that sense of what happens in the middle that’s important.
+ - Sometimes you have to trust grownups, perhaps more so when they are not there to actually supervise you.
+ - Honesty and authenticity are a big deal for me.
+ - Over to my left is the big grey wall in front of the church. Are we the Thoughts of God? a poster asks. No, I realise. It’s the reverse.
+ - I erased the thought from my mind, but I couldn’t undo the fact that I’d had the thought in the first place.
+ - One of the biggest problems for beginning writers is this need to over-explain.
+ - If something wants to be a story, it will be.
+ - I’m a great believer in gathering together all your obsessions and seeing if you can make a novel out of them.
+ - Some writers, notably Anton Chekov, argue that all characters must be admirable, because once we’ve looked at anyone deeply enough and understood their motivation we must identify with them rather than judge them.
+ - I wonder if the reason I tend to say yes to everything is because I deeply believe that I can survive anything.
+ - Homeopaths argue that water has a memory.
+ - You can’t do science in a novel, but you can do philosophy. Or, if you’re really lucky, you can manage to pose a question in such a way that other people will take it on.
+ - My novels are high concept. I guess big ideas interest me more than, say, the minutiae of domestic life.
+ - But I quite like the way you can talk about science without necessarily using mathematics, but using metaphors instead.
+ - Living for ever would be like marrying yourself, with no possibility of a divorce.
+ - Everything I know I imagine everyone else knows as well. And then everything that everyone else knows I imagine they know on top of what I know, so I’m constantly anxious about what everyone else knows.
+
+27 quotes

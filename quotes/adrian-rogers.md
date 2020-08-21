@@ -1,0 +1,169 @@
+ - I would rather stand alone in the light of truth than in the crowd filled with error.
+ - If Satan can’t make you bad, he’ll make you busy.
+ - You are free to choose. You are not free not to choose. No choice is a choice. You are free to choose but you are not free to choose the consequences of that choice.
+ - Give God what’s right, not what’s left!
+ - Holiness is not the way to Christ. Christ is the way to holiness.
+ - It is better to be divided by truth than to be united in error. It is better to speak the truth that hurts and then heals, than falsehood that comforts and then kills.
+ - To be almost saved is to be totally lost.
+ - You can trust the Bible. You will never be a great Christian until you come to the unshakable conviction that the Bible is the Word of God.
+ - We’re to love people and use things, not love things and use people.
+ - I’m a nobody telling everybody about Somebody who can save anybody.
+ - The same Jesus Who turned water into wine can transform your home, your life, your family, and your future. He is still in the miracle-working business, and His business is the business of transformation.
+ - Pray and doubt; you’ll do without. Pray and believe; you will receive.
+ - A faith that hasn’t been tested can’t be trusted.
+ - Sin is not just breaking God’s laws; it is breaking His heart.
+ - Leave the woodpile higher than you found it.
+ - Death is just a comma to a Christian, not a period.
+ - A scar is a wound that has healed. We need to bring our wounds to Jesus, let Him heal them, and use our scars for Jesus. Our scars may be our greatest ministry.
+ - Prayer can do anything God can do and God can do anything!
+ - Hell was created for the devil and his angels. If you go, you are an intruder.
+ - Grace is God’s acceptance of us. Faith is our acceptance of God accepting us.
+ - God prefers fruits of the spirit over religious nuts.
+ - There is no promise God cannot keep, no prayer God will not answer, and no problem too hard for Him to solve.
+ - Some people brighten up a room just by leaving it.
+ - Anything you love more, fear more, serve more, or value more than God is your idol.
+ - God doesn’t need us to give Him our money. He owns everything. Tithing is God’s way to grow Christians.
+ - Indeed, your scars may be your greatest ministry. Just as the scars of Jesus convinced Thomas, perhaps your scars will convince someone today.
+ - If I put things between me and Christ, it is idolatry. If I put Christ between me and things, it is victory!
+ - Study the Bible to know about God. Obey the Bible to really know God.
+ - We ought to be living as if Jesus died yesterday, rose this morning, and is coming back this afternoon.
+ - Kingdom Authority is the God-given mandate of Christians to exercise control over the world in the name of Jesus and under His oversight.
+ - The church is not the way to heaven; the church is the sign that points to heaven.
+ - Our great need is to discover that Jesus is all we need.
+ - The doors of opportunity swing on the hinges of opposition!
+ - Men throw broken things away, but God never uses anything until he first breaks it.
+ - Faith believes in spite of the circumstances and acts in spite of the consequences.
+ - Never give the devil a ride! He will always want to drive!
+ - If your religion has not changed your life, youd better change your religion.
+ - When a scientist says he believes the Bible – that doesnt give me anymore more faith in the Bible that gives me more faith in the scientist.
+ - Jesus did not bathe this planet with his blood to have you serve the world, the flesh, and the devil. He died to make you holy. You are not your own. First Corinthians 6:20 says ‘For ye are bought with a price: therefore glorify God in your body and in your spirit, which are God’s.’
+ - And the Bible is not primarily a book of history. It is “His story,” the story of God.
+ - A thorn in the flesh is nothing compared to a thorn in the conscience.
+ - I may be a nut, but I’m fastened to a good bolt, the Lord Jesus Christ.
+ - I am the visible part of the invisible Christ. He is the invisible part of the visible me.
+ - God is never in a hurry, but God is never late.
+ - Let go of this world and take hold of God with both hands.
+ - It doesn’t matter if you please the whole world and don’t please Jesus. But if you please Jesus, it doesn’t matter whom you displease.
+ - Your character is the harvest of your habits.
+ - Light refused increases darkness.
+ - Men study science as god not the God of science.
+ - Don’t let a little sin in; all hell will break loose.
+ - You can’t really live until you are no longer afraid to die.
+ - The Word of the Lord endures forever. The Bible is to judge us; we’re not to judge the Bible.
+ - Come to Jesus. Come to Jesus.
+ - Salvation is not a plan; it’s a Man.
+ - Don’t ask God to cram His plan into your puny little mind, because then God would be limited by your understanding.
+ - Christianity is not a legal relationship; it is a love relationship.
+ - God doesn’t just love all of us. He loves each of us.
+ - It is more important to influence people than to impress them.
+ - Much of God’s will for your life is already found in the Bible.
+ - Has it ever occurred to you that nothing occurs to God?
+ - Discipline says, ‘I need to.’ Duty says, ‘I ought to.’ Devotion says, ‘I want to.’
+ - Anything with no head is dead, and anything with two heads is a freak.
+ - The worst form of badness is human goodness when human goodness becomes a substitute for the new birth.
+ - Knowledge come from looking around; wisdom comes from looking up.
+ - You cannot obey God without your obedience spilling out in a blessing to all those around you.
+ - The weakest ink is better than the best memory. Study with pen in hand.
+ - You can’t sweeten the well by painting the pump.
+ - Everybody needs a hero. Jesus is mine.
+ - When you educate without the Holy Spirit, you only get a clever devil.
+ - God put a cross between you and hell. If you want to go to hell, you will have to crawl over the cross of Jesus.
+ - The man molds the idol and then the idol molds the man.
+ - The Church is not a showboat; it’s a battleship.
+ - You are not saved by the plan of salvation. You are saved by the man of salvation.
+ - One of these days the dam of Gods mercy will give way to his justice.
+ - Scriptural hope is not wishful thinking. It’s rock-solid assurance!
+ - Theres heaven in the sweet by and by but there is to be victory in the nasty now and now.
+ - You can’t just tip your hat to Jesus; you must bow your knee.
+ - If you make your decisions based on comfort, before long you will be uncomfortable.
+ - A healthy person can accept criticism.
+ - God grades on the Cross not on the curve.
+ - You can save a lot of time waiting on God.
+ - God only wants for us what we would want for ourselves if we were smart enough to want it.
+ - As Christians, we are to be newsboys and not editors of the gospel.
+ - When you read the Bible, read for quality not quantity.
+ - You can live with victory over the desires of your flesh. Habits, attitudes, desires, worries, and dissipation must yield as you exercise authority over your mind, emotions, and will.
+ - It has been wisely said that you can take a child of God, put him in a dungeon with a Bible and a candle and lock him away, and he will know more about what’s going on in today’s world with the Word of God than all the pundits in Washington.
+ - The day of judgment will be a day when the skeletons come out of the closets! And each of us will be standing there to face the record.
+ - Satan wants to cripple me and then blame me for limping.
+ - I’m not always what I think I am, but I am what I think.
+ - You don’t make Him Lord. He’s Lord already. You just recognize it.
+ - Never, never, never join a movement that persecutes people because of their faith.
+ - The unity of the Bible is one of the wonderful proofs of the inspiration of God’s Word- that all Scripture is given by inspiration of God.
+ - Have you ever wondered what a church full of Pharisees would be like? 1. They would all attend every service 2. They would all tithe 3. They would all work in the church 4. They would all go to hell.
+ - It’s a fact of earthly life that when God opens the windows of heaven to bless us, the devil opens the doors of hell to blast us. When God begins moving, the devil fires up all his artillery.
+ - Unhappiness comes from mirrors. Happiness comes from windows.
+ - Forgiveness is not an emotion; it’s a choice.
+ - The Bible is not primarily a science book. It is not written to tell us how the heavens go; it is written to tell us how to go to heaven. But when it speaks on science, it is accurate.
+ - The government cannot give to anybody anything that the government does not first take from somebody else.
+ - It’s about time we stopped buying things we don’t need with money we don’t have to impress people we don’t like.
+ - Don’t make decisions by majority vote. The majority is almost always wrong.
+ - My salvation does not hinge on my emotions. I have an official record. I have the Word of God: “These things have I written unto you that believe on the name of the Son of God: that ye may know that ye have eternal life.”
+ - Job is perhaps the oldest piece of literature known to man. How did Job know the Earth is suspended in space? Job could only know through divine inspiration.
+ - You cannot legislate the poor into freedom by legislating the wealthy out of freedom.
+ - If you take part of the truth, and try to make that part of the truth, all of the truth, then that part of the truth becomes an untruth.
+ - God does business with those who mean business.
+ - The devil gives the best first and the worst last, but the Lord saves the best for last.
+ - The prayer offered to God in the morning during your quiet time is the key that unlocks the door of the day. Any athlete knows that it is the start that ensures a good finish.
+ - You can be too big for God to use, but you can never be too small for God to use.
+ - There are those who say that children make a rich man poor. No, they have it backward. Children make a poor man rich. A rich man can’t take his riches to heaven, but I’m taking my children.
+ - We live by promises not by explanations.
+ - Failure in the past does not nullify purpose in the future.
+ - You can sing all you want about how you love Jesus, you can have crocodile tears in your eyes, but the consecration that doesn’t reach your purse has not reached your heart.
+ - The resurrection is not merely important to the historic Christian faith; without it, there would be no Christianity. It is the singular doctrine that elevates Christianity above all other world religions.
+ - Faith comes out of the heart not the head.
+ - You cannot multiply wealth by dividing it.
+ - I know personally the transforming power of the Word of God-it’s changed my life.
+ - Study the history of revival. God has always sent revival in the darkest days. Oh, for a mighty, sweeping revival today!
+ - There are three categories of people in America: those who are afraid, those who don’t know enough to be afraid, and those who know their Bibles.
+ - There can be no mercy without truth.
+ - When you have His joy in your heart, it doesn’t necessarily mean your pain or hurt will be taken away. It means you’ll be able to bear it.
+ - Sometimes we smile at a child thats afraid of the dark. I think more ridiculous is a man or woman afraid of the light.
+ - Be warned! From Satan’s viewpoint you are a pawn in his game of cosmic chess.
+ - No matter what face he wears, Satan has one overmastering ambition, one burning desire-to dethrone the Almighty and to place himself upon the highest throne of the universe.
+ - The devils more orthodox than some theologians I know.
+ - The Mafia and crime bosses of this world are amateurs compared to this syndicate, ruled by the prince of darkness and the master of deception who wears many disguises and has many aliases.
+ - I believe that a great number of people are going to die and go to hell because they’re counting on their religiosity in the church instead of their relationship with Jesus to get them to heaven. They give lip service to repentance and faith, but they’ve never been born again.
+ - Every time you say no to Jesus Christ, it makes it that much harder for you to say yes to Jesus Christ.
+ - The gospel is simply glorious and gloriously simple.
+ - I have not suffered a lot for Christ, but I want to tell you that those times that I have suffered and I knew it was for Jesus, have been some of the happiest times of my entire life.
+ - Satan can’t keep God from answering our prayers, but he will keep us from asking.
+ - But I believe the greatest enemy of the Bible is the so-called Christian who simply ignores the Bible or disregards it.
+ - A church is an incubator, a nursery, a grade school. You start where people are and move them to where they need to be.
+ - You can detect Satan’s schemes and overcome his world system.
+ - When a man jumps out of a ten-story building, he doesn’t break the law of gravity, he demonstrates it.
+ - A marriage is not primarily a duet but a holy trio.
+ - If you have a Bible that’s falling apart, you’ll have a life that’s not.
+ - Mediation gives you knowledge about God. Obedience gives you knowledge of God.
+ - The Devil will use our words and his dictionary.
+ - Lack of wealth cannot take away genuine contentment.
+ - Either you will be under the blood or you will place the blood under you.
+ - A mans religion will rise no higher than his concept of God.
+ - You and I are just like a blade of grass sitting here; we are going to wither and die. “But the word of the Lord endures forever”
+ - God does not flunk any of His children. He just re-enrolls them.
+ - Scientific accuracy confirms the Bible is the Word of God.
+ - You are not saved by your works. You work because youre saved.
+ - What one person receives without working for, another person must work for without receiving.
+ - Law without penalty is only advise.
+ - Never let the things money can buy, rob you of the things money can’t buy.
+ - God never got around to creating a substitute for experience.
+ - I have studied this Book, and I would never even dream of saying I’ve come to the bottom of the Word of God.
+ - It is better to ultimately succeed with the truth than to temporarily succeed with a lie.
+ - If you live for this world, you are in the junk business. It’s all just premature junk.
+ - God does not change us in order to love us. He loves us in order to change us.
+ - Christianity is a love relationship between a child of God and his Maker through the Son Jesus Christ and in the power of the Holy Spirit.
+ - Prayer is not just getting ready for Christian service. Prayer is Christian service.
+ - I wouldn’t trust the best fifteen minutes I ever lived to get me into heaven.
+ - There is no book that has had as much opposition as the Bible. Men have laughed at it, they have scorned it, they have ridiculed it, they have made laws against it.
+ - You can laugh your way into hell but not out.
+ - Some people have enough dust on their bibles to write damnation on it.
+ - I feel sorry for people who do not have a Bible to lean on.
+ - It’s what you sow that multiplies, not what you keep in the barn.
+ - What Jesus will do with you is determined on what you will do with him.
+ - When you choose sin the baggage that comes with it is error.
+ - The reason that so many times we don’t win the battle is that we never show up for the war!
+ - There was a time when you were not. There never will be a time when you will not be.
+ - I believe you have to keep the theological standard high; the Lord said, ‘Be perfect,’ and the leaders have to be striving for that standard with all there is in them.
+ - What you are alone is what you are.
+
+167 quotes

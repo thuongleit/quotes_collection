@@ -1,0 +1,23 @@
+ - The pursuit of happiness is a most ridiculous phrase: if you pursue happiness you’ll never find it.
+ - Two polar groups: at one pole we have the literary intellectuals, at the other scientists, and as the most representative, the physical scientists. Between the two a gulf of mutual incomprehension.
+ - By the year 2070 we cannot say, or it would be imbecile to do so, that any man alive could understand Shakespearean experience better than Shakespeare, whereas any decent eighteen-year-old student of physics will know more physics than Newton.
+ - If you pursue happiness you never find it.
+ - I was searching for something a little more than a dashing metaphor, a good deal less than a cultural map: and for those purposes the two cultures is about right.
+ - What we need to do is to humanize the scientist and simonize the humanist.
+ - I want a man who knows something about himself. And is appalled. And has to forgive himself to get along.
+ - Advertising degrades the people it appeals to; it deprives them of their will to choose.
+ - It takes a very strong head to keep secrets for years and not go slightly mad. It isn’t wise to be advised by anyone slightly mad.
+ - Try as I might, I could never feel any great affection for a man who so much resembled a Baked Alaska – sweet, warm and gungy on the outside, hard and cold within.
+ - Nine English traditions out of ten date from the latter half of the 19th century.
+ - Nothing is easier to avoid than publicity. If one genuinely doesn’t want it, one doesn’t get it.
+ - A scientist has to be neutral in his search for the truth, but he cannot be neutral as to the use of that truth when found. If you know more than other people, you have more responsibility, rather than less.
+ - When you think of the long and gloomy history of man, you will find more hideous crimes have been committed in the name of obedience than have ever been committed in the name of rebellion.
+ - The scientific process has two motives: one is to understand the natural world, the other is to control it.
+ - What will people of the future think of us? Will they say, as Roger Williams said of the Massachusetts Indians, that we were wolves with the minds of men? Will they think that we resigned our humanity? They will have the right.
+ - The most dreadful thing of all is that many millions of people in the poor countries are going to starve to death before our eyes. We shall see them doing so upon our television sets.
+ - I think, on the whole that scientists make slightly better husbands and fathers than most of us, and I admire them for it.
+ - There is, of course, no complete solution. But we can do something. The chief means open to us is education There is no excuse for letting another generation be as vastly ignorant, or as devoid of understanding and sympathy, as we are ourselves.
+ - I should never have made a good scientist, but I should have made a perfectly adequate one.
+ - Davy was the type of all the jumped-up second-raters of all time.
+
+21 quotes

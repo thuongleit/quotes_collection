@@ -1,0 +1,72 @@
+ - I’m stubborn. I’m hardheaded. I don’t do what I don’t want to do.
+ - When I am scared of something, I run towards it, instead of away from it.
+ - It’s easy for me to work with other girls because I’m a tomboy and I don’t want the guy, your boyfriend – I’m not interested in looking better than you, so don’t worry. Fail or win, whatever it is, I need to go do stuff.
+ - You can keep knocking me down forever, I’ll keep getting up and trying.
+ - The Dewey decimal system really works. So that’s all I needed to know. Elementary school taught me that.
+ - The more confidence you have in yourself and the more you believe that you are destined to do what you are gonna do, it will happen.
+ - We all have our moments. But you can switch it around. Then you’ve got the activist type who bases their decisions in the development of a character on what it symbolizes to society – what the ethical code is.
+ - I just love feeling myself, and moving, flexing, jumping, expressing, dancing and doing movement. I’m in tune with it. I like to express myself with my body, more so than intellectually. But, I am a geek.
+ - I think humans are stupid. We fight and kill each other. I think that’s dumb. Aliens would be smarter than that and wouldn’t approach things on that level. I can’t really fathom it being a negative thing for aliens to visit.
+ - The way I survived growing up in Jersey City was by being funny. It wasn’t by being tough. Nobody thought of me as a tough kid, except for the kids I beat up.
+ - At school, I was this tomboy kid who just loved to hang out with her friends and learn curse words, trying to fit in with the cool kids and defending all the kids who got picked on.
+ - People love destroying mankind, for some strange reason. You make a movie about mankind’s destruction, you’re going to fill seats. People just love the idea. For a couple thousand years, we’ve been dreaming up how we’re all going to disappear and fade away from this planet.
+ - Berlin is liberation. Architecture, man!
+ - Sometimes I wake up in awe that I’m alive. I can’t get over that part, so I guess it makes me kind of like an existentialist.
+ - I think empathy is a beautiful thing. I think that’s the power of film though. We have one of the most powerful, one of the greatest communicative tools known to man.
+ - Guys are so predictable. They can’t seem to separate fantasy from reality, so I get a lot of bikers and race car drivers hitting on me. They’re all just playboys, so they don’t interest me.
+ - I’m like, “Well, damn, that means that I have to carry a flag.” I don’t have the freedom to just do anything, because I have the political weight of having this last name and my heritage. It’s not like I’ve transcended, Will Smith-style. It takes a lot to pull that off, to cross over, and transcend.
+ - I use to watch like maybe three or four movies, five days out of the week. I was a movie buff, but I really didn’t know what it was like behind the scenes, or the whole political process of it.
+ - After Cannes every year, I end up going to some foreign country I’ve never been to before and introducing myself to a new religion – I’ll go to Bali and research Hinduism, or I’ll go to Thailand and get another tattoo from Thai tattoo artist Ajarn Noo Kanpai.
+ - I wanted to express myself. I wanted to be creative and I didn’t want to worry about someone bossing me around in the process. You have to struggle no matter where you are to get to where you’re going, so I’m like, working it honey!
+ - I have absolutely nothing consistent in my life. But that’s where serendipity comes in and I love that. One day I’m going to have to sacrifice that to bring life into the world. But the more I can hold off on that, the happier I’ll be. It’s scary for me.
+ - I enjoy vanity. But I can’t stick to any of that lifestyle for too long because, when its true colors come out, it’s empty and cold and soulless.
+ - I’d stare up at the sky and just dream a lot. Still do. I dreamed that I didn’t belong here, that I was going to travel a lot.
+ - Until they come up with an independent woman who’s on an adventure of her own, I don’t think I’m interested.
+ - I had older brothers who would pick on me, and injustice always boiled my blood.
+ - I just loved storytelling. That’s what I thought I would end up doing. I thought I would probably go to school and end up writing for a magazine or something.
+ - The roughest thing was learning the realities of the world at such a young age. I was 10 or 11, going to church, hearing the adults standing on the podium talking about world affairs, about history, about war, and how America was founded.
+ - My favorite part of my body is my brain. I think no matter what my body looks like I wont be satisfied unless I know how to use it.
+ - I just never felt like I belonged anywhere. I always had a stick with a little knapsack attached.
+ - They didn’t train me to be in the ring for five and a half hours punching air. So, it was hard, I had to get some body contact in there somewhere, it was mostly body shots and stuff. I had no clue, really.
+ - I do have a delicate side.
+ - I would like to see a fierce Fantasia mixed with Blade Runner, Lord of the Rings, and Star Wars all in one. That’s the kind of movies I want to make.
+ - I was in Jersey when the whole World Trade Center thing happened and I felt powerless. So, I went to Hawaii and did a surf movie. It’s kind of fluffy.
+ - I also love the makers of South Park, because they’re political, strong, and they’re making all of these comments that would get you shot for if you did it in a drama.
+ - Sometimes I’d knock on the door of somebody I was going to school with, so it was like living a double life.
+ - I was born in Texas and I lived there ’till I was 8. Then I moved to the Dominican Republic with my mom, lived there for two years and forgot every word of English I knew.
+ - There’s something about strength that I really admire, that I failed to see a lot of when I was growing up.
+ - I’m always researching ancient religions, and I was also raised Jehovah’s Witness, so that kind of scarred me for life.
+ - I’ve never really been about looking good – I’m just bad at that stuff.
+ - I used to go over to my friend’s house and we’d watch VCR tapes, three of them a day, and I was like, “I could come up with better stories than this.” And I’ve wanted to write films ever since.
+ - People don’t like talking about it, but if you’re Spanish, you feel a weight.
+ - I do what I want, when I want, how I want, and because of that, it has taken me so long to grow into an adult human being.
+ - My dad was more, “Let’s play chess. Read a book, you’re stupid.” He’s more the intellectual type.
+ - I don’t have much history – I’ve got Rosie Perez, Jennifer Lopez, Rita Moreno. That’s it. That’s the history of Latin women in Hollywood, really.
+ - I don’t see the point of marriage. But when I need my love, I get my love.
+ - Whenever a female takes a strong stand for herself, the majority of the time they have to really, really narrow it down to being feminine and wearing dresses and just being lipstick chic.
+ - Basically I was a rebel growing up. I got kicked out of six schools. But I don’t think that it makes you less of an intellect. You know, if you ever crave knowledge, there’s always a library.
+ - There’s only a handful of directors who really understand what I call the alchemical balance between a man and a woman, in a woman’s body, which most people consider the strong woman character.
+ - It’s the board I had a problem with. I could totally handle being in the water and stuff. I came here to do my own stunts. Water! Ocean! Action! Big waves! That water, that water has tamed me. You can feel that the world is connected to it.
+ - The whole surf culture is starting to embrace women a lot more.
+ - I didn’t know how to box so I would have looked like a complete street fighter actually, but what we did have to do was pick up some sides and then just memorize them within two days and go there and audition.
+ - I hated school right away. Religion had a lot to do with it because I felt like everybody was always lying to me.
+ - I wouldn’t want to sacrifice the last years that I have of being youthful in this business to have kids.
+ - Going to car racing school was phenomenal.
+ - I wish that something interesting would come across the desk. I’m bored by what people think is interesting.
+ - The egos in this industry are incredibly vulnerable and everybody’s afraid to wipe out. So everybody plays it safe and everybody tells everybody else how great they are.
+ - I’m a video game fan. I played them before I became an actress.
+ - The only place that I’d be worried about being typecast is the independent film world.
+ - Growing up in Jersey City was interesting. I got to learn a lot about different cultures: I had Hindu friends, Middle Eastern friends, black friends, Spanish friends.
+ - I knew nothing about the independent film industry. I didn’t know much about the industry itself. All I knew was how to watch movies, how to enjoy them, how to hate them, how not to like them.
+ - I don’t have an agent. The only work I get is through friendships that I’ve already built.
+ - I went to business school but left after four months because I just didn’t want to be a puppet of society, stuck in an office, craving some sunlight.
+ - Maybe I exclude myself from that genre by not getting dressed up often enough, by acting ghetto most of the time, and running around in sweats and Timberlands.
+ - I am looking forward to seeing my buddy Colin represent in front of Pacino. That’s sweet.
+ - There’s a voice inside of me that I know people will relate to; I just haven’t really had the opportunity to let it flourish. To sit there and explain to a guy what it’s like to be a kick-ass woman is hard. I think there’re only a handful of directors out there that get it.
+ - I thought about making movies. It hit me when I was about 14, 15 years old.
+ - When I was about 11, 12, we moved to Jersey City. Everywhere I go I’m an outsider.
+ - I’ve been part of really big things that are amazing, but I haven’t taken on that responsibility yet. So I don’t want to sell myself short by having a kid and then regret not doing what I set out to do.
+ - I love action. I love to move my body. Any chance I have to do that in my youth, I’ll definitely jump towards it, for sure.
+ - I learned that you can make a sci-fi film that is satisfying overseas. European people have everything in check. I’d make every sci-fi film in Europe. They only work 14 hours a day. After that, it’s overtime.
+
+70 quotes

@@ -1,0 +1,29 @@
+ - My friends, love is better than anger. Hope is better than fear. Optimism is better than despair. So let us be loving, hopeful and optimistic. And we’ll change the world.
+ - Cherish every moment with those you love at every stage of your journey.
+ - Don’t let them tell you it can’t be done.
+ - You can wait forever for perfect conditions or you can make do with what you have.
+ - Remember our proud history of social justice, universal health care, public pensions and making sure no one is left behind. Let’s continue to move forward.
+ - I don’t know why we’d need so many more prisons when the crooks seem so happy in the Senate.
+ - If it’s a flash it’s been an awfully long flash. I’ve been around for 20 years in one of the largest media and political markets in the country, so I’d call it more of a slow burn.
+ - I believe how I live my life every day is my act of worship.
+ - Some people think the NDP may want to get rid of the monarchy but I can assure you that that’s absolutely not the case. My Dad was a big time monarchist and so am I.
+ - Hope and optimism have defined my political career, and I continue to be hopeful and optimistic about Canada. Young people have been a great source of inspiration for me.
+ - I want to share with you my belief in your power to change this country and this world.
+ - Politics matters. Ideas matter. Democracy matters, because all of us need to be able to make a difference.
+ - Canada is a great country, one of the hopes of the world.
+ - I believe that when Paul Martin cancelled affordable housing across this country it produced a dramatic rise in homelessness and deaths due to homelessness and I’ve always said I hold him responsible for that.
+ - Ideas are always more important than money.
+ - There are great challenges before you, from the overwhelming nature of climate change to the unfairness of an economy that excludes so many from our collective wealth, and the changes necessary to build a more inclusive and generous Canada. I believe in you.
+ - Treatments and therapies have never been better in the face of this disease. You have every reason to be optimistic, determined, and focused on the future. My only other advice is to cherish every moment with those you love at every stage of your journey, as I have done this summer.
+ - Free speech is one of our fundamental principles and it’s pretty hard to speak freely when people are yelling at you when it’s your turn. That would never be allowed in a classroom or in any other kind of meeting.
+ - To other Canadians who are on journeys to defeat cancer and to live their lives, I say this: please don’t be discouraged that my own journey hasn’t gone as well as I had hoped. You must not lose your own hope.
+ - We want to challenge the established ideas with new ideas.
+ - Well, I say it’s time to take Stephen Harper to the woodshed!
+ - Canadians can get Parliament working again. Here’s how to do that: elect more New Democrats.
+ - If I have tried to bring anything to federal politics, it is the idea that hope and optimism should be at their heart.
+ - I think Paul Martin doesn’t mean what he says. He said he would clear this sort of thing up and he didn’t do it.
+ - The responsibility of a minister is to step aside when there is a criminal investigation of the department. That protects the propriety of Parliament and of responsible government.
+ - When you’re sick, you present your medicare card, not your credit card...
+ - Are we allowed to sing? I imagine that at times, it might improve the tone of the debate.
+
+27 quotes

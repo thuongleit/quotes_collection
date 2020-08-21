@@ -1,0 +1,56 @@
+ - Be adaptable, flexible and never stop learning. The rate of change will never stop and neither should you.
+ - The big yellow one is the sun!
+ - Hooked on Phonics worked for me.
+ - If you were to second guess your decision to book some time to visit an Indian community, that would be a reservation reservation reservation.
+ - I go in for the eye test, and I don’t know about you, but I concentrate like crazy during the eye exam. You don’t want to get no ‘D’ on that thing and end up with these big thick Coke bottle glasses.
+ - I took a speed reading course and my speed shot up to 43 pages a minute, but my comprehension plummeted.
+ - Some people look at creamed corn and ask, ‘Why?’ I look at creamed corn and ask, ‘Why not?’
+ - Hey, you know who I feel bad for? Arab-Americans who truly want to get into crop dusting.
+ - If reading makes you smart then how come when you read a book they have to put the title of the book on the top of every single page? Does anyone get halfway through a book, What the hell am I reading?
+ - I drove myself to the Emergency Room. That’s a nice relaxing drive. “Noooo, after you. Merge-everybody merge.”
+ - I think the serving size of ice cream is when you hear the spoon hit the bottom of the container.
+ - Can you imagine being bilingual? Or even knowing anybody that was? I’m not even unilingual. Actually, I shouldn’t say that. I don’t give myself enough credit. I know enough English to, you know, get by. I can order in restaurants and stuff.
+ - Mmmm! Lunch and no clean up!! Can life get better? I submit that it CANNOT!!
+ - You know I could go for a sandwich, but uh, I’m not gonna open two jars. I can’t be opening and closing all kinds of jars. And who knows how many knives!
+ - I eat Fig Newtons by the sleeve!
+ - I always hate having to use the gym equipment after these huge buff guys who move, like, the entire rack of plates. Then I get on, and move two plates, you know like: Clank! Clank! I’m the two plate guy! Clank! Clank! Anyone wanna spot me? Clank! Clank!
+ - They always say that Albert Einstein was a genius. Then how come when anyone ever calls you that, it’s an insult? ‘You don’t know where you parked the car? Good job, Einstein.’ I don’t think we’re honoring that man properly by using his name in vain in parking lots.
+ - I would have been a lot better off if I’d studied more when I was growing up, y’know. But you know where it all went wrong was the day they started the spelling bee. Because up until that day I was an idiot, but nobody else knew.
+ - You know what’s fun? You pick somebody at random, like out of the phone book, and send them about 100 ‘Just Because’ cards. They can’t even ask you why you did it.
+ - I could go for a sandwich, but I’m not gonna open two jars.
+ - Racquetball is the only sport where simultaneously you can be looking at the ball and it’ll hit you in the back of the head at 90 miles per hour.
+ - Don’t let dialog about your company happen without your perspective.
+ - I don’t sit down with a goal of writing. I read books or magazines. I watch TV. I go to the doctor. I get on airplanes. I live a normal life and sometimes I’ll notice something or read things or experience things.
+ - My parents didn’t know what to do with me. They got me into Little League Baseball, I played out in right field, cause I stunk.
+ - The bigger the show, the weirder it is.
+ - I am happy doing standup so I don’t ever want to stop doing it. But I wouldn’t mind venturing off and doing other things that are creative.
+ - I just tend to think about everyday things for my onstage act. Actually you know what I like to talk about just the absolute most – the more mundane the subject matter, the more interesting it is to me.
+ - Even though I have fond feelings for comedy clubs, I enjoy the focus you get in a theater. Comedy clubs are a different animal. People are being served nachos and there’s a blender going off in the background.
+ - I don’t take jokes from other people. It’s really not cool to steal jokes from anybody. It’s not cool to steal anything from anybody. Jokes are no different.
+ - Why are people getting on elevators shocked to find people getting off elevators?
+ - I like the honesty of standup comedy. People don’t fake laugh. If they’re truly laughing at you, you know they like you.
+ - The funnest jokes for me to tell are the ones that are the newest. So I’m just constantly motivated to keep my eyes and ears open and have new stuff.
+ - A formula for comedy is comedy equals tragedy plus time. A difficult or uncomfortable situation takes place, and then you laugh about it later down the road.
+ - I’m trying to do things I have never done. Like I recently went to 3 different ballets. And I loved trying to learn how to like those a little bit.
+ - It means a lot to me to have my kids like what I do. And that’s why I limit them. But I don’t want to put that pressure on them to be a fan of mine.
+ - It’s hard to program a computer to make jokes. The brain needs to do something here; the brain needs to come up with something bizarre to make something funny.
+ - So when you do board, the first class people, they’re sitting there. A lot of them are working as your boarding. They have computers out and calculators. They’re looking up at you like, Hey, we’re making money right now!
+ - You can poke fun at some pretty difficult circumstances, and it’s just a way to pop the bubble. I don’t do that thing onstage usually, but offstage sometimes I might.
+ - Like, I’m trying to make a statement that clean comedy is somehow better or loftier than dirty comedy, and I don’t feel that way at all. I just think it’s different. It’s different. There’s rock music, there’s jazz music, there’s reggae music: All of those forms are different.
+ - I try to be careful not to put the cart before the horse. I try not to create comedy for other comedians to like. I want everybody to like it. I want audiences to like it, but I also want comedians to like it. I’m selfish. I want everybody to laugh!
+ - I wasn’t expecting to really draw in respected comedians but it’s going to happen along the way and I’m truly honored by that.
+ - Don’t like when sports interviewers force answers: Are you dedicating this game to your sick grandmother? What’s the guy supposed to say?
+ - I never learn. Like a waitress will bring my meal. Hey, enjoy your meal. You, too. But you don’t have one, do ya? I’m a dufus. If you do eat enjoy it when you eat it if you have a break or something, later. If you get an opportunity. That’s all I’m trying to say.
+ - I don’t always see humor in things. Especially when I smash my pinky toe into a coffee table leg in the middle of the night. But sometimes I’ll see things, or experience things, that make me go, “Huh, maybe that’s a bit.”
+ - Sometimes you’ll play, like, a large venue – maybe an outdoor venue or something – where it’s so big that you can see all of the disinterested people. You see the audience, but then behind the audience you see people eating ice cream, going for a walk.
+ - I don’t know. I’d be a lot better off if I would’ve studied more when I was growing up, you know?
+ - It’s good to be here. I’m just trying to go through life without looking stupid. It’s not working out too well.
+ - I think comedy is a good way to deal with anything. I hear about people in the hospital who are ill, and they use humor to help them through it. I think it’s a great remedy for many things.
+ - I was at the breakfast table this morning and I read in the newspaper that more and more adults are living at home with their parents. That surprised me, I was like Mom did you read this?
+ - Many comedians consider themselves to be cutting edge. But why do we have to use the knife for the analogy. Let’s use the spoon. I like to consider myself the big bowl-like area of the spoon that holds all the stuff you like.
+ - I’m honored that other comedians like what I do. That means the world to me. But at the same time when I’m on stage I’m not just trying to make the comedians laugh – I’m also trying to make the audience laugh. I want to make everybody laugh.
+ - A lot of the kind of comedy that I do comes out of real human moments. For them to work, they have to be truthful kinds of things that people in the audience can go, “Yes, I’ve experienced that myself!”
+ - I do a few jokes about the economy but from an everyday person perspective. People like to laugh, and they especially like to laugh during difficult circumstances.
+ - As long as I can make that audience one thing, one unit, then I’m okay with it. But, sometimes, the bigger the audience, the weirder it gets.
+
+54 quotes

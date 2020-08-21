@@ -1,0 +1,39 @@
+ - Tolerance, compromise, understanding, acceptance, patience – I want those all to be very sharp tools in my shed.
+ - I believe hip hop is being used in some mass way to influence underachievement.
+ - Everybody’s the same color with the lights off.
+ - Be free and express yourself. Do what comes naturally...
+ - The fact that you can love something that you’ve lost is all the incentive you need to love again, as opposed to becoming comfortably numb.
+ - Music saved my life. The voice you hear, the soul, the pain, is that of a person who deeply, deeply, deeply appreciates the opportunity they’ve been given.
+ - You have to dream big, wish hard and chase after your goals, because no one is going to do it for you.
+ - I don’t sell dope, I sell hope.
+ - Antique things have an appreciation and worth. Something can be old, but it can be timeless; therefore, it becomes an antique. If this antique is preserved and deemed precious, it could be passed down as a family heirloom.
+ - On a good day I think I’m handsome, on an average day I’m average. I’m a man’s man so I don’t necessarily know how cute we’re supposed to be.
+ - I’m a little lavish I must admit. But I’m not really concerned with money. Being rich is not my goal, being wealthy is.
+ - Twitter is a form of free speech, and I’m all for that. But if Cee Lo Green, a maverick of sorts, can’t get on Twitter and say something outlandish or outrageous, then what is the whole point of Twitter at all?
+ - If someone is passed out they’re not even WITH you consciously! so WITH implies consent.
+ - My style is ambiguous and lucid.
+ - I like aggressive and sexually liberated women. It’s hot to me.
+ - It’s a double-headed coin, because technology is a convenience but it’s stifled our attention spans. At one time, albums had songs that were like ten minutes long, with different variations and chord progressions and changes.
+ - I get to thinking about my life, and it sometimes makes me want to make it interesting.
+ - I cry all the time. Music makes me cry.
+ - I think I’ll always be famous. I just hope I don’t become infamous.
+ - There was a time when I didn’t like myself at all. I thought I was a cruel joke. But now I’ve come to realise that maybe I am not cute, but I am beautiful.
+ - I hate hateful people.
+ - I’m not classically trained, but I am flawed in a very fantastic way!
+ - I like to have fun. I’m definitely sexually liberated and all that good stuff.
+ - Well, I’ve cleaned bathrooms in a warehouse. That was pretty terrible. But I can’t complain because I’m sure other people have done worse.
+ - Christina Aguilera, to me, has one of the greatest voices of our time and I got nothing but respect for her.
+ - I called out to God, but the devil keeps answering.
+ - I don’t judge people. I don’t even judge people on ‘The Voice.’ I’m a coach. I’m there for constructive criticism and to aid and abet and discover new talent.
+ - My insurance provider probably wouldn’t allow me to go into a mosh pit anymore. My brain is insured by Lloyd’s of London, you know what I’m saying?
+ - Others tell like it is, while I tell it how I would like it to be.
+ - Like most artists, I live out of a suitcase.
+ - A great deal of it is personal. But the persona is, I guess, the out of body experience that takes place. Because I’m not conscious of what the outcome is going to be, I’m only conscious of my intentions, do you know what I’m saying? And even my intentions were simple initially.
+ - I’ve been such an oddball my whole life, but I’ve always been cool and I’ve always dressed fairly smartly.
+ - When it comes to the stage, I can’t help but be inspired by people like George Clinton, Elton John and Alice Cooper.
+ - So many of the bands that influenced me growing up were English, even if I didn’t realise it. English pop ruled the world in the ’80s!
+ - I’m not allowed to be as liberal as I would like to be, you know? I’d do a lot more damage if I could!
+ - I’m an artist, and I like the risk – I’m not in it for the sure things.
+ - I believe that I am God’s exact intention. It’s that balance of virtue and vice.
+
+37 quotes

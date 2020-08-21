@@ -1,0 +1,21 @@
+ - The quickest way to unlock your talent is to take the flute out of the box.
+ - You cannot prepare enough for anything.
+ - Everyone who plays the flute should learn singing.
+ - I do not consider my self as having mastered the flute, but I get a real kick out of trying.
+ - It is normal to be nervous.
+ - Control of vibrato helps your musical expression.
+ - Scales played in the correct musical way are very exciting and rewarding.
+ - Taking drugs to overcome nerves is the thin edge of the wedge going in there.
+ - Running through things because you are familiar with them, breeds routine and this is the seed of boredom.
+ - I have to report to those of you who think diamonds make a difference that I cannot tell what it is. Seriously, as you all know, they make no difference at all. They just make the flute look a little more special.
+ - The mind of the performer is a very strange thing.
+ - By the time I got to the Paris Conservatoire I was very good at the scales and arpeggios.
+ - Being unprepared heightens nerves.
+ - Yes indeed I have gained a lot out of playing scales and etudes.
+ - You can sightread better if you know your scales and arpeggios.
+ - They are all different and I find it hard to tell what flute suits me best.
+ - I think it is most important for a teacher to play the pieces and studies that are being played by the student.
+ - Never just run through a study because you happen to be familiar with it, but use it to see what you can get from it on this new day which has been granted you.
+ - I use the traditional Moyse scale books slightly modified.
+
+19 quotes

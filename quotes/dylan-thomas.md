@@ -1,0 +1,96 @@
+ - Do not go gently into that good night but rage, rage against the dying of the light.
+ - Rage, rage against the dying light.
+ - Life always offers you a second chance. is called tomorrow.
+ - I hold a beast, an angel and a madman within me.
+ - Though wise men at their end know dark is right, Because their words had forked no lightning they Do not go gentle into that good night.
+ - I hold a beast, an angel, and a madman in me, and my enquiry is as to their working, and my problem is their subjugation and victory, down throw and upheaval, and my effort is their self-expression.
+ - He who seeks rest finds boredom. He who seeks work finds rest.
+ - Though lovers be lost love shall not.
+ - Wild men who caught and sang the sun in flight, And learn, too late, they grieved it on its way, Do not go gentle into that good night...
+ - When one burns one’s bridges, what a very nice fire it makes.
+ - Break in the sun till the sun breaks down, And death shall have no dominion.
+ - Though they go mad they shall be sane, though they sink through the sea they shall rise again; though lovers be lost love shall not; and death shall have no dominion.
+ - Somebody’s boring me. I think it’s me.
+ - Cold beer is bottled God.
+ - Light breaks where no sun shines; Where no sea runs, the waters of the heart; Push in their tides.
+ - After the first death, there is no other.
+ - We can catch buses and count our change and cross the roads and talk real sentences. But our innocence goes awfully deep, and our discreditable secret is that we don’t know anything at all, and our horrid inner secret is that we don’t care that we don’t.
+ - To begin, at the beginning...
+ - An alcoholic is someone you don’t like who drinks as much as you do.
+ - Oh, isn’t life a terrible thing, thank God?
+ - I said some words to the close and holy darkness and then I slept.
+ - Man’s wants remain unsatisfied till death. Then, when his soul is naked, is he one With the man in the wind, and the west moon, With the harmonious thunder of the sun.
+ - Never be lucid, never state, if you would be regarded great.
+ - To begin at the beginning: It is a spring moonless night in the small town, starless and bible-black.
+ - And I rose In rainy autumn And walked abroad in a shower of all my days...
+ - A good poem is a contribution to reality. The world is never the same once a good poem has been added to it. A good poem helps to change the shape of the universe, helps to extend everyone’s knowledge of himself and the world around him.
+ - I know in London a Welsh hairdresser who has striven so vehemently to abolish his accent that he sounds like a man speaking with the Elgin marbles in his mouth.
+ - Poetry is what makes my toenails twinkle.
+ - Hands have not tears to flow.
+ - The only sea I saw Was the seesaw sea With you riding on it. Lie down, lie easy. Let me shipwreck in your thighs.
+ - And books which told me everything about the wasp, except why.
+ - A springful of larks in a rolling Cloud and the roadside bushes brimming with whistling Blackbirds and the sun of October Summery On the hill’s shoulder.
+ - Love is the last light spoken.
+ - Shall I let in the stranger, Shall I welcome the sailor, Or stay till the day I die? Hands of the stranger and holds of the ships, Hold you poison or grapes?
+ - Why do men think you can pick love up and re-light it like a candle? Women know when love is over.
+ - I do not need any friends. I prefer enemies. They are better company and their feelings towards you are always genuine.
+ - When logics die, The secret of the soil grows through the eye, And blood jumps in the sun; Above the waste allotments the dawn halts.
+ - Go on thinking that you don’t need to be read and you’ll find that it may become quite true: no one will feel the need tom read it because it is written for yourself alone; and the public won’t feel any impulse to gate crash such a private party.
+ - But oh, San Francisco! It is and has everything – you wouldn’t think that such a place as San Francisco could exist.
+ - The force that through the green fuse drives the flower drives my green age.
+ - Poetry is the rhythmic, inevitably narrative, movement from an overclothed blindness to a naked vision that depends in its intensity on the strength of the labour put into the creation of the poetry.
+ - The force that through the green fuse drives the flower Drives my green age; that blasts the roots of trees Is my destroyer. And I am dumb to tell the crooked rose My youth is bend by the same wintry fever.
+ - A worm tells summer better than the clock, The slug’s a living calendar of days; What shall it tell me if a timeless insect Says the world wears away?
+ - Oh, I’m a martyr to music.
+ - Let the dry eyes perceive Others betray the lamenting lies of their losses By the curve of the nude mouth or the laugh up the sleeve.
+ - Join the army and see the next world.
+ - A horrid alcoholic explosion scatters all my good intentions like bits of limbs and clothes over the doorsteps and into the saloon bars of the tawdriest pubs.
+ - The photograph is married to the eye, Grafts on its bride one-sided skins of truth...
+ - My education was the liberty I had to read indiscriminately and all the time, with my eyes hanging out.
+ - This bread I break was once the oat, This wine upon a foreign tree Plunged in its fruit; Man in the day or wind at night Laid the crops low, broke the grape’s joy.
+ - My birthday began with the water – Birds and the birds of the winged trees flying my name.
+ - Sleeping as quiet as death, side by wrinkled side, toothless, salt and brown, like two old kippers in a box.
+ - Chastity prays for me, piety sings, Innocence sweetens my last black breath, Modesty hides my thighs in her wings, And all the deadly virtues plague my death!
+ - It snowed last year too: I made a snowman and my brother knocked it down and I knocked my brother down and then we had tea.
+ - Oh as I was young and easy in the mercy of his means, Time held me green and dying Though I sang in my chains like the sea.
+ - Out of the sighs a little comes, But not of grief, for I have knocked down that Before the agony; the spirit grows, Forgets, and cries; A little comes, is tasted and found good...
+ - Reading one’s own poems aloud is letting the cat out of the bag. You may have always suspected bits of a poem to be overweighted, overviolent, or daft, and then, suddenly, with the poet’s tongue around them, your suspicion is made certain.
+ - Beginning with doom in the bulb, the spring unravels...
+ - In the beginning was the word, the word That from the solid bases of the light Abstracted all the letters of the void...
+ - And from the first declension of the flesh I learnt man’s tongue, to twist the shapes of thoughts Into the stony idiom of the brain...
+ - In the beginning was the secret brain. The brain was celled and soldered in the thought.
+ - This poem has been called obscure. I refuse to believe that it is obscurer than pity, violence, or suffering. But being a poem, not a lifetime, it is more compressed.
+ - I think, that if I touched the earth, It would crumble; It is so sad and beautiful, So tremulously like a dream.
+ - Washington isn’t a city, it’s an abstraction.
+ - Rhianon, he said, hold my hand, Rhianon. She did not hear him, but stood over his bed and fixed him with an unbroken sorrow. Hold my hand, he said, and then: why are your putting the sheet over my face?
+ - The function of posterity is to look after itself.
+ - The best poem is that whose worked-upon unmagical passages come closest, in texture and intensity, to those moments of magical accident.
+ - Come on up, boys -I’m dead.
+ - Don’t be too harsh to these poems until they’re typed. I always think typescript lends some sort of certainty: at least, if the things are bad then, they appear to be bad with conviction.
+ - The condition of the world today is such that most writers feel they cannot truthfully be “comic” about it.
+ - Nothing grows in our garden, only washing. And babies.
+ - And on seesaw Sunday nights, I’d woo who ever I would with my wicked eye!
+ - Families, like countries, take their prophets unkindly, but a verse-speaker in the house is dishonor to be hooted.
+ - I sang in my chains like the sea.
+ - There is only one po- sition for an artist anywhere: and that is, upright.
+ - All world was one, one windy nothing, My world was christened in a stream of milk.
+ - I like to think of poetry as statements made on the way to the grave.
+ - Great is the hand that holds dominion over man by a scribbled name.
+ - The land of my fathers. My fathers can have it.
+ - I believe in New Yorkers. Whether they’ve ever questioned the dream in which they live, I wouldn’t know, because I won’t ever dare ask that question.
+ - I went on all over the States, ranting poems to enthusiastic audiences that, the week before, had been equally enthusiastic about lectures on Railway Development or the Modern Turkish Essay.
+ - I used to think that once a writer became a man of letters, if only for a half hour, he was done for. And here I am now, at the very moment of such an odious, though respectable, danger.
+ - A truly comic, invented world must live at the same time as the world we live in.
+ - A good poem is a contribution to reality.
+ - If you want a definition of poetry, say: Poetry is what makes me laugh or cry or yawn, what makes my toenails twinkle, what makes me want to do this or that or nothing and let it go at that.
+ - Whatever talents I possess may suddenly diminish or suddenly increase. I can with ease become an ordinary fool. I may be one now. But it doesn’t do to upset one’s own vanity.
+ - And now, gentlemen, like your manners, I must leave you.
+ - This world is half the devil’s and my own, Daft with the drug that’s smoking in a girl and curling round the bud that forks her eye.
+ - You just wait. I’ll sin ’til I blow up!
+ - It is the measure of my individual struggle from darkness toward some measure of light.
+ - I learnt the verbs of will, and had my secret; The code of night tapped on my tongue; What had been one was many sounding minded.
+ - I have just had eighteen whiskeys in a row. I do believe that is a record.
+ - Seventeen whiskeys. A record, I think.
+ - These are but dreaming men. Breathe, and they fade.
+
+94 quotes

@@ -1,0 +1,31 @@
+ - Nothing is a mistake. There’s no win and no fail. There’s only make.
+ - Consider everything an experiment.
+ - Don’t belittle yourself. Be BIG yourself.
+ - To be disciplined is to follow in a good way. To be self disciplined is to follow in a better way.
+ - To understand is to stand under which is to look up to which is a good way to understand.
+ - Love the moment. Flowers grow out of dark moments. Therefore, each moment is vital. It affects the whole. Life is a succession of such moments and to live each, is to succeed.
+ - Find a place you trust and then try trusting it for a while.
+ - Life is a succession of moments, to live each one is to succeed.
+ - Love the moment and the energy of that moment will spread beyond all boundaries.
+ - It is a huge danger to pretend that awful things do not happen. But you need enough hope to keep going. I am trying to make hope. Flowers grow out of darkness.
+ - Celebration is a kind of food we all need in our lives, and each individual brings a special recipe or offering, so that together we will make a great feast. Celebration is a human need that we must not, and can not, deny. It is richer and fuller when many work and then celebrate together.
+ - Women’s liberation is the liberation of the feminine in the man and the masculine in the woman.
+ - I am not brave enough to not pay my income tax and risk going to jail. But I can say rather freely what I want to say with my art.
+ - A responsible person is one who responds.
+ - One of the things Jesus did was to step aside from the organized religion of his time because it had become corrupt and bogged down with rules. Rules became more important than feeding the hungry.
+ - Earnestness and sincerity are synonymous.
+ - Creativity belongs to the artist in each of us. To create means to relate. The root meaning of the word art is ‘to fit together’ and we all do this every day.
+ - Damn everything but the circus.
+ - That’s why people listen to music or look at paintings. To get in touch with that wholeness.
+ - Creative ability is often mistakenly attributed to inborn talent. It is about all the ability to connect one thing with another.
+ - Flowers grow out of dark moments.
+ - Art does not come from thinking but from responding.
+ - To create is to relate. We trust in the artist in everybody to make his own connections, his own juxtapositions.
+ - Maybe we are less than our dreams, but that less would make us more than some gods would dream of.
+ - Not all of us are painters but we are all artists. Each time we fit things together we are creating – whether it is to make a loaf of bread, a child, a day.
+ - A painting is a symbol for the universe. Inside it, each piece relates to the other. Each piece is only answerable to the rest of that little world. So, probably in the total universe, there is that kind of total harmony, but we get only little tastes of it.
+ - When you get past making labels for things, it is possible to combine and transform elements into new things. Look at things until their import, identity, name, use, and description have dissolved.
+ - If you work it will lead to something. It’s the people who do all of the work all the time who eventually catch on to things.
+ - Life stands still when mankind is afraid to take a chance.
+
+29 quotes

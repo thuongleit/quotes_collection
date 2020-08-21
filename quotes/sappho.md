@@ -1,0 +1,41 @@
+ - What cannot be said will be wept.
+ - Someone, I tell you, in another time will remember us.
+ - You may forget but let me tell you this: someone in some future time will think of us.
+ - Without warning as a whirlwind swoops on an oak Love shakes my heart.
+ - May I write words more naked than flesh, stronger than bone, more resilient than sinew, sensitive than nerve.
+ - Once again love drives me on, that loosener of limbs, bittersweet creature against which nothing can be done.
+ - I would not think to touch the sky with two arms.
+ - Although only breath, words which I command are immortal.
+ - There is no place for grief in a house which serves the Muse.
+ - Raise high the roof beam, carpenters. Like Ares comes the bridegroom, taller far than a tall man.
+ - No honey for me, if it comes with a bee.
+ - Now the Earth with many flowers puts on her spring embroidery.
+ - Eros harrows my heart: wild gales sweeping desolate mountains, uprooting oaks.
+ - Love is a cunning weaver of fantasies and fables.
+ - With his venom irresistible and bittersweet that loosener of limbs, Love reptile-like strikes me down.
+ - I will let my body flow like water over the gentle cushions.
+ - The evening star Is the most beautiful of all stars.
+ - When I look on you a moment, then I can speak no more, but my tongue falls silent, and at once a delicate flame courses beneath my skin, and with my eyes I see nothing, and my ears hum, and a wet sweat bathes me and a trembling seizes me all over.
+ - Mere air, these words, but delicious to hear.
+ - Love shook my heart Like the wind on the mountain rushing over the oak trees.
+ - Experience shows us Wealth unchaperoned by Virtue is never an innocuous neighbor.
+ - I know not what to do, my mind is divided.
+ - From all the offspring of the earth and heaven love is the most precious.
+ - Love – bittersweet, irrepressible – loosens my limbs and I tremble.
+ - Love, like a mountain-wind upon an oak, falling upon me, shakes me leaf and bough.
+ - The moon has set, and the Pleiades; it is midnight, and time passes, and I sleep alone.
+ - Beauty endures only for as long as it can be seen; goodness, beautiful today, will remain so tomorrow.
+ - All the while, believe me, I prayed our night would last twice as long.
+ - Stand and face me, my love, and scatter the grace in your eyes.
+ - Hesperus bringing together All that the morning star scattered.
+ - I took my lyre and said: come now, my heavenly tortoise shell: become a speaking instrument.
+ - How love the limb-loosener sweeps me away.
+ - Death must be an evil and the gods agree; for why else would they live for ever?
+ - Whatever one loves most is beautiful.
+ - Death is an evil; the gods have so judged; had it been good, they would die.
+ - He who is fair to look upon is good, and he who is good will soon be fair also.
+ - The moon has set In a bank of jet That fringes the Western sky, The pleiads seven Have sunk from heaven And the midnight hurries by; My hopes are flown And, alas! alone On my weary couch I lie.
+ - Builders, raise the ceiling high, Raise the dome into the sky, Hear the wedding song! For the happy groom is near, Tall as Mars, and statelier, Hear the wedding song!
+ - When anger spreads through the breath, guard thy tongue from barking idly.
+
+39 quotes

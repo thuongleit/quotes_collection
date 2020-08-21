@@ -1,0 +1,54 @@
+ - Now I can look at you in peace; I don’t eat you any more. ~~Franz Kafka
+ - People often say that humans have always eaten animals, as if this is a justification for continuing the practice. According to this logic, we should not try to prevent people from murdering other people, since this has also been done since the earliest of times. ~~Isaac Bashevis Singer
+ - Veganism is not about giving anything up or losing anything; it is about gaining the peace within yourself that comes from embracing nonviolence and refusing to participate in the exploitation of the vulnerable. ~~Gary L. Francione
+ - We all love animals. Why do we call some ‘pets’ and others ‘dinner?’ ~~K. D. Lang
+ - People eat meat and think they will become as strong as an ox, forgetting that the ox eats grass. ~~Pino Caruso
+ - I became vegan because I saw footage of what really goes on in the slaughterhouses and on the dairy farms. ~~Ellen DeGeneres
+ - The thinking person must oppose all cruel customs, no matter how deeply rooted in tradition and surrounded by a halo. When we have a choice, we must avoid bringing torment and injury into the life of another. ~~Albert Schweitzer
+ - Life is life – whether in a cat, or dog or man. There is no difference there between a cat or a man. The idea of difference is a human conception for man’s own advantage. ~~Sri Aurobindo
+ - I’m a vegan. I respect the environment, and I do my best to spread the importance of such an issue. ~~Jared Leto
+ - The love for all living creatures is the most noble attribute of man. ~~Charles Darwin
+ - A man can live and be healthy without killing animals for food; therefore, if he eats meat, he participates in taking animal life merely for the sake of his appetite. ~~Leo Tolstoy
+ - Being vegan helped me realize I can say and do what I believe is right. That’s powerful. ~~Alicia Silverstone
+ - Do you know why most survivors of the Holocaust are vegan? It’s because they know what it’s like to be treated like an animal. ~~Chuck Palahniuk
+ - There slowly grew up in me an unshakable conviction that we have no right to inflict suffering and death on another living creature, unless there is some unavoidable necessity for it. ~~Albert Schweitzer
+ - As long as man continues to be the ruthless destroyer of lower living beings he will never know health or peace. For as long as men massacre animals, they will kill each other. ~~Pythagoras
+ - When a man wants to murder a tiger he calls it sport; when a tiger wants to murder him he calls it ferocity. ~~George Bernard Shaw
+ - We manage to swallow flesh, only because we do not think of the cruel and sinful thing we do. ~~Rabindranath Tagore
+ - Nothing’s changed my life more. I feel better about myself as a person, being conscious and responsible for my actions and I lost weight and my skin cleared up and I got bright eyes and I just became stronger and healthier and happier. Can’t think of anything better in the world to be but be vegan. ~~Alicia Silverstone
+ - The assumption that animals are without rights, and the illusion that our treatment of them has no moral significance, is a positively outrageous example of Western crudity and barbarity. Universal compassion is the only guarantee of morality. ~~Arthur Schopenhauer
+ - We have enslaved the rest of the animal creation, and have treated our distant cousins in fur and feathers so badly that beyond doubt, if they were able to formulate a religion, they would depict the Devil in human form. ~~William Ralph Inge
+ - If slaughterhouses had glass walls, everyone would be a vegetarian. ~~Paul McCartney
+ - People saying that vegans are weak clearly have no idea of how much strength it takes to stand up for what you believe in. ~~Anonymous
+ - Meanwhile, some people are dying of sad laughter at the absurdity of man, who kills so easily and so violently, and once a year sends out cards praying for "Peace on Earth." ~~David C. Coates
+ - Humanity’s true moral test, its fundamental test consists of its attitude towards those who are at its mercy: animals. ~~Milan Kundera
+ - To a man whose mind is free there is something even more intolerable in the sufferings of animals than in the sufferings of man. For with the latter it is at least admitted that suffering is evil and that the man who causes it is a criminal. But thousands of animals are uselessly butchered every day without a shadow of remorse. If any man were to refer to it, he would be thought ridiculous. And that is the unpardonable crime. ~~Romain Rolland
+ - We consume the carcasses of creatures with like appetites, passions, and organs as our own. We feed on babes, though not our own, and fill the slaughter-houses daily with screams of pain and fear. ~~Robert Louis Stevenson
+ - The meat industry spends hundreds of millions of dollars lying to the public about their product. But no amount of false propaganda can sanitize meat. The facts are absolutely clear: Eating meat is bad for human health, catastrophic for the environment, and a living nightmare for animals. ~~Chrissie Hynde
+ - I have from an early age abjured the use of meat, and the time will come when men such as I will look upon the murder of animals as they now look upon the murder of men. ~~Leonardo da Vinci
+ - If a kid ever realized what was involved in factory farming, they would never touch meat again. ~~James Cromwell
+ - You have just dined, and however scrupulously the slaughterhouse is concealed in the graceful distance of miles, there is complicity. ~~Ralph Waldo Emerson
+ - I do not regard flesh-food as necessary for us at any stage and under any clime in which it is possible for human beings ordinarily to live, I hold flesh-food to be unsuited to our species. ~~Mahatma Gandhi
+ - Wild animals never kill for sport. Man is the only one to whom the torture and death of his fellow creatures is amusing in itself. ~~James Anthony Froude
+ - I have no doubt that it is part of the destiny of the human race in it’s gradual improvement, to leave off eating animals. ~~Henry David Thoreau
+ - People are fed by the food industry, which pays no attention to health, and are treated by the health industry, which pays no attention to food. ~~Wendell Berry
+ - I did not become a vegetarian for my health, I did it for the health of the chickens. ~~Isaac Bashevis Singer
+ - If you step back and look at the data, the optimum amount of red meat you eat should be zero. ~~Walter Willett
+ - Eating meat is the most disgusting thing I can think of. It’s like biting into your grandmother. ~~Steven Morrissey
+ - My refusing to eat meat occasioned inconveniency, and I have been frequently chided for my singularity. But my light repast allows for greater progress, for greater clearness of head and quicker comprehension. ~~Benjamin Franklin
+ - It were much better that a sentient being should never have existed, than that it should have existed only to endure unmitigated misery. ~~Percy Bysshe Shelley
+ - In all the round world there is no meat. There used to be. But now we cannot stand the thought of slaughterhouses. ~~H. G. Wells
+ - I can’t think of anything better in the world to be but a vegan. ~~Alicia Silverstone
+ - Man is the only animal that can remain on friendly terms with the victims he intends to eat until he eats them. ~~Samuel Butler
+ - Murdering someone would surely prove that you are capable of killing, but it wouldn’t be the most reasonable way to understand why you shouldn’t do it. ~~Jonathan Safran Foer
+ - It is found easier, by the short-sighted victims of disease, to palliate their torments by medicine, than to prevent them by regimen. ~~Percy Bysshe Shelley
+ - Nothing more strongly arouses our disgust than cannibalism, yet we make the same impression on Buddhists and vegetarians, for we feed on babies, though not our own. ~~Robert Louis Stevenson
+ - In all the round world of Utopia there is no meat. There used to be, but now we cannot stand the thought of slaughterhouses. And it is impossible to find anyone who will hew a dead ox or pig. I can still remember as a boy the rejoicings over the closing of the last slaughterhouse. ~~H. G. Wells
+ - My perspective of veganism was most affected by learning that the veal calf is a by-product of dairying, and that in essence there is a slice of veal in every glass of what I had thought was an innocuous white liquid – milk. ~~Rynn Berry
+ - I venture to maintain that there are multitudes to whom the necessity of discharging the duties of a butcher would be so inexpressibly painful and revolting, that if they could obtain a flesh diet on no other condition, they would relinquish it forever. ~~William Edward Hartpole Lecky
+ - Some people are still going to want to eat meat. We do agree though that vegetarianism is a healthier diet. ~~Dave Stroud
+ - I’ve been vegan for about 10 and a half years. It’s been all good. I’m obviously much healthier. ~~Woody Harrelson
+ - It is only by softening and disguising dead flesh by culinary preparation that it is rendered susceptible of mastication or digestion, and that the sight of its bloody juices and raw horror does not excite intolerable loathing and disgust. ~~Percy Bysshe Shelley
+ - I believe we will look back and be shocked at what was the accepted way we killed animals en masse for food. ~~Richard Branson
+
+52 quotes

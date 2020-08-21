@@ -1,0 +1,115 @@
+ - Moderation is the key to lasting enjoyment.
+ - No one has a greater asset for his business than a man’s pride in his work.
+ - Gratitude is the fairest blossom which springs from the soul; and the heart of man knoweth none more fragrant.
+ - The law of heaven is love.
+ - Real happiness is cheap enough, yet how dearly we pay for its counterfeit.
+ - There is no better rule to try a doctrine by than the question, Is it merciful, or is it unmerciful? If its character is that of mercy, it has the image of Jesus, who is the way, the truth, and the life.
+ - Pretension almost always overdoes the original, and hence exposes itself.
+ - Idleness is emptiness; the tree in which the sap is stagnant, remains fruitless.
+ - Between the humble and contrite heart and the majesty of Heaven there are no barriers; the only password is prayer.
+ - Servility is disgusting to a truly noble character, and engenders only contempt.
+ - The act of divine worship is the inestimable privilege of man, the only created being who bows in humility and adoration.
+ - The cloudy weather melts at length into beauty, and the brightest smiles of the heart are born of its tears.
+ - Hatred is self-punishment. Hatred it the coward’s revenge for being intimidated.
+ - Exaggeration is a blood relation to falsehood and nearly as blamable.
+ - Remember, when incited to slander, that it is only he among you who is without sin that may cast the first stone.
+ - How quickly a truly benevolent act is repaid by the consciousness of having done it!
+ - There is no immunity from the consequences of sin; punishment is swift and sure to one and all.
+ - A good smile is the sunshine of wisdom.
+ - Disease is the retribution of outraged Nature.
+ - Too many people embrace religion from the same motives that they take a companion in wedlock, not from true love of the person, but because of a large dowry.
+ - As the sun’s rays will irradiate even the murky pool, and make its stagnant waters to shine like silver, so doth God’s goodness and tender mercy, towards the greatest sinner, and the blackest heart, make his own image visible there!
+ - Those who commit injustice bear the greatest burden.
+ - Honest and courageous people have very little to say about either their courage or their honesty.
+ - There is no possible excuse for a guarded lie. Enthusiastic and impulsive people will sometimes falsify thoughtlessly, but equivocation is malice prepense.
+ - As “unkindness has no remedy at law,” let its avoidance be with you a point of honor.
+ - Hypocrisy is oftenest clothed in the garb of religion.
+ - Man, being not only a religious, but also a social being, requires for the promotion of his rational happiness religious institutions, which, while they give a proper direction to devotion, at the same time make a wise and profitable improvement of his social feelings.
+ - Envy may justly be called “the gall of bitterness and bond of iniquity;” it is the most acid fruit that grows on the stock of sin, a fluid so subtle that nothing but the fire of divine love can purge it from the soul.
+ - No reproof or denunciation is so potent as the silent influence of a good example.
+ - No outward change need trouble him who is inwardly serene.
+ - You cannot judge by outward appearances; the soul is only transparent to its Maker.
+ - If gratitude is due from children to their earthly parent, how much more is the gratitude of the great family of men due to our father in heaven.
+ - Reproof, especially as it relates to children, administered in all gentleness, will render the culprit not afraid, but ashamed to repeat the offence.
+ - A true religious instinct never deprived man of one single joy; mournful faces and a sombre aspect are the conventional affectations of the weak-minded.
+ - Falsehood is cowardice, the truth courage...
+ - With regard to manner, be careful to speak in a soft, tender, kind and loving way. Even when you have occasion to rebuke, be careful to do it with manifest kindness. The effect will be incalculably better.
+ - Be circumspect in your dealings, and let the seed you plant be the offspring of prudence and care; thus fruit follows the fair blossom, as honor follows a good life.
+ - Hatred is self-punishment.
+ - True sympathy is putting ourselves in another’s place; and we are moved in proportion to the reality of our imagination.
+ - The severest punishment suffered by a sensitive mind, for injury inflicted upon another, is the consciousness of having done it.
+ - It is the nature of intellect to strive to improve in intellectual power.
+ - Some clergymen make a motto, instead of a theme, of their texts.
+ - Has not God borne with you these many years? Be ye tolerant to others.
+ - Duty itself is supreme delight when love is the inducement and labor. By such a principle the ignorant are enlightened, the hard-hearted softened, the disobedient reformed, and the faithful encouraged.
+ - Few things in this world more trouble people than poverty, or the fear of poverty; and, indeed, it is a sore affliction; but, like all other ills that flesh is heir to, it has its antidote, its reliable remedy. The judicious application of industry, prudence and temperance is a certain cure.
+ - That kind of discipline whose pungent severity is in the manifestations of paternal love, compassion, and tenderness is the most sure of its object.
+ - Purity in person and in morals is true godliness.
+ - We must not only read the Scriptures, but we must make their rules of life our own.
+ - How can there be pride in a contrite heart? Humility is the earliest fruit of religion.
+ - Error is always more busy than truth.
+ - The goodness of God to mankind is no less evinced in the chastisement with which He corrects His children than in the smiles of His providence; for the Lord will not cast off forever, but though He cause grief, yet will He have compassion according to the multitude of His mercies.
+ - Lay silently the injuries you receive upon the altar of oblivion.
+ - A careless and blasphemous use of the name of the Divine Being is not only sinful, but it is also prima facie evidence of vulgar associations.
+ - Obedience, as it regards the social relations, the rules of society, and the laws of nature and nature’s God, should commence at the cradle and end only at the tomb.
+ - That alone can be called true refinement which elevates the soul of man, purifying the manners by improving the intellect.
+ - Folly is like the growth of weeds, always luxurious and spontaneous; wisdom, like flowers, requires cultivation.
+ - Attempt to teach the young but little at a time; this will be easier to impart, easier to receive, and surer to be retained.
+ - Faith, in order to be genuine and of any real value, must be the offspring of that divine love which Jesus manifested when He prayed for His enemies on the cross.
+ - Of all the ingenious mistakes into which erring man has fallen, perhaps none have been so pernicious in their consequences, or have brought so many evils into the world, as the popular opinion that the way of the transgressor is pleasant and easy.
+ - A single bad habit will mar an otherwise faultless character, as an ink-drop soileth the pure white page.
+ - Doubt that creed which you cannot reduce to practice.
+ - It is but a step from companionship to slavery when one associates with vice.
+ - Mystery and innocence are not akin.
+ - It is a glorious occupation, vivifying and self-sustaining in its nature, to struggle with ignorance, and discover to the inquiring minds of the masses the clear cerulean blue of heavenly truth.
+ - None but the guilty know the withering pains of repentance.
+ - Our blessings are the least heeded, because the most common events of life.
+ - There is one court whose findings are incontrovertible, and whose sessions are held in the chambers of our own breast.
+ - Most people who commit a sin count on some personal benefit to be derived therefrom, but profanity has not even this excuse.
+ - Unless we find repose within ourselves, it is vain to seek it elsewhere.
+ - Prosperity seems to be scarcely safe, unless it be mixed with a little adversity.
+ - I have somewhere read that conscience not only sits as witness and judge within our bosoms, but also forms the prison of punishment.
+ - Lenity has almost always wisdom and justice on its side.
+ - Experience is retrospect knowledge.
+ - If our Creator has so bountifully provided for our existence here, which is but momentary, and for our temporal wants, which will soon be forgotten, how much more must He have done for our enjoyment in the everlasting world?
+ - The experience of others adds to our knowledge, but not to our wisdom; that is dearer bought.
+ - It is my humble prayer that I may be of some use in my day and generation.
+ - The eye is the inlet to the soul, and it is well to beware of him whose visual organs avoid your honest regard.
+ - A wise Providence consoles our present afflictions by joys borrowed from the future.
+ - There is no doubt that religious fanatics have done more to prejudice the cause they affect to advocate than have its opponents.
+ - Rage is mental imbecility.
+ - There is nothing that needs to be said in an unkind manner.
+ - Self-respect is the best of all.
+ - O sin, how you paint your face! how you flatter us poor mortals on to death! You never appear to the sinner in your true character; you make fair promises, but you never fulfil one; your tongue is smoother than oil, but the poison of asps is under your lip!
+ - It is easy to be beautiful; it is difficult to appear so.
+ - True repentance also involves reform.
+ - True charity is spontaneous and finds its own occasion; it is never the offspring of importunity, nor of emulation.
+ - Obedience sums up our entire duty.
+ - Obedience and resignation are our personal offerings upon the altar of duty.
+ - It is the goodly outside that sin puts on which tempteth to destruction. It has been said that sin is like the bee, with honey in its mouth, but a sting in its tail.
+ - A mother’s love, in a degree, sanctifies the most worthless offspring.
+ - All our possessions are as nothing compared to health, strength, and a clear conscience.
+ - Embark on no enterprise which you cannot submit to the test of prayer.
+ - Not the least misfortune in a prominent falsehood is the fact that tradition is apt to repeat it for truth.
+ - Prosperity is very liable to bring pride among the other goods with which it endows an individual; it is then that prosperity costs too dear.
+ - Be more careful of your conscience than of your estate. The latter can be bought and sold; the former never.
+ - Humanity, in the aggregate, is progressing, and philanthropy looks forward hopefully.
+ - A chaste and lucid style is indicative of the same personal traits in the author.
+ - How white are the fair robes of Charity as she walketh amid the lowly habitations of the poor!
+ - The heavens and the earth, the woods and the wayside, teem with instruction and knowledge to the curious and thoughtful.
+ - Liberality should be tempered with judgment, not with profuseness.
+ - The eye is inlet to the soul.
+ - Ministers who threaten death and destruction employ weapons of weakness. Argument and kindness are alone effectual, flavored by the principles of Divine love.
+ - It is vain to trust in wrong; it is like erecting a building upon a frail foundation, and which will directly be sure to topple over.
+ - It is better to be the builder of our own name than to be indebted by descent for the proudest gifts known to the books of heraldry.
+ - Prosperity often presages adversity.
+ - It is what we give up, not what we lay up, that adds to our lasting store.
+ - Death comes to us, under many conditions, with all the welcome serenity of sleep.
+ - It is very questionable, in my mind, how far we have the right to judge one of another, since there is born within every man the germs of both virtue and vice. The development of one or the other is contingent upon circumstances.
+ - It is in sickness that we most feel the need of that sympathy which shows how much we are dependent upon one another for our comfort, and even necessities. Thus disease, opening our eyes to the realities of life, is an indirect blessing.
+ - Theory, from whatever source, is not perfect until it is reduced to practice.
+ - There is one sure criterion of judgment as to religious faith in doctrinal matters; can you reduce it to practice? If not, have none of it.
+ - To talk of luck and chance only shows how little we really know of the laws which govern cause and effect.
+ - There is no such thing as “best” in the world of individuals.
+
+113 quotes

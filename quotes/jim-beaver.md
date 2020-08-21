@@ -1,0 +1,23 @@
+ - Today we fight. Tomorrow we fight. The day after, we fight. And if this disease plans on whipping us, it better bring a lunch, ’cause it’s gonna have a long day doing it.
+ - Obviously I struck gold with Deadwood. No pun intended.
+ - My wife Cecily Adams was dying of cancer, my daughter Madeline was struggling to overcome an autism diagnosis, and my father was dying, all at the same time. Writing the journal was a cathartic experience, and an extremely positive one.
+ - While I was drying off Maddie after her bath tonight, she said, ‘I love you’ to me for the first time. It sounded like ‘All lub boo,’ but I didn’t care. To reciprocate, I showed her what an ex-Marine looks like when he cries.
+ - I’ve got no ego; I just like to have thousands of people write to me and tell me how wonderful I am.
+ - I thought being in the wheelchair might be kind of limiting for me as an actor. It turned out cool in a lot of ways. Of course, at the end of the day, I can get up out of the chair and go home, but I’m very acutely aware that most people can’t, so I try to give the situation that depth.
+ - Forgiveness is not something that you do for someone else; it’s something you do for yourself, To forgive is not to condone, it is to refuse to continue feeling bad about an injury.
+ - Because of the wonderfully positive response to ‘Life’s That Way,’ I am considering writing some more autobiographical stuff – maybe another book. I don’t know. It doesn’t help that I’m lazy.
+ - How incredibly far our lives drift from where we knew with all certainty they would go. How little today resembles what yesterday thought it would look like.
+ - Deadwood was a magical experience. It was an absolute culmination of everything Ive ever wanted to do as an actor as an artist, and I was enormously proud to have been involved with it.
+ - I miss the cast and crew of Supernatural immensely. I know it’s a cliche to say your cast and crew are like your family, but it’s really the case there.
+ - I was very unhappy about being killed off on ‘Supernatural’ in season 7.
+ - Drama is about conflict, and it’s about putting obstacles in the path of people you who care about.
+ - When I was a kid, the high point of the day was to go to the mailbox and see if any mail came for me, and I’m still stuck in that mode.
+ - I’ve attempted to flood the path with light where I could, and where I could not I’ve wanted at least to hold up a candle so that others coming this way might not stumble too painfully.
+ - After appearing for eight seasons as a beloved character on ‘Supernatural,’ it’s not surprising that I get most of my recognition on the street from that, and it happens with some frequency. But I’m not a guy who gets recognized often.
+ - When you’re not the lead on a series, you work intermittently, even if you’re in every episode.
+ - I welcome every chance I get to interact with fans. I’ve made some very close friendships amongst fans, and I look forward to seeing them.
+ - I’ve got a lot of shows under my belt that are ancient history solely because they were on the air before this video revolution came along and ensured that canceled shows could continue to have a bit of a presence.
+ - I’ve done a bunch of jobs since ‘Deadwood’ went off the air, but it’s always been a very high bar that those other shows have to live up to.
+ - More and more, I’ve started to understand that no show is dead unless somebody decrees it’s dead at a studio.
+
+21 quotes

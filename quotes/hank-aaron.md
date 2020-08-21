@@ -1,0 +1,51 @@
+ - My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging.
+ - Consistency is what counts; you have to be able to do things over and over again.
+ - Failure is a part of success. There is no such thing as a bed of roses all your life. But failure will never stand in the way of success if you learn from it.
+ - You got to play a hundred and fifty games a year, so pick your spots. You can miss two games a month; so pick the days you’re gonna be hurt, or you’re gonna rest or you’re gonna have a drink or two. The rest of the time, be on that field.
+ - You know what the hardest thing is? What nobody wants to understand – is me. People want their memories of me to be my memories of me. But you know what? They’re not.
+ - I never doubted my ability, but when you hear all your life you’re inferior, it makes you wonder if the other guys have something you’ve never seen before. If they do, I’m still looking for it.
+ - Failure will never stand int he way of success if you learn from it.
+ - I had just turned 20, and Jackie told me the only way to be successful at anything was to go out and do it. He said baseball was a game you played every day, not once a week.
+ - I had many, many, many death threats. I couldn’t open letters for a long time, because they all had to be opened by either the FBI or somebody.
+ - What you do with your life and how you do it is not only a reflection on you, but on your family and all of those institutions that have helped to make you who you are.
+ - I don’t want people to forget Babe Ruth. I just want them to remember Henry Aaron.
+ - I need to depend on Someone who is bigger, stronger and wiser than I am. I don’t do it on my own. God is my strength. He gave me a good body and some talent and the freedom to develop it. He helps me when things go wrong. He forgives me when I fall on my face. He lights the way.
+ - There is no such thing as a bed of roses all your life.
+ - Failure is a part of success.
+ - You can only milk a cow so long, then you’re left holding the pail.
+ - I think what separates a superstar from the average ballplayer is that he concentrates just a little bit longer.
+ - Last year, I was sort of a kid and I was a little scared, I ain’t scared any more.
+ - I never smile when I have a bat in my hands. That’s when you’ve got to be serious. When I get out on the field, nothing’s a joke to me. I don’t feel like I should walk around with a smile on my face.
+ - Didn’t come up here to read. Came up here to hit.
+ - It took me seventeen years to get three thousand hits in baseball. I did it in one afternoon on the golf course.
+ - I think about how a guy mentally prepared himself to do battle, to go out and face the pitcher. I think so many hitters do not know how to get themselves prepared to play or hit against a pitcher. You have to mentally be prepared to hit against all pitchers.
+ - In playing ball, and in life, a person occasionally gets the opportunity to do something great. When that time comes, only two things matter: being prepared to seize the moment and having the courage to take your best swing.
+ - Can I smoke now without someone taking my picture?
+ - Looking at the ball going over the fence isn’t going to help.
+ - I never thought home runs were all that exciting. I still think the triple is the most exciting thing in baseball. To me, a triple is like a guy taking the ball on his 1-yard line and running 99 yards for a touchdown.
+ - The triple is the most exciting play in baseball. Home runs win a lot of games, but I never understood why fans are so obsessed with them.
+ - I don’t see pitches down the middle anymore – not even in batting practice.
+ - I’ve tried a lot of things in the off-season, but the only thing I really know is baseball.
+ - There’s only one way to break the color line. Be good. I mean, play good. Play so good that they can’t remember what color you were before the season started.
+ - The first thing baseball wants to do is make you a superstar and then say that you owe baseball something. I don’t owe baseball anything. Baseball owes me.
+ - I am very proud to be an American. This country has so much potential, I’d just like to see things better, or whatever, and I think it will be.
+ - I never doubted my ability, but...
+ - There is no logical reason why girls shouldn’t play baseball. It’s not all that tough.
+ - The thing I like about baseball is that it’s one-on-one. You stand up there alone, and if you make a mistake, it’s your mistake. If you hit a home run, it’s your home run.
+ - Baseball needs me because it needs somebody to stir the pot, and I need it because it’s my life. It’s the means I have to make a little difference in the world.
+ - I came to the Braves on business, and I intended to see that business was good as long as I could.
+ - Making the majors is not as hard as staying there, staying interested day after day. It’s like being married. The hardest part is to stay married.
+ - If I knew exactly what I know now and had it to do over, I’d be a switch hitter. No telling what I could have done.
+ - I would like people not to think in terms of the 755 home runs I hit but think in terms of what I’ve accomplished off the field and some of the things I stood for.
+ - Guessing what the pitcher is going to throw is 80% of being a successful hitter. The other 20% is just execution.
+ - I can’t recall a day this year or last when I did not hear the name of Babe Ruth.
+ - I looked for the same pitch my whole career, a breaking ball. All of the time. I never worried about the fastball. They couldn’t throw it past me, none of them.
+ - I never thought we’d ever have a black president. President Obama has done such a tremendous job He just has been unable to get what he needs to be moved at the level it should be moved.
+ - Roger Maris lost his hair the season he hit sixty-one, I still have all my hair, but when it’s over, I’m going home to Mobile and fish for a long time.
+ - Whatever we do, make sure we clean up baseball.
+ - The pitcher has got only a ball. I’ve got a bat. So the percentage in weapons is in my favor and I let the fellow with the ball do the fretting.
+ - I don’t feel right unless I have a sport to play or at least a way to work up a sweat.
+ - I never smile when I have a bat in my hands. That’s when you’ve got to be serious.
+ - I’m sure glad this isn’t my home ball park.
+
+49 quotes

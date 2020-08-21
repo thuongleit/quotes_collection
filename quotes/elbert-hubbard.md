@@ -1,0 +1,405 @@
+ - Self-discipline is the ability to make yourself do what you should do, when you should do it, whether you feel like it or not.
+ - The best preparation for good work tomorrow is to do good work today.
+ - Positive anything is better than negative nothing.
+ - A friend is someone who knows all about you and still loves you.
+ - Do not take life too seriously. You will never get out of it alive.
+ - A little more persistence, a little more effort, and what seemed hopeless failure may turn to glorious success.
+ - If you have health, you probably will be happy, and if you have health and happiness, you have all the wealth you need, even if it is not all you want.
+ - Do your work with your whole heart, and you will succeed – there’s so little competition.
+ - One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man.
+ - We work to become, not to acquire.
+ - Nothing is permanent but change.
+ - The greatest mistake you can make in life is continually fearing that you’ll make one.
+ - To avoid criticism, do nothing, say nothing, and be nothing.
+ - He who does not understand your silence will probably not understand your words.
+ - Many people fail in life, not for lack of ability or brains or even courage but simply because they have never organized their energies around a goal.
+ - Growth is often a painful process.
+ - Happiness is a habit – cultivate it.
+ - No man needs a vacation so much as the man who has just had one.
+ - Be pleasant until ten o’clock in the morning and the rest of the day will take care of itself.
+ - Responsibility is the price of freedom.
+ - The cure for grief is motion.
+ - Every man is a damn fool for at least five minutes every day; wisdom consists in not exceeding the limit.
+ - How many a man has thrown up his hands at a time when a little more effort, a little more patience would have achieved success.
+ - The cheerful loser is the winner.
+ - We are punished by our sins, not for them.
+ - Know what you want to do, hold the thought firmly, and do every day what should be done, and every sunset will see you that much nearer to your goal.
+ - The secret of success is this: there is no secret of success.
+ - The greatest mistake a person can make is to be afraid of making one.
+ - God is good, there is no devil but fear.
+ - Constant effort and frequent mistakes are the stepping stones to genius.
+ - A goal without a plan is a dream.
+ - Never explain – your friends do not need it and your enemies will not believe you anyway.
+ - Man creates both his god and his devil in his own image. His god is himself at his best, and his devil himself at his worst.
+ - Genius is only the power of making continuous efforts.
+ - The object of teaching a child is to enable him to get along without his teacher.
+ - All good men are anarchists. All cultured, kindly men; all gentlemen; all just men are anarchists. Jesus was an anarchist.
+ - Dreams can come true, but there is a secret. They’re realized through the magic of persistence, determination, commitment, passion, practice, focus and hard work. They happen a step at a time, manifested over years, not weeks.
+ - In order to have friends, you must first be one.
+ - Love grows by giving. The love we give away is the only love we keep. The only way to retain love is to give it away.
+ - Life is a checkerboard, and the player opposite you is time. If you hesitate before moving, or neglect to move promptly, your men will be wiped off the board by time. You are playing against a partner who will not tolerate indecision!
+ - The final proof of greatness lies in being able to endure criticism without resentment.
+ - No man ever did or can do a great work alone.
+ - Do not dump your woes upon people – keep the sad story of your life to yourself. Troubles grow by recounting them.
+ - Fear clogs; Faith liberates.
+ - If you can’t answer a man’s arguments, all is not lost; you can still call him vile names.
+ - Get happiness out of your work or you may never know what happiness is.
+ - Life is just one damned thing after another.
+ - No one ever gets far unless he accomplishes the impossible at least once a day.
+ - Self-control is the ability to restrain a laugh at the wrong place.
+ - Life is a compromise between fate and free will.
+ - Man is not what he thinks he is, but what he thinks, he is.
+ - Genius may have its limitations, but stupidity is not thus handicapped.
+ - It is a fine thing to have ability, but the ability to discover ability in others is the true test.
+ - The happiness of this life depends less on what befalls you than the way in which you take it.
+ - The line between failure and success is so fine that we scarcely know when we pass it: so fine that we are often on the line and do not know it.
+ - The recipe for perpetual ignorance is: Be satisfied with your opinions and content with your knowledge.
+ - Thoroughness characterizes all successful men. Genius is the art of taking infinite pains. All great achievement has been characterized by extreme care, infinite painstaking, even to the minutest detail.
+ - Every quarrel begins in nothing and ends in a struggle for supremacy.
+ - Art is not a thing; it is a way.
+ - Cultivate only the habits that you are willing should master you.
+ - A school should not be a preparation for life. A school should be life.
+ - Fences are made for those who cannot fly.
+ - Don’t make excuses, make good.
+ - Everything comes too late for those who only wait.
+ - Freedom cannot be bestowed – it must be achieved.
+ - We awaken in others the same attitude of mind we hold toward them.
+ - There is no failure except the failure of trying.
+ - The highest reward that God gives us for good work is the ability to do better work.
+ - Victory; a matter of staying power.
+ - Progress comes from the intelligent use of experience.
+ - If men could only know each other, they would neither idolize nor hate.
+ - The supernatural is the natural not yet understood.
+ - Orthodoxy is a corpse that doesn’t know it’s dead.
+ - Strong men can always afford to be gentle. Only the weak are intent on giving as good as they get.
+ - The love we give away is the only love we keep.
+ - History: gossip well told.
+ - The best way to prepare for life is to begin to live.
+ - It is the weak man who urges compromise – never the strong man.
+ - If your religion does not change you, then you should change your religion.
+ - If I supply you with a thought, you may remember it and you may not. But if I can make you think a thought for yourself, I have indeed added to your stature.
+ - The art of winning in business is in working hard – not taking things too seriously.
+ - What boy well raised can compare with your street gamin who has the knowledge and the shrewdness of a grown-up broker.
+ - If you want work well done, select a busy man – the other kind has no time.
+ - Luck is tenacity of purpose.
+ - Love, we say, is life; but love without hope and faith is agonizing death.
+ - A failure is a man who has blundered, but is not able to cash in the experience.
+ - Make two grins grow where there was only a grouch before.
+ - One great, strong, unselfish soul in every community could actually redeem the world.
+ - The mintage of wisdom is to know that rest is rust, and that real life is love, laughter, and work.
+ - The reward of a good deed is in having done it.
+ - Men are rich only as they give. He who gives great service gets great rewards.
+ - Life without absorbing occupation is hell; joy consists in forgetting life.
+ - Art is the beautiful way of doing things. Science is the effective way of doing things. Business is the economic way of doing things.
+ - Character is the result of two things: mental attitude and the way we spend our time.
+ - Why not be a top-notcher? A top-notcher is simply an individual who works for the institution of which he is a part, not against it.
+ - Insomnia never comes to a man who has to get up exactly at six o’clock. Insomnia troubles only those who can sleep any time.
+ - Men are only as great as they are kind.
+ - The weaknesses of the many make the leader possible.
+ - God will not look you over for medals degrees or diplomas, but for scars.
+ - The teacher is the one who gets the most out of the lessons, and the true teacher is the learner.
+ - Life is a movement outward, an unfolding.
+ - Genius is the capacity of avoiding hard work.
+ - If you work for a man, in Heavens name work for him! If he pays you wages that supply your bread and butter, work for him, stand by him, and stand by the institution he represents.
+ - Some men succeed by what they know; some by what they do; and a few by what they are.
+ - Man’s greatest blunder has been in trying to make peace with the skies instead of making peace with his neighbors.
+ - The man who craves disciples and wants followers is always more or less of a charlatan. The man of genuine worth and insight wants to be himself; and he wants others to be themselves, also.
+ - It may happen sometimes that a long debate becomes the cause of a longer friendship. Commonly, those who dispute with one another at last agree.
+ - Life is a paradox. Every truth has its counterpart which contradicts it; and every philosopher supplies the logic his own undoing.
+ - It does not take much strength to do things, but it requires great strength to decide on what to do.
+ - Religions are many and diverse, but reason and goodness are one.
+ - There is something that is much more scarce, something finer far, something rarer than ability. It is the ability to recognize ability.
+ - What others say of me matters little; what I myself say and do matters much.
+ - It is easy to get everything you want, provided you first learn to do without the things you cannot get.
+ - The product of the head, heart and hand is a thing to be loved.
+ - You had better be a round peg in a square hole than a square peg in a square hole. The latter is in for life, while the first is only an indeterminate sentence.
+ - Prison is a Socialist paradise where equality prevails, everything is supplied, and competition is eliminated.
+ - Rivalry is the life of trade, and the death of the trader.
+ - A creed is an ossified metaphor.
+ - Enthusiasm is the great hill-climber.
+ - Our desires always disappoint us; for though we meet with something that gives us satisfaction, yet it never thoroughly answers our expectation.
+ - Wise Man: One who sees the storm coming before the clouds appear.
+ - Little minds are interested in the extraordinary; great minds in the commonplace.
+ - Impossible things are simply those which so far have never been done.
+ - You can lead a boy to college, but you cannot make him think.
+ - I believe it is possible that I shall make other creeds, and change this one, or add to it, from time to time, as new light may come to me.
+ - Dignity is a mask we wear to hide our ignorance.
+ - Souls are made of dawn-stuff and starshine.
+ - The teacher is one who makes two ideas grow where only one grew before.
+ - If put to the pinch, an ounce of loyalty is worth a pound of cleverness.
+ - There is no freedom on earth or in any star for those who deny freedom to others.
+ - Lawyers are men whom we hire to protect us from lawyers.
+ - Life consists in molting our illusions. We form creeds today only to throw them away tomorrow. The eagle molts a feather because he is growing a better one.
+ - The reason men oppose progress is not that they hate progress, but that they love inertia.
+ - Imitation is the sincerest form of insult.
+ - This will never be a civilized country until we spend more money for books than we do for chewing gum.
+ - Our finest flowers are often weeds transplanted.
+ - A retentive memory may be a good thing, but the ability to forget is the true token of greatness.
+ - Study: concentration of the mind on whatever will ultimately put something in your pocket.
+ - Meanness is more in half-doing than in omitting acts of generosity.
+ - An ounce of performance is worth more than a pound of preachment.
+ - In a state of nature, the weakest go to the wall; in a state of over-refinement, both the weak and the strong go to the gutter.
+ - If you don’t advertise yourself you will be advertised by your loving enemies.
+ - Academic education is the act of memorizing things read in books, and things told by college professors who got their education mostly by memorizing things read in books.
+ - No good sensible working bee listens to the advice of a bedbug on the subject of business.
+ - Pray that success will not come any faster than you are able to endure it.
+ - Success – To rise from the illusion of pursuit to the disillusion of possession.
+ - The goal of evolution is self – conquest.
+ - A man’s acts are usually right, but his reasons seldom are.
+ - The worst thing about medicine is that one kind makes another necessary.
+ - Many a man’s reputation would not know his character if they met on the street.
+ - One can play comedy, two are required for melodrama, but a tragedy demands three.
+ - The man who has no problems is out of the game.
+ - Some men can get results if kindly encouraged, but give me the kind that do things in spite of hell.
+ - All success consists in this: You are doing something for somebody – benefiting humanity – and the feeling of success comes from the consciousness of this.
+ - The Businessman is one who supplies something great and good to the world, and collects from the world for the goods.
+ - Habit: The great economizer of energy.
+ - Reason: The arithmetic of the emotions.
+ - Fortitude: That quality of mind which does not care what happens so long as it does not happen to us.
+ - Allow motion to equal emotion.
+ - Theology is an attempt to explain a subject by men who do not understand it. The intent is not to tell the truth but to satisfy the questioner.
+ - To subjugate another is to subjugate yourself.
+ - Success consists in the climb.
+ - I believe in courtesy, in kindness, in generosity, in good cheer, in friendship and in honest competition. I believe there is something doing somewhere, for every man ready to do it. I believe I’m ready, RIGHT NOW.
+ - Folks who never do any more than they get paid for, never get paid for any more than they do.
+ - It is not book learning young men need, nor instruction about this and that, but a stiffening of the vertebra which will cause them to be loyal to a trust, to act promptly, concentrate their energies, do a thing.
+ - The new definition of a heathen is a man who has never played baseball.
+ - Down in their hearts, wise men know this truth: the only way to help yourself is to help others.
+ - Righteous indignation: your own wrath as opposed to the shocking bad temper of others.
+ - Life is a voyage, and we are all sailing under sealed orders. We plan, plot, scheme and arrange, and some fine day Fate steps in and our dreams are tossed into the yeasty deep. We grin and bear it – anyway we bear it: it is the only thing to do.
+ - One can endure sorrow alone, but it takes two to be glad.
+ - Laws that do not embody public opinion can never be enforced.
+ - Don’t lose faith in humanity; think of all the people in the United States who have never played you a single nasty trick.
+ - Human service is the highest form of self-interest for the person who serves.
+ - Where parents do too much for their children, the children will not do much for themselves.
+ - Grammar is the grave of letters.
+ - All noise is waste. So cultivate quietness in your speech, in your thoughts, in your emotions. Speak habitually low. Wait for attention and then you low words will be charged with dynamite.
+ - Love is not really blind- the bandage is never so tight but that it can peep.
+ - Man is Creation’s masterpiece. But who says so?
+ - The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed – it is a process of elimination.
+ - The man who doesn’t relax and hoot a few hoots voluntarily, now and then, is in great danger of hooting hoots and standing on his head for the edification of the pathologist and trained nurse, a little later on.
+ - A good front is half the battle in love or war.
+ - Formal religion was organized for slaves: it offered them consolation which earth did not provide.
+ - We make our money out of our friends. Our enemies will not do business with us.
+ - Often we can help each other most by leaving each other alone; at other times we need the hand-grasp and the word of cheer.
+ - I would rather be able to appreciate things I can not have than to have things I am not able to appreciate.
+ - Martyrs and persecutors are the same type of man. As to which is the persecutor and which the martyr, this is only a question of transient power.
+ - Football: A sport that bears the same relation to education that bullfighting does to agriculture.
+ - Strength comes from solitude, a waiting, a communion with the best in us, which is at one with the divine spark.
+ - The average woman sees only the weak points in a strong man, and the good points in a weak one.
+ - What we call God’s justice is only man’s idea of what he would do if he were God.
+ - Money never made a fool of anybody; it only shows them up.
+ - The difference in men does not lie in the size of their hands, nor in the perfection of their bodies, but in this one sublime ability of concentration: to throw the weight in one blow, to live eternity in an hour.
+ - As a rule, the man who can do all things equally well is a very mediocre individual.
+ - Nature: The unseen intelligence which loved us into being, and is disposing of us by the same token.
+ - Heaven: The Coney Island of the Christian imagination.
+ - Polygamy: An endeavour to get more out of life than there is in it.
+ - Whom the Gods love die young no matter how long they live.
+ - Optimism is a kind of heart stimulant – the digitalis of failure.
+ - Logic: an instrument used for bolstering a prejudice.
+ - It is a curious fact that of all the illusions that beset mankind none is quite so curious as that tendency to suppose that we are mentally and morally superior to those who differ from us in opinion.
+ - I rather like the World. The Flesh is pleasing and the Devil does not trouble me.
+ - Life in abundance comes only through great love.
+ - Your enemy is one who misunderstands you; why should you not rise above the fog and see his error and respect him for the good qualities you find in him?
+ - Blessed is the man who has found someone to do his work.
+ - Our admiration is so given to dead martyrs that we have little time for living heroes.
+ - Genius is the ability to act rightly without precedent – the power to do the right thing the first time.
+ - The ineffable joy of forgiving and being forgiven forms an ecstasy that might well arouse the envy of the gods.
+ - True life lies in laughter, love and work.
+ - If pleasures are greatest in anticipation, just remember that this is also true of trouble.
+ - I believe that the best way to prepare for a Future Life is to be kind, live one day at a time, and do the work you can do best, doing it as well as you can.
+ - Most diseases are the result of medication which has been prescribed to relieve and take away a beneficent and warning symptom on the part of Nature.
+ - When trouble comes, wise men take to their work; weak men take to the woods.
+ - Conformists die, but heretics live forever.
+ - A woman will doubt everything you say except it be compliments to herself.
+ - As a career, the business of an orthodox preacher is about as successful as that of a celluloid dog chasing an asbestos cat through hell.
+ - I would rather have a big burden and a strong back, than a weak back and a caddy to carry life’s luggage.
+ - Success is voltage under control-keeping one hand on the transformer of your Kosmic Kilowatts.
+ - The path of civilization is paved with tin cans.
+ - Every life is its own excuse for being.
+ - Opportunities for education should be within the reach of every individual, not for the lucky few.
+ - The Great Man is a man who lives a long way off.
+ - Talent does things tolerably well; genius does then intolerably better.
+ - Enthusiasm is like having two right hands.
+ - If you suffer, thank God! It is a sure sign that you are alive.
+ - To supply a thought is mental massage; but to evolve a thought of your own is an achievement. Thinking is a brain exercise and no faculty grows save as it is exercised.
+ - If you have no enemies you are apt to be in the same predicament in regard to friends.
+ - A person may be very secretive and yet have no secrets.
+ - Every man should have a college education in order to show him how little the thing is really worth.
+ - The finest flowers are those transplanted, for transplanting means difficulty, a readjusting to new conditions, and through the effort put forth to find adjustment does the plant progress.
+ - Every spirit makes its house, but as after wards the house confines the spirit, you had better build well.
+ - Forbid a man to think for himself or to act for himself and you may add the joy of piracy and the zest of smuggling to his life.
+ - Freedom is the supreme good; freedom from self imposed limitation.
+ - No great spiritual event befalls those who do not summon it.
+ - Failure – The man who can tell others what to do and how to do it, but never does it himself.
+ - All wages are based primarily on productive power. Anything else would be charity.
+ - A form of self-delusion.
+ - The average man believes a thing first, and then searches for proof to bolster his opinion.
+ - Wealth: A cunning device of Fate whereby men are made captive, and burdened with responsibilites from which only Death can file their fetters.
+ - Tragedy and comedy are simply questions of value; a little misfit in life makes us laugh; a great one is tragedy and cause for expression of grief.
+ - Jealousy seems the absolute reversal of love. It is the swinging from the sunny warmth of the Equator to the frigid cold of the North Pole.
+ - Respectability is the dickey on the bosom of civilization.
+ - When you grow suspicious of a person and begin a system of espionage upon him, your punishment will be that you will find your suspicions true.
+ - Action is thought tempered by illusion.
+ - God – the John Doe of philosophy and religion.
+ - Lawyers are the jackals of commerce.
+ - Of all blessings, no gift equals the gentle, trusting love and companionship of a good woman.
+ - Wisdom must go with Sympathy, else the emotions will become maudlin and pity may be wasted on a poodle instead of a child-on a field-mouse instead of a human soul.
+ - Strength and strength’s will are the supreme ethic. All else are dreams from hospital beds, the sly, crawling goodness of sneaking souls.
+ - A college degree does not lessen the length of your ears; it only conceals it.
+ - To know the great men dead is compensation for having to live with the mediocre.
+ - We never ask God to forgive anybody except when we haven’t.
+ - Be yourself and think for yourself, and while your conclusions may not be infallible they will be nearer right than the inclusions forced upon you by those who have a personal interest in keeping you in ignorance.
+ - Fear is the thought of admitted inferiority.
+ - I have no perfect panacea for human ills. And even if I had I would not attempt to present a system of philosophy between the soup and fish.
+ - Secrets are things we give to others to keep for us.
+ - Never get married in college; it’s hard to get a start if a prospective employer finds you’ve already made one mistake.
+ - Picture in your mind the able, earnest, useful person you desire to be, and the thought you hold is hourly transforming you into that particular individual you so admire.
+ - It’s pretty hard to be efficient without being obnoxious.
+ - Prosperity: that condition which attracts the lively interest of lawyers, and warrants your being sued for damages, or indicted, or both.
+ - A man who marries a woman to educate her falls victim to the same fallacy as the woman who marries a man to reform him.
+ - Piety is the tinfoil of pretense.
+ - The valuable person in any business is the individual who can and will cooperate with others.
+ - If it was woman who put man out of Paradise, it is still woman, and woman only, who can lead him back.
+ - Falling in love is the beginning of all wisdom, all sympathy, all compassion, all art, all religion; and in it’s larger sense is the one thing in life worth doing.
+ - Natural joy brings no headaches and no heartaches.
+ - There is a wild, splendid, intoxicating joy that follows work well done.
+ - Mystic: a person who is puzzled before the obvious, but who understands the non-existent.
+ - Anyone who idolizes you is going to hate you when he discovers that you are fallible. He never forgives. He has deceived himself, and he blames you for it.
+ - Philosophy rests on a proposition that whatever is is right. Preaching begins by assuming that whatever is is wrong.
+ - A conservative is a man who is too cowardly to fight and too fat to run.
+ - The home is a tryst-the place where we retire and shut the world out.
+ - Those who do unlawful acts are no more sinners in the eyes of God than we who think them.
+ - To make mistakes is human, but to profit from them is divine.
+ - If men will not act for themselves, what will they do when the benefit of their effort is for all?
+ - He who influences the thought of his times influences the times that follow.
+ - It is only life and love that give love and life.
+ - The secret of salvation is this: keep sweet, be useful, and keep busy.
+ - Business is a fight, a continual struggle, just as life is.
+ - I believe the Universe is planned for good.
+ - A committee is a thing which takes a week to do what one good man can do in an hour.
+ - I believe the only way we can reach the Kingdom of Heaven is to have the Kingdom of Heaven in our hearts.
+ - Destruction, violence, ravages, murder, are perpetrated by statute law.
+ - Public opinion is the judgment of the incapable many opposed to that of the discerning few.
+ - The woman who cannot tell a lie in defense of her husband, is unworthy of the name of wife.
+ - As we grow better, we meet better people.
+ - Faith is the effort to believe what your common sense tells you is not true.
+ - I believe in salvation through economic, social, and spiritual freedom.
+ - Give us a religion that will help us to live – we can die without assistance.
+ - Laughter is higher than all pain.
+ - We will not be dictated to by men with less intelligence, energy, initiative and ambition than we ourselves possess.
+ - The poor and ignorant will continue to lie and steal as long as the rich and educated show them how.
+ - Punishment – The justice that the guilty deal out to those that are caught.
+ - It does not make much difference what a person studies-all knowledge is related, and the man who studies anything, if he keeps at it, will be learned.
+ - Progress needs the brakeman, but the brakeman should not spend all his time putting on the brakes.
+ - Friendship, like credit, is highest when it is not used.
+ - The wise way to benefit humanity is to attend to your own affairs, and thus give other people an opportunity to look after theirs.
+ - We find what we expect to find, and we receive what we ask for.
+ - Christianity supplies a Hell for the people who disagree with you and a Heaven for your friends.
+ - Reversing your treatment of the man you have wronged is better than asking his forgiveness.
+ - Habit is a form of exercise.
+ - A man is as good as he has to be, and a woman is as bad as she dares.
+ - An American religion: Work, play, breathe, bathe, study, live, laugh, and love.
+ - To have a full stomach and fixed income are no small things .
+ - In God’s great vaudeville, Mother is the headliner.
+ - The past is one evil less and one memory more.
+ - Every tyrant who has lived has believed in freedom for himself.
+ - Library: A place where the dead lie.
+ - Morality is the thing upon which your friends smile, and immorality is the thing upon which they frown.
+ - A pessimist is a man who has been compelled to live with an optimist.
+ - Success is the most natural thing in the world. The person who does not succeed has placed himself in opposition to the laws of the Universe.
+ - So long as governments set the example of killing their enemies, private individuals will occasionally kill theirs.
+ - A person born with an instinct for poverty.
+ - Woman’s inaptitude for reasoning has not prevented her from arriving at truth; nor has man’s ability to reason prevented him from floundering in absurdity.
+ - I believe in the Motherhood of God.
+ - Gossip is vice enjoyed vicariously.
+ - I do not read a book; I hold a conversation with the author.
+ - When a man sends you an impudent letter, sit right down and give it back to him with interest ten times compounded, and then throw both letters in the wastebasket.
+ - Theology is Classified Superstition.
+ - There are three sides to every question-where a divorce is involved.
+ - Time is an illusion-to orators.
+ - Put yourself in the other man’s place and then you will know why he thinks certain things and does certain deeds.
+ - Lovers are fools, but Nature makes them so.
+ - Be patient with the boys – you are dealing with soul-stuff.
+ - Dogma is a lie reiterated and authoritatively injected into the mind of one or more persons who believe that they believe what someone else believes.
+ - The finest friendships are between those who can do without each other.
+ - The thing we fear we bring to pass.
+ - Most reformers wore rubber boots and stood on glass when God sent a current of Commonsense through the Universe.
+ - I will gladly lecture for fifty dollars, but I’ll not be a guest for less than a hundred.
+ - Would you make men better – set them an example. The millenium will never come until governments cease from governing, and the meddler is at rest.
+ - In these days, a man who says a thing cannot be done is quite apt to be interrupted by some idiot doing it.
+ - Literature is the noblest of all the arts. Music dies on the air, or at best exists only as a memory; oratory ceases with the effort; the painter’s colors fade and the canvas rots; the marble is dragged from its pedestal and is broken into fragments.
+ - Gossip is only the lack of a worthy memory.
+ - Those who create beauty are also they who possess it.
+ - If we cannot be powerful and happy and prey on others, we invent conscience and prey on ourselves.
+ - The more one knows, the more one simplifies.
+ - No matter how long you live, die young.
+ - Young women with ambitions should be very crafty and cautious, lest mayhap they be caught in the soft, silken mesh of a happy marriage, and go down to oblivion, dead to the world.
+ - Men whose lives are doubtful want a strong government and a hot religion.
+ - The artist needs no religion beyond his work.
+ - People who are able to do their own thinking should not allow others to do it for them.
+ - Prophecy – To observe that which has passed, and guess it will happen again.
+ - I am not sure just what the unpardonable sin is, but I believe it is a disposition to evade the payment of small bills.
+ - Die, v.: To stop sinning suddenly.
+ - An executive is one who makes an immediate decision and is sometimes right.
+ - Orthodoxy: That peculiar condition where the patient can neither eliminate an old idea nor absorb a new one.
+ - The brain is a commodity used to fertilize ideas.
+ - Where much is expected from an individual, he may rise to the level of events and make the dream come true.
+ - No book is of much importance; the vital thing is, What do you yourself think?
+ - The man who knows it can’t be done counts the risk, not the reward.
+ - The newspapers print what the people want, and thus does the savage still swing his club and flourish his spear.
+ - Freedom is a condition of mind, and the best way to secure it is to breed it.
+ - Men who marry for gratification, propagation or the matter of buttons or socks, must expect to cope with and deal in a certain amount of quibble, subterfuge, concealments, and double, deep-dyed prevarication.
+ - There is a joy in going without things, a fine tang in eliminating the superfluous.
+ - Miracle: An event described by those to whom it was told by men who did not see it.
+ - If there is any better way to teach virtue than by practicing it, I do not know it.
+ - Perfume: any smell that is used to drown a worse one.
+ - Most people like hard work, particularly when they’re paying for it.
+ - Politicians regard the public as a cow to be milked.
+ - Writers seldom write the things they think. They simply write the things they think other folks think they think.
+ - The fool is not the man who merely does foolish things. The fool is the man who does not know enough to cash in on his foolishness.
+ - When we really live truth, we will cease to talk about it.
+ - Of all the mental and physical polluters of life, nothing exercises such a poisonous effect as fear.
+ - Time is an eternal guest that banquets on our ideals and bodies.
+ - An imitator is a man who succeeds in being an imitation.
+ - The trouble with many married people is that they are trying to get more out of marriage than there is in it.
+ - The only foes that threaten America are the enemies at home, and these are ignorance, superstition and incompetence.
+ - Live truth instead of professing it.
+ - No man should dogmatize except on the subject of theology. Here he can take his stand, and by throwing the burden of proof on the opposition, he is invincible. We have to die to find out whether he is right.
+ - Yesterday woman was a chattel. Now she is, in law, a minor. Tomorrow she will be free, or partially so – that is to say, as free as man.
+ - There was one who thought himself above me, and he was above me until he had that thought.
+ - Charity: a thing that begins at home, and usually stays there.
+ - Editor: a person employed by a newspaper, whose business it is to separate the wheat from the chaff, and to see that the chaff is printed.
+ - It is always the nearest, plainest and simplest principles that learned men comprehend last.
+ - The heroic man does not pose; he leaves that for the man who wishes to be thought heroic.
+ - Responsibiliti es gravitate to the man who can shoulder them and the power to him who knows how.
+ - Parties who want milk should not seat themselves on a stool in the middle of the field in hope that the cow will back up to them.
+ - Play needs direction as well as work.
+ - Your neighbor is the man who needs you.
+ - The average man plays to the gallery of his own self-esteem.
+ - One thing is sure, there are just two respectable ways to die. One is of old age, and the other is by accident.
+ - It is not deeds or acts that last: it is the written record of those deeds and acts.
+ - Let a man once see himself as others see him, and all enthusiasm vanishes from his heart.
+ - The church saves sinners, but science seeks to stop their manufacture.
+ - Wealth is an engine that can be used for power, if you are an engineer; but to be tied to the fly wheel of an engine is rather a misfortune.
+ - Men who sit back and pride themselves on their culture haven’t any to speak of.
+ - The man who is so run down that he needs a vacation can never adjust or reform himself in two weeks. What he really needs is to re-transform his life.
+ - What people need and what they want may be very different.
+ - Old ways will always remain unless some one invents a new way and then lives and dies for it.
+ - An enemy is anyone who tells the truth about you.
+ - Man, like Deity, creates in his own image.
+ - Not only does beauty fade, but it leaves a record upon the face as to what became of it.
+ - The stupidity of one brain multiplied by twelve.
+ - Knowledge is the distilled essence of our institutions, corroborated by experience.
+ - A book on cheap paper does not convince. It is not prized, it is like a wheezy doctor with pigtail tobacco breath, who needs a manicure.
+ - God looked upon His work and saw that it was good. That is where the clergy take issue with him.
+ - I have noticed that youngsters given to the climbing habit usually do something when they grow up.
+ - The only man who makes money following the races is one who does it with a broom and shovel.
+ - The inspirations of today are the shams of tomorrow the purpose has departed.
+ - Government is a kind of legalized pillage.
+ - History: a collection of epitaphs.
+ - Two-thirds of all preachers, doctors and lawyers are hanging on to the coat tails of progress, shouting, whoa! while a good many of the rest are busy strewing banana peels along the line of march.
+ - Every knock is a boost.
+ - Postponement: The father of failure.
+
+403 quotes

@@ -1,0 +1,55 @@
+ - With or without religion, you would have good people doing good things and evil people doing evil things. But for good people to do evil things, that takes religion.
+ - If there is a God that has special plans for humans, then He has taken very great pains to hide His concern for us. To me it would seem impolite if not impious to bother such a God with our prayers.
+ - Anything that we scientists can do to weaken the hold of religion, should be done and may, in fact, in the end, be our greatest contribution to civilization.
+ - Science should be taught not in order to support religion and not in order to destroy religion. Science should be taught simply ignoring religion.
+ - The more comprehensible the universe becomes the more pointless it seems.
+ - Our job in physics is to see things simply, to understand a great many complicated phenomena in a unified way, in terms of a few simple principles.
+ - One of the great achievements of science has been, if not to make it impossible for intelligent people to be religious, then at least to make it possible for them not to be religious. We should not retreat from this accomplishment.
+ - In science we don’t have prophets. We have heroes, but not prophets.
+ - The universe is an enormous direct product of representations of symmetry groups.
+ - The effort to understand the universe is one of the very few things that lifts human life a little above the level of farce, and gives it some of the grace of tragedy.
+ - The invisible and the non-existent look very much alike.
+ - If you have bought one of those T-shirts with Maxwell’s equations on the front, you may have to worry about its going out of style, but not about its becoming false. We will go on teaching Maxwellian electrodynamics as long as there are scientists.
+ - Quantum field theory, which was born just fifty years ago from the marriage of quantum mechanics with relativity, is a beautiful but not very robust child.
+ - The whole history of the last thousands of years has been a history of religious persecutions and wars, pogroms, jihads, crusades. I find it all very regrettable, to say the least.
+ - They felt that science would be corrosive to religious belief and they were worried about it. Damn it, I think they were right. It is corrosive to religious belief and it’s a good thing.
+ - Though aware that there is nothing in the universe that suggests any purpose for humanity, one way that we can find a purpose is to study the universe by the methods of science, without consoling ourselves with fairy tales about its future, or about our own.
+ - I think one of the great historical contributions of science is to weaken the hold of religion. That’s a good thing.
+ - My advice is to go for the messes – that’s where the action is.
+ - In our universe we are tuned into the frequency that corresponds to physical reality. But there are an infinite number of parallel realities coexisting with us in the same room, although we cannot tune into them.
+ - All logical arguments can be defeated by the simple refusal to reason logically.
+ - Science doesn’t make it impossible to believe in God, it just makes it possible not to believe in God.
+ - For good people to do evil things, it takes religion.
+ - I don’t need to argue here that the evil in the world proves that the universe is not designed, but only that there are no signs of benevolence that might have shown the hand of a designer.
+ - Most scientists I know don’t care enough about religion even to call themselves atheists.
+ - As for me, I have just enough confidence about the multiverse to bet the lives of both Andrei Linde and Martin Rees’s dog.
+ - On balance the moral influence of religion has been awful.
+ - It is even harder to realize that this present universe has evolved from an unspeakably unfamiliar early condition, and faces a future extinction of endless cold or intolerable heat. The more the universe seems comprehensible, the more it seems pointless.
+ - As you learn more and more about the irrelevance of human life to the general mechanism of the universe, the idea of an interested god, becomes increasingly implausible.
+ - This is one of the great social functions of science – to free people from superstition.
+ - A physicist friend of mine once said that in facing death, he drew some consolation from the reflection that he would never again have to look up the word “hermeneutics” in the dictionary.
+ - Nothing in physics seems so hopeful to as the idea that it is possible for a theory to have a high degree of symmetry was hidden from us in everyday life. The physicist’s task is to find this deeper symmetry.
+ - It does not matter whether you win or lose, what matters is whether I win or lose!
+ - The fact that Newton and Michael Faraday and other scientists of the past were deeply religious shows that religious skepticism is not a prejudice that governed science from the beginning, but a lesson that has been learned through centuries of experience in the study of nature.
+ - It seems a bit unfair to my relatives to be murdered in order to provide an opportunity for free will for Germans, but even putting that aside, how does free will account for cancer? Is it an opportunity of free will for tumors?
+ - Maybe nature is fundamentally ugly, chaotic and complicated. But if it’s like that, then I want out.
+ - Our mistake is not that we take our theories too seriously, but that we do not take them seriously enough.
+ - The more we refine our understanding of God to make the concept plausible, the more it seems pointless.
+ - There is now a feeling that the pieces of physics are falling into place, not because of any single revolutionary idea or because of the efforts of any one physicist, but because of a flowering of many seeds of theory, most of them planted long ago.
+ - Even in the dark times between experimental breakthroughs, there always continues a steady evolution of theoretical ideas, leading almost imperceptibly to changes in previous beliefs.
+ - It is almost irrestible for humans to believe that we have some special relation to the universe, that human life is not just a more-or-less farcical outcome of a chain of accidents reaching back to the first three minutes, but that we were somehow built in from the beginning.
+ - Elementary particles are terribly boring, which is one reason why we’re so interested in them.
+ - If language is to be of any use to us, then we ought to try and preserve the meaning of words, and ‘god’ historically has not meant the laws of nature.
+ - In trying to get votes for the Superconducting Super Collider, I was very much involved in lobbying members of Congress, testifying to them, bothering them, and I never heard any of them talk about postmodernism or social constructivism. You have to be very learned to be that wrong.
+ - It is positively spooky how the physicist finds the mathematician has been there before him or her.
+ - In complexity, it is only simplicity that can be interesting.
+ - Premature as the question may be, it is hardly possible not to wonder whether we will find any answer to our deepest questions, any signs of the workings of an interested God, in a final theory. I think that we will not.
+ - It seems that scientists are often attracted to beautiful theories in the way that insects are attracted to flowers – not by logical deduction, but by something like a sense of smell.
+ - If history is any guide at all, it seems to me to suggest that there is a final theory. In this century we have seen a convergence of the arrows of explanation, like the convergence of meridians toward the North Pole.
+ - Journalists generally have no bias toward one cosmological theory or another, but many have a natural preference for excitement.
+ - It appears that anything you say about the way that theory and experiment may interact is likely to be correct, and anything you say about the way that theory and experiment must interact is likely to be wrong.
+ - I enjoy being at a meeting that doesn’t start with an invocation!
+ - A theorist today is hardly considered respectable if he or she has not introduced at least one new particle for which there is no experimental evidence.
+ - It does not help that some politicians and journalists assume the public is interested only in those aspects of science that promise immediate practical applications to technology or medicine.
+
+53 quotes

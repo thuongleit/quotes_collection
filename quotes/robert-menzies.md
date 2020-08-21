@@ -1,0 +1,24 @@
+ - I did but see her passing by and yet I love her till I die.
+ - It is a simple but sometimes forgotten truth that the greatest enemy to present joy and high hopes is the cultivation of retrospective bitterness.
+ - We took the name ‘Liberal’ because we were determined to be a progressive party, willing to make experiments, in no sense reactionary but believing in the individual, his rights, and his enterprise, and rejecting the socialist panacea.
+ - A man may be a tough, concentrated, successful money-maker and never contribute to his country anything more than a horrible example.
+ - Never take any notice of Anonymous letters, unless you get a few thousand on the same subject.
+ - What Great Britain calls the Far East is to us the near north.
+ - Modern history is, as you all know, full of examples of great movements that disappeared because they had ceased to have any genuine reason for existence. The important thing is to have a faith to live by, and that goes for us in this party.
+ - More good things in life are lost by indifference than ever were lost by active hostility.
+ - I am one of the few men honest enough to say they do not understand women.
+ - Two days in this city is worth two months in New York.
+ - The great vice of democracy is that for a generation we have been busy getting ourselves on to the list of beneficiaries and removing ourselves from the list of contributors, as if somewhere there was somebody else’s effort on which we could thrive.
+ - One thing about bureaucrats is that they never swallow their young. Leave them alone and you’ll find them increasing every year.
+ - The kind of people I myself represent in parliament; salary earners, shopkeepers, skilled artisans, professional men and women, farmers and so on, these are, in a political and economic sense, the middle class. They are for the most part unorganised and unselfconscious.
+ - The long-established and noble rule of Law, one of the greatest products of the character and tradition of British history, has suffered a deadly blow. Blackmail has become respectable.
+ - Never forget posterity when devising a policy. Never think of posterity when making a speech.
+ - One speaks with great respect of economists, if only because they represent such a variety of opinions.
+ - When people meet my wife they think better of me. They say: “With a wife like that, he can’t be as bad as we thought”.
+ - My headmaster chastised me with a diabolical instrument a leather strap tacked to a piece of wood but he taught me with such villainous success that I am now Prime Minister.
+ - Considering the company I keep in this place, that is hardly surprising.
+ - Thinking ahead, what really happens to us will depend on how many people we have who are of the great and sober and dynamic middle-class – the strivers, the planners, the ambitious ones.
+ - In all my life I have treated the press with marked contempt and remarkable success.
+ - Men of genius are not to be analysed by commonplace rules. The rest of us who have been or are leaders, more commonplace in our quality, will do well to remember two things. One is never to forget posterity when devising a policy. The other is never to think of posterity when making a speech.
+
+22 quotes

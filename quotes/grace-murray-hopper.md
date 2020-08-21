@@ -1,0 +1,30 @@
+ - It is often easier to ask for forgiveness than to ask for permission.
+ - The most damaging phrase in the language is: ‘It’s always been done that way.’
+ - Humans are allergic to change. They love to say, ‘We’ve always done it this way.’ I try to fight that. That’s why I have a clock on my wall that runs counter-clockwise.
+ - You manage things; you lead people.
+ - One accurate measurement is worth a thousand expert opinions.
+ - You manage things, you lead people. We went overboard on management and forgot about leadership.
+ - I am now going to make you a gift that will stay with you the rest of your life. For the rest of your life, every time you say, “We’ve always done it that way,” my ghost will appear and haunt you for twenty-four hours.
+ - The only phrase I’ve ever disliked is, ‘Why, we’ve always done it that way.’ I always tell young people, ‘Go ahead and do it. You can always apologize later.’
+ - To me programming is more than an important practical art. It is also a gigantic undertaking in the foundations of knowledge.
+ - If it’s a good idea, go ahead and do it. It is much easier to apologise than it is to get permission.
+ - The glass is neither half empty nor half full. It’s simply larger than it needs to be. It is easier to get forgiveness than permission.
+ - If you do something once, people will call it an accident. If you do it twice, they call it a coincidence. But do it a third time and you’ve just proven a natural law!
+ - From then on, when anything went wrong with a computer, we said it had bugs in it.
+ - It’s always easier to apologize for something you’ve already done than to get approval for it in advance.
+ - Some day, on the corporate balance sheet, there will be an entry which reads, “Information”; for in most cases, the information is more valuable than the hardware which processes it.
+ - Humans are allergic to change.
+ - I’ve always been more interested in the future than in the past.
+ - I had a running compiler and nobody would touch it. They told me computers could only do arithmetic.
+ - I’ve received many honors and I’m grateful for them; but I’ve already received the highest award I’ll ever receive, and that has been the privilege and honor of serving very proudly in the United States Navy.
+ - At any given moment, there is always a line representing what your boss will believe. If you step over it, you will not get your budget. Go as close to that line as you can.
+ - We’re flooding people with information. We need to feed it through a processor. A human must turn information into intelligence or knowledge.
+ - We’re just getting started. We’re just beginning to meet what will be the future-we’ve got the Model T.
+ - No computer is ever going to ask a new, reasonable question. It takes trained people to do that.
+ - Developing a compiler was a logical move; but in matters like this, you don’t run against logic – you run against people who can’t change their minds.
+ - I will not take what you need to give me. I will take what you want to give me.
+ - If it isn’t bolted down, bring it home.
+ - I need something to compare this to. Could I please have a microsecond?
+ - We’ve tended to forget that no computer will ever ask a new question.
+
+28 quotes

@@ -1,0 +1,86 @@
+ - You only have one chance to make a first impression.
+ - The more you know who you are, and what you want, the less you let things upset you.
+ - Is it possible for home to be a person and not a place?
+ - For the two of us, home isn’t a place. It is a person. And we are finally home.
+ - Will you please tell me you love me? I’m dying here.
+ - No, I don’t love Max anymore. But I don’t want to give you this broken, empty me. I want you to have me when I’m full, when I can give something back to you. I don’t have much to give right now.
+ - Why do I care so much about him, and why do I wish I didn’t? How can one person make me so confused all of the time?
+ - You must think I’m a complete idiot right? That I’m just some doormat who’ll wait for you on the sidelines forever? That you can keep running back to her every time things get difficult and I’ll just be okay with it?!
+ - It’s easy to talk about things we hate, but sometimes it’s hard to explain exactly why we like something.
+ - I wish friends held hands more often, like the children I see on the streets sometimes. I’m not sure why we have to grow up and get embarrassed about it.
+ - Everyone makes mistakes. The important thing is to not make the same mistake twice.
+ - When it’s right, it’s simple.
+ - I don’t want to feel this way around him. I want things to be normal. I want to be his friend, not another stupid girl holding out for something that will never happen.
+ - No more moving. I’m here. I’m wherever you are.
+ - You said on my birthday that you were afraid of being alone, but I’ve been here this whole time. This whole time.
+ - There are few things worse than having feelings for someone you shouldn’t, and I don’t like where my thoughts were headed.
+ - Sometimes a mistake isn’t a what. It’s a who.
+ - You’re the most incredible girl I’ve ever known. You’re gorgeous and smart, and you make me laugh like no one else can. And I can talk to you. And I know after all this I don’t deserve you, but what I’m trying to say is that I love you, Anna. Very much.
+ - Why is it that the right people never wind up together? Why are people so afraid to leave a relationship, even if they know it’s a bad one?
+ - There’s something about blue eyes. The kind of blue that startles you every time they’re lifted in your direction. The kind of blue that makes you ache for them to look at you again. Not the blue green or blue gray, the blue that’s just blue. Cricket has those eyes.
+ - Anna: You really think he likes me? Rashmi: Anna. He teases you all the time. It’s classic boy-pulling-girl’s-pigtail syndrome. And whenever anyone else even remotely does it, he always takes your side and tells them to shove it.
+ - Just because something isn’t practical doesn’t mean it’s not worth creating. Sometimes beauty and real-life magic are enough.
+ - Yes, St. Claire. I like you. But I can’t say it aloud, because he’s my friend. And friends don’t let other friends make drunken declarations and expect them to act upon them the next day.
+ - I moan with pleasure. “Did you just have a foodgasm?” he asks, wiping ricotta from his lips. “Where have you been all my life?” I ask the beautiful panini.
+ - I am hard on myself. But isn’t it better to be honest about these things before someone else can use them against you? Before someone else can break your heart? Isn’t it better to break it yourself?
+ - Boys turns girls into such idiots.
+ - Girl scouts didn’t teach me what to do with emotionally unstable drunk boys.
+ - French name, English accent, American school. Anna confused.
+ - I don’t believe in fashion. I believe in costume. Life is too short to be same person every day.
+ - Life isn’t about what you get, it’s about what you DO with what you get.
+ - And, suddenly, I want to touch him. Not a push, or a shove, or even a friendly hug. I want to feel the creases in his skin, connect his freckles with invisible lines, brush my fingers across the inside of his wrist.
+ - People should say what they mean and not make other people stumble around.
+ - How many times can our emotions be tied to someone else’s – be pulled and stretched and twisted – before they snap? Before they can never be mended again?
+ - I know you aren’t perfect. But it’s a person’s imperfections that make them perfect for someone else.
+ - There are some people in life that you can’t get over.
+ - Welcome to Paris, Anna. I’m glad you’ve come.
+ - I’m a little distracted by this English French American Boy Masterpiece.
+ - History books are filled with lies. Whoever wins the war tells the story.
+ - If I had a euro for every stupid thing I’ve done, I could buy the Mona Lisa.
+ - I wish the world would swallow us here, whole, in this moment. And that’s when it hits me that this – this – is falling in love.
+ - This is home. The two of us.
+ - You should show encouragement whenever you can. People try harder when they know that someone cares about them.
+ - Beautiful. He called me beautiful! But wait. I don’t like Dave. Do I like Dave?
+ - Foreign novels are less action-oriented. They have a different pace; they’re more reflective. They challenge us to look for the story, find the story within the story.
+ - I don’t understand why things always go from perfect to weird with us. It’s like we’re incapable of normal human interaction.
+ - I’ll only be twenty-minute train ride from your school, and I’ll make the commute to see you every night. I’d take a commute ten times just to be with you every night.
+ - Pinkie means excited or happy, thumb means thinking or worried. I’m surprised I know the meaning of these gestures. How closely have I been paying attention to him?
+ - It’s not right. It hasn’t been right, not since I met you.
+ - Seriously, I don’t know any American girl who can resist an English accent.
+ - Some people are finicky about going to the theater alone, but I’m not. Because when the lights go down, the only relationship left in the room is the one between the movie and me.
+ - Do adults realize how lucky they are? Or do they forget that these small moments are actually small miracles? I don’t want to ever forget.
+ - It’s become impossible to deny he means something to me.
+ - I pull back, gasping for breath. Reeling. His breath is ragged, and I place my hands on his cheeks to steady him. “Is this okay?” I whisper. “Are you okay?” His reply is anguished. Honest. “I love you.”
+ - Har. Bloody. Har.
+ - But I could be mistaking our friendship for something more, because I want to mistake it for something more.
+ - Something deep inside me lurched. The stirring was as startling and unpleasant as it was thrilling and revolutionary.
+ - And if I’m the stars, Cricket Bell is entire galaxies.
+ - I’m saying I’m in love with you! I’ve been in love with you this whole bleeding year!
+ - I have the strangest feeling that he’s aware of me as I am of him.
+ - It’s maddening how someone so easy to read can be so impossible to understand.
+ - Madame Guillotine gets mad at me. Not because I told them to shove it, but because I didn’t say it in French. What is wrong with this school?
+ - I grip the edge of a sidewalk cafe table to keep from falling. The diners stare in alarm, but I don’t care. I’m reeling, and I gasp for air. How can I have been so stupid? How could I have ever for a moment believed I wasn’t in love with him?
+ - Umbrellas are so small and sad and easy to forget.
+ - They left me. My parents actually left me! IN FRANCE!
+ - You read a lot. – Safer than going on a real adventure.
+ - I blame it on his pants.
+ - What’d I tell you about musicians? That bad boy type will only break your heart.
+ - It’s not stupid to want to put on a pretty dress and feel beautiful for a night.
+ - I didn’t know it was possible to simultaneously hate and ache for someone.
+ - And it didn’t matter how many songs or poems had already been written about them, because whenever he thought about the girl, the stars shone brighter. As if she were the one keeping them illuminated.
+ - So what do I wish for? Something I’m not sure I want? Someone I’m not sure I need? Or someone I know I can’t have?
+ - I mean, really. Who sends their kid to boarding school? It’s so Hogwarts. Only mine doesn’t have cute boy wizards or magic candy or flying lessons.
+ - What my parents never considered is that I just wanted a choice.
+ - Seriously. We were never like that were we?
+ - How could I have ever for a moment believed I wasn’t in love with him?
+ - It’s ridiculous how difficult a question can be when the answer means so much.
+ - Saw two fallen branches in the shape of a heart. Thought of you.
+ - I wish for the thing that is best for me.
+ - You ought to stop listening to stereotypes and start forming your own opinions.
+ - My smile wavers as I revert to my natural state of being: nervous and weird.
+ - One of the new girls followed me in and said she thinks Toph is an insensitive douchebag motherhumping assclown, and that I shouldn’t let him get to me. Which was sweet, but didn’t really help.
+ - I want to kiss him for the rest of the night, for the rest of our lives. The one.
+ - I just can’t fathom why anyone would stand on a ledge when there’s a respectable amount of walking space right next to it.
+ - I’m not interested in making what’s easy. I’m interested in making what’s beautiful.
+
+84 quotes

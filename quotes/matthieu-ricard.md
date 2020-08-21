@@ -1,0 +1,58 @@
+ - Happiness is a skill, emotional balance is a skill, compassion and altruism are skills, and like any skill they need to be developed. That’s what education is about.
+ - It is in learning music that many youthful hearts learn to love.
+ - By breaking down our sense of self-importance, all we lose is a parasite that has long infected our minds. What we gain in return is freedom, openness of mind, spontaneity, simplicity, altruism: all qualities inherent in happiness.
+ - Happiness is a state of inner fulfillment.
+ - To love oneself is to love life. It is essential to understand that we make ourselves happy in making others happy.
+ - Nothing goes right on the outside when nothing is going right on the inside.
+ - Worries are pointless. If there’s a solution, there’s no need to worry. If no solution exists, there’s no point to worry.
+ - For a few moments, be aware of your potential for change. Whatever your present situation is, evolution and transformation are always possible. At the least, you can change your way of seeing things and then, gradually, your way of being as well.
+ - Children, old people, vagabonds laugh easily and heartily: they have nothing to lose and hope for little. In renunciation lies a delicious taste of simplicity and deep peace.
+ - Genuine fearlessness arises with the confidence that we will be able to gather the inner resources to deal with any situation that comes our way.
+ - Meditation is not just blissing out under a mango tree. It completely changes your brain and therefore changes what you are.
+ - Anyone who enjoys inner peace is no more broken by failure as he is inflated by success. He is able to fully live his experiences in the context of a vast and profound serenity, since he understands that experiences are ephemeral and that it is useless to cling to them.
+ - Knowledge does not mean mastering a great quantity of different information, but understanding the nature of mind. This knowledge can penetrate each one of our thoughts and illuminate each one of our perceptions.
+ - Happiness is the result of inner maturity. It depends on us alone, and requires patient work, carried out from day to day. Happiness must be built, and this requires time and effort. In the long term, happiness and unhappiness are therefore a way of being, or a life skill.
+ - Envy and jealousy stem from the fundamental inability to rejoice at someone else’s happiness or success.
+ - True freedom means freeing oneself from the dictates of the ego and its accompanying emotions.
+ - Wisdom and compassion should become the dominating influences that guide our thoughts, our words, and our actions.
+ - It’s not the magnitude of the task that matters, it’s the magnitude of our courage.
+ - Humility does not mean believing oneself to be inferior, but to be freed from self-importance. It is a state of natural simplicity which is in harmony with our true nature and allows us to taste the freshness of the present moment.
+ - Empathy is the faculty to resonate with the feelings of others. When we meet someone who is joyful, we smile. When we witness someone in pain, we suffer in resonance with his or her suffering.
+ - Let us live simply in the freshness of the present moment, in the clarity of pure awakened mind.
+ - Happiness is the main object of our aspirations, whatever name we give to it: fulfilment, deep satisfaction, serenity, accomplishment, wisdom, fortune, joy or inner peace, and however we try to seek it: creativity, justice, altruism, striving, completion of a plan or a piece of work.
+ - The goal of meditation is precisely to make your mind smooth and manageable so that it can be concentrated or relaxed at will; and especially to free it from the tyranny of mental afflictions and confusion.
+ - When the mind is full of memories and preoccupied by the future, it misses the freshness of the present moment. In this way, we fail to recognize the luminous simplicity of mind that is always present behind the veils of thought.
+ - Authentic happiness is not linked to an activity; it is a state of being, a profound emotional balance struck by a subtle understanding of how the mind functions.
+ - To grant forgiveness to someone who has truly changed is not a way of condoning or forgetting his or her past crimes, but of acknowledging whom he or she has become.
+ - Happiness is a state of inner fulfillment, not the gratification of inexhaustible desires for outward things.
+ - The basic root of happiness lies in our minds; outer circumstances are nothing more than adverse or favourable.
+ - No change occurs if we just let our habitual tendencies and automatic patterns of thought perpetuate and even reinforce themselves, thought after thought, day after day, year after year. But those tendencies and patterns can be challenged.
+ - In the freshness of the present moment, past is gone, future is not yet born, and – if one remains in pure mindfulness and freedom – disturbing thoughts arise and go without leaving a trace. That is basic meditation.
+ - Peace is not weak. Standing up to a tank is harder than dropping a suicide bomb.
+ - Meditation gives you more inner strength and confidence, and if you don’t feel vulnerable, you can put that to the service of others. So it’s not just about sitting and cultivating caring mindfulness. It’s building up a way of being and then using it for the service of others.
+ - The mind is malleable. Our life can be greatly transformed by even a minimal change in how we manage our thoughts and perceive and interpret the world. Happiness is a skill. It requires effort and time.
+ - We deal with our mind from morning till evening and it can be our best friend or our worst enemy.
+ - Enlightenment is eliminating mental confusion, eliminating hatred, jealousy, mental toxins, cravings. That’s very simple and straightforward. Whether you can do it or not is another matter.
+ - Mind training is based on the idea that two opposite mental factors cannot happen at the same time. You could go from love to hate. But you cannot, at the same time – toward the same object, the same person – want to harm and want to do good.
+ - Confidence is closely linked to how well our perceptions match reality.
+ - Negative emotions like hatred destroy our peace of mind.
+ - Anyone can be happy by simply training their brain.
+ - We do all kinds of things to remain beautiful yet we spend surprisingly little time taking care of what matters most: the way our mind functions.
+ - If you want to know the future, look at what is in your mind.
+ - Simplifying our lives does not mean sinking into idleness, but on the contrary, getting rid of the most subtle aspect of laziness: the one which makes us take on thousands of less important activities.
+ - We must distinguish between spirituality in general terms, which aims to make us better people, and religion. Adopting a religion remains optional, but becoming a better human being is essential.
+ - Isn’t it the mind that translates the outer condition into happiness and suffering?
+ - Happiness can’t be reduced to a few agreeable sensations. Rather, it is a way of being and of experiencing the world – a profound fulfillment that suffuses every moment and endures despite inevitable setbacks.
+ - While it may be difficult to change the world, it is always possible to change the way we look at it.
+ - Neuroscience has proven that similar areas of the brain are activated both in the person who suffers and in the one who feels empathy. Thus, empathic suffering is a true experience of suffering.
+ - I got really involved in science research and the science of meditation.
+ - There is a dilemma, to reconcile three time scales: in the short term, the economy; in the middle range, global well – being generally; and, in the long range, the environment.
+ - Transform our way of perceiving things, we transform the quality of our lives.
+ - That’s what Buddhism has been trying to unravel – the mechanism of happiness and suffering. It is a science of the mind.
+ - The ultimate reason for meditating is to transform ourselves in order to be better able to transform the world.
+ - When hearing a door creak, the optimist thinks it’s opening and the pessimist thinks it’s closing.
+ - There is no such thing as good and bad in an absolute sense. There is only the good and bad- the harm in terms of happiness and suffering- that our thoughts and our actions do to ourselves and others.
+ - Good and evil exist only in terms of the happiness or suffering they create in ourselves and others.
+ - We try to fix the outside so much, but our control of the outer world is limited, temporary, and often, illusory.
+
+56 quotes

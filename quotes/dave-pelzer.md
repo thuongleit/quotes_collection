@@ -1,0 +1,37 @@
+ - To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on.
+ - Childhood should be carefree, playing in the sun; not living a nightmare in the darkness of the soul.
+ - You can be a victim of cancer, or a survivor of cancer. It’s a mindset.
+ - One could come from less than humble beginnings, to become a winner from within.
+ - I still love my former wife, I won’t call her my ex-wife.
+ - Mother can beat me all she wants, but I haven’t let her take away my will to somehow survive.
+ - In life you are going to make mistakes, you’re going to fall down, but it’s the getting up that counts. Just like in baseball: you’ll get a few hits, but most likely, you’ll strike out more than you’ll get on base. But don’t quit. Find your focus, relax, take a deep breath and give it a good swing.
+ - It is important for people to know that no matter what lies in their past, they can overcome the dark side and press on the a brighter world.
+ - The most beautiful highway in the world.
+ - Build on past successes, be grateful for what you do have, and know that this, too, shall pass. It’s only for the now. Whatever we’re facing, it’s not forever.
+ - You have to understand that in a person’s life there are a few precious moments in which decisions, choices that you make now, will affect you for the rest of your life.
+ - I just don’t want to forget this first day of the rest of my life!
+ - When you please others in hopes of being accepted, you lose you self-worth in the process.
+ - Even in its darkest passages, the heart is unconquerable. It is important that the body survives, but it is more meaningful that the human spirit prevails.
+ - One Child’s courage to survive.
+ - Gripping my arm, Mother held it in the orange-blue flame. My skin seemed to explode from the heat.
+ - Ask yourself: was there anything I could have done to prevent the situation? If the answer is yes, do something now and become a better person for it.
+ - I am proud of who you were, David-that hurt person who refused to “die.” And I’m more caring, giving, fixing person, the guy with the same sense of humor and that deft, sensitive touch. Good on you, David I love you.
+ - I couldn’t lie to get myself fame and fortune.
+ - Something good comes out of every crisis.
+ - Draw Support From Those You Know And Trust. Don’t Leave Your Happiness To Fate.
+ - Hate is a cancer that spreads one cell at a time.
+ - I am a very shy, introverted guy.
+ - Whatever you do for the sole purpose of having others admire you, your efforts will most likely be in vain.
+ - There’s a lot of Dave mania when I speak.
+ - Everyone picked on me in school because I was in foster care.
+ - Even when I lecture per se, I am a joke comedian, I can do the voices.
+ - The Stovepipe is a memoir full of laughter and tears and a moving story of sisterly love as well as their will to survive.
+ - If people have a basic understanding of right from wrong, possess a strong desire to better themselves and persist in there cause, they can break the chain of any negative environment.
+ - I plan my life in 15-minute sections.
+ - I really believe I’m no different from anyone else. I just had a few challenges I had to learn from at a very early age.
+ - I had an attachment disorder.
+ - I buy thousands of books a year.
+ - My fans are buying the DNA of Dave.
+ - Everybody has a tragedy or two in their lives.
+
+35 quotes

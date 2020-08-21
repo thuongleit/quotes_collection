@@ -1,0 +1,21 @@
+ - To understand and be understood, those are among life’s greatest gifts, and every interaction is an opportunity to exchange them.
+ - Because it is possible to create – creating one’s self, willing to be one’s self – one has anxiety. One would have no anxiety if there were no possibility whatever.
+ - Presence is far more intricate and rewarding an art than productivity.
+ - Life is a continual process of arrival into who we are.
+ - In order for us to truly create and contribute to the world, we have to be able to connect countless dots, to cross-pollinate ideas from a wealth of disciplines, to combine and recombine these pieces and build new castles.
+ - Our chronic discomfort with ambiguity – which, ironically, is critical to both our creativity and the richness of our lives – leads us to lock down safe, comfortable, familiar interpretations, even if they are only partial representations of or fully disconnected from reality.
+ - Be curious. Be constantly, consistently, indiscriminatel y curious.
+ - We are a collage of our interests, our influences, our inspirations, all the fragmentary impressions we’ve collected by being alive and awake to the world. Who we are is simply a finely-curated catalogue of those.
+ - Curation is a form of pattern recognition – pieces of information or insight which over time amount to an implicit point of view.
+ - Build pockets of stillness into your life.
+ - This is the power of art: The power to transcend our own self-interest, our solipsistic zoom-lens on life, and relate to the world and each other with more integrity, more curiosity, more wholeheartedness.
+ - There are really cool or funny videos, or visually stunning photos, and that’s fine, but none of them really give you more when you close that tab, you know? I try to find stuff that a little bit, in a tiny way changes how you see something about the world.
+ - What I pick for my blog and what I pick for Twitter are different things. One thing that is true for both, by and large, is that it has to feel like something that leaves you with more than just a moment of gawking.
+ - You enrich people with creative resources, and over time, these Lego bricks that end up in their heads eventually build this enormous, incredible castle.
+ - What is needed isn’t merely tolerance but acceptance, wholehearted and unconditional.
+ - I think you need to be a little in love – not necessarily in a romantic sense, although that helps – but to be in love with the reality of your own life.
+ - But most weeks I’ve gone through 12 books, maybe even 15 some weeks, depending on the length. So I go through my long form, and then my day begins. I usually try to do most of my writing earlier in the day because I sort of lump out later on.
+ - Artist Allen Crawford brings Whitman’s undying text to new life in gorgeous hand-lettering and illustrations, transforming the 60-page poem originally published in 1855 as the centerpiece of Leaves of Grass into a breathtaking 256-page piece of art.
+ - I didn’t really – at least intellectually and creatively – have a particularly compelling experience in college. But during my junior year, they made the TED talks public. So I started listening to them. They were producing one per day, and I was listening to one per day, every day, at the gym.
+
+19 quotes

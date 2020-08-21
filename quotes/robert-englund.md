@@ -1,0 +1,22 @@
+ - The modern horror audience is wise to our tricks this lets it in on the gag.
+ - I wouldn’t want the pressure of a Six Feet Under or the pressure of improvising like Curb Your Enthusiasm.
+ - I get a lot of teenagers going, ‘Yo, Krueger,’ and honking their horn and giving me the claw. Yeah, I’m recognized.
+ - I have friends that are much better actors than I am that had to quit the business because they couldn’t survive the auditions or the rejections, or people just didn’t realize how good they were.
+ - Kids today don’t watch a black and white movie.
+ - Most of my nightmares involve me forgetting my lines in a stage play.
+ - When I was 9, I went to a birthday party. We were supposed to see a cowboy movie, but the programming got screwed up and we saw ‘The Bad Seed’ instead. Horrifying. For years I was frightened of girls with pigtails.
+ - And in Freddy vs. Jason I like when Jason and I double team Destiny’s Child.
+ - I think superheroes today are like whistle blowers.
+ - Gosh, I’d like to direct Our Town on stage.
+ - I would like to see the technology used to explore more period horror genre works, for example, E. A. Poe.
+ - Jeff Bridges taught me a lot about how to keep a scene fresh.
+ - I always serve the writer first because I’m English trained, even though I’m American.
+ - Many great horror stories are period pieces and English actors have a facility for historic characters.
+ - I’m basically a movie actor now, and my big roles are mostly horror movies – unless I’m doing a guest star or something – and occasionally I try to get back into television.
+ - I always get inspiration from whatever characters say about my character.
+ - The last time we had Freddy in reality was part two and Freddy sort of went out on his own.
+ - But it’s mostly about pacing yourself when you do these movies.
+ - Whats great about Freddy in this is when he gets to comment and manipulate the back stories and the fears of the characters – especially with Jason.
+ - I have an Italian comedy at the Venice Film Festival.
+
+20 quotes

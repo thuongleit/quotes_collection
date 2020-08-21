@@ -1,0 +1,111 @@
+ - You never know when you might be seeing someone for the last time.
+ - People don’t acknowledge loneliness in themselves, and don’t appreciate its benefits, the reflection and attentiveness that come with it, the deepened acquaintance with oneself.
+ - Love is holy because it is like grace – the worthiness of its object is never really what matters.
+ - Generosity is also an act of freedom, a casting off of the constraints of prudence and self-interest.
+ - Every sorrow suggests a thousand songs, and every song recalls a thousand sorrows, and so they are infinite in number, and all the same.
+ - There are a thousand thousand reasons to live this life, everyone of them sufficient.
+ - Sometimes I have loved the peacefulness of an ordinary Sunday. It is like standing in a newly planted garden after a warm rain. You can feel the silent and invisible life.
+ - Memory can make a thing seem to have been much more than it was.
+ - I am grateful for all those dark years, even though in retrospect they seem like a long, bitter prayer that was answered finally.
+ - There’s so much to be grateful for, words are poor things.
+ - I owe everything that I have done to the fact that I am very much at ease being alone.
+ - It is diversity that makes any natural system robust, and diversity that stabilizes culture against the eccentricity and arrogance that have so often called themselves reason and science.
+ - It all means more than I can tell you. So you must not judge what I know by what I find words for.
+ - Ordinary things have always seemed numinous to me.
+ - If you had to summarize the Old Testament, the summary would be: stop doing this to yourselves.
+ - Because, once alone, it is impossible to believe that one could ever have been otherwise. Loneliness is an absolute discovery.
+ - These people who can see right through you never quite do you justice, because they never give you credit for the effort you’re making to be better than you actually are, which is difficult and well meant and deserving of some little notice.
+ - Every spirit passing through the world fingers the tangible and mars the mutable, and finally has come to look and not to buy.
+ - This is an interesting planet. It deserves all the attention you can give it.
+ - It felt very good to have him walking beside her. Good like rest and quiet, like something you could live without but you needed anyway. That you had to learn how to miss, and then you’d never stop missing it.
+ - It seems to me people tend to forget that we are to love our enemies, not to satisfy some standard of righteousness but because God their Father loves them.
+ - Weary or bitter of bewildered as we may be, God is faithful. He lets us wander so we will know what it means to come home.
+ - It’s not a man’s working hours that is important, it is how he spends his leisure time.
+ - I have always liked the phrase “nursing a grudge ” because many people are tender of their resentments as of the thing nearest their hearts.
+ - There is more beauty than our eyes can bear, precious things have been put into our hands and to do nothing to honor them is to do great harm.
+ - Nothing true can be said about God from a posture of defense.
+ - I read things like theology, and I read about science, Scientific American and publications like that, because they stimulate again and again my sense of the almost arbitrary given-ness of experience, the fact that nothing can be taken for granted.
+ - You build your mind, so make it into something you want to live with.
+ - Memory is the sense of loss, and loss pulls us after it.
+ - Families will not be broken. Curse and expel them, send their children wandering, drown them in floods and fires, and old women will make songs of all these sorrows and sit on the porch and sing them on mild evenings.
+ - I think the essence of family is that you have to agree to it, and then supply, out of your imagination and capacity for loyalty, the contents of it.
+ - It is possible to know the great truths without feeling the truth of them.
+ - Salvation was universally considered to be much more becoming in women than in men.
+ - We experience pain and difficulty as failure instead of saying, I will pass through this, everyone I have ever admired has passed through this, music has come out of it, literature has come out of it. We should think of our humanity as a privilege.
+ - Grace has a grand laughter in it.
+ - A letter makes ordinary things seem important.
+ - Over my life as a teacher, women have been too quiet. I’m quiet myself. I don’t think I said three words the whole of graduate school.
+ - I’m amazed at what I have taken for granted. How to truly take in our situation I don’t know, but I wish I had started asking myself that question earlier than I did.
+ - I do have an impulse to sort of leverage what I say against something I disagree with.
+ - I don’t know exactly what covetous is, but in my experience it is not so much desiring someone else’s virtue or happiness as rejecting it, taking offense at the beauty of it.
+ - I was read to as a small child, I read on my own as soon as I could, and I recall being more or less overwhelmed again and again – if not by what the books actually said, by what they suggested, what they helped me to imagine.
+ - I experience religious dread whenever I find myself thinking that I know the limits of God’s grace, since I am utterly certain it exceeds any imagination a human being might have of it. God does, after all, so love the world.
+ - The great truth that is too often forgotten is that it is in the nature of people to do good to one another.
+ - Light is constant, we just turn over in it.
+ - Limitation is a good discipline because it discourages inappropriate generalization, which distracts attention from the profound, particular complexity that characterizes anything at all.
+ - I think probably one of the important things that happened to me was growing up in Idaho in the mountains, in the woods, and having a very strong presence of the wilderness around me. That never felt like emptiness. It always felt like presence.
+ - We inhabit, we are part of, a reality for which explanation is much too poor and small.
+ - Now that I look back, it seems to me that in all that deep darkness a miracle was preparing. So I am right to remember it as a blessed time, and myself as waiting in confidence, even if I had no idea what i was waiting for.
+ - God does not need our worship. We worship to enlarge our sense of holy, so that we can feel and know the presense of the Lord, who is with us always. He said, Love is what it amounts to, a loftier love, and pleasure in a loving presence.
+ - The locus of the human mystery is perception of this world. From it proceeds every thought, every art.
+ - It is a good thing to know what it is to be poor, and a better thing if you can do it in company.
+ - When we accept dismissive judgments of our community we stop having generous hope for it. We cease to be capable of serving its best interests.
+ - There was some sort of maze-learning experiment involved in my final grade and since I remember the rat who was my colleague as uncooperative, or perhaps merely incompetent at being a rat, or tired of the whole thing, I don’t remember how I passed.
+ - People talk about how wonderful the world seems to children, and that’s true enough. But children think they will grow into it and understand it, and I know very well that I will not, and would not if I had a dozen lives.
+ - What an embarrassment that was, being somewhere because there was nowhere else for you to be.
+ - I am delighted if people find that kind of sustenance in novels, but perhaps it’s because they don’t read the Scripture that they are comparing it to, which would perhaps provide deeper sustenance than many contemporary novels.
+ - When you encounter another person, when you have dealings with anyone at all, it is as if a question is being put to you. So you must think, What is the Lord asking of me in this moment, in this situation?
+ - A little too much anger, too often or at the wrong time, can destroy more than you would ever imagine.
+ - I do assume that a character or a place is inexhaustible and will always reward further attention.
+ - When things are taking their ordinary course, it is hard to remember what matters.
+ - We are part of a mystery, a splendid mystery within which we must attempt to orient ourselves if we are to have a sense of our own nature.
+ - Science can give us knowledge, but it cannot give us wisdom. Nor can religion, until it puts aside nonsense and distraction and becomes itself again.
+ - A man can know his father, or his son, and there might still be nothing between them but loyalty and love and mutual incomprehension.
+ - Well, but you two are dancing around in your iridescent little downpour, whooping and stomping as sane people ought to do when they encounter a thing so miraculous as water.
+ - She closed one eye and looked at me and said, “I know there is a blessing in this somewhere.” It is worth living long enough to outlast whatever sense of grievance you may acquire. Another reason why you must be careful of your health.
+ - When we did not move or speak, there was no proof that we were there at all.
+ - For me writing has always felt like praying even when I wasn’t writing prayers.
+ - Cultures cherish artists because they are people who can say, Look at that.
+ - It is hardship that makes clear who the “fighters” are.
+ - I believe that reality is vastly richer than the cursory attention we usually give it permits us to understand. I like to write through a consciousness that allows me to suggest something of this richness.
+ - Characters more or less present themselves to me. I don’t know their origins. I think if I did, if I seemed to myself to fabricate them, I could not induce suspension of disbelief in myself in the way writing fiction requires.
+ - Sometimes my doubt seems intuitive, but most likely it derives from an implausibility or a logical problem I may at first find difficult to identify and articulate. It is interesting to me to work through questions that arise in this way.
+ - I can’t believe we will forget our sorrows altogether. That would mean forgetting that we had lived, humanly speaking. Sorrow seems to me to be a great part of the substance of human life.
+ - The mind has a complex life that can seem quite autonomous – dreams, obsessions, unwilled memory are all instances of this.
+ - I hated waiting. If I had one particular complaint, it was that my life seemed composed entirely of expectation.
+ - I would advise you against defensiveness on priciple. it precludes the best eventualities along with the worst. At the most basic level it expresses a lack of faith.
+ - I have found that the characters in my novels stay with me after a book has ended. I know them in some sense. I never map anything out. I just think until I am secure in the voice of one of them, and then let the character unfold.
+ - Fiction that does not acknowledge this at least tacitly is not true.
+ - For our purposes as human beings, the mind is the center of everything.
+ - When something ought to be true then it proves to be a very powerful truth.
+ - The best essays come from the moment in which people really need to work something out.
+ - I want to feel that art is an utterance made in good faith by one human being to another.
+ - I got four volumes of the letters and speeches of Oliver Cromwell. He is prominent among the great unread, and treated so oddly by history that I wanted to hear his side of things.
+ - Any human face is a claim on you, because you can’t help but understand the singularity of it, the courage and loneliness of it. But this is truest of the face of an infant. I consider that to be one kind of vision, as mystical as any.
+ - And often enough, when we think we are protecting ourselves, we are struggling against our rescuer.
+ - Most institutions of higher learning in the West were founded by and for religious denominations. The supposed alienation of education and faith is a recent phenomenon. At the same time, neither education nor the lack of it predisposes one to faith.
+ - I’ve developed a great reputation for wisdom by ordering more books than I ever had time to read, and reading more books, by far, than I learned anything useful from, except, of course, that some very tedious gentlemen have written books.
+ - It saddens me that Christians need to be reminded that awe is owed also to those who disagree with them, who believe otherwise than they do.
+ - There are two occasions when the sacred beauty of Creation becomes dazzlingly apparent, and they occur together. One is when we feel our mortal insufficiency to the world, and the other is when we feel the world’s mortal insufficiency to us.
+ - There are several sources for my appreciation of pastors and the way they are described in this book. One of them is reading history and realizing that they had a profound creative impact on the Middle West and the settlement of the Middle West.
+ - There are worries that seem to me sustained by the love of worry. For example, that people are reading from screens, or listening to recorded books. Why scold the impulse to enjoy language and narrative in whatever form it takes?
+ - Faith takes a great many forms, suited to a variety of sensibilities, and mine happens to suit me very well.
+ - The accessibility and effective immortality of actual information is a magnificent phenomenon, a beautiful extension of human consciousness. It is too bad people find so many ways to abuse the internet, but that’s just how things are.
+ - That’s one good thing about the way life is, that no one can know you if you don’t let them.
+ - I listen to Bach a great deal. In general I like to listen to hymns and liturgical music.
+ - I like a book to be full of the memory of what it is, a voice in an endless conversation, and yet at the same time to be new.
+ - It is one of the best traits of good people that they love where they pity. And this is truer of women than of men.
+ - I did go through graduate school and I like to do research, to create something that has a certain objective solidity. The same thing influences my fiction to some degree, because, you know, my fiction is often based on history that I’ve read.
+ - In eternity this world will be like Troy, I believe, and all that has passed here will be the epic of the universe, the ballad they sing in the streets.
+ - I think the attempt to defend belief can unsettle it, in fact, because there is always an inadequacy in argument about ultimate things.
+ - You have to live with your mind your whole life.
+ - Fact explains nothing. On the contrary, it is fact that requires explanation.
+ - This morning the world by moonlight seemed to be an immemorial acquaintance I had always meant to befriend. If there was ever a chance, it had passed. Strange to say, I feel a little that way about myself.
+ - More generally, people who lived in a period when maternal, infant and childhood mortality were still high would have been tougher than most of us can imagine.
+ - I wrote almost all of it in the deepest hope and conviction. Sifting my thoughts and choosing my words. Trying to say what was true. And I’ll tell you frankly, that was wonderful.
+ - Vision sometimes comes in a memory.
+ - That is to say, I pray for you. And there’s an intimacy in it. That’s the truth.
+ - The old man always said we should attend to the things we have some hope of understanding, and eternity isn’t one of them. Well, this world isn’t one either.
+ - It was a source of both terror and comfort to me then that I often seemed invisible – incompletely and minimally existent, in fact. It seemed to me that I made no impact on the world, and that in exchange I was privileged to watch it unawares.
+
+109 quotes

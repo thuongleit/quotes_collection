@@ -1,0 +1,50 @@
+ - So if I have two pieces of cake, do I have twice as good an experience as the first piece of cake? One of the things I’ve found in life is that the first piece of cake is the best.
+ - If we say something often enough, we come to believe it. We don’t usually delude others until after we have first deluded ourselves.
+ - In journalism I can only tell what happened. In fiction, I can show it.
+ - World War II proved a hypothesis that Alexis de Tocqueville advanced a century before: the war-fighting potential of a democracy is at its greatest when war is most intense; at its weakest when war is most limited. This is a lesson with enduring relevance to our own times – and our own wars.
+ - More Irishmen died fighting for Britain in World War I than died fighting against her in all of Ireland’s bids for independence combined.
+ - The Iraq fight itself is probably going to go very, very fast. The shooting should be over within just a very few days from when it starts.
+ - Life, as the signs in the liquor stores say, is too short to drink bad wine. And summer is too short to read bad books.
+ - Think tanks do have points of view, and they are absolutely entitled to defend them.
+ - I’m a latecomer to the environmental issue, which for years seemed to me like an excuse for more government regulation. But I can see that in rich societies, voters are paying less attention to economic issues and more to issues of the spirit, including the environment.
+ - To balance China, the democracies will need new friends – and India with its fast-growing economy, youthful population, and democratic politics seems the obvious candidate.
+ - The thing that sustains a strong Fox network is the thing that undermines a strong Republican party.
+ - One can shape history as much through the facts one omits as through the facts one includes.
+ - A presidential speech is always the work of many hands.
+ - Republicans have been fleeced and exploited and lied to by a conservative entertainment complex.
+ - Maybe it’s true that people with less extreme views who are also interested in public affairs have been driven out by a marketplace that doesn’t offer them anything of the tone they want to listen to.
+ - An American-led overthrow of Saddam Hussein – and the replacement of the radical Baathist dictatorship with a new government more closely aligned with the United States would put America more wholly in charge of the region than any power since the Ottomans, or maybe even the Romans.
+ - Nobody ever won an election by spitting at his political opponents.
+ - What I say is I am somebody who cares about conservative ideas. I want to see them implemented in governance.
+ - Impostor: How George W. Bush Bankrupted America and Betrayed the Reagan Legacy.
+ - Republicans originally thought that Fox worked for us, and now we are discovering we work for Fox.
+ - There are a lot of wonderful people in America who shouldn’t be on the Supreme Court – and a lot who should be on the court who aren’t such wonderful people.
+ - My mother cared more about how you reasoned than about the conclusions you reached.
+ - If right and left are competing to be the biggest victim, who is competing to be the government?
+ - Those who seem to despise half of America will never be trusted to govern any of it. Those who cherish only the country’s past will not be entrusted with its future.
+ - My mom was truly an iconic figure, a great journalist and a pioneering woman who died at 54 of cancer without ever having revealed to viewers that she was ill.
+ - We, as conservative intellectuals, should not be in the business of making excuses for bad parliamentary decisions by Republican leaders in Congress.
+ - Look, the media are trapped by changes in the technology and business of their industry.
+ - I am really and truly frightened by the collapse of support for the Republican Party by the young and the educated.
+ - The five million people who watch cable news are the political nation, the people who really care.
+ - People need to understand that in Washington, the process is the punishment.
+ - Events don’t happen because I write a speech. I am allowed to write a speech because events are going to happen.
+ - The elite isn’t leading anymore. It’s trapped.
+ - America under 30 is a more non-whites place than America over 60. And we know that non-whites and whites vote differently.
+ - My view on candidates on money is unless it’s proven that the donor stole the money, the campaign keeps the money.
+ - The great power the president has is that he is the most prominent person in the biggest media event on the planet. He has the attention of the nation and the world. When he speaks, everybody listens.
+ - Partly because of the desperate economic situation in the country, what were once the leading institutions of conservatism are constrained.
+ - Speech writers are more vulnerable to vanity than any other group of people in Washington.
+ - Why should we not expect self-designated environmental leaders to practice what they preach?
+ - People who want to wage cultural wars ought to keep in mind that cultural views often don’t move at all for a very long time, but when they move they can move very fast.
+ - Journalism can go right up to the door of the room in which the decisions are made. A novel can go inside the room – and inside the character’s heads.
+ - There is no right to work in a think tank, and these are very privileged positions.
+ - Republicans have to move to a point of greater unity.
+ - Whenever you discuss politics, it is always better to use individual names rather then the term neocon.
+ - As thrilling as it was, speechwriting is ultimately frustrating for someone who wants to be a writer.
+ - People who watch a lot of Fox come away knowing a lot less about important world events.
+ - The big winners under the American fiscal system are the rich, who pay some of the lowest taxes anywhere in the world; the old, who are the main beneficiaries of the American social service state; farmers, rural people. These are Republican constituencies.
+ - We’ve all been wrong- I certainly have- and we should thank those who set us right. Not always fun, but always best in the end.
+ - A novel makes it possible to understand not just events, but the people who control the events; not only their choices, but also their motives.
+
+48 quotes

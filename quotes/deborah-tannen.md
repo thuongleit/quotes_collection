@@ -1,0 +1,42 @@
+ - Male-female conversation is cross-cultural communication.
+ - We tend to look through language and not realize how much power language has.
+ - Cooperation isn’t the absence of conflict but a means of managing conflict.
+ - To say that a person feels listened to means a lot more than just their ideas get heard. It’s a sign of respect. It makes people feel valued.
+ - The biggest mistake is believing there is one right way to listen, to talk, to have a conversation – or a relationship.
+ - Words can be like weapons of destruction: It takes so much effort, and the cooperation of so many people, to build something – and so little effort of so few to tear it down.
+ - Each person’s life is lived as a series of conversations.
+ - The key to conversation at work is flexibility and understanding how what you say might be perceived by others.
+ - The allure of love is to have someone who knows you so well that you don’t have to explain yourself. It is the promise of someone who cares enough about you to protect you against the world of strangers who do not wish you well.
+ - More men feel comfortable doing “public speaking,” while more women feel comfortable doing “private” speaking.
+ - Communication is a continual balancing act, juggling the conflicting needs for intimacy and independence. To survive in the world, we have to act in concert with others, but to survive as ourselves, rather than simply as cogs in a wheel, we have to act alone.
+ - False dichotomies are often at the heart of discord.
+ - Treating people the same is not equal treatment if they are not the same.
+ - The chivalrous man who holds a door open or signals a woman to go ahead of him when he’s driving is negotiating both status and connection.
+ - We all know we are unique individuals, but we tend to see others as representatives of groups.
+ - If women are often frustrated because men do not respond to their troubles by offering matching troubles, men are often frustrated because women do.
+ - For most women, the language of conversation is primarily a language of rapport: a way of establishing connections and negotiating relationships.
+ - Saying that men talk about baseball in order to avoid talking about their feelings is the same as saying that women talk about their feelings in order to avoid talking about baseball.
+ - Though all humans need both intimacy and independence, women tend to focus on the first and men on the second. It is as if their lifeblood ran in different directions.
+ - Many men honestly do not know what women want, and women honestly do not know why men find what they want so hard to comprehend and deliver.
+ - Some days you just want to get dressed and go about your business. But if you’re a woman, you can’t, because there is no unmarked woman.
+ - The desire for freedom and independence becomes more of an issue for many men in relationships, whereas interdependence and connection become more of an issue for many women.
+ - It can be the best of relationships and the worst of relationships – often at the same time. The bond between a mother and daughter is one of the strongest, but it’s also among the most complicated.
+ - Communication is a continual balancing act, juggling the conflicting needs for intimacy and independence.
+ - But if you parry individuals points – a negative and defensive enterprise – you never step back and actively imagine a world in which a different system of ideas could be true – a positive act.
+ - Critiquing relieves you of the responsibility of doing integrative thinking.
+ - Many women feel it is natural to consult with their partners at every turn, while many men automatically make more decisions without consulting their partners.
+ - Public discourse requires making an argument for a point of view, not having an argument – as in having a fight.
+ - When those closest to us respond to events differently than we do, when they seem to see the same scene as part of a different play, when they say things that we could not imagine saying in the same circumstances, the ground on which we stand seems to tremble and our footing is suddenly unsure.
+ - When people realize that in the long run you may be turning off the audiences more, even though they will look temporarily – in the end they turn away, we really need to develop other metaphors and not talk about two sides, but talk about all sides.
+ - Part of the reason images of women in positions of authority are marked by their gender is that the very notion of authority is associated with maleness.
+ - In dialogue, there is opposition, yes, but no head-on collision. Smashing heads does not open minds.
+ - It’s our tendency to approach every problem as if it were a fight between two sides. We see it in headlines that are always using metaphors for war. It’s a general atmosphere of animosity and contention that has taken over our public discourse.
+ - Girls are not accustomed to jockeying for status in an obvious way; they are more concerned that they be liked.
+ - Each underestimates her own power and overestimates the other’s.
+ - All conversation, in addition to whatever else it does, displays, and asks for recognition of, our competence.
+ - Life is a matter of dealing with other people, in little matters and cataclysmic ones, and that means a series of conversations.
+ - Like most men, my father is interested in action. And this is why he disappoints my mother when she tells him she doesn’t feel well and he offers to take her to the doctor. He is focused on what he can do, whereas she wants sympathy.
+ - Relationships are made of talk – and talk is for girls and women.
+ - In an ongoing relationship, each current criticism packs the punches of all the others that have gone before.
+
+40 quotes

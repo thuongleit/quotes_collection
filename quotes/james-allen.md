@@ -1,0 +1,65 @@
+ - Self-control is strength. Right thought is mastery. Calmness is power.
+ - As a man thinketh in his heart, so shall he be.
+ - You are today where your thoughts have brought you; you will be tomorrow where your thoughts take you.
+ - He who would accomplish little need sacrifice little; he who would achieve much must sacrifice much. He who would attain highly must sacrifice greatly.
+ - Men are anxious to improve their circumstances, but are unwilling to improve themselves; they therefore remain bound.
+ - There can be no progress, no achievement without sacrifice.
+ - The greatest achievement was at first and for a time a dream. The oak sleeps in the acorn, the bird waits in the egg, and in the highest vision of the soul a waking angel stirs. Dreams are the seedlings of realities.
+ - In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result.
+ - The vision that you glorify in your mind, the Ideal that you enthrone in your heart – this you will build your life by, this you will become.
+ - A person is limited only by the thoughts that he chooses.
+ - Circumstance does not make the man; it reveals him to himself.
+ - As the physically weak man can make himself strong by careful and patient training, so the man of weak thoughts can make them strong by exercising himself in right thinking.
+ - A man is literally what he thinks, his character being the complete sum of all his thoughts.
+ - As he thinks, so he is; as he continues to think, so he remains.
+ - Men do not attract that which they want, but that which they are.
+ - Mind is the master weaver, both of the inner garment of character and the outer garment of circumstance.
+ - You will become as small as your controlling desire; as great as you dominant aspiration.
+ - To desire is to obtain; to aspire is to achieve.
+ - No man is hindered by another; he is only hindered by himself. No man suffers because of another; he suffers only because of himself.
+ - A strong man cannot help a weaker unless the weaker is willing to be helped, and even then the weak man must become strong of himself; he must, by his own efforts, develop the strength which he admires in another. None but himself can alter his condition.
+ - The key to happiness is having dreams; the key to success is making them come true.
+ - The dreamers are the saviors of the world.
+ - The soul attracts that which it secretly harbors; that which it loves, and also that which it fears.
+ - A man can only rise, conquer, and achieve by lifting up his thoughts.
+ - Suffering is always the effect of wrong thought in some direction. It is an indication that the individual is out of harmony with himself, with the Law of his being.
+ - Man’s mind may be likened to a garden, which may be intelligently cultivated or allowed to run wild.
+ - The outer conditions of a person’s life will always be found to reflect their inner beliefs.
+ - Thought is the fountain of action, life and manifestation; make the fountain pure, and all will be pure.
+ - As the plant springs from, and could not be without, the seed, so every act of man springs from the hidden seeds of thought, and could not have appeared without them.
+ - Man is made or unmade by himself. In the armory of thought he forges the weapons by which he destroys himself. He also fashions the tools with which he builds for himself heavenly mansions of joy and strength and peace.
+ - He who cherishes a beautiful vision, a lofty ideal in his heart, will one day realize it.
+ - A particular train of thought persisted in, be it good or bad, cannot fail to produce its results on the character and circumstances. A man cannot directly choose his circumstances, but he can choose his thoughts, and so indirectly, yet surely, shape his circumstances.
+ - There can be no progress nor achievement without sacrifice, and a man’s worldly success will be by the measure that he sacrifices his confused animal thoughts, and fixes his mind on the development of his plans, and the strengthening of his resolution and self-reliance.
+ - Act is the blossom of thought; and joy and suffering are its fruits; thus does a man garner in the sweet and biter fruitage of his own husbandry.
+ - Think lovingly, speak lovingly, act lovingly, and every need shall be supplied.
+ - Your circumstances may be uncongenial, but they shall not long remain so if you but perceive an Ideal and strive to reach it.
+ - Man is buffeted by circumstances so long as he believes himself to be the creature of outside conditions, but when he realizes that he is a creative power, and that he may command the hidden soil and seeds of his being out of which circumstances grow, he then becomes the rightful master of himself.
+ - The body is the servant of the mind. It obeys the operations of the mind, whether they be deliberately chosen or automatically expressed.
+ - The man who thinks hateful thoughts brings hatred upon himself. The man who thinks loving thoughts is loved.
+ - The soul attracts that which it secretly harbors; that which it loves, and also that which it fears. It reaches the height of its cherished aspirations. It falls to the level of its unchastened desires – and circumstances are the means by which the soul receives its own.
+ - He thinks in secret, and it comes to pass: environment is but his looking glass.
+ - The will to do springs from the knowledge that we can do.
+ - Every action and feeling is preceded by a thought.
+ - Fixedness of purpose is the root of all successful efforts.
+ - A noble and God-like character is not a thing of favor or chance, but is the natural result of continued effort in right thinking, the effect of long-cherished association with God-like thoughts.
+ - The circumstances which a man encounters with suffering are the result of his own mental inharmony.
+ - The within is ceaselessly becoming the without. From the state of a man’s heart doth proceed the conditions of his life; his thoughts blossom into deeds, and his deeds bear the fruitage of character and destiny.
+ - Man, as a spiritual being, cannot be maintained in strength, uprightness, and peace except if he periodically withdraw himself from the outer world of perishable things and reach inwardly towards the abiding and imperishable realities.
+ - Spiritual meditation is the pathway to Divinity. It is a mystic ladder which reaches from earth to heaven, from error to Truth, from pain to peace.
+ - If you would perfect your body, guard your mind.
+ - When mental energy is allowed to follow the line of least resistance and to fall into easy channels, it is called weakness.
+ - The man who cannot endure to have his errors and shortcomings brought to the surface and made known, but tries to hide them, is unfit to walk the highway of truth.
+ - Good thoughts bear good fruit, bad thoughts bear bad fruit.
+ - A man remains ignorant because he loves ignorance, and chooses ignorant thoughts; a man becomes wise because he loves wisdom and chooses wise thoughts.
+ - Cease to be a disobedient child in the school of experience, and begin to learn, with humility and patience, the lessons that are set for your ultimate perfection.
+ - Do not dwell upon the sins and mistakes of yesterday so exclusively as to have no energy and mind left for living rightly today, and do not think that the sins of yesterday can prevent you from living purely today.
+ - The dreamers are the saviors of the world. As the visible world is sustained by the invisible, so men, through all their trials and sins and sordid vocations, are nourished by the beautiful visions of their solitary dreamers.
+ - And I may stand where health, success, and power Await my coming, if, each fleeting hour I cling to love and patience; and abide With stainlessness; and never step aside From high integrity; so shall I see At last the land of immortality.
+ - He who would be useful, strong, and happy must cease to be a passive receptacle for the negative, beggarly, and impure streams of thought.
+ - Thus meditating you will no longer strive to build yourself up in your prejudices, but, forgetting self, you will remember only that you are seeking the Truth.
+ - As there are silent depths in the ocean which the fiercest storm cannot reach, so there are silent, holy depths of the hearts of people which the storm of sin and sorrow can never disturb. To reach this silence and to live consciously in it is peace.
+ - Jesus brooded upon the Divine imminence until at last he could declare, ‘I and my Father are One.’
+ - Nature gives all, without reservation, and loses nothing; man or woman, grasping all, loses everything.
+
+63 quotes

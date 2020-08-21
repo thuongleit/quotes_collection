@@ -1,0 +1,42 @@
+ - Light up the darkness. ~~Bob Marley
+ - Don’t criticize what you can’t understand. ~~Bob Dylan
+ - The perfect song on the perfect drive to make you feel infinite. ~~Stephen Chbosky
+ - Most men lead lives of quiet desperation and go to the grave with the song still in them. ~~Henry David Thoreau
+ - We gonna touch the sky. ~~Kanye West
+ - Do you hear the people sing? Singing a song of angry men. ~~Victor Hugo
+ - For all its material advantages, the sedentary life has left us edgy, unfulfilled, even after 400 generations in villages and cities, we haven’t forgotten: The open road still softly calls like a nearly forgotten song of childhood. ~~Carl Sagan
+ - Without language, one cannot talk to people and understand them; one cannot share their hopes and aspirations, grasp their history, appreciate their poetry, or savor their songs. ~~Nelson Mandela
+ - Because you’re mine, I walk the line. ~~Johnny Cash
+ - Love is the Song of the Soul singing to God. ~~Paramahansa Yogananda
+ - Every day we should hear at least one little song, read one good poem, see one exquisite picture, and, if possible, speak a few sensible words. ~~Johann Wolfgang von Goethe
+ - The first flower that blossomed on this earth was an invitation to an unborn song. ~~Rabindranath Tagore
+ - May your heart always be joyful. May your song always be sung. ~~Bob Dylan
+ - Whoever says that all music is prohibited, let him also claim that the songs of birds are prohibited. ~~Al-Ghazali
+ - The song is ended, but the melody lingers on... ~~Irving Berlin
+ - Yoga is when every cell of the body sings the song of the soul... ~~B.K.S. Iyengar
+ - Strumming my pain with his fingers, singing my life with his words, killing me softly with his song. ~~Roberta Flack
+ - Prayer is the song of the heart. It reaches the ear of God even if it is mingled with the cry and the tumult of a thousand men. ~~Khalil Gibran
+ - Everyone wants to understand art. Why don’t we try to understand the song of a bird? Why do we love the night, the flowers, everything around us, without trying to understand them? But in the case of a painting, people think they have to understand. ~~Pablo Picasso
+ - I am just a dreamer, but you are just a dream. ~~Neil Young
+ - Next to the Word of God, music deserves the highest praise. The gift of language combined with the gift of song was given to man that he should proclaim the Word of God through Music. ~~Martin Luther
+ - Our sweetest songs are those that tell of saddest thought. ~~Percy Bysshe Shelley
+ - I’m glad we had the times together just to laugh and sing a song, seems like we just got started and then before you know it, the times we had together were gone. ~~Dr. Seuss
+ - We look before and after, And pine for what is not; Our sincerest laughter With some pain is fraught; Our sweetest songs are those that tell of saddest thought. ~~Percy Bysshe Shelley
+ - The poem, the song, the picture, is only water drawn from the well of the people, and it should be given back to them in a cup of beauty so that they may drink – and in drinking understand themselves. ~~Federico García Lorca
+ - I can’t sing a love song Like the way it’s meant to be Well, I guess I’m not that good anymore But baby, that’s just me. ~~Jon Bon Jovi
+ - Three chords and the truth – that’s what a country song is. ~~Willie Nelson
+ - Give me songs to sing and emerald dreams to dream and I’ll give you love unfolding. ~~Jim Morrison
+ - And then to sleep with a prayer for the beloved in your heart and a song of praise upon your lips. ~~Khalil Gibran
+ - I am circling around God, around the ancient tower, and I have been circling for a thousand years, and I still don’t know if I am a falcon, or a storm, or a great song. ~~Rainer Maria Rilke
+ - It’s not those who write the laws that have the greatest impact on society. It’s those who write the songs. ~~Blaise Pascal
+ - Sometimes, I look outside, and I think that a lot of other people have seen this snow before. Just like I think that a lot of other people have read those books before. And listened to those songs. I wonder how they feel tonight. ~~Stephen Chbosky
+ - The great thing about a song is that no one has to know your story. But if you tell it in a way that has clarity and means something to somebody else, then it can apply to their story. ~~Amy Grant
+ - Done laid around, done stayed around This old town too long And it seems like I’ve got to travel on. ~~Bob Dylan
+ - There is the happiness which comes from creative effort. The joy of dreaming, creating, building, whether in painting a picture, writing an epic, singing a song, composing a symphony, devising new invention, creating a vast industry. ~~Henry Miller
+ - Louis Armstrong’s ‘What a Wonderful World’ is my ultimate karaoke song. It is a wonderful world. People forget we only have a certain amount of time, and it can all end at any moment. Armstrong and Frank Sinatra’s ‘My Way’ are the ultimate one-two punch. ~~Dhani Jones
+ - Every heart sings a song, incomplete, until another heart whispers back. Those who wish to sing always find a song. At the touch of a lover, everyone becomes a poet. ~~Plato
+ - I want a storm to come and flood us into a song that no one wrote. ~~Frida Kahlo
+ - I have a creative mind, so if I listen to the song, I have an idea, I thought of five or six months ago, I’ll bring it back into the playing field. I can tweak ideas or make them better. Just come up with something and then we go from there. ~~Chris Brown
+ - People ask me what’s like to hear our song on the radio. I don’t know, I don’t listen to the radio. ~~Kurt Cobain
+
+40 quotes

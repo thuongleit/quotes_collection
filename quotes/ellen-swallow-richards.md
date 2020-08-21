@@ -1,0 +1,26 @@
+ - The environment that people live in is the environment that they learn to live in, respond to, and perpetuate. If the environment is good, so be it. But if it is poor, so is the quality of life within it.
+ - Home Economics stands for the ideal home life for today unhampered by the traditions of the past and the utilization of all the resources of modern science to improve home life.
+ - If you keep your feathers well oiled the water of criticism will run off as from a duck’s back.
+ - You cannot make women contented with cooking and cleaning and you need not try.
+ - The unwilling mind is not a teachable mind.
+ - Perhaps the fact that I am not a Radical or a believer in the all powerful ballot for women to right her wrongs and that I do notscorn womanly duties, but claim it as a privilege to clean up and sort of supervise the room and sew things, etc., is winning me stronger allies than anything else.
+ - The quality of life depends upon the ability of society to teach it’s members how to live in harmony with their environment-def ined first as family, then the community, then the world and its resources.
+ - It is cruelty to children to keep five-year-olds sitting still, gazing into vacancy even for one hour at a time. We have little idea of the torture we thus inflict.
+ - It is cowardly to fly from natural duties and take up those that suit our taste or temperament better; but it is also unwise to take an exaggerated view of personal duties, which shuts out the proper care of the mind and body entrusted to us.
+ - I had been in the hurrying waters too long not to appreciate an opportunity to lie on the bank and rest, watch others, and gain strength for the coming years.
+ - New England is the home of all that is good and noble with all her sternness and uncompromising opinions.
+ - I prefer surveying for a week to spending a week in fashionable society even of the best class.
+ - One of the greatest faults of the women of the present time is a silly fear of things, and one object of the education of girls should be to give them knowledge of what things are really dangerous.
+ - Work is a sovereign remedy for all ills, and a man who loves to work will never be unhappy.
+ - I am succeeding quite well in my work and the future looks well. What special mission is God preparing me for? Cutting off all earthly ties and isolating me as it were.
+ - Subject the material world to the higher ends by understanding it in all its relations to daily life and action.
+ - I wish the women’s rights folks would be more sensible. I think women have a great deal to learn, before they are fit to vote.
+ - A political place with no power, only influence, is not to my taste.
+ - A sense of power is the most intoxicating stimulant a mortal can enjoy...
+ - I hope that I am winning a way which others will keep open.
+ - The world moves, but we seem to move with it. When I studied physiology beforethere were two hundred and eight bones in the body. Now there are two hundred and thirty- eight.
+ - We never can tell how our lives may work to the account of the general good, and we are not wise enough to know if we have fulfilled our mission or not.
+ - If it is a relief to take your clothes off at night, be sure that something is wrong. Clothes should not be a burden. They shouldbe a comfort and a protection.
+ - The most conventional customs cling to the table. Farmers who wouldn’t drive a horse too hard expect pie three times a day.
+
+24 quotes

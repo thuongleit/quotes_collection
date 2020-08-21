@@ -1,0 +1,50 @@
+ - Your body’s made to run, to walk, to trek long distances and carry things, work in a forest, and hunt animals. You have to keep it alive to function.
+ - My problem is that people get intimidated by someone big and beautiful like me. They hate to think I can be smart as well.
+ - Everybody’s life has some mythical quality. You struggle against obstacles, you fight to get to a higher level and there are great loves.
+ - I think mortality makes you live a fuller existence. When I was a kid I was scared of death, and maybe that’s what made me desperate to get the most out of life.
+ - At least once a week, I try to have one day where I have nothing planned so I can get up and just go back to bed and lay around and recharge my batteries.
+ - I prefer to channel my problems and inner demons through a character. Another persona. That protects me and my family. I can get my frustrations out that way.
+ - I think by planning an exercise regime, your diet follows to some extent.
+ - When you are acting in a film, you have no idea what scene the editor is going to choose. For instance, after you have directed, you feel more comfortable delivering a performance. Because you know the real performance is put together in the editing room.
+ - I do a little bit of yoga-style meditation. Relaxing and breathing even just one minute a day makes a big difference.
+ - People like to lay their whole life, and all of their own secrets out in front of the world. They make money off of it, and find satisfaction that way. I personally don’t believe in that. I think it can be hurtful to yourself and those around you.
+ - My sensei was a British karate champion named Brian Fitkin. He was my mentor and because I had a hard relationship with my dad, he became a father figure to me.
+ - There are a lot of great athletes who stop working out, and they get out of shape like everybody else in their 30s and 40s.
+ - I wanted to become an engineer, or get a masters in business. But I had the opportunity to do films when I was about 25 and it was a great way to express myself.
+ - I try to keep the martial arts up. It’s a good thing, not just physically but also for your mind.
+ - I’ve actually always been into suits. But I never really wore them, I guess because I was too young and it didn’t feel right.
+ - When I started studying acting in New York, I didn’t plan to be an action hero. I just wanted to learn acting because I felt it was something I needed to try to do for myself, to express something, my inner pain, or something I couldn’t get out.
+ - I do weights a few times a week. Not a lot of heavy weights. I do it just to keep my muscle toned. I do some sparring. If I get a chance, I will go swimming or running in-between. I keep in pretty good shape between films.
+ - Hollywood is great for entertaining people, it’s a wonderful business but it’s make-believe, you must remember that. That’s one of the most important things to remember and the distinction in your own life, otherwise people get lost in their own fame, and it makes them unhappy.
+ - I’m not going to freeze my body. One life is enough for me. Some people take this gamble. That someone will be able to bring them back in the future. I’m not going to do it.
+ - One day you’ll understand the sheer awesomeness that is me.
+ - I suppose I will try to enjoy my life now while I have it. Who knows what’s going to happen in the future?
+ - My dad was in the Swedish armed forces, he was always reading up on different weapons from the Americans and Soviets. When I was a kid, I was in bed looking at his books, reading about the Red Army. So I was very aware of it. I had an interest in military matters ever since.
+ - When I was a teenager, my dad used to put a lot of pressure on me to be successful, and I’d really beat myself up about things like losing martial arts competitions.
+ - Karate has helped me lots, otherwise I might have got lost in substance abuse or something like the things a lot of other people do.
+ - Nicolas Cage is a great actor and he’s done some good action movies too.
+ - As a hero, you have to play it straight. The audience is going to live through you, so you have to be more neutral. They will be projecting their thoughts and their actions onto the main character.
+ - I like being the villian. I don’t know if it has to do with my personality. You get to have a lot more fun as a villian. You don’t have to stick to the rules. You can be a lot crazier. You can go off the rails.
+ - I used to play drums when I was a kid, play the trombone.
+ - The acting style that has emerged from HD, because of the contrast and how sharp the picture is, it’s more neutrally played. The main character is very minamalistic. That’s what works in this digital age.
+ - Jackie Chan, I’ve known him, he’s a great guy. I know he’s very watchable and fun. He’s perfect, actually.
+ - You realize as a director that when you are cutting a film, you want to have alternatives. You need color and choices. You don’t want four takes that are identical.
+ - If I need to bulk up for a role, I will do more weights. If I need to slim down for something, I will do more cardio. That’s usually how it goes.
+ - I never came with a conscious plan to replace anyone else. Stallone does feel that way. He is a real tough guy in real life, and he gets to act that out. If you meet him and work with him, he is what he is. He is a guy that works out every day.
+ - I like Stallone, because he writes. He sits down with a blank page and comes up with another Rambo movie. That isn’t very easy for anybody. He’s made it successful on top of that.
+ - Having bodyguards is just part of being famous, I think.
+ - Stallone is a pretty tough director. You don’t mess with him.
+ - I train about four or five times a week. I guess I am addicted to it. I also do a lot of martial arts. More than I have done in awhile. I like to go back to martial arts because it makes me feel good.
+ - You can’t give someone five hundred punches in a film anymore. You beat on them, and they continue to stand there staring at you. That doesn’t work. People just don’t buy that anymore.
+ - When I got cast in ‘Rocky IV,’ I had never seen a film camera before. And here I was in this boxing movie.
+ - Stallone is a great writer. He wrote one of the best screenplays ever written. Rocky. It is one of the biggest classics of all time. I think in the past, he was shying away from writing his own stuff, because there is a lot of pressure when you star in something that you write.
+ - First the movie, the actual playing of the role and trying to deliver what everybody wanted. Then, when the film came out, there was instant fame. I was just a kid from Sweden, I didn’t know what was going on.
+ - I would think that the drumstick is probably pretty good. Because you can put that anywhere. If you are a strong guy, you can put it in the throat, the nose, the mouth, the ear. It’s also easily concealed. The guitar is pretty good, but you have to break it. And that’s pretty difficult.
+ - I was very sickly as a kid and had a lot of allergies, so martial arts gave me the chance to feel strong.
+ - I think the violence is important. It all depends on the genre. Rambo was ultra-violent, and I think it worked. You have to give Stallone credit. You have to respect him for taking that shot, and taking the violence all the way. He was the first one to do that in a long time. It fricking worked.
+ - Film is about what you are thinking. It’s about what’s inside.
+ - When I was a kid, I was like everyone else: afraid of getting nuked. We had drills in school – Sweden was very close to the Soviet Union. There was definitely a lot of tension.
+ - You get a bigger paycheck if you are the hero. There is something good about it.
+ - I discovered martial arts, first judo and then karate, and I became quite good at it, because I had something to prove. And more than anything, I needed to feel safe.
+
+48 quotes

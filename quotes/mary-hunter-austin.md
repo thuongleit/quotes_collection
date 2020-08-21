@@ -1,0 +1,27 @@
+ - When a woman ceases to alter the fashion of her hair, you guess that she has passed the crisis of her experience.
+ - For all the toll the desert takes of a man it gives compensations, deep breaths, deep sleep, and the communion of the stars.
+ - It is no use trying to improve on children’s names for wildflowers.
+ - The real wonder is not that one man should be a genius, but that every man should not be.
+ - This is the sense of the desert hills, that there is room enough and time enough.
+ - Ride your emotions as the shallop rides the waves; don’t get upset among them. There are people who enjoy getting swamped emotionally, just as, incredibly, there are people who enjoy getting drunk.
+ - Man is a great blunderer going about in the woods, and there is no other except the bear makes so much noise.
+ - I am not sure that God always knows who are his great men; he is so very careless of what happens to them while they live.
+ - No man can be stronger than his destiny.
+ - Even the people who have it do not definitely know what genius is.
+ - Death by starvation is slow.
+ - It is always so much easier to be moral than it is to be spiritual.
+ - Man learned to resort to the dance when he felt helpless or fragmentary, when he felt dislocated in his universe.
+ - Probably we never fully credit the interdependence of wild creatures, and their cognizance of the affairs of their own kind.
+ - I suppose no man becomes a pocket hunter by first intention.
+ - The manner of the country makes the usage of life there, and the land will not be lived in except in its own fashion.
+ - To underestimate one’s thirst, to pass a given landmark to the right or left, to find a dry spring where one looked for running water – there is no help for any of these things.
+ - Life set itself to new processions of seed-time and harvest, the skin newly turned to seasonal variations, the very blood humming to new altitudes.
+ - Genius may be for an hour or a thousand years; its indispensable quality is continuity with the life-push.
+ - Over the tops of it, beginning to dusk under a young white moon, trailed a wavering ghost of smoke, and at the end of it I came upon the Pocket Hunter making a dry camp in the friendly scrub.
+ - Nothing the desert produces expresses it better than the unhappy growth of the tree yuccas.
+ - All mountain streets have streams to thread them, or deep grooves where a stream might run. You would do well to avoid that range uncomforted by singing floods. You will find it forsaken of most things but beauty and madness and death and God.
+ - You have to beat out for yourself many mornings on the windy headlands the sense of the fact that you get the same rainbow in the cloud drift over Waban and the spray of your garden hose. And not necessarily then do you live up to it.
+ - In the common esteem, not only are the only good aboriginals dead ones, but all aboriginals are either sacred or contemptible according to the length of time they have been dead.
+ - I suppose that Italy must always lie like some lovely sunken island at the bottom of all passionate dreams, from which at the flood it may arise; the air of it is charged with subtle essences of romance. One supposes Italy must be organized for the need of lovers.
+
+25 quotes

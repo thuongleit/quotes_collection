@@ -1,0 +1,36 @@
+ - Beginnings come at random but endings always have a reason.
+ - I don’t have dreams. How can I say it? I myself am a dream.
+ - Because we want the same happiness We keep carving the same wounds onto our hearts. Forever, forever So I won’t forget you I call you over and over again Please don’t cry any more I won’t leave you alone.
+ - Slowly, I’ve come to realize That I cannot heal my past And that fearing the unavoidable future Is pointless.
+ - When I lost my way, and When the road was too long, I was muttering to myself. Life is just that way...
+ - Remember, once more how our world should be. And please, don’t forget, please, please don’t forget.
+ - I guess the very first thing is to own your true self, and that includes achieving the point of not lying to others; the first step should be not lying to yourself.
+ - Certainly everyone, in order to protect love, Certainly wishes to believe in something.
+ - I don’t know my future. I don’t know about tomorrow. I can just control for today or present, right now. I don’t want to think about future too much, because present is most important for me.
+ - If you were alone and suddenly became blind, and even so you keep walking forward.
+ - In the beginning, I was searching for myself in my music. My music was for me. I didn’t have the mental room to be conscious of the listener; I wrote to save myself.
+ - If you are afraid of changes Watch from a distance Whether or not I might do something If you’re going to talk about me behind my back It is what it is.
+ - The lovers, appearing happy, walk, holding hands. Though it appears everything is perfect, only they know the truth.
+ - No matter how far apart we are, don’t forget that we’re still under the same sky, both traveling to the place we once dreamed of.
+ - If you’d listen, even for a little while I’d be pleased Remember, once more we were born into this world crying. Your dreams and hopes for tomorrow are all in this world.
+ - Surely, no one hoped for so many things. Hold the flowers close to your heart; they may someday bloom.
+ - It was not coincidental that we chose what’s left If the universe has a will I think we are part of it Tender and precious How many times have I searched for something Found and lost it Since then?
+ - I don’t think you should meet the people you most admire. I don’t want reality to interfere with my image.
+ - The way I work, typically, I do everything at the very last minute. Even if I was given two months, I’d do it in the last three days.
+ - I can’t write a lie; the world of imagination is no good. I objectively capture my own experiences and those of my friends. I want to put true feelings into words. If I make a song when I’m sad, it’s a dark one, but I think that’s good. No matter when I want to be true to myself.
+ - I always like whatever I did most recently. It’s the closest to who I am at the moment.
+ - What if everyone goes on the endless road Sooner or later Over the clouds to the sky Be sure to wait for me. And then, we will talk away About our countless memories.
+ - Though my heart is filled with feelings I want to convey You see, I can’t express them in words If I had not met you I wouldn’t even have such an embarrassing pain.
+ - Everyone has a secret. Right? Of course I have a secret. I think maybe you too?
+ - I feel most miserable When I can’t step “step up to the plate” You know? People often say Regret from doing it is better than regret for not doing it.
+ - If I write when I’m low, it will be a dark song, but I don’t care. I want to be honest with myself at all times.
+ - Even in my age now, I’m the same as before and just as fearful I only learn how to pretend to be strong.
+ - If there are rules and regulations, I can’t help it, I want to break them.
+ - I’m not a professional; I lack even basic knowledge about writing music.
+ - A woman could be having fun A woman could be like a nun In order to survive We cannot be kind Until we are hurt.
+ - It’s hard to decide how to match words to music. It’s not like it’s twice the work. It’s always difficult for me to explain to the composer what I’m looking for. I’m not a professional; I lack even basic knowledge about writing music.
+ - If people will listen, I will go anywhere in the world!
+ - It is necessary that I am viewed as a product. I am a product.
+ - I read and watch movies. I can’t go to the movie theater much anymore, though, because I get recognized. It’s worse sometimes if I wear a costume and try not to get recognized. I watch most of my films on airplanes.
+
+34 quotes

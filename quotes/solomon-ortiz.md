@@ -1,0 +1,22 @@
+ - Education is the key to success in life, and teachers make a lasting impact in the lives of their students.
+ - For my constituents, owning a home is the culmination of many years of hard work and the realization of the American Dream. At no time should a local entity take those years of hard work solely to increase their tax revenue.
+ - From the bitter cold winter at Valley Forge, to the mountains of Afghanistan and the deserts of Iraq, our soldiers have courageously answered when called, gone where ordered, and defended our nation with honor.
+ - Teachers are our greatest public servants; they spend their lives educating our young people and shaping our Nation for tomorrow.
+ - While I believe our Constitution allows for State and local governments to execute the power of eminent domain for those purposes that specifically serve the public good, condemning property solely to implement economic development plans is not serving the public good.
+ - Mr. Speaker, I rise today to recognize the Peace Corps as it reached its 45th anniversary on March 1, 2006.
+ - I have fought to protect those benefits that ensure better salaries for teachers across the Nation such as grants to pay off student loans and funding for Teach for America. Still, we must all do more to show our continued appreciation for our Nation’s leading role models.
+ - To honor our national promise to our veterans, we must continue to improve services for our men and women in uniform today and provide long overdue benefits for the veterans and military retirees who have already served.
+ - In fact, in 2002, the Secretary of Defense authorized such support on a reimbursable basis to organizations formerly components of the Department of Justice and Department of the Treasury and currently components of the Department of Homeland Security.
+ - Education should be one of our top funding priorities; talking about it does not help the teachers and students who desperately need promises fulfilled.
+ - The Peace Corps is an outstanding organization that promotes peace through helping countless individuals who want to help build a better life for the community in which they serve.
+ - It matters not what your individual position is on either war we are currently prosecuting – in Iraq or Afghanistan – certainly we can all agree protesting at military funerals is a cruel and unnecessary hardship on our military families during their most difficult hour.
+ - Supporting the troops has got to mean more than bumper stickers on pickup trucks, my friends. We need to give them what they need.
+ - I worked with the March of Dimes to enact legislation for a national birth defects prevention program to provide surveillance, research and preventive services aimed at reducing the rate of birth defects.
+ - As a father and grandfather, I have witnessed firsthand the joy of new life entering the world. I know the pain and apprehension that goes along with premature births and birth defects.
+ - To date, nearly 100,000 Hispanics have died with AIDS. Since Hispanics are the fastest growing minority group in the United States, our challenge is even greater.
+ - Education makes children less dependent upon others and opens doors to better jobs and career possibilities.
+ - This nation’s 23 million small businesses need a budget that reflects their value to the economy.
+ - Small businesses drive this economy and it is unacceptable that the President’s budget proposal does not give them the tools they need to be successful.
+ - Over the last five years, the Administration and the majority in Congress have appropriated less than $900 million for port security grants – despite the Coast Guard’s determination that $5.4 billion is needed over 10 years.
+
+20 quotes

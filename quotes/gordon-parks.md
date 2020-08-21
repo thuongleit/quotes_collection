@@ -1,0 +1,40 @@
+ - Enthusiasm is the electricity of life.
+ - Enthusiasm is the electricity of life. How do you get it? You act enthusiastic until you make it a habit. Enthusiasm is natural; it is being alive, taking the initiative, seeing the importance of what you do, giving it dignity and making what you do important to yourself and to others.
+ - Enthusiasm is the electricity of life. How do you get it? You act enthusiastic until you make it a habit.
+ - The guy who takes a chance, who walks the line between the known and unknown, who is unafraid of failure, will succeed.
+ - I feel it is the heart, not the eye, that should determine the content of the photograph. What the eye sees is its own. What the heart can perceive is a very different matter.
+ - If you don’t have anything to say, your photographs aren’t going to say much.
+ - I picked up a camera because it was my choice of weapons against what I hated most about the universe: racism, intolerance, poverty.
+ - Photography was my choice of weapons.
+ - You know, the camera is not meant just to show misery. You can show things that you like about the universe, things that you hate about the universe. It’s capable of doing both.
+ - At first I wasn’t sure that I had the talent, but I did know I had a fear of failure, and that fear compelled me to fight off anything that might abet it.
+ - I saw that the camera could be a weapon against poverty, against racism, against all sorts of social wrongs. I knew at that point I had to have a camera.
+ - I’ve been asked if I think there will ever come a time when all people come together. I would like to think there will. All we can do is hope and dream and work toward that end. And that’s what I’ve tried to do all my life.
+ - I was born to a black childhood of confusion and poverty. The memory of that beginning influences my work today, It is impossible now to photograph a hungry child without remembering the hunger of my old childhood.
+ - The subject matter is so much more important than the photographer.
+ - I have been born again and again and each time, I have found something to love.
+ - The camera could be a very powerful instrument against discrimination, against poverty, against racism.
+ - Many times I wondered whether my achievement was worth the loneliness I experienced, but now I realize the price was small.
+ - But I do feel a little teeny right now that I’m just about ready to start, and winter is entering. Half past autumn has arrived.
+ - Nothing came easy. I was just born with a need to explore every part of my mind. And with long searching and hard work, I became devoted to my restlessness.
+ - The photographer begins to feel big and bloated and so big he can’t walk through one of these doors because he gets a good byline; he gets notices all over the world and so forth; but they’re really – the important people are the people he photographs.
+ - If a man can reach the latter days of his life with his soul intact, he has mastered life.
+ - Use anger to emotionalize whatever thing you intend to do in life – being a painter, a poet or a photographer.
+ - I suffered evils, but without allowing them to rob me of the freedom to expand.
+ - I’ve been with Life now for seventeen years and I have written several articles for them and will be doing more writing and do at least two assignments a year besides my writing.
+ - I bought my first camera in Seattle, Washington. Only paid about seven dollars and fifty cents for it.
+ - I think maybe the rural influence in my life helped me in a sense, of knowing how to get close to people and talk to them and get my work done.
+ - Think in terms of images and words. They can be mighty powerful when they are fitted together properly.
+ - I had known poverty firsthand, but there I learned how to fight its evil – along with the evil of racism – with a camera.
+ - I have never known anyone important enough to consume me in anger beyond a few hours. Better to depart their existence before they poison your own.
+ - I was there less than a year before I was assigned to the Paris bureau. I spent two years there and, in fact, before I even went on the staff I was sent to Europe to do assignments which they wouldn’t normally do for a young photographer just starting out.
+ - You know, the camera is not meant just to show misery.
+ - I do find a certain fascination with the unpredictable. The transitory years we wade through are what they are- what we make of them.
+ - Success can be wracking and reproachful, to you and those close to you. It can entangle you with legends that are consuming and all but impossible to live up to.
+ - And I think that after nearly 85 years upon this planet that I have a right after working so hard at showing the desolation and the poverty, to show something beautiful for somebody as well.
+ - So I went to Chicago in 1940, I think, ’41, and the photographs that I made there, aside from fashion, were things that I was trying to express in a social conscious way.
+ - And now, I feel at 85, I really feel that I’m just ready to start.
+ - I have always felt as though I needed a weapon against evil.
+ - I think most people can do a whole lot more if they just try.
+
+38 quotes

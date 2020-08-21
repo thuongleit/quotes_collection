@@ -1,0 +1,21 @@
+ - A good company delivers excellent products and services, and a great company does all that and strives to make the world a better place.
+ - Creating a strong business and building a better world are not conflicting goals – they are both essential ingredients for long-term success.
+ - Social obligation is much bigger than supporting worthy causes. It includes anything that impacts people and the quality of their lives .
+ - When you factor in population growth, it’s clear that the mobility model that we have today simply will not work tomorrow. Four billion clean cars on the road are still four billion cars, and a traffic jam with no emissions is still a traffic jam.
+ - Nobody’s irreplaceable, including me. I think for too long we’ve had a cult of personality in this company and in this industry, and frankly, I’d like to see that diminish.
+ - It’s amazing how much data is out there. The question is how do we put it in a form that’s usable?
+ - One of the things I’ve had the advantage of, growing up and being close to the top management of this company and other companies for most of my life, is seeing how CEOs start to believe in their own infallibility. And that really scares me.
+ - For all the progress, we recognize we’re very far from the finish line.
+ - All things being equal, I think people would still prefer to do business with their hometown companies. That’s true in America, that’s true in China, that’s true in Germany.
+ - I think I was the first executive to ever speak at a Greenpeace business conference, in London in 2001. That didn’t play well here at Ford, but I thought it was an important signal to send internally, that these were the kind of issues we needed to be grappling with.
+ - I don’t care where you are in the world, people are aware of what technology is available to others. If you’re in Nairobi, you’re certainly aware of the iPhone.
+ - As long as gas is cheaper than bottled water, we can’t be in a position of dictating to the consumer what to buy.
+ - I walked in and inherited a management group that I didn’t know very well. They didn’t know me, and we had a very short window to put together a credible recovery plan.
+ - I never wanted Ford to be a place, like the tobacco industry, where our employees were not proud of coming to work for us. I felt there was a danger of that, should we be marginalized as a major polluter.
+ - I think the world is filled with so much hype and PR bull. Frankly, it all comes out in the end. Good or bad, I’d rather just let our accomplishments really speak for themselves.
+ - I don’t ever want to believe my own press clippings, good or bad.
+ - One cannot find a healthy economy anywhere in the world that does not have a strong industrial base, period.
+ - I believe very strongly that corporations could and should be a major force for resolving social and environmental concerns in the twenty-first century.
+ - When I joined Ford, in the late 1970s, I felt strongly we could not forever be a huge user of natural resources without there being consequences. But I was alone in my thinking in those days.
+
+19 quotes

@@ -1,0 +1,70 @@
+ - Listen to your own Self. If you listen to that Self within, then you find the Truth.
+ - All darkness vanished, when I saw the Lamp within my heart.
+ - All know that the drop merges into the ocean but few know that the ocean merges into the drop.
+ - The truth of love is the truth of the universe: it is the lamp of the soul that reveals the secrets of darkness.
+ - Be quiet in your mind, quiet in your senses, and also quiet in your body. Then, when all these are quiet, don’t do anything. In that state truth will reveal itself to you.
+ - I laugh when I hear that the fish in the water is thirsty. I laugh when I hear that people go on pilgrimage to find God.
+ - I felt in need of a great pilgrimage, so I sat still for three days and God came to me.
+ - Wherever you are is the entry point.
+ - I sell mirrors in the city of the blind.
+ - If you want the truth, I’ll tell you the truth. Listen to the secret sound, the real sound, which is inside you.
+ - The river that flows in you also flows in me.
+ - The essence of life is in remembering God.
+ - I am not a Hindu, Nor a Muslim am II am this body, a playOf five elements a dramaOf the spirit dancing With joy and sorrow.
+ - Just throw away all thoughts of imaginary things, and stand firm in that which you are.
+ - If you don’t break your ropes while you’re alive, do you think ghosts will do it after?
+ - My heart is so intoxicated with love that I have no wish to speak.
+ - For millions of years you have slept. This morning, will you not wake?
+ - The fish in the water that is thirsty needs serious professional counseling.
+ - Listen to the secret sound, the real sound, which is inside you. The one no one talks of speaks the secret sound to himself, and he is the one who has made it all.
+ - Do what you do with another human being, but never put them out of your heart.
+ - Seeking Why run around sprinkling holy water? There’s an ocean inside you, and when you’re ready you’ll drink.
+ - The flute of the infinite is played without ceasing, and its sound is love.
+ - The Beloved is inside you and also inside me. You know the tree is hidden inside the seed. Let your arrogance go. None of us has gone far. Inside love there is more power than we realize.
+ - As the bee collecteth honey with great zest, so the fool collecteth wealth.
+ - As the river surrenders itself to the ocean, what is inside me moves inside you.
+ - Only in the heart can one experience the divine presence of truth.
+ - Wear a crown of flowers on your head, let its roots reach your heart.
+ - Do not praise yourself not slander others: There are still many days to go and any thing could happen.
+ - Be strong then, and enter into your own body; there you have a solid place for your feet.
+ - The sun is within me and so is the moon.
+ - Nada is found within. It is a music without strings which plays in the body. It penetrates the inner and outer and leads you away from illusion.
+ - Lift the veil that obscures the heart, and there you will find what you are looking for.
+ - Many have died; you also will die. The drum of death is being beaten. The world has fallen in love with a dream. Only sayings of the wise will remain.
+ - I laugh when I hear that the fish in the water is thirsty. You don’t grasp the fact that what is most alive of all is inside your own house; and so you walk from one holy city to the next with a confused look!
+ - Listen to me, my Friend! My beloved Lord is within.
+ - Sing such a song with all of your heart that you’ll never have to sing again.
+ - When the flower opens, the bees will come.
+ - Plunge into the truth, find out who the Teacher is, Believe in the Great Sound!
+ - Admire the diamond that can bear the hits of a hammer. Many deceptive preachers, when critically examined, turn out to be false.
+ - Why are we here? To become ourselves in you.
+ - The man who is kind and who practices righteousness, who remains passive against the affairs of the world, who considers all creatures on earth as his own self, he attains the Immortal Being; the true God is ever with him.
+ - A learned man’s knowledge will be of no avail to him if he doesn’t have control over his tongue.
+ - Stand firm in that which you are.
+ - If you haven’t experienced it, it’s not true.
+ - Do you believe there is some place that will make thesoul less thirsty? In that great absence you will find nothing.
+ - It is the spirit of the quest which helps.
+ - I went in search of a bad person; I found none as I, seeing myself, found me the worst.
+ - Take a pitcher full of water and set it down in the water-now it has water inside and water outside. We mustn’t give it a name, lest silly people start talking again about the body and the soul.
+ - Don’t open your diamonds in a vegetable market. Tie them in bundle and keep them in your heart, and go your own way.
+ - God, provide me with enough sustenance that my family is taken care of, that neither I remain hungry, nor does my guest go unfed.
+ - A diamond was laying in the street covered with dirt. Many fools passed by. Someone who knew diamonds picked it up.
+ - Path presupposes distance; If He be near, no path needest thou at all. Verily it maketh me smile To hear of a fish in water athirst!
+ - If I make the seven oceans ink, if I make the trees my pen, if I make the earth my paper, the glory of God cannot be written.
+ - The external forces conceal from the eyes the deep meaning of existence; True faith resides in the heart.
+ - When you feel most alive, find out why, This is one guest you won’t greet twice.
+ - If you make love with the divine now, in the next lifeyou will have the face of satisfied desire.
+ - What is found now is found then. If you find nothing now, you will simply end up with an apartment in the City of Death.
+ - Go over and over your beads, paint weird designs on your forehead, wear your hear matted, long, and ostentatious, but when deep inside you there is a loaded gun, how can you have God?
+ - Men have always looked before and after, and rebelled against the existing order. But for their divine discontent, men would not have been men, and there would have been no progress in human affairs.
+ - Forgiveness is a game only saints play Kabir.
+ - When the bride is one with her lover, who cares about the wedding party?
+ - Are you looking for the Holy One? I am in the next seat. My shoulder is against yours.
+ - One love it is that pervades the whole world, few there are who know it fully: They are blind who hope to see it by the light of reason, that reason which is the cause of separation – The house of reason is very far away!
+ - If it were possible to meet the Beloved while laughing and in a state of comfort, why should one suffer the anguish of separation?
+ - When you really look for me you will see me instantly.
+ - The stone neither speaks nor gives anything. Therefore its service is fruitless and its worship is of no avail.
+ - My Beloved One gleams like the lightning flash in the sky.
+ - The instruction of the foolish is a waste of knowledge; soap cannot wash charcoal white.
+
+68 quotes

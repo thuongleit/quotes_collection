@@ -1,0 +1,115 @@
+ - Never give up on your dreams. No matter how many people say it’s impossible, no matter how difficult your journey is, you can create your ideal life. Your heart’s desires can become reality. Make things better now by taking steps every day to get closer to the life you want. And never, ever give up.
+ - Even in a bad situation, there’s always a positive side. Even if you can’t see it yet.
+ - I’d rather be weird and happy than normal and miserable.
+ - I can’t take it anymore. The waiting. The wanting. Something inside me snaps. I hate myself. I hate that I have to deal with this. I hate my life. And I hate how I can’t count on anyone to be completely there when I need them, exactly the way I need them to be.
+ - Love isn’t logical, or even our choice. Love chooses us. Sometimes things have to get worse before they get better.
+ - I have a theory that the answers to all of life’s major questions can found in a John Mayer song.
+ - I have to get my life back on track. Order as an antidote to chaos. Calm after the storm.
+ - No one can save me except myself.
+ - When someone rips your heart out, there’s nothing you can do to change how you feel about them. You just have to keep feeling that way until it goes away. Until it never does.
+ - I’ve already lived through the worst time of my life. So I know that whatever happens to me from now on, nothing will ever be as bad as it was back then. That makes me happy.
+ - It’s weird how time can change something you thought would always stay the same.
+ - It’s just like John Mayer says in “Slow Dancing in a Burning Room”. When it’s this bad, you have to get out or you’ll get burned.
+ - I just want to write. It’s like once I get those obsessive thoughts out of my head, once they’re written down, they’re somehow set free and I can move on.
+ - I want deeper connections with the people around me. I need to reach out more. Because not everyone leaves. Sometimes if you reach out, the person you’re trying to reach will be right there waiting.
+ - When your heart is shattered into a million pieces, all you can do is try to keep holding on. You breathe. You try to fall asleep. You try to not think about him.
+ - I thought following a straight road would lead me right to my destination. Like the road would just take me there because I was following all the rules. And if the road curved, I couldn’t be sure about where I was going. But look where it got me. Maybe it’s time for a detour.
+ - Following your heart means allowing the possibility of finding true love to be stronger than the fear of rejection.
+ - Happiness is not limited. There’s enough for everyone.
+ - When I’m a teacher, I won’t be using red pens to grade papers. Red pens will forever be associated with criticism and bad grades in my mind. I don’t want this person to get their short story back with harsh red pen marks all over it. Purple is much friendlier.
+ - You can’t violate someone’s trust and expect there to be no consequences.
+ - I’m not sure if our friendship is strong enough to survive into next year when we’re away at college. But. We know each other in a way that no one else can. We share a history that makes us permanently connected. So I have to hope for us. All I can do is hope.
+ - For one day there will be nothing left, yet we will have something. -me- I tried to wait for my life to begin. Something has to happen. Like an amazing boy. I know he’s out there. I just have to find him.
+ - We can’t help who we love. Love isn’t logical, or even our choice. Love chooses us.
+ - It’s about how you’re like a lighthouse, always searching far into the distance. But the thing you’re looking for is usually close to you and always has been. That’s why you have to look within yourself to find answers instead of searching beyond.
+ - It’s unbelievable how you can affect someone else so deeply and never know.
+ - Maybe there is no one perfect person and anyone you end up with will eventually make you think there’s someone better out there.
+ - And I just think that if you believe in something and you want it so much and you’re not hurting anyone else, you have to go for it. Which sometimes means taking a risk, even if it’s scary. But the thing you want most to happen doesn’t stand a chance unless you give it one.
+ - Because I still love him. You can’t just turn love off. You still feel it.
+ - But life’s never easy when you need it to be.
+ - The stupid thing about anger is how people hurt you and then you let them keep hurting you by being angry about how they originally hurt you. It’s a vicious cycle.
+ - And there are a million possibilities. Like the possibility of going separate ways. Together.
+ - We’re products of our choices.
+ - It is easier with the right person. A good test of a relationship is how well you both deal with challenges. If one person is more invested, it shows. If you’re with the wrong person, it feels like too much work. But if you’re unhappy more than you’re happy, it’s not the right relationship for you.
+ - Because if you take a risk, you just might find what you’re looking for.
+ - If you see someone being bullied, make it stop. Why is that so hard for us to do?
+ - I want revenge, but I don’t want to screw up my karma.
+ - I deserve to be happy. I’m sad it took me so long to get that. But I get it now.
+ - She’s not going to let go until she sees for herself that there’s nothing left to hold on to.
+ - Maybe it’s just hart to see what’s right in front of you while you’re frantically searching for it.
+ - This body is yours. It is your home. The keeper of your soul. The resting place of your spirit. No one can ever take that away.
+ - I’m thinking that it might actually be possible for things to work out sometimes. Definitely not everything and maybe not the way you imagined. But sometimes, when you least expected it, life surprises you.
+ - I have no interest in maintaining a relationship with someone who didn’t love me enough to stick around.
+ - Waiting for my real life to start is no excuse to waste the life I have right now.
+ - Girls with the beauty-and-brains thing going on are the most intimidating girls in the world.
+ - There’s this total manwhore phenomenon happening, where even the geeks are player now. It’s like Manhattan is this giant playground and guys want to keep playing forever.
+ - That’s the cool thing about having a best friend. They know what your pain feels like already, so you don’t have to explain it.
+ - Too bad guys aren’t like Mr. Potato Head Where you can pick and choose which parts you want. Then we might come up with a guy who meets your standards. – Maggie.
+ - Thats all I need. To find a soul mate to share my life with. To have a love so epic it will never die.
+ - Maybe it’s impossible to find everything you want in one person. Maybe everyone in your life gives you certain things you need. And your friends give you the rest of what you can’t get from your boyfriend.
+ - SEEING BELIEVING what’s in front of you is not necessarily the entire story.
+ - Things fall apart, even when you think they’re stronger than anything you could ever imagine.
+ - In what twisted universe would a girl who’s just been dumped still want to be friends with the boy who dumped her?
+ - But if your boyfriend, out of nowhere and with no advance warning whatsoever, dumps you for no apparent reason, is it really about you? Or is it all him?
+ - I still love him. And here’s the worst part. I want him back. – Ree.
+ - Just when it seems like life is getting good, something always has to come along and ruin it.
+ - No one is worth wasting a gorgeous weekend over.
+ - Your life can end in a flash before you even have time to know it’s over. There is no safe. There is no control.
+ - You can never completely know anyone, no matter how well you think you do. There will always be some truth about them you don’t ever get to know.
+ - Love is never guaranteed. Love is a risk we take because we hope it will make us happy.
+ - How can someone who means so much to a person mean nothing the next day?
+ - Just because a person chooses to express themselves in an extreme way doesn’t mean they have an extreme personality.
+ - Maybe the package comes in a different shape than we originally thought it would.
+ - No two people can see the world in the same way. No matter what you’re looking at, no one is seeing it the same way you are.
+ - What do you call it when two people have intense shared history? when nothing can separate them? Soul Sisters.
+ - You’ll get through this. And I know it’s impossible to believe right now, but it gets better. Trust me.
+ - But this is such a “Wheel” moment. That song rocks. The best part is where John Mayer says how our connections are permanent, how if you drift apart from someone there’s always a chance you can be part of their life again. How everything comes back around again.
+ - Now that I know where this life is going, it’s time to decide how I’ll get there.
+ - Not even a repeat of Dawson’s Creek makes me feel better.
+ - The past doesn’t just disappear after it’s happened.
+ - How could something that felt so right actually be so wrong?
+ - I want to be the kind of person who can do that. Move on and forgive people and be healthy and happy. It seems like an easy thing to do in my head. But it’s not so easy when you try it in real life.
+ - I wish emotional bruises healed like physical ones.
+ - It’s interesting how something that comes so easily to one person can be so impossible for someone else.
+ - I’m so excited that my stomach is in a jiggle-jaggle of nerves. There they go again. Jiggle. Jaggle. I’m a mess.
+ - Somewhere underneath it all, I know he doesn’t deserve to take up space in my brain.
+ - Apparently, it used to be extremely common for families to have two parents. They stayed together because that’s what all the other parents did. Now there are so many options, so many different ways to be a family. So many ways to rip a family apart.
+ - It’s like once everyone decides who you are, you’re locked into their version of you and that’s it.
+ - Its so weird how connecting with someone in a different setting can bring out this whole other side of them. Like how certain places inspire us to act in ways we normally wouldn’t.
+ - It feels incredible to be outside when I’m supposed to be inside. The sensation of freedom is intoxicating. – Sara.
+ - Life would be so much easier if fictional boys were real.
+ - The rain fluctuates between drizzle and torrential. It messes with your mind. It makes you think things will always be like this, never getting better, always letting you down right when you though the worst was over.
+ - If I’d stopped believing that my life would eventually get better, I don’t think I would have survived high school.
+ - Sometimes in the midst of all your boy drama, you just need a cupcake.
+ - It’s interesting how you can know someone for a long time, and then one day you just see them in this whole different way.
+ - No one should be ashamed to speak up. Shame makes it easy for neglect and abuse and bullying to stay huddled together in their dark corner. It’s time to throw the switch on this spotlight. If I can inspire other kids to speak their truth, then everything I’ve been through will have been worth it.
+ - School would be way more tolerable if everyone wasn’t so afraid to be who they really are. And if everyone else would let them.
+ - I mean, maybe under the surface, somewhere that’s hard to see, I’ve known it had to end for a long time. I just never thought I’d be the one to end it.
+ - I can’t tell how much of our connection is because of the things we still have in common or the one thing that bonds us for life. But no matter what happens, I know I can totally count on Erin for anything. And she knows I’d do anything for her.
+ - But you can’t get to the place you most want to be without taking a chance.
+ - You can overcome your fears, you cange change, you can make life into what you’ve always wanted it to be. Maybe not tomorrow, but soon. So hang in.
+ - But the absolute worst was when people asked if I was okay. Because then I had to admit that it was real, it happened, and we weren’t together anymore.
+ - And yeah, it got better. My stomach eventually went back to normal. I didn’t cry every day. But my heart. My heart will always be broken.
+ - Still hiding and afraid to let go. Waiting for you to find me uncover me and show me the way.
+ - All I know is, if we don’t eat soon I’m going to chew off a limb. And I can’t guarentee it’ll be mine.
+ - Standing in the line at the food court, I try to be myself. But I forget how I usually stand when I’m myself.
+ - Tobey puts the CD on. Then he comes over and hugs me. I lean my head on his chest. ‘I want to know everything about you,’ he whispers.
+ - It’s up to me to create the life I want.
+ - Things don’t get better just because you want them to.
+ - The huge problems we deal with every day are actually really small. We’re so focused on what bothers us that we don’t even try to see our lives from a clearer perspective.
+ - Everyone at his table laughs. They know I can hear them. They just don’t care.
+ - My hair is so scary that if you saw it walking down the street, you’d cross to the other side. This humidity is not helping. It’s just an excuse for my hair to let its frizz flag fly.
+ - We know each other in a way that no one else can. We share a history that makes us permanently connected.
+ - There should be some kind of radar that lets you know when your soul mate is nearby.
+ - My thing is that I’m in love with love. Actually, I’m in love with the possibility of true love. Which could be considered a major problem.
+ - But maybe those things are like background noise if you’re from here. Maybe you have to experience this as a whole new place to appreciate it like I do.
+ - No one can be everything you want them to be.
+ - All I can do is hope.
+ - Who remembers everything about somebody?
+ - If you have to explain about how something’s supposed to feel, it takes away all the magic.
+ - But the thought of moving on from something I never had is depressing.
+ - You can’t ever know the real anybody unless you’re friends with them. And sometimes not even then.
+ - Because my life isn’t going to wait around while I figure out how to make it work.
+ - He never gives up on who I am or who I could be. He doesn’t run away when things get complicated.
+
+113 quotes

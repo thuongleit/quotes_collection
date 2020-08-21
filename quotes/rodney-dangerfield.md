@@ -1,0 +1,311 @@
+ - Comedy is a camouflage for depression.
+ - Better to keep quiet and let people think you’re an idiot than speak up and confirm it.
+ - I feel sorry for short people, you know. When it rains, they’re the last to know.
+ - Look out for number one and try not to step in number two.
+ - Life is full of temporary situations, ultimately ending in a permanent solution.
+ - I say ‘no’ to drugs. Whenever someone asks me for some of my drugs I say, ’no.
+ - Everyone says that looks don’t matter, age doesn’t matter, money doesn’t matter. But i never met a girl yet who has fallen in love with an old ugly man who’s broke.
+ - My psychiatrist told me I was crazy and I said I want a second opinion. He said okay, you’re ugly too.
+ - With my old man I got no respect. When he took me hunting he gave me a three minute head start. Then on the way home he tied me to the fender and put the deer in the car.
+ - When I was a kid I got no respect. I told my mother, I’m gonna run away from home. She said, On your mark...
+ - I figured out I’m bisexual. I have sex twice a year.
+ - I was making love to my wife the other night, I looked up. She was on the phone.
+ - For Christmas one year I bought my son a BB gun. He bought me a t-shirt with a bulls eye on the back.
+ - Hey everybody, we’re all gonna get laid!
+ - I told my psychiatrist that everyone hates me. He said I was being ridiculous – everyone hasn’t met me yet.
+ - I asked my wife if she enjoys a cigarette after sex and she said “No, one drag is enough”.
+ - My wife is so fat that when she lays on the beach the people feel sorry for her and try to roll her back into the water.
+ - When I was a kid I got no respect. I played hide-and-seek. They wouldn’t even look for me.
+ - My ex-wife is a water sign and I’m an earth sign. Together we made mud.
+ - At Christmas time we couldn’t afford tinsel, so we’d wait till grandpa sneezed.
+ - I don’t get no respect. I called Suicide Prevention. They tried to talk me into it.
+ - I went to look for a used car and found my wife’s dress in the back seat.
+ - Last year my birthday cake looked like a prairie fire.
+ - My wife says 90% of sex occurs between the ears. But I need a girl who can blow more just my mind.
+ - I tell ya, I knew my morning wasn’t going right. When I put on my shirt the button fell off, when I picked up my briefcase, the handle fell off, I tell ya, I was afraid to go to the bathroom.
+ - Men who do things without being told draw the most wages.
+ - I can’t figure women out. They put on makeup for three hours. They wear things that make them smaller. Things that make them bigger. Then they meet a man and they want truth.
+ - My wife is so fat that the last time I saw something that big it was grazing.
+ - I’m not a hypochondriac, but my gynaecologist firmly believes I am.
+ - I’ve never been lucky. The day my ship came in, I was at the airport.
+ - My doctor told me to watch my drinking. Now I drink in front of a mirror.
+ - I was making love to this girl and she started crying. I said, “Are you going to hate yourself in the morning?” She said, “No, I hate myself now.”
+ - With girls I get no respect. A belly dancer told me I turned her stomach.
+ - My wife only has sex with me for a purpose. Last night it was to time an egg.
+ - When I was kidnapped as a child my parents sent a letter to the hijackers me Pay 5,000 dollars or your back.
+ - I’m sitting on top of the world, and I’ve got hemorrhoids.
+ - Everyone gets their rough day. No one gets a free ride. Today so far, I had a good day. I got a dial tone.
+ - With me, nothing goes right. My psychiatrist said my wife and I should have sex every night. Now, we’ll never see each other!
+ - If sex is a pain in the ass, then you’re doing it wrong.
+ - When I was a kid we were so poor, if I hadn’t been a boy I wouldn’t have had anything to play with.
+ - My childhood was bad. No father. Mother was greedy and brought me up awful – never made me breakfast once. I don’t want to get started. One story is worse than another.
+ - Never tell your wife she’s bad in bed. She’ll go out and get a second opinion.
+ - I told my dentist my teeth are going yellow. he told me to wear a brown tie.
+ - My wife met me at the door the other night in a sexy negligee. Unfortunately, she was just coming home.
+ - My wife and I keep fighting about sex and money. I think she charges me too much.
+ - I have three kids, one of each.
+ - When I go to a nude beach, I always take a ruler, just in case I have to prove something.
+ - If beauty is in the eye of the beholder, so is ugliness.
+ - I think my wife is cheating on me, the only thing the parrot knows how to say is, quick out the window.
+ - My sex life is terrible; my wife put a mirror over the dog’s bed. Actually she did put a mirror over our bed. She says she likes to watch herself laugh.
+ - My wife gives good headache.
+ - I was so ugly my parents had to hang a pork chop around my neck to get the dog to play with me.
+ - My wife and I have Olympic sex. Once every four years.
+ - I looked up my family tree and found out I was the sap.
+ - When I was a kid my parents moved a lot, but I always found them.
+ - The shape I’m in, I could donate my body to science fiction.
+ - In the school I went to, they asked a kid to prove the law of gravity and he threw the teacher out of the window.
+ - One night I came home. I figured, let my wife come on. I’ll play it cool. Let her make the first move. She went to Florida.
+ - Last week I told my wife, If you would learn to cook, I could fire the chef. She said, If you could learn to make love, I could fire the chauffer.
+ - My uncle’s dying wish – he wanted me on his lap. He was in the electric chair.
+ - I’ve learned to control everything. I don’t get angry at anything. Somebody can do me wrong. That’s life. What good is it to get angry?
+ - I tell ya, it’s tough to save a buck. Right now I’m supporting two fighters. My wife and her mother.
+ - My wife wants sex in the back of the car and she wants me to drive.
+ - He who laughs last didn’t get it in the first place.
+ - If things go right, I’ll be there about a week, and if things don’t go right, I’ll be there about an hour and a half!
+ - I have good looking kids. Thank goodness my wife cheats on me.
+ - A girl phoned me the other day and said, ‘Come on over. There’s nobody home.’ I went over. Nobody was home.
+ - When we got married my wife told me I was one in a million. I found out she was right.
+ - My marriage is on the rocks again, yeah, my wife just broke up with her boyfriend.
+ - I’m taking Viagra and drinking prune juice – I don’t know if I’m coming or going.
+ - When I was a kid I got no respect. My mother breast fed me through a straw.
+ - I can’t get no respect.
+ - My mother never breast fed me, she told me she only liked me as a friend.
+ - Last Halloween a kid tried to rip my face off. He thought it was a mask. Now it’s different when I open the door the kids hand me candy.
+ - What a childhood I had, why, when I took my first step, my old man tripped me!
+ - Life’s a short trip. You’ll find out.
+ - I am the world’s oldest teenager. I’ve never lost my youthful attitude.
+ - I found there was only one way to look thin: hang out with fat people.
+ - Never guess your wife’s size. Just buy anything marked petite and hold on to the receipt.
+ - I could tell my parents hated me. My bath toys were a toaster and a radio.
+ - I tell ya, my wife’s a lousy cook. After dinner, I don’t brush my teeth. I count them.
+ - I told my dentist I want a tooth to match the others. He gave my one with four cavities.
+ - You know you’re old when your family talk about you in front of you. What are we going to do with Pop? We have company tonight.
+ - Do ya remember the first time you had sex? I do, and boy, was I scared! I was alone!
+ - I told my kids, “Someday, you’ll have kids of your own.” One of them said, “So will you.”
+ - It’s lonely on the top when there’s no one on the bottom.
+ - When I was a kid I got no respect. The time I was kidnapped, and the kidnappers sent my parents a note they said, “We want five thousand dollars or you’ll see your kid again.”
+ - Group sex, are you kidding, I had group sex – my wife screwed in front of the jury.
+ - During sex, my girlfriend always wants to talk to me. Just the other night she called me from a hotel.
+ - We sleep in separate rooms, we have dinner apart, we take separate vacations – we’re doing everything we can to keep our marriage together.
+ - And my girlfriend, she’s FAT! How fat? She’s so fat she wears two watches-one for each time zone!
+ - When it comes to sex, at my age I like threesomes. In case one of us dies.
+ - I’m a bad lover. Once I caught a peeping tom booing me.
+ - When my old man wanted sex, my mother would show him a picture of me.
+ - A hooker once told me she had a headache.
+ - Hey, did somebody step on a duck?
+ - My cousin is gay, I always tell him that in our family tree, he’s in the fruit section.
+ - I tell ya, my wife was never nice. On our first date, I asked her if I could give her a goodnight kiss on the cheek – she bent over!
+ - They say love thy neighbor as thy self, what am I supposed to do jerk him off too?
+ - One day as I came home early, I saw a man jogging naked. I said to the guy, ‘Hey, buddy, why are you doing that?’ He said, ‘Because you came home early.’
+ - With sex my wife thinks twice before she turns me down. Yeah, once in the morning and once at night.
+ - My wife has cut our lovemaking down to once a month, but I know two guys she’s cut out entirely.
+ - I knew a girl so ugly, I took her to the top of the Empire State building and planes started to attack her.
+ - I told my doctor, “I’ve swallowed a bottle of sleeping pills” and he told me to have a few drinks and get some rest.
+ - I recently had double-bypass surgery. As they wheel you in, the doctor always gives you a last look. You know that look. That look of confidence to make you feel good. I always say to every doctor, If I don’t make it, I’ll never know it.
+ - At Christmas time I sat on Santa’s lap. His fly was open ! Boy what a present he gave me !
+ - I tell ya, sex is getting harder all the time. Me and my wife were trying to have sex for hours last night and I finally gave up. I asked her, “what, you can’t think of anybody either?”
+ - I knew a girl so ugly that she was known as a two-bagger. That’s when you put a bag over your head in case the bag over her head breaks.
+ - My sex life is like shooting pool with a rope!
+ - Steak and sex, my favorite pair. I get them both very rare.
+ - We were poor. we were so poor, in my neighborhood the rainbow was in black-and-white.
+ - Cars and women are a lot alike. They lie about the milage.
+ - I came from a real tough neighborhood. Once a guy pulled a knife on me. I knew he wasn’t a professional, the knife had butter on it.
+ - I tell ya, with my wife, I got no sex life. Her favorite position is facing Bloomingdale’s.
+ - My wife and I were happy for 20 years. Then we met.
+ - One night I asked a cabbie to take me where the action is, he took me to my house.
+ - We learned sexual technique from our dog. He taught how to beg, and he taught my wife how to roll over and play dead.
+ - Last time I tried to make love to my wife nothing happened, so I said to her, ‘What’s the matter, you can’t think of anybody either?’
+ - I’m a downer. I’ve been depressed my whole life. Figure it out.
+ - I asked my old man if I could go ice-skating on the lake. He told me, “Wait til it gets warmer.”
+ - I tell ya, southern people, they always think you are hard-of-hearing. Every timr you leave they say to you, You come back, you hear? And southern people, they think you are horny too. You get directions, they say, Just up the road apiece.
+ - You can name your own salary in this business. I call mine Fred.
+ - I knew a girl so ugly, they use her in prisons to cure sex offenders.
+ - A travel agent told I could spend 7 nights in HAWAII no days just nights.
+ - I had plenty of pimples as a kid. One day I fell asleep in the library. When I woke up, a blind man was reading my face.
+ - I’m at the age where food has taken the place of sex in my life. In fact, I’ve just had a mirror put over my kitchen table.
+ - What a childhood I had – I was ten years old when I found out Alpo was dog food.
+ - I went to a massage parlor, it was self service.
+ - I had a date with an inflatable girl. Now I got an inflatable guy looking for me.
+ - One time my whole family played hide and seek. They found my mother in Pittsburgh!
+ - I told my wife the truth. I told her I was seeing a psychiatrist. Then she told me the truth: that she was seeing a psychiatrist, two plumbers, and a bartender.
+ - I have tried a little kinky stuff. A woman called me and said, ‘I have mirrors all over my bedroom. Bring a bottle.’ I brought Windex.
+ - With my wife I don’t get no respect. I made a toast on her birthday to ‘the best woman a man ever had.’ The waiter joined me.
+ - My car broke down just the other day, I called triple A, they came and towed me away!
+ - With my wife I get no respect. I fell asleep with a cigarette in my hand. She lit it.
+ - I’d like to get some new clothes, but I can’t find a Big and Short store.
+ - I’m not a sexy guy. I went to a hooker. I dropped my pants. She dropped her price.
+ - With my old man I got no respect. He told me never take candy from a stranger unless he offered me a ride.
+ - Well with girls I don’t get no respect. I had a blind date. I waited two hours on the corner. A girl walked by. I said Are you Louise? She said, Are you Rodney? I said, Yeah. She said, I’m not Louise.
+ - I asked my wife, ‘Is there somebody else?’ She said, ‘There MUST be.’
+ - It’s tough to stay married. My wife kisses the dog on the lips, yet she won’t drink from my glass.
+ - Oh, when I was a kid, I was poor. Christmas, I got no presents. Well, there was one Christmas, on our front lawn – Prancer and Dancer – they dropped off a little something.
+ - Oh, when I was a kid in show business I was poor. I used to go to orgies to eat the grapes.
+ - Oh, this your wife, huh? A lovely lady. Hey baby, you must’ve been something before electricity.
+ - One night she told me to put out the garbage. I told her “you cooked it, you take it out”.
+ - I’m at an age where I think more about food than I do about sex. Last week I put a mirror over my dining room table.
+ - I walked in on my wife and the milkman, the first thing she says is “don’t tell the butcher”!
+ - She was so fat that her bathtub has stretch marks.
+ - With my old man I got no respect. I asked him, “How can I get my kite in the air?” He told me to run off a cliff.
+ - I’m at the age where I want two girls. In case I fall asleep they will have someone to talk to.
+ - School is a place were you go to eat your lunch.
+ - My wife has to be the worst cook. In my house, we pray after we eat.
+ - I got myself good this morning too. I did my pushups in the nude, I didn’t see the mouse trap.
+ - My mom took me to a dog show and I won!!
+ - Women my age just don’t turn me on. That’s another problem with getting older. I took out an older woman the other night, and I mean old. I told her, Act your age. She died.
+ - I was an ugly kid; when I was born, after the doctor cut the cord, he hung himself.
+ - My dog learned how to beg by watching me through the bedroom door.
+ - When I played in the sandbox, the cat kept covering me up.
+ - I asked my wife, ‘On a scale of 1 to 10, how do you rate me as a lover?’ She said, ‘You know I’m no good at fractions.’
+ - With my doctor, I don’t get no respect. I told him I want a vasectomy. He said with a face like mine, I don’t need one.
+ - Last time I saw a mouth like that, it had a hook in it.
+ - I came from a real tough neighborhood. Why, every time I shut the window I hurt somebody’s fingers.
+ - My kids scotch tape worms to the sidewalk and watch the birds get hernias.
+ - You know you’re ugly when you go to the proctologist and he sticks his finger in your mouth.
+ - I told my wife a man is like wine, he gets better with age. She locked me in the cellar.
+ - My father gave me a bat for Christmas. The first time I tried to play with it, it flew away.
+ - I drink too much. The last time I gave a urine sample it had an olive in it.
+ - Dad told me to stop running in circles, I couldn’t, so he nailed down my other foot!
+ - His breath is so bad why every time he smokes he blows onion rings.
+ - It’s tough to stay married. My wife says no because she’s tired then stays up and reads her book.
+ - What a childhood I had. My parents sent me to a child psychiatrist. The kid didn’t help me at all.
+ - My wife she’s fat. Why, if she lost a few pounds, she’d be perfectly round.
+ - She failed her drivers test. She couldn’t get used to the front seat. It took her four lessons to learn to sit up.
+ - I once went out with this girl, she was no bargain either, she showed up with pigtails under her arms.
+ - If you could learn to make love, I could fire the chauffer.
+ - When I was born the doctor took one look at my face, turned me over and said, “Look, twins!”
+ - Last week I was walking by a cemetery, two guys came after me with shovels. It was all about money.
+ - If I could have dinner with anyone who lived in history, it would depend on the restaurant.
+ - My son’s an idiot. He sprained his ankle playing golf. He fell off the ballwasher.
+ - I’ll tell ya, my wife and I, we don’t think alike. She donates money to the homeless, and I donate money to the topless!
+ - My wife is such a bad cook, if we leave dental floss in the kitchen the roaches hang themselves.
+ - My cousin is gay, in school while other kids were dissecting frog, he was opening flies.
+ - She was so ugly that I took her to a dog show and she won first prize.
+ - I told my wife ‘hey honey come on, let’s make love like the old days.’ She asked me for 50 bucks.
+ - Boy is my wife stupid. It takes her and hour and a half to watch 60 minutes. My daughters no bargain either. In public school she was voted most likely to conceive.
+ - I come from a stupid family. My father worked in a bank. They caught him stealing pens.
+ - In high school, when I played football I got no respect. I shared a locker with a mop.
+ - My problem is that I appeal to everyone that can do me absolutely no good.
+ - I stuck my head out the window and got arrested for mooning.
+ - My wife can’t cook at all. She made chocolate mousse. An antler got stuck in my throat.
+ - One year they asked me to be poster boy – for birth control.
+ - Time and tide and hookers wait for no man.
+ - I knew a girl so ugly, she had a face like a saint-a Saint Bernard!
+ - I drink too much, way too much; my doctor drew blood he ran a tab!
+ - I have nothing but troubles with my car. Every Sunday I take my family out for a push.
+ - You take care and I hope I’ll run into you – when I’m driving.
+ - I once went out with this wild girl. She made French toast and got her tongue caught in the toaster.
+ - I come from a stupid family. During the civil war my great uncle fought for the west.
+ - My wife’s so dumb, she got a nail in the spare!!
+ - I used to date a girl from Buffalo. Why can’t I meet a girl with normal parents?
+ - My wife is always trying to get rid of me. The other day she told me to put the garbage out. I said to her I already did. She told me to go and keep an eye on it.
+ - My only thrill is self inflicted hickies.
+ - Once I opened up a fortune cookie and inside was the guy’s cheque next to me I said hey buddy I got your cheque he said thanks.
+ - When I was born I was so ugly the doctor slapped my mother.
+ - With my dog I don’t get no respect. He keeps barking at the front door. He don’t want to go out. He wants me to leave.
+ - My wife a great driver, she once hit a deer. It was in a zoo. There is a pair of shoes on the dashboard. They belong to the last guy she hit.
+ - When you walk up five flights of stairs at four in the morning, there’s definitely a hooker involved.
+ - My son’s an idiot. His teacher asked him to spell Mississippi. He asked which one? The river or the state?
+ - I went to a freak show and they let me in for nothing.
+ - People say fish is good for a diet. But fish should never be cooked in butter. Fish should be cooked in its natural oils – Texaco, Mobil, Exxon .
+ - They took a survey: Why do men get up in the middle of the night? Ten percent get up to go to the bathroom and 90 percent get up to go home.
+ - I tell ya, I was an ugly kid. I was so ugly that my dad kept the kid’s picture that came with the wallet he bought.
+ - I joined gamblers anon., they gave me 2 to 1 I wouldn’t make it! I joined AA, there was a two drink minimum!
+ - Guy goes into a bar with a duck under his arm. Bartender says, “Where’d you get the pig?” Guy says, “This is a duck.” Bartender says, “I was talking to the duck.”
+ - I got my first break and became a singing waiter at eighteen or nineteen. I couldn’t make a living at it. I quit. Then I got married and sold aluminum siding. My wife had problems physically. It was not good.
+ - My golf game is getting real good. Last week, I got through the windmill.
+ - I come home from work early one day, and I see a guy jogging down the street in his underwear. I ask him, “Why are you jogging in your underwear?” He says, “You came home from work early”.
+ - I haven’t spoken to my wife in years. I didn’t want to interrupt her.
+ - I tell ya, gambling never agreed with me. Last week I went to the track and they shot my horse with the opening gun.
+ - My cousins gay, he went to London only to find out that Big Ben was a clock.
+ - Last week my tie caught on fire, some guy tried to put it out with an axe.
+ - All my wife and I do is fight about sex. The other night, we really had it out. Well, I’ll put it this way – I had it out.
+ - My family was a bunch of drunks. When I was six I came up missing, they put my picture on a bottle of scotch.
+ - I don’t care how rich and successful a man is. He’s nothing without an education.
+ - I’ll tell you one thing, I know how to satisfy my wife in bed, yeah, I leave.
+ - If it wasn’t for pick-pockets I’d have no sex life at all.
+ - It’s great to have gray hair. Ask anyone who’s bald.
+ - People seldom live up to their baby pictures.
+ - Some dog I got too. We call him Egypt. Because in every room he leaves a pyramid.
+ - Life is just a bowl of pits.
+ - A man in the crowd asks: Hey Rodney, how’d you get started? Rodney: I was 12 years old, alone in my room, and I got started!
+ - What a kid I got, I told him about the birds and the bee and he told me about the butcher and my wife.
+ - Once I pulled a job, I was so stupid. I picked a guy’s pocket on an airplane and made a run for it.
+ - I asked my wife if she would put out the garbage. she said why should I you never put out for me.
+ - My kid wants to be a prison warden when he grows up so he can put thumb tacks on the electric chairs.
+ - Every time I get in an elevator, the operator says the same thing to me: ‘Basement?’
+ - What a doctor I’ve got – he’s really mixed up. Last week, he grabbed my knee and told me to cough. Then hit me in the balls with a hammer.
+ - I don’t know kid, there are so many places they could hide.
+ - She was old too, when she went to school they didn’t have history.
+ - It’s nice to be the best, but not when being the best brings out the worst in you.
+ - My wife’s jealousy is getting ridiculous. The other day she looked at my calendar and wanted to know who May was.
+ - You wanna have laughs? Do what I do. When I go through a tollbooth, I keep going. I tell the guy, The car behind me is paying for two.
+ - I told my doctor I think my wife has VD. He gave himself a shot of penicillin.
+ - One time I went to a hotel. I asked the bellhop to handle my bag. He felt up my wife!
+ - I went to a gay bar, they wanted proof of sex so I showed them, they said it wasn’t enough.
+ - Getting older is tough. I remember the last time I felt an erection. It was at the movies. The only trouble is, it belonged to the guy sitting next to me.
+ - We want five thousand dollars or you’ll see your kid again.
+ - My mother used to rock me – and she used big rocks.
+ - My daughters been picked up so many times she’s starting to grow handles.
+ - When I was born I brought no joy, my father said he wanted a boy!
+ - I tell ya, my wife, we get along good cause we have our own arrangement. I mean, one night a week I go out with the boys and one night a week, she goes out with the boys.
+ - I went to a fight the other night, and a hockey game broke out.
+ - I’ve been writing jokes since I’m fifteen. Not out of happiness, but to go to a different place, because reality wasn’t good to me.
+ - At certain times I like sex – like after a cigarette.
+ - I asked him “Who said you could fool around with my wife” he said everybody.
+ - I like southern girls. They talk so slow that by the time they say no, I made it already.
+ - I like to date schoolteachers. If you do something wrong, they make you do it over again.
+ - It would be great if people never got angry at someone for doing something they’ve done themselves.
+ - Me and my dad used to play tag, he’d drive!
+ - At twenty a man is full of fight and hope. He wants to reform the world. When he is seventy he still wants to reform the world, but he know he can’t.
+ - Comedy is in my blood. Too bad it’s not in my act.
+ - My wife has to be the worst cook. I don’t believe meatloaf should glow in the dark.
+ - You don’t know who to believe. Like Abraham Lincoln. He said all men were created equal. He never went to a nude beach.
+ - If you can’t write your own material, you have very little chance of making it as a comedian.
+ - What a dog I got. Last night he went on the paper four times – three while I was reading it.
+ - I said to a girl I’d been seeing, come home with me, honey, and I’ll show you where it’s at. She said, You’d better, because the last time I could’nt find it.
+ - You live with life’s disappointments and learn from them. At seventy-eight, I know it all.
+ - I live in a bad neighborhood. Why, I saw two complete strangers share a taxi – yeah, one guy took the radio and the other guy took the tires.
+ - It was the same thing in the army, no respect. They gave me a uniform that glowed in the dark.
+ - My parents didn’t like me. For bathtub toys they gave me a blender and a transistor radio.
+ - Acting deals with very delicate emotions. It is not putting up a mask. Each time an actor acts he does not hide; he exposes himself.
+ - I met the surgeon general – he offered me a cigarette.
+ - I tell ya I got a stupid son. That’s one load that shoulda been shot on the wall.
+ - I tell ya when I was a kid, all I knew was rejection. My yo-yo, it never came back.
+ - She was so ugly that her face could stop a sundial.
+ - Boy what a hotel that was, why they stole my towel.
+ - I told my doctor I wonna stop aging, he gave me a gun!
+ - On Halloween, the parents sent their kids out looking like me.
+ - When we got married, the first thing my wife did was put everything under both names – hers and her mother’s.
+ - The other night a mugger took off his mask and made me wear it.
+ - To me, Viagra is the same as Disneyland. You wait an hour for a two-minute ride.
+ - For two hours, some guy followed me around with a pooper scooper.
+ - At my age I’m envious of a stiff wind.
+ - What a dog I got, he found out we look alike, so he killed himself.
+ - This morning when I put on my underwear I could hear the fruit-of-the-loom guys laughing at me.
+ - I live in a tough neighborhood. They got a children’s zoo. Last week, four kids escaped.
+ - When I was 3 years old, my parents got a dog. I was jealous of the dog, so they got rid of me.
+ - My wife isn’t very bright. The other day she was at the store, and just as she was heading for our car, someone stole it! I said, “Did you see the guy that did it?” She said, “No, but I got the license plate.”
+ - I saved a girl from being attacked last night. I controlled myself.
+ - I was so ugly my mother used to feed me with a sling shot.
+ - To give you an idea how well I was doing at the time I quit, I was the only one who knew I quit.
+ - People ask if I can get it up in the morning. I tell them are you kidding I’m envious of a stiff wind.
+ - He found a new way to cover up his bad breath. He holds up his arms.
+ - My old man never liked me. He gave me my allowance in traveler’s checks.
+ - I get no respect. The way my luck is running, if I was a politician I would be honest.
+ - I remember the time I was kidnapped and they sent a piece of my finger to my father. He said he wanted more proof.
+ - Oh, I was an ugly kid. My old man took me to the zoo. They thanked him for returning me.
+ - If every man was as true to his country as he was to his wife, we’d be in a lot of trouble.
+ - With girls, I don’t think right. I had a date with one girl, she had mirrors all over her bedroom. She told me to come over and bring a bottle. I got Windex.
+ - There’s only one thing wrong with my wife’s face – it shows.
+ - My father carries around the picture of the kid who came with his wallet.
+ - I tell ya, I know the best way to get girls. I hang out at women’s prisons, and wait for parolees.
+ - What a dog I got, his favorite bone is in my arm.
+ - Sure I smoked pot in hospital. My wife won’t let me toke at home.
+ - Man, who don’t like spaghetti?
+ - I once asked a policeman how far it was to the subway. he said, “I don’t know, no one has ever made it”.
+ - I worked in a pet store and people would ask how big I would get.
+ - When my wife drives, there’s always trouble. The other day she took the car. She came home. She told me, There’s water in the carburetor. I asked her, Where’s the car? She said, In a lake.
+ - My mother had morning sickness after I was born.
+
+309 quotes

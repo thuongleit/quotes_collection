@@ -1,0 +1,35 @@
+ - Building community is to the collective as spiritual practice is to the individual.
+ - We never know how our small activities will affect others through the invisible fabric of our connectedness. In this exquisitely connected world, it’s never a question of ‘critical mass.’ It’s always about critical connections.
+ - You cannot change any society unless you take responsibility for it, unless you see yourself as belonging to it and responsible for changing it.
+ - The most radical thing I ever did was to stay put.
+ - The only way to survive is by taking care of one another.
+ - You don’t choose the times you live in, but you do choose who you want to be. And you do choose how you think.
+ - Don’t get stuck in old ideas. Keep recognizing that reality is changing and that your ideas have to change.
+ - We can begin by doing small things at the local level, like planting community gardens or looking out for our neighbors. That is how change takes place in living systems, not from above but from within, from many local actions occurring simultaneously.
+ - Love isn’t about what we did yesterday; it’s about what we do today and tomorrow and the day after.
+ - History is not the past. It is the stories we tell about the past. How we tell these stories – triumphantly or self-critically, metaphysically or dialectally – has a lot to do with whether we cut short or advance our evolution as human beings.
+ - A revolution that is based on the people exercising their creativity in the midst of devastation is one of the great historical contributions of humankind.
+ - The nation-state became powerful in the wake of the French Revolution, whereas the nation-state has become powerless in light of globalization.
+ - It takes time for change to take place. But then when huge changes are taking place, they are extraordinary. And it requires a kind of philosophical thinking, thinking in terms of epochs.
+ - I think at the time, my radicalization was not through growing up Chinese, but through the role that the black people were playing at the beginning of World War II, when they had started the “Double V for Victory” movement – for democracy at home as well as abroad.
+ - Some people are afraid of gentrification, but what I see is young people want to live in a different world. And they see possibilities here. They see that rents are relatively cheap compared to places like New York and California.
+ - I think that deep in our hearts we know that our comforts, our conveniences are at the expense of other people.
+ - What time is it on the clock of the world?
+ - Really, people are not a school of fish. Finding the leaders of the future is a question of recognizing those people who give leadership in a crisis.
+ - A rebellion is something that is developing as an explosion coming out of the righteous grievances of a community of people.
+ - Talk and write in a way that encourages the mutual exchange of ideas and acts like a midwife to people birthing their own ideas.
+ - We’re at a great transition point in terms of population, demographics, and what it means to be a human being.
+ - How do we redefine education so that 30-50 percent of inner-city children do not drop out of school, thus ensuring that millions will end up in prison?
+ - People in Detroit aren’t just urban gardening. They’re starting a new mode of education. They’re trying to give children the education to be “solutionaries” rather than people who are going to get jobs in the system. And that is a huge change, a cultural revolution.
+ - This capitalist society has not lasted forever; it’s only a few hundred years old.
+ - I think we’re not looking sufficiently at what is happening at the grassroots in the country. We have not emphasized sufficiently the cultural revolution that we have to make among ourselves in order to force the government to do differently. Things do not start with governments.
+ - I think that rebellions arise out of anger, and they’re very short-lived.
+ - We need to undergo a very radical revolution in values. And we need to think about what it’s like to have become so materialistic that we think having a good job, and consuming like crazy to compensate for the dehumanization of the job, is living like a human being.
+ - I think our concept of revolution, in terms of getting the power to do things, is too focused on the state. We have a scenario of revolution that first, you know, comes from 1917, that first you take the state power, and then you change things. And we don’t realize it’s collapsed.
+ - Well, I would say that we’ve got to redefine democracy, that we have been stuck in concepts of representative democracy, that we believe that it’s getting other people to do things for us that we progress.
+ - Nonviolence is based on recognizing that all of us are human beings. And at a certain point we begin to learn that you don’t gather very much by making enemies out of people and not recognizing their humanity. Nonviolence is essentially based on recognizing the humanity in every one one of us.
+ - I believe that we are at the point now, in the United States, where a movement is beginning to emerge.
+ - The struggle we’re dealing with these days, which, I think, is part of what the 60s represented, is how do we define our humanity?
+ - It’s really important that we get rid of the idea that protest will create change. We don’t realize that that kind of organizing worked only when the government was very strong, when the West ruled the world, relatively speaking.
+
+33 quotes

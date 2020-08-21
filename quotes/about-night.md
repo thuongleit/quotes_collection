@@ -1,0 +1,42 @@
+ - The darkest nights produce the brightest stars. ~~John Green
+ - Do not let your difficulties fill you with anxiety, after all it is only in the darkest nights that stars shine more brightly. ~~Ali ibn Abi Talib
+ - For the night is dark and full of terrors. ~~George R.R. Martin
+ - I’ve loved the stars too fondly to be fearful of the night. ~~Galileo Galilei
+ - Because I cannot sleep I make music in the night. ~~Rumi
+ - Sometimes, things may not go your way, but the effort should be there every single night. ~~Michael Jordan
+ - If you’re going to try, go all the way. There is no other feeling like that. You will be alone with the gods, and the nights will flame with fire. You will ride life straight to perfect laughter. It’s the only good fight there is. ~~Charles Bukowski
+ - A mentor is someone who allows you to see the hope inside yourself. A mentor is someone who allows you to know that no matter how dark the night, in the morning joy will come. A mentor is someone who allows you to see the higher part of yourself when sometimes it becomes hidden to your own view. ~~Oprah Winfrey
+ - There’s no one with intelligence in this town except that man over there playing with the children, the one riding the stick horse. He has keen, fiery insight and vast dignity like the night sky, but he conceals it in the madness of child’s play. ~~Rumi
+ - Night is always darker before the dawn and life is the same, the hard times will pass, every thing will get better and sun will shine brighter then ever. ~~Ernest Hemingway
+ - Your world is a living expression of how you are using and have used your mind. ~~Earl Nightingale
+ - I don’t lose any sleep at night over the potential for failure. I cannot even spell the word. ~~James Mattis
+ - Later that night, I held an atlas on my lap, ran my fingers across the whole world, and whispered, ‘where does it hurt?’ It answered, everywhere, everywhere, everywhere. ~~Warsan Shire
+ - Day by day and night by night we were together – all else has long been forgotten by me. ~~Walt Whitman
+ - When you miss me just look up to the night sky and remember, I'm like a star; sometimes you can't see me, but I'm always there. ~~Jayde Nicole
+ - Work every day. No matter what has happened the day or night before, get up and bite on the nail. ~~Ernest Hemingway
+ - If I have questions about the universe on my mind when I go to bed, I can’t turn off. I dream equations all night. ~~Stephen Hawking
+ - I hear the birds on the summer breeze, I drive fast I am alone in the night Been trying hard not to get into trouble, but I I’ve got a war in my mind So, I just ride. ~~Lana Del Rey
+ - We will receive not what we idly wish for but what we justly earn. Our rewards will always be in exact proportion to our service. ~~Earl Nightingale
+ - Do you hear the people sing Lost in the valley of the night? It is the music of a people Who are climbing to the light. For the wretched of the earth There is a flame that never dies. Even the darkest night will end And the sun will rise. ~~Victor Hugo
+ - And when the night is cloudy There is still a light that shines on me Shine on until tomorrow, let it Be... ~~Paul McCartney
+ - My candle burns at both ends; it will not last the night; but ah, my foes, and oh, my friends – it gives a lovely light! ~~Edna St. Vincent Millay
+ - Rich People plan for three generations. Poor people plan for Saturday night. ~~Gloria Steinem
+ - She gives the night its dreams. ~~Chris Cornell
+ - Some are born to sweet delight, Some are born to endless night. ~~William Blake
+ - Every Night and every Morn Some to Misery are born. Every Morn and every Night Some are born to Sweet Delight, Some are born to Endless Night. ~~William Blake
+ - Long days and pleasant nights. ~~Stephen King
+ - Roll down the window and let the wind blow back your hair. The night’s busted open. These two lanes will take us anywhere. ~~Bruce Springsteen
+ - One word after another. That’s the only way that novels get written and, short of elves coming in the night and turning your jumbled notes into Chapter Nine, it’s the only way to do it. So keep on keeping on. Write another word and then another. ~~Neil Gaiman
+ - You can sit right on my middle finger for the night. ~~Lil Wayne
+ - Talk about a dream, try to make it real. You wake up in the night with a fear so real. Spend your life waiting for a moment that just don’t come. Well, don’t waste your time waiting. ~~Bruce Springsteen
+ - I want to let her know though that all the nights sleeping beside her even the useless arguments were things ever splendid and the hard words I ever feared to say can now be said: I love you. ~~Charles Bukowski
+ - You may learn sooner than most generations the hard lesson that you must always make the path for yourself. There is no secret society out there that will tap you on your shoulder one night and show you the way. ~~Stephen Colbert
+ - At night I dream that you and I are two plants that grew together, roots entwined, and that you know the earth and the rain like my mouth, since we are made of earth and rain. ~~Pablo Neruda
+ - Music is moonlight in the gloomy night of life. ~~Jean Paul
+ - The dark night of the soul is when you have lost the flavor of life but have not yet gained the fullness of divinity. So it is that we must weather that dark time, the period of transformation when what is familiar has been taken away and the new richness is not yet ours. ~~Ram Dass
+ - I miss you more than the sun misses the sky at night. ~~Taylor Swift
+ - The energy in the daytime is so different because everyone is so unhappy and depressed and you can pick up on that energy psychokinetically. So I like to come out at night. Everything’s settled, you can see more. ~~Kevin Gates
+ - Think in the morning. Act in the noon. Eat in the evening. Sleep in the night. ~~William Blake
+ - I live for the nights that I can’t remember, with the people that I won’t forget. ~~Drake
+
+40 quotes

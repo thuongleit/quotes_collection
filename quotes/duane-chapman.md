@@ -1,0 +1,28 @@
+ - Dog is God spelled backward.
+ - In Hawaii, we have something called Ho’oponopono, where people come together to resolve crises and restore peace and balance.
+ - Where mercy is shown, mercy is given.
+ - You can’t be afraid to put out a fire if you’re a fireman. You can’t be afraid to be a police officer and carry a gun if you’re afraid to get up and go out there. So you’ve got to put that fear to the side and go out in faith to overcome that.
+ - Born on a mountain, raised in a cave. Arresting fugitives is all I crave.
+ - My father is the reason I am the way I am today. He’s why I acted up and he’s why I prayed to be the opposite of him. We made up before he died but I vowed to never raise my kids like how he raised me.
+ - I’m marrying my common-law wife, Beth, the Christian way, with a preacher and all that.
+ - The closest thing to hell on earth is prison. It’s the worst experience I’ve ever had in my life. Besides death.
+ - You know God gives me that inner strength that super strength to get through things.
+ - And I used to say, ‘I’m black, too.’ In other words, I – my whole life I’ve been called a half-breed, a convict, king of the trailer trash, this and that. I take that and stand.
+ - I have a hard problem, being some part Native American – being a Christian: do you get burned, do you get cremated, do you get – let the sharks eat you? How do you die?
+ - As a bounty hunter, I have to dress the part. If I came to the door and looked like Carrot Top, you’d laugh.
+ - Everybody’s under God’s planet, and God is the Almighty, the Beginning, the End, the Alpha, the Omega. He’s Big Daddy. He gives out these little soldiers and sons and angels and saints to help everybody else get through to him. I’m not the ‘Jesus-only or you’re going to Hell’ kind of guy.
+ - I’m Native American, so it’s in my blood to always want brothers and friends. I’m a good brotherhood guy.
+ - I need to get a greater vocabulary than what I have and when I get mad and my brain searches for a word. I have to find different words and to do that you need to have more of an education.
+ - I love what I do. I love to capture the guy. I love to tell the victim ‘Don’t worry anymore. They’re in jail.’ And this is my way to heaven. This is my way to contribute to America what I know how to do best, and that’s chase down the predator.
+ - I’ve been a biker, I’ve been a convict, I’ve been a husband, father, and son.
+ - I say to all fathers – be as good as you can be- because your sons and daughters will follow in your footsteps.
+ - I was in prison for a charge in Texas, murder one. Back in the ’70s in Texas, I was there. I heard the shot. I was in the car.
+ - I’ve always taken pride to be the white guy that can talk to the black people, that can refer to them truly as a brother from a different mother.
+ - I’m very emotional. That’s why I wear shades a lot.
+ - We believe that God is big enough to give every nationality their own religion, as he’s given them their own taste in food, in plants, in furniture, and housing. I think that each religion has their basic Christ-ish way to get to the Everlasting God.
+ - It’s just like being a father; you got to show them love and you got to show them the path. I don’t like this role-model stuff, though.
+ - I’m going to be Dog, and I’m going to be an entertainer. And I’m going to make mistakes.
+ - Six men can carry you or 12 men can judge you. You decide!
+ - I have the utmost respect and ‘aloha’ for black people – who have already suffered so much due to racial discrimination and acts of hatred.
+
+26 quotes

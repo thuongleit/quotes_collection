@@ -1,0 +1,48 @@
+ - When people succeed, it is because of hard work. Luck has nothing to do with success.
+ - The Lord helps those who help themselves.
+ - I am Maradona, who makes goals, who makes mistakes. I can take it all, I have shoulders big enough to fight with everybody.
+ - I’m alive and I want to keep living.
+ - When you win, you don’t get carried away. But if you go step by step, with confidence, you can go far.
+ - I have seen the player who will inherit my place in Argentine football and his name is Messi. Messi is a genius.
+ - God makes me play well. That is why I always make the sign of the cross when I walk out onto the field. I feel I would be betraying Him if I didn’t.
+ - Messi scores a goal and celebrates. Cristiano scores a goal and poses like he’s in a shampoo commercial.
+ - My mother thinks I am the best. And I was raised to always believe what my mother tells me.
+ - Money is not a motivating factor. I do what comes to me at that moment.
+ - Everybody in Argentina can remember the hand of God in the England match in the 1986 World Cup. Now, in my country, the hand of God has brought us an Argentinian pope.
+ - I gave all I had. Now I want to enjoy my family.
+ - If you don’t want to play clean football then go up into the stands.
+ - What I love most about Norway is you ladies. Back home I’m used to fat and hairy women journalists.
+ - You were only a goalkeeper.
+ - Carlitos is amazing. He does what he wants with the Arabs. He tells them “I want to go to Buenos Aires” and they say “No, Carlitos, stay here now, we’ll give you more money”. And then he gets more money!
+ - When I wear the national team shirt, its sole contact with my skin makes it stand on an end.
+ - My legitimate kids are Dalma and Giannina. The rest are a product of my money and mistakes.
+ - Messi I think is like me, he is the best in the world along with Ronaldinho.
+ - At the moment there are some England players who are the stars of their club teams, but not for their country. It’s difficult to explain.
+ - Pele should go back to the museum.
+ - Many people agree with me that many things are not clear in football these days and it is not something people who watch football deserve. The situation will be the same while football is run by people who do not understand football.
+ - Of course in the first matches you are more careful, perhaps more careful than you should be.
+ - There would be no debate about who was the best footballer the world had ever seen – me or Pele. Everyone would say me.
+ - The goal was scored a little bit by the hand of God, another bit by the head of Maradona.
+ - Even if there was a hand, it was the hand of God.
+ - I am black or white, I’ll never be grey in my life.
+ - The Manchester Derby is bigger and more important than El Classico.
+ - I was, I am and I always will be a drug addict. A person who gets involved in drugs has to fight it everyday.
+ - All the people that criticised me should eat their words.
+ - When God decides its time, I guess he’ll come for us.
+ - He’s a leader and is offering lessons in beautiful football. He has something different to any other player in the world.
+ - I hate everything that comes from the United States. I hate it with all my strength.
+ - To see the ball, to run after it, makes me the happiest man in the world.
+ - If I could apologise and go back and change history I would do. But the goal is still a goal, Argentina became world champions and I was the best player in the world.
+ - I’m not desperate but I know that some day I’ll be the coach again of some team.
+ - I’ll be too old to face a difficult championship as the one in America will surely be.
+ - I have 23 top players and they are all ready to put on the jersey and work on the pitch and that makes you happy and then you have peace of mind.
+ - I’d give my life to be the national team coach.
+ - People who say that only young people voted on the Internet, those who didn’t see Pele play, forget that children are not orphans. There’s always a father who buys the computer and perhaps influences their vote. I won the people’s vote.
+ - The problem is that they are all stars at Madrid. You need someone to carry the water to the well.
+ - Things are neither clear nor clean in the world of football right now and many people recognise this reality.
+ - Something that just came out of me. It was a bit of mischief.
+ - It was as if we had beaten a country, more than just a football team.
+ - I certainly have an advantage over some because I can pass on so much from the World Cups I played in.
+ - While the coach is entitled to celebrate the team’s victories, there is a manner and a way of doing so without aggravating the opponent.
+
+46 quotes

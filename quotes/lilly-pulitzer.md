@@ -1,0 +1,21 @@
+ - Being happy never goes out of style.
+ - Despite the forecast, live like it’s Spring.
+ - Anything is possible with sunshine and a little pink.
+ - It’s always summer somewhere.
+ - Wear pink and make the boys wink.
+ - Time means nothing to me.
+ - I was a gypsy, living a carefree life of ponies and tennis.
+ - Not always sunny, but always in a sunny state of mind.
+ - There will be a moment of silence while our prints do the talking.
+ - I didn’t set out to be unusual or different. I just wanted to do things my way.
+ - I am a believer that color affects people’s moods.
+ - Life’s a party, dress like it.
+ - I loved my boarding school, but I didn’t know what I wanted to do. I didn’t have a career.
+ - That’s what life is all about: Let’s have a party. Let’s have it tonight.
+ - We believe elegance can be casual. We believe gracefulness can be compatible with fits of laughter. We believe in living a colorful life.
+ - Seeing Michelle Obama’s bright color choices, and how she made people smile and reinforced Obama’s platforms of hope and change, was inspiring.
+ - I can’t put into words what I think about anything.
+ - Style isn’t just about what you wear, it’s about how you live.
+ - The Lilly girl is always full of surprises. She lives everyday like it’s a celebration, never has a dull moment, and makes every hour a happy hour.
+
+19 quotes

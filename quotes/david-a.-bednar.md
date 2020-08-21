@@ -1,0 +1,92 @@
+ - If today you are a little bit better than you were yesterday, then that’s enough. And, if tomorrow you are a little bit better than you were today, then that’s enough.
+ - To be offended is a choice we make; it is not a condition inflicted or imposed upon us by someone or something else.
+ - Ordinary people who faithfully, diligently, and consistently do simple things that are right before God will bring forth extraordinary results.
+ - People of integrity and honesty not only practice what they preach, they are what they preach.
+ - Knowing that the gospel is true is the essence of a testimony. Consistently being true to the gospel is the essence of conversion.
+ - A grateful person is rich in contentment. An ungrateful person suffers in the poverty of endless discontentment.
+ - Nothing about the priesthood is self-centered. The priesthood always is used to serve, to bless, and to strengthen other people.
+ - Not only does the Atonement of Jesus Christ overcome the effects of the Fall of Adam and make possible the remission of our individual sins and transgressions, but His Atonement also enables us to do good and become better in ways that stretch far beyond our mortal capacities.
+ - We should remember that bearing a heartfelt testimony is only a beginning. We need to bear testimony, we need to mean it, and most importantly we need consistently to live it. We need to both declare and live our testimonies.
+ - An answer we discover or obtain through the exercise of faith is typically retained for a lifetime. The most important learnings of life are caught-not taught.
+ - Remember that becoming people of integrity and honesty is not simply a matter of more personal determination, more grit, and more willpower; rather, it is accomplished through the enabling power of the Atonement of the Lord Jesus Christ.
+ - Sincere desire and worthiness invite the spirit of revelation into our lives.
+ - Be careful to not haul around in our lives so many nice but unnecessary things that we are distracted and diverted from the things that truly matter most.
+ - One of the greatest indicators of our own spiritual maturity is revealed in how we respond to the weaknesses, the inexperience, and the potentially offensive actions of others.
+ - If all opposition were curtailed, if all maladies were removed, then the primary purposes of the Father’s plan would be frustrated.
+ - Giving a man a fish feeds him for one meal. Teaching a man to fish feeds him for a lifetime. As parents and gospel instructors, you and I are not in the business of distributing fish; rather, our work is to help our children learn ‘to fish.’
+ - In the strength of the Lord we can do and endure and overcome all things.
+ - Repentance is the sweet fruit that comes from faith in the Savior and involves turning toward God and away from sin.
+ - Every sincere prayer is heard and answered by our Heavenly Father, but the answers we receive may not be what we expect or come to us when we want or in the way we anticipate.
+ - The enabling power of the Atonement strengthens us to do and be good and to serve beyond our own individual desire and natural capacity.
+ - A home with a loving and loyal husband and wife is the supreme setting in which children can be reared in love and righteousness and in which the spiritual and physical needs of children can be met.
+ - Pray and seek for strength to change our circumstances rather than praying for our circumstances to be changed.
+ - Steady, sustained, and incremental spiritual progress produces the fruit of steadfastness-and helps us to reduce the disparity between what we know and what we do. Testimony is strengthened and conversion unto the Lord is deepened through small and simple things done well over time.
+ - Love increases through righteous restraint and decreases through impulsive indulgence.
+ - Purifying and sealing by the Holy Spirit of Promise constitute the culminating steps in the process of being born again.
+ - Inspired questions will bring about inspired answers. Seek for the companionship of the Holy Ghost as you prepare.
+ - Our sincere desire should be to have both clean hands and a pure heart – both a remission of sins from day to day and to walk guiltless before God.
+ - Sometimes we overcomplicate living the gospel. Consistency in acting in accordance with the Lord’s will is key.
+ - The infinite Atonement is for both the sinner and for the saint in each of us.
+ - Strong faith in the Savior is submissively accepting of His will and timing in our lives, even if the outcome is not what we hoped for or wanted.
+ - I witness the reality and divinity of our Eternal Father, of His Only Begotten Son, the Lord Jesus Christ, and of the Holy Ghost. I testify that our Father hears and answers our prayers. May each of us strive with greater resolve to ask in faith and thereby make our prayers truly meaningful.
+ - We are not, and never need be, alone.
+ - What we know is not always reflected in what we do.
+ - The Savior is the perfect example of praying for others with real intent. In His great Intercessory Prayer uttered on the night before His Crucifixion, Jesus prayed for His Apostles and all of the Saints.
+ - Conversion is an offering of self, of love, and of loyalty we give to God in gratitude for the gift of testimony.
+ - A grateful person is rich in contentment.
+ - I testify that the tender mercies of the Lord are real and that they do not occur randomly or merely by coincidence. Often, the Lord’s timing of His tender mercies helps us to both discern and acknowledge them.
+ - The Lord knows who we really are, what we really think, what we really do, and who we really are becoming.
+ - The Lord’s truth is not altered by fads, trends or public opinion.
+ - Righteousness and faith certainly are instrumental in healing the sick, deaf, or lame – if such healing accomplishes God’s purposes and is in accordance with His will. Thus, even with strong faith, many mountains will not be moved. And not all of the sick and infirm will be healed.
+ - Within the sound of my voice are many young women, young men, and children. I plead with you to be worthy, to be steadfast, and to look forward with great anticipation to the day you will receive the ordinances and blessings of the temple.
+ - Devoted disciples of Jesus Christ always have been and always will be valiant missionaries. A missionary is a follower of Christ who testifies of Him as the Redeemer and proclaims the truths of His gospel.
+ - Asking in faith requires honesty, effort, commitment, and persistence.
+ - Heartfelt and willing obedience invites the constant companionship of the Holy Ghost.
+ - Feeling the security and constancy of love from a spouse, a parent or a child is a rich blessing. Such love nurtures and sustains faith in God. Such love is a source of strength and casts out fear. Such love is the desire of every human soul.
+ - Through persistent, effective, and diligent work, a person can accumulate knowledge in the form of facts, data, information, and experience. Intelligence, however, can only be gained through obedience. Thus, knowledge is a prerequisite to and foundation for true spiritual intelligence.
+ - Christ lives and will cleanse, heal, guide, protect and strengthen us.
+ - A light turned on in a dark room is like receiving a message from God quickly, completely, and all at once.
+ - Faithful parents can invite the power of heaven to influence their children. Nevertheless, those children remain agents unto themselves, and the choice to repent or not ultimately is theirs.
+ - Ordinary men are given the authority of the priesthood. Worthiness and willingness – not experience, expertise, or education – are the qualifications for priesthood ordination.
+ - Would the Lord send one of the Twelve Apostles halfway around the world to help just one person? The answer is YES. He does it all the time.
+ - Learning by faith and from experience are two of the central features of the Father’s plan of happiness. The Savior preserved moral agency through the Atonement and made it possible for us to act and to learn by faith.
+ - By divine design, men and women are intended to progress together toward perfection and a fulness of glory. Because of their distinctive temperaments and capacities, males and females each bring to a marriage relationship unique perspectives and experiences.
+ - Worldly influences would hinder use of our agency afforded through the Atonement of Jesus Christ. But we are agents who can act, and that affects everything in terms of how we live the gospel in our daily lives. It affects how we pray, how we study the scriptures, how we worship at church.
+ - Revelation is communication from God to His children on the earth and one of the great blessings associated with the gift and constant companionship of the Holy Ghost.
+ - The knowledge and spiritual conviction we receive from the Holy Ghost are the result of revelation.
+ - Let me recommend that periodically you and I offer a prayer in which we only give thanks and express gratitude. Ask for nothing; simply let our souls rejoice and strive to communicate appreciation with all the energy of our hearts.
+ - Sometimes we overcomplicate living the gospel.
+ - A spiritual ‘spurter’ is one who is given to short bursts of spectacular effort followed by frequent and lengthy periods of rest.
+ - Obedience to the law of chastity will increase our happiness in mortality and make possible our progress in eternity.
+ - Regardless of our age, experience, or station in life, we are all missionaries.
+ - Spiritual illumination and perspective are poured out through the windows of heaven and into our lives as we honor the law of tithing.
+ - Testimony is personal knowledge, based upon the witness of the Holy Ghost, that certain facts of eternal significance are true.
+ - Just as the unique characteristics of both males and females contribute to the completeness of a marriage relationship, so those same characteristics are vital to the rearing, nurturing, and teaching of children.
+ - Often as we teach and testify about the law of tithing, we emphasize the immediate, dramatic and readily recognizable temporal blessings that we receive. And surely such blessings do occur. Yet some of the diverse blessings we obtain as we are obedient to this commandment are significant but subtle.
+ - An Apostle is a missionary, bearing testimony of the reality and divinity of Jesus Christ in all the world.
+ - Many of the lessons we are to learn in mortality can only be received through the things we experience and sometimes suffer. And God expects and trusts us to face temporary mortal adversity with His help so we can learn what we need to learn and ultimately become what we are to become in eternity.
+ - Prayer becomes more meaningful as we counsel with the Lord in all of our doings, as we express heartfelt gratitude, and as we pray for others.
+ - The most meaningful and spiritual prayers I have experienced contained many expressions of thanks and few, if any, requests.
+ - The Book of Mormon is our handbook of instructions as we travel the pathway from bad to good to better and strive to have our hearts changed.
+ - The revelations of the Father and the Son are conveyed through the third member of the Godhead, even the Holy Ghost. The Holy Ghost is the witness of and messenger for the Father and the Son.
+ - Interestingly, simple and ordinary experiences often provide the most important learning opportunities we ever have.
+ - Understanding who we are, where we came from, and why we are upon the earth places upon each of us a great responsibility both to learn how to learn and to learn to love learning.
+ - I believe the best test of our integrity and honesty is when we personally enforce in our own lives that which ultimately cannot be enforced.
+ - It frankly does not make sense to occasionally ‘fill up’ with water, with long periods of dehydration in between. The same thing is true spiritually. Spiritual thirst is a need for living water. A constant flow of living water is far superior to sporadic sipping.
+ - When we are baptized and confirmed, the promised blessing is that we may always have the Holy Ghost to be with us. If you are consistently good, you will have the companionship of the Holy Ghost much of the time.
+ - Priesthood is the means whereby the Lord acts through men to save souls. One of the defining features of the Church of Jesus Christ, both anciently and today, is His authority. There can be no true Church without divine authority.
+ - Priesthood ordinances are the pathway to the power of godliness.
+ - The simpleness, the sweetness, and the constancy of the tender mercies of the Lord will do much to fortify and protect us in the troubled times in which we do now and will yet live.
+ - Disciples who are steadfast and immovable do not become fanatics or extremists, are not overzealous, and are not preoccupied with misguided gospel hobbies.
+ - Proclaiming the gospel is not an activity in which we periodically and temporarily engage.
+ - The power of procreation is spiritually significant. Misuse of this power subverts the purposes of the Father’s plan and of our mortal existence. Our Heavenly Father and His Beloved Son are creators and have entrusted each of us with a portion of Their creative power.
+ - As we gain experience with the Holy Ghost, we learn that the intensity with which we feel the Spirit’s influence is not always the same.
+ - Baptism by water leads to the authorized opportunity for the constant companionship of the third member of the Godhead.
+ - One of my favorite activities as a priesthood leader is visiting members of the Church in their homes. I especially enjoy calling upon and talking with members who commonly are described as ‘less active.’
+ - Trust and confidence in Christ and a ready reliance on His merits, mercy, and grace lead to hope, through His Atonement, in the Resurrection and eternal life. Such faith and hope invite into our lives the sweet peace of conscience for which we all yearn.
+ - The basic principles of the gospel of Jesus Christ are simple, and they are universal. Faith in the Savior is the same in Boston as it is in Accra.
+ - All of us now are serving and will continue to serve as lifelong missionaries. We are missionaries every day in our families, in our schools, in our places of employment, and in our communities. Regardless of our age, experience, or station in life, we are all missionaries.
+ - Sturdy gospel roots that go deep into rich spiritual soil strengthen and steady us in times of trial and difficulty.
+ - The ancient Apostles were common men, and that was part of their credential.
+
+90 quotes

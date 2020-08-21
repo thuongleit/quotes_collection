@@ -1,0 +1,30 @@
+ - You can accomplish anything with pure persistence and drive.
+ - Just because you didn’t start out perfect doesn’t mean you can’t have an excellent result in the end.
+ - Right now I am doing my residency in orthopedic research.
+ - I tell people I’m too stupid to know what’s impossible. I have ridiculously large dreams, and half the time they come true.
+ - I was always very strong in math, physics and calculus.
+ - Figure skating was a pretty individual sport. I’ve grown up a lot since those days and enjoy being part of a team now. Being a doctor is about working with nurses, therapists, anesthesiologists, and I’ve learned more about team play being a doctor than when I was in sports.
+ - My mother introduced me to many different things, and figure skating was one of them. I just thought that it was magical having to glide across the ice.
+ - I begged my mom to let me start skating.
+ - My advice is that going to the Olympics and winning a gold medal are great goals, but the real goal should be to be the best that you can be.
+ - If you trust your nerve as well as your skill, you’re capable of a lot more than you can imagine.
+ - I got a bronze medal and I can’t complain about that, the only African-American to get a medal in the Winter Olympics.
+ - What makes you really come together under pressure is determination and focus and toughness.
+ - I would make my mom buy me the toy doctor kit.
+ - I wanted to be a doctor since I was five.
+ - I want people to know when I’m taking care of them I’ll give it all that I’ve got.
+ - My skating is a very emotional thing that comes from the heart, never doing it for the medal.
+ - Probably the ’86 nationals. That was my first real national title and first real statement I ever made in figure skating, and my life changed after I returned.
+ - But I like it when my patients are impressed not knowing that I was an Olympian.
+ - So I went for engineering, specifically product design, which I enjoyed.
+ - It is great to be a part of the whole skating family, and it makes me feel ecstatic that my name will be among the greats of the sport.
+ - For as long as I can really remember, I wanted to be a doctor.
+ - I am not really sure how I got interested in medicine.
+ - I’ve got this thing with skating and school – to see how much I can accomplish.
+ - I tell people I’m too stupid to...
+ - What was most important to me at the Olympics was going out there and performing my best. When I messed up the first jump combination, which was my big move, it hit me that I messed up the program of my life.
+ - The Olympics: not one of my better memories.
+ - Being an Olympian, I always have this strong belief in excellence.
+ - I watch a lot of professional skating, and I am really looking forward to going to nationals.
+
+28 quotes

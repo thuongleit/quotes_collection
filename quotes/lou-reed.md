@@ -1,0 +1,179 @@
+ - You’re going to reap just what you sow.
+ - My God is rock’n’roll.
+ - Give me your hungry, your tired, your poor, that’s what the Statue of Bigotry says. Your poor huddled masses, let’s just club them to death, and get it over with.
+ - My week beats your year.
+ - Take a walk on the wild side.
+ - Life’s like a mayonnaise soda.
+ - My God is rock’n’roll. It’s an obscure power that can change your life. The most important part of my religion is to play guitar.
+ - Honey, I’m a cocksucker, what are you?
+ - I think that everything happens for a reason, everything happens when it’s going to happen.
+ - It’s just a temporary thing.
+ - Why don’t you swallow razor blades?
+ - You’ve gotta blow the roof off of your heart and let the universe in.
+ - There’s a bit of magic in everything, and some loss to even things out.
+ - Underachievers of the world unite, you have nothing to lose except your fright.
+ - I like druggy downtown kids who spray paint walls and trains. I like their lack of training, their primitive technique. I think it hurts you, when you stay too long in school.
+ - You can’t always trust your mother.
+ - Things always seem to end before they start.
+ - One chord is fine. Two chords are pushing it. Three chords and you’re into jazz.
+ - How can anybody learn anything from an artwork when the piece of art only reflects the vanity of the artist and not reality?
+ - I’ve made love to my mother, killed my father, and my brother. What am I to do?
+ - High energy does not necessarily mean fast, high energy has to do with heart.
+ - I can create a vibe without saying anything, just by being in the room.
+ - I’d breed a little liberal army in the wood, just like these redneck lunatics I see at the local bar with their tribe of mutant inbred piglets.
+ - When the past makes you laugh and you can savor the magic that lets you survive your own war, you’ll find that that fire is passion and there’s a door up ahead – not a wall.
+ - Research, research, research. It means everything.
+ - If someone teaches you alignment and – I’m not a tai chi expert by any stretch – so interviewing me about tai chi is kind of the cart before the horse – but just from my point of view as a student, it’s simply that Master Ren can show you the relationship of power, stance and form.
+ - Let’s do what you fear most That from which you recoil But which still makes your eyes moist.
+ - To debate political objectives, views, and goals is the most American thing conceivable.
+ - All I want to do, is write rock and roll that you could listen to as you got older, and it wouldn’t lose anything; it would be timeless, in the subject matter and the literacy of the lyrics.
+ - You know, when you’re relaxed, you’re putting it out there, and then it comes, oh, I can do that.
+ - One thing I’ve often thought is that I never want to tell anybody else what to do. It’s hard enough to figure out what I want to do.
+ - I would like to live to a ripe old age and raise watermelons in Wyoming.
+ - I think it’s important that people don’t feel alone.
+ - She never ever lost her head even when she was giving head.
+ - I’m not leaving New York. And neither is anyone else. We’re here. We are quintessential Americans – we’re not only American, but New York-American.
+ - Please don’t set me free Death means a lot me.
+ - The sickness of the mother runs on through the girl, leaving her small and helpless. Liquor flies through her brain with the force of a gun, leaving her running in circles.
+ - I think life is far too short to concentrate on your past. I rather look into the future.
+ - Sound is more than just noise. Ordered sound is music. My life is music.
+ - Valium would have helped that bash.
+ - I love women, I think they’re great.
+ - When you pass through the fire, you pass through humble.
+ - I want the principles of a timeless muse, I want to eradicate my negative views.
+ - There’s only X amount of time. You can do whatever you want with that time. It’s your time.
+ - When you think the night has seen your mind, That inside your twisted and unkind, Let me stand to show that you are blind. Please put down you hands cause I see you. I’ll be you mirror.
+ - Here comes Jesse Jackson, he talks of common ground. Does that common ground include me, or is it just a sound?
+ - Herpes, AIDS, the Middle East at full throttle. Better check that sausage before you put it in the waffle.
+ - You can’t beat 2 guitars, bass, and drums.
+ - I don’t believe in dressing up reality. I don’t believe in using makeup to make things look smoother.
+ - Perfect Night has that magic and it has the raw energy that grabs you by the throat.
+ - I don’t like nostalgia unless it’s mine.
+ - Families that live out in the suburbs often make each other cry.
+ - They tied his arms behind his back to teach him how to swim, they put blood in his coffee and milk in his gin.
+ - What could there be more purely bright in truth’s day star?
+ - You do what you love, or you get arrested.
+ - The heart says what only the heart knows.
+ - The rich son waits for his father to die, the poor just drink and cry.
+ - Does anyone need yet another politician caught with his pants down and money sticking in his hole?
+ - I was a product of Andy Warhol’s Factory. All I did was sit there and observe these incredibly talented and creative people who were continually making art, and it was impossible not to be affected by that.
+ - I am bigger and stronger than ever. My Chen Taiji and health regimen has served me well all of these years, thanks to Master Ren Guang-yi. I look forward to being on stage performing, and writing more songs to connect with your hearts and spirits and the universe well into the future.
+ - Teach them about anger, the sin that comes with dawning. Teach them about flowers, and the beauty of forgiveness.
+ - Looking through the viewfinder for me is like being in a movie theater. That’s what I like about it.
+ - I can’t do anything I want to. I mean, I can’t have my own TV show. I can’t have my own movie. But within my little world, nobody tells me what to put on the albums.
+ - You won’t see my parents honored on any stamps.
+ - Music should come crashing out of your speakers and grab you, and the lyrics should challenge whatever preconceived notions that listener has.
+ - I have no control over the audience. I have no idea what they think. My heart’s pure. I can’t do anything. I really can’t do anything. I don’t know what goes on in the crowd.
+ - I’m not joking around when I’ve said occasionally, trying to learn how to play a D chord properly has been a very big thing for me.
+ - With Master Ren, if I’d tell him I can’t do that and he’d say, yes you can, and it turns out I very much can do it.
+ - I’m too old to do things by half.
+ - When critics ask you if you feel vindicated by other critics – I didn’t like critics then, and I don’t like them now. There you go. I’ve always been outside the mainstream, and it stayed that way.
+ - I wouldn’t want to hear Beethoven without beautiful bass, the cellos, the tuba. It’s very important. Hip-hop has thunderous bass. And so does Beethoven. If you don’t have the bass, it’s like being amputated. It’s like you have no legs.
+ - Electricity comes from other planets.
+ - The only thing constantly changing is change, and change is always changing for the worse.
+ - I don’t think anybody is anybody else’s moral compass.
+ - Dear Pope, send me some hope or a rope.
+ - I’ve become completely well adjusted to being a cult figure.
+ - I wanted to be an actor. That was my real goal. But I wasn’t any good at it, so I wrote my own material and acted through that. That’s my idea of fun. I get to be all these things in the songs.
+ - Between thought and expression lies a lifetime.
+ - As the dead rise to live, the live sink to die, the currents are deep and raging inside.
+ - Psychologically, it’s better that I think that I’m dirt.
+ - I’ve gone out with my shotgun. This is hunting country out there. You better run.
+ - I’m tearing down Route 80 East, the sun’s on my right side. I’m drunk, but my vision’s good.
+ - Some people drink to unleash their libidos, and other people drink to prop up their egos.
+ - I tried to give up drugs by drinking.
+ - It’s the music that kept us all intact, kept us from going crazy.
+ - And no kinds of love are better than others.
+ - I wish I had a talking book that told me how to act and look, a talking book that contained keys to past and present memories.
+ - All the people have gone to war leaving no interrogator to mind.
+ - I don’t think I’m in any position to call myself a martial artist. I’m a student of the martial arts.
+ - One of my rules is: Never listen to your old stuff.
+ - I can concentrate on my art.
+ - I’ve found that from my point of view, the Chen style contained many things that I knew on a fairly superficial level from Eagle Claw, and that had Chen elements of what seemed to me the soft in Eagle Claw.
+ - When I saw that combination of grace and power, the fast and the soft, the yin and the yang, that’s what I’d been looking for.
+ - I had started also studying because I wanted to learn more about power and fighting.
+ - The music business doesn’t interest me anymore.
+ - But I’m also talented and I know when I created something great and Perfect Night is something great, no doubt, no but.
+ - I’m an artist and that means I can be as egotistical as I want to be.
+ - I dreamed that I was young and smart, and it was not a waste. I dreamed that there was a point of life, and to the human race.
+ - I shot a vein in my neck and coughed up a quaalude.
+ - You can’t ask me to explain the lyrics because I won’t do it.
+ - As you practice things, you get better. I mean I’ve worked very hard on changing my life and taking what is good about it and trying to jettison the things I think were not good about it. I think the key word is “discipline,” focus. I’m always working at it, but I’m not always successful.
+ - If it has more than three chords, it’s jazz.
+ - Some even claim that I’m a terror, a dictator and they’re right.
+ - How could you even dream or think something of someone who is as uncommercial as I am?
+ - It’s fun to be in a small club and to be able to look somebody right in the eye and watch them just freak. Then it’s fun to be in front of thousands of people and watch a couple of hundred freaking out of their minds.
+ - Any human being should have a tolerance for anybody.
+ - I mean, there are peripheral things I do, I do photography, I write plays, I have books published, but that’s neither here not there.
+ - You’re a musician: You play. That’s what you do.
+ - I can’t tell the difference between wrong and right, are you laughing at me?
+ - It’s depressing when you’re still around and your albums are out of print.
+ - Eve kissed Able, that’s how he got murdered by Cain.
+ - I don’t really think about what the subject of my next album will be. I just know that I’m going to make another album.
+ - I wanna hear some Diana Ross, I wanna hear some Marvin Gaye. I wanna hear a song that reminds me of a better day.
+ - Speaking in a common tongue, speaking through guitars and drums.
+ - I don’t know anyone actually who does care what a critic says.
+ - To wish for the crazy times one last time and freeze it in the memory of a camera is the least a great artist can do.
+ - I’m writing about real things. Real people. Real characters. You have to believe what I write about is true or you wouldn’t pay any attention at all. Sometimes it’s me, or a composite of me and other people. Sometimes it’s not me at all.
+ - When he beat my mother it made me so mad.
+ - You know, some people got no choice, and they can never find a voice, to talk with that they can even call their own. So the first thing that they see, that allows them the right to be, why they follow it, you know, it’s called bad luck...
+ - I’d harbored hopes that the intelligence that once inhabited novels or films would ingest rock. I was, perhaps, wrong.
+ - I write whatever shows up. That’s good enough for me. I’m part of the first generation that wants to still do original material and not tour around as an oldies act.
+ - These are really terribly rough times, and we really should try to be as nice to each other as possible.
+ - Jealousy endlessly eats through my mind, and jealously endlessly makes me be unkind.
+ - I always believed that I have something important to say and I said it.
+ - Senator, it has been reported that you have had illegal congress with your mother.
+ - For a while, I felt a little self-impelled to write Lou Reed Kind of songs. I should have understood that a Lou Reed song was anything I wanted to write about.
+ - Writhe and sway to music’s pain searing with asides, caress death with a lover’s touch for it shall be your bride.
+ - The injuries we do in kind are visited upon us often. In the science of the mind, trying hard to move a shadow.
+ - Don’t the people you’re around shape the music, is that what you’re saying? Everything does.
+ - When I record an album I’m trying to get as close as possible to that perfect moment.
+ - I don’t think anybody is anybody else’s moral compass. Maybe listening to my music is not the best idea if you live a very constricted life. Or maybe it is.
+ - I don’t like overdubs, never liked them.
+ - I cleaned up my act because otherwise I would have kicked the bucket.
+ - There were lots of things that I recognized from my experience with Eagle Claw and Wu Hao, and here was the combination of the whole kit and kaboodle, the whole tamale in one.
+ - Me, I’ve concentrated on music pretty much to the exclusion of other things.
+ - People think that I work out but it’s all t’ai chi.
+ - The currents rage so deep upon us, this is the age of video violence.
+ - I never liked the Beatles. I thought they were garbage.
+ - You do this because you like it, you think what you’re making is beautiful. And if you think it’s beautiful, maybe they think it’s beautiful.
+ - That’s why I survived because I still believe I’ve got something to say.
+ - The president’s dead, no one can find his head, its been missing for two weeks. But no one seemed to notice it.
+ - Bodily changes take place, like the thing with the kick.
+ - I don’t know what goes on in the crowd. I’ve had them show up and throw beer cans at me. I caused riots in most of the major cities.
+ - First thing you learnis that you’vealways got to wait.
+ - Moving on has allowed me to know who I am and to be present in all that I do. I take this forward in my work and in my personal relationships. It is a powerful program and I highly recommend it to anyone wanting to move on with their life.
+ - I try very much, whenever I do projects, whatever it is, there’s only one thing on my mind, only one thing.
+ - Perfect Night is minimalistic and that’s what makes it so forceful.
+ - The most important part of my religion is to play guitar.
+ - My attitude is that you very rarely come in contact with someone of Master Ren’s level, so every opportunity I could get to learn from him I wanted to do that.
+ - There are problems in these times, but none of them are mineI’m beginning to see the light.
+ - I don’t mind a repetitive chorus; I mind repetitive verse. I mean, it’s the same amount of space. Why would you have only three diamonds if you can have six?
+ - Over what guilty spirit to not hear the beating, to not hear the beating, but only tears of perfect moan, only tears of perfect moan.
+ - Kill them now, cause I need some kicks. I need some kicks, I’m getting bored.
+ - It always bothers me to see people writing RIP when a person dies. It just feels so insincere and like a cop out. To me, RIP is the microwave dinner of posthumous honours.
+ - Well all tai chi has the martial aspect to it, a lot of people don’t know, a lot of the teachers won’t show it, or they do show it but you don’t really learn it, what the application is.
+ - People can vote for who ever they want. That doesn’t mean I have to go near them.
+ - An eye for an eye is elemental.
+ - When I was in college, I had a jazz radio show. I called it ‘Excursion on a Wobbly Rail,’ after a Cecil Taylor song. I used to run around the Village following Ornette Coleman wherever he played.
+ - The music is all. People should die for it. People are dying for everything else, so why not the music?
+ - Well, everybody does something, some people race cars, others collect stamps, I find tai chi to be philosophically, aesthetically, physically and spiritually fascinating.
+ - But I found tai chi when I was studying with Leung Shum, who teaches Eagle Claw and Wu Hao.
+ - Meditation doesn’t have to be complicated. What I do is about as simple as you can get. You could just count the beads, one, two, three, with your eyes closed or open, whatever makes you happy.
+ - I always thought martial arts was the most modern choreography we could have right now, and I always wanted to put it to music.
+ - What I really love is my scotch. It’s the power, the power of positive drinking.
+ - I’ll tell ya, I’m a genuinely nice guy. I really am. A real nice guy. But I think I’m temperamental.
+ - In the late ’70s I started to search for the perfect sound – whatever that might be, before that I was mainly interested in drugs, insanity and the rock’n’roll lifestyle.
+ - Caroline says as she gets up from the floor, you can hit me all you want to, but I don’t love you anymore.
+ - This violent rage that turned inward cannot be helped by drink.
+ - Music was what bothered me, what interested me.
+ - I don’t like the word rock opera, but I’m trying to write on that level that’s reserved for plays still, or novels.
+ - Music is an amazing thing. I don’t know if we really think about it the same way we consider a painting an amazing thing. I mean, a painting is, in quotes, imaginary. There is nothing on the canvas when you start; and writing a song, there is nothing there when you start.
+ - Plucked her eyebrows on the way, shaved her legs and then he was a she. She said, hey babe, take a walk on the wild side.
+ - I love Ornette Coleman. I love Don Cherry. I love the way those guys play.
+ - I’ve never been super confident about anything. The work is never as good as it could be.
+ - I’m still not sure I didn’t die.
+ - I think it’s pretentious to create art just for the sake of stroking the artists ego.
+ - The baby sits in front of MTV watching violent fantasies, while Dad guzzles beer with his favorite sport only to find his heroes all coked up.
+
+177 quotes

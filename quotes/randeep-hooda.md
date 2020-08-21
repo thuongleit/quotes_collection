@@ -1,0 +1,40 @@
+ - Love is a strange emotion. It is ever evolving. Lust is transient. With time, one realizes that love and togetherness are two different things. Very few people are lucky enough to experience the two emotions simultaneously.
+ - I don’t play the role of a villain, really, but I like playing anti-hero kind of roles. I like characters where there’s conflict, drama, and more personal investment than just being heroes.
+ - February days are a marketing gimmick; love happens every day.
+ - There is an interaction and action, reaction between two people. One should show honesty in a relationship. Be honest to your partner and tell him everything. How long can you do things with dishonesty and that’s wrong. Don’t get into a relationship if you can’t be honest.
+ - None of us can claim to be fair and square in love – and I’m definitely not a hypocrite! Humans are built to evolve with time. It depends on the nature of the relationship you share with a person. It is there today, tomorrow it may be gone; c’est la vie.
+ - From being a waiter, to a door-to-door salesman, to a car-washer, to a delivery boy – I have done it all.
+ - Love to me has meant different things at different junctures of my life. I’m not a hopeless romantic.
+ - Horses are in our DNA. We used them way before cars for commuting.
+ - A few years ago, when I had no work and started believing that films weren’t a viable career, I thought of finding another job. I started training and riding horses and got consumed by that. It was a boon in disguise.
+ - Knowledge is power. You can’t begin a career, for that matter even a relationship, unless you know everything there is to know about it.
+ - Honestly, I find writing to be a very lonely job.
+ - Theatre gives you wings as an actor.
+ - I didn’t allow failure to break my heart. So I wouldn’t allow success to bloat my head.
+ - I would really love to work with Clint Eastwood.
+ - I overhaul myself for my roles. Sooner or later, I will get my due.
+ - There is a lot of silence in me, and I feel that silence is often better than spoken words.
+ - Celebs says we have no time for love, but I wouldn’t say that.
+ - You can’t get angry with a horse. They will get angry and frisky with you.
+ - Be it Valentine’s Day, Father’s Day or Mother’s Day, I feel all days are reminders of some feelings. February 14 doesn’t hold any special relevance for me.
+ - It’s too bad I’m not a flirt. When I’m on the sets, I’m too busy working on my scenes to look at the ladies.
+ - I am not an insecure actor, and this reflects in the films I have done. Yes, there was a phase when I was adamant on solo hero roles, but that is over now.
+ - I’ve had my share of struggle. I believe, never take success to your head or failure to your heart.
+ - Contrary to the royal and uptight image of polo, I want to bring it to a younger generation. This is a great sport that can have a larger audience and appeal to more people. Sportsmanship is lacking in many other sports that I don’t want to name.
+ - I don’t like people waiting on me. I feel it is an unnecessary expense.
+ - I find solace in animals. I have got a stray dog at home called Candy. I picked it up while I was waiting at the airport one day. I always wanted to have a ‘macho’ dog but got this sweet little thing instead.
+ - I am not an angry guy. It’s just the roles I do that impact my personality.
+ - I give two hoots about being typecast. It’s not in my hands.
+ - At the end of the day, an actor is only a cog in the wheel.
+ - Seriously I suspected I was a good actor, though I didn’t know it during ‘Monsoon Wedding.’ Now I realize the more I learn, the less I know about acting and life.
+ - In 2010, I sold my car, a Toyota Majester, for just a lakh-and-a-half to be able to feed my horses. It continues to be like a hole, where I put all my money.
+ - I’m going to be acting all my life. But, while doing that, I will try to avoid the trappings of fame.
+ - I wouldn’t mind doing a film revolving around horses, but I wouldn’t dilute my equity just sitting on one.
+ - Trust is not about what you can or cannot do in the name of love but who you are and what you choose to reveal as things progress and evolve.
+ - I have this soft spot for have-nots. So, I was really inclined to portray their pain and pathos in ‘Highway.’
+ - You can’t say the public likes generic characters. Give others a chance, go for a more rooted and honest characterisation, take some risk, and then let the public choose.
+ - I’m just happy that people have recognised me as leading man material.
+ - I try to keep myself as normal as possible. Stardom is transient. People forget you after a while.
+ - There is no life without sport and no sport without competition.
+
+38 quotes

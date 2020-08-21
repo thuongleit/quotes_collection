@@ -1,0 +1,358 @@
+ - The future starts today, not tomorrow.
+ - I plead with you – never, ever give up on hope, never doubt, never tire, and never become discouraged. Be not afraid.
+ - Do not be afraid. Do not be satisfied with mediocrity. Put out into the deep and let down your nets for a catch.
+ - Life with Christ is a wonderful adventure.
+ - Let us remember the past with gratitude, live the present with enthusiasm, and look forward to the future with confidence.
+ - Do not be afraid. Open wide the doors to Christ.
+ - Faith and Reason are like two wings of the human spirit by which is soars to the truth.
+ - The Family that prays together, stays together.
+ - Nobody is so poor he has nothing to give, and nobody is so rich he has nothing to receive.
+ - Freedom consists not in doing what we like, but in having the right to do what we ought.
+ - There is no peace without justice, and no justice without forgiveness.
+ - If He asks much of you, it is because He knows you can give much.
+ - Do not be afraid to be holy! Have the courage and humility to present yourselves to the world determined to be holy, since full, true freedom is born from holiness.
+ - We are not the sum of our weaknesses and failures, we are the sum of the Father’s love for us and our real capacity to become the image of His Son Jesus.
+ - The ultimate test of your greatness is the way you treat every human being.
+ - Prayer joined to sacrifice constitutes the most powerful force in human history.
+ - The worst prison would be a closed heart.
+ - Let science tell us what and how. Let religion tell us who and why.
+ - Each man, in his suffering, can also become a sharer in the redemptive suffering of Christ.
+ - There is no true peace without fairness, truth, justice and solidarity .
+ - It’s better to cry than be angry, because anger hurts others while tears flow silently through the soul and cleans the heart.
+ - To reach peace, teach peace.
+ - The only way to peace is forgiveness.
+ - We must reflect the light of Christ through lives of prayer and joyful service to others.
+ - We are all one family in the world. Building a community that empowers everyone to attain their full potential through each of us respecting each other’s dignity, rights and responsibilities makes the world a better place to live.
+ - Do not abandon yourselves to despair. We are the Easter people and hallelujah is our song.
+ - In the designs of Providence, there are no mere coincidences.
+ - Have no fear of moving into the unknown.
+ - From Mary we learn to surrender to God’s Will in all things. From Mary we learn to trust even when all hope seems gone. From Mary we learn to love Christ her Son and the Son of God!
+ - Dear young people, let yourselves be taken over by the light of Christ, and spread that light wherever you are.
+ - The Rosary is my favorite prayer. A marvelous prayer! Marvelous in its simplicity and its depth. In the prayer we repeat many times the words that the Virgin Mary heard from the Archangel, and from her kinswoman Elizabeth.
+ - Love between man and woman cannot be built without sacrifices and self-denial.
+ - Confession is an act of honesty and courage – an act of entrusting ourselves, beyond sin, to the mercy of a loving and forgiving God.
+ - To believe in Jesus is to accept what he says, even when it runs contrary to what others are saying. It means rejecting the lure of sin, however attractive it may be, in order to set out on the difficult path of the Gospel virtues.
+ - This is the wonderful truth, my dear friends: the Word, which became flesh two thousand years ago, is present today in the Eucharist.
+ - It is the duty of every man to uphold the dignity of every woman.
+ - Man cannot live without love. He remains a being that is incomprehensible for himself, his life is senseless, if love is not revealed to him, if he does not encounter love, if he does not experience it and make it his own, if he does not participate intimately in it.
+ - Darkness can only be scattered by light, hatred can only be conquered by love.
+ - Only the chaste man and the chaste woman are capable of true love.
+ - The animals possess a soul and men must love and feel solidarity with our smaller brethren. All animals are fruit of the creative action of the Holy Spirit and merit respect and they are as near to God as men are.
+ - A nation that kills its own children has no future.
+ - The aesthetic value of creation cannot be overlooked. Our very contact with nature has a deep restorative power; contemplation of its magnificence imparts peace and serenity. The Bible speaks again and again of the goodness and beauty of creation, which is called to glorify God.
+ - Faith and reason are like two wings on which the human spirit rises to the contemplation of truth; and God has placed in the human heart a desire to know the truth- in a word, to know himself- so that, by knowing and loving God, men and women may also come to the fullness of truth about themselves.
+ - Amongst all unimportant subjects, football is by far the most important.
+ - Do not forget that true love sets no conditions; it does not calculate or complain, but simply loves.
+ - A person’s rightful due is to be treated as an object of love, not as an object for use.
+ - From this moment on, live the Eucharist fully; be persons for whom the Holy Mass, Communion, and Eucharistic adoration are the center and summit of their whole life.
+ - Take heart young people! Christ is calling you and the world awaits you! Remember the Kingdom of God needs your generous and complete dedication.
+ - You made us for yourself, Lord, and our heart is restless until it rests in you. In this creative restlessness beats and pulsates what is most deeply human – the search for truth, the insatiable need for the good, hunger for freedom, nostalgia for the beautiful, and the voice of conscience.
+ - The greater the feeling of responsibility for the person the more true love there is.
+ - The body in its masculinity and femininity has been called “from the beginning” to become the manifestation of the spirit. The body, in fact, and only the body, is capable of making visible what is invisible: the spiritual and the divine.
+ - The Church counters the culture of death with the culture of love.
+ - Freedom exists for the sake of love.
+ - Respect for life and for the dignity of the human person also extends to the rest of creation, which is called to join man in praising God.
+ - A society will be judged on the basis of how it treats its weakest members; and among the most vulnerable are surely the unborn and the dying.
+ - The measure of your success will be the measure of your generosity.
+ - May the culture of life and love render vain the logic of death.
+ - Do not be afraid to be the saints of the new mellineum!
+ - Love demands a personal commitment to the will of God.
+ - The earth will not continue to offer its harvest, except with faithful stewardship. We cannot say we love the land and then take steps to destroy it for use by future generations.
+ - Do you think that there can be anything greater than to bring Jesus to people and people to Jesus?
+ - What have I done with my baptism and confirmation? Is Christ really at the center of my life? Do I have time for prayer in my life? Do I live my life as a vocation and mission?
+ - When you wonder about the mystery of yourself, look to Christ, who gives you the meaning of life. When you wonder what it means to be a mature person, look to Christ, who is the fulfillness of humanity. And when you wonder about your role in the future of the world look to Christ.
+ - There is nothing more man needs than Divine Mercy – that love which is benevolent, which is compassionate, which raises man above his weakness to the infinite heights to the holiness of God.
+ - Forgiveness is above all a personal choice, a decision of the heart to go against the natural instinct to pay back evil with evil.
+ - Not all are called to be artists in the specific sense of the term. Yet, as Genesis has it, all men and women are entrusted with the task of crafting their own life: in a certain sense, they are to make of it a work of art, a masterpiece.
+ - Stupidity is also a gift of God, but one mustn’t misuse it.
+ - The Rosary is my favorite prayer.
+ - The Gospel must not be kept hidden because of fear or indifference. It was never meant to be hidden away in private. It has to be put on a stand so that people may see its light and give praise to our Heavenly Father.
+ - The Eucharist is the heart of the Church. Where Eucharistic life flourishes, there the life of the church will blossom.
+ - Our communal worship at Mass must go together with our personal worship of Jesus in Eucharistic adoration in order that our love may be complete.
+ - The problem of pornography is that it does not reveal too much of a woman but too little.
+ - Love consists of a commitment which limits one’s freedom – it is a giving of the self, and to give oneself means just that: to limit one’s freedom on behalf of another.
+ - Have no fear of moving into the unknown. Simply step out fearlessly knowing that I am with you, therefore no harm can befall you; all is very, very well. Do this in complete faith and confidence.
+ - True holiness does not mean a flight from the world; rather, it lies in the effort to incarnate the Gospel in everyday life, in the family, at school and at work, and in social and political involvement.
+ - Mary is the sure path to our meeting with Christ. Devotion to the Mother of the Lord, when it is genuine, is always an impetus to a life guided by the spirit and values of the Gospel.
+ - The greatest deception, and the deepest source of unhappiness, is the illusion of finding life by excluding God, of finding freedom by excluding moral truths and personal responsibility.
+ - It is the responsibility of Pastors to encourage, also by their personal witness, the practice of Eucharistic adoration, and exposition of the Blessed Sacrament in particular, as well as prayer of adoration before Christ present under the Eucharistic species.
+ - A good leader sees everything, overlooks a great deal, and corrects a little.
+ - The cross means there is no shipwreck without hope; there is no dark without dawn; nor storm without haven.
+ - Each individual in fact has moral responsibility for the acts which he personally performs; no one can be exempted from this responsibility, and on the basis of it everyone will be judged by God himself.
+ - There is no dignity when the human dimension is eliminated from the person. In short, the problem with pornography is not that it shows too much of the person, but that it shows far too little.
+ - Christian holiness does not being sinless, but rather it means struggling not to give in and always getting up after every fall.
+ - Humanity looks to works of art to shed light upon its path and its destiny.
+ - An important day in a young person’s life is the day on which he becomes convinced that Christ is the only Friend who will not disappoint him, on which he can always count.
+ - Christians, in particular, realize that their responsibility within creation and their duty towards nature and the Creator are an essential part of their faith.
+ - Reason and faith cannot be separated without diminishing the capacity of men and women to know themselves, the world and God in an appropriate way.
+ - And Christ, through His own salvific suffering, is very much present in every human suffering, and can act from within that suffering by the powers of His Spirit of truth, His consoling spirit.
+ - Abortion, euthanasia, human cloning, for example, risk reducing the human person to a mere object: life and death to order, as it were!
+ - The Rosary is my favorite prayer. A prayer so simple and so rich; from deepest heart, I exhort all to recite it.
+ - Social justice cannot be attained by violence. Violence kills what it intends to create.
+ - The ethos of redemption is realied in self-mastery, by means of temperance, that is, continence of desires.
+ - In Christ and through Christ man has acquired full awareness of his dignity, of the heights to which he is raised, of the surpassing worth of his own humanity, and of the meaning of his existence.
+ - Real love is demanding. I would fail in my mission if I did not tell you so. Love demands a personal commitment to the will of God.
+ - Through the Rosary the faithful receive abundant grace, as though from the very hands of the Mother of the Redeemer.
+ - Beauty is the vocation bestowed on the artist by the Creator in the gift of artistic talent.
+ - There is no evil to be faced that Christ does not face with us. There is no enemy that Christ has not already conquered. There is no cross to bear that Christ has not already borne for us, and does not now bear with us.
+ - Only faith in Christ gives rise to a culture contrary to egotism and death.
+ - It is unbecoming for a cardinal to ski badly.
+ - The greatest gift you can give your child is another sibling.
+ - Euthanasia is a grave violation of the law of God, since it is the deliberate and morally unacceptable killing of a human person.
+ - Artistic talent is a gift from God and whoever discovers it in himself has a certain obligation: to know that he cannot waste this talent, but must develop it.
+ - Violence is a crime against humanity, for it destroys the very fabric of society.
+ - Pray and learn to pray! Deepen your knowledge of the Word of the Living God by reading and meditating on the Scriptures.
+ - Mary’s role is to make Her Son Shine.
+ - People are made for happiness. Rightly, then, you thirst for happiness. Christ has the answer to this desire of yours. But he asks you to trust him.
+ - Love is never defeated, and I could add, the history of Ireland proves it.
+ - The call for a sincere gift of self is the fullest way to realize our personal freedom.
+ - The Eucharist is the source and summit of the Christian life.
+ - Another name for peace is development.
+ - Hands are the heart’s landscape.
+ - From the Eucharist comes strength to live the Christian life and zeal to share that life with others.
+ - The battle against the Devil, which is the principal task of Saint Michael the Archangel, is still being fought today, because the Devil is still alive and active in the world.
+ - May Mary, who in the freedom of her ‘Fiat’ and her presence at the foot of the cross, offered to the world, Jesus, the Liberator, help us to find him in the Sacrament of the altar.
+ - Jesus himself has shown us by his own example that prayer and fasting are the first and most effective weapons against the forces of evil.
+ - Never again war. Never again hatred and intolerance.
+ - The future is in your hearts and in your hands. God is entrusting to you the task, at once difficult and uplifting, of working with Him in the building of the civilization of love.
+ - The ecological crisis is a moral issue.
+ - The truth of faith about creation is radically opposed to the theories of materialistic philosophy. These view the cosmos as the result of an evolution of matter reducible to pure chance and necessity.
+ - Rediscover the Rosary in the light of scripture, in harmony with the Liturgy, and in the context of your daily lives.
+ - Catholic education aims not only to communicate facts but also to transmit a coherent, comprehensive vision of life, in the conviction that the truths contained in that vision liberate students in the most profound meaning of human freedom.
+ - A just wage for the worker is the ultimate test of whether any economic system is functioning justly.
+ - The most faithful disciples of Christ have been builders of peace, to the point of forgiving their enemies, sometimes even to the point of giving their lives for them.
+ - Make your lives intensely Eucharistic.
+ - Violence and arms can never resolve the problems of men.
+ - War is a defeat for humanity.
+ - Euthanasia and assisted suicide are never acceptable acts of mercy. They always gravely exploit the suffering and desperate, extinguishing life in the name of the ‘quality of life’ itself.
+ - Furthermore, because God created it, The human body can remain nude and uncovered and preserve its splendour and its beauty.
+ - Only in Christ can men and women find answers to the ultimate questions that trouble them. Only in Christ can they fully understand their dignity as persons created and loved by God.
+ - In this silence of the white Host, carried in the Monstrance, are all His words; there is His whole life given in offering to the Father for each of us; there is also the glory of the glorified body, which started with the Resurrection, and still continues in Heavenly union.
+ - Prayer gives us light by which to see and to judge from God’s perspective and from eternity. That is why you must not give up on praying!
+ - The most generous choices, especially the persevering, are the fruit of profound and prolonged union with God in prayerful silence.
+ - The truth is not always the same as the majority decision.
+ - The person who does not decide to love forever will find it very difficult to really love for even one day.
+ - I have a sweet tooth for song and music. This is my Polish sin.
+ - May the death penalty, an unworthy punishment still used in some countries, be abolished throughout the world.
+ - The world looks to the priest, because it looks to Jesus! No one can see Christ; but everyone sees the priest, and through him they wish to catch a glimpse of the Lord! Immense is the grandeur of the Lord! Immense is the grandeur and dignity of the priest!
+ - In the Eucharistic Sacrifice the Church venerates the memory of Mary the ever Virgin Mother of God and the memory of Saint Joseph, because he fed Him whom the faithful must eat as the Bread of Life.
+ - See everything. Ignore a lot. Improve a little.
+ - Life is entrusted to man as a treasure which must not be squandered, as a talent which must be used well.
+ - Yes, the civilization of love is possible; it is not a utopia. But it is only possible by a constant and ready reference to the “Father from whom all fatherhood and motherhood on earth is named,” from whom every human family comes.
+ - The Church must breathe with her two lungs!
+ - A man shows himself a true disciple of Christ by carrying the cross in his turn every day in the activity that he is called to perform.
+ - Never tire of firmly speaking out in defense of life from its conception and do not be deterred from the commitment to defend the dignity of every human person with courageous determination. Christ is with you: be not afraid!
+ - How beautiful is the family that recites the Rosary every evening.
+ - God has, in fact, thought of us from eternity and has loved us as unique individuals. He has called every one of us by name, as the Good Shepherd ‘calls His sheep by name.’
+ - In the newborn child is realized the common good of the family.
+ - Truth must be the foundation stone, the cement to solidify the entire social edifice.
+ - That is the dignity of America, the reason she exists, the condition of her survival, yes, the ultimate test of her greatness: to respect every human person, especially the weak and most defenseless ones, those as yet unborn.
+ - You, too, be courageous! The world needs convinced and fearless witnesses. It is not enough to discuss, it is necessary to act!
+ - A process of genocide is being carried out before the eyes of the world.
+ - What really matters in life is that we are loved by Christ and that we love Him in return.
+ - Open your minds and hearts to the beauty of all that God has made and to His special, personal love for each one of you.
+ - The Eucharist is a priceless treasure: by not only celebrating it but also by praying before it outside of Mass we are enabled to make contact with the very wellspring of grace.
+ - Is not Jesus pointing to children even as models for grownups?
+ - Science can purify religion from error and superstition. Religion can purify science from idolatry and false absolutes.
+ - It is a mistake to apply American democratic procedures to the faith and the truth. You cannot take a vote on the truth. The value of democracy stands or falls with the values which it embodies and promotes.
+ - This is no time to be ashamed of the Gospel. It is the time to preach it from the rooftops. Do not be afraid to break out of comfortable and routine modes of living in order to take up the challenge of making Christ known in the modern metropolis.
+ - It is manifestly unjust that a privileged few should continue to accumulate excess goods, squandering available resources, while masses of people are living in conditions of misery at the very lowest level of subsistence.
+ - The history of mankind, the history of salvation, passes by way of the family.
+ - Once again, through myself, the Church, in the words of the well-known declaration Nostra Aetate, ‘deplores the hatred, persecutions and displays of anti-Semitism directed against the Jews at any time and by anyone.’ I repeat, ‘By anyone.’
+ - Born and nurtured when the human being first asked questions about the reason for things and their purpose, philosophy shows in different modes and forms that the desire for truth is part of human nature itself.
+ - The great danger for family life, in the midst of any society whose idols are pleasure, comfort and independence, lies in the fact that people close their hearts and become selfish.
+ - He was alone in his wonderment, amoung creatures incapable of wonder – for them it was enough to exist and go their way.
+ - Radical changes in world politics leave America with a heightened responsibility to be, for the world, an example of a genuinely free, democratic, just and humane society.
+ - In order to see Jesus, we first need to let him look at us!
+ - As the family goes, so goes the nation and so goes the whole world in which we live.
+ - The human person is a unique composite – a unity of spirit and matter, soul and body, fashioned in the image of God and destined to live forever. Every human life is sacred, because every human person is sacred.
+ - Learning to think rigorously, so as to act rightly and to serve humanity better.
+ - Allow the light and the healing presence of Christ to shine brightly through your lives. In that way, all those who come in contact with you will discover the loving kindness of God.
+ - Peace is not just the absence of war. Like a cathedral, peace must be constructed patiently and with unshakable faith.
+ - You must be strong, dear brothers and sisters. You must be strong with the strength that comes from faith.
+ - The purpose of art is nothing less than the upliftment of the human spirit.
+ - The greatness of work is inside man.
+ - Friendship, as has been said, consists in a full commitment of the will to another person with a view to that person’s good.
+ - Give us the grace – When the sacredness of life before birth is attacked, to stand up and proclaim that no one ever has the authority to destroy unborn life.
+ - I hope that this form of Adoration, with permanent exposition of the Blessed Sacrament, will continue into the future. Specifically, I hope that the fruit of this Congress results in the establishment of Perpetual Eucharistic Adoration in all parishes and Christian communities throughout the world.
+ - In the life of husband and wife together, fatherhood and motherhood represent such a sublime “novelty” and richness as can only be approached “on one’s knees”.
+ - The distinctive mark of the Christian, today more than ever, must be love for the poor, the weak, the suffering.
+ - The Church imposes nothing; she only proposes, she proposes like a lover to the beloved.
+ - War should belong to the tragic past, to history: it should find no place on humanity’s agenda for the future.
+ - To maintain a joyful family requires much from both the parents and the children. Each member of the family has to become, in a special way, the servant of the others.
+ - Modern society will find no solution to the ecological problem unless it takes a serious look at its lifestyle.
+ - We are the people of life, because God, in His unconditional love, has given us the Gospel of Life, and we are called to act accordingly.
+ - Men and women will retain their sex in heaven.
+ - The sacraments infuse holiness into the terrain of man’s humanity: they penetrate the soul and body, the femininity and masculinity of the personal subject, with the power of holiness.
+ - Marriage is an act of will that signifies and involves a mutual gift, which unites the spouses and binds them to their eventual souls, with whom they make up a sole family – a domestic church.
+ - When Sunday loses its fundamental meaning and becomes subordinate to a secular concept of weekend dominated by such things as entertainment and sport, people stay locked within a horizon so narrow that they can no longer see the heavens.
+ - Work bears a particular mark of man and of humanity, the mark of a person operating within a community of persons.
+ - Those who advocate euthanasia have capitalized on people’s confusion, ambivalence and even fear about the use of modern life-prolonging technologies. Being able to choose the time and manner of one’s death, without regard to what is chosen is presented as the ultimate freedom.
+ - Man’s life comes from God: it is his image and imprint, as sharing in his breath of life. God therefore is the sole Lord of this life: Man cannot do with it as he wills.
+ - The historical experience of socialist countries has sadly demonstrated that collectivism does not do away with alienation but rather increases it, adding to it a lack of basic necessities and economic inefficiency.
+ - Today, the scale and horror of modern warfare – whether nuclear or not – makes it totally unacceptable as a means of settling differences between nations. War should belong to the tragic past, to history; it should find no place on humanity’s agenda for the future.
+ - Love is a constant challenge, thrown to us by God.
+ - With supernatural intuition Blessed Josemaria untiringly preached the universal call to holiness and apostolate. Christ calls everyone to become holy in the realities of everyday life. Hence work too is a means of personal holiness and apostolate when it is done in union with Jesus Christ.
+ - Opting for peace does not mean a passive acquiescence to evil or compromise of principle. It demands an active struggle against hatred, oppression and disunity, but not by using methods of violence. Building peace requires creative and courageous action.
+ - Once the truth is denied to human beings, it is pure illusion to try to set them free. Truth and freedom either go together hand in hand or together they perish in misery.
+ - In my reading and in my studies I always tried to achieve a harmony between faith, reason, and the heart. These are not separate areas, but are profoundly interconnected, each giving life to the other.
+ - Be demanding of the world around you; be demanding first of all with yourselves. Be children of God; take pride in it!
+ - Holidays and vacations can help to balance activity with contemplation, haste with more natural rhythms, noise with the heralding silence of peace.
+ - To humanity, which sometimes seems to be lost and dominated by the power of evil, selfishness and fear, the risen Lord gives the gift of His love which forgives, reconciles and reopens the soul to hope.
+ - When our whole life is one faith, hope, love, prayer and silence, a consecrated life always bound up in the Eucharist, then the ‘urge’ towards God springs...
+ - Contraception contradicts the full truth of the sexual act as the proper expression of conjugal love.
+ - In the fulfillment of your duties, let your intentions be so pure that you reject from your actions any other motive than the glory of God and the salvation of souls.
+ - By dialogue, we let God be present in our midst, for as we open ourselves to one another, we open ourselves to God.
+ - Precisely in an age when the inviolable rights of the person are solemnly proclaimed and the value of life is publicly affirmed, the very right to life is being denied or trampled upon, especially at the more significant moments of existence: the moment of birth and the moment of death.
+ - Your faith will help you realize that it is Jesus Himself Who is present in the Blessed Sacrament, waiting for you and calling you to spend one special specific hour with Him each week.
+ - Pervading nationalism imposes its dominion on man today in many different forms and with an aggressiveness that spares no one. The challenge that is already with us is the temptation to accept as true freedom what in reality is only a new form of slavery.
+ - The Gospel lives in conversation with culture, and if the Church holds back from the culture, the Gospel itself falls silent. Therefore, we must be fearless in crossing the threshold of the communication and information revolution now taking place.
+ - One cannot use with impunity the different categories of beings-animals, plants, the natural elements-simply as one wishes, according to economic needs. One must take into account the nature of each being and its mutual connection in an ordered system, which is the cosmos.
+ - Holiness is not reserved for a small number of exceptional persons. It is for everyone. It is the Lord who brings us to holiness when we are willing to collaborate in the salvation of the world for the glory of God, despite our sin and our sometimes rebellious temperament.
+ - The universality of salvation means that it is granted not only to those who explicitly believe in Christ and have entered the Church. Since salvation is offered to all, it must be made concretely available to all.
+ - Every effort to make society sensitive to the importance of the family, is a great service to humanity.
+ - Without wonder, men and women would lapse into deadening routine and little by little would become incapable of a life which is genuinely personal.
+ - The fear of making permanent commitments can change the mutual love of husband and wife into two loves of self-two loves existing side by side, until they end in separation.
+ - Through Mary, we come to her Son more easily.
+ - I hope that your example attracts many souls to the adoration of Jesus Christ who is present on the altar to be of comfort and hope to those who confide in him with faith and love; they look on him as the Emmanuel, God with us, who wished to dwell amongst us: his heart in our heart.
+ - The sickness of a family member, friend or neighbor is a call to Christians to demonstrate true compassion, that gentle and persevering sharing in another’s pain.
+ - The Church’s teaching on ownership diverges radically from collectivism as proclaimed by Marxism and “rigid” capitalism. The primacy of the person over things joint ownership of the means of work.
+ - None of us is alone in this world; each of us is a vital piece of the great mosaic of humanity as a whole.
+ - While in some cases the damage already done may well be irreversible, in many other cases it can still be halted. It is necessary, however, that the entire human community – individuals, States and international bodies – take seriously the responsibility that is theirs.
+ - Our future on this planet, exposed as it is to nuclear annihilation, depends one one single factor: humanity must make a moral about-face.
+ - Thus to share in the sufferings of Christ is, at the same time, to suffer for the kingdom of God. In the eyes of the just God, before his judgment. Those who share in the sufferings of Christ become worthy of this kingdom.
+ - But sometimes it is necessary to do that which is too much.
+ - If development is the new name for peace, war and preparations for war are the major enemy of the healthy development of peoples. If we take the common good of all humanity as our norm, instead of individual greed, peace would be possible.
+ - There is no need to be dismayed if love sometimes follows torturous ways. Grace has the power to make straight the paths of human love.
+ - All are called to holiness, and holy people alone can renew humanity.
+ - Truth can prevail only in virtue of truth itself.
+ - Beneath the Sacred Host, Christ is contained, the Redeemer of the world.
+ - Physical condition or advancing of age are not obstacles to a perfect life. God does not look at external things but at the soul.
+ - To recite the Rosary is nothing other than to contemplate the face of Christ with Mary.
+ - Gandhi was much more Christian than many people who say they are Christians.
+ - Let us not accept violence as the way of peace. Let us instead begin by respecting true freedom: the resulting peace will be able to satisfy the world’s expectations, for it will be a peace built on justice, a peace founded on the incomparable dignity of the free human being.
+ - Sensitivity to the immense needs of humanity brings with it a spontaneous rejection of the arms race, which is incompatible with the all out struggle against hunger, sickness, under-development and illiteracy.
+ - The goal and target of our life is He, the Christ who awaits us – each one singly and altogether – to lead us across the boundaries of time to the eternal embrace of the God who loves us.
+ - I encourage Christians regularly to visit Christ present in the Blessed Sacrament, for we are all called to abide in the presence of God.
+ - When man turns his back on the Creator’s plan, he provokes a disorder which has inevitable repercussions on the rest of the created order. If man is not at peace with God, then earth itself cannot be at peace.
+ - Eucharistic worship is not so much worship of the inaccessible transcendence as worship of the divine condescension, and it is also the merciful and redeeming transformation of the world in the human heart.
+ - You are priests, not social or political leaders. Let us not be under the illusion that we are serving the Gospel through an exaggerated interest in the wide field of temporal problems.
+ - With the Rosary, the Christian people sits at the school of Mary and is led to contemplate the beauty on the face of Christ and to experience the depths of his love.
+ - Confidently open your most intimate aspirations to the Love of Christ who waits for you in the Eucharist. You will receive the answer to all your worries and you will see with joy that the consistency of your life which He asks of you is the door to fulfill the noblest dreams of your youth.
+ - Commending the victims to almighty God’s mercy, I implore his strength upon all involved in rescue efforts and in caring for the survivors.
+ - A nation that destroys its own people is a nation without hope.
+ - God is Love. We eventually have to ask ourselves the question; why was Love nailed to a cross?
+ - Are you capable of risking your life for someone? Do it for Christ.
+ - Let me go to the house of the Father.
+ - The man who wishes to understand himself thoroughly must with his unrest, uncertainty, and even his weakness and sinfulness, with his life and death, draw near to Christ.
+ - We began by imagining that we are giving to the; we end by realizing that they have enriched us.
+ - Christ is the sacrament of the invisible God – a sacrament that indicates presence. God is with us.
+ - Man matures through work which inspires him to difficult good.
+ - On my knees, I beg of you to turn away from the paths of violence and to return to the path of peace. Those who resort to violence always claim that only violence brings about change. You must know there is a political, peaceful way to justice.
+ - The cemetery of the victims of human cruelty in our century is extended to include yet another vast cemetery, that of the unborn.
+ - God comes to us in the things we know best and cane verify most easily, the things of our everyday life.
+ - I do not hesitate to proclaim before you and before the world that all human life-from the moment of conception and through all subsequent stages-is sacred, because human life is created in the image and likeness of God.
+ - Art has a unique capacity to take one or other facet of the message and translate it into colors, shapes and sounds which nourish the intuition of those who look and listen.
+ - Interdependence must be transformed into solidarity based upon the principle that the goods of creation are meant for all. That which human industry produces through the processing of raw materials with the contribution of work must serve equally for the good of all.
+ - The true Christian can nurture a trustful optimism, because he is certain of not walking alone. In sending us Jesus, the eternal Son made man, God has drawn near to each of us. In Christ he has become our travelling companion.
+ - We emphasize the transcendent worth of the human person. We insist that the human person must never be treated as an object; he must always be considered the subject. That is the basis for our teaching, the absolute standard.
+ - The New York Marathon: a fantastic event.
+ - This is no time to be ashamed of the Gospel. It is the time to preach it from the rooftops.
+ - He has chosen you, in a mysterious but real way, to make you saviors with Him and like Him. Yes, Christ calls you, but He calls you in truth. His call is demanding, because He invites you to let yourselves be ‘captured’ by Him completely, so that your whole lives will be seen in a different light.
+ - The saints have always been the source and origin of renewal in the most difficult moments in the Church’s history.
+ - The unworthy successor of Peter who desires to benefit from the immeasurable wealth of Christ feels the great need of your assistance, your prayers, your sacrifice, and he most humbly asks this of you.
+ - We cannot interfere in one area of the ecosystem without paying due attention to both the consequences of such interference in other areas and to the well-being of future generations.
+ - The world designed by God cannot be a world in which some hoard immoderate wealth in their hands, while others suffer from destitution and poverty, and die of hunger. Love must inspire justice and the struggle for justice.
+ - The conviction which we must share and spread is that the call to holiness is directed to all Christians. This is not a question of privilege or of spiritual elitism. It is a question of a grace offered to all the baptized.
+ - Christians will want to be in the vanguard in favoring ways of life that decisively break with the exhausting and joyless frenzy of consumerism.
+ - Truth can never be confined to time and culture; in history it is known, but it also reaches beyond history.
+ - In Christ and through Christ man has acquired full awareness of his dignity.
+ - We are the sum of the Father’s love for us.
+ - If you wish to be brothers, drop your weapons.
+ - To the family is entrusted the task of striving, first and foremost, to unleash the forces of good...
+ - The most urgent task is that of the biblical and liturgical formation of the people of God...
+ - The Gospel of life must be proclaimed and human life defended in all places and all times.
+ - It’s too early for a Polish pope.
+ - Apart from the mercy of God, there is no other source of hope for mankind.
+ - It is legitimate and necessary to ask oneself if this is not perhaps part of a new ideology of evil, perhaps more insidious and hidden, which attempts to pit human rights against the family and against man.
+ - The modern world, a world which has experienced marvelous achievements but which seems to have lost its sense of ultimate realities and of existence itself.
+ - Look, I can surely say by now that I’ve got the antibodies to communism inside me. But when I think of consumer society, with all its tragedies, I wonder which of the two systems is better.
+ - It can therefore be said that, from the viewpoint of the doctrine of the faith, there are no difficulites in explaining the origin of man, in regard to the body, by means of the theory of evolution.
+ - The only struggle which religions can justify, the only struggle worthy of humans, is the moral struggle against humanity’s own disordered passions, against every kind of selfishness, against attempts to oppress others, against every type of hatred and violence.
+ - It would be a sad thing if the religious and moral convictions upon which the American experiment was founded could now somehow be considered a danger to free society.
+ - In a world where the name of God is sometimes associated with vengeance and even a duty of hatred and violence, this message is both timely and significant.
+ - The vocation and mission of the faithful can only be understood in light of a renewed awareness of the Church as sacrament or sign and instrument of intimate union with God, of the unity of the whole of mankind, and of the personal duty to adhere more closely to her.
+ - Treating a person as a means to an end, and an end moreover which in this case is pleasure, the maximization of pleasure, will always stand in the way of love.
+ - People must not attempt to impose their own ‘truth’ on others. The right to profess the truth must always be upheld, but not in a way that involves contempt for those who may think differently. Truth imposes itself solely by the force of its own truth.
+ - Faith intervenese not to abolish reason’s autonomy nor to reduce its scope for action, but solely to bring the human being to understand that in these events it is the God of Israel who acts.
+ - Faced with the sacredness of life and of the human person, and before the marvels of the universe, wonder is the only appropriate attitude.
+ - The question confronting the Church today is not any longer whether the man in the street can grasp a religious message, but how to employ the communications media so as to let him have the full impact of the Gospel message.
+ - Know what you are talking about.
+ - The film industry has become a universal medium exercising a profound influence on the development of people’s attitudes and choices, and possessing a remarkable ability to influence public opinion and culture across all social and political frontiers.
+ - And everything else will then turn out to be unimportant and inessential except this: father, child, and love. And then, looking at the simplest things, we will all say, Could we have not learned this long ago? Has this not always been embedded in everything that is?
+ - The priest is not and must not be a civil servant of the Church. Above all the priest is a man who lives for the spirit for God. This being the case the Seminary is the place where he learns ‘to be with Him.’
+ - In the context of the “great mystery” of Christ and of the Church, all are called to respond – as a bride – with the gift of their lives to the inexpressible gift of the love of Christ, who alone, as the Redeemer of the world, is the Church’s Bridegroom.
+ - Technology that pollutes can also cleanse, production that amasses can also distribute justly, on condition that the ethic of respect for life and human dignity, for the rights of today’s generations and those to come, prevails.
+ - Take away from love the fullness of self surrender, the completeness of personal commitment, and what remains will be a total denial and negation of it.
+ - Today, for the first time in history, a Bishop of Rome sets foot on English soil. This fair land, once a distant outpost of the pagan world, has become, through the preaching of the Gospel, a beloved and gifted portion of Christ’s vineyard.
+ - Take heed all of you who have at heart mankind’s future! Take heed men and women of good will! May the temptation to seek revenge give way to the courage to forgive; may the culture of life and love render vain the logic of death; may trust once more give breath to the lives of peoples.
+ - I hope to have communion with the people, that is the most important thing.
+ - All human activity takes place within a culture and interacts with culture.
+ - The Church must persist in the teaching transmitted to her by Christ.
+ - The encouragement and the deepening of Eucharistic worship are proofs of the authentic renewal which the Council set itself as an aim and of which they are the central point.
+ - Limitation of one’s freedom might seem to be something negative and unpleasant, but love makes it a positive, joyful and creative thing. Freedom exists for the sake of love.
+ - May you experience the truth that he, Christ, looks upon you with love.
+ - Chastity is a difficult long term matter, one must wait patiently for it to bear fruit for the happiness of loving kindness which it must bring. But at the same time chastity is the sure way to happiness.
+ - Faith leads us beyond ourselves. It leads us directly to God.
+ - The challenge is to make the church’s yes to life concrete and effective. The struggle will be long, and it needs each one of you. Place your intelligence, your talents, your enthusiasm, your compassion and your fortitude at the service of life!
+ - Prayer finds its source in God’s holiness and it is at the same time our response to this holiness.
+ - From now on it is only through a conscious choice and through a deliberate policy that humanity can survive.
+ - The way Jesus shows you is not easy. Rather, it is like a path winding up a mountain. Do not lose heart! The steeper the road, the faster it rises towards ever wider horizons.
+ - Even if the forces of darkness appear to prevail, those who believe in God know that evil and death do not have the final say.
+ - There are people and nations, Mother, that I would like to say to you by name. I entrust them to you in silence, I entrust them to you in the way that you know best.
+ - Only a socially just country has the right to exist.
+ - I hurry to express to you and your fellow citizens my profound sorrow and my closeness in prayer for the nation at this dark and tragic moment.
+ - Around the world, we can see the results of exploitation which destroys much without taking future generations into account. Today, all men have a duty to show themselves worthy of the mission given them by the Creator by ensuring the safekeeping of that creation.
+ - The obligation to earn one’s bread presumes the right to do so. A society that denies this right cannot be justified, nor can it attain social peace.
+ - St. Joseph was a just man, a tireless worker, the upright guardian of those entrusted to his care. May he always guard, protect and enlighten families.
+ - Everybody that is just is called to form part of the Kingdom of Heaven-whether they be Buddhas, Jews, or Atheists-as long as they are good.
+ - True living is not found in one’s self or in things. It is found in Someone else, in the One who created everything that is good, true, and beautiful in the world. True living is found in God and you discover God in the person of Jesus Christ.
+ - Where, if not in the Divine Mercy, can the world find refuge and the light of hope?
+ - The vow of celibacy is a matter of keeping one’s word to Christ and the Church. a duty and a proof of the priest’s inner maturity; it is the expression of his personal dignity.
+ - Do not be afraid to be saints. Follow Jesus Christ who is the source of freedom and light. Be open to the Lord so that He may lighten all your ways.
+ - When freedom does not have a purpose, when it does not wish to know anything about the rule of law engraved in the hearts of men and women, when it does not listen to the voice of conscience, it turns against humanity and society.
+ - In our time, in particular, there exists another form of ownership which is becoming no less important than land: the possession of know-how, technology and skill. The wealth of the industrialized nations is based much more on this kind of ownership than on natural resources.
+ - It would appear that, on the level of individual nations and of international relations, the free market is the most efficient instrument for utilizing resources and effectively responding to needs.
+ - What we talked about will have to remain a secret between him and me. I spoke to him as a brother whom I have pardoned and who has my complete trust.
+ - The international community should support a system of laws to regularize international relations and maintain the peace in the same manner that law governs national order.
+ - My desire is for the young people of the entire world to come closer to Mary. She is the bearer of an indelible youthfulness and beauty that never wanes. May young people have increasing confidence in her and may they entrust their lives to her.
+ - The best, the surest and the most effective way of establishing PEACE on the face of the earth is through the great power of Perpetual Adoration of the Blessed Sacrament.
+ - Every act of reverence, every genuflection that you make before the Blessed Sacrament is important because it is an act of faith in Christ, and act of love for Christ. And every sign of the cross and gesture of respect made each time you pass a church is also an act of faith.
+ - Jesus Christ has taken the lead on the way of the cross. He has suffered first. He does not drive us toward suffering but shares it with us, wanting us to have life and to have it in abundance.
+ - The United Nations organization has proclaimed 1979 as the Year of the Child. Are the children to receive the arms race from us as a necessary inheritance?
+ - Economic activity, especially the activity of a market economy, cannot be conducted in an institutional, juridical or political vacuum. On the contrary, it presupposes sure guarantees of individual freedom and private property, as well as a stable currency and efficient public services.
+ - United with the angels and saints of the heavenly Church, let us adore the most Holy Sacrament of the Eucharist. Prostrate, we adore this great mystery that contains God’s new and definitive covenant with humankind in Christ.
+ - You will reciprocally promise love, loyalty and matrimonial honesty. We only want for you this day that these words constitute the principle of your entire life and that with the help of divine grace you will observe these solemn vows that today, before God, you formulate.
+ - You are our dearly beloved brothers, and in a certain way, it could be said that you are our elder brothers.
+ - How can such episodes of such savage cruelty happen? The heart of man is an abyss out of which sometimes emerge plots of unspeakable ferocity capable of overturning in an instant the tranquil and productive life of a people.
+ - An effective proclamation of the Gospel in contemporary Western society will need to confront directly the widespread spirit of agnosticism and relativism which has cast doubt on reason’s ability to know the truth, which alone satisfies the human heart’s restless quest for meaning.
+ - It is not enough to long for a person as a good for oneself, one must also, and above all, long for that person’s good.
+ - The Rosary is a prayer both so humble and simple and a theologically rich in Biblical content. I beg you to pray it.
+ - Those in society who are in charge of schools must never forget that the parents have been appointed by God himself as the first and principal educators of their children and that their right is completely inalienable.
+ - Christ called as his Apostles only men. He did this in a totally free and sovereign way.
+ - Freedom is not the ability to do anything we want, whenever we want. Rather, FREEDOM is the ability to live responsibly the truth of our relationship with God and with one another.
+ - Deepen you knowledge of Jesus which ends loneliness, overcomes sadness and uncertainty, gives real meaning to life, curbs passions, exalts ideals, expands energies in charity, brings light into decisive choices. Let Christ be for you the Way, the Truth, and the Life.
+ - Young friends, do not hesitate to follow the example of Pedro, who ‘pleased God and was loved by him’ and who, having come to perfection in so short a time, lived a full life.
+ - Humanity should question itself, once more, about the absurd and always unfair phenomenon of war, on whose stage of death and pain only remain standing the negotiating table that could and should have prevented it.
+ - There must be a cooperation of all who believe in God, knowing that authentic religiousness – far from placing individuals and peoples in conflict with one another – rather pushes them together to build a world of peace.
+ - I kiss the soil as if I placed a kiss on the hands of a mother, for the homeland is our earthly mother. I consider it my duty to be with my compatriots in this sublime and difficult moment.
+ - We can pray perfectly when we are out in the mountains or on a lake and we feel at one with nature. Nature speaks for us or rather speaks to us. We pray perfectly.
+ - In the Mass and in Eucharistic Adoration we meet the merciful love of God that passes through the Heart of Jesus Christ.
+ - There is no place for selfishness-and no place for fear! Do not be afraid, then, when love makes demands. Do not be afraid when love requires sacrifice.
+ - If the communications media are a good destined for all humanity, then ever-new means must be found – including recourse to opportune legislative measures – to make possible a true participation in their management by all. The culture of co-responsibility must be nurtured.
+ - The essential commitment and, above all, the visible grace and source of supernatural strength for the Church as the People of God is to persevere and advance constantly in Eucharistic life and Eucharistic piety and to develop spiritually in the climate of the Eucharist.
+ - Consequently, theories of evolution which, in accordance with the philosophies inspiring them, consider the mind as emerging from the forces of living matter, or as a mere epiphenomenon of this matter, are incompatible with the truth about man. Nor are they able to ground the dignity of the person.
+ - The most profound and serious indication of the moral implications underlying the ecological problem is the lack of respect for life evident in many of the patterns of environmental pollution.
+ - Offer Christ your heart in meditation and personal prayer which is the foundation of the spiritual life.
+
+356 quotes

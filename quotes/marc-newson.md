@@ -1,0 +1,38 @@
+ - I’m always working. Like a lot of creative people I can’t switch off. I can’t disassociate work from pleasure. My job is my hobby.
+ - I pre-dated the trend for large watches by about a decade.
+ - But to me, to be original is to be yourself.
+ - My job as a designer is to look into the future. Not to use any frame of reference that exists.
+ - The fashion industry has an enormous amount to offer in what we do in industrial design because fashion is fast, fashion has its finger on the pulse. There are very few creative industries that work on that rhythm.
+ - Yeah, my dream would be to work for 6 months and then have 6 months to play, just snowboarding, surfing, and going to cool places to listen and be alone and kinda chill out.
+ - I made some salt and pepper shakers a while back and waited three years for them to come.
+ - I have a lot of objects in my space, little things, reminders, memories.
+ - I’m fascinated with materials, with processes, with technologies.
+ - So if I design it and then go away, it’s still living somewhere and it still exists by itself without me.
+ - To create well I have to be in a good mood, happy and cool.
+ - If you see something that you feel is familiar it gives you an important kind of emotional connection.
+ - People kind of tend to mystify design and architecture by suggesting you need to train.
+ - I was much more interested in making things than in designing them.
+ - So if I want to buy a light in a shop and I don’t find a light that I like, I think to myself what would I like? What would I like to buy? Then I started to imagine and design it for myself a lot of the time.
+ - The design industry is really pathetic.
+ - I don’t like to make my life like a book.
+ - And where I grew up in Australia, surfing was a part of culture.
+ - I was sort of open to do anything, I was free.
+ - I’m interested in youth culture and popular culture.
+ - If you can just be yourself, then you have to be original because there’s no one like you.
+ - If somebody asked me about my inspiration I would say that it’s not the peopleand it’s not the things, it’s travel and experiencing different environments.
+ - You know like it has its own personality, its own character.
+ - I think it’s really important to design things with a kind of personality.
+ - I never buy magazines, I never even buy books.
+ - Design schools are good, I guess, sometimes I visit schools, but they are very very limiting.
+ - I don’t have any furniture of mine in my room.
+ - You know that’s history, that’s why some people say that my stuff is retro, but I don’t agree.
+ - You know some people say that you make watches or perfume bottles, it’s all different things.
+ - I’ve always listened to a lot of film music, actually.
+ - Then I started to do furniture and interiors for a friend and just to get stuff in a magazine, and then slowly started to build up and started to doing exhibitions.
+ - If I can feel freedom then I can create.
+ - With the Solaris, however, I wanted to design a very simple, elegant dress watch.
+ - My life style in a sense is kind of private.
+ - In Japan, Australia, and England there is such a strong youth culture.
+ - I’d love to be approached to do ordinary things more.
+
+36 quotes

@@ -1,0 +1,199 @@
+ - Those who deserve love the least need it the most.
+ - Wisdom grows in quiet places.
+ - Happiness is the harvest of a quiet eye.
+ - The bigger the dam of patience, the worse the flood when the dam breaks.
+ - Some liars are so expert they deceive themselves.
+ - Knowledge is flour, but wisdom is bread.
+ - Moral progress is a process of isolation; the mountain tops are lonely.
+ - If you keep your mouth shut you will never put your foot in it.
+ - If you learn from a loss you have not lost.
+ - The swing of art is circular, from form to formalism, from formalism to formlessness, from formlessness to form again.
+ - The Son of the Carpenter made the door of heaven so low that you must either take off your plumes or stoop humbly to enter it.
+ - The habits of a young man are, like his coat, removable; the habits of an old man are like the drapery of a statue.
+ - We are plated with piety, not alloyed with it.
+ - You can’t change the world But you can change the facts And when you change the facts You change points of view If you change points of view You may change a vote And when you change a vote You may change the world.
+ - Memory is a crazy woman who hoards colored rags and throws away food.
+ - Envy is a gun with a faulty breech-lock which flares back and burns the gunner.
+ - Delay is a bitter tonic, but it increases appetite.
+ - Practical prayer is harder on the soles of your shoes than on the knees of your trousers.
+ - Atheism is a disease of the mind caused by eating underdone philosophy.
+ - Love is a boomerang that returns to the thrower’s hand.
+ - If you keep your eyes so fixed on heaven that you never look at the earth, you will stumble into hell.
+ - A politician is like quicksilver: if you try to put your finger on him, you find nothing under it.
+ - Law is the rudder of the ship of state.
+ - The three most important events of human life are equally devoid of reason: birth, marriage and death.
+ - It is twice as hard to crush a half-truth as a whole lie...
+ - Sorrow, like rain makes roses and mud.
+ - In levying taxes and in shearing sheep, it is well to stop when you get down to the skin.
+ - And death, that sits in marble silence cold, Will furnish hope to those who may behold The meaning in the everlasting change Of all that dies, returning, wondrous strange.
+ - When you are dealing with a child, keep all your wits about you, and sit on the floor.
+ - An essential quality of beauty is aloofness.
+ - Those who think it is permissible to tell white lies soon grow color-blind.
+ - They often say woman cannot keep a secret, but every woman in the world, like every man, has a hundred secrets in her own soul which she hides from even herself. The more respectable she is, the more certain it is the secrets exist.
+ - Originality in literature is only a new coat of paint on an old house.
+ - Patience is moral elasticity.
+ - Ugliness is a point of view; an ulcer is wonderful to a pathologist.
+ - Cunning is a short blanket – if you pull it over your face, you expose your feet.
+ - A rose gets its color and fragrance from the root, and man his virtue from his childhood.
+ - Civilization sails prettily like a child’s rubber balloon until it hits a sharp object; then it is likely to collapse like the balloon.
+ - Power should answer by action, not by speech.
+ - Life is a bubble in a lake, that glitters for an instant, bursts, and leaves not even a blur on the water; it is the leap of a minnow, which sends a tiny ripple trembling for a few inches.
+ - The Devil is not afraid to sit on an altar.
+ - Love dwindles by pairing.
+ - An Irishman can be worried by the consciousness that there is nothing to worry about.
+ - A hole is nothing at all, but you can break your neck in it.
+ - The smaller the head, the bigger the dream.
+ - Well begun is not only half done, but often fully cooked.
+ - Charity that is always beginning at home stays there.
+ - Take a quart of nature, boil it down to a pint, and the residue is art.
+ - Talent is a tenant in the house owned by genius.
+ - Justice and the facade of a temple are seen best from the outside.
+ - Show me a genuine case of platonic friendship, and I shall show you two old or homely faces.
+ - A woman, like a cross-eyed man, looks one way, but goes another – hence her mysteriousness.
+ - The American government is a rule of the people, by the people, for the bosses.
+ - A habit of debt is very injurious to the memory.
+ - Partial justice may exist with hatred; full justice requires charity.
+ - Despair is vinegar from the wine of hope.
+ - A man’s life is like a well, not like a snake – it should be measured by its depth, not by its length.
+ - It is as easy to give advice to yourself as to others, and as useless.
+ - The hardest fact in the world to accept is the inevitable mixture of evil with good in all things.
+ - The modern king has become a vermiform appendix: useless when quiet; when obtrusive, in danger of removal.
+ - If you combine all the spectral rays into a single beam, you get white light; and, if you combine all the virtues into a single beam, you get charity.
+ - Every April God rewrites the book of Genesis.
+ - Before you beat a child, be sure yourself are not the cause of the offense.
+ - Childhood has no necessary connection with age.
+ - The difference between a human being ten years of age and one fifty years of age lies altogether in the matter of toys.
+ - If you scratch some saints you will find the devil.
+ - There are more gluttons than drunkards in hell.
+ - The milk of human kindness should be brought fresh to the table every morning.
+ - Better a bald head than none at all.
+ - Truth lives in the cellar, error on the doorstep.
+ - Friends made fast seldom remain fast.
+ - Humility is pride in God.
+ - Music is another lady that talks charmingly and says nothing.
+ - Laws are made by the old, exceptions by the young.
+ - If you have forgotten how to be a child you cannot teach children.
+ - Suspicion is an owl that flies when the light is bad and catches only vermin for food.
+ - The difference between a mongrel and a thoroughbred, whether brute or man, is not in swiftness, beauty, or endurance, but in courage.
+ - We smile at the women who are eagerly following the fashions in dress whilst we are as eagerly following the fashions in thought.
+ - Call it the Absolute, the Ideal, Perfection, Sanctity, Decency, or what you will, but strive toward it or you will smother in the morass.
+ - Civilization is the world with its leg asleep.
+ - Patience has tender feet.
+ - All things come to him who waits – even justice.
+ - Gold is so heavy it settles down upon the lowest souls.
+ - Autumn is a hint from God to Old Age.
+ - The most dangerous savages live in cities.
+ - After thirty-five a man begins to have thoughts about women; before that he has feelings.
+ - No matter who you are, you will be put abed at last with a shovel.
+ - There is likely to be beauty wherever proportion exists.
+ - Exclusiveness is a characteristic of recent riches, high society, and the skunk.
+ - The ideal historian goes to the mouth of the tomb, cries: “Lazarus, come forth!” and sets him that was dead for ages, blinking and passionate, in the sun.
+ - Sorrow may be a good thing for a woman’s heart, but it is a poor cosmetic for her face.
+ - If you handle truth carelessly, it will cut your fingers.
+ - The worst misfortune that can happen to an ordinary man is to have an extraordinary father.
+ - The only thing on earth that can determine itself is a human soul.
+ - You cannot gather much truth by searching the fields; you must sink shafts.
+ - When we pray for death we really desire a fuller life.
+ - There are ten church-members by inheritance for one by conviction.
+ - The fact that you have been knocked down is interesting, but the length of time you remained down is important.
+ - A worship of truth can be idolatry if the truth is small enough.
+ - Death is an antidote for this life, and it makes another more stable form of life which is insoluble in everything.
+ - Shame is the turnkey that keeps our evil desires in jail.
+ - The reason we constantly discover new truth in Shakespeare is that his complete understanding of the particular includes the universal.
+ - Most mysteries are soluble in time.
+ - The perfection of art is to conceal the sources.
+ - Some men are like a church-organ – you can play on them for a lifetime and always find new harmonies; others are like a music-box – they have four or five thin jingles.
+ - Learned men fall into error oftenest by mistaking knowledge for wisdom.
+ - Liberty has as many chains as an iron-monger’s shop, and as rusty.
+ - True patriotism is a charity so wide that it covers a nation.
+ - Religion often gets credit for curing rascals when old age is the real medicine.
+ - Reason clears and plants the wilderness of the imagination to harvest the wheat of art.
+ - If you snub Conscience a few times she will cut your acquaintance.
+ - You cannot chase a dollar and an ideal at the same time.
+ - A sane man often reasons from sound premises; an insane man commonly reasons as well, but the premises are unsound.
+ - The monk that invented gunpowder did as much to stop war as did all the sermons of his brethren.
+ - A youth’s knowledge is like a cheap shotgun-likely to do as much damage to the owner as to the game.
+ - The statesman shears the sheep; the politician skins them.
+ - It is a mean thief or a successful author that plunders the dead.
+ - When a great life sets it leaves an afterglow on the sky far into the night.
+ - We use religion like a trolley-car – we ride on it only while it is going our way.
+ - If you cultivate piety as an end and not a means, you will become a hypocrite.
+ - The only original part in a work of art is the infusion of the artist’s own character, if he has one.
+ - The living have their eyes opened by closing the eyes of the dead.
+ - Prose is a photography, poetry is a painting in oil-colors.
+ - A home-made friend wears longer than one you buy in the market.
+ - Human truth is always soiled with falsehood.
+ - Treat kindly every miserable truth that knocks begging at your door, otherwise you will some day fail to recognize Truth Himself when He comes in rags.
+ - We should thank God that He did not give us the power of hearing through walls; otherwise there would be no such thing as friendship.
+ - Life is being, not having.
+ - Half-liberty comes with wisdom, full liberty with death.
+ - Art is awkward until technique has become an unconscious habit.
+ - Where there is a choice of two evils, most men take both.
+ - No man can have a reasonable opinion of women until he has long lost interest in hair-restorers.
+ - The fear we throw about danger is always as disproportionate as a paternal shirt on an infant.
+ - Man and the earth move in orbits: what they did before, they will do again.
+ - You cannot knock a man down who will not stand up, nor argue with a skeptic.
+ - You are not obliged to put on evening clothes to meet God.
+ - Every wheatfield of human thought after a while becomes filled with cockle; then the husbandmen destroy the grain with the cockle and plant anew.
+ - Wealth is a tide which flows into one place by ebbing from another.
+ - Charity is the only lubricant that keeps the axle of the world creaking.
+ - You can swim in life and seawater, but both are hard to swallow.
+ - If the poet would avoid pepsis in his patients, his scalpel must be as clean as the surgeon’s.
+ - There is more in the education of children than the everlasting iteration of the word “don’t!”
+ - Nations die first in the big cities.
+ - Those who listen to lies lose the ability to hear the truth.
+ - Some men, like a wet dog, sprinkle a shower of advice over you when you are least prepared for a bath.
+ - Art is one of man’s few serious activities.
+ - Some men are like a clock on the roof; they are useful only to the neighbors.
+ - Worry is half impatience and half ignorance.
+ - Ordinarily when a man in difficulty turns to prayer, he has already tried every other means of escape.
+ - Truth and eggs are useful only while they are fresh.
+ - The half-baked sermon causes spiritual indigestion.
+ - Revenge is often like biting a dog because the dog bit you.
+ - Those that say they despise riches are saints or liars.
+ - Charity is the note that resolves the discord.
+ - A book reviewer is usually a barker before the door of a publisher’s circus.
+ - You cannot build up a character in a solitude; you need a formed character to stand a solitude.
+ - Marriage is commonly a meal wherein the soup is better than the desert.
+ - That the saints were usually in ill luck does not canonize you.
+ - The only real change in life comes with the consciousness of old age.
+ - If you sit by the wayside waiting for Success, your knees will be too stiff to follow her when she passes.
+ - Most reformers, like a pair of trousers on a windy clothesline, go through a vast deal of vehement motion, but stay in the same place.
+ - The collision of a great man with a great idea strikes fire in dry flax.
+ - It is easier to prevent thistles and habits than to uproot them.
+ - A sin is nothing but a deordination of reason, but that is enough.
+ - Those who have suffered are best able to help those who are suffering.
+ - Some men pray only when the world is dark, as owls hoot at night.
+ - Man usually thinks liberty is the power of doing what he likes to do. That is license.
+ - Truth as philosophy is a gas; as art, it is visible steam.
+ - It is yesterday that makes tomorrow so sad.
+ - An Englishmen thinks seated; a Frenchmen standing; an American pacing, an Irishman, afterwards.
+ - Public opinion is the pennant on a nation’s mast which shows the politician and the editor how to trim the sails.
+ - If the devil went about doing a tenth of what he is accused of doing he would be poor from paying the blacksmith for ox-shoes for his hooves.
+ - Wisdom is also a deeper consciousness of ignorance.
+ - A book is like a money-changer: it pays you back in another form what you brint to it.
+ - A drunkard is like a whiskey-bottle, all neck and belly and no head.
+ - The perjurer’s mother told white lies.
+ - There is a form of literature that is a deed, and a form that is only talk, and the latter passes away like a conversation.
+ - If you are ignorant enough, you can walk like a cat on the slippery roof-ridge of danger.
+ - Reason is the miner’s lamp used in bringing up ore from the mind.
+ - You can buy life only with life.
+ - Many a man wins glory for prudence by seeking advice, then seeking advice as to what advice would be best to take, and finally following appetite.
+ - A great tragedy passes from crest to hollow of passion, rises and sinks again, as rhythmically as sea-waves.
+ - Each man’s soul is a menagerie where Conscience, the animal-tamer, lives with a collection of wild beasts.
+ - If all fools wore white hoods, any crowd would look like a field of blooming buckwheat.
+ - Sermons are like pie-crust, the shorter the better.
+ - A small poet repeats himself like a clock.
+ - Humor wades across a brook, wit jumps over it.
+ - A charitable man is like an apple tree-he gives his fruit and is silent; the philanthropist is like the successful hen.
+ - That art is best which suggests most.
+ - God shows his contempt for wealth by the kind of person he selects to receive it.
+ - The only thing in the world we really possess is our knowledge of the truth.
+ - Art knows, life applies knowledge; art feels, life acts.
+ - Persecution is as necessary to religion as pruning to an orchard.
+ - Patience is the analogue of God’s serenity.
+ - That a mouse of scandal whisks its foolish tail across the church’s floor is not sufficient cause for clamorous leaping out of its windows.
+ - Those who cook up stories will get into hot water.
+ - The most evident quality of human life is its loneliness.
+
+197 quotes

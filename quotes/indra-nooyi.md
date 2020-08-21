@@ -1,0 +1,42 @@
+ - Whatever anybody says or does, assume positive intent. You will be amazed at how your whole approach to a person or problem becomes very different.
+ - Women helping each other – coaching, mentoring, and providing tips – is a great way for us to be our own force.
+ - Whatever anybody says or does, assume positive intent.
+ - The biological clock and the career clock are in total conflict with each other.
+ - An important attribute of success is to be yourself. Never hide what makes you, you.
+ - The glass ceiling will go away when women help other women break through that ceiling.
+ - I wouldn’t ask anyone to do anything I wouldn’t do myself.
+ - Leadership is hard to define and good leadership even harder. But if you can get people to follow you to the ends of the earth, you are a great leader.
+ - If you want to improve the organization, you have to improve yourself.
+ - Most importantly, we want to create a company where every employee can bring their whole selves to work.
+ - My parents made us dream that we could be anyone that we wanted to.
+ - Take a stand. Be known for your courage and confidence.
+ - There is nothing like a concrete life plan to weigh you down. Because if you always have one eye on some future goal, you stop paying attention the the job at hand, miss opportunities that might arise, and stay fixedly on one path, even when a better, newer course might have opened up.
+ - The first thing I’d say to women is put aside the guilt. I think we’re all genetically programmed to feel guilty for not giving total effort at the job.
+ - In today’s world of blogging and tweeting, conversation has become a bit more staccato. In many ways we’re more efficient, but I think the amount of longer conversations that radiated more warmth may have gone down.
+ - My guilty pleasures are the websites where you can look at the fashions and see how different outfits will look. You can even take a picture of yourself and download it and play with the fashions! I love playing with these websites to see what I can learn.
+ - Market growth alone doesn’t give you enough tailwind. You have to create your own. The way to do that is by designing products for consumers that wow them.
+ - Every year in consulting is like three years in the corporate world because you have multiple clients, multiple issues – you grow so much.
+ - Just because you are CEO, don’t think you have landed. You must continually increase your learning, the way you think, and the way you approach the organization. I’ve never forgotten that.
+ - When you assume negative intent, youre angry. If you take away that anger and assume positive intent, you will be amazed. Your emotional quotient goes up because you are no longer almost random in your response.
+ - I’m very honest – brutally honest. I always look at things from their point of view as well as mine. And I know when to walk away.
+ - I pick up the details that drive the organization insane. But sweating the details is more important than anything else.
+ - If you give up the guilt, that’s a huge load off your shoulders.
+ - Most companies target women as end users, but few are effectively utilizing female employees when it comes to innovating for female consumers. When women are empowered in the design and innovation process, the likelihood of success in the marketplace improves by 144%!
+ - When I was president of the company, I said, ‘Okay, I can do this – piece of cake.’ Then when you are the CEO, the responsibilities multiply enormously because you worry about everything.
+ - I grew up in a Hindu household but went to a Roman Catholic school. I grew up with a mother who said, ‘I’ll arrange a marriage for you at 18,’ but she also said that we could achieve anything we put our minds to an encourage us to dream of becoming prime minister or president.
+ - But the good news was that my elder sister refused to get married straight away and I couldn’t get married until she did so I had the licence to go off and dream.
+ - At the end of the day, don’t forget that you’re a person.
+ - I asked my parents for permission to study in America and they were so sure that I wouldn’t get in and get a scholarship that they encouraged me to try. So I applied to Yale and got an excellent scholarship. I then worked for the Boston Consulting Group for six and half years.
+ - My father was an absolutely wonderful human being. From him I learned to always assume positive intent. Whatever anybody says or does, assume positive intent.
+ - PepsiCo did not have a woman in the senior ranks, nor a foreign-born person who was willing to think differently.
+ - Women play a couple of roles. They are in professional schools and increasingly producing the talent to keep the engines of the economy growing, but they’re also the nurturers and the caregivers.
+ - There will never be a replacement for that ongoing physical contact. But I don’t think blogging is meant to replace the face-to-face of friendships and meetings. Blogging is a way to keep in touch with a larger group of people on an ongoing basis, in a more efficient way.
+ - Blogging is a great way to provide tips and advice to each other.
+ - We pretend we have it all. We pretend we can have it all.
+ - I think innovation as a discipline needs to go back and get rethought and revived. There are so many models to talk about innovation, there are so many typologies of innovation, and you have to find a good innovation metric that truly captures the innovation performance of a company.
+ - Blogging and the Internet allow us to engage in a lot more real time conversations as opposed to a one-way dump of information or a message.
+ - Anything that’s done to address unemployment in terms of massive stimulus spending is going to exacerbate deficits. And anything that’s done to address deficits in the short-term is going to exacerbate unemployment.
+ - When I grew up there was no web, blogging or tweeting. In fact, where I grew up there was not even television! I met a lot of my friends in school and in college, and they are still my friends today.
+ - As a leader, I am tough on myself and I raise the standard for everybody; however, I am very caring because I want people to excel at what they are doing so that they can aspire to be me in the future.
+
+40 quotes

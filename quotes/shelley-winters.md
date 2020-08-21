@@ -1,0 +1,26 @@
+ - Life is a constant process of change, for better or worse.
+ - Good, bad, or indifferent – it doesn’t matter, just work.
+ - I am the modern, intelligent, independent-type woman. In other words, a girl who can not get a man.
+ - The trouble with marrying an actor is they grab you in their arms, hold you close and tell you how wonderful they are.
+ - Whenever you want to marry someone, go have lunch with his ex-wife.
+ - I was so cold I almost got married.
+ - I think on-stage nudity is disgusting, shameful and damaging to all things American. But if I were 22 with a great body, it would be artistic, tasteful, patriotic and a progressive religious experience.
+ - You have a lot of friends who love you dearly and you don’t know who they are.
+ - Where do you go to get anorexia?
+ - I’m not overweight. I’m just nine inches too short.
+ - Security is when I’m very much in love with somebody extraordinary who loves me back.
+ - If a play is good and you’re effective in it, you suddenly hear a silence that is loud, and that moment makes the whole schmageggy business of an actor or an actress worthwhile, because you suddenly know that they are human beings like you, who are receiving something from you.
+ - I’m just a Ragetty Anne in a Barbie Doll World.
+ - We had a lot in common. I loved him and he loved him.
+ - Every now and then, when you’re on stage, you hear the best sound a player can hear. It’s a sound you can’t get in movies or in television. It is the sound of a wonderful, deep silence that means you’ve hit them where they live.
+ - Acting is the developing of one’s own personality, too, you know. That’s what the public buys in a star, shall we say, the personality thing.
+ - I have bursts of being a lady, but it doesn’t last long.
+ - To me, the theatre – I don’t like to say it, but I’ll say it – is a temple in a kind of way, where human beings go to be elevated.
+ - I hate to tell you how old I am, but I reached the age of consent 75,000 consents ago.
+ - I don’t want to smoke cigars or go to stag parties, wear jockey shorts or pick up the check.
+ - Now that I’m over sixty, I’m veering toward respectability.
+ - Stardom can be very destructive – particularly if you believe in it.
+ - Acting is like painting pictures on bathroom tissues. Ten minutes later you throw them away and they are gone.
+ - In those days, young stars, male and female, were all virgins until married, and if divorced, they returned magically to that condition.
+
+24 quotes

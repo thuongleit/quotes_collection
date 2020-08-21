@@ -1,0 +1,49 @@
+ - Apathy’s a problem but who cares?
+ - Our fear that communism might someday take over most of the world blinds us to the fact that anti- communism already has.
+ - The first atrocity, the first war crime committed in any war of aggression by the aggressors is against the truth.
+ - You will have no sensation of a leash around your neck if you sit by the peg. It is only when you stray that you feel the restraining tug.
+ - You don’t know you’re wearing a leash if you sit by the peg all day.
+ - People who think they’re free in this world just haven’t come to the end of their leash yet.
+ - No system in history capitalism has been more relentless in battering down ancient and fragile cultures, devouring the resources of whole regions, pulverizing centuries-old practices in a matter of years, and standardizing the varieties of human experience.
+ - The enormous gap between what US leaders do in the world and what Americans think their leaders are doing is one of the great propaganda accomplishments.
+ - I spent thirty-three years in the Marines, most of my time being a hlgh class muscle man for Big Business, for Wall Street and the bankers. In short, I was a racketeer for capitalism.
+ - The dirty truth is that the rich are the great cause of poverty.
+ - When change threatens to rule, then the rules are changed.
+ - The dirty truth is that many people find fascism to be not particularly horrible.
+ - Archbishop Romero of El Salvador was a member of the Salvadoran aristocracy. He could not have risen to the top of the church hierarchy otherwise. But after he began voicing critical remarks about the war and concerned comments about the poor, he was assassinated.
+ - One finds fortunes built on slave labor, indentured labor, prison labor, immigrant labor, female labor, child labor, and scab labor – backed by the lethal force of gun thugs and militia. ‘Old money’ is often little more than dirty money laundered by several generations of possession.
+ - The most powerful ideologies are not those that prevail against all challengers but those that are never challenged because in their ubiquity they appear as nothing more than the unadorned truth.
+ - Actually, the New Deal’s central dedication was to business recovery rather than social reform.
+ - America is a simplified ideological abstraction, an emotive symbol represented by other abstract symbols like the flag. It is the object of a faithlike devotion, unencumbered by honest history.
+ - Maintaining silence about a dirty truth is another way of lying, a common practice in high places.
+ - Even though the crime rate has dropped in recent years, the United States has more police per capita then any other nation in the world.
+ - Just as the power of the feudal aristocracy had to be broken in order for capitalism to emerge fully, so must imperialism and capitalism in Third World nations be overcome if a new system is to prevail.
+ - Every ruling class has wanted only this: all the rewards and none of the burdens. The operational code is: we have a lot; we can get more; we want it all.
+ - Union busting has become a major industry with more than a thousand consulting firms teaching companies how to prevent workers from organizing and how to get rid of existing unions.
+ - It is ironic that people of modest means sometimes become conservative out of a scarcity fear bred by the very capitalist system they support.
+ - The rich have grown richer, but their tax rate has declined. The poor have grown poorer, but their taxes have increased.
+ - Revolutions are not push button affairs; rather, they evolve only if there exists a reservoir of hope and grievance that can be galvanized into popular action.
+ - The last four secretaries of defense have pointed out that defense spending creates jobs. So do pornography, prostitution, and narcotics.
+ - Democrats – lily-livered, weasel-assed collaborators.
+ - Russia became a juicy chunk of the Third World, with immense reserves of cheap labor, a vast treasure of natural resources, and industrial assets to be sold off at giveaway prices.
+ - One mechanism of repression is the grand jury.
+ - Generosity toward the lower classes historically has never been an important part of upper-class awareness.
+ - The trick is to steal big.
+ - The Federalists also used bribes, intimidation, and fraud against opponents of the Constitution.
+ - The god who presides over the Judeo-Christian belief system bears a disquieting resemblance to those imperfect creations known as human beings. This suggests that either he really did fashion us in his own image or we fashioned him in ours.
+ - The two party electoral system performs the essential function of helping to legitimate the existing social order.
+ - I had a swell racket. I was rewarded with honors, medals, promotions. l might have given Al Capone a few hints. The best he could do was to operate a racket in three city districts. The Marines operated on three continents.
+ - The American way is to criticize and debate openly, not to accept unthinkingly the doings of government officials of this or any other country.
+ - The peculiar danger of executive power is that it executes.
+ - Conservatives are fond of telling us what a wonderful, happy, prosperous nation this is. The only thing that matches their love of country is the remarkable indifference they show toward the people who live in it.
+ - To complain about how the media are dominated by liberals, Limbaugh has an hour a day on network television, an hour on cable, and a radio show syndicated by over 600 stations.
+ - The close relationship between politics and economics is neither neutral nor coincidental. Large governments evolve through history in order to protect large accumulations of property and wealth.
+ - A huge national security state has developed in the United States since World War II. Its function is to buttress anticommunist, procapitalist governments and undermine and destroy popular movements whenever possible.
+ - The worst forms of tyranny, or certainly the most successful ones, are not those we rail against but those that so insinuate themselves into the imagery of our consciousness, and the fabric of our lives, as not to be perceived as tyranny.
+ - To make the world safe for those who own it, politically active elements of the owning class have created a national security state that expends billions of dollars and enlists the efforts of vast numbers of people.
+ - The first law of the market is to make the largest possible profit from other people’s labor or go out of business. Profitability rather than human need is the determining condition of private investment.
+ - The crucial role communists played in organizing industrial unions in the 1930s and struggling for social reforms, peace, and civil rights strengthened rather then undermined democratic forces.
+ - In almost every enterprise, government has provided business with opportunities for private gain at public expense. Government nurtures private capital accumulation through a process of subsidies, supports, and deficit spending and an increasingly inequitable tax system.
+ - Official Washington cannot tell the American people that the real purpose of its gargantuan military expenditures and belligerent interventions is to make the world safe for General Motors, General Electric, General Dynamics, and all the other generals.
+
+47 quotes

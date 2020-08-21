@@ -1,0 +1,42 @@
+ - I think I’m afraid of being happy because whenever I get too happy something bad always happens. ~~Charles M. Schulz
+ - As I say I don’t want to kill myself, I just wouldn’t mind dying. ~~Stephen Fry
+ - Fear is the path to the dark side. Fear leads to anger. Anger leads to hate. Hate leads to suffering. ~~George Lucas
+ - I’ll never forget how the depression and loneliness felt good and bad at the same time. Still does. ~~Henry Rollins
+ - Every day begins with an act of courage and hope: getting out of bed. ~~Mason Cooley
+ - Many of us spend our whole lives running from feeling with the mistaken belief that you can not bear the pain. But you have already borne the pain. What you have not done is feel all you are beyond that pain. ~~Khalil Gibran
+ - You don’t have to control your thoughts; you just have to stop letting them control you. ~~Dan Millman
+ - I’m a happy-go-lucky manic-depressive. It does get very deep and dark for me, and it gets scary at times when I feel I can’t pull out of it. But I don’t consider myself negative-negative. I’m positive-negative. ~~Tim Burton
+ - In a mad world, only the mad are sane. ~~Akira Kurosawa
+ - Our Generation has had no Great war, no Great Depression. Our war is spiritual. Our depression is our lives. ~~Chuck Palahniuk
+ - It’s brilliant, being depressed; you can behave as badly as you like. ~~Nick Hornby
+ - I have the true feeling of myself only when I am unbearably unhappy. ~~Franz Kafka
+ - Depression is merely anger without enthusiasm. ~~Steven Wright
+ - If you could only sense how important you are to the lives of those you meet; how important you can be to the people you may never even dream of. There is something of yourself that you leave at every meeting with another person. ~~Fred Rogers
+ - If you are distressed by anything external, the pain is not due to the thing itself, but to your estimate of it; and this you have the power to revoke at any moment. ~~Marcus Aurelius
+ - Watch out for the joy-stealers: gossip, criticism, complaining, faultfinding, and a negative, judgmental attitude. ~~Joyce Meyer
+ - Suffering is the positive element in this world, indeed it is the only link between this world and the positive. ~~Franz Kafka
+ - Sanity is a cozy lie. ~~Susan Sontag
+ - Only that day dawns to which we are awake. ~~Henry David Thoreau
+ - Depression is rage spread thin. ~~George Santayana
+ - Given the choice between the experience of pain and nothing, I would choose pain. ~~William Faulkner
+ - No man for any considerable period can wear one face to himself and another to the multitude, without finally getting bewildered as to which may be the true. ~~Nathaniel Hawthorne
+ - Madness is a kind of mental suicide. ~~Stephen King
+ - Of course I’m crazy, but that doesn’t mean I’m wrong. ~~Robert Anton Wilson
+ - The pupil dilates in darkness and in the end finds light, just as the soul dilates in misfortune and in the end finds God. ~~Victor Hugo
+ - Truly, it is in darkness that one finds the light, so when we are in sorrow, then this light is nearest of all to us. ~~Meister Eckhart
+ - At sixteen, the adolescent knows about suffering because he himself has suffered, but he barely knows that other beings also suffer. ~~Jean-Jacques Rousseau
+ - People have a hard time letting go of their suffering. Out of a fear of the unknown, they prefer suffering that is familiar. ~~Nhat Hanh
+ - A positive attitude gives you power over your circumstances instead of your circumstances having power over you. ~~Joyce Meyer
+ - Show me a sane man and I will cure him for you. ~~C.G. Jung
+ - Writing is a form of therapy; sometimes I wonder how all those who do not write, compose or paint can manage to escape the madness, melancholia, the panic and fear which is inherent in a human situation. ~~Graham Greene
+ - Storms make trees take deeper roots. ~~Dolly Parton
+ - The only way to escape the abyss is to look at it, gauge it, sound it out and descend into it. ~~Cesare Pavese
+ - Recession is when a neighbor loses his job. Depression is when you lose yours. ~~Ronald Reagan
+ - May I not forget that poverty and riches are of the spirit. Though the world knows me not, may my thoughts and actions be such as will keep me friendly with myself. ~~Max Ehrmann
+ - There’s nothing wrong with you that a little Prozac and a polo mallet can’t cure. ~~Woody Allen
+ - Habits of pessimism lead to depression, wither achievement, and undermine physical health. The good news is that pessimism can be unlearned, and that with its removal depression, underachievement, and poor health can be alleviated. ~~Martin E.P. Seligman
+ - There was an awful rainbow once in heaven: We know her woof, her texture; she is given In the dull catalogue of common things. Philosophy will clip an angel’s wings. ~~John Keats
+ - There is no value in life except what you choose to place upon it and no happiness in any place except what you bring to it yourself. ~~Henry David Thoreau
+ - No sin is necessarily connected with sorrow of heart, for Jesus Christ our Lord once said, “My soul is exceedingly sorrowful, even to death.” There was no sin in Him, and consequently none in His deep depression. ~~Charles H. Spurgeon
+
+40 quotes

@@ -1,0 +1,23 @@
+ - To regret religion is to regret Western civilization.
+ - Where a reputation for intolerance is more feared than a reputation for vice itself, all manner of evil may be expected to flourish.
+ - Life is a biography, not a series of disconnected moments, more or less pleasurable but increasingly tedious and unsatisfying unless one imposes a purposive pattern upon them.
+ - A curious reversal in the locus of moral concern has taken place: people feel responsible for everything except for what they do.
+ - Feeling good about yourself is not the same thing as doing good. Good policy is more important than good feelings.
+ - The aim of untold millions is to be free to do exactly as they choose and for someone else to pay when things go wrong.
+ - The bravest and most noble are not those who take up arms, but those who are decent despite everything; who improve what it is in their power to improve, but do not imagine themselves to be saviours. In their humble struggle is true heroism.
+ - When every benefit received is a right, there is no place for good manners, let alone for gratitude.
+ - If the history of the 20th Century proved anything, it proved that however bad things were, human ingenuity could usually find a way to make them worse.
+ - There is nothing an addict likes more, or that serves as better pretext for continuing his present way of life, than to place the weight of responsibility for his situation somewhere other than on his own decisions.
+ - Do I grow cleverer with age, or does the world grow more stupid?
+ - How many people does each of us know who claim to seek happiness but freely choose paths inevitably leading to misery?
+ - It is only by having desire thwarted, and thereby learning to control it – in other words, by becoming civilized – that men become fully human.
+ - The idea that man is a tabula rasa, or Mao’s sheet of blank paper upon which the most beautiful characters can be written, is an old one with disastrous implications. I do not think though that the cults you mention could survive honest thought about human nature.
+ - So what exactly are the rewards of resentment. It is always a relief to know that the reason we have failed in life is not because we lack the talent, energy, or determination to succeed, but because of a factor that is beyond our control and that has loaded the dice decisively against us.
+ - Equality of Ugliness: If we can’t all live in a beautiful place we must all live in an ugly place.
+ - I’ve heard a hundred different variations of instances of unadulterated female victimhood, yet the silence of the feminists is deafening. Where two pieties – feminism and multi-culturalism – come into conflict, the only way of preserving both is an indecent silence.
+ - There is nothing that an intellectual less likes to change than his mind, or a politician his policy.
+ - The idea that freedom is merely the ability to act upon one’s whims is surely very thin and hardly begins to capture the complexities of human existence; a man whose appetite is his law strikes us not as liberated but enslaved.
+ - There is something deeply attractive, at least to quite a lot of people, about squalor, misery, and vice. They are regarded as more authentic, and certainly more exciting, than cleanliness, happiness, and virtue.
+ - Orders can be benign or malign, but the habit of obeying them can become ingrained.
+
+21 quotes

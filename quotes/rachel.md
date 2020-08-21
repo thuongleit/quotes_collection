@@ -1,0 +1,24 @@
+ - Tomorrow is not a promise, but a chance.
+ - I won’t be labeled as average.
+ - Compassion is the greatest form of love humans have to offer.
+ - I will put honesty before the risk of humiliation.
+ - How many of us have enough trust, strength, and faith to believe that we could do the impossible?
+ - Love isn’t how well you know someone, it is how they make you feel.
+ - Desiring is a part of dreaming.
+ - In some basic way, it is our imperfections and even our pain that draws others close to us.
+ - I find myself very, very happy to be a weird writer.
+ - A friend is someone who can brighten your day with a simple smile, when others try to do it with a thousand words.
+ - Nature has introduced great variety into the landscape, but man has displayed a passion for simplifying it. Thus he undoes the built-in checks and balances by which nature holds the species within bounds.
+ - Those who don’t love themselves as they are rarely love life either.
+ - What is life when living without the Lifemaker?
+ - This will be my last year, Lord. I have gotten what I can. Thank You.
+ - This is a bond nothing can ever loosen. What I have lost: what I possess forever.
+ - We still have prostitutes standing on our corner, and people crapping round the back of buildings. The charms are still there.
+ - Look, that homeless guy is sleeping on my face. New York really is where dreams come true.
+ - I’d rather live at the bottom of a well than leave Avonlea.
+ - I used to consider myself as great as a pyramid, and now I realize that I am only a shadow that passes.
+ - I think for anyone – male or female – in improv, the biggest thing to get over is the fear. I think every improviser has that.
+ - It’s important for me to be immersed in all cultures. I’m an actress.
+ - You can’t send a girl in to do what a lady can do.
+
+22 quotes

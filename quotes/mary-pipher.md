@@ -1,0 +1,27 @@
+ - How many therapists does it take to change a lightbulb? One, as long as the lightbulb wants to change.
+ - Telling stories never fails to produce good in the universe.
+ - Language imparts identity, meaning, and perspective to our human condition. Writers are either polluters or part of the cleanup.
+ - I think history is inextricably linked to identity. If you don’t know your history, if you don’t know your family, who are you?
+ - Real friends require honesty, openness, and even vulnerability. They also require attention and simple acts of kindness.
+ - With meditation I found a ledge above the waterfall of my thoughts.
+ - Intelligent resistance keeps the true self alive.
+ - People come here penniless but not cultureless. They bring us gifts. We can synthesize the best of our traditions with the best of theirs. We can teach and learn from each other to produce a better America...
+ - True freedom has more to do with following the North Star than going whichever way the wind blows. Sometimes it seems like freedom is blowing with the winds of the day, but that kind of freedom is really an illusion. It turns your boat in circles. Freedom is sailing toward your dreams.
+ - Something dramatic happens to girls in early adolescence. Just as planes and ships disappear mysteriously into the Bermuda Triangle, so do the selves of girls go down in droves.
+ - All geniuses born women are lost to the public good.
+ - Adolescence is a border between childhood and adulthood. Like all borders, it’s teeming with energy and fraught with danger.
+ - One important reason to stay calm is that calm parents hear more. Low-key, accepting parents are the ones whose children keep talking.
+ - Adolescence is when girls experience social pressure to put aside their authentic selves and to display only a small portion of their gifts.
+ - We tend to value military heroes and Schwarzenegger types who are physically courageous. The heroics of doing the right thing every day even when it is dull and inconvenient are undervalued.
+ - Girls developed eating disorders when our culture developed a standard of beauty that they couldn’t obtain by being healthy. When unnatural thinness became attractive, girls did unnatural things to be thin.
+ - The two most radical things you can do in America are to slow down, and to talk to each other. If you do these things, you will improve your country.
+ - In all the years I’ve been a therapist, I’ve yet to meet one girl who likes her body.
+ - I’m a perfectly good carrot that everyone is trying to turn into a rose. As a carrot, I have good color and a nice leafy top. When I’m carved into a rose, I turn brown and wither.
+ - I want to write. I have always wanted to write. I do not care it I am not good at it. I just want to try.
+ - Traditionally parents have wondered what their teens were doing, but now teens are much more likely to be doing things that can get them killed.
+ - The protected place in space and time that we once called childhood has grown shorter.
+ - All feelings are acceptable, but all behavior isn’t.
+ - The fullness of life comes from an identity built on giving and on joy.
+ - When one of us tells the truth, he makes it easier for all of us to open our hearts to our pain and that of others.
+
+25 quotes

@@ -1,0 +1,38 @@
+ - We have, I fear, confused power with greatness.
+ - Plans to protect air and water, wilderness and wildlife are in fact plans to protect man.
+ - Mining is like a search-and-destroy mission.
+ - If you want inner peace, find it in solitude, not speed, and if you would find yourself, look to the land from which you came and to which you go.
+ - Cherish sunsets, wild creatures, and wild places. Have a love affair with the wonder and beauty of the earth!
+ - The National Park Service today exemplifies one of the highest traditions of public service.
+ - The most common trait of all primitive peoples is a reverence for the life-giving earth, and the Native American shared this elemental ethic: The land was alive to his loving touch, and he, its son, was brother to all creatures.
+ - Each generation has its own rendezvous with the land, for despite our fee titles and claims of ownership, we are all brief tenants on this planet. By choice, or by default, we will carve out a land legacy for our heirs.
+ - Wilderness, like the national park system, was an American idea.
+ - I think the Colorado Plateau is the most scenic area in the world – let’s begin with that. Not just the United States.
+ - America today stands poised on a pinnacle of wealth and power, yet we live in a land of vanishing beauty, of increasing ugliness, of shrinking open space, and of an over-all environment that is diminished daily by pollution and noise and blight.
+ - Over the long haul of life on the planet, it is the ecologists, and not the bookkeepers of business, who are the ultimate accountants.
+ - Where nature is concerned, familiarity breeds love and knowledge, not contempt.
+ - Admittedly, we must move ahead with the development of our land resources. Likewise, our technology must be refined. But in the long run life will succeed only in a life-giving environment, and we can no longer afford unnecessary sacrifices of living space and natural landscape to ‘progress.’
+ - It gives me satisfaction to help people.
+ - In a region with a growing population, if you’re doing nothing, you’re losing ground.
+ - As the master politician navigates the ship of state, he both creates and responds to public opinion. Adept at tacking with the wind, he also succeeds, at times, in generating breezes of his own.
+ - So many people of my generation who served in the government were prisoners of the Cold War culture, still are.
+ - It induced us to conduct government according to lies. It distorted justice. It undermined American morality.
+ - We’re all pretty individualistic.
+ - The most common trait of all primitive peoples is a reverence for the life-giving earth.
+ - Gross National Product is our Holy Grail.
+ - A limit on the automobile population of the United States would be the best of news for our cities. The end of automania would save open spaces, encourage wiser land use, and contribute greatly to ending suburban sprawl.
+ - Nuclear energy people perceive the greenhouse effect as a fresh wind blowing at their back.
+ - The auto industry must acknowledge that a rational transportation policy should seek a balance between individual convenience, the efficient use of limited resources, and urban-living values that protect spaciousness, natural beauty, and human-scale mobility.
+ - Washington’s a cesspool of money.
+ - It is obvious that the best qualities in man must atrophy in a standing-room-only environment.
+ - Nixon was a good president on the environment. Gerald Ford was good.
+ - Utah today remains a battleground for land-use policies.
+ - Nature will take precedence over the needs of the modern man.
+ - The real story of the settlement of the West was work, not conquest.
+ - Society as we know it is almost a conspiracy against human health. One of the main forces working to counteract that is the trailsman.
+ - I’m trying to encourage my children’s generation and the other ones coming to return to basic American principles.
+ - One of the best things that came out of the Carter administration was the energy policy. The best things in it were renewable energy.
+ - I plowed fields with horses and worked as a hired hand in high school for 50 cents a day.
+ - If, in our haste to ‘progress,’ the economics of ecology are disregarded by citizens and policy makers alike, the result will be an ugly America. We cannot afford an America where expedience tramples upon esthetics and development decisions are made with an eye only on the present.
+
+36 quotes

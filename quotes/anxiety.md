@@ -1,0 +1,42 @@
+ - Our anxiety does not come from thinking about the future, but from wanting to control it. ~~Khalil Gibran
+ - No amount of anxiety makes any difference to anything that is going to happen. ~~Alan Watts
+ - Its not stress that kills us, it is our reaction to it. ~~Hans Selye
+ - All your anxiety is because of your desire for harmony. Seek disharmony, then you will gain peace. ~~Rumi
+ - The best use of imagination is creativity. The worst use of imagination is anxiety. ~~Deepak Chopra
+ - Risk, then, is not just part of life. It is life. The place between your comfort zone and your dream is where life takes place. It’s the high-anxiety zone, but it’s also where you discover who you are. ~~Nick Vujicic
+ - God changes caterpillars into butterflies, sand into pearls and coal into diamonds using time and pressure. He’s working on you, too. ~~Rick Warren
+ - Do not let your difficulties fill you with anxiety, after all it is only in the darkest nights that stars shine more brightly. ~~Ali ibn Abi Talib
+ - Fear is inevitable, I have to accept that, but I cannot allow it to paralyze me. ~~Isabel Allende
+ - How do you know what is the right path to choose to get the result that you desire? The honest answer is this: You won’t. And accepting that greatly eases the anxiety of your life experience. ~~Jon Stewart
+ - We’re hallucinating. And that’s what this world is: a mass hallucination, where fear seems more real than love. Fear is an illusion. Our craziness, paranoia, anxiety and trauma are literally all imagined. ~~Marianne Williamson
+ - Anxiety is simply living out the future before it gets here. ~~Kevin DeYoung
+ - Man is not worried by real problems so much as by his imagined anxieties about real problems. ~~Epictetus
+ - Anxiety, the illness of our time, comes primarily from our inability to dwell in the present moment. ~~Nhat Hanh
+ - The more you pray, the less you’ll panic. The more you worship, the less you worry. You’ll feel more patient and less pressured. ~~Rick Warren
+ - You believe that you live in the world, where in fact the world lives within you. ~~Deepak Chopra
+ - Real religion is the transformation of anxiety into laughter. ~~Alan Watts
+ - When in haste, rest in the present. Take a deep breath and come back to here and now. ~~Dan Millman
+ - Vision creates faith and faith creates willpower. With faith there is no anxiety and no doubt – just absolute confidence in yourself. ~~Arnold Schwarzenegger
+ - There are moments when all anxiety and stated toil are becalmed in the infinite leisure and repose of nature. ~~Henry David Thoreau
+ - Work is an antidote for anxiety, an ointment for sorrow, and a doorway to possibility. ~~Dieter F. Uchtdorf
+ - Nothing in the affairs of men is worthy of great anxiety. ~~Plato
+ - Uncertainty causes more anxiety than perhaps any other single factor. ~~Liz Miller
+ - If anyone is unhappy, remember that his unhappiness is his own fault. Nothing else is the cause of anxiety or loss of tranquility except our own opinion. ~~Epictetus
+ - Growth can be painful, change can be painful but nothing is as painful as staying stuck somewhere you don’t belong Anxiety does not empty tomorrow of its sorrow it only empties today of it strengths. ~~Charles H. Spurgeon
+ - The search for Nirvana, like the search for Utopia or the end of history or the classless society, is ultimately a futile and dangerous one. It involves, if it does not necessitate, the sleep of reason. There is no escape from anxiety and struggle. ~~Christopher Hitchens
+ - Purity is when there is no anxiety, no worry, no thinking. ~~B.K.S. Iyengar
+ - You sit here for days saying, this is a strange business. You’re the strange business. You have the energy of the sun in you, but you keep knotting it up at the base of your spine. ~~Rumi
+ - Every day I pray. I yield myself to God and the tensions and anxieties go out of me and peace and power come in. ~~Dale Carnegie
+ - I will be dead in a few months. But it hasn’t given me the slightest anxiety or worry. I always knew I was going to die. ~~B. F. Skinner
+ - Our whole life is taken up with anxiety for personal security, with preparations for living, so that we really never live at all. ~~Leo Tolstoy
+ - We pay a price for everything we get or take in this world; and although ambitions are well worth having, they are not to be cheaply won, but exact their dues of work and self denial, anxiety and discouragement. ~~L.M. Montgomery
+ - For me, its always a failure of the imagination. I have that anxiety that time is passing, that everything is ultimately fleeting and impermanent. I better take advantage of every single moment. ~~Jason Silva
+ - Satan wants anxiety to hinder us from becoming effective servants of Christ. ~~Lysa TerKeurst
+ - To grow old means to be rid of anxieties about the past. ~~Stefan Zweig
+ - Love is the ability and willingness to allow those that you care for to be what they choose for themselves without any insistence that they satisfy you. ~~Wayne W. Dyer
+ - You cannot make yourself feel something you do not feel, but you can make yourself do right in spite of your feelings. ~~Pearl S. Buck
+ - Anxiety is the hand maiden of creativity. ~~T. S. Eliot
+ - The future is usually imagined as either better or worse than the present. If the imagined future is better, it gives you hope or pleasurable anticipation. If it is worse, it creates anxiety. Both are illusory. ~~Eckhart Tolle
+ - When desire dies, fear is born. ~~Baltasar Gracián
+
+40 quotes

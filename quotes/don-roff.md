@@ -1,0 +1,25 @@
+ - Nothing says work efficiency like panic mode.
+ - A migraine is the cockblock of writing.
+ - A day of bad writing is always better than a day of no writing.
+ - It’s my belief that people enter your life at exactly the right time.
+ - Fear and self-doubt are the deadly enemies of creativity. Don’t invite either into your mind.
+ - Authors must spend months, years making fantasy believable in a single work while reality runs rampant and complete chaos elsewhere.
+ - Nothing’s a better cure for writer’s block than to eat ice cream right out of the carton.
+ - If you treat your characters like people, they’ll reward you by being fully developed individuals.
+ - There is no right or wrong way to write a novel. Each journey is different for every individual work and for every writer. The first error is never to begin; the second is never to finish.
+ - You can be a writer who doesnt read everyday. But youre not fooling anyone. It shows, rather embarrassingly, in your work.
+ - A writer always writes.
+ - Writers often torture themselves trying to get the words right. Sometimes you must lower your expectations and just finish it.
+ - If you focus on the humanity of your stories, your characters, then the horror will be stronger, scarier. Without the humanity, the horror becomes nothing more than a tawdry parlor trick. All flash and no magic, and worst of all, no heart.
+ - Love it when a compelling new character kicks open your mental door, tracks mud across your brain, and props their feet up on your cerebrum.
+ - Regarding the creative: never assume you’re the master, only the student. Your audience will determine if you’re masterful.
+ - Write about the thing that scares you most or your most private confession and you’ll never have a problem coming up with decent fiction.
+ - The recipe for great art has always been misery and a good bowel movement.
+ - Always mystify, torture, mislead, and surprise the audience as much as possible.
+ - Writing a story, regardless of length, begins always with a single word.
+ - Any conversation including the mention of Roald Dahl, Ray Bradbury, or Emily Dickinson is one worth getting into or at least eavesdropping.
+ - But people in a small town tend to do a lot of talking, even when they don’t know what they’re talking about.
+ - When you’re writing what you love, it’s the most fun you can have with your clothing still on, unless of course, you write naked.
+ - When you print out your manuscript and read it, marking up with a pen, it sometimes feels like a criminal returning to the scene of a crime.
+
+23 quotes

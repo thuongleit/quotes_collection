@@ -1,0 +1,31 @@
+ - I think I was a terrible husband, I think I’m a terrible boyfriend.
+ - I loooved Sleater-Kinney like a crazy person.
+ - Portland is where young people go to retire.
+ - Avoid people who tell you that something you want to do is not possible.
+ - Someday maybe I’ll go back and see what the Deep South is like.
+ - I love ‘Saturday Night Live,’ and I really feel like people who have left before me have always stayed with the show. They never really quite left, which is nice. Everyone kind of stays close.
+ - I’m obsessed with my 20s. I buy things that I wanted in my 20s. It’s weird; it’s a weird thing that I didn’t grow out of.
+ - Steve Jobs was a real rock star to me. I looked forward to his products like people look forward to albums.
+ - The more I keep myself occupied and jump from thing to thing, the more I think it enriches both.
+ - My father came from Germany. My mom came from Venezuela. My father’s culturally German, but his father was Japanese.
+ - I can’t relax. I’m not happy unless I’m working on stuff. ‘SNL’ is always a huge workload, as enjoyable as it is.
+ - People are always nice, so I can’t complain. My name used to be SNL! More and more, people call me by my name.
+ - I try to maintain a high level of coolness. Which means I’ve gotta look at lot of magazines. I’ve gotta look at a lot of ads to see what people want to wear.
+ - I still feel lucky whenever I hear a director say, “Action!” Because then I think, “Whoa, I’m really in the movies. This is a real thing happening.” I’ve never not been enthralled by that. I still love it. I still love hearing it, and I feel really lucky all the time.
+ - I’m so glad cities have personalities, just like people have personalities. That’s something that makes me smile.
+ - I like it when people are driven. I love that in any field of work, in architecture or whatever. Like Lorne Michaels – he pays attention to every detail.
+ - I met Steve Jobs once. In ’06? He had a sense of humor.
+ - I came away from ‘Saturday Night Live’ feeling very well represented. I felt, and I still feel like, they let me do so much stuff that I wanted to do. Stuff that I almost didn’t even know what it was.
+ - In my opinion, there’s this new phenomenon where guys used to talk about cars a lot in the past. But, more and more it’s becoming them talking about recording studios.
+ - Every music journalist I’ve ever met has been stunningly beautiful.
+ - I was raised in New York and spent two years in Rio. My parents met at the University of Southern Mississippi, and they had me there, and then we moved to New York. I’m not very familiar with Mississippi.
+ - I lived in Chicago, but the music I was inspired by was from D. C.
+ - Sometimes I think I’m a really interesting guy.
+ - I enjoy getting to work on ‘Saturday Night Live’, where I get to do people like David Paterson. And then, its like a different muscle to do someone like a bicycle guy on’ Portlandia’.
+ - I wish I was one of those people who could write script after script and pages and pages. I can only aspire to do that.
+ - I started comedy in like 1998.
+ - Chalkboards being used inside the restaurant seem to be a good sign that the proprietors are proud of their food, and that’s kind of nice, actually – it’s a nice personal touch.
+ - I thrive most when I have to juggle things.
+ - I spent a lot of time lifting my drums into a van, playing to ten people night after night. I can’t complain about anything now.
+
+29 quotes

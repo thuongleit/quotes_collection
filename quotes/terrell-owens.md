@@ -1,0 +1,88 @@
+ - I’ll do whatever it takes to win.
+ - For whatever reason, God has a plan for me.
+ - Yes, I am a narcissist. The best, too.
+ - If you align expectations with reality, you will never be disappointed.
+ - All that matters to me now is my family.
+ - Like my boy tells me; if it looks like a rat and smells like a rat, by golly, it is a rat.
+ - Instead of me having a breakdown, I’m focusing on me having a breakthrough.
+ - God blessed me to play football.
+ - I don’t need the recognition and I did not expect it.
+ - Get your popcorn ready, ’cause I’m gonna put on a show.
+ - People have doubted me and criticized me my whole life, and that’s why I’m the way I am.
+ - A lot of emotional stress that people go through, some people figure out a way to handle it. They have a strong enough support system to keep going and keep moving forward. And some people, they feel like they don’t have that outlet.
+ - God may not be there when you want him but he is always on time.
+ - I feel now I can take my talent through the roof.
+ - But I know in my heart what I’m doing is right.
+ - I knew I was going to have success here.
+ - I’m not gonna waste your time, so I wouldn’t expect you to waste my time.
+ - I’ve never really thought of myself as having an ego. I’ve always found myself as having a lot of confidence. I know I have a lot of great ability. I know what I bring to the table.
+ - A lot of people think I’m stuck up. Pretty much that I’m arrogant. I only do that when I’m on the field.
+ - The only people that really matter are the people that are in my inner circle.
+ - People forget that I’m a human being, just because I play a sport that everybody loves. We’re human. We’re not invincible. We share the same feelings and emotions that people on the outside feel. I don’t think people really understand that.
+ - When I was a kid, I’d watch pro football on TV and I’d see someone make a play and I’d say, ‘I wish that could be me.’ But then I’d have to wonder, ‘Could I make that big play?’
+ - Ill watch the highlights every now and then but, as far as watching the game, I feel like I am the game.
+ - Don’t say I don’t get along with my teammates. I just don’t get along with some of the guys on the team.
+ - I don’t see outside of me.
+ - Everybody is not going to be squeaky clean.
+ - Terrell has 25 million reasons why he should be alive.
+ - I feel like it was a little disrespectful but you know what I feel like, I have been successful, blessed and I keep my faith in God, man, and I just keep it moving.
+ - Life and death. At some point we’re gonna leave this world. Do I know when? Absolutely not.
+ - You never know what a person is going through, regardless of how much money they make or however great a life you think they’re living.
+ - Right is right and wrong is wrong.
+ - I didn’t know who my daddy was until I was 10 or 12. Surprising as it may seem, he was living right across the street.
+ - I’ve always been pretty much a quiet person. When I was little, I got picked on a lot. After I went through all that, I pretty much kept to myself.
+ - When I go out there and play I just play.
+ - I think at some point during the course of the game, I will have an impact – whether it’s blocking or whether it’s catching the football.
+ - Off the field I’m down to earth. I’m a very caring person. I’m a very giving person.
+ - When I step on the field, you know what you gonna get.
+ - I just feel like I know what I bring to the game. Very confident in what I do.
+ - But if you look at the big scheme of things, I have never failed, regardless of anything I have had to go through: from Dallas, to the sharpie, to me getting involved with a debate with my coach, a lot of people look to see my fail.
+ - I just feel like with God you can’t be defeated.
+ - This is Gods world this is not the medias world.
+ - I think there is something bigger in store for me.
+ - I’m content where I am. I know I am going to be a Cowboy for life.
+ - I think people change, but the media, they never allowed me to change. They never allowed me to be a better person.
+ - I know my body better than anything, better than anybody.
+ - You have not seen my face go across the screen for any off the field problems, period.
+ - I never had any run in with the law.
+ - A lot of people have to deal with the feeling that their worlds are caving in.
+ - I don’t have to play for the Eagles.
+ - Say I had been with a guy like Tom Brady, Peyton Manning or Drew Brees all of my career. Are you kidding me?
+ - Once I step on the field, by the things I do in practice and the way I practice, you can’t tell that I don’t love the game. But I just know it deep down.
+ - I have donated money to the kids overseas, the open hand project and the homeless.
+ - You should know how to do your job.
+ - I don’t want that to be the headline.
+ - I am the Terrell off the field who is laid back and this is me.
+ - I feel like football players are overworked and underpaid compared to any other sports.
+ - It doesn’t matter what any of my teammates have said about me.
+ - There has to be a beginning somewhere and my thing is that I am going to give it all I got.
+ - I’m human; that’s what people don’t realize.
+ - All I can tell everybody is, I’m the same guy, just on a different team.
+ - You have a white guy as an announcer and sportscaster. Me, I’m black. I do it and I’ve already done some stuff in the past. We’re more expressive than the white guys. You look at the skill players. We’re the ones that get into the end zone. We get in the end zone more than they do.
+ - Growing up as a little kid, I wasn’t always this size. I got picked on a lot.
+ - That goes with the saying that you call on God a lot of times and you pray for things and it may not happen at that moment.
+ - It doesnt matter what people say about me, I weather the storm.
+ - I feel like I know it is from my heart and God knows it is for a good cause, it is not necessary to be made public.
+ - I’ve only been on one vacation ever. I just went to Acapulco before training camp.
+ - A lot of people expect to see the same type of character that they see on the field off the field, and that throws them for a loop.
+ - What you see on the field is my job.
+ - Like I have said all along, I have the best doctor of all, and that is God. You can’t argue with a guy like that.
+ - I may be a public figure, but really, I’m just like a guy who could be in your family and have some difficult things happen to him.
+ - I wrote the book not to prove people wrong but just to get the insight on who I am as a person.
+ - Like I always said, if I’m one of the top players in the game, pay me like I’m one of the top players in the game.
+ - I feel like with me being a big part of any offense, then the numbers are going to come.
+ - I may not say it all the time or I may not pray as much as I need to, but I am not forgetting where I came from and how I got to be where I am today.
+ - I have an ability that I’ve already honed in on to get better.
+ - I would not have gone to Philly if I really did not have my free agency right, if I did not have a case, period.
+ - I never even watched football growing up. I just play the game.
+ - Everything that I have done that the media sees as an obstacle, I have over come it.
+ - I left a lot – a lot – of touchdowns on the field throughout the last two or three years.
+ - I am sure I lost out on a few million or more in money but I am happy with the team that I am on and the quarterback that I am with.
+ - As you get to know me, you kind of figure me out, that I’m not as probably as bad of a guy that I’ve been reported to be. I’m not that jerk.
+ - I feel like I’m a basketball player in a football uniform.
+ - I had my family before I played football.
+ - I know the microphones and cameras are on me. They’re looking at my gestures and taking it and running with it because of things that have happened in the past. It’s very unfair.
+ - I wanted a NBA basketball gym at my house and that’s what I worked hard for and I was able to achieve that.
+ - This is a dirty business, that is why I go out and play with my heart. I feel like football players are overworked and underpaid compared to any other sports. This is like a nine to five. No guaranteed contracts, and that is the worst thing about it.
+
+86 quotes

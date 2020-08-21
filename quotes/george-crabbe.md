@@ -1,0 +1,61 @@
+ - Let’s learn to live, for we must die alone.
+ - In idle wishes, fools supinely stay. Be there a will and wisdom finds a way.
+ - The game is never lost till won.
+ - Life’s bloomy flush was lost.
+ - A sly old fish, too cunning for the hook.
+ - Oh, rather give me commentators plain, Who with no deep researches vex the brain; Who from the dark and doubtful love to run, And hold their glimmering tapers to the sun.
+ - I paint the cot, As truth will paint it, and as bards will not.
+ - Deceivers are the most dangerous members of society. They trifle with the best affections of our nature, and violate the most sacred obligations.
+ - Fashion, though Folly’s child, and guide of fools, Rules e’en the wisest, and in learning rules.
+ - With eye upraised his master’s look to scan, The joy, the solace, and the aid of man: The rich man’s guardian and the poor man’s friend, The only creature faithful to the end.
+ - Old Peter Grimes made fishing his employ; His wife he cabined with him and his boy, And seemed that life laborious to enjoy.
+ - Life is not measured by the time we live.
+ - I grant indeed that fields and flocks have charms, For him that gazes or for him that farms.
+ - Anger makes us strong, Blind and impatient, And it leads us wrong; The strength is quickly lost; We feel the error long.
+ - Habit with him was all the test of truth; It must be right: I’ve done it from my youth.
+ - Through the sharp air a flaky torrent flies, Mocks the slow sight, and hides the gloomy skies; The fleecy clouds their chilly bosoms bare, And shed their substance on the floating air.
+ - A great lie is like a great fish on dry land; it may fret and fling and make a frightful bother, but it cannot hurt you. You have only to keep still, and it will die of itself.
+ - From powerful causes spring the empiric’s gains, Man’s love of life, his weakness, and his pains; These first induce him the vile trash to try, Then lend his name, that other men may buy.
+ - To the house of a friend if you’re pleased to retire, You must all things admit, you must all things admire; You must pay with observance the price of your treat, You must eat what is praised, and must praise what you eat.
+ - Arrogance is the act of the great; presumption that of the little.
+ - Oh how the passions, insolent and strong, Bear our weak minds their rapid course along; Make us the madness of their will obey; Then die and leave us to our griefs as prey!
+ - Some hearts are hidden, some have not a heart.
+ - Secrets with girls, like guns with boys, are never valued till they make a noise.
+ - The wife was pretty, trifling, childish, weak; She could not think, but would not cease to speak.
+ - Good is done by degrees.
+ - Fears of sinning let in thoughts of sin.
+ - We cannot heal the throbbing heart till we discern the wounds within.
+ - An infatuated man is not only foolish, but wild.
+ - Void of all honor, avaricious, rash, The daring tribe compound their boasted trash Tincture of syrup, lotion, drop, or pill; All tempt the sick to trust the lying bill.
+ - Dreams are like portraits; and we find they please because they are confessed resemblances.
+ - Oh, Conscience! Conscience! man’s most faithful friend, Him canst thou comfort, ease, relieve, defend; But if he will thy friendly checks forego, Thou art, oh! woe for me, his deadliest foe!
+ - The coward never on himself relies, But to an equal for assistance flies.
+ - Against her foes Religion well defends Her sacred truths, but often fears her friends.
+ - Learning is better worth than houses or land.
+ - Feed the musician, and he’s out of tune.
+ - Men of many words sometimes argue for the sake of talking; men of ready tongues frequently dispute for the sake of victory; men in public life often debate for the sake of opposing the ruling party, or from any other motive than the love of truth.
+ - With awe, around these silent walks I tread; These are the lasting mansions of the dead.
+ - Better to love amiss than nothing to have loved.
+ - Whatever amuses, serves to kill time, to lull the faculties, and to banish reflection. Whatever entertains, usually awakens the understanding or gratifies the fancy. Whatever diverts, is lively in its nature, and sometimes tumultuous in its effects.
+ - There is no mind so weak and powerless as not to have its inclinations, and none so guarded as to be without its prepossessions.
+ - To show the world what long experience gains, requires not courage, though it calls for pains; but at life’s outset to inform mankind is a bold effort of a valiant mind.
+ - In general satire, every man perceives A slight attack, yet neither fears nor grieves.
+ - Hence, in these times, untouch’d the pages lie, And slumber out their immortality.
+ - Our farmers round, well pleased with constant gain, like other farmers, flourish and complain.
+ - Lo! the poor toper whose untutored sense, Sees bliss in ale, and can with wine dispense; Whose head proud fancy never taught to steer, Beyond the muddy ecstasies of beer.
+ - A master passion is the love of news.
+ - Impertinence will intermeddle in things in which it has no concern, showing a want of breeding, or, more commonly, a spirit of sheer impudence.
+ - And took for truth the test of ridicule.
+ - Virtues neglected then, adored become, And graces slighted, blossom on the tomb.
+ - Temp’rate in every place – abroad, at home, Thence will applause, and hence will profit come; And health from either – he in time prepares For sickness, age, and their attendant cares.
+ - He tried the luxury of doing good.
+ - Experience finds few of the scenes that lively hope designs.
+ - Who calls a lawyer rogue, may find, too lateUpon one of these depends his whole estate.
+ - But monument themselves memorials need.
+ - Her air, her manners, all who saw admir’d; Courteous though coy, and gentle though retir’d; The joy of youth and health her eyes display’d, And ease of heart her every look convey’d.
+ - Books cannot always please, however good; Minds are not ever craving for their food.
+ - All green was anished sae of pine and yew, That still displayed their melancholy hue; Sae the green holly with its berries red, And the green moss that o’er the grael spread.
+ - Ability comprehends the power of doing in general, without specifying the quality or degree.
+ - Who often reads, will sometimes wish to write.
+
+59 quotes

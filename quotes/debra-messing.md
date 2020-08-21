@@ -1,0 +1,47 @@
+ - My parents always made education and school the number one priority. They believed that an education is the best gift you can give to your child.
+ - Do what makes you happy. And when it doesn’t make you happy anymore, make a change – without fear.
+ - Honesty is probably the sexiest thing a man can give to a woman.
+ - I love London. I love England. We were out in the countryside and I had the time of my life.
+ - Repeat after me: ‘I am doing the best that I can.’
+ - It’s essentially encouraging parents, teachers, and caretakers to remind children how special they are on a regular basis.
+ - It’s the job that I take most seriously in my life and I think it’s the hardest job.
+ - We have so many different options now and ways to communicate digitally. But I don’t think anything is more meaningful or powerful than a hand-written letter.
+ - When you’re passionate about something, you want it to be all it can be. But in the endgame of life, I fundamentally believe the key to happiness is letting go of that idea of perfection.
+ - I’m a little commitment phobic, in that I’ve always been someone who likes to take things one year at a time because as we all know, a year can change everything in your life.
+ - Court TV. I can’t stop watching it. I am absolutely obsessed! If I’m not reading a book or spending time with my husband, my friends or my dog, I am watching Court TV.
+ - I’m a mom, and I’m always looking for ways to encourage, support, and embolden my son to help make him believe in himself.
+ - As scary as change can be and as much as I might resist it, there’s always some unkown gift that comes out of it. I really never thought you could begin again. You can.
+ - I think that there’s etiquette for every means of communication. People are very judgmental and have strict rules. I don’t think you should end a relationship with a Post-it note. I know some people who get offended when an e-mail is sent as a “thank you” note instead of a hand-written card.
+ - That whole world of musical theater was my first love. It’s where I wanted to be when I was three years old.
+ - It’s always been really important for me to try to maintain a balanced life, professional and personal, and this was absolutely something that my husband and I had hoped for.
+ - Yes, women, and men, have to be open to love, because if we’re not open then there’s no way for us to find happiness. But you can be open to it and still have no control over when it’s going to happen.
+ - You can’t control chemistry. You can’t control, you know, just similar aesthetics creatively. And, you know, David and I didn’t know each other prior to this. And we get along famously. So it’s – I feel very lucky.
+ - You just hope that you will get the opportunity to do what you love and pay your bills, and that is being a success as an actor.
+ - You know, making fun of the excessiveness and the priorities that are most stilted out here which does make it difficult to have a very sort of grounded, normal life because there’s really nothing normal about Hollywood.
+ - So my son is very curious, which is fantastic. He loves school. So I don’t have to encourage him too much, but I love to do it because I know it’s meaningful and words are powerful.
+ - I’m naturally lean and I’m constantly walking.
+ - I think for me it’s just a matter of staying keyed into my lifelong friends from New York and family. And, you know, I’m pretty solitary. I’m a homebody. So I don’t get out much to get into trouble.
+ - Oh it’s fantastic because I get to whip people like David into shape and tell them to go get me coffee. Kidding – okay.
+ - I’m fascinated by diamonds. When I put diamonds on, my hands start to shake.
+ - Whatever consequences come as a result, in terms of work, I’m fully prepared to embrace because it’s a priority to me to be a mother.
+ - But I’ve become completely obsessed with taking photos on my iPhone. I have like 400 apps.
+ - I was always singing and dancing for my mother when I wasn’t glued to the television watching I Love Lucy or the Carol Burnett Show.
+ - My biggest fantasy love affair was with Dustin Hoffman. It’s so bizarre. Also Anthony Hopkins.
+ - And that’s just a terrifying and terrifying thing. And all the photographers and, you know, it’s a different, unnatural setting that no one can prepare you for. But, you know, I just try and have as much fun as I can for as long as it lasts because I know it’s a privilege.
+ - Okay well – no that is a very real thing seven-year-olds asking for BlackBerrys and cell phones and things like that. And that’s one of the things I love most about the show is the social satire.
+ - Creatively I just enjoy challenging myself in different genres.
+ - I know there must be something I should explore about that with my therapist.
+ - It was hard to find somebody who could juggle both. And so we were really just focusing more on that. We figured, okay, if we’re lucky enough to find somebody then, you know, the audience will get over it in one episode.
+ - Everything has to do with murder.
+ - I think Hollywood has always, you know, there’s always been glamour associated to it. And especially in the last ten years there has been a growing sort of obsession with celebrity life and celebrity culture.
+ - I would absolutely be a litigator. I watch Court TV every day.
+ - I don’t think it’s possible to have a wedding without it being stressful!
+ - It’s a miracle to be an actor and to know that you have a job to go to a year from now is a rare thing, so I think peace of mind and financial stability come with that. Hopefully I’m a little wiser and have a little more perspective in my life than I did then.
+ - And so out of the blue the call did come and said, you know, “Would you be – would you consider turning this now into a series?” And so obviously that was a shock. And all the conversations began. And, you know, and now we’re here. Now we’re finishing up our last episode right now.
+ - Write hand-written notes daily and commit to supporting the growth and self-esteem of children, because it makes such a big difference in terms of their capacity for learning.
+ - I was such a late bloomer when it comes to fashion.
+ - I don’t exercise – that’s something I struggle with.
+ - And because I have a four-year-old son I have become a great baseball pitcher. And, you know, juggler.
+ - If I have a pocket, then I’ll have lip balm, my keys, and $10 cash.
+
+45 quotes

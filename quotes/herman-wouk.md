@@ -1,0 +1,31 @@
+ - When in danger or in doubt, run in circles, scream and shout.
+ - This life is slow suicide, unless you read.
+ - Discount my partiality, but my report is that so far The Winds of War is looking good.
+ - The Talmud: Heart’s Blood of the Jewish Faith...
+ - Income tax returns are the most imaginative fiction being written today.
+ - The Navy is a master plan designed by geniuses for execution by idiots. If you’re not an idiot, but find yourself in the Navy, you can only operate well by pretending to be one.
+ - Some hours weigh against a whole lifetime.
+ - Peace, if it ever exists, will not be based on the fear of war, but on the love of peace. It will not be the abstaining from an act, but the coming of a state of mind.
+ - We are in the black theater of nonexistence. In an eye blink the curtain is up, the stage ablaze, for the vast drama of ourselves.
+ - War is a business in which a lot of people watch a few people get killed and are damn glad it wasn’t them.
+ - Write a page a day. It will add up.
+ - I regard the writing of humor as a supreme artistic challenge.
+ - Illusion is an anodyne, bred by the gap between wish and reality.
+ - The Talmud is to this day the circulating heart’s blood of the Jewish religion. Whatever laws, customs or ceremonies we observe-whether we are orthodox, conservative, reform or merely spasmodic sentimentalists-we follow the Talmud. It is our common Law.
+ - The American people are not cowardly. But, living in prosperous isolation, they have been the spoiled children of modern history.
+ - The President has a quick and able mind, though not everybody gives him that, not by a long shot.
+ - Every hour spent on the Caine was a great hour in all our lives-if you don’t think so now you will later on, more and more.
+ - My two sons speak Hebrew, and are familiar with the scriptures and with rabbinic literature. This is the way we live.
+ - The only true non-conformists are in the asylums; the only radically free spirits are in the death house awaiting the chair. We live by patterns.
+ - Strange, isn’t it, that warfare has come down to fencing with complicated toys that only a few seedy scholars can make or understand.
+ - About the nicest thing God ever invented was alcohol. He’s proud of it, too. The Bible’s full of kind remarks about booze.
+ - I felt there’s a wealth in Jewish tradition, a great inheritance. I’d be a jerk not to take advantage of it.
+ - A writer is nothing but a gray dirt-covered root. The works he sends up into the sunlight are his fruits, and only those are worthy of attention.
+ - A leader can’t dash ahead around the bend out of sight.
+ - I think it’s a bit like coming to the end of a book. The plot’s in its thickest, all the characters are in a mess, but you can see that there aren’t fifty pages left, and you know that the finish can’t be far off.
+ - I try to write a certain amount each day, five days a week. A rule sometimes broken is better than no rule.
+ - This is an excellent martini – sort of tastes like it isn’t there at all, just a cold cloud.
+ - Some people think that all the equipment you need to discuss religion is a mouth.
+ - I learned about machinery, I learned how men behaved under pressure, and I learned about Americans.
+
+29 quotes

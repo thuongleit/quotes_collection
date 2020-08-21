@@ -1,0 +1,21 @@
+ - Girls can do anything, for sure. Even running in the mud in heels.
+ - I have nothing nice to say about Chris Pratt, of course. He’s probably the greatest hero of our time in real life, honestly.
+ - I’m a huge fan of the animated film ‘The Land Before Time’ and that was one of my favourite animated films when I was growing up.
+ - That is one of the hardest things I have ever had to do in my life, running through the jungle in heels. Because also, mud was often times three feet deep, and that was full on for sure.
+ - My dad’s more three-dimensional than Opie Taylor or Richie Cunningham. He even has a temper! He’s a real person. But some people are disappointed by that.
+ - Right now as an artist, what I want to do is be a part of works that are unignorable. I couldn’t be less interested in how people receive it, honestly. As long as it’s unignorable.
+ - I struggle immensely with celebrities of all kinds. I get clammy hands and turn a little purple.
+ - I think my favourite memory from filming ‘Jurassic World’ would just be a compilation of me running through the jungle in heels, and just how absurd that really was. That that actually happened.
+ - I definitely managed to do different kinds of things. My focus is usually who the director is, because at the end of the day the director is the storyteller, what the movie is all about. I don’t want to participate in something that I don’t think is constructive storytelling.
+ - I feel like I almost didn’t grow up in the business, because my parents worked so hard at sheltering us from that. I was raised in Connecticut. And I honestly wasn’t aware that my dad was a celebrity until I moved to Los Angeles a year ago.
+ - I’ve always had the perspective that roles come into my life when I need them most and sort of teach me lessons. The same can be true of films, films are released into society to aid in a lesson, inspire people, comfort people.
+ - I have an association that director means total authority. Director means they will never let you down. Director means just trust them and fulfill their vision, and know that the story will be told in its best incarnation.
+ - I’ve learned to think in terms of having a long career. Actors can have very long careers that last until the day we die, but there will be moments when you’ll feel like you’re a failure or when you’re disappointed in yourself.
+ - It was such a paradox for me that the only thing I know how to do is act, but that the first thing I abandoned while writing were the characters.
+ - I’ve always felt really lucky to get to work with really great filmmakers. For me, the whole objective is just to hopefully be of service to what they want.
+ - When I work on a film, I always tend to relate to the crew.
+ - For me, whether or not a film has some kind of massive budget or is an independent film, or however it’s getting made, it’s always about the filmmaker and, hopefully, being a vessel for the filmmaker’s vision. That’s what really attracts me to projects.
+ - The greatest sci-fis, in my mind, are two things: They’re what-ifs – what if this happened, and you get to see it – but they’re also these philosophical cautionary tales. They deal with the underlying themes beneath the what-if.
+ - But, working with directors whose history is in performance, I feel like there’s a different kind of focus, as opposed to directors who are more prone to being really technically proficient or visual. I feel like there are two schools of both, and a director needs to have both.
+
+19 quotes

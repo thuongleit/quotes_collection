@@ -1,0 +1,24 @@
+ - Grab life by the balls and squeeze.
+ - Happiness is a road traveled, not a destination.
+ - I think that’s the most important thing you can do to be a real person – is to be honest with yourself.
+ - We work super hard to not have to work.
+ - Be yourself. Unless you have the option to be Batman, then always be Batman.
+ - Music’s awesome, it’s the closest thing we have to magic.
+ - If you start planning too far ahead, the next thing you know you forget you’re living today.
+ - Sometimes you need coffee, and sometimes you need a Bloody Mary.
+ - When I listen to songs, I can smell a rat. I like songs that speak to me with some deeper truth.
+ - All my religious beliefs are based on Star Wars.
+ - A turtle does come in it’s own bowl.
+ - I always said that the world is a better place because of Joey Ramone.
+ - At the end of the day, if you follow the music, it’ll take you on a really, really great journey.
+ - I started playing bass for the same reason everyone else does – I’m a lousy guitarist.
+ - Listen to the silence. Listen to your life. Be present, not just think about what’s going on next week, next month.
+ - I have a daughter and she’s the greatest thing that ever happened to me. She gives me a good excuse to watch cartoons.
+ - Dogs are gonna take over the world. It’s a known fact for those who believe it, kinda like the Bible.
+ - I’m an optimistic agnostic. I think the second we die, within a matter of seconds, everybody else arrives, and that’s the party, and you live your hell on earth.
+ - I’m an optimist, so I believe in some sort of life after death; I don’t know what kind.
+ - It’s no use analyzing your life the whole time. Those analyses won’t help you when you’re dead.
+ - There isn’t an audience in the world that Billie Joe can’t command.
+ - It makes me extremely proud to make punk rock the biggest music in the world right now.
+
+22 quotes

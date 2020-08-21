@@ -1,0 +1,75 @@
+ - Live your life to the fullest.
+ - You can’t achieve anything in life without a small amount of sacrifice.
+ - In this life, to earn your place you have to fight for it.
+ - Walking gets too boring, when you learn how to fly.
+ - Nationalism is cured by traveling.
+ - You’re a song written by the hands of God.
+ - There’s no better makeup than self-confidence.
+ - I’m a perfectionist in recovery. I’m trying to deal with that monster inside of me that wants to do everything right. Or better than right.
+ - I love reading about history. Sometimes, I feel I was born in the wrong era. There was more creativity in the air when people were still discovering new worlds.
+ - I live for freedom, and freedom is a lie.
+ - I’m not a trained dancer, but I grew up in a culture that revolves around dance.
+ - My hips don’t lie and I don’t lie either!
+ - We have to promote human solidarity, avoid indifference, and play a part with society in the solution of the problem of violence...
+ - I thank God that I’m a product of my parents, that they infected me with their intelligence and energy for life, with their thirst for knowledge and their love. I’m grateful that I know where I come from.
+ - It’s incredibly liberating to spend an hour talking to someone and not caring about what you sound like. It’s about understanding myself. Sometimes I’ll speak to my therapist for an hour a day. It’s become part of my routine.
+ - My brain, I believe, is the most beautiful part of my body.
+ - Our leaders are lacking love, and love is lacking leaders.
+ - Sometimes, I ask myself how any other singer could substitute the inspiration of god in their songs.
+ - If I could, I’d live in the nude, like Eve in paradise.
+ - A good fragrance should have a certain personality that makes people identify the scent with you.
+ - You want to be skinny and have a good body? You have to work out every day and say no to certain foods.
+ - I can be like a lioness when defending my people.
+ - I admire a person who, for the love of art, is able to take off their clothes in front of a camera. But I’m not capable, I’m too cowardly for that.
+ - My dad is a writer, and to see him always in front of a typewriter gave me the inspiration to write. He was my idol, my hero. I wanted to be just like him.
+ - I pefer an ugly truth to a pretty lie. If someone is telling me the truth that is when I will give my heart.
+ - I think a fragrance is all about sensations and imagery, and can evoke visions, feelings and thoughts.
+ - I’m like a mosquito, I love humidity. I don’t sweat.
+ - Fame isolates people from reality. That happens to many artists, and I don’t want it to happen to me.
+ - I consider myself a laborer, building my career brick over brick under the sun.
+ - I admire Madonna because she always did whatever she felt like doing. She went through some controversial periods when people rejected her, but she kept on reinventing herself.
+ - It’s not easy to work with me, I recognize that. It’s not easy if those people aren’t as perfectionistic as I am.
+ - There is no other investment that has the kind of social multiplier effect that early education has. It is an incredible thing to nurture and watch grow and spread.
+ - We know that many boys and girls leave school because of poverty, because they have to work. However, there are an important number of children who abandon their studies because of the abuses they’re subject to by teachers and their own parents.
+ - People think I like to expose my body. But I don’t. It’s just because the dance moves require it.
+ - The worst mistake of a woman is to go to the kitchen, because then she never gets out of there.
+ - I just want to grow old with a man who takes care of me, and I want to eventually have kids and want them to be good children to me. Just want to be treated nice and have respect.
+ - If you can prove the existence of God, it can only be proven through love.
+ - I have such a respect and fascination for dance. I can be light as air or stay grounded. Dance is really another universe.
+ - Scars remind me of just how far that I’ve come.
+ - I started the Pies Descalzos foundation in Colombia when I was 18, and since then I have been very involved in the crusade for education.
+ - The music teacher thought I sang like a goat. It was kind of devastating. A few months after that, I participated in a music contest and won. I took my little trophy to school and rubbed it in his nose. I said to him, “What do you say now?”
+ - I am trying to make my accent so it won’t bother anyone, but I am not going to drive myself crazy trying to pretend I am an American girl when I am from Colombia.
+ - In the full light of day, I don’t want to think about the sunset.
+ - I always believed that women have rights and that there are some women that are intelligent enough to claim those rights. There are some others that are stupid enough not to.
+ - Because of you, I’m running out of reasons to cry.
+ - My team and I have reunited two elements that coexist with difficulty: respect and affection, because when they love you they don’t respect you and when they respect you they don’t love you.
+ - I want some day to be able to love with the same intensity and unselfishness that parents love their children with.
+ - I know what it’s like to feel that fear and the need of affirmation and appreciation. To build confidence in yourself is the toughest thing.
+ - I always had the intuition, even as a little child, that I was called for a big project.
+ - I’m Colombian and nothing will change that.
+ - My man prefers meat over the bone.
+ - You collect impressions from people, from life, from your own daydreams.
+ - Everyone can know what is in my heart because I find it hard to conceal myself.
+ - Writing songs has a therapeutic effect, and it either kills off love or wins the heart of the lover.
+ - For several years I worried a lot about protecting an image, but today I have understood that the image cannot be preconceived.
+ - I think that we see war as a virtual thing and we even get to believe that bombs fall on top of cardboard cutouts and stuff like that. They don’t. They kill real people, real children, real mothers and millions of innocent people.
+ - It doesn’t bother me to talk about my private life, it doesn’t bother me to talk about anything. My life is like a glass of water, transparent.
+ - Breastfeeding has been one of the best experiences of my life. I love it! I can’t stop! I think I’m going to breastfeed him until he goes to college! I’m hooked!
+ - I’m more afraid of marriage than death.
+ - I can’t wait for the time when curves and a little belly fat will be sexy again!
+ - I think my dad is the only Arabic descendent who is an unsuccessful businessman.
+ - I never went to the gym before in my life. But, at 32, I notice that my body responds negatively to bad food, so I must make double the effort.
+ - I’m lucky to have family around me. Otherwise, I’ll be taking the risk of falling in love with myself.
+ - I’m a firm believer that education is the most efficient tool we have to make people aware and make our children aware, and to protect them from the scourge of the century, which is AIDS.
+ - I was unaware of the dispute in Brooklyn. I would never knowingly wear any clothes or support any company who produced clothing with alleged wage and labor violations.
+ - Sensual is everything that refers to the delight of the senses. And that’s what artists do, is stimulate the senses in any possible way.
+ - I feel a real sense of duty to use the voice and the platform I’ve been afforded by my fame to speak out for those whose voices don’t get a chance to be heard.
+ - My songs are the reflection of how I think and how I feel in that moment. But I’m conscious of the fact that artists have a responsibility before the masses and they have to take care with their words.
+ - I don’t go out without make up. I’m a woman, you know.
+ - In 2006 I was asked to sing at the World Cup in Germany, and in 2010 I was fortunate enough to be asked again.
+ - I apply the same amount of dedication to being a mom as I do to my music.
+ - They just want to continue playing their little game of power. And I feel that us people have the responsibility and also the obligation to demand to our leaders to give us the pacifist solutions. To give us a world in peace.
+ - Writing in English was a major challenge. I didn’t want other songwriters to write for me. I wanted to preserve the spirit of my songs in Spanish. I am the same Shakira in English as I am in Spanish.
+
+73 quotes

@@ -1,0 +1,33 @@
+ - Higher than the beasts, lower than the angels, stuck in our idiot Eden.
+ - Why can’t people have what they want? The things were all there to content everybody; yet everybody has the wrong thing.
+ - We are all so afraid, we are all so alone, we all so need from the outside the assurance of our own worthiness to exist.
+ - The war had made a man of him! It had coarsened him and hardened him. There was no other way to look at it. It had made him reach a point at which he would no longer stand unbearable things.
+ - It was an odd friendship, but the oddnesses of friendships are a frequent guarantee of their lasting texture.
+ - Open the book to page ninety-nine and read, and the quality of the whole will be revealed to you.
+ - Yes, a war is inevitable. Firstly, there’s you fellows who can’t be trusted. And then there’s the multitude who mean to have bathrooms and white enamel. Millions of them; all over the world. Not merely here. And there aren’t enough bathrooms and white enamel in the world to go round.
+ - It is not merely that people must die and people must suffer, if not here, then there. But what is dreadful is that the world goes on and people go on being stupidly cruel – in the old ways and all the time.
+ - And it was a most remarkable, a most moving glance, as if for a moment a lighthouse had looked at me.
+ - In every man there are two minds that work side by side, the one checking the other; thus emotion stands against reason, intellect corrects passion and first impressions act a little, but very little, before quick reflection.
+ - Ford’s last Fifth Queen novel is amazing. The whole cycle is a noble conception.
+ - Only two classes of books are of universal appeal. The very best and the very worst.
+ - What the artist wishes to do – as far as you are concerned – is to take you out of yourself. As far as he is concerned, he wishes to express himself.
+ - If for nine years I have possessed a goodly apple that is rotten at the core and discover its rottenness only in nine years and six months less four days, isn’t it true to say that for nine years I possessed a goodly apple?
+ - But responsibility hardens the heart. It must.
+ - He wouldn’t write a letter because he couldn’t without beginning it ‘Dear Sylvia’ and ending it ‘Yours sincerely’ or ‘truly’ or ‘affectionately.’ He’s that sort of precise imbecile. I tell you he’s so formal he can’t do without all the conventions there are and so truthful he can’t use half of them.
+ - I know nothing – nothing in the world – of the hearts of men. I only know that I am alone – horribly alone.
+ - It’s the quality of harmony, sir. The quality of being in harmony with you own soul. God having given you your own soul you are then in harmony with Heaven.
+ - Pride and reserve are not the only things in life; perhaps they are not even the best things. But if they happen to be your particular virtues you will go all to pieces if you let them go.
+ - If you’re going to have a character appear in a story long enough to sell a newspaper, he’d better be real enough that you can smell his breath.
+ - The world is full of places to which I want to return.
+ - The instances of honesty that one comes across in this world are just as amazing as the instances of dishonesty. After forty-five years of mixing with one’s kind, one ought to have acquired the habit of being able to know something about one’s fellow beings. But one doesn’t.
+ - Damn it all, it’s the first duty of a soldier – it’s the first duty of all Englishmen – to be able to tell a good lie in answer to a charge.
+ - Six months ago I had never been to England, and, certainly, I had never sounded the depths of an English heart. I had known the shallows.
+ - The object of the novelist is to keep the reader entirely oblivious of the fact that the author exists – even of the fact he is reading a book.
+ - The first thing you have to consider when writing a novel is your story, and then your story – and then your story!
+ - He added that a Frenchman in the train had given him a great sandwich that so stank of garlic that he had been inclined to throw it at the fellow’s head.
+ - They were simple, earnest people, those early Victorians, and had not yet learnt the trick of avoiding disturbing thoughts and sights.
+ - He thought he suddenly understood. For the Lincon-shire sergeant-major the word Peace meant that a man could stand up on a hill. For him it meant someone to talk to.
+ - New York is large, glamorous, easy-going, kindly and incurious, but above all it is a crucible – because it is large enough to be incurious.
+ - I couldn’t regard myself as personally repulsive. No man can, or, if he ever comes to do so, that is the end of him.
+
+31 quotes

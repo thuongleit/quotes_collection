@@ -1,0 +1,24 @@
+ - Never tell a young person that anything cannot be done. God may have been waiting centuries for someone ignorant enough of the impossible to do that very thing.
+ - I have two doctors, my left leg and my right.
+ - The best job goes to the person who can get it done without passing the buck or coming back with excuses.
+ - A little man often cast a long shadow.
+ - Every true history must force us to remember that the past was once as real as the present and as uncertain as the future.
+ - And how fascinating history is – the long, variegated pageant of man’s still continuing evolution of this strange planet, so much the most interesting of all the myriads of spinners through space.
+ - After a day’s walk everything has twice its usual value.
+ - Before modern times there was Walking, but not the perfection of Walking, because there was no tea.
+ - We are literally children of the earth, and removed from her our spirits wither or run to various forms of insanity. Unless we can refresh ourselves at least by intermittent contact with nature, we grow awry.
+ - History is the open Bible: we historians are not priests to expound it infallibly: our function is to teach people to read it and to reflect upon it for themselves.
+ - Since history has no properly scientific value, its only purpose is educative. And if historians neglect to educate the public, if they fail to interest it intelligently in the past, then all their historical learning is valueless except in so far as it educates themselves.
+ - Many who burnt heretics in the ordinary way of their business were otherwise excellent people.
+ - One half who graduate from college never read another book.
+ - Social history might be defined negatively as the history of a people with the politics left out.
+ - I never knew a man go for an honest day’s walk for whatever distance, great or small, and not have his reward in the repossession of his soul.
+ - There is no orthodoxy in walking. It is a land of many paths and no-paths, where every one goes his own and is right.
+ - If one could make alive again for other people some cobwebbed skein of old dead intrigues and breathe breath and character into dead names and stiff portraits. That is history to me!
+ - If the French noblesse had been capable of playing cricket with their peasants, their chateaux would never have been burnt.
+ - Village cricket spread fast through the land.
+ - The best historian is he who combines knowledge of the evidence with the largest intellect, the warmest human sympathy and the highest imaginative powers.
+ - Socrates gave no diplomas or degrees, and would have subjected any disciple who demanded one to a disconcerting catechism on the nature of true knowledge.
+ - We are the children of the earth and removed from her our spirit withers.
+
+22 quotes

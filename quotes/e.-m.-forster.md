@@ -1,0 +1,311 @@
+ - English literature is a flying fish.
+ - How do I know what I think until I see what I say?
+ - One person with passion is better than forty people merely interested.
+ - Live in fragments no longer. Only connect...
+ - Only connect!
+ - Only connect the prose and the passion, and both will be exalted, and human love will be seen at its highest. Live in fragments no longer.
+ - The four characteristics of humanism are curiosity, a free mind, belief in good taste, and belief in the human race.
+ - We cast a shadow on something wherever we stand, and it is no good moving from place to place to save things; because the shadow always follows. Choose a place where you won’t do harm – yes, choose a place where you won’t do very much harm, and stand in it for all you are worth, facing the sunshine.
+ - The main facts in human life are five: birth, food, sleep, love and death.
+ - You confuse what’s important with what’s impressive.
+ - The king died and then the queen died is a story. The king died, and then queen died of grief is a plot.
+ - If I had to choose between betraying my country and betraying my friend, I hope I should have the guts to betray my country.
+ - Excuse my mistakes, realize my limitations. Life is not easy as we know it on the earth.
+ - It isn’t possible to love and part. You will wish that it was. You can transmute love, ignore it, muddle it, but you can never pull it out of you. I know by experience that the poets are right: love is eternal.
+ - Let yourself go. Pull out from the depths those thoughts that you do not understand, and spread them out in the sunlight and know the meaning of them.
+ - Spoon feeding in the long run teaches us nothing but the shape of the spoon.
+ - When you come back you will not be you. And I may not be I.
+ - By the side of the everlasting Why there is a Yes – a transitory Yes if you like, but a Yes.
+ - Death destroys a man, but the idea of death saves him.
+ - Either life entails courage, or it ceases to be life.
+ - You want to love everyone equally, and that’s worse than impossible – it’s wrong.
+ - History develops, art stands still.
+ - Lord I disbelieve – help thou my unbelief.
+ - Do you remember Italy?
+ - A work of art is never finished. It is merely abandoned.
+ - They had nothing in common but the English language.
+ - I seem fated to pass through the world without colliding with it or moving it – and I’m sure I can’t tell you whether the fate’s good or evil. I don’t die – I don’t fall in love. And if other people die or fall in love they always do it when I’m just not there.
+ - I think you’re beautiful, the only beautiful person I’ve ever seen. I love your voice and everything to do with you, down to your clothes or the room you are sitting in. I adore you.
+ - One must be fond of people and trust them if one is not to make a mess of life.
+ - Nonsense and beauty have close connections.
+ - Life is like a public performance on the violin, in which you must learn the intrument as you go along.
+ - He doesn’t want you to be real, and to think and to live. He doesn’t love you. But I love you. I want you to have your own thoughts and ideas and feelings, even when I hold you in my arms.
+ - To trust people is a luxury in which only the wealthy can indulge; the poor cannot afford it.
+ - Naked I came into the world, naked I shall go out of it! And a very good thing too, for it reminds me that I am naked under my shirt, whatever its colour.
+ - What is wonderful about great literature is that it transforms the man who reads it towards the condition of the man who wrote.
+ - Tolerance is just a makeshift, suitable for an overcrowded and overheated planet. It carries on when love gives out, and love generally gives out as soon as we move away from our home and our friends.
+ - I am sure that if the mothers of various nations could meet, there would be no more wars.
+ - While her lips talked culture, her heart was planning to invite him to tea.
+ - So, two cheers for Democracy: one because it admits variety and two because it permits criticism.
+ - Failure or success seems to have been allotted to men by their stars. But they retain the power of wriggling, of fighting with their star or against it, and in the whole universe the only really interesting movement is the wriggle.
+ - He educated Maurice, or rather his spirit educated Maurice’s spirit, for they themselves became equal. Neither thought “Am I led; am I leading?” Love had caught him out of triviality and Maurice out of bewilderment in order that two imperfect souls might touch perfection.
+ - School was the unhappiest time of my life and the worst trick it ever played on me was to pretend that it was the world in miniature. For it hindered me from discovering how lovely and delightful and kind the world can be, and how much of it is intelligible.
+ - Mistrust all enterprises that require new clothes.
+ - What is the good of your stars and trees, your sunrise and the wind, if they do not enter into our daily lives?
+ - It is the vice of a vulgar mind to be thrilled by bigness, to think that a thousand square miles are a thousand times more wonderful than one square mile, and that a million square miles are almost the same as heaven.
+ - Sometimes I think too much fuss is made about marriage. Century after century of carnal embracement and we’re still no nearer to understanding one another.
+ - Unless we remember we cannot understand.
+ - For you cannot have gentility without paying for it.
+ - The tragedy of preparedness has scarcely been handled, save by the Greeks. Life is indeed dangerous, but not in the way morality would have us believe. It is indeed unmanageable, but the essence of it is not a battle. It is unmanageable because it is a romance, and its essence is romantic beauty.
+ - Our life on earth is, and ought to be, material and carnal. But we have not yet learned to manage our materialism and carnality properly; they are still entangled with the desire for ownership.
+ - We may divide characters into flat and round.
+ - Human relations are impossible. When they are real they are uncomfortable, and when they are comfortable they are unreal. It was for the journey into solitude that the human soul was created.
+ - The kingdom of music is not the kingdom of this world; it will accept those whom breeding and intellect and culture have alike rejected.
+ - Don’t be mysterious; there isn’t the time.
+ - The emotions may be endless. The more we express them, the more we may have to express.
+ - It was unbearable, and he thought again, ‘How unhappy I am!’ and became happier.
+ - The fact is we can only love what we know personally. And we cannot know much. In public affairs, in the rebuilding of civilization, something less dramatic and emotional is needed, namely tolerance.
+ - I suggest that the only books that influence us are those for which we are ready, and which have gone a little further down our particular path than we have yet gone ourselves.
+ - Are not beauty and delicacy the same?
+ - One’s favorite book is as elusive as one’s favorite pudding.
+ - Riposte of “that old lady in the anecdote who was accused by her nieces of being illogical,” Logic! Good gracious! What rubbish! How can I tell what I think till I see what I say?
+ - There are occasions when I would rather feel like a fly than a spider.
+ - The armour of falsehood is subtly wrought out of darkness, and hides a man not only from others, but from his own soul.
+ - You can transmute love, ignore it, muddle it, but you can never pull it out of you.
+ - Tolerance is a very dull virtue. It is boring. Unlike love, it has always had a bad press. It is negative. It merely means putting up with people, being able to stand things.
+ - Truth is a flower in whose neighbourhood others must wither.
+ - Expansion, that is the idea the novelist must cling to, not completion, not rounding off, but opening out.
+ - At times our need for a sympathetic gesture is so great that we care not what exactly it signifies or how much we may have to pay for it afterwards.
+ - I am actually what my age and my upbringing have made me – a bourgeois who adheres to the British constitution, adheres to it rather than supports it, and the fact that this isn’t dignified doesn’t worry me.
+ - It isn’t possible to love and to part.
+ - Money pads the edges of things.
+ - I cannot help thinking that there is something to admire in everyone, even if you do not approve of them.
+ - For our vanity is such that we hold our own characters immutable, and we are slow to acknowledge that they have changed, even for the better.
+ - Chess is a forcing house where the fruits of character can ripen more fully than in life.
+ - People in a novel can be understood completely by the reader, if the novelist can be understood completely by the reader, if the novelist wishes; their inner as well as their outer life can be exposed.
+ - At night, when the curtains are drawn and the fire flickers, my books attain a collective dignity.
+ - The sun was already declining and each of the trees held a premonition of night.
+ - A facade of skyscrapers facing a lake and behind the facade, every type of dubiousness.
+ - Our final experience, like our first, is conjectural. We move between two darkness’s.
+ - The so called white races are really pinko-grey.
+ - Love is a great force in private life; it is indeed the greatest of all things; but love in public affairs does not work.
+ - I am an unspeakable of the Oscar Wilde sort.
+ - Life never gives us what we want at the moment that we consider appropriate.
+ - Outside the arch, always there seemed another arch. And beyond the remotest echo, a silence.
+ - Do not be proud of your inconsistency. It is a pity, it is a pity that we should be equipped like this. It is a pity that Man cannot be at the same time impressive and truthful.
+ - Think before you speak is criticism’s motto; speak before you think, creation’s.
+ - The crime of suicide lies rather in its disregard for the feelings of those whom we leave behind.
+ - The English countryside, its growth and its destruction, is a genuine and tragic theme.
+ - I’m a holy man minus the holiness. Hand that on to your three spies, and tell them to put it in their pipes.
+ - What the world most needs today are negative virtues – not minding people, not being huffy, touchy, irritable or revengeful.
+ - My law-givers are Erasmus and Montaigne, not Moses and St Paul.
+ - A happy ending was imperative. I shouldn’t have bothered to write otherwise. I was determined that in fiction anyway two men should fall in love and remain in it for the ever and ever that fiction allows, and in this sense, Maurice and Alec still roam the greenwood.
+ - It is fate that I am here,? George persisted, ’but you can call it Italy if it makes you less unhappy.
+ - Life is easy to chronicle, but bewildering to practice.
+ - There is an aristocracy of the sensitive. They represent the true human tradition of permanent victory over cruelty and chaos.
+ - Be soft, even if you stand to get squashed.
+ - Solidity, caution, integrity, efficiency. Lack of imagination, hypocrisy. These qualities characterize the middle classes in everycountry, but in England they are national characteristics.
+ - We cast a shadow on something wherever we stand.
+ - It is thus, if there is any rule, that we ought to die – neither as victim nor as fanatic, but as the seafarer who can greet with an equal eye the deep that he is entering, and the shore that he must leave.
+ - I’m a holy man minus the holiness.
+ - Adventures do occur, but not punctually.
+ - One can run away from women, turn them out, or give in to them. No fourth course.
+ - In the creative state a man is taken out of himself.
+ - The people I respect most behave as if they were immortal and as if society was eternal. Both assumptions are false: both of them must be accepted as true if we are to go on eating and working and loving, and are to keep open a few breathing holes for the human spirit.
+ - Italy and London are the only places where I don’t feel to exist on sufferance.
+ - But nothing in India is identifiable, the mere asking of a question causes it to disappear or to merge in something else.
+ - Romance only dies with life. No pair of pincers will ever pull it out of us. But there is a spurious sentiment which cannot resist the unexpected and the incongruous and the grotesque. A touch will loosen it, and the sooner it goes from us the better.
+ - There’s enough sorrow in the world, isn’t there, without trying to invent it.
+ - I would rather be a coward than brave because people hurt you when you are brave.
+ - It is impossible to foretell the future with any degree of accuracy, that it is impossible to rehearse life. A fault in the scenery, a face in the audience, an interruption of the audience on to the stage, and all our carefully planned gesture mean nothing, or mean too much.
+ - The people I admire most are those who are sensitive and want to create something or discover something, and do not see life in terms of power.
+ - The sadness of the incomplete, the sadness that is often Life, but should never be Art.
+ - It is so difficult – at least, I find it difficult – to understand people who speak the truth.
+ - You told me once that we shall be judged by our intentions, not by our accomplishments. I thought it a grand remark. But we must intend to accomplish – not sit intending on a chair.
+ - Science, when applied to personal relationships, is always just wrong .
+ - Curiosity is one of the lowest of the human faculties. You will have noticed in daily life that when people are inquisitive they nearly always have bad memories and are usually stupid at bottom.
+ - Don’t go fighting against the Spring.
+ - Personal relations are the important thing for ever and ever, and not this outer life of telegrams and anger.
+ - If there is on earth a house with many mansions, it is the house of words.
+ - All a child’s life depends on the ideal it has of its parents. Destroy that and everything goes – morals, behavior, everything. Absolute trust in someone else is the essence of education.
+ - All men are equal – all men, that is, who possess umbrellas.
+ - Passion should believe itself irresistible. It should forget civility and consideration and all the other curses of a refined nature. Above all, it should never ask for leave where there is a right of way.
+ - Most of life is so dull that there is nothing to be said about it, and the books and talk that would describe it as interesting are obliged to exaggerate, in the hope of justifying their own existence.
+ - It so happened that Lucy, who found daily life rather chaotic, entered a more solid world when she opened the piano. She was then no longer either deferential or patronizing; no longer either a rebel or a slave.
+ - I have no mystic faith in the people. I have in the individual.
+ - The people I respect most behave as if they were immortal and as if society was eternal.
+ - Suspense: the only literary tool that has any effect upon tyrants and savages.
+ - I believe in teaching people to be individuals, and to understand other individuals.
+ - Before the civil war, Pottibakia was a normal member of the Comity of Nations. She erected tariff walls, broke treaties, persecuted minorities, obstructed at conferences unless she was convinced there was no danger of a satisfactory solution; then she strained every nerve in the cause of peace.
+ - Man can learn everything if he will but try.
+ - It is now only in letters I write what I feel: not in literature any more, and I seldom say it, because I keep trying to be amusing.
+ - Pathos, piety, courage, they exist, but are identical, and so is filth. Everything exists, nothing has value.
+ - But Humanity, in its desire for comfort, had over-reached itself. It had exploited the riches of nature too far. Quietly and complacently, it was sinking into decadence, and progress had come to mean the progress of the Machine.
+ - Those who search for truth are too conscious of the maze to be hard on others.
+ - We are not concerned with the very poor. They are unthinkable, and only to be approached by the statistician or the poet.
+ - The traveller who has gone to Italy to study the tactile values of Giotto, or the corruption of the Papacy, may return remembering nothing but the blue sky and the men and women who live under it.
+ - Surely the only sound foundation for a civilization is a sound state of mind.
+ - I distrust Great Men. They produce a desert of uniformity around them and often a pool of blood too, and I always feel a little man’s pleasure when they come a cropper.
+ - It is the vice of a vulgar mind to be thrilled by bigness.
+ - A funeral is not death, any more than baptism is birth or marriage union. All three are the clumsy devices, coming now too late, now too early, by which Society would register the quick motions of man.
+ - Love and understand the Italians, for the people are more marvellous than the land.
+ - Oxford is Oxford: not a mere receptacle for youth, like Cambridge. Perhaps it wants its inmates to love it rather than to love one another.
+ - But it struck him that people are not really dead until they are felt to be dead. As long as there is some misunderstanding about them, they possess a sort of immortality.
+ - If Miss Honeychurch ever takes to live as she plays, it will be very exciting – both for us and for her.
+ - Men yearn for poetry though they may not confess it; they desire that joy shall be graceful and sorrow august and infinity have a form.
+ - Neanderthal man listened to stories, if one may judge by the shape of his skull.
+ - Logic! Good gracious! What rubbish!
+ - In the creative state a man is taken out of himself. He lets down as it were a bucket into his subconscious, and draws up something which is normally beyond his reach. He mixes this thing with his normal experiences and out of the mixture he makes a work of art.
+ - To make us feel small in the right way is a function of art; men can only make us feel small in the wrong way.
+ - I have only got down on to paper, really, three types of people: the person I think I am, the people who irritate me, and the people I’d like to be.
+ - My conviction gains infinitely the moment another soul will believe in it.
+ - Very notable was his distinction between coarseness and vulgarity, coarseness, revealing something; vulgarity, concealing something.
+ - I do not believe in Belief.
+ - A poem is true if it hangs together. Information points to something else. A poem points to nothing but itself.
+ - I’d far rather leave a thought behind me than a child. Other people can have children.
+ - It is the function of the novelist to reveal the hidden life at its source: to tell us more about Queen Victoria than could be known, and thus to produce a character who is not the Queen Victoria of history.
+ - It is not that the Englishman can’t feel-it is that he is afraid to feel. He has been taught at his public school that feeling is bad form. He must not express great joy or sorrow, or even open his mouth too wide when he talks-his pipe might fall out if he did.
+ - Growing old is an emotion which comes over us at almost any age; I had it myself between the ages of 25 and 30.
+ - Of course he despised the world as a whole; every thoughtful man should; it is almost a test of refinement.
+ - Beethoven’s Fifth Symphony is the most sublime noise that has ever penetrated into the ear of man.
+ - As her time in Florence drew to a close she was only at ease amongst those to whom she felt indifferent.
+ - Though life is very glorious, it is difficult.
+ - One marvels why the middle classes still insist on so much discomfort for their children at such expense to themselves.
+ - It makes a difference doesn’t it, whether we fully fence ourselves in, or whether we are fenced out by the barriers of others?
+ - I hated the idleness, the stupidity, the respectability, the petty unselfishness.
+ - We are willing enough to praise freedom when she is safely tucked away in the past and cannot be a nuisance. In the present, amidst dangers whose outcome we cannot foresee, we get nervous about her, and admit censorship.
+ - It comes to this then: there always have been people like me and always will be, and generally they have been persecuted.
+ - England still waits for the supreme moment of her literature – for the great poet who shall voice her, or, better still, for the thousand little poets whose voices shall pass into our common talk.
+ - It is easy to face Death and Fate, and the things that sound so dreadful. It is on my muddles that I look back with horror – on thethings that I might have avoided.
+ - A critic has no right to the narrowness which is the frequent prerogative of the creative artist.
+ - It is my fate and perhaps my temperament to sign agreements with fools.
+ - England has always been disinclined to accept human nature.
+ - There’s nothing like a debate to teach one quickness. I often wish I had gone in for them when I was a youngster. It would have helped me no end.
+ - Do we find happiness so often that we should turn it off the box when it happens to sit there?
+ - Works of art, in my opinion, are the only objects in the material universe to possess internal order, and that is why, though I don’t believe that only art matters, I do believe in Art for Art’s sake.
+ - The woman who can’t influence her husband to vote the way she wants ought to be ashamed of herself.
+ - One is certain of nothing but the truth of one’s own emotions.
+ - Passion does not blind. No. Passion is sanity, and the woman you love, she is the only person you will ever really understand.
+ - Reverence is fatal to literature.
+ - The kingdom of music is not the kingdom of this world.
+ - Ah, but you see, I didn’t want to be fair.
+ - But after all, what have we to do with taverns? Real menace belongs to the drawing-room.
+ - I have almost completed a long novel, but it is unpublishable until my death and England’s.
+ - Railway termini are our gates to the glorious and the unknown.
+ - Ideas are fatal to caste.
+ - Give, do not lend; after death who will thank you?
+ - The final test for a novel will be our affection for it, as it is the test of our friends, and of anything else which we cannot define.
+ - Don’t believe those lies about intellectual people. They’re only written to soothe the majority.
+ - Love felt and returned, love which our bodies exact and our hearts have transfigured, love which is the most real thing that we shall ever meet, reappeared now as the world’s enemy, and she must stifle it.
+ - She loved him absolutely, perhaps for half an hour.
+ - The middle age of buggers is not to be contemplated without horror.
+ - It is never possible for a novelist to deny time inside the fabric of his novel: he must cling, however lightly, to the thread of his story, he must touch the interminable tapeworm, otherwise he becomes unintelligible, which, in his case, is a blunder.
+ - There are moments when the inner life actually ‘pays,’ when years of self-scrutiny, conducted for no ulterior motive, are suddenly of practical use.
+ - All invitations must proceed from heaven perhaps; perhaps it is futile for men to initiate their own unity, they do but widen the gulfs between them by the attempt.
+ - But I have seen my obstacles: trivialities, learning and poetry. This last needs explaining: the old artist’s readiness to dissolve characters into a haze. Characters cannot come alive and fight and guide the world unless the novelist wants them to remain characters.
+ - All this fame and money, which have so thrilled me when they came to others, leave me cold when they come to me. I am not an ascetic, but I don’t know what to do with them, and my daily life has never been so trying, and there is no one to fill it emotionally.
+ - Sex begins before adolescence, and survives sterility; it is indeed coeval with our lives, although at the mating age its effects are more obvious to Society.
+ - The work of art assumes the existence of the perfect spectator, and is indifferent to the fact that no such person exists.
+ - Liking one person is an extra reason for liking another.
+ - She only felt that the candle would burn better, the packing go easier, the world be happier, if she could give and receive some human love.
+ - There is something majestic in the bad taste of Italy.
+ - This element of surprise or mystery the detective element as it is sometimes rather emptily called is of great importance in a plot.
+ - It’s miles worse for you than that; I’m in love with your gamekeeper.
+ - When love flies it is remembered not as love but as something else. Blessed are the uneducated, who forget it entirely, and are never conscious of folly or pruriency in the past, of long aimless conversations.
+ - I am so used to seeing the sort of play which deals with one man and two women. They do not leave me with the feeling I have made a full theatrical meal they do not give me the experience of the multiplicity of life.
+ - He had shown her all the workings of his soul, mistaking this for love.
+ - Only a writer who has the sense of evil can make goodness readable.
+ - Democracy is not a Beloved Republic really, and never will be. But it is less hateful than other contemporary forms of government, and to that extent deserves our support.
+ - We move between two darknesses.
+ - She stopped and leant her elbows against the parapet of the embankment. He did likewise. There is at times a magic in identity of position; it is one of the things that have suggested to us eternal comradeship.
+ - Nature pulls one way and human nature another.
+ - There has been, is, and always will be every conceivable type of person.
+ - But the body is deeper than the soul and its secrets inscrutable.
+ - Do you suppose there’s any difference between spring in nature and spring in man? But there we go, praising the one and condemning the other as improper, ashamed that the same laws work eternally through both.
+ - It is the starved imagination, not the well nourished, that is afraid.
+ - Science is better than sympathy, if only it is science.
+ - Letters have to pass two tests before they can be classed as good: they must express the personality both of the writer and of the recipient.
+ - But this time I’m not to blame; I want you to believe that. I simply slipped into those violets. No, I want to be really truthful. I am a little to blame. The sky, you know, was gold, and the ground all blue, and for a moment he looked like some one in a book.
+ - Beauty ought to look a little surprised: it is the emotion that best suits her face. The beauty who does not look surprised, who accepts her position as her due – she reminds us too much of a prima donna.
+ - Characters must not brood too long. They must not waste time running up and down ladders in their own insides.
+ - Paganism is infectious, more infectious than diphtheria or piety.
+ - One of the evils of money is that it tempts us to look at it rather than at the things that it buys.
+ - There is much good luck in the world, but it is luck. We are none of us safe. We are children, playing or quarrelling on the line.
+ - I won’t be protected. I will choose for myself what is ladylike and right. To shield me is an insult.
+ - In the novel we can know people perfectly, and, apart from the general pleasure of reading, we can find here a compensation for their dimness in life.
+ - Only a struggle twists sentimentality and lust together into love.
+ - When love flies it is remembered not as love but as something else.
+ - Creative writers are always greater than the causes that they represent.
+ - The sort of poetry I seek resides in objects man can’t touch.
+ - They cared for no one, they were outside humanity, and death, had it come, would only have continued their pursuit of a retreating horizon.
+ - Men were not gods after all, but as human and as clumsy as girls.
+ - Science explained people, but could not understand them. After long centuries among the bones and muscles it might be advancing to knowledge of the nerves, but this would never give understanding.
+ - No disease of the imagination is so difficult to cure, as that which is complicated with the dread of guilt : fancy and conscience then act interchangeably upon us, and so often shift their places, that the illusions of one are not distinguished from the dictates of the other.
+ - For it is a serious thing to have been watched. We all radiate something curiously intimate when we believe ourselves to be alone.
+ - Words deserted him immediately. He could only speak when he was not asked to.
+ - Human beings have their great chance in the novel.
+ - One always tends to overpraise a long book, because one has got through it.
+ - Belfastas uncivilised as ever – savage black mothers in houses of dark red brick, friendly manufacturers too drunk to entertain you when you arrive. It amuses me till I get tired.
+ - Long books, when read, are usually overpraised, because the reader wishes to convince others and himself that he has not wasted his time.
+ - Then she lay on her back and gazed at the cloudless sky. Mr. Beebe, whose opinion of her rose daily, whispered to his niece that that was the proper way to behave if any little thing went wrong.
+ - One has two duties – to be worried and not to be worried.
+ - If we act the truth the people who really love us are sure to come back to us in the long run.
+ - Reformers who are obsessed with purity and cannot see that their obsession is impure.
+ - The bully and the victim never quite forget their first relations.
+ - The historian records, but the novelist creates.
+ - She must be assured that it is not a criminal offense to love at first sight.
+ - But why I cry out against Rubens is because he painted undressed people instead of naked ones.
+ - We are all like Scheherazade’s husband, in that we want to know what happens next.
+ - Freedom does not guarantee masterpieces.
+ - The hungry and the homeless don’t care about liberty any more than they care about cultural heritage. To pretend that they do care is cant.
+ - America is rather like life. You can usually find in it what you look for It will probably be interesting, and it is sure to be large.
+ - I am certainly an ought and not a must.
+ - Most quarrels are inevitable at the time; incredible afterwards.
+ - There’s never any great risk as long as you have money.
+ - Charm, in most men and nearly all women, is a decoration.
+ - How few writers can prostitute all their powers!
+ - The most successful career must show a waste of strength that might have removed mountains, and the most unsuccessful is not that of the man who is taken unprepared, but of him who has prepared and is never taken.
+ - I have said that each aspect of the novel demands a different quality of the reader. Well, the prophetic aspect demands two qualities: humility and the suspension of the sense of humour.
+ - It is pleasant to be transferred from an office where one is afraid of a sergeant-major into an office where one can intimidate generals, and perhaps this is why history is so attractive to the more timid among us. We can recover self-confidence by snubbing the dead.
+ - Pity wraps the student of the past in an ambrosial cloud, and washes his limbs with eternal youth.
+ - God is not Love in the East. He is Power, although Mercy may temper it.
+ - No man can be an agnostic who has a sense of humour.
+ - Only people who have been allowed to practise freedom can have the grown-up look in their eyes.
+ - As long as learning is connected with earning, as long as certain jobs can only be reached through exams, so long must we take this examination system seriously. If another ladder to employment was contrived, much so-called education would disappear, and no one would be a penny the stupider.
+ - Axiom : Novel must have either one living character or a perfect pattern: fails otherwise.
+ - One grows accustomed to being praised, or being blamed, or being advised, but it is unusual to be understood.
+ - Intuition attracts those who wish to be spiritual without any bother, because it promises a heaven where the intuitions of others can be ignored.
+ - An efficiency-regime cannot be run without a few heroes stuck about it to carry off the dullness – much as plums have to be put into bad pudding to make it palatable.
+ - I only wish the poets would say this too: love is of the body; not the body, but of the the body. Ah! the misery that would be saved if we confessed that! Ah! for a little directness to liberate the soul!
+ - This solitude opressed her; she was accustomed to have her thoughts confirmed by others or, at all events, contradicted; it was too dreadful not to know whether she was thinking right or wrong.
+ - Towns are excrescences, gray fluxions, where men, hurrying to find one another, have lost themselves.
+ - Love is always being given where it is not required.
+ - There lies at the back of every creed something terrible and hard for which the worshipper may one day be required to suffer.
+ - Did you ever dream you had a friend, Alec? Someone to last your whole life and you his. I suppose such a thing can’t really happen outside sleep.
+ - I have always found writing pleasant and don’t understand what people mean by ‘throes of creation.’
+ - I really don’t know what happens next – one so seldom does.
+ - When I think of what life is, and how seldom love is answered by love; it is one of the moments for which the world was made.
+ - Culture had worked in her own case, but during the last few weeks she had doubted whether it humanized the majority, so wide and so widening is the gulf that stretches between the natural and the philosophic man, so many the good chaps who are wrecked in trying to cross it.
+ - At the moment they vanished they were everywhere, the cool benediction of the night descended, the stars sparkled, and the whole universe was a hill.
+ - Humility is a quality for which I have only a limited admiration. In many phases of life it is a great mistake and degenerates into defensiveness or hypocrisy.
+ - Hardship is vanishing, but so is style, and the two are more closely connected than the present generation supposes.
+ - Some reviews give pain. This is regrettable, but no author has the right to whine. He was not obliged to be an author. He invited publicity, and he must take the publicity that comes along.
+ - I never could get on with representative individuals but people who existed on their own account and with whom it might therefore be possible to be friends.
+ - Man has to pick up the use of his functions as he goes along- especially the function of Love.
+ - Life – No, I’ve nothing to teach you about it for the moment. May be writing about it another week.
+ - Those who prepared for all the emergencies of life beforehand may equip themselves at the expense of joy.
+ - If God could tell the story of the Universe, the Universe would become fictitious.
+ - Have you ever noticed that there are people who do things which are most indelicate, and yet at the same time – beautiful?
+ - Without form, the sensitiveness vanishes.
+ - I know by experience that the poets are right: love is eternal.
+ - An acquaintance had become a lover, might become a husband, but would retain all that she had noted in the acquaintance; and love must confirm an old relation rather than reveal a new one.
+ - I don’t think literature will be purged until its philosophic pretentiousness is extruded, and I shant live to see that purge, nor perhaps when it has happened will anything survive.
+ - I believe we shall come to care about people less and less, Helen. The more people one knows, the easier it becomes to replace them. It’s one of the curses of London. I quite expect to end my life caring most for a place.
+ - No one is more triumphant than the man who chooses a worthy subject and masters all its facts.
+ - All that is observable in a man-that is to say his actions and such of his spiritual existence as can be deduced from his actions-falls into the domain of history.
+ - The historian must have some conception of how men who are not historians behave. Otherwise he will move in a world of the dead. He can only gain that conception through personal experience, and he can only use his personal experiences when he is a genius.
+ - It’s not what people do to you, but what they mean, that hurts.
+ - A novel must give a sense of permanence as well as a sense of life.
+ - The more highly public life is organized the lower does its morality sink.
+ - I think – I think – I think how little they think what lies so near them.
+ - He had known so much about her once -what she thought, how she felt, the reasons for her actions. And now he only knew that he loved her, and all the other knowledge seemed passing from him just as he needed it most.
+ - The strong are so stupid.
+ - Let us think of people as starting life with an experience they forget and ending it with one which they anticipate but cannot understand.
+ - Books have to be read it is the only way of discovering what they contain.
+ - A mirror does not develop because an historical pageant passes in front of it. It only develops when it gets a fresh coat of quicksilver in other words, when it acquires new sensitiveness; and the novel’s success lies in its own sensitiveness, not in the success of its subject matter.
+ - If only the sense of actuality can be lulled-and it sleeps for ever in most historians-there is no passion that cannot be gratified in the past.
+ - Happiness in the ordinary sense is not what one needs in life, though one is right to aim at it. The true satisfaction is to come through, and see those whom one lives come through.
+ - Not only in sex, but in all things men have moved blindly, have evolved out of slime to dissolve into it when this accident of consequences is over.
+ - Faith, to my mind, is a stiffening process, a sort of mental starch.
+
+309 quotes

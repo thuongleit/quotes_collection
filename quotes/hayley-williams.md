@@ -1,0 +1,85 @@
+ - If you ever think about giving up, remember why you held on for so long.
+ - Can we pretend that airplanes in the night sky are like shooting stars? I could really use a wish right now, wish right now, wish right now.
+ - The biggest lesson I’ve learned is, ‘It’s okay.’ It’s okay for me to be kind to myself. It’s okay to be wrong. It’s okay to get mad. It’s okay to be flawed. It’s okay to be happy. It’s okay to move on.
+ - Suicide is no solution. Keep fighting.
+ - Sometimes it takes a good fall to really know where you stand.
+ - Don’t let ignorance blind you. Open your eyes, heart and your mind. And if you’re feeling alone, know that the world can be a lonely place, but it would be lonelier without you in it.
+ - And the worst part is before it gets any better we’re heading for a cliff. And in the free fall I will realize I’m better off when I hit the bottom.
+ - Life is not always good, which is why music exists.
+ - That was the day that I promised I’d never sing of love that does not exist. but darling, You are the only exception.
+ - Let the pain remind you hearts can heal.
+ - You don’t need anyone’s permission to be exactly who you want to be.
+ - For something to be great, there has to be some kind of trial or some type of struggle that actually makes it special or valuable to you. Otherwise, anything could be easily taken for granted.
+ - It’s sad when friends become enemies. But what’s even worse is when they become strangers.
+ - Believe in your dreams even when they seem lost.
+ - Want to be one of a kind? Be yourself.
+ - I tend to enjoy proving people wrong.
+ - I believe music is a place everyone of us can go to.
+ - Everyone has their own story and that’s something I hope for everyone to learn at a young enough age. Just because something is right for someone else doesn’t make it right for you. It’s cooler to be yourself.
+ - I don’t care if the world or anyone in it tries to drag me down. Because I know that in the end, they will be the ones left tired from the struggle to hold me back.
+ - I’m in a band. I don’t go to church every Sunday. I love punk rock music. Sometimes I use swear words a lot. I respect and admire gay men and women. I’m obsessed with horror films. I know what shame feels like. And guess what old man? Jesus is still my Savior.
+ - I have the ability to build myself up or break myself down. I stay positive. Strength comes from within.
+ - Honesty is what brings people to change and that’s what i’m trying to learn in life.
+ - The most incredible thing about playing the songs live for people – looking out to the crowd and seeing the different reactions and the different heart-strings and the things that people are relating to that mean something to them, that’s crazy.
+ - The choices that we make aren’t always perfect but it’s ok, It’s part of the journey.
+ - Music is proof that beauty is deeper than looks.
+ - My faith is the only thing that never fails me.
+ - Support music every day because there isn’t a day music won’t be there for you!
+ - Things won’t start your life for you. I’m learning that. You have have to start your life for yourself.
+ - The thing is, our generation, we fight every day to get through life.
+ - Everybody live like it’s the last day you will ever see.
+ - The truth is, no matter what your lifestyle or occupation, nothing can really stop you when you’re allowing yourself to be exactly who you want to be.
+ - Everyone’s gotta make their own way.
+ - Don’t judge. Don’t stay inside all the time. Get out and let somebody know who you are.
+ - Don’t be scared to embrace the way that it hurts just to grow. You’ll look back and your heart will thank you for not standing still when what you needed the most was to move forward.
+ - When you stop caring about something, then other people have to decide whether or not they genuinely care about you, or not.
+ - When we think we know people inside out and we think we know what’s best for them we should try to remember we don’t even know what’s best for ourselves.
+ - Never stop supporting music because it will never stop being there for you when you need it.
+ - Paramore is a family. Once youre in it, youre in it for life.
+ - Every time I listen to Eminem, I fall in love with music all over again.
+ - Now I’ve gone for too long Living like I’m not alive So I’m going to start over tonight Beginning with you and I.
+ - The best gift you can give yourself is an open mind.
+ - The only truth I know is my own.
+ - Why not stand up, pump your fists in the air, and scream like a maniac? -.
+ - Whether I’m being influenced by new music that I’m listening to, books I’ve read, my friends, or my faith, I’m learning all the time.
+ - I believe music is a place everyone of us can go to. I don’t care who you are, where you were born, what you do with your life. Everyone can come here in music and be equal.
+ - Its just my goal to make other girls feel as strong as I feel when Im on that stage.
+ - I believe it’s important to stay young at heart, to have faith in what might seem impossible and to have goals beyond your current abilities or temporary means.
+ - A must have for women? Confidence! Be yourself!
+ - I live around dudes all the time so I’ve heard millions of stories about how they go through a breakup and then the girl turns absolutely crazy. I always thought growing up like: “No, I won’t be like that – when I go through a breakup I’ll be cool.”
+ - I’m not a real crazy social butterfly – and once I realised that and I accepted it, I started to realise how many people weren’t accepting of that.
+ - I headbang with my head, no my hair.
+ - I enjoy punk, the attitude as well as the music, but I don’t feel like I have to be a carbon copy of it and invite all this controversy just to be punk rock.
+ - Performing is the craziest workout for me, because I feel like, on the first day of tour, I’m going nuts. Halfway through, I’m just so tired but obviously you keep pushing yourself because you have fans watching you.
+ - I don’t want to sound like I’m trying to be too deep about it, but when we play shows, music takes everybody on their own journey – because one song might mean something to me, that means something completely different to someone else.
+ - Paramore will be the neighbor that comes over for tea and never leaves.
+ - For me growing up, I’ve found that I don’t really go out and party and I don’t hang out – when I come home and I’m home, I’m a pretty chilled person.
+ - I learn every day what it means to love myself, and I’m constantly figuring out what makes me feel empowered.
+ - This is what I’ve learned, in my life: Headbanging is crucial. Growing up is hard to do. There’s nothing wrong with wearing a dress.
+ - What motivates me is seeing people in the crowd and wondering what they’re going home to and what they’re dealing with, and knowing that for the time being we’re their escape.
+ - I make positive choices so I can be happy.
+ - If youre gonna put your faith in something, then it better shape who you are and what people see in you.
+ - The most important part about playing shows and touring, is connecting with fans. At the end of the day it’s not really a band and fans, we’re all just human beings.
+ - To do what we love we miss the ones we love. Long distance letters and phone calls and anything to make the distance disappear! That’s what this means to me.
+ - When I was in elementary school, I was a big fan of the zip-off pants that could be turned into shorts. The Delia’s catalog used to be my bible.
+ - Well you found us strength and solutions but I liked the tension And not always knowing the answers when you’re gonna lose it, you’re gonna lose it.
+ - I just feel like bands always need to work harder than the hardest working band. You need to constantly be one-upping yourself and surprising yourself at how hard that you’ll work and devote yourself to your craft.
+ - My hair is made of actual fire, you guys.
+ - I definitely like the mystery of not knowing how things will turn out, you know.
+ - The more music you love, the happier you will be.
+ - Now I’m told this is life, and pain’s just a simple compromise.
+ - For me, embracing my own power is about embracing my right to be an individual.
+ - There’s a love that never changes, no matter what you’ve done.
+ - I don’t think anyone loses by trying to be loyal to their dreams.
+ - I mean, we did feel nervous, starting out, but I wouldnt say it was hard. We just did what we loved and thankfully it worked out for the best.
+ - I don’t really know that I really have an opinion that I think people need to hear.
+ - I met P. Diddy. Or Diddy. I like to call him Puffy because, let’s be honest, that’s who he is.
+ - The lyrics were my sarcastic way of realizing you can’t be the king of the hill all the time.
+ - You don’t go to a show because you think someone in the band is hot.
+ - I like to talk about things when it pertains to a band. I like to talk about things that matter and music.
+ - Paramore fans are the best fans. Wanna fight about it?
+ - I only found out about Eminem getting on the track like a month ago. As if the song couldn’t get any better. He just slays me, he’s such a genius.
+ - I needed music today. And like always it was there for me.
+ - If I ever did have a baby, it probably would eat people.
+
+83 quotes

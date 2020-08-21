@@ -1,0 +1,93 @@
+ - Every man dies. Not every man truly lives.
+ - All men die. Only a few ever live.
+ - They think I’m crazy, and maybe I am. But maybe I’m a genius.
+ - I don’t make things complicated, that’s the way they get all by themselves.
+ - One should not worry about the future, particularly if it hasn’t happened yet.
+ - They may take our lives, but they’ll never take our freedom!
+ - What did one shepherd say to the other shepherd? Let’s get the flock out of here.
+ - You know what happens when you don’t take a risk? Nothing.
+ - I think digital will displace film, yes. We’re talking about digital as a thing of the future, but I’m afraid that it’s here.
+ - I’m too rich to care what the critics say.
+ - I love women. They’re the best thing ever created. If they want to be like men and come down to our level, that’s fine.
+ - Zionists are the source of destructions, I wish I can fight against them.
+ - It’s a wise man who understands that every day is a new beginning, because boy, how many mistakes do you make in a day? I don’t know about you, but I make plenty. You can’t turn the clock back, so you have to look ahead.
+ - What are you looking at sugar-tits?
+ - Pain is the precursor to change.
+ - My dad taught me my faith, and I believe what he taught me. The man never lied to me in his life.
+ - My father told me very early on that it was a sin to worry too much.
+ - Go away, dig a hole, do something else, come back and it magically rejuvenates your creative impulses and stuff.
+ - It’s all happening too fast. I’ve got to put the brakes on or I’ll smack into something.
+ - I like directing much better. It’s more fun, that’s all there is to it. It’s essentially the same job, which is storytelling, but you have more control over the way you want to tell the story. It’s a high. I love it.
+ - You ask anybody what their number one fear is, and it’s public humiliation. Multiply that on a global scale, and that’s what I’ve been through.
+ - I’m always writing. There is always a story brewing in my head.
+ - Hey, I’m for love, not war. How about we have a beer?
+ - You can’t live up to what people expect. Nobody can. But I guess that’s my problem, not theirs.
+ - If you just read Joseph Campbell, who has written amazing books on mythology and religion, they all do come together at some point. There are some of the greatest stories that there have ever been in the Bible. All you have to do is read the book of Maccabi, it’s like a film script.
+ - What I need to do to heal myself and to be assuring and allay the fears of others and to heal them if they had any heart wounds from something I may have said.
+ - I am politically incorrect, that’s true. Political correctness to me is just intellectual terrorism. I find that really scary, and I won’t be intimidated into changing my mind. Everyone isn’t going to love you all the time.
+ - People like scary stories. There’s a fascination with fear themes, and we want to face those things in a weird, subconscious way.
+ - My family means more to me than the artificial trappings of my career. If ever I had to choose between my career and my family, the wife and kids would definitely come out on top.
+ - The only way to maintain a moderate sum of happiness in this life, is not to worry about the future or regret the past too much.
+ - I have learned that a bitter experience can make you stronger.
+ - There is no salvation for those outside the Church.
+ - Change is always proceeded by a little pain. Some people can change and they don’t have to go through so many painful things. But I think that I’m of a personality that I’m a little stubborn, so it’s always tough for me.
+ - A woman should be home with the children, building that home and making sure there’s a secure family atmosphere.
+ - In India it is believed that all creatures have a purpose.
+ - Every time you go out there to do something, you wonder if you can do it. There’s no assured success. There’s no secret recipe for success. Every time you go out there, you go out there with the possibility of great failure.
+ - The thing we’re all looking for is happiness, and if we achieve just a modicum of that or even a little piece of serenity even for five minutes a day, we’re very lucky.
+ - Creating life simply to destroy it is wrong.
+ - I tell you what really turns my toes up: love scenes with 68-year-old men and actresses young enough to be their granddaughter.
+ - I’m not a preacher and I’m not a pastor. But I really feel my career was leading me to make this. The Holy Ghost was working through me on this film, and I was just directing traffic. I hope the film has the power to evangelize.
+ - God is the only one who knows how many children we should have, and we should be ready to accept them. One can’t decide for oneself who comes into this world and who doesn’t. That decision doesn’t belong to us.
+ - I think I’ve scratched the surface after twenty years of marriage. Women want chocolate and conversation.
+ - I got a chiropractor to come along to the Patriot shoot, because they can actually stick you back together within 15 minutes. He spent a week and worked on the entire crew. All the stunt guys were like, ‘Oh, fix my disc.’ The guy’s amazing.
+ - All experiences, what does not kill you makes you stronger and tougher I think. Life’s experiences, whether they be pleasant, unpleasant, torturous or excruciatingly wonderful and blissful, season you somehow and you learn from them.
+ - I think any kind of hiatus one takes in an artistic journey is going to make a huge difference. The pause will inform the choices that you make.
+ - I just don’t do anything fun anymore. But, that’s dying, isn’t it? I mean, you die in stages, right? You let things go in pieces.
+ - And, hey, I’m not under the illusion that everything’s just going to be hunky-dory work wise forever. I’ve never been under that illusion. Things could go away tomorrow.
+ - I’m not anti-Semitic. My Gospels are not anti-Semitic. I’ve shown it to many Jews and they’re like, it’s not anti-Semitic. It’s interesting that the people who say it’s anti-Semitic say that before they saw the film, and they said the same thing after they saw the film.
+ - It freshens your breath and helps prevent tartar.
+ - Writing is a hard gig, and it’s hard to convey a lot. That’s why scripts tend to be a little bit overwritten.
+ - It’s great that after 700 years William Wallace has finally had a proper burial. He did so much for the country. You should be proud of what you have achieved through devolution.
+ - I don’t care if I don’t act anymore.
+ - I walked away from acting for eight years and tried to make the choice that I should have made when I was 21. But, it doesn’t make any difference. Nothing changed. You can’t put the toothpaste back in the tube.
+ - The Holy Ghost was working through me on this film, and I was just direction traffic.
+ - There has to be some kind of order and some moral code. I don’t know how people can function without a belief in a deity.
+ - You can access that on many levels and the human spirit and the human mind responds to those themes because they recognise the veracity of them. That they are real things. Sometimes it even goes beyond logic, it’s just a sense of something.
+ - Life is life, and one has experiences that are painful and some that are very pleasant, and one has reward and sacrifice and more reward and disappointment and joy and happiness, and it’s always going to be the same.
+ - Theatrical is fantastic. I don’t think anything will ever replace the big dark room, the screen and the popcorn. You can kind of do it in your home if you have a nice screen, but it’s not the same thing.
+ - Acting is like lying. The art of lying well. I’m paid to tell elaborate lies.
+ - I’ll tell you what I did need to learn was tolerance, and I think I’ve been actually given a daily opportunity to practice that, and it’s – it’s – and I know that that sounds almost like a backhanded slap, and it is in a way because I haven’t been successful at it every day.
+ - Well, if you look at the whole story, I mean there’s only Jews and Romans in the story. I mean I just wanted to flesh that character out and make that a drama about the people around Christ when he was going through this passion.
+ - My hope is that this movie will affect people on a very profound level and reach them with a message of faith, hope, love and forgiveness.
+ - A good conspiracy is unprovable. I mean, if you can prove it, it means they screwed up somewhere along the line.
+ - I’ll always continue to work. I’ve never much depended on anyone but myself, as far as that goes.
+ - An acid is like a woman: a good one will eat through your pants.
+ - People always ask me to list my greatest accomplishments, expecting me to rattle off a bunch of movies I’ve made, but what I’m proudest of is my kids.
+ - The really good thing about using people who are really green is that you don’t have to erase a bunch of bad habits and then put good ones in. You can just start feeding them good habits.
+ - I got the acting bug back because I felt like all of a sudden maybe after all these years, maybe I might have something to offer again. I walked away from it after ‘Signs’ because I just felt I was a bit stale and it wasn’t ringing my bells, so I focused on directing, writing and producing.
+ - It’s said that I went into a rant, but I think it went on for about five words. I was drunk. It just turned into a big thing. I apologized profusely-not once but three times. So what’s the problem? It’s four years ago. Do I need to apologize again?
+ - I’ve never treated anyone badly or in a discriminatory way based on their gender, race, religion or sexuality – period.
+ - Feminists don’t like me, and I don’t like them.
+ - If you’re going to wear three hats. You’d better grow two more heads.
+ - There are messages about civilisations and we are trying to be true to history as much as possible. We wanted all this to gel with some good theory about why these civilisations went down, why they weakened and crumbled. Because they did, they vanished.
+ - I did a lot of crazy things so I’m surprised to be alive.
+ - But although Australia was also involved in the Vietnam conflict, I can remember my dad telling us that if we were in Australia, we wouldn’t be drafted until we were 20.
+ - Scotland is a great nation, but its horses are very uncomfortable.
+ - My whole approach to wardrobe is, throw it in a suitcase and make sure they don’t press it, for Pete’s sake, so I can try to display some rumpled charm. Actually, I’m just a pig. I’ve got coffee stains on my pants. I think they’re coffee stains, anyway.
+ - Voting is a very scary arena to be in, but I do vote. I go in there and pull the lever. It’s kind of like pulling the lever and watching the trap door fall out from beneath you. Why should we trust any of these people? None of them ever deliver on anything. It’s always disappointing.
+ - I was spiritually bankrupt, and when that happens, it’s like a spiritual cancer afflicts you.
+ - We all present a version of ourselves whether you’ve got a puppet on your hand or not. To actually be very real out there in a public way, why?
+ - I don’t think the audience always listens to the critics. That’s been proven time and time again.
+ - If you’re making a cake, you don’t just make the cake and have it look nice and have nobody tastes it. But that doesn’t take away from your ability to execute what you do as well as you can and to have it be something for many.
+ - I do moderate exercise, and I try to eat pretty well, and I think it has an effect on me.
+ - I think everything is pretty well preordained – even your mistakes.
+ - I like going in to different styles of acting and exploring stuff I haven’t done before.
+ - I could easily not act again. It’s not a problem.
+ - I don’t think of myself as either American or Australian really, I’m a true hybrid. It’s a good thing for me because both of them are really good countries.
+ - What I’m doing is making an action-adventure film of mythic proportions.
+ - Boot Camp was great and very interesting. You got to use live rounds of ammunition and got to do a lot of crawling around with live rounds flying around you, so you really had to learn to keep your ass down – everything down for that matter.
+ - Time helps a lot. I found the fame thing really was a torment for a while. Then you learn to deal with it.
+ - After about twenty years of marriage, I’m finally starting to scratch the surface of what women want. And I think the answer lies somewhere between conversation and chocolate.
+
+91 quotes

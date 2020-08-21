@@ -1,0 +1,67 @@
+ - Never give up on something you love.
+ - There’s always tomorrow and it always gets better.
+ - Be happy with being you. Love your flaws. Own your quirks. And know that you are just as perfect as anyone else, exactly as you are.
+ - You are beautiful and perfect and lovely HOWEVER you are.
+ - Don’t ever doubt yourselves or waste a second of your life. It’s too short, and you’re too special.
+ - Life is beautiful. Cherish every moment even if you’re stressed or hurt or whatnot. There’s always tomorrow and it always gets better.
+ - Some people will find any reason to hate. Don’t waste ur time. Lighten up! It takes so much less energy to smile than to hate. Enjoy life.
+ - Life is beautiful. Be thankful for everything. Destroy your ego. Free hugs. Sing your hearts out in the street. Rock ’n roll.
+ - I don’t regret any of the decisions I’ve made in my life. Because with every choice I’ve made, I’ve learned something new.
+ - If you’re passionate about something then it will definitely work out for you. You should never stop believing in something, and you shouldn’t listen to anyone who tells you otherwise. Never give up on something you love.
+ - Never take yourself too seriously.
+ - School is tough sometimes, but it’s all about knowing who your real friends are.
+ - Take a load off, don’t take everything so seriously. And just be happier.
+ - The best part about having true friends is that you can go months without seeing them and they’ll still be there for you and act as if you’d never left!
+ - I don’t really believe in any fashion rules. I think fashion is a form of self-expression. I think you can wear whatever you want!
+ - Love your flaws, and own your quirks.
+ - Everyone is beautiful, everyone is perfect, and everyone is lovely.
+ - I love musicals and I love Broadway.
+ - Block out all the negative energy, and just love.
+ - I know that my fans will probably learn a lot about me by listening to my music, if they really listen to the lyrics.
+ - Too many young girls have eating disorders due to low self-esteem and distorted body image. I think it’s so important for girls to love themselves and to treat their bodies respectfully.
+ - I like Aurora, Sleeping Beauty, because shes just sleeping and looking pretty and waiting for boys to come kiss her. Sounds like a good life – lots of naps and cute boys fighting dragons to come kiss you.
+ - Music is really driving my whole life.
+ - The thrill of not knowing what’s going to happen, trained me to be prepared for anything.
+ - I feel like the luckiest girl in the world. I have the best family and fans in the world!
+ - I’m a big perfectionist! I’m trying to channel super-confident women like Alicia Keys, Mariah Carey and Beyonce, because I realized that if you want something, you really have to go for it, just like they do.
+ - To be honest, I never really considered myself to be too much of an actress. So, whenever I get the chance to do music, I’m always, like, just in it. It’s like, ‘Oh my God, I finally get to do this. I’m so happy.’
+ - Dancing in high heels is kind of tough. I learn the dances without the heels, and then we add them. We just practice, and I get used to it. My feet hurt really badly at the end of the shows, but it’s fun. While it’s happening it’s fun. I feel tall.
+ - I like very girly, retro inspired, feminine, floral things. I’m not very edgy.
+ - I hope that people can relate to my music, it’s very relatable, it’s very fun, it’s very honest.
+ - I love ripped jeans! They are flattering. I’m very petite, so I think they make my butt look lovely.
+ - I jog up to the Hollywood sign every weekend. It’s fun and what a view!
+ - I love nerdy, cute, quirky boys who don’t take themselves too seriously.
+ - I just love to shop. If I could, I would shop every single day in every single store and spend all of my money which, you know, I do anyway.
+ - One of the most terrible feelings in the world is knowing that someone else doesn’t like you. Especially when you don’t know what you’ve done to deserve it.
+ - If anything, we should feel sorry for the people who want us to feel bad about ourselves, because they are the ones struggling for approval. In middle school, bullies tortured other kids because they thought it would make people like them more.
+ - Meditation is a great way to keep my body well-centered while juggling shooting schedules and recording sessions.
+ - Broadway is amazing because you’re performing for such an intimate group of people. You’re living in the moment and whatever happens happens, and you go on. You can’t say cut and redo it, you have to be on the whole time.
+ - I was raised in a household where being gay was like, the most normal thing. My brother is gay, all of my best friends are gay. When my brother came out of the closet, it wasn’t a big deal for my family.
+ - The day my child tries a celery is the most stressful day of my life.
+ - I swore that I would never say I miss you more everyday but, some things are better left unsaid...
+ - I’ve done the bad-boy thing. It was fun for a good three months. But the thing about bad boys is, you have to keep in mind, you’re never gonna marry a bad boy.
+ - I like either skinny jeans or the ripped, casual, super-sloppy boyfriend jeans. A lot of ripped jeans. They are so early 2000, but they are so cute, I love them. I love surfer jeans, too!
+ - The best fashion advice I’d say would be just to do what makes you comfortable and what makes you feel cute, and that’s how you’re gonna look your best cause when you feel your best, everybody else can feel it, too.
+ - If anyone tries to bully you don’t let them. Take the positive energy form a ball of rainbow power and just, like shove it.
+ - Pink Champagne is about having fun and letting go, and living your life to the fullest!
+ - When you feel your best, everybody else can feel it, too.
+ - It’s outrageous to me when I see people hate on someone because of their sexuality. I hate the intolerance. I hate the judgment. I hate it so much.
+ - But as far as dream roles – I know this is so expected of me, but I would to play Elphaba in ‘Wicked’ on Broadway. I have a lot of dream roles, but that’s like my main one because of the vocal track. I love belting high things!
+ - I did stand-up for my grandparents every day when I was, like, eight.
+ - Most of my favorite people in my life are gay. It’s something I’m super passionate about, because whenever I would see my friends get bullied, or my brother get hurt for his sexuality, I would become a raging lunatic.
+ - I was definitely inspired by Madonna.
+ - I wasn’t raised in a household where it was considered abnormal to be gay. So for me to meet people who use the word ‘f-ggot’ as an insult, with a derogatory meaning, I can’t take it.
+ - My personal style is a mixture of, like, girly, throwback, like retro ’50s pin-ups, floral, like hippies, like anything feminine, and like flirty.
+ - I love my fans so much! I know I say it all the time, but I really appreciate all the things they have done for me.
+ - I’m so thankful for the Internet because actors and singers and performers now have a way to connect with their fans on a very personal level which I think is quite special.
+ - Music is my biggest passion and Ive just been obsessed with it. Like, always.
+ - I’m pretty sure my house in Florida is haunted! He’s a nice ghost though.
+ - People tend to think that because I’m a performer and I don’t go to a regular high school that I haven’t personally been affected by bullies. But it’s actually quite the contrary.
+ - I want to be a recording artist for my whole entire life. But Broadway is something I would come back to at any given moment. I love, love, love doing theater.
+ - I have a garden in my backyard that’s completely organic, which I’m very proud of.
+ - I’ve dreamed about doing music since I was three or four years old.
+ - Mariah and Whitney Houston were my goddesses growing up.
+ - I love, love, love just being hands on at all times in the studio.
+ - Of course I love music and I love what I do, but seeing their response to my work is my favourite part of it.
+
+65 quotes

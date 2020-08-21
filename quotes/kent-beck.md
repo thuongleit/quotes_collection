@@ -1,0 +1,22 @@
+ - I’m not a great programmer; I’m just a good programmer with great habits.
+ - Make it work, make it right, make it fast.
+ - Listening, Testing, Coding, Designing. That’s all there is to software. Anyone who tells you different is selling something.
+ - The business changes. The technology changes. The team changes. The team members change. The problem isn’t change, per se, because change is going to happen; the problem, rather, is the inability to cope with change when it comes.
+ - Optimism is an occupational hazard of programming; feedback is the treatment.
+ - If testing costs more than not testing, then don’t test.
+ - I’ve known people who have not mastered their tools who are good programmers, but not a tool master who remained a mediocre programmer.
+ - If you’re having trouble succeeding, fail.
+ - Of the four project development variables – scope, cost, time and quality – quality isn’t really a free variable. The only possible values are “excellent” and “insanely excellent”, depending on whether lives are at stake.
+ - I mean, source code in files; how quaint, how seventies!
+ - Testing is not the point. The point is about responsibility.
+ - I don’t like the feeling, but I’ve got to say that a little fear makes me a more focused, more responsible programmer.
+ - Learning research tells us that the time lag from experiment to feedback is critical...
+ - The system metaphor is a story that everyone – customers, programmers, and managers – can tell about how the system works.
+ - How good the design is doesn’t matter near as much as whether the design is getting better or worse. If it is getting better, day by day, I can live with it forever. If it is getting worse, I will die.
+ - Responsible Development is the style of development I aspire to now. It can be summarized by answering the question, How would I develop if it were my money? I’m amazed how many theoretical arguments evaporate when faced with this question.
+ - A plan is an example of what could happen, not a prediction of what will happen.
+ - I tell people to start implementing when they are pretty sure there aren’t more important stories out there. An iteration’s worth of data is worth months of speculation.
+ - Sometimes the problem has to mature before the solution can mature.
+ - The community isn’t nearly as afraid as it thinks it is.
+
+20 quotes

@@ -1,0 +1,37 @@
+ - In the end, passion and hard work beats out natural talent.
+ - Any great movie you watch has some element of darkness or loss or some suffering in it. That’s what makes the fun parts fun.
+ - If you were feeling sad right now and you recall a sad – or, a very happy memory from the past, it will be tinged with more sadness based on your current feeling. So we felt like that was actually on solid scientific ground .
+ - We’ve tried to regulate things so that you at least get to go home at night and not have to pull all-nighters and see them on weekends and things. So, you know, like everything in life, it’s a balance.
+ - Parents don’t want their children to lose that purity and innocence of childhood. We want to bottle that and hold onto that, but it’s impossible.
+ - Well, what we do is we have a script, of course. But for us, writing is also like storyboarding. It’s drawing. And so we will cut all of those drawings together with music, sound effects and dialogue. And we screen this kind of stick-figure version of the film.
+ - The way real memories work, from what we understand, is really complex. And it’s an interconnection of different things and redundancy in the brain. So the idea of a memory existing as a little snow globe – the way we represent it in the film – is actually not scientifically accurate at all.
+ - It is one of those weird social things. Even as parents we say, oh, don’t be sad. You know, come here, we’ll distract you with some ice cream or something. And I don’t know if that’s always the best thing. But it’s certainly – you understand why people do it.
+ - Dr. Paul Ekman, who worked in San Francisco – still does – which is where Pixar Animation Studios is, he had early in his career identified six. That felt like a nice, manageable number of guys to design and write for. It was anger, fear, sadness, disgust, joy and surprise.
+ - I mean, I’ve – these other films were flukes. I don’t know what I’m doing. I should just quit. What would I miss? I’d miss my house and I’d miss going to work. But I think the thing that I’ve realized I would miss most is probably similar to everybody, which is your friends.
+ - Toy Story we found, sorta by accident, because we didnt know what we were doing, the idea of being replaced by somebody. Everybody has that fear, or encounters this jealousy at some point.
+ - A lot of the issues I faced in junior high was what got me into animation. It was easier to sit on the side and draw cartoons than to engage with people.
+ - It’s, like, you know, if you’re sad, it’s a way of connecting with other people. And we – a lot of times we sort of feel embarrassed by being sad, and we go off by ourselves to hide and cry by ourselves. But, really, it’s a way of re-establishing relationship.
+ - They’re expecting us to make mistakes, and they’ve set up a process that allows us to correct for that and do it again and iterate. So I think that’s a real key to the films that we’ve made.
+ - Traditionally, animation has been dominated by men in the past. I don’t know why it attracted guys.
+ - And so not only did I have all new friends and all new surroundings, I didn’t even understand what they were talking about, which was very difficult and kind of started me, I think, on my path to animation. It was a lot easier to draw people than to talk and interact with them.
+ - One of the other experts we consulted with, this guy named Dacher Keltner, he was big on sadness as community bonding – I think is the word he used.
+ - You have to think about good storytelling and characters first. Then hopefully, the rest of that stuff will follow, some more than others. But if you don’t have a good film and strong characters, then you don’t have anything down the road.
+ - So this idea of moving seemed like a good way to sort of represent that metaphorically. It also is something for me personally. When I was in fifth grade – so about 11 – my folks moved us to Denmark.
+ - But the truth is, at some point, our films – almost every single one of them – are really bad. And it’s largely hats off to John Lasseter and Ed Catmull who have set up a system whereby they’re expecting it.
+ - And in part that’s good but then, like any emotion – and this is something we learned from the research as well – there are positive and negative aspects to all of these.
+ - So we can sit with Lee Unkrich and Andrew Stanton, and all the other folks and experience what the film is going to be like. And then we go away into a room, and we talk about what worked and what didn’t. And then we take all of those findings and we do that whole process again.
+ - I’m not actually sure if guilt is an emotion. In fact, that was – at the very beginning of this process, we realized, man, we really don’t know very much about this subject so we better do some research. And we started looking around online.
+ - And as I was sort of doodling, I was thinking, surprise and fear – probably fairly similar so let’s just lose surprise. And that left us with five.
+ - Sometimes suffering is a weird attraction.
+ - When I was in middle school, I liked to make cartoons.
+ - Yeah, to bring families together I need to go away.
+ - It might have been introduced slowly over the course of the years as you recall this memory over and over. So that was a very cool but complex idea that we thought about representing in the film but could not find a way to make it work.
+ - The idea kind of started with me just thinking about what would be fun to see in animation, you know – what have I not seen? For some reason, I got thinking about the human body and realizing, well, I’ve seen, like, traveling through the bloodstream and into the, you know, stomach and things.
+ - Well, we try to – we definitely try to have a balance. And I think things have gotten a lot better at Pixar. When we did “Toy Story,” that was an all hands on deck situation that really was time intensive.
+ - The drive of the story is sort of hinted at the beginning, is Joy and Sadness and those two characters. Especially Joy starting to understand that there’s more to life than being happy. And so that’s based on real life observations and things that we’ve learned as adults.
+ - There’s something really emotional about not having any sound. That allows, I think, the audience to participate more actively and kind of imagine what are they talking about there?
+ - And it’s about a three-month process every screening. And that way we have seven or eight chances at the film before we have to actually build the models, build the sets, do the animation and all of that. So it’s a – I think that’s a real key to the way we make films.
+ - I knew that there was an upcoming screening where not only were we going to show it to everybody else at the studio, we also needed to move into production. And yet I was sitting there in editorial going, this is not working. I’m a failure.
+ - We found some scientists think that there are basically three emotions. Others went up to 27. Others had 16. Some were in the middle. So we were kind of left with no definitive answer to our basic question – how many are there?
+
+35 quotes

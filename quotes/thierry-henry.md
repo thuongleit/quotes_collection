@@ -1,0 +1,60 @@
+ - You learn from your mistakes.
+ - I’m obsessed by the idea of making my mark on history. And Arsenal is my paradise.
+ - Arsenal is in my blood as well as my heart. I will always, always, always remember you guys. I said I was going to be a Gooner for life and I did not lie because when you are a Gooner, you will always be a Gooner. This club is in my heart and will remain in my heart forever.
+ - I eat football, I sleep football. I am not mad I am just passionate.
+ - There are many things I want, and the only way I will get them is to keep my head down, listen to the right people and work hard.
+ - In New York it seems like there’s no Monday or Saturday or Sunday. The town is always moving. The vibe is great.
+ - The moment I’ve got a ball at my feet, I’m happy.
+ - What makes the difference between a great player and just a normal player is dedication, work, commitment.
+ - I always think about what I missed, and I think that was my driving force – never be satisfied with what I’ve done.
+ - In football you always get judged on your last game. Whoever you are, or how amazing you are, it’s the last game that everyone has seen.
+ - A lot of different races and nationalities play football, so it is a good way to try and stop racism.
+ - What Leo does is so incredible that I have to be careful not to stand still watching him make his moves.
+ - There’s nothing I’m scared of in football.
+ - But, at the moment, when I step on the pitch, when I have the ball I know it’s mine. It’s just a feeling.
+ - And I don’t watch cricket. How can you like a game that requires you to take four days off work to follow a Test?
+ - I can’t think of a striker in the world who has scored so many important goals, never mind a midfielder.
+ - I’m still young and everyday I want to learn more. I feel I am beginning to find myself.
+ - I don’t like to plan anything.
+ - There’s just something about Highbury that is difficult to describe. When you first arrive, you hardly see the stadium and wonder where it is but then you find it between two blocks of flats.
+ - You kind of never leave Arsenal. How many comebacks do you make? At one point it will turn out to be a bad move. We all love the first Rocky but I’m not too sure about the last one.
+ - I am a believer in passing the ball on the ground, I was lucky to be part of teams like that at Arsenal, with the French national team and with Monaco and at Barcelona. I know you can win in other ways, but I believe that is the way football should be played.
+ - At the end of the day, you either want or you don’t want to know about it. It’s a mercy thing – you have to give back. However you do it, you have to give something back. You have to.
+ - I am not a cheat and never have been.
+ - What I believe is this: Catalunya is not Spain, it is something else and you have to feel it.
+ - For years Paul Scholes has been one of the best players in the Premiership. He’s incredible. He has always been under-rated throughout his career. He’s a team player, a one and two-touch footballer who makes good decisions on the pitch and makes his team play.
+ - I hope you have enjoyed watching as much as I have enjoyed taking part.
+ - Barcelona is always a club that, at the beginning of the season, wants to win everything. I will try my best to do that with them and I’m sure I will help as much as I can.
+ - So many people say that obviously my game has changed since I arrived here and I say that it’s good that it changed, otherwise it would show a lack of intelligence.
+ - I only deal in what is real. To be honest, I’ve never thought about what I could get out of football or where it would take me. I just wanted to play. I’m the same now.
+ - I can’t stay in the box and wait for the ball. I can’t – I would die.
+ - You can never have enough trophies. If there were ten to be won a year I’d want to win them all! That’s not being greedy, it’s just a natural thing.
+ - King would get the ball off you without you even noticing he’s the only defender in England who doesn’t hold onto you, and he sometimes still gets the ball off my feet easily.
+ - Sometimes in football you have to score goals.
+ - I’ll never forget the club or him I don’t see Arsenal without Arsene Wenger.
+ - I have the possibility to watch Messi in training each morning, and because of what he demonstrates he is the best player in the world, he stated during a press conference. It is a pleasure to watch him, and because of the way he plays he is an undisputed leader of the Barcelona team.
+ - People are talking about me more than they talk about Eastenders.
+ - And I don’t really like golf. I know a lot of English footballers play, but I know that if I go with the club to play, sooner or later I will end up trying to smash the ball with my foot.
+ - Being seen as the best striker in Europe doesn’t spur me on-it’s helping my team to success. That’s my only aim. I’m not a machine.
+ - It’s not about me, it’s about how I can help my team to achieve more. And I do that through scoring goals.
+ - I have to say that when I was young, when any politician was talking I wasn’t even interested. Maybe they were saying some nice stuff, but then if you put Michael Jordan on TV, I was interested!
+ - Quite simply, it is true that I can be a pig! It is not a lie to say that. Sometimes, I feel that I am in the right even when I am wrong.
+ - Without any doubt the best player in the Premiership has to be Scholes. He knows how to do everything, and he is one who directs the way his team plays. On top of that, he has indestructible mental strength and he is a genuine competitor.
+ - No, because retiring is stopping. If I wanted to stop, I would have stopped.
+ - When you look at other sports, like golf, the players earn a lot more money without running around.
+ - It’s difficult to talk about Pele because I didn’t see him.
+ - That’s the way I’ve been educated: I always think about what I missed and the things that you did, you did them, so you don’t have to think about them any more.
+ - It is important for me to feel at home.
+ - We all love the first Rocky, but I’m not too sure about the last one.
+ - People always see the goals, and for me, strikers are not only about scoring goals.
+ - My dad always taught me to never be satisfied, to want more and know that what is done is done.
+ - I may be French, but I’m playing for Arsenal.
+ - When I was younger I was trying to do what I wanted to do, not what the game wanted me to do.
+ - But one thing you need to do in the game, is to adapt and adjust your game to what you have been asked to do and also to what your body is telling you to do.
+ - If I had a Paul Scholes in my team, everything would be around him. At Manchester United, they saw it like that, but I think Paul Scholes is one of the best I’ve played against in this league, and seen anywhere.
+ - I like to score a proper goal, you know – a passing move.
+ - I take the ball, I go wide, I cross, I shoot, but when the moment beckons, I am ready to make the difference.
+ - When I go home, sometimes, even when I had an amazing game, I always think about what I missed.
+ - It was tough at the time but when I was younger, my Dad. I would say my Dad, because without him I wouldn’t have been here. I mean it was tough for me because he was really demanding. With him, it was never enough, you know, anything I did was never enough.
+
+58 quotes

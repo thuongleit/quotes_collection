@@ -1,0 +1,131 @@
+ - One man’s trash is another man’s treasure is a third man’s raw materials for their planet-buster earthquake machine.
+ - You can’t kill the truth.
+ - Words have power.
+ - Nobody cares if you’re an idiot, as long as you’re a useful one.
+ - Blood is thicker than water, but family isn’t just about blood. Family is about faith, and loyalty, and who you love. If you don’t have those things, I don’t care what the blood says. You’re not family.
+ - One man’s gospel truth is another man’s blasphemous lie. The dangerous thing about people is the way we’ll try to kill anyone whose truth doesn’t agree with ours.
+ - Sometimes, the hardest habit to break is the habit of doing nothing beyond the necessary.
+ - Given a choice between life and death, choose life. Given a choice between right and wrong, choose what’s right. And given a choice between a terrible truth and a beautiful lie, choose the truth every time.
+ - Sometimes humanity is the reason we can’t have nice things.
+ - The difference between the truth and a lie is that both of them can hurt, but only one will take the time to heal you afterward.
+ - Blood is one thing, but that’s not all that goes into family. The family you choose is the family that really matters. They’re the ones who’ll keep you standing.
+ - No one wants to set out to be a hero, and discover that they’ve been a villain all along.
+ - Be good. Be kind to each other. And if there’s somebody you love, tell them. The world always needs more love.
+ - When Rome burned, the emperor’s cats still expected to be fed on time.
+ - Do we have to have the ‘don’t lie to the telepath’ talk again? It won’t take long. I say ‘don’t lie to the telepath, it never works,’ you glare at me, and then you go find something you can hit.
+ - Things it is not polite to discuss at the dinner table: politics, religion, and the walking dead.
+ - Well, that’s that, then. We’re all going to die. Charming.
+ - It felt odd to be laughing during a firefight. Then again, if you can’t laugh when you’re about to die, when can you?
+ - The laws of physics have already been violated. What happens if they decide to press charges?
+ - Librarianship is a form of heroism. It’s just not as flashy as swords and dragons.
+ - We have to burn brightly. We can’t burn forever.
+ - Never tempt fate. It plays for keeps.
+ - How many miles to Babylon? Three-score and ten. Can I get there by candle-light? Yes, there and back again. If your heels are nimble and light, You will get there by candle-light.
+ - People say things like “it wasn’t supposed to go this way” and “this isn’t what I wanted.” They’re just making noise. There’s no such thing as “supposed to,” and what you want doesn’t matter. All that matters is what happened.
+ - A proper lady should be able to smile pretty, wear sequins like she means it, and kick a man’s ass nine ways from Sunday while wearing stiletto heels. If she can’t do that much, she’s not trying hard enough.
+ - I’d say it was nice knowing you, but as you’ve effectively ruined my life, it almost certainly hasn’t been.
+ - I guess in the end, it doesn’t matter what we wanted. What matters is what we chose to do with the things we had.
+ - Our story opens where countless stories have ended in the last twenty-six years: with an idiot – in this case, my brother, Shaun – deciding it would be a good idea to go out and poke a zombie with a stick to see what happens.
+ - It’s not hard to marginalize people when they’ve already done it to themselves.
+ - The Argentine tango isn’t here to play nicely with the other children. The Argentine tango is here to seduce your women, spill things on your rug, and sneak out your bedroom window in the middle of the night.
+ - There’s no such thing as a normal life. Some lives are just more interesting than others, and we shouldn’t judge people for being boring.
+ - If we didn’t fear the truths we didn’t hear, we’d lose the need to fear the ones we did.
+ - I just find it interesting that kids apparently used to cry when Bambi’s mother died. George and I both held our breaths, and then cheered when she didn’t reanimate and try to eat her son.
+ - Alive or dead, the truth won’t rest. Rise up while you can.
+ - Shaun get your sister her glasses. She looks naked without them. It’s creeping me out.
+ - There weren’t any fairy tales in the streets around me. If there was ever a Cinderella, her glass slippers shattered under her weight and she limped home bleeding from the ball.
+ - He had the same empty confusion in his eyes that I saw in my mirror every morning, that odd sort of denial that only seems to come when the world decides to jump the rails without warning you first.
+ - My mother once told me that no woman is naked when she comes equipped with a bad mood and a steady glare.
+ - Dramatic exits are the last refuge of the infantile personality.
+ - Nothing lasts forever. That’s the tragedy and the miracle of existence – that everything is impermanent. Everything changes. All we can do is make the best of the time we have. And go down shooting, naturally.
+ - The only thing we have in this world that is utterly and intrinsically ours is our integrity.
+ - I recommend Avon Skin-So-Soft. It’s a bath product. It smells like someone fed a Disney Princess through a juicer, but it works better than anything else on the market.
+ - You are truly endearing when you sleep. I attribute this to the exotic nature of seeing you in a state of silence. – Tybalt.
+ - That’s the nice thing about insanity: evil people kill you, but crazy ones try to make you understand.
+ - Well, that’s not something you see every day. Go tell your father that Grandma needs the grenades.
+ - Failure to die is always appreciated.
+ - When you’re late in a fairy tale, people wind up dead. And not true-love’s-kiss, glass-coffin-nap-time dead. Really dead, the kind of dead you don’t recover from.
+ - Behold the power of the truth. When people see its shadow on the wall, they don’t want to take the time to look away.
+ - That’s the trouble with being scared all the time. Eventually, people just go numb.
+ - Mother Nature is a freaky lady who probably created pot so she could spend all her time smoking it.
+ - I am a zombie fan, but all of the zombie stories Ive enjoyed started when the dead rose and ended three days later with everybody looking exhausted. I was thinking, What happens in 20 years?
+ - I wanted the truth, and I wanted the news, and I’d be damned before I settled for anything less.
+ - We live in a world where joy is possible, love is possible, happiness is possible; where all things are possible, if we’re willing to take the time, take a chance, take a breath and step off the edge of everything that is for the sake of everything that might be.
+ - There is a list of things Im not allowed to discuss at the dinner table! I am extraordinarily passionate about the Black Death, which is not something most people are into.
+ - Besides, killing all the humans will totally trash the cable schedule, and there are some shows I’m really excited to have back on the air.
+ - The one thing I have absolute faith in is mankind’s capacity to make things worse. No matter how bad it gets, we’re all happy to screw each other over. It’s enough to make me wonder if we should have let the zombies win.
+ - Everyone thinks of them in terms of poisoned apples and glass coffins, and forgets that they represent girls who walked into dark forests and remade them into their own reflections.
+ - His idea of traffic safety is going too fast for the cops to catch up.
+ - Life as the chosen religious figure for a colony of cryptid mice can be a lot of things, but it’s definitely never boring.
+ - We were the ones on scene when everything went down. We weren’t better. We weren’t worse. We were just the ones standing in the blast radius.
+ - Hysteria takes too much energy to be maintained forever.
+ - Children’s games are stronger than you remember once you’ve grown up and left them behind. They’re always fair, and never kind.
+ - Jan built herself an ivory tower to keep the wolves out; she never dreamed they were already inside.
+ - I am, in fact, immortal when annoyed.
+ - There’s only one thing we never wrote down. You know what it was.
+ - If anything, global response to the Rising only confirmed something that many Australians had quietly believed for quite some time: If forced to live in Australia for a year, most of the world’s population would simply curl up in a fetal ball and die of terror.
+ - Now I’m a God, but tomorrow, when you have to stop me from playing with dead things again, you’ll be right back to calling me an idiot, won’t you?
+ - That’s where the dreams end: with the realization that it doesn’t matter where I am, whether I think I’m a woman or a fish or something in-between. I’ve never really left the pond. I still can’t breathe.
+ - I require something so horrifically alcoholic that it makes livers tremble with fear and run for their lives when its name is uttered.
+ - She told the truth as she saw it, and she died for it. I came along for the ride, and I lived. It wasn’t worth it. But it was the truth, and it was what had to happen.
+ - George, she says it’s the truth that matters. We live and die for the chance to maybe tell a little bit of the truth, maybe shame the Devil just a little bit before we go.
+ - I’m a decent sprinter and I can gun a motorcycle from zero to suicidal in less than ten seconds.
+ - Whoever authorized the evolution of the spiders of Australia should be summarily dragged out into the street and shot.
+ - You can’t win. Logic has no power over her when her territory has been invaded by heathens.
+ - You’d challenge me and lose. You know it, I know it, but you’d still do it. Sometimes your sense of honor confuses the hell out of me.
+ - If you want to go foraging into the wilds of Canada without proper gear, you deserve what you get, even if that happens to include being attacked by an undead moose.
+ - Madness is surprisingly freeing.
+ - Humans have always preferred to live their lives? by daylight. I used to think it was because human beings have crappy night vision, and it wasn’t until I got older and more cynical that I realized it was because they have less to be afraid of during the day.
+ - I’ve done tangos with men who thought my ass was a squeaky toy.
+ - See, Quentin, that’s why you should wear a cup before trying to assassinate someone.
+ - It is what it is. Isn’t that how these things always go? They are what they are. We just get to cope.
+ - Don’t start. My mood stays better if you don’t start.
+ - Running around in the grass near an unsecured structure and a bunch of trees is a good way of taking yourself out of the gene pool.
+ - Crazy gets all the knives.
+ - Danger is a side effect of what I do, not the reason behind it.
+ - I’m a cat. We aren’t required to make sense.
+ - Protecting the human race should really come with a per diem, I swear.
+ - Follow the rules whenever possible. That makes it a lot more surprising when you break them.
+ - Think about that for a moment. They died for you. Now take a good look at the life you’re living and tell me: Did they do the right thing?
+ - Kellis-Amberlee is a fact of existence. You live, you die, and then you come back to life, get up, and shamble around trying to eat your former friends and loved ones. That’s the way it is for everyone.
+ - In my defense, the corpse was entirely unexpected.
+ - Just once, I want to meet the villain in a cheerful, brightly lit room. Possibly one with kittens.
+ - I’ve seen that mixture of resignation and hopelessness before; its usually in my mirror.
+ - There was no warning before the outbreaks began. One day, things were normal; the next, people who were supposedly dead were getting up and attacking anything that came into range. This was upsetting for everyone involved, except for the infected, who were past being upset about that sort of thing.
+ - Life’s more fun when you take the chance that it might end.
+ - The world is out of order. It’s been broken since you came.
+ - Any good Irwin can make going to the corner store for a candy bar and a Coke lood death defying and suicidal.
+ - Nothing is impossible to kill. It’s just that sometimes after you kill something you have to keep shooting it until it stops moving.
+ - This is Shaun Mason activating security protocol Campbell. The bridge is out, the trees are coming, and I’m pretty sure my hand is evil. Now gimme some sugar, baby.
+ - The people who have the power want you scared. They want you walking around paralyzed by the notion that you could die at any moment.
+ - That’s Becks. Always ready to offer a helping headshot.
+ - We are in the middle of what looks increasingly like the zombie apocalypse. Moaning people don’t need help. Moaning people are intending to eat us.
+ - He didn’t have much strength to offer, but what he did have was hers without question.
+ - There will always be people for whom hate is easier when it’s not backed up by anything but fear.
+ - A martyr’s just a casualty with really good PR.
+ - I’ll challenge senators and kings for the right to know the truth, but far be it from me to challenge a woman in her own kitchen.
+ - By the time Buffy finished its Bay Area theatrical run – including a two-month stint at the dollar theater – I had seen the movie well over three dozen times. I was in love.
+ - Pronouns are only useful when you combine them with other words. I have a few I can give you, if you’re at a loss.
+ - I feel the closest to crazy when I’m disagreeing with the voice in my head.
+ - When you’re going to play with dead things, do it during the daylight.
+ - There comes a point when you need to get over the fear and get on with your life, and a lot of people don’t seem to be capable of that anymore. From blood tests to gated communities, we have embraced the cult of fear, and now we don’t seem to know how to put it back where it belongs.
+ - May posterity show mercy when it look back upon the work we do today. We did what we could with what we had.
+ - Any man who doesn’t believe in carrying weapons on a first date is not a man worth knowing.
+ - Never steal another reporter’s story; never take the last of another reporter’s ammo; never mess with another reporter’s computer. Those are the rules, unless you work for a tabloid, where they replace “never” with “always”...
+ - Most guys my age have girlfriends and drinking buddies on their speed dial. Me, I have the Memphis CDC.
+ - Mira Grant is actually my pseudonym. And Seanan is pronounced SHAWN-in.
+ - Fooling laymen with science is sometimes so easy it should be criminal.
+ - Etienne gave me lessons. Three of them. Then he said I was a menace and refused to teach me anything more for fear that I’d slice his head off.
+ - At least you know that you’re crazy. That means you have the potential to recover.
+ - If anything attacked us, we could just panic at it until it went away.
+ - And then everything was in the hands of gravity, which has never had much love for the terminally stupid.
+ - That’s the beauty of the future. We get to change it.
+ - No one should be posing for duck-lipped selfies with the plaque of the dead. That wouldn’t be right.
+ - Sometimes you need lies to stay alive.
+ - Time never runs backward when I need it to. Not for me, and not for anyone else.
+ - We are a nation equally afraid of gathering together and being alone.
+ - Some people say I have issues. I say those people need to expand their horizons because I don’t have issues, I have the Library of Congress.
+ - There is nothing truer in this world than the love of a good dog.
+ - Some lines were never meant to be crossed, however good your cause may seem.
+
+129 quotes

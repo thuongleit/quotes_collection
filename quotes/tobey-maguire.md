@@ -1,0 +1,24 @@
+ - I am a blank slate – therefore I can create anything I want.
+ - If I wanted to go be social I would. I don’t have any fear of that. I don’t feel like I’m a shy person at all.
+ - I’m not into sugar for kids, but you don’t want your kid to be the carrot kid. There’s always the kid at the birthday parties carrying a bag of carrots. You’ve got to let them eat a little cake.
+ - I think the greatest way to learn is to learn by someone’s example.
+ - The most attention I get is in a book store or video shop when I go to the foreign film section. Sometimes that can be fun, but usually those women want to talk about philosophy or something very dense. It’s not like they’re tearing off my shirt, you know.
+ - I might have some character traits that some might see as innocence or naive. That’s because I discovered peace and happiness in my soul. And with this knowledge, I also see the beauty of human life.
+ - I’m so critical of my own work that it’s difficult for me to disassociate myself and watch it as an audience.
+ - If I’m in a social situation sometimes I’ll hang back and observe people but I feel very much a part of things most of the time and feel very comfortable socializing and have for most of my life.
+ - It is hard to predict what I want in a partner. It’s more about what the universe brings to me, and what I feel is right.
+ - You live for those really great scenes where you almost feel that the film has gone beyond what was printed on the script pages and been raised to another level.
+ - When I first saw Spiderman, I had no idea who he was. I later read in an article that he doesn’t work much because he only picks projects he believes in.
+ - To me, the whole idea of fame and I think it can be a real test of somebody, of who they are. You know, ’cause some strange things happen. I’ve seen some peculiar things as far as a person just living their life.
+ - It definitely deserved an Oscar, but not a Golden Globe.
+ - I started working around eigth grade. I remember doing a Doritos commercial where there were four days in a row of eating them, and I will tell you, I have not eaten many Doritos since.
+ - If you’re sitting in the audience, you probably can’t see the preparation and work that goes into creating a great scene or a great part, but I can assure you that a good film depends on lot of different things falling perfectly into place.
+ - I just try to try to keep an attitude that I don’t know what I’m doing. Not to the point where I’m beating myself up, but I just go in thinking that I have a lot to learn. And I hope I still have that attitude 30 years from now.
+ - There’s so many things I want to do. I want to work with great filmmakers, great actors, great scripts. And there’s no reason for me to do anything short of that, because I’m 24, I don’t have a family, I don’t need to make tons of money, and I’m not dying to get famous.
+ - I’ll go do films for three or four months and then I can’t wait to go home to LA. And I complain about LA left and right, but then I always end up wanting to go home, you know?
+ - I had no expectation about getting a nomination, but I was watching nonetheless. My wife and my son got really excited. I was sort of surprised – I was like, ‘Oh, wow.’ And I couldn’t hear the latter part of my name.
+ - People, photographers, people in the press can sometimes be inappropriate.
+ - I believe in a higher force that is within me.
+ - It’s never really been that hard for me. I’ve never had any desire to eat meat. In fact, when I was a kid I would have a really difficult time eating meat at all.
+
+22 quotes

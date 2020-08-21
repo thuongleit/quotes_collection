@@ -1,0 +1,40 @@
+ - My dream job would be a lawyer. I can talk my way out of anything, and I love cross-examining people. I think I’d be a really good lawyer.
+ - Id rather have a fake smile than a nasty stare.
+ - We all need to slow down and go to acupuncture.
+ - It’s always harder to be the one who’s left behind than the one who leaves.
+ - At the end of the day, I’m not a bad person; I don’t hurt anyone.
+ - I don’t need anyone to look after me financially and, while it’s hard to trust that a man loves you for the right reasons, you have to take a leap of faith.
+ - My mum is Croatian, and obviously she’s female and she’s very emotional, very hot-blooded, very touchy-feely, whereas I think my dad’s quite British.
+ - Respect earned through fear instead of deeds, was not truly respect.
+ - I don’t stay anywhere. I visit. I observe. I leave. I don’t ever stay.
+ - Courage is ignoring your fear.
+ - I’m not religious, so theres no church on Sunday.
+ - I think I’m a good judge of character.
+ - When you are rich, people try to take advantage of you.
+ - I enjoy shopping and going on holiday.
+ - My parents are opposites who balance each other out.
+ - There are so many misconceptions about me, and it gets frustrating no matter how thick skinned.
+ - My sister would say I’m a feeder because I like cooking for people.
+ - I, for one, am ready for a lot more adventure and a lot less nothing.
+ - My boyfriend thinks it’s crazy that I wear a different bikini every day on holiday.
+ - Before mobile phones, I used to call my parents from a phone box and reverse the charges.
+ - People don’t get my sense of humour.
+ - My dogs are spoilt for sure. They are pampered pooches. But I love them so much! I guess all dogs need to be washed, but maybe blueberry facials aren’t essential. It’s quite fun, though. You want to give your children everything; I don’t have children, so I want my dogs to have a good life.
+ - Everyone has a past, and the downside to my life is that the past gets dragged up.
+ - Without trust, you have nothing: trust is so important to me.
+ - Formula One has been the backdrop of my life.
+ - I know I’m never going to be as successful as my dad, but I get bored doing nothing. I couldn’t go from vacation to vacation and have no motivation.
+ - My father started with nothing and is a self-made man. No matter what I do with my life, I can never match his accomplishments.
+ - I understood from an early age what being competitive means.
+ - I don’t think that coming from a privileged background makes you this monster who doesn’t feel things.
+ - I do believe in happy-ever-after.
+ - Sometimes milestones are not measured by the accomplishments of society, but by those of integrity.
+ - My hair is naturally really thin and dead straight, with no movement.
+ - There’s a big difference between being privileged and being spoilt. My parents always said, ‘Spoilt means ruined, and you’re not ruined, just incredibly fortunate.’
+ - I’m the sort of person who takes a camera to dinner or a nightclub because I enjoy taking pictures of people. I tweet all my pictures, which is bad.
+ - As a woman, I believe you have to embrace your body, and feel beautiful both inside and out.
+ - I’m aware people will think I’ve had an easy way into a dream career. My view is, if anyone has opportunities, they’ll take them. My surname opens doors, but those doors will slam firmly if I’m no good.
+ - You don’t find happiness by being able to buy everything you want, whenever you want it.
+ - I was raised to want to work for a living. The idea of just sitting around or going shopping every day appalls me.
+
+38 quotes

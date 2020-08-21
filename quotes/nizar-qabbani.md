@@ -1,0 +1,31 @@
+ - A tragedy, when a mature mind and a romantic heart are in the same body.
+ - Days will pass, and you’ll abandon things you were addicted to, and leave someone, and cancel a dream, and finally, accept a reality.
+ - And the writing is still : to you, with you, about you, because of you and for you.
+ - My lover asks me: “What is the difference between me and the sky?” The difference, my love, Is that when you laugh, I forget about the sky.
+ - Don’t lose a woman that has seen your flaws and still love you.
+ - Don’t love deeply, till you make sure that the other part loves you with the same depth, because the depth of your love today, is the depth of your wound tomorrow.
+ - Because my love for you is beyond words, I decided to shut up.
+ - Life doesn’t stop after losing someone, but it goes on without them differently.
+ - If you want to kill somebody, conquer his heart, Then leave slowly and leave them between death and madness.
+ - The female doesn’t want a rich man or a handsome man or even a poet, she wants a man who understands her eyes if she gets sad, and points to his chest and say : ‘Here is your home country.’
+ - And I fear that my place gets taken by some other one, very lucky and not too shy, who flirts with your eyes while I’m the one who’s crazy about them.
+ - Dive into the sea, or stay away.
+ - Your love taught me to grieve and I have been needing, for centuries a woman to make me grieve for a woman, to cry upon her arms like a sparrow for a woman to gather my pieces like shards of broken crystal.
+ - Light is more important than the lantern, The poem more important than the notebook.
+ - We are a thick skinned people with emtpy souls. We spend our days playing dice, chess, or sleeping – and we say we are the best people that ever came to mankind?
+ - There is who loves you quietly, and respects you quietly, and wishes you privately, and walks away when he sees you busy with someone other than him, and his ego restrains him from getting near you, and contents himself with the love for the sake of love.
+ - We killed you and it was not new for us, we killed the companions of the Prophet and the friends of God. O how many Messengers did we slay? O how many imams? We killed you and you prayed the night prayer, as all of our days are struggle – and all of our days are Karbala.
+ - There are some people that we didn’t forget, but we don’t smile any more when they’re mentioned.
+ - Our shouting is louder than our actions, Our swords are taller than us, This is our tragedy. In short We wear the cape of civilisation But our souls live in the stone age.
+ - What we feel is beyond words. We should be ashamed of our poems.
+ - We need an angry generation, A generation to plow the horizons.
+ - In the summer I stretch out on the shore And think of you. Had I told the sea What I felt for you, It would have left its shores, Its shells, Its fish, And followed me.
+ - Our enemies did not cross our borders They crept through our weaknesses like ants.
+ - O Sultan, my master, if my clothes are ripped and torn it is because your dogs with claws are allowed to tear me.
+ - When a man is in love how can he use old words? Should a woman desiring her lover lie down with grammarians and linguists? I said nothing to the woman I loved but gathered love’s adjectives into a suitcase and fled from all languages.
+ - It’s painful to listen to the barking of dogs.
+ - Some are like the Moon, good looking, but only when they’re away from you.
+ - The word is a bouncing ball The ruler throws from his balcony. The word has been a shot of morphine. Rulers calm their people with speeches.
+ - We praise like frogs, Swear like frogs, Turn midgets into heroes, and heroes into scum: We never stop and think.
+
+29 quotes

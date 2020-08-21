@@ -1,0 +1,129 @@
+ - Life is a game and true love is a trophy.
+ - I really need to know I may just never see you again, or might as well You took advantage of a world that loved you well I’m going to a town that has already been burnt down I’m so tired of you, America.
+ - Somebody curse the light And take me far away from myself.
+ - There’s no life without humour. It can make the wonderful moments of life truly glorious, and it can make tragic moments bearable.
+ - I am undefinable. I don’t fit into any particular category.
+ - Faith is a bluebird you see from afar, it’s for real and as sure as the first evening star. You can’t touch it or buy it or wrap it up tight, but it’s there all the same, making things turn out right.
+ - I made the decision to take on board the critical feedback. Reviews are something you can easily ignore as a performer or writer but I chose to not ignore them here and I think that I benefited. I think I’m stronger for it – and I have a tougher skin as a result.
+ - Let the little fairy in you fly!
+ - I’m your knight in shining armor. I’m here to save you from Linkin Park.
+ - My cheeks explode when I smile. Thats why I have to look so nonplussed.
+ - And I am left behind Corrupted crushed and blind All for a dream That in truth was never really mine.
+ - What I love about my daughter is that she is going to definitely allow me and force me to change my life and slow down and make it more about the real things in the world.
+ - I’ve developed into quite a swan. I’m one of those people that will probably look better and better as I get older until I drop dead of beauty.
+ - And you will believe in love And all that it’s supposed to be But just until the fish start to smell And you’re struck down by a hammer.
+ - The mind has so many pictures Why can’t I sleep with my eyes open? The mind has so many memories Can you remember what it looks like when I cry? I’m trying, trying to tell you All that I can in a sweet and velvet tongue But no words ever could sell you Sell you on me after all that I have done.
+ - Unless I have my aunt or my boyfriend to take care of me, I’m a little pathetic.
+ - I wish I could just relax sometimes and make some money, but I always feel like I have to prove some kind of big, profound point.
+ - All humans realize they are loved when witnessing the dawn; early morning is the triumph of good over evil. Absolved by light we decide to go on.
+ - I believe a lot of our lives are spent asleep, and what I’ve been trying to do is hold on to those moments when a little spark cuts through the fog and nudges you.
+ - That will to love is very powerful. But it doesn’t always win.
+ - Madonna created a monster that sucks up souls.
+ - I just think it’s better to have ideas. I mean, you can change an idea. Changing a belief is trickier, people die for them, people kill for them.
+ - I’m not a terrible smoker, actually. My major addiction, which is horrible, is straight boys.
+ - I don’t want to hold you and feel so helpless I don’t want to smell you and lose my senses And smile in slow motion With eyes in love.
+ - I’m not born again, I’m not Kabbalah, God forbid, but I did have an experience hitting 30 that I needed to lean on something that assured me that everything is going to be okay. I had to regain a lot of my belief in fairy tales, in happy endings.
+ - All these poses of classical torture ruined my mind like a snake in the orchard. I did go from wanting to be someone, now I’m drunk and wearing flip-flops on Fifth Avenue.
+ - I believe in freedom Freedom’s apparently all I need But who’s ever been free in this world? Who has never had to bleed in this world?
+ - You had to be an over-the-top, demanding, dramatic figure in order to progress as a woman in Europe over the last few hundred years. Now people say, “You’re being such a prima donna,” meaning you’re being hard to deal with or crazy. It’s a bit sexist.
+ - I’m a big fan of the Pre-Raphaelites. Millais, Edward Burne-Jones, and I realised recently that my music is Pre-Raphaelite in a certain way, in that it reinvents an older era and romanticises it, puts it in this gilded frame.
+ - I think my imagination and my passions are still firing away, but it’s really the body that starts to make up the rules. It’s not a major problem; it’s just when you get a little older you realize how much your body thanks you when you are good to it.
+ - I’ll always be a boulevardier. I have an extreme reverence and romantic longing for all that is decrepit and fatalistic.
+ - I very much faced my mother’s death with hard, arduous and time-consuming labor. The more I would do, the less I would feel.
+ - I don’t know if it will be my big comeback, but I think it is a statement – that I am a self-sustaining, vibrant, long-term artist, and I’m not going away! And if you don’t give me credit, then the musical gods will!
+ - Mowing your lawn is against nature.
+ - Places that have experienced great defeat experience a kind of rebirth, which I think America has to do – unless we want to get more decrepit. I don’t think we have to destroy the place totally.
+ - But I don’t even think you hear me at all Under your medieval ceiling behind your biblical wall.
+ - Crazy as it sounds, I’m a believer in destiny and serendipity, and I have had cosmic experiences all my life. Something told me I was meant for greater stuff. And look, I’ve had a baby! And I’ve written an opera!
+ - I may not lead the most dramatic life, but in my brain it’s ‘War and Peace’ everyday.
+ - You get to a certain age, and you feel the need to reward yourself just for existing.
+ - I don’t really have a relationship with the guitar; it’s like my slutty lover, whereas I’m married to the piano.
+ - I am ridiculously high-maintenance.
+ - When it comes to sitting down and composing, there is no hesitation, no concern, no critics breathing fire down my neck. For me, writing a song is the purest part of all. No one can mess with that.
+ - I was in the forest jumping around daffodils while everyone was high on heroin.
+ - I bemoan the fact that all my famous friends have places in St. Bart’s and I have to go to Montauk.
+ - My love of maple syrup. I’ve been known to knock back a can over a couple days: A swig here, a swig there, and next thing you know it’s gone. It’s a habit I have to stave off. I don’t want to lose all my teeth.
+ - I’ve written songs for Shirley Bassey, Marianne Faithfull, and Linda Thompson. I sort of focus on these wonderful, aging divas. But maybe that’s because I think I’m Christina Aguilera.
+ - Opera needs to be a total escape from real life. To relate to what we’re going through today is fine and dandy, but it’s really about being transported and completely swept away by a romantic notion.
+ - I am always writing; if you want to survive in this business, you need to keep working, keep creating and never stop the output.
+ - For me, the iPhone is harder than reading Faust.
+ - If I had had more of a strategic attitude towards how to reveal my sexuality, and if I’d even played with it a little more, I could have sold a lot more albums and been a lot more famous.
+ - I’m definitely a fan of juxtaposition. Using the most beautiful line to say the most horrific thing – I think one of the main things in songwriting is definitely friction between the words and the melody.
+ - I definitely consider ‘Poses’ – the whole album in fact – to be kind of a miracle. Like the last breath of that moment when decadence is healthy, ‘Poses’ encapsulates that feeling. It’s a kind of song and a kind of album that I’ll never be able to repeat.
+ - I’m hyper light-sensitive and must sleep in the equivalent of a sealed tomb.
+ - One day you will come to Montauk and see your dad playing the piano And see your other dad wearing glasses Hope that you will want to stay for a while Don’t worry I know you’ll have to go.
+ - I really do fear that I’m dying I really do fear that I’m dead I saw it in your eyes what I’m looking for I saw it in your eyes what will make me live.
+ - I like to try new things.
+ - I love being not cool.
+ - I have a lot of advantages: I’m not addicted to horrifying pills. I also have surrounded myself with far more caring and upright individuals. And I wasn’t abused as a child, so I’m doing okay!
+ - I think we could all be a bit more elitist.
+ - Being uncool is being pretty much the coolest you can be.
+ - There’s prejudice everywhere. I don’t think the music industry is as bad as the movie industry. But I have taken a few hits over the years for my sexuality, and for being honest about my life. In the end, it’s the music that rules the roost.
+ - Cigarettes and chocolate milk These are just a couple of my cravings Everything it seems I like’s a little bit stronger A little bit thicker A little bit harmful for me.
+ - Musically I’m able to keep going, because it’s not about money and it’s not about success. It’s a challenge.
+ - Writing an opera and premiering in England, you could say I was going right into the eye of the storm and I came out successfully. A little tattered and bruised, but so what, I made it.
+ - I want to carve out a serious period of time to focus on the next opera without any distractions. And to do that you need money.
+ - I have a three-year-old daughter, which makes me more environmentally conscious. For me, it’s about the future.
+ - I came out of the closet very young, and I had to cut my teeth pretty fast.
+ - Once you’ve fallen from classical virtue, won’t have a soul for to wake up and hold you.
+ - The moment something happens to one you love, it’s twenty times more intense. You experience pain and enlightenment on a much vaster scale.
+ - The Germany I was enthused with was more old fashioned and kind of romantic. I just got there, and the next thing you know, I had this huge gilded album. It was kind of an amazing experience because I didn’t intend it to be that way.
+ - After years of hotels, I’m horribly inept at cleaning up after myself.
+ - Some people go to Berlin to get more cutting edge; I went and started wearing lederhosen and going to visit baroque palaces.
+ - There is actually a great book called Prima Donna by Rupert -Christiansen that deconstructs the myth. In fact, many of the women who were prima donnas were feminists and incredible forces for their time.
+ - When it came to using elements of your personal life in your work, my mother was the master, or the mistress. There were three or four songs she wrote about my father – songs about failed love.
+ - I like to make the mundane fabulous whenever I can.
+ - To me, songs come of their own volition – and with an open-ended philosophy.
+ - Putting all of my time In learning to care And a bucket of rhymes I threw up somewhere Want a locket of who Made me lose my perfunctory view Of all that is around And of all that I do.
+ - The thing I hate most is false modesty. The artists who are, like, ‘Oh, you know, I’m really not that good. Oh, I can’t believe I’m here.’ I find it vaguely sinister, even.
+ - When I’m in the classical world, I really treat it as exactly classical and I don’t try and spruce it up or jazz it up or make it easier for the masses.
+ - I personally don’t have the ability to lie about my life, for better or for worse.
+ - There is this church that I go to a lot in New York. I’m not religious but I love lighting candles and stuff. I find it useful.
+ - I am regarded as a usurper, as an imposter and dilettante, because I do technically come from the wrong side of the tracks in musical terms.
+ - I think my mother, more than anyone, knew the importance of inspiration. If it was occurring, you had to use it.
+ - The artist who gave me the most inspiration and direction, especially as a singer – and I absolutely consider myself a singer, 100 percent – is Nina Simone. She’s my ultimate pianist-singer-type person.
+ - I definitely have a Luddite’s approach to what’s going on. I find that as I get older, I get stupider.
+ - These are just the rules and regulations Of the birds, and the bees The earth, and the trees, Not to mention the gods, not to mention the gods.
+ - I have this horrible, horrible habit of going on YouTube and checking out comments about what I do.
+ - Every video I do is over budget by the time I walk on set. I am massively extravagant in my personal habits.
+ - Premiering a new opera is probably one of the hardest things in the world to do, and opening nights of any opera are always pretty stressful.
+ - In the present world, this technological, psychotic, politicised, nonsensical world, you have to believe that the good guys are going to win! That evil will be banished somehow!
+ - Once illness strikes, you realize there’s not a lot of time for you to do what you really need to do. And there’s no time like the present.
+ - I’ll be honest, I worry sometimes about what I’ve done. I have tied my whole person to my art and, whatever it takes to get that hook, I will go there and do it.
+ - I have an ounce of Lady Gaga’s full-bodied ambition.
+ - I think the minute you mention death, people run for the hills – unless it’s heavy metal. People do not like death.
+ - As an artist, you put so much into what you do and it can all be torn down in a nanosecond.
+ - Certainly in terms of my life – anybody’s life – you go through death, childbirth and marriage, glory and defeat, and so on.
+ - I’ve been thinking of trying my hand at rap. I’ve been recording snippets on my BlackBerry.
+ - One of the main destructive forces within our family has been these runaway egos. I think if you look at any show business family, that struggle exists.
+ - I like to sing to Verdi, I like singing to Sibelius, and Mahler maybe.
+ - I have a good face for what I do.
+ - I have never cooked a meal in my life and always end up paying for dozens of people to eat with me.
+ - I’ve always gravitated towards opera, and the Royal Opera House is quite possibly the greatest opera house on earth.
+ - I think everybody identified at a pretty young age that I was fairly entranced with myself. And that I had to be tempered.
+ - I do not consider myself a guitar player. My father is a guitar player – I’m not.
+ - My dad and I have always been somewhat competitive.
+ - I’m very much a romantic. I’m highly attuned to an older sensibility, which I believe is alive and well. We’re not that far ahead of the Romantic Age in society.
+ - Well, my great lesson with that was I went to the same production twice – once completely high and once completely sober – and both times were equally wonderful.
+ - I would love to have a number one hit. The truth is if I don’t get one, I’ll be fine, but at the same time, the truth is that I’m dying for one, as well.
+ - My parents were serious working musicians, but they were not stars – not like pop stars that you have now. They had to make a living and that meant touring, working hard, going on the road – and we were roped in.
+ - I strive for what you do find in Shakespeare’s work – that there is a definite humanity and a definite character behind the writing in the sonnets, and it’s very real because it’s so deeply personal. I try to aspire to that in what I do.
+ - I have managed to eke out a good and substantial existence. I’m not shoveling gold bricks or anything, but I do very, very well.
+ - The operas I listen to aren’t in English, and I want to listen to my opera after I’m done with it. I want to have the desire to play it on the stereo. To me, the language is part of the mystery.
+ - I definitely try to broaden the scope of music. I don’t know if it’s pop or classical or what, but I’m religiously challenging myself all the time, for better or for worse.
+ - I still believe that love is the most powerful force in the world, even though I am yet to experience it fully.
+ - I am under no illusion that I will ever be the greatest opera composer in the world, with Wagner and Verdi and Strauss before me. I think my work could fit very nicely into musicals, though.
+ - But I want to deepen as an artist, and working with Shakespeare definitely points in that direction.
+ - I think I’ve done a pretty fantastic job, but of course I want to sell millions of records.
+ - It seems like the older I get, the more unreal the world becomes.
+ - I like to think of myself as a combination of Sid Vicious and Virgil Thompson.
+ - Everything I do, I feel is genius. Whether it is or it isn’t.
+ - I have earned hundreds of thousands of pounds, but I can’t seem to get to grips with money.
+ - Guess the world needs both sun And the moon too Sad with what I have except for you.
+ - A diaper is as inspiring as a drink.
+ - I was reared on folk music.
+ - Growing up, for years and years I had no idea what the plots of operas were, and that’s part of what fascinated me – I could make them up and learn bits and pieces of what was going on over time. There’s something about it being always a step away that makes it more fun to chase.
+ - For better or worse, I’ve always been curious musically. Whether it’s opera or Judy Garland or pop, I’ve deliberately sought those things out. I’ve never wanted to do the same things over and over. Some think I’ve accomplished what I set out to do, and others consider me a dilettante.
+ - Why be in music, why write songs, if you can’t use them to explore life or an idealized vision of life?
+
+127 quotes

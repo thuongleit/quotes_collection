@@ -1,0 +1,32 @@
+ - Horror films don’t create fear. They release it.
+ - I believe the cinema is one of our principal forms of art. It is an incredibly powerful way to tell uplifting stories that can move people to cry with joy and inspire them to reach for the stars.
+ - The first monster you have to scare the audience with is yourself.
+ - The first monster that an audience has to be scared of is the filmmaker. They have to feel in the presence of someone not confined by the normal rules of propriety and decency.
+ - I like to address the fears of my culture. I believe it’s good to face the enemy, for the enemy is fear.
+ - As long as you keep the audience on the edge of their seats, either scare them or keep them guessing, you can put anything in there that you want.
+ - I came to terms with living mostly in a world of horror pictures or genre pictures.
+ - I’m writing a film called ‘Bug.’ It’s an original script, and it’s not about killer insects. It’s a thriller set in a high school. The bug of the title refers to a surveillance device.
+ - I learned to take the first job that you have in the business that you want to get into. It doesn’t matter what that job is, you get your foot in the door.
+ - I make something I can look at and say, “That’s a good piece of work, and there’s some terrific directing and acting in it, and you should be proud of it.”
+ - Something like Nightmare On Elm Street, to me, was kind of an examination of levels of consciousness and the pain of facing the truth, and how easy it is to fall asleep, or want to fall asleep.
+ - Dad, girls don’t fall down every time they run.
+ - I’ve found that if you have two films that don’t perform well it doesn’t matter that you’ve had a bunch of successful ones. The phone stops ringing, and after Deadly Blessing and Swamp Thing that’s what happened.
+ - I think if anybody had a roll of dice with a lot of money at stake, they would not want Wes Craven and a romantic comedy.
+ - There’s more emphasis on art and culture in Europe than there is in the United States and I think that a lot of American directors and writers are just trying to copy other American horror films, they don’t pick up much in the way that European filmmakers do.
+ - I think the important thing about staying creative and staying sharp and original is not to look back too much.
+ - It’s quite rare that you make something and think that you did something that no-one else had done.
+ - A lot of life is dealing with your curse, dealing with the cards you were given that aren’t so nice. Does it make you into a monster, or can you temper it in some way, or accept it and go in some other direction?
+ - A collection of masks, depicting historical figures in life and what I like to call the eternal repose.
+ - If you think it, the camera will see it.
+ - I’m having a reputation of being somebody who will not be crazy. Not descend to doing drugs and spending an enormous amount of money, and instead delivering a product to people. Something they can sell and recoup their money and make a profit.
+ - If you’re in a theater, people are texting, all around you. You have the little glowing screens everywhere. Think of how annoying that can be.
+ - I have a lot of fans who are people of color. I think, if nothing else, I kind of understand that sense of being on the outside looking in, culturally.
+ - People who are kind of at the cutting edge of life and survival, and being near the nitty-gritty, like my films, and I like that.
+ - But I made him the Deputy Secretary for Homeland Security because that added an element of political espionage.
+ - I love the fact that a lot of my audience is people from the inner city. African-Americans love my films.
+ - Many, many things are dangerous in our world, commercials and TV are dangerous, and so is the world of sitcoms. But nobody does anything about them because they’re turning in alot of money.
+ - My mother wouldn’t even let me read DC Comics.
+ - I think that there has been a slow recognition that there’s a mind at work here, and there’s a skill and some bit of artistry, and that I could probably do other things. Otherwise, I don’t know that I would’ve been given the opportunity to do Paris, Je T’Aime.
+ - All of us have our individual curses, something that we are uncomfortable with and something that we have to deal with, like me making horror films, perhaps.
+
+30 quotes

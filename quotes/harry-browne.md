@@ -1,0 +1,74 @@
+ - Everything you want in life has a price connected to it. There’s a price to pay if you want to make things better, a price to pay just for leaving things as they are, a price for everything.
+ - When paper money systems begin to crack at the seams, the run to gold could be explosive.
+ - The Bill of Rights isn’t some legalistic fine print. It was written to make our lives freer, more prosperous, and happier. By forsaking it, America has become no better than any other country in the world.
+ - Freedom and responsibility aren’t interconnected things. They are the same thing.
+ - The government is good at one thing. It knows how to break your legs, and then hand you a crutch and say, “See if it weren’t for the government, you wouldn’t be able to walk”.
+ - When you know that you’re capable of dealing with whatever comes, you have the only security the world has to offer.
+ - A great burden was lifted from my shoulders the day I realized that no one owes me anything.
+ - I want a government small enough to fit inside the Constitution.
+ - The marketplace is a wondrous institution. It harnesses the self-interest of each of us and puts it to work for the benefit of all. And it does so without intruding upon our desires, our privacy, or our freedom. It is regulation by reality, not by coercion.
+ - Everyone will experience the consequences of his own acts. If his acts are right, he’ll get good consequences; if they’re not, he’ll suffer for it.
+ - No one ever died from smoking marijuana, but millions of people have died by believing politicians.
+ - Not only can no one predict the future, we don’t understand the present – and there isn’t even any certainty about the past.
+ - You have only one life, and no one else will live it for you. Shouldn’t you take the time right now to figure out what that life is all about?
+ - Most politicians believe in just one thing – winning elections. They’ll say anything to get in office and stay there.
+ - A fair trial is one in which the rules of evidence are honored, the accused has competent counsel, and the judge enforces the proper courtroom procedures – a trial in which every assumption can be challenged.
+ - The best kept secret in the investing world: Almost nothing turns out as expected.
+ - You don’t need an explanation for everything, Recognize that there are such things as miracles – events for which there are no ready explanations. Later knowledge may explain those events quite easily.
+ - You don’t have to buy from anyone. You don’t have to work at any particular job. You don’t have to participate in any given relationship. You can choose.
+ - Government is force, pure and simple. There’s no way to sugar-coat that. And because government is force, it will attract the worst elements of society – people who want to use government to avoid having to earn their living and to avoid having to persuade others to accept their ideas voluntarily.
+ - Immigrants used to come to America seeking freedom of speech, freedom of religion, and freedom from government. Now they come looking for free health care, free education, and a free lunch.
+ - In almost all matters, the real question should be: why are we letting government handle this?
+ - The coercive power of government is always a beacon to those who want to dominate others – summoning the worst dregs of society to Washington to use that power to impose their will upon others.
+ - A welfare state is frightened of every poor person who tries to get in and every rich person who tries to get out.
+ - Like many people, most Libertarians feel empathy and sympathy for less fortunate people. But they know you can’t have perfection in a world of limited resources.
+ - For those looking for security, be forewarned that there’s nothing more insecure than a political promise.
+ - Some people object to libertarian ideas because there are too many irresponsible people in the world – people who will cause trouble if the government doesn’t restrain them.
+ - Give government the weapons to fight your enemy and it will use them against you.
+ - The important thing is to concentrate upon what you can do – by yourself, upon your own initiative.
+ - Communities don’t think, don’t believe, don’t want, don’t have needs, don’t have interests and don’t make decisions. Only individuals have minds that generate desires and needs – and only individuals can make choices and decisions.
+ - It’s important to realize that whenever you give power to politicians or bureaucrats, it will be used for what they want, not for what you want.
+ - Republicans campaign like Libertarians and govern like Democrats.
+ - Once upon a time, government budgets were balanced, our money was sound, the streets were safe, and taxes imposed by all levels of government took less than 10% of our income.
+ - It’s wrong for someone to confiscate your money, give it to someone else, and call that “compassion.”
+ - Once we realize that government doesn’t work, we will stop dreaming that this or that social problem can be solved by passing a law – or by creating a new government program – or by electing someone who will make Washington more efficient or cost-conscious.
+ - Can you think of a single area of government in which George Bush hasn’t already made things worse than Bill Clinton did?
+ - The power of choice. You have it. But you forfeit it when you imagine that you can choose for others. You can’t. But you can choose for yourself...
+ - When you give politicians the power to do what you think is right you’re automatically giving politicians the power to do what you think is wrong.
+ - The problem is big government. If whoever controls government can impose his way upon you, you have to fight constantly to prevent the control from being harmful. With small, limited government, it doesn’t much matter who controls it, because it can’t do you much harm.
+ - Government doesn’t work. You work, I work, Federal Express works, Microsoft works, the Salvation Army works, Alcoholics Anonymous works, but government doesn’t.
+ - The free market punishes irresponsibility. Government rewards it.
+ - It is well known that in war, the first casualty is truth – that during any war truth is forsaken for propaganda.
+ - Government doesn’t work. That’s the first lesson we must learn if we want to improve society.
+ - Our government, taxes, and ideas of freedom are already duplicates of the Old World. Our politicians determine how we should live our lives – and our individual liberties are sacrificed for the benefit of the Fatherland.
+ - If younger people see older people who haven’t planned ahead and have to rely on charity, the young will be more likely to provide for the future. Today when someone plans poorly, the only consequence people see is a demand for more government.
+ - Everything we know about human nature and about government tells us that individuals using their own money will achieve far more good for themselves and far more for others than politicians spending money they didn’t have to work to earn.
+ - Disarmed citizens encourage crime and violence. Armed citizens encourage criminals to find a safer line of work.
+ - If a law could keep dangerous weapons out of the hands of dangerous people, there would be virtually no gun crime at all.
+ - It isn’t possible to give government just a little control over the economy and our lives. Once we cede that power to government, it uses the power to take more from us. That’s why every year the government controls more of our lives.
+ - America rules the world – by force.
+ - Social Security is a fraudulent scheme in which the government collect money from you for your retirement – and immediately spend the money on something else.
+ - It has long been apparent that many people in the media don’t believe you’re competent to make your own decisions.
+ - Give politicians power and it certainly will be abused eventually – if not by today’s politicians, then by their successors.
+ - A little government involvement is just as dangerous as a lot – because the first leads inevitably to the second.
+ - Politicians are notoriously economically illiterate. And even when they know what would be the right thing, we don’t really expect them to do it.
+ - If you ask the government to impose morality, then moral questions will be decided by whoever has the most political power.
+ - I have no temptation to vote, to campaign, to try and stop a candidate who promises new follies.
+ - Get your money out of the country before your country gets your money out of you.
+ - The problem with politics isn’t the money; it’s the power.
+ - For most of our history, Americans enjoyed both liberty and security from foreign threats.
+ - The government’s War on Poverty has transformed poverty from a short-term misfortune into a career choice.
+ - You can’t give the government the power to do good without also giving it the power to do bad – in fact, to do anything it wants.
+ - Find out what people want and help them get it!
+ - Government seems to operate on the principle that if even one individual is incapable of using his freedom competently, no one can be allowed to be free.
+ - Each person is living for himself; his own happiness is all he can ever personally feel.
+ - I am running for president because it is obvious that no Democrat or Republican is ever going to stop the relentless growth of the federal government. only a Libertarian is going to set you free.
+ - You are where you are today because youve chosen to be there.
+ - Once we realize that government doesn’t work, we’ll know that the only way to improve government is by reducing its size – by doing away with laws, by getting rid of programs, by making government spend and tax less, by reducing government as far as we can.
+ - Whatever the issue, let freedom offer us a hundred choices, instead of having government force one answer on everyone.
+ - Whatever the price, identify it now. What will you have to go through to get where you want to be? There is a price you can pay to be free of the situation once and for all. It may be a fantastic price or a tiny one – but there is a price.
+ - When you give up the hope that some advisor, some system, some source of inside tips is going to give you a shortcut to wealth, you’ll finally begin to gain control over your financial future.
+ - The press is hostile to the idea of liberty. Most people in the press are for big government. Most people think that the solution to anything, whether it’s health care problems, education, whatever it is – it’s got to be more government.
+ - Contrary to all the blather we here about the unique goodness of the American people or our religious heritage or anything else, the one thing that set this country apart from all others was the Bill of Rights.
+
+72 quotes

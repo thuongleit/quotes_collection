@@ -1,0 +1,84 @@
+ - If we wait for the moment when everything, absolutely everything is ready, we shall never begin.
+ - We sit in the mud my friend and reach for the stars.
+ - I do not know what the heart of a bad man is like. But i do know what the heart of a good man is like. And it is terrible.
+ - Love, I thought, is stronger than death or the fear of death. Only by it, by love, life holds together and advances.
+ - In my case there was no first love. I began with the second.
+ - Don’t force me into saying what I don’t want to say, and what I won’t say.
+ - The word tomorrow was invented for indecisive people and for children.
+ - It’s all romanticism, nonsense, rottenness, art.
+ - In days of doubt, in days of dreary musings on my country’s fate, you alone are my comfort and support, oh great, powerful, righteous, and free Russian language!
+ - That is what poetry can do. It speaks to us of what does not exist, which is not only better than what exists, but even more like the truth.
+ - The past was a dream wasn’t it? And who ever remembers dreams?
+ - Everyone needs help from everyone else.
+ - No matter how often you knock at nature’s door, she won’t answer in words you can understand – for Nature is dumb. She’ll vibrate and moan like a violin, but you mustn’t expect a song.
+ - Circumstances define us; they force us onto one road or another, and then they punish us for it.
+ - The temerity to believe in nothing.
+ - People without firmness of character love to make up a fate for themselves; that relieves them of the necessity of having their own will and of taking responsibility for themselves.
+ - To desire and expect nothing for oneself and to have profound sympathy for others is genuine holiness.
+ - Tempered, gradual animation, the methodical restrain of sensations and energies, the equilibrium of sickness and health in each creature – this is nature’s essence, its immutable law, this is what it’s based on and what it adheres to.
+ - Whatever a person may pray for, that person prays for a miracle. Every prayer comes down to this – Almighty God, grant that two times two not equal four.
+ - So many memories and so little worth remembering, and in front of me – a long, long road without a goal...
+ - I look up to heaven only when I want to sneeze.
+ - Nature is not a temple, but a workshop, and man’s the workman in it.
+ - Go forward while you can, but if your strength fails you, sit down near the road and gaze without anger or envy at those who pass by. They don’t have far to go, either.
+ - What’s important is that twice two is four and all the rest’s nonsense.
+ - What’s terrible is that there’s nothing terrible, that the very essence of life is petty, uninteresting, and degradingly trite.
+ - All human beings hang by a thread, an abyss may open under their feet at any moment, and yet they have to go and invent all sortsof difficulties for themselves and spoil their lives.
+ - What a magnificent body, how I should like to see it on the dissecting table.
+ - I am a flirt: I have no heart: I have an actor’s nature.
+ - Great God, grant that twice two be not four.
+ - Belonging to oneself – the whole essence of life lies in that.
+ - I only know that I feel tired, antiquated; I feel as though I had been living a long, long time.
+ - Nothing is worse and more hurtful than a happiness that comes too late. It can give no pleasure, yet it deprives you of that most precious of rights – the right to swear and curse at your fate!
+ - Nature creates while destroying, and doesn’t care whether it creates or destroys as long as life isn’t extinguished, as long as death doesn’t lose its rights.
+ - However much you knock at nature’s door, she will never answer you in comprehensible words.
+ - Looking about me, listening and recalling what the day had been like, I suddenly felt a secret unease in my heart and raised my eyes to the sky, but even in the sky there seemed to be no tranquillity. Dotted with stars, it constantly quivered and danced and shivered.
+ - I believe love produces a certain flowering of the whole personality which nothing else can achieve...
+ - Nature cares nothing for logic, our human logic: she has her own, which we do not recognize and do not acknowledge until we are crushed under its wheel.
+ - We’re young, we’re not monsters, no fools: we’ll conquer happiness for ourselves.
+ - There are some moments in life, some feelings; one can only point to them and pass by.
+ - Sternly, remorselessly, fate guides each of us; only at the beginning, when we’re absorbed in details, in all sorts of nonsense, in ourselves, are we unaware of its harsh hand.
+ - Oh, gentle feelings, soft sounds, the goodness and the gradual stilling of a soul that has been moved; the melting happiness of the first tender, touching joys of love- where are you?
+ - One may speak about anything on earth with fire, with enthusiasm, with ecstasy, but one only speaks about oneself with avidity.
+ - What did I hope for, what did I expect, what rich future did I foresee, when the phantom of my first love, rising up for an instant, barely called forth one sigh, one mournful sentiment?
+ - Whatever man prays for, he prays for a miracle. Every prayer reduces itself...
+ - It was only the vulgarly mediocre that repelled her.
+ - Even nightingales can’t be fed on fairy tales.
+ - I’ve become convinced that every person should treat himself strictly and even rudely and distrustfully; it’s difficult to tame the beast in oneself.
+ - In the end, nature is inexorable: it has no reason to hurry and, sooner or later, it takes what belongs to it. Unconsciously and inflexibly obedient to its own laws, it doesn’t know art, just as it doesn’t know freedom, just as it doesn’t know goodness.
+ - I was as happy as a fish in water, and I could have stayed in that room for ever, have never left that place.
+ - I don’t see why it’s impossible to express everything that’s on one’s mind.
+ - Art, if one employs this term in the broad sense that includes poetry within its realm, is an art of creation laden with ideals, located at the very core of the life of a people, defining the spiritual and moral shape of that life.
+ - He was the soul of politeness to everyone – to some with a hint of aversion, to others with a hint of respect.
+ - Death is like a fisherman, who, having caught a fish in his net, leaves it in the water for a time; the fish continues to swim about, but all the while the net is round it, and the fisherman will snatch it out in his own good time.
+ - Go and try to disprove death. Death will disprove you, and that’s all!
+ - Only one thing bothered me: at this very moment, as they say, of inexplicable bliss there would be a sinking feeling at the pit of my stomach and my abdomen would be assailed by a melancholy, cold shivering. In the end I couldn’t abide such happiness and ran away.
+ - Death’s an old joke, but each individual encounters it anew.
+ - I share no man’s opinions; I have my own.
+ - Ah, but in time the heat of noontide passes, and to it there succeed nightfall and dusk, with a return to the quiet fold where for the weary an the heavy-laden there waits sleep, sweet sleep.
+ - The fact is that previously they were simply dunces and now they’ve suddenly become nihilists.
+ - Most people can’t understand how others can blow their noses differently than they do.
+ - Who among us has the strength to oppose petty egoism, those petty good feelings, pity and remorse?
+ - To tell about a drunken muzhik’s beating his wife is incomparably harder than to compose a whole tract about the ‘woman question.’
+ - As for work, without it, without painstaking work, any writer or artist definitely remains a dilettante; there’s no point in waiting for so-called blissful moments, for inspiration; if it comes, so much the better – but you keep working anyway.
+ - Every man’s happiness is built on the unhappi-ness of another.
+ - I walked in the meadows of green grieving for my life.
+ - You may live a long while with some people and be on friendly terms with them and never speak openly with them from your soul.
+ - Significance is sweet...
+ - Youth eats all the sugared fancy cakes and regards them as its daily bread. But there’ll come a time when you’ll start asking just for a crust.
+ - We Russians have assigned ourselves no other task in life but the cultivation of our own personalities, and when we’re barely past childhood, we set to work to cultivate them, those unfortunate personalities.
+ - I’m incapable of describing the feeling with which I left. I wouldn’t want it ever to be repeated, but I would have considered myself unfortunate if I’d never experienced it.
+ - So long as one’s just dreaming about what to do, one can soar like an eagle and move mountains, it seems, but as soon as one starts doing it one gets worn out and tired.
+ - A son is like a lopped off branch. As a falcon he comes when he wills and goes where he lists.
+ - A poet must be a psychologist, but a secret one: he should know and feel the roots of phenomena but present only the phenomena themselves in full bloom or as they fade away.
+ - Illness isn’t the only thing that spoils the appetite.
+ - That’s what children are for – that their parents may not be bored.
+ - Time, as is well known, sometimes flies like a bird and sometimes crawls like a worm, but human beings are generally particularly happy when they don’t notice whether it’s passing quickly or slowly.
+ - Life deceives everyone except the individual who doesn’t contemplate it, the individual who demands nothing from it, the individual who serenely accepts its few gifts and serenely makes the most of them.
+ - Nothing is worse and more hurtful than a happiness that comes too late.
+ - Each individual is more or less dimly aware of his significance, is aware that he’s something innately superior, something eternal – and lives, is obligated to live, in the moment and for the moment.
+ - Anyone who has crossed from the district of Bolkhov into that of Zhizdra will probably have been struck by the sharp difference between the natives of the provinces of Orel and Kaluga.
+ - Take what you can yourself, and don’t let others get you into their hands; to belong to oneself, that is the whole thing in life.
+ - I never started from ideas but always from character.
+
+82 quotes

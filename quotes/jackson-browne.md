@@ -1,0 +1,80 @@
+ - Don’t confront me with my failures, I had not forgotten them.
+ - We may lose and we may win, but we will never be here again.
+ - Lighten up while you still can, don’t even try to understand. Just find a place to make your stand, and take it easy.
+ - I’m not sure what I’m trying to say, it could be that I’ve lost my way.
+ - Let the music keep our spirits high, let the buildings keep our children dry, let creation reveal its secrets by and bye.
+ - You would think with all the genius and the brilliance of these times, we might find a higher purpose and a better use of mind.
+ - Take it easy, take it easyDon’t let the sound of your own wheelsDrive you crazy.
+ - Forget what life used to be, you are what you choose to be. It’s whatever it is you see that life will become.
+ - I’ve been aware of the time passing by they say in the end it’s the wink of an eye and when the morning light comes streaming in you’ll get up and do it again.
+ - I don’t know where I’m running now, I’m just running on.
+ - Let the disappointments pass, let the laughter fill your glass.
+ - Out into the cool of the evening strolls the pretender. He knows that all his hopes and dreams begin and end there.
+ - Oh Lord, are there really people starving still?
+ - Somewhere between the time you arrive and the time you go may lie a reason you were alive, but you’ll never know.
+ - Looking out at the road rushing under my wheels. Looking back at the years gone by like so many summer fields.
+ - I’ve also gotten to play in front of a million people in Central Park when there was a grass roots movement calling for nuclear disarmament – it was about 1982 – they called it Peace Sunday.
+ - I taught myself to play the piano, because I wanted to play it.
+ - I’m going to be a happy idiot and struggle for the legal tender.
+ - Very often it’s really inconvenient – who you fall in love with. You can’t really control it.
+ - Into a dancer you have grown from the seeds somebody else has sown.
+ - I’m sensitive, you know, about some things, and as some of my partners could attest to, incredibly insensitive.
+ - Self-discovery in songwriting, bringing something forth that’s instructive to yourself – some of the best songs that you will ever write are the ones where you didn’t have to think about any of that stuff, but nonetheless that’s what’s happening in the song.
+ - That’s maybe the most important thing each generation does, is to break a lot of rules and make up their own way of doing things.
+ - You can take as much as you can from the generation that has preceded you, but then it’s up to you to make something new.
+ - You measure peace with guns, progress in megatons. Who’s left when the war is won?
+ - Caught between the longing for love, and the struggle for the legal tender, where the sirens sing and the church bells ring, and the junk man pounds his fender. Where the veterans dream of the fight, fast asleep at the traffic light, and the children solemnly wait for the ice cream vendor.
+ - People look around you, the signs are everywhere. You’ve left it for somebody other than you to be the one who to care.
+ - Got seven women on my mind. Four that want to own me, two that want to stone me, and one says she’s a friend of mine.
+ - And while the future’s there for anyone to change, still you know it’s seems, It would be easier sometimes to change the past.
+ - Coffee in the morning, cocaine afternoons.
+ - Say a prayer for the pretender, who started out so young and strong only to surrender.
+ - No matter how close to yours another’s steps have grown, in the end there is one dance you’ll do alone.
+ - Talk about celestial bodies.
+ - I want to find myself a girl who can show me what laughter means, and we’ll fill in the missing numbers in each others paint-by-numbers dreams.
+ - How long can you hear someone crying – how long can you hear someone dying – before you ask yourself why?
+ - I was doing my best Bogart, but I was having trouble getting into her jeans.
+ - I wrote the song For A Dancer for a friend of mine who died in a fire. He was in the sauna in a house that burned down, so he had no idea anything was going on. It was very sad.
+ - I’m gonna be a happy idiot and struggle for the legal tender. Where the ads take aim and lay their claim to the heart and the soul of the spender. And believe in whatever may lie in those things that money can buy, though true love could have been a contender.
+ - Eleven on a scale of ten, honey, let me introduce you to my redneck friend.
+ - In the end, they traded their tired wings for the resignation that living brings. And exchanged love’s bright and fragile glow for the glitter and the rouge, and in the moment they were swept before the deluge.
+ - When I really started liking music was when I could play some of it myself, and after a couple of years of playing folk music, I kinda rediscovered those hits that were on the radio all the time when I was a kid.
+ - And my dad wanted me to play the trumpet because that’s what he liked. His idol was Louis Armstrong. My dad thought my teeth came together in a way that was perfect for playing the trumpet.
+ - I followed those highway signs and I’ve run down those thin white lines.
+ - I’d have to say that my favorite thing is writing a song that really says how I feel, what I believe – and it even explains the world to myself better than I knew it.
+ - I look around for the friends I used to turn to pull me through. Looking into their eyes, I see them running, too.
+ - It’s not like I’m looking to describe something that’s only true of my own circumstances. It’s beyond. It’s way inside, you know. It’s reaching inside to something that you have in common with many.
+ - When you turn out the light, I’ve got to hand it to me. Looks like it’s you and me again tonight Rosie.
+ - So I had a couple of years of playing trumpet. I really enjoyed it, but it was not the kind of instrument you could whip out at a party. Let’s face it.
+ - People stand themselves next to the righteous They believe the things they say are true They speak in terms of what divides us To justify the violence they do But it is one, it is one One world spinning ’round the sun Wherever it is you call home Whatever country you come from It is one.
+ - I never was a very good singer.
+ - The first to come and the last to go, working for that minimum wage.
+ - Musician jokes are a kind of joke that usually have to do with how much money someone makes. Musicians are always starving, so they’re really mean to each other about who makes what.
+ - Music itself is a great source of relaxation. Parts of it anyway. Working in the studio, that’s not relaxing, but playing an instrument that I don’t know how to play is unbelievably relaxing, because I don’t have any pressure on me.
+ - I told my father I wanted to play the banjo, and so he saved the money and got ready to give me a banjo for my next birthday, and between that time and my birthday, I lost interest in the banjo and was playing guitar.
+ - These days I seem to think about the things I forgot to do for you and all the times I had a chance to.
+ - My forays into trying to date girls my own age from the school I went to were all pretty tortured.
+ - I love to read. I love to stretch. In the morning, I get up, and if I’m not in a hurry, I will lie on the floor on a rug, look through some books and magazines, and maybe listen to music and try to do stretching exercises to tune up.
+ - It was a great time to be born, because I got to have my own publishing company right from the beginning, so I made more money than somebody would have doing what I did ten or fifteen years before.
+ - I let her do some of my laundry and she slipped in a few meals in between, and next thing I remember, she was all moved in.
+ - I’ve written many extra verses to songs that I learned to sing – an extra verse about a friend, or just add some verse – and that led to writing my own songs.
+ - They sell us the President the same way they sell us our clothes and cars.
+ - No matter how fast I run, I can’t get away from me.
+ - I grew up reading Shakespeare and Mark Twain.
+ - That folk music led to learning to play, and making things up led to what turns out to be the most lucrative part of the music business – writing, because you get paid every time that song gets played.
+ - Famine and disaster, right there in front of you, and the more you watch, the less you do.
+ - The biggest influence? I’ve had several at different times – but the biggest for me was Bob Dylan, who was a guy that came along when I was twelve or thirteen and just changed all the rules about what it meant to write songs.
+ - Now, guitar was pretty cool. Everybody knew something on the guitar. So I wanted to play guitar, but I told my dad if he wanted me to keep studying something, Id like to study piano.
+ - People know more about baseball players contracts than they do about the policies that govern the fate of our childrens lives in twenty years. Think about it. People used to say, the whole time I was growing up, Do you want to bring a child into this world? Thats pretty dire.
+ - But when you know that you’ve got a real friend somewhere, suddenly all the others are so much easier to bear.
+ - The idea that I wrote something that stood for the way I feel about things, and that it lasts, that’s probably my favorite thing that I’ve done.
+ - So what I do, more than play any instrument – I mean, I love to play – but more than that, I write songs. Songs that are about living, about what it’s like to be going through all the things that people go through in life.
+ - Now if I seem to be afraidTo live the life that I have made in songWell it’s just that I’ve been losing so long.
+ - Also, right at that particular time in the music business, because of people like the Beatles, people began owning their own publishing. I’ll just say this really quickly – they used to divide the money for the music that was written in two, just equal halves.
+ - I started playing the trumpet when I was about eight.
+ - The high ideals and promises you once dressed the future in are dancing in the embers with the wind.
+ - More than a career, I feel that I’ve got a function. I see things in a much more holistic way. Some people bake the bread, and some people write the songs.
+ - I’m Glad that the Bush years are behind us.
+ - How long will it be ’till we’ve turned To the tasks and the skills That we’ll have to have learned If we’re going to find our place in the future And have something to offer Where this planet’s concerned?
+
+78 quotes

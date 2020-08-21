@@ -1,0 +1,25 @@
+ - Leisure is only possible when we are at one with ourselves. We tend to overwork as a means of self-escape, as a way of trying to justify our existence.
+ - Unless we regain the art of silence and insight, the ability for nonactivity, unless we substitute true leisure for our hectic amusements, we will destroy our culture and ourselves.
+ - The ultimate meaning of the active life is to make possible the happiness of contemplation.
+ - The essence of leisure is not to assure that we may function smoothly but rather to assure that we, embedded in our social function, are enabled to remain fully human.
+ - The inmost significance of the exaggerated value which is set upon hard work appears to be this: man seems to mistrust everything that is effortless; he can only enjoy, with a good conscience, what he has acquired with toil and trouble; he refused to have anything as a gift.
+ - Beauty, however, must here be understood in its original meaning: as the glow of the true and the good irradiating from every ordered state of being, and not in the patent significance of immediate sensual appeal.
+ - Modern religious teaching have little or nothing to say about the place of prudence in life or in the hierarchy of virtues.
+ - Of course the world of work begins to become – threatens to become – our only world, to the exclusion of all else. The demands of the working world grow ever more total, grasping ever more completely the whole of human existence.
+ - The eye of perfected friendship with God is aware of deeper dimensions of reality, to which the eyes of the average man and the average Christian are not yet opened.
+ - Happiness and joy are not the same. For what does the fervent craving for joy mean? It does not mean that we wish at any cost to experience the psychic state of being joyful. We want to have reason for joy, for an unceasing joy that fills us utterly, sweeps all before it, exceeds all measure.
+ - No one can obtain felicity by pursuit. This explains why one of the elements of being happy is the feeling that a debt of gratitude is owed, a debt impossible to pay. Now, we do not owe gratitude to ourselves. To be conscious of gratitude is to acknowledge a gift.
+ - The common element in all the special forms of contemplation is the loving, yearning, affirming bent toward that happiness which is the same as God Himself, and which is the aim and purpose of all that happens in the world.
+ - The “supreme good” and its attainment – that is happiness. And joy is: response to happiness.
+ - Happiness is essentially a gift; we are not the forgers of our own felicity.
+ - The happy man needs nothing and no one. Not that he holds himself aloof, for indeed he is in harmony with everything and everyone; everything is “in him”; nothing can happen to him. The same may also be said for the contemplative person; he needs himself alone; he lacks nothing.
+ - Surrender to sensuality paralyzes the powers of the moral person.
+ - To celebrate a festival means: to live out, for some special occasion and in an uncommon manner, the universal assent to the world as a whole.
+ - To be conscious of gratitude is to acknowledge a gift.
+ - The brave man uses wrath for his own act, above all in attack, ’for it is peculiar to wrath to pounce upon evil. Thus fortitude and wrath work directly upon each other.
+ - Only the silent hear and those who do not remain silent do not hear.
+ - What distinguishes – in both senses of that word – contemplation is rather this: it is a knowing which is inspired by love. “Without love there would be no contemplation.” Contemplation is a loving attainment of awareness. It is intuition of the beloved object.
+ - He who knows does not feel wonder. It could not be said that God experiences wonder, for God knows in the most absolute and perfect way.
+ - All just order in the world is based on this, that man give man what is his due.
+
+23 quotes

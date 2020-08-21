@@ -1,0 +1,27 @@
+ - Where there’s life, death is inevitable. Dying’s easy; it’s living that’s hard. The harder it gets, the stronger the will to live. And the greater the fear of death, the greater the struggle to keep on living.
+ - People who are strangers to liquor are incapable of talking about literature.
+ - A writer should bury his thoughts deep and convey them through the characters in his novel.
+ - A writer should always bravely face life, risking death and mutilation in order to dethrone an emperor.
+ - When literature exists, perhaps we do not notice how important it is, but when it does not exist, our lives become coarsened and brutal. For this reason, I am proud of my profession, but also aware of its importance.
+ - A writer writes what he knows, in ways that are natural to him.
+ - My works are Chinese literature, which is part of world literature. They show the life of Chinese people as well as the country’s unique culture and folk customs.
+ - I write about my region, the countryside in which I grew up.
+ - I have always been independent.
+ - No person writes to win awards.
+ - A writer should express criticism and indignation at the dark side of society and the ugliness of human nature, but we should not use one uniform expression.
+ - When someone forces me to do something I don’t do it.
+ - One of the biggest problems in literature is the lack of subtlety.
+ - Possibly because I’ve lived so much of my life in difficult circumstances, I think I have a more profound understanding of life.
+ - I am also well aware that literature only has a minimal influence on political disputes or economic crises in the world, but its significance to human beings is ancient.
+ - Loneliness and hunger were my fortunes of creation.
+ - I’ll continue on the path I’ve been taking, feet on the ground, describing people’s lives, describing people’s emotions, writing from the standpoint of the ordinary people.
+ - I know what real courage is, and I understand true compassion.
+ - The act of giving voice to this spiritual suffering is, in my view, the sacred duty of the writer.
+ - I think writers write for their consciences, they write for their own true audiences, for their souls.
+ - When I write, I try to represent the ordinary person in the pew, which means that, ironically, I’m qualified to write about prayer by being unqualified!
+ - For a country boy, poor as I was, whose constant worry was to be able to have enough to eat, the Army guaranteed one’s survival.
+ - I heard so many stories from Gaomi’s peasants that I had an irrepressible urge to write them down. Today, Gaomi’s peasants know that they have become famous around the world through my writings, but I think they are a little puzzled by this.
+ - Some may want to shout on the street, but we should tolerate those who hide in their rooms and use literature to voice their opinions.
+ - I think that China has many outstanding authors, and their great works should also be recognised by the world.
+
+25 quotes

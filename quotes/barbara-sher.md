@@ -1,0 +1,58 @@
+ - It’s only too late if you don’t start now.
+ - The amount of good luck coming your way depends on your willingness to act.
+ - You can learn new things at any time in your life if you’re willing to be a beginner. If you actually learn to like being a beginner, the whole world opens up to you.
+ - You don’t need endless time and perfect conditions. Do it now. Do it today. Do it for twenty minutes and watch your heart start beating.
+ - Isolation is a dream killer.
+ - Not fulfilling your dreams will be a loss to the world, because the world needs everyone’s gift – yours and mine.
+ - Everyone has unique gifts and talents. What you love is what you’re gifted at. To be completely happy, to live a completely fulfilled life, you have to do what you love.
+ - Becoming mature means learning to accept what you cannot change, facing unresolved sorrows and learning to love life as it really happens, not as you would have it happen.
+ - Sometimes life isn’t about who you were or are, but it’s about who you are becoming.
+ - When you play it too safe, you’re taking the biggest risk of your life. Time is the only wealth we’re given.
+ - We all need to learn a new language for love – a language that speaks not in socks, pancakes, and paychecks, but in shared fascination with physics or poetry, delight in each other’s uniqueness, and mutual practical and emotional support.
+ - Change is not only likely, it’s inevitable.
+ - Whatever your dreams are, start taking them very, very seriously.
+ - Imaginary obstacles are insurmountable. Real ones aren’t.
+ - Doing is a quantum leap from imagining.
+ - Down deep we really know our worth, but we don’t have easy access to that knowledge. We need to hear praise coming from outside ourselves or we won’t remember that we deserve it.
+ - When you start using senses you’ve neglected, your reward is to see the world with completely fresh eyes.
+ - Originality is genius. If you respect and care for it, it will take you on the ride of your life.
+ - Each destination you reach only opens out into wider horizons, new and undiscovered countries for you to explore.
+ - If you don’t know how you feel, you won’t know what you want.
+ - The first step is to find out what you love – and don’t be practical about it. The second step is to start doing what you love immediately, in any small way possible.
+ - A direct statement about yourself is considered objective only if it is negative. If it’s positive, it is considered subjective. And ‘objective’ means it is accurate, and ‘subjective’ means it is conceited self-delusion.
+ - Time is clay; make something.
+ - Real Dreams don’t require you to abandon your family, quit your job, and move to Tahiti with your paintbrush. They just require that you search your soul for that deep dream you put aside-and go for it. And watch your life light up.
+ - Unkind criticism is never part of a meaningful critique of you. Its purpose is not to teach or to help, its purpose is to punish.
+ - Being judgmental is cheap. Any fool can do it.
+ - Doing your own thing is a generous act. Being gifted creates obligations, which means you owe the world your best effort at the work you love. You too are a natural resource.
+ - Whenever you do what you really love, your heart lifts, your mind opens, and everything changes. You wake up. That’s what true adventure really is.
+ - What you’re really supposed to be doing is whatever makes your heart sing.
+ - There is always a realistic way to fulfill any dream. There has never been a dream that you can’t have – at least, not the heart of it, not the part you love the most.
+ - In the days before automobiles, people in horse-drawn wagons used to sleep if they were tired. They didn’t worry about getting lost, because the horse knew the way home. Your heart knows the way to your gifts. You can trust it to take you to them.
+ - And our dreams are who we are.
+ - Real obstacles don’t take you in circles. They can be overcome. Invented ones are like a maze.
+ - If you truly feared failure, you’d be very successful.
+ - A goal is the basic unit of life design.
+ - We are like violins. We can be used as doorstops, or we can make music.
+ - Now is the operative word. Everything you put in your way is just a method of putting off the hour when you could actually be doing your dream.
+ - Find what you love, because greatness is based on great gifts. If you love something, you can count on the fact that you are genetically gifted at it.
+ - Happy people have two things in common. They know exactly what they want and they feel they’re moving toward getting it.
+ - What you love is as unique to you as your fingerprints. You need to know that because nothing will make you really happy but doing what you love.
+ - You cannot tell your heart what it wants. Your heart will tell you.
+ - Sometimes the only thing we do to avoid success is refuse to be energetic on our own behalf.
+ - Resentment is weak and lowers your self-esteem.
+ - Being judgmental about your own behavior is actually another cop-out because it makes you feel as though you’re doing something virtuous.
+ - It’s essential to distinguish between events that are really beyond your control and events you caused yourself.
+ - Thinking about swimming isn’t much like actually getting in the water. Actually getting in the water can take your breath away.
+ - Every single one of us can do things that no one else can do can love things that no one else can love. We are like violins. We can be used for doorstops, or we can make music.
+ - Irreverence is a declaration of independence.
+ - What you want is what you need. Your dearest wish comes straight from your core, loaded with vital information about who you are and who you can become.
+ - The environment that creates winners is almost always made up of winners.
+ - Wishing and dreaming are the beginning of all human endeavor.
+ - Doing what you love isn’t a priviledge; it’s an obligation.
+ - Every time you have to make a choice about anything, think Does this go toward or away from what I want? Always choose what goes toward what you want.
+ - The cure for sorrow is to learn something.
+ - Your creativity is waiting for you like a dancing partner.
+ - You don’t have to get it right the first time.
+
+56 quotes

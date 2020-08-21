@@ -1,0 +1,52 @@
+ - You can have more than one home. You can carry your roots with you, and decide where they grow.
+ - People always leave traces. No person is without a shadow.
+ - The evil always comes from details.
+ - They pondered the importance of coffee in silence.
+ - Many words will be written on the wind and the sand, or end up in some obscure digital vault. But the storytelling will go on until the last human being stops listening. Then we can send the great chronicle of humanity out into the endless universe.
+ - At the time of independence in 1975, Mozambique was extremely poor. Many Portuguese residents abandoned the country, leaving only a handful of well-educated Mozambicans to try to run the country.
+ - An oppressed people will always rise.
+ - Police work wouldn’t be possible without coffee.
+ - Justice doesn’t only mean that the people who commit crime are punished. It also means that we can never give up seeking the truth.
+ - It was a clear, starry night, dead calm. Whenever I see a sky like that, I wish I could write music.
+ - For me Oliver Twist is a political novel. It is a furious critique of the treatment of orphans and poor children who were forced to spend their early lives in ghastly institutions.
+ - Sweden is still a very peaceful country to live in. I think that people in Britain have created this mythology about Sweden, that it’s a perfect democratic society full of erotically charged girls.
+ - To grow up is to wonder about things; to be grown up is to slowly forget the things you wondered about as a child.
+ - Each person searches for the most beautiful jump which will be the final before leaving this world.
+ - I love Sherlock Holmes. There’s still an awful lot to steal from Conan Doyle. But within a tradition you can work in many different ways.
+ - I can still remember the miraculous feeling of writing a sentence, then more sentences, telling a story. The first thing I wrote was a one-page summary of Robinson Crusoe and I am so sorry I do not have it any more; it was at that moment I became an author.
+ - We don’t have time to argue. Nobody has time.
+ - I remembered her once saying that life was like your shoes. You couldn’t simply expect or imagine that your shoes would fit perfectly. Shoes that pinched your feet were a fact of life.
+ - Poverty always looks the same, no matter where you come across it. The rich can always express their opulence by varying their lives. Different houses, clothes, cars. Or thoughts, dreams. But for the poor there is nothing but compulsory grayness, the only form of expression available to poverty.
+ - I am a very radical person – as radical now as I was when I was younger. So my books all have in common my search for understanding of the terrible world we are living in and ways to change it.
+ - Life is a flimsy branch over an abyss.
+ - Many people make the mistake of confusing information with knowledge. They are not the same thing. Knowledge involves the interpretation of information. Knowledge involves listening.
+ - As a writer, I am an intellectual. I believe in the ideals of the Enlightenment, I believe in the written word, in dialogue and in truth. I hate lies more than anything else. Most of the time I react by writing.
+ - I think my Wallander stories give a fairly good image of the world in the 1990s. I don’t regret anything about that – on the contrary!
+ - Children get acquainted with each other in a special way, they do not make contracts as adults, they believe each other or not. Childish friendships often end in violence. You may become an enemy all of a sudden as well as notice that you are someone’s best friend.
+ - You think you know everything about a person, but the truth often comes as a surprise.
+ - I do not understand how on earth you can become a writer without seeing the world.
+ - Many people say I smile more in Africa than in Sweden.
+ - When someone asks me to list the 10 best novels ever written, I always refuse to answer.
+ - Shakespeare is in many ways an African writer and ‘Hamlet’ would be seen as a very accurate historical saga about an African kingdom.
+ - My mother did what many men do. She left.
+ - I work in an old tradition that goes back to the ancient Greeks. You hold a mirror to crime to see what’s happening in society. I could never write a crime story just for the sake of it, because I always want to talk about certain things in society.
+ - What annoys a person who suicides? The life itself. Boredom. Tiredness that descends on every morning when you look at yourself at the mirror.
+ - Africa was the most exotic place I could conceive of – the end of the world – and I knew I would go there one day.
+ - Have I ever written anything that has really changed something? What I believe is that you can’t change anything without using art. I believe that the drops wear away the stone. I try to be part of that army.
+ - I came to Mozambique in 1986, when I first became involved with Teatro Avenida – a theatre company that stages plays concerned with political and social issues.
+ - Dreams can be of value even if you don’t have an opportunity to turn them into reality.
+ - Although I never marched through the streets shouting for Mao, I do believe that the liberation of China at the end of the 1940s was a wonderful thing and to provide its people with a billion pairs of shoes and trousers was a fantastic achievement.
+ - We only have the past that we have. Not all of our deeds were incorrect.
+ - I am not afraid of dying. I have lived longer than most people in the world. What scares me is to have a body that works but a brain that is waving goodbye. If that happens, I hope I die quickly.
+ - One of the agonies of being an author is to know when to stop writing.
+ - Go to Mozambique! As long as you don’t expect to find flawless infrastructure, just go. Because this is a country where people have not quite grown accustomed to tourists. You still feel a genuineness that no longer exists in countries where tourism has been industrially developed.
+ - Although many of his other novels are brilliant there is a power in ‘Oliver Twist’ that I believe Dickens never managed to retrieve. It is as if he was sent to this earth with the sole purpose of writing this book.
+ - The stories I create are never as awful as reality.
+ - I know paradise has many gates, just as hell does. One has to learn to distinguish between them, or one is lost.
+ - It’s only when we can work with something that brings out our strengths that we’re of any real use.
+ - We used to send whole flocks of birds shooting out of our mouths and never managed to grab them by their wings.
+ - Our exile organizations have been our way of replacing the cities and villages we have lost.
+ - He was so excessively polite that Wallendar suspected he had endured many humiliations in his life.
+ - I’m not very much of a reader really, because I find much of it very bad, very uninteresting, very speculative.
+
+50 quotes

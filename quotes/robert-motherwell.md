@@ -1,0 +1,51 @@
+ - Art is an experience, not an object.
+ - To end up with a canvas that is no less beautiful than the empty canvas is to begin with.
+ - It is true that every artist has his own religion.
+ - In a way, painting is like wine: it is as old, as simple, as primitive and as varied. Like wine, it is a very specific means of expression, with a limited vocabulary, but vast in its expressive potential.
+ - Abstract art is uniquely modern. It is a fundamentally romantic response to modern life – rebellious, individualistic, unconventional, sensitive, irritable.
+ - Wherever art appears, life disappears.
+ - It’s not that the creative act and the critical act are simultaneous. It’s more like you blurt something out and then analyze it.
+ - The problems of inventing a new language are staggering. But what else can one do if one needs to express one’s feeling precisely?
+ - It may be that the deep necessity of art is the examination of individual’s and society’s self-deception.
+ - One of the most striking of abstract art’s appearances is her nakedness, an art stripped bare.
+ - Walk on a rainbow trail; walk on a trail of song, and all about you will be beauty. There is a way out of every dark mist, over a rainbow trail.
+ - Abstract expressionism was the first American art that was filled with anger as well as beauty.
+ - Painting that does not radiate feeling is not worth looking at. The deepest-and rarest-of grown-up pleasures is true feeling.
+ - Collage is the twentieth century’s greatest innovation.
+ - Art is much less important than life, but what a poor life without it.
+ - Nothing as drastic an innovation as abstract art could have come in to existence, save as the consequence of a most profound, relentless, unquenchable need. The need is for felt experience – intense, immediate, direct, subtle, unified, warm, vivid, rhythmic.
+ - In the end I realize that whatever meaning that picture has is the accumulated meaning of ten thousand brushstrokes, each one being decided as it was painted.
+ - It’s possible to paint a monumental picture that’s only 10 inches wide, if one has a sense of scale, which is very different from a sense of size.
+ - In the brush doing what it is doing, it will stumble on what one could not do by oneself.
+ - An odd contradiction, if the layman were correct in his unconscious assumption that an artist begins with reality and ends with art: the converse is true – to the degree that this dichotomy has any truth – the artist begins with art, and through it arrives at reality.
+ - Each brushstroke is a decision.
+ - For me, the sketchbooks are more like a secret and wholly spontaneous jeu d’esprit and some of them I like as much as anything I have ever done. They are invariably without premeditation. I mean not only that I have no plan when I make them, I also have no plan to make them.
+ - Most painting in the European tradition was painting the mask. Modern art rejected all that. Our subject matter was the person behind the mask.
+ - A subject emerges from an interaction between my self, my I, and my medium.
+ - One’s art is just one’s effort to wed oneself to the universe, to unify oneself through union.
+ - If you can’t find your inspiration by walking around the block one time, go around two times-but never three.
+ - For a hundred years, modern painters, stubbornly and in the face of incessant hostility, have moved, step by step, leaving superb monuments by the wayside, towards an art of arrangement whose expressiveness depends less and less upon its elements imitating the objects of the external world.
+ - If one were to ask a painter what he felt about anything, his just response – though he seldom makes it – would be to paint it, and in painting, to find out...
+ - Every picture one paints involves not painting others.
+ - Every intelligent painter carries the whole culture of modern painting in his head. It is his real subject, of which everything he paints in both an homage and a critique, and everything he says is a gloss.
+ - Without ethical consciousness, a painter is only a decorator.
+ - The main thing is not to be dead.
+ - What could be more interesting, or in the end, more ecstatic, than in those rare moments when you see another person look at something you’ve made, and realize that they got it exactly, that your heart jumped to their heart with nothing in between.
+ - Any incentive to paint is as good as any other. There is no poor subject.
+ - To pick up a cigarette wrapper or wine label or an old letter or the end of a carton is my way of dealing with those things that do not originate in me, in my I.
+ - By far the most common task for which the machines are used is writing – or word processing, as it’s known to the same people who call journalism ’content.
+ - For a painter as abstract as myself, the collages offer a way of incorporating bits of the everyday world into pictures.
+ - It is the medium, or the specific configuration of the medium, that we call a work of art that brings feeling into being...
+ - I started with straight, basic, symbolic structures. My problem now is the opposite; as I get older, I try to make my paintings more contrapuntal, richer.
+ - It is sometimes forgotten how much wit there is in certain works of abstract art. There is a certain point in undergoing anguish when one encounters the comic.
+ - The public’s appetite for famous people is a mouth as big as a mountain.
+ - I dislike a picture that is too suave or too skilfully done. But, contrariwise, I also dislike a picture that looks too inept or blundering.
+ - I feel most real to myself in the studio.
+ - The abstractness of modern art has to do with how much an enlightened mind rejects of the contemporary social order.
+ - I almost never start with an image. I start with a painting idea, an impulse, usually derived from my own world.
+ - Painting is a medium in which the mind can actualize itself; it is a medium of thought. Thus painting, like music, tends to become its own content.
+ - For twenty years I read a book a day, from the time I was seven until I was twenty-seven.
+ - If you give a child something very complex to paint, such as a bouquet of flowers or a natural landscape, if he is very good, eventually he will get back – like Cezanne – to the essential forms of what he sees.
+ - Sometimes images may emerge from some chord in my subconscious, the way a dream might. Even in those paintings where an image unconsciously develops, a certain kind of experience is usually necessary in order to perceive it.
+
+49 quotes

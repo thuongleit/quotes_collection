@@ -1,0 +1,49 @@
+ - Long you live and high you fly. And smiles you’ll give and tears you’ll cry. And all you touch and all you see is all your life will ever be.
+ - There is no dark side of the moon really. Matter of fact it’s all dark.
+ - We don’t need no thought control.
+ - All you touch and all you see is all your life will ever be.
+ - Life is long. But it goes fast.
+ - You run and you run to catch up to the sun but it’s sinking, racing around to come up behind you again.
+ - All in all you’re just another brick in the wall.
+ - Hanging on in quiet desperation is the English way.
+ - Can’t you see it all makes perfect sense, expressed in dollars and cents, pounds shillings and pence, can’t you see it all; makes perfect sense.
+ - I’m in competition with myself and I’m losing.
+ - Each small candle lights a corner of the dark.
+ - And who knows which is which and who is who.
+ - You take the risk of being rejected.
+ - This is how you control your domestic population – by making people afraid and by identifying an enemy.
+ - Envy is the bond between the hopeful and the damned.
+ - I am one of the best five writers to come out of English music since the war.
+ - When we grew up and went to school There were certain teachers who would Hurt the children anyway they could By pouring their derision Upon anything we did And exposing every weakness However carefully hidden by the kids.
+ - I was faced with a choice: to deny my addiction and embrace that ‘comfortably numb’ but ‘magicless’ existence, or accept the burden of insight, take the road less travelled, and embark on the often painful journey to discover who I was and where I fit.
+ - You take the risk of being rejected. If you have pretentions to be an artist of any kind, you have to take the risk of people rejecting you and thinking you’re an arsehole.
+ - By the cold and religious we were taken in hand – shown how to feel good; and told to feel bad.
+ - I always used to look at books and wonder how anybody could come up with so many words. But my divorce and then falling in love with somebody else has released in me an ability to write in other ways apart from songs.
+ - Did you see the frightened ones, Did you hear the falling bombs, Did you ever wonder why we had to run for shelter in the promise of a brave new world unfurlled beaneath the clear blue skies. Good bye blue skies.
+ - In the finished article, the only thing that is important is whether it moves you or not. There is nothing else that is important at all.
+ - In my rear view mirror the sun is going down sinking behind bridges in the road and I think of all the good things that we have left undone and I suffer premonitions confirm suspicions of the holocaust to come.
+ - How can you have any pudding if you don’t eat your meat?
+ - Not the torturer will scare me, nor the body’s final fall, nor the barrels of death’s rifles, nor the shadows on the wall, nor the night when to the ground the last dim star of pain, is hurled but the blind indifference of a merciless, unfeeling world.
+ - But that’s not to say that the potential for the sun to shine doesn’t exist. You know? Walk down the path towards the light, rather than walk into the darkness.
+ - Money, so they say, is the root of all evil today. But if you ask for a rise it’s no surprise that they’re giving none away.
+ - I would not rule out going to Israel because I disapprove of the foreign policy any more than I would refuse to play in the UK because I disapprove of Tony Blair’s foreign policy.
+ - Would you like to watch TV or get between the sheets and contemplate this violent freeway, would you like something to eat would you like to learn to fly would ya, would you like to see me try.
+ - I don’t really listen to Radiohead. I listened to the albums and they just didn’t move me in the way, say, John Prine does. His is just extraordinarily eloquent music.
+ - There is a magic in some books That sucks a man into connections With the spirits hard to touch That join him to his kind.
+ - Doctor Doctor what is wrong with me This supermarket life is getting long What is the heart life of a colour TV What is the shelf life of a teenage queen.
+ - I confess I’ve never felt like a passenger.
+ - I found that the loudest fans in the world are in Istanbul.
+ - Everybody’s got somewhere they call home.
+ - There are so many people out there who think they are fans of Pink Floyd – and certainly the work I did in Pink Floyd – who are still furious that I left.
+ - I have no problem with any question.
+ - The United States has held out against taking part in any of the world consensus that there should be a court of human rights or that there should be an international court of criminal justice.
+ - I think there are things in my story that have helped my creativity. Your father being killed, for instance, is one of the best things that could happen to a kid if he’s going to write poetry or songs.
+ - For us the most important thing is to be visual, and for the cats watching us to have fun. This is all we want. We get very upset if people get bored when we’re only half way through smashing the second set.
+ - Either you write songs or you don’t. And if you do write songs like I do, I think there’s a natural desire to want to make records.
+ - When I first got a guitar, it was a Spanish, classical thing.
+ - What it comes down to for me is this: Will the technologies of communication in our culture, serve to enlighten us and help us to understand one another better, or will they deceive us and keep us apart?
+ - I feel I have the potential to reach an audience beyond anything I can imagine.
+ - When you’ve done something, certainly if you create a piece of music, you then hear it with fresh ears when you play it for somebody else.
+ - I could have been an architect, but I don’t think I’d have been very happy. Nearly all modern architecture is a silly game as far as I can see.
+
+47 quotes

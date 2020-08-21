@@ -1,0 +1,32 @@
+ - Oh no. Don’t smile. You’ll kill me. I stop breathing when you smile.
+ - Jesus. Jesus Christ and Mary Magdalene. Delilah, Jezebel, Salome, Judith, Eve. Trouble, every last one. Add Minerva Highwood to the list.
+ - He kissed her. Without warning, without permission. Without even deciding to do it, but simply because he couldn’t have done anything else. He needed that breath she was holding. It belonged to him, and he wanted it back.
+ - After spending all of her girlhood fervently wishing she could run away from home – she’d actually done it.
+ - Dedication: For librarians and booksellers everywhere, who gather books and build shelters for tender souls.
+ - Certainty becomes you.
+ - No, no. Don’t make that face. Every time I propose to you, you make that twisty, unhappy face. It wears on a man’s confidence.
+ - So odd. Most women of his acquaintance relied on physical beauty and charm to mask their less-pleasant traits. This girl did the opposite, hiding everything interesting about herself behind a prim, plain facade. What other surprises was she concealing?
+ - Dedication: For all the girls who walk and read at the same time.
+ - A home isn’t only defined by what you need, Bram. It’s also about the people who need you.
+ - Think of it like running down a slope. If you attempt to slow down and choose your steps, you’re bound to trip up and stumble.
+ - A man might engage in flirtation with distinterest, even disdain. But he never teases without affection.
+ - Kate realized she had a grave problem. She was infatuated. Or mildly insane. Possibly both.
+ - This is the normal way with birthdays, see? Amazingly enough, they arrive on the same day, every year.
+ - He had to feel those lips on him again. Had. To. This wasn’t a mild expression of preference. This was an imperative. His body was insistent. To continue his existence on this earth, he now needed the following: food, water, shelter, clothing, and Minerva Highwood’s lips.
+ - He couldn’t compare a woman to a torrentially beautiful monsoon, and then look surprised that he’d gotten wet.
+ - Cleverness is like rouge – liberal application makes a woman look common and desperate. Wit is knowing how to apply it.
+ - Is it truly so unfathomable, that an imperfect girl might be perfectly loved?
+ - Clearly the sight of a well-muscled forearm incited a woman to utter depravity. How else to explain the invention of cuffs?
+ - What on earth are you wearing? Did you take orders in a convent since we spoke last? Little Sisters of the Drab and Homely.
+ - She would allow him to comfort her. And perhaps, someday, she would listen patiently if a dark, dreary night found him well in his cups and he drunkenly confessed to still feeling scores of wounds that weren’t his own, but those of men under his command.
+ - Anne Barton is a delightful new voice in historical romance! Once She Was Tempted is a charming read, with characters who are easy to love – a wounded earl and a determined heroine whose heart won’t be denied.
+ - One more minute of this, and she’d be a certifiable simpleton.
+ - She stared at him, horrified. And thrilled. And horrified at being thrilled.
+ - We have to get out of here, Bram. Before they take our bollocks and use them for pincushions.
+ - Men never hesitated to declare their presence. They were permitted to live aloud, in reverberating thuds and clunks, while ladies were always schooled to abide in hushed whispers.
+ - She’d always wondered what it would feel like to stand on one end of a ballroom and watch a handsome, powerful man make his way to her. This was as close as she’d ever come to it, she supposed. Standing at Diana’s side. Imagining.
+ - He laughed. A strained, ha, ha, ha, I may die of this laugh.
+ - What is the world coming to, with these modern women? A man can’t tell them what to do.
+ - Amazing, then, how with that one remark, he made a mortifying situation thirteen times worse.
+
+30 quotes

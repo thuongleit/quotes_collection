@@ -1,0 +1,56 @@
+ - I believe God did intend, in giving us intelligence, to give us the opportunity to investigate and appreciate the wonders of His creation. He is not threatened by our scientific adventures.
+ - By investigating God’s majestic and awesome creation, science can actually be a means of worship.
+ - I’m a serious Christian. I take my faith seriously. I try to practice it every day of the week, not just on Sunday.
+ - One must dig deeply into opposing points of view in order to know whether your own position remains defensible. Iron sharpens iron.
+ - The blooming of a flower is, in my mind, not a miracle. It’s something that we can understand on the basis of molecular biology these days.
+ - God is most certainly not threatened by science; He made it all possible.
+ - All illnesses have some heredity contribution. It’s been said that genetics loads the gun and environment pulls the trigger.
+ - Scientists must venture outside their comfort zones to show the public how cool – and how important – their work really is.
+ - God is an awesome mathematician and physicist.
+ - When I discover something about the human genome, I experience a sense of awe at the mystery of life, and say to myself, ‘Wow, only God knew before.’ It is a profoundly beautiful and moving sensation, which helps me appreciate God and makes science even more rewarding for me.
+ - What more powerful form of study of mankind could there be than to read our own instruction book?
+ - I think God appreciates that we appreciate his creation.
+ - The God of the Bible is also the God of the genome. He can be worshipped in the cathedral or in the laboratory. His creation is majestic, awesome, intricate, and beautiful.
+ - It’s interesting when you read the life of Christ how much of his time he spent healing the sick. There must have been a reason for that – he was modelling for us what it is we are intended to do by following his path.
+ - Research is so unpredictable. There are periods when nothing works and all your experiments are a disaster and all your hypotheses are wrong.
+ - The airman must possess absolutely untroubled nerves.
+ - There are good reasons to believe in God, including the existence of mathematical principles and order in creation. They are positive reasons, based on knowledge, rather than default assumptions based on a temporary lack of knowledge.
+ - Nobody gets argued all the way into becoming a believer on the sheer basis of logic and reason. That requires a leap of faith.
+ - Sometimes you develop a passion for something because of some personal experience.
+ - I’m enormously interested to see where neuroscience can take us in understanding these complexities of the human brain and how it works, but I do think there may be limits in terms of what science can tell us about what does good and evil mean anyway, and what are those concepts about?
+ - As a scientist, you’re not supposed to make decisions without the data.
+ - I believe in the literal rising of the body of Christ. It’s the cornerstone of my Christian faith.
+ - Science’s domain is the natural. If you want to understand the natural world and be sure you’re not misleading yourself, science is the way to do it.
+ - Evolution, as a mechanism, can be and must be true. But that says nothing about the nature of its author. For those who believe in God, there are reasons now to be more in awe, not less.
+ - Science’s tools will never prove or disprove God’s existence.
+ - As an atheist evolving to agnosticism, and seeking answers to whether or not belief in God is potentially rational, my life was turned upside down 35 years ago by reading C. S. Lewis’s Mere Christianity.
+ - Yes, evolution by descent from a common ancestor is clearly true. If there was any lingering doubt about the evidence from the fossil record, the study of DNA provides the strongest possible proof of our relatedness to all other living things.
+ - People who are in a position of finding out that they’re at risk for some illness, whether it’s breast cancer, or heart disease, are afraid to get that information – even though it might be useful to them – because of fears that they’ll lose their health insurance or their job.
+ - I’m always feeling like I’m lacking wisdom. This reassurance that one can ask God for that and it will happen is certainly reassuring to me.
+ - God gave us free will, and we may choose to exercise it in ways that end up hurting other people.
+ - When does life begin? When does the soul enter? That’s a religious question. Science is not going to be able to help with that.
+ - We are still working with an incomplete compass. The time is right to bring the full power of genomics to bear on the problem of cancer.
+ - Successful weight management really means a permanent change in lifestyle – and success in this arena provides that person with a great opportunity to model that behavior for friends and family.
+ - If God is real, and I believe he is, then he is outside of nature. He is, therefore, not limited by the laws of nature in the way that we are.
+ - I’ve never heard God speak out loud to me. That’s not an experience I have had.
+ - A virus is not just DNA; a virus is also packaged up, covered over with a series of proteins in a nice, elegant, well-compacted form.
+ - God decided to create a species with whom he could have fellowship. Who are we to say that evolution was a dumb way to do it? It was an incredibly elegant way to do it.
+ - By committing the scientific method to religious claims you’re committing a logical fallacy.
+ - A technological advance of a major sort almost always is overestimated in the short run for its consequences – and underestimated in the long run.
+ - In my own experience as a physician, I have not seen a miraculous healing, and I don’t expect to see one.
+ - Faith is not the opposite of reason. Faith rests squarely upon reason, but with the added component of revelation.
+ - I’m aware there are certain products that are being advertised – food products – with ‘no chemicals whatsoever.’ Well, that would be pretty hard to arrange, since everything around us is made up of atoms and molecules – chemicals – including ourselves.
+ - I trained initially as a physical chemist, and then, after becoming interested in biology, I went to medical school and learned how to be a physician. So, I’m a physician scientist.
+ - The word ‘living’ has so many connotations that I’m almost reluctant to try to define it scientifically because it sounds as if I’m then downgrading all the other significances of that word.
+ - Prayer is, for me, not an opportunity to ask God to do stuff for me. Prayer is an opportunity to open myself, to try and understand his will, and oftentimes it’s a prayer of thanksgiving, and sometimes it’s a prayer of supplication, and sometimes it is just worship.
+ - So much of what we are currently seeing as far as human suffering and misery comes from diseases that should have been preventable but were not.
+ - What faith has not been used by demagogues as a club over somebody’s head?
+ - We give our kids vaccinations. That’s a biological enhancement that’s considered not just acceptable but actually admirable.
+ - I’m a pretty informal guy. I ride a Harley.
+ - I think history would say that medical research has, throughout many changes of parties, remained as one of the shining lights of bipartisan agreement, that people are concerned about health for themselves, for their families, for their constituents.
+ - The best diet is the one that can be sustained over the long term, combined with other healthful lifestyle behaviors.
+ - Proponents of intelligent design don’t accept that some of the very complex nanomachines that we have inside ourselves could have come about solely on the basis of natural selection.
+ - I think there are people who’s lives have been saved because of the study of the genome.
+ - What wakes me up at night is this next generation and what’s happening to them. And they’re invariably excited about the science that they’re doing, but invariably anxious about where there’s a future.
+
+54 quotes

@@ -1,0 +1,30 @@
+ - Life is a dream in the night, a fear among fears, A naked runner lost in a storm of spears.
+ - I had my dreams of Venice, but nothing that I had dreamed was as impossible as what I found.
+ - Here in a little lonely room I am master of earth and sea, And the planets come to me.
+ - Criticism is properly the rod of divination: a hazel switch for the discovery of buried treasure, not a birch twig for the castigation of offenders.
+ - A realist, in Venice, would become a romantic by mere faithfulness to what he saw before him.
+ - It is in their eyes that their magic resides.
+ - And I would have, now love is over, An end to all, an end: I cannot, having been your lover Stoop to become your friend!
+ - As perfume doth remain In the folds where it hath lain, So the thought of you, remaining Deeply folded in my brain, Will not leave me: all things leave me: You remain.
+ - The desert of virginity Aches in the hotness of her mouth.
+ - My soul is like this cloudy, flaming opal ring.
+ - Art begins when a man wishes to immortalize the most vivid moment he has ever lived.
+ - Sweet, can I sing you the song of your kisses? How soft is this one, how subtle this is, How fluttering swift as a bird’s kiss that is, As a bird that taps at a leafy lattice; How this one clings and how that uncloses From bud to flower in the way of roses.
+ - God, like all highest things, Hides light in shade, And in the night his visitings To sleep and dreams are clearliest made.
+ - The clamours of spring are the same old delicate noises, The earth renews its magical youth at a breath.
+ - The dead are happy, having no desire. I rise and fall, and rise and fall again, Something is in me, famishing for bread, Baffled and unappeasable as fire.
+ - Night, a more perfect day.
+ - Vaguely conscious of that great suspense in which we live, we find our escape from its sterile, annihilating reality in many dreams, in religion, passion, art.
+ - The making of one’s life into art is, after all, the first duty and privilege of every man.
+ - Leave words to them whom words, not doings, move.
+ - The mystic too full of God to speak intelligibly to the world.
+ - A place has almost a shyness of a person with strangers; its secret is not to be surprised by too direct interrogation.
+ - The English mist is always at work like a subtle painter, and London is a vast canvas prepared for the mist to work on.
+ - Hardly any one is able to see what is before him, just as it is in itself. He comes expecting one thing, he finds another thing, he sees through the veil of his preconception, he criticizes before he has apprehended, he condemns without allowing his instinct the chance of asserting itself.
+ - Without charm there can be no fine literature, as there can be no perfect flower without fragrance.
+ - He knew that the whole mystery of beauty can never be comprehended by the crowd, and that while clearness is a virtue of style, perfect explicitness is not a necessary virtue.
+ - What we ask of him is, that he should find out for us more than we can find out for ourselves. He must have the passion of a lover.
+ - There are certain natures to whom work is nothing, the act of work everything.
+ - But we have been taught to see before our eyes have found out a way of seeing for themselves.
+
+28 quotes

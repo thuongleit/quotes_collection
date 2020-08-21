@@ -1,0 +1,26 @@
+ - Biker chicks want the bad boy.
+ - What lasting impact will I make on the world and those around me? What will I live my life for? How will I be remembered? I want to leave the world a better place than it was when I got here. I want to experience as much as I can in this very short life that we have.
+ - My mom is the best. She’s so nuts.
+ - Scars show toughness: that you’ve been through it, and you’re still standing.
+ - If you see a biker chick hanging out with a group of bikers and associated with them, stay away. You’ll know right away if a biker chick is free; if she’s with someone, she’s right by his side. Getting with somebody’s old lady is a big no-no. That’s more serious than anything in that world.
+ - Doubt is probably the biggest obstacle to overcome. Once you rise above doubt, you are on your way to success.
+ - It was a hard lesson to learn, but eventually I had to come to grips with the fact that I cannot solve everyone’s problems and lead them to a happy, fulfilled life. They have to figure that out on their own.
+ - My lifestyle, my life, everything has changed because of this show. Has it made me look different? Yes, it’s changed everything for me, everything from this show. And I cannot thank every single part of ‘Sons of Anarchy’ enough.
+ - The reason I went to an all-boys Catholic school was because they had the best football team. We won the state championship my junior year. It was super-competitive. We lost in the semifinals my senior year, and it still haunts me.
+ - My stepfather and my mother, I love them to death.
+ - My uncle who helped in a big part of raising me from when I was young, had moved from California, and would just tell me these legendary stories of these motorcycle clubs that he was around and that he used to ride with.
+ - Being from Staten Island and Brooklyn, I’m used to eating pasta and meatballs every single day.
+ - I’ve always had a massive fascination with the modern day cowboys. Modern day outlaws or going against the system, and that’s always been very intriguing to me.
+ - If you look at someone like Kim Coates, you realize that hes been in everything.
+ - The people I respect in the history of acting, from the beginning, were chameleons.
+ - If anybody ever needs to find me, I’m in the Glendale Whole Foods. I think it’s the greatest Whole Foods on the planet. There are a bunch around the country, but this one seems like it has everything. Plus, everyone is super cool, the flow is fantastic, and it’s in my hood.
+ - The first year of the Boot Ride was an amazing experience. Seeing people come out from all over, ride and, most importantly, put on their boots, was an inspiration.
+ - I try not to eat processed foods, well, ever. If it comes from a lab or a factory, I don’t want it.
+ - I jog at the Rose Bowl, and I collect antique and vintage furniture, so I’m there every few weeks for the flea market.
+ - I’ve worked on 30-something different TV shows, and most of the people can’t stand each other.
+ - I think that when people join clubs as simple as a sorority or a fraternity, a football team, a baseball team, it’s just – you want to be in a group. You want to be around people, you want to be with people.
+ - It’s not impressive to get in a fight, but if one does happen, you’ve gotta be ready to handle it. Every girl, not just biker chicks, knows what kind of guy can.
+ - Basically, the way you get into any role is just doing research on the type of character you’re playing.
+ - Sports was my entire life as long as I can remember.
+
+24 quotes

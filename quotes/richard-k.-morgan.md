@@ -1,0 +1,22 @@
+ - For me, any fiction of nobles and swords necessarily has to be a story of corruption, injustice and savagely violent conflict – because any other treatment is going to have all the heft and realistic honesty of a bedtime fairy tale for five year olds.
+ - If they asked how I died tell them: Still angry.
+ - The way I see it, anyone who’s proud of their country is either a thug or just hasn’t read enough history yet.
+ - Take what is offered and that must sometimes be enough.
+ - The human eye is a wonderful device. With a little effort, it can fail to see even the most glaring injustice.
+ - Science casts a long black shadow back over who we think we are, and where it falls the temperature falls with it. Its touch is chilly and unforgiving.
+ - We all get our dreams stamped on from time to time, right? And if it didn’t hurt, what kind of second-rate dreams would they be?
+ - I think by definition you need to have lived a little bit to write anything that’s humanly true.
+ - Hand over your responses to the man who triggers them, and you have already lost the battle for self. Look beyond, and find yourself there instead.
+ - In the future, maybe quantum mechanics will teach us something equally chilling about exactly how we exist from moment to moment of what we like to think of as time.
+ - I’ve been accused countless times of writing gloomy futures. But to me, the texture of my sci-fi just feels like an extrapolation of current trends.
+ - Pretty much anything you care to imagine can happen in a fantasy, which in turn means you can really crank up the intensity of the tale you’re telling.
+ - Evolutionary theory informs our understanding of some frankly inexcusable social behavior and renders it perfectly normal.
+ - It was the single forgiving phrase in the syntax of weaponry I had strapped about me. The rest were unequivocal sentences of death.
+ - A preoccupation with the next world clearly shows an inability to cope credibly with this one.
+ - When a man you know to be of sound mind tells you his recently deceased mother has just tried to climb in his bedroom window and eat him, you only have two basic options. You can smell his breath, take his pulse and check his pupils to see if he’s ingested anything nasty, or you can believe him.
+ - Good authors mature over time: it does take awhile. Travel abroad and learn to live in other cultures. That’s one of the things about teaching abroad.
+ - Certainly a decade and a half out in the real world, bashing my head against things, probably made me into a more textured writer. It gives you something to write about.
+ - Syndicate is technically the first game I worked on.
+ - I think certainly if I’d started getting published when I was in my early twenties, I was quite sheltered then and didn’t know anything much about the world. I hadn’t had any direct experience of how the world works.
+
+20 quotes

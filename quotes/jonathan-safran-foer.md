@@ -1,0 +1,380 @@
+ - You cannot protect yourself from sadness without protecting yourself from happiness.
+ - Sometimes I can hear my bones straining under the weight of all the lives I’m not living.
+ - It is my great hope that our paths, however long and winding, will cross again.
+ - Not responding is a response – we are equally responsible for what we don’t do.
+ - I think and think and think, I’ve thought myself out of happiness one million times, but never once into it.
+ - Love me, because love doesn’t exist, and I have tried everything that does.
+ - While it is always possible to wake a person who’s sleeping, no amount of noise will wake a person who is pretending to be asleep.
+ - Why didn’t I learn to treat everything like it was the last time. My greatest regret was how much I believed in the future.
+ - It was not the feeling of completeness I so needed, but the feeling of not being empty.
+ - I’m so afraid of losing something I love that I refuse to love anything.
+ - It’s hard to say goodbye to the place you’ve lived. It can be as hard as saying goodbye to a person.
+ - It’s the tragedy of loving, you can’t love anything more than something you miss.
+ - People hurt each other. That’s what people do.
+ - It was one of the best days of my life, a day during which I lived my life and didn’t think about my life at all.
+ - The end of suffering does not justify the suffering, and so there is no end to suffering.
+ - I hope that one day you will have the experience of doing something you do not understand for someone you love.
+ - People who care about animals tend to care about people. They don’t care about animals to the exclusion of people. Caring is not a finite resource and, even more than that, it’s like a muscle: the more you exercise it, the stronger it gets.
+ - Time was passing like a hand waving from a train that I wanted to be on.
+ - Life is scarier than death.
+ - I am always sad, I think. Perhaps this signifies that I am not sad at all, because sadness is something lower than your normal disposition, and I am always the same thing. Perhaps I am the only person in the world, then, who never becomes sad. Perhaps I am lucky.
+ - People don’t care enough. They don’t get worked up enough. They don’t get angry enough. They don’t get passionate enough. I’d rather somebody hate what I do than be indifferent to it.
+ - For a long time, I thought I would like to be a doctor. Such a good profession. So explicitly good. Never a waste of time.
+ - Compassion is a muscle that gets stronger with use, and the regular exercise of choosing kindness over cruelty would change us.
+ - I regret that it takes a life to learn how to live.
+ - There were things I wanted to tell him. But I knew they would hurt him. So I buried them, and let them hurt me.
+ - I can forgive you for leaving, but not for coming back.
+ - One day you will do things for me that you hate. That is what it means to be family.
+ - She extended a hand that I didn’t know how to take, so I broke its fingers with my silence.
+ - Since the world has changed so much, the same values don’t lead to the same choices anymore.
+ - I did not need to know if he could love me. I needed to know if he could need me.
+ - I wanted to cry but I didn’t, I probably should have cried, I should have drowned us there in the room ending our suffering.
+ - In the end, everyone loses everyone. There was no invention to get around that.
+ - The bruises go away, and so does how you hate, and so does the feeling that everything you receive from life is something you have earned.
+ - The factory farm has succeeded by divorcing people from their food, eliminating farmers, and ruling agriculture by corporate fiat.
+ - Am I such a bad person for dreaming of a world that ends when I do? I don’t mean the world ending with respect to me, but every set of eyes closing with mine.
+ - Technology celebrates connectedness, but encourages retreat.
+ - Food is not rational. Food is culture, habit, craving and identity.
+ - So many people enter and leave your life! Hundreds of thousands of people! You have to keep the door open so they can come in! But it also means you have to let them go!
+ - Parents are always more knowledgeable than their children, and children are always smarter than their parents.
+ - Words never mean what we want them to mean.
+ - When I looked at you, my life made sense. Even the bad things made sense. They were necessary to make you possible.
+ - This is love, she thought, isn’t it? When you notice someone’s absence and hate that absence more than anything? More, even, than you love his presence?
+ - Every moment before this one depends on this one.
+ - I’m sorry for my inability to let unimportant things go, for my inability to hold on to the important things.
+ - I went to the guest room and pretended to write. I hit the space bar again and again and again. My life story was spaces.
+ - I looked at everyone and wondered where they came from, and who they missed, and what they were sorry for.
+ - We were quiet on the car ride home. I turned on the radio and found a station playing “Hey Jude.” It was true, I didn’t want to make it bad. I wanted to take the sad song and make it better. It’s just that I didn’t know how.
+ - Our relationship to the environment matters, our relationship to animals matters, and our relationship to culture matters.
+ - She was not crying Which surprised me very much But I understand now That she had found places For her melancholy That were behind more masks Than only her eyes.
+ - Everything that’s born has to die, which means our lives are like skyscrapers. The smoke rises at different speeds, but they’re all on fire, and we’re all trapped.
+ - I have so much to say to you. I want to begin at the beginning, because that is what you deserve. I want to tell you everything, without leaving out a single detail. But where is the beginning? And what is everything?
+ - She was like a drowning person, flailing, reaching for anything that might save her. Her life was an urgent, desperate struggle to justify her life.
+ - Well, let me leave it at this: if God does exist, He would have a great deal be sad about. And if He doesn’t exist, then that too would make Him quite sad, I imagine. So to answer your question, God must be sad.
+ - Songs are as sad as the listener.
+ - Weeks passed like boats waiting to sail into the starless dawn, we were full of aimless endless darkness.
+ - Tomorrow was over the horizon, and would take an entire day to reach.
+ - The secret was a hole in the middle of me that every happy thing fell into.
+ - We live in a world made up more of story than stuff. We are creatures of memory more than reminders, of love more than likes.
+ - I am willing to be annoying if that’s what was necessary.
+ - Dear Anna, we will live in a home with no walls, so that everywhere we go will be our home.
+ - She wants to know if I love her, that’s all anyone wants from anyone else, not love itself but the knowledge that love is there, like new batteries in the flashlight in the emergency kit in the hall closet.
+ - Every factory-farmed animal is, as a practice, treated in ways that would be illegal if it were a dog or a cat.
+ - Once you hear something, you can never return to the time before you heard it.
+ - Which, then, brings us closer to what we want to communicate: saying what we intend, or trying to say the opposite?
+ - It broke my heart into more pieces than my heart was made of, why can’t people say what they mean at the time?
+ - She is deranged, but so so playful.
+ - Succotash my Balzac, dipshiitake.
+ - I thought, it’s a shame that we have to live, but it’s a tragedy that we get to live only one life, because if I’d had two lives, I would have spent one of them with her.
+ - We had everything to say to each other, but no ways to say it.
+ - His voice was handsome and broken, like a cobblestone street.
+ - She felt as if she were brimming, always producing and hoarding more love inside her. But there was no release.
+ - I’m deeply curious about Jewish things. I’ve toyed around with the idea of going to rabbinical school.
+ - When it comes to meat, change is almost always cast as an absolute. You are a vegetarian or you are not.
+ - I woke up once in the middle of the night, and Buckminster’s paws were on my eyelids. He must have been feeling my nightmares.
+ - In the water I saw my father’s face, and that face saw the face of its father, and so on, and so on, reflecting backward to the beginning of time, to the face of God, in whose image we were created.
+ - I spent my life learning to feel less.
+ - Only now do I understand the war against boredom, the lost cause of empty hours, of empty days and nights.
+ - Please be truthful, but also please be benevolent, please.
+ - To feel alone is to be alone.
+ - Grandfather kicked the stop pedal, and my face gave a high-five to the front window.
+ - I imagine a line, a white line, painted on the sand and on the ocean, from me to you.
+ - Even if I don’t like what I am, I know what I am. My children like what they are, but they don’t know what they are. So tell me which is worse.
+ - Murdering someone would surely prove that you are capable of killing, but it wouldn’t be the most reasonable way to understand why you shouldn’t do it.
+ - Not responding is a response – we are equally responsible for what we don’t do. In the case of animal slaughter, to throw your hands in the air is to wrap your fingers around a knife handle.
+ - She laughed enough to migrate an entire flock of birds. That was how she said yes.
+ - He knew that I love you also means I love you in a way that no one loves you, or has loved you, or will love you, and also, I love you in a way that I love no one else, and never have loved anyone else, and never will love anyone else.
+ - Years were passing through the spaces between moments.
+ - I hope you never think about anything as much as I think about you.
+ - It’s so hard to express yourself.? I understand this.? I want to express myself.? The same is true for me.? I’m looking for my voice.? It’s in your mouth.? I want to do something I’m not ashamed of.? Something you are proud of, yes?? Not even. I just don’t want to be ashamed.
+ - The end of suffering does not justify the suffering, what a mess I am, I thought, what a fool, how foolish and narrow, how worthless, how pinched and pathetic, how helpless.
+ - The mistakes I’ve made are dead to me. But I can’t take back the things I never did.
+ - I shook my tambourine the whole time, because it helped me remember that even though I was going through different neighborhoods, I was still me.
+ - I want an infinitely blank book and the rest of time.
+ - Nothing is beautiful and true.
+ - She was so beautiful, like someone who you will never meet, but always dream of meeting, like someone who is too good for you.
+ - My insides don’t match up with my outsides. -Do anyone’s inside and outsides match up? -I don’t know. I’m only me. -Maybe that’s what a person’s personality is: the difference between the inside and the outside.
+ - Ninety-nine percent of all land animals eaten or used to produce milk and eggs in the United States are factory farmed. So although there are important exceptions, to speak about eating animals today is to speak about factory farming.
+ - I don’t think that there are any limits to how excellent we could make life seem.
+ - People who become used to saying little become used to feeling little.
+ - She let out a laugh, and then she put her hand over her mouth, like she was angry at herself for forgetting her sadness.
+ - I wanted to touch him, to tell him that even if everyone left everyone, I would never leave him, he talked and talked, his words fell through him, trying to find the floor to his sadness.
+ - There are only so many times that you can utter ‘It does not hurt’ before it begins to hurt even more than the hurt. You become enlightened of the feeling of feeling hurt, which is worse, I am certain, than the existent hurt.
+ - It was terrible. All of the things we couldn’t share. The room was filled with conversations we weren’t having.
+ - Being with him made my brain quiet. I didn’t have to invent a thing.
+ - Feathers filled the small room. Our laughter kept the feathers in the air. I thought about birds. Could they fly is there wasn’t someone, somewhere, laughing?
+ - I put my hand on the doorknob because I thought maybe her hand was on the doorknob on the other side.
+ - You are the only one who has understood even a whisper of me, and I will tell you that I am the only person who has understood even a whisper of you.
+ - I made up my mind that nothing,, nothing was going to stop me Not even me.
+ - Is there really anyone, besides Rudy Giuliani, who prefers the new Times Square?
+ - The only way to overcome sadness is to consume it.
+ - Memory was supposed to fill the time, but it made time a hole to be filled.
+ - There’s nothing wrong with not understanding yourself.
+ - No matter how much I feel, I’m not going to let it out. If I have to cry, I’m gonna cry on the inside. If I have to bleed, I’ll bruise. If my heart starts going crazy, I’m not gonna tell everyone in the world about it. It doesn’t help anything. It just makes everyone’s life worse.
+ - Fiction works when it makes a reader feel something strongly.
+ - But I still couldn’t figure out what it all meant. The more I found out, the less I understood.
+ - I got tired, I told him. Not worn out, but worn through. Like one of those wives who wakes up one morning and says I can’t bake any more bread.
+ - The end of the world has come often, and continues to come.
+ - When I was a girl, my life was music that was always getting louder. Everything moved me. A dog following a stranger. That made me feel so much.
+ - I will describe my eyes and then begin the story. My eyes are blue and resplendent. Now I will begin the story.
+ - People around the world were moving from one place to another. No one was staying.
+ - I was more alone than if I had been alone.
+ - One of the greatest opportunities to live our values-or betray them-lies in the food we put on our plates.
+ - I never confused what I had with what I was.
+ - Each day has been chained to the previous one. But the weeks have wings. Anyone who believes that a second is faster than a decade did not live my life.
+ - We looked at each other until it felt like everything would burst into flames.
+ - What’s so horrible about being dead forever, and not feeling anything, and not even dreaming? What’s so great about feeling and dreaming?
+ - Why is taste, the crudest of our senses, exempted from the ethical rules that govern our other senses?
+ - I write because I want to end my loneliness. Books make people less alone. That, before and after everything else, is what books do. They show us that conversations are possible across distances.
+ - We talked about nothing in particular, but it felt like we were talking about the most important things...
+ - The French, who love their dogs, sometimes eat their horses. The Spanish, who love their horses, sometimes eat their cows. The Indians, who love their cows, sometimes eat their dogs.
+ - It was the first time I had ever made love. I wondered if he knew that. It felt like crying. I wondered, Why does anyone ever make love?
+ - The more you love someone, he came to think, the harder it is to tell them. It surprised him that strangers didn’t stop each other on the street to say I love you.
+ - I missed you even when I was with you. That’s been my problem. I miss what I already have, and I surround myself with things that are missing.
+ - I felt it very moving to feel his touch, and to remember that hands can also show love.
+ - I don’t mind if smiles come at my expense, I’m a small price to pay.
+ - My wife and I have chosen to bring up our children as vegetarians. In another time or place, we might have made a different decision. But the realities of our present moment compelled us to make that choice.
+ - Because it was starting to get dark, and because the streets were crowded, I bumped into a googolplex people. Who were they? Where were they going? What were they looking for? I wanted to hear their heartbeats, and I wanted them to hear mine.
+ - Humans are the only animal that blushes, laughs, has religion, wages war, and kisses with lips. So in a way, the more you kiss with lips, the more human you are. And the more you wage war.
+ - Memories are small prayers to God, if we believed in that sort of thing.
+ - Whether we change our lives or do nothing, we have responded. To do nothing is to do something.
+ - If I’d been someone else in a different world I’d’ve done something different, but I was myself and the world was the world, so I was silent.
+ - And also, there are so many times when you need to make a quick escape, but humans don’t have their own wings, or not yet, anyway, so what about a birdseed shirt?
+ - If nothing matters, there’s nothing to save.
+ - Love itself became the object of her love. She loved herself in love, she loved loving love, as love loves loving, and was able, in that way, to reconcile herself with a world that fell so short of what she would have hoped for.
+ - Words are capable of making experience more vivid, and also of organizing it. They can scare us, and they can comfort us.
+ - I’m interested in the kind of religion that makes life harder. I’m not so interested in the comforting kind of religion.
+ - In my family, Father is the world champion at ending conversations.
+ - Grandfather informs me that is not possible.
+ - You can make great meals without meat that are, of course, much more healthy for the same price, but it takes a process of reeducation, just because Americans aren’t familiar with how to cook vegetables anymore.
+ - She wrote, I wish I could be a girl again, with a chance to live my life again. I have suffered so much more than I needed to. And the joys I have felt have not always been joyous. I could have lived differently.
+ - Shyness is when you turn your head away from something you want.
+ - I try not to remember the life that I didn’t want to lose but lost and have to remember.
+ - Let love write on you for awhile.
+ - I thought for a minute, and then I got heavy, heavy boots.
+ - What if I never stop inventing?
+ - Look, taste is clearly the crudest of our senses: this is scientifically, objectively factual. It is less nuanced. Eyesight is extraordinary – hearing, touch. I find people who devote their whole lives to taste a little strange.
+ - She was with me. She did all of those things and so many more, things I would never tell anyone, and she never even loved me. Now that’s love.
+ - Thanksgiving is the holiday that encompasses all others. All of them, from Martin Luther King Day to Arbor Day to Christmas to Valentine’s Day, are in one way or another about being thankful.
+ - I wanted to protect him, which I was sure I could do, even if I could not protect myself.
+ - I zipped myself all the way into the sleeping bag of myself, not because I was hurt, and not because I had broken something, but because they were cracking up.
+ - There are still many different ways to get stuck, existentially stuck. Feeling like, “This is worthless. I’m wasting my time, and I would be wasting the time of someone who tried to read this.” It happens all the time.
+ - I’d lost count of the disappointments.
+ - Factory farming, of course, does not cause all the world’s problems, but is is remarkable just how many of them intersect there.
+ - We shouldn’t be intimidated by someone else’s idea of perfection if it will prevent us from taking steps we actively want to take.
+ - Sometimes people who seem good end up being not as good as you might have hoped, you know?
+ - I tried the key in all the doors, even though he said he didn’t recognize it. It’s not that I didn’t trust him, becuase I did. It’s that at the end of my search I wanted to be able to say: I don’t know how I could have tried harder.
+ - I got incredibly heavy boots about how relatively insignificant life is, and how, compared to the universe and compared to time, it didn’t even matter if I existed at all.
+ - She wanted nothing more than someone to miss, to touch, with whom to speak like a child, with whom to be a child.
+ - We believed in our grandmother’s cooking more fervently than we believed in God.
+ - I ran rather than walked, anxious to lose my way. All I wanted was to be unsure.
+ - But I dig Negroes. I dig them all the way.
+ - Oh, I’d say I like a meal as much as anybody. But I find a certain kind of foodiness silly, gluttonous and embarrassing.
+ - Something having been done just about everywhere just about always is no kind of justification for doing it now.
+ - I’ve never particularly liked bankers.
+ - It would be possible, in theory, for life and art to be reversed.
+ - She died in my arms, saying, “I don’t want to die.” That is what death is like. It doesn’t matter what uniforms the soldiers are wearing. It doesn’t matter how good the weapons are. I thought if everyone could see what I saw, we would never have war anymore.
+ - Sadness of love without release.
+ - Hunting will never feed lots of people; it will always be a hobby.
+ - He promised us that everything would be okay. I was a child, but I knew that everything would not be okay. That did not make my father a liar. It made him my father.
+ - My dream went all the way back to the beginning. The rain rose into the clouds, and the animals descended the ramp.
+ - I know you look both ways before you cross the street, but I want you to look both ways a second time, because I told you to.
+ - I felt, that night, on that stage, under that skull, incredibly close to everything in the universe, but also extremely alone.
+ - She was a genius of sadness, immersing herself in it, separating its numerous strands, appreciating its subtle nuances. She was a prism through which sadness could be divided into its infinite spectrum.
+ - Your dad didn’t die, so I won’t be able to explain it to you.
+ - Food is not just what we put in our mouths to fill up; it is culture and identity. Reason plays some role in our decisions about food, but it’s rarely driving the car.
+ - My life story is the story of everyone I’ve ever met.
+ - It is better to lose than never to have had.
+ - Reality Hunger is more than thought-provoking; it’s one of the most beautiful books I’ve read in a long time.
+ - Succotash my cocker spaniel, you fudging crevasse-hole dipshiitake!
+ - I felt suddenly shy. I was not used to shy. I was used to shame. Shyness is when you turn your head away from something you want. Shame is when you turn your head away from something you do not want.
+ - If the thrill of hunting were in the hunt, or even in the marksmanship, a camera would do just as well.
+ - The philosopher Elaine Scarry has observed that “beauty always takes place in the particular.” Cruelty, on the other hand, prefers abstraction.
+ - As a writer, putting words on the page is how I pay attention.
+ - I always write out of a need to read something, rather than a need to write something.
+ - Feeding my children is not like feeding myself: it matters more.
+ - Sometimes one simply wants to disappear.
+ - I’m not funny. People assume that because my books are funny, I’ll be funny in real life. It’s the inevitable disappointment of meeting me.
+ - Cruelty depends on an understanding of cruelty, and the ability to choose against it. Or to choose to ignore it.
+ - She had fallen in love so many times that she began to suspect she was not falling in love at all, but doing something much more ordinary.
+ - August has passed, and yet summer continues by force to grow days. They sprout secretly between the chapters of the year, covertly included between its pages.
+ - Isn’t it strange how upset people get about a few dozen baseball players taking growth hormones, when we’re doing what were doing to our food animals and feeding them to our children?
+ - Choosing leaf or flesh, factory farm or family farm, does not in itself change the world, but teaching ourselves, our children, our local communities, and our nation to choose conscience over ease can.
+ - Just because you’re an atheist, that doesn’t mean you wouldn’t love for things to have reasons for why they are.
+ - Life was a small negative space cut out of the eternal solidity, and for the first time, it felt precious – not like all of the words that had come to mean nothing, but like the last breath of a drowning victim.
+ - We are lying to ourselves and to each other. Lying about what? I don’t care if we’re lying. I am a bad person. I don’t care. I don’t care what you are.
+ - They reciprocated the great and saving lie – that our love for things is greater than our lover for our love for things – willfully playing the parts they wrote for themselves, willfully creating and believing fictions necessary for life.
+ - We shared the smile of recognizing ourselves in each other, how many imposters do I have? Do we all make the same mistakes, or has one of us gotten it right, or even just a bit less wrong, am I the imposter?
+ - The sky slowly pulled up its blue dress to reveal night.
+ - Sometimes I can feel my bones straining.
+ - Writing’s funny, it’s like walking down a hall in the dark looking for the light switch, and suddenly you find it, flip it on, and then you discover the hallway you passed through is papered with the novel you’ve written.
+ - He was someone whom everyone admired and liked but whom nobody knew. He was like a book that you could feel good holding, that you could talk about without ever having read, that you could recommend.
+ - She maintained a careful balance by her window, never allowing the men to come too close, never allowing them to stray too far.
+ - It’s much easier to be cruel than one might think.
+ - He Wrote, Are you OK? I told him, My eyes are crummy. He wrote, But are you OK? I told him, That’s a very complicated question. He wrote, That’s a very simple answer. I asked, Are you OK? He wrote, Some mornings I wake up feeling grateful.
+ - It is not a thing that you can imagine. It only is. After that, there can be no imagining.
+ - I tried to think about other things. I tried to invent optimistic inventions. But the pessimistic ones were extremely loud.
+ - This is my heart. You are touching it with your left hand. You are touching it with your left hand, not because you are left-handed, although you might be, but because I am holding it against my heart. What you are feeling is the beating of my heart. It is what keeps me alive.
+ - Everything is the way it is because everything was the way it was. Sometimes I feel ensnared in this, as if no matter what I do, what will come has already been fixed.
+ - Books are slow, books are quiet. The Internet is fast and loud.
+ - But it was unnecessary. There would be other nights. And how can you say I love you to someone you love? I rolled on my side and fell asleep next to her. Here is the point of everything I’ve been trying to tell you, Oskar. It’s always necessary. I love you, Grandma.
+ - Imagine being served a plate of sushi. But this plate also holds all of the animals that were killed for your serving of sushi. The plate might have to be five feet across.
+ - Raising your kids vegetarian is a great way to encourage them to do the opposite of what you want! But the goal is not to have them have the same values that I have. It’s to have them act on their values.
+ - When we eat factory-farmed meat we live, literally, on tortured flesh. Increasingly, that tortured flesh is becoming our own.
+ - Food for her is not food, it is terror, dignity, gratitude, vengeance, joyfulness, humiliation, religion, history, and, of course, love. As if the fruit she always offered us were picked from the destroyed brances of out family tree.
+ - I am not sad, he would repeat to himself over and over, I am not sad. As if he might one day convince himself. Or fool himself. Or convince others – The only thing worse than being sad is for others to know that you are sad.
+ - Only humans can cry tears.
+ - She saw through the shell of me into the center of me.
+ - Yesterday I wanted to turn inside out.
+ - What were we spending so much time doing if not getting to know each other?
+ - I desperately wish I had my tambourine with me now, because even after everything I’m still wearing heavy boots, and sometimes it helps to play a good beat.
+ - We aren’t exactly emptying the oceans; it’s more like clear-cutting a forest with thousands of species to create massive fields with one type of soybean.
+ - Everyone is always in need of something that another person can give, be it undivided attention, a kind word or deep empathy. There is no better use of a life than to be attentive to such needs.
+ - Also, I designed a pretty fascinating bracelet, where you put a rubber band around your favorite book of poems for a year, and then you take it off and wear it.
+ - I believed him. I was not stupid. I was his wife.
+ - She avoids mirrors, and lifts a powerful telescope to find herself.
+ - Every night before putting her to sleep, Yankel counts her ribs, as if one might have disappeared in the course of the day and become the seed and soil for some new companion to steal her away from him.
+ - Instead of singing in the shower, I would write out the lyrics of my favourite songs, the ink would turn the water blue or red or green, and the music would run down my legs.
+ - With writing, we have second chances.
+ - The paper, the stapler, the staples, the tape. It makes me sick. Physical things. Forty years of loving someone becomes staples and tape.
+ - She wanted more, more slang, more figures of speech, the bee’s knees, the cats pajamas, horse of a different color, dog-tired, she wanted to talk like she was born here, like she never came from anywhere else.
+ - But what she was really trying to say was this: I like music better than anything in the world, after you.
+ - The animals are those things that God likes but doesn’t love.
+ - Consumers are going to have get used to eating less meat – to paying more for better quality meat and eating significantly less of it.
+ - I first became a vegetarian when I was nine, in response to an argument made by a radical babysitter. My great change – which lasted a couple of weeks – was based on the very simple instinct that it’s wrong to kill animals for food.
+ - As I’ve grown older, I’ve grown more convinced there’s nothing that shouldn’t be talked about. If we think we’re protecting each other, we’re not.
+ - Stories about food are stories about us-our history and our values.
+ - We could imagine all sorts of universes unlike this one, but this is the one that happened.
+ - We shared the smile of recognizing ourselves in each other.
+ - You can call your turkey organic and torture it daily.
+ - The only thing worse than being sad is for others to know you are sad.
+ - We all choose things, and we also all choose against things. I want to be the kind of person who chooses for more than chooses against...
+ - Maybe I’ll try to be more patient with morons.
+ - Things were happening around us, but nothing was happening between us.
+ - What is being awake if not interpreting our dreams, or dreaming if not interpreting our wake?
+ - We’ve made science experiments of ourselves and our children.
+ - As long as I am thinking, I am alive.
+ - If people thought about food more like how we think about the environment, a lot of people would be eating differently and the whole system would look a lot different.
+ - I wasn’t trying to invent better and better homes, but to show her that homes didn’t matter, we could live in any home, in any city, in any country, in any century, and be happy, as if the world were just what we lived in.
+ - Be the instrument playing the sound of your life’s passing.
+ - If we communicated with something like music, we would never be misunderstood, because there is nothing in music to understand.
+ - I want to talk about God in a literary way. But I think I would have a very hard time praying to God.
+ - We spent our lives making livings.
+ - I’m not better than anyone, and I’m not trying to convince people to live by my standards of what’s right. I’m trying to convince them to live by their own.
+ - I could tell that Mom was dreaming, but I didn’t want to know what she was dreaming about, because I had enough of my own nightmares, and if she had been dreaming something happy, I would have been angry at her for dreaming something happy.
+ - I observe, I write, I try not to remember the life that I didn’t want to loose but lost and have to remember, being here fills my heart with so much joy, even if the joy isn’t mine, and at the end of the day I fill the suitcase with old news.
+ - Our love was the affliction for which only our love was the cure.
+ - A few weeks after the worst day, I started writing lots of letters. I don’t know why, but it was one of the only things that made my boots lighter.
+ - I hated myself for going, why couldn’t I be the kind of person who stays?
+ - I watched the sheets breathe when she breathed, like how Dad used to say that trees inhale when people exhale, because I was too young to understand the truth about biological processes.
+ - Books are for those without real lives, he thought. And they are no real replacement.
+ - I could not believe in a God that would challenge faith like this.
+ - Why do I write? It’s not that I want people to think I am smart, or even that I am a good writer. I write because I want to end my loneliness.
+ - We are being very nomadic with the truth, yes?
+ - My boots were so heavy that I was glad there was a column beneath us. How could such a lonely person have been living so close to me my whole life? If I had known, I would have gone up to keep him company.
+ - There is a glaring reason that the necessary total ban on nontherapeutic use of antibiotics hasn’t happened: The factory farm industry, allied with the pharmaceutical industry, has more power than public-health professionals.
+ - I wanted so much to have a life. Even just once, even for a second.
+ - I know lots and lots and lots of vegetarians who think it’s perfectly all right to kill animals for food to eat, but don’t do it because they think all the ways in which it’s done are wrong.
+ - I started carrying blank books like this one around, which I would fill with all the things I couldn’t say...
+ - I flipped back through the pad of paper while I thought about what Stephen Hawking would do next.
+ - Few people sufficiently appreciate the colossal task of feeding a world of billions of omnivores who demand meat with their potatoes.
+ - For how long could we fail until we surrendered?
+ - I wasn’t having second thoughts, but I was having thoughts.
+ - We are not long-term beings. Not heroes of romances in many volumes. For one gesture, for one word alone, we shall make the effort. We openly admit: our creations will be temporary. We shall have this as our aim: a gesture.
+ - What does it remember like?
+ - I’m a novelist, I’m not an activist. I’m not a non-fiction writer, I’m not a journalist. I’m not a foodie, I’m not even really an animal person, or an environmentalist. I did the best I could with this, but it’s not who I am.
+ - Why I’m Not Where You Are.
+ - There is nothing wrong with compromising. Even if you compromise almost everything.
+ - Chickens can do many things, but they cannot make sophisticated deals with humans.
+ - It was getting hard to keep all the things I didn’t know inside me.
+ - Everything is to protect you. I exist in case you need to be protected.
+ - Try to live so that you can always tell the truth.
+ - If we are not given the option to live without violence, we are given the choice to center our meals around harvest or slaughter, husbandry or war. We have chosen slaughter. We have chosen war. That’s the truest version of our story of eating animals. Can we tell a new story?
+ - I wish my days could be washed away like the chalk lines of my days.
+ - Memory was supposed to fill the time, but it made time a hole to be filled. Each second was two hundred yards, to be walked, crawled. You couldn’t see the next hour, it was so far in the distance. Tomorrow was over the horizon, and would take an entire day to reach.
+ - It would be refreshing to have a politician try to defend guns without any reference to the Second Amendment, but on the merits of guns.
+ - I think after you live it’s like before you lived.
+ - Factory farmers talk about their desire to feed the world. That’s not what they’re doing. They’re feeding the world with really, really cheap stuff.
+ - The Eskimos have four hundred words for snow, and the Jewshave four hundred for schmuck.
+ - I would have done anything for him. Maybe that was my sickness.
+ - They learned to hate her unknowability, her untouchability, the collage of her.
+ - She brushed her eyelashes against his chest.
+ - I can only hold on to the things I want to lose.
+ - I wanted to hit him. I wanted to hold him. I wanted to shout myself into his ear.
+ - I used to think that humor was the only way to appreciate how wonderful and terrible the world is, to celebrate how big life is. But now I think the opposite. Humor is a way of shrinking from that wonderful and terrible world.
+ - Was his death an essential stage in the continuation of his life?
+ - The writing itself is no big deal. The editing, and even more than that, the self-doubt, is excruciatingly impossible.
+ - It’s a good rule of thumb, it seems to me: if you’re not allowed to see where something comes from, don’t put it in your mouth.
+ - He removed several pages of death certificates, which were picked up by another breeze and sent into the trees. Some would fall with the leaves that September. Some would fall with the trees generations later.
+ - In the morning, when the nothing vase casts a something shadow, like the memory of someone you’ve lost, what can you say about that?
+ - The more exposure people have to the realities of factory farming, the more we will see people rejecting it. It’s already happening.
+ - To remember my values, I need to lose certain tastes and find other handles for the memories that they once helped me carry.
+ - Literature was the only religion her father practiced, when a book fell on the floor he kissed it, when he was done with a book he tried to give it away to someone who would love it.
+ - It made me start to wonder if there were other people so lonely so close. I thought about “Eleanor Rigby.” It’s true, where do they all come from? And where do they all belong?
+ - I was of the opinion that the past is past, and like all that is not now it should remain buried along the side of our memories.
+ - The images of his infinite pasts and infinite futures washed over him as he waited, paralyzed, in the present.
+ - But come. No explaining or mending. Be beside me somewhere.
+ - Anyway, the fascinating thing was that I read in National Geographic that there are more people alive now than have died in all of human history. In other words, if everyone wanted to play Hamlet at once, they couldn’t, because there aren’t enough skulls!
+ - One hundred years of joy can be erased in one second.
+ - The books could be completely worthless, and things we don’t even read now could be considered the most important books.
+ - We cracked up together, which was necessary, because she loved me again.
+ - I wouldn’t want a boy to think I was pretty unless he was the kind of boy who thought I was pretty.
+ - How did her life live itself without her.
+ - My test for writing is always, is this fun or does it feel like a job? Is it moving me? Or am I just fulfilling my own expectations – or even worse, somebody else’s?
+ - I said, ‘I need to know how he died.’ He flipped back and pointed at, ‘Why?’ So I can stop inventing how he died. I’m always inventing.
+ - It’s so beautiful at this hour. The sun is low, the shadows are long, the air is cold and clean. You won’t be awake for another five hours, but I can’t help feeling that we’re sharing this clear and beautiful morning.
+ - Ironically, the utterly unselective omnivore – “I’m easy; I’ll eat anything” – can appear more socially sensitive than the individual who tries to eat in a way that is good for society.
+ - It’s a rule that we never listen to sad music, we made that rule early on, songs are as sad as the listener, we hardly ever listen to music.
+ - There are a lot of things that we crave, there are a lot of things that would make us perhaps more fulfilled in a sensory way that we just say no to.
+ - I see myself as someone who makes things. Definitions have never done anything but constrain.
+ - Everything else happened – why not the things that could have?
+ - They do not desire anything more than everything they have known.
+ - She repeats things until they are true, or until she can’t tell whether they are true or not. She has become an expert at confusing what is with what was with what should be with what could be.
+ - Do you eat chicken because you are familiar with the scientific literature on them and have decided that their suffering doesn’t matter, or do you do it because it tastes good?
+ - It’s rarely talked about, but hunting for sport is just about as vile as we humans get.
+ - I love the idea of books being more than books, or being, rather, something other than books.
+ - If god exists, he is not to be believed in.
+ - It can be challenge enough to have to eat with myself.
+ - These little daily choices that we’re so used to thinking are irrelevant are the most important thing we do all day long.
+ - Sometimes I imagined stitching all of our little touches together. How many hundreds of thousands of fingers brushing against each other does it take to make love? Why does anyone ever make love?
+ - I saw Herschel and he saw me and we stood next to each other because that is what friends do in the presence of evil or love.
+ - I need an office, so I can have a place where I don’t write.
+ - If we were to one day encounter a form of life more powerful and intelligent than our own, and it regarded us as we regard fish, what would be our argument against being eaten?
+ - I’d rather somebody hate what I do than be indifferent to it.
+ - Is that growing old? Or is it something worse?
+ - I have no need for the past, I thought, like a child. I did not consider that the past might have a need for me.
+ - You have to do something bad to do something good.
+ - The hardest part of writing is not to get the ideas but to remember, why it is important to get them.
+ - I wondered, for the first time in my life, if life was worth all the work it took to live. What exactly made it worth it?
+ - It seems entirely possible to me that horrible things can be going on without us becoming horrible people.
+ - Profound, bottomless self-doubt – it has no value – what’s the point? In a way, it takes up as much time as anything else.
+ - And she would say, “Today you believe in God?” And he would say, “Today I believe in love”.
+ - Family are the people who must make you feel ashamed when you are deserving of shame.
+ - I kept thinking how they were all names of dead people, and how names are basically the only thing dead people keep.
+ - Writers now are putting total faith in designers at Apple and Amazon. It’s almost like a race-car driver having no input into how cars are designed.
+ - There has yet to be a human to survive a span of history without at least one end of the world.
+ - I didn’t intend to write about totems or people searching. I tried not to constrain myself, and this is what I ended up with. There’s this great Auden quote: “I look at what I write so I can see what I think.”
+ - When you look up ‘hilarious’ in the dictionary, there’s a picture of you.
+ - Living on a planet of fixed size requires compromise, and while we are the only party capable of negotiating, we are not the only party at the table. We’ve never claimed more, and we’ve never had less.
+ - I regret how much I believed in the future.
+ - It took me as long as I had known him to get rid of all of his words. Like turning an hourglass over.
+ - I have made my own choice, which is vegetarianism, but it’s not the choice I’m imposing on anybody else.
+ - Isn’t it so weird how the number of dead people is increasing even though the Earth stays the same size, so that one day there isn’t going to be room to bury anyone anymore?
+ - All really great artists, Jackson Pollack, John Cage, Beckett or Joyce – you are never indifferent to them.
+ - We are breeding creatures incapable of surviving in any place other than the most artificial settings. We have focused the awesome power of modern genetic knowledge to bring into being animals that suffer more.
+ - How beautiful is forgetting! What relief it would be for the world to lose some of its contents.
+ - What kind of world would we create if three times a day we activated our compassion and reason as we sat down to eat, if we had the moral imagination and the pragmatic will to change our most fundamental act of consumption?
+ - Why does watching a dog be a dog fill one with happiness?
+ - I’m less worried about accomplishment – as younger people always can’t help but be – and more concerned with spending my time well, spending time with my family, and reading, learning things.
+ - What do babies dream of? She must be dreaming of the before-life, just as I dream of the afterlife.
+ - If it had and answer, it wouldn’t really be love, would it?
+ - Everything is the way it is because everything was the way it was.
+ - If it weren’t my life, I wouldn’t have believed it.
+ - But I knew the truth and that’s why I was so sad. Every moment before this one depends on this one. Everything in the history of the world can be proven wrong in one moment.
+ - We eat as sons and daughters, as families, as communities, as generations, as nations, and increasingly as a globe. We can’t stop our eating from radiating influence even if we want to.
+ - The question, I’ve come to think, is not what inspires one to change, but what inspires one to remain changed.
+ - Nine out of ten significant people have to do with money or war!
+ - Then I have some bad news for you, because humans are going to destroy each other as soon as it becomes easy enough to, which will be very soon.
+ - Animal agriculture makes a 40% greater contribution to global warming than all transportation in the world combined; it is the number one cause of climate change.
+
+378 quotes

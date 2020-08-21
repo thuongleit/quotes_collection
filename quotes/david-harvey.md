@@ -1,0 +1,38 @@
+ - The right to the city is far more than the individual liberty to access urban resources: it is a right to change ourselves by changing the city.
+ - The freedom to make and remake our cities and ourselves is, I want to argue, one of the most precious yet most neglected of our human rights.
+ - There is, in short, no ‘spatial fix’ that can contain the contradictions of capitalism in the long run.
+ - Capitalism will never fall on its own. It will have to be pushed. The accumulation of capital will never cease. It will have to be stopped. The capitalist class will never willingly surrender its power. It will have to be dispossessed.
+ - Speculation in land may be necessary to capitalism, but speculative orgies periodically become a quagmire of destruction for capital itself.
+ - Capital creates space-time .
+ - Capitalists behave like capitalists wherever they are. They pursue the expansion of value through exploitation without regard to the social consequences.
+ - The invocation of social necessity should alert us. It contains the seeds for Marx’s critique of political economy as well as for his dissection of capitalism .
+ - The accumulation of capital and misery go hand in hand, concentrated in space.
+ - But planned obsolescence is possible only if the rate of technological change is contained.
+ - There are signs, these days, that the cultural hegemony of postmodernism is weakening in the West. When even the developers tell an architect like Moshe Safdie that they are tired of it, then can philosophical thinking be far behind?
+ - The common-sense notion that ‘there is a time and a place for everything’ gets carried into a set of prescriptions which replicate the social order by assigning social meanings to spaces and times.
+ - Money could not be converted into capital if wage labour did not exist.
+ - The only solution to the contradictions of capitalism entails the abolition of wage labour.
+ - The equilibrium between supply and demand is achieved only through a reaction against the upsetting of the equilibrium.
+ - The capacity to transform itself from the inside makes capitalism a somewhat peculiar beast – chameleon-like, it perpetually changes it colour; snake-like, it periodically sheds its skin.
+ - Monetary relations have penetrated into every nook and cranny of the world and into almost every aspect of social, even private life.
+ - Perpetual revolutions in technology can mean the devaluation of fixed capital on an extensive scale.
+ - Skills that are monopolizable are anathema to capital .
+ - Rampant inflation is just as hard to live with as the devaluation of commodities.
+ - If Occupy Wall Street can see their way to more collaboration with the union movement, then there will be a great deal of political action possible.
+ - The social relations of capitalism have penetrated slowly into all spheres of life to make wage labour the general condition of existence only in fairly recent times.
+ - There’s a difference between an outburst of spontaneous anger, which doesn’t have a political objective, and a more measured response that we saw in the Occupy Wall Street movement.
+ - The net worth of the 358 richest people in the world was then found to be ’equal to the combined income of the poorest 45 per cent of the worlds population – 2.3 billion people.
+ - Because the earth is not a product of labour it cannot have a value.
+ - The geographical movement of money and commodities as capital is not the same as the movements of products and of precious metals. Capital is, after all, money used in a certain way, and is by no means identical with all money uses.
+ - All rent is based on the monopoly power of private owners of certain portions of the globe.
+ - The ultimate Form of devaluation is military confrontation and global war.
+ - When money functions as measure of value it must truly represent the values it helps to circulate.
+ - If, for example, a conspiratorially minded elite is so powerful, has at its fingertips such multiple and delicate instruments with which to fine-tune accumulation, then how can the periodic headlong slides into crisis be explained?
+ - Individual capitalists, in short, behave in such a way as to threaten the conditions that permit the reproduction of the capitalist class.
+ - If all money capital invests in appropriation and none in actual production, than capitalism is not long for this world.
+ - Massive concentration of financial power, accompanied by the machinations of finance capital, can as easily de-stabilize as stabilize capitalism.
+ - Money must exist before it can be turned into capital.
+ - The accumulation of capital involves the the expansion of value over time.
+ - The onset of a crisis is usually triggered by a spectacular failure which shakes confidence in fictitious forms of capital.
+
+36 quotes

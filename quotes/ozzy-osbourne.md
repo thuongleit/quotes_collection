@@ -1,0 +1,212 @@
+ - Don’t ask me, I don’t know.
+ - Out of everything I’ve lost, I miss my mind the most!
+ - Mental wounds not healing, who and what’s to blame. I’m going off the rails on a crazy train.
+ - You can’t kill Rock ‘n’ Roll. It’s here to stay.
+ - I am going through changes.
+ - Maybe it’s not too late to learn how to love and forget how to hate.
+ - You’ve got to believe in yourself, or no one will believe in you. Imagination is like a bird on the wing, flying free for you to use.
+ - I’m not the kind of person you think I am, I’m not the anti-Christ, or the iron man.
+ - Life’s not all about money.
+ - What can go wrong will go wrong.
+ - The road to nowhere leads to me.
+ - Rock and roll is my religion.
+ - I’m not a musician – I’m a ham.
+ - You can choose, don’t confuse, win or lose, it’s up to you.
+ - Thank God for the bomb. Nuke ya, nuke ya.
+ - Tell me where do I belong in a sick society?
+ - I don’t know what’s going to happen tomorrow and I can’t relive yesterday but I live in the moment if I can.
+ - I’ll buy myself some plastic water, I should have married Lennon’s daughter.
+ - Drugs and alcohol were ruling my life. I made a lot of bad decisions while I was drinking alcohol. The first thing I stopped was cigarettes and tobacco.
+ - There are no unbeatable odds, there are no believable gods.
+ - Nobody ever told me, I found out for myself, You gotta believe in foolish miracles, it’s not how you play the game, it’s if you win or lose, you can choose, don’t confuse, win or lose.
+ - My son Jack once said to me, ‘Dad, do you think people are laughing with you or at you?’ And I said, ‘I don’t care as long as they’re laughing.’
+ - The Beatles gave me everything. Especially Paul McCartney. I adore him.
+ - When I heard The Beatles, I said, ‘That’s it. That’s what I want to be. I want to be a Beatle.’
+ - I got rabies shots for biting the head off a bat but that’s OK – the bat had to get Ozzy shots.
+ - Rock music is not meant to be perfect.
+ - You learn who your friends are when the sh-t hits the fan.
+ - Sometimes I’m scared of being Ozzy Osbourne. But it could have been worse. I could have been Sting.
+ - I’m the demon alcohol, demon alcohol, demon alcohol, demon alcohol. Let’s party.
+ - Children of the future, watching empires fall. Madness the cup they drink from, self destruction the toll.
+ - It’s sad, y’know, what money does to people.
+ - I don’t want you to play me a riff that’s going to impress Joe Satriani; give me a riff that makes a kid want to go out and buy a guitar and learn to play.
+ - You gotta be really careful what you bite off. Don’t bite off more than you can chew. It’s a dangerous world.
+ - Sabbath were a hippy band. We were into peace.
+ - Suicide is the only way out.
+ - You’re chasing the dragon, you’re chasing the high. A bird with one wing, who’s still trying to fly.
+ - Won’t you ride my white horse?
+ - I’ve been a practicing alcoholic and drug addict for most of my life.
+ - God is within you. God is a nice feeling. He’s the flowers and smells and the nice things in life.
+ - The ministry of fear that won’t let you live. The ministry of grace that doesn’t forgive.
+ - They say military have the so-called ‘secret intelligence’ – this amount of intelligence must be very secret, since I’ve never seen any intelligent military person, nor I have seen any sense in the bloody stupid wars.
+ - Black illusion is all I ever see.
+ - I’m like a junky without an addiction.
+ - I’d rather see twenty thousand smiling faces than twenty thousand crying people.
+ - I’m out doing my deal, I’m turning people on. What’s wrong with taking people away from their everyday mundane situation and having a good, fun night for an hour and a half at a rock’n’roll scene?
+ - Just another lonely broken hero picking up the pieces of my mind. Running out of faith and hope and reason, I’m running out of time.
+ - Dogs smoke in France.
+ - I can see thru mountains watch me disappear, I can even touch the sky. Swallowing the colors of the sounds I hear, am I just a crazy guy? You bet.
+ - It’s all part of my journey – I’ve done a lot of stupid things, but you learn by your mistakes.
+ - Occasionally, I go off the rails. I once nearly killed somebody once – it wasn’t funny. I am a lunatic. The pressure of work, the pressure – everyone has a stop valve, and I don’t have one.
+ - Being sober on a bus is, like, totally different than being drunk on a bus.
+ - Tell me I’m a sinner I got news for you I spoke to God this morning and he don’t like you! Don’t you try and teach me no original sin; I don’t need your pity for the shape I’m in.
+ - Condemned to violence, arrested by pain. Inside the soul lies a man insane.
+ - Everybody’s having fun, except me I’m the lonely one I live in shame.
+ - Evil thoughts and evil doing, cold, alone, you hang in ruins.
+ - With marriage, you’ve just got to stick it out. You can’t jump off the boat at the first bump in the waves.
+ - None of us is perfect. Everyone has got a skeleton in the closet that they don’t want people to find out. I just let it go, with a bit of humor.
+ - I retired once but you’ve got to have something to retire to and I don’t want to do anything. My job is like a well paid hobby, I mean not a hobby but I’m not lining up every morning at the bus queue to go to work. I’m very lucky.
+ - There’s no present, there’s no future, I don’t even know about the past.
+ - I advise that pregnant women do not come to my concerts.
+ - Conceived in anger, addicted to hate, the mutant child of a twisted state.
+ - I’m a lunatic by nature, and lunatics don’t need training – they just are.
+ - Yes, I did bite the head off of a dove. Yes, I did bite the head off of a bat. It’s a stupid thing to do, but I did it.
+ - I tried heroin once and I didn’t like it. It frightened me.
+ - A child of broken mind, the fear that I hide behind.
+ - I once had a dream about getting a marriage, house in the country, and at the end of the day we’d retire, but I’m never going to retire.
+ - Nobody ever told me, I found out for myself, you got to believe in foolish miracles.
+ - I’m dyslexic, I have attention-deficit disorder, and I’ve got something like a hereditary tremor.
+ - If I could have just one more wish, I’d wipe the cobwebs from my eyes.
+ - I remember one night in Memphis, I’d come out of a blackout, and I didn’t know where I was. I’m feeling through the darkness – I was asleep in the middle of a freeway. I went up to this car in the darkness, and it was a cop car.
+ - Chocolate thickens the saliva, which isn’t good news if you’ve gotta recite Shakespeare or sing Iron Man. Having said that, you’re not supposed to drink tea either but I still do before gigs. It’s not very rock and roll, but it’s like a magic potion to me.
+ - Weather in Afghanistan, 2000 degrees and cloudy. What the f-ck am I doing? I’m stuck on the weather channel. AHHH!
+ - What’s the future of mankind? How do I know, I got left behind.
+ - As I’m getting older a lot of my friends I used to go out and party with, they’re all dead. The fact that I’ve been through that, I’m not proud of the fact that I’ve been through all that, but it’s part of my journey. I’m lucky to be alive. I’m lucky to be playing music.
+ - Freddie is great. At a time when everybody around was doing God knows what, Queen was making music.
+ - I wanted to be the fifth Beatle.
+ - My heart stopped twice. They had to stab me to drain the blood from my lungs because I was drowning in my own blood.
+ - I don’t read the Bible. Not because I don’t want to, I just haven’t got around to It yet. One day perhaps I’ll pick it up and look at It.
+ - I’d like to sing songs that are mellower. I don’t want to be screaming when I’m 60.
+ - With time, people forget to say, “Darling I love you.” just that word...
+ - For years I’ve had neurological problems. I used to shake a lot and I was on medication – I paid about $700,000 for one year of pills. I was taking 40-odd different ones a day.
+ - Take my hand and we’ll go riding through the sunshine from above. We’ll find happiness together in the summer skies of love.
+ - When you’re in love, it’s not just about the messing around in the sack, it’s about how empty you feel when they’re gone.
+ - I don’t want to be a hero, I don’t want to ever let you down.
+ - People say it’s hard at the top, but it’s even harder at the bottom.
+ - Tony Iommi – the undisputed king of demonic heavy rock riffs. In this area, no one had never surpassed him.
+ - I cannot turn down this incredible honor twice.
+ - If you choose to criticize, you choose your enemies.
+ - I just can’t wake from these scary dreams.
+ - Still, one of the few good things about being dyslexic is that when I say I don’t read reviews, I mean I don’t read reviews.
+ - A Christian man is a man who is within himself, who puts out good vibes.
+ - Hating people isn’t a productive way of living. So what’s the point in hating anyone? There’s enough hate in the world as it is, without me adding to it.
+ - Mick Jagger, the greatest of all front men I’ve ever met in my life.
+ - I couldn’t be a royal. It’s like living in a supersonic goldfish bowl.
+ - Unholy soldier, disciple of sin, what kind of mind are you living in?
+ - I never received any encouragement. My father would work nights and my mother would work during the day. We were expected to get a job with a trade.
+ - I’ll kind of tend to beat myself up because I just want it to sound better than better.
+ - But the thing with us was, we didn’t really need anyone to make us world famous – we were already halfway there.
+ - It had a huge impact on me, ‘Smells Like Teen Spirit’ – and I was very proud when I found out that Kurt Cobain was a fan of mine. I thought he was awesome.
+ - I’m into rock’n’roll because rock’n’roll, to me, means freedom.
+ - Somebody said to me this morning, ‘To what do you attribute your longevity?’ I don’t know. I mean, I couldn’t have planned my life out better. By all accounts I should be dead! The abuse I put my body through: the drugs, the alcohol, the lifestyle I’ve lived the last 30 years!
+ - I was never good at sports. I was never good at exams, because they didn’t understand dyslexia.
+ - The power of people, when they focus on something positive, never fails to amaze me.
+ - I can’t do anything in moderation.
+ - A foolish picture I live in disgust, degradation being eaten by lust.
+ - I used to get upset by people not understanding me, but I’ve made a career out of it now.
+ - I always feel like I am on the dark side of the tracks. I feel I’m no good. I can’t read.
+ - I live in a 9 million dollar turd.
+ - International rock star – gravy maker extraordinaire.
+ - I discovered rock’n’roll. You could go round Europe in a van with your best mates, drinking beer, smoking dope and screwing chicks.
+ - All I ever wanted to do was to do something good so that my parents could be proud of me.
+ - There are some singers that have great technique and then there are those that have a certain quality or style in their voice. Some have both, like Freddie Mercury, but to me, I prefer style over technique.
+ - With my recovery programme, I have to do a daily inventory of how my day has been. I am terribly dyslexic and have attention deficit disorder, so I have to carry a tape recorder everywhere I go.
+ - Killing a pig for a good old fry-up is one thing. But there’s no excuse for being cruel, even if you’re a bored teenage kid.
+ - My mother was an amateur singer, my father was an amateur drunk.
+ - Do you want me crucified for my profanity?
+ - I would lock myself in my room and drink a case of Corona and smoke a load of pot.
+ - Execution halts your breath, helter skelter spiral death.
+ - I don’t know whose brilliant idea that was, but it wasn’t mine, that’s for sure.
+ - I’ll only retire in the day I should be dead and they have me buried, and some idiot spell over my casket some stupid gospel stuff.
+ - The media sells it and you live the role.
+ - I don’t forget what I used to do and so I can’t justifiably say to my kid, “Don’t you do that,” when I used to do it myself.
+ - I didn’t think anything we did was spectacular. I remember we thought, Let’s just write some scary music.
+ - I don’t know who Ozzy is. I wake up a new person every day.
+ - Most guys my age are boring human beings. They sit in bars, get drunk, and then go home to tell their kids the way to rule their lives, while they’re absolutely stewed out of their brains.
+ - I like the word f-k. F-king deal with it and move on to the first f-king question you have.
+ - I hated school. Hated it.
+ - Black Sabbath wasn’t like the Bon Jovis of the time. We were just a bunch of guys that were against the grain of society. And we sung about things that people thought back then.
+ - I didn’t have a clue what love was about until I met Sharon.
+ - In the Seventies I was so scared I wouldn’t go on stage.
+ - Nobody tells me f-k all!
+ - I have a night off on Halloween. It’s Halloween for me every night. Let everybody else be Ozzy for the night. People go out dressed as me.
+ - I knew it was time to get off of reality TV when someone asked me if I sang as well as acted.
+ - If that’s the only thing that’s stopping war then thank God for the bomb.
+ - I’ll always be an outrageous character.
+ - It took a lot of water to down just that f-king bat’s head, let me tell you. It’s still stuck in my f-king throat, after all these years. People all over the world say, ‘You’re the guy who kills creatures? You still do it? You do it every night?’ It happened f-king once, for Christ’s sake.
+ - In the early days, you would get skinheads, the Eagles and Black Sabbath playing the same show.
+ - To be a liar, you’ve got to have a great memory, and I don’t have a memory.
+ - The rest of the guys in Sabbath became boring old farts, and there I was, this crazy guy, still into wrecking hotel rooms and having parties.
+ - I’ve been dictating to my son, who’s helping me on his computer. I’m spending a lot of time doing research – I’ve just got up to 1971, when I went crazy and dived through the window. My life is so full of interesting stories...
+ - Ozzy is a powerful and attractive man. When I grow up I want to be Ozzy.
+ - I open the door for old ladies, I help old ladies across the road. I do a show for leukemia every year, but I don’t broadcast that because it’s against my image.
+ - There are no identical twins, or forgivable sins.
+ - I’m about caring, I’m about people, and I’m about entertaining people. I’m a family man. A husband. A father. I’ve been a lot of other things over the years, which we don’t really want to talk about.
+ - MTV made a huge impact. Heavy rotation took you from selling 1m albums to 20m albums, and that meant a lot of dough.
+ - If I go out with a jacket and a pair of trousers that my wife doesn’t like, you can bet your ass it ain’t in my wardrobe the following day. I say that it gets lost in the sky.
+ - I’m hoping to do a Broadway musical on the life of Rasputin. He’s someone I can definitely identify with.
+ - He protected his feelings in walls he imagined, but castles crumble exposing the frightened child.
+ - I used to fantasize that Paul McCartney would marry my sister.
+ - I’m not a big fan of TV. It’s an unavoidable situation being Ozzy Osbourne, people want you to go on chat shows, and I’m not good at it. I don’t feel comfortable doing it.
+ - I just suddenly thought, people really get off on being scared. They pay money to see green foam come out of people’s mouths.
+ - It was such an amazing time for music in the Sixties. When popular music hit me, it was like magic was in the air.
+ - I suppose there’s a lot of people that’ve got a better life than me. But I don’t know, I feel very fortunate and very blessed.
+ - When you’re young, you’re stupid. You do silly things.
+ - I was always apologizing for yesterday’s behavior and I got tired of it. I feel it’s good being straight. As I did when I first got high. It’s a high to be straight because I was getting loaded every day.
+ - Ten thousand million nightmares, temptation by the score, I used to get so high, and still I wanted more. You think my time is wasted in search of who I am, I tried so hard to kill the boy inside the man.
+ - Voices in the darkness scream away my mental health, can I ask a question to help me save me from myself?
+ - Being in Birmingham, I thought I was going to be a gangster or a bag-runner or a thief. I heard music and I was determined to get out of there.
+ - In those days, if you wanted a new car or a holiday, you’d phone up the office and they’d send you some cash. You never had a bank account. I don’t know anyone from the music business in the Seventies that it didn’t happen to.
+ - I can’t change the past, but I can try to make a better future for me...
+ - You can never take the violence back.
+ - In 1964 something totally unexpected happened. I got a job I enjoyed.
+ - I listen to some of the lyrics I used to write and I say, “Where was my head at when I wrote that?”
+ - We were very pleased to have the opportunity to come to Israel and visit the holy sites in the Old City.
+ - My idea of what God should be is a good guy. I don’t think there’s any good in killing people in the name of your God.
+ - You’ve got to have something to retire to. Something you always wanted to do but your job prevented it.
+ - You’ve got to try and take things to the next level, or you’ll just get stuck in a rut.
+ - I’m not one of these guys to do my solo stuff one night and Black Sabbath the next. I can’t do that, you know. It’s too much to handle.
+ - I can honestly say, all the bad things that ever happened to me were directly, directly attributed to drugs and alcohol. I mean, I would never urinate at the Alamo at nine o’clock in the morning dressed in a woman’s evening dress sober.
+ - I think if a man can create something like an atom bomb, he can surely create something with his own mind.
+ - Everything that I think is good is bad, and everything that I think is bad is good.
+ - The birth of a doubt that was once your belief is drowning in the tears that you cry.
+ - There is something f-king unbelievable about seeing all of the fans go crazy and chanting ‘Ozzy!’ I would pay to see them...
+ - When you get to 60, the word “retirement” comes in on every conversation.
+ - I’m one of these people that always looks on the bad side of the fence.
+ - Let me explain something to you – you have not been standing in front of thirty thousand decibals for thirty-five years – write me a note!
+ - It was always fun in the early days of Black Sabbath, when I stayed away from heavy drugs. Then someone gave me cocaine and I went, “Hallelujah!” I thought I’d found the meaning of life!
+ - I didn’t really like the taste of booze. I liked the effect it did on me. But I can’t say I savored a glass full of Chablis Chablis 1932. I drank whatever s – – was in front of me and got me buzzed.
+ - People say to me, you have not got stage fright. And if I haven’t got stage fright, then I’m going to be comfortable within myself, and then something – I’ve always been that way and so I’m fighting to get away from that fear.
+ - I’d rather look good in my coffin than bad in my coffin.
+ - I have a genuine love affair with my audience. When I’m on stage they’re not privileged to see me. It’s a privilege for me to see them.
+ - And I never missed one concert. In 89 shows, I think I did one a bit suspect show. In the old days, I’d pull gigs left, right and center because I was too f – – up.
+ - I’ve been in rehabs with hardcore heroin addicts who say, ‘I’ve kicked the heroin, but I can’t let go of the tobacco.’ I haven’t smoked a cigarette in a long time. I like being clean now.
+ - I kept hearing that metal is dead and Ozzy’s dead and people that like Ozzy are dead. I have never had an empty seat. I’ve always sold out, so who’s saying it’s all over?
+ - I know that I’m here – I believe that I’m here for a purpose. I believe in forces of fate.
+ - It was one of the greatest experiences of my life to meet Paul McCartney. It was phenomenal.
+ - I am a raging alcoholic, but I don’t want my kids to do the same.
+ - People think I’m crazy, but I’m in demand.
+ - I feel joy when I do a great show. I get fun out of making other people happy. I’m a terminal people-pleaser. I suppose that’s why I’m a frontman.
+ - I have no faith in my ability to judge things.
+ - I’m not trying to twist people’s heads around. I’m not trying to say, “Believe in me.”
+ - Destiny planned out, I don’t need no hand out.
+ - There are no unlockable doors.
+ - I used to smoke cigarettes, smoke dope, do smack, every f – – thing. First, I couldn’t function without it. Then I couldn’t do anything with or without it. Then I thought, “This is the end of the line for my fun days.”
+ - Be good and honest to your fellow man and try to do something good for somebody – thet’s my philosophy.
+ - What is the world coming to?
+ - I believe in what I do. I mean, I don’t go out – I don’t have the clothes or drink anymore, I don’t do drugs or any of that. I used to. But I got very ready to get me out of the house.
+ - I’ve had so much good luck happen to me that I can’t handle bad luck.
+ - If you can laugh at your mistakes, it’s a good thing.
+ - I’ve had every known chemical – cocaine, booze – and tobacco is the hardest one in the world for me to quit. You watch old flicks? It’s suggestion by looking at something: You see a cigarette, and it makes you want to smoke!
+ - The introduction of heartache began as a child.
+ - Every shopaholic needs an accomplice.
+ - All rehab can do is tell you what’s wrong with you and then suggest ways for you to get better.
+ - I hyperventilate opening a box of chocolates. I’m the most nervous guy in the world, a frightened little man on red alert from when I wake until I go to sleep. I was born with fear.
+ - I wish I didn’t have to perform ‘Iron Man’ every night.
+ - They teach you how to handle life in England, but they don’t teach you a thing about death. There’s no book telling you what to do when your mum or dad dies.
+ - I feel joy when I do a great show.
+ - The funny thing is, I was never much of a fighter. Better a live coward than a dead hero, that was my motto.
+ - I never thought I could write anything or do a show sober, ever. But I did the Black Sabbath shows sober, and it was so much better fun for me, and everybody.
+ - Love and peace to everyone. May your God go with you.
+
+210 quotes

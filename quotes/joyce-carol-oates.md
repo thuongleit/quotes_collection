@@ -1,0 +1,295 @@
+ - See, people come into your life for a reason. They might not know it themselves, why. You might not know it. But there’s a reason. There has to be.
+ - Reading is the sole means by which we slip, involuntarily, often helplessly, into another’s skin, another’s voice, another’s soul.
+ - I never change, I simply become more myself.
+ - Self-criticism is an art not many are qualified to practice.
+ - Betrayal is the deepest wound. Betrayal is what remains of love, when love has gone.
+ - The strangeness of Time. Not in its passing, which can seem infinite, like a tunnel whose end you can’t see, whose beginning you’ve forgotten, but in the sudden realization that something finite, has passed, and is irretrievable.
+ - The best revenge is living well without you.
+ - The quiet people just do their work.
+ - Read widely, and without apology. Read what you want to read, not what someone tells you you should read.
+ - If you are a writer you locate yourself behind a wall of silence and no matter what you are doing, driving a car or walking or doing housework you can still be writing, because you have that space.
+ - Running! If there’s any activity happier, more exhilarating, more nourishing to the imagination, I can’t think of what it might be.
+ - The first sentence cant be written until the final sentence is written.
+ - The challenge is to resist circumstances. Any idiot can be happy in a happy place, but moral courage is required to be happy in a hellhole.
+ - I used to think getting old was about vanity but actually it’s about losing people you love.
+ - Art is the highest expression of the human spirit.
+ - My grandmother could never have written a memoir, so ‘The Gravedigger’s Daughter’ is a homage to her life, and to the lives of other young women of her generation, which are so rarely articulated.
+ - Why is humanism not the preeminent belief of humankind?
+ - For what is delusion but the prelude to hurt. And what is hurt but the prelude to rage.
+ - When people say there is too much violence in my books, what they are saying is there is too much reality in life.
+ - We work in the dark – we do what we can – we give what we have. Our doubt is our passion, and our passion is our task. The rest is the madness of art.
+ - I have beliefs, of course, like everyone-but I don’t always believe in them.
+ - It’s very hard to be an experimental woman writer. If I had been writing under a pseudonym, just initials, I might have a different reputation – but, then I couldn’t be myself either.
+ - Only when men are connected to large, universal goals are they really happy-and one result of their happiness is a rush of creative activity.
+ - Technique holds a reader from sentence to sentence, but only content will stay in his mind.
+ - You don’t have to understand why anything that has happened nor do you even have to understand what it is that has happened. You have only to live with the remains.
+ - Never be ashamed of your subject, and of your passion for your subject.
+ - Of the widow’s countless death-duties there is really just one that matters: on the first anniversary of her husband’s death the widow should think I kept myself alive.
+ - Exotic: meaning you’re “desired.” For madness is seductive, sexy. Female madness. So long as the female is reasonably young and attractive.
+ - A daydreamer is prepared for most things.
+ - From Mother you will inherit the belief that you can journey to your fate, there’s a place to be located on a map that’s destiny. If only you can get there. If it isn’t too late. If no one stops you.
+ - Getting the first draft finished is like pushing a peanut with your nose across a very dirty floor.
+ - The ideal art, the noblest of art: working with the complexities of life, refusing to simplify, to “overcome” doubt.
+ - There is an hour when you realize: here is what you have been given. More than this, you won’t receive. And what this is, what your life has come to, will be taken from you. In time.
+ - Evil isn’t a cosmological riddle, only just selfish human behavior.
+ - Beauty is a question of optics. All sight is illusion.
+ - Her problem wasn’t she was a dumb blonde, it was she wasn’t a blonde and she wasn’t dumb.
+ - A lawyer is basically a mouth, like a shark is a mouth attached to a long gut. The business of lawyers is to talk, to interrupt one another, and to devour each other if possible.
+ - The use of language is all we have to pit against death and silence.
+ - After my parents passed away – in 2000 and 2003 – I felt I could take the time to think about the past and imagine what it would have been like to be my grandmother.
+ - I’ve always been interested in writing about people, including young children who are not able to speak for themselves. As in my novel ‘Black Water,’ I provide a voice for someone who has died and can’t speak for herself.
+ - For some reason, voters can be brainwashed, and they vote sometimes against their own best interests, let alone voting against the interests of people who need them, like people who are disenfranchised and people who are poor and so forth.
+ - Self-criticism, like self-administered brain surgery, is perhaps not a good idea. Can the ‘self’ see the ‘self’ with any objectivity?
+ - The brain is a muscle of busy hills, the struggle of unthought things with things eternally thought.
+ - We are stimulated to emotional response, not by works that confirm our sense of the world, but by works that challenge it.
+ - Writers are notoriously unable to know about themselves. Faulkner thought ‘The Fable’ was his best novel. F. Scott Fitzgerald liked ‘Tender Is the Night,’ an experimental novel.
+ - There is a terrible weight in all kinds of beauty.
+ - I was brought up to be sympathetic toward others.
+ - When you are writing literary writing, you are communicating something subtextual with emotions and poetry. The prose has to have a voice; it’s not just typing. It takes a while to get that voice.
+ - Dear girl! Life is addictive. Yet we must live.
+ - The mere passage of time makes us all exiles.
+ - How fascinating to a child are words: the shapes, sounds, textures and mysterious meanings of words; the way words link together into elastic patterns called “sentences.” And these sentences into paragraphs, and beyond.
+ - Most people who are writers go through periods when they can’t write.
+ - Death is just the last scene of the last act.
+ - Sometimes I read reviews, and without exception I will read critical essays that are sent to me. The critical essays are interesting on their own terms.
+ - I’m sure all that you’ve heard is just the usual gossip, invented to injure feelings rather than illuminate truth.
+ - One of life’s minor satisfactions is forgetting.
+ - When poets – write about food it is usually celebratory. Food as the thing-in-itself, but also the thoughtful preparation of meals, the serving of meals, meals communally shared: a sense of the sacred in the profane.
+ - I read books. Avidly, ardently! As if my life depended upon it.
+ - A writer’s life is in his work, and that is the place to find him.
+ - There is no PAST anybody can get to, to alter things or even to know what those things were but there is definitely a future, we are already in it.
+ - When I’m really involved or getting towards the end of a novel, I can write for up to ten hours a day. At those times, it’s as though I’m writing a letter to someone I’m desperately in love with.
+ - To be Jewish is to be specifically identified with a history. And if you’re not aware of that when you’re a child, the whole tradition is lost.
+ - What madness! Yet she would do it, if she could force herself. She’d become, she believed, a stronger person: a willful, resolute. Like the man who adored her, reckless.
+ - Night comes to the desert all at once, as if someone turned off the light.
+ - Even as a young child, I was a lover of books and of the spaces in which, as indeed in a sacred temple, books might safely reside.
+ - He was ugly, himself. Weird-ugly. But ugliness in a man doesn’t matter, much. Ugliness in a woman is her life.
+ - To be knocked out doesn’t mean what it seems. A boxer does not have to get up.
+ - I love insult, it’s always honest.
+ - I want to tell you that I love you I want to tell you that I love you I want to tell you that I love I love I love I love but you do not.
+ - Sometimes people surprise us. People we believe we know.
+ - Boxing is a celebration of the lost religion of masculinity all the more trenchant for its being lost.
+ - Yet I will make you all love me and I will punish myself to spite your love.
+ - This is my life now. Absurd, but unpredictable. Not absurd because unpredictable but unpredictable because absurd. If I have lost the meaning of my life, I might still find small treasured things among the spilled and pilfered trash.
+ - I learned long ago that being Lewis Carroll was infinitely more exciting than being Alice.
+ - She wasn’t in love but she would love him, if that would save her.
+ - For madness must be punished in a world in which mere sanity is prized. The revenge of the ordinary upon the gifted.
+ - The third man in the ring makes boxing possible.
+ - Love is an indescribable sensation – perhaps a conviction, a sense of certitude.
+ - Every scar in my face is worth it.
+ - Often in gothic novels there’s a large house, an estate, and it’s symbolic of that culture. Usually it’s sort of moldering or rotted or something, and sometimes it’s a whole community.
+ - My belief is that art should not be comforting; for comfort, we have mass entertainment and one another. Art should provoke, disturb, arouse our emotions, expand our sympathies in directions we may not anticipate and may not even wish.
+ - Life is like boxing in many unsettling respects. But boxing is only like boxing.
+ - Honorary degrees and lifetime achievement awards are very encouraging. I know that it might sound strange that a writer who has published many books still needs encouragement, but this is true.
+ - I was trying not to be happy, hopeful. I did not believe I deserved happiness or even hope, if you knew my soul.
+ - If my favorite, most comfortable place is by our fireplace in cold weather, expedient places are on an airplane, in a waiting room or even waiting in line; frequently these days, while on the phone having been ‘put on hold.’
+ - I’m nobody’s daughter now. I’m through with that.
+ - Homo sapiens is the species that invents symbols in which to invest passion and authority, then forgets that symbols are inventions.
+ - I’m drawn to failure. I feel that I’m contending with it constantly in my own life.
+ - I don’t read for amusement, I read for enlightenment. I do a lot of reviewing, so I have a steady assignment of reading. I’m also a judge for the Anisfield-Wolf Book Awards, which gives awards to literature and nonfiction.
+ - Because the meaning of a story does not lie on its surface, visible and self-defining, does not mean that meaning does not exist. Indeed, the ambiguity of meaning, its inner private quality, may well be part of the writer’s vision.
+ - In a family, what isn’t spoken is what you listen for. But the noise of a family is to drown it out.
+ - Writing is a solitary occupation, and one of its hazards is loneliness. But an advantage of loneliness is privacy, autonomy and freedom.
+ - On the elusive gift of blending austerity of craft with elasticity of allure.
+ - At all crucial moments in our lives we want to speak without knowing what to say.
+ - Not what the mind sees, but what the mind imagines the eye must see.
+ - The great happiness in life in creativity belongs to amateurs.
+ - Any kind of creative activity is likely to be stressful. The more anxiety, the more you feel that you are headed in the right direction. Easiness, relaxation, comfort – these are not conditions that usually accompany serious work.
+ - The institution of marriage is just formalizing an emotion, an attempt to make it seem permanent. The emotion will last or it won’t last; nothing can guarantee it.
+ - She examined me, she looked at me critically and said, “Why are you trying to starve yourself?” To keep myself from feeling love, from feeling lust, from feeling anything at all.
+ - It feels good, honey, but it isn’t love.
+ - There is the expectation that a younger generation has the opportunity to redeem the crimes and failings of their elders and would have the strength and idealism to do so.
+ - The folly of war is that it can have no natural end except in the extinction an entire people.
+ - Art is fueled by rebellion: the need, in some amounting to obsessions, to resist what is, to defy one’s elders, even to the point of ostracism; to define oneself, and by extension one’s generation, as new, novel, ungovernable.
+ - The innocence of such children doesn’t answer our deepest questions about this vale of tears to which we are condemned, but it helps to dispel them. That is the secret to family life.
+ - I could never take the idea of religion very seriously.
+ - If food is poetry, is not poetry also food?
+ - Writing is a consequence of having been ‘haunted’ by material. Why this is, no one knows.
+ - All that matters in life is forging deep ties of love and family and friends. Writing and reading come later.
+ - Can compromise be an art? Yes – but a minor art.
+ - The secret of being a writer: not to expect others to value what you’ve done as you value it. Not to expect anyone else to perceive in it the emotions you have invested in it. Once this is understood, all will be well.
+ - The cleaning is something I use as a reward if I get some work done. I go into a very happy state of mind when I’m vacuuming.
+ - Fame’s carapace does not allow for easy breathing.
+ - Productivity is a relative matter. And it’s really insignificant: What is ultimately important is a writer’s strongest books.
+ - Art does the same things dreams do. We have a hunger for dreams and art fulfills that hunger. So much of real life is a disappointment. That’s why we have art.
+ - The danger of motherhood. you relive your early self, through the eyes of your mother.
+ - The heavenly light you admire is fossil-light, it’s the unfathomably distant past you gaze into, stars long extinct.
+ - I write so much because my cat sits on my lap. She purrs so I don’t want to get up. She’s so much more calming than my husband.
+ - Cherie, keep walking. Shut your eyes. We are headed for the bridge. We are going to cross it.
+ - One man’s insanity is another man’s genius; someday the world will recognize the genius in my insanity.
+ - And this is the forbidden truth, the unspeakable taboo – that evil is not always repellent but frequently attractive; that it has the power to make of us not simply victims, as nature and accident do, but active accomplices.
+ - The suicide does not play the game, does not observe the rules. He leaves the party too soon, and leaves the other guests painfully uncomfortable.
+ - I write in longhand and assemble lots of notes, and then I try to collate them into a coherent chronology. It’s like groping along in the dark. I like writing and find it challenging, but I don’t find it easy.
+ - The mysteries of the female sex! We men can never hope to fathom your depths, but only try not to drown in them.
+ - God’s blessing is not always to be distinguished from His wrath.
+ - A man will reveal his true self, or so it seems, on the tennis court.
+ - Nothing is accidental in the universe – this is one of my Laws of Physics – except the entire universe itself, which is Pure Accident, pure divinity.
+ - I think all art comes out of conflict. When I write I am always looking for the dramatic kernel of an event, the junctures of people’s lives when they go in one direction, not another.
+ - The worst thing: to give yourself away in exchange for not enough love.
+ - Her wish to die was as pervasive as a dial tone: you lift the receiver, it’s always there.
+ - I am what would be called a ‘mainstream feminist,’ not a radical feminist.
+ - Boxing is about being hit rather more than it is about hitting, just as it is about feeling pain, if not devastating psychological paralysis, more than it is about winning.
+ - When my brother called to inform me, on the morning of May 22, 2003, that our mother Caroline Oates had died suddenly of a stroke, it was a shock from which, in a way, I have yet to recover.
+ - Boxing has become America’s tragic theater.
+ - Literature, art, like civilization itself, are only accidents.
+ - In love there are two things – bodies and words.
+ - In no other sport is the connection between performer and observer so intimate, so frequently painful, so unresolved.
+ - Boxing is rough. Even if you win, you get hurt.
+ - We inhabit ourselves without valuing ourselves, unable to see that here, now, this very moment is sacred; but once it’s gone – its value is incontestable.
+ - Not to be alone. To be spared the possibility of knowing oneself, in aloneness.
+ - Stories come to us as wraiths requiring precise embodiments.
+ - To the west, the Pacific Ocean, which revulses me, for its vastness cannot be fitted into any box.
+ - We are linked by blood, and blood is memory without language.
+ - What is a family, after all, except memories? Haphazard and precious as the contents of a catch-all drawer in the kitchen.
+ - The punishment – to the body, the brain, the spirit – a man must endure to become even a moderately good boxer is inconceivable to most of us whose idea of personal risk is largely ego-related or emotional.
+ - I wrote a novel called ‘Blonde,’ which is about Norma Jean Baker, who becomes Marilyn Monroe, which I called a fictitious biography. That uses the material as if it were myth – that Marilyn Monroe is like this mythical figure in our culture.
+ - Without craft, art remains private. Without art, craft is merely hackwork.
+ - You wake up one morning, those years are gone. There’s a comfort in this fact perhaps. I want to think that there must be comfort in all facts we can’t alter.
+ - Not even the most devastating truth can be told; it must be evoked.
+ - Like a flame is real enough, isn’t it, while it’s burning?-even if there’s a time it goes out?
+ - The relationship between parents and children, but especially between mothers and daughters, is tremendously powerful, scarcely to be comprehended in any rational way.
+ - As a farm girl, even when I was quite young, I had my ‘farm chores’ – but I had time also to be alone, to explore the fields, woods and creek side. And to read.
+ - The – the sort of thing that I want to do is to strike a resonant chord of universality in other people, which is best done by fiction.
+ - A good, sympathetic review is always a wonderful surprise.
+ - If you’re living with a scientist, you see the world differently than you do with a humanist. It’s in some ways very subtle, the differences in perceiving reality.
+ - Near the point of impact, time acelerates to the speed of light.
+ - As a teacher at Princeton, I’m surrounded by people who work hard so I just make good use of my time. And I don’t really think of it as work – writing a novel, in one sense, is a problem-solving exercise.
+ - Except that awards are competitive, which is a negative thing, they are wonderful for singling out deserving individuals and bringing their work to the attention of many potential readers who might otherwise have been totally unaware of them.
+ - Princeton is quite integrated. Women are professors at Princeton. Women are students at Princeton. That began in the 1970s.
+ - That’s how a thing starts out real then ends up just an idea.
+ - For obviously the advantage for most writers is that no one sees them. The writer is invisible, which confers power.
+ - As a child. I grew up on a small farm, so I did a lot of drawings of animals, chickens and people. At the bottom of every page, I’d put a strange scribble. I was emulating adult handwriting, though I didn’t actually know how to write.
+ - How mysterious it is, to be in love. For you can be in love with one who knows nothing of you. Perhpas our greatest happinesses spring from such longings-being in love with one who is oblivious of you.
+ - I had forgotten that time wasn’t fixed like concrete but in fact was fluid as sand, or water. I had forgotten that even misery can end.
+ - Memory blurs, that’s the point. If memory didn’t blur you wouldn’t have the fool’s courage to do things again, again, again, that tear you apart.
+ - When you give up struggle, there’s a kind of love.
+ - A lot of widows feel that they have betrayed their spouse by continuing to live. It’s deranged thinking. I know that, but that doesn’t stop you feeling it.
+ - I don’t think that any ‘ism’ is higher than literature or art. So I’m a formalist. I greatly honor and respect the form of a work.
+ - Obviously the imagination is fueled by emotions beyond the control of the conscious mind.
+ - Prose-it might be speculated-is discourse; poetry ellipsis. Prose is spoken aloud; poetry overheard.
+ - Your punishment if you’re a woman. Not loved enough.
+ - I am always reading or thinking about reading.
+ - These are the moments for which we live.
+ - Yes, I’ve listened to just a few audiobooks – but hope to listen to more. I’ve wanted to investigate how my own books sound in this format and find the experience of listening, and not reading, quite fascinating.
+ - Better to be despised, then, than to be ignored; or damned with condescending praise.
+ - The regional voice is the universal voice.
+ - Society is the picnic certain individuals leave early, the party they fail to enjoy, the musical comedy they find not worth the price of admission.
+ - Flying fosters fantasies of childhood, of omnipotence, rapid shifts of being, miraculous moments; it stirs our capacity for dreaming.
+ - I was writing novels in high school and apprenticed myself in a way both to Faulkner and to Hemingway.
+ - Maybe, love is always forgiveness, to a degree.
+ - Great art is cathartic; it is always moral.
+ - My nature is orderly and observant and scrupulous and deeply introverted.
+ - I probably spend 90% of my time revising what I’ve written.
+ - Love commingled with hate is more powerful than love. Or hate.
+ - One writes to memorialize, and to bring to life again that which has been lost.
+ - The only people who claim that money is not important are people who have enough money so that they are relieved of the ugly burden of thinking about it.
+ - Any writer who has difficulty in writing is probably not onto his true subject, but wasting time with false, petty goals; as soon as you connect with your true subject you will write.
+ - There should really not be anything gratuitous in a work of art. Sometimes what seems as if it’s gratuitous may be a passage in which a character is being characterized so that the reader comes to know him or her better.
+ - I work very slowly. It’s like building a ladder, where you’re building your own ladder rung by rung, and you’re climbing the ladder. It’s not the best way to build a ladder, but I don’t know any other way.
+ - My role models were childless: Virginia Woolf, Jane Austen, George Eliot, the Brontes.
+ - Life and people are complex. A writer as an artist doesn’t have the personality of a politician. We don’t see the world that simply.
+ - Ambitious, absorbing, and poignantly moving.
+ - The despairing soul is a rebel.
+ - I never really knew I wanted to ‘be’ a writer, but I was always writing from a very young age. It became more conscious as an ideal when I was in my twenties.
+ - Why the need, rising in some very nearly to the level of compulsion, to verify experience by way of language?-to scrupulously record and preserve the very passing of Time?
+ - Our enemy is by tradition our savior, in preventing us from superficiality.
+ - Where there must be a choice, a girl will choose Daddy. Even if you are Mommy, you concede that this must be so: you remember when you were a girl, too.
+ - I would suggest the widow do things the husband used to do, so he seems to be there with you. You will feel like just going to bed. It’s so wonderful, going to bed.
+ - The worst cynicism: a belief in luck.
+ - None of the rest of my life figures here.
+ - Like most people, I can be very easily hurt.
+ - My writing is full of lives I might have led.
+ - Probably nothing serious or worthwhile can be accomplished without one’s willingness to be alone for sustained periods of time, which is not to say that one must live alone, obsessively.
+ - Detroit, my ‘great’ subject, made me the person I am, consequently the writer I am – for better or worse.
+ - Novels usually evolve out of ‘character.’ Characters generate stories, and the shape of a novel is entirely imagined but should have an aesthetic coherence.
+ - A mouth of no distinction but well practiced, before I entered my teens, in irony. For what is irony but the repository of hurt? And what is hurt but the repository of hope?
+ - I don’t think that writer’s block exists really. I think that when you’re trying to do something prematurely, it just won’t come. Certain subjects just need time, as I’ve learned over and over again. You’ve got to wait before you write about them.
+ - My writing is often a way of ‘bearing witness’ for others who lack the education and the opportunity to tell their own stories, so I hope that my writing won’t be affected too much by my personal life.
+ - When a marriage ends, who is left to understand it?
+ - When I complete a novel I set it aside, and begin work on short stories, and eventually another long work. When I complete that novel I return to the earlier novel and rewrite much of it. In the meantime the second novel lies in a desk drawer.
+ - For what are the words with which to summarize a lifetime, so much crowded confused happiness terminated by such stark slow-motion pain?
+ - To love life for some men is to love fighting, for fighting, and not love, is seen as man’s deepest passion.
+ - You are writing for your contemporaries – not for Posterity. If you are lucky, your contemporaries will become Posterity.
+ - Impossible not to imagine the dead observing us. Our love for them a soft, shimmering gossamar that trails behind us.
+ - I come from people who did not go to college. They didn’t even finish high school. People who one might call ordinary Americans who are very hard-working.
+ - Much of my writing is energized by unresolved memories – something like ghosts in the psychological sense.
+ - The novel is perhaps the highest art form because it so closely resembles life: it is about human relationships. It’s technique, page by page, resembles our technique of living day by day-a way of relating.
+ - It seems disingenuous to ask a writer why she, or he, is writing about a violent subject when the world and history are filled with violence.
+ - Before you can write a novel you have to have a number of ideas that come together. One idea is not enough.
+ - If I’m writing, I’ll say something metaphorical or approximate, whereas scientists are very precise.
+ - And so you must grant to God what is God and not try to think of what you have lost, for that way is madness.
+ - Before I undertake a lengthy project, I have usually given much thought to it over a period of years. My files are filled with likely subjects – which perhaps, one day, I will develop.
+ - Of our hurts we make monuments of survival. If we survive.
+ - A diverse and lively collection, the highest art of the interview.
+ - Paradox: how do we know what we have failed to see because we have no language to express it, thus we cannot know that we have failed to see it.
+ - The great menace to the life of an industry is industrial self-complacency.
+ - Anyone who teaches knows that you don’t really experience a text until you’ve taught it, in loving detail, with an intelligent and responsive class.
+ - Was it confusing because it was artistic, or artistic because it was confusing?
+ - My own way of writing is very meditated and, despite my reputation, rather slow-moving. So I do spend a good deal of time contemplating endings. The final ending is usually arrived at simply by intuition.
+ - The appeal of writing is primarily the investigation of mystery.
+ - The body can’t distinguish between cleansing and punishing for the body is ignorant, and mute besides.
+ - We are the species that clamors to be lied to.
+ - Henry James’s later works would have been better had he resisted that curious sort of self-indulgence, dictating to a secretary. The roaming garrulousness of ordinary speech is usually corrected when it’s transcribed into written prose.
+ - Even if I seemed to remember, I could not know. For just to remember something is not to know if it really happened. That is a primary fact of the inner life, the most difficult fact with which we must live.
+ - I learned you don’t discover the evidence of any cause in its result.
+ - How lawyers make work for one another! You’re all priests, worshipping the same god. No wonder you adore one another.
+ - The greatest realities are physical and economic, all the subtleties of life come afterward.
+ - A writer who has published as many books as I have has developed, of necessity, a hide like a rhino’s, while inside there dwells a frail, hopeful butterfly of a spirit.
+ - Who is to blame for this most recent of sports disgraces in America? The culture that flings young athletes like Tyson up out of obscurity, makes millionaires of them and watches them self-destruct?
+ - People might be surprised to know how much I throw away. For every page I publish, I throw 10 pages away.
+ - Childhood is the province of the imagination and when I immerse myself in it, I re-create it as it was, as it could have been, as I wanted – and didn’t want – it to be.
+ - Truths are the last thing you learn about your family. By the time you learn, you’re no longer their child.
+ - This was before voice mail, recorded phone messages you can’t escape. Life was easier then. You just didn’t pick up the phone.
+ - The novel is the affliction for which only the novel is the cure.
+ - I think whenever we think of our hometowns, we tend to think of very specific people: with whom you rode on the school bus, who was your next door neighbor you were playing with, who your girlfriend was. It’s always something very specific.
+ - I compose most of my tweets with care, as if they were aphorisms – they are not usually dashed-off. Sometimes I’m surprised by the high, poetic quality of Twitter – it lends itself to a surreal sort of self-expression.
+ - I have read on a Kindle. But the Kindle we had only worked for about eight months then it stopped working. You don’t have to get books repaired.
+ - And that’s the insult of it, how always it comes back to a woman being a “good” mother in the world’s eyes or a “bad” mother, how everything in a woman’s life is funneled through her body between her legs.
+ - After love a formal feeling comes.
+ - How lovely this world is, really: one simply has to look.
+ - Fiction that adds up, that suggests a “logical consistency,” or an explanation of some kind, is surely second-rate fiction; for the truth of life is its mystery.
+ - An actress wants to be seen. An actress wants to be loved. By multitudes of people, not just one lone man.
+ - As soon as I moved to Princeton in 1978, I became fascinated by local history, much of it Revolutionary War-era; and I became fascinated by the presidency of Woodrow Wilson at Princeton University.
+ - You need so much energy and encouragement to write that if someone says something negative, some of that energy goes.
+ - There was a Greek philosopher who taught that, of all things, not to have been born is the sweetest state. But I believe sleep is the sweetest state. You’re dead, yet alive. There’s no sensation so exquisite.
+ - Nothing comes of so many things, if you have patience.
+ - Perhaps the inevitable tragedy of our complex civilization is that we must be specialists in our fields – and our fields have become increasingly difficult, so that communication is nearly impossible.
+ - It must happen to everyone. The last time you make love, you can’t know it will be the last.
+ - It is only through disruptions and confusion that we grow, jarred out of ourselves by the collision of someone else’s private world with our own.
+ - What does it mean to be born? After we die, will it be the same thing as it was before we were born? Or a different kind of nothingness? Because there might be knowledge then. Memory.
+ - Very few writers of distinction in fact were outstanding as undergraduates.
+ - Writing is the most solitary of arts.
+ - Novels begin, not on the page, but in meditation and day-dreaming – In thinking, not writing.
+ - Only in love is there trust – even the possibility of trust.
+ - Yet the fact had no consciousness of itself except through me.
+ - I am inclined to think that as I grow older I will come to be infatuated with the art of revision, and there may come a time when I will dread giving up a novel at all.
+ - Among many of my friends and acquaintances, I seem to be one of the very few individuals who felt or feels no ambivalence about my mother. All my feelings for my mother were positive, very strong and abiding.
+ - I am not conscious of working especially hard, or of ‘working’ at all. Writing and teaching have always been, for me, so richly rewarding that I don’t think of them as work in the usual sense of the word.
+ - My self is all to me. I don’t have any need of you.
+ - If I try to summon back his face, the sound of his voice, and the sensation in my stomach like a key turning in a lock when he touched me, I lose everything.
+ - Acting is the loneliest profession I know.
+ - At a time when politics deals in distortions and half truths, truth is to be found in the liberal arts. There’s something afoot in this country and you are very much a part of it.
+ - Ideas brush past fleeting and insubstantial as moths. But I let them go, I don’t want them. What I want is a voice.
+ - To be true to life, a novel must have an ending that is inevitable given the specific personalities of the characters involved. The novelist must not impose an ending upon them.
+ - Strange: how when a light is extinguished, it’s immediately as if it has never been. Darkness fills in again, complete.
+ - One of the large consolations for experiencing anything unpleasant is the knowledge that one can communicate it.
+ - I really love to set things in places that are real to me.
+ - Criticism is, for me, like essay writing, a wonderful way of relaxation; it doesn’t require a heightened and mediated voice, like prose fiction, but rather a calm, rational, even conversational voice.
+ - I can’t say I was a very successful sorority girl.
+ - It’s not hard to write poorly. But to write something good, it has to be revised.
+ - It’s one of those secrets that’s embarrassing to acknowledge, but we do love our students.
+ - Is there any mystery like who you finally turn out to be.
+ - There are boxers possessed of such remarkable intuition, such uncanny prescience, one would think they were somehow recalling their fights, not fighting them as we watch.
+ - For memory is a moral action, a choice. You can choose to remember. You can choose not.
+ - I haven’t any formal schedule, but I love to write in the morning, before breakfast. Sometimes the writing goes so smoothly that I don’t take a break for many hours – and consequently have breakfast at two or three in the afternoon on good days.
+ - The books I read I do enjoy, very much; otherwise I wouldn’t read them. Most of them are for review, for the New York Review of Books, and substantial.
+ - Critics sometimes appear to be addressing themselves to works other than those I remember writing.
+ - The denial of language is a suicidal one and we pay for it with our own lives.
+ - Food doesn’t exist, but can only be invented. And reinvented.
+ - No, the thing is, we all love storytelling, and as a writer you get to tell stories all the time.
+ - I suggest to my students that they write under a pseudonym for a week. That allows young men to write as women, and women as men. It allows them a lot of freedom they don’t have ordinarily.
+ - Writing! The activity for which the only adequate bribe is the possibility of suicide, one day.
+ - Early publication can be a dubious blessing: we all know writers who would give anything not to have published their first book, and go about trying to buy up all existing copies.
+ - Loneliness is like starvation: you don’t realize how hungry you are until you begin to eat.
+
+293 quotes

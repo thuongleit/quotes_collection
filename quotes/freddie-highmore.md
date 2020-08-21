@@ -1,0 +1,33 @@
+ - We live alone, we die alone. Everything else is just an illusion.
+ - It seemed really easy waving your hands around, it wouldn’t make any difference if you were moving it left or right, but I wanted to do it realistically. I think you can tell if someone doesn’t know what they’re doing.
+ - I like to go to bed early so I can get up early.
+ - I’m not a sad person, upset the whole time, but I seem to be quite emotional.
+ - I’ve never been a great cook.
+ - I’m pretty rubbish, as we say in Britain, artwise, and I always envy people who can pick up something and even do just a little doodle of someone that looks vaguely like them. It’s impressive.
+ - Scary is good. Kids like going to a movie and being really scared rather than fake scared.
+ - I have a younger brother.
+ - I had been practicing guitar about six months beforehand; I concentrated mostly on the songs I had to play. I got those down pretty well so they could use me actually playing.
+ - When you’re happy you don’t always have to be laughing, and when you’re sad you don’t have to be crying; sometimes it’s the opposite. You laugh when you’re the most upset.
+ - I’m sure everyone has many types of music that they enjoy.
+ - As always, with acting, you can’t be too self-conscious. You shouldn’t care about what people are thinking about you at the time because they’re not caring about you, they’re caring about the character.
+ - I like all sorts of chocolate. Milk chocolate, dark chocolate, anything.
+ - Don’t get too set on becoming an actor at an early age. I think that’s where some people get into trouble. Acting becomes their life. I don’t want that.
+ - For every different role you play it’s nice to have different challenges for each one.
+ - It was great to do August Rush and have all the challenges of playing that character, especially the American accent for the first time and also playing the guitar and the conducting I had to do.
+ - Johnny Depp is probably the best actor.
+ - I don’t go home and pretend I’m August rather than just the actual lines I’m saying in the film. If you do it that way, it makes it more natural and second nature. After awhile you get used to it and there’s so much, especially being in New York to film; you’re always surrounded by American people.
+ - I like hot weather. I think it might be a bit better if England was a bit hotter.
+ - I never really acted at school. It was doing small parts on TV that really got me started.
+ - Also “Catcher in the Rye”, which happens to be one of my favorite books, I just found that kind of useful. It helps you get into the American accent.
+ - Today the sort of thing for a guy in England growing up is that you have to suppress all your emotions. It’s almost like you have to sit back and be cool.
+ - I think a lot of the time having someone who you, not base yourself on, but can see yourself being after a few years, you can get quite blinded by that, in the same way love can be.
+ - There’s never been a particular band that I’ve followed religiously. But I do tend to listen to sadder music.
+ - Every day is a different day in New York; there’s always something new going on.
+ - I always tend to see, right after reading the script, the character and how I want to play it. I guess that’s sort of most of the work, preparing for the role, but almost the creation of the character seems to go on as I read through the script.
+ - I guess I’m just a normal kid apart from the acting.
+ - I’ve got a good family to support me, so I’m grounded in that way.
+ - It’s very nice having my mum as my agent. You know that she’s always doing what’s best for you.
+ - I think I’ve always been kept grounded. I’ve never been too involved with the movie business apart from just doing the film. I’ve never moved out to LA like a lot of people or been too drawn in by that.
+ - I always try doing a different character for every film so it’s not just changing one.
+
+31 quotes

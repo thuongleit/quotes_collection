@@ -1,0 +1,30 @@
+ - It’s not my job to be popular. I’m goal-driven; my job is to get results.
+ - Politics is compromise.
+ - Bosnia is under my skin. It’s the place you cannot leave behind. I was obsessed by the nightmare of it all; there was this sense of guilt, and an anger that has become something much deeper over these last years.
+ - The advent of interconnectedness and of weapons of mass destruction means that, increasingly, I share a destiny with my enemy.
+ - In the modern age where everything is connected to everything, the most important thing about what you can do is what you can do with others.
+ - The multinational corporations now developing budgets often bigger than medium-sized countries – these live in a global space which is largely unregulated, not subject to the rule of law, and in which people may act free of constraint.
+ - History teaches us these lessons for the interveners: leave your prejudices at home, keep your ambitions low, have enough resources to do the job, do not lose the golden hour, make security your first priority, involve the neighbours.
+ - I don’t think Bosnia is ready for reconciliation, but I do think it is ready for truth.
+ - We have invented a new human right here – the right to return home after a war.
+ - Politics is about putting yourself in a state of grace.
+ - Blair is regarded by most people in Britain as a smarmy git.
+ - Maybe it’s legitimate criticism, though it can be hurtful. Maybe I haven’t paid sufficient attention to the people with whom I would have a natural affinity as a liberal, and they feel let down by that.
+ - One of the great barriers to peace in the Middle East is that both sides, both Israel and the Palestinians, do not understand that they share a collective destiny.
+ - We have to make their livelihoods viable, get them the proper prices for their produce, try and make them stay rather than sell their property and leave again.
+ - Now we are intimately locked together. You get swine flu in Mexico; it’s a problem for Charles de Gaulle Airport 24 hours later. Lehman Brothers goes down; the whole lot collapses. There are fires in the steppes of Russia; food riots in Africa.
+ - I can establish the expectation of retributive justice. Have we done that? No.
+ - I’ve had much nastier things said about me in the British press than in the Bosnian press.
+ - The greatest failure is that although we have created institutions, we have not created a civil society.
+ - Coalition will come sooner or later, I’m certain of that.
+ - What my future will not be is active politics in the Liberal Democrat party.
+ - The generous way of putting it is that we were not ready for this. The less generous way is to say: How was it possible to return to the politics of appeasement of the 1930s?
+ - People do not want politicians they know to be corrupt.
+ - There can be no place in a 21st-century parliament for people with 15th-century titles upholding 19th-century prejudices.
+ - The United States will remain the most powerful nation on Earth for the next 10, 15 years, but the context in which she holds her power has now radically altered.
+ - I can create institutions, but I can’t rewrite the chips in people’s heads.
+ - My second job has been to try to use my power to create institutions of a modern state that could enter the European Union, and there was very little time. The door was closing, and I wanted to get Bosnia through before it shut.
+ - At the next election he’ll offer the British public an alternative that provides weight and substance and seriousness in a political debate that is, frankly, increasingly obsessed with modishness and flim-flam.
+ - It would be a foolish high representative who worked that way.
+
+28 quotes

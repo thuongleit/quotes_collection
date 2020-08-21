@@ -1,0 +1,21 @@
+ - I always believe in miracles.
+ - We live in this world of tweeting, and social media, and anti-social media, and all the rest, so no matter what you say, there is going to be what people say is a firestorm. I don’t know what a firestorm is.
+ - It was the Buffalo Bills at the Minnesota Vikings on NBC. It went to about five markets.
+ - People didn’t know the difference between a blue line and a clothes line.
+ - I’ve always felt that the game itself is pretty much a melody and I am there to provide the lyrics. You want the lyrics to match the melody, because if you are composing a song or recording a song, it’s cacophonous if they don’t match.
+ - Well, folks. That’s the greatest open in the history of television – bar none!
+ - It’s the bane of both the news and sports businesses, both electronic and print – ‘You heard it here first!’ Who cares? That’s nothing but a vanity play. If it’s not right, it’s garbage.
+ - It’s funny, but when there are dominant teams, there are a number of people who rail about the fact that they’re always seeing the Dallas Cowboys or the San Francisco 49ers or the Green Bay either in the playoffs or in the Super Bowl.
+ - Those three words, Monday Night Football, resonate like no other.
+ - There are some things in life where it’s better to receive than to give, and massage is one of them.
+ - When dealing in the technology, it becomes a question of whether you overuse something. I think that’s worse than having something technologically available to you and not using it.
+ - I still believe Emmitt has enough left in the tank to be a productive back over the next couple of seasons.
+ - As a kid growing up, I was so in sync as a fan that that served me well through the years. I can feel the game. And I try to match where the game is with my inflection, with my – the tonal quality, with getting excited.
+ - There are a number of teams that would become vastly improved with Drew Bledsoe.
+ - I think the Cowboys are one of only two teams in all of sports that engender love and hate to that extreme. The other is the Yankees. You love the Yankees or you hate the Yankees.
+ - Any time a running back reaches the age of 31 or 32, he has to lose a step. No one is a freak of nature. No one is going to be able to take the pounding a running back has to take over a 10- or 12-year career and not lose a step.
+ - I’ve always felt that I’m in a spontaneous business and if you script something, if you plan something, it will sound that way.
+ - The Miami Dolphins have to be taken seriously. Here’s a team that seems to be jelling.
+ - If there are dominant teams, people enjoy discussing whether that’s good or bad for the game, and if there aren’t any dominant teams, then people enjoy discussing that.
+
+19 quotes

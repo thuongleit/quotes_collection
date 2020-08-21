@@ -1,0 +1,110 @@
+ - To fight evil, you have to understand the dark.
+ - You’re in my every breath and every thought, intertwined so deep inside me that love’s not a strong enough word – you have my devotion, your name branded on my soul, my wolf yours to command. A hundred years? It’ll never be enough. I want eternity.
+ - I don’t want to lose my memories. Don’t make me forget. I would rather die as Elena, than live as a shadow.
+ - Emotion without reason lets people walk all over you; reason without emotion is a mask for cruelty.
+ - No more chances, Golden Eyes. You’re mine and I’ll draw blood to enforce my claim.
+ - Life might hurt, might bruise, might forever scar, but it was for living.
+ - The longer you live, the more mistakes you make. And the more sorrows you carry.
+ - You want to play? Come find me angel boy.
+ - His gentleness twined another tendril around her heart, until she was so entangled in him, she knew she’d never break free. For the first time in her life, her wolf had chosen. And it had chosen this lone wolf. “You have me,” she whispered. All of me.
+ - Your name is written on my heart, Lily.
+ - Only ignorance excuses stupidity.
+ - Do you have no sense of self-preservation?
+ - The Princess Mahiya, and she is mine.
+ - Life changes us. To wish otherwise is pointless.
+ - Love was an agony beyond compare.
+ - Some things need to be broken to become stronger.
+ - This was the kind of job that made legends out of hunters. Of course, to be a legend, you generally had to be dead.
+ - Can I bite you here, too?
+ - Maybe, just maybe, two broken people could manage to create something whole.
+ - Dropping her hand, she turned in his arms. Then, rising up on tiptoe, she cupped his face in her palms and drew him down. Her kiss was innocent, vulnerable, a caress so gentle that it made him her slave between one breath and the next.
+ - I will fight you endlessly if I think you’re wrong but I will never judge you.
+ - What can I say? I prefer to die well informed.
+ - Under her palm, his heart beat strong and sure. It was such a human sound, so honest, so real.
+ - Human women have been slapping men for being bastards for centuries. You were doing what comes naturally.
+ - Surely you’re not going to practice discretion now?
+ - Some things were worth the dance with danger.
+ - Some wounds should be healed, no matter how much time has passed or how much time is left.
+ - Truth was a tool. It should never simply be said. No, it had to be bent, twisted, colored, until it became a weapon.
+ - Pups think rules are suggestions.
+ - I almost let the best thing that ever happened to me slip away because I was hung up on ideas of what I ‘should’ want. Sometimes there is no ‘should,’ there’s only a single chance to grab on to happiness.
+ - You have the power to tear me to pieces, to wound me so deep and true that I’ll never recover. What Rissa’s death did to the boy I was? You have the ability to do a thousand times worse to the man I’ve become.
+ - Two broken pieces making a whole.
+ - Love is the greatest form of loyalty, one that places happiness of the beloved over the lover.
+ - Take care of my heart won’t you, Sophie? It’s a little odd having it outside my body-but I’m planning to steal yours to make up for it.
+ - Stay with me. I’ll show you things that’ll make you laugh in delight, scream in passion, cry for the sheer joy of it.
+ - Be gentle with him, Mercy. He’s got a heart as big as Texas – he’ll die for you without blinking. But he doesn’t expect anyone to do the same for him.
+ - He didn’t know what else to do, how to comfort her, so he simply held her, held the only person in the world who had ever cried for him.
+ - Judd figured he must have done something right along the way. How else could a rebel arrow have earned the right to call this amazing woman his own? Even if it was a mistake, too damn bad. He was never giving her up.
+ - Ransom thought her girly tendencies the funniest thing ever, constantly teased her over them, but the last time he’d opened his big mouth, she’d gotten her own back by pointing out that his long black hair sure did look well conditioned.
+ - His kiss held his heart. It broke hers.
+ - Now a small woman, with dangerous curves. I could bite into her.
+ - Nothing is stronger than the will of the human heart.
+ - Illium, with his wings of silver-kissed blue and a face designed to seduce both males and females, not to mention his ability to do the most impossible acrobatics in the air, would provide a worthy diversion. The fact that he’d decided to ditch half his clothing was just icing on the cake.
+ - A life is not a waste of time.
+ - We’re all as susceptible to the lure of power.
+ - I will love you until the day they put me in the earth.
+ - God, you’re sexy when you talk Psy.
+ - Come make me sticky. Dimitri to Honor.
+ - I have so much love inside me, Jason. So much. And I have never been allowed to shower it on anyone – no one wanted it. Let me stretch the wings of my heart with you.
+ - I swear to God, if I get shot again, Indigo will strangle me.
+ - I might not be Silent any longer, but I still have the perfect poker face.
+ - Sophia got up, taking one last look at the extraordinary daughter Councilor Nikita Duncan had borne.
+ - As an example of wealth, good taste, and subtle intimidation, it took first prize.
+ - A naked blade sheathed in velvet, that was Raphael’s voice.
+ - Holding her gaze, he closed the final distance between them and went down to his knees, that beautiful bruised face looking up at her.
+ - I want no blood from you – not until we’re both sweaty and naked and you’re screaming my name.
+ - You are mine, Elena. If you choose to sleep in another bed, I will simply pick you up and bring you home.
+ - Eternity would mean nothing without you. For no power on this earth would I trade my Elena.
+ - He would do things for he’d do for no one else, but while he’d empty the sky for her so she could spread her wings, fly, he would not set her free. She belonged to him, would always belong to him.
+ - He’d been so angry at her -always pushing his buttons, that girl. But then he’d taken her into his arms, and all that anger had blazed into a darker, hotly possessive need that had urged him to bend his head, bite down on the throbbing pulse in her neck, leave a mark.
+ - Animals obviously ranked higher in Michaela’s world view than humans. Having seen some of the things humans were capable of, Elena couldn’t disagree.
+ - No more dancing with any male but me. No more time to learn who you are before you have to hold that personality against mine. No more freedom to explore your sensuality before I own it.
+ - They didn’t understand that she held his heart, held it so utterly that there was nothing he wouldn’t do, no line he wouldn’t cross to keep her safe.
+ - These predators loved with wild fury, but they were also darkly possessive, crossing the boundary into what humans might term obsession.
+ - Sometimes he hated that voice in his brain, the one that slapped him upside the head anytime he got too stupid. Funny, it happened a lot with Sienna.
+ - If I were to splay you out on my desk and thrust my fingers into you right now, I think I’d find different.
+ - Elena. Hush, let me talk to the crazy lady.
+ - To be a legend, you generally had to be dead.
+ - But you, you’ve always been the rain, the wind, inside my mind. I taste you when I sleep, when I wake, when I breathe.
+ - A faint smile that made every tiny hair on her body rise in quivering attention. “How fast can you run?” A wolf’s question.
+ - I wouldn’t wish my consort to suffer ennui.
+ - And if she fell, he’d fall with her.
+ - Obviously, I need to study princesses further.
+ - Oh yeah, that’s the one who kept watching me as if she was waiting for me to grow fangs and try to eat her. I couldn’t help it – I used my claws to scratch my nose. Her eyes almost popped out of their sockets.
+ - Where did you learn your charm – the gulag?
+ - In her lived an innocence of soul of which she seemed unaware.
+ - It’s Adria’s face I see when I think of home.
+ - Nothing in his touch said he considered her fractured, considered her damaged goods, and that gave her a freedom she wouldn’t have believed possible.
+ - Nothing’s ever gone. We fool ourselves that things fade, but they never do.
+ - Jesus H. Christ. I have new respect for the female of the species suddenly.
+ - When she was like this, the wildness of her barely contained, it was hard to believe she’d come into his pack Silent, her emotions blockaded behind so much ice, it had infuriated his wolf.
+ - Looking at her, bedraggled and beaten, some might have seen weakness. He saw strength, determination, and a will no one could crush.
+ - An hour of your life is worth more than a thousand people to me.
+ - Pack is built on the bonds of family, of mating, of love. You come first. You always will.
+ - No one goes through life with a whole heart.
+ - He leaned down until his lips brushed her ear. “I told you to stop flinching.” And then he bit her. A slow, painless nip but there were definitely teeth involved.
+ - She was more than willing to let him walk off his temper. And the man had one, even if he wasn’t willing to admit it.
+ - There was a perfection to the moment that made Sienna think: Yes, this is it. This is who we’re meant to be together.
+ - Once, he’d used it in song, but the songs in his heart had gone silent long ago, and he knew that one day so would his voice. A man with nothing inside him eventually had nothing to say.
+ - The scent of the sea, a wild turbulent storm, crashing into her mind. Elena, why is Dmitri naked?
+ - To be haunted by my heart is no threat.
+ - Elena wondered if Michaela was waiting to be served. Snorting inwardly at the idea, she poured her own coffee – and, because she was feeling generous, and okay, maybe because she wanted to irritate Michaela – Raphael’s as well. Then she put down the carafe.
+ - He understands evil better than any other person I’ve ever known. We disagree in how to eliminate it, but we do not disagree that it exists.
+ - Oh my God! I’m crushing an angel. Let me up!
+ - She wished he’d stop touching her. Not because she didn’t like it but because she liked it far too much. It made her hunger for things that could never be hers. And if someone went hungry for too long, they started to starve. Started to hurt.
+ - She crushed it, telling herself she was going to add Big in front of her Idiot tattoo.
+ - Zach. You can only call me Mr. Quinn when you’re angry.
+ - Push me and I will. I’ll get punished, but you’ll still be dead.
+ - She was his and he was hers. They had under-the-skin privileges.
+ - Once, he hadn’t been able to touch her without causing himself pain. Now, it only hurt when he didn’t touch her.
+ - Blood for life. Life for life. Changeling justice.
+ - But sometimes, that depth of need – to save, to protect – can become a blinding fervor, one that destroys the very thing it thinks to safeguard.
+ - Say what you would about the dietary requirements, vampirism sure did do great things for the skin and body.
+ - A queen keeps a court that is spoken about. A goddess keeps a court that is never forgotten.
+ - I’ve had reports of this one being in the city, but no close-up pictures till now. He’s some kind of pretty. I could just take a bite out of that firm –.
+ - Your love is a fierce thing, Elena, a thing with claws and teeth when it comes to protecting those you claim.
+ - He was strong. And his heart, it was breaking.
+ - Somehow the idea of Montgomery as a fairy doesn’t have the same effect on me as it appears to have on you. -Raphael.
+
+108 quotes

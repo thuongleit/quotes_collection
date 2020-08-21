@@ -1,0 +1,61 @@
+ - I think being gay is a blessing, and it’s something I am thankful for every single day.
+ - If you feel like an outsider, you tend to observe things a lot more.
+ - I’m gay, always have been, always will be, and I couldn’t be more happy, comfortable with myself, and proud.
+ - I’m not trying to be something that I’m not. I’m just trying to be myself and talk about what I know, and admit what I don’t know.
+ - The farther you go, however, the harder it is to return. The world has many edges, and it’s easy to fall off.
+ - As long as a journalist shows fairness and honesty in his or her work, their private life shouldn’t matter.
+ - I suppose if you’ve never bitten your nails, there isn’t any way to explain the habit. It’s not enjoyable, really, but there is a certain satisfaction – pride in a job well done.
+ - The mark of a good book is it changes every time you read it.
+ - Learning what you don’t want to do is the next best thing to figuring out what you want to do.
+ - Going gray is like ejaculating: you know it can happen prematurely, but when it does it comes as a total shock.
+ - I’ve always giggled like a 13-year-old girl at a Justin Bieber meet and greet. There’s nothing I can do about it but I’ve never not been able to stop.
+ - In my opinion, the ability to love another person is one of God’s greatest gifts, and I thank God every day for enabling me to give and share love with the people in my life.
+ - The map of the world is always changing; sometimes it happens overnight. All it takes is the blink of an eye, the squeeze of a trigger, a sudden gust of wind. Wake up and your life is perched on a precipice; fall asleep, it swallows you whole.
+ - I have a friend – I send her one text and I get 20 texts back. Guys don’t want a million texts. It’s exhausting.
+ - I’ve never had a 12-year-old try to explain to me about groove.
+ - If you’ve ever swum in the ocean, and you go underneath the waves, you know, you’re kind of moved by the currents, but you’re not being slapped around at the top of the water by the waves. And that’s sort of what meditation is like.
+ - I don’t like anything that scares me, and I prefer to face it head on and get over it. Anyone who says they’re not scared is a fool, a liar or both. I just don’t want that fear in my stomach to be part of my life, so I work to eliminate it.
+ - I don’t feel I’m very present in each moment. I feel like every moment I’m either thinking about something that’s coming down the road or something that’s been in the past.
+ - Did you know that according to legend, the guy who became Buddha decided to seek enlightenment the day he got a touch of gray? “Gray hairs,” the would-be Buddha said, “are like angels sent by the god of death”.
+ - Anyone who says they’re not afraid at the time of a hurricane is either a fool or a liar, or a little bit of both.
+ - Socialism isn’t just a list of economic prescriptions for government. Perhaps above all, socialism is a moral view.
+ - That’s the thing about suicide. Try as you might to remember how a person lived his life, you always end up thinking about how he ended it.
+ - The people in Tacloban have great dignity and deserve better than what they have gotten.
+ - The tide of history only advances when people make themselves fully visible.
+ - Each child’s story is worthy of telling. There shouldn’t be a sliding scale of death. The weight of it is crushing.
+ - Everyone says buying your first apartment makes you feel like an adult. What no one mentions is that selling it turns you right back into a child.
+ - The thing I love about reporting is being able to blend in with any group, whether that’s neo-Nazis or pedophiles.
+ - I understand why people might be interested. But I just don’t talk about my personal life. It’s a decision I made a long time ago, before I ever even knew anyone would be interested in my personal life.
+ - I think you have to be yourself, and you have to be real and you have to admit what you don’t know, and talk about what you do know, and talk about what you don’t know as long as you say you don’t know it.
+ - You see people walking down the street with ear buds on and looking at this or whatever, talking to themselves. So there’s more and more opportunity to never be where we actually are and just be.
+ - The people I admire most hadn’t really followed a particular path that was visible when they were on it.
+ - Graduation is a big deal-bigger than getting a hole-in-one while golfing. People might think you’re lying about the hole-in-one, but when you graduate, you get a diploma.
+ - I think the notion of traditional anchor is fading away – the all-knowing, all-seeing person who speaks from on high. I don’t think the audience really buys that anymore. As a viewer, I know I don’t buy it.
+ - I meditate. Like, I try. Not every day, but even if I’m not doing that meditation, the moments of my day have changed because I’m not on my phone so much. I’m intentionally not checking my phone every two seconds.
+ - Not to sound too Dr. Phil all of a sudden, but I think the key to survival is to embrace one’s past and to not run away from it. And to come to some sort of relationship with it or understanding of it.
+ - A lot of compelling stories in the world aren’t being told, and the fact that people don’t know about them compounds the suffering.
+ - It’s not your client’s obligation, or your obligation, to prove your client’s innocence. It is the prosecution’s obligation to – to prove you’re client’s guilt.
+ - Anyone who has experienced a certain amount of loss in their life has empathy for those who have experienced loss.
+ - If I end up hosting ‘Joker’s Wild,’ please shoot me.
+ - Anytime you stop and talk to somebody and you learn about them, you start to walk in their shoes a little bit and you see things through a different lens.
+ - New Yorkers are predatory about real estate. When they sense softening, they move in for the kill.
+ - I went to a high school reunion a couple years ago and realized that the kids who were the most unusual in high school are the ones who are the most interesting now and the ones who were popular are dull and boring.
+ - I’m always uncomfortable with that notion of setting people up in order to kind of promote, you know, some sort of a face-off.
+ - Congo is one of the least-developed countries in the world, and has millions of acres of virtually untouched forest.
+ - Our skin is very thin. It doesn’t take much for us to jump off a ledge or to kill one another. It can happen very, very quickly.
+ - I believe in a society where all people do well. Not just a handful of billionaires.
+ - Politics was his passion, but he wasn’t suited for the rough-and-tumble of the game. He felt things too deeply. There was no wall between his head and his heart.
+ - I think if you’ve suffered, if you’ve experienced loss, you’re probably more open to understanding it and more comfortable talking about it and experiencing it.
+ - I’ve always loved reporting from the field most of all. There’s something about doing live TV and being there as it happens that’s always appealed to me. I think there’s great value to bearing witness to these events as they’re actually happening.
+ - I’d like to have kids at some point. I think I’ll have a family someday.
+ - Don’t fall in love with a bonobo, because it’s gonna die.
+ - When a big event happens, people turn on to CNN, not only because they know there will be people there covering an event on the ground, but because they know we’re going to cover it in a way that’s non-partisan, that’s not left or right.
+ - Be honest about what you see, get out of the way and let the story reveal itself.
+ - The whole celebrity culture thing – I’m fascinated by, and repelled by, and yet I end up knowing about it.
+ - I think there are a lot of celebrities who put on a performance on camera.
+ - If someone knows me and likes me or my work, they’re more likely to allow me to tell their story. But it also cuts the other way.
+ - I’ve been addicted to TV since I emerged from the womb.
+ - I’d wanted emotion but couldn’t find it here, so I settled for motion.
+ - Do you get the anger that is out here?
+
+59 quotes

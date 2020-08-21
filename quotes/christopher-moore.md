@@ -1,0 +1,153 @@
+ - People, generally, suck.
+ - Children see magic because they look for it.
+ - You think you know how this story is going to end, but you don't.
+ - He was a writer and words were his weapons.
+ - Love: the sickest of Irony’s sick jokes. The place where logic and order go to die.
+ - If you think anyone is sane you just don't know enough about them.
+ - That's the difference between irony and sarcasm. Irony can be spontaneous, while sarcasm requires volition. You have to create sarcasm.
+ - Love needs room to grow. Like a rose. Or a tumor.
+ - I love you above all things, even pie.
+ - Canada is a myth people made up to entertain children, like the Tooth Fairy. There's no such place.
+ - Life is an irritation.
+ - Nobody’s perfect. Well, there was this one guy, but we killed him...
+ - Not unlike the toaster, I control darkness.
+ - I fear you may become a lonely man, even in the company of others.
+ - Love is not something you think about, it is a state in which you dwell.
+ - She’s so small, yet she contains so much evil.
+ - All killer whales are named Kevin. You knew that, right?
+ - She gave him the wide, green-eyed expression that she would have described as I will slap you so far into next week that it will take a team of surgeons just to get Wednesday out of your ass.
+ - We know there’s going to be nothing but pain, but we go back again and again.
+ - Sometimes this high-tech world calls for low-tech solutions.
+ - Science, you don’t know, looks like magic.
+ - Sarcasm will make your tits fall off.
+ - The pursuit of material gain is ultimately empty when measured against eternity.
+ - You’re going to break my heart, aren’t you?
+ - Last time I really got to know myself it turned out there was a whole gang of bitches in there to deal with. I felt like the receptionist at a rehab center. They all had nice tits though, I gotta say.
+ - Christmas crept into Pine Cove like a creeping Christmas thing: dragging garland, ribbon, and sleigh bells, oozing eggnog, reeking of pine, and threatening festive doom like a cold sore under the mistletoe.
+ - OMFGEIGHTPOUNDBABYJESUSONAPOGOSTICK WHAT?
+ - An original thought would crack your feeble skull like a thunderbolt, you craven vulture.
+ - It was sometimes difficult to reconcile a man’s talents with his personality.
+ - How could you deal with a creature as devious as woman.
+ - I can be most colorful and inventive when I am angry.
+ - Actually, orcas aren’t quite as complex as scientists imagine. Most killer whales are just four tons of doofus dressed up like a police car.
+ - She knew it should bother her more, being evil and all, but after she put on a little mascara and some lipstick and poured herself another cup of blood-laced coffee, she found that she was okay with it.
+ - Marry for love, stay married, and raise happy children who are quick to laugh and slow to judge.
+ - The problem with being nuts, she thought, is that you don’t always feel as if you’re nuts. Sometimes, in fact, you feel perfectly sane, and there just happens to be a trailer-shaped dragon crouching in the lot next door.
+ - Compliment but do not covet.
+ - He loved constantly, instantly, spontaneously, without thought or words. That’s what he taught me. Love is not something you think about, it is a state in which you dwell. That was his gift.
+ - Shoes off in the whale! And don’t try and make a break for the anus.
+ - Oh, we are but soft and squishy bags of mortality rolling in a bin of sharp circumstance, leaking life until we collapse, flaccid, into our own despair...
+ - After all the evidence is in – after you’ve run all the facts by everything you know – and you’re still lost, you have to do some things on faith.
+ - Why write a song when no one can play the notes or understand the lyrics?
+ - The gourney, the big file drawers of the dead, the instruments of dissection – this sure looked like the morgues in the movies. Something had gone seriously wrong while she slept.
+ - So nerds rule.
+ - I’ve won Satan’s lottery.
+ - They were told what they wanted and they believed it. They can only keep their dream alive by being with others like themselves who will mirror their illusions.
+ - The Emperor decided to make a proclamation to his troops about the importance of compassion in the face of the rising tide of heinous fuckery and political weaselocity in the nearby kingdom of the United States.
+ - May the IRS find that you deduct your pet sheep as an entertainment expense.
+ - It’s wildly irritating to have invented something as revolutionary as sarcasm, only to have it abused by amateurs.
+ - Stephenie Meyer: Her vampires are sparkly, which I think we can all agree is wrong.
+ - Life is messy. Would that every puzzle piece fell into place, every word was kind, every accident happy, but such is not the case. Life is messy.
+ - She’s evil. Evil, evil, evil. I want to see her naked.
+ - He invented Kung Fu when translated to English means method by which short, bald guys can kick the bejeezus out of you.
+ - I could stand on my head and flick the bean right there at the dinner table and my mom would be all, “Honey, Christmas is family time, we should be together” and make me finish in front of everyone.
+ - Oh, sweetie, I’m sorry, you can’t have a baby brother, because that would mean that Daddy had sex, and that’s never going to happen again.
+ - The Angel Gabriel disappeared once for sixty years and they found him on earth hiding in the body of a man named Miles Davis.
+ - He has the attention span of a hummingbird.
+ - There’s a fine edge to new grief, it severs nerves, disconnects reality – there’s mercy in a sharp blade. Only with time, as the edge wears, does the real ache begin.
+ - Everyone is happier if they have someone else to look down on, as well as someone to look up to, especially if they resent both.
+ - Words, words, words, a million million words circle in my head like hawks, waiting to dive onto the page to rend and tear the only two words I want to write. Why me?
+ - Boredom can be a lethal thing on a small island.
+ - Confucius is like the Torah, rules to follow. And Lao-Tzu is even more conservative, saying that if you do nothing you won’t break any rules. You have to let tradition fall sometime, you have to take action, you have to eat bacon.
+ - They want to be tied up, I tie them up. They want to be spanked, I spank them. They want to be called names, I call them names. But try and drink a little of their blood, and they scream like babies. What about my needs?
+ - I was seven before I realized that you could eat breakfast with your pants on.
+ - In fact, he sorely hoped that it would happen, because otherwise, the world made no sense, there was no justice, and life was just a tangled ball of chaos.
+ - Angels are just pretty insects.
+ - I think there was always some scrawny dreamer sitting at the edge of the firelight, who had the ability to imagine dangers, to look into the future in his imagination and see possibilities, and therefore survived to pass his genes on to the next generation.
+ - Then someone started pounding on the door. And not a little “Hey, what’s up?” pound. Like there was a big sale on door pounds down at the Pound Outlet. Buy one, get one free at Pounds-n-Stuff. – Being the Journal of Abby Normal.
+ - Do we look like thrill-seekers? Wasn’t it enough that we had to put up that sign reading NO HABLA ESPANOL and acknowledge the existence of thirty percent of the population, even in the negative?
+ - Hope is merely another face of desire.
+ - Carlton Mellick III has the craziest book titles and the kinkiest fans!
+ - For me, ‘Lamb’ started out as a further exploration of the phenomenon of faith and the responsibility of a messiah that I touched on in ‘Coyote Blue’ and ‘Island of the Sequined Love Nun,’ but it ended up being an exploration of the true meaning of sacrifice, loyalty, and friendship.
+ - I wanted a trumpet concerto that reflected Native American music because, well, there aren’t any. I looked around for one but couldn’t find anything. So it’s a wide-open field.
+ - Faith isn’t an act of intelligence, it’s an act of imagination.
+ - It’s Christmas! Ah, Christmas, the time when all good people go about not decapitating each other.
+ - Even a mentally challenged shark would figure out that sea turtles did not wear boxer shorts printed in flying piggies, and no sea turtle would be yattering streams of obscenities between chain-smoker gasps of breath.
+ - Don’t be ridiculous, Charlie, people love the parents who beat their kids in department stores. It’s the ones who just let their kids wreak havoc that everybody hates.
+ - The netherworld is timeless and unchanging, and boring – much like a doctor’s waiting room.
+ - I am convinced by the events of the last few weeks that nefarious forces of people – unidentified but no less real – are threatening life as we know it, and in fact, may be bent on unraveling the very fabric of our existence.
+ - Don’t bruise the Foo!
+ - She hugged me and I could feel the heat rise in my face, either from shame or love, like there was a difference.
+ - If you like what you’re reading, I probably wrote it.
+ - Hope is bulletproof, truth just hard to hit.
+ - It’s like time travel only, you know, slower...
+ - It’s like he has this power over me – like I have an eating disorder and he’s a package of Oreo Double Stuff cookies.
+ - Why is it one can busta rhyme or busta move anywhere, but one must busta cap in someone’s ass?
+ - What this movie needs is more brain eating zombies.
+ - This story is not and never was meant to challenge anyone’s faith; however, if one’s faith can be shaken by stories in a humorous novel, one may have a bit more praying to do.
+ - Ack! Parables. I hate parables.
+ - She pulled down the blanket and aimed baby Sophie’s bottom at him like she might unleash a fusillade of weapons-grade poopage such as the guileless Beta Male had never seen.
+ - It’s hard for me, a Jew, to stay in the moment. Without the past, where is the guilt? And without the future, where is the dread? And without guilt and dread, who am I?
+ - If they’d been dogs, they would have all been in the yard eating grass and trying to yak up whatever was making them feel so lousy. Not a bone gnawed, not a ball chased-all tails went unwagged. Oh, life is a fast cat, a short leash, a flea in that place where you just can’t scratch.
+ - As much as I encourage communication with my readers, I don’t want reviews from them, simply because I don’t need to be hamstrung in the middle of working on something.
+ - I fink I gots deaf on me willie.
+ - Lonliness evaporated off of them like the steam off dry ice, and by morning it was just a cloud on the ceiling of the room, then gone with the light.
+ - The prospect of change is a many-fanged beast, my dear.
+ - She laughed. My favorite music.
+ - And he was like “The sedative in the blood, blah, blah, four hours, blah, blah, nerdspeak, geektalk -” -Abby.
+ - He had risked his freedom and his pride to buy her this, to acknowledge that part of her that everyone else seemed to want to get rid of.
+ - The medium obscured the message.
+ - He wanted her to experience all the glorious cheese of life.
+ - You sure about this writer thing son?
+ - Why understand when you can believe?
+ - Like God’s own chocolate, I’d lick her shadow off a hot sidewalk.
+ - All fear comes from trying to see the future, Biff. If you know what is coming, you aren’t afraid.
+ - People always stay the age that they died at. My big brother died of leukemia when I was six. He was eight. Now when I think of him, he’s always eight, and he’s still my big brother. He never changes, and the part of me that remembers him never changes.
+ - Routine feeds the illusion of safety...
+ - Blessed are the meek, for to them we shall say “attaboy”.
+ - San Francisco is a breathtakingly beautiful city, with lots of great contrasts between dark and light, often overlapping each other. It’s a great setting for a horror story.
+ - If you think anyone is sane you just don’t know enough about them. The key – and this is very relevant in our case – is to find someone whose insanity dovetails with your own.
+ - By Aladdin’s lamplit scrotum, man! Everything is a story. What is there but stories? Stories are the only truth.
+ - And an inky-colored despair of rejection enveloped me like the black tortilla of depression around a pain burrito.
+ - Cofishes-other fish in a group, coworkers, cohorts, etc. Shut up, it’s a word.
+ - You were supposed to empathize with your friend’s problem, but they were, after all, your friend’s problems...
+ - The value of the work we do is the value we give to it.
+ - Pondering is a little like considering and a little like thinking, but looser. To ponder, one must let the facts roll around the rim of the mind’s roulette wheel, coming to settle in whichever slot they feed pulled to.
+ - Enchantment and seduction were fine means of persuasion, but when time is short, an awkward but quick concussion could better serve a girl’s purpose.
+ - One of them hissed-not the hiss of a cat, a long, steady tone-more like the hiss of air escaping the rubber raft that is all that lies between you and a dark sea full of sharks, the hiss of your life leaking out at the seams.
+ - Like most Beta Males, he didn’t realize that being a good guy was not necessarily an attraction to women.
+ - I think I’m what they call a never-was.
+ - It’s very difficult to stay angry when a room full of bald guys in orange robes start giggling. Buddhism.
+ - She was an alien, really – a sort of eating, pooping, tantrum machine – and he didn’t understand anything about her species.
+ - This Roberto. He no like the light.
+ - You know, there’s a 12 step program for gambling. You should look into that. Twelve steps. Coyote laughed. I’ll bet I can do it in six.
+ - Most of us don’t live our lives with one, integrated self that meets the world, we’re a whole bunch of selves.
+ - In business, as in politics, the public is ever so tolerant of those who slime.
+ - I know that even now, having watched enough television, you probably won’t even refer to them as lepers so as to spare their feelings. You probably call them ‘parts-dropping-off challenged’ or something.
+ - This is the man who called the fire department when the toilet backed up, and I’m asking him for help. What was I thinking? Why am I attracted to weak men?
+ - Only cops and vampires have to have an invitation to enter.
+ - No one knows why, but second only to eating the brains of the living, the dead love affordable prefab furniture.
+ - Only by being prepared for your death can you ever truly live.
+ - We Ask the Gods for Answers and They Give Us Questions.
+ - An adventure story is fear recalled in comfort.
+ - She doesn’t understand that a writer is a special creature – that I’m different from everyone else. I’m not saying I’m superior to other people, just more sensitive, I guess.
+ - From Dickens’s cockneys to Salinger’s phonies, from Kerouac’s beatniks to Cheech and Chong’s freaks, and on to hip hop’s homies, dialect has always been used as a way for generations to distinguish themselves.
+ - So Now You’re Death: Here’s What You’ll Need.
+ - As a teacher of fourth-graders in a public school, where corporal punishement was not allowed, she had years of violence stored up and was, truth be told, sort of enjoying letting it out on Kona, who she felt could have been the poster child for the failure of public education.
+ - One can’t be free without action.
+ - Action based on hope just felt better than the paralysis of certainty.
+ - Life is loneliness, broken only by the gods taunting us with friendship and the odd bonk.
+ - Anger is the spirits telling you that you are alive.
+ - Nothing evokes the prurient like puritanism.
+ - If there was anything I learned from John the Baptist, it was that the sooner you confess a mistake, the quicker you can get on to making new and better mistakes.
+ - You don’t hurry a thinker, and you don’t talk to him when he’s thinking. It’s just inconsiderate.
+ - When I teach seminars, I tell people, Your stuff has to look like something thats out there, because otherwise nobody will take a chance on you.
+ - Foul and magical fumes bubbled out of the kettle, like the flatulence of a dragon on a demon-only diet.
+ - Sweetheart, wake up; you’ve destroyed the house and I need you to suffer for it.
+ - Theophilus Crowe’s mobile phone played eight bars of “Tangled Up in Blue” in an irritating electronic voice that sounded like a choir of suffering houseflies, or Jiminy Cricket huffing helium, or, well, you know, Bob Dylan.
+ - He always had a problem with the purity of others. Never his own.
+ - Unless you can change the past, you’re wasting the present on this guilt.
+ - I’m thinking of being a professional mourner. How hard can it be? Tear at your hair, sing a dirge or two, take the rest of the week off.
+ - Just because he was pretty didn’t mean he couldn’t be improved by a smack upside the head with a piece of earnest hickory.
+
+151 quotes

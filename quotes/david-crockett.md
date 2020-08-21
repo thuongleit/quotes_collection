@@ -1,0 +1,32 @@
+ - Be always sure you’re right, then go ahead.
+ - You can all go to Hell, I’m going to Texas!
+ - Let your tongue speak what your heart thinks.
+ - Farewell to ye all! In the land of the stranger I rise or I fall.
+ - If I could rest anywhere, it would be in Arkansas, where the men are of the real half-horse, half-alligator breed such as grows nowhere else on the face of the universal earth.
+ - I would rather be politically dead than hypocritically immortalized.
+ - There ain’t no ticks like poly-ticks. Bloodsuckers all.
+ - I want people to be able to get what they need to live: enough food, a place to live, and an education for their children. Government does not provide these as well as private charities and businesses.
+ - I know not whether, in the eyes of the world, a brilliant death is not preferred to an obscure life of rectitude. Most men are remembered as they died, and not as they lived. We gaze with admiration upon the glories of the setting sun, yet scarcely bestow a passing glance upon its noonday splendor.
+ - We must not permit our respect for the dead or our sympathy for the living to lead us into an act of injustice to the balance of the living.
+ - I gave my decisions on the principles of common justice and honesty between man and man, and relied on natural born sense, and not on law, learning to guide me; for I had never read a page in a law book in all my life.
+ - The party in power, like Jonah’s gourd, grew up quickly, and will quickly fall.
+ - I have suffered my self to be politically sacrificed to save my country from ruin and disgrace and if I am never a gain elected I will have the gratification to know that I have done my duty.
+ - It is quite possible that someone is insane and they think they have a chance. Not insane in the clinical sense, but they may have such a strong political ambition that they blind themselves to reality.
+ - I would rather be beaten, and be a man, than to be elected and be a little puppy dog.
+ - Congress allows lemonade to the members and has it charged under the head of stationery-I move also that whiskey be allowed under the item of fuel.
+ - Look at my arms, you will find no party hand-cuff on them.
+ - I have always supported measures and principles and not men.
+ - Fame is like a shaved pig with a greased tail, and it is only after it has slipped through the hands of some thousands, that some fellow, by mere chance, holds on to it!
+ - Heaven knows that I have done all that a mortal could do, to save the people, and the failure was not my fault, but the fault of others.
+ - I must say as to what I have seen of Texas it is the garden spot of the world. The best land and the best prospects for health I ever saw, and I do believe it is a fortune to any man to come here. There is a world of country here to settle.
+ - The enemy fought with savage fury, and met death with all its horrors, without shrinking or complaining: not one asked to be spared, but fought as long as they could stand or sit.
+ - Although our great man at the head of the nation, has changed his course, I will not change mine.
+ - Throughout the day no time for memorandums now. Go ahead! Liberty and independence forever.
+ - Most of authors seek fame, but I seek for justice – a holier impulse than ever entered into the ambitious struggles of the votaries of that fickle, flirting goddess.
+ - A bulger of a place it is. The number of the ships beat me all hollow, and looked for all the world like a big clearing in the West, with the dead trees all standing.
+ - We have the right as individuals to give away as much of our own money as we please in charity; but as members of Congress we have no right to appropriate a dollar of the public money.
+ - Sorrow, it is said, will make even an oyster feel poetical. I never tried my hand at that sort of writing but on this particular occasion such was my state of feeling, that I began to fancy myself inspired; so I took pen in hand, and as usual I went ahead.
+ - If one man in the country could take all the money, what was the use of passing any bills about it?
+ - Thare is no chance of hurrying bussiness here like in the legeslature of a State thare is such a desposition here to Show Eloquence that this will be a long Session and do no good...
+
+30 quotes

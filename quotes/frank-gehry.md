@@ -1,0 +1,74 @@
+ - The whole can be greater than the sum of it’s parts, that we all have something to put in the pie to make it better, and that the collaborative interaction works.
+ - I don’t know why people hire architects and then tell them what to do.
+ - You’ve got to bumble forward into the unknown.
+ - Architecture should speak of its time and place, but yearn for timelessness.
+ - Your best work is your expression of yourself.
+ - Let the experience begin!
+ - You can look anywhere and find inspiration.
+ - I don’t want to do architecture that’s dry and dull.
+ - Your best work is your expression of yourself. Now, you may not be the greatest at it, but when you do it, you’re the only expert.
+ - In the end, the character of a civilization is encased in its structures.
+ - I am obsessed with architecture. It is true, I am restless, trying to find myself as an architect and how best to contribute in this world filled with contradiction, disparity and inequality, even passion and opportunity.
+ - You can’t ignore history; you can’t escape it even if you want to. You might as well know where you come from, and you might as well know that everything has been done in some shape or form.
+ - If you know where it’s going, it’s not worth doing.
+ - Take what comes your way. Do the best with it. Be responsible as you can and something good will happen...
+ - One of my greatest influences is the Italian artist Gian Lorenzo Bernini.
+ - Not every person has the same kinds of talents, so you discover what yours are and work with them.
+ - I work from the inside out.
+ - A well-designed home has to be very comfortable. I can’t stand the aesthetes, the minimal thing. I can’t live that way. My home has to be filled with stuff – mostly paintings, sculpture, my fish lamps, cardboard furniture, lots of books.
+ - I found the material that people hated the most and used the most. So, I was going and try and see if I could play with it sculpturally.
+ - You have to be optimistic. I still have doubts and conflicts, but the bottom line is, I believe in the future.
+ - Liquid architecture. It’s like jazz – you improvise, you work together, you play off each other, you make something, they make something. And I think it’s a way of – for me, it’s a way of trying to understand the city, and what might happen in the city.
+ - You have freedom, so you have to make choices – and at the point when I make a choice, the building starts to look like a Frank Gehry building. It’s a signature.
+ - For me, every day is a new thing.
+ - You have to build up a credibility before the support comes to you.
+ - When I was a kid, my father didn’t really have much hope for me. He thought I was a dreamer; he didn’t think I would amount to anything. My mother also.
+ - For me, every day is a new thing. I approach each project with a new insecurity, almost like the first project I ever did. And I get the sweats. I go in and start working, I’m not sure where I’m going. If I knew where I was going I wouldn’t do it.
+ - I don’t make things with my hands, although I studied woodworking and made furniture.
+ - Man, there’s another freedom out there, and it comes from somewhere else, and that somewhere else is the place I’m interested in.
+ - Green issues have been used as a marketing tool. Sometimes these green claims are completely meaningless.
+ - Each project, I suffer like I’m starting over again in life. There’s a lot of healthy insecurity that fuels this stuff.
+ - I think my best skill as an architect is the achievement of hand-to-eye coordination. I am able to transfer a sketch into a model into the building.
+ - Chicago’s one of the rare places where architecture is more visible.
+ - The fact is I’m an opportunist. I’ll take materials around me, materials on my table, and work with them as I’m searching for an idea that works.
+ - The message I hope to have sent is just the example of being yourself. I tell this to my students: It’s not about copying me or my logic systems. It’s about allowing yourself to be yourself.
+ - I used to sketch – that’s the way I thought out loud. Then they made a book of my sketches, and I got self-conscious, so now I don’t do it much.
+ - My buildings are all on budget.
+ - People ask me if I’m an artist or an architect. But I think they’re the same.
+ - In an ideal world, pressure should come from below and from the top.
+ - I don’t think all buildings have to be iconic, but the history of the world has shown us that cultures build iconic buildings for their major public buildings.
+ - Look, architecture has a lot of places to hide behind, a lot of excuses. ‘The client made me do this.’ ‘The city made me do this.’ ‘Oh, the budget.’ I don’t believe that anymore.
+ - There is stuff I would have liked to have done. But there are no sour grapes.
+ - Time is just a blur for me. I don’t know what – I don’t even know where I am sometimes.
+ - The best advice I’ve received is to be yourself. The best artists do that.
+ - I can’t just decide myself what’s being built. Someone decides what they want, then I work for them.
+ - I love working. I don’t know what the word vacation means.
+ - I would like to make a building as intellectually driven as it is sculptural and as positive as it would be acceptable to hope.
+ - Some people may say my curved panels look like sails. Well, I am a sailor, so I guess I probably do use that metaphor in my work – though not consciously.
+ - If I knew where I was going, I wouldn’t do it. When I can predict or plan it, I don’t do it.
+ - I promised a lot of people I’d slow down when I turned 80.
+ - The game is if the orchestra can hear each other, they play better. If they play better and there’s a tangible feeling between the orchestra and the audience, if they feel each other, the audience responds and the orchestra feels it.
+ - I like the idea of collaboration – it pushes you. It’s a richer experience...
+ - There is a backlash against me and everyone who has done buildings that have movement and feeling.
+ - There are a great many things about architecture that are hidden from the untrained eye.
+ - You see a lot of so-called architecture that part of the ego trip overpowers the functionality and the budget and all that stuff.
+ - An architect is given a program, budget, place, and schedule. Sometimes the end product rises to art – or at least people call it that.
+ - The culture of France is unique because it’s a culture that has a high priority on the arts, more than any other place in the world in our time since Greece. So as a practicing artist, if you will, this is home ground. They love us, so music, literature, art continues to be the center.
+ - Most of our cities built since the war are bland. They’re modernist, they’re cold, and now architects want to go back to that.
+ - There are people who design buildings that are not technically and financially good, and there are those who do. Two categories – simple.
+ - Democracy is a problem and we don’t want to get rid of it.
+ - My father probably – he had flashes of creativity – he used to do store windows for fruit stores that he worked in and stuff.
+ - I don’t know how to overcome this perception that I’m extravagant.
+ - Well, I’ve always just – I’ve never really gone out looking for work. I always waited for it to sort of hit me on the head.
+ - Bilbao opened in 1997. It was only ten years later that I was asked to do another museum. A lot of other people got work because of Bilbao.
+ - I make a model of the site. There are some obvious things: where the entrance should be, where the cars have to go in. You start to get the scale of it. You understand the client’s needs, and what the client is hoping for and yearning for.
+ - The message I hope to have sent is just the example of being yourself.
+ - I found myself starting architecture with a deep social, Jewish, liberal conscience, and the belief that architecture is for the people. It was a do-gooder base; I was born and raised that way. I was for blacks, whites, Italians, Poles, whatever.
+ - Architecture has always been a very idealistic profession. It’s about making the world a better place and it works over the generations because people go on vacation and they look for it.
+ - Anybody I talk to agrees that maybe 2 percent of the building environment since the war, we could call architecture.
+ - And I realized, when I’d come in to the meetings with these corrugated metal and chain link stuff, and people would just look at me like I’d just landed from Mars. But I couldn’t do anything else. That was my response to the people and the time.
+ - I refuse to work unless I get paid, so I don’t get a lot of work sometimes.
+ - I never said I was opposed to the LEED program or to green building – I’m not.
+ - On certain projects, on big public projects, people definitely are interested in making them greener, but on smaller projects with tight budgets it can be harder.
+
+72 quotes

@@ -1,0 +1,55 @@
+ - I do dream about art, and images come to me in dreams. I am definitely hoping to be in touch with my subconscious. I expect a call any minute.
+ - It doesn’t matter what I think I am, it matters what I do.
+ - I see paintings everywhere. I look at stuff and it looks like painting to me.
+ - Making a painting is like playing the saxophone. You hit the note and it comes out.
+ - I work with things left over from other things.
+ - My compulsion is to create things.
+ - Painting is like breathing to me. It’s what I do all the time. Every day I make art, whether it is painting, writing or making a movie.
+ - I think that truth is stranger than fiction, and it’s nice to know the people you’re making a movie about.
+ - I’m not mannerist. I don’t think I’m interested in mannerism. If I ever use it in a way, or if manner is like some kind of product of certain sorts of usage of different kinds of materials, then it’s about involution or turning in on that.
+ - I don’t think my paintings are self-conscious but you feel the consciousness of them. Without them being self-conscious.
+ - Maybe my work looks a little crazy, a little insane, but I don’t really see myself as a crazy artist or a shaman artist.
+ - Everything I’ve seen becomes real once it becomes memory. The films I’ve seen are interchangeable with things that have really happened to me.
+ - I think it’s good when people don’t write good things about your work. I mean, what a great compliment it is to be called a charlatan.
+ - I think beauty is a feeling that you get after you’ve had an experience. It’s the way you feel about it that is beautiful.
+ - It’s a great excuse and luxury, having a job and blaming it for your inability to do your own art. When you don’t have to work, you are left with the horror of facing your own lack of imagination and your own emptiness. A devastating possibility when finally time is your own.
+ - There are generations of people who have never seen a big plate painting in person. And they don’t know what the hell they look like, they don’t know what it feels like to stand in a room with them.
+ - I think it was so unfair that people attacked Freida Pinto for being an Indian, playing a Palestinian.
+ - I think style is a fringe benefit that looks like you made it.
+ - Sometimes I’ll dream that I saw a show and then I’ll wake up in the morning and realize that I didn’t see the show, that it was my dream. And I just remember what the paintings look like in the dream and I think, “Oh, nobody painted those. I can do that.”
+ - When I’m making a movie, I don’t like to know what’s going to happen next. I like to watch something and be surprised all the time, and just not know, and let it take me wherever.
+ - When I made my first film, Basquiat, I think one of the criticisms was that the way I work is episodic. Later, as people started to look at the movies, they started to realize that maybe that’s my style. If I could do it better or another way, I guess I would.
+ - I wanted to show painting paintings first, then the plate paintings; now I can show that I’ve sort of freed myself from stylistic inhibitions.
+ - I think people have problems sometimes when things are too general. In fact, they are not really general at all.
+ - I want the paintings to take me or the viewer out somewhere else.
+ - I have a completely romantic idea about making paintings, I guess.
+ - Paintings are not like the Internet. They’re not like movies. They’re not electronic-friendly. You have to go see them. You have to stand in front of them. That’s the great thing about them.
+ - I never paid much attention to being Jewish when I was a kid. In fact, I’d say my religion was more surfing than Judaism – that’s what I spent most of my time doing.
+ - There’s been too much attention on marketing. Can’t we just talk about the paintings?
+ - Some people must go to extremes to get the world in balance for themselves. Some can’t bear bright lights, so wherever they go they search for the dark; they turn the lights down, anything to sustain some level of comfort.
+ - Traditionally, photography is supposed to capture an event that has passed; but that is not what I’m looking for. Photography brings the past into the present when you look at it.
+ - The thing about living in New York is that there are other artists; that is the most difficult, I think they are the hardest critics.
+ - You seem to make different concessions with yourself about what you want to focus on or not, and what you want to pay attention to.
+ - Sometimes my kids might tell me they had a dream or and maybe I’ll paint some paintings from their dream. That’s one good thing you get from your kids. Rob them of their dreams.
+ - My early paintings weren’t that good – I was very influenced by Francis Bacon. But there was a kind of intensity there. And however influenced they may have been by other people, even my earliest paintings were recognisably my own.
+ - I guess I am ruthless too because that’s what makes a great artist. But I also respect people, I don’t go around stepping on their heads.
+ - I think, basically, I’m an abstract artist. I just think that that’s not even an issue. I think everything’s abstract.
+ - Can I find a poetic that can be subversive enough to grab people in some subliminal way, to where they feel that they are altered and have had an experience that belonged to them?
+ - I’ve never made a movie to make money. I’ve never made a painting to make money.
+ - I like when people get really close to the paintings, when they can’t really get away from them, I like them to operate in that way on the viewer.
+ - I’m not saying I’m the only Jewish person who cares about Palestinian people, but unfortunately, their voices are not necessarily heard as loudly as they should be.
+ - There are certain times you want to be here and there are certain times you want to just go. And when you go, it’s usually so exhausting you have to check into a hospital when you come home!
+ - I don’t know if I could, like, see a face and know what the face of beauty looks like, but after I’ve seen it I know if I’ve felt like it was beauty.
+ - I don’t like building, I’m not a carpenter, I don’t like constructions particularly and things like that, but placements and the kinds of psychological weight that different materials have is pretty interesting to me.
+ - I think the nice thing about showing work in New York is that other artists come to see it. When you show work in Switzerland or somewhere else, everywhere else seems to be the provinces in a certain way. You wonder what your paintings are doing on the walls and you wonder who’s looking at them.
+ - I think it’s your own ghost, seeing the work and just thinking if it will be okay to leave that around.
+ - What’s interesting about making art is that you take everything you know about it and you bring it up to that point, and you start making a physical thing that addresses what that is. And when you do it, you don’t know anything about it – if it’s going to work or not work.
+ - I don’t think the meaning in my paintings comes from just using broken dishes.
+ - It’s nice to see your name in print. It’s interesting.
+ - If I hung one of my paintings next to someone else’s, I knew mine would kind of pop off the wall.
+ - You can’t have a good bullfight without a good bull.
+ - I think not knowing what to think of your paintings is a good place to be.
+ - I think basically I’m a painter, but I would use anything to make my point.
+ - I don’t think people are terribly interested in young artists who were doing interesting thing, but I don’t think people are terribly interested in young artists.
+
+53 quotes

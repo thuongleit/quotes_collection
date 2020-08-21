@@ -1,0 +1,32 @@
+ - What the teacher is, is more important than what he teaches.
+ - Attitudes are much more important than facts.
+ - Love cures people – both the ones who give it and the ones who receive it.
+ - Listening is a magnetic and strange thing, a creative force. The friends who listen to us are the ones we move toward. When we are listened to, it creates us, makes us unfold and expand.
+ - Hope is an adventure, a going forward, a confident search for a rewarding life.
+ - Fears are educated into us, and can, if we wish, be educated out.
+ - What’s done to children, they will do to society.
+ - Mental health problems do not affect three or four out of every five persons, but one out of one.
+ - Police are not all bad guys. Nobody is all bad guys.
+ - Set up as an ideal the facing of reality as honestly and as cheerfully as possible.
+ - People repeat in adult life emotions they experience in childhood. Many of the people whom I spent the last 30 or 40 years treating at so much per minute wouldn’t have needed any treatment at all if they had had the right care as children.
+ - Our lives are shaped by those who love us as well as those who refuse to love us...
+ - Hope is a necessity for normal life and the major weapon against the suicide impulse.
+ - Self love is not opposed to the love of other people. You cannot really love yourself and do yourself a favor without doing other people a favor, and vice versa.
+ - It is hard for a free fish to understand what is happening to a hooked one.
+ - Love is a medicine for the sickness of the world; a prescription often given, too rarely taken...
+ - The voice of the intelligence is drowned out by the roar of fear. It is ignored by the voice of desire. It is contradicted by the voice of shame. It is biased by hate and extinguished by anger. Most of all it is silenced by ignorance.
+ - Once asked what action he would recommend if a person were to feel a nervous breakdown coming on: Lock up your house, go across the railroad tracks, and find someone in need and do something for him.
+ - The voice of the intelligence is drowned out by the roar of fear.
+ - The friends who listen to us are the ones we move toward, and we want to sit in their radius.
+ - Unrest of spirit is a mark of life.
+ - We have come to see that just as the child must learn to love wisely, so he must learn to hate expeditiously, to turn destructive tendencies away from himself toward enemies that actually threaten him rather than toward the friendly and the defenseless, the more usual victims of destructive energy.
+ - Chess is a more highly symbolic game, but the aggressions are therefore even more frankly represented in the play. It probably began as a war game; that is, the representation of a miniature battle between the forces of two kingdoms.
+ - It was his optimism that Freud bequeathed to America and it was the optimism of our youthfulness, our freedom from the sterner, sadder tradition of Europe which enabled us to seize his gift.
+ - One of the most untruthful things possible, you know, is a collection of facts, because they can be made to appear so many different ways.
+ - One does not fall in love; one grows into love, and love grows in him.
+ - Psychoanalysis has changed American psychology from a diagnostic to a therapeutic science, not because so many patients are cured by the psychoanalytic technique, but because of the new understanding of psychiatric patients it has given us, and the new and different concept of illness and health.
+ - Neurotic means he is not as sensible as I am, and psychotic means he’s even worse than my brother-in-law.
+ - To “know thyself” must mean to know the malignancy of one’s own instincts and to know, as well, one’s power to deflect it.
+ - We need criminals to identify ourselves with, to secretly envy and to stoutly punish. They do for us the forbidden, illegal things we wish to do.
+
+30 quotes

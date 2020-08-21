@@ -1,0 +1,29 @@
+ - I’m shy, but I’m not clinically shy. I don’t have social anxiety disorder or anything like that. I more have a gentle shyness. Like, I have a little trouble mingling at parties.
+ - Kids do have to learn that life is a humiliating charade of endless disappointment and tragedy ultimately culminating in pain, decay, and death. My parents used to sing me to sleep with that one.
+ - Don’t judge me. I made a lot of money.
+ - I believe in breakfast. It’s the one meal that my kids usually eat without a fuss, so that’s huge. As for myself, I can’t function without it, and I see it as a great way to get some healthy greens in, some coffee, and on a good day, maybe even some news of the world via the newspaper.
+ - It’s great when you have people who will speak passionately and honestly about what they are doing.
+ - I hate birthdays. I thought that I only hated my own birthday, and then I realized that I hate my children’s birthdays too.
+ - Christmas: It’s the only religious holiday that’s also a federal holiday. That way, Christians can go to their services, and everyone else can sit at home and reflect on the true meaning of the separation of church and state.
+ - It’s like you can’t even go on the radio anymore and condemn a whole subset of people to hell without getting some blowback.
+ - I’m capable of living in the moment. And I’m especially capable of living in the moment of sitting on my sofa and watching other people’s moments.
+ - You have to be willing to ask questions that almost no one else would ask.
+ - I never believe them when they say that because you really have to sort of be aware of what’s going on in the news in order to get the jokes on the show.
+ - I get maximum satisfaction out of buying children’s clothes online.
+ - I think the show does better with newsmakers and politicians than it does with actors.
+ - I dislike Ted Cruz as much as the next everyone. But that’s no reason to be rude to Ted’s loving wife and possible hostage.
+ - It is so expensive to take care of my hair and keep it looking like I was born with it, when my real hair is the color of rat fur.
+ - If I could live in New York the rest of my life, I absolutely would, but it’s also prohibitively expensive and you have to be working. New York is a lot nicer when you have a job.
+ - I am a cookbook fanatic.
+ - I think that my love of cooking grew out of my love of reading about cooking. When I was a kid, we had a bookcase in the kitchen filled with cookbooks. I would eat all my meals reading about meals I could have been having.
+ - Everybody is agreeing so tersely. I just had a flashback to the month before my parents finally admitted they were getting a divorce.
+ - I continue to be very shy. I think a lot of actors and performers are really weird, shy people working it out onstage. I don’t know why that is.
+ - I think NASCAR’s coming to Canada now so it’ll take on a whole new relevance. Be afraid.
+ - If it wasn’t for what goes on in the world of politics, we wouldn’t really have much of a show.
+ - I was totally unknown in the television and film industry in Canada.
+ - It’s not every day people fly you to New York for auditions.
+ - It was only a few years ago that I couldn’t get hired to save my life.
+ - I don’t think the show would be funny to you if you didn’t already have a base of information.
+ - My apartment is the equivalent of one room in my Toronto home. Now I understand why New Yorkers are on the streets at all hours. People don’t want to stay inside for fear they’ll go crazy.
+
+27 quotes

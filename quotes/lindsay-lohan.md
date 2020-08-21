@@ -1,0 +1,88 @@
+ - I hate children! I hate them all!
+ - I love my red hair. It makes me spunkier.
+ - I’m not that girl from Freaky Friday any more! I’m a real adult. In fact, I hate children! I hate them all!
+ - I don’t care what anyone says.
+ - It is clear to me that my life has become completely unmanageable because I am addicted to alcohol and drugs.
+ - There’s a way of dealing with hardships that are healthier than going out. That’s what I’ve learned.
+ - I think my biggest focus for myself is learning how to continue to get through the trauma that my father has caused in my life.
+ - I’m my own person, and people can say whatever they want. I’m still going to be the person that I am.
+ - I’m not skinny for the wrong reasons. It’s not because I’m bulimic or anorexic or doing drugs. Compared to a lot of actresses my age, I’m actually overweight.
+ - My motto is: Live every day to the fullest – in moderation.
+ - On a day when you’re tired, it’s important to just say good morning to everyone so they’re kind of aware that it’s gonna be a good day. Jamie Lee Curtis told me that.
+ - I say too much sometimes, but I’m honest, that’s the important thing.
+ - My little sister Aliana’s opinions are the most important to me. She says, ‘I want to look like you, you’re so pretty!’ But she is very beautiful and so she is trouble in the making! She wants to do what I do. I’m like her second mother and I am very protective of her.
+ - I live without regrets. There are certain things I have done, mistakes that I made, that I would change, but I don’t regret them at all, because I’ve learnt from them.
+ - I’m 20 years old. I like to party as much as anyone my age. Going clubbing is my way of relaxing or releasing a lot of stress. I don’t feel that I should have to justify that part of my life. I don’t know that I’m necessarily an addict.
+ - Love is dangerous in the best way possible.
+ - Thank you Prince for all of your inspiration and sharing your increadible talents with the world. You will be incredibly missed.
+ - During the past five years, I’ve learned that time flies faster than you think, and because you only live once you have to learn from your mistakes, live your dreams and be accountable.
+ - I saw my whole life in front of me, and I had to let go of past things that I was trying to hold on to that were dark in my life.
+ - It was the first time I realized that absolute reality could be so much more fun than fantasy.
+ - I write a lot of lyrics and I’m involved in the producing process, because it’s like, if I’m singing it, I want it to be something that I can relate to.
+ - I am happy being able to play roles with people my age because once you do something really mature there is no turning back.
+ - No one is perfect. It’s not interesting to be perfect.
+ - If you’re fighting with your boyfriend, you can go to the movies and cry it out and leave happy because the ending of the film is happy.
+ - I don’t know if I am cut out to playing a bad character or not – I really should give it a shot. I would like to play the voice of a baddie, but that’s really just a cop-out!
+ - When I was a kid, I thought movie stars were women and men who were in these great films that we still look at now. But I don’t think there are too many films coming out these days that we’re going to look at in the future and say, ‘This is one of the great ones.’
+ - Say ‘no’ more than ‘yes,’ and just make sure you surround yourself with good people.
+ - To be able to have an effect on someone’s life is extraordinary .
+ - I hate it when people call me a teen queen.
+ - It’s my body. And I like my body. And I like my breasts. And no, they’re not fake.
+ - I know that in my past I was young and irresponsible – but that’s what growing up is. You learn from your mistakes.
+ - Substance abuse is a disease which doesn’t go away overnight. I’m working hard to overcome it. I did fail my recent drug test. I’m prepared to face the consequences.
+ - I never rebelled against my parents – I worked hard, I was responsible, and I didn’t go to high-school parties.
+ - When I did ‘Parent Trap,’ I was ten. I was thrown off by the whole fame thing.
+ - Marriage is a big deal, but who’s to say I’m not going to pull a Vegas and get married to see what it’s like for a minute?
+ - I think it’s a lot more interesting to watch a character go through a transition in a movie. You love her and then you almost want to not like her because she gets mean and gets ‘lost’ and everything.
+ - Life is full of risks anyway; why not take them?
+ - I always wanted to take the blame. I’ve always been apologetic for other people’s faults.
+ - Beauty is grace and confidence. I’ve learned to accept and appreciate what nature gave me.
+ - I think that occasionally running away and crashing where people can’t find you is important.
+ - When someone tells me not to do something, I’ll do it more.
+ - It’s so hard for people to even believe that there was a lesson to be learned at all, because they just think I’m wrong.
+ - My brother Cody is 19. He wants to stay out of the limelight and become a lawyer. I want him to be an entertainment lawyer, so he can help me out!
+ - I’m at my happiest when I’m on a movie set. It’s like therapy for me.
+ - I think a woman’s body is so much more sensual than a man’s. I’m not saying strip off all your clothes, but there are certain photos I like people taking of me, where I’m comfortable. As long as it’s tasteful, why not?
+ - I’m not going to deny the fact that I’ve tried pot. I hated it.
+ - My mum says, ‘Go with your first instinct,’ but this can lead to impulse buying!
+ - I feel like the modeling industry is a little bit more accepting of women who make mistakes. They appreciate the idea of icons.
+ - It’s so weird that I went to rehab. I always said that I would die before I went to rehab. But I thought, ‘I’m going to stay here tonight.’ And I stayed there for a month. It was great.
+ - I would switch roles with Madonna for a day. Or if Audrey Hepburn was still alive, Audrey Hepburn. I love Audrey Hepburn. She’s one of my idols, also.
+ - How can you not like Britney Spears?
+ - It’s funny because being comedic and happy and lighthearted is who I am as a person, so they’re easier emotions for me to connect with.
+ - I just love fashion. I think it just expresses who you are so much.
+ - I want to be remembered for the work that I’ve done, rather than the car accidents that I’ve gotten into, the men that I’ve not dated – or the man that I have.
+ - In terms of what people see of me, I have become this girl who just loves to be photographed, doesn’t know how to focus, doesn’t know how to work on set, just loves the attention, knows how to go out at night, knows how to party.
+ - I write most of my own lyrics for my album and I am helping to produce some of the songs as well.
+ - It’s flattering that people want to know so much about me and want to take the time to make up that many things about me.
+ - I’m a Cancer, which means I’m maternal and emotional. So in relationships I’m screwed.
+ - I just feel as though it’s become a situation where people have manifested this caricature of who I am, and they act as if there’s no real person inside of it.
+ - It angers me to see that my own father would stoop to such a level.
+ - I want to act and direct like Jodie Foster. I admire her because she went to college and she is still doing the same thing.
+ - I want to give back. I want to do all the things that will make me feel fulfilled. But whenever I do those things, people think it’s a press stunt or something.
+ - I have always admired and had enormous respect for Elizabeth Taylor. She was not only an incredible actress but an amazing woman as well.
+ - I really enjoy singing and I really enjoy acting, but singing I’ve been doing since I was really young.
+ - I’ve never been a junkie, and never will be. I just like going out late to clubs with friends and listening to music. Always have done. It’s not that unusual for girls of 26.
+ - I’m an angel compared to some of my friends.
+ - I want to get married before I’m 30. And I’d like to win an Oscar before then.
+ - So many people around me would say they cared for the wrong reasons. A lot of people were pulling from me, taking from me and not giving.
+ - If I dated as many people as they said I have, then I would be dead, because it’s just not possible.
+ - The way I see it, the longer I live here the less of a choice you will all have not to hire me for plays.
+ - I still need to go through the process of proving myself.
+ - I want to interact with my fans, and I want to let people know what I’m doing and stuff like that because I’d want to know.
+ - It was a sobering experience.
+ - Great actors who I want to work with-have such a misconception of who I am because of all the things that get said about me.
+ - Because I’m so much in the spotlight, people lose sight of why I’m in the industry. In fact, I’m doing all this because I love to act. I love to perform, to sing.
+ - As sick as it sounds, a reality show might help, actually. At least then people could get the truth.
+ - The biggest misconception is probably that I don’t have my head in the right place.
+ - I don’t like to talk about politics. If you say you’re a Democrat, that’ll turn off Republicans, and that’s half of your fan base.
+ - I wanted to be a movie star. But movie stars are not what they used to be.
+ - So many people preach that they love fashion, but really it’s what I live for!
+ - I’m learning how to deal with life in a different light than I have before and in a different way than I have before.
+ - Compared to a lot of actresses my age, I’m actually overweight.
+ - I did get to work with Anthony Hopkins on ‘The Human Stain.’ If I ever manage to accomplish a quarter of what he’s achieved, I’ll have had one hell of a career.
+ - I like to do movies, because I love becoming different characters, and telling different stories through different eyes, and affecting someone’s life in one way or another.
+ - Obviously, I want to sell records, but I do it because I find it therapeutic. In music I can be myself.
+ - People go to college to find who they are as a person and find what they want to do in life, and I kind of already know that so it would be like I’d be taking a step back or something.
+
+86 quotes

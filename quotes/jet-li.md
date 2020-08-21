@@ -1,0 +1,58 @@
+ - A mob is a group of persons with heads but no brains.
+ - I believe the world is one big family, and we need to help each other.
+ - There is no pure success. I am action actor. I have broken almost every piece of my body.
+ - Failure is a fuel for excuses.
+ - Tibetan Buddhism, has inspired me and accelerated my understanding of life.
+ - A weapon isn’t good or bad, depends on the person who uses it.
+ - Everywhere I go, I still have time to meditate. People think meditating is sitting there, nobody bothering you, but you can even talk and still meditate.
+ - One cannot choose how one’s life begins but one can choose to face the end with courage.
+ - In martial arts, the biggest enemy is self. Inside you struggle because you want to prove something.
+ - You can beat me up, but don’t touch my hair, I will kill you!
+ - I can feel very brave through all the action scenes in front of the people who are on the set, but when a girl comes close to me my face turns red because I’m so shy.
+ - I study more of truth and enlightening. I had to go the next level to talk about life.
+ - Martial arts have two parts. One is external, other internal. The external is physical part. The internal is philosophy of how to be, what kind of person learns martial arts.
+ - If you are always allowed to stop training whenever you feel discomfort, you will find it too easy to give yourself permission to quit.
+ - Usually action films have a formula: good guy gets in trouble, his wife dies, friends have problems, so he goes to the mountain, learns martial arts, comes back, and kills the bad guy.
+ - I stepped into the martial arts movie market when I was only 16. I think I have proved my ability in this field and it won’t make sense for me to continue for another five or 10 years.
+ - I stepped into the martial arts movie market when I was only 16.
+ - My wife is the boss at home, and my daughters are the bosses. I am just the worker. We are a very warm family and very happy.
+ - Wushu is a move in Chinese, a physical move. An attack. Wushu is like an art.
+ - Hero shows you how to solve the problem – yourself.
+ - While films are a very visual and emotional artistic medium, video games take it one step further into the realm of a unique personal experience.
+ - When you have a friend you work with for 15 years, you become like brothers.
+ - Everything too fast is not good but everything too slow is also not good. You need balance. That’s why I like martial arts: it always tells you how to control your body, your mind, your heart. Balance. Balance can keep the world’s peace. I think that’s a very good thing.
+ - Learn the way and find your own way.
+ - I didn’t go to normal children school. I went to sports school when I was 8. So I studied martial arts.
+ - You can use martial arts to tell a different story. Ang Lee used martial arts in ‘Crouching Tiger, Hidden Dragon’ to talk about love.
+ - I need to talk about Chinese culture. We have deep, strong philosophy and culture. I want to share some information, tell the worldwide audience.
+ - I never stopped studying Buddhism. In the past few years, in between movies, I do a retreat.
+ - I want to thank my mum, my daddy, my coach, my teacher, everybody in my life.
+ - The audience makes the decision of what kind of actor they want to watch. I always have said the real boss is the audience.
+ - I spend more time learning about Buddhism than English, which is why my English today is still bad.
+ - Bruce Lee was very famous. I watched his movies and he is amazing. He is a martial arts master, his philosophy, his movement, both physically and mentally, were very strong.
+ - This film ‘Hero’ talks about the peace of Chinese people.
+ - I hope everyone can examine what is the most important relationship in life – the relationship between parent and child.
+ - I can watch CNN on television or the Internet to find out what happened in Hong Kong ten minutes ago. After all, it doesn’t matter where something is made, we’re all part of the same big family now.
+ - I remember when I was 11, I did some Kung-fu demonstrations in Hong Kong in 1974.
+ - In the States, you can buy Chinese food. In Beijing you can buy hamburger. It’s very close. Now I feel the world become a big family, like a really big family. You have many neighbors. Not like before, two countries are far away.
+ - My wife wanted my children to have some Chinese culture and education. She believes the children need to learn two languages and two cultures.
+ - I think ‘Hero’ is not a real martial arts movie; it is not about violence, or formula.
+ - Zhang is a friend of mine: he said forget about acting and just do normal things in the movie.
+ - Zhang Yimou tried to use martial arts to talk about Chinese culture, Chinese people. What do they think, what do they want and what do they hope.
+ - Love is more powerful than kicking ass.
+ - Every President that went to China, I would meet them and have dinner and talk about the past and the future. That was in the ’70s.
+ - I knew nothing about martial arts. The coach told me I was talented with learning martial arts, and put me in a school. Three years later I got my first championship in China.
+ - And lot of Asian audiences and reporters don’t like me to act as a bad guy. But I think I want to become an actor, I want to try different way.
+ - I am so happy because I want more people to like martial arts movie not just martial arts audience. Even martial arts can be used in comedy, in drama, in horror movies, in different kinds of movies.
+ - Zhang Yimou is an artist. Sometimes we did only two or three shots a day because we were waiting for the sun.
+ - I’ve been learning martial arts since I was 8 years old.
+ - Hong Kong film audiences are very quiet. It’s their culture.
+ - But recently I’ve, the past few years, I’m more focused on meditation. It’s not a physical part. It’s more mental part, to understand life.
+ - Working on a film, the setup for an action sequence takes a long time, and we need to shoot the scene many times to get different angles.
+ - You need to drop down. Nobody is perfect, nobody is superhero.
+ - I do some of my stunts for the things I have learned. But if it is for something I have never learned, then I use a double.
+ - When I lived in Hong Kong, I felt that Hong Kong is my family.
+ - I think the most important is when I was young, I learnt martial arts; that is my special key.
+ - My manager introduced me to the ‘Rise to Honor’ team. I was curious about what it took to be involved in video games, a completely new form of entertainment to me.
+
+56 quotes

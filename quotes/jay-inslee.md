@@ -1,0 +1,39 @@
+ - I am not one for half measures or half-hearted efforts.
+ - Renewable energy also creates more jobs than other sources of energy – most of these will be created in the struggling manufacturing sector, which will pioneer the new energy future by investment that allows manufacturers to retool and adopt new technologies and methods.
+ - Investing in industries and technology for the 21st century generates high-skilled, high-wage jobs for industries of the future.
+ - I am going to leave everything on the field. I am going everywhere, and I am going to listen to everybody.
+ - It is a happy coincidence between what my constituents believe and my interests.
+ - All of the economic signals in the marketplace are essentially subsidizing the use of dirty fossil fuels and penalizing clean energy. There’s really only one entity in society that can solve that problem, and that is government. And the air is a scarce resource.
+ - If this ice melts in Greenland it can shut down the Gulf Current.
+ - We could never light another match, and if China continues to build one coal-fired power plant a week, we are doomed. China is going to have to have new technologies made available to it to stop this. They’re not going to live in poverty.
+ - We need to get our sons and daughters home and their responsibility for the security of Iraq needs to be assumed by Iraqis who will stand up and toe the line for their countries.
+ - We clearly need to break our addiction on Saudi Arabian oil that is a security threat to the United States.
+ - The fact is that we cannot drill our way to independence. We cannot drill our way to freedom, and we cannot drill our way to create jobs in this country.
+ - But most importantly, we can all be donors. It does not matter how old you are, your race, where you live; all of us can give the gift of life.
+ - We have had a loss in manufacturing base and a loss of some of our productive capability that can be filled with the green-collar jobs of tomorrow. But it will only happen if we recognize the scale and scope of both the challenge and the opportunity.
+ - I do care about the mercury contamination which this country will be experiencing because of the attempted sellout by this administration to special interests which will result in more mercury in the blood of young children in America.
+ - I reflect back 35 years ago, and look how far we have come in America with our environmental policy to improve the conditions of our air and water, and we have had some real successes.
+ - President Bush’s proposal to focus our resources on sending humans to Mars is intriguing, but it is not the most compelling reason that Americans ought to focus our interest on the Red Planet.
+ - On Earth, we still have a beautiful atmosphere that precisely maintains a thermally driven climatic system that shelters, shields and sustains our natural treasures.
+ - Tolerance is the value that was selected to put on here, and tolerance is as American as apple pie.
+ - Healing is a moral thing to do.
+ - The 1st Congressional District contains almost half of the biotech and biomedical companies in Washington, and my job often allows me to meet the people responsible for this exciting research.
+ - Because the sad fact is that the Enron Corporation and others manipulated with unfortunately great effect the energy market in the West Coast starting in 2000.
+ - What is a fish without a river? What is a bird without a tree to nest in? What is an Endangered Species Act without any enforcement mechanism to ensure their habitat is protected? It is nothing.
+ - I am excited about focusing full-time on talking about my job-creation agenda and building a new economy for Washington state. We have a great chance to seize our own destiny, build our own industries, and create our own technological revolutions right here at home.
+ - We need to do for clean energy what Kennedy did for space in the original Apollo Project: Set a bold vision that will light the fires of innovation and make a game-changing shift in how we use and produce energy. And nothing less is adequate.
+ - There is no excuse for this administration shielding information about Iraq and the fact that we have great difficulties there from the American people.
+ - I talk about reducing our dependence on foreign oil. If we’re buying electricity from a solar-thermal plant in Tijuana, I’m not sure we should say that’s evil. If we are buying wind power from Alberta, I don’t have a huge objection to that.
+ - The need to help spread democracy and the ability to do that will be much greater if we break this addiction to oil, which gives the oil princes and sultans the power in the Mideast.
+ - A lot of people do not think of forests as a health issue, but we have found out that is where our clean water comes from, from the forests.
+ - Back in the mid-1970s, we adopted some fairly ambitious goals to improve efficiency of our cars. What did we get? We got a tremendous boost in efficiency.
+ - Things are difficult enough about Iraq without the Federal Government suppressing the truth about Iraq.
+ - Third issue, and again I think it is important to note, anyone can make a mistake and any administration can make a mistake once in a while, but this is just a long train of abuses, an unbroken chain of following special interests rather than the health of the American people.
+ - With millions of family wage manufacturing jobs lost since 2001, we need an energy bill that takes bold action to tap into American ingenuity in order to lead the world in new clean energy technology, rather than playing catch-up to the Japanese, Danish, and Germans.
+ - So we are now still dependent on foreign oil, have a problem with global warming, and are losing jobs rapidly to the Japanese in fuel-efficient vehicles as a result of that very shortsighted progress.
+ - We had some major successes and we did so because the country embraced the spirit of Earth Day and embraced this concept that we have to have forward-looking, visionary environmental policy and energy policy in this country.
+ - If we had continued making progress at the rate we were during the Carter administration, we would be free of oil imports from Saudi Arabia today.
+ - Lincoln said that the Patent Office adds the flame of interest to the light of creativity. And that is why we need to improve the effectiveness of our Patent Office.
+ - Now is the time to scrub ideology out of the energy discussion, so we can make bi-partisan progress towards investing in a shared and better future.
+
+37 quotes

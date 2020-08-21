@@ -1,0 +1,42 @@
+ - If you don’t find a way to make money while you sleep, you will work until you die. ~~Warren Buffett
+ - The way to become rich is to make money, not to save it. ~~Kate Chopin
+ - Schools teach you how to work for money, but don’t teach how to make money work for you. ~~Robert T. Kiyosaki
+ - I believe the power to make money is a gift of God. ~~John D. Rockefeller
+ - Change your focus from making money to serving more people. Serving people makes the money come in. ~~Robert T. Kiyosaki
+ - Making money is a common sense. It’s not rocket science. But unfortunately, when it comes to money, common sense is uncommon. ~~Robert T. Kiyosaki
+ - Don’t just make money, make a difference. ~~Grant Cardone
+ - You either make sense or you make money. ~~R. Buckminster Fuller
+ - It does not take money to make money. ~~Robert T. Kiyosaki
+ - If you make meaning, you’ll make money. ~~Guy Kawasaki
+ - The companies that are successful, they start out to make meaning, not to make money. ~~Guy Kawasaki
+ - Success is not the result of making money; earning money is the result of success – and success is in direct proportion to our service. ~~Earl Nightingale
+ - Don’t go to work to make money; go to work to spread joy. ~~Marianne Williamson
+ - I’m not interested in making money. It’s just that with my talent, I’m cursed with it. ~~Noel Gallagher
+ - We don’t make movies to make money, we make money to make more movies. ~~Walt Disney
+ - We have always believed that it’s possible to make money without being evil. ~~Larry Page
+ - Find something you love to do. If you don’t make money at it, at least you love going to work. ~~Mark Cuban
+ - Simply put: we don’t build services to make money; we make money to build better services. And we think this is a good way to build something. ~~Mark Zuckerberg
+ - Making money isn’t the backbone of our guiding purpose; making money is the by-product of our guiding purpose. If you’re doing something you love, you’re more likely to put your all into it, and that generally equates to making money. ~~Warren Buffett
+ - Human beings are much bigger than just making money. ~~Muhammad Yunus
+ - Money, says the proverb, makes money. When you have got a little, it is often easy to get more. ~~Charles Dickens
+ - A lot of people would rather understand the market than make money. ~~Ed Seykota
+ - It’s not difficult to make money – it’s different. ~~Marshall Sylver
+ - Nothing except the mint can make money without advertising. ~~Thomas Babington Macaulay
+ - When you know how to make money, you’re obligated to. ~~Marshall Sylver
+ - If somebody had told me my method would not work I nevertheless would have tried it out to make sure for myself, for when I am wrong only one thing convinces me of it, and that is, to lose money. And I am only right when I make money. That is speculating. ~~Jesse Lauriston Livermore
+ - Making money is no fun. Contributing to and changing the world is a lot more fun. ~~Muhammad Yunus
+ - If you start out to solely make money, you will attract the wrong kind of employees. ~~Guy Kawasaki
+ - It is absurd to think that the general public can ever make money out of market forecasts. ~~Benjamin Graham
+ - We have not known a single person who has consistently or lastingly make money by thus “following the market”. We do not hesitate to declare this approach is as fallacious as it is popular. ~~Benjamin Graham
+ - The way to make money in the stock market is to buy a stock. Then, when it goes up, sell it. If it’s not going to go up, don’t buy it! ~~Will Rogers
+ - The first colony on Mars is not going to be built by a private company. How are you going to make money? You’re not. ~~Neil deGrasse Tyson
+ - You can make money or you can make sense. The two are mutually exclusive. ~~R. Buckminster Fuller
+ - The root of great companies is make meaning vs. make money. ~~Guy Kawasaki
+ - You can only make money if you buy a product, whatever it is – maybe a currency, maybe wheat and maybe something else – at a relatively low price and sell it at a higher price than you buy it at. There’s no other way to make money. ~~Milton Friedman
+ - The only way to get money out of politics is to get politics out of money-making. ~~Richard Salsman
+ - Money can be issued only in the act of buying, and can be backed only in the act of selling. Any buyer who is also a seller is qualified to be a money issuer. Government, because it is not and should not be a seller, is not qualified to be a money issuer. ~~E.C. Riegel
+ - Can’t say no one makes money from Twitter now. The NBA does. ~~Mark Cuban
+ - Today, professional football is about profit and making money. But it’s not about how much money you spend, it’s about how wisely you spend it. ~~John Riggins
+ - I also don’t like films that are made just to make money, no this kind of film I don’t like. ~~Dario Argento
+
+40 quotes

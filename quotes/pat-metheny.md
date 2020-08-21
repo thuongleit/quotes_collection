@@ -1,0 +1,40 @@
+ - The more I can learn about music, the more I learn about other things.
+ - Im always trying to find connections between things. That art is the juxtaposition of a lot of things that seem unrelated but add up to something recognizable.
+ - Jazz demands that you bring to it things that are valuable to you, that are personal to you.
+ - I think I represent a more left-wing view of what jazz is.
+ - Learning to play is mostly about learning to hear, and learning to really listen deeply to sound in a musical way is a lifetime’s worth of work.
+ - Music is what you notice when it’s no longer in your presence...
+ - I was deep in the zone of practicing almost constantly.
+ - Jazz is not something that can be defined through blunt instruments. It is much more poetic than that.
+ - There’s more bad music in jazz than any other form. Maybe that’s because the audience doesn’t really know what’s happening.
+ - People sometimes say it takes a long time to become a Jazz fan, but for me it took about five seconds.
+ - Most guys at Berklee are going to wind up truck drivers...
+ - From 1962 to 1965, the guitar became this icon of youth culture, thanks mostly to the Beatles.
+ - The best musicians are not the best players, they’re the best listeners.
+ - The Unity Band project has been life-changing for me. I have led many groups of talented musicians, but this is unlike anything else.
+ - My first relationship to any kind of musical situation is as a listener.
+ - If jazz has to be termed as a wave, then music is a sea, but if the reflectors in the water is the chord.
+ - If you plan on continuing a tradition, it might be a good idea to find out just what tradition it is that you intend to continue.
+ - The beauty of jazz is that it’s malleable. People are addressing it to suit their own personalities.
+ - I think I have a basic sound aesthetic that is in most of what I do.
+ - Listening is the key to everything good in music.
+ - I just have never seen anyone build anything significant in any field without having a deep and detailed sense of what they are building on.
+ - I saw A Hard Day’s Night 12 or 13 times.
+ - I hate the way chorus boxes sound.
+ - I don’t know if I would qualify as mainstream. I think I have managed to function pretty successfully on the fringes of the music world and have been able to play exactly what I have wanted the way I have wanted.
+ - The first thing I learned was the theme from Peter Gunn.
+ - Players get to that intermediate level where they can already play pretty good, and that’s kind of a dangerous period because they tend to start playing only the things that they can play, rather than the things they can’t.
+ - Whatever my recorded output is, it’s a reflection of a general love of music.
+ - What I look for in musicians is a sense of infinity.
+ - Jazz is an idea that is more powerful than the details of its history.
+ - I don’t worry too much about the fundamentalist principles that are in almost any discussion about Jazz.
+ - Jazz music will continue to thrive, possibly in unexpected ways.
+ - I realized that equipment really had little to do with why I sound like the way I sound.
+ - I try to be prepared for the moment, through understanding, and being warmed up, knowing all about chords and scales, so I don’t even have to think and I can get right to what it is I want to say.
+ - I love playing and working on music. It is something that I feel really lucky to be able to spend my life doing. And I don’t sleep much!
+ - I was able to work with the best musicians in Kansas City starting when I was really young.
+ - More and more as time has gone on, I realize that playing is really more about listening than it is about playing.
+ - Its more about conception and touch and spirit and soul than whether my hardware was in place.
+ - My older brother Mike is an excellent trumpet player. By the time he was 12, he was playing around Kansas City in classical situations. He was already an amazing talent.
+
+38 quotes

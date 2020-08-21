@@ -1,0 +1,38 @@
+ - I’d trade my soul for a wish.
+ - I’m a very lucky girl.
+ - Life’s too much fun to have it go in just one direction.
+ - I just want to be the best Carly Rae I can be.
+ - I have a secret love of jazz.
+ - Candy apple red is my favorite color. It’s a powerful color to wear. It’s always been that way – I’ve always been really attracted to that color.
+ - I like Los Angeles. So many artistic people, and I just love the weather.
+ - I’ve never been an all-black girl. I like pinks and blues and greens. If you come over to my closet, you’ll be able to find a rainbow of things to wear.
+ - A lot of people don’t know how to talk on the phone anymore.
+ - I’m a little bit of a hippie at heart, so I always wear things that are comfortable and flowing.
+ - I really like guys who have confidence, but not the cocky over-the-top confidence.
+ - I like to travel by myself.
+ - For nighttime or for an event, I’m all about the nice heel. Something that’s still walkable but definitely very elegant.
+ - I do think grand gestures are a hit and miss, especially for girls.
+ - I always wanted to be known as a songwriter and not just a songbird.
+ - I think in general, lines are a bad idea. Especially if they sound like lines. Everyone’s immediate reaction is to just kind of cringe a little bit.
+ - I definitely have a little attraction to bad guys, but they have to be sweethearts underneath. After all, I like to be treated well.
+ - I waited for my first kiss.
+ - I like to mix and match vintage with designer. It’s how I create my own style.
+ - You know in that moment of Disney when Ariel gets legs for the first time? I felt like that. I was like, ‘I’ve got legs.’
+ - I guess there’s a part of you that always wants to try something a little bit different than what you’ve done before.
+ - My tactic is to make eyes at someone.
+ - I don’t have any desire to rebel and be something totally different from what I am.
+ - I can’t tell you how lucky I feel to be able to collaborate with some of my dream producers.
+ - One of my favorite things to make is homemade sushi. I know how to make the rolls and it’s really fun to do.
+ - I have a couple of girlfriends who’ve told me some horror stories but I’ve never had a really terrible kiss before.
+ - The way I write is generally about love. I have a great fascination about the subject.
+ - I went to a Canadian college for performing arts and then I auditioned for Canadian Idol. That honestly was my golden ticket.
+ - Canada was my whole world and my whole reality, and now I meet people who’ve never been there, and it’s like, ‘You’ve never been to my whole world?’
+ - There’s been a progression in my sound.
+ - I like when the song starts to take over and you feel like you have to dance more than write.
+ - I like to swim. It’s good for the body and it helps clear my head.
+ - The quick lesson that I learned is that none of the fame part is really real.
+ - I know my music is going well when I don’t have insomnia.
+ - I feel very, very blessed.
+ - I always write what feels really true and honest and me.
+
+36 quotes

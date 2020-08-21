@@ -1,0 +1,92 @@
+ - Forget about your competitors, just focus on your customers.
+ - Go big, or go home. Otherwise, you’re wasting your youth.
+ - If there are nine rabbits on the ground and you want to catch one, just focus on one.
+ - Find the right people, not the best people.
+ - If you don’t give up, you still have a chance.
+ - Today is cruel. Tomorrow is crueller. And the day after tomorrow is beautiful.
+ - Giving up is the greatest failure.
+ - If you’re still poor at 35, you deserve it.
+ - Opportunities are where the complaints are.
+ - If you’ve never tried, how will you ever know if there’s any chance?
+ - The very important thing you should have is patience.
+ - I don’t want to be liked. I want to be respected.
+ - Global vision, local win.
+ - Never ever compete on prices, instead compete on services and innovation.
+ - Life is so short, so beautiful. Don’t be so serious about work. Enjoy life.
+ - A good job isn’t something you go out and find, it’s something you discover while you’re working.
+ - You never know how much can you do in your life.
+ - The world will not remember what you say, but it will certainly not forget what you have done.
+ - If you want to grow, find a good opportunity. Today, if you want to be a great company, think about what social problem you could solve.
+ - You should learn from your competitor, but never copy. Copy and you die.
+ - I believe in two principles: Your attitude is more important than your capabilities. Similarly, your decision is more important than your capabilities!
+ - Only fools use their mouth to speak. A smart man uses his brain, and a wise man uses his heart.
+ - Don’t hire the most qualified, hire the craziest.
+ - The customer is number one, the employee is number two and the shareholder is number three. If the customer is happy, the business is happy, and the shareholders are happy.
+ - A great opportunity is often hard to be explained clearly; things that can be explained clearly are often not the best opportunities.
+ - The opportunities that everyone cannot see are the real opportunities.
+ - Your employee should have superior technical skills than you. If he doesn’t, it means you have hired the wrong person.
+ - For ecommerce, the most important thing is trust.
+ - We will make it because we are young and we will never, never give up.
+ - A leader should be a visionary and have more foresight than an employee.
+ - When I am myself, I am happy and have a good result.
+ - Always let your employees come to work with a smile.
+ - Today, making money is very simple. But making sustainable money while being responsible to the society and improving the world is very difficult.
+ - A real businessman or entrepreneur has no enemies. Once he understand this, the sky’s the limit.
+ - Help young people. Help small guys. Because small guys will be big. Young people will have the seeds you bury in their minds, and when they grow up, they will change the world.
+ - When we have money, we start making mistakes.
+ - No matter what one does, regardless of failure or success, the experience is a form of success in itself.
+ - Luck is very important. Of course you can’t wait for luck, because it won’t come. While you start a journey, luck may eventually come to you.
+ - I’m not a tech guy. I’m looking at the technology with the eyes of my customers, normal people’s eyes.
+ - If you don’t give up, you still have a chance. And when you are small, you have to be very focused and rely on your brain, not your strength.
+ - It doesn’t matter if I failed. At least I passed the concept on to others. Even if I don’t succeed, someone will succeed.
+ - No matter what your current condition, how or where you grew up, or what education or training you feel you lack, you can be successful in your chosen endeavor. It is spirit, fortitude, and hardiness that matter more than where you start.
+ - If we are a good team and know what we want to do, one of us can defeat ten of them.
+ - We appreciate yesterday, but we’re looking for a better tomorrow.
+ - If you view everyone as your enemies, everyone around you will be your enemies.
+ - Adopt and change before any major trends or changes.
+ - 30% of all people will never believe you. Do not allow your colleagues and employees to work for you. Instead, let them work for a common goal.
+ - Never ever do business with the government. Be in love with them, never marry them.
+ - The quality of a good leader therefore is his vision, tenacity, and his capability.
+ - The most unreliable thing in this world is human relationships.
+ - Success and profitability are outcomes of focusing on customers and employees, not objectives.
+ - A leader should have higher endurance and ability to accept and embrace failure.
+ - Even if your competitor is still small in size or weak, you should take him seriously and treat him as a giant. Likewise, even if your competitor is massive in size, you shouldn’t regard yourself as a weakling.
+ - If we go to work at 8 am and go home at 5 pm, this is not a high-tech company and Alibaba will never be successful. If we have that kind of 8-to-5 spirit, then we should just go and do something else.
+ - A leader should have higher grit and tenacity, and be able to endure what the employees can’t.
+ - All MBA have said are correct, but they can’t execute it.
+ - My job is making money, helping other people make money. I am spending money, trying to make sure more people get rich, because you cannot spend a lot of money, right? So my job is spending money, helping others. This is a headache.
+ - You never know that the things you’re doing are that meaningful to society.
+ - I don’t care about revenues.
+ - I call myself a blind man riding on a blind tiger.
+ - My job is to help more people have jobs.
+ - I wanted to have a global company, so I chose a global name. Alibaba is easy to spell, and people everywhere associate that with “Open, Sesame,” the command that Ali Baba used to open doors to hidden treasures in One Thousand and One Nights.
+ - Alibaba is an ecosystem that helps small business to grow.
+ - Intelligent people need a fool to lead them. When the team’s all a bunch of scientists, it is best to have a peasant lead the way. His way of thinking is different. It’s easier to win if you have people seeing things from different perspectives.
+ - Today the financial market is no good, but the money is there.
+ - When you have one million dollars, you’re a lucky person. When you have 10 million dollars, you’ve got trouble, a lot of headaches.
+ - If the customer loves you, the government will have to love you.
+ - My dream was to set up my own e-commerce company. In 1999, I gathered 18 people in my apartment and spoke to them for two hours about my vision. Everyone put their money on the table, and that got us $60,000 to start Alibaba. I wanted to have a global company, so I chose a global name.
+ - I know nothing about technology.
+ - Don’t even trust that you are able to unify what everyone is thinking; it is impossible.
+ - A leader should never compare his technical skills with his employee’s.
+ - Without internet, there would have been no Jack Ma, and no Alibaba or Taobao.
+ - A peace talk is always difficult, always complicated.
+ - We should never finish a 20 year program in two year.
+ - I don’t want people in China to have deep pockets but shallow minds.
+ - I absolutely don’t have $20 billion. But I’d love to, right?
+ - I want people to learn what democracy means.
+ - In carrying out e-commerce, the most important thing is to keep doing what you are doing right now with passion, to keep it up.
+ - Customers should be number 1, Employees number 2, and then only your Shareholders come at number 3.
+ - Nobody wanted to believe Jack Ma.
+ - Yahoo today is not a portal. Yahoo today is a search engine.
+ - Rather than having small smart tricks to get by, focus on holding on and persevering.
+ - I would love to if someone would lend me the money.
+ - If Alibaba cannot become a Microsoft or Walmart, I will regret it for the rest of my life.
+ - I don’t shop online, but my wife buys everything at home. We buy sea crabs, fresh crabs, all kinds of things.
+ - Change the world is maybe Obama’s job.
+ - You’ve to make consumers smart. An e-commerce portal doesn’t sell a product at cheaper rates, instead an offline shop sells it at a costlier prices.
+ - I am going to enjoy some other things apart from business.
+ - I think Yahoo is a great company, with great assets.
+ - I am very interested in bringing companies from everywhere to sell their products in China.
+
+90 quotes

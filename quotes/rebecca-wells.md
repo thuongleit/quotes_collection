@@ -1,0 +1,39 @@
+ - Life is short but it is wide. This too shall pass.
+ - It’s life. You don’t figure it out. You just climb up on the beast and ride.
+ - How wide and sweet and wild motherhood and sisterhood can be.
+ - I am the kind of woman who loves hurricanes. They put me in a party mood. Make me want to eat oysters on the half shell, and act slutty.
+ - When I’m reading, wherever I am, I’m always somewhere else.
+ - Good enough is good enough. Perfect will make you a big fat mess every time.
+ - What they don’t know is that I went over the edge years ago, and lived to tell the tale.
+ - I believe that illness has led me to a life of gratitude, so I consider Lyme disease at this point in my life to be a blessing in disguise.
+ - Forget love. Try good manners.
+ - Sometimes you just have to reach out and grab what you want, even when they tell you not to. This is something that I’ve struggled with my whole life long.
+ - Smoke, drink and never think.
+ - I have been missing the point. The point is not knowing another person, or learning to love another person. The point is simply this: how tender can we bear to be? What good manners can we show as we welcome ourselves and others into our hearts?
+ - I swear I could write a book about all the things no one has ever thanked me for.
+ - I never claimed to be a low-maintenance gal, but when I’m writing, it’s particularly challenging. I lose things constantly: my watch, my glasses, my papers, my mind.
+ - I have been to the edge and lived to tell the tale...
+ - Sidda can’t help herself. She just loves books. Loves the way they feel, the way they smell, loves the black letters marching across the white pages...
+ - A scent that disturbs me and delights me. It smells like ripe pears, vetiver, a bit of violet and something else- something spicy almost biting and exotic.
+ - Flowers heal me. Tulips make me happy. I keep myself surrounded by them as soon as they start coming to the island from Canada, and after that when they come from the fields in La Connor, not far from where I live.
+ - I want to lay up like that, to float unstructured, without ambition or anxiety. I want to inhabit my life like a porch.
+ - Friends are supposed to act like harbor boats-let you know if you’re off course. But it ain’t always possible.
+ - I value humor, kindness, and the ability to tell a good story far more than money, status, or the kind of car someone drives.
+ - These are all I have. I do not have the wide, bright beacon of some solid old lighthouse, guiding ships safely home, past the jaggedrocks. I only have these little glimmers that flicker and then go out.
+ - I now know that things I always thought I could depend on can crash in an instant. Because of the love that I have been shown, I now know what it means to be ‘beloved.’ I now know that no breath is to be taken for granted.
+ - Maybe people are more like the earth than we know. Maybe they have fault lines that sooner or later are going to split open under pressure.
+ - As a writer, I am not goddess of the universes I create. I am at most a stage manager of the plentiful gifts which tumble out of the horn of plenty, which is to say there is a source so sweet and forgiving and generous that I pray every day to let that source be my guide.
+ - The love we most cherish will, of necessity, bring us pain. Because that love is like the setting of a body with broken bones. But I want to stage the setting. I want to direct all scenes.
+ - Don’t ever admit you know a thing about cooking or it’ll be used against you...
+ - You know how some people, when they’re together, they somehow make you feel more hopeful? Make you feel like the world is not the insane place it really is?
+ - She used to say she could taste sleep and that it was as delicious as a BLT on fresh French bread.
+ - I come to writing from hearing great stories as a child in Louisiana, where the mark of a person was his or her ability to be a raconteur. I also come to writing as a professional actress whose body has been trained to listen and smell and inhabit characters without judgment.
+ - Can you reclaim that free-girl smile, or is it like virginity- once you loose it, that’s it?
+ - Sadness can find you anywhere, anytime, so you better have fun when you can.
+ - Sometimes lost treasures can be reclaimed.
+ - There is the truth of history, and there is the truth of what a person remembers.
+ - But who has time to write memoirs? I’m still living my memoirs.
+ - At the beauty of what she had stumbled onto, at the fear that something terrible would happen because she was not vigilant enough. She cried at the fear of something so good that she would not be brave enough to bear it.
+ - I believe that we are given strength and help from a power much larger than ourselves. I believe if I humble myself that this power will come through me, and help me create work that is bigger than I would have ever been able to have done alone.
+
+37 quotes

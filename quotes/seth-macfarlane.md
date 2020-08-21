@@ -1,0 +1,67 @@
+ - I do not believe in God. I’m an atheist. I consider myself a critical thinker, and it fascinates me that in the 21st century most people still believe in, as George Carlin puts it, ‘the invisible man living in the sky’
+ - I hate people who say ‘Just to play devil’s advocate.’
+ - I was a huge ‘Star Trek’ fan. I loved the ‘Twilight Zone’ growing up. In the future, I hope to create some thoughtful, sci-fi drama.
+ - I love the English. My God, they brought us ‘Benny Hill,’ ‘Monty Python,’ ‘The Office,’ Neville Chamberlain.
+ - Whoever invented spray cheese had to have been a Harvard guy.
+ - Evolution doesn’t care whether you believe in it or not, no more than gravity does. I want to rekindle excitement over what we’ve achieved as a species with the space program. We can’t afford to regress back to the days of superstition.
+ - The only reason we die, is because we accept death as an inevitability.
+ - You gotta keep the funny intact.
+ - When astrology was conceived, all of the celestial bodies were in different places. So if you’re a Sagittarius now, I guess you would have been a Capricorn 2,000 years ago.
+ - I’m the guy in the crowd making fun of the hero’s shirt.
+ - There have to be people who are vocal about the advancement of knowledge over faith.
+ - Adults acting like children and children acting like adults is generally a pretty reliable comic device.
+ - I’m wide open to getting married, but actors are not easy people to date. You end up sharing that person with this other mistress that is their career. I very much like the traditional courtship method of making a date. That’s what they do in normal places, but Hollywood’s not normal.
+ - Everybody in my family had a real sick, twisted sense of humor. Most of the jokes we make in our house, we would just never even dream of making anywhere else. Just sick, horrible stuff. That wasn’t anything new to college.
+ - I don’t smoke much pot anymore.
+ - The relationship between Aquaman and Aqualad should be investigated.
+ - Every woman’s innate ability to let anything go.
+ - What makes me happy is just keeping my brain challenged and stimulated and on its toes.
+ - I tend to lean more towards the Westerns of the 40s and 50s as opposed to the 60s and 70s. They get a little too drab for me when you get into the Spaghetti Western era. I love the John Ford movies. I love the music. I love the scope.
+ - Fox is notorious for having a very thick skin about taking shots at themselves.
+ - The two symbols of the Republican Party: an elephant, and a big fat white guy who is threatened by change.
+ - I think at times I read too much of my own press. I wish I was better at taking in how great my life is, but that’s surprisingly elusive. I tend to be very hard on myself and insecure about failing no matter what happens.
+ - I’m big on the importance of science, particularly right now at this point in time when there’s sort of a systematic rejection of science by a lot of people in America.
+ - I wrote on a show called Johnny Bravo when I was at Hanna-Barbera.
+ - Denzel Washington has a great sense of humor. He did all those ‘Nutty Professor’ movies.
+ - The only problem is time.
+ - The worst thing to happen at the Oscars would be if nothing happened. You want something unscripted, something to riff on, something kinda out there.
+ - I cannot tell good art from bad art. I have no eye for it.
+ - The Simpsons are ugly-looking, and they should be. That’s what works. That’s one of the things that’s funny.
+ - I don’t gravitate toward any particular genre. I like to do things that interest me, regardless of genre. I’ve had a blast doing Cosmos, and I’m said that it’s coming to an end. I would like to do something else like that.
+ - There are times when I’m under the weather and the corporate machine tries to put me in the recording booth anyway. It’s always up to me to say, ‘Guys, listen to me, listen to what I sound like. I’m not myself.’
+ - I was a big Fred Flintstone fan.
+ - I had – I was pretty hell bent on getting into the cartoon business specifically as an artist from the get-go.
+ - Believe it or not, I have about the same success rate as anyone else. Sometimes you hit, sometimes you miss.
+ - My dad always played Anne Murray in the car on the way to the dump when I was a kid.
+ - The trend today is vampires, zombies, angels, all the stuff that puts me right to sleep. It’s too bad because it’s so much less interesting than the diversity of stories you can tell with science.
+ - I distrust all television doctors.
+ - I spent my entire childhood in the same town, in Kent. I went to grade school there. There was a boarding school that my mother taught at, called – appropriately enough – Kent School, that I went to. Yeah, pretty much my entire childhood was spent in that town.
+ - Chris Elliott could read the phonebook and he’s funny.
+ - The average person has eight different jobs over the course of their lifetime. You get a little antsy doing the same thing.
+ - At one point, I was hell-bent on being a Disney animator, and sort of got over that in college and wanted to do my own stuff. You know, towards the end of college I had actually planned to go to the Boston Conservatory of Music for musical theater.
+ - I have a car that I like – an Aston Martin – for Sunday drives in the country.
+ - I still do a lot of drawing on a daily basis.
+ - The problem with the cable networks is the lack of money, not from personal income but as far as show budget.
+ - If something is shocking without being funny it’s hard to justify.
+ - Sarah Palin is very pro-life of course, unless the life is that of an Iraqi civilian or a wolf running frantically from a roaring helicopter while being strafed with ribbons of automatic weapons fire.
+ - I can’t believe I am hosting the Oscars. It’s an honor everyone else said no.
+ - If a song is funny and absurd, and it sounds great, it’s just going to be that much funnier. And there’s no better example of that than ‘Monty Python.’
+ - You would not want me on your football team.
+ - The good thing about Broadway is that you don’t have to worry about an airdate. It gets done when it gets done.
+ - When you are in a room and your job is to write jokes 10 hours a day, your mind starts going to strange places.
+ - There are things about the single lifestyle that are very appealing.
+ - When ‘Family Guy’ started, we wanted to make it more like a sitcom. And there was very little music.
+ - Nobody sets out to offend or shock for the sake of shocking. You set out to get laughs.
+ - With any half-hour comedy, it kind of takes on its own life and finds itself.
+ - Some of those more out-there jokes were written in the wee hours of the morning. Somehow, they remained funny the next day.
+ - There are people on staff who have made that point, that the upside to a second Bush term is that it makes ‘American Dad’ work better. To me, the price is too high. I would gladly give up the comedy to have a President Kerry. But you work with what you have.
+ - If I were to do a musical, I think I would rather make a film musical.
+ - Most of the outrage comes from not the public, but from the media, the press and writers.
+ - Even if you know a character really well, there’s no formula for what jokes will work and what won’t.
+ - I did a lot of theater when I was in high school and college. I also did stand-up in college, so it was always part of what I did.
+ - I’m one of the few people in Hollywood who actually had a good childhood.
+ - Every year, the Friday before the new Saturday-morning shows would premiere, the networks would do this big preview special, and I was always glued to the TV. As horrible as they were, they were entertaining at the time. There was a lot of showmanship from the networks based around the new lineup.
+ - You break the story first, and then you go into the specifics.
+ - I was about two years old when I first started drawing recognizable characters.
+
+65 quotes

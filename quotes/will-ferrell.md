@@ -1,0 +1,141 @@
+ - If you ain’t first, you’re last!
+ - Before you marry a person, you should first make them use a computer with slow Internet to see who they really are.
+ - Facebook is like jail, you sit around and waste time, you write on walls and you get poked by people you don’t know.
+ - I’m in a glass case of emotion.
+ - America is all about speed. Hot, nasty, badass speed.
+ - Grief is nature’s most powerful aphrodisiac.
+ - No matter how much you screw up your own life by the wrong decisions that you make, it’s never too late to do the right thing and change your ways and you can teach old dogs new tricks.
+ - I’m just a big, hairy, American winning machine!
+ - Well, I could be wrong, but I believe diversity is an old, old wooden ship that was used during the Civil War era.
+ - There’s a benefit to losing, you get to learn from your mistakes.
+ - Immature is aword boring people use to describe fun people.
+ - If no-one comes from the future to stop doing it, then how bad of a decision can it really be?
+ - Alcohol is like Photoshop for real life.
+ - I hate when new parents ask who the baby looks like. It was born 15 minutes ago, it looks like a potato.
+ - Whenever someone calls me ugly I get super sad and hug them, because I know how tough life is for the visually impaired.
+ - The best way to spread Christmas cheer is singing loud for all to hear!
+ - I’m a Cancer; I’m music passionate. I like long walks on the beach.
+ - I’m a panicked karaoke participant because I am always searching for a song in the moment. I don’t have my go to song. I will be driving along and I will be like, “That should be my karaoke song!” and then I forget what song it is.
+ - I’m a really good swimmer.
+ - Inappropriate behavior makes me laugh.
+ - I’m a Progressive. Much in the same way our founding fathers – who, oddly enough, wouldn’t get elected today – were Progressives.
+ - James Caan told me at the end of filming ‘Elf’ that he had been waiting through the whole film for me to be funny – and I never was.
+ - I put my pants on just like the rest of you – one leg at a time. Except, once my pants are on, I make gold records.
+ - I Was so Drunk, I Thought a Tube of Toothpaste Was Astronaut Food.
+ - I guess destiny is not the path given to us but the path we choose for ourselves.
+ - You know you can be having a bad day and someone will walk by and say: ‘Hey, I love you, Will.’ That really cheers you up. That’s a really lovely thing.
+ - I’ve never been a conceited person or cocky, never felt boastful, but I always had a sense of self-worth; I always had a real sense of myself.
+ - Everyone I know who skis is dead.
+ - In every circle of friends there’s always that one person everyone secretly hates. Don’t have one? Then it’s probably you.
+ - What about Santa’s cookies? I suppose ‘parents’ eat those, too?
+ - Anyone can memorize facts and figures. The real way to learn anything is to go out and experience it. Let your curiosity lead you.
+ - You did it! Congratulations! World’s best cup of coffee! Great job, everybody! It’s great to be here.
+ - There’s nothing sexy about Orange County.
+ - I look good. I mean, really good. Hey everyone! Come and see how good I look!
+ - I just Fell Down the Stairs Holding a Guitar and Accidentally Wrote a One Direction Song.
+ - I’m a cotton-headed ninny muggins.
+ - Aren’t we all striving to be overpaid for what we do?
+ - I never put too much pressure on myself when I’m the central thing, just because I don’t think I could handle it mentally. I haven’t really thought about the implications of carrying a movie. It still has to be just a fun, weird thing.
+ - The funny guy doesn’t get the girl until later in life. High school, college, everyone still wants the brooding, dangerous guy you shouldn’t have.
+ - I still regret that I never played soccer in high school. I chose basketball over soccer.
+ - You have to listen a lot, and you have to be open and ready to adjust to anything. It kind of provides a framework that you use all the time. You never really shut off that part of your brain when you’re doing something. It’s invaluable to have.
+ - I want to thank Jesus, and by Jesus I mean Jesus Hernandez, my bodyguard.
+ - A fashion plate, a rock star in his own mind, Megamind is more showman than deadly menace.
+ - I’ve always wanted to sail around the world in a handmade boat, and I built a boat.
+ - Enjoy the little fun things – like taking your kids to school – before they’re all grown up.
+ - No matter how much you screw up your life, you can fix it.
+ - All you have in comedy, in general, is just going with your instincts. You can only hope that other people think that what you think is funny is funny. I don’t have an answer but I just try to plough straight ahead.
+ - When you’re doing an out-and-out comedy, the notion of preparing for a character – I hope I don’t reveal too much of myself here – but, uh, no, I’m not doing anything.
+ - When you look at someone like Sacha Baron Cohen, you have to really respect the boundaries he is pushing as Bruno or Borat.
+ - I often don’t think a lot about the ramifications of anything I do.
+ - Often times I’m confronted with a quote that I don’t remember saying. So, on one hand it’s very flattering, it is just so surreal.
+ - I have the physique a lot of people dream about having. It’s my obligation to share it with the world.
+ - I like challenging myself. I like the challenge of rapping to fast beats, rapping to beats that are super slow, whatever. I like the challenges, so I’m not afraid to take on any piece of music and create a song to it if it feels right to me.
+ - Why not work with your friends? It’s working with people you know, and you share the same sensibility.
+ - I would think beer and football go hand in hand.
+ - I think my new iPhone 5S is broken. I pressed the home button and I’m still at work.
+ - I’m able to come and do a new sound and grow even more and make greater songs because my song-making abilities have grown.
+ - I think it just came with me evolving as a person and me understanding that it’s not right to judge or to say anything derogatory about other people, especially if I don’t know them.
+ - What’s the point of being bad when there’s nothing good to stop you?
+ - I left home to go to college, and then I moved back home. I moved back for three years from 21 to 24.
+ - When I was ten, I wrote an essay on what I would be when I grew up and said I would be a professional soccer player and a comedian in off season.
+ - I was a strange kid in that, while most kids hate school and want to turn 18 or 21, I loved high school.
+ - A lot of people have gotten into comedy because of certain influences in their lives or events that were painful, and I really have wracked my brain to figure it out. I pretty much have had a normal childhood. Maybe it was too normal.
+ - In the fourth grade, I learned how to fake walking into a door. You know, you hit it with your hand and snap your head back. The girls loved it.
+ - New York is a fun town to go out in. During my twenties and into my thirties I had a good time partying, yes. But nothing where I woke up and I thought that I had a problem.
+ - I will watch a movie that is quote unquote dark and not get the qualification of what is dark and what is not.
+ - I just kind of have a comedic looking body, I guess. If anything I really have to exercise just to not look too fudgy, otherwise I would just keep going and going.
+ - It doesn’t really exist, this Frat Pack. We run into each other on occasions and we all like each other’s films, I guess, but there isn’t some big funny restaurant or bar where we all hang out. At least, if there is, they haven’t invited me.
+ - There’s always going to be someone as funny as you or funnier.
+ - I’m the minority in my house sometimes. My wife is Swedish, and we go to Sweden and everyone is rattling off in Swedish. It’s like, ‘OK, I can just read a book.’
+ - I’ve always been noted for being original and doing different thing. So for me to hop on the train that’s going on would be – shoot, if I wanted to hop on the train, I might as well have hopped on gangsta rap back when it was popular and tried to do that.
+ - Every time I do a partnership with the corporation, it’s usually – I mean, it is – reflective of me and they really want who I am. They want what I’ve established for my brand and the respect and quality that I’ve established.
+ - You still have that competitive thing where you want to try to make hits. That won’t go away, unless the mayor of show business says my time’s up.
+ - I’ve got no dark secrets, I wasn’t beaten up, my parents were kind to me and there was a low crime rate where we lived. Maybe that’s where the comedy comes from, as some sort of reaction to the safe, boring suburbs.
+ - I laugh like a fool when I watch a movie that I’ve done several years down the road when it’s on cable, i’ll just watch and sadly laugh along.
+ - I’m a selective pack rat. There’s some things I have no problem getting rid of and others I hold onto dearly.
+ - I am a bit of a gourmet chef. I love cooking mostly Thai food. And a lot of times on movies, you have these trailers that have these little ovens and kitchenettes. A lot of actors never use them, but I would cook lunch just about every day.
+ - My dad turned me onto Peter Sellers as a kid. I loved the fact that he was a unique combination of being extremely subtle and over-the-top all at the same time, and that’s a hard thing to do. I admire that.
+ - Saturday Night Live is such a comedy boot camp in a way, because you get to work with so many different people who come in to host the show and you get thrown into so many situations and learn how to think on your feet, so filmmaking actually feels slow, in a good way.
+ - I’ve never had a yard sale, ever, in my life. I don’t know if I ever thought about stuff I would get rid of.
+ - I don’t really think in absolutes.
+ - Anyone who does anything creative is always gonna want to change.
+ - I built a jail in my closet and I would incarcerate my family from time to time.
+ - When I first started doing sketch comedy, I promised myself that if I were ever to have any success in this business, I wouldn’t hold back. Why get there and play it safe?
+ - I always just forced myself to do crazy things in public. In college I would push an overhead projector across campus with my pants just low enough to show my butt. Then my friend would incite the crowd to be like, ‘Look at that idiot!’ That’s how I got over being shy.
+ - It’s very easy for me to play silly, but to reveal something closer to you, that’s so much harder.
+ - I guess ultimately a lot of comedians just wanna be taken seriously.
+ - There are a lot of really funny guys who are very natural in what they do: Jonah Hill, Michael Cera, Seth Rogen.
+ - I’m a bit of a gourmet chef. I love cooking – mostly Thai food.
+ - Since I was eight years old, I went to Trinity. I mean, I listened to Reverend Wright since I was a kid and I always heard him preach sermons of love and inspiration.
+ - Though I know consciousness kind of boxes you in, it still encompasses the artists that I knew were conscious throughout history of music – they’re the ones that you look at as the legends.
+ - That’s what I think works the best, and what I think makes the best comedy – something that’s completely committed and more approached as an acting exercise, as opposed to being worried about whether to be funny or not. The comedy comes from the context.
+ - My wife and I always enjoy going for a jog.
+ - I think you can’t do any action without in some way paying homage to John Woo. He’s the guy who just invented that sort of next level of poetic nasty action.
+ - I left ‘Saturday Night Live’ without a film to go to, and I’d filmed ‘Old School’ while I was in my last season of the show, and that hadn’t come out yet. I was a free agent, in a way, but I knew it was time to leave the show and test the water.
+ - I had never supported a political figure – and I went out and supported Obama.
+ - I think anyone who has, you know, is in any sort of artistic pursuit, kind of goes up and down with the way they feel about their work. And I, for the most part, am pretty happy person. But, yeah. I go through definite periods of time where I’m not funny. I’m not good. I’m – I don’t feel original.
+ - One of my first memories of being a kid was, ‘I want to have a real job when I grow up.’ And to me that meant you wear a suit and a hat and carry a briefcase and go to your job.
+ - I’ve not been able to avoid periods of time where I felt super-lonely. Luckily, I have a side that is able to always see the glass as half-full.
+ - I know the nature of comedy, and you never know what will happen with the next movie or whether people will find it funny.
+ - I love watching people be totally committed in a very real way to stupid situations. I find it’s not so much trying to be funny, it’s trying to be real in a messed up context. That’s comedy to me.
+ - I’ve always associated consciousness with artists like Bob Marley or Joni Mitchell or Bob Dylan. You know, artists that really talked about what was going on in the world and really artists that are timeless.
+ - I think whatever an artist does, it just has to be quality and good. I think the way Kanye’s doing what he’s doing with the Auto-Tune is actually creative because he just writes good melodies. He just writes good songs. He’s just gifted.
+ - Sleep is so cute when it tries to compete with the internet.
+ - I remember going with my mom to a random garage sale as a kid and thinking what a cool treasure hunt that whole world was. Only to transition as an adult to think, ‘What a gross place that really is.’
+ - I’ve always loved watching the news on TV. As a kid, I loved watching Walter Cronkite, for some reason.
+ - I don’t even consider myself an impressionist, really.
+ - I want to make hip-hop that can use guitars and soul and jazz and just fuse it all together. And I want to make this whole new sound that’s going to shock the world. Unfortunately, the masses didn’t receive it.
+ - You want every movie to be a hit. But every painting isn’t a masterpiece.
+ - Members of the Senate and House, if they want to send troops into war, should be forced to send a family member. That would really make everyone stop and go, ‘Ohhh-kaaay.’
+ - A lot of the times you read something and you don’t realize that you are going to have to do the things that you read.
+ - Happens I am very political. I have deep political instincts.
+ - I was one of the richest rappers in 2008. But it was definitely a strange feeling.
+ - I would love to work with Bill Murray. I’ve always been such a big fan. I think he’s obviously a great comedic actor but a really interesting actor.
+ - I speak as much Spanish as anyone who has grown up in Southern California or Texas or Arizona. I had my three years of high-school Spanish and a couple of semesters in college.
+ - Now we have food networks and everything. CNN was the beginning of all of that.
+ - Molly Shannon and I used to always talk about that we really felt strongly that we were comedic actors, that we weren’t comedians. You just played things real and the comedy came out of the context.
+ - I’m always in these situations where I forget to separate what is pitched as an idea to the fact that I’m actually going to have to execute it.
+ - I love playing the macho guy who looks like an idiot.
+ - You tend to get reluctant to talk about anything until the day before filming.
+ - I’m really an artist of feeling. I like creating things when it feels right.
+ - Oftentimes, even as a little kid, I would get up before anyone else. My brother would still be sleeping, my mom would still be sleeping, so I would literally play ‘Monopoly’ by myself. I would play board games; I would do things by myself.
+ - I don’t really have aspirations to be Tom Hanks.
+ - It would be great to be able to follow in the footsteps of Bill Murray. I really respect his ability as a comedian, obviously, but even more so as an actor.
+ - I think politics have gotten vulgar and we comedically portray that.
+ - I think ‘SNL’ was such a unique thing because it was material you created and you’re very comfortable with it, even though the setting was pressure-packed.
+ - I would love to play Simon Cowell in a movie – heck, I would love it. It would be my dream role.
+ - I have only been funny about seventy four per cent of the time. Yes I think that is right. Seventy-four per cent of the time.
+ - I grew up in an entertainment family, and so I saw how susceptible you are to the ups and downs of this business.
+ - It’s nice to be in a place where I can be a little more selective, and to be sought out for ideas that I have.
+ - By the time I was ready for college, I didn’t know what I wanted to do. I think I secretly wanted a show business career, but I was suppressing it.
+ - I think with the success of, like, every summer there has been a couple R-rated comedies that have done so well; I think it is so nice to see that people are turning out to see these movies, and it doesn’t seem to be as big a stigma with the studios anymore.
+ - Black, white, yellow, brown – we wanted somebody who would do right by us. And I think because Obama was that person, whether he was black or white, he was chosen.
+ - You definitely feel a little exposed, because some of your friends call you like, “Man, I need that much.”
+ - Personal philosophy: Clothing optional.
+ - I think people don’t understand that comedy is an outlet for me. Comedy allows me to get outside of myself, and exercise this thing that is still kind of scary to me.
+ - If you set up an environment where failing is encouraged then you want to try everything. It’s obviously the best way to work.
+ - I think a lot of the instincts you have doing comedy are really the same for doing drama, in that it’s essentially about listening. The way I approach comedy, is you have to commit to everything as if it’s a dramatic role, meaning you play it straight.
+ - Handling a painful situation in a comedic way is truly the funniest. That is extremely real to me and not kind of clownish. There is a thin line though; you can’t overdo it.
+
+139 quotes

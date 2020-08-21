@@ -1,0 +1,139 @@
+ - The first step in solving a problem is admitting there is a problem to be solved.
+ - If it can’t be reduced, reused, repaired, rebuilt, refurbished, refinished, resold, recycled or composted, then it should be restricted, redesigned or removed from production.
+ - To everything there is a season.
+ - It’s a very important thing to learn to talk to people you disagree with.
+ - Being generous of spirit is a wonderful way to live.
+ - I think the world is going to be saved by millions of small things.
+ - If there’s something wrong, speak up!
+ - The key to the future of the world, is finding the optimistic stories and letting them be known.
+ - Plagiarism is basic to all culture.
+ - Participation – that’s what’s gonna save the human race.
+ - Music has always had the ability to comfort and inspire.
+ - Any idiot can be complicated. It takes a genius to be simple.
+ - The easiest way to avoid wrong notes is to never open your mouth and sing. What a mistake that would be.
+ - Every time I’m in the woods, i feel like I’m in church.
+ - Many Americans knew their lives and their souls were being struggled for, and they fought for it. And I felt I should carry on.
+ - Did you ever want something really bad and then when you finally got it all you could do was stand there and grin at it?
+ - Little boxes made of ticky-tacky, and they all look just the same.
+ - Song, songs kept them going and going; They didn’t realize the millions of seeds they were sowing. They were singing in marches, even singing in jail. Songs gave them the courage to believe they would not fail.
+ - A good song reminds us what we’re fighting for.
+ - Get people to sing together and they’ll act together too.
+ - Hope that there are many, many small leaders.
+ - If I’ve got a talent, it’s for picking the right song at the right time for the right audience. And I can always seem to get people to sing with me.
+ - In the sixties, during the Vietnam war, when anarchists and pacifists and socialists, Democrats and Republicans, decent-hearted Americans, all recoiled with horror at the bloodbath, we came together.
+ - I get up each morning, gather my wits, pick up the paper and read the obits. If I’m not there, I know I’m not dead, so I eat a good breakfast and go back to bed.
+ - According to my definition of God, I’m not an atheist. Because I think God is everything. Whenever I open my eyes, I’m looking at God. Whenever I’m listening to something, I’m listening to God.
+ - When will we ever learn? When will we ever learn?
+ - I’m still a communist in the sense that I don’t believe the world will survive with the rich getting richer and the poor getting poorer – I think that the pressures will get so tremendous that the social contract will just come apart.
+ - All the arts, music, the visual arts, acting and dancing arts, cooking arts, and I believe sports, will save the human race because they can leap over barriers, religions, leap over barriers of race, politics.
+ - I tell kids, don’t trust the media. The media with their emphasis on fame is helping to destroy this country, helping destroy the human race. It’s the plug-in drug.
+ - The truth is a rabbit in a bramble patch. All you can do is circle around and say it’s somewhere in there.
+ - There is a big, beautiful world that could be destroyed by selfishness and foolishness. We musicians have it within our power to help save it. In a small way, every single one of us counts.
+ - Realize that little things lead to bigger things.
+ - The good and bad are all tangled up together. American popular music is loved around the world because of its African rhythm. But that wouldn’t have happened if it wasn’t for slavery.
+ - We all go to different churches or no churches, we have different favorite foods, different ways of making love, different ways of doing all sorts of things, but there we’re all singing together. Gives you hope.
+ - This world is so full of hypocrisy, the only way you can be honest is to be a hermit.
+ - How can you save the world you have not seen if you can’t save the community you have seen?
+ - All songwriters are links in a chain.
+ - This banjo surrounds hate and forces it to surrender.
+ - There’s a story behind every old ballad or work song or nonsense song that I ever knew. Sometimes it’s a fascinating story. A story of people struggling for freedom, struggling to get along in this old world.
+ - And the people in the houses All went to the University And they got put in boxes Little boxes all the same, Little boxes all the same, Little boxes all the same, Little boxes all the same And they all come out all the same.
+ - Be wary of great leaders.
+ - Town after town has but one newspaper or one radio station. It is often owned by Murdoch. Yes, we don’t have as much freedom of the press as we think we have – although the traditional freedom of speech is strongly rooted in American culture.
+ - Most conservatives just want to turn back the clock to a time before the income tax – 100 years or so. I would like to turn the clock back thousands of years to a time when people lived in small communities and took care of each other.
+ - Technology will save us if it doesn’t wipe us out first.
+ - Shh. Listen to the sounds that surround you. Notice the pitches, the volume, the timbre, the many lines of counterpoint. As light taught Monet to paint, the earth may be teaching you music.
+ - I came from an intellectual family. Most were doctors, preachers, teachers, businessmen. My grandfather was a small businessman. His father was an abolitionist doctor, and his father was an immigrant from Germany.
+ - The real meaning of courage was the personal sacrifice of Rosa Parks and Martin Luther King.
+ - Do you know the difference between education and experience? Education is when you read the fine print; experience is what you get when you don’t.
+ - And this is the origin of pop music: it’s a professional music which draws upon both folk music and fine arts music as well.
+ - You’d be surprised how many stupid mistakes I’ve made. I make stupid mistakes all the time, and some of them have been very big stupid mistakes.
+ - Do-so is more important than say-so.
+ - I keep reminding people that an editorial in rhyme is not a song. A good song makes you laugh, it makes you cry, it makes you think.
+ - I have to resist the temptation to want to learn everything. You know, you can’t. You have to restrict yourself at some time, or else you find yourself just being spread too thin. And already I think I try too many things.
+ - A song is like a picture of a bird in flight; the bird was moving before the picture was taken, and no doubt continued after.
+ - I try to sing many different kinds of songs. If I sing a batch of humorous songs, I’ll throw in a deadly serious song. Or if I’m singing too many serious songs, I’ll throw in a ridiculous song, to mix it up.
+ - A good song can only do good, and I am proud of the songs I have sung. I hope to be able to continue singing these songs for all who want to listen, Republicans, Democrats, and independents.
+ - I love my country very dearly, and I greatly resent the implication that some of the places that I have sung and some of the people that I have known, and some of my opinions, whether they are religious or philosophical, make me less of an American.
+ - My dad, the old professor, used to say, ‘Never get into an argument about what’s folk music and what isn’t.’
+ - I think folk music helps reinforce your sense of history. An old song makes you think of times gone by.
+ - It’s a terrible thing being a patriarch. I don’t even have a gray beard. But people keep calling me up for advice.
+ - I want to turn the clock back to when people lived in small villages and took care of each other.
+ - Singing with children in the schools has been the most rewarding experience of my life.
+ - Parents are the hardest-working members of the population. But they do it for the highest wages. Kisses.
+ - You have a right to your opinion and I’ve got a right to mine. Period.
+ - Some of my ancestors were religious dissenters who came to America over three hundred years ago. Others were abolitionists in New England in the eighteen forties and fifties.
+ - One of the things I’m most proud of about my country is the fact that we did lick McCarthyism back in the fifties.
+ - Songs are funny things. They can slip across borders. Proliferate in prisons. Penetrate hard shells. I always believed that the right song at the right moment could change history.
+ - I still call myself a communist, because communism is no more what Russia made of it than Christianity is what the churches make of it.
+ - I have sung for Americans of every political persuasion, and I am proud that I never refuse to sing to an audience, no matter what religion or color of their skin, or situation in life.
+ - Not everybody has to sing the melody.
+ - I used to agree with Kurt Vonnegut, who said that the human race has a snowball’s chance in hell of being around a hundred years from now.
+ - I don’t think of God as an old white man with no belly button, nor even an old black woman with no belly button. But I agree that God is something eternal. Something cannot come out of nothing. I believe God is Everything. And I believe in infinity.
+ - Songwriters can’t explain. You get an idea and you don’t know where it’s come from. And if you’re lucky, you have a pencil or pen and can write it down.
+ - I have come to the conclusion that there is nothing good that doesn’t have bad consequences and nothing bad that doesn’t have good consequences.
+ - At the audition, your assignment is to find something new in the song. Something you’ve never noticed before. A breath carried over, a thought that ties the whole thing together. Then take the risk and do it.
+ - Edison failed ten thousand times before he perfected the modern electric lamp. The average man would have quit at the first failure. That’s why there are so many average men and only one Edison.
+ - My mother playing the violin and my father and grandfather playing the piano, classical stuff.
+ - I like to say I’m more conservative than Goldwater. He just wanted to turn the clock back to when there was no income tax.
+ - Long live teachers of children, because they can show children how they can save the world.
+ - To live you have to experiment, to have the ability to experiment you have to have confidence, to have confidence you have to be loved, to be loved you have to love.
+ - Sometimes you find an old tune so good you can use it several times for different purposes.
+ - I have sung in hobo jungles, and I have sung for the Rockefellers, and I am proud that I have never refused to sing for anybody.
+ - But if two and two and fifty make a million,...
+ - I am not going to answer any questions as to my association, my philosophical or religious beliefs or my political beliefs, or how I voted in any election, or any of these private affairs.
+ - I never intended to make a living from music. That’s the funny thing. I wanted to be a journalist.
+ - My father, Charles Seeger, got me into the Communist movement. He backed out around ’38. I drifted out in the 50’s.
+ - I write a song because I want to. I think the moment you start writing it to make money, you’re starting to kill yourself artistically.
+ - The danger with the internet is that you don’t need to think about music, you just search for it and you find the answer. Singing used to be part of everyday life. Women sang while pounding corn. Men sang while paddling canoes.
+ - If you love this land of the free, bring them home, bring them home, Bring them back from overseas.
+ - Like most teachers, I’m just another sower of seeds.
+ - I was working for Alan Lomax in the Library of Congress folk song archive, and starting to realize what a wealth of different kinds of music there was in this country that you never heard on the radio.
+ - Throughout history the leaders of the countries have been very particular about what songs should be sung. We know the power of songs.
+ - I live in the country, so I get a fair amount of exercise. We heat our house with wood, so I split wood. We also live on a steep hill, and I have to rake and put in cross-stitches to keep the road from washing out when there’s a big rain.
+ - The world will be saved by people fighting for their homes.
+ - RULERS should be careful about what songs are allowed to be sung.
+ - The first country conquered by any dictator is his own country.
+ - Honest songs aren’t written for money.
+ - I came along and was a teenager in the Depression, and nobody had jobs. So I went out hitchhiking, when I met a man named Woody Guthrie. He was the single biggest part of my education.
+ - You can’t work on everything all the time, so start where you are.
+ - Again, I say I will be glad to tell what songs I have ever sung, because singing is my business.
+ - When I got out of school, I spent two years just hitchhiking around. Every time I met some old farmer who could play banjo, I got him to teach me a lick or two. Little by little, I put it together.
+ - I dreamed I saw a mighty room, the room was filled with men. And the paper they were signing said they’d never fight again.
+ - Songs won’t save the planet, but neither will books or speeches.
+ - The world would never amount to a hill of beans if people didn’t use their imaginations to think of the impossible.
+ - Anybody who wants to learn everything is pretty stupid. You learn what you can.
+ - Down through the centuries, this trick has been tried by various establishments throughout the world. They force people to get involved in the kind of examination that has only one aim and that is to stamp out dissent.
+ - I believe that all technological societies tend to self-destruct. The reason is that the very things that make us a successful technological society, such as our curiosity, our ambition and determination, will also cause us to fall.
+ - The American Indians were Communists. They were. Every anthropologist will tell you they were Communists. No rich, no poor. If somebody needed something the community chipped in.
+ - Most scientists know what needs to be done to save our Earth. But the politicians don’t listen to them. They will listen to popular pressure; the people got to supply that.
+ - Folks out in the country couldn’t afford to pay for anybody else to make music. They had to make their own. So the peasantry had their music, and it was about a hundred years ago given the name “Folk music”.
+ - I feel that my whole life is a contribution.
+ - People are combining traditions like never before and finding somehow a fundamental unity for this human race of ours. I think working with each other as Jeff Haynes has done here-we may be surprised to find what deeper unity all human beings have.
+ - I fought for peace in the fifties.
+ - Work in nightclubs was interesting. There were interesting people and places, but by and large, the commercial music experience.
+ - Looking back, I think I tried to be too eclectic. Sometimes I’d sing thirty songs, and fifteen of them were not in English.
+ - I decline to discuss, under compulsion, where I have sung, and who has sung my songs, and who else has sung with me, and the people I have known.
+ - It’s been my belief that learning how to do something in your hometown is the most important thing.
+ - Alan Lomax is the person who I think should be given major credit for what has been called the “Folk Song Revival.” My father participated with him because my father was a musicologist and urged trained musicians to learn about “the vernacular.”
+ - Food is one of the great organizing tools.
+ - Some folklorists just collected dead bones from one graveyard, only to bury them in another, their library.
+ - I’m not sure if my involvement in causes, benefits, marches, and demonstrations has made a huge difference, but I know one thing: that involvement has connected me with the good people: people with the live hearts, the live eyes, the live heads.
+ - But I decline to say who has ever listened to them, who has written them, or other people who have sung them.
+ - I’d really rather put songs on people’s lips than in their ears.
+ - Some may find them merely diverting melodies. Others may find them incitements to Red revolution. And who will say if either or both is wrong? Not I.
+ - I believe that my choosing my present course I do no dishonor to them, or to those who may come after me.
+ - I guess I’ve learned more from the Clearwater than anything else. All I did was help to plant a seed, and I didn’t know what the hell I was doing.
+ - I think these are very improper questions for any American to be asked, especially under such compulsion as this. I would be very glad to tell you my life if you want to hear of it.
+ - I was never enthusiastic about being somebody who was supposed to be silent about being a member of something.
+ - My job, is to show folks there’s a lot of good music in this world, and if used right it may help to save the planet.
+ - My mother gave me a ukulele at age eight, and I sang the popular tunes of the day.
+ - I’ve found that festivals are a relatively painless way to meet people and make a few points that need making, without having to hit them over the head with too many speeches.
+ - Historically, I believe I was correct in refusing to answer their questions.
+ - It was only through the years that I realized what an absolutely extraordinarily thoughtful person Dr. King was.
+ - But if by some freak of history communism had caught up with this country, I would have been one of the first people thrown in jail.
+ - In a world of private property, if something isn’t owned by somebody, it’s going to be misused by somebody else.
+ - I am saying voluntarily that I have sung for almost every religious group in the country, from Jewish and Catholic, and Presbyterian and Holy Rollers and Revival Churches.
+ - Music does affect your opinions. Plato is supposed to have said “It’s very dangerous to allow the wrong kind of music into the republic.”
+
+137 quotes

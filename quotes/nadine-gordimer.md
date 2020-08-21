@@ -1,0 +1,83 @@
+ - Writing is always a voyage of discovery.
+ - A desert is a place without expectation.
+ - Writing is making sense of life.
+ - Everyone ends up moving alone towards the self.
+ - There is no moral authority like that of sacrifice.
+ - A truly living human being cannot remain neutral.
+ - The solitude of writing is also quite frightening. It’s quite close to madness, one just disappears for a day and loses touch.
+ - Perhaps the best way to write is to do so as if one were already dead, afraid of no one’s reactions, answerable to no one’s views.
+ - Mumbling obeisance to abhorrence of apartheid is like those lapsed believers who cross themselves when entering a church.
+ - I have failed at many things, but I have never been afraid.
+ - The facts are always less than what really happened.
+ - The function of a writer is to make sense of life. It is such a mystery, it changes all the time, like the light.
+ - In a certain sense a writer is ‘selected’ by his subject – his subject being the consciousness of his own era.
+ - Newspapers are horror happening to other people.
+ - I couldn’t be sufficiently interested in human beings to be a writer if I had contempt for human beings.
+ - Sentiment is for those who don’t know what to do next.
+ - The caged eagle become a metaphor for all forms of isolation, the ultimate in imprisonment. A zoo is prison.
+ - The truth isn’t always beauty, but the hunger for it is.
+ - The tension between standing apart, and being fully involved; that is what makes a writer.
+ - Music has no limits of a life-span.
+ - Sincerity is never having an idea of oneself.
+ - Your whole life you are really writing one book, which is an attempt to grasp the consciousness of your time and place– a single book written from different stages of your ability.
+ - I’m a candle flame that sways in currents of air you can’t see. You need to be the one who steadies me to burn.
+ - Peace. The upland serenity of high altitude, the openness of grassland without indigenous bush or trees; the greening, yellowing or silver-browning that prevailed, according to season.
+ - If I dreamt this, while walking, walking in the London streets, the subconscious of each and every other life, past and present, brushing me in passing, what makes it real? Writing it down.
+ - Written words still have the amazing power to bring out the best and worst of human nature.
+ - I have learned since that sometimes the things we want most are impossible for us. You may long to come home, yet wander forever.
+ - The primacy of the word, basis of the human psyche, that has in our age been used for mind-bending persuasion and brain-washing pulp, disgraced by Gobbles and debased by advertising copy, remains a force for freedom that flies out between all bars.
+ - If people would forget about utopia! When rationalism destroyed heaven and decided to set it up here on earth, that most terrible of all goals entered human ambition. It was clear there’d be no end to what people would be made to suffer for it.
+ - The gap between the committed and the indifferent is a Sahara whose faint trails, followed by the mind’s eye only, fade out in sand.
+ - The creative act is not pure. History evidences it. Sociology extracts it. The writer loses Eden, writes to be read and comes to realize that he is answerable.
+ - Humans, the only self-regarding animals, blessed or cursed with this torturing higher faculty, have always wanted to know why.
+ - Responsibility is what awaits outside the Eden of Creativity.
+ - Success sometimes may be defined as a disaster put on hold. Qualified. Has to be.
+ - Art defies defeat by its very existence, representing the celebration of life, in spite of all attempts to degrade and destroy it.
+ - Fiction is a way of exploring possibilities present but undreamt of in the living of a single life.
+ - I’m forty-nine but I could be twenty-five except for my face and my legs.
+ - Learning to write sent me falling, falling through the surface of the South African way of life.
+ - The Communist Party is very popular in South Africa, especially among the young people. Never having had a chance to travel, and having suffered so much under capitalism, they still can’t believe that the Russian people themselves have rejected it.
+ - Writers themselves don’t analyze what they do; to analyze would be to look down while crossing a canyon on a tightrope.
+ - Nothing factual that I write or say will be as truthful as my fiction.
+ - It was a miracle; it was all a miracle: and one ought to have known, from the sufferings of saints, that miracles are horror.
+ - There’s no tiling moral about beauty.
+ - Writing is making sense of life. You work your whole life and perhaps you’ve made sense of one small area.
+ - Censorship may have to do with literature; but literature has nothing whatever to do with censorship.
+ - Disaster is private, in its way, as love is.
+ - Rebirth. I mean by this simply what happens when the child begins to realise the fact that the black does not enter through the white’s front door is not in the same category as the fact that the dead will never come back.
+ - When I was a child, we seemed to be living in a world remote from the rest of the world. But television has made a great difference to all of us.
+ - It’s absolutely fatal to your writing to think about how your work will be received. It’s a betrayal of whatever talent you have.
+ - Well, you know, in the fundamentalist milieu of the Afrikaners, there was a sense that they were a chosen people, that they were bringing civilization to the blacks.
+ - Nothing fades so quickly as what is unchanged.
+ - People give one another things that can’t be gift wrapped.
+ - You can’t change a regime on the basis of compassion. There’s got to be something harder.
+ - About the joys and the courage, I really don’t know what other people think. I just know that I’ve never left Africa. I’ve lived there all my life. And one of the wonderful things, in spite of all the terrible things that happen in South Africa, is the way people continue to keep their dignity.
+ - Keenness of hearing revives when one is alone.
+ - Time is change; we measure its passage by how much things alter.
+ - From Ernest Hemingway’s stories, I learned to listen within my stories for what went unsaid by my characters.
+ - Exile as a mode of genius no longer exists; in place of Joyce we have the fragments of work appearing in Index on Censorship.
+ - I cannot live with someone who can’t live without me.
+ - You can’t be afraid to do good in case evil results.
+ - Certainly the people who are close to me are happier. They feel freer.
+ - September 2001. A sunny day in New York. Many of us who are writers were at work on the transformation of life into a poem, story, a chapter of a novel, when terror pounced from the sky, and the world made witness to it.
+ - Mostly I’m interviewed by white people, and identified with white society.
+ - Can you imagine a writer in England influencing? Absolutely not. And in France? It used to be, but no more-absolutely not. France used to, at least, have writers as diplomats, but not any more.
+ - If one will always have to feel white first, and African second, it would be better not to stay on in Africa.
+ - I shall never write an autobiography, I’m much too jealous of my privacy for that.
+ - Literature is one of the few areas left where black and white feel some identity of purpose; we all struggle under censorship.
+ - What is the purpose of writing? For me personally, it is really to explain the mystery of life, and the mystery of life includes, of course, the personal, the political, the forces that make us what we are while there’s another force from inside battling to make us something else.
+ - In various and different circumstances certain objects and individuals are going to turn out to be vital. The wager of survival cannot, by its nature, reveal which, in advance of events.
+ - It’s easier for the former masters to put aside the masks that hid their humanity than for the former slaves to recognise the faces underneath. Or to trust that this is not a new mask these are wearing.
+ - The country of the tourist pamphlet always is another country, an embarrassing abstraction of the desirable that, thank God, does not exist on this planet, where there are always ants and bad smells and empty Coca-Cola bottles to keep the grubby finger-print of reality upon the beautiful.
+ - One can’t measure how a mood of confidence comes about.
+ - Power is something of which I am convinced there is no innocence this side of the womb.
+ - Communists are the last optimists.
+ - Any writer of any worth at all hopes to play only a pocket-torch of light – and rarely, through genius, a sudden flambeau – into the bloody yet beautiful labyrinth of human experience, of being.
+ - A child understands fear, and the hurt and hate it brings.
+ - I never talk about what I’m writing about currently, never. It’s private work on your own, no need or obligation to talk about it. Writers are made into performers these days, including myself, but there are some instances in which I will not perform.
+ - The creative act is not pure. History evidences it. Ideology demands it. Society exacts it.
+ - I don’t think I am a citizen of the world; I am very much a citizen of my own country. But my own country is closely related to other parts of the world and influenced by what happens there.
+ - Perhaps the best definition of progress would be the continuing efforts of men and women to narrow the gap between the convenience of the powers that be and the unwritten charter.
+ - My answer is: Recognize yourself in others.
+
+81 quotes

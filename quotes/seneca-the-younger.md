@@ -1,0 +1,502 @@
+ - It’s not that we have a short time to live, but that we waste a lot of it.
+ - No wind blows in favor of a ship without direction.
+ - While we are postponing, life speeds by.
+ - What need is there to weep over parts of life? The whole of it calls for tears.
+ - You are your choices.
+ - To rule yourself is the ultimate power.
+ - While we teach, we learn.
+ - No man is more unhappy than he who never faces adversity. For he is not permitted to prove himself.
+ - If you don’t know, ask. You will be a fool for the moment, but a wise man for the rest of your life.
+ - If you really want to escape the things that harass you, what you’re needing is not to be in a different place but to be a different person.
+ - It is a rough road that leads to the heights of greatness. As is a tale, so is life: not how long it is, but how good it is, is what matters.
+ - Don’t stumble over something behind you.
+ - The greatest wealth is a poverty of desires.
+ - If you don’t know what port you are sailing to, no wind is favourable.
+ - The important thing about a problem is not its solution, but the strength we gain in finding the solution.
+ - Every journey has an end.
+ - Time discovers truth.
+ - Look at the stars lighting up the sky: no one of them stays in the same place.
+ - To err is human. To repeat error is of the Devil.
+ - God is near you, is with you, is inside you.
+ - You want to live-but do you know how to live? You are scared of dying-and, tell me, is the kind of life you lead really any different from being dead?
+ - When a man does not know what harbor he is making for, no wind is the right wind.
+ - Gold is tried by fire, brave men by adversity.
+ - They lose the day in expectation of the night, and the night in fear of the dawn.
+ - Many things have fallen only to rise higher.
+ - Real improvement is of slow growth only.
+ - Fire proves gold, adversity proves men.
+ - No one can long hide behind a mask; the pretense soon lapses into the true character.
+ - Chance makes a plaything of a man’s life.
+ - The greatest power of ruling consists in the exercise of self-control.
+ - Men learn while they teach.
+ - Expecting is the greatest impediment to living. In anticipation of tomorrow, it loses today.
+ - You learn to know a pilot in a storm.
+ - Laugh at your problems; everybody else does.
+ - A man’s as miserable as he thinks he is.
+ - As long as we are among humans, let us be humane.
+ - Some lack the fickleness to live as they wish and just live as they have begun.
+ - Greed’s worst point is its ingratitude.
+ - Time discovers truth. Time heals what reason cannot.
+ - If we let things terrify us, life will not be worth living.
+ - We are always complaining that our days are few, and acting as though there would be no end to them.
+ - The artist finds a greater pleasure in painting than in having completed the picture.
+ - For many men, the acquisition of wealth does not end their troubles, it only changes them.
+ - A dwarf can stand on a mountain, he’s no taller.
+ - One of the most beautiful qualities of true friendship is to understand and to be understood.
+ - If you live according to nature, you never will be poor; if according to the world’s caprice, you will never be rich.
+ - There is nothing in the world so much admired as a man who knows how to bear unhappiness with courage.
+ - We should every night call ourselves to an account: What infirmity have I mastered today? What passions opposed? What temptation resisted? What virtue acquired? Our vices will abate of themselves if they be brought every day to the shrift.
+ - The day which we fear as our last is but the birthday of eternity.
+ - There are more things to alarm us than to harm us, and we suffer more often in apprehension than reality.
+ - The fates lead the willing, and drag the unwilling.
+ - What’s the good of dragging up sufferings which are over, of being unhappy now just because you were then.
+ - He who is everywhere is nowhere.
+ - Where fear is, happiness is not.
+ - It is another’s fault if he be ungrateful, but it is mine if I do not give. To find one thankful man, I will oblige a great many that are not so.
+ - It is part of the cure to wish to be cured.
+ - Make haste to live, and consider each day a life.
+ - Great men rejoice in adversity, just as brave soldiers triumph in war.
+ - It is better to have useless knowledge than to know nothing.
+ - He who would do great things should not attempt them all alone.
+ - It is only luxury and avarice that make poverty grievous to us; for it is a very small matter that does our business, and when we have provided against cold, hunger, and thirst, all the rest is but vanity and excess.
+ - The greatest loss of time is delay and expectation, which depend upon the future. We let go the present, which we have in our power, and look forward to that which depends upon chance, and so relinquish a certainty for an uncertainty.
+ - Watch over yourself. Be your own accuser, then your judge; ask yourself grace sometimes, and, if there is need, impose upon yourself some pain.
+ - We never reflect how pleasant it is to ask for nothing.
+ - To the stars through difficulties.
+ - To the person who does not know where he wants to go there is no favorable wind.
+ - The Fates guide those who go willingly. Those who do not, they drag.
+ - Teach the art of living well.
+ - The wise man will always reflect concerning the quality not the quantity of life.
+ - Loyalty is the holiest good in the human heart.
+ - One hand washes the other.
+ - Death takes us piecemeal, not at a gulp.
+ - The man who spends his time choosing one resort after another in a hunt for peace and quiet will in every place he visits find something to prevent him from relaxing.
+ - There is no evil that does not promise inducements. Avarice promises money; luxury, a varied assortment of pleasures; ambition, a purple robe and applause. Vices tempt you by the rewards they offer.
+ - Everywhere is nowhere. When a person spends all his time in foreign travel, he ends by having many acquaintances, but no friends.
+ - Shall I tell you what the real evil is? To cringe to the things that are called evils, to surrender to them our freedom, in defiance of which we ought to face any suffering.
+ - These individulas have riches just as we say that we ‘have a fever,’ when really the fever has us.
+ - Not how long, but how well you have lived is the main thing.
+ - The true felicity of life is to be free from anxieties and pertubations; to understand and do our duties to God and man, and to enjoy the present without any serious dependence on the future.
+ - For men in a state of freedom had thatch for their shelter, while slavery dwells beneath marble and gold.
+ - Voyage, travel, and change of place impart vigor.
+ - Money has never yet made anyone rich.
+ - I am like a book, with pages that have stuck together for want of use: my mind needs unpacking and the truths stored within must be turned over from time to time, to be ready when occasion demands.
+ - The worse a person is the less he feels it.
+ - Even after a bad harvest there must be sowing.
+ - The shortest road to wealth lies in the contempt of wealth.
+ - Death is the wish of some, the relief of many, and the end of all. It sets the slave at liberty, carries the banished man home, and places all mortals on the same level, insomuch that life itself were a punishment without it.
+ - The way to good conduct is never too late.
+ - There is nothing the busy man is less busied with than living; there is nothing harder to learn.
+ - Man is a reasoning Animal.
+ - Love of action is not industry.
+ - Life is the fire that burns and the sun that gives light. Life is the wind and the rain and the thunder in the sky. Life is matter and is earth, what is and what is not, and what beyond is in Eternity.
+ - As the soil, however rich it may be, cannot be productive without cultivation, so the mind without culture can never produce good fruit.
+ - He who has great power should use it lightly.
+ - Not he who has little, but he whose wishes more, is poor.
+ - It is extreme evil to depart from the company of the living before you die.
+ - He that does good to another does good also to himself, not only in the consequence but in the very act. For the consciousness of well-doing is in itself ample reward.
+ - Slavery takes hold of few, but many take hold of slavery.
+ - Nothing is ours except time.
+ - Greatness stands upon a precipice, and if prosperity carries a man never so little beyond his poise, it overbears and dashes him to pieces.
+ - It is to the interest of the commonwealth of mankind that there should be someone who is unconquered, someone against whom fortune has no power.
+ - No choice maxims – we Stoics don’t practice that kind of window dressing.
+ - Self-denial is the best riches.
+ - If a man does not know to what port he is steering, no wind is favorable to him. Ignoranti quem portum petat, nullus suus ventus est.
+ - Fire tests gold, suffering tests brave men.
+ - Death is a release from and an end of all pains.
+ - Lay hold of today’s task, and you will not depend so much upon tomorrow’s.
+ - The wish for healing has always been half of health.
+ - Wealth is the slave of a wise man. The master of a fool.
+ - As fate is inexorable, and not to be moved either with tears or reproaches, an excess of sorrow is as foolish as profuse laughter; while, on the other hand, not to mourn at all is insensibility.
+ - Wisdom does not show itself so much in precept as in life – in firmness of mind and a mastery of appetite. It teaches us to do as well as to talk; and to make our words and actions all of a color.
+ - Things that were hard to bear are sweet to remember.
+ - The bravest sight in the world is to see a great man struggling against adversity.
+ - It is more fitting for a man to laugh at life than to lament over it.
+ - Poverty wants some, luxury many, and avarice all things.
+ - There is nothing after death, and death itself is nothing.
+ - We have lost morals, justice, honor, piety and faith, and that sense of shame which, once lost, can never be restored.
+ - Men do not care how nobly they live, but only how long, although it is within the reach of every man to live nobly, but within no man’s power to live long.
+ - Retire into yourself as much as possible. Associate with people who are likely to improve you. Welcome those whom you are capable of improving. The process is a mutual one. People learn as they teach.
+ - Calamity is virtue’s opportunity.
+ - People pay the doctor for his trouble; for his kindness they still remain in his debt.
+ - A man is as unhappy as he has convinced himself he is.
+ - No tree becomes rooted and sturdy unless many a wind assails it. For by its very tossing it tightens its grip and plants its roots more securely; the fragile trees are those that have grown in a sunny valley.
+ - The comfort of having a friend may be taken away, but not that of having had one.
+ - There has not been any great talent without an element of madness. -Nullum magnum ingenium sine mixtura dementiae fuit.
+ - No evil is without its compensation. The less money, the less trouble; the less favor, the less envy. Even in those cases which put us out of wits, it is not the loss itself, but the estimate of the loss that troubles us.
+ - Those whom true love has held, it will go on holding.
+ - When I think over what I have said, I envy dumb people.
+ - The mind that is anxious about future events is miserable.
+ - Be wary of the man who urges an action in which he himself incurs no risk.
+ - Our fears are always more numerous than our dangers.
+ - No man is free who is a slave to the flesh.
+ - To govern was to serve, not to rule.
+ - Life is most delightful on the downward slope.
+ - True wisdom consists in not departing from nature and in molding our conduct according to her laws and model.
+ - Friendship always benefits; love sometimes injures.
+ - A dwarf is small even if he stands on a mountain; a colossus keeps his height, even if he stands in a well.
+ - The tempest threatens before it comes; houses creak before they fall.
+ - In war there is no prize for runner-up.
+ - You have to persevere and fortify your pertinacity until the will to good becomes a disposition to good.
+ - Nothing, to my way of thinking, is a better proof of a well-ordered mind than a man’s ability to stop just where he is and pass some time in his own company.
+ - The Best sign of Wisdom is the consistency between the words and deeds...
+ - Poverty with joy isn’t poverty at all. The poor man is not one who has little, but one who hankers after more.
+ - Death: There’s nothing bad about it at all except the thing that comes before it-the fear of it.
+ - The final hour when we cease to exist does not itself bring death; it merely of itself completes the death-process. We reach death at that moment, but we have been a long time on the way.
+ - Life is divided into three periods: that which has been, that which is, that which will be. Of these the present is short, the future is doubtful, the past is certain.
+ - Shun no toil to make yourself remarkable by some talent or other; yet do not devote yourself to one branch exclusively. Strive to get clear notions about all. Give up no science entirely; for science is but one.
+ - A great mind becomes a great fortune.
+ - Beauty is such a fleeting blossom, how can wisdom rely upon its momentary delight?
+ - It is the sign of a weak mind to be unable to bear wealth.
+ - Drunkenness is nothing but voluntary madness.
+ - Learn how to feel joy.
+ - So live with men as if God saw you and speak to God, as if men heard you.
+ - On him does death lie heavily, who, but too well known to all, dies to himself unknown.
+ - He robs present ills of their power who has perceived their coming beforehand.
+ - Away with the world’s opinion of you-it’s always unsettled and divided.
+ - That which Fortune has not given, she cannot take away.
+ - Nothing is so wretched or foolish as to anticipate misfortunes. What madness it is to be expecting evil before it comes.
+ - If you wish to be loved, love.
+ - Speech is the index of the mind.
+ - Leisure without literature is death, or rather the burial of a living man -Otium sine litteris mors est et hominis vivi sepultura.
+ - Courage leads to heaven; fear leads to death.
+ - The great thing is to know when to speak and when to keep quiet.
+ - There exists no more difficult art than living.
+ - There is nothing wrong with changing a plan when the situation has changed.
+ - Nature does not reveal all her secrets at once. We imagine we are initiated in her mysteries: we are, as yet, but hanging around her outer courts.
+ - What progress have I made? I am beginning to be my own friend. That is progress indeed.
+ - True love hates and will not bear delay.
+ - Rehearse death. To say this is to tell a person to rehearse his freedom. A person who has learned how to die has unlearned how to be a slave. He is above, or at any rate, beyond the reach of, all political powers.
+ - Delay not; swift the flight of fortune’s greatest favours.
+ - The willing, destiny guides them; the unwilling, destiny drags them.
+ - The best cure for anger is delay.
+ - He is a king who fears nothing, he is a king who desires nothing!
+ - Success is not greedy, as people think, but insignificant. That is why it satisfies nobody.
+ - Remember that pain has this most excellent quality. If prolonged it cannot be severe, and if severe it cannot be prolonged.
+ - Nothing is so bitter that a calm mind cannot find comfort in it.
+ - It takes the whole of life to learn how to live, and – even more surprising – it takes the whole of life to learn how to die.
+ - Whatever begins, also ends.
+ - The declaration of love may come sooner than expected. Take time before you reciprocate as this may simply be a statement of what they expect from you.
+ - You must know for which harbor you are headed, if you are to catch the right wind to take you there.
+ - No man is born wise; but wisdom and virtue require a tutor; though we can easily learn to be vicious without a master.
+ - The greater part of progress is the desire to progress.
+ - The whole duty of man is embraced in the two principles of abstinence and patience: temperance in prosperity, and patient courage in adversity.
+ - Ponder for a long time whether you shall admit a given person to your friendship; but when you have decided to admit him, welcome him with all your heart and soul. Speak as boldly with him as with yourself.
+ - He shows a greater mind who does not restrain his laughter, than he who does not deny his tears.
+ - Be harsh with yourself at times.
+ - The rust of the mind is the destruction of genius.
+ - While the fates permit, live happily; life speeds on with hurried step, and with winged days the wheel of the headlong year is turned.
+ - Genius always gives its best at first; prudence, at last.
+ - Everything that exceeds the bounds of moderation has an unstable foundation.
+ - With parsimony a little is sufficient; without it nothing is sufficient; but frugality makes a poor man rich.
+ - Economy is in itself a great source of revenue.
+ - This life is only a prelude to eternity.
+ - Luck is preparation multiplied by opportunity.
+ - The great blessings of mankind are within us and within our reach; but we shut our eyes, and, like people in the dark, we fall foul upon the very thing we search for, without finding it.
+ - Golden roofs break men’s rest.
+ - Truth never perishes.
+ - The pressure of adversity does not affect the mind of the brave man. It is more powerful than external circumstances.
+ - Whoever has nothing to hope, let him despair of nothing.
+ - When you see a man in distress, recognize him as a fellow man.
+ - Let us cherish and love old age; for it is full of pleasure, if you know how to use it. The best morsel is reserved for last.
+ - See what daily exercise does for one.
+ - Modesty forbids what the law does not.
+ - Philosophy alone makes the mind invincible, and places us out of the reach of fortune, so that all her arrows fall short of us.
+ - There is a noble manner of being poor, and who does not know it will never be rich.
+ - Prosperity asks for fidelity; adversity exacts it.
+ - Death is the wish of some, the relief of many, and the end of all.
+ - Men love their vices and hate them at the same time.
+ - The thing that matters is not what you bear, but how you bear it.
+ - A favor is to a grateful man delightful always; to an ungrateful man only once.
+ - What a great blessing is a friend with a heart so trusty you may safely bury all your secrets in it.
+ - The mind does not easily unlearn what it has been long in learning.
+ - There is no genius free from some tincture of madness.
+ - You cease to be afraid when you cease to hope; for hope is accompanied by fear.
+ - An age builds up cities: an hour destroys them.
+ - Let not the enjoyment of pleasures now within your grasp, be carried to such excess as to incapacitate you from future repetition.
+ - We become wiser by adversity; prosperity destroys our appreciation of the right.
+ - Concealed anger is to be feared; but hatred openly manifested destroys its chance of revenge.
+ - I will govern my life and thoughts as if the whole world were to see the one and read the other, for what does it signify to make anything a secret to my neighbor, when to God, who is the searcher of our hearts, all our privacies are open?
+ - The fortune of war is always doubtful.
+ - That loss is most discreditable which is caused by negligence.
+ - The best way to do good to ourselves is to do it to others; the right way to gather is to scatter.
+ - It is the property of a great and good mind to covet, not the fruit of good deeds, but good deeds themselves, and to seek for a good man even after having met with bad men.
+ - There is as much greatness of mind in acknowledging a good turn, as in doing it.
+ - Great grief does not of itself put an end to itself.
+ - The body is not a permanent dwelling, but a sort of inn which is to be left behind when one perceives that one is a burden to the host.
+ - Who-only let him be a man and intent upon honor-is not eager for the honorable ordeal and prompt to assume perilous duties? To what energetic man is not idleness a punishment?
+ - Time is the one thing that is given to everyone in equal measure.
+ - Life, if thou knowest how to use it, is long enough.
+ - Do you desire not to be angry? Be not inquisitive. He who inquires what is said of him only works out his own misery.
+ - Fidelity bought with money is overcome by money.
+ - All things are cause for either laughter or weeping.
+ - Nature has given us the seeds of knowledge, not knowledge itself.
+ - Everything may happen.
+ - The whole discord of this world consists in discords.
+ - The physician cannot prescribe by letter, he must feel the pulse.
+ - Certain laws have not been written, but they are more fixed than all the written laws.
+ - I had rather never receive a kindness than never bestow one.
+ - I do not sacrifice, but lend myself to business.
+ - Fortune may rob us of our wealth, not of our courage.
+ - There’s no delight in owning anything unshared.
+ - Those that are a friend to themselves are sure to be a friend to all.
+ - Happy he whoe’er, content with the common lot, with safe breeze hugs the shore, and, fearing to trust his skiff to the wider sea, with unambitious oar keeps close to the land.
+ - One must steer, not talk.
+ - Virtue depends partly upon training and partly upon practice; you must learn first, and then strengthen your learning by actions.
+ - I am telling you to be a slow-speaking person.
+ - Leave in concealment what has long been concealed.
+ - Just where death is expecting you is something we cannot know; so, for your part, expect him everywhere.
+ - Hardly a man will you find who could live with his door open.
+ - Death’s the discharge of our debt of sorrow.
+ - No book can be so good, as to be profitable when negligently read.
+ - The mind should be allowed some relaxation, that it may return to its work all the better for the rest.
+ - Choose as a guide one whom you will admire more when you see him act than when you hear him speak.
+ - For greed, all nature is too little.
+ - Small sorrows speak great ones are silent.
+ - Long is the road to learning by precepts, but short and successful by examples.
+ - I don’t trust liberals, I trust conservatives.
+ - Know thyself; this is the great object.
+ - The gladiator is formulating his plan in the arena or essentially Too late.
+ - That comes too late that comes for the asking.
+ - There is no power greater than true affection.
+ - To lose a friend is the greatest of all evils, but endeavour rather to rejoice that you possessed him than to mourn his loss.
+ - To be enslaved to oneself is the heaviest of all servitudes.-.
+ - We ought to take outdoor walks, to refresh and raise our spirits by deep breathing in the open air.
+ - Revenge is an inhuman word.
+ - Death is a punishment to some, to others a gift and to many a favour.
+ - Eyes will not see when the heart wishes them to be blind.
+ - Most men ebb and flow in wretchedness between the fear of death and the hardship of life; they are unwilling to live, and yet they do not know how to die.
+ - Nothing deters a good man from doing what is honourable.
+ - There is the need for someone against which our characters can measure themselves. Without a ruler, you won’t make the crooked straight.
+ - Happy is the man who can endure the highest and lowest fortune. He who has endured such vicissitudes with equanimity has deprived misfortune of its power.
+ - A hungry people listens not to reason, not cares for justice, nor is bent by any prayers.
+ - Those who boast of their descent, brag on what they owe to others.
+ - Economy is too late when you are at the bottom of your purse.
+ - What is more insane than to vent on senseless things the anger that is felt towards men?
+ - Diligence is a very great help even to a mediocre intelligence. -Diligentia maximum etiam mediocris ingeni subsidium.
+ - Hesitation is the best cure for anger. The first blows of anger are heavy, but if it waits, it will think again.
+ - What you think is the summit is only a step up.
+ - What others think of us would be of little moment did it not, when known, so deeply tinge what we think of ourselves.
+ - He is ungrateful who denies that he has received a kindness which has been bestowed upon him; he is ungrateful who conceals it; he is ungrateful who makes no return for it; most ungrateful of all is he who forgets it.
+ - Be silent as to services you have rendered, but speak of favours you have received.
+ - Everything hangs on one’s thinking.
+ - We live not according to reason, but according to fashion.
+ - He, who decides a case without hearing the other side, though he decides justly, cannot be considered just.
+ - No work is of such merit as to instruct from a mere cursory perusal.
+ - He who has made a fair compact with poverty is rich.
+ - The abundance of books is distraction.
+ - Fidelity purchased with money, money can destroy.
+ - No man enjoys the true taste of life, but he who is ready and willing to quit it.
+ - Life is a gift of the immortal Gods, but living well is the gift of philosophy.
+ - We are wrong in looking forward to death: in great measure it’s past already.
+ - Now we are not merely to stick knowledge on to the soul: we must incorporate it into her; the soul should not be sprinkled with knowledge but steeped in it.
+ - The sun shines even on the wicked.
+ - It’s all in your headJ you have the power to make things seem hard or easy or even amusing. The choice is yours.
+ - You must live for another if you wish to live for yourself.
+ - It is true greatness to have in one the frailty of a man and the security of a god.
+ - If sensuality were happiness, beasts were happier than men; but human felicity is lodged in the soul, not in the flesh.
+ - What should a wise person do when given a blow? Same as Cato when he was attacked; not fire up or revenge the insult., or even return the blow, but simply ignore it.
+ - We are more wicked together than separately. If you are forced to be in a crowd, then most of all you should withdraw into yourself.
+ - No man can live happily who regards himself alone, who turns everything to his own advantage. Thou must live for another, if thou wishest to live for thyself.
+ - Haste trips up its own heels, fetters and stops itself.
+ - I was shipwrecked before I got aboard.
+ - The display of grief makes more demands than grief itself. How few men are sad in their own company.
+ - Freedom is not being a slave to any circumstance, to any constraint, to any chance; it means compelling Fortune to enter the lists on equal terms.
+ - No man finds it difficult to return to nature except the man who has deserted nature.
+ - It is the characteristic of a weak and diseased mind to fear the unfamiliar.
+ - All my life I have been seeking to climb out of the pit of my besetting sins and I cannot do it and I never will unless a hand is let down to draw me up.
+ - Retirement without the love of letters is a living burial.
+ - If you wish another to keep your secret, first keep it to yourself.
+ - It is not goodness to be better than the worst.
+ - There’s one blessing only, the source and cornerstone of beatitude: confidence in self.
+ - True praise comes often even to the lowly; false praise only to the strong.
+ - No one is laughable who laughs at himself.
+ - What must be shall be; and that which is a necessity to him that struggles, is little more than choice to him that is willing.
+ - Pain, scorned by yonder gout-ridden wretch, endured by yonder dyspeptic in the midst of his dainties, borne bravely by the girl in travail. Slight thou art, if I can bear thee, short thou art if I cannot bear thee!
+ - The many speak highly of you, but have you really any grounds for satisfaction with yourself if you are the kind of person the many understand?
+ - Religion worships God, while superstition profanes that worship.
+ - The path of increase is slow, but the road to ruin is rapid.
+ - We are members of one great body. Nature planted in us a mutual love, and fitted us for a social life. We must consider that we were born for the good of the whole.
+ - Sadness usually results from one of the following causes either when a man does not succeed, or is ashamed of his success.
+ - Of war men ask the outcome, not the cause.
+ - Light cares speak, great ones are speechless. -Curae leves loquuntur ingentes stupent.
+ - Ignorant people see life as either existence or non-existence, but wise men see it beyond both existence and non-existence to something that transcends them both; this is an observation of the Middle Way.
+ - After death there is nothing.
+ - We are born subjects, and to obey God is perfect liberty. He that does this shall be free, safe and happy.
+ - There in no one more unfortunate than the man who has never been unfortunate. for it has never been in his power to try himself.
+ - Dangerous is wrath concealed. Hatred proclaimed doth lose its chance of wreaking vengeance.
+ - Epicurus says, “gratitude is a virtue that has commonly profit annexed to it.” And where is the virtue that has not? But still the virtue is to be valued for itself, and not for the profit that attends it.
+ - The most happy ought to wish for death.
+ - Democracy is more cruel than wars or tyrants.
+ - To strive with an equal is dangerous; with a superior, mad; with an inferior, degrading.
+ - The highest duty and the highest proof of wisdom – that deed and word should be in accord.
+ - Straightforwardness and simplicity are in keeping with goodness.
+ - The bounty of nature is too little for the greedy person.
+ - But when you are looking on anyone as a friend when you do not trust him as you trust yourself, you are making a grave mistake, and have failed to grasp sufficiently the full force of true friendship.
+ - I never come back home with the same moral character I went out with; something or other becomes unsettled where I had achieved internal peace; some one or other of the things I had put to flight reappears on the scene.
+ - The expression of truth is simplicity.
+ - It is the superfluous things for which men sweat, – superfluous things that wear our togas theadbare, that force us to grow old in camp, that dash us upon foreign shores.
+ - There is none made so great, but he may both need the help and service, and stand in fear of the power and unkindness, even of the meanest of mortals.
+ - Take away ambition and vanity, and where will be your heroes and patriots?
+ - Human affairs are like a chess-game: only those who do not take it seriously can be called good players. Life is like an earthen pot: only when it is shattered, does it manifest its emptiness.
+ - In a moment the ashes are made, but a forest is a long time growing.
+ - Consult your friend on all things, especially on those which respect yourself. His counsel may then be useful where your own self-love might impair your judgment.
+ - The most onerous slavery is to be a slave to oneself.
+ - Familiarity reduces the greatness of things.
+ - What were once vices are the fashion of the day.
+ - You can tell the character of every man when you see how he receives praise.
+ - Precepts or maxims are of great weight; and a few useful ones at hand do more toward a happy life than whole volumes that we know not where to find.
+ - Virtue with some is nothing but successful temerity.
+ - It is sometimes pleasant even to act like a madman.
+ - The more violent the storm the sooner it is over.
+ - I persist on praising not the life I lead, but that which I ought to lead. I follow it at a mighty distance, crawling.
+ - True joy is a serene and sober motion; and they are miserably out so that take laughing for rejoicing; the seat of it is within, and there is no cheerfulness like the resolutions of a brave mind.
+ - We should give as we would receive, cheerfully, quickly, and without hesitation; for there is no grace in a benefit that sticks to the fingers.
+ - The mind is a matter over every kind of fortune; itself acts in both ways, being the cause of its own happiness and misery.
+ - We are born to lose and to perish, to hope and to fear, to vex ourselves and others; and there is no antidote against a common calamity but virtue; for the foundation of true joy is in the conscience.
+ - Every reign must submit to a greater reign.
+ - Health is the soul that animates all the enjoyments of life, which fade and are tasteless without it.
+ - No one can have a peaceful life who thinks too much about lengthening it.
+ - The first proof of a well-ordered mind is to be able to pause and linger within itself.
+ - That grief is light which can take counsel.
+ - Apples taste sweetest when they’re going.
+ - Refrain from following the example of those whose craving is for attention, not their own improvement.
+ - Freedom can’t be kept for nothing. If you set a high value on liberty, you must set a low value on everything else.
+ - No one can be happy who has been thrust outside the pale of truth. And there are two ways that one can be removed from this realm: by lying, or by being lied to.
+ - What does reason demand of a man? A very easy thing-to live in accord with his own nature.
+ - A coward calls himself cautious, a miser thrifty.
+ - Anger is like those ruins which smash themselves on what they fall.
+ - It’s a vice to trust all, and equally a vice to trust none.
+ - Forgive that you may be forgiven.
+ - Without an adversary prowess shrivels. We see how great and efficient it really is only when it shows by endurance what it is capable of.
+ - Luck never made a man wise.
+ - A physician is not angry at the intemperance of a mad patient, nor does he take it ill to be railed at by a man in fever. Just so should a wise man treat all mankind, as a physician does his patient, and look upon them only as sick and extravagant.
+ - Go on and increase in valor, O boy! this is the path to immortality.
+ - You need a change of soul rather than a change of climate.
+ - How much better to pursue a straight course and eventually reach that destination where the things that are pleasant are the things that are honorable finally become, for you, the same.
+ - No possession is gratifying without a companion.
+ - The greatest hindrance to living is expectancy, which depends upon tomorrow and wastes today.
+ - A great step toward independence is a good-humoured stomach.
+ - Whom the dawn sees proud, evening sees prostrate.
+ - Constant exposure to dangers will breed contempt for them.
+ - Dignity increases more easily than it begins.
+ - A single lifetime, even though entirely devoted to the sky, would not be enough for the study of so vast a subject. A time will come when our descendants will be amazed that we did not know things that are so plain to them.
+ - Before old age I took care to live well; in old age I take care to die well; but to die well is to die willingly.
+ - Reasons for anxiety will never be lacking, whether born of prosperity or of wretchedness; life pushes on in a succession of engrossments. We shall always pray for leisure...
+ - Virtue is shut out from no one; she is open to all, accepts all, invites all, gentlemen, freedmen, slaves, kings, and exiles; she selects neither house nor fortune; she is satisfied with a human being without adjuncts.
+ - In whatever direction you turn, you will see God coming to meet you; nothing is void of him, he himself fills all his work.
+ - That which is given with pride and ostentation is rather an ambition than a bounty.
+ - What you do for an ungrateful man is thrown away.
+ - Night brings our troubles to the light, rather than banishes them.
+ - The kind of solace that arises from having company in misery is spiteful.
+ - Believe me, that was a happy age, before the days of architects, before the days of builders.
+ - Nothing is more disgraceful than that an old man should have nothing to show to prove that he has lived long, except his years.
+ - The heart is great which shows moderation in the midst of prosperity.
+ - Resistance to oppression is second nature.
+ - Light troubles speak; the weighty are struck dumb.
+ - The first step in a person’s salvation is knowledge of their sin.
+ - As many servants so many enemies.
+ - Tis a human trait to hate one you have wronged.
+ - He who has fostered the sweet poison of love by fondling it, finds it too late to refuse the yoke which he has of his own accord assumed.
+ - A crowd of fellow-sufferers is a miserable kind of comfort.
+ - Nothing is void of God, his work is everywhere his full of himself.
+ - He who does not prevent a crime when he can, encourages it.
+ - It is proof of a bad cause when it is applauded by the mob.
+ - There is nothing which persevering effort and unceasing and diligent care cannot accomplish.
+ - Many shed tears merely for show, and have dry eyes when no one’s around to observe them.
+ - Everything in art is but a copy of nature.
+ - We most often go astray on a well trodden and much frequented road.
+ - No good thing is pleasant without friends to share it.
+ - Wisdom allows nothing to be good that will not be so forever; no man to be happy but he that needs no other happiness than what he has within himself; no man to be great or powerful that is not master of himself.
+ - Unblest is he who thinks himself unblest.
+ - Misfortune is the test of a person’s merit.
+ - What narrow innocence it is for one to be good only according to the law.
+ - Be not dazzled by beauty, but look for those inward qualities which are lasting.
+ - It is only the surprise and newness of the thing which makes that misfortune terrible which by premeditation might be made easy to us. For that which some people make light by sufferance, others do by foresight.
+ - The great pilot can sail even when his canvass is rent.
+ - That is never too often repeated, which is never sufficiently learned.
+ - Anyone can stop a man’s life, but no one his death; a thousand doors open on to it.
+ - I know that nothing comes to pass but what God appoints; our fate is decreed, and things do not happen by chance, but every man’s portion of joy and sorrow is predetermined.
+ - A man afraid of death will never play the part of a live man.
+ - It is never too late to learn what is always necessary to know.
+ - Where silence is not allowed, what then is permissible?
+ - Authority founded on injustice is never of long duration.
+ - It is the mind that makes us rich and happy, in what condition soever we are, and money signifies no more to it than it does to the gods.
+ - Nothing is so contemptible as the sentiments of the mob.
+ - The worst thing about getting old is evil men cease to fear you.
+ - I will have a care of being a slave to myself, for it is a perpetual, a shameful, and the heaviest of all servitudes; and this may be done by moderate desires.
+ - Successful crime is dignified with the name of virtue; the good become the slaves of the wicked; might makes right; fear silences the power of the law.
+ - It makes a great deal of difference whether one wills not to sin or has not the knowledge to sin.
+ - Success consecrates the most offensive crimes.
+ - Behold a worthy sight, to which the God, turning his attention to his own work, may direct his gaze. Behold an equal thing, worthy of a God, a brave man matched in conflict with evil fortune.
+ - If you are wise, You will mingle one thing with the other- Not hoping without doubt; Not doubting without hope.
+ - The road by precepts is tedious, by example, short and efficacious.
+ - Human society is like an arch, kept from falling by the mutual pressure of its parts.
+ - Money does all things for reward. Some are pious and honest as long as they thrive upon it, but if the devil himself gives better wages, they soon change their party.
+ - Let tears flow of their own accord; their flowing is not inconsistent with inward peace and harmony.
+ - A king is he who has laid fear aside and the base longings of an evil heart; whom ambition unrestrained and the fickle favor of the reckless mob move not.
+ - Whatever is well said by another, is mine.
+ - The mind is never right but when it is at peace within itself.
+ - There are a few men whom slavery holds fast, but there are many more who hold fast to slavery.
+ - Everyone rushes his life on, and suffers from a yearning for the future and a boredom with the present. But that man who devotes every hour to his own needs, who plans every day as if it were his last, neither longs for nor fears tomorrow.
+ - Just as I shall select my ship when I am about to go on a voyage, or my house when I propose to take a residence, so shall I choose my death when I am about to depart from life.
+ - War I abhor, and yet how sweet The sound along the marching street Of drum and fife, and I forget Wet eyes of widows, and forget Broken old mothers, and the whole Dark butchery without a soul.
+ - Light is that grief which counsel can allay.
+ - Let us fight the battle-retreat from the things that attract us and rouse ourselves to meet the things that actually attack us.
+ - The first and greatest punishment of the sinner is the conscience of sin.
+ - Such is the blindness, nay the insanity of mankind, that some men are driven to death by the fear of it.
+ - It is a denial of justice not to stretch out a helping hand to the fallen that is the common right of humanity.
+ - Call it Nature, Fate, Fortune; all these are names of the one and selfsame God.
+ - It is a world of mischief that may be done by a single example of avarice or luxury. One voluptuous palate makes many more.
+ - A man who has taken your time recognises no debt; yet it is the one he can never repay.
+ - You roll my log, and I will roll yours.
+ - A person’s fears are lighter when the danger is at hand.
+ - May be is very well, but Must is the master. It is my duty to show justice without recompense.
+ - Nothing is so false as human life, nothing so treacherous. God knows no one would have accepted it as a gift, if it had not been given without our knowledge.
+ - You must linger among a limited number of master-thinkers, and digest their works, if you would derive ideas which shall win firm hold in your mind.
+ - Let us ask what is best – not what is customary. Let us love temperance – let us be just – let us refrain from bloodshed.
+ - I have withdrawn not only from men, but from affairs, especially my own affairs; I am working for later generations, writing down some ideas that may be of assistance to them.
+ - Reason wishes that the judgement it gives be just; anger wishes that the judgement it has given seem to be just.
+ - Plato once wanted to punish one of his slaves and asked his nephew to do the actual whipping for he himself did not own his anger.
+ - The good things of prosperity are to be wished; but the good things that belong to adversity are to be admired.
+ - There is nothing the wise man does reluctantly.
+ - It is within the power of every man to live his life nobly, but of no man to live forever. Yet so many of us hope that life will go on forever, and so few aspire to live nobly.
+ - A good character is the only guarantee of everlasting, carefree happiness.
+ - Life’s neither a good nor an evil: it’s a field for good and evil.
+ - Let wickedness escape as it may at the bar, it never fails of doing justice upon itself; for every guilty person is his own hangman.
+ - We are sure to get the better of fortune if we do but grapple with her.
+ - Most people fancy themselves innocent of those crimes of which they cannot be convicted.
+ - The greatest man is he who chooses right with the most invincible resolution.
+ - Hold fast then to this sound and wholesome rule of life; indulge the body only as far as is needful for health.
+ - What with our hooks, snares, nets, and dogs, we are at war with all living creatures, and nothing comes amiss but that which is either too cheap or too common; and all this is to gratify a fantastical palate.
+ - Something that can never be learnt too thoroughly can never be said too often.
+ - Nullum ad nocendum tempus angustum est malis. No time is too short for the wicked to injure their neighbors.
+ - Whatever fortune has raised to a height, she has raised only to cast it down.
+ - Shame may restrain what law does not prohibit.
+ - My joy in learning is partly that it enables me to teach.
+ - There is about wisdom a nobility and magnificence in the fact that she doesn’t just fall to a person’s lot, that each man owes her to his own efforts, that one doesn’t go to anyone other than oneself to find her.
+ - Philosophy is good advice, and no one gives good advice at the top of his lungs.
+ - It is not poverty that we praise, it is the man whom poverty cannot humble or bend.
+ - If you would judge, understand.
+ - Our Creator shall continue to dwell above the sky, and that is where those on earth will end their thanksgiving.
+ - Our plans miscarry because they have no aim.
+ - God has given some gifts to the whole human race, from which no one is excluded.
+ - Every one has time if he likes. Business runs after nobody: people cling to it of their own free will and think that to be busy is a proof of happiness.
+ - Many person might have achieved wisdom had they not supposed that they already possessed it.
+ - Indolence is stagnation; employment is life.
+ - The wise man then followed a simple way of life-which is hardly surprising when you consider how even in this modern age he seeks to be as little encumbered as he possibly can.
+ - What is required is not a lot words, but effectual ones.
+ - He that will do no good offices after a disappointment must stand still, and do just nothing at all. The plough goes on after a barren year; and while the ashes are yet warm, we raise a new house upon the ruins of a former.
+ - Toil to make yourself remarkable by some talent or other.
+ - He that visits the sick in hopes of a legacy, but is never so friendly in all other cases, I look upon him as being no better than a raven that watches a weak sheep only to peck out its eyes.
+ - A lesson that is never learned can never be too often taught.
+ - To be able to endure odium is the first art to be learned by those who aspire to power.
+ - It is not how many books thou hast, but how good; careful reading profiteth, while that which is full of variety delighteth.
+ - It is often better not to see an insult than to avenge it.
+ - No one loves his country for its size or eminence, but because it’s his own.
+ - To forgive all is as inhuman as to forgive none.
+ - Refuse to let the thought of death bother you: nothing is grim when we have escaped that fear.
+ - It goes far toward making a man faithful to let him understand that you think him so; and he that does but suspect I will deceive him, gives me a sort of right to do so.
+ - Time is the greatest remedy for anger.
+
+500 quotes

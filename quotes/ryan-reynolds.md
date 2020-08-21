@@ -1,0 +1,119 @@
+ - I don’t expect success. I prepare for it.
+ - When you have expectations, you are setting yourself up for disappointment.
+ - Laughing can serve you in dark moments and even help you crawl your way back out.
+ - Are you stalking me? Because that would be super.
+ - The ‘friend zone’ is like the penalty box of dating, only you can never get out. Once a girl decides you’re her ‘friend,’ it’s game over. You’ve become a complete non-sexual entity in her eyes, like her brother, or a lamp.
+ - Religion poisons everything good in this world.
+ - I learned discipline from my father. Not in terms of corporal punishment, but being determined in whatever you do, and sticking with it.
+ - I feared disappointing my father more than anything in the world.
+ - I find that I get a little depressed if I don’t move my body each day, so sometimes it’s just as simple as walking, and other times it’s training for a marathon or some kind of personal goal that I’m trying to meet.
+ - Marathon running, for me, was the most controlled test of mettle that I could ever think of. It’s you against Darwin.
+ - Any kind of crisis can be good. It wakes you up.
+ - I’m the guy doing calisthenics. I’m doing jumping jacks and deep knee bends. I work out like a British person.
+ - I have daddy issues. So I keep tissues on me at all times.
+ - I think we can all use a little more patience. I get a little impatient sometimes and I wish I didn’t. I really need to be more patient.
+ - I think by take eight you’re kind of going, “Oh, wow, I don’t know if I want to fall entirely off the roof again.” That stuff is tough, and I’m also not 21 anymore. I just don’t like cement. Cement isn’t hilarious any more.
+ - I played rugby for years, and I had a rugby jacket that I lost when I was 14. Somehow, my brother found it in storage 15 years later, and he gave it back to me for my 30th birthday. That was amazing and probably one of the best gifts I’ve ever received.
+ - My family is as far from a stage family as you could ever possibly find.
+ - I don’t like seeing the stuff that’s not polished. It’s harder for me to step away from it and watch that.
+ - If it weren’t so off-putting for my co-workers. I’d wear my flannel, one-piece ‘Hannah Montana’ pajamas, like, all the time!
+ - I think every relationship is going to go through a few rough patches. Those are what make it stronger, I think.
+ - Sometimes it’s just enough to keep your body moving. I get depressed if I don’t move.
+ - Fragrance is a very personal gift, and I think that’s why it makes a great Christmas gift. There’s a very distinct signature to it, so if you give it as a gift, I like to think that it’s from a person that thinks very highly of you.
+ - I think you have to let go of this idea that you can be precious about everything, and let it be the abstract mess that it is.
+ - I just like to look beautiful sometimes.
+ - I believe in energy like dark energies. I believe that when a family moves into a house where six murders took place, there’s going to be some bad juju in that house. But then again what the hell is wrong with you to be moving in that house to begin with?
+ - I read the ‘Deadpool’ series back in the ’90s. I’m not, like, a huge comic book reader, per say, though. I’ll check out ‘Archie’ when I’m in the grocery line, but that’s about it.
+ - There’s a very real possibility in this industry of going out and leading your life and then going home and being a voyeur of your own life. You can literally go watch yourself – where you went last night, what you did, what the things that people presuppose about you. It’s kind of crazy.
+ - I’m not a hockey fan, which is probably why I had to leave Canada in the first place.
+ - I remember being upset because I was finally legal to drink in Canada, and I decided to throw that all away and move to America, where I had to wait another two years. I came here to do improv and to try to join the Groundlings.
+ - Everyone thinks their baby is a genius. People find it delightfully refreshing when I tell them, My baby? Totally average. Like, 100 percent average.
+ - We started training a month before the movie started and then by five months in, we were at our peak shape.
+ - It’s a nice visual. I had just done Blade and I put on more weight for Blade and I thought I might as well use it so I kept it and added a little more. I wanted him to be a big bear.
+ - I’m sure I have a lot to atone for, if there is a judgment day. It’s gonna be a long list for me. It goes right up until I was about 18, and then I sort of straightened out.
+ - Wouldn’t that be an amazing super power? Knowing where to press on someone’s neck to make them immediately urinate.
+ - When I was younger, I was reticent to be vulnerable on camera and everything I was doing was just a really finely honed defense mechanism from when I was a kid, and I was now using this to make a living on camera.
+ - When you’re growing up in a family without a lot of money and four boys, it can’t always be, ‘Let’s go see a specialist, see if you’re okay.’ If you got hurt, you just walked it off.
+ - I just love bikes. It’s not the safest passion to have, but I guess it’s better than Russian roulette.
+ - You always get that one customer that decides that your name is boy. Or something. It certainly reinforces a respect I already had for people that are in the hospitality industry.
+ - I’ll say this: The media wasn’t invited to my marriage, and they’re definitely not invited into the divorce.
+ - I think a fragrance is more of a signature than even what you wear – something you’ll remember more down the road than a shirt.
+ - We might be too proud to admit it as guys, but we still need to learn how to manage responsibility, how to face our challenges.
+ - It’s funny, because there are so many stereotypes out there about actors and movie stars in general, but I’ve had a great opportunity to meet a lot of them, and maybe it’s just because they don’t behave that way around me, but I rarely see that kind of abuse of power.
+ - I’ve had the pretty good fortune of working with some decent guys and gals.
+ - Hollywood is so strange because a lot of times the battlefield is just a meeting. It’s not necessarily like an audition. They’ve seen clips of you and they know that you can perform and it’s a matter of “what is your take on a character”?
+ - I’m pretty good at surprising friends and family with gifts. I tend to go towards the more sentimental side of giving.
+ - I’ve always just liked working. I like being a working actor.
+ - People have their complexities. They have their heroic moments and their villainous moments, too.
+ - I’ve done things to my body, mechanically, that I’ll never do again. I’ve done stunts that I shouldn’t have done 10, 11, 12 times. I’ve broken a ton of bones on sets.
+ - I love Canada. It makes a nice hat for America. When America runs out of water, it’s the first place I’ll go.
+ - I understand the climate we live in and why people are curious. But it’s just tough and almost emotionally violent – for anyone, I think – to see your personal life summarized in a sentence.
+ - But if you do, then it’s a high class problem to have. And if you do, you’re the architect of that problem. There’s no one else to blame but yourself. You’ve kept doing the same kinds of movies and that’s what they want to see.
+ - I’m going to admit when I’m clueless, and I’m going to ask people for help when I don’t know the answer to something.
+ - I like doing the mainstream, right-down-the-pike broad comedies as much as I like doing the kind of unorthodox different stuff.
+ - My tattoo is of a cannon in Vancouver that I got in a fleeting moment of stupidity maybe 14 years ago. A lot of people have really beautiful tattoos, and I get real tattoo envy. But then other people basically just treat them like bumper stickers for their bodies.
+ - If you ask me to describe my relationship, I mean – words are too clumsy to accurately describe how I feel in that regard, particularly in an interview. It’s a strange thing.
+ - I firmly believe that you can’t manufacture chemistry with anyone, let alone a kid.
+ - When I do comedy, my brain sort of locks up in the infinite possibilities. That’s where I get sort of lost. I think, “Oh, there are six other jokes that we could say here!” I feel more at home with drama.
+ - Everybody thinks it’s glamorous and this spy versus spy stuff is so exciting, but working in that industry and being a CIA operative, like a field officer, is tough. That’s a difficult job that usually dismantles their lives in some capacity.
+ - I don’t necessarily need 400 pounds on my back in the squat rack, and then take a picture of myself and send it out to my Twitter followers, ‘Part of the 400 pound club today.’
+ - Every time I’ve gotten myself into trouble, it’s because I’m choosing a project based on a long-term career goal as opposed to something that speaks to me at the moment.
+ - My very worst day on ‘Green Lantern’ was nowhere near as difficult as my finest day on ‘Buried.’
+ - A producer is someone who actually calls the shots. An executive producer is just a guy that eats more food at craft service.
+ - I can’t say I’ve ever finished a film and been particularly thrilled with myself or patted myself on the back. And maybe that’s what keeps me going, and that’s a good thing. It speaks volumes about how I perceive myself.
+ - There’s an old saying that you don’t ever finish a movie, you abandon it, and I really believe that. I never walk away from a take and pat myself on the back.
+ - I had a lot of different jobs between fifteen and nineteen. I’d moved out of my house way, way younger than I should have. So I was living out on my own with my brother when I’d just turned sixteen. I did busboy stuff, and worked in warehouses, and did odd jobs, and stuff. I earned me some Pesos.
+ - I come from a family of cops, and all of them share that understanding that they put their lives on the line.
+ - I never took acting classes, but I knew I could do it based on the skill with which I lied to my parents on a regular basis!
+ - I would sooner be prime minister of the moon than run another marathon. I’ve been really lucky. I didn’t have any toenails fall off or anything disgusting like that. I still have all three nipples.
+ - A live action movie is work, and an animated movie is you showing up in your pajamas once every three months, or in my case, just a splash of baby powder. It’s not any kind of heavy lifting.
+ - Guys are lucky: We can wear a suit over and over, just with different shirts and ties.
+ - When I’m not training for a movie, it’s more relaxed. I do a lot of running. Usually I’ll run four to six miles about three times a week. You try to eat right, but you don’t always.
+ - When your dad’s a cop, calling 911 is really just like calling Dad at work.
+ - Like a lot of people, I’ve got a self-loathing streak that’s alive and well. It acts as a de facto engine when I’m working, but it also has its extraordinary pitfalls, too.
+ - Bringing any movie together is a minor miracle.
+ - My father was swallowed alive by his own anus. It was a terrible way to go.
+ - You’d be hard pressed to find more drama in ‘Days of Our Lives’ than you do in an average job each day.
+ - I’m six foot two. If I need security around me, there’s a problem.
+ - I learned early on to abandon all those preconceived notions you have about other actors and it’s served me really well. I usually just try to empty my mind of that. I love meeting actors and I love working with actors.
+ - There are so few surprises left in life. We’ve gotten so addicted to knowing. It’s the Google generation. We want the answer to everything right now!
+ - I’m just a huge fan of Joe Carnahan. He’s such a charismatic individual and somebody that just applies every part of himself to the project he’s in.
+ - I know there are actors we all want to beat up a little. I think it’s important to do whatever it takes, and whatever it takes sometimes involves some physical or mental discipline. There’s a lot at stake.
+ - I’m not one of those actors who romanticizes his trials working out and brags that he can bench press a panda now.
+ - It’s a lot of working out, you know, and you don’t get to eat all the things you wanna eat.
+ - Acting has given me a way to channel my angst. I feel like an overweight, pimply faced kid a lot of the time – and finding a way to access that insecurity, and put it toward something creative is incredibly rewarding. I feel very lucky.
+ - A well-tailored suit is important – and I don’t like wearing belts with mine – it should be tailored to your body.
+ - New Orleans is one of the most exciting, incredible communities in the world. There’s such a rich culture and history, and there are innumerable things to do.
+ - That’s why you and I had friction? God, I always thought it was ’cause, ’cause I fooled around with your daughter freshman year.
+ - The problem with romantic comedies is you know the ending by the poster. So they’re not movies you can keep doing over and over again expect satisfaction somehow.
+ - For the most part Hollywood is a world of imagination.
+ - I’ve always find that Aussies and Vancouver-ites in general just have a similar kind of attitude.
+ - I’m terrified that I’m genetically predisposed to only having boys. That’s frightening. By the time I was 10 years old, and I’m not exaggerating, I knew how to patch drywall.
+ - I run in a pair of New Balances with a thinner sole, but they’re nothing like those barefoot shoes that show all five toes. I have a bit of a phobia about those.
+ - Any great director is also someone who is incredibly intelligent about whom they hire around them.
+ - There’s nothing my brothers and I didn’t put a hole in. We turned our home into a Wiffle house.
+ - I don’t personally believe that villains exist. Villains are just a way of saying that somebody has an opposing conviction.
+ - If you’re going to commit to that, you’re going to have to find some way to make it bearable and enjoyable.
+ - I think we know too much about actors as it is and their personal lives and it’s this information age where we’re stimulated constantly by the celebrity buzz effect or whatever it is, these web sites and blogs and different things.
+ - I don’t get a lot of romantic comedy scripts.
+ - My father was a police officer before he retired. One of my brothers is also a police officer, and I think they kind of expected I would do something along those lines, like become a fireman or something.
+ - There’s a lot of actors I think that appear so much more together as the characters they portray as opposed to the actual people, so I know I’ve said this before: Hollywood’s not a place where you’re rewarded for growing up.
+ - I think everybody involved in a movie thinks about the box office. It’s the ‘biz’ part of showbiz.
+ - I was a really nervous kid. I was extremely sensitive. Incredibly perceptive.
+ - Four months after we finished shooting, I’d been in New Orleans shooting another movie and my agent and I were having a bite to eat – actually in London – and he’s sitting there and goes, ‘Wow, I just can’t believe how ripped you are.’
+ - I don’t think I’m prepared to give away my technique to Great Britain. Are you crazy? All I can say is there was a ninja and a fire truck involved, and a great deal of coersion.
+ - Character acting is a much braver pursuit than a guy who runs around and intermittently clenches his jaw muscles.
+ - When I exhale, I just turn right into Louie Anderson.
+ - Making a mix CD – albeit slightly old school – is generally a pretty cool gift and something I like to receive, or giving someone a book that moved you. Writing an inscription inside makes it even better.
+ - He has such a clear vision of exactly what he wanted out of each character, out of each set, out of each wardrobe change, out of each emotional beat, and action.
+ - The stunts on the ground I can do, but I’ve never been good with heights.
+ - I love doing six versions of any joke, so if they’ll give me six takes, I’d love to do it.
+ - Even if my father wasn’t speaking to me, he would never, ever miss a baseball game.
+ - You know, there’s nobody where I’ve said, ‘Man, I really want that guy’s career.’ I mean, each of us has to make our own go of it.
+ - It’s tough. It’s very tricky to throw a morally flexible character onto the screen and have an audience empathize. It’s always an exercise in restraint.
+ - I don’t think you can help but personalize a role. You almost play to none of the preconceived notions of it. It’s more or less a personal experience and journey.
+ - I grew up in Vancouver, British Columbia.
+ - I think theres escapist moviemaking, and we want to be captivated and taken away. If its done right, you can craft an incredible film. There have been superhero films that I think are brilliant pieces of art.
+ - I remember that coming to America was scary for me because everything here is just bigger, better, shinier, you know?
+
+117 quotes

@@ -1,0 +1,140 @@
+ - Hypocrisy is the audacity to preach integrity from a den of corruption.
+ - The only person standing in your way is staring back at you in the mirror.
+ - Self-mastery is the challenge of transforming yourself from own worst enemy into your greatest ally.
+ - If we make every day better than the one before, today will be the best day yet, and the greatest days ever will await us in every tomorrow.
+ - Nothing is impossible until you quit or die trying.
+ - Cooperation is the redeeming ability of man to be better than himself.
+ - It is difficult to prove yourself reliable when people are required to wait for you.
+ - Fairness is man’s ability to rise above his prejudices.
+ - Never blame others for tracking in mud, until you have checked your own feet.
+ - Every happy home has a foundation of love and a framework of support.
+ - For every sacrifice, there is an expectation of reward.
+ - There is no greater blessing than a family hand that lifts you from a fall; but there is not lower curse than a family hand that strikes you when you’re down.
+ - Scold your children, and they will know what is wrong; but correct them with love, and they will know what is right.
+ - Maturity is developed by respecting others and accepting responsibility for violating that respect.
+ - In every difficult situation there is a door to opportunity for which optimism is the only key.
+ - In time, lies bring turmoil, where honesty brings peace.
+ - From a family tree that has healthy roots, there emerge hearty leaves and most beautiful fruits.
+ - Meet every level of frustration with a greater level of character.
+ - Family is a collective expression of individual perspective-a living work of art.
+ - When progress is in short supply bring a surplus of determination.
+ - Lies are like garbage that you can’t throw away. They clutter your life, foul your air, and make living unbearable.
+ - If you want your voice to be heard, speak from your heart.
+ - Resilience is the ability to attack while running away.
+ - Commitment is taking the first step, even if it means falling the rest of the way down.
+ - If you are willing to stir a pot, you better be willing to eat what comes out of it.
+ - Curiosity is a quest for wisdom on untamed grounds.
+ - When the quest of a dream has a detour or dip, look beyond your dismay and go finish the trip.
+ - The saddest things we fail at are fun things we never get to do, so in your busy day be sure to plan fun things too.
+ - The only pleasure of endurance is its past tense.
+ - I will never make my family perfect, but I will make it better everyday.
+ - Criticism is a painful pill to swallow, but it always makes you better.
+ - When your woman gives you the silent treatment, say you’re sorry, or you’ll find out how truly sorry you are when her monologue resumes.
+ - Crying wolf may have been the boy’s undoing, but the true irony was that the wolves were always lurking nearby.
+ - Good men are bound by conscience and liberated by accountability.
+ - Success is found balanced between optimism and realism, where it is unhindered by the weight of pessimism.
+ - No degree of worldly darkness can extinguish the glow of a soul’s inner light.
+ - If you share in a heart-felt sorrow, you can lighten the load of a friend. Sometimes facing the burden together can mend two broken hearts in the end.
+ - Ignorance speaks loudly, so as to be heard; but its volume proves reason to doubt every word.
+ - Within the mind there are no lies-no possibility of deceiving oneself; and yet, somehow we all manage to bypass the safety of truth in pursuit of dangerous desires.
+ - A father who denies a child of his attention is no better than a fully-equipped medic who watches idly as a soldier bleeds to death.
+ - Don’t blame me. The devil made me do it, and the Lord said you have to forgive.
+ - Every diamond has the ability to shine when there is someone to recognize its good facets and inhibit its flaws.
+ - A thankful heart is never half-full or half-empty, but always overflowing with love.
+ - In mere moments of togetherness, families forge their most indelibe memories.
+ - The most important thing you will ever give your children is a little of your time.
+ - A family portrait is only complete with love to fill it’s frame.
+ - A family ship will never sink until it is abandoned by its crew.
+ - Look for goodness in others, for beauty in the world, and for possibilities in yourself.
+ - Trust is not established in the absence of betrayal, but in those whose betrayal is least.
+ - If there can be no love without hate, then I love to hate hate.
+ - Add a task to a busy person’s plate, and it will get done in short order. Add a task to the plate of someone with nothing to do, and it will never get done.
+ - Temperance is the wisdom to know that not every constructive job requires a hammer.
+ - Cherish every season of life; for without coldness, there is no comfort in warmth, and without darker days, there is no joy in light.
+ - Those who judge children in their innocence, prove themselves the lesser of character and the greater of ignorance.
+ - There is no future in waiting for tomorrow.
+ - Ignorance fears diversity as an invading enemy, while wisdom welcomes diversity in an alliance of friendship.
+ - If something is worth doing right, it is worth doing right now.
+ - One can rarely achieve greatness on the path of least resistance.
+ - Dignity is the reward of obeying your heart.
+ - Every optimistic path will take you farther, faster, and to greater altitude than any road of pessimism.
+ - Believe in who you are, and trust in what you know is true. Your choices are reflections of the goodness within you.
+ - I am proactive in every duty, except that which requires action.
+ - Perceptions of impossibility are commonly disspelled by unmitigated courage and perseverance.
+ - Dedication is loyalty to a cause, even when hope has long expired for a successful outcome. It is an unstoppable determination to win regardless of the odds.
+ - While parents should always provide shelter from a storm, they should sometimes allow children to play in the rain.
+ - Jealousy is the fire of envy that seeks to destroy another’s beauty, rather than to create its own.
+ - For every achievement, there is a critic to devalue its worth.
+ - By persistent hard work you will rise to success, but ultimately your accomplishments will be measured by how you treated your loved ones on the way up.
+ - Discipline is the long and arduous process of convincing the mind to abide by one’s conscience.
+ - One can never win an argument with ignorance.
+ - By life’s very nature we are compelled to find and maintain balance, or be subject to the symptoms of the lack thereof.
+ - Curiosity fed the dog.
+ - To hate is to deprive oneself of energy better spent on worthwhile endeavors.
+ - More is required than a common last name to truly be called a family.
+ - Worthy goals are consistently achieved by enduring forces of adversity and opposition until they subside.
+ - There is nothing more dangerous than a lazy parent.
+ - If you can prevent one fight among your children, let it be the fight for your attention.
+ - Loving families value effort as much as success.
+ - This world will slam doors in your face at every opportunity. Be willing to employ a foot when necessary.
+ - When crushed to your knees, it is best to dig in your heels.
+ - Rejoice in liberating moments of victory when conflicts, trials, and adversity fall momentarily under your command.
+ - Many people have told me that I should quit, but I have not yet finished proving them wrong.
+ - The world’s greatest changes are made at home.
+ - Calculated is the truth of adulthood, whereas honest is the truth of a child.
+ - Accomplishments of children shine most brightly in the light of a parent’s sincere praise.
+ - Commitment achieves today what yesterday was impossible.
+ - Cleaniness is the cornerstone of discipline and the trademark of success.
+ - The deepest bonds of unity are forged through the trial of competing ideals that have compatible values.
+ - The only true failure is failure to try.
+ - No matter how small, a favor deserves thanks.
+ - A perception of impossibility should never go unchallenged.
+ - Being assertive in the home does not produce any smiling faces, but it does bring out a few tongues.
+ - Optimism is not the ability to live on the highest branch. It is the faith to learn to fly.
+ - If a lion is not accepted in its own den, it will find no refuge in the rest of the jungle.
+ - When you become who you wish to be, there is no need for envy.
+ - The only way to have room enough in our hearts to truly love others is to purge all hatred, and replace it with love.
+ - Arrogance cometh before reality.
+ - Children have an uncanny memory for what parents say, but don’t do.
+ - Exceptional people learn that doing their best is all they can do.
+ - Wisdom considers not only the cost of a choice, but also its value.
+ - Persistent distrust is the flame of deceit. Be as good as your word or be singed by the heat.
+ - To gain the acceptance of your peers is an admirable task, but to truly accept yourself requires a much higher standard.
+ - Though the boot may fit the foot, one can rarely stand in the tread of his own reputation.
+ - In diversity we find our strongest bonds and most violent divides.
+ - When the hater’s fire singes the hated, the hater has already been consumed.
+ - Mankind grows taller, older, and ever more wise; but seldom truly up.
+ - Hate is a hole that exists in your heart; and the more that you hate, the more you fall apart.
+ - Commitment hangs on when all else has fallen.
+ - You are free to choose, even if you choose not to.
+ - Determination is frequently found in failure, but it is never found in defeat.
+ - Train children to bear responsibility as you would train them to build muscle. Add what they can handle, then prepare them for more.
+ - Never blame what you are on what someone else is.
+ - A parent’s best intentions are no substitute for attention.
+ - Sometimes the greatest victories we can make for mankind are the victories we make over ourselves.
+ - The value of hatred and ignorance is found in the fact that without them we could never truly appreciate wisdom and love.
+ - No amount of hatred can prevent an enemy from being right sometimes.
+ - The most dire of all of life’s grueling deceptions wedge themselves in in our minds between truth and perceptions.
+ - The most staunchly determined are but quitters of the right things.
+ - Mankind’s greatest achievements are found on thank you notes, not resumes.
+ - Few moments in life are more gratifying than those when the arrogant are exposed as the ignorant.
+ - The pleasure of revenge is a fleeting emotion that is soon replaced by the affliction of conscience.
+ - Until you can’t do, you can always do more.
+ - Pessimists beat their heads against walls, while optimists open doors.
+ - Apology is mankind’s nearest course to perfection.
+ - On a flight of emotion there’s wonder and bliss, but beware of a landing that may go amiss.
+ - Assertiveness is most effective when least applied.
+ - The devil did not make me do it. I managed it all by myself.
+ - Reputation is generally proof of how little one knows about a person.
+ - If as a family we must be selective listeners, then let us pay more attention to the words of the heart and less to the words of anger.
+ - Children are best corrected to the point of their understanding, not to the extent of a parent’s frustration.
+ - The only valid voice of one’s reputation is that spoken by one’s conscience.
+ - How is it that society professes to embrace the value of honesty when so few are found of it?
+ - Show as much interest in what your children tell you as they have in telling you.
+ - Never be too absorbed by your own ambitions to encourage those of your family.
+ - If you make a habit of doing nothing, you have already earned your reward.
+ - Mankind has the genius to bring all the world together and the ignorance to fight upon arrival.
+ - A cheerful demeanor makes brighter the day; as the sun, chasing darkness and sorrow away.
+ - It has always been, and will always be true; those who do the most good suffer more than most do.
+
+138 quotes

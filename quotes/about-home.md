@@ -1,0 +1,42 @@
+ - I was born a long way from where I belong and I am on my way home. ~~Bob Dylan
+ - Home is now behind you, the world is ahead! ~~J. R. R. Tolkien
+ - Go back and take care of yourself. Your body needs you, your feelings need you, your perceptions need you. Your suffering needs you to acknowledge it. Go home and be there for all these things. ~~Nhat Hanh
+ - Home is not where you were born; home is where all your attempts to escape cease. ~~Naguib Mahfouz
+ - The fact that our heart yearns for something Earth can’t supply is proof that Heaven must be our home. ~~C. S. Lewis
+ - Some 80% of your life is spent working. You want to have fun at home; why shouldn’t you have fun at work? ~~Richard Branson
+ - Go big, or go home. Otherwise, you’re wasting your youth. ~~Jack Ma
+ - When setting out on a journey do not seek advice from someone who never left home. ~~Rumi
+ - I’ve learned that home isn’t a place, it’s a feeling. ~~Cecelia Ahern
+ - Country roads, take me home, to the place I belong. ~~John Denver
+ - Preserve and cherish the pale blue dot, the only home we’ve ever known. ~~Carl Sagan
+ - If any man can convince me and bring home to me that which I do not think or act aright, gladly will I change; for I search after truth, by which man never yet was harmed. But he is harmed who abideth on still in his deception and ignorance. ~~Marcus Aurelius
+ - I have arrived. I am home. My destination is in each step. ~~Nhat Hanh
+ - With languages, you are at home anywhere. ~~Edmund de Waal
+ - Microsoft was founded with a vision of a computer on every desk, and in every home. We’ve never wavered from that vision. ~~Bill Gates
+ - Charity begins at home, but should not end there. ~~Thomas Fuller
+ - If Light Is In Your Heart You Will Find Your Way Home. ~~Rumi
+ - We get lost in doing, thinking, remembering, anticipating – lost in a maze of complexity and a world of problems. Nature can show us the way home, the way out of the prison of our own minds. ~~Eckhart Tolle
+ - Mindfulness helps you go home to the present. And every time you go there and recognize a condition of happiness that you have, happiness comes. ~~Nhat Hanh
+ - How does it feel, how does it feel to be without a home, like a complete unknown, like a rolling stone. ~~Bob Dylan
+ - Good parents give their children Roots and Wings. Roots to know where home is, wings to fly away and exercise what’s been taught them. ~~Jonas Salk
+ - Where, after all, do universal human rights begin? In small places, close to home. ~~Eleanor Roosevelt
+ - I am in truth the Steppenwolf that I often call myself; that beast astray that finds neither home nor joy nor nourishment in a world that is strange and incomprehensible to him. ~~Hermann Hesse
+ - Bringing about Armageddon can be dangerous. Do not attempt it in your own home. ~~Terry Pratchett
+ - The great advantage of a hotel is that it is a refuge from home life. ~~George Bernard Shaw
+ - God is at home, it’s we who have gone out for a walk. ~~Meister Eckhart
+ - I’m not afraid of death. I’m going home. ~~Patrick Swayze
+ - Your patriarchal blessing is your passport to peace in this life. It is a Liahona of light to guide you unerringly to your heavenly home. ~~Thomas S. Monson
+ - I want to go home and just go for a long walk. And where I want to go, I have no idea. ~~Billie Joe Armstrong
+ - Owning a home is a keystone of wealth – both financial affluence and emotional security. ~~Suze Orman
+ - It is a most miserable thing to feel ashamed of home. ~~Charles Dickens
+ - The simplest questions are the most profound. Where were you born? Where is your home? Where are you going? What are you doing? Think about these once in a while and watch your answers change. ~~Richard Bach
+ - Forget the years, forget distinctions. Leap into the boundless and make it your home! ~~Zhuangzi
+ - What, for some, is sin, others do to the glory of God. And the good Dr. Pentecost’s remarks notwithstanding, I intend to go home tonight and smoke a cigar to the glory of God. It is a kind of incense drifting to Heaven. ~~Charles H. Spurgeon
+ - The home of Religion is the heart. ~~Abdu'l-Bahá
+ - Oh, no, I think I’d die on my own. I’d be so lonely. Even at home, I’m lonely. I sit in my room and sometimes cry. It is so hard to make friends, and there are some things you can’t talk to your parents or family about. I sometimes walk around the neighborhood at night, just hoping to find someone to talk to. But I just end up coming home. ~~Michael Jackson
+ - We’re all just walking each other home. ~~Ram Dass
+ - My home is in Heaven. I’m just traveling through this world. ~~Billy Graham
+ - Happy, happy Christmas, that can win us back to the delusions of our childhood days, recall to the old man the pleasures of his youth, and transport the traveler back to his own fireside and quiet home! ~~Charles Dickens
+ - No one realizes how beautiful it is to travel until he comes home and rests his head on his old, familiar pillow. ~~Lin Yutang
+
+40 quotes

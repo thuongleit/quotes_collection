@@ -1,0 +1,502 @@
+ - Be soft. Do not let the world make you hard. Do not let pain make you hate. Do not let the bitterness steal your sweetness. Take pride that even though the rest of the world may disagree, you still believe it to be a beautiful place.
+ - We are what we pretend to be, so we must be careful about what we pretend to be.
+ - I want to stand as close to the edge as I can without going over. Out on the edge you see all kinds of things you can’t see from the center.
+ - And I urge you to please notice when you are happy, and exclaim or murmur or think at some point, ‘If this isn’t nice, I don’t know what is.’
+ - The only proof he needed for the existence of God was music.
+ - Science is magic that works.
+ - We have to continually be jumping off cliffs and developing our wings on the way down.
+ - God damn it, you’ve got to be kind.
+ - I tell you, we are here on Earth to fart around, and don’t let anybody tell you different.
+ - To practice any art, no matter how well or badly, is a way to make your soul grow. So do it.
+ - And a step backward, after making a wrong turn, is a step in the right direction.
+ - Everything is nothing, with a twist.
+ - If you want to break the rules of grammar, first learn the rules of grammar.
+ - If you can do no good, at least do no harm.
+ - Those who believe in telekinetics, raise my hand.
+ - Tiger got to hunt, bird got to fly; Man got to sit and wonder ‘why, why, why?’ Tiger got to sleep, bird got to land; Man got to tell himself he understand.
+ - Here we are, trapped in the amber of the moment. There is no why.
+ - Beware of the man who works hard to learn something, learns it, and finds himself no wiser than before. He is full of murderous resentment of people who are ignorant without having come by their ignorance the hard way.
+ - Sing in the shower. Dance to the radio. Tell stories. Write a poem to a friend, even a lousy poem. Do it as well as you possibly can. You will get an enormous reward. You will have created something.
+ - Be fruitful, and multiply.
+ - The America I love still exists at the front desks of our public libraries.
+ - Unannounced changes in life’s itinerary are like dancing lessons from God.
+ - An eye for an eye and a tooth for a tooth.
+ - Being a Humanist means trying to behave decently without expectation of rewards or punishment after you are dead.
+ - To be is to do – Socrates To do is to be – Sartre Do Be Do Be Do – Sinatra.
+ - Music is, to me, proof of the existence of God.
+ - All moments, past, present and future, always have existed, always will exist.
+ - Eat, drink, and be merry, for tomorrow we die.
+ - Another flaw in the human character is that everybody wants to build and nobody wants to do maintenance.
+ - You were sick, but now you’re well again, and there’s work to do.
+ - Enjoy your body, use it every way you can. Don’t be afraid of it, or what other people think of it, it’s the greatest instrument you’ll ever own.
+ - A sane person to an insane society must appear insane.
+ - True terror is to wake up one morning and discover that your high school class is running the country.
+ - No moral value is greater than humanity.
+ - All of the true things I am about to tell you are shameless lies.
+ - When I write, I feel like an armless, legless man with a crayon in his mouth.
+ - And I asked myself about the present: how wide it was, how deep it was, how much was mine to keep.
+ - If this isn’t nice, I don’t know what is.
+ - Teaching, may I say, is the noblest profession of all in a democracy.
+ - I was a victim of a series of accidents, as are we all.
+ - Everything that ever has been always will be, and everything that ever will be always has been.
+ - Laughing is good exercise. It’s like jogging on the inside.
+ - Be patient. Your future will come to you and lie down at your feet like a dog who knows and loves you no matter what you are.
+ - We could have saved the Earth but we were too damned cheap.
+ - The secret to success in any human endeavor is total concentration.
+ - If you can’t write clearly, you probably don’t think nearly as well as you think you do.
+ - Love is where you find it.
+ - So the America I loved still exists, if not in the White House or the Supreme Court or the Senate or the House of Representatives or the media. The America I love still exists at the front desks of our public libraries.
+ - Don’t be reckless with other peoples hearts. And don’t put up with people that are reckless with yours.
+ - A purpose of human life, no matter who is controlling it, is to love whoever is around to be loved.
+ - New knowledge is the most valuable commodity on earth. The more truth we have to work with, the richer we become.
+ - Educate yourself, welcome life’s messiness, read Chekhov, avoid becoming an architect at all costs.
+ - When the last living thing Has died on account of us, How poetical it would be If Earth could say, In a voice floating up Perhaps From the floor Of the Grand Canyon, “It is done.” People did not like it here.
+ - No good at life, but very funny sometimes with the commentary.
+ - I still catch myself feeling sad about things that don’t matter anymore.
+ - Future generations will look back on TV as the lead in the water pipes that slowly drove the Romans mad.
+ - Maturity, the way I understand it, is knowing what your limitations are.
+ - Laughter and tears are both responses to frustration and exhaustion. I myself prefer to laugh, since there is less cleaning up to do afterward.
+ - Evolution is a mistake. Humans are a mistake. We’ve destroyed our planet.
+ - What war has always been is a puberty ceremony.
+ - We are healthy only to the extent that our ideas are humane.
+ - When everything was beautiful and nothing hurt...
+ - Still and all, why bother? Here’s my answer. Many people need desperately to receive this message: I feel and think much as you do, care about many of the things you care about, although most people do not care about them. You are not alone.
+ - Make war not on terrorism but on ignorance, on sickness and on environmental degradation.
+ - I wish we had all been born birds instead.
+ - The practice of art isn’t to make a living. It’s to make your soul grow.
+ - There is no peace, I’m sorry to say. We find it. We lose it. We find it again. We lose it again.
+ - I was some of the mud that got to sit up and look around. Lucky me, lucky mud.
+ - We are here for no purpose, unless we can invent one.
+ - History is merely a list of surprises. It can only prepare us to be surprised yet again.
+ - All this happened, more or less.
+ - If you can do a half-assed job of anything, you’re a one-eyed man in a kingdom of the blind.
+ - I am eternally grateful for my knack of finding in great books, some of them very funny books, reason enough to feel honored to be alive, no matter what else might be going on.
+ - The triumph of anything is a matter of organization.
+ - Do I resent rich people? No. The best or worst I can do is notice them. I agree with the great Socialist writer George Orwell, who felt that rich people were poor people with money.
+ - About astrology and palmistry: they are good because they make people vivid and full of possibilities. They are communism at its best. Everybody has a birthday and almost everybody has a palm.
+ - I am a Tralfamadorian, seeing all time as you might see a stretch of the Rocky Mountains. All time is all time. It does not change. It does not lend itself to warnings or explanations. It simply is.
+ - Time is liquid. One moment is no more important than any other and all moments quickly run away.
+ - The two prime movers in the Universe are Time and Luck.
+ - The death of a library, any library, suggests that the community has lost its soul.
+ - Everything about life is a joke. Don’t you know that?
+ - What should young people do with their lives today? Many things, obviously. But the most daring thing is to create stable communities in which the terrible disease of loneliness can be cured.
+ - Somebody gets into trouble, then gets out of it again. People love that story. They never get tired of it.
+ - Only nut cases want to be president. This was true even in high school. Only clearly disturbed people ran for class president.
+ - Nobody will stop you from creating. Do it tonight. Do it tomorrow. That is the way to make your soul grow...
+ - Alcohol and marijuana, if used in moderation, plus loud, usually low-class music, make stress and boredom infinitely more bearable.
+ - Think of what a paradise this world would be if men were kind and wise.
+ - That is my principal objection to life, I think: It’s too easy, when alive, to make perfectly horrible mistakes.
+ - Life happens too fast for you ever to think about it. If you could just persuade people of this, but they insist on amassing information.
+ - Plato says that the unexamined life is not worth living. But what if the examined life turns out to be a clunker as well?
+ - Most kids can’t afford to go to Harvard to be misinformed.
+ - This is a nation tragedy, of course – that we’ve changed from a society to an audience.
+ - There are plenty of good reasons for fighting, I said, but no good reason ever to hate without reservation, to imagine that God Almighty Himself hates with you, too.
+ - You should be careful about who you pretend to be, because who you pretend to be – is actually who you are!
+ - A man without a home can’t be lost.
+ - What war has always been is a puberty ceremony. It’s a very rough one, but you went away a boy and came back a man, maybe with an eye missing or whatever but godammit you were a man and people had to call you a man thereafter.
+ - If you really want to hurt your parents and you don’t have nerve enough to be homosexual, the least you can do is go into the arts.
+ - Among the things Billy Pilgrim could not change were the past, the present, and the future.
+ - Do you think Arabs are dumb? They gave us our numbers. Try doing long division with Roman numerals.
+ - A nice thing about war-not that anything about war is nice, I guess-is that while it’s going on and you’re in it, you never worry about doing the right thing.
+ - You become who you pretend to be.
+ - I love you, because the love you gave me was the only love I’ve ever had, the only love I ever will have.
+ - The champagne was dead. So it goes.
+ - I believe that reading and writing are the most nourishing forms of meditation anyone has so far found. By reading the writings of the most interesting minds in history, we meditate with our own minds and theirs as well. This to me is a miracle.
+ - Write to please just one person. If you open a window and make love to the world, so to speak, your story will get pneumonia.
+ - Smoking is the only honorable form of suicide.
+ - If I should ever die, God forbid, I hope you will say, ‘Kurt is up in heaven now.’ That’s my favorite joke.
+ - Humor is an almost physiological response to fear.
+ - Be patient, Ophelia. Love, Hamlet.
+ - I couldn’t help wondering if that was what God put me on Earth for – to find out how much a man could take without breaking.
+ - I can think of no more stirring symbol of man’s humanity to man than a fire engine.
+ - In this world, you get what you pay for.
+ - There is no order in the world around us, we must adapt ourselves to the requirements of chaos instead.
+ - But she did look back, and I love her for that, because it was so human. So she was turned to a pillar of salt. So it goes. People aren’t supposed to look back. I’m certainly not going to do it anymore.
+ - We’re terrible animals. I think that the Earth’s immune system is trying to get rid of us, as well it should.
+ - The economy is a thoughtless weather system.
+ - Goodbye blue Monday.
+ - What a bummer it is to be a human being.
+ - Dear future generations: Please accept our apologies. We were rolling drunk on petroleum.
+ - Farewell, hello, farewell, hello.
+ - To whom it may concern: It is springtime. It is late afternoon.
+ - Even as I speak, the very last polar bear may be dying of hunger on account of climate change, on account of us. And I sure miss the polar bears. Their babies are so warm and cuddly and trusting, just like ours.
+ - How embarrassing it is to be human.
+ - There is love enough in this world for everybody, if people will just look.
+ - We’d been apart so long – I’d been dead so long,” she said in English. “I thought surely you’d built a new life, with no room in it for me. I’d hoped that.” “My life is nothing but room for you.” I said. “It could never be filled by anyone but you.
+ - You can’t teach people to write well. Writing well is something God lets you do or declines to let you do.
+ - The two real political parties in America are the Winners and the Losers. The people don’t acknowledge this. They claim membership in two imaginary parties, the Republicans and the Democrats, instead.
+ - She broke my heart. I didn’t like that much. But that was the price. In this world, you get what you pay for.
+ - Because we grew up surrounded by big dramatic story arcs in books and movies, we think our lives are supposed to be filled with huge ups and downs. So people pretend there is drama where there is none.
+ - And Lot’s wife, of course, was told not to look back where all those people and their homes had been. But she did look back, and I love her for that, because it was so human. So she was turned into a pillar of salt. So it goes.
+ - My own feeling is that if adultery is wickedness then so is food. Both make me feel so much better afterward.
+ - Live by the harmless untruths that make you brave and kind and healthy and happy.
+ - How nice – to feel nothing, and still get full credit for being alive.
+ - The function of the artist is to make people like life better than they have before.
+ - Music is, to me, proof of the existence of God. It is so extraordinarily full of magic, and in tough times of my life I can listen to music and it makes such a difference.
+ - He was a graduate of West Point, which is military academy that turns young men into homicidal maniacs for use in war.
+ - If Jesus was alive today, we would kill him with lethal injection. I call that progress. We would have to kill him for the same reason he was killed the first time. His ideas are just too liberal.
+ - The universe is a big place, perhaps the biggest.
+ - How complicated and unpredictable the machinery of life really is.
+ - The moral of the story is we’re here on Earth to fart around. And, of course, the computers will do us out of that. And, what the computer people don’t realize, or they don’t care, is we’re dancing animals. You know, we love to move around.
+ - It is just an illusion here on Earth that one moment follows another one, like beads on a string, and that once a moment is gone, it is gone forever.
+ - The complicated futility of ignorance.
+ - Those who live by electronics die by electronics. Sic semper tyrannis.
+ - History! Read it and weep!
+ - There is no reason why good cannot triumph as often as evil. The triumph of anything is a matter of organization. If there are such things as angels, I hope that they are organized along the lines of the Mafia.
+ - I found me a place where I can do good without doing any harm, and I can see I’m doing good, and them I’m doing good for know I’m doing it, and they love me, Unk, as best they can. I found me a home.
+ - Every passing hour brings the Solar System forty three thousand miles closer to Globular Cluster M13 in Hercules – and still there are some misfits who insist that there is no such thing as progress.
+ - Perhaps, when we remember wars, we should take off our clothes and paint ourselves blue and go on all fours all day long and grunt like pigs. That would surely be more appropriate than noble oratory and shows of flags and well-oiled guns.
+ - Any reviewer who expresses rage and loathing for a novel is preposterous. He or she is like a person who has put on full armor and attacked a hot fudge sundae.
+ - No art is possible without a dance with death.
+ - There were lots of things to stop and see-and then it was time to go, always time to go.
+ - If somebody says “I love you” to me, I feel as though I had a pistol pointed at my head. What can anybody reply under such conditions but that which the pistol holder requires? “I love you, too.”
+ - People need good lies. There are too many bad ones.
+ - If you would be unloved and forgotten, be reasonable.
+ - My god-life! who can understand eve one little minute of it? ‘don’t try’ he said ’just pretend you understand.
+ - Socialism is, in fact, a form of Christianity, people wishing to imitate Christ.
+ - Here is a lesson in creative writing. First rule: Do not use semicolons. They are transvestite hermaphrodites representing absolutely nothing. All they do is show you’ve been to college.
+ - Cigarettes are a classy way to commit suiside.
+ - The planet was being destroyed by manufacturing processes, and what was being manufactured was lousy, by and large.
+ - Be a sadist. No matter how sweet and innocent your leading characters, make awful things happen to them in order that the reader may see what they are made of.
+ - Hitler at the end thought that he himself was one more casualty in the war.
+ - Do you realize that all great literature is all about what a bummer it is to be a human being? Isn’t it such a relief to have somebody say that?
+ - Our government’s got a war on drugs. That’s certainly better then no drugs at all.
+ - Use the time of a total stranger in such a way that he or she will not feel the time was wasted.
+ - You can’t fight progress. The best you can do is ignore it, until it finally takes your livelihood and self-respect away.
+ - All this happened, more or less. The war parts, anyway, are pretty much true.
+ - A book is an arrangement of twenty-six phonetic symbols, ten numerals, and about eight punctuation marks, and people can cast their eyes over these and envision the eruption of Mount Vesuvius or the Battle of Waterloo.
+ - Talent is extremely common. What is rare is the willingness to endure the life of the writer.
+ - Reading a novel, War and Peace for example, is no Catnap. Because a novel is so long, reading one is like being married forever to somebody nobody knows or cares about.
+ - What he meant, of course, was that there would always be wars, that they were as easy to stop as glaciers. I believe that, too. And even if wars didn’t keep coming like glaciers, there would still be plain old death.
+ - Say what you will about the sweet miracle of unquestioning faith, I consider a capacity for it terrifying and absolutely vile.
+ - Please – a little less love, and a little more common decency.
+ - It’s an astonishing skill that people can read, and read well. Very few people can read well. For instance, I have to be very careful with irony, saying something while meaning the exact opposite.
+ - Take care of the people, and God Almighty will take care of Himself.
+ - Some persons seem to like you, and others seem to hate you, and you must wonder why. They are simply liking machines and hating machines.
+ - Sometimes I think it is a great mistake to have matter that can think and feel. It complains so.
+ - Jokes have to be quite naked to be understood. They have to be quite simple.
+ - If you make people laugh or cry about little black marks on sheets of white paper, what is that but a practical joke? All the great story lines are great practical jokes that people fall for over and over again.
+ - I beg you to believe the most ridiculous superstition of all: that humanity is at the center of the universe, the fulfiller or frustrateor of the grandest dreams of God Almighty.
+ - Make love when you can. It’s good for you.
+ - I was a student in the Department of Anthropology. At that time, they were teaching that there was absolutely no difference between anybody. They may be teaching that still.
+ - It pains me even now, even a million years later, to write about such human misbehaviour. A million years later, I feel like apologizing for the human race. That’s all I can say.
+ - During the Vietnam War, Abbie Hoffman announced that the new high was banana peels taken rectally. So then FBI scientists stuffed banana peels up their asses to find out if this was true or not.
+ - What good is a planet called Earth, after all, if you own no land?
+ - Music makes practically everybody fonder of life than he or she would be without it.
+ - He is in a constant state of stage fright, he says, because he never knows what part of his life he is going to have to act in next.
+ - You are pooped and demoralised,” read Dwayne. “Why wouldn’t you be? Of course it is exhausting, having to reason all the time in a universe which wasn’t meant to be reasonable.
+ - I consider writing an act of good citizenship.
+ - Ignore the awful times, and concentrate on the good ones.
+ - The hare of history once more overtakes the tortoise of art.
+ - What I would really like to have been, given a perfect world, is a jazz pianist. I mean jazz. I don’t mean rock and roll. I mean the never-the-same-twice music the American black people gave the world.
+ - I used my daughter’s crayons for each main character. One end of the wallpaper was the beginning of the story, and the other end was the end, and then there was all that middle part, which was the middle.
+ - Maturity is a bitter disappointment for which no remedy exists, unless laughter could be said to remedy anything.
+ - Is there nothing I have done which will outlive me, other than the opprobrium of my first wife and sons and grandchildren? Do I care? Doesn’t everybody? Poor me. Poor practically everybody, with so little durable good to leave behind!
+ - One thing I hate about school committees today is that they cut arts programs out of the curriculum because they say the arts aren’t a way to make a living.
+ - I wanted all things to seem to make some sense, So we could all be happy, yes, instead of tense. And I made up lies, so they all fit nice, and I made this sad world a paradise.
+ - Truth can be really powerful stuff if you’re not expecting it.
+ - The feeling about a soldier is, when all is said and done, he wasn’t really going to do very much with his life anyway. The example usually is: he wasn’t going to compose Beethoven’s Fifth.
+ - Never trust a survivor until you know how they survived.
+ - The canary bird in the coal mine theory of the arts: artists should be treasured as alarm systems.
+ - A lot of critics think I’m stupid because my sentences are so simple and my method is so direct: they think these are defects. No. The point is to write as much as you know as quickly as possible.
+ - My soul knows my meat is doing bad things, and is embarrassed. But my meat just keeps right on doing bad, dumb things.
+ - Don’t put one foot in your job and the other in your dream, Ed. Go ahead and quit, or resign yourself to this life. It’s just too much of a temptation for fate to split you right up the middle before you’ve made up your mind which way to go.
+ - In the water I am beautiful.
+ - The youngest child in any family is always a jokemaker, because a joke is the only way he can enter into an adult conversation.
+ - Roses are red, And ready for plucking, You’re sixteen, And ready for high school.
+ - Montana was naked, and so was Billy, of course. He had a tremendous wang, incidentally. You never know who’ll get one.
+ - I wish that people who are conventionally supposed to love each other would say to each other, when they fight, “Please – a little less love, and a little more common decency.”
+ - All people are insane. They will do anything at any time, and God help anybody who looks for reasons.
+ - Evolution is so creative. That’s how we got giraffes.
+ - It is time for me to be dead for a little while – and then live again.
+ - There is no beginning, no middle, no end, no suspense, no moral, no causes, no effects. What we love in our books are the depths of many marvelous moments seen all at one time.
+ - I urge you to please notice when you are happy.
+ - We are what we imagine ourselves to be.
+ - Just because something feels better than anything else, that doesn’t mean it’s good for you.
+ - That’s one thing Earthlings might learn to do, if they tried hard enough: Ignore the awful times and concentrate on the good ones.
+ - I was clasified as a ‘Science Fiction’ writer simply because I wrote about Schenectady.
+ - The most important message of a crucifix, to me anyway, was how unspeakably cruel supposedly sane human beings can be when under orders from a superior authority.
+ - The more pain I train myself to stand, the more I learn. You are afraid of pain now, Unk, but you won’t learn anything if you don’t invite the pain. And the more you learn, the gladder you will be to stand the pain.
+ - Here’s what I think the truth is: We are all addicts of fossil fuels in a state of denial, about to face cold turkey.
+ - The only difference between Hitler and Bush is that Hitler was elected.
+ - Their imaginations were flywheels on the ramshackle machinery of the awful truth.
+ - The year was 2081, and everyone was finally equal.
+ - Find a subject you care about and which you in your heart feel others should care about. It is this genuine caring, and not your games with language, which will be the most compelling and seductive element in your style.
+ - A lack of seriousness has led to all sorts of wonderful insights.
+ - I have this disease late at night sometimes, involving alcohol and the telephone.
+ - Characters paralyzed by the meaninglessness of modern life still have to drink water from time to time.
+ - The biggest laughs are based on the biggest disappointments and the biggest fears.
+ - All persons, living and dead, are purely coincidental.
+ - Thinking doesn’t seem to help very much. The human brain is too high-powered to have many practical uses in this particular universe.
+ - Some jerk infected the Internet with an outright lie. It shows how easy it is to do and how credulous people are.
+ - The hopes and fears of all our years are here with us tonight.
+ - Charm was a scheme for making strangers like and trust a person immediately, no matter what the charmer had in mind.
+ - They do not love one another because they do not love themselves.
+ - Laughter or crying is what a human being does when there’s nothing else he can do.
+ - The truth is, we know so little about life, we don’t really know what the good news is and what the bad news is.
+ - So, in the interests of survival, they trained themselves to be agreeing machines instead of thinking machines. All their minds had to do was to discover what other people were thinking, and then they thought that, too.
+ - Thank God for novelists. Thank God there are people willing to write everything down. Otherwise, so much would be forgotten.
+ - The surface of Earth heaved and seethed in fecund restlessness. Earth was most fertile where the most death was.
+ - There is nothing intelligent to say about a massacre.
+ - I asked this heroic pet lover how it felt to have died for a schnauzer named Teddy. Salvador Biagiani was philosophical. He said it sure beat dying for absolutely nothing in the Viet Nam War.
+ - Wake up, you idiots! Whatever made you think that money was so valuable?
+ - Sometimes I wonder about the Creator of the Universe.
+ - Give the reader at least one character he or she can root for.
+ - There’s only one me, and I’m stuck with him.
+ - One might be led to suspect that there were all sorts of things going on in the Universe which he or she did not thoroughly understand.
+ - If a person survives an ordinary span of sixty years or more, there is every chance that his or her life as a shapely story has ended and all that remains to be experienced is epilogue. Life is not over, but the story is.
+ - Praise or damn as you please, but do so rather flatly, pragmatically, with cunning attention to annoying or gratifying details. Be yourself. Be unique. Be a good editor. The Universe needs more good editors, God knows.
+ - The chief weapon of sea pirates, however, was their capacity to astonish. Nobody else could believe, until it was too late, how heartless and greedy they were.
+ - Anything can make me stop and look and wonder, and sometimes learn.
+ - One good thing about TV is, if you die violently, God forbid, on camera, you will not have died in vain because you will be great entertainment.
+ - I went to New York to be born again. And when the train plunged into a tunnel under New York City, with its lining of pipes and wires, I was out of the womb and into the birth canal.
+ - The right of the people to peacefully assemble and petition their government for a redress of grievances is now worth a pitcher of warm spit. That’s because TV will not come and treat it respectfully. Television is really something.
+ - Do not let the bitterness steal your sweetness.
+ - Scientific truth was going to make us so happy and comfortable. What actually happened when I was twenty-one was that we dropped scientific truth on Hiroshima.
+ - What a fool I would have been to let self-respect interfere with my happiness!
+ - Since Alice had never received any religious instruction, and since she had led a blameless life, she never thought of her awful luck as being anything but accidents in a very busy place. Good for her.
+ - I still believe that peace and plenty and happiness can be worked out some way. I am a fool.
+ - If I am going to spend eternity visiting this moment and that, I’m grateful that so many of those moments are nice.
+ - I’d rather have written “Cheers” than anything I’ve written.
+ - She upset Billy simply by being his mother. She made him feel embarrassed and ungrateful and weak because she had gone to so much trouble to give him life, and to keep that life going, and Billy didn’t really like life at all.
+ - If people think nature is their friend, then they sure don’t need an enemy.
+ - The Earthlings behaved at all times as though there were a big eye in the sky – as though that big eye were ravenous for entertainment.
+ - I was hoping to build a country and add to its literature. That’s why I served in World War II, and that’s why I wrote books.
+ - Writers can treat their mental illnesses every day.
+ - Every sentence must do one of two things-reveal character or advance the action.
+ - When I used to teach creative writing, I would tell the students to make their characters want something right away.
+ - Belief is nearly the whole of the universe whether based on truth or not.
+ - Every character should want something, even if it is only a glass of water.
+ - If what Jesus said was good, what can it matter whether he was God or not?
+ - I know of very few people who are dreaming of a world for their grandchildren.
+ - Most writers are not quick-witted when they talk. Novelists, in particular, drag themselves around in society like gut-shot bears.
+ - Pay no attention to Caesar. Caesar doesn’t have the slightest idea what’s really going on.
+ - I will say, too, that lovemaking, if sincere, is one of the best ideas Satan put in the apple she gave to the serpent to give to Eve. The best idea in that apple, though, is making jazz.
+ - You have never seen greatness in a Presidency; I have. It was a rich kid who you would think had every reason to be a horse’s ass – Franklin Roosevelt. He was humane and wise and resourceful. He was called a traitor to his class.
+ - Science never cheered up anyone. The truth about the human situation is just too awful.
+ - Never index your own book.
+ - His mother understood my illness immediately, that it was my world rather than myself that was diseased.
+ - A sum of money is a leading character in this tale about people, just as a sum of honey might properly be a leading character in a tale about bees.
+ - I was taught that the human brain was the crowning glory of evolution so far, but I think it’s a very poor scheme for survival.
+ - Educating a beautiful woman is like pouring honey into a fine Swiss watch: everything stops.
+ - It’s perfectly ordinary to be a socialist. It’s perfectly normal to be in favor of fire departments.
+ - We are America’s Great Lakes people, her freshwater people, not an oceanic but a continental people. Whenever I swim in an ocean, I feel as though I am swimming in chicken soup.
+ - Someday, someday, this crazy world will have to end, And our God will take things back that He to us did lend. And if, on that sad day, you want to scold our God, Why just go ahead and scold Him. He’ll just smile and nod.
+ - All these years, I’ve been opening the window and making love to the world.
+ - Freud said he didn’t know what women wanted. I know what women want. They want a whole lot of people to talk to.
+ - Perhaps some people really are born unhappy. I surely hope not. Speaking for my sister and myself: We were born with the capacity and determination to be utterly happy all the time. Perhaps even in this we were freaks. Hi ho.
+ - The things other people have put into my head, at any rate, do not fit together nicely, are often useless and ugly, are out of proportion with one another, are out of proportion with life as it really is outside my head.
+ - If it weren’t for the message of mercy and pity in Jesus’ Sermon on the Mount, I wouldn’t want to be a human being. I would just as soon be a rattlesnake.
+ - Round and round we spin, with feet of lead and wings of tin.
+ - Pretend to be good always and even God will be fooled.
+ - What is my definition of jazz? “Safe sex of the highest order.”
+ - That’s the secret of artistic unity. Anybody can achieve it, if he or she will make something with only one person in mind.
+ - It often is a terrible insult to some families if one of the kids turns out to be an artist and that’s one way to really shake up the family if you haven’t got nerve enough to turn into a homosexual.
+ - I’ve been drawing all my life, just as a hobby, without really having shows or anything. It’s just an agreeable thing to do, and I recommend it to everybody.
+ - Son – they say there isn’t any royalty in this country, but do you want me to tell you how to be king of the United States of America? Just fall through the hole in a privy and come out smelling like a rose.
+ - As for myself: I had come to the conclusion that there was nothing sacred about myself or about any human being, that we were all machines, doomed to collide and collide and collide.
+ - I am better now. Word of honour: I am better now.
+ - The crowd, having been promised nothing, felt cheated, having received nothing.
+ - Some automatic device clicked in her big brain, and her knees felt weak, and there was a chilly feeling in her stomach. She was in love with this man. They don’t make memories like that anymore.
+ - You meet saints everywhere. They can be anywhere. They are people behaving decently in an indecent society.
+ - Plato, by the way, wanted to banish all poets from his proposed Utopia because they were liars. The truth was that Plato knew philosophers couldn’t compete successfully with poets.
+ - Earthlings are the great explainers, explaining why this event is structured as it is, telling how other events may be achieved or avoided.
+ - Your eloquence should be the servant of the ideas in your head. Your rule might be this: If a sentence, no matter how excellent, does not illuminate your subject in some new and useful way, scratch it out.
+ - I’ve been living alone for so long, everything about me’s private. I’m surprised anyone’s able to understand a word I say.
+ - What is flirtatiousness but an argument that life must go on and on and on?
+ - I saw the destruction of Dresden. I saw the city before and then came out of an air-raid shelter and saw it afterward, and certainly one response was laughter. God knows, that’s the soul seeking some relief.
+ - The bounties of space, of infinite outwardness, were three: empty heroics, low comedy, and pointless death.
+ - To the as-yet-unborn, to all innocent wisps of undifferentiated nothingness: Watch out for life.
+ - I love cell phones. I see people so happy and proud, walking around. Gesturing, you know. I’m like Karl Marx, I’m up for anything that makes people happy.
+ - There is no way a beautiful woman can live up to what she looks like for any appreciable length of time.
+ - People say there are no atheists in foxholes. A lot of people think this is a good argument against atheism. Personally, I think it’s a much better argument against foxholes.
+ - I am a very bad scientist. I will do anything to make a human being feel better, even if it’s unscientific. No scientist worthy of the name could say such a thing.
+ - Never take liquor into the bedroom. Don’t stick anything in your ears. Be anything but an architect. Live in a nice country rather than a powerful one. Power makes everybody crazy. Get somebody to teach you to play a musical instrument.
+ - Human beings will be happier – not when they cure cancer or get to Mars or eliminate racial prejudice or flush Lake Erie but when they find ways to inhabit primitive communities again. That’s my utopia.
+ - I apologize because of the terrible mess the planet is in. But it has always been a mess. There have never been any ‘Good Old Days,’ there have just been days. And as I say to my grandchildren, ‘Don’t look at me. I just got here myself.’
+ - What’s going to happen is, very soon, we’re going to run out of petroleum, and everything depends on petroleum. And there go the school buses. There go the fire engines. The food trucks will come to a halt. This is the end of the world.
+ - Any scientist who can’t explain to an eight-year-old what he is doing is a charlatan.
+ - Hate, in the long run, is about as nourishing as cyanide.
+ - Virtually every writer I know would rather be a musician.
+ - There are too many of us and we are all too far apart.
+ - In an unmoored life like mine, sleep and hunger and work arrange themselves to suit themselves, without consulting me.
+ - What do my science fiction stories have in common with pornography? Fantasies of an impossibly hospitable world, I’m told.
+ - There is a riddle about a man who is locked in a room with nothing but a bed and a calendar, and the question is: How does he survive? The answer is: He eats dates from the calendar and drinks from the springs of the bed.
+ - Perhaps I am the turtle, able to live simply anywhere, even underwater for short periods, with my home on my back.
+ - If your brains were dynamite there wouldn’t be enough to blow your hat off.
+ - My soul seemed as foul as smoke from burning cat fur.
+ - Dr. Brainard Keyes Bullard, President of Wyandotte College, said in an address tonight that most of the worlds ills can be traced to the fact that Mans knowledge of himself has not kept pace with his knowledge of the physical world.
+ - It was a thunderingly beautiful experience-voluptuous, sexual, dangerous, and expensive as hell.
+ - I think that novels that leave out technology misrepresent life as badly as Victorians misrepresented life by leaving out sex.
+ - War is now a form of TV entertainment, and what made the First World War so particularly entertaining were two American inventions, barbed wire and the machine gun.
+ - As stupid and vicious as men are, this is a lovely day.
+ - Man created the checkerboard; God created the karass.
+ - All right – I’ll tell you what you did for me: you went for happy, silly, beautiful walks with me.
+ - Women are so useless and unimaginative, aren’t they? All they ever think of planting in the dirt is the seed of something beautiful or edible. The only missile they can ever think of throwing at anybody is a ball or a bridal bouquet.
+ - The insane, on occasion, are not without their charms.
+ - People aren’t supposed to look back. I’m certainly not going to do it anymore.
+ - She hated people who thought too much. At that moment, she struck me as an appropriate representative for almost all mankind.
+ - He had the air of a spy in a melodrama, missing nothing, liking nothing, looking forward to the great day when everything would be turned upside down.
+ - Extenuating circumstance to be mentioned on Judgment Day: We never asked to be born in the first place.
+ - The only thing I ever learned was that some people are lucky and other people aren’t and not even a graduate of the Harvard Business School can say why.
+ - There is no WHY, since the moment simply is, and since all of us are simply trapped in the moment, like bugs in Amber.
+ - Or they’ll talk about fear, which we used to call politics- job politics, social politics, government politics.
+ - The nicest veterans in Schenectady, I thought, the kindest and funniest ones, the ones who hated war the most, were the ones who’d really fought.
+ - Literature is by definition opinionated. It is bound to provoke the arguments in many quarters, not excluding the hometown or even the family of the author.
+ - All the new technology seems redundant to me. I was quite happy with the United States mail service. And, I don’t even have an answering machine, for God’s sake.
+ - I think, therefore I am, therefore I am photographable.
+ - Beer, of course, is actually a depressant, but poor people will never stop hoping otherwise.
+ - This person has just arrived on this planet, knows nothing about it, has no standards by which to judge it. This person does not care what it becomes. It is eager to become absolutely anything it is supposed to be.
+ - He ate a pear. It was a hard one. It fought back against his grinding teeth. It snapped in juicy protest.
+ - High school is closer to the core of the American experience than anything else I can think of.
+ - I was raised by a black maid by the name of Ida Young and I probably talked to her more than anybody, so whatever is nutty about me was nutty about her, too, I think because I saw a lot more of her than I did of my parents.
+ - You’ll forget it when you’re dead, and so will I. When I’m dead, I’m going to forget everything–and I advise you to do the same.
+ - Having a yacht is a reason for being more cheerful than most.
+ - One thing I learned, with permission of the school committee of Indianapolis, was that when a tyrant or a government gets in trouble it wonders what to do. Declare war! Then nothing else matters. It’s like chess; when in doubt, castle.
+ - I’m mad about being old and I’m mad about being American. Apart from that, OK.
+ - Call me Jonah. My parents did, or nearly did. They called me John.
+ - I keep losing and regaining my equilibrium, which is the basic plot of all popular fiction. And I myself am a work of fiction.
+ - Puny man can do nothing at all to help or please God Almighty, and Luck is not the hand of God.
+ - Bill Gates says, ‘Wait till you can see what your computer can become.’ But it’s you who should be doing the becoming. What you can become is the miracle you were born to work-not the damn fool computer.
+ - There is a strong feeling in the Middle West that the artist is not pulling his own weight no matter how hard he may work, that the other people are doing the real stuff.
+ - I pity the Jews trying to get through life with only half a Bible. That’s like trying to get from here to San Francisco with a road map that stops at Dubuque, Iowa.
+ - What made marriage so difficult back then was yet again that instigator of so many other sorts of heartbreak: the oversize brain.
+ - It was very exciting for her, taking his dignity away in the name of love.
+ - Thanks to their decreased brainpower, people aren’t diverted from the main business of life by the hobgoblins of opinion anymore.
+ - The arts are not a way to make a living. They are a very human way of making life more bearable.
+ - People would be surprised if they knew how much in this world was due to prayers.
+ - You want to know something? We are still in the Dark Ages. The Dark Ages – they haven’t ended yet.
+ - What everybody is well advised to do is to not write about your own life, this is if you want to write fast. You will be writing about your own life anyway but you won’t know it.
+ - The world is too serious. To get mad at a work of art-because maybe somebody, somewhere is blowing his stack over what I’ve done-is like getting mad at a hot fudge sundae.
+ - Ideas on earth were badges of friendship or enimity. Their content did not matter. Friends agreed with friends, in order to express friendliness. Enemies disagreed with enemies, in order to express enimity.
+ - Tis better to have love and lust Than to let our apparatus rust.
+ - The world is full of people who are very clever at seeming much smarter than they really are.
+ - I really wonder what gives us the right to wreck this poor planet of ours.
+ - We’re a terribly lonesome society. For all I know, all societies are. You can make a few new friends, that’s all. You can’t change history. History is happening to us now.
+ - The most damning revelation you can make about yourself is that you do not know what is interesting and what is not.
+ - I am simply impressed by the unexpected insights which shower down on me when my job is to imagine, as contrasted with the woodenly familiar ideas which clutter my desk when my job is to tell the truth.
+ - Contemplating a purported work of art is a social activity. Either you have a rewarding time, or you don’t. You don’t have to say why afterward. You don’t have to say anything.
+ - Who is more to be pitied, a writer bound and gagged by policemen or one living in perfect freedom who has nothing more to say?
+ - If people insist on living as if there’s no tomorrow, there really won’t be one.
+ - What you can become is the miracle you were born to be through the work that you do.
+ - A story has to be a good date, because the reader can stop at any time. Remember, readers are selfish and have no compulsion to be decent about anything.
+ - It is always pitiful when any human being falls into a condition hardly more respectable than that of an animal. How much more pitiful it is when the person who falls has had all the advantages!
+ - That’s what is was to be young – to be enthusiastic rather than envious about the good work other people could do.
+ - The Population Reference Bureau predicts that the world’s total population will double to 7,000,000,000 before the year 2000. I suppose they will all want dignity, I said.
+ - I’ve often thought there ought to be a manual to hand to little kids, telling them what kind of planet they’re on, why they don’t fall off it, how much time they’ve probably got here, how to avoid poison ivy, and so on.
+ - Children get smashed for hours on some strictly limited aspect of the Great Big Everything, the Universe, such as water or snow or mud or colors or rocks.
+ - Never have I risked my life, or even my comfort, in the service of mankind. Shame on me.
+ - Well here you are, there it is, THIS is what it’s all about.
+ - And I apologize to all of you who are the same age as my grandchildren. And many of you reading this are the same age as my grandchildren. They, like you, are being royally shafted and lied to by our Baby Boomer corporations and government.
+ - She was a dull person, but a sensational invitation to make babies.
+ - People hate it when they’re tickled because laughter is not pleasant, if it goes on too long. I think it’s a desperate sort of convulsion in desperate circumstances, which helps a little.
+ - I had a friend who was a heavy drinker. If somebody asked him if he’d been drunk the night before, he would always answer offhandedly, ‘Oh, I imagine.’ I’ve always liked that answer. It acknowledges life as a dream.
+ - Generally speaking, espionage offers each spy an opportunity to go crazy in a way he finds irresistible.
+ - I am of course a skeptic about the divinity of Christ and a scorner of the notion that there is a God who cares how we are or what we do.
+ - The public health authorities never mention the main reason many Americans have for smoking heavily, which is that smoking is a fairly sure, fairly honorable form of suicide.
+ - His response was to fight it with the only weapons at hand – passive resistance and open displays of contempt.
+ - Dwayne’s bad chemicals made him take a loaded thirty-eight caliber revolver from under his pillow and stick it in his mouth. This was a tool whose only purpose was to make holes in human beings.
+ - I can have oodles of charm when I want to.
+ - The highest possible form of treason is to say that Americans aren’t loved wherever they go, whatever they do.
+ - Vonnegut could not help looking back, despite the danger of being turned metaphorically into a pillar of salt, into am emblem of the death that comes to those who cannot let go of the past.
+ - Let there be nothing harmonious about our children’s playthings, lest they grow up expecting peace and order, and be eaten alive.
+ - Has any psychological experiment yielded a more delightful suggestion than this one: that there is a part of the mind without ambition or information, which nonetheless is expert on what is beautiful?
+ - The most heartbreakingly beautiful girl I ever hope to see.
+ - I go on many thrilling adventures and wondrous, profound escapades through books.
+ - Nowadays, of course, just about our only solvent industry is the merchandising of death, bankrolled by our grandchildren.
+ - Mankind flung its advance agents ever outward, ever outward. Eventually it flung them out into space, into the colorless, tasteless, weightless sea of outwardness without end. It flung them like stones.
+ - Symbols can be so beautiful, sometimes.
+ - A saint is a person who behaves decently in a shockingly indecent society.
+ - One of the main effects of war, after all, is that people are discouraged from being characters.
+ - It goes against the American storytelling grain to have someone in a situation he can’t get out of, but I think this is very usual in life.
+ - The most exquisite pleasure in the practice of medicine comes from nudging a layman in the direction of terror, then bringing him back to safety again.
+ - When a man becomes a writer, I think he takes on a sacred obligation to produce beauty and enlighenment and comfort at top speed.
+ - I went to high school in Indianapolis I learned how to walk around looking tough because everybody had to do that. I go out there occasionally and they’re still doing it, walking around looking very tough because something might happen.
+ - I am a monopolar depressive descended from monopolar depressives. That’s how come I write so good.
+ - The waitress brought me another drink. She wanted to light my hurricane lamp again. I wouldn’t let her. “Can you see anything in the dark, with your sunglasses on?” she asked me. “The big show is inside my head,” I said.
+ - It is a very mixed blessing to be brought back from the dead.
+ - The worst thing that could possibly happen to anybody would be to not be used for anything by anybody. Thank you for using me, even though I didn’t want to be used by anybody.
+ - People don’t come to church for preachments, of course, but to daydream about God.
+ - The computer revolution has allowed white-collar criminals to do what the Mob would have loved to do – put a pawnshop and a loan shark in every home!
+ - We’re not too young for love, just too young for about everything there is that goes with love.
+ - The library is full of stories of supposed triumphs which makes me very suspicious of it. It’s misleading for people to read about great successes, since even for middle-class and upper-class white people, in my experience, failure is the norm.
+ - Trout, incidentally, had written a book about a money tree. It had twenty-dollar bills for leaves. Its flowers were government bonds. Its fruit was diamonds. It attracted human beings who killed each other around the roots and made very good fertilizer.
+ - Don’t worry about your father. He’s a perfectly contented, self-sufficient zombie.
+ - Trust a crowd to look at the wrong end of a miracle every time.
+ - Words may deeply wound us, but we must run that risk to be free.
+ - Vietnam was a country where America was trying to make people stop being communists by dropping things on them from airplanes.
+ - The umpire had comical news. The congregation had been theoretically spotted from the air by a theoretical enemy. They were all theoretically dead now. The theoretical corpses laughed and ate a hearty noontime meal.
+ - There’s a Chaplain who never visited the front.
+ - Take it moment by moment, and you will find that we are all, as I’ve said before, bugs in amber.
+ - My God, the religious right will not acknowledge what a merciful person Jesus was.
+ - Now, the engineers and managers believe with all their hearts the glorious things their forebears hired people to say about them. Yesterday’s snow job becomes today’s sermon.
+ - A joke is like building a mousetrap from scratch. You have to work pretty hard to make the thing snap when it is supposed to snap.
+ - All male writers, incidentally, no matter how broke or otherwise objectionable, have pretty wives. Somebody should look into this.
+ - I think William Shakespeare was the wisest human being I ever heard of. To be perfectly frank, though, that’s not saying much.
+ - I couldn’t survive my own pessimism if I didn’t have some kind of sunny little dream.
+ - No matter how wonderful a sentence is, if it doesn’t add new and useful information, it should be removed.
+ - During my three years in Vietnam, I certainly heard plenty of last words by dying American footsoldiers. Not one of them, however, had illusions that he had somehow accomplished something worthwhile in the process of making the Supreme Sacrifice.
+ - Ideas or the lack of them can cause disease.
+ - If I am ever put to death on the hook, expect a very human performance.
+ - People have to talk about something just to keep their voice boxes in working order so they’ll have good voice boxes in case there’s ever anything really meaningful to say.
+ - It seems to me that the most universal revolutionary wish now or ever is a wish for heaven, a wish by a human being to be honored by angels for something other than beauty or usefulness.
+ - Sometimes I wonder if he wasn’t born dead. I never met a man who was less interested in the living. Sometimes I think that’s the trouble with the world: too many people in high places who are stone-cold dead.
+ - The two real political parties in America are the Winners and the Losers.
+ - Just because you can read, write and do a little math, doesn’t mean that you’re entitled to conquer the universe.
+ - It is harder to be unhappy when you are eating.
+ - There is a tragic flaw in our precious constitution, and I don’t know what can be done to fix it. This is it: Only nut cases want to be president.
+ - Mere opinions, in fact, were as likely to govern people’s actions as hard evidence, and were subject to sudden reversals as hard evidence could never be.
+ - There were creative-writin g teachers long before there were creative-writin g courses, and they were called and continue to be called editors.
+ - You know, I think the main purpose of the Army, Navy, and Marine Corps is to get poor Americans into clean, pressed, unpatched clothes, so rich Americans can stand to look at them.
+ - Literature is the only art in which the audience performs the score.
+ - Did you ever admire an empty-headed writer for his or her mastery of the language? No. So your own winning style must begin with ideas in your head.
+ - I thought scientists were going to find out exactly how everything worked, and then make it work better.
+ - People should practice an art in order to make their souls grow and not to make money or become famous. Paint a picture. Write.
+ - There are almost no characters in this story, and almost no dramatic confrontations, because most of the people in it are so sick and so much the listless playthings of enormous forces. One of the main effects of war, after all, is that people are discouraged from being characters.
+ - In the era of big brains, life stories could end up any which way. Look at mine.
+ - It’s a terrible waste to be happy and not notice it.
+ - You can’t just eat good food. You’ve got to talk about it too. And you’ve got to talk about it to somebody who understands that kind of food.
+ - Thanks to TV and for the convenience of TV, you can only be one of two kinds of human beings, either a liberal or a conservative.
+ - I think you guys are going to have to come up with a lot of wonderful new lies, or people just aren’t going to want to go on living.
+ - Maybe they invited me because they know I have a tuxedo.
+ - Doesn’t anything socialistic make you want to throw up? Like great public schools, or health insurance for all?
+ - Sons of suicides seldom do well.
+ - What’s the point of being alive,” she said, “if you’re not going to communicate?
+ - George W. Bush has gathered around him upper-crust C-students who know no history or geography.
+ - If there really had been a Mercutio, and if there really were a Paradise, Mercutio might be hanging out with teenage Vietnam draftee casualties now, talking about what it felt like to die for other people’s vanity and foolishness.
+ - Aside from battles, the history of nations seemed to consist of nothing but powerless old poops like myself, heavily medicated and vaguely beloved in the long ago, coming to kiss the boots of young psychopaths.
+ - I just know that there are plenty of people who are in terrible trouble and can’t get out. And so I’m impatient with those who think that it’s easy for people to get out of trouble.
+ - I wonder now what Ernest Hemingways dictionary looked like, since he got along so well with dinky words that anybody can spell and truly understand.
+ - The mountebank told them that God was surely trying to kill them, possibly because He was through with them, and that they should have the good manners to die. This, as you can see, they did.
+ - What geography can give all Middle Westerners, along with the fresh water and topsoil, if they let it, is awe for an Edenic continent stretching forever in all directions. Makes you religious. Takes your breath away.
+ - Just because we think we’re so wonderful doesn’t mean we really are. We could be really terrible animals and just never admit it because it would hurt so much.
+ - In real life as in grand opera, arias only make hopeless situations worse.
+ - The government satirizes itself. All we can wish is that there will be a large number of Americans who will realize how dumb this all is, and how greedy and how vicious. Such an audience is dwindling all the time because of TV.
+ - I’m not a drug salesman. I’m a writer.
+ - Take it from somebody who has been around for a million years: When you get right down to it, food is practically the whole story every time.
+ - I think jokes are a perfectly viable form of literature. Some critics take issue with me because I make my points and discuss my ideas with jokes, rather than with oceanic tragedy.
+ - What had made me move through so many dead and pointless years was curiosity.
+ - I wish you’d help me look into a more interesting problem – namely, my sanity.
+ - A society is only as healthy as its ideas are humane.
+ - There was a time when I could vote for economic justice, and I can’t anymore.
+ - It is almost always a mistake to mention Abraham Lincoln. He always steals the show.
+ - Only in books do we learn what’s really going on.
+ - No one can amount to a damn in the arts if he becomes sweetly reasonable, seeing all sides of a picture, forgiving all sins.
+ - I would have been dead if it weren’t for that great gift to civilization from the Chemistry Department of Harvard, which was napalm, or sticky jellied gasoline.
+ - Trout was petrified there on Forty-second Street. It had given him a life not worth living, but I had also given him an iron will to live. This was a common combination on the planet Earth.
+ - I myself grew up when radio was very important. I’d come home from school and turn on the radio. There were funny comedians and wonderful music, and there were plays. I used to pass time with radio.
+ - You are better than you think. A-one, a-two a-three.
+ - Dance, even if you have nowhere to do it but the living room in your fortified compound.
+ - I said I wasn’t interested, and she was bright enough to say that she wasn’t really interested either. As things turned out, we both overestimated our apathies, but not that much.
+ - Historians in the future, in my opinion, will congratulate us on very little other than our clowning and our jazz.
+ - Earthlings went on being friendly, when they should have been thinking instead.
+ - Each one of us has to be what he or she is.
+ - I don’t think there would be many jokes, if there weren’t constant frustration and fear and so forth. It’s a response to bad troubles like crime.
+ - I could go on to speak of sanity as compared with insanity, decency as compared with vandalism, friendship as compared with rabies.
+ - The slaves were simply turned loose without any property. They were easily recognizable. They were black. They were suddenly free to go exploring.
+ - Like so many Americans, she was trying to construct a life that made sense from things she found in gift shops.
+ - I have had all I can stand of not taking myself seriously.
+ - Our awareness is all that is alive and maybe sacred in any of us. Everything else about us is dead machinery.
+ - It shook up Trout to realize that even he could bring evil into the world – in the form of bad ideas.
+
+500 quotes

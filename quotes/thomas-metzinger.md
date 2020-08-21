@@ -1,0 +1,30 @@
+ - The Ego is a transparent mental image: You, the physical person as a whole, look right through it. You do not see it. But you see with it.
+ - The self is not a thing, but a process.
+ - When you are simply observing your breath, you are perceiving an automatically unfolding process in your body. By contrast, when you are observing your wandering mind, you are also experiencing the spontaneous activity of a process in your body.
+ - Whoever loses the capability for inner silence, loses contact to himself and soon won’t be able to think clearly any more.
+ - The conscious experience of being a subject arises when a single organism learns to enslave itself.
+ - As a first-order approximation, I would say that phenomenality is “availability for introspective attention”: Consciousness is a property of all those mental contents to which you can in principle direct your attention.
+ - At 19, I basically held the position that if you were intellectually honest and really wanted to get in touch with political reality then you had to smell tear-gas.
+ - Subjectivity means to catch yourself in the act.
+ - Dolphins frequently leap above the water surface. One reason for this behaviour could be that, when travelling longer distances, jumping can save the dolphins energy as there is less friction while in the air.
+ - Virtual reality is the representation of possible worlds and possible selves, with the aim of making them appear as real as possible – ideally, by creating a subjective sense of “presence” and full immersion in the user.
+ - Subjective time flows forward, the phenomenal self is embedded into this flow, an inner history unfolds. That it is why it is not a bubble, but a tunnel: There is movement in time.
+ - Consciousness is phenomenologically subjective whenever there is a stable, consciously experienced first-person perspective.
+ - I believe that gut feelings, the sense of balance, and spatial self-perception are so firmly coupled to our biological body that we will never be able to leave it experientially on a permanent basis.
+ - Subjectivity is an ability, the capacity to use a new inner mode of presenting the fact that you currently know something to yourself.
+ - Retribution is really a stone age concept.
+ - I could never understand how someone would embark on their life without having first confronted and clarified the truly fundamental questions.
+ - Of course, I strongly sympathized with Habermas and the philosophers representing the Frankfurt school, but I also saw the lack of conceptual clarity, and perceived the not-so-revolutionary self-importance in the epigones of Horkheimer, Adorno, and Habermas.
+ - As a philosopher, you define constraints for any good theory explaining what you are interested in, then you go out and search for help in other disciplines.
+ - As far as inner action is concerned, we are only rarely truly self-determined persons, for the major part of our conscious mental activity rather is an automatic, unintentional form of behavior on the subpersonal level.
+ - All attention is introspection.
+ - Speaking as a phenomenologist, it seems to me that a considerable portion of mind wandering actually is “mental avoidance behaviour”, an attempt to cope with adverse internal stimuli or to protect oneself from a deeper processing of information that threatens self-esteem.
+ - Conscious experience as such is an exclusively internal affair: Once all functional properties of your brain are fixed, the character of subjective experience is determined as well.
+ - You cannot be a rational subject without veto-control on the level of mental action.
+ - The notion of a conscious model of oneself as an individual entity actively trying to establish epistemic relations to the world and to oneself, I think, comes very close to what we traditionally mean by notions like “subjectivity”.
+ - If we lose the ability in question for a single moment only, we are immediately being hijacked by an aggressive little “Think me!” and our mind begins to wander.
+ - Only as long as we believe in our own identity over time does it make sense for us to make future plans, avoid risks, and treat our fellow human beings fairly – for the consequences of our actions will, in the end, always concern ourselves.
+ - Someone who cannot stop his outer flow of words will soon be unable to communicate with other human beings at all.
+ - A lot of evidence shows that most of our cognitive processing is unconscious – phenomenal experience is just a very small slice or partition of a much larger space in which mental processing takes place.
+
+28 quotes

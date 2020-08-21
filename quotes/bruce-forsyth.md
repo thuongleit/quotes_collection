@@ -1,0 +1,52 @@
+ - Nice to see you, to see you nice.
+ - It could still be a good night if you play your cards right.
+ - My biggest regret is that my mother didn’t see me walk on to that London Palladium stage, being the star she always wanted me to be. But I always say that when she reached Heaven, she had a word with a few agents.
+ - I do lead a careful diet, I don’t overeat, I have fruit and vegetables every day and I drink a lot of water. And my darling wife keeps me so young it is ridiculous. Being with her is an inspiration as well.
+ - I don’t want to grow old gracefully. I want to put up a bit of a fight.
+ - My father earned every penny he had, and I would have loved to have bought him a Rolls-Royce because his whole life was cars. Sadly, he didn’t live to see the day when I could have done that for him, which still hurts.
+ - On stage, I think I’m 35. Working takes over my whole body and I become a younger man – that’s why I won’t stop.
+ - I’m the leader of the pack, which makes me such a lucky Jack, for openers, here’s a pair of cuties, here’s my darling dealing beauties.
+ - It may be an old cliche, but I think true love will last; it has no end. But finding the right person is a very difficult thing.
+ - The secret to a happy marriage is if you can be at peace with someone within four walls, if you are content because the one you love is near to you, either upstairs or downstairs, or in the same room, and you feel that warmth that you don’t find very often, then that is what love is all about.
+ - There are enough tears in any child’s life; we certainly don’t need to add to them in the name of entertainment.
+ - If I couldn’t move, I don’t know what I would do. That would be terrifying for me; I don’t know how I’d cope with that.
+ - It’s sad when you see most of your friends in the business gone, like Tommy Cooper, Frankie Howard, Eric Morecambe, Roy Castle, Les Dawson. They were very dear to me. You no longer have the chance to bump into them at a celebrity do.
+ - It’s frightening, the way life speeds up. When you’re at school, time can’t go fast enough.
+ - It gets harder every day to get out of bed. I don’t feel like it loads of the time. It is only my exercise routine which wakes me up.
+ - All kids love to get dirty, but if I wandered into the garage, my father would say: ‘Son, you’re not going to have filthy hands like mine. You’re going into show business.’
+ - Lots of people come up to me and call me Sir Bruce now. Interviewers call me Sir with every question, but I never make a point of making people call me Sir. It doesn’t matter to me, though; it was a great honour to be knighted. I’m very proud of it.
+ - It’s the combination of marrying a beautiful woman three decades younger and my iPad that keeps me young.
+ - It’s important for a dancer to wear very tight underpants. I used to feel a bit exposed if I wasn’t being held up in the right place.
+ - Once you’ve experienced the warmth of an audience, the achievement of getting your first laugh, and entertaining them, singing or playing piano, it just keeps it all going.
+ - Puerto Rico is one of those places you can be as quiet or as crazy as you want, because there’s so much nightlife. I have to take the craziness carefully.
+ - That Mick Jagger, I feel sorry for him. After all these years he still can’t get no satisfaction.
+ - I can tell by the way somebody walks if they can dance or not. Just by the rhythm.
+ - Not working is bad for you. It is my drug, it gives me a high; most performers will tell you that. And there is nothing like the high that an audience gives you.
+ - People think I am the crazy person on stage, but I know how to relax.
+ - I love getting on You Tube to look at the old comics. I am in my element seeing guys like Jack Benny and Phil Silvers give interviews.
+ - When a performer doesn’t get nervous, that is when you have to give up.
+ - I hate Mondays – I hate that feeling you’ve got to get yourself up.
+ - Did you write the words, or the lyrics?
+ - If I go out one night, I must stay in the next. It’s the same with my golf. If I play one day, I don’t play the next. I try to pace myself.
+ - Little did I know that there’s nothing more competitive in the world than a professional ballroom dancer. They are as competitive as Olympic athletes.
+ - I don’t do close-ups any more. I am better looking from the waist downwards.
+ - He was so good at everything he did. You can’t call Ronnie Barker a comedian. He was an actor, and a great writer.
+ - Golf is hugely important, as it keeps me going.
+ - Although I’m predominantly known for game-shows, I do prefer to be known as a performer.
+ - I have no plans to rock myself to sleep in my bath chair yet.
+ - Some people hate the sight of me as soon as they see me on television. They loathe the look of me, and I accept that from the days of variety. I would walk on and some people would open a newspaper and think, ‘He’s first on, so he can’t be any good.’ I accept that.
+ - When I married Wilnelia, one of the first things I wanted to know about Puerto Rico was the quality of the golf courses.
+ - They do say, the smaller the feet, the better the dancer.
+ - I’m not even really a joke-teller. I can do ad-lib and banter, but I don’t do jokes.
+ - No one – apart from my agent, perhaps – should leave one of my shows in tears.
+ - People think I rush around all day long like a raving lunatic. I’m much more relaxed than that.
+ - You can shuffle my deck any day!
+ - In my mind, everything is too sanitised on television – what is wrong with things going wrong?
+ - When I was in the business as a young performer, it was a recognised fact that when you got to 60 you were out, because there’d be a new crop of comics coming up all the time, every 10 years or so.
+ - My holidays are very important. Mind you, I take a very long one every year.
+ - Goodness, that Simon Cowell is a sensitive soul.
+ - A round of golf is the ideal antidote to stress.
+ - I read a lot when I’m away. I love courtroom dramas and I’m always looking for new authors.
+ - Just doing any kind of work – even an interview for breakfast television – makes me feel happy.
+
+50 quotes

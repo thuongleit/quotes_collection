@@ -1,0 +1,83 @@
+ - Let us go forth with fear and courage and rage to save the world.
+ - To translate a poem from thinking into English takes all night.
+ - Sometimes, walking with a friend, I forget the world.
+ - The best training is to read and write, no matter what. Don’t live with a lover or roommate who doesn’t respect your work. Don’t lie, buy time, borrow to buy time. Write what will stop your breath if you don’t write.
+ - I don’t believe civilization can do a lot more than educate a person’s senses.
+ - Art’s too long and life’s too short.
+ - It wasn’t until I lived in the countryside that I began to understand the life of the countryside and the people in it and trees and water. Just learning about water is an education for a city person.
+ - I didn’t intend to become a short-story writer. I became one because I finished a couple of short stories and realized that’s what I wanted to do and could do with children and with all the other things in my life.
+ - If you’re feminist, it means that you’ve noticed that male ownership of the direction of female lives has been the order of the day for a few thousand years, and it isn’t natural.
+ - People will sometimes say, “Why don’t you write more politics?” And I have to explain to them that writing the lives of women IS politics.
+ - The wrong word is like a lie jammed inside the story.
+ - If you want to do things, do things.
+ - You become a writer because you need to become a writer – nothing else.
+ - I’m seventy-five now. I also have the peculiar luck of having a sister and brother who are fourteen and sixteen years older than me. Their health is not good. It couldn’t be at that age. But their spirits are. Both my brother and my sister are an example to me.
+ - I write for the still, small possibility of justice.
+ - I didn’t write any fiction until I was past thirty.
+ - My job is to get people to write something truthful, something about truth and beauty – wherever they are – and to understand how literature is made. And then if they become great writers, that’s great, and probably has nothing to do with me.
+ - But what’s a writer for? The whole point is to put yourself into other lives, other heads-writers have always done that. If you screw up, so someone will tell you, that’s all.
+ - My family were Russian Jews. They got you to read as soon as you could. And then assumed you would read a lot. People didn’t really tell stories but they were good talkers. That’s important for a writer, to hear speakers.
+ - I often see through things right to the apparition itself.
+ - We write about what we don’t know about what we know...
+ - I might write four lines or I might write twenty. I subtract and I add until I really hit something I want to do. You don’t always whittle down, sometimes you whittle up.
+ - As an older person, I do feel an obligation to tell the story about what was really happening in the fifties, sixties, and seventies, as I saw it.
+ - If you’re old and you’re healthy and you’re active – I don’t mean you have to be politically active – if you remain interested in other people and the world, then you live as well as your health will allow.
+ - Write what will stop your breath if you don’t write.
+ - Literature, fiction, poetry, whatever, makes justice in the world. That’s why it almost always has to be on the side of the underdog.
+ - I saw my ex-husband in the street. I was sitting on the steps of the new library. Hello, my life, I said. We had once been married for twenty-seven years, so I felt justified. He said, What? What life? No life of mine.
+ - Everyone, real or invented, deserves the open destiny of life.
+ - The only recognizable feature of hope is action.
+ - Women should stick together. Didn’t you learn anything yet?
+ - Well, by now you must know yourself, honey, whatever you do, life don’t stop. It only sits a minute and dreams a dream.
+ - You come to doing what you do by not being able to do something.
+ - You know the mind is an astonishing, long-living, erotic thing.
+ - There is a long time in me between knowing and telling.
+ - My mother went to demonstrations. I remember her going to a big demonstration for Earl Brower and she came home crying and said the Communists were very mean and booed their people. I remember feeling sad at her feeling sad.
+ - There isn’t a story written that isn’t about blood and money. People and their relationship to each other is the blood, the family. And how they live, the money of it.
+ - Paul Goodman was not ahead of his time but IN his time.
+ - That heartbreaking moment when you finish an amazing book, and you are forced to return to reality.
+ - Hindsight, usually looked down upon, is probably as valuable as foresight, since it does include a few facts.
+ - All that is really necessary for survival of the fittest, it seems, is an interest in life, good, bad or peculiar.
+ - Well, you have children so you know: little children little troubles, big children, big troubles – it’s a saying in Yiddish. Maybe the Chinese said it too.
+ - In the end, long life is the reward, strength, and beauty.
+ - Waves, once they land on the beach, are not reversible.
+ - Good talkers are people who use interesting language and have a lot of energy in speech and who also listen.
+ - I didn’t intend. The word “intend” is the wrong word for what I do. It’s just that it’s something you do, and you can’t not do. If you want to do it, and you don’t intend to, you do it anyway. The word “intend” is wrong. The word “pressure” is right. It’s like any art form.
+ - It’s a terrible thing to die young. Still, it saves a lot of time.
+ - For me, the meaning of life is the next generation.
+ - Today’s wars are about oil. But alternate energies exist now – solar, wind – for every important energy-using activity in our lives. The only human work that cannot be done without oil is war.
+ - When you have a peace movement that has an actual war, it’s different from one that has wars that our country is not totally involved in. During the war in Vietnam, and to a lesser degree the wars in Central America where our country was directly involved, it was easier to organize.
+ - Sometimes you find that what is most personal is also what connects you most strongly with others.
+ - I’m really sorry for people growing up right now, because they have some cockeyed idea that they can get by with their eyes closed; the cane they’re tapping is money, and that won’t take them in the right direction.
+ - The word career is a divisive word. It’s a word that divides the normal life from business or professional life.
+ - My vocabulary is adequate for writing notes and keeping journals but absolutely useless for an active moral life.
+ - In the park I met other women and I started to get interested in their lives. I developed a lot of pressure to talk about women’s lives, and children’s lives, too. Children interest me tremendously.
+ - Most of the Womens Libbers I knew really didnt want to have a piece of the mens pie. They thought that pie was kind of poisonous, toxic, really full of weapons, poison gases, all kinds of mean junk we didnt even want a slice of.
+ - I really believe one of the jobs of a writer is to stretch as far as you can into other voices.
+ - I don’t have any degrees. I went to Hunter College one year and New York University another year. It’s just on the basis of my books that I’ve been hired at any of the places I’ve been.
+ - Just when I most needed important conversation, a sniff of the man-wide world, that is, at least one brainy companion who could translate my friendly language into his tongue of undying carnal love, I was forced to lounge in our neighborhood park, surrounded by children.
+ - I believe in a kind of fidelity to your own early ideas; it’s a kind of antagonism in me to prevailing fads.
+ - Rosiness is not a worse windowpane than gloomy gray when viewing the world.
+ - I begin by writing paragraphs that don’t have an immediate relation to a plot. The sound of the story comes first.
+ - Old age is not a good thing. It can be really hard, and those of us who have it a little easier should keep in mind that there are hundreds of thousands of people who are not as well off.
+ - I lived in a house in the East Bronx, a totally Jewish neighborhood on East 172nd Street. You didn’t see Christians much, although one lived next door. We thought they were kind of a minority.
+ - To be modest means that you have something to be modest about.
+ - I do lots of reading and speaking at many universities about literature and also about politics, which is as much a part of my life as the literature.
+ - If I miss anything, it’s being able to hang out in the city of New York meeting people and talking to them on the corner.
+ - Sometimes before people know what they’re saying, they already love the language.
+ - People say, “Why do you call your kids up, why do you worry like that?” And I say, “I was raised like that.” My grandmother looked at my father with the same eyes when he was sixty and she was eighty-five.
+ - What we owe men is some freedom from their part in a murderous game in which they kick each other to death with one foot, bracing themselves on our various comfortable places with the other.
+ - I was a fantastic student until ten, and then my mind began to wander.
+ - No metaphor reinvents the job of the nurture of children except to muddy or mock.
+ - A joke is necessary at this time.
+ - I am very interested in people trying to write because I don’t have a big academic background at all.
+ - When you think of things that influenced your life, Mother Goose influenced more people than almost any other thing, the rhythms of those poems. Everything after that was a bare imitation of some of those mysterious and materialistic poems.
+ - I know I’ve done good work. I’ve been very serious about my writing, and I’ve done the best that I could. But I don’t feel that I’ve done more than I should have. In fact, I’ve done less than I should have.
+ - I’ve started many novels, and they all ended on page seven.
+ - I liked the education. I liked people learning things all around me and I liked going to people’s classes.
+ - I read a lot. I liked a tremendous number of poets and writers. The person whose work I liked the most was Joyce.
+ - I did write a number of reports on my political experiences, but there were many omissions, and I feel bad about that because it was work that was interesting and had I written more about it, it could have been useful.
+ - The women’s movement was coming, but I didn’t know it in 1956-1957, when I began to write.
+ - I should have written more. I should have written more during the period when I just liked so much doing the political work in the streets.
+
+81 quotes

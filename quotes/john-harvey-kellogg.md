@@ -1,0 +1,24 @@
+ - All fresh meat is eaten in a state of decay. The process may not have proceeded so far that the dull human nose can discover it, but a carrion bird or a carrion fly can smell it from afar.
+ - The influence of coffee in stimulating the genital organs is notorious.
+ - Disease is cured by the body itself, not by doctors or remedies.
+ - When we eat vegetarian foods, we needn’t worry about what kind of disease our food died from; this makes a joyful meal!
+ - A man that lives on pork, fine-flour bread, rich pies and cakes, and condiments, drinks tea and coffee, and uses tobacco, might as well try to fly as to be chaste in thought.
+ - The tobacco business is a conspiracy against womanhood and manhood. It owes its origin to that scoundrel Sir Walter Raleigh, who was likewise the founder of American slavery.
+ - I don’t want you to misunderstand me. You might get up and state what you believe to be Seventh-day Adventism, and I might not agree with everything you said.
+ - I believe the Sabbath; I keep the Sabbath.
+ - If you can get some of the devil’s money to use for the Lord’s work, if you have to borrow it, it is all right and carry on the work.
+ - To please men and to kill parasites are the only uses tobacco-its ultimate effects are the same in both cases.
+ - The power in which we must have faith if we would be well, is the creative and curative power which exists in every living thing.
+ - Because I never thought the Lord would treat me any different from any other honest man or that I had an official position that compelled the Lord to help me in any other way than He would help any other man.
+ - Hamburger steak is carrion, and quite unfit for food except by a turkey buzzard, a hyena, or some other scavenger.
+ - A dead cow or sheep lying in a pasture is recognized as carrion. The same sort of a carcass dressed and hung up in a butcher’s stall passes as food.
+ - I am, I think the only surviving member of the original Battle Creek church. The church was disbanded, with the exception of thirteen members, in 1870.
+ - You cannot work with men who won’t work with you.
+ - I believe in the unconscious state of the mind in death.
+ - Then, after I came home from Europe, I found I was under condemnation; and I was condemned at that time because I did not endorse the financial policy of the General Conference.
+ - Is God a man with two arms and legs like me? Does He have eyes, a head? Does He have bowels? Well I do, and that makes me more wonderful than He is!
+ - There are any number of people who profess to be good Christian people who are willing to believe all kinds of things on suspicion. Now that is not the way the Bible directs for Christian people to do.
+ - Do you know, that is the root of the whole trouble – has been one of the roots at any rate – is people hearing things and then imagining some more and magnifying it and multiplying it.
+ - I believe that the end of things man-made cannot be very far away – must be near at hand.
+
+22 quotes

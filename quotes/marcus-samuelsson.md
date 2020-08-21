@@ -1,0 +1,33 @@
+ - Hard work IS its own reward. Integrity IS priceless. Art DOES feed the soul.
+ - For many of us, clean water is so plentiful and readily available that we rarely, if ever, pause to consider what life would be like without it.
+ - Just like keeping a healthy diet is important to maintaining a healthy lifestyle, eating the right foods is just as important for getting the most out of your workout.
+ - Cooking with your kids and engaging them in hands-on activities are two ways to begin to educate children about the healthy eating, and kick start the important task to help change how the younger generation looks at food and nutrition.
+ - You know that old expression “It’s not whether you win or lose; it’s how you play the game”. That line was definitely not coined by a chef. Because for a chef, it’s only about whether or not you pull through. If you fail, nobody cares how hard you tried.
+ - I love Thanksgiving because it’s a holiday that is centered around food and family, two things that are of utmost importance to me.
+ - Clean water and access to food are some of the simplest things that we can take for granted each and every day. In places like Africa, these can be some of the hardest resources to attain if you live in a rural area.
+ - We struggle with eating healthily, obesity, and access to good nutrition for everyone. But we have a great opportunity to get on the right side of this battle by beginning to think differently about the way that we eat and the way that we approach food.
+ - In Africa, you have no clean water, but you have good food options. In Harlem, everyone can shower and get fresh water, but you often have bad food options.
+ - Chocolate is one of the world’s most beloved discoveries, and when we need a quick boost of energy and endorphins, chocolate is the go-to treat.
+ - As a chef and activist, I’m particularly concerned with food politics issues such as the farm bill.
+ - We can all agree that government cant solve the obesity crisis alone. Its an ongoing issue that will require a collaborative effort across private and public sectors if we want to see some long-term success.
+ - While I hold my own views, it’s important not to get too wrapped up in individual candidates and personalities, but instead to focus on the real issues.
+ - In Ethiopia, food is often looked at through a strong spiritual lens, stronger than anywhere else I know. It’s the focal point of weddings, births and funerals and is a daily ceremony from the preparation of the meal and the washing of hands to the sharing of meals.
+ - I feel very fortunate that I was raised in a multicultural family, and it came through food.
+ - If you get hungry mid-day, a banana is the best snack at your desk, after a workout, or in between classes. Fruit is a very good snack in general.
+ - If you’re cooking for someone important – whether it’s your boss or a date – never try a new recipe and a new ingredient at the same time.
+ - Larousse Gastronomique has always been the first and last word on classic European techniques and recipes. I love that it has expanded its reach to cover world cuisines and modern culinary innovations, making it more indispensable than ever.
+ - Getting to a place of comfort can be uncomfortable.
+ - In Ethiopia, where I was born, all the cooks are women. When I grew up in Sweden, my mom and my grandmother did predominantly all the cooking. Then I changed to restaurant kitchens, where all of a sudden there were just more men than women, and I always thought that was weird.
+ - One of the first things my father taught me was that the library was made for and available to me. It’s a place where you not only learn from books but you learn responsibility – how to borrow, take care of, and give back.
+ - Cooking is in an honest profession where you cannot hide and let others do the work for you. You have to show up, work hard and prove you can do it faster and better. And find a mentor who will recognize your talent and push you in the right direction.
+ - People come up to me all the time and ask how I stay the way I am, and it’s no secret. The first lesson a chef needs to learn is how to handle a knife; the second is how to be around all that food.
+ - People might not protest for overtly political or social causes, but when they can’t feed themselves and their family, they will take to the streets.
+ - I’m a big believer in the negligee, that nearly invisible screen standing between you and the object of your desire.
+ - In Europe I couldn’t be anything but a black cook working for somebody. My inspiration was to own, to be the chef.
+ - Thanksgiving is probably my favorite holiday – it’s a day that’s American to the core and it’s a day that’s all about what and how we eat.
+ - America has been very open to immigrants in terms of laws, getting loans – it has been helping immigrants more than it’s been helping African Americans in starting a small business. That’s key, whether you’re starting a restaurant or a laundromat.
+ - I happen to love coconut, particularly for that sweet and crunchy texture it adds to any dish.
+ - Where is the stretch? Where is the perfect fit? Where does it make sense? You have to be a Baryshnikov.
+ - It will always be trendy to do the right thing with food.
+
+31 quotes

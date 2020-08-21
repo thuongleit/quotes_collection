@@ -1,0 +1,25 @@
+ - You could have all the money in the world, but you have to be smart enough knowing how to spend it. I really try to be on that smart money side. Once you make a serious mistake you can suffer five or six years, and I do my best to avoid serious mistakes.
+ - My love affairs are just between my office and gym.
+ - I am addicted to sport. Without sport, I feel bad.
+ - If you know how rich you are, you are not a billionaire.
+ - I never count my money. I think that’s your job.
+ - Frankly speaking, I like women. In my heart, I am still teenager. And I am very open and I don’t want to hide this.
+ - I’ve never lost my cool. Even in love affairs. If you have Plan B and Plan C, you are all the time relaxed.
+ - Even before my parents died, I felt all the responsibility to my family. I don’t know why. In any business, any relationship, if something goes wrong, I feel I am to blame. It’s something inside me.
+ - For some sport is a hobby but for me it is a way to survive. It makes me calm, balanced and well-rested. Not tired but vice versa. I think sport balances off my work load.
+ - I have three joys in my life: work, sport and food. All these come in one and do not make a hobby.
+ - I don’t use a computer. We have too much information and it’s really impossible to filter it.
+ - Some people say the reason I am not married is that I don’t understand small business and the toughest small business in the world is a family. But when you are happy and feel every minute of your life, what is the reason to get married?
+ - Money is not the thing that drives me. I like to develop assets to create value. No one cares how rich you are or what your ranking is in Forbes magazine.
+ - I have no plans to have any other home than Moscow. However, I love to travel, and I’m very comfortable in New York. In many ways, it reminds me of Moscow in its energy and drive.
+ - I work 12 to 14 hours a day, and in the spare time I do sport.
+ - I think women make the same mistake with me all the time. The way to a man’s heart is through his stomach.
+ - I learned from both my parents that you had to be clever.
+ - I cannot do politics under someone else’s control.
+ - Nobody was interested in me before I bought the Nets.
+ - The government in Russia does not tell me what to do with my assets.
+ - There is only one way to go: up. I like to find cheap assets with problems. It gives me power.
+ - I don’t understand small businesses, only big ones. Marriage is the hardest small business.
+ - No one doing big business can avoid some contact with government agencies, regulators, and policy makers.
+
+23 quotes

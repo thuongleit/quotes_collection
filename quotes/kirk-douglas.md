@@ -1,0 +1,62 @@
+ - In order to achieve anything you must be brave enough to fail.
+ - Virtue is not photogenic. What is it to be a nice guy? To be nothing, that’s what. A big fat zero with a smile for everybody.
+ - When I made Spartacus during the McCarthy Era, we were losing our freedom. It was an awful, awful way. McCarthy saw Communists everywhere, in every level of government and they concentrated on Hollywood and especially on Hollywood writers.
+ - I bought the book, One Flew Over the Cuckoo’s Nest. I paid to have it made into a play and I played in it for six months. I came back and I tried to make it into a movie, without success.
+ - The learning process continues until the day you die.
+ - When you get old the worst thing is you lose so many friends. Burt Lancaster, Frank Sinatra, John Wayne. People who I loved to work with.
+ - I’m concerned that the world is a mess. That’s why when I wrote my last book, Let’s Face It, I dedicated it to the younger generation because, let’s face it, the world is in a mess. Right now, the young people will inherit that mess. I think we have to do everything we can.
+ - Virtue is not photogenic.
+ - The biggest lie is the lie we tell ourselves in the distorted visions we have of ourselves, blocking out some sections, enhancing others. What remains are not the cold facts of life, but how we perceive them. That’s really who we are.
+ - On a crowded bus in Israel, a mother was speaking to her son in Yiddish. An Israeli woman reprimanded her. “You should be speaking Hebrew. Why are you talking to him in Yiddish?” The mother answered, “I don’t want he should forget he’s a Jew.”
+ - Listen – pacemaker, crash, stroke. What does it mean? God doesn’t want me now. That’s all.
+ - I remember little things that break my heart. We were coming out of Michael’s house one day, and he noticed my shoelaces were undone. He bent down and tied them. I almost cried. To me, it was such a gesture of love.
+ - I don’t need a critic to tell me I’m an actor. I make my own way. Nobody’s my boss. Nobody’s ever been my boss.
+ - When I produced Spartacus, the writer was Dalton Trumbo, who spent a year in jail because he would not answer McCarthy’s questions about other people. He submitted the picture under the false name of Sam Jackson.
+ - My mother and my father were illiterate immigrants from Russia. When I was a child they were constantly amazed that I could go to a building and take a book on any subject. They couldn’t believe this access to knowledge we have here in America. They couldn’t believe that it was free.
+ - I have always been grateful that my Russian mother and father came to this country to give me a better chance, and I have had a better chance.
+ - If I thought a man had never committed a sin in his life, I don’t think I’d want to talk with him. A man with flaws is more interesting.
+ - Love has more depth as you get older.
+ - Life is like a B-picture script. It is that corny. If I had my life story offered to me to film, I’d turn it down.
+ - Now, why is it that most of us can talk openly about the illnesses of our bodies, but when it comes to our brain and illnesses of the mind we clam up and because we clam up, people with emotional disorders feel ashamed, stigmatized, and don’t seek the help that can make the difference.
+ - Sometimes, the thing that ties you down sets you free.
+ - I came from abject poverty. There was nowhere to go but up.
+ - The first thing I look for in a woman is warmth-femininity. It’s got nothing to do with a pretty face.
+ - My children didn’t have my advantages; I was born into abject poverty.
+ - I have one computer that my wife gave me. All I know how to do, and I do it every day, is play Spider Solitaire. And I don’t have a cell phone.
+ - What would my parents think about America if they arrived here today? Would they even want to come? I wonder.
+ - My mother, we were a very poor family. When I was a kid, we would be in our little room, and there would be a knock on the door almost every night with a hobo begging for food. Even though we didn’t even have enough to eat, my mother always found something to give them.
+ - You know, you have to have some inner philosophy to deal with adversity.
+ - No matter how bad things are, they can always be worse. So what if my stroke left me with a speech impediment? Moses had one, and he did all right.
+ - Since my stroke, I have begun to see so many miracles all around me. I look out of the window in my room: verdant grass, silver-tipped oak leaves, tall palm trees gentle swaying as they reach to the sky, masses and masses of roses. All colors, so many shapes, exquisite fragrances.
+ - I never had any desire to be a film actor. I never thought I was the good-looking movie type, which I assumed they wanted.
+ - Really a bad guy is more interesting, dramatically, than the good guy.
+ - If I can get enough signatures, to present an apology to slavery, I will present it to the President. The House of Representatives has already passed the resolution for the apology, but it has to pass the Senate. I think, in spite of all our problems, I think we’re in the right direction.
+ - With John Wayne, we argued all the time and we made four pictures.
+ - I have been trying to create a campaign to have our country make an apology for slavery, for the way that blacks were treated before the Civil War and after the Civil War.
+ - My kids never had the advantages I had. I was born poor.
+ - You haven’t learned how to live until you’ve learned how to give.
+ - I have a great respect for actors like Clint Eastwood, who’s a wonderful director. I think two pictures that I directed were not successful, so I decided not to make any more.
+ - Fear is a terrible thing. It makes you do awful things.
+ - Why can’t a woman be more like a dog, huh? So sweet, loving, attentive.
+ - When you get to my age, you find that most of your dear friends are gone.
+ - I know Italians and I like them. A lot of my father’s best friends were Italians.
+ - The first time I had got an offer to come to Hollywood, I turned it down. I said, ‘No, I’m an actor of the stage.’
+ - The older you get, the more awards you get. So, if you live long enough, then you get all the awards eventually.
+ - If you want to know about a man you can find out an awful lot by looking at who he married.
+ - All children are natural actors, and I’m still a kid. If you grow up completely, you can never be an actor.
+ - Acting is a youthful profession.
+ - Life is like a B-picture script.
+ - The only advantage I have found in being Jewish is that I can be openly anti-Semitic.
+ - If I have to speak in public, I am terrified.
+ - I’ve played some good guys as well, in Spartacus, Paths of Glory and my favorite picture, Lonely Are the Brave, so I had a mixture of parts in my life.
+ - Fame is as much about luck as it is about talent, perhaps more.
+ - Being seventy has its advantages. I was outspoken before, but now what have I got to keep quiet about?
+ - Now, what does an actor who can’t talk do? Wait for silent pictures to come back?
+ - Obey the voice within – it commands us to give of ourselves and help others. As long as we have the capacity to give, we are alive.
+ - When you become a star, you don’t change – everyone else does.
+ - I never wanted to be in movies. In a sense, I’m still a failure because I wanted to be a star on the stage.
+ - When you reach 95, after you get over your surprise, you start looking back.
+ - The best wine comes from home, wherever it is.
+ - I directed two films, not very successfully, and after that, I went back to being an actor and a producer.
+
+60 quotes

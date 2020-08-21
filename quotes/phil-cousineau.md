@@ -1,0 +1,27 @@
+ - The creative urge matters. Stories matter. Images matter. It matters that you were born with a genius, a guiding spirit, a daimon that may know more about your destiny than you do.
+ - Pilgrimage is a powerful metaphor for any journey with the purpose of finding something that matters deeply to the traveler.
+ - Now is the time to lead your ideal life.
+ - Atonement is a journey of healing that moves from the pain between a victim and an oppressor, through forgiveness, the making of amends, the relief of anger and compassion for the victim, to deep reconciliation.
+ - Our task in life is to find our deep soul work and throw ourselves headlong into it.
+ - True myths, ancient and modern, stop time because they emerge from somewhere beyond time.
+ - Synchronicity is an inexplicable and profoundly meaningful coincidence that stirs the soul and offers a glimpse of one’s destiny.
+ - Imagine the wheel of time turning in a seemingly endless round, revealing that the beginning is the end of another beginning. This is the cyclic nature of the inward journey of creativity, which is by nature back and down – back in time and down into the soul’s depths.
+ - The pilgrim is a poetic traveler, one who believes that there is poetry on the road, at the heart of everything.
+ - Who knows why some words ignite the hearts of some readers while others are like wet matches that won’t light.
+ - What is sacred is what is worthy of our reverence, what evokes awe and wonder in the human heart, and what, when contemplated, transforms us utterly.
+ - Pilgrimage means being alert to the times when all that’s needed is a trip to a remote place to simply lose yourself, and to the times when what’s needed is a journey to a sacred place, in all its glorious and fearsome masks, to find yourself.
+ - Inspiration comes and goes, creativity is the result of practice.
+ - Uncover what you long for and you will discover who you are.
+ - We travel as seekers after answers we cannot find at home, and soon find that a change of climate is easier than a change of heart.
+ - Myths are lies that tell the truth.
+ - Are you up to the challenge? Are you going to be a reproduction or an original? Will you strive to be innovative or imitative? Are you ready to take your turn on the page, turn up the heat, turn it on?
+ - Myths are experienced in ordinary life, as everyday epiphanies.
+ - The mythic is everywhere.
+ - Inspiration is a message-in-a-bo ttle from the distant shore, a window into the other world, a tap of the muse’s finger, the grace of the gods. It comes when you least expect it...
+ - Mapping out dozens of deeply focused trips around the world has convinced me that preparation no more spoils the chance for spontaneity and serendipity than discipline ruins the opportunity for genuine self-expression in sports, acting, or the tea ceremony.
+ - But we don’t need more gimmicks and gadgets; all we need do is reimagine the way we travel. If we truly want to know the secret of soulful travel, we need to believe that there is something sacred waiting to be discovered in virtually every journey.
+ - That which you are looking for may be calling you to seek.
+ - There is an unknown room in the soul that is constantly turning the stuff of daydreams into myths for us, helping us to get at meaning we can’t get to through the front door.
+ - In each of us dwells a pilgrim. It is the part of us that longs to have direct contact with the sacred.
+
+25 quotes

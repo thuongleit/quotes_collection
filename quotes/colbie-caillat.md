@@ -1,0 +1,24 @@
+ - I like how my body feels when I’m in shape; I love how it feels after I work out each day. Fitting in the clothes I like to wear comfortably and living a healthy lifestyle is important to me.
+ - I love to exercise outside in the fresh air and sun: hiking, swimming, stand-up paddleboarding, and jogging.
+ - Be happy and comfortable with who you are, whoever it may be.
+ - Creating music fulfills me. It gives me purpose. It connects me with the world...
+ - Writing is my therapy. My feelings build up inside of me and then I sit down and write a song.
+ - Wait a second Why should you care what they think of you? When you’re all alone, by yourself, do you like you? Do you like you? You don’t have to try so hard, you don’t have to give it all away, you just have to get up You don’t have to change a single thing.
+ - I miss everything about you Can’t believe that I still want you And after all the things we’ve been through.
+ - A great song should lift your heart, warm the soul and make you feel good.
+ - I don’t like being vulnerable. I feel uncomfortable in it.
+ - I think the older you get, the more you know about life, and the more you learn about yourself and you become comfortable in your own skin. So the older I’m getting, the more fun I’m having.
+ - I try to keep myself busy. I always hang out with my family and friends and my dogs. Go to the beach. Go swimming. Go get exercise. Go on a hike.
+ - When I turned 19 I kinda realized that I needed to write my own songs instead of singing songs written by other people.
+ - I pay attention to how I look but I don’t let it go too far.
+ - Whenever I’m on tour and I’m in my hotel room and I’m writing and playing my guitar, I go in the bathroom and I record whatever I’m writing in there. It’s just what I love to do.
+ - Songwriting is like a therapy, it’s a connection that you have with another person, and I’m not scared of it at all for some reason.
+ - I was always shy and had a huge fear of being onstage.
+ - I usually end up falling for one of my really good guy friends because I know everything about them, and you fall in love with their personalities, and it makes them become attractive to you in your eyes.
+ - And when I perform on my own tour, I have to talk myself into going out on that stage every single night.
+ - I didn’t want to call and schedule shows or call and make people listen to my music. Luckily, my friends and family really stayed on me and made me put myself out there.
+ - Being a musician is a job – it is just a really fun one!
+ - I’m always shy and timid when I write in front of people.
+ - Well, I started writing songs about three years ago when I learned to play the guitar, but I’ve been singing since I was eleven.
+
+22 quotes

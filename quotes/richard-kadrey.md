@@ -1,0 +1,33 @@
+ - Memories are bullets. Some whiz by and only spook you. Others tear you open and leave you in pieces.
+ - In the Tarot deck, the Fool is depicted as a young man about to step off a cliff into empty air. Most people assume that the Fool will fall. But we don’t see it happen, and a Fool doesn’t know that he’s subject to the laws of gravity. Against all odds, he just might float.
+ - No wonder Sherlock Holmes did all that coke. Math is hard.
+ - Enemies will kill you with a knife in the back. Friends will kill you with kindness. Either way you’re dead.
+ - When you’re born in a burning house, you think the whole world is on fire. But it’s not.
+ - It doesn’t matter if you and everyone else in the room are thinking it. You don’t say the words. Words are weapons. They blast big bloody holes in the world. And words are bricks. Say something out loud and it starts turning solid. Say it loud enough and it becomes a wall you can’t get through.
+ - Did I hurt your feelings again? Sorry. When this is all over I’ll send some flowers to your inner child.
+ - I’ve come a long way to get nowhere at all, I thought. And I’ve spent everything I have to get here.
+ - I tap a Malediction out of the box, fire it up, and puff. It tastes like a tire fire in a candy factory next door to a strip club. The best cigarettes ever.
+ - When you jump off a cliff, is it better to land on jagged rocks or burning lava? I know this one. The answer is obvious: It doesn’t matter where you land. You just jumped off a cliff.
+ - In this life, no matter what anyone promises you, what allegiances of love or fealty they swear or what gods they pray to, you will never have more than what you have at this moment.
+ - Try not to sing too many sad songs for yourself. The universe already hates you. Self-pity isn’t going to help.
+ - If Donald Trump and the Wicked Witch of the West had a kid, it would be Jayne-Anne. She looks like a librarian with some money and good taste in clothes but underneath the Verace, she’s Godzilla with tits.
+ - Being able to embrace contradictions is a sign of intelligence. Or insanity.
+ - Let me make sure I have this straight. The cavalry just now rode into town and it’s a Czech Gypsy porn-star zombie killer. Have I got that right?
+ - If Jesus was a bartender, He would still only be half as cool as Carlos.
+ - The ashes of your existence will fertilize the soil for the universe to follow.
+ - All losers are romantics. It’s what keeps us from blowing our brains out.
+ - The dead think they can get away with anything because you’ll feel sorry for them. If you play cards with the dead, make sure you deal and don’t let them buy you drinks. They’ll slip you a formaldehyde roofie and pry the gold fillings out of your teeth.
+ - Chasing a burning girl down a city street is a lot harder than it sounds. Civilians tend to stop and stare and this turns them into human bowling pins. Slow whiny bowling pins.
+ - I came ready to fight Genghis Khan and I walk in on a shut-in playing the biggest Dungeons and Dragons game in history.
+ - The place looks like where David Lynch would meet Beaver Cleaver’s mom for secret afternoons of bondage and milkshakes.
+ - I seldom feel trapped by my world. Setting up rules and restrictions is part of the process. It gives your world shape. I always look at these things like haiku: you have to work within certain parameters, but within them, you’re completely free.
+ - I’m steel-toed boots in a ballet-slipper world.
+ - God is the great janitor of the universe. Why things don’t work is that we have a janitor in charge, and we keep looking for the landlord.
+ - If his drunkenness had legs, it would be Alexander the Great and conquer the known world. Then it would puke for a week into a solid gold toilet it stole from Zeus’s guest room.
+ - Twenty percent? What am I, your waiter? I got you five vampires, not a BLT.
+ - I’d like to think they’re staring at me because of my white-hot animal magnetism, but I’m not Elvis. I’m Lobster Boy, hear me roar.
+ - If I learned anything Downtown, it’s this: the only real difference between an enemy and a friend is the day of the week.
+ - We must always look after our friends, even when they are foolish. Especially when they are foolish.
+ - He wore his fear on his skin for everyone to see.
+
+31 quotes

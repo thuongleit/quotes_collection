@@ -1,0 +1,67 @@
+ - Punctuality is the soul of business.
+ - Over-confidence is as evil as undue anxiety.
+ - Circumstances alter cases.
+ - No one is rich whose expenditures exceed his means, and no one is poor whose incomings exceed his outgoings.
+ - Hope is a pleasant acquaintance, but an unsafe friend.
+ - To carry care to bed is to sleep with a pack on your back.
+ - A woman has two smiles that an angel might envy, the smile that accepts a lover before words are uttered, and the smile that lights on the first born babe, and assures it of a mother’s love.
+ - Wise men, like wine, are best when old; pretty women, like bread, are best when young.
+ - Favoritism manifests itself in all departments of government, public and private. It is the harder to avoid, because it is so natural.
+ - Give me a chance, says Stupid, and I will show you. Ten to one he has had his chance already, and neglected it.
+ - The suspicious parent makes an artful child.
+ - Women forgive injuries, but never forget slights.
+ - We reckon hours and minutes to be dollars and cents.
+ - When a man is wrong and won’t admit is, he always gets angry.
+ - A brave man is sometimes a desperado: a bully is always a coward.
+ - There is music wherever there is harmony, order, or proportion.
+ - Mothers can get weaned as well as babies.
+ - Be it remembered that we command nature, as it were, by obeying nature’s laws; so the woman who would control her husband does so through obedience.
+ - Nicknames stick to people, and the most ridiculous are the most adhesive.
+ - Fun has no limits. It is like the human race and face; there is a family likeness among all the species, but they all differ.
+ - Death and taxes are inevitable.
+ - Money is a necessity; so is dirt.
+ - The memory of past favors is like a rainbow, bright, vivid, and beautiful; but it soon fades away. The in memory of injuries is engraved on the heart, and remains forever.
+ - Hope is a pleasant acquaintance, but an unsafe friend, not the man for your banker, though he may do for a traveling companion.
+ - Just what part of meow don’t you understand?
+ - He who sports compliments, unless he takes good aim, may miss his mark, and be wounded by the recoil of his own weapon.
+ - Fact is stranger than fiction.
+ - Mules and human jackasses are proverbially stubborn.
+ - If you have a thrust to make at your friend’s expense, do it gracefully, it is all the more effective. Some one says the reproach that is delivered with hat in hand is the most telling.
+ - Some people have a perfect genius for doing nothing, and doing it assiduously.
+ - Life ain’t all beer and skittles.
+ - Ceremony is all backbone.
+ - Nature’s bank-dividends.
+ - Whenever there is authority, there is a natural inclination to disobedience.
+ - A temperate anger has virtue in it.
+ - Contentment is, after all, simply refined indolence.
+ - Loud-dressing men and women have also loud characters.
+ - Avarice fills its purse at the expense of its belly.
+ - A coxcomb is four-fifths affectation and one-fifth vanity.
+ - Hurry is only admissible in catching flies.
+ - There is the kiss of welcome and of parting, the long, lingering, loving, present one; the stolen, or the mutual one; the kiss of love, of joy, and of sorrow; the seal of promise and receipt of fulfillment.
+ - People have no right to make fools of themselves, unless they have no relations to blush for them.
+ - I have learnt a good deal from my own talk.
+ - Fastidiousness is the envelope of indelicacy.
+ - Vanity is not half a bad principle, if it will but stick to legitimate business.
+ - A man is never astonished that he doesn’t know what another does, but he is surprised at the gross ignorance of the other in not knowing what he does.
+ - There is nothing like fun, is there? I haven’t any myself, but I do like it in others.
+ - Lawyers are like spiders, they’ve eat up all the flies, and I guess they’ll have to eat each other soon.
+ - One of the old philosophers says that it is the part of wisdom to sometimes seem a fool; but in our day there are too many ready-made ones to render this a desirable policy.
+ - Every man’s religion is his own, and nobody else’s business.
+ - As soon as a woman begins to dress “loud,” her manners and conversation partake of the same element.
+ - Impossible desires are the height of unreason.
+ - What a sight there is in that “smile!” it changes like a chameleon. There is a vacant smile, a cold smile, a smile of hate, a satiric smile, an affected smile; but, above all, a smile of love.
+ - It is easier to make money than to save it. One is exertion, the other, self-denial.
+ - Women will sometimes confess their sins, but I never knew one to confess her faults.
+ - An uncontrolled imagination may become as surely intoxicated by overindulgence as a toper may do bodily with strong drink.
+ - If it were not for a goodly supply of rumors, half true and half false, what would the gossips do?
+ - Self-possession is the backbone of authority.
+ - The happiness of every country depends upon the character of its people, rather than the form of its government.
+ - Absurdities die of self-strangulation.
+ - A woman who wants a charitable heart wants a pure mind.
+ - Wishes, like castles in the air, are inexpensive and not taxable.
+ - Look not to a woman’s head for her brains, but rather to her heart.
+ - The bee, though it finds every rose has a thorn, comes back loaded with honey from his rambles; and why should not other tourists do the same?
+ - Failures to heroic minds are the stepping stones to success.
+
+65 quotes

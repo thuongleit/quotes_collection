@@ -1,0 +1,39 @@
+ - To operate within the matrix of power is not the same as to replicate uncritically relations of domination.
+ - Masculine and feminine roles are not biologically fixed but socially constructed.
+ - Possibility is not a luxury; it is as crucial as bread.
+ - I was off to Yale to be a lesbian.
+ - Gender is an identity tenuously constituted in time, instituted in an exterior space through a stylized repetition of acts.
+ - We act and walk and speak and talk in ways that consolidate an impression of being a man or being a woman.
+ - We lose ourselves in what we read, only to return to ourselves, transformed and part of a more expansive world.
+ - Let’s face it. We’re undone by each other. And if we’re not, we’re missing something.
+ - Perhaps the promise of phallus is always dissatisfying in some way.
+ - Gender is a kind of imitation for which there is no original; in fact, it is a kind of imitation that produces the very notion of the original as an effect and consequence of the imitation itself.
+ - Peace is a certain resistance to the terrible satisfactions of war. It’s a commitment to living with a certain kind of vulnerability to others and susceptibility to being wounded that actually gives our individual lives meaning.
+ - I think that every sexual position is fundamentally comic.
+ - Whether or not we continue to enforce a universal conception of human rights at moments of outrage and incomprehension, precisely when we think that others have taken themselves out of the human community as we know it, is a test of our very humanity.
+ - I am much more open about categories of gender, and my feminism has been about women’s safety from violence, increased literacy, decreased poverty and more equality.
+ - Let’s face it. We’re undone by each other. And if we’re not, we’re missing something. If this seems so clearly the case with grief, it is only because it was already the case with desire. One does not always stay intact.
+ - Indeed it may be only by risking the incoherence of identity that connection is possible.
+ - To say that gender is performative is a little different because for something to be performative means that it produces a series of effects. We act and walk and speak and talk in ways that consolidate an impression of being a man or being a woman.
+ - Peace is a resistance to the terrible satisfactions of war .
+ - When we say gender is performed, we usually mean that weve taken on a role or were acting in some way and that our acting or our role playing is crucial to the gender that we are and the gender that we present to the world.
+ - I think we are affected by others in all kinds of ways. I do understand what it’s like to wish to control the conditions under which we can be affected by other human beings, but none of us really are.
+ - Sexual harassment law is very important. But I think it would be a mistake if the sexual harassment law movement is the only way in which feminism is known in the media.
+ - Love is not a state, a feeling, a disposition, but an exchange, uneven, fraught with history, with ghosts, with longings that are more or less legible to those who try to see one another with their own faulty vision.
+ - In the first instance, performativity must be understood not as a singular or deliberate ‘act,’ but, rather, as the reiterative and citational practice by which discourse produces the effects that it names.
+ - The violence of language consists in its effort to capture the ineffable and, hence, to destroy it, to seize hold of that which must remain elusive for language to operate as a living thing.
+ - Until we learn that other lives are equally grievable and have an equal demand on us to be grieved – especially the ones that we’ve helped to eliminate – I’m not sure we’ll really be on the way to overcoming the problem of dehumanization.
+ - What is most important is to cease legislating for all lives what is liveable only for some, and similarly, to refrain from proscribing for all lives what is unlivable for some.
+ - Parody by itself is not subversive, and there must be a way to understand what makes certain kinds of parodic repetitions effectively disruptive, truly troubling, and which repetitions become domesticated and recirculated as instruments of cultural hegemony.
+ - I think that public grieving is a good thing. People need to be grieved; loss needs to be acknowledged publicly, because it helps to confer a sense of reality on the loss but also because it makes it known that this was a real life.
+ - Do we need recourse to a happier state before the law in order to maintain that contemporary gender relations and the punitive production of gender identities are oppressive?
+ - War begets war. It produces outraged and humiliated and furious people. That is almost invariably the case.
+ - Race and class are rendered distinct analytically only to produce the realization that the analysis of the one cannot proceed without the other. A different dynamic it seems to me is at work in the critique of new sexuality studies.
+ - Photography has a relation to intervention, but photographing is not the same as an intervening.
+ - The life doesn’t simply get erased. It gets imprinted and remembered.
+ - It seems, though, that historically we have now reached a position in which Jews cannot legitimately be understood always and only as presumptive victims.
+ - It seems to me that responsiveness is a better source for understanding what moral claims are and how they work upon us.
+ - I’m no great fan of the phallus, and have made my own views known on this subject before, so I do not propose a return to a notion of the phallus as the third term in any and all relations of desire.
+ - Obama’s failure to close Guantanamo is yet another instance where the rhetoric of democratic and constitutional rights proved not useful for his international relations, relations which are always pursued in ways that continue to link and fortify securitarian power with the opening of new markets.
+
+37 quotes

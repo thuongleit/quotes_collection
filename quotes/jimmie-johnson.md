@@ -1,0 +1,39 @@
+ - The thing I love about off-road racing is the pride in how abusive it is.
+ - The competition in today’s world of racing is so tough.
+ - I grew up racing off-road trucks. They were on road courses with jumps. I made a name for myself in that style of racing.
+ - I own motorized bar stools.
+ - NASCAR does a good job of trying to keep things equal with new rules. We’re not allowed to have computers in our cars to tell the crew what’s going on. So the only thing you have is the driver, and the driver-crew chief relationship. That’s the most important thing.
+ - I just don’t have words to express how proud I am of this race team.
+ - A losing football team looks at excuses. A championship football team looks at solutions.
+ - I don’t need to break the speed limit. But if I’m not passing other vehicles on the interstate, I get a little irritated.
+ - There’s just a pit that develops in your stomach and doesn’t go away. It’s the championship pit, and it’s there.
+ - I do find it amusing when somebody cuts me off, makes an aggressive move on me in a car. I’m like, ‘Do you have any idea what I do for a living? Why?’
+ - The Daytona 500 is a career-winning race. It defines careers for drivers, crew members, crew chiefs and race teams. It has that power.
+ - I’d love to have an opportunity to tie the greats in Richard Petty and Dale Earnhardt Sr.
+ - I grew up in a very simple home, a very simple background, and to be able to do what I’m able to do today, I’m very honored. I don’t think I’ll ever lose that perspective, and I don’t want to.
+ - I’ve been very fortunate to dodge a nickname throughout my entire career. I’ve never had one.
+ - Very few athletes have the chance to be brought into the White House.
+ - My fans are always extremely loyal.
+ - I feel I’m entitled to my opinion, right or wrong.
+ - How do you say no when a little kid is asking you for ice cream? I know I can’t say no to it myself.
+ - Driving will never be away from me – I can’t just give it up. It’s all I’ve ever done, and there’s something about being in that car.
+ - I have a lot of confidence in myself, a lot of confidence in the race team, our equipment and if my mind plays games on me, I just fall back on the team.
+ - We’ve got a lot of racing left, but when we’re winning at places we’re not supposed to, you better watch out.
+ - Experience is invaluable. I can’t express enough how much experience in this sport has helped me as a driver.
+ - I swam in high school.
+ - There is no other way to start the season than to win the Daytona 500.
+ - I’ve always looked for my affirmation through my peers, the people I race against, and within my team.
+ - You watch guys live through their peaks, and then unfortunately, you’ve got to come down from that peak.
+ - I grew up on two wheels in the dirt.
+ - In the World Series, when a pitcher’s not doing his job, they put another one in that can.
+ - NASCAR fans are very knowledgeable and very passionate.
+ - I’ve always wanted to get involved with designing a video game.
+ - I was able to get through the field and get this Lowe’s ProServices Chevy up front. Those last few restarts I was able to hang on and duke it out with those guys and get a nice, top-three finish.
+ - I lift weights four times a week, usually run five days a week.
+ - Since I was kid, what’s drawn me to racing is the feeling inside of me, the passion I have for the sport, the feeling I have while competing and doing what I do in a car, on a bike, whatever it’s been.
+ - I’ve met a handful of presidents, from Jimmy Carter to Bill Clinton to George Bush to Barack Obama.
+ - I lived in Wisconsin for a while, so I keep my eyes on the Packers. I grew up in San Diego, so there’s the Chargers, but outside of that, I’m really kind of lame because I don’t have a specific team I pull for.
+ - I really enjoy the football season.
+ - I didn’t get into racing to make friends.
+
+37 quotes

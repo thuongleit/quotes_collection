@@ -1,0 +1,49 @@
+ - The answer to injustice is not to silence the critic but to end the injustice.
+ - Artists are the gate keepers of truth. We are civilization’s radical voice.
+ - Artists are the radical voice of civilization.
+ - My future depends mostly upon myself.
+ - I shall take my voice wherever there are those who want to hear the melody of freedom or the words that might inspire hope and courage in the face of fear. My weapons are peaceful, for it is only by peace that peace can be attained. The song of freedom must prevail.
+ - Get them to sing your song and they will want to know who you are.
+ - As an artist I come to sing, but as a citizen, I will always speak for peace, and no one can silence me in this.
+ - Art is not just to show life as it is, but to show life as it should be.
+ - The course of history can be changed but not halted.
+ - I do not hesitate one second to state clearly and unmistakably: I belong to the American resistance movement which fights against American imperialism, just as the resistance movement fought against Hitler.
+ - We ask for nothing that is not right, and herein lies the great power of our demand.
+ - Every artist, every scientist, every writer must decide now where he stands. The artist must take sides. He must elect to fight for freedom or for slavery. I have made my choice. I had no alternative.
+ - My father was a slave and my people died to build this country and I am going to stay here and have a part of it just like you.
+ - The artist must elect to fight for Freedom or for Slavery.
+ - Freedom is a hard-bought thing and millions are in chains, but they strain toward the new day drawing near.
+ - This is our home and this is our country. Beneath its soil lie bones of our fathers; for it some of them fought, bled, and died. Here we were born and here we will stay.
+ - I am truly happy that I am able to travel from time to time to the USSR the country I love above all. I always have been, I am now and will always be a loyal friend of the Soviet Union.
+ - In Russia I felt for the first time like a full human being. No color prejudice like in Mississippi, no color prejudice like in Washington. It was the first time I felt like a human being.
+ - We must join with the tens of millions all over the world who see in peace our most sacred responsibility.
+ - I shall take my voice wherever there are those who want to hear the melody of freedom.
+ - If the United States and the United Nations truly want peace and security let them fulfill the hopes of the common people everywhere – let them work together to accomplish on a worldwide scale, precisely the kind of democratic association of free people which characterizes the Soviet Union today.
+ - I learned that along with the towering achievements of the cultures of ancient Greece and China there stood the culture of Africa, unseen and denied by the imperialist looters of Africa’s material wealth.
+ - The intolerance of the few, or the risk of it, carries the day against the wider humanity of the many.
+ - The Korean war has always been an unpopular war among the American people.
+ - Through my singing and acting and speaking, I want to make freedom ring. Maybe I can touch people’s hearts better than I can their minds, with the common struggle of the common man.
+ - I did a long concert tour in England and Denmark and Sweden, and I also sang for the Soviet people, one of the finest musical audiences in the world.
+ - The patter of their feet as they walk through Jim Crow barriers to attend school is the thunder of the marching men of Joshua, and the world rocks beneath their tread.
+ - You know I am an actor, and I have medals for diction.
+ - Americans will be amazed to find ho many of the modern dance steps are relics of the African heritage.
+ - This United States Government should go down to Mississippi and protect my people. That is what should happen.
+ - Whether I am or am not a Communist is irrelevant. The question is whether American citizens, regardless of their political beliefs or sympathies, may enjoy their constitutional rights.
+ - I said it was my feeling that the American people would struggle for peace, and that has since been underscored by the President of these United States.
+ - Freedom is a hard-bought thing.
+ - As Americans, preserving the best of our traditions, we have the right- nay the duty-to fight for participation in the forward march of humanity.
+ - At every step the vast majority have expressed horror at the idea of an aggressive war.
+ - Yes, I heard my people singing!-in the glow of parlor coal-stove and on summer porches sweet with lilac air, from choir loft and Sunday morning pews-and my soul was filled with their harmonies.
+ - And at home in the United States we found continued and increased persecution, first of leaders of the Communist Party, and then of all honest anti-fascists.
+ - Yes, peace can and must be won, to save the world from the terrible destruction of World War III.
+ - Sometimes great injustices may be inflicted on the minority when the majority is in the pursuit of a great and just cause.
+ - In my music, my plays, my films, I want to carry always this central idea: to be African.
+ - Like any other people, like fathers, mothers, sons and daughters in every land, when the issue of peace or war has been put squarely to the American people, they have registered for peace.
+ - Could I say that the reason that I am here today, you know, from the mouth of the State Department itself, is: I should not be allowed to travel because I have struggled for years for the independence of the colonial peoples of Africa.
+ - And, gentlemen, they have not yet done so, and it is quite clear that no Americans, no people in the world probably, are going to war with the Soviet Union.
+ - In fact, because of this deep desire for peace, the ruling class leaders of this land, from 1945 on, stepped up the hysteria and propaganda to drive into American minds the false notion that danger threatened them from the East.
+ - But the deep desire for peace remained with the American people.
+ - As Americans, preserving the best...
+ - I am being tried for fighting for the right of my people, who are still second-class citizens in this United States of America.
+
+47 quotes

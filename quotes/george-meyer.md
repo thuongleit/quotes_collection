@@ -1,0 +1,42 @@
+ - The most oblivious people are often the happiest.
+ - Clever is the eunuch version of funny.
+ - There’s a built-up tension in religion, and if you can release it, you’ll get a huge and satisfying laugh.
+ - For me, marriage is a grotesque, unforgiving, clunky contrivance. Yet society pushes it as a shimmering ideal.
+ - You have to respect people’s suffering. To deny that the world is unfair and painful for most of the people living in it would be false and judgmental.
+ - Men often struggle with their attraction to other women. They don’t quite understand why they have to be with the same woman forever.
+ - I don’t like that The Simpsons are spokespeople for Burger King and MasterCard and Butterfinger. In the first Gulf War, I was really upset that the Simpsons characters were being drawn on tanks and bombs. But those are things that I don’t control.
+ - Life is challenging for everyone. If someone can believe that he’s a sovereign in his tiny domain, it’s just an adaptation to life.
+ - I don’t know what the universe is all about, but to me, nothing is gained by slapping a God sticker on it. It has never been a comfort to me to believe there’s an all-seeing eye in the sky.
+ - I prefer to linger on the periphery before making a commitment.
+ - I tend to look at the world more from Voltaire’s perspective. Incidentally, if you haven’t read Candide lately, it’s a fabulous book. It’s riotously, laugh-out-loud funny in a way that no Shakespeare comedy will ever be.
+ - If there’s reason for hope, it lies in man’s occasional binges of cooperation. To save our planet, we’ll need that kind of heroic effort, in which all types of people join forces for the common good.
+ - Advertising is a conscienceless industry, populated by cowards and idiots, that warps and drains everyone. It eggs on the worst in all of us. If I could eliminate either advertising or nuclear weapons, I would choose advertising.
+ - As a writer you sometimes feel the need to shake things up.
+ - I find that the creative side of my brain and the archival side of my brain don’t work well together. When I’ve done my best work, I’ve been in a trance-like state.
+ - To me, a mark of maturity is realizing that nobody runs the world. Fat cat politicians and secret conspiracies don’t control our lives. In reality, the world is much more complex than that.
+ - I have nothing but respect for the purist who won’t work for the pharaoh. But I’m not that strong.
+ - When people have no interest in a subject, it’s very hard to get them to laugh about it.
+ - I was brought up Catholic and, of course, I strayed and repudiated it. That’s a painful thing to go through, because you have to look back and realize that you wasted a gigantic chunk of your life.
+ - I want to be tolerant of other people’s beliefs. I have wonderful friends who are religious, and I don’t want to say that they’re dimwits. They should certainly be able to pursue what works for them. I’m just saying that it doesn’t work for me and I don’t want to pretend that it does.
+ - I resisted parenthood for a long, long time. But having a daughter has given me a sense of hopefulness that I didn’t have before.
+ - I had a bumper sticker on my car for a long time that said, “Kill your television.” People helpfully pointed out that I was a total fraud because I was a television writer.
+ - Experience as much as you can and absorb a lot of reality. Otherwise, your writing will have the force of a Wiffle ball.
+ - Every joke can’t be dazzling. And if you think you spotted an inconsistency, you did!
+ - When people have no interest in a subject, it’s very hard to get them to laugh about it. If I had to write ten jokes about potholders, I don’t think I could do it. But I could write ten jokes about Catholicism in the next twenty minutes.
+ - I have no idea how it got so big. I was just trying to find something to do while I was living in Boulder, Colorado, which isn’t really a funny town. There are a lot of smart people there, but comedy isn’t at the forefront of their minds.
+ - I guess I started to realize that being an agnostic was such a wimpy position.
+ - I’m not religious. I do have a baby – a four-month old girl – and that’s a religion in itself.
+ - I love that Voltaire was so willing to shock his readers with arbitrary cruelty. And I can completely relate to it.
+ - I guess I’m drawn to religion because I can be provocative without harming something people really care about, like their cars.
+ - Instead of three networks you have three hundred or three thousand. Audiences are inundated with programming, and that sometimes gives them a sense of petulant entitlement.
+ - I’m enthralled by the national yearning that the Russians had during the 50s and 60s. The whole century was pretty rough for them. They suffered genocide, war, poverty, and half the population was sent to labor camps. But they were determined to get into space first.
+ - There’s absolutely no way that something I do on my own is going to be seen in Malaysia.
+ - I have a deep suspicion of social institutions and tradition in general.
+ - As a child, I tried to play by the rules. I got very good grades in school; I was an Eagle Scout; and I believed in all of it.
+ - It was peculiar to be standing so close to him. He’s just a man, but still, what a thing to be Neil Armstrong!
+ - Launching a new TV show is probably one of the most difficult things that a writer can do.
+ - I don’t remember a lot of what I write. I try to release it after it’s out there so that I can be fresh again.
+ - I’m a pessimist, but I have many painstakingly applied coats of optimism.
+ - I don’t like the antagonism that most religions have for science, and freedom and, frankly, individuality. I do like the Dalai Lama.
+
+40 quotes

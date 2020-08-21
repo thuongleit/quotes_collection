@@ -1,0 +1,43 @@
+ - The only limitations are mental. The guy who thinks positively will win.
+ - Sport and health are so important to our nation that they deserve to be right at the front of people’s minds.
+ - Sport fosters many things that are good; teamwork and leadership.
+ - The stopwatch doesn’t lie. The tape measure doesn’t lie.
+ - Having the ambition of becoming Olympic champion is a whole different ambition from wanting to be the greatest.
+ - Retiring was hard. I’d spent 15 years doing something I loved, but when you get older everything seems to go. When I started spending too long with the physio and the doctor, I knew it was time to call it a day. But I had no preparation for being retired and I didn’t know what to do.
+ - Being a decathlete is like having ten girlfriends. You have to love them all, and you can’t afford losing one.
+ - During a photo-call with fellow Olympic gold medallist Duncan Goodhew- Pity Steve Ovett didn’t show up. Then we could have had the good, the bald and the ugly.
+ - In my heart of hearts my motivation would always have been to be the best, and I think that athletics is probably what I was built for.
+ - I’m competitive – that’s what defines me – and I love it.
+ - In sport, if you want to be the best you have to compete against the best – I would much rather have come tenth and be judged against everyone than come first and be judged against just a few.
+ - There’s no day when I don’t think it would be great to be 25 years old and have the Olympics coming in less than 300 days – and be the best in the world. I can’t think of anything so motivating.
+ - Most people doing the decathlon these days are quite boring, so people don’t relate to them.
+ - Sometimes you have to resist working on your strengths in favour of your weaknesses. The decathlon requires a wide range of skills.
+ - People tend to like an athlete’s performance, but if you don’t get a feeling for the individual, you’re not very emotive about them.
+ - There are lots of women tennis players, for instance, but because not many of them seem to have much personality, they’re interchangeable. You don’t have a feeling about them.
+ - When we stage the Olympics it will inspire kids all over the country. A kid in Scotland or Ireland will be encouraged to take up sport.
+ - When I lost my decathlon world record I took it like a man. I only cried for ten hours.
+ - I am an education ambassador, mainly working with schools.
+ - For kids it’s natural to be competitive.
+ - What used to drive me was the fact that I wanted to be better than everybody at something. One of my best qualities is that I used whatever other people found to be an adverse thing to be a positive thing for myself.
+ - I don’t even have my own computer.
+ - When you’re walking into the stadium, you just say to yourself, ‘the 100m is the same anywhere, the shot put is the same weight anywhere.’
+ - I tend to eat vegetables only when I’m with the kids and the rest of the time, I’m a bit slack. But, I am weight-conscious, so I concentrate on avoiding junk food.
+ - I didn’t even know what it was when I started. But I was lucky. I found it at 16. Most people don’t discover decathlon until they’re 21 or 22.
+ - I have the mentality of a winner. I first went to the Olympic Games when I was 17, three weeks after my O-levels, and I remember sitting in a dining-hall filled with the world’s best athletes.
+ - I’m obsessive. I want to know the answer to how good I am. Most people aren’t.
+ - I did not want to be the best black man of the year; I wanted to be the best man of the year.
+ - Athletes these days are too robotic. People like to see performances filled with emotion. In my career I tried to be amusing, to differentiate myself from the other champions.
+ - You can be an Olympic champion in 9.5 secs, but to be the greatest, there’s more to it. It takes a bit of forethought and a lot of mental application.
+ - Los Angeles was great fun because it was the polar opposite of Moscow in 1980. It was sunny and bright, lots of colours around, whereas Moscow was dark and oppressive.
+ - Even if you’ve been involved in a World Cup, the Olympics is huge. Only the Games has the power to change communities.
+ - The decathlon takes so long to learn that people who are good athletes don’t want to go back to the beginning again.
+ - But if kids take up things like hockey and football they will go back to it.
+ - I’ve still got a small fitness and conditioning business where I travel round the world doing stuff for individuals and corporations, mainly fitness training.
+ - We crave instant success these days. If you are a really good sprinter and long jumper, you don’t want to spend two or three years on a whole new set of events. You’re used to doing well and it’s difficult to give that up.
+ - It’s good to be difficult to know. Too many people are too easy to know.
+ - I am only about winning and getting better.
+ - Kids are starting at such a low base rate in terms of fitness that it’s taking them years to catch up to where people like me started from. Every little bit is making it more difficult for kids to succeed on a world stage.
+ - If you don’t want to grow old, then slow down the slowing down process.
+ - Ever since I was a kid, whatever situation I was presented with, I always made the most of it.
+
+41 quotes

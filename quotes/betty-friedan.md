@@ -1,0 +1,69 @@
+ - Aging is not lost youth but a new stage of opportunity and strength.
+ - We can no longer ignore that voice within women that says: ‘I want something more than my husband and my children and my home.’
+ - No woman gets an orgasm from shining the kitchen floor.
+ - When she stopped conforming to the conventional picture of femininity she finally began to enjoy being a woman.
+ - Getting older is an adventure, not a problem.
+ - You can have it all, just not all at the same time.
+ - A girl should not expect special privileges because of her sex, but neither should she “adjust” to prejudice and discrimination.
+ - I’m my age and I feel glorious.
+ - Who knows what women can be when they are finally free to become themselves?
+ - The feminine mystique has succeeded in burying millions of American women alive.
+ - It is easier to live life through someone else than to become complete yourself.
+ - A good woman is one who loves passionately, has guts, seriousness and passionate convictions, takes responsibility, and shapes society.
+ - We need a new political movement of women and men toward a new society.
+ - Men weren’t really the enemy – they were fellow victims suffering from an outmoded masculine mystique that made them feel unnecessarily inadequate when there were no bears to kill.
+ - The feminists had destroyed the old image of woman, but they could not erase the hostility, the prejudice, the discrimination that still remained.
+ - He’s a male chauvinistic piglet.
+ - Protectiveness has often muffled the sound of doors closing against women.
+ - We broke through the feminine mystique and women who were wives, mothers and housewives began to find themselves as people. That didn’t mean they stopped, or had to stop, being mothers, wives or even liking their homes.
+ - The only way for a woman, as for a man, to find herself, to know herself as a person, is by creative work of her own.
+ - The feminist revolution had to be fought because women quite simply were stopped at a state of evolution far short of their human capacity.
+ - Advice? I don’t offer advice. Not my business. Your life is what you make it.
+ - Today the problem that has no name is how to juggle work, love, home and children.
+ - You can show more of the reality of yourself instead of hiding behind a mask for fear of revealing too much.
+ - By now, abortion should be obsolete. And I – and probably a lot of other feminists – wish it were obsolete, because abortion, in itself, is not a value – it is simply the right to chose, which is an essential value.
+ - Each woman is made to feel it is her own cross to bear if she can’t be the perfect clone of the male superman and the perfect clone of the feminine mystique.
+ - A woman has got to be able to say, and not feel guilty, ‘Who am I, and what do I want out of life?’ She mustn’t feel selfish and neurotic if she wants goals of her own, outside of husband and children.
+ - Instead of fulfilling the promise of infinite orgasmic bliss, sex in the America of the feminine mystique is becoming a strangely joyless national compulsion, if not a contemptuous mockery.
+ - We need to see men and women as equal partners, but its hard to think of movies that do that. When I talk to people, they think of movies of forty-five years ago! Hepburn and Tracy!
+ - I loved my kids. And I loved my house, and I loved a lot of things about my life in the 1950s. But there were a lot like me in that era, very overeducated housewives.
+ - I understood somehow my mother’s frustration. And that it was no good not only for her, but for her children or her husband, that she didn’t have a real use of her ability.
+ - To protest free speech in the name of protecting women is dangerous and wrong.
+ - Men are not the enemy, but the fellow victims. The real enemy is women’s denigration of themselves.
+ - The problem that has no name-which is simply the fact that American women are kept from growing to their full human capacities-is taking a far greater toll on the physical and mental health of our country than any known disease.
+ - Regardless of your age, you will always have adventures, unexpected joys and unexpected sorrows.
+ - Chosen motherhood is the real liberation. The choice to have a child makes the whole experience of motherhood different, and the choice to be generative in other ways can at last be made, and is being made by many women now, without guilt.
+ - It is perhaps beside the point to remark that bowling alleys and supermarkets have nursery facilities, while schools and colleges and scientific laboratories and government offices do not.
+ - You have to say no to the old ways before you can begin to find the new yes you need.
+ - When I was in high school, even in college, I didn’t have any real image of a career woman or a professional woman.
+ - If divorce has increased by one thousand percent, don’t blame the women’s movement. Blame the obsolete sex roles on which our marriages were based.
+ - Diversity has got to be a part of modern feminism, and I think that my feminism is stronger because its an inclusive thing. I won’t be backed into a corner that polarizes me against other women. And I wished they wouldn’t be either.
+ - I realized that what I was saying was threatening, somehow, to the editors of women’s magazines. That it threatened the very world they were trying to paint, what I then called the “feminine mystique.”
+ - I can’t point to any major episodes of sexual discrimination in my early life. But I was so aware of the crime, the shame that there was no use of my mother’s ability and energy.
+ - It is frightening when a woman finally realizes that there is no answer to the question ‘who am I’ except the voice inside herself.
+ - A woman is handicapped by her sex, and handicaps society, either by slavishly copying the pattern of man’s advance in the professions, or by refusing to compete with man at all.
+ - Whatever I wrote was heretical. It offended the editors of the women’s magazines.
+ - The situation of women and men is not comparable to worker-boss or black and white.
+ - I would have much rather been in the jalopy with the kids, going to Hunt’s for hamburgers. But, when I entered high school, all my friends got into sororities and fraternities and I didn’t.
+ - While I had been, I guess, quite brilliant, academically, in my college years, I also had been editor of the paper, and I loved that. And, that was a much more active thing. And I missed it when I was doing graduate work.
+ - If I were a man, I would strenuously object to the assumption that women have any moral or spiritual superiority as a class.
+ - Aging will create the music of the coming century.
+ - Women, because they are not generally the principal breadwinners, can be perhaps most useful as the trail blazers, working along the bypaths, doing the unusual job that men cannot afford to gamble on.
+ - Being Jewish, you didn’t get into a sorority. So I really was much more outgoing and gregarious. I really didn’t want to spend an Emily Dickinson adolescence reading poetry on gravestones, which I did.
+ - I have discovered that there is a crucial difference between society’s image of old people and ‘us’ as we know and feel ourselves to be.
+ - I wouldn’t be satisfied with a life lived solely on the barricades. I reserve my right to be frivolous.
+ - My adolescence was quite miserable, when I look back on it, at least my early part of my adolescence. Because there was anti-Semitism in Peoria, and I didn’t feel that when I was in elementary school.
+ - It is better for a woman to compete impersonally in society, as men do, than to compete for dominance in her own home with her husband, compete with her neighbors for empty status, and so smother her son that he cannot compete at all.
+ - Most of the people in the workforce today will spend some years when they also have children and family responsibilities.
+ - When one begins to think about it, America depends rather heavily on women’s passive dependence, their femininity. Femininity, if one still wants to call it that, makes American women a target and a victim of the sexual sell.
+ - If you were very bright and you became head of a department, as I did, of the psychology department, you were encouraged to go on to graduate work. But as a women you didn’t even think about discrimination.
+ - I love newspapers. I’ve worked on newspapers, all my life. I’ve always loved it.
+ - Why the increasing emphasis by professional age experts and the media on – and public acceptance of – the nursing home as the locus of age when, in fact, more than ninety percent of those over sixty-five continue to live in the community?
+ - I didn’t want to be in a situation where I was broader than the boys, which I was, in the academic world.
+ - Just as darkness is sometimes defined as the absence of light, so age is defined as the absence of youth.
+ - American women were frustrated in just the role of housewife – but they also managed to enlarge it. And they weren’t just housewives, they were community leaders.
+ - Dominance is a burden. Most men who are honest will admit that.
+ - I knew one thing. I did not want to be a mommy like mommy.
+ - There is absolutely no evidence that it is harmful to children if their mother’s health, well-being and autonomy and control of her own destiny is maximized by work outside the home.
+
+67 quotes

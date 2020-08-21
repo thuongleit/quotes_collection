@@ -1,0 +1,33 @@
+ - You’re my best friend, Shmuel,’ he said. ‘My best friend for life.
+ - I think i’m just breathing, that’s all. And there’s a difference between breathing and being alive.
+ - What exactly was the difference? he wondered to himself. And who decided which people wore the striped pajamas and which people wore the uniforms?
+ - The dot that became a speck that became a blob that became a figure that became a boy.
+ - Just because a man glances up at the sky at night does not make him an astronomer, you know.
+ - Bruno: We’re not supposed to be friends, you and me. We’re meant to be enemies. Did you know that?
+ - Their lost voices Must continue to be heard.
+ - Sitting around miserable all day won’t make you any happier.
+ - Bruno: Why do you wear pajamas all day? Shmuel: The soldiers. They took all our clothes away. Bruno: My dad’s a soldier, but not the sort that takes people’s clothes away.
+ - There’s things that happen in a person’s life that are so scorched in the memory and burned into the heart that there’s no forgetting them.
+ - But still there are moments when a brother and sister can lay down their instruments of torture for a moment and speak as civilized human beings and Bruno decided to make this one of those moments.
+ - It is possible, you know, to drift off to an unknown world and find happiness there. Maybe even more happiness than you’ve ever known before.
+ - It reminds me of how grandmother always had the right costume for me to wear. You wear the right outfit and you feel like the person you’re pretending to be.
+ - War today is such a more visible thing. We see it on television, on CNN. In 1914, war was a concept.
+ - It’s not easy making a living as a writer, and for many years I worked at a Waterstones in Dublin. It was a good environment for an aspiring writer, with lots of events and authors appearing.
+ - Well you’ve been brought here against your will, just like I have. If you ask me, we’re all in the same boat. And it’s leaking.
+ - In his heart, he knew that there was no reason to be impolite to someone, even if they did work for you. There was such a thing as manners after all.
+ - Children’s book writers tend to feel quite superior, and adult writers tend to feel they wouldn’t know how to write a children’s book – which might surprise you because I think a lot of people think it’s the other way around.
+ - I was a very quiet child, quite introverted, really. Independent, yes; I didn’t need a lot of supervision. Less so than I did when I got older, maybe. But I was a bookish child, not surprisingly. I could sit quite happily in a corner for hours and entertain myself with books.
+ - It occurs to me that even though Zoya and I are both still alive, my life is already over. She will be taken from me soon and there will be no reason for me to continue without her. We are one person, you see. We are GeorgyandZoya.
+ - I think that books for young people should have serious and important themes, they shouldn’t be trivial. So the books I write, they would be the kind of stories you would write in an adult novel only they just happen to feature a child at the center of them.
+ - I was dropped by my publisher after my first two books. But I always believed in myself.
+ - Do you see the irony at all, Tristan?’ I stare at him and shake my head. He seems determined not to speak again until I do. ‘What irony?’ I ask eventually, the words tumbling out in a hurried heap. ‘That I am to be shot as a coward while you get to live as one.
+ - There will be outrage and disgust and people will turn on me at the last, they will hate me, my reputation will forever be destroyed, my punishment earned, self-inflicted like this gunshot wound, and the world will finally know that I was the greatest feather man of them all.
+ - With the adult ones, I feel I need to get as deep inside the psychology of a character as I can, and that needs to be first-person. In the children’s books, I feel I need some distance. I don’t want to be the nine-year-old at the center of the story. I need to have some type of narrative voice.
+ - He suddenly became convinced that if he didn’t do something sensible, something to put his mind to some use, then before he knew it he would be wondering round the streets having fights with himself and inviting domestic animals to social occasions too.
+ - I enjoy the research element. There are so many stories from the past that interest me, that I want to learn more about, just as an interested person. And if I’m going to learn, if I’m going to research, it’s probably going to lead me to writing a novel.
+ - There is cruelty in the world Eliza, you can see that, can’t you? It surrounds us. It breathes on us. We spend our life trying to escape it.
+ - And I have tried to forget him, I have tried to convince myself that it was just one of those things, but it’s difficult to do that when my body is standing here, eight feet deep in the earth of northern France, while my heart remains by a stream in a clearing in England where I left it weeks ago.
+ - He looked the boy up and down as if he had never seen a child before and wasn’t quite sure what he was supposed to do with one: eat it, ignore it or kick it down the stairs.
+ - Don’t make it worse by thinking it’s more painful than it actually is.
+
+31 quotes

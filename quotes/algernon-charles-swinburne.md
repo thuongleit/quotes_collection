@@ -1,0 +1,82 @@
+ - Blossom by blossom the spring begins.
+ - I will go back to the great sweet mother, Mother and lover of men, the sea. I will go down to her, I and no other, Close with her, kiss her and mix her with me.
+ - At the door of life by the gate of breath, There are worse things waiting for men than death.
+ - Yet leave me not; yet, if thou wilt, be free; love me no more, but love my love of thee.
+ - I am tired of tears and laughter, And men that laugh and weep Of what may come hereafter For men that sow to reap: I am weary of days and hours, Blown buds of barren flowers, Desires and dreams and powers And everything but sleep.
+ - Life is the lust of a lamp for the light that is dark till the dawn of the day that we die.
+ - The highest spiritual quality, the noblest property of mind a man can have, is this of loyalty.
+ - Love is more cruel than lust.
+ - Today will die tomorrow.
+ - In hawthorn-time the heart grows light.
+ - Time stoops to no man’s lure.
+ - From too much love of living, From hope and fear set free, We thank with brief thanksgiving Whatever gods may be That no life lives for ever; That dead men rise up never; That even the weariest river Winds somewhere safe to sea.
+ - Ask nothing more of me sweet; All I can give you I give; Heart of my heart were it more, More would be laid at your feet...
+ - Love, till dawn sunder night from day with fire Dividing my delight and my desire...
+ - Before the beginning of years There came to the making of man Time with a gift of tears, Grief with a glass that ran .
+ - Faith speaks when hope is disassembled; faith lives when hope dies dead.
+ - I shall sleep, and move with the moving ships, Change as the winds change, veer in the tide.
+ - I remember the way we parted, The day and the way we met; You hoped we were both broken-hearted And knew we should both forget.
+ - As a god self-slain on his own strange altar, Death lies dead.
+ - Love lies bleeding in the bed whereover Roses lean with smiling mouths or pleading: Earth lies laughing where the sun’s dart clove her: Love lies bleeding.
+ - Marvellous mercies and infinite love.
+ - Fate is a sea without a shore, and the soul is a rock that abides.
+ - We are not sure of sorrow, And joy was never sure; Today will die tomorrow; Time stoops to no man’s lure.
+ - His speech is a burning fire.
+ - There is no God found stronger than death; and death is a sleep.
+ - The sweetest flowers in all the world- A baby’s hands.
+ - If you were Queen of pleasure And I were King of pain We’d hunt down Love together, Pluck out his flying-feather, And teach his feet a measure, And find his mouth a rein; If you were Queen of pleasure And I were King of pain.
+ - For the crown of our life as it closes Is darkness, the fruit thereof dust; No thorns go as deep as a rose’s, And love is more cruel than lust. Time turns the old days to derision, Our loves into corpses or wives; And marriage and death and division Make barren our lives.
+ - White rose in red rose-garden Is not so white; Snowdrops, that plead for pardon And pine for fright Because the hard East blows Over their maiden vows, Grow not as this face grows from pale to bright.
+ - There lived a singer in France of old By the tideless dolorous midland sea. In a land of sand and rain and gold There shone one woman, and none but she.
+ - A baby’s feet, like sea-shells pink Might tempt, should heaven see meet, An angel’s lips to kiss, we think, A baby’s feet.
+ - Wherever there is a grain of loyalty there is a glimpse of freedom.
+ - There is no safety-net to protect against attraction.
+ - For words divide and rend But silence is most noble till the end.
+ - Body and spirit are twins: God only knows which is which.
+ - Despair the twin-born of devotion.
+ - Stately, kindly, lordly friend Condescend Here to sit by me.
+ - A little soul scarce fledged for earth Takes wing with heaven again for goal, Even while we hailed as fresh from birth A little soul.
+ - Sleep; and if life was bitter to thee, pardon, If sweet, give thanks; thou hast no more to live; And to give thanks is good, and to forgive.
+ - Not with dreams, but with blood and with iron, Shall a nation be moulded at last.
+ - To wipe off the froth of falsehood from the foaming lips of inebriated virtue, when fresh from the sexless orgies of morality and reeling from the delirious riot of religion, may doubtless be a charitable office.
+ - Hope thou not much, and fear thou not at all.
+ - In fierce March weather White waves break tether, And whirled together At either hand, Like weeds uplifted, The tree-trunks rifted In spars are drifted, Like foam or sand.
+ - In the world of dreams, I have chosen my part. To sleep for a season and hear no word Of true love’s truth or of light love’s art, Only the song of a secret bird.
+ - His life is a watch or a vision Between a sleep and a sleep.
+ - I dore not always touch her, lest the kiss Leave my lips charred. Yea, Lord, a little bliss, Brief, bitter bliss, one hath for a great sin; Nathless thou knowest how sweet a thing it is.
+ - Let weakness learn meekness.
+ - Forget that I remember And dream that I forget.
+ - While three men hold together, the kingdoms are less by three.
+ - And the best and the worst of this is That neither is most to blame, If you have forgotten my kisses And I have forgotten your name.
+ - To have read the greatest works of any great poet, to have beheld or heard the greatest works of any great painter or musician, is a possession added to the best things of life.
+ - Then star nor sun shall waken, Nor any change of light: Nor sound of waters shaken, Nor any sound or sight: Nor wintry leaves nor vernal; Nor days nor things diurnal; Only the sleep eternal In an eternal night.
+ - Heart’s ease of pansy, pleasure or thought, Which would the picture give us of these? Surely the heart that conceived it sought Heart’s ease.
+ - There was a poor poet named Clough, Whom his friends all united to puff, But the public, though dull, Had not such a skull As belonged to believers in Clough.
+ - Thou has conquered, O pale Galilean.
+ - Time turns the old days to derision, Our loves into corpses or wives.
+ - In the world of dreams, I have chosen my part.
+ - There is no such thing as a dumb poet or a handless painter. The essence of an artist is that he should be articulate.
+ - When fate has allowed to any man more than one great gift, accident or necessity seems usually to contrive that one shall encumber and impede the other.
+ - But now, you are twain, you are cloven apart Flesh of his flesh, but heart of my heart.
+ - Is not Precedent indeed a King of men? A Word from the Psalmist.
+ - God’s own hand Holds fast all issues of our deeds: with him The end of all our ends is, but with us Our ends are, just or unjust: though our works Find righteous or unrighteous judgment, this At least is ours, to make them righteous.
+ - To say of shame – what is it? Of virtue – we can miss it; Of sin-we can kiss it, And it’s no longer sin.
+ - Change lays her hand not upon the truth.
+ - The tadpole poet will never grow into anything bigger than a frog; not though in that stage of development he should puff and blow himself till he bursts with windy adulation at the heels of the laureled ox.
+ - There grows No herb of help to heal a coward heart.
+ - She knows not loves that kissed her She knows not where. Art thou the ghost, my sister, White sister there, Am I the ghost, who knows? My hand, a fallen rose, Lies snow-white on white snows, and takes no care.
+ - No blast of air or fire of sun Puts out the light whereby we run With girdled loins our lamplit race, And each from each takes heart of grace And spirit till his turn be done.
+ - The sun is all about the world we see, the breath and strength of every spring.
+ - The tadpole poet will never grow into anything bigger than a frog.
+ - And lo, between the sundawn and the sun His day’s work and his night’s work are undone: And lo, between the nightfall and the light, He is not, and none knoweth of such an one.
+ - When I hear that a friend has fallen into matrimony, I feel the same sorrow as if I had heard of his lapsing into theism.
+ - The more congenial page of some tenth-rate poeticule worn out with failure after failure and now squat in his hole like the tailless fox, he is curled up to snarl and whimper beneath the inaccessible vine of song.
+ - Fear that makes faith may break faith.
+ - The beast faith lives on its own dung.
+ - Though one were fair as roses His beauty clouds and closes.
+ - Hope knows not if fear speaks truth, nor fear whether hope be blind as she.
+ - The delight that consumes the desire, The desire that outruns the delight.
+ - My loss may shine yet goodlier than your gain When Time and God give judgment.
+ - Sorrow, on wing through the world for ever, Here and there for awhile would borrow Rest, if rest might haply deliver Sorrow...
+
+80 quotes

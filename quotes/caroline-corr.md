@@ -1,0 +1,23 @@
+ - Well I had a musical background, but I still didn’t know a lot about drums at the time.
+ - In Ireland, it’s been like U2 and The Cranberries, which is rock, but you know they’re Irish.
+ - Our parents were very strict. Not in a brutal or awful way, but there were definite rules, such as after six on a school night you didn’t go out, and at weekends you had to be home by a certain time. It wasn’t particularly sheltered, but we were well brought-up.
+ - We’ve worked very hard as a band and would like to think we’ve got this far on the strength of our music.
+ - I listened to a lot of bands that were happening at the time, but no one in particular.
+ - There was no one in particular I really tried to copy.
+ - I would like not only to have a successful band, but I want to have children, a home, and a husband. Two or three. Children, not husbands!!!
+ - Actually, I wear the nail polish to hide how grubby my nails are.
+ - A lot of the songs are written on piano or guitar, so I contribute, and I have done so since the beginning. So it’s been good to be involved completely musically as well.
+ - Waking up with a bad head in the morning is difficult sometimes.
+ - I used to play the piano in the band, and so there’s some horrendous scenes of me playing the keyboards.
+ - I’ve always stayed pretty fit. I felt I needed to give myself energy by exercising and things like that.
+ - It’s been crazy trying to tour with a baby. But it’s actually working out okay.
+ - We play our Irish songs a bit more loosely.
+ - Yes, my mother was a singer, and my father played piano and keyboards. They were in a band together, though they also had regular jobs because they had kids and stuff like that.
+ - I do like to look at female drummers, because I am one.
+ - Our parents were musicians.
+ - I remember my first show was a live TV show in Ireland, and I was just petrified. It was horrific.
+ - I mean, y’know, platinum is different in every country, which can be confusing.
+ - And I’ve played piano since I was little, so I was originally the piano player in the band.
+ - Oh yeah, we all write. That’s what’s great about when you have basics in piano.
+
+21 quotes

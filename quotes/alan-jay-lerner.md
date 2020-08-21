@@ -1,0 +1,27 @@
+ - Don’t let it be forgot, that once there was a spot, for one brief shining moment, that was known as Camelot.
+ - Mud can make you prisoner and the plains can make you dry. Snow can burn your eyes but only people make you cry.
+ - Back home everyone said I didn’t have any talent. They might be saying the same thing here but it sounds better in French.
+ - Why can’t the English teach their children how to speak?
+ - I could have spread my wings and done a thousand things I’ve never done before.
+ - Why can’t a woman be more like a man? Men are so honest, so thoroughly square; Eternally noble, historically fair; Who, when you win, will always give your back a pat. Why can’t a woman be like that?
+ - Pleasure without joy is as hollow as passion without tenderness.
+ - The winter is forbidden till December, And exits March the second on the dot. By order summer lingers through September In Camelot.
+ - We met at nine We met at eight I was on time No, you were late Ah yes! I remember it well.
+ - A schedule so tight that it would only work if I didn’t sleep on Monday nights.
+ - You see what happens today. Women act like men and want to be treated like women.
+ - For a painter, the Mecca of the world, for study, for inspiration and for living is here on this star called Paris. Just look at it, no wonder so many artists have come here and called it home. Brother, if you can’t paint in Paris, you’d better give up and marry the boss’s daughter.
+ - You write a hit the same way you write a flop.
+ - Men die but an idea does not.
+ - There even are places where English completely disappears. In America, they haven’t used it for years! Why can’t the English teach their children how to speak?
+ - Coughing in the theater is not a respiratory ailment. It is a criticism.
+ - There’s a smile on my face for the whole human race.
+ - An Englishmans way of speaking absolutely classifies him.
+ - It’s not a pretty face, I grant you. But underneath its flabby exterior is an enormous lack of character.
+ - I could have danced all night!
+ - England still will be here without you.
+ - Youth has many glories, but judgement is not one of them, and no amount of electronic amplification can turn a belch into an aria.
+ - Lots of cosy sky That God and I can share. I need air. I need air.
+ - We used to say that inside Cecil Beaton there was another Cecil Beaton sending out lots of little Cecils into the world. One did the sets, another did the costumes. A third took the photographs. Another put the sketches in an exhibition, then into magazines, then in a book.
+ - Why can’t a woman be more like a man?
+
+25 quotes

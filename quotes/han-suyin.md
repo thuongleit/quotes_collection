@@ -1,0 +1,24 @@
+ - Truth, like surgery, may hurt, but it cures.
+ - And there is not anything in the world stronger than tenderness.
+ - Moralists have no place in an art gallery.
+ - We are all products of our time, vulnerable to history.
+ - Sadness is so ungrateful.
+ - People bring to what they see and feel, the inner weather of their souls and complexion of their minds.
+ - Exploitation and oppression is not a matter of race. It is the system, the apparatus of world-wide brigandage called imperialism, which made the Powers behave the way they did.
+ - This is Malaya. Everything takes a long, a very long time, in Malaya. Things get done, occasionally, but more often they don’t, and the more in a hurry you are, the quicker you break down.
+ - Love can never explain the loved one, my dear. It is the essence of wild unreason.
+ - Persecution matures young rebels.
+ - One should never condemn what one cannot understand.
+ - People never think about words, they only feel them.
+ - Strange are the ways of history, where no single thing abides, but all things flow into each other, fragment to fragment clinging...
+ - All humans are frightened of their own solitude. But only in solitude can we learn to know ourselves, learn to handle our own eternal aloneness.
+ - No single crisis shapes a generation; but a succession of events, each one bringing its shaping blows to bear...
+ - Many events seem to happen twice to me; even trifles, unimportant-seeming, recur, as if I were destined to live them again, time reconquered, but with added knowledge and a different outcome.
+ - You can only understand the present age when it is past.
+ - The rice bowl is to me the most valid reason in the world for doing anything. A piece of one’s soul to the multitudes in return for rice and wine does not seem to me a sacrilege.
+ - It is the illusion of all lovers to think themselves unique and their words immortal.
+ - A family is a burial mound of its own doings and sayings...
+ - I really can’t hate more than 5 or 10 years. Wouldn’t it be terrible to be always burdened with those primary emotions you had at one time?
+ - Love from one being to another can only be that two solitudes come nearer, recognize and protect and comfort each other.
+
+22 quotes

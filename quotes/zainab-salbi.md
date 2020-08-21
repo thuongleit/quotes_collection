@@ -1,0 +1,51 @@
+ - Leadership is not about having the charisma or speaking inspirational words, but about leading with example.
+ - Every woman must own her story; otherwise we are all part of the silence.
+ - Sometimes you just have to jump off the cliff without knowing where you will land.
+ - From an economic perspective, women are treated unfairly: they perform 66 percent of the world’s work and produce 50 percent of the food but they only earn 10 percent of the income and own 1 percent of the property.
+ - Passionately enjoy life!
+ - As women, we must speak out, speak up, say no to our inheritance of loss and yes to a future of women-led dialogue about women’s rights and value.
+ - Being a leader for me is about having the courage to speak the truth, and live the truth, despite attempts to silence our thoughts, feelings, and past experiences.
+ - Everything can be taken from you in a second, but the human spirit is so strong. War can teach you so much about evil, and so much about good.
+ - Where has change ever been clean and nice? It has always been messy and painful.
+ - Believe in your passions and act on them.
+ - Without women’s full inclusion at the decision making table, we cannot have any healthy decision making that is good for men and women alike.
+ - Since a very young age, my mother made sure to tell me about the plight of women. As she raised my awareness about women’s issues, she also made sure to ingrain in me the importance of being strong and independent and not to let anybody define me by their images of what women should be.
+ - Like life, peace begins with women. We are the first to forge lines of alliance and collaboration across conflict divides.
+ - Do you know that people fall in love in war and go to school and go to factories and hospitals and get divorced and go dancing and go playing and live life?
+ - No change can come if those who are impacted the most by discrimination are not willing to stand up for themselves.
+ - It is the diversity of views that stems from different experiences and different backgrounds that lead to healthy decision-making and not the unified experiences and unified views.
+ - Everything is give and take. The solutions are in the middle not in the extremity of the situation.
+ - Stronger women build stronger nations.
+ - While women may look different, as some wear suits and others wear saris, or some cover their hair while others wear their hair loose, women need to stand together because they all face the central point of discrimination, although the extremity of which may be different from Kigali to Kabul.
+ - Long-term trauma for women who have survived armed conflict is a haunting reminder that health issues and depression can follow decades after the end of war, but women who hope for healing can and do move forward.
+ - Living in war is a co- existence with death.
+ - The single thing all women need in the world is inspiration, and inspiration comes from storytelling.
+ - Since war often enters homes through the “kitchen door,” we need to understand women’s attempts to keep life going in the face of shortage of food, closing of schools and reduced freedoms.
+ - The injustice is that women continue to be the main target of violence both during wartime and peacetime and yet there is still a lack of a public outrage.
+ - I believe that a lot of progress has been achieved to address gender inequality: We have moved from a time where women in the US could not apply for credit card without their husband’s signature to a time where women are the owners of their businesses.
+ - Leadership is about encouraging women to break their silence and tell their stories to the world.
+ - I firmly believe today that the only way to stop violence against women is to speak out and refused to be silenced.
+ - I find it amazing that the only group of people who are not fighting and not killing and not pillaging and not burning and not raping, and the group of people who are mostly – though not exclusively – who are keeping life going in the midst of war, are not included in the negotiating table.
+ - It appears easier to talk about protecting women than it is to fully include women at all decision-making levels in peace talks and post-conflict planning.
+ - Changes don’t happen in the world by playing it safe, taking risks is the way to change the world.
+ - When war ends, women are the first to pick up the pieces. Where there is no market place, they go door to door. When homes are destroyed, mothers and daughters haul stones to rebuild or plow fields together.
+ - I don’t have a child, so Women for Women is like my child. But I always said I would step down after 20 years. I didn’t want to be a 60-year-old woman holding on to something I created when I was 23.
+ - I believe that leadership acts should be manifested by engaging in external work that can be observed and shared with everyone else.
+ - Working with women survivors of war has taught me that we need to listen to women’s perspectives on war in order to understand how to effectively rebuild a country, a community and a family.
+ - I have come to understand that in order to effectively advance women’s rights, we need to galvanize a global women’s movement.
+ - Only 8 percent of peace talks have included women at any level.
+ - It seems to me that violence against women has been tolerated for so long that the world has become numb to it.
+ - Women are part of peace keeping troops in countries like Liberia.
+ - Women are not just victims; they are survivors and leaders on the community-level backlines of peace and stability.
+ - I by no means intend to simplify the challenges women face in any culture. Women are marginalized in all cultures in my opinion, some in more extreme ways than others.
+ - Historically speaking, religious and conservative groups always wanted the control over the private sphere that impacts women most, as reflected by family law and women’s access to resources and mobility. And often secular groups traded this for economic incentives and trade.
+ - Unfortunately, violence against women is not the only injustice women face globally; it is one of the many inequalities that impede the full development of socially excluded women globally.
+ - I grew up with injustice and could do nothing about it. But once in America, I had freedom of choice.
+ - I believe that there is an urgent need to restructure the discussion of war to include the impact it has on women.
+ - Growing up under Saddam’s rule, I witnessed many injustices occurring everyday in my country and yet I could not do anything to prevent them.
+ - Only 1 in 13 participants in peace negotiations since 1992 has been a woman.
+ - If half the society isn’t engaged on any number of sectors, success and potential will be limited. In that sense, I do definitely believe there is a growing movement and moment for women’s issues.
+ - Women have never been a chief negotiator in any UN-sponsored talks.
+ - From joblessness to lack of education and professional skills to sexual and gender-based violence, women face a multi-faceted oppression.
+
+49 quotes

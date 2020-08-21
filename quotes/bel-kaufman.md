@@ -1,0 +1,28 @@
+ - Education is not a product: mark, diploma, job, money-in that order; it is a process, a never-ending one.
+ - Laughter keeps you healthy. You can survive by seeing the humor in everything. Thumb your nose at sadness; turn the tables on tragedy. You can’t laugh and be angry, you can’t laugh and feel sad, you can’t laugh and feel envious.
+ - Never mind the cream; it will always rise to the top. It’s the skim milk that needs good teachers.
+ - Education can’t make us all leaders, but it can teach us which leader to follow.
+ - To the young, cliches seem freshly minted.
+ - When giving comes directly from the heart, it can never disappoint or embarrass.
+ - Time collapses and expands like an erratic accordion...
+ - And that’s it; that’s why I want to teach; that’s the one and only compensation: to make a permanent difference in the life of a child.
+ - The preciousness of every moment is emphasized with every tick of the clock. Isn’t it a magnificent day today?
+ - But if there is such a thing as social commitment in literature, I think it must manifest itself in a reader’s awareness of the human condition, in the writer’s touching some common nerve ending. I think this kind of social commitment, like a lady’s slip, should be there but it must not show.
+ - I had used my sense of humor; I had called it proportion, perspective. But perspective is distance.
+ - Learning is a process of mutual discovery for teacher and pupil. Keep an open mind to their unexpected responses.
+ - Love is the ultimate giving, an expression of one’s best self.
+ - A teacher is frequently the only adult in the pupil’s environment who treats him with respect.
+ - I’ll never retire as long as I live – that’s like retiring from life! I’ll never stop writing, teaching, lecturing. If you’re in good health, living is exciting on its own.
+ - I so enjoy being old because for the first time I don’t have to do anything-work, teach, study. I feel very good about myself-and at my age I can say no to anything now if I don’t want to do it. What a liberating word.
+ - The heart has its reasons; it’s the mind that’s suspect.
+ - I want to point the way to something that should forever lure them, when the TV set is broken and the movie is over and the school bell has rung for the last time.
+ - Teachers try to make us feel lower than themselves, maybe because this is because they feel lower than outside people. One teacher told me to get out of the room and never come back, which I did.
+ - I feel no different than I felt at 99, 98 or 97. Just because you live a long time, you get all this attention. Just because you survived? Of course, I survived a lot.
+ - If a teacher wants to know something why doesn’t she look it up herself instead of making we students do it? We benefit ourselves more by listening to her, after all she’s the teacher!
+ - I am writing this during my lunch period, because I need to reach towards the outside world of sanity, because I am overwhelmed by the sheer weight of the clerical work still to be done, and because at this hour of the morning normal ladies are still sleeping.
+ - Children are the true connoisseurs. What’s precious to them has no price, only value.
+ - I like the word OLD. Not senior, that’s for proms. Older? Older than whom? ‘Old’ is honorable and ripe.
+ - People ate bread made of the shells of peas because there was no flour.
+ - Mythology is studied in the school system because most of us come from it.
+
+26 quotes

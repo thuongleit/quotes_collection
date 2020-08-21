@@ -1,0 +1,36 @@
+ - My path was simple: Follow your passion. Pour in your heart and soul. Settle for nothing less than excellence. And with enough hard work and faith in yourself, you can realize your dream.
+ - America was built on the can-do spirit and will continue to thrive on the can-do spirit.
+ - Wine to me is passion. It’s family and friends. It’s warmth of heart and generosity of spirit.
+ - Making good wine is a skill; making fine wine is an art.
+ - The greatest leaders don’t rule. They inspire.
+ - I am a great believer in research and innovation.
+ - Wine always inspires sociability.
+ - Later, at Stanford University, I thought I’d become a lawyer or businessman, but my father came to me and said he thought there was a big future in the fine-wine business.
+ - I feel blessed. So many men and women search and search but never find their passion, their calling, their sense of mission that would ignite their hearts and fill their lives with meaning and joy.
+ - We definitely need to get the excitement back.
+ - In both life and work, stay flexible. Whether in a country, a company, or a family, the same holds true: Dictatorship and rigidity rarely work. Freedom and elasticity do.
+ - Wine to me is all about sharing.
+ - I know that wine is, above all else, a blessing, a gift of nature, a joy as pure and elemental as the soil and vines and sunshine from which it springs.
+ - I know of no one who has been more helpful to the industry. His teachings and consultations internationally, without doubt, improved the quality of winemaking in our country. He was a friend to everyone interested in fine wine.
+ - If you go back to the Greeks and Romans, they talk about all three – wine, food, and art – as a way of enhancing life.
+ - It is giving me a great satisfaction, because I had the notion that we could make great wines equal to the greatest wines in the world, and everybody said it was impossible.
+ - We want to raise the art of living well.
+ - I say to consumers: instead of relying totally on critics, drink what you like and like what you drink.
+ - Whether I played marbles, whether I played football or slam anything else, I wanted to excel.
+ - Also, many consumers consider a critic to be like God Almighty.
+ - As I traveled the world over, I traveled everywhere, and I learned so much.
+ - I want to make wines that harmonize with food – wines that almost hug your tongue with gentleness.
+ - Inductee in the Vintner’s Hall of Fame.
+ - I’ve always wanted to improve on the idea of living well, In moderation, wine is good for you – mentally, physically, and spiritually.
+ - My brother and I had saved $15,000 by working many years nailing fruit crates together.
+ - Critics have done the wine industry a lot of good overall.
+ - My mother served me wine and water from the time I was 3 years old.
+ - Even more importantly, it’s wine, food and the arts. Incorporating those three enhances the quality of life.
+ - Ever since I was a child, I wanted to excel in everything.
+ - Once I was able to take care of myself and my children, I then wanted to share.
+ - How beautiful it is to excel, and the goodness of giving from your heart.
+ - I always knew that food and wine were vital, with my mother being Italian and a good cook.
+ - Wine has been with civilized man from the beginning.
+ - There are a lot of people with a lot of money, and I’m amazed they don’t understand what a great pleasure it can be to give.
+
+34 quotes

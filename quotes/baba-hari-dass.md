@@ -1,0 +1,21 @@
+ - Work honestly, meditate everyday, meet people without fear and play.
+ - Cultivate a sympathetic heart, humility in dealings, and selflessness in action. If these are practiced with earnestness and sincerity, then you will win the race of life.
+ - Children copy their parents, friends, and teachers. They will develop the habits of the people around them. So if you want your child to be honest, peaceful and happy you should be that way first.
+ - By running away from the world no one can get peace. Anywhere you go the problems will go with you, because the problems are inside you and not outside. Outside is simply a projection of inside.
+ - The body is a boat that carries the soul in the ocean of the world. If it is not strong, or it has a hole, then it cannot cross the ocean, so the first duty is to fix the boat.
+ - Life is not a burden, but we make it one when we refuse to accept things as they are.
+ - No one can please everyone. Your mental peace is more important. If you are in peace, then others around you will feel peace. So your best effort should be to work on yourself.
+ - We are always learning from each others. Only when we merge inside God would we stop learning. We will understand more as we teach others, so we rely on teaching in order to learn for ourselves.
+ - Who realizes what? That is realization.
+ - When body, breath, and mind work together in harmony to achieve a spiritual goal, that is yoga.
+ - Love everyone, including yourself. This is real sadhana.
+ - Desire is the creator; desire is the destroyer.
+ - You can’t teach a hunter it’s wrong to kill.
+ - As soon as a person starts thinking, ‘I want to be a better person,’ that is the start of Yoga.
+ - If a pickpocket meets a Holy Man, he will see only His pockets.
+ - Husband and wife are like the two equal parts of a soybean. If the two parts are put under the earth separately, they will not grow. The soybean will grow only when the parts are covered by the skin. Marriage is the skin which covers each of them and makes them one.
+ - The world is not a burden; we make it a burden by our desires. When the desires are removed, the world is as light as a feather on an elephant’s back.
+ - If you work on yoga, yoga will work on you.
+ - Tapas is not a penance, it’s a mental training to develop will power.
+
+19 quotes

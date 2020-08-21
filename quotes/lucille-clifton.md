@@ -1,0 +1,26 @@
+ - What they call you is one thing. What you answer to is something else.
+ - Come celebrate with me that every day something has tried to kill me and has failed.
+ - We cannot create what we can’t imagine.
+ - You might as well answer the door, my child, the truth is furiously knocking.
+ - Poems come out of wonder, not out of knowing.
+ - Say it clear, and it will be beautiful.
+ - I write from my knowledge not my lack, from my strength not my weakness. I am not interested if anyone knows whether or not I am familiar with big words, I am interested in trying to render big ideas in a simple way. I am interested in being understood not admired.
+ - I am a black woman poet and I sound like one.
+ - In the bigger scheme of things the universe is not asking us to do something, the universe is asking us to be something. And that’s a whole different thing.
+ - Things don’t fall apart. Things hold. Lines connect in thin ways that last and last and lives become generations made out of pictures and words just kept.
+ - You cannot play for safety and make art.
+ - Poetry is a matter of life, not just a matter of language.
+ - Intellect doesn’t translate across cultures; intuition does.
+ - I don’t go get a poem. It calls me and I accept it.
+ - People wish to be poets more than they wish to write poetry, and that’s a mistake. One should wish to celebrate more than one wishes to be celebrated.
+ - I keep hearing tree talk water words and i keep knowing what they mean.
+ - Every pair of eyes facing you has probably experienced something you could not endure.
+ - All people, even one’s own children, come with baggage. When they’re little, you have to help them carry it. But when they grow up, you have to do that difficult thing of setting their baggage down and taking up your own again.
+ - To be a good poet, you must care more about the writing, than the writer.
+ - The end of a thing, is never the end, something is always being born like a year of a baby.
+ - Children when they ask you why your mama so funny say she is a poet she don’t have no sense.
+ - My Mama Moved Among the Days My Mama moved among the days like a dreamwalker in a field; seemed like what she touched was here seemed like what touched her couldn’t hold, she got us almost through the high grass then seemed like she turned around and ran right back in right back on in.
+ - We need new words for what this is, this hunger entering our loneliness like birds, stunning our eyes into rays of hope. we need the flutter that can save us, something that will swirl across the face of what we have become and bring us grace.
+ - I think that were beginning to remember that the first poets didn’t come out of a classroom, that poetry began when somebody walked off of a savanna or out of a cave and looked up at the sky with wonder and said, “Ahhh.” That was the first poem.
+
+24 quotes

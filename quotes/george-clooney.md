@@ -1,0 +1,197 @@
+ - The only failure is not to try.
+ - Life’s better with company. Everybody needs a co-pilot.
+ - I don’t believe in happy endings but I believe in happy journeys.
+ - You have only a short period of time in your life to make your mark, and I’m there now.
+ - I had to stop going to auditions thinking, ‘Oh, I hope they like me.’ I had to go in thinking I was the answer to their problem.
+ - If you don’t drink coffee, I am suspicious of your character and will not invite you to my Italian lake home.
+ - My life isn’t focused on results. My life is really focused on the process of doing all the things I’m doing, from work to relationships to friendships to charitable work.
+ - I think people in Italy live their lives better than we do. It’s an older country, and they’ve learned to celebrate dinner and lunch, whereas we sort of eat as quickly as we can to get through it.
+ - I don’t know if winning at any cost is wrong or not. There are times I’ve thought that the end justified the means.
+ - Whatever you do, don’t wake up at 65 years old and think about what you should have done with your life.
+ - Hosting is work. It means you don’t get to go up to your room and disappear and take a nap. Like everybody else does after lunch. I’m talking about hosting, not hosting a dinner party, but hosting people staying in your home.
+ - Peace is a fulltime job. It’s protecting civilians, overseeing elections, and disarming ex-combatants. Peace, like war, must be waged.
+ - I think you should automatically donate your organs because that would turn the balance of organ donation in a huge way. I would donate whatever anybody would take, and I’d probably do the cremation bit.
+ - My parents were disappointed I didn’t finish college, and they were really upset when I went to Hollywood to become an actor. I was a big disappointment to them.
+ - At some point in our lifetime, gay marriage won’t be an issue, and everyone who stood against this civil right will look as outdated as George Wallace standing on the school steps keeping James Hood from entering the University of Alabama because he was black.
+ - America can’t beat anyone anymore.
+ - On an awards-show day, I can play basketball, go in, take a shower and put on a tux – it takes me three minutes to put on a tux – and be out the door in 15 minutes.
+ - The rehearsal process in general is about trusting one another.
+ - Anyone would be lying if they said they didn’t get lonely at times.
+ - The timing for directing is usually because it takes that long to develop a piece and then do pre-production and then post-production. It takes at least a couple of years. I prefer directing to doing other things. Directing and writing seem to be infinitely more creative.
+ - I’m not quite sure what the santicity of marriage is.
+ - The best lesson my mom taught me was how to be scrappy.
+ - You learn from the mistakes you make and from the mistakes other people make. The truth is, you don’t learn from success; you learn from failure.
+ - Is Art worth dying for? Well I don’t know a single inanimate object that’s worth dying for.
+ - The simple truth is that everyone has an opinion, everyone has the right to voice it, and they should if they want to.
+ - I’m so lucky to have been raised the way I have, because my parents believed that everyone had the right to their own feelings, opinions, and existence; as long as they weren’t harming others, you had to defend those rights.
+ - I’ve met my bride-to-be in Italy and I will be married in Italy soon, in a couple of weeks. In Venice of all places! In closing, I guess what I would like to say is to my bride-to-be, Amal, that I love you very much and I can’t wait to be your husband.
+ - Bush, Sharon, Blair and Rice are names that history will damn.
+ - I don’t believe in heaven and hell. I don’t know if I believe in God. All I know is that as an individual, I won’t allow this life – the only thing I know to exist – to be wasted.
+ - I don’t care. Charlton Heston is the head of the National Rifle Association. He deserves whatever anyone says about him.
+ - I’m not smart enough and I don’t know enough about what’s going on.
+ - You never really learn much from hearing yourself speak.
+ - I probably wouldn’t be a good spokesman for an electric car, because I’ll still get on a private jet, and one flight on a private jet undoes all my electric-car good deeds.
+ - If we turn our heads and look away and hope that it will all disappear then they will – all of them, an entire generation of people. And we will have only history left to judge us.
+ - As you get older and ease your way into being a character actor you have to be comfortable with where you are in life and career, and I’m very comfortable with what I’m doing – working on projects I’m proud of.
+ - Yes, I slouch. My mother tells me that.
+ - I’ve worked with Woody Allen twice and he was like, “Whatever you want to change, it’s up to you. If you want to change the words, make them your own.”
+ - The first question is something immediate – and immediately, we need humanitarian aid to be allowed into the Sudan before it becomes the worst humanitarian crisis in the world.
+ - I like owning dirt. You know, I spent a lot of time broke when I moved to California. So deep in my soul is still this idea of being unemployed. To me, owning land means you could sell it at some point and have money.
+ - After doing One Fine Day and playing a pediatrician on ER, I’ll never have kids. I’m going to have a vasectomy.
+ - All I will say is we get wiser as we get older. And that what I am looking for in life is the same as I always have; happiness, peacefulness and joy. And that’s all I’m going to say about that because otherwise I’d get into trouble.
+ - My father taught me about having principles and how to treat people with respect. My aunt also taught me how to keep a perspective on everything that happens to you. So you learn to be humble and not take your success for granted.
+ - When you go to Detroit you see a town that is resilient, that’s just fighting to win again, and there’s an energy to that. Just watching a city really fighting to get back on its feet and watching the inner strength of a city is tremendous.
+ - I don’t tweet, I don’t go on Facebook. I think there’s too much information about all of us out there. I’m liking the idea of privacy more and more.
+ - I have a picture of a rainy Paris street scene which I bought when I was 33 and on my first trip to Paris. I go past it when I go upstairs every night and it reminds me of that trip and makes me happy.
+ - If you want to protect yourself as an actor, always work with good people.
+ - If you’re famous, I don’t – for the life of me – I don’t understand why any famous person would ever be on Twitter. Why on God’s green earth would you be on Twitter? Because first of all, the worst thing you can do is make yourself more available, right?
+ - Run for office? No. I’ve slept with too many women, I’ve done too many drugs, and I’ve been to too many parties.
+ - My grandparents back in Kentucky owned a tobacco farm. So, to make money in the summer, we could cut and chop and top and house and strip the tobacco.
+ - Even the idea of a fart makes me laugh. Saying the word ‘fart’ makes me laugh. I have iFart on my phone. I have remote whoopee cushions. Farts. To me, there’s nothing funnier.
+ - As time goes on and you become more comfortable in your career path, and things are starting to make sense, and it’s not just about work, you find that you’re able to focus on other things and other people.
+ - It’s possible for me to make a bad movie out of a good script, but I can’t make a good movie from a bad script.
+ - I’m certainly the last person to give advice on, well, anything.
+ - Growing up during the Cold War period, I always found that, although we always thought that the world would end in some sort of nuclear holocaust, at some point, everybody was pretty hopeful.
+ - I certainly direct with confidence even if I’m not confident. I learned early on as an actor that confidence can be faked, and it’s not always a terrible thing to do. A lot of times if people feel you’re confident, then they’re confident.
+ - What you learn after you are 40 is that it is just about plugging up holes in the boat. You just hope you have enough corks to plug enough of the holes.
+ - For me, the definition of a patriot is someone who is willing to constantly question the government; that’s what separates us from other countries.
+ - I’ve had some success at writing and directing, and I like it. It’s infinitely more creative than just acting, and I have things I want to say and do.
+ - Never get behind old people. Their bodies are littered with hidden metal and they never seem to appreciate how little time they have left.
+ - On Christmas morning, before we could open our Christmas presents, we would go to this stranger’s home and bring them presents. I remember helping clean the house up and putting up a tree. My father believed that you have a responsibility to look after everyone else.
+ - It is not lost on me that I’m spending my honeymoon at Comic Con.
+ - Both of my grandparents died of lung cancer. So I got quite a lesson in the payback later in life of smoking, and if you keep it up how bad it can be.
+ - Things hurt me now. My knees hurt, my back hurts. But your head still thinks it’s twenty-three.
+ - I was watching ‘Up In The Air’ and I thought, ‘Jesus, who’s the old gray-haired guy?’ And it was me. I never wear makeup for movies and now it’s starting to show.
+ - Failures are infinitely more instructive than successes.
+ - But I’m kind of comfortable with getting older because it’s better than the other option, which is being dead. So I’ll take getting older.
+ - Fame can be very dangerous, because you can start to enjoy that part of it. And that’s not the good part of what I do for a living. The good part is the making of films. The unpleasant part is the fame part, if you’re not careful.
+ - Venice is the prettiest city I’ve ever seen. It looks like a Disneyland ride.
+ - Im like my mother, I stereotype. Its faster.
+ - I’ve been in relationships where I’ve felt terribly alone. Just because you’re with someone, it doesn’t mean you’re happy.
+ - There are people who like to work in chaos, and some people work better under that, and create that sort of chaos, but that makes a set not necessarily very fun. I like to work on sets that don’t have that.
+ - I had a Tesla. I was one of the first cats with a Tesla. But I’m telling you, I’ve been on the side of the road a while in that thing.
+ - The loneliest you will get is in the most public of arenas: You will go to a place and end up in the smallest compartment possible, because it’s a distraction to everybody, and you end up not getting to enjoy it like everyone else.
+ - I did a lot of terrible TV shows and was really terrible in them, and I’ve done terrible films I was terrible in, but nobody really noticed.
+ - I know what my limitations are as an actor, but my strength is putting myself into a well-written part. When I get in trouble is when I have to fix it, or when I have to carry it on personality.
+ - The government itself is running exactly like the Sopranos and they sit back and they make deals. And they say okay, ‘I’m going do this: France, you’re getting the pipelines.’
+ - I bought a piano once because I had the dream of playing As Time Goes By as some girl’s leaning on it drinking a martini. Great image. But none of it worked out. I can’t even play Chopsticks. But I’ve got a nice piano at my house!
+ - I have been directing and involved in producing and the creating of films for quite a while as well as acting. I always think in terms of what the director needs, and not just for this scene but for the film.
+ - Do you want the truth or the politically correct version? The truth is that I go plastic, it’s so much easier. And I like to put the bags over my head at night when I sleep, which I think all the kids at home should try. Kidding!!
+ - The people I’ve respected most in the industry over the years – Paul Newman, for instance. I just loved the way he handled growing old on-screen. It’s understanding that you’re now basically a character actor. Which is fine, but you have to pay attention to it.
+ - Who would name their kid Jack with the last words ‘off’ at the end of the last name? No wonder that guy is screwed up.
+ - I’m a liberal. I’m confused when that became a bad word...
+ - I’m only two years older than Brad Pitt, but I look a lot older, which used to greatly frustrate me. It doesn’t anymore. I don’t have to fit into that category and get trounced by Tom Cruise and Brad.
+ - George Clooney likes to talk about himself in the third person mostly. He’s always enjoyed it. Listen, I don’t like to think in those terms, where you just have to completely separate yourself one from the other.
+ - I’m the least metrosexual cat you’ve ever met. I’ve never had my fingernails or toenails done, and I’ve cut my own hair longer than other people have cut my hair.
+ - Most of the films I’ve done haven’t done particularly well. I’m surprised I’m continuing to work.
+ - The script for this film was written 52 years ago by Edward R. Murrow, who taught us many valuable lessons about responsibility and always, always questioned authority, because without it authority often goes unchecked.
+ - I’m the flavor of the month.
+ - I enjoy going on motorcycle trips and stopping in small towns and enjoying drinks with the locals.
+ - I grew up in the world of bad television, on my dad’s sets and then as a young schmuck on dating shows and so on.
+ - The directors are always sharp. It’s true.
+ - I’ve walked with very famous people down red carpets over to the crowd of thousands of people, and you’ll reach out to shake their hand and they’ve got a camera in their hand. And they don’t even get their hand out, because they’re recording the whole time.
+ - I’m not completely against khakis. It’s just the level that you have to wear them. The higher you pull them, then more excruciating it is.
+ - Let’s face it: Bush is just dim.
+ - It’s not about an opening weekend. It’s about a career, building a set of films you’re proud of. Period.
+ - I’ve always been an optimist.
+ - Republicans are good at standing by their candidate.
+ - I’m interested in making films that ask questions and don’t particularly provide answers.
+ - Having ‘Oscar winner’ on your tombstone is a great thing.
+ - I doubt anybody gets taken seriously for very long. I’ll be on some reality show in about six years going, Hey, I had a great year in 2006.
+ - I don’t believe in happy endings, but I do believe in happy travels, because ultimately, you die at a very young age, or you live long enough to watch your friends die. It’s a mean thing, life.
+ - You have to remember that in the microcosm of Cincinnati, Ohio, through northern Kentucky, my father was a big star, still is. So that made my sister and me really visible. Everybody knew us, talked about us.
+ - I’ve been working with Pat Robertson on Africa debt-relief, and we disagree on virtually everything except certain very specific, inalienable rights, and the truth is that morality and patriotism come in all shapes and sizes.
+ - It’s not that I lead this oblivious life where I think I’ve got such a great personality that people want to spend time with me. If someone has a poster of you or asks for your autograph, clearly you can’t take them out on a date. It’s not that interesting if someone is just interested in you.
+ - In the ’60s, when I was growing up, one of the great elements of American culture was the protest song. There were songs about the civil rights movement, the women’s rights movement, the antiwar movement. It wasn’t just Bob Dylan, it was everybody at the time.
+ - I enjoy living in a nice house and having a nice life. So I do two or three commercials overseas a year to sort of fill in, because they pay pretty well.
+ - I love children and I get along with them great. It’s just that I believe if you’re going to be a parent, there has to be something inside you that says, ‘I want a family.’ I don’t feel that sense of urgency.
+ - Even other movies I wasn’t involved with, I’d watch them edit ’cause I really enjoy watching them go through their process. It’s a very economical, educational process.
+ - I love my grey hair and wrinkles. I love the fact that my face has more of an edge and more character than it did when I was in my twenties and thirties. No Botox for me.
+ - My biggest fear is doing the same things 10 years from now. That would be a failure. It’s something you have to constantly reassess, and asking yourself what you are going to do next makes it a good, long full journey.
+ - The hardest thing is trying not to correct everything on the Internet. It’d be night and day – wrong, wrong, wrong, wrong. So you just have to say, All right, I’ll take it, bring it on.
+ - Everyone makes moral choices that better themselves and hurt someone else along the way – and whether or not the means justify the ends. And that, to me, is universal.
+ - The idea that every time you do a film you’re supposed to be tortured confuses me. I mean, guys who say, ‘Oh, it’s really tough, my character is really suffering’ -come on. For us, even in the rotten ones we’ve had a good time. I don’t think you have to suffer.
+ - I don’t go on that many dates, because the truth is, anytime you go out in public with a girl when you’re well-known, there are pictures of you everywhere, and it’s like you’re a thing.
+ - Whatever anybody believes as long as it doesn’t hurt anybody else, it’s fair enough, and works, and I think, is real, and matters. I don’t happen to have those beliefs, as much, you know, I don’t believe in those things.
+ - I’ve certainly done some turkeys along the way and made some dumb choices in my career, mostly early on. I’m one of the lucky ones who got to make a lot of mistakes very early when no one was paying attention.
+ - I find politics in almost every country I go to be incredibly different and incredibly similar and I’m never surprised by anything.
+ - It’s incredibly unfair. You don’t see a lot of 60-year-old women with 20-year-old men onscreen.
+ - The first thing that I learned – and I understood it at a really young age – was that I could get a laugh. Really early. Because my mother and father are funny.
+ - I rarely tell anybody what they should be doing with their life.
+ - I can’t give you 150 takes. I can’t even give you 30 different ways of doing it! I don’t have the talent or the range for it.
+ - It’s very easy for people to be critical of President Obama’s first term, but let’s face it, he didn’t exactly inherit the country in the best shape.
+ - Honestly, as you can imagine, it really isn’t all that fun directing yourself, running back and forth to the monitors to see if you’re terrible or not.
+ - Ninety percent of films are pretty mediocre, but they have a built-in audience and open on 3,000 screens.
+ - If you try desperately to hang on to something that used to be a success for you, it’s going to go away. You have to change.
+ - It’s very hard when the product your selling to an entire country is yourself and you’re just selling the hell out of it all the time. But politicians have a tremendous amount of ego to be able to do it.
+ - The truth of the matter is the real story are the people who rise above all of this incredible cruelty. Otherwise that cruelty wins.
+ - I know love at first sight can work. It happened to my parents.
+ - I would vote for Johnny Depp. We could use a president that could swashbuckle.
+ - I want to be the George Clooney of music.
+ - I go on YouTube when somebody says to look something up.
+ - I’m always sort of optimistic about how good we are, as a country, at fixing ourselves.
+ - I enjoy directing. I don’t know whether it’s improving or not, but it’s certainly evolving in different directions.
+ - If people see me having dinner with a beautiful woman, they immediately believe that I’m having a love affair with her. Of course that’s rubbish. I’m not a playboy!
+ - Most of the time, I’m working in places I’m not familiar with. Sometimes it’s Slovakia, and sometimes it’s Hawaii. Not to bash on Slovakia, but I really did enjoy Hawaii.
+ - I’ve been my most happy and my most unhappy in relationships. I have family and friends and people I care very much about. I’ve got a really, really, really good life.
+ - I get asked a lot about getting into politics. I say, ‘Take a look at politics. You tell me what seems appealing about that.’
+ - I think it’s the most responsible thing you can do, to have kids. It’s not something to be taken lightly. I don’t have that gene that people have to replicate.
+ - Over the years, over the history of our country, liberals have stood on many of the right sides of the issues.
+ - I don’t know of an actor that the Coen brothers would come to and say, “Hey, I’ve got a movie for you to be in, if you want to do it,” that would say, “No.” That’s the truth.
+ - I grew up at a time where I think most people had a social and political conscience. Some of the biggest changes in our country’s political history happened at the time I was growing up, so I was raised to be a part of those things and to participate and I will continue to do that as much as I can.
+ - Oceans is about glamour. I can’t go looking like a slob can I?
+ - We’re picking on people we can beat.
+ - The problem is, we elected a manager and we need a leader. Let’s face it: Bush is just dim.
+ - If you’re going to do a romantic comedy it was about housing it in something that we haven’t seen before.
+ - Directing is really exciting. In the end, it’s more fun to be the painter than the paint.
+ - It’s not ideal to have three films coming out at once.
+ - Directing is much more satisfying to me than acting.
+ - If I had been with all the women that I was said to have been with, I wouldn’t have had the time to shoot a single movie!
+ - What I try to do is make sure that the directors I’m working with are on the same page and want to do the same kind of films. You can really protect yourself as an actor if you work with really good people. It can hide a lot of flaws along the way.
+ - They say I was a bad Batman, that it was my fault, that I buried the franchise. But the truth is, it was a big project. I was pretty intimidated in that world. I did the best I could in the situation I was given.
+ - There is a strange pecking order among actors. Theatre actors look down on film actors, who look down on TV actors. Thank God for reality shows, or we wouldn’t have anybody to look down on.
+ - The last real movie stars were probably Redford and Newman. And things were different then. There wasn’t this amazing amount of magazines and information about them.
+ - I’m the old-fashioned type who prefers to meet a woman in a more normal setting. I don’t like to feel that I’m being hunted down. I’ve always liked to do my own hunting when it comes to meeting women.
+ - I don’t mind what they say as long as they’re not being mean.
+ - Getting older is not something that you’re not much concerned with.
+ - People know everything about everybody now.
+ - In the United States 95% of the people who win elections have the most money. That’s it. So, money is a big part of elections. But that happens all the time.
+ - I don’t think that Hollywood will have much to do with changing politics. Hollywood usually reflects things.
+ - In the time that we’re here today, more women and children will die violently in the Darfur region than in Iraq, Afghanistan, Palestine, Israel or Lebanon. So, after September 30, you won’t need the UN – you will simply need men with shovels and bleached white linen and headstones.
+ - I have a real interest in pushing some of the limits of things that studios don’t want to make.
+ - I resolve not to drink liquids before donning the Bat-suit.
+ - Directors are the captains of the ship, and it’s your job as the lead actor to make sure that the rest of the cast understand that by doing whatever he says.
+ - Look, it’s very easy to sit here right now with some films in the bank that I like and think I have a shot and feel pretty cocky. But, you know, three years from now, I could very easily be saying, ‘Paper or plastic?’
+ - The secret of directing is working with really good people.
+ - Growing old on screen is not for the faint of heart.
+ - There’s a certain cruelty to being on a big screen as your eyelids start to sag and your hair falls out and turns gray that you either have to be able to handle or not. What you can’t do is try to force yourself into roles that you could have played or would have played ten years earlier.
+ - If you’re in the room, you’ve grabbed the brass ring. You are all winners.
+ - The funniest thing is that all the things every director goes through, I thought I could shortcut, but there was no getting around those issues.
+ - There’s no connection between al-Qaeda and Iraq.
+ - I’m not out trying to prove anything. I’m sort of finished with that, so I get to play in other sandboxes and try and figure out what I like and I’m interested in.
+ - My father ran for Congress in 2004, and I got a sense that there is no way to achieve much success without a certain amount of compromise.
+ - I’m a Method actor. I spent years training for the drinking and carousing I had to do in this film.
+ - When you first start out as an actor, you’re just looking for a good part. As time goes on, if you’re being held responsible for the movies themselves, you’re looking for a good script all around.
+ - When you’re young, you tend to believe what people tell you, and that’s dangerous. As you get older, you learn that you’re never as good or as bad as they say you are. If you understand this, you win.
+ - Without question, I wake every night five times.
+ - We’re always going to be a society that’s going to slow down and look at the wreck on the side if the road if there is one. We’re always going to do that because it’s still fascinating and it’s human nature.
+ - The truth is my development I hope is the same way as everything, which is, I succeed some, I fail some, and I keep slugging away at it. I really enjoy it. It’s fun.
+ - My little animal secrets must remain my little animal secrets. How I do my nails, that is really my business.
+ - When you first start out, you are just happy to get a job, any job. And as time goes on, either you move forward or screech to a halt.
+ - You get better as an actor over time if you’re growing. Like singers.
+ - I’ve been lucky enough to do a few films that will last longer than an opening weekend and those films are the ones I’m proud of.
+ - Anytime there’s an actual grassroots movement that isn’t funded by people trying to create a grassroots movement, I find that interesting.
+ - I had my Aunt Rosie, who was famous and then not, so I got a lesson in fame early on. And I understood how little it has to do with you. And also how you could use it.
+ - It’s hard to find actors that don’t feel contemporary when you put them in a period piece.
+ - You’ve got to remember that films don’t lead the way. People think that films are trying to lead society. Mostly, they’re reflecting the moods and thoughts that are going on in the country or around the world.
+ - After a while, you just want transportation, and things like cool cars or motorcycles are all about getting attention. I get all the attention I could ever need, so I kind of like being in a minivan and people not paying so much attention to me.
+ - I find that as you get older, you start to simplify things in general.
+ - It’s fun to slap people around.
+ - Any topical subject, if it’s Hollywood, will be a couple of years later because you’ve got to write it, produce it and distribute it, so automatically you’re never going to be right on the cutting edge of stories.
+ - I was very lucky to get well known much later in life. You need to have flopped quite a few times to get a sense of how little any of it has to do with you.
+ - Shutting down the government is not how you make government work.
+ - It is rather astonishing that the United States does not play ball with the ICC, considering our country was the beacon of the idea of an international criminal court.
+ - An acting career usually has about a shelf life of ten years before people get sick of seeing you. It’s a good thing to have a job to fall back on and I really do enjoy directing.
+ - I’m really white trash.
+
+195 quotes

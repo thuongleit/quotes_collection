@@ -1,0 +1,86 @@
+ - A dream without a plan is just a wish.
+ - A library is a feast to which we are all invited.
+ - It is not enough to simply teach children to read; we have to give them something worth reading. Something that will stretch their imaginations- something that will help them make sense of their own lives and encourage them to reach out toward people whose lives are quite different from their own.
+ - Reading can be a road to freedom or a key to a secret garden, which, if tended, will transform all of life.
+ - To fear is one thing. To let fear grab you by the tail and swing you around is another.
+ - I guess real maturity, which most of us never achieve, is when you realize that you’re not the center of the universe.
+ - One thing living in Japan did for me was to make me feel that what is left out of a work of art is as important as, if not more important than, what is put in.
+ - I cannot, will not, withhold from my young readers the harsh realities of human hunger and suffering and loss, but neither will I neglect to plant that stubborn seed of hope that has enabled our race to outlast wars and famines and the destruction of death.
+ - It is not enough to simply teach children to read; we have to give them something worth reading.
+ - Everything comes in useful once in a hundred years.
+ - Peace is not won by those who fiercely guard their differences, but by those who with open minds and hearts seek out connections.
+ - Teachers have almost stopped reading aloud to their classes because of the pressure of testing and tight curricula, but it is the books we read together and talk about together that bring us closer together.
+ - She had tricked him. She had made him leave his old self behind and come into her world, and then before he was really at home in it but too late to go back, she had left him stranded there – like an astronaut wandering about on the moon. Alone.
+ - It’s like the smarter you are, the more things can scare you.
+ - My heart is heavy, she thought. It’s not just a saying. It is what is – heavy, a great stone lodged in my breast, pressing down my whole being. How can I even stand straight and look out upon the world? I am doubled over into myself and, for all the weight, find only emptiness.
+ - I know a movie and a book are two different things and you are going do different media in different ways. No author can want a movie to be exactly like the book because then it will be a bad movie.
+ - Everybody gets scared sometimes, May Belle. You don’t have to be ashamed.
+ - Sometimes it seemed to him that his life was delicate as a dandelion. One little puff from any direction, and it was blown to bits.
+ - You never know ahead of time what something’s really going to be like.
+ - Sitting in cold wet britches for an hour was no fun even in a magic kingdom.
+ - As I look back on what I have written, I can see that the very persons who have taken away my time are those who have given me something to say.
+ - February is just plain malicious. It knows your defenses are down.
+ - I love revision. Where else can spilled milk be turned into ice cream?
+ - My writing comes from ideas that make a sound in my heart.
+ - The name we give to something shapes our attitude toward it.
+ - I woke up one morning and realized that what I wanted to say to everyone – children, young people, adults – was: Read for your life.
+ - You have to believe it and you hate it. I don’t have to and I think it’s beautiful.
+ - You think it’s so great to die and make everyone cry and carry on. Well it ain’t.
+ - We all learn here by the honorable path of horrible mistakes.
+ - Our fundamental task as human beings is to seek out connections-to exercise our imaginations.
+ - You gotta know someone cares about you, or you just give up.
+ - Mandarin ducks mate for life and will die of loneliness if separated from their chosen mate.
+ - The last dregs of winter spoiling the taste of everything.
+ - If you could hold your nose to avoid a stink, or close your eyes to cut out a sight, why not shut off your brain to avoid a thought?
+ - Lord, let me heed the angels you put in my path.
+ - If we marvel at the artist who has written a great book, we must marvel more at those people whose lives are works of art and who don’t even know it, who wouldn’t believe it if they were told. However hard work good writing may be, it is easier than good living.
+ - This is what art is all about. It is weaving fabric from the feathers you have plucked from your own breast. But no one must ever see the process – only the finished bolt of goods. They must never suspect that that crimson thread running through the pattern is blood.
+ - He may not have been born with guts, but he didn’t have to die without them.
+ - We do have trouble dealing with death, but it’s the one thing that is guaranteed we are all going to have to do, and we are going to have to face it many times before we die ourselves.
+ - Death is very mysterious to us. One moment someone is there with us, and the next moment they’re not.
+ - What a gift of grace to be able to take the chaos from within and from it create some semblance of order.
+ - The work reveals the creator – and as our universe in its vastness, its orderliness, its exquisite detail, tells us something of the One who made it, so a work of fiction, for better or worse, will reveal the writer.
+ - A great novel is a kind of conversion experience. We come away from it changed.
+ - Reading has made such a profound difference to my life. I’m sure I became a writer because of the power of literature in my own life.
+ - Crazy people who are judged to be harmless are allowed an enormous amount of freedom ordinary people are denied.
+ - On Decoration Day, while everyone else in town was at the cemetery decorating the graves of our Glorious War Dead, Willie Beaner and me, Robert Burns Hewitt, took Mabel Cramm’s bloomers and run them up the flagpole in front of the town hall. That was the beginning of all my troubles.
+ - Punch after punch after punch. February is a mean bully. Nothing could be worse – except August.
+ - Reading asks that you bring your whole life experience and your ability to decode the written word and your creative imagination to the page and be a co-author with the writer, because the story is just squiggles on the page unless you have a reader.
+ - The difference between writing a story and simply relating past events is that a story, in order to be acceptable, must have shape and meaning. It is the old idea that art is the bringing of order out of chaos...
+ - Many people are angry when they make a mistake, but very few people have the sense to be sorry.
+ - Words are humanity’s greatest natural resource, but most of us have trouble figuring out how to put them together. Words aren’t cheap. They are very precious.
+ - Youth is a mortal wound.
+ - You don’t have to fight dragons to write books. You just have to live deeply the life you’ve been given.
+ - Trouble can always be borne when it is shared.
+ - It is always sad to write about prejudice, but sometimes when we see it being played out in the lives of fictional characters, we can recognize it in our own lives.
+ - If you’re so afraid of your imagination that you stifle it, how are you going to know God? How can you imagine heaven?
+ - Read for fun, read for information, read in order to understand yourself and other people with quite different ideas. Learn about the world beyond your door. Learn to be compassionate and grow in wisdom. Books can help us in all these ways.
+ - It was up to him to pay back to the world in beauty and caring what Leslie had loaned him in vision and strength.
+ - Since my first novel was rescued from a slush pile, it makes me sad that most publishing houses no longer accept unsolicited manuscripts. Nor are many willing to take chances on novels that are not deemed immediately “marketable.”
+ - I was behaving, just like I promised, but fate intervened.
+ - The world that is in me is the only world I have by which to grasp the world outside and as I write fiction, it is the chart by which I must steer.
+ - Kids often ask me if characters are real or made up – and I always tell them, ‘I hope they’re real but I made them up.’
+ - It seems to me that there are two great enemies of peace – fear and selfishness.
+ - There are few things, apparently, more helpful to a writer than having once been a weird little kid.
+ - I love to read. But I loved to read a lot longer than I started to love writing.
+ - I realize, of course, that I wasn’t born knowing how to read. I just can’t imagine a time when I didn’t know how.
+ - That was the rule that you never mixed up troubles at home with life at school. When parents were poor or ignorant or mean, or even just didn’t believe in having a TV set, it was up to their kids to protect them.
+ - I think if a book has the power to move a reader, it also has the power to offend a reader. And you want your books to have power, so you just have to take what comes with that.
+ - Thus, in a real sense, I am constantly writing autobiography, but I have to turn it into fiction in order to give it credibility.
+ - Impressed. Lord. He had nearly drowned.
+ - Sometimes you need to give people something that’s for them, not just something that makes you feel good giving it.
+ - If you’re a kid who is always on the outside hoping to be on the inside, you’re watching a lot. You’re trying to figure out how to become a normal person in a society that considers you weird.
+ - I have been mocked by beauty, too. But it was the beauty which cost me nothing that in the end turned upon me.
+ - Church always seemed the same. Jess could tune it out the same way he tuned out school, with his body standing up and sitting down in unison with the rest of the congregation but his mind numb and floating, not really thinking or dreaming but at least free.
+ - Once a book is published, it no longer belongs to me. My creative task is done. The work now belongs to the creative mind of my readers. I had my turn to make of it what I would, now it is their turn.
+ - We are trying to communicate that which lies in our deepest heart, which has no words, which can only be hinted at through the means of a story...
+ - I can’t believe there will ever be a time when the book is truly obsolete. It is the perfect technology and feeds the soul.
+ - The challenge for those of us who care about our faith and about a hurting world is to tell stories which will carry the words of grace and hope in their bones and sinews and not wear them like fancy dress.
+ - The thing I have learned through the years is that one idea ‘doth’ not a novel make. A novel must be several seemingly unrelated ideas that somehow magically come together to create the fabric of the story.
+ - What I have come to believe is that joy is the twin sister of gratitude. I am most joyful when I am most grateful.
+ - Miss Edmunds was one of his secrets. He was in love with her. Not the kind of silly stuff Ellie and Brenda giggled about on the telephone. This was too real and too deep to talk about, even to think about very much.
+ - Nothing smelled so good or danced so well as a birch fire.
+ - It’s such a thrill when an adult comes up to me and says, ‘I read your book as a child and really loved it.’ That’s a tremendous compliment.
+ - As much pleasure as young people get from Twittering and texting, there is no way these activities will nourish their minds and spirits the way literature can.
+
+84 quotes

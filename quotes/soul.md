@@ -1,0 +1,42 @@
+ - The desire to know your own soul will end all other desires. ~~Rumi
+ - What are you afraid of? You are an immortal being. You are neither a man nor a woman, as you may think, but a soul – joyous, eternal. ~~Paramahansa Yogananda
+ - I am not this hair. I am not this skin. I am the soul that lives within. ~~Rumi
+ - Your naked body should only belong to those who fall in love with your naked soul. ~~Charlie Chaplin
+ - I grow silent. Dear soul, you speak. ~~Rumi
+ - You must not let anyone define your limits because of where you come from. Your only limit is your soul. ~~Walt Disney
+ - The free soul is rare, but you know it when you see it. ~~Charles Bukowski
+ - Be a lamp, or a lifeboat, or a ladder. Help someone’s soul heal. Walk out of your house like a shepherd. ~~Rumi
+ - My soul is my guide, for my soul is of that abode. I will not speak of the earthly. I am of the unknown. ~~Rumi
+ - Pour your heart and soul into your business. People will notice. ~~Gary Vaynerchuk
+ - Words are a pretext. It is the inner bond that draws one person to another, not words. ~~Rumi
+ - If something burns your soul with purpose and desire, it’s your duty to be reduced to ashes by it. Any other form of existence will be yet another dull book in the library of life. ~~Charles Bukowski
+ - Understand me. I’m not like an ordinary world. I have my madness, I live in another dimension and I do not have time for things that have no soul. ~~Charles Bukowski
+ - True beauty in a woman is reflected in her soul. ~~Audrey Hepburn
+ - I have no time for things that have no soul. ~~Charles Bukowski
+ - Every secret of a writer’s soul, every experience of his life, every quality of his mind, is written large in his works. ~~Virginia Woolf
+ - You always own the option of having no opinion. There is never any need to get worked up or to trouble your soul about things you can’t control. These things are not asking to be judged by you. Leave them alone. ~~Marcus Aurelius
+ - The Universe favors the brave. When you resolve to lift your life to its highest level, the strength of your soul will guide you to a magical place with magnificent treasures. ~~Robin S. Sharma
+ - Wherever you stand, be the soul of that place. ~~Rumi
+ - Maybe stories are just data with a soul. ~~Brené Brown
+ - God is not present in idols. Your feelings are your god. The soul is your temple. ~~Chanakya
+ - Come hell or high water you will never take me back to the place I was before. I have been through too much to let life whoop me again. My faith is stronger than it’s ever been, my mind is more tenacious than it’s ever been, my soul is more absolute. ~~T.D. Jakes
+ - If my eyes could show my soul, everyone would cry when they saw me smile. ~~Kurt Cobain
+ - When the soul suffers too much, it develops a taste for misfortune. ~~Albert Camus
+ - Since love grows within you, so beauty grows. For love is the beauty of the soul. ~~Saint Augustine
+ - Beauty isn’t about having a pretty face it’s about having a pretty mind, a pretty heart, and a pretty soul. ~~Drake
+ - A house that has a library in it has a soul. ~~Plato
+ - A little faith will bring your soul to heaven; a great faith will bring heaven to your soul. ~~Charles H. Spurgeon
+ - The greatest enemy to human souls is the self-righteous spirit which makes men look to themselves for salvation. ~~Charles H. Spurgeon
+ - Lord help my poor soul. ~~Edgar Allan Poe
+ - Let your soul stand cool and composed before a million universes. ~~Walt Whitman
+ - Guilt is a gift from Allah warning you that what you are doing is violating your soul. ~~Nouman Ali Khan
+ - Music is a mantra that soothes the soul. It’s therapeutic. It’s something our body has to have. It’s very important to understand the power of music. ~~Michael Jackson
+ - Health is a state of complete harmony of the body, mind and spirit. When one is free from physical disabilities and mental distractions, the gates of the soul open. ~~B.K.S. Iyengar
+ - The soul of man is immortal and imperishable. ~~Plato
+ - Astronomy compels the soul to look upwards and leads us from this world to another. ~~Plato
+ - I love thee to the depth and breadth and height my soul can reach. ~~Elizabeth Barrett Browning
+ - The soul is not ruled by time and space. The soul is infinite. It blends with the One in infinity. ~~Ram Dass
+ - The scariest monsters are the ones that lurk within our souls. ~~Edgar Allan Poe
+ - How you dress on the outside, it represents your soul. ~~Gucci Mane
+
+40 quotes

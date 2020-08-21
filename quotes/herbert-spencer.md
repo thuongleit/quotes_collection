@@ -1,0 +1,143 @@
+ - The great aim of education is not knowledge but action.
+ - There is a principle which is a bar against all information, which cannot fail to keep a man in everlasting ignorance-that principle is contempt prior to investigation.
+ - Time is that which a man is always trying to kill, but which ends in killing him.
+ - Morality knows nothing of geographical boundaries, or distinctions of race.
+ - This survival of the fittest implies multiplication of the fittest.
+ - Be bold, be bold, and everywhere be bold.
+ - During human progress, every science is evolved out of its corresponding art.
+ - Hero-worship is strongest where there is least regard for human freedom.
+ - The pursuit of individual happiness within those limits prescribed by social conditions, is the first requisite to the attainment of the greatest general happiness.
+ - Government is essentially immoral.
+ - Society exists for the benefit of its members – not the members for the benefit of society.
+ - To play billiards well was a sign of an ill-spent youth.
+ - Love is life’s end, but never ending. Love is life’s wealth, never spent, but ever spending. Love’s life’s reward, rewarded in rewarding.
+ - No one can be perfectly free till all are free; no one can be perfectly moral till all are moral; no one can be perfectly happy till all are happy.
+ - Music ministers to human welfare more than any other art.
+ - Education is preparation to live completely.
+ - Only when Genius is married to Science can the highest results be produced.
+ - Education has for its object the formation of character.
+ - Those who cavalierly reject the Theory of Evolution, as not adequately supported by facts, seem quite to forget that their own theory it supported by no facts at all.
+ - Every man is free to do that which he wills, provided he infringes not the equal freedom of any other man.
+ - Rightness expresses of actions, what straightness does of lines; and there can no more be two kinds of right action than there can be two kinds of straight lines.
+ - We all decry prejudice, yet are all prejudiced.
+ - The poverty of the incapable, the distresses that come upon the imprudent, the starvation of the idle, and those shoulderings aside of the weak by the strong, which leave so many “in shallows and in miseries,” are the decrees of a large, far-seeing benevolence.
+ - Conservatism defends those coercive arrangements which a still-lingering savageness makes requisite. Radicalism endeavours to realize a state more in harmony with the character of the ideal man.
+ - What a cage is to the wild beast, law is to the selfish man.
+ - Opinion is ultimately determined by the feelings, and not by the intellect.
+ - The defects of the children mirror the defects of the parents.
+ - If they are sufficiently complete to live, they do live, and it is well they should live. If they are not sufficiently complete to live, they die, and it is best they should die.
+ - How often misused words generate misleading thoughts.
+ - Life is the continuous adjustment of internal relations to external relations.
+ - This survival of the fittest which I have here sought to express in mechanical terms, is that which Mr. Darwin has called “natural selection”, or the preservation of favoured races in the struggle for life.
+ - Religion is the recognition that all things are manifestations of a Power which transcends our knowledge.
+ - Mental power cannot be got from ill-fed brains.
+ - Objects we ardently pursue bring little happiness when gained; most of our pleasures come from unexpected sources.
+ - Reading is seeing by proxy.
+ - The saying that beauty is but skin deep, is but a skin-deep saying.
+ - The cruelty of a Fijian god, who, represented as devouring the souls of the dead, may be supposed to inflict torture during the process, is small compared with the cruelty of a God who condemns men to tortures which are eternal.
+ - Absolute morality is the regulation of conduct in such a way that pain shall not be inflicted.
+ - The forces which are working out the great scheme of perfect happiness, taking no account of incidental suffering, exterminate such sections of mankind as stand in their way, with the same sternness that they exterminate beasts of prey and herds of useless ruminants.
+ - Education has for its object to develop the child into a man of well proportioned and harmonious nature-this is alike the aim of parent and teacher.
+ - Never educate a child to be a gentleman or lady alone, but to be a man, a woman.
+ - If on one day we find the fast-spreading recognition of popular rights accompanied by a silent, growing perception of the rights of women, we also find it accompanied by a tendency towards a system of non-coercive education – that is, towards a practical illustration of the rights of children.
+ - The tyrant is nothing but a slave turned inside out.
+ - The Republican form of government is the highest form of government: but because of this it requires the highest type of human nature, a type nowhere at present existing.
+ - The essential trait in the moral consciousness, is the control of some feeling or feelings by some other feeling or feelings.
+ - The ideal form for a poem, essay, or fiction, is that which the ideal writer would evolve spontaneously. One in whom the powers of expression fully responded to the state of feeling, would unconsciously use that variety in the mode of presenting his thoughts, which Art demands.
+ - Architecture, sculpture, painting, music, and poetry, may truly be called the efflorescence of civilised life.
+ - Policeman are soldiers who act alone; soldiers are policeman who act in unison.
+ - Marriage: a ceremony in which rings are put on the finger of the lady and through the nose of the gentleman.
+ - We do not commonly see in a tax a diminution of freedom, and yet it clearly is one.
+ - Strong as it looks at the outset, State-agency perpetually disappoints every one. Puny as are its first stages, private efforts daily achieve results that astound the world.
+ - Every unpunished delinquency has a family of delinquencies.
+ - Practical atheism, seeing no guidance for human affairs but its own limited foresight, endeavors itself to play the god, and decide what will be good for mankind and what bad.
+ - Be it or be it not true that Man is shapen in iniquity and conceived in sin, it is unquestionably true that Government is begotten of aggression, and by aggression.
+ - Life is not for learning nor is life for working, but learning and working are for life.
+ - Those whose hardships are set forth in pamphlets and proclaimed in sermons and speeches which echo throughout society, are assumed to be all worthy souls, grievously wronged; and none of them are thought of as bearing the penalties of their misdeeds.
+ - Truth generally lies in the coordination of antagonistic opinions.
+ - When a man’s knowledge is not in order, the more of it he has the greater will be his confusion.
+ - People are beginning to see that the first requisite to success in life is to be a good animal.
+ - A stern discipline pervades all nature, which is a little cruel that it may be very kind.
+ - So far from science being irreligious, as many think, it is the neglect of science that is irreligious-it is the refusal to study the surrounding creation that is irreligious.
+ - In science the important thing is to modify and change one’s ideas as science advances.
+ - We have a priori reasons for believing that in every sentence there is some one order of words more effective than any other; and that this order is the one which presents the elements of the proposition in the succession in which they may be most readily put together.
+ - Old forms of government finally grow so oppressive that they must be thrown off even at the risk of reigns of terror.
+ - Without painting, sculpture, music, poetry, and the emotions produced by natural beauty of every kind, life would lose half its charm.
+ - Regarding language as an apparatus of symbols for the conveyance of thought, we may say that, as in a mechanical apparatus, the more simple and the better arranged its parts, the greater will be the effect produced.
+ - We have unmistakable proof that throughout all past time, there has been a ceaseless devouring of the weak by the strong.
+ - Marriage: A word which should be pronounced “mirage”.
+ - No philosopher’s stone of a constitution can produce golden conduct from leaden instincts.
+ - The white light of truth, in traversing the many sided transparent soul of the poet, is refracted into iris-hued poetry.
+ - A man’s liberties are none the less aggressed upon because those who coerce him do so in the belief that he will be benefited.
+ - A nation’s institutions and beliefs are determined by it’s character.
+ - If men use their liberty in such a way as to surrender their liberty, are they thereafter any the less slaves? If people by a plebiscite elect a man despot over them, do they remain free because the despotism was of their own making?
+ - A function to each organ, and each organ to its own function, is the law of all organization.
+ - All socialism involves slavery.
+ - The “Creed of Christendom” is alien to my nature, both emotional and intellectual.
+ - However insignificant the minority, and however trifling the proposed trespass against their rights, no such trespass is permissible.
+ - The idea of disembodied spirits is wholly unsupported by evidence, and I cannot accept it.
+ - I had a great dislike to the annoyances entailed by baggage; and it was always with some feeling of elation that I cut myself free from everything but what I could carry about me. Like children, portmanteaus and trunks are hostages to fortune.
+ - Thus poetry, regarded as a vehicle of thought, is especially impressive partly because it obeys all the laws of effective speech, and partly because in so doing it imitates the natural utterances of excitement.
+ - Science is organized knowledge.
+ - Liberty is not the right of one, but of all.
+ - There can be little question that good composition is far less dependent upon acquaintance with its laws, than upon practice and natural aptitude. A clear head, a quick imagination, and a sensitive ear, will go far towards making all rhetorical precepts needless.
+ - The greatest of all infidelities is the fear that the truth will be bad.
+ - The most important attribute of man as a moral being is the faculty of self-control.
+ - Every pleasure raises the tide of life; every pain lowers the tide of life.
+ - No place, no company, no age, no person is temptation-free; let no man boast that he was never tempted, let him not be high-minded, but fear, for he may be surprised in that very instant wherein he boasteth that he was never tempted at all.
+ - A jury is composed of twelve men of average ignorance.
+ - It is a commonly observed fact that the enslavement of women is invariably associated with a low type of social life, and that, conversely, her elevation towards an equality with man uniformly accompanies progress.
+ - Ethical ideas and sentiments have to be considered as parts of the phenomena of life at large. We have to deal with man as a product of evolution, with society as a product of evolution, and with moral phenomena as products of evolution.
+ - Whatever fosters militarism makes for barbarism; whatever fosters peace makes for civilization.
+ - The primary use of knowledge is for such guidance of conduct under all circumstances as shall make living complete. All other uses of knowledge are secondary.
+ - It must be admitted that the conception of virtue cannot be separated from the conception of happiness-producing conduct.
+ - Aggression which is flagitious when committed by one, is not sanctioned when committed by a host.
+ - Our lives are universally shortened by our ignorance.
+ - If a single cell, under appropriate conditions, becomes a man in the space of a few years, there can surely be no difficulty in understanding how, under appropriate conditions, a cell may, in the course of untold millions of years, give origin to the human race.
+ - There is no origin for the idea of an afterlife, save the conclusion which the savage draws from the notion suggested by dreams.
+ - The universal basis of co-operation is the proportioning of benefits received to services rendered.
+ - An argument fatal to the communist theory, is suggested by the fact, that a desire for property is one of the elements of our nature.
+ - The question of questions for the politicians should ever be-What type of social structure am I tending to produce? But this is a question he never entertains.
+ - Of all the knowledge, that most worth having is knowledge about health! The first requisite of a good life is to be a healthy person.
+ - It is the function of parents to see that their children habitually experience the true consequences of their conduct.
+ - The freest form of government is only the least objectionable form. The rule of the many by the few we call tyranny: the rule of the few by the many is tyranny also; only of a less intense kind.
+ - In the supremacy of self-control consists one of the perfections of the ideal man.
+ - The home is the most important factor in civilization, and that civilization is to be measured at different stages largely by the development in the home.
+ - Do not try to produce an ideal child, it would find no fitness in this world.
+ - Volumes might be written upon the impiety of the pious.
+ - Much dearer be the things which come through hard distress.
+ - The liberty the citizen enjoys is to be measured not by governmental machinery he lives under, whether representative or other, but by the paucity of restraints it imposes upon him.
+ - The fact disclosed by a survey of the past that majorities have been wrong must not blind us to the complementary fact that majorities have usually not been entirely wrong.
+ - So long as selfishness makes government needful at all, it must make every government corrupt, save one in which all men are represented.
+ - We too often forget that not only is there ‘a soul of goodness in things evil,’ but very generally also, a soul of truth in things erroneous.
+ - Agnostics are people who, like myself, confess themselves to be hopelessly ignorant concerning a variety of matters, about which metaphysicians and theologians, both orthodox and heterodox, dogmatize with the utmost confidence.
+ - Evil perpetually tends to disappear.
+ - In assuming any office besides its essential one, the State begins to lose the power of fulfilling its essential one.
+ - Music must take rank as the highest of the fine arts – as the one which, more than any other, ministers to the human spirit.
+ - Every man may claim the fullest liberty to exercise his faculties compatible with the possession of like liberties by every other man.
+ - To have a specific style is to be poor in speech.
+ - A living thing is distinguished from a dead thing by the multiplicity of the changes at any moment taking place in it.
+ - In societies of low civilization, there is no money.
+ - Those who have never entered upon scientific pursuits know not a tithe of the poetry by which they are surrounded.
+ - The presumption that any current opinion is not wholly false, gains in strength according to the number of its adherents.
+ - The wise man must remember that while he is a descendant of the past, he is a parent of the future.
+ - We have repeatedly observed that while any whole is evolving, there is always going on an evolution of the parts into which it divides itself; but we have not observed that this equally holds of the totality of things, which is made up of parts within parts from the greatest down to the smallest.
+ - Lusts are like agues; the fit is not always on, and yet the man is not rid of his disease; and some men’s lusts, like some agues, have not such quick returns as others.
+ - That feelings of love and hate make rational judgments impossible in public affairs, as in private affairs, we can clearly enough see in others, though not so clearly in ourselves.
+ - The child takes most of his nature of the mother, besides speech, manners, and inclination.
+ - It becomes possible to admit that plainness may coexist with nobility of nature, and fine features with baseness; and yet to hold that mental and physical perfection are fundamentally connected, and will, when the present causes of incongruity have worked themselves out, be ever found united.
+ - In literary art, as in the art of the architect, the painter, the musician, signs that the artist is thinking of his own achievement more than of his subject always offend me.
+ - The preservation of health is a duty. Few seem conscious that there is such a thing as physical morality.
+ - Though, probably, no competent geologist would contend that the European classification of strata is applicable to all other parts of the globe, yet most, if not all geologists, write as though it were so.
+ - With a higher moral nature will come a restriction on the multiplication of the inferior.
+ - The ultimate result of shielding men from the effects of folly, is to fill the world with fools.
+ - When men hire themselves out to shoot other men to order, asking nothing about the justice of their cause, I don’t care if they are shot themselves.
+ - No phrase can convey the idea of surprise so vividly as opening the eyes and raising the eyebrows. A shrug of the shoulders would lose much by translation into words.
+ - Originally, ethics has no existence apart from religion, which holds it in solution.
+ - Feudalism, serfdom, slavery, all tyrannical institutions, are merely the most vigorous kind to rule, springing out of, and necessarily to, a bad state of man. The progress from these is the same in all cases – less government.
+ - Divine right of kings means the divine right of anyone who can get uppermost.
+ - If every man has freedom to do all that he wills, provided he infringes not the equal freedom of any other man, then he is free to drop connection with the state-to relinquish its protection, and to refuse paying toward its support.
+ - No one can be perfectly happy till all are happy.
+ - Government is essentially immoral. The State employs evil weapons to subjugate evil, and is alike contaminated by the objects with which it deals, and the means by which it works.
+
+141 quotes

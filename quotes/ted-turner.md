@@ -1,0 +1,118 @@
+ - Life is a game. Money is how we keep score.
+ - You should set goals beyond your reach so you always have something to live for.
+ - Do something. Either lead, follow or get out of the way.
+ - You can never quit. Winners never quit, and quitters never win.
+ - To succeed you have to be innovative.
+ - Once you decide to do something, and you’re pretty sure you’re right, then you gotta go ahead and do it. Because if you piddle around, somebody else will beat you to it.
+ - I’m a very good thinker, but I sometimes grab the wrong word. I say something I didn’t think through adequately. I mean, I don’t type my speeches, then sit up there and read them off the teleprompter, you know. I wing it.
+ - If you panic that’s a good way to lose. You have to stay in control.
+ - I’m no genius. I’m not at all; I just happen to look five or 10 years ahead and think things through...
+ - Music has a great power for bringing people together. With so many forces in this world acting to drive wedges between people, it’s important to preserve those things that help us experience our common humanity.
+ - Christianity is a religion for losers.
+ - What the Bible says is really true-it’s better to give than to receive.
+ - I’m a human being, just like everybody else. I’m up some days and down others. Some days, I just refuse comment. If I’m feeling a little down, I won’t say anything. But if I’m really up, I’ll let it all hang out. I do have a slight propensity to put my foot in my mouth.
+ - The mind is just another muscle.
+ - If you treat people with dignity, respect and friendliness, you can turn enemies into friends. An enemy is nothing but a friend in disguise.
+ - Be sure to set your goals so high that you can’t possibly accomplish them in one lifetime. That way you’ll always have something ahead of you. I made the mistake of setting my goals too low, and now I’m having a hard time coming up with new ones.
+ - Every action or inaction has an impact-good or bad-upon our surroundings, and anything we do today will have an impact on the lives of our grandchildren.
+ - I love this planet I want to see the environment preserved and I want to see the human race preserved. And I’d like to see everybody living decently in a more equitable, kind-hearted, thoughtful, generous world.
+ - I’d rather be smart and poor than rich and dumb.
+ - I’m just a socialist at heart.
+ - We must go through a natural revolution if we are to survive on earth. We need to change people’s perceptions. If there’s no environment, there’s no human race. We are in a state of global denial.
+ - I don’t watch entertainment. I haven’t watched in years. I want to see serious news.
+ - I’m a millionaire, I guess, but I’m just a normal person and I like everybody, taxi drivers, whoever you are, to call me by my first name and talk to me on a man-to-man basis. I think the garbage collector is as important as the goddamned president.
+ - The worst sin, the ultimate sin for me, in anything, is to be bored.
+ - I’ve always tried to do the smartest and best thing.
+ - The United States has got some of the dumbest people in the world. I want you to know that we know that.
+ - Life is like a B-movie. You don’t want to leave in the middle of it, but you don’t want to see it again.
+ - A total population of 250-300 million people, a 95% decline from present levels, would be ideal.
+ - Sports is like a war without the killing.
+ - The happiest people are those who are contributing to society.
+ - I thought, between sports and news and television and friendship, that you could end the Cold War and, by God, we did.
+ - When our time’s up, it’s up. All the money in the world won’t buy you one more day.
+ - I have both sleep apnea and atrial fibrillation, which are both debilitating conditions.
+ - Over-population is the ‘cause of drive-by shootings’ and other social ills, but the root of the problem is Christianity, which posits that people are more important than sea otters and elephants.
+ - Men should be disqualified for public office. Women should run the planet. They’re better than us.
+ - Even if we didn’t have greenhouse gases, were going to have to move away from fossil fuels, as we’re going to run out. They’re finite, whereas solar and wind are infinite.
+ - I was cable when cable wasn’t cool.
+ - I fantasize about everything; being a fireman, an Indian chief, climbing mountains. Anything is possible.
+ - There is no greater legacy that we can leave our children and grandchildren than a peaceful and safer world.
+ - Basically we are chimpanzees with about two percent more intelligence and a little less hair.
+ - Make a way, find a way or get out of the way.
+ - There are too many people, that’s why we have global warming. We have global warming because too many people are using too much stuff.
+ - The biggest thing I learned from losing? Winning’s better.
+ - I didn’t care what, how much adversity life threw at me. I intended to get to the top.
+ - Struggling hard to achieve something is the most fun I get.
+ - If I had to predict, the way things are going, I’d say the chances are about 50-50 that humanity will be extinct or nearly extinct within 50 years. Weapons of mass destruction, disease, I mean this global warming is scaring the living daylights out of me.
+ - I see what keeps people young: work!
+ - I was gonna go broke if I didn’t get things turned around real fast.
+ - All my life people have said that I wasn’t going to make it.
+ - Over a three year period, I gave away half of what I had. To be honest, my hands shook as I signed it away. I knew I was taking myself out of the race to be the richest man in the world.
+ - I think Captain Cousteau might be the father of the environmental movement.
+ - Even when I started in 1970, I knew that television was having a negative effect on our society.
+ - If the Russian nuclear arsenal was fired at the United States and other targets, and we fired back at them with thousands of nuclear weapons, it would be the end of life on earth.
+ - I had more energy at 50. On the other hand, at 75, I’ve probably got a little more wisdom and good judgment than I had at 50 because I’ve got more experience. But I haven’t really changed. I’m still driven by the same philosophy.
+ - At Time Warner, I had ten percent of the stock after the merger. But when we merged with AOL, I was diluted down to three percent.
+ - To be happy in this world, first you need a cell phone and then you need an airplane. Then you’re truly wireless.
+ - I’m hard of hearing. I miss a lot. It’s really tough.
+ - The chance for mistakes is about equal to the number of crew squared.
+ - I believe in pulling together to make the country better right rather than pulling, tearing it apart for partisan reasons. I think the country comes first.
+ - I love CNN. I love the Cartoon Network. I mean, I thought these things up.
+ - The sad thing about destroying the environment is that we’re going to take the rest of life with us. The bluebirds will be gone, and the elephants will be gone, and the tigers will be gone, and the pandas will be gone.
+ - The whole idea of television news or any kind of news is to inform people about things they need to know about.
+ - Never set goals you can reach in your lifetime.
+ - I’m sure God, wherever he is, wants to see us get along with one another and love one another.
+ - If I sold all my liabilities, I wouldn’t own anything. My wife’s a liability, my kids are liabilities, and I haven’t sold them.
+ - The Palestinians are fighting with human suicide bombers, that’s all they have. The Israelis they’ve got one of the most powerful military machines in the world. The Palestinians have nothing. So who are the terrorists? I would make a case that both sides are involved in terrorism.
+ - The media is too concentrated, too few people own too much. There’s really five companies that control 90 percent of what we read, see and hear. It’s not healthy.
+ - Nuclear war would really set back cable.
+ - Hell, we spent $200 Billion to get a scared guy who needed a shave out of a fox-hole! And he may even die of prostate cancer before we even get a chance to try him, dammit!
+ - If you think you’re a second-class citizen, you are.
+ - Most of the people will have died and the rest of us will be cannibals.
+ - Every man sees a little of himself in Rhett Butler.
+ - If you can get yourself where you’re not afraid of dying, then you can move forward a lot faster.
+ - The reason that the World Trade Center got hit is because there are a lot of people living in abject poverty out there who don’t have any hope for a better life.
+ - I’m 68 and a half years old; I grew up with newspapers; I love newspapers; I love the news business. I started CNN; I’m a journalist and proud of it.
+ - Man should be judged by the deeds done to help his fellow man.
+ - If I only had a little humility, I would be perfect.
+ - I’ve had the good fortune to have a much more diverse life than most people would, professional sports and television and news and movies.
+ - If the perpetrators of the World Trade Center plane crashes had a nuclear weapon, there’s no doubt in my mind but that they would’ve detonated it in New York.
+ - There’s nothing wrong with being fired.
+ - If there is a God, he is not doing a good job of protecting the earth. He’s kind of checked out.
+ - It’s been a long time since anybody caught me saying something stupid.
+ - When I was a publisher of CNN, I took responsibility for the actions of the network.
+ - I like snakes. I like hummingbirds. There’s nothing on earth I don’t like. Frogs. Salamanders. The bunnies, the giraffes, the hippopotamuses.
+ - If you had the most prestige and you were the network that everybody turned to in times of a crisis, that that was the most important position, in the news business, to hold.
+ - Every few seconds it changes – up an eighth, down an eighth – it’s like playing a slot machine. I lose $20 million, I gain $20 million.
+ - I believe in a reasonable amount of “right to bear arms”. But private citizens of the United States are not allowed to own nuclear weapons. I always wanted a nuclear weapon, if I could have gotten one. I’m every other kind of power, but I’m not a nuclear power.
+ - It was a struggle financing CNN, but I did it without ever asking the government for a nickel.
+ - When I was young and ocean-racing competitively, and working the rest of the time, I was going 24 hours. I was on the verge of collapsing. But you’ve got to slow down a bit.
+ - War has been good to me from a financial standpoint but I don’t want to make money that way. I don’t want blood money.
+ - Just because your ratings are bigger doesn’t mean you’re better.
+ - I’d like to say that right now, in the last few years, the Democrats have been closer – have been more pro-environment. The coal industry is pretty well entrenched in the Republican Party and that’s one of the things that we need to phase out.
+ - The worst thing you can do if you want to start a fight is to use derogatory terminology.
+ - Where’s the upside in opening your mouth?
+ - The Iranians don’t intimidate! They’re like the Vietnamese and the Iraqis. You want to start a war with them? They’ll still be fighting in fifty years!
+ - I wanted to better inform the world.
+ - I like something with ‘vice’ in it.
+ - The world and life have been mighty good to me. And I want to put something back.
+ - We’ll be eight degrees hotter in ten – not ten, but thirty or forty years, and basically none of the crops will grow. Most of the people will have died and the rest of us will be cannibals.
+ - I’ve never run into a guy who could win at the top level in anything today and didn’t have the right attitude, didn’t give it everything he had, at least while he was doing it; wasn’t prepared and didn’t have the whole program worked out.
+ - CNN anchor Gwen Scott claimed it is common knowledge that Turner sits in his office and smokes marijuana.
+ - I just love it when people say I can’t do it, there’s nothing that makes me feel better because all my life, people have said that I wasn’t going to make it.
+ - We have to do more than keep media giants from growing larger; they’re already too big. We need a new set of rules that will break these huge companies to pieces.
+ - I like Obama. I don’t know who could do a better job. He’s got an incredibly tough situation, and a good heart and mind. I’d like to see him rally support a little better.
+ - Rupert Murdoch is the most dangerous man in the world.
+ - My son is now an ‘entrepreneur.’ That’s what you’re called when you don’t have a job.
+ - I regret that I wasn’t more successful with my marriages, but it is what it is.
+ - Exposure to defeat is a very important thing. Anyone who doesn’t look to get beaten is doing a disservice to himself.
+ - I lost 80 percent of my wealth and then gave away over half of the rest. So I’m a man of modest means now. But if you budget carefully and watch your expenditures, you can get by on a couple billion dollars.
+ - If you never quit, you’re never beaten.
+ - It was okay for people to write negative things about me just as long as they spelled my name right.
+ - I travel a lot. I’m on the move.
+ - I haven’t been in a store to buy anything for five years.
+ - When I started ‘CNN,’ I made the decision to stay out of endorsing candidates, and let the doers make up their own minds about politics, that it wasn’t going to come from me.
+ - John is very aware of the responsibilities that come with being a landowner. I also feel that way. We both see landownership as a personal investment, but also an opportunity to contribute to the well-being of our planet and its inhabitants.
+ - It’s going to cost trillions of dollars to rework the energy sources all over the world. Were going to have to move away from fossil fuels.
+
+116 quotes

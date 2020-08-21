@@ -1,0 +1,43 @@
+ - The fidelity of a dog is a precious gift demanding no less binding moral responsibilities than the friendship of a human being.
+ - The bond with a dog is as lasting as the ties of this earth can ever be.
+ - There is no faith which has never yet been broken, except that of a truly faithful dog.
+ - Philosophers are people who know less and less about more and more, until they know nothing about everything. Scientists are people who know more and more about less and less, until they know everything about nothing.
+ - The fidelity of a dog is a precious gift.
+ - The human soul is very much older than the human mind.
+ - I believe that present day civilized man suffers from insufficient discharge of his aggressive drive.
+ - Just thinking that my dog loves me more than I love him, I feel shame.
+ - Scientific truth is universal, because it is only discovered by the human brain and not made by it, as art is.
+ - Hatred of humanity and love of animals make a very bad combination.
+ - Humor and knowledge are the two great hopes of our culture.
+ - Every man gets a narrower and narrower field of knowledge in which he must be an expert in order to compete with other people. The specialist knows more and more about less and less and finally knows everything about nothing.
+ - I have found the missing link between the higher ape and civilized man; it is we.
+ - Evil, by definition, is that which endangers the good, and the good is what we perceive as a value.
+ - The neuro-physiological organization which we call instinct functions in a blindly mechanical way, particularly apparent when its function goes wrong.
+ - It is a good morning exercise for a research scientist to discard a pet hypothesis every day before breakfast. It keeps him young.
+ - The instinctive need to be the member of a closely knit group fighting for common ideals may grow so strong that it becomes inessential what these ideals are.
+ - One could not be a successful scientist without realizing that, a goodly number of scientists are not only narrow-minded and dull, but also just stupid.
+ - The human mind, in taking us down the path of technocracy, has become the adversary of life itself and collaterally the adversary of the human soul.
+ - We do not take humor seriously enough.
+ - All scientific knowledge to which man owes his role as master of the world arose from playful activities.
+ - Man has been driven out of the paradise in which he could trust his instincts.
+ - We had better dispense with the personification of evil, because it leads, all too easily, to the most dangerous kind of war: religious war.
+ - I believe that both art and the human striving for cognitive comprehension are manifest forms of the grand game in which nothing more is stipulated than the game’s rules; both art and actively solicited perceptions are but special cases of the recurring creative act to which we owe our existence.
+ - Truth in science can be defined as the working hypothesis best suited to open the way to the next better one.
+ - The scientist knows very well that he is approaching ultimate truth only in an asymptotic curve and is barred from ever reaching it; but at the same time he is proudly aware of being indeed able to determine whether a statement is a nearer or a less near approach to the truth.
+ - The cat is a wild animal that inhabits the homes of humans.
+ - Few animals display their mood via facial expressions as distinctly as cats.
+ - Man appears to be the missing link between anthropoid apes and human beings.
+ - Most people have forgotten how to live with living creatures, with living systems and that, in turn, is the reason why man, whenever he comes into contact with nature, threatens to kill the natural system in which and from which he live.
+ - Natural selection does not give any preference at all to anything that, in the long run, could be advantageous for the species but blindly rewards everything that, momentarily, affords greater procreative success.
+ - Historians will have to face the fact that natural selection determined the evolution of cultures in the same manner as it did that of species.
+ - Barking dogs occasionally bite, but laughing men hardly ever shoot.
+ - The truth about an animal is far more exciting and altogether more beautiful than all the myths woven about it.
+ - Most of the vices and mortal sins condemned today correspond to inclinations that were purely adaptive or at least harmless in primitive man.
+ - I see the creative accomplishments of which highly gifted humans are capable as special cases of the universal creative process, that game played by everyone against everyone else, from which wells up all that has never been before.
+ - More than any other product of human scientific culture scientific knowledge is the collective property of all mankind.
+ - A man sufficiently gifted with humor is in small danger of succumbing to flattering delusions about himself, because he cannot help perceiving what a pompous ass he would become if he did.
+ - In nature we find not only that which is expedient, but also everything which is not so inexpedient as to endanger the existence of the species.
+ - It ought to be realized by all dog owners that obesity shortens a dog’s life quite considerably, a life which is much too short anyhow.
+ - I would rather have a Scot come from Scotland togovern the people of this kingdom well and justly, than that you should govern them ill in the sight of all the world.
+
+41 quotes

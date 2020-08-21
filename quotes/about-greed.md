@@ -1,0 +1,42 @@
+ - Greed makes man blind and foolish, and makes him an easy prey for death. ~~Rumi
+ - Greed has poisoned men’s souls. ~~Charlie Chaplin
+ - Greed is permanent slavery. ~~Ali ibn Abi Talib
+ - Selfish persons are incapable of loving others, but they are not capable of loving themselves either. ~~Erich Fromm
+ - Greed’s worst point is its ingratitude. ~~Seneca the Younger
+ - Greed is the assumption that it is all for my consumption. ~~Andy Stanley
+ - Only those blinded by greed would refuse to let a friend make a copy. ~~Aaron Swartz
+ - The twin killers of success are impatience and greed. ~~Jim Rohn
+ - I will tell you the secret to getting rich on Wall Street. You try to be greedy when others are fearful. And you try to be fearful when others are greedy. ~~Warren Buffett
+ - People’s lives are forever controlled by two emotions: fear and greed. ~~Robert T. Kiyosaki
+ - It’s not greed that drives the world, but envy. ~~Charlie Munger
+ - The road of excess leads to the palace of wisdom. ~~William Blake
+ - No one is born with greed, prejudice, bigotry, patriotism and hatred; these are all learned behavior patterns. ~~Jacque Fresco
+ - Classism and greed are making insignificant all the other kinds of isms. ~~Ruby Dee
+ - Ignorance, hatred and greed are killing nature. ~~Masanobu Fukuoka
+ - We are in danger of destroying ourselves by our greed and stupidity. We cannot remain looking inwards at ourselves on a small and increasingly polluted and overcrowded planet. ~~Stephen Hawking
+ - To those who can hear me, I say – do not despair. The misery that is now upon us is but the passing of greed – the bitterness of men who fear the way of human progress. ~~Charlie Chaplin
+ - Greed is good. Sex is easy. Youth is forever. ~~Bret Easton Ellis
+ - Greed may not be good, but it’s not so bad either. You humans think greed is just for money or power, but everyone wants something they can’t have. ~~Hiromu Arakawa
+ - Capitalism has been called a system of greed – yet it is the system that raised the standard of living of its poorest citizens to heights no collectivist system has ever begun to equal, and no tribal gang can conceive of. ~~Ayn Rand
+ - Life is easy, life is delightful. It’s only hard on your illusions, your ambitions, your greed, your cravings. ~~Anthony de Mello
+ - The human heart is greedy; it will use religion, color, or any other excuse to justify its greed. Blame the human heart. ~~Bono
+ - The greed of the billionaire class has got to end and we are going to end it for them. ~~Bernie Sanders
+ - If you ask for too much, you lose even that which you have. ~~Isaac Asimov
+ - People say that the monetary system produces incentive. This may be true in limited areas, but it also produces greed, embezzlement, corruption, pollution, jealousy, anger, crime, war, poverty, tremendous scarcity, and unnecessary human suffering. You have to look at the entire picture. ~~Jacque Fresco
+ - The law has been perverted through the influence of two very different causes-naked greed and misconceived philanthropy. ~~Frédéric Bastiat
+ - If I have to build a big company by mistreating other people then the Bible says WOE to me. I don’t know what that is, but I don’t want any of it. ~~Joyce Meyer
+ - What kind of society isn’t structured on greed? ~~Milton Friedman
+ - TARIFF, n. A scale of taxes on imports, designed to protect the domestic producer against the greed of his consumer. ~~Ambrose Bierce
+ - How shrunk, how dwindled, in our times Creation’s mighty seed – For Man has broke the Fellowship With murder, lust, and greed. ~~Margaret Atwood
+ - Politicians never accuse you of ‘greed’ for wanting other people’s money – only for wanting to keep your own money. ~~Joseph Sobran
+ - Politics – I don’t know why, but they seem to have a tendency to separate us, to keep us from one another, while nature is always and ever making efforts to bring us together. ~~Seán O'Casey
+ - No purpose intervenes between I and You, no greed and no anticipation; and longing itself is changed as it plunges from the dream into appearance. Every means is an obstacle. Only where all means have disintegrated encounters occur. ~~Martin Buber
+ - Immense wealth, and its lavish expenditure, fill the great house with all that can please the eye, or tempt the taste. Here, appetite, not food, is the great desideratum. ~~Frederick Douglass
+ - There is no force more potent in the modern world than stupidity fueled by greed. ~~Edward Abbey
+ - I want an Oompa-Loompa!? screamed Veruca. ~~Roald Dahl
+ - Leadership is a privilege to better the lives of others. It is not an opportunity to satisfy personal greed. ~~Mwai Kibaki
+ - Greed is a bottomless pit which exhausts the person in an endless effort to satisfy the need without ever reaching satisfaction. ~~Erich Fromm
+ - Be fearful when others are greedy and greedy when others are fearful. ~~Warren Buffett
+ - Republicans stand for raw, unbridled evil and greed and ignorance smothered in balloons and ribbons. ~~Frank Zappa
+
+40 quotes

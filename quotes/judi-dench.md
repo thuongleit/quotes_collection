@@ -1,0 +1,66 @@
+ - Never fall out of love with life.
+ - I think you should take your job seriously, but not yourself – that is the best combination.
+ - One of the benefits of being a mature well-educated woman is that you’re not afraid of expletives. And you have no fear to put a fool in his place. That’s the power of language and experience. You can learn a lot from Shakespeare.
+ - I would hate people to think bossy is all I can do.
+ - We get up in the morning. We do our best. Nothing else matters.
+ - Most things don’t work out as expected, but what happens instead often turns out to be the good stuff.
+ - The only real failure is the failure to try.
+ - It takes courage to recognize the real as opposed to the convenient.
+ - I’ve got what my ma had, macular degeneration, which you get when you get old.
+ - There is no past that we can bring back by longing for it.
+ - I have a completely new knee. It’s brilliant. I am not feeling my age at all. I feel about 43, a willowy blonde 43 years old with long legs.
+ - Children have become disengaged from nature and we need to reintroduce them to the pleasure that it brings. If we do that they will care for it. Through the simple act of planting a tree we can open their eyes to nature’s beauty.
+ - I’ve figured out what to do so far, but it’s always the next thing you come to where the man with the bucket of ice cold water is waiting – whoosh! in your face. That’s why you work with directors who know what to tell you to do.
+ - Having a daughter and a grandson, I certainly could relate to the fact that this child, who you simply dote on, being taken away from you at an early age, and every single kind of emotion you would have to go through.
+ - I need to learn every day.
+ - I like to push myself beyond the limit every now and again.
+ - It is not good to cross the bridge before you get to it.
+ - I work out the other bits, too, but I need to know what I look like, very early on. And then it’s like a template; I’ll fill that person out. If I get that out of the way, then I’m all right.
+ - Anything that we can do to improve the lives of elderly people is welcome so far as I am concerned.
+ - It was good to learn so early. They’re not going to be kind to you. You have to do it and get on, and then gulp down and get better.
+ - I don’t think anybody can be told how to act. I think you can give advice. But you have to find your own way through it.
+ - There’s nothing good about being my age.
+ - I love being part of a company, and telling a story.
+ - Everything, every part that you approach has to be somehow rooted in yourself. You have to somehow root everything so that it’s not just words coming out of you.
+ - I don’t like reading scripts very much. I like it better for someone to just explain to me what it is about this story.
+ - I think you’ve got to have your feet planted firmly on the ground, especially in this business, and you must not believe things that are said or written about you, because everything gets out of proportion one way or the other.
+ - Work certainly does help fill a void.
+ - I trained as a designer, so I’m always terribly keen about what I’m going to look like.
+ - I started off as a theatre designer, and by some extraordinary circumstance I saw something in Stratford-upon-Avon, and realized that that’s the kind of design I want, but also that that’s the kind of designer I’ll never be.
+ - I wanted to be a set designer when I was young.
+ - I get sillier as I get older, so I don’t know what wisdom means. I can only pass on something that I’ve been acquainted with and let whomever it is pick the bones out of it.
+ - I was in Yorkshire. We were a family of five and I used to be sent sometimes to get the rations for the week and was easily able to carry them back. It was like one egg and a tiny bit of tea.
+ - I’d rather do a part because I want to, not because great things are expected of me.
+ - People seem to have this idea that I’ve always been very ambitious. Nothing could be further from the truth.
+ - There are very few things that surprise me.
+ - Sometimes nudity is gratuitous. We just live in a society where everything goes.
+ - I played Iris Murdoch, who had not long died, and I felt the responsibility very heavy on my shoulders.
+ - I would like to work with Jack Nicholson, before it’s too late.
+ - I just feel incredibly lucky to be employed when there are so many actors and actresses who are not employed. That’s why, you know, I sometimes feel desperate, in case I’m not going to be cast again.
+ - In the theatre you can change things ever so slightly; it’s an organic thing. Whereas in film you only have that chance on the day, and you have no control over it at all.
+ - My husband was actually very keen that I would become a Bond girl.
+ - I have no control over a film. I don’t know what will be left on the cutting floor.
+ - People think you know beforehand when you win an Oscar – I can assure you you don’t.
+ - It is true that there are few plays of Shakespeare that I haven’t done.
+ - I’ve always loved painting, although I never show anyone what I’ve done. Mainly because I don’t do it well. But it’s like a form of visual diary for me. A way of fixing things in my mind.
+ - I don’t think that care homes are all rotten old places that ought to be shut down.
+ - The difficulty with any sort of esteem is that more is expected of you.
+ - In contrast, the control you have in a theatre is very attractive to me.
+ - Every experience that you experience yourself you use, because that’s our craft.
+ - I am so thrilled to be nominated for something I loved working on every single day.
+ - Actually, what I miss are people corpsing on stage.
+ - The theater is the thing I love doing most.
+ - This is just the loveliest news. I’m so happy for everybody involved, and so proud to have been part of the wonderful experience that Philomena has been.
+ - The need for a global structure of control in the form of a world environment court is now more urgent than ever before.
+ - Don’t think I am going to let Bob Hoskins take all his clothes off and me not take a look? I just had a quick look up and down, like you would.
+ - We know about the issue of children being sold and adopted and taken away but what is so extraordinary is how these two people come through something like – how both of them do, in actual fact. I think that she’s one of the most considerable people I’ve ever met, Philomena.
+ - The more I do, the more frightened I get. But that is essential. Otherwise why would I go on doing it?
+ - And then it was working with Bob Hoskins, who I had never worked with before – except radio. It was like being given a wonderful meal – full of the things you love most.
+ - The Lord Chamberlin was censoring scripts when I first came into the theater.
+ - I can’t read scripts any more because of the trouble with my eyes.
+ - I felt quite a responsibility when I played Elizabeth I but nobody here remembers her! And then I felt a responsibility when I played Queen Victoria but not many people remember her.
+ - Some things you know about, you know what the ingredients are – maybe not all of them. But it’s up to you to put in the amount. It’s up to the director to nag you until you get it right.
+ - Seriously, though, I think I never ceased to be grateful of the fact that I am able to do a job that I really love – I never got over that.
+ - I don’t really want to retire. I intend to go on working as long as I can because I still have a huge amount of energy.
+
+64 quotes

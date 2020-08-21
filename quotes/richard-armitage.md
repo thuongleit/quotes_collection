@@ -1,0 +1,49 @@
+ - Whatever I lack in talent I have in stamina.
+ - I feel like my imagination was crafted by Tolkien. He seemed to tap into that childhood intrigue of secret doors and hidden worlds.
+ - I have a bit of pride, which is always my downfall.
+ - I’d have described myself as a Tolkien reader before this, but now I’d describe myself as a Tolkien geek.
+ - The bad guys have all the fun!
+ - Since real spies are so good, you never really know what actual spying is. But I do think spying is a lot more dangerous than we are led to believe.
+ - I can work hard and be disciplined like a soldier, but I could never reach their level of fitness. I have a strange appreciation of soldiers. I saw myself on screen and thought, ‘That body is so not hard enough to be a soldier.’
+ - I think, as a general matter, clearly, the United States globally supports the development of democracy and the democratic yearnings of all people.
+ - I love being grungy and dirty.
+ - I’m not interested in building wealth, which is kind of naive and probably frowned on, living in America. It’s something that people don’t necessarily understand, but if I die poor, I die poor.
+ - I’d say that, to be a good deal maker, you have to have three basic characteristics – timing, timing, and timing.
+ - I think if I had come out of drama school and been an instant Hollywood superstar, I would be taking long, leisurely holidays.
+ - You have to remove your human sentiment when it comes to greed and the accumulation of wealth.
+ - What could be better in al-Qaeda’s mind than to have India and Pakistan going at each other? What more to further their aims?
+ - Unfortunately, my love life is nil. I’m working too much – but I would like to settle down at some point.
+ - The problem with me is I read everything, but it’s only the bad stuff that stays with me. It’s weird, you only need to be told something once and it stays with you.
+ - Trying to please everyone can be very hard, but, like Shrek or The Simpsons, Robin Hood manages to entertain adults and children at the same time, but in different ways.
+ - I can’t bear shopping. I can choose clothes for my characters, but not for myself. I’ve got no dress sense. Or I’ve lost it.
+ - I know what Twitter is; I don’t use it. I don’t use Facebook, so luckily, it does zero to my ego.
+ - I think most conflicts do end with negotiated settlements; some don’t, but most do.
+ - The war we are fighting today against terrorism is a multifaceted fight. We have to use every tool in our toolkit to wage this war – diplomacy, finance, intelligence, law enforcement, and of course, military power – and we are developing new tools as we go along.
+ - The development of weapons of mass destruction and the missiles to carry them would be a very destabilizing effect, should Iran be able to accomplish that.
+ - Do people really think that about my nose? I spent my whole life hating it, so its amusing that people like it!
+ - Ive never been that cute kid that was forgiven for being naughty.
+ - I think there was a pretty smooth hand-off from the administration of President Clinton to the administration of President Bush, particularly in the counterterrorism area. The reason I say that is because there was, for transitions, I think a stunning continuity.
+ - Iran has interest in seeing that the Shia population of Iraq basically adhere to a line that comes from Iran.
+ - You can spend a bit of yourself when you give yourself to a character. At the end of a job, you have to remind yourself who and what you are.
+ - A terrorist is one who kills innocents for the pursuit of a political aim.
+ - I never like to go out of character when filming starts. I fear that if I do, I might not be able to pick it up again.
+ - It fills me with dismay sometimes when you look at the scripts that do come to you that are primarily focused on violence. There are so many other things to play around with.
+ - Once you don’t smile on film, they say, ‘Let’s have that bloke who doesn’t smile.’
+ - I value my ability to keep state secrets.
+ - I have an accountant, obviously, because I’m self employed, and I use an independent financial adviser. I trust my accountant because we have worked together for a long time now.
+ - I come from very conservative parents, and we weren’t particularly wealthy, but we were comfortable.
+ - I think what Osama bin Laden does is to take the fact that some peoples lack hope and lack opportunity, and twist it to his own ends.
+ - I think insanity is the hardest thing to play.
+ - I’m the only honest person in Washington.
+ - The CIA estimates that Iraq probably has a few hundred metric tons of chemical weapons agents, for mustard gas, sarin, and other deadly concoctions. This is addition to an extensive capacity to produce biological weapons, including anthrax and ricin, which is fatal within 24 to 36 hours of exposure.
+ - Let’s face it, the Obama administration was handed a pretty poor deal from the previous administration.
+ - I’m not a massive fan of 3D. I’ve seen some good 3D, and I’ve seen quite a lot of bad 3D. I think if a film is created for the shock effect of 3D, then it’s a certain type of film that I’m not massively bothered about.
+ - Tolkien was, I believe, writing about his experience in the First and Second World Wars, where he would have spent a lot of time without any female contact. He was part of the fellowship of men who went to war, and I think, really, that’s what he’s writing about.
+ - I must say I’ve rarely been described as ’diplomat.
+ - I don’t know if, at the end of the day, how brave Saddam Hussein would be if he were stripped of his bodyguards and everything else.
+ - As far as this citizen is concerned, the decision to commit men and women, who are also sons and daughters, to combat is an extraordinarily important one, and not to be done to just feel good; to be done to absolutely accomplish a mission.
+ - Well, first of all, I have to say that Iraq has already used weapons of mass destruction against her own people and against Iranians during their long war, so we know that weapons of mass destruction are existent with the Iraqis.
+ - Adults will not necessarily laugh at the same thing as their children.
+ - Well, I think finding the weapons of mass destruction is going to be quite time consuming. I know we’ve uncovered some documents, we’ll have to exploit them, and we’re going to have to blanket a country the size of California and search, I think, quite rigorously, but we’ll come up with them.
+
+47 quotes

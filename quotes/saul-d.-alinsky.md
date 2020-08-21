@@ -1,0 +1,72 @@
+ - Life is an adventure of passion, risk, danger, laughter, beauty, love; a burning curiosity to go with the action to see what it is all about, to go search for a pattern of meaning, to burn one’s bridges because you’re never going to go back anyway, and to live to the end.
+ - Change comes from power, and power comes from organization.
+ - True revolutionaries do not flaunt their radicalism. They cut their hair, put on suits and infiltrate the system from within.
+ - If people don’t think they have the power to solve their problems, they won’t even think about how to solve them.
+ - Change means movement. Movement means friction.
+ - Make the enemy live up to its own book of rules.
+ - It does not matter what you know about anything if you cannot communicate to your people. In that event you are not even a failure. You’re just not there.
+ - As an organizer I start from where the world is, as it is, not as I would like it to be.
+ - Our world has always had two kinds of changers, the social changers and the money changers.
+ - The only people who become disillusioned are people who have illusions.
+ - The Prince was written by Machiavelli for the Haves on how to hold power. Rules for Radicals is written for the Have-Nots on how to take it away.
+ - Power goes to two poles-to those who’ve got the money and those who’ve got the people.
+ - No issue can be negotiated unless you first have the clout to compel negotiation.
+ - Radicals must be resilient, adaptable to shifting political circumstances, and sensitive enough to the process of action and reaction to avoid being trapped by their own tactics and forced to travel a road not of their choosing.
+ - Action comes from keeping the heat on. No politician can sit on a hot issue if you make it hot enough.
+ - The third rule of ethics of means and ends is that in war the end justifies almost any means...
+ - Never do for someone what they can do for themselves.
+ - The very first radical known to man who rebelled against the establishment and did it so effectively that he at least won his own kingdom – Lucifer.
+ - Liberals like people with their heads, radicals like people with both their heads and their hearts.
+ - Democracy is alive, and like any other living thing it either flourishes and grows or withers and dies. There is no in-between. It is freedom and life or dictatorship and death.
+ - The end is what you want and the means is how you get it.
+ - The threat is generally more terrifying than the thing itself.
+ - The only nonpartisan people are those who are dead.
+ - The greatest enemy of individual freedom is the individual himself.
+ - Control healthcare and you control the people.
+ - The thirteenth rule of radical tactics: Pick the target, freeze it, personalize it, and polarize it.
+ - The second rule is: Never go outside the experience of your people. When an action is outside the experience of the people, the result is confusion, fear, and retreat.
+ - The fact that people are poor or discriminated against doesn’t necessarily endow them with any special qualities of justice, nobility, charity or compassion.
+ - Never let a crisis go to waste.
+ - Once you accept your own death, all of a sudden you are free to live.
+ - Humor is essential to a successful tactician, for the most potent weapons known to mankind are satire and ridicule.
+ - Ridicule is man’s most potent weapon. It is almost impossible to counteract ridicule. Also it infuriates the opposition, which then reacts to your advantage.
+ - The fourth rule is: “Make the enemy live up to their own book of rules.” You can kill them with this, for they can no more obey their own rules than the Christian church can live up to Christianity.
+ - Do one of three things. One, go and find a wailing wall and feel sorry for yourselves. Two, go psycho and start bombing – but this will only swing people to the right. Three, learn a lesson. Go home, organize, build power and at the next convention, you be the delegates.
+ - In a fight almost anything goes. It almost reaches the point where you stop to apologize if a chance blow lands above the belt.
+ - The most unethical of all means is the non-use of any means.
+ - If you push a negative hard enough, it will push through and become a positive.
+ - My only fixed truth is a belief in people, a conviction that if people have the opportunity to act freely and the power to control their own destinies, they’ll generally reach the right decisions.
+ - A good tactic is one that your people enjoy.
+ - The establishment can accept being screwed, but not being laughed at.
+ - Those who are most moral are farthest from the problem.
+ - Human beings do not like to look squarely into the face of tragedy. Gloom is unpopular.
+ - It is a sad fact of life that power and fear are the fountainheads of faith.
+ - The human spirit glows from that small inner light of doubt whether we are right, while those who believe with certainty that they possess the right are dark inside and darken the world outside with cruelty, pain, and injustice.
+ - From the moment an organizer enters a community, he lives, dreams, eats, breathes, sleeps only one thing, and that is to build the mass power base of what he calls the army.
+ - You cannot meet today’s crisis tomorrow.
+ - The despair is there; now it’s up to us to go in and rub raw the sores of discontent, galvanize them for radical social change.
+ - It is a world not of angels but of angles, where men speak of moral principles but act on power principles; a world where we are always moral and our enemies always immoral;.
+ - Dogma, Whatever Form It Takes, Is The Ultimate Enemy Of Human Freedom.
+ - The price of a successful attack is a constructive alternative.
+ - America’s corporations are a spiritual slum, and their arrogance is the major threat to our future as a free society.
+ - One acts decisively only in the conviction that all the angels are on one side and all the devils on the other.
+ - The enemy properly goaded and guided in his reaction will be your major strength.
+ - Whenever possible, go outside the expertise of the enemy.
+ - The standards of judgment must be rooted in the whys and wherefores of life as it is lived, the world as it is, not our wished-for fantasy of the world as it should be.
+ - Asking a sociologist to solve a problem is like prescribing an enema for diarrhea.
+ - They have the guns and therefore we are for peace and for reformation through the ballot. When we have the guns then it will be through the bullet.
+ - The most effective means are whatever will achieve the desired results.
+ - Last guys don’t finish nice.
+ - To say that corrupt means corrupt the ends is to believe in the immaculate conception of ends and principles.
+ - In the beginning the organizer’s first job is to create the issues or problems.
+ - One’s concern with the ethics of means and ends varies inversely with one’s personal interest in the issue.
+ - The prerequisite for an ideology is possession of a basic truth.
+ - In this world laws are written for the lofty aim of “the common good” and then acted out in life on the basis of the common greed.
+ - The ninth rule of the ethics of means and ends is that any effective means is automatically judged by the opposition as being unethical.
+ - A free and open society is an ongoing conflict, interrupted periodically by compromises.
+ - A tactic that drags on too long becomes a drag.
+ - History is a relay of revolutions.
+ - Keep the pressure on, with different tactics and actions, and utilize all events of the period for your purpose.
+ - The preferred world can be seen any evening on television in the succession of programs where the good always wins.
+
+70 quotes

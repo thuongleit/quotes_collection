@@ -1,0 +1,43 @@
+ - Dead fish don’t swim around in jealous tides.
+ - I’m going to take care of myself because that’s what I need to take care of.
+ - Shoot the bad guys and I’ll gladly sing a tune for you.
+ - Sing the song or keep it inside.
+ - The thing is, unfortunately, I write the best songs when I’m miserable.
+ - When you’re in love, you’ve found your soul mate, you think life is going one way, and suddenly it’s completely apparent it’s not. You have to rethink your whole purpose.
+ - Well, a lot of successes come by mistake.
+ - It doesn’t matter what kind of problems a family is having; it should always stay in the family.
+ - You are only as big as your experiences.
+ - But at this phase of my life, I want to write and not have to think about whether a song is going to be a hit. I want to explore the music that inspires me, and I don’t want to ape myself.
+ - Computers and the Internet have made it really easy to rant. It’s made everyone overly opinionated.
+ - It’s got big riffs and really it’s a rock and roll album. I think Stone Temple Pilots and Velvet Revolver fans will relate to that.
+ - It’s better to not set your expectations high. And that’s what happens when you have a long career – not every album is going to be record setting.
+ - Processed pig is white trash meat. Some people call it Spam.
+ - Rock and roll doesn’t allow you to grow up – especially if you’re not trying very hard to.
+ - To be a great band it’s like you have that telepathy. You know when the bass player’s in back of you without even looking. You know when your guitar player’s coming up to you to lean up to you and sing into your microphone. You just know these things. You feel it. You feel the energy of it.
+ - When people ask me if I have a hobby, a lot of times my answer is that I like to surf in warm water. I like to ski, if I have the opportunity. But really, I like to go to my studio and write music that I want to write, where there’s no pressure to come up with a hit single.
+ - I tend to get my hands into all these other things and all these distractions, and after a while I start feeling depleted.
+ - I want my ex-wife and children to be happy.
+ - I had a period in my life in the ’90s where I was definitely young, dumb, and full of even more dumb.
+ - I want a performance style that’s more cerebral and emotional than physical. I want to be a creative artist, not a whirling dervish.
+ - You know, you’ve got to be careful with how you educate your kids in rock’n’roll fashion.
+ - It seems like everyone’s got an agenda, and the agenda seems to be selling magazines or air time with sensational stories.
+ - I suffer from manic-depressive disorder, and I’ve chosen not to take medication for it. Because of that, every once in a while I go through manic episodes and really depressed episodes.
+ - When I’m not completely loaded, it’s a much more vulnerable place. I can feel the music, I can feel the energy and I really have to put it out there. When I was loaded, I was just oblivious.
+ - I prefer a three-piece suit myself. Very sixties rock and roll. But they’re not too quirky. Businessmen could wear them.
+ - When you’re really looking forward to something, you don’t feel the sense of pressure.
+ - I’ve changed the way I look at things. When I put out a record or single I don’t allow myself to set up expectations like, “This song must be a number one hit. Its got to sell X amount of records.” I have fallen into that trap before.
+ - To be appreciated by a whole ’nother generation of fans, all of a sudden discovering you, it’s kind of what I did with the classic bands I love – the ones that influenced me.
+ - It’s incredibly stressful when the person you love is having a child.
+ - I prefer to break new ground, but it gets harder and harder with the territory that’s already been walked on.
+ - As I’ve gotten older, I’ve found that I’m not afraid anymore to throw my influences into making a record.
+ - Writing the songs and producing the songs and arranging them and recording them is your canvas and your palette and your brush.
+ - Eventually I want to subsidize my income with other creative outlets that are going to not keep me tied to the road so much.
+ - There’s a beauty in being part of a band, when there’s equality and trust.
+ - It’s a beautiful thing to be that committed to something that you get so much joy from, but it is like a sick addiction, because sometimes it’s incredibly volatile, incredibly painful, and very frustrating. A man shouldn’t be defined by his work, but I am.
+ - I can’t read sheet music, I have to just listen to it, and then just go for it.
+ - Great classic music that I’ve been turned on to has not only inspired and influenced me, but it has had an effect on my songwriting.
+ - I sang in choir as a kid.
+ - Bowie’s obviously my biggest influence.
+ - Making an album should be an honest experience. It shouldn’t be about trying to gauge where popular music is today; it should be about artistic expression and putting down what you want to put down.
+
+41 quotes

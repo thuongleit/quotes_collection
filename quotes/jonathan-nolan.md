@@ -1,0 +1,36 @@
+ - If you’re good at something, never do it for free.
+ - We used to look up at the sky and wonder at our place in the stars, now we just look down and worry about our place in the dirt.
+ - Because he’s the hero Gotham deserves, but not the one it needs right now. So we’ll hunt him. Because he can take it. Because he’s not our hero. He’s a silent guardian, a watchful protector. A dark knight.
+ - Time is an absurdity. An abstraction. The only thing that matters is this moment.
+ - Believing the lie that time will heal all wounds is just a nice way of saying that time deadens us.
+ - Books are a time machine.
+ - For a few minutes of every day, every man becomes a genius. This is the tragedy of life.
+ - Every man is a mob, a chain gang of idiots.
+ - Here’s the truth: People, even regular people, are never just any one person with one set of attributes. It’s not that simple. We’re all at the mercy of the limbic system, clouds of electricity drifting through the brain.
+ - Time eventually convinces most of us that forgiveness is a virtue. Conveniently, cowardice and forgiveness look identical at a certain distance.
+ - Each week the machine is spitting out a number for a new person or a new world within New York that you get to know. And the idea from the beginning was that some of the characters would stick around and become part of the lives of the show, and the world of the show itself will continue to grow.
+ - I don’t think you can guess what people will really like. You have to come at it from a more natural place and then kind of hope that your taste is shared by enough people to keep going.
+ - It can be easy for an actor to go “Well I really have to do a lot” and then just saying “I don’t need to do anything, I’m not bound to do anything”.
+ - Time is an absurdity. An abstraction. The only thing that matters is this moment. This moment a million times over. You have to trust me. If this moment is repeated enough, if you keep trying – and you have to keep trying – eventually you will come across the next item on your list.
+ - I don’t like to talk about messages so much with films simply because it’s a little more didactic. The reason I’m a filmmaker is to tell stories and so you hope that they will have resonance for people and for the kind of things you’re talking about.
+ - Mankind’s expectations have to be greater than ourselves and that the further out there we go, the more we find out that it’s about you and me.
+ - I think that we, as human beings, always need to conquer our fears and reach beyond our grasp and I think it’s very important that we don’t become complacent or stagnant.
+ - How can you forgive if you can’t remember to forget?
+ - The thing about working on a TV show is that it becomes, very quickly, all consuming.
+ - TV is, as I’m discovering now, a marathon. You have to keep going and going and going.
+ - I’m hoping that the suspension of the space program is just that, a suspension, and that it’s not the final say in the matter, because I think we need it.
+ - I remember when I was a kid my first real confrontation with space travel was when the Challenger exploded and I remember how traumatic that was for me, because I remember watching that on the news and all the children in our class were watching.
+ - I was struck by – Einstein’s a fascinating figure who didn’t have any instruments that he used, he didn’t use telescopes, he used his mind to try to understand the universe.
+ - We live in a moment in history in which our privacy may not be important.
+ - Television is very different than working on film. With films, you get to develop a set of characters, and then, at the end of the film, you have to throw them away.
+ - We’re going to leave this planet at some point further than we have, we’re going to go beyond the moon, we’re going to go to mars. We all kind of know that on some level, I think actually. So there’s an inevitability to human evolution, this being the next step.
+ - Even if you’re not a parent, you have parents and you’ve been in those situations where there’s a certain kind of goodbye – nothing this extreme exists, but I think that’s what everyone holds onto, that common denominator that runs through this that everyone can understand.
+ - The secret to all drama, film, TV, or books – the thing that people respond to most, and the thing I find myself as a viewer feeling most interested in, is the idea of change.
+ - We are the only instrument for understanding the universe. We have to ground it in human beings.
+ - To a certain degree, with a TV show, people are looking for a certain amount of familiarity. You don’t want to pull the rug out, but you also want to keep things fresh and keep changing it up.
+ - I’ve always been interested in themes of memory, paranoia, and revenge.
+ - For me, the attraction of TV is that you continue to get to tell those stories and refine those characters. The other thing is that TV, in the last years, got really, really, really good.
+ - I thought it would be an enormous amount of fun to make a movie that heads out into space, which is something that we had never done before.
+ - I always love it best when you have a project where there is this commingling of the subject matter and the way in which you’re recording that subject matter.
+
+34 quotes

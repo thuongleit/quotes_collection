@@ -1,0 +1,21 @@
+ - What I’m trying to do is be righteous. And when I say “righteous,” I don’t mean God. You know? God- Righteous. I mean just when I wake up, I know I was honest to myself.
+ - I generally don’t like living in a world where being what a man is, is a horrible thing; and no matter what a woman is, is a wonderful thing.
+ - I like to be loved or hated – I don’t like mediocre. So I’d rather have the entire crowd hate me than to have 90% hate me.
+ - Women expect us to like them, but they don’t even like each other.
+ - Women don’t want to win, they want a winner.
+ - People say life ain’t fairlife is very fair. People aren’t fairpeople are terrible.
+ - People have tried to corner the market on being offended, corner the market on language and corner the market on opinion. Should I lose my job ’cause I offended somebody? No, of course not. Your life should never be affected by public opinion.
+ - Not everybody should be laughing at everything at the same time. That’s not even natural. My thing is to feel natural, because I don’t want to feel like I could just make people laugh at every single joke, every single time, with the same decibel level.
+ - I need a little bass and I don’t even need that crazy bass to break your face. I just want it to sound good when I have my favorite song.
+ - I’m really glad my food comes murdered.
+ - Ive still got that little freedom part of me that wants to have a car that looks really sexy.
+ - I am that guy who will say things that people seem to think is a little edgy, a little racy.
+ - I’m a slave to the culture, so I see an Audi, a Denali, or an Escalade, my neighbor got the four-door Porsche. I have a really nice truck. But it’s a Durango and I like frontin’! I like to ride by and show off.
+ - I don’t go to any sexy places to eat where they give you half a lamb chop and one bean. I like going, ‘Uhhh, I’m done’ when I eat.
+ - I’m a big buffet dude, or I’m a big cheap-food-and-order-more-when-I-need-it dude.
+ - I’m a thigh-meat dude. Thigh is just the best meat – I don’t get chicken breast. I think it’s a publicity stunt that we’ve convinced people it’s delicious.
+ - I’m a decent cook, and I will try to cook anything. My only weakness is that I don’t know servings – I only know how to make a lot.
+ - Who has connections to Connecticut? That’s where rich people go to live the rest of their life in the woods.
+ - Just making the crowd laugh is not really doing things for me anymore. That’s just knowing how to kill; I’ve learned how to kill – but also learned when a crowd’s laughter is meaningful.
+
+19 quotes

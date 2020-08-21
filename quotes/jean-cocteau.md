@@ -1,0 +1,196 @@
+ - Don’t confuse the truth with the opinion of the majority.
+ - All good music resembles something. Good music stirs by its mysterious resemblance to the objects and feelings which motivated it.
+ - The poet is a liar who always speaks the truth.
+ - You have comfort. You don’t have luxury. And don’t tell me that money plays a part. The luxury I advocate has nothing to do with money. It cannot be bought. It is the reward of those who have NO Fear or Discomfort.
+ - The only way to kill death is through photography.
+ - French people are Italian people in a bad mood.
+ - Every day in the mirror I watch death at work.
+ - Since the day of my birth, my death began its walk. It is walking toward me, without hurrying.
+ - A little too much is just enough for me.
+ - Mirrors should think longer before they reflect.
+ - The prettiest dresses are worn to be taken off.
+ - Vivre est une chute horizontale. Life is a horizontal fall.
+ - Listen carefully to first criticisms made of your work. Note just what it is about your work that critics don’t like – then cultivate it. That’s the only part of your work that’s individual and worth keeping.
+ - Be a constant outrage to modesty There is nothing to fear: modesty is exercised only among the blind.
+ - There’s no such thing as love; only proof of love.
+ - I’ve always preferred mythology to history. History is truth that becomes an illusion. Mythology is an illusion that becomes reality.
+ - History is a combination of reality and lies. The reality of History becomes a lie. The unreality of the fable becomes the truth.
+ - Living is a horizontal fall.
+ - The cinema is death at work.
+ - The extreme limit of wisdom, that’s what the public calls madness.
+ - What is history after all? History is facts which become lies in the end.
+ - We must believe in luck. For how else can we explain the success of those we don’t like?
+ - Never do what a specialist can do better. Discover your own specialty. Do not despair if your specialty appears to be more delicate, a lesser thing. Make up in finesse what you lose in force.
+ - Silence moves faster when it’s going backward.
+ - Beauty cannot be recognized with a cursory glance.
+ - What uniform can I wear to hide my heavy heart? It is too heavy. It will always show. Jacques felt himself growing gloomy again. He was well aware that to live on earth a man must follow its fashions, and hearts were no longer worn.
+ - A film is a petrified fountain of thought.
+ - If a hermit lives in a state of ecstasy, his lack of comfort becomes the height of comfort. He must relinquish it.
+ - A car can massage organs which no masseur can reach. It is the one remedy for the disorders of the great sympathetic nervous system.
+ - You’ve never seen death? Look in the mirror every day and you will see it like bees working in a glass hive.
+ - Victor Hugo was a madman who thought he was Victor Hugo.
+ - Watch yourself all your life in a mirror and you’ll see Death at work like bees in a glass hive.
+ - Mystery has its own mysteries, and there are gods above gods. We have ours, they have theirs. That is what’s known as infinity.
+ - The greatest masterpiece in literature is only a dictionary out of order.
+ - It is not inspiration; it is expiration.
+ - The dead drug leaves a ghost behind. At certain hours it haunts the house.
+ - What is style? For many people, a very complicated way of saying very simple things. According to us, a very simple way of saying very complicated things.
+ - The ability to laugh heartily is the sign of a healthy soul.
+ - Everything one does in life, even love, occurs in an express train racing toward death. To smoke opium is to get out of the train while it is still moving. It is to concern oneself with something other than life or death.
+ - The reward of art is not fame or success but intoxication: that is why so many bad artists are unable to give it up.
+ - Without resistance you can do nothing.
+ - Artists can no more speak about their work, than plants can speak about horticulture.
+ - It is not I who become addicted, it is my body.
+ - I have seafoam in my veins, I understand the language of waves.
+ - Stupidity is always astounding, no matter how often one encounters it.
+ - Lack of manners is the sign of a hero.
+ - The spirit of creation is the spirit of contradiction. It is the breakthrough of appearances toward an unknown reality.
+ - Children and lunatics cut the Gordian knot which the poet spends his life patiently trying to untie.
+ - What uniform can I wear to hide my heavy heart? It is too heavy. It will always show.
+ - Be yourself. The world worships the original.
+ - The eyes of the dead are closed gently; we also have to open gently the eyes of the living.
+ - The smell of opium is the least stupid smell in the world.
+ - I’m not willing just to be tolerated. That wounds my love of love and of liberty.
+ - I am burning myself up and will always do so.
+ - Statues to great men are made of the stones thrown at them in their lifetime.
+ - What the public criticizes in you, cultivate. It is you.
+ - I only fear the death of others. For me, true death is that of the people I love.
+ - Wealth is an inborn attitude of mind, like poverty. The pauper who has made his pile may flaunt his spoils, but cannot wear them plausibly.
+ - The Louvre is a morgue; you go there to identify your friends.
+ - In Paris, everybody wants to be an actor; nobody is content to be a spectator.
+ - Picasso said that everything is a miracle, that it’s a miracle that we don’t dissolve in our baths.
+ - Poetry is a religion without hope, but its martyrs guarantee the eternal truth of its dogma.
+ - In exiling myself I am not exiling a monster, but a man whom society will not allow to live, since it considers one of the mysterious cogs in God’s masterpiece to be a mistake.
+ - Appreciation of art is a moral erection, otherwise mere dilettantism.
+ - Art produces ugly things which frequently become beautiful with time.
+ - There is always a period when a man with a beard shaves it off. This period does not last. He returns headlong to his beard.
+ - Since these mysteries exceed my grasp, I shall pretend to have organized them.
+ - Mirrors would do well to reflect a little more before sending back images.
+ - The course of a river is almost always disapproved of by the source.
+ - Emotion resulting from a work of art is only of value when it is not obtained by sentimental blackmail.
+ - There are truths which one can only say after having won the right to say them.
+ - You are always concentrated on the inner thing. The moment one becomes aware of the crowd, performs for the crowd, it is spectacle.
+ - Art produces ugly things which frequently become more beautiful with time. Fashion, on the other hand, produces beautiful things which always become ugly with time.
+ - Every poem is a coat of arms. It must be deciphered. How much blood, how many tears in exchange for these axes, these muzzles, these unicorns, these torches, these towers, these martlets, these seedlings of stars and these fields of blue!
+ - Cultivate everything the critics hated in your first work – that’s what makes you unique.
+ - Without opium, plans, marriages and journeys appear to me just as foolish as if someone falling out of a window were to hope to make friends with the occupants of the room before which he passes.
+ - May the devil himself splatter you with dung.
+ - Elegance ceases to exist when it is noticed.
+ - The worst tragedy for a poet is to be admired through being misunderstood.
+ - The speed of a runaway horse counts for nothing.
+ - Whatever the world condemns you for, make it your own. It is yourself.
+ - Fight any instinct to be humorless, for humorlessness is the worst of all absurdities.
+ - Do not fear being ridiculous in relation to the ridiculous.
+ - Childhood knows what it wants – to leave childhood behind.
+ - The artist is a kind of prison from which the works of art escape.
+ - After the writer’s death, reading his journal is like receiving a long letter.
+ - I know that poetry is indispensable, but to what I could not say.
+ - The world owes its enchantment to these curious creatures and their fancies; but its multiple complicity rejects them. Thistledown spirits, tragic, heartrending in their evanescence, they must go blowing headlong to perdition.
+ - I am happy to exhibit, but not to put myself on exhibition.
+ - All spiritual journeys are martyrdoms.
+ - Everyone’s pet is the most outstanding. This begets mutual blindness.
+ - I succeeded in bewitching a fair number and in being intoxicated with my mistakes.
+ - To be audacious with tact, you have to know to what point you can go too far.
+ - The actual tragedies of life bear no relation to one’s preconceived ideas. In the event, one is always bewildered by their simplicity, their grandeur of design, and by that element of the bizarre which seems inherent in them.
+ - Continue reading Proust. His magnificent intelligence is particularly fond of describing stupidity. Which is ultimately exhausting.
+ - Expect neither reward nor beatitude. Return noble waves for ignoble.
+ - Poetry is an ethic. By ethic I mean a secret code of behavior, a discipline constructed and conducted according to the capabilities of a man who rejects the falsifications of the categorical imperative.
+ - Art is not a pastime but a priesthood.
+ - Compromise yourself. Obscure your own trail.
+ - My only politics have been friendship.
+ - The runner stopped dead, lost his balance, froze in one of those violent attitudes in which the photographers petrify living reality.
+ - Since it’s now fashionable to laugh at the conservative French Academy, I have remained a rebel by joining it.
+ - One of the characteristics of the dream is that nothing surprises us in it. With no regret, we agree to live in it with strangers, completely cut off from our habits and friends.
+ - When I write, I disturb. When I show a film, I disturb. When I exhibit my painting, I disturb, and I disturb if I don’t. I have a knack for disturbing.
+ - At all costs the true world of childhood must prevail, must be restored; that world whose momentous, heroic, mysterious quality is fed on airy nothings, whose substance is so ill-fitted to withstand the brutal touch of adult inquisition.
+ - Poets don’t draw. They unravel their handwriting and then tie it up again, but differently.
+ - We shelter an angel within us. We must be the guardians of that angel.
+ - The poet, by composing poems, uses a language that is neither dead nor living, that few people speak, and few people understand We are the servants of an unknown force that lives within us, manipulates us, and dictates this language to us.
+ - True realism consists in revealing the surprising things which habit keeps covered and prevents us from seeing.
+ - The joy of youth is to disobey; but the trouble is that there are no longer any orders.
+ - It is excruciating to be an unbeliever with a spirit that is deeply religious.
+ - He has the manner of a giant with the look of a child, a lazy activeness, a mad wisdom, a solitude encompassing the world.
+ - If it has to choose who is to be crucified, the crowd will always save Barabbas.
+ - One must not mistake majority for truth.
+ - People seek escape in myth by any means at their disposal, including drugs, alcohol, meditation, and lies.
+ - I have a piece of great and sad news to tell you: I am dead.
+ - Understand that some of your enemies are amongst your best friends.
+ - An original artist is unable to copy. So he has only to copy in order to be original.
+ - Nothing ever gets anywhere. The earth keeps turning round and gets nowhere. The moment is the only thing that counts.
+ - The composer opens the cage door for arithmetic, the draftsman gives geometry its freedom.
+ - I have lost my seven best friends, which is to say God has had mercy on me seven times without realizing it. He lent a friendship, took it from me, sent me another.
+ - There are poets and there are grownups.
+ - It is difficult to live without opium after having known it because it is difficult, after knowing opium, to take earth seriously. And unless one is a saint, it is difficult to live without taking earth seriously.
+ - A prig always finds a last refuge in responsibility.
+ - I have not looked at a newspaper in twenty years; if one is brought into the room, I flee. This is not because I am indifferent but because one cannot follow every road.
+ - The poet doesn’t invent. He listens.
+ - Art is science in the flesh.
+ - Look out! Be on your guard, because alone of all the arts, music moves all around you.
+ - Don’t for a moment believe He was killing the young; He was costuming angels.
+ - Here I am trying to live, or rather, I am trying to teach the death within me how to live.
+ - Style is a simple way of saying complicated things.
+ - Be a mere assistant to your unconscious. Do only half the work. The rest will do itself.
+ - Beauty makes one lose one’s head. Poetry is born of this decapitation.
+ - Respect movements, flee schools.
+ - Poetry, being elegance itself, cannot hope to achieve visibility. It insists on living its own life.
+ - The poet never asks for admiration; he wants to be believed.
+ - Man seeks to escape himself in myth, and does so by any means at his disposal. Drugs, alcohol, or lies. Unable to withdraw into himself, he disguises himself. Lies and inaccuracy give him a few moments of comfort.
+ - Perhaps I know to what extent I can go too far.
+ - Good music resembles something. It resembles the composer.
+ - One must be a living man and a posthumous artist.
+ - He who is affected by an insult is infected by it.
+ - Poetry is a religion without hope. The poet exhausts himself in its service, knowing that, in the long run, a masterpiece is nothing but the perform-ance of a trained dog on very shaky ground.
+ - See your disappointments as good fortune. One plan’s deflation is another’s inflation.
+ - I expect a black silence that is almost as violent as laughter.
+ - Celebrity: I picture myself as a marble bust with legs to run everywhere.
+ - My method is simple: not to bother about poetry. It must come of its own accord. Merely whispering its name drives it away.
+ - Poetry is indispensable – if I only knew what for.
+ - Love is mainly an affair of short spasms. If these spasms disappoint us, love dies. It is very seldom that it weathers the experience and becomes friendship.
+ - A true poet does not bother to be poetical. Nor does a nursery gardener scent his roses.
+ - Lying is the only art form that the public sanctions and instinctively prefers to reality.
+ - The artist must know how far to go too far.
+ - Find first, seek later.
+ - My little Renoirs. Matisse describes having seen Renoir make these tiny canvases. When he had finished working, he would use up the color left in his brushes on them.
+ - A true photographer is as rare as a true poet or a true painter.
+ - It was the East that should have sent us missionaries.
+ - Catastrophe, riots, factories blowing up, armies in flight, flood – the ear can detect a whole apocalypse in the starry night of the human body.
+ - And history becomes legend and legend becomes history.
+ - One is either judge or accused. The judge sits, the accused stands. Live on your feet.
+ - Alas! I do not believe that inspiration falls from heaven. think it rather the result of a profound indolence.
+ - The preservation of friendship is seen as opportunism. You are required to be in one camp or the other. You are enjoined to cut your heartstrings if they extend across the barricade.
+ - Do as the beautiful woman: see to your figure and your petticoats. Though, of course, I am not speaking literally.
+ - The hot hall full of painted girls and American soldiers is a saloon in some Western film. This noise drenches us, wakens us to do something else. It shows us a lost path.
+ - We only serve as a model for the portrait of our fame.
+ - Tact in audacity is knowing how far you can go without going too far.
+ - And now I have to confess the unpardonable and the scandalous. I am a happy man. And I am going to tell you the secret of my happiness. It is quite simple. I love mankind. I love love. I hate hate. I try to understand and accept.
+ - Youth is certain what it rejects before it knows what it will accept.
+ - Take a commonplace, clean it and polish it, light it so that it produces the same effect of youth and freshness and originality and spontaneity as it did originally, and you have done a poet’s job. The rest is literature.
+ - When a work appears to be ahead of its time, it is only the time that is behind the work.
+ - A man’s truest self realizations might require him, above all, to learn to close his eyes: to let himself be taken unawares, to follow his dark angel, to risk his illegal instincts.
+ - The ultimate politeness in art consists of speaking only to those who are able to uncover and measure its relationships. Anything else is symbolic, and symbolism is merely transcendental imagery.
+ - Poetry is a religion with no hope.
+ - Do not take up cause against the inaccuracies printed about you. They are your protection.
+ - The skin of all of us is responsive to gypsy songs and military marches.
+ - Asking an artist to talk about his work is like asking a plant to discuss horticulture.
+ - Film will only became an art when its materials are as inexpensive as pencil and paper.
+ - One sits down first; one thinks afterwards.
+ - The public is never pleased with what we do, wanting always a copy of what we have done.
+ - Not only should you not accept a prize. You should not try to deserve one either.
+ - The instinct of nearly all societies is to lock up anybody who is truly free. First, society begins by trying to beat you up. If this fails, they try to poison you. If this fails too, the finish by loading honors on your head.
+ - There are too many souls of wood not to love those wooden characters who do indeed have a soul.
+ - Anything of any importance cannot help but be unrecognizable, since it bears no resemblance to anything already known.
+ - Such is the role of poetry. It unveils, in the strict sense of the word. It lays bare, under a light which shakes off torpor, the surprising things which surround us and which our senses record mechanically.
+ - The ear disapproves but tolerates certain musical pieces; transfer them into the domain of our nose, and we will be forced to flee.
+ - We are in a period of such individualism that one no longer speaks of disciples; one speaks of thieves.
+ - I love cats because I enjoy my home; and little by little, they become its visible soul.
+ - If a poet has a dream, it is not of becoming famous, but of being believed.
+ - After you have written a thing and you reread it, there is always the temptation to fix it up, to improve it, to remove its poison, blunt its sting.
+ - The poet is at the disposal of the night. His role is humble, he must clean house and await its due visitation.
+ - The only work of art which succeeds is that which fails.
+ - It seems to me that invisibility is the required provision of elegance. Elegance ceases to exist when it is noticed.
+ - The public only takes up yesterday as a stick to beat today.
+ - I feel myself inhabited by a force or being – very little known to me. It gives the orders; I follow.
+ - Youth can only assert itself through the conviction that its ventures surpass all others and resemble nothing.
+ - Commissions suit me. They set limits. Jean Marais dared me to write play in which he would not speak in the first act, would weep for joy in the second and in the last would fall backward down a flight of stairs.
+
+194 quotes

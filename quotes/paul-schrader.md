@@ -1,0 +1,26 @@
+ - Now I see it clearly. My whole life has pointed in one direction. I see that now. There never has been any choice for me.
+ - The secret of the creative life is to feel at ease with your own embarrassment.
+ - Screenplays are not works of art. They are invitations to others to collaborate on a work of art.
+ - I don’t think it’s very useful to open wide the door for young artists; the ones who break down the door are more interesting.
+ - I get bored very easily. I find most movies boring. I go to movies and ask, “How do they stay awake making this?”
+ - I was raised as a Calvinist, which is doctrine-driven. And though there are many things wrong with Calvinism, you are at least encouraged to argue about things.
+ - I want to be happy; why do I do things that make me unhappy?
+ - All the animals come out at night.
+ - The secret of the creative life is how to feel at ease with your own embarrassment. We’re all in the dirty laundry business and we’re being paid to take risks and look silly. Race car drivers get paid to risk their lives in a more concrete way; we get paid to risk our lives in an emotional way.
+ - There’s no escape. I’m God’s only man.
+ - The clock is impotent; mechanical time does not affect those living in an eternal present.
+ - Contradiction is the heart and soul of character and drama. You’re always looking for it. I loved her so much I hit her; that’s character. I loved her so much I hit her again; that’s even more character.
+ - As screenwriters, we struggle with our own success. We have wallpapered our world and now we can’t get anyone to notice the picture we just hung.
+ - Anything that doesn’t bore me I think is doable because it’s keeping me awake.
+ - I teach a course in screenwriting at Columbia, but I’ve never taken a course and I’ve never read a book about it!
+ - You know, when you’re in your twenties you use a great deal of symbolism. You somehow think that a character standing beneath a cross is more interesting than a character standing underneath a billboard, but when you get a little older you realize that there’s not much difference.
+ - The only economic paradigm that movies have ever known is capitalism. There were no church sponsors or state patronage. The idea was that if you’d pay to see it, we’ll make it for you.
+ - Once you have a situation that is fresh, then you sort of believe in it and it becomes normal. So you do end up with protagonists that haven’t been in other movies before.
+ - If you write interesting roles, you get interesting people to play them. If you write roles that are full of nuance and contradiction and have interesting dialog, actors are drawn to that.
+ - You think it’s a blessing to know what God wants?
+ - You can’t take contradiction away. Part of the fun of it is that the contradiction never really quite goes away.
+ - Because many of the films I’ve made have had an intellectualedge, it’s harder for me to lie. It’s harder for me to go to peoplewith money and say I don’t care about art, all I care about iscommerce; all I really want to do is make money.
+ - Ultimately, it’s an illusion that you can understand yourself.
+ - Those artists who say that somehow therapy or analysis will thwart their creativity are completely misinformed. It’s absolutely the opposite: it opens closed doors.
+
+24 quotes

@@ -1,0 +1,51 @@
+ - If you can’t annoy somebody, there is little point in writing.
+ - Only a world without love strikes me as instantly and decisively more terrible than one without music.
+ - Death has this much to be said for it: You don’t have to get out of bed for it. Wherever you happen to be They bring it to you – free.
+ - Feeling a tremendous rakehell, and not liking myself much for it, and feeling rather a good chap for not liking myself much for it, and not liking myself at all for feeling rather a good chap.
+ - If you are using an adverb, you have got the verb wrong.
+ - Nice things are nicer than nasty ones.
+ - Outside every fat man there is an even fatter man trying to close in.
+ - Women are really much nicer than men: No wonder we like them.
+ - The ideal of brotherhood of man, the building of the Just City, is one that cannot be discarded without lifelong feelings of disappointment and loss. But, if we are to live in the real world, discard it we must.
+ - Twentieth century music is like paedophilia. No matter how persuasively and persistently its champions urge their cause, it will never be accepted by the public at large, who will continue to regard it with incomprehension, outrage and repugnance.
+ - I was never an Angry Young Man. I am angry only when I hit my thumb with a hammer.
+ - Misprize common sense at your peril is my motto.
+ - A bad review may spoil your breakfast, but you shouldn’t allow it to spoil your lunch.
+ - It is no wonder that people are so horrible when they start life as children.
+ - With some exceptions in science fiction and other genres I have small difficulty in avoiding anything that could be called American literature. I feel it is unnatural, not I think entirely because it uses a language that is not mine, however closely akin to my own.
+ - I once wrote deduceable instead of deducible in a book, though nobody then or since has taken me up on it. A small point as they go, perhaps, but Rule I of writing acceptably is to get everything right as far as you can, and in this case I had neglected to.
+ - It’s never pleasant to have one’s unquestioning beliefs put in their historical context, as I know from experience, I can assure you.
+ - A German wine label is one of the things life’s too short for, a daunting testimony to that peculiar nation’s love of detail and organization.
+ - If there’s one word that sums up everything that’s gone wrong since the war, it’s Workshop. After Youth, that is.
+ - Consciousness was upon him before he could get out of the way.
+ - It is natural and harmless in English to use a preposition to end a sentence with.
+ - Cats are only human, they have their faults.
+ - He who truly believes he has a hangover has no hangover.
+ - The rewards for being sane may not be very many, but knowing what’s funny is one of them.
+ - Education is one thing and instruction, however worthy, necessary and incidentally or monetarily educative, another.
+ - Laziness has become the chief characteristic of journalism, displacing incompetence.
+ - How wrong people always were when they said: ‘It’s better to know the worst than go on not knowing either way.’ No; they had it exactly the wrong way round. Tell me the truth, doctor, I’d sooner know. But only if the truth is what I want to hear.
+ - Doing what you wanted to do was the only training, and the only preliminary, needed for doing more of what you wanted to do.
+ - Work was like cats were supposed to be: if you disliked and feared it and tried to keep out if its way, it knew at once and sought you out and jumped on your lap and climbed all over you to show how much it loved you. Please God, he thought, don’t let me die in harness.
+ - A blonde girl wearing a man’s shirt but in all other visible respects unmanly to the point of outright effeminacy.
+ - One of the great benefits of organised religion is that you can be forgiven your sins, which must be a wonderful thing. I mean, I carry my sins around with me, there’s nobody there to forgive them.
+ - The human race has not devised any way of dissolving barriers, getting to know the other chap fast, breaking the ice, that is one-tenth as handy and efficient as letting you and the other chap, or chaps, cease to be totally sober at about the same rate in agreeable surroundings.
+ - It’s a letdown if the comedian doesn’t finally actually really sit on his hat.
+ - Your attitude measures up to the two requirements of love. You want to go to bed with her and can’t, and you don’t know her very well. Ignorance of the other person topped up with deprivation, Jim. You fit the formula all right, and what’s more you want to go on fitting it.
+ - He was of the faith chiefly in the sense that the church he currently did not attend was Catholic.
+ - More always means worse.
+ - It is not extraordinary that the extraterrestrial origin of women was a recurrent theme of science fiction.
+ - Politics is a thing that only the unsophisticated can really go for.
+ - Whatever part drink may play in the writer’s life, it must play none in his or her work.
+ - The Scandinavians are dear people but they’ve never been what you might call bywords for wit and sparkle, have they?
+ - Now and then I become conscious of having the reputation of being one of the great drinkers, if not one of the great drunks, of our time.
+ - It scored right away with me by being the smooth, fine-grained sort, not the coarse flaky, dry-on-the-outside rubbish full of chunds of gut and gristle to testify to its authenticity.
+ - I sometimes feel that more lousy dishes are presented under the banner of pate than any other.
+ - We should be wrong to demand that a critic must stay on the point all the time; it is enough if he remains in orbit around it.
+ - I want a dish to taste good, rather than to have been seethed in pig’s milk and served wrapped in a rhubarb leaf with grated thistle root.
+ - When starting to think about any novel, part of the motive is: I’m going to show them, this time.
+ - The first, indeed the only, requirement of a diet is that it should lose you weight without reducing your alcoholic intake by the smallest degree.
+ - Wives and such are constantly filling up any refrigerator they have a claim on, even its ice-compartment, with irrelevant rubbish like food.
+ - Being American is, I think, a very difficult thing in art, because all the elements are European...
+
+49 quotes

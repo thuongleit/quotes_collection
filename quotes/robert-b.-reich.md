@@ -1,0 +1,99 @@
+ - Every organization, no matter who it is, just follow the money.
+ - Well-trained and dedicated employees are the only sustainable source of competitive strength.
+ - Standing up to bullies is the hallmark of a civilized society.
+ - Any bank that is too big to fail is too big. Period.
+ - As to the meaning of “corporate social responsibility,” Friedman and I would agree: If a certain action improves the corporation’s bottom line, there’s no point in labeling it “socially responsible.” It’s just good business.
+ - In Washington, it’s dog eat dog. In academia, it’s exactly the opposite.
+ - Your most precious possession is not your financial assets. Your most precious possession is the people you have working there, and what they carry around in their heads, and their ability to work together.
+ - In the ’90s it was irrational exuberance. Now it may be irrational doom and gloom.
+ - One thing I’ve learned from 35 years in the classroom is that people learn best when they are laughing, when they are emotionally hit, that it’s both the brain and the heart.
+ - The Democratic Party is DEAD.
+ - Yale Law School was the kind of place you went if you felt you needed to go to law school, maybe, for your resume, but you really didn’t want to practice law. You wanted to do public policy, or maybe go into politics.
+ - The only sure way to stop excessive risk taking on Wall Street so you don’t risk losing your job, or your savings or your home, is to put an end to the excessive economic and political power of Wall Street by busting up the big banks.
+ - Globalization and free trade do spur economic growth, and they lead to lower prices on many goods.
+ - True patriotism isn’t cheap. It’s about taking on a fair share of the burden of keeping America going.
+ - There’s sort of a chilling effect on non-profits and the media and a lot of other places because the establishment is so powerful. That’s where the money is.
+ - We do not want to live in a theocracy. We should maintain that barrier and government has no business telling someone what they ought to believe or how they should conduct their private lives.
+ - Cutting taxes is not bad. But if you cut taxes on the wealthy, which is what they wanted to do, you’re not helping people who need better schools and better infrastructure and healthcare. You’re basically robbing the middle class and the poor to provide tax cuts to the rich.
+ - I mean, you hear the word ‘globalization’ over and over and over again. Globalization, globalization, globalization. Rarely has a word gone so directly from obscurity to meaninglessness without any intervening period of coherence.
+ - The key to understanding the rise in inequality isn’t technology or globalization. It’s the power of the moneyed interests to shape the underlying rules of the market.
+ - Social change occurs when the gap between the ideals that people hold and the reality that they see every day gets too large.
+ - Cynicism is the last refuge of those who don’t want to do the work of creating a better society.
+ - You can’t inspire people if you are going to be uninspiring.
+ - Education is not the only answer and it’s certainly not the immediate solution. At best, it’s a necessary, but not sufficient response to widening inequality.
+ - Corporations don’t create jobs, customers do. So when all the economic gains go to the top, as they’re doing now, the vast majority of Americans don’t have enough purchasing power to buy the things corporations want to sell – which means businesses stop creating enough jobs.
+ - If you give up on politics, you’re giving up on democracy. And if you give up on democracy, you’re basically saying to the moneyed interests, the powerful people and institutions of society, take it all. That’s a self-fulfilling prophecy. Then we give up. Then we are 100 percent plutocracy.
+ - Averages don’t always reveal the most telling realities. You know, Shaquille O’Neal and I have an average height of 6 feet.
+ - The faith that anyone could move from rags to riches – with enough guts and gumption, hard work and nose to the grindstone – was once at the core of the American Dream.
+ - The liberal ideal is that everyone should have fair access and fair opportunity. This is not equality fo result. Its equality of opportunity. There’s a fundamental difference.
+ - I think the big problem is you have a vicious cycle of wealth and power in America that’s just gotten completely out of control and you’ve seen it in politics.
+ - A smaller government reflecting the needs of the middle class and poor is superior to a big government reflecting the needs of the privileged and powerful.
+ - I wish it were simply a nightmare, but I think that any reasonable person watching American politics would come to the conclusion that a second Bush administration would in fact incorporate a more radicalized version of what we’ve seen in the first administration.
+ - The core principle is that we want an economy that works for everyone, not just for a small elite. We want equal opportunity, not equality of outcome. We want to make sure that there’s upward mobility again, in our society and in our economy.
+ - I’m 40 years old. What I have seen my whole life is widening income inequality.
+ - Those who analogize the federal budget to a family’s budget must know nothing about either.
+ - We are creating a one size fits all system that needlessly brands many young people as failures, when they might thrive if offered a different education whose progress was measured differently. Paradoxically we’re embracing standardized tests just when the economy is eliminating standardized jobs.
+ - The presidency is probably the loneliest office in America. Regardless of your friends, regardless of how good your marriage is, regardless of anything, you are alone there at the top.
+ - The United States is a safe harbor.
+ - Britain’s is traditionally a rigid class society.
+ - The only way America can reduce the long-term budget deficit, maintain vital services, protect Social Security and Medicare, invest more in education and infrastructure, and not raise taxes on the working middle class is by raising taxes on the super rich.
+ - In journalism, there are only two stories – “Oh, the wonder of it,” and “Oh, the shame of it.”
+ - When corporations get special handouts from the government, subsidies and tax breaks, it costs you. It means you have to pay more in taxes to make up for these hidden expenses, and government has less money for good schools and roads, Medicare and national defense and everything else you need.
+ - We’re the richest economy in the history of the world. For the majority of Americans not to get the benefits of this extraordinarily prosperous economy, there’s something fundamentally wrong.
+ - Socialism for rich bankers and capitalism for everyone else.
+ - If you give up on democracy, you might as well give up on everything.
+ - To be a skilled politician, you have to be genuine. To really make it work, you have to love people. You have to love the contact, you have to love the energy, you’ve gotta love inspiring people and getting their adulation in return. You can’t separate what’s genuine from what is necessary.
+ - We used to be so proud that our country offered far more economic opportunities than the feudal system in Great Britain, with its royal family, princesses and dukes. But social mobility in the UK is higher than in the US. Our social rift is as big as it was in the 1920s.
+ - There will always be a business cycle, and white-collar workers will get hit in the next recession like they always do in recessions.
+ - I want a shot for people like me to grow up and do something with themselves.
+ - There is a crisis of public morality. Instead of policing bedrooms, we ought to be doing a better job policing boardrooms.
+ - Humor itself is a great disinfectant. It enables people to listen.
+ - Corporations are not people, despite what the Supreme Court says, and they don’t need or deserve handouts.
+ - We are born, we grow up, we live our lives as best we can. If we are thoughtful we are good parents and good partners. If we are wise we strive for integrity and intimacy. If we are fortunate we discover love and joy. If we are able, we make the world a little better than we found it.
+ - There is a deep desire to change the power structure.
+ - The silent majority really is a liberal majority, even though the word liberal has taken a real beating over the last 20 years by radical conservatives.
+ - The only way to grow the economy in a way that benefits the bottom 90 percent is to change the structure of the economy. At the least, this requires stronger unions and a higher minimum wage.
+ - We need to expand Social Security to prevent the looming retirement crisis, and we can do it simply by asking billionaires to pay their fair share.
+ - The problem right now is jobs. The problem right now is the economy and economic growth.
+ - We are paying teachers who are in charge of our human capital, arguably more important than our financial capital, a very tiny fraction of what Wall Streeters are paid.
+ - Look, any cut in greenhouse gases is going to be expensive for American consumers, who are in no mood to bear additional costs.
+ - Cynicism is the largest obstacle to social change. Cynicism is dangerous because people throw up their hands and say, “Well it’s not possible. Why should I even try?”
+ - In the life of a nation, few ideas are more dangerous than good solutions to the wrong problems.
+ - Our moral authority is as important, if not more important, than our troop strength or our high-tech weapons. We are rapidly losing that moral authority, not only in the Arab world but all over the world.
+ - If you want to be a change agent, you have to ready to fail.
+ - Bill Clinton was a very, very good speaker. But like many people who are great speakers and great thinkers and have a lot of energy and ambition, he talked too much.
+ - There are party leaders, big corporation, Wall Street. There are very wealthy individuals who kind of represent where the Democratic Party, the official Democratic Party was and to some extent still is.
+ - I have found over the years that the most important way of getting people to relax is self-deprecating humor.
+ - Median wages of production workers, who comprise 80 percent of the workforce, haven’t risen in 30 years, adjusted for inflation.
+ - The poverty line understates the true amount of poverty because it measures it as three times the breadbasket that a family needs, but it doesn’t consider all the other things that are inflating far, far faster than food prices.
+ - America’s real business leaders understand unless or until the middle class regains its footing and its faith, capitalism remains vulnerable.
+ - Liberals are concerned about the concentration of wealth because it almost inevitably leads to a concentration of power that undermines democracy.
+ - America has become the most unequal society among advanced countries, and rich people are now free to spend as much money on political campaigns as they wish.
+ - You can’t create a political movement out of pabulum.
+ - A leader is someone who steps back from the entire system and tries to build a more collaborative, more innovative system that will work over the long term.
+ - The largest party in America, by the way, is neither the Democrats nor the Republicans. It’s the party of non-voters.
+ - The rich would do better with a smaller share of a rapidly growing economy then they’re doing now with a large share of an economy that is barely growing at all.
+ - Most Americans are on a downward escalator. Median wage in the United States, adjusted for inflation, keeps on dropping.
+ - When the President decides to go to war, he no longer needs a declaration of war from congress.
+ - I grew up poor. My mother raised a family of four on between $9,000 and $15,000 a year.
+ - No economy can continue to function when the vast middle class and everybody else don’t have enough purchasing power to buy what the economy is capable of producing without going deeper and deeper into debt.
+ - Inequality is bad for everyone, not just the middle class and the poor.
+ - Radical conservatives want to police bedrooms.
+ - It is impossible to fight bullies merely by saying they’re going too far.
+ - Regardless of how you interpret the facts, you have to come to the conclusion that inequality is widening in the US and in almost every other country.
+ - If you ever want to get a sense of your own personal failure, look at yourself trying to get across a point that nobody is listening to and the situation gets worse and worse.
+ - I knew Hillary Clinton from undergraduate days and was enormously impressed with her. She was a terrific energy and enthusiasm, and a great organizer. And I knew that she was going to have a political future.
+ - I think the Obama Administration has done a lousy job marketing and selling and explaining this entire thing. And, as a result, all of these right-wing front organizations financed by the Koch brothers, are blanketing the airwaves with lies about Obamacare. And people are scared.
+ - On the Republican playing field, Republicans always win.
+ - Bill Clinton was a great politician. Bill Clinton loved a fight. He was willing to fight. But he also wanted to be loved. He wanted to be admired.
+ - If leadership is about anything, it’s about leading. Not leading people back to where they already are, because they don’t need that. They’re already there.
+ - We already have an annual wealth tax on homes, the major asset of the middle class. It’s called the property tax. Why not a small annual tax on the value of stocks and bonds, the major assets of the wealthy?
+ - If consumers don’t have the wherewithal to spend because all the money’s going to the top, and the people at the top only spend a very small fraction of what they earn, then the economy is almost inevitably destined to slow.
+ - We can’t know in advance what history is going to say, but I would be utterly amazed and surprised if American invasion to Iraq from the beginning of its inception, were not judged to be an utter failure and a terrible, terrible thing for the world.
+ - It is a myth that higher taxes lead to less demand and slower growth. In the first three decades after World War II, US top tax rates on the wealthy were never below 70 percent.
+ - When I was a kid, the bigger boys would pick on me. So I got an idea that I would make alliances with older boys, like just one or two, who would be my protectors.
+ - It’s not government’s business what people do in their private bedrooms.
+ - I think that in politics, when people want to discredit a particular position, they say, “Oh, they are liberals,” or “They are conservatives; we are centrists.” Everybody wants to be a centrist.
+ - We reform the system. We save capitalism from its own excesses.
+
+97 quotes

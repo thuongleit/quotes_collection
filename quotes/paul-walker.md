@@ -1,0 +1,80 @@
+ - Train your mind to see the good in everything.
+ - If one day speed kills me, do not cry because I was smiling.
+ - I live by ‘Go big or go home.’ That’s with everything. It’s like either commit and go for it or don’t do it at all. I apply that to everything. I apply that to relationships, I apply that to like sports, I apply that to everything. That’s what I live by. That’s how I like it.
+ - You know, all that really matters is that the people you love are happy and healthy. Everything else is just sprinkles on the sundae.
+ - My philosophy is: If you can’t have fun, there’s no sense in doing it.
+ - I’m not afraid of anything. That’s just the way I am.
+ - I’m a crazy car guy. I’ve got an airplane hangar full of cars.
+ - I don’t go where people are. I go where the people aren’t.
+ - It’s not about working anymore, it’s about doing work I can be proud of.
+ - I always find film-making a pleasurable experience.
+ - Attitude is attitude, whether you’re a West Coast gangster or East Coast gangster, you know?
+ - I used to believe in one true soul mate, but not anymore. I believe you can have a few.
+ - I want to have the freedom to do whatever I want.
+ - My motto is, you have to get in a sport a day.
+ - I’m one of those people that think certain things happen at certain times for all the right reasons.
+ - Michelle Rodriguez is like the most original person on the planet. She’s so straight up, uncensored all the time. Be ready. I love her for that.
+ - I’ve always wanted to race cars, ever since I was a young boy, as I think a lot of guys have.
+ - I love dogs. I grew up with dogs in my family from the time that I was a little boy; we always had German Shepherds and Labradors. I get on very well with dogs, they trust me.
+ - Sometimes people count their chickens before they hatch.
+ - I was definitely ahead of my friends. I was French-kissing girls way before anybody else was.
+ - I think my mom put it best. She said, ‘Little girls soften their daddy’s hearts.’
+ - I am going to continue to work hard, but I do not take it too seriously, I just do what feels right and I really want to have a good time.
+ - You have to make smart decisions, but you never know what will happen in the future.
+ - Just real. I want to have the freedom to do whatever I want. And more importantly, I want to have the freedom to bring everyone else along with me.
+ - Basically, you’re selling a world as an actor, right? I mean it’s like any sales person: if you believe in your product, you know your product, you sell it a lot better.
+ - I’m not affected by violence the way some people are. I don’t know why, but I enjoy that intensity.
+ - I’m not the least bit polished, I come from a blue collar background and I never thought I could feel comfortable around the English.
+ - There’s more to life than movies.
+ - I believe in fate, that films happen when they are supposed to.
+ - If you play with people who are better than you, then you get better.
+ - Who couldn’t believe there’s a God?
+ - I could take you for a walk on the beach and I could point out just about any creature and give you their Latin names.
+ - There’s a lot of guys that just get comfortable with their positions and rest on their laurels. I had to earn my way.
+ - I sometimes struggle, because my job is like the antithesis of what surfing is all about. Surfing’s simple. It’s real.
+ - Everyone has an opinion.
+ - I’m not the kind of guy who’s taking advantage of my position.
+ - I’m really close to all of my family.
+ - I love doing the action stuff. It’s soooo much fun!
+ - You know, I’m a pretty mellow guy. I’m pretty easy-going. I see everyone’s perspective.
+ - What I find really difficult is making career decisions.
+ - If you spend any time with a man, you’ll realize that we’re all still little boys.
+ - People are often talking when they are not supposed to be.
+ - I’m extemely competitive, so when people start counting me out or trying to categorise me, I sorta get hungry.
+ - I’m a doer, and whether it was the tsunami in Sri Lanka or the earthquake in Indonesia, I was always saying, I should be there; I should be helping out.
+ - I like being surrounded by great people.
+ - What I find really difficult is making career decisions. Normally it will take me two weeks, until the very last minute and I have to say yes or no. For a couple of weeks, I will tune everyone out who is giving me advice, so that I can make a clear decision on my own and it takes time.
+ - I feel I have lived my whole life, day to day, without planning anything and I like it that way. Things change so fast, one minute you are here, the next minute you are on a plane, it’s great fun.
+ - I need to work with great directors and actors, people who are better than me, so that I am challenged. It is like playing sports – surfing, basketball, it doesn’t matter what it is, if you play with people who are better than you, then you get better too. It is the same thing with acting.
+ - Surfing soothes me, it’s always been a kind of Zen experience for me. The ocean is so magnificent, peaceful, and awesome. The rest of the world disappears for me when I’m on a wave.
+ - I have always loved marine biology and that is what I studied in school. I am hoping to build a marine sanctuary that will also be educational, an eco preserve and a school, perhaps in Costa Rica, that is one of my dreams and goals.
+ - I never thought I was going to be an actor. And I never really thought of myself as one. Even though I keep working. I thought I’d just do a wave of movies, and then I’d burn out. They just kept coming together.
+ - I like to make big decisions when I am at home living a routine life, getting up, walking my dog, having breakfast, when I have no pressure. I do not like doing it when I making a film. It is too stressful.
+ - My mom’s hot. I mean she’s old, but my mom’s out of control.
+ - My mom was always really healthy and cautious about her diet, so I’m not a big sugar guy.
+ - I wish I could be behind the wheel for every stunt.
+ - Sometimes I live in fear. But when I have to take chances about people I love, relationships, my daughter and immediate family, those decisions are easy.
+ - I’m into being a dad, that’s where my focus is most of the time. I’m an actor that’s my job, but it’s not my life. I have a lot of other interests too.
+ - My father’s a protector. My father’s old-school. He’s a cowboy.
+ - If I lost weight, I’d be two-dimensional!
+ - Usually I like to make my movies from start to finish in chronological order. As a filmmaker it lets me be able to direct my actors and tell them where exactly they are and go with progression.
+ - That’s one thing about Hollywood. People don’t always want what’s real. People always want a little more. So for me, it’s a compromise. Here you go, that hyper-reality.
+ - People are concerned over safety and spillage, especially for the workers. Were all really hopeful even though we remain deeply concerned over the safety and the efficacy of an unproven technology.
+ - When I was younger, the pressure was just being cool. I never thought of myself as a cool guy. I always thought of myself as more of the goofy guy.
+ - I find it hard to take chances that might mean making bad decisions.
+ - I have an airplane hangar with 17 cars in it. That’s no joke. I have a ‘half pipe’ in there, too – you know, like a big ramp, where I skateboard. It’s awesome. It’s the ultimate fantasy.
+ - I was exposed to nature by my mother who loved camping, so I always enjoyed the outdoors and that has been a lasting passion. We went on nature walks and I became fascinated with the environment as I got older.
+ - I don’t go for the flash and panache.
+ - I have been surfing for my whole life. I love it and I don’t know that I can get much better now, I have peaked, which bothers me but I have to accept it.
+ - Being a digital photographer I’m in awe of the older generation of photographers who created all those iconic cinematic style images on film, such as Man Ray’s portrait of the photographer Lee Miller.
+ - I remember when I first came around, the computer-generated stuff was pretty wicked. I was like, ‘Wow!’ but I feel like then for the longest time, we saw so much of it, after a while, you might as well just be watching an animated movie.
+ - I hope I’m in a position to make stuff that I really want to make as opposed to stuff that I just have to make for money reasons, or to sustain a certain marquee value.
+ - I think that I just need to work with great directors and actors, people who are better than me, so that I am challenged.
+ - My parents never looked at my acting as a career. They saw it as a way to help provide for the household.
+ - I play Hank Hansen, a real guy. Youd be amazed at how much information they have on this guy: personality traits, nicknames, favorite color, you name it.
+ - My family’s really close.
+ - I’d like to live on horseback and just be a cowboy.
+ - I make films and do the publicity and interviews, but then I want to get away from it all and be on my own.
+ - I’m as interested in photographing the film crew as much as the actors and actresses.
+
+78 quotes

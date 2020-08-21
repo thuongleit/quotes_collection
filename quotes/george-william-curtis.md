@@ -1,0 +1,45 @@
+ - Dreams come true if you survive the hard times!
+ - Happiness lies, first of all, in health.
+ - The fragrance always stays in the hand that gives the rose.
+ - Happiness is speechless.
+ - Books are the ever burning lamps of accumulated wisdom.
+ - A man’s country is not a certain area of land, of mountains, rivers, and woods, but it is a principle and patriotism is loyalty to that principle.
+ - The new year begins in a snow-storm of white vows.
+ - Prussia is great because her people are intelligent. They know the alphabet. The alphabet is conquering the world.
+ - It is not the ship so much as the skillful sailing that assures the prosperous voyage.
+ - Anger is an expensive luxury in which only men of certain income can indulge.
+ - Age is a matter of feeling, not of years.
+ - Romance like a ghost escapes touching; it is always where you are not, not where you are. The interview or conversation was prose at the time, but it is poetry in the memory.
+ - A journal should be neither an echo nor a pander.
+ - In the journey of the year, the autumn is Venice, spring is Naples, certainly, and the majestic maturity of summer is Rome.
+ - Life is a rich strain of music, suggesting a realm too fair to be.
+ - The big mistake that men make is that when they turn thirteen or fourteen and all of a sudden they’ve reached puberty, they believe that they like women. Actually, you’re just horny. It doesn’t mean you like women any more at twenty-one than you did at ten.
+ - Imagination is as good as many voyages – and how much cheaper.
+ - Every great crisis of human history is a pass of Thermopylae, and there is always a Leonidas and his three hundred to die in it, if they can not conquer.
+ - There is very little moral mixture in the ‘Antislavery’ feeling of this country. A great deal is abstract philanthropy; part is hatred of slaveholders; a great part is jealousy for white labor, very little is consciousness of wrong done and the wish to right it.
+ - I think that to have known one good, old man-one man, who, through the chances and mischances of a long life, has carried his heart in his hand, like a palm-branch, waving all discords into peace-helps our faith in God, in ourselves, and in each other more than many sermons.
+ - A river is the cosiest of friends. You must love it and live with it before you can know it.
+ - The test of civilization is the estimate of woman. Among savages she is a slave. In the dark ages of Christianity she is a toy and a sentimental goddess. With increasing moral light, and greater liberty, and more universal justice, she begins to develop as an equal human being.
+ - Books of entertainment first led Adam Clarke to believe in a spiritual world.
+ - While we read history we make history.
+ - A tree which has lost its head will never recover it again, and will survive only as a monument of the ignorance and folly of its Tormentor.
+ - Progress begins with the minority. It is completed by persuading the majority, by showing the reason and the of the step forward, and that is accomplished by appealing to the intelligence of the majority.
+ - Stratagem is the right hand of cunning.
+ - Our common liberty is consecrated by a common sorrow.
+ - Reputation is favorable notoriety as distinguished from fame, which is permanent approval of great deeds and noble thoughts by the best intelligence of mankind.
+ - It is the most human and kindly of seasons, as fully penetrated and irradiated with the feeling of human brotherhood, which is the essential spirit of Christianity, as the month of June with sunshine and the balmy breath of roses.
+ - Good taste consists first upon fitness.
+ - Virtue does not truly reward her votary if she leaves him sad and half doubtful whether it would not have been better to serve vice.
+ - Patriotism is the vital condition of national permanence.
+ - Nature makes woman to be won and men to win.
+ - The sure foundations of the state are laid in knowledge, not in ignorance; and every sneer at education, at culture, at book learning, which is the recorded wisdom of the experience of mankind, is the demagogue’s sneer at intelligent liberty, inviting national degeneracy and ruin.
+ - It is not observed in history that families improve with time.
+ - Heroes in history seem to us poetic because they are there. But if we should tell the simple truth of some of our neighbors, it would sound like poetry.
+ - True invective requires great imagination.
+ - Our great social and political advantage is opportunity.
+ - The test of civilization is the estimate of woman.
+ - Anger, even when it punishes the faults of delinquents, ought not to precede reason as its mistress, but attend as a handmaid at the back of reason, to come to the front when bidden. For once it begins to take control of the mind, it calls just what it does cruelly.
+ - Criticism is not construction, it is observation.
+ - The world is not made for the prosperous alone, nor for the strong.
+
+43 quotes

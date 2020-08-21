@@ -1,0 +1,89 @@
+ - God made life simple. It is man who complicates it.
+ - Life without risks is not worth living.
+ - Isn’t it strange that we talk least about the things we think about most?
+ - Whether outwardly or inwardly, whether in space or time, the farther we penetrate the unknown, the vaster and more marvelous it becomes.
+ - Real freedom lies in wildness, not in civilization.
+ - Pilots are drawn to flying because it’s a perfect combination of science, romance and adventure.
+ - After my death, the molecules of my being will return to the earth and sky. They came from the stars. I am of the stars.
+ - Success is not measured by what a man accomplishes, but by the opposition he has encountered and the courage with which he has maintained the struggle against overwhelming odds.
+ - We can have peace and security only so long as we band together to preserve that most priceless possession, our inheritance of European blood, only so long as we guard ourselves against attack by foreign armies and dilution by foreign races.
+ - Under the federal reserve act, panics are scientifically created. The present panic is the first scientifically created one, worked out as we figured, a mathematical equation.
+ - Sometimes, flying feels too godlike to be attained by man. Sometimes, the world from above seems too beautiful, too wonderful, too distant for human eyes to see .
+ - Living in dreams of yesterday, we find ourselves still dreaming of impossible future conquests.
+ - I would rather live one day in Maui than one month in New York.
+ - I believe the risks I take are justified by the sheer love of the life I lead.
+ - Science, freedom, beauty, adventure: what more could you ask of life?
+ - Not long ago, when I was a student in college, just flying an airplane seemed a dream. But that dream turned into reality.
+ - Science intensifies religious truth by cleansing it of ignorance and superstition.
+ - I don’t believe in taking unnecessary risks, but a life without risk isn’t worth living.
+ - One boy’s a boy, two boys are half a boy; three boys are no boy at all.
+ - I don’t believe in taking foolish chances, but nothing can be accomplished if we don’t take any chances at all.
+ - Life is like a landscape. You live in the midst of it but can describe it only from the vantage point of distance.
+ - Ideas are like seeds, apparently insignificant when first held in the hand. Once firmly planted, they can grow and flower into almost anything at all, a cornstalk, or a giant redwood, or a flight across the ocean. Whatever a man imagines, he can achieve.
+ - It is the greatest shot of adrenaline to be doing what you have wanted to do so badly. You almost feel like you could fly without the plane.
+ - Accuracy means something to me. It’s vital to my sense of values. I’ve learned not to trust people who are inaccurate. Every aviator knows that if mechanics are inaccurate, aircraft crash. If pilots are inaccurate, they get lost-sometimes killed. In my profession life itself depends on accuracy.
+ - From now on, depressions will be scientifically created.
+ - A certain amount of danger is essential to the quality of life.
+ - I know there is infinity beyond ourselves. I wonder if there is infinity within.
+ - I learned that danger is relative, and the inexperience can be a magnifying glass.
+ - How long can men thrive between walls of brick, walking on asphalt pavements, breathing the fumes of coal and of oil, growing, working, dying, with hardly a thought of wind, and sky, and fields of grain, seeing only machine-made beauty, the mineral-like quality of life?
+ - I grow aware of various forms of man and of myself. I am form and I am formless, I am life and I am matter, mortal and immortal. I am one and many – myself and humanity in flux.
+ - We are all consumers and should all be producers.
+ - To a person in love, the value of the individual is intuitively known. Love needs no logic for its mission.
+ - In a time of war, truth is always replaced by propaganda.
+ - Man has risen so far above all other species that he competes in ways unique in nature. He fights by means of complicated weapons; he fights for ends remote in time.
+ - I owned the world that hour as I rode over it. free of the earth, free of the mountains, free of the clouds, but how inseparably I was bound to them.
+ - What makes human power erupt like a volcano? What destroy’s it? The civilizations of Rome, Greece, Egypt, China were all eruptions from a human core.
+ - Whatever a man imagines he can attain, if he doesn’t become too arrogant and encroach on the rights of the gods.
+ - In wilderness I sense the miracle of life, and behind it our scientific accomplishments fade to trivia.
+ - I realized that the future of aviation, to which I had devoted so much of my life, depended less on the perfection of aircraft than on preserving the epoch-evolved environment of life, and that this was true of all technological progress.
+ - And if at times you renounce experience and mind’s heavy logic, it seems that the world has rushed along on its orbit, leaving you alone flying above a forgotten cloud bank, somewhere in the solitude of interstellar space.
+ - I decided that if I could fly for ten years before I was killed in a crash, it would be a worthwhile trade for an ordinary life time.
+ - Individuals are custodians of the life stream – temporal manifestations of far greater being, forming from and returning to their essence like so many dreams.
+ - Man is a mixture of desires that extend beyond his knowledge and often result in action conflicting with rationality.
+ - Life is a culmination of the past, an awareness of the present, an indication of a future beyond knowledge, the quality that gives a touch of divinity to matter.
+ - Life’s values originate in circumstances over which the individual has no control.
+ - Now, all that I feared would happen has happened. We are at war all over the world, and we are unprepared for it from either a spiritual or a material standpoint.
+ - I hope you either take up parachute jumping or stay out of single motored airplanes at night.
+ - When the President signs this act, the invisible government by the money power will be legalized.
+ - Flying has torn apart the relationship of space and time: it uses our old clock but with new yardsticks.
+ - In wilderness I sense the miracle of life.
+ - The greatest danger to this country lies in their large ownership and influence in our motion pictures, our press, our radio and our government.
+ - I live only in the moment in this strange unmortal space, crowded with beauty, pierced with danger.
+ - Without death there would be no awareness of life, and the recurring selection and renewal that has caused life’s progress would be ended.
+ - We found a water pipe, tied the flag to it and put it up. Then all hell broke loose below. Troops cheered, ships blew whistles, some men openly wept.
+ - To a person in love, the value of the individual is intuitively known. Love needs no logic for its mission. It roots in a bare wisdom that exists in senses more than mind, a wisdom that, in primitive form, evolved the mind which so often overlooks it.
+ - We are in the grip of a scientific materialism, caught in a vicious cycle where our security today seems to depend on regimentation and weapons which will ruin us tomorrow.
+ - The remedy for our social evils does not consist so much in changing the system of government as it does in increasing the general intelligence of the people so that they may learn how to govern.
+ - If I had to choose, I would rather have birds than airplanes.
+ - It is always easier to deal in truth and honesty and follow these to their legitimate ends, than it is to construct and adjust a false superstructure upon a false base.
+ - Peace is a virgin who dare not show her face without Strength, her father, for protection.
+ - Unless science is controlled by a greater moral force, it will become the Antichrist prophesied by the early Christians.
+ - We can so reconstruct society that it will be self-perpetuating instead of as now, self-exhaustive.
+ - I was astonished at the effect my successful landing in France had on the nations of the world. To me, it was like a match lighting a bonfire.
+ - The essence of life, I concluded, did not lie in the material. It penetrated, but was not bound to, the physical world of science.
+ - Democracy can only spring from within a nation itself, only from the hearts and minds of its people.
+ - I know myself as mortal, but this raises the question: “What is I?” Am I an individual, or am I an evolving life stream composed of countless selves?
+ - When I watch species other than my own, their instinct’s wisdom is what most impresses and disturbs me.
+ - Is cruelty a moral judgment if it is fundamental to forms of life? Who is man to say that the workings of nature, and therefore of the divine plan of which he himself is part, are cruel?
+ - Why should anyone think a white skin superior in evaluating the qualities of human life? I did not really admire a white skin so much myself. Did I not prefer the brown skin that came with exposure to the sun?
+ - At first you can stand the spotlight in your eyes. Then it blinds you. Others can see you, but you cannot see them.
+ - Decades spent in contact with science and its vehicles have directed my mind and senses to areas beyond their reach. I now see scientific accomplishments as a path, not an end; a path leading to and disappearing in mystery.
+ - Consciousness grows independent of the ordinary senses.
+ - It may be interesting to note how many statesmen there are who believe that the cost of living can be reduced by making the people of other countries help to feed and clothe us.
+ - Time is an abstraction which, on earth, exists only for the human brain it has evolved.
+ - If one took no chances, one would not fly at all. Safety lies in the judgment of the chances one takes.
+ - Air power is new to all our countries. It brings advantages to some and weakens others; it calls for readjustment everywhere.
+ - Is he alone who has courage on his right hand and faith on his left hand?
+ - If we can combine our knowledge of science with the wisdom of wildness, if we can nurture civilization through roots in the primitive, man’s potentialities appear to be unbounded.
+ - As civilization advances, man grows unconscious of the primitive elements of life; he is separated from them by his perfection of material techniques.
+ - No right of preference exists in favor of person, property, or business. Personal claims and ambitions must yield in favor of whatever best serves the general welfare.
+ - I believe that for permanent survival, man must balance science with other qualities of life, qualities of body and spirit as well as those of mind – qualities he cannot develop when he lets mechanics and luxury insulate him too greatly from the earth to which he was born.
+ - Aviation seems almost a gift from heaven to those Western nations who were already the leaders of their era, strengthening their leadership, their confidence, their dominance over other peoples.
+ - The improvement of our way of life is more important than the spreading of it. If we make it satisfactory enough, it will spread automatically. If we do not, no strength of arms can permanently oppose it.
+ - History has recorded nothing so dramatic in design, nor so skillfully manipulated, as this attempt to create the National Reserve Association, or the Federal Reserve.
+ - All mentally well-balanced persons know that we are not governed by the true principals of social justice when we make the main aim of our social existence the gaining of money.
+ - At the end of the first half-century of engine-driven flight, we are confronted with the stark fact that the historical significance of aircraft has been primarily military and destructive.
+ - Our survival, the future of our civilization, possibly the existence of mankind, depends on American leadership.
+
+87 quotes

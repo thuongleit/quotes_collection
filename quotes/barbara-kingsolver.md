@@ -1,0 +1,328 @@
+ - Hope is a renewable option: If you run out of it at the end of the day, you get to start over in the morning.
+ - Loose lips sink ships.
+ - There is no perfect time to write. There is only now.
+ - Stop a minute, right where you are. Relax your shoulders, shake your head and spine like a dog shaking off cold water. Tell that imperious voice in your head to be still.
+ - Memories do not always soften with time; some grow edges like knives.
+ - Don’t try to figure out what other people want to hear from you; figure out what you have to say.
+ - In a world as wrong as this one, all we can do is make things as right as we can.
+ - Everything you’re sure is right can be wrong in another place.
+ - There is no point treating a depressed person as though she were just feeling sad, saying, ‘There now, hang on, you’ll get over it.’ Sadness is more or less like a head cold- with patience, it passes. Depression is like cancer.
+ - The changes we dread most may contain our salvation.
+ - The very least you can do in your life is to figure out what you hope for. And the most you can do is live inside that hope. Not admire it from a distance but live right in it, under its roof.
+ - War so conspicuously benefits rich men and kills the poor ones.
+ - Value is not made of money, but a tender balance of expectation and longing.
+ - It’s what you do that makes your soul.
+ - Sometimes the strength of motherhood is greater than natural laws.
+ - I’ve seen how you can’t learn anything when you’re trying to look like the smartest person in the room.
+ - I’ve always seen the world through the eyes of a scientist. I love the predictable outcomes that science gives us, the control over the world that that can render.
+ - Empathy is really the opposite of spiritual meanness. It’s the capacity to understand that every war is both won and lost. And that someone else’s pain is as meaningful as your own.
+ - Sadness is more or less like a head cold – with patience, it passes. Depression is like cancer.
+ - Every betrayal contains a perfect moment, a coin stamped heads or tails with salvation on the other side.
+ - There were two things about Mama. One is she always expected the best out of me. And the other is that then no matter what I did, whatever I came home with, she acted like it was the moon I had just hung up in the sky and plugged in all the stars. Like I was that good.
+ - It’s frightening when things you love appear suddenly changed from what you have always known.
+ - Fiction is a sort of inter-human magic, allowing you to travel into a scene and feel it tingle on your skin...
+ - Thanks for this day, for all birds safe in their nests, for whatever this is, for life.
+ - What keeps you going isn’t some fine destination but just the road you’re on, and the fact that you know how to drive.
+ - If you want sweet dreams, you’ve got to live a sweet life.
+ - Misunderstanding is my cornerstone. It’s everyone’s, come to think of it. Illusions mistaken for truth are the pavement under our feet.
+ - Quit smoking, and observe posted speed limits. This will improve your odds of getting old enough to be wise.
+ - Silence has many advantages. When you do not speak, other people presume you to be deaf or feeble-minded and promptly make a show of their own limitations.
+ - How pointless life could be, what a foolish business of inventing things to love, just so you could dread losing them.
+ - If it’s important, your heart remembers.
+ - From the fallen tree everybody makes firewood.
+ - As a biologist, I can’t think of myself as anything but an animal among animals and plant.
+ - We’re animals. We’re born like every other mammal and we live our whole lives around disguised animal thoughts.
+ - I thought: this is how life is, ridiculous beyond comprehension.
+ - Oh, that river of wishes, the slippery crocodile dream of it, how it might have carried my body down through all the glittering sand bars to the sea.
+ - The truth needs so little rehearsal.
+ - Listen. To live is to be marked. To live is to change, to acquire the words of a story, and that is the only celebration we mortals really know. In perfect stillness, frankly, I’ve only found sorrow.
+ - Illusions mistaken for truth are the pavement under our feet. They are what we call civilization.
+ - Global commerce is driven by a single conviction: the inalienable right to earn profit, regardless of any human cost.
+ - After ‘The Poisonwood Bible’ was published, several people believed that my parents were missionaries, which could not be further from the truth.
+ - What life can I live that will let me breathe in and out and love somebody or something and not run off screaming into the woods?
+ - I attempted briefly to consecrate myself in the public library, believing every crack in my soul could be chinked with a book.
+ - Morning always comes.
+ - The wrong words are impossible when there are no words.
+ - Tall and straight I may appear, but I will always be Ada inside. A crooked little person trying to tell the truth. The power is in the balance: we are our injuries, as much as we are our successes.
+ - I used to think religion was just more of the same thing. Dump responsibility on the big guy. Now I see an importance in that. It’s a relief to accept that not everything is under your control.
+ - There is a strange moment in time, after something horrible happens, when you know it’s true, but you haven’t told anyone yet.
+ - Love weighs nothing.
+ - Science doesn’t tell us what we should do. It only tells us what is.
+ - A certain feeling comes from throwing your good life away, and it is one part rapture.
+ - The march of human progress seemed mainly a matter of getting over that initial shock of being here.
+ - It’s as if cats live in a separate universe that takes up the same space as ours, but is full of fascinating things like mice or sparrows or special TV programs that we can’t see.
+ - Wars and elections are both too big and too small to matter in the long run. The daily work – that goes on, it adds up.
+ - The happiest people are the ones with the most community.
+ - Lies are infinite in number, and the truth so small and singular.
+ - School is about two parts ABCs to fifty parts Where Do I Stand in the Great Pecking Order of Humankind.
+ - God doesn’t need to punish us. He just grants us a long enough life to punish ourselves.
+ - There’s always more to a story than a body can see from the fenceline.
+ - It’s terrible to lose somebody, but it’s also true that some people never have anybody to lose, and I think that’s got to be so much worse.
+ - Maybe life doesn’t get any better than this, or any worse, and what we get is just what we’re willing to find: small wonders, where they grow.
+ - We came from Bethlehem, Georgia bearing Betty Crocker cake mixes into the jungle.
+ - It’s surprising how much memory is built around things unnoticed at the time.
+ - Sugar, it’s no parade but you’ll get down the street one way or another, so you’d just as well throw your shoulders back and pick up the pace.
+ - Culture is a slingshot moved by the force of its past.
+ - People’s dreams are made out of what they do all day. The same way a dog that runs after rabbits will dream of rabbits. It’s what you do that makes your soul, not the other way around.
+ - Our childhood had passed over into history overnight. The transition was unnoticed by anyone but ourselves.
+ - Poor Congo, barefoot bride of men who took her jewels and promised the Kingdom.
+ - I’m of a fearsome mind to throw my arms around every living librarian who crosses my path, on behalf of the souls they never knew they saved.
+ - Be careful what you give children, for sooner or later you are sure to get it back.
+ - I could never work out whether we were to view religion as a life-insurance policy or a life sentence.
+ - The substance of grief is not imaginary. It’s as real as rope or the absence of air, and like both those things, it can kill.
+ - Cooking is 80 percent confidence, a skill best acquired starting from when the apron strings wrap around you twice.
+ - People read books to escape the uncertainties of life.
+ - A dog can’t think that much about what he’s doing, he just does what feels right.
+ - Listen. Slide the weight from your shoulders and move forward. You are afraid you might forget, but you never will. You will forgive and remember.
+ - He was getting that look he gets, oh boy, like Here comes Moses tromping down off of Mount Syanide with ten fresh ways to wreck your life.
+ - But kids don’t stay with you if you do it right. It’s the one job where, the better you are, the more surely you won’t be needed in the long run.
+ - The power is in the balance: we are our injuries, as much as we are our successes.
+ - For Lou Ann, life itself was a life-threatening enterprise.
+ - My father wears his faith like the bronze breastplate of God’s footsoldiers while our mother’s is more like a good cloth coat with a secondhand fit.
+ - Recall that whatever lofty things you might accomplish today, you will do them only because you first ate something that grew out of the dirt.
+ - Humans can be fairly ridiculous animals.
+ - It kills you to see them grow up. But I guess it would kill you quicker if they didn’t.
+ - Good fiction creates empathy. A novel takes you somewhere and asks you to look through the eyes of another person, to live another life.
+ - A good title holds magic, some cognitive dissonance, a little grit between the teeth, but above all it is the jumping-off place into wonder.
+ - There’s such a gulf between yourself and who you were then, but people speak to that other person and it answers; it’s like having a stranger as a house guest in your skin.
+ - This Forest eats itself and lives forever.
+ - Perhaps growing up meant we put our knives away and feigned ignorance of the damage.
+ - She kept swimming out into life because she hadn’t yet found a rock to stand on.
+ - From my earliest memory, times of crisis seemed to end up with women in the kitchen preparing food for men.
+ - Solitude is a human presumption. Every quiet step is thunder to beetle life underfoot, a tug of impalpable thread on the web pulling mate to mate and predator to prey, a beginning or an end. Every choice is a world made new for the chosen.
+ - A woman without a man – a condition of ‘manlessness’ – is defined as alone. But a single mother is less alone than the average housewife.
+ - It seems very safe to me to be surrounded by green growing things and water.
+ - I considered her my ally, because, like me, she was imperfect.
+ - Poetry feels like a country I visit without a passport, where I look around furtively, grab hold of something precious, and try to smuggle it back across the border. Any poem I get written down feels like contraband to me.
+ - Households that have lost the soul of cooking from their routines may not know what they are missing: the song of a stir-fry sizzle, the small talk of clinking measuring spoons, the yeasty scent of rising dough, the painting of flavors onto a pizza before it slides into the oven.
+ - A wife is the earth itself, changing hands, bearing scars.
+ - When you’re given a brilliant child you polish her and let her shine. Pigs in Heaven.
+ - Libraries are the one American institution you shouldn’t rip off.
+ - The gods you do not pay are the ones that can curse you best.
+ - Pain reaches the heart with electrical speed, but truth moves to the heart as slowly as a glacier.
+ - The most important thing about a person is always the thing you don’t know.
+ - You don’t think you’ll live past it and you don’t really. The person you were is gone. But the half of you that’s still alive wakes up one day and takes over again.
+ - She is inhumanly alone. And then, all at once, she isn’t.
+ - A choir of seedlings arching their necks out of rotted tree stumps, sucking life out of death. I am the forest’s conscience, but remember, the forest eats itself and lives forever.
+ - No matter what kind of night you’re having, morning always wins.
+ - Pure and unblemished souls must taste very bland, with an aftertaste of bitterness.
+ - Literature sucks you into another psyche. So the creation of empathy necessarily influences how you’ll behave to other people.
+ - To be hopeful, to embrace one possibility after another that is surely the basic instinct – crying out: High tide! Time to move out into the glorious debris. Time to take this life for what it is!
+ - Be still, and the world is bound to turn herself inside out to entertain you. Everywhere you look, joyful noise is clanging to drown out quiet desperation.
+ - High fashion has the shelf life of potato salad. And when past its prime, it is similarly deadly.
+ - The friend who holds your hand and says the wrong thing is made of dearer stuff than the one who stays away.
+ - You can curse the dead or pray for them, but don’t expect them to do a thing for you. They’re far too interested in watching us, to see what in heaven’s name we will do next.
+ - My life is a pitiful, mechanical thing without a past, like a little wind-up car, ready to run in any direction someone points me.
+ - Sleeping alone seemed unnatural to me, and pitiful, something done in hospitals or when you’re contagious.
+ - Why is it that only girls stand on the sides of their feet? As if they’re afraid to plant themselves?
+ - Mother could go for one year without food, but not one day without her lip sticks.
+ - The thing is, it’s my own fault. I just can’t put up with a person that won’t go out of his way for me. And that’s what a man is. Somebody that won’t go out of his way for you. I bet it says that in the dictionary.
+ - A human being can be good or bad or right or wrong, maybe. But how can you say a person is illegal? You just can’t. That’s all there is to it.
+ - What I want is so simple I almost can’t say it: elementary kindness.
+ - You never knew which split second might be the zigzag bolt dividing all that went before from the everything that comes next.
+ - It’s the same struggle for each of us, and the same path out: the utterly simple, infinitely wise, ultimately defiant act of loving one thing and then another, loving our way back to life.
+ - Why does a person even get up in the morning? You have breakfast, you floss your teeth so you’ll have healthy gums in your old age, and then you get in your car and drive down I-10 and die. Life is so stupid I can’t stand it.
+ - Now I’m starting to think he wasn’t supposed to be my whole life, he was just this doorway to me.
+ - I have my own sheep and I literally sheer the sheep and knot sweaters for friends and family from scratch.
+ - It’s one thing to carry your life wherever you go. Another thing to always go looking for it somewhere else.
+ - My worst nightmare is being stuck somewhere with nothing to read.
+ - The last generation’s worst fears became the next one’s B-grade entertainment.
+ - Once the rains abated, my father’s garden thrived in the heat like an unleashed temper.
+ - Sometimes I prayed for Baby Jesus to make me good, but Baby Jesus didn’t.
+ - Honk if you love Jesus, text while driving if you want to meet up.
+ - Will you explain to me why people encourage delusional behaviour in children, and medicate it in adults?
+ - God, why does a mortal man have children? It is senseless to love anything this much.
+ - I’m not pretending to be ingenuous; I know what I’m doing.
+ - He lifts her breasts, which fit perfectly into his hands, though he knows this is no promise that he gets to keep them. A million things you can’t have will fit in a human hand.
+ - Maybe he’s been in Africa so long he has forgotten that we Christians have our own system of marriage, and it is called Monotony.
+ - For scientists, reality is not optional.
+ - Few people know so clearly what they want. Most people can’t even think what to hope for when they throw a penny in a fountain.
+ - I think the most interesting parts of human experience might be the sparks that come from that sort of chipping flint of cultures rubbing against each other.
+ - Growing food was the first activity that gave us enough prosperity to stay in one place, form complex social groups, tell our stories, and build our cities.
+ - There are days when I am envious of my hens: when I hunger for a purpose as perfect and sure as a single daily egg.
+ - You see mother, you had no life of your own. They have no idea. One has only a life of one’s own.
+ - The talkers are rising above the thinkers.
+ - No other continent has endured such an unspeakably bizarre combination of foreign thievery and foreign goodwill.
+ - I had decided early on that if I couldn’t dress elegant, I’d dress memorable.
+ - It’s tough to break yourself as news to a town that already knows you.
+ - The loudest sound on earth, she thought, is a man with nothing to do.
+ - Forgive me, O Heavenly Father, according to the multitude of Thy mercies. I have lusted in my heart to break a man’s skull and scatter the stench of his brains across several people’s back yards.
+ - Write a nonfiction book, and be prepared for the legion of readers who are going to doubt your fact. But write a novel, and get ready for the world to assume every word is true.
+ - Your dreams, what you hope for and all that, it’s not separate from your life. It grows right up out of it.
+ - Like kids who only ever get socks for Christmas, but still believe with all their hearts in Santa.
+ - Even feigning surprise, pretending it was unexpected and saying a ritual thanks, is surely wiser than just expecting everything so carelessly.
+ - I love developing children as characters. Children rarely have important roles in literary fiction – they are usually defined as cute or precious, or they create a plot by being kidnapped or dying.
+ - Don’t try to make life a mathematics problem with yourself in the center and everything coming out equal. When you’re good, bad things can still happen. And if you’re bad, you can still be lucky.
+ - When I want to take God at his word exactly, I take a peep out the window at His creation. Because that, darling, He makes fresh for us everyday...
+ - I know I’m a rare person, a trained scientist who writes fiction, because so few contemporary novelists engage with science.
+ - Root out all the “to be” verbs in your prose and bludgeon them until dead. No “It was” or “they are” or “I am.” Don’t let it be, make it happen.
+ - I have seen women looking at jewelry ads with a misty eye and one hand resting on the heart, and I only know what they’re feeling because that’s how I read the seed catalogs in January.
+ - I concentrate on character, theme, language, structure, voice. It actually surprises me that no matter what I write, people declare it “intently political.” I’m just writing about the world I know, as it is. Wounds and griefs included.
+ - A sound-bite culture can’t discuss science very well. Exactly what we’re losing when we reduce biodiversity, the causes and consequences of global warming-these traumas can’t be adequately summarized in an evening news wrap-up.
+ - Downstream is always someone else’s up.
+ - If you’re standing in the manure pile, it’s somebody’s job to mention the stink.
+ - Terms like that, ‘Humane Society,’ are devised with people like me in mind, who don’t care to dwell on what happens to the innocent.
+ - A woman knows she can walk away from a pot to tend something else and the pot will go on boiling; if she couldn’t this world would end at once.
+ - A breeze shook rain out of new leaves onto their hair, but in their pursuit of eternity they never noticed the chill.
+ - Food culture in the United States has long been cast as the property of a privileged class. It is nothing of the kind. Culture is the property of a species.
+ - At some point in my life I’d honestly hoped love would rescue me from the cold, drafty castle I lived in. But at another point, much earlier I think, I’d quietly begun to hope for nothing at all in the way of love, so as not to be disappointed. It works. It gets to be a habit.
+ - What you lose in blindness is the space around you, the place where you are, and without that you might not exist. You could be nowhere at all.
+ - If you can’t dress expensive, dress memorable.
+ - No kind of bomb ever built will extinguish hatred.
+ - Do you think its possible to live without wanting to put your name on your paintings? To belong to a group so securely you don’t need to rise above it?
+ - The important thing isn’t the house. It’s the ability to make it. You carry that in your brain and in your hands, wherever you go.
+ - Small change, small wonders – these are the currency of my endurance and ultimately of my life.
+ - Let me claim that Africa and I kept company for a while and then parted ways as if we were both party to relations with a failed outcome. Or say I was afflicted with Africa like a bout of a rare disease from which I have not managed a full recovery.
+ - Scientific illiteracy in our populations is leaving too many of us unprepared to discuss or understand much of the damage we are wreaking on our atmosphere, our habitat, and even the food that enters our mouths.
+ - Prayer had always struck me as more or less a glorified attempt at a business transaction.
+ - Because I could not stop for death he kindly stopped for me, or paused at least to strike a glancing blow with his sky-blue mouth as he passed.
+ - My way of finding a place in this world is to write one.
+ - Pay attention to your passions. They are the key to starting and finishing the book you are meant to write. I don’t believe in talent. I believe in passion.
+ - Every life is different because you passed this way and touched history.
+ - The past is all we know of the future.
+ - I’ve about decided that’s the main thing that separates happy people from the other people: the feeling that you’re a practical item, with a use, like a sweater or a socket wrench.
+ - If we can’t, as artists, improve on real life, we should put down our pencils and go bake bread.
+ - This is how Americans think. You believe that if something terrible happens to someone, they must have deserved it.
+ - I believe that the people who survive a cataclysm, rather than those who stand by and analyze it, are nearly always the more credible witnesses to their own history.
+ - For if there is any single thing that everyone hopes for most dearly, it must be this: that the youngest outlive the oldest.
+ - Some of us know how we came by our fortune and some of us don’t; but we wear it all the same.
+ - I live in a rural part of Virginia surrounded by farms and farmers.
+ - Our house is like an empty cigarette packet, lying around reminding you what’s not in it.
+ - I prefer to remain anomalous.
+ - When moral superiority combines with billowing ignorance, they fill up a hot-air balloon that’s awfully hard not to poke.
+ - But I’ve swallowed my pride before, that’s for sure. I’m practically lined with my mistakes on the inside like a bad-wallpapered bathroom.
+ - I learned to write by reading the kind of books I wished I’d written.
+ - Arterial-plaque specials that save minutes now can cost years, later on.
+ - The artist deals with what cannot be said in words. The novelist says in words what cannot be said in words.
+ - The death of something living is the price of our own survival, and we pay it again and again. We have no choice. It is the one solemn promise every life on earth is born and bound to keep.
+ - It’s a great freedom to give up on love, and get on with everything else.
+ - Many of us who aren’t farmers or gardeners still have some element of farm nostalgia in our family past, real or imagined: a secret longing for some connection to a life where a rooster crows in the yard.
+ - If the Lord hasn’t got a boyfriend lined up for me to marry, that’s his business.
+ - Quit smoking in the hope of growing old. It takes a long time to write. People go to books for wisdom and older authors tend to have more of it.
+ - He was my father. I own half his genes, and all of his history. Believe this: the mistakes are part of the story. I am born of a man who believed he could tell nothing but the truth, while he set down for all time the Poisonwood Bible.
+ - My morning begins with trying not to get up before the sun rises. But when I do, it’s because my head is too full of words, and I just need to get to my desk and start dumping them into a file. I always wake with sentences pouring into my head.
+ - Fiction and essays can create empathy for the theoretical stranger.
+ - Everything truly important is washable.
+ - The things I carry closest to my heart are things I can’t own.
+ - If you never stepped on anybody’s toes, you never been for a walk.
+ - A mother’s body remembers her babies-the folds of soft flesh, the softly furred scalp against her nose. Each child has it’s own entreaties to body and soul.
+ - In the places that call me out, I know I’ll recover my wordless childhood trust in the largeness of life and its willingness to take me in.
+ - Nothing to do with nature, unless you count human nature.
+ - Plot comes first. The plot is the archictecture of your novel. You wouldn’t build a house without a plan. If I wrote without a plot, it would just be a pile of bricks. Characters are your servants. They must serve your plot.
+ - You can be as earnest and ridiculous as you need to be, if you don’t attempt it in isolation. The ridiculously earnest are known to travel in groups. And they are known to change the world.
+ - This will be Great Mam’s last spring. Her last June apples. Her last fresh roasting ears from the garden.
+ - Once you start cooking, one thing leads to another. A new recipe is as exciting as a blind date. A new ingredient, heaven help me, is an intoxicating affair.
+ - What a writer can do, what a fiction writer or a poet or an essay writer can do is re-engage people with their own humanity.
+ - In the day-to-day, farm work is stress relief for me. At the end of the day, I love having this other career – my anti-job – that keeps me in shape and gives me control over a vegetal domain.
+ - A writer’s occupational hazard: I think of eavesdropping as minding my business.
+ - I look at my four boys, who are the colors of silt, loam, dust, and clay, an infinite palette for children of their own, and I understand that time erases whiteness altogether.
+ - Oh, mercy. If it catches you in the wrong frame of mind, the King James Bible can make you want to drink poison in no uncertain terms.
+ - The reason most people have kids is because they get pregnant.
+ - The most assiduous task of parenting is to divine the difference between boundaries and bondage.
+ - Alice wonders if other women in the middle of the night have begun to resent their Formica.
+ - Don’t wait for the muse. She has a lousy work ethic. Writers just write.
+ - What keeps me awake at the wheel is the thrill of trying something completely new with each book. I’m not a risk-taker in life, generally speaking, but as a writer I definitely choose the fast car, the impossible rock face, the free fall.
+ - I’m widest awake as a writer doing something new, engaged in a process I’m not sure I can finish, generating at the edge of my powers. Some people bungee jump; I write.
+ - How is it right to slip free of an old skin and walk away from the scene of the crime? We came, we saw, we took away and we left behind, we must be allowed our anguish and our regrets.
+ - Finally, cooking is good citizenship. It’s the only way to get serious about putting locally raised foods into your diet, which keeps farmlands healthy and grocery money in the neighborhood.
+ - Corn syrup and added fats have been outed as major ingredients in fast food, but they hide out in packaged foods too, even presumed-innocent ones like crackers.
+ - You could love your crazy people, even admire them, instead of resenting that they’re not self-sufficient.
+ - How strange to read of a place in a book, and then stand on it, listen to the birds sing, and spit on the cobbles if you want.
+ - I do my best work if I think about what it is I have to offer.
+ - Given my own circumstances, I find that anything can turn out to belong nearly anywhere.
+ - This story about good food begins in a quick-stop convenience market.
+ - It occurs to her that there is one thing about people you can never understand well enough: how entirely inside themselves they are.
+ - If you ask me, when something extraordinary shows up in your life in the middle of the night, you give it a name and make it the best home you can.
+ - What we end up calling history is a kind of knife, slicing down through time. A few people are hard enough to bend its edge. But most won’t even stand close to the blade. I’m one of those. We don’t bend anything.
+ - I’ve never gotten over high school, to the extent that I’m still a little surprised that my friends want to hang out with me.
+ - They all attended Hester’s church, which Dellarobia viewed as a complicated pyramid scheme of moral debt and credit resting ultimately on the shoulders of the Lord, but rife with middle managers.
+ - We tap our toes to chaste love songs about the silvery moon without recognizing them as hymns to copulation.
+ - A flower is a plant’s way of making love.
+ - Hunger of the body is altogether different from the shallow, daily hunger of the belly. Those who have known this kind of hunger cannot entirely love, ever again, those who have not.
+ - Over the last decade our country has lost an average of 300 farms a week. Large or small, each of those was the lifes work of a real person or family, people who built their lives around a promise and watched it break.
+ - There was a roaring in my ears and I lost track of what they were saying. I believe it was the physical manifestation of unbearable grief.
+ - In Kilanga, people knew nothing of things they might have had – a Frigidaire? a washer-dryer combination? Really, they’d sooner imagine a tree that could pull up its feet and go bake bread. It didn’t occur to them to feel sorry for themselves.
+ - I live in southern Appalachia, so I’m surrounded by people who work very hard for barely a living wage. It’s particularly painful that people are working the farms their parents and grandparents worked but aren’t living nearly as well.
+ - That’s how it is: some people are content to wait till you ask, while others jump right in with the whole story.
+ - I’m never going to tell the reader what to believe; I’m going to examine these characters that believe different ways, and examine their motives.
+ - We agreed with him in principal – we were little scientists, born and bred. But children robbed of love will dwell on magic.
+ - I made it to the childbearing phase without TV dependence, then looked around and thought, Well gee, why start now? Why get a pet python on the day you decide to raise fuzzy little gerbils?
+ - You always need that spark of imagination. Sometimes I’m midway through a book before it happens. However, I don’t wait for the muse to descend, I sit down every day and I work when I’m not delivering lambs on the farm.
+ - Time cures you first, and then it kills you.
+ - This is how moths speak to each other. They tell their love across the fields by scent. There is no mouth, the wrong words are impossible, either a mate is there or he is not, and if so the pair will find each other in the dark.
+ - He had senile dementia and liked to go outside naked, but he could still do two things perfectly: win at checkers and write out prescriptions.
+ - Wherever I am, let me never forget to distinguish want from need.
+ - I wonder that religion can live or die on the strength of a faint, stirring breeze. The scent trail shifts, causing the predator to miss the pounce. One god draws in the breath of life and rises; another god expires.
+ - I write every moment that is humanly possible. I write every day and every night. The only discipline I lack is the discipline is to quit.
+ - Your own family resemblances are a frustrating code, most easily read by those who know you least.
+ - That was when we smelled the rain. It was so strong it seemed like more than just a smell. When we stretched out our hands we could practically feel it rising up from the ground. I don’t know how a person could ever describe that scent.
+ - There are some who’d hardly lift a finger for kindness, but they would haul up a load of rock to dump on some soul they think’s been too lucky.
+ - Bitter words normally evaporate with the moisture of breath, after a quarrel. In order to become permanent, they require transcribers, reporters, complicit black hearts.
+ - People love to read about sins and errors, but not their own.
+ - Everyone should get dirt on his hands each day. Doctors, intellectuals. Politicians, most of all. How can we presume to uplift the life of the working man, if we don’t respect his work?
+ - Of the two hundred bones in the human body, more than a quarter are in the foot. It is a more complicated instrument than an automobile transmission, and it is treated with far less consideration.
+ - Being a novelist and being a mother have exactly coincided in my life: the call from my agent saying that I had a contract for my first novel – that was on my answering phone message when I got back from the hospital with my first child.
+ - Come to think of it, just about every tool was shaped like either a weenie or a pistol, depending on your point of view.
+ - I grew up aware of all the people I depended on and who depended on me.
+ - A person could spend most of a lifetime in retrospective terror, thinking of all the things one nearly didn’t do.
+ - It is true that I do not speak as well as I can think. But that is true of most people, as nearly as I can tell.
+ - He needs to go rub his soul against life.
+ - The older I get, the more I appreciate my rural childhood. I spent a lot of time outdoors, unsupervised, which is a blessing.
+ - Arguments could fill a marriage like water, running through everything, always, with no taste or color but lots of noise.
+ - Every minute with a child takes seven minutes off your life.
+ - Every time I step onto an airplane, I turn to the right and take a good, hard stare into the maw of the engine. I don’t know what I’m looking for. I just do it.
+ - In fact, one of the things that I really love about literary fiction is that it’s one of the few kinds of writing that doesn’t tell us what to think or what to buy or what to wear. We’re surrounded by advertising.
+ - I learned to produce whether I wanted to or not. It would be easy to say oh, I have writer’s block, oh, I have to wait for my muse. I don’t. Chain that muse to your desk and get the job done.
+ - Anybody can get worked up, if they have the intention. It’s peacefulness that is hard to come by on purpose.
+ - You know reviewers, they are the wind in their own sails.
+ - When you pick up a novel from the bed side table, you put down your own life at the same time and you become another person for the duration.
+ - Feeling that morality has nothing to do with the way you use the resources of the world is an idea that can’t persist much longer. If it does, then we won’t.
+ - I don’t look like who I am.
+ - Want is a thing that unfurls unbidden like fungus, opening large upon itself, stopless, filling the sky. But needs, from one day to the next, are few enough to fit in a bucket, with room enough left to rattle like brittle brush in a dry wind.
+ - It takes some courage to write fiction about politically controversial topics. The dread is you’ll be labeled a political writer.
+ - The daily work – that goes on, it adds up.
+ - Vengeance does not subtract any numbers from the equation of murder; it only adds them.
+ - All of the promises of politicians, generals, madmen, and crusaders that war can create peace have yet to be borne out.
+ - I can count all the ways in which being a mother has enriched my understanding of the world, of character, my sense of the future and my attachment to it. I can’t imagine what kind of writer I’d be if I didn’t have my kids.
+ - I know I have to write about the things that keep me awake at night.
+ - Eaters must understand, how we eat determines how the world is used.
+ - A careless way of sauntering across the earth and breaking open its treasures, a terrible dependency on sucking out the world’s best juices for ourselves-these may also be our enemies. The changes we dread most may contain our salvation.
+ - What we lose in our great human exodus from the land is a rooted sense, as deep and intangible as religious faith, of why we need to hold on to the wild and beautiful places that once surrounded us.
+ - To think is not always to see.
+ - It’s the one thing we never quite get over: that we contain our own future.
+ - Ah, the mysterious croak. Here today, gone tomorrow. It’s the best reason I can think of to throw open the blinds and risk belief. Right now, this minute, time to move out into the grief and glory. High tide.
+ - Because I write fiction that is based in the real world, it’s going to lead people into some of the modern dilemmas and concerns and even catastrophes that they will think about in a new way.
+ - The very least you can do in your life is to figure out what you hope for!
+ - I know people. Most have no earthly notion of the price of a snow-white conscience.
+ - Fish gotta swim, birds gotta fly, writers will go to stupefying lengths to get the infernal roar of words out of their skulls and onto paper.
+ - Last time I talked to her she didn’t sound like herself. She’s depressed. It’s awful what happens when people run out of money. They start thinking they’re no good.
+ - I never think that anything I’m writing is bluntly political in any way. I’m not going for commentary.
+ - Memory is a complicated thing, a relative to truth, but not its twin.
+ - We’re surrounded by mandates, and I believe that literature should be mandate-free. I feel very strongly about that.
+ - Parenting is something that happens mostly while you’re thinking of something else.
+ - The first steps toward stewardship are awareness, appreciation, and the selfish desire to have the things around for our kids to see. Presumably the unselfish motives will follow as we wise up.
+ - I don’t bring expectations to any of my books. I don’t tell people what to do. I want to invite them in.
+ - Nonfiction requires enormous discipline. You construct the terms of your story, and then you stick to them.
+ - If you’re writing, you’re a writer. If you’re talking about it or thinking about it, I’m not so sure. Writing is ninety-eight percent work and two percent magic.
+ - Life proceeds, it enrages. The untouched ones spend their luck without a thought, believing they deserve it.
+ - You know things are bad when a woman without any legs and who recently lost two of her own kids feels sorry for you.
+ - Nine-tenths of human law is about possession.
+ - Does a man become a revolutionary out of the belief he’s entitled to joy rather than submission?
+ - No reporter worth his buttons will let the facts intrude on a good story.
+ - It’s a funny thing: people often ask how I discipline myself to write. I can’t begin to understand the question. For me, the discipline is turning off the computer and leaving my desk to do something else.
+ - Food is the rare moral arena in which the ethical choice is generally the one more likely to make you groan with pleasure.
+ - When people are frightened about going hungry and paying their mortgages, a scarcity model begins to prevail; they fear someone else will get their piece of the pie.
+ - In the long run, most of us spend about fifteen minutes total in the entanglements of passion, and the rest of our days looking back on it, humming the tune.
+ - I suppose that is my central obsession. What we owe to society, what we owe to ourselves.
+ - Literature is one of the few kinds of writing in the world that does not tell you what to buy, want, see, be, or believe. It’s more like conversation, raising new questions and moving you to answer them for yourself.
+ - Our plans are small and somewhat absurd.
+ - I don’t understand how any good art could fail to be political.
+ - There is something in us that loves certain disasters and the fever of this moment and surrendering to that.
+ - I did it to win love, and to prove myself capable. Not to move mountains. In my opinions, mountains don’t move. They only look changed when you look down on them from great height.
+ - I rarely think of poetry as something I make happen; it is more accurate to say that it happens to me. Like a summer storm, a house afire, or the coincidence of both on the same day.
+ - People ask without wanting to know.
+ - It is completely usual for me to get up in the morning, take a look around, and laugh out loud.
+ - But children robbed of love will dwell on magic.
+ - The longer you live, the more likely you are to have something to say.
+
+326 quotes

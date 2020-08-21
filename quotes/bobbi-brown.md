@@ -1,0 +1,35 @@
+ - I believe that all women are pretty without makeup- but with the right makeup can be pretty powerful.
+ - Beauty isn’t about looking perfect. It’s about celebrating your individuality.
+ - The secret to beauty is simple – be who you are.
+ - Confidence is everything, but a little makeup can’t hurt.
+ - Never ask for permission, beg for forgiveness.
+ - Defined brows instantly make you look more polished.
+ - Personalized beauty is about each woman being able to create her own makeup routine that complements her coloring and style.
+ - On wedding day you should look like yourself at your most beautiful.
+ - Makeup is a way for a woman to look and feel like herself, only prettier and more confident.
+ - How I feel about myself is more important than how I look. Feeling confident, being comfortable in your skin – that’s what really makes you beautiful.
+ - The right tools are just as important as the makeup itself.
+ - If I had to teach someone just one thing about lip color it would be this: Find a lipstick that looks good on your face when you are wearing absolutely no makeup.
+ - In a perfect world, mothers would remind their daughters each morning of how beautiful their strong noses are, or how special their curly red hair is.
+ - With the right foundation, any woman can look like she naturally has even, perfect skin.
+ - I love old funky things. Color just makes me happy, and things all lined up.
+ - Beauty is the result of realizing what is special about you and not focusing on the things you don’t like.
+ - Every season has its lipstick trend, and just because your perfect color is a pinky beige, that doesnt mean you cant wear deep burgundy.
+ - Beauty is a life-long evolution.
+ - The most common mistakes women make when applying makeup are not applying it in the proper light and not using their hands as blending tools.
+ - After I brush on my moisturizer, I’ll dip the same brush into foundation and mix it with the lotion to make tinted moisturizer.
+ - A year after I started college, I had no clue what I wanted to do. My mother said, forget everything else-if it were your birthday today, what would you do? I thought, I would play with makeup at the department store. So she said, do that!
+ - The best anti-aging product is a great, natural-looking hair color, especially when youre graying.
+ - Knowing what you can do at any given time to look and feel better is pretty powerful.
+ - Im not really Type A, but A minus.
+ - The best thing about being 55 is that I know enough now to know what I want and what I don’t want-and what I want is to have fun.
+ - I love a bright lip with a neutral eye. Its an easy, wearable look that gives brightness to your face without looking over-the-top.
+ - Whether you are a stay-at-home mom, or on the red carpet, or in Afghanistan, the better you feel, the better you do your job.
+ - Pretty Powerful symbolises my belief that all women are pretty, and with the right tools, are empowered to a higher level of pretty – it’s about being confident and about being who you are.
+ - When I interview someone, I know in the first two minutes if I like them or not. I find that if its easy to talk to someone and I see an openness and honesty and integrity, then I usually hire them.
+ - We makeup artists are a unique bunch of people; we don’t have the classic brain, the classic training, but we’re creative, so we figure it out.
+ - Concealers are like undergarments. They make you feel taller and thinner.
+ - Living Beauty is about creating a new ideal, a new reality, and a new aspiration for yourself. It’s a guide filled with knowledge, secrets, and solutions to make you look and feel great.
+ - I look at a woman and I don’t see what’s wrong with her. I see what’s right.
+
+33 quotes

@@ -1,0 +1,502 @@
+ - Integrity is doing the right thing, even when no one is watching.
+ - You can’t go back and change the beginning, but you can start where you are and change the ending.
+ - Hardship often prepares an ordinary person for an extraordinary destiny.
+ - There are better things ahead than any we leave behind.
+ - We are what we believe we are.
+ - True humility is not thinking less of yourself; it is thinking of yourself less.
+ - If I find in myself desires which nothing in this world can satisfy, the only logical explanation is that I was made for another world.
+ - Don’t let your happiness depend on something you may lose.
+ - I believe in Christianity as I believe that the sun has risen: not only because I see it, but because by it I see everything else.
+ - When the whole world is running towards a cliff, he who is running in the opposite direction appears to have lost his mind.
+ - Isn’t it funny how day by day nothing changes, but when you look back, everything is different...
+ - The Christian does not think God will love us because we are good, but that God will make us good because He loves us.
+ - Nothing you have not given away will ever really be yours.
+ - You can make anything by writing.
+ - If we find ourselves with a desire that nothing in this world can satisfy, the most probable explanation is that we were made for another world.
+ - Christianity, if false, is of no importance, and if true, of infinite importance, the only thing it cannot be is moderately important.
+ - Friendship is born at that moment when one person says to another: What! You too? I thought I was the only one.
+ - I can't imagine a man really enjoying a book and reading it only once.
+ - Some day you will be old enough to start reading fairy tales again.
+ - All mortals tend to turn into the thing they are pretending to be.
+ - Courage, dear heart.
+ - God doesn’t want something from us. He simply wants us.
+ - To be a Christian means to forgive the inexcusable because God has forgiven the inexcusable in you.
+ - I pray because I can’t help myself. I pray because I’m helpless. It doesn’t change God – it changes me.
+ - Getting over a painful experience is much like crossing monkey bars. You have to let go at some point in order to move forward.
+ - For you will certainly carry out God’s purpose, however you act, but it makes a difference to you whether you serve like Judas or like John.
+ - The fact that our heart yearns for something Earth can’t supply is proof that Heaven must be our home.
+ - When I have learned to love God better than my earthly dearest, I shall love my earthly dearest better than I do now.
+ - If one could run without getting tired I don’t think one would often want to do anything else.
+ - No great wisdom can be reached without sacrifice.
+ - Education without values, as useful as it is, seems rather to make man a more clever devil.
+ - My argument against God was that the universe seemed so cruel and unjust. But how had I got this idea of just and unjust? A man does not call a line crooked unless he has some idea of a straight line. What was I comparing this universe with when I called it unjust?
+ - We are not necessarily doubting that God will do the best for us; we are wondering how painful the best will turn out to be.
+ - It is not your business to succeed, but to do right. When you have done so the rest lies with god.
+ - Life with God is not immunity from difficulties, but peace in difficulties.
+ - Put first things first and second things are thrown in. Put second things first and you lose both first and second things.
+ - We can ignore even pleasure. But pain insists upon being attended to. God whispers to us in our pleasures, speaks in our conscience, but shouts in our pains: it is his megaphone to rouse a deaf world.
+ - Spiteful words can hurt your feelings but silence breaks your heart.
+ - You can never get a cup of tea large enough or a book long enough to suit me.
+ - I didn’t go to religion to make me happy. I always knew a bottle of Port would do that. If you want a religion to make you feel really comfortable, I certainly don’t recommend Christianity.
+ - Do not waste time bothering whether you ‘love’ your neighbor; act as if you did. As soon as we do this we find one of the great secrets. When you are behaving as if you loved someone, you will presently come to love him.
+ - I think that if God forgives us we must forgive ourselves. Otherwise, it is almost like setting up ourselves as a higher tribunal than Him.
+ - Love is not affectionate feeling, but a steady wish for the loved person’s ultimate good as far as it can be obtained.
+ - Feelings, and feelings, and feelings. Let me try thinking instead.
+ - We meet no ordinary people in our lives.
+ - If we let ourselves, we shall always be waiting for some distraction or other to end before we can really get down to our work. The only people who achieve much are those who want knowledge so badly that they seek it while the conditions are still unfavorable. Favorable conditions never come.
+ - And this is the marvel of marvels; that he called me Beloved.
+ - You cannot love a fellow creature fully till you love God.
+ - You can’t know, you can only believe – or not.
+ - The future is something which everyone reaches at the rate of 60 minutes an hour, whatever he does, whoever he is.
+ - What you see and what you hear depends a great deal on where you are standing. It also depends on what sort of person you are.
+ - There is no neutral ground in the universe. Every square inch, every split second is claimed by God, and counterclaimed by Satan.
+ - He who has God and everything else has no more than he who has God only.
+ - You are never too old to set another goal or to dream a new dream.
+ - The great thing, if one can, is to stop regarding all the unpleasant things as interruptions of one’s ‘own,’ or ‘real’ life. The truth is of course that what one calls the interruptions are precisely one’s real life – the life God is sending one day by day.
+ - I was not born to be free – I was born to adore and obey.
+ - The task of the modern educator is not to cut down jungles, but to irrigate deserts.
+ - What seem our worst prayers may really be, in God’s eyes, our best. Those, I mean, which are least supported by devotional feeling. For these may come from a deeper level than feeling. God sometimes seems to speak to us most intimately when he catches us, as it were, off our guard.
+ - Surely what a man does when he is taken off his guard is the best evidence for what sort of man he is.
+ - Once a king or queen of Narnia, always a king or queen of Narnia.
+ - Aim at heaven and you will get earth thrown in. Aim at earth and you get neither.
+ - The love of knowledge is a kind of madness.
+ - And out of that hopeless attempt has come nearly all that we call human history – money, poverty, ambition, war, prostitution, classes, empires, slavery – the long terrible story of man trying to find something other than God which will make him happy.
+ - You never know how much you really believe anything until its truth or falsehood becomes a matter of life and death to you.
+ - To love at all is to be vulnerable.
+ - Things never happen the same way twice.
+ - For the Present is the point at which time touches eternity.
+ - Jesus was either a Liar, a Lunatic, or Lord.
+ - If the whole universe has no meaning, we should never have found out that it has no meaning: just as, if there were no light in the universe and therefore no creatures with eyes, we should never know it was dark. Dark would be without meaning.
+ - A children’s story that can only be enjoyed by children is not a good children’s story in the slightest.
+ - It is Christ Himself, not the Bible, who is the true word of God. The Bible, read in the right spirit and with the guidance of good teachers, will bring us to Him. We must not use the Bible as a sort of encyclopedia out of which texts can be taken for use as weapons.
+ - Failures are finger posts on the road to achievement.
+ - It may be hard for an egg to turn into a bird: it would be a jolly sight harder for a bird to learn to fly while remaining an egg. We are like eggs at present. And you cannot go on indefinitely being just an ordinary, decent egg. We must be hatched or go bad.
+ - Do not be deceived, Wormwood. Our cause is never more in danger than when a human, no longer desiring, but still intending, to do our Enemy’s will, looks round upon a universe from which every trace of Him seems to have vanished, and asks why he has been forsaken, and still obeys.
+ - Some people feel guilty about their anxieties and regard them as a defect of faith. I don’t agree at all. They are afflictions, not sins. Like all afflictions, they are, if we can so take them, our share in the Passion of Christ.
+ - A woman’s heart should be so close to God that a man should have to chase Him to find her.
+ - What draws people to be friends is that they see the same truth. They share it.
+ - In God there is no hunger that needs to be filled, only plenteousness that desires to give.
+ - There is a kind of happiness and wonder that makes you serious. It is too good to waste on jokes.
+ - You have not chosen one another, but I have chosen you for one another.
+ - When I was ten, I read fairy tales in secret and would have been ashamed if I had been found doing so. Now that I am fifty, I read them openly. When I became a man I put away childish things, including the fear of childishness and the desire to be very grown up.
+ - I suggest to you that it is because God loves us that he gives us the gift of suffering. Pain is God’s megaphone to rouse a deaf world. You see, we are like blocks of stone out of which the Sculptor carves the forms of men. The blows of his chisel, which hurt us so much are what make us perfect.
+ - Suspicion often creates what it suspects.
+ - Nothing is yet in its true form.
+ - When things go wrong, you’ll find they usually go on getting worse for some time; but when things once start going right they often go on getting better and better.
+ - In God you come up against something which is in every respect immeasurably superior to yourself. Unless you know God as that-and, therefore, know yourself as nothing in comparison-you do not know God at all.
+ - We were promised sufferings. They were part of the program. We were even told, ‘Blessed are they that mourn,’ and I accept it. I’ve got nothing that I hadn’t bargained for. Of course it is different when the thing happens to oneself, not to others, and in reality, not imagination.
+ - Gratitude looks to the Past and love to the Present; fear, avarice, lust, and ambition look ahead.
+ - The homemaker has the ultimate career. All other careers exist for one purpose only – and that is to support the ultimate career.
+ - Experience: that most brutal of teachers. But you learn, my God do you learn.
+ - Prostitutes are in no danger of finding their present life so satisfactory that they cannot turn to God: the proud, the avaricious, the self-righteous, are in that danger.
+ - The death of a beloved is an amputation.
+ - Better to be miserable with her than happy without her. Let our hearts break provided they break together. If the voice within us does not say this it is not the voice of Eros.
+ - No one ever told me that grief felt so like fear.
+ - Now the trouble about trying to make yourself stupider than you really are is that you very often succeed.
+ - Don’t shine so that others can see you. Shine so that through you, others can see HIM.
+ - If a man thinks he is not conceited, he is very conceited indeed.
+ - Eating and reading are two pleasures that combine admirably.
+ - No book is really worth reading at the age of ten which is not equally – and often far more – worth reading at the age of fifty and beyond.
+ - Oh, Adam’s sons, how cleverly you defend yourselves against all that might do you good!
+ - You don’t have a soul. You are a Soul. You have a body.
+ - A young man who wishes to remain a sound atheist cannot be too careful of his reading.
+ - Friendship is the instrument by which God reveals to each of us the beauties of others.
+ - Relying on God has to begin all over again every day as if nothing had yet been done.
+ - Friendship is unnecessary, like philosophy, like art. It has no survival value; rather it is one of those things which give value to survival.
+ - Love is never wasted, for its value does not rest upon reciprocity.
+ - We all want progress, but if you’re on the wrong road, progress means doing an about-turn and walking back to the right road; in that case, the man who turns back soonest is the most progressive.
+ - People who bore one another should meet seldom; people who interest one another, often.
+ - I never exactly made a book. It’s rather like taking dictation. I was given things to say.
+ - I desired dragons with a profound desire.
+ - There was a boy called Eustace Clarence Scrubb, and he almost deserved it.
+ - If you look for truth, you may find comfort in the end; if you look for comfort you will not get either comfort or truth only soft soap and wishful thinking to begin, and in the end, despair.
+ - Some journeys take us far from home. Some adventures lead us to our destiny.
+ - I know now, Lord, why you utter no answer. You are yourself the answer. Before your face questions die away. What other answer would suffice?
+ - I’m on Aslan’s side even if there isn’t any Aslan to lead it. I’m going to live as like a Narnian as I can even if there isn’t any Narnia.
+ - The pain I feel now is the happiness I had before. That’s the deal.
+ - Don’t judge a man by where he is, because you don’t know how far he has come.
+ - Courage is not simply one of the virtues but the form of every virtue at the testing point, which means at the point of highest reality.
+ - Onward and Upward! To Narnia and the North!
+ - A man can no more diminish God’s glory by refusing to worship Him than a lunatic can put out the sun by scribbling the word ‘darkness’ on the walls of his cell.
+ - Make your choice, adventurous Stranger, Strike the bell and bide the danger, Or wonder, till it drives you mad, What would have followed if you had.
+ - Children are not a distraction from more important work. They are the most important work.
+ - Look for yourself, and you will find in the long run only hatred, loneliness, despair, rage, ruin, and decay. But look for Christ and you will find Him, and with Him everything else thrown in.
+ - But courage, child: we are all between the paws of the true Aslan.
+ - If a thing is free to be good it is also free to be bad. And free will is what has made evil possible. Why, then, did God give them free will? Because free will, though it makes evil possible, is also the only thing that makes possible any love or goodness or joy worth having.
+ - Remember that all worlds draw to an end and that noble death is a treasure which no one is too poor to buy.
+ - Wrong will be right, when Aslan comes in sight, At the sound of his roar, sorrows will be no more, When he bares his teeth, winter meets its death, And when he shakes his mane, we shall have spring again.
+ - Freedom always comes with a price.
+ - Pooh! Grown-ups are always thinking of uninteresting explanations.
+ - Life is too deep for words, so don’t try to describe it, just live it.
+ - Why should your heart not dance?
+ - Always winter but never Christmas.
+ - Pain is God’s megaphone to rouse a deaf world.
+ - The Scotch catechism says that man’s chief end is ‘to glorify God and enjoy Him forever.’ But we shall then know that these are the same thing. Fully to enjoy is to glorify. In commanding us to glorify Him, God is inviting us to enjoy Him.
+ - God cannot give us a happiness and peace apart from Himself, because it is not there. There is no such thing.
+ - But no one except Lucy knew that as it circled the mast it had whispered to her, “Courage, dear heart,” and the voice, she felt sure, was Aslan’s, and with the voice a delicious smell breathed in her face.
+ - Obedience is the key that opens every door.
+ - No soul that seriously and constantly desires joy will ever miss it. Those who seek find. To those who knock it is opened.
+ - We may think God wants actions of a certain kind, but God wants people of a certain kind.
+ - Good and evil increase at compound interest. That’s why the little decisions we make every day are of infinite importance.
+ - Evil comes from the ABUSE of free will.
+ - Clearly one must read every good book at least once every ten years.
+ - The term is over: the holidays have begun. The dream is ended: this is the morning.
+ - If you love deeply, you’re going to get hurt badly. But it’s still worth it.
+ - If you never take risks, you’ll never accomplish great things. Everybody dies, but not everyone has lived.
+ - The great thing to remember is that though our feelings come and go God’s love for us does not.
+ - If you read history you will find that the Christians who did most for the present world were precisely those who thought most of the next. It is since Christians have largely ceased to think of the other world that they have become so ineffective in this.
+ - A proud man is always looking down on things and people; and, of course, as long as you are looking down, you cannot see something that is above you.
+ - We make men without chests and expect from them virtue and enterprise. We laugh at honor and are shocked to find traitors in our midst.
+ - I am sure that God keeps no one waiting unless he sees that it is good for him to wait.
+ - No one ever told me that grief felt so like fear. I am not afraid, but the sensation is like being afraid. The same fluttering in the stomach, the same restlessness, the yawning. I keep on swallowing.
+ - Only a real risk tests the reality of a belief.
+ - All their life in this world and all their adventures had only been the cover and the title page: now at last they were beginning Chapter One of the Great Story which no one on earth has read: which goes on for ever: in which every chapter is better than the one before.
+ - Enemy-occupied territory – that is what this world is. Christianity is the story of how the rightful king has landed, you might say landed in disguise, and is calling us to take part in a great campaign of sabotage.
+ - Everything that is not eternal is worthless in eternity.
+ - Love is unselfishly choosing for another’s highest good.
+ - Why love, if losing hurts so much? I have no answers anymore: only the life I have lived. Twice in that life I’ve been given the choice: as a boy and as a man. The boy chose safety, the man chooses suffering. The pain now is part of the happiness then. That’s the deal.
+ - God allows us to experience the low points of life in order to teach us lessons that we could learn in no other way.
+ - Miracles are a retelling in small letters of the very same story which is written across the whole world in letters too large for some of us to see.
+ - You Too? I thought I was the only one.
+ - Forgiveness does not mean excusing.
+ - God, who foresaw your tribulation, has specially armed you to go through it, not without pain but without stain.
+ - Aslan: You doubt your value. Don’t run from who you are.
+ - You may forget that you are at every moment totally dependent on God.
+ - Our passions are not too strong, they are too weak. We are far too easily pleased.
+ - It is a serious thing to live in a society of possible Gods and Goddesses. To remember that the dullest, and most uninteresting person you can talk to may one day be a creature which, if you saw it now, you would be strongly tempted to worship.
+ - A man does not call a line crooked unless he has some idea of a straight line.
+ - I want God, not my idea of God.
+ - Aslan’s instructions always work; there are no exceptions.
+ - The most dangerous ideas in a society are not the ones being argued, but the ones that are assumed.
+ - Believe in God like you believe in the sunrise. Not because you can see it, but because you can see all it touches.
+ - Regarding the debate about faith and works: It’s like asking which blade in a pair of scissors is most important.
+ - We live, in fact, in a world starved for solitude, silence, and private: and therefore starved for meditation and true friendship.
+ - Men became scientific because they expected Law in Nature, and they expected Law in Nature because they believed in a Law Giver.
+ - The longest way round is the shortest way home.
+ - For Narnia and for Aslan!
+ - Into the void of silence, into the empty space of nothing, the joy of life is unfurled.
+ - If you think of this world as a place simply intended for our happiness, you find it quite intolerable: think of it as a place for training and correction and it’s not so bad.
+ - There are two kinds of people: those who say to God, ‘Thy will be done,’ and those to whom God says, ‘All right, then, have it your way.’
+ - Further up and further in!
+ - Faith, in the sense in which I am here using the word, is the art of holding on to things your reason has once accepted, in spite of your changing moods.
+ - When Christ died, He died for you individually just as much as if you had been the only person in the world.
+ - He died not for men, but for each man. If each man had been the only man made, He would have done no less.
+ - Give up yourself, and you will find your real self. Lose your life and you will save it.
+ - Mere change is not growth. Growth is the synthesis of change and continuity, and where there is no continuity there is no growth.
+ - We all agree that forgiveness is a beautiful idea until we have to practice it.
+ - Something deep in the human heart breaks at the thought of a life of mediocrity.
+ - I gave in, and admitted that God was God.
+ - I willingly believe that the damned are, in one sense, successful, rebels to the end; that the doors of hell are locked on the inside.
+ - Bereavement is a universal and integral part of our experience of love.
+ - The thing is to rely on God. The time will come when you will regard all this misery as a small price to pay for having been brought to that dependence. Meanwhile, the trouble is that relying on God has to begin all over again every day as if nothing has yet been done.
+ - Where men are forbidden to honour a king, they honor millionaires, athletes, or film stars instead; even famous prostitutes or gangsters. For spiritual nature, like bodily nature, will be served; deny it food and it will gobble poison.
+ - Christ says, ‘Give me all. I don’t want so much of your time and so much of your money and so much of your work: I want You.’
+ - Do not cite the Deep Magic to me, Witch. I was there when it was written.
+ - Hell begins with a grumbling mood, always complaining, always blaming others.
+ - A myth is a lie that conveys a truth.
+ - If you want to get warm you must stand near the fire: if you want to be wet you must get into the water. If you want joy, power, peace, eternal life, you must get close to, or even into, the thing that has them. They are not a sort of prize which God could, if He chose, just hand out to anyone.
+ - Will you come with me to the mountains? It will hurt at first, until your feet are hardened. Reality is harsh to the feet of shadows. But will you come?
+ - There are no ordinary people. You have never talked to a mere mortal. Nations, cultures, arts, civilizations – these are mortal, and their life is to ours as the life of a gnat.
+ - But in reading great literature I become a thousand men and yet remain myself. Like the night sky in the Greek poem, I see with a myriad eyes, but it is still I who see. Here, as in worship, in love, in moral action, and in knowing, I transcend myself; and am never more myself than when I do.
+ - If you don’t listen to theology, that won’t mean you have no ideas about God, it will mean you have a lot of wrong ones.
+ - We may ignore, but we can nowhere evade the presence of God. The world is crowded with Him. He walks everywhere incognito.
+ - First, I do not sit down at my desk to put into verse something that is already clear in my mind. If it were clear in my mind, I should have no incentive or need to write about it. We do not write in order to be understood; we write in order to understand.
+ - We must lay before him what is in us; not what ought to be in us.
+ - It is safe to tell the pure in heart that they shall see God, for only the pure in heart want to.
+ - Our Father refreshes us on the journey with some pleasant inns, but will not encourage us to mistake them for home.
+ - If education is beaten by training, civilization dies.
+ - Wouldn’t it be dreadful if some day in our own world, at home, men start going wild inside, like the animals here, and still look like men, so that you’d never know which were which.
+ - Affection is responsible for nine-tenths of whatever solid and durable happiness there is in our natural lives.
+ - Good people know about both good and evil: bad people do not know about either.
+ - The birth of Christ is the central event in the history of the earth – the very thing the whole story has been about.
+ - On the back of Satan’s neck is a nail scarred footprint.
+ - It is when we notice the dirt that God is most present in us; it is the very sign of His presence.
+ - The next best thing to being wise oneself is to live in a circle of those who are.
+ - The great thing is to be found at one’s post as a child of God, living each day as though it were our last, but planning as though the world might last a hundred years.
+ - It costs God nothing, so far as we know, to create nice things: but to convert rebellious wills cost Him crucifixion.
+ - Do not dare not to dare.
+ - True humility is more like self-forgetfulness than false modesty.
+ - I have learned now that while those who speak about one’s miseries usually hurt, those who keep silence hurt more.
+ - Her absence is like the sky, spread over everything.
+ - At the end of things, The Blessed will say, “We have never lived anywhere except in Heaven.” And the lost will say, “We were always in Hell.” And both will speak truly.
+ - Gratitude exclaims, very properly, ‘How good of God to give me this.’
+ - I sometimes wonder whether all pleasures are not substitutes for joy.
+ - Do not waste time bothering whether you “love” your neighbor; act as if you did.
+ - For most of us the prayer in Gethsemane is the only model. Removing mountains can wait.
+ - Virtue – even attempted virtue – brings light; indulgence brings fog.
+ - Readers are advised to remember the devil is a liar.
+ - Imagine yourself as a living house.
+ - The Future is, of all things, the thing least like eternity. It is the most temporal part of time – for the Past is frozen and no longer flows, and the Present is all lit up with eternal rays.
+ - In Science we have been reading only the notes to a poem; in Christianity we find the poem itself.
+ - To every soul, God will look like its first love because He IS its first love. Your place in heaven will seem to be made for you and you alone, because you were made for it – made for it stitch by stitch as a glove is made for a hand.
+ - Lucy woke out of the deepest sleep you can imagine, with the feeling that the voice she liked best in the world had been calling her name.
+ - Christian theology can fit in science, art, morality, and the sub-Christian religious. The scientific point of view cannot fit any of these things, not even science itself.
+ - Autumn is really the best of the seasons.
+ - The doors of hell are locked from the inside!
+ - Christ, who said to the disciples, ‘You have not chosen me, but I have chosen you,’ can truly say to every group of Christian friends, ‘You have not chosen one another but I have chosen you for one another.’
+ - Whenever you are fed up with life, start writing: ink is the great cure for all human ills, as I have found out long ago.
+ - The true Christian’s nostril is to be continually attentive to the inner cesspool.
+ - Each day we are becoming a creature of splendid glory or one of unthinkable horror.
+ - The prayer preceding all prayers is ‘May it be the real I who speaks. May it be the real Thou that I speak to.’
+ - You can’t go against the grain of the universe and not expect to get splinters.
+ - Once in our world, a Stable had something in it that was bigger than our whole world.
+ - Anger is the fluid love bleeds when cut.
+ - One of the dangers of having a lot of money is that you may be quite satisfied with the kinds of happiness money can give and so fail to realize your need for God. If everything seems to come simply by signing checks, you may forget that you are at every moment totally dependent on God.
+ - Next to the Blessed Sacrament itself, your neighbor is the holiest object presented to your senses.
+ - Until you have given up yourself to Him, you will not have a real self.
+ - Every uncorrected error and unrepented sin is, in its own right, a fountain of fresh error and fresh sin flowing on to the end of time.
+ - God became man to turn creatures into sons: not simply to produce better men of the old kind but to produce a new kind of man. It is not like teaching a horse to jump better and better but like turning a horse into a winged creature.
+ - Eros will have naked bodies; Friendship naked personalities.
+ - God whispers in our pleasures, but shouts in our pain.
+ - This world is a great sculptor’s shop. We are the statues and there’s a rumor going around the shop that some of us are someday going to come to life.
+ - Till that word can be dug out of us, why should they hear the babble that we think we mean? How can they meet us face to face till we have faces?
+ - In your life you meet people. Some you never think about again. Some, you wonder what happened to them. There are some that you wonder if they ever think about you. And then there are some that you wish you never have to think about again. But you do.
+ - Love as distinct from “being in love” is not merely a feeling. It is a deep unity, maintained by the will and deliberately strengthened by habit...
+ - God is no fonder of intellectual slackers than He is of any other slacker.
+ - Heaven, once attained, will work backwards and turn even agony into a glory.
+ - But the great thing to remember is that, though our feelings come and go, His love for us does not. It is not wearied by our sins, or our indifference; and, therefore, it is quite relentless in its determination that we shall be cured of those sins, at whatever cost to us, at whatever cost to Him.
+ - According to Christian teachers, the essential vice, the utmost evil, is Pride.
+ - How monotonously alike all the great tyrants and conquerors have been: how gloriously different are the saints.
+ - Child, to say the very thing you really mean, the whole of it, nothing more or less or other than what you really mean; that’s the whole art and joy of words.
+ - The truth is, of course, that what one regards as interruptions are precisely one’s life.
+ - Prosperity knits a man to the world. He feels that he is finding his place in it, while really it is finding its place in him.
+ - Love is the great conqueror of lust.
+ - I am only trying to call attention to a fact; the fact that this year, of this month, or, more likely, this very day, we have failed to practice ourselves the kind of behaviour we expect from other people.
+ - It is easy to acknowledge, but almost impossible to realize for long, that we are mirrors whose brightness, if we are bright, is wholly derived from the sun that shines upon us.
+ - If we only have the will to walk, then God is pleased with our stumbles.
+ - Whatever you do, He will make good of it. But not the good He had prepared for you if you had obeyed him.
+ - I sometimes pray not for self-knowledge in general but for just so much self knowledge at the moment as I can bear and use at the moment; the little daily dose.
+ - Why love if losing hurts so much? We love to know that we are not alone.
+ - If only this toothache would go away, I could write another chapter on the problem of pain.
+ - God loves us NOT because we’re lovable, because He is love. Not because He needs to receive, because He delights to give.
+ - When we lose one blessing, another is often most unexpectedly given in its place.
+ - In the moral sphere, every act of justice or charity involves putting ourselves in the other person’s place and thus transcending our own competitive particularity.
+ - Love, having become a god, becomes a demon.
+ - Extraordinary things only happen to extraordinary people. Maybe it’s a sign that you’ve got an extraordinary destiny – something greater than you could’ve imagined.
+ - Obedience is the road to freedom, humility the road to pleasure, unity the road to personality.
+ - To get even near humility, even for a moment, is like a drink of cold water to a man in a desert.
+ - What does not satisfy when we find it, was not the thing we were desiring.
+ - In such a fearful world, we need a fearless church.
+ - With my mother’s death all settled happiness, all that was tranquil and reliable, disappeared from my life. There was to be much fun, many pleasures, many stabs of Joy; but no more of the old security. It was sea and islands now; the great continent had sunk like Atlantis.
+ - This was bad grammar of course, but that is how beavers talk when they are excited; I mean, in Narnia – in our world they usually don’t talk at all. – The Lion, The Witch, and the Wardrobe.
+ - The full acting out of the self’s surrender to God therefore demands pain: this action, to be perfect, must be done from the pure will to obey, in the absence, or in the teeth, of inclination.
+ - Love is something more stern and splendid than mere kindness.
+ - History is a story written by the finger of God.
+ - There is no other day. All days are present now. This moment contains all moments.
+ - The hardness of God is kinder than the softness of men, and His compulsion is our liberation.
+ - Do not by any means destroy yourself, for if you live you may yet have good fortune, but all the dead are dead like.
+ - You can’t go on “seeing through” things forever. The whole point of seeing through something is to see something through it. To “see through” all things is the same as not to see.
+ - Now Eros makes a man really want, not a woman, but one particular woman. In some mysterious but quite indisputable fashion the lover desires the Beloved herself, not the pleasure she can give.
+ - A glimpse is not a vision. But to a man on a mountain road by night, a glimpse of the next three feet of road may matter more than a vision of the horizon.
+ - The Christian “doctrines” are translations into our concepts and ideas of that which God has already expressed in language more adequate, namely the actual incarnation, crucifixion, and resurrection.
+ - Crying is all right in its way while it lasts. But you have to stop sooner or later, and then you still have to decide what to do.
+ - Pride gets no pleasure out of having something, only out of having more of it than the next man.
+ - Lust is a poor, weak, whimpering, whispering thing compared with that richness and energy of desire which will arise when lust has been killed.
+ - When we Christians behave badly, or fail to behave well, we are making Christianity unbelievable to the outside world.
+ - Unsatisfied desire is in itself more desirable than any other satisfaction.
+ - I pray because I can’t help myself...
+ - Term, holidays, term, holidays, till we leave school, and then work, work, work till we die.
+ - Lucy went first, biting her lip and trying not to say all the things she thought of saying to Susan. But she forgot them when she fixed her eyes on Aslan.
+ - If conversion to Christianity makes no improvement in a man’s outward actions – if he continues to be just a snobbish or spiteful or envious or ambitious as he was before – then I think we must suspect that his ‘conversion’ was largely imaginary.
+ - When first things are put first, second things are not suppressed but increased.
+ - Shut your mouth; open your eyes and ears.
+ - Every disability conceals a vocation, if only we can find it, which will ’turn the necessity to glorious gain.
+ - Man, even now, can do wonders to animals: my cat and dog live together in my house and seem to like it. It may have been one of man’s functions to restore peace to the animal world, and if he had not joined the enemy he might have succeeded in doing so to an extent now hardly imaginable.
+ - With the possible exception of the equator, everything begins somewhere.
+ - But all night, Aslan and the Moon gazed upon each other with joyful and unblinking eyes.
+ - Prayer does not change God; it changes me.
+ - The terrible thing, the almost impossible thing, is the hand over your whole self – all your wishes and precautions – to Christ.
+ - Look for Christ and you will find Him, and with Him everything else thrown in.
+ - It would seem that Our Lord finds our desires not too strong, but too weak.
+ - In your world, I have another name. You should know me by it.
+ - The only things we can keep are the things we freely give to God. What we try to keep for ourselves is just what we are sure to lose.
+ - All shall be done, but it may be harder than you think.
+ - There is nothing like suspense and anxiety for barricading a human’s mind against the Enemy. He wants men to be concerned with what they do; our business is to keep them thinking about what will happen to them.
+ - When we are wholly His we will be more ourselves than ever.
+ - Joy is never in our power and pleasure often is.
+ - Prayer in the sense of petition, asking for things, is a small part of it; confession and penitence are its threshold, adoration its sanctuary, the presence and vision and enjoyment of God its bread and wine.
+ - Write about what really interests you, whether it is real things or imaginary things, and nothing else.
+ - The man in Christ rose again, not only the God.
+ - It’s not a question of God ‘sending’ us to Hell. In each of us there is something growing up which will of itself be Hell unless it is nipped in the bud.
+ - Think of me as a fellow patient in the same hospital who, having been admitted a little earlier could give some advice.
+ - The lost enjoy forever the horrible freedom they have demanded.
+ - A pipe gives a wise man time to think and a fool something to stick in his mouth.
+ - It’s like the sound of a chuckle in the darkness. The sense that some shattering and disarming simplicity is the real answer.
+ - Every sin is the distortion of an energy breathed into us – an energy which, if not thus distorted, would have blossomed into one of those holy acts whereof ‘God did it’ and ‘I did it’ are both true descriptions.
+ - The greatest evils in the world will not be carried out by men with guns, but by men in suits sitting behind desks.
+ - Very often the only way to get a quality in reality is to start behaving as if you had it already.
+ - The smallest good act today is the capture of a strategic point from which, a few months later, you may be able to go on to victories you never dreamed of.
+ - In worship, God imparts himself to us.
+ - A little lie is like a little pregnancy it doesn’t take long before everyone knows.
+ - We want, in fact, not so much a father in heaven as a grandfather in heaven: a senile benevolence who, as they say, “liked to see young people enjoying themselves” and whose plan for the universe was simply that it might be truly said at the end of each day, “a good time was had by all.”
+ - Autumn is really the best of the seasons; and I’m not sure that old age isn’t the best part of life.
+ - Literature adds to reality, it does not simply describe it. It enriches the necessary competencies that daily life requires and provides; and in this respect, it irrigates the deserts that our lives have already become.
+ - We shall draw nearer to God, not by trying to avoid the sufferings inherent in all loves, but by accepting them and offering them to Him; throwing away all defensive armour. If our hearts need to be broken, and if He chooses this as the way in which they should break, so be it.
+ - Never, never pin your whole faith on any human being: not if he is the best and wisest in the whole world. There are lots of nice things you can do with sand; but do not try building a house on it.
+ - They Open A Door And Enter A World.
+ - You do not fail in obedience through lack of love, but you have lost love because you never attempted obedience.
+ - Many things, such as loving, going to sleep, or behaving unaffectedly – are done worst when we try hardest to do them.
+ - One road leads home and a thousand roads lead into the wilderness.
+ - The heart never takes the place of the head: but it can, and should, obey it.
+ - The very nature of Joy makes nonsense of our common distinction between having and wanting.
+ - You never know what you can do until you try, and very few try unless they have to.
+ - People talk as if grief were just a feeling – as if it weren’t the continually renewed shock of setting out again and again on familiar roads and being brought up short by the grim frontier post that now blocks them.
+ - Nature never taught me that there exists a God of glory and of infinite majesty. I had to learn that in other ways. But nature gave the word glory a meaning for me. I still do not know where else I could have found one.
+ - A sign of a culture that has lost its faith – Moral collapse follows upon spiritual collapse.
+ - Of all bad men religious bad men are the worst.
+ - A cold, self-righteous prig who goes regularly to church may be far nearer to Hell than a prostitute.
+ - And men said that the blood of the stars flowed in her veins.
+ - Of all tyrannies a tyranny sincerely exercised for the good of its victims may be the most oppressive.
+ - Our prayers for others flow more easily than those for ourselves. This shows we are made to live by charity.
+ - God is not merely good, but goodness; goodness is not merely divine, but God.
+ - Friendship is the greatest of worldly goods. Certainly to me it is the chief happiness of life.
+ - A man may have to die for our country: but no man must, in any exclusive sense, live for his country. He who surrenders himself without reservation to the temporal claims of a nation, or a party, or a class is rendering to Caesar that which, of all things, most emphatically belongs to God: himself.
+ - Christianity is a fighting religion.
+ - Part of every misery is, so to speak, the misery’s shadow or reflection: the fact that you don’t merely suffer but have to keep on thinking about the fact that you suffer. I not only live each endless day in grief, but live each day thinking about living each day in grief.
+ - The only palliative is to keep the clean sea breeze of the centuries blowing through our minds, and this can be done only by reading old books.
+ - Everyone says that forgiveness is a lovely idea until he has something to forgive yet tasted one of the most sublime enjoyments of life.
+ - Miracles do not, in fact, break the laws of nature.
+ - The perfect church service would be one we were almost unaware of. Our attention would have been on God.
+ - You find out the strength of a wind by trying to walk against it, not by lying down.
+ - To what will you look for help if you will not look to that which is stronger than yourself?
+ - An explanation of cause is not a justification by reason.
+ - You can’t get second things by putting them first. You get second things only by putting first things first.
+ - If they are wrong they need your prayers all the more; and if they are your enemies, then you are under orders to pray for them. That is one of the rules common to the whole house.
+ - The road to the promised land runs past Sinai.
+ - All these toys were never intended to possess my heart. My true good is in another world, and my only real treasure is Christ.
+ - Youth and age touch only the surface of our lives.
+ - Whether we like it or not, God intends to give us what we need, not what we now think we want.
+ - The question is not what we intended ourselves to be, but what He intended us to be when He made us.
+ - Repentance is not something God demands of you before He will take you back and which He could let you off if He chose; it is simply a description of what going back is like.
+ - Faith in Christ is the only thing to save you from despair.
+ - You can begin as if nothing had ever gone wrong. White as snow.
+ - If God had granted all the silly prayers I’ve made in my life, where should I be now?
+ - If the Church is not Making Disciples, then all the cathedrals, clergy, missions, sermons, even the Bible, are a waste of time.
+ - Narnia! It’s all in the wardrobe just like I told you!
+ - It will not bother me in the hour of death to reflect that I have been “had for a sucker” by any number of imposters but it would be a torment to know that one had refused even one person in need.
+ - A man who has been in another world does not come back unchanged. One can’t put the difference into words. When the man is a friend it may become painful: the old footing is not easy to recover.
+ - I must keep alive in myself the desire for my true country, which I shall not find till after death; I must never let it get snowed under or turned aside; I must make it the main object of life to press on to that other country and to help others to do the same.
+ - If I had really cared as I thought I did about the sorrows of the world I should not have been so overwhelmed when my own sorrow came- I thought I trusted the rope until it mattered to me whether it would bear me, now it matters and I find I didn’t.
+ - It is by human avarice or human stupidity, not by the churlishness of nature, that we have poverty and overwork.
+ - The process of growing up is to be valued for what we gain, not for what we lose.
+ - Selfishness has never been admired.
+ - I am a product of long corridors, empty sunlit rooms, upstairs indoor silences, attics explored in solitude, distant noises of gurgling cisterns and pipes, and the noise of wind under the tiles. Also, of endless books.
+ - In commanding us to glorify Him, God is inviting us to enjoy Him.
+ - The cross comes before the crown and tomorrow is a Monday morning!
+ - My own eyes are not enough for me; I will see through those of others.
+ - If my house has collapsed at one blow, that is because it was a house of cards. The faith which ‘took these things into account’ was not faith but imagination.
+ - It may be better to live under robber barons than under omnipotent moral busybodies.
+ - Thirst was made for water. Inquiry for truth.
+ - The more we get what we now call ‘ourselves’ out of the way and let Him take us over, the more truly ourselves we become.
+ - Every poet and musician and artist, but for grace, is drawn away from love of the things he tells to love of the telling...
+ - Think of a country where people were admired for running away in battle, or where a man felt proud of double-crossing all the people who had been kindest to him. You might just as well try to imagine a country where two and two made five.
+ - The present is the only time in which any duty may be done or grace received.
+ - Mercy detached from justice grows unmerciful.
+ - In great literature, I become a thousand different men but still remain myself.
+ - For me, reason is the natural organ of truth; but imagination is the organ of meaning. Imagination, producing new metaphors or revivifying old, is not the cause of truth, but its condition.
+ - We must picture Hell as a state where everyone is perpetually concerned about his own dignity and advancement, where everyone has a grievance, and where everyone lives the deadly serious passions of envy, self-importance, and resentment.
+ - We have failed to practise ourselves the kind of behaviour we expect from other people.
+ - A man who has lived in many places is not likely to be deceived by the local errors of his native village; the scholar has lived in many times and is therefore in some degree immune from the great cataract of nonsense that pours from the press and the microphone of his own age.
+ - Any patch of sunlight in a wood will show you something about the sun which you could never get from reading books on astronomy. These pure and spontaneous pleasures are ‘patches of Godlight’ in the woods of our experience.
+ - God has infinite attention, infinite leisure to spare for each one of us. He doesn’t have to take us in the line. You’re as much alone with Him as if you were the only thing He’d ever created.
+ - Now God designed the human machine to run on Himself. He Himself is the fuel our spirits were designed to burn, or the food our spirits were designed to feed on. There is no other.
+ - Atheists express their rage against God although in their view He does not exist.
+ - No good work is done anywhere without aid from the Father of Lights.
+ - If you ask why we should obey God, in the last resort the answer is, ‘I am.’ To know God is to know that our obedience is due to Him.
+ - If you are a Christian you do not have to believe that all the other religions are simply wrong all through. If you are an atheist you do have to believe that the main point in all the religions of the whole world is simply one huge mistake.
+ - And there’s also ‘To him that hath shall be given.’ After all, you must have a capacity to receive, or even omnipotence can’t give. Perhaps your own passion temporarily destroys the capacity.
+ - I don’t pray so that I can change God. I pray so that God can change me.
+ - Love anything and your heart will be wrung and possibly broken. If you want to make sure of keeping it intact you must give it to no one, not even an animal.
+ - You can’t see anything properly while your eyes are blurred with tears.
+ - Nothing can seem extraordinary until you have discovered what is ordinary.
+ - Literature adds to reality, it does not simply describe it.
+ - Let’s pray that the human race never escapes Earth to spread its iniquity elsewhere.
+ - If Christianity was something we were making up, of course we could make it easier. But it is not.
+ - To walk out of his will is to walk into nowhere.
+ - We do not come to God as bad people trying to become good people; we come as rebels to lay down our arms.
+ - As long as you are proud, you cannot know God.
+ - Most of us know what we should expect to find in a dragon’s lair, but, as I said before, Eustace had read only the wrong books. They had a lot to say about exports and imports and governments and drains, but they were weak on dragons.
+ - A pleasure is full grown only when it is remembered.
+ - We are told that Christ was killed for us, that His death has washed out our sins, and that by dying He disabled death itself. That is the formula. That is Christianity. That is what has to be believed.
+ - Peter did not feel very brave; indeed, he felt he was going to be sick. But that made no difference to what he had to do.
+ - Nonsense remains nonsense even when we talk it about God.
+ - The real problem is not why some pious, humble, believing people suffer, but why some do not.
+ - The incalculable winds of fantasy and music and poetry, the mere face of a girl, the song of a bird, or the sight of a horizon, are always blowing evil’s whole structure away.
+ - Badness cannot succeed even in being bad in the same way in which goodness is good. Goodness is, so to speak, itself: badness is only spoiled goodness. Evil is a parasite, not an original thing.
+ - Please will you do my job for me.
+ - I’m not sure God wants us to be happy. I think he wants us to love, and be loved. But we are like children, thinking our toys will make us happy and the whole world is our nursery. Something must drive us out of that nursery and into the lives of others, and that something is suffering.
+ - Have fun, even if it’s not the same kind of fun everyone else is having.
+ - The door on which we have been knocking all our lives will open at last.
+ - The proper motto is not Be good, sweet maid, and let who can be clever, but Be good sweet maid, and don’t forget that this involves being as clever as you can. God is no fonder of intellectual slackers than any other slackers.
+ - The Opposite of Love is not hate, but power.
+ - I came alive when I started loving you.
+ - Did I hate him, then? Indeed, I believe so. A love like that can grow to be nine-tenths hatred and still call itself love.
+ - We were made to be neither cerebral men nor visceral men, but Men. Not beasts nor angels but Men – things at once rational and animal.
+ - I read in a periodical the other day that the fundamental thing is how we think of God. By God Himself, it is not! How God thinks of us is not only more important, but infinitely more important.
+ - Falling in love is something that happens to us, being is love is something we do. No passion is self preservatory.
+ - Giving to the poor is an essential part of Christian morality.
+ - Agnostics talk cheerfully of man’s search for God but they might as well talk about the mouse’s search for the cat.
+ - God gives His gifts where He finds the vessel empty enough to receive them.
+ - Chastity is the most unpopular of the Christian virtues. There is no getting away from it; the old Christian rule is, “Either marriage, with completely faithfulness to your partner, or else total abstinence.”
+ - Chastity is the most unpopular of the Christian virtues.
+ - It takes courage to live through suffering; and it takes honesty to observe it.
+ - Christ died for men precisely because men are not worth dying for; to make them worth it.
+ - You understand sleep when you are awake, not while you are sleeping. You can see mistakes in arithmetic when your mind is working properly; while you are making them you cannot see them. Good people know about both bad and evil; bad people do not know about either.
+ - Why must holy places be dark places?
+ - Humans are very seldom either totally sincere or totally hypocritical. Their moods change, their motives are mixed, and they are often quite mistaken as to what their motives are.
+ - Joy is the serious business of heaven. Our merriment must be between people who take each other seriously.
+ - If there ever was a time that nothing existed, then nothing would exist now.
+ - The enemy will not see you vanish into God’s company without an effort to reclaim you.
+ - Other than heaven, the only place where one’s heart is completely safe from the dangers of love is hell.
+ - It is so fatally easy to confuse an aesthetic appreciation of the spiritual life with the life itself-to dream that you have waked, washed, and dressed and then to find yourself still in bed.
+ - A sick society must think much about politics, as a sick man must think much about his digestion.
+ - Jesus Christ did not say, ‘Go into the world and tell the world that it is quite right.’
+ - The problem of reconciling human suffering with the existence of a God who loves, is only insoluble so long as we attach a trivial meaning to the word “love.”
+ - Pain plants the flag of truth within a rebel fortress.
+ - Sometimes fairy stories may say best what’s to be said.
+ - Precisely because we cannot predict the moment, we must be ready at all moments.
+ - Reality, looked at steadily, is unbearable.
+ - Literary experience heals the wound, without undermining the privilege, of individuality.
+ - Authority exercised with humility, and obedience accepted with delight are the very lines along which our spirits live.
+ - The Glory of God, and, as our only means of glorifying Him, the salvation of human souls, is the real business of life.
+ - There is no use in talking as if forgiveness were easy. For we find that the work of forgiveness has to be done over and over again.
+ - Every age has its own outlook. It is specially good at seeing certain truths and specially liable to make certain mistakes. We all, therefore, need the books that will correct the characteristic mistake of our own period. And that means the old books.
+ - On the whole, God’s love for us is a much safer subject to think about than our love for Him.
+ - In silence and in meditation on the eternal truths, I hear the voice of God which excites our hearts to greater love.
+ - Man’s conquest of Nature turns out, in the moment of its consummation, to be Nature’s conquest of Man.
+ - A man whose life has been transformed by Christ cannot help but have his worldview show through.
+ - Nothing is really ours until we share it.
+ - The sight of the huge world put mad ideas into me, as if I could wander away, wander forever, see strange and beautiful things, one after the other...
+ - We must stop regarding unpleasant or unexpected things as interruptions of real life. The truth is that interruptions are real life.
+ - One of the most cowardly things ordinary people do is to shut their eyes to facts.
+ - When you have reached your own room, be kind to those Who have chosen different doors and to those who are still in the hall.
+ - It is only our bad temper that we put down to being tired or worried or hungry; we put our good temper down to ourselves.
+ - I’d sooner live among people who don’t cheat at cards than among people who are earnest about not cheating at cards.
+ - Grief is like a long valley, a winding valley where any bend may reveal a totally new landscape.
+ - Looking for God-or Heaven-by exploring space is like reading or seeing all Shakespeare’s plays in the hope that you will find Shakespeare as one of the characters...
+ - When all the suns and nebulae have passed away, each one of you will still be alive.
+ - We have had enough, once and for all, of Hedonism – the gloomy philosophy which says that Pleasure is the only good.
+ - Being nice doesn’t make you stupid. It makes you feel good because you know you are gracious enough to forgive and smart enough to realize how distasteful some people can be.
+ - Hell is a state of mind – ye never said a truer word. And every state of mind, left to itself, every shutting up of the creature within the dungeon of its own mind – is, in the end, Hell. But Heaven is not a state of mind. Heaven is reality itself. All that is fully real is Heavenly.
+ - Good philosophy must exist, if for no other reason, because bad philosophy needs to be answered.
+ - And how could we endure to live and let time pass if we were always crying for one day or one year to come back – if we did not know that every day in a life fills the whole life with expectation and memory and that these are that day?
+ - Mere improvement is not redemption, though redemption always improves people.
+ - God has paid us the intolerable compliment of loving us, in the deepest, most tragic, most inexorable sense.
+ - Earthly pleasures were never meant to satisfy.
+ - We cannot understand. The best is perhaps what we understand least.
+ - Humans are amphibians – half spirit and half animal. As spirits they belong to the eternal world, but as animals they inhabit time.
+ - Remember He is the artist and you are the picture. You can’t see it, you can’t see your true self. So quietly submit to be painted.
+ - Above all else, the devil can not stand to be mocked.
+ - Dearest Daughter. I knew you would not be long in coming to me. Joy shall be yours.
+ - God, who needs nothing, loves into existence wholly superfluous creatures in order that he may love and perfect them.
+ - A promise must be about actions: no one can promise to go on feeling a certain way.
+ - One must never be either content with, or impatient with, oneself.
+ - Love, in the Christian sense, does not mean an emotion. It is a state not of the feelings but of the will; that state of the will which we have naturally about ourselves, and must learn to have about other people.
+ - The real job of every moral teacher is to keep bringing us back to the simple principles, which we’re so anxious not to see.
+ - Every natural love will rise again and live forever in this country: but none will rise again until it has been buried.
+ - I thought I could describe a state; make a map of sorrow. Sorrow, hoever, turns out to be not a state but a process.
+ - For his mind was full of forlorn hopes, death-or-glory charges, and last stands.
+ - The only safe rule is to give more than we can spare. Our charities should pinch and hamper us. If we live at the same level of affluence as other people who have our level of income, we are probably giving away too little.
+ - Is there a difference between a man who thinks that honesty is the best policy, and an honest man?
+
+500 quotes

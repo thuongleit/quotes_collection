@@ -1,0 +1,48 @@
+ - The Irish Six Million Dollar man only cost three quid.
+ - It’s my wife Ruth’s birthday soon. I said to her: “What would you like for your birthday?” She said: “I want a divorce.” I said: “I wasn’t planning on spending that much.”
+ - A man says to the doctor: “What’s the good news?” “You’ve got 24 hours to live.” He says: “What’s the bad news?” The doctor says: “We should have told you yesterday.”
+ - A man says to his mate: “My wife is a twin.” His mate says, “How do you tell them apart?” The man says: “Her brother has a beard.”
+ - A man walks into a pet shop and says: “Give me a wasp.” The shopkeeper replies: “We don’t sell wasps.” He says: “There’s one in the window.”
+ - This is Frank Carson, News at Ten, Sober.
+ - My uncle Jimmy took liver salts twice a day for 40 years. He died on Sunday, was buried Wednesday and the following Friday they had to go to the cemetery to beat his liver to death with a stick.
+ - A man walks into a hospital feeling unwell and the doctor says: “Sorry, you’ve only got three minutes to live.” The man said: “Can you do something for me?” “Yes,” he said. “I’ll boil you an egg.”
+ - I gave my wife a kiss this morning. She jumped out of bed and did a lap of honour.
+ - My wife said to me: ‘If you won the lottery, would you still love me?’ I said: ‘Of course I would. I’d miss you, but I’d still love you.’
+ - I just want to apologise for being late. I was flying back from Spain and the air hostess said: “We are two hours late Mr Carson.” When I asked why, she said: “The pilot has heard a funny noise in the engine that he doesn’t like, so we are waiting on another pilot who can’t hear it.”
+ - A traffic policeman stops Sister Bridget for speeding. She pulls into the side of the road and winds down her window. The officer walks round and starts undoing his fly. “Oh dear,” she says, “Not the breathalyser again.”
+ - I’ve been married to my wife for 60 years but it feels just like yesterday, and you know what a bloody awful day yesterday was.
+ - Most of my jokes are racist – usually about the Irish.
+ - Someone threw a petrol bomb at Alex Higgins once and he drank it!
+ - What’s the difference between a Rottweiler and a poodle peeing on your leg? You let the Rottweiler finish.
+ - Men only go for skinny women because they’re too weak to argue – and salads are cheap.
+ - My wife went into the butchers and said: “You’ve a sheep’s head in your window.” The butcher said: “That’s a mirror.”
+ - Have you heard about the Irishman who reversed into a car boot sale and sold the engine?
+ - There were two Irishmen eating sandwiches in a pub and the landlord said: “You can’t eat your own food in here.” So they swapped sandwiches.
+ - I was in the Far East and I went into a restaurant and I ordered octopus and the waiter said: “It takes four hours.” I asked why and he said: “It keeps turning off the gas.”
+ - A girl asks her doctor, “Doctor, I’ve forgotten to take my contradictory pill!” The doctor says: “Are you ignorant?” The girl says: “Yes, three months!”
+ - A man up in front of a judge says “I don’t recognise this court.” “Why not?” “It’s been redecorated since the last time I was here.”
+ - There was an Irish space program to go to the sun. They went at night so they didn’t get burnt.
+ - I’m staying in a lovely hotel, dressing robe behind the door, lovely fluffy sheets – took me a half an hour getting my suitcase closed.
+ - An Englishman, an Irishman and a Scotsman walk into a bar. The barman looks at them and says: “Is this some kind of a joke?”
+ - I have a pacemaker in, but it doesn’t work very well, because every time I fart the garage door opens.
+ - My Irish mate told me, if you file down the edges of a 50 pence piece, you can use it as a 10p.
+ - I was going up to the bathroom and a woman asked me: “Have you a good memory for faces?” I asked why and she said: “Because there isn’t a mirror up there.”
+ - Two Irishmen were passing a pub – well, it could happen.
+ - A man was found dead covered in sprinkles, strawberry sauce and a flake. Reports said he may have topped himself.
+ - An Irishman’s wife gave birth to twins. Her husband wanted to know who the other man was.
+ - I am accusing him of stealing my best material, he was a very funny man.
+ - There was a man sitting in the dining room of the Titanic, he said: “I know I asked for ice, but this is ridiculous.”
+ - The council in Blackpool have given the homeless bus passes, but how would they know where to get off?
+ - Frank once slipped something into the pocket of a luggage handler at the airport and said: “Have a drink on me.” The luggage handler later found out it was a tea bag.
+ - I asked a shop owner if he could help me out. He said: “What way did you come in?”
+ - It’s never occurred to me to worry about my health, or that I’ll get old, or that people will stop laughing at me.
+ - I come from a family of musicians. Even the sewing machine is a Singer.
+ - I bought these shoes in Taiwan, and they said in the inside “made around the corner.”
+ - People in Northern Ireland vote for their church, they don’t vote with their heads; it is ridiculous.
+ - I said to the waitress, “There’s a fly swimming in my soup.” She said: “You’ve got too much soup – he should only be able to paddle.”
+ - America has only 100 Senators for 309 million people, but Stormont has 108 members for 1.7 million.
+ - My idea for peace in the Middle East is to go back to the 1966 line, but to build even more houses for the Palestinians, who are a poor people.
+ - I was in a panto last year, Aladdin and The Wonderful Lamp. I played the wick. I got the sack because I was too well-oiled every night.
+ - Doctor told me I’ve got two weeks to live. I said: “Can I have the last week in July and the 1st week in August?”
+
+46 quotes

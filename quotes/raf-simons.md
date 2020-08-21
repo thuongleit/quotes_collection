@@ -1,0 +1,41 @@
+ - I’m not so rock and roll. I’m more techno.
+ - I’m not an isolated person. The more I connect to people, the more I have the feeling that things work.
+ - Fashion is such an octopus. You’re connected to so many people: suppliers, pattern makers, production teams, marketing teams, vendors.
+ - I’m usually very attracted to things that I can’t define. If something’s too clear, it’s very often not inspiring to me anymore.
+ - I’m a designer, and for me, things are always evolving, and such evolution is necessary.
+ - I’m shy, but not on a one-to-one basis. Over the years, I have become acclimatised to a bit of publicity.
+ - I’ve always seen myself as a small entity, and it will always stay like that. I’m not changing. But I think the big challenge for me taking on the Dior thing is to see how I can connect that to such a huge institution.
+ - For me, Warhol made so much sense.
+ - I see my position in that whole Dior construction very differently from my own brand. My own brand will stand or fall because of me. Dior won’t fall if I fall. It will also still stand if I’m not there. I’m coming in there and it’s like a – I don’t know the English word – like a passage.
+ - Becoming a fashion designer is agreeing with the fact that what you experience or what you see as free is also connected to a system. Does that mean giving up your freedom? I still don’t know the answer. There’s a very different kind of psychology going on in the fashion scene than in art.
+ - My mother was a cleaning lady all her life.
+ - I don’t see Dior as something that could become mine. I see it as a dialogue with the women who wear it. I want to stay connected to them rather than to an abstract brand.
+ - We are very excited to re-launch the collaboration with Fred Perry. We have great appreciation for the heritage of the brand as well as their dynamism in guiding the brand towards the future. Their openness to create synergies between both our brands will bring interesting, creative results.
+ - I find it fascinating to see the fact that women want to buy things that they see on men.
+ - But overall I want to make sure people fall in love with the clothes and that they are satisfied.
+ - My whole life, I’ve always had to be surrounded by creative things. I find it relaxing to be in touch with creations by other people.
+ - When it’s only clothes, that is not satisfying enough for me. I don’t think I could do this for 10, 20 years if that was all. It also has to be about a psychology or a mentality or a concept.
+ - Collage – SS13 offers a very controlled and pure do-it-yourself attitude. The collection shows a juxtaposition of very different materials, prints and colours, therefore giving the wearer a possibility to combine the garments in different ways.
+ - The fashion world doesn’t know the word stop, so you have to make sure there are sublime moments every day.
+ - Fashion has a long interest in collaborative situations.
+ - I know this independence is what people like most about my brand.
+ - I’m very attracted to things that I can’t define.
+ - The future, for me, is romantic, I don’t understand people who say the past is romantic. Romantic, for me, is something you don’t know yet, something you can dream about, something unknown and mystical. That I find fascinating.
+ - I wanted an idea of the future, a new femininity. I wanted you to feel that you wouldn’t quite know where these women were coming from and where they were going to.
+ - It felt wrong for me to stay totally connected to that very strict way of approaching the heritage – what it can be, what it cannot be. That was also the period where I really thought, “No, let’s open it up.”
+ - If I see a fashion show with literal influences, it doesn’t make me think any more. It doesn’t make me dream.
+ - I like very much to put on fashion shows.
+ - Unlike fashion, art isn’t applied. It doesn’t have to serve anybody. It doesn’t have to be there for any other reason than to give an impression of what the world is about.
+ - Robert Gober, for example. He doesn’t seem like somebody who is just going to show in a gallery that asks him to show. He’s just making his work, and when he’s ready, he’s going to show it.
+ - It was a challenge for me to see how I could deal with that at Jil, and I had a lot of doubt about it. I wondered if maybe it was just better to do your own thing in the long run, like an artist.
+ - In my opinion, Christian Dior was never, ever theatre.
+ - You do what you do. Or you do what you have to do. I don’t know how to explain it better. I think that in the moment, you can’t see connections, but sometimes afterwards you do.
+ - Well, my own men’s collection always felt very free back in the days before Jil. Once you make it this kind of dialogue with other people, with a fashion show and clients and whatever, it becomes something else. Free meets not so free.
+ - I always try to connect with what’s happening in the world-reality, modernity, the 21st century, all that – and with Jil it started to feel very disconnected from the outside and how women were looking at fashion, experiencing fashion, interpreting fashion.
+ - My ideas for the next collection always happen a couple of months before the show. I have learned to shut up and not bother my assistants with it.
+ - My dad only ever talked about two things: bicycles and Mercedes.
+ - Sometimes it’s more a matter of collaboration which matters in a collection.
+ - I never really have to sit at a desk thinking, “What should I do now?” It doesn’t work like that for me, and it never has. My thinking process is constant. The difference is that once I was in Antwerp only doing two men’s shows a year. And the weird thing is I thought I was busy then.
+ - I would prefer to use the word free. I think the Dior thing is so much freer. There was not so much free about Jil’s way of working.
+
+39 quotes

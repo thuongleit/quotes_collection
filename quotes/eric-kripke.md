@@ -1,0 +1,26 @@
+ - Driver picks the music, shotgun shuts his cakehole.
+ - You think you’re funny? I think I’m adorable.
+ - Kids aint supposed to be grateful! They’re supposed to eat your food, break your heart.
+ - People simply don’t make eye contact anymore.
+ - Your half-caf, double vanilla latte is getting cold over here, Francis.
+ - It’s hard asking someone with a broken heart to fall in love again.
+ - At the end of day, people are starving and, if people are starving and thirsty and they need to keep their families alive, people become desperate quickly. There are real world examples of this.
+ - I have a bad habit, in the shows that I run, of killing off the people that I love.
+ - I’m not a fan of endless mystery in storytelling – I like to know where the mythology’s going; I like to get there in an exciting, fast-paced way – enough that there’s a really clear, aggressive direction to where it’s going, to pay off mystery and reward the audiences loyalty.
+ - It’s hard to make a lot of pop culture references where there’s no pop culture.
+ - When you start a show, the plans are not set in stone. They’re really mutable, cocktail napkin sketches.
+ - The ability to get inside your character’s head in a graphic novel is really fun and useful because one, you can really define the character’s voice and two, it’s a way easier way to convey what the character’s thinking by actually laying out what he’s thinking.
+ - When I am kicking around show ideas, or really any idea, usually an image comes to me. I don’t really start with a character or a logline like, “What if the electricity turned off?”
+ - Every so often, you want to map out your plot mythology but never so specifically that you can’t let a story surprise you. You want to allow the type of action of the writer’s room so that you have the ability to take a left turn.
+ - In TV and movies, you kill yourself spending all this time to think up the symbolism or what if that deer that runs across your hero’s path somehow conveys what’s going on inside your hero’s head? When a lot of times, you just want to hear what he’s thinking.
+ - I like to tell stories that have beginnings, middles and ends.
+ - Television showrunners are a foolishly optimistic bunch.
+ - Beyond all our Blackberries and iPhones, we’re dangerously separated from our food and water supplies.
+ - I’m mostly coming at the superhero legends as an outsider, I know them and I studied them but I didn’t really grow up with them, but I think it allows me to sort of analyze them in a way that’s kind of interesting.
+ - People love a good mystery; I understand that.
+ - I’ve never counted my chickens before they’ve hatched.
+ - I’m kind of a comic book geek, but I’m not really a super hero comic book geek.
+ - Mythologies become exhausting burdens, from a writer’s perspective.
+ - I’ve had a lifelong obsession with urban legends and American folklore.
+
+24 quotes

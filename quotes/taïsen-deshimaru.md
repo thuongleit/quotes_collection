@@ -1,0 +1,25 @@
+ - If you are not happy here and now, you never will be.
+ - You have to practice until you die.
+ - During zazen, brain and consciousness become pure. It’s exactly like muddy water left to stand in a glass. Little by little, the sediment sinks to the bottom and the water becomes pure.
+ - Think with your whole body.
+ - Descartes said, “I think, therefore I am.” I say, “I do not think, that is why I exist.”
+ - To practice Zen or the Martial Arts, you must live intensely, wholeheartedly, without reserve – as if you might die in the next instant.
+ - Harmonizing opposites by going back to their source is the distinctive quality of the Zen attitude, the Middle Way: embracing contradictions, making a synthesis of them, achieving balance.
+ - Time is not a line, but a series of now-points.
+ - Human beings are afraid of dying. They are always running after something: money, honor, and pleasure. But if you had to die now, what would you want?
+ - Keep your hands open, and all the sands of the desert can pass through them. Close them, and all you can feel is a bit of grit.
+ - We feel our shell keeps us safe, but it crushes us and others, and keeps out light and sun.
+ - You must concentrate upon and consecrate yourself wholly to each day, as though a fire were raging in your hair.
+ - Zen is not a particular state but the normal state: silent, peaceful, unagitated. In Zazen neither intention, analysis, specific effort nor imagination take place. It’s enough just to be without hypocrisy, dogmatism, arrogance – embracing all opposites.
+ - In a fight between a strong technique and a strong body, technique will prevail. In a fight between a strong mind and a strong technique, mind will prevail, because it will find the weak point.
+ - The body moves naturally, automatically, without any personal intervention or awareness. If we think too much, our actions become slow and hesitant.
+ - Train the body and develop stamina and endurance. But the spirit of competition and power that presides over them is not good, it reflects a distorted vision of life. The root of the martial arts is not there.
+ - If you have a glass full of liquid you can discourse forever on its qualities, discuss whether it is cold, warm, whether it is really and truly composed of H-2-O, or even mineral water, or sake. Meditation is Drinking it!
+ - To receive everything, one must open one’s hands and give.
+ - From your first day at school you are cut off from life to make theories.
+ - If we achieve satori and the satori shows, like a bit of dogshit stuck to the top of our nose, that is not so good.
+ - The silence of the mountain is even more beautiful once the birds are quiet.
+ - You cannot separate any part from the whole: interdependence rules the cosmic order.
+ - We should learn to think with our fingers.
+
+23 quotes

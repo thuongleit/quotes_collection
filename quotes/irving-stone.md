@@ -1,0 +1,62 @@
+ - Talent is cheap; dedication is expensive. It will cost you your life.
+ - There’s no love without pain.
+ - How difficult it is to be simple.
+ - There are no faster or firmer friendships than those formed between people who love the same books.
+ - Each of us has his own alphabet with which to create poetry.
+ - Everyone has their own personality, its own character, and if he respects that, everything would finally fall over for good only.
+ - From out of pain, beauty.
+ - When I have trouble writing, I step outside my studio into the garden and pull weeds until my mind clears – I find weeding to be the best therapy there is for writer’s block.
+ - No man is born into the world whose work is not born with him.
+ - The best romance is inside marriage; the finest love stories come after the wedding, not before.
+ - Life’s not so bad after all. There are not only poison but also antidotes.
+ - The brooding is better than the joy because even if the heart fills with happiness, it still mourns.
+ - No artist is normal. Who happen to be normal cannot be an artist.
+ - One should not become an artist because he can, but because he must. It is only for those who would be miserable without it.
+ - Morality is similar to religion – it is a somniferous drug which blinds people from seeing the squalor of their lives.
+ - Normal people do not create art.
+ - Every human life had its pattern that had to be worked out slowly to its ultimate conclusion.
+ - To try to understand another human being, to grapple for his ultimate depths, that is the most dangerous of human endeavors.
+ - Art’s a staple. Like bread or wine or a warm coat in winter. Those who think it is a luxury have only a fragment of a mind. Man’s spirit grows hungry for art in the same way his stomach growls for food.
+ - Reading is a stout-hearted activity, disporting courage, keenness, stick-to-it-ness. It is also, in my experience, one of the most thrilling and enduring delights of life, equal to a home run, a slam-dunk, or breaking the four-minute mile.
+ - Who wants to do good in this world must deny oneself. A man does not live on this Earth to be happy or to be honest only – he has to do great things for humanity, achieve the generosity of the spirit and rise above the banality where most of the people are drowning and wasting their days.
+ - His mind was like a soup dish, wide and shallow; it could hold a small amount of nearly anything, but the slightest jarring spilled the soup into somebody’s lap.
+ - Man’s spirit grows hungry for art in the same way his stomach growls for food...
+ - Pleasure is one of the most important things in life, as important as food or drink.
+ - You cannot be firmly certain about anything. You can only have enough courage and strength to do what you consider to be right. Maybe it turns out that was wrong, but still you would have done his, and it is most important.
+ - There is no thrill of mortal danger to surpass that of a lone man trying to create something that never existed before.
+ - Story writers say that love is concerned only with young people, and the excitement and glamour of romance end at the altar. How blind they are. The best romance is inside marriage; the finest love stories come after the wedding, not before.
+ - Listen, my friend, all forms that exist in God’s universe can be found in the human figure. A man’s body and face can tell everything he represents. So how could I ever exhaust my interest in it?
+ - An artist would not rise above the mediocrity if he condemns it.
+ - Art is amoral; so is life. For me there are no obscene pictures or books; there are only poorly conceived and poorly executed ones.
+ - The most perfect guide is nature. Continue without fail to draw something every day.
+ - Reading is a stouthearted activity, disporting courage, keenness, stick-to-it-ness.
+ - Do not call yourself old. A man is as old as the creative force within him.
+ - Who loves – lives, who lives – works, and who works has some bread.
+ - Being mad is even pleasant. But only a madman understands that.
+ - I knew that I had to find out more about van Gogh. Even though I was far too young, and felt I did not have sufficient technique to write a book about Vincent van Gogh, I knew I had to try. If I didn’t I would never write anything else.
+ - Misery is the only thing in the world that has no end or edge.
+ - Drawing is the poet’s written line, set down to see if there be a story worth telling, a truth worth revealing.
+ - There are neither good nor evil, only the existence and action.
+ - An artist without ideas is a mendicant; barren, he goes begging among the hours.
+ - The maximum value of art is that it allows the artist to express himself.
+ - I spend several years trying to get inside the brain and heart of my subjects, listening to the interior monologues in their letters, and when I have to bridge the chasms between the factual evidence, I try to make an intuitive leap through the eyes and motivation of the person I’m writing about.
+ - I do not know a better cure for mental illness than a book.
+ - After all, the world is still great.
+ - God did not create us to abandon us.
+ - A man who has not suffered has nothing to tell with his paintings.
+ - How can a young person learn whether he chose the correct way? He thinks he has a special idea, and then he discovers that he is completely inappropriate for it.
+ - Fortune is beastly – it is only suitable for cows and businessmen.
+ - Sometimes men are generous and forgiving, sometimes angry and blind.
+ - All artists are crackpots. And it’s their finest feature.
+ - The real artist while he paints does not think of the sale, only of the need to make a beautiful living thing.
+ - The one who has not seen Paris in the morning does not know how beautiful it is.
+ - If it is noticed that much of my outside work concerns itelf with libraries, there is an extremely good reason for this. I think that the better part of my education, almost as important as that secured in the schools and the universities, came from libraries.
+ - Religion will never show the way.
+ - What we know of others is our personal secret.
+ - Reading has always been the largest and most irreplaceable pleasure for Vincent; reading about other people’s successes and failures, joys and sufferings seemed to bury his own failures.
+ - He had been standing still; for an artist, one of the more painful forms of death.
+ - To be an artist is first to be a manual laborer.
+ - Nature always resists the artist at the beginning.
+ - He made his colours, built his stretchers, plastered his canvas, painted his pictures, carpentered his frames, and painted them. ‘Too bad I can’t buy my own pictures,’ he murmured aloud. ‘Then I’d be completely self-sufficient.’
+
+60 quotes

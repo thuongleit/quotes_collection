@@ -1,0 +1,29 @@
+ - When life leaves us blind, love keeps us kind.
+ - You can’t be afraid of people willing to hurt you, cause if you fear life, then you will never live.
+ - I’m strong on the outside, not all the way through. I’ve never been perfect, but neither have you.
+ - What’s the worst thing I’ve stolen? Probably little pieces of other people’s lives. Where I’ve either wasted their time or hurt them in some way. That’s the worst thing you can steal, the time of other people. You just can’t get that back.
+ - Tattoos exude pain and pleasure all at the same time.
+ - It’s cool to be a part of recovery. This is just who I am, this is what I write about, what I do, and most of my work has been a reflection of what I’ve been going through in one way or another.
+ - You’re constantly trying to prove yourself, even after you’ve made it.
+ - Some kids are so depressed at home and with how people treat them in school that they cut themselves. This happens all over the world – kids who don’t want to kill themselves, but nobody understands how much they hurt, so they cut themselves with razor blades.
+ - Alone in a world, With millions of souls Walking in circles Trapped in their dreams unhealthy, unclean walking in circles, now do not disturb scream in silence everyone’s sleeping.
+ - I don’t like to hold back, because that’s how you hurt yourself.
+ - Success is nice, but it shouldn’t be the only reason why you’re a musician.
+ - Our Fans are the best fans in the world, don’t mess with them.
+ - When I’m writing, I’m constantly thinking about myself, because it’s the only experience I have to draw on. And I don’t see an exact reflection of myself in every face in the audience, but I know that my songs have validity to them, and that’s why the fans are there.
+ - You think I’m stupid. Stay out of my way. You think I’m stupid.
+ - I have been able to tap into all the negative things that can happen to me throughout my life by numbing myself to the pain so to speak and kind of being able to vent it through my music.
+ - Asking someone to describe what something sounds like is like telling a blind person to guess what I look like.
+ - There are always going to be encounters that you kind of wish went differently. But the average fan really isn’t fanatical.
+ - It’s the band that really counts and not our egos. Egos probably destroyed more bands than anything else did, and that’s something we want to avoid at all costs. We want to give the audience something real, something spectacular, and if it would be about egos, it would hardly be worth their time.
+ - My favorite jellybean is the pink one with the flavor inside.
+ - The rule in music land is never doody in the bus and never doody in the RV.
+ - It’s not cool to be an alcoholic.
+ - If fans come up to me, I talk to them.
+ - I really wish Mike and Joe would stop drawing on me while I’m sleeping.
+ - I don’t go out and pick fights.
+ - Touring for two years is excruciating.
+ - To pigeonhole a genre as being successful or unsuccessful is weird.
+ - For me, you say the words ‘concept record,’ and the first thing I think of is theater or the opera or something.
+
+27 quotes

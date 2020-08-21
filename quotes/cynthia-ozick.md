@@ -1,0 +1,69 @@
+ - To imagine the unimaginable is the highest use of the imagination.
+ - We often take for granted the very things that most deserve our gratitude.
+ - If we had to say what writing is, we would have to define it essentially as an act of courage.
+ - Resentment is a communicable disease and should be quarantined.
+ - Is there a word more passionate than passion? Obsession, total immersion, the feeling that everything else doesn’t matter.
+ - One must avoid ambition in order to write. Otherwise something else is the goal: some kind of power beyond the power of language. And the power of language, it seems to me, is the only kind of power a writer is entitled to.
+ - We were born to die; we were born to endure, on the way to death, sorrow-sorrow in manifold shapes.
+ - To want to be what one can be is purpose in life.
+ - The ordinary is the divine.
+ - In books, as in life, there are no second chances. On second thought: its the next work, still to be written, that offers the second chance.
+ - The imagination has resources and intimations we don’t even know about.
+ - I read in order to write. I read out of obsession with writing.
+ - Two things remain irretrievable: time and a first impression.
+ - What we remember from childhood we remember forever – permanent ghosts, stamped, inked, imprinted, eternally seen.
+ - When something does not insist on being noticed, when we aren’t grabbed by the collar or struck on the skull by a presence or an event, we take for granted the very things that most deserve our gratitude.
+ - I measure my life in sentences pressed out, line by line, like the lustrous ooze on the underside of the snail, the snail’s secret open seam, its wound, leaking attar.
+ - Language makes culture, and we make a rotten culture when we abuse words.
+ - What we think we are surely going to do, we don’t do; and what we never intended to do, we may one day notice that we have done, and done, and done.
+ - There’s a paradox in rereading. You read the first time for rediscovery: an encounter with the confirming emotions. But you reread for discovery: you go to the known to figure out the workings of the unknown, the why of the familiar how.
+ - I would distinguish between a visitor and a pilgrim: both will come to a place and go away again, but a visitor arrives, a pilgrim is restored. A visitor passes through a place; the place passes through the pilgrim.
+ - I’m not afraid of facts, I welcome facts but a congeries of facts is not equivalent to an idea. This is the essential fallacy of the so-called “scientific” mind. People who mistake facts for ideas are incomplete thinkers; they are gossips.
+ - Nothing is so awesomely unfamiliar as the familiar that discloses itself at the end of a journey. Nothing shakes the heart so much as meeting-far, far away-what you last met at home.
+ - The usefulness of madmen is famous: they demonstrate society’s logic flagrantly carried out down to its last scrimshaw scrap.
+ - Awe consumes any brand that ignites it...
+ - It is the function of a liberal university not to give right answers, but to ask right questions.
+ - After a certain number of years, our faces become our biographies.
+ - To listen acutely is to be powerless, even if you sit on a throne.
+ - The imagination is a species of knowledge, knowledge that can take the form of discovery.
+ - It is useless either to hate or to love truth – but it should be noticed.
+ - In real life wishing, divorced from willing, is sterile and begets nothing.
+ - Time heals all things but one: Time.
+ - Travelers are fantasists, conjurers, seers – and what they finally discover is that every round object everywhere is a crystal ball: stone, teapot, the marvelous globe of the human eye.
+ - In saying what is obvious, never choose cunning. Yelling works better.
+ - Bohemia and all its works are vanished out of America; or, more exactly, bohemia has migrated to the middle class, and is alive and well in condo and suburb.
+ - Traveling is seeing; it is the implicit that we travel by.
+ - The butterfly lures us not only because he is beautiful, but because he is transitory. The caterpillar is uglier, but in him we can regard the better joy of becoming.
+ - Old saws have no teeth.
+ - Invention despoils observations, insinuation invalidates memory. A stewpot of bad habits, all of it – so that imaginative writers wind up, by and large, a shifty crew, sunk in distortion, misrepresentation, illusion, imposture, fakery.
+ - The engineering is secondary to the vision.
+ - I think about fanaticism – oblivion awaits, especially for minor writers, so you have to be a fanatic; you have to be a crank to keep going, but on the other hand, what else would you do with the rest of your life? You gotta do something.
+ - Life is that which – pressingly, persistently, unfailingly, imperially – interrupts.
+ - The power of language, it seems to me, is the only kind of power a writer is entitled to.
+ - One reason writers write is out of revenge.
+ - Women who write with an overriding consciousness that they write as women are engaged not in aspiration toward writing, but chiefly in a politics of sex.
+ - Godlessness invariably produces vulgarity. Civilization is the product of belief.
+ - We have had, alas, and still have, the doubtful habit of reverence. Above all, we respect things as they are.
+ - It is true that money attracts; but much money repels.
+ - He who cries, ‘What do I care about universality? I only know what is in me,’ does not know even that.
+ - Time at length becomes justice.
+ - In 1952, I had gone to England on a literary pilgrimage, but what I also saw, even at that distance from the blitz, were bombed-out ruins and an enervated society, while the continent was still, psychologically, in the grip of its recent atrocities.
+ - Why do men carry guns and build prison camps, when the nurturing earth is made for freedom?
+ - All politicians know that every ‘temporary’ political initiative promised as a short-term poultice stays on the books forever.
+ - The secular Jew is a figment; when a Jew becomes a secular person he is no longer a Jew.
+ - Whoever mourns the dead mourns himself.
+ - Paradise is only for those who have already been there.
+ - Comedy springs from the ludicrous; but the ludicrous is stuck in the muck of reality, resolutely hostile to what is impossible.
+ - We are so placid that the smallest tremor of objection is taken as a full-scale revolution.
+ - In the compact between novelist and reader, the novelist promises to lie, and the reader promises to allow it.
+ - Above all, a book is a riverbank for the river of language. Language without the riverbank is only television talk – a free fall, a loose splash, a spill.
+ - Death persecutes before it executes.
+ - Real apprenticeship is ultimately always to the self.
+ - Fiction does not invent out of a vacuum, but it invents; and what it invents is, first, the fabric and cadence of language, and then a slant of idea that sails out of these as a fin lifts from the sea.
+ - To desire to be what one can be is purpose in life. There are no exterior forces. There are only interior forces. Who squanders talent praises death.
+ - The art of fiction is freedom of will for your characters.
+ - The trouble with happiness is that it never notices itself.
+ - To be any sort of competent writer one must keep one’s psychological distance from the supreme artists.
+ - Dedication to one’s work in the world is the only possible sanctifica-tion. Religion in all its forms is dedication to Someone Else’s work, not yours.
+
+67 quotes

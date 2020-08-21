@@ -1,0 +1,27 @@
+ - There is no strong beer, just weak men.
+ - I’m not a bad guy! I work hard, and I love my kids. So why should I spend half my Sunday hearing about how I’m going to Hell?
+ - Go ahead and play the blues if it’ll make you happy.
+ - Kill myself? Killing myself is the last thing I’d ever do. Now I have a purpose, a reason to live. I don’t care who I have to face, I don’t care who I have to fight, I will not rest until this street gets a stop sign!
+ - Sometimes the only way you can feel good about yourself is by making someone else look bad. And I’m tired of making other people feel good about themselves.
+ - English? Who needs to spend time learning that? I’m never going to England!
+ - Getting out of jury duty is easy. The trick is to say you’re prejudiced against all races.
+ - To many, Homer may appear lazy and a loser, but he’s just much misguided. He’s boorish, sure, but well meaning and, I guess, the one thing we have in common is the pursuit of lousy diets.
+ - After years of doing impressions, its time for a change.
+ - If I were actually Homer Simpson, I’d be getting scripts out the wazoo.
+ - I’ve made a kind of pact with myself where I said, It doesn’t matter what it is as long as I’m acting.
+ - The Simpsons can go anywhere in the world and not worry about any budgetary issues. However, even when the show has had its run, I think the characters can go on in perpetuity.
+ - If the Bible has taught us nothing else, and it hasn’t, it’s that girls should stick to girls sports, such as hot oil wrestling, foxy boxing, and such and such.
+ - If something goes wrong at the plant, blame the guy who can’t speak English.
+ - Operator! Give me the number for 911!
+ - Oh, everything’s too damned expensive these days. This Bible cost 15 bucks! And talk about a preachy book! Everybody’s a sinner! Except this guy.
+ - It is better to watch things then to do them.
+ - Beer. Now there’s a temporary solution.
+ - The humor is essentially dark for a cartoon and sophisticated. But at the same time, being a cartoon gives the writers more freedom than in a normal sitcom. It always pushes the line that, despite human failings, the Simpsons are really decent people.
+ - I always enjoyed writing. I did playlets in high school, I did radio shows in college. That’s one of the reasons I went down to Second City, because you could do acting and writing.
+ - There are times when the writers ask us to improvise. Sometimes the animators are inspired by what you do, and sometimes you are inspired by what the animators do.
+ - It’s hard to find a play that’s right for me to do. Rather than waiting around for the right script to come along, I decided to write one myself.
+ - The nice thing is that, at least in Los Angeles, I’m known as a character actor and I do auditions for other things besides just cartoon shows.
+ - After years of doing it, you learn the difference between your ego and your opinion. When you’re married you have to cut through that.
+ - The Simpsons take up so little time that I’m able to do other things as well.
+
+25 quotes

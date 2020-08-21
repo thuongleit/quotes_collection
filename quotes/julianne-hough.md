@@ -1,0 +1,72 @@
+ - I definitely listened to country music. I don’t think I listened to hair bands as much as I did Bruce Springsteen and U2 and Aerosmith.
+ - I feel sexy when I’m taking care of myself and not depriving myself.
+ - Adrenaline is the reason I do what I do.
+ - Well, what I love about ’80s rock music is the amazing, fantastic melodies.
+ - I love chips and salsa. Guacamole.
+ - One of my mantras is if I’m scared to do something, that means that I have to do it.
+ - I keep saying this about a mental state, but the more that I am physically active, the more that my mind is clear.
+ - I figured out if I have a good goal in mind, then I can actually achieve it.
+ - I’d feel a little bit dead inside, if I didn’t have dancing. It’s such a way of expression and exercise and life and love. You laugh, when you’re being corny and dorky-dancing. It’s everything.
+ - I think every girl needs to love herself, regardless of anything. Like if you’re having a bad day, if you don’t like your hair, if you don’t have the best family situation, whatever, you have to love yourself and you can’t do anything until you love yourself first.
+ - Friends are the best therapy.
+ - I’m just taking it one day at a time. Actually, that’s a total lie. I always think about what’s in front of me.
+ - Dancing is a part of my life where when I don’t dance I feel like there’s something missing because I’m such a physical person who loves to express myself through dance, but I love to act. I love to sing. I love to entertain so if I’m passionate about a certain project, I wanna do it.
+ - Every day my style changes with my mood. Some days I’ll feel a little more grunge and wear boyfriend jeans, but in the summer I like to feel girly and wear dresses.
+ - I’m actually pretty good at stripping, which makes me wonder what happened in my previous life. Funny enough, I don’t wear a lot of clothes when I dance and it’s very sexy, so it wasn’t too hard to get into the motion of it.
+ - As guilty and fun as it is to go through a drive-thru and get a cheeseburger or whatever, I just feel like you can make your own burger at home. You know what’s going into it. You know where it came from. And it’s just easy to go back and forth to those drive-thrus. Just kick that habit!
+ - I’m very blessed and I don’t take anything for granted. I think if you alienate people and just focus on your work then it just becomes lonely and it’s not fun anymore.
+ - What I love about ’80s rock music is the amazing, fantastic melodies. In pop music, it’s all about the techno beat to dance to in the club and the repetitiveness, whereas in rock music there is literally, like, balls-to-the-wall singing and playing. I love it.
+ - I’ve always had God, but now I want to go back to church for the sense of community and that feeling of positive thinking, a place where I can think about being a better person.
+ - I’m a huge fan of just keeping a healthy lifestyle. For your body but for your mind, also.
+ - It’s more about balance for me. I used to be an all or nothing person. And now I would rather have a lifestyle change – rather than use the word ‘diet’ – where 90 percent of the time spend my life that way and 10 percent of the time have fun and do what my body feels like it needs or craves.
+ - From when I was born, my dad would dance with me in his arms, and I would watch my siblings dancing around in the living room. I just grew up with that. That was just my life.
+ - There is something so rewarding about dancing. It’s almost spiritual – you let loose, you feel free, you get endorphins from the exercise.
+ - The cool thing about doing films and being different characters is that it’s new everyday and new every project. So, you’re always learning something different and you get to do research.
+ - I knew if I stayed in London my whole life would be dancing. I’d won almost every major title you can. I thought ‘This really isn’t my passion. I really want to sing,’ and I knew I wouldn’t be able to if I stayed there.
+ - A lot of people don’t know this, but when ‘Dancing with the Stars’ first asked me to be on the show, I said no, because I wanted to act and to be taken seriously.
+ - I’ve experienced a lot for someone my age that a lot of people will be able to relate to.
+ - I am not dogging on non-melodic pop music because I love it, but I am saying that is why the timeless songs are still here. It’s because of the melody. As far as what shouldn’t be brought back, the high-waisted bikini bottoms.
+ - I started out dancing on a reality TV show, but always with the intention of making my way over to film. I transitioned into the film world by doing certain things that my fans had been used to seeing me do. My dancing and singing gave me the confidence to act.
+ - I had a hard time with bullying. I ate lunch in the bathroom.
+ - My first dance ever on ‘Dancing With the Stars’ was to ‘Let’s Hear it for the Boy.’
+ - If I had been living through the ’80s, I probably would’ve gotten into a lot more trouble than my parents.
+ - When my mind is clear, I feel like I can give more of myself to those around me and hopefully bring light and joy and an infectious kind of energy to inspire them to do whatever they want to do. That’s really the key behind it all.
+ - I definitely am the kind of person that fluctuates up and down. I work really hard for a certain project and then I’m like, ‘Oh, I’m done.’
+ - I absolutely love Italian food. So pizza – like a margherita pizza, penne arbiota, a glass of wine. That’s like my dream.
+ - The thing that I loved about growing up Mormon is that I had morals and standards instilled in me as a kid – like, you need to be a nice person, and a thoughtful person, and if anybody is trying to dog that, then I think that’s rude.
+ - I’m a huge fan of dance cardio because it goes by really quick.
+ - Utah is so wonderful. My greatest memories of Utah are of always being outdoors. It’s a very athletic environment that I think gave me a lot of drive to be fit and live well.
+ - I think it’s important to be happy before you can make anybody else happy.
+ - I’ve always wanted to be like the Hollywood Golden Age actors.
+ - I’ve grown up with country music. I love how real everybody is, not just the artists, but the fans.
+ - I’ve been acting my whole life, which people don’t realize. I just haven’t had the opportunities that I’ve had with my dancing.
+ - I do a lot of dancing. I don’t like to run much because I get shin splints. I love being outside so I do a lot of hiking. It’s very good for toning. I also do lots of light weights.
+ - I’d get invited to parties, and instead it would be these abandoned houses.
+ - I think there are always gonna be challenges and people throwing themselves at you in a nondiscreet way. But it’s just so public now that you have to be careful saying hi or giving somebody a hug, because then somebody will turn it into something else.
+ - Take your time. Some of these fad diets and quick fixes, they might be quick, but you’re going to crash and burn.
+ - The community in Utah was very religious. I was a typical teenage girl trying to find my sexuality. Unfortunately, girls do use their sexuality to find attention. I also understand why parents want to protect their kids.
+ - Dancing is so great because there are all the little details, and the little movements, and the little muscles that are working without you even realizing.
+ - When you dance on your own there is something so magical and so special.
+ - Okay, I’ll say I would go back in time and bring scientists with me and create a hairspray that would not cause global warming. But it would still give us ’80s hair.
+ - I love to swim. I need goggles. If I don’t have goggles I run in to the walls of the pool. I have no sense of directions.
+ - I’ve always wanted to sing country music.
+ - If I’m like, ‘Oh, this is not something that I want to do,’ that means I have to do it. That’s always a good motivation.
+ - I always tweet about where we’re at. Since I’m performing at amphitheaters, I’ll try to run up and down the stairs and across the field.
+ - I love to act, I love to sing and I love to entertain, so if I am passionate about a certain project and I want to do it, I hope to stretch my acting skills.
+ - Acting is like free therapy! Trying to make people laugh or cry can be inspiring.
+ - But trust me, if I lived in the ’80s, I would definitely be the one going to the record stores.
+ - I’m really loving acting. I want this as a career. I’ll still write music and collaborate with people, but I’m focused on the acting path.
+ - I’m one of those people that loves to try everything.
+ - Even if you’re a guy and you don’t believe in dancing, you should try dance cardio. It’s really fun!
+ - There was a time when my mum would sew costumes for the dance studio so we could keep doing our classes because we couldn’t afford them.
+ - I cannot go to sleep without reading.
+ - I also like to feel good when I’m working out. If I put schlubby clothes on, I’m like, ‘Blah.’ I don’t really want to work out. But if I’m feeling cute and I’m looking good – that’s my motivation.
+ - I may not be as active in it as some people are, but I think that the church has taught me great life lessons.
+ - I think at the end of the day you have to find a balance with what’s really important.
+ - Dancing and acting satisfy me in different ways.
+ - I’m very blessed and I don’t take anything for granted.
+ - Everybody loves music and it’s fun – you feel like you’re not working out. It makes the time go by quick and you’re having fun and, especially if you take a class, there’s the energy of other people and you’re laughing.
+ - I try to bring my mascara everywhere because I’m a blonde and you know blondes have really light eyelashes, you always wanna put more and more on ’til they look like spiders, that’s just what I do.
+ - Keep believing in yourself, and don’t ever give up, even if people tell you otherwise. Just believe in yourself and take every action you need to get there, whether it’s taking more lessons or a fun, cool job in New York or LA and stepping out of the box. Be a little bit risky, but still confident.
+
+70 quotes

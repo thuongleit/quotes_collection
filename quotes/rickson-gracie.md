@@ -1,0 +1,47 @@
+ - Our fears don’t stop death, they stop life.
+ - I am a shark, the ground is my ocean, and most people can’t even swim.
+ - If size mattered, the elephant would be king of the jungle.
+ - A strong body is a good asset. A strong mind is a very good asset.
+ - My code of life and my personal bushido is honour, respect, loyalty, courage and surrender.
+ - Not the past, not the future, life is now.
+ - The opposite of courage is conformity.
+ - If you believe, then you have already taken the first step towards your achievement.
+ - True strength is not always shown through victory. Stand up, try again and display strength of heart.
+ - A 10,000 mile walk, begins with a single step and continues one step at a time.
+ - The journey has to be based on passion. Put yourself in something you love to do. If you love what you do you’re able to dedicate yourself, overcome obstacles.
+ - Sometimes, you don’t have to win, you cannot win. but that has nothing to do with losing.
+ - I see fear as a sign of intelligence, of preservation.
+ - A brave man, a real fighter is not measured by how many times he falls, but how many times he stands up.
+ - Jiu-jitsu puts you completely in the moment, where you must have a complete focus on finding a solution to the problem. This trains the mind to build that focus, to increase your awareness, your capacity to solve problems.
+ - Finding the balance between body, mind and spirit is a great achievement.
+ - If you are ready to die, then you are ready to live.
+ - Self-defence, self-confidence, discipline and self control. The values you learn are priceless.
+ - When setting a long-term goal, find the pace necessary to achieve it.
+ - The biggest gift I received as a martial artist is without a question the capacity to be in peace.
+ - My inspiration’s coming from nature, I love nature and all the expressions, I love art, I love expressions of beauty. It’s part of my life, being engaged in the moment.
+ - What makes you tough is your mindset and I believe anyone can be tough.
+ - When I am fighting I am keeping my mind empty for any expectations. I am waiting for something unique, completely new.
+ - Can I overcome pressure? Yes. This is always my first thought.
+ - If you are not comortable to deal with an opponent 50 lbs heavier than you, there is something wrong with your Jiu Jitsu...
+ - I always keep my mind open. For me, a mind has to work like like a parachute, works only if it’s open.
+ - In life, when presented with any situation, breathe, take your time, focus and then decide what to do.
+ - Forgiveness is its own reward.
+ - The most important thing is not victory, the most important thing is don’t get defeated.
+ - The search for truth begins in your heart.
+ - Study is a life long pursuit.
+ - It doesn’t matter what it is, it becomes better with love.
+ - Being in an empty mind increases my intuition, my sense of energy.
+ - When you are on the ground, only one of you two can be comfortable at any one time. Either you are comfortable or the opponent is. Your job is to transfer the comfortable from him to you in every position.
+ - If today you have nothing to be happy about, thank God for the potential of tomorrow.
+ - Don’t be rushed, be sure.
+ - Willingness to learn is the mark of a youthful mind.
+ - I don’t believe in luck; it’s just dedication to the technique plus good physical condition.
+ - Be positive and the challenge will be easier.
+ - If we fight for money, I’ll stop hitting you when you ask me to. If we fight for honor, I’ll stop hitting you when I feel like it.
+ - Boxer guys are very tough and they play a very tough game, but its a game. Karate guys, tae kwon doe guys, kickboxers or judo guys, they are very tough guys and a lot of heart and a lot of training, but its very specifically as a sport. It’s not a fight. A fight is everything goes.
+ - Look around and find something for which to be grateful.
+ - If you don’t love yourself, who is supposed to do it for you?
+ - It’s all about how I feel about things. I never expect much, I always felt like I obey my heart.
+ - People are here to serve. We cannot waste potential.
+
+45 quotes

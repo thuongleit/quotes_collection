@@ -1,0 +1,302 @@
+ - People think of education as something they can finish.
+ - However, I continue to try and I continue, indefatigably, to reach out. There’s no way I can single-handedly save the world or, perhaps, even make a perceptible difference – but how ashamed I would be to let a day pass without making one more effort.
+ - Self-education is, I firmly believe, the only kind of education there is.
+ - Violence is the last refuge of the incompetent.
+ - The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.
+ - The true delight is in the finding out rather than in the knowing.
+ - Life is pleasant. Death is peaceful. It’s the transition that’s troublesome.
+ - Those people who think they know everything are a great annoyance to those of us who do.
+ - The most exciting phrase to hear in science, the one that heralds the most discoveries, is not “Eureka!” but ‘That’s funny...’
+ - Writing, to me, is simply thinking through my fingers.
+ - All you have to do is take a close look at yourself and you will understand everyone else.
+ - I am not a speed reader. I am a speed understander.
+ - In life, unlike chess, the game continues after checkmate.
+ - Never let your sense of morals prevent you from doing what is right.
+ - It’s the writing that teaches you.
+ - Today’s science fiction is tomorrow’s science fact.
+ - There never can be a man so lost as one who is lost in the vast and intricate corridors of his own lonely mind, where none may reach and none may save.
+ - Intelligence is an accident of evolution, and not necessarily an advantage.
+ - If knowledge can create problems, it is not through ignorance that we can solve them.
+ - Part of the inhumanity of the computer is that, once it is competently programmed and working smoothly, it is completely honest.
+ - Any planet is ‘Earth’ to those that live on it.
+ - I write for the same reason I breathe – because if I didn’t, I would die.
+ - I do not fear computers. I fear the lack of them.
+ - The saddest aspect of life right now is that science gathers knowledge faster than society gathers wisdom.
+ - Science fiction writers foresee the inevitable, and although problems and catastrophes may be inevitable, solutions are not.
+ - The first step in making rabbit stew is catching the rabbit.
+ - There are no nations! There is only humanity. And if we don’t come to understand that right soon, there will be no nations, because there will be no humanity.
+ - The intelligent man is never bored.
+ - Whenever I have endured or accomplished some difficult task – such as watching television, going out socially or sleeping – I always look forward to rewarding myself with the small pleasure of getting back to my typewriter and writing something.
+ - There is as yet insufficient data for a meaningful answer.
+ - It is the writer who might catch the imagination of young people, and plant a seed that will flower and come to fruition.
+ - Writing is a lonely job. Even if a writer socializes regularly, when he gets down to the real business of his life, it is he and his type writer or word processor. No one else is or can be involved in the matter.
+ - The law of conservation of energy tells us we can’t get something for nothing, but we refuse to believe it.
+ - If my doctor told me I had only six minutes to live, I wouldn’t brood. I’d type a little faster.
+ - There is an art to science, and a science in art; the two are not enemies, but different aspects of the whole.
+ - Your assumptions are your windows on the world. Scrub them off every once in a while, or the light won’t come in.
+ - Self-education is a continuing source of pleasure to me, for the more I know, the fuller my life is and the better I appreciate my own existence.
+ - Any book worth banning is a book worth reading.
+ - A subtle thought that is in error may yet give rise to fruitful inquiry that can establish truths of great value.
+ - Maybe happiness is this: not feeling like you should be elsewhere, doing something else, being someone else.
+ - Properly read, the Bible is the most potent force for atheism ever conceived.
+ - The day you stop learning is the day you begin decaying.
+ - Science can amuse and fascinate us all, but it is engineering that changes the world.
+ - They won’t listen. Do you know why? Because they have certain fixed notions about the past. Any change would be blasphemy in their eyes, even if it were the truth. They don’t want the truth; they want their traditions.
+ - Economics is on the side of humanity now.
+ - The greatest weapons in the conquest of knowledge are an understanding mind and the inexorable curiosity that drives it on.
+ - If all human beings understood history, they might cease making the same stupid mistakes over and over.
+ - Science does not promise absolute truth, nor does it consider that such a thing necessarily exists. Science does not even promise that everything in the Universe is amenable to the scientific process.
+ - Any system which allows men to choose their own future will end by choosing safety and mediocrity, and in such a Reality the stars are out of reach.
+ - Life is a journey, but don’t worry, you’ll find a parking spot at the end.
+ - To succeed, planning alone is insufficient. One must improvise as well.
+ - There is a single light of science, and to brighten it anywhere is to brighten it everywhere.
+ - Humanity has the stars in its future, and that future is too important to be lost under the burden of juvenile folly and ignorant superstition.
+ - The great secret of the successful fool is that he’s no fool at all.
+ - The final end of Eternity, and the beginning of Infinity.
+ - Any teacher that can be replaced by a computer should be replaced by a computer.
+ - Never judge your own writing. You’re not fit to do so.
+ - Emotionally I am an atheist. I don’t have the evidence to prove that God doesn’t exist, but I so strongly suspect he doesn’t that I don’t want to waste my time.
+ - And in man is a three-pound brain which, as far as we know, is the most complex and orderly arrangement of matter in the universe.
+ - My feeling is that as far as creativity is concerned, isolation is required. Creation is embarrassing. For every new good idea you have, there are a hundred, ten thousand foolish ones.
+ - I wish that I could say I was optimistic about the human race. I love us all, but we are so stupid and shortsighted that I wonder if we can lift our eyes to the world about us long enough not to commit suicide.
+ - We are reaching the stage where the problems we must solve are going to become insoluble without computers. I do not fear computers, I fear the lack of them.
+ - So the universe is not quite as you thought it was. You’d better rearrange your beliefs, then. Because you certainly can’t rearrange the universe.
+ - To make discoveries, you have to be curious about why the universe is the way it is.
+ - All roads lead to Trantor, and that is where all stars end.
+ - It has been my philosophy of life that difficulties vanish when faced boldly.
+ - The first law of dietetics seems to be: if it tastes good, it’s bad for you.
+ - Suppose that we are wise enough to learn and know – and yet not wise enough to control our learning and knowledge, so that we use it to destroy ourselves? Even if that is so, knowledge remains better than ignorance.
+ - Working ten hour days allows you to fall behind twice as fast as you could working five hour days.
+ - Happiness is doing it rotten your own way.
+ - It is not so much that I have confidence in scientists being right, but that I have so much in nonscientists being wrong.
+ - The human brain, then, is the most complicated organization of matter that we know.
+ - I prefer rationalism to atheism. The question of God and other objects-of-faith are outside reason and play no part in rationalism, thus you don’t have to waste your time in either attacking or defending.
+ - Creationists make it sound as though a ‘theory’ is something you dreamt up after being drunk all night.
+ - There are so many benefits to be derived from space exploration and exploitation; why not take what seems to me the only chance of escaping what is otherwise the sure destruction of all that humanity has struggled to achieve for 50,000 years?
+ - What is really amazing, and frustrating, is mankind’s habit of refusing to see the obvious and inevitable until it is there, and then muttering about unforeseen catastrophes.
+ - There are no happy endings in history, only crisis points that pass.
+ - It is the obvious which is so difficult to see most of the time. People say ‘It’s as plain as the nose on your face.’ But how much of the nose on your face can you see, unless someone holds a mirror up to you?
+ - The dangers that face the world can, every one of them, be traced back to science. The salvations that may save the world will, every one of them, be traced back to science.
+ - Life originated in the sea, and about eighty percent of it is still there.
+ - The laws of history are as absolute as the laws of physics, and if the probabilities of error are greater, it is only because history does not deal with as many humans as physics does atoms, so that individual variations count for more.
+ - I don’t like anything that’s got to be. I want to know why.
+ - Man’s greatest asset is the unsettled mind.
+ - A neat and orderly laboratory is unlikely. It is, after all, so much a place of false starts and multiple attempts.
+ - I don’t believe in extraordinary concatenations of coincidence.
+ - Democracy cannot survive overpopulation.
+ - Individual science fiction stories may seem as trivial as ever to the blinder critics and philosophers of today – but the core of science fiction, its essence has become crucial to our salvation if we are to be saved at all.
+ - The lucky few who can be involved in creative work of any sort will be the true elite of mankind, for they alone will do more than serve a machine.
+ - It was childish to feel disappointed, but childishness comes almost as naturally to a man as to a child.
+ - In theory, there is nothing the computer can do that the human mind can not do. The computer merely takes a finite amount of data and performs a finite number of operations upon them. The human mind can duplicate the process.
+ - Words are a pretty fuzzy substitute for mathematical equations.
+ - Life is glorious when it is happy; days are carefree when they are happy; the interplay of thought and imagination is far superior to that of muscle and sinew.
+ - The Master created humans first as the lowest type, most easily formed. Gradually, he replaced them by robots, the next higher step, and finally he created me, to take the place of the last humans.
+ - Before another century is done it will be hard for people to imagine a time when humanity was confined to one world, and it will seem to them incredible that there was ever anybody who doubted the value of space and wanted to turn his or her back on the Universe.
+ - The false notion that democracy means that my ignorance is just as good as your knowledge.
+ - Naturally, there’s got to be a limit for I don’t expect to live forever, but I do intend to hang on as long as possible.
+ - Humanity is cutting down its forests, apparently oblivious to the fact that we may not be able to live without them.
+ - Society is much more easily soothed than one’s own conscience.
+ - You don’t have to be able to lay eggs to know when one of them is rotten.
+ - You can’t assert an answer just because it’s not something else.
+ - No one can possibly have lived through the Great Depression without being scarred by it. No amount of experience since the depression can convince someone who has lived through it that the world is safe economically.
+ - I expect death to be nothingness and, for removing me from all possible fears of death, I am thankful to atheism.
+ - When stupidity is considered patriotism, it is unsafe to be intelligent.
+ - All life is nucleic acid; the rest is commentary.
+ - Nothing interferes with my concentration. You could put on an orgy in my office and I wouldn’t look up. Well, maybe once...
+ - A robot must protect its own existence as long as such protection does not conflict with the First or Second Laws.
+ - If you ask for too much, you lose even that which you have.
+ - Oh, for a pin that would puncture pretension!
+ - It’s humbling to think that all animals, including human beings, are parasites of the plant world.
+ - And above all things, never think that you’re not good enough yourself. A man should never think that. My belief is that in life people will take you at your own reckoning.
+ - The advance of genetic engineering makes it quite conceivable that we will begin to design our own evolutionary progress.
+ - There is no belief, however foolish, that will not gather its faithful adherents who will defend it to the death.
+ - When I die I won’t go to heaven or hell; there will just be nothingness.
+ - The closer to the truth, the better the lie, and the truth itself, when it can be used, is the best lie.
+ - Inspect every piece of pseudoscience and you will find a security blanket.
+ - All humanity could share a common insanity and be immersed in a common illusion while living in a common chaos. That can’t be disproved, but we have no choice but to follow our senses.
+ - Science is a set of rules to keep us from telling lies to each other. All scientists really have is a reputation for telling the truth.
+ - The true artist is quite rational as well as imaginative and knows what he is doing; if he does not, his art suffers.
+ - You wait for the war to happen like vultures. If you want to help, prevent the war. Don’t save the remnants. Save them all.
+ - No vision of God and heaven ever experienced by the most exalted prophet can, in my opinion, match the vision of the universe as seen by Newton or Einstein.
+ - It takes more than capital to swing business. You’ve got to have the A. I. D. degree to get by – Advertising, Initiative, and Dynamics.
+ - There is no more desire to live past one’s time than to die before it.
+ - Surely no child, and few adults, have ever watched a bird in flight without envy.
+ - Nothing has to be true, but everything has to sound true.
+ - We all know we fall. Newton’s discovery was that the moon falls, too-and by the same rule that we do.
+ - Unfortunately, in many cases, people who write science fiction violate the laws of nature, not because they want to make a point, but because they don’t know what the laws of nature are.
+ - The whole business is the crudest sort of stratagem, since we have no way of foreseeing it to the end. It is a mere paying out of rope on the chance that somewhere along the length of it will be a noose.
+ - Having no unusual coincidence is far more unusual than any coincidence could possibly be.
+ - You show me someone who can’t understand people and I’ll show you someone who has built up a false image of himself.
+ - If you have talent, you will receive some measure of success – but only if you persist.
+ - Any fool can tell a crisis when it arrives. The real service to the state is to detect it in embryo.
+ - Saying something is ‘too bad’ is easy. You say you disapprove, which makes you a nice person, and then you can go about your business and not be interested anymore. It’s a lot worse than ‘too bad.’ It’s against everything decent and natural.
+ - A robot may not injure a human being, or, through inaction, allow a human being to come to harm.
+ - Old people think young people haven’t learned about love. Young people think old people have forgotten about love.
+ - My feeling is, quite simply, that if there is a God, He has done such a bad job that he isn’t worth discussing.
+ - It pays to be obvious, especially if you have a reputation for subtlety.
+ - It is change continuing change, inevitable change that is the dominant factor in society today.
+ - It’s a poor atom blaster that won’t point both ways.
+ - A fire-eater must eat fire even if he has to kindle it himself.
+ - Anything you make forbidden gains sexual attractiveness. Would you be particularly interested in women’s breasts if you lived in a society in which they were displayed at all times?
+ - I type 90 words per minute on the typewriter; I type 100 words per minute on the word processor. But, of course, I don’t keep that up indefinitely – every once in a while I do have to think a few seconds.
+ - It’s just science fiction so it’s allowed to be silly, and childish, and stupid. It’s just science fiction, so it doesn’t have to make sense. It’s just science fiction, so you must ask nothing more of it than loud noises and flashing lights.
+ - The facts, gentlemen, and nothing but the facts, for careful eyes are narrowly watching.
+ - When asked for advice by beginners. Know your ending, I say, or the river of your story may finally sink into the desert sands and never reach the sea.
+ - If you’re born in a cubicle and grow up in a corridor, and work in a cell, and vacation in a crowded sun-room, then coming up into the open with nothing but sky over you might just give you a nervous breakdown.
+ - Married life had taught him the futility of arguing with a female in a dark-brown mood.
+ - Finished products are for decadent minds.
+ - Even as a youngster, though, I could not bring myself to believe that if knowledge presented danger, the solution was ignorance.
+ - There is nothing frightening about an eternal dreamless sleep. Surely it is better than eternal torment in Hell and eternal boredom in Heaven.
+ - The most hopelessly stupid man is he who is not aware he is wise.
+ - At odd and unpredictable times, we cling in fright to the past .
+ - The easiest way to solve a problem is to deny it exists.
+ - The greatest inventors are unknown to us. Someone invented the wheel – but who?
+ - Theories are not so much wrong as incomplete.
+ - The cure for advanced gullibility is to go to sleep and consider matters again the next day.
+ - I don’t believe in an afterlife, so I don’t have to spend my whole life fearing hell, or fearing heaven even more. For whatever the tortures of hell, I think the boredom of heaven would be even worse.
+ - No sensible decision can be made any longer without taking into account not only the world as it is, but the world as it will be.
+ - Writing is my only interest. Even speaking is an interruption.
+ - Dreams may be impossible, yet still be dreamed.
+ - It seems to me, Golan, that the advance of civilization is nothing but an exercise in the limiting of privacy.
+ - Things do change. The only question is that since things are deteriorating so quickly, will society and man’s habits change quickly enough?
+ - What would I do if I knew I only had six months to live? Type faster.
+ - It is not only the living who are killed in war.
+ - Every religion seems like a fantasy to outsiders, but as holy truth to those of the faith.
+ - Meanwhile, fears of universal disaster sank to an all time low over the world.
+ - I am an atheist, out and out. It took me a long time to say it.
+ - Where any answer is possible, all answers are meaningless.
+ - It is the invariable lesson to humanity that distance in time, and in space as well, lends focus. It is not recorded, incidentally, that the lesson has ever been permanently learned.
+ - The significant chemicals of living tissue are rickety and unstable, which is exactly what is needed for life.
+ - People are entirely too disbelieving of coincidence.
+ - The vast majority, who believe in astrology and think that the planets have nothing better to do than form a code that will tell them whether tomorrow is a good day to close a business deal or not, become all the more excited and enthusiastic.
+ - After years of finding mathematics easy, I finally reached integral calculus and came up against a barrier. I realized that this was as far as I could go, and to this day I have never successfully gone beyond it in any but the most superficial way.
+ - Do not forget that a traitor within our ranks, known to us, can do more harm to the enemy than a loyal man can do good to us.
+ - Past glories are poor feeding.
+ - The Earth should not be cut up into hundreds of different sections, each inhabited by a self-defined segment of humanity that considers its own welfare and its own “national security” to be paramount above all other consideration.
+ - Experimentation is the least arrogant method of gaining knowledge. The experimenter humbly asks a question of nature.
+ - Modern science fiction is the only form of literature that consistently considers the nature of the changes that face us.
+ - To surrender to ignorance and call it God has always been premature, and it remains premature today.
+ - Rejection slips, or form letters, however tactfully phrased, are lacerations of the soul, if not quite inventions of the devil-but there is no way around them.
+ - Jokes of the proper kind, properly told, can do more to enlighten questions of politics, philosophy, and literature than any number of dull arguments.
+ - I never considered myself a patriot. I like to think I recognize only humanity as my nation.
+ - To those who are trained in science, creationism seems a bad dream, a sudden coming back to life of a nightmare, a renewed march of an Army of the Night risen to challenge free thought and enlightenment.
+ - Feminine intuition? Is that what you wanted the robot for? You men. Faced with a woman reaching a correct conclusion and unable to accept the fact that she is your equal or superior in intelligence, you invent something called feminine intuition.
+ - All evil is good become cancerous.
+ - The tyranny that now exists is actual. That which may exist in the future is potential. If we are always to draw back from change with the thought that the change may be for the worse, then there is no hope at all of ever escaping injustice.
+ - I even got a letter from a young woman in British Columbia that began as follows: ‘Today I am eighteen. I am sitting at the window, looking out at the rain, and thinking how much I love you.’
+ - Humanists recognize that it is only when people feel free to think for themselves, using reason as their guide, that they are best capable of developing values that succeed in satisfying human needs and serving human interests.
+ - The human mind works at low efficiency. Twenty percent is the figure usually given. When, momentarily, there is a flash of greater power, it is termed a hunch, or insight, or intuition.
+ - The important prediction is not the automobile, but the parking problem; not radio, but the soap opera; not the income tax, but the expense account; not the Bomb, but the nuclear stalemate.
+ - In life, people will take you at your own reckoning.
+ - Now any dogma, based primarily on faith and emotionalism, is a dangerous weapon to use on others, since it is almost impossible to guarantee that the weapon will never be turned on the user.
+ - I wanted to be a psychological engineer, but we lacked the facilities, so I did the next best thing – I went into politics. It’s practically the same thing.
+ - In the presence of total Darkness, the mind finds it absolutely necessary to create light.
+ - If we only obey those rules that we think are just and reasonable, then no rule will stand, for there is no rule that some will not think is unjust and unreasonable.
+ - Love life seems to be that factor which requires the largest quantity of magical tinkering.
+ - A myth or legend is simply not made up out of a vacuum. Nothing is – or can be. Somehow there is a kernel of truth behind it, however distorted that might be.
+ - It has always been my ambition to die in harness with my head face down on a keyboard and my nose caught between two of the keys.
+ - It’s not so much what you have to learn if you accept weird theories, it’s what you have to UNlearn.
+ - Fertility is hereditary. If your parents didn’t have any children, neither will you. I do not fear computers. I fear the lack of them.
+ - Intuition is the art, peculiar to the human mind, of working out the correct answer from data that is, in itself, incomplete or even, perhaps, misleading.
+ - It’s your fiction that interests me. Your studies of the interplay of human motives and emotion.
+ - This game the Persian Magi did invent, The force of Eastern wisdom to express: From thence to busy Europeans sent, And styled by modern Lombards pensive chess.
+ - John Dalton’s records, carefully preserved for a century, were destroyed during the World War II bombing of Manchester. It is not only the living who are killed in war.
+ - Gratitude is best and most effective when it does not evaporate itself in empty phrases.
+ - Postulates are based on assumption and adhered to by faith. Nothing in the Universe can shake them.
+ - There’s so much knowledge to be had that specialists cling to their specialties as a shield against having to know anything about anything else. They avoid being drowned.
+ - If you were to insist I was a robot, you might not consider me capable of love in some mystic human sense, but you would not be able to distinguish my reactions from that which you would call love so what difference would it make?
+ - Human beings sometimes find a kind of pleasure in nursing painful emotions, in blaming themselves without reason or even against reason.
+ - Night will always be a time of fear and insecurity, and the heart will sink with the sun.
+ - We’re forever teetering on the brink of the unknowable, and trying to understand what can’t be understood.
+ - Scientific truth is beyond loyalty and disloyalty.
+ - Scientific apparatus offers a window to knowledge, but as they grow more elaborate, scientists spend ever more time washing the windows.
+ - I received the fundamentals of my education in school, but that was not enough. My real education, the superstructure, the details, the true architecture, I got out of the public library.
+ - A good question is, of course, the key by which infinite answers can be educed.
+ - There seems to be a feeling that anything that is natural is good. Strychnine is natural.
+ - Inertia! Our ruling class knows one law; no change. Despotism! They know one rule; force. Maldistribution! They know one desire; to hold what is theirs.
+ - Computerization eliminates the middleman.
+ - I am the beneficiary of a lucky break in the genetic sweepstakes.
+ - You must keep sending work out; you must never let a manuscript do nothing but eat its head off in a drawer. You send that work out again and again, while you’re working on another one. If you have talent, you will receive some measure of success – but only if you persist.
+ - Only a lie that wasn’t ashamed of itself could possibly succeed.
+ - The spell of power never quite releases its hold.
+ - The history of science is full of revolutionary advances that required small insights that anyone might have had, but that, in fact, only one person did.
+ - All normal life, Peter, consciously or otherwise, resent domination. If the domination is by an inferior, or by a supposed inferior, the resentment becomes stronger.
+ - Mathematicians deal with large numbers sometimes, but never in their income.
+ - Robots will neither be common nor very good in 2014, but they will be in existence.
+ - There is no merit to discipline under ideal circumstances. I must have it in the face of death or it is worthless.
+ - To any who know the star field well from one certain reference point, stars are as individual as people. Jump ten parsecs, however, and not even your own sun is recognizable.
+ - There was this superstitious fear on the part of the pygmies of the present for the relics of the giants of the past.
+ - There is nothing so eternally adhesive as the memory of power.
+ - Why is it, I wonder, that anyone who displays superior athletic ability is an object of admiration to his classmates, while one who displays superior mental ability is an object of hatred?
+ - All the hundreds of millions of people who, in their time, believed the Earth was flat never succeeded in unrounding it by an inch.
+ - Radiation, unlike smoking, drinking, and overeating, gives no pleasure, so the possible victims object.
+ - Speech as known to us was unnecessary. A fragment of a sentence amounted almost to a long-winded redundancy. A gesture, a grunt, the curve of a facial line – even a significantly timed pause yielded informational juice.
+ - There is not a discovery in science, however revolutionary, however sparkling with insight, that does not arise out of what went before.
+ - Pierre Curie, a brilliant scientist, happened to marry a still more brilliant one-Marie, the famous Madame Curie-and is the only great scientist in history who is consistently identified as the husband of someone else.
+ - How many people is the earth able to sustain?
+ - It was obvious that bigotry was never a one-way operation, that hatred bred hatred!
+ - Many a prophecy, by the mere force of its being believed, is transmuted to fact.
+ - It is in meeting the great tests that mankind can most successfully rise to great heights. Out of danger and restless insecurity comes the force that pushes mankind to newer and loftier conquests.
+ - One thought that occurs to me is that men will continue to withdraw from nature in order to create an environment that will suit them better.
+ - Of course there are worlds. Millions of them! Every star you see has worlds, and most of those you don’t see.
+ - Grip the nettle firmly and it will become a stick with which to beat your enemy.
+ - Politically popular speech has always been protected: even the Jews were free to say ‘Heil Hitler.’
+ - I made up my mind long ago to follow one cardinal rule in all my writing – to be clear.
+ - I don’t subscribe to the thesis, ‘Let the buyer beware,’ I prefer the disregarded one that goes, ‘Let the seller be honest.’
+ - Boasts are wind and deeds are hard.
+ - The world is being Americanized and technologized to its limits, and that makes it dull for some people. Reaching the Moon restores the frontier and gives us the lands beyond.
+ - The world in general disapproves of creativity, and to be creative in public is particularly bad. Even to speculate in public is rather worrisome.
+ - When I feel difficulty coming on, I switch to another book I’m writing. When I get back to the problem, my unconscious has solved it.
+ - Once you get it into your head that somebody is controlling events, you can interpret everything in that light and find no reasonable certainty anywhere.
+ - It is remarkable, Hardin, how the religion of science has grabbed hold.
+ - During the century after Newton, it was still possible for a man of unusual attainments to master all fields of scientific knowledge. But by 1800, this had become entirely impracticable.
+ - What lasts in the reader’s mind is not the phrase but the effect the phrase created: laughter, tears, pain, joy. If the phrase is not affecting the reader, what’s it doing there? Make it do its job or cut it without mercy or remorse.
+ - That’s the harm of Close Encounters: that it convinces tens of millions that that’s what just science fiction is.
+ - I consider violence an uneconomical way of attaining an end. There are always better substitutes, though they may sometimes be a little less direct.
+ - Suppose we were to teach creationism. What would be the content of the teaching? Merely that a creator formed the universe and all species of life ready-made? Nothing more? No details?
+ - Tens of millions of Americans who neither know or understand the actual arguments for, or even against, evolution, march in the Army of the Night with their Bibles held high.
+ - Custom is second nature. Be accustomed to a bald head, sufficiently accustomed, and hair on it would seem monstrous.
+ - I figure that if God actually does exist, he is big enough to understand an honest difference of opinion.
+ - Author’s Notes: This story starts with section 6. This is not a mistake. I have my own subtle reasoning. So, just read, and enjoy.
+ - I have never written a book that didn’t teach me far more than it taught my reader.
+ - It seems to me that God is a convenient invention of the human mind.
+ - No matter how carefully records are kept and filed and computerized, they grow fuzzy with time. Stories grow by accretion. Tales accumulate – like dust. The longer the time lapse, the dustier the history – until it degenerates into fables.
+ - God, how that stings! I’ve spent a lifetime loving science fiction and now I find that you must expect nothing of something that’s just science fiction.
+ - No one suggests that writing about science will turn the entire world into a model of judgment and creative thought. It will be enough if they spread the knowledge as widely as possible.
+ - The age of the pulp magazine was the last in which youngsters, to get their primitive material, were forced to be literate.
+ - I don’t believe in personal immortality; the only way I expect to have some version of such a thing is through my books.
+ - Scientists expect to be improved on and corrected; they hope to be.
+ - Science is a mechanism, a way of trying to improve your knowledge of nature. It’s a system for testing your thoughts against the universe, and seeing whether they match.
+ - It is well-known that the friend of a conqueror is but the last victim.
+ - If a conclusion is not poetically balanced, it cannot be scientifically true.
+ - To bring about destruction by overcrowding, mass starvation, anarchy, the destruction of our most cherished values, there is no need to do anything. We need only do nothing except what comes naturally, and breed. And how easy it is to do nothing.
+ - Was there anything more exciting in life than seeking answers?
+ - A scientist is as weak and human as any man, but the pursuit of science may ennoble him even against his will.
+ - It is the nature of the mind that makes individuals kin, and the differences in the shape, form or manner of the material atoms out of whose intricate relationships that mind is built are altogether trivial.
+ - The downtrodden are more religious than the satisfied.
+ - Why this reluctance to make the change? We fear the process of reeducation.
+ - They don’t want equal time – they want all the time there is.
+ - The whole world might know you and acclaim you, but someone in the past, forever unreachable, forever unknowing, spoils it all.
+ - Courtiers don’t take wagers against the king’s skill. There is the deadly danger of winning.
+ - To test a perfect theory with imperfect instruments did not impress the Greek philosophers as a valid way to gain knowledge.
+ - Scientists derive satisfaction from figuring out the puzzle. It’s about the quest, not the grail.
+ - There is no one so insufferable as a person who gives no other excuse for a peculiar action than saying he had been directed to it in a dream.
+ - They absorb carbon monoxide and carbon dioxide and give out oxygen. What could be more desirable? And they look good in the bargain. Stop chopping down the rain forests and plant more saplings, and we’re on our way.
+ - It is precisely because it is fashionable for Americans to know no science, even though they may be well educated otherwise, that they so easily fall prey to nonsense.
+ - While he lives, he must think; while he thinks, he must dream.
+ - The temptation was great to muster what force we could and put up a fight. It’s the easiest way out, and the most satisfactory to self-respect – but, nearly invariably, the stupidest.
+ - He had read much, if one considers his long life; but his contemplation was much more than his reading. He was wont to say that if he had read as much as other men he should have known no more than other men.
+ - It is always useful, you see, to subject the past life of reform politicians to rather inquisitive research.
+ - One might accept death reasoningly, with every aspect of the conscious mind, but the body was a brute beast that knew nothing of reason.
+ - You can prove anything you want by coldly logical reason – if you pick the proper postulates.
+ - All sorts of computer errors are now turning up. You’d be surprised to know the number of doctors who claim they are treating pregnant men.
+ - If there is a category of human being for whom his work ought to speak for itself, it is the writer.
+ - Science can be introduced to children well or poorly. If poorly, children can be turned away from science; they can develop a lifelong antipathy; they will be in a far worse condition than if they had never been introduced to science at all.
+ - To introduce something altogether new would mean to begin all over, to become ignorant again, and to run the old, old risk of failing to learn.
+ - It is almost impossible to think of something no one has thought of before, but it is always possible to add different frills.
+ - When, however, the lay public rallies round an idea that is denounced by distinguished but elderly scientists and supports that idea with great fervor and emotion – the distinguished but elderly scientists are then, after all, probably right.
+ - When I read about the way in which library funds are being cut and cut, I can only think that American society has found one more way to destroy itself.
+ - Arthur Clarke says that I am first in science and second in science fiction in accordance with an agreement we have made. I say he is first in science fiction and second in science.
+ - In my life there have been several individuals whose presence made it easier for me to think, pleasanter to make my responses.
+
+300 quotes

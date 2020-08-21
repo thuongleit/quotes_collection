@@ -1,0 +1,42 @@
+ - Never let the fear of striking out keep you from playing the game. ~~Babe Ruth
+ - It’s unbelievable how much you don’t know about the game you’ve been playing all your life. ~~Mickey Mantle
+ - If you can’t outsmart people, outwork them. ~~Bill Veeck
+ - Don’t be afraid to take advice. There’s always something new to learn. ~~Babe Ruth
+ - One of the hardest things in life to accept is a called third strike. ~~Robert Frost
+ - Every strike brings me closer to the next home run. ~~Babe Ruth
+ - I swing big, with everything I’ve got. I hit big or I miss big. I like to live as big as I can. ~~Babe Ruth
+ - The hardest thing to do in baseball is to hit a round baseball with a round bat, squarely. ~~Ted Williams
+ - He can run anytime he wants. I’m giving him the red light. ~~Yogi Berra
+ - If you want to end darkness you cannot beat it with a baseball bat, you have to turn on a light. ~~Marianne Williamson
+ - It’s like deja-vu, all over again. ~~Yogi Berra
+ - You better cut the pizza in four pieces because I’m not hungry enough to eat six. ~~Yogi Berra
+ - How can you not be romantic about baseball? ~~Billy Beane
+ - Baseball is the greatest game in the world and deserves the best you can give it. ~~Babe Ruth
+ - Some people are born on third base and go through life thinking they hit a triple. ~~Barry Switzer
+ - Never permit the pressure to exceed the pleasure. ~~Joe Maddon
+ - What I am, what I have, what I am going to leave behind me – all this I owe to the game of baseball. ~~Babe Ruth
+ - Baseball is a slow, sluggish game, with frequent and trivial interruptions, offering the spectator many opportunities to reflect at leisure upon the situation on the field: This is what a fan loves most about the game. ~~Edward Abbey
+ - How old would you be if you didn’t know how old you are? ~~Leroy Satchel Paige
+ - Baseball was, is and always will be to me the best game in the world. ~~Babe Ruth
+ - Sweat plus sacrifice equals success. ~~Charlie Finley
+ - Stick a fork in him. He’s done. ~~Leo Durocher
+ - Swing at the strikes. ~~Yogi Berra
+ - They say I couldn’t play football, I was too small. They say I couldn’t play basketball, I wasn’t tall. They say I couldn’t play baseball at all and now everyday of my life, I ball. ~~Lil Wayne
+ - All I can tell them is pick a good one and sock it. I get back to the dugout and they ask me what it was I hit and I tell them I don’t know except it looked good. ~~Babe Ruth
+ - It ain’t the heat, it’s the humility. ~~Yogi Berra
+ - You have only two hemispheres in your brain – a left and a right side. The left side controls the right side of your body and the right controls the left half. It’s a fact. Therefore, left-handers are the only people in their right minds. ~~Bill Lee
+ - What the hell has Hoover got to do with it? Besides, I had a better year than he did. ~~Babe Ruth
+ - He hits from both sides of the plate. He’s amphibious. ~~Yogi Berra
+ - The other teams could make trouble for us if they win. ~~Yogi Berra
+ - How long have you known me, Jack? And you still don’t know how to spell my name. ~~Yogi Berra
+ - The great trouble with baseball today is that most of the players are in the game for the money and that’s it, not for the love of it, the excitement of it, the thrill of it. ~~Ty Cobb
+ - I’d rather be lucky than good. ~~Lefty Gomez
+ - Slump? I ain’t in no slump... I just ain’t hitting. ~~Yogi Berra
+ - I don’t think about how many people are watching me. I’m just happy to play baseball for myself. ~~Vladimir Guerrero
+ - The more baseball the better. It is a healthful sport and develops team play and initiative, plus an independent attitude. ~~Dwight D. Eisenhower
+ - Baseball is the only thing beside the paper clip that hasn’t changed. ~~Bill Veeck
+ - I would change policy, bring back natural grass and nickel beer. Baseball is the belly-button of our society. Straighten out baseball, and you straighten out the rest of the world. ~~Bill Lee
+ - The way I figured it, I was even with baseball and baseball with me. The game had done much for me, and I had done much for it. ~~Jackie Robinson
+ - I love baseball, I really do. I always told my Dad, I’m not gonna make it working... I like to play ball too much. Which I did. I played hard. You gotta work at this game. You really do. And its fun doing it if you do it the right way. ~~Yogi Berra
+
+40 quotes

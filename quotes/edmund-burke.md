@@ -1,0 +1,398 @@
+ - The only thing necessary for the triumph of evil is for good men to do nothing.
+ - Our patience will achieve more than our force.
+ - Nobody made a greater mistake than he who did nothing because he could do only a little.
+ - Those who don’t know history are destined to repeat it.
+ - Rudeness is the weak man’s imitation of strength.
+ - Evil succeeds when good men do nothing.
+ - Liberty does not exist in the absence of morality.
+ - When you fear something, learn as much about it as you can. Knowledge conquers fear.
+ - To read without reflecting is like eating without digesting.
+ - Good company, lively conversation, and the endearments of friendship fill the mind with great pleasure.
+ - Genuine simplicity of heart is a healing and cementing principle.
+ - There is no safety for honest men except by believing all possible evil of evil men.
+ - The greater the power, the more dangerous the abuse.
+ - Good order is the foundation of all things.
+ - There is a boundary to men’s passions when they act from feelings; but none when they are under the influence of imagination.
+ - Never despair, but if you do, work on in despair.
+ - The true way to mourn the dead is to take care of the living who belong to them.
+ - Applaud us when we run, Console us when we fall, Cheer us when we recover.
+ - If we owned the property, we will be free and prosperous. If so they regain control, we will become poor.
+ - Silence is golden but when it threatens your freedom it’s yellow.
+ - Superstition is the religion of feeble minds.
+ - The traveller has reached the end of the journey!
+ - No passion so effectually robs the mind of all its powers of acting and reasoning as fear.
+ - Turn over a new leaf.
+ - It is not what a lawyer tells me I may do; but what humanity, reason, and justice tell me I ought to do.
+ - The first and simplest emotion which we discover in the human mind, is curiosity.
+ - Never, no never, did Nature say one thing, and wisdom another.
+ - A very great part of the mischiefs that vex the world arises from words.
+ - Beauty in distress is much the most affecting beauty.
+ - Hypocrisy can afford to be magnificent in its promises, for never intending to go beyond promise, it costs nothing.
+ - The truly sublime is always easy, and always natural.
+ - A coward’s courage is in his tongue.
+ - Art is a partnership not only between those who are living but between those who are dead and those who are yet to be born.
+ - An event has happened, upon which it is difficult to speak, and impossible to be silent.
+ - But what is liberty without wisdom, and without virtue? It is the greatest of all possible evils; for it is folly, vice, and madness, without tuition or restraint.
+ - What shadows we are, and what shadows we pursue!
+ - To make us love our country, our country ought to be lovely.
+ - He that struggles with us strengthens our nerves, and sharpens our skill. Our antagonist is our helper.
+ - You can never plan the future by the past.
+ - A perfect democracy is therefore the most shameless thing in the world.
+ - Better to be despised for too anxious apprehensions than ruined by too confident a security.
+ - Bad laws are the worst sort of tyranny.
+ - Slavery is a weed that grows on every soil.
+ - Over-taxation cost England her colonies of North America.
+ - A State without the means of some change is without the means of its conservation.
+ - When bad men combine, the good must associate; else they will fall one by one, an unpitied sacrifice in a contemptible struggle.
+ - Among a people generally corrupt liberty cannot long exist.
+ - Rage and frenzy will pull down more in half an hour than prudence, deliberation, and foresight can build up in a hundred years.
+ - Responsibility prevents crimes.
+ - Between craft and credulity, the voice of reason is stifled.
+ - The arrogance of age must submit to be taught by youth.
+ - The wisdom of our ancestors.
+ - Religion is the basis of civil society, and the source of all good and of all comfort.
+ - Education is the cheap defense of nations.
+ - Beauty is the promise of happiness.
+ - That cardinal virtue, temperance.
+ - Water is insipid, inodorous, colorless and smooth.
+ - People will not look forward to posterity, who never look backward to their ancestors.
+ - What ever disunites man from God, also disunites man from man.
+ - Mere parsimony is not economy. Expense, and great expense, may be an essential part in true economy.
+ - Next to love, Sympathy is the divinest passion of the human heart.
+ - Toleration is good for all, or it is good for none.
+ - Men are qualified for civil liberty in exact proportion to their disposition to put moral chains upon their own appetites.
+ - If we command our wealth, we shall be rich and free; if our wealth commands us, we are poor indeed.
+ - Man is by his constitution a religious animal.
+ - History is a pact between the dead, the living, and the yet unborn.
+ - All men have equal rights, but not to equal things.
+ - History consists, for the greater part, of the miseries brought upon the world by pride, ambition, avarice, revenge, lust, sedition, hypocrisy, ungoverned zeal, and all the train of disorderly appetite.
+ - Custom reconciles us to everything.
+ - Flattery corrupts both the receiver and the giver.
+ - We begin our public affection in our families. No cold relation is a zealous citizen.
+ - All that needs to be done for evil to prevail is good men doing nothing.
+ - Manners are of more importance than laws. Manners are what vex or soothe, corrupt or purify, exalt or debase, barbarize or refine us, by a constant, steady, uniform, insensible operation, like that of the air we breathe.
+ - We must all obey the great law of change. It is the most powerful law of nature.
+ - One source of the sublime is infinity.
+ - Economy is a distributive virtue, and consists not in saving but selection. Parsimony requires no providence, no sagacity, no powers of combination, no comparison, no judgment.
+ - People crushed by law, have no hopes but from power. If laws are their enemies, they will be enemies to laws; and those who have much hope and nothing to lose, will always be dangerous.
+ - All that is necessary for evil to succeed is for good men to do nothing as they must if they believe they can do nothing. There is nothing worse because the council of despair is declaration of irresponsibility; it is Pilate washing his hands.
+ - To complain of the age we live in, to murmur at the present possessors of power, to lament the past, to conceive extravagant hopes of the future, are the common dispositions of the greatest part of mankind.
+ - I thought ten thousand swords must have leaped from their scabbards to avenge even a look that threatened her with insult. But the age of chivalry is gone.
+ - An appearance of delicacy, and even fragility, is almost essential to beauty.
+ - The religion most prevalent in our northern colonies is a refinement on the principles of resistance: it is the dissidence of dissent, and the protestantism of the Protestant religion.
+ - Gambling is a principle inherent in human nature.
+ - Ambition can creep as well as soar.
+ - Circumspection and caution are part of wisdom.
+ - Nothing so effectually deadens the taste of the sublime as that which is light and radiant.
+ - Thank God, men that art greatly guilty are never wise.
+ - Religious persecution may shield itself under the guise of a mistaken and over-zealous piety.
+ - To tax and to please, no more than to love and to be wise, is not given to men.
+ - Education is a nation’s cheapest defence.
+ - Kings will be tyrants from policy, when subjects are rebels from principle.
+ - It is for the most part in our skill in manners, and in the observations of time and place and of decency in general, that what is called taste by way of distinction consists; and which is in reality no other than a more refined judgment.
+ - Man is an animal that cooks his victuals.
+ - This sort of people are so taken up with their theories about the rights of man that they have totally forgotten his nature.
+ - There is but one law for all, namely that law which governs all law, the law of our Creator, the law of humanity, justice, equity – the law of nature and of nations.
+ - The perfection of conversation is not to play a regular sonata, but, like the AEolian harp, to await the inspiration of the passing breeze.
+ - Politics ought to be adjusted not to human reasonings but to human nature, of which reason is but a part and by no means the greatest part.
+ - The pride of men will not often suffer reason to have scope until it can be no longer of service.
+ - All government, indeed every human benefit and enjoyment, every virtue, and every prudent act, is founded on compromise and barter.
+ - Equity money is dynamic and debt money is static.
+ - I venture to say no war can be long carried on against the will of the people.
+ - By hating vices too much, they come to love men too little.
+ - Neither the few nor the many have a right to act merely by their will, in any matter connected with duty, trust, engagement, or obligation.
+ - Teach me, O lark! with thee to greatly rise, to exalt my soul and lift it to the skies.
+ - All virtue which is impracticable is spurious.
+ - Applause is the spur of noble minds, the end and aim of weak ones.
+ - No men can act with effect who do not act in concert; no men can act in concert who do not act with confidence; no men can act with confidence who are not bound together with common opinions, common affections, and common interests.
+ - He was not merely a chip off the old block, but the old block itself.
+ - Your representative owes you, not his industry only, but his judgment; and he betrays instead of serving you if he sacrifices it to your opinion.
+ - Spain: A whale stranded upon the coast of Europe.
+ - I know of nothing sublime which is not some modification of power.
+ - Woman is not made to be the admiration of all, but the happiness of one.
+ - To speak of atrocious crimes in mild language is treason to virtue.
+ - In history, a great volume is unrolled for our instruction, drawing the materials of future wisdom from the past errors and infirmities of mankind.
+ - He only deserves to be remembered by posterity who treasures up and preserves the history of his ancestors.
+ - Restraint and discipline and examples of virtue and justice. These are the things that form the education of the world.
+ - Our manners, our civilization, and all the good things connected with manners and civilization, have, in this European world of ours, depended for ages upon two principles: I mean the spirit of a gentleman, and the spirit of religion.
+ - Nothing tends so much to the corruption of science as to suffer it to stagnate; these waters must be troubled before they can exert their virtues.
+ - Prejudice renders a man’s virtue his habit, and a series of unconnected arts. Though just prejudice, his duty becomes a part of his nature.
+ - Party is a body of men united, for promoting by their joint endeavours the national interest, upon some particular principle in which they are all agreed.
+ - Government is a contrivance of human wisdom to provide for human wants.
+ - Freedom and not servitude is the cure of anarchy; as religion, and not atheism, is the true remedy of superstition.
+ - True humility-the basis of the Christian system-is the low but deep and firm foundation of all virtues.
+ - Nothing in progression can rest on its original plan. We may as well think of rocking a grown man in the cradle of an infant.
+ - The individual is foolish; the multitude, for the moment is foolish, when they act without deliberation; but the species is wise, and, when time is given to it, as a species it always acts right.
+ - True religion is the foundation of society. When that is once shaken by contempt, the whole fabric cannot be stable nor lasting.
+ - Magnanimity in politics is not seldom the truest wisdom; and a great empire and little minds go ill together.
+ - Early and provident fear is the mother of safety.
+ - Free trade is not based on utility but on justice.
+ - If the prudence of reserve and decorum dictates silence in some circumstances, in others prudence of a higher order may justify us in speaking our thoughts.
+ - The hottest fires in hell are reserved for those who remain neutral in times of moral crisis.
+ - It is ordained in the eternal constitution of things, that men of intemperate minds cannot be free. Their passions forge their fetters.
+ - As mankind becomes more enlightened to know their real interests, they will esteem the value of agriculture; they will find it in their natural – their destined occupation.
+ - The yielding of the weak is the concession to fear.
+ - It is an advantage to all narrow wisdom and narrow morals that their maxims have a plausible air; and, on a cursory view, appear equal to first principles. They are light and portable. They are as current as copper coin; and about as valuable.
+ - Make the Revolution a parent of settlement, and not a nursery of future revolutions.
+ - A great empire and little minds go ill together.
+ - The love of lucre, though sometimes carried to a ridiculous excess, a vicious excess, is the grand cause of prosperity to all States.
+ - The question is not whether you have a right to render people miserable, but whether it is not in your best interest to make them happy.
+ - In a free country every man thinks he has a concern in all public matters, – that he has a right to form and a right to deliver an opinion on them. This it is that fills countries with men of ability in all stations.
+ - The essence of tyranny is the enforcement of stupid laws.
+ - It is a general popular error to suppose the loudest complainers for the public to be the most anxious for its welfare.
+ - Adversity is a severe instructor, set over us by one who knows us better than we do ourselves.
+ - An extreme rigor is sure to arm everything against it.
+ - No man can mortgage his injustice as a pawn for his fidelity.
+ - I have not yet lost a feeling of wonder, and of delight, that the delicate motion should reside in all the things around us, revealing itself only to him who looks for it.
+ - By gnawing through a dike, even a rat may drown a nation.
+ - Fiction lags after truth, invention is unfruitful, and imagination cold and barren.
+ - A jealous lover lights his torch from the firebrand of the fiend.
+ - Prudence is not only the first in rank of the virtues political and moral, but she is the director and regulator, the standard of them all.
+ - Oppression makes wise men mad; but the distemper is still the madness of the wise, which is better than the sobriety of fools.
+ - The ocean is an object of no small terror.
+ - The very name of a politician, a statesman, is sure to cause terror and hatred; it has always connected with it the ideas of treachery, cruelty, fraud, and tyranny.
+ - They made and recorded a sort of institute and digest of anarchy, called the rights of man.
+ - Liberty, without wisdom, is license.
+ - Learning will be cast into the mire and trodden down under the hoofs of a swinish multitude.
+ - Whilst shame keeps its watch, virtue is not wholly extinguished in the heart; nor will moderation be utterly exiled from the minds of tyrants.
+ - Curiosity is the most superficial of all the affections; it changes its object perpetually; it has an appetite which is very sharp, but very easily satisfied, and it has always an appearance of giddiness, restlessness and anxiety.
+ - There ought to be system of manners in every nation which a well-formed mind would be disposed to relish. To make us love our country, our country ought to be lovely.
+ - There is a courageous wisdom; there is also a false, reptile prudence, the result not of caution but of fear.
+ - Parliament is a deliberate assembly of one nation, with one interest, that of the whole; where, not local purpose, not local prejudices ought to guide but the general good, resulting from the general reason of the whole.
+ - Those who attempt to level never equalize.
+ - Economy is a distributive virtue, and consists not in saving but in selection.
+ - Tell me what are the prevailing sentiments that occupy the minds of your young peoples, and I will tell you what is to be the character of the next generation.
+ - The only infallible criterion of wisdom to vulgar minds – success.
+ - Man acts from adequate motives relative to his interest, and not on metaphysical speculations.
+ - If the people are happy, united, wealthy, and powerful, we presume the rest. We conclude that to be good from whence good is derived.
+ - The great must submit to the dominion of prudence and of virtue, or none will long submit to the dominion of the great.
+ - In the groves of their academy, at the end of every vista, you see nothing but the gallows.
+ - I do not know the method of drawing up an indictment against a whole people.
+ - The tyranny of a multitude is a multiplied tyranny.
+ - A thing may look specious in theory, and yet be ruinous in practice; a thing may look evil in theory, and yet be in practice excellent.
+ - We set ourselves to bite the hand that feeds us.
+ - There is nothing that God has judged good for us that He has not given us the means to accomplish, both in the natural and the moral world.
+ - Of all things, wisdom is the most terrified with epidemical fanaticism, because, of all enemies, it is that against which she is the least able to furnish any kind of resource.
+ - Some degree of novelty must be one of the materials in almost every instrument which works upon the mind; and curiosity blends itself, more or less, with all our pleasures.
+ - All wealth is power, so power must infallibly draw wealth to itself by some means or other.
+ - Vice itself lost half its evil, by losing all its grossness.
+ - To reach the height of our ambition is like trying to reach the rainbow; as we advance it recedes.
+ - Guilt was never a rational thing; it distorts all the faculties of the human mind, it perverts them, it leaves a man no longer in the free use of his reason, it puts him into confusion.
+ - The unbought grace of life, the cheap defence of nations, the nurse of manly sentiment and heroic enterprise, is gone!
+ - Men have no right to what is not reasonable, and to what is not for their benefit.
+ - The grand instructor, time.
+ - The march of the human mind is slow.
+ - Poetry, with all its obscurity, has a more general as well as a more powerful dominion over the passions than the art of painting.
+ - The great Error of our Nature is, not to know where to stop, not to be satisfied with any reasonable Acquirement; not to compound with our Condition; but to lose all we have gained by an insatiable Pursuit after more.
+ - The people never give up their liberties but under some delusion.
+ - The conduct of a losing party never appears right: at least it never can possess the only infallible criterion of wisdom to vulgar judgements-success.
+ - Evils we have had continually calling for reformation, and reformations more grievous than any evils.
+ - The moment you abate anything from the full rights of men to each govern himself, and suffer any artificial positive limitation upon those rights, from that moment the whole organization of government becomes a consideration of convenience.
+ - Among precautions against ambition, it may not be amiss to take precautions against our own. I must fairly say, I dread our own power and our own ambition: I dread our being too much dreaded.
+ - Power, in whatever hands, is rarely guilty of too strict limitations on itself.
+ - The superfluities of a rich nation furnish a better object of trade than the necessities of a poor one. It is the interest of the commercial world that wealth should be found everywhere.
+ - Power gradually extirpates for the mind every humane and gentle virtue.
+ - When ancient opinions and rules of life are taken away, the loss cannot possibly be estimated. From that moment, we have no compass to govern us, nor can we know distinctly to what port to steer.
+ - Of this stamp is the cant of, Not men, but measures.
+ - No sound ought to be heard in the church but the healing voice of Christian charity.
+ - I do not know how to wish success to those whose Victory is to separate from us a large and noble part of our Empire. Still less do I wish success to injustice, oppression and absurdity.
+ - It is by imitation, far more than by precept, that we learn everything; and what we learn thus, we acquire not only more effectually, but more pleasantly.
+ - The men of England,- the men, I mean, of light and leading in England.
+ - A good parson once said that where mystery begins religion ends. Cannot I say, as truly at least, of human laws, that where mystery begins justice ends?
+ - Humanity cannot be degraded by humiliation.
+ - Nothing turns out to be so oppressive and unjust as a feeble government.
+ - War never leaves where it found a nation.
+ - Passion for fame: A passion which is the instinct of all great souls.
+ - And having looked to Government for bread, on the very first scarcity they will turn and bite the hand that fed them.
+ - Nobility is a graceful ornament to the civil order. It is the Corinthian capital of polished society.
+ - I do ride contend against the advantages of distrust. In the world we live in, it is but too necessary. Some of old called it the very sinews of discretion.
+ - Greater mischief happens often from folly, meanness, and vanity than from the greater sins of avarice and ambition.
+ - I take toleration to be a part of religion. I do not know which I would sacrifice; I would keep them both: it is not necessary that I should sacrifice either.
+ - The grave is a common treasury, to which we must all be taken.
+ - My hold of the colonies is in the close affection which grows from common names, from kindred blood, from similar privileges, and equal protection. These are ties which, though light as air, are as strong as links of iron.
+ - The blood of man should never be shed but to redeem the blood of man. It is well shed for our family, for our friends, for our God, for our country, for our kind. The rest is vanity; the rest is crime.
+ - The credulity of dupes is as inexhaustible as the invention of knaves.
+ - Poetry is the art of substantiating shadows, and of lending existence to nothing.
+ - Example is the school of mankind, and they will learn at no other.
+ - They never will love where they ought to love, who do not hate where they ought to hate.
+ - Society can overlook murder, adultery or swindling; it never forgives preaching of a new gospel.
+ - I cannot conceive how any man can have brought himself to that pitch of presumption, to consider his country as nothing but carte blanche, upon which he may scribble whatever he pleases.
+ - To drive men from independence to live on alms, is itself great cruelty.
+ - Men want to be reminded, who do not want to be taught; because those original ideas of rectitude to which the mind is compelled to assent when they are proposed, are not always as present to us as they ought to be.
+ - Jacobinism is the revolt of the enterprising talents of a country against its property.
+ - Circumstances give in reality to every political principle its distinguishing color and discriminating effect. The circumstances are what render every civil and political scheme beneficial or noxious to mankind.
+ - Law and arbitrary power are at eternal enmity.
+ - They defend their errors as if they were defending their inheritance.
+ - Hypocrisy is no cheap vice; nor can our natural temper be masked for many years together.
+ - Falsehood is a perennial spring.
+ - All human laws are, properly speaking, only declaratory; they have no power over the substance of original justice.
+ - Society cannot exist unless a controlling power upon will and appetite be placed somewhere, and the less of it there is within, the more there must be without.
+ - Great men are the guideposts and landmarks in the state.
+ - The nerve that never relaxes, the eye that never blanches, the thought that never wanders, the purpose that never wavers – these are the masters of victory.
+ - Under the pressure of the cares and sorrows of our mortal condition, men have at all times, and in all countries, called in some physical aid to their moral consolations – wine, beer, opium, brandy, or tobacco.
+ - Old religious factions are volcanoes burnt out.
+ - To govern according to the sense and agreement of the interests of the people is a great and glorious object of governance. This object cannot be obtained but through the medium of popular election, and popular election is a mighty evil.
+ - It is in the relaxation of security; it is in the expansion of prosperity; it is in the hour of dilatation of the heart, and of its softening into festivity and pleasure, that the real character of men is discerned.
+ - People must be taken as they are, and we should never try make them or ourselves better by quarreling with them.
+ - The use of force alone is but temporary. It may subdue for a moment; but it does not remove the necessity of subduing again; and a nation is not governed, which is perpetually to be conquered.
+ - All government is founded on compromise and banter.
+ - To prove that the Americans ought not to be free, we are obliged to deprecate the value of freedom itself.
+ - I would rather sleep in the southern corner of a little country churchyard than in the tomb of the Capulets.
+ - In a democracy, the majority of the citizens is capable of exercising the most cruel oppressions upon the minority.
+ - I am convinced that we have a degree of delight, and that no small one, in the real misfortunes and pain of others.
+ - Laws, like houses, lean on one another.
+ - We must not always judge of the generality of the opinion by the noise of the acclamation.
+ - Those who quit their proper character to assume what does not belong to them are, for the greater part, ignorant both of the character they leave and of the character they assume.
+ - The nature of things is, I admit, a sturdy adversary.
+ - Fellowship in treason is a bad ground of confidence.
+ - Vice incapacitates a man from all public duty; it withers the powers of his under- standing, and makes his mind paralytic.
+ - To innovate is not to reform.
+ - All men that are ruined, are ruined on the side of their natural propensities.
+ - Nothing is so fatal to religion as indifference.
+ - The wise determine from the gravity of the case; the irritable, from sensibility to oppression; the high minded, from disdain and indignation at abusive power in unworthy hands.
+ - General rebellions and revolts of a whole people never were encouraged now or at any time. They are always provoked.
+ - Falsehood and delusion are allowed in no case whatever; but, as in the exercise of all the virtues, there is an economy of truth. It is a sort of temperance, by which a man speaks truth with measure, that he may speak it the longer.
+ - The power of perpetuating our property in our families is one of the most valuable and interesting circumstances belonging to it, and that which tends the most to the perpetuation of society itself.
+ - Many of the greatest tyrants on the records of history have begun their reigns in the fairest manner. But the truth is, this unnatural power corrupts both the heart and the understanding.
+ - Whenever our neighbour’s house is on fire, it cannot be amiss for the engines to play a little on our own.
+ - It is the nature of all greatness not to be exact.
+ - An entire life of solitude contradicts the purpose of our being, since death itself is scarcely an idea of more terror.
+ - My vigour relents. I pardon something to the spirit of liberty.
+ - Contempt is not a thing to be despised. It may be borne with a calm and equal mind, but no man, by lifting his head high, can pretend that he does not perceive the scorns that are poured down on him from above.
+ - One that confounds good and evil is an enemy to good.
+ - The only training for the heroic is the mundane.
+ - The introduction of Christianity, which, under whatever form, always confers such inestimable benefits on mankind, soon made a sensible change in these rude and fierce manners.
+ - He that accuses all mankind of corruption ought to remember that he is sure to convict only one.
+ - The worthy gentleman who has been snatched from us at the moment of the election, and in the middle of the contest, whilst his desires were as warm and his hopes as eager as ours, has feelingly told us what shadows we are, and what shadows we pursue.
+ - Somebody has said, that a king may make a nobleman but he cannot make a gentleman.
+ - Dogs are indeed the most social, affectionate, and amiable animals of the whole brute creation...
+ - Though ugliness be the opposite of beauty, it is not the opposite to proportion and fitness; for it is possible that a thing may be very ugly with any proportions, and with a perfect fitness for any use.
+ - There is a time when the hoary head of inveterate abuse will neither draw reverence nor obtain protection.
+ - The Fate of good men who refuse to become involved in politics is to be ruled by evil men.
+ - Where two motives, neither of them perfectly justifiable, may be assigned, the worst has the chance of being preferred.
+ - The moment that government appears at market, the principles of the market will be subverted.
+ - A great deal of the furniture of ancient tyranny is torn to rags; the rest is entirely out of fashion.
+ - Old religious factions are volcanoes burned out; on the lava and ashes and squalid scoriae of old eruptions grow the peaceful olive, the cheering vine and the sustaining corn.
+ - Continue to instruct the world; and – whilst we carry on a poor unequal conflict with the passions and prejudices of our day, perhaps with no better weapons than other passions and prejudices of our own – convey wisdom to future generations.
+ - I own that there is a haughtiness and fierceness in human nature which will cause innumerable broils, place men in what situation you please.
+ - The most important of all revolutions, a revolution in sentiments, manners and moral opinions.
+ - Frugality is founded on the principal that all riches have limits.
+ - Religion is for the man in humble life, and to raise his nature, and to put him in mind of a state in which the privileges of opulence will cease, when he will be equal by nature, and may be more than equal by virtue.
+ - The more accurately we search into the human mind, the stronger traces we everywhere find of the wisdom of Him who made it.
+ - No government ought to exist for the purpose of checking the prosperity of its people or to allow such a principle in its policy.
+ - It looks to me to be narrow and pedantic to apply the ordinary ideas of criminal justice to this great public contest. I do not know the method of drawing up an indictment against a whole people.
+ - Religion is essentially the art and the theory of the remaking of man. Man is not a finished creation.
+ - Wise men will apply their remedies to vices, not to names; to the causes of evil which are permanent, not the occasional organs by which they act, and the transitory modes in which they appear.
+ - But whoever is a genuine follower of Truth, keeps his eye steady upon his guide, indifferent whither he is led, provided that she is the leader.
+ - It is undoubtedly true, though it may seem paradoxical, – but, in general, those who are habitually employed in finding and displaying faults are unqualified for the work of reformation.
+ - I cannot help concurring with the opinion that an absolute democracy, no more than absolute monarchy, is to be reckoned among the legitimate forms of government.
+ - A nation is not conquered which is perpetually to be conquered.
+ - The person who grieves suffers his passion to grow upon him; he indulges it, he loves it; but this never happens in the case of actual pain, which no man ever willingly endured for any considerable time.
+ - You will smile here at the consistency of those democratists who, when they are not on their guard, treat the humbler part of the community with the greatest contempt, whilst, at the same time they pretend to make them the depositories of all power.
+ - When any work seems to have required immense force and labor to effect it, the idea is grand.
+ - I despair of ever receiving the same degree of pleasure from the most exalted performances of genius which I felt in childhood from pieces which my present judgment regards as trifling and contemptible.
+ - All persons possessing any portion of power ought to be strongly and awfully impressed with an idea that they act in trust, and that they are to account for their conduct in that trust to the one great Master, Author, and Founder of society.
+ - The method of teaching which approaches most nearly to the method of investigation is incomparably the best.
+ - The public interest requires doing today those things that men of intelligence and good will would wish, five or ten years hence, had been done.
+ - It is the function of a judge not to make but to declare the law, according to the golden mete-wand of the law and not by the crooked cord of discretion.
+ - That great chain of causes, which, linking one to another, even to the throne of God Himself, can never be unraveled by any industry of ours.
+ - Futurity is the great concern of mankind.
+ - A people who are still, as it were, but in the gristle, and not yet hardened into the bone of manhood.
+ - Too much idleness, I have observed, fills up a man’s time more completely and leaves him less his own master, than any sort of employment whatsoever.
+ - The greatest crimes do not arise from a want of feeling for others but from an over-sensibilit y for ourselves and an over-indulgence to our own desires.
+ - It is hard to say whether doctors of law or divinity have made the greater advances in the lucrative business of mystery.
+ - Where mystery begins religion ends.
+ - Not men but measures a sort of charm by which many people get loose from every honorable engagement.
+ - The most favourable laws can do very little towards the happiness of people when the disposition of the ruling power is adverse to them.
+ - A populace never rebels from passion for attack, but from impatience of suffering.
+ - Sallust is indisputably one of the best historians among the Romans, both for the purity of his language and the elegance of his style.
+ - Liberty must be limited in order to be possessed.
+ - The writers against religion, whilst they oppose every system, are wisely careful never to set up any of their own.
+ - There never was a bad man that had ability for good service.
+ - Flattery is no more than what raises in a man’s mind an idea of a preference which he has not.
+ - Politics and the pulpit are terms that have little agreement.
+ - There are some men formed with feelings so blunt that they can hardly be said to be awake during the whole course of their lives.
+ - The people of England well know that the idea of inheritance furnishes a sure principle of conservation and a sure principle of transmission, without at all excluding a principle of improvement.
+ - It is known that the taste – whatever it is – is improved exactly as we improve our judgment, by extending our knowledge, by a steady attention to our object, and by frequent exercise.
+ - It is by bribing, not so often by being bribed, that wicked politicians bring ruin on mankind. Avarice is a rival to the pursuits of many.
+ - Wars are just to those to whom they are necessary.
+ - Facts are to the mind what food is to the body.
+ - A disposition to preserve, and an ability to improve, taken together, would be my standard of a statesman.
+ - Public calamity is a mighty leveller.
+ - Dangers by being despised grow great.
+ - Tyrants seldom want pretexts.
+ - To be struck with His power, it is only necessary to open our eyes.
+ - Nothing, indeed, but the possession of some power can with any certainty discover what at the bottom is the true character of any man.
+ - Contempt is not a thing to be despised.
+ - Is it in destroying and pulling down that skill is displayed? The shallowest understanding, the rudest hand, is more than equal to that task.
+ - The same sun which gilds all nature, and exhilarates the whole creation, does not shine upon disappointed ambition.
+ - When a great man has some one object in view to be achieved in a given time, it may be absolutely necessary for him to walk out of all the common roads.
+ - Nothing ought to be more weighed than the nature of books recommended by public authority. So recommended, they soon form the character of the age.
+ - It has all the contortions of the sibyl without the inspiration.
+ - For there is in mankind an unfortunate propensity to make themselves, their views and their works, the measure of excellence in every thing whatsoever.
+ - I have never yet seen any plan which has not been mended by the observations of those who were much inferior in understanding to the person who took the lead in the business.
+ - It is, generally, in the season of prosperity that men discover their real temper, principles, and designs.
+ - I decline the election. It has ever been my rule through life, to observe a proportion between my efforts and my objects. I have never been remarkable for a bold, active, and sanguine pursuit of advantages that are personal to myself.
+ - If you can be well without health, you may be happy without virtue.
+ - A definition may be very exact, and yet go but a very little way towards informing us of the nature of the thing defined.
+ - In all forms of government the people is the true legislator.
+ - The body of all true religion consists, to be sure, in obedience to the will of the Sovereign of the world, in a confidence in His declarations, and in imitation of His perfections.
+ - To execute laws is a royal office; to execute orders is not to be a king. However, a political executive magistracy, though merely such, is a great trust.
+ - Surely the church is a place where one day’s truce ought to be allowed to the dissensions and animosities of mankind.
+ - Religion is among the most powerful causes of enthusiasm.
+ - He had no failings which were not owing to a noble cause; to an ardent, generous, perhaps an immoderate passion for fame; a passion which is the instinct of all great souls.
+ - We must soften into a credulity below the milkiness of infancy to think all men virtuous. We must be tainted with a malignity truly diabolical, to believe all the world to be equally wicked and corrupt.
+ - As to great and commanding talents, they are the gift of Providence in some way unknown to us, they rise where they are least expected; they fail when everything seems disposed to produce them, or at least to call them forth.
+ - Men have no right to put the well-being of the present generation wholly out of the question. Perhaps the only moral trust with any certainty in our hands is the care of our own time.
+ - There is nothing in the world really beneficial that does not lie within the reach of an informed understanding and a well-protected pursuit.
+ - Men who undertake considerable things, even in a regular way, ought to give us ground to presume ability.
+ - Depend upon it that the lovers of freedom will be free.
+ - That the greatest security of the people, against the encroachments and usurpations of their superiors, is to keep the Spirit of Liberty constantly awake, is an undeniable truth.
+ - What is it we all seek for in an election? To answer its real purposes, you must first possess the means of knowing the fitness of your man; and then you must retain some hold upon him by personal obligation or dependence.
+ - Prudence is a quality incompatible with vice, and can never be effectively enlisted in its cause.
+ - Turbulent, discontented men of quality, in proportion as they are puffed up with personal pride and arrogance, generally despise their own order.
+ - Whenever government abandons law, it proclaims anarchy.
+ - Nothing is so rash as fear; its counsels very rarely put off, whilst they are always sure to aggravate the evils from which it would fly.
+ - The tribunal of conscience exists independent of edicts and decrees.
+ - A speculative despair is unpardonable where it our duty to act.
+ - It may be observed, that very polished languages, and such as are praised for their superior clearness and perspicuity, are generally deficient in strength.
+ - You will not think it unnatural that those who have an object depending, which strongly engages their hopes and fears, should be somewhat inclining to superstition.
+ - In such a strait the wisest may well be perplexed and the boldest staggered.
+ - The effect of liberty to individuals is that they may do what they please: we ought to see what it will please them to do, before we risk congratulations.
+ - Government is the exercise of all the great qualities of the human mind.
+ - He who calls in the aid of an equal understanding doubles his own; and he who profits by a superior understanding raises his powers to a level with the height of the superior standing he unites with.
+ - The great inlet by which a colour for oppression has entered into the world is by one man’s pretending to determine concerning the happiness of another.
+ - Pleasure of every kind quickly satisfies.
+ - When slavery is established in any part of the world, those who are free are by far the most proud and jealous of their freedom.
+ - Delusion and weakness produce not one mischief the less, because they are universal.
+ - Magnificence is likewise a source of the sublime. A great profusion of things which are splendid or valuable in themselves is magnificent. The starry heaven, though it occurs so very frequently to our view, never fails to excite an idea of grandeur.
+ - In their nomination to office they will not appoint to the exercise of authority as to a pitiful job, but as to a holy function.
+ - England and Ireland may flourish together. The world is large enough for both of us. Let it be our care not to make ourselves too little for it.
+ - It is undoubtedly the business of ministers very much to consult the inclinations of the people, but they ought to take great care that they do not receive that inclination from the few persons who may happen to approach them.
+ - God has sometimes converted wickedness into madness; and it is to the credit of human reason that men who are not in some degree mad are never capable of being in the highest degree wicked.
+ - Justice is itself the great standing policy of civil society; and any eminent departure from it, under any circumstances, lies under the suspicion of being no policy at all.
+ - I consider how little man is, yet, in his own mind, how great. He is lord and master of all things, yet scarce can command anything.
+ - The marketplace obliges men, whether they will or not, in pursuing their own selfish interests, to connect the general good with their own individual success.
+ - You had that action and counteraction which, in the natural and in the political world, from the reciprocal struggle of discordant powers draws out the harmony of the universe.
+ - The only liberty that is valuable is a liberty connected with order; that not only exists along with order and virtue, but which cannot exist at all without them. It inheres in good and steady government, as in its substance and vital principle.
+ - There are circumstances in which despair does not imply inactivity.
+ - The parties are the gamesters; but government keeps the table, and is sure to be the winner in the end.
+ - Abstract liberty, like other mere abstractions, is not to be found.
+ - The esteem of wise and good men is the greatest of all temporal encouragements to virtue; and it is a mark of an abandoned spirit to have no regard to it.
+ - In effect, to follow, not to force the public inclination; to give a direction, a form, a technical dress, and a specific sanction, to the general sense of the community, is the true end of legislature.
+ - The true danger is when liberty is nibbled away, for expedience, and by parts.
+ - Crimes lead one into another; they who are capable of being forgers are capable of being incendiaries.
+ - Nothing less will content me, than wholeAmerica.
+ - The cause of a wrong taste is a defect of judgment.
+ - By looking into physical causes our minds are opened and enlarged; and in this pursuit, whether we take or whether we lose the game, the chase is certainly of service.
+ - Great men are never sufficiently shown but in struggles.
+ - I have been told by an eminent bookseller, that in no branch of his business, after tracts of popular devotion, were so many books as those on the law exported to the Plantations .
+ - Men are as much blinded by the extremes of misery as by the extremes of prosperity.
+ - Men love to hear of their power, but have an extreme disrelish to be told their duty.
+ - Laws are commanded to hold their tongues among arms; and tribunals fall to the ground with the peace they are no longer able to uphold.
+ - Writers, especially when they act in a body and with one direction, have great influence on the public mind.
+ - Taxing is an easy business. Any projector can contrive new compositions, any bungler can add to the old.
+ - The poorest being that crawls on earth, contending to save itself from injustice and oppression, is an object respectable in the eyes of God and man.
+ - There are cases in which a man would be ashamed not to have been imposed upon. There is a confidence necessary to human intercourse, and without which men are often more injured by their own suspicions than they would be by the perfidy of others.
+
+396 quotes

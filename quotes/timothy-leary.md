@@ -1,0 +1,105 @@
+ - Think for yourself and question authority.
+ - Turn on, Tune in, Drop out.
+ - To use your head, you have to go out of your mind.
+ - Trust your instincts. Do the unexpected. Find the others...
+ - And a new philosophy emerged called quantum physics, which suggest that the individual’s function is to inform and be informed. You really exist only when you’re in a field sharing and exchanging information. You create the realities you inhabit.
+ - Intelligence is the ultimate aphrodisiac.
+ - If you want to change the way people respond to you, change the way you respond to people.
+ - LSD is a psychedelic drug which occasionally causes psychotic behavior in people who have NOT taken it.
+ - Take responsibility for making your own life beautiful.
+ - Whenever in doubt, turn off your mind, relax, float downstream.
+ - To the elitist hedonist, life is the avoidance of boredom and routine.
+ - You’re only as young as the last time you changed your mind.
+ - Everyone carries a piece of the puzzle. Nobody comes into your life by mere coincidence. Trust your instincts. Do the unexpected. Find the others.
+ - You cannot use butterfly language to communicate with caterpillars.
+ - Women who seek to be equal with men lack ambition.
+ - LSD is known to induce psychosis, in people who have never used it.
+ - Grow within the flow.
+ - The PC is the LSD of the ’90s.
+ - The Caterpillar cannot understand the butterfly.
+ - Tune in, turn on, and drop out.
+ - I learned more about psychology in the five hours after taking these mushrooms than in the preceding 15 years of studying and doing research in psychology.
+ - When you get the message, hang up the phone.
+ - Give death a better name or die trying.
+ - The language of God is not English or Latin; the language of God is cellular and molecular.
+ - The universe is an intelligence test.
+ - There are no bad drugs. There’s simply stupid people who don’t know how to use them.
+ - All suffering is caused by being in the wrong place. If you’re unhappy where you are, MOVE.
+ - You are a powerful, unlimited and eternal soul who is here to enjoy the experience of creativity and contribute to humanity’s evolution.
+ - The brain is not a blind, reactive machine, but a complex, sensitive biocomputer that we can program. And if we don’t take the responsibility for programming it, then it will be programmed unwittingly by accident or by the social environnement.
+ - Extraterrestrial intelligence could have sent DNA-seed packets out through space to plant life on hospitable planets such as earth.
+ - LSD, wisely used by professionals, could reprogram enough nervous systems to accelerate consciousness and intelligence before we laid ourselves and our planet waste.“To use your head you have to go out of your mind” “You are a God, act like one”
+ - If you don’t like what you’re doing, you can always pick up your needle and move to another groove.
+ - We cannot study the brain, the instrument for fabricating the realities we inhabit, using the mental constructs of the past.
+ - The brain is the key, the brain is the source, the brain is God. Everything that humans do is neuroecology.
+ - The most important thing you do in your life is to die.
+ - I wanted to scientize myth and mythologize science.
+ - The brain is a robot-computer perfectly designed to fabricate any reality we program it to construct.
+ - You are a God Act like one!
+ - At one point consciousness-altering devices like the microscope and telescope were criminalized for exactly the same reasons that psychedelic plants were banned in later years. They allow us to peer into bits and zones of Chaos.
+ - Psychedelic drugs cause paranoia, confusion, and total loss of reality in politicians that have never taken them.
+ - We are dealing with the best-educated generation in history. But they’ve got a brain dressed up with nowhere to go.
+ - Romantic poetry and fiction of the last 2000 years has blinded us to the fact that emotions are a low form of jungle consciousness. Emotional actions are the most contracted, dangerous form of fanatic stupor.
+ - Man’s best friend is his dogma.
+ - That intermediate manifestation of the divine process which we call the DNA code has spent the last 2 billion years making this planet a Garden of Eden.
+ - Each religion has got their own way of making you feel like a victim. The Christians say “you are a sinner”, and you better just zip up your trousers and give the money to the pope and we’ll give you a room up in the hotel in the sky.
+ - I am 100 percent in favor of the intelligent use of drugs, and 1,000 percent against the thoughtless use of them, whether caffeine or LSD. And drugs are not central to my life.
+ - In a carefully prepared, loving LSD session, a woman will inevitably have several hundred orgasms.
+ - Learning how to operate a soul figures to take time.
+ - Nobody ever understands what a pioneer is doing.
+ - Civilization is unbearable, but it is less unbearable at the top.
+ - A man without justice is a beast, and a man who would make himself a beast forgets the pain of being a man.
+ - If you listen to neurologists and psychiatrists, you’d never fall in love.
+ - Almost everyone today is brain-damaged by our education which is designed to produce docile automatons.
+ - Secrecy is the original sin. The fig leaf in the Garden of Eden. The basic crime against love.
+ - Individual societies begin in harmonious adaptation to the environment and, like individuals, quickly get trapped into nonadaptive, artificial, repetitive sequences.
+ - You simply cannot understand psychedelic drugs, which activate the brain, unless you understand something about computers.
+ - Science is all metaphor.
+ - One cannot evolve from one’s robothood until one realizes how totally one has been robotized.
+ - The first narcotics bust in history is Jehovah busting Adam and Eve for eating of the fruit of the tree of knowledge.
+ - My advice to myself and to everyone else, particularly young people, is to turn on, tune in and drop out.
+ - There are three side effects of acid: enhanced long-term memory, decreased short-term memory, and I forget the third.
+ - If you want to move beyond hive-docility, you must become God the Moralist.
+ - Inner reality is certainly more important than the outer reality.
+ - Giger’s work disturbs us, spooks us, because of its enormous evolutionary time span. It shows us, all too clearly, where we come from and where we are going.
+ - One cannot understand the rhythms and meanings of the outer world until one has mastered the dialects of the body.
+ - We live our lives from A-Z, but forget the other 24 letters in between.
+ - Human beings have a right to change their consciousness, and it is unconscionable and absolutely wrong for any government or any person to stand in the way of someone choosing to change their consciousness.
+ - By drop out, I mean to detach yourself from involvement in secular, external social games.
+ - Fundamentalist Christianity appeals to pre-civilized, prudish tribal people who are not ready for urban feudal pleasures.
+ - To describe externals, you become a scientist. To describe experience, you become an artist.
+ - My advice to people today is as follows: if you take the game of life seriously, if you take your nervous system seriously, if you take your sense organs seriously, if you take the energy process seriously, you must turn on, tune in, and drop out.
+ - The word “religion” beautifully defines itself, of course. It translates “to bind” from the Latin – “re” means back and “ligare” means to tie up. All religions are straightjackets, jackets for the straight.
+ - Get stoned and abandon all constructive activity.
+ - When men set out to kill and bully, they dress up. Suit of armor. Combat boots. Uniform.
+ - The neurogenetic meaning of the cultural revolution is now clear. Neurochemicals are designed to be pursuitist, not escapist. They open the nervous system to the possibilities of future post-terrestrial evolution.
+ - Prayer is ecstatic communication with your innernavigational computer.
+ - Science fictions are suppressed only when likely to contribute more knowledge and freedom than the defensive orthodoxies they challenge.
+ - Our assignment was to topple this prudish, judgmental civilization. And it worked.
+ - After you turn on, don’t spend the rest of your life contemplating the inner wonders. Begin immediately expressing your revelation in acts of beauty.
+ - I despise followers of any kind, especially those who follow me.
+ - What human beings consciously wish is often quite at variance with the results their reflex patterns automatically create for them.
+ - I’ve left specific instructions that I do not want to be brought back during a Republican administration.
+ - Anything is possible after midnight.
+ - The danger of psychedelic drugs, the danger of mind-opening, the danger of consciousness expansion, the danger of inner discovery is a danger to the establishment.
+ - I declare that The Beatles are mutants. Prototypes of evolutionary agents sent by God, endowed with a mysterious power to create a new human species, a young race of laughing freemen.
+ - Higher has always been the trajectory of intelligent evolution.
+ - They’ve outlawed the number one vegetable on the planet.
+ - Ritual is to the internal sciences what experiment is to the external sciences.
+ - We seem to inhabit a universe made up of a small number of elements-particles-bits that swirl in chaotic clouds, occasionally clustering together in geometrically logical temporary configurations.
+ - The mission of DNA is to evolve nervous systems able to escape from the doomed planet and contact manifestations of the same amino-acid seeding that have evolved in other solar systems. The mission is the message – to escape and come home.
+ - In the information age, you don’t teach philosophy as they did after feudalism. You perform it. If Aristotle were alive today he’d have a talk show.
+ - The program is a voyage chart, a series of signals, which, like the pilot’s radio, provides the basic orienting information required for the trip...
+ - The mission of DNA is to evolve nervous systems capable of deciphering the mission of DNA.
+ - Seven million people I turned on, and only one hundred thousand have come by to thank me.
+ - People have to go out of their mind before they can come to their senses.
+ - Of course, the drug does not produce the transcendent experience. It merely acts as a chemical key – it opens the mind, frees the nervous system of its ordinary patterns and structures.
+ - I have always considered myself, when I learned what the word meant, I’ve always considered myself a Pagan.
+ - Express the psychedelic with the cybernetic. Turn on, tune in and boot up.
+ - I declare that The Beatles are mutants.
+ - Critics have told me I’ve ruined the lives of 50 million young people. I can’t be certain of this, since only about 10 million have ever come back to thank me.
+ - Drop out of the public schools. The public schools cannot be compromised with.
+ - Don’t be intimidated by Caesar’s Hollywood fake versions of religiosity. If life has a meaning for you beyond the TV-studio game, you are religious! Spell it out!
+ - Followers do not like themselves, of course; that’s why they crawl. And masters have nothing but contempt for their subservants, which is why they impose such colorful embarrassments upon them.
+
+103 quotes

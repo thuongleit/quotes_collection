@@ -1,0 +1,91 @@
+ - Sometimes all you need is 20 seconds of insane courage.
+ - You will never solve poverty without solving water and sanitation.
+ - If we listen to the better angels of our nature, there are creative and good solutions to serious problems.
+ - If you can’t help people, then what is the point of being successful?
+ - Life is on the wire. The rest is just waiting.
+ - I didn’t grow up with great privilege, nor did I grow up wanting for anything. I was a middle-class kid and, relative to the rest of the world, that’s great wealth.
+ - It’s better to be a fake somebody than a real nobody.
+ - Liberty is a soul’s right to breathe.
+ - Listen, here’s the thing. If you can’t spot the sucker in the first half hour at the table, then you ARE the sucker.
+ - We’re here for such a short time. When your great-great-grandkids study history, don’t you want them to be proud that you were part of the solution?
+ - History is change happening one person at a time.
+ - If you work at something, you get better at it.
+ - You know, a one-term president with some balls who actually got stuff done would have been, in the long run of the country, much better.
+ - Paranoid is what people who are trying to take advantage call you in an effort to get you to drop your guard.
+ - Some people just see the glory and they don’t want to know about the story.
+ - Clean water is only as far away as the nearest tap, and there are taps everywhere. There’s a faucet everywhere. But the reality is, the water in our toilets is cleaner than the water that most people are drinking.
+ - If you are writing a story and trying to draw an audience to come and hear you tell it, it’s got to in some way relate to them. Who wants to come and hear about your specific problems? It’s not therapy – it’s supposed to be a communal piece of entertainment.
+ - People do things in the names of good, and in the name of ideals, but the world isn’t that simple. So they end up doing things that aren’t necessarily good. Even if they think they’re doing the right thing, but when viewed from a different perspective they can look barbaric and crazy.
+ - It’s pretty easy to kind of lose your way. Having kids is really helpful. They kind of disabuse you of the notion of your greatness pretty quickly.
+ - I can’t think of any more important value to instill in our children than the desire to help others. I feel strongly about setting an example for them. Real problems can be solved by the next generation if we instill in them the right values.
+ - It’s just better to be yourself than to try to be some version of what you think the other person wants.
+ - I think what’s important for kids to know is that your decisions here on earth matter, your behavior matters and how you treat other people matters.
+ - The only way I can describe it-at the end of How the Grinch Stole Christmas, you know how his heart grows like five times? Everything is full; it’s just full all the time.
+ - When you have a child, your relationship with every child in the world changes. It’s like you’re in a club you didn’t know existed before a child came into your life. I believe you should make the world more beautiful for all children in any way that you can.
+ - As for poker, I’ve stayed away from that, even though when I was in Vegas for Ocean’s Eleven, I would get accosted by these guys begging me to play. They just want to take my money. They see me, think ‘actor’ and see some easy money.
+ - Right before ‘The Bourne Identity’ came out, I hadn’t been offered a movie in a year.
+ - Please find out what you can do to make a difference. Take five minutes to educate yourself on an issue you didn’t know about before. Then tell somebody else.
+ - I’m always cautious about overstepping any boundaries. At the end of the day, it’s a director’s medium, and if they don’t want to hear from me I just step back.
+ - Any moron with a pack of matches can start a fire. Raining down sulfur takes a huge level of endurance. Mass genocide is the most exhausting activity one can engage in, next to soccer.
+ - Now I feel I have an unspoken deal with the paparazzi: ‘I won’t do anything publicly interesting if you agree not to follow me.’
+ - The very first big photo shoot I ever did was with Bruce Weber. I couldn’t believe this guy was taking my picture, so when he told me to get in the bathtub, I just did. It’s only now, looking back, that I realise, you don’t have to do everything people tell you.
+ - I don’t see as many movies as I used to. Or, I should say, as many movies as I would like to.
+ - Now that I have kids, I’m probably more overprotective than I’ve ever been. My wife’s nickname for me is ‘red alert.’ I sometimes check just to see if the kids are breathing. But I try not to be a helicopter parent.
+ - For a lot of actors, our biggest fear is that we’re going to start talking about things we don’t fully understand and sound like idiots.
+ - I honestly if I get a vacation I’m gonna go and sit on my couch in New York cause that’s the one place I haven’t been for a very long time.
+ - I should have done it years ago. It’s amazing I didn’t even want cigarettes anymore.
+ - My heart goes out to the people of the city of Boston. My thoughts and prayers are with the families who lost loved ones in such a senseless and heartless way.
+ - If you’re just an actor you’re reactive. You’re saying, “Well, I hope Hollywood gives me a role, or gives me a chance at a role,” whereas if you can generate your own content, then you can go where you want to go.
+ - It’s intuitive in terms of when I read a piece of material or I hear about a project. I’m a writer, so I’ve written movies. I’ve read at this point thousands and thousands and thousands of screenplays. So if something gets me, then I don’t ignore that.
+ - I fell in love with a civilian. Not an actress and not a famous actress at that. Because then the attention doesn’t double – it grows exponentially. Because then suddenly everybody wants to be in your bedroom. But I don’t really give them anything.
+ - I was never that much a focus of interest that I became a ‘thing’ at an earlier point in my career. I’m aware of having become a ‘thing’ now, which doesn’t give me a lot of pleasure.
+ - Our problem is civil obedience.
+ - And you know, we were talking about American identity, and where we’ve come from and where we are and where we’re headed. We knew that we wanted to have a hopeful ending and we wanted it to be pro-community, and a pro-democracy type of movie.
+ - I’ll play Pretty Pretty Princess with you if you just let me watch a little bit of March Madness.
+ - Eventually stardom is going to go away from me. It goes away from everybody and all you have in the end is to be able to look back and like the choices you made.
+ - I started really young, like 12 or 13, and then I started doing school plays. We had a really good drama department, so the kind of drama-geek stigma wasn’t really there in my high school.
+ - My wife is my soul mate. I can’t imagine being without her.
+ - I think what makes a good actor’s director is the same thing that makes a good director. Acting is just one of the trades necessary to make a movie.
+ - He’s famous for being obsessive about details.
+ - The thing that I like about Germany is that Germans are so much like us. It’s not like going to some other countries, where the differences are overwhelming and you walk around in a fog. Germans are so similar to Americans.
+ - I’d love to be a dad. I hope I’d be great at it. That’s every man’s fear, yet his most important job.
+ - If Brad Pitt walked down the street, cars would crash into each other. I’m really lucky not to have to deal with that.
+ - The values that I have are the values I was raised with, from where I’m from, which is a middle-class place. So that informs everything about me, my politics and all that stuff. I mean, politically, I vote against my own self-interest at every election. I actively ask these people to raise my taxes.
+ - For Ripley I learned to play some songs on the piano, and I never really played them again.
+ - As actors, we react to the material that’s out there, and I probably just react more strongly to things that I feel will have some social value.
+ - If anybody wanted to photograph my life, they’d get bored in a day.
+ - The better the actor, the less you know about his life. I mean, nobody’s better than De Niro and you don’t know anything about him, right?
+ - As a struggling actor, youre not looking for parts that define you; youre just looking for work.
+ - The whole thrust of theatre is different, just because the writing is so much more respected in a play. Whereas in movies – and having been the writer, I can say from experience – the writer is lower down on the food chain.
+ - I’m becoming far more interested in just functionality and making sure my body is as strong as it can be so I can swing my kids around and not worry about aches and pains.
+ - The ideal life is you don’t sell a single magazine, nobody’s interested, but they want to come see your movie. Because that gives you true freedom.
+ - All parents are trying to balance. Look, I’m lucky in the sense that I can control my hours. I can choose my jobs, and not everybody has that choice. But I definitely, it’s a family decision every time I take a job.
+ - I usually play characters that are a lot different than me. I mean, I’m never in a fight in a movie and if I’m in them, I’m usually losing.
+ - The first time I smoked was at home with my mother and stepfather; they were like, If you are going to do this, we’d rather you did this with us.
+ - It’s usually the exact same three things which are, the Scripts, the Director and the Role those are the three things I look for and really any two of them, If I get two of them that’s usually enough, but definitely those are the things I look for.
+ - My mother is a professor of early childhood education. When I was two she would say she knew I was going to be an actor.
+ - If your movies don’t perform, they just stop calling you.
+ - It was shameful and embarrassing that there were two years in a row without a single actor of color nominated. That’s insane.
+ - I’ve been really lucky. I’ll completely forget that I’m a celebrity. And then something will happen, and I’ll go, ‘Oh, right.’
+ - If there’s an idea I think is really good and I feel like I can write it, then I’ll do it.
+ - I found myself getting more publicly shy when the gala events and big crowds started. Some people embrace it. To me, it’s not worth enough to risk my private life being public.
+ - There are people who appear in the magazines and I don’t know who they are. I’ve never seen anything they’ve done and their careers are over already. They’re famous for maybe 10 minutes. Real careers, I think, take a long time to unfold.
+ - I believe a solid, really strong middle-class is the key to making the country in the best way.
+ - It’s an objective fact, that if you want to solve some of these huge, kind of bigger problems of extreme poverty, you have to include the women. They’re the ones who will get it done.
+ - My parents divorced when I was young but I was brought up in two really loving households. I didn’t have a contentious relationship with my mom or dad.
+ - I think marrying somebody who’s not a celebrity, it just takes a lot of the pressure off.
+ - I think it’s still hard for me to turn down work if it’s really good because for so many years I was so desperate to get a job and couldn’t and so it’s kind of an anathema for me to turn down work.
+ - Generally, the bigger the budget, the less interesting the characters become.
+ - I’ve gotten much better at multi-tasking. It’s hard, though. But, writing a script is not totally focused. You’re taking little breaks, all the time. If a kid runs in, you give ’em a horsey ride. It’s a pretty fluid process.
+ - I love shooting, when the character is interesting and the script is interesting, but the research beforehand is really fun. The whole process makes me anxious and restless, and I have trouble sleeping, just trying to figure out the character.
+ - There are people who just collect a bunch of footage and then edit it later. You definitely feel more protected when a director is moving on when you’ve actually felt something happen and you know they’re watching intently.
+ - Still, the change is nearly indescribable – going from total obscurity to walking down a street in New York and having everybody turn and look; to feel the temperature of a room change when I walked in.
+ - I’ve passed on a lot of huge-money jobs. Money doesn’t enter into the decision-making. If I do a big blockbuster, it’s about how big an audience you’ll get and where you can take them.
+ - I grew up in and the teachers. I think I was very lucky. I think I had a lot of social capital, and so when I found myself in this position of influence, I just – then I started to engage a bit with some of the problems in the world and realize that I could actually have an impact.
+ - I think what makes a good actor’s director is somebody who understands what I’m doing and is respectful of it, but who also has a vision and is directing me toward their vision in a way that feels productive.
+ - As somebody who makes his living in the movie business and wants to contribute to it, I think that the best chance I have of doing that is just consistently working with great directors.
+ - Success is not something I’ve wrapped my brain around. If people go to those movies, then yes, that’s true, big-time success. If not, it’s much ado about nothing.
+ - I never wanted to do the same kind of movies over and over anyway, so my theory on it all is I’m just gonna try and dodge the label and keep doing what I am doing.
+ - Oftentimes when I’m deciding to do a movie, the main thing is really, that I look at, is the director. I’ve come to feel that more and more. The more movies I’ve done and the older I’ve – the more experience I have, I always knew it was a director’s medium, and I always said that.
+
+89 quotes

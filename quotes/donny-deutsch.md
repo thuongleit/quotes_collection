@@ -1,0 +1,26 @@
+ - You know you’re doing what you love when Sunday nights feel the same as Friday nights...
+ - My philosophy is to always find the smartest people you can. Hire people smarter than you.
+ - And here’s what management is: motivating people and putting them in places where they can succeed.
+ - It’s a very simple thing on the make-or-break decision, it’s the guy, and that’s what separates the great leaders and great successes, and if you don’t listen to it, you don’t have it, you’re never gonna get it, ’cause it’s never gonna come from someplace else.
+ - The failure-dichotomy principle: failure is good. Failure is not an option. Balance those in your brain.
+ - Failure is not an option on this one.
+ - When I looked into the mechanics of being a businessman, I found it wasn’t rocket science.
+ - Every great business leader I’ve ever met, in addition to being very smart, very driven, they have this, ‘Why not me? Screw it, I deserve it, let’s go.’ And if you don’t have that, you can’t achieve greatness.
+ - If you can’t embrace both failure or the possibility of failure, or the tremendous fear of failure, you can’t be wildly successful. It’s just an axiomatic truth.
+ - I’ve built my success on the idea that a win for me involves a win for everyone around me.
+ - That outgrowth of arrogance comes at a price: some people don’t like is. I take responsibility for that.
+ - Every business is about understanding people. Which people you have to get through. Which people you have to embrace. Which people you have to jump over. Which people you have to push out of the way. That’s the game.
+ - To me, it’s always what’s next and I think that’s what drives most very successful people. It’s never about the money. I mean that’s a way of keeping score. It’s about achievement and it’s about winning a game and it’s about upping the ante.
+ - The only thing I hated about the agency business was a lot of business travel. It was the only part of my job that I did not like. I found it very tedious and wearing.
+ - I’ve always managed by walking around. Any CEO or leader who spends the majority of his time in his office is not doing his job.
+ - I appear wild on the outside, but I’m a conservative businessman.
+ - You can be hard on people as long as you’re just as hard on yourself.
+ - If the person who runs a company has a belief system and everything he does stays fairly truly to that system, it will attract like-minded people who buy into it and then keeps selling itself in concentric circles.
+ - The happiest people are the ones who follow their own dreams most closely.
+ - Changes in my personal life are nerve-racking for me.
+ - There are moments in business and in life when you have to say, “Failure is not an option.”
+ - The passion, the competitiveness, the swinging for the fences, it adds up.
+ - The best bosses understand the people working for them. That’s the first component: what makes my people tick? What are they in it for?
+ - The greatest business icons-it’s not that they were worth hundreds of millions, or billions or trillions of dollars, it’s that they moved society forward.
+
+24 quotes

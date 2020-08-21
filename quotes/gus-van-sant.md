@@ -1,0 +1,76 @@
+ - Apparently there’s this kind of songbird that thinks it dies every time the sun goes down. In the morning, when it wakes up, it’s totally shocked to still be alive – so it sings this really beautiful song.
+ - I try to shoot the first rehearsal because people are more spontaneous. People in real life don’t really know where they are going to be either positioning themselves or how they will be saying their words. When people goof during the first take, it usually looks realistic.
+ - Yeah, I try to be really calm.
+ - And Later I Thought, I Can’t Think How Anyone Can Become a Director Without Learning the Craft of Cinematography.
+ - You never look at the backside of a mirror because when you do, it’ll affect your future because you’re looking at yourself backwards. No, you’re looking at your inner self and you don’t recognize it because you’ve never seen it before.
+ - With ‘Good Will Hunting,’ Miramax made certain the recruited audience wasn’t expecting to laugh at Robin Williams like they normally do. From my limited experience, you can really blow test screenings by conducting them in the wrong way.
+ - I’m a junkie. I like drugs, I like the whole lifestyle, but it just didn’t pay off.
+ - I’ve told people who have just started to make a film that the one thing you might experience is this feeling that everybody is conspiring against you, because you’re not necessarily able to tell what’s real and what’s not.
+ - Free time keeps me going.
+ - I’m not being analytical. I just create everything intuitively. If you’re too analytical, what you’re doing probably ends up being too specific.
+ - I was once a shameless, full-time dope fiend.
+ - Sometimes getting upset with yourself is necessary when you face the truth.
+ - If Im diagnosed with cancer I might become despondent, but someone young might not, and they might need connections with somebody outside their circle of family because their family is so despondent.
+ - Narcotics have been systematically scapegoated and demonized. The idea that anyone can use drugs and escape a horrible fate is ananathema to these idiots. I predict that in the near future, right wingers will use drug hysteria as a pretext to set up an international police apparatus.
+ - A person’s sexuality is so much more than one word “gay.” No one refers to anyone as just “hetero” because that doesn’t say anything. Sexual identity is broader than a label.
+ - I mean, I think I’m pretty sentimental.
+ - The reason I know about ‘Tomb Raider’ is from when I was researching ‘Elephant.’ It was 1999, and I was trying to research the Columbine-massacre kids, and they had played video games, and I, at the time, had never really seen one. It was a world I didn’t know.
+ - Even if you try to copy a film shot by shot, you still can’t. It’s still your own film.
+ - Sometimes, the people who are helping you can drop the ball.
+ - There is a way that a younger person can accept the inevitable problem that they’re going to die, whereas somebody a little bit older might be overcome.
+ - There’s a lot of films that have relatively rigid road maps because they have a script and others that are less rigid because they have less of a script, like ‘Elephant.’ The road map becomes more interpretive, maybe, than one with a detailed script. Editing-wise, they all have their problems.
+ - It’s hard to speculate as a human about the afterlife because you’re not in it. And it’s probably as wild and wacky as you could imagine. The idea that people have figured it out, I’m not sure if I can fathom that.
+ - In rare cases, I’ve had music before I shot the movie. I think that for ‘Good Will Hunting’ I had an Elliot Smith record or a couple of them and I just somehow felt like the sound had something to it that reminded me of the story. So in that case there was music beforehand.
+ - I’d come into filmmaking as a painter so, for me, making ‘Good Will Hunting’ was experimental because I didn’t know how to do it.
+ - Everything’s changing so fast that it’s sometimes hard to keep up.
+ - There is a common theme, though, in the stories I have told, which are usually associations of characters or families that are formed outside of a family circle.
+ - I have my ideas of what a good documentary is, but drama is a different animal because you’re arranging everything.
+ - When you get to be 23, 24 or 25, you start to freeze up and become an adult.
+ - I think that in some cases, I’ve made films that have a sentimental quality, at least as part of the film.
+ - The things that inform student culture are created and controlled by the unseen culture, the sociological aspects of our climbing culture, our ‘me’ generation, our yuppie culture, our SUVs, or, you know, shopping culture, our war culture.
+ - Wong Kar-Wai is a really great inspiration. He’s always referred to as the Jimi Hendrix of filmmaking.
+ - Digital information, for every type of storage, is unfounded. If everything is on a hard drive and the hard drive freezes up, your whole photography collection could just go away. We can still look at printed photographs of our grandparents. We can physically hold them in our hands and look at it.
+ - Casting the locals is my primary concern because all the other things you assume will be manageable.
+ - A lot of times, you’re not necessarily off the page because you haven’t been able to take the time to prepare a character. It’s very easy to find even great actors reading it more like a reading. Things aren’t really coming alive yet, even though you know they will.
+ - In high school, I read ‘Silas Marner’ and I was very attracted to this character – he was very rundown and he’d just stop, and things would happen around him.
+ - Free time keeps me going. It’s just something that’s always been a part of my life. I was originally a painter, and I made films sort of as an extension of that, and then I started to try to make dramatic films because the early films were experimental films.
+ - Even when you’re making a movie about life, death is a presence, and I guess it’s part of my dramatic viewpoint. I’m not sure why exactly.
+ - Yeah, Kubrick’s a big influence. In something like ‘A Clockwork Orange,’ he is trying to use the practical light – I mean, at least he says that in his interviews, like they’re not using traditionally Hollywood lights. In ‘Elephant’ we basically used no lights; we never really adjusted.
+ - If you don’t have the story and the unfolding of the trajectory of the saga, it’s like getting in a car and not having any gas.
+ - The artist himself is actually the subject in everything after, say, 1900. Eventually, art becomes so removed from the community that you have to know about the artist before you can even look at the painting, because there is a conceptual idea going on.
+ - I’m thinking of remaking ‘Psycho’ again. Doing a third remake. The idea this time is to really change it – we’re talking about doing a punk rocker setting.
+ - No construction stiff working overtime takes more stress and straining than we did just to stay high.
+ - When I grew up in the ’60s, we were actually dominated by this, you know, sort of conforming ’50s culture, even though we were like trying to express our own culture, like, the dominant culture was the thing that was forming us. And I think that that’s true today.
+ - If you put up posters around town for high-school kids, high-school kids will come. If you’re casting politicians, you can’t put up posters and have politicians come down.
+ - There are all kinds of ways that people present their films, but that’s kind of a good feeling, if you can make it seem like the characters are really there.
+ - Joanna Priestley is one of the most interesting and adept personal animators and filmmakers. I have enjoyed her work for years and been amazed at how she gets into her own thoughts onto the screen in a very elegant and focused way. You have to see this.
+ - One of the things that is devastating is I realise I haven’t been living a different life than when I was, like, 12. I’m shocked at how reclusive I’ve been since then. I was unaware of it until recently.
+ - As I do with most films, I try and find some music that you could use throughout, not just a sampling of lots of different artists.
+ - I’ve always been attracted to temporary families.
+ - I used to take photographs just to remember people.
+ - I don’t think American independent films have ever really been particularly experimental, except for the original guys from the ’60s who were huge influences, like Stan Brakhage, Robert Breer, and Stan van der Beek. They were the true independents.
+ - I had wanted to do a comedy.
+ - Usually when I read something, first of all I’m looking for the story and then when I reread it, I’m sort of checking every part of it to see if every scene is necessary.
+ - The dark comedies tend to be in a non-releasable area. There can be romantic comedies. There can be dramas. But there’s no ‘dark comedy’ inbox for the advertising.
+ - Now the music industry is sort of like a Craigslist venture, right? Where you’re making your own records and selling them online.
+ - Once you’re directing, you’re kind of in a certain mode, where you’re taking whatever is on the page and forming it into the film that you think it might want to be. So whether it’s my writing or not, I still try to work with it in the same way.
+ - My family moved a lot as a kid. We started in Colorado, where I lived for five years. We moved to Chicago for two years, to San Francisco for one year, Connecticut for seven, Oregon for a couple years, and then I went to school.
+ - My department is to get actors to do stuff.
+ - For all the boredom the straight life brings, it’s not too bad.
+ - The biopic also wasn’t a form that I necessarily believed in, because you can never really get it right, you know? It’s also a form that’s very popular – the straight-ahead biopic.
+ - The area of teenage life is not necessarily rarefied; we’ve all gone through that period. It’s not as rarefied as a western or a space adventure or a gangster film, but it has its own dynamic.
+ - Well, I want to do everything in sort of a documentary style, ever since I started in the ’80s.
+ - Because I didn’t have brothers, I was always interested in the kids down the street that had four brothers in their family, so I became one of them – but it was not my family. I’ve always been attracted to temporary families. They tend to be lost characters.
+ - You’re following your track, the story, your only plan, your map for the audience, and all the other stuff is, like, the fun stuff: the costumes, the locations, the set-dressing and the actors. They can all be variable as you like if you stick – however roughly – to the path.
+ - If a movie isn’t released, it’s one thing, but if you know it will be, it’s nice to have closure and see it come out.
+ - I try to get to know the actors as much as I can. I feel like I’m friends with them for starters and for a week or two, we rehearse when they’re getting the costumes together.
+ - I have this new theory about films. It’s almost like astrology, where if we started on a Tuesday the film will be different than if we started on a Wednesday. Not because of the planets. It’s that sometimes you start with the wrong balance and the whole thing gets messed up.
+ - I’m normally drawn to something I haven’t done and seen before.
+ - I find it interesting, the different rules that apply to journalism and drama, even though journalism has become more and more about entertainment, and entertainment has become more and more about journalism.
+ - When you’re on a film and you’re doubting something, it’s usually because you don’t think the audience is going to like it.
+ - Silent is about needing to make a scene shorter by having physical things to cut to. That way, you can manipulate a character to the other side of the room. But, if they say the wrong thing, it might locate that action in a particular part of the scene. It’s a mechanical need.
+ - If it were up to the executives, they probably wouldn’t have directors at all.
+ - Modern-day cinema takes the form of a sermon. You don’t get to think, you only get to receive information.
+ - I’m usually trying to react to what the actors are coming up with. And then the environment, and then the story.
+
+74 quotes

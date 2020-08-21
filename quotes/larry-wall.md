@@ -1,0 +1,184 @@
+ - Laziness is a programmers main virtue.
+ - Programmers can be lazy.
+ - Real programmers can write assembly code in any language.
+ - Most of you are familiar with the virtues of a programmer. There are three, of course: laziness, impatience, and hubris.
+ - Well, I think Perl should run faster than C.
+ - There’s a saying in the software design industry: “Good. Fast. Cheap. Pick two.”
+ - People get annoyed when you try to debug them.
+ - Many days I don’t write any code at all, and some days I spend all day writing code.
+ - Easy things should be easy, and hard things should be possible.
+ - At many levels, Perl is a ‘diagonal’ language.
+ - Computer programming is really a lot like writing a recipe. If you’ve read a recipe, you know what the structure of a recipe is, it’s got some things up at the top that are your ingredients, and below that, the directions for how to deal with those ingredients.
+ - Call me bored, but don’t call me boring.
+ - Take Lisp, you know its the most beautiful language in the world – at least up until Haskell came along.
+ - The Harvard Law states: Under controlled conditions of light, temperature, humidity, and nutrition, the organism will do as it damn well pleases.
+ - Just don’t create a file called.
+ - Being famous has its benefits, but fame isn’t one of them.
+ - Hubris itself will not let you be an artist.
+ - You can’t change the past. You can’t even change the future, in the sense that you can only change the present one moment at a time, stubbornly, until the future unwinds itself into the stories of our lives.
+ - I procrastinate, but mostly because there’s always too many things to do, and I got the stew in my mind that things do bubble up, so I’ll throw things in there and let them stew around. It’s sort of like greasing the squeaky wheels in my own brain.
+ - To Perl, or not to Perl, that is the kvetching.
+ - Perl is worse than Python because people wanted it worse.
+ - The computer should be doing the hard work. That’s what it’s paid to do, after all.
+ - I think computer science, by and large, is still stuck in the Modern age.
+ - I note that the Python folks still think they like JPython. I wonder how long that will last?
+ - A journey of a thousand miles continues with the second step.
+ - For me, writing is a love-hate relationship.
+ - A lazy person will try to always find some way to do something; they’ll always be looking for ways of doing something faster, more efficiently, and if you really want to control the world, that’s a really sort of hubristic notion – excessive pride, the thing that Zeus zaps you for having.
+ - Unix is like a toll road on which you have to stop every 50 feet to pay another nickel. But hey! You only feel 5 cents poorer each time.
+ - A good messenger expects to get shot.
+ - You want it in one line? Does it have to fit in 80 columns?
+ - We don’t have enough parallel universes to allow all uses of all junction types – in the absence of quantum computing the combinatorics are not in our favor...
+ - Guilty as charged. Perl is happily ugly, and happily derivative.
+ - I think it’s a new feature. Don’t tell anyone it was an accident.
+ - Though I’ll admit readability suffers slightly...
+ - A Perl program is correct if it gets the job done before your boss fires you.
+ - Almost nothing in Perl serves a single purpose.
+ - Over the long term, symbiosis is more useful than parasitism. More fun, too. Ask any mitochondria.
+ - When in doubt, parenthesize. At the very least it will let some poor schmuck bounce on the % key in vi.
+ - The camel has evolved to be relatively self-sufficient. On the other hand, the camel has not evolved to smell good. Neither has Perl.
+ - Computer language design is just like a stroll in the park. Jurassic Park, that is.
+ - I think I’ll side with the pissheads on this one.
+ - Symmetry is overrated. Overrated is symmetry.
+ - Well, coffee is my drug of choice, generally, with a little bit of Pepsi here and there, if I need more sugar. But yeah, if I could do intravenous coffee, I would. But I guess that’s pretty standard.
+ - It is easier to port a shell than a shell script.
+ - We all agree on the necessity of compromise. We just can’t agree on when it’s necessary to compromise.
+ - The problem with being consistent is that there are lots of ways to be consistent, and they’re all inconsistent with each other.
+ - Although the Perl Slogan is There’s More Than One Way to Do It, I hesitate to make 10 ways to do something.
+ - I’ve decided I don’t want to be a manager. Every time you try to be responsive to your employees, they say you’re being reactive and not proactive. And when you try to be proactive, they accuse you of being capricious and arbitrary. So I don’t wanna be a manager...
+ - This job of playing God is a little too big for me. Nevertheless, someone has to do it, so I’ll try my best to fake it.
+ - For the sake of argument I’ll ignore all your fighting words.
+ - It is my job in life to travel all roads, so that some may take the road less travelled, and others the road more travelled, and all have a pleasant day.
+ - As pointed out in a followup, Real Perl Programmers prefer things to be visually distinct.
+ - I was raised a musician and I played classic music, violin, in orchestras and music comedy theaters, I have music running around in my head all the time, and if I hear music that’s too interesting, I have to pay attention to it.
+ - To be a good artist, you have to serve the work of art and allow it to be what it is supposed to be.
+ - You can never entirely stop being what you once were. That’s why it’s important to be the right person today, and not put it off till tomorrow.
+ - The potential of greater good goes right along with the potential for greater evil.
+ - Sometimes I wish I could put an expiration date on my quotes.
+ - Reserve your abuse for your true friends.
+ - Computer languages differ not so much in what they make possible, but in what they make easy.
+ - If any ideology is so serious that you can’t have fun while you’re doing it, it’s probably too serious.
+ - Real theology is always rather shocking to people who already think they know what they think. I’m still shocked myself.
+ - Are you perchance running on a 64-bit machine?
+ - Basically there’s just so much stuff flowing past on the internet now, you have to let most of it go. And I’ve grown accustomed to the process of not worrying too much about the stuff I’m not getting to, because the important stuff will come back around.
+ - But the possibility of abuse may be a good reason for leaving capabilities out of other computer languages, it’s not a good reason for leaving capabilities out of Perl .
+ - When’s the last time you used duct tape on a duct?
+ - The random quantum fluctuations of my brain are historical accidents that happen to have decided that the concepts of dynamic scoping and lexical scoping are orthogonal and should remain that way.
+ - As a linguist, I don’t think of Ada as a big language. Now, English and Japanese, those are big languages. Ada is just a medium-sized language.
+ - Portability should be the default.
+ - Lisp has all the visual appeal of oatmeal with fingernail clippings mixed in.
+ - I wouldn’t ever write the full sentence myself, but then, I never use goto either.
+ - It’s appositival, if it’s there. And it doesn’t have to be there. And it’s really obvious that it’s there when it’s there.
+ - Orthogonality for orthogonality’s sake is not something I’m keen on.
+ - Let us be charitable, and call it a misleading feature.
+ - I think software patents are a bad idea. Many patents are given for trivial inventions.
+ - Post-Modernism was a reaction against Modernism. It came quite early to music and literature, and a little later to architecture. And I think it’s still coming to computer science.
+ - In general, they do what you want, unless you want consistency.
+ - The autodecrement is not magical.
+ - Don’t wear rollerskates to a tug-of-war.
+ - If you write something wrong enough, I’ll be glad to make up a new witticism just for you.
+ - Odd that we think definitions are definitive.
+ - Even if you aren’t in doubt, consider the mental welfare of the person who has to maintain the code after you, and who will probably put parens in the wrong place.
+ - The whole history of computers is rampant with cheerleading at best and bigotry at worst.
+ - It would be possible to optimize some forms of goto, but I haven’t bothered.
+ - I’m never satisfied because I’ve been always interested in too many things and I always want to do everything at once.
+ - All language designers are arrogant. Goes with the territory...
+ - I think the way IBM has embraced the open source philosophy has been quite astonishing, but gratifying. I hope they’ll do very well with it.
+ - If you’re a large corporation, you can afford to pay the money to register patents, but if you’re an individual like me, you can’t.
+ - Many computer scientists have fallen into the trap of trying to define languages like George Orwell’s Newspeak, in which it is impossible to think bad thoughts. What they end up doing is killing the creativity of programming.
+ - What you’ll need most is courage. It is not an easy path that you’ve set your foot upon.
+ - Information wants to be useful.
+ - Perl doesn’t have an infatuation with enforced privacy. It would prefer that you stayed out of its living room because you weren’t invited, not because it has a shotgun.
+ - Perhaps you should compile your Perl with long doubles one of these megaseconds.
+ - You don’t have to know the whole language to use it usefully, you can do baby talk, you can do grown up talk, you can cuss in it, you can write poetry, you can be a playwright, is sort of the idea.
+ - I want to see people using Perl to glue things together creatively, not just technically but also socially.
+ - Younger hackers are hard to classify. They’re probably just as diverse as the old hackers are. We’re all over the map.
+ - It’s certainly easy to calculate the average attendance for Perl conferences.
+ - Part of language design is perturbing the proposed feature in various directions to see how it might generalize in the future.
+ - What about WRITING it first and rationalizing it afterwards?
+ - If you and I always agree, then one of us is redundant.
+ - One operator is no big deal. That can be fixed in a jiffy.
+ - The purpose of most computer languages is to lengthen your resume by a word and a comma.
+ - Just because you’re into control doesn’t mean you’re in control.
+ - When I announced the development of Perl 6, I said it was going to be a community design. I designed Perl, myself. It’s limited by my own brain power. So I wanted Perl 6 to be a community design.
+ - Think of prototypes as a funny markup language – the interpretation is left up to the rendering engine.
+ - I’m a great believer in visual distinctions.
+ - It should be illegal to yell ‘Y2K’ in a crowded economy.
+ - I think I’m likely to be certified before Perl is...
+ - It’s easy to solve the halting problem with a shotgun.
+ - Yes, but I did manage to increase the amount of virginity in the world by that method.
+ - A ‘goto’ in Perl falls into the category of hard things that should be possible, not easy things that should be easy.
+ - And don’t tell me there isn’t one bit of difference between null and space, because that’s exactly how much difference there is.
+ - I’m not too concerned about the future of Perl after me, because I see how these people are interacting with each other and even when I’m not there, they are helping each other and solving each other’s problems in a way that I could not do, even if I were there.
+ - I don’t believe I’ve ever cuddled my elses.
+ - There’s many scripting languages in the world, Perl is a little bit special because it is based more on some ideas from the way natural languages work.
+ - I think operating systems work best if they’re free and open. Particular applications are more likely to be proprietary.
+ - I’m afraid my gut level reaction is basically, proceed is cute, but cute doesn’t cut it in the emergency room.
+ - I’m just paid to do whatever I want to do. Some of the time it’s development, and some of the time it’s just goofing off.
+ - And besides, if Perl really takes off in the Windows space, I think the rest of us would just as soon have a double-agent within ActiveState.
+ - You can’t have filenames longer than 14 chars. You can’t even think about them!
+ - Human languages tend to be much more ambiguous than computer languages because humans are much smarter about interpreting the context.
+ - It won’t be covered in the book. The source code has to be useful for something, after all...
+ - Let’s say the docs present a simplified view of reality...
+ - The trouble with being quoted a lot is that it makes other people think you’re quoting yourself when in fact you’re merely repeating yourself.
+ - Perl was designed to work more like a natural language. It’s a little more complicated but there are more shortcuts, and once you learned the language, it’s more expressive.
+ - Doing linear scans over an associative array is like trying to club someone to death with a loaded Uzi.
+ - To ordinary folks, conversion is not always automatic. It’s something that may or may not require explicit assistance. See Billy Graham.
+ - I still drive my 1977 Honda Accord. The paint is almost all worn off. It’s still running.
+ - Save it for my unauthorized autobiography.
+ - Perhaps I’m missing the gene for making enemies.
+ - Well, you know, Hubbard had a bunch of people sworn to commit suicide when he died. So of course he never officially died...
+ - The world has become a larger place. The universe has been expanding, and Perl’s been expanding along with the universe.
+ - The young think they are immortal, and are determined to prove otherwise.
+ - The way I see it, if you declare something portable, you’ll always be wrong, and if you declare it non-portable, you’ll always be right.
+ - We can debug relationships, but it’s always good policy to consider the people themselves to be features. People get annoyed when you try to debug them.
+ - What is the sound of Perl? Is it not the sound of a wall that people have stopped banging their heads against?
+ - The problems that I really like to solve are our cultural problems.
+ - So please don’t think I have a ‘down’ on the MVS people. I’m just pulling off their arms to beat other people over the head with.
+ - The choice of approaches could be made the responsibility of the programmer.
+ - Would you trust the linguistic intuitions of someone who has been studying Latin or Greek for three days?
+ - I take time to watch anime. I don’t know whether I’m allowed to, but I do it anyway.
+ - If you want your program to be readable, consider supplying the argument.
+ - Any false value is gonna be fairly boring in Perl, mathematicians notwithstanding.
+ - Accidental stacks considered harmful.
+ - It’s easier to make up sayings people like to hear than sayings they like to heed.
+ - I talked about becoming stupid, but I’ve always been stupid. Fortunately I’ve been just smart enough to realize that I’m stupid.
+ - We are so Post-Modern that we don’t realize how Post-Modern we are anymore.
+ - Perl has a long tradition of working around compilers.
+ - I am not a sort of person who wants to run a company.
+ - Now, I’m not the only language designer with irrationalities. You can think of some languages to go with some of these things.
+ - True greatness is measured by how much freedom you give to others, not by how much you can coerce others to do what you want.
+ - Obviously I was either onto something, or on something.
+ - We’re really serious about reinventing everything that needs reinventing.
+ - You need to go and find someone to teach you the rudiments of irrational discourse.
+ - Information doesn’t want to be free. Information wants to be valuable.
+ - Historically speaking, the presence of wheels in Unix has never precluded their reinvention.
+ - I try not to confuse roles and traits in my own life. Being the Perl god is a role. Being a stubborn cuss is a trait.
+ - It’s hard to tune heavily tuned code.
+ - You know, I’ve got my hands in 30 or 40 different pots simultaneously and so I have a little bit of all of that where I work.
+ - Natural languages generally are not designed by humans, they’re just designed by the participants and you say something new and somebody else says, “Oh, that’s a cool way to say it,” and the next thing you know, everyone is saying it because it’s shiny.
+ - There’s some entertainment value in watching people juggle nitroglycerin.
+ - But you have to allow a little for the desire to evangelize when you think you have good news.
+ - That which hits the fan tends to get flung in all directions.
+ - While I have historically been a late worker, you know, sometimes I even like to get up early and see what’s happened in the few hours of the night and then I often take a nap in the middle of the day just to sort of make up for stretching my day out.
+ - Somebody out there is going to do something that’s far more surprising than anything that I would do. I was surprised by the whole web thing in the first place.
+ - I think that’s easier to read. Pardon me. Less difficult to read.
+ - I’m sorry, but you just made me lose my sense of humor, which is deeply regrettable.
+ - I’d make people say ‘use Fork;’ if I thought I could get away with it.
+ - Some of modern engineering is necessary to good art. But I think of myself is a cultural artist.
+ - Down that path lies madness. On the other hand, the road to hell is paved with melting snowballs.
+ - If someone stinks, view it as a reason to help them, not a reason to avoid them.
+ - It’s there as a sop to former Ada programmers.
+ - There’s often more than one correct thing. There’s often more than one right thing. There’s often more than one obvious thing.
+ - I want people to use Perl. I want to be a positive ingredient of the world and make my American history. So, whatever it takes to give away my software and get it used, that’s great.
+ - And in the limiting case where the optimizer is completely broken because it’s not implemented yet, we get to work around that too. Optionally...
+ - Even the White House has a press agent.
+ - Life gets boring, someone invents another necessity, and once again we turn the crank on the screwjack of progress hoping that nobody gets screwed.
+ - I just hope I’m never promoted to the level of my incontinence.
+ - You can prove anything by mentioning another computer language.
+ - Not that I have anything much against redundancy. But I said that already.
+ - Perl is designed to give you several ways to do anything, so consider picking the most readable one.
+ - One of the very basic ideas of Post-Modernism is rejection of arbitrary power structures. Different people are sensitive to different kinds of power structures.
+ - Psychotics are consistently inconsistent. The essence of sanity is to be inconsistently inconsistent.
+
+182 quotes

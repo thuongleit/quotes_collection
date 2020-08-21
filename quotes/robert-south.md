@@ -1,0 +1,39 @@
+ - A true friend is the gift of God, and He only who made hearts can unite them.
+ - Defeat should never be a source of discouragement but rather a fresh stimulus.
+ - An obstacle is often an unrecognized opportunity.
+ - Innocence is like polished armor; it adorns and defends.
+ - Pain is an outcry of sin.
+ - Society is built upon trust.
+ - Much reading is like much eating -wholly useless without digestion.
+ - The seven wise men of Greece, so famous for their wisdom all the world over, acquired all that fame, each of them, by a single sentence consisting of two or three words.
+ - No man’s religion ever survives his morals.
+ - He who does a kindness to an ungrateful person, sets his seal to a flint and sows his seed upon the sand; on the former he makes no impression, and from the latter finds no product.
+ - Guilt upon the conscience, like rust upon iron, both defiles and consumes it, gnawing and creeping into it, as that does which at last eats out the very heart and substance of the metal.
+ - He that tears away a man’s good name tears his flesh from his bones, and, by letting him live, gives him only a cruel opportunity of feeling his misery, of burying his better part, and surviving himself.
+ - In all worldly things that a man pursues with the greatest eagerness he finds not half the pleasure in the possession that he proposed to himself in the expectation.
+ - For he that is a good man, is three quarters of his way towards the being a good Christian, wheresoever he lives, or whatsoever he is called.
+ - Abstinence is the great strengthener and clearer of reason.
+ - The mind begins to boggle at unnatural substances as things paradoxical and incomprehensible.
+ - Passion is the drunkenness of the mind.
+ - An Aristotle was but the rubbish of an Adam, and Athens but the rudiments of Paradise.
+ - Flints may be melted – we see it daily – but an ungrateful heart cannot be; not by the strongest and noblest flame.
+ - The covetous person lives as if the world were made altogether for him, and not he for the world.
+ - Aristotle was but a wreck of an Adam, and Athens but the rubbish of an Eden. How completely sin has defaced the divine image in man! That man has lost his righteousness and happiness is clearly evident as we look at the state of the world today!
+ - He who has no mind to trade with the Devil should be so wise as to keep from his shop.
+ - Anger is a transient hatred; or at least very like it.
+ - The grateful person, being still the most severe exacter of himself, not only confesses, but proclaims, his debts.
+ - It is a noble and great thing to cover the blemishes and excuse the failings of a friend; to draw a curtain before his weaknesses and to display his perfections; to bury his shortcomings in silence but to proclaim his virtues on the housetop.
+ - Action is the highest perfection and drawing forth of the utmost power, vigor, and activity of man’s nature.
+ - God afflicts with the mind of a father, and kills for no other purpose but that he may raise again.
+ - Speech was given to the ordinary sort of men, whereby to communicate their mind; but to wise men, whereby to conceal it.
+ - Folly enlarges men’s desires while it lessens their capacities.
+ - Let a man be but in earnest in praying against a temptation as the tempter is in pressing it, and he needs not proceed by a surer measure.
+ - A man’s life is an appendix to his heart.
+ - There is not the least flower but seems to hold up its head, and to look pleasantly, in the secret sense of the goodness of its Heavenly Maker.
+ - He that despairs measures Providence by his own little contracted model and limits infinite power to finite apprehensions.
+ - God expects from men something more than at such times, and that it were much to be wished for the credit of their religion as well as the satisfaction of their conscience that their Easter devotions would in some measure come up to their Easter dress.
+ - Most of the appearance of mirth in the world is not mirth, it is art. The wounded spirit is not seen, but walks under a disguise.
+ - It is the work of fancy to enlarge, but of judgment to shorten and contract; and therefore this must be as far above the other as judgment is a greater and nobler faculty than fancy or imagination.
+ - Similes prove nothing, but yet greatly lighten and relieve the tedium of argument.
+
+37 quotes

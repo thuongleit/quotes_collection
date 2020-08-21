@@ -1,0 +1,42 @@
+ - There is simple ignorance, not knowing, and willful ignorance that refuses to know, that covers the light of knowledge with the dark blanket of bias.
+ - Having a mother who had been an aeronautical engineer convinced me that more things should be open to women.
+ - I love biomedical science, I love astronomy, and you can’t really do much with those in a fantasy setting.
+ - One thing nobody can do better than you is be you.
+ - It is not wrong to be different. Sometimes it is hard, but it is not wrong.
+ - Hard to be a physics major at Rice University if you have flunked calculus.
+ - This individual does not know where initiative ends and rocket-propelled idiocy begins.
+ - No matter what I do, no matter how predictable I try to make my life, it will not be any more predictable than the rest of the world. Which is chaotic.
+ - My personal feeling about science fiction is that it’s always in some way connected to the real world, to our everyday world.
+ - Most eyes have more than one color, but usually they’re related. Blue eyes may have two shades of blue, or blue and gray, or blue and green, or even a fleck or two of brown. Most people don’t notice that.
+ - People are people, messy and mutable, combining differently with one another from day to day – even hour to hour.
+ - Everything in my life that I value has been gained at the cost of not saying what I really think and saying what they want me to say.
+ - In a novel, I could submerge my ego in a characters and let his perceptions take over.
+ - My first degree came years before my second. I had wanted to be a physicist, but I flunked calculus.
+ - One of my degrees was a science degree in biology.
+ - When a person responds emotionally to intellectual things, or emotionally only to traditional emotional things – I find that an interesting break between myself and some other writers and fans.
+ - I like it that order exists somewhere even if it shatters near me.
+ - Motivation is the power behind plot.
+ - Sometimes I wonder how normal normal people are, and I wonder that most in the grocery store.
+ - No, but a cello is the perfect string bass for an accordion. Works with it beautifully.
+ - Other people, including me, have written books with main characters who were old and rich. Or old and brilliant. Old sages, old wizards, old rich people.
+ - I’ve taught Sunday school, I’ve sung in the choir, I directed a choir.
+ - It may be far in the future, but there’s some kind of logical way to get from where we are to where the science fiction is.
+ - I regarded drugs as somewhat like rattlesnakes – it’s possible to pick one up without getting bit, but why bother?
+ - You can also make explicit certain social problems which, again, would be prejudged or not encountered at all in real life, because people have set up defenses against it. Fantasy allows you to get past defenses.
+ - I like the Beatles, of course, but that’s when I grew up.
+ - I used to not back down from a challenge.
+ - But in fantasy, you can make a complete break, and you can put people in a situation where they are confronted with things that they would not confront in the real world.
+ - I had, of course, no model for that sort of woman being married, but I can make that up as I go along.
+ - Fantasy allows you to get past defenses.
+ - So when I got out of the military, I went back to school in biology, and earned a biology degree at the University of Texas, and then did some graduate work in it.
+ - I can become very emotional about math, although I’m not that good at it.
+ - I revear all the gods but those that delight in cruelty. If Ra’s light is kindly in your eyes than may his light shine on us all.
+ - What it boils down to is that parenting a child with autism is a difficult job; writing about it is far easier.
+ - I actually feel that the different kinds of stories come out of different parts of my brain.
+ - To the gods belong power, and to us the work of our hands.
+ - There are relatively few science fiction or fantasy books with the main character being an old person.
+ - Now my mother, interestingly enough, was not a feminist in her own mind.
+ - When I was starting out, I did not do short fiction well, because I kept wanting to write books.
+ - Having to struggle gave me the chance to demonstrate strength of character.
+
+40 quotes

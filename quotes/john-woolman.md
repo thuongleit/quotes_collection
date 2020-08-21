@@ -1,0 +1,29 @@
+ - To Turn all the treasures we possess into the channel of universal love becomes the business of our lives.
+ - Conduct is more convincing than language.
+ - Wealth is attended with power, by which bargains and proceedings, contrary to universal righteousness, are supported; and hence oppression, carried on with worldly policy and order, clothes itself with the name of justice and becomes like a seed of discord in the soul.
+ - The care of a wise and good man for his only son is inferior to the regard of the great Parent of the universe for his creatures.
+ - I have often felt a motion of love to leave some hints in writing of my experience of the goodness of God, and now, in the thirty-sixth year of my age, I begin this work.
+ - I saw that a humble man, with the blessing of the Lord, might live on a little; and that where the heart is set on greatness, success in business did not satisfy the craving, but that commonly with an increase of wealth, the desire of wealth increased.
+ - To say we love God as unseen and at the same time exercise cruelty toward the least creature moving by His life or by life derived from Him, was a contradiction in itself.
+ - If kind parents love their children and delight in their happiness, then he who is perfect goodness in sending abroad mortal contagions doth assuredly direct their use.
+ - If a man successful in business expends a part of his income in things of no real use, while the poor employed by him pass through difficulties in getting the necessaries of life, this requires his serious attention.
+ - My heart hath often been deeply afflicted under a feeling that the standard of pure righteousness is not lifted up to the people by us, as a society, in that clearness which it might have been, had we been as faithful as we ought to be to the teachings of Christ.
+ - My own will and desires were now very much broken, and my heart was with much earnestness turned to the Lord, to whom alone I looked for help in the dangers before me.
+ - Be careful that the love of gain draw us not into any business which may weaken our love of our Heavenly Father, or bring unnecessary trouble to any of His creatures.
+ - I was born in Northampton, in Burlington County, West Jersey, in the year 1720.
+ - About the twenty-third year of my age, I had many fresh and heavenly openings, in respect to the care and providence of the Almighty over his creatures in general, and over man as the most noble amongst those which are visible.
+ - Now to act with integrity, according to that strength of mind and body with which our creator hath endowed each of use, appears necessary for all.
+ - I find that to be a fool as to worldly wisdom, and to commit my cause to God, not fearing to offend men, who take offence at the simplicity of truth, is the only way to remain unmoved at the sentiments of others.
+ - When men take pleasure in feeling their minds elevated with strong drink, and so indulge their appetite as to disorder their understandings, neglect their duty as members of a family or civil society, and cast off all regard to religion, their case is much to be pitied.
+ - May we look upon our treasure, the furniture of our houses, and our garments, and try to discover whether the seeds of war have nourishment in these our possessions.
+ - All this time I lived with my parents, and wrought on the plantation; and having had schooling pretty well for a planter, I used to improve myself in winter evenings, and other leisure times.
+ - From the steady opposition which faithful Friends in early times made to wrong things then approved, they were hated and persecuted by men living in the spirit of this world, and suffering with firmness, they were made a blessing to the Church, and the work prospered.
+ - The Lord had been very gracious, and spoke peace to me in the time of my distress, and I now most ungratefully turned again to folly; at times I felt sharp reproof, but I did not get low enough to cry for help.
+ - After I had given up to go, the thoughts of the journey were often attended with unusual sadness, at which times my heart was frequently turned to the Lord with inward breathings for his heavenly support, that I might not fail to follow him wheresoever he might lead me.
+ - Through the humbling dispensations of Divine Providence, men are sometimes fitted for his service.
+ - While I meditate on the gulf towards which I travelled, and reflect on my youthful disobedience, for these things I weep, mine eye runneth down with water.
+ - By the breaking in of enraged merciless armies, flourishing countries have been laid waste, great numbers of people have perished in a short time, and many more have been pressed with poverty and grief.
+ - I then wrought at my trade as a tailor; carefully attended meetings for worship and discipline; and found an enlargement of gospel love in my mind, and therein a concern to visit Friends in some of the back settlements of Pennsylvania and Virginia.
+ - Now I find that in pure obedience the mind learns contentment, in appearing weak and foolish to the wisdom which is of this World; and in these lowly labors, they who stand in a low place, rightly exercised under the Cross, will find nourishment.
+
+27 quotes

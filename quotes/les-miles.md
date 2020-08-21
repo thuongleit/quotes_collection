@@ -1,0 +1,32 @@
+ - I’m busy. Thank you very much. Have a great day.
+ - We’re undefeated in regulation.
+ - I just want to remind everybody that it’s Columbus Day. That all those of you that know Italians and like Italians are the people that might venture on to a ship and travel to explore and find new lands, this is your day. It’s not St. Patty’s Day. That’s a different day entirely.
+ - Yeah, we call that mulling around. Okay guys, come on now. What we’re going to do early in this game is mull around, okay? And later, we’re going call that monkey-off-our-back play.
+ - I am disappointed, but I am realistic too. When you put your defense back on the field repeatedly, the offense needs to do its job and the defense needs to get itself off the field.
+ - When I wake up in the morning and I turn that film on, it’s like reading a book and it’s exciting. I don’t read books, but if I read books it would be like reading a book.
+ - The team is never about the single player. It’s not about the injury that keeps a star out of a certain game, and it’s not about the coach. It’s about the strength, and the abilities of the sum.
+ - I think all of our guys work hard and want to improve. They want answers, and the film will be the answer. The coaches will collect it and get better. I do not think anybody wants a rebuilding year. That’s not something that I have ever said.
+ - You hope you can fix it with the personnel that you have. On offense, we are doing some great things, but we did not execute. This group of men that I represent likes to work hard.
+ - I’maa tell you right now as an experience, dammit, I’m going to enjoy that one as much as I hate to admit it.
+ - He seems faster too me. He could get seven to 10 yards in a pretty comfortable fashion. I went up to our defense and said ‘Hey guys, that guy is pretty fast.’
+ - I do not think the crowd affected us, but the position of being in a big time game may well have affected us.
+ - Louisiana has a heritage of great players that play their high school football within the boundaries of Louisiana.
+ - I’ve got a Championship game to play and I’m excited about the opportunity of my damn strong football team to play in it.
+ - There was a contact between a football player and a cheerleader, male I might add. That male cheerleader clipped me from the side as I was running full speed, or slower than full speed, but generally, in the upper quadrant of speed. And I hit the ground pretty good.
+ - I think there are some things that we got accomplished in the last two weeks. Our defending was good and our offensive line took some strides, but we will look at it and analyze it so it will be a long day tomorrow.
+ - I follow Coach Spurrier because he seems to have an entertaining way of communicating.
+ - I do not know what to think of it. We are working hard and improving and we just need to execute better.
+ - I can tell you there is no finer stadium to play in. The traditions that they place in that stadium like when they announce that it’s Saturday night in Death Valley, when the band plays, when that crowd stands and cheers for the Tigers, there is no place like it in America.
+ - I’m the head coach at LSU. I will be the head coach at LSU. I have no interest in talking to anybody else. I got a championship game to play, and I’m excited for the opportunity of my damn strong football team to play in it. Please ask me after. I’m busy. Thank you very much. Have a great day!
+ - I think we are trying to improve for next week. Period. I do not think anybody is thinking about anything else.
+ - This is what you should do, let it rest. I’m playing football for LSU. I’m preparing for R-Kansas. I’m preparing for the next game, and the next game after that.
+ - They’re great kids, great young people, and they fight like hell.
+ - We ask these players to do some very difficult things, for the team, the coaching staff, the school – at risk of injury. And when they do those things, I feel as if I’m in their debt. It’s an honor to coach those guys. I want to be of service to them.
+ - What happened there was they were moving the chains and we had the call made. We were really trying to get two plays if we could have rather than use the timeout thereafter.
+ - We threw passes enough that we were prime to catch them and get up to speed. I think we will be fine there.
+ - I think the good news is that our team understands the positon they’re in. If they want to win a division or a conference, they’re going to have to fix their mistakes.
+ - Ryan Baker sustained a penalty of play, and we withheld him from play today based on the rules violation.
+ - I’d be the first one to tell you that I would like to think that I had called timeout before that. I can’t imagine that I did not. I can’t tell you that I did, and that’s my issue.
+ - Ted, damned if I’m not impressed with your candor!
+
+30 quotes

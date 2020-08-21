@@ -1,0 +1,52 @@
+ - Look up at the stars, not down at your feet. ~~Stephen Hawking
+ - Fix your course on a star and you’ll navigate any storm. ~~Leonardo da Vinci
+ - I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. ~~Og Mandino
+ - You could be great. You could rattle the stars. You could do anything if only you dared. ~~Sarah J. Maas
+ - Stars can’t shine without darkness. ~~D.H. Sidebottom
+ - That’s how you came here, like a star without a name. Move across the night sky with those anonymous lights. ~~Rumi
+ - After the earth dies, some 5 billion years from now, after it’s burned to a crisp, or even swallowed by the Sun, there will be other worlds and stars and galaxies coming into being – and they will know nothing of a place once called Earth. ~~Carl Sagan
+ - Just promise me you’ll think of me everytime you look up in the sky and see a star. ~~Eminem
+ - Every star may be a sun to someone. ~~Carl Sagan
+ - I shoot for the moon but I’m too busy gazing the stars. ~~Eminem
+ - Fly me to the moon, let me play among the stars. ~~Frank Sinatra
+ - Every man and every woman is a star. ~~Aleister Crowley
+ - We are all in the gutter, but some of us are looking at the stars. ~~Oscar Wilde
+ - My thoughts are stars I cannot fathom into constellations. ~~John Green
+ - We are made of star-stuff. Our bodies are made of star-stuff. There are pieces of star within us all. ~~Carl Sagan
+ - Don’t be afraid of the unknown because, even when they wander into chaos, planets are born stars! ~~Charlie Chaplin
+ - For your own safety, do not ever tell an astrophysicist, I hope all your stars are twinkling. ~~Neil deGrasse Tyson
+ - The light which puts out our eyes is darkness to us. Only that day dawns to which we are awake. There is more day to dawn. The sun is but a morning star. ~~Henry David Thoreau
+ - Only in the darkness can you see the stars. ~~Martin Luther King Jr.
+ - There was nowhere to go but everywhere, so just keep on rolling under the stars. ~~Jack Kerouac
+ - Nothing can match the wonderment that comes from staring up into the star-filled canopy above and realizing that you are a part of that creation. ~~Tim Ferriss
+ - The fault, dear Brutus, is not in our stars, but in ourselves. ~~William Shakespeare
+ - The first time I ever saw your face, I thought the sun rose in your eyes and the moon and the stars were the gifts you gave to the dark and empty sky, my love. ~~Ewan MacColl
+ - Look at the stars lighting up the sky: no one of them stays in the same place. ~~Seneca the Younger
+ - You can do anything if you have enthusiasm. Enthusiasm is the yeast that makes your hopes rise to the stars. ~~Henry Ford
+ - Though free to think and act, we are held together, like the stars in the firmament, with ties inseparable. These ties cannot be seen, but we can feel them. ~~Nikola Tesla
+ - We’ve all been raised on television to believe that one day we’d all be millionaires, and movie gods, and rock stars. But we won’t. And we’re slowly learning that fact. And we’re very, very pissed off. ~~Chuck Palahniuk
+ - We are one species. We are starstuff. ~~Carl Sagan
+ - I was dead, then alive. Weeping, then laughing. The power of love came into me, and I became fierce like a lion, then tender like the evening star. ~~Rumi
+ - What makes night within us may leave stars. ~~Victor Hugo
+ - We are star dust in the highest exalted way, called by the universe, reaching out to the universe. ~~Neil deGrasse Tyson
+ - We are so small between the stars, so large against the sky. ~~Leonard Cohen
+ - You can be the most beautiful woman in the world and see yourself as hideous. You must love yourself. To look in the mirror and tell yourself that you’re a rock star. ~~Demi Lovato
+ - The Sneetches got really quite smart on that day. The day they decided that Sneetches are Sneetches. And no kind of Sneetch is the best on the beaches. That day, all the Sneetches forgot about stars and whether they had one, or not, upon thars. ~~Dr. Seuss
+ - On soft Spring nights I’ll stand in the yard under the stars – Something good will come out of all things yet – And it will be golden and eternal just like that – There’s no need to say another word. ~~Jack Kerouac
+ - So when at times the mob is swayed To carry praise or blame too far, We may choose something like a star To stay our minds on and be staid. ~~Robert Frost
+ - I thought to myself: if it’s true that every person has a star in the sky, mine must be distant, dim, and absurd. Perhaps I never had a star. ~~Sadegh Hedayat
+ - One, remember to look up at the stars and not down at your feet. Two, never give up work. Work gives you meaning and purpose and life is empty without it. Three, if you are lucky enough to find love, remember it is there and don’t throw it away. ~~Stephen Hawking
+ - Exploration is in our nature. We began as wanderers, and we are wanderers still. We have lingered long enough on the shores of the cosmic ocean. We are ready at last to set sail for the stars. ~~Carl Sagan
+ - There may be a brighter star. But through my eyes the light of you is all I see. ~~Stevie Wonder
+ - If you were a star you’d be the one I’m searching for ~~Drake
+ - Be clearly aware of the stars and infinity on high. Then life seems almost enchanted after all. ~~Vincent van Gogh
+ - Faith is a knowledge within the heart, beyond the reach of proof. ~~Khalil Gibran
+ - I see you everywhere, in the stars, in the river, to me you’re everything that exists; the reality of everything. ~~Virginia Woolf
+ - Things are as they are. Looking out into it the universe at night, we make no comparisons between right and wrong stars, nor between well and badly arranged constellations. ~~Alan Watts
+ - When you miss me just look up to the night sky and remember, I'm like a star; sometimes you can't see me, but I'm always there. ~~Jayde Nicole
+ - I didn’t know how to deal with success. If there was a Rock Star 101, I would have liked to take it. It might have helped me. ~~Kurt Cobain
+ - The nitrogen in our DNA, the calcium in our teeth, the iron in our blood, the carbon in our apple pies were made in the interiors of collapsing stars. We are made of starstuff. ~~Carl Sagan
+ - I like the night. Without the dark, we’d never see the stars. ~~Stephenie Meyer
+ - I believe a leaf of grass is no less than the journey work of the stars. ~~Walt Whitman
+
+50 quotes

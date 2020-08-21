@@ -1,0 +1,51 @@
+ - Trust your intuition. It is the best friend you will ever have.
+ - Surrender is a state of living in the flow, trusting what is, and being open to serendipity and surprises.
+ - Surrender to life today. Don’t fight anything. Just enjoy the flow.
+ - Spirituality isn’t static. It’s an evolving optimism that won’t let hardship get the best of you.
+ - Energy doesn’t lie. Keep sensing it, trusting it, letting it liberate you.
+ - Your soul mate can turn into your cell mate if the mutual desire for growth isn’t there.
+ - Don’t try to control what’s outside. Be at peace with what’s inside.
+ - We energetically attract what we haven’t worked out in ourselves. When vampires evoke intensely judgmental reactions from us, it could be they are mirroring aspects of our personalities we don’t like or completely understand.
+ - Trying to force things only disturbs your goals. Forcing will not help. Everything happens in its right time.
+ - Certain people give off positive energy, others negative. It’s the quality of someone’s being, a measure of the love with which they’ve led their lives. It also reflects the inner work they’ve done, their efforts to heal anger, hatred, or self-loathing, which poison us like toxic fumes.
+ - When you feel stuck in reverse, take a breath and let go.
+ - I don’t care how intelligent or attractive someone is, if he zaps your energy, he isn’t for you. True chemistry is more than intellectual compatibility. Beyond surfaces, you must be intuitively at ease.
+ - Energy never lies. If you work at your right rhythm, you will be more productive trust me.
+ - How you react emotionally is a choice in any situation.
+ - Words ride on the energy of tone, its warmth or coldness; think of tone as the music of how words are expressed. You want this music to be soulful, whether you’re giving sweet talk or tough love.
+ - Stop protesting the hand you’ve been dealt! Become partners with your life instead of making it an exhausting wrestling match.
+ - Look at your life as your main career and your divine classroom.
+ - The relationship with your self is the most important relationship you’ll ever have.
+ - It’s not the burden of your mate or anyone else to heal your emotional issues.
+ - Surrendered people make great lovers. They can be spontaneous and playful. They love to feel and express all of their emotions. They look vibrant, healthy, and energetic.
+ - Shame is not your friend. It depletes your power. Let go of shame and embrace your magnificence.
+ - No matter how well-meaning your intention, doing too much is not always an act of love but of sabotage.
+ - The most influential person in the room isn’t the one who is being a bully, talking loudly, and imposing him- or herself on others. Surrendered people understand that true power comes from being respectful and listening.
+ - Every illness is an opportunity for compassionate revelations.
+ - When you have no idea how to surrender and you’re tied up in knots, JUST BREATHE!
+ - Relationships carry the whole universe within them. They can be everything, nothing, here, then gone. One moment, loving someone makes you shine; the next, it feels like matter and antimatter colliding.
+ - Surrender is a positive, healthy state. Being a surrendered person does not mean one is beaten down and so hopeless he or she has “given up.” It’s quite the contrary.
+ - A woman isn’t very powerful without her intuition.
+ - Abundance is a state of mind, more than a reflection of wealth.
+ - Remove the emotional and physical clutter from your life so you can soar.
+ - Whenever your well-being feels at risk around certain people, make a tactful and swift exit.
+ - Sustaining silence and circumspection are two behaviors that lead to better, healthier outcomes. They are powerful without dominating.
+ - Surrendered people know themselves and are empathetic toward others. They don’t measure themselves by how much they are liked, nor do they compete for attention. When they sit quietly in a room, others always seem to come to them. They feel successful apart from their job or net worth.
+ - Another reality is a whisper away.
+ - Flow is letting nothing obstruct the breath. Practice flow through a complete exhale in every way in your being.
+ - All the Hardships. All the Mistakes. All the Rejections. All the Pain. All the times you Questioned why. All of these things have given Birth to the Wisdom and Strength that will Help you Shine your Light on the World, Even in the darkest of Hours.
+ - Sometimes violence cannot be stopped no matter what we do. But the more peaceful we are, the better chance we have of bringing out the peace in those around us.
+ - If an organ gets a “dis-ease” you want to care for it like a wounded friend, not an enemy who’s turned against you.
+ - The art of communicating is to speak with a non judging sensitivity and mean it rather than impulsively verbalizing whatever feelings arise; there’s no better way to make a point.
+ - People who feel the need to push and control tend to keep their feelings bottled up. As a result, they get shut down or remote, and their feelings come out in twisted, unhealthy ways. They become irritable, passive-aggressive, or volatile, for example.
+ - Being a control freak makes us tense, stressed out, and unpleasant to be with.
+ - If you want to surrender to creativity, surrender to creation.
+ - Release all the anxiety that keeps you from moving ahead. Keep breathing it out and letting it go.
+ - Spirituality is not for sale. It must be developed.
+ - Beyond surfaces, you must be intuitively at ease.
+ - Friends can be the best co-conspirators in charting the unknown.
+ - Illness sets the stage for the opening of our hearts.
+ - Research shows that happy people look for opportunity while others see only crises. Surrendering fear is healthy!
+ - Creativity is the mother of all energies, nurturer of your most alive self. It charges up every part of you. When you’re plugged in, a spontaneous combustion occurs that ‘artists’ don’t have a monopoly on.
+
+49 quotes

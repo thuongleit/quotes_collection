@@ -1,0 +1,25 @@
+ - If you limit your choices only to what seems possible or reasonable, you disconnect yourself from what you truly want, and all that is left is a compromise.
+ - Dreamers only dream, but creators bring their dreams into reality.
+ - It’s not what the vision is, it’s what the vision does.
+ - Reality is an acquired taste.
+ - In business, what distinguishes leaders from laggards and greatness from mediocrity is the ability to uniquely imagine what could be.
+ - If you stop your creative process every time you think you need to cheer yourself up, or rid yourself of emotional conflicts, your life will be over before you can create anything of any real significance.
+ - Creators love creations before they exist.
+ - One of the most important results you can bring into the world is the you that you really want to be.
+ - You cannot create what you want by moving away from what you don’t want.
+ - In the absence of a great dream, pettiness prevails.
+ - Without making the fundamental choice to be the predominant creative force in your life, no matter what you do to attempt to benefit yourself or enhance your life, you will merely be finding more sophisticated ways of responding to circumstances.
+ - Creating is no problem – problem solving is not creating.
+ - The way to activate the seeds of your creation is by making choices about the results you want to create. When you make a choice, you activate vast human energies and resources, which otherwise go untapped.
+ - It is not common for people to think of their own lives as creations. You are not encouraged to have with your own life the kind of relationship a creator has with his or her vision. But your life can be a creation.
+ - Efforts to reform are often met with resistance because the system always tries to fall back to the status quo and what is comfortable.
+ - The best way to experience the power of fundamental choices is to make them.
+ - Too many young people are being taught to give up their dreams before they have any experience attempting to pursue them.
+ - The only time you know for sure whether creating a result is possible or not is when you have done it. All other thoughts on the matter are simply speculation.
+ - Creators start at the end. First they have an idea of what they want to create. Sometimes this is idea is general, and sometimes it is specific. Before you can create what you want you want to create, you must know what you are after, what you want to bring into being.
+ - The human spirit will not invest itself in a compromise.
+ - At first, I am giving energy to the creation, but later the creation seems to be giving energy to me.
+ - You want what you want, whether or not you think you can have it.
+ - The historic period in which we live is a period of reawakening to a commitment of higher values, a reawakening of individual purpose, and a reawakening of the longing to fulfill that purpose in life.
+
+23 quotes

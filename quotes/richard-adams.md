@@ -1,0 +1,32 @@
+ - My heart has joined the Thousand, for my friend stopped running today.
+ - All the world will be your enemy, Prince of a Thousand enemies. And when they catch you, they will kill you. But first they must catch you; digger, listener, runner, Prince with the swift warning. Be cunning, and full of tricks, and your people will never be destroyed.
+ - You know how you let yourself think that everything will be all right if you can only get to a certain place or do a certain thing. But when you get there you find it’s not that simple.
+ - Animals don’t behave like men,? he said. ‘If they have to fight, they fight; and if they have to kill they kill. But they don’t sit down and set their wits to work to devise ways of spoiling other creatures’ lives and hurting them. They have dignity and animality.
+ - Be cunning and full of tricks and your people shall never be destroyed.
+ - I’ve always said that Watership Down is not a book for children. I say: it’s a book, and anyone who wants to read it can read it.
+ - Rabbits live close to death and when death comes closer than usual, thinking about survival leaves little room for anything else.
+ - Many human beings say that they enjoy the winter, but what they really enjoy is feeling proof against it.
+ - My Chief Rabbit has told me to stay and defend this run, and until he says otherwise, I shall stay here. – Bigwig.
+ - A thing can be true and still be desperate folly.
+ - To come to the end of a time of anxiety and fear! To feel the cloud that hung over us lift and disperse – that cloud that dulled the heart and made happiness no more than a memory! This at least is one joy that must have been known by almost every living creature.
+ - We all have to meet our match sometime or other.
+ - Men will never rest till they’ve spoiled the earth and destroyed the animals.
+ - We are all human and fall short of where we need to be. We must never stop trying to be the best we can be.
+ - There is nothing that cuts you down to size like coming to some strange and marvelous place where no one even stops to notice that you stare about you.
+ - I distinguish two types of human beings, Love people, who love the sky and the flowers, and Power People, who are essentially sold on naked power.
+ - One cloud feels lonely.
+ - Rabbits need dignity and above all the will to accept their fate.
+ - Lots of little Bigwigs, Hazel! Think of that, and tremble!
+ - Dangerous thing, a name. Someone might catch hold of you by it, mightn’t they?
+ - Our children’s children will hear a good story.
+ - Who knows why men do anything?
+ - The Threarah doesn’t like anything he hasn’t thought of for himself.
+ - Sooner or later, everyone has to meet his match.
+ - If you want to bless me you can bless my bottom, for it is sticking out of the hole.
+ - I have learned that with creatures one loves, suffering is not the only thing for which one may pity them. A rabbit who does not know when a gift has made him safe is poorer than a slug, even though he may think otherwise himself.
+ - People who record birdsong generally do it very early-before six o’clock-if they can. Soon after that, the invasion of distant noise in most woodland becomes too constant and too loud.
+ - If a rabbit gave advice and the advice wasn’t accepted, he immediately forgot it, and so did everyone else.
+ - They’re all so much afraid of the Council that they’re not afraid of anything else.
+ - I certainly think that 10 to 20 years from now, clearly the majority of veterinarians will be women.
+
+30 quotes

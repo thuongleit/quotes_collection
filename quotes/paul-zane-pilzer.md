@@ -1,0 +1,24 @@
+ - You only win when you help others win.
+ - The best system I’ve ever seen for intellectual distribution is the direct selling business-also known as one-to-one marketing, network marketing, referral marketing or relationship marketing.
+ - We’re in the midst of a boom in home-based businesses, and it shows no sign of slowing.
+ - The act of being an entrepreneur is a theological act: it is a belief that God has given you the tools to go out, make money and take care of your family.
+ - Before you invest in anything else, exhaust the possibilities of investing in your own business first.
+ - In today’s world, working for yourself is actually the safer route, and working for a corporation has become the riskier propositions.
+ - Prosperity belongs to those who learn new things the fastest.
+ - Of all the entrepreneurial opportunities available today, one of the most important is direct selling, also called network marketing.
+ - Direct selling provides an opportunity open to absolutely everyone, regardless of background, specialized skills or capital worth.
+ - How much you discipline your mind to step out of its routines and look into new ways of doing things that you haven’t yet adopted, is what will determine your economic potential.
+ - Obesity is a prison; in the US we spend more to treat type 2 diabetes each year than is spent on education.
+ - The greatest opportunities today are to go into business for yourself as an entrepreneur.
+ - You cannot grow more hours in the day. However, you can make better use of those hours.
+ - Without a daily supply of proteins, vitamins, and minerals, no matter how much energy we get in the form of calories, our bodies and minds deteriorate because we are not able to fully replace the dying cells in our internal and external organs.
+ - Personal wealth is the by-product of making the world a better place.
+ - I feel I’m doing God’s work switching people from group plans to individual insurance.
+ - Home-based businesses are one of the fastest-growing segments in our economy, and that trend will only continue, as the age of the corporation, which began barely a century ago, now gives way to the age of the entrepreneur.
+ - In just the past century we have almost doubled the percentage of fat in our diets – from 20% in 1910 to about 35% today.
+ - When you create a business, you create something that improves the life of your customer, of another person, maybe of ten people, of a thousand people, of a million people. There’s no higher calling.
+ - Today about 95% of the prescription drugs sold are Maintenance drugs-drugs that treat only the symptoms of a disease, and that you are expected to take for the rest of your life.
+ - Our wealth is rewarded directly in proportion to the number of people with whom we are willing to share.
+ - What is the one bright spot on the entire horizon that would give someone an opportunity to be retrained to learn new skills? Direct selling.
+
+22 quotes

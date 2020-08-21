@@ -1,0 +1,30 @@
+ - People think that I don’t like women.
+ - I think we have two very important missions in life. One is to find out who we really are and the other one is to taste as much of life and experience as much of life as we can.
+ - What anybody else thinks about you is really of no consequence. It’s what you think of yourself.
+ - With Whitesnake it would have been inappropriate for me to have played Deep Purple songs, although I did at the beginning because I didn’t have enough Whitesnake songs.
+ - In the last couple of years I’ve been facing down a lot of the demons of the past and trying to find out, who I am, It’s something I think I’ll be doing for the rest of my life.
+ - I don’t avoid confrontation, people should know that.
+ - My voice is an instrument.
+ - I’ve never been uncomfortable putting my heart on display, my feelings on display, certainly with an audience.
+ - You know, all my songs are relatives, brothers, sisters, cousins.
+ - When I was very, very young, seven years old, I heard there was school where you could go to learn to draw. That was my absolute driven passion, to become an artist or a painter. So the romantic realist in me, I studied to be a graphic design artist and an art teacher.
+ - The critics love to get out their knives and dine on Coverdale. But the worse the criticism gets, the more successful I become.
+ - I stand by every decision I’ve made throughout my career and my life, good or bad, up or down.
+ - Whitesnake more than most rock bands would get a very significant percentage of women in the audience and those were the ones I’d hear the voices because from where I am on stage is a pretty good spot.
+ - Hard rock may have faded from the media for a time, but I’ve always been able to make a living, if not in America, then in the rest of the world.
+ - I’ve always thought live albums were cop-outs.
+ - I’ve always loved music, very simply, as a vehicle to express myself and that hasn’t changed.
+ - I take care of my voice; I’m working out the way I would do my body, so that stays in shape.
+ - All my vocals were recorded at home, which was great for me. You can actually have a studio in a computer program called ProTools. I did half the record with ProTools.
+ - I saw what Purple meant to people and I still hear it now when I’m in Europe. I’m always shocked that I’m still asked about Purple because it was such a long time ago.
+ - The audience will make you feel like a demigod. But when you leave the stage, get back to being human.
+ - Not necessarily, a lot of my songs are firmly tongue in cheek.
+ - Amateurs in professional situations make me very impatient.
+ - Artistic development is a thing of the past, sadly.
+ - The only one I really like is a song called Saccharine.
+ - Most of the albums that have taken long have been related to illness and fatigue or producer problems.
+ - When certain bootleg companies started off and they would take maybe ten per cent of whatever they got and help fuel new bands, which I’m cool with, I think that’s a good idea. Most of the record companies are not doing that.
+ - If I was a politician right now I would change just about everything.
+ - I probably listen to Burn more than any of them, because it was so new me, so novel. To see my name on an actual record was such an incredible feeling.
+
+28 quotes

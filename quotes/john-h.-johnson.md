@@ -1,0 +1,21 @@
+ - To succeed, one must be creative and persistent.
+ - If you can somehow think and dream of success in small steps, every time you make a step, every time you accomplish a small goal, it gives you confidence to go on from there.
+ - Dream small dreams. If you make them too big, you get overwhelmed and you don’t do anything. If you make small goals and accomplish them, it gives you the confidence to go on to higher goals.
+ - Its better to get smart than to get mad. I try not to get so insulted that I will not take advantage of an opportunity to persuade people to change their minds.
+ - You spend so much time in your profession it ought to be something you love.
+ - I believe that living on the edge, living in and through your fear, is the summit of life, and that people who refuse to take that dare condemn themselves to a life of living death.
+ - It’s not what the dream is but what the dream does.
+ - There is a wisdom in the body that is older and more reliable than clocks and calendars.
+ - Every day I run scared. That’s the only way I can stay ahead.
+ - My mother was the influence in my life. She was strong; she had great faith in the ultimate triumph of justice and hard work. She believed passionately in education.
+ - Long shots do come in and hard work, dedication and perseverance will overcome almost any prejudice and open almost any door.
+ - What a relief it was to discover that I wasnt realy an idiot! I simply had a learning disability.
+ - I believe the greater the handicap, the greater the triumph.
+ - When I see a barrier, I cry and I curse, and then I get a ladder and climb over it.
+ - I’m convinced that the only way to get ahead in this world is to live and sell dangerously. You’ve got to live beyond your means. You’ve got to commit yourself to an act or vision that pulls you further than you want to go and forces you to use your hidden strengths.
+ - Failure is a word I don’t accept.
+ - I decided once and for all that I was going to make it or die.
+ - All have disappointments, all have times when it isn’t worthwhile.
+ - When I go in to see people – and I sell an occasional ad now – I never say, ‘Help me because I am black’ or ‘Help me because I am a minority.’ I always talk about what we can do for them.
+
+19 quotes

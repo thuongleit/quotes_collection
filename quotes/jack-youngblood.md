@@ -1,0 +1,21 @@
+ - You learn to kid around and joke and not take things too seriously because somehow its all gonna work out for the best – or you’re gonna make it work out.
+ - Good luck is a residue of preparation.
+ - I think my numbers speak for themselves.
+ - He took me under his wing when I first came to the Rams and taught me everything – his technique in the pass rush, how to play off blockers, and how to make the big play.
+ - One day, though, I was asked if I’d like to go to the University of Florida and become a Gator.
+ - The joy of winning is not as dramatic as the losses were, because I expected us to win.
+ - The disappointment of losing is huge.
+ - I don’t talk much to offensive linemen in general.
+ - You learnt that, whatever you are doing in life, obstacles don’t matter very much. Pain or other circumstances can be there, but if you want to do a job bad enough, you’ll find a way to get it done.
+ - Football has been my life for as long as I can remember.
+ - There are no opportune times for a penalty, and this is not one of those times.
+ - I think we all want to be remembered for what we did.
+ - Those opportunities to play in championship games are few and far between.
+ - The emotions of the game do not change.
+ - It’s unbelievable how many things I’ve learned from Merlin Olsen.
+ - I visualize things in my mind before I have to do them. It’s like having a mental workshop.
+ - Deacon Jones has been the most inspirational person in my football career.
+ - By that time I was thinking a little about pro ball and hopeful that someone would draft me.
+ - Boy, I’ll tell you, when the Rams drafted me No. 1, it surprised me. I was walking on air for days.
+
+19 quotes

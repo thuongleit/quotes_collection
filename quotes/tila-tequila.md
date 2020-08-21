@@ -1,0 +1,26 @@
+ - I think every person has their own identity and beauty. Everyone being different is what is really beautiful. If we were all the same, it would be boring.
+ - I think nerdy stuff is sexy. I like to watch the History Channel and learn about the universe, quantum physics and stuff like that.
+ - As long as I’m not hurting anybody, I don’t think that anything I do is wrong.
+ - I do whatever my heart tells me to do.
+ - Music is just a really fun hobby that I do, because I’m actually really good about writing songs and producing. People don’t realize this, but I am an excellent writer for artists.
+ - You don’t want to be in a relationship with someone who’s scared of you.
+ - When I was still in high school I knew I wanted to live in California.
+ - I’ve found my calling with Twitter. It’s all about the amount of interaction you do, and the traffic you move, and I’m really good at that. I keep going and going and going, and no one can believe that I can keep it up.
+ - I’m one of the girls that you would love to have in your group of friends.
+ - When I started on MySpace, people wanted to support me, but once I rose to fame with the MTV show, they felt like I had abandoned them for some reason, that I was too famous to talk to them anymore.
+ - I knew out of high school I didn’t want to go to college. I knew what whatever I did wouldn’t have anything to do with college.
+ - This is so cliche, but my beauty icon would have to be Angelina Jolie. She looks like she wears natural makeup, but she’s still beautiful.
+ - On a daily basis, jeans and t-shirt is still sexy, but it doesn’t look like you’re trying too hard.
+ - When somebody says something bad about you, they feel bad about themselves in some way.
+ - I just sit around at home, and I have nothing to do, so I am on the Internet all the time.
+ - I’m a woman, so I’m going to be woman as much as I can.
+ - I mean, the media and bloggers may say otherwise, but in reality I have a lot of fans because I’m the only celebrity that actually takes time out to call them and talk to them. I don’t think a lot of celebrities do that.
+ - I’m not about hurting the person I’m with.
+ - Whoever I’m with, that’s the person I’m with. That’s the way I’m wired.
+ - I joined MySpace in September 2003. At that time no one was on there at all. I felt like a loser while all the cool kids were at some other school. So I mass e-mailed between 30,000 and 50,000 people and told them to come over. Everybody joined overnight.
+ - When people talk about someone you have preconceived judgments.
+ - I’ve learned that no matter what I do, people are going to have their opinions.
+ - My fans and people who know of my character want to see me become more successful.
+ - I don’t want any dog to be put down.
+
+24 quotes

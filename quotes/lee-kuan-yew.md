@@ -1,0 +1,65 @@
+ - If you want to reach your goals and dreams, you cannot do it without discipline.
+ - Having an education is one thing, being educated is another.
+ - For the young, let me tell you the sky has turned brighter. There’s a glorious rainbow that beckons those with the spirit of adventure. And there are rich findings at the end of the rainbow. To the young and to the not-so-old, I say, look at that horizon, follow that rainbow, go ride it.
+ - A leader without the vision, to strive to improve things, is no good. Then you will just stay put, you won’t progress.
+ - You begin your journey not knowing where it will take you. You have plans, you have dreams, but every now and again you have to take uncharted roads, face impassable mountains, cross treacherous rivers, be blocked by landslides and earthquakes. That’s the way my life has been.
+ - We decide what is right. Never mind what the people think.
+ - The human being needs a challenge, and my advice to every person in Singapore and elsewhere: Keep yourself interested, have a challenge.
+ - If you can’t force or are unwilling to force your people to follow you, with or without threats, you are not a leader.
+ - I always tried to be correct, not politically correct.
+ - I’m very determined. If I decide that something is worth doing, then I’ll put my heart and soul to it. The whole ground can be against me, but if I know it is right, I’ll do it.
+ - What I fear is complacency. When things always become better, people tend to want more for less work.
+ - What is of consequence is I did my best.
+ - I don’t believe in love at first sight. I think it’s a grave mistake.
+ - Between being loved and being feared, I have always believed Machiavelli was right. If nobody is afraid of me, I’m meaningless.
+ - As you solve one set of problems, new ones appear. That is part of the nature of life.
+ - If you deprive yourself of outsourcing and your competitors do not, you’re putting yourself out of business.
+ - You take a poll of any people. What is it they want? The right to write an editorial as you like? They want homes, medicine, jobs, schools.
+ - Rest on laurels? I wish I could do that. No, you rest when you’re dead.
+ - Every person, genius or moron, has a right to reproduce himself.
+ - I do not yet know of a man who became a leader as a result of having undergone a leadership course.
+ - Nine holes of golf will take you one-and-a-half, two hours. I run in 20 minutes, I feel better off. So the cost benefit made me drop golf.
+ - You marry a non-graduate, then you are going to worry if your son or daughter is going to make it to the university.
+ - I wouldn’t call myself an atheist. I neither deny nor accept that there is a God. So I do not laugh at people who believe in God. But I do not necessarily believe in God – nor deny that there could be one.
+ - I have decided that we shall make and build and never give way.
+ - At the end of the day, what have I got? A successful Singapore. What have I given up? My life.
+ - I’m not saying that everything I did was right, but everything I did was for an honourable purpose.
+ - I was a product of the times, the war, the occupation, the reoccupation, my 4 years in Britain, admiring but at the same time questioning whether they are able to do a better job than we can.
+ - I have been accused of many things in my life, but not even my worst enemy has ever accused me of being afraid to speak my mind.
+ - The task of the leaders must be to provide or create for them a strong framework within which they can learn, work hard, be productive and be rewarded accordingly. And this is not easy to achieve.
+ - Even from my sick bed, even if you are going to lower me into the grave and I feel something is going wrong, I will get up.
+ - Whoever governs Singapore must have that iron in him. Or give it up. This is not a game of cards.
+ - If I have to shoot 200,000 students to save China from another 100 years of disorder, so be it.
+ - What are our priorities? First, the welfare, the survival of the people. Then, democratic norms and processes which from time to time we have to suspend.
+ - The human being is an unequal creature. That is a fact. And we start off with the proposition. All the great religions, all the great movements, all the great political ideology, say let us make the human being as equal as possible. In fact, he is not equal, never will be.
+ - If nobody is afraid of me, I’m meaningless.
+ - We have to lock up people, without trial, whether they are communists, whether they are language chauvinists, whether they are religious extremists. If you don’t do that, the country would be in ruins.
+ - Now if democracy will not work for the Russians, a white Christian people, can we assume that it will naturally work with Asians?
+ - There are some flaws in the assumptions made for democracy. It is assumed that all men and women are equal or should be equal. Hence, one-man-one-vote. But is equality realistic? If it is not, to insist on equality must lead to regression.
+ - China can draw on a talent pool of 1.3 billion people, but the United States can draw on a talent pool of 7 billion and recombine them in a diverse culture that enhances creativity in a way that ethnic Han nationalism cannot.
+ - If you can’t think because you can’t chew, try a banana.
+ - Please do not assume that you can change governments. Young people don’t understand this.
+ - I wish I can meet my wife in the hereafter, but I don’t think I will. I just cease to exist just as she has ceased to exist.
+ - For reasons of sentiment, I would like part of my ashes to be mixed up with Mama’s, and both her ashes and mine put side by side in the columbarium. We were joined in life and I would like our ashes to be joined after this life.
+ - I am not given to making sense out of life – or coming up with some grand narrative on it – other than to measure it by what you think you want to do in life. As for me, I have done what I had wanted to, to the best of my ability. I am satisfied.
+ - Anybody who decides to take me on needs to put on knuckle-dusters. If you think you can hurt me more than I can hurt you, try. There is no way you can govern a Chinese society.
+ - The same law applies to me. Nobody has sued me for libel because I do not defame my enemies.
+ - I’m not intellectually convinced that one-man, one-vote is the best. We practise it because that’s what the British bequeathed us.
+ - Without the elected president and if there is a freak result, within two or three years, the army would have to come in and stop it.
+ - Any time, every time, you can damn the Prime Minister and so long as it is not a lie and a criminal lie, nothing happens to you. You can say a lot of things. You can write books about him, damning him. So long as it is not a libel, go ahead.
+ - I am often accused of interfering in the private lives of citizens. Yes, if I did not, had I not done that, we wouldn’t be here today.
+ - Freedom of the press, freedom of the news media, must be subordinated to the overriding needs of the integrity of Singapore, and to the primacy of purpose of an elected government.
+ - If Singapore is a nanny state, then I am proud to have fostered one.
+ - I make no apologies that the PAP is the Government and the Government is the PAP.
+ - That was the year the British decided to get out and sell everything. So I immediately held an election. I knew the people will be dead scared. And I won my bet big-time. The gullible fools!
+ - Well if done a lot of hard work to try and get people to act rationally, the fact that weve had 15 deviant Muslims, plus 5 or 8 others that got away does not mean that all Muslims are deviant or extremists.
+ - Singaporeans, if I can chose an analogy, we are the hard disk of a computer, the foreign talent are the megabytes you add to your storage capacity. So your computer never hangs because you got enormous storage capacity.
+ - If I were in authority in Singapore indefinitely without having to ask those who are governed whether they like what is being done, then I would not have the slightest doubt that I could govern much more effectively in their interests.
+ - They say, oh, let’s have multiparty politics. Let’s have different parties change and be in charge of the Government. Is it that simple? You vote in a Division Three government, not a Division One government, and the whole economy will just subside within three, four years. Finished.
+ - The big nest was in Afghanistan, thats not quite cleared, then there are nests in the Philippines, there are nests in Indonesia, the Malaysians are clearing up their nests.
+ - I knew that my niece was working nearby with some bank, so my wife rang up the mother and the mother called back to say that shes just called up to say she was alright.
+ - Most libels, and I have taken about 30 actions, take place at election time. It has not stuck because I am prepared to go before a court, stand in the witness box and face the most aggressive of lawyers who can cross-examine me on my personal history.
+ - If Aljunied decides to go that way, well Aljunied has five years to live and repent.
+ - I feel sanguine enough to say that there has never been a better set of conditions for open democratic politics because there is no need for unified front politics.
+
+63 quotes

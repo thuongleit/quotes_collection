@@ -1,0 +1,29 @@
+ - Reading a poem in translation is like kissing a woman through a veil.
+ - History is the gradual instant.
+ - Love makes you see a place differently, just as you hold differently an object that belongs to someone you love. If you know one landscape well, you will look at all other landscapes differently. And if you learn to love one place, sometimes you can also learn to love another.
+ - Hold a book in your hand and you’re a pilgrim at the gates of a new city.
+ - To share a hiding place, physical or psychological, is as intimate as love.
+ - The best teacher lodges an intent not in the mind but in the heart.
+ - Trees for example, carry the memory of rainfal. In their rings we read ancient weather – storms, sunlight and temperatures, the growing seasons of centuries. A forest shares a history which each tree remembers even after it has been felled.
+ - History and memory share events; that is, they share time and space. Every moment is two moments.
+ - But sometimes the world disrobes, slips its dress off a shoulder, stops time for a beat. If we look up at that moment, it’s not due to any ability of ours to pierce the darkness, it’s the world’s brief bestowal. The catastrophe of grace.
+ - Some stones are so heavy only silence helps you carry them!
+ - I’m naive enough to think that love is always good no matter how long ago, no matter the circumstances.
+ - Important lessons: look carefully; record what you see. Find a way to make beauty necessary; find a way to make necessity beautiful.
+ - The truth doesn’t care what we think of it.
+ - Long after you’ve forgotten someone’s voice, you can still remember the sound of their happiness or their sadness. You can feel it in your body.
+ - No one is born just once. If you’re lucky, you’ll emerge again in someone’s arms; or unlucky, wake when the long tail of terror brushes the inside of your skull.
+ - Any given moment – no matter how casual, how ordinary – is poised, full of gaping life.
+ - It is not a person’s depth you must discover, but their ascent. Find their path from depth to ascent.
+ - The shadow past is shaped by everything that never happened. Invisible, it melts the present like rain through karst.
+ - When you are alone – at sea, in the polar dark – an absence can keep you alive. The one you love maintains your mind. But when she’s merely across the city, this is an absence that eats you to the bone.
+ - Once I was lost in a forest. I was so afraid. My blood pounded in my chest and I knew my heart’s strength would soon be exhausted. I saved myself without thinking. I grasped the two syllables closest to me, and replaced my heartbeat with your name.
+ - I wanted a line in a poem to be the hollow ney of the dervish orchestra whose plaintive wail is a call to God. But all I achieved was awkward shrieking. Not even the pure shriek of a reed in the rain.
+ - Though the contradictions of war seem sudden and simultaneous, history stalks before it strikes. Something tolerated soon becomes something good.
+ - I see that I must give what I most need.
+ - When a man dies, his secrets bond like crystals, like frost on a window. His last breath obscures the glass.
+ - Like other ghosts, she whispers; not for me to join her, but so that, when I’m close enough, she can push me back into the world.
+ - If love wants you; if you’ve been melted down to stars, you will love with lungs and gills; with feathers and scales; with warm blood and cold.
+ - Even as a child, even as my blood-past was drained from me, I understood that if I were strong enough to accept it, I was being offered a second history.
+
+27 quotes

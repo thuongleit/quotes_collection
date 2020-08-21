@@ -1,0 +1,24 @@
+ - We take spiritual initiation when we become conscious of the Divine within us, and thereby contact the Divine without us.
+ - All gods are one God, and all goddesses are one Goddess, and there is one Initiator.
+ - When we speak of the Path we mean much more than a course of study. The Path is a way of life and on it the whole being must co-operate if the heights are to be won.
+ - Magick is the art of causing changes in consciousness to occur in accordance with the will.
+ - A chain is no stronger than its weakest link, and if one of the team cannot handle the forces, everybody is going to suffer. A ritual lodge is no place for the well-meaning ineffectual.
+ - The true nature of the gods is that of magical images shaped out of the astral plane by mankind’s thought, and influenced by the mind.
+ - What you contemplate, you touch. What you enter into in imagination, you make yourself one with.
+ - Do you believe in an invisible reality behind appearances?
+ - There is a life behind the personality that uses personalities as masks. There are times when life puts off the mask and deep answers unto deep.
+ - The body is the vehicle of the mind.
+ - The Scorpion connects with the Serpent through the Dragon.
+ - We live in the midst of invisible forces whose effects alone we perceive. We move among invisible forms whose actions we very often do not perceive at all, though we may be profoundly affected by them.
+ - The descent into matter must be complete before the ascent to spirit can commence.
+ - Esoteric science premises the existence of the Great Unmanifest, which may be conceived as a sea of limitless but latent force which underlies all things and whence all things derive their substance and draw their life.
+ - A religion without a goddess is halfway to atheism.
+ - I well remember it being said to me by an occultist of great experience that two things are necessary for safety in occultism, right motives and right associates.
+ - It is one of the strictest conditions of initiation that occult knowledge may never be sold or used for gain.
+ - Symbols are to the mind what tools are to the hand – an extended application of its powers.
+ - The spirit of religious persecution is not the special failing of any particular faith, but springs eternal in the human breast.
+ - Psychotherapy may begin with the primitive, but it must end with the divine, for both are integral factors in the human mind.
+ - One cannot blame an organization that picks up an occasional black sheep, one only takes exception if it retains an accumulation of them.
+ - Superstition has been defined as the use of a form whose significance has been forgotten.
+
+22 quotes

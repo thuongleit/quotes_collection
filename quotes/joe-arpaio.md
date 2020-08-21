@@ -1,0 +1,47 @@
+ - I really love how Israel operates, and I love the Jewish people.
+ - Now everybody is mafia. You got the Russian mafia, the Mexican mafia. Everybody is mafia these days.
+ - Not that I ever did anything wrong. I was just aggressive. That’s the way I am in my life.
+ - I was taught to work hard and to be honest, and that’s what I try to do, so that’s it.
+ - I don’t throw people under the bus. When I stick by a guy – I may not agree with him all the time, but I sure don’t throw him under the bus.
+ - But believe me, there’s a lot I’d like to say – but I don’t think the time is right now.
+ - I roam the streets all the time. You’ll be shocked. I’m shocked, everybody that comes up to me, “Oh, thank you, Sheriff. You’re supporting Trump.” I don’t care who they are. They kind of whisper sometimes.
+ - I don’t rely on the media. I usually average one speech a day for 25 years. People know me because I’m out there.
+ - I have compassion, I’ve told you people that over and over again. Enforcing the law overrides my compassion.
+ - Look at Israel. Israel is a great country for examples on how to do security.
+ - I just can’t surrender. I can’t start something and then surrender because of political reasons. I just don’t do that, and that goes back to me, why I keep running when I should probably take it easy, even though I have no hobbies, and enjoy the rest of my life.
+ - I’m a very private person, regardless of what the world may think of me.
+ - The day I leave, you won’t know how to pronounce my name. You could care less about me, and I should be dead and buried because there’s not one media that will come and remember who Joe Arpaio is. That’s the way it is in politics.
+ - I don’t bow down to the federal government.
+ - Maybe today you could have shot anybody and get away with it. So there’s many times, I could have killed people. Legally, I could have killed many people, especially working undercover.
+ - I’m not a computer guy. I have my Smith Corona. I would know nothing about computers.
+ - If a nation’s security is only as strong as its weakest link, then America may be in serious trouble. Hawaii may be our weakest link and could have a serious impact on our nation’s immigration policy.
+ - I love people that come from another country. I love talking to them.
+ - I used to have trust with reporters. Give them scoops. Those were the old days. It’s very strange, when you give a story and it doesn’t come out the right way.
+ - I don’t have all these advisers, political advisers. I don’t even talk to them because I’m not a slave to a campaign manager, and Trump isn’t either.
+ - Everything I did in the jails – chain gangs, everything – I haven’t changed the policy. I did it, I stand by it, and I’m not going to change.
+ - We do have freedom of speech, but if you say the wrong word, it looks like it makes headlines. So everybody has to be very careful.
+ - Once I can talk to people, I switch them over on my side.
+ - I get a lot of calls from families and people who have served time and they say, ‘Thank you, Sheriff. I hate the tents.’ That’s music to my ears.
+ - When you see a white guy at three in the morning on your beat in an alley, you kind of – “What’s this guy doing here?”
+ - The young people when I go to McDonald’s, the Hispanic clerks will come by, ‘Sheriff, can we have a picture?’ over and over again. At least they want a picture with me.
+ - I’m kind of an old-fashioned guy.
+ - You make deals in business and in government if you’re smart.
+ - I’m an equal-opportunity law-enforcement guy – I lock everybody up.
+ - I am the constitutionally and legitimately elected sheriff, and I absolutely refuse to surrender my responsibility to the federal government.
+ - I still think people like to hear from someone’s heart and how they really feel than the old political rhetoric trying to not say the wrong thing because how would it look, would they get votes, lose votes.
+ - I just talk, and I say what I feel, and yet, I’m a nice guy.
+ - It doesn’t matter whether you’re black, Hispanic, white. They’re all in the same boat.
+ - I even used to stop vehicles going through stop signs, even though I was walking.
+ - I don’t use e-mail or u-mail or whatever it’s called.
+ - Everything I do in my life is very aggressive.
+ - Some people call me a publicity hound.
+ - I think it doesn’t matter what color you are. Everybody is getting the – getting the stick, and I’m sure Trump feels the same way.
+ - This is the sheriff you’re talking about, with a gun and badge that enforces the law. Nothing is going to stop me from cracking down on illegal immigration as long as the laws are there.
+ - It takes a lot of work to do this every day, every day, but I feel, as a sheriff, I should get to know my people. I serve them. They don’t serve me. I serve them. They’re my bosses, and the more people I can see and talk to, I love it.
+ - Many times, when you go to arrest somebody, they pull their gun, and here I am, a federal agent, telling them to drop their gun. But the gun is like that. I give them a split second to drop it, and they drop it. I could have shot them – who is going to complain?
+ - You get so tired of political correctness. I’m noted for speaking out all my career.
+ - I’d feel more comfortable talking to the blacks, or Hispanics, or the poor areas. I feel more at home, believe it or not.
+ - I would hope to get together with the Latino community, if I could ever have them talk to me without screaming and threatening me. So I hope to get together with the community and try to explain what we do, so that’s going to be one of my missions coming up.
+ - We learn by our problems. We correct our deficiencies if there are any.
+
+45 quotes

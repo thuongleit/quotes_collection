@@ -1,0 +1,54 @@
+ - You must go on a long journey before you can really find out how wonderful home is.
+ - You can’t ever be really free if you admire somebody too much.
+ - One summer morning at sunrise a long time ago I met a little girl with a book under her arm. I asked her why she was out so early and she answered that there were too many books and far too little time. And there she was absolutely right.
+ - I’ll have to calm down a bit. Or else I’ll burst with happiness.
+ - I love borders. August is the border between summer and autumn; it is the most beautiful month I know.
+ - Lie on the bridge and watch the water flowing past. Or run, or wade through the swamp in your red boots. Or roll yourself up and listen to the rain falling on the roof. It’s very easy to enjoy yourself.
+ - I need to write down my observations. Even the tiniest ones; they’re the most important.
+ - Storms probably exist only because after them we can have a sunrise.
+ - A theatre is the most important sort of house in the world, because that’s where people are shown what they could be if they wanted, and what they’d like to be if they dared to and what they really are.
+ - Dogs are mute and obedient, but they have watched us and know us and can smell how pitiful we are.
+ - Maybe my passion is nothing special, but at least it’s mine.
+ - All things are so very uncertain, and that’s exactly what makes me feel reassured.
+ - You can’t always be friendly. It’s impossible, there isn’t the time.
+ - It is simply this: do not tire, never lose interest, never grow indifferent – lose your invaluable curiosity and you let yourself die. It’s as simple as that.
+ - A person can find anything if he takes the time, that is, if he can afford to look. And while he’s looking, he’s free, and he finds things he never expected.
+ - Most of the people are homesick anyway, and a little lonely, and they hide themselves in their hair and are turned into flowers.
+ - I want your first trip to be with me. I want to show you cities and landscapes and teach you how to look at things in new ways and how to get along in places you don’t already know inside out. I want to put some life in you...
+ - It is still summer, but the summer is no longer alive. It has come to a standstill; nothing withers, and fall is not ready to begin. There are no stars yet, just darkness.
+ - It was a particularly good evening to begin a book.
+ - There are those who stay at home and those who go away, and it has always been so. Everyone can choose for himself, but he must choose while there is still time and never change his mind.
+ - But that’s how it is when you start wanting to have things. Now, I just look at them, and when I go away I carry them in my head. Then my hands are always free, because I don’t have to carry a suitcase.
+ - Gathering is peculiar, because you see nothing but what you’re looking for. If you’re picking raspberries, you see only what’s red, and if you’re looking for bones you see only the white. No matter where you go, the only thing you see is bones.
+ - Making a journey by night is more wonderful than anything in the world.
+ - Christmas always rustled. It rustled every time, mysteriously, with silver and gold paper, tissue paper and a rich abundance of shiny paper, decorating and hiding everything and giving a feeling of reckless extravagance.
+ - One has to discover everything for oneself. And get over it all alone.
+ - He didn’t remember, he didn’t worry, he just was.
+ - She started thinking about all the euphemisms for death, all the anxious taboos that had always fascinated her. It was too bad you could never have an intelligent discussion on the subject. People were either too young or too old, or else they didn’t have time.
+ - I’m not sure I would have ever started to draw, let alone write, if my childhood hadn’t been so happy. It was a mixture of comfort and adventure. An excellent mixture!
+ - The hemulen woke up slowly and recognised himself and wished he had been someone he didn’t know.
+ - One ought to have the right to have a secret and to spring it as a surprise. But if you live inside a family you have neither.
+ - Smell is important. It reminds a person of all the things he’s been through; it is a sheath of memories and security.
+ - I don’t want to hear about them any more. I could vomit on the Moomintrolls.
+ - There’s no need to imagine that you’re a wondrous beauty, because that’s what you are.
+ - For a while she considered being ill, but she changed her mind...
+ - Someone who eats pancakes and jam can’t be so awfully dangerous. You can talk to him.
+ - It’s risky to talk about one’s most secret dreams a bit too early.
+ - Look at The Adventure. A boat by night is a wonderful sight. This is the way to start a new life, with a hurricane lamp shining at the top of the mast, and the coastline disappearing behind one as the whole world lies sleeping. Making a journey by night is more wonderful than anything in the world.
+ - It’s only the sea,’ said Moomintroll. ‘Every wave that dies on the beach sings a little song to a shell. But you mustn’t go inside because it’s a labyrinth and you may never come out again.
+ - My bag was as light as my happy-go-lucky heart.
+ - He was the owner of the moonlight on the ground, he fell in love with the most beautiful of the trees, he made wreaths of leaves and strung them around his neck.
+ - Some people just shouldn’t be disturbed in their inclinations, whether large or small. A reminder can instantly turn enthusiasm into aversion and spoil everything.
+ - Grandmother walked up over the bare granite and thought about birds in general. It seemed to her no other creature had the same dramatic capacity to underline and perfect events – the shifts in the seasons and the weather, the changes that run through people themselves.
+ - The thing about God, she thought, is that He usually does help, but not until you’ve made an effort on your own.
+ - Everyone must imagine his own snakes because no one else’s snakes can ever be as awful.
+ - One makes a trip by day, but by night one sets out on a journey.
+ - Malander had an idea and was trying to work it out, but it would take him time. Sometimes people never saw things clearly until it was too late and they no longer had the strength to start again. Or else they forgot their idea along the way and didn’t even realise that they forgotten.
+ - They were always doing something. Quietly, without interruption, and with great concentration, they carried on with the hundred-and-one small things that made up their world.
+ - I mean, anyone can let Danger out but the really clever thing is finding somewhere for it to go afterwards.
+ - But he thought all the strange words were beautiful, and he had never had a book of his own before.
+ - One must use the night.
+ - One can’t be too dangerous, if they like to eat pancakes. Especially with jam on it.
+ - A very long time ago, Grandmother had wanted to tell about all the things they did, but no one had bothered to ask. And now she had lost the urge.
+
+52 quotes

@@ -1,0 +1,22 @@
+ - Night never had the last word. The dawn is always invincible.
+ - Keep in mind the challenging fact that your aim is not to get ahead of others, but to surpass yourself; to begin today to be the person you want to be.
+ - A wholesome sense of humor will be a safety valve that will enable you to apply the lighter touch to heavy problems and to learn some lessons in problem solving that “sweat and tears” often fail to dissolve.
+ - Sometimes during solitude I hear truth spoken with clarity and freshness; uncolored and untranslated it speaks from within myself in a language original but inarticulate, heard only with the soul, and I realize I brought it with me, was never taught it nor can I efficiently teach it to another.
+ - We are not endeavoring to get ahead of others, but to surpass ourselves.
+ - Love is a tender plant; when properly nourished, it becomes sturdy and enduring, but neglected it will soon wither and die.
+ - The problem of birth control and voluntary barrenness is poisoning the very fountains of life and defying God’s injunction to multiply and replenish the earth.
+ - Even as water carves monuments of stone, so do our thoughts shape our character.
+ - Every man is a diary in which he writes one story while intending to write another. His humblest moment is when he compares the two.
+ - Real character is formed in the midst of the battles of the soul.
+ - Revealed insights should leave us stricken with the knowledge of how little we really know. It should never lead to an emotional arrogance based upon a false assumption that we somehow have all the answers – that we in fact have a corner on truth. For we do not.
+ - If any of you have a desire to be mediocre, you will probably find that you have already achieved your ambition.
+ - I should not like to contemplate an existence, especially one that is going to continue forever, if I could not enjoy that existence with those whom I love. And so we build temples in the name of the Lord.
+ - The Church has always advised against birth control and that is the only position the Church can take in view of our beliefs with respect to the eternity of the marriage covenant and the purpose of this divine relationship.
+ - If you are to be among the noble you must be noble. If you are to be among the wise, you must be wise, if you would be among the pure in heart, you must be pure in heart.
+ - Physical fitness contributes to all other aspects of personal development and makes for rich and radiant living.
+ - We believe that all men are the spirit children of God, created in his image. This concept is supported by the Holy Bible from Genesis to Revelation.
+ - Nothing but religious faith has been able to save men from despair.
+ - The master who loved most of all, endured the most and proved his love by his endurance.
+ - Notable characters do not alone bear trouble; they use it.
+
+20 quotes

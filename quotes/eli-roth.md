@@ -1,0 +1,111 @@
+ - Natural disasters are terrifying – that loss of control, this feeling that something is just going to randomly end your life for absolutely no reason is terrifying. But, what scares me is the human reaction to it and how people behave when the rules of civility and society are obliterated.
+ - I think that many people are ashamed when they feel afraid. There’s this thing in our society that you’re not allowed to feel scared. You have to be a man and put on a brave face, but we all have fears.
+ - I have so many different projects, I hear voices in my head – the characters talking all at once – and I have to write to make them stop.
+ - I want an iPhone 5, someone said something nasty on twitter, or my boyfriend isn’t texting me back, like whatever the thing is that seems so major in your life, when a real disaster hits you suddenly strips it all away and you see what’s really important and who you really are.
+ - My phobias worsen as I get older. I’m scared of flying, driving. I’m terrified of sharks. I’m a germaphobe. But I try to face my fears; I do. Well, most of them.
+ - If you don’t want to be scared in a horror film, don’t close your eyes. Close your ears.
+ - My parents love it! They’re on set. They make cameos in the movie. My father is a psycho-analyst and a professor at Harvard and he told me how many of the other professors at Harvard have gone and seen it. They love Hostel and they love the thought behind it.
+ - When I was 22, I had this horrible psoriasis outbreak. It was all over my legs, I couldn’t walk because my legs were cracked and bleeding. Weird things like that can happen to your body.
+ - Possession and exorcism is something that’s in every religion and every culture. It’s a real primal fear: Is the body a vessel for our spirits? What happens if something else takes over it? Where does the spirit go?
+ - I want a movie that 30 years from now, people can look back and see it as a reflection of where the culture was at – as a barometer of the culture.
+ - Horror movies are the best date movies. There’s no wondering, ‘When do I put my arm around her?’
+ - I think in life we get very caught up in the minutia and, unfortunately, it generally takes some sort of tragedy in your life to put things in perspective.
+ - I think in the late ’80s and early ’90s horror was dead.
+ - I have no tattoos. There’s nothing I’ve even been that into to get a tattoo of it.
+ - With Hostel II I thought I had a very, very strong female audience so I’m going to make a movie that’s going to appeal to them. The guys will love it, they’ll have their moments. But there’ll be a lot more male nudity in this one. I have a lot of sausage in this one!
+ - Lucio Fulci is such a massively underrated director. Everyone knows him as the Godfather of Gore.
+ - For a long time, I had a crazy girl dating habit.
+ - You’d be lucky to get tortured to death in one of my films. It’s the best thing that could happen to your career. But I’m very aware that as soon as you put women in this situation, all of a sudden people are like: “Wow, well wait a second!” Immediately, people become very sensitive to it.
+ - Las Vegas is a 24-hour city. It never stops.
+ - Imagine trying to relive your worst break-up, your worst fight, the most painful death of a loved one, and just really relive it step by step, and bring it up and apply it to the scene you’re in.
+ - You have to write scenes and design scenes that are scary and horrific, but that are also watchable. I didn’t want people to just feel like they got punched in the stomach.
+ - The film, ‘Aftershock,’ for me is really about how the minor problems in life that we think are so major ultimately mean nothing when a tragedy happens, when a real problem happens.
+ - I love movies that are just straight-up exploitation, but the ones that endure and the ones that last are the ones where the filmmakers put in that extra level of thought; after 25 years you put them on in front of an audience, and they’ll respond to it and enjoy it.
+ - I look at careers like Ben Stiller and think that’s a great career to have where you’re doing movies that you write and direct, and also act in films, although he’s primarily an actor.
+ - A comedy can actually get funnier and funnier. Even though you know the joke, you enjoy it so much, it’s the facial expression, you laugh. The laugh doesn’t wear off. It could be with you for thirty years.
+ - There’s something very scary about exposing yourself on camera, knowing that you’re going to be put on thousands of screens around the world for everyone to judge, but there’s also something very thrilling and exciting about it.
+ - All the copycat movies were always PG-13 and people said: “Nobody wants violence.”
+ - I always say that no matter what the torture is, or the tool is, first of all it’s nothing worse than what’s been done already and that wasn’t done by the church and the state for over a period of 250 years during the European witch trials.
+ - I’ll direct any movie starring a monkey or the Olsen Twins. Preferably both.
+ - The best movies now are called ‘thrillers.’ Because if you use the word ‘horror,’ people’s associations are straight-to-video crap.
+ - I have control issues. For sure, no question.
+ - There’s fear in everything, but we can’t just succumb to that. We have to suppress it, so we get used to suppressing fear to make it through the our day. Otherwise, we’d become paralyzed by them.
+ - What’s important for me is staying healthy.
+ - I have a strong art-history background.
+ - I hear what people say, I read all the reviews, all the blogs, and I am always curious to hear it, because you can’t always listen to the good press, you have to hear the bad press, too.
+ - I’d love to see us get to a point where you can make a movie and not worry about the limits of the violence. Then I think they’d get so violent that people would get bored of it.
+ - You do need an outlet to release all of those fears. You build it up and then, when you go to a movie theater, it’s the last place that it’s socially acceptable to be terrified. It’s saying that, for the next 90 minutes, you’re allowed to be afraid and you’re not a coward for feeling that way.
+ - When people direct insults at me, I can take it.
+ - The world is changing. Social media is a way to sell movies and to build a fan base. The truth is that you have followers because they know you are into it and you’re funny and you like it. I think it’s great.
+ - Twitter is wonderful. You can kill rumours instantly.
+ - Borat shows American stereotypes of Eastern Europe but it’s an accurate depiction of what a certain type of American is. They think they can buy and sell these girls and then they get bought and sold.
+ - Life is a series of avoiding horrible situations until ultimately you’re dead. That’s how I feel about things.
+ - I feel like in the ’90s, horror just lost its way and everything became so safe and watered-down.
+ - If someone gets up and walks out of the movie, it means it’s really affected them.
+ - I’ve always wanted to make a big apocalypse movie. I love 28 Weeks Later, I think it’s great but Cell is totally different. It’s about people’s dependence on technology, the collapse of society and watching everything fall apart. That’s something I’ve always wanted to do, which I believe it can!
+ - I was listening to music to kind of pump myself up and get psyched up, like I was listening to Iron Maiden and Misfits and Dead Kennedys, and it was like my ‘80s Massachusetts parking-lot heavy metal and Guns N’ Roses.
+ - When I go see an R-rated horror movie, I want lots of violence.
+ - Creative writing and shooting are muscles that atrophy. But when you work them, you become a self-generator who can branch out.
+ - One of the great elements of the supernatural is having that mystery and letting people’s imaginations run wild with it.
+ - I have the infinite galaxy from ’2001 as my screensaver – so if I space out while I’m writing and it goes to screensaver, I can just stare off into the stars.
+ - I’m from Boston, and in Boston, you are born with a baseball bat in your hand. And actually, most of the bats in Massachusetts are used off the field instead of on the field, and we all had baseball bats in our cars in high school.
+ - I love historical movies. I want to make a violent medieval epic.
+ - I like movies like Mother’s Day, where you watch it, and you’ve liked it for years as a horror movie.
+ - The one negative to horror is that it’s always law of diminishing returns. When you go in the funhouse, the ride is never scary the second time. You will never have that pure experience as when you first watch it.
+ - As a kid, I was the neighbourhood baby-sitter – very responsible, always in charge.
+ - We live in an age now where so many people watch movies based on what Netflix recommends. It learns your taste and they really understand viewer habits.
+ - I’m not interested in going after a part. I think if someone wants me for a part and approaches me then I’ll take it on a case-by-case basis and see what that part is.
+ - Everyone is so terrified of being labeled a racist.
+ - You know, I’m from Boston, and in Boston, you are born with a baseball bat in your hand.
+ - I never put out a vanilla edition of a DVD.
+ - Anytime you make a movie, the goal is a wide theatrical release, with the right distributor.
+ - I’ve always wanted to be involved in an exorcism movie. But I thought, “How do you make something scarier than The Exorcist?” The answer is you don’t. But that doesn’t mean you can’t make something that is original and interesting.
+ - It’s very flattering to feel like you actually helped create a sub-genre.
+ - Even post-WWII, nobody talked about the Holocaust. It wasn’t until the ’50s that people started talking about it.
+ - When you’re making a television show, it’s about the story and arc of the show rather than any particular episode or director.
+ - I’ve always been a fan of 3D, going back to movies in the ’50s. I was part of the early ’80s 3D craze, which was coming at you in Jaws 3D, so I’ve always wanted to make a 3D film.
+ - I think you should make movies as long as the story dictates.
+ - I always feel that there’s no violence in a movie – it’s not real, it’s a magic trick. Nobody is really dying. In fact, the people that die in my movies have gone on to become extremely successful!
+ - Once I got over the fear of writing female characters, it actually came quite easily and I was really happy with it. I just thought about girls I knew really, really well and I’d just have conversations with them and tried to relay how they talk about certain things.
+ - Look at comic books. It used to be something that only geeks were into. And now it’s everywhere.
+ - The scariest people are usually the sweetest.
+ - I saw ‘Alien’ when I was 8 years old. To me, it was like a combination of Jaws and Star Wars, and that’s the movie that made me want to be a director.
+ - In musical theater, if you have a song, it has to advance the plot. If you have a song in a musical and it does not advance the plot, it gets dropped.
+ - I think characters are most terrifying when they’re relatable. It’s best when your most horrible characters make sense, and are believable. That’s when a movie is most terrifying.
+ - I can think of endless horrible things to do to people!
+ - One of the great joys of life, now that you can afford a nice suit, is getting one for free. That’s why I like to do press tours – I always say making movies is just an excuse to get free clothing.
+ - For the fee of $10,000, anyone could be escorted to a room, handed a loaded gun and offered another human to kill. The concept made me nauseous. But it also felt real, and rang bells with my more cynical side.
+ - Pulp Fiction won the Palme d’Or and people said: “Wait a minute, he’s actually smart and he knows what he’s doing!” I feel that with Hostel, any time you make a film like that it’s going to illicit a strong reaction and you can’t worry about that.
+ - Believe it or not, but I was a camp councilor for three years. I love kids.
+ - People want to be disturbed when they go see a horror movie.
+ - Everybody has to know where they’re coming from, what they’re doing, why they’re doing it, who they are. These are essentials.
+ - I love movies that have that resonating scare, that really get under your skin and make you think.
+ - I’ve always been fascinated by the idea that there’s no such thing as evil; it’s all in your point of view. To one group a suicide bomber is the antichrist and to one he’s a hero.
+ - Quentin Tarantino assistant called me and said: “I have good news and bad news. The good news is you got the part, the bad news is you have to do it.” I was like: “Oh Jesus, when am I supposed to do this?” I was prepping Hostel.
+ - As a kid, my idols were Sam Raimi and Peter Jackson, and I get into crazy races with myself. Raimi was 21 when he made movies, and when I didn’t get ‘Cabin Fever’ made that fast I thought I’d failed.
+ - You know, the best thing you can say about a horror film is, ‘Don’t see it.’
+ - It’s just assumed that a horror sequel is going to be bad. It’s never going to be as good as the first one.
+ - If I don’t come home covered head to toe in fake blood then I haven’t done my job as a horror director.
+ - Movie stars need to retain some of that mystique if you are a big movie star.
+ - Hopefully we’ll get to a point where people realize movies don’t cause violence. It just reflects the violence going on in the culture.
+ - I want people to see my name on a movie, pay money and know they’re going to be entertained for 90 minutes.
+ - Well, anytime I make a movie, I like to load it up with more things than you could ever catch on the first viewing.
+ - Horror audiences don’t need to see some TV actor they’re familiar with.
+ - I felt people responded to two things. One, obviously, is the gore and the scenes like the eye gauging.
+ - I knew how to act and had studied acting and enjoyed it, but I’d never pushed myself to really perform as an actor, and create a role, and have the whole character’s backstory.
+ - I don’t want people to feel: “Why am I watching this? It’s sick and sadistic.” I want people to watch and think it’s scary but they can’t wait to see what happens next. I also wanted to make a movie that was watchable.
+ - I think horror should never be safe, whether it’s violent or non violent.
+ - I get a little too obsessive with work.
+ - I love movies. I mean, I really, really love movies.
+ - If you are having fun on the set, you are not getting things done.
+ - I need to eliminate ‘like’ from my vocabulary. I begin sentences with, ‘That’s seriously like ’ I hear myself talking in this Los Angeles high-school student kind of way, and I hate it.
+ - I’ve realized that I can’t multitask in the writing department; I can only kind of do one thing at a time.
+ - Anytime you’re the first to speak out against something, there’s going to be a backlash.
+ - Sometimes you have this tragedy which turns into an incredible opportunity.
+ - What is important to me is that people know I respect the business of making movies.
+ - Quentin Tarantino faced the same backlash when his films came out until eventually people felt they were actually much smarter.
+ - I generally follow my own compass and make films about what’s scaring me.
+ - I’ve always dreamed of having a year-round haunted house.
+ - I want to have an ending where people say: “That’s the most shocking ending I’ve ever seen in a mainstream horror film.”
+
+109 quotes

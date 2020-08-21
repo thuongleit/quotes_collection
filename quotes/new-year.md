@@ -1,0 +1,42 @@
+ - The new year stands before us, like a chapter in a book, waiting to be written. We can help write that story by setting goals. ~~Melody Beattie
+ - Cheers to a new year and another chance for us to get it right. ~~Oprah Winfrey
+ - Stay away from what might have been, and look at what can be. ~~Marsha Petrie Sue
+ - Let our New Year’s resolution be this: we will be there for one another as fellow members of humanity, in the finest sense of the word. ~~Goran Persson
+ - Each new day is a blank page in the diary of your life. The secret of success is in turning that diary into the best story you possibly can. I wish you Happy New Year and diary full of best stories ever written in your life. ~~Laozi
+ - Let us thank God for life and the blessings He’s put before us. High among them are our families, our freedom, and the opportunities of a new year. ~~Ronald Reagan
+ - Every time you tear a leaf off a calendar, you present a new place for new ideas and progress. ~~Charles F. Kettering
+ - When one door is closed, don’t you know, another is open. ~~Bob Marley
+ - Do one thing every day that scares you. ~~Eleanor Roosevelt
+ - I love the big fresh starts, the clean slates like birthdays and new years, but I also really like the idea that we can get up every morning and start over. ~~Kristin Armstrong
+ - Don’t go into the new year holding a grudge from last year. Leave the hurts and disappointments behind. ~~Joel Osteen
+ - And now we welcome the new year, full of things that have never been. ~~Rainer Maria Rilke
+ - Kindness, kindness, kindness. I want to make a New Year’s prayer, not a resolution. I’m praying for courage. ~~Susan Sontag
+ - May the New Year bring you courage to break your resolutions early! ~~Aleister Crowley
+ - A new heart for a New Year, always! ~~Charles Dickens
+ - This bright new year is given me. ~~William Arthur Ward
+ - In this life, to earn your place you have to fight for it. ~~Shakira
+ - Another fresh new year is here. Another year to live! To Banish worry, doubt and fear, to love and give. ~~William Arthur Ward
+ - A merry Christmas to everybody! A happy New Year to the world! ~~Charles Dickens
+ - I want to be around people that do things. I don’t want to be around people anymore that judge or talk about what people do. I want to be around people who dream and support and do things. ~~Amy Poehler
+ - With the opening of the New Year, all the closed portals of limitations will be thrown open and I shall move through them to vaster fields, where my worthwhile dreams of life will be fulfilled. ~~Paramahansa Yogananda
+ - In order to lead a fascinating life, one brimming with art, music, intrigue, and romance, you must surround yourself with precisely those things. ~~Kate Spade
+ - If you asked me for my New Year Resolution, it would be to find out who I am. ~~Cyril Cusack
+ - Many merry Christmases, many happy New Years. Unbroken friendships, great accumulations of cheerful recollections and affections on earth, and heaven for us all. ~~Charles Dickens
+ - It’s a new year, new year, new money, money! ~~Rick Ross
+ - Have your new year’s resolutions been a new beginning for you or have they just been different words on the same old beginning? Maybe now’s the time to establish a new pattern of viewing your life fresh. ~~Mary Anne Radmacher
+ - I have a New Year’s tradition. I lay all my travel dreams on the table, sort them out, prioritize, and begin the process of turning those dreams into reality. ~~Rick Steves
+ - I have the opportunity, once more to right some wrongs, to pray for peace, to plant some trees, and sing more joyful songs. ~~William Arthur Ward
+ - Make New Year’s goals. Dig within, and discover what you would like to have happen in your life this year. This helps you do your part. It is an affirmation that you’re interested in fully living life in the year to come. ~~Melody Beattie
+ - My new year’s resolution is definitely to quit smoking. I need to do it. ~~Zayn Malik
+ - My new years resolution? I will be less laz... ~~Jim Gaffigan
+ - So I started shoveling Bob’s driveway, which is a strange thing to do at a New Years Eve Party. ~~Stephen Chbosky
+ - On New Year’s Eve he ould make a resolution to recover some his previous scepticism, but until then he would do as the Romans do, and smile at people even if he disapproved of them. ~~Nick Hornby
+ - I had a terrible fight with my wife on New Year’s Eve. She called me a procrastinator. So I finished addressing the Christmas cards and left. ~~Robert Orben
+ - I take New Years with a grain of salt and three aspirins. ~~Milton Berle
+ - I bought my son a bat for Christmas. On New Year’s it flew away. ~~Milton Berle
+ - But can one still make resolutions when one is over forty? I live according to twenty-year-old habits. ~~André Gide
+ - We must use time creatively, and forever realize that the time is always ripe to do right. ~~Nelson Mandela
+ - An optimist stays up until midnight to see the new year in. A pessimist stays up to make sure the old year leaves. ~~Bill Vaughan
+ - Resolution One: I will live for God. Resolution Two: If no one else does, I still will. ~~Jonathan Edwards
+
+40 quotes

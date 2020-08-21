@@ -1,0 +1,44 @@
+ - If you find a path with no obstacles, it probably doesn’t lead anywhere.
+ - We find comfort among those who agree with us – growth among those who don’t.
+ - Everyone is trying to accomplish something big, not realizing that life is made up of little things.
+ - Real generosity is doing something nice for someone who will never find out.
+ - Criticism, like rain, should be gentle enough to nourish a man’s growth without destroying his roots.
+ - You can suffocate a thought by expressing it with too many words.
+ - If a fellow isn’t thankful for what he’s got, he isn’t likely to be thankful for what he’s going to get.
+ - The most important thing that parents can teach their children is how to get along without them.
+ - A baby is born with a need to be loved – and never outgrows it.
+ - Why not upset the apple cart? If you don’t, the apples will rot anyway.
+ - It’s hard to detect good luck – it looks so much like something you’ve earned.
+ - You may give gifts without caring, but you can’t care without giving.
+ - People help each other through a crisis by each supposing that the other can handle it better than he himself can.
+ - When a man eats his words, that’s recycling.
+ - To feel sorry for the needy is not the mark of a Christian – to help them is.
+ - The more you learn to live without, the more you’ll have to live with.
+ - Modern man is frantically trying to earn enough to buy things he’s too busy to enjoy.
+ - It’s better to recall something you wish you’d said than something you wish you hadn’t.
+ - Gossip needn’t be false to be evil – there’s a lot of truth that shouldn’t be passed around.
+ - Many folks think they aren’t good at earning money, when what they don’t know is how to use it.
+ - I think the next best thing to solving a problem is finding some humor in it.
+ - A father is a man who expects his son to be as good a man as he meant to be.
+ - A child, like your stomach, doesn’t need all you can afford to give it.
+ - If you haven’t time to help youngsters find the right way in life, somebody with more time will help them find the wrong way.
+ - Faith on a full stomach may be simply contentment but if you have it when you’re hungry, it’s genuine.
+ - The reason there’s so much ignorance is that those who have it are so eager to share it.
+ - Every adult needs a child to teach; it’s the way adults learn.
+ - Even if you can’t prevent another’s sorrow, caring will lessen it.
+ - If God simply handed us everything we want, He’d be taking from us our greatest prize – the job of accomplishment.
+ - Maybe a person’s time would be as well spent raising food as raising money to buy food.
+ - You seldom come across anything more enjoyable than a happy person.
+ - There is one advantage to having nothing, it never needs repair.
+ - We’re all generous, but with different things, like time, money, talent – criticism.
+ - There’s nothing that can help you understand your beliefs more than trying to explain them to an inquisitive child.
+ - I would like to be able to admire a man’s opinions as I would his dog – without being expected to take it home with me.
+ - Our economy is based upon people wanting more; their happiness on wanting less.
+ - Kindness makes a fellow feel good whether it’s being done to him or by him.
+ - Most of us must learn a great deal every day in order to keep ahead of what we forget.
+ - A man’s conscience, like a warning line on the highway, tells him what he shouldn’t do – but it does not keep him from doing it.
+ - A valuable friend is one who’ll tell you what you should be told, even if it offends you.
+ - A habit is something you can do without thinking – which is why most of us have so many of them.
+ - A leading authority is anyone who has guessed right more than once.
+
+42 quotes

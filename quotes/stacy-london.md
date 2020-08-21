@@ -1,0 +1,57 @@
+ - You should feel beautiful and you should feel safe. What you surround yourself with should bring you peace of mind and peace of spirit.
+ - Fit is everything. I don’t care what your body type is like: If you’re not wearing clothes that fit you, you can’t have style.
+ - Don’t let fear or insecurity stop you from trying new things. Believe in yourself. Do what you love. And most importantly, be kind to others, even if you don’t like them.
+ - You have to let go of who you were to allow yourself to become who you are.
+ - All metallics are neutrals. So it is absolutely fine to mix gold and silver; you just want it to look like it has purpose.
+ - Your self-esteem won’t come from body parts. You need to step away from the mirror every once in a while, and look for another reflection, like the one in the eyes of the people who love you and admire you.
+ - Matching your hat to your shoe to your bag, or your necklace to your earrings, has a tendency to look dated. Mixing up your accessories adds interest to an outfit, and can make you look much more modern and polished.
+ - Finding tricks to create flattering body shape is the key to style.
+ - Seeing, feeling, thinking, believing – these are the stages of how we change our style on the outside and our self-image on the inside.
+ - Rules like ‘don’t wear white after Labor Day’ or ‘shoes matching the handbag’ are antiquated. Modern women should feel free to experiment.
+ - Clothes are not Botox. Wearing a miniskirt does not take 10 years off your face.
+ - Confidence is the best accessory. It can make or break an outfit.
+ - Style can change your look, certainly, but it can also change your life.
+ - Style is not a reward for the skinny. It’s not, ‘iI I’m rich, thin and young.’ You may not like your size, but then don’t invest in leather leggings. Let yourself want the expensive bag and really love it and show it off and have a ball with it.
+ - You can’t fit your clothes well and look your best if you don’t know what you’re working with.
+ - I don’t argue style on the basis of tastes. If you feel like you’ve reached your personal best, don’t change.
+ - Self-esteem doesn’t come simply from dressing well, but they are both something we can control. It’s a missed opportunity when women say they don’t have the money, figure, etc., because style is such a way to help cultivate the way women feel about themselves.
+ - I believe every PERSON is beautiful. What you do with that beauty, how you develop it, is up to you.
+ - I understand when u feel overwhelmed style is the 1st thing to go, but its also the 1st thing you can pick back up to get you back on track.
+ - Fashion is an industry to make money. It plays into human psychology. We want to belong, we want to be loved. I’m not trying to demonize the fashion industry – I love the fashion industry – but style is about taking the control out of the industry’s hand and having you decide what works for you.
+ - Never let a trend get in the way of creating a great outfit for yourself.
+ - Nothing’s too girly and nothing’s too masculine. But I do love color, and maybe that’s a little girly – especially pink.
+ - Less is more. I truly believe in buying a few pieces with better construction.
+ - Style applies to a lifestyle. It’s not about being told this is trendy, you must do it. Now people have more access than ever before.
+ - I know what it feels like to struggle with your weight, and it makes me understand why women get attached to numbers on a scale or a dress size. It doesn’t mean that I have gotten over all of it myself, because I have good days and bad days just like everyone else.
+ - I really do believe that my style is informed by the fact that I had such issues with my appearance at various times of my life.
+ - If you deny the reality of your body or your life, you’ll never be able to dress any of it well – even the parts you love. You have to see it all to work with any of it.
+ - Texture is something we forget – it makes outfits look very expensive. You can do a monochromatic outfit, if you’re afraid of things that are more colorful and printed, and still create interest.
+ - Style is joyful if you allow yourself to have joy.
+ - Your closet needs to be a place of joy and celebration of who are you now – not who you were.
+ - If you only have work clothes – the black trouser and ribbed turtleneck you got four years ago at the Gap – you’re not participating in your own style personality.
+ - Only buy things that make your heart sing. If I don’t love it, I won’t buy it.
+ - There is something about a well-fitted modern jacket that feels like armor. If it’s cut well, it adds a dose of cool to anything you wear it with and does the heavy lifting when it comes to creating a flattering shape.
+ - We all put obstacles in our own path toward personal style, myself included. If we understood why we constructed these practical and emotional obstacles, we might move beyond it to healthier, happier perceptions of ourselves and, ideally, a better sense of self-esteem.
+ - Your personal style should evolve with age. To say you want the same style at 25 as at 45 is a mistake.
+ - I’m not as snarky as I used to be.
+ - Looking relevant, modern, timely and appropriate in terms of your age, body type and lifestyle is not only about the joy of self-expression but a form of self-care: it lets the world know how you want to be perceived and treated.
+ - You don’t need money to look fabulous. There are so many awesome new designers, so many designers doing collections for mass retailers.
+ - The key to personal style is understanding your individual beauty enough to know which looks will work for you and which probably won’t.
+ - A lot of people have said that I’m super-snarky and mean. But honesty is the only way to get people to change. It’s very important to be constructively critical – give people alternatives and you’re giving them a new way to see themselves.
+ - Being able to choose the skin I live in was the draw of fashion.
+ - I own about 300 pairs of shoes. When I start to go over 300, I have mini-sales from my closet and give the money to charity. It’s my way of recycling; I feel like I can give back to the universe.
+ - Style is all about your individual sense of how you want to present yourself to the world. It’s about loving what you’ve got instead of wishing for what you’re not.
+ - Some women are convinced that they are the same size they were 20 years ago. They also wear clothes that are too big in an effort to hide their body. Both cases are unflattering and work against your body. Some women are in denial about changing.
+ - Clothes allow you to see yourself in a different light. They can transform you instantly and have a very real, visceral impact. Clothes become symbolic of who we are.
+ - Any item in your wardrobe should satisfy one of two criteria: utility and joy.
+ - I think style is very different from fashion. Fashion was what I went after when I was feeling incredibly insecure and monstrous on the inside.
+ - You have to look in the mirror and see that what you’re wearing looks good on the body you have now. Wearing a larger size is just wearing a larger size.
+ - Style is the instrument you can pick back up when you want to regain some of the confidence you’ve lost.
+ - Smart beauty is about looking your best and feeling your best and never overpaying for it.
+ - Whether you’re as healthy as you should be or not, that doesn’t disallow you to look your best. Style is only possible from a place of self-acceptance.
+ - What is magical and mystifying to me about style is not that by seeing we can believe. It is that eventually, we can believe, because we can see we can embrace change the more we can make it tangible.
+ - The fact is, there is only one body ideal in fashion, and most likely, you don’t have it.
+ - Style offers concrete rules you can follow. You can use it as a resource rather than a barrier to feeling good about yourself.
+ - Not one person I know isn’t concerned with their appearance. To trivialize fashion is to rob ourselves of a great tool.
+
+55 quotes

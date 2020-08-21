@@ -1,0 +1,63 @@
+ - Take ownership of every decision you make because you will be hold responsible for the film, whether good or bad.
+ - My idea of professionalism is probably a lot of people’s idea of obsessive.
+ - Hire the right people and get the hell out of the way.
+ - The thing I always say to any writer that I’m working with is: Just make sure that in any argument, EVERYONE is right. I want every single person arguing a righteous side of the argument. That makes interesting drama.
+ - People will say, ‘There are a million ways to shoot a scene,’ but I don’t think so. I think there are two, maybe. And the other one is wrong.
+ - Movies aren’t finished, they’re abandoned. And you have to make your peace with that.
+ - I think intelligence is totally subjective; it’s like sexiness.
+ - Every child is different. Every child responds in a different way.
+ - I have demons you can’t even imagine.
+ - I learn the most from making my own mistakes.
+ - Human beings are amazing at finding ways to waste their own time.
+ - In film, we sculpt time, we sculpt behavior and we sculpt light.
+ - Everything seems really simple on paper until you take a camera out of the box.
+ - There are some movies I can watch over and over, never get sick of.
+ - I don’t know how much movies should entertain. To me I’m always interested in movies that scar. The thing I love about JAWS is that I’ve never gone swimming in the ocean again.
+ - People always ask why I don’t make independent movies. I do make independent movies – I just make them at Sony and Paramount.
+ - When I’m watching somebody act, it’s a behavior editorial function – I look at someone act, and I might say, ‘I don’t believe him when he says that.’ I don’t know why I don’t believe him, probably because the people that I’ve met, they don’t act like that when they say stuff like that and mean it.
+ - Directing ain’t about drawing a neat little picture and showing it to the cameraman. I didn’t want to go to film school. I didn’t know what the point was. The fact is, you don’t know what directing is until the sun is setting and you’ve got to get five shots and you’re only going to get two.
+ - It’s a bad day when you don’t get the work done that you need to get done or you don’t get it done to the satisfaction.
+ - How do you shoot a 150-day movie? You shoot it one day at a time.
+ - We’re designed to be hunters and we’re in a society of shopping. There’s nothing to kill anymore, there’s nothing to fight, nothing to overcome, nothing to explore. In that societal emasculation this everyman is created.
+ - A movie is made for an audience and a film is made for both the audience and the film-makers.
+ - Entertainment has to come hand in hand with a little bit of medicine. Some people go to the movies to be reminded that everything’s okay. I don’t make those kinds of movies. That, to me, is a lie. Everything’s not okay.
+ - You have a responsibility for the way you make the audience feel, and I want them to feel uncomfortable.
+ - Look, it’s nice. I like the fact that critics liked this movie, but most of the movies that I’ve made, you’ll find a handful of people that love it and more than a few other handfuls of people hate it. If I was invested in that, I would’ve given up long ago.
+ - The simple-minded always look for something – if it’s not pornography, it’s DVDs or the Internet or video games – but I don’t think there’s anything inherently evil about Facebook.
+ - I like people that like to work the way that I like to work.
+ - For a number of years, I’d been around the kind of people who financed movies and the kind of people who are there to make the deals for movies. But I’d always had this naive idea that everybody wants to make movies as good as they can be, which is stupid.
+ - I like characters who don’t change, who don’t learn from their mistakes.
+ - The thing is, that great actors are everywhere. They’re everywhere. They’re doing good parts on television. They’re doing television commercials. They’re doing local theater. There are so few opportunities.
+ - I want people to surprise themselves. Instead of saying “Oh, god, didn’t we already do this 17 times?”
+ - I have great appreciation for people who do anything well. I think that it’s very difficult to do what you do well.
+ - I’m totally anti-commercialism.
+ - And I love shooting football.
+ - If I could be anyone, it would be Brad Pitt.
+ - Hollywood is great. I also think it’s stupid and small-minded and shortsighted.
+ - I don’t think that digital technology will ever take away the humanity of storytelling, because storytelling is entirely, in and of itself, a wholly human concern.
+ - If you read the good reviews you gotta read the bad reviews. I kind of think of it as like being a quarterback: you get way too much blame when it’s bad and way too much credit when it’s good.
+ - I always say everyone was lucky enough to be in a Cate Blanchett movie.
+ - It’s a very American thing to hide away from death.
+ - Perfume is pretty good because nobody has to hold the product by their face or use it.
+ - For me, the scariest thing about a serial killer is that there’s somebody who lives next door to you, running power tools late into the night, and you don’t know he has a refrigerator full of penises.
+ - You have the power to pause stuff and you have the power to go to the bathroom. You can do whatever you want in your own home. It’s a much more relaxed thing. It’s more like a book, it seems to me. That’s kind of the way I watch movies.
+ - I loved Luke Skywalker and I loved Darth Vader and I loved watching them work it out.
+ - I was a disinterested student.
+ - I’ve never been to Harvard, I’ve never been to college, so I don’t know what dorm life is like.
+ - When you go and you tell a studio and that it’s an ensemble, that doesn’t mean a lot to them. But, my hats off to Paramount and Warner Brothers, because when we told them that these were the kinds of people that we want to get, across the board, they were unbelieveably enthusiastic about it.
+ - I think title sequences are an opportunity to sort of set the stage or to get people thinking in different terms than maybe whatever they understand the movie to be going in.
+ - You’ll find that the movie business is paid for by those mega movies. The movie business is paid for by Big Macs. By movies as product. Movie studios use that term “product” all the time. Product? You mean you have a lot of stories? No, we have a lot of product. You have stories.
+ - I want people to flourish. I want them to walk away from the experience going, “That’s what it should be like.”
+ - We live in a silly time, and people go to the movies to see something that they haven’t seen before, and you have to promise to show them that. In a horrible way, you have to promise them a special effect.
+ - I do agree you can’t just make movies three hours long for no apparent reason. For a romantic comedy to be three hours long, that’s longer than most marriages.
+ - I like the idea of R-rated franchises.
+ - People go to the movies to see things they haven’t seen before. Call me a radical.
+ - Oh, yeah, I love DVD’s. I don’t have what you’d call an extensive collection, maybe a couple of hundred or so. But I have something on almost all the time.
+ - I don’t know how to depict intelligence.
+ - I don’t have the Tom Hanks fans. When you make the kind of movies I make, you get weird letters from people.
+ - You can do something that walks a line, and invariably, whatever that line is, it will be crossed by people who don’t know any better and want to ape the success.
+ - Entertainment has to come hand in hand with a little bit of medicine.
+ - It’s based not only on what it played like in the theater, but it’s also knowing that certain things play differently in a home theater environment. You have different expectations when you’re sitting with 700 people than when you’re sitting with your friends or family. It’s just a different world.
+ - You know, I don’t think I’ve ever listened to someone’s commentary. Ever.
+
+61 quotes

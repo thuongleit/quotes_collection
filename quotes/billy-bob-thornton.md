@@ -1,0 +1,98 @@
+ - Marketing is the devil.
+ - I don’t have a fear of flying; I have a fear of crashing.
+ - I’m kind of sad and happy all the time. Just kind of like feeling, you know, full of life and confident, and at the same time terrified. I’m all of those things at once.
+ - Life is magical and I guess my thing is I wish that people wanted that magic.
+ - Man, I was drowning in sadness. And Angelina, she lifted me right up out of there.
+ - I quit flying years ago. I don’t want to die with tourists.
+ - At my dad’s funeral I didn’t cry when my dad died. I did it years later when I forgave him, which I’ve totally forgiven him and I loved my dad.
+ - It’s not that I don’t understand it. But people think if you speak with an English accent it somehow makes you smarter.
+ - Somewhere along the line we stopped believing we could do anything. And if we don’t have our dreams, we have nothing.
+ - People want the truth but they only want the truth so they can talk bad about you on the blog or on television. They want you to tell them the truth and it screws everybody.
+ - If Michelle Pfeiffer gave Mel Gibson a vial of blood to wear around his neck in a movie you’d think it was terribly romantic, everyone would cry and they’d win awards. But in real life if someone does that they’d be considered weird.
+ - Heavy role in the movies that I’ve done that I have loved and fit my soul; A Simple Plan, Monster’s Ball, Sling Blade, One False Move, Bad Santa even. I mean Bad Santa is a comedy, and it’s a very dark comedy, and it’s become like iconic, you know.
+ - Sometimes we don’t want the bad guy to get caught because otherwise the story is over. You want to at least see it through to the end.
+ - I’ve gone through my periods. I’ve read the Bible completely, all the way through twice. I did it once when I was about 20 and I did it again when I was about 30.
+ - You can write when you’re dyslexic, you just can’t read it. But I started writing short stories as a child and I found the short story format a real nice one. I love short stories and I love short documentaries or short films of any kind.
+ - My mom is such a big supporter of mine. She still is, and always was. So I got the sort of encouragement from that side of the family.
+ - You can get famous for doing something stupid and empty, but you do something stupid and empty and you’re already famous, you lose your career.
+ - Normally you’re 21 years old and you look like Tom Cruise and you do a couple underwear commercials first and then you’re a movie star. That didn’t happen for me. So it was all quite overwhelming.
+ - My mom was a psychic. And there’s a movie called The Gift that I’d written years ago with Cate Blanchett which is loosely based on my mom.
+ - I’ve never heard of anybody smoking a joint and going on a rampage. It makes you lie around on the floor and look at the ceiling. What’s wrong with that?
+ - If someone is talking to you and tells you that you ought to do something, and you can tell they mean it, those are the scary people. Those are the people you want to watch out for.
+ - I worked as a roadie in the rock and roll business which was great fun. Very little money, very little food and the whole thing about the roadie’s lifestyle is great because all the groupies have to go through the roadies to get to the rock stars. It’s not necessarily true.
+ - When you’re a kid, somebody’s mid-forties, you think they’re an old man. Then you grow up and it’s like, I was a kid.
+ - I was the fattest baby in Clark County, Arkansas. They put me in the newspaper. It was like a prize turnip.
+ - Nothing wrong with computer as things. They can work wonders in communications and business and medicine and everything else.
+ - A lot of kids, when they go to church, they don’t really pay much attention to what they’re saying or whatever.
+ - People a lot of times say that you know it must be hard to direct yourself. That’s a myth. It’s easier to direct yourself. There’s no middle man, you know.
+ - It’s the hardest thing in the world to be in a business where it’s all about people accepting you, and you have a desperate need to be accepted, and yet you live in a, you operate in a society that’s now very unaccepting.
+ - I believe in running through the rain and crashing into the person you love and having your lips bleed on each other.
+ - I think maybe I was instrumental in taking the stereotype out of the Southern actor is some ways. I would hope my legacy would be as a serious actor who told the truth and did parts based on the quality of part and not necessarily the money.
+ - These days movies are cut very quickly and sort of fragmented and I tend to do slower moving stories where people develop relationships with people. I think I’d probably do a lot better if I lived in Europe – I think it’s more of a European sensibility somehow.
+ - Getting the nomination is like gravy. Winning would be like whatever is better than gravy.
+ - Movies these days have made killers into funny people. What’s that all about? I’ve got kids and family and friends, and I don’t like bad things. I don’t think they’re funny, and it’s irresponsible to make movies that don’t show you how that’s not good.
+ - I figured I would have to tell someone to kiss my ass before it was all over, and I have – twice.
+ - People over 40 stay home and watch television, that’s why there are no movies out there.
+ - I don’t see anything wrong with a cell phone. That’s great. You have a flat tire in the middle of the night; it works better than digging in your pocket for a quarter and looking for a payphone eight miles down the road.
+ - When people wear shoes that don’t fit them, it says something about their soul. Generally, I think it means they are good people.
+ - You read something and you just feel this makes sense. And sometimes before you even read it you have a feeling that yeah, I’m probably gonna do this one.
+ - I always say if you’re going to do a movie about Charles de Gaulle get a Frenchman, you know. I’m not French. And yeah, sure I could get with a dialect coach and work for six months trying to talk like a Frenchman. But there’s some French actors. Just get one of them, you know.
+ - I think people can live a religious life and yet believe in things maybe outside the box a little bit.
+ - Usually when I’m writing, I kind of know what it is before I start writing and I write stream of consciousness style.
+ - I used to put that I studied with Stella Adler on my resume. I never met Stella Adler. But if you told a casting director you studied with Stella Adler all the sudden they’d let you in the door.
+ - When I was growing up, when I was 11 years old I was listening to The Mothers of Invention. You know, I mean I was a Frank Zappa fan in Arkansas.
+ - I’m an actor. I’m not a performer. I’m not like a song and dance guy who can take a cane and a hat and do it. I would just you know. That’s why I never did commercials.
+ - My process started when I was born. The process is life experience. I believe that what makes you an artist, or at least an artist who can communicate the ideas that they want to get across, are people that have life experience.
+ - When I was a teenager, I read the bible cover-to-cover, and I found the Old Testament, it’s a pretty bloody history book.
+ - I always wished there was somebody like the Coen Brothers and they appeared. And so yeah, my favorite role that I’ve ever done was in The Man Who Wasn’t There. That’s my very favorite character I’ve ever played.
+ - The thing about a motion picture is that look of film on a big screen takes you into a magical.
+ - I’m not much of a drinker, so I’m going to eat seven pounds of pork.
+ - If you’re 25 years old dressed up like Superman at a comic book convention, that’s great. If you’re 78 and you’re doing it, something’s wrong.
+ - I never wanted to write a book, and people have asked me for years to do it.
+ - I’ll always consider myself a Southerner. A lot of people put California down, but my dreams were realized there.
+ - My dad didn’t hug me every day and say he loved me and anything like that.
+ - When I saw that show Lost I learned something. Other than one sort of big dude if you’re in an airplane crash only models survive. So you know sit next to somebody pretty, but anyhow.
+ - I have been fortunate to get some really good scripts over the years and I haven’t turned down anything that I regretted so far. And my manager who I’ve been with for over 25 years is very good at knowing what I should and shouldn’t do a lot of times.
+ - I can’t imagine laying a finger on my kids. I go the other way and probably because my father was so abusive.
+ - When people are bothering you constantly when you’re trying to do just a simple thing that humans do every day but they won’t let you do it without bugging you about it, that was a hard thing. Because I became a movie star overnight. From a working actor and working writer to a movie star.
+ - I actually am a phobic twitchy sort of nervous guy.
+ - I’ve been largely an improvisational actor for most of my career.
+ - I always have an idea before we even start the movie because if you hire the wrong person, within a couple of days you’re going to know that and you’re going to be really panicked.
+ - Usually when you’re playing a character, you think a lot about their backstory.
+ - Every couple I know has side-by-side grave plots, but when we do it we’re the biggest weirdos on the block.
+ - When I was coming up in the ’80s television, if you were on television that meant either you were a young actor just coming up like I was, or you were an older actor whose career was over and you had to go on television.
+ - I’m more influenced by novelists than I am by filmmakers.
+ - After you’ve done 60-something movies, you’re always looking for something different.
+ - Kids won’t watch older movies – they want to see what’s hip right now.
+ - People think you have to be tortured or miserable to write, but I’m finding that I get inspired a lot more these days before I’m happy.
+ - I’m not really a full-time director, I just like to direct the things that I write because I think I’m going to know it better than someone else.
+ - I can’t sit through plays and musical theatre. I just want to run up onstage and mess up their hair and turn over the furniture.
+ - I got in drama class in high school and I only got in there because there were girls and I thought maybe I could make a grade above a C in something.
+ - Anytime you get a chance to play some extreme character, in any direction, it’s always a great blessing.
+ - Tower Records is like a temple to me. I’ll stay there for hours. Nobody can shop for records with me. It drives them out of their minds.
+ - If you want anybody to have a different voice, you really have to visualize and hear the voices of all these people. Sometimes when I write with specific actors in mind, it helps.
+ - The movies I’ve made about the South, they were my experience and it’s something that I know.
+ - On TV you can, you know you can cram, you know, 30 people into a closet and have an orgy, and then they can all shoot up, and everybody has cigarettes in their nostrils and their ears. They don’t care. So yeah, television is amazing right now.
+ - I mean the most important thing you can have as an actor, writer, director, or whatever you are, poet or whatever it is, is life experience. Life experience doesn’t mean you have to live 50 years to have it. I mean you know a lot of people have huge life experience by the time they’re in college.
+ - I never expected to be a movie star. It’s not that I didn’t want to be, I didn’t think about it. I wanted to be an actor.
+ - Basically there are no stars anymore. The audience is the star.
+ - Just the other day, my assistant was on the line with Calvin Klein. Golly, I usually shop at Sears.
+ - I know it’s boring to say this but I always start with the script. I mean if it’s well written and it’s a character that I haven’t necessarily played before.
+ - There are rules in movies. I did a movie playing a bad cop who was a heroin addict but they wouldn’t let me smoke in a movie.
+ - All the actors I’ve worked with as a director over the years I really love and I thought they were all right for the part.
+ - I attribute all my success to ignorance. If you don’t ever think about not getting where you want to be, I think it helps you out.
+ - When you’re a director, for two years or at least a year and a half, that’s what your life is. So if you’re gonna do it, you gotta be ready to do it and it has to be something you care about. I’ve found something that I do care about.
+ - I’ve danced one time in my life. It was the most mortifying experience I ever had.
+ - I don’t like movies that are shot on green screen much, you know. I mean, I know that’s the thing to do, and I know that it’s getting. I’ll put it this way; David Lean would probably kill himself, you know, again if he knew that people were watching Lawrence of Arabia on a telephone.
+ - Movies now, you can watch a trailer for a movie on TV now and you’re not sure if it’s a video game or a movie. You have to wait till the end of it to see, oh, I see, those actors are in it, so that one’s a movie. Oftentimes, it’s based on a video game.
+ - I’m as highly insecure as a human can be.
+ - The only times you’ll see me in terms of the movie business is when I have to go to the premieres of my own movies. I don’t go to see ones that aren’t mine because I don’t even like going to mine.
+ - If you’ve written it you know exactly; whoever you’re playing if you’ve written it you already know it. As a matter of fact, you’ve already made the movie if you wrote it. You’ve made it in your head.
+ - I don’t know how to type so I handwrite everything.
+ - If you love somebody let them know every day.
+ - Playing normal-looking characters really intimidatesme. I got into acting to play anyone but me.
+ - Acting is playing – it’s actually going out on a playground with the other kids and being in the game, and I need that. Writing satisfies that part of myself that longs to sit in my room and dream.
+ - A lot of people are doing television now. Great, legendary actors are doing movies on cable and stuff now, and you can’t blame them, because they’re still doing adult dramas and adult comedies on those stations.
+ - Reality shows are usually created by people doing and saying stupid things.
+
+96 quotes

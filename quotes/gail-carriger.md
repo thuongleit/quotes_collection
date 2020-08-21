@@ -1,0 +1,92 @@
+ - Rail is such an undignified way to travel. All that rapid racing about. Floating has so much more gravitas.
+ - Alphas simply did not grovel; arrogance was part of the job description.
+ - These feelings you engender in me, my lord, are most indelicate. You should stop causing them immediately.
+ - I never gossip. I observe. And then relay my observations to practically everyone.
+ - Lyall had spent centuries nibbling about the great layered cake that was polite society while Lord Akeldama acted the part of the frosting on its top.
+ - Ah, Ivy, thought Alexia happily, spreading a verbal fog wherever she goes.
+ - I have died and gone to the land of bad novels.
+ - It’ll all end in tears and oil.
+ - Stop playing verbal games with me, madam, or I shall go out into that ballroom, find your mother, and bring her here.
+ - Ivy Hisselpenny was the unfortunate victim of circumstances that dictated she be only-just-pretty, only-just-wealthy, and possessed of a terrible propensity for wearing extremely silly hats.
+ - It’s no good choosing your first husband from a school for evil geniuses. Much too difficult to kill.
+ - She moved with such purpose it was as though she walked with exclamation marks.
+ - You are about as covert as a sledgehammer.
+ - The ill-informed masses included her own family among their ranks, a family that specialized in being both inconvenient and asinine.
+ - Why Alexia that is quite beautiful. It does ot reflect your customary taste at all approved Miss Hisselpenny with glee. Trust Ivy to like the hideous thing for it’s looks.
+ - Who doesn’t want an exploding wicker chicken?
+ - Lady Maccon cogitated. She would like to encourage this new spirit of social-mindedness. If Felicity needed anything in her life, it was a cause. Then she might stop nitpicking everyone else.
+ - Lord Akeldama did so love to know all the gossip about the mundane world, but it was in the manner of a cat amusing himself among the butterflies without a need to interfere should their wings get torn off. They were only butterflies, after all.
+ - Oh, Lady Maccon, I am unreservedly in love with her. That black hair, that sweet disposition, those capital hats.
+ - My petal. Westminster’s toy had tea issues. Thank Biffy and Lyall. Toodle pip. A.
+ - His lordship can eat my fat –.
+ - No one ever explained the octopuses.
+ - A man was attacking me with a wet handkerchief.
+ - She boasted the general battle-ax demeanor of an especially strict governess. This was the kind of woman who took her tea black, smoked cigars after midnight, played a mean game of cribbage, and kept a bevy of repulsive little dogs. Alexia liked her immediately.
+ - Floote, what is going on? Do they think I am contagious? Should I assure them I was born with a nose this size?
+ - Sophronia was minding her own business and running late to luncheon, as was her custom. She’d let to learn the advantage of punctuality. As she told Sister Mattie the third time she was late to household potions and poisons, nothing interesting happened until after an event commenced.
+ - Madame Lefoux accepted a cup of tea and sat on another little settee, next to the relocated calico cat. The cat clearly believed Madame Lefoux was there to provide chin scratches. Madame Lefoux provided.
+ - Which was why, some six hours later, Alexia Maccon’s daughter was born inside the head of an octomaton in the presence of her husband, a comatose werewolf dandy, and a French inventor.
+ - The vampire’s eyes were open, and he was staring at her intently. It was as though he were trying to speak to her with simply the power of a glare. Alexia did not speak glare-ish.
+ - As if being a former vampire drone in a werewolf household were not shocking enough, the maid then opened her mouth and proved that she was also, quite reprehensibly, French.
+ - How ghastly for her, people actually thinking, with their brains, and right next door. Oh, the travesty of it all.
+ - If there is gossip to be garnered, garner it. If there are new dress styles to be imitated, imitate them. If there are hearts to be broken, break them. That’s my girls.
+ - They decided the mummy would be unwrapped, for the titillation of the ladies, just after dinner.
+ - A woman, even a married woman, cannot float without proper escort. It is simply not done.
+ - Mrs. Loontwill did what any well-prepared mother would do upon finding her unmarried daughter in the arms of a gentleman werewolf: she had very decorous, and extremely loud, hysterics.
+ - Spin the parasol three times and repeat after me: I shield in the name of fashion. I accessorize for one and all. Pursuit of truth is my passion. This I vow by the great parasol.
+ - Professor Lyall, cursing his Alpha for departing so precipitously, balled up the piece of paper and, after minor consideration for the delicacy of the information it contained, ate it.
+ - Lord Maccon was built like a brick outhouse, with opinions twice as unmoving and often equally full of crap.
+ - Alexia gave in to his demanding touch, but only, of course, because he sounded so pathetic. It had nothing, whatsoever to do with her own quickening heartbeat.
+ - Such poopitations of the heart as you would not believe.
+ - I may be a werewolf and Scottish, but despite what you may have read about both, we are not cads!
+ - He was so very large and so very gruff that he rather terrified her, but he always behaved correctly in public, and there was a lot to be said for a man who sported such well-tailored jackets – even if he did change into a ferocious beast once a month.
+ - She took a moment to lament her lack of parasol. Every time she left the house, she felt keenly the absence of her heretofore ubiquitous accessory.
+ - The bowl landed, in glorious perfection, atop the head of Mrs Barnaclegoose, who was not the kind of woman to appreciate the finer points of being crowned by trifle.
+ - Professor Braithwope, shimmering out of his room fully clothed and dapper. His mustache was a fluffy caterpillar of curiosity, perched and ready to inquire, dragging the vampire along behind it on the investigation.
+ - I do not giggle without purpose. Lady Linette says you should never misapply a giggle.
+ - No, Lord Maccon was riproaring, tumble down, without a doubt, pickled beyond the gherkin.
+ - There are words to describe her, my dear, but one does not repeat them in polite company.
+ - Follow that porcupine!
+ - He is clearly bookish. I did not follow a single word of their conversation at dinner last night, not one jot of it. He must be bookish.
+ - And I find perfect beauty excessively boring, don’t you?
+ - Alexia blinked stupidly at the Beta from around the earl’s upper arm. Her heart was doing crazy things, and she still could not locate her kneecaps. She took a deep breath and put some serious attention into tracking them down.
+ - She filed the image away as an excellent and insulting question to ask the earl at an utterly inappropriate future moment.
+ - Acknowledgements With grateful thanks to the three least-appreciated and hardest-working proselytizers of the written word: independent bookstores, librarians, and teachers.
+ - Biffy said, off the cuff, “Or we could find a replacement queen.” “Volunteering for the position?” “Why, Professor, is that wittiness I detect?” “Only for you.” “Charmer.” Biffy tapped him on the arm playfully.
+ - These things, regrettably, are bound to occur when one is married and befriended.
+ - Alexia abhorred hypocrisy, especially when munitions were involved.
+ - The important question is, what will your wear for a wedding dress, Alexia? You look horrible in white.
+ - Uh, my lord, I am not actually food. You do realize this, yes?
+ - Oh, dear me, no. Then I should be known as that vampire with all the cats.
+ - His eyes were jet-colored circles of perpetual disapproval.
+ - I believe there is a considerable range in the bang of most guns.
+ - With a resigned shrug, she screamed and collapsed into a faint. She stayed resolutely fainted, despite the liberal application of smelling salts, which made her eyes water most tremendously, a cramp in the back of one knee, and the fact that her new ball gown was getting most awfully wrinkled.
+ - The Pantechnicon stored and distributed a good deal of furniture as well. The very idea of a lady of good breeding visiting such a place. There would be tables lying about, on their sides, naked! Not to mention flaccid dirigibles! Alexia shuddered at the very idea.
+ - The duke contents himself mainly with attempting to rule the world and other suchlike nonsense. When one is guiding the patterns of the social universe, a single spinster preternatural is unlikely to cause one undue distress.
+ - The voice was low and tinged with a hint of Scotland. It would have caused Alexia to shiver and think primal monkey thoughts about moons and running far and fast, if she’d had a soul. Instead it caused her to sigh in exasperation and sit up.
+ - I suspect it may be like the difference between a drinker and an alcoholic; the one merely reads books, the other needs books to make it through the day.
+ - I suppose that saves us from having to determine what to do with a butler who goes around killing people. It certainly reflects badly upon our domestic staff. Still, I shall miss him. There was a man who knew how to brew a good cup of tea.
+ - Lord Maccon reflected upon the state of his life wherein he had somehow gained a spouse who could not give a pig’s foot for the latest dresses out of Paris but who whined about not owning an aethographic transmitter. Well, at least the two were comparable obsessions so far as expense was concerned.
+ - Alexia had spent long hours wondering over that mustache. Werewolves did not grow hair, as they did not age. Where had it come from? Had he always had it? For how many centuries had his poor abused upper lip labored under the burden of such vegetation?
+ - Lord Maccon, being Lord Maccon and good at such things, then changed, right there in the Thames, from dog-paddling wolf to large man treading water. He did so flawlessly, so that his head never went under the water. Professor Lyall suspected him of practicing such maneuvers in the bathtub.
+ - Lyall understood a broken heart, but it could not be allowed to rumple perfectly good shirtwaists.
+ - She had to give her teachers credit: they were right to insist all pupils carry scissors, handkerchiefs, perfume and hair ribbons at all times. At some point she’d learn why they also required a red lace doily and a lemon.
+ - His eyes are peculiar. There is nothing in them, like an eclair without the cream filling. It’s wrong, lack of cream.
+ - Even Alexia, spinster that she was, was given an allowance large enough to dress her to the height of fashion – although she did tend to stick to trends a little too precisely. The poor thing could not help it. Her choice of clothing simply lacked soul.
+ - What’s wrong with you? Are you ill? I forbid you to be ill, wife.
+ - I am rather fond of ladybugs. They are so delightfully hemispherical.
+ - Scotsmen, she had occasion to observe, often did have nice knees. Perhaps that was why they insisted upon kilts.
+ - Cats were not, in her experience, an animal with much soul. Prosaic, practical little creatures as a general rule. It would suit her very well to be thought catlike.
+ - A vampire, like a lady, never reveals his true age.
+ - Poetry can cause irreparable harm when misapplied.
+ - She was no closer to determining who might want her dead. There were just too many possibilities.
+ - Ever since her trip with Alexia to Scotland, Mrs. Tunstell had rather a taste for foreign travel. Alexia blamed it on the kilts.
+ - How was I to know idiocy was only a temporary condition, especially in your case? It never has been before!
+ - Alexia figured, delightedly, that this meant he did, in fact, tend to traipse around his private apartments in the altogether. Marriage was becoming more and more of an attractive prospect.
+ - I had a recent delivery of new fashion plates from Paris, and you hardly glanced at the hairstyles. My husband tells me you are still having difficulty controlling the change. And your cravat has been tied very simply of late, even for evening events.
+ - One should do what one is best at on as large a scale as possible.
+ - Biffy didn’t like enigmas – they were out of fashion.
+ - Really, Alexia, what could have possessed you to attach yourself to the side of the ship in such a juvenile fashion? It is positively barnacle-like.
+ - It was a constant source of amazement to Alexia that the only thing she had ever done in her entire life that pleased her mama was marry a werewolf.
+
+90 quotes

@@ -1,0 +1,35 @@
+ - I have to pick myself up every day and say, ‘The show must go on,’ meaning life as I know it must go on, whatever the obstacle is, I know I can handle it, and I can get through it.
+ - I just want to love and be loved.
+ - You are the sunshine of my life! Thanks for brightening my world with the warmth of your Love...
+ - If there’s an energy between two people it doesn’t matter what you look like or what you do for a living or where you live.
+ - I love kids and children, and I love being a mom.
+ - My husband and I are building a ‘green’ house in Santa Ynez Valley. We bought 15 acres and we’re going to build a house that’s green from the ground up.
+ - I think with any sort of rejection, you’re angry that you weren’t enough for that person. So I don’t know if I’m angry at myself for not being enough, or if I’m angry at him for not considering me to be enough.
+ - I still enjoy acting. I love the moment in front of the camera, but it’s all the other moments that I don’t enjoy. The ‘business’ aspect of it, the gossip.
+ - I’m one of those women who likes to chat and share knowledge and pass it around.
+ - With the chronic obesity in America, it’s more important than ever to not only feed kids healthy foods but to teach them how to make healthy choices on their own.
+ - It’s never too late to take your heart health seriously and make it a priority.
+ - I worked as a secretary, a waitress and a dance teacher – all in high school.
+ - Sitting around on the couch eating Pringles all day is not going to help anyone.
+ - When I turned 30, due to my father’s heart history and my family genetics, I vowed to start seeing a cardiologist every year and just really be proactive and take my own heart health into my own hands.
+ - I don’t believe in depriving yourself of things you want.
+ - I’m just taking care of myself: Eating less, exercising more, drinking a lot of coconut water.
+ - Being a lazy parent and letting your kid watch stuff that’s not appropriate for their age is one of the bigger mistakes you can make.
+ - It’s not like I want someone to treat me badly. I want somebody who looks like they could treat me badly, but then really treats me good.
+ - My passion is about motivating as many families as possible to learn about vegetables and healthy eating together.
+ - My mom really instilled in me that I’m beautiful and I can do anything, and I echo that now with my own girls.
+ - I was an excellent student before I left school. But I graduated early so that I could work longer hours on ’90210.
+ - My biggest regret is putting my body through fad diets – Atkins, cleanses, the hCG diet.
+ - I really enjoy being able to spend my time doing different charitable and philanthropic activities.
+ - I have a strong constitution.
+ - I like being a woman and having a womanly body.
+ - My dad’s passion was to teach adults to read so they could read to their kids.
+ - In high school, I was kind of a loner because I had moved to a new school.
+ - I react emotionally to everything!
+ - I got a fur shawl once. I was so disgusted! And I couldn’t re-gift it. I don’t know anyone who’d want fur.
+ - I know I have the ability to do so much more than just stand in front of the camera the rest of my life.
+ - I don’t think there’s a hobby that I haven’t tried on.
+ - The craziest thing I did to get a guy to notice me was going out with his best friend. It worked – he did notice me – but I don’t recommend it.
+ - I just don’t know how to date.
+
+33 quotes

@@ -1,0 +1,21 @@
+ - When history is erased, people’s moral values are also erased.
+ - Everything I was I carry with me, everything I will belies waiting on the road ahead.
+ - Living in London is like being on a luxury cruise liner.
+ - To become self-aware, people must be allowed to hear a plurality of opinions and then make up their own minds. They must be allowed to say, write and publish whatever they want. Freedom of expression is the most basic, but fundamental, right. Without it, human beings are reduced to automatons.
+ - I wanted to analyse and understand how the Chinese people could have their lives so crushed by fear.
+ - Beijing Coma took me 10 years to finish.
+ - Only when you are aware of the uniqueness of everyones individual body will you begin to have a sense of your own self-worth.
+ - China is completely lacking in self-awareness and as someone who has stepped outside that society, I have a responsibility to write about it as I see it.
+ - It is vitally important for me, both personally and for my writing, to be able to return to China freely, so being barred entry has caused me deep concern and distress.
+ - In 1989, I was on Tiananmen Square with the students, living in their makeshift tents and joining their jubilant singing of the Internationale. In the two decades since, each time that I have gone back, visions from those days seem to return with increasing persistence.
+ - I believe that the power of literature is stronger than the power of tyranny.
+ - The literal meaning of the Chinese characters for revolution is elimination of life.
+ - The Chinese people have been forced to forget the Tiananmen massacre. There has been no public debate about the event, no official apology. The media aren’t allowed to mention it. Still today people are being persecuted and imprisoned for disseminating information about it.
+ - Tyrannies not only want to control your mind and thoughts but your flesh as well.
+ - The Beijing Olympics represent China’s grand entrance onto the world stage and confirmation of its new superpower status.
+ - My hope is that the Chinese government will come to realise that it is futile to repress free speech, and that contrary to what they believe a regime’s strength rests not its suppression of a plurality of opinions and ideas, but in its capacity and willingness to encourage them.
+ - Red Dust was about the late 1980s; it was a time of burgeoning hopes and opening up and people searching for new ways.
+ - I left Beijing in 1987, shortly before my books were banned there, but have returned continually.
+ - In February of this year I returned to China to research my next book. The authorities know about the novels of mine that have been published in the west, including the latest one, Beijing Coma, about a student shot in Tiananmen Square, but so far have allowed me to return.
+
+19 quotes

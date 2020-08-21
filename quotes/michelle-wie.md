@@ -1,0 +1,24 @@
+ - If I ever get bored with golf, I’m going to start over and play lefthanded.
+ - I want to play on the PGA Tour.
+ - I’m kind of in between a goody-goody and a rebel. I’m not bad, but I’m not good either. I’m a little crazy.
+ - There are so many great players on the men’s – and women’s – side. Hopefully I can keep improving and eventually play in the Masters.
+ - I don’t mind when I hit a ball in the woods. I think of it as an adventure. That’s when golf really starts to get interesting.
+ - My favorite player is Tiger Woods. I think I can beat Tiger when I’m 20. It’s a life goal.
+ - I don’t like boys. They’re kind of annoying.
+ - To play in the men’s tournaments I have to keep getting stronger and get more distance.
+ - If you grow up normal, you’ll always be normal-I don’t want to be normal. I want to be something else.
+ - If you grow up normal, you’ll only be normal.
+ - I’m not really interested in sports psychology. It makes me feel like a crazy person.
+ - Annika has the type of game I want to work on. She’s just so consistent. Hopefully I’ll be like that one day.
+ - If you expect a bad lie for even one second, the gods will know it and give you a bad lie.
+ - I’m happy out of my mind. I like beating a lot of people.
+ - My ultimate goal is to play in the Masters.
+ - If someone wants to give you, like, $100 million, it’s hard to say no. But I don’t want to accept that kind of money right now. I’d feel burdened by it.
+ - I enjoy the attention. I like the cameras. In a way, they make me play better.
+ - The best part about golf is when you hit the ball long. It feels really good.
+ - Ty Tryon made a lot of money after turning pro, but he might not have been ready. I don’t want to make a lot of money for a couple of months and then not be ready.
+ - You have to make lots of birdies and give your opponent no chance.
+ - I might go play the LPGA full-time and then, after I get better, go to the PGA full-time. Or just try to play both. It will be fun.
+ - I guess I’m a little different. I think being unique is different.
+
+22 quotes

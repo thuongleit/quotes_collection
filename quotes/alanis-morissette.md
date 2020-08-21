@@ -1,0 +1,211 @@
+ - The person who knows how will always have a job. The person who knows why will always be his boss.
+ - Well life has a funny way of sneaking up on you When you think everything’s okay and everything’s going right And life has a funny way of helping you out when You think everything’s gone wrong and everything blows up In your face.
+ - Being a sensitive empath is a beautiful thing as an artist, and it fosters a deep burning curiosity about why we do the things we do.
+ - I’m sorry to myself, for treating me worse than I would anybody else.
+ - For the ocean is big and my boat is small. Find the courage.
+ - Don’t be surprised if I love you for all that you are.
+ - Your choice of armor was your intellect.
+ - Fame is hollow. It amplifies what is there. If there is any self-doubt, or hatred, or lack of ability to connect with people, fame will magnify it.
+ - Why are you so petrified of silence, here can you handle this? Did you think about your bills, your ex, your deadlines or when you think you’re gonna die? Or did you long for the next distraction...
+ - I’m consumed by the chill of solitary.
+ - Some of the most beautiful things that have happened to me in my life have been things that I couldn’t explain.
+ - Life has a funny way of helping you out when you think that everything’s gone wrong.
+ - What part of our history’s reinvented and under rug swept? What part of your memory is selective and tends to forget?
+ - It’s like 10,000 spoons, when all you need is a knife.
+ - You live, you learn, you love, you learn, you cry, you learn, you lose, you learn, you bleed, you learn, you scream, you learn.
+ - I’m a leave-the-bathroom-door-open nudist, which is sometimes disconcerting for my friends.
+ - Stay and respond and expand and include and allow and forgive and enjoy and evolve and discern and inquire and accept and admit and divulge and open and reach out and speak up, this is utopia.
+ - Running has made being depressed impossible. If I’m going through something emotional and just go outside for a run, you can rest assured I’ll come back with clarity.
+ - These precious illusions in my head did not let me down when I was defenseless, and parting with them is like parting with invisible best friends.
+ - Trauma happens in relationships, so it can only be healed in relationships. Art can’t provide healing. It can be cathartic and therapeutic but a relationship is a three-part journey.
+ - Meeting the man of my dreams and then meeting his beautiful wife.
+ - I believe we’ve been given free will, and we can take responsibility for our own lives and for creating our own environments – which I think at times can be a little much for people to deal with.
+ - When pain brings you down, don’t be silly, don’t close your eyes and cry, you just might be in the best position to see the sun shine.
+ - In a perfect world, there would be no censorship, because there would be no judgement.
+ - Is she perverted like me? Would she go down on you in a theatre?
+ - I think some people think I’m a smarty-pants. Some people think I’m intense, some people think I’m super-esoteric and nuts.
+ - Let’s grease the wheel over tea, let’s discuss things in confidence. Let’s be outspoken, let’s be ridiculous, let’s solve the world’s problems.
+ - Kale is my best friend. I eat kale salad. I put kale in my smoothies, kale in my soup. Kale, kale, kale! I feel like Popeye. I love it. I definitely need variety or I get super bored, so I have to mix it up with different sauces and tahini or whatever.
+ - Your political views really denote your spiritual views.
+ - The whole idea of emotions being something we can’t escape as humans, but that deep suffering that comes from resisting them, we can move out of that just by not resisting anymore. But it takes a really brave warrior soul to sit there in these emotions that admittedly don’t feel good in the body.
+ - We’re all ants. I’m a glittery little ant.
+ - A brave action is often followed by grief. Do not let my resistance to grief stop the brave action.
+ - Music will always be a part of my life. I love music and I don’t care how many units I sell.
+ - Once I know who I’m not, then I’ll know who I am.
+ - I sabotage myself for fear of what my bigness could do.
+ - In my life, anyway, anytime that I judge something to be rigidly right or wrong, it comes from fear.
+ - I saw music as a way to entertain people and take them away from their daily lives and put smiles on their faces, as opposed to what I see it being now, which is a way for me to actually communicate, and a way for me to tap into my subconscious.
+ - I salute you for your courage, and I applaud your perseverance, and I embrace you for your faith in the face of adversarial forces.
+ - Looking for approval or blaming others or feeling like a victim. Whenever I feel myself doing that I try to stop and see myself as someone who’s a creator in more ways than just what the word typically means.
+ - Canada has a passive-aggressive culture, with a lot of sarcasm and righteousness. That went with my weird messianic complex. The ego is a fascinating monster. I was taught from a young age that I had to serve, so that turned into me thinking I had to save the planet.
+ - What I wouldn’t give to find a soul mate, someone else to catch this drift.
+ - Courage and willingness to just go for it, whether it is a conversation or a spontaneous trip or trying new things that are scary – it is a really attractive quality.
+ - The ego is a fascinating monster.
+ - To whom do I owe the first apology? No one’s been crueler than I’ve been to me.
+ - How about not equating death with stopping?
+ - Every time I scratch my nails down someone else’s back, I hope you feel it.
+ - What’s that line from TS Eliot? To arrive at the place where you started, but to know it for the first time. I’m able to write about a breakup from a different place. Same brokenness. Same rock-bottom. But a little more informed, now I’m older. Thank God for growing up.
+ - Peace of mind for five minutes, that’s what I crave.
+ - I don’t want to be your other half. I believe that one and one make two.
+ - Oh these little rejections how they add up quickly, one small sideways look and I feel so ungood. Somewhere along the way I think I gave you the power to make me feel the way I thought only my father could.
+ - Then I realized that secrecy is actually to the detriment of my own peace of mind and self, and that I could still sustain my belief in privacy and be authentic and transparent at the same time. It was a pretty revelatory moment, and there’s been a liberating force that’s come from it.
+ - I never regret anything I do. It’s part of who I am now, and I like who I am now.
+ - I think it’s irresponsible when celebrities imply they’re doing it all themselves. My son has aunties and uncles around all the time, and my husband is my hero. He’s really full-on. I couldn’t do it any other way.
+ - When I’m off the road, my husband and I recharge our batteries. It’s a day of deep rest and connection with the spiritual, and that can be anything – going for a walk in nature, being in silence, burning incense.
+ - So forgive me, love, if I cry in your shower. So forgive me, love, for the salt in your bed. So forgive me, love, if I cry all afternoon...
+ - We’re taught to be ashamed of confusion, anger, fear and sadness, and to me they’re of equal value to happiness, excitement and inspiration.
+ - I want to walk through life instead of being dragged through it.
+ - Partnership is the way. Dictatorial win-lose is so old-school.
+ - I have a profound empathy for people who are in the public eye, whether they manifest it themselves or whether it happened by accident – it doesn’t matter to me. I think there’s a great misunderstanding of what it is to be famous.
+ - Freedom lies at the heart of my willingness to lose everything.
+ - I try to keep a low profile in general. Not with my art, but just as a person.
+ - My parents offered me the idea of ceilinglessness. There was no limit in terms of what was possible; no messages sent to me to say that I couldn’t do anything.
+ - When I pray, I’m just talking to what some people might call our higher selves: God, myself, my intuition, my heart. Whatever that is, that’s where I go.
+ - I’m excited about there being more of a sisterhood these days. Back in the ’90s there was a lot of hate – the women I looked up to as artists were dissing me! It’s not so patriarchal these days – there’s more love and a lot less hate!
+ - As a teen, I was both anorexic and bulimic.
+ - But once I acclimated and really used fame for what it was offering me as a tool to serve my life purpose of inspiring and contributing, then it started to get fun again.
+ - Writing a song doesn’t heal things. Even if the song comes up with a solution, it’s still only a theory. Going out and living my lyrics is a whole other deal. That takes courage.
+ - I hear you’re losing weight again, Mary Jane. Do you ever wonder who you’re losing it for?
+ - I can be in the worst PMS, Mercury in retrograde, most awful circumstance – and then if my girlfriends and I are giggling about it, everything’s okay.
+ - I was extremely moved by the plight of Tsunami victims and I was inspired to try to make a difference.
+ - I started writting songs when I was really little because there were things I could say through songs that I couldn’t verbalize any other way. Writting was something I had to do.
+ - I get angry at myself for staying in relationships way too long.
+ - Ageism works in both directions. As a teenager in the public eye, people would talk condescendingly to me. When you get older there’s this feeling that you have to start carving up your face and body. Right now I’m in the middle ground – I think women in their thirties are taken seriously.
+ - I see my body as an instrument, rather than an ornament.
+ - How long before my dignity is reclaimed?
+ - I firmly believe that the only reason why I’m on this planet, the only reason why I live, breathe, and exist is, that it’s my duty to be as honest as possible in my art.
+ - Love is thick and it swallows me whole.
+ - I was left to painstakingly deal with the aftermath of my avoidance later in life, in therapy or through the lyrics of my songs.
+ - A good man often appears gauche simply because he does not take advantage of the myriad mean little chances of making himself look stylish. Preferring truth to form, he is not constantly at work upon the facade of his appearance.
+ - But I love to entertain. My vocation is to accrue all these experiences, to write about them, to get them out of my system, to not get sick, and then to share them publicly.
+ - I’m about 90 percent vegan. I think veganism is really well suited for training, at least for me anyway.
+ - We eat when we’re full, and we hoard all the rest. With our hands on remotes, we say, yes, we’re the best.
+ - I think quite spiritually of myself. I feel like I’m here to support the human evolution.
+ - Whether you’re checked in or checked out, you’re always on a spiritual journey.
+ - I’m really clear about what my life mission is now. There’s no more depression or lethargy, and I feel like I’ve returned to the athlete I once was. I’m integrating all the parts of me – jock, musician, writer, poet, philosopher – and becoming stronger as a result.
+ - The joke that you laid in the bed that was me.
+ - First I was ‘angry,’ then ‘spiritual.’ Now I don’t know what I am.
+ - I could get away with not taking care of myself as a bachelorette but as a mom I can’t.
+ - I was born in ’74, so I missed out on all the great early ’60s and early ’70s.
+ - Beauty is now defined by your bones sticking out of your decolletage. For that to be the standard is really perilous for women.
+ - And ultimately the people who produce my records, they know that they’re here to serve the purpose of me expressing who I am at this period of time and augmenting that or pulling it forward and I love that process.
+ - I highly recommend getting older! There’s less tendency to people-please.
+ - I did commit to myself that I would not jump back into being the workaholic that I can be before I gave myself an honest opportunity to create the marriage of my dreams and to create the beginning of the family of my dreams, and that took a hot second.
+ - When I’m really, really angry, if I’m privileged enough to be next to someone who can hold my anger, I’ll definitely take them up on holding the bucket.
+ - I think God is everything. Human beings created the punitive, vengeful deity who considers us to be innate sinners.
+ - There is consequence of our forgetting who we are. Forgetting that we’re able to create our environment, from our health to economy to war. Something can be done about everything we perceive as bad, if we so choose. If we are aware of the concept of compassion.
+ - I wish people could acheive what they think would bring them happiness in order for them to realize that thats not really what happiness is.
+ - I’m quite obsessed with the idea of nailing the girl friendship. It’s such an art, so delicate.
+ - When I was producing on my own, I was doing it in order to – in a very patriarchal entertainment industry, let alone planet – very much hell-bent on trying to prove to myself, if nothing else, that I could do it as a woman.
+ - Well, as a kid I did not get Shakespeare. I just never understood it.
+ - I am what I am Are you what you are or What?
+ - I think some fans want everything to stay they same because they want to stay the same.
+ - My message to anyone who’s afraid that they can’t write music when they’re happy is ‘Just trust the passion.’ The passion can write a lot of things.
+ - I would never judge someone’s intrigue with the spoils of fame, because I went through that.
+ - I can’t not write, if I don’t then I get really depressed.
+ - I think it’s child abuse to have someone in the public eye too young. Society basically values wealth and fame and power at the cost of well-being. In the case of a child, it’s at the cost of someone’s natural development. It’s already hard enough to develop.
+ - I’ve been doing a lot of different cross-training and kickboxing and Capoeira and kite surfing, and I’ve just really been back to what I consider my original athletic self.
+ - My brother says that I was writing songs about fate while he was off playing soccer. Now I tell him he’s 33 and being a professional while I’m playing soccer with my friends. Ha!
+ - With songwriting I spend a lot of time living life, accruing all these experiences, journaling, and then by the time I get to the studio I’m teeming with the drive to write.
+ - I think there is no better way to invite a human being to view their body differently than by inviting them to be an athlete, by revering one’s body as an instrument rather than just an ornament.
+ - They’re different kinds of challenges depending upon what phase of life I’m in.
+ - When we think of digitally disconnecting and inviting presence into our lives, we are creating the conditions of integration within and between.
+ - I thought the more famous I became, the more friendships I would have, but the opposite was true.
+ - Anything I do has to be directly related to my music. If it isn’t, I don’t really see a point to it.
+ - I’ll keep evolving and put that into my songs.
+ - I don’t believe in bad. I believe in relativity. The only way we can know what we call good is if there’s also something we call bad.
+ - As long as I can say what it is that I need to say, then I’ll fit whatever I’m trying to say around a melody.
+ - America’s a very traumatized society.
+ - Who I am inside determines how I feel about my body instead of the other way around.
+ - Breakups are a horrible thing for almost everybody I know. For someone who is a love addict, it’s debilitating.
+ - The people that were invested in me staying the same way after a decade will most likely by default have to be disappointed.
+ - I just feel compelled to continue to be transparent. It just really levels the playing field and eradicates the shame that I have, or that one might have, about being human. So I’m going to just keep going.
+ - Anytime there’s separatism going on. It happens all the time, because the illusion before us is that we are separate. It gives us this sense of egoic identity, which is lovely in its own way.
+ - I’m a liability to them – I’m a woman, I’m empowered, I’m an artist. I’ve had executives who can’t come to my shows they’re so scared of me. I’ve been a thorn in many people’s sides just by existing.
+ - I’m sad, but I’m laughing.
+ - I have as much rage as you have, I have as much pain as you do, I’ve lived as much hell as you have, and I’ve kept mine bubbling under for you.
+ - Music helps you find the truths you must bring into the rest of your life.
+ - It’s not just the ‘Grammys’ that I’ve pulled out of. I also pulled out of the English awards as well. The reason that I wanted to pull out was because I believe very much that the music industry as a whole is mainly concerned with material success.
+ - Profanity is merely an expression of one’s emotions.
+ - It’s exciting for people to define who they are in relation to what I write – whether it be by loving or hating it.
+ - I know that I’m deeply, spiritually, profoundly philosophical and I also know that I’m about the flakiest person you’re gonna meet.
+ - And if I had a preference, it would be to be able to not be in the studio until 4 in the morning.
+ - My greatest environments in which I can grow, or grow up, is in personal romantic relationships with a man.
+ - There is no better feeling than when you write something you know is a piece of you and that, at some point, is going to communicate with someone else.
+ - I think God is in us. I think we manifest God in every moment.
+ - All I can promise myself and everyone else is that this record is a snapshot of thisperiod in my life. It will be that by default.
+ - The thing I always default to is that I’ll always be here to write songs.
+ - I found that the more truthful and vulnerable I was, the more empowering it was for me.
+ - I rejected the God that was portrayed as masculine and judgmental and cruel at times. The concept of us bring not worthy to receive him is something I used to say every Sunday in church, and eventually I just couldn’t say it with any conviction.
+ - I live with some of my best friends from high school, very commune-like, in my house. It’s my hippie way of life.
+ - I think everyone’s hungry for the truth.
+ - I was taught from a young age that I had to serve, so that turned into me thinking I had to save the planet.
+ - I still indulge in a glass of wine or chocolate – treats are mandatory. Without deviating from the day-to-day healthy diet once in a while, it wouldn’t be sustainable for me, and that’s what I wanted: an approach to eating to last my entire life.
+ - When someone has a very urgent response, I think it just means that it’s triggering something in them that they may not necessarily want to think or talk about – which I see as a positive thing.
+ - I guess what people forget sometimes is that when I write songs, I write them sometimes in about 20 minutes.
+ - I happen to be lucky in that I knew what I wanted to do as far as a career since I was nine years old.
+ - It’s a joke to think that anyone is one thing. We’re all such complex creatures. But if I’m going to be a poster child for anything, anger’s a gorgeous emotion. It gets a bad rap, but it can make great changes happen.
+ - I’m a bit of an alchemist sorceress. I’ve collected probably 1500 oils from around the planet over the last ten years. I’m kind of obsessed with the sensuality of it.
+ - I see the whole concept of Generation X implies that everyone has lost hope.
+ - I am a firm believer that one way to become enlightened is to be so relaxed, as relaxed as you possibly can be.
+ - It’s not hard to feel afraid and insecure. I still fight an inner-critic voice, definitely. I hear it a lot.
+ - The more I know the less tortured I am.
+ - The more vulnerable and the more confused the song is, the equal and opposite effect is how I feel after having written it.
+ - For four to six months at a time, I would barely eat. I lived on a diet of Melba toast, carrots, and black coffee.
+ - In my opinion, I think sarcasm and humor in a song, without turning it into a novelty song, is really charming.
+ - I was motivated by just thinking that if you had all this external success that everyone would love you and everything would be peaceful and wonderful.
+ - I’m doing it because I choose it. And if it’s not working, I can make a change.
+ - I love the universality of music and how it can viscerally connect people from culture to culture, regardless of anything. It kind of levels everything out and connects us. That universal sound thing is a big deal to me.
+ - In one breath, I can say that we are God, but in another I have to say that we aren’t deities.
+ - At one point, I was just perceived as only being angry, but now I’m being perceived as angry, peaceful, and spiritual.
+ - Down the road, I’ll probably have a kid or two or three. And there will probably be political events or spiritual things to comment on, and humor.
+ - I’ll write records until I’m dead. And then maybe even after that!
+ - I make up new lyrics to well-known lullabies. Mostly because I don’t actually know a lot of the lyrics.
+ - When I start writing songs and it turns into an overly belabored intellectual process, I just throw it out.
+ - I started making music because I could.
+ - Over the last couple of years, I’ve really worked toward balancing my life out more, having a little bit more time with friends, family and my boyfriend. There was a period of time when they were way down the list. It was all about music and touring and if everything fell by the wayside, so be it.
+ - Getting married and starting a family has been a lifelong goal and one that I have persevered through different paths up to it!
+ - There were a lot of people who were a little afraid of the rage or blaming stance I was taking, and find what I am doing now more refreshing.
+ - I do feel blessed to be in the public eye so I can share what I believe. But I think it would be extremely disappointing if I were to count on it to provide happiness. I’ve come to realize that any time I do that, the fulfillment is short-lived at best.
+ - I need to be performing. I need to be acting. I need to be designing a condo and ripping down walls and buying new plates and looking at fashion magazines. There always has to be some movement in the artistic department for me to not get really, really low.
+ - The whole celebrity thing is not something I’m overly interested in. I don’t pop up at parties. It’s just not my thing.
+ - When I’m in pain and grief and despair, my throat is clenched and my heart hurts.
+ - I would not have discredited every one of their compliments. It was your approval I wanted, your congratulations.
+ - It’s when someone has an agenda of their own for the record that it doesn’t work for me.
+ - I felt like I was making a record under the radar, and that is my favorite way to do anything.
+ - If someone hates or loves something, then right on. I can’t rob them of that. I’m not going to try and change their mind. Something’s been triggered in them to react so emotionally.
+ - To me the biggest irony of this lifetime that I’m living is that for someone who thrives in the public eye in the creative ways that I do, I actually don’t enjoy being in the public eye.
+ - In the past, I had workaholic issues.
+ - I’ll be writing songs till I die. There’s just no question.
+ - Infidelity is a deal breaker for me. I’ve broken up with people over it. You can’t do monogamy 90 percent of the time.
+ - I really do see that anywhere I am, whether it’s doing interviews a hundred in a row, that every situation I’m in, I’m at choice in the matter.
+ - What I try to keep in mind is that there are going to be a lot of articles that are going to be misrepresentative of what I’m about as a person and as a writer.
+ - I love songs that are very autobiographical.
+ - I understand that people are afraid. Because I think censorship is about fear. It’s just fear being projected onto art.
+ - I started playing piano when I was 6. And I knew that wanted to be involved in that form of expression, whether it was through music, or acting, or dancing, or painting, or writing.
+ - Unless I really loved it and felt really passionate about it, I would just kind of abort the song and start a new one.
+ - We’ll love you just the way you are if you’re perfect.
+ - I grew up in a very masculine environment. So I was around a lot of men, my brothers and their friends. There was just a lot of guys around.
+ - Long hair is a security blanket for me. I cut it short a few years ago and I really never want to do that again. When I do cut it, I cut it myself.
+ - Writing the record for me – every record is almost a surprise. When people ask me, what are the themes you want to grapple with on this one? I have no idea until the record’s finished.
+ - I find as an artist if I’m not expressed relatively consistently, I get really depressed.
+ - I’m saying what a lot of people would want to say but are too embarrassed.
+ - When someone says that I’m angry it’s actually a compliment. I have not always been direct with my anger in my relationships, which is part of why I’d write about it in my songs because I had such fear around expressing anger as a woman.
+ - Making a movie requires 20 to 500 people to make and a lot of money and the stakes are a lot higher.
+ - To lie to yourself, and thereby to everyone else.
+ - My own approach has always been to push intense emotions down and attempt to deal with them later.
+ - I hope that there is a very confused 14 year old girl out there who hears me speak or hears me sing and derives some sort of strength from that I heard that when I was 14 that’s exactly what happened.
+ - That I would be loved even when I numb myself. That I would be good even when I am overwhelmed. That I would be loved even when I was fuming. That I would be good even if I was clingy.
+ - At some point, I would like to write a book and other things, but I work best when there is some sort of deadline in my own mind, but not when fifty people or fifty million people are breathing down the back of my neck.
+ - All of my unconscious fears were in my face about letting go of the current identity. A lot of the thoughts that came up were fear-based and false, so I had to work to let them go.
+ - What influenced me was Tori Amos, who was unapologetic about expressing anger through music, and Sinead O’Connor. Those two in particular were really moving for me, and very inspiring, before I wrote ‘Jagged Little Pill.’
+ - If I have taken part in anything perceived as the fame machine, it’s been my choice. My motivations certainly have been different from some people’s that I’ve worked with. But it’s okay to work equally passionately for two different reasons.
+ - Society, magazines, posters, music videos, investment bankers. A lot of times, in my past anyway, looking within wasn’t overly encouraged. Pretty much everybody proclaimed that fame would give me power and fortune.
+ - I’m clearly most well known for my music. Eventually, ultimately, I’ll be writing books. I’m still writing articles now. I just consider myself a writer.
+ - If I could sell 500 million records every time, it would be great. But I’ve also had the luxury experience of having it when I was a teenager, in a very kind of model version of it.
+ - I didn’t want to be one of those women who wake up at 63 years old and realize they’ve missed the window of opportunity for marriage and children.
+ - I was always such a people-watcher. I would sit on street corners alone and watch people and make up stories about them in my head. Then, all of a sudden, I was the one being watched.
+ - I’ve been really enjoying writing articles and writing music and music for movies.
+ - I didn’t have high self-esteem when I was a teen-ager, as I think most teen-agers don’t.
+
+209 quotes

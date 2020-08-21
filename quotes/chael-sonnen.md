@@ -1,0 +1,28 @@
+ - If you can talk the talk but cant walk the walk youll look like a fool. That’s the risk but with great risk comes great reward.
+ - They’ll tell you failure is not an option. That is ridiculous, failure is always an option. Failure is the most readily available option at all times. But it’s a choice. You can choose to fail or you can choose to succeed.
+ - If you’re not willing to go too far, you’ll never go far enough in life.
+ - Even if I thought I could get a submission I’m not laying underneath a grown man with my legs spread on worldwide TV. Some guys subscribe to that theory but I am a Republican and we don’t do that.
+ - As soon as you start to get tired, as soon as you start to get behind, as soon as your coach starts yelling at you, a lot of doors open up to quit; you got to find that one reason to stay in that battle, one reason to stay in the fire and fight.
+ - They say if somebody has done something you want to do, all you need to do is go out and copy them.
+ - I hate downtime. I hate it so much. I like to relax like anybody else, but I hate not doing anything. In my life I’m either going full speed or I’m at a stop.
+ - There’s always pressure and that pressure is earned.
+ - If I was mentoring a young fighter, I’d tell him to spend more time on boxing. That doesn’t mean I would ignore kickboxing – you still need to learn the defenses – but in stand-up, it’s hard to beat good, solid boxing.
+ - Anderson isn’t qualified to make Frank Mir a sandwich.
+ - Send anyone you want, but don’t send anyone you want back.
+ - GSP is good, but don’t get me wrong he better stay at 170 with the other midgetts.
+ - A Black Belt under the Nogueira Brothers is like saying I got a free toy in my happy meal.
+ - I don’t do camps. Camps are for kids. I don’t sleep in tents or roast marshmallows. I certainly don’t tell ghost stories or own a sleeping bag. But I do work hard every single day.
+ - I can’t justify to myself working less, even if you get more out of it. Even though, in practice, it does seem it would be better for me personally.
+ - If Michael Bisping ever addresses me in a public comment again, I will bury him where he stands.
+ - For me, and people like me, fighting isn’t what we do; it’s who we are.
+ - When I was young they used to call me ‘The Foreman,’ not because I was in charge but because I did the work of four men.
+ - Whether I want to be at practice or not, I show up every day. Whether I’m healthy or I’m sick or hurt or tired, I show up every day.
+ - You tell Anderson Silva that I’m coming over and I’m kicking down his backdoor and patting his little lady on the ass and I’m telling her to make me a steak, medium-rare just how I like it.
+ - If I had nothing to do and I wanted to sit in a dark room and relax, I could at times. But to be busy is very nice. To have things to do and have a schedule.
+ - Fighting is an expression. It’s a form of speech, and that’s why they call it martial arts. It’s an art.
+ - As a professional athlete I can tell you I feel every single emotion and not one of them ever helped me in a fist-fight before.
+ - Say what you want before the fight but when it’s done, you accept the result.
+ - When you’re the best fighter in the world today, they don’t call you a great fighter. They call you Chael Sonnen.
+ - You’ve got to listen to your body, notice some trends in yourself and do the best you can to be ready when a finish line approaches.
+
+26 quotes

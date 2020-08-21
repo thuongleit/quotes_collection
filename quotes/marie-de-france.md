@@ -1,0 +1,25 @@
+ - The fool shouts loudly, thinking to impress the world.
+ - You have to endure what you can’t change.
+ - Being too consumed in fear all the time will result in poor quality of life.
+ - Whoever wants to tell a variety of stories ought to have a variety of beginnings.
+ - In times gone by there lived a Count of Ponthieu, who loved chivalry and the pleasures of the world beyond measure, and moreover was a stout knight and a gallant gentleman.
+ - For above all things Love means sweetness, and truth, and measure; yea, loyalty to the loved one and to your word. And because of this I dare not meddle with so high a matter.
+ - Whoever believes in a man is very foolish.
+ - If one of two lovers is loyal, and the other jealous and false, how may their friendship last, for Love is slain!
+ - I love no woman, for love is a serious business, not a jest.
+ - There are divers men who make a great show of loyalty, and pretend to such discretion in the hidden things they hear, that at the end folk come to put faith in them.
+ - Fairest and dearest, your wrath and anger are more heavy than I can bear; but learn that I cannot tell what you wish me to say without sinning against my honour too grievously.
+ - Be sure that you speak with unfeigned lips.
+ - The rich are never threatened by the poor – they do not notice them.
+ - The dead and past stories that I have told again in divers fashions, are not set down without authority.
+ - He who would tell divers tales must know how to vary the tune.
+ - But sweetly and discreetly love passes from person to person, from heart to heart, or it is nothing worth.
+ - But Fortune, who never forgets her duty, turns her wheel suddenly.
+ - Desire can blind us to the hazards of our enterprises.
+ - By men’s words we know them.
+ - For what the lover would, that would the beloved; what she would ask of him that should he go before to grant. Without accord such as this, love is but a bond and a constraint.
+ - A bully is not reasonable – he is persuaded only by threats.
+ - We love what we should scorn if we were wiser.
+ - Out of five hundred who speak glibly of love, not one can spell the first letter of his name.
+
+23 quotes

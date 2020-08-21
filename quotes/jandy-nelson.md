@@ -1,0 +1,63 @@
+ - Each time someone dies, a library burns.
+ - The. World. Is. Not. A. Safe. Place.
+ - The sky is everywhere, it begins at your feet.
+ - If bad luck knows who you are, become someone else.
+ - That’s exactly it – I am crazy sad, and somewhere deep inside, all I want is to fly.
+ - You have to see the miracles for there to be miracles.
+ - Grief is forever. It doesn’t go away; it becomes part of you, step for step, breath for breath.
+ - This is what I want: I want to grab my brother’s hand and run back through time, losing years like coats falling from our shoulders.
+ - Sometimes you think you know things, know things very deeply, only to realize you don’t know a damn thing.
+ - And then he smiles, and in all the places around the globe where it’s night, day breaks.
+ - I know the expression love bloomed is metaphorical, but in my heart in this moment, there is one badass flower, captured in time-lapse photography, going from bud to wild radiant blossom in ten seconds flat.
+ - I’ve never once thought about the interpretative, the storytelling aspect of life, of my life. I always felt like I was in a story, yes, but not like I was the author of it, or like I had any say in its telling whatsoever. You can tell your story any way you damn well please. It’s your solo.
+ - It’s such a colossal effort not to be haunted by what’s lost, but to be enchanted by what was.
+ - People die, I think, but your relationship with them doesn’t. It continues and is ever-changing.
+ - But what if music is what escapes when a heart breaks?
+ - She’s a sun-kissed beach girl who goes gothgrungepunkhippierockeremocoremetalfreakfashionistabraingeekboycrazyhiphoprastagirl to keep it under wraps.
+ - In one split second I saw everything I could be, everything I want to be. And all that I’m not.
+ - It’s never occurred to me that the stars are still up there shining even in the daytime when we can’t see them.
+ - Grief and love are conjoined, you don’t get one without the other. All I can do is love her, and love the world, emulate her by living with daring and spirit and joy.
+ - Reality is crushing. The world is a wrong-sized shoe. How can anyone stand it?
+ - It’s time for second chances. It’s time to remake the world.
+ - No hot guys should be allowed to have an English accent and drive a motorcycle. Not to mention wear the leather jacket or sport the cool shades. Hot guys should be forced into footie pajamas.
+ - Maybe some people are just meant to be in the same story.
+ - I always imagined music trapped inside my clarinet, not trapped inside of me. But what if music is what escapes when a heart breaks?
+ - For the first time in our lives, I’m somewhere she can’t find, and I don’t have the map to give her that leads to me.
+ - When people fall in love, they burst into flames.
+ - How could a mother who boils water for pasta leave two little girls behind?
+ - Remember how it was when we kissed? Armfuls and armfuls of light thrown right at us. A rope dropping down from the sky. How can the word love and the word life even fit in the mouth?
+ - But then I think about my sister and what a shell-less turtle she was and how she wanted me to be one too. C’mon, Lennie, she used to say to me at least ten times a day. C’mon Len. And that makes me feel better, like it’s her life rather than her death that is now teaching me how to be, who to be.
+ - The Color Of Extraordinary.
+ - You can tell your story any way you damn well please. It’s your solo.
+ - I wish my shadow would get up and walk beside me.
+ - It’s as if someone vacuumed up the horizon while we were looking the other way.
+ - Someone might as well roll up the whole sky, pack it away for good.
+ - How can the word love, the word life, even fit in the mouth?
+ - I wonder why bereaved people even bother with mourning clothes when the grief itself provides such an unmistakable wardrobe.
+ - I’m layering away: sauce, noodles, I belong to you, cheese, sauce, my heart is yours, noodles, cheese, I hear your soul in your music, cheese, cheese, CHEESE...
+ - I heard this expression once: Each time someone dies, a library burns. I’m watching it burn right to the ground.
+ - I can’t shove the dark out of my way.
+ - Let me just unsubscribe to my own mind already, because I don’t get any of it.
+ - Music: what life, what living itself sounds like.
+ - I didn’t know love felt like this, like turning into brightness.
+ - When he plays all the flowers swap colors and years and decades and centuries of rain pour back into the sky.
+ - Our tongues have fallen madly in love and gotten married and moved to Paris.
+ - We wish with our hands, that’s what we do as artists.
+ - The guy’s life drunk, I think, makes Candide look like a sourpuss. Does he even know that death exists?
+ - I have an impulse to write all over the orange walls- I need an alphabet of endings ripped out of books, of hands pulled off of clocks, of cold stones, of shoes filled with nothing but wind.
+ - I could step out of this sad life like it’s an old sorry dress.
+ - I’ve no use for talking, would just as soon store paper clips in my mouth.
+ - I don’t know how the heart withstands it.
+ - When I’m with him, there is someone with me in my house of grief, someone who knows its architecture as I do, who can walk with me, from room to sorrowful room, making the whole rambling structure of wind and emptiness not quite as scary, as lonely as it was before.
+ - What kind of world is this? And what do you do about it? What do you do when the worst thing that can happen actually happens?
+ - This is it – what all the hoopla is about, what Wuthering Heights is about – it all boils down to this feeling rushing through me in this moment with Joe as our mouths refuse to part. Who knew all this time I was one kiss away from being Cathy and Juliet and Elizabeth Bennet and Lady Chatterley!?
+ - And why do English people sound smarter than the rest of us? Like they should be awarded the Nobel Prize for a simple greeting?
+ - The architecture of my sister’s thinking, now phantom. I fall down stairs that are nothing but air.
+ - I suddenly feel left out of a future that isn’t even going to happen.
+ - Dreams change, yes, that makes sense, but I didn’t know dreams could hide inside a person.
+ - The first thing I notice is the sky, so full of blue and the kind of brilliant white clouds that make you ecstatic to have eyes. Nothing can go wrong under this sky...
+ - Who wants to know that the person you love and need the most can just vanish forever.
+ - I gasp, because Isn’t that just exactly what I’ve been doing too: writing poems and scattering them to the winds with the same hope as Gram that someone, someday, somewhere might understand who I am, who my sister was, and what happened to us.
+ - At least, the sun had the decency to stay the hell away from us.
+
+61 quotes

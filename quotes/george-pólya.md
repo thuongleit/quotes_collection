@@ -1,0 +1,40 @@
+ - It is better to solve one problem five different ways, than to solve five problems one way.
+ - Mathematics is not a spectator sport!
+ - If there is a problem you can’t solve, then there is an easier problem you can’t solve: find it.
+ - If you cannot solve the proposed problem try to solve first some related problem.
+ - In order to solve this differential equation you look at it until a solution occurs to you.
+ - Mathematics is the cheapest science. Unlike physics or chemistry, it does not require any expensive equipment. All one needs for mathematics is a pencil and paper.
+ - Beauty in mathematics is seeing the truth without effort.
+ - Mathematics consists in proving the most obvious thing in the least obvious way.
+ - It may be more important in the mathematics class how you teach than what you teach.
+ - Solving problems is a practical art, like swimming, or skiing, or playing the piano: you can learn it only by imitation and practice.
+ - Mathematics is being lazy. Mathematics is letting the principles do the work for you so that you do not have to do the work for yourself.
+ - Geometry is the science of correct reasoning on incorrect figures.
+ - A mathematics teacher is a midwife to ideas.
+ - The first rule of discovery is to have brains and good luck. The second rule of discovery is to sit tight and wait till you get a bright idea.
+ - A GREAT discovery solves a great problem but there is a grain of discovery in any problem.
+ - An idea which can be used once is a trick. If it can be used more than once it becomes a method.
+ - I am too good for philosophy and not good enough for physics. Mathematics is in between.
+ - My method to overcome a difficulty is to go round it.
+ - The best of ideas is hurt by uncritical acceptance and thrives on critical examination.
+ - I am intentionally avoiding the standard term which, by the way, did not exist in Euler’s time. One of the ugliest outgrowths of the “new math” was the premature introduction of technical terms.
+ - Look around when you have got your first mushroom or made your first discovery: they grow in clusters.
+ - Quite often, when an idea that could be helpful presents itself, we do not appreciate it, for it is so inconspicuous. The expert has, perhaps, no more ideas than the inexperienced, but appreciates more what he has and uses it better.
+ - If you wish to learn swimming you have to go into the water and if you wish to become a problem solver you have to solve problems.
+ - Analogy pervades all our thinking, our everyday speech and our trivial conclusions as well as artistic ways of expression and the highest scientific achievements.
+ - You should not put too much trust in any unproved conjecture, even if it has been propounded by a great authority, even if it has been propounded by yourself. You should try to prove it or disprove it...
+ - Hilbert once had a student in mathematics who stopped coming to his lectures, and he was finally told the young man had gone off to become a poet. Hilbert is reported to have remarked: ‘I never thought he had enough imagination to be a mathematician.’
+ - The teacher can seldom afford to miss the questions: What is the unknown? What are the data? What is the condition? The student should consider the principal parts of the problem attentively, repeatedly, and from from various sides.
+ - John von Neumann was the only student I was ever afraid of.
+ - Euclid ’s manner of exposition, progressing relentlessly from the data to the unknown and from the hypothesis to the conclusion, is perfect for checking the argument in detail but far from being perfect for making understandable the main line of the argument.
+ - The open secret of real success is to throw your whole personality into your problem.
+ - The world is anxious to admire that apex and culmination of modern mathematics: a theorem so perfectly general that no particular application of it is feasible.
+ - When introduced at the wrong time or place, good logic may be the worst enemy of good teaching.
+ - There exist a lot of questions that the fools can ask, and the intelligent cannot answer.
+ - The result of the mathematician’s creative work is demonstrative reasoning, a proof, but the proof is discovered by plausible reasoning, by GUESSING.
+ - The first rule of style is to have something to say. The second rule of style is to control yourself when, by chance, you have two things to say; say first one, then the other, not both at the same time.
+ - Success in solving the problem depends on choosing the right aspect, on attacking the fortress from its accessible side.
+ - What is the difference between method and device? A method is a device which you use twice.
+ - The elegance of a mathematical theorem is directly proportional to the number of independent ideas one can see in the theorem and inversely proportional to the effort it takes to see them.
+
+38 quotes

@@ -1,0 +1,29 @@
+ - We can hope that men will understand that the interest of all are the same, that hope lies in cooperation. We can then perhaps keep PEACE.
+ - As a group, housewives to-day suffer more from social isolation and loss of purpose than any other social group, except, perhaps, the old.
+ - War is murder. And the military preparations now being made for a potential major confrontation are aimed at collective murder. In a nuclear age the victims would be numbered by the millions. This naked truth must be faced.
+ - All mankind is now learning that these nuclear weapons can only serve to destroy, never become beneficial.
+ - If only the authorities could be made to realize that the forces leading them on in the armament race are just insane.
+ - The world generally speaking is now drifting on a more and more devastating course towards the absurd target of extermination – or rather, to be more exact – of the northern hemisphere’s towns, fields, and the people who have developed our civilization.
+ - The inventions and the great discoveries have opened up whole continents to reciprocal communication and interchange, provided we are willing.
+ - There is a cultural factor promoting violence which nowadays undoubtedly is highly effective is the mass media. And particularly everything that enters our minds through pictorial media.
+ - It’s not worthy o human beings to give up.
+ - The longing for peace is rooted in the hearts of all men. But the striving, which at present has become so insistent, cannot lay claim to such an ambition as leading the way to eternal peace, or solving all disputes among nations.
+ - It is frightening that in recent years such an increase has occurred in acts of terrorism, which have even reached peaceful countries such as ours. And as a “remedy”, more and more security forces are established to protect the lives of individual men and women.
+ - My personal philosophy of life is one of ethics.
+ - I have, despite all disillusionment, never, never allowed myself to feel like giving up. This is my message today; it is not worthy of a human being to give up.
+ - Though it is fairly easy to describe what constitutes a bad home, there is no simple definition of a good one. Conformity with the traditional pattern certainly is no guarantee of the happiest results.
+ - Our immediate striving must be aimed at preventing what, in the present situation, is the greatest threat to the very survival of mankind, the nuclear threat.
+ - The smaller nations can in fact exercise greater influence on disarmament negotiations than they have hitherto done.
+ - Many countries persecute their own citizens and intern them in prisons or concentration camps. Oppression is becoming more and more a part of the systems.
+ - More must be done in concrete terms in order to promote the cause of disarmament.
+ - The misconception that a victory can be worth its price, has in the nuclear age become a total illusion.
+ - The age in which we live can only be characterized as one of barbarism. Our civilization is in the process not only of being militarized, but also being brutalized.
+ - A great amount has been talked and written about what constitutes a sufficient balance and what really is meant by the concepts of “balance” and “deterrence”.
+ - First and foremost arms are tools in the service of rival nations, pointing at the possibility of a future war.
+ - It is of the greatest importance that people and governments in many more countries than ours should realize that it is more dangerous to have access to nuclear arms than not to possess them.
+ - I agree with the many who consider freezing all sorts of weapons systems a first step in a realistic disarmament policy.
+ - The economic and political roots of the conflicts are too strong for us to pretend to create a lasting state of harmonious understanding between men.
+ - War and preparations for war have acquired a kind of legitimacy.
+ - I have always regarded global development as a struggle between the forces of good and evil. Not to be simplified as a struggle between Jesus and Satan, since I do not consider that the process is restricted to our own sphere of culture.
+
+27 quotes

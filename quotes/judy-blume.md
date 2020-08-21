@@ -1,0 +1,67 @@
+ - Believe in yourself and you can achieve greatness in your life.
+ - Do not let anyone discourage you. If they try: get determined, not depressed.
+ - Librarians save lives by handing the right book at the right time to a kid in need.
+ - We are friends for life. When we’re together the years fall away. Isn’t that what matters? To have someone who can remember with you? To have someone who remembers how far you’ve come?
+ - When you ask, Did writing change my life? It totally changed my life. It gave me my life.
+ - Not everything has to have a point. Some things just are.
+ - Each of us must confront our own fears, must come face to face with them. How we handle our fears will determine where we go with the rest of our lives. To experience adventure or to be limited by the fear of it.
+ - We must, we must, we must increase our bust.
+ - A person without curiosity may as well be dead.
+ - My only advice is to stay aware, listen carefully, and yell for help if you need it.
+ - What’s the point of thinking about how it’s going to end when it’s just the beginning?
+ - Determination and hard work are as important as talent.
+ - Snoring keeps the monsters away.
+ - Concentrate on how good if feels to be alive. No matter what. Just to see the color of the sky, just to smell the air, and feel the wind in your face.
+ - You’ve got to enjoy whatever you can and forget about the rest.
+ - Having the freedom to read and the freedom to choose is one of the best gifts my parents ever gave me.
+ - My insides still turn over when he looks at me that certain way.
+ - I’m an e-mail junkie though I’m trying to read my in-box only twice a day and to answer all at once.
+ - My characters live inside my head for a long time before I actually start a book. They become so real to me, I talk about them at the dinner table as if they are real. Some people consider this weird. But my family understands.
+ - Without peanut butter, I might starve.
+ - I am not scared of you, I am scare of these feelings.
+ - Like my mother said, you can’t go back to holding hands.
+ - What I remember when I started to write was how I couldn’t wait to get up in the morning to get to my characters.
+ - But if you aren’t any religion, how are you going to know if you should join the Y or the Jewish Community Center?
+ - Are you there God? It’s me, Margaret.
+ - I like one hair, tuna fish, the smell of rain and things that are pink. I hate pimples, baked potatoes, when my mother’s mad, and religious holidays.
+ - I wanted to write honest books for kids because I didn’t have those when I was a kid.
+ - She wondered if all the firsts in her life would go by so quickly, and be forgotten just as quickly.
+ - Let children read whatever they want and then talk about it with them. If parents and kids can talk together, we won’t have as much censorship because we won’t have as much fear.
+ - Censors never go after books unless kids already like them. I don’t even think they know to go after books until they know that children are interested in reading this book, therefore there must be something in it that’s wrong.
+ - My mother was my greatest fan.
+ - How we handle our fears will determine where we go with the rest of our lives.
+ - Something will be offensive to someone in every book, so you’ve got to fight it.
+ - A library is where you meet fascinating characters you never forget.
+ - Suddenly question number four popped into my mind. Have you thought about how this relationship will end?
+ - Something awful happens to a person who grows up as a creative kid and suddenly finds no creative outlet as an adult.
+ - The best books come from someplace inside. You don’t write because you want to, but because you have to.
+ - When I was growing up, I dreamed about becoming a cowgirl, a detective, a spy, a great actress, or a ballerina. Not a dentist, like my father, or a homemaker, like my mother – and certainly not a writer, although I always loved to read.
+ - When I started to write, it was the ’70s, and throughout that decade, we didn’t have any problems with book challenges or censorship.
+ - A good writer is always a people watcher.
+ - Nothing teaches you as much about writing dialogue as listening to it.
+ - The truth will make you odd.
+ - The creative process; I enjoy thinking up the stories and situations for my books.
+ - I loved to read, and I think any child who loves to read will read anything, including the back of the cereal box, which I did every morning.
+ - Fear is often disguised as moral outrage.
+ - I am a big defender of ‘Harry Potter,’ and I think any book that gets kids to read are books that we should cherish, we should be thankful for them.
+ - I can’t let safety and security become the focus of my life.
+ - I love to watch movies.
+ - No place has delicatessen like New York.
+ - Some characters become your friends for life. That’s how it was for me with Betsy-Tacy.
+ - I meet people on the street or at book signings and they tend to treat me as if they know me, as if we’re connected. It’s great.
+ - The only thing that works with writing is that you care so passionately about it yourself, that you make someone else care passionately about it.
+ - It’s strange, but when it comes right down to it I never do fall apart – even when I’m sure I will.
+ - It’s not so much that I like him as a person God, but as a boy he’s very handsome.
+ - Ideas seem to come from everywhere – my life, everything I see, hear, and read, and most of all, from my imagination. I have a lot of imagination.
+ - I fell in love with books at the Elizabeth Public Library when I was four...
+ - Little kids are amazing. They seem able to adjust to anything.
+ - The child from nine to 12 interests me very much. And so, those were the years that I like to write about, when I’m writing.
+ - I didn’t know anything about writers. It never occurred to me they were regular people and that I could grow up to become one, even though I loved to make up stories inside my head.
+ - Moms come up to me at book signings.
+ - I think people who write for kids, we have that ability to go back into our own lives.
+ - Why are we acting as if we’re angry. Are we angry?
+ - When I’m writing a book, you can’t think about your audience. You’re going to be in big trouble if you think about it. You’re got to write from deep inside.
+ - I’m really quite bad at coming up with plot ideas. I like to create characters and just see what will happen to them when I let them loose!
+ - Its all about your determination, I think, as much as anything. There are a lot of people with talent, but its that determination.
+
+65 quotes

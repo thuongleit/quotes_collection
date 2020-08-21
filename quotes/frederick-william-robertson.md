@@ -1,0 +1,86 @@
+ - God’s justice and love are one. Infinite justice must be infinite love. Justice is but another sign of love.
+ - There are three things in the world that deserve no mercy, hypocrisy, fraud, and tyranny.
+ - Instruction ends in the schoolroom, but education ends only with life. A child is given to the universe to be educated.
+ - To believe is to be strong. Doubt cramps energy. Belief is power.
+ - There is a past which is gone forever, but there is a future which is still our own.
+ - Christ’s miracles were vivid manifestations to the senses that He is the Saviour of the body – and now as then the issues of life and death are in His hands – that our daily existence is a perpetual miracle. The extraordinary was simply a manifestation of God’s power in the ordinary.
+ - You reap what you sow – not something else, but that. An act of love makes the soul more loving. A deed of humbleness deepens humbleness. The thing reaped is the very thing sown, multiplied a hundred fold. You have sown a seed of life, you reap life everlasting.
+ - Mourning after an absent God is an evidence of a love as strong, as rejoicing in a present one.
+ - A heart renewed – a loving heart – a penitent and humble heart – a heart broken and contrite, purified by love – that and only that is the rest of men. Spotlessness may do for angels, repentance unto life is the highest that belongs to man.
+ - In these two things the greatness of man consists, to have God dwelling in us as to impart His character to us, and to have Him dwelling in us, that we recognize His presence, and know that we are His, and He is ours. The one is salvation; the other, the assurance of it.
+ - He who, with strong passions, remains chaste – he who, keenly sensitive, with manly power of indignation in him, can yet restrain himself and forgive – these are strong men, spiritual heroes.
+ - Simpler manners, purer lives; more self-denial; more earnest sympathy with the classes that lie below us, nothing short of that can lay the foundations of the Christianity which is to be hereafter, deep and broad.
+ - Women and God are the two rocks on which a man must either anchor or be wrecked.
+ - I will tell you what to hate. Hate hypocrisy, hate cant, hate indolence, oppression, injustice; hate Pharisaism; hate them as Christ hated them with a deep, living, godlike hatred.
+ - Defeat in doing right is nevertheless victory.
+ - However dark and profitless, however painful and weary, existence may have become, life is not done, and our Christian character is not won, so long as God has anything left for us to suffer, or anything left for us to do.
+ - In all matters of eternal truth, the soul is before the intellect; the things of God are spiritually discerned. You know truth by being true; you recognize God by being like Him.
+ - We are too much haunted by ourselves, projecting the central shadow of self on everything around us. And then comes the Gospel to rescue us from this selfishness. Redemption is this, to forget self in God.
+ - It is not the situation that makes the man, but the man who makes the situation.
+ - No man ever progressed to greatness and goodness but through great mistakes.
+ - Poetry creates life; Science dissects death.
+ - Only in the sacredness of inward silence does the soul truly meet the secret, hiding God. The strength of resolve, which afterward shapes life, and mixes itself with action, is the fruit of those sacred, solitary moments. There is a divine depth in silence. We meet God alone.
+ - We win by tenderness. We conquer by forgiveness.
+ - Pray till prayer makes you forget your own wish, and leave it or merge it in God’s will.
+ - Two thousand years ago there was One here on this earth who lived the grandest life that ever has been lived yet – a life that every thinking man, with deeper or shallower meaning, has agreed to call divine.
+ - As the tree is fertilized by its own broken branches and fallen leaves, and grows out of its own decay, so men and nations are bettered and improved by trial, and refined out of broken hopes and blighted expectations.
+ - A silent man is easily reputed wise. A man who suffers none to see him in the common jostle and undress of life, easily gathers round him a mysterious veil of unknown sanctity, and men honor him for a saint. The unknown is always wonderful.
+ - That prayer which does not succeed in moderating our wishes – in changing the passionate desire into still submission, the anxious, tumultuous expectation into silent surrender – is no true prayer, and proves that we have not the spirit of true prayer.
+ - It is not the number of books you read, nor the variety of sermons you hear, but it is the frequency and earnestness with which you meditate on these things till the truth in them becomes your own and part of your being, that insures your growth.
+ - Tell men that God is love; that right is right, and wrong, wrong; let them cease to admire philanthropy, and begin to love men; cease to pant for heaven, and begin to love God; then the spirit of liberty begins.
+ - Sow the seeds of life – humbleness, pure-heartedness, love; and in the long eternity which lies before the soul, every minutest grain will come up again with an increase of thirty, sixty, or a hundred fold.
+ - There is a divine depth in silence. We meet God alone.
+ - To believe is to be happy; to doubt is to be wretched. To believe is to be strong. Doubt cramps energy. Belief is power. Only so far as a man believes strongly, mightily, can he act cheerfully, or do any thing that is worth the doing.
+ - On earth we have nothing to do with success or results, but only with being true to God, and for God. Defeat in doing right is nevertheless victory.
+ - What we mean by sentimentalism is that state in which a man speaks deep and true sentiments not because he feels them strongly, but because he perceives that they are beautiful, and that it is touching and fine to say them,-things which he fain would feel, and fancies that he does feel.
+ - Christ within us, the hope of glory.
+ - False notions of liberty are strangely common. People talk of it as if it meant the liberty of doing whatever one likes – whereas the only liberty that a man, worthy of the name of man, ought to ask for, is, to have all restrictions, inward and outward, removed that prevent his doing what he ought.
+ - Brethren, happiness is not our being’s end and aim. The Christian’s aim is perfection, not happiness; and every one of the sons of God must have something of that spirit which marked his Master.
+ - What the world calls virtue is a name and a dream without Christ. The foundation of all human excellence must be laid deep in the blood of the Redeemer’s cross, and in the power of His resurrection.
+ - The one who will be found in trial capable of great acts of love is ever the one who is always doing considerate small ones.
+ - If you think that you can sin, and then by cries avert the consequences of sin, you insult God’s character.
+ - The mistake we make is to look for a source of comfort in ourselves: self-contemplation, instead of gazing upon God. In other words, we look for comfort precisely where comfort never can be.
+ - This is the true liberty of Christ, when a free man binds himself in love to duty. Not in shrinking from our distasteful occupations, but in fulfilling them, do we realize our high origin.
+ - Earth has not a spectacle more glorious or more fair to show than this love tolerating intolerance; charity covering, as with a vail, even the sin of the lack of charity.
+ - Do you want to learn holiness with terrible struggles and sore affliction and the plague of much remaining evil? Then wait before you turn to God.
+ - Through ages, through eternity, what you have done for Christ, that, and only that, you are.
+ - Heaven begun is the living proof that makes the heaven to come credible. Christ in you is “the hope of glory.” It is the eagle eye of faith which penetrates the grave, and sees far into the tranquil things of death. He alone can believe in immortality who feels the resurrection in him already.
+ - God’s highest gifts – talent, beauty, feeling, imagination, power – they carry with them the possibility of the highest heaven and the lowest hell. Be sure that it is by that which is highest in you that you may be lost.
+ - It is not in understanding a set of doctrines; not in outward comprehension of the “scheme of salvation,” that rest and peace are to be found, but in taking up, in all lowliness and meekness, the yoke of the Lord Jesus Christ.
+ - Child of God, if you would have your thought of God something beyond a cold feeling of His presence, let faith appropriate Christ.
+ - The man whom society will not forgive nor restore is driven into recklessness.
+ - Time and pains will do anything.
+ - The office of poetry is not to make us think accurately, but feel truly.
+ - Every unfulfilled aspiration of humanity in the past; all partial representation of perfect character; all sacrifices, nay, even those of idolatry, point to the fulfillment of what want, the answer to every longing – the type of perfect humanity, the Lord Jesus Christ.
+ - There is a mighty gulf between those who love and those who do not love God To the one class we owe civility, courtesy, kindness, even tenderness. It is only those who love the Lord who should find in our hearts a home.
+ - It is not by change of circumstances, but by fitting our spirits to the circumstances in which God has placed us, that we can be reconciled to life and duty.
+ - Only what coronation is in an earthly way, baptism is in a heavenly way; God’s authoritative declaration in material form of a spiritual reality.
+ - The charm of the words of great men, those grand sayings which are recognized as true as soon as heard, is this, that you recognize them as wisdom which has passed across your own mind. You feel that they are your own thoughts come back to you...
+ - No one can be great, or good, or happy except through the inward efforts of themselves.
+ - God’s truth is too sacred to be expounded to superficial worldliness in its transient fit of earnestness.
+ - It is the law of our humanity that man must know good through evil. No great principle ever triumphed but through much evil. No man ever progressed to greatness and goodness but through great mistakes.
+ - I read hard, or not at all; never skimming, never turning aside to merely inciting books; and Plato, Aristotle, Butler, Thucydides, Sterne, Jonathan Edwards, have passed like the iron atoms of the blood into my mental constitution.
+ - The Christian life is not knowing or hearing, but doing.
+ - A happy home is the single spot of rest which a man has upon this earth for the cultivation of his noblest sensibilities.
+ - He alone can believe in immortality who feels the resurrection in him already.
+ - Truth is given, not to be contemplated, but to be done. Life is an action, not a thought.
+ - To turn water into wine, and what is common into what is holy, is indeed the glory of Christianity.
+ - Let a man begin in earnest with “I ought,” and he will end, by God’s grace, if he persevere, with “I will.” Let him force himself to abound in all small offices of kindliness, attention, affectionateness, and all these for God’s sake. By and by he will feel them become the habit of his soul.
+ - The humblest occupation has in it materials of discipline for the highest heaven.
+ - Never does a man know the force that is in him till some mighty affliction or grief has humanized the soul.
+ - Marriage is not a union merely between two creatures – it is a union between two spirits; and the intention of that bond is to perfect the nature of both.
+ - This is the ministry and its work – not to drill hearts and minds and consciences into right forms of thought and mental postures, but to guide to the living God who speaks.
+ - The Divine wisdom has given us prayer, not as a means whereby to obtain the good things of earth, but as a means whereby we learn to do without them; not as a means whereby we escape evil, but as a means whereby we become strong to meet it.
+ - Kindly words, sympathizing attentions, watchfulness against wounding men’s sensitiveness-these cost very little, but they are priceless in their value.
+ - There is a two-fold solemnity which belongs to the dying hour-it is the winding up of life, and it is the commencement of eternity.
+ - It is more true to say that our opinions depend upon our lives and habits, than to say that our lives and habits depend on our opinions.
+ - A life of prayer is a life whose litanies are ever fresh acts of self-devoting love.
+ - The only revenge which is essentially Christian is that of retaliating by forgiveness.
+ - This world is given as the prize for the man in earnest.
+ - Humility is that simple, inner life of real greatness, which is indifferent to magnificence, and, surrounded by it all, lives far away in the distant country of a Father’s home, with the cross borne silently and self-sacrificingly in the heart of hearts.
+ - To grieve over sin is one thing, to repent is another.
+ - If the duties before us be not noble, let us ennoble them by doing them in a noble spirit; we become reconciled to life if we live in the spirit of Him who reconciled the life of God with the lowly duties of servants.
+ - This world is given as the prize for the men in earnest; and that which is true of this world, is truer still of the world to come.
+ - There is rest in this world nowhere except in Christ, the manifested love of God. Trust in excellence, and the better you become, the keener is the feeling of deficiency. Wrap up all in doubt, and there is a stern voice that will thunder at last out of the wilderness upon your dream.
+
+84 quotes

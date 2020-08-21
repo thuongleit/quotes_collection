@@ -1,0 +1,22 @@
+ - I deal with emotional pain through therapy, writing, therapy in music. I think emotional pain is best dealt with when you use art to express it.
+ - Hold your dreams, don’t ever let it go.
+ - When I’m working, on stage, entertaining people, or watching someone do something amazing, it inspires me to be the best artist that I can be. I enjoy being around art – whether it be a museum, a Broadway show – or even writing a poem. Those are things that make me feel alive and inspire me.
+ - God is real. God is in me and in my life. I’ve been blessed, and he continues to bless me, and that is one thing that I will always know for sure.
+ - Singing is my passion and something that I still love to do and Im always going to want to do it.
+ - Starting in music, where I get a chance to connect with the lyrics of a song, I learned so much about performing on stage and connecting to your audience and to what you’re singing about. Singing is very emotional. Every song has its own purpose.
+ - I feel the most vulnerable when I’m in love. When my heart is open, and when life is making me feel like I have to open up myself completely. Love has a tendency to do that.
+ - I work out and go to the gym, but I still enjoy my soul food and snacks. But I’m a pretty petite young woman, and I just do everything in moderation and make sure that I just keep everything together.
+ - I want to be back on Broadway one day. That’s a dream of mine. There’s nothing like live theater, and I think it’s so important for me to be able to be on stage with an audience that responds.
+ - I definitely want my career to continue to branch out. I’ve had the pleasure of working in different areas of entertainment, from being in the music business as a teenager in a girl group to doing Broadway.
+ - From film to film, I realize my strengths and my weakness, and I realize how much better I get. I learn the lingo, I ask questions and I’m on set trying to figure out which shots they’re going to use. For me, it’s exploring the art. It’s not just making a movie.
+ - I think a lot of young people don’t realize the price of fame is a lot higher than they imagine.
+ - You have to think like a businessman or a businesswoman, and I can’t wait to continue to grow, as an actress, but to also continue to grow as a brand and show people that I have so much more to offer.
+ - One thing I’m passionate about is directing. I’ve always wanted to direct.
+ - One of my biggest inspirations growing up was Whitney Houston, so I was devastated to hear about her passing. I’m from East Orange, New Jersey, and started singing at New Hope Baptist Church, so she was like my fellow Jersey girl.
+ - When you’re singing, it can be looked at as a monologue, in a way. If it’s about telling a story and connecting with your audience, you can do that through song, through dialogue, or through a monologue. That’s what’s special about being an entertainer.
+ - As a black actress you’ve got to work doubly hard. But it doesn’t ever get me to the point where I give up on myself. It just motivates me to be more prepared, focus and disciplined. That’s why I care so much about doing black films and making sure that we represent and are represented correctly.
+ - I definitely feel like, as a singer, I’ve been able to transition into acting because I always saw them in the same vein. It’s all about connecting and telling a story.
+ - For people who don’t know or didn’t know that I started off as a singer, singing requires a certain level of drama, in itself. Honestly, it really prepared me to do this, and I’ve been really blessed to be able to transition into the acting world very smoothly.
+ - I want to do stories that inspire people.
+
+20 quotes

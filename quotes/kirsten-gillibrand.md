@@ -1,0 +1,29 @@
+ - When we create hope and opportunity in the lives of others, we allow love, decency and promise to triumph over cowardice and hate.
+ - Without your voice being heard in Washington, the decisions we make aren’t as good. I would urge women to consider public service. And if you want to run, give me a call. I’ll help.
+ - Hardworking men and women deserve not only job security, but also a paycheck when they need to take time off to care for a loved one.
+ - I find that when you open the door toward openness and transparency, a lot of people will follow you through.
+ - As a 10-year-old girl, I would listen to my grandmother discuss issues, and she made a lasting impression on me.
+ - My mother is a great hunter – she usually shoots our Thanksgiving turkey.
+ - A typical rapist is a recidivist.
+ - The biggest mistakes I’ve ever made are when I’ve been rushed. If I’m overwhelmed, I slow down. It’s more effective.
+ - If we expect our children to thrive at our colleges and universities, and succeed in our economy once they graduate – first we must make quality, affordable early childhood education accessible to all.
+ - Women’s voices aren’t heard often enough. Congress should reflect the population, but with only 20 percent women in the Senate and 18 percent in the House, it just doesn’t.
+ - Each campus should absolutely investigate the use of alcohol, the prevalence of alcohol, and its role in sexual assault. We know that predators will use alcohol as a weapon. We know they will use drugs as a weapon.
+ - I realize that for many New Yorkers, this is the first time you’ve heard my name, and you don’t know much about me. Over these next two years you will get to know me, but more importantly, I will get to know you.
+ - I believe transparency in government is key to restoring our nations faith in its elected leaders.
+ - If we are going to out-innovate, out-compete, out-educate other countries, it’s going to be women who make a difference, it’s women who are going to lead the way and you know, until women get that rightful place and decision making and leadership and growth, America won’t realize all her potential.
+ - When a woman has the opportunity to speak truth to power, it’s important that she does, even if it’s just trying to get a crosswalk in her neighborhood. That’s how social change happens!
+ - My hope is that in the future, women stop referring to themselves as ‘the only woman’ in their physics lab or ‘only one of two’ in their computer science jobs.
+ - We must do everything we can to help our service members and veterans transition into civilian life once they return home, and that means preparing them for the tough job market.
+ - I don’t like the phrase having it all. It implies we’re being greedy, like “have a second piece of pie.”
+ - While we can’t begin to repay the debt we owe our veterans for their brave service, we can certainly take steps to ease the physical, psychological and financial hardships they may be experiencing.
+ - While we can never truly repay the debt we owe our heroes, the least we should do for our brave veterans is to ensure that the government takes a proactive approach to delivering the services and benefits they have earned, so they can access the care they need and so richly deserve.
+ - There is no greater call to service than that of our brave men and women who serve our country in combat across the globe.
+ - A strong mentor can help a young woman find and advance in the career of her dreams that otherwise may have seemed impossible.
+ - Women asking for raises should not only know their value, but they should ask with the confidence that they’re helping the company to be successful.
+ - As a lawyer you never speak with emotion. It’s about the precise facts.
+ - The Senate is extremely slow: They have enormous difficulty passing the bills that even get through the House. That’s the reality that I’ve recognized in my two years: that it takes time to change the world.
+ - I might want to do a hundred things in a given day, but I know I have to pick up my kids between 5 and 6. That is the most important thing. So I fit in everything else around that. I know what needs to be done, and then I know what I want to get done.
+ - We should be cultivating our female workers. The truth of the matter is that women just see problems and solutions differently, and that’s valuable.
+
+27 quotes

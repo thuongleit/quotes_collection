@@ -1,0 +1,25 @@
+ - Tuesday’s coming, did you bring your coat?
+ - I think one of the reasons I love science fiction so much is that it’s – when it’s ideally done right, it’s a reflection on ourselves.
+ - I frequently run into this, where I genuinely feel like – and this is not just my head cold talking right now – I often, and this is going to sound weird, but I often feel like the guy who makes these movies is smarter than me. Smarter than the guy on the phone right now.
+ - Maybe the most annoying questions is: “Where do you see yourself in so many years?” It’s a terrifying answer no matter how you think of it.
+ - I’m still learning. I’ve never done a digital project before. And I’m pretty sure I did things to the software that weren’t supposed to be done.
+ - Fighting a cold, but I’m powering through. As they say, there’s nothing better for a cold than doing interviews all day.
+ - When you get questions that annoy you the art is answering them differently. If you’re bored with it, then everyone will be bored with it.
+ - I’ve loved science fiction my whole life. But I’ve never made a science fiction movie. And “World Of Tomorrow” is sort of a parody of science fiction at the same time. It’s all of the things I find interesting in sci-fi amplified.
+ - Time travel is a thing. It can be very dangerous, and it’s also very – it’s an expensive thing to do.
+ - The design is a really flat primary color with all sorts of abstract geometric shapes, just implying something. And then you’d have your characters running from something with guns. It was very expressionistic.
+ - But I had never drawn on a tablet before. I’ve been doing pencil and paper and film for almost 20 years. I wanted to try something different. I wanted to teach myself some digital stuff in advance of a bigger feature project that’s coming up, and I took to it really quickly.
+ - I’ll have a sentence in my head that’s kind of beautiful and interesting, but I’m not sure why or where it’s coming from. So it’s kind of funny, because when people point out patterns or themes, it’s the exact opposite of my film school experience.
+ - There’s really no reason film and digital can’t happily co-exist and benefit from one another. Anyone who tells you otherwise is just trying to sell you something.
+ - To me everyone goes through that at some point in adolescence, you know. There’s – you meet someone when you’re a young teenager, and they’re never right for you, and you always wind up hurting someone on the way to figuring out all this stuff. But it was a fun writing process.
+ - No matter what decade science fiction comes from, it’s representing the present.
+ - To me, that’s where memories are very interesting because what happens when we start losing memories? What happens when you can’t take your memories with you? Who are we without our memories, without our past?
+ - I’ve loved science fiction my whole life. But I’ve never made a science fiction movie.
+ - The only purpose of the visuals, in any film, is to serve the story.
+ - After working so long on something like this, it’s great to go out and meet people and see the reactions and remind yourself that, oh, yeah,, I wasn’t just working in a cave by myself for no reason.
+ - Most people’s personalities and roles are locked by the time they’re nine or 10. I think there’s something to that.
+ - It’s naturally kind of humiliating and strange to have a microphone; when you’re young you just make movies, you don’t worry about all the peripheral stuff that comes with it.
+ - Usually the more money that something takes to make, the less interesting it’s forced to become.
+ - To be animating at the same time, it’s the ultimate freedom in filmmaking because you can literally put anything on the screen that you can imagine.
+
+23 quotes

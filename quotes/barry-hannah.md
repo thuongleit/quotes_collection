@@ -1,0 +1,40 @@
+ - Literature is the history of the soul.
+ - The point is to strip down, get protestant, then even more naked. Walk over scorched bricks to find your own soul. Your heart a searching dog in the rubble.
+ - Love and despair go hand in hand.
+ - The Deep South might be wretched, but it can howl.
+ - Professional Southerners sicken me.
+ - I don’t write under the ghost of Faulkner. I live in the same town and find his life and work inspiring, but that’s it. I have a motorcycle and tool along the country lanes. I travel at my own speed.
+ - Some writers are curiously unmusical. I don’t get it. I don’t get them. For me, music is essential. I always have music on when I’m doing well. Writing and music are two different mediums, but musical phrases can give you sentences that you didn’t think you ever had.
+ - Whoever you are, be that person with all your might. Time goes by faster than we thought. It is a thief so quiet. You must let yourself be loved and you must love, parts of you that never loved must open and love. You must announce yourself in all particulars so you can have yourself.
+ - Children will listen to anything elders say to survive, and if you grew up without an elder telling you there was a god, what did your parents say to you?
+ - I hate to be fatalistic about it, but alcoholism, it’s just in your genes. We had some of it in my family, and it just got me.
+ - A writers job is to destroy and then to build the thing back up again by a chosen means.
+ - The wild stuff is all so overrated. Drinking, you don’t feel good all the time. There’s a lot of down, a lot of misery.
+ - When you’re not involved, other people’s unhappiness seems to be about the funniest damn thing on earth because you think you can solve it, that you are God, that you are above this, and that their unhappiness is just such useless toil and agony. If it’s you, it ceases to be a comedy.
+ - The alcohol had the code and mystery about it as a writer’s drug, but I’m glad that’s been debunked. But the trouble with the drinking, much as I hate to admit it, is it helped the work.
+ - Where is the angry machine of all of us? Why is God such a blurred magician? Why are you begging for your life if you believe those things? Prove to me that you’re better than the rabbits we ate last night.
+ - I lost my second marriage because of drinking, and I loved the woman very much. But I thought I needed booze to write. I’m glad I was disabused.
+ - I don’t really believe in a creative-writing major as an undergraduate. It’s a bad idea, terrible. I’ve met creative-writing majors from other places and they don’t know a goddamn thing. They’re the worst students. They just think they’re good because they could pass.
+ - Randomness I love. And I still love just a holler right in the middle of an ongoing narrative. Pain or joy, ecstasy.
+ - I thought I was writing for a fairly hip, intelligent crowd; I just thought there were more of them out there. But they’re not. They’re not out there waiting. They’re not gonna use their intelligence on your book.
+ - I always intended to be light and open. I misjudged the American audience.
+ - I was always kind of florid. And full of rhetoric. That was my flaw. My whole time writing, I’ve had to work against that because it can be a wrecking posture.
+ - I grew up when people seemed actually to be hurting themselves for their art. Of course, some of it was phony.
+ - Most novels I come across have all the excitement of a long trip on a bus with a sensitive glee club. Yammer and chat.
+ - I wouldn’t buy somebody’s album on a dare if they called him a musician’s musician. I don’t write to be a writer’s writer. I don’t want to be like the little-magazine writer.
+ - I’ll tell you why I like writing: it’s just jumping into a pool. I get myself into a kind of trance. I engage the world, but it’s also wonderful to just escape. I try to find the purities out of the confusion. It’s pretty old-fashioned, but it’s fun.
+ - I found out about reviews early on. They’re mostly written by sad men on bad afternoons. That’s probably why I’m less angry than some writers, who are so narcissistic they consider every line of every review, even a thoughtful one, as major treason.
+ - The first two drinks were always wonderfully liberating. You think better. You’re braver, and you’ll say anything. If you could just hang in there with two or three, it’d be beautiful. The trouble was I couldn’t.
+ - If you are able to explain suffering, a man once told him, you weren’t really there.
+ - There was no one, when I was in school, who talked about going in and blowing up students. The teachers were very stern and hateable, but nobody ever mentioned murder.
+ - My stories do have plot. They’re not just scattered language; they’re controlled, toward an end.
+ - You’ve got to lie to stay halfway interested in yourself.
+ - Time is what makes good stories. Much has been cooking for a long time, and at last finds an out in narration one day. That’s a supreme joy. And why the characters keep showing up.
+ - I do believe that as you write more and age, the arrogance and most of the vanity goes. Or it is a vanity met with vast gratitude, that you were hit by something as you stood in the way of it, that anybody is listening.
+ - My best stories come out of nowhere, with no concern for form at all.
+ - I don’t really care about plot; I want to have a page-turner in a different kind of way.
+ - You need to see a bit of hell now and then. That, and great joy.
+ - I never pulled a loaded pistol on anybody, but it got around that I did. It got turned into lore. It’s a myth. There’s so much bad gun stuff.
+ - I wanted very much to be Miles Davis when I was a boy, but without the practice. It just looked like an endless road.
+
+38 quotes

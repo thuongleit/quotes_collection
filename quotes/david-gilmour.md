@@ -1,0 +1,49 @@
+ - Tired of lying in the sunshine, staying home to watch the rain You are young and life is long, and there is time to kill today And then one day you find, ten years has got behind you No one told you where to run, you missed the starting gun.
+ - There’s no way out of here.
+ - I mean, I have moments of huge frustration because of my inability to express myself linguistically as clearly as I would like to.
+ - Jimi Hendrix isn’t as good as me!
+ - I think I’m still trying to be experimental on everything I ever do, but it’s not as obviously way-out and experimental as what we were.
+ - Make life an art rather than art from life.
+ - Everything in moderation – that’s what I live by.
+ - I don’t have a very disciplined approach to practicing or anything, but I do tend to have a guitar around most of the time, which I strum on most of the day.
+ - God created a system which gave us freewill.
+ - Well, I am David Gilmour, the voice and guitar of Pink Floyd. I have been since I was 21.
+ - The future is deterministic in principle, but not in practice.
+ - It’s not whether God plays dice; it’s how God plays dice.
+ - I’m not interested in teaching books by women.
+ - There is irreducible chance in the universe.
+ - You know, once you’ve had that guitar up so loud on the stage, where you can lean back and volume will stop you from falling backward, that’s a hard drug to kick.
+ - It’s not true that you fall in love only once in your life. But it is true that you only fall in love a certain way, with a certain absoluteness, once.
+ - Where would rock and roll be without feedback?
+ - I’m an atheist, and I don’t have any belief in an afterlife...
+ - The only way artists can do things is to do it for themselves. Trying to second guess what the public wants or likes is kind of a fool’s game.
+ - No one can replace Richard Wright. He was my musical partner and my friend.
+ - How much in life is determined, and how much is due to chance?
+ - Yes, there’s a lot of the blues in my playing.
+ - I don’t want to be a full-time member of Pink Floyd all my life.
+ - I think I could walk into any music shop anywhere and with a guitar off the rack, a couple of basic pedals and an amp I could sound just like me. There’s no devices, customized or otherwise, that give me my sound.
+ - I’ve been in The Who, I’ve been in The Beatles and I’ve been in Pink Floyd! Top that!
+ - The expectation on me as a solo artist is very different to the audience’s expectation of a Pink Floyd show.
+ - I don’t live my life on the road. I’m getting on a bit and there’s a lot of other things in my life. Our lovely children and their lives. It’s more of a part-time business these days.
+ - I am a lover of all sorts of different music. I love blues and every piece of music that I have listened to has become an influence.
+ - She was a stirrer of the pot, a lover of intrigue and distress, a creature who seemed to draw oxygen from the spectacle of people at each other’s throat, everybody in a state of upset and talking about her.
+ - I don’t even think whether I play the blues or not, I just play whatever feels right at the moment. I also will use any gadget or device that I find that helps me achieve the sort of sound on the guitar that I want to get.
+ - It’s a very tempting thing to try and relive your glory days when you get a little older and you worry that people have forgotten all about you.
+ - I’ve never had any religion. I’d prefer it if I did, really. Even as a boy I just couldn’t make myself believe.
+ - If people would like to come to my concerts I’d love them to come. And if they like the music that I make, I love that too. But I do not make music for other people. I make it to please myself.
+ - I just play intuitively and work the same way in the studio. I don’t have any magical effects or anything that helps me to get my particular sound.
+ - I actually learned the guitar with the help of a Pete Seeger instructional record when I was 13 or 14.
+ - I can remember a lot of nights performing in those early years where you felt that you hit some good moments, but a lot of the time you’re thinking, “Oh, God, this isn’t quite making it.” So I think that is what makes you in the end refine your view of things a little bit.
+ - I’m English and I am British. I don’t know if I feel part of a music scene. Musically, I have as many feelings and affinity with Americans or Canadians, or all sorts of people as I do with English people.
+ - Being a solo artist is what I do. It’s what I’ve been doing for the last 20 years and a bit before then.
+ - It is an example of what films can do, how they can slip past your defenses and really break your heart.
+ - I have no interest in going on a tour to make money without making new product, new art.
+ - We already had all the songs, and it turns out all you have to do is burn them to some CDs, so why not?
+ - It’s crazy that America gives such a paltry percentage of its GNP to the starving nations.
+ - I think Atom Heart Mother was a good thing to have attempted, but I don’t really think the attempt comes off that well.
+ - When I was given this job I said I would only teach the people that I truly, truly love. Unfortunately, none of those happen to be Chinese, or women.
+ - I am working on current material, a new album, and that is all still my main motivation of going out and working. We haven’t gotten rid of all the new stuff in favor of the old.
+ - For me, gradually over the years, you refined your tastes in the way you do things and it becomes maybe less experimental.
+ - I can’t remember really what it’s like to do it within Pink Floyd. In my mind, that’s a thing of the past.
+
+47 quotes

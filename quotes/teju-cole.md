@@ -1,0 +1,53 @@
+ - The White Savior Industrial Complex is not about justice. It is about having a big emotional experience that validates privilege.
+ - The site was a palimpsest, as was all the city, written, erased, rewritten.
+ - For purposes of marketing, writers are designated as poets, novelists, or something else. But writing is about matchmaking, an attempt to marry sensations with apt words.
+ - Perhaps this is what we mean by sanity: that, whatever our self-admitted eccentricities might be, we are not villains of our own stories.
+ - I’m not hopeful about America, and I’m not hopeful about the world, no. Life goes on and, for those of us who are lucky, there’s a great deal to enjoy in it. But will things get better for most people? I don’t know. I don’t see the evidence.
+ - Life’s too short for anxious score-keeping.
+ - Things don’t go away just because you choose to forget them.
+ - I suddenly feel a vague pity for all those writers who have to ply their trade from sleepy American suburbs, writing divorce scenes symbolized by the very slow washing of dishes.
+ - At the emergence of the modern novel with Rabelais and Cervantes, all kinds of things were possible in a long-form prose work. Within a couple of hundred years, most of those possibilities were abandoned in favor of a text that efficiently transmitted sentiments.
+ - There’s a reticence necessary when you consider the suffering of others. Into the space created by that reticence, you bring in those things that best help us confront ambiguity: music, painting, film, and so on.
+ - If you see a theme that you might want to take a photo of, you sort of stand there for an hour waiting for it to resolve, waiting for the geometry of a theme to be exactly what you want them to be. That was my process to get photos.
+ - I deeply respect American sentimentality, the way one respects a wounded hippo. You must keep an eye on it, for you know it is deadly.
+ - The shape the words end up taking are themselves the meaning of the words, they are retrospectively what we meant to say. There’s no way of knowing this until you register it in visible form. But the other side of this is that you do have some idea of where you are going.
+ - Not all coincidence has to be loaded with meaning. Sometimes, things simply recur because that’s how it is in life, that’s how the mood gets in. It’s good to subtly overdo it too, as Nabokov does, as Sebald does. It’s a good way to intensify that region of localized weather that we call a novel.
+ - The banality of evil transmutes into the banality of sentimentality. The world is nothing but a problem to be solved by enthusiasm.
+ - Echo is very important to me. I love the repetition of motifs, or the slight alteration of what’s been said before. This is part of how one creates a mood, a psychological caul, in fact, around the reader.
+ - Always say no pun intended to draw attention to the intended pun.
+ - Not in this specific form. But all great cities are inhabited by ghosts. A book of this kind could probably be written about Jakarta, Manila, or London by anyone who had a feeling for the invisible truths of those places.
+ - I couldn’t remember what life was like before I started walking.
+ - One of the difficulties of photography is that it is much better at being explicit than at being reticent.
+ - What’s interesting about Twitter is the unmediatedness of it, the directness of it. I’m on a train somewhere in New York and I send out a tweet. Somebody sitting at dinner in Bombay checks their phone and they see it.
+ - To be alive, it seemed to me, as I stood there in all kinds of sorrow, was to be both original and reflection, and to be dead was to be split off, to be reflection alone.
+ - Love perhaps includes the promise that when the mob comes for you I’ll go against the mob.
+ - It is dangerous to live in a secure world.
+ - I adore imaginary monsters, but I am terrified of real ones.
+ - I often say I’ve spent more time with photography than I have with literature just in terms of hours.
+ - We experience life as a continuity, and only after it falls away, after it becomes the past, do we see its discontinuities. The past, if there is such a thing, is mostly empty space, great expanses of nothing, in which significant persons and events float.
+ - The big idea behind it was to somehow participate in the discussion about justice. What does it mean to be just to the others out there whose lives we do not think about. One of the answers I came up with was simply tell their stories.
+ - It wasn’t a deception: all lovers live on partial knowledge.
+ - Being Nigerian is a strong part of my identity. Being American is a strong part of my identity. And there are important parts of who I am that really have nothing to do with my national connection.
+ - Yes, there’s a relaying of internal states that only a novel can achieve. In my view, the novel is one of Europe’s greatest gifts to the world. America and Africa collaborated to give the world jazz. We’ll call it even.
+ - But a book suggests conversation: one person is speaking to another, and audible sound is, or should be, natural to that exchange. So I read aloud with myself as the audience, and gave voice to another’s words.
+ - Each neighborhood of the city appeared to be made of a different substance, each seemed to have a different air pressure, a different psychic weight: the bright lights and shuttered shops, the housing projects and luxury hotels, the fire escapes and city parks.
+ - It’s an Obama book, certainly. I was delighted, and astonished, to hear recently that he was reading it. It’s a book about a new kind of American reality, one that takes diversity for granted. It doesn’t celebrate diversity, actually, it just says: this is how we live now.
+ - Each time I caught sight of geese swooping in formation across the sky, I wondered how our life below might look from their perspective, and imagined that, were they ever to indulge in such speculation, the high-rises might seem to them like firs massed in a grove.
+ - Not explicitly, no. Compared to this enormous, relentless evolutionary activity in the built environment, writing is small potatoes.
+ - The novelist can’t successfully depict such horrifying reality. But she can, and must, try, to bear witness. There are many ways of doing this; the mode I prefer is indirect.
+ - I just realized that we’re facing here is an empathy gap. And this was just another way to generate conversation about something that nobody wanted to look at.
+ - The content of Saul Leiter’s photographs arrives on a sort of delay: it takes a moment after the first glance to know what the picture is about. You don’t so much see the image as let it dissolve into your consciousness, like a tablet in a glass of water.
+ - So, for a book set in 2006, Open City evades certain markers, while it embraces certain others. Julius doesn’t use a smartphone, and he doesn’t discuss contemporary US politics in any fine detail.
+ - The energies of Lagos life- creative, malevolent, ambiguous- converge at the bus stops.
+ - A MOB is not, as is so often said, mindless. A MOB is single-minded.
+ - I schooled in the Boston area.
+ - The strange thing, though, is that most people who write novels these days seem to be aware of only a fraction of its possibilities. Kundera goes on and on about this, and I never tire of reading him on the subject, because I agree very deeply with it.
+ - The creative part of oneself finds its way out. In this case, I got interested particularly in the medium of Twitter and looked for ways to use it creatively.
+ - Still, there’s that faint glimmer of hope we feel when we sense, in other people, the same kind of attentiveness to life that we take comfort in. Why else would anyone watch Haneke films or read Sebald? The material is grim, but it’s redeemed by the quality of the attention.
+ - Sebald, Naipaul, and Joyce are three of my biggest influences, all of them for their formal freedom and their ability to create mood. So those comparisons are immensely flattering and, of course, unearned.
+ - There is an expectation that we can talk about sins but no one must be identified as a sinner...
+ - There was a feeling during the years of George W. Bushs presidency that his gracelessness as well as his appetite for war were linked to his impatience with complexity. He acted from the gut, and was economical with the truth until it disappeared.
+ - My own literary interest is more about excavating the past, or sensing the past inside the present. This requires all kinds of exclusions and sleights of hand. There’s an admittedly antiquarian flavor to it, even though there’s enough of the present included to lull the reader.
+ - I’m not trying to be in your face and take a picture that is like a journalistic kind of image. I got interested in a kind of complicated, compiled, visual field.
+
+51 quotes

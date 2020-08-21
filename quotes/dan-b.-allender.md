@@ -1,0 +1,37 @@
+ - Most people want to grow, but the price of growth is pain.
+ - Buzyness, however, is moral laziness because it involves refusing to live with courage and intentionality.
+ - Strength is found in weakness. Control is found in dependency. Power is found in surrender.
+ - Healing comes when our story is raw, bone-deep and full of hunger for what only Jesus can offer.
+ - Bold love is courageously setting aside our personal agenda to move humbly into the world of others with their well-being in view, willing to risk further pain in our souls, in order to be an aroma of life to some and an aroma of death to others.
+ - The work of restoration cannot begin until a problem is fully faced.
+ - If we want to create a different future, we must have the courage to look at the past.
+ - Every addiction is an attempt to slay hope.
+ - Every marriage moves either toward enhancing one another’s glory or toward degrading each other.
+ - Courage never takes away fear; courage simply redistributes fear to get the job done.
+ - Love cannot last without a foundation of forgiveness.
+ - Life is war, and marriage provides us with a close and intimate ally with whom we may wage this war. The battle requires bold love, forgiveness, confrontation, and repentance.
+ - If you are a leader, it is not possible to be at peace with all and friends with everyone.
+ - Christ never intended to cover up the dark side of life, but rather to illuminate a path through it.
+ - What originally led us to serve others by leading them seldom remains our North Star.
+ - For most leaders, humility comes only by wounds suffered from foolish falls.
+ - To experience brokenness and humiliation all you have to do is lead.
+ - One of the best sources of perspective is enemies. If we can learn from them, then we can profit from anyone.
+ - In order to reclaim the joy and passion of leadership, we must walk the valley of the shadow of death and name the cost of leadership.
+ - A reluctant leader is highly suspicious of people who work to accumulate and hoard power.
+ - Grace. Loss. Fortune. Hardship. Victory. Sometimes the worst seat is best seat in the house and it comes as a result of leading.
+ - To dream alone is fantasy if it doesn’t move the heart to act.
+ - So take seriously the story that God has given you to live. It’s time to read your own life, because your story is the one that could set us all ablaze.
+ - It is God’s design to use reluctant servants to usher in glory.
+ - The more you openly name your struggles, the less people can use your silence as a back door to blackmail you, to sabotage your leadership, or to subvert relationships within the organization.
+ - The more we walk the path first while becoming last and least in our organizations, the more we become like the Alpha and Omega whom we long to serve.
+ - You may obey a leader who has power and authority, but you will not strive to serve her or the cause of the organization unless you respect and care for her in addition to the ones with whom you serve.
+ - Beginning with the first day of life outside the womb, every child is asking two core questions: ‘Am I loved?’ and ‘Can I get my own way?’ These two questions mark us throughout life, and the answers we receive set the course for how we live.
+ - Stories don’t give answers, but they do offer perspective.
+ - Idealism may get us into the fray, but it is the loss of all we cherish that begins to form in us a heart capable of leading others reluctantly and humbly.
+ - If you lead, you will eventually serve with Judas or Peter.
+ - The cost for the recipient of God’s grace is nothing, and no price could be higher for arrogant people to pay.
+ - The desire for beauty, the hunger for union, the passion to be part of something greater than self, all arise out of our bent to worship.
+ - The sole reason to serve as a Christian is Jesus, yet He is easily lost in the various activities that consume our days.
+ - A leader – whether in the home, church, business, community, or government – has authority due to her role, but her positional power will not bring about good for individuals or organizations unless it is backed up by the capital of character.
+
+35 quotes

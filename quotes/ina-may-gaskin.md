@@ -1,0 +1,38 @@
+ - Whenever and however you give birth, your experience will impact your emotions, your mind, your body, and your spirit for the rest of your life.
+ - There is no other organ quite like the uterus. If men had such an organ they would brag about it. So should we.
+ - Squat 300 times a day, you’re going to give birth quickly.
+ - The Creator is not a careless mechanic.
+ - When we as a society begin to value mothers as the givers and supporters of life, then we will see social change in ways that matter.
+ - I think that women can be just completely surprised by the change in them from giving birth-you have something powerful in you-that fierce thing comes up-and I think babies need moms to have that fierceness-you feel like you can do anything and that’s the feeling we want moms to have.
+ - Even if it has not been your habit throughout your life so far, I recommend that you learn to think positively about your body.
+ - If a woman doesn’t look like a Goddess during labor, then someone isn’t treating her right.
+ - It is important to keep in mind that our bodies must work pretty well, or their wouldn’t be so many humans on the planet.
+ - The energy that gets the baby in is the energy that gets the baby out.
+ - Let your monkey do it.
+ - The way a culture treats women in birth is a good indicator of how well women and their contributions to society are valued and honored.
+ - The human species is no more unsuited to give birth than any other of the 5,000 or so species of mammals on the planet. We are merely the most confused.
+ - Simply put, when there is no home birth in a society, or when home birth is driven completely underground, essential knowledge of women’s capacities in birth is lost to the people of that society – to professional caregivers, as well as to the women of childbearing age themselves.
+ - The best a health care system can do is to equip itself to meet the needs of each individual woman and birth. Those needs run the gamut from undisturbed home birth to planned cesarean section.
+ - Don’t criticize nature, stand in awe of it.
+ - I had to learn not to let anyone push me around, to be brave and to say things I knew might make people mad.
+ - Don’t forget to bring your sense of humor to your labor.
+ - It will take your breastfed baby an average of five to six months to double her birth weight.
+ - I dreaded having a boring life when I grew up. And I certainly can’t complain about being bored.
+ - I have never observed even the slightest laceration in a woman who used clitoral stimulation as a relaxation method during birth. Clitoral stimulation seems to increase vaginal engorgement as the baby emerges.
+ - When a child is born, the entire Universe has to shift and make room. Another entity capable of free will, and therefore capable of becoming God, has been born.
+ - We are the only species of mammal that doubts our ability to give birth. It’s profitable to scare women about birth. But let’s stop it. I tell women: Your body is not a lemon.
+ - Ask the woman, she will tell you everything you need to know.
+ - If birth matters, midwives matter. In Europe, there are hospitals where the cesarean rate is less than 10%, and you’ll find midwives in these hospitals, you’ll see a lot less re-admissions with infections and complications, and you’ll see a lot less injury to mothers.
+ - Breast stimulation is especially effective in starting labor at term when it is combined with sexual intercourse. Unless your partner is an abysmally poor lover, this combination is by far the most enjoyable method of induction.
+ - Why should nutrition matter less in the creation of young humans than it does in young plants? I’m sure that it doesn’t.
+ - I think midwifery was developed by people with common sense, people who were close to nature, and people who observed other species of mammals and saw that there were lessons there to be learned.
+ - When you cast doubt on some bodily function- you don’t know how sensitive the body is to that kind of idea.
+ - It would be a mistake, though, to consider care by family doctors or midwives inferior to that offered by obstetricians simply on the grounds that obstetricians need not refer care to a family physician or midwife if no complications develop during a course of labor.
+ - It’s good to laugh at times that feel inappropriate.
+ - Why do we, then, continue to treat women as if their emotions and comfort, and the postures they might want to assume while in labor, are against the rules?
+ - If you can’t be a hero, you can at least be funny while being a chicken.
+ - Many of our problems in US maternity care stem from the fact that we leave no room for recognizing when nature is smarter than we are.
+ - Why in the world do the insurance companies get to be the boss of birth? That’s what I want to know.
+ - Why should insurance companies continue to get away with limiting the skills that a health profession has always previously required of its members if they were to be considered fully trained?
+
+36 quotes

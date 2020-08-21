@@ -1,0 +1,44 @@
+ - Well, that’s cricket Harry. These things happen in boxing.
+ - I want to stay healthy, keep fit, eat well, keep a low profile and be a good dad.
+ - If you say you’ve had a nervous breakdown or things aren’t right mentally, people run away from you. They think you’re from ‘One Flew Over The Cuckoo’s Nest,’ you know.
+ - I was in a no-win situation, so I’m glad that I won rather than lost.
+ - Boxing is the toughest and loneliest sport in the world.
+ - Mental illness is a very powerful thing. If it is with you it is probably going to be there until the day you die. I am trying so hard to break mine, but it is not easy. It is my toughest fight ever.
+ - Boxing is just show business with blood.
+ - Sometimes when you have bipolar you have days you are grumpy and not feeling yourself.
+ - People need to have compassion for others.
+ - I was about 18 six years ago. I’m 28 now.
+ - Journalists have always written that my mum said that I punched a hole through my cot when I was three years old. I don’t remember doing that, and I think it was more that I was very energetic.
+ - For example, I like using strong Greek and Roman Renaissance characters as part of my series.
+ - If your brain’s not right they have good people at the NHS to help you fix it and talk to and counselling to calm you down and to focus you.
+ - I see danger – awake! It’s terrible, it’s horrible, and it’s almost here! This is why my spirit was sent to earth. This is the job God has given me. This is the job I must do, so my hands will be free of your blood.
+ - But when you actually go in the ring, it’s a very lonely and scary place. It’s just you and the other guy.
+ - I speak African. I can even speak Italian.
+ - Color harmony was thrown out years ago, as restrictive chains were broken forming my free style.
+ - I am just working on staying alive.
+ - From my sketch files I’ll find a pose that shows the emotion behind a particular character’s story.
+ - It’s like a kettle. If it’s a kettle, you turn the kettle off, you know what I mean? I wish I could put a hole in my head and let the steam come out. The steam was getting so high and the pressure was just getting a little bit much for me.
+ - I still believe in marriage.
+ - I like going to the gym every day.
+ - I try and maintain a little bit of fitness, man.
+ - I don’t normally watch myself on the telly.
+ - When I came into boxing, I brought it to the next level with adverts and doing pantomime and people just got jealous of me doing that.
+ - I usually have a title in mind before I start.
+ - I chose faces and figures as my subject matter simply due to the fact that the human form is already beautiful art.
+ - We’re not cameras, we’re artists.
+ - I wouldn’t mind getting emotionally involved with a woman.
+ - I usually use quick sketches that I accumulated from the figure drawing classes I once instructed.
+ - When you’re a man you try and be macho.
+ - Strong line quality, composition and form are more crucial although even this is loosely done.
+ - I ain’t got no right to judge someone.
+ - Boxing is a buzz, but I went into it to make a living. I wasn’t going to go into the ring and get punched in the head for the fun of it.
+ - Boxing’s all about getting the job done as quickly as possible, whether it takes 10 or 15 or 20 rounds.
+ - I still get invitations from all over Europe to speak at dinners, and it’s an honour that promoters and charities can use me to create income.
+ - The colors I use may clash or vibrate against one another but this is done intentionally.
+ - My head has got regrets, but I haven’t.
+ - And I want to say anything is possible. Comma. You know.
+ - The most important thing taught to my students is to not be so photo realist in what they depict.
+ - My trainer, George Francis, used to train a lot of African boxers. They’re hungry guys, man. They’ve got no trainers, got nothing. They’re so hungry to do boxing, to make some money.
+ - Instead of using brushes all the time, try a palette knife to paint.
+
+42 quotes

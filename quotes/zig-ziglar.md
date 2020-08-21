@@ -1,0 +1,502 @@
+ - You don’t have to be great to start, but you have to start to be great.
+ - Success occurs when opportunity meets preparation.
+ - You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win.
+ - Lack of direction, not lack of time, is the problem. We all have twenty-four hour days.
+ - Motivation gets you going and habit gets you there.
+ - People often say that motivation doesn’t last. Well, neither does bathing. That’s why we recommend it daily.
+ - Make today worth remembering.
+ - Difficult roads often lead to beautiful destinations. The best is yet to come.
+ - Attitude, not aptitude, determines altitude.
+ - When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there.
+ - If you aim at nothing, you will hit it every time.
+ - There are no traffic jams on the extra mile.
+ - When you are tough on yourself, life is going to be infinitely easier on you.
+ - Go as far as you can see and you will see further.
+ - Don't be distracted by criticism. Remember: the only taste of success some people have is when they take a bite out of you.
+ - F-E-A-R has two meanings: ‘Forget Everything And Run’ or ‘Face Everything And Rise.’ The choice is yours.
+ - Failure is an event, not a person.
+ - Outstanding people have one thing in common: an absolute sense of mission.
+ - The more you are grateful for what you have the more you will have to be grateful for.
+ - You are what you are and you are where you are because of what has gone into your mind. You change what you are and you change where you are by changing what goes into your mind.
+ - Until you are happy with who you are, you will never be happy with what you have.
+ - Rich people have small TVs and big libraries, and poor people have small libraries and big TVs.
+ - Positive thinking will let you do everything better than negative thinking will.
+ - Ability can take you to the top, but it takes character to keep you there.
+ - What you get by achieving your goals is not as important as what you become by achieving your goals.
+ - The chief cause of failure and unhappiness is trading what you want most for what you want right now.
+ - It was character that got us out of bed, commitment that moved us into action and discipline that enabled us to follow through.
+ - Life is a classroom. Only those who are willing to be lifelong learners will move to the head of the class.
+ - The most important persuasion tool you have in your entire arsenal is integrity.
+ - It’s not how far you fall, but how high you bounce that counts.
+ - You can have everything in life that you want if you just give enough other people what they want.
+ - Among the things you can give and still keep are your word, a smile, and a grateful heart.
+ - I believe success is achieved by ordinary people with extraordinary determination.
+ - Success is not a destination, it’s a journey.
+ - There is no elevator to success, you have to take the stairs.
+ - If you go out looking for friends, you’re going to find they are very scarce. If you go out to be a friend, you’ll find them everywhere.
+ - A lot of people have gone further than they thought they could because someone else thought they could.
+ - Confidence is going after Moby Dick in a rowboat and taking the tartar sauce with you.
+ - You don’t build a business – you build people – and then people build the business.
+ - If people like you they’ll listen to you, but if they trust you they’ll do business with you.
+ - When you focus on problems, you get more problems. When you focus on possibilities, you have more opportunities.
+ - It’s not going to be easy, it’s going to be worth it.
+ - Repetition is the mother of learning, the father of action, which makes it the architect of accomplishment.
+ - Life is an echo. What you send out comes back. What you sow, you reap. What you give, you get. What you see in others, exists in you.
+ - Be strong, but not rude; Be kind, but not weak; Be bold, but not bully; Be humble, but not timid; Be proud, but not arrogant.
+ - If you learn from defeat, you haven't really lost.
+ - You are free to choose, but the choices you make today will determine what you have, be, and do in the tomorrow of your life.
+ - You can’t hit a target you cannot see, and you cannot see a target you do not have.
+ - It’s not where you start but where you finish that counts.
+ - Always remember that your present situation is not your final destination. The best is yet to come.
+ - Your life is a result of the choices you have made. If you don’t like your life, start making better choices.
+ - A good life is when you assume nothing, do more, smile often, dream big, laugh a lot and realize how blessed you are for what you have.
+ - Do it, and then you will feel motivated to do it.
+ - Expect the best. Prepare for the worst. Capitalize on what comes.
+ - A positive attitude will have positive results because attitudes are contagious.
+ - Stop selling. Start helping.
+ - Discipline yourself to do the things you need to do when you need to do them, and the day will come when you will be able to do the things you want to do when you want to do them!
+ - You can’t climb uphill by thinking downhill thoughts.
+ - We miss 100 percent of the sales we don’t ask for.
+ - A goal properly set is halfway reached.
+ - You are the most influential person you will talk to all day.
+ - Honesty and integrity are absolutely essential for success in life – all areas of life. The really good news is that anyone can develop both honesty and integrity.
+ - A clear rejection is always better than a fake promise.
+ - Don’t judge me by my past. I don’t live there anymore.
+ - When we do more than we are paid to do, eventually we will be paid more for what we do.
+ - Surround yourself with those who see greatness within you, even when you don’t see it yourself!
+ - Doubts kill more dreams than failure ever will. Fear is faith in reverse. Fear creates doubt. Replace your fears with faith and your doubts with determination.
+ - Success is in the details.
+ - Setting goals helps bring your future into your present and the present is the only time we can take action.
+ - Failure doesn’t come from falling down, failure comes from not getting up.
+ - Every sale has five basic obstacles: no need, no money, no hurry, no desire, no trust.
+ - Each failure brings you one step closer to success.
+ - Look Back in forgiveness, forward in hope, down in compassion and up in gratitude.
+ - When you make a mistake, be excited! Analyze what happened, and learn from it.
+ - If you will be hard on yourself, life will be easy on you. But if you insist upon being easy on yourself, life is going to be very hard on you.
+ - What you feed your mind determines your appetite.
+ - When we change the input into our minds, we change the output into our lives.
+ - Our daily objectives should include an honest effort to improve on yesterday.
+ - When you have passion for something you find a way to make it happen – this is the panacea to success.
+ - Make failure your teacher, not your undertaker.
+ - Success comes in cans, failure comes in can’ts.
+ - God will take care of what you go through. You take care of how you go through it.
+ - You don’t drown by falling in water. You only drown if you stay there.
+ - Don’t become a wandering generality. Be a meaningful specific.
+ - After every mistake, we need to understand that we can look back and learn-so that we can move forward with confidence and avoid making the same mistake again.
+ - There is no such thing as a lazy person; he is either sick or uninspired.
+ - Failure is a detour, not a dead-end street.
+ - You can start where you are with what you’ve got and go wherever it is you want to go.
+ - Honesty and integrity are by far the most important assets of an entrepreneur.
+ - Statistics suggest that when customers complain, business owners and managers ought to get excited about it. The complaining customer represents a huge opportunity for more business.
+ - Many marriages would be better if the husband and wife clearly understood that they’re on the same side. 
+ - You already have every characteristic necessary for success if you recognize, claim, develop and use them.
+ - If you are always racing to the next moment, what happens to the one you’re in.
+ - Stop being afraid of what could go wrong and Start being positive about what could go right.
+ - Have an attitude of gratidude and you will have more to be grateful for; have a complaining spirit and you will attract more to complain about.
+ - When you make people feel important, you’re going to be ahead of the game.
+ - When your image improves, your performance improves.
+ - A goal casually set and lightly taken is freely abandoned at the first obstacle.
+ - I have too many flaws to be perfect. But i have too many blessings to be ungrateful.
+ - Time well spent results in more money to spend, more money to save, and more time to vacation.
+ - The best way to raise positive children in a negative world is to have positive parents who love them unconditionally and serve as excellent role models.
+ - Our children are our only hope for the future, but we are their only hope for their present and their future.
+ - What defines us is how well we rise after we fall.
+ - Making a big life change is pretty scary. But know what’s even scarier? Regret.
+ - Speak in such a way that others love to listen to you. Listen in such a way that others love to speak to you.
+ - If you want to achieve your goals, help others achieve theirs.
+ - In many ways, effective communication begins with mutual respect, communication that inspires, encourages others to do their best.
+ - The most destitute person in the world is the one without a smile.
+ - Most people stand on the dock of life waiting for their ship to come in when deep down inside they know it has never left port.
+ - Never blame anyone in your life. Good people give you happiness. Bad people give you experience. Worst people give you a lesson. And best people give you memories.
+ - I opened two gifts this morning. They were my eyes.
+ - This morning did you wake up to an alarm clock or an opportunity clock?
+ - Don’t give up just because of what someone said. Use it as motivation to push harder.
+ - Life is an echo. What you send out comes back.
+ - Don’t let someone who gave up on their dreams talk you out of going after yours.
+ - Your input determines your outlook. Your outlook determines your output, and your output determines your future.
+ - Selling is essentially transference of feeling.
+ - Today be thankful and think how rich you are. Your family is priceless, your time is gold and your health is wealth.
+ - Life is about balance. Be kind, but don’t let people abuse you. Trust, but don’t be deceived. Be content, but never stop improving yourself.
+ - When the outlook isn’t good, try the uplook – it’s always good!
+ - The foundation stones for a balanced success are honesty, character, integrity, faith, love and loyalty.
+ - Integrity gives you real freedom because you have nothing to fear since you have nothing to hide.
+ - Beautiful things happen in your life when you distance yourself from the negative things.
+ - People don’t buy for logical reasons. They buy for emotional reasons.
+ - Promote what you love instead of bashing what you hate.
+ - For every sale you miss because you’re too enthusiastic, you will miss a hundred because you’re not enthusiastic enough.
+ - We build our character from the bricks of habit we pile up day by day.
+ - Don’t start your day with broken pieces of the past. Yesterday ended last night. Today is a brand new day and it’s yours.
+ - We cannot start over, but we can begin now, and make a new beginning.
+ - Feed your mind with the good, the clean, the pure, the powerful, and the positive.
+ - Motivation gets you going and habit gets you there. Make motivation a habit and you will get there more quickly and have more fun on the trip.
+ - It’s not what happens to you that determines how far you will go in life; it is how you handle what happens to you.
+ - Don’t wait until you feel like taking positive action. Take the action and then you will feel like doing it.
+ - The first step to getting what you want is to have the courage to get rid of what you don’t.
+ - I have always said that everyone is in sales. Maybe you don’t hold the title of salesperson, but if the business you are in requires you to deal with people, you, my friend, are in sales.
+ - Goals are dreams we convert to plans and take action to fulfill.
+ - The real opportunity for success lies within the person and not in the job.
+ - If you don’t see yourself as a winner, then you cannot perform as a winner.
+ - When the wrong people leave your life, the right things start to happen.
+ - Don’t let the mistakes and disappointments of the past control and direct your future.
+ - If you believe your product or service can fulfill a true need, it’s your moral obligation to sell it.
+ - Motivation is like bathing. You’ve got to do it every single day.
+ - What you do today can change all the tomorrow’s of your life.
+ - God created man on purpose, and for a purpose.
+ - Trust is the byproduct of integrity.
+ - Successful people use their strength by recognizing, developing, and utilizing the talents of others.
+ - Will what I am about to do, bring me closer to, or take me further from my goals?
+ - The first step in solving a problem is to recognize that it does exist.
+ - Where you start is not as important as where you finish.
+ - If you don’t have daily objectives, you qualify as a dreamer.
+ - Try to look at your weakness and convert it into your strength. That’s success.
+ - Motivation is the fuel, necessary to keep the human engine running.
+ - There is a difference between standard of living and quality of life. Quality of life is more important.
+ - When you look at the possibilities instead of the problems, the future is filled with endless opportunities.
+ - Good values are easier caught than taught.
+ - If you want to reach a goal, you must ‘see the reaching’ in your own mind before you actually arrive at your goal.
+ - Every day is a good day, and if you don’t believe me, just try missing one of them.
+ - Success Procedure: Run your day by the clock and your life with a vision.
+ - Live in such a way that if someone should speak badly of you, no one would believe it.
+ - A true leader produces more leaders.
+ - When you change your thinking, you change actions, when you change your action you change your future.
+ - Success is the maximum utilization of the ability that you have.
+ - Simple smile, a cheerful hello or a word of encouragement It’s amazing what an impact you will have.
+ - When you have nothing to hide you have nothing to fear. When you do the right things in the right way you have nothing to lose because you have nothing to fear.
+ - People do not wander around and then find themselves at the top of Mount Everest.
+ - The greatest source of happiness is the ability to be grateful at all times.
+ - It is true that integrity alone won’t make you a leader, but without integrity you will never be one.
+ - Happiness is not something you find, but rather something you create.
+ - Most of the problems in life are because of two reasons, we act without thinking or we keep thinking without acting.
+ - You do not determine your success by comparing yourself to others, rather you determine your success by comparing your accomplishments to your capabilities.
+ - Every obnoxious act is a cry for help.
+ - True joy comes when you inspire, encourage, and guide someone else on a path that benefits him or her.
+ - Part of your purpose in life is to build strong and fruitful relationships with others, and your work setting is a perfect place to start.
+ - When you catch a glimpse of your potential, that’s when passion is born.
+ - If you love to read, you can learn anything you really want to know.
+ - Getting knocked down in life is a given. Getting up and moving forward is a choice.
+ - A good relationship is when someone accepts your past, supports your present and encourages your future.
+ - The choice to have a great attitude is something that nobody or no circumstance can take from you.
+ - A healthy mind breeds a healthy body and visa versa!
+ - Winning is not everything, but the effort to win is.
+ - With integrity you have nothing to fear, since you have nothing to hide. With integrity you will do the right thing, so you will have no guilt. With fear and guilt removed you are free to be and do your best.
+ - Ability is important in our quest for success, but dependability is critical.
+ - The top salesperson in the organization probably missed more sales than 90% of the sales people on the team, but they also made more calls than the others made.
+ - In the blink of an eye everything can change. So forgive often and love with all your heart. You may not have that chance again.
+ - To respond is positive, to react is negative.
+ - Dont count the things you do, do the things that count.
+ - Money isn’t the most important thing in life, but it’s reasonably close to oxygen on the ‘gotta have it’ scale.
+ - A second chance doesn’t mean anything if you haven’t learned from your first mistake.
+ - You build a better company by building better people.
+ - Happiness is not pleasure, it is victory.
+ - Individuals score points, but teams win games.
+ - Success is one thing you can’t pay for. You buy it on the installment plan and make payments everyday.
+ - Put all excuses aside and remember this: YOU are capable.
+ - Responsibility and commitment are key elements in meeting obligations.
+ - The only thing worse than losing an employee you have trained is keeping an employee you haven’t trained.
+ - Today I will be a successful sales professional, and I will learn something today that will make me even more professional tomorrow.
+ - You are the only person on earth who can use your ability.
+ - Of course motivation is not permanent. But then, neither is bathing; but it is something you should do on a regular basis.
+ - If we do not feel grateful for what we already have, what makes us think we’d be happy with more.
+ - Our favorite attitude should be gratitude.
+ - Timid salesmen have skinny kids.
+ - Happiness is the ability to move forward, knowing the future will be better than the past.
+ - It’s not the situation, but whether we react, or respond, to the situation that’s important.
+ - Some people find fault like there is a reward for it.
+ - Success and happiness are not matters of chance but choice.
+ - Things don’t just happen, people make them happen.
+ - When you make a promise, keep it.
+ - The greatest of all mistakes is to do nothing because you think you can only do a little.
+ - Unless you have a definite, precise, clearly set goals, you are not going to realize the maximum potential that lies within you.
+ - Others can stop you temporarily – you are the only one who can do it permanently.
+ - If you don’t plan your time, someone else will help you waste it.
+ - Ambition, fueled by compassion, wisdom and integrity, is a powerful force for good that will turn the wheels of industry and open the doors of opportunity for you and countless others.
+ - Motivation is the spark that lights the fire of knowledge and fuels the engine of accomplishment, it maximizes and maintains momentum.
+ - To get what you want help others get what they want.
+ - It’s easier to explain price once than to apologize for quality forever.
+ - Most people who fail in their dream fail not from lack of ability but from lack of commitment.
+ - You might occasionally feel that some people are standing in the way and slowing your progress, but in reality the biggest person standing in your way is you. Others can stop you temporarily – you are the only one who can do it permanently.
+ - God never shuts one door without opening a bigger better door. Hang in there. You are closer to success than you may think.
+ - You can disagree without being disagreeable.
+ - Hope is the power that gives a person the confidence to step out and try.
+ - Every choice you make has an end result.
+ - While 9-5 and what happens on the job is important, what happens from 5-9, off the job, is infinitely more important.
+ - Your life can’t go according to plan if you have no plan.
+ - Failure is an event, never a person; an attitude, not an outcome; a temporary inconvenience; a stepping stone. Our response to it determines just how helpful it can be.
+ - Whatever happens, do not lose hold of the two main ropes of life – hope and faith.
+ - Money will buy you a bed, but not a good night’s sleep, a house but not a home, a companion but not a friend.
+ - Is your fear of failure greater than your desire to succeed?
+ - Man was designed for accomplishment, engineered for success, and endowed with the seeds of greatness.
+ - If standard of living is your major objective, quality of life almost never improves, but if quality of life is your number one objective, your standard of living almost always improves.
+ - You gotta have goals!
+ - In your hands you hold the seeds of failure or the potential for greatness. Your hands are capable, but they must be used and for the right things to reap the rewards you are capable of attaining. The choice is yours.
+ - Of all the ‘attitudes’ we can acquire, surely the attitude of gratitude is the most important and by far the most life-changing.
+ - Though I am not always responsible for what happens to me, I am responsible for how I handle what happens to me.
+ - I read the paper every day and the Bible every day; that way I know what both sides are up to.
+ - The height of your success is determined by the depth of your belief.
+ - If you haven’t met Satan face to face, it’s because you are running in the same direction.
+ - The real test in golf and in life is not in keeping out of the rough, but in getting out after you are in.
+ - Regardless of your lot in life, you can build something beautiful on it.
+ - Motivation is like taking a bath; If you stop doing it, you begin to stink!
+ - Be grateful for what you have and stop complaining – it bores everybody else, does you no good and doesn’t solve any problems!
+ - There is power in words. What you say is what you get.
+ - You know that he who would be the greatest among you must become the servant of all.
+ - Give the world your best and you will get the best out of the world.
+ - A pleasing personality helps you win friends and influence people. Add character to that formula, and keep those friends and maintain that influence.
+ - The price of success is much lower than the price of failure.
+ - I believe that being successful means having a balance of success stories across the many areas of your life. You can’t truly be considered successful in your business life if your home life is in shambles.
+ - We need to understand the difference between discipline and punishment. Punishment is what you do to someone; discipline is what you do for someone.
+ - The definition of success is getting many of the things money can buy and all the things money can’t buy.
+ - Encouragement is the fuel on which hope runs.
+ - You never know when one act, or one word of encouragement can change a life forever.
+ - God’s way is still the best way.
+ - You can get everything money will buy without a lick of character, but you can’t get any of the things money won’t buy: happiness, joy, peace of mind, winning relationships, etc., without character.
+ - Too many people spend more time planning how to get the job than on how to become productive and successful in that job.
+ - You have made some mistakes and you may not be where you want to be, but that has nothing to do with your future.
+ - Circumstances don’t create character. They reveal character.
+ - You need a plan to build a house. To build a life, it is even more important to have a plan or goal.
+ - The profile of a wealthy person is this hard work, perseverance, and most of all, self-discipline.
+ - Take time to be quiet.
+ - Create a life you can’t wait to live.
+ - You must manage yourself before you can lead someone else.
+ - It is easy to get to the top after you get through the crowd at the bottom.
+ - Profitability comes from loyalty, productivity, and having a character base from which to work.
+ - Encouragement and hope are the two most powerful qualities any person can provide to others.
+ - The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting.
+ - If you wait until all the lights are ‘green’ before you leave home, you’ll never get started on your trip to the top.
+ - Fear is the darkroom where negatives are developed.
+ - Always do the right thing, always be exciting, always be encouraging, and always be learning something new.
+ - You never judge a day by the weather!
+ - Be firm on principle but flexible on method.
+ - Only men of character are trusted.
+ - It’s not where you start or even what happens to you along the way that’s important. What is important is that you persevere and never give up on yourself.
+ - As you head toward your goals, be prepared to make some slight adjustments to your course. You don’t change your decision to go – you do change your direction to get there.
+ - Keep trying. It’s only from the valley that the mountain seems high.
+ - You can’t climb a smooth mountain.
+ - I don’t care how much power, brilliance or energy you have, if you don’t harness it and focus it on a specific target, and hold it there you’re never going to accomplish as much as your ability warrants.
+ - First, say to yourself what you would be; then do what you have to do. Life is a grindstone. Whether it wears you down or polishes you up depends on what YOU are made of.
+ - Your business is never really good or bad ‘out there.’ Your business is either good or bad right between your own two ears.
+ - You cannot climb the ladder of success dressed in the costume of failure.
+ - The way you look on the outside has a definite bearing on how you feel and see yourself on the inside.
+ - Your mind doesn’t know the difference between reality and fantasy. Your mindacts on what you feed it. Feed it good thoughts.
+ - The main reason for people’s lack of success is their willingness to give up what they want most of all, for what they want right now!
+ - Rather than shrinking away from your problems, grow bigger than them.
+ - Once you have accepted yourself, it’s so much easier to accept other people and their points of view.
+ - Today is the tomorrow you were optimistic about yesterday. What are you doing today to make tomorrow as rewarding as you had hoped today would be?
+ - Evidence is conclusive that your self-talk has a direct bearing on your performance.
+ - The problem is not getting rid of fear, but using it properly.
+ - You build a successful career, regardless of your field of endeavor, by the dozens of little things you do on and off the job.
+ - When you put faith, hope and love together, you can raise positive kids in a negative world.
+ - Some of us learn from other people’s mistakes and the rest of us have to be other people.
+ - If you’re sincere, praise is effective. If you’re insincere, it’s manipulative.
+ - You don’t pay the price for success, you enjoy the benefits of success.
+ - When our goals are clearly defined and intelligently set, you have, in essence, taken a major step toward programming your left brain. That frees your right brain to be its creative best.
+ - If there were no Love, there’d be no grief.
+ - Quit counting time and start making time count.
+ - A sincere compliment is one of the most effective tools to teach and motivate others.
+ - There has never been a statue erected to honor a critic.
+ - Regardless of your past, your tomorrow is a clean slate.
+ - Your success and happiness start with you.
+ - You plus God equals enough.
+ - Desire is what takes the hot water of mediocrity and turns it into the steam of outstanding success.
+ - When you set goals, something inside of you starts saying, “Let’s go, let’s go,” and ceilings start to move up.
+ - Forgiveness takes the burden of hate, guilt, and bitterness off your back and, with a lighter load, you can climb higher and faster, and be much happier in the process.
+ - Those who won’t take a chance don’t have a chance.
+ - A positive attitude and personal motivation allow you to remain excited about what you are doing – no matter how difficult the challenges may be day to day.
+ - Since belief determines behavior, doesn’t it make sense that we should be teaching ethical, moral values in every home and in every school in America?
+ - True success has more components than one sentence or idea can contain.
+ - Life is a ladder, it’s not a bed.
+ - Obviously, there is little you can learn from doing nothing.
+ - If you believe in yourself and have passion, you can succeed.
+ - Desire is the Mother of Motivation because that is where Motivation is born.
+ - It’s not what you’ve got, it’s what you use that makes a difference.
+ - Miserable people focus on what they hate about their life. Happy people focus on what they love about their life.
+ - It’s impossible to consistently behave in a manner inconsistent with how we see ourselves. We can do very few things in a positive way if we feel negative about ourselves.
+ - Remember, you can earn more money, but when time is spent it is gone forever.
+ - When you choose to be pleasant and positive in the way you treat others, you have also chosen, in most cases, how you are going to be treated by others.
+ - The basic goal-reaching principle is to understand that you go as far as you can see, and when you get there you will always be able to see farther.
+ - Surround yourself with optimistic people.
+ - Making the family a top priority will invariably bring success.
+ - How you see your future is much more important that what has happened in your past.
+ - I move forward in my life every day, even if it’s only a tiny step, because I know that great things are accomplished with tiny moves, but nothing is accomplished by standing still.
+ - You cannot tailor-make the situations in life but you can tailor-make the attitudes to fit those situations.
+ - Failure is often the line of least persistence.
+ - Just saying you are better than good won’t make it so. But, when you understand what it takes to live the better than good life, and you apply yourself, your life will truly be better than good.
+ - The only way to coast is downhill.
+ - Far too many people make promises they can never keep. They may have the best intentions in the world to keep their promise-but if they have not made a plan to keep it, they will not be able to do it.
+ - You will never find a truly happy self-centered person. They simply don’t exist.
+ - Nothing is more inspiring than a person with seemingly mediocre talent rising against the odds to become a champion by way of hard work, effort, and perseverance toward their goals.
+ - Life is too short to spend your precious time trying to convince the person who wants to live in gloom and doom otherwise.
+ - The best thing a parent can do for a child is to love his or her spouse.
+ - Duty makes us do things well, but love makes us do them beautifully.
+ - Faith is your reaction to God’s ability.
+ - Make finding the good in others a priority.
+ - Life really is like a grindstone, in that it will either grind you down or polish you up.
+ - Kids go where there is excitement. They stay where there is love.
+ - We all prospect, and don’t even know we’re doing it. When you start the dating process, you are actually prospecting for the person you want to marry. When you’re interviewing employees, you are prospecting for someone who will best fit your needs.
+ - Goals are the links in the chain that connect activity to accomplishment.
+ - Research indicates that workers have three prime needs: Interesting work, recognition for doing a good job, and being let in on things that are going on in the company.
+ - To raise positive kids, we as parents must identify the qualities necessary for success, convince our children that they have the potential for success, and show them how to stake their claims in life.
+ - We are Physical, Mental and Spiritual beings. If you don’t deal with ALL OF LIFE you’re not going to get all that life has to offer.
+ - Everything that occurs teaches and prepares you for the next stage of life. Nothing is lost.
+ - Whether you respond to life or react to life determines how far you’re gonna go in life.
+ - Fewer people are bent from hard work than are crooked from avoiding it.
+ - A narrow mind and a fat head invariably come on the same person.
+ - With children Love is spelled TIME.
+ - Many people spend more time in planning the wedding than they do in planning the marriage.
+ - The door to a balanced success opens widest on the hinges of hope and encouragement.
+ - Knowledge has the power to help us avoid making bad choices that produce bad results.
+ - The pages of your past cannot be rewritten, but the pages of your tomorrows are blank.
+ - Everyone knows what a hypocrite is. That’s the guy who gripes about the sex, violence and nudity on his VCR.
+ - The complaining customer represents a huge opportunity for more business.
+ - People who build hope into their own lives and who share hope with others become powerful people.
+ - If you don’t like who you are and where you are, don’t worry about it because you’re not stuck either with who you are or where you are. You can grow. You can change. You can be more than you are.
+ - To build your self image, you need to join the smile, firm handshake and compliment club.
+ - If we grow weary and give up, the goal remains for someone else to achieve.
+ - When you turn to God you discover He has been facing you all the time.
+ - The way you see your future determines your thinking today. You’re thinking today determines your performance today. Your performance in the today of your life determines your future.
+ - Chance made us sisters. Hearts made us friends.
+ - Success means doing the best we can with what we have.
+ - You can never get ahead by trying to get even.
+ - Motivation fuels the attitude that builds the Confidence necessary to sustain the Persistence.
+ - Sometimes adversity is what you need to face in order to become successful.
+ - When we can identify a problem and face the problem with confidence and enthusiasm, the solution is on the way.
+ - When a company or an individual compromises one time, whether it’s on price or principle, the next compromise is right around the corner.
+ - Success is like a ladder and no one has ever climbed a ladder with their hands in their pockets.
+ - Don’t listen to people who tell you what to do. Listen people who encourage you to do what’s right in your heart.
+ - Look at the bright side no matter how old you are, you are younger than you’ll ever be again.
+ - Did you know that every human being is created with a purpose and that they have a responsibility to not only discover their purpose but also to fulfill it?
+ - Kids don’t make up 100 percent of our population, but they do make up 100 percent of our future.
+ - Your thinking today determines your performance today.
+ - Ask yourself a question: Is my attitude worth catching?
+ - God sees everything at once and knows what you are called to do. Our part is not to play God, but to trust God – to believe that our single, solitary life can make a difference.
+ - The hardening of the attitudes is the most deadly disease on the face of the earth.
+ - A smile is your greatest social asset.
+ - It takes energy, mental toughness and spiritual reinforcement to successfully deal with life’s opportunities, and to reach your objectives.
+ - My core philosophy on winning and motivation is summed up by saying that you were born to win, but in order to be the winner you were born to be, you have to plan to win and prepare to win before you can expect to win.
+ - To be candid, some people have given positive thinking a bad name. I can’t stand to hear some gung-ho individual say that with positive thinking you can just do ‘anything.’ If you think about that one for a moment, you recognize the absurdity of it.
+ - If you pump casually, you will pump forever. Pump hard to begin with and keep it up until you get that water flowing. Then a great deal will happen.
+ - Boats in the harbor are safe but that is not what they are meant for.
+ - You never know when a moment and a few sincere words can have an impact on a life.
+ - You are a success when you have made friends with your past, are focused on the present, and are optimistic about your future.
+ - Success is a personal standard, reaching for the highest that is in us, becoming all that we can be.
+ - Are you a SNIOP? Someone who is Sensitive to the Negative Influence Of Others?
+ - Success is not a destination: It is a journey. The happiest people I know are those who are busy working toward specific objectives. The most bored and miserable people I know are those who are drifting along with no worthwhile objectives in mind.
+ - People who won’t take step number one never take step number two.
+ - All you need to find and accomplish God’s purpose in your life is God’s permission and approval – not anyone else’s. When you get in step with Him, there will be a glow on your face that will make people wonder what you’re up to.
+ - It is good from time to time to recall all those big and little reasons why you wanted to quit smoking in the first place. Reading this blog once in a while might also be helpful.
+ - By the mile it’s a trial, but by the inch it’s a cinch.
+ - Each close you use should be an educational process by which you are able to raise the value in the prospect’s mind.
+ - The greatest single cause of a poor self-image is the absence of unconditional love.
+ - Success is not measured by what you do compared to what somebody else does. Success is measured by what you do compared to what you are capable of doing.
+ - When you break goal into increment and start controlling your time, things begin to happen.
+ - When we clearly understand that there is no superior sex or superior race, we will have opened the door of communication and laid the foundation for building winning relationships with all people in this global world of ours.
+ - Before a person can achieve the kind of life he wants, he must think, act, walk, talk and conduct himself in all of his affairs as would the person he wishes to become.
+ - You’ll never see a happy ungrateful person.
+ - The best time to do something significant is between yesterday and tomorrow.
+ - As long as you can laugh at you, it won’t bother you when others laugh at you.
+ - Every person has unique gifts, and those gifts give him or her the power and the opportunity to accomplish great things, if he or she learns how to use those gifts and channel them in the right direction.
+ - A child is born to win, but too many have been conditioned to lose.
+ - You can finish school, and even make it easy – but you never finish your education, and it’s seldom easy.
+ - Possibly the greatest waste in life is the gap between what you are and what you could become.
+ - Success comes from repeated efforts day in and day out. You learn from your mistakes, make adjustments and continue pressing forward until you achieve the results you desire.
+ - What you picture in your mind, your mind will go to work to accomplish. When you change your pictures you automatically change your performance.
+ - Wherever you are there you are!
+ - Whether it’s eight o’clock in the morning or eight o’clock at night, I always try to greet others before they have a chance to speak to me.
+ - It’s just as difficult to reach a destination you don’t have, as it is to come back from a place you’ve never been.
+ - By altering our attitudes we can alter our lives.
+ - When you give a man a dole you deny him his dignity, and when you deny him his dignity you rob him his destiny.
+ - Your faith is very important. I have done the math, and you are going to be dead a whole lot longer that you will be alive.
+ - If you have the character to hang in there when its tough, you will develop or acquire every other characteristic necessary to WIN in the game of life.
+ - The only way to reach the mountain peaks of life is to forget about self and help other people reach greater heights.
+ - Little men with little minds and little imaginations go through life in little ruts, smugly resisting all changes which would jar their little worlds.
+ - Say “no” to the good and say “yes” to the best.
+ - When you’re grieving that’s not the time to be brave or strong, you need to let it show.
+ - When your confidence goes up, your competence goes up the same time.
+ - The key ingredient in family communication is listening, really listening.
+ - Far too many people have no idea of what they can do because all they have been told is what they can’t do. They don’t know what they want because they don’t know what’s available for them.
+ - Even in tragedy, God through His Word offers hope for those who seek and believe. It starts with the promise of a better tomorrow, of life everlasting, of eternal peace. It’s called faith, and it offers hope where none existed.
+ - Any relationship primarily built on physical attractiveness is predestined to be short lived.
+ - Never make a promise without a plan.
+ - Effort is the key, but direction and loyalty are paramount.
+ - You measure success by how much good you do for others.
+ - Dreams grow if you grow.
+ - When you encourage others, you, in the process, are encouraged because you’re making a commitment and difference in that person’s life. Encouragement really does make a difference.
+ - Success is like pumping an old well handle. You have to pump a very long time before you get water. But don’t give up or you will have to start all over again.
+ - You cannot achieve someone else’s goals.
+ - Children pay more attention to what you do than to what you say.
+ - Most of us would be upset if we were accused of being “silly.” But the word “silly” comes from the old English word “selig,” and its literal definition is “to be blessed, happy, healthy and prosperous.”
+ - Concentrated thoughts produce desired results.
+ - A lot of people quit looking for work as soon as they find a job.
+ - The way you see people is the way you treat them.
+ - Success must never be measured by how much money you have.
+ - There’s never been a doctor who served many patients who, despite their best efforts, did not lose some of them to death. But they understood that was part of life itself.
+ - It’s true, spectacular preparation always precedes spectacular performance.
+ - When someone we love is having difficulty and is giving us a bad time, it’s better to explore the cause than to criticize the action.
+ - As youngsters, my mother taught her children that while we might not be the smartest people around, we could be courteous, polite and considerate of others.
+ - It is impossible to go as high as you are capable of going, if you are carrying the burden of hate, revenge and bitterness.
+ - No person ever ended his eyesight by looking on the bright side.
+ - One of the greatest disasters of our time is our universal acceptance of the word “tolerance” as a great virtue.
+ - Being productive gives people a sense of satisfaction and fulfillment that loafing never can.
+ - The more you gripe about your problems, the more problems you have to gripe about!
+ - The person who dumps garbage into your mind will do you considerably more harm than the person who dumps garbage on your floor, because each load of mind garbage negatively impacts your possibilities and lowers your expectations.
+ - New research shows that you will be dead longer than you will be alive.
+ - The greatest good we can do for anyone is not to share our wealth with them, but rather to reveal their own wealth to them. It’s astonishing how much talent and ability rests inside a human being.
+ - Husbands and wives, first, be faithful to each other. Second, keep the romance going all of your life by courting each other every day.
+ - U can feed ur ego or u can feed ur family. U can’t feed them both.
+ - You cannot perform in a manner inconsistent with the way you see yourself.
+ - Every time passionate people fail, they are convinced that they are simply one step closer to fulfilling their dream.
+ - This I do know beyond any reasonable doubt. Regardless of what you are doing, if you pump long enough, hard enough and enthusiastically enough, sooner or later the effort will bring forth the reward.
+ - Time is the only commodity we deal with which cannot be counterfeited, stolen or placed in inventory. Remember, time is irreplaceable.
+ - You can only see in others what is inside of you.
+ - When you develop a game plan to get what you want, you will develop a belief that you can get it.
+ - If God would have wanted us to live in a permissive society He would have given us Ten Suggestions and not Ten Commandments.
+ - Giving is like a muscle. To be strong, you have to exercise it, and to grow as a person, giving is the exercise. You can’t really enjoy anything without sharing it.
+ - Your attitude is more important that your aptitude.
+ - Everybody says they want to be free. Take the train off the tracks and it’s free-but it can’t go anywhere.
+ - A plan is always successful if the plan is good.
+ - If there were no problems, most of us would be unemployed.
+ - In the game of life, before you get anything out, you must put something in!
+ - Lectures often confuse our kids, but the example we set is crystal clear.
+ - I’ve got to confess I’m a pragmatic optimist myself.
+ - Building a better you is the first step to building a better America.
+ - Happiness is the result of what you do.
+ - One of the ways we communicate that we can be trusted is in the way we care for other people.
+ - You cannot go higher than you think you can.
+ - Send out a cheerful, positive greeting, and most of the time you will get back a cheerful, positive greeting. It’s also true that if you send out a negative greeting, you will, in most cases, get back a negative greeting.
+ - If we don’t start, it’s certain we can’t arrive.
+ - Negative thinkers always have a negative vision.
+ - Keep your thinking right and your business will be right.
+ - The way you see life will largely determine what you get out of it.
+ - What you do off the job is determining factor in how far you will go on the job.
+ - Push on, friend. You’re just one exciting step from the banquet hall of life.
+ - When you exercise your freedom to express yourself at the lowest level, you ultimately condemn yourself to live at that level.
+ - The child who has not been disciplined with love by his little world will be disciplined, generally without love, by the big world.
+ - If your ride through life is not as smooth as you would like it to be, blaming the road may not be the answer.
+ - You cannot solve a problem until you acknowledge that you have one and accept responsibility for solving it.
+ - Isn’t it amazing how much stuff we get done the day before vacation?
+ - Obviously, raw talent is important, but the difference-maker between first and the rest of the pack is usually desire.
+ - Logic won’t change an emotion but action will.
+ - Hope is the foundational quality of all change, and encouragement is the fuel which keeps hope alive.
+ - Two sure ways to fail- Think and never do or do and never think.
+ - Remember there is plenty of room at the top-but not enough to sit down.
+ - God showed me that He could and would replace everything that was missing in my life, but that nothing could replace Him in my life.
+ - You enhance your chances for success when you understand that your yearning power is more important than your earning power.
+ - Just remember, when you should grab something, grab it; when you should let go, let go.
+ - He chooses the beginning of a road, also chooses its outcome.
+ - Nobody on the face of the earth can make you feel inferior without your permission.
+ - For 40 hours a week competition is awfully stiff but after that there’s very little competition .
+ - Courage is on display every day, and only the courageous wring the most out of life.
+ - The best way to make your spouse and children feel secure is not with big deposits in bank account, but with little deposits of thoughtfulness and affection in the ‘love account.’
+ - Success is the doing, not the getting; in the trying, not the triumph.
+ - The problem with pity parties is very few people come, and those who do don’t bring presents.
+ - If you treat your wife like a thoroughbred, you’ll never end up with a nag.
+ - Time can be an ally or an enemy. What it becomes depends entirely upon you, your goals, and your determination to use every available minute.
+ - Fortunately, problems are an everyday part of our life. Consider this: If there were no problems, most of us would be unemployed. Realistically, the more problems we have and the larger they are, the greater our value to our employer.
+ - It makes no difference where you go, there you are. And it makes no difference what you have, there’s always more to want. Until you are happy with who you are, you will never be happy because of what you have.
+ - The six people who had the biggest impact on my life were all women. Had I been sexist, my life would have been far less fulfilling.
+ - You never work for somebody else. Someone else might sign your check, but you’re the one who fills in the amount.
+ - Secrets of Closing the Sale, is essential reading. Ziglar tells us that selling and closing are not mysteries to be solved; instead they are as tangible as when his wife up-sold him on a new house.
+ - How happy you are depends to a very large degree on your relationships with other people.
+ - In your hands you hold the seeds of failure – or the potential for greatness.
+
+500 quotes

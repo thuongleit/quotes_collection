@@ -1,0 +1,162 @@
+ - There’s no such thing as addiction, there’s only things that you enjoy doing more than life.
+ - Race, Religion, Ethnic Pride, Nationalism does nothing but teach you how to hate people you have never met.
+ - Life’s temporary for a reason; it gets boring after a while.
+ - Life is like animal porn, it’s not for everyone.
+ - Tradition and heritage are all dead peoples baggage. Stop carrying it. Move forward.
+ - Did you ever try to sleep sober?
+ - I am a very mediocre intellect, at best, and I am smarter than most people I know – and that terrifies me.
+ - If I die soon, don’t ever say I died too young.
+ - When I say that asian women are beautiful it’s not a sexual thing. I’m not being degrading, I find them sexually repulsive.
+ - I have no fear of death, except I hate waiting for it.
+ - Do you ever wake up in the morning, look in the mirror and think, something’s not accurate?
+ - Separation of Church and State is the perineum of America and the episiotomy didn’t hold.
+ - Shouldn’t the long-term goal of any society be complete unemployment?
+ - What if I don’t want a leader? Where does that vote go? I do good on my own. I don’t want to be led.
+ - At least black people knew when they were slaves; you remain clueless.
+ - Charlie Chaplin said something to the effect that humor is an act of defiance, that we must laugh in the face of our helplessness in the forces of nature or go insane. And where is he now? Dead.
+ - I was terrified when my doctor told me that I had a unique and interesting personality trait, but then he told me about new Zoloft or Prozac and now I just take three pills a day and I blend right into this horrible inbred corporate landscape.
+ - If you really believe death leads to eternal bliss then why are you wearing a seatbelt?
+ - People who want to kill other people are the last people I want to party with, because I get mouthy when I drink.
+ - I drank, smoked and did drugs to get where I’m at.
+ - Life is like a movie, if you’ve sat through more than half of it and it’s sucked every second so far, it probably isn’t going to get great right at the end and make it all worthwhile. None should blame you for walking out early.
+ - Not only are the voices in your head real, but they’re accurate as well.
+ - Your instinct is your true god. Follow it.
+ - Artists who say that they’re artists: usually people who need a job.
+ - Whatever your problems are, keep in mind that you die at the end of all this. Lets get out there, brutalize ourselves and laugh at those certain pricks who take it seriously, like there is any way to win in all this.
+ - I am 42 years old and I have $9000, and I am out of ideas. I’ve nothing to spend it on. I’m bored shitless. I will die with that $9000.
+ - You never hear in the news, ‘Two hundred killed today when atheist rebels took heavy shelling from the agnostic stronghold in the north.’
+ - The Unbookables are supposed to be unbookable. That’s what it’s all about.
+ - Anything that I don’t understand or can’t do is stupid.
+ - I hate when your friends quit drinking on you, don’t you? It’s sad. I’ve lost more friends to AA than Liberace did to the virus. It’s sad to see ’em go. You see a thirty day chip on your buddy’s key ring, it’s like seeing a toe tag on his cold, stiff corpse.
+ - Boredom is a disease worse than cancer. Drugs cure it.
+ - Coward is the most misused word in our society.
+ - If you’re offended by any word in any language, it’s probably because your parents were unfit to raise a child.
+ - I’ve had six or eight hookers in my life. I never woke up the next day thinking man I’m glad I got a hooker last night.
+ - You say you hate children and people always say the same thing; it would be different if it was your own child. Well what if it wasn’t?
+ - If you tell me you are going to kill yourself, I’m not going to try to talk you out of it.
+ - I’m not a marijuana user, so I always feel kind of fraudulent. I applaud this, I do recreational drugs, but marijuana’s never one of those. People think because I talk about drugs, that I smoke pot. But I don’t.
+ - Steal my stuff off the internet wherever you can and don’t apologize. Buy the CDs and DVDs from my site and feel free to burn ’em and share ’em. Then come to the show.
+ - High definition ruined a lot of things that I used to hold sacrosanct in pornography.
+ - Excess in moderation: don’t drink a few beers every day after work, wait ’till the end of the month and drink all the beers at once.
+ - Alcohol does not make ugly people attractive. It makes it so you could care less that they’re ugly.
+ - I couldn’t be a responsible enough parent if my kid was born with a new suit and a full-time job.
+ - Complaining that a comic is drunk is like going to a titty bar and complaining because your lapdancer is a communist.
+ - Religious tolerance. No! Zero tolerance for any type of religion.
+ - My first open mic, I drank a full pitcher of beer by myself. I wasn’t afraid of being in front of people as much as, Is this funny?
+ - I go on stage, it’s like I’m leading you into battle; you are not all going to be here at the end.
+ - If you’re going to kill yourself just do me one favor: say it was because of my act. Can you do that? I need the press.
+ - I’m forty four; I’m way closer to dead than I am life of the party.
+ - So you stick something up your ass, and you hope it might work, and it usually helps.
+ - Controversial issues are always more interesting but I don’t create material about a subject I have opinion on just because it’s controversial. The most fun is having a point of view that the audience is generally against and presenting an argument that challenges their thinking.
+ - The revolution I was starting where I thought I could yell at 200 people in a bar every night and change the world didn’t quite happen.
+ - I’m pretty drunk and bored with yelling at the stone walls that are your minds.
+ - I have the kind of show that reminds you of your problems, and then I talk about other problems you didn’t even know you had until tonight.
+ - Theres a fraudulent root element of comedy in that we say things night after night as though they are rolling effortlessly from the brain and off the tongue, when in fact they are crafted over weeks and months and years.
+ - I used to be a partier, now I’m an alcoholic. It’s all in who’s judging you.
+ - The Internet has done nothing but good for comedy all around. Comedians no longer have to rely on TV execs and club owners deciding if they are funny or not.
+ - A real cop fights real crime. A vice cop’s only job is to ruin the party.
+ - The first thing I think of when I wake up is how close I am to death. But then it gets better during the day.
+ - Don’t eat a mushroom stem and see colors, eat the whole bag and see GOD.
+ - There’s times to be dainty and times to be a pig.
+ - I am a player in life, not an observer. I look at herpes the way you look at a scraped knee.
+ - Child pornography is the only crime that you cannot report to the police as an eyewitness.
+ - I’ve done coke ’til my nose was bleeding like the fourth week of Lilith Fair.
+ - Babies are like poems. They’re beautiful to their creator, but to other people, they’re silly and they’re irritating.
+ - I don’t know. Both my parents are dead. So? Wait, I got pictures of their corpses in my wallet. I had them blown up as murals. Here.
+ - It was either me or Confucius that said the journey of a thousand miles begins with a vicious ass raping at airport security.
+ - Statistical high Vegas odds probability is that nothing of any significance will ever happen to you in your entire boring life.
+ - I’ve jammed enough things up my own ass just trying to come on any amphetamine based narcotic.
+ - Your sins are what make you fantastic. It’s what makes you alive. You should wear your sins on your sleeve. You should be trying to top your sins on a daily basis.
+ - There’s only two types of people who are against drugs: the people who have never done drugs and the people who really sucked at doing drugs.
+ - I think a lot of women look at prostitutes like they’re scabs crossing an union picket line, where they go: You can’t just go out and sell it for what it’s worth, we’re holding out for so much more!
+ - If second hand smoke is killing that many people and nicotine is so addictive then why is no one addicted to second hand smoke?
+ - I love when you get boner spam for boner pills and the subject is Be a better lover. Oh, the boner was the problem on that? That’s why I’m a bad lover? Do you have a pill that’s gonna make me care if she cums? That would be a medical miracle.
+ - Democracy is the worst kind of government, I’m sorry. Would you still call yourself a Christian if they elected a new Jesus every four years?
+ - All traditions are stupid unless you came up with it yourself.
+ - I’m a bit of a potty mouth. My dad used to wash out my mouth with soap, but that was just to get rid of any traces of his DNA.
+ - If you have a good product. You don’t need to advertise. You’ve done drugs? Did you ever see them advertised?
+ - I’ll defend child pornography, how about that? What’s wrong with seeing some child pornography? What if you watch child pornography because you find it hilarious? Then should it not a protected freedom of speech?
+ - The catholic church has a lot more money than any Colombian cartel and they leave a lot more bodies in their wake.
+ - If you get offended by words – by noises we make with our mouths – it means you were raised by bad parents.
+ - Just for being a religion at all you’re as complicit as the rest in the retardation of the human intellectual progress.
+ - As long as the people who kinda wanna go kill other people are going to go kill other people who kinda wanna go kill other people, you’re killing all the right people and opening up all the best parking spaces.
+ - Canada, the drinking age is 18, that’s unnecessary. Nobody wants to get loaded around people who have hope and their whole lives still ahead of them.
+ - What ever happened to freak shows? Back in the twenties when elephant man was born at least he had a job waiting for him.
+ - Get the right to marry – and then don’t.
+ - There’s nothing funnier than getting a death threat via MySpace. Why don’t you just write it in a children’s birthday card.
+ - People want an idol. They want royalty. They don’t want a public servant. Hell no. They want someone to clap for and go, “Oh, he touched my hand at the rally!”
+ - There should be no such thing as a vice law. Every vice is only a bad habit, and the punishment is inherent in the act.
+ - I sometimes wonder if necrophiliacs are really into dead people or if they just enjoy the quiet.
+ - I love playing in the UK because there are some topics that you just can’t talk about in the States without getting run out of town. So let me just say this: Louis C. K.’s new show sucks.
+ - There’s a fine line between being a sicko and an adventurous spirit.
+ - They should raise the alcohol age to 60, so at least you’d have something to look forward to at this point.
+ - Some people just join the military because they need college money. Then they’re idiots and college wasn’t going to help.
+ - I love conspiracy theories. I used to just live on it. You know it’s all hype and garbage, but you’re still really paranoid afterwards. It’s fun entertainment.
+ - I don’t have a gun. But I think they level the playing field. I accept that there’s really nothing you can do about it. It’s like nuclear weapons; if they exist then eventually other people are going to have them. Maybe just take away people’s motivation to use them.
+ - Jesus died for your sins. I’m doing it for your mere entertainment dollar.
+ - Pot is to narcotics what herpes is to social diseases; it doesn’t count cos it’s not really dangerous and it’s too easy to get.
+ - Love is such an arbitrary thing. I love my mom. I love pancakes.
+ - Old people always tell you: ‘When you’ve been around as long I have, then you can argue.’ As soon as they’re ripped off, it’s a different story.
+ - When you come out of that pink ugly hole onto this planet you’re nothing but a gooey shrieking wrinkled ball of weakness.
+ - The Mind is everything. Do drugs. But just don’t have drugs.
+ - The whole institution of marriage itself really has no place in a progressive society.
+ - I’ve been playing the CNN Drinking Game, have you ever played that? Where you do a shot every time George Bush says the word “evil”? Oh, I’m a wreck! You gotta do a double shot every time he says “evildoers”. Chug the bottle for “axis of evil”. Are you a president or an exorcist?!
+ - I used to do boiler room telemarketing for a living, like hardcore fraud stuff that gets busted on 60 Minutes every week.
+ - America takes credit for giving you freedom that you had anyway. It’s like going to a wedding and putting your tag on somebody elses box.
+ - You should laugh everywhere you can find even the slightest glimmer of humour.
+ - You forget, when you’re in the Scandinavian countries, you forget they don’t speak English first and they speak better than I do.
+ - I’m not saying drinking is all that great but you know it’s got benefits; you can’t smoke somebody pretty.
+ - It’s our flaws who make us who we are.
+ - I need you to love me, I don’t like me, either, if that helps.
+ - Even your religious friends do not want to hear about God during a medical diagnosis.
+ - The characteristic of a well-bred man is, to converse with his inferiors without insolence, and with his superiors with respect and with ease.
+ - Courts and camps are the only places to learn the world in.
+ - One UK paper described me as a “miserablist”, a word I’d never heard before or since. I looked it up and it means someone who can only be happy when they are miserable. Perfect.
+ - If you’re in high-school and you’re not having fun, quit.
+ - People hate people just cause they want someone different to hate.
+ - My mother was always the one with the dark, really filthy sense of humor. She was a vulgar woman. She used to tell me to do comedy before I even tried it. She was always up for any gag.
+ - I drink during every show. I can’t remember the last show I did completely sober. It works for me. I use it as a tool. It’s like steroids are for athletes. I’m looser and more self-confident. If I drank less, I wouldn’t have been on stage this long.
+ - I think it’s probably much easier to do political comedy from a two-party point of view, in that the majority have some sense of what it means to be one or the other.
+ - It is a great advantage for any man to be able to talk or hear, neither ignorantly nor absurdly, upon any subject; for I have known people, who have not said one word, hear ignorantly and absurdly; it has appeared by their inattentive and unmeaning faces.
+ - Why even moon a sorority girl if they can’t see the swingy egg bag part of it?
+ - That place is so behind the times, you can’t even get AIDS there yet.
+ - You’re born absolutely free except for laws of nature, if you drink you get drunk, that’s a law, if you get old you die, that’s a law too; if you sit on a tack you will bleed from the ass, these are the only laws that you’re born with.
+ - I immediately split the crowd. I thought about coming on every night and shouting, Gay pride, white power! just to confuse people.
+ - What did you learn in school that you still use today? Go ahead teachers, tell me. What? Fear, conformity, don’t question authority...
+ - Right at the end of the big wall of vibrators, $29.95, big rubber fist. Thirty bucks! Just in time for mothers day.
+ - Before you ask for the people to rise up and take what’s theirs, meet the people, because they’re really, really, bafoons.
+ - I don’t ever want to become Bill Maher where I have to find some strong opinion on something just because it’s in the news. That’s the guy that comes off like you have to be angry every week about new topics and snotty about something. That’s what I’m trying to avoid.
+ - Drugs support terrorism? No, your SUV supports terrorism.
+ - Mutations are exciting. They try to fix ’em when they come out. Did you see the two-headed baby they killed last month when they tried to cut it apart? That was hilarious!
+ - The more business gets involved, the less fun it is.
+ - I’ve been doing a lot of drugs in the last few weeks and drinking less, and I feel much better.
+ - I’m gonna film my entire life and watch it later!
+ - I do good things in my life, too. It’s just that none of them are funny.
+ - I’m in a perfect position. I don’t want to be more famous and I can’t lose sponsors, so I can say anything I want.
+ - Everybody’s angry. They’ve got nothing to be angry at, so they’re angry about nothing.
+ - Religion is by no means a proper subject of conversation in a mixed company.
+ - Everything that is going to kill you is extremely appetizing.
+ - If you need a baby that bad, go down to the pound and get one. Not even a baby – go get an old man. There’s unwanted people of all ages, pre-made and waiting for you.
+ - Mutations are exciting, there aren’t nearly enough of them.
+ - I’m just funnier when I’m drunk. Not falling-down drunk, just drunk enough to lose the self-doubt.
+ - I had no musical or athletic ability, and I wasnt particularly good looking. Comedy was something I could do for attention.
+ - People wrestle alligators but not once has someone done it without an audience.
+ - I’d get demolitions experts to rig mother to implode like a skyscraper.
+ - I’ve never tried to drive my career in any particular direction. I’ve always been an in-the-moment, live-for-today guy. I’ve never had a goal, and nearly everything I’ve done has been an accident. I just play to me, and if I can amuse myself, I consider it a victory.
+ - There are some occasions in which a man must tell half his secret, in order to conceal the rest; but there is seldom one in which a man should tell all. Great skill is necessary to know how far to go, and where to stop.
+ - A lot of the Olympic games just boil down to genetics. Michael Phelps is genetically built to swim better than other people if he trains the same way. You might as well have a competition for who’s the tallest, and act like it’s anyone’s game!
+ - Abject flattery and indiscriminate assentation degrade, as much as indiscriminate contradiction and noisy debate disgust. But a modest assertion of one’s own opinion, and a complaisant acquiescence in other people’s, preserve dignity.
+ - The first five times that you bang someone and the last million times are two different worlds.
+ - I’m not the one-take wonder that a lot people think I am.
+ - Comedy can always be taken the wrong way. If I do a bit that is meant to diffuse racism or sexism, Im not going to avoid it on the chance that a small portion of the audience might take it the wrong way.
+ - Unfortunately this is where comedy works, where people are the most miserable.
+ - Doing stand-up takes the fun out of being funny.
+ - When I used to drive on the road from L. A., one time in Arizona we went off-road to see what weird little towns are around. Loved Bisbee.
+ - The only legitimate excuse you could have for having a baby in those dire, war torn, famine struck conditions – would be to eat it.
+ - Here’s the path to sobriety: Play the Ron Paul drinking game. Watch CNN and take a drink every time someone says his name.
+ - We have no healthcare and we have all the guns in the world, it makes you think twice before you start throwing punches in a bar.
+ - In 20 years of comedy, I’ve probably had a dozen good points.
+ - If you get made fun of working at Pier One Imports, you can’t pelt them with poop.
+ - Nothing against comedy clubs, they work. But when you’re sitting with a tablecloth and a candle and an appetizer menu, three-drink minimum, it can feel more like a dinner theater than a live experience.
+
+160 quotes

@@ -1,0 +1,72 @@
+ - Negative, I am a meat popsicle.
+ - I would say, ‘I’m alone, but I’m not lonely.’ But I was just kidding myself.
+ - I believe in justice, and I believe in people being held responsible for their actions.
+ - Art imitates life and, sometimes, life imitates art. It’s a weird combination of elements.
+ - I’m really just a regular guy who has had an incredibly blessed life.
+ - I hate government. I’m apolitical. Write that down. I’m not a Republican.
+ - Now I know what a TV dinner feels like.
+ - Look, lady I only speak two languages: English and Bad English!
+ - Everyone has a right to bear arms. If you take guns away from legal gun owners, then the only people who have guns are the bad guys.
+ - Nine million terrorists in the world and I gotta kill one with feet smaller than my sister.
+ - It doesn’t matter how many people I’ve killed. What matters is how I get along with the people who are still alive.
+ - Our marriage is like anybody’s marriage, It goes through ups and downs. It’s a little garden that you have to tend all the time. When we’re home, it’s not like we walk around all dolled up going, We are celebrities! We are famous! I change diapers. I clean up dog doo.
+ - Too many children in foster care are falling through cracks. Be a hero, take the time learn about adoption today.
+ - Your kids need your love and attention, and being able to devote myself to them is very fulfilling. As I get older, spending time with my daughters makes things much easier. You learn to put your ego aside.
+ - Hair loss is God’s way of telling me I’m human.
+ - Everybody understands that acting is a really difficult job. It’s hard work. You’ve got to get dressed up, you’ve got to hang around with beautiful women. It’s difficult. It’s a problem.
+ - Who’s driving this car, Stevie Wonder?
+ - I mean, look, I wear makeup in films. I don’t wear makeup in real life. It’s just part of the gig, that’s all.
+ - I think that there are a lot of law enforcement officers out there who work according to their own set of what is right and what is wrong. And that doesn’t always include respect for administration cops, you know, people that are higher up the food chain.
+ - I watch 2001: A Space Odyssey every time it’s on. I made the kids watch it every time, too and now they just love watching it. Stanley Kubrick’s great. And Blade Runner is one of my top three science fiction films. A lot of it has come true.
+ - I think that the “what if” game is what you guys get to do. I don’t have to do that. I hate the “what if” game. I’m such a believer in everything happening the way it’s supposed to happen.
+ - Violence – look, we live in a violent world, man. This country was founded on violence. Who’s kidding who?
+ - I had no idea Canada could be so much fun.
+ - I just have more fun when I get to try new things – and the action film genre has kind of painted itself into a corner, copied itself so many times and it has basically run out of bad buys.
+ - I hate working out. Because I work out for films now solely I come to associate it with work.
+ - What I say is what I say, I don’t always say the right thing, I don’t always say the politically correct thing. I don’t have any regrets about that.
+ - Die Hard 2 was okay. It was a little outside the template but it was okay, a hard movie to make technically. Did well at the box office. Successful.
+ - My wife heard me say I love you a thousand times, but she never once heard me say sorry.
+ - There is nothing better than strolling down the beach the way God made you.
+ - I just try to go to work, and concentrate on coming home to my girls.
+ - I’m always being accused of being a Hollywood Republican, but I’m not! I have just as many Democratic ideas as Republican ones. If they could build three fewer bombs every month and give the money to foster care, that would be great.
+ - I haven’t seen this many men dressed in women’s clothing since my bachelor party.
+ - Whether you’re a man or not comes from your heart, not how much hair you have on your head.
+ - I think I’m much more afraid of making a mistake in raising my daughters than I would be with any work that I do, as an actor. It’s a much higher scale of fear, raising kids.
+ - I wake up laughing every day. I get a kick out of life.
+ - The difference between trying to be fit and not being fit really means the difference between life and death.
+ - I got to work with Dustin Hoffman on a film called ‘Billy Bathgate.’ I got to work with Meryl Streep and Goldie Hawn and Bob Zemeckis on ‘Death Becomes Her.’ There are still a few actors out there that I would like to work with.
+ - My friends are always honest with me about films. But I really wanted to talk to regular people and kind of have a forum to interact with them; not just about films, but about everything.
+ - My favorite job is being a father. I have four girls now. They’re a captive audience.
+ - After I did the first Die Hard I said I’d never do another, same after I did the second one and the third. The whole genre was running itself into the ground.
+ - They look right. And you move left.
+ - I’m always excited to be around other actors. I sometimes only get to work with myself, and it’s so tedious. I was so excited to go to work every day, and we ran into work every day.
+ - You can kind of judge how old a film is by the size of the cell phones.
+ - There are lots of different parts of movie-making that I participate in, but my favorite part is the making of it. I’m scared, every day. I keep thinking someone’s going to throw me the ball and I’m going to go, “Oh, wow. Oh, god. I just messed that up.”
+ - Justin Timberlake is terrific in this film. I told him it’s time to stop singing.
+ - You wouldn’t want to see a movie where the bad guys triumph over the good guys all the time. You’d get bummed out, and you’d just stay at home and watch the news.
+ - Everybody, no matter how old you are, is around 24, 25 in their heart.
+ - I have just as many liberal ideas as I have conservative ideas that I argue with myself sometimes.
+ - I’m much more proud of being a father than being an actor.
+ - At 25, you’ve got millions of brain cells to kill.
+ - Every day, I work at not taking this fame thing seriously. Fortunately, I have a great group of friends who help me do this.
+ - I never think there’s any competition between films. I root for everybody’s films. I especially have a fond place in my heart for graphic novels and comics.
+ - On the one hand, we’ll never experience childbirth. On the other hand, we can open all our own jars.
+ - I had never really dated. I’ve always been a relationship kind of person.
+ - I’m staggered by the question of what it’s like to be a multimilionaire. I always have to remind myself that I am.
+ - But the action film genre is gonna have to come up with some new bad guys.
+ - All actors have to make the words fit in their mouths, and make the words the words fit to how you say it and how you make it life-like and make it look like what you’re saying is just conversation that you’re just thinking off the top of your head. That process is not quite improvisation.
+ - If you catch him, just give me four seconds with Saddam Hussein.
+ - I could never write my memoirs, just because too many people are still alive and would be hurt.
+ - When you think about where are you going to find that big love of your life, you seldom think it’s someone you already know. You think it’s someone you’re yet to meet.
+ - They hear you own up, and they learn to own up.
+ - All the films are hits before you turn the camera on. It’s only in the execution that they fail. I’ve been less than happy with the way a couple of films were edited, but it’s a director’s prerogative and you gotta go with it.
+ - There are, I think, three countries left in the world where I can go and I’m not as well-known as I am here. I’m a pretty big star, folks – I don’t have to tell you. Superstar, I guess you could say.
+ - If I had a choice, I would do comedy all the time. It’s just the most challenging thing. To make someone laugh is the most challenging thing, and the most rewarding thing, in entertainment.
+ - Have you heard anything useful come out of an actor’s mouth lately?
+ - I like having the dough to come and go as I please.
+ - I think I’m even more open and more giving as a father now. I pay more attention now because I value it more and I’m less caught up with my career.
+ - I always question whether it’s the right time for anything I do.
+ - I’ve always had confidence. Before I was famous, that confidence got me into trouble. After I got famous, it just got me into more trouble.
+ - I wake up laughing. Yes, I wake up in the morning and there I am just laughing my head off.
+
+70 quotes

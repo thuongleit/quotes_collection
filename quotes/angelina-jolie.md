@@ -1,0 +1,265 @@
+ - Be brave, be bold, be free.
+ - I’ve realized that being happy is a choice.
+ - I love great journalism. I appreciate it. I love good news stories. I love great books. I love great articles. I appreciate them so much, and they’ve been part of my education as a woman.
+ - It’s better to have nobody, than to have someone who is half there, or doesn’t want to be there.
+ - I’ve been reckless, but I’m not a rebel without a cause.
+ - Anytime I feel lost, I pull out a map and stare. I stare until I have reminded myself that life is a giant adventure, so much to do, to see.
+ - If you don’t get out of the box you’ve been raised in, you won’t understand how much bigger the world is.
+ - People will always say all sorts of stuff. Let them. I’m enjoying my life.
+ - People have two sides, a good side and a bad side, a past, a future. We must embrace both in someone we love.
+ - Nothing would mean anything if I didn’t live a life of use to others.
+ - Nature is about balance. All the world comes in pairs – Yin and Yang, right and wrong, men and women; whats pleasure without pain?
+ - When other little girls wanted to be ballet dancers I kind of wanted to be a vampire.
+ - A Single journey can change the course of a life.
+ - I see myself as mom first. I’m so lucky to have that role in life. The world can like me, hate me or fall apart around me and at least I wake up with my kids and I’m happy.
+ - The truth is I love being alive. And I love feeling free. So if I can’t have those things then I feel like a caged animal and I’d rather not be in a cage. I’d rather be dead. And it’s real simple. And I think it’s not that uncommon.
+ - If I make a fool of myself, who cares? I’m not frightened by anyone’s perception of me.
+ - The sun doesn’t lose its beauty when covered by the clouds. The same way your beauty doesn’t fade when being covered by Hijab.
+ - It’s hard to be clear about who you are when you are carrying around a bunch of baggage from the past. I’ve learned to let go and move more quickly into the next place.
+ - I do believe in the old saying ‘What does not kill you makes you stronger.’ Our experiences, good and bad, make us who we are. By overcoming difficulties, we gain strength and maturity.
+ - Violence against women is still treated as a lesser crime. Armed groups turn it into a weapon of choice because of near total impunity.
+ - I wanna better understand the world I live in, and I wanna be able to learn how to be more effective. I wanna learn and I wanna listen.
+ - People say that you’re going the wrong way when it’s simply a way of your own.
+ - Without pain, there would be no suffering, without suffering we would never learn from our mistakes. To make it right, pain and suffering is the key to all windows, without it, there is no way of life.
+ - Every day we choose who we are by how we define ourselves.
+ - Love one person, take care of them until you die. You know, raise kids. Have a good life. Be a good friend. And try to be completely who you are. And figure out what you personally love. And like go after it with everything you’ve got no matter how much it takes.
+ - No matter what you have gone through in your youth, it is about who you choose to be in life. You can define your own destiny. You can be stronger than a very difficult past and overcome it.
+ - First and foremost comes my family and my life with Brad. We have so much joy in raising our children and teaching them about the world that nothing really compares to that.
+ - Don’t fit in. Don’t sit still. Don’t ever try to do less than you are.
+ - I collect books, and I love libraries. I love bookstores. And to me meeting a writer is important. And when I saw a book with my name on it I almost passed out.
+ - Happy endings are just stories that haven’t finished yet.
+ - I was the punk outsider who nobody messed with. I was fearless. At 16, I graduated and moved out.
+ - I’m happy being myself, which I’ve never been before. I always hid in other people, or tried to find myself through the characters, or live out their lives, but I didn’t have those things in mine.
+ - I need more sex, OK? Before I die I wanna taste everyone in the world.
+ - If you don’t get out of the box you’ve been raised in, you won’t understand how much bigger the world is. You might never find out that you are useful for all the right reasons – and not all those stupid things that people tell you you’re useful for.
+ - Love – is when you wish all the best to the people you love, when you put their interests and well-being above their own. Always.
+ - I wanna read a good paper first thing in the morning. And if I see a lie about myself flash across the front of the cover, I don’t think much of the rest of the newspaper.
+ - Make bold choices and make mistakes. It’s all those things that add up to the person you become.
+ - My mom always wanted me to be an actor. And I started going to theater and going on auditions young. I only realized about five years ago that I actually didn’t want to be an actor.
+ - What’s risky is living your life and never trying for anything and never doing something brave and never getting yourself scared.
+ - I never thought I’d have children; I never thought I’d be in love, I never thought I’d meet the right person. Having come from a broken home – you kind of accept that certain things feel like a fairy tale, and you just don’t look for them.
+ - I don’t believe in guilt, I believe in living on impulse as long as you never intentionally hurt another person, and don’t judge people in your life. I think you should live completely free.
+ - There’s something about death that is comforting. The thought that you could die tomorrow frees you to appreciate your life now.
+ - Where ever I am I always find myself looking out the window wishing I was somewhere else.
+ - Barefoot or first thing in the morning, I feel beautiful. I didn’t always feel that way, but I feel that way now. When somebody loves you, and when you make somebody else happy, when your presence seems to make them happy, you suddenly feel like the most beautiful person in the world.
+ - Children teach you so much. You take another look at life when you have a child. Everything is new again for you. They ground you.
+ - When I get logical, and I don’t trust my instincts – that’s when I get in trouble.
+ - If I think more about death than some other people, it is probably because I love life more than they do.
+ - Family is what grounds you.
+ - Different is good. When someone tells you that you are different, smile and hold your head up and be proud.
+ - We need policies for long-term security that are designed by women, focused on women, executed by women not at the expense of men, or instead of men, but alongside and with men.
+ - We come to love not by finding the perfect person, but by learning to see an imperfect person perfectly.
+ - I think every teenager is a hero. When we are young we feel so much pain. Go to school is like going to war, people let you down all the time. Sometimes it’s very, very difficult to stay strong, but you have to.
+ - I always work with refugees and I think they are the most amazing people and it’s a privilege to spend time with them, so I will always.
+ - Refugees have done more for my heart and my spirit than I can ever express in words.
+ - We did work together surprisingly well, more than I thought we would, because I didn’t know before we met if we would actually work together really well, and we had a great time.
+ - You can seek advice, learn about the options and make choices that are right for you. Knowledge is power.
+ - There is no greater pillar of stability than a strong, free and educated woman, and there is no more inspiring role model than a man who respects and cherishes women and champions their leadership.
+ - No, no, no, I’ve just grown up too much to be hurt by what people’s opinion of my love life is.
+ - I’m odd looking. Sometimes I think I look like a funny muppet.
+ - I like to hide behind the characters I play. Despite the public perception, I am a very private person who has a hard time with the fame thing.
+ - I never like being touched, ever. People used to say I held my breath when they were hugging me. I still do.
+ - If we cannot end the conflict, we have an inescapable moral duty to help refugees and provide legal avenues to safety.
+ - It’s a natural thing for a child to lose a parent. I lost my mom too young but it happened. And I’m happy she’s out of pain, ’cause I love her and she’s my friend.
+ - I’m a very private person. I don’t go out much. I’m home with kids. I go to work. I don’t really like being the focus of attention, which is why I like being behind the camera more.
+ - Life comes with many challenges. The ones that should not scare us are the ones we can take on and take control of.
+ - I do not feel any less of a woman. I feel empowered that I made a strong choice that in no way diminishes my femininity.
+ - I want to take time to understand life. I want to travel. I want to be a better person, a better Mom. I want to do something good with my life.
+ - I find flaws attractive. I find scars attractive.
+ - Love elevates. Love is what you live for.
+ - Love should be that person that inspires you to be a better person.
+ - I’m very careful with my emotions, and I don’t let them run free. If I’m upset, it’s usually for a very good, very deep reason.
+ - Usually all my tattoos came at good times. A tattoo is something permanent when you’ve made a self-discovery, or something you’ve come to a conclusion about.
+ - If you have enough people sitting around telling you you’re wonderful, then you start believing you’re fabulous, then someone tells you you stink and you believe that too!
+ - We’re all just big kids. That’s all we are. We are artistes. We grew up wanting to be part of the fantasy of the fairy tales and the stories.
+ - Over 20 million children of conflict are out of school. Education is often forgotten.
+ - To be intimate with a married man, when my own father cheated on my mother, is not something I could forgive. I could not look at myself in the morning if I did that. I wouldn’t be attracted to a man who would cheat on his wife.
+ - I honestly want to help. I don’t believe I feel differently from other people. I think we all want justice and equality, a chance for a life with meaning.
+ - Save one-third, live on one-third, and give away one-third.
+ - The side of fairytales I don’t like is that they always have happy endings, that there’s just good and evil, and things are perfect. But life is a little more complicated, and that’s what I try to teach my kids.
+ - I always play women I would date.
+ - Sometimes acting and politics make a very bad combination. I think that sometimes people take me less seriously in my work for the UN because I am an actor.
+ - I wonder why guys mistreat and disrespect girls. But then they expect life to hand them a good woman when they’re older and ready to settle down?
+ - It’s easier to be with somebody. But it’s better to be single if you’re with the wrong person.
+ - If you ask people what they’ve always wanted to do, most people haven’t done it. That breaks my heart.
+ - I grew up as this very carefree, happy kid then things turned darker for me. Maybe it was because I saw that the world wasn’t as happy a place as I had hoped it would be for me.
+ - The only way to have a life is to commit to it like crazy.
+ - People will say what they want to say, and it’s okay. And my life will go on, and I need to focus on my life. So, do I need to defend that I’m a decent woman? I sure hope I don’t. I know I am.
+ - We cannot look at Syria, and the evil that has arisen from the ashes of indecision, and think this is not the lowest point in the world’s inability to protect and defend the innocent.
+ - I am a strong believer that without justice, there is no peace. No lasting peace, anyway.
+ - It’s great to jump into things you’re not sure of and you haven’t done and that are a little scary. That’s what we have to do, as artists.
+ - There is no shame in being a survivor of sexual violence. The shame is on the aggressor.
+ - We need to be open minded to understand that there are lots of different levels of things going on and we shouldn’t be so quick to judge – and certainly not to judge a whole race, a whole religion or a whole people – and a lot of that is going on.
+ - If I didn’t have my films as an outlet for all the different sides of me, I would probably be locked up.
+ - Progress is slow, it is uneven, it is fragile and in some parts of the world it is being erased.
+ - There doesn’t need to be a God for me. There’s something in people that’s spiritual, that’s godlike. I don’t feel like doing things just because people say things, but I also don’t really know if it’s better to just not believe in anything, either.
+ - The mind wants to forget because it weighs so much on the heart and soul. I am tired of crying and feeling so helpless. I want to breathe again -just for a little while.
+ - I became an actress because my mom wanted me to become an actress. It took me until my mid-30s to realize I actually didn’t. I actually wanted to write and direct and be more involved in politics and humanitarian issues.
+ - The loss of a child is my greatest nightmare.
+ - I’m a fairy. I’d come and hear, “How was your day, honey?” And I’d be like, “I was a fairy. I don’t know.”
+ - I’ve started to really become aware of the world we live in, what’s really going on.
+ - I think if you’ve never been pregnant, you can over play pregnant and you can do a lot of different things with pregnant.
+ - I love to put on lotion. Sometimes I’ll watch TV and go into a lotion trance for an hour. I try to find brands that don’t taste bad in case anyone wants to taste me.
+ - For whatever reason, I don’t know why, but Cambodians learned something in their suffering and their struggle that we have lost touch with.
+ - I’ve told Billy if I ever caught him cheating, I wouldn’t kill him because I love his children and they need a dad. But I would beat him up. I know where all of his sports injuries are.
+ - I’m at a strange place I suppose in my life. I think that what happens when you lose a parent, where you lose-you drop into a different kind of serious.
+ - I’m very happy and very excited when my adrenalin is going.
+ - To be in any way a positive contribution, that’s all anybody wants to be. It’s all I’ve ever wanted to be. I wanted to be an artist, be a mother. You want to feel that in your life you’ve been of use, in whatever way that comes out.
+ - I just started reading lots of books and then called the United Nations and asked if they could educate me. The more I got involved, the more I suddenly began to feel useful as a human being and felt like I was finally living as I should be.
+ - I went through a period when I felt my film characters were having more fun than I was. It might partly explain why I ended up tattooed or doing certain extreme things in my life.
+ - I remember the days of auditioning and being nervous and so I really didn’t want to make people have to jump through hoops to do auditions and be nervous and make them more nervous. I kind of wanted to hire everybody and find something for everybody.
+ - I prefer directing to acting. There is huge freedom that comes from being behind the camera. It brings a lot of responsibilities as well, but is intensely rewarding. Particularly the chance to help draw out the best in young actors.
+ - I always felt caged, closed in, like I was punching at things that weren’t there. I always had too much energy for the room I was in.
+ - Anything that feels good couldn’t possibly be bad.
+ - It’s all or nothing with my makeup. If I get dressed up, I’ll go to an extreme. I’ll wear foundation, bright blue or bright red lipstick with one of my weird purple wigs.
+ - I think the global community always has a responsibility to any humanitarian crisis. And I think it’s in our best interest to address a humanitarian crisis because displacement can can lead to a lot of instability and aggression.
+ - When someone loves you, and when you make someone happy, you suddenly start to feel the most beautiful person in the world.
+ - I make it a point not to buy certain magazines, not because I am against tabloids or things like that, but I want to fill my mind with valid issues in the world.
+ - I personally feel like, if you’re watching a film about war, you should get a sense of what it’s really like.
+ - The nice thing about being a director is that I can say, “I can only get into the room after the kids are at school, and I have to be back for dinner. And they’re coming for lunch.”
+ - I like to hide behind the characters I play.
+ - Therapy? I don’t need that. The roles that I choose are my therapy.
+ - The interesting thing for me is that everybody felt that I was really wild when i was unbalanced and desperate to communicate something and didn’t have a sense of purpose. But I’ve never been so crazy and wild as I am with my son or as I am now.
+ - And my dad, you’re a great actor but you’re a better father.
+ - That just sounds so funny, A-list. Really, I’m a mom, and that’s how I’m going to be all my life.
+ - As a director, I hoped that I was able to help the actors by giving them the space and the respect they need and the trust. I gave them what I always felt I needed when I was working.
+ - I have so much in my life. I want to be of value to the world.
+ - I’m drawn to kids that are already born. I think some people are meant to do certain things, and I believe I’m meant to find my children in the world somewhere and not necessarily have them genetically.
+ - Now they can do all these magic things with computers. So you think you get to do something in a movie and you find out you don’t get to really do it.
+ - I am working for a better United Nations. Nothing is perfect. You should never rely on only one source, but rather rely on those you believe in the most.
+ - To do something good, it has to scare you.
+ - I love doing action. And I love doing dramatic films, and I’d never really been able to combine them.
+ - I felt I should have been taught about the landmine problem. It made me suddenly realize certain things about the world and how much I had to learn, like the history of the people.
+ - I’m with a man who’s evolved enough to look at my body and see it as more beautiful because of the journey it has taken.
+ - It is not enough to defend our values at home, in our newspapers and in our institutions. We also have to defend them in the refugee camps of the Middle East, and the ruined ghost towns of Syria.
+ - I do have tatoos, and I do wear leather, but there are other sides of me, that my film express.
+ - It is wonderful to hear of the relief efforts that are finally coming to New Orleans and the rest of the region, but as well all know, it is simply not going to be enough.
+ - I would start drinking something terrible if I were in a situation where I was surrounded by lies or quiet or secrets. It’s just not a real life.
+ - Women and girls are bearing the brunt of extremists that revel in treating them barbarically. This is inextricably linked to our overall failure to prevent and end conflicts worldwide, which is causing human suffering on an unprecedented level.
+ - I’m not a single mom with two jobs, trying to get by, every day. I have much more support than most women, around this world, and I have the financial means to have a home and help with care and food.
+ - I’m not a hugger. People make fun of me. It’s something that I have a hard time with. If someone hugs me, I hold my breath. Snuggling, cuddling, hugging, crying – all that stuff makes me very uncomfortable.
+ - I like the feeling of being dominated. It actually makes me feel safe as opposed to challenged.
+ - Sometimes I think my husband is so amazing that I don’t know why he’s with me. I don’t know whether I’m good enough. But if I make him happy, then I’m everything I want to be.
+ - I cry secretly. I don’t really cry in front of anybody. I hate crying. I feel like it’s not accomplishing anything. But when I lost my mother, I cried, and I cried big.
+ - To actually feel like you’ve done something good with your life and you’re useful to others is what I was always wanting, and was always looking for.
+ - On second marriage: It took me by surprise, too, because overnight, we totally changed. I think one day we had just nothing in common. And it’s scary but I think it can happen when you get involved and you don’t know yourself yet.
+ - What nourishes me also destroys me.
+ - Acting is not pretending or lying. It’s finding a side of yourself that’s the character and ignoring your other sides. And there’s a side of me that wonders what’s wrong with being completely honest.
+ - I’ve never lived my life in the opinion of others. I believe I’m a good person. I believe I’m a good mom. But that’s for my kids to decide, not for the world.
+ - I have men in my life. I have a brother. So Maddox will have male teachers. I was raised without a father.
+ - I like everything. Boyish girls, girlish boys, the heavy and the skinny. Which is a problem when I’m walking down the street.
+ - Never send a boy to do a woman’s job.
+ - I try not to think about my public life. I focus on my private life, and that’s just the best way to live.
+ - The center of my life is my kids, I woke up at 3 in the morning with four kids with jet lag and two babies. I put myself together for a few hours and go out. And then I go home. This is my job.
+ - At the end of the day I’m gonna be dead one day, and what people say about me is going what I accomplished and what I did in my life and how my children are. And I don’t think it’s gonna be what was printed in the tabloids this year.
+ - I approached UNHCR because I believe in what the United Nations. I believe refugees are the most vulnerable people in the world. They are affected by everything, including landmines. They are vulnerable to everything.
+ - They say it’s better than sex. It’s so much better. It’s amazing.
+ - I felt beautiful when I was in Cambodia for Tomb Raider. I was sweaty, and my hair was matted and all over the place. And I was happy and hot and accomplishing a lot and running around, and I could feel my heart beating, and I felt beautiful.
+ - It’s just such a freeing thing to set these great challenges for yourself, to travel, to learn more about the world, to just go out there and get crazy and get free and get strong.
+ - I don’t understand why some things are talked about and others are not. I don’t know why I think I can make any kind of difference. All I know is that I want to.
+ - I don’t see myself as beautiful, because I can see a lot of flaws. People have really odd opinions. They tell me I’m skinny, as if that’s supposed to make me happy.
+ - I wish I could find people who just would fight me and break through to me and hold me down and scream their life into my face.
+ - We cannot close ourselves off to information and ignore the fact that millions of people are out there suffering.
+ - What’s going to be funny is when they think Mom and Dad are a little bit cool, because right now, we’re not cool Mom and Dad.
+ - I like the feeling of being dominated.
+ - I never felt settled or calm. You can’t really commit to life when you feel that.
+ - Its just person after person in every different country that has a life that I can’t even imagine and has gone through horror that I can’t even imagine.
+ - The cost of testing for BRCA1 and BRCA2, at more than $3,000 in the United States, remains an obstacle for many women.
+ - I think I should learn French and be a better cook – basic, really good life stuff.
+ - The older ones recently saw Mr and Mrs Smith and I think they thought that was the funniest thing they’d ever seen because, of course, watching your parents fight as spies is some strange sort of childhood fantasy.
+ - I want to be outspoken. I want to say my opinions and I hope they’re taken in the right way. I don’t want to stop being free. And I won’t.
+ - I eat steamed sea bass and vegetables, and I have no sugar, and only drink soy milk.
+ - If every choice you make comes from an honest place, you’re solid, and nothing anybody can say about you can rock you or change your opinion.
+ - I went through what I imagine thousands of other women have felt. I told myself to stay calm, to be strong, and that I had no reason to think I wouldn’t live to see my children grow up and to meet my grandchildren.
+ - But we survived, and we’re a good family. I just don’t want to dedicate one more tear, or watch my mother cry one more time.
+ - War is so complex; human nature is so complex. There’s no filmmaker who has ever figured it out perfectly.
+ - I like someone who is a little crazy but coming from a good place. I think scars are sexy because it means you made a mistake that led to a mess.
+ - Oh, God, I struggle with low self-esteem all the time! I think everyone does. I have so much wrong with me, it’s unbelievable!
+ - When I was growing up I wanted to adopt, because I was aware there were kids that didn’t have parents. It’s not a humanitarian thing, because I don’t see it as a sacrifice. It’s a gift. We’re all lucky to have each other.
+ - I’m not somebody that thinks about destiny and fate, but I don’t walk away from it when something unfolds.
+ - The beautiful thing about such moments in life is that there is so much clarity, You know what you live for and what matters.
+ - I’m getting a wrinkle above my eyebrow because I just can’t stop lifting it, and I love that you know.
+ - Most nights, someone ends up in our bed. The kids do knock before entering. We’ve at least got that part down because mommy and daddy need some space.
+ - I know my children will never have to say, ‘Mom died of ovarian cancer.’
+ - Just start off with the same goals in mind. If you have the same values, same goals then you’ll be on track for the same future.
+ - I’d go from film to film and almost detach from one world and jump in another. I was living as these people and not having a self. I didn’t know who I was. And things just get really dark.
+ - I didn’t even know my bra size until I made a movie.
+ - I’ve realized that being happy is a choice. You never want to rub anybody the wrong way or not be fun to be around, but you have to be happy. When I get logical and I don’t trust my instincts – Thats when I get in trouble.
+ - I want to work; then, as my kids get older, I want to have adventures. I want to visit all their countries: learn and live inside all their cultures.
+ - Cause a little trouble. It’s good for you.
+ - He’s amazing. He’s a really dedicated father. I feel very blessed that every day I wake up and I live with my favourite people in the world, as well as my best friend.
+ - I’m looking very much forward to growing older. I want to be an exhausted older woman but with a very full life behind me and one still going.
+ - On marriage to Jonny Lee Miller: It comes down to timing. I think he’s the greatest husband a girl could ask for. I’ll always love him, we were simply too young.
+ - I take my kids to school and if I go to work they visit me on set, I come home. I have dinner with my family. I have breakfast with my family. I have a very solid, a very warm home. I’m fortunate.
+ - The fact is I am not having sex. But I feel absolutely ripe for the, what would you say? plucking?
+ - First thing in the morning, we’re really tired, and we look at each other and we wonder, ‘Are we ever going to get sleep?’ And yet, it doesn’t matter if you don’t get sleep. It’s an honor to take care of them.
+ - Becoming a parent has just completely changed me, and made life so beautiful and given me such a center and a focus and such joy.
+ - It makes me feel like a woman. It makes me feel that all the things about my body are suddenly there for a reason. It makes you feel round and supple, and to have a little life inside you is amazing.
+ - I have to concentrate on my son. That’s why I have lovers right now and not a boyfriend. I don’t want my son to start calling somebody Daddy unless that person’s gonna stay.
+ - And I didn’t know what that meant for a long time. It was only when I began to travel and look and live beyond my home that I understand my responsibility to others.
+ - All of us would like to believe that if we were in a bad situation someone would help us.
+ - I think doing anything having to do with war, you walk away so very grateful for everything you have and the safety that you have.
+ - I think all women go through periods where we hate this about ourselves, we don’t like that. It’s great to get to a place where you dismiss anything you’re worried about. I find flaws attractive. I find scars attractive.
+ - You know, more children die under the age of five when the parents are not educated.
+ - All women do have a different sense of sexuality, or sense of fun, or sense of like what’s sexy or cool or tough.
+ - I think as a human being, as a mother, as someone who works internationally, I needed desperately to know a man like Louis Zamperini in my life, to know that there is hope.
+ - On the superficiality of the industry: We are setting an example of what we think is beautiful and you really want to put that much make up on me?
+ - There’s people constantly asking you for something on set, so the multi-tasking of motherhood transfers very well to being a director. And I think you’re compassionate.
+ - I don’t really send text messages. I rarely carry my phone. I occasionally check messages at the end of the night, but I don’t carry it around.
+ - It is not where you start out in life that counts the most, it is how you choose to face it.
+ - I’m able to be very effective because I’m not a Democrat, I’m not a Republican. So, I’m not tied, and I’d never want to be tied to anything, to some constituency that I would have to answer to.
+ - I loved being on the other side of the camera. I loved watching another actress in the spotlight, do an extraordinary job, and I loved making her beautiful and interesting, protecting her emotions, and showing people her talent.
+ - I’d like there to be less refugees. I’d like all girls to go to school. That’s what we need to be thinking about, and working on making our own families good and strong and our own kids happy.
+ - I don’t see myself as beautiful, because I can see a lot of flaws.
+ - I always hate speculation on the news, so I don’t want to be somebody who speculates.
+ - I’m still having trouble convincing Pax that underwear and pants go together – underwear is not pants!
+ - I’m just glad I was able to return to some of that innocence and beauty I had as a child when I started my own family, and my children brought me back some of that spirit.
+ - I never save things and I never take pictures. I wanna live in the moment. I don’t wanna be focusing on the past.
+ - I guess that I’ve always wanted to be a Bond villain.
+ - I don’t think the money people in Hollywood have ever thought I was normal, but I am dedicated to my work and that’s what counts.
+ - Acting helped me as I was growing up. It helped me learn about myself, helped me travel, helped me understand life, express myself, all those wonderful things. So I’m very, very grateful; it’s a fun job. It’s a luxury.
+ - My role as goodwill ambassador has made my work as a film star relatively dull. I can’t find anything that interests me enough to go back to work. I’m simply not excited about anything. I’m not excited about going to a film set.
+ - I’ve often felt unattractive or different looking. As I’ve grown up, I’ve felt more comfortable in my own skin. It may sound cliche, but when you feel beautiful and strong on the inside, it shows on the outside.
+ - I’m much happier and more fulfilled than I thought I would ever be, especially when I was going through a lot of grief when I was younger. I hope it lasts.
+ - Like most people, you listen to yourself on the phone or an answering machine and you’re like, ‘Ugh.’ So to do something with just your voice is hard.
+ - I think if you make a good movie, people walk away arguing.
+ - Once you have six children, you’re committed.
+ - When I first went to places where people were suffering from war and persecution, I felt ashamed of my feelings of sadness. I could see more possibilities in my life.
+ - I ’ve been married so much in my life that I never really had lovers, so it’s been a fun time. Hopefully the men are enjoying it as well.
+ - My kids will be needing me a lot when they hit their teens. If I know anything about being a teenager. I need to be braced to be spending a lot of time with all six of them and making sure I can be there for when they go through everything.
+ - This script was just so much smarter than usual and I’m just fascinated by human behavior.
+ - I entered this business before I had focus and purpose in my life. I was very unhappy, very unhealthy, and when I sat down for an interview, I didn’t know why. I felt like I didn’t have anything to share. It was a very empty time.
+ - If you become aware of a public self, you’re in danger of becoming a very artificial person.
+ - I think that if more people saw more things, they wouldn’t be able to really help themselves.
+ - Some people go shopping – I cut myself.
+ - I think we should try to be responsible and educate ourselves. I’m simply doing that and traveling, learning first hand, and seeing first hand what’s going on.
+ - It’s the greatest thing that ever happened in my life, my son.
+ - I think it’s easier to play when you do have a balanced home. I think if I did have alcoholism in my personal life, or my mother, or somebody close to me, it might have been much more uncomfortable to get in there.
+ - Films that I want to do are few and far between.
+ - When I was growing up I never babysat. I was considered to ‘punk rock’ to be trusted with kids.
+ - Not many people know this about me, but I’m a natural blonde. My hair went from light blonde naturally to a darker kind of blonde. My mother dyed my hair dark when I was a child, as I loved the look then. So I’m basically a natural blonde.
+ - There doesn’t need to be a God for me.
+ - It’s been a lifetime ambition of mine to play an 007 villain.
+ - I grew up with my career being thrust upon me. It took me a long time to believe that I could do more than that one aspect of our business.
+ - I’d like to believe that the people that have supported me in my work or identified with me in films, the people that feel they know me, they do and they don’t have misconceptions – they understand. I believe that.
+ - I think actors, because we’re in the world of the characters and the movie, are more isolated, and it always really fun to wake up and be a family with the entire crew.
+ - I listened to a lot of tapes of British theatre actresses and tried to learn from them. As Americans, we don’t have such a gift with language.
+ - I’m shy to call myself a director still. When someone says, ‘What do you do for a living?’ I don’t know if I’ve earned that.
+ - Every character is a part of you and a part of the character that you are going to evolve into that you are not yet.
+ - The great thing about having a bunch of kids is that they just remind you that you’re the person who takes them to go poop. That’s who you are!
+ - I think what children can handle and what they’re interested in is much deeper than people assume. It’s why sometimes we make things too simple for them.
+ - I don’t do things that are comedic. This is such a crazy idea.
+ - Everyone got kind of crazy with me mentioning I was in love with a woman.
+ - I’m trying to find things that are extremely challenging or mean something to me deeply.
+ - They’re right to think that about me, because I’m the person most likely to sleep with my female fans, I genuinely love other women. And I think they know that.
+ - I notice that my characters go out to dinner and have fun and take these great trips, but I spend so much time on their lives, I don’t have much of a personal life of my own. I have to sort of remember to fill out that little notebook on me.
+ - I’ve been fortunate in that I’ve been able to have that balance as an actress to be able to do the wild, fun action movies and also be allowed to do the dramas. Hopefully, if I’m able to keep that balance, I’d love to always try to do both.
+ - With doing the movies I’ve done I don’t think I would be half the person I am today.
+ - I’m hopeful that increased awareness of the issues in Africa will bring about a new wave of progress and activism among young people everywhere.
+ - I’ve had a wonderful career and I’m very happy to have had all of the opportunities that I’ve had to tell stories and work for as long as I have. I’m sure there’ll be a few more films but I’m happy that I’m able to be selective.
+ - I think I’ll be working a lot less as I get older.
+ - I’m always doing something. I never shut my brain off.
+ - I believe the only people that should be around a child and raising a child are people who absolutely, 100 percent love that child.
+ - In Africa, we were around thousands of people who have seen a lot of poverty, but they were fun at the end of the day.
+
+263 quotes

@@ -1,0 +1,178 @@
+ - Never does the human soul appear so strong as when it foregoes revenge and dares to forgive an injury.
+ - No language can express the power and beauty and heroism of a mother’s love.
+ - Our life is what we make it. An insignificant game or a noble trial; a dream or a reality; a play of the senses worn out in selfish use, and flying “swifter than a weaver’s shuttle,” or an ascension of the soul, by daily duties and unfaltering faith, to more spiritual relations and to loftier toils.
+ - Christ illustrates the purport of life as He descends from His transfiguration to toil, and goes forward to exchange that robe of heavenly brightness for the crown of thorns.
+ - Impatience never commanded success.
+ - Every action in our lives touches on some chord that will vibrate in eternity.
+ - Not in achievement, but in endurance, of the human soul, does it show its divine grandeur and its alliance with the infinite.
+ - No more duty can be urged upon those who are entering the great theater of life than simple loyalty to their best convictions.
+ - The brightest crowns that are worn in heaven have been tried, and smelted, and polished and glorified through the furnaces of tribulation.
+ - Pride is the master sin of the devil, and the devil is the father of lies.
+ - Neutral men are the devil’s allies.
+ - If you should take the human heart and listen to it, it would be like listening to a sea-shell; you would hear in it the hollow murmur of the infinite ocean to which it belongs, from which it draws its profoundest inspiration, and for which it yearns.
+ - Truth is poetry; it is the grandest poetry.
+ - Courage is always greatest when blended with meekness; intellectual ability is most admirable when it sparkles in the setting of a modest self-distrust; and never does the human soul appear so strong as when it foregoes revenge and dares to forgive an injury.
+ - Mercy. That is the gospel. The whole of it in one word.
+ - Consider and act with reference to the true ends of existence. This world is but the vestibule of an immortal life. Every action of our lives touches on some chord that will vibrate in eternity.
+ - We have not the innocence of Eden; but by God’s help and Christ’s example we may have the victory of Gethsemane.
+ - A man can no more be a Christian without facing evil and conquering it than he can be a soldier without going to battle, facing the cannon’s mouth, and encountering the enemy in the field.
+ - We do not compromise our own faith by admitting the honesty of another’s doubt.
+ - Do not judge men by mere appearances; for the light laughter that bubbles on the lip often mantles over the depths of sadness, and the serious look may be the sober veil that covers a divine peace and joy.
+ - There is no happiness in life, there is no misery, like that growing out of the dispositions which consecrate or desecrate a home.
+ - No language can express the power, and beauty, and heroism, and majesty of a mother’s love. It shrinks not where man cowers, and grows stronger where man faints, and over wastes of worldly fortunes sends the radiance of its quenchless fidelity like a star.
+ - Death is a great revealer of what is in a man, and in its solemn shadow appear the naked lineaments of the soul.
+ - Home is the seminary of all other institutions. There are the roots of all public prosperity, the foundations of the State, the germs of the church. There is all that in the child makes the future man; all that in the man makes the good citizen.
+ - There must be something beyond man in this world. Even on attaining to his highest possibilities, he is like a bird beating against his cage. There is something beyond, O deathless like a sea-shell, moaning for the bosom of the ocean to which you belong!
+ - Munificent nature follows the methods of the divine and true, and rounds all things to her perfect law. While nations are convulsed with blood and violence, how quietly the grass grows.
+ - The deepest life of nature is silent and obscure; so often the elements that move and mould society are the results of the sister’s counsel and the mother’s prayer.
+ - The city reveals the moral ends of being, and sets the awful problem of life. The country soothes us, refreshes us, lifts us up with religious suggestion.
+ - Truth is the root, but human sympathy is the flower of practical life.
+ - Do not ask if a man has been through college; ask if a college has been through him; if he is a walking university.
+ - Ostentation is the signal flag of hypocrisy.
+ - Skepticism has never founded empires, established principals, or changed the world’s heart. The great doers in history have always been people of faith.
+ - A day! It has risen upon us from the great deep of eternity, girt round with wonder; emerging from the womb of darkness; a new creation of life and light spoken into being by the word of God.
+ - Heaven never defaults. The wicked are sure of their wages, sooner or later.
+ - A true man never frets about his place in the world, but just slides into it by the gravitation of his nature, and swings there as easily as a star.
+ - There is but a slight difference between the man who may be said to know nothing and him who thinks he knows everything.
+ - Morality is but the vestibule of religion.
+ - The unmerciful man is most certainly an unblessed man. His sympathies are all dried up; he is afflicted with a chronic jaundice, and lives timidly and darkly in a little, narrow rat-hole of distrust.
+ - The highest genius never flowers in satire, but culminates in sympathy with that which is best in human nature, and appeals to it.
+ - In some way the secret vice exhales its poison; and the evil passion, however cunningly masked, stains through to the surface.
+ - Death makes a beautiful appeal to charity. When we look upon the dead form, so composed and still, the kindness and the love that are in us all come forth.
+ - There is less misery in being cheated than in that kind of wisdom which perceives, or thinks it perceives, that all mankind are cheats.
+ - Pure felicity is reserved for the heavenly life; it grows not in an earthly soil.
+ - Break up the institution of the family, deny the inviolability of its relations, and in a little while there would not be any humanity.
+ - Temptation cannot exist without the concurrence of inclination and opportunity.
+ - Profaneness is a brutal vice. He who indulges in it is no gentleman, I care not what his stamp may be in society; I care not what clothes he wears, or what culture he boasts.
+ - Profaneness is a brutal vice. He who indulges in it is no gentleman.
+ - Down below all the crust of human conceptions, of human ideas, Christ sank an artesian well into a source of happiness so pure and blessed that even yet the world does not believe in it.
+ - As for environments, the kingliest being ever born in the flesh lay in a manger.
+ - In the matter of faith, we have the added weight of hope to that of reason in the convictions which we sustain relating to a future state.
+ - God’s work is freedom. Freedom is dear to his heart. He wishes to make man’s will free, and at the same time wishes it to be pure, majestic, and holy.
+ - Humility is not a weak and timid quality; it must be carefully distinguished from a groveling spirit.
+ - Life is a problem. Not merely a premiss from which we start, but a goal towards which we proceed. It is an opportunity for us not merely to get, but to attain; not simply to have, but to be. Its standard of failure or success is not outward fortune, but inward possession.
+ - Many a man who might walk over burning ploughshares into heaven stumbles from the path because there is gravel in his shoes.
+ - Character has more effect than anything else. Let a number of loud-talking men take up a particular question, and one man of character, of known integrity and beauty of soul, will outweigh them all in his influence.
+ - We may learn by practice such things upon earth as shall be of use to us in heaven. Piety, unostentatious piety, is never out of place.
+ - The sluices of the grog-shop are fed from the wine-glasses in the parlor, and there is a lineal descent from the gentleman who hiccoughs at his elegant dinner-table to the sot who makes a bed of the gutter.
+ - It is not enjoined upon us to forget, but we are told to forgive, our enemies.
+ - How much in this world is charged to chance or fortune, or veiled under a more devout name, and accorded to Providence; while, when we come to look honestly into affairs, we find it to be a debt of our own accumulation, and one which we must inevitably pay.
+ - Christ saw much in this world to weep over, and much to pray over; but He saw nothing in it to look upon with contempt.
+ - There is such a thing as honest pride and self-respect.
+ - No piled-up wealth, no social station, no throne, reaches as high as that spiritual plane upon which every human being stands by virtue of his humanity.
+ - The productions of the press, fast as steam can make and carry them, go abroad through all the land, silent as snowflakes, but potent as thunder. It is an additional tongue of steam and lightning, by which a man speaks his first thought, his instant argument or grievance, to millions in a day.
+ - Nature satisfies my thirst; it feeds my hunger; it finds me clothing; it affords me shelter; it wraps me around when I sleep with beneficent and watchful care; and it takes me at last to its great bosom, where my ashes mingle with their kindred dust.
+ - Swift calls discretion low prudence; it is high prudence, and one of the most important elements entering into either social or political life.
+ - This is the essential evil of vice: it debases a man.
+ - A life is black, whiten it as you will.
+ - Revolution does not insure progress. You may overturn thrones, but what proof that anything better will grow upon the soil?
+ - Liberty is an old fact; it has had its heroes and its martyrs in almost every age. As I look back through the vista of centuries, I can see no end of the ranks of those who have toiled and suffered in its cause, and who wear upon their breasts its stars of the legion of honor.
+ - Events are only the shells of ideas; and often it is the fluent thought of ages that is crystallized in a moment by the stroke of a pen or the point of a bayonet.
+ - However logical our induction, the end of the thread is fastened upon the assurance of faith.
+ - The city an epitome of the social world. All the belts of civilization intersect along its avenues. It contains the products of every moral zone. It is cosmopolitan, not only in a national, but a spiritual sense.
+ - I know a good many people, I think, who are bigots, and who know they are bigots, and are sorry for it, but they dare not be anything else.
+ - A great many men – some comparatively small men now – if put in the right position, would be Luthers and Columbuses.
+ - It is those who make the least display of their sorrow who mourn the deepest.
+ - Is there anything so wretched as to look at a man of fine abilities doing nothing?
+ - There is a sweet anguish springing up in our bosoms when a child’s face brightens under the shadow of the waiting angel. There is an autumnal fitness when age gives up the ghost; and when the saint dies there is a tearful victory.
+ - Those old ages are like the landscape that shows best in purple distance, all verdant and smooth, and bathed in mellow light.
+ - It is because we underrate thought, because we do not see what a great element it is in religious life, that there is so little of practical and consistent religion among us.
+ - No one can truly see Christ, and drink in the influence of his character, and not be a Christian at heart.
+ - There are interests by the sacrifice of which peace is too dearly purchased. One should never be at peace to the shame of his own soul – to the violation of his integrity or of his allegiance to God.
+ - There have been men who could play delightful music on one string of the violin, but there never was a man who could produce the harmonies of heaven in his soul by a one-stringed virtue.
+ - In this world the inclination to do things is of more importance than the mere power.
+ - Let us not fear that the issues of natural science shall be scepticism or anarchy. Through all God’s works there runs a beautiful harmony. The remotest truth in his universe is linked to that which lies nearest the Throne.
+ - It is as bad to clip conscience as to clip coin; it is as bad to give a counterfeit statement as a counterfeit bill.
+ - Public feeling now is apt to side with the persecuted, and our modern martyr is full as likely to be smothered with roses as with coals.
+ - For soon, very soon do men forget Their friends upon whom Death’s seal is set.
+ - Genius is the accumulated wealth of our humanity – its most intense development concentrated at one point, and then with clearer expression and with mysterious power shot back to us across the galvanic lines of thought and feeling.
+ - Man gains wider dominion by his intellect than by his right arm. The mustard-seed of thought is a pregnant treasury of vast results. Like the germ in the Egyptian tombs its vitality never perishes; and its fruit will spring up after it has been buried for long ages.
+ - Truth is new, as well as old. It has new forms; and where you may find a new statement, an earnest statement, you may conclude that by the law of progress it is more likely to be a correct statement than that which has been repeated for ages by the lips of tradition.
+ - Conscience is its own readiest accuser.
+ - There are daily martyrdoms occurring of more or less self-abnegation, and of which the world knows nothing.
+ - Let every man be free to act from his own conscience; but let him remember that other people have consciences too; and let not his liberty be so expansive that in its indulgence it jars and crashes against the liberty of others.
+ - I will tell you where there is power: where the dew lies upon the hills, and the rain has moistened the roots of the various plant; where the sunshine pours steadily; where the brook runs babbling along, there is a beneficent power.
+ - Earth has scarcely an acre that does not remind us of actions that have long preceded our own, and its clustering tombstones loom up like reefs of the eternal shore, to show us where so many human barks have struck and gone down.
+ - Poetry is the utterance of deep and heart-felt truth – the true poet is very near the oracle.
+ - The best answer to all objections urged against prayer is the fact that man cannot help praying; for we may be sure that that which is so spontaneous and ineradicable in human nature has its fitting objects and methods in the arrangements of a boundless Providence.
+ - The child’s grief throbs against the round of its little heart as heavily as the man’s sorrow, and the one finds as much delight in his kite or drum as the other in striking the springs of enterprise or soaring on the wings of fame.
+ - An aged Christian, with the snow of time upon his head, may remind us that those points of earth are whitest which are nearest to heaven.
+ - Life, whether in this world or any other, is the sum of our attainment, our experience, our character. The conditions are secondary. In what other world shall we be more surely than we are here?
+ - God is the explanation of all things.
+ - Christianity has made martyrdom sublime, and sorrow triumphant.
+ - To me there is something thrilling and exalting in the thought that we are drifting forward into a splendid mystery-into something that no mortal eye hath yet seen, and no intelligence has yet declared.
+ - Life is a crucible. We are thrown into it and tried.
+ - It takes something of a poet to apprehend and get into the depth, the lusciousness, the spiritual life of a great poem. And so we must be in some way like God in order that we may see God as He is.
+ - The universe is a vast system of exchange. Every artery of it is in motion, throbbing with reciprocity, from the planet to the rotting leaf.
+ - The temptation is not here, where you are reading about it or praying about it. It is down in your shop, among bales and boxes, ten-penny nails, and sand-paper.
+ - Do not judge from mere appearances...
+ - How often a new affection makes a new man! The sordid, cowering soul turns heroic. The frivolous girl becomes the steadfast martyr of patience and ministration, transfigured by deathless love. The career of bounding impulses turns into an anthem of sacred deeds.
+ - Glorify a lie, legalize a lie, arm and equip a lie, consecrate a lie with solemn forms and awful penalties, and after all it is nothing but a lie. It rots a land and corrupts a people like any other lie, and by and by the white light of God’s truth shines clear through it, and shows it to be a lie.
+ - Bigotry dwarfs the soul by shutting out the truth.
+ - It is difficult to believe that a true gentleman will ever become a gamester, a libertine, or a sot.
+ - Impatience dries the blood sooner than age or sorrow.
+ - A small lie, if it actually is a lie, condemns a man as much as a big and black falsehood. If a man will deliberately cheat to the amount of a single cent, give him opportunity and he would cheat to any amount.
+ - O, how much those men are to be valued who, in the spirit with which the widow gave up her two mites, have given up themselves! How their names sparkle! How rich their very ashes are! How they will count up in heaven!
+ - Influence is exerted by every human being from the hour of birth to that of death.
+ - Through every rift of discovery some seeming anomaly drops out of the darkness, and falls, as a golden link into the great chain of order.
+ - Each thing lives according to its kind; the heart by love, the intellect by truth, the higher nature of man by intimate communion with God.
+ - Tribulation will not hurt you, unless as it too often does; it hardens you and makes you sour, narrow and skeptical.
+ - A man that simply loads himself down with possessions of which he has no actual need, when he dies slips out of them – as a little insect might slip out of some parasite shell into which it has ensconced itself – into the grave, and is forgotten.
+ - Can you conceive of anything that so represents the glory, and truth, and marvelousness of God’s nature as the idea of peace?
+ - The church-bells of innumerable sects are all chime-bells to-day, ringing in sweet accordance throughout many lands, and awaking a great joy in the heart of our common humanity.
+ - The bosom can ache beneath diamond brooches; and many a blithe heart dances under coarse wool.
+ - The true Church is not an institution to be kept apart from the world because the world “is common and unclean,” but a vital heart of truth and love, beating with the life of Jesus, and sending abroad its sanctifying pulsations until nothing shall be common and unclean.
+ - There is no tariff so injurious as that with which sectarian bigotry guards its commodities. It dwarfs the soul by shutting out truths from other continents of thought, and checks the circulation of its own.
+ - The loss of fortune to a true man is but the trumpet challenge to renewed exertion, not the thunder stroke of destruction.
+ - The way to overcome evil is to love something that is good.
+ - Objects close to the eye shut out much larger objects on the horizon; and splendors born only of the earth eclipse the stars. So it is with people who sometimes cover the entire disc of eternity with a dollar, and so quench transcendent glories with a little shining dust.
+ - Physically, man is but an atom in space, and a pulsation in time. Spiritually, the entire outward universe receives significance from him, and the scope of his existence stretches beyond the stars.
+ - The weak sinews become strong by their conflict with difficulties.
+ - Hill and valley, seas and constellations, are but stereotypes of divine ideas appealing to and answered by the living soul of man.
+ - The essence of justice is mercy.
+ - The angels may have wider spheres of action, may have nobler forms of duty; but right with them and with us is one and the same thing.
+ - Gaiety is often the reckless ripple over depths of despair.
+ - Most men are less afraid of ghosts than of facts.
+ - Humanity is so constituted that the basest criminal represents you and me, as well as the most glorious saint that walks on high. We are reflected in all other men; all other men are embodied in us.
+ - A man’s love for his native land lies deeper than any logical expression, among those pulses of the heart which vibrate to the sanctities of home, and to the thoughts which leap up from his father’s graves.
+ - I should not like to preach to a congregation who all believed as I believe. I would as lief preach to a basket of eggs in their smooth compactness and oval formality.
+ - Death is the condition of higher and more fruitful life.
+ - The creed of a true saint is to make the best of life, and to make the most of it.
+ - In the history of man it has been very generally the case that when evils have grown insufferable they have touched the point of cure.
+ - If angels stoop from visions of more than earthly beauty to spells of less than earthly worth, they are but fallen angels, mingling divine utterances with the babblings of madness, and the madness is not the divineness.
+ - Some souls are ennobled and elevated by seeming misfortunes, which then become blessings in disguise.
+ - Under the shadow of earthly disappointment, all unconscious to ourselves, our Divine Redeemer is walking by our side.
+ - Modest expression is a beautiful setting to the diamond of talent and genius.
+ - The best men are not those who have waited for chances but who have taken them; besieged the chance; conquered the chance; and made chance the servitor.
+ - If we would induce others to act virtuously, it will prove more effectual to show them their capacities than to expose their weakness – to attract them by a fairer ideal than to terrify them by pictures of misery and shame.
+ - It is not death to have the body called back to the earth, and dissolved into its kindred elements, and mouldered to dust, and, it may be, turn to daisies, in the grave. But it is death to have the soul paralyzed, its inner life quenched, its faculties dissipated; that is death.
+ - It is the veiled angel of sorrow who plucks away one thing and another that bound us here in ease and security, and, in the vanishing of these dear objects, indicates the true home of our affections and our peace.
+ - Whatever you truly conceive of in the mind, is possible.
+ - Into what boundless life, does education admit us. Every truth gained through it expands a moment of time into illimitable being – positively enlarges our existence, and endows us with qualities which time cannot weaken or destroy.
+ - A thousand wheels of labor are turned by dear affections, and kept in motion by self-sacrificing endurance; and the crowds that pour forth in the morning and return at night are daily procession of love and duty.
+ - Setting is preliminary to brighter rising; decay is a process of advancement; death is the condition of higher and more fruitful life.
+ - It is exceedingly deleterious to withdraw the sanction of religion from amusement. If we feel that it is all injurious we should strip the earth of its flowers and blot out its pleasant sunshine.
+ - At the bottom of not a little of the bravery that appears in the world, there lurks a miserable cowardice. Men will face powder and steel because they have not the courage to face public opinion.
+ - No man knows the genuineness of his convictions until he has sacrificed something for them.
+ - We move too much in platoons; we march by sections; we do not live in our vital individuality enough; we are slaves to fashion, in mind and in heart, if not to our passions and appetites.
+ - The excellence and inspiration of truth is in the pursuit, not in the mere having of it. The pursuit of all truth is a kind of gymnastics; a man swings from one truth with higher strength to gain another. The continual glory is the possibility opening before us.
+ - Certainly, truth should be strenuous and bold; but the strongest things are not always the noisiest, as any one may see who compares scolding with logic.
+ - The more we sympathize with excellence, the more we go out of self, the more we love, the broader and deeper is our personality.
+ - The golden age is not in the past, but in the future; not in the origin of human experience, but in its consummate flower; not opening in Eden, but out from Gethsemane.
+ - The worst effect of sin is within and is manifest not in poverty, and pain, and bodily defacement, but in the discrowned faculties, the unworthy love, the low ideal, the brutalized and enslaved spirit.
+ - It is a mistake to consider marriage merely as a scheme of happiness. It is also a bond of service. It is the most ancient form of that social ministration which God has ordained for all human beings, and which is symbolized by all the relations of nature.
+ - Some people habitually wear sadness, like a garment, and think it a becoming grace. God loves a cheerful worshipper.
+ - The downright fanatic is nearer to the heart of things than the cool and slippery disputant.
+ - Goodness consists not in the outward things we do, but in the inward thing we are.
+ - The individual and the race are always moving, and as we drift into new latitudes new lights open in the heaven more immediately over us.
+ - We only attain the true idea of marriage when we consider it as a spiritual union – a union of immortal affections, of undying faculties, of an imperishable destiny.
+ - No great truth bursts upon man without having its hemisphere of darkness and sorrow.
+ - A patient, humble temper gathers blessings that are marred by the peevish and overlooked by the aspiring.
+ - The wild bird that flies so lone and far has somewhere its nest and brood. A little fluttering heart of love impels its wings, and points its course. There is nothing so solitary as a solitary man.
+ - Whatever touches the nerves of motive, whatever shifts man’s moral position, is mightier than steam, or calorie, or lightening.
+ - Death, is not an end, but a transition crisis. All the forms of decay are but masks of regeneration – the secret alembics of vitality.
+ - Whatever may be our condition in life, it is better to lay hold of its advantages than to count its evils.
+ - All natural results are spontaneous. The diamond sparkles without effort, and the flowers open impulsively beneath the summer rain. And true religion is a spontaneous thing, – as natural as it is to weep, to love, or to rejoice.
+ - If one’s conscience be dead as a stone, it is as heavy too.
+
+176 quotes

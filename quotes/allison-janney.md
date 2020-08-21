@@ -1,0 +1,31 @@
+ - I always feel like a doctor who loses a patient on the operating table or something where I felt just devastated and I beat myself up until I get to try it the next night and “I’ll get it better tonight.” So I’m hard on myself. I think I’m not alone in that regard with acting.
+ - I’m afraid of flying.
+ - I can access emotions very easily.
+ - I love wasting time and learning to lip-sync to songs; it’s a silly hobby of mine.
+ - Don’t ever underestimate the power of mentoring someone, or helping some young actor, doing a favor for them, or introducing- everyone needs somebody to help them along when they’re first starting out.
+ - It is a very difficult job, being the servant of two masters.
+ - I guess my height has hurt me as much as it’s helped me. In comedy people don’t mind casting tall women next to shorter men. It adds to the humour.
+ - I grew up with brothers. I love men. Of course it’s hard to be a woman in a man’s world.
+ - Someone said I wasn’t attractive enough. People say those things, but they make you stronger. Then you can win an Emmy and think, ha, ha, ha.
+ - Comedy is a serious business. It’s frustrating when I can’t find the right thing that makes the crew laugh. If I don’t make them laugh, I get very disappointed in myself. You don’t really have a live audience, so you just depend on the crew to let you know if you’re doing something funny.
+ - I’d like to make really important movies, like American Beauty. I was really proud to be a part of that movie.
+ - Great drama is all about conflict, and what’s a better conflict than Republican-Democrat?
+ - The pre-shoot days are so relaxed and fun and the writers are laughing. I love the rehearsal process.
+ - I have the power of my height. Growing up, it was a total drawback. There was nothing good about it at all.
+ - One out of forty American men wears women’s clothing. We’ve had more than forty presidents. One of these guys has been dancing around the Oval Office in a prom dress.
+ - It’s a great way to start the day, hearing you’ve been nominated for an Emmy. It’s just thrilling.
+ - It’s hard to describe to people how terrible it was when you could only watch cartoons at a certain time in your life.
+ - I am lucky enough to have Aaron Sorkin write what I have to say.
+ - The live aspect is so thrilling, I get nervous again. It’s like going on stage.
+ - I like people trying to do two things at once.
+ - I never stop. I don’t want to stop acting because I’m afraid it’ll all end, so I never say no.
+ - One of the things I love about acting is other actors, looking into their eyes, and working off them, and listening and responding to them.
+ - It’s a little weird accepting your voice coming out of an animated character. You don’t buy it at first because it’s your voice and none of us like our voices when we hear them recorded back.
+ - I’m the worst speller on the planet. I’m so glad for spellcheck on my phone.
+ - I can tell when men are threatened by my height.
+ - I can’t imagine trying to be in recovery. I mean it would be hard enough with just life going along in a nice way, but then when awful stuff happens, how you maintain the strength to get through it?
+ - I’m not very comfortable being an actorvist so to get to do something that I believe in is a much more comfortable way for me to be political.
+ - An agent said he didn’t know what to do with me, I wouldn’t be able to play any parts but lesbians and aliens.
+ - I love working on the fly when the writers come up with new jokes on show nights. It’s exciting. I love it so much.
+
+29 quotes

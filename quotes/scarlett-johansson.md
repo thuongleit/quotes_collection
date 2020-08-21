@@ -1,0 +1,100 @@
+ - I love road trips, I love driving, I love finding little towns. I just think it’s the best way to travel.
+ - It’s nice to have a crush on someone. It feels like you’re alive, you know?
+ - Having visited Oxfam-funded school programs in rural communities has made me realise how vital education is to developing countries in bringing people out of poverty and giving them a sense of dignity, self-worth and confidence.
+ - I still eat a burger at a counter with ketchup dripping down my face.
+ - I believe that luck is opportunity meeting preparation.
+ - I’m just in work mode, and that prevents me from going into the Hollywood starlet mode, I suppose.
+ - I’m happiest when I have something to focus my energy on.
+ - I’ve never considered myself a femme fatale as I’ve never seduced anyone and ruined their lives. At least as far as I know.
+ - It is important to remind young people that peace is the only victory.
+ - I find beauty in unusual things, like hanging your head out the window or sitting on a fire escape.
+ - There is nothing strange, creepy, or inappropriate about John Travolta .
+ - I think it’s important for people to be aware of the impact that climate change is having on this huge community of people.
+ - I’m not a statistician, but it doesn’t take a genious to work out that 100 million children being denied an education is ridiculous. There is nothing lost in translation here, it’s obvious that’s wrong.
+ - When I’m not working or promoting something, I try to be as under-the-radar as I can .
+ - I value my privacy and my personal life – and I certainly don’t exploit my personal life.
+ - People are fed up – and I think quite rightfully so. But what are they proposing as an alternative to just being upset or feeling disillusioned or abandoned? That kind of protest movement really needs to happen on a much bigger scale, but there needs to be a clearer message.
+ - My father is from Copenhagen and he lived there until he was in his late 20s. We always grew up with a lot of Danish culture at home. My mother is Jewish but we always celebrated Christmas because we loved the traditions of Danish Christmas.
+ - I always feel like I have to prove myself as an actor, otherwise you get lazy if you’re not slightly terrified that you’re going to fail all the time.
+ - I am very independent. I can look after myself but I still need a lot of love and care.
+ - I don’t think I need too much help. I think my head’s on pretty straight, and I’m pretty realistic about things. I’m very focused, so that certainly prevents me from going all over the place.
+ - I don’t want to be the ingenue anymore. It’s nice to be glamorous, but I don’t want to always be an object of desire. Because it doesn’t last.
+ - I’m just a big believer in ‘you must love yourself before you can love anybody else,’ and I think for me that breeds the most inspired relationships...
+ - When we live our lives everyday, we’re met by opportunities, and most of us don’t even recognize them.
+ - You work hard making independent films for fourteen years and you get voted best breasts.
+ - I do think on some basic level we are animals and by instinct we kind of breed accordingly. But, as much as I believe that, I work really hard when I’m in a relationship to make it work in a monogamous way.
+ - I don’t feel the obligation to be a specific weight. I don’t feel like I have to fit into a body that’s not my body. I have the body I have and I try to maintain it.
+ - I don’t do damsel in distress very well. It’s hard for me to play a victim.
+ - If you feel glamorous, you definitely look glamorous.
+ - For day-to-day beauty, I’m a Q-tip and Vaseline kind of girl. I never leave home without Q-tips – they’re a great fix for any makeup emergencies.
+ - I never really thought about getting married – it just kind of happened. It seemed natural, the right thing to do. It was kind of a celebration of the time.
+ - I think you have to protect your private life as much as you possibly can, and, at the same time, find ways to redirect that focus and turn the glare into a positive thing. I don’t know how you do it. I don’t know how anybody’s ever done it.
+ - It’s so difficult to feel comfortable in the body you have. You always want to look a different way, taller or thinner, whatever it may be. I still struggle with it. I think everybody does.
+ - The truth isn’t all things to all people all of the time.
+ - I don’t profess to know anything about marriage that anybody else doesn’t know, or how to make it right. I don’t want to read about somebody who’s giving me relationship advice. So I try to keep some things for myself, to have a private life.
+ - I’m terrified to ride a bike in a city – and I grew up riding bikes in the city. I’ve just heard enough stories – I have enough friends who’ve been hit by taxicabs and things.
+ - I like taking parts where I’m like: “I don’t know how I’m going to do this exactly but I know I can do it.” As opposed to doing something where you go: “There’s nothing that I can contribute to this.”
+ - I believe in finding a soulmate.
+ - I don’t think about being sexy, being seductive. What you don’t want to see is somebody trying to be sexy. That’s the most unsexy thing.
+ - I definitely believe in plastic surgery. I don’t want to be an old hag. There’s no fun in that.
+ - I hope they make a video game of me. At least I wouldn’t have any cellulite then.
+ - I don’t have a Facebook or a Twitter account, and I don’t know how I feel about this idea of, “Now, I’m eating dinner, and I want everyone to know that I’m having dinner at this time.” or “I just mailed a letter and dropped off my kids.” That, to me, is a very strange phenomenon.
+ - If you have breakouts, it can be really healing, it’s a little bit stinky, but if you’re not sleeping over at your boyfriend’s, it’s really effective.
+ - I’m all about fashion, cheeseburgers and bright-red lipstick.
+ - It’s important not to lose who you are in a relationship just because it’s nice to cuddle with somebody.
+ - A smile from an attractive woman at a bar very rarely ends up in any sort of sexual encounter. But a man is a fool not to push the suggestion as far as it will go, and he’s that man.
+ - I just want to work on things that are really hard, and when I’m not working on things that are really hard, I want to hang out with people I like to be with, and that’s it.
+ - Are people who want this kind of progressive change not turning up at polling stations? Are they not voting for progressive representatives? It’s hard to put your finger on why we are where we are.
+ - Growing up I never got into comic books at all. I didn’t have any inspiration for it.
+ - It’s a required part of your film history to know who Woody is. His movies are so wonderful, and not just funny but so insightful about human behavior.
+ - One of the best things for a woman to hear is that she is sexy.
+ - It’s important for people to figure out their own lives before involving someone else – to gauge where you are and work on your own issues.
+ - Every actor has a production company already. It’s just a matter of producing your own films under the label of your own production company.
+ - I never struggled with trying to figure out what it was I wanted to do or what made the sparks go for me.
+ - Do I think men are complicated? People are complicated! I don’t know that there is one particular aspect of men in general that I don’t understand – other than why do they have nipples? I thought we decided that men are just big, hairy apes.
+ - Whether people are in America or in Africa, people want to work. They want to have purpose. They want to provide for themselves and their families. They don’t want handouts. They don’t want to be completely dependent on their governments – even though there’s usually no opportunity for that anyway.
+ - I can’t think of anything I’d rather do less than have to continuously share details of my everyday life.
+ - I love musicals, I started acting because I wanted to be in a musical.
+ - Actresses get stupid questions asked of them all the time, like, ‘How do you stay sexy?’ or ‘What’s your sexiest quality?’ All these ridiculous things you would never ask a man.
+ - As an actor, anything that you have to help get you into character is helpful.
+ - I always check in the mirror to make sure nothing is see-through.
+ - I always like to start with a matte base then add shimmer.
+ - I don’t plan on selling out. I mean, it’s nice to get a dinner reservation ahead of other people, but when it comes down to it, the most important thing for me is the actual work.
+ - If you open up a magazine and there’s a photograph of you with a giant red circle around your thigh, like, look at this cellulite, any person – I don’t care what you do – would be mortified. It’s no wonder people get crazy about it.
+ - I would have loved to have gone into diagnostic medicine.
+ - You read statistics all the time like, “13 million people are at risk because of the severe drought in East Africa,” but I think those kinds of numbers fall on deaf ears – there’s so much devastation in the world, that it’s a bit overwhelming for people.
+ - I’m very comfortable with my sexuality, my body, my face – well, sometimes I’m not comfortable with my face, but it’s stuck there and there’s nothing I can do about it.
+ - LA’s a very hard place to be unless you have people there that love you. It can be very, very lonely, and it can eat you up if you don’t take care of yourself. In LA, nobody wants to talk to each other, everybody’s giving each other catty looks.
+ - I have an obsessive character. I manicure my nails at three in the morning because nobody else can do it the right way. Maybe that’s the secret to my success.
+ - I’m not telling people where to give money, but if there is to be a spotlight shed on me, then I’d like to direct that spotlight onto causes I think are worthy or onto interesting, progressive figures.
+ - My family grew up relying on public assistance to help provide meals for our family. Child hunger in America is a real and often overlooked problem, but one that together, we can fix.
+ - You have Cameron Crowe write an incredible monologue for you just based on the things that you’re talking about. It just became this opportunity that was too exciting a process to pass up.
+ - I don’t profess to know how to balance the positive and the negative media attention. It’s a gamble every time you put yourself out there, and, certainly, I’m always readjusting to it.
+ - There’s no such thing as an aura of mystery anymore. It doesn’t exist. That’s a thing of the past.
+ - I’d rather be really good at something or not do it at all.
+ - Improvisation has never been my strong point.
+ - I went through this realization that acting, at its heart, is the ability to manipulate your own emotions.
+ - I want to look good, obviously. I don’t want to look at the screen and go, Oh, my skin looks terrible, or, I look exhausted. That’s why I take care of myself when I work...
+ - I’ve been fortunate enough to travel with Oxfam several times, and they’re always so well organized, so it was a good way to show the kind of work they’re doing.
+ - I’ve always wanted to work with Cameron Crowe. I’ve auditioned for him several times for various projects over the last ten years, and I’ve always admired the way he worked with me.
+ - Whenever I’m taking time off, all I’m thinking about is working.
+ - I would never knowingly go into a film that I wouldn’t pay to see, or something that didn’t challenge me.
+ - You have to believe that you can act and that you’re the right person for the job but I think it’s good to not always know how you’re going to do it. The fun part is trying to figure it out.
+ - You think that your life is going to be one way, and then, for various reasons or whatever, it doesn’t work out.
+ - These tabloid magazines – I think they’re hideous and the downfall of society.
+ - I’m good with dialect. Some actors do it immediately; other actors never quite get it. It’s something I’ve always really enjoyed and something I’ve always been pretty fast with.
+ - Being a movie star is a quality that somebody sort of embodies, and being a celebrity is something that people give to you. It has to do with being recognizable, as opposed to something that people recognize in you. I just hope to make good movies. I know that sounds simple, but it’s true.
+ - Obviously filming and working has consistently been a part of my life. I’ve never had a huge break of time when I wasn’t working on something or promoting something.
+ - I hope it never becomes normal to feel scrutinized.
+ - My mom was always active. She was always an active voter, whether it was local, state, or federal elections. My mom would take us to polling locations when we were kids.
+ - What about my brain? What about my heart? What about my kidneys and my gallbladder?
+ - I just don’t like the feeling of knowing something that somebody else doesn’t.
+ - I’m not anxious to starve myself. For me, it’s not at all sexy to be ultra-thin.
+ - When I’m single, I don’t focus. I focus on a guy if he’s a boyfriend, but I don’t focus on finding a boyfriend. They’re never around when you want them.
+ - Every film is exciting because I get new tools and cool new things to do.
+ - Everything you do is different, and you find different chords in every character that you play that strike true with you.
+ - I’m always surprised that certain actors have Twitter accounts. I guess they use it in a way that works for them. But I’d rather that people had less access to my personal life. If I could keep it that way, I’d be a happy lady.
+ - As a person in the public eye, I have always felt that if I have the good fortune of being able to shed a spotlight on different causes that I feel passionately about.
+ - I love to sing. I don’t think it’s strange for singers to act, or painters to sculpt. I don’t want to ever feel like I’m cornered into one expression of creativity because I’m successful at making films or being an actor. I guess it’s best to not paint yourself into that corner.
+
+98 quotes

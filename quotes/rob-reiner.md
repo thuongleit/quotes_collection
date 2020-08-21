@@ -1,0 +1,29 @@
+ - Everybody talks about wanting to change things and help and fix, but ultimately all you can do is fix yourself. And that’s a lot. Because if you can fix yourself, it has a ripple effect.
+ - I like writing because you can make things happen and turn out the way they never do in real life.
+ - Something is wrong here, and it’s more than easy access to guns or violence on TV. It’s about lack of love and attachment to loving people early in life.
+ - I know how sobering and exhausting parenthood is. But the reality is that our children’s future depends on us as parents. Because we know that the first years truly last forever.
+ - I hate those movies where hundreds of people get blown up and there are jokes afterward. They poison the soul.
+ - Every single person in jail for a violent crime had a nightmare childhood.
+ - Under the current system, all children under 17 are treated equally. However, while some films may be appropriate for older children to see with parental accompaniment, some are inappropriate for younger children under any circumstances. This problem needs to be addressed.
+ - This is about the daily ins and outs of a marriage. I don’t want to give away the ending, but they are trying either to make the marriage work or make the separation work. Our job is to make that interesting.
+ - I love working with my dad, but I need to be independent and do my own stuff.
+ - If you have tapped into something that is real for you, chances are you are going to tap into something that is real for someone else.
+ - I think Jews are the smartest people in the world.
+ - We agreed that we cannot let personal political attacks get in the way of doing the very best we can for California’s children.
+ - Pretty much anything you laughed at in the second half of the 20th century can be traced back to Your Show Of Shows.
+ - When you do improv, you’re everything. You’re a performer, writer, and director, because you’re moving the scene in the direction you want it to go, you’re making it up as you go, and you’re acting it.
+ - Women are more in touch with their feelings, they’re more emotionally developed, they know what’s important in life, and the men run around like idiots trying to figure that out until they meet a woman that can show them what’s important.
+ - I’ve known Alan Zweibel since 1975, and I’ve always had this sneaking suspicion that he might possess a sense of humor. After reading CLOTHING OPTIONAL, I’m almost sure he does.
+ - I act once in awhile if something comes up that seems fun. I like to do it – its a lot of fun because theres no responsibility. You let other people have the headaches. The director has all of the headaches.
+ - I’m a huge fan of Jonathan Winters. He’s influenced everyone who’s ever done improvisational comedy. You look to Jonathan Winters for inspiration. He paved the way.
+ - My fear is that the Tea Party gets a charismatic leader. Because all they’re selling is fear and anger. And that’s all Hitler sold. ‘I’m angry and I’m frightened, and you should hate that guy over there.’ And that’s what they’re doing.
+ - People can be ignorant and still have loving, human qualities.
+ - The problem we have right now in Washington is we don’t have the face of a leader.
+ - If you’ve ever made up something on the spot and made somebody laugh, you can credit Jonathan Winters with inspiration.
+ - I was also a congressman. I had decided to run for office and had become a congressman with Queen Latifah.
+ - Usually I don’t like to act in movies that I direct because it’s kind of confusing.
+ - With the films I’ve done, I’ve written on them, I’ve acted in some of them. And even ones I haven’t acted in, I’ve acted them out just to be sure another actor can do them.
+ - I was already interested in directing when I was very young. I knew that was something I was going to be doing.
+ - I was a kid who was really unhappy with being bussed. I was one of the angry people in the halls.
+
+27 quotes

@@ -1,0 +1,28 @@
+ - I’ve heard it said that people come into our lives for a reason Bringing something we must learn And we are led to those who help us most to grow If we let them and we help them in return.
+ - So much of me is made of what I learned from you; you’ll be with me like a handprint on my heart and now whatever way our stories end I know you have re-written mine by being my friend.
+ - Some things I cannot change, but ’til I try I’ll never know.
+ - Don’t wish. Don’t Start. Wishing only wounds the heart.
+ - It’s just life, so keep dancing through.
+ - Its time to trust my instincts, close my eyes and leap.
+ - I believe if I refuse to grow old, I can stay young ’til I die.
+ - Those who don’t try never look foolish.
+ - Though hope is frail, it’s hard to kill.
+ - And Goodness knows The Wicked’s lives are lonely Goodness knows The Wicked die alone.
+ - Cause getting your dreams It’s strange, but it seems A little – well – complicated There’s a kind of a sort of : cost There’s a couple of things get : lost There are bridges you cross You didn’t know you crossed Until you’ve crossed.
+ - Happy is what happens when all your dreams come true.
+ - Every project has challenges, and every project has its rewards.
+ - People like the way dreams have of sticking to the soul.
+ - Let the green girl go!
+ - Excuse me, there’s no pretense here. I happen to be genuinely self-absorbed and deeply shallow.
+ - Are people born wicked, or is wickedness trust upon them?
+ - Often we treat certain aspects of ourselves as junk, having no value. We try to throw parts of ourselves in the garbage. But a human being is an ecosystem, and everything in that system is of value to the whole.
+ - We can’t all come and go by Bubble!
+ - Popular, You’re gonna be Popular! I’ll teach you the proper ploys when you talk to boys! Little ways to flirt and flounce! I’ll show you what shoes to wear, how to fix your hair, everything that really counts, to be POPULAR!!
+ - No, you’re wrong. I’m a hundred percent callow and deeply shallow.
+ - Start a new fashion, wear your heart on your sleeveSometimes you reach what’s real just by making believeUnafraid, unashamedThere is joy to be claimed in this worldYou even might wind up being glad to be you.
+ - What we do in our lives is what gives us contentment and serenity and makes us feel like we are doing some kind of contribution.
+ - I think the arts are very important for children growing up.
+ - I don’t think it’s a secret that New York tastemakers don’t love my work.
+ - I’m through accepting limits ?cause someone says they’re so Some things I cannot change But till I try, I’ll never know! Too long I’ve been afraid of Losing love I guess I’ve lost Well, if that’s love It comes at much too high a cost!
+
+26 quotes

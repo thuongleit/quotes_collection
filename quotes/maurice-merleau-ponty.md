@@ -1,0 +1,34 @@
+ - We know not through our intellect but through our experience.
+ - The body is our general medium for having a world.
+ - The flesh is at the heart of the world.
+ - Language transcends us and yet we speak.
+ - Our body is not in space like things; it inhabits or haunts space. It applies itself to space like a hand to an instrument. And when we wish to move about, we do not move the body as we move an object.
+ - Our own body is in the world as the heart is in the organism: it keeps the visible spectacle constantly alive, it breathes life into it and sustains it inwardly, and with it forms a system.
+ - Visible and mobile, my body is a thing among things; it’s caught in the fabric of the world, and its cohesion is that of a thing. But, because it moves itself and sees, it holds things in a circle around itself.
+ - Speech is not a means in the service of an external end. It contains its own rule of usage, ethics, and view of the world, as a gesture sometimes bears the whole truth about a man.
+ - The body is to be compared, not to a physical object, but rather to a work of art.
+ - We should be sensitive to the thread of silence from which the tissue of speech is woven.
+ - The world is nothing but ’world-as-meaning.
+ - My own words take me by surprise and teach me what to think.
+ - I may speak many languages, but there remains one in which I live.
+ - I will never know how you see red and you will never know how I see it. But this separation of consciousness is recognized only after a failure of communication, and our first movement is to believe in an undivided being between us.
+ - The phenomenological world is not the bringing to explicit expression of a pre-existing being, but the laying down of being. Philosophy is not the reflection of a pre-existing truth, but, like art, the act of bringing truth into being.
+ - Nothing determines me from outside, not because nothing acts upon me, but, on the contrary, because I am from the start outside myself and open to the world.
+ - We must therefore rediscover, after the natural world, the social world, not as an object or sum of objects, but as a permanent field or dimension of existence.
+ - The photograph keeps open the instants which the onrush of time closes up forthwith; it destroys the overtaking, the overlapping, the metamorphosis of time.
+ - Socrates reminds us that it is not the same thing, but almost the opposite, to understand religion and to accept it.
+ - The perceived world is the always-presupposed foundation of all rationality, all value, and all existence.
+ - I live in the facial expressions of the other, as I feel him living in mine.
+ - To ask for an explanation is to explain the obscure by the more obscure.
+ - To understand is to experience harmony between what we aim at and what is given, between the intention and the performance – and the body is our anchorage in the world.
+ - I discover vision, not as a ‘thinking about seeing,’ to use Descartes expression, but as a gaze at grips with a visible world, and that is why for me there can be another’s gaze.
+ - Because we are in the world, we are condemned to meaning, and we cannot do or say anything without its acquiring a name in history.
+ - Like the weaver, the writer works on the wrong side of his material. He has only to do with the language, and it is thus that he suddenly finds himself surrounded by sense.
+ - It is the mission of the twentieth century to elucidate the irrational.
+ - Thinking which displaces, or otherwise defines, the sacred has been called atheistic, and that philosophy which does not place it here or there, like a thing, but at the joining of things and words, will always be exposed to this reproach without ever being touched by it.
+ - It is the essence of certainty to be established only with reservations.
+ - Machiavelli is the complete contrary of a machiavellian, since he describes the tricks of power and gives the whole show away. The seducer and the politician, who live in the dialectic and have a feeling and instinct for it, try their best to keep it hidden.
+ - The child lives in a world which he unhesitatingly believes accessible to all around him.
+ - The number and richness of man’s signifiers always surpasses the set of defined objects that could be termed signifieds. The symbolic function must always precede its object and does not encounter reality except when it precedes it into the imaginary...
+
+32 quotes

@@ -1,0 +1,32 @@
+ - I started writing a novel from the monster’s point of view. It has its own difficulties but, I’m ashamed to say, it’s much easier writing from a psychopath’s point of view than from that of their empathetic opposite.
+ - Eating good food is my favourite thing in the whole world. Nothing is more blissful.
+ - I’m almost back to being able to write as much as six hours a day .
+ - My experience with My Sister Rosa showed me, once again, that I have a much easier time of it if I sell my novels after I finish them, not before. I’m lucky that I’m in a position where I’m able to do that.
+ - My Sister Rosa was bumped from the schedule. None of my books has ever been bumped before. It freaked me out.
+ - The job of every generation is to discover the flaws of the one that came before it. That’s part of growing up, figuring out all the ways your parents and their friends are broken.
+ - Really, according to the shrinks, I am angry at everyone ever. Especially them. I am all anger and resentment all the time. Not one of them has ever suggested that maybe I lie because the world is better the way I tell it.
+ - I enjoyed Ready For This, which was created by the people behind Dance Academy and Redfern Now, and really it’s what you’d get if you crossed Redfern Now with Dance Academy.
+ - When I was little, I made up my own fairy tales, and the ghostly echo of Once upon a time shapes all the fiction Ive ever written.
+ - We still have disgraceful policies on asylum seekers and Aboriginal Australians continue to die in custody.
+ - My favourite vampires are all very scary indeed. So the idea of falling in love with one is just weird to me.
+ - One of my fave TV shows is Into the Badlands because martial arts staged well and magically and saturated colours and eye candy and coherent plot and world building. It has a strong diverse cast.
+ - Blogging, I love you no matter how out of fashion you are.
+ - I give people If You Came Softly when they demand proof that novels for teens can be as good as the best novels for adults.
+ - The acclaim for Razorhurst means even more to me than usual because, let’s be honest, Razorhurst is weird.
+ - Iloved Ashley Hope Perez’s heartbreaking Out of Darkness set in late the 1930s in a small town Texas. It should win all the YA awards.
+ - I’ve known white Australian girls from wealthy families who were sent to posh private schools, who knew all of that stuff, and I think would recognise much in Jefferson’s book. What I related to most strongly was the sexism and misogyny Margo Jefferson had to battle.
+ - Lungs, they do not like to be messed with. I give pneumonia one star and that’s for the silent p.
+ - The only reason I’ve ever had to wear a hat is to avoid skin cancer.
+ - I continued blogging, but between illness and deadlines, did not manage to blog nearly as much as last year. I’m hoping to do better in 2016.
+ - I discovered the writing of Kirsty Eagar and was blown away. Everyone needs to read her now.
+ - A difference in self loathing? Please. The only difference between a gun and a rope is the time it takes to tie the knot.
+ - I’m sure other writers have no difficulties writing nice.
+ - Speaking out and creating art that truly reflects the world we live in goes part of the way towards doing that. At least that’s what I hope.
+ - If you’re ever invited, fellow YA authors, go. It’s the first YA con I’ve been to that was overwhelming populated by teens. Wonderful!
+ - Zombies are the proletariat. Long live the workers!
+ - I spent the year behind on deadlines and everything else. It’s only now in December that I feel even slightly caught up. 2016 has to be better.
+ - I love blogging, even though apparently it’s still dying, and hate it when I have too much going on to do so regularly.
+ - I can critique the bad; I can take the good, and I can add whatever I want.
+ - The new prime minister, Malcolm Turnbull, while a vast improvement on his predecessor is not doing much, if anything, to slow that process done.
+
+30 quotes

@@ -1,0 +1,21 @@
+ - Living well and ripping your enemy’s still-beating heart out with your bare hands is the best revenge.
+ - You only live once and, usually, not even then.
+ - It’s an end of the world I guess. I guess you’d currently call it disaster movie. But really they weren’t disaster movies. They were more end of the world movies. This is more an end of the world movie.
+ - Life is one big minefield, and the only place that isn’t a minefield is the place they make the mines.
+ - Licorice is the liver of candy.
+ - If there were a Mount Rushmore of American humor, Terry Southern would be the mountain they’d carve it from.
+ - Amazing products, cats. And real simple to manufacture.
+ - Making people laugh is the lowest form of comedy.
+ - Insects are my secret fear. That’s what terrifies me more than anything – insects.
+ - Surely there must be a better gift God could have given us than life?
+ - A Madagascar Hissing Roach chasing Jerry Lewis. That would be a really neat treat.
+ - The transformation scene, where man is becoming insect and insect has become at least man and beyond that – a flying, godlike, shimmering, diaphanous, beautiful creature.
+ - It’s very easy to make insects move. Because they do move mechanically without the rippling of flesh as you mentioned. They move more like real tinker toys and you can make models of them quite easily.
+ - Television doesn’t want to admit it has those dreadful roach ads on anyway.
+ - Nothing important has ever come out of San Francisco, Rice-a-Roni aside.
+ - I don’t think television will ever be perfected until the viewer can press a button and cause whoever is on the screen’s head to explode.
+ - Working with Woody Allen is like filming Howard Hughes’s will. It’s a very mysterious and strange event. You never get a peek at the whole will.
+ - It began as this desire to do this science fiction movie about perhaps one of the last insects left that nobody’s done anything on, which is the cockroach – and truly one of the most frightening insects.
+ - Once you put yourself in the hands of the government, you could end up in Utah.
+
+19 quotes

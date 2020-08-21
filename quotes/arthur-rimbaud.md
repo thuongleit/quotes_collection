@@ -1,0 +1,66 @@
+ - What am I doing here?
+ - True life is elsewhere.
+ - A thousand Dreams within me softly burn.
+ - The only unbearable thing is that nothing is unbearable.
+ - Idle youth, enslaved to everything; by being too sensitive I have wasted my life.
+ - Eternity. It is the sea mingled with the sun.
+ - It is wrong to say: I think. One ought to say: I am thought. I is someone else.
+ - Unhappiness was my god.
+ - I turned silences and nights into words. What was unutterable, I wrote down. I made the whirling world stand still.
+ - My wisdom is as spurned as chaos. What is my nothingness, compared to the amazement that awaits you?
+ - No one’s serious at seventeen.
+ - I believe that I am in hell, therefore I am there.
+ - A thousand Dreams within me softly burn: From time to time my heart is like some oak Whose blood runs golden where a branch is torn.
+ - To whom shall I hire myself out? What beast should I adore? What holy image is attacked? What hearts shall I break? What lies shall I uphold? In what blood tread?
+ - I understand, and not knowing how to express myself without pagan words, I’d rather remain silent.
+ - Come from forever, and you will go everywhere.
+ - Now I am an outcast. I loathe my country. The best thing for me is a drunken sleep on the beach.
+ - I may die of earthly love, or of devotion.
+ - Genius is the recovery of childhood at will.
+ - Only divine love bestows the keys of knowledge.
+ - I is another.
+ - And again: No more gods! no more gods! Man is King, Man is God! – But the great Faith is Love!
+ - What a life! True life is elsewhere. We are not in the world.
+ - One evening I sat Beauty on my knees – And I found her bitter – And I reviled her.
+ - I shed more tears than God could ever have required.
+ - Is it in these bottomless nights that you sleep in exile?
+ - Morality is the weakness of the mind.
+ - As I descended into impassable rivers I no longer felt guided by the ferrymen.
+ - Romanticism has never been properly judged. Who was there to judge it? The critics!
+ - Stronger than alcohol, vaster than poetry, Ferment the freckled red bitterness of love!
+ - Once, if I remember well, my life was a feast where all hearts opened and all wines flowed.
+ - I could never throw Love out of the window.
+ - I’m intact, and I don’t give a damn.
+ - It began as research. I wrote of silences, of nights, I scribbled the indescribable. I tied down the vertigo.
+ - Life is the farce which everyone has to perform.
+ - The poet makes himself a voyant through a long, immense reasoned deranging of all his senses. All the forms of love, of suffering, of madness; he tries to find himself, he exhausts in himself all the poisons, to keep only their quintessences.
+ - Weakness or strength: you exist, that is strength. You don’t know where you are going or why you are going, go in everywhere, answer everyone. No one will kill you, any more than if you were a corpse.
+ - The Poet makes himself a seer through a long, vast and painstaking derangement of all the senses.
+ - I went out under the sky, Muse! and I was your vassal.
+ - I am the slave of my baptism. Parents, you have caused my misfortune, and you have caused your own.
+ - And from that time on I bathed in the Poem Of the Sea, star-infused and churned into milk, Devouring the green azures; where, entranced in pallid flotsam, A dreaming drowned man sometimes goes down.
+ - You will always be a hyena.
+ - Your memory and your senses will be nourishment for your creativity.
+ - The northern lights rise like a kiss to the sea.
+ - I saw that all beings are fated to happiness: action is not life, but a way of wasting some force, an enervation. Morality is the weakness of the brain.
+ - I have stretched ropes from steeple to steeple; garlands from window to window; golden chains from star to star, and I dance.
+ - But the problem is to make the soul into a monster.
+ - The Sun, the hearth of affection and life, pours burning love on the delighted earth.
+ - O seasons, O castles, What soul is without flaws? All its lore is known to me, Felicity, it enchants us all.
+ - I found I could extinguish all human hope from my soul.
+ - You feel on your lips a kiss Fluttering, a tiny scrap of life...
+ - But, truly, I have wept too much! The Dawns are heartbreaking. Every moon is atrocious and every sun bitter.
+ - Faith assuages, guides, restores.
+ - I wrote silences; nights; I recorded the unnameable.
+ - Yet this is the watch by night. Let us all accept new strength, and real tenderness. And at dawn, armed with glowing patience, we will enter the cities of glory.
+ - All day long he was docile, intelligent, good, Though sometimes changing to a darker mood. He seemed hypocritical, could tell better lies, in the dark he saw dots of colors behind closed eyes, clenched fists, put his tongue out at his elder brother.
+ - The wolf howled under the leaves And spit out the prettiest feathers Of his meal of fowl: Like him I consume myself.
+ - And I am still alive-what though, my damnation is eternal. A man who deliberately mutilates himself is truly damned, is he not? I believe that I am in hell, therefore I am.
+ - I am alone in possessing a key to this barbarous sideshow.
+ - A man who wants to mutilate himself is certainly damned, isn’t he?
+ - Hay que ser absolutamente Moderno.
+ - Oh! If only we were naked now, and free to watch our protruding parts align; To whisper – both of us – in ecstasy!
+ - In the great glasshouses streaming with condensation, the children in mourning-dress beheld marvels.
+ - What an old maid I’m getting to be. lacking the courage to be in love with death!
+
+64 quotes

@@ -1,0 +1,26 @@
+ - Just do your best. I find that if I set that goal for myself and no one else, I feel good.
+ - Kindness is something that I feel is leaving us a little bit – people are getting more self-involved.
+ - Whats more awkward than doing a shower scene? Rehearsing a shower scene.
+ - Staying at home with your kids is probably one of the hardest jobs, emotionally, physically and mentally.
+ - Before I did ‘How I Met Your Mother,’ I was not considered a comedic actress.
+ - I wanted to be a marine biologist my whole life until I graduated high school. And even now, I’m still like, ‘Maybe I’ll just quit the biz and go to Santa Cruz and study marine biology and have my own research center in the Bahamas.’ Yeah, I’m sure it would be just that smooth.
+ - One of the great things about turning 30 is figuring out how to dress comfortably and still look good.
+ - When I want to relax, I plop down on my couch and watch some great movie, usually a British drama – anything with Colin Firth.
+ - I do Pilates because it’s important for me to have a healthy back when I’m 70 so I’m not hunched over and in pain. That’s more important to me than being thin.
+ - I feel very jealous towards women who can say, “I’m going to stay home and be a mom.” I wish that’s what fulfilled me but I like to work and I have to have something for myself.
+ - I’m a big fan of a lot of graphic novels – ‘Fables,’ ‘Y: The Last Man’ and ‘The Walking Dead,’ which I like a lot more.
+ - There’s something cool about traveling when you’re young. There’s a sense of camaraderie. You learn more about yourself.
+ - I wanted to be a marine biologist my whole life until I graduated high school.
+ - I love macaroni and cheese. I could eat it every meal of the day.
+ - There’s something that feels more organic about watching a stunt that’s done by you. There’s also a feeling of accomplishment doing it yourself.
+ - I’ve read a lot of scripts and I’m really luck to be able to play a woman who’s funny and can be charming and has a mischievous side to her as well. I’m really lucky.
+ - Secretly, or maybe not so secretly, I’ve always wanted to be a rock star.
+ - I think that being a mom has made me a better person. I’m much more patient and much more chill than I was before.
+ - Models need to be unionized.
+ - I have so many single girlfriends who fit themselves into the mold of what they think a guy’s looking for. But being comfortable around men is about being comfortable with yourself. They gravitate toward confidence. Really, that is what they want to be around.
+ - In my early twenties, I had no idea who I was. And I think that’s one reason you should try different relationships. I’ve had good and bad ones, but I took away things from them that helped me become who I am.
+ - I’ve worn stilettos since I was 12, so I have abused my feet to the point of no return.
+ - I would really love to sit with Kathryn Hepburn because I find her so interesting.
+ - People always feel like there’s a big split between TV and films: I’m a television actress, I’m a film actress. Maybe that’s how it was but I feel like there’s not that separation anymore. And actors are able to kind of flow between both worlds – and connect to both audiences.
+
+24 quotes

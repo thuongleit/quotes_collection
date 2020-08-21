@@ -1,0 +1,27 @@
+ - There is no logical reason why thoughts, which have no substance, should have so much power over you, nor is there any reason why you should become their slave.
+ - It is our mind, and that alone, that chains us or sets us free.
+ - Even if death were to fall upon you today like lightning, you must be ready to die without sadness and regret, without any residue of clinging for what is left behind. Remaining in the recognition of the absolute view, you should leave this life like an eagle soaring up into the blue sky.
+ - Do not encumber your mind with useless thoughts. What good does it do to brood on the past or anticipate the future? Remain in the simplicity of the present moment.
+ - Never forget how swiftly this life will be over, like a flash of summer lightning or the wave of a hand. Now that you have the opportunity to practice dharma, do not waste a single moment on anything else.
+ - The towns and countryside that the traveller sees through a train window do not slow down the train, nor does the train affect them. Neither disturbs the other. This is how you should see the thoughts that pass through your mind when you meditate.
+ - When death finally comes you will welcome it like an old friend, being aware of how dreamlike and impermanent the pheneomenal world really is.
+ - We live under threat from painful emotions: anger, desire, pride, jealousy and so on. Therefore we should always be ready to counter these with the appropriate antidote. True practitioners may be recognized by their unfailing mindfulness.
+ - A beautiful country is a dream-like illusion. It is senseless to cling to it. Unless the inner forces of negative emotions are conquered, strife with outer enemies will never end.
+ - Day by day, be content with whatever you have and satisfied with whatever happens. Everything else will then fall naturally into place.
+ - On the day that you were born, you began to die. Do not waste a single moment more!
+ - Meditation could be said to be the Art of Simplicity: simply sitting, simply breathing and simply being.
+ - To wish happiness for others, even for those who want to do us harm, is the source of consummate happiness.
+ - Instead of allowing ourselves to be led and trapped by our feelings, we should let them disappear as soon as they form, like letters drawn on water with a finger.
+ - Love and nonattachment are the basis of true generosity.
+ - Your practice should be strengthened by the difficult situations you encounter, just as a bonfire in a strong wind is not blown out, but blazes even brighter.
+ - If you vanquish ego-clinging today, tonight you will be enlightened.
+ - Life is fragile, like the dew hanging delicately on the grass, crystal drops that will be carried away on the first morning breeze.
+ - If one were truly aware of the value of human life, to waste it blithely on distractions and the pursuit of vulgar ambitions would be the height of confusion.
+ - When sunlight falls on a crystal, lights of all colors of the rainbow appear; yet they have no substance that you can grasp. Likewise, all thoughts in their infinite variety are utterly without substance.
+ - It’s never too early or too late to benefit beings.
+ - Simply allow your thoughts and experiences to come and go, without ever grasping at them.
+ - Like a robe wears out over time and turns to rags, life wears out from day to day, from second to second.
+ - May the suffering of all beings be pacified.
+ - Once you overcome the hatred within your mind, you will discover that in the world outside, there is no longer any such thing as even a single enemy.
+
+25 quotes

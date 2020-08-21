@@ -1,0 +1,51 @@
+ - Everybody deserves a second chance in this world. That’s basically all I ask.
+ - Your life changes. Everything has to be done perfectly, and I didn’t follow that. I lived my life as if I wasn’t in the public eye. I thought, ‘I’m young. I have the right to experience new things, and if I want to go to a bar and get drunk, that’s my prerogative.’
+ - If I kind of like a guy, then I’m a fantastic flirt. But with a guy I truly like, I get painfully shy.
+ - I was raised to stand up for myself, if I feel I’m in the right. Maybe it would have been best if I’d just gone home with my swollen cheek.
+ - When I was little, my mom told me that if I lied, the devil would visit me in my sleep. To this day, if I tell even the smallest lie, I have bad dreams. Plus, I’m no good at it.
+ - Playboy is very easy to work with in the sense that you tell them what you don’t want to do-that you don’t want to show full breasts or whatever-and there are no arguments about it.
+ - I had a wonderful childhood. My parents were a dream to me.
+ - I love scars on people. Scars to me are so attractive.
+ - If God wanted us to be naked, why did he invent sexy lingerie?
+ - My inner child is not wounded.
+ - For a while I couldn’t leave the house by myself. Even if I was just grocery shopping alone, I’d get self-conscious.
+ - I could tell you what my good qualities are. There’s my honesty; I have a very wacky, kind of dry humor that a lot of people don’t get to see.
+ - I don’t think the Republican Party is against women.
+ - Playboy and I have had some talks about doing it and in what manner it would be done. Aaron Spelling did not pay me money not to do it – that’s completely false.
+ - I’m unbelievably claustrophobic, and I have really bad anxiety. There were a few moment when I was very dramatic and thought, ‘I’m not going to live through this. I’m going to hyperventilate and just die. Right here in jail.’
+ - All my fans tell me what a glamorous life I have, but I tell them how hard I work and how many nights I spend alone with my dogs, eating chicken pot pie in my bedroom.
+ - I have never had anything done. I’ve been asked if I had breast implants. Whether I did or not, it’s nobody’s business but my own.
+ - Have you ever felt like a phone call that’s been disconnected?
+ - I did not read Gone with the Wind, although I’ve seen the movie, and I read every book on Margaret Mitchell.
+ - I actually wish I had smaller breasts.
+ - I’m not a violent person and I don’t hit people.
+ - I help relationships come to an end or help them go to the next level. It can be boyfriend or girlfriend, or if you want to quit your job.
+ - I still get nervous on dates. I’ll be sitting at dinner with a guy and I have to excuse myself and go to the bathroom because I can’t breathe.
+ - This is a free country, and nobody should be criticized for their political beliefs. We’re all allowed to have our opinions.
+ - I don’t think you should do things in your personal life differently because you’re a role model.
+ - I was never hit as a child. I don’t believing in hitting, period.
+ - The lesson that I learned is that you can’t drop everything for one person. I’ve done that and that person has broken up with me, and I’ve had nothing.
+ - I realize it’s probably best to keep my politics to myself.
+ - I can’t stand unpacking.
+ - There’s not one cast member of 90210 who didn’t throw a tantrum to two themselves.
+ - That I’m an alcoholic is completely ridiculous.
+ - Labels are boring and often have nothing to with the person; it is just the way others perceive you, or choose to perceive you.
+ - I would say I’m pro-choice only because I don’t feel that it’s right that anybody in this world puts restrictions on anyone.
+ - I prefer cozy and warm to stark and sterile. You don’t have to spend a lot of money to give your place personality.
+ - I’d be more than willing to give names and phone numbers of every makeup artist I worked with.
+ - If somebody wants to have plastic surgery, more power to them. I think there’s a point where you go overboard.
+ - I’m a conservative. I was an avid supporter of Ronald Reagan; I thought he was fabulous.
+ - Charmed is fun and light, one of those shows that let you turn your brain off for an hour.
+ - I’m from the South. I’m a Southern Baptist. I have a conservative point of view. I’m a Republican.
+ - I’ve had so much happen, it’s hard to trust people.
+ - I realize that the majority of people in the entertainment business happen to be Democrats. I have no problem with that. And they should have no problem with the fact that I’m a Republican.
+ - I’m the person who stops and gives any homeless person any money that they want.
+ - I take on everybody’s problems. I have a very maternal side. I’m basically a very normal, down-to-earth person.
+ - I’m not saying that anybody should like me. Give me a chance before you form that opinion.
+ - That’s something I go through every day – you know – Am I good enough to act?
+ - It’s better to be the rejecter than the rejectee.
+ - You read stuff about yourself and you think, My God, where are these people coming up with these things? Why am I the one that they’re picking on?
+ - I definitely lived my life like I wasn’t in the public eye.
+ - Whenever I get frustrated, I tell myself, you could be working at a 7-Eleven right now, so never take for granted what you do for a living.
+
+49 quotes

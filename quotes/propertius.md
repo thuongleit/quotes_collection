@@ -1,0 +1,47 @@
+ - Let each man pass his days in that endeavor wherein his gift is greatest.
+ - Let no one be willing to speak ill of the absent.
+ - In love, a verse of Mimnermus has more power than one of Homer.
+ - I say as an expert, no one is faithful in love -Expertus dico, nemo est in amore fidelis.
+ - Cupid is naked and does not like artifices contrived by beauty.
+ - There is something beyond the grave; death does not end all, and the pale ghost escapes from the vanquished pyre.
+ - Among absent lovers, ardor always fares better.
+ - Afflicted by love’s madness all are blind.
+ - Let’s give the historians something to write about.
+ - Always in absent lovers love’s tide flows stronger.
+ - Love is fostered by confidence and constancy; he who is able to give much is able also to love much.
+ - Even a faithful mistress can be bent by constant threats.
+ - Tell me who is able to keep his bed chaste, or which goddess is able to live with one god alone?
+ - No rival will steal away my sure love; that glory will be my gray hair.
+ - There is no wide road which leads to the Muses.
+ - Something greater than the Iliad now springs to birth -Nescio quid maius nascitur Iliade.
+ - Beauty is fading, nor is fortune stable; sooner or later death comes to all.
+ - You, O money, are the cause of a restless life! Because of you we journey toward a premature death; you provide cruel nourishment for the evils of men; the seed of our cares sprouts from your head.
+ - Love can be put off, never abandoned.
+ - Let each man have the wit to go his own way.
+ - Anyone who is an enemy of mine, let him love women, but let he who is my friend rejoice in men.
+ - Fickleness has always befriended the beautiful.
+ - Faith is not sure, if you cannot turn love to quarrel; may my enemies obtain a mild mistress.
+ - Even if my strength should fail, my daring will win me praise: in might enterprises even the will to succeed is enough.
+ - Not only the bull attacks his enemies with curved horn, but also the sheep, when harmed fights back.
+ - Make room, Roman writers, make room for Greek writers; something greater than the Iliad is born.
+ - The law itself follows gold.
+ - Love presses my head with carefully placed feet, wretch that he is, until he has taught me to detest chaste girls, and to live with no counsel.
+ - Never change when love has found its home.
+ - Love never offers to anyone wings so easy that he does not hold him back with his other hand.
+ - Great is the height I just scale, but the prospect of glory gives me strength.
+ - If you see anything, always deny that you’ve seen; or if perchance something pains you, deny that you’re hurt.
+ - Age makes all things greater after their death; a name comes to the tongue easier from the grave.
+ - That death is best which comes appropriately at a ripe age.
+ - A cause breaks or exalts a soldier’s strength; unless that cause is just, shame will make him throw his weapons away.
+ - If she is pleasing to one man, a girl is taken care of.
+ - Allow me, whom Fortune always desires to bury, lay down my life in these final trivialities. Many have freely died in longlasting loves, among whose number may the earth cover me as well.
+ - Fame due to the achievements of the mind never perishes.
+ - Do not unto another that which you would not he should do unto you.
+ - In great things it is enough even to have willed.
+ - The eyes are the pioneers that first announce the soft tale of love.
+ - And nobility will not be able to help you with your love; Love does not know how to cede to ancestral images.
+ - Every man now worships gold, all other reverence being done away.
+ - By gold all good faith has been banished; by gold our rights are abused; the law itself is influenced by gold, and soon there will be an end of every modest restraint.
+ - To each man at his birth nature has given some fault.
+
+45 quotes

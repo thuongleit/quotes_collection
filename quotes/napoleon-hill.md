@@ -1,0 +1,502 @@
+ - Do not wait. The time will never be just right. Start where you stand, and work whatever tools you may have at your command and better tools will be found as you go along.
+ - If you can't do great things, do small things in a great way.
+ - A goal is a dream with a deadline.
+ - Whatever the mind can conceive and believe, it can achieve.
+ - A quitter never wins and a winner never quits.
+ - Our only limitations are those we set up in our own minds.
+ - The way of success is the way of continuous pursuit of knowledge.
+ - Action is the real measure of intelligence.
+ - You are the master of your destiny. You can influence, direct and control your own environment. You can make your life what you want it to be.
+ - A genius is simply one who has taken full possession of his own mind and directed it toward objectives of his own choosing, without permitting outside influences to discourage or mislead him.
+ - When your desires are strong enough, you will appear to possess superhuman powers to achieve.
+ - The man who does more than he is paid for will soon be paid for more than he does.
+ - The starting point of all achievement is desire. Keep this constantly in mind. Weak desire brings weak results, just as a small fire makes a small amount of heat.
+ - Set your mind on a definite goal and observe how quickly the world stands aside to let you pass.
+ - Tell the world what you intend to do, but first show it.
+ - When defeat comes, accept it as a signal that your plans are not sound, rebuild those plans, and set sail once more toward your coveted goal.
+ - Every adversity, every failure, every heartache carries with it the seed of an equal or greater benefit.
+ - Procrastination is the bad habit of putting of until the day after tomorrow what should have been done the day before yesterday.
+ - If you are not learning while you're earning, you are cheating yourself out of the better portion of your compensation.
+ - When you are able to maintain your own highest standards of integrity - regardless of what others may do - you are destined for greatness.
+ - Strength and growth come only through continuous effort and struggle.
+ - Don’t wait. The time will never be just right.
+ - Effort only fully releases its reward after a person refuses to quit.
+ - First comes thought; then organization of that thought, into ideas and plans; then transformation of those plans into reality. The beginning, as you will observe, is in your imagination.
+ - Plan your work and work your plan.
+ - More gold had been mined from the mind of men than the earth it self.
+ - You either control your mind or it controls you.
+ - Happiness is found in doing, not merely possessing. 
+ - You may be hurt if you love too much, but you will live in misery if you love too little.
+ - Set your target and keep trying until you reach it.
+ - The starting point of all achievement is desire.
+ - Patience, persistence and perspiration make an unbeatable combination for success.
+ - A positive mind finds a way it can be done; a negative mind looks for all the ways it can’t be done.
+ - Self-disciplined begins with the mastery of your thoughts. If you don’t control what you think, you can’t control what you do. Simply, self-discipline enables you to think first and act afterward.
+ - Great achievement is usually born of great sacrifice, and is never the result of selfishness.
+ - Burn the boats as you enter the island and you will take the island.
+ - Focus on the possibilities for success, not on the potential for failure.
+ - Life is a game board. Time is your opponent. If you procrastinate, you will lose the game. You must make a move to be victorious.
+ - Start going the extra mile and opportunity will follow you.
+ - Time is valuable, and when it is gone, it is gone. Time is wealth, and unlike money, when it is gone, you cannot replace it.
+ - Persistence is to the character of man as carbon is to steel.
+ - Control your own mind, and you may never be controlled by the mind of another.
+ - You can be anything you want to be, if only you believe with sufficient conviction and act in accordance with your faith; for whatever the mind can conceive and believe, it can achieve.
+ - Failure cannot cope with persistence.
+ - Achieve self-mastery over your thoughts, and constantly direct them toward your goals and objectives. Learn to focus your attention on the goals that you want to achieve and on finding ways to achieve those goals.
+ - Life is a mirror of your consistent thoughts.
+ - Your big opportunity may be right where you are now.
+ - Think twice before you speak, because your words and influence will plant the seed of either success or failure in the mind of another.
+ - You have a brain and mind of your own. Use it, and reach your own decisions.
+ - Education comes from within; you get it by struggle and effort and thought.
+ - Success is good at any age, but the sooner you find it, the longer you will enjoy it.
+ - Willpower and desire, when properly combined, make an irresistible pair.
+ - O Divine Providence, I ask not for more riches but more wisdom with which to make wiser use of the riches you gave me at birth, consisting in the power to control and direct my own mind to whatever ends I might desire.
+ - When life gives you lemons, make lemonade and sell it to all of those who get thirsty from complaining.
+ - The persistent man with a poor plan stands a better chance of winning than the man with a perfect plan who hesitates and waivers in carrying it out.
+ - A positive mental attitude is the right mental attitude.
+ - It is literally true that you can succeed best and quickest by helping others to succeed.
+ - Any idea, plan, or purpose may be placed in the mind through repetition of thought.
+ - Wise men, when in doubt whether to speak or to keep quiet, give themselves the benefit of the doubt, and remain silent.
+ - Man, alone, has the power to transform his thoughts into physical reality; man, alone, can dream and make his dreams come true.
+ - The ladder of success is never crowded at the top.
+ - Remember that it is not the lawyer who knows the most law, but the one who best prepares his case, who wins.
+ - No person may enjoy outstanding success without good health.
+ - Opportunity often comes disguised in the form of misfortune, or temporary defeat.
+ - Nothing is impossible to the person who backs DESIRE with enduring FAITH.
+ - I am thankful for the adversities, which have crossed my pathway, for they taught me tolerance, sympathy, self-control, perseverance and some other virtues I might never have known.
+ - You can always become the person you would have liked to be.
+ - Create a definite plan for carrying out your desire and begin at once, whether you ready or not, to put this plan into action.
+ - Life reflects your own thoughts back to you.
+ - What is initiative? I’ll tell you: It is doing the right thing without being told.
+ - The worst of all human ailments: indecision.
+ - One way to avoid criticism is to do nothing and to be a nobody. The world will then not bother you.
+ - The great leaders of business, industry and finance, and the great artists, poets, musicians and writers all became great because they developed the power of self-motivation.
+ - Put your foot upon the neck of the fear of criticism by reaching a decision not to worry about what other people think, do, or say.
+ - There are no limitations to the mind except those we acknowledge.
+ - Fear is faith in reverse gear.
+ - Faith is the head chemist of the mind.
+ - The jack-of-all-trades seldom is good at any. Concentrate all of your efforts on one definite chief aim.
+ - Don’t be afraid of a little opposition. Remember that the ‘Kite’ of success generally rises AGAINST the wind of Adversity, not with it.
+ - When you begin to think and grow rich, you will observe that riches begin with a state of mind, with definiteness of purpose, with little or no hard work.
+ - Reduce your plan to writing. The moment you complete this, you will have definitely given concrete form to the intangible desire.
+ - Every time a man rises from defeat, he becomes mentally and emotionally stronger. Thus, in time, one may actually find his self – his true, inner self – through temporary defeat.
+ - Every human brain is both a broadcasting and receiving station for the vibration of thought.
+ - If you must let someone down, be sure it isn’t the friend who helped you up when you were down.
+ - Lack of loyalty is one of the major causes of failure in every walk of life.
+ - What a different story men would have to tell if only they would adopt a DEFINITE PURPOSE, and stand by that purpose until it had time to become an all-consuming obsession!
+ - Enthusiasm is the steam that drives the engine.
+ - Faith is the eternal elixir. It gives life, power, and action to the impulse of thought.
+ - Everyone enjoys doing the kind of work for which he is best suited.
+ - Within every setback or obstacle or disadvantage there is the seed of an equal or opposite or greater advantage or benefit.
+ - Failure is a trickster with a keen sense of irony and cunning. It takes great delight in tripping one when success is almost within reach.
+ - Within every adversity is an equal and opposite benefit.
+ - Faith and Fear make poor bedfellows. Where one is found, the other cannot exist.
+ - You can do it if you believe you can.
+ - Success in its highest and noblest form calls for peace of mind and enjoyment and happiness which come only to the man who has found the work that he likes best.
+ - One who has loved truly can never lose entirely.
+ - Success in life depends upon happiness, and happiness is found in no other way than through SERVICE that is rendered in a spirit of love.
+ - The habit of taking the line of least resistance makes all rivers and some men crooked.
+ - Every company has room for the man who has a definite plan of action which is to the advantage of that company.
+ - Through some strange and powerful principle of mental chemistry which she has never divulged, nature wraps up in the impulse of strong desire, that something which recognizes no such word as impossible, and accepts no such reality as failure.
+ - Your deliberate Chief Aim in life should be selected with deliberate care.
+ - If you can’t do great things, do small things in a great way. Don’t wait for great opportunities. Seize common, everyday ones and make them great.
+ - The most interesting thing about a postage stamp is the persistence with which it sticks to its job.
+ - Imagination is the most marvelous, miraculous, inconceivably powerful force the world has ever known.
+ - Most great people have attained their greatest success just one step beyond their greatest failure.
+ - Happiness may be found only by helping others to find it.
+ - The number one reason people fail in life is because they listen to their friends, family, and neighbors.
+ - Every person who wins in any undertaking must be willing to burn his ships and cut all sources of retreat.
+ - Dreams come true when desire transforms into concrete actions.
+ - If you have a strong belief in yourself, in what you are doing and what you want to do, no adversity is too difficult to overcome.
+ - Knowledge is only potential power. It becomes power only when, and if, it is organized into definite plans of action, and directed to a definite end.
+ - There is nothing that belief plus a burning desire cannot make real.
+ - Desire is the starting point of all achievement, not a hope, not a wish, but a keen pulsating desire which transcends everything.
+ - Victory is always possible for the person who refuses to stop fighting.
+ - Self-control is solely a matter of thought-control!
+ - It is strange, but true, that the most important turning-points of life often come at the most unexpected times and in the most unexpected ways.
+ - Cherish your visions and your dreams, as they are the children of your soul; the blueprints of your ultimate achievements.
+ - The Master Mind principle: Two or more people actively engaged in the pursuit of a definite purpose with a positive mental attitude, constitute an unbeatable force.
+ - There is one quality which one must possess to win, and that is definiteness of purpose, the knowledge of what one wants, and a burning desire to possess it.
+ - Success attracts success and failure attracts failure because of the law of harmonious attraction.
+ - Practical dreamers do not quit.
+ - The strongest oak of the forest is not the one that is protected from the storm and hidden from the sun. It’s the one that stands in the open where it is compelled to struggle for its existence against the winds and rains and the scorching sun.
+ - You have absolute control over just one thing, your thoughts. This divine gift is the sole means by which you may control your destiny. If you fail to control your mind, you will control nothing else.
+ - The great master key to riches is nothing more or less than the self-discipline necessary to help you take full and complete possession of your own mind.
+ - The basis of persistence is the Power of Will.
+ - Every failure is a blessing in disguise, providing it teaches some needed lesson one could not have learned without it. Most so-called Failures are only temporary defeats.
+ - Every failure brings with it the seed of an equivalent success.
+ - Enthusiasm, if fueled by inspiration and perseverance, travels with passion and its destination is excellence.
+ - The man of decision cannot be stopped! The man of indecision cannot be started! Take your own choice.
+ - One of the most important principles of success is developing the habit of going the extra mile.
+ - You can start right where you stand and apply the habit of going the extra mile by rendering more service and better service than you are now being paid for.
+ - Remember, no more effort is required to aim high in life, to demand abundance and prosperity, than is required to accept misery and poverty.
+ - Whatever the mind can conceive and believe, the mind can achieve regardless of how many times you may have failed in the past or how lofty your aims and hopes may be.
+ - Success requires no explanations. Failure permits no alibis.
+ - Deliberately seek the company of people who influence you to think and act on building the life you desire.
+ - If you neglect to exercise self-control, you are not only likely to injure others, but you are sure to injure yourself!
+ - The subconscious mind is more susceptible to influence by impulses of thought mixed with ‘feeling’ or emotion, than by those originating solely in the reasoning portion of the mind.
+ - The turning point in the life of those who succeed usually comes at the moment of some crisis.
+ - Your greatness is here and now. Your happiness is here and now.
+ - No one can make you jealous, angry, vengeful or greedy. Unless you let him.
+ - Whatever the mind of man can conceive and believe, it can achieve. Thoughts are things! Strong, deeply rooted desire is the starting point of all achievement.
+ - Desire backed by faith knows no such word as impossible.
+ - You have within you all the power you need with which to get whatever you want or need in this world.
+ - A man who can speak two languages is worth two men.
+ - It takes half your life before you discover life is a do-it-yourself project.
+ - Remember when your plans fail, that temporary defeat is not permanent failure.
+ - Sex energy is the creative energy of all geniuses. There never has been, and never will be a great leader, builder or artist lacking in the driving force of sex.
+ - You are the sum total of your dominating or most prominent thoughts.
+ - If you do not conquer self, you will be conquered by self.
+ - But sooner or later the man who wins is the one who thinks he can.
+ - If you are influenced by the opinions of others, you will have no DESIRE of your own.
+ - What you think, so you will become.
+ - Are you waiting for success to arrive, or are you going out to find where it is hiding?
+ - Indecision, doubt and fear. The members of this unholy trio are closely related; where one is found, the other two are close at hand.
+ - Decide where you are going and how you are to get there. Then make a start from where you now stand.
+ - Positive mental attitude is the right mental attitude in all circumstances. Success attracts more success while failure attracts more failure.
+ - One of the most common causes of failure is the habit of quitting when one is overtaken by temporary defeat.
+ - If you truly want to succeed, be prepared to go the extra mile.
+ - It is always your next move.
+ - Every problem comes with an equal or greater opportunity.
+ - Anybody can wish for riches, and most people do, but only a few know that a definite plan, plus a burning desire for wealth, are the only dependable means of accumulating wealth.
+ - No man ever achieved worth-while success who did not, at one time or other, find himself with at least one foot hanging well over the brink of failure.
+ - Success comes to those who become success conscious. Failure comes to those who indifferently allow themselves to become failure conscious.
+ - You cannot entirely control your subconscious mind, but you can voluntarily hand over to it any plan, desire, or purpose which you wish transformed into concrete form.
+ - If you can conceive something in your mind and believe it to be true, then you can achieve it.
+ - No one ever is defeated until defeat has been accepted as a reality.
+ - Faith is a state of mind which may be induced, or created, by affirmation or repeated instructions to the subconscious mind, through the principle of auto-suggestion .
+ - Before success comes in any man’s life, he’s sure to meet with much temporary defeat and, perhaps some failures. When defeat overtakes a man, the easiest and the most logical thing to do is to quit. That’s exactly what the majority of men do.
+ - Celebrate your success and stand strong when adversity hits, for when the storm clouds come in, the eagles soar while the small birds take cover.
+ - When riches begin to come they come so quickly, in such great abundance, that one wonders where they have been hiding during all those lean years.
+ - I know that I have the ability to achieve the object of my Definite Purpose in life, therefore, I demand of myself persistent, continuous action toward its attainment, and I here and now promise to render such action.
+ - It takes more than a college degree to make one a person of education. Any person who is educated is one who has learned to get whatever he wants in life without violating the rights of others.
+ - Success come to those who become success conscious.
+ - Fear is a habit, so is self pity, defeat, anxiety, despair, hopelessness and resignation. You can eliminate all of these negative habits with two simple resolves: I can and I will.
+ - Your mental attitude is someting you can control outright and you must use self-discipline until you create a Positive Mental Attitude – your mental attitude attracts to you everything that makes you what you are.
+ - Self-confidence results, first, from exact knowledge; second, the ability to impart that knowledge.
+ - Every mind needs friendly contact with other minds, for food of expansion and growth.
+ - Self-sacrifice is essential to leadership. You will give, give all the time.
+ - The mind becomes withered, stagnant, narrow and closed unless it searches for new ideas.
+ - Positive and negative emotions cannot occupy the mind at the same time.
+ - Every adversity contains, at the same time, a seed of equivalent opportunity!
+ - The one who tries to get something for nothing generally winds up getting nothing for something.
+ - We are all salesman regardless of our calling. But not all of us are Master Salesmen.
+ - Fears are nothing more than a state of mind.
+ - Ideas are the beginning points of all fortunes.
+ - Out of resistance comes strength.
+ - Definiteness of purpose with positive mental attitude is the starting point of all worthwhile achievement.
+ - A negative attitude toward others can never bring me success.
+ - Your own mental attitude is your real boss.
+ - Truly, thoughts are things, and their scope of operation is the world itself.
+ - The Ability to influence people without irritating them is the most profitable art known to man.
+ - Until you have learned to be tolerant with those who do not always agree with you, you will be neither successful nor happy.
+ - It is now a documented principle of psychology that human beings subconsciously move in the direction of their most dominant thought.
+ - If it isn’t your job to do it, perhaps it is your opportunity.
+ - Render more service than you are paid for and eventually you will be paid more for less services rendered.
+ - You either ride life or it rides you. Your mental attitude determines who is ‘rider’ and who is ‘horse.’
+ - A fearless man thrives on far horizons.
+ - Successful people, in all callings, never stop acquiring specialized knowledge related to their major purpose, business, or profession.
+ - The world breaks everyone, and afterward, some are strong at the broken places. If you cannot do great things, do small things in a great way. Great achievement is usually born of great sacrifice, and is never the result of selfishness.
+ - The world has the habit of making room for the man whose actions show that he knows where he is going.
+ - Keep your mind fixed on what you want in life: not on what you don’t want.
+ - Count that day lost whose descending sun finds you with no good deeds done.
+ - The best way to succeed in this world is to act on the advice you give to others.
+ - Yesterday is gone forever. Make the most of today and tomorrow if you wish to make up for lost time.
+ - You give before you get.
+ - Sex energy is the creative energy of all creative geniuses.
+ - The moment you commit and quit holding back, all sorts of unforeseen incidents, meetings, and material assistance will rise up to help you. The simple act of commitment is a powerful magnet for help.
+ - No one can keep you down but yourself.
+ - Intelligent planning is essential for success in any undertaking designed to accumulate riches.
+ - No man can become a permanent success without taking others along with him.
+ - Keep on keeping on, no matter how hard the going may be.
+ - Good intentions are useless until they are expressed in appropriate action!
+ - Genuine wisdom is usually conspicuous through modesty and silence.
+ - Nature cannot be tricked or cheated. She will give up to you the object of your struggles only after you have paid her price.
+ - FAITH is the only known antidote for FAILURE!
+ - Money without brains is always dangerous.
+ - Fear is the tool of a man-made devil.
+ - That man is rich indeed who has more friends than enemies, fears no one, and is so busy building that he has no time to devote to tearing down another’s hopes and plans.
+ - The state of mind must be belief, not mere hope or wish. Open-mindedness is essential for belief. Closed minds do not inspire faith, courage, and belief.
+ - If you compromise with your own conscience, you will weaken your conscience. Soon your conscience will fail to guide you and you will never have real wealth based on peace of mind.
+ - The greatest achievement was, at first, and for a time, but a dream.
+ - A resourceful person will always make opportunity fit his or her needs.
+ - Every failure, every adversity, every heartache may be a blessing in disguise providing it softens the animal portion of our nature.
+ - The surest way of finding peace of mind is that which helps the greatest number of others to find it.
+ - Everyone faces defeat. It may be a stepping-stone or a stumbling block, depending on the mental attitude with which it is faced.
+ - Most misfortunes are the results of misused time.
+ - One of the most valuable things any person can learn is the art of using the knowledge and experience of others.
+ - The average person would have quit at the first failure. That’s why there have been many average men and only one Edison.
+ - Our minds become magnetized with the dominating thoughts we hold in our minds and these magnets attract to us the forces, the people, the circumstances of life which harmonize with the nature of our dominating thoughts.
+ - There is no such thing as Something for nothing.
+ - When one is truly ready for a thing, it puts in its appearance.
+ - It takes a habit to replace a habit.
+ - Live each day as if it were your last, and you’ll develop a keen respect for opportunity.
+ - Quick riches are more dangerous than poverty.
+ - The best way to sell yourself to others is first to sell the others to yourself.
+ - Keep your mind focused on what you want and act accordingly. You will achieve success!
+ - There is a difference between wishing for a thing and being ready to receive it.
+ - To succeed in life, succeed at being yourself.
+ - Your attitude towards problems, difficulties, and adversities is the most important factor in overcoming them.
+ - Remember that your dominating focus attracts, through a definite law of nature, by the shortest and most convenient route, their physical counterpart. Be careful of what you focus on.
+ - If you are sure you are right, you need not worry what the world thinks.
+ - We become who we hang out with.
+ - Thoughts mixed with definiteness of purpose, persistence, and a burning desire are powerful things.
+ - Opinions are the cheapest commodities on earth. Everyone has a flock of opinions ready to be wished upon anyone who will accept them. If you are influenced by “opinions” when you reach DECISIONS, you will not succeed in any undertaking.
+ - Both success and failure are largely the results of HABIT!
+ - Indecision is the seedling of fear.
+ - You might well remember that nothing can bring you success but yourself.
+ - If you fail to control your own mind, you may be sure you will control nothing else.
+ - It has been said that man can create anything which he can imagine.
+ - Failure is nature’s plan to prepare you for great responsibilities.
+ - If you have no major purpose, you are drifting toward certain failure.
+ - The person who stops studying merely because he has finished school is forever hopelessly doomed to mediocrity, no matter what may be his calling. The way of success is the way of continuous pursuit of knowledge.
+ - No alibi will save you from accepting the responsibility.
+ - Understand that the only way to get happiness is by giving it away to others.
+ - NOTHING which life has to offer is worth the price of worry.
+ - Enthusiasm is contagious, and the person who has it, under control, is generally welcome in any group of people.
+ - You will never be greater than the thoughts that dominate your mind.
+ - A mind dominated by positive emotions, becomes a favorable abode for the state of mind known as faith.
+ - Knowledge will not attract money, unless it is organized, and intelligently directed, through practical plans of action, to the definite end of accumulation of money.
+ - There can never be success without happiness, and no man can be happy without dispensing happiness to others.
+ - A master salesman is one who takes the offensive and never the defensive sale of an argument, if argument arises.
+ - Knowledge is only potential power.
+ - Wishing will not bring riches. But desiring riches with a state of mind that becomes an obsession, then planning definite ways and means to acquire riches, and backing those plans with persistence which does not recognize failure, will bring riches.
+ - Those who succeed in an outstanding way seldom do so before the age of 40. More often, they do not strike their real pace until they are well beyond the age of 50.
+ - The most damaging forms of intolerance are connected with religious, racial and political differences of opinion.
+ - It is a point that I repeat over and over again in teaching public speaking. It is not so much what you say as it is the tone and manner in which you say it that makes a lasting impression.
+ - Like the wind that carries one ship east and another west, the law of autosuggestion will lift you up or pull you down according to the way that you set your sails of thought.
+ - The successful man or woman always looks for the advantage or benefit in every situation and lo and behold, they always find it.
+ - Seek the counsel of men who will tell you the truth about yourself, even if it hurts you to hear it. Mere commendation will not bring the improvement you need.
+ - Strength, both physical and spiritual, is the product of struggle!
+ - The development of self-confidence starts with the elimination of this demon called fear.
+ - Friendship freely given and gratefully received is one of life’s greatest gifts.
+ - The fear of criticism is at the bottom of the destruction of most ideas which never reach the planning and action stage.
+ - Successful men and women become successful because they acquire the habit of thinking in terms of success. Get the success habit in the small circumstances you control, and soon you’ll be controlling the bigger ones.
+ - Every man is what he is, because of the DOMINATING THOUGHTS which he permits to occupy his mind.
+ - It is well worth remembering that the customer is the most important factor in any business. If you don’t think so, try getting along without him for a while.
+ - Opportunity never sneaks up on those who straddle the fence of indecision.
+ - All personal achievement starts within the mind of the individual-knowing your problem is the first step in finding the solution.
+ - Persistence is nothing more than Concentrated Effort mixed with Determination and Faith.
+ - Most ideas are stillborn and need the breath of life injected into them through definite plans of immediate action. The time to nurse an idea is at the time of its birth. Every minute it lives gives it a better chance of surviving.
+ - If you must speak ill of another, do not speak it, write it in the sand near the water’s edge.
+ - No individual has sufficient experience, education, native ability and knowledge to ensure the accumulation of a great fortune, without the cooperation of other people.
+ - I fully realize that no wealth or position can long endure, unless built upon truth and justice, therefore, I will engage in no transaction which does not benefit all whom it affects.
+ - When two or more people coordinate in a spirit of harmony and work toward a definite objective or purpose, they place themselves in a position, through the alliance, to absorb the power directly from the great storehouse of Infinite Intelligence.
+ - Lack of persistence is one of the major causes of failure. Moreover, experience with thousands of people has proved that lack of persistence is a weakness common to the majority of men. It is a weakness which may be overcome with effort.
+ - Without doubt, the most common weakness of all human beings is the habit of leaving their minds open to the negative influence of other people.
+ - The way to develop decisiveness is to start right where you are, with the very next question you face.
+ - One of the main weaknesses of mankind is the average man’s familiarity with the word ’impossible.
+ - You are searching for the magic key that will unlock the door to the source of power; and yet you have the key in your own hands, and you may use it the moment you learn to control your thoughts.
+ - The successful leader must plan his work and work his plan.
+ - Love is, without question life’s greatest experience.
+ - FAITH is the element, the “chemical” which, when mixed with prayer, gives one direct communication with Infinite Intelligence.
+ - Money is either a good or bad influence, according to the character of the person who possesses it.
+ - Worry is a state of mind based on fear.
+ - FAITH is the only agency through which the cosmic force of Infinite Intelligence can be harnessed and used by man.
+ - There is no hope of success for the person who does not have a central purpose, or definite goal at which to aim.
+ - The habit of expressing loosely organized opinions is one of the most destructive of habits.
+ - Taking possession of your positive self will put you on the success beam that you may ride triumphantly to whatever heights of achievement you desire.
+ - To become successful you must be a person of action. Merely to “know” is not sufficient. It is necessary both to know and do.
+ - Who said it could not be done? And tell me what great victories does he have to his credit which qualifies him to judge what can and can’t be accomplished.
+ - No man can afford to express, through words or acts, that which is not in harmony with his own beliefs, and if he does so, he must pay by the loss of his ability to influence others.
+ - The one and only thing over which you have complete and total control is how you focus your own mind. Luckily, this determines everything else.
+ - You can’t change where you started, but you can change the direction you are going. It’s not what you are going to do, but it’s what you are doing now that counts.
+ - The majority of men meet with failure because of their lack of persistence in creating new plans to take the place of those which fail.
+ - No man has a chance to enjoy permanent success until he begins to look in a mirror for the real cause of all his mistakes.
+ - Edison failed 10,000 times before he made the electric light. Do not be discouraged if you fail a few times.
+ - The most practical of all methods for controlling the mind is the habit of keeping it busy with a definite purpose, backed by a definite plan.
+ - The imagination is the workshop of the soul, where all the plans for individual achievement are shaped.
+ - I believe that close association with one who refuses to compromise with circumstances he does not like, is an asset that can never be measured in terms of money.
+ - An educated person is not necessarily the one who has the knowledge, but the one who knows where to get it when needed.
+ - First you fuel the desire, then the desire will fuel you.
+ - No one is ready for a thing until he believes he can acquire it.
+ - The reason man may become the master of his own destiny is because he has the power to influence his own subconscious mind.
+ - No man is ever whipped until he quits – in his own mind.
+ - There is one weakness in people for which there is no remedy. It is the universal weakness of LACK OF AMBITION!
+ - Drifting, without aim or purpose, is the first cause of failure.
+ - The person who takes no chances generally has to take whatever is left when others are through choosing.
+ - All achievements, all earned riches, have their beginning in an idea.
+ - A closed mind stumbles over the blessings of life without recognizing them.
+ - Every individual has the power to change his or her material or financial status by first changing the nature of his or her beliefs.
+ - No man can succeed in a line of endeavor which he does not like.
+ - Knowledge has no value except that which can be gained from its application toward some worthy end.
+ - You are fortunate if you have learned the difference between temporary defeat and failure, more fortunate still if you have learned the truth that the very seed of success is dormant in every defeat that you experience.
+ - Your real courage shows best in the hour of adversity.
+ - Criticism will plant FEAR in the human heart, or resentment, but it will not build love or affection.
+ - When you do not know what to do or which way to turn, smile. This will relax your mind and let the sunshine of happiness into your soul.
+ - Remember, the thoughts that you think and the statements you make regarding yourself determine your mental attitude. If you have a worthwhile objective, find the one reason why you can achieve it rather than hundreds of reasons why you can’t.
+ - All the breaks you need in life wait within your imagination, Imagination is the workshop of your mind, capable of turning mind energy into accomplishment and wealth.
+ - Most so called FAILURES are only temporary defeats.
+ - The single most influential force that controls your attitudes, beliefs, capabilities and emotions is repetition – the words you silently use, over and over again, in your internal dialogue with yourself.
+ - Successful people are decisive people. When opportunities come their way, they evaluate them carefully, make a decision, and take appropriate action. They know that indecision wastes time that could be spent on more productive tasks.
+ - Habits are first cobwebs, then cables.
+ - Keep this constantly in mind. Weak desires bring weak results, just as a small amount of fire makes a small amount of heat. When your desires are strong enough you will appear to possess superhuman powers to achieve.
+ - Your mental attitude is the most dependable key to your personality.
+ - Fortunate is the person who has developed the self-control to steer a straight course towards his objectives in life, without being swayed from his purpose by either commendation or condemnation.
+ - All great truths are simple in final analysis, and easily understood; if they are not, they are not great truths.
+ - You have to understand you cannot have faith and fear at the same time; you can only have one or the other.
+ - No man achieves great success who is unwilling to make personal sacrifices.
+ - The man who always takes and never gives is not a leader. He is a parasite.
+ - Success is knowing what you’re doing, loving what you’re doing, and believing what you’re doing.
+ - You wouldn’t desire something if you didn’t have the talent to carry it out.
+ - Moral courage further demands that you assume the responsibility for your own acts.
+ - Never, in the history of the world, has there been such abundant opportunity as there is now for the person who is willing to serve before trying to collect.
+ - Fortunes gravitate to men whose minds have been prepared to attract them just as surely as water gravitates to the ocean.
+ - Your reputation is that which people think you are; your character is that which you are.
+ - Those who can’t take directions graciously have no business giving them.
+ - Men take on the nature and the habits and the power of thought of those with whom they associate in a spirit of sympathy and harmony.
+ - Every person who wins in any undertaking must be willing to cut all sources of retreat. Only by doing so can one be sure of maintaining that state of mind known as a burning desire to win – essential to success.
+ - You cannot become a power in your community nor achieve enduring success in any worthy undertaking until you become big enough to blame yourself for your own mistakes and reverses.
+ - When you have talked yourself into what you want, right there is the place to stop talking and begin saying it with deeds.
+ - It is one thing to want money-everyone wants more-but it is something entirely different to be worth more!
+ - If your environment is not to your liking, change it!
+ - Self-confidence may be mistaken for egotism if it is not accompanied by humility of the heart.
+ - Genius is merely the capacity for taking infinite pains.
+ - Nothing was ever created by a human being that was not first created in the imagination through desire and then transformed into reality through concentration.
+ - Before you can control conditions, you must first control yourself.
+ - Nothing is more tragic – or more common – than mental inertia.
+ - The power to think as you wish to think is the only power over which you have absolute control.
+ - A mind ill with negative attitudes is more dangerous than a sick body, for its sickness is always contagious.
+ - You have a tremendous advantage over the man who does you an injury: You have it within your power to forgive him, while he has no such advantage over you.
+ - Riches begin in the form of thought.
+ - It’s a sure thing that you’ll not finish if you don’t start.
+ - Every successful person finds that great success lies just beyond the point when they’re convinced their idea is not going to work.
+ - When you lose your sense of humor, get a job running an elevator, because your life will be a series of Ups and Downs anyway.
+ - The only trouble with this world today lies in our lack of understanding of the power of imagination.
+ - Hold a picture of yourself long and steadily enough in your mind’s eye, and you will be drawn toward it.
+ - Love attracts only one thing and that thing is love.
+ - One sound idea is all that you need to achieve success.
+ - If the thing you wish to do is right, and you believe in it, go ahead and do it!
+ - If you don’t know what you want, don’t say you never had a chance.
+ - Conceit is a fog that envelops a man’s real character beyond his own recognition. It weakens his native ability and strengthens all his inconsistencies .
+ - If you make your prayers an expression of gratitude and thanksgiving for the blessings you have already received, instead of requests for what you do not have, you will obtain results a great deal faster.
+ - You owe it to yourself not to permit your emotions to place your happiness in the keeping of another person.
+ - I will engage in no transaction which does not benefit all whom it affects.
+ - Have faith in yourself; faith in the infinite.
+ - God seems to throw Himself on the side of the man who knows exactly what he wants, if he is determined to get JUST THAT!
+ - Every man’s own character is written so all who will may read it, in the expression of his eyes, the tone of his voice, the posture of his body, the style of his clothes, and the nature of his deeds!
+ - The imagination is literally the workshop wherein are fashioned all plans created by man.
+ - You can be absolutely certain that when you feel you are being most unfairly tested, you are being prepared for great achievement.
+ - No man can become a great leader of men unless he has the milk of human kindness in his own heart, and leads by suggestion and kindness, rather than by force.
+ - Success is very largely a matter of adjusting one’s self to the ever-varying and changing environments of life, in a spirit of harmony and poise.
+ - Your real boss is the one who walks around under your hat.
+ - If you love, absolutely love what you are doing, chances are excellent that you will succeed. There is nothing so exhausting as working on a job you don’t like.
+ - Successful people move on their own initiative but they know where they are going before they start.
+ - Practical dreamers have always been and always will be the pattern-makers of civilization.
+ - One must marry one’s feelings to one’s beliefs and ideas. That is probably the only way to achieve a measure of harmony in one’s life.
+ - If you can’t forgive, don’t ask to be forgiven.
+ - Duty does not require any person to submit to the destruction of his personal ambitions and the right to live his own life in his own way.
+ - If your imagination leads you to understand how quickly people grant your requests when those requests appeal to their self- interest, you can have practically anything you go after.
+ - People refuse to take chances in business, because they fear the criticism which may follow if they fail. The fear of criticism, in such cases is stronger than the DESIRE for success.
+ - Do not EXPECT troubles as they have a tendency not to disappoint.
+ - Resolve to throw off the influences of any unfortunate environment, and to build your own life to order.
+ - Do not look for a miracle, because you will not find it. You will find only the eternal laws of nature. These laws are available to every person who has the faith and the courage to use them.
+ - Persistence is the direct result of habit. The mind absorbs and becomes a part of the daily experiences upon which it feeds. Fear, the worst of all enemies, can be effectively cured by forced repetition of acts of courage.
+ - Greatest sin of man kind: neglect to use his greatest asset.
+ - God has given us control over one thing in our lives – our thoughts.
+ - It is always better to imitate a successful man than to envy him.
+ - We see men who have accumulated great fortunes, but we often recognize only their triumph, overlooking the temporary defeats which they had to surmount before arriving.
+ - Most people wish for riches, but few people provide the definite plan and burning desire which pave the road to wealth.
+ - It is a curious quirk of human nature that some people can see opportunities, while others only see problems.
+ - What we do not see, what most of us never suspect of existing, is the silent but irresistible power which comes to the rescue of those who fight on in the face of discouragement.
+ - The greatest failure in life is to stop trying.
+ - I had learned, from years of experience with men, that when a man really desires a thing so deeply that he is willing to stake his entire future on a single turn of the wheel in order to get it, he is sure to win.
+ - If you believe yourself unfortunate because you have loved and lost, perish the thought. One who has loved truly, can never lose entirely.
+ - The richest persons are those who give most in service to others.
+ - It is your responsibility to make sure that positive emotions constitute the dominating influence of your mind.
+ - A positive mental attitude is an irresistible force that knows no such thing as an immovable body.
+ - You don’t have to fear defeat if you believe it may reveal powers that you didn’t know you possessed.
+ - Find out what you really love to do, and then find a way to make a good living doing it.
+ - Most illness begins with a negative mind.
+ - The most common cause of fear of old age is associated with the possibility of poverty.
+ - Thought, backed by strong desire, has a tendency to transmute itself into its physical equivalent.
+ - You will attract to yourself people who harmonize with your own philosophy of life, whether you wish it or not.
+ - When you close the door of your mind to negative thoughts, the door of opportunity opens to you.
+ - If the winds of fortune are temporarily blowing against you, remember that you can harness them and make them carry you toward your definite purpose, through the use of your imagination.
+ - Waste no words on a man who dislikes you. Actions will impress him more.
+ - When enthusiasm runs in the front door, worry runs out the back door.
+ - There is a vast difference between failure and temporary defeat.
+ - Handicaps can be converted into stepping stones on which one may climb toward some worthy goal, unless they are accepted as obstacles, and used as alibis.
+ - The only thing over which you have complete right of control at all times is your mental attitude.
+ - Somewhere in your make-up there lies sleeping, the seed of achievement which, if aroused and put into action, would carry you to heights, such as you may never have hoped to attain.
+ - Constancy of purpose is the first principle of success.
+ - Hard labor and good intentions are not sufficient to carry a man through to success.
+ - All you are or ever shall become is the result of the use to which you put your mind.
+ - Most failures could have been converted into successes if someone had held on another minute or made more effort.
+ - One of the most essential yet the hardest truths that I have had to learn is that every person should be his own hardest task-master.
+ - If you are worried or afraid of anything, there is something in your mental attitude that needs correction.
+ - Cherish the music that stirs in your heart.
+ - Imagine, as realistically as possible, the place where you want to be in the near future, the state you wish to reach and the Universe will help you and guide you.
+ - No one is going to pay much attention to the person who has no confidence in himself.
+ - If you were your own employer, would you be entirely satisfied with the day’s work you have done today?
+ - One should use great care to select an employer who will be an inspiration, and who is, himself, intelligent and successful.
+ - Success is the development of the power with which to get whatever one wants in life without interfering with the rights of others.
+ - It isn’t defeat, but rather your mental attitude toward it, that whips you.
+ - Fear is the most costly of all the human emotions, even though most fears have no foundation in fact.
+ - It has always been my belief that a man should do his best, regardless of how much he receives for his services, or the number of people he may be serving or the class of people served.
+ - It is a well known fact that a man learns best that which he endeavors to teach others.
+ - The world does not pay men for that which they “know”. It pays them for what they do, or induce others to do.
+ - Watch the one ahead of you, and you’ll learn why he is ahead. Then emulate him.
+ - The testing process usually happens when we least expect it, thereby catching you off guard and giving you no chance to display anything by your real personality.
+ - No man can avail himself of the forces of his creative imagination, while dissipating them.
+ - Thought is the most highly organized form of energy known to man.
+ - The only person to get even with are those who have helped you.
+ - No two minds ever come together without thereby creating a third, invisible, intangible force which may be likened to a third mind.
+ - Who told you it couldn’t be done? And what great achievement has he to his credit that entitles him to use the word ‘impossible’ so freely?
+ - Life gives no one immunity against adversity, but life gives to everyone the power of positive thought which is sufficient to master all circumstances of adversity and convert them into benefits.
+ - Neglecting to broaden their view has kept some people doing one thing all their lives.
+ - Riches don’t respond to wishes. They respond only to definite plans, backed by definite desires, through constant persistence.
+ - The simple act of commitment is a powerful magnet for help.
+ - If you pray for a thing, but have fear as you pray, that you may not receive it, or that your prayer will not be acted upon by Infinite Intelligence, your prayer will have been in vain.
+ - The person who sows a single beautiful thought in the mind of another, renders the world a greater service than that rendered by all the faultfinders combined.
+ - If you have been wise and successful I congratulate you. Unless you are unable to forget how successful you have been, then I pity you.
+ - Riches, when they come in huge quantities, are never the result of HARD work!
+ - The majority of people who fail to accumulate money sufficient for their needs are, generally, easily influenced by the opinion of others.
+ - Anything acquired without effort, and without cost is generally unappreciated.
+ - All achievement, no matter what may be its nature, or its purpose, must begin with an intense, burning desire for something definite.
+ - One of the blessings of maturity is that it sometimes brings one greater courage to be truthful, regardless of what those who do not understand may think or say.
+ - The man who actually knows just what he wants in life has already gone a long way toward attaining it.
+ - Failure is not a disgrace if you have sincerely done your best.
+ - If you do not see great riches in your imagination, you will never see them in your bank balance.
+ - You are the master of your own earthly destiny just as surely as you have the power to control your own thoughts.
+ - The best compensation for doing things is the ability to do more.
+ - Because I know that my character is developed from my own acts and thoughts, I will guard with care all that goes into its development.
+ - Life, on this Earth may be likened to a great Kaleidoscope before which the scenes and facts and material substances are ever shifting and changing and all any man can do is to take these facts and substances and re-arrange them in new combinations.
+ - The space you occupy and the authority you exercise may be measured with mathematical exactness by the service you render.
+ - Closed minds do not inspire faith, courage, and belief.
+ - Your real wealth can be measured not by what you have but by who you are.
+ - Big pay and little responsibility are circumstances seldom found together.
+ - Whatever your mind feeds upon your mind attracts to you.
+ - A person’s acts are always in harmony with the dominating thoughts of his or her mind.
+ - The battle is all over except the ‘shouting’ when one knows what is wanted and has made up his mind to get it, whatever the price may be.
+ - People who fail to accumulate money, without exception, have the habit of reaching decisions, if at all, very slowly, and of changing these decisions quickly and often.
+ - The mind attracts the thing it dwells upon.
+ - Your ability to use the principle of autosuggestion will depend, very largely, upon your capacity to concentrate upon a given desire until that desire becomes a burning obsession.
+ - We are what we are, because of the vibrations of thought which we pick up and register, through the stimuli of our daily environment.
+ - If you learn to budget your time correctly, you will have time for all your needs.
+ - War grows out of the desire of the individual to gain advantage at the expense of his fellow man.
+ - If you think your lot has been hard, read ‘Up From Slavery’ by Booker T. Washington, and you may see how fortunate you have been.
+ - A wise man watches his faults more closely than his virtues; fools reverse the order.
+ - Scars are wisdom in disguise.
+ - Every well built house started in the form of a definite purpose plus a definite plan in the nature of a set of blueprints.
+ - Bravery is fearlessness-the absence of fear. The merest dolt may be brave because he lacks the mentality to appreciate his danger.
+ - Any man is educated who knows where to get knowledge when he needs it, and how to organize that knowledge into definite plans of action.
+ - All the breaks you need in life wait within your imagination.
+ - The bottom is a monotonous, dreary, unprofitable place for any person. That is why I have taken the time to describe how lowly beginnings may be circumvented by proper planning.
+ - The major weakness of all educational systems is that they neither teach nor encourage the habit of definite decision.
+ - There is some one thing that you can do better than anyone else in the world could do it. Search until you find out what this particular line of endeavor is, then organize all of your forces and attack it with the belief that you are going to win.
+ - I pray daily, not for more riches, but for more wisdom with which to recognize, embrace and enjoy what I already possess.
+ - Life’s greatest tragedy consists of men and women who earnestly try, and fail!
+ - Fortunate is the person who has learned that the most certain way to ‘get’ is to first ‘give’ through some sort of useful service.
+ - No form of human exchange is more profitable than the exchange of ideas. If I give you a thought in return for one of your thoughts, each of us will have gained a 100 percent dividend.
+ - Do not search for SUCCESS off in the distance, but instead recognize it and grasp it right where you are!
+ - One bad habit often spoils a dozen good ones.
+ - Nobody rises above mediocrity unless they use the brains of other people.
+ - You’ve got to be sure of yourself before You can ever win a prize.
+ - Imagination judges the future by the past, but concerns itself with the future more than with the past.
+ - Understand this law and you will then know, beyond room for the slightest doubt, that you are constantly punishing yourself for every wrong you commit and rewarding yourself for every act of constructive conduct in which you indulge.
+ - Your mental attitude gives your entire personality a drawing power that attracts the circumstances, things and people you think about most!
+ - You may as well know, also, that every great leader, from the dawn of civilization down to the present, was a dreamer.
+ - Your world will change whether or not you choose to change, but you have the power to choose it’s direction.
+
+500 quotes

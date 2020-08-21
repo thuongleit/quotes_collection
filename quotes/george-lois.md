@@ -1,0 +1,24 @@
+ - If a man does not work passionately – even furiously – at being the best in the world at what he does, he fails his talent, his destiny, and his God.
+ - Never, ever, work for bad people.
+ - Creativity can solve almost any problem. The creative act, the defeat of habit by originality, overcomes everything.
+ - A cautious creative is an oxymoron.
+ - Only with absolute fearlessness can we slay the dragons of mediocrity that invade our gardens.
+ - Nothing comes from nothing. You must continuously feed the inner beast that sparks and inspires.
+ - But I love that feeling of utter depletion: It is an ecstatic sense of having committed myself to the absolute limit. But after recharging at night, I’m ready to go the next morning. Isn’t that what life is all about?
+ - Onwards and upwards, and never give your failures a second thought.
+ - Follow your bliss. That which you love you must spend your life doing, as passionately and as perfectly as your heart, mind and instincts allow.
+ - Museums are custodians of epiphanies, and these epiphanies enter the central nervous system and deep recesses of the mind.
+ - The joy of the creative process, minute by minute, hour after hour, day by day, is the sublime path to true happiness.
+ - Advertising is poison gas. It should bring tears to your eyes, unhinge your nervous system and knock you out.
+ - If you think people are dumb, you’ll spend a lifetime doing dumb work.
+ - Most people work at keeping their job, rather than doing a good job. If you’re the former, you’re leading a meaningless life. If you’re the latter, keep up the good work.
+ - Nothing great can come of more than three people in a room.
+ - The accurate measure of a human being is what he or she actually gets done.
+ - In any creative industry, the fact that others are moving in a certain direction is always proof positive, at least to me, that a new direction is the only direction.
+ - I am in the poison gas business. Advertising should make you choke, make your eyes water, make you feel sick.
+ - Never listen to music when you’re trying go come up with a Big Idea.
+ - The business world worships mediocrity. Officially we revere free enterprise, initiative and individuality. Unofficially we fear it.
+ - Only mediocre ideas can be tested.
+ - The more creative you are the more trouble you’re in. You have to be courageous!
+
+22 quotes

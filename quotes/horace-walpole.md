@@ -1,0 +1,82 @@
+ - Life is a comedy for those who think and a tragedy for those who feel.
+ - Serendipitous discoveries are made by chance, found without looking for them but possible only through a sharp vision and sagacity, ready to see the unexpected and never indulgent with the apparently unexplainable.
+ - Poetry is a beautiful way of spoiling prose, and the laborious art of exchanging plain sense for harmony.
+ - The whole secret of life is to be interested in one thing profoundly and in a thousand things well.
+ - By deafness one gains in one respect more than one loses; one misses more nonsense than sense.
+ - Cunning is neither the consequence of sense, nor does it give sense. A proof that it is not sense, is that cunning people never imagine that others can see through them. It is the consequence of weakness.
+ - Our supreme governors, the mob.
+ - Exercise is the worst thing in the world and as bad an invention as gunpowder.
+ - Our bells are worn threadbare with ringing for victories.
+ - History is a romance that is believed; romance, a history that is not believed.
+ - Perhaps those, who, trembling most, maintain a dignity in their fate, are the bravest: resolution on reflection is real courage.
+ - Mystery is the wisdom of blockheads.
+ - When people will not weed their own minds, they are apt to be overrun by nettles.
+ - Letters to absence can a voice impart, And lend a tongue when distance gags the heart.
+ - The way to ensure summer in England is to have it framed and glazed in a comfortable room.
+ - Shakespeare had no tutors but nature and genius. He caught his faults from the bad taste of his contemporaries. In an age still less civilized Shakespeare might have been wilder, but would not have been vulgar.
+ - Justice is rather the activity of truth, than a virtue in itself. Truth tells us what is due to others, and justice renders that due. Injustice is acting a lie.
+ - I have often said, and oftener think, that this world is a comedy to those that think, a tragedy to those that feel – a solution of why Democritus laughed and Heraclitus wept.
+ - Oh that I were seated as high as my ambition, I’d place my naked foot on the necks of monarchs.
+ - It was said of old Sarah, Duchess of Marlborough, that she never puts dots over her I s, to save ink.
+ - At last some curious traveller from Lima will visit England, and give a description of the ruins of St. Paul’s, like the editions of Baalbec and Palmyra.
+ - Men are often capable of greater things than they perform – They are sent into the world with bills of credit, and seldom draw to their full extent.
+ - I can forgive injuries, but never benefits.
+ - Defaced ruins of architecture and statuary, like the wrinkles of decrepitude of a once beautiful woman, only make one regret that one did not see them when they were enchanting.
+ - The wisest prophets make sure of the event first.
+ - Nine-tenths of the people were created so you would want to be with the other tenth.
+ - I am persuaded that foolish writers and foolish readers are created for each other; and that fortune provides readers as she does mates for ugly women.
+ - I do not dislike the French from the vulgar antipathy between neighboring nations, but for their insolent and unfounded air of superiority.
+ - In science, mistakes always precede the truth.
+ - If a passion for freedom is not in vogue, patriots may sound the alarm till they are weary. The Act of Habeas Corpus, by which prisoners may insist on being brought to trial within a limited time, is the corner stone of our liberty.
+ - I have known men of valor cowards to their wives.
+ - I avoid talking before the youth of the age as I would dancing before them: for if one’s tongue don’t move in the steps of the day, and thinks to please by its old graces, it is only an object of ridicule.
+ - The passions seldom give good advice but to the interested and mercenary. Resentment generally suggests bad measures. Second thoughts and good nature will rarely, very rarely, approve the first hints of anger.
+ - Lord Bath used to say of women, who are apt to say that they will follow their own judgment, that they could not follow a worse guide.
+ - Old friends are the great blessings of one’s later years. Half a word conveys one’s meaning. They have a memory of the same events, have the same mode of thinking. I have young relations that may grow upon me, for my nature is affectionate, but can they grow To Be old friends?
+ - To act with common sense according to the moment, is the best wisdom I know.
+ - The sure way of judging whether our first thoughts are judicious, is to sleep on them. If they appear of the same force the next morning as they did over night, and if good nature ratifies what good sense approves, we may be pretty sure we are in the right.
+ - Every drop of ink in my pen ran cold.
+ - The best sun we have is made of Newcastle coal, and I am determined never to reckon upon any other.
+ - I sit with my toes in a brook, And if any one axes forwhy? I hits them a rap with my crook, For ’tis sentiment does it, says I.
+ - Let the French but have England, and they won’t want to conquer it.
+ - Oh, we are ridiculous animals; and if the angels have any fun in them, how we must divert them!
+ - Shakespeare, with an improved education and in a more enlightened age, might easily have attained the purity and correction of Racine; but nothing leads one to suppose that Racine in a barbarous age would have attained the grandeur, force and nature of Shakespeare.
+ - The Methodists love your big sinners, as proper subjects to work upon.
+ - Alexander at the head of the world never tasted the true pleasure that boys of his own age have enjoyed at the head of a school.
+ - Virtue knows to a farthing what it has lost by not having been vice.
+ - I look upon paradoxes as the impotent efforts of men who, not having capacity to draw attention and celebrity from good sense, fly to eccentricities to make themselves noted.
+ - This world is a comedy, not Life.
+ - Lawyers and rogues are vermin not easily rooted out of a rich soil.
+ - One’s mind suffers only when one is young and while one is ignorant of the world. When one has lived for some time, one learns that the young think too little and the old too much, and one grows careless about both.
+ - Without grace no book can live, and with it the poorest may have its life prolonged.
+ - How posterity will laugh at us, one way or other! If half a dozen break their necks, and balloonism is exploded, we shall be called fools for having imagined it could be brought to use: if it should be turned to account, we shall be ridiculed for having doubted.
+ - The best philosophy is to do one’s duties, take the world as it comes, submit respectfully to one’s lot; bless the goodness that has given us so much happiness with it.
+ - Fashion is always silly, for, before it can spread far, it must be calculated for silly people; as examples of sense, wit, or ingenuity could be imitated only by a few.
+ - A man of sense, though born without wit, often lives to have wit. His memory treasures up ideas and reflections; he compares themwith new occurrences, and strikes out new lights from the collision. The consequence is sometimes bons mots, and sometimes apothegms.
+ - A tragedy can never suffer by delay: a comedy may, because the allusions or the manners represented in it maybe temporary.
+ - It is difficult to divest one’s self of vanity; because impossible to divest one’s self of self-love.
+ - Life is a farce, and should not end with a mourning scene.
+ - It is charming to totter into vogue.
+ - How well Shakespeare knew how to improve and exalt little circumstances, when he borrowed them from circumstantial or vulgar historians.
+ - A careless song, with a little nonsense in it now and then, does not mis-become a monarch.
+ - When Shakespeare copied chroniclers verbatim, it was because he knew they were good enough for his audiences. In a more polished age he who could so move our passions, could surely have performed the easier task of satisfying our taste.
+ - I firmly believe, notwithstanding all our complaints, that almost every person upon earth tastes upon the totality more happiness than misery.
+ - Plot, rules, nor even poetry, are not half so great beauties in tragedy or comedy as a just imitation of nature, of character, of the passions and their operations in diversified situations.
+ - He was persuaded he could know no happiness but in the society of one with whom he could for ever indulge the melancholy that had taken possession of his soul.
+ - I do not admire politicians; but when they are excellent in their way, one cannot help allowing them their due.
+ - Who has begun has half done. Have the courage to be wise. Begin!
+ - We often repent of our first thoughts, and scarce ever of our second.
+ - Had I children, my utmost endeavors would be to make them musicians.
+ - Fashion is fortunately no law but to its devotees.
+ - I know that I have had friends who would never have vexed or betrayed me, if they had walked on all fours.
+ - It amazes me when I hear any person prefer blindness to deafness. Such a person must have a terrible dread of being alone. Blindness makes one totally dependent on others, and deprives us of every satisfaction that results from light.
+ - I shun authors, and would never have been one myself, if it obliged me to keep such bad company.
+ - Posterity always degenerates till it becomes our ancestors.
+ - Art is the filigrain of a little mind, and is twisted and involved and curled, but would reach farther if laid out in a straight line.
+ - The contempt of money is no more a virtue than to wash one’s hand is one; but one does not willingly shake hands with a man that never washes his.
+ - Foolish writers and readers are created for each other.
+ - The curse of modern times is, that almost everything does create controversy.
+ - I never found even in my juvenile hours that it was necessary to go a thousand miles in search of themes for moralizing.
+ - It was easier to conquer it than to know what to do with it.
+
+80 quotes

@@ -1,0 +1,203 @@
+ - Find a group of people who challenge and inspire you, spend a lot of time with them, and it will change your life.
+ - I want to be around people that do things. I don’t want to be around people anymore that judge or talk about what people do. I want to be around people who dream and support and do things.
+ - Don’t think. Get out of your head. Stop planning and just go.
+ - You deserve love and you’ll get it.
+ - Great people do things before they’re ready. They do things before they know they can do it. And by doing it, they’re proven right.
+ - I think if you can dance and be free and not embarrassed, you can rule the world.
+ - Sometimes painful things can teach us lessons that we didn’t think we needed to know.
+ - I believe great people do things before they are ready.
+ - The only way we will survive is by being kind. The only way we can get by in this world is through the help we receive from others. No one can do it alone, no matter how great the machines are.
+ - It takes years as a woman to unlearn what you have been taught to be sorry for.
+ - I know enough now to know I know nothing.
+ - Other people are not medicine.
+ - No one looks stupid when they’re having fun.
+ - We need to remember what’s important in life: friends, waffles, work. Or waffles, friends, work, it doesn’t matter. But work is third.
+ - There’s power in looking silly and not caring that you do.
+ - Continue to share your heart with people even if it’s been broken.
+ - When in doubt, make funny faces.
+ - The minute anyone makes you feel weird and non-included or not supported, you know, either beat it or tell them to beat it.
+ - Change is the only constant. Learn to surf your life instead of planting your feet.
+ - Taking risks and making choices is what makes life so exciting.
+ - Going from crying to laughing that fast and hard happens maybe five times in your life and that extreme right turn is the reason why we are alive, and I believe it extends our life by many years.
+ - Sleep helps you win at life.
+ - The earlier you learn that you should focus on what you have, and not obsess about what you don’t have, the happier you will be.
+ - Saying “yes” doesn’t mean I don’t know how to say no, and saying “please” doesn’t mean I am waiting for permission.
+ - It’s easier to be brave when you’re not alone.
+ - It’s very hard to have ideas. It’s very hard to put yourself out there, it’s very hard to be vulnerable, but those people who do that are the dreamers, the thinkers and the creators. They are the magic people of the world.
+ - You become more attractive when you love yourself. You attract the right things when you have a sense of who you are.
+ - A bossy woman is someone to search out and celebrate. A bossy woman is someone who cares and commits and is a natural leader.
+ - Decide what your currency is early. Let go of what you will never have. People who do this are happier and sexier.
+ - Vulnerable people are powerful people. Opening your heart and sharing it means you’re going to get so much love in your life. and it’s the way to true connection and real purpose and meaning in your life, in my opinion.
+ - It’s never overreacting to ask for what you want and need.
+ - I like hard work and I don’t like pretending things are perfect.
+ - Ignore what other people think. Most people aren’t even paying attention to you.
+ - If you can surf your life rather than plant your feet, you will be happier.
+ - I’ve grown tired of smoke and mirrors. I yearn for the clean, well-lighted place.
+ - Sometimes you need to know to quit while you’re ahead or at least before things get much worse!
+ - Emotions are like passing storms, and you have to remind yourself that it won’t rain forever. You just have to sit down and watch it pour outside and then peek your head out when it looks dry.
+ - If you can speak about what you care about to a person you disagree with without denigrating them or insulting them, then you may actually be heard.
+ - You can’t stand around and wait to be asked to dance.
+ - That is the motto women should constantly repeat over and over again. ‘Good for her! Not for me.’
+ - If you ever want to see heaven, watch a bunch of young girls play. They are all sweat and skinned knees. Energy and open faces.
+ - I just love bossy women. I could be around them all day. To me, bossy is not a pejorative term at all. It means somebody’s passionate and engaged and ambitious and doesn’t mind leading.
+ - Rooting for other people’s failure does get in the way of your success.
+ - You have to care about how good you are and how good you feel, but not about how good people think you are or how good people think you look.
+ - The computer is the new fireplace, everyone in the family gathers around the digital hearth for warmth.
+ - I’ve always dreamed of growing up to be Amy Poehler.
+ - Symmetry is pleasing but not as sexy. Einstein is cool but Picasso knows what I’m talking about.
+ - I love my boys so much I fear my heart will explode. I wonder if this love will crack open my chest and split me in half. It is scary, this love.
+ - Open-faced sandwiches take risks and live big and smile with all their teeth. These are the people I want to be around.
+ - Sleep can completely change your entire outlook on life. One good night’s sleep can help you realize that you shouldn’t break up with someone, or you are being too hard on your friend, or you actually will win the race or the game or get the job. Sleep helps you win at life.
+ - Do work that you are proud of with your talented friends.
+ - Try to keep your mind open to possibilities and your mouth closed on matters that you don’t know about. Limit your ‘always’ and your ‘nevers.’
+ - You never know what’s around the corner unless you peek. Hold someone’s hand while you do it. You will feel less scared.
+ - Your career and your passion don’t always match up. Plenty of talented people don’t have the careers they want. Plenty of untalented people make millions and make movies. There is a difference between determination and talent.
+ - I have a boyfriend who knows how to settle me. He puts his hand on my chest and tells me boring stories. On one of our first nights together I woke up apologizing for my snoring and he pulled out two earplugs he had worn to bed so he could hear what I was saying.
+ - Make no a complete sentence.
+ - I hate Halloween. I hate dressing up. I hate – I wear wigs, makeup, costumes every day. Halloween is like, my least favorite holiday.
+ - When your children arrive, the best you can hope for is that they break open everything about you. Your mind floods with oxygen. Your heart becomes a room with wide-open windows. You laugh hard every day...
+ - I think we should stop asking people in their 20s what they ‘want to do’ and start asking them what they don’t want to do. Instead of asking students to ‘declare their major’ we should ask students to ‘list what they will do anything to avoid.’ It just makes a lot more sense.
+ - Opening your heart and being courageous and telling people that you care about them or like them or that you think they’re special only makes you a better, bigger, kinder, softer, more loving person, and only attracts more love into your life.
+ - Too often we women try to tackle chaos that is not ours to fix.
+ - Meryl Streep is not here tonight. She has the flu – and I hear she’s amazing in it.
+ - I am a firm believer that every few years one needs to shake one’s life through a sieve, like a miner in the Yukon. The gold nuggets remain. The rest falls through like the soft earth it is.
+ - Well people love to go dirty and stuff like that. It’s funny, because even really dirty things can kind of inspire, but all things inspire really dirty improv and monologues. So then really dirty things can inspire the exact opposite. It’s kind of a crapshoot.
+ - What I like about all these giant superhero movies is that they speak to the issues that I’m dealing with – working mother and time management and how to be an interesting, sexual, curious woman in your 40s.
+ - Creativity is connected to passion – that light inside that drives you.
+ - Stop whining about getting old. It’s a privilege. A lot of people who are dead wish they were still alive.
+ - I had no idea how to get guys to notice me. I still don’t. Who cares?
+ - Forgiveness is something that’s always possibility.
+ - I don’t think a man who is fifteen years younger than me should tell me he is proud of me unless he is my sober coach or my time-travel dad.
+ - A person’s tragedy does not make up their entire life. A story carves deep grooves into our brains each time we tell it. But we aren’t one story. We can change our stories. We can write our own.
+ - When young girls are encouraged to explore what they find interesting, they grow up to be interesting women.
+ - Only at the Golden Globes do the beautiful people of film rub shoulders with the rat-faced people in television.
+ - Your ability to navigate and tolerate change and its painful uncomfortablene ss directly correlates to your happiness and general well-being. See what I just did there? I saved you thousands of dollars on self-help books. If you can surf your life rather than plant your feet, you will be happier.
+ - Don’t treat your heart like an action figure wrapped in plastic and never used.
+ - Listen. Say yes. Live in the moment. Make sure you play with people who have your back. Make big choices early and often.
+ - Being snubbed is not always a bad thing at awards shows because you end up getting a lot of people coming up to you and telling you how great you are.
+ - I lived in Chicago for a few years and got a sense of – kind of that broad-shouldered, windy, um, stern, Midwestern, warm-slash-passive aggressive, wonderful – every adjective I can think of, very cold.
+ - I think chemistry is about not acting, but reacting, and not talking, but listening.
+ - I ate two waffles, a banana and cereal with blueberries. And that whas between my two breakfasts.
+ - Anger and embarrassment are often neighbors.
+ - Our ego is a monster that loves to sit at the head of the table, and I have learned that my ego is just as rude and loud and hungry as everyone else’s. It doesn’t matter how much you get; you are left wanting more.
+ - My phone is trying to kill me. It is a battery-charged rectangle of disappointment and possibility. It is a technological pacifier.
+ - In a recent Valentine’s Day posting on her fan website, Britney Spears says that – oh, who cares?
+ - You aren’t allowed to feel special, but no one knows the specific ways you are in pain.
+ - I get worried for young girls sometimes; I want them to feel that they can be sassy and full and weird and geeky and smart and independent, and not so withered and shriveled.
+ - When I had a job catering, I catered a wedding for the Smashing Pumpkins bassist in Indiana. And I served Billy Corgan shrimp off a tray.
+ - The great thing about taking big chances when you’re younger is you have less to lose, and you don’t know as much. So you take big swings.
+ - I like to do things that challenge me and make me nervous.
+ - Don’t treat your heart like an action figure wrapped in plastic and never used. And don’t try to give me that nerd argument that your heart is a ‘Batman’ with a limited-edition silver bat-erang and therefore if it stays in its original packing it increases in value.
+ - Ang Lee’s been nominated for Best Director for Life of Pi, which is what I’m going to call the six weeks after I take this dress off!
+ - In conclusion, I invite the media to all grow a pair. And if you can’t, I will lend you mine.
+ - It’s very hard to watch comedy for me, when I’m doing a comedy show, because I either watch a show and I love it, and I’m jealous, or I watch a show and I see all the problems with it, and I’m angry that I watched it.
+ - Looking silly can be ver powerful. People who are committing and taking risks become the king and queen of my prom. People are their most beautiful when they are laughing, crying, dancing, playing, telling the truth, and being chased in a fun way.
+ - When you feel scared, hold someone’s hand and look into their eyes. And when you feel brave, do the same thing. You are all here because you are smart. And you are brave. And if you add kindness and the ability to change a tire, you almost make up the perfect person.
+ - I like the person who commits and goes all in and takes big swings and then maybe fails or looks stupid; who jumps and falls down, rather than the person who points at the person who fell, and laughs.
+ - I want to be around people who dream and support and do things.
+ - Anyone who has the kind of inventive and inspired comic sensibility to be able to do that kind of work must be pretty talented.
+ - Earlier today former Vermont Governor Howard Dean became the new head of the Democratic National Committee – no word on who will be the neck.
+ - I had to come to terms with how I saw myself. I had to understand that I wasn’t pretty or beautiful like most actresses and that I shouldn’t care about whether other people found me attractive or not.
+ - So, if you’re doing good longform with talented people than you can step out and you can be the president or a construction worker and people accept that. It’s really the roles you give yourself.
+ - In my twenties I tried cocaine, which I instantly loved but eventually hated. Cocaine is terrific if you want to hang out with people you don’t know very well and play Ping-Pong all night. It’s bad for almost everything else.
+ - Calling people ‘sweetheart’ makes most people enraged.
+ - I asked people who have already finished books for advice, which is akin to asking a mother with a four-year-old what childbirth is like.
+ - According to Washington insiders, White House Press Secretary Scott McClellan could be the next official to leave the Bush administration. McClellan says he’d like to spend more time lying for his family.
+ - I think if I have established anything in my book, it’s that a key element of being my friend is being comfortable with my forced fun.
+ - Dreams never wear you down.
+ - I’m going to do ‘The Social Network Two: The Electric Boogaloo.’ And I have a part in ‘Beige Swan.’ I’m going to be the lead, but I don’t dance. I just do a lot of sitting down. It’s too tiring to get up and dance around. That should be coming out in 20-never.
+ - I hope and assume that every good comedy writer, no matter the age, has a moment where they discover how great Cheers is.
+ - Some people get in the way of change happening. Some people spend their whole careers thinking they can make a difference. Other people want to do as little as possible to get the day done.
+ - Most authors liken the struggle of writing to something mighty and macho, like wrestling a bear. Writing a book is nothing like that. It is a small, slow crawl to the finish line. Honestly, I have moments when I don’t even care if anyone reads this book. I just want to finish it.
+ - It’s nice to be short, because people expect less from you.
+ - I don’t really believe in cars, but I drive one every day and I love that it gets me places and makes life so much easier and faster and I don’t know what I would do without it.
+ - Nice manners are the secret keys to the universe.
+ - A new poll reveals that 56% of Americans believe that Wal-Mart is bad for the country, while the other 44% work there.
+ - I get a little itchy if I don’t have some control.
+ - I find my relationships at 40-plus are really emulsified, juicy relationships because you have more of a sense of who you are and who you want to be around.
+ - You learn early as an actor that creating your own material is the only way to have any control.
+ - Because of various security lapses, some senators are calling for a probe of the security at the offices of the Department of Homeland Security. The investigation will be conducted by the Department of Irony.
+ - I was the daughter of teachers, so school was always very important. I liked it.
+ - Be yourself! And then tell us about it! And then let’s dance!
+ - It’s not communism, it’s shouldn’t be that everybody gets a try no matter how good or bad they are. It’s our profession and our art, so we should eventually strive to be working with the best people.
+ - New Orleans Mayor Ray Nagin said that New Orleans, when rebuilt, will be a chocolate city. And he will be the delicious nut in the center.
+ - Both conservatives and liberals watch ‘Parks and Recreation,’ and they each think the show is for them, which is really cool. ‘SNL’ was totally different. It was exciting because everyone was paying attention. Political humor works when people know what you’re talking about.
+ - I used to say that I wanted to make great art with people I love. Now I have an addendum to that goal: to get things on the air.
+ - Just breathe. Sometimes you’re only a few breaths away from feeling better.
+ - I think real life couples on screen are kind of deadly. For the most part, they’re kind of deadly. You’d be surprised. Unless they’re falling in love onscreen for the first time, you don’t have quite the same energy for some reason.
+ - Try putting your iPhones down every once in a while and look at people’s faces.
+ - I like bossy girls. I always have. I like people filled with life.
+ - Don’t start a scene where two people are talking about jumping out of a plane. Start the scene having already jumped. If you are scared, look into your partner’s eyes. You will feel better.
+ - There’s something so romantic about being broke in New York. You gotta do it. You have to live there once without any money, and then you have to live there when you have money. Let me tell you, of the two, the latter is far better.
+ - The creation of the UCB Theatre is by far my proudest professional accomplishment.
+ - Any painful experience makes you see things differently. It also reminds you of the simple truths that we purposely forget every day or else we would never get out of bed.
+ - Any time you talk to anyone about something that they love, they’re, like, their most beautiful. It’s a cool gift to get to talk to people about what they love.
+ - I think the days of putting your feet up when you’re pregnant are long gone. Women who are nine months pregnant now have to work till the bitter end – they don’t get to be on TV.
+ - Fighting aging is like the War on Drugs. It’s expensive, does more harm than good, and has been proven to never end.
+ - I am interested in people who swim in the deep end. I want to have conversations about real things with people who have experienced real things. I’m tired of talking about movies and gossiping about friends. Life is crunchy and complicated and all the more delicious.
+ - Telling me to relax or smile when I’m angry is like bringing a birthday cake into an ape sanctuary. You’re just asking to get your nose and genitals bitten off.
+ - I just want to help other women achieve as much as they can in society without restraints being imposed on us. It’s the most natural and normal thing to want to defend your rights to equal opportunities, equal pay for equal work, and everything that comes with that.
+ - I also love being able to do something that kids and families can enjoy because I have two children of my own and I want them to grow up watching all the fabulous animated movies and cartoons that I loved to watch as a kid.
+ - My idea of the perfect exercise class is this: The teacher gives us all a hug and goes, ‘You did it! You showed up! Let’s lie down.’ We all lie down and she’s like, ‘How is everybody feeling?’ We’re like, ‘Great!’ And the teacher’s like, ‘Great!’ Then we all get to leave 20 minutes early.
+ - In the wake of newly-alleged prisoner abuse this week, Senator John McCain said that continued mistreatment of Iraqi prisoners is hurting the nation’s image. Also hurting the nation’s image: letting people drown when it rains.
+ - I think going from laughing to crying to laughing to crying – making those quick turns adds years to your life.
+ - I cannot stress enough that the answer to life’s questions is often in people’s faces. Try putting your iPhones down once in a while, and look in people’s faces. People’s faces will tell you amazing things. Like if they are angry, or nauseous or asleep.
+ - Sticking up for ourselves in the same way we would one of our friends is a hard but satisfying thing to do. Sometimes it works.
+ - People who read are people who dream, and we connect through the stories we live and tell and read.
+ - I’ve said this before, that, when you’re in school and you’re the class clown, men are really good at making fun at other people and women are really good at making fun of themselves.
+ - I would love to do a serious period drama. Oh, absolutely. I mean, you’ll find most comedians want to do more serious stuff, most musicians want to be comedians, and most serious actors want to be musicians.
+ - I used to get my hair dyed at a place called Big Hair. It cost $15. They just used straight bleach, so my hair was the color of white lined paper, and my eyebrows looked like they were done with a thick black marker.
+ - I get a bit nervous because I just want the show to go well. I think you always have to be a little bit nervous, or else you’re a little checked-out, and that’s maybe the time when you’re not doing your best stuff, because you’re kind of just checked-out and falling back on stuff.
+ - When youre a stay-at-home mother you have to pretend its really boring, but its not. Its enriching and fulfilling, and an amazing experience. And then when youre a working mother you have to pretend that you feel guilty all day long.
+ - When you’re doing sketch comedy and you’re pregnant, it’s like wearing a giant sombrero in every sketch.
+ - If your career is a bad boyfriend, it is healthy to remember you can always leave and go sleep with somebody else.
+ - The desire to work with Burrows-Charles was really to change NBC’s identity, to say, “We want to be in the sophisticated-adult-comedy business.”
+ - Anybody who doesn’t make you feel good, kick them to the curb. And the earlier you start in your life, the better.
+ - It is time to leave. Oprah has spoken.
+ - Sometimes you have to kind of keep proving that you’re improvising. That’s the game, or the goal, of long-form TV improv, is that you have to kind of keep reminding and showing people that you’re improvising, because they won’t believe you really.
+ - It seems a strange thing, but once I was able to get past that kind of self-image problem, I was able to open up in my comedy work and just go all out, take chances, and have fun with the performance aspect of that.
+ - If boys say something that’s not funny, you don’t have to laugh.
+ - I worked at an ice cream parlor called Chadwicks. We wore old-timey outfits and had to bang a drum, play a kazoo, and sing ‘Happy Birthday’ to people while giving them free birthday sundaes. Lots of ice cream scooping and $1 tips.
+ - Improvisation is almost like the retarded cousin in the comedy world. We’ve been trying forever to get improvisation on TV. It’s just like stand-up. It’s best when it’s just left alone. It doesn’t translate always on TV. It’s best live.
+ - Shame makes people abandon their children and drink themselves to death. It also keeps us from true happiness. An apology is a glorious release.
+ - Any actor or actress that tells you that they don’t watch their stuff is lying.
+ - We may all host ourselves to death, and if we’re all dead who will host our funerals?
+ - Prince Harry this week toured the Jersey Shore with New Jersey Governor Chris Christie. It was the first meeting between the Prince, of the House of Windsor, and the Governor, of the House of Pancake.
+ - Adventure and danger can be good for your heart and soul.
+ - I really do believe that anything in life, any obstacle or challenge, can be made better with humor.
+ - In the trial of Saddam Hussein on Tuesday, witnesses emotionally testified about the abuse the former dictator inflicted on them. Afterward, a tearful Saddam said, ‘Ah, good times.’
+ - Take your risks now; as you become older, you become more fearful and less flexible. And I mean that literally. I hurt my knee this week on the treadmill, and it wasn’t even on.
+ - It doesn’t matter how much you get; you are left wanting more.
+ - If you’re a good improviser, you improvise well enough that people think that you’re doing a sketch.
+ - Keep your virginity for as long as you can, until it starts to feel weird to you. Then just get it over with.
+ - I think the hardest thing is to know what you want, ask for it, and then to stop talking.
+ - We were also performing. We’d give them a list of, like, ‘Here’s how we want to be introduced’ They’d be like, ‘Great’ And then 5 minutes later they’d come back, ‘Bad news: we lost your list. But good news: we’ve got a trash bag full of weed!’
+ - I also think if you’re an actor and you can improvise, when you go on an audition and you can improvise you’re just a genius. If you can, you know, take a Tide commercial and you can just say one funny line that’s not in the commercial they think you’re a genius.
+ - I do not improvise in heels.
+ - If you are lucky, there is a moment in your life when you have some say as to what your currency is going to be. I decided early on it was not going to be my looks.
+ - Watching great people do what you love is a good way to start learning how to do it yourself.
+ - When you host a show you have to hopefully be funny at the top and set the tone for a really fun evening.
+ - When you’re betrayed there’s a period of shame and then there’s always forgiveness.
+ - Doing what you’re afraid of, getting out of your comfort zone, taking risks like that- that’s what life is.
+ - The French have launched their own version of Google, called Quaero. You just type in the subject you’re interested in, and Quaero refuses to look it up for you.
+ - I’d say any good set or any comedy that I’ve worked on, that’s worked, has been comedians pitching ideas back and forth to each other. A lot of like, ‘What if you say this? What about this?’
+ - The process of divorce is about loading that blanket, throwing it up, watching it all spin, and worrying what stuff will break when it lands.
+ - Blessed are they who see beautiful things in humble places where other people see nothing. Continue to share your heart with people even if it’s been broken.
+ - The truth is, writing is this: hard and boring and occasionally great but usually not.
+ - The pressure of ‘what are you going to do?’ makes everyone feel like they haven’t done anything yet.
+ - As an actor, you can certainly, at any moment and at any time, discover 400 people who think you’re stupid, fat and ugly.
+ - President Bush threw out the first pitch Monday at Cincinnati’s great American ball park. 18 Iraqis were killed.
+ - If you do a scene and you really like a character in it or a premise in it to write it down and to work on it so that you can have five or six characters that you can pull out in an audition.
+ - Talented men are not threatened by talented women. They welcome them. And same way with real men.
+ - I think we should stop asking people in their twenties what they ‘want to do’ and start asking them what they don’t want to do.
+ - Everybody is interesting when they are interested in something.
+ - I find that, in general, the amount of sharing men do with each other in one year is about the same as what I share with my female friends while we wait for our cars at the valet.
+ - I am tired of being tired and talking about how tired I am.
+ - Whenever I read stories of people doing huge pranks on set, all I think is, ‘These people have too much time on their hands.’ Besides, I don’t want to make some poor assistant clean up someone’s trailer after I’ve filled it with, say, Cadbury eggs. See? I can’t even think of a good prank.
+ - You have to be where you are to get where you need to go.
+ - A top McCain policy adviser claimed this week that McCain’s work in the Senate helped create the BlackBerry, saying, ‘You’re looking at the miracle that John McCain helped create.’ He then handed the BlackBerry to McCain, who attempted to withdraw $20 from it.
+ - However, if you do start crying in an argument and someone asks why, you can always say, ‘I’m just crying because of how wrong you are.’
+ - It’s interesting that people always want to ask me and a lot of working mothers, how do you do it? And it’s like well, just like everybody else. It proves it’s a bad question.
+ - I grew up watching skating all the time in the Olympic stuff.
+
+201 quotes

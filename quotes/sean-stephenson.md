@@ -1,0 +1,22 @@
+ - Until you take ownership for your life, you will always be chasing happiness.
+ - Never believe a prediction that does not empower you.
+ - If you have a heartbeat, there’s still time for your dreams.
+ - Doubt is a virus that attacks our self-esteem, productivity and confidence. Faith that you and your life are perfectly unfolding is the strongest vaccine.
+ - I love everyone. Why? The moment I dislike someone, they own me. They own my energy, thoughts, feelings, etc...
+ - Choose the words you say to yourself wisely; they are creating your reality.
+ - You make a new life by making new choices.
+ - Pain is inevitable, it eventually touches us all. Suffering is optional.
+ - Communication is merely an exchange of information, but connection is an exchange of our humanity.
+ - Find people who love you unconditionally, surround yourself with them, and bring them the same level of intensity.
+ - Until you believe you have options, you’ll continue to feel stuck.
+ - If someone tells you, “You can’t” they really mean, “I can’t.”
+ - It’s no coincidence that good words make us feel good and that hurtful or angry words make us feel bad. There is a 100 percent correlation between the words we choose and how we feel.
+ - Psychical confidence is the external expression of our internal state of confidence. In simpler terms, it is how confidence looks and sounds.
+ - Fears are a complete waste of your time. Nine times out of ten, whatever you’re afraid of is not dangerous or life threatening. In fact, it’s probably not even real.
+ - Anything is possible if you get off your ‘BUT’ and STAND!
+ - Friendship is all about opening up and letting in the highest-quality people you can find. It’s about trusting a person enough to know that your dreams are supported and safe in his airspace, as well as supporting him in the same way when he needs it.
+ - I truly believe that our major social ills would disappear if we just spent our lives perfecting the art of connecting with each other.
+ - When you smile at people, its a signal to what you are bringing to their life.
+ - When I hear excuses muttered from another, I’m reminded to stop repeating those of my own.
+
+20 quotes

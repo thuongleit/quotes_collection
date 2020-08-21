@@ -1,0 +1,37 @@
+ - I may not be perfect, but I’m trying.
+ - As an actress, there’s nothing worse than not knowing your cues.
+ - Dogs are very, very pleasant with people that they’re connected to.
+ - My golden retriever, Callie, is so easy to please. She finds great pleasure in our day-to-day routine, which helps me to enjoy the simple things. She loves to jump on the couch with her favorite toys and roll around while I clap my hands.
+ - When we think about millions of hungry children, we don’t think about America. We relate the problem to other nations, like Ethiopia, India or Somalia. The sad truth is that one is five American kids is at risk due to poor nutrition.
+ - Alcoholism is a genetically predisposed disease and it does run in my family. I also think I felt like a misfit. I was in the South, everybody was blonde. I just didn’t feel like I fitted in. It was sort of my way of fitting.
+ - I also like men who like dogs. I couldn’t date a man who doesn’t like my dog.
+ - I’m having a great career, though I think I’m not as good as your little scenario makes me out to be.
+ - It’s nice to be with someone, but I don’t think you need to be in a relationship to feel complete. That would be really sad.
+ - I like green or brown eyes. Tall but not overwhelmingly so. I like men who do yoga and meditate.
+ - I drank a lot when I was a teenager and I don’t drink any more, because that’s when I thought, you know, I’m gonna end up a car wreck.
+ - I use Ahava skincare, which is natural line from Israel and is made from minerals from the Dead Sea. I have the most sensitive skin.
+ - I’m just happy when people want me to work for them.
+ - I’ve been dating since I was fifteen. I’m exhausted. Where is he?
+ - If I’m walking very, very fast down Madison Avenue in the middle of the day, I’ll say I’m stopped 10 times.
+ - I’m not about to go out and buy a snake for a pet. I mean, I may have faced a few fears but I’m not insane.
+ - Sometimes it would be nice to just have some red wine with dinner, but it’s not worth the risk. I have a great life, a great situation. Why would I want to risk self-destructive behaviour?
+ - I probably believe in God in a non-denominational way.
+ - I was very poor and I was a waitress, and it’s hard to be a poor waitress in New York.
+ - I’d wanted to be an actress my whole life, that was my goal, that was all I cared about.
+ - There’s such a history, and to be here, and to feel that, is really amazing.
+ - But you know, our show is our show, and it’s not for everybody.
+ - I would never describe Charlotte as a prude – maybe at the start, but that was in comparison to the other girls. She wasn’t willing to do the stuff they were doing – and I mean, thank goodness!
+ - Never, never did I think I would be in a Disney movie.
+ - Sometimes, when you’re acting, you are so in the moment that you don’t even remember what just happened.
+ - If I was going to do anything, I’d be a producer, only because I’d like to have a say in what gets made and what doesn’t.
+ - I just loved being in the theatre with all those crazy, creative people.
+ - Also, it was a cultural moment that wasn’t being represented in terms of women who were successful and had choices they didn’t have before. They needed a show that they can watch that they felt like represented them.
+ - Where I come from, a lot of people didn’t have money, but they didn’t have gangs or drugs either.
+ - I’m an actress who likes a strong, communicative director.
+ - I think I can speak for all four of us on the show here. We all consider ourselves to be feminists and we get very upset when people don’t think we are. We’re like, where did this come from? Of course we are.
+ - Everyone would talk about their diets and working out and what it made me do was go to craft services where all the food for the cast and crew was and I would eat.
+ - I love animals and I love to see movies with animals that are done respectfully, you know?
+ - This is going to sound strange, but I really didn’t think I would pass 30. I don’t know why or whatever, I just didn’t. That’s a very weird thing to say, I’m sorry. I don’t know. Maybe it’s because I was drinking so much as a youth.
+ - I’m 12 years sober, so I don’t have beer! When I used to drink I really liked Bass Ale!
+
+35 quotes

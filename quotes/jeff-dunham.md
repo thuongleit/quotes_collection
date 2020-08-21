@@ -1,0 +1,38 @@
+ - Silence! I kill you!
+ - If you choke a Smurf, what color does it turn?
+ - You never know how long your fifteen minutes of fame is going to last.
+ - Up until college age I was using the typical little-boy dummy that sits on the knee and makes woodpecker jokes. My first original character didn’t happen until later, and that was Jose the Jalapeno on a Stick.
+ - Jeff: The drive from the valley? Peanut: Was bad as hell! Jeff: Traffic? Peanut: Sucked like hell! Jeff: Drivers? Peanut: Angry as hell! Jeff: And you? Peanut: Were scared as hell! Jeff: Parking? Peanut: Sucked more like hell! Jeff: So? Peanut: We’re in hell!
+ - When a bad experience happens, you just chalk it up to the great fact that you just got five more jokes in the show.
+ - I used to pick Priuses out of the grill of my Hummer.
+ - I hate the beach – I’m a mountain guy. I’d much rather face a bear than a shark.
+ - I don’t aim it at anybody specific, I don’t aim my characters to make old people laugh or young people or professionals or blue collar, just whatever I think is going to be funny and it just so happens that.
+ - So Achmed if you’ve been in my suitcase this entire time how have you been getting through security? Oh thats easy they open the suitcase and i say ’ello my name is lindey lohan!
+ - Growing up doing those Kiwanis Clubs, doing those Cub Scout banquets, doing those church shows, I learned to find that sensibility that most people could laugh at – that all ages and demographics could laugh at.
+ - I always try and do everything I can to the best of my abilities, single aspect has to be perfect.
+ - Family time was very difficult when my girls were little, but I never missed a birthday, I was there for every major event.
+ - I started in a business background, but then it was like, ‘you know, I can’t do math,’ so I changed it to a liberal arts degree and got my Bachelor of Arts in Communications and it made sense.
+ - In 1980, when I graduated from high school, my goal was to be on ‘The Tonight Show’ with Johnny Carson at least once before our ten-year class reunion. Our class reunion was in June of 1990, and I was on ‘The Tonight Show’ in April 1990, so I made it by a few months.
+ - Every character I’ve had in my act – none of them have a similar creation story. I actually thought up Peanut and designed him in my head. I described him to a woman that was making soft puppets and she drew up some sketches. And the character came to be just because he popped into my head.
+ - When I was eight years old, I got a dummy for Christmas and started teaching myself. I got books and records and sat in front of the bathroom mirror, practising. I did my first show in the third grade and just kept going; there was no reason to quit.
+ - The kids who come backstage that have cancer or whatever, make them laugh and smile for a little while, what’s the problem with that? There isn’t any.
+ - Even going to college, getting my degree in Radio TV and Film, as I was approaching the time when you have to decide on a major, I kept trying to figure out what would be the best major to enhance what I am doing as a performer.
+ - There’s no real formula for doing it, it’s either just living life and writing down a joke you think of in the middle of the day and then pieces those together later.
+ - The roadwork is just rehearsal for that DVD you’re going to film a year later.
+ - The best place to find material is in real life. I’ve always maintained that it’s not until the mid-20s that you have enough of a life to draw from. There’s nothing better for a comic than to go through some bad stuff – and some good stuff, like getting married.
+ - But the mechanics of learning to ‘throw your voice’ are pretty simple. Anyone with a tongue, an upper palate, teeth, and a normal speaking voice can learn ventriloquism.
+ - As humans we like to laugh at our fears, we like to whistle in the dark.
+ - I’m a geek to the bone.
+ - The only way a ventriloquist speaks differently is that he forgoes using his or her lips, and learns to reproduce sounds using the tongue, upper palate, and teeth only. Those ‘difficult’ letters are B, F, M, P, V, W, and Y.
+ - Most people when they have autobiographies, they’re not autobiographies, they’re biographies written by a ghost writer.
+ - A lot of my best stuff is just ad libs on stage and that’s one thing that I’ve gotten back to at the live show.
+ - I love touring, I love doing the live show and it’s just like a musical artist, you just keep coming up with material and as long as you’re coming up with the material and as long as audiences like it, you just keep doing it, it’s your job.
+ - A comedian needs to have his own filters, needs to know his audience, how far he can push things.
+ - Stand-up comedy is tough right now. Anybody can come to a concert, tape you, and put you up on the Internet. You either fight it or embrace it.
+ - If people are still buying tickets, and still buying the DVDs, and they’re still watching on YouTube and my fifteen minutes of fame isn’t finished yet, then I’ll just keep doing it.
+ - There’s nothing better for a comedian than adversity.
+ - On weekends when everybody would go to the football games, I would be getting on a plane or driving my car across the state or across the country to go do a show somewhere and yeah so, I never thought of doing anything else.
+ - I’ve always said that instead of watching a guy juggle seven things amazingly I would rather see a really bad juggler who’s really funny.
+ - I try to make the majority of my audience laugh. That’s my audience. They’ll laugh at the dead terrorist.
+
+36 quotes

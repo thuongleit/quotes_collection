@@ -1,0 +1,51 @@
+ - When you travel, remember that a foreign country is not designed to make you comfortable. It is designed to make its own people comfortable.
+ - Insomnia is a gross feeder. It will nourish itself on any kind of thinking, including thinking about not thinking.
+ - When you reread a classic you do not see more in the book than you did before; you see more in you than there was before.
+ - We are all citizens of history.
+ - To read in bed is to draw around us invisible, noiseless curtains. Then at last we are in a room of our own and are ready to burrow back, back to that private life of the imagination we all led as a child and to whose secret satisfactions so many of us have mislaid the key.
+ - If food is the body of good living, wine is its soul.
+ - Science fiction is a kind of archaeology of the future.
+ - Liquor is not a necessity. It is a means of momentarily sidestepping necessity.
+ - To take wine into your mouth is to savor a droplet of the river of human history.
+ - Muhammad Ali: Superman Don’t need no seat belt. Flight Attendant: Superman Don’t need no airplane, either.
+ - The adjective is the banana peel of the parts of speech.
+ - A good memory is one trained to forget the trivial.
+ - One measure of friendship consists not in the number of things friends can discuss, but in the number of things they need no longer mention.
+ - Cheese is milk’s leap towards immortality.
+ - A sense of humor is the ability to understand a joke-and that the joke is oneself.
+ - A cheese may disappoint. It may be dull, it may be naive, it may be oversophisticated. Yet it remains cheese, milk’s leap toward immortality.
+ - A bottle of wine begs to be shared; I have never met a miserly wine lover.
+ - Socrates called himself a midwife of ideas. A great book is often such a midwife, delivering to full existence what has been coiled like an embryo in the dark, silent depths of the brain.
+ - As between mileage and experience choose experience.
+ - To feel at home, stay at home.
+ - One’s first book, kiss, home run is always the best.
+ - The kind of poetry to avoid in the pretty-pretty kind that pleased our grandmothers, the kind that Longfellow and Tennyson, good poets at their best, wrote at their worst.
+ - For most men, life is a search for the proper Manila envelope in which to get themselves filed.
+ - By the end of high school I was not of course an educated man, but I knew how to try to become one.
+ - Being a child is in itself a profession.
+ - The tantrums of cloth-headed celluloid idols are deemed fit for grown-up conversation, while silence settles over such a truly important matter as food.
+ - One newspaper a day ought to be enough for anyone who still prefers to retain a little mental balance.
+ - The German mind has a talent for making no mistakes but the very greatest.
+ - I tried to use the questions and answers as an armature on which to build a sculpture of genuine conversation.
+ - A bottle of wine begs to be shared; I have never met a miserly wine lover. The social emotions it generates are equidistant from the philatelist’s solitary gloating and the football fan’s gregarious hysteria.
+ - Wine is poetry in a bottle.
+ - Gertrude Stein was masterly in making nothing happen very slowly.
+ - What is a sense of humor? Surely not the ability to understand a joke. It comes rather from a residing feeling of one’s own absurdity. It is the ability to understand a joke, and that the joke is on oneself.
+ - The man who attracts luck carries with him the magnet of preparation.
+ - There are two kinds of writers; the great ones who can give you truths, and the lessor ones, who can only give you themselves.
+ - My son is 7 years old. I am 54. It has taken me a great many years to reach that age. I am more respected in the community, I am stronger, I am more intelligent and I think I am better than he is. I don’t want to be a pal, I want to be a father.
+ - Reading to small children is a specialty.
+ - I think we must quote whenever we feel that the allusion is interesting or helpful or amusing.
+ - I found nothing really wrong with this autobiography except poor choice of subject.
+ - The only reason for being young is to outgrow it.
+ - Mr. Faulkner, of course, is interested in making your mind rather than your flesh creep.
+ - We prefer to think that the absence of inverted commas guarantees the originality of a thought, whereas it may be merely that the utterer has forgotten its source.
+ - Wine is a civilizing agent.
+ - My main recollection is of the work I had to do in order to eat.
+ - The drinking of wine seems to me to have a moral edge over many pleasures and hobbies in that it promotes love of one’s neighbor.
+ - There is no reader so parochial as the one who reads none but this morning’s books. Books are not rolls, to be devoured only when they are hot and fresh. A good book retains its interior heat and will warm a generation yet unborn.
+ - Books act like a developing fluid on film. That is, they bring into consciousness what you didn’t know you knew.
+ - A man who is careful with his palate is not likely to be careless with his paragraphs.
+ - Reading is not an operation performed on something inert but a relationship entered into with another vital being.
+
+49 quotes

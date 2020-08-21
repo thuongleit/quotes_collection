@@ -1,0 +1,29 @@
+ - I, John Brown, am now quite certain that the crimes of this guilty land will never be purged away but with Blood.
+ - Charm is a glow within a woman which casts a most becoming light on others.
+ - No man, with a man’s heart in him gets far on his way without some bitter, soul-searching disappointment. Happy is he who is brave enough to push on to another stage of the journey.
+ - Nowhere are prejudices more mistaken for truth, passion for reason and invective for documentation than in politics.
+ - He played the king as if afraid someone else would play the ace.
+ - Some television programs are so much chewing gum for the eyes.
+ - The comic book is the marijuana of the nursery, the bane of the bassinet, the horror of the home, the curse of the kids and a threat to the future.
+ - Reasoning with a child is fine, if you can reach the child’s reason without destroying your own.
+ - I am ready any time. Do not keep me waiting.
+ - Friendship should be a private pleasure, not a public boast. I loathe those braggarts who are forever trying to invest themselves with importance by calling important people by their first names in or out of print. Such first-naming for effect makes me cringe.
+ - What happiness is, no person can say for another. But no one, I am convinced, can be happy who lives only for himself. The joy of living comes from immersion in something that we know to be bigger, better, more enduring and worthier than we are.
+ - She knows what is the best purpose of education: not to be frightened by the best but to treat it as part of daily life.
+ - The critic is a man who prefers the indolence of opinion to the trials of action.
+ - To many people, dramatic criticism must seem like an attempt to tattoo soap bubbles.
+ - God spare me sclerosis of the curiosity, for the curiosity which craves to keep us informed about the small things no less than the large is the mainspring, the dynamo, the jet propulsion of all complete living.
+ - Even when the facts are available, most people seem to prefer the legend, and refuse to believe the truth when it in any way dislodges the myth.
+ - Most people spend most of their days doing what they do not want to do in order to earn the right, at times, to do what they may desire.
+ - So often we rob tomorrow’s memories by today’s economies.
+ - I have lived long enough to be battered by the realities of life, and not too long to be downed by them.
+ - Part of the American myth is that people who are handed the skin of a dead sheep at graduating time think that it will keep their minds alive forever.
+ - No one is worthy of a good home here or in heaven that is not willing to be in peril for a good cause.
+ - I am as content to die for God’s eternal truth on the scaffold as in any other way.
+ - The more one has seen of the good, the more one asks for the better.
+ - The more I observed Washington, the more frequently I visited it, and the more people I interviewed there, the more I understood how prophetic L’Enfant was when he laid it out as a city that goes around in circles.
+ - What a man is is the basis owhat he dreams and thinks, accepts and rejects, feels and perceives.
+ - It is in the hard rockpile labour of seeking to win, hold, or deserve a reader’s interest that the pleasant agony of writing comes in.
+ - The purpose of writing is to hold a mirror to nature, but too much today is written from small mirrors in vanity cases.
+
+27 quotes

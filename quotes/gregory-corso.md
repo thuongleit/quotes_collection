@@ -1,0 +1,22 @@
+ - Standing on a street corner waiting for no one is power.
+ - If you believe you’re a poet, then you’re saved.
+ - Spirit is Life. It flows thru the death of me endlessly like a river unafraid of becoming the sea.
+ - I feel I want to be wise with white hair in a tall library in a deep chair by a fireplace.
+ - If you have a choice of two things and can’t decide, take both.
+ - The fall of man stands a lie before Beethoven, a truth before Hitler.
+ - They, that unnamed they, they’ve knocked me down but I got up. I always get up – and I swear when I went down quite often I took the fall; nothing moves a mountain but itself. They, I’ve long ago named them me.
+ - It is a great feeling to know that from a window I can go to books to cans of beer to past loves. And from these gather enough dream to sneak out a back door.
+ - I just trust people and they sense everything’s gonna be alright.
+ - I learned life were no dream I learned truth deceived Man is not God Life is a century Death an instant.
+ - Anyway, I lived on the streets and did pretty good until I got caught stealing, what was it? I kicked in a restaurant window, went in and took all the food that I wanted, and while coming out I was grabbed.
+ - The judge said I was a menace to society because I had put crime on a scientific basis.
+ - But when the conquered spirit breaks free And indicates a new light Who’ll take care of the cats?
+ - I moved up over Lower East Side and I was adopted by eight foster parents; I lived all over New York City with these parents, man, till I was about ten years old.
+ - You see, I went to the sixth grade and that was the highest I ever went.
+ - My father took me back home, back to Greenwich Village, and he thought by taking me out of the orphanage he’d be out of the World War too. But no way – they got him anyway. He went in the Navy and then I lived on the streets.
+ - Ah, if I were dictator I’d have poets throwing bombs!
+ - I remember the people I knew in prison; I was very fortunate to know them – they came from 1910, 1920, 1930.
+ - My father went into the armed service and I never saw my mother – I don’t know what happened to her.
+ - The lucky thing was that I was Italian; when the other Italians saw me fight back, they came to my defence.
+
+20 quotes

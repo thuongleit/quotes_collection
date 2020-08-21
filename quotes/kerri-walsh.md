@@ -1,0 +1,34 @@
+ - I don’t want to be better than you or her or him – I want to be better than I am right now.
+ - A true competitor works the hardest, cares the most, and makes the best of what they have.
+ - Passion is a huge prerequisite to winning. It makes you willing to jump through hoops, go through all the ups and downs and everything in between to reach your goal.
+ - My mom is a constant in my life in so many ways.
+ - You have to rely on your support system. Growing up, I always thought it was a sign of weakness to ask for help, but now I realize it’s really a sign of strength to say, ‘I need help, I can’t do it all.’
+ - We have to fight the entire time, we can’t start at the end when it’s getting down to crunch time. We can’t leave anything on the floor.
+ - If you are not prepared, you cannot work out intensely. If you do not perform, you cannot get results, and if you can’t do your best to recover, you won’t get the benefits of your hard work.
+ - My job is to be fit and I’m really blessed that I get to go and work out and live a really healthy lifestyle.
+ - We were very aggressive, and when we’re aggressive, it’s hard to stop us.
+ - That wall is your mind playing tricks on you. You just need to say, ‘One more step, I can do this. I have more in me.’ You’ll be so proud of yourself once you push yourself past your threshold.
+ - The balancing act of motherhood and a career, and being a wife, is something that I don’t think I’ll ever perfect, but I love the challenge of it.
+ - Adversity, if you allow it to, will fortify you and make you the best you can be.
+ - Sometimes it’s just the beer and bikinis that get people to come and watch, but it’s the competition that’s keeping them there.
+ - I used to sleep, eat, breathe volleyball. Now I have that with my kids.
+ - To me, crying is not a sign of weakness. She wants it that bad and she puts her whole heart into it. She had really high expectations, and that’s why she’s so good. She just had a bad game.
+ - It’s the best thing in the world, the most challenging thing in the world, being a parent, and one of the first lessons I learned was to ask for help.
+ - I think the hard part is over. Now it’s time for us to play.
+ - In my heart, I’m so far from done.
+ - People think we have coasted the last four years. We fought, we had a lot of battles. We’ve always had to battle.
+ - I love that our sport is sexy. I think it is appropriately so.
+ - It’s not a sprint to get in shape.
+ - When I’m sore, ice is my best friend. It really works. I take omega-3s every day, which helps with inflammation. And I try to eat things that won’t inflame my joints, like fresh fruits and veggies, lean protein, and seafood.
+ - At some point you’re like, gosh, this rehab is never going to end, and then all of a sudden I’m full strength and I’m about to go to my first competition. So I feel really great.
+ - You touch every other ball and, if you screw up, you only have one more person to back you up. You can’t go hide in the corner.
+ - The advice I will give my children, if and when they have Olympic aspirations, will be to go for it.
+ - I’m doing mental training as well. So, you know, body, mind, and spirit – everything is being addressed, every single day. Generally I’ll have three training sessions a day.
+ - I take my role as an ambassador for the sport, and as a role model for boys, girls, mommies, daddies – whoever it is – very, very seriously. I know the impact my role models have had in my life, and I’m in a really beautiful position to be able to be that for others.
+ - We don’t have a World Series or a Super Bowl, so to be able to come home with a gold medal is amazing. I want to do it again in four more years.
+ - I want to win a gold medal in London.
+ - And it’s given me great perspective. It makes me really focused and efficient, which – I was focused before I had babies but I wasted a lot of time. Prior to having babies I thought I thought I was so busy and now I realize just how ignorant I was.
+ - What’s not to love about us! People got to know Misty and me in Athens. We’ve continued to be successful and continued to connect with the fans. I promise we’re going to be tough to get rid of.
+ - Growing up, Michael Jordan was my Olympic hero.
+
+32 quotes

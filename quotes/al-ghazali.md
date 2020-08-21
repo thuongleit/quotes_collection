@@ -1,0 +1,47 @@
+ - Knowledge without action is wastefulness and action without knowledge is foolishness.
+ - Desires make slaves out of kings and patience makes kings out of slaves.
+ - To get what you love, you must first be patient with what you hate.
+ - Declare your jihad on thirteen enemies you cannot see -egoism, arrogance, conceit, selfishness, greed, lust, intolerance, anger, lying, cheating, gossiping and slandering. If you can master and destroy them, then you will be read to fight the enemy you can see.
+ - The hypocrite looks for faults; the believer looks for excuses.
+ - Those who look for seashells will find seashells; those who open them will find pearls.
+ - Never have I dealt with anything more difficult than my own soul, which sometimes helps me and sometimes opposes me.
+ - Do not allow your heart to take pleasure with the praises of people, nor be saddened by their condemnation.
+ - Knowledge exists potentially in the human soul like the seed in the soil; by learning the potential becomes actual.
+ - You must convince your heart that whatever Allah has decreed is most appropriate and most beneficial for you.
+ - A man of bad character punishes his own soul.
+ - Offen love between two people intensifies not because of beauty or some advantage, but because of sheer spiritual affinity.
+ - If you do not prepare now for the Afterlife, then when will you do so?
+ - If your busy with yourself now, you will be busy with yourself then. If you are busy with Allah now, you will be with Him then.
+ - Whoever says that all music is prohibited, let him also claim that the songs of birds are prohibited.
+ - You possess only whatever will not be lost in a ship wreck.
+ - Man’s nature is made up of four elements, which produce in him four attributes, namely, the beastly, the brutal, the satanic, and the divine. In man there is something of the pig, the dog, the devil, and the saint.
+ - Whoever determines the truth from people alone will remain lost in the plains of bewilderment. Rather, know the truth, and you will know its people.
+ - Understand that for every rule which I have mentioned from the Quran, the Devil has one to match it, which he puts beside the proper rule to cause error.
+ - The corruption of religions comes from turning them to mere words and appearances.
+ - Do not dispute with anyone in any matter as far as possible. For in argumentation lies much harm and its evil is greater than its benefit.
+ - The happiness of the drop is to die in the river.
+ - To completely trust in Allah is to be like a child who knows deeply that even if he does not call for the mother, the mother is totally aware of his condition and is looking after him.
+ - People count with self-satisfaction the number of times they have recited the name of God on their prayer beads, but they keep no beads for reckoning the number of idle words they speak.
+ - Half of disbelief in Allah in the world is caused by people who make religion look ugly due to their bad conduct and ignorance.
+ - Know, O beloved, that man was not created in jest or at random, but marvelously made and for some great end. Although he is not form everlasting, yet he lives for ever; and though his body is mean and earthly, yet his spirit is lofty and divine.
+ - In God, there is no sorrow or suffering or affliction. If you want to be free of all affliction and suffering, hold fast to God, and turn wholly to Him, and to no one else. Indeed, all your suffering comes from this: that you do not turn toward God and no one else.
+ - This visible world is a trace of that invisible one and the former follows the latter like a shadow.
+ - Men have such a good opinion of themselves, of their mental superiority and intellectual depth; they believe themselves so skilled in discerning the true from the false, the path of safety from those of error, that they should be forbidden as much as possible the perusal of philosophic writings.
+ - Love for God is the farthest reach of all stations, the sun of the highest degrees, and there is no station after that of love, except its fruit and its consequences.
+ - The soul should take care of the body, just as the pilgrim on his way to Makkah takes care of his camel; but if the pilgrim spends his whole time in feeding and adorning his camel, the caravan will leave him behind, and he will perish in the desert.
+ - If those who do not possess knowledge avoid the scholarly discussions, disagreement will end.
+ - A human-being is not a human-being while his tendencies include self-indulgence, covetousness, temper and attacking other people.
+ - Work for your terrestrial life in proportion to your location in it, and work for your afterlife in proportion to your eternity in it.
+ - The way to paradise is an uphill climb whereas hell is downhill. Hence, there is a struggle to get to paradise and not to hell.
+ - The essence of knowledge is to know what obedience and worship are -Abu Hamid al.
+ - The mere physical man is like the ant crawling on the paper, who observes black lettering and attributes its production to the pen and nothing more.
+ - Does money upset the hearts of learned men? He answered, “men whose hearts are changed by money are not learned”
+ - Remember it is the heart and not the body, which strives to draw near to God. By heart I do not mean the flesh perceived by the senses, but that secret thing which is sometimes expressed by spirit, and sometimes by soul.
+ - If the world had two gods, it would surely go to ruin-this is the first premise. Now it is known that it has not gone to ruin-this is the second premise. From these premises the conclusion must of necessity follow, that is, the denial of two gods.
+ - Whoever passes forty without his virtue overpowering his vice, let him get ready for hellfire. This advice contains enough for people of knowledge.
+ - He who buries his head deep into a nosebag full of food cannot hope to see the invisible world.
+ - Do not fix hopes on your health, and do not laugh away life. Remember how they walked and now all their joints lie separately, and the tongue with which they talked lightly is eaten away by the worms.
+ - He who does not arrive at the Intuition of these Truths by means of Ecstasy knows only the name of Inspiration.
+ - It is sometimes said that we drink our religion with our mother’s milk.
+
+45 quotes

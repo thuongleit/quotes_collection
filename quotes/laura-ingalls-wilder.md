@@ -1,0 +1,73 @@
+ - Courage and kindness, loyalty, truth, and helpfulness are always the same and always needed.
+ - The real things haven’t changed. It is still best to be honest and truthful; to make the most of what we have; to be happy with simple pleasures; and have courage when things go wrong.
+ - The true way to live is to enjoy every moment as it passes, and surely it is in the everyday things around us that the beauty of life lies.
+ - Some old-fashioned things like fresh air and sunshine are hard to beat.
+ - Every job is good if you do your best and work hard. A man who works hard stinks only to the ones that have nothing to do but smell.
+ - Home is the nicest word there is.
+ - Suffering passes, while love is eternal. That’s a gift that you have received from God. Don’t waste it.
+ - Remember me with smiles and laughter, for that is how I will remember you all. If you can only remember me with tears, then don’t remember me at all.
+ - You venture into the unknown land because that is where your heart will take you. In the end, it is not what you want to do, it is something you have to do.
+ - No one has ever achieved anything from the smallest to the greatest unless the dream was dreamed first.
+ - We who live in quiet places have the opportunity to become acquainted with ourselves, to think our own thoughts and live our own lives in a way that is not possible for those keeping up with the crowd.
+ - It is the sweet, simple things of life which are the real ones after all.
+ - It is the simple things of life that make living worthwhile, the sweet fundamental things such as love and duty, work and rest, and living close to nature.
+ - There’s no great loss without some small gain.
+ - Laura felt a warmth inside her. It was very small, but it was strong. It was steady, like a tiny light in the dark, and it burned very low but no winds could make it flicker because it would not give up.
+ - Let’s be cheerful! We have no more right to steal the brightness out of the day for our own family than we have to steal the purse of a stranger.
+ - It does not so much matter what happens. It is what one does when it happens that really counts.
+ - A good laugh overcomes more difficulties and dissipates more dark clouds than any other one thing.
+ - The trouble with organizing a thing is that pretty soon folks get to paying more attention to the organization than to what they’re organized for.
+ - The uplift of a fearless heart will help us over barriers. No one ever overcomes difficulties by going at them in a hesitant, doubtful way.
+ - The days have never been long enough to do the things I would like to do. Every year has held more of interest than the year before.
+ - Never bet your money on another man’s game.
+ - Many a good beginning makes a bad ending.
+ - These happy golden years are passing by, these happy golden years.
+ - And just as a little thread of gold, running through a fabric, brightens the whole garment, so women’s work at home, while only the doing of little things, like the golden gleam of sunlight runs through and brightens all the fabric of civilization.
+ - Remember well, and bear in mind, a constant friend is hard to find.
+ - Everything from the little house was in the wagon, except the beds and tables and chairs. They did not need to take these, because Pa could always make new ones.
+ - We had no choice. Sadness was a dangerous as panthers and bears. the wilderness needs your whole attention.
+ - The wilderness needs your whole attention.
+ - We heap up around us things that we do not need as the crow makes piles of glittering pebbles.
+ - Our hearts grow tender with childhood memories and love of kindred, and we are better throughout the year for having, in spirit, become a child again at Christmas-time.
+ - The only stupid thing about words is the spelling of them.
+ - She thought to herself, “This is now.” She was glad that the cozy house, and Pa and Ma and the firelight and the music, were now. They could not be forgotten, she thought, because now is now. It can never be a long time ago.
+ - Mary and Carrie and baby Grace and Ma had all had scarlet fever. The Nelsons across the creek had had it too, so there had been no one to help Pa and Laura.
+ - No rich man can walk through the eye of a needle.
+ - Far worst of all, the fever had settled in Mary’s eyes, and Mary was blind.
+ - These times are too progressive. Everything has changed too fast. Railroads and telegraphs and kerosene and coal stoves – they’re good to have but the trouble is, folks get to depend on ’em.
+ - All I have told is true, but it is not the whole truth.
+ - If enough people think of a thing and work hard enough at it, I guess it’s pretty nearly bound to happen, wind and weather permitting.
+ - But in the east the sky was pale and through the gray woods came lanterns with wagons and horses, bringing Grandpa and Grandma and aunts and uncles and cousins.
+ - Once you begin being naughty, it is easier to go and on and on, and sooner or later something dreadful happens.
+ - The world seems a lonesome place when mother has passed away and only memories of her are left.
+ - There is nothing wrong with God’s plan that man should earn his bread by the sweat of his brow.
+ - Life begins at eighty.
+ - So Pa sold the little house. He sold the cow and calf. He made hickory bows and fastened them upright to the wagon box. Ma helped him stretch white canvas over them.
+ - The object of all education is to make folks fit to live.
+ - There is no comfort anywhere for anyone who dreads to go home.
+ - The uplift of a fearless heart will help us over barriers.
+ - It is not the things you have that make you happy. It is love and kindness and helping each other and just plain being good.
+ - Why should we need extra time in which to enjoy ourselves? If we expect to enjoy our life, we will have to learn to be joyful in all of it, not just at stated intervals when we can get time or when we have nothing else to do.
+ - Did you ever think how a bit of land shows the character of the owner?
+ - A long time ago, when all the grandfathers and grandmothers of today were little boys and little girls or very small babies, or perhaps not even born, Pa and Ma and Mary and Laura and Baby Carrie left their little house in the Big Woods of Wisconsin.
+ - It is a good idea sometimes to think of the importance and dignity of our every-day duties. It keeps them from being so tiresome; besides, others are apt take us at our own valuation.
+ - The sweetness of life lies in usefulness, like honey deep in the heart of a clover bloom.
+ - There the wild animals wandered and fed as though they were in a pasture that stretched much farther than a man could see, and there were no settlers. Only Indians lived there.
+ - They drove a long way through the snowy woods, till they came to the town of Pepin. Mary and Laura had seen it once before, but it looked different now.
+ - Vices are simply overworked virtues...
+ - We’d never get anything fixed to suit us if we waited for things to suit us before we started.
+ - Pa did not like a country so old and worn out that the hunting was poor. He wanted to go west. For two years he had wanted to go west and take a homestead, but Ma did not want to leave the settled country.
+ - Her blue eyes were still beautiful, but they did not know what was before them, and Mary herself could never look through them again to tell Laura what she was thinking without saying a word.
+ - The enormous lake stretched flat and smooth and white all the way to the edge of the gray sky. Wagon tracks went away across it, so far that you could not see where they went; they ended in nothing at all.
+ - In these days when we feed those who are not hungry, we are stealing from those who are starving, even though the food is our own.
+ - People used to have time to live and enjoy themselves, but there is no time anymore for anything but work, work, work.
+ - Wild animals would not stay in a country where there were so many people. Pa did not like to stay, either. He liked a country where the wild animals lived without being afraid.
+ - We must get rid of the habit of classing all women together politically and thinking of the ‘woman’s vote’ as one and indivisible.
+ - Tact does for life just what lubricating oil does for machinery.
+ - I believe we would be happier to have a personal revolution in our individual lives and go back to simpler living and more direct thinking.
+ - Money hasn’t any value of its own; it represents the stored up energy of men and women and is really just someone’s promise to pay a certain amount of that energy.
+ - If the members of a home are ill-temperered and quarrelsome, how quickly you feel it when you enter the house. You may not know just what is wrong, but you wish to make your visit short.
+ - That which is the wonder of one age is the commonplace of the next.
+ - We go lightheartedly on our way, never thinking that by a careless word or two we may have altered the whole course of human lives, for some person will take our advice and use it.
+
+71 quotes

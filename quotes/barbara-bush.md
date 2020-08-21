@@ -1,0 +1,32 @@
+ - The home is the child’s first school, the parent is the child’s first teacher, and reading is the child’s first subject.
+ - The Titanic was built by professionals. The Ark was built by volunteers.
+ - Whether you are talking about education, career, or service, you are talking about life. And life must really have joy. It’s supposed to be fun.
+ - You get nothing done if you don’t listen to each other.
+ - Where will our country find leaders with integrity, courage, strength-all the family values-in ten, twenty, or thirty years? The answer is that you are teaching them, loving them, and raising them right now.
+ - Future of his nation does not depend on what happens at the White House, but what happens at your house.
+ - If human beings are perceived as potentials rather than problems, as possessing strengths instead of weaknesses, as unlimited rather that dull and unresponsive, then they thrive and grow to their capabilities.
+ - If more people could read, write, and comprehend, we could be much closer to solving so many of the other problems our country faces today.
+ - My worst expectations never happened.
+ - Clinton lied. A man might forget where he parks or where he lives, but he never forgets oral sex, no matter how bad it is.
+ - But why should we hear about body bags, and deaths, and how many, what day it’s gonna happen, and how many this or what do you suppose? Or, I mean, it’s, it’s not relevant. So, why should I waste my beautiful mind on something like that?
+ - I love talking to people, but what I really love is to feel you’re doing something instead of sitting home and twiddling your thumbs.
+ - Why be afraid of what people will say? Those who care about you will say, Good luck! and those who care only about themselves will never say anything worth listening to anyway.
+ - I think a lot of our problems are because people don’t listen to our children. It is not always easy. They’re not always so brilliant that you want to spend hours with them. But it is very important to listen to them.
+ - Show me a wife who doesn’t offer advice and I’ll show you one who doesn’t care very much.
+ - Describing life out of the public eye to David Letterman, December 6th, 1996 It’s been different. I started driving again. I started cooking again. My driving’s better than my cooking. George has discovered Sam’s Club.
+ - You know sit with your arm around a little kid and read. It not only teaches them to read but it keeps the family strong.
+ - I’m tired now of the elections.
+ - George is the best little dishwasher in Texas.
+ - I don’t like attacking.
+ - The First Lady is going to be criticized no matter what she does.
+ - I’m not saying to be happy you must be married. Nor am I saying that to be happy you need children. I’m saying that if you opt for children – be you man or woman – you have to take care of them.
+ - To this day George Sr. is the soft touch and I’m the enforcer. I’m the one who writes them a letter and says ‘Shape up!’ He writes, ‘You’re marvelous.’
+ - My son, George, has been a bad, bad boy! Right, George?
+ - I decided I ought to pick a project that would not be controversial, that would not really cost the government a lot of money.
+ - There are a lot of ways to serve, and being president is not the only one, and I would hope that someone else would run.
+ - I think the country has had enough Bushes.
+ - As if we don’t have enough volence on television. After her husband accidentally hit two spectators with golf balls during a celebrity golf tournament.
+ - You may think the president is all-powerful, but he is not. He needs a lot of guidance from the Lord.
+ - Suddenly women’s lib had made me feel my life had been wasted.
+
+30 quotes

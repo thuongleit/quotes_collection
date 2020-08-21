@@ -1,0 +1,50 @@
+ - In this life he laughs longest who laughs last.
+ - All I ask is a tall ship and a star to sail her by.
+ - The three foundations of judgement: Bold Design, Constant Practice, and Frequent Mistakes.
+ - The days that make us happy make us wise.
+ - Only the road and the dawn, the sun, the wind, and the rain, And the watch fire under stars, and sleep, and the road again.
+ - Life, a beauty chased by tragic laughter.
+ - Man with his burning soul Has but an hour of breath To build a ship of Truth In which his soul may sail- Sail on the sea of death. For death takes toll Of beauty, courage, youth, Of all but Truth.
+ - The distant soul can shake the distant friend’s soul and make the longing felt, over untold miles.
+ - I must go down to the sea again For the call of the running tide It’s a wild call and a clear call that may not be denied.
+ - O lovely lily clean, O lily springing green, O lily bursting white, Dear lily of delight, Spring in my heart agen That I may flower to men.
+ - Oh some are fond of Spanish wine, and some are fond of French.
+ - The corn that makes the holy bread By which the soul of man is fed, The holy bread, the food unpriced, Thy everlasting mercy, Christ.
+ - In the dark room where I began My mother’s life made me a man. Through all the months of human birth Her beauty fed my common earth. I cannot see, nor breathe, nor stir, But through the death of some of her.
+ - Man’s body is faulty, his mind untrustworthy, but his imagination has made him remarkable.
+ - Men in a ship are always looking up, and men ashore are usually looking down.
+ - Since the printing press came into being, poetry has ceased to be the delight of the whole community of man; it has become the amusement and delight of the few.
+ - My road leads me seawards To the white dipping sails.
+ - Life is a long headache in a noisy street.
+ - Quinquireme of Nineveh from distant Ophir, Rowing home to haven in sunny Palestine, With a cargo of ivory, And apes and peacocks, Sandalwood, cedarwood, and sweet white wine.
+ - There are few earthly things more beautiful than a university a place where those who hate ignorance may strive to know, where those who perceive truth may strive to make others see.
+ - I have seen dawn and sunset on moors and windy hills Coming in solemn beauty like slow old tunes of Spain.
+ - Heaven to me’s a fair blue stretch of sky, Earth’s jest a dusty road.
+ - But he has gone, A nation’s memory and veneration, Among the radiant, ever venturing on, Somewhere, with morning, as such spirits will.
+ - God warms his hands at man’s heart when he prays.
+ - Life’s battle is a conquest for the strong; The meaning shows in the defeated thing.
+ - What am I, Life? A thing of watery salt Held in cohesion by unresting cells, Which work they know not why, which never halt, Myself unwitting where their Master dwells?
+ - And he who gives a child a treat Makes joy-bells ring in Heaven’s street, And he who gives a child a home Builds palaces in Kingdom come, And she who gives a baby birth Brings Saviour Christ again to Earth.
+ - In the power and splendor of the universe, inspiration waits for the millions to come. Man has only to strive for it. Poems greater than the Iliad, plays greater than Macbeth, stories more engaging than Don Quixote await their seeker and finder.
+ - I must go down to the sea again, to the lonely sea and the sky; and all I ask is a tall ship and a star to steer her by.
+ - Death opens unknown doors. It is most grand to die.
+ - Most roads lead men homewards, My road leads me forth.
+ - His face was filled with broken commandments.
+ - I must down to the seas again, to the vagrant gypsy life, To the gull’s way and the whale’s way where the wind’s like a whetted knife And all I ask is a merry yarn from a laughing fellow rover, And quiet sleep and a sweet dream when the long trick’s over.
+ - All the great things of life are swiftly done, Creation, death, and love the double gate. However much we dawdle in the sun We have to hurry at the touch of Fate.
+ - God dropped a spark down into everyone, And if we find and fan it to a blaze, It’ll spring up and glow, like – like the sun, And light the wandering out of stony ways.
+ - Off Cape Horn there are but two kinds of weather, neither one of them a pleasant kind.
+ - The luck will alter and the star will rise.
+ - Once in a century a man may be ruined or made insufferable by praise. But surely once in a minute something generous dies for want of it.
+ - To most of us the future seems unsure. But then it always has been; and we who have seen great changes must have great hopes.
+ - The social states of human kinds Are made by multitudes of minds, And after multitudes of years A little human growth appears Worth having, even to the soul Who sees most plain it’s not the whole.
+ - Love is a flame to set the will on fire.
+ - Success is the brand on the brow of the man who aimed too low.
+ - Commonplace people dislike tragedy because they dare not suffer and cannot exult.
+ - People who leave their own time out of their work cannot be surprised if their time fails to find them interesting.
+ - And may we find when ended is the page, Death but a tavern on our pilgrimage.
+ - Poetry is a mixture of common sense, which not all have, with an uncommon sense, which very few have.
+ - It is too maddening. I’ve got to fly off, right now, to some devilish navy yard, three hours in a seasick steamer, and after being heartily sick, I’ll have to speak three times, and then I’ll be sick coming home. Still, who would not be sick for England?
+ - It ought to have gangsters, and aeroplanes and a lot of automatic pistols.
+
+48 quotes

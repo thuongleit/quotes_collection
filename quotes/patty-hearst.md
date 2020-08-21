@@ -1,0 +1,28 @@
+ - For me, my awakening came when I was kidnapped.
+ - I mean, they call it Stockholm Syndrome and post traumatic stress disorder. And, you know, I had no free will. I had virtually no free will until I was separated from them for about two weeks.
+ - People who’ve never gone hunting have a tendency to look down on hunters and act like they’re out killing Bambi’s father.
+ - There’s always some days you wish things had never happened, like you’d never been born, that sort of thing but I’m not the kind of person anyway that can just sit around and say, “gee, I wish that never happened.” I don’t ever do that. There’s no point. That is a total and complete waste of time.
+ - I got hit in the face with a gun. I’m not very fragile at all. It makes me think maybe things would be easier if I were terribly frail and fragile somehow.
+ - There is – you know, there’s receipts for rented cars and license plates and guns and hand prints and palm prints and fingerprints. You know, I want to wait until I’m in a court.
+ - I finally figured out what my crime was. I lived. Big mistake.
+ - You have to go hunting to know the excitement of seeing someone get their first deer. It’s a thrill for them. It is.
+ - And for any victim of a violent crime, when you actually get to go in and realize and see their faces and know that they can’t hurt you any more, there is no feeling like that. It finally frees you from a lot of demons.
+ - And, you know, like I said, I’m not looking forward to a trial.
+ - I had not seen that until – and when it first came out I was told. I had not seen or been aware of all of that physical evidence. And when I saw it, I was horrified. It was so astounding to me to see that there was that much evidence.
+ - Even to me, as I was trying to tell the government what had happened, it just didn’t seem to matter.
+ - Well, you know, it’s really been, you know, quite a trip for me.
+ - Through my mind, is just the horror of these people. I had been held by them, I knew how violent they were.
+ - There are two other SLA members who have been granted immunity and then also, one of the SLA members had confessed to two other people, and those people, I’m sure, will be called as witnesses, as they were at the grand jury.
+ - I think Charles Manson was a hair’s breath away from just being a terrorist. He wanted to start a war, too.
+ - I frankly don’t think it’s going to be a successful war on terrorism until law enforcement agencies like the FBI are willing to share with other law enforcement agencies. If they can’t share information, there’s no way this war can be won.
+ - And you probably remember all of those papers and documents that they had published in the newspapers. And, you know, when you look at that, it really was their own little jihad that they had going. It just wasn’t taken very seriously then.
+ - Well, you know, they were – they were a terrorist group. They – when I was kidnapped they published all of their statements about their war that they declared on the United States.
+ - My daughters have grown up knowing all about my kidnapping and the case and what happened.
+ - I became as much of a believer as I was capable of becoming.
+ - And here in Los Angeles, once again, I’m going to go down and be a witness. There’s a guilty plea. I don’t mind being on the witness stand, but I think they mind it a lot.
+ - And, quite frankly, I fully expected to be charged with murder, because they weren’t charging anybody. I did it in terms of, I felt like I was throwing down the gauntlet saying look, this is what happened. There’s a family out there that needed to know what happened.
+ - I’m a coward, I didn’t want to die.
+ - You know, my daughters have been through their entire lives and knowing about my case.
+ - It’s hard to know what to say about somebody like that, except there are people who look for trouble. And trouble is very easy to find when you go looking for it.
+
+26 quotes

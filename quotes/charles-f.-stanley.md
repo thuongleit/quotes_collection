@@ -1,0 +1,143 @@
+ - Obey God and leave all the consequences to Him.
+ - God takes full responsibility for the life wholly devoted to Him.
+ - Fight all your battles on your knees and you win every time.
+ - Our willingness to wait reveals the value we place on the object we’re waiting for.
+ - Disappointments are inevitable; discouragement is a choice.
+ - We can be tired, weary and emotionally distraught, but after spending time alone with God, we find that He injects into our bodies energy, power and strength.
+ - Romantic love reaches out in little ways, showing attention and admiration. Romantic love remembers what pleases a woman, what excites her, and what surprises her. Its actions whisper; you are the most special person in my life.
+ - Wisdom is the capacity to see things from God’s viewpoint.
+ - You will never go wrong obeying God.
+ - Brokenness is God’s requirement for maximum usefulness.
+ - The time you spend alone with God will transform your character and increase your devotion. Then your integrity and godly behavior in an unbelieving world will make others long to know the Lord.
+ - You always have God’s undivided attention.
+ - Earthly wisdom is doing what comes naturally. Godly wisdom is doing what the Holy Spirit compels us to do.
+ - As children of a sovereign God, we are never victims of our circumstances.
+ - Success is the continuing achievement of becoming the person God wants you to be and accomplishing the goals God has helped you set.
+ - It is not the trials in your life that develop or destroy you, but rather your response to those hardships.
+ - Whatever brings you to your knees in weakness carries the greatest potential for your personal success and spiritual victory.
+ - God is responsible for the consequences of our obedience, WE are responsible for the consequences of our disobedience.
+ - God blesses us so that we might bless others!
+ - If you put your faith in yourself and your abilities, intellect and dreams, then your foundation is only as strong as you are.
+ - Adversity is always unexpected and unwelcomed. It is an intruder and a thief. But in the hands of God, adversity becomes the means through which HIS Supernatural Power is demonstrated.
+ - Every test, every trial, every heartache that’s been significant, I can turn it over and see how God has turned it into good no matter what.
+ - The Bible tells us that God will meet all our needs. He feeds the birds of the air and clothes the grass with the splendor of lilies. How much more, then, will He care for us, who are made in His image? Our only concern is to obey the heavenly Father and leave the consequences to Him.
+ - You must never sacrifice your relationship with God for the sake of a relationship with another person.
+ - Fear stifles our thinking and actions. It creates indecisiveness that results in stagnation. I have known talented people who procrastinate indefinitely rather than risk failure. Lost opportunities cause erosion of confidence, and the downward spiral begins.
+ - You may go through difficulty, hardship, or trial – but as long as you are anchored to Him, you will have hope.
+ - An unschooled man who knows how to meditate upon the Lord has learned far more than the man with the highest education who does not know how to meditate.
+ - Trusting God means looking beyond what we can see to what God sees.
+ - God has loved you since before you were born-so much so that 2,000 years ago, He sent His Son Jesus to die in your place.
+ - If we walk in the Spirit daily, surrendered to His power, we have the right to expect anything we need to hear from God. The Holy Spirit living within us and speaking to us ought to be the natural, normal lifestyle of believers.
+ - Temptation can be defined as an inducement to do evil. Three powerful forces work together to ruin a believer’s character and witness: Satan, the world system, and our own lustful “flesh” tendencies.
+ - You have to have courage to be obedient to God.
+ - We are to forgive so that we may enjoy God’s goodness without feeling the weight of anger burning deep within our hearts. Forgiveness does not mean we recant the fact that what happened to us was wrong. Instead, we roll our burdens onto the Lord and allow Him to carry them for us.
+ - Wherever you go, God is with you – watching over you, protecting you, and providing the truth you need for every situation. The question is, will you open your heart to His Word, apply it to your life, and allow God to change you so that He can use you in ways far greater than you can imagine?
+ - Jesus is our Advocate before God.
+ - When we surrender to His timing, He does mighty things in and for us, according to His will and His timing. God acts on behalf of those who wait for Him.
+ - The circumstances and events that we see as setbacks are oftentimes the very things that launch us into periods of intense spiritual growth.
+ - The Holy Spirit’s power cannot be harnessed. His power cannot be used to accomplish anything other than the Father’s will. He is not a candy dispenser. He is not a vending machine. He is not a genie waiting for someone to rub His lamp the right way. He is holy God.
+ - Your life is going to be determined by your prayer life.
+ - We are either in the process of resisting God’s truth or in the process of being shaped and molded by his truth.
+ - God is honored by large, difficult, and impossible requests when we ask, seek, knock, and trust our loving Father always to answer for our good.
+ - As God’s children, we are not to be observers; we’re to participate actively in the Lord’s work. Spectators sit and watch, but we are called to use our spiritual gifts and serve continually.
+ - God will never reject you. Whether you accept Him is your decision.
+ - The amount of time we spend with Jesus – meditating on His Word and His majesty, seeking His face – establishes our fruitfulness in the kingdom.
+ - Of all the things Christ wants for us, loving Him and focusing our attention on Him are the most important.
+ - We must remember that the shortest distance between our problems and their solutions is the distance between our knees and the floor.
+ - Attitude and the spirit in which we communicate are as important as the words we say.
+ - Often times God demonstrates His faithfulness in adversity by providing for us what we need to survive. He does not change our painful circumstances. He sustains us through them.
+ - The dark moments of our life will last only so long as is necessary for God to accomplish His purpose in us.
+ - No matter how far we may wander from the Lord’s perfect will for our lives, we are always welcome back.
+ - The moment someone chooses to trust in Jesus Christ, his sins are wiped away, and he is adopted into God’s family. That individual is set apart as a child of God, with a sacred purpose.
+ - When you become consumed by God’s call on your life, everything will take on new meaning and significance. You will begin to see every facet of your life – including your pain – as a means through which God can work to bring others to Himself.
+ - When God speaks, oftentimes His voice will call for an act of courage on our part.
+ - God wants us to seek Him more than anything else, even more than we seek answers to prayer. When we come to God in prayer, sometimes our hearts are so full of what we want that we leave God out. Our minds become consumed with the gift rather than the giver.
+ - Basically, there are two paths you can walk: faith or fear. It’s impossible to simultaneously trust God and not trust God.
+ - From Genesis to Revelation, here’s the central message: God Almighty, the Lord Jesus Christ, the Spirit of God, the Triune God is in control of all things, period.
+ - Often times God wants us to sit before Him in quietness. He doesn’t want us to do all the talking. As Is. 30:15 says “In quiet and confidence will be your strength.”
+ - There is only one secure foundation: a genuine, deep relationship with Jesus Christ, which will carry you through any and all turmoil. No matter what storms are raging all around, you’ll stand firm if you stand on His love.
+ - When friends abandoned him, Paul asked God not to count their actions against them. He followed the example of Jesus, who prayed for the Father to forgive His persecutors. What’s your response when friends let you down? Forgiveness is the choice that pleases God every time.
+ - Suffering prepares you by training you to trust God and know that He is always at work in your life.
+ - Jesus set an example for us to follow: a life of loving, obedient service.
+ - One of Satan’s most deceptive and powerful ways of defeating us is to get us to believe a lie. And the biggest lie is that there are no consequences to our own doing. Satan will give you whatever you ask for if it will lead you where he ultimately wants you.
+ - If we have built on the fragile cornerstones of human wisdom, pride, and conditional love, things may look good for a while, but a weak foundation causes collapse when storms hit.
+ - God’s Word is absolutely true. You may not understand how God is going to bring about what He’s promised you, but He is keeping every promise that He has ever made. He will never deceive you or disappoint you, and He will never change His mind about what He’s told you.
+ - The best way in the world to deceive believers is to cloak a message in religious language and declare that it conveys some new insight from God.
+ - If you have an anxiety lay it down before The Lord.
+ - As you walk through the valley of the unknown, you will find the footprints of Jesus both in front of you and beside you.
+ - His voice leads us not into timid discipleship but into bold witness.
+ - The difficulties we face originate from one of three sources. Some are sent to us by the Lord to test our faith, others are the result of Satan’s attacks, and still others are due to our own sinful choices.
+ - God will never direct us to be prideful, arrogant and unforgiving, immoral or slothful or full of fear. We step into these things because we are insensitive to the leadership of the Holy Spirit within us.
+ - If the church marries herself to the spirit of the times, she will find herself a widow in the next generation.
+ - Stop for a minute and think about how you typically interact with God. If prayer time is dominated by your own talking, some adjustments may be in order. Just as the Lord spoke to David, God also has many things to say to you, if you’ll simply let Him speak.
+ - I certainly respect other people’s opinions, but I would not vote for a woman to be the pastor of a church.
+ - In times of defeat, we never know how close we are to victory. In every event of failure, God has planted a seed of success.
+ - Perhaps you have been ensnared by a sinful habit that you will not abandon, and your guilt is so overwhelming you are ashamed to approach Christ. Whatever the reason for your broken intimacy with God, there is good news. Jesus waits to embrace you now in the arms of unconditional, divine love.
+ - God’s arrows of affliction are sharp and painful so He can get our attention. He won’t let His beloved children get away with sin because He knows it robs us of blessings, opportunities, and even character refinement.
+ - Since God knows our future, our personalities, and our capacity to listen, He isn’t ever going to say more to us than we can deal with at the moment.
+ - Nobody else can make us discouraged; it is a choice that we alone make when facing disappointments.
+ - I’m convinced that the man who has learned to meditate upon the Lord will be able to run on his feet and walk in his spirit. Although he may be hurried by his vocation, that’s not the issue. The issue is how fast his spirit is going. To slow it down takes a period of time.
+ - Think about the comfortable feeling you have as you open your front door. That’s but a hint of what we’ll feel some day on arriving at the place our Father has lovingly and personally prepared for us in heaven. We will finally – and permanently – be ‘at home’ in a way that defies description.
+ - The Scriptures contain many stories of people who waited years or even decades before the Lord’s promises came to pass. What modern believers can learn from the patience of biblical saints like Abraham, Joseph, David, and Paul is that waiting upon the Lord has eternal rewards.
+ - We are the product of our thinking, so it is important that we choose carefully where to focus our mental energy.
+ - Understand that it is often unwise to forgive face to face. This tends to make the other person feel ‘put down’ and make you look holier-than-thou.
+ - The essence of meditation is a period of time set aside to contemplate the Lord, listen to Him, and allow Him to permeate our spirits.
+ - God’s voice is still and quiet and easily buried under an avalanche of clamour.
+ - You may have the gift of giving.
+ - From the world’s perspective, there are many places you can go to find comfort. But there is only one place you will find a hand to catch your tears and a heart to listen to your every longing. True peace comes only from God.
+ - Another way Christ affects us is by inspiring our gratitude. He left the glories of heaven in order to become our Savior, and when we recognize that sacrifice, we are filled with thankfulness and praise.
+ - Each of us will eventually give away all our earthly possessions. How we choose to do so, however, is a reflection of our commitment to the kingdom of God.
+ - When we take our eyes off the whirl of day-to-day activity and concentrate on honoring Him and following in His way, we find a consistent peace that carries us through both plenty and poverty.
+ - God has ways of shaking the world when He is at work. He literally caused the ground to quake when Jesus died on the cross.
+ - Behavior is the substance of religion. Belief is the substance of relationship.
+ - When we stray from His presence, He longs for you to come back. He weeps that you are missing out on His love, protection and provision. He throws His arms open, runs toward you, gathers you up, and welcomes you home.
+ - All of us have areas of weakness. God wants these character flaws to show us how totally dependent we are upon Him. When we handle them properly, they drive us into a deeper, more intimate relationship with the Lord. But uncontrolled weakness wreaks havoc in a person’s life.
+ - The Bible reveals the Father’s overall plan for the world and provides general guidelines for life. But how can we know His specific plans for us? Listening to God is essential to walking with God.
+ - There is nothing worse than a life filled with adversity from which nothing good ever comes.
+ - When we learn from experience, the scars of sin can lead us to restoration and a renewed intimacy with God.
+ - The Bible is clear that those who fail to heed the Lord’s discipline – whether nations, cities, or individuals – suffer devastating consequences.
+ - If God has positioned us in a certain place, we must leave all the details to Him.
+ - I think a lot of people, even Christians, are willing to be satisfied with gaining lots and lots of biblical knowledge – and many people go to Bible studies and don’t realize it isn’t enough to know what’s right, it’s applying the information and the knowledge that you have.
+ - Focusing on difficulties intensifies and enlarges the problem. When we focus our attention on God, the problem is put into its proper perspective and it no longer overwhelms us.
+ - Regardless of the source of our pain, we must accept that God knows, God loves, and God is at work.
+ - To have God speak to the heart is a majestic experience, an experience that people may miss if they monopolize the conversation and never pause to hear God’s responses.
+ - If a person becomes content with what is average, minimally acceptable, or satisfactory, she will rarely exert the effort or work toward something that is truly excellent or outstanding.
+ - He wants you all to Himself to put His loving, divine arms around you.
+ - If the Lord says to give more than you think you are able to give, know that He will provide for you. Whether things are sailing smoothly or the bottom has dropped out, He is always trustworthy. You can count on Almighty God to keep His everlasting Word.
+ - With God, there is always a future.
+ - When you become an instrument in God’s hands as He transfers someone from the realm of darkness into the kingdom of His Son, you make a difference in the person’s eternal destiny. Not only that, but Satan also receives a devastating blow.
+ - Our problems may stay, our circumstances may remain, but we know God is in control. We are focused on His adequacy, not our inadequacy.
+ - I would never discredit reading the Scriptures, but it is important to meditate on it.
+ - The bottom line in the Christian life is obedience and most people don’t even like the word.
+ - When trouble comes, focus on God’s ability to care for you.
+ - Too many Christians have a commitment of convenience. They’ll stay faithful as long as it’s safe and doesn’t involve risk, rejection, or criticism. Instead of standing alone in the face of challenge or temptation, they check to see which way their friends are going.
+ - Helping someone come to a saving knowledge of Christ is the greatest achievement possible.
+ - We must never limit God’s ability to turn even the worst, most vile experience in our lives into something productive, beneficial and positive.
+ - Our heavenly Father understands our disappointment, suffering, pain, fear, and doubt. He is always there to encourage our hearts and help us understand that He’s sufficient for all of our needs. When I accepted this as an absolute truth in my life, I found that my worrying stopped.
+ - A Christian has no right being in a fight unless it’s a spiritual fight.
+ - Nations fight against nations, in marriages people fight against each other, children fight against each other. We are in warfare, in a national warfare, and in warfare with each other and with ourselves.
+ - Thank the Lord for using each person as a tool in your life to deepen your insight into His grace and conforming you to the image of His Son.
+ - American foreign policy and military might have opened an opportunity for the Gospel in the land of Abraham, Isaac and Jacob.
+ - The reason so many of us struggle so intensely with adversity is that we have yet to adopt God’s perspective and priorities.
+ - Take steps each day to be sure your life expresses commitment to Jesus.
+ - Yieldedness is vital in listening to what He has to say.
+ - In thinking about His many blessings, you view God’s work from a new perspective.
+ - If we rationalize our problems when He points them out, we will spend less and less time meditating because we won’t want to face God in that area of our lives.
+ - The person who has the motivational gift of giving has a tremendous opportunity to be a blessing to others in the body of Christ, to encourage others in the proper use of their finances, and to make the extension of the Gospel possible.
+ - One of the important things about temptation is, if I’m going to deal with it I’m going to have to recognize, this is an area of weakness in my life. I have been tempted here before and before and before.
+ - Believing you can achieve a goal is vital to reaching a goal.
+ - Sin and accountability aren’t popular messages. Yet being trendy and well liked is not the point. We’re here to carry out the work and mission of God, even when doing so is uncomfortable.
+ - God will never tell us to do something that gratifies the flesh.
+ - Helen Keller was blind and deaf when she graduated from college with honors. So what’s your problem?
+ - We’re enlarging in every single area of the ministry at In Touch. We’re on radio and television. We’re in over 110 million homes in America plus radio on satellites. We just acquired the NAMB FamilyNet television network, and with that expanding possibilities of the gospel.
+ - The blood that poured from Christ’s wounds bought your salvation. If you want to truly value what He did, think of Him hanging on that cross just for you. With that thought in your mind, consider how you should live. He gave Himself freely for you; are you giving yourself fully to Him?
+ - A man can preach no better than he prays.
+ - God wants you to understand the Word of God. The Bible is not a mystery book. It’s not a book of philosophy. It’s a book of truth that explains the attitude and heart of almighty God.
+ - The gate is small because truth guards the entrance. The way is narrow because the Lord protects us with wise boundaries.
+ - The essence of wisdom, from a practical standpoint, is pausing long enough to look at our lives-invitations, opportunities, relationships-from God’s perspective. And then acting on it.
+ - To become God’s mighty servants, we must decide whether we will base our life on His priorities or the world’s. The two are incompatible.
+ - People don’t like the idea of consequences. They want to be able to live their life freely and do what they want to do without any consequences. And we know that’s just not the way life is.
+ - The main thing to avoid being a casualty is simply this: to have a kind of intimate personal relationship with Jesus Christ whereby you’re able to hear God speak to your heart, you’re sensitive to what He’s saying to you to do, and that you’re willing to be obedient to Him.
+ - Relationship is the difference between grace and law.
+
+141 quotes

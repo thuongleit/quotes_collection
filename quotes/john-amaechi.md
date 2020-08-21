@@ -1,0 +1,23 @@
+ - You can’t be a part-time man of principle.
+ - You are axes, in a world of wood. And the wood remembers when it has been cut, even if the axe forgets.
+ - In the NBA you need a little bit more than that when Jordan is front of you. You need a little bit more than that when it is Barkley or Karl Malone or Shaq or whoever else. You need a lot more than that frankly if you’re the English kid who can’t jump.
+ - I think in an ideal world celebrities do have a responsibility in many different areas to be role models.
+ - I think there is unnecessary conflict right now between the vehemently religious and the LGBT community. The extremes of religion I think and the LGBT community have an issue and because a lot of black families in America are more religious, I think that is where the conflict comes into play.
+ - I would just never want to have someone come out for the greater good who was a celebrity and then find them slipping into like Lohanville with alcohol or drugs or something else just because they couldn’t cope.
+ - I’ve been captivated by the idea of being on a basketball court and being surrounded by people who made me look a little bit less like a freak.
+ - I’d probably have to leave home in order to become a basketball player of any note.
+ - I thought kissing was good with girls, but I always thought you know it probably could be better, so there was nothing really...
+ - I don’t need to think that I’m being loomed over my shoulder in order to behave in a way that’s moral.
+ - In a country like America there are places, many states here still where coming out means you lose your job, where coming out means division, where it means potentially abuse.
+ - There are some people the gestation period is like an elephant’s and it’s just years and years before they’re ready.
+ - We need to accept that some people are camp and some people are butch. Some people are pretty and some people are average, but we all fit.
+ - I grew up thinking the best job in the world would be a Jedi and being a psychologist is the closest thing I could get, so I wanted to be a Jedi and I don’t want to be a Sith, so that is what keeps me on the straight and narrow.
+ - I was a man who played basketball and after I played basketball and before I played basketball I was going to be a psychologist, whereas most people who play their occupation is their definition – and then when they stop doing who they are, they become nothing.
+ - I wasn’t going to let Jerry Sloan embarrass me, because basketball had a proper role in my life. I suspected my basketball philosophy wasn’t the bottom line anyway.
+ - I’m a nerd. I like to sit in the library. I don’t like to sweat.
+ - In my experience, it’s only people who don’t play sport at a professional level who think that there is anything remotely erotic about a locker room.
+ - I always think coming out is something that you do for people who really deserve it. It should be.
+ - My particular interest area is working in issues of emotional literacy. What I see of the way that we educate boys and more than that, the way we socialize boys within their families and then in schools to me is tantamount to just removing any element of emotional intelligence from them.
+ - Knowing yourself, knowing where you want to get, combining those things gives you the pragmatic steps.
+
+21 quotes

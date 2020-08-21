@@ -1,0 +1,53 @@
+ - Education is a slow moving but powerful force.
+ - Education is a slow-moving but powerful force. It may not be fast enough or strong enough to save us from catastrophe, but it is the strongest force available for that purpose and in its proper place, therefore, is not at the periphery, but at the center of international relations.
+ - We must dare to think unthinkable thoughts.
+ - Educational exchange can turn nations into people, contributing as no other form of communication can to the humanizing of international relations.
+ - Finally, the Program aims, through these means, to bring a little more knowledge, a little more reason, and a little more compassion into world affairs and thereby to increase the chance that nations will learn at last to live in peace and friendship.
+ - Science has radically changed the conditions of human life on earth. It has expanded our knowledge and our power, but not our capacity to use them with wisdom.
+ - We are inclined to confuse freedom and democracy, which we regard as moral principles, with the way in which they are practiced in America with capitalism, federalism, and the two-party system, which are not moral principles but simply the preferred and accepted practices of the American people.
+ - Power confuses itself with virtue and tends also to take itself for omnipotence.
+ - In a democracy dissent is an act of faith. Like medicine, the test of its value is not in its taste, but in its effects.
+ - Israel controls the United States Senate.
+ - The rapprochement of peoples is only possible when differences of culture and outlook are respected and appreciated rather than feared and condemned, when the common bond of human dignity is recognized as the essential bond for a peaceful world.
+ - Law is the essential foundation of stability and order both within societies and in international relations.
+ - The case for government by elites is irrefutable.
+ - There is an inevitable divergence between the world as it is and the world as men perceive it.
+ - We have the power to do any damn fool thing we want to do, and we seem to do it about every ten minutes.
+ - I do not think it is “selling America short” when we ask a great deal of her; on the contrary, it is those who ask nothing, those who see no fault, who are really selling America short!
+ - We must care to think about the unthinkable things, because when things become unthinkable, thinking stops and action becomes mindless.
+ - We must dare to think ‘unthinkable’ thoughts. We must learn to explore all the options and possibilities that confront us in a complex and rapidly changing world.
+ - It is a curiosity of human nature that lack of self-assurance seems to breed an exaggerated sense of power and mission.
+ - We would be deliberately violating the fundamental obligations we assumed in the Act of Bogota establishing the Organization of American States.
+ - The price of empire is America’s soul, and that price is too high.
+ - Power tends to confuse itself with virtue, and a great nation is peculiarly susceptible to the idea that its power is a sign of God’s favor.
+ - In the long course of history, having people who understand your thought is much greater security than another submarine.
+ - The citizen who criticizes his country is paying it an implied tribute.
+ - In a democracy, dissent is an act of faith.
+ - Intolerance of dissent is a well-noted feature of the American national character.
+ - The Soviet Union has indeed been our greatest menace, not so much because of what it has done, but because of the excuses it has provided us for our failures.
+ - The exchange program is the thing that reconciles me to all the difficulties of political life.
+ - A nation’s budget is full of moral implications; it tells what a society cares about and what it does not care about; it tells what its values are.
+ - There has been a tendency through the years for reason and moderation to prevail as long as things are going tolerably well or as long as our problems seem clear and finite and manageable.
+ - Insofar as it represents a genuine reconciliation of differences, a consensus is a fine thing; insofar as it represents a concealment of differences, it is a miscarriage of democratic procedure.
+ - The Program further aims to make the benefits of American culture and technology available to the world and to enrich American life by exposing it to the science and art of many societies.
+ - The greatest single virtue of a strong legislature is not what it can do, but what it can prevent.
+ - It’s unnatural and unhealthy for a nation to be engaged in global crusades for some principle or idea while neglecting the needs of its own people.
+ - The exchange program is the thing that reconciles me to all the difficulties of political life. It’s the only activity that gives me some hope that the human race won’t commit suicide, though I still wouldn’t count on it.
+ - Maturity requires a final accommodation between our aspirations and our limitations.
+ - I think we Americans tend to put too high a price on unanimity, as if there were something dangerous and illegitimate about honest differences of opinion honestly expressed by honest men.
+ - To be a statesman, you must first get elected.
+ - There are many respects in which America, if it can bring itself to act with the magnanimity and the empathy appropriate to its size and power, can be an intelligent example to the world.
+ - The junior Senator from Wisconsin, by his reckless charges, has so preyed upon the fears and hatred of uninformed and credulous people that he has started a prairie fire, which neither he nor anyone else may be able to control.
+ - The American public has become so conditioned by crises, by warnings, by words, that there are few, other than the young, who protest against what is happening.
+ - The cause of our difficulties in southeast Asia is not a deficiency of power but an excess of the wrong kind of power which results in a feeling of impotence when it fails to achieve its desired ends.
+ - We are trying to remake Vietnamese society, a task which certainly cannot be accomplished by force and which probably cannot be accomplished by any means available to outsiders.
+ - This is regrettable indeed for a nation that aspires to teach democracy to other nations, because, as Burke said: “Example is the school of mankind, and they will learn at no other.”
+ - Some new machinery with adequate powers must be created now if our fine phrases and noble sentiments are to have substance and meaning for our children.
+ - When we violate the law ourselves, whatever short-term advantage may be gained, we are obviously encouraging others to violate the law; we thus encourage disorder and instability and thereby do incalculable damage to our own long-term interests.
+ - There has been a strong tradition in this country that it is not the function of the military to educate the public on political issues.
+ - As a conservative power, the United States has a vital interest in upholding and expanding the reign of law in international relations.
+ - I’m sure that President Johnson would never have pursued the war in Vietnam if he’d ever had a Fulbright to Japan, or say Bangkok, or had any feeling for what these people are like and why they acted the way they did. He was completely ignorant.
+ - Naturepitiless in a pitiless universeis certainly not concerned with the survival of Americans or, for that matter, of any of the two billion people now inhabiting this earth. Hence, our destiny, with the aid of God, remains in our own hands.
+ - Once imbued with the idea of a mission, a great nation easily assumes that it has the means as well as the duty to do God’s work.
+
+51 quotes

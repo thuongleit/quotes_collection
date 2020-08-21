@@ -1,0 +1,42 @@
+ - We rise by lifting others. ~~Robert G. Ingersoll
+ - For it is in giving that we receive. ~~Francis of Assisi
+ - If you want to achieve your goals, help others achieve theirs. ~~Zig Ziglar
+ - Happiness may be found only by helping others to find it. ~~Napoleon Hill
+ - The purpose of human life is to serve, and to show compassion and the will to help others. ~~Albert Schweitzer
+ - If we can not smile, we cannot help other people to smile. ~~Nhat Hanh
+ - Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, What’s in it for me? ~~Brian Tracy
+ - We only have what we give. ~~Isabel Allende
+ - Help yourself by helping others. ~~John Templeton
+ - What is the essence of life? To serve others and to do good. ~~Aristotle
+ - Those who are happiest are those who do the most for others. ~~Booker T. Washington
+ - Be hungry for success, hungry to make your mark, hungry to be seen and to be heard and to have an effect. And as you move up and become successful, make sure also to be hungry for helping others. ~~Arnold Schwarzenegger
+ - As you grow older, you will discover that you have two hands, one for helping yourself, the other for helping others. ~~Audrey Hepburn
+ - I will heighten my life by helping others heighten theirs. ~~Les Brown
+ - Whenever one person stands up and says, “Wait a minute, this is wrong,” it helps other people do the same. ~~Gloria Steinem
+ - If you want others to like you, if you want to develop real friendships, if you want to help others at the same time as you help yourself, keep this principle in mind: Become genuinely interested in other people. ~~Dale Carnegie
+ - We work on ourselves in order to help others, but also we help others in order to work on ourselves. ~~Pema Chödrön
+ - Don’t waste your pain; use it to help others. ~~Rick Warren
+ - Believe, when you are most unhappy, that there is something for you to do in the world. So long as you can sweeten another’s pain, life is not in vain. ~~Helen Keller
+ - A network marketing business is the perfect business for people who like helping other people. ~~Robert T. Kiyosaki
+ - There is no better way to thank God for your sight than by giving a helping hand to someone in the dark. ~~Helen Keller
+ - Your purpose in life is to use your gifts and talents to help other people. Your journey in life teaches you how to do that. ~~Tom Krause
+ - Happiness springs from doing good and helping others. ~~Plato
+ - The meaning of my life is to help others find meaning in theirs. ~~Viktor E. Frankl
+ - We were put on this Earth to help others. Why others were put here is beyond me. ~~W.H. Auden
+ - When we serve others, we serve ourselves. Do not think, I will help others – think rather, I will help my own, my world, because I cannot otherwise be happy. ~~Paramahansa Yogananda
+ - The most meaningful way to succeed is to help others succeed. ~~Adam Grant
+ - Love each other or perish. ~~W.H. Auden
+ - Through my obedience to God, He has been able to use my life to help others. It’s been a great journey and I’m looking forward to all the things God has in the future. ~~Joyce Meyer
+ - Our prayers for others flow more easily than those for ourselves. This shows we are made to live by charity. ~~C. S. Lewis
+ - Whoever survives a test, whatever it may be, must tell the story. That is his duty. ~~Elie Wiesel
+ - It is easy to sit up and take notice, What is difficult is getting up and taking action. ~~Honoré de Balzac
+ - When you give yourself, you receive more than you give. ~~Antoine de Saint-Exupéry
+ - If you’re in the luckiest 1 percent of humanity, you owe it to the rest of humanity to think about the other 99 percent. ~~Warren Buffett
+ - If a free society cannot help the many who are poor, it cannot save the few who are rich. ~~John F. Kennedy
+ - Love cures people – both the ones who give it and the ones who receive it. ~~Karl A. Menninger
+ - Helping others is the way we help ourselves. ~~Oprah Winfrey
+ - There is no time like the present... ~~Georgia Byng
+ - We are all here on earth to help others; what on earth the others are here for I don’t know. ~~W.H. Auden
+ - There’s no point to living life unless you make history and the best way to make history is to help others. ~~Demi Lovato
+
+40 quotes

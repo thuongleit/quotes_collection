@@ -1,0 +1,34 @@
+ - I hope people like me and appreciate me the way I am.
+ - As long as I could remember, since I was 5 years old, I watched the Stanley Cup. I stayed up, made a point of watching it presented, watched the celebration in the locker room, and always dreamed that maybe I’d get there.
+ - I look forward to a lot more free time, at least initially, with my wife, Lisa, and our three children.
+ - I’m never gonna play again, and I know I’m really, really going to miss it.
+ - I’m exhausted trying to stay healthy.
+ - Balanced is probably what I am, although that’s just a polite way to say that you don’t do anything very well.
+ - There used to be an old thing where every team had a heavy bag in their locker room for people to punch, but again, it was more about conditioning because if you hit a heavy bag for a minute, it feels like your arms are about to fall off.
+ - I mean, the best thing for my knee, for anyone’s knee, is to never play again and retire. But I’m not going to do that.
+ - I consider the Detroit Red Wings one of the greatest franchises in any sport. For a player to come in and play, it’s so special to wear the jersey.
+ - And for the team, I always tried to do the right thing.
+ - I’m very confident my health isn’t going to allow me to be a good player, especially in the spring.
+ - When it gets to this point, it’s just hard to pull the trigger.
+ - We should’ve been better, more disciplined. We made untimely mistakes defensively, as a group. This is really humbling for us. After winning the Stanley Cup, we got brought back down to earth, hard. Maybe the humbling is good for us in the long run.
+ - We used to play a lot outdoors, not in leagues, but just in our spare time.
+ - As a kid in British Columbia, going back a long way, I learned to skate.
+ - We have two tables on our airplane that are set up with the games.
+ - I don’t know if I’ve ever had a memorable body check. It’s not really part of my game.
+ - It’s true that in Canada, we pride ourselves on the game, and we like to think we’re the dominant hockey nation in the world.
+ - Darren McCarty is a big video game guy, and he brings his systems with him on the road.
+ - People here want the team to win and to do well. The thing is, we know when to shoot the puck.
+ - It’s almost like you see too much, because when it happens for real, everything flies at you so fast, you never get a sense of the ice and where everyone is at that one moment.
+ - I don’t know that I’d agree I was our best player.
+ - I knew if I wanted to be a general manager, I was going to have to leave to work for another organization.
+ - We have to get better at that. All of the Stanley Cup winning teams throughout the past few seasons, when they needed to play defense, they did it. If you can play defense, that’s when you know it’s game over.
+ - I also feel I adapted. I was willing to try to fit into any role. The way I figured, it was always up to me to prove my worth, that I deserved to be here.
+ - It’s been a great honor for me to be a player for the Detroit Red Wings, to play for an Original Six franchise. I know I’m far from perfect, but I learned a lot.
+ - One of the advantages, one of the special things, about playing in Detroit or Montreal is guys like Gordie Howe walk in the room. I didn’t know he was here tonight, it was kind of a coincidence to get that assist on a night that he’s here.
+ - Very few cities in the NHL have the history or the following of the Detroit Red Wings.
+ - I’ve been hit hard a few times, been hit really hard a few times, but I don’t think I’ve ever left a memorable, lasting impression on anyone I’ve ever hit.
+ - When you’re on the ice, you have very little time, you see very little, and everything happens really quick.
+ - Since the season ended, I’ve let things settle down, and I have to talk to the coaching staff and management. I really don’t want to turn this into a big drama. So I plan on making a definite decision relatively quickly.
+ - We’re stuck in the middle and need to decide what kind of sport do we want to be. Either anything goes and we accept the consequences or take the next step and eliminate fighting.
+
+32 quotes

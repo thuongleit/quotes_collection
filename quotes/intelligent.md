@@ -1,0 +1,42 @@
+ - Weak people revenge. Strong people forgive. Intelligent People Ignore. ~~Albert Einstein
+ - We don’t have to be smarter than the rest. We have to be more disciplined than the rest. ~~Warren Buffett
+ - Don’t ever wrestle with a pig. You’ll both get dirty, but the pig will enjoy it. ~~Cale Yarborough
+ - The fool wonders, the wise man asks. ~~Benjamin Disraeli
+ - Change is inevitable. Change is constant. ~~Benjamin Disraeli
+ - Routine, in an intelligent man, is a sign of ambition. ~~W.H. Auden
+ - You need to surround yourself with quality human beings that are intelligent and have a vision. ~~Vince McMahon
+ - The intelligent man is never bored. ~~Isaac Asimov
+ - I can normally tell how intelligent a man is by how stupid he thinks I am. ~~Cormac McCarthy
+ - Wisdom is the daughter of experience. ~~Leonardo da Vinci
+ - Why should I fear death? If I am, death is not. If death is, I am not. Why should I fear that which can only exist when I do not? ~~Epicurus
+ - It is not the strongest of the species that survives, nor the most intelligent that survives. It is the one that is the most adaptable to change, that lives within the means available and works co-operatively against common threats. ~~Charles Darwin
+ - There are two hundred million idiots, manipulated by a million intelligent men. ~~Pablo Escobar
+ - If a machine is expected to be infallible, it cannot also be intelligent. ~~Alan Turing
+ - Cash combined with courage in a time of crisis is priceless. ~~Warren Buffett
+ - Surely, in the light of history, it is more intelligent to hope rather than to fear, to try rather than not to try. For one thing we know beyond all doubt: nothing has ever been achieved by the person who says: it can’t be done. ~~Eleanor Roosevelt
+ - I see myself as an intelligent, sensitive human, with the soul of a clown which forces me to blow it at the most important moments. ~~Jim Morrison
+ - The kinder and more intelligent a person is, the more kindness he can find in other people. Kindness enriches our life; with kindness mysterious things become clear, difficult things become easy and dull things become cheerful. ~~Leo Tolstoy
+ - Beyond a doubt truth bears the same relation to falsehood as light to darkness. ~~Leonardo da Vinci
+ - Investing is most intelligent when it is most businesslike. ~~Benjamin Graham
+ - Everything we hear is an opinion, not a fact. Everything we see is a perspective, not the truth. ~~Marcus Aurelius
+ - We are led by the least among us – the least intelligent, the least noble, the least visionary. We are led by the least among us and we do not fight back against the dehumanizing values that are handed down as control icons. ~~Terence McKenna
+ - Sometimes the most brilliant and intelligent minds do not shine in standardized tests because they do not have standardized minds. ~~Diane Ravitch
+ - The intelligent desire self-control; children want candy. ~~Rumi
+ - I’m sure the universe is full of intelligent life. It’s just been too intelligent to come here. ~~Arthur C. Clarke
+ - In general, the greater the understanding, the greater the delusion; the more intelligent, the less sane. ~~George Orwell
+ - An intelligent person is never afraid or ashamed to find errors in his understanding of things. ~~Bryant McGill
+ - We have now sunk to a depth at which restatement of the obvious is the first duty of intelligent men. ~~George Orwell
+ - You know very well that I no longer think. I am far too intelligent for that. ~~Albert Camus
+ - Nobody ever mastered any skill except through intensive persistent and intelligent practice. ~~Norman Vincent Peale
+ - Intelligent planning is essential for success in any undertaking designed to accumulate riches. ~~Napoleon Hill
+ - Perhaps we’ve never been visited by aliens because they have looked upon Earth and decided there’s no sign of intelligent life. ~~Neil deGrasse Tyson
+ - The intelligent investor should recognize that market panics can create great prices for good companies and good prices for great companies. ~~Benjamin Graham
+ - Intelligent design is a philosophy of ignorance. ~~Neil deGrasse Tyson
+ - I am too intelligent, too demanding, and too resourceful for anyone to be able to take charge of me entirely. No one knows me or loves me completely. I have only myself. ~~Simone de Beauvoir
+ - People are not stupid. They believe things for reasons. The last way for skeptics to get the attention of bright, curious, intelligent people is to belittle or condescend or to show arrogance toward their beliefs. ~~Carl Sagan
+ - Sometimes I wonder if I’m in my right mind. Then it passes off and I’m as intelligent as ever. ~~Samuel Beckett
+ - The brighter you are, the more you have to learn. ~~Don Herold
+ - As a general rule, the most successful man in life is the man who has the best information. ~~Benjamin Disraeli
+ - The zionist argument to justify Israel’s present occupation of Arab Palestine has no intelligent or legal basis in history. ~~Malcolm X
+
+40 quotes

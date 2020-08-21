@@ -1,0 +1,23 @@
+ - Don’t sleep through your dreams.
+ - I give you bitter pills, in a sugar coating. The pills are harmless – the poison’s in the sugar.
+ - If we’re all going to hell in a handbasket, we might as well make it a party on the way down.
+ - Drug addicts are so funny that way. Just spinning around, lost in their own little world. Doing so much, accomplishing so little. How sad.
+ - The true nature of evil is that it is so very casual.
+ - It’s all about self-expression; you know, if you feel like a troll then you should look like a troll. It doesn’t matter what you look like. I mean, if you have a hunchback just throw a little glitter on it, honey, and go dancing!
+ - People die all around us all the time. Drop like flies. Overdose. Aids. Sometimes they kill themselves. People come. They go. Dying is the same as rehab or moving back to Missouri. It just means I won’t be seeing them again.
+ - I’m not addicted to drugs, I’m addicted to glamour.
+ - When you let the wolves guard the hen house, there’s bound to be a few chicken dinners.
+ - Funny, that no matter where you are in the world, there’s always someone eager to help you destroy yourself.
+ - And what do we have here? A scary monster, cowboy, and a fairy princess! Here’s a hit of ecstasy, run along now.
+ - I don’t know how you look at the inside of your head – what metaphor you choose – but for those of us with endless yawning stretches of interior and nothing but nothing to stop us from getting lost in it, drugs can be wonderfully helpful.
+ - There are people who have too much space between their ears, and given the time, do nothing but free fall forever inside their head. It’s a spooky thing to be left alone inside an angry innerverse.
+ - If letters had eyebrows, these would be arched.
+ - No, Michael, I do not trust you on a boat, I do not trust you on a goat. I do not trust you here. I do not trust you there. I do not trust you anywhere.
+ - It’s a spooky thing to be left alone inside an angry innerverse.
+ - The generation that has the greatest access to knowledge in the history of mankind is the one that cares the least about it.
+ - I can remember every outfit I wore to every party going back to 1983.
+ - I can be an incredibly fabulous person, and I don’t have to be in the highest heels, the tallest wig, the skimpiest outfit.
+ - I was definitely the oddball freak show in school.
+ - Watch out for the average – they’re usually hiding something big.
+
+21 quotes

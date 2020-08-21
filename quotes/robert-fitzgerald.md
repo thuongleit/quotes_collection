@@ -1,0 +1,22 @@
+ - Words began to appear in English and to make some kind of equivalent. For what satisfaction it is hard to say, except that something seems unusually piercing, living, handsome, in another language, and since English is yours, you wish it to be there too.
+ - Sing in me, Muse, and through me tell the story.
+ - I think there are perhaps two ways in which one can begin.
+ - Is encouragement what the poet needs? Open question. Maybe he needs discouragement. In fact, quite a few of them need more discouragement, the most discouragement possible.
+ - Homer’s whole language, the language in which he lived, the language that he breathed, because he never saw it, or certainly those who formed his tradition never saw it, in characters on the pages. It was all on the tongue and in the ear.
+ - Poetry is at least an elegance and at most a revelation.
+ - The question is how to bring a work of imagination out of one language that was just as taken-for-granted by the persons who used it as our language is by ourselves. Nothing strange about it.
+ - I think it was lucky that during most of the work on the Odyssey I lived on Homer’s sea in houses that were, in one case, shaken by the impact of the Mediterranean winter storms on the rocks below.
+ - In fact, eloquence in English will inevitably make use of the Latin element in our vocabulary.
+ - Now, the language that had grown up and formed itself on those principles is what one is dealing with, and the problem is to bring a work of art in that medium into another medium formed on different principles and heard and understood in a different way.
+ - Yes, living voices in a living language, so it seemed to us.
+ - Yes, and there were changes of light on landscapes and changes of direction of the wind and the force of the wind and weather. That whole scene is too important in Homer to neglect.
+ - One should indeed read Pope with his notes available, in the Twickenham edition possibly, to see what a vast amount he did understand about Homer.
+ - In a way you can feel that the poet actually is looking over your shoulder, and you say to yourself, now, how would this go for him? Would this do or not?
+ - Of course the other and more serious way in which it all happens is that one finds in poems and language some quality one appropriates for oneself and wishes to reproduce.
+ - What the translator – myself in particular – does is not comparable to what the Homeric performer was doing.
+ - I think that everyone who took part has always been grateful for it.
+ - The invention of Bob Dylan with his guitar belongs in its way to the same kind of tradition of something meant to be heard, as the songs of Homer.
+ - Well, with the French language, which I understood and spoke, however imperfectly, and read in great quantities, at certain times, the matter I suppose was slightly different from either Latin or Greek.
+ - There must of course be a relationship between translating and making poems of your own, but what it is I just don’t know.
+
+20 quotes

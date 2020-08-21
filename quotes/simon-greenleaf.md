@@ -1,0 +1,12 @@
+ - The religion of Jesus Christ aims at nothing less than the utter overthrow of all other systems of religion in the world; denouncing them as inadequate to the wants of man, false in their foundations, and dangerous in their tendency.
+ - There should be a readiness, on our part, to investigate with candor to follow the truth wherever it may lead us, and to submit, without reserve or objection, to all the teachings of this religion, if it be found to be of divine origin.
+ - Either the men of Galilee were men of superlative wisdom, and extensive knowledge and experience, and of deeper skill in the arts of deception than any and all others, before them or after them, or they have truly stated astonishing things which they saw and heard.
+ - A person who rejects Christ may choose to say that I do not accept it, he may not choose to say there is not enough evidence.
+ - In examining the evidence of the Christian religion, it is essential to the discovery of truth that we bring to the investigation a mind freed, as far as possible, from existing prejudice, and open to conviction.
+ - In the ordinary affairs of life we do not require nor expect demonstrative evidence, because it is inconsistent with the nature of matters of fact, and to insist on its production would be unreasonable and absurd.
+ - The learned are not agreed as to the time when the Gospel of John was written; some dating it as early as the year 68, others as late as the year 98; but it is generally conceded to have been written after all the others.
+ - In requiring this candor and simplicity of mind in those who would investigate the truth of our religion, Christianity demands nothing more than is readily conceded to every branch of human science.
+ - Every document, apparently ancient, coming from the proper repository or custody, and bearing on its face no evident marks of forger, the law presumes to be genuine, and devolves on the opposing party the burden of proving it to be otherwise.
+ - The object of man’s worship, whatever it be, will naturally be his standard of perfection. He clothes it with every attribute, belonging, in his view, to a perfect character; and this character he himself endeavors to attain.
+
+10 quotes

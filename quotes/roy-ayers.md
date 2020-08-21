@@ -1,0 +1,31 @@
+ - The true beauty of music is that it connects people.
+ - I think music all the time.
+ - Having good health, being able to breathe and be happy, that’s one of the most beautiful gifts. On top of that, I have the gift to play music and make people happy through that. I’m just telling you from my heart, I’m so in love with life.
+ - I was being an artist, being sensitive and technical as artists are. I’m sure Leonardo Da Vinci did that. Artists don’t always feel the same as others feel about their work.
+ - I still look good. I’m trippin’, but people tell me that all the time. So check it out, I’m 63, and still kicking. I’ve been putting records out every year.
+ - Soul has no musical geographical or racial boundaries.
+ - People are always defining and re-defining music. My style of playing has been characterized as smooth jazz and acid jazz. I listen as I play; I’m not caught up in defining the type of music I play.
+ - Some people really trip on success or popularity. My friends would talk to me about that, about tripping on all this stuff, but you know what I tripped on? I started buying property.
+ - A lot of the hip hop artists don’t write music. They write words.
+ - It’s a wonderful feeling just being in this creative motif.
+ - I don’t think I’m really so unique. If every black person looked at their life they would quickly discover that they have been influenced by every type of music prevalent in America.
+ - The majors, they have to control the distribution, the record outlets, the radio and, in some cases, even the venues. And downloading and pirating have also put pressure on the majors.
+ - Now I get exposure first with people directly in the clubs. This is a unique situation for me.
+ - Most musicians count at the beginning, and never count and talk to their musicians after that. They only talk to them at the end of the song. But I would count with them and talk.
+ - I’d definitely love to play in Nashville again. That would be really good.
+ - I couldn’t get my album played over the so-called smooth jazz stations. Jazz stations would not play it. You don’t always know who you’re making that soul connection with.
+ - I always had this energy level that made me want to come to New York.
+ - I generally sell my records online or at the show. You can undersell the distributor and the stores, and people know what they’re getting cause they’ve just seen you live.
+ - What we call soul has been around a long time. It comes out of a particular culture that is African in origin, but influenced by 250 years of slavery, as well as other forms of racial oppression.
+ - I’ve been sampled so much and I’m glad it’s happened, it’s a great compliment.
+ - I don’t like rap that you can’t understand. The youth is so quick and alert.
+ - When I was recording from ’70 to ’82, I always played piano and laid the tracks down. But I used to talk to the other musicians while the track was playing.
+ - Back in the day, I used to be in the studio recording 20 hours a day. And that was all of the time. I still record a lot of hours, but I don’t go as long as I used to.
+ - I don’t trip on that much. I just like to enjoy life and be happy.
+ - Most artists have contracts directly with the record company, and when they do music, all of their music is owned by the record company. But I did mine through a production company.
+ - Artists don’t always know. Almost every song I ever recorded that was a hit at the majors that the promotional people picked I didn’t think it would be a hit. I was wrong every time!
+ - DJs and people in the street know what they like.
+ - Only a certain number of people go to a store over the period of a year. When a person sees my record on the shelf, it eliminates someone else’s record from being sold. It’s about continuing to try to find new ways to sell records.
+ - I was with PolyGram; that was the big label that I was with for the longest, like 12 years.
+
+29 quotes

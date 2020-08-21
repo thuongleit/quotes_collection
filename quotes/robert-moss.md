@@ -1,0 +1,37 @@
+ - You are born to fly, and in dreams you remember the soul has wings.
+ - The stronger the imagination, the less imaginary the results.
+ - When bad things happen, part of us might go away. It’s a survival technique. You can’t stand to be around when there’s so much grief or pain in your life so part of you goes away. Shamans call this soul loss.
+ - Living by synchronicity isn’t merely about getting messages. It is about growing the poetic consciousness that allows us to taste and touch what rhymes and resonates in the world we inhabit, and how the world-behind-th e-world reveals itself by fluttering the veils of our consensual reality.
+ - Subatomic particles exist in all possible states until they are observed – at which point something definite emerges from the soup of possibilities.
+ - The practice of imagination, on an everyday basis, involves clearing unhelpful images that block or misdirect our energies, and choosing to focus on positive, mobilizing imagery that gives us courage and confidence.
+ - There is a place of imagination, and it is entirely real.
+ - The body believes in images.
+ - When you are gripped by fear in the face of an experience that will take you beyond your comfort zone, you may be at a point of supreme opportunity. You can either break down or break through.
+ - This relates to the concept of time and our ability as dreamers to reach across time to a past or future self and do some good. This is very important as it relates to soul loss and soul recovery.
+ - Quantum physics shows us the universe as a dynamic web of connection.
+ - In the hidden order of reality, there is no distinction between mind and matter. The split between inner and outer – subjective and objective – that we experience in ordinary life is unknown in the deeper reality.
+ - Physics is now saying we might be living in one of an infinite number of parallel universes. We can learn practical and creative things to do with the information.
+ - The only time is Now. All other times – past, present, and parallel – can be accessed in this moment of Now, and may be changed for the better.
+ - We can ask for a dream of guidance on any issue that is facing us, and when we’re lucky the dream can take us out of the boxes of the everyday mind’s approach to that theme.
+ - When we travel with a sense of mission, we attract events, people and opportunities toward us.
+ - When we wake up to the fact that our thoughts touch the people we are thinking about, we are again asked to choose which thoughts we send out. If we send out the thoughts of the heart, we can heal, even if the person who needs healing is far away.
+ - On a visceral level, most of us know what soul loss means. This is the shaman’s diagnosis of the root cause of many of our complaints: our lack of energy, our fatigue, our depression, why our immune systems are blown, why we lack enthusiasm and courage for life.
+ - Soul recovery, I think, is much richer and more helpful. Instead of having a shaman retrieve our soul for us, we help each other to become the shamans and healers of our own soul.
+ - If you have fairy blood, even in the tiniest degree, you must live close to Fairy Land, and eat a little fairy food, or else you will always be hungry.
+ - In many traditions, crows are messengers and close attention is paid to their actions.
+ - The role of the animal messenger in the dreams of modern city-dwellers is often to recall us to our wild side, and the natural path of our energy.
+ - Choices are our choices so I am not taking away anyone’s personal choice, but we run into difficulty when we’re having choices made for us rather than making our own.
+ - Australian Aboriginees say that the big stories – the stories worth telling and retelling, the ones in which you may find the meaning of your life – are forever stalking the right teller, sniffing and tracking like predators hunting prey in the bush.
+ - I have never met anyone who is addicted to alcohol who isn’t drinking for a lot of dead spirits!
+ - I’m in favor of approaching both the night and the day with intention.
+ - It is difficult to wrap your mind around this intellectually and until you’ve had the experience, it can be difficult to understand. I tell people to give it a shot; you have nothing to lose.
+ - Our earliest poets were shamans. Today, as in the earliest times, true shamans are poets of consciousness who know the power of song and story to teach and to heal.
+ - By lighting a candle, you affirm that you are opening a sacred space.
+ - The important things usually prove to be very simple. They are also open secrets in the sense that no one is hiding the knowledge from us except ourselves.
+ - What I’m talking about is fun. It’s every day, it’s high energy, and it gives you guidance and healing for your life. It puts a fizz of magic into the air.
+ - We are connected, like it or not, to the ancestors of our biological families, and their templates.
+ - Suppose you have a parallel self who has made different choices, who is following a different event track since you made certain choices in your life. Maybe you can reach to that self and borrow gifts and lessons from that self and maybe even help them on their road.
+ - The first thing to understand about working with children’s dreams is that adults need to listen up.
+ - Strings of coincidence can strengthen us in the determination to follow our deepest intuitions even when they run counter to conventional wisdom and logic and cannot be subjected to rational explanation.
+
+35 quotes

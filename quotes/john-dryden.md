@@ -1,0 +1,400 @@
+ - We first make our habits, then our habits make us.
+ - Beware the fury of a patient man.
+ - I’m a little wounded, but I am not slain; I will lay me down to bleed a while. Then I’ll rise and fight again.
+ - Dead men tell no tales.
+ - For all the happiness mankind can gain Is not in pleasure, but in rest from pain.
+ - Sweet is pleasure after pain.
+ - For they conquer who believe they can.
+ - None but the brave deserve the fair.
+ - They think too little who talk too much.
+ - Virtue in distress, and vice in triumph make atheists of mankind.
+ - Anger will never disappear so long as thoughts of resentment are cherished in the mind. Anger will disappear just as soon as thoughts of resentment are forgotten.
+ - Self-defense is Nature’s eldest law.
+ - Faith is to believe what you do not yet see: the reward for this faith is to see what you believe. Thus all below is strength, and all above is grace.
+ - Zeal, the blind conductor of the will.
+ - All, as they say, that glitters is not gold.
+ - Jealousy is the jaundice of the soul.
+ - Who climbs the grammar-tree, distinctly knows Where noun, and verb, and participle grows.
+ - Satire is a kind of poetry in which human vices are reprehended.
+ - Second thoughts, they say, are best.
+ - O freedom, first delight of human kind!
+ - Be slow to resolve, but quick in performance.
+ - Love reckons hours for months, and days for years; and every little absence is an age.
+ - Secret guilt is by silence revealed.
+ - A fiery soul, which, working out its way, Fretted the pygmy-body to decay, And o’er-inform’d the tenement of clay. A daring pilot in extremity; Pleas’d with the danger, when the waves went high He sought the storms.
+ - My heart’s so full of joy, That I shall do some wild extravagance Of love in public; and the foolish world, Which knows not tenderness, will think me mad.
+ - It is sufficient to say, according to the proverb, that here is God’s plenty.
+ - And plenty makes us poor.
+ - Politicians neither love nor hate.
+ - What passion cannot music raise and quell!
+ - Bold knaves thrive without one grain of sense, But good men starve for want of impudence.
+ - He who would search for pearls must dive below.
+ - Here lies my wife: here let her lie! Now she’s at rest, and so am I.
+ - Great wits are sure to madness near allied, and thin partitions do their bounds divide.
+ - Death in itself is nothing; but we fear to be we know not what, we know not where.
+ - An horrible stillness first invades our ear, And in that silence we the tempest fear.
+ - Criticism, as it was first instituted by Aristotle, was meant as a standard of judging well; the chiefest part of which is to observe those excellencies which delight a reasonable reader.
+ - He has not learned the first lesson of life who does not every day surmount a fear.
+ - Good sense and good nature are never separated; and good nature is the product of right reason.
+ - Every language is so full of its own proprieties that what is beautiful in one is often barbarous, nay, sometimes nonsense, in another.
+ - Deathless laurel is the victor’s due.
+ - Democracy is essentially anti-authoritarian – that is, it not only demands the right but imposes the responsibility of thinking for ourselves.
+ - But love’s a malady without a cure.
+ - All delays are dangerous in war.
+ - God has endowed man with inalienable rights, among which are self-government, reason, and conscience. Man is properly self-governed only when he is guided rightly and governed by his Maker, divine Truth and Love.
+ - Music, Music for a while Shall all your cares beguile. Alexander’s Feast.
+ - And love’s the noblest frailty of the mind.
+ - Hushed as midnight silence.
+ - Take the goods the gods provide thee.
+ - Ill habits gather unseen degrees, as brooks make rivers, rivers run to seas.
+ - Better to hunt in fields, for health unbought, Than fee the doctor for a nauseous draught, The wise, for cure, on exercise depend; God never made his work for man to mend.
+ - Seas are the fields of combat for the winds; but when they sweep along some flowery coast, their wings move mildly, and their rage is lost.
+ - Words are but pictures of our thoughts.
+ - Dancing is the poetry of the foot.
+ - He who proposes to be an author should first be a student.
+ - Music is inarticulate poesy.
+ - Merit challenges envy.
+ - Whistling to keep myself from being afraid.
+ - Rich the treasure, Sweet the pleasure,- Sweet is pleasure after pain.
+ - Mighty things from small beginnings grow.
+ - A thing well said will be wit in all languages.
+ - For secrets are edged tools, And must be kept from children and from fools.
+ - The Jews, a headstrong, moody, murmuring race.
+ - Possess your soul with patience.
+ - When I consider life, it is all a cheat. Yet fooled with hope, people favor this deceit.
+ - Chaucer followed Nature everywhere, but was never so bold to go beyond her.
+ - He is a perpetual fountain of good sense.
+ - The perverseness of my fate is such that he’s not mine because he’s mine too much.
+ - For Art may err, but Nature cannot miss.
+ - A man is to be cheated into passion, but to be reasoned into truth.
+ - Jealousy’s a proof of love, But ’tis a weak and unavailing medicine; It puts out the disease and makes it show, But has no power to cure.
+ - My love’s a noble madness.
+ - Home is the sacred refuge of our life.
+ - My hands are guilty, but my heart is free.
+ - Three poets, in three distant ages born, Greece, Italy, and England did adorn. The first in loftiness of thought surpass’d; The next, in majesty; in both the last. The force of Nature could no further go; To make a third, she join’d the former two.
+ - Desire of greatness is a godlike sin.
+ - But wild Ambition loves to slide, not stand, And Fortune’s ice prefers to Virtue’s land.
+ - Welcome, thou kind deceiver! Thou best of thieves; who, with an easy key, Dost open life, and, unperceived by us, Even steal us from ourselves.
+ - Beauty, like ice, our footing does betray; Who can tread sure on the smooth, slippery way: Pleased with the surface, we glide swiftly on, And see the dangers that we cannot shun.
+ - But Shakespeare’s magic could not copied be; Within that circle none durst walk but he.
+ - Errors like straws upon the surface flow, Who would search for pearls to be grateful for often must dive below.
+ - We must beat the iron while it is hot, but we may polish it at leisure.
+ - Truth is the foundation of all knowledge and the cement of all societies.
+ - The glorious lamp of heaven, the radiant sun, Is Nature’s eye.
+ - The elephant is never won by anger; nor must that man who would reclaim a lion take him by the teeth.
+ - Tis Fate that flings the dice, And as she flings Of kings makes peasants, And of peasants kings.
+ - Wit will shine Through the harsh cadence of a rugged line.
+ - Drinking is the soldier’s pleasure.
+ - Pains of love be sweeter far than all other pleasures are.
+ - He invades authors like a monarch; and what would be theft in other poets is only victory in him.
+ - Long pains, with use of bearing, are half eased.
+ - Go miser go, for money sell your soul. Trade wares for wares and trudge from pole to pole, So others may say when you are dead and gone. See what a vast estate he left his son.
+ - He who trusts secrets to a servant makes him his master.
+ - A satirical poet is the check of the laymen on bad priests.
+ - Reason to rule, mercy to forgive: The first is law, the last prerogative. Life is an adventure in forgiveness.
+ - An hour will come, with pleasure to relate Your sorrows past, as benefits of Fate.
+ - Since a true knowledge of nature gives us pleasure, a lively imitation of it, either in poetry or painting, must produce a much greater; for both these arts are not only true imitations of nature, but of the best nature.
+ - Love works a different way in different minds, the fool it enlightens and the wise it blinds.
+ - Reason is a crutch for age, but youth is strong enough to walk alone.
+ - Much malice mingled with a little wit Perhaps may censure this mysterious writ.
+ - Learn to write well, or not to write at all.
+ - But when to sin our biased nature leans, The careful Devil is still at hand with means; And providently pimps for ill desires.
+ - The thought of being nothing after death is a burden insupportable to a virtuous man.
+ - By viewing nature, nature’s handmaid art, Makes mighty things from small beginnings grow: Thus fishes first to shipping did impart, Their tail the rudder, and their head the prow.
+ - The Fates but only spin the coarser clue; The finest of the wool is left for you.
+ - The secret pleasure of a generous act Is the great mind’s great bribe.
+ - For all have not the gift of martyrdom.
+ - If you have lived, take thankfully the past. Make, as you can, the sweet remembrance last.
+ - Youth, beauty, graceful action seldom fail: But common interest always will prevail; And pity never ceases to be shown To him who makes the people’s wrongs his own.
+ - All empire is no more than power in trust.
+ - Thou tyrant, tyrant Jealousy, Thou tyrant of the mind!
+ - If passion rules, how weak does reason prove!
+ - Nature meant for me a wife, a silly harmless household Dove, fond without art; and kind without deceit.
+ - One of the greatest, most noble, and most sublime poems which either this age or nation has produced.
+ - He trudged along unknowing what he sought, And whistled as he went, for want of thought.
+ - Railing and praising were his usual themes; and both showed his judgment in extremes. Either over violent or over civil, so everyone to him was either god or devil.
+ - Fool that I was, upon my eagle’s wings I bore this wren, till I was tired with soaring, and now he mounts above me.
+ - Revenge, revenge, Timotheus cries, See the Furies arise!
+ - They say everything in the world is good for something.
+ - When we view elevated ideas of Nature, the result of that view is admiration, which is always the cause of pleasure.
+ - None are so busy as the fool and the knave.
+ - Ill news is wing’d with fate, and flies apace.
+ - Nor is the people’s judgment always true: the most may err as grossly as the few.
+ - Ye moon and stars, bear witness to the truth.
+ - A lazy frost, a numbness of the mind.
+ - Treason is greatest where trust is greatest.
+ - Ill fortune seldom comes alone.
+ - Mankind is ever the same, and nothing lost out of nature, though everything is altered.
+ - Bankrupt of life, yet prodigal of ease.
+ - Moderate sorrow Fits vulgar love, and for a vulgar man: But I have lov’d with such transcendent passion, I soar’d, at first, quite out of reason’s view, And now am lost above it.
+ - Death ends our woes, and the kind grave shuts up the mournful scene.
+ - For every inch that is not fool, is rogue.
+ - Thus, while the mute creation downward bend Their sight, and to their earthly mother ten, Man looks aloft; and with erected eyes Beholds his own hereditary skies.
+ - The fool of nature stood with stupid eyes And gaping mouth, that testified surprise.
+ - Nothing to build, and all things to destroy.
+ - The fortitude of a Christian consists in patience, not in enterprises which the poets call heroic, and which are commonly the effects of interest, pride and worldly honor.
+ - Pleasure never comes sincere to man; but lent by heaven upon hard usury.
+ - The World to Bacon does not only owe it’s present knowledge, but its future too.
+ - Thou strong seducer, Opportunity!
+ - War seldom enters but where wealth allures.
+ - But ’tis the talent of our English nation, Still to be plotting some new reformation.
+ - He who would pry behind the scenes oft sees a counterfeit.
+ - All habits gather by unseen degrees.
+ - When beauty fires the blood, how love exalts the mind!
+ - New vows to plight, and plighted vows to break.
+ - So the false spider, when her nets are spread, deep ambushed in her silent den does lie.
+ - None would live past years again, Yet all hope pleasure in what yet remain; And, from the dregs of life, think to receive, What the first sprightly running could not give.
+ - A man may be capable, as Jack Ketch’s wife said of his servant, of a plain piece of work, a bare hanging; but to makea malefactordiesweetly was only belonging toher husband.
+ - Murder may pass unpunishd for a time, But tardy justice will oertake the crime.
+ - Be secret and discreet; the fairy favors are lost when not concealed.
+ - Among our crimes oblivion may be set.
+ - If by the people you understand the multitude, the hoi polloi, ’tis no matter what they think; they are sometimes in the right, sometimes in the wrong; their judgment is a mere lottery.
+ - Virgil, above all poets, had a stock which I may call almost inexhaustible, of figurative, elegant, and sounding words.
+ - The province of the soul is large enough to fill up every cranny of your time, and leave you much to answer for if one wretch be damned by your neglect.
+ - If you are for a merry jaunt, I will try, for once, who can foot it farthest.
+ - Resolved to ruin or to rule the state.
+ - Love is love’s reward.
+ - The commendation of adversaries is the greatest triumph of a writer, because it never comes unless extorted.
+ - Only man clogs his happiness with care, destroying what is with thoughts of what may be.
+ - To die is landing on some distant shore.
+ - The wretched have no friends.
+ - My whole life Has been a golden dream of love and friendship.
+ - Content with poverty, my soul I arm; And virtue, though in rags, will keep me warm.
+ - Reason saw not, till Faith sprung the Light.
+ - Even victors are by victories undone.
+ - Boldness is a mask for fear, however great.
+ - She, though in full-blown flower of glorious beauty, Grows cold even in the summer of her age.
+ - Farewell, too little, and too lately known, Whom I began to think and call my own.
+ - Let Fortune empty her whole quiver on me, I have a soul that, like an ample shield, Can take in all, and verge enough for more; Fate was not mine, nor am I Fate’s: Souls know no conquerors.
+ - Silence in times of suffering is the best.
+ - Truth is the object of our understanding, as good is of our will; and the understanding can no more be delighted with a lie than the will can choose an apparent evil.
+ - Pride – Lord of human kind.
+ - Pity melts the mind to love.
+ - Ill writers are usually the sharpest censors.
+ - There’s a proud modesty in merit; averse from asking, and resolved to pay ten times the gifts it asks.
+ - What I have left is from my native spring; I’ve still a heart that swells, in scorn of fate, And lifts me to my banks.
+ - A lively faith will bear aloft the mind, and leave the luggage of good works behind.
+ - For lawful power is still superior found, When long driven back, at length it stands the ground.
+ - More liberty begets desire of more; The hunger still increases with the store.
+ - Restless at home, and ever prone to range.
+ - Better one suffer than a nation grieve.
+ - The scum that rises upmost, when the nation boils.
+ - For those whom God to ruin has design’d, He fits for fate, and first destroys their mind.
+ - Love is not in our choice but in our fate.
+ - Every age has a kind of universal genius, which inclines those that live in it to some particular studies.
+ - From Harmony, from heav’nly Harmony. This universal Frame began.
+ - Plots, true or false, are necessary things, To raise up commonwealths and ruin kings.
+ - To die for faction is a common evil, But to be hanged for nonsense is the devil.
+ - At home the hateful names of parties cease, And factious souls are wearied into peace.
+ - And nobler is a limited command, Given by the love of all your native land, Than a successive title, long and dark, Drawn from the mouldy rolls of Noah’s Ark.
+ - Parting is worse than death; it is death of love!
+ - If the faults of men in orders are only to be judged among themselves, they are all in some sort parties; for, since they say the honour of their order is concerned in every member of it, how can we be sure that they will be impartial judges?
+ - I feel my sinews slackened with the fright, and a cold sweat trills down all over my limbs, as if I were dissolving into water.
+ - They that possess the prince possess the laws.
+ - Or hast thou known the world so long in vain?
+ - Fattened in vice, so callous and so gross, he sins and sees not, senseless of his loss.
+ - When he spoke, what tender words he used! So softly, that like flakes of feathered snow, They melted as they fell.
+ - Freedom which in no other land will thrive, Freedom an English subject’s sole prerogative.
+ - With odorous oil thy head and hair are sleek; And then thou kemb’st the tuzzes on thy cheek: Of these, my barbers take a costly care.
+ - Successful crimes alone are justified.
+ - Rhyme is the rock on which thou art to wreck.
+ - All things are subject to decay and when fate summons, monarchs must obey.
+ - Fame then was cheap, and the first comer sped; And they have kept it since by being dead.
+ - The love of liberty with life is given, And life itself the inferior gift of Heaven.
+ - No king nor nation one moment can retard the appointed hour.
+ - Our souls sit close and silently within, And their own web from their own entrails spin; And when eyes meet far off, our sense is such, That, spider-like, we feel the tenderest touch.
+ - Of all the tyrannies on human kind the worst is that which persecutes the mind.
+ - A happy genius is the gift of nature.
+ - The soft complaining flute, In dying notes, discovers The woes of hopeless lovers.
+ - The true Amphitryon is the Amphitryon where we dine.
+ - Discover the opinion of your enemies, which is commonly the truest; for they will give you no quarter, and allow nothing to complaisance.
+ - Affability, mildness, tenderness, and a word which I would fain bring back to its original signification of virtue, – I mean good-nature, – are of daily use; they are the bread of mankind and staff of life.
+ - He was exhaled; his great Creator drew His spirit, as the sun the morning dew.
+ - All objects lose by too familiar a view.
+ - Roused by the lash of his own stubborn tail our lion now will foreign foes assail.
+ - God never made his work for man to mend.
+ - All heiresses are beautiful.
+ - Beauty is nothing else but a just accord and mutual harmony of the members, animated by a healthful constitution.
+ - As when the dove returning bore the mark Of earth restored to the long labouring ark; The relics of mankind, secure at rest, Oped every window to receive the guest, And the fair bearer of the message bless’d.
+ - Imitation pleases, because it affords matter for inquiring into the truth or falsehood of imitation, by comparing its likeness or unlikeness with the original.
+ - Mere poets are sottish as mere drunkards are, who live in a continual mist, without seeing or judging anything clearly. A man should be learned in several sciences, and should have a reasonable, philosophical and in some measure a mathematical head, to be a complete and excellent poet.
+ - The good we have enjoyed from Heaven’s free will, and shall we murmur to endure the ill?
+ - Sculptors are obliged to follow the manners of the painters, and to make many ample folds, which are unsufferable hardness, and more like a rock than a natural garment.
+ - I maintain, against the enemies of the stage, that patterns of piety, decently represented, may second the precepts.
+ - Many things impossible to thought have been by need to full perfection brought.
+ - While I am compassed round With mirth, my soul lies hid in shades of grief, Whence, like the bird of night, with half-shut eyes, She peeps, and sickens at the sight of day.
+ - For danger levels man and brute And all are fellows in their need.
+ - What judgment I had increases rather than diminishes; and thoughts, such as they are, come crowding in so fast upon me, that my only difficulty is to choose or reject; to run them into verse or to give them the other harmony of prose.
+ - Repentance is but want of power to sin.
+ - But how can finite grasp Infinity?
+ - A narrow mind begets obstinacy; we do not easily believe what we cannot see.
+ - For truth has such a face and such a mien, as to be loved needs only to be seen.
+ - A knock-down argument; ’tis but a word and a blow.
+ - All flowers will droop in the absence of the sun that waked their sweets.
+ - Old age creeps on us ere we think it nigh.
+ - Let cheerfulness on happy fortune wait.
+ - I trade both with the living and the dead, for the enrichment of our native language.
+ - Damn’d neuters, in their middle way of steering, Are neither fish, nor flesh, nor good red herring.
+ - War is the trade of kings.
+ - The blushing beauties of a modest maid.
+ - By education most have been misled.
+ - It is madness to make fortune the mistress of events, because by herself she is nothing and is ruled by prudence.
+ - Ever a glutton, at another’s cost, But in whose kitchen dwells perpetual frost.
+ - Keen appetite And quick digestion wait on you and yours.
+ - Her wit was more than man, her innocence a child.
+ - So over violent, or over civil that every man with him was God or Devil.
+ - How blessed is he, who leads a country life, Unvex’d with anxious cares, and void of strife! Who studying peace, and shunning civil rage, Enjoy’d his youth, and now enjoys his age: All who deserve his love, he makes his own; And, to be lov’d himself, needs only to be known.
+ - Bacchus ever fair and young, Drinking joys did first ordain. Bachus’s blessings are a treasure, Drinking is the soldier’s pleasure, Rich the treasure, Sweet the pleasure- Sweet is pleasure after pain.
+ - As poetry is the harmony of words, so music is that of notes.
+ - We by art unteach what Nature taught.
+ - Courage from hearts and not from numbers grows.
+ - Not Heav’n itself upon the past has pow’r; But what has been, has been, and I have had my hour.
+ - I never saw any good that came of telling truth.
+ - There is a proud modesty in merit.
+ - Trust reposed in noble natures obliges them the more.
+ - My right eye itches, some good luck is near.
+ - Men met each other with erected look, The steps were higher that they took; Friends to congratulate their friends made haste, And long inveterate foes saluted as they pass’d.
+ - Accurst ambition, how dearly I have bought you.
+ - Lucky men are favorites of Heaven.
+ - Government itself at length must fall To nature’s state, where all have right to all.
+ - The trumpet’s loud clangor Excites us to arms.
+ - Imagining is in itself the very height and life of poetry, which, by a kind of enthusiasm or extraordinary emotion of the soul, makes it seem to us that we behold those things which the poet paints.
+ - Him of the western dome, whose weighty sense Flows in fit words and heavenly eloquence.
+ - And that the Scriptures, though not everywhere Free from corruption, or entire, or clear, Are uncorrupt, sufficient, clear, entire In all things which our needful faith require.
+ - When Misfortune is asleep, let no one wake her.
+ - She feared no danger, for she knew no sin.
+ - The propriety of thoughts and words, which are the hidden beauties of a play, are but confusedly judged in the vehemence of action.
+ - Bets at first were fool-traps, where the wise like spiders lay in ambush for the flies.
+ - Heroic poetry has ever been esteemed the greatest work of human nature.
+ - Joy rul’d the day, and Love the night.
+ - And that one hunting, which the Devil design’d For one fair female, lost him half the kind.
+ - Prodigious actions may as well be done, by weaver’s issue, as the prince’s son.
+ - Honor is but an empty bubble.
+ - Repartee is the soul of conversation.
+ - Let grace and goodness be the principal loadstone of thy affections. For love which hath ends, will have an end; whereas that which is founded on true virtue, will always continue.
+ - Set all things in their own peculiar place, and know that order is the greatest grace.
+ - From plots and treasons Heaven preserve my years, But save me most from my petitioners. Unsatiate as the barren womb or grave; God cannot grant so much as they can crave.
+ - I am reading Jonson’s verses to the memory of Shakespeare; an insolent, sparing, and invidious panegyric...
+ - Thoughts cannot form themselves in words so horrid As can express my guilt.
+ - Not to ask is not be denied.
+ - A good conscience is a port which is landlocked on every side, where no winds can possibly invade. There a man may not only see his own image, but that of his Maker, clearly reflected from the undisturbed waters.
+ - So poetry, which is in Oxford made An art, in London only is a trade.
+ - Trust on and think To-morrow will repay; To-morrow’s falser than the former day; Lies worse; and while it says, we shall be blest With some new Joys, cuts off what we possest.
+ - Never was patriot yet, but was a fool.
+ - To draw true beauty shows a master’s hand.
+ - But far more numerous was the herd of such, Who think too little, and who talk too much.
+ - Order is the greatest grace.
+ - They, who would combat general authority with particular opinion, must first establish themselves a reputation of understanding better than other men.
+ - The conscience of a people is their power.
+ - Confidence is the feeling we have before knowing all the facts.
+ - We find few historians who have been diligent enough in their search for truth; it is their common method to take on trust what they help distribute to the public; by which means a falsehood once received from a famed writer becomes traditional to posterity.
+ - Sure there’s contagion in the tears of friends.
+ - The unhappy man, who once has trail’d a pen, Lives not to please himself, but other men; Is always drudging, wastes his life and blood, Yet only eats and drinks what you think good.
+ - Seek not to know what must not be reveal, for joy only flows where fate is most concealed. A busy person would find their sorrows much more; if future fortunes were known before!
+ - He wants worth who dares not praise a foe.
+ - Happy the man, and happy he alone, he who can call today his own; he who, secure within, can say, tomorrow do thy worst, for I have lived today.
+ - Dreams are but interludes, which fancy makes; When monarch reason sleeps, this mimic wakes.
+ - There is a pleasure in being mad, which none but madmen know.
+ - Our vows are heard betimes! and Heaven takes care To grant, before we can conclude the prayer: Preventing angels met it half the way, And sent us back to praise, who came to pray.
+ - Interest makes all seem reason that leads to it.
+ - Men are but children of a larger growth, Our appetites as apt to change as theirs, And full as craving too, and full as vain.
+ - Not sharp revenge, nor hell itself can find, A fiercer torment than a guilty mind, Which day and night doth dreadfully accuse, Condemns the wretch, and still the charge renews.
+ - Railing in other men may be a crime, But ought to pass for mere instinct in him: Instinct he follows and no further knows, For to write verse with him is to transprose.
+ - Who thinks all Science, as all Virtue, vain; Who counts Geometry and numbers Toys...
+ - Ev’n wit’s a burthen, when it talks too long.
+ - The brave man seeks not popular applause, Nor, overpower’d with arms, deserts his cause; Unsham’d, though foil’d, he does the best he can, Force is of brutes, but honor is of man.
+ - Arts and sciences in one and the same century have arrived at great perfection; and no wonder, since every age has a kind of universal genius, which inclines those that live in it to some particular studies; the work then, being pushed on by many hands, must go forward.
+ - Light sufferings give us leisure to complain.
+ - Whatever is, is in its causes just.
+ - Virtue is her own reward.
+ - Even kings but play; and when their part is done, some other, worse or better, mounts the throne.
+ - It’s a hard world, neighbors, if a man’s oath must be his master.
+ - Heaven be thanked, we live in such an age, When no man dies for love, but on the stage.
+ - For mysterious things of faith, rely on the proponent, Heaven’s authority.
+ - Few know the use of life before ’tis past.
+ - Men’s virtues I have commended as freely as I have taxed their crimes.
+ - That gloomy outside, like a rusty chest, contains the shoring treasure of a soul resolved and brave.
+ - Either be wholly slaves or wholly free.
+ - Could swell the soul to rage, or kindle soft desire.
+ - We can never be grieved for their miseries who are thoroughly wicked, and have thereby justly called their calamities on themselves.
+ - The first is the law, the last prerogative.
+ - The people’s prayer, the glad diviner’s theme, The young men’s vision, and the old men’s dream!
+ - Fortune’s unjust; she ruins oft the brave, and him who should be victor, makes the slave.
+ - He made all countries where he came his own.
+ - Virgil is so exact in every word, that none can be changed but for a worse; nor any one removed from its place, but the harmony will be altered. He pretends sometimes to trip; but it is only to make you think him in danger of a fall, when he is most secure.
+ - He is the very Janus of poets; he wears almost everywhere two faces; and you have scarce begun to admire the one, ere you despise the other.
+ - A brave man scorns to quarrel once a day; Like Hectors in at every petty fray.
+ - All authors to their own defects are blind.
+ - Love either finds equality or makes it.
+ - He look’d in years, yet in his years were seen A youthful vigor, and autumnal green.
+ - So softly death succeeded life in her, She did but dream of heaven, and she was there.
+ - For what can power give more than food and drink, To live at ease, and not be bound to think?
+ - They live too long who happiness outlive.
+ - Imitators are but a servile kind of cattle.
+ - The end of satire is the amendment of vices by correction; and he who writes honestly is no more an enemy to the offender than the physician to the patient when he prescribes harsh remedies.
+ - And after hearing what our Church can say, If still our reason runs another way, That private reason ’tis more just to curb, Than by disputes the public peace disturb; For points obscure are of small use to learn, But common quiet is mankind’s concern.
+ - Swift was the race, but short the time to run.
+ - To breed up the son to common sense is evermore the parent’s least expense.
+ - Truth is never to be expected from authors whose understanding is warped with enthusiasm.
+ - Kings fight for empires, madmen for applause.
+ - For age but tastes of pleasures youth devours.
+ - As one that neither seeks, nor shuns his foe.
+ - Having mourned your sin, for outward Eden lost, find paradise within.
+ - Maintain your post: That’s all the fame you need; For ’tis impossible you should proceed.
+ - He with a graceful pride, While his rider every hand survey’d, Sprung loose, and flew into an escapade; Not moving forward, yet with every bound Pressing, and seeming still to quit his ground.
+ - I strongly wish for what I faintly hope; like the daydreams of melancholy men, I think and think in things impossible, yet love to wander in that golden maze.
+ - Riches cannot rescue from the grave, which claims alike the monarch and the slave.
+ - I saw myself the lambent easy light Gild the brown horror, and dispel the night.
+ - Genius must be born, it can’t be taught.
+ - The bravest men are subject most to chance.
+ - If one must be rejected, one succeed, make him my lord within whose faithful breast is fixed my image, and who loves me best.
+ - Thus all below is strength, and all above is grace.
+ - Pity only on fresh objects stays, but with the tedious sight of woes decays.
+ - Shakespeare was naturally learned; he needed not the spectacles of the books to read nature; he looked inward, and found her there.
+ - The sooner you treat your son as a man, the sooner he will be one.
+ - And, dying, bless the hand that gave the blow.
+ - If thou dost still retain the same ill habits, the same follies, too, still thou art bound to vice, and still a slave.
+ - Virtue without success is a fair picture shown by an ill light; but lucky men are favorites of heaven; all own the chief, when fortune owns the cause.
+ - For your ignorance is the mother of your devotion to me.
+ - Humility and resignation are our prime virtues.
+ - Fowls, by winter forced, forsake the floods, and wing their hasty flight to happier lands.
+ - Revealed religion first informed thy sight, and reason saw not till faith sprung to light.
+ - Griefs assured are felt before they come.
+ - I am resolved to grow fat, and look young till forty.
+ - Some of our philosophizing divines have too much exalted the faculties of our souls, when they have maintained that by their force mankind has been able to find out God.
+ - These are the effects of doting age, – vain doubts and idle cares and over caution.
+ - What precious drops are those, Which silently each other’s track pursue, Bright as young diamonds in their faint dew?
+ - With how much ease believe we what we wish!
+ - To take up half on trust, and half to try, Name it not faith but bungling bigotry.
+ - No government has ever been, or can ever be, wherein time-servers and blockheads will not be uppermost.
+ - Forgiveness to the injured does belong; but they ne’er pardon who have done wrong.
+ - The winds are out of breath.
+ - When bounteous autumn rears her head, he joys to pull the ripened pear.
+ - Uncertain whose the narrowest span, – the clown unread, or half-read gentleman.
+ - Men are but children of a larger growth.
+ - The greater part performed achieves the less.
+ - Shame on the body for breaking down while the spirit perseveres.
+ - By education most have been misled; So they believe, because they were bred. The priest continues where the nurse began, And thus the child imposes on the man.
+ - All the learn’d are cowards by profession.
+ - You see through love, and that deludes your sight, As what is straight seems crooked through the water.
+ - Criticism is now become mere hangman’s work, and meddles only with the faults of authors ; nay, the critic is disgusted less with their absurdities than excellence ; and you cannot displease him more than in leaving him little room for his malice.
+ - And he, who servilely creeps after sense, Is safe, but ne’er will reach an excellence.
+ - Good Heaven, whose darling attribute we find is boundless grace, and mercy to mankind, abhors the cruel.
+ - Fiction is of the essence of poetry as well as of painting; there is a resemblance in one of human bodies, things, and actions which are not real, and in the other of a true story by fiction.
+ - Great souls forgive not injuries till time has put their enemies within their power, that they may show forgiveness is their own.
+ - Satire among the Romans, but not among the Greeks, was a bitter invective poem.
+ - What, start at this! when sixty years have spread. Their grey experience o’er thy hoary head? Is this the all observing age could gain? Or hast thou known the world so long in vain?
+ - Let grace and goodness be the principal loadstone of thy affections.
+ - I am resolved to grow fat and look young till forty, and then slip out of the world with the first wrinkle and the reputation of five-and-twenty.
+ - How easy ’tis, when Destiny proves kind, With full-spread sails to run before the wind!
+ - Youth should watch joys and shoot them as they fly.
+ - I learn to pity woes so like my own.
+ - Blown roses hold their sweetness to the last.
+ - They first condemn that first advised the ill.
+ - Raw in the fields the rude militia swarms, Mouth without hands; maintained at vast expense, In peace a charge, in war a weak defence.
+ - Tomorrow do thy worst, I have lived today.
+ - Love is a child that talks in broken language, yet then he speaks most plain.
+ - Woman’s honor is nice as ermine; it will not bear a soil.
+ - One cannot say he wanted wit, but rather that he was frugal of it.
+
+398 quotes

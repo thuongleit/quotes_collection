@@ -1,0 +1,38 @@
+ - Tears are sometimes an inappropriate response to death. When a life has been lived completely honestly, completely successfully, or just completely, the correct response to death’s perfect punctuation mark is a smile.
+ - A cynic should never marry an idealist. For the cynic, marriage represents the welcome end of romantic life, with all its agony and ecstasy. But for the idealist, it is only the beginning.
+ - When a man wants to relax, he will slob out and really relax. Or he will pursue a hobby – anything from building models to watching sport.
+ - There’s something brave and touching about game girls of all ages keeping themselves smart in hard times – one thinks of those wonderful women during World War II drawing stocking seams in eyebrow pencil up the back of legs stained with gravy browning because nylons were so hard to get hold of.
+ - I don’t really care what people tell children – when you believe in Santa Claus, the Easter Bunny and the Tooth Fairy, one more fib won’t hurt. But I am infuriated by the growing notion, posited in some touchy-feely quarters, that all women are, or can be, beautiful.
+ - I feel I’m trying to get this really crap car going, and it just keeps stalling on me. And then other times I feel like my life’s a train thundering toward me, and I’m in a car stuck on the crossroads and can’t get out. Isn’t it great being young!
+ - Show me a frigid woman and, nine times out of ten, I’ll show you a little man.
+ - I have always voted Labour and I always will. I have got to have one stupid, bovine part of me and that’s the part that votes Labour.
+ - Depression is the most extreme form of vanity.
+ - Families, generally, suck. And I say that as someone who, like my husband, had parents who proved the proverbial exception to the rule.
+ - A wedding is a funeral which masquerades as a feast. And the greater the pageantry, the deeper the savagery.
+ - Now the whole dizzying and delirious range of sexual possibilities has been boiled down to that one big, boring, bulimic word. RELATIONSHIP.
+ - Punk was over in two years. That was the only damn good thing about it.
+ - I jest, of course; premature ejaculation isn’t a laughing matter for anyone, except for your friends when you tell them about it on the phone the next morning. My first marriage ended because the main event was invariably over before my husband got his socks off.
+ - Writing is more than anything a compulsion, like some people wash their hands thirty times a day for fear of awful consequences if they do not. It pays a whole lot better than this type of compulsion, but it is no more heroic.
+ - The latest twist on the pampering concept is spa parties, where a group of friends take over an entire spa.
+ - Being a monarchist, and fawning over those ‘above’ you, you must naturally despise those ‘below’ or on the same socioeconomic level as yourself, because that is how hierarchy worship works.
+ - Blakes Hotel in South Kensington was a particular favourite of mine during what I affectionately think of as my Restless Years.
+ - As a precocious teen I dreamed of being Graham Greene. Well, as it turned out, I never wrote a great novel, sadly, and I never converted to Catholicism, happily, but I did do one thing he did. That is, in middle age I moved to a seaside town and got into a right barney with the local powers-that-be.
+ - As a child, I wanted only two things – to be left alone to read my library books, and to get away from my provincial hometown and go to London to be a writer. And I always knew that when I got there, I wanted to make loads of money.
+ - The Feminist Me says that a woman’s right to her own body should be inviolate at all times, free from fear of peeping paps.
+ - May I just single out for salutations, on the ‘anti-war’ side: Pop Stars For Appeasement, Dancers Against Democracy, Actors For Apathy, Fashionistas For Fascism and Jugglers For Genocide. All of them united under that flaccid flag of convenience, Show-Offs For Saddam.
+ - Hooliganism incarnate, a walking, talking, screaming, squawking metaphor for What’s Wrong With Young People Today.
+ - Having ‘best friends’ is – at least for me – as outdated and small-minded a concept as the idea of ‘Sunday best clothes.’
+ - When I started at the Guardian, though, I couldnt think of anything we saw eye to eye on, except feminism, and even this would soon be arguable as Guardian writers queued up to drool over Eminem.
+ - Being a child is horrible. It is slightly better than being a tree or a piece of heavy machinery but not half as good as being a domestic cat.
+ - It is also interesting to note that the original supermodels are now making a comeback after being dismissed in the Nineties as being ‘greedy’ by a gaggle of male designers who lived like Sun Kings.
+ - These women whose antics we smirk at good-naturedly in the pap-traps put themselves out there at least partly on their beauty; they are in showbiz, and showing what they’ve got is part of their business as much as it is for male show-ponies from the Chippendales to George Clooney.
+ - Only those who haven’t got the wit to speak for themselves would ever want their clothes to do it for them.
+ - One Christmas build-up tradition, however, has totally bypassed me – that of going up to town and doing a show.
+ - Presley sounded like Jayne Mansfield looked – blowsy and loud and low.
+ - I don’t have a spiritual bone in my body; but what I am, is religious.
+ - I feel even less patience with transsexuals.
+ - It seems that one moment I was this little kid only caring about animals and flowers and stuff, and then the next minute I was this raging stew of hormones. I don’t know if you’ve ever been a raging stew of anything, but I wouldn’t particularly recommend it.
+ - I won’t be going to any New Year’s Eve parties because I think they’re naff. No one over the age of 15 should bother going to parties.
+ - Transsexualism is, basically, just another, more drastic twist on the male menopause.
+
+36 quotes

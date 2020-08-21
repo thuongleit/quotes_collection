@@ -1,0 +1,26 @@
+ - Never give in and never give up. ~~Hubert H. Humphrey
+ - It’s at the borders of pain and suffering that the men are separated from the boys. ~~Emil Zatopek
+ - I never give up on things. ~~Ashley Tisdale
+ - I am confident. I never give up. ~~Arantxa Sanchez Vicario
+ - Nothing is hopeless; we must hope for everything. ~~Euripides
+ - I have woven a parachute out of everything broken. ~~William Edgar Stafford
+ - The genius thing that we did was, we didn’t give up. ~~Jay-Z
+ - Never give up your power to another person. ~~Oprah Winfrey
+ - You are afraid to die, and you’re afraid to live. What a way to exist. ~~Neale Donald Walsch
+ - With love and patience, nothing is impossible. ~~Daisaku Ikeda
+ - Regardless of your lot in life, you can build something beautiful on it. ~~Zig Ziglar
+ - Money won’t create success, the freedom to make it will. ~~Nelson Mandela
+ - Perhaps everything terrible is in its deepest being something helpless that wants help from us. ~~Rainer Maria Rilke
+ - I give the fight up: let there be an end, a privacy, an obscure nook for me. I want to be forgotten even by God. ~~Robert Browning
+ - Adversity is the first path to truth. ~~Lord Byron
+ - I’m not giving up on life. I’m giving up on today. ~~Dane Cook
+ - To persevere in one’s duty, and be silent is the best answer to calumny. ~~George Washington
+ - To build may have to be the slow and laborious task of years. To destroy can be the thoughtless act of a single day. ~~Winston Churchill
+ - To jaw-jaw is always better than to war-war. ~~Winston Churchill
+ - I’m not giving up acting, I’m definitely not going to stop. ~~Shane West
+ - If Hitler invaded hell I would make at least a favourable reference to the devil in the House of Commons. ~~Winston Churchill
+ - Who would not give up wit for power and beauty? ~~Mason Cooley
+ - The greatest achievements of the human mind are generally received with distrust. ~~Arthur Schopenhauer
+ - I want to see success right away. And I want to never give up, never stop. ~~Joe Nichols
+
+24 quotes

@@ -1,0 +1,35 @@
+ - The purpose of our life is to help others through it.
+ - The great stillness in these landscapes that once made me restless seeps into me day by day, and with it the unreasonable feeling that I have found what I was searching for without ever having discovered what it was.
+ - You do your best work when you’re not conscious of yourself.
+ - The purpose of meditation practice is not enlightenment; it is to pay attention even at extraordinary times, to be of the present, nothing-but-in-the-present, to bear this mindfulness of now into each event of ordinary life.
+ - Simplicity is the whole secret of well-being.
+ - How could I say that I wished to penetrate the secrets of the mountains in search of something still unknown that, like the yeti, might well be missed for the very fact of searching?
+ - The Zen expression “Kill the Buddha!” means to kill any concept of the Buddha as something apart from oneself.
+ - Anyone who thinks they can save the world is both wrong and dangerous.
+ - For some time I watch the coming of the night? Above is the glistening galaxy of childhood, now hidden in the Western world by air pollution and the glare of artificial light; for my children’s children, the power, peace and healing of the night will be obliterated.
+ - My eye is fixed not on the ending of the book but on the feeling of that ending.
+ - Alec Wilkinson is a spare, clear, and lucid writer who works in stylistic simplicity with material that is not simple at all.
+ - Where to begin? Do we measure the relaxing of the feet? The moment when the eye glimpses the hawk, when instinct functions? For in this pure action, this pure moving of the bird, there is no time, no space, but only the free doing-being of this very moment -now!
+ - Have you seen the snow leopard? No! Isn’t that wonderful?
+ - This world is painted on a wild dark metal.
+ - Here I am, safely returned over those peaks from a journey far more beautiful and strange than anything I had hoped for or imagined – how is it that this safe return brings such regret?
+ - I like to hear and smell the countryside, the land that my characters inhabit. I don’t want these characters to step off the page, I want them to step out of the landscape.
+ - The concept of conservation is a far truer sign of civilization than that spoilation of a continent which we once confused with progress.
+ - In nonfiction, you have that limitation, that constraint, of telling the truth.
+ - It is said in Java that the tiger’s hearing is so acute that hunters must keep their nose hairs cut lest the tiger hear the breath whistle through their nostrils.
+ - If we were doomed to live forever, we would scarcely be aware of the beauty around us.
+ - And only the enlightened can recall their former lives; for the rest of us, the memories of past existences are but glints of light, twinges of longing, passing shadows, disturbingly familiar, that are gone before they can be grasped, like the passage of that silver bird on Dhaulagiri.
+ - Simultaneously I am myself, the child I was, the old man I will be.
+ - Figures dark beneath their loads pass down the far bank of the river, rendered immortal by the streak of sunset upon their shoulders.
+ - In fiction, you have a rough idea what’s coming up next – sometimes you even make a little outline – but in fact you don’t know. Each day is a whole new – and for me, a very invigorating – experience.
+ - I think in any writing you’re paying attention to detail.
+ - In this very breath that we take now lies the secret that all great teachers try to tell us.
+ - I used to distinguish between my fiction and nonfiction in terms of superiority or inferiority.
+ - When I’m in the field, when I’m working, I keep very careful notes. I wear big shirts with big breast pockets, and I carry in them two little spiral notebooks.
+ - Illuminated by the same joyful curiosity and erudition, lyric writing, and plain love of life that made a classic of Archie Carr’s The Windward Road.
+ - I have never figured out how women work but I do know that their skin color has no significance. Black or white, every last one is pretty pink on the inside and they are all impossible.
+ - Be light, light, light – full of light!
+ - I was just very interested in the American frontier and the growth of capitalism – those enormous fortunes that were being made, more often than not, on the blood of poor people, black people, Indian people. They were the ones who paid very dearly for those great fortunes.
+ - In zazen, one is one’s present self, what one was, and what one will be, all at once.
+
+33 quotes

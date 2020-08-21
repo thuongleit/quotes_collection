@@ -1,0 +1,74 @@
+ - Community means strength that joins our strength to do the work that needs to be done. Arms to hold us when we falter. A circle of healing. A circle of friends. Someplace where we can be free.
+ - Insanity is repeating the same actions and expecting different results.
+ - To work magic is to weave the unseen forces into form; to soar beyond sight; to explore the uncharted dream realm of the hidden reality.
+ - There are two kinds of power. One is power over, which is always destructive, and the other is power from within, which is a transcendent and creative power.
+ - The Goddess is not separate from the world – She IS the world, and all things in it: moon, sun, earth, star, stone, seed, flowing river, wind, wave, leaf and branch, bud and blossom, fang and claw, woman and man.
+ - Let there be beauty and strength, power and compassion, honor and humility, mirth and reverence within you.
+ - We cannot change the world alone. To heal ourselves, to restore the earth to life, to create the situations in which freedom can flourish, we must work together in groups.
+ - Witchcraft offers the model of a religion of poetry, not theology. It presents metaphors, not doctrines, and leaves open the possibility of reconciliation of science and religion, of many ways of knowing.
+ - In Witchcraft, each of us must reveal our own truth.
+ - Panic is not an effective long-term organizing strategy.
+ - Love for life in all its forms is the basic ethic of Witchcraft.
+ - Love is the glue that holds the world together.
+ - Spirituality leaps where science cannot yet follow, because science must always test and measure, and much of reality and human experience is immeasurable.
+ - Each being is sacred – meaning that each has inherent value that cannot be ranked in a hierarchy or compared to the value of another being.
+ - Any ritual is an opportunity for transformation. To do a ritual, you must be willing to be transformed in some way. The inner willingness is what makes the ritual come alive and have power. If you aren’t willing to be changed by the ritual, don’t do it.
+ - The witches, the wise women, and the healers were also always the counselors. It’s a whole other tradition of knowledge and learning that has been suppressed because it had political implications.
+ - The long sleep of Mother Goddess is ended. May She awaken in each of our hearts – Merry meet, merry part, and blessed be.
+ - Where there’s fear, there is power.
+ - Energy moves in cycles, circles, spirals, vortexes, whirls, pulsations, waves, and rhythms – rarely if ever in simple straight lines.
+ - Solidarity is based on the principle that we are willing to put ourselves at risk to protect each other.
+ - Now, on the longest day, light triumphs, and yet begins the decline into dark. We turn the Wheel for we have planted the seeds of our own changes, and to grow we must accept even the passing of the sun Set Sail See with clear eyes See how we shine!
+ - Identifying as a Pagan, feminist, Witch, and anarchist is possibly a way to alarm great segments of the general public, but at least it keeps me from sinking into a boring and respectable middle age.
+ - All began in love, all seeks to return in love. Love is the law, the teacher of wisdom, and the great revealer of mysteries.
+ - The Goddess does not rule the world; She is the world.
+ - I am a witch, by which I mean that I am somebody who believes that the earth is sacred, and that women and women’s bodies are one expression of that sacred being.
+ - What shames us, what we most fear to tell, does not set us apart from others; it binds us together if only we can take the risk to speak it.
+ - Only those who must bear the consequences of a decision have the right to make it.
+ - Fear doesn’t go away but you walk toward fear naked and the gate opens.
+ - Sexuality is a sacrament.
+ - On some deep cosmic level, we are all one, and within us we each contain the potential for good and for destruction, for compassion and hate, for generosity and greed...
+ - We need the discipline of magic, of consciousness-change, in order to hear and understand what the earth is saying to us. And listening to the earth, doing the rituals the land asks us for, giving back what we are asked for, will also bring us healing, expanded awareness and intensified life.
+ - The Goddess does not rule the world; She is the world. Manifest in each of us, She can be known internally by every individual, in all her magnificent diversity.
+ - She changes everything she touches. And everything she touches changes.
+ - What affects one thing affects, in some way, all things: All is interwoven into the continuous fabric of being. Its warp and weft are energy, which is the essence of magic.
+ - Earth Mother, you who are called by a thousand names. May all remember we are cells in your body and dance together.
+ - Systems don’t change easily. Systems try to maintain themselves, and seek equilibrium. To change a system, you need to shake it up, disrupt the equilibrium. That often requires conflict.
+ - Unless I have enough personal power to keep commitments in my daily life, I will be unable to wield magical power. To work magic, I need a basic belief in my ability to do things and cause things to happen. That belief is generated and sustained by my daily actions.
+ - The antidote to climate change is community.
+ - For great as the powers of destruction may be, greater still, are the powers of healing.
+ - Through the Goddess, we can discover our strength, enlighten our minds, own our bodies, and celebrate our emotions.
+ - Somewhere a circle of hands will open to receive us, eyes will light up as we enter, voices will celebrate with us whenever we come into our own power.
+ - Magic has often been thought of us the art of making dreams come true; the art of realizing visions. Yet before we can bring birth to the vision we have to see it.
+ - The terrain of the mysteries is the ordinary. To seek out mystery, we don’t have to go anywhere. We must simply change our preception, our description, our consciousness of where we are.
+ - Force, punishment, and violence are patriarchy’s answer to conflicts and social problems. Patriarchy finds its ultimate expression in war.
+ - If Goddess religion is not to become mindless idiocy, we must win clear of tendency of magic to become supertition. Magic – and among its branches I include psychology as its purpose to describe and change consciousness – is an art.
+ - Magic is another word that makes people uneasy, so I use it deliberately, because words they are comfortable with, the words that sound acceptable, rational, scientific, and intellectually sound, are comfortable precisely because they are the language of estrangement.
+ - Beware of organizations that proclaim their devotion to the light without embracing, bowing to the dark; for when they idealize half the world they must devalue the rest.
+ - The healing of our relationship with place begins with the preservation of the natural environment. We cannot go to the wild for renewal if no wilderness is left.
+ - To live with integrity in an unjust society we must work for justice. To walk with integrity through a landscape strewn with beer cans, we must stop and pick them up.
+ - Our goal is not to get out of the world or to get out of life, but to integrate it, to celebrate it, to embrace it fully, and to embrace all the different cycles within it.
+ - My spirituality has always been linked to my feminism. Feminism is about challenging unequal power structures.
+ - Only poetry can address grief.
+ - Without a vision human beings are nasty creatures.
+ - Fascination with the psychic – or the psychological – can be a dangerous sidetrack on any spiritual path.
+ - Any ritual is an opportunity for transformation.
+ - In a culture where profit has become the true God, self-sacrifice can seem incomprehensible rather than noble.
+ - Ritual and myth are like seed crystals of new patterns that can eventually reshape culture around them.
+ - Creations, whether they are children, poems, or organizations, take on a life of their own.
+ - Life demands honesty, the ability to face, admit, and express oneself.
+ - The test of a true myth is that each time you return to it, new insights and interpretations arise.
+ - Spirituality promotes passivity when the domain of spirit is defined as outside the world. When this world is the terrain of spirit, we ourselves become actors in the story, and this world becomes the realm in which the sacred must be honored and freedom created.
+ - Ritual affirms the common patterns, the values, the shared joys, risks, sorrows, and changes that bind a community together. Ritual links together our ancestors and descendants, those who went before with those will come after us.
+ - Magic has always been an element of Witchcraft, but in the Craft its techniques were practiced within a context of community and connection.
+ - In the Craft the Goddess is not omnipotent. The cosmos is interesting rather than perfect, and everything is not part of some greater plan, nor is all necessarily under control.
+ - At its essence, the message of the Occupations is simply this: ‘Here in the face of power we will sit and create a new society, in which you do count.’
+ - Any creative work that is truly alive is influenced by a thousand chance factors in its generation.
+ - Magic is the craft of shaping, the craft of the wise, exhilarating, dangerous – the ultimate adventure. The power of magic should not be underestimated. It works, often in ways that are unexpected and difficult to control.
+ - What we name must answer to us; we can shape it if not control it.
+ - To practice magic is to bear the responsibility for having a vision.
+ - To choose is also to begin.
+ - If we are to reclaim our culture, we cannot afford narrow definitions.
+ - Despair breeds fundamentalism, fanaticism, and terrorism. A world of truly shared abundance would be a safer world.
+
+72 quotes

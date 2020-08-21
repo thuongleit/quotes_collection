@@ -1,0 +1,36 @@
+ - All things seem possible in May.
+ - How sad would be November if we had no knowledge of the spring!
+ - Reduce the complexity of life by eliminating the needless wants of life, and the labors of life reduce themselves.
+ - For observing nature, the best pace is a snail’s pace.
+ - It is morally as bad not to care whether a thing is true or not, so long as it makes you feel good, as it is not to care how you got your money as long as you have got it.
+ - Nature is shy and noncommittal in a crowd. To learn her secrets, visit her alone or with a single friend, at most. Everything evades you, everything hides, even your thoughts escape you, when you walk in a crowd.
+ - The difference between utility and utility plus beauty is the difference between telephone wires and the spider web.
+ - How vivid is the suffering of the few when the people are few and how the suffering of nameless millions in two world wars is blurred over by numbers.
+ - Freedom from worries and surcease from strain are illusions that always inhabit the distance.
+ - The long fight to save wild beauty represents democracy at its best. It requires citizens to practice the hardest of virtues – self-restraint.
+ - Time and space – time to be alone, space to move about – these may well become the great scarcities of tomorrow.
+ - I see, when I bend close, how each leaflet of a climbing rose is bordered with frost, the autumn counterpart of the dewdrops of summer dawns. The feathery leaves of yarrow are thick with silver rime and dry thistle heads rise like goblets plated with silver catching the sun.
+ - Any fine morning, a power saw can fell a tree that took a thousand years to grow.
+ - Change is a measure of time and, in the autumn, time seems speeded up. What was is not and never again will be; what is is change.
+ - For man, autumn is a time of harvest, of gathering together. For nature, it is a time of sowing, of scattering abroad.
+ - To the lost man, to the pioneer penetrating a new country, to the naturalist who wishes to see the wild land at its wildest, the advice is always the same – follow a river. The river is the original forest highway. It is nature’s own Wilderness Road.
+ - A man who never sees a bluebird only half lives.
+ - For the mind disturbed, the still beauty of dawn is nature’s finest balm.
+ - Better a thousand times even a swiftly fading, ephemeral moment of life than the epoch-long unconsciousness of the stone.
+ - In nature, there is less death and destruction than death and transmutation.
+ - It is easier to accept the message of the stars than the message of the salt desert. The stars speak of man’s insignificance in the long eternity of time; the desert speaks of his insignificance right now.
+ - It is morally as bad not to care whether anything is true or not...
+ - Those who wish to pet and baby wild animals ‘love’ them. But those who respect their natures and wish to let them live normal lives, love them more.
+ - You can prove almost anything with the evidence of a small enough segment of time. How often, in any search for truth, the answer of the minute is positive, the answer of the hour qualified, the answers of the year contradictory!
+ - To those whom the tree, the birds, the wildflowers represent only “locked-up dollars” have never known or really seen these things.
+ - If man can take care of man, nature can take care of the rest.
+ - Whenever there is an organized movement to persuade people to believe or do something, whenever an effort is made to “propagate” a creed or set of opinions or convictions or to make people act as we want them to act, the means employed are called propaganda.
+ - As the pressure of population increasingly regiments us and crowds us closer together, an association with the wild, winged freedom of the birds will fill an ever growing need in our lives.
+ - How many beautiful trees gave their lives that today’s scandal should, without delay, reach a million readers.
+ - The measure of an enthusiasm must be taken between interesting events. It is between bites that the lukewarm angler loses heart.
+ - The city man, in his neon-and-mazda glare, knows nothing of nature’s midnight. His electric lamps surround him with synthetic sunshine. They push back the dark. They defend him from the realities of the age-old night.
+ - It is not races but individuals that are noble and courageous or ignoble and craven or considerate or persistent or philosophical or reasonable. The race gets credit when the percentage of noble individuals is high.
+ - How strangely inaccurate it is to measure length of living by length of life! The space between your birth and death is often far from a true measure of your days of living.
+ - Noise is evolving not only the endurers of noise but the needers of noise.
+
+34 quotes

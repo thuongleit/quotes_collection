@@ -1,0 +1,280 @@
+ - Sometimes people are beautiful. Not in looks. Not in what they say. Just in what they are.
+ - One was a book thief. The other stole the sky.
+ - My heart is so tired.
+ - She was a girl with a mountain to climb.
+ - I am haunted by humans.
+ - I’m just another stupid human.
+ - I have hated words and I have loved them, and I hope I have made them right.
+ - The question is, what color will everything be at that moment when I come for you? What will the sky be saying?
+ - I just want to write someone’s favorite book.
+ - I had to decide what I was going to do, and what I was going to be. I was standing there, waiting for someone to do something, till I realised the person I was waiting for was myself.
+ - He was the crazy one who had painted himself black and defeated the world. She was the book thief without the words. Trust me, though, the words were on their way, and when they arrived, Liesel would hold them in her hands like the clouds, and she would wring them out like rain.
+ - Yes, I know it. In the darkness of my dark beating heart, I know. He’d have loved it alright. You see? Even Death Has A Heart.
+ - She was one if the few souls that made me wonder what’s it to live.
+ - I guess that’s the beauty of books. When they finish they don’t really finish.
+ - Sometimes you read a book so special that you want to carry it around with you for months after you’ve finished just to stay near it.
+ - I guess humans like to watch a little destruction. Sand castles, houses of cards, that’s where they begin. Their great skills is their capacity to escalate.
+ - It’s about glowing lights and small things that are big.
+ - Even death has a heart.
+ - Death waits for no man – and if he does, he doesn’t usually wait for very long.
+ - First the colours. Then the humans. That’s usually how I see things. Or at least, how I try.
+ - Believe it or not – it takes a lot of love to hate you like this.
+ - Failure has been my best friend as a writer. It tests you, to see if you have what it takes to see it through.
+ - Imagine smiling after a slap in the face. Then think of doing it twenty-four hours a day.
+ - You want to know what I truly look like? I’ll help you out. find yourself a mirror while I continue.
+ - There were people everywhere on the city street, but the stranger could not have been more alone if it were empty.
+ - The injury of words. Yes, the brutality of words.
+ - One wild card was yet to be played.
+ - But for now, happiness throws stones. It guards itself. I wait.
+ - I’d rather chase the sun than wait for it.
+ - And they would all smile at the beauty of destruction.
+ - I’m not the messenger at all. I’m the message.
+ - When she came to write her story, she would wonder when the books and the words started to mean not just something, but everything.
+ - It’s not a big thing, but I guess it’s true – big things are often just small things that are noticed.
+ - I want words at my funeral. But I guess that means you need life in your life.
+ - You can kill a man with those words. No gun. No bullets. Just words and a girl.
+ - It was the beginning of the greatest Christmas ever. Little food. No presents. But there was a snowman in their basement.
+ - She could smell the pages. She could almost taste the words as they stacked up around her.
+ - The best word shakers were the ones who understood the true power of words. They were the ones who could climb the highest. One such word shaker was a small, skinny girl. She was renowned as the best word shaker of her region because she knew how powerless a person could be WITHOUT words.
+ - My arms are killing me. I didn’t know words could be so heavy.
+ - The thrill of being ignored!
+ - I’m always finding humans at their best and worst. I see their ugly and their beauty and I wonder how the same can be both.
+ - It kills me sometimes, how people die.
+ - How about a kiss, Saumensch?
+ - That was when the world wasn’t so big and I could see everywhere. It was when my father was a hero and not a human.
+ - There were stars. They burned my eyes.
+ - Somewhere, far down, there was an itch in his heart, but he made it a point not to scratch it. He was afraid of what might come leaking out.
+ - The song was born on her breathe and died at her lips.
+ - She was saying goodbye and she didn’t even know it.
+ - He does something to me, that boy. Every time. It’s his only detriment. He steps on my heart. He makes me cry.
+ - Liesel observed the strangeness of her foster father’s eyes. They were made of kindness, and silver.
+ - Sometimes I think my papa is an accordion. When he looks at me and smiles and breathes, I hear the notes.
+ - It’s hard to not like a man who not only notices the colors, but speaks them.
+ - When death captures me,? the boy vowed, ‘he will feel my fist on his face.’ Personally, I quite like that. Such stupid gallantry. Yes. I like that a lot.
+ - The only thing worse than a boy who hates you: a boy that loves you.
+ - I think she ate a salad and some soup. And loneliness. She ate that, too.
+ - Maybe one morning I’ll wake up and step outside of myself to look back at the old me lying dead among the sheets.
+ - Summer came. For the books thief, everything was going nicely. For me, the sky was the color of Jews.
+ - You’re a human, you should understand self-obsession.
+ - If only she could be so oblivious again, to feel such love without knowing it, mistaking it for laughter.
+ - It would then be brought abruptly to an end, for the brightness had shown suffering the way.
+ - It amazes me what humans can do, even when streams are flowing down their faces and they stagger on, coughing and searching, and finding.
+ - When a person’s last response was Saumensch or Saukerl or Arschloch, you knew you had them beaten.
+ - We’re silent now, both waiting, till I remind myself that I’m the older one and should therefore initiate conversation. But I don’t. I don’t want to waste this girl with idle chitchat. She’s beautiful.
+ - I even move out onto the front porch and see my own limited view of the world. I want to take that world, and for the first time ever, I feel like I can do it. I’ve survived everything I’ve had to so far. I’m still standing here.
+ - I feel the fear, but I walk fast toward it.
+ - The silence was always the greates temptation.
+ - Even now, I wonder how much of my life is convinced.
+ - Fear is shiny. Ruthless in the eyes.
+ - There are moments when you can only stand and stare, watching the world forget you as you remove yourself from it – when you overcome it and cease to exist as the person you were.
+ - The bittersweetness of uncertainty: To win or to lose.
+ - Usually we walk around constantly believing ourselves. “I’m okay” we say. “I’m alright”. But sometimes the truth arrives on you and you can’t get it off. That’s when you realize that sometimes it isn’t even an answer – it’s a question. Even now, I wonder how much of my life is convinced.
+ - Big things are often just little things that people notice.
+ - If a guy like you can stand up and do what you did, then maybe everyone can. Maybe everyone can live beyond what they’re capable of.
+ - She wanted none of those days to end, and it was always with disappointment that she watched the darkness stride forward.
+ - She gave ‘The Dream Carrier’ to Max as if words alone could nourish him.
+ - The book thief has struck for the first time – the beginning of an illustrious career.
+ - Together, they would watch everything that was so carefully planned collapse, and they would smile at the beauty of destruction.
+ - Can a person steal happiness? Or is just another internal, infernal human trick?
+ - Maybe everyone can live beyond what they’re capable of.
+ - Two weeks to change the world, fourteen days to destroy it.
+ - If you can’t imagine it, think clumsy silence. Think bits and pieces of floating despair. And drowning in a train.
+ - I traveled the globe as always, handing souls to the conveyor belt of eternity.
+ - If her soul ever leaks, I want it to land on me.
+ - You can’t eat books, sweetheart.
+ - A REASSURING ANNOUNCEMENT Please, be calm, despite that previous threat. I am all bluster – I am not violent. I am not malicious. I am a result.
+ - They were French, they were Jews, and they were you.
+ - I also fear that nothing really ends at the end. Things just keep going as long as memory can wield its ax, always finding a soft part in your mind to cut through and enter.
+ - Humans, if nothing else, have the good sense to die.
+ - I try hard and aim big. People can hate or love my books but they can never accuse me of not trying.
+ - The conversation of bullets.
+ - The best word shakers were the ones who understood the true power of words. They were the ones who could climb the highest.
+ - Humans have a talent for escalation. -Death.
+ - She kept watching the words.
+ - Everything was good. But it was awful, too.
+ - Have you ever noticed that idiots have a lot of friends? It’s just an observation.
+ - Every time you find something that doesn’t work, you’re a step closer to what does work.
+ - To me the question is always this: if a ray of light came out of the sky and said, “Your next book will never be published – would you still write it?” If the answer is yes, the book is worth writing.
+ - Amplified by the still of night, the book opened – a gust of wind.
+ - I see Death as the part of us that knows all the time that we’re going to die, reminding us to live properly.
+ - The city buildings in the distance are holding up the sky, it seems.
+ - Please, trust me, I most definitely can be cheerful. I can be amiable. Agreeable. Affable. And that’s only the A’s. Just don’t ask me to be nice. Nice has nothing to do with me.
+ - Five hundred souls. I carried them in my fingers, like suitcases. Or I’d throw them over my shoulder. It was only the the children I carried in my arms.
+ - An attribute of Rosa Hubermann, she was a good woman for a crisis.
+ - The point is, Ilsa Hermann had decided to make suffering her triumph. When it refused to let go of her, she succumbed to it. She embraced it.
+ - You can do all manner of underhanded nice things when you have a caustic reputation.
+ - Don’t punish yourself,? she heard her say again, but there would be punishment and pain, and there would be happiness, too. That was writing.
+ - Liesel’s blood had dried inside of her. It crumbled. She almost broke into pieces on the steps.
+ - The orange flames waved at the crowd as paper and print dissolved inside them. Burning words were torn from their sentences.
+ - Smile with instinct, then lick your wounds in the darkest of dark corners. Trace the scars back to your own fingers and remember them.
+ - Rosa Hubermann was sitting on the edge of the bed with her husband’s accordion tied to her chest. Her fingers hovered above the keys. She did not move. She didn’t ever appear to be breathing.
+ - So I saw that there was only me. There was only me who could worry about what was happening here, inside these walls of my life. Other people had their own worlds to worry about, and in the end, they had to fend for themselves, just like us.
+ - It’s my heart that is tired. A thirteen-year-old heart shouldn’t feel like this.
+ - A fighter can be a winner, but that doesn’t make a winner a fighter.
+ - The human child – so much cannier at times than the stupefyingly ponderous adult.
+ - Somewhere in all the snow, she could see her broken heart, in two pieces.
+ - Sometimes I just survive. But sometimes I stand on the rooftop of my existence, arms stretched out, begging for more.
+ - Often I wish this would all be over, Liesel, but then somehow you do something like walk down the basement steps with a snowman in your hands.
+ - As always, one of her books was next to her.
+ - The bombs were coming-and so was I.
+ - The night is alive with stars, and when I lie down and look up, I get lost up there. I feel like I’m falling, but upward, into the abyss of sky above me.
+ - I am constantly overestimating and underestimating the human race – that rarely do I ever simply estimate it.
+ - The Gunman is useless. I know it. He knows it. The whole bank knows it.
+ - He left Himmel Street wearing his hangover and a suit.
+ - I realize that nothing belongs to her anymore and she belongs to everything.
+ - People die of broken hearts. They have heart attacks. And it’s the heart that hurts most when things go wrong and fall apart.
+ - She was like a lone angel floating above the surface of the earth, laughing with delight because she could fly but crying out of loneliness.
+ - I can promise you that the world is a factory. The sun stirs it, the humans rule it. And I remain. I carry them away.- spoken by death.
+ - The last time I saw her was red. The sky was like soup, boiling and stirring. In some places, it was burned. There were black crumbs, and pepper, streaked across the redness.
+ - Rudy Steiner was scared of the book theif’s kiss. He must have longed for it so much. He must have longed for it so much. he must have loved her so incredibly hard. So hard that he would never ask for her lips again and would go to his grave without them.
+ - When finally she finished and stood herself up, he put his arm around her, best-buddy style, and they walked on. There was no request for a kiss. Nothing like that. You can love Rudy for that, if you like.
+ - Papa was a man with silver eyes, not dead ones. Papa was an accordion! But his bellows were all empty. Nothing went in and nothing came out.
+ - An eleven-year-old girl is many things, but she is not stupid.
+ - So many humans. So many colors.
+ - And it would show me, once again, that one opportunity leads directly to another, just as risk leads to more risk, life to more life, and death to more death.
+ - A snowball in the face is surely the perfect beginning to a lasting friendship.
+ - The scrawled words of practice stood magnificently on the wall by the stairs, jagged and childlike and sweet. They looked on as both the hidden Jew and the girl slept, hand to shoulder. They breathed. German and Jewish lungs.
+ - Is there cowardice with the acknowledgement of fear?
+ - Please believe me when I tell you that I picked up each soul that day as if it were newly born. I even kissed a few weary, poisoned cheeks. I listened to their last, gasping cries. Their vanishing words. I watched their love visions and freed them from their fear.
+ - Even enemies were an inch away from friendship.
+ - You cannot be afraid, Read the book. Smile at it. It’s a great book-the greatest book you’ve ever read.
+ - I have to say that although it broke my heart, I was, and still am, glad I was there.
+ - The point is, it didn’t really matter what the book was about. It was what it meant that was important.
+ - All my friends seem to be smart arses. Don’t ask me why. Like many things, it is what it is.
+ - In years to come, he would be a giver of bread, not a stealer – proof again of the contradictory human being. So much good, so much evil. Just add water.
+ - She took a step and didn’t want to take any more, but she did.
+ - Handfuls of frosty water can make almost anyone smile, but it cannot make them forget.
+ - I watch the beauty for as long as I can, then turn and face the rest of it.
+ - The pages and the words are my world, spread out before your eyes and for your hand to touch. Vaguely, I can see you face looking down into me, as I look back. Do you see my eyes?
+ - If they killed him tonight, at least he would die alive.
+ - Liesel crossed the bridge over the Amper River. The water was glorious and emerald and rich. She could see the stones at the bottom and hear the familiar song of water. The world did not deserve such a river.
+ - Beautiful women are the torment of my existence.
+ - They’d been standing like that for thirty seconds of forever.
+ - When he moves, a streetlight stabs him, and the words flow out like blood.
+ - No matter how many times she was told that she was loved, there was no recognition that the proof was in the abandonment.
+ - She let herself love me for three minutes. Can three minutes last forever? I ask myself, but already know the answer. Probably not, I reply. But maybe they last long enough.
+ - I s’pose, I can’t have it all my own way, can I? You can’t drown in a person unless they let you.
+ - I certainly wasn’t born with creative writing. Maybe there’s a certain amount of learning and then it’s up to the person. I think in the end it’s your favourite books that are the best teachers. That’s the way I’ve learned the most, by far.
+ - Living in Sydney, I’ve taken the chance to start surfing again. One of my best memories of growing up is catching my first proper wave and surfing across it and my brother cheering at me from the shore.
+ - Only in today’s sick society can a man be persecuted for reading too many books.
+ - Mistakes, mistakes, it’s all I seem capable of at times.
+ - There was sex, of course. Nakedness. Wall to wall, in and out of my thoughts. But when it was over it was her whispering voice I craved, and a human curled up in my arms.
+ - I just know that right now, we want to be proud. For once. We want to take the struggle and rise above it. We want to frame it, live it, survive it. We want to put it in our mouths and taste it and never forget it, because it makes us strong.
+ - It’s not so much that the old friend is a better friend. It’s just that you know the person better, and you know they don’t really care if you’re acting like a poor, grovelling idiot. They know you would do the same for them.
+ - The impoverished always try to keep moving, as if relocating might help. They ignore the reality that a new version of the same old problem will be waiting at the end of the trip- the relative you cringe to kiss.
+ - The water crumbles on it’s way down as my hands and feet push me forward. The world is lightening, taking shape, and turning to color. It feels like it’s being painted around me.
+ - The flyscreen door slammed behind me. My feet dragged. I reached each arm into the jacket. Warm sleeves. Crumpled collar. Hands in pockets. Okay. I walked.
+ - It was a Monday and they walked on a tightrope to the sun.
+ - Mystery bores me. It chores me. I know what happens and so do you. It’s the machinations that wheel us there that aggravate, perplex, interest, and astound me.
+ - It’s all very well for such a person to whine and moan and criticize other family members, but they won’t let anyone else do it. That’s when you get your back up and show loyalty.
+ - You don’t always get what you wish for. Especially in Nazi Germany.
+ - Disbelief held me down inside my footsteps, making my body heavy but my heart wild.
+ - Stealing it, in a sick kind of sense, was like earning it.
+ - And I stop listening to me, because to put it bluntly, I tire me.
+ - It was one of those moments of perfect tiredness, of having conquered not only the work at hand, but the night who had blocked the way.
+ - But neither of us knows, because a fight’s worth nothing if you know from the start that you’re going to win it.
+ - He killed himself for wanting to live.
+ - Her teeth were like a soccer crowd, crammed in.
+ - Could she smell my breath? Could she hear my cursed circular heart beat revolving like the crime it is in my deathly chest?
+ - I wanted to ask her how the same thing could be so ugly and so glorious, and its words and stories so damning and brilliant.
+ - So much good, so much evil. Just add water.
+ - I’m gonna hunt my life down and grab it.
+ - Like most misery, it started with apparent happiness.
+ - It’s not the place, I think. It’s the people. We’d have all been the same anywhere else.
+ - There was also a rumor that later in the day, she walked fully clothed into the Amper River and said something very strange. Something about a kiss. Something about a Saumensch. How many times did she have to say goodbye?
+ - But then, is there cowardice in the acknowledgment of fear? Is there cowardice in being glad that you lived?
+ - Crowds of questions stream through me like lines of people exiting a soccer ground or a concert. They push and shove and trip. Some make their way around. Some remain in their seats, waiting for their opportunity.
+ - Of course you’re real-like any thought or any story. It’s real when you’re in it.
+ - Not a beauty queen. Not one of those. You know the ones. She was real.
+ - My own eyes try to sleep, but they don’t. They stay wide awake as time snarls forward and silence drops down, like measured thought.
+ - At first, she could not talk. Perhaps it was the sudden bumpiness of love she felt for him. Or had she always loved him?
+ - A small but noteworthy note. I’ve seen so many young men over the years who think they’re running at other young men. They are not. They are running at me.
+ - I look at her wish we could go inside and make love on the couch. Dive inside each other. Take each other. Make each other. Nothing happens, though.
+ - When her hands reached out and poured the tea, it was as if she also poured something into me while I sat there sweating in my cab. It was like she held a string and pulled on it just slightly to open me up. She got in, put a piece of herself inside me, and left again.
+ - I’d been in love with her for years. I never left this suburban town. I didn’t go to university. I went to Audrey.
+ - What do you want to kiss me for? I’m filthy.‘- Liesel So am I.’- Rudy.
+ - The beauty of my work is that my sets cost nothing. That’s what I love about being a writer of novels.
+ - You should know it yourself- a young man is still a boy, and a boy sometimes has the right to be stubborn.
+ - I looked at myself in that window, oblivious to all the people around me and I stared and smiled that particular smile. You know that smile that seems to knock you and tell you how pathetic you are? That’s the smile I was smiling.
+ - The nightmares arrived like they always did, much like the best player in the opposition when you’ve heard rumors that he might be injured or sick-but there he is, warming up with the rest of them, ready to take the field.
+ - Very quickly, very suddenly, words fell through my mind. They landed on the floor of my thoughts, and in there, down there, I started to pick the words up. They were excerpts of truth gathered from inside me.
+ - If I ever leave this place- I’ll make sure I’m better HERE first.
+ - The paper landed on the table, but the news was stapled to his chest. A tattoo.
+ - How do you tell if something’s alive? You check for breathing.
+ - It’s a lot easier, she realized, to be on the verge of something than to actually be it. This would still take time.
+ - Just be patient, she told herself, and with the mounting pages, the strength of her writing fist grew.
+ - The happening that happened was that I met this girl...
+ - Why can’t the world hear? I ask myself. Within a few moments I ask it many times. Because it doesn’t care, I finally answer, and I know I’m right. It’s like I’ve been chosen. But chosen for what? I ask.
+ - My voice is like a rumour. I’m not sure if it came out or not, or if it is true.
+ - The words. Why did they have to exist? Without them, there wouldn’t be any of this.
+ - It was a year for the ages, like 79, like 1346, to name just a few. Forget the scythe, Goddamn it, I needed a broom or a mop. And I needed a vacation.
+ - I think to be writer you have to enjoy being alone. I was a loner as a teenager and was always drawn to characters in books and films who were at the fringes.
+ - It is early, early morning. It’s that time when it’s still dark but you know the day is coming. Blue is bleeding through black. Stars are dying.
+ - It was a style not of perfection, but warmth. Even mistakes had a good feeling about them.
+ - I had many boxing matches with my brother in the backyard when we were younger, and I guess while other people abhor boxing for its brutality, I also have to admire anyone who climbs into the ring to face up to what could be the ultimate defeat.
+ - People have defining moments, i suppose, especially when they’re children.
+ - I only know that all of those people would have sensed me that night, excluding the youngest of the children. I was the suggestion. I was the advice, my imagined feet walking into the kitchen and down the corridor.
+ - She rubbed her eyes, and after a long study of his face, she spoke “Is it really you?” Is it from your cheek, she thought, that I took the seed? The man nodded. His heart wobbled and he held tighter to the branches. It is.
+ - I wanted to drown inside a woman in the feeling and drooling of the love I could give her. I wanted her pulse to crush me with its intensity. That’s what I wanted. That’s what I wanted myself to be.
+ - You don’t shoot a dog when it is already dead.
+ - You might argue that I make the rounds no matter what year it is, but sometimes the human race likes to crank things up a little. They increase the production of bodies and their escaping souls.
+ - I love and hate this place because it is full of words.
+ - It’s funny, don’t you think, how time seems to do a lot of things? It flies, it tells, and worst of all, it runs out.
+ - When she faced the noise, she found the mayor’s wife in a brand-new bathrobe and slippers. On the breast pocket of the robe sat an embroidered swastika. Propaganda even reached the bathroom.
+ - I guess if editing doesn’t hurt, you’re probably not doing it properly. I find it quite difficult. The hardest part is believing that it’s actually working and getting rid of the doubt that always creeps in.
+ - When we move apart, she looks at me again, till a small tear lifts itself up in her eye. It trips out to find a wrinkle and follows it down.
+ - I’m not one of these ‘the characters write themselves; the story just fell out of me’ kind of writers. Wish it was like that.
+ - He was waving. “Saukerl,” she laughed, and as she held up her hand, she knew completely that he was simultaneously calling her a Saumensch. I think that’s as close to love as eleven-year-olds can get.
+ - If you ever write a book, I can only give you one piece of advice. Don’t let your parents get involved.
+ - When I was a teenager I decided I was going to be a writer and that nothing was going to stop me. It sounds almost villainous. But I knew that was what I wanted.
+ - And then there’s the sickness I feel from looking at legs I can’t touch, or at lips that don’t smile at me. Or hips that don’t reach for me. And hearts that don’t beat for me.
+ - It felt as though the whole globe was dressed in snow. Like it has pulled it on, the way you pull on a sweater. Next to the train line, footprints were sunken to their shins. Trees wore blankets of ice. As you may expect, someone has died.
+ - I read some books that were the right books for me. I read them and I didn’t even notice turning the pages anymore. I thought, “That’s what I want to do with my life.”
+ - Things always seem to glide away. They come to you, stay a moment, then leave again.
+ - At first, all is black and white. Black on white. That’s where I’m walking, through pages. These pages. Sometimes it gets so that I have one foot in the pages and the words, and the other in what they speak of.
+ - Yes, I’m often reminded of her, and in one of my array of pockets, I have kept her story to retell. It is one of the small legion I carry, each one extraordinary in its own right. Each one an attempt – an immense leap of an attempt – to prove to me that you, and your human existence, are worth it.
+ - You see, to me, for just a moment, despite all of the colors that touch and grapple with what I see in this world, I will often catch an eclipse when a human dies. I’ve seen millions of them. I’ve seen more eclipses than I care to remember.
+ - I walked home, seeing all my doubt from the other side. Have you ever seen that? Like when you go on holiday. On the way back, everything is the same but it looks a little different than it did on the way. It’s because you’re seeing it backwards.
+ - Grimly, she realized that clocks don’t make a sound that even remotely resembles ticking, tocking. It was more the sound of a hammer, upside down, hacking methodically at the earth. It was the sound of a grave.
+ - She didn’t dare to look up, but she could feel their frightened eyes hanging onto her as she hauled the words in and breathed them out. A voice played the notes inside her. This, it said, is your accordion.
+ - When I find research really rewarding is when one piece of information gives you an idea for a story. That’s when it’s great.
+ - A book floated down the Amper River. A boy jumped in, caught up to it, and held it in his right hand. He grinned. He stood waist-deep in the icy, Decemberish water. “How about a kiss, Saumensch?” he said.
+ - Competence was attractive.
+ - Outside is dark. The kitchen light is loud. It deafens me as I walk towards it.
+ - The day was gray, the color of Europe.
+ - The dilemma, of course, is that such people save their most important words for after, when the surrounding humans are unlucky enough to find them.
+ - Very suddenly. Yes, quite suddenly, I didn’t feel like I could handle my feeling of aloneness.
+ - You can do anything when it’s not real. When it is real, nothing breaks your fall. Nothing gets between you and the ground.
+ - Do we spend most of our days trying to remember or to forget? Do we spend most of our time running towards or away from our lives?
+ - Soon evening worked its way into the sky, and the city hunched itself down.
+ - The days and nights come apart. I feel them corroding at the seams.
+ - She closes the door completely, and I crouch there. I allow myself to fall forward and rest my head on the door frame. My breath bleeds. My heartbeat drowns my ears.
+ - You’re far from this. This story is just another few hundred pages of your mind.
+ - One of the best things about her was that she actually acknowledged my existence.
+ - I find writing extremely difficult. I usually have to drag myself to my desk, mainly because I doubt myself. And it’s getting harder because I want to improve with every book.
+ - I’ve been a writer since I was 16. I didn’t get published until I was 24. I know that sounds crazy.
+ - Can a wolfe be beautiful?
+ - There were not many people who could say that their education had been paid for with cigarettes.
+ - He’s most likely robbing the bank as a paycheck on the world for winning the ugliness prize at his local fete three years running.
+ - You’ll have days of complete lack of faith in your abilities. But you have to keep coming back. That’s when you know you’re a writer – when you take the failures and appear at the desk again, over and over again.
+ - I don’t really know that this story has a whole lot of things happen in it. It doesn’t really. It’s just a record of how things were in my life during this last winter. I guess things happened, but nothing out of the ordinary.
+ - The commitment had disappeared, and although he still watched the imagined glory of stealing, she could see now he was not believing. He was trying to believe it, and that’s never a good sign.
+ - A happening was looming. It was out there somewhere beyond the regular enclosed life that I had been living. It was out there, not waiting, but existing. Being. Perhaps it was only slightly wondering if I would come to it.
+ - Around us I can sniff out a savagery in the noisy southern air. It knifes it’s way into my nose, but I do not bleed blood. It’s fear I bleed, and it gushes out over my lip. I wipe it away, in a hurry.
+ - I think ‘The Lord Of The Rings’ is the mother of all cult books, because you can be in that cult and not even know you’re in it.
+ - That’s typically what writers do; we just sit around complaining most of the time. And the better things are going, the more they complain.
+ - I like to tell students, ‘I didn’t burst on to the literary scene.’ I’m never good at things at the beginning. I was terrible at the start. I need to work and work.
+ - Tears were frozen to the book theif’s face.
+ - The Germans in basements were pitiable, surely, but at least they had a chance. That basement was not a washroom. They were not sent there for a shower. For those people, life was still achievable.
+ - She even touches Jimmy’s face on the photos, and I see what it is to love someone like Milla loved that man. Her fingertips are made of love.
+ - He prefers not to ruin things with any more questions. What it is is what it is.
+ - Clearly, I see it. I was just about to leave when I found her kneeling there. A mountain range of rubble was written, designed, erected around her. She was clucthing at a book.
+ - Winning wasn’t natural for me. It had to be fought for, in the echoes and trodden footprints of my mind.
+ - Because you don’t learn anything unless you can find the patience to read. TV takes that away from you. It robs you from your mind.
+ - You can do anything when it’s not real.
+ - I’m not a writer who refuses to talk about a book until I’ve finished.
+ - Shadows of cloud lurked in the water, like holes the sun forgot about.
+ - We both laugh and run and the moment is so thick around me that i feel like dropping into it to let it carry me.
+ - I want to talk to him. I want to ask him about that girl and if he loved her and still misses her.
+
+278 quotes

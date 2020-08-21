@@ -1,0 +1,38 @@
+ - Books, Cats, Life is Good.
+ - My favorite journey is looking out the window.
+ - I’ve never had any intentions about anything. That’s why I am where I am today, which is neither here nor there, in a literal sense.
+ - God knows, there’s enough to worry about without worrying about worrying about things.
+ - When people are finding meaning in things – beware.
+ - Interviewer: What is your greatest regret? Gorey: That I don’t have one.
+ - What is, is, and what might have been could never have existed.
+ - The helpful thought for which you look Is written somewhere in a book.
+ - All the things you can talk about in anyone’s work are the things that are least important.
+ - Z is for Zillah who drank too much gin.
+ - There was a young lady named Mae Who smoked without stopping all day; As pack followed pack, Her lungs first turned black, And eventually rotted away.
+ - There are so many things we’ve been brought up to believe that it takes you an awfully long time to realize that they aren’t you.
+ - I have given up considering happiness as relevant.
+ - Only art means anything.
+ - If something doesn’t creep into a drawing that you’re not prepared for, you might as well not have drawn it.
+ - The Suicide, as she is falling, Illuminated by the moon, Regrets her act, and finds appalling The thought she will be dead so soon.
+ - I really think I write about everyday life. I don’t think I’m quite as odd as others say I am. Life is intrinsically, well, boring and dangerous at the same time. At any given moment the floor may open up. Of course, it almost never does; that’s what makes it so boring.
+ - It’s well we cannot hear the screams we make in other people’s dreams.
+ - I really think I write about everyday life. I don’t think I’m quite as odd as others say I am.
+ - I don’t know what it is I’m doing. But it’s not that. Despite all evidence to the contrary.
+ - I thought I’d be a librarian until I met some crazy ones.
+ - Vice is nice, but a little virtue won’t hurt you.
+ - Not everything in life can be interpreted metaphorically; that’s because things fall out on the way.
+ - More is happening out there than we are aware of. It is possibly due to some unknown direful circumstance.
+ - Some tiny creature, mad with wrath, is coming nearer on the path.
+ - The world may think it idiotic, Nor care at all we’re symbiotic, But I will say at once and twice: I find it nice. I find it nice.
+ - I should like a parsley sandwich. To the best of my knowledge they are not in season.
+ - I realize that homosexuality is a serious problem for anyone who is – but then, of course, heterosexuality is a serious problem for anyone who is, too. And being a man is a serious problem and being a woman is, too. Lots of things are problems.
+ - If you’re doing nonsense it has to be rather awful, because there’d be no point.
+ - To take my work seriously would be the height of folly.
+ - I tend to be rather inconsequential and trail off.
+ - Explaining something makes it go away, so to speak; what’s important is left after you have explained everything else.
+ - My mission in life is to make everybody as uneasy as possible. I think we should all be as uneasy as possible, because that’s what the world is like.
+ - I don’t think anything might have been. What is, is.
+ - Such excess of passion is quite out of fashion.
+ - I feel that I am doing the minimum amount of damage to other possibilities that may take place in a reader’s head.
+
+36 quotes

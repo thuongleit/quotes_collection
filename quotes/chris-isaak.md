@@ -1,0 +1,48 @@
+ - It’s strange what desire will make foolish people do.
+ - I believe the angels listen, God hears us pray. And I believe in a beautiful day.
+ - I wear a lot of second hand clothes unless I have a concert and then I wear beaded and sequined second hand clothes. No stylist dresses me although I do have a woman that assists me with the buttons.
+ - I’m the star of stage, screen, and television now, but I’m also available for children’s parties and bar mitzvahs.
+ - I’ve been gone on the road for the past three years; maybe I’ve been home for two or three weeks in a year. I literally live – it’s like one of those old movies where they show a train, and pages of a calendar are peeling away like leaves, and then there’s a picture of me with gray hair.
+ - When people ask me really stupid questions or get it really wrong, I feel embarrassed for them. I don’t really feel angry at them.
+ - I’m a hopeful romantic. In a couple of drinks, I’ll be a lucky romantic. That’s why they call me Mr. Lucky.
+ - I come from a small town and I come from a background where we didn’t have money to travel. I thought I’d have to join the military to get to Europe. So I’m thrilled to travel.
+ - I think as far as self-promotion goes, I probably have a lot to learn.
+ - I still don’t know if I’m good enough or if it’s a calling or a vocation or something, but the talent part is out. My desire to do it is undoubted. I just love doing this.
+ - I put music on and I drive around town.
+ - I think I had kind of an advantage. When I was growing up, my dad had just got out of jail and he had a great record collection. He had – it was all – these were the songs. So I heard a lot of these songs, like, my whole life, so for me it was easy. I already knew what I was going to sing.
+ - I picked songs that I’ve been singing my whole life that stuck with me. I tried to pick stuff that was a variety. And I think the same way I always imagine that people are going to play the record at their house and I imagine them doing stuff with music on, like the way I am.
+ - My mom and dad played this music all the time when I was growing up, so to me songs by Jerry Lee and Fats Domino are the classics, they’re the best songs ever.
+ - If Frank Sinatra is singing, maybe everything will go good.
+ - Singing is something that I’m always happy to do it and going in the studio I never felt any pressure. I just feel like I get to sing, you know. It’s fun.
+ - I didn’t grow up in the typical happy American home, but music was always a safe and wonderful place for me to go.
+ - I’m a natural ham. It doesn’t bother me to perform.
+ - I got by as a musician since day one. I don’t live beyond my means. I have real cheap tastes.
+ - I keep things pretty simple.
+ - I’m not the kind of guy to talk about angels: I’m a very pragmatic kind of guy.
+ - Glen Campbell told me, ‘Stay out of the way of a good song.’ I think it’s true. If a song’s good, don’t overdo it.
+ - I hate modern car radios. In my car, I don’t even have a push-button radio. It’s just got a dial and two knobs. Just AM. One knob makes it louder, and one knob changes the station. When you’re driving, that’s all I want.
+ - One thing, when you’re an actor, you finish something and then you have to worry about what the next gig is. When you’re a musician, you can always write your own stuff, and I’m working on new stuff for a new album right now.
+ - I don’t think I’ve had a more miserable life than a lot of people. I think I’ve had a pretty lucky life.
+ - I put on music and I’m washing my car. And I put on music if you have somebody and you’re trying to make love. You put that on in the background and you go, maybe this will be romantic.
+ - I grew up, I was going I want to be Jerry Lee Lewis. Only I can’t play piano and sing that good.
+ - I blow up fireworks all the time, and I love making milkshakes and banana splits.
+ - I write my own songs, and I only see their flaws.
+ - The tough thing about radio is I’ve met a lot of people in it who like my music. But it’s hard for them to figure out how to play what they like when there’s somebody up above them yelling ’you have to play this.
+ - The ’50s was a pretty wonderful time for people, it was hopeful.
+ - I’m in showbusiness. I’m an entertainer.
+ - Any time you talk about your own stuff you sound self-aggrandising.
+ - The one thing I’ve always had going for me was people’s low expectations. Nobody ever expects a whole hell of a lot from me.
+ - I talk to people who are musicians, and they go, Oh this is hell. And I go, Are you kidding me? You never put tar paper on a roof, did ya?
+ - I think everybody in my generation, we wanted to be Elvis.
+ - I never set out to write a certain kind of song, I just play my guitar and see if I catch something.
+ - If I would get an album out every eight months and if I would write songs that were more up-tempo and try to focus more on making singles, then I could probably get more attention. But I don’t think the albums would be very fun to listen to, and it would be a drag for me.
+ - I don’t know what people think in making record is like. But basically, I got a bunch of spaghetti and spaghetti sauce, and the whole band was staying at my house and we had a ball.
+ - I think I’ve had the slowest, most methodical career in the business.
+ - The things that got me through grade school are helping me out later in life. It’s like, I show up on time. If you buy a ticket to one of my shows, I’ll show up. I’ll be there. And if it says 10:00, I’ll be on stage at 10:00.
+ - I think I’m in a really nice position, where I’m sure I could do another show if I wanted to do one, but right now the main thing in my mind is writing songs.
+ - I don’t spend as much time on my hair as people think. I get out of the shower, whack some grease on there and I’m done.
+ - If you listen to old Jerry Lee Lewis records, he’ll always – about nine times out of 10 have the lyrics different than the original record is.
+ - My only expenses are probably guitar strings and records.
+ - My advice is: if you’ve got to be miserable to write great music, then drive a truck.
+
+46 quotes

@@ -1,0 +1,42 @@
+ - Gratitude turns what we have into enough. ~~Melody Beattie
+ - Gratitude unlocks the fullness of life. It turns what we have into enough, and more. It turns denial into acceptance, chaos to order, confusion to clarity. It can turn a meal into a feast, a house into a home, a stranger into a friend. ~~Melody Beattie
+ - Gratitude is the wine for the soul. Go on. Get drunk. ~~Rumi
+ - It is only with gratitude that life becomes rich! ~~Dietrich Bonhoeffer
+ - Gratitude is the great multiplier, so say thank you for your health every single day. ~~Rhonda Byrne
+ - It is better to light one small candle of gratitude than to curse the darkness. ~~Confucius
+ - Gratitude is riches. Complaint is poverty. ~~Doris Day
+ - Each day provides its own gifts. ~~Marcus Aurelius
+ - Any fool can criticize, condemn and complain – and most fools do. But it takes character and self control to be understanding and forgiving. ~~Dale Carnegie
+ - Wear gratitude like a cloak and it will feed every corner of your life. ~~Rumi
+ - To be grateful is to recognize the love of God in everything. ~~Thomas Merton
+ - When you go deeply into the present, gratitude arises spontaneously, even if it’s just gratitude for breathing, gratitude for the aliveness that you feel in your body. Gratitude is there when you acknowledge the aliveness of the present moment. ~~Eckhart Tolle
+ - Gratitude in advance is the most powerful creative force in the universe. ~~Neale Donald Walsch
+ - Don’t forget, a person’s greatest emotional need is to feel appreciated. ~~H. Jackson Brown Jr.
+ - The greatest thing is to give thanks for everything. He who has learned this knows what it means to live. He has penetrated the whole mystery of life: giving thanks for everything. ~~Albert Schweitzer
+ - If you practice gratitude a little, your life will change a little. If you practice gratitude a lot every day, your life will change dramatically and in ways that you can hardly imagine. ~~Rhonda Byrne
+ - I am thankful for the adversities, which have crossed my pathway, for they taught me tolerance, sympathy, self-control, perseverance and some other virtues I might never have known. ~~Napoleon Hill
+ - Never take anything for granted. ~~Benjamin Disraeli
+ - Gratitude will bring more into our lives immediately. ~~Rhonda Byrne
+ - Dead people receive more flowers than the living ones because the regret is stronger than gratitude. ~~Anne Frank
+ - A grateful mind is a great mind which eventually attracts to itself great things. ~~Plato
+ - Gratitude drives happiness. Happiness boosts Productivity. Productivity reveals mastery. And mastery inspires the world. ~~Robin S. Sharma
+ - Look Back in forgiveness, forward in hope, down in compassion and up in gratitude. ~~Zig Ziglar
+ - Learn everything you can, anytime you can, from anyone you can – there will always come a time when you will be grateful you did. ~~Sarah Caldwell
+ - Develop an attitude of gratitude, and give thanks for everything that happens to you, knowing that every step forward is a step toward achieving something bigger and better than your current situation. ~~Brian Tracy
+ - When I started counting my blessings, my whole life turned around. ~~Willie Nelson
+ - True forgiveness is when you can say, "Thank you for that experience." ~~Oprah Winfrey
+ - Keeping your body healthy is an expression of gratitude to the whole cosmos – the trees, the clouds, everything. ~~Nhat Hanh
+ - Gratitude produced the most purely joyful moments that have been known to man. ~~Gilbert K. Chesterton
+ - Bad things do happen; how I respond to them defines my character and the quality of my life. I can choose to sit in perpetual sadness, immobilized by the gravity of my loss, or I can choose to rise from the pain and treasure the most precious gift I have – life itself. ~~Walter Anderson
+ - I don’t have to chase extraordinary moments to find happiness – it’s right in front of me if I’m paying attention and practicing gratitude. ~~Brené Brown
+ - Actual Gratitude is the Symptom of Humility. ~~Radhanath Swami
+ - Old friends pass away, new friends appear. It is just like the days. An old day passes, a new day arrives. The important thing is to make it meaningful: a meaningful friend – or a meaningful day. ~~Dalai Lama XIV
+ - Whoever has gratitude will be given more, and he or she will have an abundance. Whoever does not have gratitude, even what he or she has will be taken from him or her. ~~Rhonda Byrne
+ - If we show Allah just a little bit of gratitude, He tells us, ‘I will increase you, and increase you, and increase you, I swear to it. If you could only show Me the least bit of gratitude.’ ~~Nouman Ali Khan
+ - One looks back with appreciation to the brilliant teachers, but with gratitude to those who touched our human feelings. The curriculum is so much necessary raw material, but warmth is the vital element for the growing plant and for the soul of the child. ~~C.G. Jung
+ - Thank you for the tragedy. I need it for my art. ~~Kurt Cobain
+ - People don’t notice whether it’s winter or summer when they’re happy. ~~Anton Chekhov
+ - Positive anything is better than negative nothing. ~~Elbert Hubbard
+ - Perhaps we could enjoy ordinary, everyday life more if we learned to celebrate the ordinary. ~~Joyce Meyer
+
+40 quotes

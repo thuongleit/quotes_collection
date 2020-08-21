@@ -1,0 +1,23 @@
+ - Don’t aim for success if you want it; just do what you love and believe in, and it will come naturally.
+ - Being upbeat is the key to life.
+ - Diplomacy, n. is the art of letting somebody else have your way.
+ - Love is staying up all night with a sick child – or a healthy adult.
+ - Having one child makes you a parent; having two you are a referee.
+ - When a man is tired of New York he is tired of work. And thought. And cheesecake.
+ - A broad definition of crime in England is that it is any lower-class activity that is displeasing to the upper class.
+ - Television is an invention that permits you to be entertained in your living room by people you wouldn’t have in your home.
+ - Concentration of effort and the habit of working with a definite chief aim are two of the essential factors in success, which are always found together. One leads to the other.
+ - You can be in London at 10 o’clock and in New York at 10 o’clock. I have never found another way of being in two places at once.
+ - For those of you haven’t read the book, it’s being published tomorrow.
+ - British business is disappointed that the MPC felt unable to act more boldly to counter the worsening economic circumstances and the sharp slowdown in the pace of economic activity,.
+ - Ideas matter in New York. I am certain that more conversations in New York are about ideas than anywhere else. Not just vague theories, but ideas that New Yorkers have the will, and the clout, to do something about.
+ - He’s turned his life around. He used to be depressed and miserable.
+ - Love is when each person is more concerned for the other than for one’s self...
+ - New York means many different things to me. It certainly means cheesecake, more species of cheesecake than I ever knew existed: rum, orange, hazelnut, chocolate marble, Italian, Boston, and of course, New York.
+ - What we are going to end up with here is two nations. That will create real resentment in the workforce.
+ - This is what has to be remembered about the law: Beneath that cold, harsh, impersonal exterior there beats a cold, harsh, impersonal heart.
+ - Vote Labor and you build castles in the air. Vote Conservative and you can live in them.
+ - Now he’s miserable and depressed.
+ - The creed of the Inland Revenue is simple: “If we can bring one little smile to one little face today, then somebody’s slipped up somewhere.”
+
+21 quotes

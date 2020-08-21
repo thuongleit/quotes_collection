@@ -1,0 +1,73 @@
+ - Take those chances and you can achieve greatness, whereas if you go conservative, you’ll never know. I truly believe what doesn’t kill you makes you stronger. Even if you fail, learning and moving on is sometimes the best thing.
+ - Give yourself permission to shoot for something that seems totally beyond your grasp. You may be surprised at your capabilities.
+ - I would also tell kids to make sure that they love whatever they end up doing in life. To really be good at something and excel you have to love it and have to be dedicated to it. Not every day is great and not every day is easy, but you do it because you love it.
+ - I take none of that to heart. I don’t feel like there’s anything that I need to do for anybody else. I want to win bad enough for myself anyway, that nothing anybody can say can make me want to win any more.
+ - I’ve never seen myself as a ‘girl driver.’ I’m just a driver.
+ - We don’t do things we aren’t good at by nature. I wouldn’t play basketball because I’m only 5? 1". Find what you enjoy – whether it’s racing, flying a helicopter, being a doctor, or stitching clothes together. Once you’ve done that, you have the passion you need.
+ - I want to win at everything. I usually don’t like things that I’m not good at, but it doesn’t mean I don’t want to win at them.
+ - I’m a good blend of both my mom and dad.
+ - My goal is people associate November with COPD awareness month as much as they notice October with breast cancer and pink. That’d be a great thing if it happened. The fact that COPD kills more people than breast cancer and diabetes put together should raise some red flags.
+ - When you are not missing something, longing for something, you don’t really think about it that much. It’s like that girlfriend you don’t want to have anymore. You don’t think about her anymore. Or ex-husband. You just don’t.
+ - I’m not tall enough to be a model, but I wish I was 6-foot, because I love it. It’s kind of artsy, and I’m artsy. And I love clothes.
+ - Sometimes it takes looking at the past to really be able to move forward and learn from it.
+ - I didn’t want to fall back. But I realized it was more important to make it to the end under my own power than to run flat out in the lead or in second and then run out of fuel with a lap to go.
+ - I just go where my heart tells me, where my gut tells me to go, where I’m enjoying my life the most, where I feel like I can have the most success. I’ve truly enjoyed my experience in NASCAR, to the point that I want to do it full time.
+ - Every time I get into a Nationwide car after being in a Cup car, I feel so much more comfortable than I did previously.
+ - My sister and I would race on the weekends. It was a way for my sister, my mom and me to spend time with my dad. He worked all week and worked a lot so it was a great way for us to spend time as a family and have fun.
+ - On Memorial Day, I was out floating on Lake Norman and came across Denny Hamlin. We struck up a conversation, and one of the first things we were talking about was how much it helped him when he started racing the Cup car and how much it helped his Nationwide program.
+ - I’m a big believer in everybody being themselves. If not doing a swimsuit calendar is yourself, that’s great. But if doing a swimsuit calendar is yourself, then you should be able to do it. What I do outside the car adds to who I am and expresses a different side of me.
+ - Maybe back in the day you didn’t need to be the greatest looking to be on TV and you didn’t need to speak the best, but in this day and age, I think you need to be the package. You need to look the part for your sponsors, you need to be able to speak the part for the media and to big CEOs.
+ - I never do anything out of my comfort zone.
+ - I’ve never asked for special treatment along the way. And I’m never going to hide the fact that I’m a girl, ever. That’s obvious, isn’t it?
+ - People have opinions about everything and especially when you get into that world of animal rights or tree rights or whatever rights, they all have an opinion.
+ - In the Lamborghini I have to avoid certain roads because of pot holes, and there’s nowhere to put my drink, no cup holder. And I’m not going to lie, it looks pretentious. I used to think it was cool to, like, drive it to dinner. Now? Like I really need to be looked at any more.
+ - When pressure’s on and when the spotlight’s on, I feel like it ultimately ends up becoming some of my better moments.
+ - The first Indy was definitely the one I remember. It’s my favorite race I’ve ever done. It’s the most memorable race I’ve ever done, for sure. Even more than when I won. I just remember everything about it.
+ - Winning is the obvious goal, but it’s not easy. There are so many good drivers and every week is different. I want to win badly, but I understand that it’s going to take hard work. In the meantime I’ll continue to set obtainable goals and do my best both on and off the racetrack.
+ - I would tell kids not be like me, but to try and be better than me. Because I always wanted to be better than everyone I was around. That’s what drove me. I wanted to be better than my role models. I’m super competitive.
+ - My boyfriend loves golf and he is good at it but I am not that great at it. It drives me nuts, but I’m super competitive and I always want to win.
+ - Every single aspect of myself, let me put it this way, it’s all about trying to incorporate. It’s about trying to weave the web and keep everyone happy. And of course, it’s about giving value to those people so they continue to sponsor me.
+ - I leave it up to the government to make good decisions for Americans.
+ - I’ve read stories that are set in a celebrity’s house, and you know where it is and what it looks like and what’s inside it, and that’s not something I want anyone to know.
+ - Indy, I have lots of great memories from there, and probably the part of me that doesn’t feel quite as longing for it is that there is still a chance that I could do it again. It’s not gone.
+ - No one wants to hear my perspective on politics, but I think honestly as you get older, you get more interested in it.
+ - Racing is been my profession since I was 19 years old.
+ - I think there’s a lot of deep-rooted history in England with racing. Lots of Formula One teams are based there. Formula One is obviously a huge sport over in England and Europe.
+ - Together, we can put the brakes on breast cancer...
+ - Being nervous isn’t always the worst thing for me.
+ - To be honest, once you’ve driven around for about five, 10 laps, you don’t notice a difference.
+ - I spent my whole childhood watching open-wheel racing. I spent years going to England and racing open wheel, coming back and racing open wheel. It’s been my world for 20 years and beyond that. For almost my whole life, I’ve been watching it. I watch it and I think I know how to do it.
+ - The commitments, schedule and sponsor appearances don’t change. It gets more busy, because you get more popular, and the more popular you are, it actually gets more busy. They’re like, ‘Yeah, let’s use her, she’s hot right now. Let’s do a shoot!’
+ - If you want to be the best in your industry you need to have a relentless dedication to your job.
+ - The mistake I really learned from was in 2005, leading the Indianapolis 500. I had a decision whether or not to save enough fuel to finish the race – which meant slowing down – or going all-out for the win. I went conservative and saved enough fuel to go to the end but finished fourth.
+ - To be honest, when I’m home, every day is a Friday for me. It doesn’t really matter what day it is for me. A lot of my friends actually have time off during the week, and so it doesn’t prohibit me from enjoying myself when I am home on a Monday or a Tuesday.
+ - It looks like I have a thing for dangerous sports, don’t I?
+ - You know, it’s always good to have seen a track before, just to kind of know where the little bumps are here and there, and just the general feel for the size.
+ - I know that England changed me. I became a little bit colder, a little different.
+ - No matter how good you are, how brave you are or anything, it comes down to that car so many times. Not every time, but so many times.
+ - If there’s one great thing I think that’s happened over the years, it’s that women are being accepted into a man’s world in all different areas, whether it’s flying an airplane or driving a race car.
+ - I’ve never been bashful to say that I’m not really interested in Formula One. When I lived in England, it’s all I wanted to do and I thought that anything else would somehow be a compromise to my dreams. But then when I came back to the States, I realised how much I loved being back in the States.
+ - I’m definitely different and I know that.
+ - My first Indy 500 was one of my high points. I ended up qualifying fourth and I finished fourth. I had a win in Japan a few years later, and then qualifying for Daytona was great as well.
+ - I think you can be happy and still be competitive. A good lesson for everybody is to think a bit before you speak and represent who you really are instead of the brash emotional you.
+ - I’d love to do well on a big weekend with people watching and cheering, of course. But it’s not fair to create an expectation level before I know what is realistic. I want to finish as well as possible. Is that top 20? Top 15? Top 25? You just have to play it by ear.
+ - So many people have that story as to how they could have maybe won the Indy 500, which is for me the ultimate goal. I would imagine for a lot of people it’s the ultimate goal. It’s definitely high up on the list.
+ - Fame can be annoying, but there are perks too.
+ - In this society these days, women are widely accepted in all kinds of cross-gender areas. So yeah, it’s time!
+ - I know what it takes to be fast and I feel like every year I learn valuable lessons about how to be better the next time.
+ - It would be hypocritical of me to use being female in some ways, and diss being female in other ways. It’s part of the programme.
+ - You have to keep thinking, I can be better.
+ - I never thought I’d be a role model this early. It caught me off-guard, but it says a lot about how I was brought up, what my values have been, and how my parents raised me. It’s very flattering that being myself is enough to be a role model.
+ - I feel like, sometimes, people, because of the amount of media, because of the amount of attention, people seem to think I have to do things. Like, I have to win right now! But I don’t feel like that.
+ - At the after-party of the Indy 500, I’m usually wearing jeans and a tank top.
+ - One of the areas I have a little less confidence in is giving any kind of a speech.
+ - I’ve been fortunate Daytona is a place I’ve run better than anywhere else, and that’s a big race. Maybe it has to do with attention and pressure and the drive to do well when a lot of people are watching.
+ - The last time I was pulled over was in 2005. I was going 55 in a 35 mile per hour zone – which I don’t understand because you can barely even idle at 35 miles per hour. Anyway, I was ordered to go to traffic school. It was an 8-hour class and really painful.
+ - You know, sometimes the little victories that I have throughout the season are not necessarily obvious on the track. Maybe they’re another aspect of what I’m doing, winning little victories here and there to get everything in line to be able to perform from top to bottom on race day.
+ - I think the more yellows, the more lights, the better. It alerts everybody. I mean, I guess I’m always a little bit afraid when the yellow comes out, we all get out of it, that someone won’t notice it, pile into the back of you.
+ - I think you have to feel comfortable with your car. You have to go into turn one, every lap, with confidence. You have to be sure of yourself and your equipment.
+ - Since I started in Nascar, popularity has definitely gone up. I’ve become more attractive and helpful to companies that are looking for spokespersons. So from that perspective, things are going really well.
+ - I think that Indy is special to me. The greater the distance between the last time I drove an Indy car and the next time, I wouldn’t like that to be too big.
+ - In motorsports we work in the grey areas a lot. You’re trying to find where the holes are in the rule book.
+
+71 quotes

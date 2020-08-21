@@ -1,0 +1,94 @@
+ - A hungry dog hunts best.
+ - There are two things you can do with your head down – play golf and pray.
+ - You don’t know what pressure is until you play for five bucks with only two bucks in your pocket.
+ - I’m going to win so much money this year, my caddie will make the top twenty money-winners list.
+ - The older I get, the better I used to be.
+ - It’s the most fun I’ve had with my clothes on.
+ - Nobody but you and your caddie care what you do out there, and if your caddie is betting against you, he doesn’t care, either.
+ - Only bad golfers are lucky. They’re the ones bouncing balls off trees, curbs, turtles and cars. Good golfers have bad luck. When you hit the ball straight, a funny bounce is bound to be unlucky.
+ - My swing is so bad I look like a caveman killing his lunch.
+ - Pressure is trying to make a putt for a $10 bet with only $5 in your pocket.
+ - My family was so poor the lady next door gave birth to me.
+ - Just remember, somewhere there’s some guy who’s tired of putting up with her crap.
+ - Golf is a game invented by the same people who think music comes out of a bagpipe.
+ - I love Merion and I don’t even know her last name.
+ - Chipping and putting for par is like a dog chasing cars, he won’t be doing it for very long.
+ - They say I’m famous for my chip shots. Sure, when I hit ’em right, they land just so, like a butterfly with sore feet.
+ - If you are caught on a golf course during a storm and are afraid of lightning, hold up a 1-iron. Not even God can hit a 1-iron.
+ - I think a lot of Jim Thorpe, the Olympian, and his accomplishments.
+ - My wife doesn’t care what I do when I’m away, as long as I don’t have a good time.
+ - You can talk to a fade but a hook won’t listen.
+ - Golf isn’t just my business, it’s my hobby.
+ - I may buy the Alamo and give it back to Mexico.
+ - Columbus went around the world in 1492. That isn’t a lot of strokes when you consider the course.
+ - How can they beat me? I’ve been struck by lightning, had two back operations, and been divorced twice.
+ - I’m not saying my golf game went bad, but if I grew tomatoes, they’d come up sliced.
+ - I’m actually a very quiet person off the golf course. I talk 150 miles per hour when I’m at the course, but when in private I very seldom ever open my mouth.
+ - If I could do anything over, I’d have spent more time with my first set of children. I would have taken more quality time with them, for sure.
+ - If your concentration is getting bad, take up bass fishing. It will really improve your ability to focus. If you aren’t ready when that fish hits, you can’t set the hook.
+ - Who can say I have a bad swing? The only thing that matters in golf is the score you put on the board. You don’t have to look pretty out there, you have to win. Look at my record and tell me who has a better swing than mine.
+ - I’ve traveled the world and been about everywhere you can imagine. There’s not anything I’m scared of except my wife.
+ - All my life I had a rapport with black caddies.
+ - I played the tour in 1967 and told jokes and nobody laughed. Then I won the Open the next year, told the same jokes, and everybody laughed like hell.
+ - Putts get real difficult the day they hand out the money.
+ - If Jack Nicklaus had to play my tee shots, he couldn’t break 80. He’d be a pharmacist with a string of drugstores in Ohio.
+ - Show me a golfer who doesn’t have a mean streak, and I’ll show you a weak competitor.
+ - We all choke, and the man who says he doesn’t choke is lying like hell.
+ - 99% of the putts that are short don’t go in the hole.
+ - I’m not scared of very much. I’ve been hit by lightning and been in the Marine Corps for four years.
+ - Two things that are not long for this world: dogs that chase cars and professional golfers who putt for pars.
+ - There is no such thing as natural touch. Touch is something you create by hitting millions of golf balls.
+ - I still swing the way I used to, but when I look up the ball is going in a different direction.
+ - If it wasn’t for golf, I don’t know what I’d be doing. If my IQ had been two points lower, I’d have been a plant somewhere.
+ - My divorce came to me as a complete surprise. That’s what happens when you haven’t been home in eighteen years.
+ - I’m really going to do my homework. I’m going to be down there on the practice tee finding out if a guy’s wife beat him up the night before, important stuff like that. Stuff that people want to know.
+ - Michael Jordan was a tremendous basketball player.
+ - I’m a golfaholic. And all the counseling in the world wouldn’t help me.
+ - I keep lot of my opinions to myself.
+ - I still sweat. My guts are still grinding out there. Sometimes I have enough cotton in my mouth to knit a sweater.
+ - Grizzly Adams did have a beard.
+ - I thought I’d blown it at the 17th when I drove into a trap. God is a Mexican.
+ - One of the nice things about the Senior Tour is that we can take a cart and cooler. If your game is not going well, you can always have a picnic.
+ - The most interesting guy I’ve ever played with was King Hassan of Morocco. I went over there on a trip in the early 1970s, and the King and I played five holes. I’ve never been that nervous in my life.
+ - I’m not a real smart guy. But I’ve got enough brains to realize that when I’m 60 years old and play a sport, that it’s downhill.
+ - I’m in the woods so much I can tell you which plants are edible.
+ - Actually, my plan was to be 20-under par after two days but it didn’t work.
+ - No one who ever had lessons would have a swing like mine.
+ - I use an Arnold Palmer putter that was probably built back in 1954.
+ - Pressure is playing for ten dollars when you don’t have a dime in your pocket.
+ - If you’ve ever driven across Texas, you know how different one area of the state can be from another. Take El Paso. It looks as much like Dallas as I look like Jack Nicklaus.
+ - I believe in reincarnation. In my last life I was a peasant. Next time around, I’d like to be an eagle. Who hasn’t dreamed they could fly? They’re a protected species, too.
+ - When you really deep down look at it, we go to bed every night, get up every morning, stay here for 70 or 80 years, and then we die.
+ - Every golfer should come to the first tee with fourteen clubs, a dozen balls, a handful of tees, and at least one great golf story.
+ - I never think of yesterday. Can’t do anything about it.
+ - Caddies are a breed of their own. If you shoot 66, they say, “Man, we shot 66!” But go out and shoot 77, and they say “Hell, he shot 77!”
+ - I love watching Anthony Kim play, but I’m not a fan of the way he grips down a good two inches on his full-swing shots. Choking down lightens the club’s swingweight and effectively makes the shaft stiffer.
+ - You’re Mexican until you make money and then you’re Spanish.
+ - His nerve, his memory, and I can’t remember the third thing.
+ - If God wanted you to putt cross-handed, he would have made your left arm longer.
+ - I didn’t want to change the name on the towels.
+ - I adore the game of golf. I won’t ever retire.
+ - Winning isn’t everything. It’s the money you make doing it that’s everything.
+ - Somewhere along the line I’ll be recognized as one of the top players in the Nicklaus era. That’s all I want to be remembered for.
+ - I got no pride on the hole. It’s a par-5 and I play it that way. A four is a birdie.
+ - Yes, I think I have the best swing on the Tour. Why have scores comedown in the last ten years? Partly because they are imitating me.
+ - Living in Dallas, I root for the Mavericks and the Stars and the Cowboys, but I’ve always pulled for the Chicago Cubs. I enjoy watching them play.
+ - You can make a lot of money in this game. Just ask my ex-wives. Both of them are so rich that neither of their husbands work.
+ - Arnie has more people watching him park the car than we do out on the course.
+ - I stay away from the telephone if at all possible.
+ - I met Jesse Owens once. He was a remarkable individual, and I have tremendous respect for what he did in the Olympics under the circumstances.
+ - My doctor told me my jogging could add years to my life.
+ - A rough should have high grass. When you go bowling they don’t give you anything for landing in the gutter, do they?
+ - I never played much golf as a kid. I caddied quite a bit but never got serious into golf until about age 15.
+ - I’m a golfaholic, no question about that. Counseling wouldn’t help me. They’d have to put me in prison, and then I’d talk the warden into building a hole or two and teach him how to play.
+ - Chi Chi Rodriguez had as good a pair of hands as anybody I ever saw, and more shots than you can imagine. But Chi Chi had a habit of turning simple shots into difficult ones.
+ - I have an orthopedic pillow that’s made out of a sponge material. I have a plate in my throat, and I have to be careful or I could end up with a bad neck in the morning. That pillow is a must everywhere I go.
+ - I’m hitting the driver so good I gotta dial the operator for long distance after I hit it.
+ - When you’re poor, you know nothing about the future, you know nothing about the world, nothing that goes on outside 300 yards around you.
+ - Pressure is when you’ve got thirty-five bucks riding on a four-foot putt and you’ve only got five dollars left.
+ - I’ve seen enough crazy shots to know they happen in the best of families.
+ - I thought Manual Labor was a Mexican golf pro.
+ - I’m not out there just to be dancing around. I expect to win every time I tee up.
+ - When it comes to the game of life, I figure I’ve played the whole course.
+
+92 quotes

@@ -1,0 +1,31 @@
+ - Don’t hunt what you can’t kill.
+ - I don’t back down for anybody.
+ - I’d like to thank Mom and Dad, just for the genetics.
+ - There’s a first time for everything when I’m involved.
+ - I am the showstopper. The main event. The Icon that can still go.
+ - I am simply the very best sports entertainer.
+ - The Heart Break Kid does not rest in peace. He can stay up ALL NIIIGHT!
+ - Lord knows, if it’s on the internet, it’s got to be true!
+ - See! I just kicked Stan!!!
+ - Actually, he said Mr. Shawn ’cause he knows better.
+ - It was violent, it was brutal, and it got down right uglyyy!
+ - I was ‘attitude’ in this place before it was a catchphrase!
+ - The showstopper! The icon! The main event!
+ - And when you’re actually finally done, and you still got 5 pieces left over, all they wanna do is play with the box!
+ - You were an ass long before I made one outta ya!
+ - If you’re gonna use me as a stepping stone, you’d better step hard!
+ - Now I’ve heard the phrase ‘there’s no such thing as an ugly baby’ but that is an ugly baby!
+ - Available on all video game systems: Playstation 475, Ybox, and Wii 3 4000.
+ - HB-Shizzle’s gonna be honest with ya, okay. To hit these bad boys, you have to have pinpoint accuracy.
+ - The Heartbreak Kid, Shawn Michaels, is gonna be the man of ’96.
+ - I’m a real American baby!
+ - I don’t think The Undertaker and Triple H need Shawn Michaels to deliver a spectacular match or make this incredibly interesting. Those two can do that on their own. Right now, as far as I’m concerned, I’m going to be there watching it like everyone else.
+ - Shawn Michaels has left the building.
+ - Why can’t I beat up John Cena?
+ - I wouldn’t want to be anyone to usurp the authority of the WWE.
+ - Oh my God! It’s a blackout!
+ - I was always hurting to some extent, but never really cared about it. Now, I do care, because I have a reason to be healthy. I want to be able to chase my son around the yard; I want to be able to chase my wife around the house.
+ - So this is what SmackDown looks like.
+ - We know you’re stashing him, Cena!
+
+29 quotes

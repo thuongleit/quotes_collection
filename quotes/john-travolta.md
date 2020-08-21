@@ -1,0 +1,103 @@
+ - Misdirection. What the eyes see and the ears hear, the mind believes.
+ - Everything is on its way to somewhere.
+ - Dancing’s part of my soul. I enjoy it, it makes people happy, and it makes me happy.
+ - As you get older you have to force yourself to have new dreams.
+ - You gotta learn to laugh, it’s the way to true love.
+ - You feel alive to the degree that you feel you can help others.
+ - Money and power come as a byproduct of things well done.
+ - I think my friend Tom Hanks knows me. He understands me very well. He’s always had a sort of parental feeling toward me. He knows I’m a big mush ball, which is just part of my personality.
+ - I’m too busy looking for the next role to do. I think about how to continue, to survive in the same vein. I like my career and my life as it is.
+ - Something can happen in your life, and you might want and need something different from your spouse. Most people forget that you have to create relationships. The allure of the first years settles down, and at that moment, you better start creating it; otherwise, you’re going to lose out.
+ - If you are going into show business for money and power, forget it! It won’t happen. You don’t go for that first.
+ - I’ve always thought that as long as I did the right things and had the right intentions, everything would fall into place.
+ - I try to balance independent films with commercial films, and I’ve done a pretty good job of it over the years.
+ - I’m definitely working class, and I still believe in those values. I know that losing everything would not be an unfamiliar feeling. Meaning, if you don’t have it anymore, you didn’t have it to begin with.
+ - It’s easier to be responsible for the decisions that you’ve made yourself than for the ones that other people have made for you.
+ - Autism and seizures are the least known areas of illnesses.
+ - If I’m androgynous, I’d say I lean toward macho-androgynous.
+ - From the time I was a kid, I had a wanderlust. I always wanted to travel, in any form – plane, train, boat, car, motorcycle. So I think that if I ever do have a mid-life crisis, I have all the toys to refer to quickly.
+ - It’s difficult for me to diet, so I don’t. So, I make up for it in exercise. What I am willing to eat, I have to be willing to work off. It’s that simple.
+ - Even if the script’s well written there’s something about the life of an improvisation that resonates better than a written word, sometimes.
+ - Having kids is something you can’t always do. Kids are like lightning. You grab that lightning when you can get it.
+ - If you’re going to play a woman, you might as well play a woman that you liked, and someone sexy.
+ - It’s hard to make a cultural phenomenon every time.
+ - When I was a very little boy, I lived underneath the air pattern of LaGuardia airport in New York and I watched the planes fly to their destinations. I was in love with the design of these airplanes.
+ - I am very healthy. Career wise, even old men get to be in movies. So as long as I am healthy, I will continue to make movies.
+ - My road trips have been to Vegas, but you know, what happens in Vegas stays in Vegas.
+ - Good writing is good writing, but that doesn’t mean you can’t orchestrate it or tweak it.
+ - Every day my mother had tea. My dad has his ritual cigar. They had their evening cocktail. Those rituals were done nicely, with flair and feeling.
+ - After nine or 10 years of being interviewed, you start wanting to team up with the reporter and get the job done.
+ - You have to remember everything you’ve created. But then comes a moment when it’s all automatic pilot, where it all comes together and you don’t have to think about it any more.
+ - You have a freedom in playing the villain. You can be a lot more out there, really. And there is a joy in that. There is a joy in kind of making a zone of psychoses.
+ - I have a dance background. I have an athletic background.
+ - There are unwanted emotions and pain that goes along with any birth.
+ - I have to believe there’s some other life force out there. I don’t know in what form. But we can’t have all these galaxies and universes without something going on.
+ - I like to fly at least once a day.
+ - I’ve always had an innate ability to dance, but I’m not as spiffy as those cinema legends like Gene Kelly and Fred Astaire.
+ - In my own life if I knew I was going to pass away I’d love to sit down and resolve every issue so I could go peacefully.
+ - I don’t recall the so-called devilish things I do. But there are considerable amounts.
+ - There’s no rule that everyone has to change.
+ - I think aerobatic flying is athletic. I don’t do aerobatic flying, but I would put that in a category of a sport. I would put regular flying in the category of an art or machine-type thing.
+ - I have 12 paintings of Kaufman art. He is an amazing artist.
+ - A lot of actors never talk to other actors about how they’re doing things, or why. I think it’s important to share the way you’re thinking.
+ - I’ve always slightly regretted not taking up Chicago.
+ - I was always a character actor, basically, that sometimes looks like a leading man.
+ - People really need to take time and read a book, you know, that’s my advice. You could read ‘A New Slant on Life,’ you could read ‘Dianetics.’ And I think if you really read it, you’ll understand it, but unless you do, you’ll speculate. And I think that’s a mistake to do that.
+ - I called my son Jett and I wanted to call my daughter Qantas but my wife wouldn’t let me.
+ - I’ve done so many interviews that I’ve gotten past the ego and the personality. I used to feel that there might be something missing, but a few years ago I realized that I was so causative over how the interview went that I was no longer concerned over the effects of the interview.
+ - I grew up, in my childhood, with some of the greatest women performers, on stage and on screen, and even my family – my mother and my sisters. So I was very busy watching women, as a child! I have a lot of memories of great women performers.
+ - The first thing I ever rode when I was a kid was a motorcycle, so I knew how to drive a motorcycle before a car.
+ - I was just thinking of James Dean and Marilyn Monroe and how young they were when they died. I would like to be a pop icon who survives. I would like to be a living icon.
+ - I believe L. Ron Hubbard resolved the human mind, and in resolving it he has also resolved human pain – that’s what I really think has happened here.
+ - I think what you have to do is have a box office success in every genre and then you’re set for life. And fortunately, I happened to do that, so I get a myriad of offers of various sorts.
+ - I feel very fortunate for audiences to have been so gracious as to allow me to do pretty much any role that I felt I could do. They let me play a president. They let me play a lawyer. They let me play a hit man. They let me play a father. They let me play Howard Saint.
+ - To Americans religious freedom is sacred.
+ - I’ve ridden a bike since I was 18. It was the first transportation when I came to Hollywood because it was inexpensive and easy for me.
+ - I probably have some sort of chocolate five times a week. There’s definitely a change it does to the chemistry of the body. It’s my favorite feeling. I live for it.
+ - I actually do like playing off-beat people. I think it’s more fun.
+ - When I was 8, I got a little toy propeller plane: You could turn it on and the people disappeared from the little windows and stewardesses appeared, and it ran along the ground.
+ - One of the things about the whole Harley motorcycle culture is that it’s a little bit renegade.
+ - I do feel fortunate in that I am probably allowed more often to be a character actor then most actors are allowed to be, and I don’t take that lightly or superficially at all. I mean, I really do appreciate it.
+ - It’s the interviewee’s job to know that his privacy is going to be invaded on some level. Otherwise, you are better off not doing the interview.
+ - I love fun movies that also have something to say. They tend to stay with me, always.
+ - I will direct one day, but I have a feeling that it will be very limited.
+ - You can’t control the quality of projects that are coming to you, so if you get several in a row that are quality, you take them.
+ - Christopher Walken was probably the most experienced dancing partner I’ve had in movies, because he has the same background as I do. He’s from theatre, Broadway and off-Broadway, and we both shared that.
+ - I’m not big on sequels; I’ve done them, but I like doing little things that have their own timelessness to them, classic type things, and then you go onto something new.
+ - I learned early on that there are certain things you can control in the press, and things you cannot.
+ - I couldn’t function if I weren’t allowed to stretch and do really different characters where I can change the whole “beingness” of that person. That’s my pleasure in acting and has been since I was a kid. That’s always been my pleasure to create complete characters.
+ - I rode many bikes and motorcycles. My brother was in an accident when he was a kid and my mom forbade us to use motorcycles.
+ - Life is overwhelming. Life is not easy. Life is tough. And you need something that really works and helps you actually, not promises to help you, then fail.
+ - My nature is happy. And all I can control is my response to input. If you come around me and tell me bad news all the time, I can say, “You know what? I don’t want to hear it.” If its just gossip, you know, I can choose not to hear it. And that, in effect, can control my mood.
+ - I think, for sure, ‘Saturday Night Fever’ and ‘Pulp Fiction’ were kind of bookends for – or the pillars of – my career.
+ - I don’t mind gearing my life towards privacy. It’s my nature.
+ - Your life starts to take shape at 30. You don’t have to make excuses for who you are anymore.
+ - I believe in love and marriage, but not necessarily with the same person.
+ - So you know what I’m gonna do? I’m gonna do something really outrageous, I’m gonna tell the truth.
+ - Well, I enjoy my life. You know, I think life is an art, and that one has to live it as an art. That’s your choice.
+ - When all else fails, fresh tactics!
+ - I don’t think I’m very cool as a person. I’m just better than anyone else at acting cool.
+ - I don’t believe in regrets; I believe your future is in your tomorrows.
+ - My son was autistic, and he suffered from seizure disorder every 5 to 10 days. He would suffer a seizure that would last 45 seconds to a minute and sleep for 12 hours.
+ - I am not at all computer literate in real life. I haven’t yet found a reason to be. Once I find a reason why I need to be on the Internet, then I will be.
+ - I don’t want to create controversy; I just have an opinion on things, and there is nothing wrong with stating your opinion if you are asked. Everyone wants that right, and because you are famous doesn’t mean you have less of a right.
+ - Princess Diana was a nice dancer because she had confidence. In fact, when we danced together she started to lead, and I looked her in eye and went, ‘No, you have to let me lead.’ So I grabbed her around the waist and we were off to the races.
+ - I’ve always thought of, of a relationship with an actor to an audience as a marriage, you know. And a story, you know. And there are ups and downs, and you work through them, and you work with them.
+ - The women I liked when I was growing up, as a little boy, were Anita Ekberg, Sophia Loren, Marilyn Monroe and Elizabeth Taylor, because they had these curvaceous figures, and they were erotic to me.
+ - As you get older, you have to force yourself to have new dreams. For instance, I’ve been flying for 37 years, but now teaching others to fly is interesting for me. Sometimes you have to find new angles on life to keep you interested, like sharing successes and inspiring and helping others.
+ - Let’s share our abundance and make our country stronger.
+ - Acting is a mix of luck and choice. I got lucky.
+ - The upper echelon of the movie industry is easier to deal with and the work is much easier to accomplish because of this generosity of spirit and confidence that they instill in the group around them.
+ - Never say anything unless you have to.
+ - I’ve never had that concern of thinking of myself as stupid.
+ - You just activated a nuclear warhead, my friend.
+ - The promise of change doesn’t always mean something changes.
+ - I’m willing to look my own nightmare on film, but if it endangers my life, then I’m willing to put my life before movies.
+ - Playing a bad guy is always a freeing experience, because you don’t have the same envelope of restrictions as you have playing a good guy. Good guys restrain themselves; they kind of have their moral fiber cut out for them in varying degrees.
+ - I played football in the ninth and 10th grade. I looked a lot like Joe Namath, so I think my looks got me there more than my abilities.
+ - I have fame on the level of a Marilyn Monroe or an Elvis Presley, but part of the reason I didn’t go the way they did was because of my beliefs. People make judgments about Scientology, but often they don’t know what they’re talking about.
+ - Sports, entertainment and aviation are three of the most exciting professions in the world; you are dealing with the same magnitude.
+ - He lives with his creativity in high gear.
+ - It is about getting a sense of integrity about issues. That was was my enlightenment over it and knowing that I had a safe place to go to handle anything in life.
+
+101 quotes

@@ -1,0 +1,23 @@
+ - Work hard, do things the right way, and things will go your way.
+ - You just work at it. You just keep grinding away, keep trying to get better, and if you got the ability, one day you have a chance.
+ - Everyone runs their own race.
+ - I think my best years are ahead of me and that’s exciting.
+ - The first game of the year is always an in-season adjustment game.
+ - I don’t think about it, ‘Wow! I’m the quarterback of the Dallas Cowboys.’ For me, this is my job. This is what I’ve been preparing to do. And I really want to win badly.
+ - You try and work hard and get better each week. I play the game with passion. I enjoy the game. It’s a lot of fun when I’m out there. That’s the way I play. For some reason, people like that.
+ - As a competitor and an athlete, you love that you get to go back and challenge someone, especially the world champs.
+ - The Leftovers is a great basketball book that shines a light on what true competitors can overcome with a solid work ethic.
+ - I think people just like rooting. If they like you, they’re going to want to root for you and you’re one of theirs. And if they don’t like you? It doesn’t matter.
+ - We’re continuing to evolve into what we think we can do, and you know that takes a little bit of times sometimes to figure out what you’re really good at and what you can hang her hat on per se, and I think we’re learning that each week that goes by.
+ - I think you use the negative things that happen from the year before – and from other years, too – to spur you to do the things you need to do to take the next step.
+ - It’s easy to say you’re more mature because all of a sudden you have a child, but it’s a process.
+ - There comes a point in the game where you gotta make a play or you gotta do something to get your team over the hump, and when that time comes you gotta be able to do it.
+ - I’ve played long enough to know that certain games are certain ways. You’re gonna throw it less in others, more in others, and just look at what the team needs that day to win a football game.
+ - I think some guys have the ability to learn from themselves and get better. Those are the guys that last a long time and continue to improve in this league and in sports in general.
+ - You may have seen have seen me in such places as your local market in a tabloid.
+ - You know you are going to go through your ups and downs in this game.
+ - Well, we can’t all be Terry Bradshaw.
+ - I feel like I’m going to be with the Cowboys the rest of my career, definitely. I love it.
+ - When you’re younger, it’s about ‘How can I get better? How can I become the player that I want to be?’ As you get older, it’s ‘How can this football team improve?’ While all along getting better along the way.
+
+21 quotes

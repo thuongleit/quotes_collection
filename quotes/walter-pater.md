@@ -1,0 +1,42 @@
+ - What is important, then, is not that the critic should possess a correct abstract definition of beauty for the intellect, but a certain kind of temperament, the power of being deeply moved by the presence of beautiful objects.
+ - Books are a refuge, a sort of cloistral refuge, from the vulgarities of the actual world.
+ - A sudden light transfigures a trivial thing, a weather-vane, a windmill, a winnowing flail, the dust in the barn door; a moment – and the thing has vanished, because it was pure effect; but it leaves a relish behind it, a longing that the accident may happen again.
+ - The way to perfection is through a series of disgusts.
+ - To burn always with this hard, gem-like flame, to maintain this ecstasy, is success in life.
+ - At first sight experience seems to bury us under a flood of external objects, pressing upon us with a sharp and importunate reality, calling us out of ourselves in a thousand forms of action.
+ - We need some imaginative stimulus, some not impossible ideal such as may shape vague hope, and transform it into effective desire, to carry us year after year, without disgust, through the routine-work which is so large a part of life.
+ - The Renaissance of the fifteenth century was, in many things, great rather by what it designed then by what it achieved.
+ - It is always hazardous to express what one has to say indirectly and allusively.
+ - In truth, the legitimate contention is, not of one age or school of literary art against another, but of all successive schools alike, against the stupidity which is dead to the substance, and the vulgarity which is dead to form.
+ - No account of the Renaissance can be complete without some notice of the attempt made by certain Italian scholars of the fifteenth century to reconcile Christianity with the religion of ancient Greece.
+ - To regard all things and principles of things as inconstant modes or fashions has more and more become the tendency of modern thought.
+ - All art does but consist in the removal of surplusage.
+ - What we have to do is to be forever curiously testing new opinions and courting new impressions.
+ - A certain strangeness, something of the blossoming of the aloe, is indeed an element in all true works of art: that they shall excite or surprise us is indispensable.
+ - Great passions may give us a quickened sense of life, ecstasy and sorrow of love, the various forms of enthusiastic activity, disinterested or otherwise, which comes naturally to many of us.
+ - Such discussions help us very little to enjoy what has been well done in art or poetry, to discriminate between what is more and what is less excellent in them, or to use words like beauty, excellence, art, poetry, with a more precise meaning than they would otherwise have.
+ - Through the survival of their children, happy parents are able to think calmly, and with a very practical affection, of a world in which they are to have no direct share.
+ - To know when one’s self is interested, is the first condition of interesting other people.
+ - A very intimate sense of the expressiveness of outward things, which ponders, listens, penetrates, where the earlier, less developed consciousness passed lightly by, is an important element in the general temper of our modern poetry.
+ - Every intellectual product must be judged from the point of view of the age and the people in which it was produced.
+ - In a sense it might even be said that our failure is to form habits: for, after all, habit is relative to a stereotyped world, and meantime it is only the roughness of the eye that makes two persons, things, situations, seem alike.
+ - Poetry, at all times, exercises two distinct functions: it may reveal, it may unveil to every eye, the ideal aspects of common thingsor it may actually add to the number of motives poetic and uncommon in themselves, by the imaginative creation of things that are ideal from their very birth.
+ - That sense of a life in natural objects, which in most poetry is but a rhetorical artifice, was, then, in Wordsworth the assertion of what was for him almost literal fact.
+ - Why do you always write poetry? Why do you not write prose? Prose is so much more difficult.
+ - Product of a myriad various minds and contending tongues, compact of obscure and minute association, a language has its own abundant and often recondite laws, in the habitual and summary recognition of which scholarship consists.
+ - A counted number of pulses only is given to us of a variegated, dramatic life. How may we see in them all that is to to be seen in them by the finest senses?
+ - Philosophical theories or ideas, as points of view, instruments of criticism, may help us to gather up what might otherwise pass unregarded by us.
+ - And the fifteenth century was an impassioned age, so ardent and serious in its pursuit of art that it consecrated everything with which art had to ad as a religious object.
+ - The various forms of intellectual activity which together make up the culture of an age, move for the most part from different starting-points, and by unconnected roads.
+ - Art comes to you proposing frankly to give nothing but the highest quality to your moments as they pass.
+ - Every moment some form grows perfect in hand or face; some tone on the hills or the sea is choicer than the rest; some mood of passion or insight or intellectual excitement is irresistibly real and attractive for us – for that moment only.
+ - The service of philosophy, of speculative culture, towards the human spirit, is to rouse, to startle it to a life of constant and eager observation.
+ - Many attempts have been made by writers on art and poetry to define beauty in the abstract, to express it in the most general terms, to find some universal formula for it.
+ - To the modern spirit nothing is, or can be rightly known, except relatively and under conditions.
+ - Not the fruit of experience, but experience itself, is the end.
+ - A book, like a person, has its fortunes with one; is lucky or unlucky in the precise moment of its falling in our way, and often by some happy accident counts with us for something more than its independent value.
+ - One of the most beautiful passages of Rousseau is that in the sixth book of Confessions, where he describes the awakening in him of the literary sense. Of such wisdom, the poetic passion, the desire of beauty, the love of art for its own sake, has most.
+ - Experience, already reduced to a group of impressions, is ringed round for each one of us by that thick wall of personality through which no real voice has ever pierced on its way to us, or from us to that which we can only conjecture to be without.
+ - How shall we pass most swiftly from point to point, and be present always at the focus where the greatest number of vital forces unite in their purest energy?
+
+40 quotes

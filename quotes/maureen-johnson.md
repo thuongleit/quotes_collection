@@ -1,0 +1,25 @@
+ - You can never visit the same place twice. Each time, it’s a different story. By the very act of coming back, you wipe out what came before.
+ - Tired, but not the kind of tired that sleep fixes.
+ - Salt. Wound. Together at last.
+ - It was clearly one of those mornings when I was particularly American.
+ - Claim whatever you want. Say you only want a happy family or a successful career or a big house. I say: no, that’s not what you want. You’ll settle for those things, but you really want a monkey that does your evil bidding. Pullman is a genius just for this.
+ - It’s always easier to say good-bye when you know it’s just a prelude to hello.
+ - It’s always awkward when someone doesn’t realize you’re joking and devotes thought time to what you’ve said. Double that when the person is wearing tinfoil.
+ - Every time you try to flirt with her, a puppy dies.
+ - I have no phobias. Phobias are irrational. My fears are rational and CAREFULLY CULTIVATED, like roses.
+ - Don’t get stabbed. It makes everything awkward.
+ - Keep calm and carry on. Also, stay in and hide because the Ripper is coming.
+ - And if we get caught, I will claim I made you go. At gunpoint. I am American. People will assume I’m armed.
+ - I am a mass of contradictions.
+ - I like you because you were mad. And you’re pretty. And pretty sane for a mad person.
+ - WORTH IT and perfect are different things. No one’s perfect, yet in romance, everyone becomes WORTH IT. And that’s the trick.
+ - There is nothing about a bad situation that fourteen hyper cheerleaders can’t worsen.
+ - Just then, my phone started ringing. The ring must have been damaged by the water as well, so now it had a high, keening note – kind of the sound I imagine a mermaid might make if you punched her in the face.
+ - The funny thing about stop signs is that they’re also start signs.
+ - Even though she had been warned, she tripped over the bike. She probably tripped because she’d been warned and was telling herself not to trip over the bike. She did that sometimes. It was often easier not to know what obstacles were in the way.
+ - Writing is one of the few careers for which you essentially train yourself, the other two major ones being juggling and pickpocketing.
+ - Debbie had to get up and slice me a thick piece of cake before she could answer. And I do mean thick. Harry Potter volume seven thick. I could have knocked out a burglar with this piece of cake. Once I tasted it, though, it seemed just the right size.
+ - Go see old virgins! Now ask a strange boy out, you shy, Retarded thing!
+ - It could have been like a fairy tale. But fairy tales aren’t real. Things don’t work like that. There’s a price for everything.
+
+23 quotes

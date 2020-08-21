@@ -1,0 +1,42 @@
+ - The life of your dreams, everything you would love to be, do or have, has always been closer to you than you knew, because the power to everything you want is inside you. ~~Rhonda Byrne
+ - If you can think about what you want in your mind, and make that your dominant thought, you will bring it into your life. ~~Rhonda Byrne
+ - Play the picture in your mind – focus on the end result. ~~Rhonda Byrne
+ - Happy feelings will attract more happy circumstances. ~~Rhonda Byrne
+ - VISUALIZE!!! See it, feel it! This is where action begins. ~~Rhonda Byrne
+ - We are like magnets – like attract like. You become AND attract what you think. ~~Rhonda Byrne
+ - How it will happen, how the Universe will bring it to you, is not your concern or job. Allow the Universe to do it for you. ~~Rhonda Byrne
+ - See yourself living in abundance and you will attract it. ~~Rhonda Byrne
+ - As you start to walk on the way, the way appears. ~~Rumi
+ - The law of attraction is this: You don’t attract what you want. You attract what you are. ~~Wayne W. Dyer
+ - Your feelings are your greatest tools to help you create your life. ~~Rhonda Byrne
+ - Start telling the story of your amazing life, and the law of attraction must make sure you receive it! ~~Rhonda Byrne
+ - You will attract everything that you require. ~~Rhonda Byrne
+ - Every thought has a frequency. Thoughts send out a magnetic energy. ~~Rhonda Byrne
+ - To attract money, you must focus on wealth. ~~Rhonda Byrne
+ - The law of attraction is the law of creation. Quantum physicists tell us that the entire Universe emerged from thought! ~~Rhonda Byrne
+ - Start thinking happy thoughts and start being happy. ~~Rhonda Byrne
+ - Your wealth is waiting for you in the invisible, and to bring it into the visible, think wealth! ~~Rhonda Byrne
+ - To use the law of attraction to your advantage, make it a habitual way of being, not just a one-time event. ~~Rhonda Byrne
+ - As you think of yourself living in abundance, you are powerfully and consciously determining your life through the law of attraction. ~~Rhonda Byrne
+ - As you ask and feel and believe, you will receive. ~~Rhonda Byrne
+ - Create your day in advance by thinking the way you want it to go, and you will create your life intentionally. ~~Rhonda Byrne
+ - Gratitude will bring more into our lives immediately. ~~Rhonda Byrne
+ - You attract your dominant thoughts. ~~Rhonda Byrne
+ - Success comes from within, not from without. ~~Rhonda Byrne
+ - Fear only exists when you do not understand that you have the power to project thought and that the Universe will respond. ~~Esther Hicks
+ - When you visualize, then you materialize. ~~Denis Waitley
+ - The universe is just a big Xerox machine. It simply produces copies of your thoughts. ~~Neale Donald Walsch
+ - The law of attraction says that like attracts like, and when you think and feel what you want to attract on the inside, the law will use people, circumstances and events to magnetize what you want. ~~Rhonda Byrne
+ - They did not know it was impossible so they did it. ~~Mark Twain
+ - Feeling is the secret. ~~Neville Goddard
+ - Capture the feeling associated with your realized wish by assuming the feeling that would be yours were you already in possession of the thing you desire, and your wish will objectify itself. ~~Neville Goddard
+ - To make a relationship work, focus on what you appreciate about the other person, and not your complaints. ~~Rhonda Byrne
+ - Since you alone are responsible for your thoughts, only you can change them. ~~Paramahansa Yogananda
+ - All stress begins with one negative thought. ~~Rhonda Byrne
+ - When we open our minds to the unlimited creative power, we will call forth abundance and see and experience a whole new world. ~~Rhonda Byrne
+ - The Great Secret of Life is the law of attraction that says like attracts like, so when you think a thought, you are also attracting like thoughts to you. ~~Rhonda Byrne
+ - Quantum physics tells us that nothing that is observed is unaffected by the observer. That statement, from science, holds an enormous and powerful insight. It means that everyone sees a different truth because everyone is creating what they see. ~~Neale Donald Walsch
+ - You have to feel love to harness its power! ~~Rhonda Byrne
+ - We meet ourselves time and again in a thousand disguises on the path of life. ~~C.G. Jung
+
+40 quotes

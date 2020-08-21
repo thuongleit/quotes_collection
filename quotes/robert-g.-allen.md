@@ -1,0 +1,62 @@
+ - Don’t wait to buy real estate. Buy real estate and wait.
+ - The fundamental level of success is doing the hard things first – If you go for the feared thing first, then the rest of the day is easy.
+ - In todays uncertain economy, the safest solution to be wealthy, be in total control and enjoy freedom for you and your family is to have multiple streams of income.
+ - Don’t let the opinions of the average man sway you. Dream, and he thinks you’re crazy. Succeed, and he thinks you’re lucky. Acquire wealth, and he thinks you’re greedy. Pay no attention. He simply doesn’t understand.
+ - The future you see is the future you get.
+ - Words transform. Speak only with a good purpose. Say only things that serve you and others. Choose your words wisely.
+ - Your network is your net worth. How do you value your network? Well, if you don’t value it, cultivate it, nurture it, it becomes worthless. If you do value it, it becomes priceless.
+ - Whatever you focus on, expands. If you see the world through your dreams, prosperity materializes before your very eyes. If you see the world through your fears, poverty multiplies all around you.
+ - Fear begins to melt away when you begin to take action on a goal you really want.
+ - How many millionaires do you know who have become wealthy by investing in savings accounts? I rest my case.
+ - A powerful combination to ensure success is having the vision of an eagle and the heart of a lion.
+ - When you change your NOW story, you instantly change your past story and your future story.
+ - Life is a hailstorm of distractions. It’s not the monster that stops us but the mosquito.
+ - Creating success is a tug of war between your mind and your heart-your fears and your dreams. If your fears win, you lose.
+ - What is the opposite of abundance? It’s not scarcity. It’s greed. Greed is the belief that there is not enough for everyone, so you’d better grab yours now. What is the opposite of love? It’s not hate. It’s fear. Fear is the belief that someone or something can hurt you.
+ - Some people are motivated by visualizing themselves reaching their dream. Some people are motivated by the nightmare of not reaching it. Do both.
+ - Life is a free fall parachute jump. Pray all the way down and hope for a safe landing.
+ - The decisions that you make each day can actually catapult you to that next level of achievement.
+ - Successful people rely heavily on their mentors. Ordinary people don’t. It’s that simple.
+ - Rejection reveals your character.
+ - It’s a great day. Now, go make it that way.
+ - You’re not selling products. You’re creating relationships.
+ - No matter what your product is, you are ultimately in the education business. Your customers need to be constantly educated about the many advantages of doing business with you, trained to use your products more effectively, and taught how to make never-ending improvement in their lives.
+ - We grow because we struggle, we learn and overcome.
+ - Success will come when you choose to feed your dreams and starve your doubts.
+ - When you need advice- do you seek someone who has proven success or do you get advice from people who have never achieved what you desire?
+ - When you go to bed tonight, ask yourself ‘What percentage of my day did I spend creating residual income?’ If the answer is ZERO, you’re in trouble.
+ - Money is one of the most important subjects of your entire life. Some of life’s greatest enjoyments and most of life’s greatest disappointments stem from your decisions about money. Whether you experience great peace of mind or constant anxiety will depend on getting your finances under control.
+ - Risk is an essential part of progress.
+ - Wealth is thoughts, not things.
+ - The more clarity you have, the more powerful your goals are.
+ - Your current thinking got you here. Only new thinking will get you out.
+ - The better your attitude and the harder you work, the luckier you get.
+ - Ultimately, the product you sell is love-manifested and materialized.
+ - Pursuing your passion is fulfilling and leads to financial freedom.
+ - Without knowledge and a workable plan, you are gambling, with little or no chance of success.
+ - Don’t think of your goals – think FROM them. Tap into your genius.
+ - Money is attracted to great ideas.
+ - The only real security is in having lots of opportunity. But risk is the price to pay for opportunity. And risk is scary.
+ - Life is a mirror. You get what you see. If you project anger into the mirror, that is what you get back. If you project joy into the mirror, it reflects joy right back to you. Failure for failure. Success for success. What you project is what is reflected back to you.
+ - The most important thing is to know that you can do it.
+ - You did not mention the name of some rich millionaire just by saving anywhere.
+ - Hidden behind your fears and your failures is the success you seek.
+ - Sit me at the keyboard of any computer in the world with access to the Internet, and in just 24 hours I’ll earn at least $24,000 in cash.
+ - When faced with disaster, learn to laugh faster.
+ - It takes courage to step out of the line marked ‘security’ into the line marked ‘risk.’
+ - Have you ever sabotaged yourself? Ever come close to victory only to slide back into the jaws of defeat? When you are fighting yourself, you can’t win.
+ - If you believe it and desire it, you can acquire it.
+ - What miracle is God fashioning out of this misfortune?
+ - Say yes to your self. Say no to your anti-self.
+ - You’re a chip shot away from everything you’ve ever wanted.
+ - Once in a life time deals come around about every three weeks or so.
+ - If service is the rent you pay for your existence on this earth, are you behind in your rent?
+ - Beneath the excuse lies your destiny.
+ - As I became more mature I realized that failure is part of success.
+ - The only power that the critical voice has is the power that you give it.
+ - Stories are the shortcut to the heart.
+ - You are only as powerful as your mentors.
+ - Many things can make you rich, but only a few things can enrich you.
+ - The more you have to do, the more you have only NOW to get it done. That’s why busy people get the most done.
+
+60 quotes

@@ -1,0 +1,30 @@
+ - There is always room for change, but you have to be open to that change.
+ - So much magic lies beyond our fears.
+ - There will always be people who can do it better than you, but that’s a good thing! Start to see competition as inspiration – without envy.
+ - Never focus on what you can’t do – only imagine everything you could.
+ - Stand up for what you believe in even if it causes waves.
+ - There is plenty of room for us all to succeed and carve our own path.
+ - Just because someone disagrees with you doesn’t mean you’re wrong.
+ - I do feel pressure to look a certain way but am fighting that and focusing on being comfortable in my own skin exactly as it is.
+ - Just because you don’t like it doesn’t mean it isn’t currently rocking someone else’s world.
+ - Own your beauty whatever shape or form it comes in.
+ - There is a “yoga body” aesthetic, which is long and sinewy. I am curvy. I get praised on a regular basis, with people telling me, “Wow, you’re so brave,” simply for showing my curvy body. Being brave is going to war; being curvy is not brave. We need to be careful with how we use our words.
+ - I’ve been doing Isha Kriya meditation and love it. Don’t get me wrong, it isn’t easy or available everyday – but I’m making the effort to stop, sit, breath, and connect.
+ - I encourage myself – and everyone – to focus on how you feel and take care of yourself as opposed to your waistline.
+ - I lack routine with yoga, sleep, and food but do my best to keep consistency amongst the chaos.
+ - It’s important to remember that there are many different types of people, styles of teaching and that we won’t agree with all of them.
+ - In this day and age, social media is a huge part of a business, which I actually love. It’s a phenomenal platform to share your message, keep others and myself inspired and help keep your students connected to your events. The hardest part is the anonymous ability to say whatever you want.
+ - I used to be in my 20s, be single, and work way less. This was conducive to way more hours on the mat and a super fit physique. I’m now 31, engaged, and travel every single week, which puts a major damper on any sort of routine.
+ - People love to judge, get used to it and stop taking it personally.
+ - My biggest struggles have been my biggest teachers.
+ - Happiness is a state a mind, not a dress size.
+ - I hope to encourage people to take flight on their mats, in their lives, and in their hearts.
+ - I take my fearless approach into my teaching by helping my students to realize their potential through yoga. I have a gift for making difficult poses accessible and reminding people that postures, and anything in life, are only as hard as you make them out to be.
+ - I deal with negative, nasty comments on a regular basis. It’s difficult to digest because I’ve always been sensitive and it’s a slap in the face to have someone respond cruely when you’re trying to lift people up. It’s been a huge lesson for me.
+ - I took my fear to literal heights and went skydiving over a year ago. It was in that moment, gazing over the precipice of the plane, when I realized what scared me the most, the unknown.
+ - Anytime I feel my feathers ruffle off of someone else’s success, I have to check myself. It’s normally fear based or ego related and it’s my daily work to let it go and focus on me, because that’s the only person I can control and make grow.
+ - Yoga has expanded beyond asana for me. It’s how I live my life and currently I’m throwing myself into a meditation practice.
+ - Being in the health industry can do a major number on your head when it comes to body image.
+ - I’d take pasta over skinny any day. More importantly, I’d take health over looks.
+
+28 quotes

@@ -1,0 +1,40 @@
+ - Nothing in life is to be feared, it is only to be understood. Now is the time to understand more, so that we may fear less.
+ - We must believe that we are gifted for something, and that this thing, at whatever cost, must be attained.
+ - Be less curious about people and more curious about ideas.
+ - Life is not easy for any of us. But what of that? We must have perseverance and above all confidence in ourselves. We must believe that we are gifted for something and that this thing must be attained.
+ - You cannot hope to build a better world without improving the individuals.
+ - I am among those who think that science has great beauty.
+ - First principle: never to let one’s self be beaten down by persons or by events.
+ - Life is not easy for any for us.
+ - I was taught that the way of progress was neither swift nor easy.
+ - I never see what has been done; I only see what remains to be done.
+ - We must have perseverance and above all confidence in ourselves.
+ - All my life through, the new sights of Nature made me rejoice like a child.
+ - Scientist believe in things, not in person.
+ - Stability can only be attained by inactive matter.
+ - Life is not easy for any of us. But what of that? We must have perseverance.
+ - A scientist in his laboratory is not a mere technician: he is also a child confronting natural phenomena that impress him as though they were fairy tales.
+ - It’s always good to marry your best friend.
+ - It is my earnest desire that some of you should carry on this scientific work and keep for your ambition the determination to make a permanent contribution to science.
+ - Now is the time to understand more, so we fear less.
+ - There are sadistic scientists who hurry to hunt down errors instead of establishing the truth.
+ - You can only analyze the data you have. Be strategic about what to gather and how to store it.
+ - Radium is not to enrich any one. It is an element; it is for all people.
+ - I was taught the method for advancement is not quick or simple.
+ - Just remember you will find that one special love that you know is right but for some reason just doesn’t last.
+ - Each of us must work for his own improvement, and at the same time share a general responsibility for all humanity.
+ - It was like a new world opened to me, the world of science, which I was at last permitted to know in all liberty.
+ - I have frequently been questioned, especially by women, of how I could reconcile family life with a scientific career. Well, it has not been easy.
+ - I have the best husband one could dream of; I could never have imagined finding one like him. He is a true gift of heaven, and the more we live together the more we love each other.
+ - I am one of those who think like Nobel, that humanity will draw more good than evil from new discoveries.
+ - After all, science is essentially international, and it is only through lack of the historical sense that national qualities have been attributed to it.
+ - I have no dress except the one I wear every day. If you are going to be kind enough to give me one, please let it be practical and dark so that I can put it on afterwards to go to the laboratory.
+ - My husband and I were so closely united by our affection and our common work that we passed nearly all of our time together.
+ - The various reasons which we have enumerated lead us to believe that the new radio-active substance contains a new element which we propose to give the name of radium.
+ - More and more, I feel the need for a house and a garden.
+ - This means that we have here an entirely separate kind of chemistry for which the current tool we use is the electrometer, not the balance, and which we might well call the chemistry of the imponderable.
+ - We must not forget that when radium was discovered no one knew that it would prove useful in hospitals.
+ - The older one gets, the more one feels that the present must be enjoyed; it is a precious gift, comparable to a state of grace.
+ - When one studies strongly radioactive substances special precautions must be taken. Dust, the air of the room, and one’s clothes, all become radioactive.
+
+38 quotes

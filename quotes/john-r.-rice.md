@@ -1,0 +1,36 @@
+ - The world never burned a casual Christian at the stake.
+ - I want no Christmas without a burden for lost souls, a message for sinners, a heart to bring in the lost sheep so dear to the Shepherd, the sinning souls for whom Christ died.
+ - When boiled down to its essence, unforgiveness is hatred.
+ - You can’t win everybody to the Lord, but you can always win somebody.
+ - I tell you, Heaven is a real, literal, physical place, a city as material, as physical, as literal as Chicago or London or New York or Tokyo.
+ - If you surrender yourself, and do not rush, but meditate on the Word of God, you will find prayer forming in your heart. It is a prayer inspired by the Holy Spirit, a prayer that God will be pleased to hear.
+ - To keep the faith, run with the right crowd.
+ - Those who go to Heaven ride on a pass and enter into blessings that they never earned, but all who go to hell pay their own way.
+ - What a compelling motive we have for prayer, for preaching, for soul winning when we learn that every responsible human being who leaves this world without a definite change in heart immediately lifts his eyes in Hell, tormented in flame!
+ - God doesn’t send His children to Hell either. It’s just the Devil’s children that God sends to Hell. Why should God look after the Devil’s children.
+ - The moment we’re born they try to make us cry, and sometimes it seems as though they never stop. Most of us go to our grave with our music still inside of us. Never borrow sorrow from tomorrow! No matter what a man’s past may have been, his future is spotless.
+ - God’s people should be baptized because God commanded it, not because some church requires it.
+ - No matter what a man’s past may have been, his future is spotless.
+ - It is a sad and shocking fact that many religious people are in Hell.
+ - All Satan’s Apples Have Worms. I do not deny that the Devil has some pretty apples; I just say that all of them are fakes and that after you bite into them, you will find they have worms. All Satan’s apples have worms.
+ - The normal Christian life is a life of regular, daily answer to prayer. In the model prayer Jesus taught His disciples to pray daily for bread, and expect to get it, and to ask daily for forgiveness, for deliverance from the evil one, and for other needs, and daily to get the answers they sought.
+ - We ought to shout out our thanksgiving as if every war were over; as if there were no more big taxes; as if there were no sickness, no crime.
+ - People go wrong in their fellowships before they go wrong in their doctrine.
+ - Prayer is asking; the answer to prayer is receiving.
+ - Any pleasure that would keep you from Christ is a sinful pleasure that will doubtless cause you anguish, heartache, tears and remorse.
+ - The best soulwinners are those who go when it is convenient and then go when it is not convenient.
+ - The best way to get rid of criminals is to stop raising them.
+ - This world loses its appeal when the steps become tottering, when the hearing becomes dim, when the faded eyes cannot see as they once did. When loved ones are nearly all gone on ahead, then all the riches or fame or pleasures of this world are baubles and trash.
+ - He that biddeth him God speed is partaker of his evil deeds.
+ - When you get saved, you get saved not because you deserve it, but because you simply let God save you and because you confess your own poor sinful state and your inability to save yourself.
+ - According to the Bible, a genuine answer to prayer is getting what you ask for.
+ - A Christian might drink only ginger ale at the tavern bar, but there he is already on the way to drinking beer and whiskey. The girl who attends a ball but never dances a step, will soon surrender her body to the lustful embrace of every casual male acquaintance as other dancers do.
+ - Present-Day Wickedness, Apostasy and Modern Civilization Cannot Prevent Revival.
+ - No one can be a good Christian who does not with holy zeal set out to know, delight in, and live by the Word of God!
+ - Christian, that sin which first came between you and God is bad, but that is not the last step in the progress of sin. The most guilty part in this quadruple sin is to hide it, deny it, ignore it, refust to confess it, refuse to repent of it!
+ - Salvation is a free gift.
+ - After one is right with God and pleases God, the next most important thing in all the world is to be right with one’s own father and mother.
+ - Any time a Christian is conscious of his sin, judges the sin and takes sides against it with a penitent heart, then he has a perfect right to trust the Lord for instant, complete forgiveness and for perfect cleansing.
+ - If you were enough like God, some one wouldn’t like you.
+
+34 quotes

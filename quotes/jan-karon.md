@@ -1,0 +1,47 @@
+ - Lord, make me a blessing to someone today.
+ - Love is an endless act of forgiveness.
+ - Bottom line, wasn’t life itself a special occasion?
+ - Give me faith, Lord, to know Your Presence as surely as I know the beating of my own heart. I’ve felt so far from You...
+ - When we turn from our sin, and have the blessed forgiveness of the Almighty, then we can ask Him to run things, and let Him be in charge.
+ - As long as you have any floor space at all, you have room for books! Just make two stacks of books the same height, place them three or four feet apart, lay a board across them, and repeat. Viola! Bookshelves!
+ - Don’t fear whatever God lays before you today.
+ - Loving can be hard. Sometimes we don’t feel loving, but it isn’t all about feeling. Very often it is about will. Practice that if you can.
+ - I live in a village where people still care about each other, largely.
+ - Let’s just say that I was raised by my grandparents.
+ - Phillipians 4:13 for Pete’s sake!
+ - The significant, life-forming times are the dull, in-between times.
+ - Easter is never deserved.
+ - I try to put my heart out there to everybody. They don’t have to be Christian. For example, I have lots of Jewish readers. I love my Jewish readers.
+ - The firefly only shines when on the wing, So it is with us – when we stop, we darken.
+ - My life is extremely full and wretchedly busy, and I feel that while my life drains energy from my work, my work in turn drains energy from my life. The result is, I am always playing catch-up spiritually. That is my thorn.
+ - Cynics will say there are no good people out there. And if you read the papers and watch TV news you could be convinced of that. But there are good people.
+ - There may be circumstances in this life that God uses to keep bringing us back to Him, looking for His grace.
+ - I have confidence that God is with us in all things, both tender and tough.
+ - The dark book has been terribly popular. Dark characters, dysfunction, and all sorts of things from reality that are true in our world.
+ - One of the things that makes a dead leaf fall to the ground is the bud of the new leaf that pushes it off the limb.
+ - My grandmother influenced me so deeply.
+ - Cynthia came in quietly and set a cup of tea before him. He kissed her hand, inexpressibly grateful, and she went back into the kitchen. When we view the little things with thanksgiving, even they become big things.
+ - When the trees and the power lines crashed around you, when the very roof gave way above you, when the light turned to darkness and water turned to dust, did you call on Him? When you called on Him, was He somewhere up there, or was He as near as your very breath?
+ - I learned not to be so bitterly defeated when my fiction took a beating from editors. I learned in advertising to color in the lines and have my work done on time and to make it the very best it could be.
+ - I made real sacrifices and took big risks. But living, it seems to me, is largely about risk.
+ - I believe that’s when God first started speaking to my heart – the very day I started speaking to His!
+ - I’d like you to know that I have forgiven him. Again and again. Once done, course, back comes the Enemy to persecute and persecute, and I must ante up to God and forgive yet again.
+ - I really care about my readers. I care about anyone who reads my books.
+ - Sometimes you have to gag on fancy before you can appreciate plain...
+ - Well, I think some people are very happy in retirement. And in a year and a half I’m going to see how happy I feel in retirement. I’m just going to not work quite so hard, but I’ll continue to write as long as God gives me breath.
+ - I grew up hearing words like snakeroot, sassafras, mullein – things that had wondrous, mysterious sounds in their names.
+ - I remember the first time I held my book, my first book in my hands. I cannot tell you how it moved me.
+ - For a very long time, I wrote a book a year, and was eager and willing to do it, to put bread on the table, to have my work out there. Now I must write a book every two years, and that’s never enough time, either.
+ - And it can be a way of healing.
+ - Publishing is, by its nature, about deadlines, and deadlines are toxic.
+ - There’s nothing trite about being consoled in a world that does everything in its power to deliver sorrow.
+ - So here is what my advice would be: If God has given you a dream, you’d better get cracking because He wants you to use it. That’s why He gives them to us in the first place.
+ - Even the roughest character, underneath all that hurt, is someone who wants to love and be loved.
+ - I’ve put everything I had and I’ve given my readers 120 percent, and that’s the truth.
+ - There are so many people who don’t know small towns exist. When I write, I want to give my readers two things: one is a sense of consolation, and two, I want to make them laugh.
+ - Let me say that I absolutely loved writing ‘A Common Life,’ because it was a book about love.
+ - I have raced against the clock since I went into advertising at the age of eighteen.
+ - My first novel is loaded with food references largely because my cupboards were bare, and I was writing hungry.
+ - Writing is a way of processing our lives. And it can be a way of healing.
+
+45 quotes

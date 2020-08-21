@@ -1,0 +1,70 @@
+ - Please, God, please, don’t let me be normal!
+ - Never burn bridges. Today’s junior jerk, tomorrow’s senior partner.
+ - Whether it was work, marriage, or family, I’ve always been a late bloomer.
+ - Don’t depend on other people’s encouragement. It’s never enough and never when you need it.
+ - Sometimes you trust someone who turns out not to be honest. There are a lot of things that happen in life that don’t turn out the way you’re given the impression that they will. And I think that’s all kind of a con. But I think we’ve probably all been hurt.
+ - I’ve always been very shy and sheltered; I think it was a good way of starting to communicate with people. I was taught as a child never to talk about myself, never to talk about my emotions. Of course, now I talk about myself constantly. Now I have to take reverse est.
+ - I worked hard and made my own way, just as my father had. And just, I’m sure, as he hoped I would. I learned, from observing him, the satisfaction that comes from striving and seeing a dream fulfilled.
+ - Most people think that animals are third-class citizens. Very few people really see animals as “the others” with whom we inhabit this planet. They have equal rights with us.
+ - When you’re young, there’s so much that you can’t take in. It’s pouring over you like a waterfall. When you’re older, it’s less intense, but you’re able to reach out and drink it. I love being older.
+ - Sorry men, but I think boys are a little more oblivious in high school. Girls are just more sensitive. We’re so concerned about how we look and how we’re doing.
+ - Here’s a vice: I say yes to too many things. I wish I had the guilty pleasure of saying no. My goal is to try to do less, but more fully.
+ - I think indie films are really important, because they show the studios and the audiences when they see them, great stories. Really interesting, small stories.
+ - Some of the most intense affairs are between actors and characters. There’s a fire in the human heart and we jump into it with the same obsession as we have with our lovers.
+ - I don’t really see science fiction as fiction. I can imagine colonies on Mars and everything.
+ - I used to be terribly shy, so I was either shy or over the top, and I always had a difficult time.
+ - If you come back from the dead, you don’t have the same value system, I think.
+ - There’s something to be said for going right into people’s living rooms. I think actors have always loved that medium – you’re right in there with people in their homes. A lot of very audacious work is being done on television.
+ - I love working quickly. I don’t like to do thousands of takes, and I don’t want to do thousands of set ups.
+ - I am sent too many mainstream scripts in which the older woman is really quite grotesque. Sometimes you read a script and you feel quite sick that they have to caricature older women in such a negative way.
+ - I love the role of Ripley.
+ - I have a very commercial appetite. I don’t like to do high-brow things.
+ - I’ve always thought that a lot of the problems in the world would be solved if a spaceship did arrive, then anyone with one head and two arms and two legs would be your brother! It wouldn’t matter where they were from or what they believed or anything. It might be good for us.
+ - I feel self-doubt whether I’m doing something hard or easy.
+ - I often meet young directors who, you know, had a ‘Ghostbusters’ picture on their wall as they were growing up. And it’s really nice. It just shows how inter-generational our industry is.
+ - It’s rare when you have everything going perfectly all at the same time.
+ - I consider myself very much a team player.
+ - I still am in touch with several friends from high school. I don’t go to reunions much. I’m afraid that if I go back to the school, they’ll suddenly go, ‘You know what? We’ve checked the records and you still have one more French class. Get back in here.’
+ - I love working with young people and young filmmakers, and I love working on first films. I think it’s cool. It’s fun. I just take it as it comes.
+ - Every role sort of teaches you how to prepare for it.
+ - I’m always the last person they go to with a sequel, because I’m the most skeptical. You know, I’m very proud of what we’ve done, and I don’t want to screw up our series.
+ - One of the reasons I did this, because I wasn’t really looking for another science fiction film, was that my daughter can see it. She’s 9 and it’s really a good film for all ages.
+ - It’s such a nice change to get to play a wretched, shallow, mergers-and-acquisitions woman. My true colors come out.
+ - I’ve been very fortunate to be able to jump around. I just did this really wonderful film called Map of the World. That was a real, amazing, dramatic story. Then I did a movie called Company Men, a little comedy about the Bay of Pigs.
+ - I was discouraged at drama school, along with most of my peers.
+ - My husband is from Hawaii and his father who was also born in Hawaii was a teenager when Pearl Harbor happened, right before church and he ran up and got on the roof of his grandfather’s house and watched the planes go over.
+ - Acting as a career is a long term thing and that work is kind of progressive and you can build on a career. It’s part of the great tradition of the theater to me.
+ - With Alien, because we always use a different director, each one kind of stands on its own. So I guess it’s possible for them to make another one, but we have no plans.
+ - I’m no Ripley. I had doubts that I could play her as strongly as she had to be played, but I must say that it was fun exploring that side of myself. Women don’t get to do that very often.
+ - I love playing an alien.
+ - Maybe you’re better to play a villain just straight out.
+ - I am a person who goes out without a purse.
+ - People are amazed that I do comedy. I always did comedy.
+ - It’s always the script that’s going to lure me. And I don’t really care about the part.
+ - I have always been uncomfortable with a series of movies. I hate that word ‘franchise’ – it always makes me think of French fries. What I felt each time was that we were going for broke, that this was going to be the last in the series. You can’t count on anything.
+ - I wanted to play a mother again. I thought it would be interesting to play the mother of an older child. And it was also the kind of part I’ve been looking for my whole career, actually, in film. You know, just to play a femme fatale who’s very smart, and wicked.
+ - I’d rather have a small part in a movie I love than a bigger part in one I don’t care about.
+ - For the camera, particularly, I feel like – I think that, as human faces become older, they become more interesting.
+ - I think that every piece has its challenges. I love going back and forth between one and the other. I’ll always pick a comedy over a drama.
+ - I’m very happy with the opportunities I’ve had.
+ - I changed my name when I was about twelve because I didn’t like being called Sue or Susie. I felt I needed a longer name because I was so tall. So what happened? Now everyone calls me Sig or Siggy.
+ - As long as your robot isn’t programmed by like Dr. Evil, I think you’re going to be fine.
+ - I’d be more interested in doing a smaller, character driven thing, rather than another action picture.
+ - We need to do a better job of keeping oceans healthy.
+ - As an actor, the second and last ones were interesting for me. Because those parts had the most change in playing someone who was both light and dark, sort of Jekyl and Hyde.
+ - I had always done theater in extracurricular ways. I’d never been a drama major.
+ - I think breathing is actually the key to a lot of opening up of other parts of yourself that you haven’t used, for any job, but particularly in acting.
+ - I always find it particularly difficult to work in New York because there are so many things to do.
+ - Secretly, I had always wanted to go to Vegas, and have my own really bad act!
+ - Usually it’s the guys that don’t follow you around, who you’re attracted to!
+ - I am a person who goes out without a purse. I put things in my coat pockets, so I don’t have any accessories.
+ - What makes these creatures so awful is the feeling that they can use us in ways too horrible to imagine-and yet, we DO imagine them, which makes it worse than seeing it.
+ - I really enjoy working with younger actors. I just feel like we’re all peers together.
+ - There’s a lot of conning as part of our society, I think.
+ - When I look around the world, I don’t see too many damsels in distress. If they’re a damsel in distress, they’re manipulating some guy to help them.
+ - It is one proof of a good education and of true refinement of feeling, to respect antiquity.
+ - I don’t want to leave New York and leave my family. I don’t like the distance. I just did a movie in California and it’s kind of excruciating to be away from them so I think there is that sense.
+ - People who run environmental groups and things like that, who have to listen to all kinds of nonsense and keep their tempers, are very diplomatic and very inclusive.
+ - I am more of a New Yorker than ever and just actually, sometimes I fantasize about living somewhere else, where it’s maybe not quite so crowded or stressful, blah, blah, blah and after September 11th, I guess I could just not imagine living anywhere else.
+
+68 quotes

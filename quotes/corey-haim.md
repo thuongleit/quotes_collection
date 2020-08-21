@@ -1,0 +1,31 @@
+ - I lived in Los Angeles in the ’80s, which was not the best place to be.
+ - You are what you wear. I wear something different everyday.
+ - I’ve gotten to work with some great people. I’ve been really lucky.
+ - I was numb and I had lots of swollen lymph nodes, my heart was hurting and I had blood clots in my arm and leg.
+ - I don’t like Heather Graham. She did an interview and said, ‘I didn’t want to kiss Corey; I didn’t want to catch his mononucleosis. He had a kissing disease.’
+ - What does kissing really mean to me? To me, if you feel, when you kiss a girl, that certain feeling of all those dolphins, like, swimming through your blood stream, and you get those good tingles inside your stomach, I don’t think there’s any better feeling.
+ - My mom saved my life. She gave me mouth-to-mouth more than once.
+ - I absolutely did date Victoria Beckham, yes.
+ - I want people to learn from me, see I’m human, and understand that I make mistakes just like they do, but it doesn’t have to consume you. You’ve got to walk through the raindrops, and that’s totally what I am trying to do.
+ - I always thought acting was all lights, camera, action. It’s a job; you have to do your job correctly.
+ - For eight-and-a-half years, I was just watching movies, and just staying in bed and just eating food and just, you know, being just miserable.
+ - Horror movies, man, the blood entails so much time. And horror movies are not fun; definitely not starting there as a director. Definitely not horror.
+ - When you’re young and you have money, you become the CEO, automatically, of life, of your family.
+ - I think maybe ten years from now, I’m hopefully going to be, in like, Tahiti or something. Kicking back like in my huge mansion, if everything goes right, it’s all up to me.
+ - I feel like, with myself, I ruined myself to the point where I wasn’t functional enough to work for anybody, even myself. I wasn’t working.
+ - Stuff happens when you are a kid; it scars you inside for life.
+ - I’m trying to get in the habit of, you know, picking up a book and learning how to write my feelings down, not my feelings but my thoughts, about things, and hopefully I’ll moving toward the writing and directing thing soon.
+ - I play keyboards and sing. I’ve written a couple of songs too.
+ - Well, my favorite roles so far are Lucas and Lost Boys.
+ - I’m a chronic relapser. I guess I always will be.
+ - I started on the downers which were a hell of a lot better than the uppers because I was a nervous wreck.
+ - I’d love to see the rushes but it’s just not allowed because directors and also a lot of actors feel that if they see their work, and the director likes what they’re doing, the actor might try to correct their mistakes.
+ - I wanted to play professional hockey, man. But when I acted, I thought, ‘Well, okay, maybe I do have something here.’
+ - My opinion is just be very careful when you’re young and making the money.
+ - I want to direct. Definitely a goal of mine.
+ - But one led to two, two led to four, four led to eight, until at the end it was about 85 a day – the doctors could not believe I was taking that much. And that was just the valium – I’m not talking about the other pills I went through.
+ - Corey feldman and I did sneak into the screening room one day during Lost Boys.
+ - I think I have an addiction to pretty much everything. I mean, I have to be very careful with myself as far as that goes, which is why I have a support group around me consistently.
+ - I have a doggy, a Japanese Akita, who I live to play with.
+
+29 quotes

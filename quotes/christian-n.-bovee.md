@@ -1,0 +1,246 @@
+ - Honesty is not only the first step toward greatness, it is greatness itself.
+ - Our first and last love is self-love.
+ - A mother is the best friend God ever gave.
+ - When all else is lost, the future still remains.
+ - The light in the world comes principally from two sources,-the sun, and the student’s lamp.
+ - The first step toward greatness is to be honest, says the proverb; but the proverb fails to state the case strong enough. Honesty is not only “the first step toward greatness,” it is greatness itself.
+ - There is, indeed, no wild beast more to be dreaded than a communicative man having nothing to communicate.
+ - Formerly when great fortunes were only made in war, war was business; but now when great fortunes are only made by business: Business is war!
+ - Galileo called doubt the father of invention; it is certainly the pioneer.
+ - No man is happy without a delusion of some kind. Delusions are as necessary to our happiness as realities.
+ - It is easier to die bravely than to live so.
+ - Pure motives do not insure perfect results.
+ - New situations inspire new thoughts. Here is the benefit of travelling, much more than in mere sight-seeing. We lose ourselves in the streets of our own city, and go abroad to find ourselves.
+ - It is invidious to distinguish particular men as adventurers: we are all such.
+ - The greatest happiness comes from the greatest activity.
+ - The worst deluded are the self-deluded.
+ - Cheerfulness is an offshoot of goodness and of wisdom.
+ - The small courtesies sweeten life; the greater ennoble it.
+ - Love’s sweetest meanings are unspoken; the full heart knows no rhetoric of words.
+ - Successful minds work like a gimlet – to a single point.
+ - The loveliest faces are to be seen by moonlight, when one sees half with the eye and half with the fancy.
+ - The beauty seen is partly in him who sees it.
+ - Life being full of harsh realities, we seek relief from them in a variety of pleasing delusions.
+ - There is a German proverb which says that Take-it-Easy and Live-Long are brothers.
+ - Hunting is a relic of the barbarism that once thirsted for human blood, but is now content with the blood of animals.
+ - Four sweet lips, two pure souls, and one undying affection, these are love’s pretty ingredients for a kiss.
+ - To vindicate the sanctity of human life by taking it is an outrage upon reason. The spectacle of a human being dangling at the end of a gallows-rope is a degradation of humanity.
+ - Constant companionship is not enjoyable, any more than constant eating. We sit too long at the table of friendship, when we outsit our appetites for each other’s thoughts.
+ - The lively and mercurial are as open books, with the leaves turned down at the notable passages. Their souls sit at the windows of their eyes, seeing and to be seen.
+ - Youth is the season of receptivity, and should be devoted to acquirement; and manhood of power – that demands an earnest application. Old age is for revision.
+ - A mother’s love is indeed the golden link that binds youth to age; and he is still but a child, however time may have furrowed his cheek, or silvered his brow, who can yet recall, with a softened heart, the fond devotion, or the gentle chidings, of the best friend that God gives us.
+ - To death we owe our life; the passing of one generation opens a way for another.
+ - Pride is like the beautiful acacia, that lifts its head proudly above its neighbor plants-forgetting that it too, like them, has its roots in the dirt.
+ - Bad taste is a species of bad morals.
+ - There is great beauty in going through life without anxiety or fear. Half our fears are baseless, and the other half discreditable.
+ - Affliction, like the iron-smith, shapes as it smites.
+ - Few minds wear out; more rust out.
+ - Our opinions partake, more or less, of the prejudices of our class, party, or sect. We are all largely pledged, through interest, affection, or passion, to particular classes of opinion, and the strength of efforts to get released from these pledges, is the measure of our advancement.
+ - To cultivate a garden is to walk with God.
+ - The greatest events of an age are its best thoughts. Thought finds its way into action.
+ - Judicious praise is to children what the sun is to flowers.
+ - Successful love takes a load off our hearts, and puts it upon our shoulders.
+ - Vanity in an old man is charming. It is a proof of an open, nature. Eighty winters have not frozen him up, or taught him concealments. In a young person it is simply allowable; we do not expect him to be above it.
+ - Complaint is. more contemptible than pitiful.
+ - Books are embalmed minds.
+ - Adhesion to one idea is monomania; to few, slavery.
+ - The great obstacle to progress is prejudice.
+ - Words of praise, indeed, are almost as necessary to warm a child into a genial life as acts of kindness and affection. Judicious praise is to children what the sun is to flowers.
+ - In one important respect a man is fortunate in being poor. His responsibility to God is so much the less.
+ - Truth, like the sun, submits to be obscured; but, like the sun, only for a time.
+ - A book should be luminous not voluminous.
+ - Men were created for something better than merely to make money. A close application to business, until a competence is gained, is one of the chief virtues; but to continue in trade long after this result is obtained, is one of the signs, not to be mistaken, of a sordid and ignoble nature.
+ - Silence, when nothing need be said, is the eloquence of discretion.
+ - A strong will deals with the hard facts of life as a sculptor with his marbles, making them facile and yielding to his purposes, and conquering their stubbornness by a greater stubbornness in himself.
+ - We should round every day of stirring action with an evening of thought. We learn nothing of our experience except we muse upon it.
+ - The very cunning conceal their cunning; the indifferently shrewd boast of it.
+ - Activity and sadness are incompatible.
+ - Nature has provided for the exigency of privation, by putting the measure of our necessities far below the measure of our wants. Our necessities are to our wants as Falstaff’s pennyworth of bread to his any quantity of sack.
+ - When we get tired of enjoying all the pleasures within our reach, we have still a resource in thinking of others that are not.
+ - It is our relation to circumstances that determines their influence upon us.
+ - Enthusiasm is the inspiration of everything great.
+ - How like a railway tunnel is the poor man’s life, with the light of childhood at one end, the intermediate gloom, and only the glimmer of a future life at the other extremity!
+ - He presents me with what is always an acceptable gift who brings me news of a great thought before unknown. He enriches me without impoverishing himself. The judicious quoter, too, helps on what is much needed in the world, a freer circulation of good thoughts, pure feelings, and pleasant fancies.
+ - The next best thing to being witty one’s self, is to be able to be able to quote another’s wit.
+ - No work deserves to be criticized that has not much in it that deserves to be applauded.
+ - Good men have the fewest fears. He has but one great fear who fears to do wrong; he has a thousand who has overcome it.
+ - Hard workers are usually honest; industry lifts them above temptation.
+ - Woman’s power is over the affections. A beautiful dominion is hers; but she risks its forfeiture when she seeks to extend it.
+ - Hope is the best part of our riches. What sufficeth it that we have the wealth of the Indies in our pockets, if we have not the hope of heaven in our souls?
+ - Words, like cannon balls, should go direct to their mark.
+ - Ambition, in one respect, is like a singer’s voice; pitched at too high a key, it breaks and comes to nothing.
+ - Logic invents as many fallacies as it detects; it is a good weapon, but as liable to be used in a bad as in a good cause.
+ - Qualities not regulated run into their opposites. Economy before competence is meanness after it. Therefore economy is for the poor; the rich may dispense with it.
+ - The body of the sensualist is the coffin of a dead soul.
+ - The nearest approximation to an understanding of life is to feel it – to realize it to the full – to be a profound and inscrutable mystery.
+ - Example has far more followers than reason.
+ - Within the sacred walls of libraries we find the best thoughts, the purest feelings, and the most exalted imaginings of our race.
+ - Women seldom forfeit their claims to respect to men whom they respect.
+ - Besides the five senses, there is a sixth sense, of equal importance – the sense of duty.
+ - Pleasure and pain spring not so much from the nature of things, as from our manner of considering them in particular, what we compare them to.
+ - Economy is for the poor; the rich may dispense with it.
+ - An illusion dissipated is an experience gained.
+ - What we call conscience in many instances, is only a wholesome fear of the law.
+ - Common sense, alas in spite of our educational institutions, is a rare commodity.
+ - Wit is better as a seasoning than as a whole dish by itself.
+ - The loss of a beloved connection awakens an interest in Heaven before unfelt.
+ - Care, admitted as guest, quickly turns to be master.
+ - A genuine passion is like a mountain stream; it admits of no impediment; it cannot go backward; it must go forward.
+ - Tranquil pleasures last the longest; we are not fitted to bear the burden of great joys.
+ - He must put his whole life into his work, who would do it well, and make it potential to influence other lives.
+ - Tis but a short journey across the isthmus of Now.
+ - Loss of sincerity is loss of vital power.
+ - Many an honest man practices upon himself an amount of deceit sufficient, if practised upon another, and in a little different way, to send him to the state prison.
+ - Love makes a few weeks so rich that all the rest of our lives seems poor in comparison.
+ - The opinions of the misanthropical rest upon this very partial basis, that they adopt the bad faith of a few as evidence of the worthlessness of all.
+ - Men, like musical instruments, seem made to be played upon.
+ - The busiest of living agents are certain dead men’s thoughts.
+ - The Breath becomes a stone; the stone, a plant; the plant, an animal; the animal, a man; the man, a spirit; and the spirit, a god.
+ - Courage enlarges, cowardice diminishes resources.
+ - A profusion of fancies and quotations is out of place in a love-letter. True feeling is always direct, and never deviates into by-ways to cull flowers of rhetoric.
+ - An eager pursuit of fortune is inconsistent with a severe devotion to truth. The heart must grow tranquil before the thought can become searching.
+ - Poverty is only contemptible when it is felt to be so. Doubtless the best way to make our poverty respectable is to seem never to feel it as an evil.
+ - What is taken from the fortune, also, may haply be so much lifted from the soul. The greatness of a loss, as the proverb suggests, is determinable, not so much by what we have lost, as by what we have left.
+ - God has created too few unmixed evils to warrant the belief that death is one of them. In all things else in nature, goodness so abounds that we are authorized to infer that it does not stop even at the grave. It is only that her footprints have become invisible.
+ - He half retrieves a defeat who yields to it gracefully.
+ - There is no sense of weariness like that which closes in a day of eager and unintermittent pursuit of pleasure. The apple is eaten, but “the core sticks in the throat.” Expectation has then given way to ennui, appetite to satiety.
+ - Satire is an abuse of wit. It corrects few evils.
+ - Every war involves a greater or less relapse into barbarism. War, indeed, in its details, is the essence of inhumanity. It dehumanizes. It may save the state, but it destroys the citizen.
+ - At the best, sarcasms, bitter irony, scathing wit, are a sort of swordplay of the mind. You pink your adversary, and he is forthwith dead; and then you deserve to be hung for it.
+ - Wit must be without effort. Wit is play, not work; a nimbleness of the fancy, not a laborious effort of the will; a license, a holiday, a carnival of thought and feeling, not a trifling with speech, a constraint upon language, a duress upon words.
+ - Excessive sensibility is only another name for morbid self-consciousness.
+ - Justice, not the majority, should rule.
+ - The legitimate aim of criticism is to direct attention to the excellent. The bad will dig its own grave, and the imperfect may safely be left to that final neglect from which no amount of present undeserved popularity can rescue it.
+ - By his provocations to good-natured merriment, a humorist of the first water contributes as much to the sum of happiness as the gravest philosopher.
+ - Passion looks not beyond the moment of its existence. Better, it says, the kisses of love to day, than the felicities of heaven afar off.
+ - The most brilliant flashes of wit come from a clouded mind, as lightning leaps only from an obscure firmament.
+ - Fame – a few words upon a tombstone, and the truth of those not to be depended on.
+ - If one is not virtuous he becomes vicious.
+ - Youth is too tumultuous for felicity; old age too insecure for happiness. The period most favorable to enjoyment, in a vigorous, fortunate, and generous life, is that between forty and sixty.
+ - Every trait of beauty may be referred to some virtue, as to innocence, candor, generosity, modesty, or heroism. St. Pierre To cultivate the sense of the beautiful, is one of the most effectual ways of cultivating an appreciation of the divine goodness.
+ - Nothing is so fragile as thought in its infancy; an interruption breaks it: nothing is so powerful, even to overturning empires, when it reaches its maturity.
+ - Life is indeed either a rich possession or a poor, according as it is made subservient to noble aims or ignoble pleasures.
+ - To quote copiously and well, requires taste, judgment, and erudition, a feeling for the beautiful, an appreciation of the noble, and a sense of the profound.
+ - Even when we fancy we have grown wiser, it is only, it may be, that new prejudices have displaced old ones.
+ - The trouble with men of sense is that they are so dreadfully in earnest all the while.
+ - Dignity of position adds to dignity of character, as well as to dignity of carriage. Give us a proud position, and we are impelled to act up to it.
+ - The life even of a just man is a round of petty frauds; that of a knave a series of greater. We degrade life by our follies and vices, and then complain that the unhappiness which is only their accompaniment is inherent in the constitution of things.
+ - The heart contracts as the pocket expands.
+ - There are some weaknesses that are peculiar and distinctive to generous characters, as freckles are to a fair skin.
+ - The questions most furiously discussed are those which have in them a basis of truth, and yet a large admixture of errors. We inconsiderately take hold of, and mistakingly support or oppose them, as either wholly true or wholly false.
+ - Most books fail, not so much from a want of ability in their authors, as from an absence in their productions of a thorough development of their ability.
+ - All men are alike in their lower natures; it is in their higher characters that they differ.
+ - There will always be romance in the world so long as there are young hearts in it.
+ - Very handsome women have usually far less sensibility to compliments than their less beautiful sisters.
+ - An ambition to excel in petty things obstructs the progress to nobler aims.
+ - The extent of poverty in the world is much exaggerated. Our sensitiveness makes half our poverty; our fears – anxieties for ills that never happen – a greater part of the other half.
+ - Melancholy sees the worst of things, things as they may be, and not as they are. It looks upon a beautiful face, and sees but a grinning skull.
+ - Wit never appears to greater advantage than when it is successfully exerted to relieve from a dilemma, palliate a deficiency, or cover a retreat.
+ - We absolve a friend from gratitude when we remind him of a favor.
+ - We should not so much esteem our poverty as a misfortune, were it not that the world treats it so much as a crime.
+ - Weakness ineffectually seeks to disguise itself, – like a drunken man trying to show how sober he is.
+ - It is only an error in judgment to make a mistake, but it shows infirmity of character to adhere to it when discovered.
+ - We give our best affections to the beautiful, only our second best to the useful.
+ - Too much society makes a man frivolous; too little, a savage.
+ - A woman’s love, like lichens upon a rock, will still grow where even charity can find no soil to nurture itself.
+ - The less the difference, the greater the quarrel over it.
+ - Luminous quotations, also, atone, by their interest, for the dulness of an inferior book, and add to the value of a superior work by the variety which they lend to its style and treatment.
+ - The best evidence of merit is a cordial recognition of it whenever and wherever it may be found.
+ - Patience is only one faculty; earnestness the devotion of all the faculties. Earnestness is the cause of patience; it gives endurance, overcomes pain, strengthens weakness, braves dangers, sustains hope, makes light of difficulties, and lessens the sense of weariness in overcoming them.
+ - Great warriors, like great earthquakes, are principally remembered for the mischief they have done.
+ - Something of a person’s character may be observed by how they smile. Some never smile they only grin.
+ - God, we are told, looked upon the world after he had created it and pronounced it good; but ascetic pietists, in their wisdom, cast their eyes over it, and substantially pronounce it a dead failure, a miserable production, a poor concern.
+ - Fortune, like a coy mistress, loves to yield her favors, though she makes us wrest them from her.
+ - The finest compliment that can be paid to a woman of sense is to address her as such.
+ - There are none so low but they have their triumphs. Small successes suffice for small souls.
+ - Kindred weaknesses induce friendships as often as kindred virtues.
+ - The reveries of the dreamer advance his hopes, but not their realization. One good hour of earnest work is worth them all.
+ - Age, that acquaints us with infirmities in ourselves, should make us tender in our reprehension of weakness elsewhere.
+ - Merit is never so conspicuous as when coupled with an obscure origin, just as the moon never appears so lustrous as when it emerges from a cloud.
+ - Intellectually, as politically, the direction of all true progress is towards greater freedom, and along an endless succession of ideas.
+ - The highest excellence is seldom attained in more than one vocation. The roads leading to distinction in separate pursuits diverge, and the nearer we approach the one, the farther we recede from the other.
+ - There are ceremonious bows that repel one like a cudgel.
+ - It may almost be held that the hope of commercial gain has done nearly as much for the cause of truth as even the love of truth.
+ - Resentments, carried too far, expose us to a fate analogous to that of the fish-hawk, when he strikes his talons too deep into a fish beyond his capacity to lift, and is carried under and drowned by it.
+ - The cause of laziness is physiological; it is an infirmity of the constitution, and its victim is as much to be pitied as a sufferer from any other constitutional infirmity. It is even worse than many other diseases; from them the patient may recover, while this is incurable.
+ - Troubles forereckoned are doubly suffered.
+ - The cure for tender sensibilities is to make more of our objects and less of our selves.
+ - It is curious to what a degree one may become attached to a fine tree, especially when it is placed where trees are rare.
+ - There are seaons when our passions have slept so long that we know not whether they still exist in us. So does flax forget that it is combustible when the fire is away from it.
+ - It is with charity as with money – the more we stand in need of it, the less we have to give away.
+ - There is probably no hell for authors in the next world – they suffer so much from critics and publishers in this.
+ - Sorrow is never more sorrowful than when it jests at its own misery.
+ - Truth comes to us from the past, as gold is washed down from the mountains of Sierra Nevada, in minute but precious particles, and intermixed with infinite alloy, the debris of the centuries.
+ - Excellence in art is largely the result of attention to minutiae, and – prayer.
+ - A particular disappointment is seldom more than an excrescence upon the trunk of a general good – a shower that spoils the pleasure party, but refreshes and enriches the earth.
+ - Ambitious princes value inherited kingdoms not so much as conquered provinces.
+ - The knowledge beyond all other knowledge is the knowledge how to excuse.
+ - As many suffer from too much as too little.
+ - The language denotes the man. A coarse or refined character finds its expression naturally in a coarse or refined phraseology.
+ - Neither love nor ambition, as it has often been shown, can brook a division of its empire in the heart.
+ - In secluding himself too much from society, an author is in danger of losing that intimate acquaintance with life which is the only sure foundation of power in a writer.
+ - We take life too seriously: the office of wit is to correct this tendency.
+ - A man cannot paint portraits till he has seen faces.
+ - Character is very much a matter of health.
+ - Give me the character and I will forecast the event.
+ - He that shrinks from the grave with too great a dread, has an invisible fear behind him pushing him into it.
+ - Marriage, by making us more contented, causes us often to be less enterprising.
+ - In art there are two principal schools between which each aspirant has to choose – one distinguished by its close adherence to nature, and the other by its strenuous efforts to get above it.
+ - The activity of the young is like that of railcars in motion – they tear along with noise and turmoil, and leave peace behind them. The quietest nooks, invaded by them, lose their quietude as they pass, and recover it only on their departure.
+ - Alas, the transports beauty can inspire!
+ - We may learn from children how large a part of our grievances is imaginary. But the pain is just as real.
+ - Examples are few of men ruined by giving.
+ - Hope is the best part of our riches.
+ - Wit, like poetry, is insusceptible of being constructed upon rules founded merely in reason. Like faith, it exists independent of reason, and sometimes in hostility to it.
+ - Elements of the heroic exist in almost every individual: it is only the felicitous development of them all in one that is rare.
+ - Winter is the night of vegetation.
+ - The scope of an intellect is not to be measured with a tape-string, or a character deciphered from the shape or length of a nose.
+ - It is one of the arts of a great beauty to heighten the effect of her charms by affecting to be sweetly unconscious of them.
+ - All power is indeed weak compared with that of the thinker. He sits upon the throne of his Empire of Thought, mightier far than they who wield material sceptres.
+ - To be without sympathy is to be alone in the world – without friends or country, home or kindred.
+ - Difficulties, by bracing the mind to overcome them, assist cheerfulness, as exercise assists digestion.
+ - The natural wants are few, and easily gratified: it is only those which are artificial that perplex us by their multiplicity.
+ - The use we make of our fortune determines its sufficiency. A little is enough if used wisely, and too much if expended foolishly.
+ - Whether one talks well depends very much upon whom he has to talk to.
+ - Dishonest people conceal their faults from themselves as well as others, honest people know and confess them.
+ - It is seldom that we find out how great are our resources until we are thrown upon them.
+ - It is of very little use in trying to be dignified, if dignity is no part of your character.
+ - We cannot reason ourselves into love, nor can we reason ourselves out of it, which suggests that love and reason have little to do with each other.
+ - Who aspires to remain leader must keep in advance of his column. His fear must not play traitor to his occasions. The instant he falls into line with his followers, a bolder spirit may throw himself at the head of the movement initiated, and in that moment his leadership is gone.
+ - It is the life of democracy to favor equality.
+ - Next to faith in God, is faith in labor.
+ - Beauty can afford to laugh at distinctions: it is itself the greatest distinction.
+ - Better freedom with a crust, than slavery with every luxury.
+ - We repose too much upon the actual, when we should be seeking to develop the possibilities of our being. It is true of nearly all of us, that what we have done is little compared with what we might have accomplished, or may hereafter effect.
+ - Motives are better than actions. Men drift into crime. Of evil they do more than they contemplate, and of good they contemplate more than they do.
+ - The worth of a book is a matter of expressed juices.
+ - When we have the means to pay for what we desire, what we get is not so much what is best, as what is costliest.
+ - In a contest with a weaker party it is more honorable to yield than to force concession. Magnanimity becomes the strong.
+ - None but those who have loved can be supposed to understand the oratory of the eye, the mute eloquence of a look, or the conversational powers of the face. Love’s sweetest meanings are unspoken; the full heart knows no rhetoric of words, and resorts to the pantomime of sighs and glances.
+ - It is the passion that is in a kiss that gives to it its sweetness; it is the affection in a kiss that sanctifies it.
+ - A peculiar work in any art must not be too hastily judged. New styles have to create new tastes.
+ - Passion doesn’t look beyond the moment of its existence.
+ - The past is the sepulchre of our dead emotions.
+ - It is in vain that he seeks dominion abroad, who is not kingly at home.
+ - Earnestness is the devotion of all the faculties.
+ - All good writing leaves something unexpressed.
+ - If it is a distinction to have written a good book, it is also a disgrace to have written a bad one.
+ - It is not the number of facts he knows, but how much of a fact he is himself, that proves the man.
+ - In the assurance of strength there is strength; and they are the weakest, however strong, who have no faith in themselves or their powers.
+ - Genuine religion is matter of feeling rather than matter of opinion.
+ - It is some compensation for great evils, that they enforce great lessons.
+ - He has but one great fear that fears to do wrong.
+ - Rejecting the miracles of Christ, we still have the miracle of Christ Himself.
+ - One must have been, at some time or other, in a situation where a small sum was as necessary almost as life itself, with no more ability to raise it than to raise the dead, before he can fully appreciate the value of money.
+ - There is no tyrant like custom, and no freedom where its edicts are not resisted.
+ - Mortal beauty stings while it delights.
+ - Ideas are like matter, infinitely divisible. It is not given to us to get down so to speak to their final atoms, but to their molecular groupings-the way is never ending and the progress infinitely delightful and profitable...
+ - There would not be so much harm in the giddy following the fashions, if somehow the wise could always set them.
+ - Dreamers are half-way men of thought, and men of thought are half-way men of action.
+ - The method of the critic is to balance praises with censure, and thus to do justice to the subject and – his own discrimination.
+ - It is with a company as it is with a punch, everything depends upon the ingredients of which it in composed.
+ - Without death in the world, existence in it would soon become, through over-population, the most frightful of curses.
+ - The cheerful live longest in years, and afterwards in our regards. Cheerfulness is the off-shoot of goodness.
+ - Sensitiveness is closely allied to egotism; and excessive sensibility is only another name for morbid self-consciousness. The cure for tender sensibilities is to make more of our objects and less of our selves.
+
+244 quotes

@@ -1,0 +1,35 @@
+ - Gratitude is a soil on which joy thrives.
+ - Years teach us more than books.
+ - To acquire money requires valor, to keep money requires prudence, and to spend money well is an art.
+ - The world is the same everywhere.
+ - All men are selfish, but the vain man is in love with himself. He admires, like the lover his adored one, everything which to others is indifferent.
+ - The silver-leaved birch retains in its old age a soft bark; there are some such men.
+ - Being alone when one’s belief is firm, is not to be alone.
+ - Weak men are easily put out of humor. Oil freezes quicker than water.
+ - We hear the rain fall, but not the snow. Bitter grief is loud, calm grief is silent.
+ - What will people say-in these words lies the tyranny of the world, the whole destruction of our natural disposition, the oblique vision of our minds. These four words hold sway everywhere.
+ - To harbor hatred and animosity in the soul makes one irritable, gloomy, and prematurely old.
+ - Of all afflictions, the worst is self contempt.
+ - In Nature there is no dirt, everything is in the right condition; the swamp and the worm, as well as the grass and the bird,-all is there for itself.
+ - Judaism lives not in an abstract creed, but in its institutions.
+ - The vain being is the really solitary being.
+ - I have been young and am now old, and have not yet known an untruthful man to come to a good end.
+ - Liberty is from God; liberties, from the devil.
+ - Only he is free who cultivates his own thoughts and strives without fear to do justice to them.
+ - Our second mother, habit, is also a good mother.
+ - It is only when one is thoroughly true that there can be purity and freedom. Falsehood always punishes itself.
+ - Why has no religion this command before all others: Thou shalt work?
+ - Some men, like modern shops, hang everything in their show windows; when one goes inside, nothing is to be found.
+ - What is all our knowledge worth? We do not even know what the weather will be tomorrow.
+ - With hat in hand, one gets on in the world.
+ - We consider it tedious to talk of the weather, and yet there is nothing more important.
+ - People look with sympathetic eyes only at the blossom and the fruit, and disregard the long period of transition during which the one is ripening into the other.
+ - Imagination is the mightiest despot.
+ - Truly, one gets easier accustomed to a silken bed than to a sack of leaves.
+ - The little dissatisfaction which every artist feels at the completion of a work forms the germ of a new work.
+ - He who, to be happy, needs nothing but himself, is happy.
+ - Solitude has a healing consoler, friend, companion: it is work.
+ - When you have discovered a stain in yourself, you eagerly seek for and gladly find stains in others.
+ - If you sound great in the practice room, you’re practicing the wrong thing. Music washes away from the soul the dust of everyday life.
+
+33 quotes

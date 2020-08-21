@@ -1,0 +1,39 @@
+ - If you lose self-control everything will fall. ~~John Wooden
+ - You need self-control in an out-of-control world. ~~James C. Collins
+ - In that power of self-control lies the seed of eternal freedom. ~~Paramahansa Yogananda
+ - Don’t be curious of matters that don’t concern you; never speak of them, and don’t ask about them. ~~Teresa of Ávila
+ - Self-control is the quality that distinguishes the fittest to survive. ~~George Bernard Shaw
+ - Self-control is solely a matter of thought-control! ~~Napoleon Hill
+ - When we direct our thoughts properly, we can control our emotions. ~~W. Clement Stone
+ - If you neglect to exercise self-control, you are not only likely to injure others, but you are sure to injure yourself! ~~Napoleon Hill
+ - Not to have control over the senses is like sailing in a rudderless ship, bound to break to pieces on coming in contact with the very first rock. ~~Mahatma Gandhi
+ - As far as your self-control goes, as far goes your freedom. ~~Marie von Ebner-Eschenbach
+ - Waiting is one of the great arts. ~~Margery Allingham
+ - He that would govern others, first should be the master of himself. ~~Philip Massinger
+ - The greatest power of ruling consists in the exercise of self-control. ~~Seneca the Younger
+ - Self-control is only courage under another form. ~~Samuel Smiles
+ - When we have begun to take charge of our lives, to own ourselves, there is no longer any need to ask permission of someone. ~~George O'Neil
+ - Self-control is one of the most exhilarating of pleasures. ~~William F. Buckley Jr.
+ - Self-control is the ability to restrain a laugh at the wrong place. ~~Elbert Hubbard
+ - There are many whose tongues might govern multitudes, if they could govern their tongues. ~~Jim Prentice
+ - Governments do not govern, but merely control the machinery of government, being themselves controlled by the hidden hand. ~~Benjamin Disraeli
+ - Seek always for the answer within. Be not influenced by those around you, by their thoughts or their words. ~~Eileen Caddy
+ - This is the gist of what I know: Give advice and buy a foe. ~~Phyllis McGinley
+ - Always clamping down on excitement is not self-control but fear. ~~Mason Cooley
+ - Who is fit to govern others? He who governs himself. You might as well have said: nobody. ~~Augustus William Hare
+ - An element of abstention, of restraint, must enter into all finer joys. ~~Vida Dutton Scudder
+ - Your mid-thirties is a good time because you know a fair amount, you have some self-control. ~~Zadie Smith
+ - The ability to subordinate an impulse to a value is the essence of the proactive person. ~~Stephen R. Covey
+ - There is no hierarchy of values by which one culture has the right to insist on all its own values and deny those of another. ~~Margaret Mead
+ - Leaders can be moral-and they should be moral-without imposing their morality on others. ~~Geraldine Ferraro
+ - No confict is so severe as his who labors to subdue himself. ~~Thomas à Kempis
+ - Any woman who is sure of her own wits, is a match, at any time, for a man who is not sure of his own temper. ~~Wilkie Collins
+ - Conscience whispers, but interest screams aloud. ~~Jean Antoine Petit-Senn
+ - I have a great objection to seeing anyone, particularly anyone whom I care about, lose his self-control. ~~Eleanor Roosevelt
+ - Ambition, old as mankind, the immemorial weakness of the strong. ~~Vita Sackville-West
+ - He that blows the coals in quarrels that he has nothing to do with, has no right to complain if the sparks fly in his face. – Ben Franklin. ~~Benjamin Franklin
+ - The only people who would be in government are those who care more about people than they do about power. ~~Millicent Fenwick
+ - I’m not looking for self-control. ~~Maggie Stiefvater
+ - Nothing could bother me more than the way a thing goes dead once it has been said. ~~Gertrude Stein
+
+37 quotes

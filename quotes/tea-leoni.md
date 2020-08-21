@@ -1,0 +1,31 @@
+ - In your teens, you think you know everything, and you know nothing. By your thirties, you’re sure you know nothing, but you’re happy with that.
+ - I don’t mean to be presumptuous that men don’t feel this, I don’t mean this, but I found that when my child was born, my first child, it felt like my heart broke.
+ - It’s kind of fun to be sexy.
+ - There is no greater cause than making the world fit for children. I feel very strongly about carrying on the family tradition by working with UNICEF to help improve the lives and well-being of children everywhere.
+ - It was just this interesting, my first, the first time you hear your child in any way criticise you. It’s the worst review of your life and it’s really relieving to find out that they don’t know what they’re saying.
+ - The one thing I think you must do is, as painful as it is as a parent, is listen.
+ - Acting doesn’t feel good. It’s not comfortable to feel all this stuff, it’s not.
+ - What happens, matters. Maybe only to us but it matters.
+ - David Duchovny asked me while I was picking out shoes in the closet. It wasn’t a special occasion. He just asked, ‘Will you marry me?’
+ - People don’t know this, but early in your career, you don’t just glide on to The Tonight Show.
+ - I just mean it’s very difficult for me to watch my work, in some ways, because I am critical of what I didn’t get across or I thought I was making one point.
+ - I’ve been in a gym probably nine days of my life.
+ - I’m not quite ready for a no makeup movie.
+ - Yes, I guess I am bi-coastal.
+ - Sometimes, I feel that Manhattan in particular has gotten really tame and gentrified or something.
+ - Jim Brooks is a very powerful director and it was a lot of intense work.
+ - Shopping turns me off.
+ - If I swim in the ocean, I have a shark thought. Not a bad one, but just a little one.
+ - At one point, I had 14 pairs of golf shoes.
+ - I dress up for awards, but only if somebody else is going to pay for the clothes. And shop for them, too!
+ - First of all, returning from motherhood, I was looking for something lighter, and I wasn’t as much attracted to Kate as I was to the relationship between the two people.
+ - I was one of the most brilliant liars as a child.
+ - But I can tell you that the New York that I see now is not the New York that we grew up in. It’s not 1973.
+ - I live by a hill. I began walking it and then I began jogging it and then I began sprinting it.
+ - I don’t find glamour and clothing relevant.
+ - I’m not a huge fan of my work.
+ - But I’ve never looked at myself as being particularly funny.
+ - And I thought, you know, I have to say that maybe the whacked out mother is my new favorite role, but I don’t want to just do it and become Nurse Ratchett.
+ - I have always loathed working out.
+
+29 quotes

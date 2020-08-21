@@ -1,0 +1,33 @@
+ - You are always a student, never a master. You have to keep moving forward.
+ - But at heart, I am more than a cinematographer.
+ - Dad, wherever you are, you are gone but you will never be forgotten.
+ - Every cinematographer I worked with had his own way of solving problems.
+ - Photography is a very important part of my life.
+ - I hope I’m still shooting when I’m 80.
+ - Painting and writing are solitary arts.
+ - I was very happy sitting alone at a dining room table, writing a script.
+ - Contrast is what makes photography interesting.
+ - Manipulating shadows and tonality is like writing music or a poem.
+ - To me, the camera is like a musical instrument. You use it to control the flow, shape, size and colors of images.
+ - The sun is the most parallel light source because it is so far away.
+ - It was 100 feet of 16 mm black-and-white film of a car coming to a stop sign, and driving off. I had to decide how to frame and light it. It was magic. There was a sense of mystery.
+ - You have to understand the nature of light.
+ - There are a lot of directors who are knowledgeable about images, and others who aren’t.
+ - The closer the source of light is to a subject, the broader the beams are.
+ - But you know you haven’t done it all because you know everything keeps evolving and changing; and you know you can evolve with it if you grow and develop as a human being.
+ - It’s important to know that if you are dealing with shadows.
+ - That’s why I like fast film. It gives you more freedom to light more naturally.
+ - The audience has to understand that if the film is going to have any meaning for them. If they are going to empathize with the characters, they have to visualize the process of concentration involved in making every move.
+ - With today’s fast films, you can light the way your eye sees the scene. You can abuse the film and create subtleties in contrast with light and exposure, diffusion and filters. That’s what makes it an art.
+ - I don’t think of myself as a director or writer. I think of myself as a filmmaker.
+ - I can still recall the thrill of shooting my first film.
+ - I think one of the reasons people quit is because they’re afraid they won’t be able to get better and better; that they have to come to a zenith of some kind.
+ - My peers say I have made a difference. That means more to me than winning an Oscar.
+ - In aptitude tests, I scored highest in music.
+ - Every once in a while, when the audience is expecting to see one thing, you have to show them something else.
+ - It is also difficult to articulate the subtleties in cinema, because there aren’t words or metaphors which describe many of the emotions you are attempting to evoke.
+ - Billions of people have seen and been influenced by movies in the short history of this industry.
+ - I suppose I would still be a communicator, maybe a musician.
+ - It took a while for me to grasp that my colleagues believe I have made an impact on the history of cinema.
+
+31 quotes

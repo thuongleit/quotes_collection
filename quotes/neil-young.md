@@ -1,0 +1,207 @@
+ - Out of the blue and into the black.
+ - I am just a dreamer, but you are just a dream.
+ - Hey, hey, my, my, rock and roll will never die.
+ - Live music is better.
+ - I want to live, I want to give, I’ve been a miner for a heart of gold.
+ - The king is gone but he’s not forgotten.
+ - There’s more to a picture than meets the eye.
+ - It doesn’t mean that much to me to mean that much to you.
+ - One good thing about the past is that you can’t change it. So there’s no reason to go back. It’s there. It is what it is. The only thing you can change is right now and what’s happening next.
+ - Rock and roll is here to stay.
+ - Only love can break your heart.
+ - Holding back is so close to stealing.
+ - Don’t let it bring you down. It’s only castles burning, find someone who’s turning, and you will come around.
+ - You are like a hurricane, there’s calm in your eyes, and I’m getting blown away.
+ - It’s a cold bowl of chili when love lets you down.
+ - It’s easy to get buried in the past when you try to make a good thing last.
+ - Respect Mother Earth and her giving ways or trade away our children’s days.
+ - True love opens the gates of time.
+ - Down by the river, I shot my baby dead.
+ - The same thing that makes you live can kill you in the end.
+ - In the fields of opportunity it’s plowing time again.
+ - Old man take a look at my life, I’m a lot like you were.
+ - You can’t be 20 on Sugar Mountain.
+ - Starts out slow and then fizzles out altogether.
+ - Give a hippie too much money and anything can happen.
+ - Ten silver saxes, a bass with a bow, the drummer relaxes in between shows with his cinnamon girl.
+ - It’s cool to go places where working people are happy.
+ - I’m free to give my love, but you’re not the one I’m thinking of.
+ - One new feature or fresh take can change everything.
+ - In a Ramada Inn near the grapevine, they stop to rest for the night. Traveling down south, looking for good times. Visiting old friends feels right.
+ - Love is a healer and I love you.
+ - As I get older, I get smaller. I see other parts of the world I didn’t see before. Other points of view. I see outside myself more.
+ - Though my problems are meaningless, that don’t make them go away.
+ - Don’t feel like Satan, but I am to them. And I try to forgive them anyway I can.
+ - I dreamed I saw the silver spaceships flying in the yellow haze of the sun. There were children crying and colors flying all around the chosen ones.
+ - Freedom is an abstract offshoot. You can’t describe freedom. How can you describe it? I tried and I failed.
+ - It’s going to take a lot of love to make things work out right.
+ - I’m not into organized religion. I’m into believing in a higher source of creation, realizing we’re all just part of nature.
+ - It’s the woman in you that makes you want to play this game.
+ - You were born to rock, you’ll never be an opera star.
+ - Faith builds the bridge from this old world to the new.
+ - Some get stoned, some get strange, but sooner or later it all gets real.
+ - There was a band playing in my head, And I felt like getting high.
+ - I was just 20 years old when I wrote Broken Arrow.
+ - Instead of cursing the darkness, light a candle for where we’re going. There’s something ahead worth fighting for.
+ - I see a government completely out of control, and money is number one. Integrity isn’t even on the map.
+ - The true martial artist yields to the weak, while withstanding the strong.
+ - If you wanna write a song, ask a guitar.
+ - Went looking for faith on the forest floor, and it showed up everywhere. In the sun, and the water, and the falling leaves, the falling leaves of time.
+ - We have a thousand points of light for the homeless man. We’ve got a kinder gentler machine gun hand.
+ - The devil fools with the best laid plans.
+ - My life is not a political campaign. I just write about what is on my mind. I just play whatever I feel like playing. Whatever is in my soul at the time is what I want to do. I have, thank god, enough people who are still interested in what I am doing so that I can go out and keep doing it.
+ - Nothing is perfect in God’s perfect plan.
+ - If I could go back in time and see any band, It would be Link Wray and the Raymen.
+ - Every junkie is like a setting sun.
+ - Cocaine eyes won’t hide your face.
+ - When people start asking you to do the same thing over and over again, that’s when you know you’re way too close to something that you don’t want to be near.
+ - I used to walk like a giant on the land. Now I feel like a leaf floating in a stream.
+ - With Crazy Horse, it’s all one big, growing, smoldering sound, and I’m part of it. It’s like gliding, or some sort of natural surfing.
+ - That’s a defining moment, there, when someone plays an instrument that everyone relates to around the planet.
+ - As you go through life, you’ve got to see the valleys as well as the peaks.
+ - Without freedom of expression, good taste means nothing.
+ - Imagination is my best friend.
+ - Tin soldiers and Nixon coming, We’re finally on our own. This summer I hear the drumming, Four dead in Ohio.
+ - Lust comes creeping through the night to feed on hearts of suburban wives who learned to pretend when they met their dreams end.
+ - In my life I have had various health threats: polio, seizures, a brain aneurysm. None of these things has really changed me much, although it is hard to say for sure. These are events that are part of my life. They make me who I am. I am thankful for them. They are scary.
+ - Crazy friends provide for crazy times, and such crazy times we’re had.
+ - I’m not a preacher, and I’m certainly not a good example, but I have my own feelings about God. I’m kind of a nature guy. My cathedral is forests, or the prairies, or the beach.
+ - Everybody seems to wonder what it’s like down here. I gotta get away from this day-to-day running around. Everybody knows this is nowhere.
+ - You gotta keep changing. Shirts, old ladies, whatever.
+ - Every wave is new until it breaks.
+ - Music lovers always want to hear the best. It’s about freedom of choice, we supply the music.
+ - I’ll go for things that I know are going to be wrong, with a vengeance.
+ - I see a woman in the night with a baby in her hand, under an old street light near a garbage can.
+ - Sailing heart-ships through broken harbors out on the waves of the night, still the searcher must ride the dark horse racing alone in his fright.
+ - If you follow every dream, you might get lost.
+ - I got religion in the airport, my Lord. They caught me waiting on my baggage when I was bored.
+ - Ain’t singing for Pepsi, ain’t singing for Coke, I don’t sing for nobody, makes me look like a joke.
+ - Mother Goose, she’s on the skids. Sure ain’t happy, neither are the kids.
+ - When the punk thing came along and I heard my friends saying, I hate these people with the pins in their ears. I said, Thank God, something got their attention.
+ - All these people talking about morality should just take a walk downtown. They don’t want to go downtown because instantly they see homeless people and they don’t want to.
+ - Was he a doper or was he just a loser?
+ - I try not to look back. I’m looking forward. I’m worried more about what I’m going to do next week than I am what I did last week. There are too many things to do. Looking back is for everybody else.
+ - Took out Skinny Minnie, Long Tall Sally, and Short Fat Fanny, but I’m kinda fonda Wanda.
+ - Back then people closed their eyes and listened to music. Today there’s a lot of images that go with the music. A lot of music is crap and it’s all commercial and the images are all trying to sell the record.
+ - Vinyl is great, I made a lot of vinyl, but I don’t want new vinyl that’s from digital sources, because that’s a rip off.
+ - I just wrote one song at a time. Kinda like an alcoholic. One day at a time.
+ - I’ve always been better moving than I am standing still.
+ - Most people think it’s the other way around: that time is going faster and we’re doing less. But really time seems to be going faster because we’re cramming so much into it.
+ - I don’t know if I’ll find the cinnamon girl. I think I already did, but I’m still singing, who knows.
+ - I’ll never be Bob Dylan. He’s the master.
+ - The person who still blushes is not yet a degenerate.
+ - Bad news is just an excuse.
+ - Listen to your own voice. Don’t listen to someone else’s. To me the way to live is to always move forward – to keep searching for whatever it is that interests you.
+ - Are you negative in a world that never stops turning on you?
+ - I like to play with people who can play simple and are not threatened by other musicians thinking they can’t play. And that eliminates 99 percent of the musicians.
+ - The way in which the USA and Great Britain delivered Iraq to the Iraqis, the way and means that this played out, that is the endgame.
+ - The person who builds a character makes foes.
+ - Long, flat expanses of professionalism bother me. I’d rather have a band that could explode at any time.
+ - I always try to get behind the guy steering the ship. That’s the kind of guy I am.
+ - I was a Reagan backer. It was a shock for some people that I could agree with anything that man would say.
+ - Some people put down all presidents. If you say anything good about any of them, they think you’re supporting everything they do.
+ - I may not be the devil, but I know just how he feels.
+ - Steve Jobs was a digital pioneer, but when he went home, he listened to vinyl.
+ - Wooden ships are a hippie dream, capsized in excess if you know what I mean.
+ - An idea discovered is much better possessed.
+ - I love it when people yell at me about the environment and then I tell ’em I’m burning 90% cleaner than them.
+ - To protect our freedoms, it seems we’re going to have to relinquish some of our freedoms for a short period of time.
+ - I want to be a reflection of what’s going on and let people draw their own conclusions.
+ - I am succeeding because people are talking about how they would do it better.
+ - I have so many opinions about everything it just comes out during my music. It’s a battle for me. I try not to be preachy. That’s a real danger.
+ - Hard working people stopping for a drink on the way to work.
+ - Southern change gonna come at last! Now your crosses are burning fast, Southern Man.
+ - I don’t look at a knife the way I used to. I’m more aware of what it is. I think twice. This is a key finger. It’s in every chord.
+ - I need a new unit to sample and hold, but not an angry one, a new design, new design.
+ - I get into each thing I do, to the point where nothing else matters. I guess I’m an extremist.
+ - I totally have no other talent and I would be totally out of work if I did anything else.
+ - The cutthroat avenues of rock ‘n’ roll, I am fed up with. I don’t want anything to do with it.
+ - Got to fight to control the violent side, every day and night.
+ - You know how the press is: If I mention one mistake, that’s the only thing that bothers me unless I mention all the other ones.
+ - I like it if people enjoy what I’m doing, but if they don’t, I also like it. I sometimes really like aggravating people with what I do. I think it’s good for them.
+ - I don’t have to perform to stay in the public eye anymore. I really don’t. I am who I am and what I do on musical stage these days really makes no difference at all. I already have all the momentum there. I am only doing it because I love to do it.
+ - I watched the needle take another man.
+ - Commitments are one of the worst things to have in the music business. They’re very annoying.
+ - Like a mountain that’s growing.
+ - I think in some ways – only in some ways – but in some ways, rock and roll has let me down. It really doesn’t leave you a way to grow old gracefully and continue to work.
+ - I don’t think there is one president that’s come down the line that hasn’t done something good somewhere.
+ - Studios are passe for me. I’d rather play in a garage, in a truck, or a rehearsal hall, a club, or a basement.
+ - For whatever you’re doing, for your creative juices, your geography’s got a hell of a lot to do with it. You really have to be in a good place, and then you have to be either on your way there or on your way from there.
+ - Our educational system basically strives for normal-which is too bad. Sometimes the exceptional is classified as abnormal and pushed aside.
+ - Something comes along and you have to jump on and do it. You can’t stop until it’s done.
+ - There were some things Reagan liked that I liked. The main component was that people have to talk to each other and help themselves.
+ - A little love and affection in everything you do will make the world a better place with or without you.
+ - All I’m doing is writing it down and putting it in a cadence. Once I get into a cadence, then why should I even stop and wonder what it is? You can do that for the rest of your life, but when it’s coming out, you don’t want to stop it.
+ - A young man of pleasure is a man of pains.
+ - I’m not into this judgmental, religious-right kind of thing.
+ - I live for playing live. All my records are live, since After the Gold Rush, with the exception of Trans and the vocals on Landing on Water.
+ - Did He give me the gift of love to say who I could choose? When God made me did He give me the gift of voice so some could silence me? Did he give me the gift of vision not knowing what I might see? Did he give me the gift of compassion to help my fellow man?
+ - Let’s roll for justice, let’s roll for truth. Let’s not let our children grow up fearful in their youth.
+ - Faith is not reason’s labour, but repose.
+ - The punches came fast and hard, lying on my back in the school yard.
+ - Possessions and concessions are not often what they seem, they drag you down and load you down in disguise of security.
+ - There’s two kinds of love, one is wrong and one is right.
+ - Said the condor to the preying mantis, we’re gonna lose this place just like we lost Atlantis.
+ - As soon as you start preaching, nobody wants to hear you because then you’re a jerk.
+ - No one has the answers, but one thing is true. You got to turn on evil, when its coming after you.
+ - I’m always open to new stuff. I don’t sit and try to figure out what to do, I just wait for an idea to come.
+ - The Arabic states have to be integrated into the Iraqi reconstruction. We need the help of the Arabic community, which understands its culture. Americans arrive, invade, occupy.
+ - Wise it is to comprehend the whole.
+ - Learning from other people is what music is all about.
+ - As soon as you start talking about mystique, you have none.
+ - It was then I knew I’d had enough, Burned my credit card for fuel Headed out to where the pavement turns to sand With a one-way ticket to the land of truth And my suitcase in my hand.
+ - Of course you have to support the troops. They’re just kids. They’re doing for their country what’s expected of them.
+ - I didn’t really know what I was doing when I started. I just started writing songs. After two songs I just continued to explore it.
+ - This thing called Patriot Act, through which we abdicated a lot of our civil rights to defend the country against terrorism, it’s a four-year story.
+ - Think I’ll roll another number for the road.
+ - Government can’t completely take care of people by making a bunch of promises and programs. Organize your communities.
+ - I don’t like the American media – particularly Fox.
+ - It’s stupid to expect perfection from bands because afterall they’re just human beings.
+ - We have to understand that people are different. I don’t know, if we really understand who we’re dealing with over there.
+ - I can get away with saying a lot of ideas that are young and naive. I’m liberated.
+ - I’ve seen the needle and the damage done.
+ - The rockets and the satellites, spaceships that we’re creating now, we’re pollinating the universe.
+ - Being a musician enables a person to bend the notes and express things that are inside you, no matter what.
+ - I don’t like war. I particularly don’t like the celebration of war, which I think the administration is a little bit guilty of.
+ - There’s a lot of frustration in trying to get music out when you’re the only one who hears it, especially if you have something in your head that’s not normal.
+ - There’s an edge to real rock ‘n’ roll. It’s all that matters.
+ - I go in and sing the song and arrange it and mix it and that’s it. It’s no different than playing in clubs.
+ - As important as the funds are, the vision is the greatest gift.
+ - It’s a blue album, but it’s not a blues album. I’m not pretending all of a sudden now I’m blues.
+ - I always play more than I talk, so the more I talk, the more I’ll play.
+ - We need to spread out now in the universe. I think in 100 years we’ll be living on other planets.
+ - On one side the government, the other side the mob.
+ - Southern man better keep your head, don’t forget what your good book says.
+ - People who agree with you already agree with you – you don’t change peoples minds.
+ - A job is never truly finished. It just reaches a stage where it can be left on its own for a while.
+ - Being sued by your own record company, that’s even better than receiving a Grammy.
+ - It’s all very hazy to me now. I’m glad I made it through that stage. It got a little dicey. There were some drugs going on. I remember singing one song for about a day and a half.
+ - We’re very highly evolved, and we should be very responsible for what we’ve learned.
+ - When I first tried out some hash, smoked some then. And I’ll do it again, if only I had some cash.
+ - My music isn’t anything but me. It has jazz in it, and rock’n’roll, and it has an urgency to it.
+ - The ’60s was one of the first times the power of music was used by a generation to bind them together.
+ - We live in the digital age, and unfortunately it’s degrading our music, not improving.
+ - Don’t think. The worst songs I’ve ever written happen when I think.
+ - The politics, I don’t understand it, I’m not happy, don’t feel good about it.
+ - I don’t like to be labeled, to be anything. I’ve made the mistake before myself of labeling my music, but it’s counter-productive.
+ - If you want to get lost in the jungle rhythm, get down on the ground and pretend you’re swimming.
+ - I never knew a man could tell so many lies, he had a different story for every set of eyes. How can he remember who he’s talking to?
+ - You’re as close to heaven as I’ll ever be.
+ - Hate was just a legend and war was never known. The people worked together and they lifted many stones.
+ - Earth is a flower and it’s pollinating.
+ - It’s gotta be fun, if it’s not fun it’s not worth doing. Music is about having a good time feeling your soul, whether it makes you laugh or it makes you cry, just so long as you feel as much as you can. That’s the mission of Pono.
+ - We don’t build a record. We’re taking a picture of it. We’re not building an image; we’re capturing an image.
+ - Most pleasures, like flowers when gathered die.
+ - This is the 21st century, we are a highly evolved race, our capabilities are so great compared to what we are doing. We have been lulled into addiction and everything is built around it and you have to break out of it and think outside of the box.
+ - The thing about my music is, there really is no point.
+ - I feel like I could be likened to an old hound circling on a rug for the last five years.
+ - My career is built around a pattern that just keeps repeating itself over and over again. There’s nothing surprising about it at all. My changes are as easy to predict as the sun coming up and down.
+ - I think I’m going to be making country records for as long as I can see into the future. It’s much more down-home and real.
+ - I ran into the preacher, said God was on my side, then I ran into the hangman.
+ - Love and only love will endure. Hate is everything you think it is. Love and only love will break it down.
+ - I’m not the same as I was long ago, I’ve learned some new things and I hope that it shows.
+ - And you can’t get away from a mirror if you stand in front of it all the time, right. But if you step away from it, you don’t notice it any more. And that’s what the stage is like for me. See, an image becomes meaningless in as much as it’s always temporary.
+ - With a lot of songs on this record, one verse doesn’t relate to the next verse. I don’t think that one day really relates to the next day in life.
+ - People don’t normally change when things are going well. But I want to see what’s next and keep moving. That keeps things fresh.
+
+205 quotes

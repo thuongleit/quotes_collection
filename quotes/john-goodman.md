@@ -1,0 +1,30 @@
+ - Relax. Just relax and have fun doing what you’re doing. Don’t worry so much about being results oriented. Just commit yourself to the moment.
+ - When I was young, we couldn’t afford much. But, my library card was my key to the world.
+ - You’re entering a world of pain.
+ - George Washington Bridge? You throw yourself off the Brooklyn Bridge, traditionally. George Washington Bridge, who does that?
+ - People just do the strangest things when they believe they’re entitled. But they do even stranger things when they just plain believe.
+ - I’m just a lazy boy. I’d rather sit in my recliner and act.
+ - I hated Woody Woodpecker and Scooby-Doo, but I was a cartoon freak.
+ - Read, read, read, read, read. Read everything. You can’t work unless you know the world, and outside of living in the world the best way to learn about the world is to read about it.
+ - But I’m not as bad as Al Pacino – he doesn’t even know what month it is half the time when he’s working.
+ - TV is the best babysitter.
+ - As far as I know, the guys at Pixar are opposed to a Monsters, Inc. sequel.
+ - This happens to be that the power of laughter and love would beat out the power of fear every time. You know, I hate to sound corny about it but it’s true, and I think that’s what this movie is about.
+ - Pardon me for loitering in front of an orchestra.
+ - Kids are at my level. I like goofing around with them.
+ - Basically, though, I’m just lucky to love what I do for a living.
+ - Giving up a lot of yourself isn’t really that hard when you realize that you get more than you give up.
+ - Lady, I got buddies who died face down in the muck so that you and I could enjoy this family restaurant!
+ - I don’t trust myself enough. When I write, I overwrite. Gingerbread. Too much gingerbread. Writing is probably the only hobby I have. But I wish I had another one. If I was just a little better at golf.
+ - I’m really getting to appreciate traditional jazz now – the New Orleans stuff – a lot more than I did before.
+ - I’d like to come back because I really miss doing situation comedy.
+ - If you want to direct, you’ve got to work.
+ - Sometimes I overtinker, which is something wrong with my brain chemistry. But in figuring out why I do that, maybe I’ll make myself a better person. I doubt it.
+ - I don’t need the bread, but it’s nice to do something creative.
+ - People in Medicaid ought to have access to the same insurance as the rest of the population. If they are segregated, it will be a poor plan for poor people.
+ - Believe me, nobody likes to loaf more than me.
+ - I’d bowled a lot, but I never really had proper lessons.
+ - Social Security’s future has gotten worse, and each year we delay reform adds to the cost we are pushing off onto our children.
+ - When I was a kid, I loved Popeye, but the old ones, the real old ones.
+
+28 quotes

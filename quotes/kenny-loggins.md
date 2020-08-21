@@ -1,0 +1,45 @@
+ - A soulmate is the one person whose love is powerful enough to motivate you to meet your soul, to do the emotional work of self-discovery, of awakening.
+ - Running away will never make you free.
+ - My trust in a higher power that wants me to survive and have love in my life, is what keeps me moving forward.
+ - I am attracting a new audience now, one that is more open and more spiritually inclined.
+ - For once in your life, here’s your miracle, stand up and fight.
+ - I am learning to forgive my inner geek, and even value him as a free man.
+ - Heaven help the man who fights his fear.
+ - Shaking the past, making my break, taking control, that’s what it takes.
+ - My career was about to change radically, in turning 50 I had hit the age where my Dad made a big career and his life started to unravel.
+ - I had to get in touch with the source, I had to go back into my abandonment issues with my mother, I had to go into issues with my father I hadn’t even looked at before.
+ - I’m alright, nobody worry about me. Why you gotta gimme a fight? Can’t you just let it be.
+ - In every moment there is a reason to carry on.
+ - To feel is to communicate with your Spirit-with God. Feeling is God’s mirror; intuition is God’s telephone. To seek your truth is to deepen your connection to Spirit.
+ - Courage is always rewarded.
+ - Real freedom is creative, proactive, and will take me into new territories. I am not free if my freedom is predicated on reacting to my past.
+ - No one can tell what the future holds, you’re backs to the corner, you make the choice of how it goes.
+ - It’s difficult to get an audience to want to keep up with you, stay present tense. But there’s never been a big lag in my career between product. I’ve constantly tried to pull my audience up into what I’m doing present tense, and they’ve been usually happy to go there with me.
+ - I think Julia is defining a new feminism. It’s the power of the open heart. And its ok to be sexual.
+ - It’s just a favorite language to me, that country finger-picking guitar style.
+ - My rite of passage into my brave new world, life on the road.
+ - I am held by the creator of the world. I am opening, I am unbounded, I am luminous, I am powerful.
+ - The Spirit speaks directly to our hearts through music. That’s why music has always had such power to move people into positive action.
+ - This is the front edge of the spiritual, psychological movement and is where the tools of psychology have finally come together to create a mass healing. I think spiritual psychology is the next wave.
+ - My quest these days is to find my long lost inner child, but I’m afraid if I do, I’ll end up with food in my hair and way too in love with the cats.
+ - I had to beat the bags, big time, I had to get out into the den and start screaming and move it through my body.
+ - I’ve worked so hard to eliminate the inner geek from my life. I suddenly realize I have no patience for those people who still have their geeks showing. Now I see why being ‘normal’ has been so important to me.
+ - If I don’t stay creative and if I don’t stay in the studio and keep writing and recording, I get kind of depressed. I can’t quite remember what I’m supposed to be doing with myself.
+ - When I see that my geek may have contained some of the best parts of me, when I love and appreciate him, I set my children free to see themselves as lovable however they are.
+ - I must let go of my need for the world to love me.
+ - I’m happy about the fact that my audience is very open to new music. They’re dying for new music. So all I got to do is get up there and show them what I’m doing, and they go oh yeah, I like that.
+ - I couldn’t be in a relationship and behave like somebody else or pretend I felt something I didn’t feel. And that includes saying things I thought might jeopardize the relationship.
+ - My resistance to communication work is because of 15 years with my former wife where we did all this work, but we never got to the core of anything.
+ - Relationships are so much a rerun of our parental relationships. We’re rerunning the relationship they were in together and we’re rerunning the relationship we had with them with our lover.
+ - The more we stretch the muscle called compassion and generosity, the stronger we get, the better we feel about ourselves, the more loving we become to the world around us.
+ - In my career I defined myself by my music, and the danger is that one defines oneself based on popularity. As you know, that goes up and down, and you can’t judge how you feel about yourself based on what your sales is.
+ - Bruce Marshall’s acoustic set gets a big thumbs up from me.
+ - Why not hold on to whatever I’ve got because it’s as good as it’s ever going to get. How can I believe that love is coming, how can I even believe that love exists; if I don’t believe it’s spiritually based?
+ - Whatever I have not yet learned to tolerate in myself inevitably will appear in my children. In this way, they, like Julia, guide me to a new level of self-awareness and everyone benefits.
+ - I know that Julia has been given to me for my spiritual growth, and this moment is perfect for us both. I know that I love her, and I know she’s my soul mate.
+ - The corporate woman has been defined as the ‘liberated woman’ and I see that as the exact opposite. I think she now is more enslaved, maybe even more than the housewife was; because she’s so out of her power, and imitating male power is not female power.
+ - It’s hard enough doing something bold without jumping into your bad reviews.
+ - In my career, fun becomes a big factor. If something feels like it’s going to be creative and be fun – follow your bliss. Is this where the juice is? Then I go there.
+ - You must have love as the core; it takes courage to be willing to constantly tell the truth to each other and risk letting the relationship go.
+
+43 quotes

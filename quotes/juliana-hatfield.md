@@ -1,0 +1,95 @@
+ - I’ve always been a loner, and I’ve spent most of my life as a single person.
+ - Baseball is more than a game. It’s like life played out on a field.
+ - To make big steps, you’ve got to take action yourself and not listen to other people.
+ - Songwriting is like editing. You write down all this stuff – all this bad, stupid stuff – and then you have to get rid of everything except the very best.
+ - Keanu Reeves is, like, the worst actor I’ve ever seen. I can’t believe he’s a movie star.
+ - In this world, where everything happens so fast, it’s hard to sit back, take the time and contemplate.
+ - I don’t have anything to prove anymore. I don’t have a record deal, no one has any expectations, I’m in a position of freedom. I don’t need anyone’s approval.
+ - I love ‘Crazy Horse,’ and Neil Young is one of my favorite guitar players.
+ - At heart I am a librarian, a bird-watcher, a transcendentalist, a gardener, a spinster, a monk.
+ - How do you get up in the morning? Another wasted life it’s so boring The system never failed you You failed yourself and all of your friends Now your heart is failing too A total system failure they pronounce you.
+ - I’ve always been in this sort of perpetual state of existential longing. I feel like something’s missing.
+ - Every song brings back memories, like I remember where I wrote all these songs. ‘Universal Heartbeat’ was my apartment in New York City. ‘My Sister’ was at my apartment in Boston. I remember places and I remember what I was thinking when I wrote it.
+ - If life is a performance, and I am not an actor, am I supposed to lie down and die?
+ - For a long time, music was hope. Now it seems music isn’t enough to make me happy. It used to be that’s all I needed to keep going. Now I need other things to take up the other parts of my life.
+ - Doing interviews can sometimes mess up my head. It makes me feel dirty. It’s frustrating how the press recycles a quote to death.
+ - I’ve been sleeping through my life Now I’m waking up And I want to stand in the sunshine I have never been ecstatic Had a flower but it never bloomed In the darkness of my wasted youth It was hiding in the shadows Learning to become invisible Uncover me.
+ - Puerto Rico has a stray dog problem. Tens of thousands of homeless canines – hundreds of thousands, by some estimates – live and die on the streets and beaches all over this Caribbean island of almost four million people.
+ - I always believe that a person can learn so much by just jumping into something and trying to do it rather than having someone else teach you everything.
+ - If you want to achieve things in life, you’ve just got to do them, and if you’re talented and smart, you’ll succeed.
+ - I finished ‘Beautiful Creature,’ and I felt somewhat unfulfilled. I felt like this other side of me needed to be released. Some of the songs I left off the album weren’t intense enough to be what I wanted. They weren’t hard enough.
+ - A lot of my past is gone from my mind.
+ - I’m just trying to get rid of all the mystery surrounding me and let people see what I’m thinking. So they can understand me and stop assuming things about me.
+ - I get a little sick of myself as a solo artist. I get a little bit bored.
+ - My first guitar was a Gibson Challenger.
+ - Human relations, I mess them up, and they let me down.
+ - I make music and I can’t stop. It’s a compulsion and an obsession and a curse.
+ - As long as there are religions, there are going to be people who are hiding their rottenness behind the veil of religion.
+ - I am not dead inside. I still care about right and wrong.
+ - I’ve been embarrassing myself publicly for over 20 years. Why should I stop now?
+ - A lot of so-called Christian souls are not fine. People need to look inside themselves and look at the lives they’re leading and fix themselves before they try to fix other people.
+ - I don’t think I’m romantic at all. I have a lot of faith in the right thing happening. I don’t really hope for a lot of particulars, I just have faith that the right thing will happen most of the time.
+ - I don’t believe songs that try to say everything in a simple slogan.
+ - I listen to NPR and baseball games when I’m in my car. I mean, exclusively NPR and baseball games, and that’s it, as far as the radio.
+ - I feel some kind of duty to be really, really honest as a writer. The same is true of my songwriting.
+ - I don’t need a mirror to see that it’s true, cause I’m ugly with a capital U.
+ - The whole thing about rock music, pop music, is it’s really for kids.
+ - I love playing in front of people. I feel powerful, ’cause I don’t have to really say anything – I’m just singing.
+ - I never felt happy with the idea that part of what I do is to be an object to be looked at. I thought of my public persona as an entity separate to myself.
+ - The first kiss between two people is something really good in life.
+ - Motivation is just this potion to create stuff, a compulsion to express the truth of my own experiences in this life.
+ - I’m a damaged person, but I have hope and a will to not give up.
+ - I could make a whole album with no one else involved at all. It would be a total, unadulterated expression of myself. Because whenever you have others playing on a project, their influence becomes a part of it.
+ - I don’t buy a lot when I travel, but when I do, I like to send gifts from wherever I am. It’s fun to find the local post office.
+ - If you do things when you’re burned out, it’ll make you bitter.
+ - It may seem strange, but the most grateful I’ve ever felt was when I was held up at gunpoint. After I handed over my wallet and the mugger ran off into the woods, I thought, ‘Thank you for not shooting me.’ I was overwhelmingly glad to be alive and unharmed.
+ - What happens when your dream comes true – when the spotlight is on and then it moves away?
+ - I’m pretty good with languages. I know a bit of French and actually want to live in France some day so that I can get fluent. I think it’d be tragic to go through life only knowing one language.
+ - I don’t really care about money. I find money boring and accounting boring, so I’m probably not going to ever make a lot of money.
+ - I’m not a very good advice-giver.
+ - I’ve seen quite a bit of the world, but I really like Sweden and feel like I could live there some day.
+ - I’m really conflicted about my role as a front-person. I hate the attention.
+ - How can I shield myself from the things that I hear?
+ - I like visiting LA, but I wouldn’t want to live there.
+ - My songs are about not knowing who to be and not knowing how to act.
+ - I’m kind of an emotional exhibitionist.
+ - My guitar playing has not developed as much as I think it could because I never practice. I only play when I’m writing or recording or when I’m playing on tour. When I’m sitting around at home, I never play.
+ - I never really expected to win the hearts of the masses.
+ - I can’t believe I got a major-label record deal. My music was quirky, and my voice was so odd and high and girlish, it was like a weird novelty act.
+ - My dad was depressed a lot of the time, and there were a lot of things in his life that he never resolved.
+ - I have many moods, and there is no objective reality. And I kind of live by that.
+ - I find myself a fascinating subject.
+ - I think the reason I’ve been able to keep making music is because I’m not married, I don’t have kids.
+ - Songwriting is like going to church. I’m connecting to something, and it’s rewarding in really important ways. I don’t need to share it with anyone to feel good about it.
+ - I’m totally committed to the cause of individuality. That’s the only thing I stand by: independence.
+ - I’m able to see humor in a lot of things.
+ - I’d just like to inspire people to be themselves and do what they want and not conform to the rigid guidelines of the music or entertainment business.
+ - When I did have a little bit of commercial success, it really didn’t suit my temperament at all. I’m a terrible public person.
+ - My music – that’s the one area I won’t let myself be pushed around. But in other parts of my life, I’m a confused mess.
+ - When I start writing, I’ll have a vague concept or I’ll just have a title, and the song just goes on its own direction. Usually it goes in many directions within each song. They get really convoluted sometimes.
+ - I’ve finally learned to love my voice for its uniqueness.
+ - I still have all the faith and love for my music and yet I’m still playing places for kids.
+ - My growth as an artist and a person has been so slow and gradual, it’s hard to make a story out of it.
+ - Everything’s been a struggle for me.
+ - The most rabidly religious people are the most rabidly evil.
+ - The way I see it, all the popular singers are strippers.
+ - My whole life was writing, recording and touring over and over again. At some point I realised I wasn’t enjoying myself any more.
+ - People make such a big deal about how people in bands look, especially if you’re a girl.
+ - Music is so hard. It’s a struggle to get people to care. It’s hard to make an impact in today’s world because people aren’t buying records anymore.
+ - I want to paint. That is probably going to sound so pretentious coming from someone who’s been a musician.
+ - Writing helps me process things that are happening to me.
+ - A heart that hurts is a heart that works.
+ - It makes me feel good to have some comforting effect on someone that needs comfort.
+ - I tend to fall for the archetypal, talented, charismatic rock boy.
+ - I like people wanting to know about me.
+ - People are complex. I’m just showing my complexity.
+ - I see a long lost home in his eyes. He sees a nice hotel in mine.
+ - You think you know who you are, and then other people have these other ideas.
+ - Although I’m a huge fan of Ben Kweller, I don’t think I’d cover one of his songs, simply because there’s just so much of my own stuff I wanna do.
+ - Popular culture is filled with girls.
+ - I was just dying to get out of my twenties.
+ - I don’t make money on the road, and so there’s less and less incentive for me to do it when I don’t have that adolescent desire for whatever it is, glory or fame.
+ - David Ortiz is a genius. He’s incredible to watch. Over and over, he hits home runs that are simply transcendent.
+ - Once I picked up an electric guitar, I lost interest in piano, and I just wanted to rock. I studied piano for so long, I got burned out on it.
+
+93 quotes

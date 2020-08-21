@@ -1,0 +1,76 @@
+ - Opportunists seek for a chance. Entrepreneurs make new chances.
+ - True love doesn’t need proof. The eyes told what heart felt.
+ - You can’t start the change unless dare to be different.
+ - People with dimple have a divine role in this universe: smile!
+ - When walking alone in a jungle of true darkness, there are three things that can show you the way: instinct to survive, the knowledge of navigation, creative imagination. Without them, you are lost.
+ - Without sacrifice, true love is incomprehensible.
+ - In this life, when you deny someone an apology, you will remember it at time you beg forgiveness.
+ - I don’t judge people. It blurs out the center of my attention, my focus, myself.
+ - Self righteousness belongs to narrow-minded.
+ - The only order in the universe is just a cycle of calm and chaos.
+ - If you’re confused about what to do, it’s a sign that your enemy is winning.
+ - Love hurts when it changes us.
+ - Arrogance is a creature. It does not have senses. It has only a sharp tongue and the pointing finger.
+ - Don’t pretend to comfort me, my friend. I might also pretend to not let you down.
+ - There is a lie in between a promise and many excuses.
+ - I love the way you refuse my love.
+ - If you find yourself easily provoked, then just change the channel.
+ - Not learning by doing, but learning by risking.
+ - Betrayal is common for men with no conscience.
+ - I respect those who don’t secretly hate me.
+ - By having good memories on every place you just visit, you are building paradise in your own heart and your life.
+ - If you’re in bad mood, take a deep breath. If you’re in good mood, give thanks to God.
+ - Hard to trust honesty of inconsistent person.
+ - If you violate laws of God, you’re a sinner. If you violate laws of men, you’re a criminal. If you violate your own laws, you’re pathetic.
+ - We all seek for lost things within us.
+ - When we feel, a kind of lyric is sung in our heart. When we think, a kind of music is played in our mind. In harmony, both create a beautiful symphony of life.
+ - Just because they disagree, doesn’t mean you ain’t right.
+ - Your arrogance doesn’t cheapen me.
+ - When you fully focus your mind, you make others attracted to you.
+ - When you don’t know where to start, just go to a place you miss so much.
+ - We begin to learn wisely when we’re willing to see world from other people’s perspective.
+ - Pride is the mother of arrogance.
+ - Heaven doesn’t ignore cries of a broken heart.
+ - Problem with an old friend who is too busy: he always perceives you as if never changed.
+ - Thirsty for attention is a cry of loneliness.
+ - News told, rumors heard, truth implied, facts buried.
+ - Jealousy is love in competition.
+ - Observing and commenting, it is a piece of cake. Experiencing and sharing, that is a piece of work.
+ - You won’t be a wiser man if you always keep away from bad people or poor ones.
+ - Intelligence minus purpose equals stupidity.
+ - When you are out of control, someone is ready to take over.
+ - Friendship’s enemy is betrayal.
+ - Many people pray to be kept out of unexpected problems. Some people pray to be able to confront and overcome them.
+ - You can’t be yourself within jealousy.
+ - Eyes can only capture objects that already seen in mind. And mind can only see things that already written in heart.
+ - Love without hope will not survive. Love without faith changes nothing. Love gives power to hope and faith.
+ - Some people say, ‘Do not judge the book by its cover!’ Well, I say not to judge at all. People can say anything they want to say, but for me, cover does matter.
+ - True love is tested when betrayed.
+ - Broken heart will turn into a stronger one within hope.
+ - It’s sometimes funny to watch some people doing something the wrong way but doing it confidently. Even more funny, they succeeded.
+ - If you’re betrayed, release disappointment at once. By that way, the bitterness has no time to take root.
+ - It’s so funny you judge me arrogant after I succeeded. You didn’t help me at all when I was so poor and needy.
+ - Time felt slower when we do nothing but wait.
+ - You praise man who has the ability to perform great actions. I admire man who can deal with great pain and knows no despair.
+ - Waiting’s exhausting.
+ - There are people who like to be alone without feeling lonely at all.
+ - Eyes shows lies.
+ - Surely you ain’t weak. You just can’t accept yourself as a strong person.
+ - You can trust bad liars.
+ - Nobody makes anybody enlightened. Just tell them what you want to say, then let them decide for themselves.
+ - Nothing else you want to do after all your dreams come true. You’ve become numb. You shouldn’t have ever stopped dreaming.
+ - The mind becomes much more beautiful, when man could see his own weaknesses.
+ - If humor and rumor are needed more than faith and truth, then it tells me something about the kind of world we live today.
+ - An accusing heart couldn’t see her own sins.
+ - When you feel sadness inside, wipe it away by cries and tears!
+ - Sometimes, you must refrain from doing things you want so bad.
+ - Crying relieves pressure on soul.
+ - Hope attracts chances.
+ - Sometimes, some lies that spoken with high confidence could be more receptive than facts that spoken with doubt.
+ - If you believe in the idea of true friends, then your heart is vulnerable to betrayal.
+ - Unhappiness is often caused by tendency to find fault with others.
+ - If you hate difference, you’ll be bored to death.
+ - If you truly believe in something that is totally rejected by others, then you’ve just made a difference.
+ - You can’t get attention of one who focused on himself.
+
+74 quotes

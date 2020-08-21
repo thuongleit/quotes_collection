@@ -1,0 +1,40 @@
+ - Kadang – kadang pilihan yang terbaik adalah menerima...
+ - Karena hati tak perlu memilih, ia selalu tahu kemana harus berlabuh.
+ - Semua perjalanan hidup adalah sinema. Bahkan lebih mengerikan. Darah adalah darah, dan tangis adalah tangis. Tak ada pemeran pengganti yang akan menanggung sakitmu.
+ - Kadang-kadang langit bisa kelihatan seperti lembar kosong. Padahal sebenarnya tidak. Bintang kamu tetap di sana. Bumi hanya sedang berputar.
+ - Pada akhirnya, tidak ada yang bisa memaksa. Tidak juga janji atau kesetiaan. Tidak ada. Sekalipun akhirnya dia memilih untuk tetap bersamamu, hatinya tidak bisa dipaksa oleh apapun, oleh siapapun.
+ - Tiada yang lebih indah. Tiada yang lebih rindu. Selain hatiku. Andai engkau tahu.
+ - Hidup ini cair. Semesta ini bergerak. Realitas berubah.
+ - Semua pertanyaan selalu berpasangan dengan jawaban. Untuk keduanya bertemu, yang dibutuhkan cuma waktu.
+ - Kita tidak bisa menyamakan kopi dengan air tebu. Sesempurna apa pun kopi yang kamu buat, kopi tetap kopi, punya sisi pahit yang tak mungkin kamu sembunyikan.
+ - Rasakan semua, demikian pinta sang hati. Amarah atau asmara, kasih atau pedih, segalanya indah jika memang tepat pada waktunya. Dan inilah hatiku, pada dini hari yang hening. Bening. Apa adanya.
+ - Seindah apa pun huruf terukir, dapatkah ia bermakna apabila tak ada jeda? Dapatkan ia dimengerti jika tak ada spasi? Bukankah kita baru bisa bergerak jika ada jarak? Dan saling menyayang bila ada ruang?
+ - Barangkali itulah mengapa kematian ada, aku menduga. Mengapa kita mengenal konsep berpisah dan bersua. Terkadang kita memang harus berpisah dengan diri kita sendiri; dengan proyeksi. Diri yang telah menjelma menjadi manusia yang kita cinta.
+ - Menjadi kuat bukan berarti kamu tahu segalanya. Bukan berarti kamu tidak bisa hancur. Kekuatanmu ada pada kemampuanmu bangkit lagi ketika berkali-kali jatuh. Jangan pikirkan kamu akan sampai dimana dan kapan. Tidak ada yang tahu. Your strength is simply your will to go on.
+ - Aku memandangimu tanpa perlu menatap. Aku mendengarmu tanpa perlu alat. Aku menemuimu tanpa perlu hadir. Aku mencintaimu tanpa perlu apa-apa, karena kini kumiliki segalanya.
+ - Jingga di bahumu. Malam di depanmu. Dan bulan siaga sinari langkahmu. Teruslah berjalan. Teruslah melangkah. Kutahu kau tahu. Aku ada.
+ - Kita tak tahu dan tak pernah pasti tahu hingga semuanya berlalu. Benar atau salah, dituruti atau tidak dituruti, pada akhirnya yang bisa membuktikan cuma waktu.
+ - Seseorang semestinya memutuskan bersama orang lain karena menemukan keutuhannya tercermin, bukan ketakutannya akan sepi.
+ - Carilah orang yang nggak perlu meminta apa-apa, tapi kamu mau memberikan segala-segalanya.
+ - Sahabat saya itu adalah orang yang berbahagia. Ia hanya mengetahui apa yang ia sanggup miliki. Saya adalah orang yang paling bersedih, karena saya mengetahui apa yang tak sanggup saya miliki.
+ - I’d like to find the guy who invented the proverb ‘go with the flow’ and lead him to an ocean full of hungry sharks. And see how he would flow. I’d really like to know.
+ - Bagaimana hampa bisa menyakitkan? Hampa harusnya berarti tidak ada apa-apa. Tidak ada apa-apa berarti tidak ada masalah. Termasuk rasa sakit.
+ - Akhirnya ku mengerti betapa rumitnya konstruksi batin manusia. Betapa sukarnya manusia menanggalkan bias, menarik batas antara masa lalu dan masa sekarang. Aku kini percaya manusia dirancang untuk terluka.
+ - Momentum tidak dapat dikejar. Momentum hadir. Begitu ia lewat ia tidak lagi sebuah momentum. Ia menjadi kenangan. Dan kenangan tidak akan membawa Anda kemana-mana. Kenangan adalah batu-batu di antara aliran sungai. Anda seharusnya menjadi arus bukan batu.
+ - Cinta kan tidak butuh tali. Ia membebaskan. Jadi buat apa kita melawan arusnya dan malah saling menjajah?
+ - Berputar menjadi sesuatu yang bukan kita, demi bisa menjadi diri kita lagi.
+ - Cintanya adalah paket air mata, keringat, dan dedikasi untuk merangkai jutaan hal kecil agar dunia ini menjadi tempat yang indah dan masuk akal bagi seseorang.
+ - Kita memang tak pernah tahu apa yang dirindukan sampai sesuatu itu tiba di depan mata.
+ - Kendati batas antara kebebasan dan ketidakpedulian terkadang saru.
+ - Hidup akan mengikis apa saja yang memilih diam, memaksa kita untuk mengikuti arus agungnya yang jujur tetapi penuh rahasia. Kamu, tidak terkecuali.
+ - Apa yang orang bilang realistis, belum tentu sama dengan apa yang kita pikirin. Ujung-ujungnya kita juga tahu kok, mana yang diri kita sebenernya, mana yang bukan diri kita. Dan kita juga tahu apa yang pengen kita jalani. Keenan.
+ - Keheningan seakan memiliki jantung. Denyutnya terasa satu-satu, membawa apa yang tak terucap. Sejenak berayun di udara, lalu bagaikan gelombang air bisikan itu mengalir, sampai akhirnya berlabuh di hati.
+ - Gy, jalan kita mungkin berputar, tetapi satu saat, entah kapan, kita pasti punya kesempatan jadi diri kita sendiri. Satu saat kamu akan jadi penulis dongeng yang hebat. Saya yakin.
+ - Mimpi mengurangi kualitas istirahatnya. Dan untuk bersamaku, ia tak perlu mimpi.
+ - Within his orbit, I was nothing but a flat noodle. And I don’t know how much longer I can keep this up.
+ - Ada dunia di sekelilingmu. Ada aku di sampingmu. Namun, kamu mendamba rasa sendiri itu.
+ - Perjalanan hati itu bukannya tanpa resiko.
+ - Bersama kamu, aku tidak takut lagi menjadi pemimpi.
+ - I’m thankful for this moment because I know that I grow a day older and see how this sentimental fool can be.
+
+38 quotes

@@ -1,0 +1,67 @@
+ - The point of cities is multiplicity of choice.
+ - Streets and their sidewalks-the main public places of a city-are its most vital organs.
+ - New ideas must use old buildings.
+ - In wretched outcomes, the devil is in the details.
+ - Designing a dream city is easy; rebuilding a living one takes imagination.
+ - Erosion of cities or attrition of automobiles?
+ - Cities are an immense laboratory of trial and error, failure and success, in city building and city design.
+ - Whenever and wherever societies have flourished and prospered rather than stagnated and decayed, creative and workable cities have been at the core of the phenomenon. Decaying cities, declining economies, and mounting social troubles travel together. The combination is not coincidental.
+ - Lowly, unpurposeful, and random as they appear, sidewalk contacts are the small change from which a city’s wealth of public life must grow.
+ - You can’t rely on bringing people downtown, you have to put them there.
+ - Cities have the capability of providing something for everybody, only because, and only when, they are created by everybody.
+ - This is something everyone knows: A well-used city street is apt to be a safe street. A deserted city street is apt to be unsafe.
+ - While politicians, clergy, creators of advertisements, and other worthies assert stoutly that the family is the foundation of society, the nuclear family, as an institution, is currently in grave trouble.
+ - Detroit is largely composed, today, of seemingly endless square miles of low-density failure.
+ - This is what a city is, bits and pieces that supplement each other and support each other.
+ - To seek “causes” of poverty in this way is to enter an intellectual dead end because poverty has no causes. Only prosperity has causes.
+ - Dull, inert cities, it is true, do contain the seeds of their own destruction and little else. But lively, diverse, intense cities contain the seeds of their own regeneration, with energy enough to carry over for problems and needs outside themselves.
+ - When we deal with cities we are dealing with life at its most complex and intense. Because this is so, there is a basic esthetic limitation on what can be done with cities: a city cannot be a work of art.
+ - There is a quality even meaner than outright ugliness or disorder, and this meaner quality is the dishonest mask of pretended order, achieved by ignoring or suppressing the real order that is struggling to exist and to be served.
+ - Power is supposed to be so corrupt. I don’t think it’s so much corrupt, in the usual sense of the word, as stupid and unrealistic. The more power a person has, the further he gets from reality.
+ - One wonders at the docility of the students who evidently must be satisfied enough with the credentials to be uncaring about the lack of education.
+ - People must take a modicum of public responsibility for each other even if they have no ties to each other.
+ - Intricate minglings of different uses in cities are not a form of chaos. On the contrary, they represent a complex and highly developed form of order.
+ - The ballet of the good city sidewalk never repeats itself from place to place, and in any one place is always replete with new improvisations.
+ - Traffic congestion is caused by vehicles, not by people in themselves.
+ - The salient mystery of Dark Ages sets the stage for mass amnesia. People living in vigorous cultures typically treasure those cultures and resist any threat to them. How and why can a people so totally discard a formerly vital culture that it becomes vitally lost.
+ - Not TV or illegal drugs but the automobile has been the chief destroyer of American communities.
+ - There is no logic that can be superimposed on the city; people make it, and it is to them, not buildings, that we must fit our plans.
+ - In our American cities, we need all kinds of diversity.
+ - Sentimentality about nature denatures everything it touches.
+ - While you are looking, you might as well also listen, linger and think about what you see.
+ - City diversity represents accident and chaos.
+ - Almost nobody travels willingly from sameness to sameness and repetition to repetition, even if the physical effort required is trivial.
+ - Today barbarism has taken over many city streets, or people fear it has, which comes to much the same thing in the end.
+ - Redundancy is expensive but indispensable.
+ - As in the pseudoscience of bloodletting, just so in the pseudoscience of city rebuilding and planning, years of learning and a plethora of subtle and complicated dogma have arisen on a foundation of nonsense.
+ - By its nature, the metropolis provides what otherwise could be given only by traveling; namely, the strange.
+ - A border – the perimeter of a single massive or stretched-out use of territory – forms the edge of an area of ‘ordinary’ city. Often borders are thought of as passive objects, or matter-of-factly just as edges. However, a border exerts an active influence.
+ - The best part of a Reg Hartt presentation is what he has to say.
+ - A region is an area safely larger than the last one to whose problems we found no solution.
+ - Neighborhood is a word that has come to sound like a Valentine. As a sentimental concept, ‘neighborhood’ is harmful to city planning. It leads to attempts at warping city life into imitations of town or suburban life. Sentimentality plays with sweet intentions in place of good sense.
+ - It may be that we have become so feckless as a people that we no longer care how things do work, but only what kind of quick, easy outer impression they give. If so, there is little hope for our cities or probably for much else in our society. But I do not think this is so.
+ - To science, not even the bark of a tree or a drop of pond water is dull or a handful of dirt banal. They all arouse awe and wonder.
+ - The trouble with paternalists is that they want to make impossibly profound changes, and they choose impossibly superficial means for doing so.
+ - Credentialing, not education, has become the primary business of North American universities.
+ - All through organized history, if you wanted prosperity you had to have cities. Cities are places that attract new people with new ideas.
+ - It is hopeless to try to convert some borders into seams.
+ - The primary conflict, I think, is between people whose interests are with already well-established economic activities, and those whose interests are with the emergence of new economic activities.
+ - Innovating economies expand and develop. Economies that do not add new kinds of goods and services, but continue only to repeat old work, do not expand much nor do they, by definition, develop.
+ - Writing, printing, and the Internet give a false sense of security about the permanence of culture.
+ - There are fashions in building. Behind the fashions lie economic and technological reasons, and these fashions exclude all but a few genuinely different possibilities in city dwelling construction at any one time.
+ - Beneficent spirals, operating by benign feedback, mean that everything needful is not required at once: each individual improvement is beneficial for the whole.
+ - The second mode to deal with unsafe cities is to take refuge in vehicles. This is the technique practiced in the big wild-animal reservations of Africa, where tourists are warned to leave their cars under no circumstances until they reach a lodge. It is also the technique practiced in Los Angeles.
+ - Privately run jails are a mark of American “reinvented government” that has been picked up by neoconcervatives in Canada.
+ - Some men tend to cling to old intellectual excitements, just as some belles, when they are old ladies, still cling to the fashions and coiffures of their exciting youth.
+ - Unity, like so many good things, is good only in moderation.
+ - I was so grateful to be independent of the academic establishment. I thought, how awful it would be to have my future hinge on such people and such decisions.
+ - In small settlements everyone knows your affairs. In the city everyone does not-only those you choose to tell will know about you. This is one of the attributes of cities that is precious to most city people.
+ - When we deal with cities we are dealing with life at its most complex and intense. Planners are guided by principles derived from the behaviour and appearance of suburbs, tuberculosis sanatoria, fairs and imaginary dream cities – from anything but cities themselves.
+ - Automobiles are often conveniently tagged as the villains responsible for the ills of cities and the disappointments and futilities of city planning. But the destructive effect of automobiles are much less a cause than a symptom of our incompetence at city building.
+ - It may be romantic to search for the salves of society’s ills in slow-moving rustic surroundings, or among innocent, unspoiled provincials, if such exist, but it is a waste of time.
+ - Advanced cultures are usually sophisticated enough, or have been sophisticated enough at some point in their pasts, to realize that foxes shouldn’t be relied on to guard henhouses.
+ - Throughout the world Dark Ages have scrawled finis to successions of cultures receding far into the past.
+ - Everyone is aware that tremendous numbers of people concentrate in city downtowns and that, if they did not, there would be no downtown to amount to anything – certainly not one with much downtown diversity.
+ - Virtually all ideologues, of any variety, are fearful and insecure, which is why they are drawn to ideologies that promise prefabricated answers for all circumstances.
+
+65 quotes

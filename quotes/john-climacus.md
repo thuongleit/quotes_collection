@@ -1,0 +1,37 @@
+ - Humility is the only virtue that no devil can imitate. If pride made demons out of angels, there is no doubt that humility could make angels out of demons.
+ - Humility is the only thing that no devil can imitate.
+ - Do not be surprised that you fall every day; do not give up, but stand your ground courageously. And assuredly, the angel who guards you will honour your patience.
+ - Obedience is the burial of the will and the resurrection of humility.
+ - Repentance lifts a man up. Mourning knocks at heaven’s gate. Holy humility opens it.
+ - A proud monk needs no demon. He has turned into one, an enemy to himself.
+ - The friend of silence comes close to God.
+ - Pride is the utter poverty of soul disguised as riches, imaginary light where in fact there is darkness.
+ - Humility is constant forgetfulness of one’s achievements.
+ - An angel fell from Heaven without any other passion except pride, and so we may ask whether it is possible to ascend to Heaven by humility alone, without any other of the virtues.
+ - As long as anger lives, it continues to be the fruitful parent of many unhappy children.
+ - The first stage of this tranquility consists in silencing the lips when the heart is excited. The second, in silencing the mind when the soul is still excited. The goal is a perfect peacefulness even in the middle of the raging storm.
+ - The lover of silence draws close to God. He talks to Him in secret and God enlightens him.
+ - Someone who is elated with wine speaks the truth on all subjects, even without meaning to. In the same way, anyone who is inebriated with the spirit of penitence will never be able to tell lies.
+ - The offspring of virtue is perseverance. The fruit and offspring of perseverance is habit and child of habit is character.
+ - The friend of silence comes close to God. In secret he converses with him and receives his light.
+ - Do not stop praying as long as, by God’s grace, the fire and the water have not been exhausted, for it may happen that never again in your whole life will you have such a chance to ask for the forgiveness for your sins.
+ - I know a man who, when he saw a woman of striking beauty, praised the Creator for her. The sight of her lit within him the love of God.
+ - A servant of the Lord stands bodily before men, but mentally he is knocking at the gates of heaven with prayer.
+ - When a man has found the Lord, he no longer has to use words when he is praying, for the Spirit Himself will intercede for him with groans that cannot be uttered.
+ - Faith furnishes prayer with wings, without which it cannot soar to Heaven.
+ - Forgetting offences is a sign of sincere repentance. If you keep the memory of them, you may believe you have repented but you are like someone running in his sleep. Let no one consider it a minor defect, this darkness that often clouds the eyes even of spiritual people.
+ - It can happen that when we are at prayer some brothers come to see us. Then we have to choose either to interrupt our prayer or to sadden our brother by refusing to answer him. But love is greater than prayer. Prayer is one virtue among others, whereas love contains them all.
+ - The man who pets a lion may tame it, but the man who coddles the body makes it ravenous.
+ - Simplicity is an enduring habit within a soul that has grown impervious to evil thoughts.
+ - Just as the winds whip up the sea, so does anger stir confusion in the mind.
+ - When the soul betrays itself and loses the blessed and longed-for fervor, let it carefully investigate the reason for losing it. And let it arm itself with all its longing and zeal against whatever caused this. For the former fervor can return only through the same door through which it was lost.
+ - Fight to escape from your own cleverness. If you do, then you will find salvation and uprightness through Jesus Christ our Lord.
+ - Those who submit to the Lord with simple heart will run the good race. If they keep their minds on a leash, they will not draw the wickedness of the demons onto themselves.
+ - The slave of the belly ponders the menu with which to celebrate the feast. The servant of God, however, thinks of the graces that may enrich him.
+ - We know the utility of prayer from the efforts of the wicked spirits to distract us during the divine office; and we experience the fruit of prayer in the defeat of our enemies.
+ - Even though one is well advanced in virtue, should he stop mortifying himself, he soon would lose his modesty and virtue – just as fertile soul quickly becomes dry and arid and produces nothing but thorns and thistles if it is not cultivated.
+ - Confession is like a bridle that keeps the soul which reflects on it from committing sin, but anything left unconfessed we continue to do without fear as if in the dark.
+ - I would not consider my spirituality worthwhile that wants to walk in sweetness and ease and run from the imitation of Christ.
+ - It happens, I do not know how, that most of the proud never really discover their true selves. They think they have conquered their passions and they find out how poor they really are only after they die.
+
+35 quotes

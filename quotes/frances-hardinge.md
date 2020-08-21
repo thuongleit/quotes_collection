@@ -1,0 +1,26 @@
+ - Tea is the magic key to the vault where my brain is kept.
+ - True stories seldom have endings. I don’t want a happy ending, I want more story.
+ - My child, you have a flawed grasp of the nature of myth-making. I am a poet and storyteller, a creator of ballads and sagas. Pray do not confuse the exercise of the imagination with mere mendacity. I am a master of the mysteries of words, their meanings and music and mellifluous magic.
+ - The world is like a broken wrist that healed the wrong way, and will never be the same again.
+ - Revenge is a dish best served unexpectedly and from a distance – like a thrown trifle.
+ - I want my chirfugging goose back!
+ - Oh, painted smirk of a hopeless dawn, the girl is still wearing her breeches...
+ - Everybody knew that books were dangerous. Read the wrong book, it was said, and the words crawled around your brain on black legs and drove you mad, wicked mad.
+ - Brand a man as a thief and no one will ever hire him for honest labor – he will be a hardened robber within weeks. The brand does not reveal a person’s nature, it shapes it.
+ - Sometimes fear made you angry. Perhaps after years anger cooled, like a sword taken from a forge. Perhaps in the end you were left with something very cold and very sharp.
+ - If wits were pins, the man would be a veritable hedgehog.
+ - Words were dangerous when loosed. They were more powerful than cannon and more unpredictable than storms. They could turn men’s heads inside out and warp their destinies. They could pick up kingdoms and shake them until they rattled.
+ - It was all very well being told that she could do nothing to make things better. Neverfell did not have the kind of mind that could take that quietly. She did not have the kind of mind that could be quiet at all.
+ - We always find it difficult to forgive our heroes for being human.
+ - Ordinary life did not stop just because kings rose and fell, Mosca realized. People adapted. If the world turned upside down, everyone ran and hid in their houses, but a very short while later, if all seemed quiet, they came out again and started selling each other potatoes.
+ - It was hopeless. She was flawless. She was a sunbeam. Mosca gave up and got on with hating her.
+ - Well, you will have to do. If you had died along with your mother, I would have taught the cat to read.
+ - You, sir, are a romantic, and I’m afraid the condition is incurable. -Eponymous Clent.
+ - In Mosca’s experience, a ‘long story’ was always a short story someone did not want to tell.
+ - So this was a nest of radicals. She thought a hotbed of sedition would involve more gunpowder and secret handshakes, and less shuffling of feet and passing the sugar.
+ - Push something in someone’s face, and they will shove it away reflexively. Threaten to snatch it away from them, and sometimes they become convinced that it is what they want.
+ - I am anything I wish to be. The world cannot choose for me. No, it is for me to choose what the world shall be.
+ - It did seem hard to be doing something heroic while everyone was too busy to notice.
+ - Perhaps illnesses could be left behind, just like small, badly concealed china corpses.
+
+24 quotes

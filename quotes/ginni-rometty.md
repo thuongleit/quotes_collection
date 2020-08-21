@@ -1,0 +1,24 @@
+ - Growth and comfort do not coexist.
+ - I learned to always take on things I’d never done before. Growth and comfort do not coexist.
+ - Don’t let others define you. Define yourself.
+ - Your value will be not what you know; it will be what you share.
+ - Never love something so much that you can’t let go of it.
+ - Big Data will spell the death of customer segmentation and force the marketer to understand each customer as an individual within eighteen months, or risk being left in the dust.
+ - Be first and be lonely.
+ - Big data is indeed a buzzword but it is one that is frankly under-hyped.
+ - The most important thing for any of us to be in our jobs is curious.
+ - Someone once told me growth and comfort do not coexist. And I think it’s a really good thing to remember.
+ - For CEOs today, it’s all about acheieving growth and efficiency through innovation. It’s not about product innovation so much anymore as about innovating business models. process, culture and management.
+ - You have to stick up for what you believe in. And that, to me, is the biggest thing you can do about driving inclusion.
+ - I think ‘Actions speak louder than words’ is one thing, I think, I always took from my mom. And to this day, I think about that in everything I do.
+ - If you’re clear on what you believe, you have a great foundation to go make a market.
+ - To me, I learned along the way, you know, culture is behavior. That’s all it is; culture is people’s behaviors.
+ - I’ve been head of strategy at IBM and together with my colleagues built our five-year plan. My priorities are going to be to continue to execute on that.
+ - Clients say, ‘What’s your strategy,’ and I say, ‘Ask me what I believe first.’ That’s a far more enduring answer.
+ - One of the most important things for any leader is to never let anyone else define who you are. And you define who you are. I never think of myself as being a woman CEO of this company. I think of myself as a steward of a great institution.
+ - Any city has to give some thought to its ambition and brand in order to set sustainability goals.
+ - And the reason I came to IBM was I think – I always say at a really early age, I learned you’ve got to be passionate about what you do. No matter what it is, you put too much, your heart and soul in it, you have to be passionate about it. You make too many sacrifices.
+ - I always say, you know, if I sit here and close my eyes and say, ‘When did I learn the most in my life, in my career?’ It’ll always be when I close them and everything I think of is when I took a risk. It’s when I think I learned the most.
+ - IBM’s long-standing mantra is ‘Think.’ What has always made IBM a fascinating and compelling place for me, is the passion of the company, and its people, to apply technology and scientific thinking to major societal issues.
+
+22 quotes

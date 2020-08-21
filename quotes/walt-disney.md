@@ -1,0 +1,306 @@
+ - If you can dream it, you can do it.
+ - The way to get started is to quit talking and start doing.
+ - First, think. Second, believe. Third, dream. And finally, dare.
+ - It’s kind of fun to do the impossible.
+ - All our dreams can come true, if we have the courage to pursue them.
+ - Why worry? If you’ve done the very best you can, worrying won’t make it any better.
+ - We keep moving forward, opening new doors, and doing new things, because we’re curious and curiosity keeps leading us down new paths.
+ - Laughter is timeless, imagination has no age, dreams are forever.
+ - Think, Believe, Dream, and Dare.
+ - What ever you do, do it well. Do it so well that when people see you do it they will want to come back and see you do it again and they will want to bring others and show them how well you do what you do.
+ - When you believe in a thing, believe in it all the way, implicitly and unquestionable.
+ - The more you like yourself, the less you are like anyone else, which makes you unique.
+ - Progress is impossible without change.
+ - That’s the real trouble with the world. Too many people grow up.
+ - There is more treasure in books than in all the pirate’s loot on Treasure Island.
+ - Get a good idea and stay with it. Dog it, and work at it until it’s done right.
+ - All the adversity I’ve had in my life, all my troubles and obstacles, have strengthened me… You may not realize it when it happens, but a kick in the teeth may be the best thing in the world for you.
+ - A man should never neglect his family for business.
+ - Our greatest natural resource is the minds of our children.
+ - I only hope that we don’t lose sight of one thing – that it was all started by a mouse.
+ - Have confidence in your ability to do it right, and work hard to do the best possible job.
+ - To succeed, work hard, never give up and above all cherish a magnificent obsession.
+ - Good bye may seem forever. Farewell is like the end, but in my heart is the memory and there you will always be.
+ - Life is beautiful. It’s about giving. It’s about family.
+ - Worry is a waste of imagination.
+ - The four Cs of making dreams come true: Curiosity, Courage, Consistency, Confidence.
+ - Happiness is a state of mind. It’s just according to the way you look at things.
+ - Keep Moving Forward.
+ - After the rain, the sun will reappear. There is life. After the pain, the joy will still be here.
+ - Ideas come from curiosity.
+ - Believe in your dreams, no matter how impossible they seem.
+ - If you can visualize it, if you can dream it, there’s some way to do it.
+ - All of our dreams can come true.
+ - There is no magic in magic, it’s all in the details.
+ - The past can hurt. But the way I see it, you can either run from it, or learn from it.
+ - Just make sure you never do less than your best.
+ - The flower that blooms in adversity is the rarest and most beautiful of all.
+ - Everyone falls down. Getting back up is how you learn how to walk.
+ - Curiosity keeps leading us down new paths.
+ - To be successful you must be unique, you must be so different that if people want what you have, they must come to you to get it.
+ - Disneyland will never be completed. It will continue to grow as long as there is imagination left in the world.
+ - I never look back, darling. It distracts from the now.
+ - Any dream is possible, if you have courage.
+ - If you can dream it, you can do it. Always remember that this whole thing was started with a dream and a mouse.
+ - Of all of our inventions for mass communication, pictures still speak the most universally understood language.
+ - Many of the things that seem impossible now will become realities tomorrow.
+ - Faith. Trust. and Pixie Dust.
+ - You must not let anyone define your limits because of where you come from. Your only limit is your soul.
+ - We don’t make movies to make money, we make money to make more movies.
+ - Always fight for quality, whether giving or receiving.
+ - Mickey Mouse popped out of my mind onto a drawing pad 20 years ago on a train ride from Manhattan to Hollywood at a time when business fortunes of my brother Roy and myself were at lowest ebb and disaster seemed right around the corner.
+ - I would rather entertain and hope that people learned something than educate people and hope they were entertained.
+ - A person should set his goals as early as he can and devote all his energy and talent to getting there.
+ - Do a good job. You don’t have to worry about the money; it will take care of itself. Just do your best work then try to trump it.
+ - Your talent makes you who you are. You should be proud of it.
+ - Do what you do so well that they will want to see it again and bring their friends.
+ - Of all the things I’ve done, the most vital is coordinating those who work with me and aiming their efforts at a certain goal.
+ - Just remember, it all started with a mouse.
+ - I always like to look on the optimistic side of life, but I am realistic enough to know that life is a complex matter.
+ - When you’re curious, you find lots of interesting things to do.
+ - You can design and create, and build the most wonderful place in the world. But it takes people to make the dream a reality.
+ - Disneyland is a work of love. We didn’t go into Disneyland just with the idea of making money.
+ - Happiness is a state of mind. You can be happy or you can be unhappy.
+ - The more you are like yourself, the less you are like anyone else which makes you unique. The problem with most people is that they spend their lives trying to emulate others and so we have lots of copies but few originals.
+ - If we didn’t have deadlines, we’d stagnate.
+ - It’s no secret that we were sticking just about every nickel we had on the chance that people would really be interested in something totally new and unique in the field of entertainment.
+ - Too many people grow up. That’s the real trouble with the world, too many people grow up. They forget. They don’t remember what it’s like to be 12 years old. They patronize, they treat children as inferiors. Well I won’t do that.
+ - The wonders of nature are endless...
+ - You reach a point where you don’t work for money.
+ - Who says that my dreams have to just stay my dreams?
+ - Whatever we accomplish is due to the combined effort.
+ - I can never stand still. I must explore and experiment.
+ - The greatest moments in life are not concerned with selfish achievements, but rather with the things we do for others.
+ - I am not influenced by the techniques or fashions of any other motion picture company.
+ - If watching is all you’re going to do, then you’re going to watch your life go by without you.
+ - I can never stand still. I must explore and experiment. I am never satisfied with my work. I resent the limitations of my own imagination.
+ - That’s what we storytellers do. We restore order with imagination. We instill hope again and again and again.
+ - Fear too often spells failure.
+ - My persistence is the measure of the belief I have in myself.
+ - People often ask me if I know the secret of success and if I could tell others how to make their dreams come true. My answer is, you do it by working.
+ - Every child is born blessed with a vivid imagination.
+ - When I’m dead I don’t want a funeral. I want people to remember me alive.
+ - I believe in being an innovator.
+ - Most of my life I have done what I wanted to do. I have had fun on the job.
+ - I am a patient listener, but opinionated to the point of stubbornness when my mind is made up.
+ - Do anything better than it was ever done before and youll get rich.
+ - You’re flying Buzz! No Woody we’re falling in style!
+ - In learning the art of storytelling by animation, I have discovered that language has an anatomy.
+ - People spend money when and where they feel good.
+ - Somehow I can’t believe that there are any heights that can’t be scaled by a man who knows the secrets of making dreams come true.
+ - Don’t tell me about the problems – I make the problems.
+ - I just needed to get out on my own, live my own life. And I did, and it’s great.
+ - I am in no sense of the word a great artist, not even a great animator; I have always had men working for me whose skills were greater than my own. I am an idea man.
+ - I do not make films primarily for children. I make them for the child in all of us, whether we be six or sixty.
+ - My business is making people, especially children, happy.
+ - Disneyland is like Alice stepping through the Looking Glass; to step through the portals of Disneyland will be like entering another world.
+ - I’m just corny enough to like to have a story hit me over the heart.
+ - Animation is different from other parts. Its language is the language of caricature.
+ - Recession doesn’t deserve the right to exist. There are just too many things to be done in science and engineering to be bogged down by temporary economic dislocations.
+ - All right. I’m corny. But I think there’s just about a-hundred-and-forty-million people in this country that are just as corny as I am.
+ - No matter how your heart is grieving, if you keep on believing, the dreams that you wish will come true.
+ - Now when we opened Disneyland, outer space was Buck Rogers.
+ - Even miracles take a little time.
+ - My imagination creates my reality.
+ - Do what you do so well – and so uniquely – that people can’t resist telling others about you.
+ - The most important thing is family.
+ - A dream is a wish your heart makes, when you’re fast asleep.
+ - Animation can explain whatever the mind of man can conceive.
+ - When people laugh at Mickey Mouse, it’s because he’s so human; and that is the secret of his popularity.
+ - But they say if you dream a thing more than once, it’s sure to come true.
+ - Fantasy and reality often overlap.
+ - You don’t build it for yourself. You know what the people want and you build it for them.
+ - A good story can take you on a fantastic journey.
+ - The important thing is to teach a child that good can always triumph over evil.
+ - Here you leave today and enter the world of yesterday, tomorrow, and fantasy.
+ - A prayer, it seems to me, implies a promise as well as a request; at the highest level, prayer not only is a supplication for strength and guidance, but also becomes an affirmation of life and thus a reverent praise of God.
+ - Forever is a long long time and time has a way of changing things.
+ - Times and conditions change so rapidly that we must keep our aim constantly focused on the future.
+ - Life is composed of lights and shadows, and we would be untruthful, insincere, and saccharine if we tried to pretend there were no shadows.
+ - Always, as you travel, assimilate the sounds and sights of the world.
+ - Laughter is no enemy to learning.
+ - Mickey Mouse is, to me, a symbol of independence. He was a means to an end.
+ - I love the nostalgic myself. I hope we never lose some of the things of the past.
+ - I have been up against tough competition all my life. I wouldn’t know how to get along without it.
+ - Whether you say you can’t or you can, you’re right.
+ - Today, we are shapers of the world of tomorrow. That is plain truth. There is no way we can duck the responsibility, and there is no reason why we should.
+ - Money doesn’t excite me – my ideas excite me.
+ - Around here, however, we don’t look backwards for very long.
+ - Many hands and hearts and minds generally contribute to anyone’s notable achievements.
+ - Adults are only kids grown up.
+ - Whenever I go on a ride, I’m always thinking of what’s wrong with the thing and how it can be improved.
+ - I love Mickey Mouse more than any woman I have ever known.
+ - Dream, diversify-and never miss an angle.
+ - I don’t know if it’s art, but I know I like it.
+ - Here is the world of imagination, hopes, and dreams. In this timeless land of enchantment, the age of chivalry, magic and make-believe are reborn – and fairy tales come true. Fantasyland is dedicated to the young-in-heart, to those who that when you wish upon a star, your dreams come true.
+ - If you act like an adult when you’re a kid you can afford to act like a kid the rest of your life.
+ - I think of a child’s mind as a blank book. During the first years of his life, much will be written on the pages. The quality of that writing will affect his life profoundly.
+ - I could never convince the financiers that Disneyland was feasible because dreams offer too little collateral.
+ - I resent the limitations of my own imagination.
+ - Laughter is America’s most important export.
+ - You can’t just let nature run wild.
+ - She believed in dreams, all right, but she also believed in doing something about them. When Prince Charming didn’t come along, she went over to the palace and got him.
+ - Give the public everything you can give them, keep the place as clean as you can keep it, keep it friendly.
+ - Suddenly he stops. He looks up. For, lo, there she stands. The girl of his dreams. Who she is or whence she came, he knows not, nor does he care for his heart tells him that here, here is the maid predestined to be his bride.
+ - I thank God and America for the right to live and raise my family under the flag of tolerance, democracy and freedom.
+ - It is good to have a failure while you’re young because it teaches you so much. For one thing it makes you aware that such a thing can happen to anybody, and once you’ve lived through the worst, you’re never quite as vulnerable afterward.
+ - Every child is born blessed with a vivid imagination. But just as a muscle grows flabby with disuse, so the bright imagination of a child pales in later years if he ceases to exercise it.
+ - Animation can explain whatever the mind of man can conceive. This facility makes it the most versatile and explicit means of communication yet devised for quick mass appreciation.
+ - A good concert, if you’re kind of relaxed, it can do something to you. It’s sort of an emotional break you get by listening to music.
+ - Do not be fooled by its commonplace appearance. Like so many things, it is not what outside, but what is inside that counts.
+ - Once a man has tasted freedom, he will never be content to be a slave.
+ - It is a curious thing that the more the world shrinks because of electronic communications, the more limitless becomes the province of the storytelling entertainer.
+ - I’m doing this because I want to do it better.
+ - I don’t believe in talking down to children. I don’t believe in talking down to any certain segment.
+ - I am not interested in what a man can’t do. I want to know what he CAN do.
+ - We have always tried to be guided by the basic idea that, in the discovery of knowledge, there is great entertainment – as, conversely, in all good entertainment, there is always some grain of wisdom, humanity, or enlightenment to be gained.
+ - Movies can and do have tremendous influence in shaping young lives in the realm of entertainment towards the ideals and objectives of normal adulthood.
+ - Direct and easy communications – freedom of speech in all forms and in its broadest sense – has become vital to the very survival of a civilized humanity.
+ - If I haven’t thought about six impossible things before breakfast, I consider the day wasted.
+ - I don’t have depressed moods. I’m happy, just very, very happy.
+ - I don’t believe in playing down to children, either in life or in motion pictures. I didn’t treat my own youngsters like fragile flowers, and I think no parent should.
+ - You know, the only way I’ve found to make these pictures is with animators. You can’t seem to do it with accountants and bookkeepers.
+ - I’ve wanted to do things; I wanted to build things, to get something going.
+ - I happen to be kind of an inquisitive guy and when I see things I don’t like, I start thinking, why do they have to be like this and how can I improve them?
+ - When I was poor living in a garage in Kansas I began to draw the mice that scampered over my desk. That is how Mickey Mouse was born.
+ - For every laugh, there should be a tear.
+ - In bad times and in good I’ve never lost my sense of zest for life.
+ - To the youngsters of today, I say “Believe in the future, the world is getting better; there still is plenty of opportunity.” Why, would you believe it, when I was a kid I thought it was already too late for me to make good at anything.
+ - Part of the Disney success is our ability to create a believable world of dreams that appeals to all age groups. The kind of entertainment we create is meant to appeal to every member of the family.
+ - A lie keeps growing and growing until it’s as plain as the nose on your face.
+ - I believe firmly in the efficacy of religion, in its powerful influence on a person’s whole life. It helps immeasurably to meet the storms and stress of life and keep you attuned to the Divine inspiration. Without inspiration, we would perish.
+ - To some people, I am a kind of Merlin who takes lots of crazy chances, but rarely makes mistakes.
+ - Besides, you don’t work for a dollar – you work to create and have fun.
+ - You’re dead if you aim only for kids. Adults are only kids grown up, anyway.
+ - I have a great love of animals and laughter.
+ - Disneyland is often called a magic kingdom because it combines fantasy and history, adventure and learning, together with every variety of recreation and fun designed to appeal to everyone.
+ - Today we are shapers of the world of tomorrow.
+ - When we do fantasy, we must not lose sight of reality.
+ - While the worriers are worrying, the planners are planning and the accountants are figuring out why we can’t afford it, I’m busy getting started.
+ - It’s always a challenge bringing a great story classic to the screen. Giving visual form to the characters and places that have only existed in the imagination. But it’s the kind of challenge we enjoy.
+ - Both my study of Scripture and my career in entertaining children have taught me to cherish them.
+ - I first saw the site for Disneyland back in 1953, In those days it was all flat land – no rivers, no mountains, no castles or rocket ships – just orange groves, and a few acres of walnut trees.
+ - It has that thing – the imagination, and the feeling of happy excitement- I knew when I was a kid.
+ - The fun is in always building something. After it’s built, you play with it awhile and then you’re through. You see, we never do the same thing twice around here. We’re always opening up new doors.
+ - There’s nothing funnier than the human animal.
+ - I’ve always had a feeling that any time you can experiment, you ought to do it. Because you never know what will happen.
+ - I just want it to look like nothing else in the world. And it should be surrounded by a train.
+ - You’ll be a poorer person all your life if you don’t know some of the great stories and great poems.
+ - Tomorrow can be a wonderful age.
+ - We allow no geniuses around our Studio.
+ - Fancy being remembered around the world for the invention of a mouse!
+ - It’s because I like you, I don’t want to be with you. It’s a complicated emotion.
+ - There is a natural hootchy-kootchy motion to a goldfish.
+ - Perhaps Bach and Beethoven are strange bedfellows for Mickey Mouse, but it’s all been a lot of fun.
+ - Every man is captain of his career and there must be cooperation all around if he is to get what he wants out of life.
+ - The human species, although happily ridiculous at times, is still reaching for the stars.
+ - Disneyland is the star, everything else is in the supporting role.
+ - Disneyland is like a piece of clay: If there is something I don’t like, I’m not stuck with it. I can reshape and revamp.
+ - I don’t pose as an authority on anything at all, I follow the opinions of the ordinary people I meet, and I take pride in the close-knit teamwork with my organization.
+ - Speaking for the one field which I feel definitely qualified to comment on, I fully believe the animated picture will emerge as one of the greatest mediums, not only of entertainment but also of education.
+ - Everything that matters to we can work out as expected, in the event that we have the strength to seek after them.
+ - Being a celebrity doesn’t even seem to keep the fleas off our dogs – and if being a celebrity won’t give me an advantage over a couple of fleas, then I guess there can’t be much in being a celebrity after all.
+ - I have watched constantly that in our work the highest moral and spiritual standards are upheld, whether my productions deal with fable or with stories of living action.
+ - Why would I want to be president? I’m the king of Disneyland.
+ - Family fun is as necessary to modern living as a kitchen refrigerator.
+ - I have long felt that the way to keep children out of trouble is to keep them interested in things.
+ - If anybody gets highbrow around the studio, out he goes.
+ - Tomorrow will be better for as long as America keeps alive the ideals of freedom and a better life.
+ - Behind every great amusement park is a great fan site.
+ - Look, you’re really cute, but I can’t understand what you’re saying.
+ - The era we are living in today is a dream of coming true.
+ - It seems to me shallow and arrogant for any man in these times to claim he is completely self-made, that he owes all his success to his own unaided efforts. Many hands and hearts and minds generally contribute to anyone’s notable achievements.
+ - I have no use for people who throw their weight around as celebrities, or for those who fawn over you just because you are famous.
+ - Here in Florida we have something special we never enjoyed at Disneyland – the blessing of size. There’s enough land here to hold all the ideas and plans we can possibly imagine.
+ - I think what I want Disneyland to be most of all is a happy place – a place where adults and children can experience together some of the wonders of life, of adventure, and feel better because of it.
+ - I don’t like formal gardens. I like wild nature. It’s just the wilderness instinct in me, I guess.
+ - Actually, if you could see close in my eyes, the American flag is waving in both of them and up my spine is growing this red, white and blue stripe.
+ - The important thing is the family. If you can keep the family together – and that’s the backbone of our whole business, catering to families – that’s what we hope to do.
+ - Children are people, and they should have to reach to learn about things, to understand things, just as adults have to reach if they want to grow in mental stature.
+ - It’s a mistake not to give people a chance to learn to depend on themselves while they are young.
+ - Well I come from a land, from a far away place, where the caravan camels roam. They will cut of your ear if they don’t like your face, it’s babaric, but hey, it’s home.
+ - The most exciting and by far the most important part of our Florida Project – in fact, the heart of everything we’ll be doing in Disney World – will be our Experimental Prototype Community Of Tomorrow! We call it EPCOT.
+ - You little fool. You thought you could defeat the most powerful being on Earth.
+ - In my work, I try to reach and speak to that innocence, showing it the fun and joy of living; showing it that laughter is healthy; showing it that the human species, although happily ridiculous sometimes, is still reaching for the stars.
+ - Fantasy, if it’s really convincing, can’t become dated, for the simple reason that it represents a flight into a dimension that lies beyond the reach of time.
+ - Leadership shows judgment, wisdom, personal appeal and proven competence.
+ - Childishness? I think it’s the equivalent of never losing your sense of humor. I mean, there’s a certain something that you retain. It’s the equivalent of not getting so stuffy that you can’t laugh at others.
+ - When I started on Disneyland, my wife used to say, ‘But why do you want to build an amusement park? They’re so dirty.’ I told her that was just the point – mine wouldn’t be.
+ - To me, today, at age sixty-one, all prayer, by the humble or highly placed, has one thing in common: supplication for strength and inspiration to carry on the best human impulses which should bind us together for a better world.
+ - Or heritage and ideals, our code and standards – the things we live by and teach our children – are preserved or diminished by how freely we exchange ideas and feelings.
+ - People look at you and me to see what they are supposed to be. And, if we don’t disappoint them, maybe, just maybe, they won’t disappoint us.
+ - Over at our place, we’re sure of just one thing: everybody in the world was once a child. So in planning a new picture, we don’t think of grown-ups, and we don’t think of children. But just of that fine, clean, unspoiled spot down deep in every one of us, that maybe the world has made us forget.
+ - Never get bored or cynical. Yesterday is a thing of the past.
+ - In my view, wholesome pleasure, sport, and recreation are as vital to this nation as productive work and should have a large share in the national budget.
+ - A good ending is vital to a picture, the single most important element, because it is what the audience takes with them out of the theater.
+ - I don’t pretend to know anything about art. I make pictures for entertainment, and then the professors tell me what they mean.
+ - Think beyond your lifetime if you want to accomplish something truly worthwhile.
+ - We have created characters and animated them in the dimension of depth, revealing through them to our perturbed world that the things we have in common far outnumber and outweigh those that divide us.
+ - All cartoon characters and fables must be exaggeration, caricatures. It is the very nature of fantasy and fable.
+ - The life and ventures of Mickey Mouse have been closely bound up with my own personal and professional life.
+ - Disneyland would be a world of Americans, past and present, seen through the eyes of my imagination – a place of warmth and nostalgia, of illusion and color and delight.
+ - Animals have personalities like people and must be studied.
+ - Disneyland is dedicated to the ideals, the dreams, and the hard facts that have created America.
+ - All you’ve got to do is own up to your ignorance honestly, and you’ll find people who are eager to fill your head with information.
+ - If I can’t find a theme, I can’t make a film anyone else will feel. I can’t laugh at intellectual humor. I’m just corny enough to like to have a story hit me over the heart...
+ - The idea of Disneyland is a simple one. It will be a place for people to find happiness and knowledge.
+ - It feels good when it helps to get a good seat for a football game. But it never helped me make a good film or a good shot in a polo game, or command the obedience of my daughter. It doesn.
+ - It is my wish to delight all members of the family, young and old, parent and child.
+ - When I was a kid, a book I read advised young artist to be themselves. That decided it for me. I was a corny kind of guy, so I went in for corn.
+ - I do not want to make teaching films. If I did, I would create a separate organization. It is not higher education that interests me so much as general mass education.
+ - In most instances, the driving force behind the action is the mood, the personality, the attitude of the character – or all three. Therefore, the mind is the pilot. We think of things before the body does them.
+ - I’m not the perfectionist anymore. It’s my staff. They’re the ones always insisting on doing something better and better.
+ - People still think of me as a cartoonist, but the only thing I lift a pen or pencil for these days is to sign a contract, a check, or an autograph.
+ - I am interested in entertaining people, in bringing pleasure, particularly laughter, to others, rather than being concerned with ‘expressing’ myself with obscure creative impressions.
+ - We dance, we kiss, we schmooze, we carry on, we go home happy. What do you say? Come on...
+ - What seems real to the mind can be as important as any material fact. We live by the spirit and the imagination as well as by our senses. Cartoon animation can give fantasy the same reality as those things we can touch and see and hear.
+ - I definitely feel that we cannot do the fantastic things based on the real, unless we first know the real.
+ - I have long felt that the way to keep children out of trouble is to keep them interested in things. Lecturing to children is no answer to delinquency. Preaching won’t keep youngsters out of trouble, but keeping their minds occupied will.
+ - All individuals are different and some of us just wouldn’t be satisfied with just carrying out a routine job and being happy.
+ - We believed in our idea – a family park where parents and children could have fun- together.
+ - Crowded classrooms and half-day sessions are a tragic waste of our greatest national resource – the minds of our children.
+ - I just make what I like – warm and human stories, ones about historic characters and events, and about animals. If there is a secret, I guess it’s that I never make the pictures too childish, but always try to get in a little satire of adult foibles.
+ - We are not trying to entertain the critics. I’ll take my chances with the public.
+ - My greatest reward is that I have been able to build this wonderful organization.
+ - Sheer animated fantasy is still my first and deepest production impulse.
+ - I take great pride in the artistic development of cartoons. Our characters are made to go through emotions.
+ - I wanted to retain my individuality. I was afraid of being hampered by studio policies. I knew if someone else got control, I would be restrained.
+ - Until a character becomes a personality it cannot be believed.
+ - The same thing could have happened on Halloween if somebody in the neighborhood had jumped out and scared him.
+ - Money-or rather the lack of it to carry out my ideas-may worry me, but it does not excite me.
+ - Women are the best judges of anything we turn out. Their taste is very important. They are the theatergoers; they are the ones who drag the men in. If the women like it, to heck with the men.
+ - I have never been interested in personal gain or profit. This business and this studio have been my entire life.
+ - My fun is working on a project and solving the problems.
+ - Animation offers a medium of story telling and visual entertainment which can bring pleasure and information to people of all ages everywhere in the world.
+ - Anything that has the Disney name to it is something we feel responsible for.
+ - No matter what the provocation, I never fire a man who is honestly trying to deliver a job. Few workers who become established at the Disney Studio ever leave voluntarily or otherwise, and many have been on the payroll all their working lives.
+ - One thing it takes to accomplish something is courage.
+ - I started, actually, to make my first animated cartoon in 1920. Of course, they were very crude things then and I used sort of little puppet things.
+ - I do not like to repeat successes, I like to go on to other things.
+ - I don’t want to please everybody. I’d get a little worried if I did something and everybody was pleased with it.
+ - Mickey’s a nice fellow who never does anyone any harm, who gets into scrapes through no fault of his own but always manages to come up grinning.
+ - I believe that laughter is our greatest export.
+ - The way I see it, Disneyland will never be finished.
+ - Everyone has to contribute, or they become laborers.
+ - When you’re working on a project, make sure at least one person knows what they are doing.
+ - If I depended on critics and children to make a living I’d grow broke.
+ - Disneyland is a work of love.
+ - The mind is the pilot. We think of things before the body does them.
+ - I never intended to make art.
+ - Those who are clever, who have a brain, never understand anything.
+ - I’ve always been bored with just making money. I’ve wanted to do things; I wanted to build things, to get something going. What money meant to me was that I was able to get money to do that for me.
+ - Why be a governor or senator when you can be king of Disneyland?
+ - Well it took many years. I started with many ideas, threw them away, started all over again. And eventually it evolved into what you see today at Disneyland.
+ - Sometimes I think of myself as a little bee. I go from one area of the studio to another and gather pollen and sort of stimulate everybody. I guess that’s the job I do.
+ - We did it Disneyland, in the knowledge that most of the people I talked to thought it would be a financial disaster – closed and forgotten within the first year.
+ - Mickey was simply a little personality assigned to the purposes of laughter.
+ - Without inspiration, we would perish.
+ - I think what I want Disneyland to be most of all is a happy place.
+ - I try to build a full personality for each of our cartoon characters – to make them personalities.
+ - It’s silly to build a wall around your interests.
+ - I don’t think there’s a thing I own that I will ever get the benefit of except through doing things with it.
+ - Moving pictures can be and will be new and fresh and exciting as long as there are ideas and talent in the world.
+ - Animation is different from other parts. Its language is the language of caricature. Our most difficult job was to develop the cartoon’s unnatural but seemingly natural anatomy for humans and animals.
+ - When you go to bat as many times as I do, you’re bound to get a good average. That’s why I keep my projects diversified.
+
+304 quotes

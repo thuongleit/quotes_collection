@@ -1,0 +1,38 @@
+ - I don’t associate with people who blame the world for their problems. You are your problem. You are also your solution.
+ - There’s a greatness in not caring what people think.
+ - I want to be healthy.
+ - I felt really bad for someone who is swimming in so much hate. I just thought, that’s someone who’s in a really bad spot, and I am in such a happy spot. I laugh my head off every day with my husband and my kids who are mooning me and singing me songs.
+ - I watch HGTV like a maniac, and when it’s bad, it’s like some crazy college guy watching a football game.
+ - I think if anyone tells you the odds are slim, just keep walking. Just do whatever the hell you want to do, because they don’t know what they’re talking about. When you love something, and you work really really hard at it, you can do it.
+ - I’m really happy in my life.
+ - You just have to say, ‘It’s pretty damn good. I am right here at the moment and I’m OK with it. I’ve got other things to think about.’
+ - I just don’t lose weight easily.
+ - To me, having 500 rolls of fabric around is the most calming thing in the world. I think it’s what football is to some guys.
+ - I’m not a great pregnant woman.
+ - You can’t just play crazy. It makes you push yourself to stay in the realm of reality. And when you do that, it’s a lot funnier. That’s my favorite, when you think it’s a real strange person and not just someone being wacky.
+ - I believe in Heaven. I don’t believe that this is it, and then we’re done.
+ - I don’t like to do anything that’s mean spirited just because I don’t find it funny. I’d rather be the jackass than makes fun of somebody else. It just seems too cheap and easy.
+ - When I believe in something, I’m like a dog with a bone.
+ - It’s funny; as I get older I’m reverting to my roots – I want to plant stuff.
+ - I went to school for clothing and textiles and thought this is what I was going to do. Then I started working in costumes and literally said, ‘I don’t know if I can take the actors.’
+ - I am not a princess, I don’t want to be referred to as a princess – I find that super creepy.
+ - As a teenager I went all Goth, but I wasn’t mopey enough. I would pretend to be, but I’d end up making people laugh.
+ - I ran right back to work. My back was just destroyed after pregnancy. I almost had to have surgery, until I did Pilates and rebuilt my body.
+ - Sometimes I wish I were just magically a size 6 and I never had to give it a single thought.
+ - I’m always tinkering with something – suddenly I’ll think I can work with wood, but then I’ll realize I can’t, so I go back to sewing.
+ - I’m a bit obsessed with women that are so incredibly solid in their shoes that they don’t care what other people think of them. I just think there’s something so interesting about that kind of confidence.
+ - I’ve been every size in the world. Parts of my 20s, I was in great shape, but I didn’t appreciate it. If I was a 6 or an 8, I thought, “Why aren’t I a 2 or a 4?” Now I feel like I have two great kids and the dreamiest husband on the planet, and everything else is just a work in progress.
+ - I think the reason I’m an actress is because I love playing kind of a more extreme people.
+ - I don’t really know why I’m not thinner than I am.
+ - I don’t know any neighborhoods where everyone’s walking around in seven-inch heels and perfect makeup.
+ - I do think comedy needs to be a living thing, but I think without a great script and fully realized characters, you cannot keep it living. Otherwise it just becomes long and rambling indulgent.
+ - Once you start writing a character visually, you’re in trouble.
+ - I could eat healthier, I could drink less. I should be learning another language and working out more, but I’m just always saying, ‘Ah, I could get hit by a bus tomorrow.’
+ - I’m certainly not shy, but I like playing it because I love those characters that are incredibly confident but really still a mess.
+ - When someone really believes in what they’re saying, but it’s crazy, it’s like my favorite thing on earth.
+ - I think when you can actually do what you love to do, if it’s a little play somewhere, if it’s a photo, if it’s anything- if you can somehow do what you want and do a really good job at it, I think that’s pretty successful.
+ - Comedy to me is all about the bumps and bruises and weird tics.
+ - Part of being young is you thinking that gaining 6 lbs. Is the end of the world.
+ - In terms of threshold, as long as it’s based in reality, you can go pretty far, as long as you buy that it’s really happening.
+
+36 quotes

@@ -1,0 +1,297 @@
+ - There are two kinds of forecasters: those who don’t know, and those who don’t know they don’t know.
+ - The problem of the modern economy is not a failure of a knowledge of economics; it’s a failure of a knowledge of history.
+ - Faced with the choice between changing one’s mind and proving that there is no need to do so, almost everyone gets busy on the proof.
+ - Economic theory is the most prestigious subject of instruction and study. Agricultural economics, labor economics and marketing are lower caste fields of study.
+ - The modern conservative is engaged in one of man’s oldest exercises in moral philosophy; that is, the search for a superior moral justification for selfishness.
+ - Agriculture is one economic activity that does not obey the laws of demand and supply.
+ - The study of money, above all other fields in economics, is one in which complexity is used to disguise truth or to evade truth, not to reveal it. The process by which banks create money is so simple the mind is repelled. With something so important, a deeper mystery seems only decent.
+ - Oligopoly is an imperfect monopoly. Like the despotism of the Dual Monarchy, it is saved only by its incompetence.
+ - No ethic is as ethical as the work ethic.
+ - A wrong decision isn’t forever; it can always be reversed. The losses from a delayed decision are forever; they can never be retrieved.
+ - Banking may well be a career from which no man really recovers.
+ - When people are least sure, they are often most dogmatic.
+ - In economics, hope and faith coexist with great scientific pretension and also a deep desire for respectability.
+ - People of privilege will always risk their complete destruction rather than surrender any material part of their advantage.
+ - In economics, the majority is always wrong.
+ - The only function of economic forecasting is to make astrology look respectable.
+ - Only foolish people are completely secure.
+ - We all agree that pessimism is a mark of superior intellect.
+ - The inborn instability of capitalism has been part of the history of the system for several hundred years.
+ - Meetings are indispensable when you don’t want to do anything.
+ - In the affluent society, no useful distinction can be made between luxuries and necessities.
+ - If you’re rich you can buy books. If you’re poor, you need a library.
+ - There is a common tendency to ignore the poor or to develop some rationalisation for the good fortune of the fortunate.
+ - The questions that are beyond the reach of economics-the beauty, dignity, pleasure and durability of life-may be inconvenient but they are important.
+ - War remains the decisive human failure.
+ - People are the common denominator of progress; no improvement is possible with unimproved people.
+ - It takes some skill to spoil a breakfast – even the English can’t do it.
+ - I think without a doubt, that what is called “financial genius” is merely a rising market.
+ - Foresight is an imperfect thing – all prevision in economics is imperfect.
+ - In the world of minor lunacy the behaviour of both the utterly rational and the totally insane seems equally odd.
+ - Genius is a rising stock market.
+ - Modesty is a vastly overrated virtue.
+ - Consumer wants can have bizarre, frivolous, or even immoral origins, and an admirable case can still be made for a society that seeks to satisfy them. But the case cannot stand if it is the process of satisfying wants that create the wants.
+ - I react pragmatically. Where the market works, I’m for that. Where the government is necessary, I’m for that. I’m deeply suspicious of somebody who says, ‘I’m in favor of privatization,’ or, ‘I’m deeply in favor of public ownership.’ I’m in favor of whatever works in the particular case.
+ - In public administration good sense would seem to require the public expectation be kept at the lowest possible level in order to minimize the eventual disappointment.
+ - The conventional view serves to protect us from the painful job of thinking.
+ - I think the role of the Federal Reserve is enormously exaggerated.
+ - The process by which banks create money is so simple that the mind is repelled.
+ - In recent times no problem has been more puzzling to thoughtful people than why, in a troubled world, we make such poor use of our affluence.
+ - The stock market is but a mirror which provides an image of the underlying or fundamental economic situation. Cause and effect run from the economy to the stock market, never the reverse. In 1929 the economy was headed for trouble. Eventually that trouble was violently reflected in Wall Street.
+ - The enemy of the conventional wisdom is not ideas but the march of events.
+ - Few things in life can be so appalling as the difference between a dry antiseptic statement of a principle by a well spoken man in a quiet office, and what happens to people when that principle is put into practice.
+ - One of the greatest pieces of economic wisdom is to know what you do not know.
+ - The world of finance hails the invention of the wheel over and over again, often in a slightly more unstable version.
+ - The experience of being disastrously wrong is salutary, no economist should be denied it, and not many are.
+ - Economics is not an exact science.
+ - I am worried about our tendency to over invest in things and under invest in people.
+ - Few things are as immutable as the addiction of political groups to the ideas by whichthey have once won office.
+ - To add to the technostructure is to increase its power in the enterprise.
+ - The sense of responsibility in the financial community for the community as a whole is not small. It is nearly nil.
+ - But now, as throughout history, financial capacity and political perspicacity are inversely correlated.
+ - The threat to men of great dignity, privilege and pretense is not from the radicals they revile; it is from accepting their own myth. Exposure to reality remains the nemesis of the great – a little understood thing.
+ - One can relish the varied idiocy of human action during a panic to the full, for, while it is a time of great tragedy, nothing is being lost but money.
+ - Emancipation of belief is the most formidable of the tasks of reform and the one on which all else depends.
+ - Do not be alarmed by simplification, complexity is often a device for claiming sophistication, or for evading simple truths.
+ - Things that come from the private sector are in abundant supply; things that depend on the public sector are widely a problem. We’re a world, as I said in The Affluent Society, of filthy streets and clean houses, poor schools and expensive television.
+ - I am for a close global association in trade and financial matters, rather than the opposite possibility of excessive nationalism, as manifested in the two world wars.
+ - Conscience is better served by a myth.
+ - This is a world inhabited not by people who have to be persuaded to believe but by people who want an excuse to believe.
+ - Partly, the Russian system succeeds because, in contrast to the Western industrial economies, it makes full use of its manpower.
+ - No hungry man who is also sober can be persuaded to use his last dollar for anything but food.
+ - Much discussion of money involves a heavy overlay of priestly incantation.
+ - Economic stimulation that works through the increased outlays to the affluent has, inevitably, an aspect of soundness and sanity that is lacking in expenditure on behalf of the undeserving poor.
+ - We shall have a race of men who are strong on telemetry and space communications but who cannot read anything but a blueprint or write anything but a computer program.
+ - Economists, on the whole, think well of what they do themselves and much less well of what their professional colleagues do.
+ - Happiness does not require an expanding economy.
+ - In economics it is a far, far wiser thing to be right than to be consistent.
+ - It is a commonplace of modern technology that problems have solutions before there is knowledge of how they are to be solved.
+ - Ideas are inherently conservative. They yield not to the attack of other ideas but to the massive onslaught of circumstance with which they cannot contend.
+ - A nuclear war does not defend a country and it does not defend a system. I’ve put it the same way many times; not even the most accomplished ideologue will be able to tell the difference between the ashes of capitalism and the ashes of communism.
+ - Liberalism is, I think, resurgent. One reason is that more and more people are so painfully aware of the alternative.
+ - It is my guiding confession that I believe the greatest error in economics is in seeing the economy as a stable, immutable structure.
+ - Economists are economical, among other things, of ideas; most make those of their graduate days do for a lifetime.
+ - Total physical and mental inertia are highly agreeable, much more so than we allow ourselves to imagine. A beach not only permits such inertia but enforces it, thus neatly eliminating all problems of guilt. It is now the only place in our overly active world that does.
+ - Few economic problems, if any, are difficult of solution. The difficulty, all but invariably, is in confronting them. We know what needs to be done; for reasons of inertia, pecuniary interest, passion or ignorance, we do not wish to say so.
+ - But there is merit even in the mentally retarded legislator. He asks the questions that everyone is afraid to ask for fear of seeming simple.
+ - In the market economy the price that is offered is counted upon to produce the result that is sought.
+ - While it will be desirable to achieve planned results, it will be even more important to avoid unplanned disasters.
+ - In 1929 the discovery of the wonders of the geometric series struck Wall Street with a force comparable to the invention of the wheel.
+ - Unemployment is rarely considered desirable except by those who have not experienced it.
+ - Agreeable as it is to know where one is proceeding, it is far more important to know where one has arrived.
+ - We can safely abandon the doctrine of the eighties, namely that the rich were not working because they had too little money, the poor because they had much.
+ - Speeches in our culture are the vacuum that fills a vacuum.
+ - The Senate has unlimited debate; in the House, debate is ruthlessly circumscribed. There is frequent discussion as to which technique most effectively frustrates democratic process.
+ - The line dividing the state from what is called private enterprise, orat least fromthehighlyorganized part of it, is a traditional fiction.
+ - According to the experience of all but the most accomplished jugglers, it is easier to keep one ball in the air than many.
+ - In the assumption that power belongs as a matter of course to capital, all economists are Marxians.
+ - If there must be madness, something may be said for having it on a heroic scale.
+ - Technology means the systematic application of scientific or other organized knowledge to practical tasks.
+ - Mr. David Stockman has said that supply-side economics was merely a cover for the trickle-down approach to economic policy – what an older and less elegant generation called the horse-and-sparrow theory: If you feed the horse enough oats, some will pass through to the road for the sparrows.
+ - The spirit should never grow old.
+ - A person buying ordinary products in a supermarket is in touch with his deepest emotions.
+ - The happiest time of anyone’s life is just after the first divorce.
+ - Some things were never meant to be recycled.
+ - One of the best ways of avoiding necessary and even urgent tasks is to seem to be busily employed on things that are already done.
+ - The family which takes it mauve and cerise, air conditioned, power-steered, and power braked automobile out for a tour passes through cities that are badly paved, made hideous by litter, blighted buildings, billboards, and posts for wires that should long since have been put underground.
+ - Simple minds, presumably, are the easiest to manage.
+ - Authorship of any sort is a fantastic indulgence of the ego.
+ - The conspicuously wealthy turn up urging the character building values of the privation of the poor.
+ - Milton Friedman’s misfortune is that his economic policies have been tried.
+ - All successful revolutions are the kicking in of a rotten door.
+ - The greater the wealth the thicker will be the dirt.
+ - Smoking dope and hanging up Che’s picture is no more a commitment than drinking milk and collecting postage stamps. A revolution in consciousness is an empty high without a revolution in the distribution of power.
+ - The myth that holds that the great corporation is the puppet of the market, the powerless servant of the consumer, is, in fact one of the devices by which its power is perpetuated.
+ - Nothing so denies a person liberty as the total absence of money.
+ - The size of General Motors is in the service not of monopoly or the economies of scale but of planning.
+ - Clearly the most unfortunate people are those who must do the same thing over and over again, every minute, or perhaps twenty to the minute. They deserve the shortest hours and the highest pay.
+ - More die in the United States of too much food than of too little.
+ - In the conventional wisdom of conservatives, the modern search for security is regularly billed as the greatest single threat to economic progress.
+ - Because of his compassion Owen was always in trouble with his partners. They would have much preferred a tough, down-to-earth manager who would get a days work out of the little bastards.
+ - People who are in a fortunate position always attribute virtue to what makes them so happy.
+ - The more underdeveloped the country, the more overdeveloped the women.
+ - The Metropolis should have been aborted long before it became New York, London or Tokyo.
+ - Any country that has Milton Friedman as an adviser has nothing to fear from a few million Arabs.
+ - Preservationists are the only people in the world who are invariably confirmed in their wisdom after the fact.
+ - You will find that the State is the kind of organization which, though it does big things badly, does small things badly, too.
+ - The privileged have regularly invited their own destruction with their greed.
+ - Nothing in our time is more interesting than the erstwhile capitalist corporation and the erstwhile Communist firm should, under the imperatives of organization, come together as oligarchies of their own members.
+ - Nothing is more portable than rich people and their money.
+ - Foreign policy is conducted for the convenience and enjoyment of people in Washington.
+ - The salary of the chief executive of a large corporation is not a market award for achievement. It is frequently in the nature of a warm personal gesture by the individual to himself.
+ - The individual serves the industrial system not by supplying it with savings and the resulting capital; he serves it by consuming its products.
+ - If we were not in Vietnam, all that part of the world would be enjoying the obscurity it so richly deserves.
+ - It is the good fortune of the affluent country that the opportunity cost of economic discussion is low and hence it can afford all kinds.
+ - Money is a singular thing. It ranks with love as man’s greatest source of joy. And with death as his greatest source of anxiety. Over all history it has oppressed nearly all people in one of two ways: either it has been abundant and very unreliable, or reliable and very scarce.
+ - There’s a certain part of the contented majority who love anybody who is worth a billion dollars.
+ - Of all the weapons in the Federal Reserve arsenal, words were the the most unpredictable in their consequences.
+ - In any great organization it is far, far safer to be wrong with the majority than to be right alone.
+ - Clerks in downtown hotels were said to be asking guests whether they wished the room for sleeping or jumping. Two men jumped hand-in-hand from a high window in the Ritz. They had a joint account.
+ - When you see reference to a new paradigm you should always, under all circumstances, take cover.
+ - There are few ironclad rules of diplomacy but to one there is no exception. When an official reports that talks were useful, it can safely be concluded that nothing was accomplished.
+ - Nothing so weakens a government as inflation.
+ - In central banking as in diplomacy, style, conservative tailoring, and an easy association with the affluent count greatly and results far much less.
+ - The complaints of the privileged are too often confused with the voice of the masses.
+ - If all else fails, immortality can always be assured by spectacular error.
+ - There was something superficial in attributing anything so awful as the Great Depression to anything so insubstantial as speculation in common stocks.
+ - There are times in politics when you must be on the right side and lose.
+ - The American colonies, all know, were greatly opposed to taxation without representation. They were also, a less celebrated quality, equally opposed to taxation with representation.
+ - If it is dangerous to suppose that government is always right, it will sooner or later be awkward for public administration if most people suppose that it is always wrong.
+ - I react to what is necessary. I would like to eschew any formula.
+ - In the United States, though power corrupts, the expectation of power paralyzes.
+ - Talk of revolution is one of avoiding reality.
+ - Men have been swindled by other men on many occasions. The autumn of 1929 was, perhaps, the first occasion when men succeeded on a large scale in swindling themselves.
+ - What is called a high standard of living consists, in considerable measure, in arrangements for avoiding muscular energy, for increasing sensual pleasure and enhancing caloric intake above any conceivable nutritional requirement.
+ - Much literary criticism comes from people for whom extreme specialization is a cover for either grave cerebral inadequacy or terminal laziness, the latter being a much cherished aspect of academic freedom.
+ - I was brought up in southwestern Ontario where we were taught that Canadian patriotism should not withstand anything more than a five-dollar-a-month wage differential. Anything more than that and you went to Detroit.
+ - I predict, not because I know, but because I’m asked.
+ - It is in the long run that the corporation lives.
+ - The huge capacity to purchase submission that goes with any large sum of money, well, this we have. This is a power of which we should all be aware.
+ - THE GENIUS of the industrial system lies in its organized use of capital and technology. This is made possible, as we have duly seen, by extensively replacing the market with planning.
+ - Money differs from an automobile or mistress in being equally important to those who have it and those who do not.
+ - Man, at least when educated, is a pessimist. He believes it safer not to reflect on his achievements; Jove is known to strike such people down.
+ - If a man didn’t make sense, the Scotch felt it was misplaced politeness to try to keep him from knowing it. Better that he be aware of his reputation, for this would encourage reticence which goes well with stupidity.
+ - The masters thought they were loved until one day one of their favorites farted loudly while serving dinner and the next day was gone. The very first manifestation of the classless society is the disappearance of the servant class.
+ - It has been the acknowledged right of every Marxist scholar to read into Marx the particular meaning that he himself prefers and to treat all others with indignation.
+ - There are days when the result is so bad that no fewer than five revisions are required. In contrast, when I’m greatly inspired, only four revisions are needed.
+ - Men are, in fact, either sustained by organization or they sustain organization.
+ - Wealth, in even the most improbable cases, manages to convey the aspect of intelligence.
+ - Those who yearn for the end of capitalism should pray for government by men who believe that all positive action is inimical to what they call thoughtfully the fundamental principles of free enterprise.
+ - One man’s consumption becomes his neighbor’s wish.
+ - If anything is evident about people who manage money, it is that the task attracts a very low level of talent, one that is protected in its highly imperfect profession by the mystery that is thought to enfold the subject of economics in general and of money in particular.
+ - Politics is the art of choosing between the disastrous and the unpalatable.
+ - Where humor is concerned there are no standards – no one can say what is good or bad, although you can be sure that everyone will.
+ - You roll back the stones, and you find slithering things. That is the world of Richard Nixon.
+ - To see economic policy as a problem of choice between rival ideologies is the greatest error of our time.
+ - All crises have involved debt that, in one fashion or another, has become dangerously out of scale in relation to the underlying means of payment.
+ - The foresight of financial experts was, as so often, a poor guide to the future.
+ - Inventions that are not made, like babies that are not born, are rarely missed. In the absence of new developments, old ones may seem very impressive for quite a long while.
+ - We are becoming the servants in thought, as in action of the machine we have created to serve us.
+ - In a community where public services have failed to keep abreast of private consumption things are very different. Here, in an atmosphere of private opulence and public squalor, the private goods have full sway.
+ - Humor is richly rewarding to the person who employs it. It has some value in gaining and holding attention, but it has no persuasive value at all.
+ - Private enterprise did not get us atomic energy.
+ - There is something wonderful in seeing a wrong-headed majority assailed by truth.
+ - It’s great to be with William Buckley, because you don’t have to think. He takes a position and you automatically take the opposite one and you know you’re right.
+ - Very important functions can be performed very wastefully and often are.
+ - The massive reduction in risk that is inherent in the development of the modern corporation has been far from fully appreciated.
+ - There is an old saying, or should be, that it is a wise economist who recognizes the scope of his own generalizations.
+ - Inventions that are not made, like babies that are not born, are not missed.
+ - We now in the United States have more security guards for the rich than we have police services for the poor districts. If you’re looking for personal security, far better to move to the suburbs than to pay taxes in New York.
+ - The modern corporation must manufacture not only goods but the desire for the goods it manufactures.
+ - Nothing is so admirable in politics as a short memory.
+ - Much of the world’s work, it has been said, is done by men who do not feel quite well. Marx is a case in point.
+ - If people are hungry, ill-clad, unsheltered or diseased, nothing is so important as to remedy their condition.
+ - Educators have yet to realize how deeply the industrial system is dependent upon them.
+ - I feel very angry when I think of brilliant, or even interesting, women whose minds are wasted on a home. Better have an affair. It isn’t permanent and you keep your job.
+ - The great dialectic in our time is not, as anciently and by some still supposed, between capital and labor; it is between economic enterprise and the state.
+ - In all modern depressions, recessions, or growth-correction, as variously they are called, we never miss the goods that are not produced. We miss only the opportunities for the labour – for the jobs – that are not provided.
+ - The first goal of the technostructure is its own security.
+ - There is wonder and a certain wicked pleasure in these giddy ascents and terrible falls, especially as they happen to other people.
+ - Third party politics, at least since La Follette, has always had an element of romance.
+ - All of the great leaders have had one characteristic in common: it was the willingness to confront unequivocally the major anxiety of their people in their time. This, and not much else, is the essence of leadership.
+ - We talk of the enormous virtues of work, but it turns out that that is mostly for the poor. If you’re rich enough or if you’re a college professor, the virtue lies in leisure and the use you make of your leisure time.
+ - In a world where for pedagogic and other purposes a very large number of economists is required, an arrangement which discourages many of them from.
+ - It’s much easier to point out the problem than it is to say just how it should be solved.
+ - Writing is a long and lonesome business; back of the problems in thought and composition hover always the awful questions: Is this the page that shows the empty shell? Is it here and now that they find me out?
+ - In economics, unlike fiction and the theater, there is no harm in a premature disclosure of the plot: it is to see the changes just mentioned and others as an interlocked whole.
+ - I was in charge of price controls in World War II and had a ceiling on overall prices. Everybody who was subject to general maximum price regulation wanted an exception and went to Congress to persuade a Congressman, or a group of people on the Hill, that I was being a menace to their industry.
+ - A good rule of conversation is never answer a foolish question.
+ - Even the word depression itself was the terminological product of an effort to soften the connotation of deep trouble. In the last century, the term crisis was normally employed. With time, however, this acquired the connotation of the misfortune it described.
+ - It would be foolish to suggest that government is a good custodian of aesthetic goals. But, there is no alternative to the state.
+ - It is a well known and very important fact that America’s founding fathers did not like taxation without representation. It is a lesser known and equally important fact that they did not much like taxation with representation.
+ - Ideas may be superior to vested interest. They are also very often the children of vested interest.
+ - No society ever seems to have succumbed to boredom. Man has developed an obvious capacity for surviving the pompous reiteration of the commonplace.
+ - The notion of a formal structure of command must be abandoned. It is more useful to think of the mature corporation as a series of concentric circles.
+ - I never enjoyed writing a book more; indeed, it is the only one I remember in no sense as a labor but as a joy.
+ - There is certainly no absolute standard of beauty. That precisely is what makes its pursuit so interesting.
+ - Change comes not from men and women changing their minds, but from the change from one generation to the next.
+ - The fully planned economy, so far from being unpopular, is warmly regarded by those who know it best.
+ - Who is king in the world of the blind when there isn’t even a one eyed man?
+ - A bad book is the worse that it cannot repent. It has not been the devil’s policy to keep the masses of mankind in ignorance; but finding that they will read, he is doing all in his power to poison their books.
+ - No intelligence system can predict what a government will do if it doesn’t know itself.
+ - Economic life, as always, is a matrix in which result becomes cause and cause becomes result.
+ - It’s a rule worth having in mind. Income almost always flows along the same axis as power but in the opposite direction.
+ - Anyone who says he won’t resign four times, will.
+ - All, the intelligent and stupid, diligent and idle, have been swept along on a current of increased output that, in the usual case, owed nothing whatever to their efforts.
+ - Getting on the cover of TIME guarantees the existence of opposition in the future.
+ - American university presidents are a nervous breed; I have never thought well of them as a class.
+ - If you get a reputation for being honest, you have 95 percent of the competition already beat.
+ - Only men of considerable vanity write books; consistently therewith, I worried lest the world were exchanging an irreplaceable author for a more easily purchased diplomat.
+ - That one never need to look beyond the love of money for explanation of human behavior is one of the most jealously guarded simplification of our culture.
+ - I’ve been a faithful reader of the great classical documents of economics, or tried to be. The first book in the field that I ever read was Principles of Economics by Alfred Marshall. I suppose subsequently I would have to pick out Keynes, Adam Smith, Marx.
+ - From the spring of 1941, I controlled all prices in the United States. You could lower a price without my permission, but you couldn’t raise a price without my permission or that of my staff.
+ - Ideas do not respect national frontiers, and this is especially so where language and other traditions are in common.
+ - In the autumn of 1929 the mightiest of Americans were, for a brief time, revealed as human beings.
+ - No one was responsible for the great Wall Street crash. No one engineered the speculation that preceded it. Both were the product of free choice and decision of hundreds of thousands of individuals.
+ - Both we and the Soviets face the common threat of nuclear destruction and there is no likelihood that either capitalism or communism will survive a nuclear war.
+ - It is not the individual’s right to buy that is being protected. Rather, it is the seller’s right to manage the individual.
+ - What was needed was a policy that increased the supply of money available for use and then ensured its use. Then the state of trade would have to improve.
+ - I have never understood why one’s affections must be confined, as once with women, to a single country.
+ - Meetings are a great trap. Soon you find yourself trying to get agreement and then the people who disagree come to think they have a right to be persuaded. However, they are indispensable when you don’t want to do anything.
+ - In the early days of the crash it was widely believed that Jesse L. Livermore, a Bostonian with a large and unquestionably exaggerated reputation for bear operations, leading a syndicate that was driving the market down.
+ - A businessman who reads Business Week is lost to fame. One who reads Proust is marked for greatness.
+ - With the American failure came world failure.
+ - Of late I have searched diligently to discover the advantages of age, and there is, I have concluded, only one. It is that lovely women treat your approaches with understanding rather than with disdain.
+ - All writers know that on some golden mornings they are touched by the wand; they are on intimate terms with poetry and cosmic truth. I have experienced these moments myself. Their lesson is simple: It’s a total illusion. And the danger in the illusion is that you will wait for those moments.
+ - At best, in such depression times, monetary policy is a feeble reed on which to lean.
+ - It is almost as important to know what is not serious as to know what is.
+ - It is not necessary to advertise food to hungry people, fuel to cold people, or houses to the homeless.
+ - The man who is admired for the ingenuity of his larceny is almost always rediscovering some earlier form of fraud. The basic forms are all known, have all been practiced. The manners of capitalism improve. The morals may not.
+ - I would put primary emphasis on a good standard of living equitably distributed. It can’t be equal, but one that eliminates the terrible cruelty of poverty.
+ - There is no name for all who participate in group decision-making or the organization which they form. I propose to call this organization the Technostructure.
+ - By all but the pathologically romantic, it is now recognized that this is not the age of the small man.
+ - One of my greatest pleasures in my writing has come from the thought that perhaps my work might annoy someone of comfortably pretentious position. Then comes the realization that such people rarely read.
+ - Decision has greater virtue and force if taken after there has been eloquent dissent.
+ - It is possible that people need to believe they are unmanaged if they are to be managed effectively.
+ - Economists are generally negligent of their heroes.
+ - If inheritance qualifies one for office, intelligence cannot be a requirement.
+ - Power is not something that can be assumed or discarded at will like underwear.
+ - There’s no question that in my lifetime, the contrast between what I called private affluence and public squalor has become very much greater.
+ - A drastic reduction in weapons competition following a general release from the commitment to the Cold War would be sharply in conflict with the needs of the industrial system.
+ - A more important antidote to American democracy is American gerontocracy. The positions of eminence and authority in Congress are allotted in accordance with length of service, regardless of quality.
+ - Seaboard Air Line, which was thought by numerous innocents to provide a foothold in aviation, was another favorite, although, in fact, it was a railroad.
+ - Every corner of the public psyche is canvassed by some of the most talented citizens to see if the desire for some merchandisable product can be cultivated.
+ - Inflation does not lubricate trade but by rescuing traders from their errors of optimism or stupidity.
+ - We do not manufacture wants for goods we do not produce.
+ - No grant of feudal privilege has ever equaled, for effortless return, that of the grandparent who bought and endowed his descendants with a thousand shares of General Motors or General Electric.
+ - The overall effect of the rise of the industrial system is greatly to reduce the union as a social force. But it will not disappear or become entirely unimportant.
+ - Economics is extremely useful as a form of employment for economists.
+ - It takes a certain brashness to attack the accepted economic legendsbut noneat all toperpetuatethem. So theyare perpetuated.
+ - The income men derive from producing things of slight consequence is of great consequence. The production reflects the low marginal utility of the goods to society. The income reflects the high total utility of a livelihood to a person.
+ - One must always have in mind one simple fact – there is no literate population in the world that is poor, and there is no illiterate population that is anything but poor.
+ - Of all the mysteries of the stock exchange there is none so impenetrable as why there should be a buyer for everyone who seeks to sell.
+ - In all life one should comfort the afflicted, but verily, also, one should afflict the comfortable, and especially when they are comfortably, contentedly, even happily wrong.
+ - Economics is a subject profoundly conducive to cliche, resonant with boredom. On few topics is an American audience so practiced in turning off its ears and minds. And none can say that the response is ill advised.
+ - We have escapist fiction, so why not escapist biography?
+ - Superficial observers have long criticized the United States for making a fetish of youth. This is unfair. Uniquely among modern organs of public and private administration, its national legislature rewards senility.
+ - Had the Bible been in clear straightforward language, had the ambiguities and contradictions been edited out, and had the language been constantly modernised to accord with contemporary taste it would almost certainly have been, or become, a work of lesser influence.
+ - It is a far, far better thing to have a firm anchor in nonsense than to put out on the troubled seas of thought.
+ - The urge to consume is fathered by the value system which emphasizes the ability of the society to produce.
+ - Under the privilege of the First Amendment many, many ridiculous things are said.
+ - Only in very recent times has the average man been a source of savings.
+ - Few people at the beginning of the nineteenth century needed an adman to tell them what they wanted.
+ - Originality is something that is easily exaggerated, especially by authors contemplating their own work.
+ - Technology, under all circumstances, leads to planning; in its higher manifestations it may put the problems of planning beyond the reach of the industrial firm. Technological compulsions, and not ideology or political will, will require the firm to seek the help and protection of the state.
+ - Washington is a place where men praise courage and act on elaborate personal cost-benefit calculations.
+ - The present age of contentment will come to an end only when and if the adverse developments that it fosters challenge the sense of comfortable well-being.
+ - Few can believe that suffering, especially by others, is in vain. Anything that is disagreeable must surely have beneficial economic effects.
+ - No nice philosophical point has ever been so decisively resolved as this: that those who are not conceived do not miss the pleasure of consuming the goods they do not get born to enjoy.
+ - Truth has anciently been called the first casualty of war. Money may, in fact, have priority.
+ - In 1736, Franklin’s Pennsylvania Gazette printed an apology for its irregular appearence because its printer was “with the Press, labouring for the publick Good, to make Money more plentiful.” The press was busy printing money.
+ - It was Herbert Spencer, not Charles Darwin, who coined the phrase Survival of the Fittest.
+ - Nostalgia combines regularly with manifest respectability to give credence to old error as opposed to new truth.
+ - Power is as power does.
+ - But it can be laid down as a rule that those who speak most of liberty are least inclined to use it.
+ - Under capitalism, man exploits man. Under communism, it’s just the opposite.
+ - Of all classes the rich are the most noticed and the least studied.
+ - In dealing with Mr. Nixon, it is not easy to be unfair. He invites and justifies all available criticism.
+ - There are a significant number of learned men and women who hold that any successful effort to make ideas lively, intelligible and interesting is a manifestation of deficient scholarship. This is the fortress behind which the minimally coherent regularly find refuge.
+ - However, it is safe to say that at the peak in 1929 the number of active speculators was less – and probably was much less – than a million.
+ - Marx profoundly affected those who did not accept his system. His influence extended to those who least supposed they were subject to it.
+ - The commencement speech is not, I think, a wholly satisfactory manifestation of our culture.
+ - Wealth is not without its advantages and the case to the contrary, although it has often been made, has never proved widely persuasive.
+ - My rule on honorary degrees has always been to have one more than Arthur Schlesinger Jr.
+ - When everything else failed, we can still become immortal by making an enormous blunder...
+ - Why is anything intrinsically so valueless so obviously desirable?
+
+295 quotes

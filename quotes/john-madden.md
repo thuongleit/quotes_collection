@@ -1,0 +1,62 @@
+ - Self-praise is for losers. Be a winner. Stand for something. Always have class, and be humble.
+ - Don’t worry about the horse being blind, just load the wagon.
+ - The road to Easy Street goes through the sewer.
+ - If the quarterback throws the ball in the endzone and the wide receiver catches it, it’s a touchdown.
+ - Mark Brunell usually likes to soak his balls before a rainy game.
+ - Some yards is better than none yards?
+ - The only yardstick for success our society has is being a champion. No one remembers anything else.
+ - Here’s a guy who when he runs, he moves faster.
+ - I get a certain feeling when I go to Lambeau field in Green Bay. Soldier field in Chicago is special to me. Those are the places that I really like. The stadiums.
+ - Don’t do anything great if you can’t handle the congratulations.
+ - Winning is a great deodorant.
+ - He got up looking out of his earhole!
+ - I would have all my offensive linemen wrestle if I could.
+ - The best way to gain more yards is advance the ball down the field from the line of scrimmage.
+ - From the waist down, Earl Campbell has the biggest legs I have ever seen on a running back.
+ - You can’t win a game if you don’t score any points.
+ - When its raining the field gets wet, then all of a sudden everyones running slower.
+ - Boom, boom, foom, poom! He just ran right at ’em!
+ - He might want to watch where he lands when tackling that guy, because he could really hurt his hand if it gets stepped on.
+ - Coaches have to watch for what they don’t want to see and listen to what they don’t want to hear.
+ - He would have scored a touchdown if he hadn’t been tackled right there.
+ - Playing in this nice weather really makes me remember all the times I got stung by a bee.
+ - The fewer rules a coach has, the fewer rules there are for players to break.
+ - The best feeling is watching a real football game, because the games they show in the movies aren’t real.
+ - Discipline in football occurs on the field, not off it. Discipline is knowing what you’re supposed to do and doing it as best you can.
+ - When you have great players, playing great, well that’s great football!
+ - Well, when you’re playing good football, it’s good football and if you don’t have good football, then you’re not really playing good football.
+ - Usually, the team that turns the ball over less will hold on to the ball more.
+ - If a guy doesn’t work hard and doesn’t play well, he can’t lead anything. All he is, is a talker.
+ - The defense should be expecting a run or a pass here.
+ - The greatest gap in sports is between the winner and the loser of the Super Bowl. The winner has confetti, parades, rings, the whole thing. The loser puts his head down and goes to his house.
+ - There is a difference in being in shape and being in football shape. Any one can out on the field and run around, but once you start getting hit and have to get up then you find out the difference between being in shape and football shape.
+ - I’ve always said winning’s the great deodorant, and conversely, when you have a bad record – everything stinks – and everything starts to unravel, and everything falls apart.
+ - If someone remembers me as a coach, they still call me ‘Coach,’ but if they know me for the video game, they just call me ‘Madden.’
+ - I always used to tell my players that we are here to win! And you know what, Al? When you don’t win, you lose.
+ - That’s the biggest gap in sports, the difference between the winner and the loser of the Super Bowl.
+ - I think comparisons are odious.
+ - Give something that wasn’t expected.
+ - See, well ya see, the thing is, he should have caught that ball. But the ball is bigger than his hands.
+ - Whenever you talk about a Mike Shanahan offense, you’re always going to be talking about his offense.
+ - Every time I go to the theater, there’s something about the atmosphere, seeing something unfold live in front of an audience, that you can’t get out of your system.
+ - If you think about it, I’ve never held a job in my life. I went from being an NFL player to a coach to a broadcaster. I haven’t worked a day in my life.
+ - In order for this team to win the game, the quarterback has to throw the ball.
+ - You got one guy going boom, one guy going whack, and one guy not getting in the endzone.
+ - I’ve never eaten just a few bites of things I liked in my life.
+ - In Oakland, Al Davis was a genius. We had Ron Wolff there, too, and he was a genius. There was no room for me to be a genius.
+ - If you see a defense team with dirt and mud on their backs they’ve had a bad day.
+ - To me, discipline in football occurs on the field, not off it.
+ - Nothing jazzes me up like football. I’ve acquired more passion of the years, not less. Not to love it wouldn’t make sense.
+ - Knowing his coach likes him is more important to a player than anything else.
+ - When your arm gets hit, the ball is not going to go where you want it to.
+ - In all the years that I’ve been in football – I went directly from coaching to broadcasting – I never really had a lot of experience watching it.
+ - Here’s a guy who can use his arms and legs at the same time.
+ - I wasn’t saying that in a sense that I didn’t plan on scoring any goals. This won’t happen again. It would be nice if it did, but it’s reality.
+ - There’s a lot of letters in Ladanian Tomlinson.
+ - They’ll score if they can just get into the endzone.
+ - There was a hidden narrative I felt we could get into, It’s about an accessible world. Family and relationships are accessible subjects.
+ - If you lose your best cornerback and punter, I’d say that’s a double loss.
+ - I’m sure that had I not been a coach, I would have been some form of a teacher.
+ - I’d like to work with kids in special education – younger kids.
+
+60 quotes

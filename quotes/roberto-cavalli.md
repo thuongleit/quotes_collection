@@ -1,0 +1,52 @@
+ - I copy the dress of an animal because I love to copy God. I think God is the most fantastic designer.
+ - I think God is the most fantastic designer.
+ - Sometimes incompetence is useful. It helps you keep an open mind.
+ - Every woman inspires me.
+ - Today, I’m very happy about myself, because I realized my dreams. I learned how to understand what people want.
+ - Maybe I think too much.
+ - Every girl creates a dream in her mind; everyone needs an idol.
+ - I am a helicopter pilot. Something that gives me pleasure sometimes is taking my helicopter to go high, 2000 meter, 6000 feet, to go there and feel like a bird. In this moment I feel free.
+ - I really admire a woman for her intelligence, her personality. Beauty is not enough.
+ - Fashion should be something that in the morning, when you open your window, you say, ‘Oh fantastic, sun!’ Then you take your shower, you say, ‘OK fantastic, which colour I wear today because I feel happy?’ This should be fashion.
+ - I enjoy seeing people have fun.
+ - I really don’t understand minimalism. It is so polite and boring. If you don’t want anyone to notice you, you should stay home and grow your own vegetables.
+ - You can’t just buy things for the label – it’s ridiculous.
+ - In my planet, fashion, I’m the only straight man.
+ - Leopard is an animal design, and my designs come from nature.
+ - My dream, maybe because of my family, of course, was to be a painter. I chose in one moment the direction of textiles; from textiles I went to fashion.
+ - I think I was the first to show that a designer could be like a rock star, that people should love your fashion but also put your name together with your fashion.
+ - A beautiful dress can be as exciting as a poem.
+ - I meet people, I like to ask: which sign are you?
+ - My devotion to my job started from a personal defeat: my first girlfriend’s parents rejected me because i wasn’t rich. I decided i would show them what a big mistake they had made.
+ - Nature is my main source of inspiration – I will never stop taking hints from what I call ‘the greatest artist’
+ - There is a real vulgarity in the way women dress at the moment. They show off too much and try too hard. They don’t understand where the line is between sexy and vulgar. I know where that line is.
+ - Florence and art is something that is part of my life and is part of myself.
+ - Israel is in my heart.
+ - It’s difficult to create fashion, you can’t just learn it, you have to have fashion in your DNA.
+ - I began to speak well at a very advanced age – 15, 16, 17 years old. It was psychological: the trauma of war, my family and growing up on my own. I was more or less a street kid.
+ - Sometimes, because of my success, I am afraid that I was not a good father. With the first two I was too strong, and with the other three I was too weak.
+ - The industrial direction is sometimes too much. We should think more about fantasy.
+ - It is important to be chic.
+ - With time, fashion has become part of my DNA.
+ - I love women’s fashion, but women don’t need me as much as men do. It’s the men who have nothing to wear.
+ - I love to spend money.
+ - The big fish run the show. I’m a middle fish, but there are small fish that are poisonous.
+ - Sometimes women are afraid to be sexy and women should know that sometimes a dress can change her life.
+ - I feel fashion needs me for many, many years more.
+ - I would like the people that buy my clothes to understand that for me it’s one small piece of art.
+ - I love clothes and fashion more than music.
+ - I want men to be more chic – and Japanese style has that kind of sophisticated elegance.
+ - I know I have to be like people expect, because people love to dream with me, they like to think that I love my boat of 50 metres, that I drink Cristal for breakfast, that I dance until five o’clock in the morning. I am not like that.
+ - I love women in all their different incarnations. My friends are practically all women. They are much more intelligent than men.
+ - If somebody for some reason, for music or for movie, becomes famous, it’s because they have something, something special.
+ - In the beginning, I loved being famous, but now I am tired of it and I would like to go back to my freedom.
+ - I tried immediately to have a baby because I was so afraid not to have a baby in my life.
+ - I was a disaster child. I remember I make very often my mother cry.
+ - I’m used to always deciding everything myself. It’s a blessing, but also a terrible defect.
+ - I love a woman, I love to judge how beautiful she is, how beautiful I can make her.
+ - Today the world is a big jungle.
+ - The press attack people to sell more papers without thinking, but when you get famous you have to put up with this kind of stuff.
+ - What is too much? There is no such thing!
+ - I love you if you love me.
+
+50 quotes

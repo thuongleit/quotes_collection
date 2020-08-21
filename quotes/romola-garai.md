@@ -1,0 +1,50 @@
+ - Our conception of 1950s underwear is a lovely vintage aesthetic, but actually, wearing stockings with no elastic and a girdle was heavy duty.
+ - I cheated at the Model United Nations when I was 13 and had to get up and apologise in front of the whole conference.
+ - I love ‘30 Rock.’ Absolutely love it. It’s a game-changing show.
+ - We live in a society where children are expected to become adults overnight.
+ - My alter egos have changed a lot over the years. When I was a child, I was a black horse called Storm. Whinnying and jumping over bamboo poles in the garden took up pretty much my entire childhood.
+ - I’ve worked with actors who tell everyone what to do in the scene – that makes me go pretty atomic.
+ - Postwar Europe was morally stagnant, and there was a lot of neo-conservatism.
+ - I just don’t believe you’re capable of being an actor unless you have a desire to experience your emotions in a public way.
+ - I really like films and plays that cross over different genres. So I’d like to do something that you think is a drama and then you think is a supernatural thing and then becomes a drama again. That’s very vague.
+ - Nowadays, most women just assume they have a right to be in the workplace, and any kind of discrimination they suffer is sort of more creeping.
+ - I’m fundamentally a busy person; I spend my time doing useful things and profoundly useless things!
+ - If you read reviews that you think by their very nature are not respectful of the actresses involved or not appreciating the work as it should be, I think you should write to reviewers or comment and say, “Are you kidding me?”
+ - If you’re going to make great art, you have to make it at a huge cost – you have to be prepared to sacrifice what other people think of you, other people’s opinions, and you have to make personal sacrifices.
+ - I think with the best actors, emotion is something that has no kind of check in them.
+ - If I have to spend prolonged periods of time in a trailer, I go mad. Stuck in a metal box doing nothing, I lie there paralysed with boredom.
+ - Women don’t question themselves when they enter into a story that has male characters, but men do question the validity of a female narrative.
+ - I feel that it’s important to fail now and again. For instance, if I go for a job and I don’t get it, that makes me not a better person, but more balanced, more aware of what life is really like.
+ - I have a very strong, probably slightly aggressive personality, and so that just ends up coming out regardless of what I try to do.
+ - The advent of digitally enhancing images – and the fact that actresses weren’t protesting against that – created an environment where big corporations felt like they had total ownership over the bodies of actresses.
+ - You don’t have to conform to a very specific aesthetic today, whereas 1950s women definitely had to.
+ - I don’t really want to do things that I feel like are going to send out a message that I don’t really want to sign up for.
+ - I think it is kind of important to direct someone so the character is appealing, but, as an actress, I find it frustrating because I think, “Why do I have to be more likable than a man would have to be saying the same line?”
+ - I would argue that something dark is lurking between the sexes, and that it is seeping out into cinema.
+ - I have always been interested in gender politics, so I’m not that keen on doing things that don’t represent a truth about women.
+ - I love science fiction. I read a lot of science fiction.
+ - I wish I was a more adventurous person in a way. But actually, security is a really big deal for me.
+ - Female ambition is such a complicated thing to play because it is an aggressive quality, and people respond very badly to women exhibiting any kind of aggression.
+ - I get grumpy about the innate conservatism of our tastes; I love bold theatre, and I get annoyed when a heritage piece is really successful.
+ - It’s hard for actors to have to deal with the fact that they pour so much into their character, but the audience might have a negative assessment of them.
+ - Films about women and their concerns are seen as frivolous, limited and, most damaging of all, niche.
+ - I would love to live free of the fear and sadness and real desperation that I think the effect of childbirth has on women, especially because we are expected to be so concerned by recovery from childbirth.
+ - I think I was quite lucky in that I went to an all-girls school. I was never put in an environment where I had to be the other – the woman as opposed to the man – all the way through my education. I was never made to feel that way at home.
+ - I can’t spend the rest of my life being pretty in a bonnet.
+ - I realise there’s an innate paradox in promoting oneself on the one hand and saying, ‘Oh, I don’t want to be famous,’ on the other.
+ - I’d actually really love to review books and films and plays, but you can’t be an artist and a critic. I would love it if I could.
+ - I can only do something that my sister or my daughter, if I have one, could watch and feel positive about.
+ - I get quite disappointed that we’re still telling stories that I think are problematic in terms of what they’re saying about women.
+ - I think it’s very repressive for a woman to be constantly told that she has to make films about women to better represent women, but then the reverse is not found.
+ - Normally, when youre working on something, there are other characters that you have alliances with, and you have unified goals with some characters.
+ - I would like to know that I was still going to be employed as a woman well into my 60s. In acting terms, a career that spans a lifetime is a very hard thing to achieve, particularly as a woman.
+ - Acting is a strange job because your control is very limited.
+ - I don’t really want to play parts that I think are not fully developed or fleshed out, especially with female roles.
+ - Motherhood so often comes in conflict with women’s capacity to express and live their own lives.
+ - The worst thing you can do as a performer is to judge your character in any way, positively or negatively.
+ - As a kid, I really loved ‘Jane Eyre,’ I used to fantasise that the past was so much better and my lifetime was crap.
+ - When you’re on stage, you build strong relationships with the actors, but it’s a story you tell with the audience – you have to include them, you have to respond to them, they have to understand the narrative.
+ - I want people to think I’m sexy, but to know also that I’ve got an ordinary body and not feel intimidated.
+ - A passion for any novel, and any character, can crystallise your ideas when you really need to be as open as possible as a performer.
+
+48 quotes

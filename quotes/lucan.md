@@ -1,0 +1,38 @@
+ - Poverty, the mother of manhood. Also, the mother of prostitution.
+ - A show of daring oft conceals great fear.
+ - By boldness great fears are cancealed.
+ - Learn on how little man may live, and how small a portion nature requires.
+ - I have a wife, I have sons: all of them hostages given to fate.
+ - Deny a strong man his due, and he will take all he can get.
+ - Delay is ever fatal to those who are prepared.
+ - As far as the earth is from the stars, and fire from the sea, so is the useful from the right. Power over men perishes completely if justice begins to be observed, and respect for individual rights overcomes strongholds.
+ - The gods conceal from men the happiness of death, that they may endure life.
+ - The abode of God, too, is wherever is earth and sea and air, and sky and virtue. Why further do we seek the Gods of heaven? Whatever thou dost behold and whatever thou dost touch, that is Jupiter.
+ - The mere apprehension of a coming evil has put many into a situation of the utmost danger.
+ - There stands the shadow of a glorious name.
+ - Poverty fled, she who gives birth to virile men.
+ - To strictest justice many ills belong, And honesty is often in the wrong.
+ - The remaining liberty of the world was to be destroyed in the place where it stood.
+ - As great edifices collapse of their own weight, so Heaven sets a similar limit to the growth of prosperous states.
+ - He is covered by the heavens who has no sepulchral urn.
+ - Make us enemies of every people on earth, but save us from civil war.
+ - Deep-seated are the wounds of civil brawls.
+ - As far as the stars are from the earth, and as different as fire is from water, so much do self-interest and integrity differ.
+ - Believing nothing does whilst there remained anything else to be done.
+ - A crime which is the crime of many none avenge.
+ - Thus each person by his fears gives wings to rumor, and, without any real source of apprehension, men fear what they themselves have imagined.
+ - An idle life always produces varied inclinations.
+ - The prosperous man does not know whether he is loved.
+ - Every great man inevitable resents a partner in greatness.
+ - Not a stone but has its history.
+ - Let him leave the imperial court, who wishes to be virtuous. Virtue and absolute power cannot coexist.
+ - Why seek the Deity further? Whatever we see is God, and wherever we go.
+ - How blind men are to Heaven’s gifts!
+ - No man is ever innocent when his opponent is the judge.
+ - Nobody ever chooses the already unfortunate as objects of his loyal friendship.
+ - Neither side is guiltless if its adversary is appointed judge.
+ - All go free when multitudes offend.
+ - Among those who share a throne there can be no loyalty; Dominion’s ever impatient consort.
+ - Some men by ancestry are only the shadow of a mighty name.
+
+36 quotes

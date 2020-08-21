@@ -1,0 +1,465 @@
+ - Nurture your mind with great thoughts, for you will never go any higher than you think.
+ - I am prepared for the worst, but hope for the best.
+ - Change is inevitable. Change is constant.
+ - The secret to success is constancy of purpose.
+ - Justice is truth in action.
+ - One secret of success in life is for a man to be ready for his opportunity when it comes.
+ - There are three types of lies – lies, damn lies, and statistics.
+ - Little things affect little minds.
+ - Action may not always bring happiness; but there is no happiness without action.
+ - Never take anything for granted.
+ - The greatest good you can do for another is not just share your riches, but to reveal to him his own.
+ - Beauty and health are the chief sources of happiness.
+ - Never complain and never explain.
+ - As a rule, man is a fool. When it’s hot, he wants it cool; When its cool, he wants it hot. Always wanting, what is not.
+ - The fool wonders, the wise man asks.
+ - Courage is fire, and bullying is smoke.
+ - Never apologize for showing feeling. When you do so, you apologize for the truth.
+ - Time is precious, but truth is more precious than time.
+ - Give a man a fish and he will eat for a day; teach a man to fish and he will eat for a lifetime; give a man religion and he will die praying for a fish.
+ - We are not creatures of circumstance; we are creators of circumstance.
+ - The best way to become acquainted with a subject is to write about it. 
+ - The legacy of heroes is the memory of a great name and the inheritance of a great example.
+ - Most people die with their music still locked up inside them.
+ - Life is too short to be little. Man is never so manly as when he feels deeply, acts boldly, and expresses himself with frankness and with fervor.
+ - Silence is the mother of truth.
+ - When men are pure, laws are useless; when men are corrupt, laws are broken.
+ - Success is the child of audacity.
+ - Money is power, and rare are the heads that can withstand the possession of great power.
+ - As a general rule, the most successful man in life is the man who has the best information.
+ - Cleanliness and order are not matters of instinct; they are matters of education, and like most great things, you must cultivate a taste for them.
+ - Like all great travellers, I have seen more than I remember, and remember more than I have seen.
+ - How much easier it is to be critical than to be correct.
+ - The profound thinker always suspects that he is superficial.
+ - There are some silent people who are more interesting than the best talkers.
+ - If you don’t believe in magic, then you can’t believe in reality.
+ - Through perseverance many people win success out of what seemed destined to be certain failure.
+ - Patience is a necessary ingredient of genius.
+ - There is no education like adversity.
+ - The care of the public health is the first duty of the statesman.
+ - Governments do not govern, but merely control the machinery of government, being themselves controlled by the hidden hand.
+ - Man is only great when he acts from passion.
+ - Nothing can withstand the power of the human will if it is willing to stake its very existence to the extent of its purpose.
+ - Man is not the creature of circumstances, circumstances are the creatures of men. We are free agents, and man is more powerful than matter.
+ - Seeing much, suffering much, and studying much, are the three pillars of learning.
+ - Propriety of manners, and consideration for others, are the two main characteristics of a gentleman.
+ - The most powerful men are not public men: a public man is responsible, and a responsible man is a slave. It is private life that governs the world.
+ - Travel teaches toleration.
+ - Nothing can resist a will which will stake even existence upon its fulfillment.
+ - I have brought myself, by long meditation, to the conviction that a human being with a settled purpose must accomplish it, and that nothing can resist a will which will stake even existence upon its fulfillment.
+ - Taking a new step, uttering a new word, is what people fear most.
+ - But what minutes! Count them by sensation, and not by calendars, and each moment is a day.
+ - Without tact you can learn nothing. Tact teaches you when to be silent. Inquirers who are always questioning never learn anything.
+ - When I want to read a novel, I write one.
+ - Life is too short to be little. You must enlarge your imagination and then act on it.
+ - With words we govern men.
+ - Nature is more powerful than education; time will develop everything.
+ - An obedient wife commands her husband.
+ - To be conscious that you are ignorant of the facts is a great step to knowledge.
+ - Despair is the conclusion of fools.
+ - All is race – there is no other truth.
+ - The most dangerous strategy is to jump a chasm in two leaps.
+ - The health of the people is really the foundation upon which all their happiness and all their powers as a state depend.
+ - A dark horse, which had never been thought of, rushed past the grandstand in sweeping triumph.
+ - The greatest of all evils is a weak government.
+ - We are all born for love. It is the principle of existence, and its only end.
+ - Nurture your mind with great thoughts.
+ - To supervise people, you must either surpass them in their accomplishments or despise them.
+ - Quit the world, and the world forgets you.
+ - The more you are talked about the less powerful you are.
+ - A man’s fate is his own temper; and according to that will be his opinion as to the particular manner in which the course of events is regulated. A consistent man believes in destiny, a capricious man in chance.
+ - I must follow the people. Am I not their leader?
+ - Power has only one duty – to secure the social welfare of the People.
+ - He who gains time gains everything.
+ - To do nothing and get something, formed a boy’s ideal of a manly career.
+ - I have climbed to the top of the greasy pole!
+ - The affections are the children of ignorance; when the horizon of our experience expands, and models multiply, love and admiration imperceptibly vanish.
+ - In the hands of a genius, engineering turns to magic, philosophy becomes poetry, and science pure imagination.
+ - If confidence is a plant of slow growth, credit is one which matures much more slowly.
+ - A man’s fate is his own temper.
+ - Christianity teaches us to love our neighbor as ourself; modern society acknowledges no neighbor.
+ - Nature has given us two ears but only one mouth.
+ - My idea of an agreeable person is a person who agrees with me.
+ - There are few young women in existence who have not the power of fascinating, if they choose to exert it.
+ - Ignorance never settles a question.
+ - A University should be a place of light, of liberty, and of learning.
+ - I feel a very unusual sensation – if it is not indigestion, I think it must be gratitude.
+ - Genius, when young, is divine.
+ - Worry – a God, invisible but omnipotent. It steals the bloom from the cheek and lightness from the pulse; it takes away the appetite, and turns the hair gray.
+ - I do not like giving advice: it is incurring an unnecessary responsibility.
+ - All must respect those who respect themselves.
+ - We are taught words, not ideas.
+ - I am a Conservative to preserve all that is good in our constitution, a Radical to remove all that is bad.
+ - A practical man is a man who practices the errors of his forefathers.
+ - Nobody is forgotten when it is convenient to remember him.
+ - Man is only truly great when he acts from the passions; never irresistible but when he appeals to the imagination.
+ - Almost everything that is great has been done by youth.
+ - Where knowledge ends, religion begins.
+ - The fruit of my tree of knowledge is plucked, and it is this: “Adventures are to the adventurous.”
+ - Books are the curse of the human race.
+ - The art of conversation is to be prompt without being stubborn, to refute without argument, and to clothe great matters in a motley garb.
+ - A good eater must be a good man; for a good eater must have a good digestion, and a good digestion depends upon a good conscience.
+ - Everything comes if a man will only wait.
+ - Change is as inexorable as time, yet nothing meets with more resistance.
+ - Modern science has vindicated the natural equality of man.
+ - Adventures are to the adventurous.
+ - The Youth of a Nation are the trustees of posterity.
+ - The first magic of love is our ignorance that it can ever end.
+ - A sophisticated rhetorician, inebriated with the exuberance of his own verbosity.
+ - We make our fortunes and we call them fate.
+ - I will sit down now, but the time will come when you will hear me.
+ - I am the blank page between the Old and the New Testament.
+ - A female friend, amiable, clever, and devoted, is a possession more valuable than parks and palaces; and without such a muse, few men can succeed in life, none be contented.
+ - A consistent soul believes in destiny, a capricious one in chance.
+ - Wherever is found what is called a paternal government, there is found state education. It has been discovered that the best way to insure implicit obedience is to commence tyranny in the nursery.
+ - I am neither a Whig nor Tory. My politics are described in one word and that word is England.
+ - Moderation has been called a virtue to limit the ambition of great men, and to console undistinguished people for their want of fortune and their lack of merit.
+ - There can be economy only where there is efficiency.
+ - I rather like bad wine; one gets so bored with good wine.
+ - We are indeed a nation of shopkeepers.
+ - Mr Speaker, I withdraw my statement that half the cabinet are asses – half the cabinet are not asses.
+ - Never argue. In society nothing must be; give only results. If any person differs from you, bow, and turn the conversation.
+ - Youth is a blunder; Manhood a struggle, Old Age a regret.
+ - Sweet is the voice of a sister in the season of sorrow.
+ - News is that which comes from the North, East, West and South, and if it comes from only one point on the compass, then it is a class; publication and not news.
+ - Twilight makes us pensive; Aurora is the goddess of activity; despair curses at midnight; hope blesses at noon.
+ - All is mystery; but he is a slave who will not struggle to penetrate the dark veil.
+ - Experience is the child of thought, and thought is the child of action.
+ - No affection and a great brain, these are the people to command the world.
+ - What appear to be calamities are often the sources of fortune.
+ - Every production of genius must be the production of enthusiasm.
+ - The tendency of an advanced civilization is in truth monarchy.
+ - Nature is stronger than education.
+ - Having the courage to live within one’s means is respectability.
+ - A parsimony of words prodigal of sense.
+ - Change is constant in a progressive country.
+ - Success is a product of unremitting attention to purpose.
+ - The wisdom of the wise and the experience of the ages are perpetuated by quotations.
+ - The difference between a misfortune and a calamity is this: If Gladstone fell into the Thames, it would be a misfortune. But if someone dragged him out again, that would be a calamity.
+ - Circumstances are beyond human control, but our conduct is in our own power.
+ - Fear makes us feel our humanity.
+ - I think there is nothing more lovely than the love of two beautiful women who are not envious of each other’s charms.
+ - Be amusing: never tell unkind stories; above all, never tell long ones.
+ - In politics experiments means revolutions.
+ - We should never lose an occasion. Opportunity is more powerful even than conquerors and prophets.
+ - People are defeated by easy, victorious and cheap successes more than by adversity.
+ - The disappointment of manhood succeeds the delusion of youth.
+ - Enthusiasm is the breath of genius.
+ - London is a roost for every bird.
+ - It is knowledge that influences and equalizes the social condition of man; that gives to all, however different their political position, passions which are in common, and enjoyments which are universal.
+ - If you want to be a leader of people, you must learn to watch events.
+ - The world is a wheel, and it will all come round right.
+ - A very remarkable people the Zulus: they defeat our generals, they convert our bishops, they have settled the fate of a great European dynasty.
+ - Certainly Manchester is the most wonderful city of modem times.
+ - When I left the dining room after sitting next to Mr. Gladstone, I thought he was the cleverest man in England. But after sitting next to Mr. Disraeli, I thought I was the cleverest woman in England.
+ - You behold a range of exhausted volcanoes. Not a flame flickers on a single pallid crest.
+ - Everyone likes flattery; and when you come to Royalty you should lay it on with a trowel.
+ - There is no act of treachery or meanness of which a political party is not capable; for in politics there is no honour.
+ - The Jews are a nervous people. Nineteen centuries of Christian love have taken a toll.
+ - The girl of the period sets up to be natural, and is only rude; mistakes insolence for innocence; says everything that comes first to her lips, and thinks she is gay when she is only giddy.
+ - Every man has a right to be conceited until he is successful.
+ - What we anticipate seldom occurs: but what we least expect generally happens.
+ - The Continent will not suffer England to be the workshop of the world.
+ - London; a nation, not a city.
+ - There are so many plans, so many schemes, and so many reasons why there should be neither plans nor schemes.
+ - Debt is a prolific mother of folly and of crime.
+ - Damn your principles! Stick to your party.
+ - All Paradise opens! Let me die eating ortolans to the sound of soft music!
+ - All my successes have been built on my failures.
+ - No, it is better not. She will only ask me to take a message to Albert.
+ - There is no gambling like politics. Nothing in which the power of circumstance is more evident.
+ - A great person is one who affects the mind of their generation.
+ - Yes, I am a Jew, and when the ancestors of the right honorable gentleman were brutal savages in an unknown island, mine were priests in the temple of Solomon.
+ - Rothschild is the lord and master of the money markerts of the world and virtually lord and master of everything else.
+ - We live in an age when to be young and to be indifferent can be no longer synonymous. We must prepare for the coming hour. The claims of the Future are represented by suffering millions; and the Youth of a Nation are the trustees of Posterity.
+ - Grief is the agony of an instant. The indulgence of grief the blunder of a life.
+ - A great city, whose image dwells in the memory of man, is the type of some great idea. Rome represents conquest; Faith hovers over the towers of Jerusalem; and Athens embodies the pre-eminent quality of the antique world, Art.
+ - I will not go down to posterity talking bad grammar.
+ - I have lived long enough to know that the evening glow of love has its own riches and splendour.
+ - Two nations between whom there is no intercourse and no sympathy; who are as ignorant of each other’s habits, thoughts, and feelings, as if they were dwellers in different zones, or inhabitants of different planets. The rich and the poor.
+ - Eloquence is the child of knowledge. When a mind is full, like a wholesome river, it is also clear.
+ - Friendship is the gift of the gods, and the most precious boon to man.
+ - You will in due season find your property is less valuable, and your freedom less complete.
+ - Man is made to adore and to obey: but if you will not command him, if you give him nothing to worship, he will fashion his own divinities, and find a chieftain in his own passions.
+ - One of the hardest things in this world is to admit you are wrong. And nothing is more helpful in resolving a situation than its frank admission.
+ - The difference of race is one of the reasons why I fear war may always exist; because race implies difference, difference implies superiority, and superiority leads to predominance.
+ - Were it not for music, we might in these days say, the Beautiful is dead.
+ - Customs may not be as wise as laws, but they are always more popular.
+ - A canter is the cure for all evil.
+ - No Government can be long secure without a formidable Opposition.
+ - Without publicity there can be no public support, and without public support every nation must decay.
+ - Perseverance and tact are the two great qualities most valuable for all those who would climb, but especially for those who have to step out of the crowd.
+ - Nature, like man, sometimes weeps from gladness.
+ - Be civil to all; sociable to many; familiar with few.
+ - The art of governing mankind by deceiving them.
+ - We moralize among ruins.
+ - The press is not only free, it is powerful. That power is ours. It is the proudest that man can enjoy.
+ - Luck is what a capricious man believes in.
+ - O Music! Miraculous art! A blast of thy trumpet and millions rush forward to die; a peal of thy organ and uncounted nations sink down to pray.
+ - Read no history: nothing but biography, for that is life without theory.
+ - The view of Jerusalem is the history of the world; it is more, it is the history of earth and of heaven.
+ - Great countries are those that produce great people.
+ - The divine right of kings may have been a plea for feeble tyrants, but the divine right of government is the keystone of human progress, and without it governments sink into police, and a nation is degraded into a mob.
+ - My objection to Liberalism is this that it is the introduction into the practical business of life of the highest kind namely, politics of philosophical ideas instead of political principles.
+ - Departure should be sudden.
+ - England is unrivalled for two things – sport and politics.
+ - The choicest pleasures of life lie within the ring of moderation.
+ - As I sat opposite the Treasury Bench the ministers reminded me of one of those marine landscapes not very unusual on the coasts of South America. You behold a range of exhausted volcanoes.
+ - What is crime amongst the multitude, is only vice among the few.
+ - A precedent embalms a principle.
+ - Amusement to an observing mind is study.
+ - How fair is a garden amid the toils and passions of existence.
+ - Finality is not the language of politics.
+ - It destroys one’s nerves to be amiable every day to the same human being.
+ - A majority is always better than the best repartee.
+ - If you’re not very clever you should be conciliatory.
+ - Is man an ape or an angel? Now I am on the side of the angels.
+ - Increased means and increased leisure are the two civilizers of man.
+ - The expected always happens.
+ - I suppose, to use our national motto, something will turn up.
+ - Demagogues and agitators are very unpleasant, they are incidental to a free and constitutional country, and you must put up with these inconveniences or do without many important advantages.
+ - Terror has its inspiration, as well as competition.
+ - Perseverance and tact are the two most important qualities for the individual who wants to move ahead.
+ - Colonies do not cease to be colonies because they are independent.
+ - I grew intoxicated with my own eloquence.
+ - The world is governed by very different personages from what is imagined by those who are not behind the scenes.
+ - Accent and emphasis are the pith of reading; punctuation is but secondary.
+ - Candor is the brightest gem of criticism.
+ - The question is this – Is man an ape or an angel? My Lord, I am on the side of the angels. I repudiate with indignation and abhorrence these new fanged theories.
+ - In great cities men are brought together by the desire of gain. They are not in a state of co-operation, but of isolation, as to the making of fortunes; and for all the rest they are careless of neighbors.
+ - An insular country, subject to fogs, and with a powerful middle class, requires grave statesmen.
+ - Conservatism discards Prescription, shrinks from Principle, disavows Progress; having rejected all respect for antiquity, it offers no redress for the present, and makes no preparation for the future.
+ - There are few faces that can afford to smile: a smile is sometimes bewitching, in general vapid, often a contortion.
+ - The delight of opening a new pursuit, or a new course of reading, imparts the vivacity and novelty of youth even to old age.
+ - Something unpleasant is coming when men are anxious to tell the truth.
+ - King Louis Philippe once said to me that he attributed the great success of the British nation in political life to their talking politics after dinner.
+ - Next to the assumption of power is the responsibility of relinquishing it.
+ - The Athanasian Creed is the most splendid ecclesiastical lyric ever poured forth by the genius of man.
+ - Beware of endeavoring to become a great man in a hurry. One such attempt in ten thousand may succeed. These are fearful odds.
+ - Lord Salisbury and myself have brought you back peace – but a peace I hope with honour.
+ - There is no index of character so sure as the voice.
+ - That youthful fervor, which is sometimes called enthusiasm, but which is a heat of imagination subsequently discovered to be inconsistent with the experience of actual life.
+ - Real politics are the possession and distribution of power.
+ - A new acquaintance is like a new book. I prefer it, even if bad, to a classic.
+ - Tobacco is the tomb of love.
+ - Truth travels slowly, but it will reach even you in time.
+ - That soul-subduing sentiment, harshly called flirtation, which is the spell of a country house.
+ - The stage is a supplement to the pulpit, where virtue, according to Plato’s sublime idea, moves our love and affection when made visible to the eye.
+ - I see before me the statue of a celebrated minister, who said that confidence was a plant of slow growth. But I believe, however gradual may be the growth of confidence, that of credit requires still more time to arrive at maturity.
+ - Teach us that wealth is not elegance, that profusion is not magnificence, that splendor is not beauty.
+ - I was told that the privileged and the people formed two nations.
+ - Christianity is completed Judaism or it is nothing.
+ - Coalitions though successful have always found this, that their triumph has been brief.
+ - Nine-tenths of all existing books are nonsense.
+ - Sir, I shall not defeat you – I shall transcend you.
+ - Free trade is not a principle, it is an expedient.
+ - A member of Parliament to Disraeli: ‘Sir, you will either die on the gallows or of some unspeakable disease.’ That depends, Sir,? said Disraeli, ’whether I embrace your policies or your mistress.
+ - Beauty can inspire miracles.
+ - Nationality is the miracle of political independence; race is the principle of physical analogy.
+ - Romance has been elegantly defined as the offspring of fiction and love.
+ - Patriotism depends as much on mutual suffering as on mutual success; and it is by that experience of all fortunes and all feelings that a great national character is created.
+ - Proverbs were anterior to boots, and formed the wisdom of the vulgar, and in the earliest ages were the unwritten laws of morality.
+ - As men advance in life, all passions resolve themselves into money. Love, ambition, even poetry, end in this.
+ - The feeling of satiety, almost inseparable from large possessions, is a surer cause of misery than ungratified desires.
+ - Nine-tenths of the existing books are nonsense and the clever books are the refutation of that nonsense.
+ - Popular privileges are consistent with a state of society in which there is great inequality of position. Democratic rights, on the contrary, demand that there should be equality of condition as the fundamental basis of the society they regulate.
+ - The European talks of progress because by the aid of a few scientific discoveries he has established a society which has mistaken comfort for civilisation.
+ - Predominant opinions are generally the opinions of the generation that is vanishing.
+ - War is never a solution; it is an aggravation.
+ - Every man should marry – and no woman.
+ - All power is a trust, that we are accountable for its exercise.
+ - The eyes of the social herd, who always observe little things, and generally form from them their opinions of great affairs.
+ - If a man be gloomy let him keep to himself. No one has the right to go croaking about society, or what is worse, looking as if he stifled grief.
+ - Moderation is the center wherein all philosophies, both human and divine, meet.
+ - The depositary of power is always unpopular.
+ - You can tell the strength of a nation by the women behind its men.
+ - Happiness is only to be found in a recurrence to the principles of human nature; and these will prompt very simple measures.
+ - Apologies only account for that which they do not alter.
+ - The Italians say it is not necessary to be a stag; but we ought not to be a tortoise.
+ - As a general rule, nobody has money who ought to have it.
+ - The sweet simplicity of the three percents.
+ - To a mother, a child is everything; but to a child, a parent is only a link in the chain of her existence.
+ - The enterprise of America precedes that of Europe, as the industry of England precedes that of the rest of Europe.
+ - We cannot learn men from books.
+ - Upon the education of the people of this country the fate of this country depends.
+ - Difficulties melt away under tact.
+ - Mediocrity can talk, but it is for genius to observe.
+ - The British people, being subject to fogs, require grave statesmen.
+ - Through persistence numerous individuals win accomplishment out of what appeared bound to be sure disappointment.
+ - Characters do not change. Opinions alter, but characters are only developed.
+ - A nation has a fixed quantity of invention, and it will make itself felt.
+ - Life is not dated merely by years. Events are sometimes the best calendars.
+ - Frank and explicit – that is the right line to take when you wish to conceal your own mind and confuse the minds of others.
+ - You have proved it is a very moral habit.
+ - Nothing in life is more remarkable than the unnecessary anxiety which we endure, and generally create ourselves.
+ - Religion is civilization, the highest.
+ - What art was to the ancient world, Science is to the modern; the distinctive faculty. In the minds of men, the useful has succeeded to the beautiful.
+ - Knowledge must be gained by ourselves. Mankind may supply us with facts; but the results, even if they agree with previous ones, must be the work of our own minds.
+ - He was distinguished for ignorance; for he had only one idea, and that was wrong.
+ - Without dancing you can never attain a perfectly graceful carriage, which is of the highest importance in life.
+ - Desperation is sometimes as powerful an inspirer as genius.
+ - A great thing is a great book; but a greater thing than all is the talk of a great man.
+ - Be thine own privy counsellor.
+ - I believe that, without party, Parliamentary government is impossible.
+ - The world is ruled by other people, than people believe to know.
+ - Her Majesty is not a subject.
+ - As we retain but a faint remembrance of our felicity, it is but fair that the smartest stroke of sorrow should, if bitter, at least be brief.
+ - Great revolutions, whatever may be their causes, are not lightly commenced, and are not concluded with precipitation.
+ - A book may be as great a thing as a battle.
+ - When a man fell into his anecdotage it was a sign for him to retire from the world.
+ - Critics are those who have failed in literature and art.
+ - Nobody should ever look anxious except those who have no anxiety.
+ - Women carry a beautiful hand with them to the grave, when a beautiful face has long ago vanished.
+ - Literature is an avenue to glory, ever open for those ingenious men who are deprived of honors or of wealth.
+ - Duty cannot exist without faith.
+ - Without tact you can learn nothing.
+ - One should conquer the world, not to enthrone a man, but an idea; for ideas exist forever.
+ - It is remarkable that when great discoveries are effected, their simplicity always seems to detract from their originality: on these occasions we are reminded of the egg of Columbus!
+ - William Gladstone has not a single redeeming defect.
+ - A Protestant, if he wants aid or advice on any matter, can only go to his solicitor.
+ - A realist is a man who insists on making the same mistakes his grandfather did.
+ - There is magic in the memory of schoolboy friendships; it softens the heart, and even affects the nervous system of those who have no heart.
+ - An author who speaks about their own books is almost as bad as a mother who speaks about her own children.
+ - Doubt is an element of criticism, and the tendency of criticism is necessarily skeptical.
+ - The right honourable gentleman caught the Whigs bathing, and walked away with their clothes. He has left them in the full enjoyment of their liberal positions, and he is himself a strict conservative of their garments.
+ - There are amusing people who do not interest, and interesting people who do not amuse.
+ - Individuals may form communities, but it is institutions alone that can create a nation.
+ - The indulgence in grief is a blunder.
+ - What are the most brilliant of our chymical discoveries compared with the invention of fire and the metals?
+ - The practice of politics in the East may be defined by one word: dissimulation.
+ - The services in wartime are fit only for desperadoes, but in peace are only fit for fools.
+ - Cosmopolitan critics, men who are the friends of every country save their own.
+ - A nation, as an individual, has duties to fulfill appointed by God and His moral law.
+ - Nowadays, manners are easy and life is hard.
+ - I do not believe such a quality as chance exists. Every incident that happens must be a link in a chain.
+ - It is well-known what a middleman is: he is a man who bamboozles one party and plunders the other.
+ - More pernicious nonsense was never devised by man than treaties of commerce.
+ - There is scarcely any popular tenet more erroneous than that which holds that when time is slow, life is dull.
+ - The feathered arrow of satire has oft been wet with the heart’s blood of its victims.
+ - Party is organized opinion.
+ - England does not love coalitions.
+ - Trust not overmuch to the blessed Magdalen; learn to protect yourself.
+ - The Duke of Wellington brought to the post of first minister immortal fame,-a quality of success which would almost seem to include all others.
+ - The essence of education is the education of the body.
+ - A Conservative Government is an organized hypocrisy.
+ - Religion should be the rule of life, not a casual incident in it.
+ - The very phrase ‘foreign affairs’ makes an Englishman convinced that I am about to treat of subjects with which he has no concern.
+ - Expediency is a law of nature. The camel is a wonderful animal, but the desert made the camel.
+ - Man is made to create, from the poet to the potter.
+ - It shows you exactly how a star is formed; nothing else can be so pretty! A cluster of vapor, the cream of the milky way, a sort of celestial cheese, churned into light.
+ - We can know nothing of humankind without knowing something of ourselves. Self-knowledge is the property of those people whose passions have their full play, but who ponder over their results.
+ - The palace is not safe when the cottage is not happy.
+ - Great men never require experience.
+ - The difference between talent and genius is this: while the former usually develops some special branch of our faculties, the latter commands them all. When the former is combined with tact, it is often more than a match for the latter.
+ - It is the lot of man to suffer; it is also his fortune to forget. Oblivion and sorrow share our being, as darkness and light divide the course of time.
+ - Here’s to the man who rode the race, who took the time, who kept the time, and who did the trick.
+ - I have been ever of opinion that revolutions are not to be evaded.
+ - If the history of England be ever written by one who has the knowledge and the courage,-and both qualities are equally requisite for the undertaking, – the world will be more astonished than when reading the Roman annals by Niebuhr.
+ - The world is weary of statesmen whom democracy has degraded into politicians.
+ - Those who cannot themselves observe can at least acquire the observation of others.
+ - Nonsense, when earnest, is impressive, and sometimes takes you in. If you are in a hurry, you occasionally mistake it for sense.
+ - A beautiful hand is an excellent thing in woman; it is a charm that never palls; and better than all, it is a means of fascinating that never disappears.
+ - Great services are not canceled by one act or by one single error.
+ - To tax the community for the advantage of a class is not protection: it is plunder.
+ - I am bound to furnish my antagonists with arguments, but not with comprehension.
+ - Silence often expresses ’more powerfully than speech the verdict and judgment of society.
+ - Man is a being born to believe. And if no church comes forward with its title-deeds of truth to guide him, he will find altars and idols in his own heart and his own imagination.
+ - What we call the heart is a nervous sensation, like shyness, which gradually disappears in society. It is fervent in the nursery, strong in the domestic circle, tumultuous at school.
+ - Scientific, like spiritual truth, has ever from the beginning been descending from heaven to man.
+ - That fatal drollery called a representative government.
+ - Next to knowing when to seize an opportunity, the most important thing in life is to know when to forego an advantage.
+ - Extreme views are never just; something always turns up which disturbs the calculations formed upon their data.
+ - No conjunction can possibly occur, however fearful, however tremendous it may appear, from which a man by his own energy may not extricate himself, as a mariner by the rattling of his cannon can dissipate the impending waterspout.
+ - Principle is ever my motto, no expediency.
+ - When men are young, they want experience and when they have gained experience, they want energy.
+ - Meditation is culture.
+ - To be famous when you are young is the fortune of the gods.
+ - The Egremonts had never said anything that was remembered, or done anything that could be recalled.
+ - No one but an adventurous traveler can know the luxury of sleep.
+ - As a rule, he or she who has the most information will have the greatest success in life.
+ - The pursuit of science leads only to the insoluble.
+ - Those authors who appear sometimes to forget they are writers, and remember they are men, will be our favorites.
+ - The test of political institutions is the condition of the country whose future they regulate.
+ - Judaism is not complete without Christianity and without Judaism, Christianity would not exist.
+ - There is a thread in our thoughts as there is a pulse in our feelings; he who can hold the one knows how to think, and he who can move the other knows how to feel.
+ - Information upon points of practical politics.
+ - Things must be done by parties, not by persons using parties as tools.
+ - Whenever you see a man who is successful in society, try to discover what makes him pleasing, and if possible adopt his system.
+ - The conduct of men depends upon the temperament, not upon a bunch of musty maxims.
+ - Of all unfortunate men one of the unhappiest is a middling author endowed with too lively a sensibility for criticism.
+ - No one for a moment can pretend that printing is so great a discovery as writing, or algebra as a language.
+ - We are now in want of an art to teach how books are to be read rather than to read them. Such an art is practicable.
+ - I do not understand how an aristocracy can exist, unless it be distinguished by some quality which no other class of the community possesses.
+ - He thinks posterity is a pack-horse, always ready to be loaded.
+ - Gentlemen, the Tory party, unless it is a national party, is nothing.
+ - The people of England are the most enthusiastic in the world.
+ - No enemy is so terrible as a man of genius.
+ - I have begun several times many things, and I have often succeeded at last.
+ - What wonderful things are events! The least are of greater importance than the most sublime and comprehensive speculations.
+ - The characteristic of the present age is craving credulity.
+ - There are few positions less inspiriting than those of a discomfited party.
+ - I am myself a gentleman of the press, and have no other escutcheon.
+ - In the study of the fine arts, they mutually assist each other.
+ - It is the fashion to style the present moment an extraordinary crisis.
+ - Female friendships are of rapid growth.
+ - Our domestic affections are the most salutary basis of all good government.
+ - There is no greater sin than to be trop prononce.
+ - There is anguish in the recollection that we have not adequately appreciated the affection of those whom we have loved and lost.
+ - Gentl, I am a party man. I believe that, without party, Parliamentary government is impossible. I look upon Parliamentary government as the noblest government in the world, and certainly the one most suited to England.
+ - I have a great confidence in the revelations which holidays bring forth.
+ - Whatever they did, the Elysians were careful never to be vehement.
+ - Fame has eagle wings, and yet she mounts not so high as man’s desires.
+ - Fame and power are the objects of all men. Even their partial fruition is gained by very few; and that, too, at the expense of social pleasure, health, conscience, life.
+ - A man may speak very well in the House of Commons, and fail very completely in the House of Lords. There are two distinct styles requisite: I intend, in the course of my career, if I have time, to give a specimen of both.
+ - In art the Greeks were the children of the Egyptians. The day may yet come when we shall do justice to the high powers of that mysterious and imaginative people.
+ - The more extensive a man’s knowledge of what has been done, the greater will be his power of knowing what to do.
+ - In politics, nothing is contemptible.
+ - You must not contrast too strongly the hours of courtship with the years of possession.
+ - The world is devoted to physical science, because it believes theses discoveries will increase its capacity of luxury and self-indulgence. But the pursuit of science only leads to the insoluble.
+ - The age does not believe in great men, because it does not possess any.
+ - Plagiarists, at least, have the merit of preservation.
+ - That earliest shock in one’s life which occurs to all of us; which first makes us think.
+ - I never deny. I never contradict. I sometimes forget.
+ - Destiny is our will, and our will is nature.
+ - To achieve what you want, you have to be stronger than those around you.
+ - It is the lot of man to suffer.
+ - You will find as you grow older that courage is the rarest of all qualities to be found in public life.
+ - He who anticipates his century is generally persecuted when living, and always pilfered when dead.
+ - You must originate, and you must sympathize; yon must possess, at the same time, the habit of communicating and the habit of listening. The union is rather rare, but irresistible.
+ - He was one of these men who think that the world can be saved by writing a pamphlet.
+ - Age is frequently beautiful, wisdom appearing like an aftermath.
+ - Knowledge of mankind is a knowledge of their passions.
+ - Every moment is travel – if understood.
+ - The character of a woman rapidly develops after marriage, and sometimes seems to change, when in fact it is only complete.
+ - When a man is going to try and borrow money, it is wise to look prosperous.
+ - Great men should think of opportunity and not of time. That is the excuse of feeble and puzzled spirits.
+ - The originality of a subject is in its treatment.
+ - No man is regular in his attendance at the House of Commons until he is married.
+ - The noble lord is the Rupert of debate.
+ - Man is more powerful than matter.
+ - Bore: one who has the power of speech but not the capacity for conversation.
+ - An amateur may not be an artist, though an artist should be an amateur.
+ - We have legalized confiscation, consecrated sacrilege, and condoned high treason.
+ - I believe absence is a great element of charm.
+ - Why should one say that the machine does not live? It breathes, for its breath forms the atmosphere of some towns.
+ - What is earnest is not always true; on the contrary, error is often more earnest than truth.
+ - We live in age of prudence. The leaders of the people now generally follow.
+ - At present the peace of the world has been preserved, not by statesmen, but by capitalists.
+ - The sympathy of sorrow is stronger than the sympathy of prosperity.
+ - The unfortunate are always egotistical.
+ - Destiny bears us to our lot, and destiny is perhaps our own will.
+ - A nation will not count the sacrifice it makes, if it supposes it is engaged in a struggle for its fame, its influence and its existence.
+ - Novelty is an essential attribute of the beautiful.
+ - There is no waste of time in life like that of making explanations.
+ - Assassination has never changed the history of the world.
+ - I pride myself in recognizing and upholding ability in every party and wherever I meet it.
+ - Turtle makes all men equal.
+ - London owes everything to its press: it owes as much to its press as it does to its being the seat of government and the law.
+ - Everything in this world depends upon will.
+ - An author can have nothing truly his own but his style.
+ - The best security for civilization is the dwelling, and upon properly appointed and becoming dwellings depends, more than anything else, the improvement of mankind.
+ - What we call public opinion is generally public sentiment.
+ - Let the fear of a danger be a spur to prevent it; he that fears not, gives advantage to the danger.
+ - She is an excellent creature, but she can never remember which came first, the Greeks or the Romans.
+
+463 quotes

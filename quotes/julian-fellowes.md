@@ -1,0 +1,69 @@
+ - Harsh reality is always better than false hope.
+ - Vulgarity is no substitute for wit.
+ - You are my whole existence and I will love you until my last breath.
+ - I never know which is worse: the sorrow when you hit the bird or the shame when you miss it.
+ - If you are lucky, you have your moment. But it is never more than a moment. You have to enjoy it while it lasts.
+ - It’s the gloomy things that need our help, if everything in the garden is sunny, why meddle?
+ - The moment I was introduced to my wife, Emma, at a party I thought, here she is – and 20 minutes later I told her she ought to marry me. She thought I was as mad as a rat. She wouldn’t even give me her telephone number – and she wrote in her diary: ‘A funny little man asked me to marry him.’
+ - The English country house is certainly an icon of British culture.
+ - Sometimes the weekend gets hijacked by work, but as my mother would say, this is the right problem.
+ - Life is a game in which the player must appear ridiculous.
+ - When you are desperate to get someone who isn’t all that interested in you, you lay siege as hard as you can.
+ - Today, people often make the American mistake of confusing acquaintances with friends. The former are there to share life’s pleasures; only the latter should be invited to share one’s problems.
+ - If we don’t respect the past, we’ll find it harder to build a future.
+ - When people are feeling insecure about their jobs and there are cuts to be made, it’s hard to put up an argument that the film industry needs funding.
+ - War makes early risers of us all.
+ - Most of the soap operas always use the Christmas special to kill huge quantities of their characters. So they have trams coming off their rails, or cars slamming into each other or burning buildings. It’s a general clean-out.
+ - What is a week-end? Maggie Smith in Downton Abbey.
+ - I have fits of melancholia when I watch the news, but we all do, don’t we?
+ - Of course I love winning things; I can’t tell you how much I enjoy it.
+ - School visits are something I do fairly often: I always say to the students that somebody has got to end up with the interesting careers, so why not them?
+ - Success means your thoughts are worthy of everyones consideration.
+ - My mother converted to Catholicism to marry my father.
+ - Most of us don’t want to be outsiders.
+ - I have derived enormous confidence from being a husband and father.
+ - Maggie Smith has a unique sense of comedy, based on a somewhat ironic view of real life, making it both funnier and more sad. But perhaps her greatest ability, or at least the one that most intrigues me, is how she can convey deep and powerful emotion without a trace of sentimentality.
+ - I think other people’s depression is frightfully dreary, don’t you?
+ - You see, in America, it’s quite standard for an actor to sign, at the beginning of a series, for five or seven years. The maximum any British agent will allow you to have over an actor is three years.
+ - In my defence I can only say that her past, too, like mine, like everyone’s in fact, was a locked box. Occasionally we allow people a peep, but generally only at the top level. The darker streams of our memories we negotiate alone.
+ - My childhood was a happy one, spent in a tall house in South Kensington and later in East Sussex, but my early and mid teens were less successful.
+ - There are many nations that have perfected a particular room. You know, you have the French drawing-room, the Austrian ball room, the German dining room, and I think the library is a room the English get right.
+ - What you have to understand about period drama is that it’s ’history light.
+ - Leave three Englishmen in a room and they will invent a rule that prevents a fourth joining them.
+ - One of the great injustices in fiction is that on the whole people with romantic yearnings have romantic faces. But in real life it’s not always like that.
+ - Lawyers are always confident before the verdict. It’s only after that they share their doubts.
+ - Nothing is harder to dramatize than happiness.
+ - In the end, drama is successful if you care about the people.
+ - If you’re supposed to be a ‘personality,’ then you might as well have a personality.
+ - No, while most people have been at their unhappiest when in love, it is nevertheless the state the human being yearns for above all.
+ - I think American television changed world television in its reinvention of the series.
+ - If there’s one thing I don’t look for in a maid, it’s discretion. Except with my own secrets, of course.
+ - The movies are funny, in one way, because you think of everyone being as beautiful as the dawn, but that isn’t true.
+ - I envy people who can think, ‘No, I’m not going to work today’ when they have a huge pile of deadlines stacking up.
+ - I think Americans are wonderful film actors – the best in the world – but they are a very contemporary race and they look forward all the time.
+ - I mean the truth is, I’ve always been interested in the whole setup of the Old World.
+ - Ninety-eight per cent of actors who actually make a living do so in front of a camera.
+ - I just don’t believe in generalisations.
+ - You never know people, do you? You can work with ’em for twenty years; you don’t know ’em at all.
+ - What’s difficult for American audiences is that they’re used to a system here where you can get an actor for five years or even seven, and that is signed for at the audition. Whereas in England, no agent will give you an actor for more than three years.
+ - A lot of actors find it impossible not to ask for the audience’s sympathy. They have a need to twinkle.
+ - The business of life is learning that you can’t lay down the terms.
+ - Plenty of friendships are sustainable through dinners and lunches, but will not stand a week away. So be careful with whom you go on holiday.
+ - Education. Experience. Or are they the same thing?
+ - People tend to view history as if it were another planet and think the modern world was invented in 1963. I don’t agree.
+ - I always loved movies and the cinema; we always used to go to see films as a family.
+ - We live a life that is often spent in crowds – parties, festivals and first nights – so it’s nice to avoid them.
+ - I think I have a very detailed sense of observation. I am interested in the details of people’s lives and what information these details give.
+ - For most directors, the scriptwriter is about as welcome on set as a member of the Taliban.
+ - I don’t think I’m an unkind person, I don’t think my books are unkind, and I don’t think my readers are unkind.
+ - Sometimes you watch one of your favorite shows from 20 years ago and you think, ‘I’m loving this, but golly, it’s going at the speed of a snail.’
+ - I think every period – except for the 14th century, or something – has some merits.
+ - I always like to arrive at the airport early to enjoy breakfast and lounge about so that when I get on the plane all my travel fever has disappeared.
+ - I can be as contrary as I choose.
+ - I’m seen as a chronicler of the class system, which I don’t think is unfair.
+ - To me, all success is a delightful surprise, since one can absolutely never predict it.
+ - We are usually undone by our lack of understanding of ourselves.
+ - If you’re in the movie or in television, your failures are very public, and so are your successes. You weigh them up against each other, really.
+ - I think it’s always a challenge to adapt something from one medium to another – a novel into a film or a play into a movie or whatever.
+
+67 quotes

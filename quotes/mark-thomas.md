@@ -1,0 +1,23 @@
+ - The only deadline is the one I give myself.
+ - Free speech is the cornerstone to every right we have.
+ - Christians and Jews don’t believe in Allah or Brahma. Hindus don’t believe in Yahweh or Allah. Muslims don’t believe in Brahma or Yahweh. Atheists agree with all of them.
+ - Believing is easier than thinking; that’s why there will always be more believers than thinkers. However, the results of god-belief are often far more mental trials than those of nonbelief. It is quite difficult to ascertain the wishes of an invisible being.
+ - One can only guess the amount of magic mushrooms a sane person would have to consume to believe that a frisbee constituted a genuine threat to roughly 3,000 police officers.
+ - True believers are continually shown by reality that their god doesn’t exist, but have developed extensive coping mechanisms to deal with this cognitive dissonance.
+ - I get called all kinds of things – an investigative comedian, a comedian activist – I’ve lost track of what my job title is.
+ - We all behave as though what we think is true, is true.
+ - Christians often threaten atheists with eternal torture. But if we say that they’re delusional, they will tell us that we’re being rude.
+ - There is little difference in the knowledge held by those who can’t learn and those who won’t.
+ - I do love the idea of being able to take an MP to court for lying. There are ways and means of taking an MP to court just now, but it is very difficult.
+ - People innately have lots of solutions. It sounds like an obvious thing, but everyone thinks that they can be prime minister; everyone thinks that they can do a better job.
+ - Most true believers, when faced with evidence that contradicts their beliefs, will hold on to those beliefs even more strongly.
+ - We tend to think of politicians as time-servers and slackers. But on those committees they usually have an interest in the subject. And they’re quite clever. I’ve seen them pick people apart.
+ - I just want to get through each day without the need to shut my eyes for 10 minutes.
+ - Gloucestershire police must be the envy of the human rights-abusing cop world. From Turkey to Indonesia they will say, ‘Kidnapping peace protestors! How did they get away with that one?’
+ - People ask whether I put the politics first, journalism first or the comedy first; it doesn’t really matter. I’m just playing with the cards that I have been dealt because I really love doing what I do.
+ - The world looks like it was designed. Of course, the Sun also looks like it goes around the Earth. It is only thru science that we know that both of these perceptions are wrong.
+ - We’re quite lucky that we’ve got political freedoms. We should be using them.
+ - People are even more wary of politicians and they are realizing that democracy isn’t just about putting a cross on a ballot every four years, it’s about deciding what you want and fighting for it.
+ - Fundamentalists of different religions have more in common with each other than they do with the moderates of their own religions.
+
+21 quotes

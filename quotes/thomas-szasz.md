@@ -1,0 +1,84 @@
+ - Mental illness is a myth, whose function is to disguise and thus render more palatable the bitter pill of moral conflicts in human relations.
+ - In the animal kingdom, the rule is, eat or be eaten; in the human kingdom, define or be defined.
+ - The wise treat self-respect as non-negotiable, and will not trade it for health or wealth or anything else.
+ - Knowledge is gained by learning; trust by doubt; skill by practice; and love by love.
+ - Parents teach children discipline for two different, indeed diametrically opposed, reasons: to render the child submissive to them and to make him independent of them. Only a self-disciplined person can be obedient; and only such a person can be autonomous.
+ - Classifying thoughts, feelings and behaviors as diseases is a logical and semantic error, like classifying whale as fish.
+ - Boredom is the feeling that everything is a waste of time; serenity, that nothing is.
+ - Self-respect is to the soul as oxygen is to the body. Deprive a person of oxygen, and you kill his body; deprive him of self-respect and you kill his spirit.
+ - There is no psychology; there is only biography and autobiography.
+ - People often say that this or that person has not yet found himself. But the self is not something one finds, it is something one creates.
+ - Men are afraid to rock the boat in which they hope to drift safely through life’s currents, when, actually, the boat is stuck on a sandbar. They would be better off to rock the boat and try to shake it loose.
+ - The greatest analgesic, soporific, stimulant, tranquilizer, narcotic, and to some extent even antibiotic – in short, the closest thing to a genuine panacea – known to medical science is work.
+ - Mental illness, of course, is not literally a ‘thing’ – or physical object – and hence it can ‘exist’ only in the same sort of way in which other theoretical concepts exist.
+ - Whenever masses of people, especially educated people, know something – and when what they know is something they greatly fear because they believe it affects virtually everything they do or want to do – then most likely we stand in the presence of a vast falsehood.
+ - It is easier to do one’s duty to others than to one’s self. If you do your duty to others, you are considered reliable. If you do your duty to yourself, you are considered selfish.
+ - There is no such thing as mental illness, hence also no such thing as psychotherapy.
+ - Every act of conscious learning requires the willingness to suffer an injury to one’s self-esteem. That is why young children, before they are aware of their own self-importance, learn so easily.
+ - We often speak of love when we really should be speaking of the drive to dominate or to master, so as to confirm ourselves as active agents, in control of our own destinies and worthy of respect from others.
+ - Since this is the age of science, not religion, psychiatrists are our rabbis, heroin is our pork, and the addict is the unclean person.
+ - We should pledge ourselves to the proposition that the irresponsible life is not worth living.
+ - Only idiots and infants need things. The language of needs is the native tongue of socialists, therapists, and paternalists of all sorts and is addressed to needy dependents. The language of wants is spoken by self-respecting adults and is addressed to other self-respecting adults.
+ - Delusion: belief said to be false by someone who does not share it.
+ - A teacher should have maximal authority, and minimal power.
+ - A child becomes an adult when he realizes that he has a right not only to be right but also to be wrong.
+ - Labeling a child as mentally ill is stigmatization, not diagnosis. Giving a child a psychiatric drug is poisoning, not treatment.
+ - We prefer a meaningless collective guilt to a meaningful individual responsibility.
+ - If you talk to God, you are praying; If God talks to you, you have schizophrenia.
+ - The basic ingredients of psychotherapy are religion, rhetoric, and repression, which are themselves mutually overlapping categories.
+ - The proverb warns that ‘You should not bite the hand that feeds you.’ But maybe you should, if it prevents you from feeding yourself.
+ - How can depression be real if our eyes arent real?
+ - Men love liberty because it protects them from control and humiliation by others, thus affording them the possibility of dignity; they loathe liberty because it throws them back on their own abilities and resources, thus confronting them with the possibility of insignificance.
+ - Man cannot long survive without air, water, and sleep. Next in importance comes food. And close on its heels, solitude.
+ - The battle for the world is the battle for definitions.
+ - Involuntary mental hospitalization is like slavery. Refining the standards for commitment is like prettifying the slave plantations. The problem is not how to improve commitment, but how to abolish it.
+ - When a person can no longer laugh at himself, it is time for others to laugh at him.
+ - Psychiatry does not commit human rights abuse. It is a human rights abuse.
+ - Formerly, when religion was strong and science weak, men mistook magic for medicine; now, when science is strong and religion weak, men mistake medicine for magic.
+ - Narcissist: psychoanalytic term for the person who loves himself more than his analyst; considered to be the manifestation of a dire mental disease whose successful treatment depends on the patient learning to love the analyst more and himself less.
+ - In the United States today, there is a pervasive tendency to treat children as adults, and adults as children. The options of children are thus steadily expanded, while those of adults are progressively constricted. The result is unruly children and childish adults.
+ - All drugs of any interest to any moderately intelligent person in America are now illegal.
+ - In the past, men created witches: now they create mental patients.
+ - Permissiveness is the principle of treating children as if they were adults; and the tactic of making sure they never reach that stage.
+ - We have, in our day, witnessed the birth of the Therapeutic State. This is perhaps the major implication of psychiatry as an institution of social control.
+ - People dream of making the virtuous powerful, so they can depend upon them. Since they cannot do that, people choose to make the powerful virtuous, glorifying in becoming victimized by them.
+ - I believe the time has come to acknowledge that the practice of routine circumcision rests on the absurd premise that the only mammal in creation born in the condition that requires immediate surgical correction is the human male.
+ - Men often treat others worse than they treat themselves, but they rarely treat anyone better. It is the height of folly to expect consideration and decency from a person who mistreats himself.
+ - A person cannot make another happy, but he can make him unhappy. This is the main reason why there is more unhappiness than happiness in the world.
+ - He who does not accept and respect those who want to reject life does not truly accept and respect life itself.
+ - Psychoanalysis is an attempt to examine a person’s self-justifications. Hence it can be undertaken only with the patient’s cooperation and can succeed only when the patient has something to gain by abandoning or modifying his system of self-justification.
+ - Men are rewarded or punished not for what they do but for how their acts are defined. That is why men are more interested in better justifying themselves than in better behaving themselves.
+ - No further evidence is needed to show that ‘mental illness’ is not the name of a biological condition whose nature awaits to be elucidated, but is the name of a concept whose purpose is to obscure the obvious.
+ - The Nazis spoke of having a Jewish problem. We now speak of having a drug-abuse problem. Actually, “Jewish problem” was the name the Germans gave to their persecution of the Jews; “drug-abuse problem” is the name we give to the persecution of people who use certain drugs.
+ - The Greeks distinguished between good and bad behavior, language that enhanced or diminished persons. Being intoxicated with scientism, we fail to recognize that the seemingly technical terms used to identify psychiatric illnesses and interventions are simply dyphemisms and euphemisms.
+ - Science can give us power over nature, but it cannot give us power over human nature.
+ - It taught me, at an early age, that being wrong can be dangerous, but being right, when society regards the majority’s falsehood as truth, could be fatal.
+ - If someone does something we disapprove of, we regard him as bad if we believe we can deter him from persisting in his conduct, but we regard him as mad if we believe we cannot.
+ - The passion to interpret as madness that with which we disagree seems to have infected the best of contemporary minds.
+ - By pretending that convention is Nature, that disobeying a personal prohibition is a medical illness, they establish themselves as agents of social control and at the same time disguise their punitive interventions in the semantic and social trappings of medical practice.
+ - Suicide is a fundamental human right. This does not mean that it is desirable. It only means that society does not have the moral right to interfere, by force, with a persons decision to commit this act. The result is a far-reaching infantilization and dehumanization of the suicidal person.
+ - Adulthood is the ever-shrinking period between childhood and old age. It is the apparent aim of modern industrial societies to reduce this period to a minimum.
+ - Child psychology and child psychiatry cannot be reformed. They must be abolished.
+ - I favor free trade in drugs for the same reason the Founding Fathers favored free trade in ideas: in a free society it is none of the government’s business what ideas a man puts into his mind; likewise, it should be none of its business what drugs he puts into his body.
+ - What people really need and demand from life is not wealth, comfort, or esteem, but games worth playing.
+ - Psychiatrists look for twisted molecules and defective genes as the causes of schizophrenia, because schizophrenia is the name of a disease. If Christianity or Communism were called diseases, would they then look for the chemical and genetic “causes” of these “conditions”?
+ - The neurotic has problems; the psychotic has solutions.
+ - The many faces of intimacy: the Victorians could experience it through correspondence, but not through cohabitation; contemporary men and women can experience it through fornication, but not through friendship.
+ - The FDA calls certain substances “controlled.” But there are no “controlled substances,” there are only controlled citizens.
+ - I submit that the traditional definition of psychiatry, which is still vogue, places it alongside such things as alchemy and astrology, and commits it to the category of pseudo-science.
+ - Psychiatry is probably the single most destructive force that has affected American Society within the last fifty years.
+ - The system isn’t stupid, but the people in it are.
+ - The language of science – and especially of a science of man – is, necessarily, anti-individualistic, and hence a threat to human freedom and dignity.
+ - Is psychiatry a medical enterprise concerned with treating diseases, or a humanistic enterprise concerned with helping persons with their personal problems? Psychiatry could be one or the other, but it cannot – despite the pretensions and protestations of psichiatrists – be both.
+ - Mysticism joins and unites; reason divides and separates. People crave belonging more than understanding. Hence the prominent role of mysticism, and the limited role of reason in human affairs.
+ - Marx said that religion was the opiate of the people. In the United States today, opiates are the religion of the people.
+ - When a man says that he is Jesus or Napoleon, or that the Martians are after him, or claims something else that seems outrageous to common sense, he is labeled psychotic and locked up in a madhouse. Freedom of speech is only for normal people.
+ - Like the devout theologian seeing the Devil lurking everywhere, Menninger, the devout Freudian, sees aggression.
+ - The less a person knows about the workings of the social institutions in his society, the more he must trust those who wield power in it; and the more he trusts those who wield such power, the more vulnerable he makes himself to becoming their victim.
+ - Marriages are said to be made in Heaven, which may be why they don’t work here on Earth.
+ - Doubt is to certainty as neurosis is to psychosis. The neurotic is in doubt and has fears about persons and things; the psychotic has convictions and makes claims about them. In short, the neurotic has problems, the psychotic has solutions.
+ - Work is pushing matter around. Politics is pushing people around.
+ - Psychiatric expert testimony: mendacity masquerading as medicine.
+ - The poor need jobs and money, not psychoanalysis. The uneducated need knowledge and skills, not psychoanalysis.
+
+82 quotes

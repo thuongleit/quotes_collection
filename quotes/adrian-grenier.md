@@ -1,0 +1,24 @@
+ - What is important is family, friends, giving back to your community and finding meaning in life.
+ - Music is a language of emotion. I’m passionate about it because I think it’s the most direct way to connect to the things that are ineffable. Words just aren’t necessary a good enough opportunity to express. Words are maybe less than accessible at expressing.
+ - I think winter wear is communal. You get some gloves and a scarf from a lost-and-found box, wash them, wear them for a while until you lose them. Then somebody else does the same thing.
+ - I don’t like putting people on a pedestal, I think ideas are more exciting.
+ - It’s enough to indulge and to be selfish but true happiness is really when you start giving back.
+ - The future of cinema and communications is all about collaboration and the decentralized control of storytelling. We’re all part of the story; we can all contribute and participate.
+ - I think anybody who’s famous has to deal with their fame in their own way, and I dealt with it by making a film about a kid who’s looking out into the world of celebrity obsession.
+ - I think, in a lot of ways, celebrities represent the American dream. They have financial fluidity and options at their disposal.
+ - It’s what we live for, to be able to make great illusions. The thing about ‘Entourage’ is everything we do is realistic. We go to the real places, we shoot on location. We get the real people. It’s a perfect marriage between fact and fiction.
+ - I’m a filmmaker, I’m a storyteller, an entertainer, if you will, so what can I do to participate? Well, I’m not a scientist; I’m not an expert on environmental law; I’m a guy that can tell stories. So I always look for a way to communicate ideas and help to spread excitement for change.
+ - Because when you go out, and you have fun, basically you’re performing for these tabloid outlets and the paparazzi. And when you perform and create this story, they’re chuffed – they get excited, they capture it, and they put it out.
+ - Celebrities become divas because they get pampered so much, babied so much – then they get used to it.
+ - That’s what we do on ‘Entourage.’ We embed ourselves in legitimate authentic moments so wherever the action is happening, we’re taking pieces from that red carpet.
+ - You ask any actor – they’ll tell you they’d rather shoot on location because you don’t have to invent the energy, the energy is there.
+ - As great as technology is, it still has it’s limitations, because it’s only a frame of the truth.
+ - Tabloids can be fun. I see stuff sometimes and have a good laugh.
+ - Understanding that which is foreign to you is fundamental to cultivating a sense of connection and unity with one another. We are ultimately trying to accomplish the same thing, which is survival and the thriving of a better world.
+ - I want to show people that environmentalism can be fun!
+ - Once you get into the habit of work, you can be more productive in the things you want to do.
+ - I’m one with New York, and New York is one with me. I grew up there; there’s no escaping it. We’re like Siamese twins, if you separate us, I’ll die.
+ - I think it’s important that we run that tension between the way things are, in terms of the way we’re governed, and the way we sort of become complacent.
+ - My only ambition when I came to Hollywood was to pay my rent.
+
+22 quotes

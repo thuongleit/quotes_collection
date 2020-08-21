@@ -1,0 +1,51 @@
+ - The future of architecture is culture.
+ - Architecture is the art of how to waste space.
+ - I’m a chameleon, so changeable. I see myself as a gadfly and a questioner.
+ - We all see the world differently. And thank God for that. Otherwise, what a boring world this would be.
+ - Architecture is basically the design of interiors, the art of organizing interior space.
+ - Faith? Haven’t any. I’m not a nihilist or a relativist. I don’t believe in anything but change. I’m a Heraclitean – you can’t step in the same river twice.
+ - I guess I can’t be a great architect. Great architects have a recognizable style. But if every building I did were the same, it would be pretty boring.
+ - Don’t build a glass house if you’re worried about saving money on heating.
+ - I hate vacations. If you can build buildings, why sit on the beach?
+ - If architects weren’t arrogant, they wouldn’t be architects. I don’t know a modest good architect.
+ - Naturalism and materialism mean essentially the same thing.
+ - The practice of architecture is the most delightful of all pursuits. Also, next to agriculture, it is the most necessary to man. One must eat, one must have shelter. Next to religious worship itself, it is the spiritual handmaiden of our deepest convictions.
+ - There’s no worse feeling than seeing my buildings and realizing the mistakes.
+ - We do pretty much whatever we want to.
+ - Processionalism is primary – how you get from one place to another, the relationships and effects of spaces as you move about in them. That’s worked out awfully well in the State Theater. I’m a ‘straight-in’ man myself; I’m too nervous, I like to know where I am. I also like to know where I’m going.
+ - I got everything from someone. Nobody can be original.
+ - All architecture is shelter, all great architecture is the design of space that contains, cuddles, exalts, or stimulates the persons in that space.
+ - I used to think that each phase of life was the end. But now that my view on life is more or less fixed, I believe that change is a great thing. In fact, it’s the only real absolute in the world.
+ - How does an artist know when the line that he just painted is good or not good? That’s the catch. De Kooning was the greatest of my contemporaries in art, and he knew when he’d done a good line. When he didn’t, he threw it away. I wish I’d thrown away some of mine.
+ - The people with money to build today are corporations – they are our popes and Medicis. The sense of pride is why they build.
+ - I call myself a traditionalist, although I have fought against tradition all my life.
+ - The automobile is the greatest catastrophe in the entire history of City architecture.
+ - American megalomania is largely responsible for the growth of the Skyscraper School.
+ - You’re going to change the world? Well, go ahead and try. You’ll give it up at a certain point and change yourself instead.
+ - There’s no such thing as old age. I’m no different now than I was 50 years ago. I’m just having more fun.
+ - It is wonderful to be in the country in a glass house, because no matter what happens out there, you’re nice and safe, you know, cuddled in your little bed, and there it is, raging storms, snowing – wonderful.
+ - I like the thought that what we are to do on this earth is embellish it for its greater beauty, so that oncoming generations can look back to the shapes we leave here and get the same thrill that I get in looking back at theirs – at the Parthenon, at Chartres Cathedral.
+ - In our greatest universities, naturalism – the doctrine that nature is all there is – is the virtually unquestioned assumption that underlies not only natural science but intellectual work of all kinds.
+ - Glibness will get your anywhere.
+ - I haven’t any wisdom – just a child like everybody else. I’m not as great as Frank Lloyd Wright.
+ - All architects want to live beyond their deaths.
+ - Houston is undoubtedly my showcase city. I saved all my best buildings for Houston.
+ - I get between nine and ten hours of sleep. Go to bed at 8:30 and get up at 6:00 or 6:30 if I oversleep.
+ - Pick very few objects and place them exactly.
+ - Maybe, just maybe, we shall at last come to care for the most important, most challenging, surely the most satisfying of all architectural creations: building cities for people to live in.
+ - Doing a house is so much harder than doing a skyscraper.
+ - So now the floodgates are open to the delight of pure form, whatever its origin. Anything goes.
+ - The first complete sentence out of my mouth was probably that line about consistency being the hobgoblin of small minds.
+ - I wish someone would ask me to design a cathedral.
+ - I guess I want to make money just like other people, perhaps more than most people.
+ - Some of the opera houses in Italy had to be burnt down because people could neither see nor hear. They gave up seeing years ago, but they did enjoy the music.
+ - In our universal experience unintelligent material processes do not create life.
+ - I like to be buttoned onto tradition. The thing is to improve it, twist it and mold it; to make something new of it; not to deny it. The riches of history can be plucked at any point.
+ - I wouldn’t build a building if it wasn’t of interest to me as a potential work of art. Why should I?
+ - The best thing to do with water is to use a lot of it.
+ - Purpose is not necessary to make a building beautiful.
+ - Anybody can build a building, putting some doors into it, but how many times have you been in a building that moves you to tears the way Beethoven’s ‘Eighth’ does?
+ - From the very fact the universe is on the whole orderly, in a manner comprehensible to our intellect, is evidence that we and it were fashioned by a common intelligence.
+ - Early unsuccessess shouldn’t bother anybody because it happens to absolutely everybody.
+
+49 quotes

@@ -1,0 +1,35 @@
+ - Success doesn’t come to you, you go to it.
+ - Readers are leaders. Thinkers succeed.
+ - If you don’t give anything, don’t expect anything. Success is not coming to you, you must come to it.
+ - The good teacher makes the poor student good and the good student superior.
+ - If you can’t make a mistake, you can’t make anything.
+ - There is a brilliant child locked inside every student.
+ - I’m a teacher. A teacher is someone who leads. There is no magic here. I do not walk on water. I do not part the sea. I just love children.
+ - Once children learn how to learn, nothing is going to narrow their mind. The essence of teaching is to make learning contagious, to have one idea spark another.
+ - Excellence is not an act but a habit. The things you do the most are the things you will do best.
+ - Teaching children to read was one thing; keeping them interested in reading was something else.
+ - What all good teachers have in common, however, is that they set high standards for their students and do not settle for anything less.
+ - Kids don’t fail. Teachers fail, school systems fail. The people who teach children that they are failures, they are the problem.
+ - Until kids decide, ‘I am a miracle. I am unique. There is no one else exactly like me,’ they can never draw the conclusion, ‘Because I’m a miracle, I will never harm another person who’s a miracle like me.’ In this slippery world, they all need something to hang on to.
+ - Character is what you know you are, not what others think you have.
+ - The purpose of a liberal arts education is to learn that a person can like both cats and dogs.
+ - Don’t try to fix the students, fix ourselves first. The good teacher makes the poor student good and the good student superior. When our students fail, we, as teachers, too, have failed.
+ - You can pay people to teach, But you can’t pay them to care.
+ - An error means a child needs help, not a reprimand or ridicule for doing something wrong.
+ - I have discovered few learning disabled students in my three decades of teaching. I have, however, discovered many, many victims of teaching inabilities.
+ - I cannot change the world, but I do not have to conform.
+ - Trust yourself. Think for yourself. Act for yourself. Speak for yourself. Be yourself. Imitation is suicide.
+ - Determination and perseverance move the world; thinking that others will do it for you is a sure way to fail.
+ - Mr. Meant-to has a friend, his name is Didn’t-Do. Have you met them? They live together in a house called Never-Win. And I am told that it is haunted by the Ghost of Might-have-Been.
+ - When someone is taught the joy of learning, it becomes a life-long process that never stops, a process that creates a logical individual. That is the challenge and joy of teaching.
+ - I got so tired of hearing those proverbs when I was a child. Now I use them all the time. Sometimes they are the best way to say what needs to be said. I teach them to my students. I have a collection of proverbs for class discussion and writing assignments.
+ - Excellence is not an act, but a habit.
+ - None of you has ever failed. School may have failed you. Goodbye to failure, children. Welcome to success.
+ - When our students fail, we, as teachers, too, have failed.
+ - Death cannot put the brakes on a good dream.
+ - Praise is essential in developing the right attitude toward learning and toward school.
+ - Before I can effectively discipline students, I have to earn their friendship and respect.
+ - Everything works when the teacher works. It’s as easy as that, and as hard.
+ - There isn’t a certain time we should set aside to talk about God. God is part of our every waking moment.
+
+33 quotes

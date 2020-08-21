@@ -1,0 +1,434 @@
+ - Life begins at the end of your comfort zone.
+ - Your thoughts create your reality. Your mind is more powerful than you know.
+ - Thank you, God, for bringing me success in my life.
+ - You make your Own luck.
+ - The struggle ends when gratitude begins.
+ - Gratitude in advance is the most powerful creative force in the universe.
+ - Enjoy everything. Need nothing.
+ - Quantum physics tells us that nothing that is observed is unaffected by the observer. That statement, from science, holds an enormous and powerful insight. It means that everyone sees a different truth because everyone is creating what they see.
+ - If you want the best the world has to offer, offer the world your best.
+ - If you don’t go within, you go without.
+ - Your world will follow your idea about yourself.
+ - Life is a self-fulfilling prophecy. What you believe about Life will be your experience of Life.
+ - Remember, you are constantly in the act of creating yourself. You are in every moment deciding who and what you are. You decide this largely through the choices you make regarding who and what you feel passionate about.
+ - There is nothing you cannot be, there is nothing you cannot do. There is nothing you cannot have.
+ - The universe is just a big Xerox machine. It simply produces copies of your thoughts.
+ - Nothing stays the same, nothing remains static. Which way a thing changes depends on you.
+ - The moment you surrender to love and allow it to lead you to exactly where your soul wants to go, you will have no difficulty.
+ - Happiness is a decision, not an experience. You can decide to be happy without what you thought you needed in order to be happy, and you will be. Your experience is the result of your decision, not the cause of it.
+ - The way to move out of judgement is to move into gratitude.
+ - Every decision you make – every decision that you make every second – is not a decision about what to do, it is a decision about who you are. Every act is an act of self-definition.
+ - I have sent you nothing but angels.
+ - Do not wonder why things are “taking so long.” In fact, everything is rolling out exactly as it needs to, using not a minute more than Perfection requires. Rest easy and be at peace. Life is working its magic even as you take your very next breath.
+ - Life begin at the end of your Comfort Zone. So if you’re feeling uncomfortable right now, know that the change taking place in your life is a begining, not an ending.
+ - Life is a creation, not a discovery.
+ - Singing connects the mind with the heart and the heart with the soul. So sing. I dare you!
+ - Fear is energy which contracts, closes down, draws in, runs, hides, hoards, harms. Love is the energy which expands, opens up, sends out, stays, reveals, shares, HEALS.
+ - Do not jump into reaction mode at the first appearance of negative energy. Just breathe, and relax.
+ - True vision is the ability to see in another more than they are showing you.
+ - The soul creates, the mind reacts. The soul understands what the mind cannot conceive.
+ - The laws are very simple: thought is creative; fear attracts like energy; love is all there is.
+ - Don’t dismiss the synchronicity of what is happening right now finding its way to your life at just this moment. There are no coincidences in the universe, only convergences of Will, Intent, and Experience.
+ - A five-word sentence that could change the world tomorrow is What would love do now?
+ - The correct prayer is never one of supplication but one of gratitude.
+ - I tell you this: There is no coincidence, and nothing happens “by accident.” Each event and adventure is called to your Self by your Self in order that you might create and experience Who You Really Are.
+ - What you resist persists. And only what you look at, and own, can disappear. You make it disappear by simply changing your mind about it.
+ - Your soul doesn’t care what you do for a living – and when your life is over, neither will you. Your soul cares only about what you are being while you are doing whatever you are doing.
+ - There is only one reason to do anything: as a statement to the universe of Who You Are.
+ - You cannot change the outer event, so you must change the inner experience.
+ - In order to experience the Ultimate Reality you have to be out of your mind.
+ - So long as you are still worried about what others think of you, you are owned by them. Only when you require no approval from outside yourself can you own yourself.
+ - Remain grateful for every outcome. Every outcome. Gratitude is the connecting energy to God.
+ - The purpose of life is to create your Self anew, in the next grandest version of the greatest vision ever you held about Who You Are. It is to announce and become, express and fulfill, experience and know your true Self.
+ - Remember always, you are the gift!
+ - Every act is an act of self definition.
+ - You are afraid to die, and you’re afraid to live. What a way to exist.
+ - It is not for you to judge the journey of another’s soul. It is for you to decide who YOU are, not who another has been or has failed to be.
+ - Focus your mind on what your Highest Self chooses to be.
+ - If you want to create abundance for yourself, create it for someone else.
+ - All change in life comes from within. It is what’s in humanity’s soul, not what’s in humanity’s wallet, that will purchase our freedom from humanity’s suffering.
+ - If you want guarantees in life, then you don’t want life. You want rehearsals for a script that’s already been written. Life by its nature cannot have guarantees, or its whole purpose is thwarted.
+ - Give everyone whose life you touch a sense of their own worthiness as a person, a sense of the true wonder of who they are. Give this gift and you will heal the world.
+ - The deepest secret is that life is not a process of discovery, but a process of creation. You are not discovering yourself, but creating yourself anew. Seek therefore, not to find out Who You Are, but seek to determine Who You Want to Be.
+ - To live your life without expectation-without the need for specific results-that is freedom. That is Godliness.
+ - Fear and guilt are your only enemies. If you let go of fear, fear lets go of you. If you release guilt, guilt will release you. How do you do that? By deciding to.
+ - The purpose of meditation is to create focus. It is about focusing your attention on your experience. The reason for focus: it allows you to be here now. Your only reality is This Moment, right here, right now. Peace is found in such awareness.
+ - Health will improve almost at once when worrying ends.
+ - There is a divine purpose behind everything – and therefore a divine presence in everything.
+ - Go ahead and do what you really love to do! Do nothing else! You have so little time. How can you think of wasting a moment doing something for a living you don’t like to do? What kind of a living is that? That is not a living, that is a dying!
+ - True masters are those who’ve chosen to make a life rather than a living.
+ - The biggest commitment you must keep is your commitment to yourself.
+ - If you cannot find a group whose consciousness matches your own, be the source of one. Others of like consciousness will be drawn to you.
+ - Glorify who you are today, do not condemn who you were yesterday, and dream of who you can be tomorrow.
+ - Never deny passion, for that is to deny Who You Are, and Who You Truly Want To Be.
+ - When you find peace within, you also find that you can do without. This means simply that you no longer need the things of your outside world, and not needing is a great freedom.
+ - When you come from ‘love,’ you do certain things because you are love, not because you want to have love.
+ - Gratitude is the miracle cure for every moment of dis-ease.
+ - The question ‘Who am I?’ is not an idle one. How you answer the question will determine how you live the rest of your life. It will determine the quality of your life.
+ - Keep moving. Don’t stop. But don’t rush. Don’t race around. Sure and steady gets you there every time.
+ - There is enough to go around. Lack of the will to share is the problem, not lack of the stuff to share.
+ - Say your truth-kindly, but fully and completely. Live your truth, gently, but totally and consistently. Change your truth easily and quickly when your experience brings you new clarity.
+ - All things lead us to our innermost truth. That is their purpose. That is the purpose of Life itself. Life is truth, revealing Itself to Itself.
+ - To have a friendship with God, all I really have to do is have a friendship with my Self.
+ - If you’re going to do something, do it with gusto. Don’t do anything half-heartedly. That dishonors the doing and the doer. So go for it. Hold nothing back. In life. Or love. Or anything at all!
+ - Your whole life is a message. Every act is an act of self-definition. Everything you think, say and do sends a message about you.
+ - What’s happening is merely what’s happening. How you feel about it is another matter.
+ - Honor your body. Keep it in good shape. It is the most important physical tool that you have. Exercise is the meditation of the body. It allows you to feel Oneness with all of Life.
+ - Even our most difficult moments bring us gifts. The trick, of course, is gratitude. Therein will you find both your peace and your joy.
+ - The only thing that changes as we evolve is the idea of what serves us.
+ - A true leader is not the one with the most followers, but one who creates the most leaders.
+ - A life lived of choice is a life of conscious action. A life lived of chance is a life of unconscious creation.
+ - Open your mind, allow your feelings to be expressed, to be pushed out, and your heart will neither break nor burst, but be a free-flowing channel of the life energy in your soul.
+ - If you don’t like the way you are headed, change direction. Go inside. Search your place of inner wisdom. See what this calls on you to do. Then do it.
+ - All of life is an announcement of who we are. The only question is whether this proclamation will be made by choice or by chance.
+ - The reason people don’t know what is good for them is because most people don’t know what they are trying to do.
+ - I tell you this: Your Life proceeds out of your intentions for it.
+ - Nothing changes the environment like one person deciding to love another, no matter what.
+ - Nothing substitutes for positive thinking. Nothing. It is more powerful than all the money, all the influence, all the ‘friends in high places’ on earth.
+ - Love can be sent to others in a thousand ways. Even thoughts of love can change things. They can be felt. By you, and by the person you are thinking of, too. Yes, they can. Help others by by loving them, simply, plainly, openly, without condition.
+ - The way to reduce the pain which you associate with earthly experiences and events-both yours and those of others-is to change the way you behold them.
+ - Ignore your previous experience and go into the moment. Be Here Now. See what there is to work with right now in creating yourself anew. Life is an ongoing, never-ending process of re-creation.
+ - Worry, hate, fear-together with their offshoots: anxiety, bitterness, impatience, avarice, unkindness, judgmentalness, and condemnation-all attack the body at the cellular level. It is impossible to have a healthy body under these conditions.
+ - The point of life is not to get anywhere-it is to notice that you are, and have always been, already there.
+ - Your happy destiny is unavoidable.
+ - When we understand the best way to achieve all our goals is to assist others in achieving their goals, we will find the key to lasting happiness.
+ - Social evolution is demonstrated by movement towards unity, not separatism.
+ - Life is eternal. You are immortal. You never do die. You simply change form.
+ - The era of the Single Savior is over. What is needed now is joint action, combined effort, collective co-creation.
+ - The goal is to help the weak grow strong, not to let the weak become weaker.
+ - When you have an unconditional love of Life, then you love Life just the way it is showing up, right here, right now. This is only possible when you are “seeing the perfection.”
+ - Happiness is allowing yourself to be okay with what is, rather than wishing for, and bemoaning, what is not. Obviously, what is is what is supposed to be, or it would not be. The rest is just you, arguing with life.
+ - Teach not with your words, but with your actions; not with discussion but with demonstration. For it is what you do that your children will emulate, and how you are that they will become.
+ - The Roman Catholics teach that unless you’re a Roman Catholic you do not go to heaven.
+ - Enlightenment is understanding that there is nowhere to go, nothing to do, and nobody you have to be except exactly who you’re being right now.
+ - Feeling is the language of the soul. If you want to know what’s true for you about something, look to how you’re feeling about it.
+ - Know and understand that there will be challenges and difficult times. Don’t try to avoid them. Welcome them. Gratefully.
+ - Everything is falling together perfectly, even though it looks as if some things are falling apart. Trust in the process you are now experiencing.
+ - If you think God looks only one way or sounds only one way or is only one way, you’re going to look right past Me night and day. You’ll spend your whole life looking for God and not finding Her. Because you’re looking for a Him.
+ - Trust in the process you are now experiencing. Life is on your side. It is showing that to you now, though you may not be able to see it clearly at this time.
+ - I tell you this: The purpose of life is not to please God. The purpose of life is to know, and to recreate, Who You Are.
+ - There is no truth except the truth that exists within you. Everything else is what someone is telling you.
+ - You are always connected to Source. Wherever you are, wherever you go, you are always connected to Divine Wisdom, Divine Intelligence, and Divine Love.
+ - You are living in a dream of your own creation. Let it be the dream of a lifetime, for that is exactly what it is.
+ - Nothing has done more to separate and divide human beings one from another than exclusivist organized religion.
+ - One either has to believe in a God who’s terribly prejudiced, or disbelieve the teachings of such exclusionary theologies. Religions have taught us that ‘we are better than they.’
+ - If you believe the noises of the world, rather than the silences of your soul, you will be lost.
+ - Disappointment is temporary. Only your thought about it is permanent. Change your mind about what has disappointed you and you will change your life.
+ - All learning is remembering. A good teacher causes students to remember what they already know.
+ - Bring peace to the Earth by bringing peace to all those whose lives you touch. Be peace.
+ - God is speaking to all of us, all the time. The question is not, to whom does God talk? The question is, who listens?
+ - Know that what you do in the time of your greatest trial can be your greatest triumph.
+ - Move forward with no second-guessing, no guilt trips, no hesitation. Your purpose is to recreate yourself anew in each moment.
+ - At the critical juncture in all human relationships, there is only one question: What would love do now?
+ - My perspective will create my perception.
+ - Life is a continual flow of events, streaming in from the universal stream of consciousness in such a way that it exactly matches our own stream of consciousness.
+ - The purpose of relationship is not to have another who might complete you, but to have another with whom you might share your completeness.
+ - A Soul Knowing: You are the sum total of the Body, Mind, and Soul, and each of these aspects of you has a purpose and a function, but only one has an agenda: the Soul.
+ - Until you can let go of everything, you will find it hard to hold onto anything.
+ - Instead of seeking to pinpoint blame, seek to understand cause.
+ - Freedom is the basic concept and construct of life everywhere, because freedom is the basic nature of God. All systems which reduce, restrict, impinge upon or eliminate freedom in any way are systems which work against life itself.
+ - The moment you proclaim your Oneness with God, others will proclaim you partnership with Satan.
+ - Everything changes when you make a decision to be one of the courageous ones, someone who chooses to make a life, rather than a living.
+ - It is the mark of a primitive society to view regression as progress.
+ - There is nothing I have to do, nowhere I have to go, and no way I have to be except exactly the way I am being right now.
+ - It’s time to tear up the canvas and start over. It’s time for the overhaul of humanity.
+ - Words are the least reliable purveyor of Truth.
+ - Thought is the first level of creation. Next comes the word. Everything you say is a thought expressed. It is creative and sends forth creative energy into the universe. Words are the second level of creation. Next comes action.
+ - If you saw you as God sees you, you would smile a lot.
+ - And if we’re all one, we need to stop our competition with each other. Most of the decisions we make are about survival and winning.
+ - Speak your truth but soothe your words with peace.
+ - Let your love propel your beloveds into the world-and into the full experience of who they are. In this will you have truly loved.
+ - Envy not success, nor pity failure, for you know not what is success or failure in the soul’s reckoning.
+ - Teach your children that they need nothing exterior to themselves to be happy, no person, place or thing, and that true happiness is found within.
+ - Love lets go. Need holds on. This is the way you can tell the difference between need and love. Let go of expectation, let go of requirements and rules and regulations that you would impose on your loved ones.
+ - It is not God’s function to create or uncreate the circumstances of your life. God created You, in the image and likeness of God. You have created the rest.
+ - Thought, word, and deed are the three levels of creation.
+ - There are only two energies at the core of the human experience: love and fear. Love grants freedom, fear takes it away. Love invites full expression, fear punishes it. Love invites you, always, to break the bonds of ignorance.
+ - Be a bringer of the Light. For your light can do more than illuminate your own path, you can be the light which truly lights the world.
+ - The purpose of life is to know yourself, create yourself, experience yourself as Who You Really Are. There is no other reason to do anything.
+ - There are no victims in the universe, only creators. The Masters who have walked this planet all knew this.
+ - Thought is pure energy. Every thought you have, have ever had, and ever will have is creative. The energy of your thought never dies. Ever. It leaves your being and heads out into the universe, extending forever. A thought is forever.
+ - As you shift and change your own experience, the experience of the whole human race begins to shift and change as well. So this is important work you are doing, this business of changing your life.
+ - When you find inner peace, neither the presence nor absence of any person, place or thing, condition, circumstance, or situation can be the Creator of your state of mind or the cause of your experience of being.
+ - Choose, but don’t want.
+ - Grant yourself permission to have all that life has to offer, and you will discover it has more to offer than you’ve ever imagined.
+ - The soul – your soul – knows all there is to know all the time. There’s nothing hidden to it, nothing unknown. Yet knowing is not enough. The soul seeks to experience.
+ - Forget about the past. It does not exist, except in your memory. Drop it. And stop worrying about how you’re going to get through tomorrow. Life is going on right here, right now – pay attention to that and all will be well.
+ - Smiling can be a deliberate, intentioned act. When it is that, it becomes an act of creation, and a powerful tool. Be quick to smile, and quick to share your smile with others. You will light up your heart and light up the room.
+ - Healing is the process of accepting all, then choosing best.
+ - You can only succeed. You cannot fail. Failure is impossible; it is an illusion. Nothing is a failure. Nothing. Everything moves the human story, and hence the process of evolution, forward. Everything advances you on your journey.
+ - You are your own highest authority. Do not place your source of authority outside of you. Go within to see if the truth you’ve found is in harmony with the truth you find in your heart.
+ - All that is required is to know this. For you are the creator of your reality, and life can show up no other way for you than that way in which you think it will.
+ - All great truths begin as blasphemy. Every single revolutionary idea that has ever been visited upon the human experience began as an idea which was rejected.
+ - A good cry can be wonderful sometimes, and sadness is nothing more than love announced. Sadness and Unhappiness are not the same thing, and it is good to remember that. And there is this: sadness cleanses the heart.
+ - If only you knew all the gifts that you bring to others. You would never feel sad again.
+ - That’s the problem with truth. The truth is relentless. It won’t leave you alone. It keeps creeping up on you from every side, showing you what’s really so. That can he annoying.
+ - There is only one emotion, one energy, in the universe: the energy, the emotion, that we call Love. When you know this, everything changes.
+ - You cannot make a mistake, you can only make a decision that will be your next best step.
+ - There is always something to celebrate, so long as life is being lived.
+ - I do not love “good” more than I love “bad.” Hitler went to heaven. When you understand this, you will understand God.
+ - What is important in your life is what you decide is important – and this decision will indelibly create who you are.
+ - Let this Christmas Day remind us that Christ came to invite us to offer love to ALL humankind and to open the door of God’s Kingdom to Every soul.
+ - If a doctor assists you in your suicide, it is called manslaughter, while if a tobacco company does, it is called commerce.
+ - Life is an ongoing, never-ending process of re-creation.
+ - Consider the possibility that the little obstacles in life are not obstacles at all, but stepping stones.
+ - Fear and caution are two different things. Be cautious – be conscious – but do not be fearful. Fear only paralyzes, while consciousness mobilizes. Be mobilized, not paralyzed.
+ - You cannot let go of anything if you cannot notice that you are holding it. Admit your ‘weaknesses’ and watch them morph into your greatest strengths.
+ - You cannot know God until you’ve stopped telling yourself that you already know God. You cannot hear God until you stop thinking that you’ve already heard God. I cannot tell you My Truth until you stop telling Me yours.
+ - This is the great secret. This is the sacred wisdom. Do unto others as you would have it done unto you.
+ - It is you who are choosing, in any moment, to be happy or choosing to be sad, or choosing to be angry, or forgiving, or enlightened, or whatever. You are choosing.
+ - Creation is the highest form of Divinity, and your birthright. Truth is, you are creating all the time. The central question in your life is whether you are doing this consciously or unconsciously.
+ - Only humans are judgmental, and because you are, you assume that I must be. Yet I am not, and that is the great truth you cannot accept.
+ - Because we believe that our ethnic group, our society, our political party, our God, is better than your God, we kill each other.
+ - Now, having seen the differences between where you are and where you want to be, begin to change-consciously change-your thoughts, words, and actions to match your grandest vision.
+ - It doesn’t matter what the other is being, doing, having, saying, wanting, demanding. It doesn’t matter what the other is thinking, expecting, planning. It only matters what you are being in relationship to that.
+ - Life was meant to be happy.
+ - And because we are, somehow, better than they, we get to go to heaven and they don’t. Christians will tell you outright that they believe that.
+ - There are thousands of paths to God and every one gets you there.
+ - The mind and the soul must work together if you are to experience true bliss. Try not to spend too much time exclusively in your mind. It is a magnificent tool, but it has a limited perspective.
+ - As told in Friendship with God, if we simply decided to believe and act as if first, we’re all one, and second, life is eternal, it would render virtually everything we’ve done all our lives pointless.
+ - Your happy destiny is unavoidable. You cannot be “saved.” There is no hell except not knowing this.
+ - The Ultimate Reality is that everything you think you need, you already have. It exists inside of you. Indeed, it is you. You are what you need – and therefore, you give yourself everything you need in any given moment.
+ - Forever is longer than you know. Eternal is longer than Forever. God is more than you imagine. God is the energy you call imagination. God is creation. God is first thought. And God is last experience. And God is everything in between.
+ - When you understand that you are your soul, then you will experience Life as an expression of the soul.
+ - Do not dismantle the house, but look at each brick, and replace those which appear to be broken, which no longer support the structure.
+ - You will not have that for which you ask, nor can you have anything you want. This is because your very request is a statement of lack, and your saying you want a thing only works to produce that precise experience – wanting – in your reality.
+ - You don’t know how to love without condition.
+ - God is in the sadness and the laughter, in the bitter and the sweet.
+ - In truth, there is no such thing as a “sinner” for no-one can be sinned against-least of all me.
+ - What is needed is not a change of circumstance, but a change of consciousness.
+ - The new spirituality is that it will produce an experience in human encounters in which we become a living demonstration of the basic spiritual teaching ‘We are all one.’
+ - I am telling you that your perception of ultimate reality is more limited than you thought, and that Truth is more unlimited than you can imagine.
+ - For it is the nature of people to love, then destroy, then love again that which they value most.
+ - Life begins now – right now – not tomorrow or the next day or the next. Every minute of every hour of every day, life begins anew. That means everything can change in an instant. It also means you can have a new beginning whenever you want.
+ - Know that all times are Holy, that every religion holds truth, that each tradition is sacred, and that it is in the simple sharing of love that we make our beliefs come alive, and our dreams come true.
+ - Some things will always remain a mystery at this level of consciousness, and it is right that they should. So do not try to solve all the mysteries. Give the universe a chance. It will unfold itself in due course. Enjoy the experience of becoming.
+ - Nothing in this world is real.
+ - Fear and guilt are your only enemies. Love and awareness are your true friends. Do not confuse one with the other, for one will kill you, while the other gives you life.
+ - The soul conceives, the mind creates, the body experiences. The circle is complete.
+ - Some souls seek to walk in awareness. Souls who walk in awareness choose a different path. They seek to experience all the peace and joy, limitlessness and freedom, wisdom and love that Oneness brings.
+ - I find myself often moved to tears by what is being written in front of me. Sometimes, I just sit on the couch and write the words down and cry because the beauty of the thoughts and how exquisitely they are being expressed.
+ - Religion asks you to learn from the experience of others. Spirituality urges you to seek your own.
+ - There can be only two questions that are asked with regard to human relationships: Where am I going? Who is going with me? Do not invert the order of the questions. Do not – under any circumstances – invert the order of the questions. Is that clear?
+ - Feelings are sometimes difficult to discover, and often even more difficult to acknowledge. Yet hidden in your deepest feelings is your highest truth.
+ - There is no free will if to exercise it in certain ways produces punishment. That makes a mockery of free will and renders it counterfeit.
+ - You can’t lose the game. You can’t go wrong. It’s not part of the plan. There is no way not to get where you are going. There’s no way to miss your destination. If God is your target, you’re in luck, because God is so big, you can’t miss.
+ - You must learn to honor and cherish and love your Self. You must first see your Self as worthy before you can see another as worthy. You must first know your Self to be holy before you can acknowledge holiness in another.
+ - If the whole world followed you, would you be pleased with where you took it?
+ - No path back home is better than any other path.
+ - There are those who say that seeing is believing. I am telling you that believing is seeing.
+ - Life can show up no other way than that way in which you perceive it.
+ - Hell is the opposite of joy. It is unfulfillment. It is knowing Who and What You Are, and failing to experience that. It is being less.
+ - Fear wraps our bodies in clothing, love allows us to stand naked.
+ - When you give your children knowledge, you are telling them what to think. When you give your children wisdom, you do not tell them what to know, or what is true, but rather, how to get to their own truth.
+ - Never, ever, ever think that your life is over, but know always that each day, each hour, each moment is another beginning, another opportunity, another chance to re-create yourself anew.
+ - Nothing is painful in and of itself. Pain is a result of wrong thought. It is an error in thinking.
+ - The universe never says no to your thought about yourself. It only grows it.
+ - Worry is just about the worst form of mental activity there is.
+ - If you ever lit a cigarette in your life, you have very little will to live.
+ - Happiness is not created as a result of certain conditions. Certain conditions are created as a result of happiness.
+ - Self-creation never ends. You are continually creating yourself from the field of infinite possibilities. You are, in every moment, born again. And so is everyone else.
+ - We are all one. Ours is not a better way, ours is merely another way.
+ - The Highest Thought is always that thought which contains joy. The Clearest Words are those words which contain truth. The Grandest Feeling is that feeling which you call love.
+ - The secret of life is not to have everything you want, but to want everything you have.
+ - The more that you act on your intuition fearlessly, the more your intuition will serve you. Intuition is the ear of the soul.
+ - Build your schools around concepts, not academic subjects: core concepts such as awareness, honesty, responsibility, freedom and diversity in oneness. Teach your children these things and you will have taught them grandly.
+ - All thought is energy. All things are in motion. All time is now.
+ - Look to see who is truly serving the world, truly seeking to share wisdom and knowledge, insight and understanding, caring and compassion. Provide for these people, for these are the Bringers of the Light.
+ - Pain results from a judgment you have made about a thing. Remove the judgment and the pain disappears.
+ - Live authentically. Live your truth. And if you love me for anything, love me because I live mine.
+ - Love is freedom. The freedom to express the most joyous part of Who You Are. The part that knows that you are One with everything and everyone.
+ - Life is a creation, not a discovery. You do not live each day to discover what it holds for you, but to create it.
+ - Whatever you choose for yourself, give to another. If you choose to be happy, cause another to be happy. If you choose to be prosperous, cause another to prosper. If you choose more love in your life, cause another to have more love in theirs.
+ - Built into you is an internal guidance system that shows you the way home. All you need to do is heed the voice.
+ - You, and you alone, decide what something means to you. Yet this is a decision that most people make based upon past feelings, experiences, understandings, or future fears. None of this has anything to do with what is going on right here, right now.
+ - Be a living, breathing example of the Highest Truth that resides within you.
+ - Transformation is an instant-moment thing, available to us in any and every second. Life starts anew when you say it does.
+ - The outcome that we wish suddenly manifests itself in our reality, and the truth is, none of those things suddenly appeared. It is we who have suddenly appeared on the scene where they existed always.
+ - You are One with everything. When you are clear about this, your definition of self-interest will change.
+ - All attack is a call for help.
+ - Act as if you were separate from nothing, and no one, and you will heal your world tomorrow.
+ - In every moment God expresses Himself in, as, and through you. Built into you is an internal guidance system that shows you the way home. This is the voice that speaks to you always of your highest choice, that places before you your grandest vision.
+ - Try not to confuse longevity with a job well done.
+ - That which you condemn will condemn you, and that which you judge, you will one day become.
+ - There can be only one purpose for relationships-and for all of life: to be and to decide Who You Really Are.
+ - You are always in the process of creating. Every moment, every minute, every day. You are a big creation machine and you are turning out a new manifestation literally as fast as you can think.
+ - Go into the heart of love, and come from that place in all your choices and decisions, and you will find peace.
+ - The highest thought is always a thought which contains joy.
+ - Worry is the activity of a mind which does not understand its connection with Me.
+ - Remember who you really are and be that.
+ - Look to see what you are doing today. Is this how you choose to define yourself? Look to see what you are thinking today. Is this what you wish to create?
+ - The truth is that there is no journey. You are right now what you are attempting to be. You are right now where you are attempting to go.
+ - The meaning of everything is the meaning I give it.
+ - Until you decide what something means, it has no meaning at all. You determine what something means.
+ - Life will not, it will never, make sense to your mind. The secret is to see life from the soul’s perspective; to add to the mind’s experience the soul’s wisdom, awareness, and total knowing.
+ - Stopping smoking was most dramatic for me. After 23 years, I picked up a cigarette one day and didn’t know why I was doing it. Smoking was no longer in alignment with what I had intended to experience of myself.
+ - You can choose to be courageous enough to explore and examine the new understanding, and, it it aligns with your inner truth and knowing, to enlarge your belief system to include it.
+ - Do not let anything from your past inhibit you in this Present Moment. Start over. Start Fresh. Each day. Each hour, if it serves you. Heck, each minute. Just get going. Just do it. Just say it. With love. All else will take care of itself.
+ - Masters are those who have chosen only love. In every instance. In every moment. In every circumstance. Even as they were being killed, they loved their murderers. Even as they were being persecuted, they loved their oppressors.
+ - True abundance has nothing to do with what I am having, but everything to do with what I am being.
+ - It has been said that if you don’t see God in the profane and the profound, you’re missing half the story. That is a great Truth.
+ - If you listen to your soul you will know what is “best” for you, because what is best for you is what is true for you.
+ - You claim that any promise which gives you the power, and guarantees you the love of God must be the false promise of the devil.
+ - You cannot experience yourself as what you are until you’ve encountered what you are not.
+ - When you do not require a person to show up as you imagine you need them to be, then you can drop expectation. Then you love them exactly as they are. Yet this can only happen when you love your Self exactly as you are.
+ - Nothing can happen, nothing can occur in your life which is not a precisely perfect opportunity for you to heal something, create something, or experience something that you wish to heal, create, or experience in order to be who you really are.
+ - And in which we say that life is eternal but continue to struggle to survive.
+ - You have all the tools right now to make this day, this moment, happy. The best of these tools is love.
+ - However little of anything you have, you can always find someone who has less. Find that someone, and give to them from the abundance that is yours.
+ - The Body thinks it has an agenda that is important. And the Mind imagines that its agenda is vital to your survival. But the older you get the more you realize that it is the Soul’s agenda, and only the Soul’s agenda, that matters.
+ - You cannot know, and become, that which you are, in the absence of that which you are not, as I have already explained to you.
+ - Your Life is always a result of your thoughts about it-including your obviously creative thought that you seldom get what you choose.
+ - Yet if I told you you are born of God-that you are pure Gods and Goddesses at birth-pure love-you would reject me.
+ - Release the joy that is inside of another, and you release the joy that is inside of you.
+ - All that appears in your life is a blessing, presenting you with a greater opportunity to define who you are, and to know yourself as that.
+ - There is no need to punish yourself. Simply notice what you’ve been choosing and choose again.
+ - If there is some aspect of creation you find you do not enjoy, bless it and simply change it. Choose again. Call forth a new reality. Think a new thought. Say a new word. Do a new thing.
+ - There is nothing scary about life if you are not attached to results.
+ - Obedience is not creation, and thus can never produce salvation. Obedience is a response, while creation is pure choice, undictated, unrequired. Pure choice produces salvation through the pure creation of highest idea in this moment now.
+ - Your mind is right now filled with old thoughts. Not only old thoughts, but mostly someone else’s old thoughts. It’s important now, it’s time now, to change your mind about some things. This is what evolution is all about.
+ - Others see their possibility in the reality of you. Your message is your life lived.
+ - Your life is about everyone whose life you touch, and it is about the way in which you touch them.
+ - Your thought is the parent that gives birth to all things.
+ - The new spirituality will step away from dogma, will step away from ‘We’re right and you’re wrong.’
+ - If we win, someone else loses. But if someone else loses, we lose. Which is a point we’re not getting. The new spirituality will make this just painfully obvious.
+ - You are doing something very sacred here, something very daring, during your life upon the earth. You are defining yourself, and then creating yourself anew, in each golden moment of now.
+ - Lying about things large and small has become so accepted by so many that they even lie about lying.
+ - A great many people experience the movement from one century to the next, but a minuscule number of people experience the movement from one millennium to the next.
+ - All mysteries of human experience that are eliminated when we understand that we are a great deal more than our body and when you look very deeply at who and what the soul really is, who and what God really is.
+ - Everywhere religion has gone it has created disunity.
+ - Most people enter into relationships with an eye toward what they can get out of them, rather than what they can put into them.
+ - Do you want your life to truly take off? Then change your idea about it. About you. Think, speak and act as the God You Are.
+ - Look to see what you most desire in your life, then ride that feeling all the way to creation.
+ - There is not a day that goes by that does not include a conversation with God. There is not a day that goes by that does not contain signs. There are many days that go by on which we do not hear the conversation, do not see the signs. So stay awake.
+ - You cannot create a thing-not a thought, an object, an event-no experience of any kind-which is outside of God’s plan. For God’s plan is for you to create anything-everything-whatever you want.
+ - Life is bendable to our will more than we know. In fact, that’s the deal. If we don’t know that life bends to our will, it will not. So the trick is to know that life is on our side – and but awaits our command.
+ - Miracles seldom occur in the lives of those who do not consider them possible.
+ - Do not limit the shape and size in which your miracle can come. Sometimes the smallest keys turn the biggest locks.
+ - Ultimately, all thoughts are sponsored by love or fear. All thoughts, ideas, concepts, understandings, decisions, choices, and actions are based on these. And, in the end, there is really only one. Love. In truth, love is all there is.
+ - Now I will explain to you the ultimate mystery: your exact and true relationship to Me. You are my body. As your body is to your mind and soul, so, too, are you to My mind and soul. Therefore: Everything I experience, I experience through you.
+ - You can choose to be a person who has resulted simply from what has happened, or from what you’ve chosen to be and do about what has happened.
+ - A true Master does not “give up” something. A true Master simply sets it aside, as he would do with anything for which he no longer has any use.
+ - You can choose to live your lives as demonstrations of your highest and grandest beliefs, rather than as denials of them.
+ - Once you are ready to truly devote your days and times to what your soul came here to do, you will find your life unimaginably enriched.
+ - Belief creates behaviors.
+ - The beginning is God. The end is action. Action is God creating-or God experienced.
+ - When you find that your life is out of alignment with your grandest idea of yourself, seek to change it.
+ - A thing is only right or wrong because you say it is. A thing is not right or wrong intrinsically.
+ - Words are merely utterances: noises that stand for feelings, thoughts, and experience. They are symbols. Signs. Insignias. They are not Truth. They are not the real thing.
+ - I’ve come to believe that total nakedness, that is absolute transparency, that is utter and unfettered and profound visibility, is the only way that we can truly love. Anything less, is self-defense.
+ - It is the great sadness of our species that we have not found a way to eliminate the conflict and to eliminate violence as a device to resolve our conflicts throughout the entire history of the human race.
+ - You are free to announce and declare Who You Are in every moment of Now. Indeed, you are doing so, without even knowing it. You are not free, however, to declare who someone else is, or who they must be.
+ - And we’re seeing a higher level of consciousness and many more opportunities for people to challenge their present ways of thinking and move into a grander and larger experience of who they really are.
+ - In the quiet moments of your day, what do you think and do? When you are with your Self and no one else, how does life proceed for you? Who are you when you are alone? Self-creation is a Holy Experience. It is sacred. It is you, deciding Who You Are.
+ - Doing is a function of the body. Being is a function of the soul. The body is always doing something. Every minute of every day it’s up to something. It never stops, it never rests, it’s constantly doing something.
+ - If there is something you choose to experience in your life, do not “want” it-choose it.
+ - You can choose to be willing for a new understand of God and Life to now be brought forth, and understanding that could produce a new way of life on your planer.
+ - We make real that to which we pay attention. The Master knows this. The Master places himself at choice with regard to that which she chooses to make real.
+ - It’s a very small and select slice of all the people who have ever been born. I believe we’ve come back during this time, those of us who are here now, specifically to experience it. And to cause a ‘quickening of the spirit.’
+ - Perhaps the way to meet tomorrow’s challenges is not to use yesterday’s solutions, but to dare to think the previously unthinkable, to speak the previously unspeakable, and to try that which was previously out of the question.
+ - Life may more than once call upon you to prove Who You Are by demonstrating an aspect of Who You Are Not.
+ - The day you really want to end all hunger, there will be no more hunger.
+ - If you use God with awareness and with intention, all things will change.
+ - What you get to choose today is who you are and what you wish to experience in your life. Remember, not to decide is to decide.
+ - As we move into the 21st century, there’s what the Bible calls a ‘quickening of the spirit.’
+ - You cannot experience what you don’t know. And you don’t know you are in “heaven” right now because you have not experienced it.
+ - There can be no such thing as Superiority when We Are All One. A thing cannot be superior to itself. All things are One Thing, and there is nothing else. When you understand this, you begin experiencing life – and treating each other – in a new way.
+ - Yet never resist anything. If you think that by your resistance you will eliminate it, think again. You only plant it more firmly in place. Have I not told you all thought is creative?
+ - Truth is often uncomfortable. It is only comforting to those who do not wish to ignore it. Then, truth becomes not only comforting, but inspiring.
+ - To change your reality, simply stop thinking like that.
+ - Everything is “acceptable” in the sight of God, for how can God not accept that which is? To reject a thing is to deny that it exists.
+ - The new spirituality will also base itself on a third very large spiritual understanding, which is that life is eternal. Most religious people claim to believe that, but very few people actually live as if that were true.
+ - Beyond the Catholic exclusionary paradigm is a larger one which is the Christian one. Christians claim that if you don’t believe in Christ, you can’t get to heaven. Well that eliminates two thirds of the world’s population!
+ - The sad part about our past is that religions, ironically enough, are responsible for creating the most destructive idea that has ever been visited upon the human race: the idea that there is such a thing as ‘better.’
+ - If you’re ‘stuck’ right now, you’re probably into fear. Get out of there. You’ve already looked both ways. Now cross the street, for heaven sake. The cars have long since gone. The coast is clear. Your only obstacle now is your own mind.
+ - In this complex world, we all need God’s Divine wisdom and guidance more than we ever have before.
+ - And so I tell you this: be now and forever centered upon your Self. Look to see what you are being, doing, and having in any given moment, not what’s going on with another.
+ - All you see in your world is the outcome of your idea about it.
+ - The first problem, of course, is that we haven’t learned to love ourselves. That’s the first problem. We can only give to another what we have to give. And if we have no love over here, we can’t give it over there.
+ - Frustration is our announcement to ourselves that we need to move back into love in order to find our “center” once again.
+ - Your soul is Me, and it knows it. What it is doing, is trying to experience that. And what it is remembering is that the best way to have this experience is by not doing anything. There is nothing to do but to be.
+ - If you can tell the world who you are and what you believe without breaking stride or hesitating, you are happy with yourself.
+ - You are always and forever in the moment of pure creation. So create who and what you are, and then experience that.
+ - Life will only make sense; and can only produce long-term happiness, peace and joy when embraced from the perspective of the soul.
+ - God comes through all people, in the way that people experience themselves. The beautiful part about God is that God is trans-cultural, and tends to reveal himself through the experiential filters of all people to whom he is revealed.
+ - Tell the truth as soon as you know it.
+ - The soul is forever being. It is being what it is being, regardless of what the body is doing, not because of what it’s doing. If you think your life is about doingness, you do not understand what you are about.
+ - And every Master has likewise had the same message: What I am, you are. What I can do, you can do. These things, and more, shall you also do.
+ - I’m calling my book series the ‘with God series.’ And this next ‘with God’ book is Friendship with God, which comes out in November. This books challenges us to bring about the end of ‘better’ on this planet.
+ - In the true order of things one does not do something in order to be happy-one is happy and, hence, does something. One does not do some things in order to be compassionate, one is compassionate and, hence, acts in a certain way.
+ - Every tragedy of the human experience can be attributed to one human decision – the decision to withdraw from each other.
+ - Do not confuse excellence with perfection. The first is possible to achieve, the second is probably not.
+ - Because our choices are largely based on survival. But if life is eternal, life is not a question.
+ - Mastery is not measured by the number of terrible things you eliminate from your life, but by the number of times you eliminate calling them terrible.
+ - The greatest gift you can give a person is to wake them up to remind them of who the really are.
+ - I think that’s a result of just a general increase in speed of the vibration of life itself.
+ - It could seem like you are losing something right now, but do not be fooled. This is simply a turnaround orchestrated by your soul. Let it go. Release it. If it was not supposed to be removing itself from you now, it would not be doing so.
+ - The only way to find out what you know is to call upon yourself to know it.
+ - Is it your thought that I despise some of these, while I love the others? I tell you, I despise nothing. None of it is repulsive to Me. It is life, and life is the gift; the unspeakable treasure; the holy of holies.
+ - It’ll become obvious that we’ve really been working against ourselves.
+ - Your own life is the way it is because of you, and the choices you have made – or failed to make.
+ - We’ve seen in the last half century an incredible shift. This is just an extraordinary time to be alive.
+ - Virtually everything is dangerous if you are afraid.
+ - The biggest mistake we make in creating successful relationships is that we seek to experience who we are through others rather than allowing others to experience who they are through us.
+ - In this case, instead of thinking “I want success,” think “I have success.”
+ - You don’t have to do anything! If you enjoy life at this level, if you feel this is the ultimate for you, you can have this experience over and over and over again!
+ - The heart thinks of everything you can give, and the soul thinks of everything you are.
+ - Remember this always: The living of your own life writes the book of your most sacred truth, and offers evidence of it.
+ - The largest question facing the human race is not when will you learn, but when will you act on what you’ve already learned.
+ - Those who taught you were wrong. I have never set down a “right” or “wrong,” a “do” or a “don’t.” To do so would be to strip you completely of your greatest gift – the opportunity to do as you please.
+ - I grant you that frustration is a very mild form of fear, yet it is fear nonetheless.
+ - You are therefore in the process of experiencing yourself by creating yourself anew in every single moment. As am I. Through you.
+ - For centuries you have been taught that love-sponsored action arises out of the choice to be, do, and have whatever produces the highest good for another. Yet I tell you this: the highest choice is that which produces the highest good for you.
+ - Take an hour every day at dawn and give it to your Self. Meet your Self there, in the holy moment. Then go about your day. You will be a different person.
+ - The result of your not listening to your experience is that you keep re-living it, over and over again.
+ - The first question in any interactive process with another is: now Who Am I, and Who Do I Want to Be, in relationship to that?
+ - It graduates to ‘our state is better than your state,’ and ‘our nation is better than your nation.’ And it circles all the way around to where it started: ‘Our God is better than your God.’
+ - The world is starving for a new spiritual truth – a truth that works in sustaining life, not a truth that brings an end to life.
+ - What you have carried in your mind about the world is what you will see around the world. What you carry in your mind about your life is what you will see in your life.
+ - Many many people find themselves wondering in their 40s and 50s, is this all there is?
+ - Life is not about win-and-lose. Life is about being or not being, expressing or not expressing, who you are.
+ - You’ll find individuals agreeing on this, but when they get into collective societies and larger groups they find it difficult to achieve group agreement.
+ - All of your life you have been told that God created you. I come now to tell you this: You are creating God.
+ - The world is in the condition that it’s in because the world is full of sleepwalkers.
+ - Governments understand that help is power. That is why governments offer as much help to as many people as they can...
+ - Act only in Love. Make every moment of your life an outpouring of love.
+ - Every prayer – every thought, every statement, every feeling – is creative.
+ - Good health is not the absence of symptoms, it is the presence of peace.
+ - Whatever you wish to experience in your own lifetime, cause another to experience in theirs. What you bring to another, you bring to the Self, for there is no other in ultimate reality.
+ - Every man knows about a particular body part that often seems to have a mind of its own. And every woman knows how absurd men become when that is the body part they allow to influence their choices and decisions.
+ - Today the earth is populated with billions of people desperately hoping to “get somewhere,” but having no idea of where they’re going.
+ - There is perfection in the process-and all life arises out of choice.
+ - My child, everything in life is holy.
+ - It is not a question of whether you ‘have what it takes,’ but of whether you take the gifts you have – they are plenteous – and share them with all the world.
+ - As the new spirituality begins to become the pervasive spirituality of the planet, we’ll find that we have abandoned our philosophy of contradictions in which we say we’re all one but continue to try to win.
+ - And so you ask a very good question. Why go on? Why even start off on such a path? What is to be gained from embarking on such a journey? Where is the incentive? What is the reason? The reason is ridiculously simple. There is nothing else to do.
+ - The difficulty with humanity’s previous attempts at reinventing itself is that we’ve always started with behaviors rather than with beliefs.
+ - Humankind has not evolved in its most basic instincts much beyond the caveman era. Yet every attempt to change that is met with scorn.
+ - Don’t close off the possibility of new truth because you’ve been comfortable with an old one. Life be-gins at the end of your comfort zone.
+ - If you need to know in advance that everything will ‘work out’ before you jump in, you’ll never jump into anything.
+ - The first step is learning to monitor your thoughts; to think about what you are thinking about.
+ - I think that things happen individually first, and then collectively. It’s not the other way around.
+ - And so then, keep on growing, My son. Keep on becoming. And keep on deciding what you want to become in the next highest version of your Self. Keep on working toward that. Keep on! Keep on! This is God Work we’re up to, you and I. So keep on!
+ - No feeling you get from any exterior stimulation or source is anything like the total bliss of communion within.
+ - Somewhere along the way you will have to learn to just Trust Life.
+ - Your life is not about what you are doing. Yet, it is true that what you are doing is often a reflection of what your life is about.
+ - Yet I have said over and over again that there is no “right” or “wrong” in the universe. A thing is not intrinsically right or wrong. A thing simply is.
+ - The soul is that which beholds beauty even when the mind denies it.
+ - The new spirituality will bring about what I’m calling the ‘end of better.’ And that is in fact what is called for in the next of the series of books that I’ve been writing.
+ - Honor the tradition but expand the understanding. That’s what religions must do right now if they hope to be helpful to humans in the years ahead.
+ - The most difficult thing for people to do is hear their own soul.
+ - It is our job to continue imagining higher, and even higher, states of being – higher thoughts, word and deeds – in order that we might continue creating ourselves anew in the next grandest version of ourselves.
+ - If you are not careful, you will drown in your expectations.
+ - Whatever it is that you wish to experience more of in your life, be the source of it in the life of another.
+ - Life’s irony is that as soon as worldly goods and worldly success are of no concern to you, the way is open for them to flow to you.
+ - When you love another for who they are, whether they give you what you need or not, then you truly love them.
+ - They may not use the word better. But they certainly believe that they’ll go to heaven and Jews will not.
+ - The way to ‘get there’ is to ‘be there’
+ - What? You’re thinking for yourself? You’re deciding on your own? You’re applying your own yardsticks, your own judgments, your own values? Who do you think you are, anyway? And, indeed, that is precisely the question you are answering.
+ - You can choose to acknowledge that some of your old beliefs about God and about Life are no longer working.
+ - Believing that you cannot have something is the same thing as not desiring to have it, for it produces the same result.
+ - What you give, you become.
+ - First, we become aware of that which is Divine around us. Then we become aware of that which is Divine within us. Finally, we become aware that all is Divine, and that there is nothing else. This is the moment of our awakening.
+
+432 quotes

@@ -1,0 +1,32 @@
+ - I only surround myself with people who are intellectually stimulating.
+ - I don’t let it bother me too much if someone doesn’t like me. I just figure there’s no accounting for taste. It’s not me, it’s my acting. It’s like if someone doesn’t like someone’s food, they just don’t like my acting.
+ - I pray every night. I just talk to God and I can go to sleep. I don’t worry anymore.
+ - I was an international studies major.
+ - People look to you to replace a part in their lives that they can’t get back. You can’t get the past back, you can’t do it. We’ve all tried.
+ - It was more like having unwanted attention as a child – if you’d walk around, people would recognize you, and it would be in a weird, almost making-fun-type manner.
+ - My family and school life are important to me.
+ - I had no idea of the size of my bank account as a teen, and I didn’t care to know. That was my mom’s job, I figured that I would just find out when I turned 18. If you can’t trust your mom, then who can you trust?
+ - I really don’t like to do back-to-back movies. I concentrate on things at home. My family and school life are important to me. I try to do one movie a year.
+ - Kids are brought into show business because they are cute and see truth and they’re very bright. But there’s a sense of doing it because you want the adults to be approving of you. You want to make them happy.
+ - Kissing Macaulay Culkin was like kissing a brother. It was really no big deal.
+ - I’m interested in current affairs and social policy as a whole, but I don’t watch politics for sport.
+ - Some people are really good at their jobs, some people are really bad.
+ - Show business got really tainted for me.
+ - There were a lot of signs being thrown at me. A lot of angels I was meeting, inspiring me to get back into show business.
+ - People have good and bad days.
+ - Right now I’m just thinking about school and trying to get those grades and keep them up! In case I become a Norma Desmond when I grow up, I can have something to fall back on!
+ - Kids are truthful by nature.
+ - I don’t have a Twitter account.
+ - I guess it’s nice to know I still resonate in people’s minds.
+ - First, I was a fact checker for Zagat and then I was an editorial assistant for HarperCollins publishing house.
+ - It was easy for me to leave acting for school, because I wasn’t really in it as an adolescent for fulfilling reasons.
+ - You can ask any set decorator on any set where I’ve had to be in an office, I always kind of claim it – I put Post-its everywhere, and I kind of make it look lived-in.
+ - The big difference with the recognition is that when I go on an audition, I don’t feel like they’re testing my abilities as much as they’re just seeing if it’s a fit. So that’s nice.
+ - A lot of movies treat kids like idiots.
+ - I watched ‘My Girl’ as an adult pretty recently, and it’s a good movie.
+ - I’ve been poked fun of throughout my career by fellow actors for my notes that I take. I have spiral notebooks that I carry with me on every project I do, and I take notes just so that if I have to relive a scene, if I have to go back, I know what I did.
+ - Even on the worst days I am without a doubt still happier doing this than I am doing anything else. On acting.
+ - Supposedly I haven’t changed.
+ - When I graduated from college I thought I was over with show business and was pursuing other things.
+
+30 quotes

@@ -1,0 +1,34 @@
+ - Stay on your toes and always move forward.
+ - A setback only paves the way for a comeback.
+ - It is not the size of a man but the size of his heart that matters.
+ - If you quit every time things don’t go your way, then you’ll be quitting all through your life.
+ - A champion shows who he is by what he does.
+ - People who make the choice to study, work hard or do whatever they endeavor is to give it the max on themselves to reach to the top level. And you have the people who get envy and jealous, yet are not willing to put that work in, and they want to get the same praise.
+ - Pressure bursts pipes. I thank God for giving me peace of mind to overcome pressure. The difference between winning and losing is when pressure hits.
+ - Fighters find it hard to give up doing what they do best – fighting for a living.
+ - Odds are just the people opinion. Respect your own opinion.
+ - Deep down, I reckon the sweetest moment will come when it’s finally all over. When, at last, I know that I can stop fighting. Of course it’ll also be a little sad. The sweetest moments, y’know, always come with just a little sadness.
+ - He listens to his trainer real good. He just doesn’t listen to me. I still can’t get him to do nothing.
+ - The most important thing about being a father is being able to forgive yourself. If you don’t forgive yourself, you’re not going to forgive your kids, either.
+ - A sight game is that I am hurt, but I aim to make you believe I am not even hurt, and with this confidence appearing on my face, I don’t panic, otherwise your opponent will know that you are hurt. That’s the whole art game in boxing.
+ - The game’s been good to me and I hope I’ve been good to the game. I’m 50 years old and I’ve pretty much did everything that I wanted to do in boxing.
+ - When you have a sound mind, you can do what’s necessary.
+ - I’ve had a great life following my faith and my instincts.
+ - As far as working out, I know exactly what I’m doing.
+ - Sugar leaves you stranded; I make sure I have the proper amount of protein before I work out.
+ - I beat Larry Holmes and George Foreman. I whupped Mike Tyson twice. I had my ear chewed off and spat on the ground in front of me. I’ve seen everything it is possible to see in boxing. I know this business better than anyone. So I live and die by my own decisions.
+ - I got three whippings a day from my mama.
+ - I came up poor. My mother only had a fourth-grade education. My dad didn’t have any education at all. But they were very structured. They worked hard. You know, they didn’t complain. They didn’t murmur. And they believe in the Christ.
+ - My goal is to be the undisputed Heavyweight Champion of the World.
+ - Well, when I think of steroids I think of an image. You have the advantage over someone, which is a form of cheating. I guess it wouldn’t be right unless it was legal for everybody. Reason it’s not legal for everybody is because it can hurt people seriously.
+ - The word of God steadies me. He says your trials and tribulations make you who you are. So you can see my whole story in the way I endured and overcame some testing experiences.
+ - We lived in a real rough place but my mother kept me straight.
+ - When at a young age you learn to face your fears, that makes the difference between people being champions and people not being champions.
+ - Well, number one I like dancing. Number two I knew it would be challenging because I had never done this type of dance before. I always wanted to and I happened to have the courage to go out there and give it my best shot.
+ - Well, of course a boxing match is hard because boxing isn’t set for you to do good. You have to force your will upon someone, but dancing you don’t have to force your will. It should be a lot easier because if I make a mistake I don’t get hit.
+ - I have to have an adjustment before I go into the ring. I do believe in chiropractic. I found that going to a chiropractor three times a week helps my performance. The majority of boxers go to get that edge.
+ - No. I probably do better not being in politics. They have too much control over you when you are in politics.
+ - That’s the biggest problem with boxing in the United States. They do not promote it like they used to, when it used to be Howard Cosell and they showed it on ‘Wide World of Sports.’ Everybody knew all the fighters. Everybody was looking forward to the year when the Olympics came on.
+ - From what I hear is happening, young Indian boxers have started to do well on the world stage and started to gain the attention of the general audience.
+
+32 quotes

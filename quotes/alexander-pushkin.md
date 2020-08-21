@@ -1,0 +1,34 @@
+ - A deception that elevates us is dearer than a host of low truths.
+ - Fearing no insult, asking for no crown, receive with indifference both flattery and slander, and do not argue with a fool.
+ - If you but knew the flames that burn in me which I attempt to beat down with my reason.
+ - I want to understand you, I study your obscure language.
+ - Don’t be sad, don’t be angry, if life deceives you! Submit to your grief – your time for joy will come, believe me.
+ - With womankind, the less we love them, the easier they become to charm.
+ - Ballet is a dance executed by the human soul.
+ - My whole life has been pledged to this meeting with you...
+ - I’ve lived to bury my desires, And see my dreams corrode with rust; Now all that’s left are fruitless fires That burn my empty heart to dust.
+ - Ecstasy is a glass full of tea and a piece of sugar in the mouth.
+ - Better the illusions that exalt us than ten thousand truths.
+ - My dreams, my dreams! What has become of their sweetness? What indeed has become of my youth?
+ - Unrequited love is not an affront to man but raises him.
+ - As long as there is one heart on Earth where I still live, my memory will not die.
+ - Please, never despise the translator. He’s the mailman of human civilization.
+ - Try to be forgotten. Go live in the country. Stay in mourning for two years, then remarry, but choose somebody decent.
+ - It is better to have dreamed a thousand dreams that never were than never to have dreamed at all.
+ - The less we show our love to a woman, Or please her less, and neglect our duty, The more we trap and ruin her surely In the flattering toils of philandery.
+ - I was not born to amuse the Tsars.
+ - Two fixed ideas can no more exist together in the moral world than two bodies can occupy one and the same place in the physical world.
+ - In this, our age of infamy Man’s choice is but to be A tyrant, traitor, prisoner: No other choice has he.
+ - Thus people – so it seems to me – Become good friends from sheer ennui.
+ - It’s a lucky man, a very lucky man, who is committed to what he believes, who has stifled intellectual detachment and can relax in the luxury of his emotions – like a tipsy traveller resting for the night at wayside inn.
+ - I am married and happy. My only wish is that nothing will change.
+ - To love all ages yield surrender; But to the young it’s raptures bring A blessing bountiful and tender- As storms refresh the fields of spring.
+ - Tis time, my friend, ’tis time! For rest the heart is aching; Days follow days in flight, and every day is taking Fragments of being, while together you and I Make plans to live. Look, all is dust, and we shall die.
+ - Moral maxims are surprisingly useful on occasions when we can invent little else to justify our actions.
+ - Somewhere between obsession and compulsion is impulse.
+ - Write for pleasure and publish for money.
+ - I do not like Moscow life. You live here not as you want to live, but as old women want you to.
+ - A man who’s active and incisive can yet keep nail-care much in mind: why fight what’s known to be decisive? custom is despot of mankind.
+ - Mistress-like, its brilliance vain, highly capricious and inane...
+
+32 quotes

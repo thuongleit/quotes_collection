@@ -1,0 +1,111 @@
+ - You never know what life has in store for you, but I believe there are certain things one is meant to go through.
+ - One of the most beautiful things we can give our child is music education.
+ - You can put things off until tomorrow but tomorrow may never come.
+ - Love is a constant source of inspiration, surprise, and wonderment.
+ - We must feel the pain before the pleasure, only then can we tell them apart.
+ - As an entertainer, my job is to help people have fun.
+ - We seal our fate with the choices we make.
+ - Everything’s funny for God’s sake. Everything.
+ - There are so many beautiful things that are a part of the world, and Ive always looked at life that way; Ive always tried to put on a smile and a brave front, not just for my kids but in my own life and all the difficulties that Ive gone through.
+ - You don’t have to give up who you are to be successful just because you’re different.
+ - It’s important to me that the words that I put out there into the cosmos, into the universe, be empowering or somehow positive for people that hear them, or maybe be cathartic if someone is having a relationship that’s having a tough time.
+ - Love you all the time, ’cause when I close my eyes, I still can see your smile, it’s bright enough to light my life.
+ - I only used my whole life one perfume: and it’s Cartier’s Le Must.
+ - I spent my childhood alone, overweight and ugly, angry at everything, and knowing nothing of a life beyond this sadness.
+ - Whatever it is your heart desires, please go for it, it’s yours to have.
+ - I have great genes. Thank you to my mom and dad for that one.
+ - I stare to memorize your face, to kiss you in my mind, love you all the time.
+ - I’m very comfortable in my own skin now. I started just being myself more and more. For women, this happens as you get older. I loved my 40s – I thought they were fantastic. And I’m loving my 50s. I’m going to love everything because you’re either older or dead!
+ - I majored in Psychology in college. I was going to be a child psychologist.
+ - My guitar and singing was my way of crying.
+ - A woman’s exterior beauty is a reflection of her internal peace and happiness.
+ - I’ve got nine dogs, eight birds, turtles, fish and I had wallabies at one point.
+ - The reason I’m not more political is because I have music. And from a young age, I needed it. After prison, my father came to America, joined the Army, fought in Vietnam – and was exposed to Agent Orange. He died a slow, horrible death. Music was my escape.
+ - My daughter is almost a young lady. She’s going to be 10 years old in December and I want to be there day-in and day-out.
+ - I wanted to talk to very young kids about self-image and about being different and how that can be your strength, especially from the immigrant perspective.
+ - The responsibility of carrying and bringing a new life into this world is one that cannot be taken lightly.
+ - Family has always been the number one priority no matter what happens anywhere else.
+ - I hold ‘Mi Tierra,’ my first Spanish-language album, very close to me because that was all done in my native tongue and won me my first Grammy.
+ - Of course in Miami, not denouncing Fidel Castro at every turn is almost as bad as saying Gloria Estefan can’t sing.
+ - We kiss and hug our kids a lot! And even now when our son lives 3,000 miles away, we talk every day, sometimes several times.
+ - I’m careful what I put out there into the universe, musically. I don’t take it lightly.
+ - Music has been one of the most beautiful things in my life and will always be a very big part of who I am and what I do.
+ - I was going to be a doctor, but I think my music allowed me to help more people than I could have done one-on-one as a psychologist. Just like other people’s music really helped me.
+ - My mom was an amazing singer and music was a big part of my life, so I grew up listening to Nat King Cole, Johnny Mathis, Henry Mancini; I used to watch ‘The Andy Williams Show’ on TV. I was very musical, so I was watching stuff that most kids my age wouldn’t be interested in.
+ - There is nothing better than humor to keep a marriage going.
+ - My inspirations include the Beatles – love, love, love them – Elton John, Carole King, and Stevie Wonder.
+ - The sad truth is that opportunity doesn’t knock twice.
+ - We seal our fate with the choices we take, but don’t give a second thought to the chances we take.
+ - When I was a teenager, I was fat. I was shy. I wore glasses. I had a big eyebrow and hair all over my body. They were years of torture.
+ - You’ve got to believe. Never be afraid to dream.
+ - Toys are not a need people typically think of, but they’ve got all these kids who have absolutely nothing to do.
+ - Everything that an artist does is a risk. Some people want you to stay the same. If you want to evolve, they want to keep you in a certain place.
+ - I love Gershwin. I love musicals.
+ - I was a straight-A student, baby!
+ - Having felt people’s love and support first hand through difficult moments in my life makes me feel it’s our responsibility to help one another.
+ - I’m in great shape considering I have hardware in my back. I work out constantly to keep my muscles limber and my abs strong so they can take the burnt of everything.
+ - Sometimes parents, when they have a lot of small children, it’s hard because your time’s got to get divvied up. There’s no other way.
+ - Performing is one of the best feelings I know!
+ - I wouldn’t recommend working with your partner for everyone, because it’s tough. There’s got to be a really keen balance. You’ve got to know when to stop being the manager and become the husband. I can’t go home and complain to my husband about my manager.
+ - It’s a universal story, it’s an immigrant story, and it’s a love story. In the United States, if you believe in yourself and you’re determined and persevere, you’re going to succeed.
+ - My grandmother would shanghai pilots at the Havana airport so they’d bring me cartons of mango baby food – the only kind I’d eat. I learned to eat peach later. And in every carton, she’d slip in a Cuban record.
+ - My favorite process is writing, from day one. The songs I have written throughout the years were a real great opportunity for me to communicate, because I think tha’ts my prime objective on this planet.
+ - My son traveled the world with me on every tour. He wasn’t a lover of school, so it was easy with him. I had a tutor on the road, keep him at the same level, so when he’d pop back home he’d go right back in.
+ - We protect aspirin bottles in this country better than we protect guns from accidents by children.
+ - My mother had a beautiful, soothing voice that made me melt.
+ - It’s crucial with today’s challenges that our children feel they have a source of information they can trust in their parents.
+ - There are so many difficult things we’re living through in the world today, so many horrible events, but we cannot let them stop us. No matter what happens, I feel you must move forward with optimism and not get totally sideswiped.
+ - I don’t want anything from Cuba. I want them to be free and enjoy the things I enjoy.
+ - My mum had a very strong moral code, which I kind of came with. I never really had to be told what was right or wrong – I knew. I was very mature from early on and I was a very good girl, so she never had any trouble with me.
+ - It’s not so much for me where you come from, who you are, what race you are. We’re just human beings that are still a work in progress and there’s a lot that we’ve got to overcome, so that we can all be equal.
+ - There’s some people that are 24 hours with the baby and it doesn’t make a difference. They could be anywhere.
+ - How can we expect something positive to come from all the negative that we put into this world?
+ - I think it’s important to have a happy parent.
+ - I think that the only way to teach is by example, as children will more easily follow what they see you do than what you tell them to do.
+ - If you’re trying to do what’s popular now, you’re way behind already. By the time you record it and do it and try to copy it, it’s moved on.
+ - There are certain realities we must speak of with our children that were not present when I was a child.
+ - I bit down three nails rooting for the Heat.
+ - Later in life, the memories I have of my mother are of constant work balanced with caring for my ailing father.
+ - I make the best pancakes you’ll ever have! And I claim that title gladly. On Saturdays I make them for everybody.
+ - For I’ve finally realized, that I could be infinitely better than before, definitely stronger. I’ll face whatever comes my way, I’ll savor each moment of the day, Love as many people as I can along the way. Help someone who’s given up, even if it’s just to raise my eyes and pray.
+ - It’s very tough for a woman in the music business, and he really was such a motivator from the beginning, when I was super-shy, and he saw a lot in me on a personal level that he knew could carry through on the stage.
+ - You want your fans to like what you do, because it’s coming from your heart and soul. You write it, you produce this thing. It’s like your baby.
+ - I’ve been offered a lot of things that celebrities do that I wouldn’t do, like perfumes, lines of clothing and this, that and the other.
+ - Well first of all, I’m a singer. I sing since I talk. So the great ballad singers, the people that sang with so much feeling, jazz, blues, all those singers, they were songs that I listened to, records that my mom played for me, and then later I bought.
+ - I have had a life in which I have had to face every big fear, and it has not been pleasant.
+ - I’ve sung since I talked, when I’m two, but what I sang was ballads, because it’s very hard to do a dance track with your little acoustic guitar when you’re a kid.
+ - I’ve bought more music for my Ipod in one year than I bought in the last ten years of my life.
+ - What’s the point if you make something that’s not you, and you’re successful? You have to perform it the rest of your life.
+ - I voted, always vote. It’s very important to me. My kids, I take them with me since they were little, so they realize it’s a responsibility.
+ - I think the business of music has really taken a huge hit. There’s no doubt about it. But an artist is always going to produce their art, their music. They’re going to paint, they’re going to write.
+ - My mom was definitely very strict with me.
+ - The library takes me away from my everyday life and allows me to see other places and learn to understand other people unlike myself.
+ - Neither. I did not bring my crown, and the last thing I would want to do is get into politics.
+ - I’m a writer and this is what I love to do.
+ - I’m happy and I have a great life.
+ - I’m very excited about this wonderful opportunity to take part in the evolution of a company that is integral to the Hispanic community and a powerful force in all areas of the media.
+ - Once you know the Romance languages, singing in those languages is so sexy and sensual. I do have a global audience, so why not?
+ - There’s no reason that just because you’re a celebrity you can’t write.
+ - Because it’s one thing when you – oh, I love this tune. But then when you go to sing it, it’s got to have something really personal. Then down to 25, and then to pick the final ones I just picked the ones that were more personal, that had something to do with my life.
+ - Make sure everything you do you really like, because you have to sing it the rest of your life.
+ - In Europe there’s the upper crust, and these are long, historically families and social systems that have certain established rules that’s harder to break into.
+ - I have a very open line of communication with both my children.
+ - A parent that’s upset or resentful is not going to be a great paren.
+ - I left Cuba when I was two years old. They took away my country, they stole the most intimate thing a human being can have. How could I forget that Fidel Castro was the person who did me so much harm?
+ - Wherever there’s a human being there’s going to be somebody that tries to hold you back.
+ - I spent 15 years on the road between touring and recording and I never saw anything. I want to enjoy life.
+ - The most beautiful thing about music is that it transcends most anything.
+ - I wrote poetry, which got me into lyrics. Stevie Wonder, Carole King, Elton John pulled me into pop. I started singing with a band – just for fun – when I was 17. And pretty soon, I was thinking I could sing pop in English as well as Spanish.
+ - As an artist, you dream about accumulating enough successful music to someday do just one greatest-hits album, but to reach the point where you’re releasing your second collection of hits is beyond belief.
+ - Sometimes my mother had difficulty communicating with me about certain topics.
+ - Being Latin parents makes us extremely expressive with our affections.
+ - This blend of musicians on ‘90 Millas’ is historically significant on a number of levels. This is the first and quite possibly the last time that all of these legendary artists will play together on one CD.
+ - Everybody’s not as fortunate as I’ve been that can have their hubby with them on the road, that we can do whatever we want and mainly be honest with the kids. Just the time that you do give them, make it be great time. It doesn’t have to be hours.
+ - To know that everything we say and do to this new little human being may have a profound effect on him or her is a daunting obligation.
+ - A lot of the way I sing is playing off other musicians. It’s what I love to do the most.
+ - She’s an amazing dog and really inspired everything that’s in this book.
+ - Music is almost mystical to me. It really has an incredibly powerful force.
+ - The challenge is always as a writer, is this going to work, because it’s a very intimate process, and I tend to be very introverted and insular, and when I write, it’s in my head.
+ - When I write a song it’s always from the point of view: makes the song the best it can be.
+
+109 quotes

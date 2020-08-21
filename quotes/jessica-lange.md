@@ -1,0 +1,80 @@
+ - I regret those times when I’ve chosen the dark side. I’ve wasted enough time not being happy.
+ - Acceptance and tolerance and forgiveness, those are life-altering lessons.
+ - Everything is transient. Everything is constantly changing. The only thing we have is now.
+ - Moments of pure happiness come upon you unexpectedly. Don’t be too preoccupied to experience them.
+ - I want to live my life with no goals anymore, but just completely free, like I did when I was younger.
+ - The natural state of motherhood is unselfishness. When you become a mother, you are no longer the center of your own universe. You relinquish that position to your children.
+ - Don’t be absent from your own life.
+ - When you learn not to want things so badly, life comes to you.
+ - The worst is when I talk myself into something. Sometimes you take things because you want to work with a certain actor, or you want to work with a director, even if the script or the part’s not that great.
+ - It comes down to something really simple: Can I visualize myself playing those scenes? If that happens, then I know that I will probably end up doing it.
+ - Be present. I would encourage you with all my heart just to be present. Be present and open to the moment that is unfolding before you. Because, ultimately, your life is made up of moments. So don’t miss them by being lost in the past or anticipating the future.
+ - I’ve got nothing left to lose at this point. The work I’ve done is out there.
+ - There can be no better measure of our governance than the way we treat our children, and no greater failing on our part than to allow them to be subjected to violence, abuse or exploitation.
+ - I have a life that’s just been a well of loneliness.
+ - It is an embarrassing time to be an American. It really is. It’s humiliating.
+ - I had a big family – two older sisters and a younger brother. My family was like moving around a lot so I lived in a lot of small towns. My father was very restless.
+ - American Horror Story re-energized me; it re-energized my career. There’s no shame in recognizing that. It’s exposed me to a whole new generation, which is a little strange. I’m not used to young people thinking I’m cool.
+ - If Ive got a clean pair of jeans and a T-shirt, thats usually a good day for me.
+ - At a certain age, death becomes familiar to you-or a loss becomes familiar-the tragedies that are more commonplace in life.
+ - What I love about photography, and it’s the same thing I love about acting, really, is that it forces you, like, right into the moment, where you can’t be distracted, where you can’t be, like, thinking about other things or ahead of yourself or behind yourself.
+ - So much of my sense of who I am is tied to mothering. When they left home, I fell into a huge, empty, black hole. Your children are grown and your career has slowed down – all the stuff that took up so much attention is gone, and you’re left with expansive time and space.
+ - This idea of selfishness as a virtue, as opposed to generosity: That, to me, is unnatural.
+ - I’ve been thinking a lot about next year, which will be the first time in 25 years that I don’t have a child at home.
+ - I love being a mother. I loved being a daughter, a sister, a wife. I love being a woman with men. I love having given birth.
+ - I love men. I’ve always been drawn to poets, artists, and madmen. Sometimes all three in one.
+ - In families there is always the mythology. My father died when my kids were quite young still, and yet they still tell his stories. That is how a person lives on.
+ - I worked on my voice for Sweet Dreams, but only to match my speaking voice to Patsy’s actual singing voice. That was my way into that character.
+ - The thing with psychoanalysis is I know basically what happened in my childhood. I know where things went wrong and I know what my mother said at one point and what my father said at one point...
+ - Families survive, one way or another. You have a tie, a connection that exists long after death, through many lifetimes.
+ - Sometimes the odds are against you-the director doesn’t know what the hell he’s doing, or something falls apart in the production, or you’re working with an actor who’s just unbearable.
+ - For me, acting was always a way to explore emotions – to dip into the well and really try to reach rock bottom down there. That was the most exciting part of it. I hadn’t found anything that really allowed me to do that until I came upon acting.
+ - I never think of the future. I never imagine what comes next.
+ - The only place I’ve felt was really my home is my cabin up north. There’s something in the water there that connects me to that place. There’s also this sense of isolation and loneliness about it that I’ve never been able to shake.
+ - I am tortured when I am away from my family, from my children. I am horribly guilt-ridden.
+ - There was that feminist myth that we can do everything. I don’t think you can.
+ - My one big regret was that there were no scenes that I could play with Eva Marie Saint. I hounded them. I said figure out some way, I just want to play a scene with this woman. But there was no way to make it work.
+ - It’s easy to judge, to think we know for certain the right thing to do. Sometimes, it just isn’t so clear.
+ - Yes, and you should question your government.
+ - I’ve never been a sunny personality. I’ve never been outgoing. I’m a solitary person.
+ - If I didn’t have children I’d be a much better actress. I wouldn’t be so distracted. I could pour 100 percent of my energies into it, to promote the investigation which acting is.
+ - Because Shakespeare’s language is so expansive, we’re under this misconception that it’s difficult. But I discovered that it’s easy because it’s so brilliantly written. The words are perfect, and the language is intelligent and very emotional.
+ - TV is sort of the only way to go for an actress my age to make a decent salary; with independent films, you just can’t.
+ - For me, nothing has ever taken precedence over being a mother and having a family and a home.
+ - There’s something magical still about it when I get in a darkroom, and you’ve shot a roll of film and you develop it and you look at your negatives, and there’s, like, imagery there. That always stuns me.
+ - Successful model? That’s a myth. The year I modeled was the most painful year of my life. Editors would always talk to you in the third person as though you were merely a piece of merchandise.
+ - There are no explanations, there are no answers.
+ - To stay interested in acting, I have to keep trying stuff I’ve never done before.
+ - I had never done Shakespeare before, but I don’t think you can be an actor and not do it. There were moments when I thought, I’m just not going to be able to pull this off.
+ - It took Sydney Pollack a long time to get me to do Tootsie. I asked myself if I wanted to play some frothy, ditzy character after I had just done Frances. Obviously, I’m thrilled that I did.
+ - I never just slide through anything. I explore everything to the fullest, whether good or bad.
+ - When I am home for like a two-year stretch, I get antsy, because I want to work.
+ - I never felt like I belonged in Minnesota when I was growing up there. That’s why I was out the door as soon as I turned 18.
+ - I’ve worked with some teachers and coaches over the years, but I didn’t really study theater or technique or voice or any of that stuff extensively.
+ - I have always followed the most passionate course.
+ - I do love acting. But to work as a photojournalist would have been extraordinary.
+ - Sometimes parts just come along when it’s the perfect time for you to do them.
+ - I have been a waitress, and I was a damn fine waitress too, let me tell you.
+ - I take a jazz class and I also take just a regular exercise class with a man who gives me acupressure treatments. It’s just stretching and elongating the muscles.
+ - If I had to start over, I’d pursue photography – probably to the exclusion of acting.
+ - Box office success has never meant anything. I couldn’t get a film made if I paid for it myself. So I’m not ‘box office’ and never have been, and that’s never entered into my kind of mind set.
+ - To work with a director that has emotional commitment and passion toward the characters, and the piece, and the experiences, it only enriches your work.
+ - All through life I’ve harbored anger rather than expressed it at the moment.
+ - I like playing characters who are out there on the edge, where they can explode at any moment or fall off the precipice.
+ - One of the things I love about acting is that it reveals a certain something about yourself, but it doesn’t reveal your own personal story.
+ - I never shot on sets, but if I was traveling somewhere or on location, I would always have my camera, and I’d always be – it’s that kind of fly on the wall approach to photography, though. I don’t engage the subject. I like to sneak around, skulk about in the dark.
+ - As an actor, you have to have trust and believe that somebody is taking care of you or watching your back. With a part like this, especially with where we’re going with it, I can’t pull any punches. I can’t do it halfway, especially when you’re dealing with madness and this descent into madness.
+ - There was a period of time when I was very political, when I was at the university. It was like the late ’60s, early ’70s and I was a dissident like everybody else I guess. Now I follow it but there’s nothing that really grabs me. The most fascinating thing to me right now is China.
+ - To my mind the election was stolen by George Bush and we have been suffering ever since under this man’s leadership.
+ - It was easier to do Shakespeare than a lot of modern movie scripts that are so poorly written.
+ - Allow the diversity to exist. There is nothing wrong with it. Hell, we put up with the religious right-we can put up with transgendered human beings.
+ - Once I started on ‘Frances’ I discovered it was literally a bottomless well. It devastated me to maintain that for eighteen weeks, to be immersed in this state of rage for twelve to eighteen hours a day. It spilled all over, into other areas of my life.
+ - I like to work in costumes, makeup, and hair that allow me tremendous freedom.
+ - Digital doesn’t interest me. It’s too many steps removed from the actual tactile thing. I still read books. I don’t read online.
+ - To work on the actual location I think is great. This thing of going to Canada and pretending you’re in New York, it’s terrible.
+ - When you think about it there’s never really been a realistic exposition of Hollywood, I mean – from the inside – showing Hollywood what it can do, what it has done, to people.
+ - I have made decisions based from purely an actor’s point of view.
+ - Photography was a blessing because it filled my time.
+ - At certain times you really feel as though you have to do something.
+
+78 quotes

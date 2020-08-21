@@ -1,0 +1,32 @@
+ - I will cause a boy who drives a plow to know more of the scriptures than the pope.
+ - In the beginning God created heaven and earth.
+ - God’s goodness is the root of all goodness; and our goodness, if we have any, springs out of His goodness.
+ - The Church is the one institution that exists for those outside it.
+ - I perceived how that it was impossible to establish the lay people in any truth except the Scripture were plainly laid before their eyes in their mother tongue.
+ - The Law and the Gospel are two keys. The Law is the key that shutteth up all men under condemnation, and the Gospel is the key which opens the door and lets them out.
+ - There is no work better than to please God; to pour water, to wash dishes, to be a cobbler, or an apostle, all are one; to wash dishes and to preach are all one, as touching the deed, to please God.
+ - I call God to record against the day we shall appear before our Lord Jesus, that I never altered one syllable of God’s Word against my conscience, nor would do this day, if all that is in earth, whether it be honor, pleasure, or riches, might be given me.
+ - The Scriptures sprang out of God.
+ - Christ is with us until the world’s end. Let his little flock be bold therefore.
+ - For if God be on our side, what matter maketh it who be against us, be they bishops, cardinals, popes, or whatsoever names they will?
+ - To have a faith, therefore, or a trust in anything, where God hath not promised, is plain idolatry, and a worshipping of thine own imagination instead of God.
+ - For we love not God first, to compel him to love again; but he loved us first, and gave his Son for us, that we might see love and love again, saith St John in his first epistle.
+ - My overcoat is worn out my shirts also are worn out. And I ask to be allowed to have a lamp in the evening it is indeed wearisome sitting alone in the dark.
+ - To see how Christ was prophesied and described therein, consider and mark, how that the kid or lamb must be with out spot or blemish; and so was Christ only of all mankind, in the sight of God and of his law.
+ - I know divers, and divers men know me, which love me as I do them: yet if I should pray them, when I meet them in the street openly, they would abhor me; but if I pray them where they be appointed to meet me secretly, they will hear me and accept my request.
+ - Here is also to be noted, that the cause of the institution was to be a memorial, to testify that Christ’s body was given, and his blood shed for us.
+ - Marriage was ordained for a remedy and to increase the world and for the man to help the woman and the woman the man, with all love and kindness.
+ - The morality of clean blood ought to be one of the first lessons taught us by our pastors and teachers. The physical is the substratum of the spiritual; and this fact ought to give to the food we eat, and the air we breathe, a transcendent significance.
+ - Many things there be in the scripture, which have a carnal fulfilling, even there where they be spoken or done; and yet have another spiritual signification, to be fulfilled long after in Christ and his kingdom, and yet never known till the thing be done.
+ - Do you know who taught the eagles to find their prey? Well, that same God teaches His hungry children to find their Father in His Word.
+ - No more doth it hurt to say that the body and blood are not in the sacrament.
+ - All that I do and suffer is but the way to the reward, and not the deserving thereof.
+ - Christ made the bread the sacrament of his body only: wherefore as the bread is no similitude of his blood, so am I not bound or ought to affirm, that his blood is there present.
+ - We do not wish to abolish teaching and to make every man his own master, but if the curates will not teach the gospel, the layman must have the Scripture, and read it for himself, taking God for his teacher.
+ - It is impossible to preach Christ, except thou preach against antichrist.
+ - And as the circumcised in the flesh, and not in the heart, have no part in God’s good promises; even so they that be baptized in the flesh, and not in heart, have no part in Christ’s blood.
+ - In the old covenants the people were sprinkled with blood of calves without, in their bodies, to bind them to keep the law; else we were bound to just damnation, for the breaking of it.
+ - Be cold, sober, wise, circumspect. Keep yourself low by the ground avoiding high questions. Expound the Law truly and open the veil of Moses to condemn all flesh and prove all men sinners, and set at broach the mercy of our Lord Jesus, and let wounded consciences drink of Him.
+ - Neither was there any heresy, or diversity of opinion, or disputing about the matter, till the pope had gathered a council to confirm this transubstantiation: wherefore it is most likely that this opinion came up by them of latter days.
+
+30 quotes

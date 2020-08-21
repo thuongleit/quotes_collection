@@ -1,0 +1,44 @@
+ - NLP is an attitude and a methodology, not the trail of techniques it leaves behind.
+ - You are born with only two fears: fear of falling and fear of loud noise. All the rest is learned. And it’s a lot of work!
+ - There are no failures – only feedback.
+ - The trick is: you have to feel good for no reason.
+ - Since most problems are created by our imagination and are thus imaginary, all we need are imaginary solutions.
+ - The truth is, people don’t stay the same. People either get better or they get worse.
+ - Remember, it’s your own body, your own brain. You’re not a victim of the universe, you are the universe.
+ - How much pleasure can you stand?
+ - I don’t think that understanding produces change. Learning produces change.
+ - If it’s worth feeling bad about, it’s worthy of amnesia.
+ - Freedom is everything and Love is all the rest.
+ - Brains aren’t designed to get results; they go in directions. If you know how the brain works you can set your own directions. If you don’t, then someone else will.
+ - If you can’t enjoy what you have, you can’t enjoy more of it.
+ - The meaning of a communication is the result you get.
+ - You can stop anything but a person with a good attitude.
+ - Disappointment requires adequate planning.
+ - The best thing about the past is that it’s over. The best thing about the future is that it’s yet to come. The best thing about the present is that it’s here now.
+ - Learning is about looking at things differently, making your life a little better everyday.
+ - The easier you can make it inside your head, the easier it will make things outside your head.
+ - We should all rehearse and practise the positives in our life, rather than doing what so many people do.
+ - Memories are like holograms: you recreate in your head the whole image of something which isn’t there.
+ - People wait for something to happen in order to be happy; the key is to be happy regardless.
+ - Don’t re-open old wounds in order to examine their origins. Leave them healed.
+ - You can’t change people by removing something. You must create a void and then fill it...
+ - Understanding why something happened does not help to reduce the problem.
+ - The currency of living is how you spend the moments of your life.
+ - Optimism, that is healthy in its application, will inevitably result in better physical and emotional health.
+ - Evolution isn’t over. We are the experience that the universe is having.
+ - The fact is that there is nothing wrong with most of us that a good, clean change of attitude and some new skills wouldn’t fix.
+ - People always tell me with absolute certainty that they don’t trust themselves.
+ - Most people plan by disaster. They think of what can go wrong and then they master it.
+ - The reason people have problems is that they have too much time to think.
+ - It’s an attitude that has to do with curiosity, with wanting to know about things, wanting to be able to influence things, and wanting to be able to influence them in a way that’s worthwhile.
+ - The greatest personal limitation is to be found not in the things you want to do and can’t, but in the things you’ve never considered doing.
+ - Brains aren’t designed to get results. They go in DIRECTIONS.
+ - Physics changes, but reality stays the same.
+ - There are all kinds of things we can do in this world to make it a better place but we must start with ourselves.
+ - We take the very best of what people do, synthesise it down, make it learnable and share it with each other – and that is what the real future of what NLP will be and its gonna stay that way!
+ - The worst drug of all is seriousness versus humor and pleasure!
+ - We need to learn to treat our own brain better – understanding how it works will help us do that.
+ - Kate Benson is an expert in applying NLP in the education sector. She is thoroughly organised, highly skilled and the love for what she teaches comes across in her presentations. I guarantee you will have a thoroughly enjoyable experience.
+ - Do you want to know the easiest way to fall in love? Just associate with all your pleasant experiences of someone, and disassociate from all the unpleasant ones.
+
+42 quotes

@@ -1,0 +1,25 @@
+ - It’s amazing how far you’re willing to go when someone believes in you.
+ - Life is too short to waste time on people who don’t lift you up, who don’t inspire you-they’ll eventually drain you.
+ - You need to be able to fill that space on your own, Maddie. You should never have to rely on another person to make you feel whole. That life is dangerous.
+ - But pain’s like water. It finds a way to push through any seal. There’s no way to stop it. Sometimes you have to let yourself sink inside of it before you can learn how to swim to the surface.
+ - I was starting to think, maybe you need to feel your way more through life – just turn off the lights and follow your senses, even if you stumble once in a while. Maybe that’s what falling in love is like. Just feeling your way through the darkness until you find something solid to hold on to.
+ - Besides, there are no secrets. Sooner or later the truth leaks out. That’s one thing I’ve learned in this life.
+ - Maybe he’s normal and we’re the crazy ones. Maybe everyone should talk to themselves. Maybe we’re all just afraid of what we’d say.
+ - Because if you’re lucky enough to have people in your life that make you happy, that inspire you, that move you, you need to devour each moment you have together because you never know how many of those moments you have left. These people are sacred.
+ - Come on, life passes you by when you stand around talking about it.
+ - What do you say when you’re not enough to make someone stay?
+ - Life should be a risk. It’s more than a straight line that you can see clearly from one point to the other. It dips and curves and you never know what’s around the bend sometimes until you get there. That scares a lot of people. But that’s the beauty of it.
+ - Hope and courage and risk dwell inside of us on an uncharted island and if we learn to look for it and tap into it, our possibilities are endless.
+ - No amount of power is worth having when it means hurting the people you love.
+ - Maybe it’s not the doors that open in our lives, but the doors that close that define us. That guide us. Because they force us to move on. Instead of thinking about what we lose, look at what we can gain.
+ - My bookshelf was my favorite part of my room. It had a calming presence. Maybe there was something to be said about the feeling and presence of real books.
+ - What do you say when you’re not enough to make someone stay? What do you do when you meet the love of your life and realize it’s all about timing? How do you accept that no matter how perfect you are for each other, circumstances get in the way? How do you compete with that kind of fate?
+ - I crave space. It charges my batteries. It helps me breathe. Being around people can be so exhausting, because most of them love to take and barely know how to give. Except for a rare few.
+ - Thoughts are circular, they don’t take you anywhere. They don’t have feet-they can’t gain any ground. They can trap you if you don’t eventually stand up and make a move.
+ - It’s not convenience that bothers me, it’s people’s obsession with saving time. Everything’s a race. I just don’t get who or what we’re constantly racing against.
+ - When you get too excited about the possibilities, you don’t stop to consider the consequences. Just when you get too cocky, life has a way of putting you in your place.
+ - You can’t stop people from being human. We’re creative, we’re social. People are like water. If you try to contain them, they find a way to break free.
+ - If you only focus on the things you leave behind, you’ll never go anywhere.
+ - She explained sometimes the story is supposed to be missing because it’s still waiting to be written.
+
+23 quotes

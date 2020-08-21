@@ -1,0 +1,34 @@
+ - There is a wonderful intelligence to the unconscious. It’s always smarter than we are.
+ - Storytelling is an ancient and honorable act. An essential role to play in the community or tribe. It’s one that I embrace wholeheartedly and have been fortunate enough to be rewarded for.
+ - If you dedicate your attention to discipline in your life you become smarter.
+ - Boys like it when you talk to them as if they were grown men – at least he always did when he was a kid – because they pretend that’s what they are anyhow, grown-up men, and they do it for their entire lives.
+ - Luck can’t last a lifetime unless you die young.
+ - Let the truth take care of itself, I decided. It’s done all right on its own so far.
+ - We are the planet, fully as much as water, earth, fire and air are the planet, and if the planet survives, it will only be through heroism. Not occasional heroism, a remarkable instance of it here and there, but constant heroism, systematic heroism, heroism as governing principle.
+ - Nobody does anything for one reason.
+ - No, because I am not a ventriloquist.
+ - First of all it’s usually women who run these higher primate sanctuaries, rarely men. They are white. They come from privileged backgrounds. They are educated.
+ - The best thing about writing programs is that it rationalized the apprenticeship of a writer.
+ - We know that people we love are both good and bad, but we expect strangers to be one or the other.
+ - The United States particularly abandoned Liberia after the end of the Cold War.
+ - It’s hard to know more about a person’s life than what that person wants you to know.
+ - One of the things I have tried to do with this book and with all of them really is avoid that simple, easy, reductionist view of motivation and to show we do things for a complex net of reasons, a real braid of reasons.
+ - Public libraries are the sole community centers left in America. The degree to which a branch of the local library is connected to the larger culture is a reflection of the degree to which the community itself is connected to the larger culture.
+ - Chimpanzees are endangered. Severely.
+ - It’s hard to spend years at a time working in total solitude with no reality-check.
+ - And there are people who want to be writers because they love to write. And they care.
+ - A couple of years I taught in graduate programs at NYU and Columbia, in the early eighties.
+ - Much more than memoir; it’s history.
+ - But really, it was reading that led me to writing. And in particular, reading the American classics like Twain who taught me at an early age that ordinary lives of ordinary people can be made into high art.
+ - Our sins describe us, and our prohibitions describe our sins.
+ - John Brown first swam into my vision in the 1960s when I was a political activist in the civil rights movement and the anti-war movement at Chapel Hill, where I went to university.
+ - Motivations are too tangled and complex.
+ - And out of a desire essentially to imitate what I was reading, I began to write, like a clever monkey.
+ - One hates a person for the same reason one loves him.
+ - Choose your agent as carefully as you would choose your accountant or lawyer. Or dentist.
+ - Although I still occasionally paint and draw, my life has now been shaped by my writing.
+ - But on the other hand, I don’t actively seek out stories or hunt them down.
+ - The 60s passed and faded and I grew older, and in 1987 bought a house in upstate New York, and it turned out that John Brown was buried down the road from my house and that he had lived there longer than anywhere else and his house was still standing.
+ - What I am finding now is that my audience is getting younger as I get older, which is a very good thing as you know – you don’t want them to get older as you get older.
+
+32 quotes

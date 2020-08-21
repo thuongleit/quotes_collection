@@ -1,0 +1,27 @@
+ - Find a space where you can be creative and a place where you are open for free thinking, you want to enjoy what you are doing and do what you are best at.
+ - Entrepreneur is someone who has a vision for something and a want to create.
+ - Good products are built by people who want to use it themselves.
+ - I never spent much time with people my own age.
+ - Tumblr gets better faster with more resources to draw from.
+ - Every feature has some maintenance cost, and having fewer features lets us focus on the ones we care about and make sure they work very well.
+ - The more people we have on our team. the less room there is in the elevator and the more complicated everything gets.
+ - Reading for me will be a combination of books, magazines, Tumblr, and just kind of the Web in general on the iPad.
+ - Where I feel the most productive and engaged is when I’m buried in code, buried in some project, tweaking some designs. I’m certainly introverted.
+ - Tumblr was simply a tool for anyone to make a blog like mine.
+ - I’ve found that if you’re not responsive to e-mail, it trains people to leave you alone.
+ - We couldn’t be happier with our Storyboard team’s effort.
+ - The biggest lesson has been the importance of constantly repeating the mission. It means bringing the team together every week to talk about all of our projects, progress, and vision.
+ - For every new feature we add, we take an old one out. A lot of big sites don’t do that, and it’s a problem. Twitter started as a beautifully simple product, but it’s now going the same route as Facebook. The drive to innovate can overencumber and destroy a product.
+ - You guys are more talented than anyone in the Tumblr office or in Palo Alto or Sunnyvale. We’re constantly in awe, constantly in service.
+ - There are a lot of rich people in the world. There are very few people who have the privilege of getting to invent things that billions of people use.
+ - I’m very antischedule. Except for board meetings, I don’t really schedule things or keep a calendar. I think appointments are caustic to creativity.
+ - I want to build something I’d be happy to be employed by 10 years out.
+ - I’m always so surprised when people fill their homes up with stuff.
+ - I always carry my camera with me.
+ - We’re not motivated by money. We are into this thing that we’re building.
+ - Today there are millions of people making stuff and putting it into the world: that’s become part of our identity and it shouldn’t be limited to people who fancy themselves writers, or who are particularly witty or talented.
+ - I think appointments are caustic to creativity.
+ - For every new feature we add, we take an old one out. A lot of big sites don’t do that, and it’s a problem.
+ - We’ve tried to keep as cheap and lean an operation as possible.
+
+25 quotes

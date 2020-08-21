@@ -1,0 +1,71 @@
+ - The dinosaurs became extinct because they didn’t have a space program.
+ - Anything that can go wrong, will.
+ - Half of wisdom is learning what to unlearn.
+ - Everything starts as somebody’s daydream.
+ - The gods do not protect fools. Fools are protected by more capable fools.
+ - Ethics change with technology.
+ - That’s the thing about people who think they hate computers. What they really hate is lousy programmers.
+ - The value of a thing is what that thing will bring. -Legal Maxim.
+ - You learn by writing short stories. Keep writing short stories. The money’s in novels, but writing short stories keeps your writing lean and pointed.
+ - Never be embarrassed or ashamed by anything you choose to write.
+ - We learn only to ask more questions.
+ - The witnessing of titanic events is always dangerous, usually painful, and often fatal.
+ - There is no cause so good or noble that it will not attract fuggheads; and the fuggheads will get all the press.
+ - In challenging a kzin, a simple scream of rage is sufficient. You scream and you leap.
+ - Consider the true picture. Think of myriads of tiny bubbles, very sparsely scattered, rising through a vast black sea. We rule some of the bubbles. Of the waters we know nothing...
+ - Fear is the brother of hate.
+ - I’d repair our education system or replace it with something that works.
+ - How much intelligence does it take to sneak up on a leaf?
+ - The best advice I was ever given was on my twenty-first birthday when my father said, Son, here’s a million dollars. Don’t lose it.
+ - Mother Nature doesn’t care if you’re having fun.
+ - Boredom is my worst enemy. It’s killed a lot of my friends, but it won’t get me. When I get bored, I go risk my life somewhere.
+ - Hopeless causes are the only ones worth fighting for. The fight for the taxpayer is the most hopeless of them all.
+ - Never fire a laser at a mirror.
+ - Any damn fool can predict the past.
+ - The majority is always sane.
+ - We’re looking as far ahead as we can, and we don’t get penalized for mistakes.
+ - I love superconductors.
+ - I am trying to prevent a bloodbath. Is that clear enough for you? I’m trying to prevent a civil war that could kill half the people in this world.
+ - Sometimes there’s no point in giving up.
+ - Building one space station for everyone was and is insane: we should have built a dozen.
+ - I’d visit the near future, close enough that someone might want to talk to Larry Niven and can figure out the language; distant enough to get me decent medical techniques and a ticket to the Moon.
+ - Once every hundred years, the Los Angeles smog rolls away for a single night, leaving the air as clean as interstellar space. That way the gods can see if Los Angeles is still there. If it is, they roll the smog back so they won’t have to look at it.
+ - The reader has certain rights. He bought your story. Think of this as an implicit contract. He’s entitled to be entertained, instructed, amused; maybe all three. If he quits in the middle, or puts the book down feeling his time has been wasted, you’re in violation.
+ - SF isn’t a genre; SF is the matrix in which genres are embedded, and because the SF field is never going in any one direction at any one time, there is hardly a way to cut it off.
+ - As for AIDS, it’s a plague. We are human, we get plagues. They come along every so often, kill off two thirds of the population; in the next generation it’s a quarter; after that it’s a childhood disease.
+ - I have a kind of psychic invisibility. As long as I can stay scared, I can keep people from seeing me. That’s what we have to count on.
+ - Love was a delicious blend of warm and cold. There was comfort in making love. It solved no problems: but one could run away from problems.
+ - The perversity of the Universe tends towards a maximum.
+ - Stupidity is always a capital crime.
+ - The human species really could have faced global thermonuclear war. During seventy years of Cold War we grew used to it.
+ - It is a cardinal sin to bore the reader.
+ - The brightest minds in our field have been trying to find a definition of science fiction for these past seventy years. The short answer is, science fiction stories are given as possible, not necessarily here and now, but somewhere, sometime.
+ - Treat your life like something to be sculpted.
+ - My problem with new writers is that it takes me five or six years to memorise the right names.
+ - In hindsight it may even seem inevitable that a socialist society will starve when it runs out of capitalists.
+ - Jesus Pietro wasn’t used to dealing with ghosts. It would require brand new techniques. Grimly he set out to evolve them.
+ - I do suspect that privacy was a passing fad.
+ - In a collaboration, each author will do 75% of the work.
+ - I’m not predicting; I just love playing with superconductors.
+ - One mark of a good officer, he remembered, was the ability to make quick decisions. If they happen to be right, so much the better.
+ - I never got good at predicting what millions of people will suddenly decide is rational.
+ - If one must explain a magic trick, one should do so after the show is over.
+ - A civilization has the ethics it can afford.
+ - We should not have assumed that a political space station could be built.
+ - Species evolve to meet the environment. An intelligent species changes the environment to suit itself. As soon as a species becomes intelligent, it should stop evolving.
+ - Never tell a computer to forget it.
+ - Spray a book with insect spray, drop it in a bag, add some mothballs and seal it. Put it in another bag and seal it. Another. The packages piled up on the floor, each a book sealed in four plastic envelopes.
+ - And every friend I’ve got has been writing Mars stories. It was pretty clear I’d never catch up.
+ - I don’t have a strong interest in history.
+ - In the world of words the imagination is one of the forces of nature.
+ - Bruce Sterling is one terrific writer and he’s relatively new, but I don’t know how long he’s been doing it; he probably doesn’t need the publicity anymore!
+ - The Unexpected always comes at the most awkward times.
+ - In general, I don’t know when inspiration will pop up.
+ - Anything beats an expensive stack of paper.
+ - I’ve spent a lot of my life among people brighter than myself.
+ - Anything you don’t understand is dangerous until you do understand it.
+ - Intelligence is just a tool to be used toward a goal, and goals are not always chosen intelligently.
+ - I’ve got five or six unpublished stories kicking around looking for somebody to buy them.
+ - I do not believe they’ve run out of surprises.
+
+69 quotes

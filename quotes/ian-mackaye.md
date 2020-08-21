@@ -1,0 +1,71 @@
+ - It doesn’t hurt me on a personal level, but it hurts me on a larger level of like, why are people so stupid? Why do we have to go through these unnecessary exercises. Fight crime, don’t fight me. If you really want to make a difference don’t fight me or Fugazi.
+ - If You Want To Rebel Against Society, Don’t Dull The Blade.
+ - To me, music is no joke and it’s not for sale.
+ - Bars are meeting places and places to unwind. But at some point, what is culture unwinding from, and why can’t they meet anywhere else?
+ - I just have work to do; I just do it.
+ - The archiving industry, much like the funeral industry and the wedding industry, these industries can be very exploitative.
+ - The amount of money that people spend on saving stuff, they try to feed you this idea that’s it’s more important.
+ - It makes me sad, the way human beings talk smack. It’s why I don’t like irony. People are too gleeful to put some teeth into something.
+ - An unlocked door means that, occasionally, you might get a devil come in, but a locked door means you have thousands of angels just walk by.
+ - I do feel like I have always, in my life, been inclined to be on the outside, walk a different path or something. Because of that, and increasingly over the years, my sense of distance from mainstream society or from the way culture works, I have a different kind of perception of it.
+ - We had punks literally protesting Fugazi. I respect a boycott. I respect a conscionable boycott, but of all bands to boycott? Fight crime. If you really want to get out there, go fight crime.
+ - I do remember seeing Godspell or Jesus Christ Superstar, one of those. It was a liberation theology venue. Anything radical seemed to be accepted there. I definitely picked up the idea there that you should question authority.
+ - People will say “You must miss playing to a thousand people.” But I don’t. I might miss playing. That’s what I would miss, but I don’t miss it, because I am playing.
+ - I consider the piano my ‘main’ instrument and have been playing for as long as I can remember. It seems to me that I might have come up with something resembling a song as early as 4 or 5 years old.
+ - There’s also a lot of skateboard stuff, because I was a skateboarder. Somewhere around here I have one of my original boards.
+ - Minor Threat was an important band, believe me that it was important it in my life, but it belongs to an era that no longer exists. I’m not nostalgic. I think music today is much more important, because something can be done about it.
+ - My point of view is, I’m just a person, and there are times when I look at other people and think, ‘My God, they spend so much time thinking about things that seem so absurd.’ But I’m sure people must think the same thing about me.
+ - What does bother me is that I have to spend time and energy dealing with the ramifications of what people do think about me.
+ - Archiving is extremely expensive and time consuming. I’m sure an archivist would tell me I’m doing it wrong. It’s an industry that’s built upon essential ideas, and some of those practices are abusive.
+ - I don’t think it’s an ethical or moral issue, or even that people are stupid, but I do feel like as a culture things are out of balance, perverted, and inverted. Things that are ridiculous are worshipped, and things that are important are ridiculed. I think that’s something worth thinking about.
+ - I have stuff from 1979, 1980 in my collection. But I also have things from 2012. So I don’t know if it’s memorabilia as much as it is holding on to things that I find relevant that most people might not.
+ - I’m basically in every band I ever was in, and the songs, I still mean them all. I don’t take anything back, so I do look after them to some degree. But my main focus is on what I’m doing now.
+ - I stand behind all the lyrics I’ve ever written; I don’t have a problem with that.
+ - I mean, why do people fight over sports? Because of the framework, the schematic of sports, those particular people seize upon these opportunities to be violent. And the number one problem using the same framework would be religion.
+ - As hard as you try and create narratives about sports, once the ball is in the air, there’s not a damn thing you can do about it, it’s just very real.
+ - I do not consider myself a teddybear. Just to be clear, I don’t feel sorry for myself.
+ - I work so I don’t need to make rent through my songs, and I think if more people engaged with music without needing it to provide for their welfare, you’re not beholden to anyone.
+ - My focus is always on the day. What I’ve done behind me, I try to have respect for it, and keep an eye on it, and make sure it isn’t abused, and obviously be thoughtful about it, because it’s all real to me. I’m basically in every band I ever was in, and the songs, I still mean them all.
+ - Part of the way the work world works is not so much creating a separation between your work and your free time, but creating the illusion of a separation between your work and your free time. Every day is the weekend for me, which means I’m always busy.
+ - I think it’s my nature to engage in things that are more difficult.
+ - I don’t watch TV but occasionally I’ll read the Washington Post. I will say that sports are the only “real thing” on television.
+ - Record labels have enjoyed a 100-year monopoly of selling plastic and now they’re up against a different format.
+ - I’ve done thousands of interviews in my life, and it’s a format that I quite enjoy, because I think of questions in interviews as an opportunity to sort of gauge my growth in a way. It gives me an idea of how I’m navigating this world that I’m in.
+ - It’s so interesting that humanity has to be defined by emotional strife or something. I don’t buy into that.
+ - With Napster and the sharing of music, of course, there are going to be people who exploit it. Greed has no end. But there’s a lot of good that could happen. We shouldn’t let the economic concerns of the major labels infringe on our freedom to share music.
+ - I’m a fifth generation Washingtonian and I was born and raised here. My kid’s a sixth generation Washingtonian. Honestly I wish people didn’t move because I love the people of the city.
+ - Structures can be manipulated for ill as well, especially when people are dealing with issues of power, or control, or violence.
+ - Every song I ever wrote, I wrote to be heard. So, if I was given a choice that 50 years from now I could either have a dollar or knowing that some kid was listening to my song, I’d go with the kid listening to my song.
+ - It’s just hard to have a nuanced discussion with like a thousand people, 30 of which are white-power skinheads.
+ - I’m not a sports guy. However it’s interesting to be in a place where people have a sporting fever. One time I was in Italy during one of the European soccer cups, and it’s interesting because it’s so electrifying.
+ - I’m really anti-option, so computers have been my nightmare with recording. I don’t want endless tracks; I want less tracks. I want decisions to be made.
+ - I’m always happy when I hear about people selling records or selling books or selling movies. It makes me proud of them.
+ - I have other projects to do. I try not to let that documentation interfere with my present day.
+ - I obviously use computers. My car is wondrous. My phone is amazing. I’ve already talked about the music I’m digitizing. Technology is fantastic, of course.
+ - When people who are songwriters say ‘That’s my property and if you give it away for free then I’ll lose my incentive,’ then, well, good riddance.
+ - I’ve always been a bit of a documentarian.
+ - Now anyone can move anywhere. I’ve made deep connections with people around the world since I tour everywhere that I will simply never see again.
+ - The first time I ever recorded, which was into my boom-box, I was like, ‘Wow, check that out.’ It sounded great. The narcotic of it was so intense – it was pleasurable. I was like, ‘You sound like a band.’ Then I ended up spending the rest of my life trying to chase that initial high again.
+ - I never imagine myself as anything. I’ve never had a goal or any future vision at all. I just do what’s in front of me.
+ - Why do we celebrate the opening of a bar so much?
+ - I’m not a religious person, and I’m not too interested in being a part of a religion, but I do like having some sort of communal gathering, and having some sense of peoples.
+ - The American underground punk scene, though, is a story worth remembering.
+ - My humor is very dry. To me it doesn’t make sense.
+ - I’ve had people call me from bands that are very popular, and they’re like, ‘What do we do? We want to do what you do.’ It’s almost impossible to do what I do, because you would have to start in 1980. You can’t just do it.
+ - I think about Dischord. There’s been a pretty consistent notion that Dischord have been some sort of “overlords” of the scene. Some people have felt ’they are too cool for us, or they won’t put this out, etc. All we’re doing is our own work, our own thing. That’s all we’ve ever done. Our work.
+ - I never, ever had it in my mind that I wanted to be in the record industry, because I still contend that the record industry is an insidious affair. It’s this terrible collision between art and commerce, and it will always be that way.
+ - Getting your letters or pictures digitized. I don’t think it’s that important. The more you spend on your materials, you’re given the sense that those things are more important due to the total amount spent. You’d probably be better off giving that money to a soup kitchen.
+ - Major labels didn’t start showing up really until they smelled money, and that’s all they’re ever going to be attracted to is money-that’s the business they’re in- making money.
+ - When someone writes a really nasty piece about me. I think they’re generally untrue because I think I’m a nice person.
+ - I think what we took away from first hearing about the punk stuff in England and then the early American punk stuff was a sense of self-definition and also sort of playing music for music’s sake and being part of a family for family’s sake.
+ - I have thousands of tapes, and photos and fliers, letters, posters, artwork – basically everything that ever happened, I kept. I’m not a hoarder, though. I’m sort of a librarian.
+ - When children start to speak they find their own voice by imitating the sounds around them. It would follow that bands do the same. Bands will find their own voice at some point.
+ - Yeah, if someone’s selling downloads and collecting money for our songs I would be unhappy about that but if they’re trading it I don’t mind, obviously if I make a thousand records or CDs or whatever, I like to sell a thousand.
+ - I have a lot of stuff. Slowly I’m getting all my materials organized.
+ - The only thing that drives music is the people who are making it.
+ - I wouldn’t characterize it as an 80s nostalgia thing. For me, at least. The Corcoran show was actually almost a reportage. The exhibit was, in many ways, pretty unique. It was one of the first pieces about DC culture that doesn’t include some marble building or the Kennedy Center.
+ - I was into Ted Nugent, I was a Nugent guy. I was a skateboarder listening to Ted Nugent.
+ - I’m not a sports dude, but I’m interested in the sociological implications of it.
+ - There are certainly good examples of incredibly brilliant, beautiful music that has been made commercially available and sold everywhere. But I would say that, for the most part, quantity certainly does not speak well for quality.
+
+69 quotes

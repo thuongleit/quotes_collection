@@ -1,0 +1,27 @@
+ - A good teacher can inspire hope, ignite the imagination, and instill a love of learning.
+ - Believe in yourself, and the rest will fall into place. Have faith in your own abilities, work hard, and there is nothing you cannot accomplish.
+ - It is only through raising expectations and striving for excellence that our children can reach their full potential.
+ - Families are the compass that guide us. They are the inspiration to reach great heights, and our comfort when we occasionally falter.
+ - No other investment yields as great a return as the investment in education. An educated workforce is the foundation of every community and the future of every economy.
+ - The worst thing we can do is to do nothing.
+ - Families are the compass that guide us.
+ - The status quo is simply unacceptable.
+ - No one should have to choose between medicine and other necessities. No one should have to use the emergency room every time a child gets sick. And no one should have to live in constant fear that a medical problem will become a financial crisis.
+ - Let us be bold. Let us be brave. Let us be together.
+ - A fundamental duty of government is to protect its people.
+ - In charting our course to the future, we are mindful of our path from the past.
+ - The only thing holding us back is ourselves.
+ - Education is not solely about earning a great living. It means living a great life.
+ - We must give Oklahoma families the opportunity to thrive and prosper. We must give all Oklahomans the tools necessary to pursue the American dream. And then, we must get out of the way.
+ - Resilience is woven deeply into the fabric of Oklahoma. Throw us an obstacle, and we grow stronger.
+ - For only by nurturing the minds and strengthening the values of our children can we give them an opportunity to be full, productive citizens, to reach their God-given potential, and to have good jobs right here in Oklahoma.
+ - There is too much at stake for us to surrender to the politics of polarization.
+ - What unites Oklahomans today is what has always united us: Our unshakable faith. Our love of family and compassion for others. The unlimited promise of a hopeful future.
+ - Something called ‘the Oklahoma Standard’ became known throughout the world. It means resilience in the face of adversity. It means a strength and compassion that will not be defeated.
+ - Reading builds the educated and informed electorate so vital to our democracy.
+ - It is a paradox that far too few Americans participate in the wonderful ritual of democracy that we call Election Day.
+ - If ever there was a time for true bipartisanship, it is today.
+ - This is not the time for partisan bickering. This is not the time for politics as usual. Some of us are Democrats. Some of us are Republicans. Some of us are Independents. Above all, we must be Oklahomans first.
+ - Oklahomans value our children and our seniors. Oklahomans value traditions of faith. Oklahomans value our heroes, our veterans. Oklahomans value innovation and the creative arts.
+
+25 quotes

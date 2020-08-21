@@ -1,0 +1,25 @@
+ - Love is like an eternal flame, once it is lit, it will continue to burn for all time.
+ - There is no mystery – that’s the beauty of it. We are entirely explicable to each other, and yet we stay. What a miracle that is.
+ - When you can be this, why are you ever anything else? – Broken Verses.
+ - You have this ability to find beauty in weird places.
+ - Decisions. Where, what, why. Can’t handle them. So I’m prolonging the indecision with higher education.
+ - Somewhere deep within the marrow of our marrow, we were the same.
+ - For a second I was almost jealous of the clouds. Why was he looking to them for an escape when I was right here beside him?
+ - Pride! In English it is a Deadly Sin. But in Urdu it is fakhr and nazish – both names that you can find more than once on our family tree.
+ - So many things you promise yourself you won’t get used to, and then you do.
+ - The world won’t get more or less terrible if we’re indoors somewhere with a mug of hot chocolate,’ Kim said. ‘Though it’s possible it will seem slightly less terrible if there are marshmallows in the hot chocolate.
+ - How horrifying that morning when you wake up and your first thought is not of the person who has left. That’s when you know, I will never die of a broken heart.
+ - Is love stronger when it let’s go or when it holds on?
+ - I still hear the world spinning.
+ - There’s a ghost of a dream that you don’t even try to shake free off because you’re too in love with the way she haunts you.
+ - This world is out of date.
+ - If I wasn’t me, you wouldn’t be you.
+ - Difficult but worth it – that’s how my mother had once describe life with Omi.
+ - The truths we conceal don’t disappear Raheen, they appear in different forms.
+ - How to explain to the earth that it was more functional as a vegetable patch than a flower garden, just as factories were more functional than schools and boys were more functional as weapons than as humans.
+ - Don’t you know how much I hero-worshiped you when I was a kid? You were Marie Curie crossed with Emily Bronte crossed with Joan of Arc to me when I was ten. And when i told you that, you said my cultural references were the sign of a colonized mind.
+ - We should have stories in common, I found myself thinking. We should have stories, and jokes no one understands, and memories that we know will stay alive because neither of us will let the other forget.
+ - Those Genes Could Have Been Mine.
+ - How do you eat your roots?
+
+23 quotes

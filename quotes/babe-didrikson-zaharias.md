@@ -1,0 +1,36 @@
+ - The formula for success is simple: practice and concentration then more practice and more concentration.
+ - Don’t worry. Just leave everything in the hands of God.
+ - Golf is a game of coordination, rhythm, and grace; women have these to a high degree.
+ - You can’t win them all but you can try.
+ - My philosophy? Practice, practice, practice and win.
+ - It’s not just enough to swing at the ball. You’ve got to loosen your girdle and really let the ball have it.
+ - It’s even harder to stay at the top in sports than it is to get there.
+ - If you win through bad sportsmanship that’s no real victory.
+ - I don’t see any point in playing the game if you don’t win, do you?
+ - Luck? Sure. But only after long practice and only with the ability to think under pressure.
+ - I can beat any two players in this tournament by myself. If I need any help, I’ll let you know.
+ - Study the rules so that you won’t beat yourself by not knowing something.
+ - I came out to beat everybody in sight, and that’s just what I’m going to do.
+ - Before I was ever in my teens, I knew exactly what I wanted to be when I grew up. My goal was to be the greatest athlete that ever lived.
+ - The Babe is here. Who’s coming in second?
+ - You know when there’s a star, like in show business, the star has her name in lights on the marquee! Right? And the star gets themoney because the people come to see the star, right? Well, I’m the star, and all of you are in the chorus.
+ - There are no shortcuts to good golf. The better players realize this.
+ - Winning has always meant much to me, but winning friends has meant the most.
+ - I just hitch up my girdle and let ’er fly.
+ - I couldn’t hit an elephant’s ass with a bull fiddle.
+ - I expect to play golf until I am 90-even longer if anybody figures out a way to swing a club from a rocking chair.
+ - The biggest weakness with my game is that I have fun with the galleries. I just love a gallery.
+ - Some of us are fortunate enough to play championship golf, but this isn’t essential in the enjoyment of the game.
+ - They say golf came easy to me because I was a good athlete, but there’s not any girl on the LPGA Tour who worked near as hard as I did in golf. It’s the toughest game I ever tackled.
+ - Practice, which some regard as a chore, should be approached as just about the most pleasant recreation ever devised.
+ - A couple of hours of practice is worth ten sloppy rounds.
+ - I don’t seem able to do my best unless I’m behind or in trouble.
+ - The mediocre golfer generally is one who is too lazy to play better.
+ - That little white ball won’t move until you hit it, and there’s nothing you can do after it has gone.
+ - As your golf improves, your concentration will improve with it.
+ - The more you practice, the better. But in any case, practice more than you play.
+ - All of my life I have always had the urge to do things better than anybody else.
+ - Good golf is easier to play-and far more pleasant-than bad golf.
+ - I played many sports, but when that golf bug hit me, it was permanent.
+
+34 quotes

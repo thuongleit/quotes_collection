@@ -1,0 +1,46 @@
+ - Social democracy does not represent an ideal future; it does not even represent the ideal past.
+ - As citizens of a free society, we have a duty to look critically at our world. But if we think we know what is wrong, we must act upon that knowledge.
+ - Love consists in leaving the loved one space to be themselves while providing the security within which that self may flourish.
+ - We know what things cost but have no idea what they are worth.
+ - I don’t much mind being expelled from communities.
+ - History always happens to us and nothing ever stays the same.
+ - Judaism for me is a sensibility of collective self-questioning and uncomfortable truth-telling. I feel a debt of responsibility to this past. It is why I am Jewish.
+ - The pleasures of mental agility are much overstated, inevitably – as it now appears to me – by those not exclusively dependent upon them.
+ - But I’m English. We don’t do uplifting.
+ - If we have learned nothing else from the 20th century, we should at least have grasped that the more perfect the answer, the more terrifying its consequences. Incremental improvements upon unsatisfactory circumstances are the best that we can hope for, and probably all we should seek.
+ - Above all, the thrall in which an ideology holds a people is best measured by their collective inability to imagine alternatives.
+ - We have responsibilities for others, not just across space but across time. We have responsibilities to people who came before us. They left us a world of institutions, ideas or possibilities for which we, in turn, owe them something. One of the things we owe them is not to squander them.
+ - I know exactly how and where I am going to die. The only question is when.
+ - If active or concerned citizens forfeit politics, they thereby abandon their society to its most mediocre and venal public servants.
+ - If words fall into disrepair, what will substitute? They are all we have.
+ - We need to start talking about inequality again; we need to start talking about the inequities and unfairnesses and the injustices of an excessively divided society, divided by wealth, by opportunity, by outcome, by assets and so forth.
+ - Unlike memory, which confirms and reinforces itself, history contributes to the disenchantment of the world.
+ - It does irritate me when I am described as a controversialist and commentator on Israel.
+ - After 1945 what happened was rather the opposite: with one major exception boundaries stayed broadly intact and people were moved instead.
+ - Today, neither Left nor Right can find their footing.
+ - There is nothing to be said for being crippled. You don’t see the world better or clearer, nor do you develop some special set of skills by way of compensation.
+ - I grew up in a world where the social democratic state was the norm, not the exception.
+ - What I am against is false optimism: the notion either that things have to go well, or else that they tend to, or else that the default condition of historical trajectories is characteristically beneficial in the long-run.
+ - The people whose necks hurt when I write about the Middle East tend to live in Brooklyn or Boca Raton: the kind of Zionist who pays another man to live in Israel for him. I have nothing but contempt for such people.
+ - I don’t believe in an afterlife. I don’t believe in a single or multiple godhead. I respect people who do, but I don’t believe it myself.
+ - I don’t believe that one should have one-size-fits-all moral rules for international political action.
+ - My history writing was based on what I saw in strange, exotic places rather than just reading books.
+ - I do think we’re on the edge of a terrifying world, and that many young people know that but don’t know how to talk about it.
+ - I’m not sure I’ve learned anything new about life; but I’ve had to think harder about death and what comes after for other people.
+ - Apparently, the line you take on Israel trumps everything else in life.
+ - How should we begin to make amends for raising a generation obsessed with the pursuit of material wealth and indifferent to so much else?
+ - Words can make the illness a subject I can master, and not one that one simply emotes over.
+ - If we remain grotesquely unequal, we shall lose all sense of fraternity: and fraternity, for all its fatuity as a political objective, turns out to be the necessary condition of politics itself.
+ - We are not merely historians but also and always citizens.
+ - Reality is a powerful solvent.
+ - I was born accidentally. I lived accidentally in London. We nearly migrated to New Zealand. So much of my life has been a product of chance, I can’t see a meaning in it at all.
+ - I can still boss people around. I can still write. I can still read. I can still eat, and I can still have very strong views.
+ - History can show you that it was one pile of bad stuff after another. It can also show you that there’s been tremendous progress in knowledge, behaviour, laws, civilisation. It cannot show you that there was a meaning behind it.
+ - Love, it seems to me, is the condition in which one is most contentedly oneself.
+ - We no longer ask of a judicial ruling or a legislative act: is it good? Is it fair? Is it just? Is it right? Will it help bring about a better society or a better world? Those used to be the political questions, even if they invited no easy answers. We must learn once again to pose them.
+ - I’ve lost count of the interviews I’ve done about my illness and its relationship to my ideas and writing.
+ - The military system of a nation is not an independent section of the social system but an aspect of its totality.
+ - As recently as the 1970s, the idea that the point of life was to get rich and that governments existed to facilitate this would have been ridiculed: not only by capitalism’s traditional critics but also by many of its staunchest defenders.
+ - American social arrangements, economic arrangements, the degree of inequality in American life, the relatively small role played by the government in American public life and so forth, compares to exactly the opposite conditions in most of the European societies.
+
+44 quotes

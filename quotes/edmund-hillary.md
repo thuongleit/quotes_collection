@@ -1,0 +1,50 @@
+ - It is not the mountain we conquer but ourselves.
+ - People do not decide to become extraordinary. They decide to accomplish extraordinary things.
+ - You don’t have to be a hero to accomplish great things – to compete. You can just be an ordinary chap, sufficiently motivated to reach challenging goals.
+ - Human life is far more important than just getting to the top of a mountain.
+ - With practice and focus, you can extend yourself far more than you ever believed possible.
+ - Environmental problems are really social problems anyway. They begin with people as the cause and end with people as the victims.
+ - I think it all comes down to motivation. If you really want to do something, you will work hard for it.
+ - Strong motivation is the most important factor in getting you to the top.
+ - No one remembers who climbed Mount Everest the second time.
+ - Life’s a bit like mountaineering – never look down.
+ - It’s not a real adventure when you have to pay for it.
+ - When you go to the mountains, you see them and you admire them. In a sense, they give you a challenge, and you try to express that challenge by climbing them.
+ - I have discovered that even the mediocre can have adventures and even the fearful can achieve.
+ - Some day I’m going to climb Everest.
+ - The Sherpas play a very important role in most mountaineering expeditions, and in fact many of them lead along the ridges and up to the summit.
+ - Challenge is what makes men. It will be the end when men stop looking for new challenges.
+ - Nothing can replace courage, a resounding motivation and that little bit of luck.
+ - When you’re climbing at high altitudes, life can get pretty miserable.
+ - I have been seriously afraid at times but have used my fear as a stimulating factor rather than allowing it to paralyse me. My abilities have not been outstanding, but I have had sufficient strength and determination to meet my challenges and have usually managed to succeed with them.
+ - Nobody climbs mountains for scientific reasons. Science is used to raise money for the expeditions, but you really climb for the hell of it.
+ - Good planning is important. I’ve also regarded a sense of humor as one of the most important things on a big expedition. When you’re in a difficult or dangerous situation, or when you’re depressed about the chances of success, someone who can make you laugh eases the tension.
+ - I am a lucky man. I have had a dream and it has come true, and that is not a thing that happens often to men.
+ - Once I’ve decided to do something, I do usually try to carry it through to fruition.
+ - I don’t spend a lot of time thinking about dying, but I like to think that I’ve – if it did occur – that I would die peacefully and not make too much of a fuss about it.
+ - On the summit of Everest, I had a feeling of great satisfaction to be first there.
+ - Adventuring can be for the ordinary person with ordinary qualities, such as I regard myself.
+ - The explorers of the past were great men and we should honour them. But let us not forget that their spirit lives on. It is still not hard to find a man who will adventure for the sake of a dream or one who will search, for the pleasure of searching, not for what he may find.
+ - I’ve always hated the danger part of climbing, and it’s great to come down again because it’s safe.
+ - I’m sure the feeling of fear, as long as you can take advantage of it and not be rendered useless by it, can make you extend yourself beyond what you would regard as your capacity. If you’re afraid, the blood seems to flow freely through the veins, and you really do feel a sense of stimulation.
+ - You climb for the hell of it.
+ - There is precious little in civilization to appeal to a yeti.
+ - It was wrong if there was a man suffering altitude problems and was huddled under a rock, just to lift your hat, say ‘good morning’ and pass on by, he said. Human life is far more important than just getting to the top of a mountain.
+ - I think the whole attitude towards climbing Mount Everest has become rather horrifying. The people just want to get to the top. They don’t give a damn for anybody else who may be in distress and it doesn’t impress me at all that they leave someone lying under a rock to die.
+ - Many people have been getting too casual about climbing Everest. I forecast a disaster many times.
+ - Becoming a ‘Sir’ is slightly uncomfortable at first, although it is a considerable honor. It is amazing how quickly you become accustomed to it.
+ - I think that a good mountaineer is usually a sensible mountaineer.
+ - I really haven’t liked the commercialization of mountaineering, particularly of Mt. Everest. By paying $65,000, you can be conducted to the summit by a couple of good guides.
+ - I like to think of Everest as a great mountaineering challenge, and when you’ve got people just streaming up the mountain – well, many of them are just climbing it to get their name in the paper, really.
+ - My mother was a schoolteacher and very keen that I go to a city school, so although it was fairly impoverished times, I traveled every day to the Auckland Grammar School.
+ - I don’t know if I particularly want to be remembered for anything. I personally do not think I’m a great gift to the world. I’ve been very fortunate.
+ - My relationship with the mountains actually started when I was 16. Every year, a group used to be taken from Auckland Grammar down to the Tangariro National Park for a skiing holiday.
+ - I think the really good mountaineer is the man with the technical ability of the professional and with the enthusiasm and freshness of approach of the amateur.
+ - Despite all I have seen and experiences, I still get the same thrill out of glimpsing a tiny patch of snow in a high mountain gully and feel the same urge to climb toward it.
+ - My most important projects have been the building and maintaining of schools and medical clinics for my dear friends in the Himalaya and helping restore their beautiful monasteries, too.
+ - When I was 50 years old, I actually decided to draw up a list of half a dozen things that I really hadn’t done very well, and I was going to make efforts to improve. One of them was skiing, and I really did become a very much better skier.
+ - As a youngster I was a great dreamer, reading many books of adventure and walking lonely miles with my head in the clouds.
+ - I think Himalayan climbers tend to mature fairly late. I think most of the successful Himalayan climbers have ranged from 28 to just over 40, really.
+ - I hate being called an ‘icon.’ I just don’t like it. That’s all there is to it.
+
+48 quotes

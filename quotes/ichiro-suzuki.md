@@ -1,0 +1,24 @@
+ - I had a dream. And I made that dream come true.
+ - I’ve made far too many mistakes. That’s the way I feel.
+ - If I ever saw myself saying I’m excited going to Cleveland, I’d punch myself in the face, because I’m lying.
+ - I’ve always prided myself in not reveling in past accomplishments and focusing on future achievement, instead. That’s been my career motto.
+ - You should seek approval from yourself.
+ - As professionals we have a responsibility of providing a good show for the fans. Getting hits and home runs is what they want to see.
+ - In baseball, even the best hitters fail seven of ten times, and of those seven failures there are different reasons why. Some are personal failures, others are losses to the pitcher. You just get beat. In those personal failures, I felt I could have done better.
+ - Personally, I don’t like the term ‘success.’ It’s too arbitrary and too relative a thing. It’s usually someone else’s definition, not yours.
+ - The Japanese have a strong tendency to suppress their own feelings. That’s the Japanese character. They kill their own emotions.
+ - I wanted the challenge of competing against the best players in the world.
+ - The more that Japanese players go to the big leagues to play and succeed, the more that will serve to inspire young kids in Japan to want to become baseball players when they grow up.
+ - I think if you look at the friends, the kinds of relationships I have, I am not the kind of guy who has many shallow relationships. I think you could say I am the kind of guy who has a few relationships, but those are very deep.
+ - I want to be the first player to show what Japanese batters can do in the major league.
+ - I’m told I either look bigger than I do on television or that I look smaller than I look on television. No one seems to think I look the same size.
+ - Some people enjoy taking a light stroll in the morning and that gives them relief and that sort of feeling. That is what I gain by practicing, by swinging the bat.
+ - If I’m in a slump, I ask myself for advice.
+ - People striving for approval from others become phony.
+ - Everybody in the states is so relaxed, and everybody in Japan is so uptight.
+ - I’m not a big guy and hopefully kids could look at me and see that I’m not muscular and not physically imposing, that I’m just a regular guy. So if somebody with a regular body can get into the record books, kids can look at that. That would make me happy.
+ - I played on the 2001 team, the team that won the most games in the history of Major League Baseball and also I played on one of the worst teams of Major League Baseball.
+ - When people get placed upon a pedestal – when they start chasing after that person on the pedestal – they become mannequin-like.
+ - I heard that in the United States the level of baseball was the highest in the world. So it was only natural that I would want to go there, as a baseball player.
+
+22 quotes

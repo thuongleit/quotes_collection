@@ -1,0 +1,42 @@
+ - We are here to laugh at the odds and live our lives so well that Death will tremble to take us. ~~Charles Bukowski
+ - Learn to laugh at your problems, cause everybody else does. ~~Jared Leto
+ - Laughter is the language of the soul. ~~Pablo Neruda
+ - Ten years from now you’ll laugh at whatever’s stressing you out today. So why not laugh now? ~~Tony Robbins
+ - If people aren’t laughing at your dreams, your dreams aren’t big enough ! ~~Robin S. Sharma
+ - Laughing is good exercise. It’s like jogging on the inside. ~~Kurt Vonnegut
+ - Surround yourself with people who make you happy. People who make you laugh, who help you when you’re in need. People who genuinely care. They are the ones worth keeping in your life. Everyone else is just passing through. ~~Karl Marx
+ - Love breaks my bones and I laugh. ~~Charles Bukowski
+ - Until man duplicates a blade of grass, nature can laugh at his so called scientific knowledge. ~~Thomas A. Edison
+ - I was dead, then alive. Weeping, then laughing. The power of love came into me, and I became fierce like a lion, then tender like the evening star. ~~Rumi
+ - Your Pain May Give Laugh To Somebody But Your Laugh Shouldn’t Give Pain To Anybody. ~~Charlie Chaplin
+ - I know not all that may be coming, but be it what it will, I’ll go to it laughing. ~~Herman Melville
+ - Learn what is to be taken seriously and laugh at the rest. ~~Hermann Hesse
+ - Life laughs at you when you are unhappy; Life smiles at you when you are happy; But, life salutes you when you make others happy. ~~Charlie Chaplin
+ - Life is a play that does not allow testing. So, sing, cry, dance, laugh and live intensely, before the curtain closes and the piece ends with no applause. ~~Charlie Chaplin
+ - I never laugh until I’ve had my coffee. ~~Clark Gable
+ - Defeat, my defeat, my deathless courage, You and I shall laugh together with the storm, And together we shall dig graves for all that die in us, and we shall stand in the sun with a will, And we shall be dangerous. ~~Khalil Gibran
+ - You deserve love and you’ll get it. ~~Amy Poehler
+ - Elizabeth had never been more at a loss to make her feelings appear what they were not. It was necessary to laugh, when she would rather have cried. ~~Jane Austen
+ - Posterity will one day laugh at the sublime foolishness of the modern materialistic philosophy. The more I study nature, the more I stand amazed at the work of the Creator. I pray while I am engaged at my work in the laboratory. ~~Louis Pasteur
+ - The mirror is my best friend because when I cry it never laughs. ~~Charlie Chaplin
+ - Man plans. God laughs. ~~Harlan Coben
+ - It’s so easy to laugh It’s so easy to hate It takes guts to be gentle and kind. ~~Steven Morrissey
+ - Alas, Siddhartha, I see you suffering, but you’re suffering a pain at which one would like to laugh, at which you’ll soon laugh for yourself. ~~Hermann Hesse
+ - Thats the beauty of sport. Sometimes you laugh, sometimes you cry. ~~Pep Guardiola
+ - Jabs are the lightweight pieces of content that benefit your customers by making them laugh, snicker, ponder, play a game, feel appreciated, or escape; right hooks are calls to action that benefit your businesses. ~~Gary Vaynerchuk
+ - A warrior chooses a path with heart, any path with heart, and follows it; and then he rejoices and laughs. He knows because he sees that his life will be over altogether too soon. He sees that nothing is more important than anything else. ~~Carlos Castaneda
+ - I may never let go of my wrath, my anger, but I will always have the last laugh. ~~Corey Taylor
+ - Never laugh at anyone’s dreams. ~~H. Jackson Brown Jr.
+ - Men are afraid that women will laugh at them. Women are afraid that men will kill them. ~~Margaret Atwood
+ - Don’t take life too seriously Punch it in the face when it needs a good hit Laugh at it. ~~Colleen Hoover
+ - It’s a positive thing to talk about terrible things and make people laugh about them. ~~Louis C.K.
+ - I expect nothing of man, and disown the race. The only folly is expecting what is never attained; man is most contemptible when compared with his own pretensions. It is better to laugh at man from outside the universe, than to weep for him within. ~~H.P. Lovecraft
+ - Nature laughs at the difficulties of integration. ~~Pierre-Simon Laplace
+ - When you speak about these miracles, I laugh within Myself out of pity, that you allow yourself so easily to loose the precious awareness of My Reality. ~~Sathya Sai Baba
+ - When you can make others laugh with jokes that belittle no one and your words always unite, Hafiz will vote for you to be God. ~~Hafez
+ - Excessive sorrow laughs. Excessive joy weeps. ~~William Blake
+ - I want a soul mate who can sit me down, shut me up, tell me ten things I don’t already know, and make me laugh. I don’t care what you look like, just turn me on. ~~Henry Rollins
+ - You never worry about the last laugh if you’ve been laughing the whole time. ~~Drake
+ - Nothing is worth more than laughter. It is strength to laugh and to abandon oneself, to be light. Tragedy is the most ridiculous thing. ~~Frida Kahlo
+
+40 quotes

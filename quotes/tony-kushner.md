@@ -1,0 +1,83 @@
+ - We won’t die secret deaths anymore. The world only spins forward. We will be citizens. The time has come. Bye now. You are fabulous creatures, each and every one. And I bless you: More Life. The Great Work Begins.
+ - In this world, there is a kind of painful progress. Longing for what we’ve left behind, and dreaming ahead.
+ - It’s the fear of what comes after the doing that makes the doing hard to do.
+ - Nothing’s lost forever.
+ - I work best after the deadline has passed, when I’m in a panic.
+ - You’ll find, my friend, that what you love will take you places you never dreamed you’d go.
+ - Respect the delicate ecology of your delusions.
+ - Love is the world’s infinite mutability; lies, hatred, murder even, are all knit up in it; it is the inevitable blossoming of its opposites, a magnificent rose smelling faintly of blood.
+ - The smallest indivisible human unit is two people, not one; one is a fiction. From such nets of souls societies, the social world, human life springs.
+ - In a way, film and television are in the same sort of traumatic trance that print journalism is. The technology has outpaced our comprehension of its implications.
+ - Artists know that diligence counts as much, if not more, as inspiration; in art, as in politics, patience counts as much as revolution.
+ - There are no gods here, no ghosts and spirits in America, there are no angels in America, no spiritual past, no racial past, there’s only the political, and the decoys and the ploys to maneuver around the inescapable battle of politics.
+ - The body is the garden of the soul.
+ - I try to tighten my heart into a knot, a snarl, I try to learn to live dead, just numb, but then I see someone I want, and it’s like a nail, like a hot spike right through my chest, and I know I’m losing.
+ - You have a good heart and you think the good thing is to be guilty and kind but it’s not always kind to be gentle and soft, there’s a genuine violence softness and kindness visit on people. Sometimes self-interested is the most generous thing you can be.
+ - Before the boiling of blood and the searing of skin comes the secret catastrophe: Before Life on Earth becomes finally merely impossible, it will for a long time before have become completely unbearable.
+ - The dreams of the left are always beautiful – the imagining of a better world, the damnation of the present one. This faith, this luminescent anger – these are worthy of being called human. These are the Beautiful that an age produces.
+ - I wish you would be more true to your demographic profile. Life is confusing enough.
+ - The white cracker who wrote the National Anthem knew what he was doing. He set the word “free” to a note so high nobody could reach it. That was deliberate.
+ - My whole life has conspired to bring me to this place, and I can’t despise my whole life.
+ - It isn’t easy, it doesn’t count if it’s easy, it’s the hardest thing. Forgiveness. Which is maybe where love and justice finally meet.
+ - I don’t understand why I’m not dead. When your heart breaks, you should die.
+ - There’s a kind of a fundamental irresponsibility in playwriting, and the strength of playwriting comes from that irresponsibility.
+ - People are more easily manipulated when they don’t have information. If you ensure that kids grow up without basic reading skills, math skills, and so forth, then you ensure that they can’t act effectively.
+ - I’m not religious, but I like God and he likes me.
+ - I don’t know what will happen to me without you. Only you. Only you love me. Out of everyone in the world.
+ - If you have value as an artist it’s probably going to be in your capacity to let things inside you get past things that are placed there to keep you from telling the truth. The more you see things as clearly and coldly as you can, the more value you’re going to have.
+ - Who knows better than artists how much ugliness there is on the way to beauty, how many ghastly, mortifying missteps, how many days of granitic blockheadedness and dismaying ineptitude there is on the way to accomplishment, how partial all accomplishment is, how incomplete?
+ - You have to have hope. It’s irresponsible to give false hope, which I think a lot of playwrights are guilty of. But I also think it’s irresponsible to simply be a nihilist, which quite a lot of playwrights, especially playwrights younger than me, have become guilty of.
+ - There’s a way in which ‘The Illusion’ is a play about the theater.
+ - The theater requires an essential gullibility that you can’t get through life without having. If all you can feel is skepticism-well, you meet people like this. Run away from them. They’re not good people.
+ - The way you give love is the most profoundly human part of you. When people say it’s ugly or a perversion or an abomination, they’re attacking the center of your being.
+ - And I don’t consider Broadway the acropolis of theatrical art. I mean Broadway is commercial – that’s what it is. It’s expensive seats and a lot of them that have to be filled every night. Off-Broadway and Off-Off Broadway, as far as I’m concerned, is in New York the pride of New York theater.
+ - I find writing very difficult. It’s hard and it hurts sometimes, and it’s scary because of the fear of failure and the very unpleasant feeling that you may have reached the limit of your abilities.
+ - But I think what made me go into theater was seeing my mother onstage. The first thing she did was Mrs. Frank in ‘The Diary of Anne Frank.’ The second thing she did was a play about Freud called ‘The Far Country.’ She played a paralyzed woman in Vienna who goes to see Freud.
+ - Gay writers now have both a sense of history and the fables that allows them to dwell in the realms of the ridiculous and at the same time talk seriously about things.
+ - You don’t go to the movies to do historical research, unless it’s historical research about the movies.
+ - As much as I hate his movies, Oliver Stone has an aspiration I admire, and that is that he wants his art to be part of what makes and changes public policy and cultural practice.
+ - I feel there’s a power in theatre, but it’s an indirect power. It’s like the relationship of the sleeper to the unconscious. You discover things you can’t afford to countenance in waking life. You can forget them, remember them a day later or not have any idea what they are about.
+ - I tend to be sort of quiet and shy and awkward in social situations.
+ - Constitutional democracy has created astonishing and apparently irreversible social progress. All we’re interested in is talking about when government doesn’t work.
+ - The fear of a work becoming dated is one of the most effective tools for keeping people from writing political work.
+ - You learn that existence is legible but that you have to have a critical mind if you’re going to read it.
+ - When I teach writing, I always tell my students you should assume that the audience you’re writing for is smarter than you. You can’t write if you don’t think they’re on your side, because then you start to yell at them or preach down to them.
+ - The primary thing I should do, apart from being a good husband, brother, son, and friend, is to be a citizen activist. But I’m afraid it takes away from the writing. Not that anything depends on whether I put an essay in ‘The Nation’ or not. But you want to participate.
+ - I write plays and movies, I live and work at the borderline between word and image just as any cartoonist or illustrator does. I’m not a pure writer. I use words as the score for kinetic imagistic representations.
+ - The kind of theater that I do is sort of ‘narrative realism,’ which I think in the broadest sense is legitimate to say is mainstream. I mean, in a certain sense, Suzan-Lori’s plays have had mainstream levels of success. But Suzan-Lori is in some ways not a narrative realist.
+ - We all romp about, grieving, wondering, but with rare exception we mostly remain suspended in the Rhetorical Colloidal Forever that agglutinates between Might and Do.
+ - I make my living now as a screenwriter! Which I’m surprised and horrified to find myself saying, but I don’t think I can support myself as a playwright at this point. I don’t think anybody does.
+ - Here’s the thing about politics: It’s not an expression of your moral purity and your ethics and your probity and your fond dreams of some utopian future. Progressive people constantly fail to get this.
+ - A play should have barely been rescued from the mess it might just as easily have been.
+ - I’ve always been drawn to writing historical characters. The best stories are the ones you find in history.
+ - I don’t think you have to earn your income as an artist to be an artist. But if you are an artist, then art is what you do, whether or not you’re paid for doing it; it is what you do, not what you are. I regard artist not as a description of temperament but as a category of profession, of vocation.
+ - A play is never finished. You’ll find out how much I mean that when you read my Last Will and Testament.
+ - Theater really gets damaged when there is a paucity of good criticism around.
+ - God knows I’ve had productions where there were actors in my plays who were making more money per week than I was.
+ - One of the things I love about my job as a playwright or as a screenwriter is that I get to do a lot of research and a lot of thinking and taking a lot of notes before I turn it in.
+ - The computer, the noise of the computer feels like impatience. It’s sort of the sound of impatience to me.
+ - I think I’ll always be a better playwright than a pundit, but I believe that writers should be public intellectuals and that theater, even more than film, is a place of public debate.
+ - Justice precedes beauty. Without justice, beauty is impossible, an obscenity. And when beauty has gone, what does a cameraman do with his eye?
+ - I’m a sort of political person, and I feel that there’s a kind of ineradicably political dimension to theater, to all theater, whether it’s overtly political or not.
+ - Unions are susceptible to the same ills that befall all human societies.
+ - As a playwright, you are a torturer of actors and of the audience as well. You inflict things on people.
+ - I’ve never seen a great actor do a major role that didn’t cost a lot. They’re sacrificial animals of a sort.
+ - You have a strange relationship with calamity when you’re a writer: you write about it; as an artist, you objectify and fetishize it. You render life into material, and that’s a creepy thing to do.
+ - Torture yourself about your failures. And then get back to work.
+ - The big influence on me was Robert Altman, who, especially in ‘Nashville,’ transformed my sense of dramatic structure and showed how you could handle overlapping stories.
+ - People shouldn’t trust artists and they shouldn’t trust art. Part of the fun of art is that it invites you to interpret it.
+ - The act of thinking and interpreting is so central to Judaism that it makes more sense that we’ve become people like Woody Allen – thinkers and talkers and drafters of law.
+ - I don’t write political plays in the sense that I’m writing essays that are kind of disguised as plays. I would really defy anyone to watch any of my plays and say ‘Well, here’s the point.’
+ - One has to have a complicated kind of optimism. You can’t refuse to look at how horrible things are.
+ - That it should be the questions and shape of a life, its total complexity gathered, arranged, and considered, which matters in the end, not some stamp of salvation or damnation that disperses all the complexity into some unsatisfying little decision – the balancing of scales...
+ - It has always seemed to me that Barack Obama has studied intensely and learned a great deal from Lincoln.
+ - So I think I’ll say the obvious thing: theater is ephemeral. When a production is done, it’s gone forever. You can take pictures of it. You can make a film of it. But it’s not the production. It’s not the same thing.
+ - The general consensus among historians, among the ones who can handle the fact that ‘Lincoln’ is, in fact, historical fiction, is that we demonstrate enormous fidelity to history and that, beyond that, we’ve actually contributed a line of thinking about Lincoln’s presidency that’s somewhat original.
+ - I write everything with fountain pens. I don’t know why. I’ve done it since I was bar mitzvahed. I was given a fountain pen, a Parker fountain pen, and I loved it, and I’ve never liked writing anything with pencils or ball-points.
+ - Broadway remains the closest thing we have to a national theatre, the place where the greatest number of people can potentially see new work. For an American playwright to say it doesn’t matter is simply to capitulate to the current situation.
+ - When I’m writing a new play, there’s a period where I know I shouldn’t be out in public much. I imagine most people who create go through something like this. You willfully loosen some of the inner straps that hold your core together.
+ - A handful of works in history have had a direct impact on social policy: one or two works of Dickens, some of Zola, ‘Uncle Tom’s Cabin’ and, in modern drama, Larry Kramer’s ‘The Normal Heart.’
+ - I grew up in a small Southern town, and there were white people and black people. Coming to New York to go to Columbia, every time I went into the subway I was absolutely astounded because you see people from all over the world who actually live here – who aren’t just here as tourists.
+ - Here’s another piece of advice, only date people who have read a different set of books than you have read, it will save you lots of time in the library.
+
+81 quotes

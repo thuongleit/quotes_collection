@@ -1,0 +1,127 @@
+ - Once you replace negative thoughts with positive ones, you’ll start having positive results.
+ - What goes around, comes around.
+ - Be here. Be present. Wherever you are, be there.
+ - I live one day at a time, one day at a time. Yesterday’s gone and tomorrow is blind, so I live one day at a time.
+ - When I started counting my blessings, my whole life turned around.
+ - Just can’t wait to get on the road again.
+ - There is only one map to the journey of life and it lives within your heart.
+ - Be gentle with your words – you can’t take them back.
+ - America, to me, is freedom.
+ - You will never find happiness until you stop looking for it.
+ - Three chords and the truth – that’s what a country song is.
+ - The early bird gets the worm, but the second mouse gets the cheese.
+ - The life I love is making music with my friends.
+ - I got along without you before I met you and I’ll get along without you a long time after you’re gone.
+ - Fortunately, we are not in control.
+ - The biggest killer on the planet is stress and I still think the best medicine is and always has been cannabis.
+ - If you really want to get along with somebody, let them be themselves.
+ - Freedom is control in your own life.
+ - We create our own unhappiness. The purpose of suffering is to help us understand we are the ones who cause it.
+ - There’s a freedom you begin to feel the closer you get to Austin, Texas.
+ - I’m from Texas, and one of the reasons I like Texas is because there’s no one in control.
+ - I take it not only a day at a time, but a moment at a time, and keep it at that pace. If you can be happy right now, then you’ll always be happy, because it’s always in the now.
+ - I’m crazy for trying, crazy for crying, and I’m crazy for loving you.
+ - Nothing lasts forever, but old Fords and a natural stone.
+ - When you hear me, you know it’s me, regardless of the song.
+ - I like myself better when I’m writing regularly.
+ - Little things I should have said and done I just never took the time You were always on my mind.
+ - I’m drowning in whiskey river.
+ - I started writing cheating songs when I was too young to have any idea what I was writing about – broken hearts and things like that. I just think it was something I already knew, something I had experienced in another lifetime.
+ - Love is like a dying ember, only memories remain.
+ - Small family farmers are the only things that can save us because they take care of the land. Future farmers of America are going to be our heroes. Same with biodiesel, either way we need small family saustainable and organic farmers.
+ - There’s so many things going on in the world, Babies dying. Mothers crying. How much oil is one human life worth. And what ever happened to peace on earth.
+ - Be careful what you dream: soon your dreams will be dreaming you.
+ - I believe that all roads lead to the same place – and that is wherever all roads lead to.
+ - Oh, I think it’s definitely spiritual. All music is. I think it’s maybe one of the highest forms of spirituality.
+ - Ninety-nine percent of the world’s lovers are not with their first choice. That’s what makes the jukebox play.
+ - If you can be content right now, then you’ll always be content, because it’s always right now.
+ - In the twilight glow I see her, blue eyes crying in the rain. As we kissed goodbye and parted, I knew we’d never meet again.
+ - If you’ve made your own hell, then only you have the power to escape it.
+ - I think people need to be educated to the fact that marijuana is not a drug. Marijuana is an herb and a flower. God put it here. If He put it here and He wants it to grow, what gives the government the right to say that God is wrong?
+ - I’m an old fashioned joint smoker ya know.
+ - You’ll never get ahead by blaming your problems on other people.
+ - Just because she’s leaving, don’t start believing, that your rock and roll days are gone.
+ - A lot of country music is sad. I think most art comes out of poverty and hard times. It applies to music. Three chords and the truth – that’s what a country song is. There is a lot of heartache in the world.
+ - God has blessed you richly, so get down on your knees and thank him. Don’t forget the less fortunate or God will personally kick your ass. I’d love to do it for him, but I can’t be everywhere.
+ - My doctor tells me I should start slowing it down – but there are more old drunks than there are old doctors so let’s all have another round.
+ - You know why divorces are so expensive? They’re worth it.
+ - Rather than trying to put an end to Eminem or some other rapper, politicians should think about why they’re rapping. It’s easier to try to censor some kid who’s swearing about poverty than it is to stop the poverty.
+ - You could try to live monogamously. Good luck.
+ - A lot of country music is sad.
+ - Waylon Jennings and I had a lot of fun recording together.
+ - I wanted to connect all people who are thinking about peace on Earth.
+ - I don’t smoke as many joints as I used to.
+ - When songs fall from the sky, all I can do is catch them before they hit the ground.
+ - I smoke pot every day, and I love it!
+ - If you wait for tomorrow to follow your dreams, by the time that you get there they’re gone.
+ - Air you breathe is bad for your lungs so you’ve got to careful and don’t overdue any bad air. Too much pot, too much anything is not good. Your lung is a piece of flesh, a piece of bone. You can injure it.
+ - How would you like to bite that in the ass, develop lock jaw and be dragged to death?
+ - Marijuana is like sex. If I don’t do it every day, I get a headache. I think marijuana should be recognized for what it is, as a medicine, an herb that grows in the ground. If you need it, use it.
+ - A frozen river is not a dry one, it’s just a still river on the surface but is still moving, and so am my winter writing.
+ - My wife actually got worried about my drinking so much regular milk, you know, so she got me into rice milk and now soy milk, which I greatly enjoy. A soy mocha’s a fine thing.
+ - If you got the money honey I got the time and when you run out of money honey I run out of time.
+ - There are more old drunks than there are old doctors.
+ - Gay or straight? So what? It doesn’t matter to me. We have to be concerned about other people regardless.
+ - I would like to see more airplay for all artists, no matter what age. I think there’s a lot of money being spent toward the young guys, but a lot of the older guys are the ones who blazed the trail for those young guys.
+ - If you’re not crazy there’s something wrong with you. Willie Nelson.
+ - I am not a pig farmer. The pigs had a great time, but I didn’t make any money.
+ - Vaporizers are good for your lungs. Cigarette smoke will kill you. I never heard of anybody dying from marijuana smoke. Vaporizers I think are smarter.
+ - Songwriters might write cynical, world-wise lyrics and constantly talk about money, but most of us are downright naive when it comes to business.
+ - My granddaddy died when I was about 6 years old, I think. And my grandmother took a job cooking in the school lunchroom. So she did great. She made $18 a week.
+ - Indecision may or may not be our biggest problem.
+ - It doesn’t hurt to feel sad from time to time.
+ - I been a long time leaving but I’m going to be a long time gone.
+ - I just enjoy both working and not working.
+ - I never pretended to have a great voice. It works and I can carry a tune. If you have a good song, that’s about all that’s required.
+ - Well, it’s a Bloody Mary morning, my baby left without warning.
+ - There’s a great enthusiasm for good country music all over the world.
+ - Just take what you need from the ladies and leave them.
+ - Where I grew up, Bob Wills and his western swing was very popular. And western swing is not that far from jazz and blues.
+ - I got in at 2 with a 10, and woke up at 10 with a 2.
+ - We’re still here trying to get the word out that 330 farmers are quitting every week.
+ - I’m drinking doubles now that you’re running around single again.
+ - Well the country songs themselves are three-chord stories, ballads which are mostly sad. If you are already feeling sorry for yourself when you listen to them they will take you to an even sadder place.
+ - I think innately knew that music draws people together and that good music is liked by almost everybody.
+ - You don’t have to be poor to need something or somebody.
+ - I was influenced a lot by those around me – there was a lot of singing that went on in the cotton fields.
+ - I think most art comes out of poverty and hard times.
+ - I think I’m basically the same guy I always was. Maybe I’ve learned, through experience, to rein in some of the anger and temper they say redheads normally have.
+ - More and more people are finding out the benefits of it – hemp and marijuana. The more they delve into it and research it, the more they realize, Hey wait a minute, we should give this another look.
+ - There are more serious problems in life than financial ones, and I’ve had a lot of those. I’ve been broke before, and will be again.
+ - It was and is always nice to work with the kids.
+ - All I do is play music and golf – which one do you want me to give up?
+ - I learned some invaluable lessons in Nashville that apply to both farming and show business: Do not corner something you know is meaner than you; keep skunks of all kinds at a distance; if you forgive your enemies, it messes up their heads.
+ - Most of the stuff I’ve read about me has been true.
+ - Sometimes there is a 36-piece orchestra going off in my stomach.
+ - If you go to a magic show, you don’t want to see logic.
+ - If a song was ever good, it’s still good.
+ - There are just certain sounds, music, that sort of you know people are going to like it.
+ - I never gave up on country music because I knew what I was doing was not that bad.
+ - I like to play small clubs.
+ - I think the best exercise that I do is singing for an hour-and-a-half out on the stage, because, yes, I use the lung, the biggest muscle in your body.
+ - Writing books is fun because after I do a show for a couple hours, I’m in a bus for 22 hours. It’s not hard for me to look out the window and tell a joke here and there.
+ - Those people out there like good music. They don’t stop and ask themselves, ‘Is it country or rock and roll?’ If they like it, they will tell you.
+ - You can’t hang a man for shooting a woman who was trying to steel his horse.
+ - The first time I got onstage was when I was about 5 years old. It was at a church social, and I had a poem to recite.
+ - A lot of guns there’s no need for civilians to own those those are for military.
+ - Inside every cowboy there’s a lady who’d love to slip out.
+ - I don’t believe in adhering to any rules I don’t support and I didn’t vote for. To hell with what people think. Just be who you are and you’ll be happy.
+ - When I was out in the bars drinking and fighting I was a little bit less of a peacemaker than I would be if I’d had a coupla hits of a joint and gone and laid down somewhere.
+ - Heard you told him that you’d love him ’til the end of time. Now that’s the same thing that you told me.
+ - When I’m driving the highway by myself is when I write best.
+ - One thing I learned is that the mind, rather than being the master, should be the servant of the heart.
+ - I believe in looseness.
+ - Let’s get the government stay out of our private lives, once and for all, and stop arresting smokers. Let’s take a stand for personal freedom.
+ - Like anything else, you can use the Internet for good or ill. You can get out of it what you want to. There’s no evil about it. The way I see it, it’s a liberation.
+ - I use vaporizers a lot. It cuts down on the heat and the smoke. And for a singer that’s not a bad idea.
+ - I don’t think any person has any special knowledge about what God has planned for me and you any more than me and you do.
+ - There are only so many notes so there must be only so many melodies.
+ - I still probably smoke as much as I ever did!
+ - But if you think of all the people who don’t like me, just think of all the millions who’ve never heard of me!
+ - Every now and then I’ll think of something to put back in the show. I just kind of play it off the top of my head. If I do it that way it keeps it kinda fresh.
+ - If you start out looking at somebody, wondering whether he’s good or bad, I think you’re starting out in the wrong direction. I think we’re all good and we’re all bad.
+ - As long as there’s a few farmers out there, we’ll keep fighting for them.
+ - And as far as guitars go, I loved Jimmy Bryant and Speedy West’s stuff.
+ - I didn’t come here and I ain’t leavin’.
+
+125 quotes

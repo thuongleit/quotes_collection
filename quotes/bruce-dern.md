@@ -1,0 +1,22 @@
+ - Sports betting is all about money management, so the most money won on one event is not the most important thing.
+ - Track and field has always interested me.
+ - The difference between my generation of actors and their generation is that they were bigger than life. We are not bigger than life.
+ - I tried to make the Olympics team in 1956.
+ - If the film isn’t in some way going to study behavior then I’m not interested, but the reason why I’m not interested in directing in film is that it would take me, to be as good an artist as I feel I am an actor, it would take me another 35 just to conquer...
+ - In Hitchcocks eyes the movement was dramatic, not the acting. When he wanted the audience to be moved, he moved the camera. He was a subtle human being, and he was also the best director I have ever worked with.
+ - I’m a big wilderness, mountain guy. I love to go up in the mountains and I can just sit for hours and just look at the mountains.
+ - There’s no time in life to do all the roles I’d like to play.
+ - I’ve always thought that if Israel really wanted to solve the problem, they’d just start tomorrow and push right to the Jordan River, and anything in their way goes. They don’t need America or someone else to help.
+ - When I was starting to get noticed as an actor in the 1970s for something other than the third cowboy on the right who ended up dying in every movie or episode, Burt Reynolds was the biggest star in the world.
+ - I’m curious about what makes people do things that they do, unless it’s absolutely terrifying to me.
+ - I’m not a good reader. I had to take remedial reading in school. I was a slow reader and therefore it’s tough for me to stay interested in things long enough, I’ve read, probably, since college maybe 10 books, which is disgusting.
+ - The Palestinians need more help from the Arab countries. Since 1967, the world has learned that there is not going to be real progress in the region until Palestine gets something back that they had.
+ - I always made a living as an actor when I came to California. I never had to do anything else.
+ - The people I worked with were bigger than life. Once you put them on the screen, they were huge.
+ - In all American professional sports you start on a certain level and you have to work your way up through a farm system. It’s really the same in acting.
+ - I took Laura on a trip once where we followed the Immigrant Trail for about six hundred miles. She really learned a lesson. People forget too often how it was back then.
+ - I never voted for a president until I felt Obama had a dream and might pull it off, and that was the first time I ever voted for a president.
+ - I’m totally sports-oriented; I relate a lot of my career and everything to sports.
+ - From nine on I was forced to camp every summer. Not a volunteer. I played with the wrong kids so they made me go to camp to straighten me out.
+
+20 quotes

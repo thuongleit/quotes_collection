@@ -1,0 +1,33 @@
+ - Hope is delicate suffering.
+ - And now each night, I count the stars. And each night I get the same number. And when the stars won’t come to be counted, I count the holes they leave.
+ - Poetry is music, and nothing but music. Words with musical emphasis.
+ - A man is either free or he is not. There cannot be any apprenticeship for freedom.
+ - I am inside someone who hates me. I look out from his eyes.
+ - The torture of being the unseen object, and the constantly observed subject.
+ - There is no depth to education without art.
+ - Art is whatever makes you proud to be human.
+ - In America, black is a country.
+ - Back home the black women are all beautiful.
+ - The artist’s role is to raise the consciousness of the people. To make them understand life, the world and themselves more completely. That’s how I see it. Otherwise, I don’t know why you do it.
+ - Most American white men are trained to be fags. For this reason it is no wonder their faces are weak and blank...
+ - To name something is to wait for it in the place you think it will pass.
+ - The future is always here in the past.
+ - My responsibility is to truth and beauty.
+ - There is no justice in America, but it is the fight for justice that sustains you.
+ - I’d say I’m a revolutionary optimist. I believe that the good guys -the people- are going to win.
+ - Words have users, but as well, users have words. And it is the users that establish the world’s realities.
+ - James Brown and Frank Sinatra are two different quantities in the universe. They represent two different experiences of the world.
+ - Who has ever stopped to think of the divinity of Lamont Cranston?
+ - Warriors are poets and poems and all the loveliness here in the worlds.
+ - Art is a weapon in the struggle of ideas, the class struggle.
+ - If you are black, the only roads into the mainland of American life are through subservience, cowardice, and loss of manhood. These are the white man’s roads.
+ - A system that warehouses people is not the cure for social ills.
+ - A rich man told me recently that a liberal is a man who tells other people what to do with their money.
+ - You can’t be an American without being related to other Americans.
+ - The landscape should belong to the people who see it all the time.
+ - The African, because of the violent differences between what was native and what he was forced to in slavery, developed some of the most complex and complicated ideas about the world imaginable.
+ - The further jazz moves away from the stark blue continuum and the collective realities of Afro-American and American life, the more it moves into academic concert-hall lifelessness, which can be replicated by any middle class showing off its music lessons.
+ - A man is either free or he is not.
+ - God is man idealized.
+
+31 quotes

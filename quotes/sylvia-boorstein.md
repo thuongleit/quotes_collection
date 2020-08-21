@@ -1,0 +1,26 @@
+ - Mindfulness is the aware, balanced acceptance of the present experience. It isn’t more complicated that that. It is opening to or recieving the present moment, pleasant or unpleasant, just as it is, without either clinging to it or rejecting it.
+ - Life is painful, suffering is optional.
+ - The mind is like tofu. It tastes like whatever you marinate it in.
+ - Buddha also said that the Dharma, like a bird, needs two wings to fly, and that the wing that balances Wisdom is compassion.
+ - Mindfulness meditation doesn’t change life. Life remains as fragile and unpredictable as ever. Meditation changes the heart’s capacity to accept life as it is.
+ - May I meet each moment fully and meet it as a friend.
+ - I am thankful that thus far today I have not had any unkind thoughts or said any harsh words or done anything that I regret. However, now I need to get out of bed and so things may become more difficult.
+ - Mindfulness is the aware, balanced acceptance of present experience. It isn’t more complicated than that.
+ - When the mind is clear, behavior is always impeccable.
+ - The Buddha taught complete honesty, with the extra instruction that everything a person says should be truthful and helpful.
+ - Suffering is the demand that experience be different from what it is.
+ - Dedication to goodness-dedication in response to an inner moral mandate rather than external restraint-was both the antidote to the pain and the source of great happiness.
+ - Surrender means wisely accommodating ourselves to what is beyond our control.
+ - If you take a deep breath and look around, ‘Look what’s happening to me!’ can become ‘Look what’s happening!’ And what’s happening? The incredible drama of life is happening. And we’re in it!
+ - The prohibition of L’shon Hara is the Jewish equivalent of the Buddhist practice of Right Speech.
+ - The voice of Thich Nhat Hanh-friendly, patient, steadfast, confident, contemporary, and often witty-seems, to me, an intermediary big brother talking directly to me on every page saying, ‘Look! It’s right there in you,’ the very wisdom that leads to compassion.
+ - Clearly the path of mitzvot is a form of meditation. The intention to act impeccably requires complete dedication and unwavering attention. I was also impressed with LUzzato’s insistence that mitzvot practice is joyful.
+ - Mindfulness is attentiveness, moment to moment. What’s happening right now and what’s coming up in me in response to what’s happening right now. Importantly, this is in the service of being able to choose wisely so that I avoid complicating my own life and the lives of others.
+ - People are realizing that what seemed important to them in their lives-materialism and consumerism-doesn’t work at all to make a happy heart. It actually makes an unhappy heart. And an unhappy world.
+ - If we can keep at least a bit of the mind clear about temporality, we can mange complicated, even difficult, times with grace.
+ - Concentration and mindfulness are the internal ways in which the mind restores itself from being out of balance and lost in confusion to a condition of ease, clarity, and wisdom. No external action needs to happen.
+ - Steadfast benevolence, sustained by the wisdom that anything other than benevolence is painful, protects the mind from all afflictions.
+ - Spirituality doesn’t look like sitting down and meditating. Spirituality looks like folding the towels in a sweet way and talking kindly to the people in the family eve though you’ve had a rough day.
+ - My redeemer is always the person next to me.
+
+24 quotes

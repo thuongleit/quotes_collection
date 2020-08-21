@@ -1,0 +1,29 @@
+ - The best way to remember your wife’s birthday is to forget it once.
+ - A city is a large community where people are lonesome together.
+ - You may be sorry that you spoke, sorry you stayed or went, sorry you won or lost, sorry so much was spent. But as you go through life, you’ll find – you’re never sorry you were kind.
+ - Ignorance is a voluntary condition.
+ - A visitor from Mars could easily pick out the civilized nations. They have the best implements of war.
+ - Old gardeners never die. They just spade away and then throw in the trowel.
+ - A real friend will not visit you in prosperity unless he is invited, but when you are in adversity he will call without invitation.
+ - There is a time when we must firmly choose the course we will follow, or the relentless drift of events will make the decision for us.
+ - If you would like to leave footprints in the sands of time, you had better wear work shoes.
+ - If you would like to live in a community in which you may have pride, then dedicate yourself in a spirit of humility and your responsibilities in that community.
+ - There is no cure for laziness but a large family helps.
+ - When money talks, there are few interruptions.
+ - A little tomato who knows her onions can go out with an old potato and come home with a lot of lettuce and a couple of carats.
+ - Maybe more youngsters would stay home at nights if they were not afraid to stay alone at nights.
+ - Inexperience is what makes a young man do what an older man says is impossible.
+ - It’s strange how few of the world’s great problems are solved by people who remember their algebra.
+ - The home is where part of the family waits until the others are through with the car.
+ - A great many people mistake opinions for thoughts.
+ - Some are bent with toil, and some get crooked trying to avoid it.
+ - A diet is a plan, generally hopeless, for reducing your weight, which tests your will power but does little for your waistline.
+ - There is nothing that makes a man more self-satisfied than a poor memory.
+ - You never have to know all the answers because you won’t be asked all the questions.
+ - A banker is a person who is willing to make you a loan if you present sufficient evidence to show you don’t need it.
+ - If you are ignorant, you certainly can get into some interesting arguments.
+ - When better business decisions are made, economists won’t make them.
+ - There’s nothing like the first horseback ride to make a person feel better off.
+ - A radical thinks two and two makes five. A liberal is more conservative. he knows two and two make four, but he’s unhappy about it.
+
+27 quotes

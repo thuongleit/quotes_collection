@@ -1,0 +1,33 @@
+ - But I think happiness springs from another source, a far deeper one that doesn’t depend on will because it comes from love.
+ - The sky is one whole, the water another; and between those two infinities the soul of man is in loneliness.
+ - But the French writers always had more originality and independence than others, and that regulator, which elsewhere was religion, long since ceased to exist for them.
+ - There is within us a moral instinct which forbids us to rejoice at the death of even an enemy.
+ - If the infinity of the sea may call out thus, perhaps when a man is growing old, calls come to him, too, from another infinity still darker and more deeply mysterious; and the more he is wearied by life the dearer are those calls to him.
+ - I know that even the meanest person has still at his disposition high-sounding words wherewith to mask his real character.
+ - Wealth is not a hindrance, but rather a help towards attaining a proper standing in a chosen field of activity. I confess that as far as I am concerned, it has done me some service as it preserved my character from many a crookedness poverty might have exposed it to.
+ - Day is like day as two beads in a rosary, unless changes of weather form the only variety.
+ - Life deserves laughter, hence people laugh at it.
+ - Nevertheless, in this sea of human wretchedness and malice there bloomed at times compassion, as a pale flower blooms in a putrid marsh.
+ - In the presence of the storm, thunderbolts, hurricane, rain, darkness, and the lions, which might be concealed but a few paces away, he felt disarmed and helpless.
+ - It has been said that Poland is dead, exhausted, enslaved, but here is the proof of her life and triumph.
+ - England is never in a hurry because she is eternal.
+ - On an exhausted field, only weeds grow.
+ - An excessive preponderance of an idealistic mood is harmful to society: it creates daydreaming, political Don Quixotism, hope for heavenly intervention. This is an undeniable truth – but it is also true that every extreme is harmful.
+ - The profession of the writer has its thorns about which the reader does not dream.
+ - My position is such that there is no necessity for me to enter into competition with struggling humanity. As to expensive and ruinous pleasures, I am a sceptic who knows how much they are worth, or rather, knows that they are not worth anything.
+ - He always smiles, even when contemplating nothing good.
+ - Anxiety prepares the organism badly for an ordeal which even under more favorable circumstances would not be an easy thing to bear.
+ - I consider that in dialectics I am the equal of Socrates. As to women, I agree that each has three or four souls, but none of them a reasoning one.
+ - The shots had dispersed the birds; there remained only two marabous, standing between ten and twenty paces away and plunged in reverie. They were like two old men with bald heads pressed between the shoulders.
+ - In the meantime the groans changed into the protracted, thunderous roar by which all living creatures are struck with terror, and the nerves of people, who do not know what fear is, shake, just as the window-panes rattle from distant cannonading.
+ - I go to church because I am a skeptic in regard to my own skepticism.
+ - The sky is one whole, the water another.
+ - The fact is that between the classes there is a vast gulf that precludes all mutual understanding, and makes simultaneous efforts simply impossible.
+ - Evidently the merit depends on the result of the work.
+ - A man who leaves memoirs, whether well or badly written, provided they be sincere, renders a service to future psychologists and writers, giving them not only a faithful picture, but likewise human documents that may be relied upon.
+ - It is an altogether wrong idea that the modern product of civilization is less susceptible to love. I sometimes think it is the other way.
+ - Every novelist should write something for children at least once in his lifetime.
+ - This homage has been rendered not to me – for the Polish soil is fertile and does not lack better writers than me – but to the Polish achievement, the Polish genius.
+ - There is probably no greater idler than myself. And I would consider myself a lazy-bones if I did not write so many volumes, and if I did not admire my diligence once I begin writing.
+
+31 quotes

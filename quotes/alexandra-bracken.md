@@ -1,0 +1,66 @@
+ - Let’s carpe the hell out of this diem.
+ - The darkest minds never fade in the afterlight.
+ - Give ’em hell, darlin.
+ - The Darkest Minds tend to hide behind the most unlikely faces.
+ - Cause, frankly, the way I see it, you and me? Inevitable.
+ - They were never scared of the kids who might die, or the empty spaces they would leave behind. They were afraid of us-the ones who lived.
+ - Never, never, never. I am never going to forget you.
+ - And people like you are the reason we have middle fingers.
+ - Forgive yourself, but don’t forget.
+ - We’ll just have to try to make better mistakes tomorrow.
+ - This is a place we don’t have to lie.
+ - He’s so busy looking inside people to find the good that he misses the knife they’re holding in their hand.
+ - I used to dream about turning back time, about reclaiming the things I’d lost and the person I used to be.
+ - You can destroy a factory, and they’ll build another. But once you destroy a life, that’s it. You never get that person back.
+ - Ghosts don’t haunt people – their memories do.
+ - When a girl cries, few things are more worthless than a boy.
+ - I don’t want to just see someone’s face; I want to know his shadow, too. – Jude.
+ - The most important thing you ever did was learn how to survive. Do not let anyone make you feel like you shouldn’t have.
+ - You are actually the worst person I have ever met.
+ - If there was one good thing that came out of all this, it was that I got to meet you. I would go through it all again – I would, as long as it meant I’d met you.
+ - I think I’m losing it – I don’t know what’s happening, what happened, but I look at you, I look at you, and I love you so much. Not because of anything you’ve said, or done, or anything at all. I look at you, and I just love you, and it terrifies me. It terrifies me what I would do for you.
+ - What I’m trying to get at is, as bad as everything seems, I think, at its heart, life is good. It doesn’t throw anything at us that it knows we can’t handle – and, even if it takes its time, it turns everything right side up again.
+ - Dreaming led to disappointment, and disappointment to a kind of depressed funk that wasn’t easy to shake. Better to stay in the gray than get eaten by the dark.
+ - I bet it gets pretty lonely with only your ego for company.
+ - If a heart could break once, it shouldn’t have been able to happen again.
+ - Everyone needs reality to punch them in the face every once in a while. Keeps you on guard.
+ - We want you. We wanted you yesterday, we want you today and we’ll want you tomorrow. There’s nothing you could do to change that.
+ - We have no idea, but its not like we’re going to win any awards for normalcy anytime soon. So you get into people’s heads? The two of us can throw people around like toys. Zu once blew up an AC unit, and all she did was walk by it.
+ - But there’s a beginning in an end, you know? It’s true that you can’t reclaim what you had, but you can lock it up behind you. Start fresh.
+ - But inside or out, I was alone, and I was beginning to wonder if I always had been, if I always would be.
+ - Clancy had taught me well.
+ - But part of surviving is being able to move on.
+ - They want you to think that darkness or evil is only something that gets inflicted on you by the outside world, but I know better, and I think the freak does, too. Sometimes the darkness lives inside you, and sometimes it wins.
+ - If you’re going to knock down my suggestion, you’d better have one to replace it.
+ - I’m a monster, you know. I’m one of the dangerous ones. No you aren’t, he promised. Your one of us.
+ - I feel like I’m losing my damn mind, like your face has been carved into my heart, and I don’t remember when, and I don’t understand why, but the scar is there, and I can’t get it to heal. It won’t go. I can’t make it fade. And you won’t even look at me.
+ - Ruby, give me one reason why we can’t be together, and I’ll give you a hundred why we can. We can go anywhere you want. I’m not your parents. I’m not going to abandon you or send you away, not ever.
+ - Maybe we had just gotten too used to being alone – and maybe that needed to change.
+ - Sometimes you’re the one speeding along in a panic, doing too much, not paying attention, wrecking things you don’t mean to. And sometimes life just happens to you, and you can’t dodge it. It crashes into you because it wants to see what you’re made of.
+ - I closed my eyes. I forced myself to relax, to remember that here, now, and always, I was the predator.
+ - I think maybe the most frustrating feeling in the world is to have something to say buy not know how to put it into words. To have lived through something but not be able to get it out of you before it festers.
+ - Sometimes the darkness lives inside you, and sometimes it wins.
+ - Ruby, I lied before. I would have run. – CG.
+ - He’s just like a stallion. Wild and kicking on the outside, but a heart soft as satin on the inside. Just waiting for the right girl to break him in.
+ - I pulled myself from his mind, day by day, piece by piece, memory by memory, until there was nothing of Ruby left to weigh him down or keep him bound to my side...
+ - I hugged him without any kind of fear or self-consciousness, fiercely, with a rush of emotion that almost brought tears to my eyes. “I could kiss you!” Chubs cried. “Please don’t!” I gasp out, feeling his arms tighten around my ribs to the point of cracking them.
+ - It’s in our blood to start again.
+ - Dear Dad, When you sent me to school that morning, I thought you loved me. But now I see you for what you are. You called me a monster and a freak. But you’re the one that raised me.
+ - Breathing him in wasn’t enough, I wanted to inhale him. The leather, the smoke, the sweetness.
+ - You get a good review, and it’s like crack. You need another hit. And another. And another. I know authors are like Tinkerbell and generally need applause to survive, but it’s a slippery slope.
+ - Try to imagine where we’d be without you, darlin’, and then maybe you’ll see just how lucky we got.
+ - A moment later, Liam’s bright blue eyes opened, and he was seeing me. He just wasn’t seeing Ruby.
+ - Owain told me about the beautiful, fair-haired Vesta. It took me several minutes to work out that Vesta was a horse, and that Owain was possibly in love with her.
+ - It was almost painful, I thought, to have a heart so swollen with gratitude and what must have been pure, untainted happiness. I wanted to live inside the feeling forever.
+ - I can’t make it fade.
+ - Because she knows what it’s like to live in a world of black, and black, and the tiny bit of white, but when she escaped it, she didn’t find the rainbow of colors, the dresses, the singing, the dancing. She only found ugliness.
+ - He doesn’t bring many girls round unless they’re part of a job – but also ’cause his smell can sometimes kill kittens.
+ - I was just an okay person.
+ - What good is strength if you have no sense?
+ - The thing that scares me is that some part of me understands where they’re coming from. They took everything from us, you know? Why shouldn’t we be able to take it back if we have the power to?
+ - But there was another, secret Ruby. This one was as thin as a wisp of air, and had struggled for so long just to be. This was the one that Liam carried with him, without knowing. The one that would ride in his back pocket, whisper words of encouragement, tell him he was born to chase the light.
+ - He held me against him gently, as if I was glass – as if I could shatter and fall away from him at any moment and leave him breathless and alone once more.
+ - Everyone is just making the choices they think will help them get by.
+ - That was the Liam Stewart way of saying, Hi, darlin’, missed you something fierce.
+
+64 quotes

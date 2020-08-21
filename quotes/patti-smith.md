@@ -1,0 +1,292 @@
+ - People have the power to redeem the work of fools.
+ - Got to lose control before you take control.
+ - Put down your cell phones, put everything away, and feel your blood pulsing in you, feel your creative impulse, feel your own spirit, your heart, your mind. Feel the joy of being alive and free.
+ - Life is like a roller coaster. It’s never going to be perfect – it is going to have perfect moments, and then rough spots, but it’s all worth it.
+ - I didn’t waste my time on things I didn’t love.
+ - Jesus died for somebody’s sins but not mine.
+ - Never let go of that fiery sadness called desire.
+ - To me, punk rock is the freedom to create, freedom to be successful, freedom to not be successful, freedom to be who you are. It’s freedom.
+ - Love is an angel disguised as lust.
+ - Make your interactions with people transformational, not just transactional.
+ - Punk rock is just another word for freedom.
+ - No one expected me. Everything awaited me.
+ - Ultimately, I want to make everyone horny.
+ - Paths that cross will cross again.
+ - Art is by nature optimistic. Art is optimistic because it is alive.
+ - I think guys are more emotional. Men are supposed to be the strong ones, they have pressure on them to be strong, but when it comes to sex men are much more emotional than women.
+ - You can’t make a mistake when you improvise.
+ - I’m an artist. I’m interested in how art gets made.
+ - Words are just rules and regulations to me.
+ - If you don’t have what you need, just rock with what you’ve got!
+ - Desire is hunger is the fire I breathe, love is a banquet on which we feed.
+ - Those who have suffered understand suffering and therefore extend their hand.
+ - One day we’ll go in together, and the work will be ours.
+ - Remember, we are mortal, but poetry is not.
+ - I don’t think the average American understands what patriotism truthfully is. That’s why when I attack our country or attack the government, it’s sometimes looked at as unpatriotic. It’s not.
+ - I walk alone, assaulted it seems, by tears from heaven.
+ - I immersed myself in books and rock ‘n’ roll, the adolescent salvation...
+ - An artist wears his work in place of wounds.
+ - I have loved books all my life. There is nothing more beautiful in our material world than the book.
+ - I had gone to Paris to immerse myself in painting and I came back wholly involved in words and rhythms.
+ - Outside of society, if you’re looking that’s where you’ll find me.
+ - Good press, bad press, whatever, only means a lot to me if it’s writ by somebody I respect, by somebody I like.
+ - We tried not to age, but time had its rage.
+ - I think I’m constantly in a state of adjustment.
+ - New York is the thing that seduced me. New York is the thing that formed me. New York is the thing that deformed me. New York is the thing that perverted me. New York is the thing that converted me. And New York is the thing that I love too.
+ - Where does it all lead? What will become of us? These were our young questions, and young answers were revealed. It leads to each other. We become ourselves.
+ - If you over-plan, you close the door on possibilities.
+ - We go through life. We shed our skins. We become ourselves.
+ - We went our separate ways, but within walking distance of one another.
+ - Swift is the arrow, dark is the thorn, the slate is clean, the future awaits, awake.
+ - In the war of magic and religion, is magic ultimately the victor? Perhaps priest and magician were once one, but the priest, learning humility in the face of God, discarded the spell for prayer.
+ - We need a new cosmology. New gods. New sacraments. Another drink.
+ - Polaroid by its nature makes you frugal. You walk around with maybe two packs of film in your pocket. You have 20 shots, so each shot is a world.
+ - Deep in my heart how the presence of you shines, in a light to last a whole life through.
+ - I gave you a wrist watch, baby, and you wouldn’t even give me the time of day.
+ - When I was a teenager, I had trouble getting a boyfriend, so I imagined Arthur Rimbaud or Bob Dylan as my boyfriend.
+ - Since childhood, it was my dream to go where all the poets and artists had been. Rimbaud, Artaud, Brancusi, Camus, Picasso, Bresson, Goddard, Jeanne Moreau, Juliette Greco, everybody – Paris for me was a Mecca.
+ - Good news doesn’t necessarily have to be a positive thing. Bringing good news is imparting hope to one’s fellow man.
+ - As far as I’m concerned, being any gender is a drag.
+ - The people have the power to redeem the work of fools. Upon the meek the graces shower, it’s decreed the people rule.
+ - You’re not a rock ‘n’ roll person four hours a day or even when you’re on stage. It’s become the rhythm of your whole life.
+ - I know fashion is a material thing, but we live in a material world and I love clothes.
+ - I always wanted to be an artist, writer and poet since I was seven, and one has to live long enough to evolve as an artist and do one’s finest work.
+ - I just know that young people suffer, and I also know music is one of the things that help you get through – music and friends.
+ - I longed to read everything I possibly could, and the things I read in turn produced new yearnings.
+ - Blessedness is within us all.
+ - Everything distracted me, but most of all myself.
+ - I’m not really a musician. I’m a performer and I love rock ‘n’ roll.
+ - One of my great goals when I first started taking photographs or showing them publicly is that people might want one for over their desk. That’s my goal.
+ - We wanted, it seemed, what we already had, a lover and a friend to create with, side by side. To be loyal, yet be free.
+ - As I grew up, one of my strongest allies has been my sister.
+ - Life is an adventure of our own design intersected by fate and a series of lucky and unlucky accidents.
+ - Life isn’t some vertical or horizontal line – you have your own interior world, and it’s not neat.
+ - I’ve lost many, many friends through natural causes, through alcohol, through drugs, through AIDS. And every time I lose a friend or a loved one, it reminds me how great life is.
+ - Finally, by the sea, where God is everywhere, I gradually calmed.
+ - In art and dream may you proceed with abandon. In life may you proceed with balance and stealth.
+ - When I was a kid, I loved Sherlock Holmes. I’m not interested in crimes. I’m interested in the mind of the detective and his process, which to me is a lot like the artist.
+ - I use drugs to work. I never use them to escape or for pleasure. When you turn to drugs, all you’re doing is turning inside, anyway. I only use drugs for construction. It’s like one of my architectural tools.
+ - We were as Hansel and Gretel and we ventured out into the black forest of the world.
+ - I believe we all have a unique journey, whether its a journey of pure energy, if there’s any intelligence within the journey. But I think each of us have our own way of dissipating or entering a new field.
+ - Then I read Little Women, and of course, like a lot of really young girls, I was very taken with Jo – Jo being the writer and the misfit.
+ - I learned from him that often contradiction is the clearest way to truth.
+ - I’m a total failure at housewifery. I always have been, ’cause I daydream too much. If I start doing the dishes at one in the afternoon, I’ll still be there at six in the evening.
+ - I don’t consider writing a quiet, closet act. I consider it a real physical act. When I’m home writing on the typewriter, I go crazy. I move like a monkey. I’ve wet myself, I’ve come in my pants writing.
+ - Hung-up women can’t produce anything but mediocre art, and there ain’t no room for mediocre art.
+ - I love my little overgrown yard. And my house is wonderful. It’s everything that I need.
+ - I have great respect for my parents. I got such beautiful things from both of them. It doesn’t mean that we didn’t have our rough times, but they were remarkable people who were open-minded, creative and hard-working, and had great senses of humor.
+ - Pollution is a necessary result of the inability of man to reform and transform waste.
+ - The idea of redemption is always good news, even if it means sacrifice or some difficult times.
+ - I imagined myself as Frida to Diego, both muse and maker. I dreamed of meeting an artist to love and support and work with side by side.
+ - I have a daughter who’s 11 years old. Maybe she’ll grow up independent and really really heavy and become a movie star and she’ll play me in my life story.
+ - Most women writers don’t interest me because they’re hung up with being a woman, they’re hung up with being Jewish, they’re hung up with being somebody or other. Rather than just going, just spurting, just creating.
+ - New York is the thing that seduced me.
+ - It will not fall away. Man cannot judge it. For art sings of God, and ultimately belongs to Him.
+ - We used to laugh at our small selves, saying that I was a bad girl trying to be good and that he was a good boy trying to be bad. Through the years these roles would reverse, then reverse again, until we came to accept our dual natures. We contained opposing principles, light and dark.
+ - Wisdom was a teapot, pouring from above. Desolation angels, served it up with love.
+ - Your soul was like a network of spittle.
+ - There’s nothing cool about being self-destructive.
+ - We believe we will raise the sky, we got to fly over the land, over the sea. Fate unwinds and if we die, souls arise. God, do not seize me please.
+ - My sunglasses are like my guitar.
+ - Technology is 50% of rock ‘n’ roll – the magic, the art, the performance. If you don’t have good technicians and a strong road crew who are devoted and believe in you and protect you, you’re totally naked.
+ - An artist is somebody who enters into competition with God.
+ - I feel about politics the same way I do about religion: I find the best I can from different things.
+ - I felt alien my whole life, but I didn’t feel alien because of my gender. Other people made me aware of my gender.
+ - Who can know the heart of youth but youth itself?
+ - Will you pretend you’re my boyfriend?
+ - I don’t think the area of Jerusalem should be part of a Jewish state; it belongs to all people, to Christians and Muslims and the Jewish people.
+ - I was so horny in school it felt like my body was filled with electricity. I felt like I had neon bones or something.
+ - The issue of gender was never my biggest concern; my biggest concern was doing good work. When the feminist movement really got going, I wasn’t an active part of it because I was more concerned with my own mental pursuits.
+ - I was a lower middle-class kid. My family had no money. There was no room in our small house where there were already four kids, including myself, living.
+ - I had no proof that I had the stuff to be an artist, though I hungered to be one.
+ - Should I pursue a path so twisted? Should I crawl defeated and gifted?
+ - I have vague memories, like impressions on glass plates...
+ - You can’t carve up the world. It’s not a pie.
+ - I’m from South Jersey: The idea of eating a roll with olive oil and anchovies or some kind of sardine and drinking mint tea definitely comes from reading Paul Bowles.
+ - I always enjoyed doing transgender songs.
+ - I think it’s important for people to realize that we were all young, all naive, and also we had lived in a time that had magic.
+ - So my last image was as the first. A sleeping youth cloaked in light, who opened his eyes with a smile of recognition for someone who had never been a stranger.
+ - Fate is like a secret friend that helps push you on into life.
+ - I realize that people need something to believe in.
+ - Well, I’m not one of those people who needs the limelight. If I’m performing, that’s what I’m doing. If I’m not, I don’t long for it. I don’t need the approval of an audience, or applause.
+ - Ultimately, we are not seeking others to bow to, but to reinforce our individual natures, to help us suffer our own choices, to guide us on our own particular journeys.
+ - My father was always talking about God, and I idolized my father, so I’d spend hours trying to have mental telepathy with God.
+ - I was so used to doing art that my fingers were like albino spiders. So it was just natural for me to go to a typewriter and write poetry.
+ - I was like one of the boys in school who flap their legs frantically under the desk. I always had this weird feeling between my legs and I had no idea what it was. I didn’t know girls masturbated. I never touched myself or anything...
+ - I want to keep my life as unfettered as possible. So maybe I’ll just pretend to get rare books from my catalogue, and not really get them.
+ - When I was young, I knew William Burroughs really well. And William’s secret desire, which he never quite did, was to write a straightforward detective novel.
+ - I believe myself to be an artist. That was my calling, to do my work, and what’s most important to me is to do the best work I possibly can. And that is what means the most, that is what will endure.
+ - Nothing is a hobby – each discipline is its own world with its own high standards. Of course, every artist has ‘minor works’ that they do, but I don’t think I have any ‘minor disciplines.’
+ - I wasn’t taking drugs or drinking. I was working and working and working. But I wasn’t writing anything.
+ - I wasn’t a stranger to hard times. I used to read the Bible – well, I still do, but when I was young I read the Bible quite a bit.
+ - A lot of children don’t have a developed aesthetic. I did. I made early choices in life, even about cloth; I liked flannel and not polyester.
+ - I thought to myself that he contained a whole universe that I had yet to know.
+ - I was raised in rural south Jersey, and there was no culture there. There was a small library, and that was it. There was nothing else.
+ - I personally am not interested in people trying to pigeonhole me.
+ - Why do people want to know exactly who I am? Am I a poet? Am I this or that? I’ve always made people wary. First they called me a rock poet. Then I was a poet that dabbled in rock. Then I was a rock person who dabbled in art.
+ - My style of performance poetry came from the beatniks, Allen Ginsberg.
+ - I wasn’t writing, I wasn’t drawing, and personality-wise, I was just completely arrogant. I’m not trying to be overly apologetic for my behavior – I wasn’t evil. The lifestyle I had was one that lent itself to becoming more and more self-involved.
+ - I’d try to write my poems in a certain rhythm. I had my rock ‘n’ roll stuff for performing and my denser stuff for writing.
+ - I dreamed of having a book of my own, of writing one that I could put on a shelf.
+ - People like beauty and purity. They pretend that’s what it’s all about.
+ - I never felt oppressed because of my gender. When I’m writing a poem or drawing, I’m not a female; I’m an artist.
+ - Hail brother, the distant thunder is nothing but hearts beating as one.
+ - Sometimes you’re doing really well, then, after three or four years, everything inexplicably crashes like a house of cards and you have to rebuild it. It’s not like you get to a point where you’re all right for the rest of your life.
+ - I think I work in two worlds. I’ll always try to kick through a wall. I did that when I was younger and I still have my way of doing that.
+ - I’ve lost lots of men in my life, besides my mother, which is a whole different loss.
+ - I’ve embraced rock ‘n’ roll because it encompasses all the things I’m interested in: poetry, revolution, sexuality, political activism – all of these things can be found in rock ‘n’ roll. But I am also engaged in all of these things separately.
+ - I refuse to believe that Hendrix had the last possessed hand, that Joplin had the last drunken throat, that Morrison had the last enlightened mind.
+ - Acknowledge all man as fellow creation, but don’t follow him.
+ - If we keep our little flame alive, our first feeling of enthusiasm of who we are, without the influence or intervention of others, we will prevail.
+ - New York has closed itself off to the young and the struggling. But there are other cities. Detroit. Poughkeepsie. New York City has been taken away from you. So my advice is: Find a new city.
+ - If I’m really working on something, writing or painting or really concentrating, I don’t even think about brushing my hair.
+ - New generations have unprecedented power to make great changes. Take the music business for example. The new generations have toppled the music industry by file sharing, downloading, and Myspace. Rock ‘n’ roll belongs to the people.
+ - Sure I destroyed my guitar at every concert, but it was okay, because I’d always get a shiny new one the very next day.
+ - Within that moment was trust, compassion, and our mutual sense of irony. He was carrying death within him and I was carrying life. We were both aware of that, I know.
+ - I’m here right now and I want now to be the greatest time.
+ - Christianity made us think there’s one heaven.
+ - I’ve always thrived on the encouragement of others.
+ - People called me the godmother of punk, but I never name myself anything.
+ - I’m pretty moral about what I do. If I didn’t think I was worthy of doing something, I wouldn’t do it. I ain’t gonna waste a bunch of people’s time.
+ - Hey sister, you’re just moving too fast, you’re screwing up the quota.
+ - If I have any regrets, I could say that I’m sorry I wasn’t a better writer or a better singer.
+ - All I’ve ever wanted, since I was a child, was to do something wonderful.
+ - My father was a dreamy fellow – he read Plato and Socrates and watched Phillies games.
+ - What is the soul? What color is it? I suspected my soul, being mischievous, might slip away while I was dreaming and fail to return. I did my best not to fall asleep, to keep it inside of me where it belonged.
+ - The new artists coming through were very materialistic and Hollywood, not so engaged in communication.
+ - For me, personally, I think drugs are sacred and should be used for work. That’s what I believe in. Drugs have a real shamanistic value. I can handle drugs. I’ve never had a problem.
+ - It was no hardship to me to spend long hours reading and writing.
+ - The only parts I like out of any of those women books is the dirty parts. But I don’t think their dirty parts are any good, really.
+ - I hate to be enclosed. I don’t like bathroom doors – I don’t shut them. In fact, in my house, I have no doors.
+ - I’ve never felt grounded because of my ancestry or my gender. I think until women get away from that they’re not going to be great writers.
+ - My mother and father had so many ups and downs and stayed with each other and helped each other. My mother took in ironing and she was a waitress. My father was working in the factory and he did people’s tax returns.
+ - Why can’t I write something that would awake the dead? That pursuit is what burns most deeply.
+ - I want to be around a really long time. I want to be a thorn in the side of everything as long as possible.
+ - In the period where I had to live the life of a citizen – a life where, like everybody else, I did tons of laundry and cleaned toilet bowls, changed hundreds of diapers and nursed children – I learned a lot.
+ - Somehow I started introducing writing into my drawings, and after a time, the language took over and I started getting very involved with the handwriting and then the look of the handwriting.
+ - Everyone thinks of God as a man – you can’t help it – Santa Claus was a man, therefore God has to be a man.
+ - My father’s mother was from Liverpool and she had this very beautiful English china. I only wanted to drink my cocoa out of my grandmother’s cup and saucer.
+ - What I wanted to do in rock ’n roll was merge poetry with sonic scapes, and the two people who had contributed so much to that were Jimi Hendrix and Jim Morrison.
+ - My father hated rock and roll – hated it. My first real argument with my father was over the Rolling Stones. And he never, ever liked rock and roll. He just liked me.
+ - My mother answers all my fan mail.
+ - The only way I can lose my mind in bed is to destroy myself in a fantasy.
+ - I love to photograph the tools of one’s trade: Duncan Grant’s paintbrushes, the typewriter of Herman Hesse, or even my own guitar, a 1957 Fender Duo-Sonic.
+ - Sometimes I just wanted to raise my hands and stop. But stop what? Maybe just growing up.
+ - Even as a child, I knew what I didn’t want. I didn’t want to wear red lipstick.
+ - Maybe I’ll be 48 and die in the gutter in Paris.
+ - I could have a job as a teacher because I like talking in front of people.
+ - The hand above turns those leaves of loves, all in all a timeless view. Each dream of life flung from paradise everlasting, ever new.
+ - I wasn’t thinking so much of music. I wasnt thinking so much of perfection or stardom or any of that stuff.
+ - I’m not saying I wasn’t flawed or amateurish. But you can never say I did anything to appease the music business.
+ - Just because I’ve extricated myself from religion doesn’t mean I’m not interested in the scriptures. I look at the Bible as itself. It’s a holy book, it has incredible literature in it and beautiful poetry.
+ - The things I thought would happen didn’t. Things I never anticipated unfolded.
+ - I loved books; I read my childhood away. I was more interested in my interior world.
+ - All of my role models, whether it was the disciples, or John the Baptist or Arthur Rimbaud, slept under the stars.
+ - I came into music because I thought the presentation of poetry wasn’t vibrant enough. So I merged improvised poetry with basic rock chords.
+ - Grief isn’t all tears.
+ - I was never a singer; I can’t play any instruments; I had no training. Plus, I was brought up in a time when all the great rock stars were male. I didn’t have any template for what I was doing. I did what I did out of frustration and concern.
+ - I always wrote like rock ‘n’ roll. And I always listen to rock ‘n’ roll as poetry.
+ - I think its very important that we enjoy our life, that we get everything we can out of it.
+ - I reflected on the fact that no matter how good I aspired to be, I was never going to achieve perfection.
+ - A good artist’s always got his hand in his zipper.
+ - I was horny, but I was innocent ’cause I was a real-late bloomer and not particularly attractive. In fact, homely.
+ - An artist may have burdens the ordinary citizen doesn’t know, but the ordinary citizen has burdens that many artists never even touch.
+ - I had a handful of records, but when I was 11 years old, I liked Puccini as much as Little Richard. They both made sense to me.
+ - I knew if I lived long enough I would be poet laureate of something.
+ - When I stopped performing for 16 years and lived in Michigan and was married and raising my children, I wrote about four or five books. I haven’t published them.
+ - People say hello to me. I mean, sometimes the sanitation truck goes by and says, hey Patti...
+ - I wrote every day. I don’t think I could have written ‘Just Kids’ had I not spent all of the 80s developing my craft as a writer.
+ - I was quite an insomniac. I rarely slept as a child. Having God to talk to at night was nice.
+ - My father came a couple of times, but he always blamed his hearing loss on my loud amplifiers. So he didn’t come anymore, but I had his support.
+ - I didn’t know Kurt Cobain or Amy Winehouse, but I was affected by both of their deaths because I admired their work so much and mourned their youth and work they would never produce.
+ - People say the media is feeding the public’s hunger for celebrity news, but that’s the drug pusher’s mentality. I don’t think anybody would be pining for news about Angelina Jolie’s babies if it weren’t being given to them in the first place.
+ - I’m a worker. I do the work to communicate, and I want people to embrace it, and when they do I’m happy.
+ - Since I was a child, I hated having to deal with my hair. I hated having to change my clothes. As a kid, I had a sailor shirt and the same old corduroy pants, and that’s what I wanted to wear everyday.
+ - Obviously, I’m not homeless. I’m not an old alcoholic. I’m not jumping trains. I just like to live in a certain way.
+ - If your label won’t let you have the cover you want or sing the songs you want, then leave!
+ - It’s no secret – I love detective fiction. One of the reasons I love being in London is because I like to watch all the shows on TV. I watch them all.
+ - My mother had no end of tragedy in her life. She would make herself get up and take a deep breath and go out and do laundry. Hang up sheets.
+ - I’ve said this over and over, but I’ll say it a million more times – I’m concerned more about the death of a bee than I am about terrorism. Because we’re losing hives and bees by the millions because of such strong pesticides.
+ - I don’t know why, the very first word on my very first record is ‘Jesus.’ I still invoke him as an entity to reckon with.
+ - I’m not really a nostalgic person.
+ - I’ve always considered myself a writer.
+ - My mother loved rock and roll. She loved high-energy music.
+ - I never thought of being a performer, never thought of being a singer, never thought of being a photographer. It’s just the trajectory of my work. I go to the medium that serves the vision.
+ - There are so many great 19th-century photographers, and it’s really my favorite period, but the amateurs did such beautiful work.
+ - In 1974, when I started working with the material that became ‘Horses,’ a lot of our great voices had died. We’d lost Jimi Hendrix and Jim Morrison and Janis Joplin, and people like Robert Kennedy, Martin Luther King and Malcolm X.
+ - I hated the makeup. I hated all that pancake makeup. I didn’t really like dressing for parts.
+ - One thing I like about getting older is things, your spectrum widens, your capacity for compassion widens.
+ - Hopefully if you create something fine, people will relate to it, so you’re communicating with people, and you’re not in a void. On the other hand, because you’re always creating and transforming, art always separates you – always.
+ - The two things that constantly inspired me were books and travel.
+ - I liked being on stage, I just didn’t like the theatrical aspect of being in front of people.
+ - When I’m on my own with my camera, taking these pictures, it feels as if I am in a room of my own, a self-contained world.
+ - I’m an intuitive musician. I have no real technical skills. I can only play six chords on the guitar.
+ - I wanted to go to Portland because it’s a really good book town.
+ - Writing is not some quiet, closet act.
+ - I was real religious when I was young. I wanted to be a missionary.
+ - I’m more concerned with the work people do than their gender. When I was younger, I was pretty judgmental. Things had to be a certain way. Now I just want to see the work. It doesn’t matter who does it.
+ - When I perform I always opt for communication with God and in pursuit of communicating with God you can fall into some very dangerous territory. I have also come to realize that total communication with God is physical death.
+ - I don’t think people should do biopics of living people. I’m totally opposed to that.
+ - I think its very important to not be afraid to experience joy in the middle of sorrow.
+ - I started thinking what could happen with my art and I realized that the biggest thing that could is that it winds up in a museum. It’s like finding a rare animal and putting it in the zoo.
+ - I’m not much a role model in terms of hair care, though.
+ - I am not really certain how original my contribution to music is as I am obviously an amateur.
+ - More than anything, that’s been the thread through my life – the desire to write, the impulse to write. I mean, it’s taken me other places, but it was the impulse to write that led me to singing.
+ - Usually when I go to a place for the first time, unless there’s something historical or spectacular that nature has to offer, the first thing I like to do is see what’s on the minds of the people.
+ - I never really wanted to be a singer – not with any longevity. But I always wanted to be a writer.
+ - You don’t want to OD on improvisation.
+ - For I desired, as Youth does, to be taken by the hand and hurled into the world.
+ - I had a really happy childhood – my siblings were great, my mother was very fanciful, and I loved to read. But there was always financial strife.
+ - I know I’m a strong performer. I’m not an evolved musician.
+ - I hated the soup and felt little for the can.
+ - My introduction to photography and a lot of how I developed aesthetically was through ’50s and early-’60s fashion magazines like Harper’s Bazaar and Vogue.
+ - My mission is to communicate, to wake people up, just to give them my energy and accept theirs.
+ - People came at me with all sorts of offers, wanting to make me into a hard-core Cher. I had no desire for any amount of money to be reformed for someone’s vision, because in the end, that’s what you got: your clay in someone else’s hands.
+ - I think some of that hopelessness of my generation got passed on to later generations – the sense of uselessness.
+ - I’ve written a lot of prose. I just haven’t published it.
+ - I was so involved in my boy-rhythms that I never came to grips with the fact that I was a girl. I was twelve years old when my mother took me inside and said, “You can’t be outside wrestling without a T-shirt on.” It was a trauma.
+ - I’d never had people drive me around, and then all of a sudden, if a car didn’t come, I’d say, “Where’s my car?”
+ - My public life was so demanding that I wasn’t doing the things that I deemed the most important.
+ - By the time I was 10 or 11, I was completely demoralized. I thought, “I’m done. I’m never going to be a missionary,” because my indiscretion column, whether it was little lies or stealing a Chunky bar, kept me from sainthood.
+ - I started resenting how much art robs from life. I’d go to a party and I couldn’t enjoy myself, even sexually. All I could think was how I was going to reinvent the experience into a piece of art.
+ - What I really like is an intelligent review. It doesn’t have to be positive. A review that has some kind of insight, and sometimes people say something that’s startling or is so poignant.
+ - As an artist, I used to think that my responsibility was to do good work. But I had to learn from the 70s on that being a public figure presents another aspect of responsibility.
+ - The thing I’ve always liked about performing is that I decide what I want to wear, whether I want to comb my hair.
+ - After writing all day I go for a walk and see a piece of architecture i want to photograph and i have to take a picture and later a poem comes in my mind.
+ - All the traumas I went through separating art from writing don’t exist anymore. That’s why I love being in rock ‘n’ roll. It’s a whole life thing.
+ - I like energy. I like to feel it cracklin’, I like sexual energy in a room, and I like tension.
+ - Lets just say that I think any person who aspires, presumes, or feels the calling to be an artist has a built-in sense of duty.
+ - Both of them were ahead of their time, but they didn’t live long enough to see the time they were ahead of.
+ - We learned we wanted too much. We could only give from the perspective of who we were and what we had. Apart, we were able to see with even greater clarity that we didn’t want to be without each other.
+ - I just like living in certain atmospheres. Or I just like people as they are.
+ - If the postman is saying hello to you, then I feel like, wow, thats something special.
+ - I got my style from a lot of different people, even my style of reading, even Johnny Carson inspired me.
+ - No, my work does not reflect my sexual preferences, it reflects the fact that I feel total freedom as an artist.
+ - In fact, I thought my calling was to be a painter.
+ - When I was younger, I felt it was my duty to wake people up. I thought poetry was asleep. I thought rock ‘n’ roll was asleep.
+ - Horses pretty much broke as a record in England.
+ - It’s not that I have compromised or anything, but it’s always been important to me to take good care of myself and be a good example. I’m not much a role model in terms of hair care, though.
+ - I had this idea that the coolest thing that could happen to you was talking with God.
+ - I don’t know about that. I’m not a very analytical person. I have various impulses. I’ve often quoted Walt Whitman’s phrase “I contain multitudes.” I understand that.
+ - In my low periods, I wondered what was the point of creating art. For whom? Are we animating God? Are we talking to ourselves? And what was the ultimate goal? To have one’s work caged in art’s great zoos – the Modern, the Met, the Louvre?
+ - I wanted to see who this Yeats person was, and I said to my mother, ‘I want a book by this person.’ And she bought it for me, and a lot of it was over my head, but I had it.
+ - Americans just don’t know what being a movie star’s all about.
+ - People don’t realize we have these built-in seven-league boots. The body can go anywhere. It is physically capable of sustaining almost any kind of abuse, or any dream.
+ - I was so unhealthy as a child, and at least three or four times my parents were told to get ready, that I would not make it.
+ - Robert was concerned with how to make the photograph, and I with how to be the photograph.
+ - I didn’t write about aspects of my public life because that’s a small part of my life.
+ - I know from an early age that I’m very comfortable in front of people. When I was a young girl, I’d love giving book reports.
+ - These are the times, the times of our own, these are the shapes the world we formed.
+ - We needed time to figure out what all of this meant, how we were going to come to terms and redefine what our love was called. I learned from him that often contradiction is the clearest way to truth.
+ - What a model of an artist was for me was an artist who worked. Picasso was the ultimate model, because the work ethic he had.
+ - Besides me wanting to be an artist, I wanted to be a movie star.
+ - Often the simplest song is the hardest to write.
+ - For Christmas every year, my mother used to give me those cheap little diaries that would tell your horoscope and provide a little blank slot for each day.
+ - Artists are traditionally resistant to labels.
+ - I didn’t begin my life in 1975 with ‘Horses.’ I recorded ‘Horses’ in 1975, but was drawing in Paris in 1969.
+ - Truthfully, I don’t really think of myself as a photographer. I don’t have all the disciplines and knowledge of a person who’s spent their life devoted to photography.
+ - I always wear the same thing onstage.
+ - I’m not afraid of terrorism at all. I’m afraid of loss of our freedom, loss of mobility, loss of global comradeship.
+ - I understood that in this small space of time we had mutually surrendered our loneliness and replaced it with trust.
+
+290 quotes

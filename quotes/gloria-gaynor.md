@@ -1,0 +1,54 @@
+ - I will survive. As long as I know how to love, I know I’ll be alive.
+ - I’ve got all my life to live and I’ve got all my love to give.
+ - I think I sound like Barry White.
+ - Low self-esteem comes from who you assess yourself to be. It’s about who you are, and I didn’t think I was anything or anybody.
+ - At first I was afraid, I was petrified, kept thinking I could never live without you by my side. But then I spent so many nights thinking how you did me wrong, and I grew strong.
+ - So you’re back from outer space.
+ - There’s nothing to compare to live music, there just isn’t anything.
+ - Well, we all know that self-esteem comes from what you think of you, not what other people think of you.
+ - One of the high points of my career was winning the Grammy for ‘I Will Survive.’
+ - Well, I think it’s era that in which people had a lot of fun. In fact too much fun and would not concern themselves with the negative effects of the accesses that they were involved in.
+ - I grew up without a father, and my mother grew up without a father and her mother grew up without a father. So we have this long heritage of growing up without fathers.
+ - I have a European Fanclub that’s based in Holland, and I had to have that President of the Fanclub to get me a number of recordings that I hadn’t had the foresight to collect myself.
+ - Well, I went through some emotionally abusive relationships and allowed myself to not be properly respected as a lady, as a human being even, though I tried everything I knew to be a lady.
+ - The scripture that God used to save me was Isaiah 7.14, which today is still my favourite verse in the Bible.
+ - Music is my life. The only other thing I’ve done is office work in different places. But no real professional career other than singing.
+ - I had a fear of being alone.
+ - Actually I’m more passionate about dancing than I am about singing.
+ - All through my young life I wanted to sing, although nobody in my family knew it.
+ - I study the Bible and spend time on the Internet.
+ - That is what I liked about being on stage. I was comfortable there, and I could be myself with confidence.
+ - Even as a very small child I used to talk to God.
+ - God was in control, and I was just pliable enough to say yes to wherever He would lead.
+ - The better your audience, the more energy you have, and the more energy you have, the better show you do. The better show you do, the more they love it, and the more energy they give back to you.
+ - God allows circumstances to build us up. God has got our back.
+ - My look is always glitzy for New Year’s Eve, even if I am at home.
+ - People are intimidated when they first meet me, but it doesn’t take them long to realise I’m just an average person.
+ - Well, for street clothes, a lot of what I wear is Jones New York. I am well-endowed in the derriere, and they can handle that.
+ - Personally I prefer Gospel music.
+ - I agree that a well groomed appearance or a slovenly appearance says a lot about one’s character.
+ - A chic guy is in a suit. I don’t care what kind of tie they wear. I don’t care if they even wear a tie, as long as they can carry a suit.
+ - The respect that you should have for one another-I never knew any of that. So I suffered.
+ - I still love a variety of kinds of music.
+ - None of my family had anything to do with show business, my life was totally foreign to them.
+ - I have been nervous before, but I have never had stage fright.
+ - I loved the fact that I could get on stage and be in control.
+ - My grandmother went to church, but my mother had been inundated with church and decided that when she had children, she would not push church or God on her children.
+ - First I have a collection of all of the albums I’ve ever done, on vax.
+ - That’s why you find a lot of entertainers are insecure, because it’s the perfect camouflage for insecurity.
+ - Performing was easy because I believed that I could sing, but that was an outside thing.
+ - When I’m on stage, all is right with the world.
+ - I started out doing covers.
+ - Well, I was in a band. I was the singer with a band called the Soul Satisfiers. I sang then quite a bit of Jazz and some Top 40 stuff.
+ - My audience is often hands-up, standing and cheering and on tables and all of that kind of things.
+ - Christ does not fulfill the human element, but he certainly fulfills every other need in your life. As far as I’m concerned, there’s no better love affair.
+ - Only if I could be known for being one of the world’s greatest and most sincere Christian Evangelists.
+ - Yes, too much emphasis is put on outward physical attributes in every area of American life.
+ - I have never been a different person onstage than I am off.
+ - I’ve written about one song on several different albums.
+ - People always want to ask me about my drug problem – I never had a drug problem; I had a self-esteem problem!
+ - I have been to more than 80 countries, and there is not one-not one-that I didn’t have women coming up to me sharing stories of overcoming major abuse, a bad marriage turning good, etc.
+ - I’ve written a lot of songs but I haven’t had the opportunity to record a lot of them.
+ - Experimenting with drugs, drinking, doing this just enough to be accepted as one of the crowd, but I hated drugs, and I hated the taste of alcohol!
+
+52 quotes

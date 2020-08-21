@@ -1,0 +1,23 @@
+ - Labor Day is devoted to no man, living or dead, to no sect, race or nation.
+ - The worst crime against working people is a company which fails to operate at a profit.
+ - The man who has his millions will want everything he can lay his hands on and then raise his voice against the poor devil who wants ten cents more a day.
+ - Show me the country that has no strikes and I’ll show you the country in which there is no liberty.
+ - Do I believe in arbitration? I do. But not in arbitration between the lion and the lamb, in which the lamb is in the morning found inside the lion.
+ - To be free, the workers must have choice. To have choice they must retain in their own hands the right to determine under what conditions they will work.
+ - Where trade unions are most firmly organized, there are the rights of the people most respected.
+ - Doing for people what they can and ought to do for themselves is a dangerous experiment.
+ - There are such wonderful possibilities in the life of each man and woman! No human being is unimportant. My inspiration comes in opening opportunities that all alike may be free to live life to the fullest.
+ - No race of barbarians ever existed yet offered up children for money.
+ - You can’t do it unless you organize.
+ - All other holidays are in a more or less degree connected with conflicts and battles of man’s prowess over man, of strife and discord for greed and power, of glories achieved by one nation over another. Labor Dayis devoted to no man, living or dead, to no sect, race, or nation.
+ - Time is the most valuable thing on earth: time to think, time to act, time to extend our fraternal relations, time to become better men, time to become better women, time to become better and more independent citizens.
+ - Workingmen are at the foundation of society. Show me that product of human endeavor in the making of which the workingman has had no share, and I will show you something that society can well dispense with.
+ - No lasting gain has ever come from compulsion.
+ - You can’t weigh the soul of a man with a bar of pig-iron.
+ - The working people know no country. They are citizens of the world.
+ - It is impossible for capitalists and laborers to have common interests.
+ - One fact stands out in bold relief in the history of man’s attempts for betterment. That is that when compulsion is used, only resentment is aroused, and the end is not gained. Only through moral suasion and appeal to man’s reason can a movement succeed.
+ - There may be here and there a worker who for certain reasons unexplainable to us does not join a union of labor. That is his right. It is his legal right, no matter how morally wrong he may be. It is his legal right, and no one can or dare question his exercise of that legal right.
+ - The labor of a human being is not a commodity or article of commerce.
+
+21 quotes

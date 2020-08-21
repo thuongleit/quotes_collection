@@ -1,0 +1,55 @@
+ - Be who you are, not who the world wants you to be.
+ - Would you dance, if I asked you to dance? Would you run, and never look back? Would you cry, if you saw me crying? And would you save my soul tonight?
+ - Realistically, English is a universal language; it’s the number one language for music and for communicating with the rest of the world.
+ - I’m a good person, but with many defects.
+ - I go from English to Spanish, and I feel I have some cool songs.
+ - If permanent happiness comes with someone, Id leave everything.
+ - I don’t sleep much. It takes me a long time to fall asleep. I’m a bit of an insomniac but, when I fall asleep, I don’t ever want to wake up.
+ - I care about politics just like any other citizen. I’m against the war in Iraq, or any type of war.
+ - My best personality trait that I think I’m very approachable. And my worst is that I can be moody.
+ - I know it sounds corny, but when you follow your dreams, it happens. And if it’s music, take it seriously.
+ - I always respect a woman.
+ - I don’t like being lied to, so I only lie about the stupid things. White lies, basically.
+ - When I’m in love, I wake up happy.
+ - One person cannot change the world. But you can become the world for someone. A warm, bright, and peaceful world. If everyone can be such a world to one person, one will become ten people, and then a hundred. The world will be full of happy people then.
+ - I’m not a heartthrob. I hate that word.
+ - The power of music in Spanish is so strong, that I couldn’t stay away from it any longer.
+ - My motivations are thinking I can write better songs, that the concerts can be better.
+ - Being anxious is the worst feeling in the world.
+ - I wouldn’t change anything. I’ve made mistakes, but thanks to those mistakes, I’ve learned.
+ - It surprises me what the girls are capable of doing for me.
+ - I want to thank my fans for their support and love all these years, thank you Miami. Thank you Latin America. Thank you Mexico. Thank you world !
+ - Really, the F word in a song – it should be the least of the worries of parents these days.
+ - The one thing I’ve learned in the last ten years is that successful artists don’t get paid to write and sing songs, they get paid for the psychological roller coaster they’re going to have to ride. That’s the hard work.
+ - I don’t care what people say. My music’s, my music.
+ - Love is one of my main inspirations.
+ - First of all, I’m not a heartthrob. If you saw me in high school, you wouldn’t say I’m a heartthrob. Having a hit song, the minute you’re famous, you’re a heartthrob. I know you don’t believe me, but I honestly don’t consider myself a heartthrob.
+ - I’m so proud of who I am and where I come from and who my father is.
+ - My inspiration are the woman, friendship, and loneliness.
+ - My relationships have been well publicised in the past but I am just a normal guy, really.
+ - I really want to fall in love.
+ - I had a normal childhood. There were women, but it wasn’t like Hefner’s Playboy Mansion. If it was, I’d still be living at home!
+ - In school, kids never really looked at me a different way because I think it was a different generation; they didnt really know who my father was.
+ - Yes, I have made a woman cry.
+ - The way I look at it, I’d rather make my own mistakes than have people make them for me.
+ - We all feel love, and that might sound kind of corny, but I really feel that’s what joins musicians together around the world.
+ - Yeah, exactly, you can talk about politics in music, you can talk about something else, but that’s always going to change, and love is never going to change.
+ - I was happier before, when I lead a normal life.
+ - The only thing I have no control over is the politics that goes on within the record company. It’s always been the same, but it’s far tougher now, because record companies are run by financial people; before, they were run by creative people.
+ - And people coming up asking for autographs, there’s only one time when it kind of bothers me: when I’m eating.
+ - There are days that I wake up and I complain, and when I complain I pinch myself and say, ‘that’s for complaining.’ Not many people can do what they really like in life.
+ - I mean, I do consider that my music is pop because Ive been influenced by pop music my whole life; I grew up in the States and 80s pop music was my biggest influence.
+ - If you’re buying an album because of the face on it, you’re stupid.
+ - I mean, if you turn on the radio, love is 90 percent of the music.
+ - If you come from Spain, you have to play football.
+ - It was good, it was bad. But it was real, and that’s all you have.
+ - My grandfather’s 86 and he’s having a baby. Man, I hope when I’m 86 I can have babies.
+ - I’ve worked a lot during the night. But I don’t sleep in the day either.
+ - As an artist, I’ve been very fortunate.
+ - You should do whatever language you feel is the perfect language for you to sing in and then try to strive to do the best.
+ - The one thing about music is that there are no rules.
+ - I am really passionate about sports in general – especially water sports.
+ - If they would have told me when I was just 18 that I was going to have a career that would last so long, I’d have said it was impossible, that it was crazy that that could happen in my life, so I’m happy to be here. To be able to go out on stage every day.
+ - There hasn’t been one moment in my career where I felt I didn’t have any control over the creative aspects of my records.
+
+53 quotes

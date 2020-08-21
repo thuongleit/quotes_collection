@@ -1,0 +1,25 @@
+ - Speak briefly and to the point.
+ - I will begin to speak, when I have that to say which had not better be unsaid.
+ - I know not what treason is, if sapping and betraying the liberties of a people be not treason...
+ - Consider in silence whatever any one says: speech both conceals and reveals the inner soul of man.
+ - Bitter are the roots of study, but how sweet their fruit.
+ - For some people there is no comfort without pain. Thus; we define salvation through suffering. Hence, why we choose people who we know aren’t right for ourselves.
+ - In doing nothing men learn to do evil.
+ - Consider it the greatest of all virtues to restrain the tongue.
+ - The primary virtue is: hold your tongue; who knows how to keep quiet is close to God.
+ - Don’t promise twice what you can do at once.
+ - Blessed be they as virtuous, who when they feel their virile members swollen with lust, visit a brothel rather than grind at some husband’s private mill.
+ - The best way to keep good acts in memory is to refresh them with new.
+ - Flee sloth; for the indolence of the soul is the decay of the body.
+ - Wise men are more dependent on fools than fools on wise men.
+ - I would not be beholden to a tyrant, for his acts of tyranny. For it is but usurpation in him to save, as their rightful lord, the lives of men over whom he has no title to reign.
+ - A honest man is seldom a vagrant.
+ - Regard not dreams, since they are but the images of our hopes and fears.
+ - All have the gift of speech, but few are possessed of wisdom.
+ - Those magistrates who can prevent crime, and do not, in effect encourage it.
+ - Do not expect good from another’s death.
+ - In conversation avoid the extremes of forwardness and reserve.
+ - Never travel by sea when you can go by land.
+ - Good-breeding is the art of showing men, by external signs, the internal regard we have for them. It arises from good sense, improved by conversing with good company.
+
+23 quotes

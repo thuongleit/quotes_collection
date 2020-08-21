@@ -1,0 +1,79 @@
+ - Kill me. If you’ve ever been my friend, kill me.
+ - Just follow me and run like your life depends on it. Because it does.
+ - I’m a Crank. I’m slowly going crazy. I keep wanting to chew off my own fingers and randomly kill people.
+ - It’s kind of hard to ask a dead guy what he did wrong.
+ - Maybe you should just press the button.
+ - Everything is going to change.
+ - You are the shuckiest shuck faced shuck in the world!
+ - What would I do without you? I’d die of stress and depression before nature killed me.
+ - Never give up, laugh a lot. Be good to others.
+ - The betrayal meant he couldn’t trust her anymore, and his heart told him he couldn’t forgive her.
+ - Sometimes what works in a book is too “in your face” when converted to the big screen and sound.
+ - Let’s get this started, people. It won’t be long before we all lose our minds.
+ - If you’re going to decipher a hidden code from a complex set of different mazes, I’m pretty sure you need a girl’s brain running the show.
+ - Such a display of death – how could it be considered a victory?
+ - Quit voting me down before you even think about what I’m saying.
+ - Anybody else wanna pee their pants and cry for mommy?
+ - When it comes to individual destiny, there is no power greater in the universe then the conviction of the human soul to make a choice.
+ - Next time I’ll pat you on the freaking back for stating the obvious.
+ - I’ve always had high ambitions and aspirations.
+ - I really love middle-grade. Middle-grade books have a little more of a magical, light-hearted feel. You can be a little bit more quirky, you can have a little more humor. It doesn’t get so dark and deep.
+ - Ah, my Knight in Shining Armor. What, you don’t think I can fend for myself?
+ - Can’t take a chance that one day, in one spot, somewhere, an exit might appear. We can’t give up. Ever.
+ - Sometimes they do things to make me do the opposite of what they think, I think, they think, I am going to do.
+ - A veces el conocimiento da asco.
+ - Be unpredictable, be real, be interesting. Tell a good story.
+ - Good try, ya bugging shank. The Gathering elects Runners, and if you think I’m tough, they’d laugh in your face.
+ - He didn’t care about the others anymore. The chaos around him seemed to siphon away his humanity, turn him into an animal. All he wanted was to survive, make it to that building, get inside. Live. Gain another day.
+ - It was you and me, Tom. We did this to them. To us.
+ - I don’t think there is a right or wrong anymore. Only horrible and not-quite-so-horrible.
+ - Get your runtcheeks down those stairs, right now.
+ - She paused. That’s just my way of saying I would’ve killed you if you’d died.
+ - Hunger. It’s like an animal trapped inside you, Thomas thought.
+ - Frozen by fear. Not able to move. Your mind screaming.
+ - I don’t give a crap if you’re a Tangent or a really smart llama. You’re my friend and that’s all that matters.
+ - I think we should take a break, fill our little tummies and drink up.
+ - Your demons are always with you, Skale answered. His voice seemed even raspier than the day before. Don’t you understand that by now? Always with you, impossible to escape. But you never can guess how they might manifest themselves.
+ - And then they were kissing. Something exploded within his chest burning away the tension and confusion and fear. Burning away the hurt of seconds earlier. For a moment it felt like nothing mattered anymore. Like nothing would matter ever again.
+ - She smiled for the first time, and he almost had to look away, as if something that nice didn’t belong in such a glum and gray place, as if he had no right to look at her expression.
+ - Rose took my nose, I suppose.
+ - What was the point of even having a conversation when words couldn’t be trusted?
+ - Thats called hypocrisy, you shuck face piece of -!
+ - No. I kind of accepted it, in a way. That saving you was worth losing what we might’ve had.
+ - I’ve always been fascinated by quantum physics and the possibility of alternate realities.
+ - I’m inspired by almost everything I come across in life, and one way or another they find themselves sneaking into my stories.
+ - It’s like watching a starving pig eat his own klunk.
+ - We’ll start firing till they drop or we drop.
+ - Good that.
+ - You’ll work hard to create characters that are compelling and unforgettable. But in the end, it’s the story that matters.
+ - All the same, Thomas now had a plan. As bad as it was, he had a plan. They needed more clues about the code. They needed MEMORIES. So he was going to get stung by a Griever. Go through the Changing. On purpose.
+ - But there was something about the largest object in the solar system vanishing that tended to disrupt normal schedules.
+ - Tonight, they’d make their stand, once and for all.
+ - I’ve been shucked and gone to heaven.
+ - Didn’t know you could measure distance so well with nothing but you bloody eyeballs.
+ - In my early writing, all of my characters were exactly the same person. They all spoke the same, made the same types of jokes, reacted the same, etc. I think they were all just me in disguise.
+ - To practice – write each and every day if possible – then try to attend professional writer’s conferences where you can learn your craft, get to know fellow writers, and meet editors and agents.
+ - Down the road a bit, I would like to write a couple of stand-alone adult novels, especially in the horror genre. I’ve got lots of things up my sleeve.
+ - He turned to look just in time to see the rain start falling out as if the storm had finally decided to weep with shame for what it had done to them.
+ - I’d love to see that rat nose smashed!
+ - I do love ponies. Wish I could eat one right now.
+ - Thoughts of the girl crashed around his mind, made him remember the connection he felt. A sadness washed over him, as if he missed her, wanted to see her. That doesn’t make sense, he thought. I don’t even know her name.
+ - When I’m feeling a little empty in the head, I like to go see movies or read to loosen things up there.
+ - Thomas hated the people who’d taken this poor, innocent kid form his family. He hated them with a passion he didn’t know a human could feel. He wanted them dead, tortured, even. He wanted Chuck to be happy. But happiness had been ripped form their lives. Love had been ripped from their lives.
+ - He didn’t have a single clue what was going on with these two strangers, but every instinct told him Master George equaled good, Mistress Jane equaled bald- he blinked-uh, bad.
+ - Oh, I’m good. Seriously, after all these years, you’d think I would stop amazing myself. But here I am, still doing it.
+ - But first, my friends, I need you to do something for me. We have two spies in the back of the auditorium.
+ - I ought to come up there and break your shuck nose.
+ - It was her. It was Teresa.
+ - Do books about the Holocaust make us think, “Oh well, there was nothing we could’ve done to prevent that or prevent it from happening again”? Of course not. It makes us angry and determined to stop such atrocities.
+ - Things are really weird around here, and most of us don’t know everything. Half of everything.
+ - There are so many things hinted at that will be fun to reveal in depth. For years, fans have made it abundantly and enthusiastically clear that they want the same thing, so now seems like the perfect time to give readers the story of how the Maze began.
+ - All things happen for a purpose.
+ - A roar cut through the melee: a booming growl, a noise that might come out of a she-bear protecting a cub. It was Alec- and suddenly bodies were flying everywhere.
+ - When someone is close by, you just know it.
+ - She and Thomas had helped construct the Maze; at the same time she’d exerted a lot of effort to build a wall holding back her emotions.
+ - I’m gonnna break your faces!
+ - I don’t think anything’s more rewarding than hearing that you’ve helped someone gain a love of reading.
+ - I think Judy Blume, Stephen King, and Dean Koontz are the three authors responsible for my being where I am today. I owe them a lot.
+
+77 quotes

@@ -1,0 +1,42 @@
+ - Don’t judge me by my past. I don’t live there anymore. ~~Zig Ziglar
+ - Your past is just a story. And once you realize this it has no power over you. ~~Chuck Palahniuk
+ - The past is behind, learn from it. The future is ahead, prepare for it. The present is here, live it. ~~Thomas S. Monson
+ - Don’t ever think that the sin of your past means there is no hope for your future. ~~John Piper
+ - No amount of guilt can change the past and no amount of worrying can change the future. ~~Umar
+ - Don’t make excuses, don’t blame the past. The rest of your life can be the best of your life! ~~Joel Osteen
+ - You have to know the past to understand the present. ~~Carl Sagan
+ - Trust the past to the mercy of God, the present to His love, and the future to His providence. ~~Saint Augustine
+ - There is no saint without a past, no sinner without a future. ~~Saint Augustine
+ - Some people live as though they are already dead. There are people moving around us who are consumed by their past, terrified of their future, and stuck in their anger and jealousy. They are not alive; they are just walking corpses. ~~Nhat Hanh
+ - When you begin to realize that your past does not necessarily dictate the outcome of your future, then you can release the hurt. It is impossible to inhale new air until you exhale the old. ~~T.D. Jakes
+ - Remember: we all get what we tolerate. So stop tolerating excuses within yourself, limiting beliefs of the past, or half-assed or fearful states. ~~Tony Robbins
+ - Most people spend their entire life imprisoned within the confines of their own thoughts. They never go beyond a narrow, mind-made, personalized sense of self that is conditioned by the past. ~~Eckhart Tolle
+ - The past is just a story we tell ourselves. ~~Spike Jonze
+ - Our lives are not our own. We are bound to others, past and present, and by each crime and every kindness, we birth our future. ~~David Mitchell
+ - Live each day as if was your last, not in the future, not in the past. You may not get what you want, but, in the long run, you will get what you expect. ~~Denis Waitley
+ - Let us not seek the Republican answer or the Democratic answer, but the right answer. Let us not seek to fix the blame for the past. Let us accept our own responsibility for the future. ~~John F. Kennedy
+ - We celebrate the past to awaken the future. ~~John F. Kennedy
+ - Losers live in the past. Winners learn from the past and enjoy working in the present toward the future. ~~Denis Waitley
+ - Forgiveness is about empowering yourself, rather than empowering your past. ~~T.D. Jakes
+ - All moments, past, present and future, always have existed, always will exist. ~~Kurt Vonnegut
+ - It’s a complete life change when you really want to better yourself and completely change the patterns that you have had in the past. Do I think I still need work? I think everyone needs work. I just keep working on myself. ~~Demi Lovato
+ - Don’t think about the past. Just be here now. ~~Ram Dass
+ - Don’t allow your past or present condition to control you. It’s just a process that you’re going through to get you to the next level. ~~T.D. Jakes
+ - You can’t look back – you just have to put the past behind you, and find something better in your future. ~~Jodi Picoult
+ - Forget the past. ~~Nelson Mandela
+ - The past, like the future, is indefinite and exists only as a spectrum of possibilities. ~~Stephen Hawking
+ - No man is greater than his prayer life. The pastor who is not praying is playing; the people who are not praying are straying. The pulpit can be a shop window to display one’s talents; the prayer closet allows no showing off. ~~Leonard Ravenhill
+ - The only person with whom you have to compare ourselves, is that you in the past. And the only person better you should be, this is who you are now. ~~Sigmund Freud
+ - Whatever with the past has gone, the best is always yet to come. ~~Lucy Larcom
+ - Always look at what you have left. Never look at what you have lost. ~~Robert H. Schuller
+ - No matter how dirty your past is, your future is still spotless. ~~Drake
+ - Study the past if you want to define the future. ~~Confucius
+ - Just as man cannot live without dreams, he cannot live without hope. If dreams reflect the past, hope summons the future. ~~Elie Wiesel
+ - I will honour Christmas in my heart, and try to keep it all the year. I will live in the Past, the Present, and the Future. The Spirits of all Three shall strive within me. I will not shut out the lessons that they teach! ~~Charles Dickens
+ - The increase of disorder or entropy is what distinguishes the past from the future, giving a direction to time. ~~Stephen Hawking
+ - In the past a leader was a boss. Today’s leaders must be partners with their people. They no longer can lead solely based on positional power. ~~Kenneth H. Blanchard
+ - I think when you move past your fear and you go after your dreams wholeheartedly, you become free. ~~LL Cool J
+ - The world we see that seems so insane is the result of a belief system that is not working. To perceive the world differently, we must be willing to change our belief system, let the past slip away, expand our sense of now, and dissolve the fear in our minds. ~~William James
+ - The arms of love encompass you with your present, your past, your future, the arms of love gather you together. ~~Antoine de Saint-Exupéry
+
+40 quotes

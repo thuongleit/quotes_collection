@@ -1,0 +1,126 @@
+ - I’m thankful for women. I think women are more intelligent than men. Also, without women, there would be no cookies.
+ - RIP Amy Winehouse. We lost a true heroin addict today.
+ - You know, with Hitler, the more I learn about that guy, the more I don’t care for him.
+ - Kenny G has a Christmas album out this year. Hey, happy birthday Jesus! Hope you like crap!
+ - I don’t know the difference between a hippie and a hipster but, it’s fun to watch either one of them get beat up.
+ - All my life’s about is cracking up people and them cracking me up and trying not to think about dying. That doesn’t cost very much money.
+ - It is easier to hate those we love, than love those whom we have hated.
+ - Note to self: no matter how bad life gets, there’s always beer.
+ - There are two things which a man should scrupulously avoid: giving advice that he would not follow, and asking advice when he is determined to pursue his own opinion.
+ - We advise others better than ourselves.
+ - Hypocrisy is the outward acknowledgment of inward shame.
+ - Yeah man, they call gambling a disease, but it’s the only disease where you can win a bunch of money.
+ - The first principle of solid wisdom is discretion, without it all the erudition of life is merely bagatelle.
+ - Envy, like a false mirror, distorts the symmetry of the sweetest form.
+ - I don’t have any ego about it, but I find there’s not a great work ethic in show business. A lot of people are in it to make money, and coming from stand-up, you have to work so hard because almost nothing works, and if you lose the audience for three minutes, you’re dead.
+ - Never raise expectations in others that you cannot realize: promise is less pleasing than disappointment is vexatious.
+ - Ignorance is better than knowledge misapplied.
+ - Few criminals die sensible of their crimes.
+ - Back in the old days, a man could just get sick and die. Now they have to wage a battle. So my Uncle Bert is waging a courageous battle, which I’ve seen, because I go and visit him. And this is the battle: he’s lying in the hospital bed, with a thing in his arm, watching Matlock on the TV.
+ - In math, you could get 100 percent. It was very fair. That’s what I liked about math. You could figure it out, and the teacher couldn’t have a stupid opinion about it.
+ - Flattery succeeds best on minds previously occupied by conceit.
+ - He that searches for praise will often find contempt.
+ - I don’t know anything about politics. I wouldn’t put too much into my prediction on politics.
+ - The standard of morals is as variable as morals themselves; of which every nation has a different code, and every custom a different reading.
+ - Comedy is surprises, so if you’re intending to make somebody laugh and they don’t laugh, that’s funny.
+ - My dad died, and my grandfather died, and my great-grandfather died. And the guy before him, I don’t know. Probably died.
+ - Reason is always weak where prejudice is strong.
+ - The man that does not fear punishment, little regards crime.
+ - We would seldom be deceived by flattery, did our own conceit not promote the delusion.
+ - I don’t do much. I’m too lazy. That’s my problem. Hang around my couch, watching the TV. Just too lazy. I realized this the other day, I get hit my a truck tomorrow – a big truck could hit me – paralyze me from the neck down. Wouldn’t effect my lifestyle a bit really.
+ - Scientists believe they may have discovered a primitive form of life on Jupiter’s moon Europa. That primitive form of life? You guessed it, Frank Stallone.
+ - Imprudent restrictions often force youth farther than enticement would carry them; and careless limitation is frequently worse than no injunction.
+ - When I hear a guy lost a battle to cancer, that really did bother me, that that’s a term. It implies that he failed and that somebody else that defeated cancer is heroic and courageous.
+ - Education makes some men wiser, others more ridiculous and foolish!
+ - OJ Simpson was in a different kind of courtroom this week attempting to regain custody of his two children. In order to prove to the court how much he loves his kids, OJ pointed out quote ‘Hey, they’re still alive, aren’t they?’
+ - Your worst and most dangerous enemy is the person that injures you under the pretensions of friendship.
+ - The Rolling Stones reunited for a twenty-fifth anniversary tour last week. Keith Richards said that he’s happy to continue to do what he’s been doing for the past twenty-five years: cheating death.
+ - Love is an artful arrangement of artless pretensions, whereby we labor to appear innocent in what we desire to be most cunning.
+ - With the ambitious, the failure of one expedient is the suggestion of another; but with the irresolute, defeat usually occasions abandonment of purpose.
+ - The reason we have few friends in adversity, is, because we have no true ones in prosperity.
+ - I like doing a funny show where I don’t have to act and fall in love with a girl.
+ - Whenever I do theaters, I don’t like ’em. I don’t think they’re right for stand-up.
+ - I’ve just seen really, really funny guys, and if I didn’t know them, I wouldn’t know they were funny from the television. I don’t know what it does, it just sucks it away.
+ - The beginning of wisdom is the knowledge of folly.
+ - I started on ‘Saturday Night Live’ the same time Conan started on Late Night. We just had a relationship because I would be upstairs in the studio and whenever he couldn’t get a guest – which was often back then since he was just starting out – he would just call me down to be a guest.
+ - My dad had this thing – everyone in Canada wants to play hockey; that’s all they want to do. So when I was a kid, whenever we skated my dad would not let us on the ice without hockey sticks, because of this insane fear we would become figure skaters!
+ - If you desire praise or esteem, endeavor to merit it.
+ - I’m a huge sports fan but have no interest in minutiae. I don’t remember who won Super Bowls five years ago or listen to sports talk radio.
+ - If you’re looking for the suspect in a suicide bombing, here’s a clue: Look for the dead guy.
+ - The most frequent cause of regret for what we have done is because its effects interfere with what we would do.
+ - I don’t really like politics that much. And I like the order and simplicity of sports. They have an ending. You can argue with your friends about it, but in the end you still like sports. I almost love the fantasy world of sports more than the real world.
+ - Liberty, like health, appears most precious when lost.
+ - It is better to be idle than employed in ill.
+ - Enjoyment inflames love in some men, and extinguishes it in others: the wind that assists large vessels, upsets small ones.
+ - Violent people usually express their love of a thing by their hatred of its opposite.
+ - The joy a person is usually seen to express at the conversion of another to his opinion is seldom more than the impulse of egotistical satisfaction at being considered worthy of didactic imitation.
+ - It got very tedious saying the same jokes in the same way with the same attitude.
+ - In estimating the adversities of life, we would seldom have much reason to complain of the evils we suffer, did we understand the dangers we daily escape.
+ - Few are more unhappy than those who have great ambition, but little energy to urge it into activity.
+ - Most men will go farther to give advice than to follow their own opinion.
+ - Instead of loving your enemies, have no enemies to love.
+ - In terms of merit, sports has mathematical statistics. That’s how you know who the best player is.
+ - Man, them engagement rings, boy, they cost a lot. I was looking at ’em. Cost like a thousand bucks, two thousand bucks, y’know. Three thousand bucks. Something like that- four thousand bucks. Big number divisible by a thousand, anyways.
+ - We are happy at the respect others pay our favorites, because we consider it a lively confirmation of our own choice, and as so much homage reflected on ourselves.
+ - Stand-up has the best writers, because it’s the hardest writing by a million miles.
+ - If you cannot patiently bear correction, endeavor to avoid fault.
+ - Some people are so much afraid of being deceived, that they never venture to trust; like misers, their avarice destroys their gain.
+ - I have always loved Las Vegas. It’s a traditional place for lounge comics to perform, and I love that.
+ - The soul is never perfectly secure from the influence of passion; the occasional tranquility she seems to enjoy, is rather relaxation than imperturbable triumph.
+ - They that are fated to be fools, have one consolation, that they are fated also to be ignorant of it.
+ - There is a very prevalent tenet with youth, that good company is every thing desirable, and that bad is even better than none.
+ - The character of giving advice often makes us accountable for the conduct of those we advise.
+ - I love writing – it’s the best. But I really hate collaboration.
+ - All that weak people learn from disappointment, is less confidence in future enterprise.
+ - It is necessary to be tolerant, in order to be tolerated.
+ - When I was a kid, everybody that played golf was an old man. Until Tiger showed up, they weren’t in very good shape.
+ - Laws, however divine in origin and institution, would be found of little coercion among men, were the administration of them not committed to mortals.
+ - It is often better to be restricted to necessity than unconfined in the measure of our desires: prosperity destroys more individuals than adversity ruins.
+ - Though we may not desire to detect fraud, we must not, on that account, endeavor to be insensible of it, for, as cunning is a crime, so is duplicity a fault, and if men dread knaves, they also despise fools.
+ - This would have been a great game to watch if we didn’t have any money on it.
+ - Actually, with those dirty movies, I find like, they’re good for about fifteen, twenty minutes. I’m really interested. And, then, uh, there’s one point, that all of a sudden I’m bored. You know? I just lose interest completely and I feel deeply ashamed.
+ - Jealousy seldom punishes with the severity it suffers.
+ - There are two indiscretions that generally distinguish fools: a readiness to report whatever they hear, and a practice of communicating with secrecy what is commonly understood.
+ - We often suffer more from our fears, than from the dangers of our situation.
+ - It is the folly of weak-minded people, to imagine they are what flattery or conceit represents them; and that it is useless for them to be what they are not, since they seem already to have acquired the reputation of it.
+ - I would love to stay at SNL forever. But you can’t stay in the same place. People think you’re a loser.
+ - A lot of writers come from Harvard and such, and are rich, and they write under the misapprehension that poor people are stupid. So when they do write them, they are hillbillies or rednecks or Christian idiots.
+ - A suspicious person is the rival of him that deceives, both seem to practice a knowledge of cunning device, and equable sense of disengenuous merit.
+ - Our passions may be compared to certain slaves – the more severity we show them, the better they obey us.
+ - Were there no fools, there would be no flatterers.
+ - Though you may be last to discover your follies, be always first to correct them.
+ - If you’re watching a comedian on television and he’s making a political point, I would say he’s gotten too serious.
+ - Some men are tempted to violate secrecy from the uneasiness secrecy gives them, and others, merely to impress you with the extent of their confidence.
+ - I sort of have open invitations from a lot of people to do TV. But it’s very hard for me to do roles in sitcoms and movies because I’m not a great actor, so if the material isn’t good, I’m in torment while I do it.
+ - I never do impressions, but I probably should. People like that stuff.
+ - There are two things at which most men are grieved: when their faults are exposed, and when their virtues are concealed.
+ - We are often less grieved at disappointments than at ourselves for having said much concerning the certainty of our expectations.
+ - In love, we are best pleased when we please others.
+ - The promises we break are usually such as we are most forward in making.
+ - A man’s enemies are those he should endeavor first to make his friends.
+ - A proper disposition of time leaves a man at leisure in the very bustle of affairs; without delaying the attention of his concerns to the last or giving them unnecessary application at first: it affords a season for everything by affording everything its proper season.
+ - I never had any interest in sitcoms or motion pictures or anything like that.
+ - A readiness to excuse some faults, shows a disposition to commit others.
+ - A lot of people think I’m difficult to work with. It’s not like I really want to do that much stuff, so it doesn’t really matter. I guess I’m somewhat difficult when it comes to comedy.
+ - The young compliment their greatness on the number of their friends; the old, on the confidence of them.
+ - You can’t love your team without hating another team.
+ - Chastity is oftener owing to diffidence and shame, than to fortitude of reason or virtue.
+ - I always told everybody the perfect joke would be where the setup and punch line were identical.
+ - During misfortunes, nothing aggravates our condition more, than to be esteemed deserving of them.
+ - As evacuation eases the body, so occasional ejectment of passion seems to appease the agonies of the soul, and dispose to tranquility the agitations of the heart.
+ - None seem to bear the imputation of supposed guilt with greater intolerance than such as are, on other occasions, obviously culpable of vice or crime.
+ - It is vain to complain of fortune while we fail in policy and conduct.
+ - In giving advice, aptitude is often less to be considered, than seasonableness.
+ - I just like doing standup, that’s all I’m interested in or good at.
+ - Most men appear wiser in their doubts than in their belief.
+ - Some men mistake generosity for charity: these flatter themselves that they are giving gratuitously, whilst they are merely rewarding secret services offered their vanity.
+ - Few people love with the violence they hate.
+ - A capacity for hating the object of desire is, perhaps, the best cure for love in cases of disappointment.
+ - The praise we seek for our own virtues sometimes tempts us to flatter the imperfections of other men.
+ - Proper respect to others is the most prudent rule of directing the measure of reverence due to ourselves.
+ - Many frequently change their principles, but seldom their practices.
+ - A great cause of evil in the world is that men seldom think themselves criminal if they offer the same injustice to others that has been successfully practiced on themselves.
+ - They that are virtuous from principle may receive confidence in every capacity; but they that are so from custom or habit, are capable of trust only in matters of ordinary and settled occurrence.
+ - I think clever people think that poor people are stupid.
+
+124 quotes

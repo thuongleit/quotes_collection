@@ -1,0 +1,25 @@
+ - Some people live more in 20 years than others do in 80. It’s not the time that matters, it’s the person.
+ - You want weapons? We’re in a library! Books! Best weapons in the world! This room’s the greatest arsenal we could have. Arm yourself!
+ - I’m a good person, I hope. But I’m never as good as I want to be, never as nice as I want to be, never as generous as I want to be.
+ - I never land on Sundays. Sundays are boring.
+ - I still am a geek, I don’t think there’s anything wrong with it. I see no shame in having an unhealthy obsession with something.
+ - I love characters who are clever and smart, and you have to run to catch up with. I think there’s something very appealing and rather heroic in that.
+ - An accent, obviously, it’s to do with the way your mouth works and the sounds that come out of your head, but somehow it informs everything about you, I think.
+ - How galling to watch someone who looks like you, who basically is you, do all the shagging you didn’t get to do.
+ - To have someone who’s got a strong individual voice that is allowed to be heard is quite increasingly rare. These people need to be cherished.
+ - It’s very hard to be objective about something you’re in, especially when you set it up against things that you experienced as a child.
+ - And the very fact of how you speak somehow influences who you are. The way you move, the way you think, it seeps into your being, and it’s quite hard to really break that down entirely.
+ - I often stop when I’m doing something, in the middle of rehearsals or some other job, and I try to take a minute to think Okay, this might be as good as it gets, so drink it in, appreciate it now. So far, I’ve been lucky because another job has always come along to equal the last.
+ - It has to be said that the bad guys are often more interesting than the good guys because you get to indulge part of your nature that hopefully gets subsumed most of the time. But I just like playing interesting characters, and variety’s the spice of that, as it is with life, I suppose.
+ - Twitter! It’s like being stalked by committee!
+ - Moths are the ones that freak me out. It’s something to do with the way that, if they get squashed, they turn to dust. There’s something very wrong about that. It all feels a bit Gothic.
+ - I always like seeing people transforming themselves in whatever way that might be, and a different accent is part of that.
+ - I was always going to act, literally ever since I was tiny. In fact, I have Doctor Who to thank for that. I wanted to become an actor after being obsessed with Tom Baker, the fourth Doctor Who, in the 1970s. His was the definitive performance of all time in anything.
+ - I think doing different accents is part of the job of acting really. It’s something else that I quite enjoy the challenge of, to be honest.
+ - We seem to spend a lot of our time in very small spaces spouting a lot of dialogue very quickly.
+ - I mean, you know, while I’m acting on stage I’m ranking quite high, but in a room with Barack Obama I’m probably into negative digits. I never feel very famous...
+ - I think if my eight-year-old self could see me at the Royal Albert Hall winning a prize for playing the Doctor on telly, he would need a stiff shot of Irn-Bru.
+ - When you’re playing a real person there’s a balance between playing the person in the script and playing the person as he was in life. You have to be respectful and true to who that person was, but at the same time tell the story in the film.
+ - If you speak in a different accent, you begin to move in a slightly different way. You think in a slightly different way. I think it’s part of trying to find what makes a character.
+
+23 quotes

@@ -1,0 +1,47 @@
+ - Action cures fear. Indecision, postponement, on the other hand, fuel fear.
+ - Life is too short to waste. Dreams are fulfilled only through action, not through endless planning to take action.
+ - Attitudes are more important than intelligence.
+ - It’s better to wear out than rust out.
+ - Those who believe they can move mountains, do. Those who believe they can’t, cannot. Belief triggers the power to do.
+ - The mind is what the mind is fed.
+ - The thinking that guides your intelligence is much more important than how much intelligence you may have.
+ - Believe it can be done. When you really believe something can be done, your mind will find the ways to do it.
+ - Build castles, don’t dig graves.
+ - How you think determines how you act. How you act in turn determines how others react to you.
+ - Believe Big. The size of your success is determined by the size of your belief. Think little goals and expect little achievements.
+ - Where success is concerned, people are not measured in inches, or pounds, or college degrees, or family back-ground; they are measured by the size of their thinking.
+ - Remember, you see in any situation what you expect to see.
+ - Belief releases creative powers.
+ - Hope is a start. But hope needs action to win victories.
+ - Think doubt and fail. Think victory and succeed.
+ - When you help others feel important, you help yourself feel important too.
+ - Get the action habit – you do not need to wait until conditions are perfect.
+ - Believe, really believe, you can succeed, and you will.
+ - Big thinkers are specialists in creating positive, forward-looking, optimistic pictures in their own minds and in the minds of others.
+ - Here is the first step toward success. It’s a basic step. It can’t be avoided. Step One: Believe in yourself, believe you can succeed.
+ - Knowledge is power only when put to use – and then only when the use made of it is constructive.
+ - Goals are as essential to success as air is to life.
+ - Those who believe they can move mountains, do!
+ - Then it dawned on me that no one else was going to believe in me until I believed in myself.
+ - Think first class about everyone around you, and you’ll receive first-class results in return.
+ - Don’t let tradition paralyze your mind. Be receptive to new ideas. Be experimental. Try new approaches. Be progressive in everything you do.
+ - When you believe something is impossible, your mind goes to work for you to prove why. But when you believe, really believe, something can be done, your mind goes to work for you and helps you find the ways to do it.
+ - There is a good side to every situation.
+ - The thought “It’s impossible” sets off a chain reaction of other thoughts to prove you’re right.
+ - Just enough sense to stick with something-a chore, task, project, until its completed pays off much better than idle intelligence, even if idle intelligence be of genius caliber.
+ - People do more for you when you make them feel important.
+ - Believe triggers the power to do.
+ - The person determined to achieve maximum success learns the principle that progress is made one step at a time.
+ - Luck take a second look at what appears to be someone’s good luck. You’ll find not luck but preparation, planning, and success-producing thinking.
+ - Get the big view of your job. Think, really think your present job is important. That next promotion depends mostly on how you think toward your present job.
+ - Believing there is a solution paves the way to a solution.
+ - Hesitation only enlarges, magnifies the fear. Take action promptly. Be decisive.
+ - Think you are weak, think you lack what it takes, think you will lose, think you are second class – think this way and you are doomed to mediocrity.
+ - The test of a successful person is not an ability to eliminate all problems before they arise, but to meet and work out difficulties when they do arise.
+ - Persons who reach the higher rungs in business management, selling, engineering, religious work, writing, acting, and in every other pursuit get there by following conscientiously and continuously a plan for self-development and growth.
+ - Here is the basic rule for winning success. Let’s mark it in the mind and remember it. The rule is: Success depends on the support of other people. The only hurdle between you and what you want to be in is the support of other people.
+ - How much we can do depends on how much we think we can do. When you really believe you can do more, your mind thinks creatively and shows you the way.
+ - How much we can do, depends on how much we THINK we can do.
+ - Success shuns the man who lacks ideas.
+
+45 quotes

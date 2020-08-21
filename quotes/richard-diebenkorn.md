@@ -1,0 +1,25 @@
+ - Don’t be a Pollyanna!
+ - Attempt what is not certain. Certainty may or may not come later. It may then be a valuable delusion.
+ - My freedom will be so much the greater and more meaningful, the more narrowly I limit my field of action and the more I surround myself with obstacles.
+ - Do search, but in order to find other than what is searched for.
+ - Mistakes can’t be erased, but they move you from your present position.
+ - I trust the symbol that is arrived at in the making of the painting. Meaningful symbols aren’t invented as such, they are made or discovered as symbol later.
+ - My freedom consists in my moving about within the narrow frame that I have assigned myself for each one of my undertakings.
+ - All paintings start out of a mood, out of a relationship with things or people, out of a complete visual impression.
+ - I don’t go into the studio with the idea of ‘saying’ something. What I do is face the blank canvas and put a few arbitrary marks on it that start me on some sort of dialogue.
+ - Don’t ‘discover’ a subject of any kind.
+ - In a successful painting everything is integral – all the parts belong to the whole. If you remove an aspect or element you are removing its wholeness.
+ - If you get an image try to destroy it.
+ - One wants to see the artifice of the thing as well as the subject.
+ - My father didn’t think being an artist was a respectable or worthy goal for a man. He hoped I would see my way to more serious work and would find myself turning towards medicine, law, or business.
+ - I keep plastering it until it comes around to what I want, in terms of all I know and think about painting now, as well as in terms of the initial observation.
+ - Use and respond to the initial fresh qualities but consider them absolutely expendable.
+ - Maybe the given person, cup, or landscape is lost before one gets to painting. A figure exerts a continuing and unspecified influence on a painting as the canvas develops. The represented forms are loaded with psychological feeling. It can’t ever just be painting.
+ - And I can just see that sometimes the technique is blasting powder rather than steady struggle.
+ - I would like the colors, their shapes and positions to be arrived at in response to and dictated by the condition of the total space at the time they are considered.
+ - I have found in my still-life work that I seem to be able to tell what objects are important to me by what tends to stay in the painting as it develops.
+ - I want painting to be difficult to do.
+ - As a work progresses, its power to elicit and dictate response mounts. There seems to be an optimum moment when this power is at its greatest which just precedes the point where ‘elicit’ is no longer apt usage. ‘Dictates’ is the word for this condition and tyranny is the adversary.
+ - Somehow don’t be bored, but if you must, use it in action. Use its destructive potential.
+
+23 quotes

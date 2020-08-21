@@ -1,0 +1,42 @@
+ - The purpose of the first draft is not to get it right, but to get it written.
+ - Revision is not the end of the creative process, but a new beginning. It’s a chance not just to clean up and edit, but to open up and discover. The energetic prose comes about from all the energy that went into crafting it, I suppose.
+ - I revise like crazy. I start revising before the pen hits the paper.
+ - I write with a fountain pen. And then revise word by word and line by line so that the first draft of a scene is usually the tenth or so draft.
+ - Novels are written, not wished into existence. You have to sit your ass in the chair or nothing gets done.
+ - The facts, however, are unimportant in fiction. It’s not the events of my life that I mine, but the emotional experiences I’ve had.
+ - The regional tags are often pejorative and dismissive. Don’t think of place-bound stories, in other words, but of stories with a strong sense of place.
+ - With each draft, the work gets better, and usually that means tighter. It means getting the precise word, not the approximate word.
+ - The landscape of childhood shapes us as it shapes the characters in our stories. You never forget the sacred places of your childhood.
+ - A pure love is a selfless love, but can desire ever be selfless?
+ - Love is anticipation and memory, uncertainty and longing. It’s unreasonable, of course. Nothing begins with so much excitement and hope and pleasure as love, except maybe writing a story. And nothing fails as often, except writing stories. And like a story, love must be troubled to be interesting.
+ - I lost my job and started painting houses with a friend. The marriage had ended about the same time the career did.
+ - I grew up in a house without many books. The books the nuns made us read in school didn’t interest me.
+ - If you think about it, fiction is nothing more than gossip about the people you’ve made up.
+ - You lose a wallet or keys or something and you notice in a second, but your life can go missing and you don’t even know it.
+ - Love is always a surprise and you never get it right.
+ - You will feel discouraged; you will lose confidence in your abilities; you will be bored with the characters–and the only way to overcome these obstacles is to write your way through them. And writing always works.
+ - At the heart of all good fiction and at the heart of all good gossip is the same thing: trouble.
+ - Actually, my first literary heroes were the Romantic poets, so I began to get serious by writing poems. I have notebooks full of them that I cherish but am afraid to look at.
+ - It’s easier to write about a place sometimes when you’ve left it, when you can apply your imagination to your memory and let your emotions guide the writing about a place.
+ - What you create when you’re teaching fiction writing is a kind of literary salon, not a social club or a mutual admiration society, not a debating society, not a repair shop, not a fight club or a soap box. It’s a place to have a conversation about a story.
+ - Drug programs began to turn their attention and money away from prevention and into maintenance. Methadone was cheaper than social workers, I suppose.
+ - Place is character. And all writing is regional.
+ - I sat around the kitchen every Sunday afternoon listening to my mother and aunts talk about the people in the neighborhood. Gossip – I loved it. And that turns out to be the writer’s job: to attend to the gossip and spread it as far as you can.
+ - Reading is also a creative activity if you’re doing it right. You can learn more from a story that’s left the tracks than from a successful story.
+ - Pleasure is, after all, a luxury. It’s love that’s essential.
+ - Every person in therapy has a love disorder.
+ - As a writer you can and should expect to hear conflicting responses to your story.
+ - I think I’ve learned to be mindful. I may not have taken the time to try to understand narrative techniques, let’s say, with any rigor, if I did not also have to try to explain those techniques to someone else.
+ - I was reading for understanding. I wanted to do to a reader what Salinger did for me.
+ - A lack of narrative structure, as you know, will cause anxiety.
+ - We all sleep with the corpses of our dead lovers.
+ - I had begun what I thought might be a career in social work. I was married and deeply involved in the anti-war movement. I thought I’d go about saving the world one person at a time. I worked with kids, teenagers mostly, in neighborhood centers, on the streets, and eventually in a drop-in center.
+ - I learned to love stories by listening to them.
+ - Every act of loving affirms the goodness of the lover just because he is capable of loving and being loved.
+ - In revision, your imagination becomes deeply engaged with your material. It’s when you come to know your characters and begin to perceive their motivations and values.
+ - Fiction begins with the senses, and the senses go to work in a place.
+ - I was always writing. I just didn’t know if I was any good.
+ - There were the fairy tales my father told to me at bedtime. All the standards. I thought my father invented wolves.
+ - Writing a story, you understand, is not done by consensus. But we do learn from each other, and we remind ourselves how important this work we’re doing is.
+
+40 quotes

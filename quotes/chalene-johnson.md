@@ -1,0 +1,21 @@
+ - Get comfortable being uncomfortable, that’s how you break the plateau and reach the next level.
+ - You’re always a work in progress. Flexibility. Personality. Motivation. There’s always room to improve.
+ - If you align your priorities in such a way that puts people first, everything begins to make more sense.
+ - If you want it bad enough, you have to be willing to fight for it.
+ - Resolve to do the things you find to be difficult. That’s what confident people do. They tackle those things that are scary and they get addicted to doing it.
+ - Energy is a state of mind. Tell yourself you’re tired and you will be. Tell yourself you feel great and you will.
+ - What positive things have you said to yourself today? Acknowledge your greatness.
+ - Treat yourself like a fat person with aches and pains and a suitcase full of excuses, and good luck-you’ll stay exactly where you are. Train like an athlete and, though you may not look like one now, you will become one.
+ - The results are the payoff. And all this sweating and hard work will be worth it.
+ - From this day forward, speak to yourself in a way that you would someone you care about.
+ - Treat yourself like an overweight, out of shape person and that’s what you will be. Why not train and treat yourself like an athlete?
+ - Ask yourself every couple of minutes, ‘Can I go harder? Can I do more?’ You’ve got so much power. Show me.
+ - Invest your time with people who will push you to be your best. Winners love to see other people win.
+ - Never measure yourself against magazine covers. Every ‘perfect’ body you see in a bikini is a result of weeks of dieting and exercise. And airbrushing.
+ - Successful people do what others know they should do but will not. To become a success, or just be more successful, you will do what average, less-motivated people will not.
+ - Only exercise on the days you want to improve your mood.
+ - PiYo gives you hardcore definition, intense calorie burn, and allover strength – without weights, without jumps, and without destroying your body.
+ - Commitment is a muscle. The more you use it, the stronger it gets.
+ - Know how blessed you are to be able to work this hard!
+
+19 quotes

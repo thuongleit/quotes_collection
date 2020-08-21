@@ -1,0 +1,87 @@
+ - If you feel like there’s something out there that you’re supposed to be doing, if you have a passion for it, then stop wishing and just do it.
+ - When life gives you lemons don’t make lemonade, make pink lemonade. Be unique.
+ - Mostly everything gets worse before it gets better.
+ - If you’re passionate about your work, it makes the people around you want to be involved too.
+ - I’m here today because I refused to be unhappy. I took a chance.
+ - I hate when women compare men to dogs. Men are not dogs. Dogs are loyal. I’ve never found any strange panties in my dog’s house.
+ - I don’t like the saying keep your friends close and enemies closer. I want my enemy on a different planet.
+ - A woman would pitch a joke. Nothing. Then a guy would pitch it and everybody would laugh.
+ - I’m a comedian so I’m not waiting around for someone to write a part for me. I don’t have to wait for somebody else to create my next job; I have the ability to basically write my own ticket.
+ - Men are dogs. Men are dogs. We got to stop it. Men are not dogs. Uh-uh. Dogs are loyal.
+ - I don’t understand why people really get upset about something that doesn’t affect them at all.
+ - There are just so many more laws and rules that apply with marriage that do not come with domestic partnership and also to me it’s the commitment.
+ - It’s not until you develop your own voice, your own persona onstage that you become your own comic, who you really are.
+ - When I am outside at night by myself every person turns into a pedophile. So I tend to walk a little faster than usual and then I sprint.
+ - If something stinks, I say it stinks. But I try to massage it a little and not be as cutting, come behind it with a joke: Hey, I cut you deep, but now let me put a couple of stitches in you.
+ - I was really gifted at being able to construct a joke, but it’s like they weren’t even memorable, my first jokes, because they were so about nothing.
+ - I’m like, If you do something dumb, I’ll write about it. If you put something out there, to me it’s like you’re kind of asking for it.
+ - There’s times when I’m really shy, so these roles that I get to play, they’re how I would love to really be. And that’s why I love doing stand-up, because it gives me the freedom to say what I really want to say. I think that’s why it’s my favorite thing to do.
+ - I enjoy stand-up because it has the biggest reward: instant gratification. You can hear the people laughing.
+ - It seems like when I first started, people got into comedy because they wanted to be good comedians.
+ - And then also I think it’s harder for women because comedy is so opposite of being ladylike.
+ - I guess because of my act, people think that I say things they want to say, and that they can just come up and say anything to me.
+ - I’m finally just relaxed and comfortable with who I am.
+ - People say, ‘Well don’t you regret not having kids?’ And I go, ‘No, not really.’ And then if they keep asking, I always say this, ‘Well, you know, maybe I’ll adopt.’ But I don’t mean that. It’s just something I say to make me sound like a nicer person.
+ - It wasn’t until I became more confident with myself and I put myself forward instead of the jokes; at first it was put the jokes out there and I’m just behind the jokes.
+ - Since when did I become the spokesperson for nappy-headed hos?
+ - My worlds collide. When one things happens, it just starts a domino effect – everything else goes on.
+ - I had top-secret clearance and everything. I was working on a couple of projects that would keep me involved in Desert Storm. I was in the mix, which is scary.
+ - You can’t make a woman happy. That’s like trying to cure a fatal disease. The goal is to treat the symptoms so you can comfortably live with the illness.
+ - As soon as you say ‘I do,’ you’ll discover that marriage is like a car. Both of you might be sitting in the front seat, but only one of you is driving. And most marriages are more like a motorcycle than a car. Somebody has to sit in the back, and you have to yell just to be heard.
+ - Good comics stick around. There are people who have TV shows that might be successful, but comics can’t really fake it. If you say, ‘Hey, I love what you guys are doing – you’re funny,’ then you’re in. It’s legit.
+ - We never hid anything from the kids. I feel whole again, I really do. I’ve told them, ‘Mommy’s boo-boo is much better now.’
+ - But I understand that relationship; I understand how the mother-in-law, daughter-in-law relationship has so many conflicts because it’s so forced.
+ - I have a funny family, but none of them are remotely in show business.
+ - Don’t bother me while I’m eating, or when I’m coming out of the crackhouse or something. Just let me get going.
+ - I feel today’s society is so judgmental.
+ - Yeah, I had top-secret clearance and everything.
+ - When my wife and I leave California, I want to have my marriage recognized in Nevada, Arizona, all the way to New York. How can you stop people from loving each other? How can you get upset about loving?
+ - You know the economy is bad when illegals start complaining that Americans are taking their jobs.
+ - That word sassy – it haunts me. I keep getting the sassy thing.
+ - Ok so there’s no TV shows, no movies going on fine, but I love going on stage and performing stand up so my situation is a little better than someone who’s strictly just an actor or actress.
+ - I sat down and wrote some jokes and went to the talent show, got up on stage, fell in love with it and never turned back.
+ - I have problems with YouTube and things like that, when you catch it mid production. If I’m doing a show and I’m working on a bit and someone’s there with a phone, they record it and put it online – it’s not the finished product.
+ - Whatever I talk about is what I’m interested in at the time. Politics are big with me. But being a mom is taking up most of my time. My act is more family-oriented than it is about politics.
+ - To me, political office should be like jury duty. You should just get a notice in mail one day and be like, I’m Secretary of State next month!
+ - Rush Limbaugh was the 20th hijacker. I hope his kidneys fail.
+ - Seriously, I don’t need a gun. I’m easily annoyed. I would shoot people in my house that I invited over.
+ - Actually, I majored in marketing and I have a bachelor of science.
+ - What drives the creative person is that we see it all.
+ - I’m really funny now.
+ - All these teenagers tell us how much they want to grow up and then when they do they want to be young again.
+ - Then you had people who wanted to get into comedy just to get a TV deal.
+ - When my parents send me emails the first 3 are blank.
+ - Now, I think the people who are still doing stand-up are doing it because they love stand-up.
+ - I think it’s because my comedy is in your face, and it comes from a place that’s real.
+ - But sometimes the women writers will pitch something and I’ll hear it, but the men will keep talking.
+ - My neighbor, she invited me to an Elvis party. I told her I couldn’t come ’cause I’d be too busy making fun of her from behind my blinds.
+ - I watched a lot of comedy growing up.
+ - I work hard. The staff and crew see how much energy I put into this project, and it makes them step up.
+ - Once you start making money, you can be an ass. But I am not an ass. I’m too lazy, that takes a lot of energy.
+ - I knew something was wrong with the economy when the shampoo girl at my salon closed on a six bedroom house.
+ - I like doing a bunch of different things, being all over the place.
+ - I always want to go back and do stand-up; I like the freedom.
+ - I’m always thinking of stuff; I just don’t sit down and write it. I come up with material more as I go along; if something funny happens, I’ll make a note of it on my phone.
+ - I really can’t pinpoint the one moment when I said I want to be a comic.
+ - I noticed recently, in the last few shows I did, that I’m starting to get people – not a large group, but quite a few people – who come to see me because they love Curb Your Enthusiasm.
+ - I always had one goal, and that was to be a real funny stand-up comic, and that’s pretty much what I’m doing. And everything else is kind of like gravy – TV, movies.
+ - But I think funny and talent will always win out; I mean, of course there are hurdles, but I think if you’re funny you will get over all of that.
+ - I don’t like doing the same material over and over again. It’s not fun.
+ - I know every time I fly, I get checked twice: they stop me at security, and then, they get me again at the gate. And last time, it was so bad, they actually made me go through the machine with the luggage.
+ - I hope his kidneys fail, how about that? He needs a waterboarding, that’s what he needs.
+ - How can you stop people from loving each other? How can you get upset about loving?
+ - The first time onstage, a light went on. ‘OK, this is my thing. I’m comfortable here. This is my thing.’
+ - Whether you have a show or not, you can still be somewhere being funny.
+ - I was funny around my family. My family, they’re pretty funny, too.
+ - What gets me is when celebrities aren’t allowed to have an opinion on anything political. There’s the whole ‘Shut up and sing’ thing.
+ - It’s hard to get fired from the government. You have to, like, kill people.
+ - I love Costas. He’s knows too much, but he’s a good guy.
+ - Some government workers are dedicated and work hard, but most of them are just waiting to retire.
+ - Writers get to stay with the piece. They don’t just turn the script in and somebody else takes it over and goes out and produces it and edits it and all that stuff. We stay with the piece all the way through.
+ - In ’87, I used to do this awful, awful James Brown impression.
+ - Men don’t hear women.
+ - It’s easier to rip somebody to shreds while you’re making them laugh.
+ - Usually, there’s nothing being thrown toward the stage or at me. Then I feel pretty good about it.
+ - I’m going to leave The Wanda Sykes Show and try to get her job because $5 million ain’t too bad!
+
+85 quotes

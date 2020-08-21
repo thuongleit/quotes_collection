@@ -1,0 +1,23 @@
+ - Love yourself, for who and what you are; protect your dream and develop your talent to the fullest extent.
+ - Running is 80 percent mental.
+ - There’s not a better feeling than when you have found that moment of balance and harmony when both running and life come together. Then you know why you run and that you couldn’t live without it.
+ - You can’t depend on other people, you have to run your own race.
+ - Confidence is a belief in myself and my ability. I built my confidence through hard training. I believed there was no one out there working any harder than me.
+ - Doing something for yourself like running, and using it to test yourself, will only make you feel better about your career or your family role.
+ - I look at victory as milestones on a very long highway.
+ - My philosophy on running is, I don’t dwell on it, I do it.
+ - Recognize your victories.
+ - Years ago, women sat in the kitchen drinking coffee and discussing life. Now they discuss the same topics while they run.
+ - Winning is neither everything nor the only thing. It is one of many things.
+ - When I first started running, I was so embarrassed I’d walk when cars passed me. I’d pretend I was looking at the flowers!
+ - Every time I fail, I assume I will be a stronger person for it. I keep on running figuratively and literally, despite a limp that gets more noticeable with each passing season, because for me there has always been a place to go and a terrible urgency to get there.
+ - Every time I fail I assume I will be a stronger person for it.
+ - Running is about more than just putting one foot in front of the other; it is about our lifestyle and who we are.
+ - The challenge and the energy running requires may be a selfish one, but it actually motivates me to be stronger in my relationships.
+ - If you feel like eating, eat. Let your body tell you what it wants.
+ - There will always be something to strive for. My hope is for the heart to strive forever.
+ - Coffee doesn’t do it for me; it’s running that gets me going.
+ - One hour with a child is like a ten-mile run.
+ - Keep varying the program. Your body will tell you what to do.
+
+21 quotes

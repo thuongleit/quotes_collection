@@ -1,0 +1,93 @@
+ - I do not wish women to have power over men; but over themselves.
+ - My husband – my king.
+ - Virtue can only flourish among equals.
+ - Fondness is a poor substitute for friendship.
+ - Strengthen the female mind by enlarging it, and there will be an end to blind obedience.
+ - The mind will ever be unstable that has only prejudices to rest on.
+ - It is justice, not charity, that is wanting in the world.
+ - Let woman share the rights and she will emulate the virtues of man; for she must grow more perfect when emancipated...
+ - Women ought to have representatives, instead of being arbitrarily governed without any direct share allowed them in the deliberations of government.
+ - The appetites will rule if the mind is vacant.
+ - Only that education deserves emphatically to be termed cultivation of the mind which teaches young people how to begin to think.
+ - Some women govern their husbands without degrading themselves, because intellect will always govern.
+ - The same energy of character which renders a man a daring villain would have rendered him useful in society, had that society been well organized.
+ - The graceful ivy, clasping the oak that supported it, would form a whole in which strength and beauty would be equally conspicuous.
+ - Modesty is the graceful, calm virtue of maturity; bashfulness the charm of vivacious youth.
+ - Surely something resides in this heart that is not perishable – and life is more than a dream.
+ - For years I have endeavored to calm an impetuous tide – laboring to make my feelings take an orderly course – it was striving against the stream.
+ - A king is always a king – and a woman always a woman: his authority and her sex ever stand between them and rational converse.
+ - The more equality there is established among men, the more virtue and happiness will reign in society.
+ - Women are systematically degraded by receiving the trivial attentions which men think it manly to pay to the sex, when, in fact, men are insultingly supporting their own superiority.
+ - You know I am not born to tread in the beaten track the peculiar bent of my nature pushes me on.
+ - A war, or any wild-goose chase, is, as the vulgar use the phrase, a lucky turn-up of patronage for the minister, whose chief merit is the art of keeping himself in place.
+ - If women be educated for dependence; that is, to act according to the will of another fallible being, and submit, right or wrong, to power, where are we to stop?
+ - When man, governed by reasonable laws, enjoys his natural freedom, let him despise woman, if she do not share it with him.
+ - Age demands respect; youth, love.
+ - The absurd duty, too often inculcated, of obeying a parent only on account of his being a parent, shackles the mind, and prepares it for a slavish submission to any power but reason.
+ - A modest man is steady, an humble man timid, and a vain one presumptuous.
+ - At boarding schools of every description, the relaxation of the junior boys is mischief; and of the senior, vice.
+ - Women all want to be ladies, which is simply to have nothing to do, but listlessly to go they scarcely care where, for they cannot tell what.
+ - From the respect paid to property flow, as from a poisoned fountain, most of the evils and vices which render this world such a dreary scene to the contemplative mind.
+ - Nothing, I am sure, calls forth the faculties so much as the being obliged to struggle with the world.
+ - Friendship is a serious affection; the most sublime of all affections, because it is founded on principle, and cemented by time.
+ - As a sex, women are habitually indolent; and every thing tends to make them so.
+ - Children, I grant, should be innocent; but when the epithet is applied to men, or women, it is but a civil term for weakness.
+ - Simplicity and sincerity generally go hand in hand, as both proceed from a love of truth.
+ - My own sex, I hope, will excuse me, if I treat them like rational creatures, instead of flattering their fascinating graces, and viewing them as if they were in a state of perpetual childhood, unable to stand alone.
+ - The divine right of husbands, like the divine right of kings, may, it is hoped, in this enlightened age, be contested without danger.
+ - Weakness may excite tenderness, and gratify the arrogant pride of man; but the lordly caresses of a protector will not gratify a noble mind that pants for, and deserves to be respected. Fondness is a poor substitute for friendship.
+ - When poverty is more disgraceful than even vice, is not morality cut to the quick?
+ - I never wanted but your heart – that gone, you have nothing more to give.
+ - Make women rational creatures, and free citizens, and they will quickly become good wives; – that is, if men do not neglect the duties of husbands and fathers.
+ - Good habits, imperceptibly fixed, are far preferable to the precepts of reason.
+ - Taught from infancy that beauty is woman’s sceptre, the mind shapes itself to the body, and roaming round its gilt cage, only seeks to adorn its prison.
+ - When a man seduces a woman, it should, I think, be termed a left-handed marriage.
+ - Men neglect the duties incumbent on man, yet are treated like demi-gods; religion is also separated from morality by a ceremonial veil, yet men wonder that the world is almost, literally speaking, a den of sharpers or oppressors.
+ - I do earnestly wish to see the distinction of sex confounded in society, unless where love animates the behaviour.
+ - How frequently has melancholy and even misanthropy taken possession of me, when the world has disgusted me, and friends have proven unkind. I have then considered myself as a particle broken off from the grand mass of mankind.
+ - A slavish bondage to parents cramps every faculty of the mind.
+ - Independence I have long considered as the grand blessing of life, the basis of every virtue; and independence I will ever secure by contracting my wants, though I were to live on a barren heath.
+ - We reason deeply, when we forcibly feel.
+ - Women are degraded by the propensity to enjoy the present moment, and, at last, despise the freedom which they have not sufficient virtue to struggle to attain.
+ - The two sexes mutually corrupt and improve each other.
+ - It is vain to expect virtue from women till they are in some degree independent of men.
+ - The mind will ever be unstable that has only prejudices to rest on, and the current will run with destructive fury when there are no barriers to break its force.
+ - Love, from its very nature, must be transitory.
+ - Learn from me, if not by my precepts, then by my example, how dangerous is the pursuit of knowledge and how much happier is that man who believes his native town to be the world than he who aspires to be greater than his nature will allow.
+ - I think schools, as they are now regulated, the hot-beds of vice and folly, and the knowledge of human nature supposedly attained there, merely cunning selfishness.
+ - The power of generalizing ideas, of drawing comprehensive conclusions from individual observations, is the only acquirement, for an immortal being, that really deserves the name of knowledge.
+ - Men and women must be educated, in a great degree, by the opinions and manners of the society they live in.
+ - People thinking for themselves have more energy in their voice, than any government, which it is possible for human wisdom to invent; and every government not aware of this sacred truth will, at some period, be suddenly overturned.
+ - I love man as my fellow; but his scepter, real, or usurped, extends not to me, unless the reason of an individual demands my homage; and even then the submission is to reason, and not to man.
+ - I begin to love this creature, and to anticipate her birth as a fresh twist to a knot, which I do not wish to untie.
+ - When any prevailing prejudice is attacked, the wise will consider, and leave the narrow-minded to rail with thoughtless vehemence at innovation.
+ - In every age there has been a stream of popular opinion that has carried all before it, and given a family character, as it were, to the century.
+ - Society can only be happy and free in proportion as it is virtuous.
+ - I think I love most people best when they are in adversity; for pity is one of my prevailing passions.
+ - Friendship and domestic happiness are continually praised; yet how little is there of either in the world, because it requires more cultivation of mind to keep awake affection, even in our own hearts, than the common run of people suppose.
+ - At school boys become gluttons and slovens, and, instead of cultivating domestic affections, very early rush into the libertinism which destroys the constitution before it is formed; hardening the heart as it weakens the understanding.
+ - Every political good carried to the extreme must be productive of evil.
+ - We cannot, without depraving our minds, endeavour to please a lover or husband, but in proportion as he pleases us.
+ - Men with common minds seldom break through general rules. Prudence is ever the resort of weakness; and they rarely go as far as as they may in any undertaking, who are determined not to go beyond it on any account.
+ - It appears to me impossible that I should cease to exist, or that this active, restless spirit, equally alive to joy and sorrow, should be only organized dust.
+ - How can a rational being be ennobled by any thing that is not obtained by its own exertions?
+ - True happiness must arise from well-regulated affections, and an affection includes a duty.
+ - It is time to effect a revolution in female manners – time to restore to them their lost dignity. It is time to separate unchangeable morals from local manners.
+ - Women have seldom sufficient employment to silence their feelings; a round of little cares, or vain pursuits frittering away all strength of mind and organs, they become naturally only objects of sense.
+ - If the abstract rights of man will bear discussion and explanation, those of women, by a parity of reasoning, will not shrink from the same test.
+ - The being cannot be termed rational or virtuous, who obeys any authority, but that of reason.
+ - The flexible muscles growing daily more rigid give character to the countenance ; that is, they trace the operations of the mind with the iron pen of fate, and tell us not only what powers are within, but how they have been employed.
+ - In this metropolis a number of lurking leeches infamously gain subsistence by practicing on the credulity of women.
+ - Why is our fancy to be appalled by terrific perspectives of a hell beyond the grave?
+ - It is the preservation of the species, not of individuals, which appears to be the design of Deity throughout the whole of nature.
+ - The last man! Yes I may well describe that solitary being’s feelings, feeling myself as the last relic of a beloved race, my companions extinct before me...
+ - The endeavor to keep alive any hoary establishment beyond its natural date is often pernicious and always useless.
+ - I must be allowed to add some explanatory remarks to bring the subject home to reason-to that sluggish reason, which supinely takes opinions on trust, and obstinately supports them to spare itself the labour of thinking.
+ - But what a weak barrier is truth when it stands in the way of an hypothesis!
+ - Life cannot be seen by an unmoved spectator.
+ - What, but the rapacity of the only men who exercised their reason, the priests, secured such vast property to the church, when a man gave his perishable substance to save himself from the dark torments of purgatory.
+ - Situation seems to be the mould in which men’s characters are formed.
+ - In fact, it is a farce to call any being virtuous whose virtues do not result from the exercise of its own reason.
+ - When we feel deeply, we reason profoundly.
+
+91 quotes

@@ -1,0 +1,95 @@
+ - I tend to think of myself as a one-man wolf pack.
+ - If you see something, say something.
+ - I would start a revolution, but I just bought a hammock.
+ - I love playing a curmudgeon. I just love playing a sour guy.
+ - You know you’re getting fat when your socks don’t fit.
+ - I’ll never forget my grandmother’s last words. She said ‘What are you doing?’
+ - The other day, I got a henna tattoo that says “Forever.”
+ - My New Year’s resolution was to stop saying ‘You go, girl’ to myself.
+ - I know my face is turning red. I don’t want you to interpret it as being embarrassed. It’s rage. The color of my face is rage.
+ - You know you have a drinking problem when the bartender knows your name – and you’ve never been to that bar before.
+ - I want to do another reality show. It’s based on The Mole. It’s about sexually transmitted diseases. It’s called “God, I Hope That’s a Mole.”
+ - A good stand-up, you lead the audience. You don’t kowtow to the audience. Sometimes the audience is wrong. I always think the audience is wrong.
+ - I have a lot of growing up to do. I realized that the other day inside my fort.
+ - If you read my blog, you know I’m a pilates freak. And by pilates, I mean waffles.
+ - I don’t want to do an edgy show, I didn’t want bad language. I think edginess is the new hackiness.
+ - My headshot is a scratch and sniff, it smells like failure and onions.
+ - I’ve always wanted to have a Greek sitcom called Olive Lucy.
+ - I find anger to be funny. I find people that are so wrapped up in their own personalities to be funny, and lost. Like myself in real life.
+ - I have to stop crying when I watch “The View”. It’s not because of the topics at hand, I just feel sorry for that couch.
+ - Hookers don’t like to snuggle.
+ - Do you ever do something, and then think to yourself: That’s So Raven?
+ - We all know how funny Morrissey is. Actually, you know what? I say that sarcastically. His songs are some of the funniest songs I’ve ever heard in my life. I mean, really. I mean, not that the ‘Girlfriend in a Coma’ is, like, really funny.
+ - You know it’s time to do the laundry when you dry off with a sneaker.
+ - I have a 60-acre farm in North Carolina, and I have a tractor and a farmhouse. As soon as I groom the land, I want to put cabins around and have a place where people can write and hang out. It’ll be either that or an all-black nudist colony.
+ - My brother has ADD, which is weird because he drives a Ford Focus. I told my brother that joke but he didn’t laugh because he got distracted by my shoe strings.
+ - The word abbreviation sure is long for what it means.
+ - There was a long time where I was an ‘artist’ in quotes, who had no money. But I guess back then I also never had a girlfriend.
+ - I’m Greek. My body produces feta cheese.
+ - Do you remember that kid that had sex with his high school teacher? I was reading online that he died today. He died from hi-fiveing.
+ - Inappropriateness is funny to me. Rudeness is hilarious.
+ - When you look like I do its hard to get a table for one at Chucky Cheese.
+ - My forte is awkwardness.
+ - It’s not good for comedy to be like, ‘Thanks for liking me.’ Being popular is poison.
+ - I call my balls the bush twins.
+ - I’ve always been attracted to sad. If you look at Woody Allen movies, he’s often playing a sad clown, and it’s always been interesting. And angry clown is even more interesting.
+ - My name is Zach Galifianakis and I hope I’m pronouncing that right. I’m named after my granddad, my middle name. My name is Zach Granddad Galifianakis.
+ - I haven’t been hit since Leon Spinks hit me in ’92.
+ - I’m terrible about people wanting to take pictures with me. I’m a giant baby about it. They treat you like a cartoon. There’s nothing you can do except make light of it.
+ - My real last name is Galifianakisburg.
+ - At what age do you think it’s appropriate to tell a highway it’s adopted?
+ - I don’t mean to be gross, but the only time it’s good to yell “I have diarrhea” is when you’re playing Scrabble because it’s worth a shitload of points.
+ - I dream of moving to India, or Pakistan, and becoming a cabdriver.
+ - That’s one of the great things about comedy: we can – and should – say the things that other people aren’t supposed to say. If we didn’t do that, if we didn’t push against those limits, we’d just be standing around onstage and yelling.
+ - It’s fun for me to couple emotion with comedy. I think it helps comedy. I think a lot of times American comedies don’t play on emotion too much.
+ - When I was in high school I used to sit by myself in the cafeteria – not necessarily by choice – but I thought it was funny to talk to people that weren’t there.
+ - I don’t like cursing in movies. I feel like cursing has become the new hackiness. You try to find substitutions for cursing.
+ - You’re not supposed to be accepting trophies. You’re supposed to be in the back being mad that people are getting trophies.
+ - My stand-up is more like how I am in real life. I don’t really do a character thing in stand-up. It’s just a bunch of sentences that are supposed to be funny.
+ - I think if they put a laugh track on ‘Intervention,’ it would be funny.
+ - We talked about politics constantly in my family growing up in North Carolina. There were always debates. Being of Greek background, it’s in our blood to drink coffee and talk politics.
+ - Whether you are on the Right or the Left, everyone can agree that there are a lot of outside influences in American politics that are not good for the system. There’s just too much money.
+ - Actually, I used to be a busboy in a strip joint in New York and so I hate strip joints. I’m not that kind of person.
+ - I’ve been happily dedicated to the same woman for a number of years. I never even look at other women.
+ - My girlfriend and I went to a dinner party the other night and we ended up playing charades. There was another couple there that was deaf. They were so good.
+ - You save 15 more minutes of sleep if you are a man and you don’t have to shave.
+ - I was just thinking how unfortunate it’d be to be a fat girl named Candy.
+ - I am going to be the next Ryan Gosling.
+ - I think comedy does have that powerful thing that doesn’t seem too preachy because you’re also making people laugh, so it’s really kind of a good tool for messaging.
+ - Fat jokes to me are always, always hilarious, as long as they’re done towards yourself.
+ - I just try to keep myself a traditionalist. I liked being an underground comic doing my thing. I want to maintain that. I just do.
+ - When a role seems fun it’s easy to play. It kind of comes organically.
+ - I watch a happy person doing stand-up, and I go, “What the hell is this? This person’s happy!” You need internal conflict. You need the guy to be out of step with society. It’s a tool for comedy.
+ - My comfort zone is press conferences.
+ - But comedy is like music, it appeals to some people. Some people like Creed, those people are usually pretty stupid. But they probably also like Carrot Top. I would say that they’re part of the same ilk.
+ - I wonder if in 2050 there will be a movie called, ‘Dude, Where’s My Spaceship’
+ - Reciting lines is hard; making stuff up is much, much easier.
+ - I try to write three jokes every day. I don’t sit down and write them, it’s just things that pop into my head. Then I’ll go watch it fail onstage that night.
+ - When you’re doing standup you’re kind of doing, ‘Hey. I thought of this. This may be funny.’
+ - I think comedy is a really, really good tool for trying to say something.
+ - I am not into publicity. I’m not good at it. I get anxiety about it.
+ - I’m not versed enough in constitutional law to run for office. I’d have to go back to school or something.
+ - I’m writing a book about Siamese Twins that are attached at the nose. It’s called: Stop Staring at Me!
+ - People are trying to prove things. And I probably have that. I probably do. Probably guilty of it, in a way.
+ - Element of surprise is really fun for me in comedy. I have to be surprised, and everything’s been done.
+ - I like characters that are fragile and a little bit on the edge .
+ - I don’t like to have anybody tell me to be in a place at certain times. That’s kind of the advantage of stand up. You’re self-employed.
+ - I kind of put myself out there as is. I’m a quiet person. I don’t know if that’s surprising. I’m a Pilates junkie.
+ - I like dark comedies. That’s why I like the Wayans Brothers.
+ - I would have changed my last name if being famous were my goal.
+ - The whole thing about working in front of the camera is to make people laugh when they’re not supposed to.
+ - I do not have a helmet. But this is a wig, so it’s a little protective.
+ - I live in Los Angeles and I had been drinking one night, so I was on the walk of fame and I saw Tony Danza’s star and I started urinating on it. Just yelling out, ‘Who’s the boss now?’
+ - My dad doesn’t get any of my jokes. He laughs at them, but he doesn’t understand them. He’s just laughing because people around him are laughing.
+ - American society loves to prop people up and then take them down.
+ - You write things that are of interest to you. There’s no focus group.
+ - As a comic, it’s anti-comedy to be known. I think a lot of comedic actors get lost in this world of Hollywood and all this stuff. They lose what brought them there in the first place. I’m very trepidatious about it.
+ - The problem with these interviews is that there’s no sarcastic font.
+ - I don’t really have a pattern yet. I don’t know if I’ll develop one. As far as comedic integrity, I don’t have integrity in general, comedic or otherwise.
+ - I just could just shave my beard, and nobody would recognize me. Although I look like Jodie Foster.
+ - I don’t know what my assistant would do besides get me pot.
+ - I think sadness and anger are really fertile ground for comedy. No one is really interested in a happy person doing comedy.
+ - You know how some people have gay-dar? I have fat-dar. I can automatically tell if you’re fat or not. And I also have cerebral-palsy-dar.
+ - I think those neighborhood signs that say ‘slow children playing’ are mean.
+
+93 quotes

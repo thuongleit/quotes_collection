@@ -1,0 +1,53 @@
+ - I have very eclectic taste in music. I like everything from Nirvana, which is featured in the film, to world music, to orchestral and jazz. For me, the nineties were about Oasis, because I was travelling around Britain when that band exploded onto the music scene.
+ - I love the power women have. I think women rule the world because they rule men. Manipulating men – that’s our job. That’s what we’re on the planet for.
+ - Women should not have to adopt masculine traits in order to succeed. You should be able to stay as a woman, and in tune with your femininity, and still be equal.
+ - I think there is nothing sexier than a handlebar moustache.
+ - I don’t like junk food, just because I don’t like the taste of it, but I don’t go to the gym – ever.
+ - My name is actually quite a popular name in Scotland. People elsewhere always think it’s far more exotic than it is. In Scotland, it’s a common name.
+ - Family is 100 per cent my top priority.
+ - I love marriage. I think it’s a wonderful institution and it’s the most important decision you make.
+ - I loved Morocco. It’s very exotic and different from anywhere I’ve ever been. I had an amazing day there in the high Atlas Mountains near Mount Tamadot, when I rode by donkey into a Berber village and drank some mint tea with a Berber family. It was exceptional.
+ - Being a mother is by far my greatest accomplishment.
+ - I think your heart dances to the beat of your own drum, and I’m the happiest I’ve ever been.
+ - I love ‘Monty Python,’ ‘Black Adder,’ ‘Fawlty Towers.’ I’m a huge fan of British comedy.
+ - You can’t underestimate how traumatic divorce is for the children.
+ - An easy way to get people to like you is to make them laugh.
+ - I do consider myself to be a feminist.
+ - I love religions and find them fascinating, and I find Judaism very beautiful. It’s enriched my life enormously.
+ - Growing up, there wasn’t much emphasis on being nice or naughty. As a family, there wasn’t much discipline. It was more relaxed at home, which I’m grateful for.
+ - I was raised as a tomboy with boys, and I never really feel like myself when I am really dolled up at premieres and showbiz events.
+ - I always try to choose material that I would want to go and see. I don’t choose movies anymore to be in that other people wouldn’t want to see.
+ - I’m definitely attracted to other Australians; I have a laid-back attitude to life that I feel is very Australian; I love a good barbie.
+ - Being proud of who we are as people is more important than cutting into ourselves to create this false idea of beauty.
+ - I think all married couples tend to run things by each other in every capacity and we’re not different to them.
+ - I still write. I’d love to write more trashy chick-lit. At the moment, I just re-write my own lines, which probably annoys most directors – though, thankfully not Adam Brooks!
+ - I love good food and I love to eat in nice restaurants. I love Japanese food. I love Gordon Ramsay in London; he is pretty amazing.
+ - You have to list all your special skills on a form when you get an agent. There’s fencing, stage combat, horse riding, motorbike riding, Spanish, French, German, whatever. I just ticked everything. I talk about 10 languages according to that form. I even ticked the extreme sports box.
+ - Unlike typical romantic comedies, Definitely Maybe is not formulaic or predictable and it spans a decade while being set against a political background. Also, the audience doesn’t know who ends up with who until the very end, which makes it a sort of “romantic mystery comedy”.
+ - You know, motherhood is my favourite topic in my personal life and I won’t shut up about it, but it’s not something I want to discuss publicly just because of the amount of attention it draws to a small person who didn’t choose to be exposed.
+ - What I loved about breast-feeding was that bond of one-on-one time. The serotonin that’s released calms you down and connects you to the baby.
+ - I love acting, love it. It’s the greatest fun in the world. I’ve never had trouble feeling extremely grateful.
+ - Anytime anyone compliments me on my figure, I’m wearing my Spanx undies.
+ - I crashed my boyfriend’s birthday when I was 12 years old. He didn’t invite me and so I showed up.
+ - I think there’s a lack of quality roles for women in comedies. Most actresses get cast as the “eye-roller” or “the serious one,” while men in comedies get to do all the fun, silly stuff and muck around. Sometimes you just have to search hard for a role or create one for yourself.
+ - The great thing about doing physical comedy for film is that if it doesn’t work you’re not exposed. It ends up on the editing room floor, so it gives you a lot more room to experiment I guess. But I really enjoy doing it. I’m very comfortable tapping into my inner idiot.
+ - I love to cook. But I’m a bit rubbish. I tend to start something and then dip into a book or have a conversation and come back and everything’s burnt.
+ - The most romantic thing a guy has ever done for me is starting a family. That’s as romantic as it gets.
+ - In real life I’m obviously a lot more shy, but once I’m on set and in costume and I’m hidden behind the person I’m playing I feel quite free to experiment.
+ - I have always felt comfortable tapping into my inner idiot.
+ - Even though it’ll never be flat again, my stomach is my favorite part of my body because it reminds me of my greatest achievement – my babies.
+ - To make lashes curl better, take a hair dryer to your eyelash curler for one or two seconds before using it.
+ - Comedy has always been important in my family. If you got in a good joke at the dinner table, it meant more than almost anything else.
+ - I’m not a fashionista. I don’t have much experience in that world.
+ - All I know is that I’ve ruled out wearing fairy wings. When I was nine I wanted to get married in fairy wings, and now I realize that’s not cool anymore.
+ - I don’t really watch many heist movies. Actually, I have quite eclectic tastes but I tend to watch just foreign films.
+ - I tell my girlfriends – ‘Imagine if all the time you put into waxing and primping, you took all of that energy and put it into something useful.’
+ - I find weddings really boring. They give speeches, your aunt kisses you on the cheek, and you’re at a boring table. But it’s different when it’s your own.
+ - I have a side of me that doesn’t care. I really enjoy physical comedy, thinking of an idea and pitching it to the director.
+ - In Hollywood, you feel a responsibility to look less disheveled than you are. But I’m a mom, and I’m not good at putting time into prepping.
+ - I breastfed both my kids for two years so, you know it was very tiring emotionally and physically.
+ - I never have time to cook, so I just look through the books and imagine the dishes I would make if I wasn’t going out for a business dinner.
+ - I usually go into a store with a mission. My idea of a fun thing to do would not be to go to a mall and shopping.
+ - I think kissing scenes always feel awkward but there’s just no way around it. But it’s a part of the job.
+
+51 quotes

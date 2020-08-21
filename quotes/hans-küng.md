@@ -1,0 +1,34 @@
+ - God’s love does not protect us from suffering. God’s love protects us in the midst of suffering.
+ - There will be no peace among the nations without peace among the religions. There will be no peace among the religions without dialogue among the religions.
+ - Religion often is misused for purely power-political goals, including war.
+ - There will be peace on earth when there is peace among the world religions.
+ - I am firmly convinced that there is life after death, not in a primitive sense but as the entry of my completely finite person into God’s infinity, as a transition into another reality beyond the dimension of space and time that pure reason can neither affirm nor deny.
+ - I’m not saying goodbye to life because I’m a misanthropist or disdain this life, but because, for other reasons, it’s time to move on.
+ - As a matter of fact, you have deficiencies in all religions, but you have truth in all religions.
+ - It is not certain that everything is certain, neither is it certain that everything is uncertain.
+ - Hundreds of millions of human beings on our planet increasingly suffer from unemployment, poverty, hunger, and the destruction of their families.
+ - At the same time we are aware that our various religions and ethical traditions often offer very different bases for what is helpful and what is unhelpful for men and women, what is right and what is wrong, what is good and what is evil.
+ - After two world wars, the collapse of fascism, nazism, communism and colonialism and the end of the cold war, humanity has entered a new phase of its history.
+ - A human person is infinitely precious and must be unconditionally protected.
+ - In the last resort, a love of God without love of humanity is no love at all.
+ - Everyone agrees the celibacy rule is just a Church law dating from the 11th century, not a divine command.
+ - I don’t cling to earthly life because I believe in eternal life. That’s the big distinction between my point of view and a purely secular position.
+ - The Gospel has to be the norm.
+ - Time and again we see leaders and members of religions incite aggression, fanaticism, hate, and xenophobia – even inspire and legitimate violent and bloody conflicts.
+ - We should think about whether canonizations, which are an invention of the Middle Ages, still make sense today.
+ - Alluding to hell is a warning that a person can completely neglect his purpose in life. I don’t believe in an eternal hell.
+ - A Church which abandons the truth abandons itself.
+ - In the event that my illness worsens, I want to have a guarantee that I can die in a dignified manner. Nowhere in the bible does it say that a person has to stick it out to the decreed end. No one tells us what “decreed” means.
+ - For many people, the pope is still, to a certain extent, a positive role model and a moral force, although others feel that this aspect has suffered greatly.
+ - But I have to add – and this answers your other question – this catholicity in time and in space is only meaningful for me if there is, at the same time, a concentration on the Gospel.
+ - All historical experience demonstrates the following: Our earth cannot be changed unless in the not too distant future an alteration in the consciousness of individuals is achieved.
+ - And a third thing is the understanding of the Church as a community, a communion which is just a hierarchy but the people of God, whose servants are the priests and bishops.
+ - I like the catholicity in time: our tradition is one of 2,000 years.
+ - The Epistle to the Romans is an extremely important synthesis of the whole theology of St. Paul.
+ - If priests were allowed to marry, if this would be an optional thing, and if he could have wife and children, he would certainly have less temptation to satisfy certain sexual impulses with minors.
+ - However, if the religions in essence merely repeat statements from the United Nations Human Rights Declaration, such a Declaration becomes superfluous; an ethic is more than rights.
+ - We are conscious that religions cannot solve the economic, political and social problems of this earth.
+ - Humanity today possesses sufficient economic, cultural and spiritual resources to introduce a better global order.
+ - That is the Roman way: to give favors to the favorites.
+
+32 quotes

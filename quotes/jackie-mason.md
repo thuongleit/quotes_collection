@@ -1,0 +1,38 @@
+ - Money is not the most important thing in the world. Love is. Fortunately, I love money.
+ - I have enough money to last me the rest of my life, unless I buy something.
+ - My grandfather always said, Don’t watch your money, watch your health. So one day while I was watching my health, someone stole my money. It was my grandfather.
+ - Did you ever hear of a kid playing accountant – even if they wanted to be one?
+ - It’s no longer a question of staying healthy. It’s a question of finding a sickness you like.
+ - I have nothing but love in my heart and everything I say is just an instrument for laughs.
+ - My father was a very successful businessman, but he was ruined in the stock market crash. A big stockbroker jumped out the window and fell on his pushcart.
+ - Why is it that they have Bibles in every motel room? Why should a man want to read the Bible when he’s with a woman alone in a motel room? Why would he be interested? Whatever he’s praying for, he’s already got!
+ - I’ve been watching politics for 35 or 40 years and you just never know. You can have one person win the Iowa caucus and then the whole picture changes ten minutes later. The same thing can happen again after New Hampshire. I have no idea what’s going to happen with our country in the future.
+ - Eighty percent of married men cheat in America. The rest cheat in Europe.
+ - Did you know that the Jews invented sushi? That’s right – two Jews bought a restaurant with no kitchen.
+ - If an Englishman gets run down by a truck he apologizes to the truck.
+ - Did you hear about the accountant who became am embezzler? He ran away with the accounts payable!
+ - I was so self -conscious, every time football players went into a huddle, I thought they were talking about me.
+ - I can’t predict the future and I don’t have respect for people who try to.
+ - By these things examine thyself. By whose rules am I acting; in whose name; in whose strength; in whose glory? What faith, humility, self-denial, and love of God and to man have there been in all my actions?
+ - A Jew never laughs without looking at his wife for approval.
+ - Predictions are preposterous.
+ - Would you put a pastrami in your mouth if you didn’t want to eat it?
+ - I’m still suffering from shock from the last war. I was almost drafted! Luckily I was wounded while taking the physical. When I reached the psychiatrist, I said, Give me a gun, I’ll wipe out the whole German Army in five minutes. He said, You’re crazy! I said, Write it down!
+ - I don’t believe that anybody has come to a conclusion on why something is funny. It’s funny because it’s ridiculous and it’s ridiculous for different reasons at different times.
+ - I didn’t think it was fair to pretend to give of myself when I was so selfishly consumed with my own drives.
+ - I can’t pretend that I’m a great student of the art of comedy because anybody that becomes philosophical about humour doesn’t know what he’s talking about.
+ - I’m crazy about the fact that the Jewish people should survive because they have so much to contribute and so many values to contribute to the world. It would be a much better world, a much more peaceful and non-violent world if we lived by Jewish values.
+ - On the murder of New York deli owner Abe Lebewohl: It’s almost like wiping out Carnegie Hall. A sandwich to a Jew is just as important as a country to a Gentile.
+ - A person who speaks good English in New York sounds like a foreigner.
+ - My material is as new as anything on the dinner table. What difference does it make if I’m 70 or if I’m 20? The audience knows they aren’t getting any old stories from me.
+ - Jews are the best dressers in the world. They buy the best clothes, the best homes, the best cars. The best of everything. The only thing is, they get it for less.
+ - My comedy doesn’t come from any calculations and studies.
+ - I am excited about getting back to what I do best and what my audience likes best, I am writing new jokes every day and soon Ill be telling them every night. Just me, one Jew talking and that’s it.
+ - It is more profitable for your congressman to support the tobacco industry than your life.
+ - When most people return from Europe, they tell tales of all the sites they saw, the shopping, the entertainment, etc. Jews, on the other hand, return and say I had this slice of cake in Austria, let me tell you, I don’t know how they make it! It was great!
+ - Everybody knows we’re entitled to one Jerusalem. History reveals very simply that this is our land from the days of the Bible.
+ - America is the only country in the world where you can burn the flag but can’t tear the tag off the mattress.
+ - I’ve got another friend who is half-German and half-Polish. He hates Jews but can’t remember why!
+ - While I have the utmost respect for people who practice the Christian faith, the fact is, as everyone knows, I am as Jewish as a matzo ball or kosher salami.
+
+36 quotes

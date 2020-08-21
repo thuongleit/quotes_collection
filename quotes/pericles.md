@@ -1,0 +1,37 @@
+ - What you leave behind is not what is engraved in stone monuments, but what is woven into the lives of others.
+ - Just because you do not take an interest in politics doesn’t mean politics won’t take an interest in you.
+ - Better die standing than live kneeling.
+ - Time is the wisest counselor of all.
+ - Having knowledge but lacking the power to express it clearly is no better than never having any ideas at all.
+ - Those who can truly be accounted brave are those who best know the meaning of what is sweet in life and what is terrible, and then go out, undeterred, to meet what is to come.
+ - We do not say that a man who takes no interest in public affairs is a man who minds his own business. We say he has no business being here at all.
+ - Freedom is the sure possession of those alone who have the courage to defend it.
+ - Time as he grows old teaches many lessons. – Aeschylus Time is the wisest counselor of all.
+ - We do not imitate, but are a model to others.
+ - Who makes the fairest show means most deceit.
+ - As for poverty, no one need be ashamed to admit it, the real shame is in not taking practical measures to escape from it.
+ - In private matters everyone is equal before the law. In public matters, when it is a question of putting power and responsibility into the hands of one man rather than another, what counts is not rank or money, but the ability to do the job well.
+ - For heroes have the whole earth for their tomb; and in lands far from their own, where the column with its epitaph declares it, there is enshrined in every breast a record unwritten with no tablet to preserve it, except that of the heart.
+ - To face calamity with a mind as unclouded as may be, and quickly to react against it-that in a city and in an individual-is real strength.
+ - For grief is felt not so much for the want of what we have never known, as for the loss of that to which we have been long accustomed.
+ - If Athens shall appear great to you, consider then that her glories were purchased by valiant men, and by men who learned their duty.
+ - Our love of what is beautiful does not lead to extravagance; our love of the things of the mind does not make us soft.
+ - Future ages will wonder at us, as the present age wonders at us now.
+ - For the whole earth is the tomb of famous men; not only are they commemorated by columns and inscriptions in their own country, but in foreign lands there dwells also an unwritten memorial of them, graven not on stone but in the hearts of men.
+ - A woman’s greatest glory is to be little talked about by men, whether for good or ill.
+ - Those who can think, but cannot express what they think, place themselves at the level of those who cannot think.
+ - We do not need the praises of a Homer, or of anyone else whose words may delight us for the moment, but the estimation of facts will fall short of what is really true.
+ - Instead of looking on discussion as a stumbling block in the way of action, we think it an indispensable preliminary to any wise action at all.
+ - For a man’s counsel cannot have equal weight or worth, when he alone has no children to risk in the general danger.
+ - It is difficult to argue with the belly, for it has no ears.
+ - Trees, though they are cut and loped, grow up again quickly, but if men are destroyed, it is not easy to get them again.
+ - Although only a few may originate a policy, we are all able to judge it.
+ - She is best who is least spoken of among men, whether for good or evil.
+ - Not to be able to bear poverty is a shameful thing, but not to know how to chase it away by work is a more shameful thing yet.
+ - Famous men have the whole earth as their memorial.
+ - The whole earth is the tomb of heroic men and their story is not given only on stone over their clay but abides everywhere without visible symbol woven into the stuff of other mens lives.
+ - Your great glory is not to be inferior to what you have been given by nature, and the greatest glory of a woman is to be least talked about by men, whether theyare praising or criticizing you.
+ - The marketplace is democratic.
+ - We Athenians hold that it is not poverty that is disgraceful but the failure to struggle against it.
+
+35 quotes

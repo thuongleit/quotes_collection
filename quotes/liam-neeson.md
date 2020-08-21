@@ -1,0 +1,95 @@
+ - If you make yourself more than just a man, if you devote yourself to an ideal, you become something else entirely.
+ - I love it when a plan comes together.
+ - If someone stands in the way of true justice, you simply walk up behind them, and stab them in the heart.
+ - Criminals thrive on the indulgence of society’s understanding.
+ - It’s still a great, big, beautiful, wonderful world no matter what the headlines of the newspapers are and it’s there to be explored. It’s there for our children to go out and explore and explore different cultures and learn from it. I never lose hope.
+ - Men fear most what they cannot see.
+ - Yes, I’m Catholic; I’m proud of it. But I had lots of Protestant friends.
+ - You are not what you were born, but what you have it in yourself to be.
+ - I’ve had an unbelievable life. I’ve been very lucky. You do create your own luck too, you know? I never forget where I’m from. Whenever I pass a building site or see somebody digging a ditch, I always think, ‘That’s real work.’
+ - Northern Ireland is the world’s best kept secret, both in the character of its people and its scenery.
+ - For all of nature’s wonder and beauty, it is also hostile and unpredictable.
+ - I do shadow boxing and use a heavy bag, but I don’t spar with anyone.
+ - I’m a big believer in acts of kindness, no matter how small.
+ - In bed at night, I could be reading some book, and I’ll come across a sentence that’s totally unrelated to some scene I did years ago. But I’ll play the scene back in my mind and think, I did that wrong – I should’ve opened the door more slowly.
+ - I certainly notice the vitality in Belfast, which wasn’t there in the Seventies. There was a war going on then. Now there are cranes everywhere. There really is a sense of renewal and hope.
+ - Queen’s University flies the flag for the arts in Northern Ireland and beyond.
+ - The Irish Catholic side was married to the life of an actor and I found out acting could be a form of prayer.
+ - I always wanted to be a cowboy, and Jedi Knights are basically cowboys in space, right?
+ - I was reared a Catholic but I think every day we ask ourselves, not consciously, what are we doing on this planet? What’s it all about?
+ - I’m trying to be a comedian, you know?
+ - Recovering alcoholic guys wake up in the morning, and they have to think of a reason to get up, and then, once they’re up, to not have a drink. It’s like all these little heroic battles they have that they fight with and against every day of their lives.
+ - I’m keeping myself to myself. And I like it that way. I’m not hunting. I’m the opposite of a – what would a male cougar be? Is there such a thing? Whatever it is, I’m not that.
+ - If I get rejected for a part, I pick myself up and say, ‘OK, not today, maybe tomorrow I’ll get this other part or something.’
+ - I love working with children and this young boy, Thomas Sangster, is quite a remarkable young actor. He raises your game, you know. He certainly raised mine.
+ - In real life, wolves will do anything to avoid contact with mankind.
+ - Getting married and settling down isn’t the most important thing in my life.
+ - I don’t do my own stunts, but I do my own fighting. I don’t consider fighting to be a stunt.
+ - Every cliche about kids is true; they grow up so quickly, you blink and they’re gone, and you have to spend the time with them now. But that’s a joy.
+ - I don’t think I’m funny.
+ - I’m so touched that complete strangers will send me a script asking me to be in their film. That still amazes me – and sometimes for a lot of money too.
+ - It’s extraordinary to look into a baby’s face and see a piece of your flesh and your spirit. It makes you realize you are a part of the human race.
+ - Some mornings you wake up and think, gee I look handsome today. Other days I think, what am I doing in the movies? I wanna go back to Ireland and drive a forklift.
+ - I’m constantly reading books on God or the absence of God and atheism.
+ - Rihanna is a very talented person. One of those people who are able to do whatever they want with great results.
+ - It is the right to bear arms which is the problem. I think if the Founding Fathers knew what was happening they would be turning in their graves with embarrassment at how that law has been interpreted.
+ - To be honest, I’m scared to death of rollercoaster rides.
+ - It’s funny, but you get to a time in your life when you think you have all the friends you will ever have.
+ - I will never become a director or a movie producer. I was always looking at picture directing because I didn’t know what to do! You can’t be a movie director without real preparation.
+ - I get fed up with plots that are driven by someone constantly getting information on a computer.
+ - I was an OK boxer, I wasn’t great, I was OK, but I loved the discipline of getting together every Monday, Wednesday and Friday, usually Saturday afternoons too, with a whole bunch of mates and training, very, very hard for about two-and-half hours.
+ - I have no desire to play King Lear or Hamlet. I never had a grand ambition. I just followed my nose.
+ - In Los Angeles, it’s like they jog for two hours a day and then they think they’re morally right. That’s when you want to choke people, you know?
+ - I’m Irish, so I’m used to odd stews. I can take it. Just throw a lot of carrots and onions in there and I’ll call it dinner.
+ - When I see great boxers, it’s like reading a wonderful poem.
+ - It’s an extraordinary thing, this tiny little province of Northern Ireland, where carnage happened. And I was part of it. I grew up in it.
+ - And the Institute sent me a little film footage of Kinsey himself preparing to do an interview for television to talk about his work, so that was quite valuable for me.
+ - Girl Rising reminds us that educating the girls of today is an investment in everyone’s tomorrow.
+ - I thought, well of course, Kinsey absolutely adored teaching. He was a wonderful teacher. So these kids really inspired me. So that was a clue I hung onto. He loved young people, he absolutely loved them. And he loved teaching them and trying to help them.
+ - We live in an age where revenge seems to be the most important thing for individuals and countries. Why not forgive each other? Decide to accept each other’s differences and move on.
+ - The whole awards thing is great. Why? Because the Golden Globes, the Academy Awards, they put a focus on the industry, and that focus translates into people buying tickets to see movies or download films, legitimately download them. And it keeps us all at work. So I’m a big fan of award shows.
+ - Sitting down to eat in our house is about sharing, you know, talking about the day you’ve had, be it in school or work or whatever, so that’s very important to us.
+ - The cause of making the world a better place for children unites us all...
+ - Making a film, you do need stamina, whether you’re doing fight scenes or not. It’s important to keep fit. I’m not talking about having perfect abs and stuff, but you’ve got to be on top of your game, especially if you’re playing the lead. You have to look after yourself.
+ - I have to make it my job to be careful with my family.
+ - Well I was on the jury duty on the Deauville Film Festival, a few years ago.
+ - Looking out for your children is an ongoing process throughout your life.
+ - Acting with creatures that aren’t there is kind like acting with an actor who refuses to come out of his trailer. You still have to go on and do the scene.
+ - Well, from an acting point of view, I bear no relation, I don’t look like Alfred Kinsey at all, but I thought somewhere in my artist’s soul, my actor’s soul, I could capture something of the spirit of the man.
+ - Why would anyone ever tell anything personal to a journalist?
+ - I think I survived by running away some. Running away to work.
+ - There’s a ruthlessness to the city now that wasn’t there before. I was in Dublin a few months ago, when we were shooting Breakfast on Pluto, and if I saw one kid throwing up on the street, I must have seen a hundred of them.
+ - I have friends who have daughters and there’s times I think I’m glad I have boys instead of girls.
+ - People ask me if I ever feel outside the Hollywood loop, and I never do, because both of us do a lot of theatre, so it’s great for New York and it’s also half-way between Europe and the west coast, so it’s the best of both worlds.
+ - But I was very, very lucky, and it was a wake up call as far as motorbikes are concerned. I never flirted with death on the bike, but now I’m totally convinced they’re death machines.
+ - The putting on of vestments and lighting candles, it’s a wonderful ritual that never changes from one Mass to another.
+ - But let’s just say, I’m Irish. I grew up in the 1950s. Religion had a very tight iron fist.
+ - I came to water late. I learned to swim at the age of 20.
+ - Hollywood is throwing action movies at me.
+ - I do believe at the end of the night when you’re with your family, the character gets hung up on the door like a coat, and is there to be taken on the next morning.
+ - Acting is invigorating. But I don’t analyse it too much. It’s like a dog smelling where it’s going to do its toilet in the morning.
+ - Yeah, well, I finally stopped smoking for good.
+ - I’m not the kind of actor that would know what my character had for breakfast last Tuesday.
+ - It’s an ongoing joy being a dad.
+ - I don’t think for this generation, but for my generation and my father’s generation, men had difficulty in accessing emotion and then being able to talk about it.
+ - It’s interesting, the more successful you become the more people want to give you stuff for nothing.
+ - I think if you’re the son or daughter of successful actors and actresses, it’s a double pressure. More is expected of you.
+ - You can’t act being a boxer. It’s like being on stage.
+ - I keep fit as much as I can.
+ - I never thought about becoming a professional singer, but I am in touch with Bono about releasing a musical movie. It will be about an Irish band during the ’70s who are looking for fortune in Las Vegas. I should play the singer of the band but I don’t want to sing in front of anybody.
+ - I’ve made many films and only a few times I’ve played real people.
+ - There seems to be more opportunities for old guys like me to do a little fighting and running because the lead characters also require a bit of depth and maturity and gravitas that one is likely to acquire doing drama all those years.
+ - And as the hour approached for the execution, in his own mind, Collins became both the executioner and the victim. He would pace up and down, transformed in almost a kind of exorcism when he knew he was responsible for taking someone’s life.
+ - I gravitate toward women.
+ - It is fun to explore these kick-butt characters.
+ - The population of America is roughly 300 million and there are 300 million guns in this country, which is terrifying.
+ - Every time I see Anthony Hopkins I think that, to some extent, he has just been getting away with it all these years.
+ - I love doing my own stunts but it’s hard.
+ - It’s easy enough to plan jobs, to plan a lot of work.
+ - Being Irish and a citizen of the world, has made me truly appreciate Irish culture, music and history. Whether you’re first, second generation Irish or even with no connection to Ireland, you should visit in 2013 for a unique experience.
+ - I don’t know if I’m a strict parent or a pushover.
+ - I’m fairly comfortable in fight sequences and stuff like that. I’ve done a few of them. I’m comfortable with that sort of stuff as long as I’m reasonably fit, and it’s fun to do actually. I’m like a kid in a toy shop doing that stuff.
+ - Kinsey’s quest was really for us all to be tolerant and accepting of each other.
+ - I did, although I didn’t read from page 1 to page 187 but I read chunks of it. I did a little bit of science when I was in the university so I was able to understand the graphs and pie charts and stuff like that. It was extremely dry.
+
+93 quotes

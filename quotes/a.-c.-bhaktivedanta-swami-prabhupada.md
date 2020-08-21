@@ -1,0 +1,38 @@
+ - Books are the basis; purity is the force; preaching is the essence; utility is the principle.
+ - Religion without philosophy is sentiment, or sometimes fanaticism, while philosophy without religion is mental speculation.
+ - You should not be carried away by the dictation of the mind, but the mind should be carried by your dictation.
+ - Beginning of all knowledge comes from humility.
+ - To kill nothing, that is love.
+ - The holy name of Krishna has extraordinary spiritual potency because the name of God is nondifferent from God Himself.
+ - One should not be happy or distressed over desirables and undesirables, knowing that such feelings are just created by the mind.
+ - Faith is unflinching trust in something divine.
+ - If you sell diamonds, you cannot expect to have many customers. But a diamond is a diamond even if there are no customers.
+ - This chanting of the Hare Krishna mantra is enacted from the spiritual platform and thus this sound vibration surpasses all lower strata of consciouness – namely sensual, mental and intellectual.
+ - Humility means that one should not be anxious to have the satisfaction of being honored by others.
+ - The genuine Guru is God’s representative and he speaks about God and nothing else.
+ - A tree full of ripened fruits bows down naturally, because of the weight of the fruits and its willingness to make its fruits accessible to others.
+ - A spiritual master who is one hundred percent Krishna conscious is the bona fide spiritual master.
+ - A disciple serves the spiritual master with the sole purpose of getting instructions from him.
+ - Indulgence in animal killing for the taste of the tongue is the grossest kind of ignorance.
+ - Krishna was conceived in the womb of Devaki mysteriously as the sun setting in the West imparts his rays to the rising moon in the East.
+ - Anyone who is steady in his determination for the advanced stage of spiritual realization and can equally tolerate the onslaughts of distress and happiness is certainly a person eligible for liberation.
+ - One must execute devotional service under the guidance of a devotee or directly under the guidance of the Supreme Personality of Godhead. It is not possible, however, to train oneself without guidance from the spiritual master.
+ - In the last stage of the spiritual master’s life, the devotees of the spiritual master should take preaching activities into their own hands. In this way the spiritual master can sit down in a solitary place and render nirjana-bhajana.
+ - A devotee should be fixed in the conclusion that, the spiritual master cannot be subject to criticism and should never be considered equal to a common man.
+ - Every living creature is the son of the supreme Lord, and He does not tolerate even ants being killed.
+ - A grain of devotion is more valuable thank tons of faithlessness.
+ - The highest summit of spiritual perfection is knowledge of the Supreme Personality of Godhead.
+ - When a pure devotee or spiritual master speak, what he says should be accepted as having been directly spoken by the Supreme Personality of Godhead in the Parampara System.
+ - If after accepting the spiritual master and being initiated one does not follow the rules and regulations of devotional service, then he is again fallen.
+ - In spiritual life, one must conduct one’s whole life under the guidance of the guru. Only one who executes his spiritual life under the direction of the spiritual master can achieve the mercy of Krishna.
+ - By the grace of the spiritual master the cloud of the mercy of the Personality of Godhead is brought in, and then only, when the rains of Krishna consciousness fall, can the fire of material existence be extinguished.
+ - Just try to learn the truth by approaching a spiritual master. Inquire from him submissively and render service unto him. The self-realized soul can impart knowledge unto you because he has seen the truth.
+ - Out of many millions of wandering living entities, one who is very fortunate gets an opportunity to associate with a bonafide spiritual master by the grace of Krishna. By the mercy of both Krishna and the spiritual masters, such a person receives the seed of the creeper of devotional service.
+ - Since one cannot visually experience the presence of the Supersoul, He appears before us as a liberated devotee. Such a spiritual master is none other than Krishna himself.
+ - A bona fide spiritual master, under the guidance of authorities, can turn anyone to the Vaisnava cult so that naturally he may come to the topmost position of a brahmana.
+ - One has to ascertain the right path for his activities by following in the footsteps of great saintly persons and books of knowledge under the guidance of a spiritual master.
+ - It is imperative that one approaches a spiritual master, for by such association one proportionately develops his consciousness towards the Supreme Personality of Godhead.
+ - Be very humble when you plan so that Krishna is happy with you.
+ - The artist draws a picture of a rose very nicely with all attention and artistic sense, and yet it does not become as perfect as the real rose. If that is the real fact, how can we say that the real rose has taken its shape without Intelligence behind the beauty?
+
+36 quotes

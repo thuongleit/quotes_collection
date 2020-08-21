@@ -1,0 +1,30 @@
+ - With any group of people in life, sad things happen, and crazy things, and happy things. When you’re in the public eye, it’s just amplified, that’s all.
+ - My pro-choice activism keeps me busy.
+ - Nudity in the flesh doesn’t bother me. But having my mind uncovered – that scares the hell out of me.
+ - I don’t buy into any of that hogwash. They put that out to sell tickets. It’s just a classic horror movie, with the Greek drama formula of good versus evil, and lots of fear.
+ - The thing about being famous is, it’s weird. The only people who get how weird it is are other famous people.
+ - I’m a grandmother with dogs and nice friends here in the Rocky mountains. Ever see the movie A River Runs Through It? That’s where I live. It’s beautiful, no two ways about it.
+ - We were sweet, lovely people who wanted to throw out all the staid institutions who placed money and wars above all else. When you’re young you think that’s how life works.
+ - We didn’t have movies in this little mining town. When I was 12 my mom took me to New York and I saw Bye Bye Birdie, with people singing and dancing, and that was it.
+ - Nothing spooky or terrible happened on set, but we were told to say it had. We were giving a press conference and the writers were going on about these terrible things that supposedly happened while we were filming.
+ - I had always thought of Chris as my kid brother and watching how this kid, as I still thought of him, had affected so many peoples lives around the world was incredible.
+ - God, George Bush makes me want to slash my wrists. He’s so embarrassing I have to leave the room when he’s on the news. What a monkey.
+ - Acting’s fun, but life’s more important.
+ - I’m a very good screamer, that’s for sure.
+ - The thing about all good horror movies is that the fans expect a couple of inside jokes. Maybe I’m supposed to be saying how terrified I was while making it, but it was really fun.
+ - The first Superman film took up a huge chunk of our lives, but it was a wonderful time for us. We were young, my daughter was little, we were filming in London for a year, so we became like a close family.
+ - My grandson sees me as Lois on TV every Christmas, and that scores me points.
+ - I liked the fact that Lois was one person with Clark and another with Superman. I think that, as women, we do that a lot when we fall in love.
+ - I was briefly bitter.
+ - You take the cards you’re dealt. I’m now ferociously healthy in body and mind. You couldn’t pay me to go near a psychiatrist again. Stopping seeing them was my first step to getting well.
+ - This is my year of the remake. Go for it, see what you can do, guys, why not?
+ - The thing about the wacky fans is that they’re really sweet.
+ - I was reading all these books, including the Bible – and I’m an atheist.
+ - I was very active in the peace movement, still am.
+ - I went to work and did a lot of homework about what was wrong with me.
+ - Being pretty crazy while being chased by the National Enquirer is not good. The British tabloids were the worst.
+ - If you’re gonna fall apart, do it in your own bedroom.
+ - Theres this unspoken club where you say to each other: Oh God, if they only knew how ordinary I was, they wouldnt be interested. That includes movie stars and politicians.
+ - I love horror movies because they’re really fun. They tap into those wonderful primal emotions.
+
+28 quotes

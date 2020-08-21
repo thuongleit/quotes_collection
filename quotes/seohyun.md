@@ -1,0 +1,22 @@
+ - Good shoes take you to good places.
+ - If your dream is alive, then one day it will come true.
+ - Don’t let your emotions get the best of you and blind you from the truth.
+ - People with good hearts are the ultimate winners.
+ - The only way to change the future is to change the present.
+ - We firmly believe in the power of unity and feel that it is easier to get pass hardships and challenges as a team. This gels us and keeps us strong.
+ - People change all the time whether you like it or not.
+ - What’s the difference between love and like?
+ - People get desperate when they’re backed into a corner.
+ - We confide in each other and we really spend time together like a family. And since I’m the maknae, my unnies take care of me even more. I don’t think we will be broken apart very easily.
+ - I would like Taeyeon unnie to be the leader, but like Hyoyeon unnie said, I think shes carrying a lot of burdens by being in that position. So, Ill just leave it to the unnies.
+ - Unhealthy diets and junk foods accumulate and eventually you’ll die.
+ - I am still a student. My classmates study really hard, so I feel like I should too. But they always say things like: “You don’t have to.”, “Aren’t you busy?”, “Just give up, you have another way.”; But I don’t think that’s right. There’s no reason for me to give up, I didn’t quit high school.
+ - You don’t scream because you’re scared. You scream on purpose.
+ - People think of my entire image as a kid who lives a straight and narrow life, so I can feel myself not being able to act comfortably. I’ve been thinking that I want to go through some different life experiences and have been learning a lot while living with my other members.
+ - I’ve been living for 17 years, and I’ve noticed human relations is the most difficult thing to understand...
+ - The name ‘Girls Generation’ in itself contains dreams. And that dream of making the world a Girls Generation will never change.
+ - It’s not worth comparing; Kara and SNSD are both Korean girl groups. I’m proud that Korean girl groups are being recognized in Japan Everyone has their preferences. There are people who like SNSD and there are people who like Kara.
+ - I feel like my pure and proper image is causing others to be really cautious about becoming close to me. They think I sleep as soon as it hits midnight.
+ - I’m quite the nagger too. I nag at the others when their chatting makes our rehearsals finish later than scheduled.
+
+20 quotes

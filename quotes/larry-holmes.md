@@ -1,0 +1,42 @@
+ - There is no quit in me.
+ - Now I’m free of him and I’m light as a feather. There’s no weight holding me down; I’m ready to spread my wings and fly.
+ - Set a goal and make a commitment to meet that goal. Do the best you can, but never forget your roots, never forget where you came from. After you have succeeded, look back and see if there are others that you might help to achieve what you have accomplished.
+ - When you constantly hear people talking about going the distance, going the distance, you can’t help but wonder about it. I learned a lesson: next time I will fight my fight without that doubt.
+ - My dad used to tell me, ‘Check the price, son.’ Check the price, kids, check the price because there is a price to be paid for whatever you do in life, whether it is good or it is bad. Before you do something, ask yourself is it worth the price you have to pay?
+ - Earnie hit me harder than any other fighter, including Mike Tyson. He hit me and I was face down on the canvas hearing saxophonist Jimmy Tillis.
+ - I won’t say I won’t fight again but I don’t think anyone wants to fight me so I am finished and I will just continue with boxing exhibitions.
+ - Muhammad Ali could take a very good punch. He was slick, he could move, he could hit, make you miss, good hand speed and combinations and one of the greatest fighters of all time in my opinion.
+ - It’s hard being black. You ever been black? I was black once – when I was poor.
+ - It wasn’t about Larry Holmes, if I would have fought a brother I wouldn’t have gotten the money I got. Give me 10 black guys and I make eight dollars. Give me Gerry Cooney and I make $10 million.
+ - We put our life on the line to fight for them, put on a show and these guys take our money so whatever happens to Bob Arum, Don King or anyone else is fine with me.
+ - Don King was good to me through my years as champion, but I wouldn’t trust him as far as I could throw him. He’s a wheeler dealer and you’ve got to be careful. He’s a great con artist.
+ - I achieved something once again, I think we all want to put a mark on life. I dream, and my dreams always come true. I dreamed I was the heavyweight champion of the world. I am the heavyweight champion of the world.
+ - I was probably the best that ever walked this earth. And I could take a punch. I could deliver a punch. I didn’t have the hardest punch in the world but my punches were sharp and they were crisp. And if you took too many of them, you would be knocked out.
+ - I don’t owe Don King anything. I got things with my own sweat and blood. I don’t know if I’ll be associated with Don but I won’t be a slave or puppet for him.
+ - Mike Tyson would have been a good sparring partner for me and Muhammad Ali because Tyson was a fast fighter and he could punch and throw good combinations.
+ - My fans know the name Larry Holmes and that he always gave it his all.
+ - Yeah, I thought I could be heavyweight champion of the world when I was working with Ali and Joe Frazier and Earnie Shavers and all those guys. Because they were older than me and I was doing my thing.
+ - All fighters are prostitutes and all promoters are pimps.
+ - You can’t put those guys like Marciano or anyone else in with today’s class of fighters.
+ - I still feel that I am in my prime right now but I think my best fights were in my thirties.
+ - Don King is a hip exploiter, an intelligent flesh peddler.
+ - I didn’t fight this fight for the blacks, the whites or the Spanish, I fought th fight for the people. We’re all God’s children. I don’t see color. I’m not a racist When I look at Gerry Cooney, I just see a man trying to take my head off.
+ - When Don King’s fighters lose their titles they come back fighting on the undercard for peanuts. King owns all the top heavyweights and we spar against each other but we get charged for it and that comes out of our purses.
+ - Everybody knows that I am one of the greatest fighters of all time and I would beat all those guys.
+ - I’m happy with my career but I could have been happier if I could have been treated like a champion should have been treated because management and fighters take advantage of fighters.
+ - The guys today are just too strong and back then they would take many hard punches to land one.
+ - If you don’t follow Don King, you get stepped on.
+ - I came from a dirt farm, now I’m filthy rich.
+ - Ali was a guy that had a lot of discipline. If you hung around him, you’d be able to get some of that discipline that he had. And I learned from that. He was a sweet man.
+ - Joe Louis was a good Heavyweight, good boxer but he was kind of in the same boat as Marciano, weighing about 190 to 200 lbs.
+ - This is the lying thieving mother who cut me $500,000.
+ - I never tried to be a mercenary or a killer but a hard working fighter.
+ - With a record of 75 fights and 6 losses, some of the losses were very questionable including Brian Nielsen when we fought in Denmark. I knew I won but they didn’t give me that fight.
+ - George Foreman is easier and has the bigger name and have you noticed that Foreman never calls me out or ever mentions my name? He is afraid of me like most fighters are and most people want to forget about Larry Holmes, like he never ever existed.
+ - People think that I reached the top overnight; well, it took me fourteen years. I was twenty-nine before I really made it. I’ve had my jaws and hands broken. One arm is out of place. I’ve paid my dues in this business.
+ - I have a lot of friends and fans in Canada and as a matter of fact I met a fan from there that came down to my office. It was nice and we took pictures and had a nice talk.
+ - Bob Arum and Don King can do their thing but if I fought for those guys and they put the money up like they are supposed to then I don’t have a problem.
+ - Don King doesn’t care about black or white. He just cares about green.
+ - Fighters today are much bigger, stronger and quicker and not only that but referees, judges and doctors back then were very strict and if your head got busted up the fight would be stopped.
+
+40 quotes

@@ -1,0 +1,45 @@
+ - You do the right thing even if it makes you feel bad. The purpose of life is not to be happy but to be worthy of happiness.
+ - The only real nation is humanity.
+ - Writing is revision. All prose responds to work.
+ - Don’t worry about being worried. You’re heading out on an adventure and you can always change your mind along the way and try something else.
+ - What I like about non-fiction is that it covers such a huge territory. The best non-fiction is also creative.
+ - When I select a topic, it’s usually a commitment of two to three years of my life.
+ - God gives us humans everything we need to flourish, but he’s not the one who’s supposed to divvy up the loot. That charge was laid upon us.
+ - That’s when I feel most alive, he told me once on an airplane, when I’m helping people.
+ - I’m going to a commune in Vermont and will deal with no unit of time shorter than a season.
+ - The ocean doesn’t care about you. It makes your boat feel tiny. The oceans are great promoters of religion, or at least of humility-but not in everyone.
+ - Curing yourself of obsessive compulsive disorder by going to a strip club is pretty strange.
+ - I do believe in God. I think God has given so much power to people, and intelligence, and said, ‘Well, you are on your own. Maybe I’m tired, I need a nap. You are mature. Why don’t you look after yourselves?’ And I think He’s been sleeping too much.
+ - The goofiness of radicals thinking they have to dress in Guatemalan peasant clothes. The poor don’t want you to look like them. They want you to dress in a suit and go get them food and water. Comma.
+ - I am grateful to Stacy Schiff first of all because she can write a sentence-because she offers us her scholarship with wit, clarity, and grace. Once again, she has done what only the best writers can do: she has made the world new, again.
+ - My big struggle is how people can not care, erase, not remember.
+ - I know that to write you have to have stories you want to tell. You have to keep your mind alive, and you have to work hard.
+ - I tell beginning readers to read a lot and write a lot. If you want to write a book, find a subject that’s really worth the time and effort you’ll put in.
+ - The combination of domesticity and wildness – that’s a deep expression.
+ - I always want to write something better than the last book.
+ - Many people find it easy to imagine unseen webs of malevolent conspiracy in the world, and they are not always wrong. But there is also an innocence that conspires to hold humanity together, and it is made of people who can never fully know the good that they have done.
+ - Paul Farmer has helped to build amazing health care system in one of the poorest areas of Haiti. He founded Partners in Health, which serves the destitute and the sick in many parts of the world from Haiti to Boston and from Russia to Peru.
+ - When writers stop believing in their own stories, readers tend to sense it.
+ - Continuity is one of the things I like about New England.
+ - In order to go on with our lives, we are always capable of making the ominous into the merely strange.
+ - In the early days, computers inspired widespread awe and the popular press dubbed them giant brains. In fact, the computer’s power resembled that of a bulldozer; it did not harness subtlety, though subtlety went into its design.
+ - People say you cant teach writing, but I think thats nonsense.
+ - At first, I spend about four hours a day writing. Toward the end of a book, I spend up to 16 hours a day on it, because all I want to do is make it good and get it done.
+ - I think if the writing comes too easily, it shows – it’s usually hard to read.
+ - The hardest thing was learning to write. I was 13, and the only writing I had done was for Social Studies. It consisted of copying passages right out of the encyclopedia.
+ - Public education rests precariously on the skill and virtue of the people at the bottom of the institutional pyramid.
+ - Obviously, computers have made differences. They have fostered the development of spaceships- as well as a great increase in junk mail.
+ - What interests me is trying to catch the reflection of the human being on the page. I’m interested in how ordinary people live their lives.
+ - I want my prose to be as clear as a pane of glass.
+ - If you had an essentially happy childhood, that tends to dwell with you.
+ - I’ve gotta keep life and computers separate, or else I’m gonna go mad.
+ - I wrote a novel about the combat experiences I didn’t have in Vietnam.
+ - Things were here before you and will be here after you’re gone. The geographic features, especially, give you a sense of your own place in the world and in time.
+ - In a very basic way, a prominent landmark such as Mt. Holyoke tells you where you are. They let you know that you’re not the first person in a place.
+ - You can write about anything, and if you write well enough, even the reader with no intrinsic interest in the subject will become involved.
+ - I never planned on doing a book about Paul Farmer or his organization. I met him in Haiti when I was on a magazine assignment. It’s almost like his story sort of fell in my lap.
+ - I do believe that enduring geological features are important, though I don’t think I can be clear about exactly why.
+ - Being a professional writer is not an easy way to make a living.
+ - If you live in the same small place long enough, something you don’t like is bound to happen.
+
+43 quotes

@@ -1,0 +1,79 @@
+ - When you feel like quitting think about why you started.
+ - The first step to getting anywhere is deciding you’re no longer willing to stay where you are.
+ - Strive for progress, not perfection.
+ - I can do all things through Christ who strengthens me.
+ - Just stick with it. What seems so hard now will one day be your warm up.
+ - Everybody wants happiness, nobody wants pain, but you can’t have a rainbow without a little rain.
+ - Entrepreneurship is living a few years of your life like most people won’t, so that you can spend the rest of your life like most people can’t.
+ - Dear Karma, I have a list of people that you missed.
+ - Someone once told me the definition of Hell: The last day you have on earth, the person you became will meet the person you could have become.
+ - I need a six month vacation twice a year.
+ - It hurts now, but one day it will be your warm up.
+ - The real trouble with reality is that there is no background music.
+ - I’m too busy working on my own grass to notice if yours is greener.
+ - You live, you learn, and you upgrade.
+ - Next time you think of beautiful things, don’t forget to count yourself in.
+ - Summer bodies are made in the winter.
+ - Excuses don’t burn calories.
+ - Obsessed is a word the lazy use to describe the dedicated.
+ - Dad is a son's first hero and a daughter's first love.
+ - You’re only one workout away from a good mood.
+ - There is no God but Allah and Muhammad is the Messenger of Allah.
+ - Sweat is just fat crying.
+ - Here’s to the future, because I’m done with the past.
+ - Dead Last Finish is greater than Did Not Finish, which trumps Did Not Start.
+ - Death leaves a heartache no one can heal, love leaves a memory no one can steal.
+ - You can feel sore tomorrow or you can feel sorry tomorrow. You choose.
+ - If God is for us, who can be against us?
+ - Everything is possible for him who believes.
+ - Therefore do not worry about tomorrow, for tomorrow will worry about its own things. Sufficient for the day is its own trouble. Matthew 6:34.
+ - Trust in the LORD with all thine heart; and lean not unto thine own understanding. In all thy ways acknowledge him, and he shall direct thy paths.
+ - A daughter needs a dad to be the standard against which she will judge all men.
+ - Making excuses burns zero calories per hour.
+ - I am the way the way the truth and the life, no one comes to the father but through me.
+ - And my God will supply all your needs according to His riches in glory in Christ Jesus.
+ - The only thing harder than letting go is moving on.
+ - Don’t let insecurity ruin the beauty you were born with.
+ - We live by faith and not by sight.
+ - Allah is all in all. Allah sees you, and is with you, wherever you are, whatever you do.
+ - The Lord is my rock, and my fortress, and my deliverer; My God, my strength, in whom I will trust; My shield, and the horn of my salvation; my stronghold.
+ - Save water. Shower with your girlfriend.
+ - People saying that vegans are weak clearly have no idea of how much strength it takes to stand up for what you believe in.
+ - Your workouts are important meetings you scheduled with yourself. Bosses don’t cancel.
+ - Above all else, guard your heart for it affects everything else you do.
+ - Where your treasure is, there will your heart be also.
+ - You are what you think. All that you are arises from your thoughts. With your thoughts you make your world.
+ - For with much wisdom comes much sorrow; the more knowledge the more grief.
+ - Whatsoever a man soweth, that shall he also reap.
+ - For GOD is greater than our hearts, and He knows everything.
+ - For the wages of sin is Death, but the gift of God is everlasting Life in Christ Jesus or LORD.
+ - And lo I am with you always, even to the very end of the age.
+ - Do not be deceived: bad company corrupts good morals.
+ - The ink of the scholar is more holy than the blood of the martyr.
+ - They who forgive most shall be most forgiven.
+ - Keep watch and pray, so that you will not give in to temptation. For the spirit is willing, but the body is weak.
+ - A gift is pure when it is given from the heart to the right person at the right time and at the right place, and when we expect nothing in return.
+ - Let your light so shine before men that they may see your good works and glorify your Father in heaven- Matt 5v 16.
+ - To have faith is to be sure of the things we hope for, to be certain of the things we cannot see.
+ - But the fruit of the Spirit is love, joy, peace, patience, kindness, goodness, faithfulness, gentleness and self-control.
+ - The power of God is with you at all times; through the activities of mind, senses, breathing, and emotions; and is constantly doing all the work using you as a mere instrument.
+ - Weeping may endure for a night, but joy cometh in the morning.
+ - And though I have the gift of prophecy, and understand all mysteries, and all knowledge; and though I have all faith, so that I could remove mountains, but have not love, I am nothing.
+ - Hell has three hates: lust, anger and greed.
+ - And God is able to make all grace abound to you, so that in all things at all times, having all that you need, you will abound in every good work.
+ - For God did not give us a spirit of timidity, but of power and of love and of calm and well balanced mind and discipline and self-control.
+ - Who can find a virtuous woman? For her price is far above rubies.
+ - We are nearer to him than his jugular vein.
+ - I am the light of the world. Whoever follows me will never walk in darkness, but will have the light of life.
+ - Allah causes the night and the day to succeed each other. Truly, in these things is indeed a lesson for those who have insight.
+ - Lord, be my rock of safety, the stronghold that saves me. For the honor of your name lead me and guide me.
+ - And if the blind lead the blind, both shall fall into the ditch.
+ - Curving back within myself I create again and again.
+ - I’m my beloved’s and my beloved is mine.
+ - The peace of God is with them whose mind and soul are in harmony, who are free from desire and wrath, who know their own soul.
+ - My dearest – But what more is there to be said? The things one says are always inadequate: it’s the touch of live hands, of lips pressed to lips that count. I want to hold you and say nothing. I want –.
+ - He who has let go of hatred who treats all beings with kindness and compassion, who is always serene, unmoved by pain or pleasure, free of the “I” and “mine,” self-controlled, firm and patient, his whole mind focused on me – that is the man I love best.
+ - In the heartfelt mercy of our God, the dawn from on high will visit us, to shine on those sitting in darkness, in the shadow of death, to guide our feet to the way of peace.
+ - Entreat me not to leave thee, or to return from following after thee: For wither thou goest, I will go; and where thou lodgest, I will lodge: Thy people shall be my people, and thy God my God.
+
+77 quotes

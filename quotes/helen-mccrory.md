@@ -1,0 +1,30 @@
+ - A script is only as good as the director who’s making it.
+ - Every time, at any point of my life, I think now is always the best age to be.
+ - I feel as though my life is bathed in golden sunlight. And the really wonderful thing is that I know it.
+ - I’m a very positive person. My grandmother taught me that happiness is both a skill and a decision, and you are responsible for the outcome.
+ - So often when you meet child actors, they’re weird – they’re freaks. No, I mean it, they’re really odd people.
+ - People are not considerate of others. They tend not to consider themselves as all living together, but see themselves only as individuals.
+ - I can sleep anywhere! I can come off stage during the interval of a play, lie down for four minutes then wake up feeling better.
+ - It’s what people create that makes my heart stop.
+ - I think change is good because it teaches you that it’s nothing to be frightened of.
+ - Actually, I’m looking forward to being 50. Because to me, that’s when a woman is at the pinnacle of her femininity and her womanhood.
+ - I love London, and it’s a privilege for my children to grow up here.
+ - I listen to Radio 4 all the time. I didn’t go to university, so that’s my further education.
+ - I had a great start in television; the first thing I did was an episode of Performance called The Entertainer with Michael Gambon playing Archie Rice.
+ - When I was 14 I told my mother I intended to be in the House of Commons in the morning, in court in the afternoon and on stage in the evening. She realised then a fantasist had been born.
+ - I spent my teenage years in Paris when my dad was stationed there, and I’d look at women in their forties and think, ‘That’s the age I want to be.’
+ - I’ve become more confident as I have got older. I care less what others think.
+ - My own parents were very un-neurotic, so I never thought that I had to change enormously in order to become a parent.
+ - I’ve often sat down with people talking about a film I’ve been in, and they haven’t realised I was in it.
+ - I was a real art freak when I was a teenager.
+ - What really matters to me is what my peers think.
+ - If you’re constantly frightened of being unhappy, how bloody exhausting must that be?
+ - I was lucky to learn early in life that you need money for food and shelter, but there’s no ambition in having money in the bank for the sake of it!
+ - Theatre is liberating because it only works if it’s truthful – that’s what it requires. That’s not true of film: the camera does lie.
+ - Working in films, there are hundreds of odd moments.
+ - As I’ve got older, I feel more confident in my body, so wouldn’t want to tamper with it.
+ - I use my awards as doorsteps. Others are in the office or in little cubbyholes in our library – they go between the books, because they actually look like arty pieces.
+ - I used to say that theatre was my favourite thing. But the more I do film, the more I appreciate it.
+ - To be honest, my husband and my children are my best friends.
+
+28 quotes

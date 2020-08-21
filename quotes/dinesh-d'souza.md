@@ -1,0 +1,53 @@
+ - Slavery appears such a relatively mild business that one begins to wonder why Frederick Douglass and so many others ever tried to escape.
+ - Atheism, not religion, is the real force behind the mass murders of history.
+ - I’m a Catholic by background. I was raised in Goa, a part of India that was visited by Portuguese missionaries a few hundred years ago, which explains my last name.
+ - Some critics accuse capitalism of being a selfish system, but the selfishness is not in capitalism – it is in human nature.
+ - Life after death is the elephant in the living room, the one that we are not supposed to notice.
+ - I’m completely Americanized – I have an American accent, an American wife – but a residue of me is foreign.
+ - Capitalism encourages entrepreneurs to act with consideration for others even when their ultimate motive is to benefit themselves.
+ - The paradox of liberal tolerance is that it extends to Marxists, transsexuals, and Islamic radicals, but not to conservatives or Christians.
+ - America is the greatest, freest and most decent society in existence. It is an oasis of goodness in a desert of cynicism and barbarism. This country, once an experiment unique in the world, is now the last best hope for the world.
+ - Never assume, no matter how strong the temptation, that other people are low-life lying manipulators without a shred of human decency.
+ - In philosophy seminars, the choice is usually between good and evil. In the real world, however, the choice is often between a bad guy and a worse guy.
+ - And who can deny that Stalin and Mao, not to mention Pol Pot and a host of others, all committed atrocities in the name of Communist ideology that was explicitly atheistic.
+ - I really want to move to a country where the poor people are fat.
+ - The American dream is shrinking because some of our leaders want it to shrink. Decline, in other words, has become a policy objective. And if this decline continues at the current pace, America as we know it will cease to exist. In effect, we will have committed national suicide.
+ - Christianity teaches that this life is not the only life, and there is a final judgment in which all earthly accounts are settled.
+ - There is a legitimate argument over whether the death penalty effectively deters violent crime, although my personal observation is that not one of the criminals who have been executed over the years has ever killed again.
+ - The allegation of some progressives that America is an evil empire is not simply wrong – it is obscene.
+ - A bigot is simply a sociologist without credentials.
+ - The effect of capitalism is to steer human selfishness so that, through the invisible hand of competition, the energies of the capitalist produce the abundance from which the whole society benefits.
+ - In reality, at the end of World War II, America imposed democracy at the point of a bayonet on Japan and Germany, and it has proved a resounding success in both countries. The problem with liberals is that they never give bayonets a chance.
+ - Somehow freedom for religious expression has become freedom from religious expression.
+ - America is simultaneously the most attractive and most repulsive place on the planet. It is most loved and most hated.
+ - America is a new kind of society that produces a new kind of human being. That human being – confident, self-reliant, tolerant, generous, future-oriented – is a vast improvement over the wretched, servile, fatalistic and intolerant human being that traditional societies have always produced.
+ - What was distinctively Western was not slavery but the moral crusade to end slavery.
+ - With capitalism and prosperity came something new: the idea of progress. This is the notion that things are getting better and will continue to get better in the future.
+ - For many people, the reluctance to embrace Christianity is as practical as it is intellectual. They want to know what the benefits of Christianity are, or what’s in it for them.
+ - The free society does not guarantee virtue, any more than it guarantees happiness. But it allows for the pursuit of both, a pursuit rendered all the more meaningful and profound because success is not guaranteed, it has to be won through personal striving.
+ - Christianity has always embraced both reason and faith.
+ - Liberal Christians are distinguished by how much moral and intellectual ground they can concede to the adversaries of Christianity.
+ - Obama has little or nothing to do with the civil-rights movement. His roots are in Kenya, and he is shaped far more by anti-colonialism than by anything that Martin Luther King said or did.
+ - If the supply of virtue is insufficient in a free society like America, it is almost nonexistent in Islamic societies because coerced virtues are not virtues at all.
+ - While profit remains the final goal, entrepreneurs spend the better part of each day figuring out how better to serve the needs of their actual and potential customers. They are operationally, if not intentionally, altruistic.
+ - Whenever the government is involved, there is an element of coercion.
+ - What I’ve realized is that a film operates both on the intellectual and emotional levels, and if you can find a way to tell a riveting story and draw ideas out of that, it’s very powerful.
+ - Barack Obama II is born in the Kapiolani Medical Center in Honolulu. His birth is recorded in two local newspapers.
+ - Barack Obama is the most antibusiness president in a generation, perhaps in American history.
+ - I would argue that the issue of God and the issue of science have the same roots.
+ - I believe the most compelling explanation of Obama’s actions is that he is, just like his father, an anti-colonialist.
+ - If you want to understand what is going on in the White House today, you have to begin with Barack Obama.
+ - Do you believe in the existence of Socrates? Alexander the Great? Julius Caesar? If historicity is established by written records in multiple copies that date originally from near contemporaneous sources, there is far more proof for Christ’s existence than for any of theirs.
+ - Christianity is the very root and foundation of Western civilization.
+ - Iraq is part of a legitimate American effort not to have democracy everywhere but to have democracy somewhere.
+ - I want to give Michael Moore a run for his money.
+ - Obama gets his identity and his ideology from his father.
+ - Christianity makes of life a moral drama in which we play a starring role and in which the most ordinary events take on a grand significance.
+ - I don’t want reporters to talk to me because I’m a revolutionary and if it got out that I’m basically friendly with Obama it would hurt Obama.
+ - What Obama is about, in my opinion, is he is a Global redistributionist. He’s pursuing reparations but it’s not racial reparations. It’s global reparations for the sins and conquest of colonism.
+ - Today the West exists only to bear witness to its own obsolescence.
+ - For me, victory isn’t measured by winning in the traditional sense.
+ - Well, the taxes that everyone else is paying are supporting lots of programs that were in place prior to Obama’s new spending. So new spending has too be paid for by new taxes, or by eliminating existing tax breaks. And Obama wants that burden to be borne exclusively by the rich.
+ - Anti-Americanism from abroad would not be such a problem if Americans were united in standing up for their own country.
+
+51 quotes

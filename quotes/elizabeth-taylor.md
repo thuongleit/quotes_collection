@@ -1,0 +1,142 @@
+ - I never face the day without perfume.
+ - I believe in mind over matter and doing anything you set your mind on.
+ - Put on some lipstick and pull yourself together.
+ - I’m a survivor – a living example of what people can go through and survive.
+ - It’s all about hope, kindness and a connection with one another.
+ - Follow your passions, follow your heart, and the things you need will come.
+ - The public library is more than a repository of books. It’s a mysterious, wondrous place with the power to change lives.
+ - Money is the best deodorant.
+ - It’s not the having, it’s the getting.
+ - My favorite name for a color is “puce.” It’s kind of a dried blood color. It’s a hideous color. But I love the word. It’s so euphonic. But my favorite colors are lavender, purple, periwinkle blue, and white.
+ - When people say: She’s got everything. I’ve only one answer: I haven’t had tomorrow.
+ - Big girls need big diamonds.
+ - It is strange that the years teach us patience; that the shorter our time, the greater our capacity for waiting.
+ - The ups and downs, the problems and stress, along with all the happiness, have given me optimism and hope because I am living proof of survival.
+ - The problem with people who have no vices is that generally you can be pretty sure they’re going to have some pretty annoying virtues.
+ - I’m loud and I’m vulgar, and I wear the pants in the house because somebody’s got to, but I am not a monster. I’m not.
+ - How can money be the root of all evil when shopping is the cure for all sadness?
+ - I’ve been through it all, baby, I’m mother courage.
+ - What do you expect me to do? Sleep alone?
+ - I have a woman’s body and a child’s emotions.
+ - I’ve always admitted that I’m ruled by my passions.
+ - There’s no deodorant like success.
+ - Some of my best leading men have been dogs and horses.
+ - I feel very adventurous. There are so many doors to be opened, and I’m not afraid to look behind them.
+ - I know I’m vulgar, but would you have me any other way?
+ - If you can’t laugh at yourself, you’re cooked!
+ - I don’t entirely approve of some of the things I have done, or am, or have been. But I’m me. God knows, I’m me.
+ - My forties are the best time I have ever gone through.
+ - I wear perfume even when I’m alone.
+ - I don’t love acting; I love chocolate.
+ - You are who you are. All you can do in this world is help others to be who they are and better themselves.
+ - John Wayne is as tough as an old nut and as soft as a yellow ribbon.
+ - I was born with scoliosis. I have a double curvature of the spine, and it’s forced me to use a wheelchair because the disease has really taken hold. It really saddens me that I can’t ride.
+ - Success is a great deodorant. It takes away all your past smells.
+ - I just loved the feeling of flying. I could jump six feet bareback and it was the closest thing to being Pegasus and flying next to God. It’s the most liberating freedom-making feeling in the world.
+ - You can’t cry on a diamond’s shoulder, and diamonds won’t keep you warm at night, but they’re sure fun when the sun shines.
+ - Marilyn Monroe seemed to have a kind of unconscious glow about her physical self that was innocent, like a child. When she posed nude, it was ‘Gee, I am kind of, you know, sort of dishy,’ like she enjoyed it without being egotistical.
+ - Look, sweetheart, I can drink you under any goddamn table you want, so don’t worry about me.
+ - I’ve never thought of my jewelry as trophies. I’m here to take care of it and to love it, for we are only temporary custodians of beauty.
+ - On Mother’s Day: It’s just a rip-off, to tell the truth, a chance to sell my perfume and other things that ladies like.
+ - I call upon you to draw from the depths of your being – to prove that we are a human race, to prove that our love outweighs our need to hate, that our compassion is more compelling than our need to blame.
+ - I want it all quickly ’cause I don’t want God to stop and think and wonder if I’m getting more than my share.
+ - Thanks Darling for the beautiful flowers and all the prayers. Now can you just get my puppy past security?
+ - I feel like 45. I don’t look bad for someone my age, with my history of illnesses and operations and all those anesthetics. When they knock you out, it gives you time to catch up on your beauty sleep.
+ - It is bad enough that people are dying of AIDS, but no one should die of ignorance.
+ - Michael Jackson is part of my heart. We would do anything for each other.
+ - When you’re fat, the world is divided into two groups – people who bug you and people who leave you alone. The funny thing is, supporters and saboteurs exist in either camp.
+ - When women stops blushing, she has lost the most powerful weapon of charm.
+ - I prefer rugby to soccer. I enjoy the violence in rugby, except when they start biting each other’s ears off.
+ - I have never felt more alive than when I watched my children delight in something, never more alive than when I have watched a great artist perform, and never richer than when I have scored a big check to fight AIDS.
+ - Why shouldn’t gay people be allowed to be able to marry? Those against gay marriages say marriage should only be between a man and a woman. God, I of all people know that doesn’t always work!
+ - I think I’m finally growing up – and about time.
+ - I fell off my pink cloud with a thud.
+ - My mother says I didn’t open my eyes for eight days after I was born, but when I did, the first thing I saw was an engagement ring. I was hooked.
+ - You can be fat and still be sexy. It all depends on how you feel about yourself.
+ - I adore wearing gems, but not because they are mine. You can’t possess radiance, you can only admire it.
+ - Oh, I love red. I’m very loyal to my colors. I love violet.
+ - Michael Jackson is one of the most normal people I know.
+ - Fragrance is an incredibly intimate thing. It can evoke very specific thoughts or memories and is a little different for each person who wears it. I also think it’s the most accessible luxury.
+ - I have been supremely lucky in my life in that I have known great love, and of course I am the temporary custodian of some incredible and beautiful things.
+ - Acting is fun. It’s not my whole life. It’s not my entire being. It’s secondary to my life. My life is primary. I’m running in the primary, as you know.
+ - I sweat real sweat and I shake real shakes.
+ - So much is said with the electricity of the eyes, the intensity of a whisper. Less is more.
+ - I think I ended up being the scarlet woman partly because of my rather puritannical upbringing and beliefs. I always chose to think I was in love and that love was synonymous with marriage.
+ - I’ve been married too many times. How terrible to change children’s affiliations, their affections – to give them the insecurity of placing their trust in someone when maybe that someone won’t be there next year.
+ - The beauty of fragrance is that it speaks to your heart and hopefully someone else’s.
+ - Every breath you take today should be with someone else in mind...
+ - I’ve always preferred animals to little girls or boys. I had my first horse – actually it was a Newfoundland pony – when I was three, and I loved riding, without anyone shackling me – riding bareback as fast as I could.
+ - I’m not worried about dying. I consult with God, my maker. And I don’t have a lot of problems to work out. I’m pretty squared anyway.
+ - I love to be casual and comfortable, but I also love the easy glamour of wearing jewelry all the time.
+ - Everything was handed to me – looks, fame, wealth, honour, love. I rarely had to fight for anything.
+ - I’m not like anyone. I’m me.
+ - I’m not afraid. Life is just such an adventure to me.
+ - A belly laugh increases the ability of your immune system to fight infections.
+ - Maggie the cat is alive. I’m alive.
+ - Many in Hollywood viewed the public persona of the young Debbie Reynolds as demure and vulnerable to be a complete facade. Pianist Oscar Levant once quipped, “She’s as wistful as an iron factory.”
+ - I don’t pretend to be an ordinary housewife.
+ - I really don’t remember much about Cleopatra. There were a lot of other things going on.
+ - Acting is, to me now, artificial. Seeing people suffer is real. It couldn’t be more real. Some people don’t like to look at it in the face because it’s painful. But if nobody does, then nothing gets done.
+ - When I’m not with the one I love, I love the one I’m with.
+ - I gave a very dear friend of mine my humanitarian award. Because you don’t need an award to be, or not be, a humanitarian.
+ - It’s amazing the gymnastics you can do when you don’t want to do something. How you can force yourself against all the forces of nature. I threw myself backward.
+ - I had a hollow leg. I could drink everyone under the table and not get drunk. My capacity was terrifying.
+ - You find out who your real friends are when you’re involved in a scandal.
+ - I would totally lose myself in the music and be a gypsy. I would go wherever I wanted to in my head – wherever the music took me. My body followed.
+ - The most sensible thing to do to people you hate is to drink their brandy.
+ - I hate the idea of always having to interpret other people’s ideas and thoughts and words, because I’m very independent and, I guess, a free thinker.
+ - I will love Michael Jackson forever.
+ - There’s still so much more to do. I can’t sit back and be complacent, and none of us should be. I get around now in a wheelchair, but I get around.
+ - I never tried to act until A Place in the Sun.
+ - If someone’s dumb enough to offer me a million dollars to make a picture, I’m certainly not dumb enough to turn it down.
+ - Sometimes I think we know too much about our idols and that spoils the dream.
+ - A “name” no longer carries a film. People used to go to the cinema to see a “John Wayne film.” And you don’t have that thing happening now except in the rock world, which has taken the event out of movies.
+ - I do enjoy life, I really do. Especially if I wake up the next day.
+ - Just in case you get pneumonia or die. The dangerous bits are always the last days of shooting.
+ - I don’t think President Bush is doing anything at all about Aids. In fact, I’m not sure he even knows how to spell Aids.
+ - I never planned to acquire a lot of jewels or a lot of husbands. For me, life happened, just as it does for anyone else.
+ - Without homosexuals there’d be no Hollywood.
+ - I have never wanted to be a queen! Cleopatra was a role, and I am an actor, so it was fun to play one, but it’s not real.
+ - I mean, how many young women get a set of rubies just for doing something wholesome like swimming laps? Or win a diamond ring at ping pong with their husband? Well, I did, and for all of these memories and the people in my life I feel blessed.
+ - On Michael Jackson and child stardom: He had one of the worst childhoods ever. I think I had the second.
+ - If it is not to make the world better what is money for?
+ - You can always avert throwing yourself in front of an oncoming train. There is something that just pulls you away – and it has pulled me away, because I’m not dead yet – just at the brink of impact. Sometimes I have been really grazed by that train.
+ - This is a book that respects kids and their ideas. And in that regard, it places Chasing Vermeer in the tradition of classic favorites fondly recalled from our own childhoods.
+ - All I see in the mirror every morning is a face that needs washing.
+ - I used to think that drinking would help my shyness, but all it did was exaggerate all the negative qualities.
+ - I hate to try to be that person in my own skin, in my own way, in my own head, not through exercises or anything else, just by, I guess, belief, concentration.
+ - I’ve only slept with men I’ve been married to. How many women can make that claim?
+ - I haven’t read any of the autobiographies about me.
+ - There has never been such a silence.
+ - No matter what happens, I’m loud, noisy, earthy and ready for much more living.
+ - I suppose when they reach a certain age some men are afraid to grow up. It seems the older the men get, the younger their new wives get.
+ - I’m just an instinctive actress, I’ve never had a lesson in my life.
+ - I am a very committed wife. And I should be committed too – for being married so many times.
+ - Clark Gable was the epitome of the movie star – so romantic, such bearing, such friendliness.
+ - You can’t choose between right and wrong by taking a census.
+ - I, along with the critics, have never taken myself very seriously.
+ - I have the emotions of a child in the body of a woman. I was rushed into womanhood for the movies. It caused me long moments of unhappiness and doubt.
+ - I’ve always sung in the shower. Now I make the stage a mental shower in order not to get too uptight and enjoy it.
+ - I hate being called “Liz”, because it can sound like such a hiss.
+ - When you’re older, you’ll appreciate the advantages of sleeping alone.
+ - I’ve come through things that would have felled an ox. That fills me with optimism, not just for myself but for our particular species.
+ - Everything makes me nervous – except making films.
+ - Marriage is a great institution.
+ - People who know me well, call me Elizabeth. I dislike Liz.
+ - I love going to rock concerts, I love to lose myself in that vast wave of rhythm and body heat and get on the same vibe.
+ - I like the connection with fans and people who have been supportive of me. And I love the idea of real feedback and a two-way street, which is very, very modern.
+ - Give. Remember always to give. That is the one thing that will make you grow.
+ - Any home where there is love constitutes a family and all families should have the same legal rights, including the right to marry and have or adopt children. Why shouldn’t gay people be able to live as open and freely as everybody else?
+ - I always wanted to have a fragrance, and I always wanted to be able to connect with people in ways other than through film.
+ - I use my fame now when I want to help a cause or other people.
+ - I find vocabulary to be a great drawback.
+ - On the film where I didn’t get along with the director, I just decided to not speak to him.
+ - Being able to go on location and see the world was the greatest perk of all.
+ - Humility, never me; it is a characteristic I expect to find in other people.
+ - The things that are important to me – being a mother, a businesswoman, an activist – are all things that were borne out of great passion.
+ - The public me, the one named Elizabeth Taylor, has become a lot of hokum and fabrication – a bunch of drivel – and I find her slightly revolting.
+ - Something always made me save myself. Either the Betty Ford Center or going onstage to perform in the theater when many people didn’t think I could do it.
+ - I believe in the difference between men and women. In fact, I embrace the difference.
+ - I don’t have a set pattern. I take things as they come. Usually with a great amount of relish. I just lay back and wait for it to happen. And it usually does.
+
+140 quotes

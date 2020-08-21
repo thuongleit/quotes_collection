@@ -1,0 +1,22 @@
+ - I fall at the feet of those who meditate on the Truest of the True.
+ - It is nearly impossible to be here now when you think there is somewhere else to be.
+ - The greatest comforts and lasting peace are obtained, when one eradicates selfishness from within.
+ - In egotism, one is assailed by fear, he passes his life totally troubled by fear.
+ - I am a sacrifice to the Guru, who has totally cured me of the fatal disease of egotism. Glorious and great are the virtues of the Guru, who has eradicated evil, and instructed me in virtue.
+ - Day and night, meditate forever on the Lord.
+ - Those who worship and adore the Lord through the Guru’s Word forget all their pain and suffering.
+ - Blessed, blessed is the Knower of the Lord, my True Guru, He has taught me to look upon friend and foe alike.
+ - Blessed, blessed is that Sikh of the Guru, who goes and falls at the Feet of the True Guru. Blessed, blessed is that Sikh of the Guru, who with his mouth, utters the Name of the Lord.
+ - Fruitful is the entire life of those, who feel hunger for the Name of the Lord in their minds.
+ - I tell the truth; listen everyone. Only those who have Loved, will realise the Lord.
+ - Without the Name, there is no peace.
+ - In the City of Death, there is pitch darkness and huge clouds of dust, neither sister nor brother is there. This body is frail, old age is overtaking it.
+ - For this purpose was I born, let all virtuous people understand. I was born to advance righteousness, to emancipate the good, and to destroy all evil-doers root and branch.
+ - Egotism is such a terrible disease, in the love of duality, they do their deeds.
+ - The Lord Himself reveals the Path, He Himself is the Doer of deeds.
+ - Egotism is such a terrible disease, he dies, to be reincarnated he continues coming and going.
+ - Those who call me God, will fall into the deep pit of hell. Regard me as one of his slaves and have no doubt whatever about it. I am a servant of the Supreme Being; and have come to behold the wonderful drama of life.
+ - Meeting the True Guru, hunger departs, hunger does not depart by wearing the robes of a beggar.
+ - Blessed, blessed is their Guru, whose mouth tastes the Ambrosial Fruit of the Lord.
+
+20 quotes

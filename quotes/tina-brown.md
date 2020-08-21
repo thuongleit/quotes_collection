@@ -1,0 +1,21 @@
+ - Having a baby is like falling in love again, both with your husband and your child.
+ - Powerful women always interpret hostility as unrequited love.
+ - I just simply write as it moves me. I may be writing about a book or a movie or a person, places where I’ve been or something I’ve done. Or politics. It’s going to what’s on my mind at the moment.
+ - Wearing hats has become like fine art for me.
+ - I think for a young journalist, it’s better to write for the Web at the moment than it is for print.
+ - In TV, you always feel you are standing on the tracks of an oncoming train.
+ - I just wanted to have fun for myself – I felt I had a lot to say, and I realized that I missed having a magazine as a place to express my ideas. The Times column is a place for me to unload those perceptions.
+ - Bill Clinton, talking about the need to financially empower wives and mothers in regressive countries, once remarked that women have ‘the responsibility gene.’ No one has that gene more markedly than his wife.
+ - Nothing is better for a young journalist than to go and write about something that other people don’t know about. If you can afford to send yourself to some foreign part, I still think that’s by far the best way to break in.
+ - What’s interesting about the Taliban, is they’re more afraid of educating girls than they are of drones. One educated girl is more scary to the Taliban than a drone.
+ - I think that big, sort of theatrical relaunches tend to set you up for failure and hype.
+ - TV journalism is a much more collaborative, horizontal business than print reporting. It has to be, because of the logistics. Anchors are wholly dependent on producers to do all the hustling.
+ - I love to run smart essays and commentary. But it doesn’t replace the other kind of reporting.
+ - Hide from change and it will hide from you.
+ - Admitting weakness seems to be such a severe psychic threat for Bush that when he makes a mistake it’s safer just to reinforce it. The strategy creates a perverse system of rewards and punishments.
+ - I’m trying to be entertaining without being mean.
+ - The cloud that descended on Black Rock on Monday was not for the past but the future. How much will this debacle chill the pursuit of other risky investigations?
+ - Once in a while you have to bite the hand that reads you.
+ - In the end, Dan Rather’s legend skewered him, CBS and the craft of journalism.
+
+19 quotes

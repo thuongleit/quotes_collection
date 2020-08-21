@@ -1,0 +1,100 @@
+ - Nothing tastes as good as skinny feels.
+ - I want to live my life in a way that when I get really old, I look back at my life and say: aaah I lived it, not survived it.
+ - You’ve got to stay ahead of the game to be able to stay in it.
+ - I want to apologize to all of the people I have let down because of my behavior which has reflected badly on my family, friends, co-workers, business associates and others.
+ - I’m not really a fashion designer. I just love clothes. I’ve never been to design school. I can’t sketch. I can’t cut patterns and things. I can shorten things. I can make a dress out of a scarf.
+ - I always have this fear that one day you are going to discover that I’m not as great as you once thought I was. Nothing feels as good as skinny feels.
+ - For makeup, a bit of blusher – what you call bronzer – a bit of an eye, and an eyelash curler.
+ - It’s neurotic fat women who hate me – they’re stupid.
+ - I definitely feel more comfortable in my own skin since turning 40.
+ - You try and remember, but it never works.
+ - Just remember that, ultimately, dressing is always about attitude, feeling comfortable and confidence.
+ - Girls interested in modeling need to realize that its hard work. You can go to a shoot in the morning and not even start shooting until 10pm – and still be there at 5am the next day. Then if you still haven’t got the shot, you’ll have to go back the next day and start again!
+ - I hate dentists. That’s why my tooth fell out. I was in the middle of a root canal and wouldn’t go back, so it just dropped out when I was in the middle of Fifth Avenue. I had to do the Calvin Klein show without the tooth.
+ - I’ve been blamed for everything, from smoking to heroin to anorexia.
+ - The first time I went to Johnny Depp’s house in LA is when I realized what I was getting myself into. I knew he was famous, but I didn’t really know what that entailed.
+ - If I’m going dancing, then I wear the highest heels with the shortest dress.
+ - Everyone’s projecting onto you, or you feel like everyone is judging you. I feel like I’m being judged a lot of the time. You become really self-conscious.
+ - That picture of me running down the beach – I’ll never forget doing that, because I made the hairdresser, who was the only man on the shoot, turn his back.
+ - I got tired of feeling like Dracula. I wanted to see some daylight, and not just at six o’clock in the morning.
+ - What people say isn’t going to stop me. I have to do things for myself.
+ - It is quite amazing what I didn’t feel after a while. I didn’t really want to feel things.
+ - A lot of horrible, unfair, untrue things have been said about me. I can only say that the best revenge is success.
+ - I never did a dirty armpit. You can look dirty, but you can’t be dirty.
+ - It doesn’t matter; even if you do tend to wear the same things all the time, it’s how you wear them and your attitude that counts.
+ - People don’t hear me talk. They don’t expect me to.
+ - I think I have a good rapport with the people I work with and that really helps. If you like working with people and you always have a good time and you always do good work, then they’re going to book you again. I like doing what I do.
+ - It’s important to accessorise. I always turn to the scarves, hats and sunglasses. But wearing too many accessories at once can look very bad.
+ - People think your success is just a matter of having a pretty face. But it’s easy to be chewed up and spat out. You’ve got to stay ahead of the game to be able to stay in it.
+ - I’m not a show-off by nature.
+ - It’s a sin to be tired.
+ - When Lila was born, “I felt like, now I’ve got a partner in crime”.
+ - I was never anorexic, so I was never that skinny. I was never bony-bony. But I remember thinking, I don’t want to be this skinny.
+ - It sounds really corny but I think that if you’re beautiful inside it shows on the outside, for sure.
+ - My daughter, Lila, is my style critic. She’ll say, “No, Mummy, you can’t wear that.” She’s very good. I do trust her instinct.
+ - I was a scapegoat. The media had to put responsibility on somebody, and I was chosen. They felt free to say that because someone was thin they were anorexic, which is ridiculous.
+ - I don’t do any Class A -especially not cocaine – after seeing what it does to people.
+ - You go to a show, and there’s no food at all, so if you’re doing shows back to back, you can forget eating. I remember standing up in the bath one day, and there was a mirror in front of me, and I was so thin! I hated it. I never liked being that skinny.
+ - Most of the time I dress depending on my mood. I just throw on whatever I feel like wearing at the time, which tends to come from the palette of black, grey or red.
+ - I don’t really go to clubs anymore. I’m actually quite settled. Living in Highgate with my dog and my husband and my daughter! I’m not a hell-raiser. But don’t burst the bubble. Behind closed doors, for sure I’m a hell-raiser.
+ - I always have a pair of Ray-Bans in my bag and lots of pairs at home because they seem to go missing. They’re a real staple.
+ - Now I’m being blamed not only for anorexia but for lung cancer.
+ - It’s all about the blanket. Blanket, pillow, and red wine. You should always be asleep on a plane.
+ - I feel like I become somebody else when I do the pictures. I don’t like doing pictures as myself. I like to be made into somebody different.
+ - I edit things down, and I’ve got a massive dressing room in the country, and so all the things I’m not going to wear but don’t want to get rid of go there. And all the stuff I want to get rid of goes to Oxfam.
+ - My daughter Lila loves the smell of gasoline – she always says, ‘Mummy, keep the door open,’ when I’m filling up the car. I’ve heard it is one of the most preferred scents in the world – maybe that’s something to study for my next fragrance!
+ - They portray me as all these crazy things and I’m so not like that. I don’t have entourages, I’m as normal as you can get in this lifestyle.
+ - It was kind of boring for me to have to eat. I would know that I had to, and I would.
+ - Jam! I love my jam. I’ve just had a batch of it come through, I’ve been making it.
+ - I was 14 when I started modeling. At the end of that first day my mum said, If you want to do this, you’re on your own because I’m not traipsing around London ever again like that. It’s a nightmare.
+ - I started going back and forth, New York, London, New York, London. I wasn’t looking back at all. I was doing tons of jobs. Working, working, working, working.
+ - I had tried to get focused on other things. But I always ended up back in the same place, and it wasn’t making me happy. I needed to get the focus back.
+ - I was definitely living fast. I was working, traveling a lot, playing. I didn’t stop. It all became unbalanced.
+ - I think fashion in motion is going to happen. I think that’s the way things are going, but there are people who will still want to see a picture and to be able to hold it.
+ - I was amazed at the support that I got when I was in there. And when I came out people knew that I was back on track. I was interested in working again.
+ - There’s always a dinner to go to. There’re always loads of people around. I was having fun working with my friends. For a while it all just kind of rolled together in a great way.
+ - Calvin was very clever. We did the pictures and made the commercial, and that really worked.
+ - I’d go on the train to castings, changing from my school uniform on the train. I carried on like that for a few years, getting jobs in bits and pieces.
+ - I am a woman now! It‘s true. No, honestly, I‘ve never worn a bra in my life, ever!
+ - I really work. I like feeling that I’ve nailed it, and we’ve got the picture.
+ - I have made some of the best friends that I’ve got in this business.
+ - In a way, it’s like the photographer always has his vision of me. The pictures that I’m known for are not really my image, they’re always the photographer’s vision of me. I can look a hundred different ways, but what people see of me in pictures is not really my image.
+ - All of a sudden to get all of this attention, and to be away from home and working all the time was hard. I was on planes all the time. I didn’t see my friends. I cried a lot. It was quite terrifying.
+ - I try and be as normal as I can, but it’s all pretty mental to be honest.
+ - All of a sudden I was living what is perceived to be the model life. It was just full-on, 24 hours a day. It was work all the time. And there’s always a party to go to.
+ - I don’t want people to know what is true all the time and that’s what keeps the mystery.
+ - Dressing is like modelling – you can constantly adapt.
+ - I’m not traditionally a beauty, but apparently people think I’m alright.
+ - When I’m in the country with all of the kids around and cooking, that’s when I’m most relaxed. When I’m in the country I like to cook.
+ - A celebrity now is someone who’s on the telly.
+ - If I’m going to an event I make sure I plan ahead so that I don’t have a fashion crisis.
+ - I just haven’t found anyone that I want to spend long periods of time with...
+ - Going to the gym wouldn’t be on my list of favorite things to do.
+ - Once I was walking from The Mercer in New York – because otherwise I don’t walk anywhere – and this woman paparazzo who was following me fell over a fire hydrant and her whole tooth went through her lip. I leant over her, saying, ‘Are you all right?’ and she was still taking pictures.
+ - I don’t get why it would be interesting. I’m not that different. And also, now with Instagram and everything, everyone’s so on their phones that even when I’m in a restaurant like this, where you wouldn’t expect it, someone will come up and ask to get a picture with me and I’m like, ‘No!’
+ - I don’t want to be this skinny.
+ - Lila can’t be a model until she’s at least 21. She is already a mini-me – it is scary. She already has her own beauty kit.
+ - Plan what you are going to wear ahead of time. If you’re going to an important dinner, you should always plan what you’re going to wear because you don’t want to look silly.
+ - I do love New York. But I’m a Londoner at heart.
+ - I like creating images.
+ - Now I can walk into a room full of people I don’t know and do my job. That’s quite a massive thing to learn, I think.
+ - When you’re shooting you go to references in your mind. You think about how you should stand in these particular clothes, or how you should move. You think about the different characters you’re playing, really.
+ - I hadn’t even thought about what I wanted to do when I left school because I was only 14 when I started modelling.
+ - I have met almost everyone I’ve wanted to meet.
+ - Well, I met Frank Sinatra and Bob Dylan in the space of 15 minutes. Frank Sinatra kissed me on the lips. He kissed me on the lips. And then he gave me a filterless cigarette. And then I met Bob Dylan. I came off all lightheaded and had to go sit on his dressing-room steps.
+ - I kind of lost interest in school. I was never really that interested anyway. I was never academic. I didn’t really go to school as much as I should have.
+ - Actors do like watching girls parade down the runway for some reason.
+ - I would have wanted to be a rock star, a lead singer, if I wasn’t a model. I’d go touring in a bus with my band. In my next life, that’s the plan.
+ - Yeah, I like clothes, but I hardly ever go shopping. Hardly ever!
+ - When people see an actor speak, they think they know him or her, whereas I’m just a face or a body to them.
+ - You have to be yourself, as models come in all sorts of shapes and sizes. There are girls out there who are more voluptuous and they work better for different sorts of stories.
+ - There was a point when it all really took off and got quite overwhelming, even though I didn’t realize it.
+ - I have a dress-up chest at home. I love to create this fantasy kind of thing.
+ - I’ve got a couple of those Gossard Wonderbras. They are so brilliant, I swear, even I get cleavage with them.
+ - I don’t think modelling is a career I’m going to pursue.
+ - I’ll never forget that show season. It was completely mad. I was staying between Christy and Naomi’s rooms and it was all limos and the Ritz Hotel and all that kind of business.
+ - I am not a fashion freak!
+ - It’s often only other people who notice you have a signature style. I don’t think I’ve got one, though other people tell me I do.
+ - I thought it was quite vain to say, I want to be a model.
+
+98 quotes

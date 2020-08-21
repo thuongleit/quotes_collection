@@ -1,0 +1,123 @@
+ - And Max, the king of all wild things, was lonely and wanted to be where someone loved him best of all.
+ - I don’t want to lose hope.
+ - Truthfullness to life-both fantasy life and factual life-is the basis of all great art.
+ - Knowledge is the driving force that puts creative passion to work.
+ - There should be a place where only the things you want to happen, happen.
+ - I wish you all good things. Live your life, live your life, live your life.
+ - I’ll eat you up I love you so.
+ - There must be more to life than having everything.
+ - The magic of childhood is the strangeness of childhood – the uniqueness that makes us see things that other people don’t see.
+ - Oh, please don’t go – we’ll eat you up – we love you so!
+ - Art has always been my salvation.
+ - I cry a lot because I miss people. They die and I can’t stop them. They leave me and I love them more.
+ - The day after Paul Newman was dead, he was twice as dead.
+ - There’s so much more to a book than just the reading.
+ - To be a healthy person, you have to be sympathetic to the child you once were and maintain the continuity between you as a child and you as an adult.
+ - That’s what art is. You don’t make up stories. You live your life.
+ - Each month is gay, Each season nice, When eating Chicken soup With rice.
+ - I’m totally crazy, I know that.
+ - We’ve educated children to think spontaneity is inappropriate.
+ - It’s no fun being lonely.
+ - Sipping once, sipping twice, sipping chicken soup with rice.
+ - You cannot write for children They’re much too complicated. You can only write books that are of interest to them.
+ - I stress character, character, character.
+ - There are so many beautiful things in the world which I will have to leave when I die, but I’m ready, I’m ready, I’m ready.
+ - I don’t believe in an afterlife but I still fully expect to see my brother again.
+ - Then from far away across the world he smelled good things to eat, so he gave up being king of the wild things.
+ - And the wild things roared their terrible roars and gnashed their terrible teeth and rolled their terrible eyes and showed their terrible claws.
+ - And it is through fantasy that children achieve catharsis. It is the best means they have for taming wild things.
+ - Why is my needle stuck in childhood? I don’t know why. I guess it’s because that’s where my heart is.
+ - I often went to bed without supper cause I hated my mother’s cooking. So, to go to bed without supper was not a torture to me. If she was gonna hurt me, she’d make me eat.
+ - Do parents sit down and tell their kids everything? I don’t know. I don’t know. I’ve convinced myself – I hope I’m right – that children despair of you if you don’t tell them the truth.
+ - It is such an abundance of idiocy that you lose courage. That you lose hope. I don’t want to lose hope. I get through every day. I’m pretty good. I work. I sleep. I sing. I walk.
+ - There’s a mystery there, a clue, a nut, a bolt, and if I put it together, I find me.
+ - I want to be free again. I want to be free like when I was a kid, working with my brother and making toy airplanes and a whole model of the World’s Fair in 1939 out of wax.
+ - I’m getting old. And I’m disappointed in everything just the way old people traditionally, boringly are. That bothers me because is it too traditional? Am I not fighting hard enough? I don’t feel the fight. I don’t feel it.
+ - I have a little tiny Emily Dickinson so big that I carry in my pocket everywhere. And you just read three poems of Emily. She is so brave. She is so strong. She is such a sexy, passionate, little woman. I feel better.
+ - I have to accept my role. I will never kill myself like Vincent Van Gogh. Nor will I paint beautiful water lilies like Monet. I can’t do that. I’m in the idiot role of being a kiddie book person.
+ - I want to see me to the end working, living for myself. Ripeness is all.
+ - I had a brother who was my savior, made my childhood bearable.
+ - To get a child’s trust – you may know or not – is a very hard thing to do. They’re so used to not believing adults – because adults tell tales and lies all the time.
+ - If life is so critical, if Anne Frank could die, if my friend could die, children were as vulnerable as adults, and that gave me a secret purpose to my work, to make them live. Because I wanted to live. I wanted to grow up.
+ - Certainly we want to protect our children from new and painful experiences that are beyond their emotional comprehension and that intensify anxiety; and to a point we can prevent premature exposure to such experiences.
+ - Because love is so enormous, the only thing you can think of doing is swallowing the person that you love entirely.
+ - Children do live in fantasy and reality; they move back and forth very easily in a way we no longer remember how to do.
+ - I don’t write for children. I write, and somebody says, ‘That’s for children.’
+ - I have this idiot name tag which says ‘controversial.’
+ - And the walls became the world all around.
+ - Let the wild rumpus start!
+ - As an aspiring artist, you should strive for originality of vision. Have something to say and a fresh way of saying it. No story is worth the writing, no picture worth the making, if it’s not the work of the imagination.
+ - I don’t know how to write a children’s book.
+ - Peter Rabbit, for all its gentle tininess, loudly proclaims that no story is worth the writing, no picture worth the making, if it is not a work of imagination.
+ - I adored Mickey Mouse when I was a child. He was the emblem of happiness and funniness.
+ - It is a blessing to get old. It is a blessing to find the time to do the things, to read the books, to listen to the music. I have nothing now but praise for my life.
+ - You can’t get rid of evil. We can’t, and I feel that so intensely.
+ - It’s only adults who read the top layers most of the time. I think children read the internal meanings of everything.
+ - I would infinitely prefer a daughter.
+ - Kids don’t know about best sellers. They go for what they enjoy. They aren’t star chasers and they don’t suck up. It’s why I like them.
+ - I was a very sickly child. My parents were immigrants. They were not decorous. They were not discreet. They always thought I was gonna die.
+ - We’re animals. We’re violent. We’re criminal. We’re not so far away from the gorillas and the apes, those beautiful creatures.
+ - And it’s one of the sexiest things you will ever read of how slow you should take the peach. Don’t rush it.
+ - I’d like to believe an accumulation of experience has made me a sort of a grown-up person, so I can have judgment and taste and whatever.
+ - I’ve always loved pigs: the shape of them, the look of them, and the fact that they are so intelligent.
+ - I became a set designer for opera. I’m a great opera buff, I love classical music, and I needed a time-out.
+ - My life in Brooklyn was in constant danger because of my bad health.
+ - I became a set designer for opera.
+ - I have been doodling with ink and watercolor on paper all my life. It’s my way of stirring up my imagination to see what I find hidden in my head. I call the results dream pictures, fantasy sketches, and even brain-sharpenin g exercises.
+ - Childhood is cannibals and psychotics vomiting in your mouth!
+ - As a child, I felt that books were holy objects, to be caressed, rapturously sniffed, and devotedly provided for. I gave my life to them. I still do. I continue to do what I did as a child; dream of books, make books and collect books.
+ - That always seemed to be the most critical test that a child was confronted with – loss of parents, loss of direction, loss of love. Can you live without a mother and a father?
+ - How do you write for children? I really have never figured that out. So I decided to just ignore it.
+ - I’m not jaded. I never have been jaded. I’ve always been surprised at my success. I’ve always enjoyed it.
+ - Kids lead a very private life.
+ - I said anything I wanted because I don’t believe in children I don’t believe in childhood. I don’t believe that there’s a demarcation. ‘Oh you mustn’t tell them that. You mustn’t tell them that.’ You tell them anything you want. Just tell them if it’s true. If it’s true you tell them.
+ - If children are different from us, they are more spontaneous. Grown-up lives have become overlaid with dross.
+ - We’re supposed to be civilized. We’re supposed to go to work every day. We’re supposed to be nice to our friends and send Christmas cards to our parents.
+ - I think people should be given a test much like driver’s tests as to whether they’re capable of being parents!
+ - Make it dangerous or it’s not worth doing.
+ - I really don’t like the city anymore. You get pushed and harassed and people grope you. It’s too tumultuous. It’s too crazy.
+ - Children are the best living audience in the world because they are so thoroughly honest.
+ - I’m not Hans Christian Andersen. Nobody’s gonna make a statue in the park with a lot of scrambling kids climbing up me. I won’t have it, okay?
+ - Parents shouldn’t assume children are made out of sugar candy and will break and collapse instantly. Kids don’t. We do.
+ - I can’t believe I’ve turned into a typical old man. I can’t believe it. I was young just minutes ago.
+ - Kids tell you what they think, not what they think they should think.
+ - I did not know how to paint a mural. I did not know how to prepare the surface. There was nobody from the Renaissance around who could advise me, and I did the best I could.
+ - In plain terms, a child is a complicated creature who can drive you crazy. There’s a cruelty to childhood, there’s an anger.
+ - I never set out to write books for children. I don’t have a feeling that I’m gonna save children or my life is devoted.
+ - My big concern is me and what do I do now until the time of my death. That is valid. That is useful. That is beautiful. That is creative.
+ - I feel it in me like a woman having a baby, all that life churning inside me. I feel it every day; it moves, stretches, yawns. It’s getting ready to be born. It knows exactly what it is.
+ - I’m gay. I just didn’t think it was anybody’s business.
+ - A book is really like a lover. It arranges itself in your life in a way that is beautiful.
+ - You know who my gods are, who I believe in fervently? Herman Melville, Emily Dickinson – she’s probably the top – Mozart, Shakespeare, Keats. These are wonderful gods who have gotten me through the narrow straits of life.
+ - William Blake really is important, my cornerstone. Nobody ever told me before he did that childhood was such a damned serious business.
+ - I’m scared of watching a TV show about vampires. I can’t fall asleep.
+ - My father belonged to a Jewish social club.
+ - I mean, being a child was being a child, was being a creature without power, without pocket money, without escape routes of any kind. So I didn’t want to be a child.
+ - Venturing back further, learning is so slow. Accomplishment is so slow. Experiencing and evaluating your experience is so slow.
+ - Life has only gotten better personally for me as I’ve gotten older. I mean, being young was such a gross waste of time. I was just such a miserable, miserable person.
+ - I never can satisfy some need in me to achieve something of incredible hight. For my sake. It puzzles me deeply. And it sours my life. So there is a permanent dissatisfaction.
+ - I write books that seem more suitable for children, and that’s OK with me. They are a better audience and tougher critics. Kids tell you what they think, not what they think they should think.
+ - Mothers and children are human beings, and they will sometimes do the wrong thing.
+ - There’s something in this country that is so opposed to understanding the complexity of children.
+ - Childhood is a tricky business. Usually, something goes wrong.
+ - What is the point of it all? Not leaving legacies. But being ripe. Being ripe.
+ - When you hide another story in a story, that’s the story I am telling the children.
+ - Dreams raise the emotional level of what I’m doing at the moment.
+ - There are certain pieces of music that are always attached to certain books.
+ - We’re animals. We’re violent.
+ - I grew up in a house that was in a constant state of mourning.
+ - The fan mail I get from kids are asking me questions which they do not ask their mothers and fathers. Because if they had, why write to me, a perfect stranger?
+ - One of the beauties of being an artist is that you can create a whole new world, with circumstances that are better in your invented world than they are in the real world.
+ - I wanted to be acknowledged as an artist, not just some kiddie-book artist.
+ - I know that if there’s a purpose for life, it was for me to hear Mozart.
+ - I do not remember any proper children’s books in my childhood. I was not exposed to them.
+ - All I wanted was to be straight so my parents could be happy. They never, never, never knew.
+ - My father could be very witty, even if the humor was always on the darker side of irony.
+ - If you’re making it up, make it up good. And then believe in what you made up.
+ - You don’t want to do something that’s all terrifying.
+ - As a kid, all I thought about was death. But you can’t tell your parents that.
+ - I remember how much – when I was a small boy I was taken to see a version of ‘Peter Pan.’ I detested it. I mean, the sentimental idea that anybody would want to remain a boy.
+ - I don’t believe in things literally for children. That’s a reduction.
+ - I wanted my wild things to be frightening.
+
+121 quotes

@@ -1,0 +1,96 @@
+ - If wars can be started by lies, they can be stopped by truth.
+ - Every War in the past 50 Years is a Result of Media Lies.
+ - Journalism should be more like science. As far as possible, facts should be verifiable. If journalists want long-term credibility for their profession, they have to go in that direction. Have more respect for readers.
+ - One of the best ways to achieve justice is to expose injustice.
+ - Every time we witness an injustice and do not act, we train our character to be passive in its presence and thereby eventually lose all ability to defend ourselves and those we love.
+ - Transparency in government leads to reduced corruption.
+ - That is my temperament. I enjoy creating systems on a grand scale, and I enjoy helping people who are vulnerable. And I enjoy crushing bastards.
+ - The internet, our greatest tool of emancipation, has been transformed into the most dangerous facilitator of totalitarianism we have ever seen. The internet is a threat to human civilization.
+ - What are the differences between Mark Zuckerberg and me? I give private information on corporations to you for free, and I’m a villain. Zuckerberg gives your private information to corporations for money and he’s Man of the Year.
+ - Media is a big problem around the world, it’s powerful and can abuse its power.
+ - This generation is burning the mass media to the ground.
+ - Cryptography is the ultimate form of non-violent direct action.
+ - The only way to keep a secret is to never have one.
+ - You have to start with the truth. The truth is the only way that we can get anywhere. Because any decision-making that is based upon lies or ignorance can’t lead to a good conclusion.
+ - This movement is not about the destruction of law, but the construction of law.
+ - There is unity in the oppression. There must be absolute unity and determination, in the response.
+ - Non-conformity is the only real passion worth being ruled by.
+ - I enjoy helping people who are vulnerable.
+ - Every time we witness an act that we feel to be unjust and do not act, we become a party to injustice.
+ - It is the media that controls the boundaries of what is politically permissible, so better to change the media. Profit motives work against it, but if we can have the audience understand that most other forms of journalism are not credible, then it may be a forced move.
+ - One of the hopeful things that I’ve discovered is that nearly every war that has started in the past 50 years has been a result of media lies. The media could’ve stopped it if they had searched deep enough; if they hadn’t reprinted government propaganda they could’ve stopped it.
+ - I enjoy crushing bastards. So it is enjoyable work.
+ - Big Brother is home. He is installed in the item you just dragged home from the Apple store.
+ - Capable, generous men do not create victims, they nurture victims.
+ - Censorship is always cause for celebration. It is always an opportunity because it reveals fear of reform. It means that the power position is so weak that you have got to care what people think.
+ - Well, I mean, the real attack on truth is tabloid journalism in the United States.
+ - If we can only live once, then let it be a daring adventure that draws on all our powers Let our grandchildren delight to find the start of our stories in their ears but the endings all around in their wandering eyes.
+ - What does censorship reveal? It reveals fear.
+ - I found in investigative journalism it is always best, if you have any language skills, not to admit them.
+ - If you look at most definitions, a god is omnipresent, omniscient and omnipotent. In particular, god knows when you are doing something that you shouldn’t be doing and whether you are playing according to god’s rules.
+ - If you want a vision of the future, imagine Washington-back ed Google Glasses strapped onto vacant human faces – forever.
+ - What we know is everything, it is our limit, of what we can be.
+ - I don’t like the word transparency; cold dead glass is transparent. I prefer education or understanding, which are more human.
+ - My family has had to move and change their name and have been subject to threats from right wing blogs calling for my son, for example, to be killed to get at me.
+ - You can either be informed and your own rulers, or you can be ignorant and have someone else, who is not ignorant, rule over you.
+ - Reality is an aspect of property. It must be seized. And investigative journalism is the noble art of seizing reality back from the powerful.
+ - Although I still write, research and investigate, my role is primarily that of a publisher and editor-in-chief who organises and directs other journalists.
+ - Nothing. There’s nothing you can do. As soon as you do something you’ll no-longer be average.
+ - The aim of Wikileaks is to achieve just reform around the world and do it through the mechanism of transparency.
+ - So when Putin goes out to buy a Coke, thirty seconds later it is known in Washington DC.
+ - I am an Australian citizen, and I miss my country a great deal.
+ - You can’t do anything sensible until you know what the situation is that you’re in.
+ - The attack on the truth by war begins long before war starts and continues long after a war ends.
+ - Bitcoin actually has the balance and incentives right, and that is why it is starting to take off.
+ - The goal is justice, the method? is transparency. It’s important not to confuse the goal and the method.
+ - Here then is the truth about the Truth; the Truth is not bridge, sturdy to every step, a marvel of bound planks and supports from the known into the unknown, but a surging sea of smashed wood, flotsam and drowning sailors.
+ - Where they couldn’t pick holes in our arguments they would drive horses and carriages through my character.
+ - Every time you go to a party and take a picture and post that picture to Facebook, you’re being a rat. You’re being a narc.
+ - Through the confessional system, the Catholic church spied upon the lives of its congregants. While Latin mass excluded most people who could not speak Latin from an understanding of the very system of thought that bound them.
+ - That’s a problem. I mean, like any sort of growing startup organization, we are sort of overwhelmed by our growth. And that means we’re getting enormous quantity of whistleblower disclosures of a very high caliber, but don’t have enough people to actually process and vet this information.
+ - To keep a person ignorant is to place them in a cage.
+ - Secrecy breeds incompetence because where there is failure, failure is kept secret.
+ - There is nothing new in this world other than the history that you don’t know yet.
+ - I would be happy to accept asylum, political asylum, in India a nation I love. In return, I will bring Mayawati a range of the finest British footwear.
+ - The greater the power, the more need there is for transparency, because if the power is abused, the result can be so enormous. On the other hand, those people who do not have power, we mustn’t reduce their power even more by making them yet more transparent.
+ - During the period of house arrest, I had an electronic manacle around my leg for 24 hours a day, and for someone who has tried to give others liberty all their adult life, that is absolutely intolerable.
+ - In the history of Wikileaks, nobody has claimed that the material being put out is not authentic.
+ - WikiLeaks is really a litmus test for those people who walk the talk in the media. How much will they really follow their protestations to be brave publishers, and how much do they really want to lick the boots of power? Well, you can tell by their engagement with us and what they do.
+ - Cryptography is the essential building block of independence for organisations on the Internet, just like armies are the essential building blocks of states, because otherwise one state just takes over another.
+ - It is impossible to correct abuses unless we know that theyre going on.
+ - I had had a lot of experience in bringing the Internet to Australia, and I saw that knowledge in the hands of people achieves reform.
+ - The Iraq War was the biggest issue for people of my generation in the West. It was also the clearest case, in my living memory, of media manipulation and the creation of a war through ignorance.
+ - Stopping leaks is a new form of censorship.
+ - If we are to produce a more civilized society, a more just society, it has to be based on the truth.
+ - That is vaguely conspiratorial, in a networking sense. We have published their meeting notes.
+ - Power is a thing of perception. They don’t need to be able to kill you. They just need you to think they are able to kill you.
+ - Knowledge has always flowed upwards to bishops and kings, not down to serfs and slaves.
+ - When Enron collapsed, through court processes, thousands and thousands of emails came out that were internal, and it provided a window into how the whole company was managed. It was all the little decisions that supported the flagrant violations.
+ - Cablegate is 3,000 volumes of material. It is the greatest intellectual treasure to have entered into the public record in modern times.
+ - And if Bradley Manning really did as he is accused, he is a hero, an example to us all and one of the world’s foremost political prisoners.
+ - We have to be careful about applying criminal labels to people until we’re very sure.
+ - The sense of perspective that interaction with multiple cultures gives you I find to be extremely valuable, because it allows you to see the structure of a country with greater clarity, and gives you a sense of mental independence.
+ - The penetration of society by the Internet and the penetration of the Internet by society is the best thing that has ever happened to global human civilisation.
+ - I’m not a big fan of regulation: anyone who likes freedom of the press can’t be.
+ - We like to engage in a normal publishing effort, which is to act in a responsible manner and make sure the material is not likely to harm anyone, that it is properly investigated by quality news organizations, and by lawyers and human rights groups and so on.
+ - I coauthored my first nonfiction book by the time I was 25. I have been involved in nonfiction documentaries, newspapers, TV and internet since that time.
+ - All over the world, the barriers between what is inside an organisation and outside an organisation are being smoothed out. In the military, the use of contractors means that what is the military and what is not the military is smoothed out.
+ - It is getting to the point where the mark of international distinction and service to humanity is no longer the Nobel Peace Price, but an espionage indictment from the US Department of Justice.
+ - Every law, every constitution, every regulative decision is based upon what people are discussing in their community. It’s based upon our sum knowledge of history and the present.
+ - To be alive as a human being is to know, in the same way as it is to have a heart that beats.
+ - We released 400,000 classified documents, the most extraordinary history of a war to ever have been released in our civilization. Those documents cover 109,000 deaths. That is serious matter.
+ - As a European Union member state, as a country committed throughout all its history to the fight for the values that I have made my own, as the fifth world power, as a country that has marked my life and European Union houses part of European Union, France can act if it wishes to do so.
+ - If we can only live once, let it be a daring adventure.
+ - I saw that publishing all over the world was deeply constrained by self-censorship, economics and political censorship, while the military-industrial complex was growing at a tremendous rate, and the amount of information that it was collecting about all of us vastly exceeded the public imagination.
+ - The truth is the only way that we can get anywhere.
+ - I may be a chauvinist pig of some sort, but I’m no rapist.
+ - Why is it that govt employees makes the best spouses? Because afterthey come back from work, they are not tired and they already readthe newspapers.
+ - It’s interesting that Swiss banks also hide their assets from the Swiss by using offshore bank structuring.
+ - Seeing ongoing political reforms that have a real impact on people all over the world is extremely satisfying. But we want every person who’s having a dispute with their kindergarten to feel confident about sending us material.
+ - Large newspapers are routinely censored by legal costs. It is time this stopped. It is time a country said, enough is enough, justice must be seen, history must be preserved, and we will give shelter from the storm.
+ - I always believed that WikiLeaks as a concept would perform a global role, and to some degree it was clear that it was doing that as far back as 2007 when it changed the result of the Kenyan general election.
+ - WikiLeaks will not comply with legally abusive requests from Scientology any more than WikiLeaks has complied with similar demands from Swiss banks, Russian offshore stem-cell centers, former African kleptocrats, or the Pentagon.
+ - Journalists always like an excuse for why are they talking about something now when they didn’t talk about something a week ago. They always like to say something is new.
+ - Society develops a type of self-censorship, with the knowledge that surveillance exists – a self-censorship that is even expressed when people communicate with each other privately.
+
+94 quotes

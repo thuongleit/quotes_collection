@@ -1,0 +1,28 @@
+ - The secret of photography is, the camera takes on the character and personality of the handler.
+ - The meaning of quality in photography’s best pictures lies written in the language of vision. That language is learned by chance, not system.
+ - Stare, pry, listen, eavesdrop. Die knowing something. You are not here long.
+ - When I first made photographs, they were too plain to be considered art and I wasn’t considered an artist. I didn’t get any attention at all. The people who looked at my work thought, well, that’s just a snapshot of the backyard. Privately I knew otherwise and through stubbornness stayed with it...
+ - Privilege, if you’re very strict, is an immoral and unjust thing to have, but if you’ve got it you didn’t choose to get it and you might as well use it. You’re privileged to be at Yale, but you know you’re under an obligation to repay what’s been put into you.
+ - Photography is not cute cats, nor nudes, motherhood or arrangements of manufactured products. Under no circumstances it is anything ever anywhere near a beach.
+ - Do we know what we look like? Not really.
+ - In order to put meaning back into our lives, we should recognize illusions for what they are, and we should reach out and touch the fabric of reality.
+ - That’s my idea of what a portrait ought to be, anonymous and documentary and a straightforward picture of mankind.
+ - I wanted so much to write that I couldn’t write a word.
+ - I do note that photography, a despised medium to work in, is full of empty phonies and worthless commercial people. That presents quite a challenge to the man who can take delight in being in a very difficult, disdained medium.
+ - Leaving aside the mysteries and the inequities of human talent, brains, taste, and reputations, the matter of art in photography may come down to this: it is the capture and projection of the delights of seeing; it is the defining of observation full and felt.
+ - You see, a document has use, whereas art is really useless. Therefore art is never a document, although it can adopt that style.
+ - I think there is a period of esthetic discovery that happens to a man and he can do all sorts of things at white heat.
+ - Science has rolled its war wagons over the crushed myths of so many religious beliefs. It has marshaled its mechanics to explain the motions of the sun, moon, and stars. It has mapped the heavens, leaving no place for gods to live.
+ - I say half jokingly that photography is the most difficult of the arts. It does require a certain arrogance to see and to choose. I feel myself walking on a tightrope instead of on the ground.
+ - Whether he is an artist or not, the photographer is a joyous sensualist, for the simple reason that the eye traffics in feelings, not in thoughts.
+ - It is the way to educate your eye and more. Stare, pry, listen, eavesdrop.
+ - Good photography is unpretentious.
+ - What America needs is a political revolution.
+ - Many photographers are apt to confuse color with noise, and to congratulate themselves when they have almost blown you down with screeching hues alone-a bebop of electric blues, furious reds, and poison greens.
+ - It’s easy to photograph light reflecting from a surface, the truly hard part is capturing the light in the air.
+ - I work rather blindly. I have a theory that seems to work with me that some of the best things you ever do sort of come through you. You don’t know where you get the impetus and response to what’s before your eyes.
+ - The eye traffics in feelings, not in thoughts.
+ - I used to try to figure out precisely what I was seeing all the time, until I discovered I didn’t need to. If the thing is there, why, there it is.
+ - I never took it upon myself to change the world. And those contemporaries of mine who were going around falling for the idea that they were going to bring down the United States government and make a new world were just asses to me.
+
+26 quotes

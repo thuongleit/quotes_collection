@@ -1,0 +1,22 @@
+ - Well you can’t win the lottery if you don’t have a ticket.
+ - I was in Moldova airport and I went into the duty-free shop – and there wasn’t a duty-free shop.
+ - People say footballers have terrible taste in music but I would dispute that. In the car at the moment I’ve got The Corrs, Cher, Phil Collins, Shania Twain and Rod Stewart.
+ - One of the best years of my life was the very last one of my career. Playing for Rangers was my dream and it meant everything to my family.
+ - If you don’t hit the target, you’re never gonna score.
+ - Listen, if you’re a defender, DO BETTER!
+ - Can you believe that? A female linesman. Women don’t know the offside rule.
+ - I was saying the other day, how often the most vulnerable area for goalies is between their legs.
+ - Darren Fletcher is the type of player who would walk over hot coals to play for his country, and he has done.
+ - If you gave Arsene Wenger eleven players and told him to pick his team, this would be it.
+ - You don’t buy them; they don’t come in package.
+ - Anyone who takes drugs should be hammered.
+ - My history’s not very good, but did David win?
+ - My school was 17 years as a player and another 16 watching more games probably than any coach has – all over the world, all systems. I couldn’t go to school and write it down for people who are far less experienced, telling me what to do and how to do it.
+ - Carlos Tevez is so rich that when he retires he’ll never have to play football again.
+ - If England had Fergie, Wenger or Mourinho in charge, they would win the World Cup.
+ - I don’t like to see players tossed off needlessly.
+ - And then there is the magnificent Thierry Henry – someone who has blistering pace and is unbelievable when he is finishing at his best.
+ - The one thing that tackle wasn’t was high and dangerous.
+ - It’s a lot harder to play football when you haven’t got the ball.
+
+20 quotes

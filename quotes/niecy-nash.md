@@ -1,0 +1,42 @@
+ - I’m a Gucci girl all the way.
+ - People who can make you laugh can make you cry.
+ - I’m not a perfect mom, but I’m perfect for my kids.
+ - Falling in love was the easy part; planning a wedding – yikes!
+ - The old adage is true, people will only be as good to you as you are to yourself. They will follow your example, and those who don’t will be left by the wayside.
+ - I don’t wear my faith on my sleeve, but I definitely do walk with it every day in my heart.
+ - If there is someone in your life who is not serving you or making you better, give yourself permission to move on.
+ - If you make your best friend and your significant other the same person, you don’t have to disconnect to go tell your girlfriend everything.
+ - I didn’t start out about weight loss. I was very tired and my energy was low. This is my second go-around in love, so I want to make sure I’ll be around to enjoy it.
+ - I feel like it’s better to see a sermon lived than it is to hear one preached.
+ - The most valuable insight on choosing whom to love is to be honest with yourself about the man standing before you.
+ - As women, we often think we have to be all things to all people, all at the same time. As a wife, mother, actress and businesswoman, I definitely feel the pressure to perform well in all areas.
+ - People recognize me from everything and as soon as I think I know where they know me from, I’m always wrong.
+ - Celebrate your child’s achievement, then rotate it when the next mini-masterpiece comes along. Then chuck the old picture. Don’t worry that you’re throwing away a memory. Your children will remember your praise more than they will remember the picture with macaroni and glitter glued on it.
+ - I was in a very fancy, high-end boutique where the sales associates stand around like mannequins. I walked in and the first thing they said was, “Ooh it smells like booty in here” because they knew me from Scream Queens.
+ - I didn’t get into this business for other people to know my name.
+ - I don’t want to be Carrie Bradshaw. I don’t want the wedding to be bigger than Big. I’m just grateful to know that the first time I fell in love wasn’t the last time.
+ - The truth is black celebrities are not as sought after in the press as white celebrities, and that is comforting.
+ - Although my marriage left me with three beautiful children, it also left me with a healthy dose of self-doubt, low self-esteem, and an extreme desire to be loved again. I was operating on empty, expecting to be paid in full.
+ - The adage ‘a family that prays together, stays together’ is so true.
+ - In one day, I got mistaken for three different actresses: Wendy Williams, Sherri Shepherd, and Star Jones.
+ - I have an extra set of eyelashes because you never know. I could cry or laugh, or it could be windy, and I’ll need a standby pair.
+ - Don’t go telling yourself you’re in love with the man he could be; you gotta love the man standing in front of you right now. Simply put, love the person not the potential! Otherwise, he will always be disappointing to you. And whose fault is that?
+ - I’ve known for quite a while that I was a funny girl.
+ - I have more energy to run after our four children. Weight loss and great skin were a bonus!
+ - I would like to think that television would be representative of the world we live in.
+ - I do not have a bride gene. I haven’t been planning a wedding since I was 3. I never put a sheet on my head and pretended that it was a veil.
+ - I don’t have a desire to do reality. Because my truth is not what people are responding to. My truth is funny; I laugh with my husband every day.
+ - I was always funny, but I didn’t know being funny was a gift.
+ - No one’s playing records anymore, so find your favorite and frame it, then get rid of the rest – try selling or donating them.
+ - Reality does get a bad rap. But I’m not concerned about it ’cause I know who I am. They can edit it, but you are in charge of what you do.
+ - I feel like love is the thing we were created for, yet it’s the place we struggle the most.
+ - We are bred to compare ourselves to the next person, to what they have and what they have accomplished.
+ - I joined church by myself in a borrowed suit at 13. I had my neighbor’s bible. So my walk and my faith have always been very real.
+ - I don’t need to do a reality show to make my mark in this world.
+ - There’s nothing wrong with having a collection, but it becomes a problem when it overwhelms your space. When you’re not displaying it properly, you’re not enjoying it and it turns into clutter.
+ - There’s a lot of women out there, some of whom are my age who’ve never been married and some who have been married and would like to be married again but think their ship has sailed, and I’m like, ‘Oh no, honey, let Miss Niecy show you it is never too late for love!’
+ - When you like what you like, it makes it easy for your husband to shop for you!
+ - No family should have to endure the loss of a loved one at the hands of a previously convicted violent criminal.
+ - I didn’t marry a man that wanted to be in the business. But that’s why we’re a perfect fit.
+
+40 quotes

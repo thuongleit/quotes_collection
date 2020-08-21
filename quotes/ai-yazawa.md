@@ -1,0 +1,21 @@
+ - Being alone and being lonely are two different things.
+ - Forgetting about our mistakes and our wounds isn’t enough to make them disappear.
+ - I always thought that life was about standing your ground, no matter how strong the current was. But going with the flow isn’t so bad after all. As long as it takes you forward.
+ - Don’t just give up, Hachiko. Life is about getting knocked down over and over, but still getting up each time. If you keep getting up, you win.
+ - People are only what they think of themselves.
+ - In this sleepless night, as the darkness advances, look up at the sky and somehow remember that somewhere in this wide world, there are always people who love you, and people who need you. Because every person can’t go on living alone.
+ - I want to protect my own happiness. I’m not an angel. I’m just a normal girl.
+ - To love someone, why do you need society’s approval and permission?
+ - The dreams we are chasing and the reality that is chasing us are always parallel; they never meet.
+ - I’ll make you so in love with me, that everytime our lips touch, you’ll die a little death.
+ - I’m lucky that I’m afraid of losing something.
+ - The longer we live, the more weight we carry in our hearts.
+ - Even if you fulfill your hearts desire, by sacrificing something important, you may not necessarily be happy. Happiness doesn’t come in one form, it determined by your own heart.
+ - People can’t be just tied together. They have to connect. Otherwise, they’ll find themselves bound hand and foot.
+ - You were a stray cat, strutting so free and full of pride. But I could see your open wound. And without really thinking I just chalked it up to another cool thing about you. I never realized how much you hurt.
+ - They say that only very good friends quarrel. But at the end of the day a quarrel is a fight between two people’s egos. Since people cannot understand each other by just being honest. May be its impossible to live your whole life without getting hurt but don’t hurt the people close to you.
+ - So you have to accept facts as fact.
+ - If you’re that obsessed with someone, why would you kill her? Humans are full of contradictions.
+ - What people consider precious is different for everybody.
+
+19 quotes

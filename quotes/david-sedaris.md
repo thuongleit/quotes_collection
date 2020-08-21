@@ -1,0 +1,173 @@
+ - Weird doors open. People fall into things.
+ - I’ve often lost faith in myself, I’ve never lost it in my family.
+ - I like nonfiction books about people with wretched lives.
+ - Lovers of audio books learn to live with compromise.
+ - The Greeks had invented democracy, built the Acropolis and called it a day.
+ - In Paris you’re always surrounded by French people.
+ - Writing gives you the illusion of control, and then you realize it’s just an illusion, that people are going to bring their own stuff into it.
+ - It is funny the things that run through your mind when you’re sitting in your underpants in front of a pair of strangers.
+ - It’s odd the things that people remember. Parents will arrange a birthday party, certain it will stick in your mind forever. You’ll have a nice time, then two years later you’ll be like, ‘There was a pony there? Really? And a clown with one leg?’
+ - As a child I assumed that when I reached adulthood, I would have grown-up thoughts.
+ - What other people call dark and despairing, I call funny.
+ - If you aren’t cute, you may as well be clever.
+ - The things I’ve bought from strangers in the dark would curl your hair.
+ - Real love amounts to withholding the truth, even when you’re offered the perfect opportunity to hurt someone’s feelings.
+ - High school taught me a valuable lesson about glasses: Don’t wear them. Contacts have always seemed like too much work, so instead I just squint, figuring that if something is more than ten feet away, I’ll just deal with it when I get there.
+ - I was just struggling with my inner vachette and pondering the depths of my own inhumanity.
+ - But instead I am applying for a job as an elf. Even worse than applying is the very real possibility that I will not be hired, that I couldn’t even find work as an elf. That’s when you know you’re a failure.
+ - If finding an apartment is like falling in love, buying one is like proposing on your first date and agreeing not to see each other until the wedding.
+ - Sometimes the sins you haven’t committed are all you have left to hold onto.
+ - We were not a hugging people. In terms of emotional comfort it was our belief that no amount of physical contact could match the healing powers of a well made cocktail.
+ - You can’t brace yourself for famine if you’ve never known hunger.
+ - I can’t seem to fathom that the things important to me are not important to other people as well, and so I come off sounding like a missionary, someone whose job it is to convert rather than listen.
+ - Standing in a two-hour line makes people worry that they’re not living in a democratic nation. People stand in line for two houres and they go over the edge.
+ - I just enjoy lying on the couch and reading a magazine.
+ - The rabbit of Easter. He bring of the chocolate.
+ - In my dream world gay people in America would get the right to marry, and not a one of them would use that right.
+ - If you read someone else’s diary, you get what you deserve.
+ - I’m for gay elopement, not for gay weddings. I’ve been with my boyfriend for twenty years. I don’t feel like that would validate our relationship in any way. But I would really fight for someone else to have the right. Just elope, though, please.
+ - My sister Tiffany told me years ago, ‘You can never write about me.’ Then she called six months ago and said she wanted to be in a story. She was worried people thought I didn’t like her.
+ - Everyone looks retarded once you set your mind to it.
+ - I see you that have a little swimming mouse.
+ - Write relentlessly, until you find your voice. Then, use it.
+ - The thought of killing myself had slowed me down to five miles per hour. The thought of killing someone else stopped me completely.
+ - We can’t profess love without talking through hand puppets.
+ - I’m the most important person in the lives of almost everyone I know and a good number of the people I’ve never even met.
+ - Snowball just leads elves on, elves and Santas. He is playing a dangerous game.
+ - Actually I liked that ‘Let the Right One In,’ that Swedish vampire movie.
+ - I’d tried to straighten him out, but there’s only so much you can do for a person who thinks Auschwitz is a brand of beer.
+ - The drama bug strikes hardest with Jews, homosexuals and plump women who wear their hair in bangs. These are people who, for one reason or another, desperately crave attention.
+ - I cry all the time when I watch ‘Glee’ because I don’t know if it’s satire or melodrama and that makes me feel like the writing is aware of itself, and that makes it OK to cry.
+ - A zoo is a good place to make a spectacle of yourself, as the people around you have creepier, more photogenic things to look at.
+ - Hugh consoled me, saying, “Don’t let it get to you. There are plenty of things you’re good at.” When asked for some examples, he listed vacuuming and naming stuffed animals. He says he can probably come up with a few more, but he’ll need some time to think.
+ - The fake slap invariably makes contact, adding the elements of shock and betrayal to what had previously been plain old-fashioned fear.
+ - Jeremy, Good luck on your first marriage.
+ - On a busy day twenty-two thousand people come to visit Santa, and I was told that it is an elf’s lot to remain merry in the face of torment and adversity. I promised to keep that in mind.
+ - People are often frightened of Parisians, but an American in Paris will find no harsher critic than another American.
+ - This was the consequence of seeing too much and understanding the horrible truth: No one is safe. The world is not manageable.
+ - Speed eliminates all doubt. Am I smart enough? Will people like me? Do I really look all right in this plastic jumpsuit?
+ - I don’t like travelling if I know I have to write about it.
+ - It’s unrealistic to live your life within such strict parameters.
+ - At the end of a miserable day, instead of grieving my virtual nothing, I can always look at my loaded wastepaper basket and tell myself that if I failed, at least I took a few trees down with me.
+ - If you stepped out of the shower and saw a leprechaun standing at the base of your toilet, would you scream, or would you innately understand that he meant you no harm?
+ - Boys who spent their weekends making banana nut muffins did not, as a rule, excel in the art of hand-to-hand combat.
+ - My boyfriend got me a computer three years ago. I’ll admit it does make things a lot easier. When I was working on a typewriter and I whited out a line, often I would choose a word to go in the space just because it fit. Now I don’t have to do that.
+ - What I really hated, of course, was my mind. There must have been an off switch somewhere, but I was damned if I could find it.
+ - When I look at a lot of older stuff that I’ve written, I think one sign of amateur humor writing is when you see people trying too hard.
+ - Given enough time, I guess anything can look good. All it has to do is survive.
+ - I think it’s good to have the alone time. Well, I kind of have to, because I have to be alone in order to work, so I have alone time. And then I go on tour and I have being-around-people time.
+ - I had to wrestle daily with both my inadequacy and my uncontrollable jealousy. I didn’t want to kill her, but hoped someone else might do the job for me.
+ - If I’m riding my bike I just replay the same scenarios over and over in my head, like I haven’t had a new mental adventure since high school. So that’s what I like about books on tape, so my mind can’t wander anywhere.
+ - It’s safe to assume that by 2085 guns will be sold in vending machines but you won’t be able to smoke anywhere in America.
+ - He’s as nutty as a vegan T-bone.
+ - Every gathering has its moment. As an adult, I distract myself by trying to identify it, dreading the inevitable downswing that is sure to follow. The guests will repeat themselves one too many times, or you’ll run out of dope or liquor and realize that it was all you ever had in common.
+ - All of us take pride and pleasure in the fact that we are unique, but I’m afraid that when all is said and done the police are right: it all comes down to fingerprints.
+ - Like all of my friends, she’s a lousy judge of character.
+ - If I were president, I would turn the tables and allow the fetus to abort its mother.
+ - Nobody pours stuffing like you do, my friend.
+ - I started writing when I was twenty, and my first book came out seventeen years later.
+ - I don’t worry about being exposed. When I’m writing about myself I think about myself as a character. There is a ton of stuff going on in my life that I don’t write about. If I need to write that stuff down, I write about myself in my diary.
+ - As a foreigner in London, I like that there are so many other foreigners.
+ - In other parts of the country people tried to stay together for the sake of the children. In New York they tried to work things out for the sake of the apartment.
+ - This left me alone to solve the coffee problem – a sort of catch-22, as in order to think straight I need caffeine, and in order to make that happen I need to think straight.
+ - It make one’s mouth hurt to speak with such forced merriment.
+ - And when Hugh would grow progressively Gandhi on me, I’d remind him that these were pests – disease carriers who feasted upon the dead and then came indoors to dance upon our silverware.
+ - What can you say about the family who is suing the railroad after their drunk son was killed walking on the tracks? Trains don’t normally sneak up on people. Unless they’ve derailed, you pretty much know where to find them.
+ - Right, I breast feed baby camels in my backyard just for the freaking fun of it. Just tell me where you live, Pinocchio, and save the baloney for lunch.
+ - It hardly seemed fair, because, unlike a horse or a Seeing Eye dog, the whole glory of being a bird is that nobody would ever put you to work.
+ - The Korean man nodded, the way you do when you’re a foreigner and understand that someone has finished a sentence.
+ - I’ve always had a way with the little people, making it a point to humor them without looking down my nose at their wasted empty lives.
+ - My feet are completely flat, but for most of my life they were still shaped like feet. Now, thanks to bunions, they’re shaped more like states, wide boring ones that nobody wants to drive through.
+ - Whenever I write about my family, I start by getting my parent’s approval. I like to think I write about them with obvious affection. When it comes to the people I’m related to, I consider myself to be very lucky.
+ - The difference between the first time I read something and the tenth time I read something is generally pretty profound. Even if the script is the same, just the way that I read it is different.
+ - Famous people like to choose friends who won’t go around repeating their conversations and details about them.
+ - Oh, for Christ’s sake,? I hear. ‘Can we please just try to have a good time?’ This is like ordering someone to find you attractive, and it doesn’t work. I’ve tried it.
+ - There is still the outside world to contend with. A world of backfiring cars, and their human equivalents.
+ - Their house had real hardcover books in it, and you often saw them lying open on the sofa, the words still warm from being read.
+ - Besides, if I wanted to hear people speaking wall-to-wall French, all I had to do was remove my headphones and participate in what is known as ‘real life,’ a concept as uninviting as a shampoo cocktail.
+ - I don’t think my life is more interesting than anybody else’s.
+ - I never got the idea of a punishing God, just a really boring one. To see people growing up in the Carolinas who were Baptist, I knew there were others who felt God was going to send them to hell for any little thing, but not me.
+ - Say what you will about the south, but in North Carolina a hot dog is free to swing anyway it wishes.
+ - I tend to show everything I do to my family, to check they won’t be offended.
+ - My family isn’t really all that different from anyone else’s. Well, maybe they’re a bit more entertaining.
+ - I’m not a reporter but the ‘New Yorker’ treats everyone like a reporter.
+ - In books and movies infidelity always looks so compelling, so right. Here are people who defy petty convention and are rewarded with only the tastiest bits of human experience.
+ - I don’t really do very well when I’m sent somewhere. A lot of magazines want to send you somewhere to do something. They want you to stow away on a ship, or something like that.
+ - The landscape is best described as ‘pedestrian hostile.’ It’s pointless to try to take a walk, so I generally just stay in the room and think about shooting myself in the head.
+ - Comfort has its place, but it seems rude to visit another country dressed as if you’ve come to mow its lawns.
+ - There seemed to be some correlation between devotion to God and a misguided zeal for marshmallows.
+ - I always used to reach for the cigarette when the phone rang, and I figured nobody would ever call me in Tokyo. The time difference is so profound it’s, like, already September in Tokyo, and I figured nobody would be able to work it out.
+ - The only real advice you can give anyone is to keep writing.
+ - Remember that the most important thing is to try and love other people as much as they love you.
+ - Faced with an exciting question, science tended to provide the dullest possible answer. Ions might charge the air but they fell flat when it came to charging the imagination – my imagination, anyway.
+ - Often I’d take out my magnifying glass and stare into the chaos that was her face.
+ - I sometimes read books on my iPad.
+ - No one writes dialect better than Flannery O’Connor. No one should even try.
+ - Sometimes with ‘The New Yorker,’ they have grammar rules that just don’t feel right in my mouth.
+ - Some friendships are formed by a commonality of interests and ideas: you both love judo or camping or making your own sausage. Other friendships are forged in alliance against a common enemy.
+ - Being locked up is one thing, but to have no concept of confinement, to be ignorant of its terms and never understand that struggle is useless – that’s what hell must be like.
+ - I just looked at the pattern of my life, decided I didn’t like it, and changed.
+ - I didn’t know about the rest of the class, but when Bastille Day eventually rolled around, I planned to stay home and clean my oven.
+ - Because I’ve always been a fairly nervous person.
+ - Most people would have found it grotesque, but when you’re in love nothing is so abstract or horrible that it can’t be thought of as cute.
+ - I won’t put in a load of laundry, because the machine is too loud and would drown out other, more significant noises – namely, the shuffling footsteps of the living dead.
+ - I’ve been keeping diaries for 27 years.
+ - I go to the movies at least five times a week, and after a while everything becomes a blur to me.
+ - My first semester I had only nine students. Hoping they might view me as professional and well prepared, I arrived bearing name tags fashioned in the shape of maple leaves.
+ - Up close the city constitutes an oppressive series of staircases, but from a distance it inspires fantasies of wealth and power so profound that even our communists are temporarily rendered speechless.
+ - At first, writing for The New Yorker was very scary to me. I couldn’t imagine anything that I would write in that typeface.
+ - The message was that if something is free, you should only take the best. If, on the other hand, you’re forced to pay, it’s best to lower the bar and not be so choosy.
+ - Perhaps the little Negro girl was holding a concealed razor blade. Maybe she was one of the troublemakers out for a fresh white scalp.
+ - I’ve never gone on Facebook and am not sure I understand it. The same goes for Twitter. I have someone sending tweets and pretending to be me, but I don’t know why.
+ - They were nothing like the French people I had imagined. If anything, they were too kind, too generous and too knowledgable in the fields of plumbing and electricity.
+ - They’re hungry for something they know nothing about, but we, we know all too well that the price of fame is the loss of privacy.
+ - Art isn’t about following the rules. It’s about breaking them.
+ - In the Netherlands now, I imagine it’s legal to marry your own children. Get them pregnant, and you can abort your unborn grandbabies in a free clinic that used to be a church.
+ - Do I exaggerate? Boy, do I, and I’d do it more if I could get away with it.
+ - When they’re born outside, crows come and pluck their eyes out.
+ - It’s hard to love a place that’s outlawed smoking but finds it perfectly acceptable to serve raw fish in a bath of chocolate.
+ - All I do is lie, and that has made me immune to compliments.
+ - When asked “What do we need to learn this for?” any high-school teacher can confidently answer that, regardless of the subject, the knowledge will come in handy once the student hits middle age and starts working crossword puzzles in order to stave off the terrible loneliness.
+ - When you read comic material and people aren’t laughing how do you know they’re listening.
+ - On one tour, I was collecting stories about pet monkeys. You’d be surprised how many people have stories about monkeys. The problem is, most monkey stories end tragically.
+ - Also, I used to think that one day I might get someone to iron my shirts, but the truth is I really like doing them myself.
+ - But most good movies have a gun in them.
+ - To say that a humorist exaggerates to get big laughs, I don’t see how that’s big news.
+ - I’ve always been very upfront about the way I write, and I’ve always used the tools humorists use, such as exaggeration.
+ - Neighbors would pass, and when they honked I’d remember that I was in my Speedo. Then I’d wrap my towel like a skirt around my waist and remind my sisters that this was not girlish but Egyptian, thank you very much.
+ - I like listening to books as well, as that way you can iron at the same time.
+ - Each one of us is left to choose our own quality of life and take pleasure where we find it with the understanding that, like Mom used to say, sooner or later something’s gonna get you.
+ - I guess my guilty pleasure would be listening to the British audio versions of the ‘Harry Potter’ books.
+ - He looked as though his life had not only passed him by but paused along the way to spit in his face.
+ - I don’t like being left to my own thoughts.
+ - People ask me, ‘Have you ever considered doing stand-up?’ To me it would be less offensive if someone asked me, ‘Have you ever considered dental implants?’
+ - Like anyone nostalgic for a time he didn’t live through, I chose to weed out the little inconveniences: polio, say, or the thought of eating stewed squirrel. The world was simply grander back then, somehow more civilized, and nicer to look at.
+ - It didn’t seem fair to me that Jon Stewart’s rally didn’t get the same kind of attention that Glenn Beck’s did. Why was Beck’s seen as checking the thermometer of the country, and Jon Stewart just dismissed as a satirist?
+ - I started writing one afternoon when I was twenty, and ever since then I have written every day. At first I had to force myself. Then it became part of my identity, and I did it without thinking.
+ - I like to reserve the right to write about whatever I like.
+ - But I don’t distinguish between being laughed with, and laughed at. I’ll take either.
+ - Usually, if I think something is really funny, it doesn’t get any reaction whatsoever.
+ - I went from having 50 listeners to 50 million listeners.
+ - I like books on tape, and will listen to just about anything.
+ - I don’t like to read anything on the radio for the very first time, because I don’t have any notion of a reaction. When I read it out loud, then I get an idea of that, and more of an idea of how to read.
+ - Every so often my life will feel like a story. It doesn’t have to be a big thing; in fact, most often, it’s just the opposite.
+ - I haven’t got the slightest idea how to change people, but still I keep a long list of prospective candidates just in case I should ever figure it out.
+ - I just think that the people who say: ‘That’s not true’ when someone tells a story at dinner are the people who didn’t get any laughs when they told their story.
+ - The humor section is the last place an author wants to be. They put your stuff next to collections of Cathy cartoons.
+ - I meet people at book signings. My record now, for signing, is ten and a half hours in one sitting.
+ - Most movies, I forget about them while I’m watching them. I go every single day. But I’ve never thought about participating in any way. It’s like being at home all day. It was never a goal to me.
+ - There are lots of things that happen to me that I don’t write about.
+ - My conscience is crosswired with my sweat glands, but there’s a short in the system and I break out over things I didn’t do, which only makes me look more suspect.
+ - When I taught, a lot of my students weren’t big readers, so they would write something and I realized that they thought it belonged in a book. Like, they didn’t know what the inside of a book looked like, you know what I mean?
+ - As bad a dresser as I am, anything beats being judged by my character.
+ - Of course, the diary helps me as well. ‘That wasn’t your position on July 7, 1991,’ I’ll remind Hugh an hour after we’ve had a fight. I’d have loved to rebut him sooner, but it takes awhile to look these things up.
+ - But I’m a humorist. I’m not a reporter, I never pretended to be a reporter.
+ - I’d always thought that I understood this, but lately I realize that what I call “understanding” is basically just fantasizing.
+ - I always think it’s a good policy to like the people who like you.
+ - I hoped our lives would continue this way forever, but inevitably the past came knocking. Not the good kind that was collectible but the bad kind that had arthritis.
+ - I’ve never made up events, but I’ve always been a big exaggerator. It’s written on my humorist license that I’m allowed to do that.
+ - Most people, or at least most of the people that I’ve come into contact with, would like to be written about.
+ - I find it ridiculous to assign a gender to an inanimate object incapable of disrobing and making an occasional fool of itself.
+ - I always knew I wanted it to be illustrated.
+
+171 quotes

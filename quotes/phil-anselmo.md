@@ -1,0 +1,23 @@
+ - In my better sense of mind, I know that Im far from alone and far from the worst, and the earth keeps spinning. Everything keeps moving, with or without me.
+ - You can only exist as far as your mind will allow you to exist, and I think chronic pain will stop time dead in its tracks. You feel like you’re the only one, and how unfair it is, and a million different feel-sorry-for-yourself type feelings.
+ - I’m a bad pessimist. I don’t think about how successful any record I’ve ever done is going to do before it came out.
+ - Music is there for us to explore. To intentionally limit yourself to one, two, or three genres is limitation at its worst. Music is huge; its a gigantic history lesson, and if you are true music fan or a musician, you should explore it. Its all right there in front of us.
+ - I may be loaded. I may be drunk. But I ain’t stupid.
+ - I am the type that cannot stay put in living in the past and solely in the past. It’s not healthy and it doesn’t feel right.
+ - When I die bury me in smoke.
+ - Pantera revolutionized the sound and the approach to heavy metal. It’s been regurgitated. Once you up the production on a product and not just the playing but the actual production, then it’s going to up the ante.
+ - I don’t care at all about the mainstream; I don’t care about popularity contests; I don’t care about who’s got the biggest-selling album; and I don’t care about glossy production.
+ - I think music is a big, big wide world, and I am voyager on this particular ship in this sea of wild music, and I’m gonna dive in and find as many fish as I can and catch them all. I love music.
+ - I guess I’ve never been introduced properly to Pink Floyd. I know they’re great, don’t get me wrong. Excellent, excellent musicians; great band; awesome harmony; great song writers; I just don’t know anything besides, I guess, the popular songs on the radio.
+ - I’m glowing in the dark with my studio tan. I’ve been in a cave of music for months and months and months.
+ - We definitely have a hardcore following.
+ - I can easily say I’ve done everything I’ve wanted in music.
+ - To do an extreme metal record is something that is well within my capacity as a musician to write stuff out of the box, write stuff that’s probably more extreme than the band I’m in at the present time, and it’s something that needs to come out of me one way or another.
+ - To me, I’m for a band whose forefront is the music.
+ - There it is again. Image. Once again. I get really tired of it quick.
+ - There’s always something going on, but thank goodness these days it’s with a clear head, which helps me massively.
+ - With this LP we were all very clear on the approach we wanted to take, which was to do something heavy, but also experiment with a lot of other things we really like.
+ - And it seems to be today, image is a real important thing once again.
+ - I’ve heard too many times where people say that I’m this ultra-serious guy. In truth, I’ve got an extremely absurd sense of humor. I thrive on the absurd – I love it.
+
+21 quotes

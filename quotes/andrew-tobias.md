@@ -1,0 +1,28 @@
+ - There’s no such thing as altruism.
+ - Life insurance is a commodity.
+ - Rule of thumb: The more trimmings an insurance plan has and the harder someone is pitching it, the faster you should run.
+ - People don’t need to find reasons to justify their not giving. What they need to find is the inspiration to give. And those who don’t, but could afford to, are missing out on one of wealth’s greatest luxuries.
+ - Man’s natural life span, 75 to 90 years or so, has not increased. It is the number of us who manage to attain it that has increased.
+ - The first American insurance company was the Friendly Society for the Mutual Insurance of Houses Against Fire, founded in Charles Town in South Carolina, in 1735.
+ - Now listen. You can’t fool all the people all the time – but I want you to try.
+ - In short: Readily available low-cost life insurance would be a threat to the industry, and whatever threatens the life insurance industry threatens America.
+ - Life insurance in America has traditionally been dominated by mutual insurers. Twelve of the fifteen largest life insurers are mutuals.
+ - Nobody wants campaign finance reform more than me. It would save me a fortune.
+ - No wonder lawyers, who control the legal system, have fought so hard, and with great success, against “no fault” insurance. No fault, no lawsuits. No lawsuits, no lunch.
+ - Having no national system of catastrophic health insurance, we have, through the courts, managed to patch together pieces of a not very satisfactory one.
+ - You want 21 percent risk free? Pay off your credit cards.
+ - What kind of bank gives back 65 percent-often less-of what you deposit? Indeed, when you compare the services of a bank and an insurance company, common sense suggests something is out of whack.
+ - The larger the deductible you choose, the less insurance you are buying. Insurers want to sell insurance.
+ - The life insurance industry is filled with good people who believe in their work and their companies, but who may never have challenged the assumptions underlying their efforts.
+ - One of the advantages of the book’s having been out there for more than a quarter century is that there’s been time for people to report back on what it’s done for them.
+ - Still, most people don’t have much money. So finding ways to come out a couple of thousand dollars ahead every year still matters.
+ - It’s very nice to be able to be who you are.
+ - The industry cannot long offer unneeded or overpriced insurance if people will not buy it.
+ - But successful investors tend to be not too self-destructive. They tend to be patient, they tend not to follow the crowd, and they tend not to be too guilty about winning.
+ - There are only two things as complicated as insurance accounting and I have no idea what they are.
+ - Hay fever suffers tend to be above average in intelligence,...
+ - I think a lot of people would rather have more control over their life than less.
+ - Summers are the best. And I figured summer was my best time for meeting someone, too, because in the summer people are looking for someone to snuggle up with for the winter. And because in the summer I could take off my shirt.
+ - I was a writer for ‘New York’ magazine. I had been to business school, but what did I know? Still, everybody from the receptionists on up to the editor would ask me what they should do with their money.
+
+26 quotes

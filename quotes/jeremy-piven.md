@@ -1,0 +1,56 @@
+ - Everyone’s journey is completely different.
+ - You know the Greeks didnt write obituaries, they only asked one question after a man died, ‘Did he have passion?’
+ - Sometimes – this is a tough one – not everyone can handle the truth. Sometimes you have to take a beat. But if you can take that beat, and take the high road, it’ll serve you in the long run.
+ - If someone mistakes your kindness for weakness, that’s their fault – not yours. And it’s OK to be a decent human being in this life.
+ - If you are an incredibly reactive person and you are working on your lowest level, and if you continuously give into your dark side and are angry, and screaming, and breaking things, and you do that for hours and hours on end, you are going to be incredibly exhausted. That’s just the way life is.
+ - I’ve been a fan of hip-hop for a really long time, and I still am.
+ - What’s this? You’re wearing the shirt of the band you’re going to see? Don’t be that guy.
+ - People need to know you have to walk through that rejection, and it’s only going to fuel you. If you can somehow look at it like it’s a gift, you’re just going to regroup, and work harder, and go deeper. So just embrace it.
+ - I have been drumming my whole life.
+ - John Cusack and I have been friends since childhood, and the fact that we’re in so many films together is, no pun intended, serendipitous.
+ - I have a place in Chicago and I get there as much as I can. The city is so unbelievably beautiful. It’s one of the greatest cities on the planet. My heart beats differently when I’m in Chicago. It slows down and I feel more at ease.
+ - You’re trying to figure out a way to go back in time and spend more time with your father. Who wouldn’t want to do that?
+ - I come from a theater family and a theater background, and I come from a philosophy that you respect the space you occupy when you work and you put everything that you have into something.
+ - I do yoga. I’ve been doing yoga for over 20 years and I love it.
+ - You can’t make people who you want them to be. That was a hard lesson for me.
+ - It’s your job as an actor to fill out the blanks. I love doing that. To fill in the bones.
+ - I think people are gravitating towards these period dramas because I think they’re looking for a simpler time.
+ - I’m acting with the best actors in the world.
+ - Robert Rodriguez is a genius, and I’m a huge fan of his.
+ - I was in a play directed by my father, and I was doing a fight scene, and the choreography went haywire, and I flew backward over a chair and ripped my thumb all the way to my wrist and had to have surgery to sew up all the tendons in there.
+ - I want to be radical on the inside, but not on the outside.
+ - Sometimes in life, we have to continue to learn the same lesson until it sticks.
+ - I’m not a video game guy. I would rather throw around a football.
+ - When you try to worry about missteps and all that kind of stuff, that’s not the healthiest way to be.
+ - We all have so many different elements inside of us and we’re not all one thing.
+ - When you do a television show in the States, you get the pilot, and then it’s the great unknown. That’s the way it is. It’s this great leap of faith. It’s the Russian roulette of art.
+ - My goal, everyone’s goal is to get better at what we do.
+ - I’m just mystified and fascinated by women, and I’m still single. Hence all of that, and the fact that I celebrate them so much, I understand that I’m unevolved at this exact moment to share my life with one. I wouldn’t inflict that upon anyone yet. But, I’m getting closer.
+ - I’ve been on the stage my entire life as an actor.
+ - I like to box. It’s a great release.
+ - Yet the reality is that I’m a stage actor from the Midwest – probably the opposite of a shark agent.
+ - For so much of my career I’ve been trying to find little things and make something out of it.
+ - The stage is my love, it’s where I started and where I do my best work.
+ - I grew up on the stage, where you just throw yourself into projects and don’t get in your own way.
+ - I grew up in the theatre.
+ - There are so many great directors that I haven’t worked with and that I would love to work with.
+ - I grew up watching PBS and wanting to be a part of it, just like HBO.
+ - The Dalai Lama was once asked for his favorite chant, and he said it was better not to have a favorite anything, which I think is a great thought.
+ - I wrote a script and I’ve been whispering in director’s ears for a really long time and I’d love to direct.
+ - When you play a character with power and energy, people lock into that and go, “Oh, this must be the guy.”
+ - I’m one of these people who would rather show you than tell you through the performance.
+ - We all deal with issues of time. The first thing you do in the morning is look at the clock to see what time it is.
+ - One of the great things going on right now is social media and you get a real sense, immediately, about what people are feeling and thinking.
+ - One of the great things that you should never do that I learned from John Malkovich is to never judge your characters.
+ - Unless an entire row of people got up in the middle of a performance and left the theater in disgust, I felt as though I hadn’t done my job.
+ - HBO does something that most networks don’t do which is give a show a chance to find their voice.
+ - I had never really been around cards.
+ - I’m not a boy now. I’m a man, I hope. I hope I’ve had my artistic bar mitzvah somewhere.
+ - For the record, if you’re not a stage actor, climbing onto Broadway and tackling something like David Mamet is not an easy thing to do.
+ - I’m a stage actor. That is what I do.
+ - I never made more than $50 doing any play in Chicago. That was the way I grew up.
+ - When I was growing up, I was always on stage but I loved other things.
+ - I don’t know if there’s a lot of patience anymore. I think that could serve a lot of people.
+ - I feel, as a person, very uninteresting.
+
+54 quotes

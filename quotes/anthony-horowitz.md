@@ -1,0 +1,75 @@
+ - You’re never too young to die.
+ - The worst time to feel alone is when you’re in a crowd.
+ - Childhood, after all, is the first precious coin that poverty steals from a child.
+ - You are meant to be here. There are no coincidences. It’s all happening the way it was meant to be.
+ - Routine is the one thing the can get you killed. It tells the enemy where you’re going and when you’re going to be there.
+ - A German philosopher once wrote that he who fights monsters must take care that he doesn’t become one himself.
+ - I believe that, by and large, people are good and everybody you meet is more likely to surprise you in a positive way than in a negative way.
+ - Writing about magic is harder than writing about spies because you’re dealing with something that doesn’t really exist.
+ - My perfect reader doesn’t just read – he or she devours books.
+ - When the doorbell rings at three in the morning, it’s never good news.
+ - I don’t know what I’d do without you. There’s no one else to look after me. And it’s not just that. I sometimes think you’re the only person who really knows me. I only feel normal when I’m with you.
+ - Believe me, It would be better if we didn’t meet again. Go back to school. Go back to your life. And next time they ask you, say no. Killing is for grown-ups and you’re still a child.
+ - Inside every fat man, there’s a thin man trying to get out.
+ - You cannot defeat your enemies until you know who they are.
+ - Whatever you say, old boy. Just look after yourself. And whatever you do, don’t swallow the gum!
+ - I love the idea that magic and witchcraft and battles between supernatural creatures could be raging all around us but just out of our sight.
+ - It’s funny how things work out sometimes.
+ - He had followed the trail left by a dead man. It was only now that he realized it might lead only to a grave.
+ - Go to Venice. Find Scorpia. And you will find your destiny.
+ - Nice day for a funeral.
+ - But then, he thought, most politicians are small and shabby, the sort of people who have been bullied at school. That’s why they become politicians.
+ - What is this place? Hogwarts? – Alex Rider.
+ - No offense, but I’d rather kiss the horse.
+ - Sometimes it’s the tiniest things that can mean the difference between life and death.
+ - I don’t think my father was a bad man, all in all.
+ - You’re nothing if you’re not special.
+ - You couldn’t trust anyone or anything that belonged to the world of espionage.
+ - Some things can’t be changed. They’ll always happen the way they were supposed to.
+ - My favorite part of writing a book is thinking up the ideas, and that can start a long time before I actually sit down at my desk.
+ - There’s a dream world that we visit sometimes and that’s how we found out who we are.
+ - For all men are equal at the moment of death and who are we to judge them when a much greater judge awaits?
+ - Once you get into the world of dystopia, it’s hard to avoid plagiarism, because other people have had such powerful visions.
+ - There are problems and there are children. It is our aim to separate the two.
+ - When you are rich, people treat you with respect.
+ - You’re my closest friend and you’re thousands of miles away.
+ - He died fighting for what he believed in.
+ - She tried to smile sympathetically, but with her face it wasn’t quite possible.
+ - You’re trying to tell me that everything you’ve done is for a good cause. You think that all this killing is worth it because of the results. I’m not sure I agree. Lots of people work for charity; lots of people want to change the world. But they don’t have to behave like you.
+ - If this is what you do to the winner, I’d hate to see how you treat the runner up.
+ - The birds fly in the wrong places and there are too many stars in the sky.
+ - Until he lost all his money, my father was a successful north London Jewish businessman. He was unusual among his immediate family in that he was enormously cultured and had an incredible library.
+ - We live in a world with so many dangers that we have to be careful whom we trust.
+ - In the old days, spies had done they’d done because they loved their country, because they believed in what they were doing. But he’d never been given a choice. Nowadays, spies weren’t employed. They were used.
+ - McCain might have suffered hardships in his life, but what had happened to him had nothing to do with his background or his color; they were convenient excuses now. He had been a psychopath from the start.
+ - It has been the dream of very few men to rule the entire world. – Dr. Grief.
+ - There are few things in the world that we don’t know. Science has explained everything away.
+ - We’re meant to be friends but you never tell me anything.
+ - It is, of course, traditional in children’s literature to get rid of the parents.
+ - Show Holmes a drop of water and he would deduce the existence of the Atlantic. Show it to me and I would look for a tap. That was the difference between us.
+ - Freedom of speech is a fundamental human right.
+ - My father was aloof, very strange and very distant.
+ - You weren’t in any real danger. We knew exactly where you were all the time.
+ - Authors have odd relationships with their creations They owe their fame and fortune to their characters but feel enslaved by them.
+ - Oh-do be careful with that! That’s my Buddha hand grenade. Twist the head twice and throw it and anyone within ten yards can say their prayers.
+ - He hadn’t done anything. He hadn’t needed to. Just being there was enough.
+ - I love writing different things.
+ - Your temperature’s normal, though I’d say it’s the only thing about you that is.
+ - I’m not very good at creating worlds. I prefer to write about the world as it is.
+ - Statues lined the stairs and stood, dotted across the roof. But they had been brutalized by time and the weather. Some were missing arms. Many had no faces. Once they had been saints and angels. Two hundred years standing in London had turned them into cripples.
+ - You must do what you want.
+ - The CIA agent looked more dead than alive. Alex wondered if he had been hit, but there was no sign of any blood. Perhaps he was in shock.
+ - We live in an age when there is no room for the impossible.
+ - He looked from the phone to the unconscious figure of the Salesman. “What did you do to him?” he asked. “He got the wrong number,” Alex said.
+ - My greatest fear is disappointing the reader, so each book has to be better than the one before.
+ - There are many things in life that cannot be explained.
+ - Then why don’t you go and – – yourself.
+ - My writing has always been what you call ‘narrative fiction’ in the sense that it’s got very strong plots and twists at the end.
+ - To enjoy something fully, you had to own it.
+ - If you think it’s hard getting in, you should try getting out.
+ - I vividly remember being 14. That was the age when I started to get happy: I started being a writer and stopped being a loser.
+ - When are you at your most defenseless?
+ - Smiling back at her, it occurs to me that I’ve never met a mean librarian.
+ - Death is the same for the one who dies.
+
+73 quotes

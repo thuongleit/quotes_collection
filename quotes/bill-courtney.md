@@ -1,0 +1,28 @@
+ - The measure of a man’s character is not determined by how he handles his wins, but how he handles his failures.
+ - Coaching doesn’t start with X’s and O’s. It starts with believing that players win games and coaches win players.
+ - You can’t be a successful leader or mentor until you have served. You can’t serve until you have stepped out of your comfort zone. And you can’t step out of your comfort zone unless you have character and keep your word.
+ - What builds character? It’s a commitment to integrity, hard work, honor and keeping your word. All of that comes straight out of the Sigma Nu Creed. The guy who wrote that meant it. The whole idea is to think about those words and make them a part of who you are.
+ - Each one of us has a comfort zone. The problem comes when we are unwilling to leave it.
+ - In the marathon of life, there is no finish line.
+ - Approach each new day as a new opportunity to be the person you aspire to be.
+ - Don’t believe in the fate society chose for you. Instead, carve out a new fate for yourself.
+ - Nothing profound ever happens in your life when you remain in your comfort zone.
+ - No matter how many good deeds we preform, they aren’t the ticket to earning God’s favor. God graces us in spite of what we do in this life, not because of.
+ - We should feel grateful instead of entitled. We have a moral obligation to give back.
+ - There is one possession that can never be taken away as long as you will not allow it to be taken, and that is your word.
+ - As cruel as life might be at times, if you throw in the towel, which is what everyone will expect, then nothing good will happen and your life will fall apart. Be better than that!
+ - The effectiveness of a leader is best judged by the actions of those he guides.
+ - Serving and attempting to inspire others is a responsibility, not a choice.
+ - Recognize the remarkable individuals in your life who help you envision a world far beyond yourself.
+ - In our community, we have a duty to strengthen the weakest among us to build a better society.
+ - You think football builds character. It does not. It reveals character.
+ - Internal character: how you behave when no one is watching.
+ - A leader or mentor gives credit to others when things go right, and accepts the blame when things go wrong.
+ - Every great thing that has been accomplished, and is yet to be accomplished, starts with a dream.
+ - Many men beg for a job but have no clue what hard work really means.
+ - Only by entering new and unfamiliar worlds can a person change society as well as self.
+ - Who you are should not be defined by your achievements.
+ - Grace is not something one possesses; instead, grace is something one receives.
+ - A true legacy is established over a lifetime and relates to what a human being does for others, not for himself.
+
+26 quotes

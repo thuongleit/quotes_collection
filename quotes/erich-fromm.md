@@ -1,0 +1,224 @@
+ - Creativity requires the courage to let go of certainties.
+ - Love is an act of faith.
+ - Greed is a bottomless pit which exhausts the person in an endless effort to satisfy the need without ever reaching satisfaction.
+ - Immature love says: ‘I love you because I need you.’ Mature love says ‘I need you because I love you.’
+ - Love means to commit oneself without guarantee, to give oneself completely in the hope that our love will produce love in the loved person. Love is an act of faith, and whoever is of little faith is also of little love.
+ - Only the person who has faith in himself is able to be faithful to others.
+ - Selfish persons are incapable of loving others, but they are not capable of loving themselves either.
+ - Love is the only sane and satisfactory answer to the problem of human existence.
+ - Love is a decision, it is a judgment, it is a promise. If love were only a feeling, there would be no basis for the promise to love each other forever. A feeling comes and it may go. How can I judge that it will stay forever, when my act does not involve judgment and decision.
+ - It takes a moment to tell someone you love them, but it takes a lifetime to prove it.
+ - Man’s main task in life is to give birth to himself, to become what he potentially is. The most important product of his effort is his own personality.
+ - Man is the only animal for whom his own existence is a problem which he has to solve.
+ - The mother-child relationship is paradoxical and, in a sense, tragic. It requires the most intense love on the mother’s side, yet this very love must help the child grow away from the mother, and to become fully independent.
+ - Love is not primarily a relationship to a specific person; it is an attitude, an ordination of character which determines the relatedness of the person to the whole world as a whole, not toward one object of love.
+ - Let your mind start a journey through a strange new world. Leave all thoughts of the world you knew before. Let your soul take you where you long to be. Close your eyes, let your spirit start to soar, and you’ll live as you’ve never lived before.
+ - If I am what I have and if I lose what I have who then am I?
+ - An illusion shared by everyone becomes a reality.
+ - Is love an art? Then it requires knowledge and effort.
+ - If a person loves only one other person and is indifferent to all others, his love is not love but a symbiotic attachment, or an enlarged egotism.
+ - To love somebody is not just a strong feeling – it is a decision, it is a judgment, it is a promise.
+ - Paradoxically, the ability to be alone is the condition for the ability to love.
+ - Love isn’t something natural. Rather it requires discipline, concentration, patience, faith, and the overcoming of narcissism. It isn’t a feeling, it is a practice.
+ - Not he who has much is rich, but he who gives much.
+ - Modern man thinks he loses something – time – when he does not do things quickly. Yet he does not know what to do with the time he gains, except kill it.
+ - There is only one meaning of life: the act of living itself.
+ - We are a society of notoriously unhappy people: lonely, anxious, depressed, destructive, dependent – people who are glad when we have killed the time we are trying so hard to save.
+ - Giving is more joyous than receiving, not because it is a deprivation, but because in the act of giving lies the expression of my aliveness.
+ - Love is the active concern for the life and the growth of that which we love.
+ - The affirmation of one’s own life, happiness, growth and freedom, is rooted in one’s capacity to love.
+ - Conditions for creativity are to be puzzled; to concentrate; to accept conflict and tension; to be born everyday; to feel a sense of self.
+ - The fact that millions of people share the same vices does not make these vices virtues, the fact that they share so many errors does not make the errors to be truths, and the fact that millions of people share the same form of mental pathology does not make these people sane.
+ - The ordinary man with extraordinary power is the chief danger for mankind – not the fiend or the sadist.
+ - Love is an act of faith, and whoever is of little faith is also of little love.
+ - To be concentrated means to live fully in the present.
+ - A dream is a microscope through which we look at the hidden occurrences in our soul.
+ - The only truly affluent are those who do not want more than they have.
+ - Destructiveness is the outcome of an unlived life.
+ - Exclusive love is a contradiction in itself.
+ - Mother’s love is peace. It need not be acquired, it need not be deserved.
+ - I love in you everybody, I love through you the world, I love in you also myself.
+ - Happiness is a man’s greatest achievement; it is the response of his total personality to a productive orientation toward himself and the world outside.
+ - Thus, the ultimate choice for a man, inasmuch as he is driven to transcend himself, is to create or to destroy, to love or to hate.
+ - Men are born equal but they are also born different.
+ - To respect a person is not possible without knowing him; care and responsibility would be blind if they were not guided by knowledge.
+ - As we ascend the social ladder, viciousness wears a thicker mask.
+ - In erotic love, two people who were separate become one. In motherly love, two people who were one become separate. The mother must not only tolerate, she must wish and support the child’s separation.
+ - When people can’t handle God any more, they turn to religion.
+ - I shall become a master in this art only after a great deal of practice.
+ - Freedom is the fundamental condition for any growth.
+ - The aim of life is to be fully born, though its tragedy is that most of us die before we are thus born.
+ - The task we must set for ourselves is not to feel secure, but to be able to tolerate insecurity.
+ - In times of change, learners inherit the earth.
+ - The revolutionary and critical thinker is in a certain way always outside of his society while of course he is at the same time also in it.
+ - You have to stop in order to change direction.
+ - True love is like a pair of socks: you gotta have two and they’ve gotta match.
+ - I need you because I love you.
+ - Productive work, love and thought are possible only if a person can be, when necessary, quiet and alone. To be able to listen to oneself is the necessary condition for relating oneself to others.
+ - Education makes machines which act like men and produces men who act like machines.
+ - There can be no real freedom without the freedom to fail.
+ - Close your eyes, let your spirit start to soar, and you’ll live as you’ve never lived before.
+ - Love is a power which produces love.
+ - Free man is by necessity insecure, thinking man by necessity uncertain.
+ - The experience of separateness arouses anxiety; it is, indeed, the source of all anxiety.
+ - Why should society feel responsible only for the education of children, and not for the education of all adults of every age?
+ - That millions of people share the same forms of mental pathology does not make these people sane.
+ - One cannot be deeply responsive to the world without being saddened very often.
+ - Man’s biological weakness is the condition of human culture.
+ - To die is poignantly bitter, but the idea of having to die without having lived is unbearable.
+ - Society must be organized in such a way that mans social, loving nature is not separated from his social existence, but becomes one with it.
+ - Independent of others and in concert with others, your main task in life is to do what you can best do and become what you can potentially be.
+ - There is perhaps no phenomenon which contains so much destructive feeling as moral indignation, which permits envy or to be acted out under the guise of virtue.
+ - Man’s main task in life is to give birth to himself.
+ - The lust for power is not rooted in strength but in weakness.
+ - The paradoxical and tragic situation of man is that his conscience is weakest when he needs it most.
+ - The whole life of the individual is nothing but the process of giving birth to himself; indeed, we should be fully born when we die.
+ - Sanity is only that which is within the frame of reference of conventional thought.
+ - Love is often nothing but a favorable exchange between two people who get the most of what they can expect, considering their value on the personality market.
+ - Human history began with an act of disobedience and it is not unlikely that it will be terminated by an act of obedience.
+ - To hope means to be ready at every moment for that which is not yet born, and yet not become desperate if there is no birth in our lifetime.
+ - What are the conditions of the creative attitude, of seeing and responding, of being aware and being sensitive to what one is aware of? First of all it requires the capacity to be puzzled. Children still have the capacity to be puzzled.
+ - People have committed suicide because of their failure to realize the passions for love, power, fame, revenge. Cases of suicide because of a lack of sexual satisfaction are virtually nonexistent.
+ - The destruction of the world is the last, almost desperate attempt to save myself from being crushed by it.
+ - Human history begins with man’s act of disobedience which is at the very same time the beginning of his freedom and development of his reason.
+ - While we teach knowledge, we are losing that teaching which is the most important one for human development: the teaching which can only be given by the simple presence of a mature, loving person.
+ - Man does not only sell commodities, he sells himself and feels himself to be a commodity.
+ - All men are in need of help and depend on one another. Human solidarity is the necessary condition for the unfolding of any one individual.
+ - Even the most sadistic and destructive man is human, as human as the saint.
+ - The scars left from the child’s defeat in the fight against irrational authority are to be found at the bottom of every neurosis.
+ - The human passions transform man from a mere thing into a hero, into a being that in spite of tremendous handicaps tries to make sense of life.
+ - Today the function of psychiatry, psychology and psychoanalysis threatens to become the tool in the manipulation of man.
+ - The right to express our thoughts means something only if we are able to have thoughts of our own.
+ - Reason flows from the blending of rational thought and feeling. If the two functions are torn apart, thinking deteriorates into schizoid intellectual activity and feeling deteriorates into neurotic life-damaging passions.
+ - The customer is an object to be manipulated, not a concrete person whose aims the businessman is interested to satisfy.
+ - On the whole, our modern ritual is impoverished and does not fulfill man’s need for collective art and ritual.
+ - Man is born as a freak of nature, being within nature and yet transcending it. He has to find principles of action and decision-making which replace the principles of instincts.
+ - In the first World War British propaganda had to invent the stories of German soldiers bayoneting Belgian babies, because there were too few real atrocities to feed the hatred against the enemy.
+ - Erotic love begins with separateness, and ends in oneness. Motherly love begins with oneness, and leads to separateness.
+ - The sick individual finds himself at home with all other similarly sick individuals. The whole culture is geared to this kind of pathology.
+ - To spare oneself from grief at all cost can be achieved only at the price of total detachment, which excludes the ability to experience happiness.
+ - Just as modern mass production requires the standardization of commodities, so the social process requires standardization of man, and this standardization is called equality.
+ - The history of man is a graveyard of great cultures that came to catastrophic ends because of their incapacity for planned, rational, voluntary reaction to challenge.
+ - In the development of both capitalism and communism, as we visualize them in the next fifty or a hundred years, the processes that encourage human alienation will continue.
+ - Man unites himself with the world in the process of creation.
+ - Most people die before they are fully born. Creativeness means to be born before one dies.
+ - The root of the word education is e-ducere, literally, to lead forth, or to bring out something which is potentially present.
+ - Freedom does not mean license.
+ - Understanding a person does not mean condoning; it only means that one does not accuse him as if one were God or a judge placed above him.
+ - I believe indeed that to rescue the humanist tradition of the last decades is of the utmost importance, and that Victor Serge is one of the outstanding personalities representing the socialist aspect of humanism.
+ - The most important influence on a child is the character of its parents, rather than this or that single event.
+ - Chronic boredom compensated or uncompensated constitutes one of the major psychopathological phenomena in contemporary technotronic society, although it is only recently that it has found some recognition.
+ - All genuine ideals have one thing in common: they express the desire for something which is not yet accomplished but which is desirable for the purpose of the growth and happiness of the individual.
+ - Creativity is the ability to see and to respond.
+ - Integrity simply means a willingness not to violate one’s identity, in the many ways in which such violation is possible.
+ - Modern man is alienated from himself, from his fellow men, and from nature. He has been transformed into a commodity, experiences his life forces as an investment which must bring him the maximum profit obtainable under existing market conditions.
+ - Love is the productive form of relatedness to others and to oneself. It implies responsibility, care, respect. If it isn’t productive and respectful, it isn’t love, but only fear masquerading as love.
+ - The capacity to be puzzled is the premise of all creation, be it in art or in science.
+ - Modern man lives under the illusion that he knows what he wants, while he actually wants what he is supposed to want.
+ - Sleep is often the only occasion in which man cannot silence his conscience; we forget what we knew in our dream.
+ - I only wish to be the fountain of love from which you drink, every drop promising eternal passion.
+ - If I am attached to another person because I cannot stand on my own two feet, he or she may be a life saver, but the relationship is not one of love.
+ - To live is to be born every minute. Death occurs when birth stops.
+ - The quest for certainty blocks the search for meaning. Uncertainty is the very condition to impel man to unfold his powers.
+ - Boredom is nothing but the experience of a paralysis of our productive powers.
+ - Fairness means not to use fraud and trickery in the exchange of commodities and services and the exchange of feelings.
+ - The danger of the past was that men became slaves. The danger of the future is that man may become robots.
+ - Optimism is an alienated form of faith, pessimism an alienated form of despair.
+ - Love is active penetration of the other person, in which my desire to know is stilled by union. In the act of fusion I know you, I know myself, I know everybody – and I “know” nothing.
+ - If you do not smile, you are judged lacking in a ‘pleasing personality’ – and you need to have a pleasing personality if you want to sell your services, whether as a waitress, a salesman, or a physician.
+ - Man always dies before he is fully born.
+ - We live in a world of things, and our only connection with them is that we know how to manipulate or to consume them.
+ - Care and responsibility are constituent elements of love, but without respect for and knowledge of the beloved person, love deteriorates into domination and possessiveness.
+ - Religion and nationalism, as well as any custom and any belief however absurd and degrading, if it only connects the individual with others, are refuges from what man most dreads: isolation.
+ - To take the difficulties, setbacks and sorrows of life as a challenge to overcome makes us stronger, rather than unjust punishment which should not happen to us, requires faith and courage.
+ - When blended with sexuality, the death instinct is transformed into more harmless impulses expressed in sadism or masochism.
+ - Boredom is nothing but the experience of a paralysis of our productive powers and the sense of unaliveness. Among the evils of life, there are few which are as painful as boredom, and consequently every attempt is made to avoid it.
+ - We all dream; we do not understand our dreams, yet we act as if nothing strange goes on in our sleep minds, strange at least by comparison with the logical, purposeful doings of our minds when we are awake.
+ - When the theory of evolution destroyed the picture of God as the supreme Creator, confidence in God as the all-powerful Father of man fell with it, although many were able to combine a belief in God with the acceptance of the Darwinian theory.
+ - Hate is a product of the unfulfilled life.
+ - There is no meaning to life except the meaning man gives his life by the unfolding of his powers.
+ - Beyond the element of giving, the active characteristic of love becomes evident in the fact that it always implies certain basic elements, common to all forms of love. These are care, responsability, respect and knowledge.
+ - The kind of relatedness to the world may be noble or trivial, but even being related to the basest kind of pattern is immensely preferable to being alone.
+ - If an individual is able to love productively, he loves himself, too; if he can love only others, he cannot love at all.
+ - The person who gives up his individual self and becomes an automaton, identical with millions of other automatons around him, need not feel alone and anxious any more. But the price he pays, however, is high; it is the loss of his self.
+ - The mature response to the problem of existence is love.
+ - The most beautiful as well as the most ugly inclinations of man are not part of a fixed biologically given human nature, but result from the social process which creates man.
+ - Love is hot a higher power which descends upon mn nor a duty which is imposed upon him; it is his own power by which he relates himself to the world and makes it truly his.
+ - Death is never sweet, not even if it is suffered for the highest ideal.
+ - To be loved because of one’s merit, because one deserves it, always leaves doubt; maybe I did not please the person whom I want to love me, maybe this, or that – there is always a fear that love could disappear.
+ - Love is union with somebody, or something, outside oneself, under the condition of retaining the separateness and integrity of one’s own self.
+ - Love of others and love of ourselves are not alternatives. On the contrary, an attitude of love towards themselves will be found in all those who are capable of loving others.
+ - We are not on the way to greater individualism, but are becoming an increasingly manipulated mass civilization.
+ - Just as love for one individual which excludes the love for others is not love, love for one’s country which is not part of one’s love for humanity is not love, but idolatrous worship.
+ - I believe that the experience of love is the most human and humanizing act that it is given to man to enjoy and that it, like reason, makes no sense if conceived in a partial way.
+ - It is naively assumed that the fact that the majority of people share certain ideas and feelings proves the validity of these ideas and feelings. Nothing could be further from the truth. Consensual validation as such has no bearing on reason or mental health.
+ - The hoarders, who are anxiously worried about losing something, are, psychologically speaking, the poor impoverished people, regardless of how much they have. Whoever is capable of giving of themselves is rich.
+ - Mother’s love is bliss, is peace, it need not be acquired, it need not be deserved. If it is there, it is like a blessing; if it is not there it is as if all the beauty had gone out of life.
+ - Power on the one side, fear on the other, are always the buttresses on which irrational authority is built.
+ - There is undoubtedly a difference between people who manipulate other people and people who create things.
+ - Modern man, if he dared to be articulate about his concept of heaven, would describe a vision which would look like the biggest department store in the world, showing new things and gadgets, and himself having plenty of money with which to buy them.
+ - If faith cannot be reconciled with rational thinking, it has to be eliminated as an anachronistic remnant of earlier stages of culture and replaced by science dealing with facts and theories which are intelligible and can be validated.
+ - Faith is not a weak form of belief or knowledge; it is not faith in this or that; faith is the conviction about the not yet proven, the knowledge of the real possibility, the awareness of pregnancy.
+ - The need for the creation of collective art and ritual on a nonclerical basis is at least as important as literacy and higher education.
+ - Psychoanalysis is essentially a theory of unconscious strivings, of resistance, of falsification of reality according to one’s subjective needs and expectations.
+ - Most people see the problem of love primarily as that of being loved, rather than that of loving, of one’s capacity to love. Hence the problem to them is how to be loved, how to be lovable.
+ - Ideas become powerful only if they appear in the flesh; an idea which does not lead to action by the individual and by groups remains at best a paragraph or a footnote in a book.
+ - In love the paradox occurs that two beings become one and yet remain two.
+ - If there is no evidence that sport lowers aggression, at the same time it should be said that there is also no evidence that sport is motivated by aggression.
+ - People seek a new orientation, a new philosophy, one which is centered on the priorities of life-physically and spiritually-and not on the priorities of death.
+ - Only when man succeeds in developing his reason and love further than he has done so far, only when he can build a world based on human solidarity and justice, only when he can feel rooted in the experience of universal brotherliness, will he have tr.
+ - Integrity simply means not violating one’s own identity.
+ - Who will tell whether one happy moment of love or the joy of breathing or walking on a bright morning and smelling the fresh air, is not worth all the suffering and effort which life implies.
+ - Love is the only way of knowledge, which in the act of union answers my quest. In the act of loving, of giving myself, in the act of penetrating the other person, I find myself, I discover myself, I discover us both, I discover man.
+ - What most people in our culture mean by being lovable is essentially a mixture between being popular and having sex appeal.
+ - Neurosis can be understood best as the battle between tendencies within an individual; deep character analysis leads, if successful, to the progressive solution.
+ - There is nothing inhuman, evil, or irrational which does not give some comfort, provided it is shared by a group.
+ - If you want a Big Brother, you get all that comes with it.
+ - I think if you ask people what their concept of heaven is, they would say, if they are honest, that it is a big department store, with new things every week – all the money to buy them, and maybe a little more than the neighbours.
+ - While every human being has a capacity for love, its realization is one of the most difficult achievements.
+ - In the nineteenth century the problem was that God is dead. In the twentieth century the problem is that man is dead.
+ - Education is helping the child realise his potentialities.
+ - I am convinced that boredom is one of the greatest tortures. If I were to imagine Hell, it would be the place where you were continually bored.
+ - Man can only know the nagation, never the position of ultimate reality.
+ - Both dreams and myths are important communications from ourselves to ourselves.
+ - The criterion of mental health is not one of individual adjustment to a given social order, but a universal one, valid for all men, of giving a satisfactory answer to the problem of human existence.
+ - The real opposition is that between the ego-bound man, whose existence is structured by the principle of having, and the free man, who has overcome his egocentricity.
+ - People think that to love is simple, but that to find the right object to love – or to be loved by – is difficult.
+ - It is notorious that no war between countries elicits as much hate and cruelty as civil war, in which there is no lack of acquaintance between the two warring sides.
+ - I believe that man is the product of natural evolution that is born from the conflict of being a prisoner and separated from nature, and from the need to find unity and harmony with it.
+ - There is hardly any activity, any enterprise, which is started out with such tremendous hopes and expectations, and yet which fails so regularly, as love.
+ - What is it that distinguishes man from animals? It is not his upright posture.
+ - The duty to be alive is the same as the duty to become oneself, to develop into the individual one potentially is.
+ - The existential split in man would be unbearable could he not establish a sense of unity within himself and with the natural and human world outside.
+ - There is nothing of which we are more ashamed than of not being ourselves. And there is nothing which brings us greater joy and happiness than to think, feel, and say what is ours.
+ - Giving is the highest expression of potency.
+ - If it is a virtue to love my neighbor as a human being, it must be a virtue – and not a vice – to love myself, since I am a human being too.
+ - Man absolutely cannot live by himself.
+ - Once they are through the process of education, most people lose the capacity of wondering, of being surprised. They feel they ought to know everything, and hence that it is a sign of ignorance to be surprised or puzzled by anything.
+ - In the 19th century inhumanity meant cruelty; in the 20th century it means schizoid self-alienation.
+ - Critical and radical thought will only bear fruit when it is blended with the most precious quality man is endowed with – the love of life.
+ - Just as love is an orientation which refers to all objects and is incompatible with the restriction to one object, so is reason a human faculty which must embrace the whole of the world with which man is confronted.
+ - Man can never stand still. He must find solutions to this contradiction, and ever better solutions to the extent to which reality enables him.
+ - The successful revolutionary is a statesman, the unsuccessful one a criminal.
+ - The most important factor for the development of the individual is the structure and the values of the society into which he was born.
+ - I believe that if an individual is not on the path to transcending his society and seeing in what way it furthers or impedes the development of human potential, he cannot enter into intimate contact with his humanity.
+ - There are many who feel consciously hopeful and unconsciously hopeless, and there are few for whom it is the other way around.
+ - It is time to cease to argue about God, and instead to unite in the unmasking of contemporary forms of idolatry.
+ - It seems that great minds a hundred years ago saw what would happen today or tomorrow, while we to whom it is happening blind ourselves in order not to be disturbed in our daily routine.
+ - The essential difference between the unhappy, neurotic type person and him of great joy is the difference between get and give.
+ - Mobilizing the love of life is the only force that can defeat the love for the dead.
+ - In the act of giving lies the expression of my aliveness.
+ - A relatively primitive village in which there are still real feasts, common artistic shared expressions, and no literacy at all is more advanced culturally and more healthy mentally than our educated, newspaper-reading radio-listening culture.
+ - Every society by its own practice of living and by the mode of relatedness, of feelings, and perceiving, develops a system of categories which determines the forms of awareness.
+ - Only in being productively active can man make sense of his life.
+ - It is a tragedy that most of us die before we have begun to live.
+ - If one is not productive in other spheres, one is not productive in the love either.
+ - Modern man’s happiness consists in the thrill of looking at the shop windows, and in buying all that he can afford to buy, either for cash or on installments.
+ - The more the drive toward life is thwarted, the stronger is the drive toward destruction; the more life is realized, the less is the strength of destructiveness. Destructiveness is the outcome of unlived life.
+ - Man is the only animal that can be bored.
+ - The member of a primitive clan might express his identity in the formula “I am we”; he cannot yet conceive of himself as an “individual,” existing apart from his group.
+ - When people can see a vision and simultaneously recognize what can be done step by step in a concrete way to achieve it, they will begin to feel encouragement and enthusiasm instead of fright.
+ - Authority is not a quality one person ‘has,’ in the sense that he has property or physical qualities. Authority refers to an interpersonal relation in which one person looks upon another as somebody superior to him.
+ - Like the effect of advertising upon the customer, the methods of political propaganda tend to increase the feeling of insignificance of the individual voter.
+
+222 quotes

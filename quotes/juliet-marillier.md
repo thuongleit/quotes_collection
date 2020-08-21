@@ -1,0 +1,72 @@
+ - The most powerful weapon is hope.
+ - Nothing comes without a price.
+ - The future was in our own hands. If we wanted a world where such things were possible, it was for us to make it.
+ - My feet will tread soft as a deer in the forest. My mind will be clear as water from the sacred well. My heart will be strong as a great oak. My spirit will spread an eagle’s wings, and fly forth.
+ - Come, dear heart. Lean on me and let us walk this path together.
+ - The warmth of his embrace soaked into me, a powerful charm against the dark things.
+ - Wake the sleeper must, and confront his fears, or risk being lost in the dark places of the mind forever.
+ - This is a long goodbye, yet not time enough. I have no aptitude for this. I cannot learn this. I would hold on, and hold on, until my hands clutch at emptiness.
+ - Our strength comes from that magic, from the earth and the sky, from the fire and the water. Fly high, swim deep, give back to the earth what she gives you...
+ - Eat of my deep earth, drink of my living streams, for I am your Mother. Your heart is my wild drum, your breath my eternal song. If you would live, dance with me!
+ - She went on because there was no going back.
+ - But there is one thing you must remember, if you forget all else. There is no good or evil, save in the way you see the world. There is no dark or light save in your own vision. All changes in the blink of an eyelid; yet all remains the same.
+ - In all experience, there is something to be learned. In deepest sorrow, wisdom is found. In the well of despair, hope rises.
+ - Trust can be a hard lesson; hope still more difficult.
+ - I wanted so much to keep you safe. I did my best. I’m sorry things didn’t come out different for the two of us. I wish I could have been good enough for you.
+ - Third person allows a deeper exploration of the relationships between characters. We can see their misunderstandings and hear what they think about each other. We can create a more complex structure with various story threads running parallel.
+ - Stronger than iron crueler than death sweeter than springtime it lives beyond breath.
+ - Breath of the winds; dancing flame; peace of the earth; song of the waves.
+ - We cannot know the future. All we can do is face it bravely. We should take heed of those we love and respect. But in the end, we make every decision alone.
+ - You will find the way, daughter of the forest. Through grief and pain, through many trials, through betrayal and loss, your feet will walk a straight path.
+ - I know it’s hard for you to trust me. If I ever find the man who did this to you, who made you so frightened, I’ll kill him with my bare hands. But you can trust me.
+ - She seemed fragile like a moonflower – destined to bloom for a single lovely night, and then to fade and fall.
+ - With courage and hope, we can conquer our fears and do what we once believed impossible.
+ - You may be your own best helper, if you choose the right path.
+ - I wish- I wish I could dry these tears, I wish I could make this better for you. But I don’t know how.
+ - If a man has to say trust me, Gogu conveyed, it’s a sure sign you cannot. Trust him, that is. Trust is a thing you know without words.
+ - He was sitting not far away, watching me, and I surprised a smile on his face, the first real smile I had ever seen him give, a smile that curved and softened the tight mouth, and warmed the ice-cool eyes; a smile that brought the blood to my face and made my heart turn over.
+ - But I believe we all have an inner goodness; a little flame that stays alight through the worst of trials.
+ - More like some small, fierce bird of prey, something with a sharp bite. An owl perhaps, that speaks only when the rest of the world sleeps. Jenny will do well enough.
+ - My world was changing, and I was not ready for it.
+ - The greatest tales, well told, awaken the fears and longings of the listeners. Each man hears a different story. Each is touched by it according to his inner self. The words go to the ear, but the true message travels straight to the spirit.
+ - There is no truth on this island of yours. Rather, there are as many truths as there are stars in the sky; and every one of them different.
+ - There was so much of beauty here: the neat, small tracks of a foraging creature, stoat or marten; the inticate tracery of a skeleton leaf, still clinging vainly to its parent tree as, little by little, time stripped it of its substance, leaving only the delicate remembrance of what it had been.
+ - Brilliant minds make errors, brave souls falter, kind hearts leave scars. We are none of us perfect, but we’re all perfectly human.
+ - Nobody expects you to exhibit godlike strength, excepting maybe yourself.
+ - As for religious faith, a lack of it shouldn’t stop us from doing good deeds for their own sake.
+ - For indeed you have a choice. You can flee and hide, and wait to be found. You can live out your days in terror, without meaning. Or you can take the harder choice, and you can save them.
+ - Real life is not quite as it is in stories. In the old tales, bad things happen, and when the tale has unfolded and come to its triumphant conclusion, it is as if the bad things had never been. Life is not as simple as that, not quite.
+ - Water and stone Flesh and bone Night and morn Rose and thorn Tree and wind Heart and mind.
+ - You don’t like it that I am the one you need to keep the wolf from the door; that comes as no surprise. But I am the one you have. At some point we’ll both have to risk telling the truth.
+ - You cannot poison what is between us with your foul words. She is my light in the darkness and Johnny is my pathway ahead.
+ - Why should I be polished and improved like goods for sale? I might not even want to marry! And besides, I have many skills. I can read and write and play the flute and harp. Why should I change to please some man? If he doesn’t like me the way I am, then he can get some other girl for his wife.
+ - And as I watched him, I knew that in every dark night there was, somewhere, a small light burning that could never be quenched.
+ - How can he do this? If you were mine, I would fight to keep you. I would die, before I let you go.
+ - Only – only that, if you believe the tales, it’s in the nature of our people to go to war and to kill, just as it is to sing and play and tell stories. Perhaps they are two halves of the same whole.
+ - A dream is the key that unlocks the mysteries of the waking world...
+ - Every man or woman who makes a stand helps keep the flame of freedom burning.
+ - I had learned how it felt to want more than the sweet touch of hand to cheek or lips to palm, more than a kiss, more than an embrace. I was starting to discover that it is not only the mind that understands love, but also the body.
+ - I thought of betrayal and how it came so easily – in a word, a glance, a gesture.
+ - I should have realized, when Cathal kissed me in the hallway, that my response was the first raindrop heralding a storm.
+ - The world is simple, I think, in its essence. Life, death, love, hate. Desire, fulfillment. Magic.
+ - Become my friend and you embrace a nightmare.
+ - Death, of course, should not be feared, but awaited with certain wonder. To die was to step across a threshold into a new world, unknown, unimaginable.
+ - I would hold on, and hold on, until my hands clutch at emptiness.
+ - After a while, footsteps sounded on the flagstones outside and there was a gentle tap at the door. Of course, one of them would come. So close were we, the seven of us, that no childhood injury went unnoticed, no slight, real or imagined, went unaddressed, no hurt was endured without comfort.
+ - All that he had of her was his memory, where he held every moment, every single moment that she had been his. That was all he had, to keep out the loneliness.
+ - Because if I see you defeated, then I think I will see Alban defeated, and if that happens, none of us can go on. To guard you is to guard the heart of this land of ours.
+ - This had been real: real in its flaws and uncertainties, real in its small triumphs, real in its compromises and understanding.
+ - As a novelist, I’m endlessly fascinated by human behavior and interactions.
+ - Perhaps this is what the stories meant when they called somebody heartsick. Your heart and your stomach and your whole insides felt hollow and empty and aching.
+ - Even in that time of utter darkness, somewhere deep inside me the memory of love and goodness had stayed alive.
+ - Good and bad; shade and sunlight, there’s but a hair’s breath between them. It’s all one in the end.
+ - I wonder how it takes you, that moment when everything turns to shadows. – Somerled.
+ - Don’t you long for something different to happen, something so exciting and new it carries you along with it like a great tide, something that lets your life blaze and burn so the whole world can see it?
+ - Trust is a thing you know without words.
+ - I like the truth, even when it does trouble me.
+ - His thoughts inhabit a different plane from those of ordinary men; the simplest interpretation of that is to call him crazy.
+ - As for me, I had found love, and that was a gift worth suffering for.
+ - I’ve loved fairytales, folklore and mythology since I was a small child, and I think it was inevitable that they would influence my style and my development of stories.
+ - Each of my novels features a protagonist undertaking a difficult personal journey. On the way, each of these characters – mostly female – discovers something about herself and at the same time makes an impact on other people’s lives.
+
+70 quotes

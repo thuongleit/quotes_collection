@@ -1,0 +1,43 @@
+ - Don’t judge a man until you have walked two moons in his moccasins.
+ - In a course of a lifetime, what does it matter?
+ - You can’t keep the birds of sadness from flying over your head, but you can keep them from nesting in your hair.
+ - Life is like a bowl of spaghetti. Every once in a while, you get a meatball.
+ - What I have since realized is that if people expect you to be brave, sometimes you pretend that you are, even when you are frightened down to your very bones.
+ - I love the way that each book – any book – is its own journey. You open it, and off you go. You are changed in some way, large or small, by having traveled with those characters.
+ - When I read good stories, I want to write good stories too.
+ - So much depends upon a blue car splattered with mud speeding down the road.
+ - I don’t want to because boys don’t write poetry. Girls do.
+ - Read a lot, live your life, and listen and watch, so that your mind fills up with millions of images.
+ - You know, maybe that’s all anybody wants, is to be useful. And have somebody else notice it.
+ - Sometimes you know in your heart you love someone, but you have to go away before your head can figure it out.
+ - My granny Torrelli says when you are angry with someone, so angry you are thinking hateful things, so angry maybe you want to punch them, then you should think of the good things about them, and the nice things they’ve said, and why you liked them in the first place.
+ - Relationships with parents, grandparents, friends, and siblings were important to me when I was young and have remained so throughout my life. Our relationships with other people both shape and reflect who we are. These relationships are infinitely fascinating to explore!
+ - I tried. Can’t do it. Brain’s empty.
+ - A person isn’t a bird. You can’t cage a person.
+ - Something I am wondering: if you cannot hear do you have no sounds in your head? Do you see a silent movie.
+ - Man needs bread and hyacinths: one to feed the body, and one to feed the soul.
+ - Once ‘Walk Two Moons’ received the Newbery Medal, I decided to write full-time. Partly because there seemed to be an audience out there who wanted to read what I wanted to write, and partly because I could now support myself financially through writing.
+ - One thing I’m interested in is what shapes us: the people? The place where we live? It’s both of those and more. That’s what I keep coming back to.
+ - Sometimes when you are trying not to think about something it keeps popping back in your head you can’t help it you think about it and think about it and think about it until your brain feels like a squashed pea.
+ - On that night after Phoebe had given her Pandora report, I thought about the Hope in Pandora’s box. Maybe when everything seemed sad and miserable, Phoebe and I could both hope that something might start to go right.
+ - Each child brings so much joy and hope into the world, and that is reason enough for being here. As you grow older, you will contribute something else to this world, and only you can discover what that is.
+ - And what did I think when I was small and why did I forget? And what else will I forget when I grow older? And if you forget is it as if it never happened? Will none of the things you saw or thought or dreamed matter?
+ - I enjoy receiving and giving realistic fiction, for both children and adults, with strong characters, beautiful language, and humane visions.
+ - I was wishing I was invisible. Outside, the leaves were falling to the ground, and I was infinitely sad, sad down to my bones. I was sad for Phoebe and her parents and Prudence and Mike, sad for the leaves that were dying, and sad for myself, for something I had lost.
+ - Then I thought, boy, isn’t that just typical? You wait and wait and wait for something, and then when it happens, you feel sad.
+ - I don’t remember titles of books or authors from when I was young. I remember the title of only one book, which was ‘The Timber Toes.’ I remember it was a family of little wooden people who lived in the woods, and for some reason that stayed with me.
+ - I cannot just write a frivolous book, a la-di-da book. Everything isn’t la-di-da. There is something that’s going to pull you up short. I want to reassure young readers. I want to comfort them, to not fear the unexpected.
+ - I wish that every baby everywhere could land in a family that wanted that baby as much as we want ours.
+ - Don’t be in too much of a rush to be published. There is enormous value in listening and reading and writing – and then putting your words away for weeks or months–and then returning to your work to polish it some more.
+ - It can’t be dead. It was alive just a minute ago.
+ - As readers can probably tell from my books, I love the outdoors.
+ - I entered a poem in a poetry contest around 1987, and the poem won and I received $1,000 for it. That made me realize that maybe what I was writing was worth reading to people. After that, for some reason, I turned to novels and I’ve written mainly novels ever since.
+ - I prayed to trees. This was easier than praying directly to God. There was nearly always a tree nearby.
+ - The sea, the sea, the sea. It rolled and rolled and called to me. Come in, it said, come in.
+ - What exactly did people do when they had all the time in the world and could do whatever they liked?
+ - I started thinking about life insurance and how nice it would be if you could get insurance that your life would be happy, and that everyone you knew could be happy, and they could all do what they really wanted to do, and they could all find the people they wanted to find.
+ - Young children are naturally so philosophical. They ask: ‘What is real? What is truth?’ They have to learn it; they don’t automatically know it. To them, it’s a game. You can study this for years in college, and yet you probably asked it when you were four or five years old.
+ - Why do people not listen when you say no? Why do they think you are too stupid or too young to understand? Why do they think you are too shy to reply? Why do they keep badgering you until you will say yes?
+ - A library is the door to many lives.
+
+41 quotes

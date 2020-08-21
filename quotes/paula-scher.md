@@ -1,0 +1,23 @@
+ - Helvetica is the font of the Vietnam War.
+ - It took me a few seconds to draw it, but it took me 34 years to learn how to draw it in a few seconds.
+ - Words have meaning, type has spirit.
+ - Great design is serious, not solemn.
+ - It’s through mistakes that you actually can grow. You have to get bad in order to get good.
+ - Beige is the color of indecision.
+ - My work is play. And I play when I design. I even looked it up in the dictionary, to make sure that I actually do that, and the definition of “play,” number one, was “engaging in a childlike activity or endeavor,” and number two was “gambling.” And I realize I do both when I’m designing.
+ - The goal of design is to raise the expectation of what design can be.
+ - Your name is Windows. Why are you a flag?
+ - Be culturally literate, because if you don’t have any understanding of the world you live in and the culture you live in, you’re not going to express anything to anybody else.
+ - If I get up every day with the optimism that I have the capacity for growth, then that’s success for me.
+ - Identities are the beginning of everything. They are how something is recognized and understood. What could be better than that?
+ - All maps are distorted, they are not literal fact.
+ - I love the big scale and immediate impact of posters. They’re my favourite things to design.
+ - New Zealand looks like the future to me.
+ - The work needs to get out of your head and on to the table, and it needs to be done from the heart.
+ - All the little risks I took were sort of like all the apartments I had moved into: I was finding the right spot.
+ - Find out what the next thing is that you can push, that you can invent, that you can be ignorant about, that you can be arrogant about, that you can fail with, and that you can be a fool with. Because in the end, that’s how you grow.
+ - What you do is look at yourself and find your own way to address the fact that the times have changed and that you have to pay attention. You can’t be a designer and say, “Oh, this is timeless”.
+ - You need to be able to ride past the technology by understanding what it can do, who you are, and where you want to take it. You don’t want technology to lead you; you want to lead it, but it’s very hard to do that when you’re in the middle of it.
+ - I don’t think of design as a job. I think of it as – and I hate to use this term for it – more of a calling. If you’re just doing it because it’s a nice job and you want to go home and do something else, then don’t do it, because nobody needs what you’re going to make.
+
+21 quotes

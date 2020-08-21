@@ -1,0 +1,63 @@
+ - Every age can be enchanting, provided you live within it.
+ - I really am a cat transformed into a woman.
+ - I gave my beauty and my youth to men. I am going to give my wisdom and experience to animals.
+ - What could be more beautiful than a dear old lady growing wise with age? Every age can be enchanting, provided you live within it.
+ - I wanted to be myself. Only myself.
+ - Death was like love, a romantic escape.
+ - I have found out that friendship is quite as important as love and it isn’t any easier than love.
+ - I am a woman that defends animals, right, left, and in the centre. Animals aren’t political.
+ - Was it me that Botticelli imagined?
+ - A photograph can be an instant of life captured for eternity that will never cease looking back at you.
+ - Fame had brought me so much unhappiness.
+ - There is a French proverb: To live happy, live hidden. Where can Brigitte Bardot hide?
+ - My wild and free side unsettled some, and unwedged others.
+ - I have never put a gun to anyone’s head to obligate him to marry me.
+ - I think animals help us live; they’ve helped me live. It was only when I began to devote myself to protecting animals that I blossomed completely. Taking care of them, looking out for them, has given my life true meaning, a meaning I hope future generations can experience.
+ - Fashion may not be a weapon of the woman but at least it gives her the ammunition.
+ - You can be barefoot and have worries.
+ - No more hard work than look beautiful with eight in the morning until midnight.
+ - On the outside one is a star. But in reality, one is completely alone, doubting everything. To experience this loneliness of soul is the hardest thing in the world.
+ - I only want to protect animals from barbarous, cruel, inhuman and backward rituals.
+ - What does it mean, being a woman?
+ - People are forever finding something wrong with you.
+ - I do not understand girls who imagine that something forbidden. You can prohibit someone, but did not imagine.
+ - I have understood that the most important things are tenderness and kindness. I can’t do without them.
+ - I only live in the world of animal protection. I speak only of that. I think only of that. I am obsessed.
+ - Percentages are why I am rich.
+ - It is sad to grow old but nice to ripen.
+ - Unfortunately these are not isolated incidents, and the people of Reunion are the first to be horrified by this despicable barbarity which mars the image of their island.
+ - I am leaving the town to the invaders: increasingly numerous, mediocre, dirty, badly behaved, shameless tourists.
+ - I am all right when I work. I am not superficial and I am not ungrateful.
+ - I never do anything by chance.
+ - I have not always loved wisely, but I was young.
+ - Champagne is the one thing that gives me zest when I am tired.
+ - The first time that I came to Cannes, I think it was in 1953, I was 18 and unknown.
+ - Solitude scares me. It makes me think about love, death, and war. I need distraction from anxious, black thoughts.
+ - I didn’t throw myself off my balcony only because I knew people would photograph me lying dead.
+ - I am no mother, and I won’t be one.
+ - Success is unpredictable and fragile.
+ - I absolutely loathe luxury. It is the one thing I cannot stand.
+ - Romania will not be able to evolve if it continues to take cruel decisions against sensitive creatures, which are under the protection of European law.
+ - My private life became public.
+ - Women get more unhappy the more they try to liberate themselves.
+ - It is better to be wrong than correct with no desire to be.
+ - Nobody has any security in loving me.
+ - I know very few Americans, though I like the way they think. They think big.
+ - I never force myself to dance or sing.
+ - I stopped making films to look after animals.
+ - I have no regrets. If I wanted to keep acting, I would have never left the cinema.
+ - The myth of Bardot is finished, but Brigitte is me.
+ - Unfortunately, I am not like a snail or a turtle, and I can’t take my houses with me when I move.
+ - In a democracy one must have the right to express oneself and that’s what I do, even if it displeases.
+ - I was afraid of not living up to what people expected me to be.
+ - I am astonished and surprised that someone could consider making a film about me without talking to me about it.
+ - I knew I had to be the best at something, otherwise I would be nothing. I knew I wanted the world to know about Brigitte Bardot.
+ - If people don’t like me, I become very plain.
+ - The world today doesn’t please me.
+ - The page has turned. Cinema is finished for me.
+ - I don’t think when I make love.
+ - People have already dirtied my name too much.
+ - Vadim changed my mind about acting. Vadim was the only man who was certain I had something special to offer.
+ - I tried to make myself as pretty as possible and even then I thought I was ugly. I found it madly difficult to go out, to show myself.
+
+61 quotes

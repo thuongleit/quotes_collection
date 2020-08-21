@@ -1,0 +1,68 @@
+ - Reading is not optional.
+ - Cutting people out of your life is easy, keeping them in is hard.
+ - What I do with my books is to create windows to my world that all may peer into. I share the images, the feelings and thoughts, and, I hope, the delight.
+ - It’s a hard life sometimes and the biggest temptation is to let how hard it is be an excuse to weaken.
+ - Writers do not write what they know. They write what they can imagine.
+ - Sometimes I feel like I have walked into the middle of a movie. Maybe I can make my own movie. The film will be the story of my life. No, not my life, but of this experience. I’ll call it what the lady who is the prosecutor called me. MONSTER.
+ - We all think we’re different, but when it comes around, we end up needing the same things. Somebody to love us. Somebody to respect us.
+ - I joined the army on my seventeenth birthday, full of the romance of war after having read a lot of World War I British poetry and having seen a lot of post-World War II films. I thought the romantic presentations of war influenced my joining and my presentation of war to my younger siblings.
+ - How deep is your game?
+ - Books transmit values. They explore our common humanity. What is the message when some children are not represented in those books?
+ - I know I’m tired of thinking about what I should have done yesterday. I know I’m just tired. If I knew what to do with my life, how to fix it up, I would have done it a long time ago. You can’t dig that? You think I want to live like I’m somebody’s throwaway?
+ - Idiots don’t know they’re idiots, which is unfortunate.
+ - They take away your shoelaces and your belt so you can’t kill yourself no matter how bad it is. I guess making you live is part of the punishment.
+ - I think that if we can’t go back, then we should try even harder to go forward. And I do want to go forward, to a place where loving someone because they have a gentle smile and a friendly hello is as easy as it once was.
+ - Think about all the tomorrows of your life.
+ - The idea of voluntary segregation went against every value I had been taught. What did being born black have to do with excellence?
+ - What did I do? I walked into a drugstore to look for some mints, and then I walked out. What was wrong with that? I didn’t kill Mr. Nesbitt.
+ - The best time to cry is at night, when the lights are out and someone is being beaten up and screaming for help.
+ - Sometimes when things get hard, we tend to set our sights on what’s hard, that difficult thing that keeps us upset, and we turn our back on our strengths.
+ - My life is not packaged, Not tidy. There are leftover strands and jagged Edges that cut even my friends.
+ - Each of us is born with a history already in place.
+ - Within the black community, roughly 60 percent of children are born to single moms. Moms don’t have the emotional wherewithal to deal with their children. Their English is atrocious. Their speaking is atrocious. The dropout rate is horrendous.
+ - But now, like a fallen sparrow On a golden chain, I’m forever bound in shadow, A prisoner to my pain.
+ - And I see the – you know, when I go to the juvenile detention centers and prisons, I see people who can’t read now. And I know that when they leave those prisons and those detention centers, they’re not going to be able to make it in our society.
+ - Violence was just as much about WHAT was happening as it was how it happened.
+ - If you know you don’t have a win, then there’s no use for you being in the game.
+ - If anyone could look into my head See or feel the dread that has captured Me or see within this sad, unhappy brain They would only turn away Turn away.
+ - When I began to read, I began to exist.
+ - With my writing, what I want to do is humanize the young people I write about.
+ - There is a crisis involving reading in certain communities.
+ - Yes, she is the fruit that will Sustain me and yes, she brings A rain that I know can chill But it is a rain so sweet and sings A song my soul insists That I follow, if I would exist As more than I have ever, ever been If my mother calls it evil, then I embrace the sin.
+ - I know what falling off the cliff means. I know from being considered a very bright kid to being considered like a moron and dropping out of school.
+ - I think it’s difficult for young people to acknowledge being smart, to knowledge being a reader. I see kids who are embarrassed to read books. They’re embarrassed to have people see them doing it.
+ - That’s what’s wrong with women. They want you to wait for them until they get ready and then they don’t even tell you how they feel.
+ - New York is my favorite city.
+ - I couldn’t speak well. I went to speech therapy for 10 years. And I was sort of frustrated in that sense.
+ - I admired the work ethic of the cowboys I read about. The idea of these young people taking on this much responsibility was impressive. I would like modern readers to have an appreciation of this.
+ - We all know we should eat right and we should exercise, but reading is treated as if it’s this wonderful adjunct.
+ - I read a lot of comic books and any kind of thing I could find. One day, a teacher found me. She grabbed my comic book and tore it up. I was really upset, but then she brought in a pile of books from her own library. That was the best thing that ever happened to me.
+ - America believes what’s good for us is good for the world. It’s very difficult to understand that that’s not necessarily true.
+ - The movie is more real in so many ways than the life I am leading. No, that’s not true. I just desperately wish this was only a movie.
+ - And what I was feeling was the wonder Of being more than me, of being more Than mere here and now allowed I had become a shining star, a burning nova Exploded with love Flying through an endlessly Expanding universe Away from the me that was Toward a me that is beyond Understanding.
+ - On the streets of the city They have taken my Who-I-Am As well as my What-I-Was And now I am desperate for them both Again.
+ - I want young people to be hesitant to glorify war and to demand of their leaders justification for the sacrifices they ask of our citizens.
+ - I was teased if I brought my books home. I would take a paper bag to the library and put the books in the bag and bring them home. Not that I was that concerned about them teasing me – because I would hit them in a heartbeat. But I felt a little ashamed, having books.
+ - You cannot live this life anymore without the ability to read.
+ - We need to tell kids flat out: reading is not optional.
+ - Children have adopted a consumerist attitude – I dare you to entertain me.
+ - Can you become The hope I need? Can you help me be More than it is written in my future Or past? Is there another me to find?
+ - When we think of war, the tendency is to picture young soldiers only in their military roles. To a large extent this dehumanizes the soldiers and makes it easier for society to commit them to combat.
+ - As a child I wanted to be a professional athlete or lawyer.
+ - But in the end, we learn we can forgive most people. The cushion of mortality makes their wrongdoing seem less dark, and whatever roads they traveled seem less foolhardy.
+ - I write in a small office at home.
+ - Each generation seems to invent its own reasons for war.
+ - I’ll never live to write all the stories I have in my head.
+ - I like people who take responsibility for their lives.
+ - I am very much interested in getting parents to read to children, and trying to get people mentoring children. If I can do both I’ll be happy.
+ - Each time I think there is no place lower to go, I find that there is at least one place that will mess you up worse than you were.
+ - Fifty percent of all meaningful education takes place in the home. What do you share with your child? You share your interests. I was a book person. I read with my son. My wife is an artist. She dragged his little butt around to museums. He’s an illustrator of children’s books.
+ - Looks to me like you’ve been making garbage for a while and dragging it with you. Now you need to get out of here, and that garbage is weighing you down.
+ - I talk to myself out loud at times, and feel embarrassed when people overhear me.
+ - As a kid I didn’t see black cowboys on the screen. What that said to me was that there were things I couldn’t do or be because of my color. What we see others like us do gives us permission to expand our own horizons.
+ - I’m not out here looking for no garbage cans to curl up in. I’m looking for the same good dreams everybody else is hoping for, but I don’t see where they are. Or maybe I see where they are, but I don’t see how to get there.
+ - I wrote for magazines. I wrote adventure stuff, I wrote for the ‘National Enquirer,’ I wrote advertising copy for cemeteries.
+ - We need to tell young people that America was built by men and women of all colors and that the future of this country is dependent on the participation of all of our citizens.
+ - As a writer, I absorb stories, allow them to churn within my own head and heart – often for years – until I find a way of telling them that fits both my time and temperament.
+
+66 quotes

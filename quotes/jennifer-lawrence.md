@@ -1,0 +1,168 @@
+ - I need to just find my own peace.
+ - Teenagers only have to focus on themselves – its not until we get older that we realize that other people exist.
+ - I’m excited to be seen as sexy. But not slutty.
+ - Be strong. Don’t be a follower. Always do the right thing.
+ - A powerful woman is someone who exudes confidence and can be tough but fair and kind. And also knows how to get what she wants.
+ - Knowledge is honestly everything. It’s not just books and staying behind a desk and having a diploma. There’s also traveling and knowledge about people, and what I do and scripts and books.
+ - I was having chest pains. Photoshop made it glamorous.
+ - I’ve never considered failure.
+ - Well, at least I had on underwear.
+ - You don’t want your relationship to be in the press, but at the same time, and this is only a theory, the more you try and keep it secret, the more the media tries to crack it open.
+ - People call me fat, but I don’t care. I don’t want to starve myself cause I am beautiful the way I am.
+ - It’s my body, and it should be my choice, and the fact that it is not my choice is absolutely disgusting.
+ - I’m a big believer in accepting yourself the way you are and not really worrying about it.
+ - I never leave my house. Then I don’t have to put a bra on, and I don’t have to change my pants.
+ - I want a pizza with my face on it.
+ - I was raised to have value for money, to have respect for money, even though you have a lot of it.
+ - Being inappropriate comes easy to me.
+ - You have a choice. You don’t have to be a person who spreads negativity and lies for a living. You can do something good. You can be good. Let’s just make that choice and – it feels better.
+ - I don’t trust a girl who doesn’t have any girlfriends.
+ - A bad word that I can’t say that starts with f.
+ - I wasn’t pretty enough to play the popular girl, I wasn’t mousy enough to be the mousy girl, so I never fit in. And so I’d get close, but I never got anywhere, and it was really painful.
+ - I have the street smarts and survival skills of, like, a poodle.
+ - I just don’t like that you can either be ugly and smart or pretty and dumb, or ugly and nice or pretty and mean.
+ - Even as far back as when I started acting at 14, I never considered failure.
+ - Better passion and death than any more of these’isms’. No more of the old purpose done up in aspic. Better passion and death.
+ - People treating you differently, when you don’t feel any different, is really alienating.
+ - Without my family I would be nothing.
+ - Sometimes I feel like a vampire.
+ - I can’t even describe to anybody what it feels like to have my naked body shot across the world like a news flash against my will. It just makes me feel like a piece of meat that’s being passed around for profit.
+ - I learned that you can’t have any expectations with life. You never know what’s going to happen.
+ - I’m still getting used to everything. It still makes me a little emotional, just to see how quickly everything kind of changes – that it changes so fast.
+ - It’s just so bizarre how in this world if you have asthma, you take asthma medication. If you have diabetes, you take diabetes medication. But as soon as you have to take medicine for your mind, it’s such a stigma behind it.
+ - When you don’t have anybody to take care of you, then you could go both ways: You could do whatever you want, or you could take charge and be your own parent.
+ - In real life, bad things happen and they’re not funny, and then bad things happen and they can be funny. When you’re unhappy you don’t go an entire time without laughing. You don’t go your whole life without laughing. It’s just life.
+ - When I’m not working, I am the laziest person. I can literally lie on a couch and watch television for 15 hours.
+ - Like backstage, I just peed like every 3 seconds. I think yur staff thinks I have diarrhea.
+ - I just love film making; all aspects of it. I love the idea of writing but I just don’t feel like I could really do it. I didn’t even graduate from school.
+ - I want to play a character I’ve never been before-a crazy serial killer like Charlize Theron in Monster. I’d love to have to shave my head.
+ - It was really impulsive. I was just like, I’m cutting it! And then it was just all gone.
+ - I’m very, very thirsty for knowledge. Just because I’m good at something and have found success doesn’t mean I’m done. I’m not even close to being done. I don’t know if I ever will be done learning.
+ - I’d like to direct at some point. But I don’t know because 10 years ago I would have never imagined that I’d be here. So in 10 years from now, I might be running a rodeo.
+ - As hard as it is and as tired as I am, I force myself to get dinner at least once a week with my girlfriends, or have a sleepover. Otherwise my life is just work.
+ - I hate people who say, “Oh, I’m addicted to working out”. I just want to punch those people in the face.
+ - I’m going to do my thing and if you react a certain way – with pity or with anger – that’s up to you.
+ - I have an old soul. I don’t know any real-life lingo, so I have to take it from movies.
+ - The tabloid that said that I dressed up as a medieval, like a sexy medieval something and that upset me more than the dating rumors that have been circling around that were fake. If somebody thinks I’m going to dress sexy to a costume party, they have another thing coming.
+ - I am the biggest “but why?” question asker.
+ - Why can’t we just be nice? It’s like, we grow up, and then we get right back into high school.
+ - When I dance, I look like I’m a dad at a prom. I never grasped my limbs. Ever since puberty I’ve just kind of felt like we don’t understand each other.
+ - My husband is a very present husband, and that has made going to work feel easier. I don’t feel guilty. I definitely feel less guilt because I know he’s there during breakfast, lunch and supper if I’m not.
+ - Where are the Robert Redfords and Paul Newmans of my age group? I love James Franco, but where’s the next James Franco? Where are the hunks who can act?
+ - If I were just your average 23-year-old girl, and I called the police to say that there were strange men sleeping on my lawn and following me to Starbucks, they would leap into action. But because I am a famous person, well, sorry, ma’am, there’s nothing we can do. It makes no sense.
+ - In Hollywood, I’m obese. I’m considered a fat actress. I eat like a caveman. I’ll be the only actress who doesn’t have anorexia rumours! I’m never going to starve myself for a part. I’m invincible. I don’t want little girls to be like, “Oh, I want to look like Katniss, so I’m going to skip dinner.”
+ - As soon as somebody farts around me, I think it’s hilarious. This is something my brothers did that now the boys at work are obsessed with. You cup it, and then you throw it in someone’s face and say, ‘Take a bite out of that cheeseburger!’
+ - I’ve done archery for about six weeks, and rock climbing, tree climbing – and combat, running and vaulting. But also yoga and things like that, to stay catlike!
+ - Eating is one of my favorite parts of the day.
+ - When you’re asking about roles for men and women, men certainly have a longer shelf life. Men can play the sexy lead for 20 years longer than we can.
+ - I dress like an old woman in my real life. If you’re having conversations with people, you don’t want them to remember you as the girl with the tits, You want them to pay attention to what you’re saying.
+ - I’d rather look chubby on screen and like a person in real life.
+ - There’s always a backlash in everything that you do, but it’s not going to stop or change anything. And it’s not only an issue in Hollywood.
+ - I had to learn how to chop wood actually – I don’t think my dad would have let me go chop wood in the backyard growing up.
+ - You can’t ever let yourself be thrown by a camera. That’s never good for an actor. When you’re reading the script, you want to work with someone you trust so there’s nothing to worry about.
+ - My breasts have a life of their own.
+ - Why can’t I say anything normal?
+ - I remember during Oscar season, the thing I hated most was being talked to differently; people treat you differently. And then I suddenly understood why celebrities can be so weird; it’s hard to act normal when no-one treats you normally.
+ - There are directors that I want to work with and that I admire. You can love a script, but if it doesn’t have a good director, it won’t be that.
+ - I’ve got five or six amazing friends that I trust and love, I know exactly who I am and don’t care about anything else.
+ - I jumped out the back of a bus because everyone told me I wouldn’t.
+ - Across all fields, women are generally paid 21 percent less than men.
+ - If you are going to do something that you have to lie about, don’t do it, it’s very simple.
+ - I tried to avoid making plays or films that weren’t telling a story that I felt was important. And what I discovered in the process is, it makes you more empathic because you have to enter someone else’s reality and you learn to see through many other people’s eyes.
+ - I just went to the doctor today, I got a chest X-ray of my lungs and discovered that my breasts are uneven.
+ - I’m dead sober. This is just me.
+ - If anyone wants to know the weirdest thing, it’s getting your hair cut and seeing it on the news. Terrorists probably knew about my haircut.
+ - My cousin cleaned out a shotgun for me and let me carry it around the house, because he said, ‘Anybody who knows anything about guns is going to know in a second if someone has held a gun before.’ I didn’t want to be that person. I wanted to be practiced.
+ - I do have big ambitions, but I think we all do. I just want to keep working hard and being happy.
+ - Why would I ever get cocky? I’m not saving anybody’s life.
+ - I find a certain peace by thinking of me in public as sort of an avatar self. You out there can have the avatar me.
+ - I’ve always loved food too much to be a model.
+ - You ask if you look good and you know people are lying. It was a depressing thing to experience. I was going to these parties where I used to be ignored and then all of a sudden people are paying attention to me.
+ - Don’t go see the movies, I’m a troll. I think the movie was great, but their biggest mistake was me.
+ - Things can happen to you, but they don’t have to happen to your soul.
+ - I’m still the same and I don’t feel any different but when the elevator doors open and everybody gasps, it’s an alienating feeling.
+ - The internet to me is kind of like a black hole, and I never really go on it.
+ - I always feel like an idiot every time I fly first class because I’m a kid. And I just sit there, and everyone’s got their newspapers and they’re on the computer, and I’m like, ‘Can I get a coloring book, please? Can I get some crayons?’
+ - I eat like a caveman.
+ - Seeing what is wrong and how it could be made right propels us into action, but in that action we often leave other people behind and don’t give ourselves enough time to be present, or to stop and reflect. Leaders have to get comfortable with pausing in that uncomfortable gap.
+ - I adapt to directors, I don’t like making directors adapt to me. If I’m with Clint Eastwood then I’ll do two takes, if I’m with Fincher I’ll do 50 – though the thought of that sounds horrible.
+ - I’m doing what I love, and then I get months and months of rest. I have a lot of money for a 21-year old. I can’t stand it when actors complain.
+ - I changed schools a lot when I was in elementary school because some girls were mean. They were less mean in middle school, because I was doing all right; although this one girl gave me invitations to hand out to her birthday party that I wasn’t invited to.
+ - At the end of the day, there’s probably nothing that makes me feel better than junk food and reality TV.
+ - Everything that we think comes across in our eyes. Our eyes really are the windows to our souls, and that’s why at least I can tell when somebody doesn’t mean what they’re saying – if you just look at them in the eye.
+ - My iCloud keeps telling me to back it up, and I’m like, I don’t know how to back you up. Do it yourself.
+ - I had to have running training because I’m not a very good runner. I run weird. The hardest stunt is probably basic running. And trying not to hit myself in the face with my bow, are my two greatest challenges.
+ - The changes that happened in my life from doing these movies are so permanent that I don’t think I’ll ever really say goodbye, it’ll always be a part of me, the Hunger Games.
+ - If a woman is determined, she will get what she wants because we are very determined creatures.
+ - I think the biggest reason that actors are complete a-holes as soon as they become famous is because they forget that this a job. They think that it’s about them, and it’s not.
+ - I really love acting. I really do. I really just think of myself like a working woman. And I just go from set to set and work. You have to promote a movie; you have to work. People are going to have opinions and it’s weirdly very easy to kind of block out the world because you have your own.
+ - If I don’t have anything to do all day, I might not even put my pants on.
+ - What’s so sad is when we’re younger, if you have a bad parent, that is normal to you and that’s what you think of as healthy.
+ - I always felt like I sucked at everything, that I could never find the thing that I liked. I auditioned and I probably sucked, but I had decided 100 percent that this is what I wanted to do.
+ - You guys are just standing up because I fell, and it’s so embarrassing.
+ - I don’t know if this is why everything has worked so well and I’m not sure I’d recommend this kind of thinking to anyone else, but I’ve always known I’d be successful in acting. I have certainly worked for it.
+ - My career is one thing in my life that I don’t plan.
+ - It’s interesting that there’s so many different sides of this: Women get frustrated that we don’t get paid enough; and then the Republicans or the CEOs that are men say, “Well, it’s because women take off time for maternity leave.”
+ - Anybody that makes fun of me, I’m like, ‘Yeah, and then I got touched by Hugh Jackman’
+ - I never play characters that are like me because I’m a boring person. I wouldn’t want to see me in a movie.
+ - I was a weirdo. I wasn’t picked on or anything. And I wasn’t smarter than the other kids; that’s not why I didn’t fit in. I’ve always had this weird anxiety. I hated recess. I didn’t like field trips. Parties really stressed me out. And I had a very different sense of humour.
+ - There are actresses who build themselves, and then there are actresses who are built by others. I want to build myself.
+ - I was going to come in and push you down the stairs...
+ - I really act for myself. I really love it. I don’t think there’s a way that you could handle these schedules, all of the actual work that goes into it, if you don’t really, really love it.
+ - This is hilarious. First, people say how so many actresses in Hollywood look anorexic, and now they are criticizing me for looking normal. Body images are too often adopted by young girls and women – thanks to what they are constantly being shown as being attractive.
+ - Acting, films, scripts, is literally the only thing I’m 100 percent confident in. I know what I’m doing. I just understand it, and I love it. When I’m on set, that’s when I feel the most at home and in control.
+ - I’m the youngest in a family where I didn’t have to take responsibility for much.
+ - Everyone’s brain works in a different way. I didn’t feel smart in school; I just didn’t get it. I thought I was an idiot. Until I got out.
+ - I don’t really diet or anything. I’m miserable when I’m dieting and I like the way I look. I’m really sick of all these actresses looking like birds I’d rather look a little chubby on camera and look like a person in real life, than look great on screen and look like a scarecrow in real life.
+ - I’m trying not to change.
+ - Sometimes if a script is based on a book, that’s what you should do: represent the book.
+ - I never studied acting, yet the first time I auditioned and did a cold reading, I surprised everyone for my honesty and limpidity. They told me I could play any role because I have no walls, I don’t put anything between me and the character I have to play.
+ - How do I let the director know how obsessed I am and willing to do anything for the movie? Like, I wanted to write this one director a letter, so I wrote him a handwritten note. But then I was like, ‘How many people are writing this guy handwritten letters? Is it going to seem cheesy? What do I do?’
+ - There’s always male roles I want to play. I’m so annoyed when I watch movies and go, “That could have been played by a woman.”
+ - It’s better to look strong and healthy.
+ - There’s this freshness that happens within the first few takes of the actors actually listening to each other and actually really reacting.
+ - I view the director as my boss. I’m the pawn on the chess board. I don’t say something to the director easily, because they are my boss.
+ - Whenever I really want a part, I’m not sure what to do. How do I let the director know how obsessed I am and willing to do anything for the movie?
+ - I like when things are hard; I’m very competitive. If something seems difficult or impossible, it interests me.
+ - I never wanted to be an actor. My dad was an actor, and he never brought joy home, so I didn’t view it as something that I would want to do.
+ - I think women can be just as sexist. Women can be misogynistic, too – more so, they have more freedom to do it.
+ - I love Photoshop more than anything in the world!
+ - I feel like I got a ticket to go to another planet and I’m moving there and there’s no turning back, and I don’t know if I’m going to like that other planet or have friends there.
+ - I went through a wood-chopping phase when I was nine or 10.
+ - I never imagined myself as an actor who would be in films. I always only thought of myself being in a play or a musical.
+ - You don’t go your whole life without laughing. It’s just life.
+ - I’m not ready to own a place yet. I have the money, but I don’t have the maturity.
+ - I hate saying, ‘I like exercising’ – I want to punch people who say that.
+ - This isn’t like an auction, right? You guys aren’t going to take it away?
+ - I do have some kind of gravitational pull towards young characters with more responsibility than they should have.
+ - I wanted to be a doctor when I was little, so I’m okay with blood and guts.
+ - Be strong. Don’t be a follower, and always do the right thing. If you have a choice between the right thing and the wrong thing, the right way is always the less stressful.
+ - It’s hard to do, but I think it’s really important to go back and watch yourself.
+ - More women have to be in charge of studios, so that they can greenlight films with women.
+ - I run into grounded people all the time. Given, most of them are behind the camera. But I definitely by no means think I’m the only one.
+ - It’s beautiful when you watch something good happen to somebody when it’s well deserved.
+ - In a short amount of time, I’ve lived so much, had so many experiences and met so many different types of people and even lived in so many countries. If I had been in school, I’d be learning about the world from books.
+ - We hould totally make out right now.
+ - I promise you, anybody given the choice of that kind of money or having to make a phone call to tell your dad that something like that has happened, it’s not worth it.
+ - I get photographers hiding in my bushes. We’re way past autographs. We’re into being stalked and followed.
+ - There are certain times when a certain person says something to me, that will stick with me for a really long time. But I don’t remember one person being my idol, or anything like that.
+ - When I get asked, ‘what are the differences between Twilight and THG’ I’m like, ‘Erm, what are the similarities?’
+ - You look how you look.
+ - I think all mothers are a nightmare – i don’t think you can have children and not lose your goddamn mind.
+ - For ‘X-Men’ I was lifting a lot of weights. I actually lost a lot of mass when I quit ‘X-Men’ because I was working out so much and very muscular and strong.
+ - I grew up in Kentucky, but I did not grow up like that. I had heat, and I didn’t have to shoot my dinner or anything.
+ - I don’t like going out that much. When I’m out, I think about my couch.
+ - All I need in a relationship is somebody to watch TV with me.
+ - I take from people all the time. I didn’t ever go to acting classes or anything. You can just watch people.
+ - I’d like to think that I have a plan, but you can’t really pick what scripts you’re going to get or what movie is going to come along.
+ - Yeah, when you’re making a film, the book is a good tool, but once you have the script and you’re making a movie, you have to let go of the book.
+ - What does it say, ‘I beat Meryl,’
+ - I know certain roles are important to me. I know that I really want to play them. I know I can do a good job. But I can never put into words why.
+ - And when I’m on set, I’m just thinking about the script and of working. I think I’ve stayed focused on the work so much that I haven’t really noticed my life start to change except for I’ve gotten busier.
+ - But really, for the most part – doing a prequel is great because you do have room to kind of free this character and how they got to where they are instead of being a slave to exactly what the previous actor did.
+ - Anytime you’re away from your home filming, it messes with your head.
+ - Why would people have confidence in a female director when there are so few?
+ - I’m sorry, I just did a shot.
+ - You do become more aware of your mortality as you get older. When you’re little, you jump on any wild horse. Then you get a little bit older and realize how fragile life is, and you’re more careful.
+
+166 quotes

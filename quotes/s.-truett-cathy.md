@@ -1,0 +1,36 @@
+ - Learn to love your work and you’ll never have to ‘work’ again.
+ - No goal is too high if we climb with care and confidence.
+ - If we get better our customers will demand we get bigger.
+ - Sometimes success is disguised as hard work.
+ - We must motivate ourselves to do our very best, and by our example lead others to do their best as well.
+ - How do you identify someone who needs encouragement? That person is breathing.
+ - Food is Essential to life, therefore make it good.
+ - The difference between success and failure is often about 5% more effort.
+ - A business, successful or not, is merely a reflection of the character of its leadership.
+ - Nearly every moment of every day we have the opportunity to give something to someone else – our time, our love, our resources. I have always found more joy in giving when I did not expect anything in return.
+ - To take advantage of unexpected opportunities, we must leave ourselves available.
+ - Each person’s destiny is not a matter of chance; it’s a matter of choice. It’s determined by what we say, what we do, and whom we trust.
+ - My riches are my family and my foster children. I try to store any material wealth in my hand, not my heart, so that I always feel free to give it away when the opportunity arises.
+ - It’s OK to have wealth. But keep it in your hands, not in your heart.
+ - I believe no amount of business school training or work experience can teach what is ultimately a matter of personal character. Businesses are not dishonest or greedy, people are. Thus, a business, successful or not, is merely a reflection of the character of its leadership.
+ - Success in any relationship or endeavor begins with trust.
+ - It’s better to build boys than mend men.
+ - If you wish to enrich days, plant flowers; If you wish to enrich years, plant trees; If you wish to enrich Eternity, plant ideals in the lives of others.
+ - Opportunity presents itself sometimes in unusual situations. What you think is the worst thing turns out to be a good thing. Different circumstances challenge people to do things they didn’t know they could do, and in those times when the outlook appears the worst, we find new reasons for optimism.
+ - Many of the unexpected opportunities we encounter are small but significant.
+ - Ringing the cash register is not the name of the game. It’s only the scorekeeper, and it’s not what motivates me. I’m motivated in my business by the compliments I receive about our people, our service, and the quality of our food.
+ - You know what ego stands for: Edging Out God!
+ - You don’t have to make the headlines to make a difference.
+ - If you’re excited about what you’re doing, it’s a lot more likely that your employees will also be excited. People want to work for a person, not a company. It’s about relationships.
+ - The one thing I take more joy in than anything else in the world is seeing young people develop.
+ - As Christians, we have an obligation and responsibility to abide by the principles of the Bible.
+ - I’d like to be remembered as one who kept my priorities in the right order. We live in a changing world, but we need to be reminded that the important things have not changed, and the important things will not change if we keep our priorities in proper order.
+ - If it takes seven days to make a living, you ought to be doing something else.
+ - In most cases we perform better when we’re busy than when we’re not busy. When we’re slow, our mind wanders. We’re not as attentive to our business. When we’re on the firing line, we’re sharper. We move more quickly and get the job done right.
+ - You have to be very careful about what you say. More importantly, you have to be very careful about what you do. You never know how or when you influence people – especially children.
+ - People want to work with a person, not for a company.
+ - I had to create some good work habits and attitude.
+ - I realized I could do anything if I wanted it badly enough.
+ - As a kid, I can’t remember having anything to play with except a loose tooth. And that wasn’t mine. It was my brother’s.
+
+34 quotes

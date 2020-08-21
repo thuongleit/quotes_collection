@@ -1,0 +1,84 @@
+ - Focus on being productive instead of busy.
+ - If you don’t have time, the truth is, you don’t have priorities. Think harder; don’t work harder.
+ - What we fear doing most is usually what we most need to do.
+ - The most important actions are never comfortable.
+ - It isn’t enough to think outside the box. Thinking is passive. Get used to acting outside the box.
+ - Do not overestimate the competition and underestimate yourself. You are better than you think.
+ - You can lose money and make it back, you can’t do that with time.
+ - Lack of time is actually lack of priorities.
+ - One can steal ideas, but no one can steal execution or passion.
+ - The best way to improve mental performance, is to improve physical performance.
+ - Reality is negotiable.
+ - Life is too short to be small.
+ - An entrepreneur isn’t someone who owns a business, it’s someone who makes things happen.
+ - Think big and don’t listen to people who tell you it can’t be done. Life’s too short to think small.
+ - If the challenge we face doesn’t scare us, then it’s probably not that important.
+ - Three ingredients of luxury lifestyle design are time, income, and mobility.
+ - A person’s success in life can usually be measured by the number of uncomfortable conversations he or she is willing to have.
+ - But you are the average of the five people you associate with most, so do not underestimate the effects of your pessimistic, unambitious, or disorganized friends. If someone isn’t making you stronger, they’re making you weaker.
+ - Money doesn’t change you; it reveals who you are when you no longer have to be nice.
+ - Fear is your friend. It is an indicator. Sometimes it shows you what you shouldn’t do, more often than not it shows you what you should do.
+ - Ninety-nine percent of people believe they can’t do great things, so they aim for mediocrity.
+ - Simplicity requires ruthlessness.
+ - Believe it or not, it is not only possible to accomplish more by doing less, it is mandatory. Enter the world of elimination.
+ - Short, sweet, and to the point. Clear writing, and therefore clear commands, comes from clear thinking. Think simple.
+ - Be bold and don’t worry about what people think. They don’t do it that often anyway.
+ - People will choose unhappiness over uncertainty.
+ - If you are insecure, guess what? The rest of the world is, too.
+ - Doing something unimportant well does not make it important,
+ - Lacking an external focus, the mind turns inward on itself and creates problems to solve, even if the problems are undefined or unimportant. If you find a focus, an ambitious goal that seems impossible and forces you to grow, these doubts disappear.
+ - Excitement is the more practical synonym for happiness, and it is precisely what you should strive to chase. It is the cure-all.
+ - What you do is infinitely more important than how you do it.
+ - Perfection is an impossible destination.
+ - Just because you are embarrassed to admit that you’re still living the consequences of bad decisions made 5, 10, 20 years ago shouldn’t stop you from making good decisions now. If you let pride stop you, you will hate life 5, 10, and 20 years from now for the same reasons.
+ - The decent method you follow is better than the perfect method you quit.
+ - Don’t suffer fools or you’ll become one.
+ - The best results I have had in my life; the most enjoyable times, have all come from asking the simple question: ‘What is the worst that could happen?’
+ - Luxury is feeling unrushed. It is designing a life that allows you to do what you want with high leverage, with many options, all while feeling unrushed.
+ - The opposite of love is indifference, and the opposite of happiness is boredom.
+ - Luxury, to me, is not owning a lot of stuff. Luxury, to me, is feeling unrushed.
+ - Doing less is not being lazy. Don’t give in to a culture that values personal sacrifice over personal productivity.
+ - People don’t want to be millionaires – they want to experience what they believe only millions can buy.
+ - The biggest misconception about work is that you need to spend the majority of your time doing it.
+ - The best way to counter-attack a hater is to make it blatantly obvious that their attack has had no impact on you.
+ - Doing the unrealistic is easier than doing the realistic.
+ - Information is useless if it is not applied to something important or if you will forget it before you have a chance to apply it.
+ - The best entrepreneurs I’ve ever met are all good communicators. It’s perhaps one of the very few unifying factors.
+ - There are two components that are fundamental to enjoy life and feel good about yourself: continual learning and service.
+ - Most people are fast to stop you before you get started but hesitate to get in the way if you’re moving.
+ - I’m not a big believer in long-term planning and far-off goals. In fact, I generally set 3-month and 6-month dreamlines. The variables change too much and in-the-future distance becomes an excuse for postponing action.
+ - Sometimes you need to go on a low-information diet.
+ - Poisonous people do not deserve your time. To think otherwise is masochistic.
+ - I’m prepared to do battle for a dream that is worth dreaming.
+ - As far as income goes, there are three currencies in the world; most people ignore two. The three currencies are time, income and mobility, in descending order of importance. Most people focus exclusively on income.
+ - Many a false step was made by standing still.
+ - You think you’re fatigued, therefore you can’t exercise. In fact, you choose not to move, therefore you feel fatigued.
+ - People are smarter than you think. Give them a chance to prove themselves.
+ - Just a few words on time management: forget all about it.
+ - Different is better when it is more effective or more fun.
+ - Learn to be difficult when it counts. In school as in life, having a reputation for being assertive will help you receive preferential treatment without having to beg or fight for it every time.
+ - You don’t have to travel, but I find extended travel to be a helpful tool for reexamining yourself and the constraints you’ve artificially placed on your life. It’s easy to believe everything has to be done one way if you’re always in one place around the same people.
+ - Don’t follow a model that doesn’t work. If the recipe sucks, it doesn’t matter how good a cook you are.
+ - Money is multiplied in practical value depending on the number of W’s you control in your life: what you do, when you do it, where you do it, and with whom you do it. I call this the freedom multiplier.
+ - Just because something has been a lot of work or consumed a lot of time doesn’t make it productive or worthwhile.
+ - Requiring a lot of time does not make a task important.
+ - Uncertainty and the prospect of failure can be very scary noises in the shadows. Most people will choose unhappiness over uncertainty.
+ - People who avoid all criticism fail. It’s destructive criticism we need to avoid, not criticism in all forms.
+ - Fun things happen when you earn dollars, live on pesos, and compensate in rupees.
+ - By working only when you are most effective, life is both more productive and more enjoyable. It’s the perfect example of having your cake and eating it, too.
+ - $1,000,000 in the bank isn’t the fantasy. The fantasy is the lifestyle of complete freedom it supposedly allows.
+ - The goal is not to simply eliminate the bad, which does nothing more than leave you with a vacuum, but to pursue and experience the best in the world.
+ - The bottom line is that you only have the rights you fight for.
+ - Dreamlining is so named because it applies timelines to what most would consider dreams.
+ - If only I had more money is the easiest way to postpone the intense self-examination and decision-making necessary to create a life of enjoyment – now and not later.
+ - Converting your own passions into a job is the fastest method for eliminating any passion you once had.
+ - Everything that works in sales has been done already. Just keep track of the crap that you buy, or the awesome stuff that you buy, and decide what was the trigger, and then just sell to people like you. It’s really that easy – and that’s what I do.
+ - Companies that start by redesigning the economics of an industry often finish by redesigning the whole industry-and owning it.
+ - There are certain things I will automate, but when it comes to quality control, I want to keep a very close eye.
+ - For the employee, the goal is to have full access to necessary information and as much independent decision-making ability as possible. For the entrepreneur, the goal is to grant as much information and independent decision-making ability to employees or contractors as possible.
+ - Changing the world doesn’t require much money. Again, think in terms of empowerment and not charity. How much were Gandhi’s teachers paid? How much did it cost to give Dr. Martin Luther King the books that catalyzed his mind and actions?
+ - Nothing can match the wonderment that comes from staring up into the star-filled canopy above and realizing that you are a part of that creation.
+ - I discourage passive skepticism, which is the armchair variety where people sit back and criticize without ever subjecting their theories or themselves to real field testing.
+ - I gauge success in years, not weeks. The weekend box-office approach to book launches is short sighted and encourages crappy books.
+
+82 quotes

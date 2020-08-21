@@ -1,0 +1,23 @@
+ - It’s a little dangerous to be a badass.
+ - Over the years, I’ve worried that my directness could come off as brusque or my criticisms heard in an outsize way, especially by male colleagues. I sometimes wondered whether expressing even my mildest reservation reminded someone of a chastising mother or complaining wife.
+ - You know, a dog can snap you out of any kind of bad mood that you’re in faster than you can think of.
+ - A general truth is to have a good sense of humor. Roll with the punches of life’s ups and downs. Laughing at yourself always helps.
+ - Women are damn resilient.
+ - In one’s relationship with dogs and with a newsroom, a generous amount of praise and encouragement goes much better than criticism.
+ - The printed newspaper is a powerful showcase for news, opinion and advertising.
+ - Nobody wants a unitary voice of authority any more.
+ - The Obama administration has had seven criminal leak investigations. That is more than twice the number of any previous administration in our history. It’s on a scale never seen before. This is the most secretive White House that, at least as a journalist, I have ever dealt with.
+ - I have an older sister who sounds, unfortunately, exactly like me, and we sound like our mother did.
+ - The whole issue of how women’s management styles are viewed is an incredibly interesting subject.
+ - If The Times said it, it was the absolute truth.
+ - I think the Huffington Post has been inventive and presents what it aggregates well.
+ - Having small children and being an investigative reporter would seem like a difficult mix, but it worked well for me. I was often working on my own enterprise stories, which were not as deadline sensitive.
+ - People often assume New York City is no place to keep a dog. This is certainly what my parents told me when I was growing up there. But I have found this not to be the case at all.
+ - As someone who has spent a lot of her career as an investigative reporter, I’ll confess that a frustration of mine has always been that so much investigative journalism involves a dissection of events in the past.
+ - The idea that women journalists bring a different taste in stories or sensibility isnt true.
+ - I like the immediacy of blogs and the democratizing effects of letting millions of voices bloom on the Web.
+ - I admit that I am hopelessly hooked on the printed newspaper. I love turning the pages and the serendipity of stumbling across a piece of irresistible information or a photograph that I wasnt necessarily intending to read.
+ - I think as an investigative reporter I had tough standards, but I don’t think of myself as a tough person.
+ - What’s next for me? I don’t know. So I’m in exactly the same boat as many of you.
+
+21 quotes

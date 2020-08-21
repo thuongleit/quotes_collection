@@ -1,0 +1,39 @@
+ - I live for myself and answer to nobody.
+ - Racing is life. Everything else is just waiting.
+ - Often the best way to relax is just to go back to work.
+ - When I believe in something, I fight like hell for it.
+ - I don’t want to talk about nonsense because it doesn’t help me.
+ - The world is as good as you are. You’ve got to learn to like yourself first.
+ - I believe in me. I’m a little screwed up, but I’m beautiful.
+ - Every time I start thinking the world is all bad, then I start seeing people out there having a good time on motorcycles. It makes me take another look.
+ - I hope you find what you’re looking for.
+ - Sometimes you have to bend with the breeze or you break.
+ - I worked hard, and if you work hard you get the goodies.
+ - Anything that doesn’t make sense, I don’t want to give too much of my brain to.
+ - The Navajos have a saying they live by: ‘A land where there is time enough and room enough.’ I want that, too.
+ - One of the things that make motorcycling so great is because it never fails to give you a feeling of freedom and adventure.
+ - When a horse learns to buy martinis, I’ll learn to like horses.
+ - Nobody trusts anyone, or why did they put tilt on a pinball machine...
+ - The camera movement should be like a cat jumping onto a table – with just enough amount of effort and that’s it. That’s enough.
+ - The person is being confrontational.
+ - I need to have a reason why I’m doing something. Otherwise I’m lost.
+ - Acting is like racing, you need the same concentration. You have to reach inside you and bring forth a lot of broken glass. That’s painful.
+ - There is no right or wrong angle for something. The idea of putting the camera in an unfamiliar position is simply to do with film language. Sometimes it is spectacular, sometimes it is ugly, sometimes it is uninteresting.
+ - When I walk out into the street or go to the toilet, I don’t think of myself as being black. Of course, other people think of me as black when I walk into a pub. Obviously being black is a part of me.
+ - I liked being in the Marines. They gave me discipline I could live with. By the time I got out, I was able to cope with things on a more realistic level.
+ - People try to contain things by putting them into categories. I don’t.
+ - I deal with certain things in my work because of who I am. I make work in order to make people think.
+ - If I hadn’t made it as an actor, I might have wound up a hood...
+ - Stardom equals freedom. It’s the only equation that matters.
+ - I always feel I’m an amateur. I don’t most of the time know what I’m doing.
+ - I think as an actor, you’re more like a dancer, and you have to use your body. I don’t understand all these questions about nudity. It’s a nonsense. He’s an actor, an artist, so get on with it.
+ - I love creating images, of course, because I’m an artist.
+ - I really don’t like to act. At the beginning, back in ’51, I had to force myself to stick with it. I was real uncomfortable, real uncomfortable.
+ - Stardom equals financial success and financial success equals security. I’ve spent too much of my life feeling insecure. I still have nightmares about being poor, of everything I own just vanishing away. Stardom means that can’t happen.
+ - I want people to do what they want to do because when they feel comfortable it seems to translate better on screen. It is when you put people in a straitjacket that it doesn’t seem to translate very well at all. The individuals I work with are usually people I know.
+ - I find it difficult to breathe when l’m in the space. There seems to be no oxygen. I want to put people into a situation where they’re sensitive to themselves watching the piece.
+ - The best thing about making films is the time spent making them. When I see works that I’ve made, I always think what a great time I had making them. The films remind me of that time.
+ - I’m not sure that acting is something for a grown man to be doing.
+ - As far as art and filmmaking is concerned, I don’t see there’s any separation; it’s just one continuous thing.
+
+37 quotes

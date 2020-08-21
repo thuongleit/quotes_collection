@@ -1,0 +1,32 @@
+ - Film students should stay as far away from film schools and film teachers as possible. The only school for the cinema is the cinema.
+ - I don’t film messages. I let the post office take care of those.
+ - English dialogues are always just what you need and nothing more – like something out of Hemingway. In Italian and in French, dialogues are always theatrical, literary. You can do more with it.
+ - I’m no longer interested in making political films. There’s something old-fashioned about them. Young people now don’t care for politics. It isn’t present in life as it used to be. And increasingly I like films which reflect present-day reality.
+ - If New York is the Big Apple, tonight Hollywood is the Big Nipple.
+ - I accept all interpretations of my films. The only reality is before the camera. Each film I make is kind of a return to poetry for me, or at least an attempt to create a poem.
+ - This is something that I dream about: to live films, to arrive at the point at which one can live for films, can think cinematographically, eat cinematographically, sleep cinematographically, as a poet, a painter, lives, eats, sleeps painting.
+ - A monoculture is not only Hollywood, but Americans trying to export democracy.
+ - As a loyal believer in the Auteur Theory I first felt editing was but the logical consequence of the way in which one shoots. But, what I learned is that it is actually another writing.
+ - A dolly move is a moral commitment.
+ - A name? Oh, Jesus Christ. Ah, God, I’ve been called by a million names all my life. I don’t want a name. I’m better off with a grunt or a groan for a name.
+ - If you mention any ideological thing about shooting Last Tango in Paris, I was thinking I was doing a political film.
+ - Having no children had been a kind of choice up to the moment when, from a choice, it became a sadness.
+ - I don’t see my movies. I think it’s healthier and safer to keep a bit of distance. I’m afraid to be disappointed.
+ - What happened in the late Fifties, early Sixties in French cinema was a fantastic revolution. I was in Italy, but completely in love with the nouvelle vague movement, and directors like Godard, Truffaut, Demy. ‘The Dreamers’ was a total homage to cinema and that love for it.
+ - You live day by day. You can’t build your life.
+ - Sometimes you are in sync with the times, sometimes you are in advance, sometimes you are late.
+ - I think that I used to love Hollywood movies. I remember great phases and moments. But, unfortunately, now is not the moment.
+ - After many, many years, I fell out of love with politics. It’s not something I like but it’s the truth.
+ - I like to be in a huis clos, as the French say – in one place. Its something that in general can create a bit of claustrophobia. But for me, claustrophobia becomes almost immediately claustrophilia. I love it!
+ - New York has always embraced me.
+ - I am in love with the idea of doing a movie in 3D. I think 3D would be great in a kind of realistic normal story without throwing objects to the camera, but using the 3D on the emotions in an intimate story.
+ - I was writing poems when I was young, you know, because my father was a poet, so it was absolutely normal to follow my father.
+ - Every film I have made has corresponded to a very special moment of my life. I like to think that if someone wanted to reconstruct the story of my life, they can just see my movies and know what I have been through.
+ - I haven’t made a movie for a while, but I’ve watched a lot. It’s my major waste of time. I like to work, but also to be waiting for work.
+ - Sometimes I think that I understand my movies after I make them. Really. I go very often off of instinct.
+ - There’s no more film; now everything’s digital. I welcome this. It’s fantastic for me to have a new chance.
+ - You know, in ten years you’re gonna be playing soccer with your tits, what do you think of that?
+ - I like that 3D is based on the fact that you look with two eyes, so two cameras imitate that.
+ - I am still against any kind of censorship. It’s a subject in my life that has been very important.
+
+30 quotes

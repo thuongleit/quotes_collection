@@ -1,0 +1,207 @@
+ - I write to discover what I know.
+ - I write because I don’t know what I think until I read what I say.
+ - You shall know the truth and the truth shall make you odd.
+ - All human nature vigorously resists grace because grace changes us and the change is painful.
+ - The truth does not change according to our ability to stomach it.
+ - If you don’t hunt it down and kill it, it will hunt you down and kill you.
+ - Accepting oneself does not preclude an attempt to become better.
+ - Where you come from is gone, where you thought you were going to never was there, and where you are is no good unless you can get away from it.
+ - Nothing needs to happen to a writer’s life after they are 20. By then they’ve experienced more than enough to last their creative life.
+ - A God you understood would be less than yourself.
+ - Your criticism sounds to me as if you have read too many critical books and are too smart in an artificial, destructive, and very limited way.
+ - I think it is safe to say that while the South is hardly Christ-centered, it is most certainly Christ-haunted.
+ - Faith is what someone knows to be true, whether they believe it or not.
+ - You will have found Christ when you are concerned with other people’s sufferings and not your own.
+ - In yourself right now is all the place you’ve got.
+ - All my stories are about the action of grace on a character who is not very willing to support it, but most people think of these stories as hard, hopeless and brutal.
+ - It’s easier to bleed than sweat, Mr. Motes.
+ - Right now the whole world seems to be going through a dark night of the soul.
+ - There may never be anything new to say, but there is always a new way to say it, and since, in art, the way of saying a thing becomes a part of what is said, every work of art is unique and requires fresh attention.
+ - In the first place you can be so absolutely honest and so absolutely wrong at the same time that I think it is better to be a combination of cautious and polite.
+ - Everywhere I go I’m asked if I think the university stifles writers. My opinion is that they don’t stifle enough of them. There’s many a best-seller that could have been prevented by a good teacher.
+ - She could never be a saint, but she thought she could be a martyr if they killed her quick.
+ - The writer operates at a peculiar crossroads where time and place and eternity somehow meet. His problem is to find that location.
+ - I am a writer because writing is the thing I do best.
+ - Not-writing is a good deal worse than writing.
+ - Fiction is about everything human and we are made out of dust, and if you scorn getting yourself dusty, then you shouldn’t try to write fiction. It’s not a grand enough job for you.
+ - I don’t deserve any credit for turning the other cheek as my tongue is always in it.
+ - To the hard of hearing you shout, and for the almost blind you draw large and startling figures.
+ - Even a child with normal feet was in love with the world after he had got a new pair of shoes.
+ - If there were no hell, we would be like the animals. No hell, no dignity.
+ - She was a good Christian woman with a large respect for religion, though she did not, of course, believe any of it was true.
+ - Your beliefs will be the light by which you see, but they will not be what you see and they will not be a substitute for seeing.
+ - Total non-retention has kept my education from being a burden to me.
+ - The beginning of human knowledge is through the senses, and the fiction writer begins where the human perception begins. He appeals through the senses, and you cannot appeal through the senses with abstractions.
+ - Kindness and patience were always called for...
+ - To expect too much is to have a sentimental view of life and this is a softness that ends in bitterness.
+ - It is the business of the artist to uncover the strangeness of truth.
+ - When you can state the theme of a story, when you can separate it from the story itself, then you can be sure the story is not a very good one.
+ - A story is a way to say something that can’t be said any other way, and it takes every word in the story to say what the meaning is.
+ - Woman! Do you ever look inside? Do you ever look inside and see what you are not? God!
+ - I preach there are all kinds of truth, your truth and somebody else’s. But behind all of them there is only one truth and that is that there’s no truth.
+ - You have to quit confusing a madness with a mission.
+ - The fiction writer has to engage in a continual examination of conscience. He has to be aware of the freak in himself.
+ - I think there is no suffering greater than what is caused by the doubts of those who want to believe.
+ - Art never responds to the wish to make it democratic; it is not for everybody; it is only for those who are willing to undergo the effort needed to understand it.
+ - Art transcends its limitations only by staying within them.
+ - I suppose half of writing is overcoming the revulsion you feel when you sit down to it.
+ - I have what passes for an education in this day and time, but I am not deceived by it.
+ - The grandmother didn’t want to go to Florida. She wanted to visit some of her connections in east Tennessee and she was seizing at every chance to change Bailey’s mind. Bailey was the son she liver with, her only boy.
+ - If we forget our past, we won’t remember our future and it will be as well because we won’t have one.
+ - I love a lot of people, understand none of them...
+ - Writing is like giving birth to a piano sideways. Anyone who perseveres is either talented or nuts.
+ - I am a Catholic not like someone else would be a Baptist or a Methodist, but like someone else would be an atheist.
+ - I use the grotesque the way I do because people are deaf and dumb and need help to see and hear.
+ - Only if we are secure in our beliefs can we see the comical side of the universe.
+ - He loved her because it was his nature to do so, but there were times when he could not endure her love for him. There were times when it became nothing but pure idiot mystery...
+ - Dear God, I don’t want to have invented my faith to satisfy my weakness. I don’t want to have created God to my own image as they’re so fond of saying. Please give me the necessary grace, oh Lord, and please don’t let it be as hard to get as Kafka made it.
+ - The only way to the truth is through blasphemy.
+ - If you’re a Catholic you believe what the Church teaches and the climate makes no difference.
+ - Children know by instinct that hell is an absence of love, and they can pick out theirs without missing.
+ - Nobody with a good car needs to be justified.
+ - You don’t serve God by saying: the Church is ineffective, I’ll have none of it. Your pain at its lack of effectiveness is a sign of your nearness to God. We help overcome this lack of effectiveness simply by suffering on account of it.
+ - The Southerner is usually tolerant of those weaknesses that proceed from innocence.
+ - There was already a deep black wordless conviction in him that the way to avoid Jesus was to avoid sin.
+ - You can’t clobber any reader while he’s looking. You divert his attention, then you clobber him and he never knows what hit him.
+ - When using dialect, use it lightly. A dialect word here and there is enough. All you want to do is suggest. Never let it call attention to itself.
+ - The basis of art is truth, both in matter and in mode.
+ - A story has to have muscle as well as meaning, and the meaning has to be in the muscle.
+ - It is popular to believe that in order to see clearly one must believe nothing. This may work well enough if you are observing cells under a microscope. It will not work if you are writing fiction. For the fiction writer, to believe nothing is to see nothing.
+ - Whenever I’m asked why Southern writers particularly have a penchant for writing about freaks, I say it is because we are still able to recognize one.
+ - Our age not only does not have a very sharp eye for the almost imperceptible intrusions of grace, it no longer has much feeling for the nature of the violences which precede and follow them.
+ - When there is a tendency to compartmentalize the spiritual and make it resident in a certain type of life only, the spiritual is apt gradually to be lost.
+ - As for the blood and the head business, the blood and the head work together and what is not first in the blood can sometimes reach it by going first through the head and what is wrong in the blood can sometimes be tempered by the head.
+ - The writer should never be ashamed of staring. There is nothing that does not require his attention.
+ - At its best our age is an age of searchers and discoverers, and at its worst, an age that has domesticated despair and learned to live with it happily.
+ - Policy and politics generally go contrary to principle.
+ - Either practice restraint or be prepared for crowding.
+ - The fact is that anybody who has survived his childhood has enough information about life to last him the rest of his days. If you can’t make something out of a little experience, you probably won’t be able to make it out of a lot.
+ - The truth is not distorted here, but rather a distortion is used to get at truth.
+ - I am interested in making up a good case for distortion, as I am coming to believe it is the only way to make people see.
+ - What people don’t realize is how much religion costs. They think faith is a big electric blanket, when of course it is the cross.
+ - Good and evil appear to be joined in every culture at the spine.
+ - Anything that comes out of the South is going to be called grotesque by the northern reader, unless it is grotesque, in which case it is going to be called realistic.
+ - I come from a family where the only emotion respectable to show is irritation. In some this tendency produces hives, in others literature, in me both.
+ - Knowing who you are is good for one generation only. You haven’t the foggiest idea where you stand now or who you are.
+ - Writing a novel is a terrible experience, during which the hair often falls out and the teeth decay. I’m always irritated by people who imply that writing fiction is an escape from reality. It is a plunge into reality and it’s very shocking to the system.
+ - I am no disbeliever in spiritual purpose and no vague believer. I see from the standpoint of Christian orthodoxy. This means that for me the meaning of life is centered in our Redemption by Christ and what I see in the world I see in relation to that.
+ - One old lady who wants her head lifted wouldn’t be so bad, but you multiply her two hundred and fifty thousand times and what you get is a book club.
+ - Far be it for me to have worked it out in any abstract way. I don’t know why the bull and Mrs. May have to die, or why Mr. Fortune and Mary Fortune: I just feel in my bones that that is the way it has to be. If I had the abstraction first I don’t suppose I would write the story.
+ - It is better to be young in your failures than old in your successes.
+ - She looked at nice young men as if she could smell their stupidity.
+ - So many people can now write competent stories that the short story is in danger of dying of competence.
+ - The old woman was the kind who would not cut down a large old tree because it was a large old tree.
+ - He and the girl had almost nothing to say to each other. One thing he did say was, ‘I ain’t got any tattoo on my back.’ ‘What you got on it?’ the girl said. ‘My shirt,’ Parker said. ‘Haw.’ ‘Haw, haw,’ the girl said politely.
+ - I feel that whatever virtues the novel may have are very much connected with the limitations you mention. I am not writing a conventional novel, and I think that the quality of the novel I write will derive precisely from the peculiarity or aloneness, if you will, of the experience I write from.
+ - I’m a member and preacher to that church where the blind don’t see and the lame don’t walk and what’s dead stays that way.
+ - People without hope not only don’t write novels, but what is more to the point, they don’t read them.
+ - Tennessee’s a hillbilly dumping ground, and Georgia’s a lousy state too.
+ - Success means being heard and don’t stand there and tell me that you are indifferent to being heard. You may write for the joy of it, but the act of writing is not complete in itself. It has to end in its audience.
+ - Being a Georgia author is a rather specious dignity, on the same order as, for the pig, being a Talmadge ham.
+ - There is no excuse for anyone to write fiction for public consumption unless he has been called to do so by the presence of a gift. It is the nature of fiction not to be good for much unless it is good in itself.
+ - There won’t be any biographies of me because, for only one reason, lives spent between the house and the chicken yard do not make exciting copy.
+ - Unadaptability is often a virtue.
+ - I spend three hours a day writing and the rest of my day getting over it.
+ - The Catholic writer, in so far as he has the mind of the Church, will feel life from the standpoint of the central Christian mystery; that it has, for all its horror, been found by God to be worth dying for.
+ - The less self-conscious you are about what you are about, the better in a way, that is to say technically. You have to get it in your blood, not in the head.
+ - Ours is the first age in history which has asked the child what he would tolerate learning.
+ - The novelist is required to open his eyes on the world around him and look. If what he sees is not highly edifying, he is still required to look. Then he is required to reproduce, with words, what he sees.
+ - It is hard to make your adversaries real people unless you recognize yourself in them – in which case, if you don’t watch out, they cease to be adversaries.
+ - I have also led you astray by talking of technique as if it were something that could be separated from the rest of the story. Technique can’t operate at all, of course, except on believable material.
+ - Those who have no absolute values cannot let the relative remain merely relative; they are always raising it to the level of the absolute.
+ - Anyone who survives a southern childhood has enough material to last a lifetime.
+ - Christianity is a strangely cheery religion.
+ - No art is sunk in the self, but rather, in art the self becomes self-forgetful in order to meet the demands of the thing seen and the thing being made.
+ - She had observed that the more education they got, the less they could do. Their father had gone to a one-room schoolhouse through the eighth grade and he could do anything.
+ - Writing a novel is a terrible experience, during which the hair often falls out and the teeth decay.
+ - Later he saw Jesus move from tree to tree in the back of his mind, a wild ragged figure motioning him to turn around and come off into the dark where he might be walking on the water and not know it and then suddenly know it and drown.
+ - Faith comes and goes. It rises and falls like the tides of an invisible ocean. If it is presumptuous to think that faith will stay with you forever, it is just as presumptuous to think that unbelief will.
+ - Satisfy your demand for reason but always remember that charity is beyond reason, and God can be known through charity.
+ - The way to despair is to refuse to have any kind of experience.
+ - People without hope not only don’t write novels, but what is more to the point, they don’t read them. They don’t take long looks at anything, because they lack the courage. The way to despair is to refuse to have any kind of experience, and the novel, of course, is a way to have experience.
+ - The idea of being a writer attracts a good many shiftless people, those who are merely burdened with poetic feelings or afflicted with sensibility.
+ - I can, with one eye squinted, take it all as a blessing.
+ - I never understand how writers can succumb to vanity – what you work the hardest on is usually the worst.
+ - Everything that gave her pleasure was small and depressed him.
+ - Does one’s integrity ever lie in what he is not able to do? I think that usually it does, for free will does not mean one will, but many wills conflicting in one man. Freedom cannot be conceived simply. It is a mystery and one which a novel, even a comic novel, can only be asked to deepen.
+ - Doctors always think anybody doing something they aren’t is a quack; also they think all patients are idiots.
+ - There’s many a bestseller that could have been prevented by a good teacher.
+ - When she told a story, she rolled her eyes and waved her head and was very dramatic.
+ - Manners are of such great consequence to the novelist that any kind will do. Bad manners are better than no manners at all, and because we are losing our customary manners, we are probably overly conscious of them; this seems to be a condition that produces writers.
+ - I am not afraid that the book will be controversial, I’m afraid it will not be controversial.
+ - It is always difficult to get across to people who are not professional writers that a talent to write does not mean a talent to write anything at all.
+ - The meaning of the story is the story.
+ - Harcourt sent my book to Evelyn Waugh and his comment was: “If this is really the unaided work of a young lady, it is a remarkable product.” My mother was vastly insulted. She put the emphasis on if and lady. Does he suppose you’re not a lady? she says.
+ - In my travels I am often asked if college stifles young writers. In my opinion, it doesn’t stifle them enough.
+ - Her name was Maude and she drank whisky all day from a fruit jar under the counter.
+ - Purity strikes me as the most mysterious of the virtues and the more I think about it the less I know about it.
+ - Every morning between 9 and 12 I go to my room and sit before a piece of paper. Many times, I just sit for three hours with no ideas coming to me. But I know one thing. If an idea does come between 9 and 12 I am there ready for it.
+ - I am very handy with my advice and then when anybody appears to be following it, I get frantic.
+ - The life you save may very well be your own.
+ - The basic experience of everyone is the experience of human limitation.
+ - Many of my ardent admirers would be roundly shocked and disturbed if they realized that everything I believe is thoroughly moral, thoroughly Catholic, and that it is these beliefs that give my work its chief characteristics.
+ - My own approach to literary problems is very like the one Dr. Johnson’s blind housekeeper used when she poured tea-she put her finger inside the cup.
+ - The mind serves best when it’s anchored in the Word of God. There is no danger then of becoming an intellectual without integrity...
+ - When I was six I had a chicken that walked backward and was in the Pathe News. I was in it too with the chicken. I was just there to assist the chicken but it was the high point in my life. Everything since has been anticlimax.
+ - It seems that the fiction writer has a revolting attachment to the poor, for even when he writes about the rich, he is more concerned with what they lack than with what they have.
+ - Most of us come to the church by a means the church does not allow.
+ - It’s always wrong of course to say that you can’t do this or you can’t do that in fiction. You can do anything you can get away with, but nobody has ever gotten away with much.
+ - Technique in the minds of many is something rigid, something like a formula that you impose on the material; but in the best stories it is something organic, something that grows out of the material, and this being the case, it is different for every story of any account that has ever been written.
+ - Writing is a good example of self-abandonment. I never completely forget myself except when I am writing and I am never more completely myself than when I am writing.
+ - Poorly written novels – no matter how pious and edifying the behavior of the characters – are not good in themselves and are therefore not really edifying.
+ - The type of mind that can understand good fiction is not necessarily the educated mind, but it is at all times the kind of mind that is willing to have its sense of mystery deepened by contact with reality, and its sense of reality deepened by contact with mystery.
+ - The fiction of Ayn Rand is as low as you can get re fiction. I hope you picked it up off the floor of the subway and threw it in the nearest garbage pail. She makes Mickey Spillane look like Dostoevsky.
+ - I’m going to preach there was no Fall because there was nothing to fall from, and no Redemption because there was no Fall, and no Judgment because there wasn’t the first two. Nothing matters but that Jesus was a liar.
+ - I was a very ancient twelve; my views at that age would have done credit to a Civil War veteran. I am much younger now than I was at twelve or anyway, less burdened. The weight of the centuries lies on children, I’m sure of it.
+ - Remember that you don’t write a story because you have an idea but because you have a believable character.
+ - I do not like the raw sound of the human voice in unison unless it is under the discipline of music.
+ - The dead don’t bother with particulars.
+ - The reviewer always has hold of the wrong horror.
+ - It was not right to believe anything you couldn’t see or hold in your hands or test with your teeth.
+ - There is something in us, as storytellers and as listeners to stories, that demands the redemptive act, that demands that what falls at least be offered the chance to be restored.
+ - I have found, in short, from reading my own writing, that my subject in fiction is the action of grace in territory largely held by the devil.
+ - Faith has to take in all the other possibilities it can.
+ - The trees were full of silver-white sunlight and the meanest of them sparkled.
+ - I feel that discussing story-writing in terms of plot, character, and theme is like trying to describe the expression on a face by saying where the eyes, nose, and mouth are.
+ - Well, if it’s a symbol, to hell with it.
+ - She felt that she would have to be much more than just a doctor or an engineer. She would have to be a saint...
+ - I distrust pious phrases, especially when they issue from my mouth. I try militantly never to be affected by the pious language of the faithful but it is always coming out when you least expect it. In contrast to the pious language of the faithful, the liturgy is beautifully flat.
+ - We are not judged by what we are basically. We are judged by how hard we use what we have been given. Success means nothing to the Lord.
+ - I know that the writer does call up the general and maybe the essential through the particular, but this general and essential is still deeply embedded in mystery. It is not answerable to any of our formulas.
+ - I find that most people know what a story is until they sit down to write one. Then they find themselves writing a sketch with an essay woven through it, or an essay with a sketch woven through it, or an editorial with a character in it, or a case history with a moral, or some other mongrel thing.
+ - Elizabeth Hardwick told me once that all her first drafts sounded as if a chicken had written them. So do mine for the most part.
+ - There are some of us who have to pay for our faith every step of the way and who have to work out dramatically what it would be like without it and if being without it would be ultimately possible or not.
+ - Mrs. Hopewell had no bad qualities of her own but she was able to use other people’s in such a constructive way that she never felt the lack.
+ - Southern culture has fostered a type of imagination that has been influenced by Christianity of a not too unorthodox kind and by a strong devotion to the Bible, which has kept our minds attached to the concrete and the living symbol.
+ - In most good stories, it is the character’s personality that creates the action of the story. If you start with real personality, a real character, then something is bound to happen.
+ - There is a question whether faith can or is supposed to be emotionally satisfying. I must say that the thought of everyone lolling about in an emotionally satisfying faith is repugnant to me. I believe that we are ultimately directed Godward but that this journey is often impeded by emotion.
+ - You ought to be able to discover something from your stories. If you don’t, probably nobody else will.
+ - I find that most people know what a story is until they sit down to write one.
+ - I will rejoice the day when they say: This is right whether we all rot on top of each other or not, dear children, as we certainly may. Either practice restraint or be prepared for crowding...
+ - Dogma is the guardian of mystery. The doctrines are spiritually significant in ways that we cannot fathom.
+ - He had the feeling that everything he saw was a broken-off piece of some giant blank thing that he had forgotten had happened to him.
+ - I have enough energy to write with and as that is all I have any business doing anyhow, I can with one eye squinted take it all as a blessing.
+ - I write any sort of rubbish which will cover the main outlines of the story, then I can begin to see it.
+ - The artist uses his reason to discover an answering reason in everything he sees.
+ - I doubt if the texture of Southern life is any more grotesque than that of the rest of the nation, but it does seem evident that the Southern writer is particularly adept at recognizing the grotesque; and to recognize the grotesque, you have to have some notion of what is not grotesque and why.
+ - You get a real person down there and his talking will take care of itself.
+ - When a book leaves your hands, it belongs to God. He may use it to save a few souls or to try a few others, but I think that for the writer to worry is to take over God’s business.
+ - A working knowledge of the devil can be very well had from resisting him.
+ - When in Rome, do as you done in Milledgeville.
+ - I am much younger now than I was at twelve or anyway, less burdened.
+ - It is a good deal easier for most people to state an abstract idea than to describe and thus re-create some object they actually see.
+ - I don’t think you should write something as long as a novel around anything that is not of the gravest concern to you and everybody else and for me this is always the conflict between an attraction for the Holy and the disbelief in it that we breathe in with the air of the times.
+ - The Bible was the only book he read. He didn’t read it often but when he did he wore his mother’s glasses. They tired his eyes so that after a short time he was always obliged to stop.
+ - Let me make no bones about it: I write from the standpoint of Christian orthodoxy. Nothing is more repulsive to me than the idea of myself setting up a little universe of my own choosing and propounding a little immoralistic message. I write with a solid belief in all the Christian dogmas.
+ - It began to drizzle rain and he turned on the windshield wipers; they made a great clatter like two idiots clapping in church.
+ - We are now living in an age which doubts both fact and value. It is the life of this age that we wish to see and judge.
+ - If there is no possibility for change in a character, we have no interest in him.
+ - A gift of any kind is a considerable responsibility. It is a mystery in itself, something gratuitous and wholly undeserved, something whose real uses will probably always be hidden from us.
+ - Conviction without experience makes for harshness.
+ - If you do the same thing every day at the same time for the same length of time, you’ll save yourself from many a sink. Routine is a condition of survival.
+ - The only way, I think, to learn to write short stories is to write them, and then try to discover what you have done.
+ - When you leave a man alone with his Bible and the Holy Ghost inspires him, he’s going to be a Catholic one way or another, even though he knows nothing about the visible church. His kind of Christianity may not be socially desirable, but will be real in the sight of God.
+ - Dogma can in no way limit a limitless God.
+ - The writer can choose what he writes about but he cannot choose what he is able to make live.
+
+205 quotes

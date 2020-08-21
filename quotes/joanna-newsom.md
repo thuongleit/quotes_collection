@@ -1,0 +1,49 @@
+ - I can bear a lot but not that pall.
+ - And a thimble’s worth of milky moon Can touch hearts larger than a thimble.
+ - It broke my heart when I learned the moon had been passing the sun’s light off as its own.
+ - I don’t think I’m abnormal and I think that lets people down.
+ - What a woman does is open doors. And it is not a question of locking or unlocking.
+ - We are blessed and sustained by what is not said.
+ - You should listen to a lot of different music.
+ - I have a recording that I did of instrumental songs.
+ - I have a voice that’s obviously untrained – and I think untrainable – so I kind of secreted it away for a long time. Actually, I would write songs with lyrics when I was younger, but I would just sing in my head.
+ - I have writing songs on my own for about six years.
+ - We deserve to know light. And grow evermore lighter and lighter.
+ - There’s something fundamental to the harp that has retained its appeal my whole life. It’s an instrument I am just in love with.
+ - I never thought people would be mortally offended by the sounds I was making.
+ - I wasn’t interested in writing music that wasn’t beautiful for me to listen to.
+ - I want to make music that somehow connects to the things that I love in America music.
+ - Never get so attached to a poem that you forget truth that lacks lyricism.
+ - I’m not a wanderer, which is funny because I’m on tour half the time. I’m a home, hearth and family kind of person.
+ - In high school, we studied a lot of poetical forms. I was really interested in the math that was involved and the strange live break ups. That gave me a great amount of respect for a rhymed stanza.
+ - If I ever met Dolly Parton for sure, I would just not be able to say anything. I love her.
+ - I definitely don’t subscribe to the theory that more instruments, or more vocal tracks, harmony, or double tracking the voice, is a good thing. People do their early albums very stripped down, then each album becomes bloated.
+ - I don’t look at people’s expressions, because I still get nervous when I play, especially when I first put the harp up there. I just try to tune – it takes me a half-hour to tune, and I get nervous if I look at anybody when I do it.
+ - I can’t play my songs on the smaller harp. I have a Celtic harp. I can’t do the key changes.
+ - I am consciously trying not to make it sound Celtic or African.
+ - I give away CDs at shows if someone wants a CD but doesn’t have any money. I wouldn’t want to do that forever.
+ - I am always trying to write.
+ - I didn’t really know a lot of the history when I was younger. I didn’t realize that the harp is coded in such a specific way in musical circles. It’s kind of this society instrument because of its history as a young woman’s parlor instrument.
+ - And all that we built, and all that we breathed And all that we spilled or pulled up like weeds Is piled up in back and it burns irrevocably And we spoke up in turns ’til the silence crept over me.
+ - I’ve been unaware of how people react to the instrument. People have ideas of what a harp is supposed to sound like, and a lot of them are negative ideas.
+ - The very first Walnut Whales recording was recorded just a few weeks after I had started singing, out of the blue, started singing. And the voice, you can hear how uncomfortable I am with it, and how terrified I am with it.
+ - I would happy for someone to download my music.
+ - I didn’t sing for years and years, but I started playing harp when I was maybe 9 or 10. I had actually wanted to play for years leading up to that, but no teacher in our little town would take me on as a student, because I was too young.
+ - I am producing sounds that people are not used to hearing from the harp.
+ - People in San Francisco and the East Bay have shown interest, done interviews, and have come to shows. I guess that the news travels fast out of this island that we are on.
+ - People are often afraid for me. They think that I am going to break. I can make it through a set.
+ - I wanted to write songs which I think is a different thing. I wanted to write music that is informed by folk music. The chord progressions are obvious references.
+ - I started playing harp about fourteen years ago.
+ - I did spend a year in high school being obsessed with Fleetwood Mac.
+ - I have a deep rooted folk sensibility that I can’t get away from completely.
+ - I played piano for about two years when I was a kid. I didn’t play long enough to be really great.
+ - I can understand someone not liking the voice or the songs.
+ - Around eighth grade I decided I wanted to be a composer and that’s what I went to college for. Just a few years back, I switched out of composition and into creative writing so I could work with words.
+ - Lyrics are very different. There is a clear line between that and a poem. Something that has been a source of great excitement and delight for me is this idea that I get to rhyme.
+ - I recorded harp first or singing first. I recorded it all together. Part of the reason is that I don’t know how to play the songs without also singing. I forget how they progress. I don’t think that any of them are verse, chorus, verse, and so on. They are not simple.
+ - The so-called positive press has in some ways been more difficult to swallow than the negative.
+ - I am not doing something that it is experimental music in relation to classical music.
+ - The way that words fit together is always interesting to me. I love words.
+ - There are some mornings when the sky looks like a road.
+
+47 quotes

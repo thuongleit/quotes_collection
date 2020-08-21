@@ -1,0 +1,50 @@
+ - If you don’t see the book you want on the shelves, write it.
+ - I don’t think children’s inner feelings have changed. They still want a mother and father in the very same house; they want places to play.
+ - I didn’t start out writing to give children hope, but I’m glad some of them found it.
+ - All knowledge is valuable to a librarian.
+ - I wanted to be a ballerina. I changed my mind.
+ - I don’t necessarily start with the beginning of the book. I just start with the part of the story that’s most vivid in my imagination and work forward and backward from there.
+ - My favorite books are a constantly changing list, but one favorite has remained constant: the dictionary. Is the word I want to use spelled practice or practise? The dictionary knows. The dictionary also slows down my writing because it is such interesting reading that I am distracted.
+ - She was not a slowpoke grownup. She was a girl who could not wait. Life was so interesting she had to find out what happened next.
+ - Children should learn that reading is pleasure, not just something that teachers make you do in school.
+ - Neither the mouse nor the boy was the least bit surprised that each could understand the other. Two creatures who shared a love for motorcycles naturally spoke the same language.
+ - Otis was inspired by a boy who sat across the aisle from me in sixth grade. He was a lively person. My best friend appears in assorted books in various disguises.
+ - I don’t ever go on the Internet. I don’t even know how it works.
+ - She means well, but she always manages to do the wrong thing. She has a real talent for it.
+ - If she can’t spell, why is she a librarian? Librarians should know how to spell.
+ - With twins, reading aloud to them was the only chance I could get to sit down. I read them picture books until they were reading on their own.
+ - If we finished our work, the teacher would say, ‘Now don’t read ahead.’ But sometimes I hid the book I was reading behind my geography book and did read ahead. You can hide a lot behind a geography book.
+ - I had a very wise mother. She always kept books that were my grade level in our house.
+ - I had a bad time in school in the first grade. Because I had been a rather lonely child on a farm, but I was free and wild and to be shut up in a classroom – there were 40 children on those days in the classroom, and it was quite a shock.
+ - One rainy Sunday when I was in the third grade, I picked up a book to look at the pictures and discovered that even though I did not want to, I was reading. I have been a reader ever since.
+ - I have lovely memories of Los Angeles in the 1930s. I came down to live with my mother’s cousin and they invited me to come and go to junior college for a year.
+ - Today I discovered two kinds of people who go to high school: those who wear new clothes to show off on the first day, and those who wear their oldest clothes to show they think school is unimportant.
+ - In my grammar school years back in the 1920s I used my ten-cents-a-week allowance for Saturday matinees of Douglas Fairbanks movies. All that swashbuckling and leaping about in the midst of the sails of ships!
+ - Problem solving, and I don’t mean algebra, seems to be my life’s work. Maybe it’s everyone’s life’s work.
+ - I was a very observant child. The boys in my books are based on boys in my neighborhood growing up.
+ - I was a great reader of fairy tales. I tried to read the entire fairy tale section of the library.
+ - I hope children will be happy with the books I’ve written, and go on to be readers all of their lives.
+ - We didn’t have television in those days, and many people didn’t even have radios. My mother would read aloud to my father and me in the evening.
+ - The key to writing successful YA is to keep the adults out of the story as much as possible.
+ - I write in longhand on yellow legal pads.
+ - I enjoy writing for third and fourth graders most of all.
+ - I feel sometimes that in children’s books there are more and more grim problems, but I don’t know that I want to burden third- and fourth-graders with them.
+ - My mother would read aloud to my father and me in the evening. She read mainly travel books.
+ - Nothing in the whole world felt as good as being able to make something from a sudden idea.
+ - When I was in the first grade I was afraid of the teacher and had a miserable time in the reading circle, a difficulty that was overcome by the loving patience of my second grade teacher. Even though I could read, I refused to do so.
+ - The humiliation that Jane had felt turned to something else – grief perhaps, or regret. Regret that she had not known how to act with a boy, regret that she had not been wiser.
+ - I read my books aloud before they were published.
+ - I grew up before there were strict leash laws.
+ - I think the best teachers had a real interest in the subject they were teaching and a love for children.
+ - I just wrote about childhood as I had known it.
+ - Didn’t the people who made those license plates care about little girls named Ramona?
+ - I was an only child; I didn’t have a sister, or sisters.
+ - Quite often somebody will say, ‘What year do your books take place?’ and the only answer I can give is, in childhood.
+ - As a child, I disliked books in which children learned to be ‘better’ children.
+ - People are usually surprised to hear this, but I don’t really read children’s books.
+ - Writers are good at plucking out what they need here and there.
+ - What interests me is what children go through while growing up.
+ - He was dressed as if everything he wore had come from different stores or from a rummage sale, except that the crease in his trousers was sharp and his shoes were shined.
+ - Children want to do what grownups do.
+
+48 quotes

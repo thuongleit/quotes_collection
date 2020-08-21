@@ -1,0 +1,71 @@
+ - I love the silent hour of night, For blissful dreams may then arise, Revealing to my charmed sight What may not bless my waking eyes.
+ - Reading is my favourite occupation, when I have leisure for it and books to read.
+ - There are great books in this world and great worlds in books.
+ - But, God knows best, I concluded.
+ - Farewell to Thee! But not farewell To all my fondest thoughts of Thee; Within my heart they still shall dwell And they shall cheer and comfort me.
+ - Keep guard over your eyes and ears as the inlets of your heart, and over your lips as the outlets, lest they betray you in a moment of unwariness.
+ - All our talents increase in the using, and every faculty, both good and bad, strengthens by exercise.
+ - No generous mind delights to oppress the weak, but rather to cherish and protect.
+ - Oh, I am very weary, Though tears no longer flow; My eyes are tired of weeping, My heart is sick of woe.
+ - My soul is awakened, my spirit is soaring and carried aloft on the wings of the breeze.
+ - No one can be happy in eternal solitude.
+ - I cannot love a man who cannot protect me.
+ - The ties that bind us to life are tougher than you imagine, or than any one can who has not felt how roughly they may be pulled without breaking.
+ - But smiles and tears are so alike with me, they are neither of them confined to any particular feelings: I often cry when I am happy, and smile when I am sad.
+ - My heart is too thoroughly dried to be broken in a hurry, and I mean to live as long as I can.
+ - God will judge us by our own thoughts and deeds, not by what others say about us.
+ - To wheedle and coax is safer than to command.
+ - There is such a thing as looking through a person’s eyes into the heart, and learning more of the height, and breadth, and depth of another’s soul in one hour than it might take you a lifetime to discover, if he or she were not disposed to reveal it, or if you had not the sense to understand it.
+ - It is foolish to wish for beauty. Sensible people never either desire it for themselves or care about it in others. If the mind be but well cultivated, and the heart well disposed, no one ever cares for the exterior.
+ - Keep both heart and hand in your own possession, till you see good reason to part with them.
+ - Because the road is rough and long, Should we despise the skylark’s song?
+ - You cannot expect stone to be as pliable as clay.
+ - Increase of love brings increase of happiness, when it is mutual, and pure as that will be.
+ - I had been seasoned by adversity, and tutored by experience, and I longed to redeem my lost honour in the eyes of those whose opinion was more than that of all the world to me.
+ - I wished to tell the truth, for truth always conveys its own moral to those who are able to receive it.
+ - You might as well sell yourself to slavery at once, as marry man you dislike.
+ - I do believe a young lady can’t be too careful who she marries.
+ - How odd it is that we so often weep for each other’s distresses, when we shed not a tear for our own!
+ - Life and hope must cease together.
+ - If we can only speak to slander our betters, let us hold our tongues.
+ - There is perfect love in heaven!
+ - Thank heaven, I am free and safe at last!
+ - There is always a but in this imperfect world.
+ - Chess-players are so unsociable, they are no company for any but themselves.
+ - It is painful to doubt the sincerity of those we love.
+ - She left me, offended at my want of sympathy, and thinking, no doubt, that I envied her. I did not – at least, I firmly believed I did not.
+ - My cup of sweets is not unmingled: it is dashed with a bitterness that I cannot hide from myself, disguise it as I will.
+ - Adieu! but let me cherish, still, The hope with which I cannot part. Contempt may wound, and coldness chill, But still it lingers in my heart. And who can tell but Heaven, at last, May answer all my thousand prayers, And bid the future pay the past With joy for anguish, smiles for tears?
+ - It is better to arm and strengthen your hero, than to disarm and enfeeble your foe.
+ - And then, the unspeakable purity – and freshness of the air! There was just enough heat to enhance the value of the breeze, and just enough wind to keep the whole sea in motion, to make the waves come bounding to the shore, foaming and sparkling, as if wild with glee.
+ - Intimate acquaintance must precede real friendship.
+ - What the world stigmatizes as romantic is often more nearly allied to the truth than is commonly supposed.
+ - All true histories contain instruction; though, in some, the treasure may be hard to find, and when found, so trivial in quantity, that the dry, shriveled kernel scarcely compensates for the trouble of cracking the nut.
+ - He never could have loved me, or he would not have resigned me so willingly.
+ - A man must have something to grumble about; and if he cant complain that his wife harries him to death with her perversity and ill-humour, he must complain that she wears him out with her kindness and gentleness.
+ - What business had I to think of one that never thought of me?
+ - In love affairs, there is no mediator like a merry, simple-hearted child – ever ready to cement divided hearts, to span the unfriendly gulf of custom, to melt the ice of cold reserve, and overthrow the separating walls of dread formality and pride.
+ - Forgetfulness is not to be purchased with a wish; and I cannot bestow my esteem on all who desire it, unless they deserve it too.
+ - Because I imagine there must be only a very, very few men in the world, that I should like to marry; and of those few, it is ten to one I may never be acquainted with one; or if I should, it is twenty to one he may not happen to be single, or to take a fancy to me.
+ - I would rather have your friendship than the love of any other woman in the world.
+ - It is a hard, embittering thing to have one’s kind feelings and good intentions cast back in one’s teeth.
+ - Are you hero enough to unite yourself to one whom you know to be suspected and despised by all around you, and identify your interests and your honor with hers?
+ - If ever I am a mother I will zealously strive against this crime of over- indulgence. I can hardly give it a milder name when I think of the evils it brings.
+ - I cannot get him to write or speak in real, solid earnest. I don’t much mind it now, but if it be always so, what shall I do with the serious part of myself?
+ - If the generous ideas of youth are too often over- clouded by the sordid views of after-life, that scarcely proves them to be false.
+ - The brightest attractions to the lover too often prove the husband’s greatest torments.
+ - I possess the faculty of enjoying the company of those I – of my friends as well in silence as in conversation.
+ - The end of Religion is not to teach us how to die, but how to live...
+ - Yet, should thy darkest fears be true, If Heaven be so severe, That such a soul as thine is lost, Oh! how shall I appear?
+ - A girl’s affections should never be won unsought.
+ - I thought Mr. Millward never would cease telling us that he was no tea-drinker, and that it was highly injurious to keep loading the stomach with slops to the exclusion of more wholesome sustenance, and so give himself time to finish his fourth cup.
+ - You may think it all very fine, Mr. Huntingdon, to amuse yourself with rousing my jealousy; but take care you don’t rouse my hate instead. And when you have once extinguished my love, you will find it no easy matter to kindle it again.
+ - If you would have a boy to despise his mother, let her keep him at home, and spend her life in petting him up, and slaving to indulge his follies and caprices.
+ - There’s nothing like active employment, I suppose, to console the afflicted.
+ - I see that a man cannot give himself up to drinking without being miserable one half his days and mad the other.
+ - I began this book with the intention of concealing nothing, that those who liked might have the benefit of perusing a fellow creature’s heart: but we have some thoughts that all the angels in heaven are welcome to behold – but not our brother-men – not even the best and kindest amongst them.
+ - No; for instead of delivering myself up to the full enjoyment of the as others do, I am always troubling my head about how I could produce the same effect upon canvas; and as that can never be done, it is mere vanity and vexation of spirit.
+ - I am truly miserable – more so than I like to acknowledge to myself. Pride refuses to aid me. It has brought me into the scrape, and will not help me out of it.
+ - When a lady condescends to apologise, there is no keeping one’s anger.
+
+69 quotes

@@ -1,0 +1,42 @@
+ - Worry is a waste of imagination. ~~Walt Disney
+ - When you start to develop your powers of empathy and imagination, the whole world opens up to you. ~~Susan Sarandon
+ - Science may set limits to knowledge, but should not set limits to imagination. ~~Bertrand Russell
+ - Reality is for people that lack imagination. ~~Hayao Miyazaki
+ - Imagination is the most marvelous, miraculous, inconceivably powerful force the world has ever known. ~~Napoleon Hill
+ - Creativity has much to do with experience, observation and imagination, and if any one of those key elements is missing, it doesn’t work. ~~Bob Dylan
+ - All i have in my life is my imagination. ~~Woody Allen
+ - I have visualised my imagination so clearly and so consistently that it has manifested itself into my reality. ~~Conor McGregor
+ - The imagination is precious. Don’t lose it. Don’t lose the child in you. ~~Marilyn Manson
+ - Normality is a fine ideal for those who have no imagination. ~~C.G. Jung
+ - The greatest gift you can give a child is an imagination. ~~Eleanor Roosevelt
+ - Never, ever, let anyone tell you what you can and can’t do. Prove the cynics wrong. Pity them for they have no imagination. The sky’s the limit. Your sky. Your limit. Now. Let’s dance. ~~Tom Hiddleston
+ - For millions of years, mankind lived just like the animals. Then something happened which unleashed the power of our imagination. We learned to talk and we learned to listen. ~~Stephen Hawking
+ - I can never stand still. I must explore and experiment. I am never satisfied with my work. I resent the limitations of my own imagination. ~~Walt Disney
+ - Imagine there’s no heaven, it’s easy if you try. No hell below us, above us only sky. Imagine all the people living for today... ~~John Lennon
+ - I cannot exaggerate the effect of this marvelous sight on my childish imagination. Day after day I asked myself what is electricity and found no answer. Eighty years have gone by since and I still ask the same question, unable to answer it. ~~Nikola Tesla
+ - I am enough of an artist to draw freely upon my imagination. Imagination is more important than knowledge. Knowledge is limited. Imagination encircles the world. ~~Albert Einstein
+ - If you want a vision of the future, imagine a boot stamping on a human face – forever. ~~George Orwell
+ - The writer must have a good imagination to begin with, but the imagination has to be muscular, which means it must be exercised in a disciplined way, day in and day out, by writing, failing, succeeding and revising. ~~Stephen King
+ - Time spent with children is time well spent. Their little minds are not constrained by ‘reality’ or focused upon goals. Anything and everything is possible. Imagination will often carry us to worlds that never were. But without it we go nowhere. ~~Carl Sagan
+ - Description begins in the writer’s imagination, but should finish in the reader’s. ~~Stephen King
+ - Imagination should be used, not to escape reality but to create it. ~~Colin Wilson
+ - Music gives a soul to the universe, wings to the mind, flight to the imagination and life to everything. ~~Plato
+ - Imagination plus innovation equals realization. ~~Denis Waitley
+ - That’s what we storytellers do. We restore order with imagination. We instill hope again and again and again. ~~Walt Disney
+ - To do much clear thinking a person must arrange for regular periods of solitude when they can concentrate and indulge the imagination without distraction. ~~Thomas A. Edison
+ - Doubts and mistrust are the mere panic of timid imagination, which the steadfast heart will conquer, and the large mind transcend. ~~Helen Keller
+ - The world of imagination is the world of eternity. It is the divine bosom into which we shall all go after death of the vegetative body. ~~William Blake
+ - You have all the reason in the world to achieve your grandest dreams. Imagination plus innovation equals realization. ~~Denis Waitley
+ - Imagination is a powerful agent for creating, as it were, a second nature out of the material supplied to it by actual nature. ~~Immanuel Kant
+ - Suspense is like a woman. The more left to the imagination, the more the excitement. ~~Alfred Hitchcock
+ - I always imagined I could be what I wanted to be. ~~Chris Brown
+ - The future belongs to young people with an education and the imagination to create. ~~Barack Obama
+ - Every child is born blessed with a vivid imagination. ~~Walt Disney
+ - For me, its always a failure of the imagination. I have that anxiety that time is passing, that everything is ultimately fleeting and impermanent. I better take advantage of every single moment. ~~Jason Silva
+ - The intellectual imagination! With me all or not at all. NON SERVIAM! ~~James Joyce
+ - Nature has no outline. Imagination has. ~~William Blake
+ - I just have a relationship with my imagination. It’s like my friend, almost. ~~Steven Wright
+ - The Orkney imagination is haunted by time. ~~George MacKay
+ - The best vision is insight. ~~Malcolm S. Forbes
+
+40 quotes

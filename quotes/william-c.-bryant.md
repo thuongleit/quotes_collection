@@ -1,0 +1,69 @@
+ - Autumn, the year’s last, loveliest smile.
+ - And we wept that one so lovely should have a life so brief;.
+ - Eloquence is the poetry of prose.
+ - The stormy March has come at last, With winds and clouds and changing skies; I hear the rushing of the blast That through the snowy valley flies.
+ - The February sunshine steeps your boughs and tints the buds and swells the leaves within.
+ - Difficulty is the nurse of greatness.
+ - Truth, crushed to earth, shall rise again.
+ - God hath yoked to guilt her pale tormentor, – misery.
+ - Christ taught an astonishing thing about physical death: not merely that it is an experience robbed of its terror but that as an experience it does not exist at all. To “sleep in Christ,” like one that wraps the drapery of his couch about him, and lies down to pleasant dreams.
+ - The air was fragrant with a thousand trodden aromatic herbs, with fields of lavender, and with the brightest roses blushing in tufts all over the meadows...
+ - I grieve for life’s bright promise, just shown and then withdrawn.
+ - Thou blossom bright with autumn dew, And colored with the heaven’s own blue...
+ - Remorse is virtue’s root; its fair increase is fruits of innocence and blessedness.
+ - Is not thy home among the flowers?
+ - The melancholy days are come, the saddest of the year, Of wailing winds, and naked woods and meadows brown and sear.
+ - The moon is at her full, and riding high, Floods the calm fields with light. The airs that hover in the summer sky Are all asleep to-night.
+ - There is no glory in star or blossom till looked upon by a loving eye; There is no fragrance in April breezes till breathed with joy as they wander by.
+ - Glorious are the woods in their latest gold and crimson, Yet our full-leaved willows are in the freshest green. Such a kindly autumn, so mercifully dealing With the growths of summer, I never yet have seen.
+ - The rugged trees are mingling Their flowery sprays in love; The ivy climbs the laurel To clasp the boughs above.
+ - These struggling tides of life that seem In wayward, aimless course to tend, Are eddies of the mighty stream That rolls to its appointed end.
+ - A herd of prairie-wolves will enter a field of melons and quarrel about the division of the spoils as fiercely and noisily as so many politicians.
+ - The summer morn is bright and fresh, the birds are darting by. As if they loved to breast the breeze that sweeps the cool clear sky.
+ - Difficulty, my brethren, is the nurse of greatness – a harsh nurse, who roughly rocks her foster children into strength and athletic proportion.
+ - And at my silent window-sill The jessamine peeps in.
+ - Music is not merely a study, it is an entertainment; wherever there is music there is a throng of listeners.
+ - Beautiful isles! beneath the sunset skies tall, silver-shafted palm-trees rise, between full orange-trees that shade the living colonade.
+ - Self-interest is the most ingenious and persuasive of all the agents that deceive our consciences, while by means of it our unhappy and stubborn prejudices operate in their greatest force.
+ - A sculptor wields The chisel, and the stricken marble grows To beauty.
+ - Thine eyes are springs in whose serene And silent waters heaven is seen. Their lashes are the herbs that look On their young figures in the brook.
+ - Ah! never shall the land forget How gushed the life-blood of her brave -.
+ - The groves were God’s first temples.
+ - The birch-bark canoe of the savage seems to me one of the most beautiful and perfect things of the kind constructed by human art.
+ - Pleasantly, between the pelting showers, the sunshine gushes down.
+ - The victory of endurance born.
+ - Old ocean’s gray and melancholy waste.
+ - And the blue gentian-flower, that, in the breeze, Nods lonely, of her beauteous race the last.
+ - Ah, why Should we, in the world’s riper years, neglect God’s ancient sanctuaries, and adore Only among the crowd and under roofs That our frail hands have raised?
+ - Glorious are the woods in their latest gold and crimson.
+ - The rose that lives its little hour Is prized beyone the sculpted flower.
+ - But ’neath yon crimson tree Lover to listening maid might breathe his flame, Nor mark, within its roseate canopy, Her blush of maiden shame.
+ - Alas! to seize the moment When the heart inclines to heart, And press a suit with passion, Is not a woman’s part. If man come not to gather The roses where they stand, They fade among their foliage, They cannot seek his hand.
+ - Still sweet with blossoms is the year’s fresh prime.
+ - The fiercest agonies have shortest reign; And after dreams of horror, comes again The welcome morning with its rays of peace.
+ - Truth gets well if she is run over by a locomotive, while error dies of lockjaw if she scratches her finger.
+ - When April winds Grew soft, the maple burst into a flush Of scarlet flowers. The tulip tree, high up, Opened in airs of June her multiple OF golden chalices to humming birds And silken-wing’d insects of the sky.
+ - Pain dies quickly, and lets her weary prisoners go; the fiercest agonies have shortest reign.
+ - To him who in the love of Nature holds Communion with her visible forms, she speaks A various language.
+ - Genius, with all its pride in its own strength, is but a dependent quality, and cannot put forth its whole powers nor claim all its honors without an amount of aid from the talents and labors of others which it is difficult to calculate.
+ - Adversity is the nurse of greatness which roughly rocks her patients back to health.
+ - Flowers spring up unsown and die ungathered.
+ - The journalist should be on his guard against publishing what is false in taste or exceptionable in morals.
+ - Follow thou thy choice.
+ - Truth crushed to earth shall rise again,- The eternal years of God are hers; But Error, wounded, writhes with pain, And dies among his worshippers.
+ - Sustained and soothed By an unfaltering trust, approach thy grave, Like one who wraps the drapery of his couch About him, and lies down to pleasant dreams.
+ - The hushed winds their Sabbath keep.
+ - Yet will that beauteous image make The dreary sea less drear And thy remembered smile will wake The hope that tramples fear.
+ - Virtue cannot dwell with slaves, nor reign O’er those who cower to take a tyrant’s yoke.
+ - Look on this beautiful world, and read the truth in her fair page.
+ - A stable, changeless state, ’twere cause indeed to weep.
+ - Poetry is the eloquence of verse.
+ - And suns grow meek, and the meek suns grow brief, and the year smiles as it draws near its death.
+ - Features, the great soul’s apparent seat.
+ - All that tread, the globe are but a handful to the tribes, that slumber in its bosom.
+ - All great poets have been men of great knowledge.
+ - That make the meadows green; and, poured round all, Old Ocean’s gray and melancholy waste, – Are but the solemn decorations all Of the great tomb of man.
+ - It is said to be the manner of hypochondriacs to change often their physician...
+ - Poetry is that art which selects and arranges the symbols of thought in such a manner as to excite the imagination the most powerfully and delightfully.
+
+67 quotes

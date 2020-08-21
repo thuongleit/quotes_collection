@@ -1,0 +1,32 @@
+ - One positive thought produces millions of positive vibrations.
+ - I think music is an instrument. It can create the initial thought patterns that can change the thinking of people.
+ - I start in the middle of a sentence and move both directions at once.
+ - My music is the spiritual expression of what I am: my faith, my knowledge, my being.
+ - I’m into scales right now.
+ - Invest yourself in everything you do. There’s fun in being serious.
+ - Damn the rules, it’s the feeling that counts.
+ - When you begin to see the possibilities of music, you desire to do something really good for people.
+ - I believe that men are here to grow themselves into the best good that they can be – at least, this is what I want to do.
+ - I think the majority of musicians are interested in truth.
+ - The main thing a musician would like to do is to give a picture to the listener of the many wonderful things he knows of and senses in the universe.
+ - I’d like to point out to people the divine in a musical language that transcends words. I want to speak to their souls.
+ - Any time you play your horn, it helps you. If you get down, you can help yourself even in a rock ‘n’ roll band.
+ - Sometimes I think I was making music through the wrong end of a magnifying glass.
+ - Don’t ever get so big or important that you can not hear and listen to every other person.
+ - We should pray and seek for knowledge which would enable us to portray and project the things we love in music, in a way that might wholly or in some part, be appreciated as having been conceived and composed or performed and presented with dedication and in positive taste.
+ - Working with Monk is like falling down a dark elevator shaft.
+ - I think I know what it is but don’t ask me to play it.
+ - The reason I play so many sounds, maybe it sounds angry, is because I’m trying so many things at one time, you see? I haven’t sorted them out. I have a whole bag of things that I’m trying to work through and get the one essential.
+ - You can play a shoestring if you’re sincere.
+ - All a musician can do is to get closer to the source.
+ - If you’re bourgeois, money is it. It’s all the questions and all the answers. Ain’t no E-flat or color blue, only $12.98 or $1,000. If it isn’t money, it isn’t nothing.
+ - The first time I heard Bird play, it hit me right between the eyes.
+ - Sometimes I wish I could walk up to my music as if for the first time, as if I had never heard it before. Being so inescapably a part of it, I’ll never know what the listener gets, what the listener feels, and that’s too bad.
+ - Change is inevitable in music – things change.
+ - I’ve always felt that even though a man was not a Christian, he still has to know the truth some way or another. Or if he was a Christian, he could know the truth. The truth itself doesn’t have any name on it to me. And each man has to find this for himself, I think.
+ - Considering the great heritage in music that we have – the work of the giants of the past, the present, and the promise of those who are to come – I feel that we have every reason to face the future optimistically.
+ - I think I was first awakened to musical exploration by Dizzy Gillespie and Bird. It was through their work that I began to learn about musical structures and the more theoretical aspects of music.
+ - I want to be the force which is truly for good.
+ - Whatever I’d say would be an understatement. I can only say my life was made much better by knowing him. He was one of the greatest people I’ve ever known, as a man, a friend, and a musician.
+
+30 quotes

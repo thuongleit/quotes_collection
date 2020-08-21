@@ -1,0 +1,34 @@
+ - The weak fear happiness itself. They can harm themselves on cotton wool. Sometimes they are wounded even by happiness.
+ - Now I have neither happiness nor unhappiness. Everything passes. That is the one and only thing that I have thought resembled a truth in the society of human beings where I have dwelled up to now as in a burning hell. Everything passes.
+ - For someone like myself in whom the ability to trust others is so cracked and broken that I am wretchedly timid and am forever trying to read the expression on people’s faces.
+ - Mine has been a life of much shame. I can’t even guess myself what it must be to live the life of a human being.
+ - A true artist is an ugly man.
+ - Last year nothing happened The year before nothing happened And the year before that nothing happened.
+ - I like roses best. But they bloom in all four seasons. I wonder if people who like roses best have to die four times over again.
+ - As long as I can make them laugh, it doesn’t matter how, I’ll be alright. If I succeed in that, the human beings probably won’t mind it too much if I remain outside their lives. The one thing I must avoid is becoming offensive in their eyes: I shall be nothing, the wind, the sky.
+ - At times everything grows misty and dark before my eyes, and I feel that the strength of my whole body is oozing away through my finger tips.
+ - But happiness is being able to hope, however faintly, for happiness. So, at least, we must believe if we are to live in the world of today.
+ - The weak fear happiness itself.
+ - What uneasiness lies in being loved.
+ - I want to spend my time with people who don’t look to be respected. But such good people won’t want to spend their time with me.
+ - All I feel are the assaults of apprehension and terror at the thought that I am the only one who is entirely unlike the rest. It is almost impossible for me to converse with other people. What should I talk about, how should I say it? – I don’t know.
+ - Victims. Victims of a transitional period of morality. That is what we both certainly are.
+ - I also have the impression that many women have been able, instinctively, to sniff out this loneliness of mine, which I confided to no one, and this in later years was to become one of the causes of my being taken advantage of.
+ - It would seem that the more irresponsible and crafty one is, the more likely one is to have a talent for storytelling.
+ - Whenever I was asked what I wanted my first impulse was to answer “Nothing.” The thought went through my mind that it didn’t make any difference, that nothing was going to make me happy.
+ - And I was incapable of living all by myself in those lodgings where I didn’t know a soul. It terrified me to sit by myself quietly in my room. I felt frightened, as if I might be set upon or struck by someone at any moment.
+ - To be a friend of the weak-that is the artist’s point of departure as well as his ultimate goal.
+ - The real things are apt to be deviant.
+ - Addiction is perhaps a sickness of the spirit.
+ - The world, after all, was still a place of bottomless horror. It was by no means a place of childlike simplicity where everything could be settled by a simple then-and-there decision.
+ - Virtue and vice are concepts invented by human beings, words for a morality which human beings arbitrarily devised.
+ - I have always found the female of the human species many times more difficult to understand than the male.
+ - In my case such an expression as ‘to be fallen for’ or even ‘to be loved’ is not in the least appropriate; perhaps it describes the situation more accurately to say that I was ’looked after.
+ - Not long ago I learned from a certain person in considerable detail about the worthlessness of your character. All the same, it is you who have given me strength, you who have put the rainbow of revolution in my breast. It is you who have given an object to my life.
+ - Labeled a delinquent. That’s the only kind of label I want to be crucified under.
+ - I have often felt that I would find it more complicated, troublesome and unpleasant to ascertain the feelings by which a woman lives than to plumb the innermost thoughts of an earthworm.
+ - What did he mean by “society”? The plural of human beings?
+ - Is it not true that no two human beings understand anything whatsoever about each other, that those who consider themselves bosom friends may be utterly mistaken about their fellow and, failing to realize this sad truth throughout a lifetime, weep when they read in the newspapers about his death?
+ - It isn’t that I dislike artists, but I can’t stand anyone who puts on those ponderous airs of a man of character.
+
+32 quotes

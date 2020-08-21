@@ -1,0 +1,271 @@
+ - The poetry of the earth is never dead.
+ - A thing of beauty is a joy forever.
+ - Beauty is truth, truth beauty.
+ - Give me books, French wine, fruit, fine weather and a little music played out of doors by somebody I do not know.
+ - Beauty is truth, truth beauty,-that is all Ye know on earth, and all ye need to know.
+ - A thing of beauty is a joy forever: its loveliness increases; it will never pass into nothingness.
+ - Nothing ever becomes real till it is experienced.
+ - Heard melodies are sweet, but those unheard, are sweeter.
+ - Now a soft kiss – Aye, by that kiss, I vow an endless bliss.
+ - I almost wish we were butterflies and liv’d but three summer days – three such days with you I could fill with more delight than fifty common years could ever contain.
+ - Its better to lose your ego to the One you Love than to lose the One you Love to your Ego.
+ - Love is my religion – I could die for it.
+ - Some say the world is a vale of tears, I say it is a place of soul-making.
+ - Touch has a memory.
+ - Many a time I have been half in love with easeful Death.
+ - With a great poet the sense of Beauty overcomes every other consideration, or rather obliterates all consideration.
+ - To stay youthful, stay useful.
+ - Heard melodies are sweet, but those unheard Are sweeter; therefore, ye soft pipes, play on; Not to the sensual ear, but, more endear’d, Pipe to the spirit ditties of no tone.
+ - O for a life of Sensations rather than of Thoughts!
+ - We read fine things but never feel them to the full until we have gone the same steps as the author.
+ - I am certain of nothing but the holiness of the heart’s affections, and the truth of imagination.
+ - A hope beyond the shadow of a dream.
+ - My imagination is a monastery and I am its monk.
+ - Touch has a memory. O say, love say, What can I do to kill it and be free In my old liberty?
+ - Don’t be discouraged by a failure. It can be a positive experience.
+ - Failure is in a sense the highway to success, as each discovery of what is false leads us to seek earnestly after what is true.
+ - I don’t need the stars in the night I found my treasure All I need is you by my side so shine forever.
+ - To silence gossip, don’t repeat it.
+ - You cannot conceive how I ache to be with you: how I would die for one hour...
+ - I could be martyred for my religion. Love is my religion and I could die for that. I could die for you.
+ - I wish to believe in immortality-I wish to live with you forever.
+ - Failure is, in a sense, the highway to success...
+ - And when thou art weary I’ll find thee a bed, Of mosses and flowers to pillow thy head.
+ - There is a budding morrow in midnight.
+ - I have so much of you in my heart.
+ - So, when dark thoughts my boding spirit shroud, Sweet Hope! celestial influence round me shed Waving thy silver pinions o’er my head.
+ - On a lone winter evening, when the frost Has wrought a silence.
+ - Thou wast not born for death, immortal bird! No hungry generations tread thee down; The voice I hear this passing night was heard In ancient days by emperor and clown.
+ - Season of mists and mellow fruitfulness, Close bosom-friend of the maturing sun.
+ - The day is gone, and all its sweets are gone!
+ - Bright star, would I were steadfast as thou art – Not in lone splendour hung aloft the night And watching, with eternal lids apart, Like nature’s patient, sleepless Eremite.
+ - I compare human life to a large mansion of many apartments, two of which I can only describe, the doors of the rest being as yet shut upon me.
+ - Through the dancing poppies stole A breeze, most softly lulling to my soul.
+ - Severn – I – lift me up – I am dying – I shall die easy; don’t be frightened – be firm, and thank God it has come.
+ - Here lies one whose name was writ in water.
+ - I love you the more in that I believe you had liked me for my own sake and for nothing else.
+ - Shed no tear – O, shed no tear! The flower will bloom another year. Weep no more – O, weep no more! Young buds sleep in the root’s white core.
+ - Call the world if you please “the vale of soul-making.” Then you will find out the use of the world.
+ - My chest of books divide amongst my friends –.
+ - I Cannot Exist Without You. I Am Forgetful Of Everything But Seeing You Again...
+ - All clean and comfortable I sit down to write.
+ - We have woven a web, you and I, attached to this world but a separate world of our own invention.
+ - Nothing ever becomes real till experienced – even a proverb is no proverb until your life has illustrated it.
+ - Knowledge enormous makes a god of me.
+ - There was an awful rainbow once in heaven: We know her woof, her texture; she is given In the dull catalogue of common things. Philosophy will clip an angel’s wings.
+ - Through the sad heart of Ruth, when sick for home She stood in tears amid the alien corn; The same that ofttimes hath Charm’d magic casements, opening on the foam Of perilous seas, in faery lands forlorn.
+ - The poetry of earth is never dead When all the birds are faint with the hot sun, And hide I cooling trees, a voice will run From hedge to hedge about the new-mown mead.
+ - Stop and consider! life is but a day.
+ - Where are the songs of Spring? Aye, where are they? Think not of them; thou has thy music too.
+ - Pensive they sit, and roll their languid eyes.
+ - I shall soon be laid in the quiet grave – thank God for the quiet grave – O! I can feel the cold earth upon me – the daisies growing over me – O for this quiet – it will be my first.
+ - O aching time! O moments big as years!
+ - Scenery is fine – but human nature is finer.
+ - How beautiful, if sorrow had not made Sorrow more beautiful than Beauty’s self.
+ - For axioms in philosophy are not axioms until they are proved upon our pulses.
+ - When old age shall this generation waste, Thou shalt remain, in midst of other woe Than ours, a friend to man, to whom thou say’st, “Beauty is truth, truth beauty,” – that is all Ye know on earth, and all ye need to know.
+ - Works of genius are the first things in the world.
+ - To feel forever its soft fall and swell, Awake for ever in a sweet unrest, Still, still to hear her tender-taken breath, And so live ever-or else swoon in death.
+ - I see a lily on thy brow, With anguish moist and fever dew; And on thy cheek a fading rose Fast withereth too.
+ - A little noiseless noise among the leaves, Born of the very sigh that silence heaves.
+ - The problems of the world cannot possibly be solved by skeptics or cynics whose horizons are limited by the obvious realities. We need men who can dream of things that never were.
+ - I cannot exist without you – I am forgetful of every thing but seeing you again – my Life seems to stop there – I see no further. You have absorb’d me. I have a sensation at the present moment as though I was dissolving...
+ - My love is selfish. I cannot breathe without you.
+ - It is a flaw In happiness to see beyond our bourn, – It forces us in summer skies to mourn, It spoils the singing of the nightingale.
+ - My spirit is too weak – mortality Weighs heavily on me like unwilling sleep, And each imagin’d pinnacle and steep Of godlike hardship tells me I must die Like a sick Eagle looking at the sky.
+ - Fast fading violets cover’d up in leaves; And mid-May’s eldest child, The coming musk-rose, full of dewy wine, The murmurous haunt of flies on summer eves.
+ - I will clamber through the clouds and exist.
+ - Thou, silent form, dost tease us out of thought As doth eternity...
+ - Do you not see how necessary a world of pains and troubles is to school an intelligence and make it a soul?
+ - If poetry does not come as naturally as leaves to a tree, then it better not come at all.
+ - Land and sea, weakness and decline are great separators, but death is the great divorcer for ever.
+ - Through buried paths, where sleepy twilight dreams The summer time away.
+ - The excellence of every Art is its intensity.
+ - O, sorrow! Why dost borrow Heart’s lightness from the merriment of May?
+ - Parting they seemed to tread upon the air, Twin roses by the zephyr blown apart Only to meet again more close.
+ - They swayed about upon a rocking horse, And thought it Pegasus.
+ - Is there another Life? Shall I awake and find all this a dream? There must be we cannot be created for this sort of suffering.
+ - But the rose leaves herself upon the brier, For winds to kiss and grateful bees to feed.
+ - My friends should drink a dozen of Claret on my Tomb.
+ - No, no, I’m sure, My restless spirit never could endure To brood so long upon one luxury, Unless it did, though fearfully, espy A hope beyond the shadow of a dream.
+ - The only means of strengthening one’s intellect is to make up one’s mind about nothing, to let the mind be a thoroughfare for all thoughts.
+ - Love in a hut, with water and a crust, Is – Love, forgive us! – cinders, ashes, dust.
+ - She hurried at his words, beset with fears, For there were sleeping dragons all around...
+ - What is more gentle than a wind is summer?
+ - Pleasure is oft a visitant; but pain Clings cruelly to us.
+ - Give me women, wine and snuff Until I cry out ‘hold, enough!’ You may do so san objection Till the day of resurrection; For bless my beard then aye shall be My beloved Trinity.
+ - Whatever the imagination seizes as Beauty must be truth -whether it existed before or not.
+ - The imagination may be compared to Adam’s dream-he awoke and found it truth.
+ - Deep in the shady sadness of a vale Far sunken from the healthy breath of morn, Far from the fiery noon and eve’s one star, Sat gray-haired Saturn, quiet as a stone, Still as the silence round about his lair.
+ - Thou art a dreaming thing, A fever of thyself.
+ - There is nothing stable in the world; uproar’s your only music.
+ - Four seasons fill the measure of the year; there are four seasons in the minds of men.
+ - Life is but a day: A fragile dewdrop on its perilious way From a tree’s summit.
+ - Like a mermaid in sea-weed, she dreams awake, trembling in her soft and chilly nest.
+ - Poetry should surprise by a fine excess and not by singularity, it should strike the reader as a wording of his own highest thoughts, and appear almost a remembrance.
+ - O for the gentleness of old Romance, the simple planning of a minstrel’s song!
+ - No stir of air was there, Not so much life as on a summer’s day Robs not one light seed from the feather’d grass, But where the dead leaf fell, there did it rest.
+ - It keeps eternal whisperings around desolate shores.
+ - That queen of secrecy, the violet.
+ - I am in that temper that if I were under water I would scarcely kick to come to the top.
+ - Time, that aged nurse, Rocked me to patience.
+ - An extensive knowledge is needful to thinking people-it takes away the heat and fever; and helps, by widening speculation, to ease the burden of the mystery.
+ - The world is too brutal for me-I am glad there is such a thing as the grave-I am sure I shall never have any rest till I get there.
+ - Fade far away, dissolve, and quite forget...
+ - Alas! when passion is both meek and wild!
+ - Bards of Passion and of Mirth, Ye have left your souls on earth! Have ye souls in heaven too, Double-lived in regions new?
+ - It appears to me that almost any man may like the spider spin from his own inwards his own airy citadel.
+ - To Sorrow I bade good-morrow, And thought to leave her far away behind; But cheerly, cheerly, She loves me dearly: She is so constant to me, and so kind.
+ - Then felt I like some watcher of the skies when a new planet swims into his ken.
+ - Much have I traveled in the realms of gold, and many goodly states and kingdoms seen.
+ - We have oftener than once endeavoured to attach some meaning to that aphorism, vulgarly imputed to Shaftesbury, which however we can find nowhere in his works, that “ridicule is the test of truth.”
+ - Poetry should be great and unobtrusive, a thing which enters into one’s soul, and does not startle it or amaze it with itself, but with its subject.
+ - I have a habitual feeling of my real life having past, and that I am now leading a posthumous existence.
+ - I have met with women whom I really think would like to be married to a Poem and to be given away by a Novel.
+ - All writing is a form of prayer.
+ - Health is my expected heaven.
+ - I will imagine you Venus tonight and pray, pray, pray to your star like a Heathen.
+ - There is not a fiercer hell than the failure in a great object.
+ - I should write for the mere yearning and fondness I have for the beautiful, even if my night’s labors should be burnt every morning and no eye shine upon them.
+ - Philosophy will clip an angel’s wings.
+ - Of love, that fairest joys give most unrest.
+ - A moment’s thought is passion’s passing knell.
+ - Let us away, my love, with happy speed; There are no ears to hear, or eyes to see, – Drown’d all in Rhenish and the sleepy mead. Awake! arise! my love and fearless be, For o’er the southern moors I have a home for thee.
+ - Music’s golden tongue Flatter’d to tears this aged man and poor.
+ - I wish you could invent some means to make me at all happy without you. Every hour I am more and more concentrated in you; everything else tastes like chaff in my mouth.
+ - O magic sleep! O comfortable bird, That broodest o’er the troubled sea of the mind Till it is hush’d and smooth!
+ - A man’s life of any worth is a continual allegory, and very few eyes can see the mystery of his life, a life like the scriptures, figurative.
+ - What is there in thee, Moon! That thou should’st move My heart so potently?
+ - Closer of lovely eyes to lovely dreams, Lover of loneliness, and wandering, Of upcast eye, and tender pondering! Thee must I praise above all other glories That smile us on to tell delightful stories.
+ - Philosophy will clip an angel’s wings, Conquer all mysteries by rule and line, Empty the haunted air, and gnomed mine – Unweave a rainbow.
+ - When I behold, upon the night’s starr’d face, Huge cloudy symbols of a high romance, And think that I may never live to trace Their shadows, with the magic hand of chance...
+ - His old right hand lay nerveless, listless, dead, Unsceptred; and his realmless eyes were closed;.
+ - How sad it is when a luxurious imagination is obliged in self defense to deaden its delicacy in vulgarity, and riot in things attainable that it may not have leisure to go mad after things that are not.
+ - There is an electric fire in human nature tending to purify – so that among these human creatures there is continually some birth of new heroism. The pity is that we must wonder at it, as we should at finding a pearl in rubbish.
+ - Let us open our leaves like a flower, and be passive and receptive.
+ - That which is creative must create itself.
+ - Dance and Provencal song and sunburnt mirth! On for a beaker full of the warm South, Full of the true, the blushful Hippocrene! With beaded bubbles winking at the brim, And purple-stained mouth.
+ - The feel of not to feel it, When there is none to heal it Nor numbed sense to steel it.
+ - There is an old saying “well begun is half done”-’tis a bad one. I would use instead-Not begun at all ’til half done.
+ - I have good reason to be content, for thank God I can read and perhaps understand Shakespeare to his depths.
+ - The creature has a purpose, and his eyes are bright with it.
+ - If I should die, I have left no immortal work behind me – nothing to make my friends proud of my memory – but I have loved the principle of beauty in all things, and if I had had time I would have made myself remembered.
+ - Even bees, the little almsmen of spring bowers, know there is richest juice in poison-flowers.
+ - Ay, on the shores of darkness there is a light, and precipices show untrodden green; there is a budding morrow in midnight; there is triple sight in blindness keen.
+ - The silver, snarling trumpets ’gan to chide.
+ - And there shall be for thee all soft delight That shadowy thought can win, A bright torch, and a casement ope at night, To let the warm Love in!
+ - Sudden a thought came like a full-blown rose, Flushing his brow.
+ - I have had a thousand kisses, for which with my whole soul I thank love – but if you should deny me the thousand and first – ’t would put me to the proof how great a misery I could live through.
+ - I will give you a definition of a proud man: he is a man who has neither vanity nor wisdom one filled with hatreds cannot be vain, neither can he be wise.
+ - The roaring of the wind is my wife and the stars through the window pane are my children.
+ - I think I shall be among the English Poets after my death.
+ - I wish I was either in your arms full of faith, or that a Thunder bolt would strike me.
+ - The redbreast whistles from a garden-croft; and gathering swallows twitter in the skies.
+ - I cannot see what flowers are at my feet, Nor what soft incense hangs upon the boughs, But, in embalmed darkness, guess each sweet.
+ - When the melancholy fit shall fall Sudden from heaven like a weeping cloud, That fosters the droop-headed flowers all, And hides the green hill in an April shroud; Then glut thy sorrow on a morning rose.
+ - The air is all softness.
+ - To bear all naked truths, And to envisage circumstance, all calm, That is the top of sovereignty.
+ - O Solitude! If I must with thee dwell, Let it not be among the jumbled heap of murky buildings.
+ - My creed is love and you are its only tenet.
+ - I have loved the principle of beauty in all things.
+ - So let me be thy choir, and make a moan Upon the midnight hours.
+ - I think we may class the lawyer in the natural history of monsters.
+ - Everything that reminds me of her goes through me like a spear.
+ - Fanatics have their dreams, wherewith they weave a paradise for a sect.
+ - O fret not after knowledge – I have none, and yet my song comes native with the warmth. O fret not after knowledge – I have none, and yet the Evening listens.
+ - My mind has been the most discontented and restless one that ever was put into a body too small for it.
+ - Load every rift with ore.
+ - The thought, the deadly thought of solitude.
+ - Wine is only sweet to happy men.
+ - I am sailing with thee through the dizzy sky! How beautiful thou art!
+ - Tall oaks branch charmed by the earnest stars Dream and so dream all night without a stir.
+ - In a drear-nighted December, Too happy, happy brook, Thy bubblings ne’er remember Apollo’s summer look; But with a sweet forgetting, They stay their crystal fretting, Never, never petting About the frozen time.
+ - A long poem is a test of invention which I take to be the Polar star of poetry, as fancy is the sails, and imagination the rudder.
+ - You are always new, the last of your kisses was ever the sweetest.
+ - You are always new to me.
+ - Where the nightingale doth sing Not a senseless, tranced thing, But divine melodious truth.
+ - Adieu! adieu! thy plaintive anthem fades Past the near meadows, over the still stream, Up the hill-side; and now ’tis buried deep In the next valley-glades: Was it a vision, or a waking dream? Fled is that music: – do I wake or sleep?
+ - I love your hills and I love your dales, And I love your flocks a-bleating; but oh, on the heather to lie together, With both our hearts a-beating!
+ - Every mental pursuit takes its reality and worth from the ardour of the pursuer.
+ - The opinion I have of the generality of women – who appear to me as children to whom I would rather give a sugar plum than my time, forms a barrier against matrimony which I rejoice in.
+ - He ne’er is crowned with immortality Who fears to follow where airy voices lead.
+ - Open afresh your rounds of starry folds, Ye ardent Marigolds.
+ - Turn the key deftly in the oiled wards, And seal the hushed Casket of my Soul.
+ - I would sooner fail than not be among the greatest.
+ - Blessed is the healthy nature; it is the coherent, sweetly co-operative, not incoherent, self-distracting, self-destructive one!
+ - I do think better of womankind than to suppose they care whether Mister John Keats five feet high likes them or not.
+ - So rainbow-sided, touch’d with miseries, She seem’d, at once, some penanced lady elf, Some demon’s mistress, or the demon’s self.
+ - What shocks the virtuous philosopher, delights the chameleon poet.
+ - Oh what can ail thee, knight-at-arms, Alone and palely loitering?
+ - Real are the dreams of gods, and soothly pass their pleasures in a long immortal dream.
+ - Sweet are the pleasures that to verse belong, And doubly sweet a brotherhood in song.
+ - Here are sweet peas, on tiptoe for a flight; With wings of gentle flush o’er delicate white, And taper fingers catching at all things, To bind them all about with tiny rings.
+ - I am convinced more and more day by day that fine writing is next to fine doing, the top thing in the world.
+ - But were there ever any Writhed not at passed joy?
+ - Though a quarrel in the streets is a thing to be hated, the energies displayed in it are fine; the commonest man shows a grace in his quarrel.
+ - Joy, whose hand is ever at his lips, bidding adieu.
+ - Death is Life’s high meed.
+ - Soft closer of our eyes! Low murmur of tender lullabies!
+ - The grandeur of the dooms We have imagined for the mighty dead.
+ - Dry your eyes O dry your eyes, For I was taught in Paradise To ease my breast of melodies.
+ - The poppies hung Dew-dabbled on their stalks.
+ - Where soil is, men grow, Whether to weeds or flowers.
+ - When it is moving on luxurious wings, The soul is lost in pleasant smotherings.
+ - Souls of poets dead and gone, What Elysium have ye known, Happy field or mossy cavern, Choicer than the Mermaid Tavern? Have ye tippled drink more fine Than mine host’s Canary wine?
+ - As the Swiss inscription says: Sprechen ist silbern, Schweigen ist golden,- “Speech is silvern, Silence is golden;” or, as I might rather express it, Speech is of Time, Silence is of Eternity.
+ - Wherein lies happiness? In that which becks Our ready minds to fellowship divine, A fellowship with essence; till we shine, Full alchemiz’d, and free of space. Behold The clear religion of heaven!
+ - Health is the greatest of blessings – with health and hope we should be content to live.
+ - And how they kist each other’s tremulous eyes.
+ - I want a brighter word than bright.
+ - The genius of poetry must work out its own salvation in a man; it cannot be matured by law and precept, but by sensation and watchfulness in itself. That which is creative must create itself.
+ - The days of peace and slumberous calm are fled.
+ - If something is not beautiful, it is probably not true.
+ - You have absorb’d me. I have a sensation at the present moment as though I was dissolving.
+ - I always made an awkward bow.
+ - I shall soon be laid in the quiet grave – thank God for the quiet grave.
+ - Hear ye not the hum Of mighty workings?
+ - A poet is the most unpoetical of anything in existence; because he has no identity he is continually informing and filling some other body.
+ - Are there not thousands in the world who love their fellows even to the death, who feel the giant agony of the world, and more, like slaves to poor humanity, labor for mortal good?
+ - I find that I can have no enjoyment in the world but the continual drinking of knowledge. I find there is no worthy pursuit but the idea of doing some good for the world.
+ - Neither poetry, nor ambition, nor love have any alertness of countenance as they pass by me.
+ - I have two luxuries to brood over in my walks, your loveliness and the hour of my death. O that I could have possession of them both in the same minute.
+ - You might curb your magnanimity, and be more of an artist, and load every rift of your subject with ore.
+ - The genius of Shakespeare was an innate university.
+ - Their woes gone by, and both to heaven upflown, To bow for gratitude before Jove’s throne.
+ - The excellence of every art is its intensity, capable of making all disagreeables evaporate, from their being in close relationship with beauty and truth.
+ - Or thou might’st better listen to the wind, Whose language is to thee a barren noise, Though it blows legend-laden through the trees.
+ - I would jump down Etna for any public good – but I hate a mawkish popularity.
+ - I never can feel certain of any truth, but from a clear perception of its beauty.
+ - How does the poet speak to men with power, but by being still more a man than they.
+ - In a drear-nighted December, Too happy, happy tree, Thy branches ne’er remember Their green felicity.
+ - A poet without love were a physical and metaphysical impossibility.
+ - We must repeat the often repeated saying, that it is unworthy a religious man to view an irreligious one either with alarm or aversion, or with any other feeling than regret and hope and brotherly commiseration.
+ - A man should have the fine point of his soul taken off to become fit for this world.
+ - Asleep in lap of legends old.
+ - Thou foster-child of Silence and slow Time.
+ - Young playmates of the rose and daffodil, Be careful ere ye enter in, to fill Your baskets high With fennel green, and balm, and golden pines Savory latter-mint, and columbines.
+ - I came to feel how far above All fancy, pride, and fickle maidenhood, All earthly pleasure, all imagined good, Was the warm tremble of a devout kiss.
+ - Every fresh experience points out some form of error which we shall afterwards carefully avoid.
+ - What occasions the greater part of the world’s quarrels? Simply this: Two minds meet and do not understand each other in time enough to prevent any shock of surprise at the conduct of either party.
+ - There’s a blush for won’t, and a blush for shan’t, and a blush for having done it: There’s a blush for thought and a blush for naught, and a blush for just begun it.
+ - A man’s life of any worth is a continual allegory.
+ - There is an awful warmth about my heart like a load of immortality.
+ - I have nothing to speak of but my self-and what can I say but what I feel.
+ - Many have original minds who do not think it – they are led away by custom!
+ - You speak of Lord Byron and me; there is this great difference between us. He describes what he sees I describe what I imagine. Mine is the hardest task.
+ - Why employ intelligent and highly paid ambassadors and then go and do their work for them? You don’t buy a canary and sing yourself.
+ - Praise or blame has but a momentary effect on the man whose love of beauty in the abstract makes him a severe critic on his own works.
+ - Conversation is not a search after knowledge, but an endeavor at effect.
+ - I equally dislike the favor of the public with the love of a woman – they are both a cloying treacle to the wings of independence.
+ - I never was in love – yet the voice and the shape of a woman has haunted me these two days.
+ - Nothing is finer for the purposes of great productions than a very gradual ripening of the intellectual powers.
+ - But let me see thee stoop from heaven on wings That fill the sky with silver glitterings!
+ - The uttered part of a man’s life, let us always repeat, bears to the unuttered, unconscious part a small unknown proportion. He himself never knows it, much less do others.
+ - The Public – a thing I cannot help looking upon as an enemy, and which I cannot address without feelings of hostility.
+ - She press’d his hand in slumber; so once more He could not help but kiss her and adore.
+ - And shade the violets, That they may bind the moss in leafy nets.
+ - It can be said of him, when he departed he took a Man’s life with him. No sounder piece of British manhood was put together in that eighteenth century of Time.
+ - Who would wish to be among the commonplace crowd of the little famous – who are each individually lost in a throng made up of themselves?
+ - His religion at best is an anxious wish,-like that of Rabelais, a great Perhaps.
+
+269 quotes

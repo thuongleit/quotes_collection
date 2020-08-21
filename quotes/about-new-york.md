@@ -1,0 +1,42 @@
+ - If you can make it there, you’ll make it anywhere; it’s up to you, New York, New York. ~~Frank Sinatra
+ - You haven’t lived until you died in New York. ~~Alexander Woollcott
+ - Most cities are nouns. New York’s a verb. ~~John F. Kennedy
+ - I want to own the New York Jets, that’s what I want. And I absolutely believe I am going to own the Jets. ~~Gary Vaynerchuk
+ - Live in New York City once, but leave before it makes you hard. Live in Northern California once, but leave before it makes you soft. ~~Mary Schmich
+ - My understanding of God has come from my own personal experiences. Because I was in trouble so many times in New York that if you were me, you would believe in God too. ~~Lana Del Rey
+ - New York is a diamond iceberg floating in river water. ~~Truman Capote
+ - My name is Percy Jackson. I’m twelve years old. Until a few months ago, I was a boarding student at Yancy Academy, a private school for troubled kids in upstate New York. Am I a troubled kid? Yeah. You could say that. ~~Rick Riordan
+ - Make your mark in New York and you are a made man. ~~Mark Twain
+ - In New York you’ve got to have all the luck. ~~Charles Bukowski
+ - It is often said that New York is a city for only the very rich and the very poor. It is less often said that New York is also, at least for those of us who came there from somewhere else, a city for only the very young. ~~Joan Didion
+ - America has only three cities: New York, San Francisco, and New Orleans. Everywhere else is Cleveland. ~~Tennessee Williams
+ - I’m impressed with the people from Chicago. Hollywood is hype, New York is talk, Chicago is work. ~~Michael Douglas
+ - When I came to New York it was the first time I’d ever taken a plane, the first time I’d ever gotten a taxi-cab, the first time for everything. And I came here with 35 dollars in my pocket. It was the bravest thing I’d ever done. ~~Madonna
+ - In New York I pretty much live in diners – I order French Fries, Diet Coke floats and lots of coffee. ~~Lana Del Rey
+ - From the prodigious hilltops of New Hampshire, let freedom ring. From the mighty mountains of New York, let freedom ring. From the heightening Alleghenies of Pennsylvania, let freedom ring. But not only that: Let freedom ring from every hill and molehill of Mississippi. ~~Martin Luther King Jr.
+ - Globalization has created this interlocking fragility. At no time in the history of the universe has the cancellation of a Christmas order in New York meant layoffs in China. ~~Nassim Nicholas Taleb
+ - England is my home. London is my home. New York feels like, if I have to spend a year living in an unfamiliar city, this is a pretty lovely one to spend a year in, but I will be going home at the end of it, certainly. ~~Daniel Radcliffe
+ - Dada cannot live in New York. All New York is dada, and will not tolerate a rival. ~~Man Ray
+ - When I am in New York, I want to be in Europe, and when I am in Europe, I want to be in New York. ~~Woody Allen
+ - Not like the brazen giant of Greek fame, With conquering limbs astride from land to land; Here at our sea-washed, sunset gates shall stand A mighty woman with a torch, whose flame Is the imprisoned lightning, and her name Mother of exiles. ~~Emma Lazarus
+ - If New York is the City That Never Sleeps, then Los Angeles is the City That’s Always Passed Out on the Couch. ~~Paul Beatty
+ - I was in love with New York. I do not mean ‘love’ in any colloquial way, I mean that I was in love with the city, the way you love the first person who ever touches you and never love anyone quite that way again. ~~Joan Didion
+ - I love New York. I was sad, depressed and incredibly moved by our fellow countrymen and what they’ve done. I wanted to give people a chance to see something funny, have a distraction. ~~Ben Stiller
+ - New York has always been going to hell but somehow it never gets there. ~~Robert M. Pirsig
+ - In New York the sky is bluer, and the grass is greener, and the girls are prettier, and the steaks are thicker, and the buildings are higher, and the streets are wider, and the air is finer, than the sky, or the grass, or the girls, or the steaks, or the air of any place else in the world. ~~Edna Ferber
+ - Boston: Clear out eight hundred thousand people and preserve it as a museum piece. New York: Prison towers and modern posters for soap and whiskey. Pittsburgh: Abandon it. ~~Frank Lloyd Wright
+ - New York is something awful, something monstrous. I like to walk the streets, lost, but I recognize that New York is the world’s greatest lie. New York is Senegal with machines. ~~Federico García Lorca
+ - What’s great about New York is that there are a lot of theater actors and actresses, who are trained actors, that they bring onto the show. They’re so talented, in such a weird, quirky and ominous way. And it’s great to be able to work with new faces, too. ~~Natalie Zea
+ - The shortest unit of time in the multiverse is the New York Second, defined as the period of time between the traffic lights turning green and the cab behind you honking. ~~Terry Pratchett
+ - If I had to think where I could live if not Moscow, London would be my first choice and second would be New York. ~~Roman Abramovich
+ - Given New York City’s cultural diversity, it has always attracted creative people. ~~Fred Wilson
+ - When I got to New York City when I was 18, I started playing in clubs in Brooklyn – I have good friends and devoted fans on the underground scene, but we were playing for each other at that point – and that was it. ~~Lana Del Rey
+ - I was quite depressed two weeks ago when I spent an afternoon at Brentano’s Bookshop in New York and was looking at the kind of books most people read. Once you see that you lose all hope. ~~Friedrich August von Hayek
+ - Sometimes I get the feeling that there are orgies going on all over new York City, and somebody says, ‘Let’s call Desmond,’ and somebody else says, ‘Why bother? He’s probably home reading the Encyclopedia Britannica.’ ~~Paul Desmond
+ - In New York’s Times Square a white-clad girl clutches her purse and skirt as an uninhibited sailor plants his lips squarely on hers. ~~Alfred Eisenstaedt
+ - New York was no mere city. It was instead an infinitely romantic notion. ~~Joan Didion
+ - I was a Republican until I got to New York and had to live on $18 a week. It was then that I became a Democrat. ~~Julia Child
+ - The idea is that there is a kind of memory in nature. Each kind of thing has a collective memory. So, take a squirrel living in New York now. That squirrel is being influenced by all past squirrels. ~~Rupert Sheldrake
+ - The reason I took Early Edition – besides the fact that I liked it – was that it enabled me to start a production company in New York City. It’s a low-budget film company to produce and direct movies. ~~Fisher Stevens
+
+40 quotes

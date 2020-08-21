@@ -1,0 +1,34 @@
+ - Love doesn’t happen in an instant. It creeps up on you and then it turns your life upside down. It colors your waking moments, and fills your dreams. You begin to walk on air and see life in brilliant new shades. But it also brings with it a sweet agony, a delicious torture.
+ - Sometimes street knowledge can be as important as book knowledge.
+ - Never judge a man’s actions until you know his motives.
+ - Global terror does not respect national boundaries.
+ - And I realized again that real life is different from reel life.
+ - Mumbai may not be my city. But it is my kind of city.
+ - The slums are not a place of despair. Its inhabitants are all working towards a better life.
+ - Tokyo may have more money and Kyoto more culture; Nara may have more history and Kobe more style. But Osaka has the biggest heart.
+ - I am neither a Bengali nor am I from Delhi’s St Stephen’s. I am an Allahabad boy.
+ - I wonder what it feels like to have no desires left because you have satisfied them all, smothered them with money even before they are born. Is an existence without desire very desirable? And is the poverty of desire better than rank poverty itself?
+ - I am not into the unrealistic realm of magic realism where birds talk.
+ - The brain is not an organ we are authorized to use. We are supposed to use only our hands and legs.
+ - My books may highlight corruption, brutality and venality, but they also show that if these things come to light, there is rectification. The voiceless do have a voice; democratic mechanisms and accountability do exist.
+ - I want to show that the underdog can win. I believe were all the same: you, a slum girl, my mother.
+ - I became completely addicted to ‘Angry Birds’ for a while.
+ - God made the human body like a machine with built-in obsolescence.
+ - I am very interested in human-interest stories emerging from modern India. I get my inspiration and daily dose by reading the Hindustan Times.
+ - That dreams have power only over your own mind. But with money you can have power over the minds of others.
+ - My books are about ordinary people placed in extraordinary situations who are able to draw upon their inner reserves to challenge the status-quo in life and navigate compelling human relationships.
+ - The writer’s is an interior world, a world of the mind.
+ - One does not question a miracle.
+ - Just because someone has gone to an elite school and college does not make him smarter than the person who has grown up on street knowledge.
+ - I am the luckiest novelist in the world. I was a first-time novelist who wasn’t awash in rejection slips, whose manuscript didn’t disappear in slush piles. I have had a wonderful time.
+ - I did not go to any creative writing workshop; I did not major in literature. If I can write, anyone can write. All it needs is imagination.
+ - People don’t just want a mindless flick with a superstar; they want to connect more deeply.
+ - I need to meet people to be able to write.
+ - My first novel was a challenge to myself. No one had an inkling that I was working on it.
+ - The first thing you have to understand is that I was not desperate to be a writer. I was never a closet writer filing away notes in a cupboard.
+ - A great artist is not one who merely fits into a genre but one who defines the genre.
+ - Indian writers have appropriated English as an Indian language, and that gives a certain freshness to the way we write.
+ - The one conclusion I have reached is that whiskey is a great leveler. You might be a hotshot advertising executive or a lowly foundry worker, but if you cannot hold your drink, you are just a drunkard.
+ - I get invited to many more literary festivals than I used to because I’m associated with ‘Slumdog Millionaire,’ the brand. Many more doors have opened up for me as a result of the global success of the film, although I believe that I’m the same person that existed before it.
+
+32 quotes

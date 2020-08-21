@@ -1,0 +1,43 @@
+ - You are either becoming more like Christ every day or you are becoming less like Him. There is no neutral position in the Lord.
+ - The reason we must put on the whole armor of God is to withstand evil. We don’t war against people, but against a spiritual hierarchy of invisible power.
+ - Forgiveness doesn’t make the other person right, it makes you free.
+ - You know how it feels when you’re in love with somebody and you long to be with that person? God wants us to feel that way about Him.
+ - God, show me how to pray in a way that will make a difference in this child’s life.
+ - Don’t be afraid when you have to pray fervently because of your circumstances. God is wanting to do something great through you!
+ - The truth is you always grow to love the people you pray for. That’s because you develop God’s heart of love for them.
+ - Jesus made it possible for us to have the peace that passes all understanding-the kind that carries us, stabilizes us, grounds us, and keeps us from slipping.
+ - There’s only one power in the world great enough to help us rise above the difficult things we face: the power of God.
+ - God wants to bless us in many ways that require faith. We must trust that He is answering our prayers even when we can’t see it.
+ - I’ve often thought, I’m nobody. Why would God answer my prayer? But God’s not impressed by eloquence; he’s impressed by our longing for him.
+ - It’s not about finding ways to avoid God’s judgment and feeling like a failure if you don’t do everything perfectly. It’s about fully experiencing God’s love and letting it perfect you. It’s not about being somebody you are not. It’s about becoming who you really are.
+ - God wants to lead you to places you cannot get to without Him, and He does that by the power of His Spirit. He can bring you into the realm of the miraculous-not as a show, but as a demonstration of His love and compassion for the lost, hurting, or needy. Who among us doesn’t want or need that?
+ - Don’t think too small about what God could do in your life-be prepared for God to do a big thing.
+ - There are many people who will stay in negative situation because it is familiar, rather than go where there is promise of something good, because that would be something unfamiliar.
+ - In the darkest times of your life, your praise to God should be the loudest. Let the enemy know you’re not afraid of the dark.
+ - It’s important that you keep asking God to show you what He wants you to do. If you don’t ask, you won’t know.
+ - People’s love for us may change, depending on what we do or don’t do to please them. But God’s does not-it’s everlasting.
+ - You must know that you are worth much to me whether you accomplish anything or not. Even if you are rejected in the world’s eyes, you are valuable to me.
+ - Not knowing who God made us to be, trying to be who we are not, or even just desiring to be someone else, can only lead to a life of misery, frustration, and unfulfillment.
+ - Integrity is not what you APPEAR to be when all eyes are on you. It is who you ARE when no one is looking.
+ - We will never be happy until we make God the source of our fulfillment and the answer to our longings. He is the only one who should have power over our souls.
+ - Allow yourself to be possessed by God by receiving Jesus, and you will never be possessed by anything else.
+ - If your prayers haven’t been answered, it doesn’t mean they won’t be answered. In fact, they may have already been answered, but just not in the way you wanted or expected them to be.
+ - We don’t want to limit what God can do in our children by trying to parent them alone – Trust God to take care of them.
+ - God is a place of safety you can run to, but it helps if you are running to Him on a daily basis so that you are in familiar territory.
+ - The most important thing we can pray about for others is that they will know God better and that He will help them understand His will, grow in spiritual wisdom, and live lives that honor Him. We can pray that they will become more like Him and bear the fruit of His Spirit.
+ - The past should not be a place where we live, but something from which we learn.
+ - The greatest sense of love, which is available for us at all times, is God’s love.
+ - It’s in those private times that we are refreshed, strengthened, and rejuvenated. It’s then we can see our lives from God’s perspective and discover what is really important. That’s where we understand who it is we belong to and believe in.
+ - How you respond to the enemy of your soul determines whether his plan for your life or God’s plan for your life is realized.
+ - Talking to God should be part of every aspect of life, in times of peace as well as in every battle.
+ - The enemy wants to steal our peace and keep us stirred up, anxious, fearful, upset, and always in a stance of waiting for something terrible to happen at any minute.
+ - One of the greatest gifts you can give your husband is your own wholeness.
+ - In times of weakness, choose to put yourself under God’s control.
+ - Know that once we have received Jesus, we can’t continue to live our old sinful lifestyle. Now that we have His Holy Spirit living in us, guiding us, and transforming us, we have no excuse.
+ - Praying is not telling God what to do. It’s trusting that God knows what to do.
+ - One of God’s main purposes for your life is to fill you with so much of His love that it overflows onto others.
+ - There are so many things we do not appreciate in our life until we recognize God’s love for us in them.
+ - My dreams had to be His dreams, the ones He placed in my heart. They couldn’t be the ones I thought I should have, or needed for the purpose of making other people like me.
+ - There are many things God wants to do on earth and in people’s lives, but if someone doesn’t leap in and answer the call to pray, it won’t happen.
+
+41 quotes

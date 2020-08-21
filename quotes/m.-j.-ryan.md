@@ -1,0 +1,25 @@
+ - Gratitude connects us to others and feeling gratitude allows us to be our best selves. When we are truly grateful, we can count on living the life we want.
+ - Gratitude is like a flashlight. It lights up what is already there. You don’t necessarily have anything more or different, but suddenly you can actually see what it is. And because you can see, you no longer take it for granted.
+ - Whenever we are appreciative, we are filled with a sense of well-being and swept up by the feeling of joy.
+ - In the moments we are awake to the wonder of simply being alive, gratitude flows, no matter our circumstances.
+ - Take a deep breath and think of the three things you are grateful for, right in this moment.
+ - Gratitude helps us to return to our natural state of joyfulness, where we notice what’s right instead of what’s wrong. It makes us feel complete, that we have everything we need, at least in this moment.
+ - We hold on so tightly that our hands are unavailable to reach out for the happiness we could gain by letting go.
+ - In every single moment, we have the choice to be happy or not. No matter what is going on, we can choose to focus on what is right, what is good and whole in ourselves and our lives, and what options we have in any given situation. In other words, we can choose to be happy no matter what.
+ - The choice is ours, in every moment.
+ - Gratitude makes us feel bursting with delight, just to remember the gifts we have received. Thus we are doubly blessed when we receive something: for the gift itself and later, in recall, for the miracle of having been given it.
+ - Gratitude is the antidote to bitterness and resentment.
+ - We can’t wait until everything is OK-with us or with the rest of the world-to feel thankful, or we will never experience joy at all.
+ - Gratitude is the realization that we have everything we need, at least in this moment.
+ - Patience is no small, fell-good personal quality. It is at the heart of diplomacy and civility, lawfulness and civil order. Without it, people can’t work together and society can’t function at all. With it, we create the possibility of peace between people and between nations.
+ - Like so many other positive acts, it turns out that hugging boosts our immune system. Plus it just plain feels good! So hug someone today, perhaps a person who seems particularly in need.
+ - Gratitude helps us love well by keeping us focused on the beauty in our relationship and the person we love.
+ - Gratitude is a feeling of fullness, a recognition of the heart of what we are receiving in this moment.
+ - People teach what they most need to learn.
+ - Eating healthy and exercising won’t help you if it’s only temporary.
+ - No matter what, I want to experience a sense of peace while talking. As I look out into the audience, Ill remember to breathe and notice that at my core there is peace.
+ - Wholeness invokes balance.
+ - I learned that you don’t have to be saddled for life with the mental attitudes you adopted in early childhood. All of us are free to change our minds, and as we change our minds, our experiences will also change.
+ - At each level of gratitude our soul’s capacity deepens, starting with contentment to meaningfulness, and finally, to pure joy.
+
+23 quotes

@@ -1,0 +1,55 @@
+ - Dreams are manifestations of identities.
+ - I want to get out of here means I want to be innocent.
+ - We come crawling through these cracks, orphans, lobotomies; if you ask me what I want, I’ll tell you. I want everything. Whole rotten world come down and break. Let me spread my legs.
+ - You can’t change old people. Unlike middle-aged people, they do what they want.
+ - Literature is that which denounces and slashes apart the repressing machine at the level of the signified.
+ - Writing must be a machine for breaking down, that is, allowing the now uncontrolled and uncontrollable reconstitutions of thoughts and expressions. All other kinds of writing simply express.
+ - First of all, writing at best – certainly fiction writing – more and more I think is magic.
+ - The personal interiorization of the practice of humiliation is called humility.
+ - The only reaction against an unbearable society is equally unbearable nonsense.
+ - In such a society as ours the only possible chance for change, for mobility, for political, economic, and moral flow lies in the tactics of guerrilla warfare, in the use of fictions, of language.
+ - If you ask me what I want, I’ll tell you. I want everything.
+ - After Hatuey, a fifteenth-century Indian insurrectionist, had been fixed to the stake, his Spanish captors extended him the choice of converting to Christianity and ascending to Heaven of going unrepentantly to Hell. Gathering that his executioners expected to go to heaven, Hatuey chose the other.
+ - There must be a secret hidden in this book or else you wouldn’t bother to read it.
+ - It’s all up to you, girls. You have to be strong. These are the days of post-women’s liberation. You have grown up by now and you have to take care of yourself. No one’s going to help you.
+ - Whereas the slums in Hamburg are the slums of its sailors, Berlin is a big slum.
+ - I find waiting unbearable because it makes me passive and negates me. I hate being nothing.
+ - Women need to become literary criminals, break the literary laws and reinvent their own, because the established laws prevent women from presenting the reality of their lives.
+ - All memory can do is scream for touch.
+ - Pain is the world. I don’t have anywhere to run.
+ - Thats what the right-wing is good at: figuring out the left wing.
+ - Everytime you read, you are walking among the dead, and, if you are listening, you just might hear prophecies.
+ - It was only when we were in that bed, high above the world – then I thought the birds could have been circling around our bodies circled around each other – that we made our world totally separated from everything else. It was the only way we could be together.
+ - I wasn’t really into body piercings until I found that about half my female students had them.
+ - Well, I think writing is basically about time and rhythm. Like with jazz. You have your basic melody and then you just riff off of it. And the riffs are about timing.
+ - But now that she had achieved knighthood, and thought and acted as she wanted and decided, for one has to act in this way in order to save this world, she neither noticed nor cared that all the people around her thought she was insane.
+ - You create identity, you’re not given identity per se. What became more and more interesting to me wasn’t the I, it was text because it’s text that create identity. That’s how I got interested in plagiarism.
+ - Murder is a dream because lack is the center of both.
+ - I understand that postmodern literature probably means people like DeLillo, The Fiction Collective, but I don’t get it that those writers are really influenced by postmodern theorists.
+ - Life doesn’t exist inside language: too bad for me.
+ - Some of the stuff about Yogi energy is really fascinating.
+ - Love goes away when your mind goes away and then you’re someone else.
+ - Those who are driven by poverty, those who’re free from material worries hunger exhausting labor a joyless existence ask the same question, the question of meaning.
+ - I think the best thing in cases of censorship or things like this is to get as much media as possible.
+ - You know I’ve had work banned.
+ - The more rapidly the water moves, the lighter it seems.
+ - I think it’s really important to find out why people hurt you or try to oppose you or whatever.
+ - I’m very staid compared to my students, actually.
+ - A language is the appearances of connections therefore language as in writing doesn’t express anything: it creates.
+ - On the surface we all act like we all love each other and we’re free and easy, and actually we’re far more moralistic than any other society I’ve ever lived in.
+ - The whole world is men’s bloody fantasies.
+ - We get on the bandwagon in all sorts of ways – you know minor ways and major ways – like what you’ve just encountered which isn’t censorship exactly, it was something sort of uglier in a way.
+ - Yeah, I mean, I put work out there for people to use and I’m grateful when you use it.
+ - And I’m working at trying to find a kind of language where I won’t be so easily modulated by expectation.
+ - There’s a point at which when I start to know a man well – this isn’t true of women – I wonder whether there’s something in him that’s evil. Something that’s pure and can’t be touched. This quality of evil may be related to the quality of artistry, for an artist has the same characteristics.
+ - There are times when the law jeopardizes those who obey it.
+ - Every day a sharp tool, a powerful destroyer, is necessary to cut away dullness, lobotomy, buzzing, belief in human beings, stagnancy, images, and accumulation. As soon as we stop believing in human beings, rather know we are dogs and trees, we’ll start to be happy.
+ - I’m what happens after death, which is writing.
+ - Death is another bar which lies several steps below the normal world. I’m at its threshold, but not yet in it. Its doorway is doorless.
+ - I understand that when people read my books that there’s something there – but I don’t identify with it.
+ - A novel is a book with a lot of pages.
+ - Culture is that which falsifies.
+ - I might be writing what people expect me to write, writing from that place where I might be ruled by economic considerations. To overcome that, I started working with my dreams, because Im not so censored when I use dream material.
+ - But : We’re still human. Human because we keep on battling against all these horrors, the horrors caused and not caused by us. We battle not in order to stay alive, that would be too materalistic, for we are body and spirit, but in order to love each other.
+
+53 quotes

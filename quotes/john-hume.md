@@ -1,0 +1,30 @@
+ - I never thought in terms of being a leader. I thought very simply in terms of helping people.
+ - Difference is of the essence of humanity. Difference is an accident of birth and it should therefore never be the source of hatred or conflict. The answer to difference is to respect it. Therein lies a most fundamental principle of peace: respect for diversity.
+ - When people are divided, the only solution is agreement.
+ - The civil rights movement in the United States was about the same thing, about equality of treatment for all sections of the people, and that is precisely what our movement was about.
+ - Every child growing up will look to their parents, my mother and my father. My grandmother lived with us. I picked up quite a bit of family lore and history from her, which was interesting.
+ - The basis of peace and stability, in any society, has to be the fullest respect for the human rights of all its people.
+ - Before the arrival of the Credit Union, people who were from the poor background or a working class background couldn’t borrow from banks.
+ - In working class districts, you had several families living together in the one house, and it was very difficult to get a house, because the politicians who controlled housing were doing so in a very discriminatory fashion.
+ - We’re much closer together in the world today than we ever were in the psot. Given that it is a much smaller world, we are in a stronger position to shape that world. As we enter the new century, and anew millennium, let us create a world in which there is no longer any war or any conflict.
+ - Difference is of the essence of humanity.
+ - All conflict is about difference; whether the difference is race religion, or nationality...
+ - In coming to that agreement, my party had a clear philosophy throughout. In Northern Ireland, we should have institutions that respected the differences of the people and that gave no victory to either side.
+ - My father was a civil servant, fairly sort of middle ranking, low to middle ranking. He worked almost entirely in what was then called Administrative Labour, dealing with employment and unemployment issues.
+ - My father was unemployed and I was the eldest of seven children. We were very poor. And when you ask how did we support ourselves, the only funding that we had was unemployment payments.
+ - Total ghettoization, because they were in charge of public housing, the local council, and they deliberately located people in a ghetto situation in order to ensure that they maintained control.
+ - In my opinion, what changed the situation eventually – and, of course, it took a lot of time to change it, things like that don’t change in a week or a fortnight – was the new educational system.
+ - I grew up in Derry, of course, and it was – Derry was the worst example of Northern Ireland’s discrimination.
+ - I was grateful for the opportunity to make a difference. The political violence really started in 1970-1971. The political difficulties start a little bit beyond that.
+ - The basic policy of the British Government was that since the majority of people in Northern Ireland wished to remain in the United Kingdom, that was that. We asked what would happen if the majority wanted something else, if the majority wanted to see Irish unity.
+ - They believed that Britain was in Ireland defending their own interests, therefore the Irish had the right to use violence to put them out. My argument was that that type of thinking was out of date.
+ - If the word ‘No’ was removed from the English language, Ian Paisley would be speechless.
+ - Therefore they should come to the table and reach an agreement that would protect their identity.
+ - The only thing I shall talk about is my sporting achievements at school. My primary sporting achievement at school was that I dodged games for two complete years and was well through the third year before they discovered that I had completely avoided all games.
+ - There were two mentalities, and both mentalities had to change. There was what I called the Afrikaner mind set of the Unionist politicians, which was holding all power in their own hands, and discriminating, and their objective was to protect their identity.
+ - The violence had broken out in both sides, but our philosophy as a party was very, very clear.
+ - I went to the local schools, the local state primary school, and then to the local grammar school. A secondary school, which technically was an independent school, it was not part of the state educational system.
+ - Like everybody at that age, I read an awful lot of pulp fiction. But at the same time, I also read quite a bit of history and read that as much for pleasure as part of a curriculum.
+ - These are the influences that everybody has. Some individuals might stand out because of one thing or another, but whether one’s perception as a child of what was important or not is accurate, I don’t know.
+
+28 quotes

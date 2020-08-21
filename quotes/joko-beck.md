@@ -1,0 +1,34 @@
+ - We have to face the pain we have been running from. In fact, we need to learn to rest in it and let its searing power transform us.
+ - All I can be is who I am right now; I can experience that and work with it. That’s all I can do. The rest is the dream of the ego.
+ - In spiritual maturity, the opposite of injustice is not justice but compassion.
+ - None of us would choose to be Sisyphus; yet in a sense, we all are.
+ - With unfailing kindness, your life always presents what you need to learn. Whether you stay home or work in an office or whatever, the next teacher is going to pop right up.
+ - You cannot avoid paradise. You can only avoid seeking it.
+ - We have self-centered minds which get us into plenty of trouble. If we do not come to understand the error in the way we think, our self-awareness, which is our greatest blessing, is also our downfall.
+ - Enlightenment is not something you achieve. It is the absence of something. All your life you have been going forward after something, pursuing some goal. Enlightenment is dropping all that.
+ - We are just living this moment; we don’t have to live 150,000 moments at once. We are only living one. That’s why I say you might as well practice with each moment.
+ - We learn in our guts, not just in our brain, that a life of joy is not in seeking happiness, but in experiencing and simply being the circumstances of our life as they are; not in fulfilling personal wants, but in fulfilling the needs of life...
+ - Life is a second-by-second miracle.
+ - It’s of no use to look back and say, “I should have been different.” At any given moment, we are the way we are, and we see what we’re able to see. For that reason, guilt is always inappropriate.
+ - Meditation practice is simply moving from a life of hurting myself and others to a life of not hurting myself and others.
+ - We are always doing something to cover up our basic existential anxiety. Some people live that way until the day they die.
+ - We tend to run our whole life trying to avoid all that hurts or displeases us, noticing the objects, people, or situations that we think will give us pain or pleasure, avoiding one and pursuing the other.
+ - Awareness is our true self; it’s what we are. So we don’t have to try to develop awareness; we simply need to notice how we block awareness with our thoughts, our fantasies, our opinions, and our judgments. We’re either in awareness, which is our natural state, or we’re doing something else.
+ - Trust in things being as they are is the secret of life. But we don’t want to hear that. I can absolutely trust that in the next year my life is going to be changed, different, yet always just the way it is.
+ - To enjoy the world without judgment is what a realized life is like.
+ - We are caught in the contradiction of finding life a rather perplexing puzzle which causes us a lot of misery, and at the same time being dimly aware of the boundless, limitless nature of life. So we begin looking for an answer to the puzzle.
+ - But opinions, judgments, memories, dreaming about the future – ninety percent of the thoughts spinning around in our heads have no essential reality.
+ - There are many people in the world who feel that if only they had a bigger car, a nicer house, better vacations, a more understanding boss, or a more interesting partner, then their life would work. We all go through that one. Slowly we wear out most of our ’if onlies.
+ - Body tension will always be present if our good feeing is just ordinary, self-centered happiness. Joy has no tension in it, because joy accepts whatever is as it is.
+ - We’re constantly waking up to what we’re about, what we’re really doing in our lives. And the fact is, that’s painful. But there’s no possibility of freedom without this pain.
+ - An old Zen rule of thumb is not to answer until one has been asked three times.
+ - If I were to tell you that your life is already perfect, whole, and complete just as it is, you would think I was crazy. Nobody believes his or her life is perfect. And yet there is something within each of us that basically knows we are boundless, limitless.
+ - There is no end to the opening up that is possible for a human being.
+ - Meditation is not about doing something.
+ - There is one thing in life that you can always rely on: life being as it is.
+ - How do we know if our practice is a real practice? Only by one thing: more and more, we just see the wonder. What is the wonder? I don’t know. We can’t know such things through thinking. But we always know it when it’s there.
+ - To some degree we all find life difficult, perplexing, and oppressive. Even when it goes well, as it may for a time, we worry that it probably won’t keep on that way.
+ - Underneath our nice, friendly facades there is great unease. If I were to scratch below the surface of anyone I would find fear, pain, and anxiety running amok. We all have ways to cover them up. We overeat, over-drink, overwork; we watch too much television.
+ - Joy is being willing for things to be as they are.
+
+32 quotes

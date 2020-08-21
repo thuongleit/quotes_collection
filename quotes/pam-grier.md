@@ -1,0 +1,33 @@
+ - I’m a big child at heart. I think it’s important to stay that way and not lose the wonder of life.
+ - I really hate to see abusive behavior being passed on from generation to generation to generation, when we have access to health and counseling.
+ - Let’s start working towards wellness, a healing in our community, a healing in relationships, so male and female can finally sit down and understand that that young boy or young girl saw behavior exhibited by their parents that was negative and abusive and they’re going to pass it on.
+ - I was able to be distant by portraying another person, another character, if you will, and I found myself not stuttering and not having anxiety attacks when I was portraying another soul, another being, and I found comfort in that. I think many actors do, playing someone other than themselves.
+ - That’s what he was saying, the civil rights movement – judge me for my character, not how black my skin is, not how yellow my skin is, how short I am, how tall or fat or thin; It’s by my character.
+ - But I just loved looking at the clothes of the ’70s.
+ - My mother really wanted me to be in possibly a beauty pageant, not only for if I could win, but it helped improve my self-image because of trauma in my childhood and other issues.
+ - My people were homesteading in Colorado before Emancipation.
+ - There are just certain realities about our world and I just happen to be creative within it.
+ - Some day I want to play a grandmother. And a foxy one at that!
+ - I’ve never considered myself to be beautiful, and I still don’t.
+ - I felt beauty was a magnet for abuse, and I had suffered greatly for it.
+ - Does a black person make them an African American? No. There are Hispanics that are very, very dark skinned so the word has lost its meaning, it’s not a very concise or proper word to use even today and it wasn’t then.
+ - Women are allowed more freedoms and we’re fighting for more freedoms, we’re experiencing more freedoms won.
+ - I like to do all kinds of films.
+ - The first movie that I saw was Godzilla and I loved it.
+ - When you are an actor, you bring a tool in your craft but you are not that person.
+ - I wanted to be in film. I wanted to be a film student, possibly be a director or cinematographer, not an actor. That was my goal. I didn’t believe I had the physical beauty that I’d seen projected and advertised in movies, in theater. It just wasn’t for me.
+ - Well, thank you and that’s for them, but for me, I want to look back at a body of work where when you do the research and you explore the psyche of a character, where she’s been, where she is and where she’s going.
+ - Driving a cab is not really a nurturing type of relationship. You take people and they tip you, they may not tip you, you don’t know their names, they don’t care about you, you don’t care about them.
+ - I don’t believe that I should just do A-movies, I just do the work as an artist.
+ - I do a movie once every four years and they call it a comeback.
+ - I don’t know how I did it, but I worked 7 days a week.
+ - I love working with a lot of different films and a lot of different people.
+ - And as I reinvent myself and I’m constantly curious about everything, I can’t wait to see what’s around the corner in newfound art and entertainment and exploration.
+ - I came from poverty and was part of those circumstances.
+ - Thats what I crave that diversity.
+ - I grew up in a family where we weren’t allowed to talk about beauty or to put any emphasis on physical appearance.
+ - My family was very, very receptive to all; all races, religions.
+ - Each time you do a film you gain a lot of experience and build a visual resume where people get to know who you are.
+ - I like serious films, the moneymaking blockbusters that don’t make any kind of sense and John Carpenter films.
+
+31 quotes

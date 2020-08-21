@@ -1,0 +1,80 @@
+ - The momentum of continuous action fuels motivation, while procrastination kills motivation.
+ - Fear is not your enemy. It is a compass pointing you to the areas where you need to grow.
+ - When you live for a strong purpose, then hard work isn’t an option. It’s a necessity.
+ - The more disciplined you become, the easier life gets.
+ - The only thing stopping you is fear, and the only thing that will get you past it is courage. What you do with your life isn’t up to your parents, your boss, or your spouse. It’s up to you and you alone.
+ - Negative feelings mean you’re going the wrong way.
+ - You must give before you can get.
+ - One of the secrets to success is recognizing that motivation follows action.
+ - Hard work is painful when life is devoid of purpose. But when you live for something greater than yourself and the gratification of your own ego, then hard work becomes a labor of love.
+ - I think the best friendships are those that can stand the test of time, where the friendship is based more on who you are than on what you do or what you have.
+ - Don’t die without embracing the daring adventure your life is meant to be.
+ - Hard work pays off. When someone tells you otherwise, beware the sales pitch for something “fast and easy” that’s about to come next. The greater your capacity for hard work, the more rewards fall within your grasp. The deeper you can dig, the more treasure you can potentially find.
+ - When in doubt, act boldly, as if it were impossible to fail. In essence it is.
+ - If you want to achieve some really big and interesting goals, you have to learn to fall in love with hard work.
+ - Passion requires focused direction, and that direction must come from three other areas: your purpose, your talents, and your needs.
+ - When you reach the point of becoming independent of external events, you’re truly free.
+ - I learned that accepting others and accepting myself are two sides of the same coin; you can’t love and accept yourself without doing the same for others.
+ - Our beliefs act as lenses. These lenses can help us see things we can’t otherwise see, but they can also block us from seeing parts of reality.
+ - People often overestimate what they can reasonably achieve in a year. But they vastly underestimate what they can achieve in 5 years.
+ - If you want to experience abundance, then don’t choose a path that ensures scarcity or limitation. Choose a path that has a shot of leading to prosperity. Say no to non-prosperous choices like a job with a fixed paycheck.
+ - If someone offers you a gift, and you decline to accept it, the other person still owns that gift. The same is true of insults and verbal attacks.
+ - It’s been said that the first hour is the rudder of the day. I’ve found this to be very true in my own life. If I’m lazy or haphazard in my actions during the first hour after I wake up, I tend to have a fairly lazy and unfocused day.
+ - Realize that you earn income by providing value – not time – so find a way to provide your best value to others, and charge a fair price for it.
+ - When you discipline yourself to do what is hard, you gain access to a realm of results that are denied everyone else. The willingness to do what is difficult is like having a key to a special private treasure room.
+ - Everyone you meet in your life – even total strangers – are already intimately connected to you. The idea that we are all separate and distinct beings is nothing but an illusion. We are all parts of a larger whole, like individual cells in a body.
+ - Achieving meaningful goals requires that you commit your entire ass, not just one cheek.
+ - I believe the ultimate goal of living and refining your values is to identify and achieve congruence with universal principles.
+ - You must assume 100% responsibility for your financial life. If you’re going to improve your situation, you have to put the full burden of doing so squarely on your own shoulders. First and foremost, you must hold yourself responsible.
+ - We primarily grow as human beings by discovering new truths about ourselves and our reality.
+ - Willpower is a concentration of force. You gather up all your energy and make a massive thrust forward.
+ - Your environment will eat your goals and plans for breakfast.
+ - In reading the biographies of very successful men and women, one theme frequently surfaces: such people have a strong bias for action. Those who achieve high levels of success in some areas of life tend to take a LOT more action than those who settle for average or below average results.
+ - Risk the stuff. It’s worthless anyway. But don’t make the insane choice of sacrificing your happiness for stuff.
+ - For good or ill, your habits will make or break you.
+ - One of my core beliefs is that belief itself is a choice that can be made of our own free will.
+ - One of the fundamental choices you face in every encounter is the choice to approach or avoid.
+ - If you dislike the answers you’re getting from life, try asking better questions.
+ - Saying no isn’t easy, but it’s a required skill if you wish to have any degree of focus in your life. If you say yes too often, you’ll likely fall into the common trap of saying yes to the good while simultaneously saying no to the best.
+ - Passion and purpose go hand in hand. When you discover your purpose, you will normally find it’s something you’re tremendously passionate about.
+ - Thoughts are like seeds. If you want different results in life, you have to figure out which thoughts are capable of growing those results and which aren’t.
+ - You can move beyond the ego’s perspective and see reality from the perspective of a higher consciousness.
+ - If you want to express your creativity, then don’t choose a path where someone else tells you what to do and how to do it. Choose a path where creativity is rewarded, not punished.
+ - If you experience chronic difficulties in a particular area of your life, there’s a strong chance that the root of the problem is a failure to accept reality as it is.
+ - Using passion as your only fuel will no more assure you of success than being in love will ensure a successful long-term relationship.
+ - By all means listen to other people’s advice, but when in doubt go with your gut instinct.
+ - If you really believe something, you will act in accordance with that belief – always. If you believe in gravity, you will never attempt to defy it. If you claim to hold a belief but act incongruently, then you don’t actually believe it. You’re only kidding yourself. Casual faith isn’t.
+ - People in their early 20s are invariably weird.
+ - Spend time cultivating your deepest desires, no matter how impractical or impossible they seem. It’s perfectly OK to want the impossible. It’s not OK to pretend that your desires don’t matter.
+ - Whatever happens to me during the course of my life – physically, socially, or financially – I can always choose to focus on giving. When I’m in that state, nothing else matters. I cease to exist as a separate being and merge into an expression of divine oneness.
+ - Side effect of overemphasizing the importance of personal security in your life is that it can cause you to live reactively.
+ - Our brains are fairly powerful, but our conscious minds are still extremely limited in their ability to hold onto multiple simultaneous thoughts.
+ - Fuzzy thinking leads to hesitancy in acting. Clear thinking makes it easier to act boldly and consistently.
+ - I got screwed over in some bad business deals, but as long as I focused on those past problems, I couldn’t move forward. I had to let all of that go and forgive everyone and everything first.
+ - Your values are your current estimations of truth. They represent your answer to the question of how to live.
+ - I realized that my bliss and my heartbreak both point in the same direction. I follow my joy and my heartbreak simultaneously because they’re two sides of the same coin.
+ - Replace “Have to” with “Want to.”
+ - No one on earth has lived through the exact same experiences you have, and no one thinks the exact same thoughts you do.
+ - You are too free and untamable to be labeled.
+ - It’s funny that when people reach a certain age, such as after graduating college, they assume it’s time to go out and get a job. But like many things the masses do, just because everyone does it doesn’t mean it’s a good idea.
+ - I want my life to have had more value than just acquiring stuff and living comfortably. I may die rich, or I may die broke. But I won’t die with my music still in me.
+ - Curiosity is more flexible and practical than belief.
+ - Waiting for clarity is like being a sculptor staring at a piece of marble, waiting for the statue within to cast off the unneeded pieces. Do not wait for clarity to spontaneously materialize-gra b a chisel and get busy!
+ - If you aren’t working on your goals, you aren’t working. You’re just wasting time.
+ - If you try to impress an alarm clock, it will simply tell you the time.
+ - The most intelligent thing you can possibly do with your life is to grow.
+ - Any relationships that would reject you for being true to yourself are – by definition – abusive relationships. You’ll be much better off when you let them go.
+ - Planning allows you to mentally create a model of your future.
+ - Security is worthless if you have to sacrifice growth to get it.
+ - I believe we can proactively choose to believe whatever we want instead of merely letting our beliefs coalesce as reactions to events.
+ - It should feel genuinely good to earn income from your blog – you should be driven by a healthy ambition to succeed. If your blog provides genuine value, you fully deserve to earn income from it.
+ - To abandon a comfortable lifestyle that isn’t deeply fulfilling is to abandon nothing.
+ - Courageous people are still afraid, but they don’t let the fear paralyze them.
+ - Believing that you must do something perfectly is a recipe for stress, and you’ll associate that stress with the task and thus condition yourself to avoid it.
+ - Your beliefs about reality become your beliefs about yourself.
+ - It’s important to note that you don’t have to earn money from all of your interests. If you just dive in and pursue what you enjoy, you may be surprised to find out which interests help you generate income and which don’t.
+ - Thought and action can be perceived as two different dimensions of who you are: the mental you and the physical you.
+ - If you don’t take the time to get really clear about exactly what it is you’re trying to accomplish, then you’re forever doomed to spend your life achieving the goals of those who do.
+ - A man doesn’t require the approval of others. He’s willing to follow his heart wherever it leads him. When a man is following his heart-centered path, it’s of little consequence if the entire world is against him.
+
+78 quotes

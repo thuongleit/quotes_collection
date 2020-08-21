@@ -1,0 +1,75 @@
+ - They say the two most important days in a persons life were the day you were born and the day you discover why you were born.
+ - You cannot live to please everyone else. You have to edify, educate and fulfill your own dreams and destiny.
+ - I don’t have any time to stay up all night worrying about what someone who doesn’t love me has to say about me.
+ - When you pray, God puts people in your life to lead you when you cannot lead yourself.
+ - You can’t be hesitant about who you are.
+ - Anything can be achieved with a good, healthy dose of courage.
+ - Sometimes you see how humanity can rise above any kind of cultural ills and hate that a person’s capacity to love and communicate and forgive can be bigger than anything else.
+ - In my mind, I see a line. And over that line, I see green fields and lovely flowers and beautiful, white women with their arms stretched out to me over that line, but I can’t seem to get there no how. I can’t seem to get over that line.
+ - I don’t want anyone putting any limits on me.
+ - They say, ‘To serve is to love,’ and I think to serve is to heal, too.
+ - Relationships change us and make us grow.
+ - I would love to be remembered as a person who used her life to inspire others in any way, shape or form.
+ - Ordinary people who are just kind of just going about their lives are transformed into heroes because they have the courage to put their voices out there. I think that’s a powerful message in this time of political strife.
+ - Do not live someone else’s life and someone else’s idea of what womanhood is. Womanhood is you. Womanhood is everything that’s inside of you.
+ - When your passion and drive are bigger than your fears, you just dive.
+ - At the end of the day, nobody can tell you how to tackle failure or how to handle change. The world is very good at encouraging you to go along with the status quo and at basking in your successes.
+ - I’ve always just simply seen myself as an actor. And I believe that it serves me well to just think in terms of my craft. If hypothetically, I saw myself only as a sex symbol, or as some other limited stereotype, I think I would feel like a complete failure.
+ - I can be busy for three years and you may not even know what I’m busy doing because you only see me in a few scenes here or there, but I’ve been working my tail off because there’s just not a lot.
+ - Tyler Perry’s ‘Madea Goes to Jail!’ Which, I have to tell you, of everything that I’ve ever done in my career, that’s the only thing that’s perked up the ears of my nieces and nephews. That is it, that’s done it for them. That made me a bona fide star in their eyes!
+ - We as artists cannot be politicians. We as artists can only be truth-tellers.
+ - You don’t get the pay-off when you’re playing a quiet character, so sometimes you want to just throw out all your work and say, “Okay, let me do something really funny or gimmicky, just so that I can get some attention in this scene.”
+ - I had several teachers who inspired me, in both the public school system and the Upward Bound program. I needed several, because I lived in such abject poverty and dysfunction. And they’re still in my life today, because I consider them to be friends, actually.
+ - Cicely Tyson was my inspiration to become an actor.
+ - We know the road of lack of recognition, of people telling us that we can’t headline a movie because black women don’t translate overseas, that every time we try to break the glass ceiling, people say no, people push back. And it’s everything that people don’t see out there.
+ - The world is very good at encouraging you to go along with the status quo and at basking in your successes. But when you hit a wall in your personal life, and you screw up, people don’t give you a chance to navigate your way through it and tap into what’s extraordinary about you.
+ - I love Wal-Mart. You can put that down. I love Wal-Mart. My husband and I hang out there.
+ - As an artist, you’ve got to see the mess. That’s what we do. We get a human being, and it’s like putting together a puzzle. And the puzzle has got to be a mixture, a multifaceted mixture of human emotions, and not all of it is going to be pretty.
+ - Motherhood is 50 million heartbreaking moments, and 100 million joyous ones.
+ - I guess they say, “Necessity is the mother of invention” because you have two stark choices when you find yourself in a really desperate situation. You can either fold and cave-in to it or you can become really passionate about getting out of it.
+ - I would love to star in a remake of Thelma and Louise. Yep, that’s the one I’d be interested in redoing.
+ - I want to span different genres. I want to be able to transform. I want to be able to be sexy, and funny, and quirky, and all the other things that I am. And I feel that the best way that I can achieve that is by producing.
+ - It’s always hard to be private in public, which is what acting is because you have to do thing really emotionally naked.
+ - And ‘classically not beautiful’ is a fancy term for saying ugly. And denouncing you. And erasing you.
+ - Creativity only resonates if you infuse real life into the work.
+ - And I sit in my jacuzzi with my script.
+ - Your internal dialogue has got to be different from what you say. And, you know, in film, hopefully that registers and speaks volumes. It’s always the unspoken word and what’s happening behind someone’s eyes that makes it so rich.
+ - I want my work to reflect my level of gifts and talent.
+ - Let me tell you something: The only thing that separates women of color from anyone else is opportunity. You cannot win an Emmy for roles that are simply not there.
+ - We grew up in abject poverty. Acting, writing scripts and skits were a way of escaping our environment at a very young age.
+ - If the opportunity is not out there for you to play it, then you don’t see it.
+ - I’ve been to acting school and I think that at the end of the day, when you just focus on the work and you’re comfortable with who you are, that at some point someone’s going to recognize your talent and give you an opportunity.
+ - I am not a glam woman – this definitely is a mask I put on for the public.
+ - I do believe that there are African Americans who have thick accents. My mom has a thick accent; my relatives have thick accents. But sometimes you have to adjust when you go into the world of film, TV, theatre, in order to make it accessible to people.
+ - When you’re really passionate, you’re going to grab hold of every rope you see, and wrap them around your arms and legs to claw your way out. And that’s the way I’ve felt in my life.
+ - It’s harder to work with people who are not as dedicated to their craft. It also leaves you a better actor when you finish the project, since you always feel like you’ve learned something.
+ - I think that you always want to gravitate towards people who absolutely are great at what they do and go for authenticity.
+ - You cannot win an Emmy for roles that are simply not there.
+ - People are just not impressed by me at home.
+ - I started a production company out of necessity, the need for great narratives for actors of color.
+ - No matter what, people don’t think of me for glamorous parts. I’ll go to an audition or a meeting in a pretty dress, and they still think of me as depressed or embattled. Hopefully, that will change.
+ - It feels really good to embrace exactly who I am and be my sexy, to be my sexualized, to be my woman.
+ - It’s time for people to see us, people of colour, for what we really are: complicated.
+ - Ultimately, it’s not your job, as an actress, to satisfy people’s expectations or image of who you should be. Even in your life, you are just who you are.
+ - It’s not anything that is just perpetuated by White America or just perpetuated by Black America. It’s just a cultural understanding that you’re just not a part of the equation when it comes to sexuality and I think that people mistake your lack of opportunity with the level of your talent.
+ - It’s harder to play a quiet character because everything happens in their stream of consciousness. They’re thinking and feeling the world, but they’re saying very little, so then you have to communicate it through your behavior.
+ - The sentiment that I had a little trouble with was the idea that, “You change the school, you change the community.” I couldn’t wrap my mind around that.
+ - When you’re working as an actor, you don’t think that when you get out of school, it’s going to be so hard to get a job. Just to get a job. Any job. Whatsoever. You don’t think that people are going to see you in a certain way.
+ - And that’s what people want to see when they go to the theater. I believe at the end of the day, they want to see themselves – parts of their lives they can recognize. And I feel if I can achieve that, it’s pretty spectacular.
+ - I needed to make my wig ogg because I no longer wanted to apologize for who I am.
+ - All you really need to do is shift people just a tiny bit for change to happen. It doesn’t have to be huge and humongous.
+ - You absolutely feel, as a black actress, that you’ve got to ride the wave because there’s just so few roles. I hate to play that card, but it’s the truth. There’s not a lot of roles.
+ - I can’t speak for the Kathryn Stockett, but I would guess that she feels proud of the progress the South has made because, growing up, she experienced a very different Mississippi than the one that exists today.
+ - I think that’s something that people feel that I do really well; I don’t mind it, because ultimately I think the characters I play move people, and who wouldn’t want to move people?
+ - I think that I’m coming off as the biggest alcoholic in the world.
+ - I am not a writer, but I feel that when our production company is successful, we’ll be able to give some young writers with fresh voices an opportunity to put their work out there.
+ - When you see what the deficit is, then you have to do something about it.
+ - I’ve always seen myself for who I am, which is a lot of things.
+ - To me, it’s always a luxury to be able to work with the best of the best because they make it easier for you to do what you do.
+ - That’s how I digest it, ’cause I can press the fast-forward button and I know that I’m gonna have to continue to be an actor, continue to make choices, continue to perform in a show every week.
+ - One of the people I’ve always wanted to emulate in pursuing that dream was Meryl Streep, in terms of the different types of roles she’s been able to play and the number of different stories she’s been able to tell.
+ - Eating bread in Hollywood is a no-no!
+ - Sometimes you take a job for the money, sometimes you take it for the location, sometimes you take it for the script; there are just a number of reasons, and ultimately what you see is the whole landscape of it. But I can tell you from behind the scenes – that’s what it is, as an actor.
+ - It would be great to bust through and make history. But what’s more important is the opportunity to continue to get roles that are complicated and wonderful, to be a part of the narrative and to get to do what our counterparts are able to do. It doesn’t just stop at holding an award.
+
+73 quotes

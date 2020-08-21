@@ -1,0 +1,102 @@
+ - Do you know what fear stands for? False Evidence Appearing Real.
+ - Every journey starts with fear.
+ - I hope that when the world comes to an end, I can breathe a sigh of relief, because there will be so much to look forward to.
+ - Don’t listen to what anybody says except the people who encourage you.
+ - I’m more Baskin-Robbins style myself.
+ - I think that we all have within us the potential for almost anything. If we play close attention to our lives, then we can get at it somehow.
+ - I have an overactive brain, and as a result of that, I can really get in my own mind. So I like to try and exercise it to the point of exhaustion.
+ - I promise that, one day, everything’s going to be better for you.
+ - Don’t listen to what anybody says except the people who encourage you. If it’s what you want to do and it’s within yourself, then keep going and try to do it for the rest of your life.
+ - When somebody’s really good, they’re not just thinking about their job.
+ - Often times it’s really hard for me to articulate why I connect to something.
+ - Really, contrary to popular belief, I like to have a good time and not take myself too seriously.
+ - You can’t just lump things into two categories. Things aren’t that simple.
+ - I love movies that are saying things that people might find odd at times. I don’t find them odd at all. They give me comfort.
+ - By cool, I don’t mean cool. I mean vulnerable and a mess.
+ - Sometimes love is calm and easy and sometimes it’s just plain dirty.
+ - I think I work as hard as I do now, because of a lot of lessons I’ve learned early on.
+ - I’m superstitious a little bit.
+ - To me Donnie Darko was about adolescence. And about how, as soon as you start to grow up and you sort of move out into the world, you realize everything is so trippy. That anything can be anything.
+ - I started to realize I love study, I love the study of human behavior.
+ - I fooled around with Heath Ledger and Michelle Williams got pregnant.
+ - On a spiritual level, on a place where you want to be a better human being and listen more, I try. I joke, but it has. I mean, I don’t consider myself a card-carrying Buddhist, you know. But I do believe deeply in the ideas, and I think anytime you have interest in anything, it somehow humbles you.
+ - Every man goes through a period of thinking they’re attracted to another guy.
+ - In work, never have any regrets and always leave everything on the field.
+ - I’ve become obsessed with learning other languages in movies, because I was like, since I was like, but I learned how to box so why don’t I just learn another language for a movie?
+ - Dad, I may not be the best, but I come to believe that I got it in me to be somebody in this world. And it’s not because I’m so different from you either. It’s because I’m the same. I mean, I can be just as hard-headed, and just as tough. I only hope I can be as good a man as you.
+ - Sometimes what I actually love to do is go to a farm and get fresh milk or watch a pig get slaughtered.
+ - Romance is important, but to have a friend you can use as a mirror, who can give you an objective response, that’s what’s really important.
+ - I walk around thinking job to job, trying to not have regrets.
+ - Other people’s belief changes you. We all have insecurity, and uncertainty, and to have that glow cast over you by somebody that you respect, makes a gigantic difference.
+ - I don’t think I’ve made a mistake. I think I have behaved in ways that I am proud of; I think I’ve behaved in ways I’m not.
+ - You know, it’s flattering when there’s a rumor that says I’m bisexual. It means I can play more kinds of roles. I’m open to whatever people want to call me. I’ve never really been attracted to men sexually, but I don’t think I would be afraid of it if it happened.
+ - I hope I’m a spiritual person. I’m trying to be a spiritual person.
+ - I love artists. I love watching other people work.
+ - I’m open to whatever people want to call me.
+ - I like that when you create you really do create with a very small group of people, and in that space, before it goes out to all these people, that’s what I love.
+ - Crazy people don’t sit around wondering if they’re nuts.
+ - There are lines that just stick with me, like I mean I still can remember it’s like every line that I say from Nightcrawler, I mean it’s just always there.
+ - I like the conscious manipulation that a great director can have. When you’re both complicit in the manipulation of an emotion.
+ - I’m a very political person, and I make political choices in my movies.
+ - Being a star doesn’t last. That’s not what life should be about. It’s a complete illusion that really has nothing to do with you. For me, finding out about life is the most important thing.
+ - I’m a harsh critic, you know? I am.
+ - To me I just, I’m a geek when it comes to cinematographers. And when it comes to Robert and when it comes to someone like Roger Deakins who shot Prisoners and he shot Jarhead.
+ - I love ‘Training Day’ – that’s a great movie.
+ - It’s funny to me that people find other people getting coffee really interesting, or walking their dog in the dog park.
+ - Uta Hagen would say, there’s the representational actor and the presentational actor.
+ - My experience on ‘Jarhead’ was life changing.
+ - I love storytelling, you know, beyond anything. I love a great story beyond a great performance. Storytelling is about what we all do together and how we collaborate together. A performance can be a collaboration in ways, but oftentimes it’s one individual thing.
+ - I was brought up, and my sister too, with two people who were always saying, “What you do is really nowhere near as important as the things that are going on in the world, and if your work needs to reflect that, or you want it to, then you need to strive for a certain type of excellence.”
+ - I have a profound respect for cinematographers. That is my secret sauce. Like they are everything to me.
+ - I wasn’t really quite sure where Heath Ledger came from, and I think that’s the feeling most people got when they were around him and why he was so extraordinary.
+ - I think I’m not in this work to not look at life as it is. I’m not in it to say, “I want to wear a mask and escape,” you know. I want to know what’s happening in the world, and I want to have it touch me in a way that I can do something, my little part like that, and have it somehow translate.
+ - I think I find tactile things, you know. Just the feeling of blood itself is enough for me. If you, even if it’s not real blood. I mean that’s enough, like sometimes there are very simple things that are enough.
+ - I think my family love each other so much and expect so much from each other, and I think we expect a type of honesty in the work that we all do.
+ - There’s always an intellectual side to the films Ang Lee’s doing and to the characters, and there’s such a deep knowledge when you’ve worked with the actors that he’s worked with, on stage in particular, but also in film.
+ - I think, in the initial process of discovering a character and the analytical process – and this is what I did take from Buddhism – initially I think there has to be an analytical, intellectual approach. And that has to be abandoned by the time you’re playing the game.
+ - Hardest emotion? They’re all pretty damn hard; I don’t know really if there’s one specifically, but I do think, I don’t know what’s happening or what I’m feeling when I’m actually listening.
+ - Even as an actor, I think like a storyteller. My parents raised us to look at the script.
+ - When I was young, before school, my father would wake me up and we would go running together. A love of being physical, being active and being outside was something he instilled in me.
+ - There are standards. I like to be prepared, I guess I should say – that type of pressure of, “All right, now you go with abandon,” you know. Now when you’re in it, you let go of all the things – that’s what happens when you’re onstage.
+ - People say to me, well “What’s the character you really want to play?” And I go, I don’t know.
+ - I think, when someone say, “When did you feel like an actor?” it’s those moments when I feel like, “I’m an actor, wow.” That’s an extraordinary moment for me. So it’s not like I walk around going, “I’m an actor.”
+ - At Columbia there’s no performing arts department, so I was searching for it everywhere I could, and I took some photography classes and I ended up becoming fascinated with Eastern Religion, and ultimately it seemed to encompass the more abstract mind that I have.
+ - I admire actors and artists who devote just as much time to their life as they do to their work.
+ - They’re the darkest people I know, comedians.
+ - I think it’s important for every man to find the right woman and every woman to find the right man.
+ - The truth is most of the films that make a lot of money no one remembers, and I’m not interested in making films that no one remembers.
+ - In that way, as an actor in particular, you’re powerless. And so in that way as an actor in particular you can’t make mistakes.
+ - When you have the opportunity to choose projects, inevitably you start being moved towards the things that you’re moved by, right? And that changes over time, as we change, right?
+ - I don’t think I’m sharp enough to not prepare and come on set and kill it.
+ - Sometimes you need an anchor, whatever it might be. You need a space to connect. So often you get into a way of doing things.
+ - I always find you go back to an animal; it will always show you the sort of primal aspects of behavior. You always know how to respond if you choose that.
+ - As an actor, no matter what, you’re at the whim of so many other people all the time.
+ - I want, overall, to trust what I know is right. There have been many times when I haven’t.
+ - I was working with Michael Shannon and I was like, “Oh man I’m having trouble with this scene.” And he’s like, “Well, then just open it up.” I was like, “But, the mark?” And I was like, what’s wrong with me? And he was like, “Dude, what’s wrong with you?”
+ - There are a lot of different things that are spinning and connecting when your family sees what you do.
+ - When you find theater writing like in the theater on film but it’s realistic, it doesn’t matter who the character is, you want to do it.
+ - The best thing that I got was rehearsing with my father. It was always about the process of figuring things out, and trying something new, and having another take on something and keeping it alive.
+ - My mum raised us on classic movies and a lot of musical theatre.
+ - I didn’t know many classes where I could try and relate the thing that I really loved and wanted to do into an intellectual idea.
+ - As a producer, you have an opportunity to see the whole and bring people together.
+ - I’m always nervous about it. You know, somehow, without even knowing it, I try and recreate the idea of what it feels like to go in front of an audience every night when I’m making a film. And that similar type of pressure and excitement before a scene, or preparing for a movie, so...
+ - Do I take care of my body and take conditioning seriously? Yes.
+ - I had not spent a ton of time around animals as a kid.
+ - In a perfect world, I would love to do one play for every three movies.
+ - I’ve decided as an actor the only, the power I have really is in the performance. It’s the only real place I get to sort of communicate.
+ - Theater has given me a different perspective on the way I approach films.
+ - My mum and dad are pretty amazing chefs and they spent most of my childhood cooking really extravagant things for my sister and me.
+ - Not to say that you should be constantly trying to change the world, but I think it’s important to know that whatever we do has an implication and has an effect, and because of that it is political.
+ - We all develop relationships with each other based on our first relationships, and then how we experience them. But inevitably they are echoes of earlier on. In my belief.
+ - As much as I am one for real human interaction, I also want to make a show that’s entertaining and that people want to see.
+ - I don’t have a “I want to play this or that,” I just don’t have that. I’ve never been like that.
+ - I think my strength is to do a take all the way through. I am definitely not someone who can do a sprint. Maybe I am not that smart, but it takes me a while to find the moment, and I like to be pushed toward it.
+ - As an actor, I feel like I’m somebody who, when somebody gives me a mark, I don’t want to hit it. I don’t like that. But then, without even knowing it, I just hit it.
+ - I like the idea of the adventurer’s spirit. I think that is very much what a man searches for, in a certain way.
+ - I think you hear a lot of people say ‘I support the troops’ and all of that, but I really feel deeply that I do.
+ - When I walk into a screening, I’m nervous in a different way than I am as an actor. But the response is ultimately I know how I feel about it and that’s what matters to me the most.
+ - I think that I have done work where I feel like I’ve challenged myself, and then what’s even more confusing is I’ve done work where I think I’ve challenged myself and no one’s responded to it, and no one’s interested in it.
+ - I think, now, younger generations do take that for granted in a lot of ways. I don’t think that takes away from the struggle of identity and what that is. But the struggle for identity is everybody’s struggle. No matter what it is.
+ - There’s no shame in somebody who doesn’t necessarily do that job knowing a little bit more in that instance than you might know about your own job, you know, and I think that is where movies are such a collaborative art form.
+
+100 quotes

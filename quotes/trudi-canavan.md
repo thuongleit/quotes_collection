@@ -1,0 +1,23 @@
+ - Better to know the quick pain of truth than the ongoing pain of a long-held false hope.
+ - There’s always a bit of truth in each rumour, the trouble is finding out which bit. – Tayend.
+ - I wound up studying art and design, got a job at Lonely Planet Publications as a designer, cartographer and illustrator.
+ - If your appearance is all people see, they have no respect for your mind.
+ - It is said, in Imardin, that the wind has a soul, and that it wails through the narrow streets because it is grieved by what it finds there.
+ - Unquestioning obedience is for slaves, the uneducated and the pathetic.
+ - I always love writing the third book in a series because you get to tie up all the threads that you put out in the first two books. You finally let people know what really happens and reveal all the secrets and bring certain characters together.
+ - Though I can’t help feeling a sudden death cheats you of something. Death is an experience of life. You only get one death. I would like to be aware it was happening, even if that did mean enduring pain and fear.
+ - The Magicians Apprentice was about someone from the low end of society manifesting magical power and how that completely messes up the balance of the whole system.
+ - Wisdom and knowledge is everywhere, but so is stupity.
+ - Happy endings are a luxury of fiction.
+ - Inspiration comes from so many sources. Music, other fiction, the non-fiction I read, TV shows, films, news reports, people I know, stories I hear, misheard words or lyrics, dreams.
+ - I still recommend reading travel guides as an insight to a travellers perspective on fantasy worlds. Nearly all characters end up travelling at some point, and they have many of the same needs and concerns covered in travel guides.
+ - It was impossible to imagine the aloof, dignified, powerful High Lord living as, of all things, a slave.
+ - I have always been fascinated by the supernatural elements in stories, whether fairy tales, myths, film or literature.
+ - Cery: So, Hem, tell me why I shouldn’t see how many holes I need to make before you start leaking money?
+ - What was I thinking? Of all the assistants I could have wound up with, why did I have to choose the one with the scary mother and troublemaking in his bloodlines? I am doomed.
+ - Mortals did not need gods to order them to kill eachother. They were quite capable of finding reasons to do so themselves.
+ - How am I going to make friends with these people if all I can think of is how easy it would be to rob them?
+ - He had given her too much. He had given her everything.
+ - Nodding, Cery strode to the door and stepped through. Though the burly guards eyes him suspiciously, Cery smiled back. Never make enemies of someone’s lackeys, his father had taught him. Better still, make them like you a lot.
+
+21 quotes

@@ -1,0 +1,42 @@
+ - Losers quit when they fail. Winners fail until they succeed. ~~Robert T. Kiyosaki
+ - If you learn from defeat, you haven't really lost. ~~Zig Ziglar
+ - If you want to increase your success rate, double your failure rate. ~~Thomas J. Watson
+ - Being defeated is often a temporary condition. Giving up is what makes it permanent. ~~Marilyn Vos Savant
+ - In order to succeed, your desire for success should be greater than your fear of failure.  ~~Bill Cosby
+ - I’ve missed more than 9000 shots in my career. I’ve lost almost 300 games. 26 times, I’ve been trusted to take the game winning shot and missed. I’ve failed over and over and over again in my life. And that is why I succeed. ~~Michael Jordan
+ - Those who dare to fail miserably can achieve greatly. ~~John F. Kennedy
+ - Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. ~~Thomas A. Edison
+ - I have not failed. I’ve just found 10,000 ways that won’t work. ~~Thomas A. Edison
+ - Success is not final, failure is not fatal: it is the courage to continue that counts. ~~Winston Churchill
+ - Experience is merely the name men gave to their mistakes. ~~Oscar Wilde
+ - Success is stumbling from failure to failure with no loss of enthusiasm. ~~Winston Churchill
+ - It is impossible to live without failing at something, unless you live so cautiously that you might as well not have lived at all – in which case, you fail by default. ~~J.K. Rowling
+ - Success depends upon previous preparation, and without such preparation there is sure to be failure. ~~Confucius
+ - Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire. ~~Oprah Winfrey
+ - You may have a fresh start any moment you choose, for this thing that we call ‘failure’ is not the falling down, but the staying down. ~~Mary Pickford
+ - There are no secrets to success: don’t waste time looking for them. Success is the result of perfection, hard work, learning from failure, loyalty to those for whom you work, and persistence. ~~Colin Powell
+ - You may encounter many defeats, but you must not be defeated. In fact, it may be necessary to encounter the defeats, so you can know who you are, what you can rise from, how you can still come out of it. ~~Maya Angelou
+ - Once we realize that imperfect understanding is the human condition there is no shame in being wrong, only in failing to correct our mistakes. ~~George Soros
+ - Failure is not a single, cataclysmic event. You don’t fail overnight. Instead, failure is a few errors in judgement, repeated every day. ~~Jim Rohn
+ - Failure is simply an opportunity to begin again, this time more intelligently. ~~Henry Ford
+ - If you fell down yesterday, stand up today. ~~H. G. Wells
+ - I can accept failure, everyone fails at something. But I can't accept not trying. ~~Michael Jordan
+ - Our greatest glory is not in never falling, but in rising every time we fall. ~~Confucius
+ - Excuses are the nails used to build a house of failure.  ~~Jim Rohn
+ - Do not be embarrassed by your failures, learn from them and start again. ~~Richard Branson
+ - It’s fine to celebrate success but it is more important to heed the lessons of failure. ~~Bill Gates
+ - There is only one thing that makes a dream impossible to achieve: the fear of failure. ~~Paulo Coelho
+ - Anyone who has never made a mistake has never tried anything new. ~~Albert Einstein
+ - I don’t know the key to success, but the key to failure is trying to please everyone. ~~Bill Cosby
+ - Never confuse a single defeat with a final defeat. ~~F. Scott Fitzgerald
+ - Forget about the consequences of failure. Failure is only a temporary change in direction to set you straight for your next success. ~~Denis Waitley
+ - Defeat is not the worst of failures. Not to have tried is the true failure. ~~George E. Woodberry
+ - Failure will never overtake me if my determination to succeed is strong enough. ~~Og Mandino
+ - I didn’t fail the test, I just found 100 ways to do it wrong. ~~Benjamin Franklin
+ - Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. ~~Dale Carnegie
+ - You build on failure. You use it as a stepping stone. Close the door on the past. You don't try to forget the mistakes, but you don't dwell on it. You don't let it have any of your energy, or any of your time, or any of your space. ~~Johnny Cash
+ - Failure is not fatal, but failure to change might be. ~~John Wooden
+ - Do not fear mistakes. You will know failure. Continue to reach out. ~~Benjamin Franklin
+ - For every failure, there’s an alternative course of action. You just have to find it. When you come to a roadblock, take a detour. ~~Mary Kay Ash
+
+40 quotes

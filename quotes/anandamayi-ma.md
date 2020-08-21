@@ -1,0 +1,22 @@
+ - Acquire a firm will and the utmost patience.
+ - Try to treat with equal love all the people with whom you have relations. Thus the abyss between ‘myself’ and ‘yourself’ will be filled in, which is the goal of all religious worship.
+ - There is One unchanging indivisible Reality which, though unmanifest, reveals Itself in infinite multiplicity and diversity.
+ - When by the flood of your tears, the inner and the outer have fused into One, you will find Her whom you sought with such anguish, nearer than the nearest, the very breath of life, the very core of every heart.
+ - Reality is beyond speech and thought. Only that which can be expressed in words is being said. But what cannot be put into language is indeed That which IS.
+ - A tree is like a saint. It calls no one to itself, nor does it send anyone away. It offers to protect everyone who wants to come to it, whether this be a man, a woman, a child, or an animal.
+ - Either melt by devotion the sense of separateness, or burn it by knowledge-for what is it that melts or burns? Only that which by its nature can be melted or burnt; namely the idea that something other than your Self exists. What will happen then? You come to know your Self.
+ - To believe in Him under any particular form is not enough. Accept Him in His numberless forms, shapes and modes of being, in everything that exists. Aim at the whole and all your actions will be whole.
+ - How many lives are frittered away, age after age, in endless coming and going. Find out who you are!
+ - The same inexpressible Truth is experienced in two ways: as Self-luminous Silence, or as the Eternal Play of the One.
+ - When the mind is full of worldly desires, it is their very nature to confuse the mind. Withdraw the mind from outer things and turn it inwards.
+ - Ever afterward, though the dance of creation change around me in the hall of eternity, I shall be the same.
+ - Single-minded devotion engenders deep thought, which expresses itself in action. The Lord’s Light descends on the devotee, His power awakens in him and, as a result, profound inner inquiry blossoms forth.
+ - In ‘whichever direction’ you may turn your gaze you will find One Eternal Indivisible Being manifested. Yet, it is not at all easy to detect this Presence, because He interpenetrates everything...
+ - Who is it that loves and who that suffers? He alone stages a play with Himself; who exists save Him? The individual suffers because he perceives duality. It is duality which causes all sorrow and grief. Find the One everywhere and in everything and there will be an end to pain and suffering.
+ - It may be asked, why there cannot be one and the same path for all? Because He reveals Himself in infinite ways and forms – verily, The One is all of them.
+ - Precious gems are profoundly buried in the earth and can only be extracted at the expense of great labor.
+ - As you love your own body, so regard everyone as equal to your own body. When the Supreme Experience supervenes, everyone’s service is revealed as one’s own service. Call it a bird, an insect, an animal or a man, call it by any name you please, one serves one’s own Self in every one of them.
+ - In Him is Everything. Him you must try to find.
+ - He alone knows to whom He will reveal Himself under which form. By what path and in what manner He attracts any particular man to Himself with great force is incomprehensible to the human intellect. The Path differs indeed for different pilgrims.
+
+20 quotes

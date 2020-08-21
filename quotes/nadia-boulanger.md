@@ -1,0 +1,24 @@
+ - To study music, we must learn the rules. To create music, we must break them.
+ - Without discipline, there can be no freedom.
+ - Music was not invented by the composer, but found.
+ - The art of music is so deep and profound that to approach it very seriously only is not enough. One must approach music with a serious rigor and, at the same time, with a great, affectionate joy.
+ - Without order there can be no inner satisfaction. Without inner satisfaction there can be no freedom. Without freedom there is no joy.
+ - Do not take up music unless you would rather die than not do so.
+ - Everything we know by heart enriches us and helps us find ourselves. If it should get in the way of finding ourselves, it is because we have no personality.
+ - It is nothing to succeed if one has not taken great trouble, and it is nothing to fail if one has done the best one could.
+ - Nothing is better than music; when it takes us out of time, it has done more for us than we have the right to hope for.
+ - It is one thing to be gifted and quite another thing to be worthy of one’s own gift.
+ - Never forget that your days are blessed. You may know how to profit by them, or you may not, but they are blesses.
+ - Great art likes chains. The greatest artists have created art within bounds. Or else they have created their own chains.
+ - Art is not emotion. Art is the medium in which emotion is expressed.
+ - The history of harmony is the history of the development of the human ear, which has gradually assimilated, in their natural order, the successive intervals of the harmonic series.
+ - Do nothing for effect. Do it for truth.
+ - I adore tradition. I cannot stand habit. Simply to repeat is nothing, also to destroy is nothing. Tradition is never interrupted, we are always evolving but never interrupted.
+ - Words created divergencies between beings, because their precise meanings put an opinion around the idea. Music only retains the highest and purest substance of the idea, since it has the privilege of expressing all, whilst excluding nothing.
+ - There is nothing boring in life except ourselves.
+ - You should never listen to someone practice. That is their work and theirs alone.
+ - Without a strong cup to carry the emotion, it is only a curiosity. Great art can come to us only in strong cups. Without emotion, there is nothing to carry.
+ - False notes can be forgiven, false music cannot.
+ - It is easier to analyze a work in its form, in its evolution, than simply to love it with all the living forces of our heart. It is easier to define its peculiarities and its details than to draw out of it its emotion, its thought.
+
+22 quotes

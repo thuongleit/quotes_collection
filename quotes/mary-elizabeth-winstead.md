@@ -1,0 +1,68 @@
+ - If you let too many cooks in the kitchen it could cloud your vision of what you want to do.
+ - I was that overachieving, annoying kid who was always trying to win some contest or win the role. I look back on it now and I’m like, “Chill, man.” Calm down.
+ - For any addict, when you get sober, life becomes more challenging, in some ways, because all of your problems become very clear and you have to deal with your pain. You can’t just drink and forget about it and pretend it doesn’t exist. You have to actually face it, head on.
+ - Usually a lot of moviemaking is boring.
+ - You don’t have to play masculine to be a strong woman.
+ - I have a sister who is a dancer and dance teacher. We grew up dancing together. I wanted to become a ballerina when I was a kid, so she and I were always at ballet conservatories and going to school with our hair in buns.
+ - Kensington Market is a must visit place in Toronto.
+ - I can remember when Pulp Fiction came out. I was, like, 10 years old. But I remember the impact that it had.
+ - I don’t have any premonitions. I don’t have any supernatural powers. I just have a typical woman’s intuition, and I go with that.
+ - I think thinking about becoming an adult, and having to face up to your problems and face up to your insecurities, is difficult for everybody.
+ - Particularly for women, I think more of us in the industry need to just do it. I think guys are more willing to put themselves out, that way, at least with the girls that I know. We say we want to direct, but then we don’t actually do it.
+ - Any addict in recovery would say that life never becomes perfect. Your life is better, but that doesn’t mean it’s easier. Life, at least for a certain period of time, becomes harder and you have to work through that to get to the light at the end of the tunnel.
+ - I come from a pretty scientific family. My sister is a neurologist and my brother is an engineer.
+ - So, they have the same vibe of like that fun kind of spirit, but this one’s a lot more serious. It’s like, get it done, get it done right, you know? It’s got to be perfect. We definitely do lots of takes on this.
+ - I think since I’m not particularly well-known as myself, it’s funny all the different perceptions people have of me. Like, if someone’s only seen me in ‘Death Proof,’ they think I’m sort of a ditzy girl who says stupid things and wears revealing outfits all the time.
+ - Sometimes, with directors, you have to take what they say and translate it in your head, into something that makes sense to you, because you’re speaking two different languages.
+ - I can’t say I was much of a gamer growing up or that I am now, but I’m certainly part of that culture or it’s part of, you know, the sort of time that I grew up in.
+ - The more I work the happier I am.
+ - It’s always been a lot of fun for me, just to be in films that people see and they connect to, big or small. The big ones tend to reach a wider audience, so it’s exciting to feel like you’ve got fans in countries, all over the world, who are watching what you’re doing. That’s really great!
+ - I’ve never worn incredible clothes – I’m not used to playing someone so put together and fashionable.
+ - You’re literally sized up with measuring tape as a 13- or 14-year-old girl. I wanted to opt out of that experience.
+ - Obviously, we’re all going to die at some point. Whether or not we are fated to die in some way I think is debatable. I just don’t know which side to debate.
+ - I have a lot of different traits to my personality, depending on who I’m around, and what the dynamic in the situation is.
+ - There are obviously people who want to be very niche, but I think for the most part everybody is trying to reach a larger audience.
+ - I mean every character you totally, you know, the full fiber of the personality is kept in the film, and all of those little moments, all those funny little tidbits are all in there.
+ - I’ve been performing since I came out of the womb. I’ve been dancing and singing since I was a toddler. Acting seemed like a natural progression from that.
+ - Once I’ve accepted a role, I’ll let my parents and my sisters read it because they find it entertaining.
+ - My first paying job was guest starring in ‘Touched By An Angel’ when I was 12. It was very exciting. I couldn’t believe you got free food all day and people were so nice to you.
+ - I found my way into the indie world a bit late in my career, but it was something that I was really passionate about doing.
+ - I feel like most horror films are made for teenagers about teenagers. I’ve done a couple of those horror films. There’s nothing wrong with that but the older I get the more I starve for more adult material.
+ - I actually came to New York when I was 12 and did ballet school for a little while. I was being groomed to be professional, and a lot of the professors and teachers there were drawn to me and thought that I could become a professional ballerina.
+ - Which is so important, I mean, that’s what’s so great about the books, is, you know, those two worlds are sort of, the slacker world of just comedy and laziness and then this crazy, over the top action, supernatural world, and you know, combined.
+ - I don’t have phobias. I’m pretty laid back. Nothing really bothers me. I can handle things pretty well.
+ - Anytime I’m given scripts where I’m sort of the fantasy girl, it’s hard for me because that’s not real and I don’t think it’s a great thing to put out there consistently.
+ - I was kind of embarrassed by some of the films I had done. I was like, “Oh, they’re going to think I don’t have street cred.”
+ - I realized that the people weren’t just characters but they were people and they were getting to do something that was so fun and I wanted to be a part of it.
+ - To me it’s so much like Spaced in that way. Um, which I love so much, so I think fans of that and fans of the comics are going to really see that up on the screen.
+ - I always wanted to perform in some capacity since I was a kid – I was a ballerina, then a singer before acting.
+ - But as an actor you do want to challenge yourself and step outside what you have done in the past and that what I like to do, I like to jump around and try different things and stretch myself.
+ - I do want to direct, eventually. I don’t know if it will be a short film or a music video or a feature, but I know that I want to at least try it and see.
+ - I’m a really cautious person, so I don’t let myself get into near-death experiences. I’m not into the idea of skydiving or anything.
+ - I grew up in a big movie house, we watched movies all the time, so I had an awareness at a very young age that that was a job that you could have.
+ - It’s just about trying to find material where I’m doing more than just being a plot device. I want to actually get to do scenes that go to interesting places and are challenging to me.
+ - I always felt that my talent would trump everything.
+ - It was my life, playing Juliet. From that moment on I was convinced I was going to be an actress. That was all I really wanted to do.
+ - I’m a fan of films in general; I mean, I don’t think I’ve ever considered myself specifically a horror fan even though I do enjoy horror films, find them really entertaining.
+ - My first movie was a movie that had a bunch of people dying in it – the typical popcorn movie. That’s where I got my start.
+ - I do get starstruck working with Bruce because even though he is such a nice guy he’s a real movie star. I grew up watching his movies it is just really hard to get used to just being around Bruce Willis. I mean, he’s Bruce Willis!
+ - I’m a huge Paul Thomas Anderson fan.
+ - I was always a performing arts kid in general – but I felt like my ultimate goal was to be an actress and be in films.
+ - I want to be inspired by the characters that I play and excited by the projects that I do.
+ - I love playing characters that are strong, when there’s physicality involved.
+ - Normally as an actress you’re constantly worried that people think you don’t look good enough. It’s just like an unnecessary stress that’s just frustrating.
+ - You have to believe that it is what you want to do with your life and you have to be dedicated to it.
+ - I’ve always been a huge fan of ‘The Shining,’ and ‘Rosemary’s Baby’ is one of my favorite films of all time.
+ - There’s a little wire work, which is so much fun. You can fly, it’s amazing. But I’ve had to mostly just sort of kung fu, you know, ground work. Footwork and stuff like that.
+ - It’s surprising to a lot of people because ballerinas look so long, but it’s more of a proportion thing. Their legs are long in proportion to their body but in reality they’re very tiny.
+ - When I was 10, my school did Romeo and Juliet. I was Juliet, and that was, like, the biggest deal ever. I was completely obsessed with the role.
+ - I guess I’ve just gotten to the point where I don’t want to be bored by the characters that I play, and I don’t want to feel like I’m having to make something more interesting or I’m having to force something that’s not really there on the page.
+ - I think, like a lot of actors and people in the arts who are struggling to get where they want to be, you spend a lot of time sitting around grumbling about how you’re not doing the kind of work you really want to do. But there’s a lot of complacency in that, too.
+ - Some of those things come out and you don’t know where they came from – somebody’s leaking totally false information. They follow you for years and you have to be like, “I don’t know anything about that.”
+ - I love anybody who’s willing to stick to their own vision, their own voice, who’s not easily swayed by money or by financers who are going to tell them what they should do.
+ - The older I get, the more I’m drawn to the smaller films, but I still hope to keep bigger films in my repertoire. It’s just maybe going to be a shift in focus, but I’ll definitely still hopefully be kicking around in those.
+ - In ballet, I felt that no matter how good I was, if I didn’t have the right body type or if I didn’t fit a certain mold there was nothing I could do.
+ - I think a lot of fans immediately go, ‘ugggh’ when they hear that someone is doing a prequel or a remake, they sort of assume the worst sometimes.
+ - I think my drive to work has gone up a bit since I’ve gotten older.
+
+66 quotes

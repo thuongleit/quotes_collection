@@ -1,0 +1,202 @@
+ - Challenge yourself; it’s the only path which leads to growth.
+ - How do we change the world? One random act of kindness at a time.
+ - If you want to see a miracle, be the miracle.
+ - I have to remind myself that some birds aren’t meant to be caged. Their feathers are just too bright. And when they fly away, the part of you that knows it was a sin to lock them up does rejoice.
+ - If you’re not living on the edge then you’re taking up a little too much space.
+ - Never give up the ganja.
+ - Your best posture is your next posture.
+ - Learning how to be still, to really be still and let life happen – that stillness becomes a radiance.
+ - Never let pride be your guiding principle. Let your accomplishments speak for you.
+ - Forgiveness liberates the soul, it removes fear.
+ - These walls are funny. First you hate ’em, then you get used to ’em. Enough time passes, you get so you depend on them. That’s institutionalized.
+ - I’m always trying new things and learning new things. If there isn’t anything more you can learn – go off and die.
+ - Literacy could be the ladder out of poverty.
+ - You measure yourself by the people who measure themselves by you.
+ - The highest power is the human mind. That’s where God came from and my belief in God is my belief in myself.
+ - Insanity is coasting through life in a miserable existence when you have a caged lion locked inside and the key to release it.
+ - Anyone who spends a significant amount of time with me finds me disagreeable.
+ - As long as you feel like a victim, you are one.
+ - I was raised in Mississippi, so heat and humidity is my bread and butter. It keeps me going. I can’t stand cold weather.
+ - Acting means living, it’s all I do...
+ - Attacking People With Disabilities is the Lowest Display of Power I Can Think Of.
+ - If you look back on your life and where you started from it’s like looking back down a mountain back to the desert floor. It’s like now I can’t believe I had whatever it takes or perceived whatever it took to get here.
+ - I once heard a wise man say there are no perfect men. Only perfect intentions.
+ - I always tell my kids if you lay down, people will step over you. But if you keep scrambling, if you keep going, someone will always, always give you a hand. Always. But you gotta keep dancing, you gotta keep your feet moving.
+ - I gravitate towards gravitas.
+ - I’m a firm believer that things happen as they should. The universe unfolds just as it’s supposed to.
+ - I don’t want a Black History Month. Black history is American history.
+ - I always wanted to be a fireman, a cop, an Indian chief, a doctor, a lawyer. I always wanted to be all these things, so I am drawn to these kinds of characters.
+ - If we don’t save the oceans, if we don’t do something about what we’re doing to the oceans, as well as the planet at large, we’re going to be really sorry.
+ - I feel fine, I don’t care who the director is. All you have to do is know what your doing – all of us – everybody in the business – that’s all you ask anyone – you know your job, I know mine, let’s go do it.
+ - Donald Trump is the Honey Boo Boo of rich people.
+ - Stage is really hard work. You’ve got to do it every night. Not like doing it once and walking away.
+ - Finding joy is probably tantamount to finding yourself and being comfortable in your own skin.
+ - Don’t be different just for different’s sake. If you see it differently, function that way. Follow your own muse, always.
+ - Nobody is trying to save energy. We’re trying to shift our use of fuel. Forget saving energy; if we get the right kind of energy, there are endless amounts.
+ - When I was a teenager, I began to settle into school because I’d discovered the extracurricular activities that interested me: music and theater.
+ - I have four children and nine grandchildren. I’m presently wearing out my second wife.
+ - Give me something interesting to play and I’m happy.
+ - I was lucky in that when the opportunity came, I was prepared to meet it.
+ - The best way to confront, or deal with, technological innovation is to keep moving technologically.
+ - My earrings are worth just enough to buy me a coffin if I die in a strange place. That was the reason why sailors used to wear them.
+ - We humans are more concerned with having than with being.
+ - If you live a life of make-believe, your life isn’t worth anything until you do something that does challenge your reality. And to me, sailing the open ocean is a real challenge, because it’s life or death.
+ - The best way to guarantee a loss is to quit.
+ - Being blind is as simple as closing your eyes. The blind don’t act any different than you or I. You never see a blind person going around saying, ‘I’m blind.’ So if you want to play blind just close your eyes and keep them closed and fare thee well.
+ - Nelson Mandela was a man of incomparable honor, unconquerable strength, and unyielding resolve – a saint to many, a hero to all who treasure liberty, freedom and the dignity of humankind.
+ - I go on vacation strictly to relax – to kick back with a good book and do nothing else but read, sleep and eat.
+ - We are turning everything on this planet into food for humans. We’ll eat it and, if we can’t eat it, we’ll kill it and take its place and just move it out of the way.
+ - In my home, who is my boss? If you ask my wife she’ll say certainly not her. She claims that she can’t make me do anything and so she’s not my boss. I am. I’m pretty sure, maybe.
+ - I try to keep my mind active. I’m a solitaire and puzzle addict. I exercise religiously. I don’t do many things religiously and I’ve taken up golf to have something to do when I have nothing to do.
+ - When I was getting close to being accepted for pilot training, I was allowed to get in a jet airplane. I sat there looking at all those switches and dials and I got the distinct feeling that I was sitting in the nose of bomb. I realized my fantasies of flying and fighting were just that – fantasies.
+ - Was I always going to be here? No I was not. I was going to be homeless at one time, a taxi driver, truck driver, or any kind of job that would get me a crust of bread. You never know what’s going to happen.
+ - Let me tell you about being executive producer. It is not a job, it’s a title. Don’t go around asking executive producers what they do because they don’t do anything, alright?
+ - Hey, if I don’t have a job, I don’t know why I bother to get up. Any time the phone rings, I’m ready to go. What else am I going to do? See, I’ve never retired. I don’t even know what it means.
+ - Very often, you know, you stop walking because you say, ‘Well, I’m tired of climbing this hill. I’m never going to get to the top.’ And you’re only two steps from the top.
+ - I think the best thing somebody ever did to me was my mother opening her legs and squirting me out.
+ - One universe, four forces, billions of galaxies. The precision and complexity of our world is enough to make even the famous cosmologist go just a little bit crazy. How does it all fit together? Is there a single, overarching design to the cosmos? And if we find it, will we glimpse the mind of God?
+ - Everybody works the same, but the preparation very often may be different. You cannot work differently. You have to say the words that were written on the page, and you have to make your marks. That’s the work.
+ - Don’t be afraid of what you want. This is your time. The barriers are down.
+ - I’m making a great effort because sometimes life is not enjoyable. Sometimes it’s painful and sometimes it’s stressful, sometimes it’s agonizing even, so I think once you get around those humps: strive for pleasure and peace.
+ - If you’re going to play a brain surgeon, you just have to learn how to say the words. You don’t have to go and learn how to cut open somebody’s scalp. I think acting is acting. Being is something else.
+ - I am God. So it’s easy to play him. They say God is in all things. So if God is in me, then I am in God. Therefore, I am God. God does not exist without me.
+ - You can’t take credit for talent; you can only take credit for using it.
+ - If your life turns out to be good and you have a tremendous amount of luck in your life, it’s a good thing to turn around and make it work for others.
+ - Even through my good-looking youth, I wasn’t called on for any romantic parts, which is okay. What I was called on to do, I enjoyed doing. The funny thing about life is that if you live long enough, I think, you’ll get every wish you ever had. It’ll all come true.
+ - How are we going to get rid of racism? Stop talking about it!
+ - In my career? Me. I’m the boss. I’m the end all and be all. I’m the alpha and omega in that.
+ - People don’t want to hang around someone that you don’t know how they’re going to react to anything you do or say.
+ - Our situation, with global warming and air quality and all of that, has gotten to be catastrophic.
+ - This kid came up with Napster, and before that, none of us thought of content protection.
+ - I seldom get into the mood of the story. It’s acting. I go in, I act, I quit. I don’t take anything away from it.
+ - I think you take a job, you owe it as much passion as the job itself demands. And most jobs demand that you be totally committed.
+ - I have to deal with being famous. Sometimes I have to tell people I don’t do autographs, thank you very much. At certain places, I refuse to have my photograph taken.
+ - Let me tell you what justice is. Justice is the law. And that man’s feeble attempt to lay down the principles of deceny.
+ - But I can say that life is good to me. Has been and is good. So I think my task is to be good to it. So how do you be good to life? You live it.
+ - Insanity is coasting through life...
+ - That’s really just the worst part of life really, you get bracketed somewhere and the next thing you know people are saying, ‘No. No. That’s not the type. Get me so and so.’ I’m not a type. I’m an actor.
+ - There’s no mystery to it. Nothing more complicated than learning lines and putting on a costume.
+ - Writing I think, out of what all of us do, writing is the hardest. You’re the only who start with nothing except what’s up here. You do that. It’s really hard I think, acting is not.
+ - Someone’s going to put the clothes on you, and part of being an actor is wearing costumes. Costumes tell you an awful lot about who you are, so you just, it’s nothing.
+ - Fatigue, discomfort, discouragement are merely symptoms of effort.
+ - Marketing only really works with word of mouth.
+ - I remember saying to my agent, “Listen, everybody’s going out to Hollywood and making movies. I think I ought to go out there.” And his advice to me was, “I wouldn’t do that if I were you. If they want you in Hollywood, they’ll send you.” And sure enough, they did.
+ - It’s what I learn from the great actors that I work with. Stillness. That’s all and that’s the hardest thing.
+ - Is there a movie I think I should have won the Oscar for? Yeah. All of them.
+ - If you get called on to help somebody pull focus to some good cause, that’s good use of your fame. I don’t try to avoid that.
+ - If you’re comfortable on a horse, you’re comfortable on a horse. It’s like being on a motorbike.
+ - When I was growing up, I didn’t see me in the movies except in certain lesser roles. If it wasn’t funny, I wasn’t there. Then Sidney Poitier came along, and he wasn’t funny. He was just good. There’s me. So that was my pattern.
+ - I got my first job as a card-carrying actor in New York in 1967. Before that, I was a very desperate wannabe.
+ - I joined the air force. I took to it immediately when I arrived there. I did three years, eight months, and ten days in all, but it took me a year and a half to get disabused of my romantic notions about it.
+ - People need to start to think about the messages that they send in the movies.
+ - If you dream you’ve got to dream that it’s going to happen. Remember that. If you dream you have to imagine that it will actually happen.
+ - The reason actors, artists, writers have agents is because we’ll do it for nothing. That’s a basic fact – you gotta do it.
+ - I’m easy going for the most part but sometimes in the morning if I didn’t sleep well I can be kind of grumpy. But my grumpiness doesn’t have that much to do with my dissatisfaction with my station in life.
+ - Part of acting is having the security to turn yourself loose and let yourself go in order to reach whatever depths a character has. If your guts aren’t hanging out there, you don’t offer anything.
+ - And some places you been before are so great that you don’t ever mind going back. Some places you been before you don’t ever want to go back, you know, like Montreal in the Winter.
+ - The public feels that if it’s on the Internet and you can access it, you deserve it. You haven’t committed any kind of crime. We may even have to rename piracy. But in any case, we have to confront it.
+ - I want to be up there, being lauded and applauded and given all these and on the red carpet, waving at the hordes of people.
+ - What do I want to do? Acting wise? Well, there’s a western that I want to do. There’s a lot of producing that I want to do, projects that I have stacked up that are in my office that I’d like to get done.
+ - All you have to do is believe, then you will see everything.
+ - You do a movie. However long it lasts, it begins and it ends in a relatively short period of time. In a given period of time, let’s say a year, you can have three, four, or five different experiences which is exciting.
+ - I don’t remember what my favourite comedy film is – truthfully! I saw Borat and I thought I was not going to be able to get out of the theatre because I was in so much pain from the laughter.
+ - I believe in helping the planet survive, and that includes reaching out to help some of the disappearing creatures whose habitats we’re destroying. It’s up to us to somehow reverse that trend. I don’t know how we’ll achieve it, but we need to.
+ - I don’t get off on romantic parts. But I often think if I had had my dental work done early on, well, maybe.
+ - I don’t do cold. My reaction to cold is drastic. I’m a southern boy.
+ - I’m not one who can write out a speech and remember all the names of the people that you need to thank because you need to thank all of those people.
+ - Just that working with Clint again is like coming home.
+ - I am impatient with directors who don’t know what they want, and the way you don’t know what they want is because they want to do one more. “Let’s do one more.” So, “What for?” I guarantee you there’s not going to be a change.
+ - Which lady would I like to meet? Um, I don’t know that there’s anybody left that I didn’t meet. But the one that I really wanted to meet died and that was Princess Diana. I really wanted to get to know her. I like her.
+ - You want to retire from a job you’re not that all enamoured with. I love what I do. I want to keep doing it till I can’t get out of bed doing it.
+ - Write something insightful. Say Morgan Freeman said it. Win at internet.
+ - You don’t know how much you appreciate your privacy until you don’t have it.
+ - The bigger point here is that golf is a good metaphor for one’s life. The challenge of golf for me is trying to learn new rules. It’s something you always have to work at; you don’t get perfect at golf. It’s the never-ending quest for betterment.
+ - It can have an enormous effect because big budget movies can have big budget perks, and small budget movies have no perks, but what is the driving force, of course, is the script, and your part in it.
+ - I avoid seeing myself while I’m working on role so I won’t see “me.”
+ - Every job’s a challenge. The challenge is to do it and make it look right, like you belong there – wherever that is.
+ - Acting means living, it’s all I do and all I’m good at. If I weren’t getting paid well, I would still be acting in a small troupe somewhere.
+ - When I was a kid, I was a cowboy. I had a cap pistol, and I’d get up in the morning and strap it on before I got ready.
+ - I knew at an early age I wanted to act. Acting was always easy for me. I don’t believe in predestination, but I do believe that once you get where ever it is you are going, that is where you were going to be.
+ - Martin Luther King Jr. is remembered as our prince of peace, of civil rights. We owe him something major that will keep his memory alive.
+ - Working on stage is really a great voice developer.
+ - You know, the ancient Egyptians had a beautiful belief about death. When their souls got to the entrance to heaven, the guards asked two questions. Their answers determined whether they were able to enter or not. ‘Have you found joy in your life?’ ‘Has your life brought joy to others?’
+ - Once you’ve gotten the job, there’s nothing to it. If you’re an actor, you’re an actor. Doing it is not the hard part. The hard part is getting to do it.
+ - It’s sort of well-known that anytime any catastrophe happens anywhere in the world, they can count on the United States for help.
+ - What I haven’t talked about I don’t intend to talk about.
+ - I don’t think that anyone learns anything. Well, I mean, you do always learn something if you have your eyes and ears open. You do learn something from every outing, every time that you go for it. But for me what actors do is interact and that’s why you have to do that.
+ - Not only do I have to live, right, I have to get some cash for my troubles – it’s a scary thing, and people need to start to think about the messages that they send in the movies.
+ - I think one of the things when you’re casting children is you’re also casting their parents.
+ - And finding the hat, I always like to find the hat. And then props just dress the set. It’s all fabulous.
+ - I’ve always been a fan of or desired to or responded to variety. I like variety in life, so variety in work is a must.
+ - The odds are lousy that I actually said something attributed to me.
+ - I’m not intimidated by lead roles. I’m better in them. I don’t feel pressure. I feel released at times like that. That’s what I’m born to do.
+ - Audiences believe what you believe. It’s a matter of believing yourself. If I believe me, then you’ve got no choice. None at all.
+ - There’s an exercise we do where someone is sat behind you and you’re asked to close your eyes and fall backwards. That’s acting.
+ - Actors cannot work against each other. It’s totally impossible.
+ - Dr. Martin Luther King is not a black hero. He is an American hero.
+ - You can make anything into a play for the simple reason that the human mind is one of the best writers in the business. So, if you’ve got a writer who’s clever enough to give you enough clues, you will fill out every blank spot in a play, every single one.
+ - I’m not digging tunnels, I’m not building buildings. My work is not hard, my work is refreshing, my work is pleasant. The more the better. Lying around and getting no job is debilitating.
+ - I am going to stop calling you a white man and I’m going to ask you to stop calling me a black man.
+ - I would never complain that Hollywood is racist when I’m one of the people touted as a welcome entity there.
+ - From early childhood, my thrust was to get into the movies.
+ - I believe it doesn’t really matter where you work as long as you work. Keep sharpening your teeth.
+ - There are things that I would like to do, but I make a big distinction between liking to do something and wanting to do something. If there’s something that I want to do I’ve done it. If there’s something that comes up that I want to do I will do it.
+ - I’ve just never been the kind of actor that things have stayed with. I’ve never needed to carry a character off stage.
+ - Someone’s always going to come down on the side of the fence.
+ - It seems to me that I never grow unless I’m actually working with other actors who have shed whatever shell it is that keeps them insulated from each other.
+ - I can only be so long without work before I start getting antsy.
+ - I’ve never had any intimate relationships with a dolphin.
+ - My approach to acting is that I am totally intuitive. I read the script and I get it. If I don’t get it, I can’t do it.
+ - My roots were pretty far removed from high income. It’s interesting to be back there at the level of income I have now, at this stage in my life.
+ - Still, it can be more effective to accomplish what you need to accomplish with the minimum effort. Watch Anthony Hopkins. He doesn’t appear to be doing anything. He is so still that you can’t see him working, but you are drawn into his character through his very stillness.
+ - Turn on the news and see how we treat the Batman theater shooter and the Oregon mall shooter like celebrities. Dylan Klebold and Eric Harris are household names, but do you know the name of a single ‘victim’ of Columbine?
+ - I like producing but acting is the quintessential me, and I’m probably better at that than I am at anything. My heart has always been in the movies.
+ - When I was doing theater, I was very successful at believing that I was great, God’s gift to the theater.
+ - Ive got a lot of life left in me and I want to live it doing things I like to do.
+ - Doing comedy is as easy as doing anything else. You’re dependent totally on the material.
+ - And that if you become a star, people are going to go to see you. If you remain an actor, they’re going to go and see the story you’re in.
+ - All my life, all my life that I can, as far back as I can remember, I saw my first movie when I was six years old. And since then I wanted to do that. I wanted to be a part of that.
+ - I’ve been living with myself all of my life, so I know all of me. So when I watch me, all I see is me. It’s boring.
+ - Playing is no challenge; every time that you get a role you get to go play with other people in the sandbox and so there is no challenge, real challenge. The challenge, the major challenge is getting the work, finding the sandbox.
+ - I think you have to be left-brained, to a certain extent, to understand science. I can talk about it, but I can’t do it.
+ - I was 22 before I took my first dance class. I had never been athletic, so I was very stiff; I still am. I think what I got mostly from dance was carriage.
+ - The accident was a horrible thing – but that horrible thing made Chris, at the end of his life, Superman. It’s a happy irony if there is such a thing. I’m proud to have known him.
+ - I was very lucky once I got started with a career. I happened to get some really good parts to play with some really good people to play with.
+ - If I wasn’t acting, I have no clue what I’d be doing ’cause I have no other talent.
+ - I’m also very fond of a light business jet, so I’d like to get it before it’s too late.
+ - I don’t do comedy. I think if a situation is funny you just play it for real and if it’s funny, it’s funny.
+ - If your income on films or whatever you’re producing using film drops below a certain level, then you don’t have enough money to stay in business. People like to say that this is all just about making money, but if you don’t make money, you don’t make anything.
+ - Race seems to me to be less and less a subject worth discussing.
+ - If I stay at home, I’m not famous. I’m only famous when I’m out in the streets, so I don’t go out on the streets much.
+ - I don’t think you’re going to get nominated every time you jump out of the box.
+ - I’ve travelled a lot, but I am essentially American. All my input has been American.
+ - I have never acted he has never been cast in a romantic lead or has been cast opposite a female love interest in any movie he starred in.
+ - I’m not sure that my upbringing has in itself informed my acting choices.
+ - If you sat down and you wrote a script, you may write something that’s way beyond what you’ve ever seen me do, but if you thought of me to do it, I would be flattered to be asked to do something other than be wise.
+ - I just wanted to be an actor. It’s better to be well-rounded.
+ - They’re talking about kids who have grand mal seizures, and they’ve discovered that marijuana eases that down to where these children can have a life. That right there, to me, says, ‘Legalize it across the board!’
+ - My parents were working in a hospital in Memphis. But I didn’t live there for any length of time that I remember. The first thing I remember is the town in Mississippi that I live in now, Charleston.
+ - I was a B student in math, simply because my teachers liked me, as an actor.
+ - The better the actor, usually the safer you feel working with.
+ - The trick to any profession is making it look easy.
+ - I was told that I was good in my dance movement classes and that I should concentrate on dance because it would enhance my ability to get acting work.
+ - It’s seldom that you get to work with one director more than once. I’ve worked with Clint Eastwood three times, but that’s the only one that’s happened with, simply because I adore his work.
+ - I do know there are a lot of people who seem to be in my corner, and that’s, of course, wonderful. I’m really more interested in the nomination than in the award, because I think the nomination just puts you within a group of outstanding actors.
+ - I’ve always been really hot on westerns. All my life growing up, cowboy, cowboy, cowboy.
+ - I’m not a comedian. I don’t make things funny if they’re not funny. I don’t invent funny stuff.
+ - Let me be the first to tell you, drinking alcohol is the worst thing to do in cold weather. Hot soup is the best because the process of digesting food helps to warm you up.
+ - If you’re playing somebody who is not you, then you can imagine that you are that person. You can feel like he feels, move like he moves, look like he looks – in your own mind.
+ - Most of the time it’s the role. Sometimes it’s the story and sometimes it just the paycheck. It’s the little movies that come out as stories or the fact that I have work to go out, you know what I’m saying, you can only be out so long without work, you start getting antsy.
+ - That is a big turn-on for me, a director who knows what he’s doing and what he wants, and knows when he’s gotten what he wants.
+ - In growing up, I was a child of the movies. I went to the movies every given opportunity, and that’s pretty much what has informed a lot of my choices.
+ - I don’t have to do anything. The character is shaped on the page.
+ - That’s your job as the actor, to understand the human part of the character, to make it real.
+ - As you grow in this business, you learn how to do more with less.
+ - I had gone to school to work on technique and found it wasn’t something that was really worthwhile to me, although it probably was.
+ - I like the blues a lot. I grew up on it.
+ - I don’t have anybody telling me what to say. I have people who would suggest, maybe, that I shouldn’t do this, that or the other, but that’s strictly up to me.
+ - Growing up in Mississippi, I realized that it was separate and unequal and all that, but it was still a safe place.
+ - I don’t need any more press. I get enough when I work, but environmental causes is one place where you can get me to open my mouth. And put my foot in it if necessary. I think the only thing I do that gives me any bragging rights in terms of energy conservation is sailing. Just using wind power.
+ - Is listening important? I can’t think of a single walk of life where it wouldn’t be.
+
+200 quotes

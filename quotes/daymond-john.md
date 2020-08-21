@@ -1,0 +1,50 @@
+ - As an entrepreneur, you never stop learning.
+ - It takes the same energy to think small as it does to think big. So dream big and think bigger.
+ - If you aren’t living your dreams then you’re living your fears.
+ - Life is a cruel teacher. She loves to give you the test first and the lesson later.
+ - Pioneers get slaughtered, and the settlers prosper.
+ - Money is a great slave but a horrible master.
+ - I don’t want to leave my kids an inheritance, I want to leave them a legacy.
+ - Good grooming is integral, and impeccable style is a must. If you don’t look the part, no one will want to give you time or money.
+ - It will never be a perfect time, you can only make time perfect.
+ - I’ve failed way more than I’ve succeeded.
+ - If you don’t educate yourself, you’ll never get out of the starting block because you’ll spend all your money making foolish decisions.
+ - Truth is the easiest thing to sell.
+ - You don’t get rich off your day job, you get rich off your homework.
+ - Poor people put a low value on themselves and their efforts.
+ - I do today what people won’t, so I achieve tomorrow what other people can’t.
+ - I consider each business investment based on concept and revenue.
+ - I’m a big advocate of financial intelligence.
+ - We all want the freedom to make our own decisions.
+ - When looking at trends I always ask myself basic and timeless questions about business, and the one I seem to always come back to is, ‘How is this different than anything else in the marketplace?’
+ - You can make up your own opinion, but you can’t make up your own facts, go sell.
+ - As an entrepreneur, you love your business like a child, and you’re taught to be laser-focused on the business.
+ - Success is waking up every day and doing what you want to do.
+ - When you succeed you have a million people to thank, but when you fail there is only one person to blame.
+ - Always dress to what is accurate to who and what you are.
+ - Product is always king.
+ - In my mind, there are too many copycat web products out there that are doing the same thing.
+ - Learn as many mistakes and what not to do while your business or product is small. Don’t be in such a hurry to grow your brand. Make sure that you and the market can sustain any bumps that may occur down the road.
+ - Try to make all the mistakes with your own money and on a small level so that when you are responsible for a partner’s money or assets you’ve learned and you don’t make bigger mistakes. Try to go as far as you can without anybody else’s help first.
+ - The only thing that scares me in the tech area is that it moves so fast that you have to be ready to invest in 20 things. Because if you just invest in one, next week, somebody has a better mousetrap, and you get taken to the cleaners.
+ - I’ve come to learn that my initial investment is more about the person versus the product that I am buying into. I’ve also learned that I really do enjoy giving worthy people an opportunity of a lifetime.
+ - Everyone has an idea, but it’s taking those first steps toward turning that idea into a reality that are always the toughest.
+ - An entrepreneur must pitch a potential investor for what the company is worth as well as sell the dream on how much of a profit can be made.
+ - Strategic partners are way more important than money.
+ - Whether people know it or not, I’m a big nature guy. I like snowboarding, I like fishing, and those are my ways to wind down.
+ - It is very, very hard to do that ballroom dancing and I am going to be nowhere near it. Now if you have a hot dog eating contest, call me.
+ - Make sure you’re doing something that you love, that you’re willing to do for the rest of your life. If you’re doing it for money, that’s the only thing you won’t make.
+ - You don’t have to work for a big corporation if you don’t want to.
+ - When you have a large amount of the workforce being laid off, some of them have no other choice but to go out there and invent something.
+ - I think it’s only failure if you put the word failure on it. I think it’s part of the process of learning where you’re going to go and what doesn’t work.
+ - The thing about branding is it isn’t etched in stone. A brand is a mark or an image or a perception we stamp on a product, a concept or an ideal, but it doesn’t last forever. Like anything else, it needs to be nurtured and reinforced, or it will start to fade.
+ - The perfect breakfast is fish with grits and scrambled eggs with onions. I’m getting hungry thinking about that.
+ - I think Wall Street is very important, especially to tech companies. Wall Street will get in their rhythm and go fund tech companies, and tech companies will go create jobs and employ a lot of people, so there’s that aspect of Wall Street.
+ - When you sell a product or service, you’re making a promise to your audience. If you don’t understand your audience, you’ll never be able to keep that promise and you’ll ultimately let them down.
+ - If you can’t come clean and tell investors how and why you failed, that raises a red flag. They need to see that you learned from it and came back stronger.
+ - I look to work with businesses that know what they are doing but need larger distribution or exposure.
+ - A savvy entrepreneur will not always look for investment money, first.
+ - If I invest in a CEO, I need him or her to have experience in sales.
+ - I’m not a golf player. I think golf and fishing are the same, but at the end of the day, you can’t fry up and golf ball and dip it in tartar sauce. So I’m a fisherman.
+
+48 quotes

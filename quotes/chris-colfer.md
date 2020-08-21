@@ -1,0 +1,83 @@
+ - A villain is just a victim whose story hasn’t been told.
+ - I’ve tried being other people and myself suits me the best.
+ - I’m allergic to stupidity.
+ - Courage is one thing that no one can ever take away from you.
+ - People are not born heroes or villains; they’re created by the people around them.
+ - It doesn’t matter how greatly you’ve been hurt or how much you’re hurting, it’s what you do with the pain that counts. You could cry for years or you could choose to learn and grow from it.
+ - But one of the big lessons I have learned from my journey is you can’t please everyone, so don’t try.
+ - People only love you as long as they’re getting something of you, but the minute you say something they don’t want to hear or do something they don’t want to see, all the admiration drains from their hearts.
+ - Don’t listen to what people tell you because they’ll try to bring you down. And don’t listen to yourself, either, because yourself will try to bring you down even more so than anyone else. As long as you just put all your energy into one thing, it can happen.
+ - There’s nothing wrong with you. There’s a lot wrong with the world you live in. And definitely get out of high school and make everyone sorry.
+ - There’s no solution to life, there’s going to be problems no matter what.
+ - Anyone can have a once-upon-a-time or a happily-ever-after, but it’s the journey between that makes the story worth telling.
+ - A flame may love a snowflake, but they can never be together without each harming the other.
+ - When people hurt you over and over, think of them like sand paper. They may scratch and hurt you a bit, but in the end, you end up polished and they end up useless.
+ - There are ways to meet people and surround yourself with like-minded people who will support you.
+ - You’re not weak. Your life is not defined by a letter grade, a dress size, your sexuality or anything else. You have every chance at happiness. You were not meant to suffer. You are loved. Never, ever give up.
+ - Right now, we’re living in an ugly chapter of our lives, but books always get better!
+ - I know I’m bitter and a little jaded, and mildly enjoy it, but am I a sad person? Am I happy? I plan on being happy in the future for sure, but it isn’t here yet. So what does that make me, exactly?
+ - To Grandma: Once upon a time, there was a boy who flew.
+ - I love thinking that there is magic in the world, that there are people in the world with amazing abilities that we just don’t know about.
+ - Every time I get injured I measure it’s severity by asking myself ‘Would this stop me from going to Disneyland?’
+ - A voice that was never wanted has become a voice for so many people who don’t have one.
+ - I love bookstores. I love the energy in a bookstore and the smell of the paper.
+ - I could never rap, personally. I can’t even wrap presents.
+ - Don’t be afraid to be human – you’re human, you’re going to have emotional days. You’re going to have days when things suck and then some days when things are great, but don’t feel guilty because you’re experiencing that. Don’t feel guilty from being human.
+ - No matter what you do, you can never please everyone. And that was the hardest lesson to learn. In fact, I’m still learning it.
+ - If you truly own who you are, no one can use you against you.
+ - You can’t shy away from your greatness just because you’re afraid you’re not great enough.
+ - It doesn’t matter how old I get, I always act like an excited five year-old kid with severe ADD and a waddle at Disneyland.
+ - I’m really not good blackmail material.
+ - I can sing and dance. I can smile – a lot.
+ - You’ve got to show the world who you are before it tells you. Otherwise you become victim to someone you’re not.
+ - I hope to write someday and that’s even more terrifying than performing. You don’t just entertain the audience, you give them little bits of your soul.
+ - Whoa, I’ve really got to stop making plans with fictional characters. It can’t be healthy to develop relationships with people who don’t exist.
+ - I think I just want to leave my mark in some way. I hope I leave the world a better place than it was when I came, and I think the best way I can do that is through acting and writing, and hopefully it will make a difference someday.
+ - The higher the hair, the closer to god.
+ - Villains are mostly just people villainized by circumstance.
+ - The world will always choose convenience over reality. It’s easier to hate, blame, and fear than it is to understand. No one wants the truth; they want entertainment.
+ - Every driven person comes from a mountain of pain they wish to keep hidden.
+ - Sometimes you have good days, and sometimes you have bad days. It really depends on how much caffeine you’ve had.
+ - The gay people I knew in real life were soft spoken and didn’t want to call attention to themselves because they were terrified of exposing themselves, of people finding out that they’re gay.
+ - Even in the worst of situations-even when it seems no one in the world appreciates you-as long as you have hope, everthing can get better.
+ - I wish I could walk into a room and feel superior and have my nose up at everybody, but I can’t, because I know I’m just a huge nerd, and that wouldn’t work for me.
+ - I do better singing female songs because my voice is so high-pitched.
+ - You don’t get to pick where you’re from, but you always have control of where you’re going.
+ - I’ve been pushed down many flights of stairs in my time, but I always manage to find an elevator.
+ - Not taking yourself too seriously, that’s the important thing.
+ - High School. Society’s bright idea to put all their aggressive, naive youth into one environment to torment and emotionally scar each other for life.
+ - Sometimes we forget about our own advantages because we focus on what we don’t have. Just because you have to work a little harder at something that seems easier to others doesn’t mean you’re without your own talents.
+ - I’ve learned that the more people embrace their disadvantages, the less disadvantaged they become!
+ - I wasn’t going to get such a nice car – I was going to get a cute little hybrid or something, keep the trees happy – but then my grandfather died, and it was all: retail therapy!
+ - A few of the girls and I jumped into my jetta and took off. “Lets go stand outside someone from Glee’s house now,” one of them said.
+ - I don’t know much, But when push comes to shove, I definitely don’t believe, There’s such a thing as wrong love.
+ - I grew up in a conservative small town, and the gay characters I saw on TV and in movies when I was growing up were all flamboyant and obnoxious and sometimes kind of annoying.
+ - I kind of did this thing in high school, a spoof of ‘Sweeney Todd’ called ‘Shirley Todd,’ and I had a great time doing that.
+ - I couldn’t do country, with all due respect to all country music artists. My parents dressed me up with a cowboy hat and we’d go to the rodeo when I was younger and it traumatized me for life.
+ - I’m horrible at auditions anyway. Maybe that’s why I never got anything.
+ - That’s my biggest fear – disappointing those people who look up to me.
+ - Everyone that I meet always wants me to direct, but whenever I think of directing, I think of aligning shots. I’d definitely have to write and direct something. But I don’t know if I could.
+ - To be famous is to stand on a pedestal and give the world permission to tell you all your flaws.
+ - If you ask me, it doesn’t matter what life you’re living, life never has a solution. No matter how hard the struggles are that you leave behind, new struggles always take their place.
+ - I almost shat my pants. Literally, the floor was almost covered in my shat.
+ - I have a sack of hate mail that I want to respond to. One day, when I’m tired or tipsy, I will respond and tell them what I think.
+ - I do all kind of fun things when I’m unconscious.
+ - I don’t necessarily consider myself a virgin, probably because I have such a penetrating personality.
+ - If you are going to live in a house made of candy, don’t move next door to a couple of obese kids. A lot of these fairy-tale characters are missing common sense.
+ - I grew up doing musical theater.
+ - I really think, without trying to give us credit that we don’t deserve, I really feel like Kurt and Blaine are a modern version of Lucy and Ricky. Oh, I’m Lucy for sure.
+ - Cast parties are a lot of fun!
+ - In what grade do we stop believing in ourselves? I asked. In what grade do we stop believing, period? I mean, SOMEONE has to be a Nobel Peace Prize winner. SOMEONE has to be a ballerina. Why not us?
+ - There’s nothing more terrifying then a teenage girl.
+ - My life is an awkward visit from the kid’s table while awaiting a History Channel special.
+ - I’m pretty sure I’m going to fall in my GaGa shoes one night on tour and I’m hoping it becomes a Youtube sensation.
+ - Besides, anyone with an Internet connection feels they have the credentials to critique or belittle anything these days.
+ - I think every time a movie gets made, it’s a miracle. I would love to get to a point where it became easier and it wasn’t so much of a struggle to get it done or finished.
+ - I was made fun of a lot in high school because of the way I sound and the way I was.
+ - My imaginary friends have become my imaginary children.
+ - Whether I’m in front of the camera, behind the camera, at my computer writing a novel or a screenplay, as long as I get to entertain someone out there, I’m happy.
+ - I feel like little bits of my soul are being shipped domestically.
+ - Once the world has made a decision, there is little anyone can do to change its mind.
+ - I don’t personally feel a responsibility to be a role model, but as the actor, I do.
+
+81 quotes

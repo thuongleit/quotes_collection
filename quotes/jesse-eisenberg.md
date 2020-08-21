@@ -1,0 +1,127 @@
+ - First rule of magic? Always be the smartest guy in the room.
+ - Don’t be a hero, live to fight another day.
+ - No compliment is ever sufficient and every insult, of course, is true.
+ - Devils don’t come from hell beneath us, they come from the sky.
+ - The more people say nice things about me, the more I feel it’s false.
+ - Every character I play has to be the hero of his own story, the way we’re all heroes of our own lives.
+ - Poor people are gross and they ’smell bad.
+ - Mother Teresa was asked what was the meaning of life, and she said to help other people, and I thought, ‘What a strange thing to say’ – but maybe it’s the right thing to say.
+ - When cellphones came out, my girlfriend refused to get one for five years, because she thought it would turn her into somebody who couldn’t connect with other people – and, of course, she got a cellphone.
+ - Acting is kind of difficult to intellectualize – it’s a far more visceral experience. It’s really hard to be able to think about and then employ these kind of esoteric notions of this person’s backstory and try to weave it in somehow. It’s just kind of impossible.
+ - I’m kind of shocked any time somebody hires me and even more shocked any time somebody hires me to play a character like Lex Luthor, which I only knew from the public consciousness of him being a bald, brooding villain who is older than me.
+ - I’ve never had tastes of people my own age. All of my friends when I was 15 were in their 40s. I’m not actually mature, just very self-conscious around people my own age because I feel like I’m supposed to act the same way they act and I don’t know how.
+ - I don’t follow sports that much now, but I was a Phoenix Suns fanatic in the early ’90s.
+ - I like driving; I don’t drive since I live in New York. I don’t have an opportunity to drive, like, ever.
+ - If I get no sleep the night before a show, I feel that performance is the best one.
+ - I can’t watch myself in interviews. I feel like I look like a wreck. My mom is always calling me and going, ‘Stop fidgeting,’ and it’s like, ‘You have no idea what it’s like, Mom.’
+ - I just can’t – I can’t exist in normal group situations. A classroom, where you have to sort of jockey for position, compete for attention – I would just withdraw.
+ - If you went to Harvard Medical School, chances are you’ll be a doctor at some place. There’s a career trajectory. Acting, there’s nothing. It’s constantly trying to procure jobs – it’s very disconcerting.
+ - I know some amazing actors who are not mortified every moment of the day, so my feeling is that maybe you don’t have to be a wreck to be good.
+ - I tend to be pessimistic about everything: If things seem to be going good, I’m worried that it’s going to end; if things are bad, then I’m worried that it’s going to be permanent. It’s not a very comfortable attitude to have all the time.
+ - I write all the time because I’m lonely. When you’re acting, you’re working every day all day. But then you have long amounts of time off.
+ - I get very homesick, but otherwise it’s a great privilege to get to travel for work.
+ - Everyone’s a geek in some way or other. Everyone’s an outsider.
+ - I often think if you have time to sit around the house feeling bad for yourself, you have time to tutor a child. I’m guilty of that exact thing. I will spend more time sitting around feeling bad for myself than actually helping somebody.
+ - I feel very guilty doing magic because you’re deceiving somebody.
+ - It’s a very strange experience to watch yourself in a movie anyway. I most frequently don’t do it, but if I was going to do it, I would do it in a private way, not at a public screening at a film festival, which is just an overwhelming experience.
+ - I had great difficulty in school interacting with others, and I took refuge in the contrived setting of play acting, which is what I still do.
+ - It’s really hard to copy another actor and be successful. In fact, that’s usually the reason people are not good, because they’re copying something they’ve seen, but, for some reason with their face and their body, it doesn’t work.
+ - The happiest moments for me, creatively, are doing readings of a play around a table where there’s no audience.
+ - I think there’s nothing more wonderful than using fiction to reflect real-world cultural ideas.
+ - I hate watching me. I hate watching me. It just makes me feel awful. I think, ‘I look stupid from that angle. I wish I didn’t let them put that shirt on me.’
+ - I feel things can always be funny, but that’s probably because I have some kind of leftover childhood need to make people laugh. For somebody like me, that’s the thing you excel at.
+ - People think, ‘You’re an actor, you can afford clothes,’ but I just try to take the clothes from the movie, which makes the selecting of film projects that much more difficult, because you try to play characters that might wear something you’d want to wear.
+ - I have an iPad and I watch three things: ‘The Daily Show,’ ‘60 Minutes,’ and ‘Meet the Press.’
+ - Where I feel something that I had written was misinterpreted in a way that made people feel bad, that is absolutely horrifying to me. I feel so embarrassed and I feel ashamed that I should make people feel bad.
+ - I live in New York City, so there’s so much stimulation when you walk outside, it does not require a television in the home.
+ - If you’re afraid of everything out there, you quit going out there.
+ - I feel like when I was 13 and I had to go to bar mitzvahs every weekend. This is the same feeling. You have to put on a suit every weekend to go meet with a bunch of Jews.
+ - People ask me what my hobbies are in interviews, and I always say biking. But all I bike for is to get to rehearsal more quickly.
+ - I always think the second worst thing in the world is to go on stage at night, and the first worst thing in the world is sitting at home at night. For me, it’s scarier to not be doing it than doing it.
+ - My hope is to never act again and just do press.
+ - No one should be offended – that’s not my style.
+ - I give credence to the worst things somebody writes about me, and if somebody writes something nice, I think they’re wrong or false or lying or joking.
+ - I don’t understand capri pants. They seem like neither here nor there.
+ - I always thought Woody Harrelson is quite a persuasive guy. He’s the kind of guy who can call you up in the middle of the night and tell you, ‘Let’s all go get a donut!’ And you’re thinking, ‘It’s the middle of the night,’ but somehow you still get up and go get a donut.
+ - The truth is people are very nice. The other truth is, it’s very annoying to be constantly interrupted. I don’t love myself enough to want to share myself with everybody.
+ - Acting is a weird profession. It’s very disquieting, and at the time it just made me so confused. It’s only when you step away from a movie for several weeks or months that you start to put things in perspective.
+ - The joy of acting for me is to be able to experience emotions in a safe environment. You can’t scream and cry in the street because everybody will look. If you do it on a movie set, you get applauded.
+ - I don’t go to movies, I don’t own a television, I don’t buy magazines and I try not to receive mail, so I’m not really aware of popular culture.
+ - In ‘Zombieland,’ it was such a freewheeling plot it almost didn’t matter what the characters were doing scene to scene as long as there was a consistent banter.
+ - I cried every day of first grade. In class. Which meant I ended up getting comfortable emoting in a place where it wasn’t the norm.
+ - I find it very difficult to do normal things without getting approached.
+ - Society will decide after the technology is created what we will and won’t accept.
+ - I don’t concern myself with thinking ahead to the finished product. I focus more specifically on what the character is experiencing. Once you relieve yourself of the very arbitrary and always punishing pressure of what an audience is expecting you to do, acting becomes a lot more fun and pure.
+ - Acting is a weird, kind of alienating job because you’re in an isolated place. Even if you’re working with a lot of other people, you’re kind of alienated. Actors say that a lot, and I kind of find that to be true.
+ - The scariest people to turn a movie over to are always the people who are drawing up the poster, because that’s the first impression it’s going to make. And very often it’s portraying a very different film from the one the actors actually did.
+ - I live in New York City, where, if you’re in a movie at a popular independent theater, you think you’re king of the world, because you’re in a bubble. So there’s no way for me to properly conceive of the attention that the movie gets in a way that doesn’t make me confused.
+ - I’m hardly the most notable person in ‘Zombieland.’ The other actors in it are way more famous than I am.
+ - In acting class, you’re trained to express yourself as much as you can.
+ - I guess the more serious you play something, if the context is funny, then it will be funny and it doesn’t really require you to be necessarily, explicitly humorous, or silly.
+ - I write plays instinctively. I don’t like writing movie scripts.
+ - I don’t watch the movies I’ve been in. I try to stay as little aware of the final product as possible, because my job doesn’t really change.
+ - I think I’m an abstinence symbol. If I take my shirt off, people will not have babies.
+ - When you’re acting in a movie, you never consider the reception of it. It’s impossible to predict how something will be received. Even if you think it’s the greatest thing in the world, other people might not like it. Or agree with it.
+ - Look, I don’t have a Facebook page because I have little interest in hearing myself talk about myself any further than I already do in interviews or putting any more about myself online than there already is. But if I wasn’t in this position, I’m sure I would use it every day.
+ - I think it’s a room full of insecure actors, which is ultimately very comforting.
+ - To criticize Facebook is to criticize the telephone.
+ - In New York, everybody is their own celebrity, so they’re not so interested in other people.
+ - Depression, if it’s an unconsciously elected experience, is a luxury.
+ - Any time you play a character for a long period of time, regardless of how close it is to you, it infiltrates your life. It’s impossible for it not to.
+ - I feel equal parts lucky and scared anytime I get a job.
+ - Acting forces me to socialise, which is good for me, I think.
+ - I’m not into music – the only music I like is musical theater, but I have every Ween album.
+ - I view myself in the narrowest possible terms, but I don’t watch anything I’ve been in, and I don’t read reviews or analysis of movies I’ve been in, or my plays.
+ - My job when I’m acting in a movie is very limited to playing a role. I’m not evaluating somebody. I’m only evaluating them insofar as they’re interacting with me, but I’m not evaluating their skill set and I don’t watch the movies, so I’m not aware of the way they’re putting things together.
+ - It’s so nerve-wracking to be on a set. They’re the most stressful place in the world, because you’re making something permanent, and there are so many people relying on you in a lot of ways.
+ - When playing a role, I would feel more comfortable, as you’re given a prescribed way of behaving. So, both Facebook and theatre provide contrived settings that provide the illusion of social interaction.
+ - If you look at the movies that come out, most of them are bad, so it’s not as if achieving some level of success means you get offered better roles, because frankly they don’t seem to exist.
+ - I have a job that requires me to be in the public eye in the way that makes me extra careful about sharing information.
+ - I did children’s theater when I was younger, and then when I was about 14 I started doing theater in New York City.
+ - When you are in a live-action movie, you have so many more options to express yourself. You can use your body and your gestures and facial expressions. When you are doing an animated movie, you really only have your voice.
+ - I don’t attribute an actor’s great success to their own individual performance when it’s something as collaborative as a movie.
+ - I find people who want to help other people to be the most interesting. I come from a family of teachers, and my friends are teachers, often times in very difficult school situations.
+ - Who walks around proud of things they’ve done? That’s an obnoxious quality.
+ - Actors dread working with studios because they dictate what you do in a way that independent movies can’t.
+ - I made the mistake of writing something very, very short about Obama for this website that I write fiction for, and my father told me never do that again. And he was right. I have nothing to add to a political conversation because it’s not my area.
+ - I personally don’t feel the need to be radical for its own sake, but I probably couldn’t if I tried anyway.
+ - I tend to prefer the smaller movies because they shoot more efficiently and so you’re are able to maintain that momentum of the character a little more easily.
+ - And I’m sure after Facebook it will be the little cameras that we have implanted into the palms of our hands and we’ll be debating whether we should get them, and then we’ll all get them.
+ - I think I prioritize other people’s opinions of me very highly, which is not necessarily a good thing – it’s a thing that causes a lot of anxiety.
+ - The ideal way to approach a character is to find something in yourself that relates in some way.
+ - It’s a really unique acting opportunity to play two roles who are not only interacting with each other, but vastly different.
+ - The only way to be turned off to being famous is to be famous.
+ - I felt self-conscious going out in the street prior to ever even being in a movie. That’s just me.
+ - All of my pleasures are guilty, but that’s just the way I’m wired.
+ - I see writing and acting as different parts of the same continuum. Writing is better for intense emotion. If you’re very angry about something, you shouldn’t present it as strongly when you’re acting. But if you’re really angry and writing about it, that’s the best way to get it out and across.
+ - I write plays, and I have a musical that’s starting to get produced now. That’s what I would love to do, but it’s so hard. The only reason people are reading my plays and musicals is because I’m in movies.
+ - When you take on a role, even if the character is somebody that you are dissimilar to, you have to identify with the role and look for an emotional connection even if there is not a biographical one.
+ - A lot of times the character’s experience is not in accordance with the tone of the movie and it’s not really my job to account for the tone of the movie. That’s the director’s job.
+ - I purposefully isolate myself from anything that has to do with any press. I don’t read any press about myself.
+ - It’s very hard to be a playwright because it’s very competitive.
+ - When you take on a role you try to do as much as possible beforehand to get your mind into it. Just to prepare because it’s a daunting prospect to go six months or whatever.
+ - As an actor, if I show up late somewhere or I say something that’s eccentric, it’s totally acceptable – not only that, it’s lauded in some perverse way.
+ - I grew up in a secular suburban Jewish household where we only observed the religion on very specific times like a funeral or a Bar Mitzvah.
+ - As an actor, you have to be open to doing things where you look stupid, to be experimental.
+ - As for environmentalism, I’m only an environmentalist by accident. I live in New York, so I bike, and the closest grocery store to me sells organic produce. I also shop with a book bag because I ride a bike, and it’s hard to carry the paper or plastic bags.
+ - If you’re acting, then there’s a prescribed way to behave; whereas in life there’s no prescribed way. So acting feels like a comfortable way to get through the day.
+ - I meet people who are in movies, and the stuff that they write is terrible, but nobody tells them that because they’re famous. So I worry that my stuff might be like that, too.
+ - When you’re on set you don’t realize the way something is going to look since you’re on the other side of the camera.
+ - I prefer playing characters that are going through turmoil. Most movie characters are just in service to the story.
+ - Nothing is harder than working with an actor who doesn’t take it seriously or show up in the same way that you are.
+ - The movies that are really big, at least in my experience, oftentimes don’t have characters that I feel as personally connected to.
+ - Often times, being in a popular thing means that you have to compromise your own acting.
+ - I grew up in Queens and New Jersey. I started doing children’s theater when I was seven to get out of school because I didn’t fit in.
+ - As an actor, you try to bring as much of yourself to a part to try and create a feeling of authenticity and emotional truth and resonance.
+ - As an actor, you are in a unique position because you’re not only memorizing dialogue but really embodying it. You naturally feel the rhythm of good writing.
+ - It’s a struggle for me to watch things I’ve been in because I’m just distracted and self-critical.
+ - I am actually going to two therapists right now. I don’t know, I actually feel like therapy has just made me more uncomfortable.
+ - Working in the arts, you see people who come from terrible circumstances and who, for whatever reason, have incredible talent. But of course, with that great talent comes some guilt because, if you come from circumstances that don’t encourage it, it can be really confusing.
+ - I have one female fan. But she lives with me. I’m not aware of any others.
+ - I grew up in an apolitical household. I never left the country. When I became an adult, I started traveling and became interested in politics, and I probably talked about things in a silly, ignorant way.
+ - I’m no good at really anything that involves motor skills.
+ - The frustrating part of being a movie actor is waiting in your trailer to do two takes of a scene you’ve prepared for two months.
+ - The only suggestions I get on my plays is to make them more of what they already are, and that’s wonderful.
+ - Everybody feels like they need a photograph because we’re in a generation where, if you don’t document it, it didn’t occur. So you’ve got to stop and take a picture with everybody.
+
+125 quotes

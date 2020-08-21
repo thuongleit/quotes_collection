@@ -1,0 +1,41 @@
+ - When you’ve got something to prove, there’s nothing greater than a challenge.
+ - The only thing I care about is my family.
+ - The life of a winner is the result of an unswerving commitment to a never-ending process of self-completion .
+ - Everybody handles things differently.
+ - For an athlete, there’s no time off until it’s over.
+ - If I’m not the sexiest man alive, explain why so many women married me.
+ - Pain is one of life’s great lessons. You need to know how you’ll react to the negatives in your life. Only then will you learn from the pain, and the next time it happens, you can speed up your healing process.
+ - Being gifted intellectually is only a small part of the equation of success. Concentrate on the factors you have control over: persistence, self-discipline, confidence. Far more failures are due to lack of will than lack of ability.
+ - You have to understand, now, I’m a momma’s boy. I’m from the south. My way of being raised is totally different than the big city life. I truly was a country boy.
+ - I could not bounce back from my divorce – emotionally – I just could not bounce back.
+ - I want to help people, give hope to all. Humor is the foundation of our lives.
+ - I was a kid who loved to play games. Any kind of game, any kind of ball. Give me a baseball, give me a basketball, give me something I can bounce and throw.
+ - I’m just in an unfortunate business where if you ask me a question I have to answer it honestly and if I don’t answer it truthfully then I’m not respected.
+ - I must have been a really tough kid to corral. I got disciplined quite frequently. I guess that would be the best way to say it. The rod, I wore out the rod. You know, Spare the rod and spoil the child? Well, I wore out the rod.
+ - I just see too many people retire and say, ‘I’m going to take off, travel, spend time with my family’ and they are just miserable. They end up dying. People who work and stay active, and like what they are doing, live longer.
+ - I’m always happy-go-lucky, and people look at me and find it shocking that I could be depressed.
+ - I got a family I got to answer to. I got kids my older parents and my preachers and everybody.
+ - I didn’t respond well to a firm hand and insults.
+ - I enjoy my public speaking. That’s what I love doing. It’s what I’m good at.
+ - After three failed marriages, I know what it’s like to be replaced.
+ - If you play in the NFL and start for 10 years, it’s not good. It is not good.
+ - What’s the worst thing that can happen to a quarterback? He loses his confidence.
+ - I’m on national TV in front of millions and I hate making mistakes.
+ - I’m going to tell it straight, that yes, I’d love to be traded.
+ - I know this golf tournament has my name on it but it’s not about me. It’s about the Louisiana Tech family. There is nothing greater than being a part of the Bulldog family.
+ - There really has been only one thing in my life that has made me feel complete, and that is the game of football. The ability to throw a football was my God-given talent. That was my blessing and my passion; that was my calling in live, and everything that I’ve accomplished has derived from that.
+ - People ask me all the time would I like to still be playing? No. I’m glad I played when I played.
+ - The best thing you can say about any coach is his players play hard for him.
+ - You can’t have ‘yes’ people around you.
+ - Ride it when you retire.
+ - When I played for the Steelers and I got my bell rung, I’d take smelling salts and go right back out there.
+ - I always wanted everyone to like me. I wanted the city of Pittsburgh to be proud of me. But my first few seasons, I could to count the number of people on my bandwagon on one finger.
+ - You can’t dodge them all. I got hammered plenty of times through the years. But you just get up and keep playing. I can tell you from experience, though. Sometimes it hurts like hell.
+ - When I was labeled stupid, that scarred me forever.
+ - I decided to write a book primarily because people talked me into it.
+ - It’s obvious that my brain isn’t what it used to be.
+ - I really don’t care that I’m ranked.
+ - Fans are fans. I hated and loved them, hated and loved them, hated and loved them.
+ - I had learned so much about marriage from Missy that I only had to get divorced two more times.
+
+39 quotes

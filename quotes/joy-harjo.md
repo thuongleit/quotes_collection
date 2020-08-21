@@ -1,0 +1,23 @@
+ - If you do not answer the noise and urgency of your gifts, they will turn on you. Or drag you down with their immense sadness at being abandoned.
+ - I believe that poets have to be inside their poems somewhere, or the poem won’t work.
+ - There is no poetry where there are no mistakes.
+ - Because Music is a language that lives in the spiritual realms, we can hear it, we can notate it and create it, but we cannot hold it in our hands.
+ - I’ve always had a theory that some of us are born with nerve endings longer than our bodies.
+ - Remember the plants, trees, animal life who all have their families, their histories too. Talk to them, listen to them. They are alive poems.
+ - Perhaps the world will end at the kitchen table, while we are laughing and crying, eating of the last sweet bite.
+ - I listen to the gunfire we cannot hear, and begin this journey with the light of knowing the root of my own furious love.
+ - There is no separation. We are all from the same place. As long as there is respect and acknowledgement of connections, things continue working. When that stops we all die.
+ - Remember that you are all people and that all people are you.
+ - True power does not amass through the pain and suffering of others.
+ - My generation is now the door to memory. That is why I am remembering.
+ - It is memory that provides the heart with impetus, fuels the brain, and propels the corn plant from seed to fruit.
+ - My sister accommodates me, never reproaches me with her doctrine, never tries to change me. She accepts and loves me, despite our differences.
+ - I was born with eyes that can never close...
+ - In Isleta the rainbow was a crack in the universe. We saw the barest of all life that is possible. Bright horses rolled over and over the dusking sky.
+ - I know I walk in and out of several worlds each day.
+ - It’s important as a writer to do my art well and do it in a way that is powerful and beautiful and meaningful, so that my work regenerates the people, certainly Indian people, and the earth and the sun. And in that way we all continue forever.
+ - If we cry more tears we will ruin the land with salt; instead let’s praise that which would distract us with despair. Make a song for death, a song for yellow teeth and bad breath.
+ - I have more questions than answers in this world as do most poets and writers. The field of memory we exist in is absolutely encompassing and is both a question and answer. It is memory that provides the heart with impetus, fuels the brain, and propels the corn plant from seed to fruit.
+ - Someone accompanies every soul from the other side when it enters this place. Usually it is an ancestor with whom that child shares traits and gifts.
+
+21 quotes

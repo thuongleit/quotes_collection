@@ -1,0 +1,32 @@
+ - I have failed at times, but I never stopped trying.
+ - No dream is ever chased alone.
+ - If you don’t ask for the best, you don’t get it.
+ - I am what I am. I have not deliberately built an image for myself.
+ - I have the kind of personality that I always look ahead than look at what’s happened. It does help a lot, especially when you’ve done badly or you’ve failed. It’s instinctive of me that I look at what’s next, I look ahead a lot, and start preparing for that, in victory and in defeat.
+ - I think credibility, irrespective of what you do, if you are in public life, then it is important.
+ - Reading allows me to recharge my batteries.
+ - You get an image in the first couple of years of your career, and then whether you like it or not, you are stuck with it for the rest of your life.
+ - If someone thinks, ‘I’ll spend the off season working on my fitness and I’ll come back a better cricketer,’ I don’t think that’s enough. You need to spend a lot of time working on your skills and honing your skills.
+ - A career in sport is almost impossible to manage without the support, and guidance, and reassurance of family and friends. During tough times, and there always are, this is whom we go to.
+ - Even if my grandchildren don’t remember the fact that I scored 10,000 runs in Test and ODI cricket, I am confident that they will remember that Sachin Tendulkar used to be my team-mate.
+ - While I played Ranji Trophy for five years, I used to be asked, ‘When are you playing for the nation?’ – a question which I didn’t have any answer to. I kept playing before I got my first break in 1996; those five years were indeed frustrating.
+ - I was given a talent to play cricket. I don’t know why I was given it. But I was. I owe it to all those who wish it had been them to give of my best, every day.
+ - I was like every other boy in India, with a dream of playing for my country. Yet I could never have imagined a journey so long and so fulfilling. No dream is ever chased alone.
+ - Tendulkar must have known from his heart.
+ - There is an element of mystique to radio, and I often listen to cricket commentary on radio, especially when one is stuck in a traffic jam.
+ - On the onside, first there is God, then Sourav Ganguly.
+ - I was telling people if every time I answered a question about Multan I got a rupee, I would be a multimillionaire by now.
+ - Pravin Tambe is bigger inspiration than me for young cricketers.
+ - Playing in the same team as Sachin is a huge honour. His balance of mind, shrewd judgment, modesty and, above all, his technical brilliance make him my all-time hero. You can’t get a more complete cricketer than Sachin. He has everything that a cricketer needs to have.
+ - Cricket is just something that I am good at, just like various people are good at various things. What’s lucky is that cricket gets enormous publicity.
+ - Sachin Tendulkar is already a ‘Bharat Ratna’ for Indian people because of his phenomenal success and the manner in which he has served Indian cricket for years.
+ - What drew me towards team sport were the camaraderie and friendship. The chance to celebrate victory and success with a group of other people is something I have enjoyed doing.
+ - In a cricket career, your life is in some ways controlled for you. You have no control over schedules, you have no control about where you want to play, you don’t have control over that as a cricketer.
+ - I am not the only intense or intellectual cricketer. I played with other cricketers who could be pretty intense and intellectual.
+ - Sometimes fitness is a good thing to have, but you have to recognise that fitness takes you only so far, and skills are the most important thing. Fitness just helps you execute those cricketing skills for longer and more consistently, maybe.
+ - He is a great leader by example. Someone whom I have always admired for his ability to remain balanced and have the sense of equanimity about his captaincy.
+ - Unwanted honking not only irritates others, but may also end up causing accidents. Drivers lose cool and it may result in road rage.
+ - There are so many fans and so many people who care deeply about this game, and it is because of these fans that we are who we are as cricketers.
+ - I was in the hockey team in school, played football. One of the challenges for me was to make the team feel better. It helped me evolve, so batting at different positions was never a problem.
+
+30 quotes

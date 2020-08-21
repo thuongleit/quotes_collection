@@ -1,0 +1,502 @@
+ - Success is not final, failure is not fatal: it is the courage to continue that counts.
+ - If you are going through hell, keep going.
+ - The positive thinker sees the invisible, feels the intangible , and achieves the impossible.
+ - A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty.
+ - You will never reach your destination if you stop and throw stones at every dog that barks.
+ - Success is stumbling from failure to failure with no loss of enthusiasm.
+ - Attitude is a little thing that makes a big difference.
+ - You have enemies? Good. That means you've stood up for something, sometime in your life.
+ - To improve is to change; to be perfect is to change often.
+ - The price of greatness is responsibility.
+ - We make a living by what we get. We make a life by what we give.
+ - A good speech should be like a woman’s skirt; long enough to cover the subject and short enough to create interest.
+ - Never give up on something that you can’t go a day without thinking about.
+ - My tastes are simple: I am easily satisfied with the best.
+ - Courage is going from failure to failure without losing enthusiasm.
+ - Kites rise highest against the wind, not with it.
+ - History will be kind to me for I intend to write it.
+ - Difficulties mastered are opportunities won.
+ - It is a mistake to try to look too far ahead. The chain of destiny can only be grasped one link at a time.
+ - Never, never, never give in!
+ - I never worry about action, but only about inaction.
+ - However beautiful the strategy, you should occasionally look at the results.
+ - All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope.
+ - Continuous effort – not strength or intelligence – is the key to unlocking our potential.
+ - Courage is what it takes to stand up and speak; courage is also what it takes to sit down and listen.
+ - Now this is not the end. It is not even the beginning of the end. But it is, perhaps, the end of the beginning.
+ - We shall never surrender.
+ - Never give in. Never give in. Never, never, never, never – in nothing, great or small, large or petty – never give in, except to convictions of honour and good sense. Never yield to force. Never yield to the apparently overwhelming might of the enemy.
+ - Diplomacy is the art of telling people to go to hell in such a way that they ask for directions.
+ - If you find a job you love, you’ll never work again...
+ - I have nothing to offer but blood, toil, tears and sweat.
+ - A lie gets halfway around the world before the truth has a chance to get its pants on.
+ - Sometimes doing your best is not good enough. Sometimes you must do what is required.
+ - When you’re 20 you care what everyone thinks, when you’re 40 you stop caring what everyone thinks, when you’re 60 you realize no one was ever thinking about you in the first place. You have enemies? Good. That means you’ve stood up for something, sometime in your life.
+ - When there is no enemy within, the enemies outside cannot hurt you.
+ - Before you can inspire with emotion, you must be swamped with it yourself. Before you can move their tears, your own must flow. To convince them, you must yourself, believe.
+ - For myself I am an optimist - it does not seem to be much use to be anything else.
+ - We are still masters of our fate. We are still captains of our souls.
+ - The empires of the future are the empires of the mind.
+ - There is no time for ease and comfort. It is the time to dare and endure.
+ - I am always ready to learn although I do not always like being taught.
+ - You ask, what is our aim? I can answer in one word. It is victory, victory at all costs, victory in spite of all terror, victory, however long and hard the road may be; for without victory, there is no survival.
+ - Keep calm and carry on.
+ - You create your own universe as you go along.
+ - The Fascists of the future will be the anti-fascists.
+ - It is not enough that we do our best; sometimes we must do what is required.
+ - The best argument against democracy is a five-minute conversation with the average voter.
+ - The greatest lesson in life is to know that even fools are right sometimes.
+ - If you don’t take change by the hand, it will take you by the throat.
+ - The truth is incontrovertible. Malice may attack it, ignorance may deride it, but in the end, there it is.
+ - An appeaser is one who feeds a crocodile, hoping it will eat him last.
+ - Men occasionally stumble over the truth, but most of them pick themselves up and hurry off as if nothing ever happened.
+ - Every day you may make progress. Every step may be fruitful. Yet there will stretch out before you an ever-lengthening, ever-ascending, ever-improving path. You know you will never get to the end of the journey. But this, so far from discouraging, only adds to the joy and glory of the climb.
+ - Never in the field of human conflict was so much owed by so many to so few.
+ - Those who plan do better than those who do not plan, even should they rarely stick to their plan.
+ - A fanatic is one who can’t change his mind and won’t change the subject.
+ - Democracy is the worst form of government, except for all the others.
+ - The farther backward you can look, the farther forward you are likely to see.
+ - The only statistics you can trust are those you falsified yourself.
+ - Good and great are seldom in the same man.
+ - All men make mistakes, but only wise men learn from their mistakes.
+ - We are masters of the unsaid words, but slaves of those we let slip out.
+ - In War: Resolution, In Defeat: Defiance, In Victory: Magnaminity In Peace: Good Will.
+ - He who fails to plan is planning to fail.
+ - When the eagles are silent, the parrots begin to jabber.
+ - We sleep safely at night because rough men stand ready to visit violence on those who would harm us.
+ - If you have an important point to make, don’t try to be subtle or clever. Use a pile driver. Hit the point once. Then come back and hit it again. Then hit it a third time – a tremendous whack.
+ - Don’t interrupt me while I’m interrupting.
+ - Most of the world’s work is done by people who don’t feel very well.
+ - Everyone is in favor of free speech. Hardly a day passes without its being extolled, but some people’s idea of it is that they are free to say what they like, but if anyone else says anything back, that is an outrage.
+ - I am fond of pigs. Dogs look up to us. Cats look down on us. Pigs treat us as equals.
+ - Show me a young Conservative and I’ll show you someone with no heart. Show me an old Liberal and I’ll show you someone with no brains.
+ - Solitary trees, if they grow at all, grow strong.
+ - A small lie needs a bodyguard of bigger lies to protect it.
+ - The inherent vice of capitalism is the unequal sharing of blessings; the inherent vice of socialism is the equal sharing of miseries.
+ - The most important thing about education is appetite.
+ - A joke is a very serious thing.
+ - A politician needs the ability to foretell what is going to happen tomorrow, next week, next month, and next year. And to have the ability afterwards to explain why it didn’t happen.
+ - When you get a thing the way you want it, leave it alone.
+ - There are plenty of good ideas, if only they can be backed with the power of action.
+ - Healthy citizens are the greatest asset any country can have.
+ - Broadly speaking, the short words are the best, and the old words best of all.
+ - Rugby is a hooligans game played by gentlemen.
+ - A prisoner of war is a man who tries to kill you and fails, and then asks you not to kill him.
+ - The oldest habit in the world for resisting change is to complain that unless the remedy to the disease should be universally applied it should not be applied at all. But you must start somewhere.
+ - It is a good thing for an uneducated man to read books of quotations.
+ - If you have ten thousand regulations you destroy all respect for the law.
+ - We shape our buildings; thereafter they shape us.
+ - You will make all kinds of mistakes; but as long as you are generous and true and also fierce you cannot hurt the world or even seriously distress her. She was meant to be wooed and won by youth.
+ - Fear is a reaction. Courage is a decision.
+ - I am all for your using machines, but do not let them use you.
+ - One ought never to turn one’s back on a threatened danger and try to run away from it. If you do that, you will double the danger. But if you meet it promptly and without flinching, you will reduce the danger by half.
+ - Nothing in life is so exhilarating as to be shot at without result.
+ - We contend that for a nation to try to tax itself into prosperity is like a man standing in a bucket and trying to lift himself up by the handle.
+ - I only believe in statistics that I doctored myself.
+ - There is no doubt that it is around the family and the home that all the greatest virtues, the most dominating virtues of human, are created, strengthened and maintained.
+ - I no longer listen to what people say, I just watch what they do. Behavior never lies.
+ - There is something about the outside of a horse that is good for the inside of a man.
+ - This paper, by its very length, defends itself from ever being read.
+ - A love for tradition has never weakened a nation, indeed it has strengthened nations in their hour of peril.
+ - The gift of a common tongue is a priceless inheritance and it may well some day become the foundation of a common citizenship.
+ - It is wonderful how well men can keep secrets they have not been told.
+ - Here life itself, life at its best and healthiest, awaits the caprice of the bullet. Let us see the development of the day. All else may stand over, perhaps for ever. Existence is never so sweet as when it is at hazard.
+ - Never let a good crisis go to waste.
+ - Islam to a man is like rabies to a dog.
+ - The most beautiful voice in the world is that of an educated Southern woman.
+ - Life is a test and this world a place of trial.
+ - We shall not flag nor fail. We shall go on to the end.
+ - Christmas is a season not only of rejoicing but of reflection.
+ - The era of procrastination, of half-measures, of soothing and baffling expedients, of delays is coming to its close. In its place we are entering a period of consequences.
+ - Hence we will not say that Greeks fight like heroes, but heroes fight like Greeks.
+ - From now on, ending a sentence with a preposition is something up with which I will not put.
+ - I may be drunk, Miss, but in the morning I will be sober and you will still be ugly.
+ - Our future is in our hands. Our lives are what we choose to make them.
+ - There comes into the life of every man a task for which he and he alone is uniquely suited. What a shame if that moment finds him either unwilling or unprepared for that which would become his finest hour.
+ - No one ever finds life worth living – one has to make it worth living.
+ - The unforgivable sin of Hitler’s Germany was to develop a new economic system by which the international bankers were deprived of their profits.
+ - A man is about as big as the things that make him angry.
+ - Out of intense complexities, intense simplicities emerge.
+ - We proceeded systematically, village by village and we destroyed the houses, filled up the wells, blew down the towers, cut down the shady trees, burned the crops and broke the reservoirs in punitive devastation.
+ - Without victory there is no survival!
+ - The cemetery is full of indispensable people.
+ - To improve is to change.
+ - The difference between mere management and leadership is communication.
+ - You must put your head into the lion’s mouth if the performance is to be a success.
+ - If two people agree on everything, one of them is unnecessary.
+ - What is the use of living, if it be not to strive for noble causes and to make this muddled world a better place for those who will live in it after we are gone?
+ - At the beginning of this War megalomania was the only form of sanity.
+ - One man with conviction will overwhelm a hundred who have only opinions.
+ - Plans are of little importance, but planning is essential.
+ - It’s Never Over ’till it’s over! Never Give Up! Never.
+ - Sure I am of this, that you have only to endure to conquer. You have only to persevere to save yourselves, and to save all those who rely upon you. You have only to go right on, and at the end of the road, be it short or long, victory and honor will be found.
+ - You don’t make the poor richer by making the rich poorer.
+ - If I had my way, I would write the word ‘insure’ over every door of every cottage and upon the blotting pad of every public man, because I am convinced that, for sacrifice that are conceivably small, families can be secured against catastrophes which otherwise would smash them forever.
+ - Criticism may not be agreeable, but it is necessary. It fulfils the same function as pain in the human body. It calls attention to an unhealthy state of things.
+ - Courage is rightly considered the foremost of the virtues, for upon it all others depend.
+ - Victory is not final. Defeat is not failure. It’s all about courage.
+ - I never slept as soundly as the night following Pearl Harbor. For I knew that The American Race would now be entering the war and it would never be the same.
+ - You can measure a man’s character by the choices he makes under pressure.
+ - There is something going on in time and space, and beyond time and space, which, whether we like it or not, spells duty.
+ - I like things to happen, and if they don’t happen I like to make them happen.
+ - If you want to discover new oceans, you must first have the courage to leave shore.
+ - Where my reason, imagination or interest were not engaged, I would not or I could not learn.
+ - Meet success like a gentleman; disaster like a man.
+ - To be really happy and really safe, one ought to have at least two or three hobbies, and they must all be real.
+ - Great success always comes at the risk of enormous failure.
+ - For the first 25 years of my life, I wanted freedom. For the next 25 years, I wanted order. For the next 25 years, I realized that order is freedom.
+ - There comes a special moment in everyone’s life, a moment for which that person was born. That special opportunity, when he seizes it, will fulfill his mission – a mission for which he is uniquely qualified. In that moment, he will find greatness. It is his finest hour.
+ - If we open a quarrel between past and present, we shall find that we have lost the future.
+ - The United Nations was set up not to get us to heaven, but only to save us from hell.
+ - There comes a precious moment in all of our lives when we are tapped on the shoulder and offered the opportunity to do something very special that is unique to us and our abilities, what a tragedy it would be if we are not ready or willing.
+ - It is always wise to look ahead, but difficult to look further than you can see.
+ - We shall fight in parking lots, we shall fight in empty fields and on wide streets, we shall never surrender.
+ - I’d rather argue against a hundred idiots, than have one agree with me.
+ - If we are together nothing is impossible. If we are divided all will fail.
+ - You were given the choice between war and dishonor. You chose dishonor and you will have war.
+ - I love learning, but hate being taught.
+ - I was not the lion, but it fell to me to give the lion’s roar.
+ - To build may have to be the slow and laborious task of years. To destroy can be the thoughtless act of a single day.
+ - I’m too busy. I have no time for worry.
+ - There is nothing wrong with change, if it is in the right direction.
+ - Without courage all other virtues lose their meaning.
+ - The first duty of a university is to teach wisdom, not trade; character, not technicalities.
+ - We are shaping the world faster than we can change ourselves, and we are applying to the present the habits of the past.
+ - Democracy is the best form of the worst type of government.
+ - Success always demands a greater effort.
+ - Socialism is a philosophy of failure, the creed of ignorance, and the gospel of envy, its inherent virtue is the equal sharing of misery.
+ - I propose that 100,000 degenerate Britons should be forcibly sterilized and others put in labour camps to halt the decline of the British race.
+ - It is no use saying, ‘We are doing our best.’ You have got to succeed in doing what is necessary.
+ - Victory is the beautiful, bright-colored flower. Transport is the stem without which it could never have blossomed.
+ - Smoking Cigars is like falling in love. First, you are attracted by its shape; you stay for its flavor, and you must always remember never, never to let the flame go out!
+ - You must look at facts, because they look at you.
+ - Mountaintops inspire leaders but valleys mature them.
+ - English literature is a glorious inheritance which is open to all – there are no barriers, no coupons, and no restrictions. In the English language and in its great writers there are great riches and treasures, of which, of course, the Bible and Shakespeare stand along on the highest platform.
+ - Never flinch, never weary, never despair.
+ - Science should be on tap, not on top.
+ - Good night, then – sleep to gather strength for the morning. For the morning will come. Brightly will it shine on the brave and true, kindly on all who suffer for the cause, glorious upon the tombs of heroes. Thus will shine the dawn.
+ - Plans are worthless. Planning is priceless.
+ - In wartime, truth is so precious that she should always be attended by a bodyguard of lies.
+ - Politics is more dangerous than war, for in war you are only killed once.
+ - An efficient and a successful administration manifests itself equally in small as in great matters.
+ - With integrity, nothing else counts. Without integrity, nothing else counts.
+ - Never does a man portray his character more vividly than when proclaiming the character of another.
+ - Democracy means that when there’s a knock in the door at 3 am, it’s probably the milkman.
+ - I drink a great deal. I sleep a little, and I smoke cigar after cigar. That is why I am in two-hundred-percent form.
+ - We have no lasting friends, no lasting enemies, only lasting interests.
+ - Life is fraught with opportunities to keep your mouth shut.
+ - The future is unknowable, but the past should give us hope.
+ - Your greatest fears are created by your imagination. Don’t give in to them.
+ - Air superiority is the ultimate expression of military power.
+ - The length of this document defends it well against the risk of its being read.
+ - Who is not liberal when young, does not have a heart. Who is not conservative when old, does not have a brain.
+ - Lady Nancy Astor: Winston, if you were my husband, I’d poison your tea. Churchill: Nancy, if I were your husband, I’d drink it.
+ - Perfectionism spells paralysis.
+ - Preparation is – if not the key to genius – then at least the key to sounding like a genius.
+ - The day may dawn when fair play, love for one’s fellow men, respect for justice and freedom, will enable tormented generations to march forth serene and triumphant from the hideous epoch in which we have to dwell. Meanwhile, never flinch, never weary, never despair.
+ - Nothing is perfect on the human stage...
+ - The reservist is twice the citizen.
+ - You leave out God, and you substitute the devil.
+ - Rules were made for fools to follow and wise men to be guided by.
+ - There is only one answer to defeat and that is victory.
+ - Failure should never go to heart and success should never go to head, both makes a person to fall in life.
+ - No compromise with the main purpose, no peace till victory, no pact with unrepentant wrong.
+ - A vocabulary of truth and simplicity will be of service throughout your life.
+ - No hour of life is wasted that is spent in the saddle.
+ - A nation which has forgotten its past can have no future.
+ - Achievement is not last, disappointment is not deadly: It is the mettle to proceed with that matters.
+ - I cannot forecast to you the action of Russia. It is a riddle wrapped in a mystery inside an enigma: but perhaps there is a key. That key is Russian national interest.
+ - I have benefited greatly from criticism, and at no time have I suffered a lack thereof.
+ - Do not trust any statistics you did not fake yourself.
+ - War is a game that is played with a smile. If you can’t smile, grin. If you can’t grin, keep out of the way till you can.
+ - Writing is an adventure.
+ - Unpunctuality is a vile habit.
+ - If you don’t have any enemies in life you have never stood up for anything.
+ - You create your own universe as you go along. The stronger your imagination, the more variegated your universe. When you leave off dreaming, the universe ceases to exist.
+ - If we win, nobody will care. If we lose, there will be nobody to care.
+ - If Britain must choose between Europe and the open sea, she must always choose the open sea.
+ - You must understand that this war is not against Hitler or National Socialism, but against the strength of the German people, which is to be smashed once and for all, regardless of whether it is in the hands of Hitler or a Jesuit priest.
+ - Tidiness is a virtue, symmetry is often a constituent of beauty...
+ - Never engage in a battle of wits with an unarmed man.
+ - There is no worse mistake in public leadership than to hold out false hope soon to be swept away.
+ - My education was interrupted only by my schooling.
+ - Beware of driving men to desperation. Even a cornered rat is dangerous.
+ - We are plunged in a long and grievous struggle. But all will come right if we all work together to the end.
+ - Don’t take ‘no’ for an answer, never submit to failure. Do not be fobbed off with mere personal success or acceptance. You will make all kinds of mistakes, but as long as you are generous and true, and also fierce, you cannot hurt the world or events.
+ - It is sheer laziness not compressing thought into a reasonable space.
+ - Russia is a riddle wrapped in a mystery inside an enigma.
+ - The maxim, “Nothing prevails but perfection,” may be spelled PARALYSIS.
+ - Let us therefore brace ourselves to our duties, and so bear ourselves that, if the British Empire and its Commonwealth last for a thousand years, men will still say, ‘This was their finest hour.’
+ - To jaw-jaw is always better than to war-war.
+ - When we judge or criticize another person, it says nothing about that person; it merely says something about our own need to be critical.
+ - True genius resides in the capacity for evaluation of uncertain, hazardous, and conflicting information.
+ - Where does the family start? It starts with a young man falling in love with a girl – no superior alternative has yet been found.
+ - In Success you deserve it and in defeat, you need it.
+ - No crime is so great as daring to excel.
+ - Old men make war, young men fight and die.
+ - I’m so bored with it all.
+ - I’m going to make a long speech because I’ve not had the time to prepare a short one.
+ - Every man should ask himself each day whether he is not too readily accepting negative solutions.
+ - Russian may seem narrow-minded, impudent, or even stupid people, but can only pray for those who are against them.
+ - A communist is like a crocodile: when it opens its mouth you cannot tell whether it is trying to smile or preparing to eat you up.
+ - In the past we have had a light which flickered, in the present we have a light which flames, and in the future there will be a light which shines over all the land and sea.
+ - If the human race wishes to have a prolonged and indefinite period of material prosperity, they have only got to behave in a peaceful and helpful way toward one another.
+ - There is nothing like oratory, it is a skill that can turn a commoner into a king.
+ - Air power may either end war or end civilization.
+ - The substitution of the internal combustion engine for the horse marked a very gloomy milestone in the progress of mankind.
+ - Some people regard private enterprise as a predatory tiger to be shot. Others look on it as a cow they can milk. Not enough people see it as a healthy horse, pulling a sturdy wagon.
+ - One cannot leap a chasm in two jumps.
+ - Success in life is the ability to move from one mistake to another without loosing enthusiasm.
+ - Money is like manure, its only good if you spread it around.
+ - Let our advance worrying become advance thinking and planning.
+ - Land monopoly is not only monopoly, but it is by far the greatest of monopolies; it is a perpetual monopoly, and it is the mother of all other forms of monopoly.
+ - Wars are not won by evacuations.
+ - I am prepared to meet my Maker. Whether my Maker is prepared for the great ordeal of meeting me is another matter.
+ - Time is one thing that can never be retrieved. One may lose and regain friends. One may lose and regain money. Opportunity, once spurned, may come again. But the hours that are lost in idleness can never be brought back to be used in gainful pursuits.
+ - You can always count on Americans to do the right thing – after they’ve tried everything else.
+ - I’m just preparing my impromptu remarks.
+ - We must build a kind of United States of Europe.
+ - I have taken more out of alcohol than alcohol has taken out of me.
+ - Have no fear of the future. Let us go forward into its mysteries, tear away the veils which hide it from our eyes, and move onwards with confidence and courage.
+ - These are not dark days: these are great days – the greatest days our country has ever lived.
+ - Painting is a companion with whom one may walk a great part of life’s journey.
+ - Eating words has never given me indigestion.
+ - It is a curious fact about British Islanders, who hate drill and have not been invaded for nearly a thousand years, that as danger comes nearer and grows they become progressively less nervous; when it is imminent the are fierce, when it is mortal they are fearless.
+ - Each one hopes that if he feeds the crocodile enough, the crocodile will eat him last. All of them hope that the storm will pass before their turn comes to be devoured. But I fear – I fear greatly – the storm will not pass. It will rage and it will roar, even more loudly, even more widely.
+ - I do not apologize for the takeover of the region by the Jews from the Palestinians in the same way I don’t apologize for the takeover of America by the whites from the Red Indians or the takeover of Australia from the blacks. It is natural for a superior race to dominate an inferior one.
+ - The man who stands firm in order to protect a sand-castle can never be relied upon; for he has given away his common sense.
+ - The flags of the Confederate States of America were very important and a matter of great pride to those citizens living in the Confederacy. They are also a matter of great pride for their descendants as part of their heritage and history.
+ - Safety and certainty in oil lie in variety, and variety alone.
+ - The Aryan stock is bound to triumph.
+ - Any man who is under 30, and is not a liberal, has no heart; and any man who is over 30, and is not a conservative, has no brains.
+ - After a time, civil servants tend to become no longer servants and no longer civil.
+ - Never abandon life. There is a way out of everything except death.
+ - Of all the small nations of this earth, perhaps only the ancient Greeks surpass the Scots in their contribution to mankind.
+ - An American diplomat is sometimes like a bull who carries his own china shop around with him.
+ - There is a forgotten, nay almost forbidden word, which means more to me than any other. That word is England.
+ - I get my exercise being a pallbearer for those of my friends who believed in regular running and calisthenics.
+ - Most people hate the taste of beer – to begin with. It is, however, a prejudice that many people have been able to overcome.
+ - You must sleep sometime between lunch and dinner, and no halfway measures. Take off your clothes and get into bed. That’s what I always do.
+ - As long as we have faith in our own cause and an unconquerable will to win, victory will not be denied us.
+ - The United States is like a gigantic boiler. Once the fire is lit under it, there’s no limit to the power it can generate.
+ - I’d rather be right than consistent.
+ - To try to be safe everywhere is to be strong nowhere.
+ - Anyone can rat, but it takes a certain amount of ingenuity to re-rat.
+ - A day away from Chartwell is a day wasted.
+ - You never can tell whether bad luck may not after all turn out to be good luck.
+ - No one can guarantee success in war, but only deserve it.
+ - Always remember, a cat looks down on man, a dog looks up to man, but a pig will look man right in the eye and see his equal.
+ - A gentleman is a man who is only rude when he intends to be.
+ - The nation will find it very hard to look up to the leaders who are keeping their ears to the ground.
+ - Nourish your hopes, but do not overlook realities.
+ - The malice of the wicked was reinforced by the weakness of the virtuous.
+ - If you destroy a free market you create a black market.
+ - There is a treasure in the heart of every man if you can only find it.
+ - Time passes swiftly, but is it not joyous to see how great and growing is the treasure we have gathered together, amid the storms and stresses of so many eventful and to millions tragic and terrible years?
+ - You know, in war, you don’t have to be nice. You only have to be right.
+ - We must be very careful not to assign this deliverance the attributes of a victory. Wars are not won by evacuations.
+ - Be a peg, hammered into the frozen ground, immovable.
+ - Sunshine is my quest.
+ - There but for the grace of God, goes God.
+ - Criticism is easy; achievement is difficult.
+ - The belief that security can be obtained by throwing a small state to the wolves is a fatal delusion.
+ - There is at least one thing worse than fighting with allies – And that is to fight without them.
+ - All I want is compliance with my wishes, after reasonable discussion.
+ - The cultivation of a hobby and new forms of interest is a policy of first importance to a public man.
+ - By swallowing evil words unsaid, no one has ever harmed his stomach.
+ - I feel like an aeroplane at the end of its flight, in the dusk, with the petrol running out, in search of a safe landing.
+ - Indomitable in retreat, invincible in advance; insufferable in victory.
+ - Life is a test and this world a place of trial. Always the problems – or it may be the same problem – will be presented to every generation in different forms.
+ - We have not journeyed all this way because we are made of sugar candy.
+ - No sky is heavy if the heart be light.
+ - What is adequacy? Adequacy is no standard at all.
+ - No one saves us but ourselves. No one can and no one may. We ourselves must walk the path. Some of us think holding on makes us strong; but sometimes it is letting go. Continuous effort – not strength or intelligence – is the key to unlocking our potential.
+ - And what a plan! This vast operation is undoubtedly the most complicated and difficult that has ever occurred.
+ - Never give in except to convictions of honor and good sense.
+ - There is no finer investment for any community than putting milk into babies.
+ - We shall escape the absurdity of growing a whole chicken in order to eat the breast or wing, by growing these parts separately under a suitable medium.
+ - Life can either be accepted or changed. If it is not accepted, it must be changed. If it cannot be changed, then it must be accepted.
+ - There are bitter weeds in England.
+ - There is only one duty, only one safe course, and that is to try to be right and not to fear to do or say what you believe to be right. That is the only way to deserve and to win the confidence of our great people in these days of trouble.
+ - Never yield to the apparently overwhelming might of the enemy.
+ - Study history, study history. In history lies all the secrets of statecraft.
+ - Success is the ability to continue to move through total disaster.
+ - The true guide of life is to do what is right.
+ - Socialism is an attack on the right to breathe freely. No socialist system can be established without a political police.
+ - Courage is the greatest virtue because it guarantees all the rest.
+ - When we run out of money, we have to start thinking.
+ - Advertising nourishes the consuming power of men.
+ - The only thing that ever really frightened me during the war was the U-boat peril.
+ - There are no limits to the majestic future which lies before the mighty expanse of Canada with its virile, aspiring, cultured, and generous-hearted people.
+ - A world united is better than a world divided, but a world divided is better than a world destroyed.
+ - The head cannot take in more than the seat can endure.
+ - In war, truth is often the first casualty.
+ - Soviet Union foreign policy is a puzzle inside a riddle wrapped in an enigma, and the key is Russian nationalism.
+ - Are you insinuating that I am a purveyor of terminological inexactitudes?
+ - An aphorism is not an aphorism unless you know what it means.
+ - It is wonderful what great strides can be made when there is a resolute purpose behind them.
+ - I want no criticism of America at my table. The Americans criticize themselves more than enough.
+ - Socialism is like a dream. Sooner or later you wake up to reality.
+ - An extra yawn one morning in the springtime, an extra snooze one night in the autumn is all that we ask in return for dazzling gifts. We borrow an hour one night in April; we pay it back with golden interest five months later.
+ - No idea is so outlandish that it should not be considered with a searching but at the same time a steady eye.
+ - Things do not get better by being left alone.
+ - In Critical and baffling situations, it is always best to return to first principle and simple action.
+ - People who are not prepared to do unpopular things and defy the clamor of the multitude are not fit to be ministers in time of difficulty.
+ - When someone says to me, Ugh, you smoke. I reply, Ugh, you’re ugly. I can quit smoking.
+ - Some men change their party for the sake of their principles; others their principles for the sake of their party.
+ - It may well be that we shall by a process of sublime irony have reached a state in this story where safety will be the sturdy child of terror, and survival the twin brother of annihilation.
+ - I liked wine, both red and white, and especially Champagne; and on very special occasions I could even drink a small glass of brandy.
+ - The Russian Bolsheviks have discovered that truth does not matter so long as there is reiteration. They have no difficulty whatever in countering a fact by a lie which, if repeated often enough and loudly enough, becomes accepted by the people.
+ - There is no sphere of human thought in which it is easier to show superficial cleverness and the appearance of superior wisdom than in discussing questions of currency and exchange.
+ - A sheep in sheep’s clothing.
+ - Headmasters have powers at their disposal with which Prime ministers have never yet been invested.
+ - From now on we shall bomb Germany on an ever-increasing scale, month by month, year by year, until the Nazi regime has either been exterminated by us or – better still – torn to pieces by the German people themselves.
+ - I hate Indians. They are a beastly people with a beastly religion.
+ - We see nothing but good and hope in a richer, freer, more contented European commonalty. But we have our own dreams and our own task. We are with Europe, but not of it. We are linked, but not comprised. We are interested and associated, but not absorbed.
+ - My most brilliant achievement was my ability to be able to persuade my wife to marry me.
+ - I have never developed indigestion from eating my words.
+ - When you have to kill a man, it costs nothing to be polite.
+ - Dictators ride to and fro upon tigers which they dare not dismount. And the tigers are getting hungry.
+ - The world, nature, human beings, do not move like machines. The edges are never clear-cut, but always frayed. Nature never draws a line without smudging it.
+ - Victory is only wrested by running risks.
+ - I cannot help reflecting that if my father had been American and my mother British instead of the other way around, I might have gotten here on my own.
+ - I do think unpunctuality is a vile habit, and all my life I have tried to break myself of it.
+ - Civilisation will not last, freedom will not survive, peace will not be kept, unless a very large majority of mankind unite together to defend them and show themselves possessed of a constabulary power before which barbaric and atavistic forces will stand in awe.
+ - In handing over the Government of India to these so-called political classes, we are handing over to men of straw, of whom, in a few years, no trace will remain.
+ - Without execution, thinking is mere idleness.
+ - For with primacy in power is also joined an awe inspiring accountability to the future.
+ - We have always found the Irish a bit odd. They refuse to be English.
+ - When you are on a great horse, you have the best seat you will ever have.
+ - We are asking the nations of Europe between whom rivers of blood have flowed to forget the feuds of a thousand years.
+ - There is not much collective security in a flock of sheep on the way to the butcher.
+ - This is the type of arrant pedantry up with which I will not put.
+ - Sure I am of this, that you have only to endure to conquer.
+ - I would say to the House, as I said to those who have joined this government: I have nothing to offer but blood, toil, tears and sweat.
+ - The cat does more for the war effort than you do. He acts as a hot-water bottle and saves fuel and power.
+ - The shortest road to ruin is to emulate the methods of your adversary.
+ - Don’t talk to me about naval tradition. It’s nothing but rum, sodomy, and the lash.
+ - I am weary of a task which is done and I hope I shall not shrink when the aftermath ends. My only wish is to live peacefully out the remaining years – if years they be.
+ - All the great things are simple.
+ - When great causes are on the move in the world, stirring all men’s souls, drawing them from their firesides, casting aside comfort, wealth and the pursuit of happiness in response to impulses at once awe-striking and irresistible, we learn that we are spirits, not animals.
+ - Men and kings must be judged in the testing moments of their lives. Courage is rightly esteemed the first of human qualities, because, as has been said, it is the quality which guarantees all others.
+ - The British people are good all through. You can test them as you would put a bucket into the sea and always find it salt.
+ - The whole of northern Norway was covered with snow to depths which none of our soldiers had ever seen, felt, or imagined. There were neither snow-shoes nor skis – still less skiers. We must do our best. Thus began this ramshackle campaign.
+ - You ask what the aim is? I tell you it is victory – total victory.
+ - To secure your historical standing, be sure you are the first to write about it.
+ - We are all functioning at a small fraction of our capacity.
+ - Leave to the masters of art trained by a lifetime of devotion the wonderful process of picture-building and picture creation. Go out into the sunlight and be happy with what you see.
+ - I began my education at a very early age; in fact, right after I left college.
+ - Americans are a wonderful people: They will always do the right thing – after exhausting every other possible alternative.
+ - Even fools are right sometimes.
+ - I pass with relief from the tossing sea of Cause and Theory to the firm ground of Result and Fact.
+ - Anyone who is not a liberal in his youth has no heart. Anyone who remains so as he matures has no brain!
+ - Never trust a man who has not a single redeeming vice.
+ - It is no use doing what you like; you have got to like what you do.
+ - The opposition occupies the benches in front of you, but the enemy sits behind you.
+ - A polo handicap is a persons ticket to the world.
+ - The English never draw a line without blurring it.
+ - Is the only lesson of history to be that mankind is unteachable?
+ - We will mete out to the Germans the measure and more than the measure that they have meted out to us. We will have no truce or parley with you, or the grisly gang who work your wicked will. You do your worst and we will do our best.
+ - Manifest destiny was on the march, and it was unfortunate that Mexico stood in the path.
+ - I drink and smoke and I am two hundred percent fit.
+ - Better to dare mighty things and fail than to live in a grey twilight where there is neither victory nor defeat.
+ - But who in war will not have his laugh amid the skulls?
+ - Gentleman, I am hardening on this enterprise. I repeat, I am now hardening towards this enterprise.
+ - Remember gentleman, it’s not just France we’re fighting for, it’s Champagne!
+ - At the bottom of all the tributes paid to democracy is the little man, walking into the little booth, with a little pencil, making a little cross on a little bit of paper-no amount of rhetoric or voluminous discussion can possibly diminish the overwhelming importance of the point.
+ - Arm yourselves, and be ye men of valor, and be in readiness for the conflict; for it is better for us to perish in battle than to look upon the outrage of our nation and our altar.
+ - This wicked man Hitler, the repository and embodiment of many forms of soul-destroying hatred. this monstrous product of former wrongs and shame.
+ - There are few virtues that the Poles do not possess and there are few errors they have ever avoided.
+ - If this long island story of ours is to end at last, let it end only when each one of us lies, choking in his own blood upon the ground.
+ - The first quality that is needed is audacity.
+ - The monarchy is so extraordinarily useful. When Britain wins a battle she shouts, “God save the Queen”; when she loses, she votes down the prime minister.
+ - Your day will go the way the corners of your mouth turn.
+ - No more let us alter or falter or palter. From Malta to Yalta, and Yalta to Malta.
+ - The water was not fit to drink. To make it palatable, we had to add whisky. By diligent effort, I learned to like it.
+ - Democracy means that if the doorbell rings in the early hours, it is likely to be the milkman.
+ - If Hitler invaded hell I would make at least a favourable reference to the devil in the House of Commons.
+ - The only way a man can remain consistent amid changing circumstances is to change with them while preserving the same dominating purpose.
+ - The power of an air force is terrific when there is nothing to oppose it.
+ - Victory was to be bought so dear as to be almost indistinguishable from defeat.
+ - Preposition: An enormously versatile part of grammar, as in ‘What made you pick this book I didn’t want to be read to out of up for?’
+ - Young people at universities study to achieve knowledge and not to learn a trade. We must all learn how to support ourselves, but we must also learn how to live. We need a lot of engineers in the modern world, but we do not want a world of modern engineers.
+ - The jury system has come to stand for all we mean by English justice. The scrutiny of 12 honest jurors provides defendants and plaintiffs alike a safeguard from arbitrary perversion of the law.
+ - And you, madam, are ugly. But I shall be sober in the morning.
+ - We are happier in many ways when we are old than when we were young. The young sow wild oats. The old grow sage.
+ - It is hard, if not impossible, to snub a beautiful woman – they remain beautiful and the snub recoils.
+ - Don’t argue about the difficulties. The difficulties will argue for themselves.
+ - Air power is the most difficult of military force to measure or even express in precise terms.
+ - Our dog chases people on a bike. We’ve had to take it off him.
+ - Nature has not intended mankind to work from eight in the morning until midnight without that refreshment of blessed oblivion which, even if it only lasts twenty minutes, is sufficient to renew all the vital forces.
+ - Success is never final.
+ - The tank was originally invented to clear a way for the infantry in the teeth of machine-gun fire. Now it is the infantry who will have to clear a way for the tanks.
+ - We are not meant to find peace in this world. The spirit of life cannot exist without effort. Destroy the rivalries of man and nations and you will have destroyed all that makes for betterment and progress on Earth.
+ - I am convinced that there is no smarter, handier, or more adaptable body of troops in the world.
+ - Time and the Ocean and some guiding star and High Cabal have made us what we are.
+ - To sit at one’s table on a sunny morning, with four clear hours of uninterruptible security, plenty of nice white paper, and a Squeezer pen – that is true happiness.
+ - No matter. The dead bird does not leave the nest.
+ - What kind of people do they think we are? Is it possible they do not realize that we shall never cease to persevere against them until they have been taught a lesson which they and the world will never forget?
+ - Put together a seaman, soldier and airman and what do you get? The sum of all fears.
+ - Which brings me to my conclusion upon Free Will and Predestination, namely – let the reader mark it – that they are identical.
+ - A medal glitters, but it also casts a shadow.
+ - Nature will not be admired by proxy.
+ - You ought to let the Jews have Jerusalem; it was they who made it famous.
+ - Leadership is the intelligent use of power.
+ - I have not always been wrong. History will bear me out, particularly as I shall write that history myself.
+ - You do your worst, and we’ll do our best.
+ - One must regard the hyphen as a blemish to be avoided wherever possible.
+ - We must not lose our faculty to dare, particularly in dark days.
+ - Of all the talents bestowed upon men, none is so precious as the gift of oratory. He who enjoys it wields a power more durable than that of a great king. He is an independent force in the world.
+ - To achieve the extirpation of Nazi tyranny there are no lengths of violence to which we will not go.
+ - Their insatiable lust for power is only equaled by their incurable impotence in exercising it.
+ - We are waiting for the long-promised invasion. So are the fishes.
+ - We would rather see London laid in ruins and ashes than that it should be tamely and abjectly enslaved.
+ - The only guide to a man’s conscience, the only shield to his memory is the rectitude and sincerity of his actions.
+ - The women’s suffrage movement is only the small edge of the wedge, if we allow women to vote it will mean the loss of social structure and the rise of every liberal cause under the sun. Women are well represented by their fathers, brothers, and husbands.
+ - Don’t give your son money. As far as you can afford it, give him horses.
+ - If this is a blessing, it is certainly very well disguised.
+ - I do not understand the squeamishness about the use of gas. I am strongly in favour of using poisonous gas against uncivilized tribes.
+ - My rule of life prescribed as an absolutely sacred rite smoking cigars and also the drinking of alcohol before, after and if need be during all meals and in the intervals between them.
+ - Lenin was sent into Russia by the Germans in the same way that you might send a phial containing a culture of typhoid or cholera to be poured into the water supply of a great city, and it worked with amazing accuracy.
+ - Hasty work and premature decisions may lead to penalties out of all proportion to the issues immediately involved.
+ - To be conservative at 20 is heartless and to be a liberal at 60 is plain idiocy.
+ - At the depths of that dusty soul there is nothing but abject surrender.
+ - What a fool I have been!
+ - Hess or no Hess, I’m going to watch the Marx Brothers.
+ - We are weakened and we are tired, but we are not done yet.
+ - It always looks so easy to solve problems by taking the line of least resistance.
+ - I am your servant. You have the right to dismiss me when you please. What you have no right to do is ask me to bear responsibility without the power of action.
+ - The pictorial battlefield becomes a sea of mud mercifully veiled by the fog of war.
+ - Never pass up the chance to sit down or go to the bathroom.
+ - I hate nobody except Hitler – and that is professional.
+ - He is like a female llama surprised in her bath.
+ - Never stand so high upon a principle that you cannot lower it to suit the circumstances.
+ - My greatest good fortune in a life of brilliant experiences has been to find you, and to lead my life with you. I don’t feel far away from you out here at all. I feel very near in my heart; and also I feel that the nearer I get to honour, the nearer I am to you.
+ - Socialism is inseparably interwoven with totalitarianism and the object worship of the state.
+ - Danger gathers upon our path. We cannot afford – we have no right – to look back. We must look forward.
+ - Renown awaits the commander who first restores artillery to its prime importance on the battlefield.
+ - A little mouse of thought appears in the room, and even the mightiest potentates are thrown into panic. They make frantic efforts to bar our thoughts and words; they are afraid of the workings of the human mind.
+ - If we could get out of this jam by giving up Malta and Gibraltar and some African colonies I would jump at it. But the only safe way is to convince Hitler that he cannot beat us.
+ - Curse ruthless time! Curse our mortality. How cruelly short is the allotted span for all we must cram into it!
+ - Give me the facts, and I will twist them the way I want, to suit my argument.
+ - Mr. Gladstone read Homer for fun, which I thought served him right.
+ - We shall defend every village, every town and every city. The vast mass of London itself, fought street by street, could easily devour an entire hostile army; and we would rather see London laid in ruins and ashes than that it should be tamely and abjectly enslaved.
+ - If you put two economists xin a room, you get two opinions, unless one of them is Lord Keynes, in which case you get three opinions.
+ - No matter how enmeshed a commander becomes in the elaboration of his own thoughts, it is sometimes necessary to take the enemy into account.
+ - The vistas of possibility are only limited by the shortness of life.
+ - Watch your character for your character is your destiny.
+ - Of all the talents bestowed upon men, none is so precious as the gift of oratory !!
+ - Those who can win a war well can rarely make a good peace and those who could make a good peace would never have won the war.
+ - Every garden presents innumerable fascinating problems.
+ - I think a curse should rest on me – because I love this war. I know it’s smashing and shattering the lives of thousands every moment – and yet – I can’t help it – I enjoy every second of it.
+ - Hatred plays the same part in government as acid in chemistry.
+ - There is in the act of preparing, the moment you start caring.
+ - Improvident habits, slovenly systems of agriculture, sluggish methods of commerce and insecurity of property exist wherever the followers of the Prophet rule or live.
+ - Saving is a fine thing. Especially when your parents have done it for you.
+ - Sir, we must beware of needless innovation, especially when guided by logic.
+ - Unteachable from infancy to tomb – There is the first and main characteristic of mankind.
+ - Thus I got into my bones the essential structure of the ordinary British sentence, which is a noble thing.
+ - Out of the depths of sorrow and sacrifice will be born again the glory of mankind.
+ - The element of the unexpected and the unforeseeable is what gives some of its relish to life and saves us from falling into the mechanical thralldom of the logicians.
+
+500 quotes

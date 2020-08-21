@@ -1,0 +1,41 @@
+ - Never give up; just absolutely never give up.
+ - Part of the art of bowling spin is to make the batsman think something special is happening when it isn’t.
+ - I have always tried to move on from disappointments as fast as I can.
+ - I’ll be going to bed having nightmares of Sachin just running down the wicket and belting me back over the head for six. He was unstoppable. I don’t think anyone, apart from Don Bradman, is in the same class as Sachin Tendulkar. He is just an amazing player.
+ - Rahul Dravid being known as ‘The Wall’ is pretty much spot on. ‘The fortress’ could also describe Rahul. Because once, Dravid was set, you needed the bowling equivalent of a dozen cannon firing all at once to blast him down.
+ - The wickets I have played on for my whole career, most of them have been to suit fast bowlers in Australia.
+ - My only problem is the fear that opposition bowlers might go for my fingers and that’s why I was scared of the short ball. Now I am struggling with the ball pitching up and swinging away. I just keep nicking that one.
+ - I just play because I love playing and I try and take as many wickets as I can.
+ - It was bloody difficult getting followed around all the time.
+ - I’m proud of what I’ve achieved in cricket, as once I didn’t think I was good enough.
+ - When I turned 36 I realised – the likelihood is that in four years time I’ll be 40.
+ - You have to watch India in India truly to appreciate the pressure that Sachin Tendulkar is under every time he bats. Outside grounds, people wait until he goes in before paying to enter. They seem to want a wicket to fall even though it is their own side that will suffer.
+ - The IPL is just pure, intense. You don’t need all the other stuff. I don’t believe in coaches in international cricket.
+ - Sachin Tendulkar is, in my time, the best player without doubt – daylight second, Brian Lara third.
+ - Find a way to get back in to the game, find a way to build a partnership, find a way to get bowling partnerships, find a way to catch a ball, find a way to stop it.
+ - To me, cricket is a simple game. Keep it simple and just go out and play.
+ - I am no dummy, mate, that’s for sure.
+ - I also think there’s too many players who say the same boring answers, they don’t even have to turn up to interviews because journalists answer their own questions the way they ask them. Unfortunately the way it is now players are so afraid to say anything, but I’d like them to be honest.
+ - In the space of one delivery so much had changed. My confidence was sky-high. I was pumped up and rock’n’rolling.
+ - The first thing is to be patient, which is probably the hardest thing to do. Don’t worry if blokes are whacking you out of the park because you still have the opportunity to get him out next ball, even if it’s not the same ball.
+ - I’m fitter than I’ve ever been, I’m actually very, very healthy and I’m happy.
+ - I think he lives in such a rarified bubble these days, he doesn’t understand what reality is any more.
+ - You can’t afford to live your life with regrets.
+ - I think we have got the wood on South Africa, but that does not mean they are not a good team. They intimidate a lot of teams but we intimidate them. There is no disrespect for South Africa; they are a very good team.
+ - With Sachin Tendulkar and Brian Lara, it was better to be friends and make them smile rather than wind them up.
+ - We’ve just got to be careful – with all sports, let alone cricket – I think there’s so much emphasis on doing the right thing all the time, but I think the public want to be entertained when they come to watch sport.
+ - Being in love with somebody is a wonderful feeling.
+ - All my coaches tell me that I have been under achieving.
+ - Four hundred wickets is 400 more than I thought I’d get.
+ - The reason why I have lost weight is that I looked at the international schedule and thought that I wanted to play for another two years. It is a very hectic schedule and if I want to get through that then I have to be in the best shape that I can.
+ - There are no secrets about England – they are searching for positives.
+ - I have been trying to lose weight for the last two-three months and it has gone really well. In the last 6-12 months I have been in the best form in quite a while.
+ - The public want to see people play an exciting brand of cricket.
+ - I can 100 percent tell you that I have not gone under the surgeon’s knife or had a facelift.
+ - With Australians we’re saying we’re going to win before we start playing and pretty much keep on saying that.
+ - We played well in Kenya. We didn’t lose a game and we bowled Pakistan out for 100 twice. We don’t need to change much from that for this tournament.
+ - Sachin Tendulkar is the hardest batsman I’ve ever had to bowl to because he judges the length a lot quicker than anyone else.
+ - I have a responsibility to my children to be fit and healthy.
+ - With just about every player in Australia, his whole goal and ambition is to play for Australia. That’s why they’re playing first class cricket. It’s just a different attitude.
+
+39 quotes

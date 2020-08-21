@@ -1,0 +1,120 @@
+ - The good physician treats the disease; the great physician treats the patient who has the disease.
+ - The practice of medicine is an art, not a trade; a calling, not a business; a calling in which your heart will be exercised equally with your head.
+ - He who studies medicine without books sails an uncharted sea, but he who studies medicine without patients does not go to sea at all.
+ - Medicine is learned by the bedside and not in the classroom. Let not your conceptions of disease come from words heard in the lecture room or read from the book. See, and then reason and compare and control. But see first.
+ - No man is really happy or safe without a hobby...
+ - What is patience but an equanimity which enables you to rise superior to the trials of life.
+ - If it were not for the great variability among individuals, medicine might as well be a science, not an art.
+ - Live neither in the past nor in the future, but let each day absorb all your interest, energy and enthusiasm. The best preparation for tomorrow is to live today superbly well.
+ - The very first step towards success in any occupation is to become interested in it.
+ - He who knows syphilis knows medicine.
+ - We are here to add what we can to life, not to get what we can from life.
+ - Every patient you see is a lesson in much more than the malady from which he suffers.
+ - Observe, record, tabulate, communicate. Use your five senses. Learn to see, learn to hear, learn to feel, learn to smell, and know that by practice alone you can become expert.
+ - The person who takes medicine must recover twice, once from the disease and once from the medicine.
+ - There are three classes of human beings: men, women and women physicians.
+ - Be calm and strong and patient. Meet failure and disappointment with courage. Rise superior to the trials of life, and never give in to hopelessness or despair. In danger, in adversity, cling to your principles and ideals. Aequanimitas!
+ - The philosophies of one age have become the absurdities of the next, and the foolishness of yesterday has become the wisdom of tomorrow.
+ - Acquire the art of detachment, the virtue of method, and the quality of thoroughness, but above all the grace of humility.
+ - The trained nurse has become one of the great blessings of humanity, taking a place beside the physician and the priest.
+ - Now the way of life that I preach is a habit to be acquired gradually by long and steady repetition. It is the practice of living for the day only, and for the day’s work.
+ - Humanity has but three great enemies: fever, famine, and war; of these by far the greatest, by far the most terrible, is fever.
+ - Variability is the law of life, and as no two faces are the same, so no two bodies are alike, and no two individuals react alike and behave alike under the abnormal conditions which we know as disease.
+ - One of the first duties of the physician is to educate the masses not to take medicine.
+ - The most essential thing for happiness is the gift of friendship.
+ - The young physician starts life with 20 drugs for each disease, and the old physician ends life with one drug for 20 diseases.
+ - The greater the ignorance the greater the dogmatism.
+ - Gentlemen, I have a confession to make. Half of what we have taught you is in error, and furthermore we cannot tell you which half it is.
+ - The value of experience is not in seeing much, but in seeing wisely.
+ - Patients rarely die of the disease from which they suffer. Secondary or terminal infections are the real cause of death.
+ - The hardest conviction to get into the mind of a beginner is that the education upon which he is engaged is not a college course, not a medical course, but a life course, for which the work of a few years under teachers is but a preparation.
+ - To have striven, to have made the effort, to have been true to certain ideals – this alone is worth the struggle.
+ - It is much simpler to buy books than to read them and easier to read them than to absorb their contents.
+ - A physician who treats himself has a fool for a patient.
+ - It is much more important to know what sort of a patient has a disease than what sort of a disease a patient has.
+ - In the Mortality Bills, pneumonia is an easy second, to tuberculosis; indeed in many cities the death-rate is now higher and it has become, to use the phrase of Bunyan ‘the captain of the men of death.’
+ - Things cannot always go your way. Learn to accept in silence the minor aggravations, cultivate the gift of taciturnity and consume your own smoke with an extra draught of hard work, so that those about you may not be annoyed with the dust and soot of your complaints.
+ - Medicine is a science of uncertainty and an art of probability.
+ - To confess ignorance is often wiser than to beat about the bush with a hypothetical diagnosis.
+ - The very first step toward success in any occupation is to become interested in it. Locke put this in a very happy way when he said, give a pupil “a relish of knowledge” and you put life into his work.
+ - The higher the standard of education in a profession, the less marked will be the charlatanism.
+ - The desire to take medicine is perhaps the greatest feature which distinguishes man from animals.
+ - Look wise, say nothing, and grunt. Speech was given to conceal thought.
+ - In seeking absolute truth we aim at the unattainable and must be content with broken portions.
+ - No bubble is so iridescent or floats longer than that blown by the successful teacher.
+ - Think not of the amount to be accomplished, the difficulties to be overcome, or the end to be attained, but set earnestly at the little task at your elbow, letting that be sufficient for the day.
+ - Half of us are blind, few of us feel, and we are all deaf.
+ - There is no more difficult art to acquire than the art of observation, and for some men it is quite as difficult to record an observation in brief and plain language.
+ - No human being is constituted to know the truth, the whole truth and nothing but the truth; and even the best of men must be content with fragments, with partial glimpses, never the full fruition.
+ - Now of the difficulties bound up with the public in which we doctors work, I hesitate to speak in a mixed audience. Common sense in matters medical is rare, and is usually in inverse ratio to the degree of education.
+ - The uselessness of men above sixty years of age and the incalculable benefit it would be in commercial, in political, and in professional life, if as a matter of course, men stopped work at this age.
+ - Laughter is the music of life.
+ - The clean tongue, the clear head, and the bright eye are birthrights of each day.
+ - By far the most dangerous foe we have to fight is apathy-indifference from whatever cause, not from a lack of knowledge, but from carelessness, from absorption in other pursuits, from a contempt bred of self satisfaction.
+ - Happiness lies in the absorption in some vocation which satisfies the soul.
+ - Patients should have rest, food, fresh air, and exercise – the quadrangle of health.
+ - The extraordinary development of modern science may be her undoing. Specialism, now a necessity, has fragmented the specialities themselves in a way that makes the outlook hazardous. The workers lose all sense of proportion in a maze of minutiae.
+ - Perhaps no sin so easily besets us as a sense of self-satisfied superiority to others.
+ - There are, in truth, no specialties in medicine, since to know fully many of the most important diseases a man must be familiar with their manifestations in many organs.
+ - There is no disease more conducive to clinical humility than aneurysm of the aorta.
+ - One special advantage of the skeptical attitude of mind is that a man is never vexed to find that after all he has been in the wrong.
+ - The great minds, the great works transcend all limitations of time, of language, and of race, and the scholar can never feel initiated into the company of the elect until he can approach all of life’s problems from the cosmopolitan standpoint.
+ - Without faith a man can do nothing; with it all things are possible.
+ - Avoid wine and women – choose a freckly-faced girl for a wife; they are invariably more amiable.
+ - It is not as if our homeopathic brothers are asleep: far from it, they are awake – many of them at any rate – to the importance of the scientific study of disease.
+ - Nothing is life is more wonderful than faith.
+ - Conservatism and old fogeyism are totally different things; the motto of one is “Prove all things and hold fast that which is good” and of the other “Prove nothing but hold fast that which is old.”
+ - Nothing will sustain you more potently than the power to recognize in your humdrum routine, as perhaps it may be thought, the true poetry of life.
+ - It is not the delicate neurotic person who is prone to angina, but the robust, the vigorous in mind and body, the keen and ambitious man, the indicator of whose engines is always at full speed ahead.
+ - Shut out all of your past except that which will help you weather your tomorrows.
+ - No dreams, no visions, no delicious fantasies, no castles in the air, with which, as the old song so truly says, hearts are broken, heads are turned.
+ - Too many men slip early out of the habit of studious reading, and yet that is essential.
+ - It cannot be too often or too forcibly brought home to us that the hope of the profession is with the men who do its daily work in general practice.
+ - Let each hour of the day have its allotted duty, and cultivate that power of concentration which grows with its exercise...
+ - The Scots are the backbone of Canada. They are all right in their three vital parts – head, heart and haggis.
+ - To it, more than to anything else, I owe whatever success I have had – to this power of settling down to the day’s work and trying to do it to the best of one’s ability, and letting the future take care of itself.
+ - The only way to treat the common cold is with contempt.
+ - Varicose veins are the result of an improper selection of grandparents.
+ - Jaundice is the disease that your friends diagnose.
+ - Engrossed late and soon in professional cares, getting and spending, you may may so lay waste your powers that you may find, too late, with hearts given away, that t here is no place in your habit-stricken souls for those gentler influences which make your life worth living.
+ - To do today’s work well and not to bother about tomorrow is the secret of accomplishment.
+ - Work is the open sesame of every portal, the great equalizer in the world, the true philosopher’s stone which transmutes all the base metal of humanity into gold.
+ - The higher education so much needed today is not given in the school, is not to be bought in the market place, but it has to be wrought out in each one of us for himself; it is the silent influence of character on character.
+ - I desire no other epitaph – no hurry about it, I may say – than the statement that I taught medical students in the wards, as I regard this as by far the most useful and important work I have been called upon to do.
+ - Fed on the dry husks of facts, the human heart has a hidden want which science cannot supply.
+ - Soap and water and common sense are the best disinfectants.
+ - The true poetry of life: the poetry of the commonplace, of the ordinary man, of the plain, toil-worn woman, with their loves and their joys, their sorrows and their griefs.
+ - Start at once a bedside library and spend the last half hour of the day in communion with the saints of humanity.
+ - A man is sane morally at thirty, rich mentally at forty, wise spiritually at fifty-or never!
+ - There is no more potent antidote to the corroding influence of mammon than the presence in the community of a body of men devoted to science, living for investigation and caring nothing for the lust of the eyes and the pride of life.
+ - A well-trained, sensible doctor is one of the most valuable assets of a community.
+ - Advice is sought to confirm a position already taken.
+ - Nature, the great Moloch, which exacts a frightful tax of human blood, sparing neither young nor old; taking the child from the cradle, the mother from her babe, and the father from the family.
+ - Faith is a most precious commodity, without which we should be very badly off.
+ - We doctors have always been a simple trusting folk. Did we not believe Galen implicitly for 1500 years and Hippocrates for more than 2000?
+ - Save the fleeting minute; learn gracefully to dodge the bore.
+ - Without egotism and full of feeling, laughter is the music of life.
+ - The great majority gave no signs one way or the other; like birth, their death was a sleep and a forgetting.
+ - We are all dietetic sinners; only a small percent of what we eat nourishes us; the balance goes to waste and loss of energy.
+ - The teacher’s life should have three periods, study until twenty-five, investigation until forty, profession until sixty, at which age I would have him retired on a double allowance.
+ - Even in populous districts, the practice of medicine is a lonely road which winds up-hill all the way and a man may easily go astray and never reach the Delectable Mountains unless he early finds those shepherd guides of whom Bunyan tells, Knowledge, Experience, Watchful, and Sincere.
+ - A library represents the mind of its collector, fancies and foibles, strengths and weaknesses, prejudices and preferences.
+ - What is the student but a lover courting a fickle mistress who ever eludes his grasp?
+ - The successful teacher is no longer on a height, pumping knowledge at high pressure into passive receptacles...
+ - It is strange how the memory of a man may float to posterity on what he would have himself regarded as the most trifling of his works.
+ - To know just what has do be done, then to do it, comprises the whole philosophy of practical life.
+ - Taking a lady’s hand gives her confidence in her physician.
+ - The future belongs to Science. More and more she will control the destinies of the nations. Already she has them in her crucible and on her balances.
+ - There are only two sorts of doctors; those who practise with their brains, and those who practise with their tongues.
+ - When schemes are laid in advance, it is surprising how often the circumstances will fit in with them.
+ - Shed, as you do your garments, your daily sins, whether of omission or commission, and you will wake a free man, with a new life.
+ - Beware of people who call you ‘Doc.’ They rarely pay their bills.
+ - That man can interrogate as well as observe nature was a lesson slowly learned in his evolution.
+ - For the general practitioner a well-used library is one of the few correctives of the premature senility which is so apt to take him.
+ - To have a group of cloistered clinicians away completely from the broad current of professional life would be bad for teacher and worse for student. The primary work of a professor of medicine in a medical school is in the wards, teaching his pupils how to deal with patients and their diseases.
+ - We are constantly misled by the ease with which our minds fall into the ruts of one or two experiences.
+ - Live neither in the past nor in the future, but let each day’s work absorb your entire energies, and satisfy your widest ambition.
+ - The natural man has only two primal passions, to get and beget.
+ - Courage and cheerfulness will not only carry you over the rough places in life, but will enable you to bring comfort and help to the weak-hearted and will console you in the sad hours.
+
+118 quotes

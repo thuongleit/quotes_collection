@@ -1,0 +1,55 @@
+ - Change or stagnate. Keep moving or die.
+ - If only. Those must be the two saddest words in the world.
+ - Zen Hugs – the hugs that you would get, if we were there, if we could hug you, but we aren’t, and we can’t.
+ - How DARE the villainous cads be as clever as the heroes.
+ - Time doesn’t. All that Time does is make it more distant, put more space between you and what happened. It doesn’t heal anything. I don’t know how or what does the healing, but it isn’t Time.
+ - Inexperience can be overcome, ignorance can be enlightened, but prejudice will destroy you.
+ - Getting angry over something that won’t change is like seeing what happens if you hit your hand with a hammer over and over again, and being surprised each time when it hurts. So you might as well stop doing it.
+ - Three things see no end- A flower blighted ere it bloomed, A message that was wasted, And a journey that was doomed.
+ - Three things trust and cherish well- The horse on which you ride, The beast that guards and watches, And your shield-mate at your side.
+ - We’re none of us quite so sure of our place in the world that we can’t be rocked off our feet by bad times. It’s the getting back up again that counts. Not that you fall, but getting back up again counts for more in the long run.
+ - A book’s alright when the weather’s foul and there’s nothing else to do, but why sit and read when the wind is calling your name?
+ - Once the blinders are off, it’s rather hard to go back to seeing things the way you used to.
+ - Three things never anger or you’ll not live for long; A wolf with cubs, A man with power, And a woman’s sense of wrong.
+ - If I’m walking on thin ice, I might as well dance my way across.
+ - Some must be warriors, that others may live in peace.
+ - Assume the attitude of prayer, and in time, the attitude will become prayer.
+ - If you would rise, do so alone.
+ - If he didn’t get out of here – right now – Harrier was either going to break into hysterical laughter or strangle somebody.
+ - Of three things be wary- of a feather on a cat, The shepherd eating mutton, And a guardsman that is fat.
+ - To treat a person like a carpet, it is necessary that one do the walking, and one allow himself to be walked on. – Shin’a’in saying.
+ - It’s only gossip if you repeat it. Until then, it’s gathering information.
+ - Three things know a secret- First; the lady in a dream, The dog that barks no warning, And a maid that does not scream.
+ - In a calm, clear voice, she suggested that the wyrsa in question could do several highly improbable, athletically difficult and possibly biologically impractical things involving its own mother, a few household implements, and a dead fish.
+ - Three things never trust in- The maiden sworn as pure, The vows a king has given, And an ambush that is sure.
+ - Certainly no one has ever died of an unrequited passion – it’s usually the ones that are requited that get people in trouble.
+ - The hatched chick cannot go back to the shell, the falcon who has found the sky does not willingly sit the nest.
+ - I’m not a legend or a hero, I don’t slay dragons, I don’t do any of the things that a real hero can. But I can make things better, one day at a time, for most of the kingdom.
+ - Adventure, yeah. I guess that’s what you call it when everybody comes back alive.
+ - The freedom to swing your fist ends at my nose.
+ - A quaint conceit, don’t you think?
+ - I have no place in my life for someone who is sure he can do everything. – Steelmind.
+ - It isn’t wise to be rude to one’s mother. She knows everything about your childhood that is potentially embarassing.
+ - Evil working in subtler fashion; marriages that proved to be no more then legalized slavery, and the careful manipulation of a bright and sensitive mind until its owner truly believed with all her heart in her own worthlessness. Betrayal, not once, but many times over.
+ - It’s hard being a rock; they have such a strange sense of time – and priorities.
+ - He isn’t stupid, but his interests are so narrow I doubt I could slip a sheet of paper in between them.
+ - You are human and mortal; we are the sum of our weak moments and our strong.
+ - Magic, like technology, is a tool.
+ - When warriors feel afraid they lack something, it is only because they are forgetful. They have forgotten how capable they truly are.
+ - I always work from an outline, so I know all the of the broad events and some of the finer details before I begin writing the book.
+ - Parents always know what strings control your heart and soul. After all, they are the ones who tied them there.
+ - I try to use all of my senses when describing a setting, and try to think of everything that would impact a character in any given scene.
+ - It makes sense for people who are good at fighting to go out and do it-because if they’re good at it, that means the fewest number of other people die.
+ - Better watch out said a second voice from somewhere under the Beetle. Don’t park those two kraut cars too close together; it’s springtime, and they might decide to mate. then Charlie’ll be stuck with a garage full of little orange safety cones.
+ - If there are going to be people out there making war on other people, don’t you think it’s a good idea for some of those people to at least follow a code of ethics? Not ‘honor’ but something you can pin down and be sure of, something with the same rules for everybody.
+ - Sympathy can be addictive and can kill strong men as surely as a diet of nothing but sugar.
+ - If they projected the fact that they are dangerous any harder, there would be little puddles of “danger” on the floor around them. Look, it’s “danger”, don’t step in it!
+ - She just dropped it and ran!!
+ - Fanatics can justify practically any atrocity to themselves. The more untenable their position becomes, the harder they hold to it, and the worse the things they are willing to do to support it.
+ - Truth and trust are the means by which civilization holds off barbarism.
+ - You don’t spend most of your life in other people’s heads without losing every prejudice you ever had.
+ - The people who keep coping, keep trying, no matter how many blows Fate takes at them. Nobody’ll make a song about them, but they’re heroes all the same.
+ - Nevertheless, now that I have met you, I know that all that I am, and all that I have, could not match what you are worth.
+ - Caught between glass and wood, that which breaks and that which bends, that which sings and that which survive. So our lives go.
+
+53 quotes

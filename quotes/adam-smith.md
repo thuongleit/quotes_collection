@@ -1,0 +1,152 @@
+ - The real tragedy of the poor is the poverty of their aspirations.
+ - He is led by an invisible hand to promote an end which was no part of his intention.
+ - It is not from the benevolence of the butcher, the brewer, or the baker that we expect our dinner, but from their regard to their own interest.
+ - Individual Ambition Serves the Common Good.
+ - The first thing you have to know is yourself. A man who knows himself can step outside himself and watch his own reactions like an observer.
+ - All money is a matter of belief.
+ - Science is the great antidote to the poison of enthusiasm and superstition.
+ - Man is an animal that makes bargains: no other animal does this – no dog exchanges bones with another.
+ - A nation is not made wealthy by the childish accumulation of shiny metals, but it enriched by the economic prosperity of it’s people.
+ - Mercy to the guilty is cruelty to the innocent.
+ - What can be added to the happiness of a man who is in health, out of debt, and has a clear conscience?
+ - The great secret of education is to direct vanity to proper objects.
+ - Nobody but a beggar chooses to depend chiefly upon the benevolence of his fellow-citizens.
+ - No society can surely be flourishing and happy, of which the far greater part of the members are poor and miserable.
+ - Virtue is more to be feared than vice, because its excesses are not subject to the regulation of conscience.
+ - As soon as government management begins it upsets the natural equilibrium of industrial relations, and each interference only requires further bureaucratic control until the end is the tyranny of the totalitarian state.
+ - The division of labour was limited by the extent of the market.
+ - Sugar, rum and tobacco are commodities which are nowhere necessaries of life, which are become objects of almost universal consumption, and which are therefore extremely proper subjects of taxation.
+ - Civil government, so far as it is instituted for the security of property, is in reality instituted for the defense of the rich against the poor, or of those who have some property against those who have none at all.
+ - The learned ignore the evidence of their senses to preserve the coherence of the ideas of their imagination.
+ - I have no faith in political arithmetic.
+ - Nothing but the most exemplary morals can give dignity to a man of small fortune.
+ - Defense is superior to opulence.
+ - This is one of those cases in which the imagination is baffled by the facts.
+ - Every man lives by exchanging.
+ - The real price of everything, what everything really costs to the man who wants to acquire it, is the toil and trouble of acquiring it.
+ - When the profits of trade happen to be greater than ordinary, over-trading becomes a general error both among great and small dealers.
+ - The tolls for the maintenance of a high road, cannot with any safety be made the property of private persons.
+ - When we have read a book or poem so often that we can no longer find any amusement in reading it by ourselves, we can still take pleasure in reading it to a companion. To him it has all the graces of novelty.
+ - The problem with fiat money is that it rewards the minority that can handle money, but fools the generation that has worked and saved money.
+ - I am a beau in nothing but my books.
+ - All jobs are created in direct proportion to the amount of capital employed.
+ - In general, if any branch of trade, or any division of labour, be advantageous to the public, the freer and more general the competition, it will always be the more so.
+ - I have never known much good done by those who affected to trade for the public good.
+ - A power to dispose of estates for ever is manifestly absurd. The earth and the fulness of it belongs to every generation, and the preceding one can have no right to bind it up from posterity. Such extension of property is quite unnatural.
+ - The man of system is apt to be very wise in his own conceit. In the great chess board of human society, every single piece has a principle of motion of its own altogether different from that which the legislature might choose to impress upon it.
+ - Every tax, however, is to the person who pays it a badge, not of slavery but of liberty. It denotes that he is a subject to government, indeed, but that, as he has some property, he cannot himself be the property of a master.
+ - Happiness never lays its finger on its pulse.
+ - Consumption is the sole end and purpose of all production; and the interest of the producer ought to be attended to, only so far as it may be necessary for promoting that of the consumer.
+ - The disposition to admire, and almost to worship, the rich and the powerful, and to despise, or, at least, to neglect persons of poor and mean condition is the great and most universal cause of the corruption of our moral sentiments.
+ - Wherever there is great property, there is great inequality.
+ - Consumption is the sole end and purpose of all production.
+ - Upstart greatness is everywhere less respected than ancient greatness.
+ - The game women play is men.
+ - That the chance of gain is naturally over-valued, we may learn from the universal success of lotteries.
+ - That a joint stock company should be able to carry on successfully any branch of foreign trade, when private adventurers can come into any sort of open and fair competition with them, seems contrary to all experience.
+ - Man, an animal that makes bargains.
+ - But poverty, though it does not prevent the generation, is extremely unfavourable to the rearing of children. The tender plant is produced, but in so cold a soil, and so severe a climate, soon withers and dies.
+ - A gardener who cultivates his own garden with his own hands, unites in his own person the three different characters, of landlord, farmer, and labourer. His produce, therefore, should pay him the rent of the first, the profit of the second, and the wages of the third.
+ - People of the same trade seldom meet together, even for merriment and diversion, but the conversation ends in a conspiracy against the public, or in some contrivance to raise prices.
+ - The mob, when they are gazing at a dancer on the slack rope, naturally writhe and twist and balance their own bodies, as they see him do.
+ - Avarice and injustice are always shortsighted, and they did not foresee how much this regulation must obstruct improvement, and thereby hurt in the long-run the real interest of the landlord.
+ - Goods can serve many other purposes besides purchasing money, but money can serve no other purpose besides purchasing goods.
+ - When profit diminishes, merchants are very apt to complain that trade decays; though the diminution of profit is the natural effect of its prosperity, or of a greater stock being employed in it than before.
+ - Thus the labour of a manufacture adds, generally, to the value of the materials which he works upon, that of his own maintenance, and of his masters profits. The labour of a menial servant, on the contrary, adds to the value of nothing.
+ - Justice, however, never was in reality administered gratis in any country. Lawyers and attornies, at least, must always be paid by the parties; and, if they were not, they would perform their duty still worse than they actually perform it.
+ - There is no art which government sooner learns of another than that of draining money from the pockets of the people.
+ - Whenever the legislature attempts to regulate differences between masters and their workmen, its counsellors are always the masters. When the regulation, therefore, is in favor of the workmen, it is always just and equitable; but it is sometimes otherwise when in favor of the masters.
+ - The theory that can absorb the greatest number of facts, and persist in doing so, generation after generation, through all changes of opinion and detail, is the one that must rule all observation.
+ - But though empires, like all the other works of men, have all hitherto proved mortal, yet every empire aims at immortality.
+ - But what all the violence of the feudal institutions could never have effected, the silent and insensible operation of foreign commerce and manufactures gradually brought about.
+ - Secrets in manufactures are capable of being longer kept than secrets in trade.
+ - All registers which, it is acknowledged, ought to be kept secret, ought certainly never to exist.
+ - I am always willing to run some hazard of being tedious, in order to be sure that I am perspicuous; and, after taking the utmost pains that I can to be perspicuous, some obscurity may still appear to remain upon a subject, in its own nature extremely abstracted.
+ - Never complain of that of which it is at all times in your power to rid yourself.
+ - The difference between the most dissimilar characters, between a philosopher and a common street porter, for example, seems to arise not so much from nature, as from habit, custom, and education.
+ - Problems worthy of attacks, prove their worth by hitting back.
+ - With the greater part of rich people, the chief enjoyment of riches consists in the parade of riches, which in their eye is never so complete as when they appear to possess those decisive marks of opulence which nobody can possess but themselves.
+ - Nobody ever saw a dog make a fair and deliberate exchange of one bone for another with another dog.
+ - As we have no immediate experience of what other men feel, we can form no idea of the manner in which they are affected, but by conceiving what we ourselves should feel in the like situation.
+ - Good roads, canals, and navigable rivers, by diminishing the expence of carriage, put the remote parts of the country more nearly upon a level with with those of the neighbourhood of the town. They are upon that the greatest of all improvements.
+ - The robot is going to lose. Not by much. But when the final score is tallied, flesh and blood is going to beat the damn monster.
+ - Labour was the first price, the original purchase – money that was paid for all things. It was not by gold or by silver, but by labour, that all wealth of the world was originally purchased.
+ - By nature a philosopher is not in genius and disposition half so different from a street porter, as a mastiff is from a greyhound.
+ - The real and effectual discipline which is exercised over a workman is that of his customers. It is the fear of losing their employment which restrains his frauds and corrects his negligence.
+ - The liberal reward of labour, therefore, as it is the affect of increasing wealth, so it is the cause of increasing population. To complain of it, is to lament over the necessary effect and cause of the greatest public prosperity.
+ - We are but one of the multitude, in no respect better than any other in it.
+ - The education of the common people requires, perhaps, in a civilized and commercial society, the attention of the public more than that of people of some rank and fortune.
+ - Every man is rich or poor according to the degree in which he can afford to enjoy the necessaries, conveniences, and amusements of human life.
+ - We are delighted to find a person who values us as we value ourselves, and distinguishes us from the rest of mankind, with an attention not unlike that with which we distinguish ourselves.
+ - It is the highest impertinence and presumption, therefore, in kings and ministers to pretend to watch over the economy of private people, and to restrain their expense. They are themselves, always, and without any exception, the greatest spendthrifts in the society.
+ - I have no great faith in political arithmetic, and I mean not to warrant the exactness of either of these computations.
+ - The importation of gold and silver is not the principal, much less the sole benefit which a nation derives from its foreign trade.
+ - In ease of body, peace of mind, all the different ranks of life are nearly upon a level and the beggar who suns himself by the side of the highway, possesses that security which kings are fighting for.
+ - Resentment seems to have been given us by nature for a defense, and for a defense only! It is the safeguard of justice and the security of innocence.
+ - Great ambition, the desire of real superiority, of leading and directing, seems to be altogether peculiar to man, and speech is the great instrument of ambition.
+ - An English university is a sanctuary in which exploded systems and obsolete prejudices find shelter and protection after they have been. hunted out of every corner of the world.
+ - Little else is requisite to carry a state to the highest degree of opulence from the lowest barbarism but peace, easy taxes, and a tolerable administration of justice: all the rest being brought about by the natural course of things.
+ - Whatever work he does, beyond what is sufficient to purchase his own maintenance, can be squeezed out of him by violence only, and not by any interest of his own.
+ - It seldom happens, however, that a great proprietor is a great improver.
+ - With the greater part of rich people, the chief enjoyment of riches consists in the parade of riches.
+ - Poor David Hume is dying fast, but with more real cheerfulness and good humor and with more real resignation to the necessary course of things, than any whining Christian ever dyed with pretended resignation to the will of God.
+ - Mercantile jealousy is excited, and both inflames, and is itself inflamed, by the violence of national animosity:...
+ - The proprietor of stock is necessarily a citizen of the world, and is not necessarily attached to any particular country.
+ - China is a much richer country than any part of Europe.
+ - A man must always live by his work, and his wages must at least be sufficient to maintain him. They must even upon most occasions be somewhat more; otherwise it would be impossible for him to bring up a family, and the race of such workmen could not last beyond the first generation.
+ - Fear is in almost all cases a wretched instrument of government, and ought in particular never to be employed against any order of men who have the smallest pretensions to independency.
+ - Men of the most robust make, observe that in looking upon sore eyes they often feel a very sensible soreness in their own, which proceeds from the same reason; that organ being in the strongest man more delicate, than any other part of the body is in the weakest.
+ - For a very small expence the public can facilitate, can encourage, and can even impose upon almost the whole body of the people, the necessity of acquiring those most essential parts of education.
+ - The subjects of every state ought to contribute towards the support of the government, as nearly as possible, in proportion to their respective abilities.
+ - In this consists the difference between the character of a miser and that of a person of exact economy and assiduity. The one is anxious about small matters for their own sake; the other attends to them only in consequence of the scheme of life which he has laid down to himself.
+ - It is not for its own sake that men desire money, but for the sake of what they can purchase with it.
+ - Adventure upon all the tickets in the lottery, and you lose for certain; and the greater the number of your tickets the nearer your approach to this certainty.
+ - In the long-run the workman may be as necessary to his master as his master is to him, but the necessity is not so immediate.
+ - As soon as the land of any country has all become private property, the landlords, like all other men, love to reap where they never sowed, and demand a rent even for its natural produce.
+ - The annual labour of every nation is the fund which originally supplies it with all the necessaries and conveniencies of life which it annually consumes, and which consist always either in the immediate produce of that labour, or in what is purchased with that produce from other nations.
+ - In public, as well as in private expences, great wealth may, perhaps, frequently be admitted as an apology for great folly.
+ - The great affair, we always find, is to get money.
+ - All for ourselves, and nothing for other people, seems, in every age of the world, to have been the vile maxim of the masters of mankind.
+ - Nothing is more graceful than habitual cheerfulness.
+ - Man naturally desires, not only to be loved, but to be lovely; or to be that thing which is the natural and proper object of love.
+ - Corn is a necessary, silver is only a superfluity.
+ - An instructed and intelligent people are always more decent and orderly than an ignorant and stupid one.
+ - The world neither ever saw, nor ever will see, a perfectly fair lottery.
+ - It is not very unreasonable that the rich should contribute to the public expense, not only in proportion to their revenue, but something more than in that proportion.
+ - In a militia, the character of the laborer, artificer, or tradesman, predominates over that of the soldier: in a standing army, that of the soldier predominates over every other character...
+ - Masters are always and everywhere in a sort of tacit, but constant and uniform combination, not to raise the wages of labor.
+ - What is prudence in the conduct of every private family can scarce be folly in that of a great kingdom.
+ - It appears, accordingly, from the experience of all ages and nations, I believe, that the work done by freemen comes cheaper in the end than that performed by slaves.
+ - Every tax ought to be so contrived as both to take out and to keep out of the pockets of the people as little as possible, over and above what it brings into the public treasury of the State.
+ - A very poor man may be said in some sense to have a demand for a coach and six; he might like to have it; but his demand is not an effectual demand, as the commodity can never be brought to market in order to satisfy it.
+ - Though the profusion of Government must undoubtedly have retarded the natural progress of England to wealth and improvement, it has not been able to stop it.
+ - To feel much for others and little for ourselves; to restrain our selfishness and exercise our benevolent affections, constitute the perfection of human nature.
+ - The greatest improvement in the productive powers of labour, and the greater part of the skill, dexterity, and judgment with which it is anywhere directed, or applied, seem to have been the effects of the division of labour.
+ - It is unjust that the whole of society should contribute towards an expence of which the benefit is confined to a part of the society.
+ - Beneficence is always free, it cannot be extorted by force.
+ - A merchant, it has been said very properly, is not necessarily the citizen of any particular country.
+ - The retinue of a grandee in China or Indostan accordingly is, by all accounts, much more numerous and splendid than that of the richest subjects of Europe.
+ - Men, like animals, naturally multiply in proportion to the means of their subsistence.
+ - A true party-man hates and despises candour.
+ - The propensity to truck, barter and exchange one thing for another is common to all men, and to be found in no other race of animals.
+ - The interest of the dealers, however, in any particular branch of trade or manufactures, is always in some respects different from, and even opposite to, that of the public. To widen the market and to narrow the competition, is always the interest of the dealers.
+ - The annual produce of the land and labour of any nation can be increased in its value by no other means, but by increasing either the number of its productive labourers, or the productive powers of those labourers who had before been employed.
+ - A sketch of a man facing to the right.
+ - The emotions of the spectator will still be very apt to fall short of the violence of what is felt by the sufferer. Mankind, though naturally sympathetic, never conceive, for what has befallen another, that degree of passion which naturally animates the person principally concerned.
+ - To expect, indeed, that the freedom of trade should ever be entirely restored in Great Britain, is as absurd as to expect that an Oceana or Utopia should never be established in it.
+ - Now many such things may be done without intitling the people to rise in arms. A gross, flagrant, and palpable abuse no doubt will do it, as if they should be required to pay a tax equal to half or third of their substance.
+ - Have lots of experiments, but make sure they’re strategically focused.
+ - On the road from the City of Skepticism, I had to pass through the Valley of Ambiguity.
+ - How selfish soever man may be supposed, there are evidently some principles in his nature, which interest him in the fortune of others, and render their happiness necessary to him, though he derives nothing from it, except the pleasure of seeing it.
+ - Ask any rich man of common prudence to which of the two sorts of people he has lent the greater part of his stock, to those who, he thinks, will employ it profitably, or to those who will spend it idly, and he will laugh at you for proposing the question.
+ - The natural price, therefore, is, as it were, the central price, to which the prices of all commodities are continually gravitating.
+ - Great nations are never impoverished by private, though they sometimes are by public prodigality and misconduct.
+ - It is the natural effect of improvement, however, to diminish gradually the real price of almost all manufactures.
+ - Men desire to have some share in the management of public affairs chiefly on account of the importance which it gives them.
+ - It must always be remembered, however, that it is the luxuries, and not the necessary expense of the inferior ranks of people, that ought ever to be taxed.
+ - The ancient Egyptians had a superstitious antipathy to the sea; a superstition nearly of the same kind prevails among the Indians; and the Chinese have never excelled in foreign commerce.
+ - Humanity is the virtue of a woman, generosity that of a man.
+ - It is not by augmenting the capital of the country, but by rendering a greater part of that capital active and productive than would otherwise be so, that the most judicious operations of banking can increase the industry of the country.
+ - The violence and injustice of the rulers of mankind is an ancient evil, for which, I am afraid, the nature of human affairs can scarce admit a remedy.
+
+150 quotes

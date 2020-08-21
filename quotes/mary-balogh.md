@@ -1,0 +1,53 @@
+ - Occasionally we all do wrong things from right motives. Only time can prove us right or wrong. The past is the past. Nothing can change it now, and who is to say that it was all wrong, anyway?
+ - The bad part is life continues. The good part is that the pain goes away.
+ - There is no happily-ever-after to run to. We have to work for happiness.
+ - Always guarding one’s real, precious self in a cocoon of tranquility within a thousand masks. Life itself had become a secret affair.
+ - Even friends need private spaces, if only within the depths of their own souls, where no one else is allowed to intrude.
+ - The real meaning of things lies deep down and the real meaning of things is always beautiful because it is simply love.
+ - Nothing is permanently perfect. But there are perfect moments and the will to choose what will bring about more perfect moments.
+ - I have always been a spectator of life, you know, never a participant. Never. But now I am. Today I am, and I an awed and deliriously happy. This is the adventure I asked for, the adventure I am having I will be forever grateful to you.
+ - I’m terrified that I will never be able to put him from my mind. I don’t love him but I’m afraid that he will make it impossible for me ever to love anyone else.
+ - I prefer to believe the opposite – that there is always an indestructible beauty at the heart of darkness.
+ - Fear is a powerful beast, if it is allowed the mastery.
+ - A sunrise or sunset can be ablaze with brilliance and arouse all the passion, all the yearning, in the soul of the beholder.
+ - And of course the word love has many shades of meaning, as do many, many of the words in our living, breathing language.
+ - Sometimes it just seems that love is not enough, does it?
+ - I know it is something of a cliche to say that love makes all things possible, but I believe it does. It is not a magic wand that can be waved over life to make it all sweet and lovely and trouble free, but it can give the energy to fight the odds and win.
+ - Perhaps she was just looking for love in the wrong places. In all the safe places. What if love was not safe at all?
+ - I have read somewhere that we often spend a lifetime searching for what we already have.
+ - But a mother-son relationship is not a coequal one, is it? He is lonely with only you just as you are lonely with only him.
+ - But only a person in the depths of despair neglected to look beyond winter to the spring that inevitably followed, bringing back color and life and hope.
+ - Life, she realized, so often became a determined, relentless avoidance of pain-of one’s own, of other people’s. But sometimes pain had to be acknowledged and even touched so that one could move into it and through it and past it. Or else be destroyed by it.
+ - The suffering of a loved one was in many ways worse than one’s one suffering because it left one feeling so very helpless.
+ - My happiness has to come from within myself or it is too fragile a thing to be of any use to me and too much of a burden to benefit any of my loved ones.
+ - And he knew at that moment that love world never die, that it would never fade away altogether. The time might come when he would meet and marry someone else. He might even be reasonably happy. But there would always be a deep precious place in his heart that belonged to his first real love.
+ - I do beg you to have some regard for my pride. A million years? I assure you I would stop asking after the first thousand.
+ - This time her heart would not break, even though it would hurt and hurt for a long time to come. Perhaps for the rest of her life. But it would not break. She had the strength to go on alone.
+ - Love did not have to make sense. It did not have to be worthy. It did not have to be earned. It did not have to woo. It just simply was.
+ - Every moment is a moment of decision, and every moment turns us inexorably in the direction of the rest of our lives.
+ - I can be hurt, she said, only by people I respect.
+ - Why did people assume that the beautiful among them needed nothing but their beauty to bring them happiness? That behind the beauty there was nothing but an empty shell, insensitive shell?
+ - If you have always suspected your sister of an inclination to madness, it will be my pleasure to confirm your worst fears.
+ - Was memory always as much of a burden as it could sometimes be a blessing.
+ - I do believe in fate, Anne-not the blind fate that gives one no freedom of choice, but a fate that sets down a pattern for each of our lives and gives us choices, numerous choices, by which to find that pattern and be happy.
+ - Sometimes children do not realize by how fragile a thread their security hangs. Perhaps it is as well they do not – most of them grow up before the thread can be broken.
+ - Stop being so fruitlessly busy and dream. Use your imagination. Reach out into the unknown and dream of how you can enlarge your experience and improve your mind and your soul and your world.
+ - One day you will learn that love does not always betray you.
+ - It was strange how the heart clung to hope even when there was no reasonable basis for it, Morgan found. And how life went on.
+ - I do not admire greatness that has no substance.
+ - Everyone was a rose but even more complex than a mere flower. Everyone was made up of infinitely layered petals. And everyone had something indescribably precious at the heart of their being. No one was shallow. Not really.
+ - Tears never were worth the effort of crying them.
+ - Your sense of guilt will linger. It will always be part of you. but sharing it, allowing people to love you anyway, will do you the world of good. Secrets need an outlet if they are not to fester and become an unbearable burden.
+ - Sometimes now was enough. Sometimes it was everything.
+ - Love, I have discovered, does not judge. It just is.
+ - It was so much more comfortable to be able to divide people into heroes and villains and expect them to play their allotted part.
+ - But if one had everything one could ever need or want, what was left to dream of?
+ - Suddenly, and for the first time, he was at the center of his own life, living it and loving it.
+ - Why do I want to run from happiness?
+ - Sometimes even the imagination lets one down.
+ - But parents, she supposed, were not the pinnacle of perfection their children thought or expected them to be. They were humans who usually did the best they could but often made the wrong choices.
+ - The worst thing about loneliness is that it brings one face to face with oneself.
+ - She was not sorry. And if it was the wine telling her that, then she would tell the wine the same thing tomorrow. She was not sorry.
+ - There had to be a reason why they were not going to marry. They had both been so adamant about it. What the devil was the reason?
+
+51 quotes

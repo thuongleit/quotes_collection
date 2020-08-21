@@ -1,0 +1,32 @@
+ - If you want to be liked, get a dog. The people you work with are not your friends.
+ - I think our job as parents is to give our kids roots to grow and wings to fly.
+ - Certainly the research shows that grateful people are more innovative thinkers.
+ - My job as a television anchor or television reporter is not to proselytize.
+ - I think for anyone who’s gone through a crisis, there comes a turning point, an epiphany, that marks the beginning of the end.
+ - When my mother passed away I was 20.
+ - I now find magic in the mundane. I’m also more creative – better able to look beyond the obvious and come up with new story angles.
+ - There are days-depression is a part of it-when if all you do is get dressed, take a shower and put on your makeup, then it is a good day. Your goals have to be much lower. But if you take one tiny little step, then you can take another and another.
+ - There is something in even the darkest situations that we can make a positive in our lives.
+ - Children may not notice the positive moments in life unless we point them out to them.
+ - What’s the first image that comes to mind when you think of a mental hospital? Jack Nicholson in ‘One Flew Over the Cuckoo’s Nest,’ right? We need to change that perception, and places like this one are doing that.
+ - People who feel positively think differently. They think better.
+ - When you’re true to who you are, amazing things happen.
+ - A thankful outlook smoothes the rough edges off life.
+ - I want my kids to be curious, to be interested in a lot of things, to be confident, and to feel they belong in any number of situations.
+ - There is no dramatic difference in happiness on the part of people who are wealthy.
+ - Grateful people may recover faster from trauma.
+ - What I’ve learned is there’s a scientifically proven phenomenon that’s attached to gratitude, and that if you consciously take note of what is good in your life, quantifiable benefits happen.
+ - If I have time to exercise, I do it, but I don’t fixate on numbers like weight or waist size. Numbers don’t work for me.
+ - I sensed that my life was better when I focused on things that were working as opposed to focusing on the long list that goes wrong, but I wanted to know if there was any validity to that.
+ - I was brought up Methodist, christened as a little baby and went to church every Sunday.
+ - So many self-help ideas are like meringue – you take a big bite, and there’s nothing there.
+ - So for years I kept mum about my passion for needle arts.
+ - It is important for women to know who they are, and to know what makes their hearts sing.
+ - The scripture is God’s plan on how we are to live our lives here and what we are to do to have eternal life.
+ - The biggest surprise, which is also the best, is that I didn’t know I would love motherhood as much as I do.
+ - Im about as straight an arrow as youll find out there.
+ - It is hard to get in the habit of forcing yourself to find three things on a regular basis that you are grateful for.
+ - Your dreams can be realities. They are the stuff that leads us through life toward great happiness.
+ - There is a comfort in rituals, and rituals provide a framework for stability when you are trying to find answers.
+
+30 quotes

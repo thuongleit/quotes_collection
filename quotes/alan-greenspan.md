@@ -1,0 +1,98 @@
+ - The number one problem in today’s generation and economy is the lack of financial literacy.
+ - Amateurs want to be right. Professionals want to make money.
+ - Gold still represents the ultimate form of payment in the world. Fiat money in extremis is accepted by nobody. Gold is always accepted.
+ - Productivity is notoriously difficult to predict.
+ - How do we know when irrational exuberance has unduly escalated asset values?
+ - The gut-feel of the 55-year old trader is more important than the mathematical elegance of the 25-year old genius.
+ - Whatever you tax you get less of.
+ - To succeed, you will soon learn, as I did, the importance of a solid foundation in the basics of education – literacy, both verbal and numerical, and communication skills.
+ - The Iraq War is largely about oil.
+ - If I’ve made myself clear, I’ve misspoken.
+ - Indeed, better risk management may be the only truly necessary element of success in banking.
+ - Excessive optimism sows the seeds of its own reversal.
+ - I guess I should warn you, if I turn out to be particularly clear, you’ve probably misunderstood what I’ve said.
+ - Remember what we’re looking at. Gold is a currency. It is still, by all evidence, a premier currency, that no fiat currency, including the dollar, can match.
+ - Corruption, embezzlement, fraud, these are all characteristics which exist everywhere. It is regrettably the way human nature functions, whether we like it or not. What successful economies do is keep it to a minimum. No one has ever eliminated any of that stuff.
+ - Deficit spending is simply a scheme for the confiscation of wealth.
+ - The process of innovation is, of course, never ending.
+ - Protectionism will do little to create jobs and if foreigners retaliate, we will surely lose jobs.
+ - If all currencies are moving up or down together, the question is: relative to what? Gold is the canary in the coal mine. It signals problems with respect to currency markets. Central banks should pay attention to it.
+ - But how do we know when irrational exuberance has unduly escalated asset values, which then become subject to unexpected and prolonged contractions as they have in Japan over the past decade?
+ - But rules cannot substitute for character.
+ - I have found no greater satisfaction than achieving success through honest dealing and strict adherence to the view that, for you to gain, those you deal with should gain as well.
+ - We can guarantee cash benefits as far out and at whatever size you like, but we cannot guarantee their purchasing power.
+ - If you think you understand what I am saying you do not understand what I am saying.
+ - Since I’ve become a central banker, I’ve learned to mumble with great incoherence. If I seem unduly clear to you, you must have misunderstood what I said.
+ - In an economy that already has lost some momentum, one must remain alert to the possibility that greater caution and weakening asset values in financial markets could signal or precipitate an excessive softening in household and business spending.
+ - Regulation of derivatives transactions that are privately negotiated by professionals is unnecessary.
+ - It is decidedly not true that “nice guys finish last,” as that highly original American baseball philosopher, Leo Durocher, was alleged to have said.
+ - No matter how skillful the trading scheme, over the long haul, abnormal returns are sustained only through abnormal exposure to risk.
+ - The United States can pay any debt it has because we can always print money to do that. So there is zero probability of default.
+ - Regulation – which is based on force and fear – undermines the moral base of business dealings. It becomes cheaper to bribe a building inspector than to meet his standards of construction. Protection of the consumer by regulation is thus illusory.
+ - When trust is lost, a nation’s ability to transact business is palpably undermined.
+ - It has been my experience that competency in mathematics, both in numerical manipulations and in understanding its conceptual foundations, enhances a person’s ability to handle the more ambiguous and qualitative relationships that dominate our day-to-day financial decision-making.
+ - I am saddened that it is politically inconvenient to acknowledge what everyone knows: the Iraq war is largely about oil.
+ - In general, corruption tends to exist whenever governments have favors to extend, or something to sell.
+ - I have long argued that paying down the national debt is beneficial for the economy: it keeps interest rates lower than they otherwise would be and frees savings to finance increases in the capital stock, thereby boosting productivity and real incomes.
+ - Anything that we can do to raise personal savings is very much in the interest of this country.
+ - As long as we issue fiat currency, I see no alternative to a legal tender law.
+ - I’m not denying that monopolies are terrible things, but I am denying that it is readily easy to resolve them through legislation of that nature.
+ - There is no evidence that the business cycle has been repealed.
+ - If we are to remain preeminent in transforming knowledge into economic value, America’s system of higher education must remain the world’s leader in generating scientific and technological breakthrough, and in meeting the challenge to educate workers.
+ - I do not deny that many appear to have succeeded in a material way by cutting corners and by manipulating associates, both in their professional and in their personal lives. But material success is possible in this world and far more satisfying when it comes without exploiting others.
+ - If prices go down, we will have problems – problems in the sense of spillover to other areas, Greenspan said. While he hasn’t seen such spreading yet, I expect to.
+ - Credit-default swaps, I think, have serious problems associated with them.
+ - In the absence of the gold standard, there is no way to protect savings from confiscation through inflation. There is no safe store of value.
+ - It’s hard to overemphasize how important Ford’s deregulation was. True, most of the benefits took years to unfold-rail freight rates, for example hardly budged at first. Yet deregulation set the stage for an enormous wave of creative destruction in the 1980s:...
+ - Anyone willing to do what is required to become president of the United States is thereby barred from taking that office. I’m only half joking.
+ - What we have found over the years in the marketplace is that derivatives have been an extraordinarily useful vehicle to transfer risk from those who shouldn’t be taking it to those who are willing to and are capable of doing so.
+ - All taxes are a drag on economic growth. It’s only a question of degree.
+ - The arts develop skills and habits of mind that are important for workers in the new economy of ideas.
+ - I was a good amateur but only an average professional. I soon realized that there was a limit to how far I could rise in the music business, so I left the band and enrolled at New York University.
+ - I’ve been in and out of Wall Street since 1949, and I’ve never seen the type of animosity between government and Wall Street. And I’m not sure where it comes from, but I suspect it’s got to do with a general schism in this society which is really becoming ever more destructive.
+ - If I say something which you understand fully in this regard, I probably made a mistake.
+ - Nor can private counterparties restrict supplies of gold, another commodity whose derivatives are often traded over-the-counter, where central banks stand ready to lease gold in increasing quantities should the price rise.
+ - Significantly opening up immigration to skilled workers solves two problems. The companies could hire the educated workers they need. And those workers would compete with high-income people, driving more income equality.
+ - By far the most significant event in finance during the past decade has been the extraordinary development and expansion of financial derivatives.
+ - At the risk of some oversimplification, if the skill composition of our work force meshed fully with the needs of our increasingly complex capital-stock, wage-skill differentials would be stable, and the percentage changes in wage rates would be the same for all job grades.
+ - We need, in effect, to make the phantom ‘lock-boxes’ around the trust fund real.
+ - The probability of ten consecutive heads is 0.1 percent; thus, when you have millions of coin tossers, or investors, in the end there will be thousands of very successful practitioners of coin tossing, or stock picking.
+ - The guiding purpose of the government regulator is to prevent rather than to create something.
+ - Regulators have not been able to achieve the level of future clarity required to act pre-emptively. The problem is not lack of regulation but unrealistic expectations. What we confront in reality is uncertainty, some of it frighteningly so...
+ - Before I met Ayn Rand, I was a logical positivist, and accordingly, I didn’t believe in absolutes, moral or otherwise. If I couldn’t prove a proposition with facts and figures, it was without merit.
+ - You can’t have the capitalist system if an increasing number of people think it is unjust.
+ - If we allow terrorism to undermine our freedom of action, we could reverse at least part of the palpable gains achieved by postwar globalization. It is incumbent upon us not to allow that to happen.
+ - There is nothing to guarantee the superior judgment, knowledge, and integrity of an inspector or a bureaucrat-and the deadly consequences of entrusting him with arbitrary power are obvious.
+ - I’ve always argued that this country has benefited immensely from the fact that we draw people from all over the world.
+ - I came to a stark realization: chronic surpluses could be almost as destabilizing as chronic deficits.
+ - Developing protectionism regarding trade and our reluctance to place fiscal policy on a more sustainable path are threatening what may well be our most valued policy asset: the increased flexibility of our economy, which has fostered our extraordinary resilience to shocks.
+ - We may be in a rapidly evolving international financial system with all the bells and whistles of the so-called new economy. But the old-economy rules of prudence are as formidable as ever. We violate them at our own peril.
+ - History has not dealt kindly with the aftermath of protracted periods of low risk premiums.
+ - Improvements in lending practices driven by information technology have enabled lenders to reach out to households with previously unrecognized borrowing capacities.
+ - The more flexible an economy, the greater its ability to self-correct in response to inevitable, often unanticipated, disturbances and thus to contain the size and consequences of cyclical imbalances.
+ - While local economies may experience significant price imbalances, a national severe price distortion seems most unlikely in the United States, given its size and diversity.
+ - Well, you probably will always believe there should be laws against fraud, and I don’t think there is any need for a law against fraud.
+ - We as central bankers need not be concerned if a collapsing financial asset bubble does not threaten to impair the real economy, its production, jobs and price stability.
+ - We will have more crises and none of them will look like this because no two crises have anything in common except human nature.
+ - It’s a bubble. It has to have intrinsic value. You have to really stretch your imagination to infer what the intrinsic value of Bitcoin is. I haven’t been able to do it. Maybe somebody else can.
+ - Revolutions are something you see only in retrospect.
+ - Without the triggers, that tax cut is irreponsible fiscal policy. Eventually, I think that will be the consensus view.
+ - The current financial crisis in the US is likely to be judged in retrospect as the most wrenching since the end of the Second World War.
+ - I cannot conceive of a politically feasible solution to this problem which will overdo cutting the deficit, where overdoing means harming the economy. It might be technically possible, but it is not realistic.
+ - American consumers might benefit if lenders provided greater mortgage product alternatives to the traditional fixed-rate mortgage.
+ - Without calling the overall national issue a bubble, it’s pretty clear that it’s an unsustainable underlying pattern.
+ - There are no easy choices. Easy choices are long gone.
+ - Deficit spending is simply a scheme for the ‘hidden’ confiscation of wealth. Gold stands in the way of this insidious process. It stands as a protector of property rights.
+ - History demonstrates that participants in financial markets are susceptible to waves of optimism. Excessive optimism shows the seeds of its own reversal in the form of imbalances that tend to grow over time.
+ - Cash is available and we should use that in larger amounts, as is necessary, to solve the problems of the stress of this.
+ - Greenspan, who knew so much more than most, knew far less than most supposed...
+ - The recent evidence increasingly suggests that an economic expansion is already well under way, although an array of influences unique to this business cycle seems likely to moderate its speed.
+ - It seems superfluous to constrain trading in some of the newer derivatives and other innovative financial contracts of the past decade. The worst have failed; investors no longer fund them and are not likely to in the future.
+ - History cannot be reduced to a set of statistics and probabilities.
+ - The need for values is inbred. Their content is not.
+ - Any informed borrower is simply less vulnerable to fraud and abuse.
+ - A decline in the national housing price level would need to be substantial to trigger a significant rise in foreclosures, because the vast majority of homeowners have built up substantial equity in their homes despite large mortgage-market financed withdrawals of home equity in recent years.
+ - I was a fairly good amateur musician, and I was an average professional. But the one thing I saw was that the big band business was fading.
+ - The free lunch has still to be invented.
+
+96 quotes

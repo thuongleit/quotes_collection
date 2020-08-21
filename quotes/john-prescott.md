@@ -1,0 +1,31 @@
+ - I’ve always felt very proud of Wales and being Welsh. People are a bit surprised when I say I’m Welsh. I was born in Wales, went to school in Wales and my mother was Welsh. I’m Welsh. It’s my place of birth, my country.
+ - Improving the quality of life for people of this country is perhaps the most important duty of Government.
+ - My roots, my background and the way I act is working class, but it would be hypsocritical to say I’m anything else than middle class now.
+ - It’s great to be back on terra cotta.
+ - The Green Belt is a Labour achievement – and we mean to build on it.
+ - So what I did was stuff my face with anything around, any old rubbish, burgers, chocolate, crisps, fish and chips, loads of it, till I felt sick – but at least I’d had the pleasure of stuffing my face and feeling really full.
+ - I can tell you I’m pretty middle-class.
+ - If you look at Newcastle or Gateshead, even over twenty years, even with the previous administration, it has moved quite remarkably in transforming itself.
+ - It’s moving in the right direction. It was in decline under the previous administration.
+ - Because of the security reasons for one thing and, second, my wife doesn’t like to have her hair blown about. Have you got another silly question?
+ - In the north east, there, they have had quite a bit of government offices moving in. It’s not a new policy.
+ - There’s no excuse, it’s just an opportunity that presented in a limited way and that happened and as soon as the press rang me I didn’t deny it I just said ‘that’s it’ and I had to go home and explain it.
+ - The only break I ever took was to eat. That’s all I did. Work, and then quickly eat something. It became my main pleasure, having access to my comfort food.
+ - Labour economic stability has replaced Tory boom and bust.
+ - I don’t get a fair whack, I don’t pursue vendettas or punch people on the nose.
+ - Perhaps if England and Scotland together had one team we could at least beat the Germans.
+ - My department is not too big for one man, because I’m Superman.
+ - Down in the south, it’s how we find the brownfield sites without taking too much land take to meet the tremendous demand for housing, and that’s what I’ve done.
+ - We now have a satisfactory solution not only to coalition forces, but also to the Iraqi authorities themselves.
+ - In a sense, what we do with the regional development agencies is to give them resources to look at the deficiencies in the economy in the regional areas, so they can address themselves to that.
+ - When I see that man on the telly – ‘Are you thinking what I’m thinking?’ No! I’m definitely not! I find most of it quite offensive!
+ - What we are beginning to witness is a whole new set of rules for economics, based on rationing resources.
+ - I have only been seeking to get them to the negotiating table and, thank God, that’s where they are.
+ - We believe the 36, nearly 40, billion pound discount given for a right to buy houses took a million houses out of the public housing sector which is desperately needed for rent.
+ - This was released I think in February and so it is a great deal of fuss being made, it hasn’t in fact been given public release, it was released in February...
+ - There is progress taking place, growth is better. We’re only talking about two years there.
+ - I’ve gone through that with my mother and father and here I was in a similar situation. I’ve wronged her and I’ve wronged the family. Because when these things happen, it doesn’t just happen to you, it happens to the people around you and the family.
+ - I will have failed in this if in five years there are not many more people using public transport and far fewer journeys by car. It is a tall order but I want you to hold me to it.
+ - I was the one that brought it in, but not only for the north-east, for every area so we can develop all the regional economies, lift up the national productivity, get greater wealth and share it more evenly.
+
+29 quotes

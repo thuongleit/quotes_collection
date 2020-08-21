@@ -1,0 +1,294 @@
+ - Evil is just a point of view.
+ - Strong women are absolutely unpredictable.
+ - Come on, say it again. I’m a perfect devil. Tell me how bad I am. It makes me feel so good!
+ - In the very depths of Hell, do not demons love one another?
+ - If I am an angel, paint me with black wings.
+ - You are someone worth loving.
+ - None of us really changes over time. We only become more fully what we are.
+ - As if the night had said to me, ‘You are the night and the night alone understands you and enfolds you in its arms’ One with the shadows. Without nightmare. An inexplicable peace.
+ - No matter how rudely someone treats you, remain kind. Walking away at peace with yourself is worth it.
+ - Keep your secrets Keep your silence It is a better gift than truth.
+ - Motivated employees are crucial to a company’s success.
+ - The only pain in pleasure is the pleasure of the pain.
+ - Do you know what I think about crying? I think some people have to learn to do it. But once you learn, once you know how to really cry, there’s nothing quite like it. I feel sorry for those who don’t know the trick. It’s like whistling or singing.
+ - To write something, you have to risk making a fool of yourself.
+ - I don’t like myself you know. I love myself. I’m devoted to myself till my dying day. But I don’t like myself.
+ - Give me a man or woman who has read a thousand books and you give me an interesting companion. Give me a man or woman who has read perhaps three and you give me a very dangerous enemy indeed.
+ - I congratulate myself on not having arrived into the world until the present time. This age suits my taste.
+ - Don’t be a pawn in somebody’s game. Find the attitude which gives you the maximum strength and the maximum dignity, no matter what else is going on.
+ - I think love can save the world. When we love, we completely recognize the value of the other.
+ - Evil is always possible. Goodness is a difficulty.
+ - Writers write about what obsesses them. You draw those cards. I lost my mother when I was 14. My daughter died at the age of 6. I lost my faith as a Catholic. When I’m writing, the darkness is always there. I go where the pain is.
+ - The only power that exists is inside ourselves.
+ - When I’m writing, the darkness is always there. I go where the pain is.
+ - We all suffer under a curse, the curse that we know more than we can endure, and there is nothing, absolutely nothing we can do about the force and the lure of this knowledge.
+ - I know nothing, because I know too much, and understand not nearly enough and never will.
+ - Let the flesh instruct the mind.
+ - What if I could give you your life back; pluck out the pain; and give you a world of unimaginable beauty that would be for all time.
+ - Would that death were like this. Would that one would sleep and sleep and sleep forever.
+ - Drink from me and live forever. Lestat de Lioncourt.
+ - And books, they offer one hope – that a whole universe might open up from between the covers, and falling into that universe, one is saved.
+ - Be kind. Always if you have a choice, be kind.
+ - The young know how truly difficult and dreadful youth can be. Their youth is wasted on everyone else, that’s the horror. The young have no authority, no respect.
+ - Goodnight sweet prince, may flights of devils wing you to your rest.
+ - The vampire is an outsider. He’s the perfect metaphor for those things. He’s someone who looks human and sounds human, but is not human, so he’s always on the margins.
+ - Obviously, a writer can’t know everything about what she writes. It’s impossible.
+ - Don’t let the old story repeat itself now. Arm yourself with all that’s happened.
+ - I love the one who punishes me well.
+ - The vampires have always been metaphors for me. They’ve always been vehicles through which I can express things I have felt very, very deeply.
+ - Like all strong people, she suffered always a measure of loneliness; she was a marginal outsider, a secret infidel of a certain sort.
+ - Merciful death. How you love your precious guilt.
+ - I am an unwilling devil. I cry like some vagrant child. I want to go home.
+ - One moment the world is as it is. The next, it is something entirely different. Something it has never been before.
+ - Pride is the parent of destruction; pride eats the mind and the heart and the soul alive.
+ - It’s an awful truth that suffering can deepen us, give a greater lustre to our colours, a richer resonance to our words.
+ - Dear God, help me. Do not forget me on this tiny cinder lost in a galaxy that is lost–a heart no bigger than a speck of dust beating, beating against death, against meaninglessness, against guilt, against sorrow.
+ - Consequently, if you believe God made Satan, you must realize that all Satan’s power comes from God and so that Satan is simply God’s child, and that we are God’s children also. There are no children of Satan, really.
+ - For always in her there was a dark place full of despair and a great dividing force to make meaning because there was none.
+ - What is fear after all? It is indecision. You seek some way to resist, escape. There is none.
+ - I know nothing of God or the Devil. I have never seen a vision nor learned a secret that would damn or save my soul.
+ - Fear is only good when you have a choice in things.
+ - To really ask is to open the door to the whirlwind. The answer may annihilate the question and the questioner.
+ - Oh, the lies that I have told myself and others. I knew it yet I didn’t know.
+ - Remember always, he said, that nothing is as precious to us as the magnificent gift of life. Let the moon and the stars always remind you of this-that though we are tiny creatures in this universe, we are filled with life.
+ - Claudia, you’ve been a very very naughty little girl.
+ - I am the Vampire Lestat. I’m immortal more or less. The light of the sun, the sustained heat of an intense fire-these things might destroy me. But then again, they might not.
+ - Something in me was responding now as the audience responded, not in fear, but in some human way, to the magic of that fragile painted set, the mystery of the lighted world there.
+ - Garden of Pain, I need you. What were the songs of beasts to the cries of sentient souls?
+ - I was the vampire Lestat again. I was back in action. New Orleans was once again my hunting ground.
+ - Go where the pain is, go where the pleasure is.
+ - I’m Gentleman Death in silk and lace, come to put out the candles. The canker in the heart of the rose.
+ - I can’t keep up with Stephen King’s output.
+ - Oh, but when love is reached through suffering, it has a power it can never gain through innocence.
+ - Aren’t there gradations of evil? Is evil a great perilous gulf into which one falls with the first sin, plummeting to the depth?
+ - Don’t be a fool for the Devil, darling.
+ - But the sky was never quite the same shade of blue again.
+ - For me, places have a tremendous impact. I fall in love with places. All of life seems different in different places.
+ - The prince is never going to come. Everyone knows that; and maybe sleeping beauty’s dead.
+ - I love you still, that’s the torment of it. Lestat I never loved. But you! The measure of my hatred is that love. They are the same! Do you know now how much I hate you!
+ - I can’t help being a gorgeous fiend. It’s just the card I drew.
+ - The atheism and nihilism of my earlier years now seems shallow, and even a bit cocky.
+ - My conscience is killing me, isn’t it? And when you’re immortal that can be a really long and ignominious death.
+ - Everyone is a potential naked slave to you once you become a trainer.
+ - We breathe the light, we breathe the music, we breathe the moment as it passes through us.
+ - I want to love all the children of God – Christian, Jew, Moslem, Hindu, Buddhist – everyone. I want to love gay Christians and straight Christians.
+ - Our language needs endless synonyms for beautiful; the eyes could see what the tongue cannot possibly describe.
+ - I feel like an outsider, and I always will feel like one. I’ve always felt that I wasn’t a member of any particular group.
+ - Ignore any loss of nerve, ignore any loss of self-confidence, ignore any doubt or confusion. Move on believing in love, in peace, and harmony, and in great accomplishment. Remember joy isn’t a stranger to you. You are winning and you are strong. Love. Love first, love always, love forever.
+ - Hell’s Bells ringing, my secret music...
+ - The fans, the vampire groupies, love the idea of this androgynous, preternatural figure stalking the night, and craving aesthetic pleasure just as he craves blood, wearing only the best velvet clothes, and savoring red roses.
+ - I was a newborn vampire, weeping at the beauty of the night.
+ - Don’t you see? I’m not the spirit of any age. I’m at odds with everything and always have been! I have never belonged anywhere with anyone at any time!
+ - The whole theme of Interview with the Vampire was Louis’s quest for meaning in a godless world. He searched to find the oldest existing immortal simply to ask, What is the meaning of what we are?
+ - The world changes, we do not, therein lies the irony that kills us.
+ - As for oblivion, well, we can wait a little while for that.
+ - Sometimes dreams show me that my writing should go deeper. Dreams have not so much changed my work as deepened it.
+ - It was as if the empty nights were made for thinking of him. And sometimes I found myself so vividly aware of him it was as if he had only just left the room and the ring of his voice were still there. And somehow, there was a disturbing comfort in that, and, despite myself, I’d envision his face.
+ - Memnoch the Devil happen to be my favorite of all The Vampire Chronicles.
+ - I love New Orleans physically. I love the trees and the balmy air and the beautiful days. I have a beautiful house here.
+ - When you think night and day and every moment only of pleasing me, things will be very easy for you.
+ - Curses of vanished elders echoed down on me; too pretty, too soft, too pale, eyes far too full of the Devil, ah, that devilish smile.
+ - I never knew what life was until it ran out in a red gush over any lips, my hands!
+ - A perfectly evil Devil makes even less sense than a perfect God.
+ - You make me miserable. You really do, I want you to know that. Much as I love you, much as I need you, much as I can’t exist without you, you make me miserable.
+ - The evil of one murder is infinite, and my guilt is like my beauty – eternal. I cannot be forgiven, for there is no one to forgive me for all I’ve done.
+ - You see that old woman? That will never happen to you. You will never grow old, and you will never die. And it means something else too, doesn’t it? I shall never ever grow up.
+ - The greatest create of power you have on earth, whether you are an angel, a spirit, a man or woman or child is to help others.
+ - In the spring of 1988, I returned to New Orleans, and as soon as I smelled the air, I knew I was home. It was rich, almost sweet, like the scent of jasmine and roses around our old courtyard. I walked the streets, savoring that long lost perfume.
+ - Oh Lestat, you deserved everything that’s ever happened to you. You better not die. You might actually go to hell.
+ - Very few beings really seek knowledge in this world. Mortal or immortal, few really ASK. On the contrary, they try to wring from the unknown the answers they have already shaped in their own minds.
+ - Every moment must be first known and then savored.
+ - The truth is most women are weak, be they mortal or immortal. But when they are strong, they are absolutely unpredictable.
+ - Old truths and ancient magic, revolution and invention, all conspire to distract us from the passion that in one way or another defeats us all.
+ - The finest thing under the sun and moon is the human soul. I marvel at the small miracles of kindness that pass between humans, I marvel at the growth of conscience, at the persistence of reason in the face of all superstition or despair. I marvel at human endurance.
+ - The supernatural world has always been more real to me than the real world.
+ - You were the vampire in my dream. My perfect one.
+ - This suffering, this unspeakable capacity to bleed and to know pain and to know annihilation, is what has to be overcome in this world if anyone is to reach God.
+ - Heaven would be Hell in no time if every cruel, selfish, vicious soul went to Heaven.
+ - Suppose death had a heart to love and to release you, to whom would he turn this passion, would you chose a person from the crowd there. A person to suffer as you suffer.
+ - People who cease to believe in God or goodness altogether still believe in the devil. I don’t know why. No, I do indeed know why. Evil is always possible. And goodness is eternally difficult.
+ - Words. Borne on the ever swelling current of hatred, like flowers opening in the current, petals peeling back, then falling apart.
+ - How pathetic it is to describe these things which can’t truly be described.
+ - My last sunrise. That morning, I was not yet a vampire. And I saw my last sunrise. I remember it completely; yet I do not think I remember any other sunrise before it.
+ - Who knew that better than I, who had presided over the death of my own body, seeing all I called human wither and die only to form an unbreakable chain which held me fast to this world yet made me forever its exile, a specter with a beating heart?
+ - I assume I don’t need an introduction.
+ - We shall live even in this state of living death, we shall love, we shall feel, we shall defy all who would judge and destroy us.
+ - The fact that I loved you was the greatest lie I have ever lived.
+ - We’re frightened of what makes us different.
+ - I read The Old Curiosity Shop before I began Blackwood Farm. I was amazed at the utter madness in that book.
+ - My greatest sin has always been that I have a wonderful time being myself.
+ - How can so much beauty hide such a bruised and steely heart, and why must I love him, why must I lean in my weariness upon his irresistible yet indomitable strength? Is he not the wizend funeral spirit of a dead man in a child’s clothes?
+ - I am in love with you’, I responded. He laughed the most beguiling and gentle laugh. ‘Of course you are,’ he replied. ‘I understand perfectly because I’m in love with myself. The fact that I’m not transfixed in front of the nearest mirror takes a great deal of self-control.’ It was my turn to laugh.
+ - And when a strong man is sweet, even Goddesses look down from Mount Olympus.
+ - Suffering of sentient beings is like decay; it fertilizes the growth of their souls.
+ - Invest in a feather duster – the possibilities are endless.
+ - I find at moments I’m as fragile as glass.
+ - Roman influence seeds itself, sprouting mighty oaks right through the modern forest of computers, digital disks, microviruses and space satellites.
+ - How could anyone love Him? What did you just tell me yourself about the world? Don’t you see, everybody hates God now. It’s not that God is dead in the twentieth century. It’s that everybody hates Him! At least I think so.
+ - In the name of Christ, I quit Christianity.
+ - Amazing what the British do with language; the nuances of politeness. The world’s great diplomats, surely.
+ - It’s an awful truth that suffering can deepen us, give a greater lustre to our colours, a richer resonance to our words. That is, if it doesn’t destroy us, if it doesn’t burn away the optimism and the spirit, the capacity for visions, and the respect for simple yet indispensable things.
+ - You reach deep down and bring up what feels absolutely authentic to you as you move along with the book, but you don’t know everything about it. You can’t.
+ - Your quest is for darkness only. This sea is not your sea. The myths of men are not your myths. Men’s treasures are not yours.
+ - I gave up on the big screen. The Witching Hour was at Warner Bros. for 10 years and it just didn’t work out.
+ - You look good to me, you damnable little devil, good to embrace and good to love.
+ - I have to move away from organized religion. The toxic confusion and anger I was feeling in church had become too great.
+ - An evil for these times destined to move through the world in handsome human guise.
+ - I loved words. I love to sing them and speak them and even now, I must admit, I have fallen into the joy of writing them.
+ - It draws it’s strength, this big secret, from the same root from which I draw my strength, both the good and the bad, because in the end, they cannot be separated.
+ - Oh to have you with me, to have you here, not to be alone, but to be with you, my beauty, you of all souls! You.
+ - The human heart is my school.
+ - The old gods will bring about vengeance not so much because they exist but because I once honored them.
+ - So we reach into the raging chaos, and we cling to it, and we tell ourselves it has meaning, and that the world is good, and we are not evil, and we will all go home in the end.
+ - I lived like a man who wanted to die but who had no courage to do it himself.
+ - A starving child is a frightful sight. A starving vampire, even worse.
+ - Anger is too pathetic. Anger is as weak as fear.
+ - I’d thought I knew what beauty was in women; but she’d surpassed all the language I had for it.
+ - It was as if this night were only one of thousands of nights, world without end, night curving into night to make a great arching line of which I couldn’t see the end, a night in which I roamed alone under cold, mindless stars.
+ - Sometimes fear is a warning. It’s like someone putting a hand on your shoulder and saying Go No Farther.
+ - What does all this mean finally, I kept asking like a college kid. Why does it make me want to cry? Maybe it’s that we are all outsiders, we are all making our own unusual way through a wilderness of normality that is just a myth.
+ - I think to feel this happy is to be miserable, to feel this much satisfaction is to burn.
+ - It struck me, sharp and hard, that I had been given so many chances to save my soul that my entire life had been constructed around these chances! That was my nature – going from temptation to temptation, not to sin, but to be redeemed.
+ - We are not damned. We never were. Who under the sun has the right to damn any living breathing creature?
+ - You are alone when something like this happens. Doesn’t matter how many people love you and want to help you. You are alone. When Marchent died, she was alone.
+ - All the mortal world is a lethal enemy during those hours between dawn and dusk.
+ - Sleep is your friend. Dreams are your unwelcome guests.
+ - When you make his sandwiches, put a sexy or loving note in his lunch box.
+ - We need to stop fighting Christian against Christian. I have no time for anything but trying to love other people. That is a full-time job.
+ - Maybe that’s what Hell is. You go mad. And all your demons come and get you just as fast as you can think them up.
+ - My own funeral, I’d like to be laid out in a coffin in my own house. I would like my coffin to be put in the double parlor, and I would like all the flowers to be white.
+ - He had grieved for me, I’ll give him that much. But then he is so good at grieving! He wears woe as others wear velvet; sorrow flatters him like the light of candles; tears become him like jewels.
+ - And so this young one, this young one whom I had so loved, I had to forsake, no matter how broken my heart, no matter how lonely my soul, no matter how bruised my intellect and spirit.
+ - Lestat: Toughen up baby. I’m looking for the eternal scum.
+ - We are predators, Whose all seeing eyes were meant to give them detachment.
+ - But death we are, and death we’ve always been.
+ - Ah, come now. I look like an angel, but I’m not. The old rules of nature encompass many creatures like me. We’re beautiful like the diamond-backed snake, or the striped tiger, yet we’re merciless killers.
+ - I assume as a child Jesus had to learn how to do carpentry, learn Torah, learn all the things a human child had to learn. If He was human in all ways except that He did not sin, this must have been the case.
+ - Truth is a risky proposition. It’s the nature of mediocre human beings to believe that lies are necessary, that they serve a purpose, that truth is subversive, that candor is dangerous, that the very scaffold of communal life is supported by lies.
+ - It was over now, and the meaningless world was tolerable and need not be explained. And never would it be, and how foolish I had ever been to think so.
+ - I can’t believe the world was created in six days. I do not take Genesis or Revelation literally. I AM OUT. I am alone. I am an outsider for Christ. I will study my Bible, and pray to God in private and alone. I have no other choice.
+ - Should we put out the light? And then put out the light. But once put out thy light, I cannot give it vital breath again. It needs must wither.
+ - I think that we are supernatural. We are unique. We’re the only animals in the universe that we know of that actually have self-consciousness, a sense of time and our own mortality.
+ - Dickens is a very underrated writer at the moment. Everyone in his time admired him but I think right now he’s not spoken of enough.
+ - People write to me all the time to tell me that “homosexuality is an abomination.” They base this on a quote in Leviticus. I think the Bible has proved to be a very mysterious and dangerous document.
+ - Life itself must be founded upon the infinite possibility for choice and accident. And if we cannot prove that it is, we must believe that it is. We must believe that we can change, that we can control, that we can direct our own destinies.
+ - I enjoy the Web site a lot and I like being able to talk to my readers. I’ve always had a very close relationship with them.
+ - He had never expected death to be this quiet, this secretive, this easy.
+ - Because I show you my pain, I do not of necessity love you.
+ - Writers, as they gain success, feel like outsiders because writers don’t come together in real groups.
+ - The library furnished our dreams, helped us shape our ambitions, made up people of books and ideas and grand designs.
+ - I don’t believe in anything and that makes me stronger than you think.
+ - Life is a tragedy, one way or another. What is certain is that you die.
+ - Say what you will to the force that governs the universe. Perhaps we’ll call it into being, and it will yet love us as we love it.
+ - How shameful. How predictable! How insipid. And how sweet.
+ - The most difficult novel I have had to write in terms of just getting it done was The Vampire Lestat. It took a year to write.
+ - There is one purpose to life and one only: to bear witness to and understand as much as possible of the complexity of the world- its beauty, its mysteries, its riddles.
+ - For several long moments we remained locked together, and I think I covered her hair with small sacred kisses, her perfume crucifying me with memories.
+ - The worst takes its time to come, and then to pass.
+ - What does it mean to die when you can live until the end of the world?
+ - In the chapel you prayed to be a saint and now I will make you a god.
+ - When we talk about our lives, long or short, brief and tragic or enduring beyond comprehension, we impose a continuity on them, and that continuity is a lie.
+ - That was my nature – going from temptation after temptation, not to sin, but to be redeemed.
+ - What I have always wanted more than revenge is to bring the other person to recognition of the pain they caused, so they essentially say, “I will never do that again.”
+ - A perfect world or a world destroyed, one or the other- someday will come the end of hell.
+ - We have to become saints. We have to become like Christ. Anything less is simply not enough.
+ - The world doesn’t need any more mediocrity or hedged bets.
+ - Revenge is the concern of those who are at some point or other beaten. I am not beaten, I told myself. No, not beaten. And victory is far more interesting to contemplate than revenge.
+ - Perhaps this is the only real evil left.
+ - I resolved to move just a little bit more slowly through the world, to look around myself with greater care, and to try to remain conscious of all that was going on around me at all times.
+ - I’m usually working on my own mythology, my own realm of created characters. Stories in mythology inspire me, though I may not be conscious of it.
+ - But all morality is of necessity shaped by context. I’m not talking relativism, no. To ignore the context of a decision is in fact immoral.
+ - I wish we had more visible Christian and Catholic leaders who talked about love.
+ - We have such a terrible, terrible misconception of science. We think it involves the definite, the precise, the known; it is a horrid series of gates to an unknown as vast of the universe; which means endless.
+ - Goddamn it, do it yourself. You’re five hundred years old and you can’t use a telephone? Read the directions. What are you, an immortal idiot?
+ - I have lived lies. I have done it again and again. I live lies because I cannot endure the weakness of anger, and I cannot admit the irrationality of love.-Marius.
+ - Whipping is fifty percent show and noise.
+ - There was no point in waiting until the next world. You had to do everything now, every kind of sin.
+ - Believe in angels? Then believe in vampires. Believe in me. There are worse things on earth.
+ - I was typing away while everybody was dropping acid and smoking grass. I was known as my own square.
+ - It is tragic that many in America think of us – Christians – as being people who hate others.
+ - Your love to others, and their love for you, that the increase of love in life itself around you, is what matters.
+ - Time can tick when there is no clock.
+ - It is not man who is the enemy of the human species. It is the irrational; it is the spiritual when it is divorced from the material; from the lesson in one beating heart or one bleeding vein.
+ - I do want to go another way – to write something completely different.
+ - And I realized that I’d tolerated him this long because of self-doubt.
+ - You never know the palette of the one you kill until the mind disgorges its finest colours.
+ - As if it were our very birthright, which we could not come to grasp the meaning of until this time of middle life when we looked on only as many years ahead as already lay behind us.
+ - To learn and to love, that is what we are here for, any activity which is not grounded in one of these two is a waste of time.
+ - Oh, if the moon only had a secret, if the moon only held a truth. But the moon was just the moon.
+ - I stumble through a carnival of horrors.
+ - One tiny flame could make so many other flames; one tiny flame could set afire a whole world.
+ - And he would listen, making only a few comments, always sympathetic, so that when I left him I had the distinct impression he had solved everything for me.
+ - My efforts with Hollywood are like things written in water.
+ - I am deeply discouraged by Catholic Bishops who say Catholics cannot support same sex marriage in our secular culture.
+ - I claim Dickens as a mentor. He’s my teacher. He’s one of my driving forces.
+ - God, what is it like to be You and hear all those people all the time everywhere, begging, imploring, calling out for anything and anyone?
+ - I was good and bad, but never wicked.
+ - I am afraid of death. I believe nothing, and therefore like many who believe nothing I must make something, and that something is the meaning which I give my life.
+ - The highest truths a person could discover were rooted in the natural world.
+ - Don’t you see? It is a new age. It requires a new evil. And I am that new evil.
+ - Without memory there can be no insight. Without love, there can be no appreciation.
+ - I would have done just about anything for him.
+ - Maybe a new religion will rise now. Maybe without it, man will crumble in cynicism and selfishness because he really needs his gods.
+ - I am certain a great many believers and bible readers do believe in social justice.
+ - My body is no schoolboy.
+ - The one thing you share with every mortal is death.
+ - First-person narrators is the way I know how to write a book with the greatest power and chance of artistic success.
+ - Making a film, I’ve learned, can be an exhausting process, due to the need for backing, distribution, etc.
+ - I like to read things I’ve read before. It’s like listening over and over to your favorite song.
+ - His Back was turned to the end of the world and the end of the world was quiet.
+ - My life’s been too much of a self-created vocation. And there are times when I think I’ve done everything in the name of defiance.
+ - Vampires always order hot drinks. They aren’t going to drink them; but they can feel the warmth and smell them if they’re hot, and that is so good.
+ - I’m always looking, and I’m always asking questions.
+ - I saw finally the futility of all these gestures, that witchcraft is but a matter of focus-that one cann apply one’s fierce and immeasurable energies to an act of choice.
+ - The earth here is beautiful. And it still belongs to the dead.
+ - That process by which you become a writer is a pretty lonely one. We don’t have a group apprenticeship like a violinist might training for an orchestra.
+ - I know Christianity; and I know I have to move away from it and approach Jesus Christ on my own. I have to talk to Him directly and seek His guidance and protection as I seek to make my commitment to Him central to my life.
+ - Was it fair to say I didn’t know the full state of my soul?
+ - You can look at the New York Times Bestseller List and you can be pretty sure that the writers on that list don’t know each other very well.
+ - Artists are meant to be madmen, to disturb and shock us.
+ - I’m definitely more influenced by European writers than I am by American writers, there’s no doubt about that.
+ - I broke with my religion in college.
+ - God, why didn’t you make us all dogs?
+ - I believe in the Biblical documents supporting Jesus. But I have no illusions about them. I think they contain many flaws, scribal errors, and so forth and they are only partial or fragmentary.
+ - I had wanted to say that my song was far too painful to sing.
+ - Sweet to think on it, that when we are last weary of all this world there is the rising sun.
+ - Nothing in all the world is so nonsensical and contradictory, save mortals, that is, who live in the grip of the superstitions of the past.
+ - Get thee behind me, tragedy.
+ - His blood coursed through my veins sweeter than life itself. And as it did, Lestats words made sense to me. I knew peace only when I killed and when I heard his heart in that terrible rhythm, I knew again what peace could be.
+ - Then, are you master of us all? You didn’t teach her that. Was she supposed to imbibe it from my quiet subservience?
+ - Re-telling the Christian story is the essence of my vocation. That has been going on since the Evangelists in one form or another.
+ - I thought The Shining was just absolutely wonderful. Stephen King reaches all kinds of people. In the beginning he was just dismissed out of hand, which was terrible.
+ - Stephen King in many respects is a wonderful writer. He has made a contribution. People in the future will be able to pick up Stephen King’s books and learn a lot about who we were by reading those books.
+ - I can’t get very far away from Christianity, I can’t get very far away from the angels and the saints. I work them in always, in some way.
+ - It is very disturbing to see people use Christianity and the Bible to support a certain political agenda, especially when one cannot connect that agenda with the authentic teachings of Christ.
+ - The spirit who inhabits her animates us all. Destroy the host, you destroy the power. The young die first; the old wither slowly; the eldest perhaps would go last. But she is the Queen of the Damned, and the Damned can’t live without her.
+ - Wasn’t it his right to listen to opera, read poetry and adventure novels, go to Europe every couple of months for some reason or another, and drive his Porsche over the speed limit until he found out who he was?
+ - I’m going to keep on dealing with the supernatural in a lot of ways.
+ - I grabbed her ankle and kissed it, and when I looked up I saw her chin and her eyelashes as she threw back her head and laughed.
+ - I no longer represent any organized religion. I’m not Catholic. I’m not Christian. I’m saying this because I have to be an outsider for Christ.
+ - The truth is, laughter always sounds more perfect than weeping. Laughter flows in a violent riff and is effortlessly melodic. Weeping is often fought, choked, half strangled, or surrendered to with humiliation.
+ - The thing should have plot and character, beginning, middle and end. Arouse pity and then have a catharsis. Those were the best principles I was ever taught.
+ - There are so many books I mean to read, and things I mean to see.
+ - It seems an insult to the night to speak of purpose and intent, when this common moment is so brimming full of blessed design tranquility. All things follow their course.
+ - When I write something, every word of it is meant. I can’t say it enough.
+ - I do not read the ancient languages, but I am beginning to study Greek.
+ - I think all of us ordinary mortals tend to mythologize people as good-looking as you.
+ - Cities have distinct personalities. It’s a matter of knowing it.
+ - When we love and want nothing but good for that person, it’s one of the greatest gifts we possess.
+ - I promised that from now on I would write only for the Lord.
+ - I allowed myself to forget how totally I had fallen in love with Lestat’s iridescent eyes, that I’d sold my soul for a many-colored and luminescent thing, thinking that a highly reflective surface conveyed the power to walk on water.
+ - There may be writing groups where people meet but it’s occasional. You really do it all at your own computer or your own typewriter by yourself.
+ - I will write things, he was thinking. I will write something meaningful and wonderful someday. I can do that. And I’ll dedicate it to you because you’re the first person who ever made me think I could.
+ - Everything we do in life, we do with certain expectations.
+ - What I did was take the Jesus of the Gospels, the Son of God, the Son of the Virgin Mary, and sought to make Him utterly believable, a vital breathing character.
+ - I wasn’t sent here to find angels! I wasn’t sent here to dream of them. I wasn’t sent here to hear them sing! I was sent here to be alive. To breathe and sweat and thirst and sometimes cry.
+ - I’m fascinated by almost any mythology that I can get my hands on.
+ - I like mainly to be invisible, to sort of drift around unseen in the world.
+ - You think I live in the past. You don’t understand that I actually change with every era, I always have as best I can.
+ - Who knows what the hell a government is or what the hell a government does.
+ - Obsession led me to write. It’s been that way with every book I’ve ever written. I become completely consumed by a theme, by characters, by a desire to meet a challenge.
+ - I was obsessed with religious questions, the basics: Why are we here? Why is the world so beautiful?
+ - Thank God he killed the guy. Oh, now, wait a minute. What kind of a prayer was that!
+
+292 quotes

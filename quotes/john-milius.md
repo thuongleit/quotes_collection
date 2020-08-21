@@ -1,0 +1,29 @@
+ - Everybody’s a filmmaker today.
+ - I may not be the strongest guy or the most well armed, but you can put me in a room with a pencil and a piece of paper and I can kill anybody.
+ - The filmmakers always have a great level of control.
+ - Writing requires a great deal of skill, just like painting does. People don’t want to learn those skills.
+ - Most artists think they’re frauds anyway.
+ - I find that screenwriting is at best kind of a hackwork in some ways.
+ - Charging a man with murder in this place was like handing out speeding tickets at the Indy 500.
+ - Films are always pretentious. There’s nothing more pretentious than a filmmaker.
+ - The people that really pass judgment on you really have nothing to do with what you do, usually.
+ - I became a loner. I became a mountain man. A lot of those things are very good qualities and they help you do your work, help you be singular and keep the artistic integrity of your work intact, but they don’t make it very easy to live your life.
+ - I’m the barbarian of Hollywood.
+ - I’ve always had trouble with authority.
+ - There is a certain kind of respect for authenticity today that there wasn’t back in the days when they did ‘Cleopatra,’ where everything looked like a giant motel. People want to have it be authentic in the look, and authentic in the way people behave.
+ - I hardly said a word to my wife until I said ‘yes’ to divorce.
+ - A lot of people thought of me as a threat to Western civilization.
+ - Also, they don’t understand – writing is language. The use of language. The language to create image, the language to create drama. It requires a skill of learning how to use language.
+ - I’ve always been able to survive by writing, though.
+ - You know, I find it very strange when movies that I made that were just excoriated – I mean that I was just vilified for – are now looked at as classics.
+ - I felt that the Star Wars series became very pretentious as time went on. Just heavy and leaden.
+ - Egotism is not a good quality. It’s not something to be admired or even tolerated. It wouldn’t be tolerated in a field commander and it shouldn’t be tolerated in a movie director.
+ - To be a good executive you have to be strong, and you have to have a simple attribute that people have forgotten about – courage.
+ - A lot of directors don’t know what they want to do. Every director I’ve seen that was a good director that I’ve admired knew exactly what he wanted to do. They didn’t sit there and think about it.
+ - No, you’re either born a writer, a storyteller, or you’re not.
+ - I also thought of myself as the Sonny Barger of the film industry.
+ - Matter of fact, the style that people use today, I invented in a way.
+ - I mean, the old film critics just excoriated me.
+ - I suppose when I started out I would have liked to have been the darling of critics or something, but everybody wants to be loved and admired.
+
+27 quotes

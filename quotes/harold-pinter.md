@@ -1,0 +1,66 @@
+ - One way of looking at speech is to say that it is a constant stratagem to cover nakedness.
+ - It’s so easy for propaganda to work, and dissent to be mocked.
+ - Good writing excites me, and makes life worth living.
+ - The past is what you remember, imagine you remember, convince yourself you remember, or pretend you remember.
+ - I know the place. It is true. Everything we do Corrects the space Between death and me And you.
+ - When the storm is over and night falls and the moon is out in all its glory and all you’re left with is the rhythm of the sea, of the waves, you know what God intended for the human race, you know what paradise is.
+ - I would never use obscene language in the office. Certainly not. I kept my obscene language for the home, where it belongs.
+ - One’s life has many compartments.
+ - Apart from the known and the unknown, what else is there?
+ - How can the unknown merit reverence?
+ - I’ve had my fill of these city guttersnipes – all that scavenging scum! They’re the sort of people, who, if the gates of heaven opened to them, all they’d feel would be a draught.
+ - I don’t give a damn what other people think. It’s entirely their own business. I’m not writing for other people.
+ - It’s very difficult to feel contempt for others when you see yourself in the mirror.
+ - Referees are the law. They have a whistle. They blow it. And that whistle is the articulation of God’s justice.
+ - The weasel under the cocktail cabinet.
+ - No matter how you look at it, all the emotions connected with love are not really immortal; like all other passions in life, they are bound to fade at some point. The trick is to convert love into some lasting friendship that overcomes the fading passion.
+ - The more acute the experience, the less articulate its expression.
+ - I saw Len Hutton in his prime, Another time, another time.
+ - Be careful how you talk about God. He’s the only God we have. If you let him go he won’t come back. He won’t even look back over his shoulder. And then what will you do?
+ - When you lead a life of scholarship you can’t be bothered with the humorous realities, you know, tits, that kind of thing.
+ - My second play, The Birthday Party, I wrote in 1958 – or 1957. It was totally destroyed by the critics of the day, who called it an absolute load of rubbish.
+ - Rationality went down the drain donkey’s years ago and hasn’t been seen since.
+ - Clinton’s hands remain incredibly clean, don’t they, and Tony Blair’s smile remains as wide as ever. I view these guises with profound contempt.
+ - Sometimes you feel you have the truth of a moment in your hand, then it slips through your fingers and is lost.
+ - I sometimes wish desperately that I could write like someone else, be someone else. No one particularly. Just if I could put the pen down on paper and suddenly come out in a totally different way.
+ - One is and is not in the centre of the maelstrom of it all.
+ - Iraq is just a symbol of the attitude of western democracies to the rest of the world.
+ - I no longer feel banished from myself.
+ - I don’t write with any audience in mind. I just write. I take a chance on the audience. That’s what I did originally, and I think it’s worked – in the sense that I find there is an audience.
+ - There are no hard distinctions between what is real and what is unreal, nor between what is true and what is false. A thing is not necessarily either true or false; it can be both true and false.
+ - I think that NATO is itself a war criminal.
+ - The Companion of Honour I regarded as an award from the country for 50 years of work – which I thought was okay.
+ - Nothing is more sterile or lamentable than the man content to live within himself.
+ - The Room I wrote in 1957, and I was really gratified to find that it stood up. I didn’t have to change a word.
+ - All that happens is that the destruction of human beings – unless they’re Americans – is called collateral damage.
+ - I know little of women. But I’ve heard dread tales.
+ - I also found being called Sir rather silly.
+ - I was brought up in the War. I was an adolescent in the Second World War. And I did witness in London a great deal of the Blitz.
+ - Don’t forget the earth’s about five thousand million years old, at least. Who can afford to live in the past?
+ - There are some things one remembers even though they may never have happened.
+ - I ought not to speak about the dead because the dead are all over the place.
+ - Occasionally it does hit me, the words on a page. And I still love doing that, as I have for the last 60 years.
+ - I mean, if a thing works, if a thing is right, respect that, acknowledge it, respect it and hold to it.
+ - A short piece of work means as much to me as a long piece of work.
+ - I don’t intend to simply go away and write my plays and be a good boy. I intend to remain an independent and political intelligence in my own right.
+ - The invasion of Iraq was a bandit act, an act of blatant state terrorism, demonstrating absolute contempt for the concept of international law.
+ - I believe an international criminal court is very much to be desired.
+ - Most of the press is in league with government, or with the status quo.
+ - If Milosevic is to be tried, he has to be tried by a proper court, an impartial, properly constituted court which has international respect.
+ - While The United States is the most powerful nation the world has ever seen, it is also the most detested nation that the world has ever known.
+ - I thought the plays would speak for themselves. But they didn’t.
+ - There are some good rules and there are some lousy rules.
+ - I believe the US is a truly monstrous force in the world, now off the leash for obvious reasons.
+ - There’s a tradition in British intellectual life of mocking any non-political force that gets involved in politics, especially within the sphere of the arts and the theatre.
+ - Beckett had an unerring light on things, which I much appreciated.
+ - I never think of myself as wise. I think of myself as possessing a critical intelligence which I intend to allow to operate.
+ - I don’t think there’s been any writer like Samuel Beckett. He’s unique. He was a most charming man and I used to send him my plays.
+ - Isn’t it true that every aristocrat wants to die?
+ - This particular nurse said, Cancer cells are those which have forgotten how to die. I was so struck by this statement.
+ - I found the offer of a knighthood something that I couldn’t possibly accept. I found it to be somehow squalid, a knighthood. There’s a relationship to government about knights.
+ - I’m not committed as a writer, in the usual sense of the term, either religiously or politically. And I’m not conscious of any particular social function. I write because I want to write. I don’t see any placards on myself, and I don’t carry any banners.
+ - There is a movement to get an international criminal court in the world, voted for by hundreds of states-but with the noticeable absence of the United States of America.
+ - In Cuba I have always understood harsh treatment of dissenting voices as stemming from a “siege situation” imposed upon it from outside. And I believe that to a certain extent that is true.
+ - I think it is the responsibility of a citizen of any country to say what he thinks.
+
+64 quotes

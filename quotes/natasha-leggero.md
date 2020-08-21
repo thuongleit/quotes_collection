@@ -1,0 +1,45 @@
+ - Having a baby is like a DUI from the universe.
+ - Why does every flight attendant seem like they are going through a divorce?
+ - I think how tan a person is, is directly proportionate to how dumb they are.
+ - Pop culture, it’s crazy. There’s all this violence in video games. In ‘Call of Duty,’ people are literally just blowing other people up. Hey, let’s protect your country from your couch while eating your sandwich.
+ - I love hard punch lines, and I like anything that has a strong point of view.
+ - All these rappers on stage and Martha Stewart has done the most jail time.
+ - I’m not ‘one of the guys.’ I don’t want to pretend to be one on stage. I’m not going to dress like a guy or carry myself like one.
+ - Don’t be intimidated by my outfit, it’s Forever 21.
+ - Have you ever noticed that your ugliest friend is the most afraid of getting ruffied? It’s like relax. YOU can take the coaster off your drink. There are at least three of us in line ahead of you.
+ - There are different types of art, and you just have to follow where things take you. It helps me with my desire to perform live. That’s something that a lot of actors and actresses don’t get to experience on a regular basis.
+ - Neil Hamburger writes such cutting jokes.
+ - Male comics are always coming up to me and they’re like ‘Hey Natasha. Don’t you think you’re a little attractive to be a comedian?’ and I’m like ‘Don’t you think you’re a little ugly to be talking to me?’
+ - Lovin this Ghost Ghirls! It was great to get to play a madame not just a boring prostitute.
+ - I’m not saying Martha Stewart is old, but she needs a new Walker more than the ‘Fast and Furious’ franchise.
+ - Love is telling someone their hair extensions are showing.
+ - James Franco, acting, teaching, directing, writing, producing, photography, soundtracks, editing – is there anything you can do?
+ - Ke$ha IS the walk of shame.
+ - I grew up as a child actress, not a child star. I was an actress – big difference.
+ - TLC should stand for Toddlers, Lunatics, and Cake.
+ - I was raised Catholic in Rockford, Illinois. But I’m not a practicing Catholic anymore. Oh God, no.
+ - I just went home to Illinois, and I asked my family, ‘Are you guys planning on talking in those accents the whole time I’m home?’ And my mother said, ‘You used to talk like that, too, Tasha.’ And I said, ‘Yes, but you see, I’ve reinvented myself. Do you have any idea who I think I am?’
+ - How are you gonna make an ‘idol’ from the type of person you’re trying to avoid in real life?
+ - The more developed your abs, the less time you’ve spent reading.
+ - The only thing that makes me cry at weddings is the DJ’s playlist.
+ - Often when you are starting out in comedy, you will find that people will laugh at the things you didn’t think were funny. It’s important to pay attention also to what people are laughing at when you are just talking in regular conversation. Often that is when you are truly being yourself.
+ - The waiters in France could all be senators in the US.
+ - I do think people are definitely sick of the Kardashians.
+ - Guys should not be allowed to use the Internet all day long. So sad.
+ - Do they give Pulitzers for tweets yet?
+ - In general, comedians are attracted to vice.
+ - The idea that you’re supposed to do everything on your own is absurd. You can’t.
+ - Doing TV is great, but TV is for starring on, not for watching.
+ - For comedians, we’re all kind of tweeting our thoughts instead of spending time developing them. You can gauge how good a joke might be by how many times it gets retweeted, but it takes discipline to go back through the tweets and then develop jokes from them.
+ - If Jesus had known that his image would end up on Justin Bieber’s calf, he would’ve never started Christianity.
+ - Getting worried there might not be enough talent in America to acommodate all these singing shows.
+ - I don’t see the point of watching men exercise.
+ - It’s a human instinct to be known.
+ - The chasm between rich and poor is becoming larger, and I think it’s interesting terrain to talk about and expose.
+ - My friends who have babies can’t do anything. You can’t go out at night. Having a baby is like a DUI from the universe.
+ - Comedy is just one of the many professions that women are taking over.
+ - I wish his music came out of the closet and admit that it sucks.
+ - Justin’s fan are called Beliebers because it’s politically incorrect to use the word retards.
+ - College seems like a pretty expensive way to become an alcoholic.
+
+43 quotes

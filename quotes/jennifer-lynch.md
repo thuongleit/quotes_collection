@@ -1,0 +1,21 @@
+ - The planet is always half light and half dark, and so are we.
+ - Try to be as good a listener as you are a speaker. Don’t just put the emphasis on saying things. Listen.
+ - I have gone insane. I won’t be talking with you for a while.
+ - Pressure is an emotional paralysis. It’s hard enough to do the dishes when you’re feeling pressured, let alone make a movie.
+ - Trust yourself so that the mistakes you make are the ones you’ve made and not something you’ve made because you were afraid to do what you wanted to do. Own your mistakes, then you can own your successes.
+ - I love how a story can help someone discuss something they otherwise would not.
+ - Some people are just not going to like me and they’re not going to like my work. But that doesn’t mean I’m a bad person.
+ - I really believe that if you’re going to bring a child into the world, it’s your job to parent that world. Especially if it’s just you; you don’t pawn her off on somebody.
+ - My life is perfectly happy and giggly and I’m perfectly grateful every day; if there are problems to have, the ones I have are the ones to have; I’m lucky.
+ - The first time I saw ‘Sunset Boulevard’ I was probably eight or nine years old, and it really struck me how it’s so simply put and elegant, yet there’s so much going on.
+ - When you love something, it never goes away.
+ - For me, I was given a great gift by my father and my mother in that I was never told any idea was bad. I was told I could explore any thought as long as I wasn’t hurting someone else.
+ - I am more comfortable on set than I am in my own home.
+ - The closer you are to people, the more you realise what has happened to them.
+ - I don’t think if you asked any of my childhood friends they would say that I had a weird childhood; they might say there weren’t a lot of regular rules, the conversations in the house were always very open, dreams were a great thing to talk about, everybody was making something all the time.
+ - I may not be wealthy; I’m living from pay check to pay check, but I get to make movies, which is what I love to do.
+ - I want to investigate what scares me and worries me.
+ - I’m a huge fan of Akira Kurosawa, a big Hitchcock fan.
+ - For me, one of the most important things I look for in an actor is whether we can converse. Do we have a similar ability to discuss a character?
+
+19 quotes

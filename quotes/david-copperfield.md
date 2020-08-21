@@ -1,0 +1,63 @@
+ - When people say you can’t do it – that it’s impossible – never lose hope. Just because they couldn’t doesn’t mean you can’t.
+ - The most important thing in life is to stop saying ‘I wish’ and start saying ‘I will.’ Consider nothing impossible, then treat possiblities as probabilities.
+ - I used to fly around the stage without strings or camera tricks. That took seven years to create.
+ - My dreams are my dress rehearsals for my future.
+ - The most important thing is presentation.
+ - Ride on! Rough-shod if need be, smooth-shod if that will do, but ride on! Ride on over all obstacles, and win the race!
+ - I am fortunate to have the resources to have many methods to do each of my illusions.
+ - Before there can be wonders, there must be wonder.
+ - The real secret of magic lies in the performance.
+ - I discovered Musha Cay and the islands around it in the Exumas.
+ - I learned that there were two ways I could live my life: following my dreams or doing something else. Dreams aren’t a matter of chance, but a matter of choice. When I dream, I believe I am rehearsing my future.
+ - Let sleeping dogs lie – who wants to rouse ’em?
+ - There is a safe spot within every tornado. My job is to find it.
+ - Physical rehab is often very, very hard work.
+ - I try to help people realize their dreams by using magic to tell stories that educate, move, and inspire.
+ - In magic, it takes two or three years for me to create a 5-minute illusion for me to get it to the level I want.
+ - I was an only child. We were so poor, my parents and I had the same room.
+ - It is the unspoken ethic of all magicians to not reveal the secrets.
+ - You can feel better about yourself in a very short period of time depending on the kind of magic that you are doing.
+ - Never stop listening to your audience.
+ - My job is to make people dream. Of course, there’s a lot of technical stuff behind the scenes and a lot of hard work behind it, but I get to watch people see the result of that hard work and feel that wonder and feel that discovery, all the time.
+ - When you’re a guy and meet a girl the first time, you do whatever it takes.
+ - Dreams are illusions, and we can’t let go of them because we would be dead.
+ - I brush my teeth with a Sonicare toothbrush before every show.
+ - I will now make a scorpion appear in Osama bin Laden’s pants.
+ - All the lawyers and the business stuff is work, but actually creating stuff isn’t work. It’s good effort. It’s hard work. But, it’s not work. It doesn’t feel like work because the result is very rewarding.
+ - The key is for the audience never to know, so I have a plan B for every illusion.
+ - I find revealing the secrets of magic quite reprehensible.
+ - Marriage is like a formality for me.
+ - My uncle’s house burned down when I was 6 years old. We got out safely. But ever since, I’ve had a nightmare of dying in a fire.
+ - We all possess the need to dream.
+ - I act like I’m 14, if you haven’t figured that out yet.
+ - I discovered something amazing, which has caused a lot of controversy – the fountain of youth. I have to keep it a secret!
+ - Magic and new technology have always walked hand in hand – even back in the days of Robert Houdin.
+ - Magicians lose the opportunity to experience a sense of wonder.
+ - Magic came very easy for me when I was a kid. When I was 8 years old I started doing it, and by the time I was 12, I was already published in magic books.
+ - I’m really trying hard not to do anything that has been done before. So knowing everything I can about the legacy of magic challenges my team and I to invent new illusions.
+ - When I was a kid, people wanted to be an astronaut. Today, kids want to be famous, and that’s totally the wrong approach. You have to have authenticity in what you’re doing. You have to really care about the core message of what you’re saying, and then everything else will fall into place.
+ - Magicians are the people who began to use film as an illusion on stage.
+ - You have to learn certain skills to present magic.
+ - What I’ve tried to do in my stage magic is to take a trick and give it an emotional hook.
+ - I have always been interested in pushing magic forward.
+ - Normally, I do magic on the stage. But I can make magic credible and resonate through a TV screen.
+ - The audience likes to be taken on new journeys.
+ - Magic is the only profession where it’s easy to lie about your talent. If you do a trick and you can learn it very quickly, you can fool somebody into thinking you’re a great magician.
+ - I’m just waiting for people to start asking me to make the rain disappear.
+ - But Vegas is really my first home.
+ - Magic is used in espionage, all the time, for clandestine things. I’ve got a whole library from a gentleman who was hired by the CIA to create magic technology for the use of anti-terrorism.
+ - In movies, storytelling and every single art form, we’re creating wonder. You’re starting with a blank page and creating something that doesn’t exist.
+ - Demonic figures and occult themes have disappeared from modern magic.
+ - The first trick I bought at Macy’s was a little wooden board where a quarter would appear and disappear.
+ - For me to grow, I have to know about the foundation that came before.
+ - The audiences are what keep me enthusiastic.
+ - It’s really hard to think of one kind of magic as a favorite. I’ve been really fortunate in that I’ve been able to perform such a diverse range of things.
+ - I need a form of escape even when I’m working really hard.
+ - No, I think marriage is a great thing.
+ - To make magic credible on screen is always very difficult. The story is the most important thing. That is what should win. If sacrifices or compromises are made, it’s usually for story. Story in magic is very, very important to me. That’s what I’ve really championed through my career.
+ - It wasn’t just about doing tricks. It’s about taking an audience to another place, a special place, so they can really suspend their disbelief. Its about amazing the audience as well as moving them.
+ - Magic has been something I’ve been really good at since I was really young. The ability has always come easy to me, I’m not sure why.
+ - I really did sneak into Broadway shows, starting when I was 12.
+ - But when I go off stage I don’t have a deck of cards with me all the time.
+
+61 quotes

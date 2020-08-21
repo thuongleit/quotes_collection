@@ -1,0 +1,25 @@
+ - If a tree dies, plant another in its place.
+ - In natural science the principles of truth ought to be confirmed by observation.
+ - Blessed be the Lord for the beauty of summer and spring, for the air, the water, the verdure, and the song of birds.
+ - It is the genus that gives the characters, and not the characters that make the genus.
+ - Nature’s economy shall be the base for our own, for it is immutable, but ours is secondary. An economist without knowledge of nature is therefore like a physicist without knowledge of mathematics.
+ - If you do not know the names of things, the knowledge of them is lost, too.
+ - The plant kingdom covers the entire earth, offering our senses great pleasure and the delights of summer.
+ - No one has been a greater botanist or zoologist. No one has written more books, more correctly, more methodically, from personal experience. No one has more completely changed a whole science and started a new epoch.
+ - As one sits here in summertime and listens to the cuckoo and all the other bird songs, the crackling and buzzing of insects, as one gazes at the shining colors of flowers, doth one become dumbstruck before the Kingdom of the Creator.
+ - When all the thoughts are concerning one thing and the person loses interest in other things, the melancholy begins.
+ - A herbarium is better than any illustration; every botanist should make one.
+ - There is no generation from an egg in the Mineral Kingdom. Hence no vascular circulation of the humours as in the remaining Natural Kingdoms.
+ - Nature does not proceed by leaps.
+ - Stones grow, plants grow, and live, animals grow live and feel.
+ - A practical botanist will distinguish at the first glance the plant of the different quarters of the globe and yet will be at a loss to tell by what marks he detects them.
+ - Botany is based on fixed genera.
+ - It is not God, but people themselves who shorten their lives by not keeping physically fit.
+ - To live by medicine is to live horribly.
+ - A professor can never better distinguish himself in his work than by encouraging a clever pupil, for the true discovers are among them, as comets amongst the stars.
+ - There are some viviparous flies, which bring forth 2,000 young. These in a little time would fill the air, and like clouds intercept the rays of the sun, unless they were devoured by birds, spiders, and many other animals.
+ - We admit as many genera as there are different groups of natural species of which the fructification has the same structure.
+ - Natural bodies are divided into three kingdomes of nature: viz. the mineral, vegetable, and animal kingdoms. Minerals grow, Plants grow and live, Animals grow, live, and have feeling.
+ - There are as many species as the infinite being created diverse forms in the beginning, which, following the laws of generation, produced many others, but always similar to them: therefore there are as many species as we have different structures before us today.
+
+23 quotes

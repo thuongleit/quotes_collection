@@ -1,0 +1,23 @@
+ - Artists have no choice but to express their lives. They have only, and that not always, a choice of process. This process does not change the essential content of their work in art, which can only be their life.
+ - January is my favorite month, when the light is plainest, least colored. And I like the feeling of beginnings.
+ - I have no home but me.
+ - Generosity is often the stalking horse of control.
+ - Humility is the daughter of truth.
+ - The finest teaching touches in a student a spring neither teacher nor student could possibly have preconceived.
+ - I have slowly come to realize that a family is composed of people who are teaching one another.
+ - It is ultimately character that underwrites art.
+ - A mystery confounds the problem of industry in art. In the last analysis, to work is simply not enough. But we have to act as if it were, leaving reward aside.
+ - The shape of my work’s development becomes a little clearer every time I am forced to articulate it.
+ - I worked in between carpools and buying food and cooking and whatever else I had to do. I lived an outside life, but really I was living an inside life.
+ - I have been flooded with color on the inside, drab on the outside.
+ - There’s a small still center into which conception can arrive. And when it arrives, you make it welcome with your experience.
+ - The art of being officially old seems to lie in cooperative submission.
+ - I never decided at all to be an artist; being an artist seems to have happened to me.
+ - The most demanding part of living a lifetime as an artist is the strict discipline of forcing oneself to work steadfastly along the nerve of one’s own intimate sensitivity.
+ - I come to the point of using steel, and simply cannot. It’s like the marriage proposal of a perfectly eligible man who just isn’t loveable. It is wood I love.
+ - I had forgotten what sleep is like – a kingdom all its own.
+ - Art comes into the highest part of the mind, with which we can know the presence of God.
+ - No one questions the fact that verbal language has to be learned, but the commonplaceness of visual experience betrays art; people tend to assume that, because they can see, they can see art.
+ - The end of parenthood is implicit in its beginning: separation.
+
+21 quotes

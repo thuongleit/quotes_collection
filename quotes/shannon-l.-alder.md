@@ -1,0 +1,33 @@
+ - Carve your name on hearts, not tombstones. A legacy is etched into the minds of others and the stories they share about you.
+ - There comes a time in your life when you have to choose to turn the page, write another book or simply close it.
+ - You will face your greatest opposition when you are closest to your biggest miracle.
+ - The most important thing in communication is hearing what isn’t being said. The art of reading between the lines is a life long quest of the wise.
+ - You are not what others think you are. You are what God knows you are.
+ - Often those that criticise others reveal what he himself lacks.
+ - Anger, resentment and jealousy doesn’t change the heart of others – it only changes yours.
+ - When you give yourself permission to communicate what matters to you in every situation you will have peace despite rejection or disapproval. Putting a voice to your soul helps you to let go of the negative energy of fear and regret.
+ - One of the greatest regrets in life is being what others would want you to be, rather than being yourself.
+ - Every woman that finally figured out her worth, has picked up her suitcases of pride and boarded a flight to freedom, which landed in the valley of change.
+ - If you spend your time hoping someone will suffer the consequences for what they did to your heart, then you’re allowing them to hurt you a second time in your mind.
+ - Insecure people only eclipse your sun because they’re jealous of your daylight and tired of their dark, starless nights.
+ - The most confused you will ever get is when you try to convince your heart and spirit of something your mind knows is a lie.
+ - Never rearrange your life in order to meet Mr. Darcy half way. If he couldn’t see your worth at the moment you met then he won’t two years later. May the halls of Pemberly be filled with his regrets and your life filled with thankfulness because of this revelation.
+ - Never love someone beneath your level of evolution. If you want a monkey, you can visit one at your local zoo.
+ - Staying silent is like a slow growing cancer to the soul and a trait of a true coward. There is nothing intelligent about not standing up for yourself. You may not win every battle. However, everyone will at least know what you stood for – YOU.
+ - A true gentleman is one that apologizes anyways, even though he has not offended a lady intentionally. He is in a class all of his own because he knows the value of a woman’s heart.
+ - Love doesn’t make the world go ’round; love is what makes the ride worthwhile.
+ - If he can’t handle you at your worst then he does not deserve you at your best. Real love means seeing beyond the words spoken out of pain, and instead seeing a person’s soul.
+ - Often people that criticise your life are usually the same people that don’t know the price you paid to get where you are today. True friends see the full picture of your soul.
+ - When you are joyful, when you say yes to life and have fun and project positivity all around you, you become a sun in the center of every constellation, and people want to be near you.
+ - If you’re going to love someone or something then don’t be a slow leaking faucet – -be a hurricane.
+ - Defensiveness is usually someone silently screaming that they need you to value and respect them in disguise. When you look for deeper meanings behind someone’s pain you can then begin to heal not only yourself, but others.
+ - Never fall in love with someone that won’t fight for you because when the real battles begin they won’t pull your heart to safety, but they will their own.
+ - Sometimes your light shines so bright that it blinds people from seeing who you really are.
+ - They say time heals and makes us forget, but what two people shared can never be erased.
+ - You know your testimony is strong when your roots are so deep that other people’s storms will never knock you over.
+ - Betrayal is an ironic thing. He or she betrays you then you betray yourself. You think you’re showing strength with your anger, but in reality you’re showing how much you still care.
+ - To love someone with all of your heart requires reaching them where they are with the only words they can understand.
+ - If you don’t find the right set of eyes to see through your bull, you will always be surrounded by friends that will tell you white lies because they like your company and don’t want to ruin the evening.
+ - When relationships fail it is usually because someone chooses not to show up for the battle.
+
+31 quotes

@@ -1,0 +1,83 @@
+ - Liberty finds no refuge in a jurisprudence of doubt.
+ - This chance will stand before you only once.
+ - Do the best you can in every task, no matter how unimportant it may seem at the time. No one learns more about a problem than the person at the bottom.
+ - Be aware that even before you have reached your ultimate professional destination, if you always strive for excellence, you can and should have a substantial impact on the world in which you live.
+ - We don’t accomplish anything in this world alone.
+ - Unfortunately civility is hard to codify or legislate, but you know it when you see it. It’s possible to disagree without being disagreeable.
+ - In order to cultivate a set of leaders with legitimacy in the eyes of the citizenry, it is necessary that the path to leadership be visibly open to talented and qualified individuals of every race and ethnicity.
+ - Young women today often have very little appreciation for the real battles that took place to get women where they are today in this country. I don’t know how much history young women today know about those battles.
+ - The power I exert on the court depends on the power of the power of my arguments, not my gender.
+ - I think I learned to appreciate and treasure each day, because you don’t know how many you’re going to be given.
+ - As a citizen, you need to know how to be a part of it, how to express yourself – and not just by voting.
+ - Parents should continue to become more involved with their communities, and more involved in their children’s education.
+ - Commitment to the rule of law provides a basic assurance that people can know what to expect whether what they do is popular or unpopular at the time.
+ - Slaying the dragon of delay is no sport for the short-winded.
+ - How dare you make my life a felony.
+ - The family unit plays a critical role in our society and in the training of the generation to come.
+ - I finally gave up my little law practice and stayed home for about three years. You have to do what you can to keep the family going. But I wanted to get back to work. So I got another babysitter and went to work as an Assistant Attorney General.
+ - The framers of the Constitution were so clear in the federalist papers and elsewhere that they felt an independent judiciary was critical to the success of the nation.
+ - Having family responsibilities and concerns just has to make you a more understanding person.
+ - So how as a nation can we sit around and eat Mexican food, and drink beer and make friends? That’s the question. If we can do that on a broader scale, I think we’ll come out of it all right.
+ - The freedom to criticize judges and other public officials is necessary to a vibrant democracy.
+ - I wanted to be a cattle rancher when I was young, because it was what I knew and I loved it.
+ - The prima facie evidence provision in this case ignores all of the contextual factors that are necessary to decide whether a particular cross burning is intended to intimidate. The First Amendment does not permit such a shortcut.
+ - In my work a good library is essential. It enables me to learn the background and previous discussions of the various issues I am called upon to decide. It provides the stability and continuity for the rule of law.
+ - I sort of thought the framers of the Constitution were talking about the rights of individuals, not corporate entities.
+ - If parents instill a sense of civic-mindedness – and there is no better way to do that than by example – their children will probably follow.
+ - Half the states have stopped making civics and government a requirement for high school. Half.
+ - Statutes authorizing unreasonable searches were the core concern of the framers of the 4th Amendment.
+ - The proper role of the judiciary is one of interpreting and applying the law, not making it.
+ - We pay a price when we deprive children of the exposure to the values, principles, and education they need to make them good citizens.
+ - Each of us brings to our job, whatever it is, our lifetime of experience and our values.
+ - I loved my husband very much, and it was heartbreaking to have him develop Alzheimer’s disease, and to stand by and watch him decline in his ability to take care of himself.
+ - I don’t know how a judge can concentrate on being fair and impartial when he or she is faced with possible jail time for making a decision that others deem incorrect.
+ - The government now has license to transfer property from those with fewer resources to those with more. The Founders cannot have intended this perverse result.
+ - If I stumbled badly in doing the job, I think it would have made life more difficult for women, and that was a great concern of mine and still is.
+ - Society as a whole benefits immeasurably from a climate in which all persons, regardless of race or gender, may have the opportunity to earn respect, responsibility, advancement and remuneration based on ability.
+ - The destiny of the woman must be shaped to a large extent on her own conception of her spiritual imperative and her place in society.
+ - When I went to law school, which after all was back in the dark ages, we never looked beyond our borders for precedents. As a state court judge, it never would have occurred to me to do so, and when I got to the Supreme Court, it was very much the same. We just didn’t do it.
+ - Cyberspace undeniably reflects some form of geography.
+ - I need to retire from retirement.
+ - A moment of silence is not inherently religious.
+ - I don’t know that there are any short cuts to doing a good job.
+ - My sense is that jurists from other nations around the world understand that our court occupies a very special place in the American system, and that the court is rather well regarded in comparison, perhaps, to their own.
+ - The Establishment Clause prohibits government from making adherence to a religion relevant in any way to a person’s standing in the political community.
+ - It’s hard to have little children and a job and career at the same time. There is no time left for you as a woman.
+ - You have citizens who don’t understand how government works and they’re kind of soured on it. All they do is criticize. They have no idea that they can make things happen.
+ - We hold that the reckless disregard for human life implicit in knowingly engaging in criminal activity known to carry a grave risk of death represents a highly culpable mental state that may be taken into account in making a capital sentencing judgment not inevitable, lethal result.
+ - And I went off to Stanford, I was pretty young and pretty naive. And I had a professor I really loved, who was himself a lawyer.
+ - I do not believe it is the function of the judiciary to step in and change the law because the times have changed. I do well understand the difference between legislating and judging. As a judge, it is not my function to develop public policy.
+ - If statistics are any indication, the system may well be allowing some innocent defendants to be executed.
+ - What was a problem was the excessive amount of media attention to the appointment of the first woman and everything she did. Everywhere that Sandra went, the press was sure to go. And that got tiresome; it was stressful.
+ - My hope is that 10 years from now, after I’ve been across the street at work for a while, they’ll all be glad they gave me that wonderful vote.
+ - For students, understanding the separate and unique functions of each branch of government can help them understand how different kinds of government officials can help solve different kinds of problems.
+ - Despite the encouraging and wonderful gains and the changes for women which have occurred in my lifetime, there is still room to advance and to promote correction of the remaining deficiencies and imbalances.
+ - It is difficult to discern a serious threat to religious liberty from a room of silent, thoughtful schoolchildren.
+ - If a State refused to let religious groups use facilities open to others, then it would demonstrate not neutrality but hostility toward religion.
+ - My concern was whether I could do the job of a justice well enough to convince the nation that my appointment was the right move.
+ - It matters enormously to a successful democratic society like ours that we have three branches of government, each with some independence and some control over the other two. Thats set out in the Constitution.
+ - We expect that 25 years from now, the use of racial preferences will no longer be necessary to further the interest approved today.
+ - Occasionally we have to interpret an international treaty – one, perhaps, affecting airlines and liability for injury to passengers or damage to goods. Then, of course, we have to look to the precedents of other member nations in resolving issues.
+ - The courts of this country should not be the places where resolution of disputes begins. They should be the places where the disputes end after alternative methods of resolving disputes have been considered and tried.
+ - Historically courts in this country have been insulated. We do not look beyond our borders for precedents.
+ - The more education a woman has, the wider the gap between men’s and women’s earnings for the same work.
+ - Most high courts in other nations do not have discretion, such as we enjoy, in selecting the cases that the high court reviews. Our court is virtually alone in the amount of discretion it has.
+ - I think we may be seeing the beginnings of a resurgence of civic-mindedness in this country. Hopefully the younger generations, which came out in record numbers during the last presidential election, will pass their enthusiasm on to their children.
+ - Apparently a great many people have forgotten that the framers of our Constitution went to such great effort to create an independent judicial branch that would not be subject to retaliation by either the executive branch or the legislative branch because of some decision made by those judges.
+ - Justice Ginsburg is a very competent justice, and it is a joy to have her on the court, but particularly for me it is a pleasure to have a second woman on the court.
+ - If you take a position under the Constitution that is against the majority view, you have to explain it well enough that maybe you can persuade some of that majority to agree with you.
+ - We have a complex system of government. You have to teach it to every generation.
+ - Yes, I will bring the understanding of a woman to the Court, but I doubt that alone will affect my decisions.
+ - Those who would renegotiate the boundaries between church and state must therefore answer a difficult question: why would we trade a system that has served us so well for one that has served others so poorly?
+ - There was no hostility at the court when I arrived.
+ - It is true that as you have children, there are a good many months when you don’t want to be working full-time. I agree that that’s an issue.
+ - I care very much about women and their progress. I didn’t go march in the streets, but when I was in the Arizona Legislature, one of the things that I did was to examine every single statute in the state of Arizona to pick out the ones that discriminated against women and get them changed.
+ - I’m a judge. It seemed to me that it was critical to try to take action to stem the criticism and help people understand that in the constitutional framework, it’s terribly important not to have a system of retaliation against decisions people don’t like.
+ - I think the important thing about my appointment is not that I will decide cases as a woman, but that I am a woman who will get to decide cases.
+ - The No Child Left Behind Program was an incentive to the schools to get their kids up to snuff on math and science and reading.
+ - I had become increasingly concerned in recent years about the lack of civics education in our nation’s schools. In recent years, the schools have stopped teaching it. And it’s unfortunate.
+ - The members of the court were just delighted to have a ninth member – male or female. They were all kind and welcoming.
+ - I tried to decide each case based on the law and the Constitution.
+ - It was better for me when I was joined at the court by a second woman. When I was there alone, there was too much media focus on the one woman, and the minute we got another woman, that changed.
+
+81 quotes

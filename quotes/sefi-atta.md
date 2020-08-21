@@ -1,0 +1,22 @@
+ - I’m addicted to writing.
+ - You don’t need attention to write. All you need is passion for your work and an overwhelming desire to tell a story you genuinely care about. Readers can sense your sincerity and it separates you from pretenders.
+ - People don’t fear the wind until it fells a tree. Then, they say it’s too much.
+ - I get stage fright with short stories. For me it feels like standup comedy: kill or die. I’m more confident when I begin a novel because I know I have space to fail.
+ - I don’t write non-fiction because I get bored. Some of my writing is autobiographical, but not the way readers imagine. I use my memory of settings, events and people. I weave history into my stories, but my narratives are made up.
+ - My accountancy experience could come in handy if ever I find myself in the right position. For now, I’m very happy to write.
+ - At some point, practicality requires that you reach out to people in the business. You have to take care of business if you value your work.
+ - I never wanted to be a writer; I just had stories I wanted to share so I learnt how to write and kept going. If I could sing or paint, I would.
+ - I can’t say L’Etranger influenced me to write, but for the first time I considered the possibility of telling a story that resembled my own experiences in my own voice.
+ - As a student in England, I studied French and English literature. I read L’Etranger and the rhythm of the novel felt familiar to me – very African.
+ - I’m disciplined about writing. I get up every day knowing I have to produce work. I’m less concerned about other aspects of the job, such as the prizes and promotions. Promoting my work can be awkward, unless I feel sociable enough. Prizes encourage me to work harder on my next project.
+ - I read Macbeth as a secondary student in Nigeria and it was like an African play to me. It had all the right elements – witches, kings and assassinations.
+ - I had stopped writing plays set in villages because they were not relevant to my experiences and I knew my English classmates wouldn’t appreciate them.
+ - I have to say that writing about my writing process is more daunting than writing non-fiction.
+ - I don’t have a schedule, but I can write for hours non-stop. If I’m drafting a book, I try and do a chapter a day. I dislike first drafts. Revision is a lot more fun, but it takes years.
+ - What works for me is that I read widely and stay focused on my writing. I’m no longer concerned about what happens in the literary marketplace. It is distracting and can lead to discontent.
+ - I enjoy writing plays most. I haven’t written a radio play in a while and I don’t write short stories anymore because the process of submitting them depressed me. I really enjoy revising novels, but drafting them can be a pain.
+ - For all forms, writing dialogue is almost like writing music. I pay close attention to rhythms and tones.
+ - I don’t have much of an imagination, but I have a mind bank of details, which I play with. It’s how I daydream, so writing like that is natural for me.
+ - I don’t remember being a keen reader, but apparently I was. My aunt told me that whenever I was teased for reading, I would say, “To each his own.”
+
+20 quotes

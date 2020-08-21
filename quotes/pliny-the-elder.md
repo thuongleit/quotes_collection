@@ -1,0 +1,109 @@
+ - Nulla dies sine linea – Not a day without a line.
+ - Hope is the pillar that holds up the world. Hope is the dream of a waking man.
+ - From the end spring new beginnings.
+ - Home is where the heart is.
+ - Truth comes out in wine.
+ - The depth of darkness to which you can descend and still live is an exact measure of the height to which you can aspire to reach.
+ - There is always something new out of Africa.
+ - Hope is a working-man’s dream.
+ - Sure, football is a silly game. But have you seen what else is on television?
+ - When collapse is imminent, the little rodents flee.
+ - True glory consists in doing what deserves to be written, and writing what deserves to be read.
+ - This only is certain, that there is nothing certain.
+ - No mortal man, moreover is wise at all moments.
+ - Amid the sufferings of life on earth, suicide is God’s best gift to man.
+ - The master’s eye is the best fertilizer.
+ - Nature has given man no better thing than shortness of life.
+ - An object in possession seldom retains the same charm that it had in pursuit.
+ - Suicide is a privilege of man which deity does not possess.
+ - In these matters the only certainty is that nothing is certain.
+ - Better do nothing than do ill.
+ - Human nature is fond of novelty.
+ - The best plan is to profit by the folly of others.
+ - The brain is the citadel of sense perception.
+ - Envy always implies conscious inferiority wherever it resides.
+ - Nature is to be found in her entirety nowhere more than in her smallest creatures.
+ - Such is the audacity of man, that he hath learned to counterfeit Nature, yea, and is so bold as to challenge her in her work.
+ - Let honor be to us as strong an obligation as necessity is to others.
+ - Men are most apt to believe what they least understand; and through the lust of human wit obscure things are more easily credited.
+ - Our youth and manhood are due to our country, but our declining years are due to ourselves.
+ - There is, to be sure, no evil without something good.
+ - There is in them a softer fire than the ruby, there is the brilliant purple of the amethyst, and the sea green of the emerald – all shining together in incredible union. Some by their splendor rival the colors of the painters, others the flame of burning sulphur or of fire quickened by oil.
+ - Why do we believe that in all matters the odd numbers are more powerful?
+ - We neglect those things which are under our very eyes, and heedless of things within our grasp, pursue those which are afar off.
+ - Nothing is so unequal as equality.
+ - Man is the only one that knows nothing, that can learn nothing without being taught. He can neither speak nor walk nor eat, and in short he can do nothing at the prompting of nature only, but weep.
+ - The perverted ingenuity of man has given to water the power of intoxicating where wine is not procured. Western nations intoxicate themselves by moistened grain.
+ - When a building is about to fall down, all the mice desert it.
+ - Chance is a second master.
+ - It is generally much more shameful to lose a good reputation than never to have acquired it.
+ - In time of sickness the soul collects itself anew.
+ - It is a maxim universally agreed upon in agriculture, that nothing must be done too late; and again, that everything must be done at its proper season; while there is a third precept which reminds us that opportunities lost can never be regained.
+ - Among these things, one thing seems certain – that nothing certain exists and that there is nothing more pitiful or more presumptuous than man.
+ - God has no power over the past except to cover it with oblivion.
+ - It is this earth that, like a kind mother, receives us at our birth, and sustains us when born; it is this alone, of all the elements around us, that is never found an enemy of man.
+ - All men possess in their bodies a poison which acts upon serpents; and the human saliva, it is said, makes them take to flight, as though they had been touched with boiling water. The same substance, it is said, destroys them the moment it enters their throat.
+ - A god cannot procure death for himself, even if he wished it, which, so numerous are the evils of life, has been granted to man as our chief good.
+ - The agricultural population, says Cato, produces the bravest men, the most valiant soldiers, and a class of citizens the least given of all too evil designs.
+ - Nothing which we can imagine about Nature is incredible.
+ - Their best and most wholesome feeding is upon one dish and no more and the same plaine and simple: for surely this hudling of many meats one upon another of divers tastes is pestiferous. But sundrie sauces are more dangerous than that.
+ - His only fault is that he has no fault.
+ - The brain is the highest of the organs in position, and it is protected by the vault of the head; it has no flesh or blood or refuse. It is the citadel of sense-perception.
+ - Man alone at the very moment of his birth, cast naked upon the naked earth, does she abandon to cries and lamentations.
+ - With man, most of his misfortunes are occasioned by man.
+ - Our civilization depends largely on paper.
+ - The enjoyments of this life are not equal to its evils.
+ - Simple diet is best: for many dishes bring many diseases, and rich sauces are worse than even heaping several meats upon each other.
+ - Indeed, what is there that does not appear marvelous when it comes to our knowledge for the first time? How many things, too, are looked up on as quite impossible until they have been actually effected?
+ - Many dishes bring many diseases.
+ - Grief has limits, whereas apprehension has none. For we grieve only for what we know has happened, but we fear all that possibly may happen.
+ - Accustom yourself to master and overcome things of difficulty; for if you observe, the left hand for want of practice is insignificant, and not adapted to general business; yet it holds the bridle better than the right, from constant use.
+ - Nature makes us buy her presents at the price of so many sufferings that it is doubtful whether she deserves most the name of parent or stepmother.
+ - Why is it that we entertain the belief that for every purpose odd numbers are the most effectual?
+ - War should neither be feared nor provoked.
+ - The great business of man is to improve his mind, and govern his manners; all other projects and pursuits, whether in our power to compass or not, are only amusements.
+ - The lust of avarice as so totally seized upon mankind that their wealth seems rather to possess them than they possess their wealth.
+ - The javelin-snake amphiptere hurls itself from the branches of trees.
+ - Lust is an enemy to the purse, a foe to the person, a canker to the mind, a corrosive to the conscience, a weakness of the wit, a besotter of the senses, and finally, a mortal bane to all the body.
+ - We ought to be guarded against every appearance of envy, as a passion that always implies inferiority wherever it resides.
+ - The feasant hens of Colchis, which have two ears as it were consisting of feathers, which they will set up and lay down as they list.
+ - In wine, there’s truth.
+ - Nothing is more useful than wine for strengthening the body and also more detrimental to our pleasure if moderation be lacking.
+ - True happiness consists in being considered deserving of it.
+ - We listen with deep interest to what we hear, for to man novelty is ever charming.
+ - The most valuable discoveries have found their origin in the most trivial accidents.
+ - Cats too, with what silent stealthiness, with what light steps do they creep up to a bird!
+ - As touching peaches in general, the very name in Latine whereby they are called Persica, doth evidently show that they were brought out of Persia first.
+ - As in our lives so also in our studies, it is most becoming and most wise, so to temper gravity with cheerfulness, that the former may not imbue our minds with melancholy, nor the latter degenerate into licentiousness.
+ - Example is the softest and least invidious way of commanding.
+ - The best kind of wine is that which is most pleasant to him who drinks it.
+ - There is alas no law against incompetency; no striking example is made. They learn by our bodily jeopardy and make experiments until the death of the patients, and the doctor is the only person not punished for murder.
+ - As land is improved by sowing it with various seeds, so is the mind by exercising it with different studies.
+ - In the literary as well as military world, most powerful abilities will often be found concealed under a rustic garb.
+ - Wine refreshes the stomach, sharpens the appetite, blunts care and sadness, and conduces to slumber.
+ - No man’s abilities are so remarkably shining as not to stand in need of a proper opportunity.
+ - Wine takes away reason, engenders insanity, leads to thousands of crimes, and imposes such an enormous expense on nations.
+ - Now, that the sovereign power and deity, whatsoever it is, should have regard of mankind, is a toy and vanity worthy to be laughed at.
+ - The happier the moment the shorter.
+ - It has been observed that the height of a man from the crown of the head to the sole of the foot is equal to the distance between the tips of the middle fingers of the two hands when extended in a straight line.
+ - The desire to know a thing is heightened by its gratification being deferred.
+ - The human features and countenance, although composed of but some ten parts or little more, are so fashioned that among so many thousands of men there are no two in existence who cannot be distinguished from one another.
+ - I would have a man generous to his country, his neighbors, his kindred, his friends, and most of all his poor friends. Not like some who are most lavish with those who are able to give most of them.
+ - And that all seas are made calme and still with oile; and therefore the Divers under the water doe spirt and sprinkle it abroad with their mouthes because it dulceth and allaieth the unpleasant nature thereof, and carrieth a light with it.
+ - In comparing various authors with one another, I have discovered that some of the gravest and latest writers have transcribed, word for word, from former works, without making acknowledgment.
+ - No book so bad but some part may be of use.
+ - Let that which is wanting in income be supplied by economy.
+ - Let not things, because they are common, enjoy for that the less share of our consideration.
+ - Most men are afraid of a bad name, but few fear their consciences.
+ - A dear bargain is always disagreeable, particularly as it is a reflection upon the buyer’s judgment.
+ - The only thing man knows instinctively is how to weep.
+ - A short death is the sovereign good hap of human life.
+ - We live by reposing trust in each other.
+ - Cincinnatus was ploughing his four jugera of land upon the Vaticanian Hill, the same that are still known as the Quintian Meadows, when the messenger brought him the dictatorship, finding him, the tradition says, stripped to the work.
+ - To laugh, if but for an instant only, has never been granted to man before the fortieth day from his birth, and then it is looked upon as a miracle of precocity.
+ - Always act in such a way as to secure the love of your neighbour.
+ - It is ridiculous to suppose that the great head of things, whatever it be, pays any regard to human affairs.
+ - As for the garden of mint, the very smell of it alone recovers and refreshes our spirits, as the taste stirs up our appetite for meat.
+ - Wine maketh the band quivering, the eye watery, the night unquiet, lewd dreams, a stinking breath in the morning, and an utter forgetfulness of all things.
+
+107 quotes

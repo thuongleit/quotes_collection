@@ -1,0 +1,42 @@
+ - Education is the most powerful weapon which you can use to change the world. ~~Nelson Mandela
+ - Go confidently in the direction of your dreams. Live the life you’ve imagined. ~~Henry David Thoreau
+ - The future belongs to those who believe in the beauty of their dreams. ~~Eleanor Roosevelt
+ - Knowledge is power. ~~Francis Bacon
+ - Be who you are and say what you feel, because those who mind don't matter, and those who matter don't mind. ~~Bernard M. Baruch
+ - The whole purpose of education is to turn mirrors into windows. ~~Sydney J. Harris
+ - People will forget what you said, people will forget what you did, but people will never forget how you made them feel. ~~Maya Angelou
+ - Obstacles are those frightful things you see when you take your eyes off your goals. ~~Henry Ford
+ - Wherever you go, go with all your heart. ~~Confucius
+ - Don’t let the noise of others’ opinions drown out your own inner voice. ~~Steve Jobs
+ - Go for it now. The future is promised to no one. ~~Wayne W. Dyer
+ - Go and make interesting mistakes, make amazing mistakes, make glorious and fantastic mistakes. Break rules. Leave the world more interesting for your being here. ~~Neil Gaiman
+ - Always be a first rate version of yourself and not a second rate version of someone else. ~~Judy Garland
+ - Never bend your head. Hold it high. Look the world straight in the eye. ~~Helen Keller
+ - It’s what you learn after you know it all that counts. ~~John Wooden
+ - Your time is limited, so don’t waste it living someone else’s life. ~~Steve Jobs
+ - Things turn out best for those who make best of how things turn out. ~~John Wooden
+ - Just don’t give up trying to do what you really want to do. ~~Ella Fitzgerald
+ - To be nobody but yourself in a world which is doing its best, night and day, to make you everybody else means to fight the hardest battle which any human being can fight; and never stop fighting. ~~E.E. Cummings
+ - Destiny is no matter of chance. It is a matter of choice. It is not a thing to be waited for, it is a thing to be achieved. ~~William Jennings Bryan
+ - Man cannot discover new oceans unless he has the courage to lose sight of the shore. ~~André Gide
+ - If you can believe it, the mind can achieve it. ~~Ronnie Lott
+ - Even if you are on the right track, you’ll get run over if you just sit there. ~~Will Rogers
+ - All our dreams can come true, if we have the courage to pursue them. ~~Walt Disney
+ - All successful people men and women are big dreamers. They imagine what their future could be, ideal in every respect, and then they work every day toward their distant vision, that goal or purpose. ~~Brian Tracy
+ - Try to learn something about everything and everything about something. ~~Thomas Henry Huxley
+ - Don’t judge each day by the harvest you reap but by the seeds that you plant. ~~Robert Louis Stevenson
+ - Don’t go around saying the world owes you a living. The world owes you nothing. It was here first. ~~Mark Twain
+ - We must use time creatively, and forever realize that the time is always ripe to do right. ~~Nelson Mandela
+ - To accomplish great things, we must not only act, but also dream; not only plan, but also believe. ~~Anatole France
+ - It is the mark of an educated mind to be able to entertain a thought without accepting it. ~~Aristotle
+ - Learn everything you can, anytime you can, from anyone you can – there will always come a time when you will be grateful you did. ~~Sarah Caldwell
+ - The two most important days in your life are the day you are born and the day you find out why. ~~Mark Twain
+ - A wise man will make more opportunities than he finds. ~~Francis Bacon
+ - Success is not the key to happiness. Happiness is the key to success. If you love what you are doing, you will be successful. ~~Albert Schweitzer
+ - It is impossible to live without failing at something, unless you live so cautiously that you might as well not have lived at all – in which case, you fail by default. ~~J.K. Rowling
+ - You may never know what results come of your actions, but if you do nothing, there will be no results. ~~Mahatma Gandhi
+ - The best and most beautiful things in the world cannot be seen or even touched. They must be felt with the heart. ~~Helen Keller
+ - If you aren't fired with enthusiasm, you will be fired with enthusiasm.  ~~Vince Lombardi
+ - Education is an admirable thing, but it is well to remember from time to time that nothing that is worth knowing can be taught. ~~Oscar Wilde
+
+40 quotes

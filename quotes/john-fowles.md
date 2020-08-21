@@ -1,0 +1,130 @@
+ - Adulthood is not an age, but a stage of knowledge of self.
+ - The moon hung over the planet Earth, a dead thing over a dying thing.
+ - The ordinary man is the curse of civilization.
+ - Alive. Alive in the way that death is alive.
+ - We all write poems; it is simply that poets are the ones who write in words.
+ - Always we try to put the wild in a cage.
+ - I love making, I love doing. I love being to the full, I love everything which is not sitting and watching and copying and dead at heart.
+ - Wolves don’t hunt singly, but always in pairs. The lone wolf was a myth.
+ - Love is the mystery between two people, not the identity.
+ - These last few days I’ve felt Godless. I’ve felt cleaner, less muddled, less blind. I still believe in a God. But he’s so remote, so cold, so mathematical. I see that we have to live as if there is no God. Prayer and worship and singing hymns-all silly and useless.
+ - That was the tragedy. Not that one man had the courage to be evil. But that millions had not the courage to be good.
+ - The profoundest distances are never geographical.
+ - Being an atheist is a matter not of moral choice, but of human obligation.
+ - Duty largely consists of pretending that the trivial is critical.
+ - There is only one good definition of God: the freedom that allows other freedoms to exist.
+ - The practise of an art is essential to the whole man, not because of what art is but because of what art does to the artist.
+ - The privileges of knowledge have to be bought at the cost of the consolations of ignorance.
+ - Man is about to be deprived of a great pole – work routine. The nightmare of capitalist society is unemployment; the nightmare of cybernetic society will be employment.
+ - The diary will really try and tell people who you are and what you were. The alternative is writing nothing, or creating a totally lifeless, as it is leafless, garden.
+ - We all want things we can’t have. Being a decent human being is accepting that.
+ - Follow the accident, fear the fixed plan – that is the rule.
+ - When you draw something it lives and when you photograph it it dies.
+ - Which are you drinking? The water or the wave?
+ - I hate the uneducated and the ignorant. I hate the pompous and the phoney. I hate the jealous and the resentful. I hate the crabbed and mean and the petty. I hate all ordinary dull little people who aren’t ashamed of being dull and little.
+ - The pronoun is one of the most terrifying masks man has invented.
+ - In essence the Renaissance was simply the green end of one of civilization’s hardest winters.
+ - You wish to be liked. I wish simply to be. One day you will know what that means, perhaps. And you will smile. Not against me. But with me.
+ - Evolution did not intend trees to grow singly. Far more than ourselves they are social creatures, and no more natural as isolated specimens than man is as a marooned sailor or hermit.
+ - He’s not human; he’s an empty space disguised as a human.
+ - To write poetry and to commit suicide, apparently so contradictory, had really been the same, attempts at escape.
+ - They looked down on her; and she looked up through them.
+ - No amount of reading and intelligent deduction could supplant the direct experience.
+ - There is no plan. All is hazard. And the only thing that will preserve us is ourselves.
+ - If you forget everything else about me, please remember this. I walked down that street and I never looked back and I love you. I love you. I love you so much that I shall hate you for ever for today.
+ - I just think of things as beautiful or not. Can’t you understand? I don’t think of good or bad. Just of beautiful or ugly. I think a lot of nice things are ugly and a lot of nasty things are beautiful.
+ - It is not only species of animal that die out, but whole species of feeling. And if you are wise you will never pity the past for what it did not know, but pity yourself for what it did.
+ - Just those three words, said and meant. I love you. They were quite hopeless. He said it as he might have said, I have cancer. His fairy story.
+ - The power of women! I’ve never felt so full of mysterious power. Men are a joke. We’re so weak physically, so helpless with things. Still, even today. But we’re stronger than they are. We can stand their cruelty. They can’t stand ours.
+ - If you want to be true to life, start lying about it.
+ - Baseball and cricket are beautiful and highly stylized medieval war substitutes, chess made flesh, a mixture of proud chivalry and base-in both senses-greed.
+ - There are two kinds of hangover: in one you feel ill and incapable, in the other you feel ill and lucid.
+ - The most important questions in life can never be answered by anyone except oneself.
+ - Between skin and skin, there is only light.
+ - Time is not a road – it is a room.
+ - Because a star explodes and a thousand worlds like ours die, we know this world is. That is the smile: that what might not be, is.
+ - I am one in a row of specimens. It’s when I try to flutter out of line that he hates me. I’m meant to be dead, pinned, always the same, always beautiful. He knows that part of my beauty is being alive. but it’s the dead me he wants. He wants me living-but-dead.
+ - If anything might hurt her, silence would; and I wanted to hurt her.
+ - The battle was over. Our casualties were some thirteen thousand killed – thirteen thousand minds, memories, loves, sensations, worlds, universes – because the human mind is more a universe than the universe itself – and all for a few hundred yards of useless mud.
+ - To despise all effort is the greatest effort of all.
+ - If a person is intelligent, then of course he is either an agnostic or an atheist. Just as he is a physical coward. They are automatic definitions of high intelligence.
+ - Men love war because it allows them to look serious. Because it is the one thing that stops women laughing at them.
+ - That is the great distinction between the sexes. Men see objects, women see the relationships between objects.
+ - Forgetting’s not something you do, it happens to you. Only it didn’t happen to me.
+ - Greece is like a mirror. It makes you suffer. Then you learn.? To live alone?? To live. With what you are.
+ - Thomas Beecham was a pompous little band-master who stood against everything creative in the art of his time.
+ - There comes a time in each life like a point of fulcrum. At that time you must accept yourself. It is not any more what you will become. It is what you are and always will be.
+ - In some mysterious way woods have never seemed to me to be static things. In physical terms, I move through them; yet in metaphysical ones, they seem to move through me.
+ - Our accepting what we are must always inhibit our being what we ought to be.
+ - Another reason I think the novel will survive is that the reader has to work in a novel. In a film, you are presented with someone else’s imagination exactly bodied out. The marvelous thing about a novel is that every reader will imagine even the very simplest sentence slightly differently.
+ - The craving to risk death is our last great perversion. We come from night, we go into night. Why live in night?
+ - The more abhorrent a news item the more comforting it was to be the recipient, since the fact that it had happened elsewhere proved that it had not happened here, was not happening here, and would therefore never happen here.
+ - I must fight with my weapons. Not his. Not selfishness and brutality and shame and resentment.
+ - How can one build a better self unless on the ruins of the old?
+ - The world began in hazard and will end in it.
+ - Science disembodies; art embodies.
+ - One degrades oneself sometimes in the effort not to be lonely.
+ - There are some men who are consoled by the idea that there are women less attractive than their wives; and others who are haunted by the knowledge that there are more attractive.
+ - He is solid; immovable, iron-willed. He showed me one day his killing bottle. I’m imprisoned in it. Fluttering against the glass. Because I can see through it I still think I can escape. I have hope. But it’s all an illusion. A thick round wall of glass.
+ - One of the great fallacies of our time is that the Nazis rose to power because they imposed order on chaos. Precisely the opposite is true.
+ - You put up with your voice and speak with it because you haven’t any choice. But it’s what you say that counts.
+ - I was too green to know that all cynicism masks a failure to cope – an impotence, in short; and that to despise all effort is the greatest effort of all.
+ - It was too exactly as imagined to be true. But I felt as gladly and expectantly disorientated, as happily and alertly alone, as Alice in Wonderland.
+ - Liking other people is an illusion we have to cherish in ourselves if we are to live in society.
+ - Art’s cruel. You can get away with murder with words. But a picture is like a window straight through to your inmost heart.
+ - It’s like the day you realize dolls are dolls. I pick up my old self and I see it’s silly. A toy I’ve played with too often. It’s a little sad, like an old golliwog at the bottom of the cupboard. Innocent and used-up and proud and silly.
+ - Our knowledge of what the richer than ourselves possess, and the poor do not, has never been more widespread. Therefore, envy, which is wanting what others have, and jealousy, which is not wanting others to have what one has, have never been more widespread.
+ - The great majority of modern third-person narration is “I” narration very thinly disguised.
+ - That’s the trouble with provincial life. Everyone knows everyone and there is no mystery. No romance.
+ - Stained glass, engraved glass, frosted glass; give me plain glass.
+ - The best wines take the longest to mature.
+ - But I think the most harmful change brought about by Victorian science in our attitude to nature lies in the demand that our relation with it must be purposive, industrious, always seeking greater knowledge.
+ - Most marriages recognize this paradox: Passion destroys passion; we want what puts an end to wanting what we want.
+ - There are only two races on this planet – the intelligent and the stupid.
+ - But however good you get at translating personality into line or paint it’s no go if your personality isn’t worth translating.
+ - The price of tapping water into every house is that no one values water any more.
+ - I think it is interesting that we have come back to star- and space ships. Jet will do for a transport shorthand; yet when man really reaches, across the vast seas of space, he still reaches in ships.
+ - My hatred of crowds, the obviousness of crowds, of anything en masse. Is this why I like little-known books? A general desire to escape the main world.
+ - I am infinitely strange to myself.
+ - We talked for hours. He talked and I listened. It was like wind and sunlight. It blew all the cobwebs away.
+ - It is only when our characters and events begin to disobey us that they begin to live.
+ - The American myth is of free will in its simple, primary sense. One can choose oneself and will oneself; and this absurdly optimistic assumption so dominates the republic that it has bred all its gross social injustices.
+ - Only fools think our attitude to our fellow men is a thing distinct from our attitude to ‘lesser’ life on this planet.
+ - There are many reasons why novelists write, but they all have one thing in common – a need to create an alternative world.
+ - He was one of the most supremely stupid men I have ever met. He taught me a great deal.
+ - Piers is always going on about how he hated Stowe. As if that solves everything, as if to hate something means it can’t have affected you.
+ - I will tell you what war is. War is a psychosis caused by an inability to see relationships. Our relationship with our fellowmen. Our relationship with our economic and historical situation. And above all our relationship to nothingness, to death.
+ - Edith Sitwell’s interest in art was largely confined to portraits of herself.
+ - I knew I would always want to go on living with myself, however hollow I became, however diseased.
+ - I have a strange illusion quite often. I think I’ve become deaf. I have to make a little noise to prove I’m not. I clear my throat to show myself that everything is normal. It’s like the little Japanese girl they found in the ruins of Hiroshima. Everything dead; and she was singing to her doll.
+ - I mean I never feel I feel what I ought to feel.
+ - Each age, each guilty age, builds high walls around its Versailles; and personally I hate those walls most when they are made by literature and art.
+ - And I just can’t live in this present. I would go mad if I did.
+ - All novelists should live in two different worlds: a real one and an unreal one.
+ - Do you know that every great thing in the history of art and every beautiful thing in life is actually what you call nasty or has been caused by feelings that you would call nasty? By passion, by love, by hatred, by truth. Do you know that?
+ - All pasts are like poems; one can derive a thousand things, but not live in them.
+ - Art is a statement of one in the face of all; not a statement by one for the use of all.
+ - The supposed great misery of our century is the lack of time.
+ - An aphorism is a generalization, therefore not modern.
+ - There cannot be any true leisure until all the world possesses it equally.
+ - Duty is but a pot. It holds whatever is put in it, from the greatest evil to the greatest good.
+ - The word is the most imprecise of signs. Only a science-obsessed age could fail to comprehend that this is its great virtue, not its defect.
+ - I do not plan my fiction any more than I normally plan woodland walks; I follow the path that seems most promising at any given point, not some itinerary decided before entry.
+ - He knew the world and its absurdities as only an intelligent Irishman can; which is to say that where his knowledge or memory failed him, his imagination was always ready to fill the gap.
+ - Hazard has conditioned us to live in hazard. All our pleasures are dependant upon it. Even though I arrange for a pleasure; and look forward to it, my eventual enjoyment of it is still a matter of hazard. Wherever time passes, there is hazard. You may die before you turn the next page.
+ - I think we are just insects, we live a bit and then die and that’s the lot. There’s no mercy in things. There’s not even a Great Beyond. There’s nothing.
+ - People who teach you cram old ideas, old views, old ways, into you. Like covering plants with layer after layer of old earth; it’s no wonder the poor things so rarely come up fresh and green.
+ - We can sometimes recognize the looks of a century ago on a modern face; but never those of a century to come.
+ - Wealth is a monster. It takes a month to learn to control it financially. And many years to learn to control it psychologically.
+ - I read and I read; and I was like a medieval king, I had fallen in love with the picture long before I saw the reality.
+ - Death is the room that is always empty.
+ - The newspapers are full of what we would like to happen to us and what we hope will never happen to us.
+ - You come to the United States not knowing what to expect. Then all your worst prejudices are confirmed.
+ - You must make, always. You must act, if you believe something. Talking about acting is like boasting about pictures you’re going to paint. The most terrible bad form.
+ - We chase the reward, we get the reward and then we discover that the true reward is always the next reward. Buying pleasure is a false end.
+ - He felt himself in suspension between the two worlds, the warm, neat civilization behind his back, the cool, dark mystery outside. We all write poems; it is simply that poets are the ones who write in words.
+ - Content is a word unknown to life; it is also a word unknown to man.
+ - Think. In a minute from now you could be saying, I risked death. I threw for life, and I won life. It is a very wonderful feeling. To have survived.
+ - I don’t think the English like me. I sold a colossal best seller in America, and they never really forgave me.
+
+128 quotes

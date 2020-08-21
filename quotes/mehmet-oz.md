@@ -1,0 +1,71 @@
+ - The opposite of anger is not calmness, its empathy.
+ - Your genetics load the gun. Your lifestyle pulls the trigger.
+ - Biology always beats will power.
+ - Whatever you choose, do it fully-with passion and childlike enthusiasm.
+ - If I make your workplace conducive to walking at lunch, or working out at some time during the day, or I get people to use the stairs more by creating incentives to do such, then people will start doing it naturally.
+ - It’s like, imagine the ripples on top of an ocean. And I’m in a rowboat, reactively dealing with the waves and water coming into my boat. What I need to do is dive into the deeper solace, the calmness beneath the surface.
+ - If you want to be healthy and live to one hundred, do qigong.
+ - Medicine has always been my calling.
+ - It’s difficult to love someone you don’t respect, which is hard to remember when you’re having an argument.
+ - Energy Medicine is the last great frontier in medicine.
+ - The next big frontier in medicine is Energy Medicine.
+ - If you don’t know your blood pressure, it’s like not knowing the value of your company.
+ - Make the driving force in your life love.
+ - Your waist size should not be more than half your height.
+ - A lot of folks believe their best years are behind them. But I want Americans to recognize that’s not true.
+ - Food – I love nuts. I eat them all the time, they’re easy to carry around, and I am never hungry all day long.
+ - My mother was all about unconditional love, and I don’t think we give that to our patients a lot. At the end of the day, what they really need you to do is to look at them in the eye and say, ‘I’m here for you. I’m going to make sure this works out.’
+ - In Turkey, you’re not allowed to be left alone in the hospital. The nurse teaches the family how to do things, and somebody is always there with the patient.
+ - In my business, if I get too close to you and you die, it hurts me. And so you develop a natural inclination not to be close to the patient, so that if things don’t work out ideally, you can still get up the next day and care for the next patient.
+ - I’ve got so many weaknesses.
+ - True health care reform cannot happen in Washington. It has to happen in our kitchens, in our homes, in our communities. All health care is personal.
+ - You need to be proactive, carve out time in your schedule, and take responsibility for being the healthiest person you can be – no one else is going to do it for you.
+ - I think I’m a better doctor than I am a husband. I give myself a good grade as a doctor, then the next best grade as a father, and the worst grade as a husband.
+ - We’re all human beings, but some of us are more sophisticated at covering our flaws. We’re just smart enough to lie to ourselves that everything is OK.
+ - Every person has the right to look and feel like a million bucks.
+ - I was lucky enough to marry a wonderful chef.
+ - Not enough families eat together. We eat in front of the TV while we’re absorbed in a program.
+ - The biggest mistake people make is to try to lose too much weight too fast.
+ - We don’t walk. We overeat because we’ve made it easy to overeat. We have fast-food joints on every corner. By the way, the ‘we’ is all of us. It’s not the government. It’s all of us doing this together.
+ - Medicine grounds me, it centers me, that’s why I continue to do it.
+ - I believe science has a wonderful ability, in an unbiased way, to offer hope to many people who are confused, but it’s not the only way to find hope.
+ - I think that we’re beginning to globalize medicine now. You have to take Eastern approaches and bring them to the West, and share West with the East.
+ - Most food you drop is still perfectly edible. If it was in your eyesight the whole time, you can pick it up and eat it.
+ - What we have now is doctors who are actually better technically at what they’re doing in their specialty than 30 or 40 years ago, but we lost the relationship, when the doctor would look people in the eye and say, ‘I care about you. We can do this together.’
+ - No matter how old you are, no matter how much you weigh, you can still control the health of your body.
+ - Hostility comes from loneliness, from not seeing yourself like a drop falling into the ocean of humanity like everyone else.
+ - Most allopathic doctors think practitioners of alternative medicine are all quacks. They’re not. Often they’re sharp people who think differently about disease.
+ - What happens when you have great grief in your life is the arteries of that heart begins to spasms down, just literally squeezes down like this because you’re feeling the tension of your life and then the heart muscle itself will also begin – to get stressed out.
+ - Food is no longer sacred to us: in becoming too efficient we’ve changed its nature.
+ - You have to be going somewhere to have the energy you need to get there.
+ - You don’t have a family doctor anymore like you did when you were a kid, who treated you throughout your life.
+ - I saw many people who had advanced heart disease and I was so frustrated because I knew if they just knew how to do the right thing, simple lifestyle and diet steps, that the entire trajectory of their life and health would have been different.
+ - You cannot drive a system that’s going to be aiming at preventing illness if everyone is not in it. The whole gaming of health insurance and health care in America is based on that fundamental principle: insure people who aren’t sick and you don’t have to pay more money on them.
+ - If you change your lifestyle, remember it’s not a wind sprint, but it’s a marathon you’re embarked on, and you’ll be able to stay there.
+ - The rule I use is, If it doesn’t come out of the ground looking the way it looks when you eat it, be careful.
+ - I do practice what I preach when it comes to nutrition.
+ - I have become convinced that the most overlooked tool in our medical arsenal is harnessing the body’s own ability to heal through nutritional excellence.
+ - I get up at the same time every morning.
+ - Every hour you sit at work increases your mortality 11 percent. Think about that.
+ - I like shows that have some level of intelligence to them. When it’s not as predictable, when you don’t know what’s coming at you.
+ - I don’t operate on smokers. I tell cigarette smokers that I can operate on you, I get paid the same. And you might even do well. But it’s the wrong thing to do. So I refuse to operate on you until you stop smoking.
+ - We are spending most of our time in American health care fixing the mistakes that either we in the profession are causing or our patients are, without recognizing it, causing to themselves.
+ - You get the health benefits of coffee up through about the first twenty-four ounces. It’s the biggest source of antioxidants for Americans, and we think it helps prevent Alzheimer’s and Parkinson’s as well.
+ - You learn how to take care of people from the women in your life.
+ - If you can laugh your way through life, you can have a good time as you’re going through the sometimes troubling time that we have in our lives.
+ - There were certain elements of the healing process I could not capture. And even if I was right in the science, I could be wrong in the spirit.
+ - Medications almost always do it better if they’re used in conjunction with other supports.
+ - I get up in the morning and do a seven-minute yoga workout. I know the most likely time I’m going to do something is when I first get up, and I make it short because, like you, I don’t really want to do that first thing in the morning.
+ - I used to bicycle to work across the George Washington Bridge, but my wife told me it wasn’t professional.
+ - At the end of the day, sleep is a barometer of your emotional health. And so if you’re not in the right place where you need to be, then you’re going to have voices keeping you up at night because you have to work through those issues.
+ - When there is a psyche-disrupting event in your life, it can prevent you from getting the long blocks of sleep at night that are so important to healthy aging.
+ - I meditate and I’m passionate about it.
+ - We don’t need sugar to live, and we don’t need it as a society.
+ - I’ve always felt that, when I looked at my tombstone, it shouldn’t say, ‘Mehmet Oz banged out 10,000 open-heart operations.’ I’ve probably done 5,000. Am I any better at it than 10,000? He shook his head. It’s just a different number on the tombstone.
+ - Unfortunately, several companies are attempting to deceive consumers through the unauthorized use of my image or my name, and my attorneys are pursuing those making these false claims.
+ - Women are much more sensitive. We know that emotionally but their organs respond to the same degree.
+ - People say their weight is genetic. But it turns out that people who are overweight don’t just have overweight kids. They also have overweight pets. That’s not genetic.
+ - I feel differently immediately when I start to put weight on. I don’t like that sluggish, blunted disposition that I have when that happens.
+ - Reiki has become a sought-after healing art among patients and mainstream medical professionals.
+
+69 quotes

@@ -1,0 +1,330 @@
+ - A book is a suicide postponed.
+ - We cannot be normal and alive at the same time.
+ - Not to be born is undoubtedly the best plan of all. Unfortunately, it is within no one’s reach.
+ - Music is the refuge of souls ulcerated by happiness.
+ - Insomnia is a vertiginous lucidity that can convert paradise itself into a place of torture.
+ - I feel completely detached from any country, any group. I am a metaphysically displaced person.
+ - The fact that life has no meaning is a reason to live – moreover, the only one.
+ - Since all life is futility, then the decision to exist must be the most irrational of all.
+ - Consciousness is nature’s nightmare.
+ - The limit of every pain is an even greater pain.
+ - There is no limit to suffering.
+ - Is it possible that existence is our exile and nothingness our home?
+ - I would like to go mad on one condition, namely, that I would become a happy madman, lively and always in a good mood, without any troubles and obsessions, laughing senselessly from morning to night.
+ - The sole means of protecting your solitude is to offend everyone, beginning with those you love.
+ - Man starts over again everyday, in spite of all he knows, against all he knows.
+ - What music appeals to in us it is difficult to know; what we do know is that music reaches a zone so deep that madness itself cannot penetrate there.
+ - I dream of a language whose words, like fists, would fracture jaws.
+ - The truly solitary being is not the man who is abandoned by men, but the man who suffers in their midst, who drags his desert through the marketplace and deploys his talents as a smiling leper, a mountebank of the irreparable.
+ - No one recovers from the disease of being born, a deadly wound if there ever was one.
+ - Sometimes I wish I were a cannibal – less for the pleasure of eating someone than for the pleasure of vomiting him.
+ - Only optimists commit suicide, optimists who no longer succeed at being optimists. The others, having no reason to live, why would they have any to die?
+ - When people come to me saying they want to kill themselves, I tell them, “What’s your rush? You can kill yourself any time you like. So calm down. Suicide is a positive act.” And they do calm down.
+ - This very second has vanished forever, lost in the anonymous mass of the irrevocable. It will never return. I suffer from this and I do not. Everything is unique – and insignificant.
+ - Nothing proves that we are more than nothing.
+ - Philosophy is a corrective against sadness. Yet there still are people who believe in the profundity of philosophy!
+ - Democracy: a festival of mediocrity.
+ - I’m simply an accident. Why take it all so seriously?
+ - It has been a long time since philosophers have read men’s souls. It is not their task, we are told. Perhaps. But we must not be surprised if they no longer matter much to us.
+ - What surrounds us we endure better for giving it a name – and moving on.
+ - Losing love is so rich a philosophical ordeal that it makes a hairdresser into a rival of Socrates.
+ - If just once you were depressed for no reason, you have been so all your life without knowing.
+ - One can experience loneliness in two ways: by feeling lonely in the world or by feeling the loneliness of the world.
+ - Shame on the man who goes to his grave escorted by the miserable hopes that have kept him alive.
+ - Anyone can escape into sleep, we are all geniuses when we dream, the butcher’s the poet’s equal there.
+ - The Art of Love: knowing how to combine the temperament of a vampire with the discretion of an anemone.
+ - My mission is to kill time, and time’s to kill me in its turn. How comfortable one is among murderers.
+ - Wisdom disguises our wounds; it teaches us how to bleed in secret.
+ - It is not worth the bother of killing yourself, since you always kill yourself too late.
+ - We are afraid of the enormity of the possible.
+ - As the years pass, the number of those we can communicate with diminishes. When there is no longer anyone to talk to, at last we will be as we were before stooping to a name.
+ - Alone, even doing nothing, you do not waste your time. You do, almost always, in company. No encounter with yourself can be altogether sterile: Something necessarily emerges, even if only the hope of some day meeting yourself again.
+ - Beware of thinkers whose minds function only when they are fueled by a quotation.
+ - Read day and night, devour books – these sleeping pills – not to know but to forget! Through books you can retrace your way back to the origins of spleen, discarding history and its illusions.
+ - True confessions are written with tears only. But my tears would drown the world, as my inner fire would reduce it to ashes.
+ - Our first intuitions are the true ones.
+ - What can be said, lacks reality. Only what fails to make its way into words exists and counts.
+ - Only superficial minds approach an idea with delicacy.
+ - Our works, whatever they may be, derive from our incapacity to kill or to kill ourselves.
+ - An aphorism? Fire without flames. Understandable that no one tries to warm himself at it.
+ - Consciousness is much more than the thorn, it is the dagger in the flesh.
+ - If you’re unlucky enough not to have alcoholic parents, it takes you a whole lifetime of intoxication to overcome the dead weight of their virtues.
+ - By all evidence we are in the world to do nothing; but instead of nonchalantly promenading our own corruption, we exude our sweat and grow winded upon the fetid air.
+ - Life is merely a fracas on an unmapped terrain, and the universe a geometry stricken with epilepsy.
+ - One does not inhabit a country; one inhabits a language. That is our country, our fatherland – and no other.
+ - True contact between beings is established only by mute presence, by apparent non-communication, by that mysterious and wordless exchange which resembles inward prayer.
+ - Trees are massacred, houses go up – faces, faces everywhere. Man is spreading. Man is the cancer of the earth.
+ - If we could see ourselves as others see us, we would vanish on the spot.
+ - What would be left of our tragedies if an insect were to present us his?
+ - The obsession with suicide is characteristic of the man who can neither live nor die, and whose attention never swerves from this double impossibility.
+ - Each of us is born with a share of purity, predestined to be corrupted by our commerce with mankind, by that sin against solitude.
+ - Good health is the best weapon against religion. Healthy bodies and healthy minds have never been shaken by religious fears.
+ - To defy heredity is to defy billions of years, to defy the first cell.
+ - I am like a broken puppet whose eyes have fallen inside.
+ - There is no other world. Nor even this one. What, then, is there? The inner smile provoked in us by the patent nonexistence of both.
+ - Man is a robot with defects.
+ - The refutation of suicide: is it not inelegant to abandon a world which has so willingly put itself at the service of our melancholy?
+ - The fanatic is incorruptible: if he kills for an idea, he can just as well get himself killed for one; in either case, tyrant or martyr, he is a monster.
+ - Skepticism is the sadism of embittered souls.
+ - The task of the solitary man is to be even more solitary.
+ - Nostalgia, more than anything, gives us the shudder of our own imperfection. This is why with Chopin we feel so little like gods.
+ - I cannot contribute anything to this world because I only have one method: agony.
+ - I have always struggled, with the sole intention of ceasing to struggle. Result: zero.
+ - No matter which way we go, it is no better than any other. It is all the same whether you achieve something or not, have faith or not, just as it is all the same whether you cry or remain silent.
+ - Melancholy redeems this universe, and yet it is melancholy that separates us from it.
+ - I saw that philosophy had no power to make my life more bearable. Thus I lost my belief in philosophy.
+ - A man who fears ridicule will never go far, for good or ill: he remains on this side of this talents, and even if he has genius, he is doomed to mediocrity.
+ - We would not be interested in human beings if we did not have the hope of someday meeting someone worse off than ourselves.
+ - We derive our vitality from our store of madness.
+ - We inhabit a language rather than a country.
+ - Speech and silence. We feel safer with a madman who talks than with one who cannot open his mouth.
+ - Even when nothing happens, everything seems too much for me. What can be said, then, in the presence of an event, any event?
+ - History proves nothing because it contains everything.
+ - If there is anyone who owes everything to Bach, it is certainly God.
+ - Only one thing matters: learning to be the loser.
+ - There is only one thing worse than boredom, and that is the fear of boredom.
+ - The aphorism is cultivated only by those who have known fear in the midst of words, that fear of collapsing with all the words.
+ - If I were to be totally sincere, I would say that I do not know why I live and why I do not stop living. The answer probably lies in the irrational character of life which maintains itself without reason.
+ - What strangely enchanted tunes gush forth during those sleepless nights!
+ - I would like to explode, flow, crumble into dust, and my disintegration would be my masterpiece.
+ - He who hates himself is not humble.
+ - If truth were not boring, science would have done away with God long ago. But God as well as the saints is a means to escape the dull banality of truth.
+ - A decadent civilization compromises with its disease, cherishes the virus infecting it, loses its self-respect.
+ - Society: an inferno of saviors!
+ - To accomplish nothing and die of the strain.
+ - In the hours without sleep, each moment is so full and so vacant that it suggests itself as a rival of Time.
+ - At this very moment, I am suffering – as we say in French, j’ai mal. This event, crucial for me, is nonexistent, even inconceivable for anyone else, for everyone else. Except for God, if that word can have a meaning.
+ - Psychoanalysis is a technique we practice at our cost; psychoanalysis degrades our risks, our dangers, our depths; it strips us of our impurities, of all that made us curious about ourselves.
+ - All philosophers should end their days at Pythia’s feet. There is only one philosophy, that of unique moments.
+ - Ideas should be neutral. But man animates them with his passions and folly. Impure and turned into beliefs, they take on the appearance of reality. The passage from logic is consummated. Thus are born ideologies, doctrines, and bloody farce.
+ - It is because we are all imposters that we endure each other.
+ - Ideas come as you walk, Nietzsche said. Walking dissipates thoughts, Shankara taught.
+ - Tyrants are always assassinated too late. That is their great excuse.
+ - Ambition is a drug that makes its addicts potential madmen.
+ - I live only because it is in my power to die when I choose to: without the idea of suicide, I’d have killed myself right away.
+ - Normal people have nothing to forget.
+ - Think of God and not religion, of ecstasy and not mysticism. The difference between the theoretician of faith and the believer is as great as between the psychiatrist and the psychotic.
+ - The only way of enduring one disaster after the next is to love the very idea of disaster: if we succeed, there are no further surprises, we are superior to whatever occurs, we are invincible victims.
+ - Try to be free: you will die of hunger.
+ - Everything is pathology, except for indifference.
+ - In every man sleeps a prophet, and when he wakes there is a little more evil in the world.
+ - I lost my sleep, and this is the greatest tragedy that can befall someone. It is much worse than sitting in prison.
+ - The amount of chiaroscuro an idea harbors is the only index of its profundity.
+ - After having struggled madly to solve all problems, after having suffered on the heights of despair, in the supreme hour of revelation, you will find that the only answer, the only reality, is silence.
+ - Write books only if you are going to say in them the things you would never dare confide to anyone.
+ - No one can enjoy freedom without trembling.
+ - All the concessions we make to Eros are holes in our desire for the absolute.
+ - The multiplication of our kind borders on the obscene; the duty to love them, on the preposterous.
+ - Utopia is a mixture of childish rationalism and secularized angelism.
+ - Every thought derives from a thwarted sensation.
+ - We are so lonely in life that we must ask ourselves if the loneliness of dying is not a symbol of our human existence.
+ - I do nothing, granted. But I see the hours pass – which is better than trying to fill them.
+ - Life is possible only by the deficiencies of our imagination and memory.
+ - Glory – once achieved, what is it worth?
+ - By what aberration has suicide, the only truly normal action, become the attribute of the flawed?
+ - A marvel that has nothing to offer, democracy is at once a nation’s paradise and its tomb.
+ - A self-respecting man is a man without a country. A fatherland is birdlime...
+ - Existing is plagiarism.
+ - Jealousy – that jumble of secret worship and ostensible aversion.
+ - We are born to Exist, not to know, to be, not to assert ourselves.
+ - All great ideas should be followed by an exclamation mark – a warning signal similar to the skull and crossbones drawn on high-voltage transformers.
+ - To live entirely without a goal! I have glimpsed this state, and have often attained it, without managing to remain there: I am too weak for such happiness.
+ - Old age, after all, is merely the punishment for having lived.
+ - To have committed every crime but that of being a father.
+ - The universal view melts things into a blur.
+ - Knowledge subverts love: in proportion as we penetrate our secrets, we come to loathe our kind, precisely because they resemble us.
+ - We are all deep in a hell each moment of which is a miracle.
+ - Man started out on the wrong foot. The misadventure in paradise was the first consequence. The rest had to follow.
+ - I have no nationality – the best possible status for an intellectual.
+ - By virtue of depression, we recall those misdeeds we buried in the depths of our memory. Depression exhumes our shames.
+ - Every profound dissatisfaction is of a religious nature: our failures derive from our incapacity to conceive of paradise and to aspire to it, as our discomforts from the fragility of our relations with the absolute.
+ - All people see fires, storms, explosions, or landscapes; but how many feel the flames, the lightnings, the whirlwinds, or the harmony? How many have an inner beauty that tinges their melancholy?
+ - Paradise was unendurable, otherwise the first man would have adapted to it; this world is no less so, since here we regret paradise or anticipate another one. What to do? Where to go? Do nothing and go nowhere, easy enough.
+ - The desire to die was my one and only concern; to it I have sacrificed everything, even death.
+ - Chaos is rejecting all you have learned, chaos is being yourself.
+ - For you who no longer possess it, freedom is everything, for us who do, it is merely an illusion.
+ - No one should forget: Eros alone can fulfill life; knowledge, never. Only Eros makes sense; knowledge is empty infinity;––for thoughts, there is always time; life has its time; there is no thought that comes too late; any desire can become a regret.
+ - Impossible to spend sleepless nights and accomplish anything: if, in my youth, my parents had not financed my insomnias, I should surely have killed myself.
+ - What pride to discover that nothing belongs to you – what a revelation.
+ - Only those moments count, when the desire to remain by yourself is so powerful that you’d prefer to blow your brains out than exchange a word with someone.
+ - The need for novelty is the characteristic of an alienated gorilla.
+ - Life without utopia is suffocating, for the multitude at least: threatened otherwise with petrifaction, the world must have a new madness.
+ - If each of us were to confess his most secret desire, the one that inspires all his plans, all his actions, he would say: “I want to be praised.”
+ - We dread the future only when we are not sure we can kill ourselves when we want to.
+ - Life creates itself in delirium and is undone in ennui.
+ - To get up in the morning, wash and then wait for some unforeseen variety of dread or depression. I would give the whole universe and all of Shakespeare for a grain of ataraxy.
+ - Melancholy: an appetite no misery satisfies.
+ - One cannot live without motives. I have no motives left, and I am living.
+ - I don’t understand how people can believe in God, even when I myself think of him everyday.
+ - All that shimmers on the surface of the world, all that we call interesting, is the fruit of ignorance and inebriation.
+ - To Foreswear vengeance is to chain oneself to forgiveness, to flounder in pardon, to be tainted by the hatred smothered within.
+ - What is that one crucifixion compared to the daily kind any insomniac endures?
+ - By all evidence we are in the world to do nothing.
+ - Philosophy: Impersonal anxiety; refuge among anemic ideas.
+ - We have convictions only if we have studied nothing thoroughly.
+ - What is pity but the vice of kindness.
+ - When you have understood that nothing is, that things do not even deserve the status of appearances, you no longer need to be saved, you are saved, and miserable forever.
+ - The curtain of the universe is moth-eaten, and through its holes we see nothing now but mask and ghost.
+ - No human beings are more dangerous than those who have suffered for a belief.
+ - He who has never envied the vegetable has missed the human drama.
+ - One is and remains a slave as long as one is not cured of hoping.
+ - No human beings more dangerous than those who have suffered for a belief: the great persecutors are recruited from the martyrs not quite beheaded. Far from diminishing the appetite for power, suffering exasperates it.
+ - What I know at sixty, I knew as well at twenty. Forty years of a long, superfluous, labor of verification.
+ - To exist is a habit I do not despair of acquiring.
+ - Every word affords me pain. Yet how sweet it would be if I could hear what the flowers have to say about death!
+ - Tears do not burn except in solitude.
+ - Each time I fail to think about death, I have the impression of cheating, of deceiving someone in me.
+ - History is nothing but a procession of false Absolutes, a series of temples raised to pretexts, a degradation of the mind before the Improbable.
+ - Tolerance – the function of an extinguished ardor – tolerance cannot seduce the young.
+ - Tragic paradox of freedom: the mediocre men who alone make its exercise possible cannot guarantee its duration.
+ - Fear can supplant our real problems only to the extent -unwilling either to assimilate or to exhaust it -we perpetuate it within ourselves like a temptation and enthrone it at the very heart of our solitude.
+ - Just as ecstasy purifies you of the particular and the contingent, leaving nothing except light and darkness, so insomnia kills off the multiplicity and diversity of the world, leaving you prey to your private obsessions.
+ - I do not forgive myself for being born. It is as if creeping into this world, I had profaned a mystery, betrayed some momentous pledge, committed a fault of nameless gravity.
+ - A civilization begins to decline the moment Life becomes its sole obsession.
+ - I seem to myself, among civilized men, an intruder, a troglodyte enamored of decrepitude, plunged into subversive prayers.
+ - No one can keep his griefs in their prime; they use themselves up.
+ - Ennui is the echo in us of time tearing itself apart.
+ - The only free mind is one that, pure of all intimacy with beings or objects, plies its own vacuity.
+ - A sudden silence in the middle of a conversation suddenly brings us back to essentials: it reveals how dearly we must pay for the invention of speech.
+ - Whenever I happen to be in a city of any size, I marvel that riots do not break out everyday: Massacres, unspeakable carnage, a doomsday chaos. How can so many human beings coexist in a space so confined without hating each other to death?
+ - True moral elegance consists in the art of disguising one’s victories as defeats.
+ - A book has to dig through the wounds, more, it has cause a new one, a book it has to be dangerous.
+ - Every thought should recall the ruin of a smile.
+ - A civilization is destroyed only when its gods are destroyed.
+ - Humanity adores only those who cause it to perish.
+ - To want fame is to prefer dying scorned than forgotten.
+ - Lucidity’s task: to attain a correct despair, an Olympian ferocity.
+ - Suffering makes you live time in detail, moment after moment. Which is to say that it exists for you: over the others, the ones who don’t suffer, time flows, so that they don’t live in time, in fact they never have.
+ - A regret understood by no one: the regret to be a pessimist. It’s not easy to be on the wrong foot with life.
+ - God – a disease we imagine we are cured of because no one dies of it nowadays.
+ - Vague a l’ame – melancholy yearning for the end of the world.
+ - My mission is to see things as they are. Exactly contrary of a mission.
+ - I foresee the day when we shall read nothing but telegrams and prayers.
+ - What are you waiting for in order to give up?
+ - It is an understatement to say that in this society injustices abound: In truth it is itself the quintessence of injustice.
+ - A garbled quotation is equivalent to a betrayal, an insult, a prejudice.
+ - Revenge is not always sweet, once it is consummated we feel inferior to our victim.
+ - You are done for – a living dead man – not when you stop loving but stop hating. Hatred preserves: in it, in its chemistry, resides the mystery of life.
+ - Time is heavy sometimes; imagine how heavy eternity must be.
+ - Life inspires more dread than death – it is life which is the great unknown.
+ - We die in proportion to the words we fling around us.
+ - Tyranny destroys or strengthens the individual; freedom enervates him, until he becomes no more than a puppet. Man has more chances of saving himself by hell than by paradise.
+ - The true hero fights and dies in the name of his destiny, and not in the name of a belief.
+ - An existence transfigured by failure.
+ - Discretion is deadly to genius; ruinous to talent.
+ - Not one moment when I have not been conscious of being outside Paradise.
+ - Anyone who speaks in the name of others is always an impostor.
+ - Negation is the mind’s first freedom, yet a negative habit is fruitful only so long as we exert ourselves to overcome it, adapt it to our needs; once acquired it can imprison us.
+ - Once you see that everything is unreal, you can’t see why you should bother to prove it.
+ - Were we to undertake an exhaustive self-scrutiny, disgust would paralyze us, we would be doomed to a thankless existence.
+ - If you lack the power to demoralize yourself along with the age, to go as low and as far, do not complain of being misunderstood by it.
+ - The fear of being deceived is the vulgar version of the quest for Truth.
+ - A golden rule: to leave an incomplete image of oneself.
+ - Only one endowed with restless vitality is susceptible to pessimism. You become a pessimist-a demonic, elemental, bestial pessimist-only when life has been defeated many times in its fight against depression.
+ - Freedom can be manifested only in the void of beliefs, in the absence of axioms, and only where the laws have no more authority than a hypothesis.
+ - What does the future, that half of time, matter to the man who is infatuated with eternity?
+ - Crime in full glory consolidates authority by the sacred fear it inspires.
+ - Philosophers write for professors; thinkers for writers.
+ - To possess a high degree of consciousness, to be always aware of yourself in relation to the world, to live in the permanent tension of knowledge, means to be lost for life.
+ - We must learn how to explode! Any disease is healthier than the one provoked by a hoarded rage.
+ - That history just unfolds, independently of a specified direction, of a goal, no one is willing to admit.
+ - You cannot protect your solitude if you cannot make yourself odious.
+ - Knowledge, having irritated and stimulated our appetite for power, will lead us inexorably to our ruin.
+ - To act is to anchor in the imminent future.
+ - As long as one believes in philosophy, one is healthy; sickness begins when one starts to think.
+ - We are all geniuses when we dream.
+ - Word – that invisible dagger.
+ - In most cases we attach ourselves to in order to take revenge on life, to punish it, to signify we can do without it, that we have found something better, and we also attach ourselves to God in horror of men.
+ - Great persecutors are recruited among martyrs whose heads haven’t been cut off.
+ - To think is to take a cunning revenge in which we camouflage our baseness and conceal our lower instincts.
+ - My mission is to suffer for all those who suffer without knowing it. I must pay for them, expiate their unconsciousness, their luck to be ignorant of how unhappy they are.
+ - There is no means of proving it is preferable to be than not to be.
+ - How good would it be if one could die by throwing oneself into an infinite void.
+ - Self-conscious rejection of the absolute is the best way to resist God; thus illusion, the substance of life, is saved.
+ - Afflicted with existence, each man endures like an animal the consequences which proceed from it. Thus, in a world where everything is detestable, hatred becomes huger than the world and, having transcended its object, cancels itself out.
+ - Every form of talent involves a certain shameless-ness.
+ - Boredom dismantles the mind, renders it superficial, out at the seams, saps it from within and dislocates it.
+ - To devastate by language, to blow up the word and with it the world.
+ - Does our ferocity not derive from the fact that our instincts are all too interested in other people? If we attended more to ourselves and became the center, the object of our murderous inclinations, the sum of our intolerances would diminish.
+ - What to think of other people? I ask myself this question each time I make a new acquaintance. So strange does it seem to me that we exist, and that we consent to exist.
+ - Tolerance cannot seduce the young.
+ - Everything turns on pain; the rest is accessory, even nonexistent, for we remember only what hurts. Painful sensations being the only real ones, it is virtually useless to experience others.
+ - Woes and wonders of Power, that tonic hell, synthesis of poison and panacea.
+ - When every man has realized that his birth is a defeat, existence, endurable at last, will seem like the day after a surrender, like the relief and the repose of the conquered.
+ - To read is to let someone else work for you – the most delicate form of exploitation.
+ - We understand God by everything in ourselves that is fragmentary, incomplete, and inopportune.
+ - The wise man, the sage, is hostile to the new. Disabused, he abdicates: that is his form of protest.
+ - Espousing the melancholy of ancient symbols, I would have freed myself.
+ - Imaginary pains are by far the most real we suffer, since we feel a constant need for them and invent them because there is no way of doing without them.
+ - If we had the courage to confront the doubts we timidly conceive about ourselves, none of us would utter an ‘I’ without shame.
+ - One doesn’t live in a country, one lives in a language.
+ - I never met one interesting mind that was not richly endowed with inadmissible deficiencies.
+ - What every man who loves his country hopes for in his inmost heart: the suppression of half his compatriots.
+ - We must suffer to the end, to the moment when we stop believing in suffering.
+ - To venture upon an undertaking of any kind, even the most insignificant, is to sacrifice to envy.
+ - Progress is the injustice each generation commits with regard to its predecessors.
+ - I do not want to see BP nickel and diming these businesses that are having a tough time.
+ - Criticism is a misconception: we must read not to understand others but to understand ourselves.
+ - To claim you are more detached, more alien to everything than anyone, and to be merely a fanatic of indifference!
+ - I have decided not to oppose anyone ever again, since I have noticed that I always end by resembling my latest enemy.
+ - To act is to anchor in an imminent future, so imminent it becomes almost tangible; to act is to feel you are consubstantial with that future.
+ - I have all the defects of other people yet everything they do seems to me inconceivable.
+ - The literary man? An indiscreet man, who devaluates his miseries, divulges them, tells them like so many beads: immodesty-the sideshow of second thoughts-is his rule; he offers himself.
+ - As art sinks into paralysis, artists multiply. This anomaly ceases to be one if we realize that art, on its way to exhaustion, has become both impossible and easy.
+ - The more intense a spiritual leader’s appetite for power, the more he is concerned to limit it to others.
+ - Far from diminishing the appetite for power, suffering exasperates it.
+ - Truths begin by a conflict with the police – and end by calling them in.
+ - There is not much difference between a mortal man and a dying man. The absurdity of making plans is only slightly more obvious in the second case.
+ - Under each formula lies a corpse.
+ - Nothing is so wearing as the possession or abuse of liberty.
+ - I have always lived with the awareness of the impossibility of living. And what has made existence endurable to me is my curiosity as to how I would get from one minute, one day, one year to the next.
+ - How easy it is to be “deep”: all you have to do is let yourself sink into your own flaws.
+ - The more one has suffered, the less one demands. To protest is a sign one has traversed no hell.
+ - Wherever we go, we come up against the human, a repulsive ubiquity before which we fall into stupor and revolt, a perplexity on fire.
+ - No position is so false as having understood and still remaining alive.
+ - Man must vanquish himself, must do himself violence, in order to perform the slightest action untainted by evil.
+ - A distant enemy is always preferable to one at the gate.
+ - Never to have occasion to take a position, to make up one’s mind, or to define oneself – there is no wish I make more often.
+ - We change ideas like neckties.
+ - Doubt works deep within you like a disease or, even more effectively, like a faith.
+ - Society is not a disease, it is a disaster. What a stupid miracle that one can live in it.
+ - A sensation must have fallen very low to deign to turn into an idea.
+ - To write books is to have a certain relation with original sin. For what is a book if not a loss of innocence, an act of aggression, a repetition of our Fall?
+ - Let us not be needlessly bitter: certain failures are sometimes fruitful.
+ - Illusion begets and sustains the world; we do not destroy one without destroying the other. Which is what I do every day. An apparently ineffectual operation, since I must begin all over again the next day.
+ - So long as man is protected by madness – he functions – and flourishes.
+ - Maniacs of Procreation, bipeds with devalued faces, we have lost all appeal for each other.
+ - What a pity that ‘nothingness’ has been devalued by an abuse of it made by philosophers unworthy of it!
+ - However much I have frequented the mystics, deep down I have always sided with the Devil; unable to equal him in power, I have tried to be worthy of him, at least, in insolence, acrimony, arbitrariness and caprice.
+ - The history of ideas is the history of the grudges of solitary men.
+ - Reality is a creation of our excesses.
+ - On Creating – What we crave, what we want to see in others eyes, is that servile expression, an unconcealed infatuation with our gestures.
+ - In order to have the stuff of a tyrant, a certain mental derangement is necessary.
+ - A people represents not so much an aggregate of ideas and theories as of obsessions.
+ - If, at the limit, you can rule without crime, you cannot do so without injustices.
+ - In a republic, that paradise of debility, the politician is a petty tyrant who obeys the laws.
+ - Between Ennui and Ecstasy unwinds our whole experience of time.
+ - If we manage to last in spite of everything, it is because our infirmities are so many and so contradictory that they cancel each other out.
+ - There was a time when time did not yet exist.
+ - A great step forward was made the day men understood that in order to torment one another more efficiently they would have to gather together, to organize themselves into a society.
+ - Mind, even more deadly to empires than to individuals, erodes them, compromises their solidity.
+ - We cannot consent to be judged by someone who has suffered less than ourselves. And since each of us regards himself as an unrecognized Job...
+ - One hardly saves a world without ruling it.
+ - The more we try to rest ourselves from our Egos, the deeper we sink into it.
+ - Basis of society: anonymous sweat.
+ - Our place is somewhere between being and nonbeing – between two fictions.
+ - We interest others by the misfortune we spread around us.
+ - If a man has not, by the time he is thirty, yielded to the fascination of every form of extremism – I don’t know whether he is to be admired or scorned, regarded as a saint or a corpse.
+ - The source of our actions resides in an unconscious propensity to regard ourselves as the center, the cause, and the conclusion of time. Our reflexes and our pride transform into a planet the parcel of flesh and consciousness we are.
+ - Each concession we make is accompanied by an inner diminution of which we are not immediately conscious.
+ - The capital phenomenon, the most catastrophic disaster, is uninterrupted sleeplessness, that nothingness without release.
+ - Torment, for some men, is a need, an appetite, and an accomplishment.
+ - Who Rebels? Who rises in arms? Rarely the slave, but almost always the oppressor turned slave.
+ - What necessity impels a writer who has produced fifty books to write still one more? Why this proliferation, this fear of being forgotten, this debased coquetry?
+ - Each of us must pay for the slightest damage he inflicts upon a universe created for indifference and stagnation, sooner or later, he will regret not having left it intact.
+ - The mind is the result of the torments the flesh undergoes or inflicts upon itself.
+ - When we cannot be delivered from ourselves, we delight in devouring ourselves.
+ - We have lost, being born, as much as we shall lose dying: Everything!
+ - Intelligence flourishes only in the ages when belief withers.
+
+328 quotes

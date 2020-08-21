@@ -1,0 +1,36 @@
+ - Take care of yourself, be healthy, and always believe you can be successful in anything you truly want.
+ - Feel good. Once you feel good, you look good, too.
+ - One of my favorite beauty products is Vincent Longo Water Canvas creamy blush. I have it in every color and I’ve been using it for 5 years and that’s all I put on when I leave the house. It looks so natural I just put a little bit on my cheeks to give them some color.
+ - I’ve always wanted to be a cardiologist. If I have time I want to study Medicine someday.
+ - I love Cheetos, those hot, spicy kind. And chocolate. Every time I’m in the airport I’m buying Cheetos and eating them on the airplane.
+ - Professional people make everything look perfect, they make everything that you’re wearing look great, if it’s in a picture or on the runway.
+ - And my daughter really likes Justin Bieber, so I think she’ll have fun watching him. But I think Rihanna is the perfect match for the Victoria’s Secret show because she’s really beautiful, she’s really sexy, and she’s really talented.
+ - If I’m two pounds heavier, I’m fat. If I’m skinnier, I’m sick. It’s ridiculous. And that’s not coming from agents or designers.
+ - I speak to my childhood friends almost every day over the Internet.
+ - Before, models had that rock star life and it was all about going to the parties and having that glamorous life, and I think these days, models are more like businesswomen and the whole industry takes it really serious.
+ - When you’re pregnant you just want to be comfortable – but I wear more or less the same as I do when I’m not pregnant: pregnancy denim with normal tops and flat shoes. But when the belly starts to really stick out, I’ll want the floaty dresses!
+ - I’m as vain as everybody else, but if I see a mirror I have to look at myself.
+ - I like to dress pretty basic during the day, but with a sophisticated bohemian spin, and sometimes a little rock chic. At night I like to go glamorous.
+ - I think I’m in better shape now than I was 10 years ago, but it takes a bigger toll – I get back pain!
+ - Believe in yourself. Listen to the photographers you work with, and try to be professional at all time.
+ - Ive been a fashion model for 15 years and designing is just an extension of my career. I still plan on modeling lingerie, but at the same time this is a business transition that I plan to have around for a long time.
+ - I am extremely excited to develop and design a brand representative of my life, experiences and style. Working closely with Cherokee will help establish a worldwide presence with best-in-class retailers and category leaders.
+ - Seriously, I like to wear hats so I don’t get super tan. You have to protect the face.
+ - I try to do yoga once a week.
+ - I’ve seen Bruno Mars before, he’s amazing.
+ - All that matters is that I stay healthy.
+ - I love little teddy bears and little fluffy animals. I buy them all the time.
+ - As long as you’re feeling good with your weight and the way you look, that’s what matters.
+ - I would like to have a big white wedding and eventually have a family.
+ - I’ve been tiny since I was four, and I eat whatever I want.
+ - Here in America, people are very professional.
+ - I’ll never forget my little city! I could talk a whole day about it!
+ - I have been lucky enough to work with the world’s best designers and top stylists – who have been my mentors.
+ - You know, I have a kid on my own, and I know how busy it is, the first weeks and the first month.
+ - I love everybody that I work with, and we have so much fun.
+ - I’m not thinking about me that much anymore. Every time I look, I’m looking for my daughter, you know? If I’m in a store, I’m looking at baby clothes. It’s so much cuter to find things for her than to find things for me.
+ - I want the attention, I love the attention.
+ - Every woman has a different metabolism and different genetics, so rather than compete with one another, concentrate on yourself and be the best you can be.
+ - It isn’t hard to stay in shape.
+
+34 quotes

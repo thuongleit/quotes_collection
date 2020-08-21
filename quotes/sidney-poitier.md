@@ -1,0 +1,88 @@
+ - I am the me I choose to be.
+ - To simply wake up every morning a better person than when I went to bed.
+ - When you walk with someone, something unspoken happens. Either you match their pace or they match yours.
+ - A good deed here, a good deed there, a good thought here, a good comment there, all added up to my career in one way or another.
+ - I have always been a learner because I knew nothing.
+ - So it’s been kind of a long road, but it was a good journey altogether.
+ - Marriage is no way of life for the weak, the selfish, or the insecure.
+ - You don’t have to become something you’re not to be better than you were.
+ - I know how easy it is for one to stay well within moral, ethical, and legal bounds through the skillful use of words – and to thereby spin, sidestep, circumvent, or bend a truth completely out of shape. To that extent, we are all liars on numerous occasions.
+ - True ‘joy’ is the difference between just amusing ourselves to death and creating ‘meaningful’ pleasure.
+ - Acting isn’t a game of “pretend.” It’s an exercise in being real.
+ - I do know that I’m responsible not for what happens, but for what I make of it.
+ - I had chosen to use my work as a reflection of my values.
+ - I defend myself by improving myself.
+ - The journey has been incredible from its beginning.
+ - The older we get the less afraid we are.
+ - When I set out to become an actor, I had set myself a standard.
+ - A person doesn’t have to change who he is to become better.
+ - We’re all imperfect, and life is simply a perpetual, unending struggle against those imperfections.
+ - So I’m OK with myself, with history, my work, who I am and who I was.
+ - If you apply reason and logic to this career of mine, you’re not going to get very far. You simply won’t.
+ - History passes the final judgment.
+ - So much of life, it seems to me, is determined by pure randomness.
+ - In America, it is difficult to be your own man.
+ - Forgiveness works two ways, in most instances. People have to forgive themselves too. The powerful have to forgive themselves for their behavior. That should be a sacred process.
+ - Generally, I tend to despise human behavior rather than human creatures.
+ - As I entered this world, I would leave behind the nurturing of my family and my home, but in another sense I would take their protection with me. The lessons I had learned, the feelings of groundedness and belonging that have been woven into my character there, would be my companions on the journey.
+ - So I had to be careful. I recognized the responsibility that, whether I liked it or not, I had to accept whatever the obligation was. That was to behave in a manner, to carry myself in such a professional way, as if there ever is a reflection, it’s a positive one.
+ - I was the only Black person on the set. It was unusual for me to be in a circumstance in which every move I made was tantamount to representation of 18 million people.
+ - Far as I can tell, I still have most of my hair, my gut is not hanging over my belt, and I still have all of my teeth.
+ - I set my star so high that I would constantly be in motion toward it.
+ - If the image one holds of one’s self contains elements that don’t square with reality, one is best advised to let go of them, however difficult that may be.
+ - Of all my father’s teachings, the most enduring was the one about the true measure of a man. That true measure was how well he provided for his children, and it stuck with me as if it were etched in my brain.
+ - But I always had the ability to say no. That’s how I called my own shots.
+ - My mother was the most amazing person. She taught me to be kind to other women. She believed in family. She was with my father from the first day they met. All that I am, she taught me.
+ - I was a gift to my mother. She was a remarkable person. God or nature, or whatever those forces are, smiled on her, then passed me the best of her.
+ - I am not a hugely religious person, but I believe that there is a oneness with everything. And because there is this oneness, it is possible that my mother is the principal reason for my life.
+ - I always wanted to be someone better the next day than I was the day before.
+ - If you apologize because you are afraid, then you are a child not a man.
+ - My father was a tomato farmer. There is the phrase that says he or she worked their fingers to the bone, well, that’s my dad. And he was a very good man.
+ - My autobiography was simply the story of my life.
+ - I want my great-granddaughter to have a fairly good understanding of the world in which I lived for 81 years and also the world before I came into it – all the way back a hundred thousand years, to the beginning of our species.
+ - I’d seen my father. He was a poor man, and I watched him do astonishing things.
+ - But my dad also was a remarkable man, a good person, a principled individual, a man of integrity.
+ - Every new fashion is a form of rebellion.
+ - I’m going to quit writing.
+ - I couldn’t adjust to the racism in Florida.
+ - Okay listen, you think I’m so inconsequential? Then try this on for size. All those who see unworthiness when they look at me and are given thereby to denying me value – to you I say, I’m not talking about being AS GOOD as you. I hereby declare myself BETTER than you.
+ - Since I couldn’t actuate the things that I wanted to do, the only weapon I had was to say no.
+ - Racism is very painful. That’s life. It never ends.
+ - As a man, I’ve been representative of the values I hold dear. And the values I hold dear are carryovers from the lives of my parents.
+ - I had two roles for which I compromised.
+ - I find myself, at this time in my life, no less challenged, no less plagued, no less intrigued by what I still don’t know.
+ - If I’m remembered for having done a few good things and if my presence here has sparked some good energies, that’s plenty.
+ - My father was the quintessential husband and dad.
+ - I have a kind of respect – a worshipful attitude, even – for nature and the natural order and the cosmos and the seasons...
+ - I wouldn’t change a single thing, because one change alters every moment that follows it.
+ - My father was a poor man, very poor in a British colonial possession where class and race were very important.
+ - I lived in a country where I couldn’t live where I wanted to live. I lived in a country where I couldn’t go where I wanted to eat. I lived in a country where I couldn’t get a job, except for those put aside for people of my colour or caste.
+ - My father was a certain kind of man – I saw how he treated my mother and his family and how he treated strangers. And I vowed I would never make a film that would not reflect properly on my father’s name.
+ - I was born two months early, and everyone had given up on me. But my mother insisted on my life.
+ - I think the way I want to think. I live the way I want to live.
+ - Jackie Robinson is a true legend.
+ - I had learned something of Miami from people who had visited there, so I knew what to expect.
+ - There is not racial or ethnic domination of hopelessness. It’s everywhere.
+ - I learned to hear silence. That’s the kind of life I lived: simple. I learned to see things in people around me, in my mom, dad, brothers and sisters.
+ - The impact of the black audience is expressing itself. They look to films to be more expressive of their needs, their lives. Hollywood has gotten that message – finally.
+ - If you are anxious about death, then you don’t have a sense of the oneness of things-you feel that after death, you will be no more.
+ - I don’t very often read novels.
+ - I decided in my life that I would do nothing that did not reflect positively on my father’s life.
+ - I cannot be understood in three minutes.
+ - I didn’t run into racism until we moved to Nassau when I was ten and a half, but it was vastly different from the kind of horrendous oppression that black people in Miami were under when I moved there at 15. I found Florida an antihuman place.
+ - I would like to grow less afraid of dying. I am infinitely less afraid today than I was 15 or 25 years ago. I was most afraid of dying when I was 33, because I come from a Catholic family.
+ - I was not the kind of a principal player that was so in demand that eight or 10 or 12 scripts came per month.
+ - To be compared to Jackie Robinson is an enormous compliment, but I don’t think it’s necessarily deserved.
+ - My father was very big on marriage.
+ - Accept that environment compromises values far more than values do their number on environment.
+ - I knew what it was to be uncomfortable in a movie theater watching unfolding on the screen images of myself – not me, but black people – that were uncomfortable.
+ - I sometimes like the pictures photographers take of me.
+ - I had to satisfy the action fans, the romantic fans, the intellectual fans. It was a terrific burden.
+ - I did not go into the film business to be symbolized as someone else’s vision of me.
+ - I wanted to explore the values that are at work, underpinning my life.
+ - I was fortunate enough to have been raised to a certain point before I got into the race thing. I had other views of what a human is, so I was never able to see racism as the big question. Racism was horrendous, but there were other aspects to life.
+ - An appreciable number of directors have shifted to lower-cost films, allowing them to be satisfied with a more modest return.
+ - I come from a great family. I’ve seen family life and I know how wonderful, how nurturing, and how wonderful it can be.
+ - Mine was an easy ride compared to Jackie Robinson’s.
+
+86 quotes

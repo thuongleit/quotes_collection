@@ -1,0 +1,64 @@
+ - Supply creates its own demand.
+ - The entrepreneur shifts economic resources out of an area of lower and into an area of higher productivity and greater yield.
+ - Valuation is vague and arbitrary, when there is no assurance that it will be generally acquiesced in by others.
+ - It is the aim of good government to stimulate production, of bad government to encourage consumption.
+ - The love of domination never attains more than a factitious elevation, that is sure to make enemies of all its neighbours.
+ - But, is it possible for princes and ministers to be enlightened, when private individuals are not so?
+ - Whence it is evident that the remedy must be adapted to the particular cause of the mischief; consequently, the cause must be ascertained, before the remedy is devised.
+ - Dominion by land or sea will appear equally destitute of attraction, when it comes to be generally understood, that all its advantages rest with the rulers, and that the subjects at large derive no benefit whatever.
+ - The manner in which things exist and take place, constitutes what is called the nature of things; and a careful observation of the nature of things is the sole foundation of all truth.
+ - All those who, since Adam Smith, have turned their attention to Political Economy, agree that in reality we do not buy articles of consumption with money, the circulating medium with which we pay for them. We must in the first instance have bought this money itself by the sale of our produce.
+ - The occupation of the stock-jobber yields no new or useful product; consequently having no product of his own to give in exchange, he has no revenue to subsist upon, but what he contrives to make out of the unskilfulness or ill-fortune of gamesters like himself.
+ - The best scheme of finance is, to spend as little as possible; and the best tax is always the lightest.
+ - The sea and wind can at the same time convey my neighbour’s vessel and my own.
+ - Capital must work, as it were, in concert with industry; and this concurrence is what I call the productive agency of capital.
+ - What would people think of a tradesman, that was to give a ball in his shop, hire performers, and hand refreshments about, with a view to benefit his business?
+ - In times of political confusion, and under an arbitrary government, many will prefer to keep their capital inactive, concealed, and unproductive, either of profit or gratification, rather than run the risk of its display. This latter evil is never felt under a good government.
+ - Demand and supply are the opposite extremes of the beam, whence depend the scales of dearness and cheapness; the price is the point of equilibrium, where the momentum of the one ceases, and that of the other begins.
+ - The difficulty lies, not in finding a producer, but in finding a consumer.
+ - Alas, how many have been persecuted for the wrong of having been right?
+ - The luxury of ostentation affords a much less substantial and solid gratification, than the luxury of comfort, if I may be allowed the expression.
+ - The wants of mankind are supplied and satisfied out of the gross values produced and created, and not out of the net values only.
+ - A shop-keeper in good business is quite as well off as a pedlar that travels the country with his wares on his back. Commercial jealousy is, after all, nothing but prejudice: it is a wild fruit, that will drop of itself when it has arrived at maturity.
+ - The ancients, by their system of colonization, made themselves friends all over the known world; the moderns have sought to make subjects, and therefore have made enemies.
+ - The quantity of money, which is readily parted with to obtain a thing is called its price.
+ - A tax can never be favorable to the public welfare, except by the good use that is made of its proceeds.
+ - The property a man has in his own industry, is violated, whenever he is forbidden the free exercise of his faculties or talents, except insomuch as they would interfere with the rights of third parties.
+ - The theory of interest was wrapped in utter obscurity, until Hume and Smith dispelled the vapor.
+ - No human being has the faculty of originally creating matter, which is more than nature itself can do. But any one may avail himself of the agents offered him by nature, to invest matter with utility.
+ - With respect to the present time, there are few persons who unite the qualifications of good observers with a situation favourable for accurate observation.
+ - It is a melancholy but an undoubted fact, that, even in the most thriving countries, part of the population annually dies of mere want. Not that all who perish from want absolutely die of hunger; though this calamity is of more frequent occurrence than is generally supposed.
+ - Nothing can be more idle than the opposition of theory to practice!
+ - And let no government imagine, that, to strip them of the power of defrauding their subjects, is to deprive them of a valuable privilege. A system of swindling can never be long lived, and must infallibly in the end produce much more loss than profit.
+ - When war becomes a trade, it benefits, like all other trades, from the division of labour.
+ - What can we expect from nations still less advanced in civilization than the Greeks?
+ - At Newfoundland, it is said, that dried cod performs the office of money.
+ - To have never done anything but make the eighteenth part of a pin, is a sorry account for a human being to give of his existence.
+ - The day will come, sooner or later, when people will wonder at the necessity of taking all this trouble to expose the folly of a system, so childish and absurd, and yet so often enforced at the point of a bayonet.
+ - One product is always ultimately bought with another, even when paid for in the first instance with money.
+ - Capital in the hands of a national government forms a part of the gross national capital.
+ - The celebrated Adam Smith was the first to point out the immense increase of production, and the superior perfection of products referable to this division of labour.
+ - It is doubtless very desirable, that private persons should have a correct knowledge of their personal interests; but it must be infinitely more so, that governments should possess that knowledge.
+ - The command of a large sum is a dangerous temptation to a national administration. Though accumulated at their expense, the people rarely, if ever profit by it: yet in point of fact, all value, and consequently, all wealth, originates with the people.
+ - An uniformity of weights and measures, arranged upon mathematical principles, would be a benefit to the whole commercial world, if it were wise enough to adopt such an expedient.
+ - When a tree, a natural product, is felled, is society put into possession of no greater produce than that of the mere labour of the woodman?
+ - If the community wish to have the benefit of more knowledge and intelligence in the labouring classes, it must dispense it at the public charge.
+ - Political economy has only become a science since it has been confined to the results of inductive investigation.
+ - But what must be the character of that policy, which aims at national prosperity through the impoverishment of a large proportion of the home producers, with a view to supply foreigners at a cheaper rate, and give them all the benifet of the national privation and self denial?
+ - Law has been unjustly charged with the whole blame of the calamities resulting from the scheme that bears his name.
+ - What is the motive which operates in every man’s breast to counteract the impulse towards the gratification of his wants and appetites?
+ - I have made no distinction between the circulation of goods and of money, because there really is none.
+ - Taxation being a burthen, must needs weigh lightest on each individual, when it bears upon all alike.
+ - Wherefore it is impossible to succeed in comparing wealth of different eras or different nations. This, in political economy, like squaring the circle in mathematics, is impracticable, for want of a common mean or measure to go by.
+ - Still how unenlightened and ignorant are the very nations we term civilized!
+ - A science only advances with certainty, when the plan of inquiry and the object of our researches have been clearly defined; otherwise a small number of truths are loosely laid hold of, without their connexion being perceived, and numerous errors, without being enabled to detect their fallacy.
+ - Some writers maintain arithmetic to be only the only sure guide in political economy; for my part, I see so many detestable systems built upon arithmetical statements, that I am rather inclined to regard that science as the instrument of national calamity.
+ - The wealthy are generally impressed with an idea, that they shall never stand in need of public charitable relief; but a little less confidence would become them better.
+ - A nation or an individual, will do wisely to direct consumption chiefly to those articles, that are longest time in wearing out, and the most frequently in use.
+ - A treasure does not always contribute to the political security of its possessors. It rather invites attack, and very seldom is faithfully applied to the purpose for which it was destined.
+ - Nothing is more dangerous in practice, than an obstinate, unbending adherence to a system, particularly in its application to the wants and errors of mankind.
+ - Opulent, civilized, and industrious nations, are greater consumers than poor ones, because they are infinitely greater producers.
+ - The government has, in all countries, a vast influence, in determining the character of the national consumption; not only because it absolutely directs the consumption of the state itself, but because a great proportion of the consumption of individuals is gained by its will and example.
+ - The United States will have the honour of proving experimentally, that true policy goes hand in hand with moderation and humanity.
+
+62 quotes

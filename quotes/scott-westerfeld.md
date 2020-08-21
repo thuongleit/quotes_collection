@@ -1,0 +1,138 @@
+ - What you do, the way you think, makes you beautiful.
+ - Life doesn’t come with an instruction manual.
+ - My name is tally youngblood and my mind is very ugly.
+ - Hard work’s a good distraction.
+ - I don’t want to hurt you but I will if I have too – Tally Youngblood.
+ - Sometimes, the hardest thing was doing nothing.
+ - In a world of extreme beauty, anyone normal is ugly.
+ - I guess sometimes you have to lie to find the truth.
+ - When she awoke, the world was on fire.
+ - Never bored on a hoverboard.
+ - Perhaps the logical conclusion of everyone looking the same is everyone thinking the same.
+ - It’s not the traveling that takes courage Tally. I’ve done much longer trips on my own. It’s leaving home.
+ - You see, freedom has a way of destroying things.
+ - The early summer sky was the color of cat vomit.
+ - The human heart is a strange vessel. Love and hatred can exist side by side.
+ - We don’t always get to choose what we love.
+ - Maybe that was the price of loving someone: You lost your grasp of where they ended and you began.
+ - He makes me feel like that. Like flying.
+ - The flowers were so beautiful, so delicate and unthreatening, but they choked everything around them.
+ - Around the outskirts of the city, cut off from town by the black oval of the river, everything was in darkness. Everyone ugly was in bed by now.
+ - I love my virginity to the apocalypse.
+ - At least one thing was consistent about her life: It just kept on getting more complicated.
+ - I have no formal training as a writer at all, not even a single English class in college.
+ - Having a brain hurt so much sometimes.
+ - Sometimes the facts in my head get bored and decide to take a walk in my mouth. Frequently this is a bad thing.
+ - What if destiny doesn’t care?
+ - As a bio major, I figured “free will” meant chemicals in your brain telling you what to do, the molecules bouncing around in a way that felt like choosing but was actually the dance of little gears – neurons and hormones bubbling up into decisions like clockwork. You don’t use your body; it uses you.
+ - What happens when perfection isn’t good enough?
+ - No matter how far from the war we run, it always catches up with us.
+ - Your personality – the real you inside – was the price of beauty.
+ - We’re not freaks, Tally. We’re normal. We may not be gorgeous, but at least we’re not hyped-up Barbie dolls.
+ - Her only way home was to betray her friend.
+ - She thought of the orchids spreading across the plains below, choking the life out of other plants, out of the soil itself, selfish and unstoppable. Tally Youngblood was a weed. And, unlike the orchids, she wasn’t even a pretty one.
+ - Barking hard work, being a boy.
+ - Maybe they didn’t want you to realize that every civilization has its weakness. There’s always one thing we depend on. And if someone takes it away all that’s left is some story in a history class.
+ - Let others wage war. You, lucky Austria, shall marry.
+ - The early summer sky was the color of cat vomit. Of course, Tally thought, you’d have to feed your cat only salmon-flavored cat food for a while, to get the pinks right.
+ - Shay sometimes talked in a mysterious way, like she was quoting the lyrics of some band no one else listened to.
+ - The lie took form as she spoke, pulling on as many strands of truth as it could reach.
+ - Out here, you find out that the city fools you about how things really work.
+ - Left alone, human beings are a plague. They multiply relentlessly, consuming every resource, destroying everything they touch.
+ - She wasn’t here to gawk. She was an infiltrator, a sneak, an ugly. And she had a mission.
+ - Never give us what we really want. Cut the dream into pieces and scatter them like ashes. Dole out the empty promises. Package our aspirations and sell them to us, cheaply made enough to fall apart.
+ - Sometimes you can’t choose what you love.
+ - The Rusty Ruins were the remains of an old city, a hulking reminder of back when there’d been way too many people, and everyone was incredibly stupid. And ugly.
+ - I’d watched too many schoolmates graduate into mental institutions, into group homes and jails, and I knew that locking people up was paranormal – against normal, not beside it. Locks didn’t cure; they strangled.
+ - I feel like sometimes my best friend is not my best friend but my mortal enemy.
+ - High school wasn’t a trial by fire or some ordeal that had to be survived. It was all a big joke. You just had to provide the laugh track.
+ - I love you all. But it’s time to say good-bye, for now. be careful with the world, or the next time we meet, it might get ugly. -Tally Youngblood.
+ - And a special thanks for not burning up the whole ship. Including yourself, you daft bum-rag.
+ - It doesn’t take much convincing to make someone believe they’re better than everyone else.
+ - I spilled more times than a glass of milk on a roller coaster.
+ - I’ve learned a lot about stage-managing for illustration. Sometimes you have to delete characters from a scene just to keep from overcrowding the image. I’ve also learned to making big-scale design decisions early.
+ - A rousing tale of techno-geek rebellion, as necessary and dangerous as file sharing, free speech, and bottled water on a plane.
+ - However stupid the choice seemed, Shay had made it with her eyes open, and had respected Tally’s choice to stay.
+ - Irony is always the best weapon against fascism.
+ - You can’t blame a match for a house made of straw, Alek.
+ - It’s amazing how quickly nature consumes human places after we turn our backs on them. Life is a hungry thing.
+ - History would indicate that the majority of people have always been sheep.
+ - The very idea of making shoes by hand boggled her mind.
+ - But you weren’t born expecting that kind of beauty in everyone, all the time. You just got programmed into thinking anything else is ugly.
+ - Apparently textbooks were an endangered species here in Bixby, Oklahoma.
+ - All that glitters is not hovery.
+ - Sometimes it felt like her life was a series of falls from ever-greater heights.
+ - I go where the lizards tell me.
+ - That’s how things were out here in the wild, she was learning. Dangerous or beautiful. Or both.
+ - Emperors are vain and useless things.
+ - Two weeks of killer sunburn is worth a lifetime of being gorgeous.
+ - Tally wondered if you could talk somebody out of their brain damage.
+ - I’m not against thinking; I’m only against thinking that thinking on its own will get you out of a hole. Shovel also needed.
+ - Money’s the same, whoever gives it to you. That was the point of money, after all: crisp and clean or wrinkled or disintegrated into quarters – a dollar was always worth a hundred cents.
+ - Maybe kissing is sort of like nature’s coffee. -Jonathan.
+ - Even bloody and bruised, he had an odd sort of swagger, as if he crash-landed in giant air ships every day.
+ - A rat called Possible New Strain was sitting under a spaghetti strainer held down with a pile of journalism textbooks, saying rude things in rat-speak.
+ - The world needed more fireworks- especially now that there was going to be a shortage of beautiful, useless things.
+ - Everyone in the world was programmed by the place they were born, hemmed in by their beliefs, but you had to at least try to grow your own brain.
+ - Sooner or later usually means too late.
+ - She carried a knife inside of herself now, one that was always cutting her. She could feel it every time she swallowed, every time her thoughts strayed from the splendor of the wild.
+ - Tally, do you ever suffer from sudden flashes of anger or euphoria, countersocial impulses, or feelings of superiority?
+ - Gravity was something you could beat; all it took was hydrogen, hot air, or even a bit of rope. But being a girl was a miserable, never-ending struggle.
+ - That was one problem with dramatic exits: Sometimes they wound up making you look like a bubblehead.
+ - Maybe she still was a pretty-head, making up irrational stories about the empty forest. The longer she stayed alone out here, the more Tally understood why the Rusties and their predecessors had believed in invisible beings, praying to placate spirits as they trashed the natural world around them.
+ - Not everything made you stronger. It was possible to survive, yet still be crippled for your trouble. Sometimes it was okay to run away, to skip the test, to chicken out. Or at least to get some help.
+ - Fuzzy Tally is no more.
+ - Their reasons don’t mean anything unless I have a choice.
+ - Maybe this was how you stayed sane in wartime: a handful of noble deeds amid the chaos.
+ - Reality had no gears, and you never knew what surprises would come spinning out of its chaos.
+ - You’d think that in a fight, NOT MOVING would be a bad habit!
+ - Perhaps it’s worth saying again: One reader’s discomfort should never stand in the way of another reader’s survival.
+ - But you know what? It’s not my behavior I’m worried about anymore. It’s yours.
+ - Luckily for writers – and unluckily for history – every scientific idea creates human conflict.
+ - And it was pretty clear that no prince was showing up, or at least that he was really late.
+ - Turns out if you never lie, there’s always someone mad at you.
+ - And here in America rival newspapermen attack each other on sight?
+ - That Shay was in possesion of hand grenades was a comforting thought showed what kind of night this had become.
+ - I wouldn’t say design has become strictly functional. A lot of cars these days look downright comic book to me, and the info-gadgets with which late industrial people spend the most time – phones, music players, etc. – are blobjects.
+ - Which was worse: a friend with brain damage, or one who despised you?
+ - Where did you get that idea for a nose? – Frizz Mizuno.
+ - A little drama wins more friends than boring.
+ - Tally turned away. Five minutes was suddenly too long to stand here, eyes burning, unable to cry.
+ - There was a species of middle pretty who smiled at everything: happy smile, disappointed smile, you’re-in-trouble smile.
+ - It didn’t matter what you looked like. It was how you carried yourself, how you saw yourself.
+ - The man was allergic to sleep.
+ - When the term machine gun enters common parlance, the word machine becomes much more sinister.
+ - Haven’t you ever known someone rejected by a lover, who, consumed by rage and jealousy, never lets go? They look on from a distance, unseen but boiling inside. The emotion never seems to tire, this hatred mixed with intense obsession, even with a kind of twisted love.
+ - You young things are too easily persuaded by the touch of lips.
+ - People only worry about the uncanny for about a week; that’s the end of their attention span. After that, suspicions turn into shtick.
+ - That was the whole point of being special: You existed to make sure everyone else behaved, but that didn’t mean YOU had to.
+ - I can’t imagine anything worse than being required to have fun.
+ - Barking spiders!
+ - Listen, you bubblehead-up-until-five-minutes-ago...
+ - To everyone who loves a long-secret romance, revealed at last.
+ - This is the power of the Goliath, that no one on earth, Clanker or Darwinist, can escape. So we all must learn to share the globe, or perish together!
+ - Junkies might be easy to knock down, but they’re never fragile. They have souls like old leather shoes studded with steel, and they’re about as much good as friends.
+ - Good books make you ask questions. Bad readers want everything answered.
+ - We needed to become world-famous soon, while there was still that kind of world to be famous in...
+ - One of the most common questions writers are asked is “Where do you get your ideas?” But the sad truth is, we don’t know. Ideas can come at any time and from any direction: in the shower, waiting for an elevator, or while bouncing across Wikipedia pages.
+ - You fiddle lucker!? she cried.
+ - Suddenly a pair of searchlights lanced out from the frigate. They swept across the dark expanse – bright knives slicing the night into pieces.
+ - What did a happy ending even mean in real life, anyway? In stories you simply said, ‘They lived happily ever after,’ and that was it. But in real life people had to keep on living, day after day, year after year.
+ - I’m not the one going for a biology degree. I’m just a philosophy major who eats people.
+ - Dying is one of those things that can’t be fixed. Not by talking about it, not with all the brain surge in the world.
+ - You look beautiful – David.
+ - The Internet is global and seemingly omniscient, while iPods and phones are all microscopic workings encased in plastic blobjects. Compare that to a steam engine, where you can watch the pistons move and feel the heat of its boilers. I think we miss that visceral appeal of the machine.
+ - Come on, it’s almost midnight. Let’s go watch them cut the cake.
+ - Even mocking people helped their face stats. In the reputation economy, the only real way to hurt anyone was to ignore them completely. And it was pretty hard to ignore someone who made your blood boil.
+ - Nature was tough, it could be dangerous, but unlike Dr. Cable or shay, or peris-unlike people in general-it made sense. The problems it threw at you could be solved rationally.
+ - Most men’s awareness doesn’t extend past their dinner plates.
+ - I like my first lines short and declarative. No complicated sentences. Of course, that’s not really a Scott thing. It’s pretty classic grab-the-reader technique.
+ - Dare to ask, “Where is my novel too simple?”
+ - Typographical laziness was slowly destroying our culture, according to Lexa and her pals. Inexactitude was death.
+ - Perhaps Clankers and Darwinists would always be at war, if only in their hearts.
+ - Frighteningly Beautiful, Dangerously Strong, Breathtakingly Fast. Face it Tally-wa you’re special...
+ - Once you told yourself a story enough times, it was so easy to keep on believing it.
+ - If you see everything through hovercams and feed stories, you wind up blind to what’s right in front of you.
+ - Nature didn’t need an operation to be beautiful. It just was.
+
+136 quotes

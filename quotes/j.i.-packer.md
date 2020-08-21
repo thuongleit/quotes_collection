@@ -1,0 +1,176 @@
+ - The stars may fall, but God’s promises will stand and be fulfilled.
+ - There’s a difference between knowing God and knowing about God. When you truly know God, you have energy to serve Him, boldness to share Him, and contentment in Him.
+ - The fruit of wisdom is Christlikeness, peace, humility and love. And, the root of it is faith in Christ as the manifested wisdom of God.
+ - The task of the church is to make the invisible Kingdom visible through faithful Christian living and witness-bearing .
+ - Your faith will not fail while God sustains it; you are not strong enough to fall away while God is resolved to hold you.
+ - The Holy Spirit’s main ministry is not to give thrills but to create in us Christlike character.
+ - The Christmas message is that there is hope for a ruined humanity – hope of pardon, hope of peace with God, hope of glory – because at the Father’s will Jesus became poor, and was born in a stable so that thirty years later He might hang on a cross.
+ - Maturity is a compound of wisdom, goodwill, resilience, and creativity.
+ - The gift of sonship to God becomes ours not through being born, but through being born again.
+ - God made us thinking beings, and he guides our minds as we think things out in his presence.
+ - Men treat God’s sovereignty as a theme for controversy, but in Scripture it is matter for worship.
+ - Adoption is the highest privilege the gospel offers.
+ - It is here, in the thing that happened at the first Christmas, that the most profound unfathomable depths of the Christian revelation lie. God became man; Nothing in fiction is so fantastic as this truth of the incarnation.
+ - What God does in time, He planned from eternity. And all that He planned in eternity He carries out in time.
+ - Revelation does not mean man finding God, but God finding man, God sharing His secrets with us, God showing us Himself. In revelation, God is the agent as well as the object.
+ - The grace of God is love freely shown toward guilty sinners, contrary to their merit and indeed in defiance of their demerit.
+ - Repentance is more than just sorrow for the past; repentance is a change of mind and heart, a new life of denying self and serving the Savior as king in self’s place.
+ - A wise man had said that your Christian life is like a three-legged stool. The legs are doctrine, experience and practice, which is obedience; and you, will not stay upright unless all three are there. In recent years many Christians have not kept these three together.
+ - A half-truth masquerading as the whole truth becomes a complete untruth.
+ - There is unspeakable comfort in knowing that God is constantly taking knowledge of me in love and watching over me for my good.
+ - What is a Christian? The richest answer I know is that a Christian is one who has God as Father.
+ - Our aim in studying the Godhead must be to know God himself better. Our concern must be to enlarge our acquaintance, not simply with the doctrine of God’s attributes, but with the living God whose attributes they are.
+ - Man is a responsible moral agent, though he is also divinely controlled; man is divinely controlled, though he is also a responsible moral agent.
+ - There is tremendous relief in knowing that His love to me is based at every point on prior knowledge of the worst about me.
+ - Our high and privileged calling is to do the will of God in the power of God for the glory of God.
+ - Once you become aware that the main business that you are here for is to know God, most of life’s problems fall into place of their own accord.
+ - There are no small sins against a great God.
+ - Sanctification has a double aspect. Its positive side is vivification, the growing and maturing of the new man; its negative side is mortification, the weakening and killing of the old man.
+ - Meditation is the activity of calling to mind, and thinking over, and dwelling on, and applying to oneself, the various things that one knows about the works and ways and purposes and promises of God.
+ - God has not abandoned us any more than he abandoned Job. He never abandons anyone on whom he has set his love; nor does Christ, the good shepherd, ever lose track of his sheep.
+ - God is triune; there are within the Godhead three persons, the Father, the Son and the Holy Spirit; and the work of salvation is one in which all three act together, the Father purposing redemption, the Son securing it and the Spirit applying it.
+ - Disregard the study of God, and you sentence yourself to stumble and blunder through life blindfolded.
+ - For what higher, more exalted, and more compelling goal can there be than to know God?
+ - God uses chronic pain and weakness, along with other afflictions, as his chisel for sculpting our lives.
+ - A little knowledge OF God is worth more than a great deal of knowledge ABOUT him.
+ - We need to discover all over again that worship is natural to the Christian, as it was to the godly Israelites who wrote the psalms, and that the habit of celebrating the greatness and graciousness of God yields an endless flow of thankfulness, joy, and zeal.
+ - Justification is the truly dramatic transition from the status of a condemned criminal awaiting a terrible sentence to that of an heir awaiting a fabulous inheritance.
+ - In the New Testament grace means God’s love in action towards men who merited the opposite of love. Grace means God moving heaven and earth to save sinners who could not lift a finger to save themselves.
+ - There is, however, equally great incentive to worship and love God in the thought that, for some unfathomable reason, He wants me as His friend, and desires to be my friend, and has given His Son to die for me in order to realize this purpose. not merely that we know God, but that He knows us.
+ - The unceasing activity of the Creator whereby, in overflowing bounty and goodwill, He upholds His creatures in ordered existence, guides and governs all events, circumstances, and free acts of angels and men, and directs everything to its appointed goal, for His own glory.
+ - Wisdom is the power to see, and the inclination to choose, the best and highest goal, together with the surest means of attaining it.
+ - The gospel does in truth proclaim the redemption of reason. Obscurantism is always evil, and wilful error is always sin., All truth is God’s truth; facts, as such, are sacred, and nothing is more un-Christian than to run away from them.
+ - The preachers commission is to declare the whole counsel of God; but the cross is the center of that counsel.
+ - Revival is the visitation of God which brings to life Christians who have been sleeping and restores a deep sense of God’s near presence and holiness. Thence springs a vivid sense of sin and a profound exercise of heart in repentance, praise, and love, with an evangelistic outflow.
+ - To know that nothing happens in God’s world apart from God’s will may frighten the godless, but it stabilizes the saints.
+ - We meet God through entering into a relationship both of dependance on Jesus as our Saviour and Friend and of discipleship to Him as our Lord and Master.
+ - Holy people glory, not in their holiness, but in Christ’s cross; for the holiest saint is never more than a justified sinner and never sees himself in any other way.
+ - Grace means God sending his only Son to the cross to descend into hell so that we guilty ones might be reconciled to God and received into heaven.
+ - You can know a lot about God and godliness and still not know God.
+ - A God whom we could understand exhaustively, and whose revelation of Himself confronted us with no mysteries whatsoever, would be a God in man’s image, and therefore an imaginary God, not the God of the Bible at all.
+ - All true theology has an evangelistic thrust, and all true evangelism is theology in action.
+ - I must ask the Lord to direct the Holy Spirit within me to drain the life out of sin and in prayer.
+ - Any theology that does not lead to song is, at a fundamental level, a flawed theology.
+ - The way to be truly happy is to be truly human, and the way to be truly human is to be truly godly.
+ - The Church no more gave us the New Testament canon than Isaac Newton gave us the force of gravity.
+ - God made life, and God alone can tell us its meaning.
+ - Christian minds have been conformed to the modern spirit: the spirit, that is, that spawns great thoughts of man and leaves room for only small thoughts of God.
+ - The Holy Spirit is God the evangelist.
+ - The Evangelical is not afraid of facts, for he knows that all facts are God’s facts; nor is he afraid of thinking, for he knows that all truth is God’s truth, and right reason cannot endanger sound faith.
+ - I never get to the end of mortifying sin because sin in my heart, where it’s still marauding even though it’s no longer dominant, sin in my heart is constantly expressing itself in new disorderly desires.
+ - Think against your feelings; unmask the unbelief they have nourished; let evangelical thinking correct emotional thinking.
+ - Ease and luxury, such as our affluence brings today, do not make for maturity; hardship and struggle however do.
+ - The Almighty appeared on earth as a helpless human baby, needing to be fed and changed and taught to talk like any other child. The more you think about it, the more staggering it gets. Nothing in fiction is so fantastic as this truth of the Incarnation.
+ - God’s overriding goal is to glorify Himself.
+ - In common honesty, we must not conceal the fact that free forgiveness in one sense will cost everything.
+ - Nothing in fiction is so fantastic as is this truth of the Incarnation.
+ - My advice to a new husband is nothing more than ‘husbands, love your wives.’ And ‘love your wife as Christ has loved the church.’ Never forget that you are Christ’s representative in serving your wife.
+ - If I were the devil, one of my first aims would be to stop folk from digging into the Bible.
+ - God’s wrath is his righteousness reacting against unrighteousness.
+ - The weaker we feel, the harder we lean. And the harder we lean, the stronger we grow spiritually, even while our bodies waste away.
+ - Doctrinal preaching certainly bores the hypocrites; but it is only doctrinal preaching that will save Christ’s sheep.
+ - The Trinity is the basis of the gospel, and the gospel is a declaration of the Trinity in action.
+ - The meaning of “He will give us all things” can be put thus: one day we will see that nothing – literally nothing – which could have increased our eternal happiness has been denied us, and that nothing – literally nothing – that could have reduced that happiness has been left with us.
+ - To know God’s love is indeed heaven on earth.
+ - The peace of God is first and foremost peace with God; it is the state of affairs in which God, instead of being against us, is for us. No account of God’s peace which does not start here can do other than mislead.
+ - The incarnation is in itself an unfathomable mystery, but it makes sense of everything else that the New Testament contains.
+ - We are not fit for a place in God’s family; the idea of his loving and exalting us sinners as he loves and has exalted the Lord Jesus sounds ludicrous and wild – yet that, and nothing less than that, is what our adoption means.
+ - Pelagianism is the natural heresy of zealous Christians who are not interested in theology.
+ - What makes life worthwhile is having a big enough objective, something which catches our imagination and lays hold of our allegiance, and this the Christian has in a way that no other person has. For what higher, more exalted, and more compelling goal can there be than to know God?
+ - Our best works are shot through with sin and contain something for which we need to be forgiven.
+ - We must learn to measure ourselves, not by our knowledge about God, not by our gifts and responsibilities in the church, but by how we pray and what goes on in our hearts. Many of us, I suspect, have no idea how impoverished we are at this level. Let us ask the Lord to show us.
+ - How can we turn our knowledge about God into knowledge of God? The rule for doing this is simple but demanding. It is that we turn each Truth that we learn about God into matter for meditation before God, leading to prayer and praise to God.
+ - A simple Bible reader and sermon hearer who is full of the Holy Spirit will develop a far deeper acquaintance with his God and Savior than a more learned scholar who is content with being theologically correct.
+ - There is no peace like the peace of those whose minds are possessed with full assurance that they have known God, and God has known them, and that this relationship guarantees God’s favor to them in life, through death and on for ever.
+ - If we pursue theological knowledge for its own sake, it’s bound to go bad on us. It will make us proud and conceited.
+ - To mend our own relationship with God, regaining God’s favor after having once lost it, is beyond the power of any one of us. And one must see and bow to this before one can share the biblical faith in God’s grace.
+ - Only when you know how to die can you know how to live.
+ - The Puritan ethic of marriage was first to look not for a partner whom you do love passionately at this moment but rather for one whom you can love steadily as your best friend for life, then to proceed with God’s help to do just that.
+ - If our theology does not quicken the conscience and soften the heart, it actually hardens both.
+ - We never move on FROM the Gospel, we move on IN the Gospel.
+ - The Life of true holiness is rooted in the soil of awed adoration.
+ - Even when we cannot see the why and wherefore of God’s dealings, we know that there is love in and behind them, and so we can rejoice always.
+ - What matters supremely, therefore, is not, in the last analysis, the fact that I know God, but the larger fact which underlies it – the fact that He knows me.
+ - Sinners cannot obey the gospel, any more than the law, without renewal of heart.
+ - Always and everywhere the servants of Christ are under orders to evangelize.
+ - This one word ‘grace’ contains within itself the whole of New Testament theology.
+ - There is nothing more irreligious than self-absorbed religion.
+ - There are two sorts of sick consciences, those that are not aware enough of sin and those that are not aware enough of pardon.
+ - What we often feel in ecstatic moments in this world – ‘I don’t ever want this to stop’ – will be the constant thought of our hearts in that world. We shall think it, knowing that in fact it never WILL stop.
+ - It is staggering that God should love sinners, yet it is true.
+ - God then does not profess to answer in Scripture all the questions that we, in our boundless curiosity, would like to ask about Scripture. He tells us merely as much as He sees we need to know as a basis for our life of faith.
+ - What we do every time we pray is to confess our impotence and God’s sovereignty.
+ - Confidence that one’s impressions are God-given is no guarantee that this is really so, even when they persist and grow stronger through long seasons of prayer. Bible-based wisdom must judge them.
+ - Moreover, the whole purpose of God’s mighty acts is to bring man to know Him by faith; and Scripture knows no foundation for faith but the spoken word of God, inviting our trust in Him on the basis of what He has done for us.
+ - Suffering is getting what you do not want while wanting what you do not get.
+ - The gospel tells that our Judge has become our Savior.
+ - I’m not against technology, but all tools should be used to their best advantage. We should be spending our time on things that have staying power, instead of on the latest thought of the latest blogger – and then moving on quickly to the next blogger.
+ - The idea that all are children of God is not found in the Bible anywhere.
+ - If one preaches the Bible biblically, one cannot help preaching the gospel all the time...
+ - Living becomes an awesome business when you realize that you spend every moment of your life in the sight and company of an omniscient, omnipresent Creator.
+ - Whatever else in the Bible catches your eye, do not let it distract you from Him.
+ - Were it not for the work of the Holy Spirit there would be no gospel, no faith, no church, no Christianity in the world at all.
+ - God’s wisdom is not, and never was, pledged to keep a fallen world happy, or to make ungodliness comfortable.
+ - Arminianism is ‘natural’ in one sense, in that it represents a characteristic perversion of Biblical teaching by the fallen mind of man.
+ - The essence of God’s action in wrath is to give people what they choose, in all its implications.
+ - We must seek, in studying God, to be led to God.
+ - The Christian’s instinct of trust and worship are stimulated very powerfully by knowledge of the greatness of God.
+ - There are few things stressed more strongly in the Bible than the reality of God’s work as Judge.
+ - Only when it is seen that what decides each individual’s destiny is whether or not God decides to save him from his sins, and that this is a decision that God need not make in any individual case, can one begin to grasp the biblical view of grace.
+ - Creatures are not entitled to register complaints about their Creator.
+ - The peace of God is first and foremost peace with God.
+ - Scripture is the most up-to-date and relevant reading that ever comes my way.
+ - One of the many divine qualities of the Bible is that it does not yield its secrets to the irreverent and the censorious.
+ - Im saying that an editorial process that is preparing the material for publication counts as part of the inspiring process whereby God, in his sovereignty, gave every word.
+ - The Spirit is not given to make Bible study needless, but to make it effective.
+ - Simple assent to the gospel, divorced from a transforming commitment to the living Christ, is by Biblical standards less than faith, and less than saving, and to elicit only assent of this kind would be to secure only false conversions.
+ - God in his wisdom, to make and keep us humble and to teach us to walk by faith, has hidden from us almost everything that we should like to know about the providential purposes which he is working out in the churches and in our own lives.
+ - We dishonor God if we proclaim a Savior who satisfies and then go around discontent.
+ - Evangelizing includes the endeavor to elicit a response to the truth taught.
+ - Read two old books for every new one.
+ - His purpose is simply to draw us closer to Himself in conscious communion with Him.
+ - Today, on our own turf, we face pagan ignorance about God every bit as deep as that which the early church faced in the Roman Empire.
+ - The character of God is today, and always will be, exactly what it was in Bible times.
+ - What were we made for? To know God. What aim should we have in life? To know God. What is the eternal life that Jesus gives? To know God. What is the best thing in life? To know God. What in humans gives God most pleasure? Knowledge of himself.
+ - Think against your feelings; argue yourself out of the gloom they have spread; look up from your problems to the God of the gospel.
+ - God answers the prayer we ought to have made rather than the prayer we did make.
+ - Many humanists in the West are stirred by a sense of outrage at what professed Christians, past and present, have done; and this makes them see their humanism as a kind of crusade, with the killing of Christianity as its prime goal.
+ - Im amazed at the amount of time people spend on the Internet.
+ - God is good to all in some ways and to some in all ways.
+ - We are to order our lives by the light of His Law, not by our guesses about His plan.
+ - We complain today that ministers do not know how to preach; but is it not equally true that our congregations do not know how to hear?
+ - God’s love is an exercise of his goodness toward sinners who merit only condemnation.
+ - The very quality of books to read and facts to master with which the twentieth-century man is confronted encourages him to think broadly and superficially about much, but hinders him from thinking deeply and thoroughly about anything.
+ - Certainly true worship invigorates, but to plan invigoration is not necessarily to order worship.
+ - God the Father is the giver of Holy Scripture; God the Son is the theme of Holy Scripture; and God the Spirit is the author, authenticator, and interpreter of Holy Scripture...
+ - We think of God as too much like what we are. Learn to acknowledge the full majesty of your incomparable God and Savior.
+ - We are only living truly human lives just so far as we are labouring to keep God’s commandments; no further.
+ - Underlying the preaching of the Puritans are three basic axioms: 1. The unique place of preaching is to convert, feed and sustain, 2. The life of the preacher must radiate the reality of what he preaches, 3. Prayer and solid Bible study are basic to effective preaching.
+ - Repentance, as we know, is basically not moaning and remorse, but turning and change.
+ - When we reach the outer limit of what Scripture says, it is time to stop arguing and start worshipping.
+ - But man’s eyes are blind through sin, and he can discern no part of God’s truth till the Spirit opens them. Inner illumination, leading directly as it does to a deep, inescapable conviction, is thus fundamental to the Spirit’s work as a teacher.
+ - The most excellent study of expanding the soul, is the science of Christ, and Him crucified, and the knowledge of the Godhead in the glorious Trinity.
+ - Trying to describe what I do in prayer would be like telling the world how I make love to my wife.
+ - The saving power of the cross does not depend on faith being addded to it; its saving power is such that faith flows from it.
+ - For dishonest thinking, however well-intentioned, can only discredit the cause it serves, and must in the long run boomerang disastrously on those who indulge in it.
+ - Holy is the Bible word for all that makes God different from us, in particular his awesome power and purity.
+ - The more you praise, the more vigor you will have for prayer; and the more you pray, the more matter you will have for praise.
+ - The measure of all love is its giving. The measure of the love of God is the cross of Christ.
+ - Repentance means turning from as much as you know of your sin to give as much as you know of yourself to as much as you know of your God, and as our knowledge grows at these three points so our practice of repentance has to be enlarged.
+ - It is often the case, as all the saints know, that fellowship with the Father and the Son is most vivid and sweet, and Christian joy is greatest, when the cross is heaviest.
+ - Our are speculations are not the measure of our God.
+ - Wherever Christianity has produced what historians call a ‘popular piety’ claiming to be part of the national heritage, anti-Christian reaction among the intelligentsia has followed.
+ - There are ministers who never speak of repentance or self-denial. Naturally they are popular, but they are false prophets.
+ - Fanciful spiritualizing, so far from yielding God’s meaning, actually obscured it. The literal sense is itself the spiritual sense, coming from God and leading to Him.
+ - The Church, therefore, has two constant needs; instruction in the truths by which it must live, and correction of the shortcomings by which its life is marred.
+ - He that has learned to feel his sins, and to trust Christ as a Saviour, has learned the two hardest and greatest lessons in Christianity.
+ - The battle against pride in the heart is lifelong, so humility should become an ever more deeply seated attitude of living.
+ - Every time we mention God we become theologians, and the only question is whether we are going to be good ones or bad ones.
+ - The worlds greatest need is the personal holiness of Christian people.
+ - Calvinism is the consistent endeavor to acknowledge the Creator as the Lord, working all things after the counsel of His will.
+ - Calvary not merely made possible the salvation of those for whom Christ died; it ensured that they would be brought to faith and their salvation made actual.
+ - Joy is a condition that is experienced, but it is more than a feeling; it is, primarily, a state of mind.
+ - But to read all Scripture narratives as if they were eye-witness reports in a modern newspaper, and to ignore the poetic and imaginative form in which they are sometimes couched, would be no less a violation of the canons of evangelical literalism than the allegorizing of the Scholastics was.
+ - Real spiritual growth is always growth downward, so to speak, into profounder humility, which in healthy souls will become more and more apparent as they age.
+
+174 quotes

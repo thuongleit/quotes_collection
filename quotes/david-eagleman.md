@@ -1,0 +1,42 @@
+ - There are three deaths. The first is when the body ceases to function. The second is when the body is consigned to the grave. The third is that moment, sometime in the future, when your name is spoken for the last time.
+ - Everybody knows the power of deadlines – and we all hate them. But their effectiveness is undeniable.
+ - A typical neuron makes about ten thousand connections to neighboring neurons. Given the billions of neurons, this means there are as many connections in a single cubic centimeter of brain tissue as there are stars in the Milky Way galaxy.
+ - Neuroscience over the next 50 years is going to introduce things that are mind-blowing.
+ - Our reality depends on what our biology is up to.
+ - Instead of reality being passively recorded by the brain, it is actively constructed by it.
+ - Love was not specified in the design of your brain; it is merely an endearing algorithm that freeloads on the leftover processing cycles.
+ - Every atom in your body is the same quark in different places at the same moment in time.
+ - The more familiar the world becomes, the less information your brain writes down, and the more quickly time seems to pass.
+ - There is a looming chasm between what your brain knows and what your mind is capable of accessing.
+ - Everything that creates itself upon the backs of smaller scales will by those same scales be consumed.
+ - The conscious mind is not at the center of the action in the brain; instead, it is far out on a distant edge, hearing but whispers of the activity.
+ - It is only through us that God lives. When we abandon him, he dies.
+ - What a life in science really teaches you is the vastness of our ignorance.
+ - Among all the creatures of creation, the gods favor us: We are the only ones who can empathize with their problems.
+ - The missing crowds make you lonely. You begin to complain about all the people you could be meeting. But no one listens or sympathizes with you, because this is precisely what you chose when you were alive.
+ - All creation necessarily ends in this: Creators, powerless, fleeing from the things they have wrought.
+ - The three-pound organ in your skull – with its pink consistency of Jell-o – is an alien kind of computational material. It is composed of miniaturized, self-configuring parts, and it vastly outstrips anything we’ve dreamt of building.
+ - A mere 400 years after our fall from the center of the universe, we have experienced the fall from the center of ourselves.
+ - What we find is that our brains have colossal things happening in them all the time.
+ - I’m using the afterlife as a backdrop against which to explore the joys and complexities of being human – it turns out that it’s a great lens with which to understand what matters to us.
+ - There are always wonderful mysteries to confront.
+ - We don’t really understand most of what’s happening in the cosmos. Is there any afterlife? Who knows.
+ - It turns out your conscious mind – the part you think of as you – is really the smallest part of what’s happening in your brain, and usually the last one in line to find out any information.
+ - I always bounce my legs when I’m sitting.
+ - When we’re in a human body, we don’t care about universal collapse – instead, we care only about a meeting of the eyes, a glimpse of bare flesh, the caressing tones of a loved voice, joy, love, light, the orientation of a house plant, the shade of a paint stroke, the arrangement of hair.
+ - Since we live in the heads of those who remember us, we lose control of our lives and become who they want us to be.
+ - We believe we’re seeing the world just fine until it’s called to our attention that we’re not.
+ - Evolve solutions; when you find a good one, don’t stop.
+ - Our internal life and external actions are steered by biological coctails to which we have neither immediate access nor direct acquaintance.
+ - What has always surprised me when I walk into a bookstore is the number of books that you can find that are written with certainty. The authors tell some story as though it’s true, but they don’t have any evidence that it is true!
+ - There are an infinite number of boring things to do in science.
+ - As an undergraduate I majored in British and American literature at Rice University.
+ - I spent my adult life as a scientist, and science is, essentially, the most successful approach we have to try and understand the vast mysteries around.
+ - People wouldn’t even go into science unless there was something much bigger to be discovered, something that is transcendent.
+ - Humans have discovered that they cannot stop Death, but at least they can spit in his drink.
+ - I know one lab that studies nicotine receptors and all the scientists are smokers, and another lab that studies impulse control and they’re all overweight.
+ - Constant reminding ourselves that we not see with our eyes but with our synergetic eye-brain system working as a whole will produce constant astonishment as we notice, more and more often, how much of our perceptions emerge from our preconceptions.
+ - Your brain is built of cells called neurons and glia – hundreds of billions of them. Each one of these cells is as complicated as a city.
+ - Every week I get letters from people worldwide who feel that the possibilian point of view represents their understanding better than either religion or neo-atheism.
+
+40 quotes

@@ -1,0 +1,48 @@
+ - Some people will of course accuse me of misanthropy and cynicism. I can’t celebrate humanity but I’m not out to indict it either. I just want to expose certain truths.
+ - The funny thing is, strangers still seem to feel comfortable coming up to me and saying things, but now usually it’s because they recognize me, and they say nice things.
+ - I always make mistakes and I always fix things up, as best I can, in the cutting room.
+ - Narcissism and self-deception are survival mechanisms without which many of us might just jump off a bridge.
+ - I admit there’s an element of brutality in all my work – it’s part of the truth about human existence I always want to explore – but the last thing I’m trying to do is put on some kind of freak show, inviting people to get off on other people’s pain and humiliation.
+ - A palindrome is a word or pattern that instead of developing in different directions it folds in on itself so that the beginning and end mirror each other, that they are the same.
+ - What makes me angry is the idea that people would be going to a movie because of what I said about it. It makes me feel, I don’t know, arrogant, self-important, self-aggrandizing, whatever. Like I’m being used.
+ - One thing I want to say: I don’t like victim stories and I don’t write them.
+ - That is definitely a misunderstanding between me and a part of my audience. To be honest, I am often unsettled by the responses some people have had to my movies, and that includes many people who like them.
+ - Storytelling is the only studio movie where the censorship is perfectly clear, the only studio movie with a big red box covering up a shot. I take pride in that – and, of course, in having avoided the fate of Eyes Wide Shut.
+ - I can’t please everybody and I don’t try to. If I can please myself that’s enough. For the rest, I just hope for the best.
+ - And that’s just what I’m saying. I would never want to be like certain people, who change the way they dress, go out in disguise, wear a big floppy hat and dark shades. I would hate that.
+ - There can be a blurry line between laughing at the expense of a character and laughing at the recognition of something painful and true. But blurry as it may be, it is nevertheless unmistakable, and sometimes the laughter I hear makes me wince.
+ - In particular, people have trouble understanding where I stand in relation to my characters, and very often this gets reduced to me making vicious fun of them.
+ - At eleven I was at the peak of my creative powers: I was writing stories and playlets, putting together poetryprojects. I was absorbed by my ‘work.’ At twelve I was no longer reading or writing, just counting off days and checking them off. I was interested in survival.
+ - I’ve always said that I myself am not the best audience for my own work, because I’m just not that receptive to comedy.
+ - Optimism is not inherently a superior way of viewing the world. Certainly doctors will say it might be better for one’s physical health to be an optimist. But, morally speaking it may not be appropriate in certain circumstances.
+ - The ability to take pleasure in one’s life is a skill and is a kind of intelligence. So intelligence is a hard thing to evaluate and it manifests itself in so many different ways. I do think the ability to know how to live a life and not be miserable is a sign of that.
+ - I love working with actors. I do.
+ - I mean, I don’t want to sound – of course it’s very nice, people come up and say appreciative things about my work. But the loss, in terms of privacy and anonymity, is no small thing to me.
+ - Every time you try to make another movie, you never know what will come of it. I can’t say it ever gets easier, but it is in it’s own way gratifying. I think that because no one movie that you make ever quite satisfies you, you’re always feeling, “Next time I can get it right.”
+ - Artwork can be a portal, a kind of rethinking and reseeing of the world as we live it.
+ - I love working with actors. If you cast the right person in the right part at the right time, they make you look like a better writer and director than you really are.
+ - Casting is everything. If you get the right people they make you look good.
+ - When I want to show the kind of meanness people are capable of, to make it believable I find I have to tone it down. It’s in real life that people are over the top.
+ - All I mean is, I’m not the kind of audience comedy directors want at a test screening because I seldom laugh, and if I do, it’s not very loud. That doesn’t mean I don’t like the movie.
+ - I mean, there are many other directors who are probably both more skilled and excited to adapt novels or work within certain genre conventions. I’d like to do that kind of work someday, but for better or worse I’m too drawn by my own material.
+ - When I’m asked who my audience is, I say someone with an open mind, which is not a vacant one and sometimes a liberal mind is not the same thing as an open one.
+ - Part of it has to do with this business of being approached in public. I have a distinctive look – it’s partly the glasses I wear – and people seem to remember me once they’ve seen me.
+ - People cant help how they look.
+ - I don’t make movies with the idea that people are going to walk out of them feeling comfortable or better about themselves or more secure in their own biases or opinions.
+ - Usually the audience has no idea that the censored version of whatever movie they’re watching isn’t the original.
+ - I think success is a lot more healthy than failure.
+ - It is true that the movie is perhaps my most politically-charged. The story is thrust into motion by the idea of what do you do when your 13 year old daughter comes home pregnant. And not only is she pregnant, but she wants to keep the baby.
+ - When I go to the movies, I do like to see things that surprise me, a little bit, in ways that seem truthful to the world that we live in.
+ - There are a lot of ideas I have that I think would be very marketable and commercial, but they’re not as compelling to me as the ones that are unmarketable, uncommercial, and unprofitable.
+ - It’s one of the great gifts of having so little money that you are able to make these kinds of radical conceits that you could never afford to do had you had a reasonable budget,.
+ - Some directors hardly talk to the actors at all.
+ - I always have to presume that each movie is my last movie because I never know if I’ll get money again.
+ - Like everything, what compels one to put pen to paper is a great question.
+ - Compromise is part and parcel of making a movie. It’s a question of the kinds of compromises that you have to make.
+ - But anonymity is very important to me, and I don’t want to be recognized in public more than I already am.
+ - When part of what you’re trying to get at is the truth hidden under a taboo, or when you want to nail a hypocrisy, laughter is a very useful tool. I want to show the painful side of existence, but there is no question I also want to make people laugh.
+ - The ability to take pleasure in one’s life is a skill and is a kind of intelligence.
+ - So far, at least, I haven’t found a way to tell my kind of stories without making them both sad and funny.
+ - Art has a smaller audience than, say, movies or other forms of mass consumption. But that doesn’t mean the work doesn’t have an impact in a way that transcends just a few cultural arbiters.
+
+46 quotes

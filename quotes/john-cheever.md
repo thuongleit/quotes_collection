@@ -1,0 +1,70 @@
+ - I’ve been homesick for countries I’ve never been, and longed to be where I couldn’t be.
+ - The short story is the literature of the nomad.
+ - Art is the triumph over chaos.
+ - The main emotion of the adult American who has had all the advantages of wealth, education, and culture is disappointment.
+ - Literature has been the salvation of the damned, literature has inspired and guided lovers, routed despair and can perhaps in this case save the world.
+ - When the beginnings of self destruction enter the heart, it seems no bigger than a grain of sand.
+ - I can’t write without a reader. It’s precisely like a kiss – you can’t do it alone.
+ - There is a terrible sameness to the euphoria of alcohol and the euphoria of metaphor.
+ - A page of good prose remains invincible.
+ - The deep joy we take in the company of people with whom we have just recently fallen in love is undisguisable.
+ - Fear tastes like a rusty knife and do not let her into your house. Courage tastes of blood. Stand up straight. Admire the world. Relish the love of a gentle woman.
+ - The irony of Christmas is always upon the poor in heart; the mystery of the solstice is always upon the rest of us.
+ - Admite the world. Relish the love of a gentle woman. Trust in the lord.
+ - Then it is dark; it is a night where kings in golden suits ride elephants over the mountains.
+ - A lonely man is a lonesome thing, a stone, a bone, a stick, a receptacle for Gilbey’s gin, a stooped figure sitting at the edge of a hotel bed, heaving copious sighs like the autumn wind.
+ - Homesickness is nothing. Fifty percent of the people in the world are homesick all the time.
+ - I was born into no true class and it was my decision early in life to insinuate myself into the middle class like a spy so that I would have an advantageous position of attack, but I seem now and then to have forgotten my mission, and to have taken my disguises too seriously.
+ - The secret of keeping young is to read children’s books. You read the books they write for little children and you’ll keep young. You read novels, philosophy, stuff like that and it makes you feel old.
+ - I have always been the lover – never the beloved – and I have spent much of my life waiting for trains, planes, boats, footsteps, doorbells, letters, telephones, snow, rain, thunder.
+ - It was a splendid summer morning and it seemed as if nothing could go wrong.
+ - Fear tastes like a rusty knife and do not let her into your house.
+ - Everything outside was elegant and savage and fleshy. Everything inside was slow and cool and vacant. It seemed a shame to stay inside.
+ - How can a people who do not mean to understand death hope to understand love, and who will sound the alarm?
+ - All literary men are Red Sox fans – to be a Yankee fan in a literate society is to endanger your life.
+ - I dream that my face appears on a postage stamp.
+ - When I remember my family, I always remember their backs. They were always indignantly leaving places.
+ - She cried for herself, she cried because she was afraid that she herself might die in the night, because she was alone in the world, because her desperate and empty life was not an overture but an ending, and through it all she could see was the rough, brutal shape of a coffin.
+ - That’s the way I remember them, heading for an exit.
+ - Avoid kneeling in unheated stone churches. Ecclesiastical dampness causes prematurely grey hair.
+ - I do not understand the capricious lewdness of the sleeping mind.
+ - You can’t expect to communicate with anyone if you’re a bore.
+ - I believe that writing is an account of the powers of extrication.
+ - Only the opium eater truly understands the pain of death.
+ - It is not, as somebody once wrote, the smell of corn bread that calls us back from death; it is the lights and signs of love and friendship.
+ - Novels are about men and women and children and dogs, not politics.
+ - If there is anybody I detest, it is weak-minded sentimentalists-all those melancholy people who, out of an excess of sympathy for others, miss the thrill of their own essence and drift through life without identity, like a human fog, feeling sorry for everyone.
+ - I look up the telephone number of Alcoholics Anonymous. Then, my hands shaking, I open the bar and drink the leftover whiskey, gin and vermouth-whatever I can lay my shaking hands on.
+ - Fiction is experimentation; when it ceases to be that, it ceases to be fiction.
+ - The poet or storyteller who feels that he is competing with a superb double play in the World Series is a lost man. One would not want as a reader a man who did not appreciate the finesse of a double play.
+ - The need to write comes from the need to make sense of one’s life and discover one’s usefulness.
+ - People look for morals in fiction because there has always been a confusion between fiction and philosophy.
+ - My veins are filled, once a week with a Neapolitan carpet cleaner distilled from the Adriatic and I am as bald as an egg. However I still get around and am mean to cats.
+ - I was here on earth because I chose to be.
+ - These stories seem at times to be stories of a long-lost world when the city of New York was still filled with a river light, when you heard the Benny Goodman quartets from a radio in the corner stationery store, and when almost everybody wore a hat.
+ - Fiction must compete with first-rate reporting. If you cannot write a story that is equal to a factual account of battle in the streets or demonstrations, then you can’t write a story.
+ - The novel remains for me one of the few forms where we can record man’s complexity and the strength and decency of his longings.
+ - Wisdom we know is the knowledge of good and evil – not the strength to choose between the two.
+ - There isn’t a king or a merchant prince in the whole world that I envy, for I always knew I was born to be a child of destiny and that I was never meant to wring my living from detestable, low, degrading, mean and ordinary kinds of business.
+ - The fear of death is for all of us everywhere, but for the great intelligence of the opium eater it is beautifully narrowed into the crux of drugs.
+ - The task of an American writer is not to describe the misgivings of a woman taken in adultery as she looks out of a window at the rain but to describe four hundred people under the lights reaching for a foul ball. This is ceremony.
+ - Sometimes the easiest-seeming stories to a reader are the hardest kind to write.
+ - Children drown, beautiful women are mangled in automobile accidents, cruise ships founder, and men die lingering deaths in mines and submarines, but you will find none of this in my accounts.
+ - For these are not as they might seem to be, the ruins of our civilization, but are temporary encampment and outposts of the civilization that we – you and I – shall build.
+ - A collection of short stories is generally thought to be a horrendous clinker; an enforced courtesy for the elderly writer who wants to display the trophies of his youth, along with his trout flies.
+ - For lovers, touch is metamorphosis. All the parts of their bodies seem to change, and they seem to become something different and better.
+ - To be an American and unable to play baseball is comparable to being a Polynesian and unable to swim.
+ - Alice Malloy had dark, stringy hair, and even her husband, who loved her more than he knew, was sometimes reminded by her lean face of a tenement doorway on a rainy day, for her countenance was long, vacant, and weakly lighted, a passage for the gentle transports and miseries of the poor.
+ - Now working is terribly painful and I’m still having a fight with the booze. I’ve enlisted the help of a doctor but it’s touch and go. A day for me; a day for the hootch.
+ - The organizations of men, like men themselves, seem subject to deafness, near-sightedness, lameness, and involuntary cruelty. We seem tragically unable to help one another, to understand one another.
+ - I don’t like to see all my energies, all of my youth, wasted in fur coats and radios and slipcovers.
+ - I love you not for the person you are, but for your possibilities.
+ - Good writers are often excellent at a hundred other things, but writing promises a greater latitude for the ego.
+ - What I am going to write is the last of what I have to say. I will say that literature is the only consciousness we possess and that its role as consciousness must inform us of our ability to comprehend the hideous danger of nuclear power.
+ - For me, a page of good prose is where one hears the rain and the noise of battle. It has the power to give grief or universality that lends it a youthful beauty.
+ - I sometimes go back to walk through the ghostly remains of Sutton Place where the rude, new buildings stand squarely in one another’s river views.
+ - The writer cultivates, extends, raises and inflates his imagination, sure that this is his destiny, his usefulness, his contribution to the understanding of good and evil. As he inflates his imagination he inflates his capacity for evil.
+ - The constants that I look for are a love of light and a determination to trace some moral chain of being.
+ - Never eat a heavily sugared doughnut before you go on TV.
+
+68 quotes

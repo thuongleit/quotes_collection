@@ -1,0 +1,243 @@
+ - If you love something, set it free. If it comes back, it was, and always will be yours. If it never returns, it was never yours to begin with.
+ - Just because you can doesn’t mean you should.
+ - Great minds discuss ideas. Average minds discuss events. Small minds discuss other people. Life’s too short to worry about what other people do or don’t do. Tend your own backyard, not theirs, because yours is the one you have to live in.
+ - Move forward with purpose.
+ - Life isn’t finding shelter in the storm. It’s about learning to dance in the rain.
+ - I found my happy place the minute I saw you.
+ - I don’t suffer from my insanity – I enjoy every minute of it.
+ - Life is a tapestry woven by the decisions we make.
+ - If brute force doesn’t work, you aren’t using enough.
+ - When you dance with the devil, you don’t get to pick the tune.
+ - It’s not fair to show someone the sun and then banish him from it. Even the devil may cry when he looks around hell and realizes that he’s there alone. -Acheron.
+ - Over, under, around, or through. There is always a way. – Soteria.
+ - The most beautiful heart of all is the one that can still love even while it bleeds, and especially after its been broken into thousands of pieces.
+ - I wasn’t born, I was unleashed.
+ - It’s not manly to hurt others or belittle them. Respect and kindness require more courage because people take advantage of those.
+ - Intentions don’t matter. It’s the end result we’re all judged by. Evil in the name of good is still evil. And when you dance with the devil, you seldom get to pick the tune.
+ - Come to the dark side. We have cookies.
+ - People are basically irritating. Myself included.
+ - Everyone suffers at least one bad betrayal in their lifetime. It’s what unites us. The trick is not to let it destroy your trust in others when that happens. Don’t let them take that from you.
+ - Life isn’t a puzzle to be solved. It’s an adventure to be savored.
+ - When someone is drowning and you try to save them, they’re more likely to drown you before you pull them out.
+ - You have to learn to smile through your pain. Sometimes it’s all we got.
+ - Life isn’t supposed to be easy. Ever. But with the hardest challenges go the greatest rewards. And every incredible moment of my life came only after I did something that made my gut clench with fear. – Caleb.
+ - One word can give someone the strengththey needed at the moment or it can shred them down to nothing. A single smile can turn a bad moment good. And one wrong outburstcould be that tiny push that causes someone to slip over the edge of destruction.
+ - I tend to watch silently from the shadows. You learn a lot more that way.
+ - You’re so afraid of being hurt that you attack first. Only those who really care about you will weather the assault of your verbal attacks and stay. The rest will fall away.
+ - You can’t buy time, Nick. Ever. It’s the only thing in life you can’t get most of, and it’s the one thing that will mercilessly tear you up when it’s gone. It takes no pity on no soul and no heart.
+ - I’m too young, too smart and too good-looking to die.
+ - The past is history written in stone that can’t be altered. The future is transitory and never guaranteed. Today is the only thing you can alter for certain. Make the most of it.
+ - Stop your bitching, Nick. You should try being an immortal demon who’s lived since the dawn of time having to sit through this crap when English is not my native tongue, and if you think you’re fluent in it, buddy, I actually know what a gerund is.
+ - Redemption is never where you expect to find it.
+ - Any game plan? Xypher asked Sin. Don’t die. I like it. Simple, bold. Impossible. Works for me. Kat scoffed at his sarcasm. What are you bitching about, Xypher? You’re already dead. He laughed. You know, for once, it’s good to be me.
+ - There are some things that sorry can’t fix. – Acheron Parthenopaeus.
+ - But life isn’t about learning to forgive those who have hurt you or forgetting your past. It’s about learning to forgive yourself for being human and making mistakes.
+ - Sometimes things have to go wrong in order to go right.
+ - Love is deceitful and sublime. In its truest form, it brings out the best in all beings. At its worse, It’s a tool used to manipulate and ruin any one who is stupid enough to hold it. Don’t be stupid.
+ - Cause hearts are amazing things. They get lots bigger to make room for new people to love alongside the old people you love. -Simi.
+ - To make an omelet you must first break some eggs.
+ - You’d be amazed at the pain and tears a single smile hides.
+ - Human will is the strongest will ever created. There are those who are born to succeed and those who are determined to succeed. The former fall into it, and the latter pursue it at all costs. They won’t be denied. Nothing daunts them.
+ - Every person you meet is waging his or her own war against a callous universe that is plotting against them.
+ - Trust the Simi. She ain’t never wrong.
+ - To quote the Tsalagi, you should never allow your yesterday to use up too much of today. The past is gone and tomorrow is at best a maybe. Live for this moment because it may be all you’ll ever have.
+ - Better to be judged by twelve than carried by six.
+ - The worst wounds, the deadliest of them, aren’t the ones people see on the outside. They’re the ones that make us bleed internally.
+ - Life’s not about security. It’s about picking up the pieces after it’s all over and carrying on. We can choose to be cowards who fear letting someone inside us, and do that alone. Or we can choose to be brave and let someone stand by our side and help us.
+ - Anyone can battle for pride, power, vanity, greed, or hate, but war should always be approached with an equal measure of wisdom and strength. It’s not just enough to know when to fight, but to know when to lay down the sword and negotiate. Not everything in the world is worth fighting for.
+ - All of us have darkness inside us, and at times it possesses and seduces us in ways we never thought possible.
+ - There was nothing humane about humanity. At the end of the day, they were all animals with only survival instincts.
+ - The personality is defined by its inconsistencies, not its consistencies. It’s what makes us unique and who we are.
+ - I learned the bad guys are not always bad, the good guys are not always good, and to quote Captain Barbossa, the parameters are like rules, mostly guidelines. And that it takes a little bit of bad boy to fight the evil in the world. – Terri Mitchell.
+ - In a dream I cannot see tangled abstract phallacy random turmoil builds in me i’m a addicted to chaos -Megadeth, Addicted to Chaos.
+ - Baby, I ain’t trash. Trash is something you throw away. My people keep me.
+ - Nick, fetch my car, fetch my clothes, sweep the chimney, make my bed, watch my psychopath, fetch my slippers.
+ - Only a fool took a remote from a god.
+ - Should I warm the oven and bake you a batch of hero cookies? – Zephyra.
+ - Caleb could be so testy for no known reason. At times, it was like dating a woman with irritable bowel syndrome. Or rabies.
+ - Nick‘s eyes widened as a total state of befuddled huh possessed him. Was he in the Twilight Zone?
+ - I’ll be damned, you got laid.
+ - There was something about Ash that made every hormone in her body stand up and pant for more.
+ - Show no fear to your enemies. Only contempt. Never let anyone look down on you. You’re just as good as any of them. I don’t care who they are. Better in fact. In our world, Dagans are royalty and you, my son, are a prince.
+ - Marriage and friendship were built on trust and loyalty. Not deceit and lies. Love could only be given. It could never be demanded.
+ - Don’t cross me Scooby-Doo. I’m not an old man in a mask waiting to be thwarted by you meddling kids.
+ - Life’s not easy for anyone. Everyone has scars they’re afraid to show and we all get slammed headfirst into a proverbial locker from time to time by someone bigger and badder.
+ - Aren’t you an enigma wrapped in a thick coating of contradictions.
+ - Men can beat each other to a pulp and still walk away friends. With a woman, once an enemy, always an enemy. Women will sit like a spider, for years, waiting for the chance to strike. They never forget and seldom forgive.
+ - I wish I could just fling myself into bed with you, but I can’t. I don’t want to be used that way and I don’t want to use you! Can’t you understand that?
+ - Simi? What was it you told me once about families? We have three kinds of family. Those we are born to, those who are born to us, and those we let into our hearts.
+ - Patience to the spider.
+ - I’ve had to work hard all my life, and I will never, ever ask a fan or reader to pay for something I’ve rushed. It’s not fair to them, and I will never give them anything except my absolute best.
+ - We must spoil our women, boy. A happy woman makes a happy home. An unhappy one makes us drink.
+ - Sorrow spares no one, and scars respect no person.
+ - Mistakes don’t have to define us. They’re how we learn and grow. They show us who and what we don’t want to be. It’s why they’re mistakes.
+ - Relax. You’re in good hands. Tabby wont hurt you. She stabbed me! Damn! I told her not to stab any more Hunters. I hate it when she does that.
+ - I think infatuation is like a garden. If tended and cared for, it grows into love. If neglected or abused it dies. The only way to have eternal love is to never let your heart forget what it’s like to live without it. -Vane.
+ - The worst decisions of your life will always be those that are made out of fear.
+ - Yes, I’m a small, emaciated teenage girl who struts around fighting vampires in earrings they would rip out of my ears and shove up my –.
+ - Success is when persistence meets preparation.
+ - Acheron. When it absolutely, positively must be destroyed overnight.
+ - Nick – Psycho-ass? You’re bringing psycho-ass back? Zarek – That’s Mister Psycho-ass to you, punk.
+ - I saw my whole life flash before my eyes, boss. It was horrific. I haven’t done anything to regret yet and it’s been way too brief. I at least want a license before I check out, you know?
+ - The hardest part of living is making peace with your past. Most of all, it’s making peace with yourself.
+ - Words are easy to say, but emotions betray the best intentions.
+ - When you first take someone’s life, two people die. The person you just killed and the human being you used to be. You’re never the same after that – it changes you forever and not in a good way – and no matter how hard you try, you can’t go back to the innocence you had. Ever.
+ - Law of the jungle. The betrayee gets to eat the betrayer. – Dante Pontis.
+ - Every life, no matter how isolated, touches hundred of others. It’s up to us to decide if those micro connections are positive or negative. But whichever we decide, it does impact the ones we deal with.
+ - But don’t ever let yourself forget that the person you care about fills an emptiness no one else ever has and that while life with them can seriously suck at times, those moments when it doesn’t are worth all the aggravation of falling into the toilet and getting soaked when you’re half asleep.
+ - I still don’t believe it. It’s not in him. Yeah, and you are delusional. Babe, news flash, with the exception of you and the pirate, we’re all animals here. And we all have a killer’s instinct.
+ - The popish religion is now unknown to the law of this country.
+ - You’ll never see the moments coming that will for ever mutilate your life-at least not until after they’ve mowed you down. -Savitar.
+ - In the land of Bad Ass, Acheron reigned supreme.
+ - For the record, kid, Summoning a demon to kidnap her, not the best way to meet a woman. It usually backfires on you.
+ - She didn’t judge him or hate him for things that weren’t his fault. She accepted him and that was the greatest miracle of all.
+ - Where I am always thou art. Thy image lives within my heart.
+ - My father was a drill sergeant, and I’ve always had that mentality drilled into me of ‘you’ve got to do better, you’ve got to do better.’ I just try to listen to the characters. That’s what works for me.
+ - Got to say, dying would really wreck my best day. Been there, done that, and now that I think about it, Artemis forgot to give me the t-shirt.
+ - It’s easy to make mistakes. It’s living with the consequences of them that’s the hardest.
+ - I scoured myself with lye soap from head to toe to get the evil funk of demon snot off me. I have flossed things the gods never meant to be flossed and used things that would be toxic to most living organisms. All to sanitize my body for your chewing pleasure.
+ - Pain doesn’t respect age, my lady.
+ - Lydia: Strange how you always remember the pain someone gave you, but seldom the hurt you caused them.
+ - Ever wonder why the gods created man, Grom? I personally think that we’re the original reality show. They were so effing bored that they created us just so that they could feel better about themselves.
+ - Growing up, books were my lifeline, and I owe a debt to those writers that can never be repaid. They saved my sanity and gave me a world I could escape to. If I can pay that forward to another person, that’s all I ask.
+ - Life is about coming to terms with the mistakes made. Learning to live with them even when they cut soul deep.
+ - Sure. My ego’s had enough time to recover a modicum of dignity. Let’s make sure we crush it again before I mistake myself for a god. -Acheron.
+ - Safe. No one ever is. No matter how hard we try. No matter how much we plan and prepare. There will always be an enemy at the door and a storm trying to knock us down. Life’s not about security. It’s about picking up the peices after it’s all over and carrying on.
+ - Is she okay? I mean, no offense, she sounds more mental than I do.
+ - Tabitha was always trying unorthodox ways to set her up with guys. Although, to be fair to her sister, Tabitha didn’t usually knock the guy unconscious before she forced them together. Still, with Tabitha there was a first time for just about anything. And extreme blind-dating was very vintage T.
+ - A man may publish anything which twelve of his countrymen think not blamable.
+ - The only vampires I’ve ever seen are the Goths trying to get a glimpse of Anne Rice’s house, who drink strawberry sodas and tell each other it’s blood.
+ - It is a rule that those who come into a Court of justice to seek redress, must come with clean hands, and must disclose a transaction warranted by law.
+ - Life is pain. Anyone who says differently is selling something.
+ - And if wishes were horses, I’d have been run over in childhood.
+ - You freaking, flippin’, moronic frat boy!
+ - I’m beginning to think the only choice anyone has in life is between either a bad choice or a worse one.
+ - No stops are ever inserted in Acts of Parliament, or in deeds; but the Courts of law, in construing them, must read them with such stops as will give effect to the whole.
+ - I take time with each person and try to remember them, especially if they’re a repeater from another event. I know a lot of authors just sign a book and keep their heads down, but I’m not like that.
+ - It is of great importance that the laws by which the contracts of so numerous and so useful a body of men as the sailors are supposed to be guided, should not be overturned.
+ - Everyone deserves to have someone who loves them.
+ - Don’t let those people steal your day.
+ - Funny how internal scars never healed. They were the souvenirs of the past.
+ - Our blood don’t run. Sometimes we want to. Sometimes we ought to. But we don’t ever run from anyone or anything.
+ - For our people, butterflies are a symbol of hope. It’s said that if you capture one in your hands and whisper your dreams to it, it will carry them up to the heavens so that the wish can be granted.
+ - Life is messy, Ren. It’s not easy and it’s definitely not for the timid. Everyone has a past.
+ - When everything else falls down around us, just knowing that there’s another person who will miss us when we’re gone is enough to see us through our darkest moments.
+ - People with weaknesses get killed by the people who lack them. Notice I’m not dead.
+ - What kind of life have you lived little one? Where fair has anything to do with it? Life and death just are. Fair has nothing to do with it.
+ - Life has a way of breaking even the strongest among us.
+ - The depth and strength of our character is defined by our moral code. People only reveal themselves when they’re thrown out of the usual conditions of their lives. That’s when the truth of who they are is revealed...
+ - A questioning mind is the most cherished resource man has and the rarest.
+ - Life before toilet paper was not worth living.
+ - The Simi is environmentally sound. Eat everything except for hooves.
+ - Why is it when you want the ground to swallow you whole, it decides to stop trying? -Ethon.
+ - The legislature have anxiously provided for those most useful and deserving body of men, the seamen and marines of this country.
+ - There are certain irregularities which are not the subject of criminal law. But when the criminal law happens to be auxiliary to the law of morality, I do not feel any inclination to explain it away.
+ - You’d be surprised how many people in the modern age no longer fear zombies as much as teletubies.
+ - Notwithstanding all the care and anxiety of the persons who frame Acts of Parliament to guard against every event, it frequently turns out that certain cases were not foreseen.
+ - We almost made it to thirty seconds without an insult. I think we set a new record.
+ - Some kisses are worth living for.
+ - I should have thought of this years ago. But that was the problem with being sane. Sane people played by the rules. They looked for rational explanations and solutions in an insane universe.
+ - A conviction is in the nature of a verdict and judgment, and therefore it must be precise and certain.
+ - We ought not to decide hastily against the words of an Act of Parliament.
+ - It is sometimes difficult to get rid of first impressions.
+ - Proceedings at law are sufficiently expensive.
+ - Every time I think that it’s not worth it – that the people in it deserve the misery of their lives – I come across someone who makes me rethink that.
+ - There was a reason why there was only a single stairway to heaven, but an entire highway to hell.
+ - I’ve been a DJ, janitor, ditch digger, waitress, computer instructor, programmer, mechanic, web developer, clerk, manager, marketing director, tour guide and dorm manager, among other things.
+ - You gonna keep staring at me, Great Acheron, or are you ready to chew me a new one?
+ - A plaintiff who comes into a Court of justice must show that he is in a condition to maintain his action.
+ - Rule One, boy: shoot first then ask questions Rulw Two, Double tap just for good measure. Better safe then sorry. -Bubba.
+ - Kat laughed. ‘Who wants to live forever?’ Kish put his hand up. ‘For the record, I do.’ Sin scowled at him. ‘Then why do you irritate me so often?’ Suicidal tendencies are inherent in my species?
+ - Nick rubbed his hand across his face as he tried to make sense of her prattle. But that was the thing about Simi. She seldom made sense.
+ - People started down the road with good intentions, but the moment the road became rough or difficult, they’d abandon it.
+ - A Court of equity knows its own province.
+ - But as the Roman playwright Terence once wrote, From many a bad beginning great friendships have formed.
+ - Here I am! Now what are your other two wishes.
+ - See I’m the reckless and wild one who saves him from being boring. It’s why we’re perfect for each other. We balance. – Madame Selena.
+ - My mother fed my love of demons, science fiction, and paranormal. She was a devout horror movie fan who kept me up until the wee hours to watch Outer Limits, Night Gallery, Twilight Zone, and Star Trek. We lived to watch those reruns.
+ - Far be it from me to ever let my common sense get in the way of my stupidity. I say we press on.
+ - I should be extremely sorry to find that in a fictitious proceeding, instituted for the more easy attaining of justice, different rules were to obtain in the different Courts.
+ - The liberty of the press is dear to England; the licentiousness of the press is odious to England: the liberty of it can never be so well protected as by beating down the licentiousness.
+ - Modus in rebus there must be an end of things.
+ - Our lives are marked and shaped by our regrets. Things we all want to take back and can’t. In a perfect world, we would never hurt the ones we love or cause hurt to befall them. But the world isn’t perfect and neither are we.
+ - He was Death, and he’d ridden in on a pale horse...
+ - It seemed his demon couldn’t tell the physical difference between when he was in danger and when he was “in” Danger.
+ - You need to modulate that unwarranted ire, buddy. I’m not your ’ho and you ain’t my pimp.
+ - The interest of the public is never better advanced than when we can inculcate by our rules the advantage of acting honestly.
+ - May you get exactly what you want and live long enough to regret it.
+ - That wasn’t love; that was stupidity.
+ - You must be the brother. I hope so, I’m wearing his pants.
+ - Look and you wlll see, that which was can never be. When they seek a boy your age, Run, you flippin moron, run!
+ - If it is our destiny to be hit by the train, we will be hit by the train. The only thing we can change is how the train turns us into a hamburger.
+ - People make their own reality. That was what Praxis had taught him years ago. A hundred people can witness the exact same event, and give two hundred and three different accountings of it.
+ - Hush, self, let me think.
+ - Does Fang have an off switch? Talon asked Vane.
+ - Can you believe our Ash is getting laid? Our baby is growing up. I’m so proud!
+ - Oh, I remember how beautiful you were. You didn’t have any hair. You were such a bald little booger, I thought I was going to have to save up to buy you a toupee.
+ - Oh, this I have to see. I love it when you go for the vernacular. Jugular.
+ - The only thing that was sharper and that scarred more was the selfish actions of those you loved when they made it crystal clear that they cared more for themselves than they did for you. Especially when it was someone you trusted to always put you first.
+ - We must not, by any whimsical conceits supposed to be adapted to the altering fashions of the times, overturn the established law of the land: it descended to us as a sacred charge, and it is our duty to preserve it.
+ - Did you get hungry and eat my colleagues?
+ - Living was okay, but it wasn’t the breaths people took that measured a life. It was the moments that took those breaths away that mattered the most. And Dev did that every time he looked at her. Naked or not.
+ - The strongest of metals is forged under the most violent of conditions, my lord. It is buried deep in the hottest coals and then beat and pounded until it is bent into shaped. Then it becomes the strongest, most lethal of weapons. A thing of absolute beauty and force.
+ - Death is the one predator we can’t escape. But vampires have found the loophole so many of us crave. I think that’s the allure of vampirism.
+ - By understanding the nuances of the world around you and how to survive the temptations, you can rule anything. Even yourself.
+ - He was through playing games. When it came to Soteria, he had no sense of humor whatsoever. Anyone who threatened her, ended their life. It was that simple.
+ - Sundown- When the sun must make peace with the moon and for a few brief moments, the two touch in mutual friendship and respect. Perfect balance between the light and dark. A time for reflection and for preparation.
+ - Because I don’t feel broken when you look at me.
+ - Most men die many times in their lives. The man we become invariably slaughters the child we once were. His knowledge of the world murders the babe’s innocence. from Time Untime by Sherrilyn Kenyon.
+ - Contrary to what you think, not all preternatural beings hang out at the local Supernatural Pub looking for humans and dates.
+ - Those regulations that are adapted to the common race of men are the best.
+ - Sitting in a Court of law, I can receive no evidence but what comes under the sanction of an oath.
+ - Shutup, lapdog, this isn’t your fight, either. Boy, you better counsel that tongue before you find yourself without it.
+ - You are the Energizer Bunny for badasses. -Ash.
+ - He was surrounded and they were hungry for what few brain cells he had left. But you know what? He wasn’t about to give in or give up. If he was going out, it would be the way he had come into this world. Fighting for every single breath.
+ - I give each book however long it needs to be the best I can make it.
+ - It is a maxim in our law that a plaintiff must shew that he stands on a fair ground when he calls on a Court of justice to administer relief to him.
+ - He was like some wild, untamed creature that you could keep and feed for a time, but in the end you knew you’d have to let it go for its own sake as well as yours.
+ - Tragedy and adversary are the stones we sharpen our swords against so we can fight new battles.
+ - Grudges seldom hurt anyone except the one bearing them.
+ - If you’re trying to Seduce me, Vane, you’re a bit late. At his point I’m pretty much a sure thing for you.
+ - When they know what makes you cry, they know what hurts you most. Don’t give your enemies that.
+ - Where I come from, family’s defined as those who don’t screw you over a pay check. Blood makes no difference. If you can trust them with your life and know that they’ll be there come whatever hell rains down, then they’re your family.
+ - The use of cases is to establish principles; if the cases decide different from the principles, I must follow the principles, not the decisions.
+ - Precedent goes in support of justice.
+ - I learned the bad guys are not always bad, the good guys are not always good.
+ - Love is the greatest corrupter ever known and has been the numbers one downfall of mankind since the first creation.
+ - Let’s at least hope it’s not a gallu. Why? They’re not all bad, in a smelly, need-to-be-killed kind of way.
+ - Anything you need, you tell him and he’ll get it for you. If he offends you in any way, let me know and I’ll kill him when I get up.
+ - If people with the very best intentions carry on prosecutions that are oppressive, the end may not always perhaps sanctify the means.
+ - Apprentices and servants are characters perfectly distinct: the one receives instruction, the other a stipulated price for his labour.
+ - Courts of equity make their decrees so as to arrive at the justice of the case without violating the rules of law.
+ - But sooner or later, no matter who you are, life uses everyone as its whipping boy.
+ - While books provided me with some escape from the mental and physical horrors of my early life, they were unreliable. Many times the protagonists suffered terribly and then died at the end.
+ - I take it that the judgment is an essential point in every conviction, let the punishment be fixed or not.
+ - If it makes you feel any better, this isn’t my first apocalypse. There is hope.
+ - They say when you’re about to die, you see your entire life flash before your eyes. They lied. The only thing Nick Gautier could see flashing was Kyrian Hunter’s vampire fangs.
+ - We’re always alone. You can be in a crowded room and still feel the bite of loneliness. Personally, I find that it bites deepest whenever others are around.
+ - I think you need humour and a sense of fun, which is what I try to bring to my books to leaven the danger and action. The ones that really transcend the genre always have a great laugh in them, such as ‘Fright Night,’ ‘Lost Boys,’ ‘American Werewolf in London’ – just to name a few.
+ - There is no magic in words.
+ - You know, there are just some things you never expect to face even on this job. A flying primate that shoots fire out its nose is one of them.
+ - He struggled to breathe through the agony in his chest. The Fates were still mocking him. It must be a boring day for them up on Olympus.
+ - It is of infinite importance to the public that the acts of magistrates should not only be substantially good, but also that they should be decorous.
+ - In the end, life makes victims of us all.
+ - You know, I would date if I could find a man worth shaving my legs for. But most are such a waste of time that I’d rather sit at home and watch reruns of Hee Haw.
+ - The whole point of life is learning to live with the consequences of the bad decision we’ve made.
+ - I’m not people, I only eat them.
+ - Verbal blows cut to the soul and ate at the heart for eternity.
+ - There are some pains that run too deep for anything to absolve them. The best we can do is pick up the pieces and hope for the strength we need to keep going.
+ - My ma used to say that crying is good for you. Tears are the path that free your mind of sorrowful thoughts.
+ - Kindness is a rotten fruit that poisons anyone who partakes of it. Throw it in the face of your enemies and let it ruin them instead.
+ - We can’t change what we’ve done, but we can always change what we’re going to do.
+ - You’re so hilarious. You know, if this whole Daimon-slaying gig doesn’t work out for you, you should really consider being a comedian. The bright Barney hair color would just add to the overall entertainment factor.
+ - I was first published as a paranormal author back in the early 1990s. I was one of the founders of that original wave of paranormal and am the leader of the new wave of paranormal that started at the beginning of this century.
+ - A Court of equity can mould interests differently from a Court of law; and can give relief in cases where a Court of law cannot.
+ - I am glad that though someone did me grossly wrong my final mark on this world is not one of countering hurt with more hurt but is one of love and friendship. We will always be known by our actions. Let them always be good ones.
+ - Julian dipped his head to her ear where he nuzzled her neck. “I will love you forever,” he whispered.
+ - The practice of the Court forms the law of the Court.
+ - Trust is always a good idea. For someone else.
+ - Never underestimate a backwoods Cajun in a fight, old man.
+ - Choose well or die. I don’t care which. Just don’t get blood on my coat.
+ - It’s like trying to train an ADD cat in a mouse factory.
+
+241 quotes

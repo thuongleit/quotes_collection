@@ -1,0 +1,42 @@
+ - There is nothing impossible to him who will try. ~~Alexander the Great
+ - Learn From Yesterday, Live for Today, hope for tomorrow. ~~Orison Swett Marden
+ - A positive attitude gives you power over your circumstances instead of your circumstances having power over you. ~~Joyce Meyer
+ - The greater the difficulty the more glory in surmounting it. Skillful pilots gain their reputation from storms and tempests. ~~Epictetus
+ - Most humans are never fully present in the now, because unconsciously they believe that the next moment must be more important than this one. But then you miss your whole life, which is never not now. ~~Eckhart Tolle
+ - Whatever you fight, you strengthen, and what you resist, persists. ~~Eckhart Tolle
+ - I want you to know, that you deserve the best. You’re beautiful. ~~Lil Wayne
+ - You are the sky. Everything else – it’s just the weather. ~~Pema Chödrön
+ - Wealth consists not in having great possessions, but in having few wants. ~~Epictetus
+ - Love is when the other person’s happiness is more important than your own. ~~H. Jackson Brown Jr.
+ - You do not suffer because things are impermanent. You suffer because things are impermanent and you think they are permanent. ~~Nhat Hanh
+ - You are more powerful than you know; you are beautiful just as you are. ~~Melissa Etheridge
+ - Education means emancipation. It means light and liberty. It means the uplifting of the soul of man into the glorious light of truth, the light by which men can only be made free. ~~Frederick Douglass
+ - Nothing ever comes to one, that is worth having, except as a result of hard work. ~~Booker T. Washington
+ - The only thing more important than being good is being real. Authenticity is kinder than resignation without conviction. Truth leads to good faster than good leads to truth. Ultimately truth is good, but you have to live it from the inside out. ~~Alan Cohen
+ - If you could only sense how important you are to the lives of those you meet; how important you can be to the people you may never even dream of. There is something of yourself that you leave at every meeting with another person. ~~Fred Rogers
+ - Your acts of kindness are iridescent wings of divine love, which linger and continue to uplift others long after your sharing. ~~Rumi
+ - Many men go fishing all of their lives without knowing that it is not fish they are after. ~~Henry David Thoreau
+ - Realize that true happiness lies within you. Waste no time and effort searching for peace and contentment and joy in the world outside. Remember that there is no happiness in having or in getting, but only in giving. Reach out. Share. Smile. Hug. Happiness is a perfume you cannot pour on others without getting a few drops on yourself. ~~Og Mandino
+ - What’s right about America is that although we have a mess of problems, we have great capacity – intellect and resources – to do some thing about them. ~~Henry Ford
+ - Prepare your mind to recieve the best that life has to offer. ~~Ernest Holmes
+ - A man may imagine things that are false, but he can only understand things that are true, for if the things be false, the apprehension of them is not understanding. ~~Isaac Newton
+ - When you rise in the morning, give thanks for the light, for your life, for your strength. Give thanks for your food and for the joy of living. If you see no reason to give thanks, the fault lies in yourself. ~~Tecumseh
+ - The biggest adventure you can ever take is to live the life of your dreams. ~~Oprah Winfrey
+ - You change your life by changing your heart. ~~Max Lucado
+ - Send your life to a whole new level! Zip up the negative words and start speaking faith and victory into your future. ~~Joel Osteen
+ - You and I are essentially infinite choice-makers. In every moment of our existence, we are in that field of all possibilities where we have access to an infinity of choices. ~~Deepak Chopra
+ - We each have a covenant responsibility to be sensitive to the needs of others and serve as the Savior did-to reach out, bless, and uplift those around us. ~~Dieter F. Uchtdorf
+ - Your beliefs become your thoughts, your thoughts become your words, your words become your actions, your actions become your habits, your habits become your values, your values become your destiny. ~~Mahatma Gandhi
+ - The curious beauty about African music is that it uplifts even as it tells a sad story. ~~Nelson Mandela
+ - I can’t change the direction of the wind, but I can adjust my sails to always reach my destination. ~~Jimmy Dean
+ - Age is whatever you think it is. You are as old as you think you are. ~~Muhammad Ali
+ - Aging is not lost youth but a new stage of opportunity and strength. ~~Betty Friedan
+ - The freedom to do your best means nothing unless you are willing to do your best. ~~Colin Powell
+ - Forgiveness is a funny thing. It warms the heart and cools the sting. ~~William Arthur Ward
+ - I learned the value of hard work by working hard. ~~Margaret Mead
+ - I know that I’ve been put on this Earth to make people happy, to inspire people, and to uplift people. That’s a beautiful thing. ~~DJ Khaled
+ - I just love life. I love people. I love to write, that’s my gift. I love to sing. I have a good attitude. I like to think I shine from the inside. ~~Dolly Parton
+ - I have always believed, and I still believe, that whatever good or bad fortune may come our way we can always give it meaning and transform it into something of value. ~~Hermann Hesse
+ - A wise man will make more opportunities than he finds. ~~Francis Bacon
+
+40 quotes

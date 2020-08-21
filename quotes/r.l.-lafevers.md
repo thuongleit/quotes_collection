@@ -1,0 +1,45 @@
+ - Why be the sheep when you can be the wolf?
+ - One heart cannot serve two masters.
+ - Hate cannot be fought with hate. Evil cannot be conquered by darkness. Only love has the power to conquer them both.
+ - And just as love has two sides, so too does Death. While Ismae will serve as His mercy, I will not, for that is not how He fashioned me. Every death I have witnessed, every horror I have endured, has forged me to be who I am – Death’s justice.
+ - Good intentions are only lies the weak tell themselves.
+ - Whenever you are ready, or if you never are, my heart is yours, until Death do us part. Whatever that may mean when consorting with one of Death’s handmaidens.
+ - When he laces his fingers through mine, my heart does its now familiar panicked flight, bumping painfully against my ribs. My shoulder twitches as if to pull my hand back, but my heart overrules it.
+ - I blew that clay pigeon to smithereens. I don’t know why Mum got so upset. According to Uncle Andrew she’s a crack shot herself. But she says I’m too young. What I’d like to know is how old does a person have to be before they get to do all the fun stuff?
+ - I am beginning to think that love itself is never wrong. It is what love can drive people to do that is the problem.
+ - I am a handmaiden of Death. I walk in His dark shadow and do His bidding. Serving Him is my only purpose in this life...
+ - I bear a deep red stain that runs from my left shoulder down to my right hip, a trail left by the herbwitch’s poison that my mother used to try to expel me from her womb.
+ - Every time he glances at me I feel it just as surely as if he has reached out and run his finger along my soul. It is all I can do not to smile at the sheer wonder of it.
+ - We are all of us, gods and mortals, made up of many pieces, some of them broken, some of them scarred, but none of them the total sum of who we are.
+ - When one consorts with assassins, one must expect to dance along the edge of a knife once or twice.
+ - The pain of hope dying is worse than his fists and boots.
+ - The maids in my village talked of falling in love with a man at first sight. That has always seemed naught but foolishness to me. Until I enter Sister Serafina’s workshop. It is unlike anything I have ever seen, full of strange sights and smells, and I tumble headlong into love.
+ - Jewels can be replaced, cousin. Independence, once lost, cannot.
+ - Are men truly such idiots that they cannot resist two orbs of flesh?
+ - I pause at the door, wishing I could find a corner and sleep until my head clears, but the sailor said the abbess is expecting me, and while I do not know much about abbesses, I suspect they are not fond of waiting.
+ - In the distance a wolf howls. Let it come, I think. Beast will most likely simply howl back, and the creature will either turn tail and run or fall into line behind him, like the rest of us have.
+ - God’s Teeth,? he says. ‘I was only trying to wake you. You were crying out in your sleep.’ ‘I was not,’ I say, then look from his neck to my knife. ‘When I tried to wake you, you stabbed me.’ He sounds sore put out. and I cannot blame him.
+ - Perhaps that is because you mistake death for justice, and they are not the same thing at all.
+ - You come to us well tempered, my child, and it is not in my nature to be sorry for it. It is a well tempered blade that is the strongest.
+ - I have found it is surprisingly difficult to remain sad when a cat is doing its level best to sandpaper one’s cheeks.
+ - He smiles then, and even though it is well past midnight, its as if the sun has just come out.
+ - It is this kindness of his that unsettles me most. I can dodge a blow or block a knife. I am impervious to poison and know a dozen ways to escape a chokehold or garrote wire. But kindness? I do not know how to defend against that.
+ - And so it is with us; we serve as handmaidens to Death. When we are guided by His will, killing is a sacrament.
+ - I cannot tell her I have been moping over a broken heart when I have worked so hard to convince her I have no heart at all.
+ - There is no shame in scars, Ismae.
+ - This is what I want to be. An instrument of mercy, not vengeance.
+ - He does not start guiltily, as he should, but frowns in annoyance. “Who are you?” I slip my hand through the slit of my overskirt, and my fingers close around the hard wood of the crossbow tiller. “Vengeance,” I say softly.
+ - Surely He does not give us hearts so we may spend our lives ignoring them.
+ - I comfort myself with the knowledge that if Duval ever feels smothered by me, it will be because I am holding a pillow over his face.
+ - I am left with the conviction that an avalanche would be easier to dissuade than that man.
+ - If he is smart, he will run. He is not.
+ - It is all we have left to us. And while it is more than I ever dared dream, it is nowhere near enough.
+ - Whenever you are ready, or if you never are, my heart is yours...
+ - You are not my nursemaid. Remember, I am rescuing you.
+ - It is a good thing I no longer have a heart, because if I did, it would surely break.
+ - The body on the ground is nothing more than a shell, a husk, and I am filled with a sense of peace. Yes, I think. Yes. This is what I want to be. An instrument of mercy, not vengeance.
+ - People hear and see what they expect to hear and see.
+ - Do you need anything before I go? I want you to return my wits, I long to say.
+ - However, there are those who deserve to die but who have not yet encountered the means to do so – we help them on their way.
+
+43 quotes

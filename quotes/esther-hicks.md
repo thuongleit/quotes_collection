@@ -1,0 +1,271 @@
+ - What you focus on grows.
+ - You are free. You are powerful. You are good. You are love. You have value. You have purpose. All is well.
+ - The truth is, the Universe will always take care of you.
+ - If you have the ability to desire it, the Universe has the ability to deliver it. You’ve just got to line up with what you want, which means – be as happy as you can be as often as you can be there, and let everything else take care of itself.
+ - My path is about Joy.
+ - I care how I feel and it is my desire to feel good.
+ - Fear only exists when you do not understand that you have the power to project thought and that the Universe will respond.
+ - Reach for a better feeling thought.
+ - Today, no matter where I am going, no matter what I am doing, it is my dominant intent to be good to me.
+ - Appreciation is the purest vibration that exists on the planet today.
+ - The only true measure of success is the amount of joy we are feeling.
+ - I’m good at what I do.
+ - Whatever it is you are feeling is a perfect reflection of what you are in the process of becoming.
+ - The Universe knows all things and is responding to the vibration that you are sending. When you are sending your vibration on purpose, you are orchestrating what the Universe is aligning for you.
+ - You are a physical extension of pure positive energy. Therefore, there is nothing more important than that you feel good.
+ - Being happy is a very personal thing-and it really has nothing to do with anyone else.
+ - The greatest gift you can ever give another person is your own happiness.
+ - There is no condition so severe that you cannot reverse it by choosing different thoughts.
+ - No matter what the issue is, don’t try to justify why you don’t feel good. And don’t try to justify why you should feel differently. Don’t try to blame whatever it is you think the reason is that’s keeping you from feeling good. All of that is wasted effort. Just try to feel better right now.
+ - Your life experience is unfolding in the precise response to the vibrations that radiate as a result of your thoughts, whether you know it is or not.
+ - In your action, you lose sight of the vision, you lose sight of your trust in the process, and you just bang around in a sense of futility. Hold the vision and trust that the Universe will acclimate to your vision. Hold the vision and trust the process.
+ - Be happy in anticipation of what’s coming.
+ - There is nothing that you cannot be, do, or have.
+ - You will know your path by the fun of it.
+ - When you ask it is given – but at some point you have to stop asking and start expecting.
+ - When you feel gratitude, you are the closest to the natural state you were born to live in.
+ - Hard work is not the path to Well- Being. Feeling good is the path to Well-Being. You don’t create through action; you create through vibration. And then, your vibration calls action from you.
+ - Worrying is using your imagination to create something you don’t want.
+ - The universe knows the perfect timing for all those things you want and will find, through the crack of least resistance, the best way to deliver it to you.
+ - All is well. You did not come here to fix a broken world. The world is not broken. You came here to live a wonderful life. And if you can learn to relax a little and let it all in, you will begin to see the universe present you with all that you have asked for.
+ - The reason you want every single thing that you want, is because you think you will feel really good when you get there. But, if you don’t feel really good on your way to there, you can’t get there. You have to be satisfied with what-is while you’re reaching for more.
+ - In optimism there is magic. In pessimism there is nothing.
+ - Seconds of focused pleasureable visualization is stronger than 2000 hours of working to obtain a goal.
+ - Your life is but a reflection of the predominance of your thoughts.
+ - Like the air you breathe, abundance in all things is available to you. Your life will simply be as good as you allow it to be.
+ - You’ve got to feel better and then things get better.
+ - Get into the Vortex and then...
+ - The standard of success in life isn’t the things. It isn’t the money or the stuff. It is absolutely the amount of joy that you feel.
+ - I Love you so much, I don’t care what you think.
+ - If you would stop analyzing everything and just look for things to appreciate, you would live happily ever after.
+ - No one can deny you or grant you anything. It all comes to you by virtue of your vibration.
+ - When people ask us how long does it take for something to manifest, we say, It takes as long as it takes you to release the RESISTANCE. Could be 30 years, could be 40 years, could be 50 years, could be a week. Could be tomorrow afternoon.
+ - It’s about you, giving yourself permission to be who you are, without giving a rip about what anybody else is thinking about it.
+ - The fastest way to get to a new-and-improved situation is to make peace with your current situation.
+ - What you do is miniscule in comparison with what you choose to think, because your vibration is so much more powerful and so much more important.
+ - There is no physical body, no matter what the conditions, that cannot achieve an improved condition. Nothing else in your experience responds as quickly as your own physical body to your patterns of thought.
+ - If you will relax and allow Law of Attraction to do the organization, the managing, then you can spend your time doing the things that please you.
+ - Savor more; fix less. Laugh more; cry less. Anticipate positively more; anticipate negatively less. Just practice that and watch what happens.
+ - The Universe does not know whether the vibration that you’re offering is because of something you’re observing or something you’re remembering or something that you are imagining. It just receives the vibration and answers it with things that match it.
+ - That is the optimal creative vantage point: To stand on the brink of what is coming, feeling eager, optimistic anticipation-with no feeling of impatience, doubt, or unworthiness hindering the receiving of it-that is the Science of Deliberate Creation at its best.
+ - If you want things to change to different things, you must think different thoughts. And that simply requires finding unfamiliar ways of approaching familiar subjects. Ask and it is given.
+ - I am where I am and it’s ok.
+ - Finding lack in others is not the path to liking what you see in yourself.
+ - Always, when you know what you don’t want, that’s when the rocket of desire is born of what you do want. That is the fruit of your experience. Now pluck it and savor it and enjoy it. Visualize it, and find the feeling place of it. And live happily ever after, once you get the hang of this.
+ - I can’t get it wrong.
+ - If you’re not selfish enough to want to feel good, then you can’t connect with the energy that is your Source which does always feel good.
+ - Nothing can occur in your life experience without the invitation of it through your thought.
+ - The Universe is not discriminating about the rightness or the wrongness of your request. It is here to accommodate all requests. All you have to do is be a Vibrational Match to your request, and the Universe will yield it to you.
+ - Your choices of action may be limited, but your choices of thought are not.
+ - There is no risk involved.
+ - Law of Attraction is Universal, and every person is affected by it. And it is always true that what I think and what I feel and what I get are always a match.
+ - There is a Life Stream that flows to you, and this is a Stream of clarity, a Stream of wellness, a Stream of abundance – and in any moment, you are allowing it or not. What someone else does with the Stream, or not, does not have anything to do with how much of it will be left for you.
+ - Those old habits don’t have to be erased, they just become replaced by a new habit that is more in vibrational harmony with who you are and what you want.
+ - You have nothing to prove. Be the spiritual you and create like a physical fiend.
+ - Illness or pain is just an extension of negative emotion. When you are no longer feeling any resistance to it, it’s a non-issue.
+ - Every moment of your experience is the peak of life experience. This is where your powerful now is.
+ - The greatest irony in the world is that you are so blessed and don’t know it.
+ - Think about where you’re going and never mind where you’ve been. Don’t spend any more time justifying any of that stuff.
+ - Take the time to line up the Energy first, and action becomes inconsequential. If you don’t take the time to line up the Energy, if you don’t find the feeling place of what you’re looking for, not enough action in the world will make any difference.
+ - Because of the Law of Attraction, each of you is like a powerful magnet, attracting unto you more of the way that you feel at any point in time.
+ - You can get to where you want to be from wherever you are-but you must stop spending so much time noticing and talking about what you do not like about where you are.
+ - Nobody else knows your reason for being. You do. Your bliss guides you to it. When you follow your bliss, when you follow your path to joy, your conversation is of joy, your feelings are of joy – you’re right on the path of that which you intended when you came forth into this physical body.
+ - We are all one Energy Stream, but what makes the separations or distinguishes the differences is perspective. You are a unique and individual perspective.
+ - Make the best of where you are and do your best to line up your Energy from where you are, because any bit of struggle or any bit of regret only holds your cork under the water and doesn’t allow you to connect with the Energy that would allow anything to improve.
+ - All those statistics that you are gathering about your own experiences and about others are only about how somebody has flowed Energy. It isn’t about any hard fast reality.
+ - When you say “Yes” to something, you include something you do want in your experience. When you say “No” to something, you include something you don’t want in your experience.
+ - For good-intentioned people making decisions, there’s no such thing as a bad choice. So it doesn’t matter what you choose. Choose something, then deliberately line up with the choice you make. This is the art of alignment and allowing.
+ - If you will let your dominant intention be to revise and improve the content of the story you tell every day of your life, it is our absolute promise to you that your life will become that ever-improving story.
+ - That All-That-Isness that is responding to your vibration is that which you call God.
+ - Shortage of time is not your problem. Shortage of money is not your problem. Shortage of Connection to the Energy that creates worlds is at the heart of all sensations of shortage that you are experiencing.
+ - As long as you are feeling discomfort within anything, you’re holding yourself in a vibration where all of the things that you have conjured, and all of the things that you have let the Universe know that you want, cannot flow to you.
+ - When you are in vibrational harmony, your body produces whatever it needs to remain in perfect balance.
+ - Any disease could be healed in a matter of days – any disease – if distraction from it could occur and a different vibration dominate.
+ - Your action has nothing to do with your abundance! Your abundance is a response to your vibration. Of course, your belief is part of your vibration. So if you believe that action is part of what brings your abundance, then you’ve got to unravel that.
+ - Matter is the evolution of energy. First there is thought, then there is thought form, and then there is matter. Matter is only thought that has been thought upon by more.
+ - I don’t have to know everything that’s gonna happen, I know enough.
+ - You are of no advantage to anyone who has your negative attention.
+ - Never mind what is. Imagine it the way you want it to be so that your vibration is a match to your desire. When your vibration is a match to your desire, all things in your experience will gravitate to meet that match every time.
+ - Where you now stand is a result of thoughts and feelings that you have offered before, but where you are going is a result of your perspective of where you now stand.
+ - The little ones still remember how to use the power of their imagination. They are still engaged in the utilization of their imagination, that is one of the reasons that keeps them so exhilarated.
+ - Success is only measured in terms of JOY.
+ - I’m a really good fine tuner.
+ - If man understood that “what I create has nothing to do with what anybody else is creating” then he wouldn’t be so afraid of what others are doing.
+ - A happy life is just a string of happy moments. But most people don’t allow the happy moment, because they’re so busy trying to get a happy life.
+ - I like it that we are not the same.
+ - If you are ending up where you want to be, what difference does it make whether you went fast or slow? Or what difference does it make whether it was painful before it got really good? Isn’t that the point of free will? You get to choose.
+ - If nothing is more important to you than that you feel good, you can form a fantasy about someone who is in your life and they will begin to modify to meet your fantasy, because Law of Attraction is a very powerful thing.
+ - There ain’t no “baby mama drama” up in this Vortex, homie!
+ - I can wade through contrast and give birth to desires without yielding my Well Being.
+ - If you believe that something is good, and you do it, it benefits you. If you believe that something is bad, and you do it, it is a very detrimental experience.
+ - Give them a conscious understanding of how powerful and important and valuable and perfect they are.
+ - Use your imagination until your big dream feels so familiar that its manifestation is the next logical step.
+ - Death is a withdrawal of consciousness. It’s like taking attention from here and putting it there.
+ - Abraham: You did not come into this environment to create through action. Instead, your action is meant to be a way in which you enjoy what you have created through thought.
+ - There is never a crowd on the leading edge.
+ - People will love you. People will hate you. And none of it will have anything to do with you.
+ - If you focus upon whatever you want, you will attract whatever you want. If you focus upon the lack of whatever you want, you will attract more of the lack.
+ - Everything is unfolding perfectly. And as you relax and find ease in your attitude of trust, knowing that Well-Being is your birth-right, amazing things will happen. Things the likes of which you have not seen before.
+ - Look around less, imagine more.
+ - The Universe is not punishing you or blessing you. The Universe is responding to the vibrational attitude that you are emitting. The more joyful you are, the more Well-Being flows to you-and you get to choose the details of how it flows.
+ - Most people think that intelligence is about brain, where really it’s about focus. Genius is just attention to a subject until it becomes specific, specific, specific.
+ - Never face reality unless your reality is just the way you want it to be.
+ - Your work is to go forth into this physical environment looking for things that are a vibrational match to joy, connecting to Source Energy, and then following with the inspired action.
+ - Life is a series of delicious moments.
+ - Find something to feel good about and get out of the way, and allow the cells to receive what they’ve been asking for. That is the key to healing.
+ - One who is connected to the Energy Stream is more powerful than a million who are not. And two who are harmoniously focused and connected to the Energy Stream brings about a co-creative endeavor that cannot be matched by anything else in all of the Universe.
+ - The essence of that which is like unto itself, is drawn.
+ - The more you feel like you need to fix something, the more you need to not.
+ - Be deeply satisfied and ready for more.
+ - Your Vortex is pregnant with everything you want.
+ - Joy is the highest expression of love.
+ - Look forward to where you want to be and spend no time complaining about where you are.
+ - The law of attraction is most understood when you see yourself as a magnet getting more and more of the way you FEEL.
+ - You cannot have a happy ending to a miserable journey.
+ - The moment you say, or, the skies will open for you and the non- physical energies begin instantly to orchestrate the manifestation of your desire.
+ - Relationships are forever. They are eternal. Not just permanent in this lifetime. Once you establish a relationship, it is an eternal relationship.
+ - It is only in your thriving that you have anything to offer anyone.
+ - I am that which I am, and I am willing to allow all others to be that which they are.
+ - Action that comes from the feeling of inspiration is action that will produce good results, for you are allowing the Laws of Attraction of the Universe to carry you.
+ - 99.99% of your creation is complete before you see ANY physical evidence of it.
+ - It is my dominant intent to be good to me.
+ - The more in vibrational sync you are with who you really are, then the more you are allowing only those things that you’re wanting, and the less resistance there is. And the less resistance there is, then the less delay between the idea of the thought and the receiving of it.
+ - A visionary thrives under all conditions.
+ - There is not a need to prove anything to anyone with your words. Let that which you are – that which you are living – be your clear example to uplift others.
+ - When that which I have chosen to focus upon in this moment evokes love or joy or appreciation, I am, in that moment, offering my greatest value to myself, to my current object of attention and to All-That-Is.
+ - We’re wanting you to come to the place where you’re beginning to offer your thought deliberately. Where you are guiding your thoughts on purpose, where you are the creator of your own experience. Because you are the manager of your own thought.
+ - There isn’t anything that I cannot be or do or have, and I have a huge Nonphysical staff that’s ready to assist me, and I’m ready.
+ - I’m more and more in control of my own vibration.
+ - You never help anyone by being a sounding board for their problems or complaints.
+ - If you look in The Science of Getting Rich, you see no reference whatsoever to the law of attraction.
+ - There is nothing for you to go back and live over, or fix, or feel regret about now. Every part of your life has unfolded just right.
+ - Most people are rowing against the current of life. Instead of turning the boat around, all they need to do is let go of the oars.
+ - I no longer hold you responsible for how I feel.
+ - Make a decision and then make the decision right. Line up your Energy with it. In most cases it doesn’t really matter what you decide. Just decide. There are endless options that would serve you enormously well, and all or any one of them is better than no decision.
+ - Let me remember I am one with God. Our shining footprints point the way to truth, for God is our Companion as we walk the world a little while.
+ - You cannot struggle to joy. Struggle and joy are not on the same channel. You joy your way to joy. You laugh your way to success. It is through your joy that good things come.
+ - Your life is supposed to feel good to you.
+ - Unconditional love is being connected to Source in spite on the conditions.
+ - You are joy, looking for a way to express. It’s not just that your purpose is joy, it is that you are joy. You are love and joy and freedom and clarity expressing. Energy-frolicking and eager. That’s who you are.
+ - There is nothing that you can do that is worse for yourself, than to do something that you believe is inappropriate. And so, get clear and happy about whichever choice you make. Because it is your contradiction that causes the majority of the contradiction in vibration.
+ - You are the vibrational writers of the script of your life, and everyone else in the Universe is playing the part that you have assigned to them.
+ - Every person with whom you interact is a part of the person you are becoming. Not a single interaction with a single person is left out of the process of your becoming.
+ - Your hands are tied in action, but your hands are not tied in imagination and everything springs forth from the imagination. Everything.
+ - You can only coax someone into the vortex from in the vortex.
+ - We want you to stop caring about what anybody else’s response is to you. And when you get there, they’ll all really, really like you. It’s the strangest thing. When you need their approval, you never get it. And when you don’t need their approval, you’re so tuned in, everybody wants to be with you.
+ - You’re picky about the car you drive. You’re picky about what you wear. You’re picky about what you put in your mouth. We want you to be pickier about what you think.
+ - Negative emotion is your indicator of resistance, while positive emotion is your indicator of allowance. And they are on the same meter: allowance; resistance. Allowance; resistance.
+ - Be the Inner Spirit that is you. And relish in the creative moment. But don’t try to hold to anything that has been created in the moment – including your body. And when you find that place, there is peace beyond description. Because then you accept that you are the eternal being that you are.
+ - If you were listening to the hypnotic voice of your Source, you’d be constantly hearing the drum beating that says, ‘You are loved, and you are worthy, and you are valued and life is supposed to be good for you. You are worthy, you are valued, you are loved and life is supposed to be good for you.’
+ - Genius. It is just attention to something specific. That’s all it is. Law of Attraction makes it happen, and so anyone who gives attention to any subject for a period of time will evolve in the direction of that understanding.
+ - If you intend to be of assistance, your eye is not upon the trouble but upon the assistance, and that is quite different. When you are looking for a solution, you are feeling positive emotion, but when you are looking at a problem, you are feeling negative emotion.
+ - Children or babies learn to mimic the vibration of the adults who surround them long before they learn to mimic their words.
+ - When you’re having trouble making a decision you’re making it too soon.
+ - If you had one goal, and that was to feel good, you would never again need to hear another word from anyone. You would live successfully and happily and in a way of fulfilling your life’s purpose ever after.
+ - You are not here to prove worthiness. You are here to extend the creation, creator, creating that you are.
+ - An answer to a question no one asked is a wasted answer.
+ - Overwhelment is about you not being up to speed with what you told the Universe that you want. The Universe is yielding to you. You’re just not ready to receive it right now.
+ - It is as easy to create a castle as a button. It’s just a matter of whether you’re focused on a castle or a button.
+ - It’s ever so much more satisfying to get into a blissful place and attract a blissful person and live blissfully hereafter than to be in a negative place and attract a negative partner and then try to get happy from that negative place.
+ - With the right alignment, everything you want makes its way into your experience. You are the keeper of your own gate.
+ - Volcanic ash will be experienced in all parts of your world, as the volcanoes around your earth are simultaneously activated. Face masks and goggles will be of great value.
+ - Anything that brings you to a decision will be answered. The stronger the decision is, the faster it’s answered. So if you’re in a situation where it seems life or death, and the desire is strong, it is answered now, because it must be answered now to be answered at all.
+ - A belief is really only a thought that you keep thinking.
+ - The best you can do for anyone is to thrive fully and be willing to explain to anyone who asks how it is that you are thriving, and what it is that you’ve discovered – and then, just relax and trust that all truly is well.
+ - Those moments in your life when you feel absolute exhilaration are moments of complete alignment with the Source within you.
+ - Appreciation in advance brings everything you want to you.
+ - If you know that all is well, you know all you need to know. And if you know life is supposed to be fun, you know more than almost anybody else knows.
+ - Whatever belief I am practicing the Law of Attraction will validate with evidence.
+ - The child is thinking and receiving vibrational thought from you on the day that he enters your environment. That is the reason that beliefs are transmitted so easily from parent to child.
+ - You can’t take sides against anything. If you would just be one who is for things, you would live happily ever after. If you could just leave the “against” part out.
+ - Trying to hold onto any relationship as it was, keeps you from the joyous adventure of what it can become.
+ - Unless you choose to take action on what you want, nothing is ever going to come out of it.
+ - Creation isn’t forcing or commanding something into existence. It’s more of a rolling over, a good stretch, blissing out, lying on the grass watching the flowers blowing in the breeze or the clouds floating by.
+ - When you expect something, it is on the way. When you believe something, it is on the way. When you fear something, it is on the way. Your attitude or mood is always pointing toward what is coming, but you are never stuck with your current point of attraction.
+ - The main event has never been the manifestation; the main event has always been the way you feel moment by moment, because that’s what life is.
+ - The Universe yields to me when I ask.
+ - You cannot look at that which you do not want and not join and perpetuate that vibration. Take your attention from that which is not in harmony with who you are, and your “now vibration” will adjust to who you really are – and then you can uplift others.
+ - I’m going to be very happy, and then do everything I have time to do after that.
+ - Delegate it to the manager. You have this really good staff that will take care of everything for you. You just have to delegate it and trust it.
+ - Law of Attraction is not punishing you. Law of Attraction is supporting you with evidence of your vibrational frequency.
+ - You are the owner of all that you perceive. But you can’t perceive apart from your vibration. Feel your way, little-by-little, into a greater sense of abundance by looking for the treasures that the Universe is offering you on a day-to-day basis.
+ - Babies are thinking and attracting before they are speaking. Even though you are only months old in your physical body, you are a very old and wise Creator, focused in that baby’s body.
+ - The amount of time it takes you to get from where you are to where you want to be, is only the amount of time it takes you to change the vibration within you. Instant manifestation could be yours if you could instantly change the vibration.
+ - Treating the body is really about treating the mind. It is all psychosomatic – every bit of it. No exceptions.
+ - The fastest way to bring more wonderful examples of abundance into your personal experience is to take constant notice of the wonderful things that are already there.
+ - It’s so much fun to interact together.
+ - No matter what it is, if you really want it, and if you get out of the way of it, it will happen. It must be. It is Law. It can be no other way. It’s the way this Universe is established. If you want it and you relax, it will happen.
+ - Do you know what an unwanted bodily condition is? It’s a freshly hatched energy-summoning life-giving desire!
+ - You are the only one who creates in your experience – no one else. Everything that comes to you comes by the power of your thought.
+ - Your cells are as depressed as you are, and your cells are as happy and frisky as you are.
+ - When you take the problems of the world on your shoulders, your body doesn’t feel good. It’s just that simple. Leave the problems of the world to the individual problem-makers of the world, and you be the joy-seeker that you are.
+ - There is nothing that is happening because of something you vibrated a long time ago or in a past life. It is not about what you were born into. It is only about what you are, right now, in this red hot fresh moment emitting.
+ - The most important thing that you can teach your children is that Well-being abounds. And that Well-being is naturally flowing to them.
+ - My vibration is my point of attraction.
+ - You can offer your vibration on purpose. That’s what visualization is. That’s what imagination is: projecting thought energy on purpose.
+ - The one wholly true thought one can hold about the past is that it is not here. To think about it at all is therefore to think about illusions.
+ - It’s always a good idea to sit at the fun table.
+ - You cannot judge the value of a life by its quantity. It is by the joy that you are feeling. The more joyful you are, the longer you live. Let yourself relax and breathe and be free and be joyous, and romp.
+ - Stop talking about the way things are, unless you like them.
+ - Who you are and what you know when you are born is everything that you need to know to thrive. You are born with a sense of self and a sense of wanting self to feel good and the mechanisms to bring it about.
+ - It’s all about enjoying the powerful NOW. I really love what I do.
+ - I don’t have a belief problem, I have a focusing weakness. I focus on what’s loudest instead of what feels best.
+ - The image of where you are going has to be more dominant than the image of where you are.
+ - The pleasure is our choice.
+ - It is the way you feel that is your point of attraction.
+ - There is no risk factor at all, the odds don’t matter at all, because the odds of Law of Attraction are 100%.
+ - Man in his effort to pray and receive guidance actually enhances his separation from who he really is and what he is reaching for. In time, you have all answers to all questions.
+ - Look for good things about where you are, and in your state of appreciation, you lift all self-imposed limitations – and all limitations are self-imposed – and you free yourself for the receiving of wonderful things.
+ - The laws of the Universe are responding to me.
+ - A decision is the focusing of the Energy of desire, and the decision point happens when the desire is powerful enough.
+ - I can easily set my tone.
+ - Physical beings want things to be the same. They want people to think the same. You work rather hard at sameness, but you will never win that battle because, from Nonphysical, diversity is known to be the most beneficial part of the game.
+ - Be as happy as you want to be in a world gone mad. Be as safe as you want to be in a world that is afraid of everything. Be as healthy as you want to be in a world that is mostly sick. Don’t let the statistics that someone else created affect you.
+ - It is so exhilarating to realize that this is all here for our expansion and for our pleasure.
+ - Children coming forth today have a greater capacity to deal with, the greater variety of information that is coming forth, than you did.
+ - I’m figuring it out as I go, I’m good at that.
+ - The certain pathway to all things that you want is through the corridor of joy.
+ - If you’re not thinking about a negative thought, your vibration is going to raise to its natural positive place.
+ - I love that there are others interacting with me.
+ - All of this is for fun anyway.
+ - All physical beings have communication from their inner being in the form of emotion, and so, whenever your emotion is positive, you can know that you are in harmony with your inner intention.
+ - Anything I want comes into place.
+ - A belief is only a thought you continue to think. A belief is nothing more than a chronic pattern of thought, and you have the ability – if you try even a little bit – to begin a new pattern, to tell a new story, to achieve a different vibration, to change your point of attraction.
+ - Well Being is my birthright.
+ - You cannot judge the value of a life by its length.
+ - The only way that you can ever know if something is of value to you is by the way it feels as you are receiving it.
+ - The Universe does not know if the vibration you are offering is because of what you are imagining, or because of what you are observing.
+ - What is the definition of procrastination? It means: I can feel within my Energy sensor that this action is not in perfect alignment at this time.
+ - I was not born to get stuff done. I was born to dream it and then move towards it.
+ - That’s how the scientists discover new science. They start out with a hypothesis – an idea – and then others believe enough in the idea that they make it true. You see?
+ - Stop telling it like it is and start telling it like you WANT it to be!
+ - When you’re looking so hard to get on your path, you’re putting up resistance that keeps you from finding it.
+ - Offer a vibration that matches your desire rather than offering a vibration that keeps matching what-is.
+ - This is an attraction based Universe. You cannot say no. You are always saying, ‘Yes please, yes please, yes please,’ with your attention.
+ - I’ve already discovered how to hold myself within range.
+ - This is getting funner.
+ - Now I’m in the process of fine turning.
+ - Everything you want is coming. Relax and let the universe pick the timing and the way.
+ - Milk every moment for all the pleasure you can get from it.
+ - If you examine your history, you cannot help but repeat it! Law of Attraction says it is so: ‘Whatever I am looking at, I am including in my vibration.’
+ - The reason that you call it ‘grief’ is because you’ve been programmed to believe that you should feel bad about death.
+ - I never get far from Well Being.
+ - You are not here to fix anything, because nothing is broken, but everything is continually changing and expanding. Release your struggle, and seek joy and fun, and in doing so, you will align with the fantastic expanding rhythm of this Universe.
+ - When you offer a vibration, the Universal forces are working in concert with each other in order to satisfy you. You really are the center of the Universe.
+ - The purpose of life is Joy.
+ - Within the seed of your desire is everything necessary for it to blossom to fulfillment. And Law of Attraction is the engine that does the work. Your work is just to give it a fertile growing place in order to expand.
+ - Just because we are dead does not make us smart.
+ - Every emotion, from despair all of the way up to ecstasy; from complete Connection to who-you-really-are, all the way to pinching yourself off pretty severely, all of those emotions are about your perception of freedom, or your perception of bondage – every one of them.
+ - You don’t have to go where you don’t want to be to get where you want to be. You can go from where you are to where you want to be.
+ - I’m getting better at it everyday.
+ - I like it where I stand. This is fun.
+ - There is no better way to earn money than to do the things that you love to do. Money can flow into your experience through endless avenues. It is not the choice of the craft that limits the money that flows – but only your attitude toward money.
+ - You are in the perfect position to get there from here.
+ - Nothing, in all of the Universe is more delicious than to be in this physical body allowing the fullness that is you to be present in the moment.
+ - As long as there are people suffering, how can I not be happy?
+ - The expansion is inevitable.
+ - When you feel good, you’re allowing good. When you don’t feel good, you are not allowing good.
+ - If you want it and expect it, it will be yours very soon.
+ - If something you want is slow to come to you, it can be for only one reason: You are spending more time focused upon its absence than you are about its presence. If.
+
+269 quotes

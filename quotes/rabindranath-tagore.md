@@ -1,0 +1,329 @@
+ - You can’t cross the sea merely by standing and staring at the water.
+ - It is very simple to be happy, but it is very difficult to be simple.
+ - The roots below the earth claim no rewards for making the branches fruitful.
+ - If you cry because the sun has gone out of your life, your tears will prevent you from seeing the stars.
+ - The small wisdom is like water in a glass: clear, transparent, pure. The great wisdom is like the water in the sea: dark, mysterious, impenetrable.
+ - Clouds come floating into my life, no longer to carry rain or usher storm, but to add color to my sunset sky.
+ - Let me not pray to be sheltered from dangers, but to be fearless in facing them. Let me not beg for the stilling of my pain, but for the heart to conquer it.
+ - We live in the world when we love it.
+ - I slept and dreamt that life was joy. I awoke and saw that life was service. I acted and behold, service was joy.
+ - Everything comes to us that belongs to us if we create the capacity to receive it.
+ - The greed for fruit misses the flower.
+ - Reach high, for stars lie hidden in you. Dream deep, for every dream precedes the goal.
+ - The butterfly counts not months but moments, and has time enough.
+ - A mind all logic is like a knife all blade. It makes the hand bleed that uses it.
+ - We read the world wrong and say that it deceives us.
+ - The real frienship is like fluorescence, it shines better when everything has darken.
+ - Love's gift cannot be given, it waits to be accepted.
+ - The stars are not afraid to appear like fireflies.
+ - I have spent many days stringing and unstringing my instrument while the song I came to sing remains unsung.
+ - Love is an endless mystery, because there is no reasonable cause that could explain it.
+ - Music fills the infinite between two souls.
+ - "Yo are the big drop of dew under the lotus leaf, I am the smaller one on its upper side," said the dewdrop to the lake.
+ - The one who plants trees, knowing that he will never sit in their shade, has at least started to understand the meaning of life.
+ - Faith is the bird that feels the light when the dawn is still dark.
+ - The highest education is that which does not merely give us information but makes our life in harmony with all existence.
+ - To find God, you must welcome everything.
+ - Beauty is simply reality seen with the eyes of love.
+ - If you shed tears when you miss the sun, you also miss the stars.
+ - I am able to love my God because He gives me freedom to deny Him.
+ - A lamp can only light another lamp when it continues to burn in its own flame.
+ - Compliments win friends, honesty loses them.
+ - Love does not claim possession, but gives freedom.
+ - Death is not extinguishing the light; it is only putting out the lamp because the dawn has come.
+ - Patriotism cannot be our final spiritual shelter; my refuge is humanity. I will not buy glass for the price of diamonds, and I will never allow patriotism to triumph over humanity as long as I live.
+ - What you are you do not see, what you see is your shadow.
+ - What is Art? It is the response of man’s creative soul to the call of the Real.
+ - Let life be beautiful like summer flowers and death like autumn leaves.
+ - I leave no trace of wings in the air, but I am glad I have had my flight.
+ - Don’t limit a child to your own learning, for he was born in another time.
+ - There is no “next” after you are dead and gone from your own world.
+ - Trees are the earth’s endless effort to speak to the listening heaven.
+ - Inspiration follows aspiration.
+ - When you have once taken up a responsibility, you must see it through.
+ - You smiled and talked to me of nothing and I felt that for this I had been waiting long.
+ - Merely to exist is not enough.
+ - The biggest changes in a women’s nature are brought by love; in man, by ambition.
+ - All that is not given is lost.
+ - Only in love are unity and duality not in conflict.
+ - Life is given to us, we earn it by giving it.
+ - And because I love this life, I know I shall love death as well.
+ - The first flower that blossomed on this earth was an invitation to an unborn song.
+ - The sparrow is sorry for the peacock at the burden of its tail.
+ - You are invited to the festival of this world and your life is blessed.
+ - Do not say, ‘It is morning,’ and dismiss it with a name of yesterday. See it for the first time as a newborn child that has no name.
+ - If I can’t make it through one door, I’ll go through another door- or i’ll make a door. Something terrific will come no matter how dark the present.
+ - Only in silence I find myself. Life in the city is so hectic that you lose the right perspective. It’s important to know that our biggest resources are in our heart.
+ - Repentance is a gift of God’s grace.
+ - The greatest distance in this World is not that between living and death, it is when I am just before you, and you don’t know that I Love You.
+ - The artist is the lover of nature; therefore he is her slave and her master.
+ - The birth and death of leaves is part of that greater cycle that moves among the stars.
+ - Man is worse than an animal when he is an animal.
+ - Truth comes as conqueror only to those who have lost the art of receiving it as friend.
+ - We come nearest to the great when we are great in humility.
+ - Let my thoughts come to you, when I am gone, like the afterglow of sunset at the margin of starry silence.
+ - O Beauty, find thyself in love, not in the flattery of thy mirror.
+ - He who wants to do good knocks at the gate: he who loves finds the door open.
+ - Life itself is a strange mixture. We have to take it as it is, try to understand it, and then to better it.
+ - In death the many become one; in life the one become many.
+ - The human soul is on its journey from the law to love, from discipline to liberation, from the moral plane to the spiritual.
+ - Beauty is truth’s smile when she beholds her own face in a perfect mirror.
+ - Perhaps the crescent moon smiles in doubt at being told that it is a fragment awaiting perfection.
+ - The Taj Mahal rises above the banks of the river like a solitary tear suspended on the cheek of time.
+ - Blessed is he whose fame does not outshine his truth.
+ - I never give answers. I lead on from one question to another. That is my leadership.
+ - God seeks comrades and claims love, The devil seeks slaves and claims obedience.
+ - Praise shames me, for I secretly beg for it.
+ - If you allow your mind to carp at all and sundry, it will turn against itself: the majority of our sorrows are self-inflicted.
+ - Love’s over brimming mystery joins death and life. It has filled my cup of pain with joy.
+ - Nirvana is not the blowing out of the candle. It is the extinguishing of the flame because day is come.
+ - Your idol is shattered in the dust to prove that God’s dust is greater than your idol.
+ - Man is immortal; therefore he must die endlessly. For life is a creative idea; it can only find itself in changing forms.
+ - O master poet, I have sat down at thy feet. Only let me make my life simple and straight, like a flute of reed for thee to fill with music.
+ - My debts are large, my failures great, my shame secret and heavy; yet I come to ask for my good, I quake in fear lest my prayer be granted.
+ - Oh, grant me my prayer, that I may never lose the touch of the one in the play of the many.
+ - Boasting is only a masked shame; it does not truly believe in itself.
+ - My fancies are fireflies Specks of living light twinkling in the dark.
+ - Death’s stamp gives value to the coin of life; making it possible to buy with life what is truly precious.
+ - Let my doing nothing when I have nothing to do, become untroubled in its depth of peace, like the evening in the seashore when the water is silent.
+ - Bigotry tries to keep truth safe in its hand with a grip that kills it.
+ - The tragedy of human life consists in our vain attempts to stretch the limits of things which can never become unlimited, to reach the infinite by absurdly adding to the rungs of the ladder of the finite.
+ - I am willing to serve my country, but my worship I reserve for Right which is far greater than my country. To worship my country as a god is to bring a curse upon it.
+ - This is the ultimate end of man, to find the One which is in him; which is his truth, which is his soul; the key with which he opens the gate of the spiritual life, the heavenly kingdom.
+ - Come oh come ye tea-thirsty restless ones – the kettle boils, bubbles and sings, musically.
+ - Other animals ran only when they had a reason, but the horse would run for no reason whatever, as if to run out of his own skin.
+ - We do not want nowadays temples of worship and outward rites and ceremonies. What we really want is an Asram. We want a place where the beauty of nature and the noblest pursuits of man are in a sweet harmony.
+ - Let the dead have the immortality of fame, but the living the immortality of love.
+ - Pessimism is a form of mental dipsomania; it disdains healthy nourishment, indulges in the strong drink of denunciation, and creates an artificial dejection which thirsts for a stronger draught.
+ - When old words die out on the tongue, new melodies break forth from the heart; and where the old tracks are lost, new country is revealed with its wonders.
+ - This little flute of a reed thou hast carried over hills and dales, and hast breathed through it melodies eternally new.
+ - The danger inherent in all force grows stronger when it is likely to gain success, for then it becomes temptation.
+ - The world has kissed my Soul with its pain, asking for its return in Songs.
+ - Where the mind is led forward by thee into ever-widening thought and action-Into that heaven of freedom, my father, let my country awake.
+ - The main object of teaching is not to give explanations, but to knock at the doors of the mind.
+ - While God waits for His temple to be built of love, men bring stones.
+ - I seem to have loved you in numberless forms, numberless times, in life after life, in age after age forever. He who wants to do good, knocks at the gate; He who loves, finds the door open.
+ - Do not linger to gather flowers to keep them, but walk on, for flowers will keep themselves blooming all your way.
+ - And joy is everywhere; it is in the earth’s green covering of grass; in the blue serenity of the sky.
+ - The problem is not how to wipe out all differences, but how to unite with all differences intact.
+ - By plucking her petals, you do not gather the beauty of the flower.
+ - The night kissed the fading day With a whisper: “I am death, your mother, From me you will get new birth.”
+ - Great calm, generous detachment, selfless love, disinterested effort: these are what make for success in life. If you can find peace in yourself and can spread comfort around you, you will be happier than an empress.
+ - We manage to swallow flesh, only because we do not think of the cruel and sinful thing we do.
+ - Set the bird’s wings with gold and it will never again soar in thesky.
+ - Let my love like sunlight surround you and yet give you illumined freedom.
+ - My dearest life, I know you are not mine forever; but do love me even if it’s for this moment. After that I shall vanish into the forest where you cast me, I won’t ask anyone for anything again. Give me something that can last me till I die.
+ - The world speaks to me in colors, my soul answers in music.
+ - Let the splendor of diamond, pearl and ruby vanish? Only let this one teardrop, this Taj Mahal, glisten spotlessly bright on the cheek of time, forever and ever.
+ - The world puts off its mask of vastness to its lover. It becomes small as one song, as one kiss of the eternal.
+ - Facts are many, but the truth is one.
+ - Let this be my last word, that I trust in thy love.
+ - Stray birds of summer come to my window to sing and fly away. And yellow leaves of autumn, which have no songs, flutter and fall there with a sigh.
+ - Whether joy or sorrow, pain or pleasure; whatsoever may befall thee, accept it serenely with an unvanquished heart.
+ - Drunk with the joy of singing I forget myself and call thee friend who art my lord.
+ - If religion, instead of being the manifestation of a spiritual ideal, gives prominence to scriptures and external rites, then does it disturb the peace more than anything else.
+ - Time is a wealth of change, but the clock in its parody makes it mere change and no wealth.
+ - Thy infinite gifts come to me only on these very small hands of mine. Ages pass, and still thou pourest, and still there is room to fill.
+ - In the mountain, stillness surges up to explore its own height In the lake, movement stands still to contemplate its own depth.
+ - My day is done, and I am like a boat drawn on the beach, listening to the dance-music of the tide in the evening.
+ - Love is the only reality and it is not a mere sentiment. It is the ultimate truth that lies at the heart of creation.
+ - Love is when the soul starts to sing and the flowers of your life bloom on their own.
+ - Love remains a secret even when spoken, for only a true lover truly knows that he is loved.
+ - Power said to the world, “You are mine.” The world kept it prisoner on her throne. Love said to the world, “I am thine.” The world gave it the freedom of her house.
+ - The fish in the water is silent, the animals on the earth is noisy, the bird in the air is singing. But man has in him the silence of the sea, the noise of the earth and the music of the air.
+ - If life’s journey be endless where is its goal? The answer is, it is everywhere. We are in a palace which has no end, but which we have reached. By exploring it and extending our relationship with it we are ever making it more and more our own.
+ - The higher nature in man always seeks for something which transcends itself and yet is its deepest truth; which claims all its sacrifice, yet makes this sacrifice its own recompense. This is man’s dharma, man’s religion, and man’s self is the vessel.
+ - Once we dreamt that we were strangers. We wake up to find that we were dear to each other.
+ - Our creation is the modification of relationship.
+ - Not hammer-strokes, but dance of the water, sings the pebbles into perfection.
+ - Men can only think. Women have a way of understanding without thinking. Woman was created out of God’s own fancy. Man, He had to hammer into shape.
+ - Every child comes with the message that God is not yet discouraged of man.
+ - Alas, why are my nights all thus lost? Ah, why do I ever miss his sight whose breath touches my sleep?
+ - Love gives beauty to everything it touches.
+ - Those who are near me do not know that you are nearer to me than they are Those who speak to me do not know that my heart is full with your unspoken words Those who crowd in my path do not know that I am walking alone with you Those who love me do not know that their love brings you to my heart.
+ - Age considers; youth ventures.
+ - The more one lives alone on the river or in the open country, the clearer it becomes that nothing is more beautiful or great than to perform the ordinary duties of one’s daily life simply and naturally.
+ - Deliverance is not for me in renunciation. I feel the embrace of freedom in a thousand bonds of delight.
+ - The significance which is in unity is an eternal wonder.
+ - The trees come up to my window like the yearning voice of the dumb earth.
+ - Leave out my name from the gift if it be a burden, but keep my song.
+ - And it shall be my endeavour to reveal thee in my actions, knowing it is thy power gives me strength to act.
+ - When I stand before thee at the day’s end, thou shalt see my scars and know that I had my wounds and also my healing.
+ - If you shut the door to all errors, truth will be shut out.
+ - I am hidden in your heart, O Flower.
+ - The meaning of our self is not to be found in its separateness from God and others, but in the ceaseless realization of yoga, of union; not on the side of the canvas where it is blank, but on the side where the picture is being painted.
+ - Do not blame the food because you have no appetite.
+ - Man’s abiding happiness is not in getting anything but in giving himself up to what is greater than himself, to ideas which are larger than his individual life, the idea of his country, of humanity, of God.
+ - Thou hast made me endless, such is thy pleasure. This frail vessel thou emptiest again and again, and fillest it ever with fresh life.
+ - Man’s freedom is never in being saved from troubles, but it is the freedom to take trouble for his own good, to make the trouble an element in his joy.
+ - Yes, all my illusions will burn into illumination of joy, and all my desires ripen into fruits of love.
+ - For many years, at great cost, I traveled through many countries, saw the high mountains, the oceans. The only things I did not see were the sparkling dewdrops in the grass just outside my door.
+ - Depth of friendship does not depend on length of acquaintance.
+ - Truth reveals itself in beauty.
+ - And because I love this life I know I shall love death as well The child cries out when From the right breast the mother Takes it away, in the very next moment To find in the left one Its consolation.
+ - The pious sectarian is proud because he is confident of his right of possession in God. The man of devotion is meek because he is conscious of God’s right of love over his life and soul.
+ - On each race is laid the duty to keep alight its own lamp of mind as its part in the illumination of the world. To break the lamp of any people into deprive it of its rightful place in the world festival.
+ - Truth looks tawdry when she is overdressed.
+ - If you want to know India, study Vivekananda. In him everything is positive and nothing negative.
+ - That I exist is a perpetual surprise which is life.
+ - The flower which is single need not envy the thorns that are numerous.
+ - The water in a vessel is sparkling; the water in the sea is dark. The small truth has words which are clear; the great truth has great silence.
+ - The mountain remains unmoved at seeming defeat by the mist.
+ - When I go from hence, let this be my parting word, that what I have seen is unsurpassable.
+ - Bees sip honey from flowers and hum their thanks when they leave. The gaudy butterfly is sure that the flowers owe thanks to him.
+ - Discipline divorced from wisdom is not true discipline, but merely the meaningless following of custom, which is only a disguise for stupidity.
+ - That which oppresses me, is it my soul trying to come out in the open, or the soul of the world knocking at my heart for entrance?
+ - Saltwater heals, healing referring to its various forms; tears, cleanses and heals the soul; sweat, cleanses through labor; the ocean, heals in all its forms.
+ - In the drowsy dark cave of the mind dreams build their nest with fragments dropped from day’s caravan.
+ - Oh my only friend, my best beloved, the gates are open in my house – do not pass by like a dream.
+ - Days are coloured bubbles that float upon the surface of fathomless nights.
+ - Men are cruel, but Man is kind.
+ - In desperate hope I go and search for her in all the corners of my house. I find her not. My house is small and what once has gone from it can never be regained. But infinite is thy mansion, my lord, and seeking her I have come to thy door.
+ - Everything comes to us that belongs to us if we create the capacity to receive it. Every difficulty slurred over will be a ghost to disturb your repose later on. Emancipation from the bondage of the soil is no freedom for the tree.
+ - The burden of the self is lightened with I laugh at myself.
+ - When our universe is in harmony with man, the eternal, we know it as truth, we feel it as beauty.
+ - Death belongs to life as birth does The walk is in the raising of the foot as in the laying of it down.
+ - Love adorns itself; it seeks to prove inward joy by outward beauty.
+ - The smile that flickers on a baby’s lips when he sleeps- does anyone know where it was born? Yes, there is a rumor that a young pale beam of a crescent moon touched the edge of a vanishing autumn cloud, and there the smile was first born in the dream of a dew-washed morning.
+ - To be outspoken is easy when you do not wait to speak the complete truth.
+ - The earth paints a portrait of the sun at dawn with sunflowers in bloom. Unhappy with the portrait, she erases it and paints it again and again.
+ - The traveler has to knock at every alien door to come to his own, and one has to wander through all the outer worlds to reach the innermost shrine at the end.
+ - The progress of our soul is like a perfect poem. It has an infinite idea which, once realised, makes all movements full of meaning and joy.
+ - I’m lost in the middle of my birthday. I want my friends, their touch, with the earth’s last love. I will take life’s final offering, I will take the last human blessing.
+ - Love is not a mere impulse, it must contain truth, which is law.
+ - In Art, man reveals himself and not his objects.
+ - The question and the cry ‘Oh, where?’ melt into tears of a thousand streams and deluge the world with the flood of the assurance ‘I am!’
+ - I have listened And I have looked With open eyes. I have poured my soul Into the world Seeking the unknown Within the known. And I sing out loud In amazement.
+ - For man is by nature an artist.
+ - We are hidden in ourselves, like a truth hidden in isolated facts. When we know that this One in us is One in all, then our truth is revealed.
+ - The young student sits with his head bent over his books, and his mind straying in youth’s dreamland; where prose is prowling on the desk and poetry hiding in the heart.
+ - The singer alone does not make a song, there has to be someone who hears. -Broken Song.
+ - Those who in this world have the courage to try and solve in their own lives new problems of life, are the ones who raise society to greatness.
+ - No civilized society can thrive upon victims, whose humanity has been permanently mutilated.
+ - The child learns so easily because he has a natural gift, but adults, because they are tyrants, ignore natural gifts and say that children must learn through the same process that they learned by. We insist upon forced mental feeding and our lessons.
+ - I ask my destiny – what power is this That cruelly drives me onward without rest? My destiny says, “Look round!” I turn back and see It is I myself that is ever pushing me from behind.
+ - Now it is time to sit quiet, face to face with thee, and to sing dedication of life in this silent and overflowing leisure.
+ - Religion is not a fractional thing that can be doled out in fixed weekly or daily measures as one among various subjects in the school syllabus. It is the truth of our complete being, the consciousness of our personal relationship with the infinite.
+ - Who are you, a hundred years from today, reading my poetry with curiosity?
+ - It means that God’s Creation has not its source in any necessity; it comes from his fullness of joy; it is his love that creates, therefore in Creation is his own revealment.
+ - He alone may chastise who loves.
+ - Perhaps the new dawn will come from this horizon, from the East where the sun rises; and then, unvanquished Man will retrace his path of conquest, despite all barriers, to win back his lost heritage.
+ - Work, especially good work, becomes easy only when desire has learned to discipline itself.
+ - Today I feel that I shall win through. I have come to the gateway of the simple; I am now content to see things as they are. I have gained freedom myself; I shall allow freedom to others. In my work will be my salvation.
+ - A dewdrop is a perfect integrity that has no filial memory of its parentage.
+ - The movement of life has to rest in its own music.
+ - By unrighteousness man prospers, gains what appears desirable, conquer enemies, but perishes a the root.
+ - It is the docile who achieve the most impossible things in this world.
+ - Most people believe the mind to be a mirror, more or less accurately reflecting the world outside them, not realizing on the contrary that the mind is itself the principal element of creation.
+ - With begging and scrambling we find very little, but with being true to ourselves we find a great deal more.
+ - The thing which seems so glorious when viewed from the heights of the country’s cause looks so muddy when seen from the bottom. One begins by getting angry and then feels disgusted.
+ - Grant me that I may not be a coward, feeling your mercy in my success alone; but let me find the grasp of your hand in my failure.
+ - These paper boats of mine are meant to dance on the ripples of hours, and not reach any destination.
+ - We cross infinity with every step; we meet eternity in every second.
+ - Asks the Possible of the Impossible, “Where is your dwelling-place?” “In the dreams of the Impotent,” comes the answer.
+ - The delights of sight and hearing and touch will bear thy delight.
+ - Power takes as ingratitude the writhing of its victims.
+ - At the immortal touch of thy hands my little heart loses its limits in joy and gives birth to utterance ineffable.
+ - Life’s errors cry for the merciful beauty that can modulate their isolation into a harmony with the whole.
+ - Art awakens a sense of real by establishing an intimate relationship between our inner being and the universe at large, bringing us a consciousness of deep joy.
+ - The bird thinks it a favor to give the fish a lift in the air.
+ - The music of the far-away summer flutters around the Autumn seeking its former nest.
+ - The speech of my heart will be carried on in murmurings of a song.
+ - God finds himself by creating.
+ - Dreams can never be made captive.
+ - Life’s aspirations come in the guise of children.
+ - Memory, the priestess, kills the present and offers its heart to the shrine of the dead past.
+ - Life finds its wealth by the claims of the world, and its worth by the claims of love.
+ - The soil in return for her service keeps the tree tied to her, the sky asks nothing and leaves it free.
+ - It dances today, my heart, like a peacock it dances, it dances. It sports a mosaic of passions like a peacock’s tail, It soars to the sky with delight, it quests, Oh wildly, it dances today, my heart, like a peacock it dances.
+ - I sit at my window gazing The world passes by, nods to me And is gone.
+ - Life, like a child, laughs, shaking its rattle of death as it runs.
+ - From the solemn gloom of the temple children run out to sit in the dust, God watches them play and forgets the priest.
+ - The most important lesson that man can learn from life, is not that there is pain in this world, but that it is possible for him to transmute it into joy.
+ - Man is a rough-hewn and woman a finished product.
+ - We gain freedom when we have paid the full price.
+ - The tyrant claims freedom to kill freedom, and yet keep it for himself.
+ - Man goes into the noisy crowd to drown his own clamor of silence.
+ - Languages are jealous sovereigns, and passports are rarely allowed for travellers to cross their strictly guarded borders.
+ - Mistakes live in the neighborhood of truth and therefore delude us.
+ - I do not love him because he is good, but because he is my child.
+ - We sit inert, like dead specimens of some museum, while lessons are pelted at us from on high, like hailstones on flowers.
+ - The echo mocks her origin to prove she is the original.
+ - The same stream of life that runs through the world runs through my veins night and day.
+ - Those who have everything but thee, my God, laugh at those who have nothing but thyself.
+ - God waits to win back his own flowers as gifts from man’s hands.
+ - Be brave, right through, and leave for the unknown.
+ - My eyes have seen much, but they are not weary. My ears have heard much, but they thirst for more.
+ - Night’s darkness is the bag that bursts with the gold of the dawn.
+ - To the guests that must go, bid God’s speed and brush away all traces of their steps.
+ - The false can never grow into truth by growing in power.
+ - Emancipation from the bondage of the soil is no freedom for the tree.
+ - A butterfly flitting from flower to flower ever remains mine, I lose the one that is netted by me.
+ - The spirit of rejection finds its support in the consciousness of separateness; the spirit of acceptance finds its base in the consciousness of unity.
+ - This principle of opposites is at the very root of Creation, which is divided between the rule of the King and the Queen; Night and Day; the One and the Varied; the Eternal and the Evolving.
+ - It’s far better to make people angry than to make them ashamed.
+ - I will sit in the pupil of your eyes and that will carry your sight into the heart of the things.
+ - The Great Morning which is for all, rises in the East.
+ - Thou hast brought the distant near and made a brother of the stranger.
+ - The infinite being has assumed unto himself the mystery of finitude. And in him who is love the finite and the infinite are made one.
+ - If I call not thee in my prayers, if I keep not thee in my heart, thy love for me still waits for my love.
+ - The heart wants to go on; that is its dharma. For unless it moves, it dies.
+ - By touching you may kill, by keeping away you may possess.
+ - The best kind of wealth is to give up inordinate desires.
+ - Some day I shall sing to thee in the sunrise of some other world, I have seen thee before in the light of the earth, in the love of man.
+ - I believe in a spiritual world – not as anything separate from this world – but as its innermost truth. With the breath we draw we must always feel this truth, that we are living in God.
+ - God, the Great Giver, can open the whole universe to our gaze in the narrow space of a single land.
+ - The flower fades and dies; but he who wears the flower has not to mourn for it for ever.
+ - He it is, the innermost one, who awakens my being with his deep hidden touches. He it is who puts his enchantment upon these eyes and joyfully plays on the chords of my heart in varied cadence of pleasure and pain.
+ - The fundamental desire of life is the desire to exist.
+ - Bravery ceases to be bravery at a certain point, and becomes mere foolhardiness.
+ - He who is too busy doing good finds no time to be good.
+ - Let not the hours pass by in the dark. Kindle the lamp of love with thy life.
+ - Ah, thou hast made my heart captive in the endless meshes of thy music, my master!
+ - And, indeed, what little of beauty and peace is to be found in the societies of men is owing to the daily performance of small duties, not to big doings and fine talk.
+ - We do not stray out of all words into the ever silent; We do not raise our hands to the void for things beyond hope.
+ - Spurious fame spreads from tongue to tongue like the fog of the early dawn before the sun rises.
+ - I touch God in my songas the hill touched the far-away seawith its waterfall.
+ - From the grasses in the field to the stars in the sky, each one is doing just that; and there is such profound peace and surpassing beauty in nature because none of these tries forcibly to transgress its limitations.
+ - Everything has sprung from immortal life and is vibrating with life, for life is immense!
+ - Those who own much have much to fear.
+ - Never be afraid of the moments – thus sings the voice of the everlasting.
+ - April, like a child, Writes hieroglyphs on dust with flowers, Wipes them away and forgets.
+ - Our responsibility is no longer to acquire, but to BE.
+ - Life is perpetually creative because it contains in itself that surplus which ever overflows the boundaries of the immediate time and space, restlessly pursuing its adventure of expression in the varied forms of self-realization.
+ - Whatever we treasure for ourselves separates us from others; our possessions are our limitations.
+ - In the world’s audience hall, the simple blade of grass sits on the same carpet with the sunbeams, and the stars of midnight.
+ - The force of arms only reveals man s weakness.
+ - The past is always with us, for nothing that once was time can ever depart.
+ - Let your life lightly dance on the edges of Time like dew on the tip of a leaf.
+ - When he has the power to see things detached from self-interest and from the insistent claims of the lust of the senses, then alone can he have the true vision of the beauty that is everywhere.
+ - Only those of tranquil minds, and none else, can attain abiding joy, by realizing within their souls the Being who manifests one essence in a multiplicity of forms.
+ - Unless you have found God in your own soul, the whole world will seem meaningless to you.
+ - Someone spilled the ink on the canvas. Now boasts: “I painted the night”.
+ - Please is frail like a dewdrop, while it laughs it dies. But sorrow is strong and abiding. Let sorrowful love wake in your eyes.
+ - Those who think to reach God by running away from the world, when and where do they expect to meet him? We are reaching him here in this very spot, now at this very moment.
+ - Gray hairs are signs of wisdom if you hold your tongue, speak and they are but hairs, as in the young.
+ - The weak can be terrible because they try furiously to appear strong.
+ - Plunge into the deep without fear, with the gladness of April in your heart.
+ - To the birds you gave songs, the birds gave you songs in return. You gave me only a voice, yet asked for more, thus I sing.
+ - The newer people of this modern age are more eager to amass than to realize.
+ - God is neither manifest nor hidden; He is neither revealed nor unrevealed; there are no words to tell that which He is. He is without form, without quality, without decay.
+ - Overstraining is the enemy of accomplishment. Calm strength that arises from a deep and inexhaustible source is what brings success.
+ - If it is necessary to die in order to live like men, what harm in dying?
+ - A thorn can only be extracted if you know where it is.
+ - Wrong is wrong only when you are at liberty to choose.
+ - Whenever our life is stirred by truth, it expresses energy and comes to be filled, as it were, with a creative ardor. This consciousness of the creative urge is evidence of the force of truth on our mind.
+ - When we rejoice in our fullness, then we can part with our fruits with joy.
+ - It is the same life that emerges in joy through the dust of the earth into numberless waves of flower.
+ - It is in the very heart of our activity that we search for our goal.
+ - Man discovers his own wealth when God comes to ask gifts of him.
+ - Jewel-Like the immortaldoes not boast of its length of yearsbut of the scintillating point of the moment.
+ - The hours trip rapidly away, hiding their dreams in their skirts.
+ - It is no easy task to lead men. But it is easy enough to drive them.
+ - We are like newborn children, Our power is the power to grow.
+ - To be constantly changing one’s plans isn’t decision at all-it’s indecision.
+ - When I think of ages past That have floated down the stream Of life and love and death, I feel how free it makes us To pass away.
+ - Dark clouds become heaven’s flowers when kissed by light.
+ - You have given me Your love, filling the world with Your gifts.
+
+327 quotes

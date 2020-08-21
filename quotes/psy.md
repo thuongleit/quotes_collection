@@ -1,0 +1,31 @@
+ - The world’s most famous and popular language is music.
+ - There’s a lot of variety of musicians in Korea. I cannot say they are the best in the world, but I can say that Korean artists are really dynamic artists, so I am going to show that from now on.
+ - I cannot learn creation from other people; I’ve got to do it myself. Now, honestly, I regret not studying – I don’t know about harmonies, or anything, so if I’m composing a song, it’s really hard.
+ - In Korea, it’s a tradition to inherit your father’s business. Unfortunately, I’m the only son in the entire family, so they were forcing too much.
+ - If a Korean artist reaches to the top, we’re all ready to stand up and applaud for him or her.
+ - Gangnam is a territory in Seoul, Korea. I describe it as noble at the daytime and going crazy at the night time. I compare ladies to the territory. So – noble at the daytime, going crazy at the night time – and the lyric says I am the right guy for the lady who is like that.
+ - In Korean, my lyrics are witty and have twists. But translated into English, it doesn’t come over. I’ve tried writing in English, just for me, but it doesn’t work. I’ve got to know everything about a culture, and I don’t.
+ - I never expect I would become a K-pop star.
+ - I’ve got to wear sunglasses everywhere, all the time, even if its indoors or at night time, to be recognized. That’s part of my job. I cannot take off my sunglasses. For me, staying in the United States was so dark because I can’t take them off.
+ - My lifetime role model and hero is Freddie Mercury of Queen.
+ - My wife looks at the person Park Jae Sang and the singer who goes up on stage, Psy, as different people.
+ - I try to dress classy and dance cheesy.
+ - It’s tiring to be asked the same questions all day long: ‘What is Gangnam style?’ and ‘Teach me how to dance.’
+ - I will bring more Korean dance moves and Korean songs overseas.
+ - Before ‘Gangnam Style’ I was not a good attitude artist.
+ - As an artist, the more experience, the better the creation. I’m a very positive person.
+ - There’s no time to be bored. I’m so busy doing the horse dance.
+ - Everything moves way too fast.
+ - I like the word ‘artist,’ but I don’t like the word ‘artist’ inside my house.
+ - My original name is Jae-Sang Park, so it’s totally different.
+ - The fact that I’m shouting that I have Gangnam style makes people crack up. Imagine if Brad Pitt was singing the song – would it be funny? A twist is important when it comes to writing lyrics.
+ - I just made my album. I did my best. And I uploaded the video just to ‘YouTube.’ That was all.
+ - I’m not that good looking. That’s why ‘Gangnam Style’ works. If someone handsome uses that phrase it’s just awkward. But if someone like me uses it, it’s funny.
+ - All the people in Korea are cheering me like I’m a gold medalist or something, so I have a responsibility to my country.
+ - We are just at the studio, me and my choreographers, we are spending like 30 nights and we are thinking, what is my next dance move? Because in Korea there are huge expectations about my dancing. So it was a lot of pressure.
+ - The basic principle I have is that what is most Korean is what is the most international. I don’t want to come here and act like I’m an American. I want to showcase the dynamic potential Korea has, and I want to prove that as an artist.
+ - Thanks to many great K-pop singers, the groundwork has been laid for more Korean songs to be readily accessible to an overseas audience via channels like YouTube.
+ - If I say, ‘Hey, I’m Psy.’ ‘Psy?’ ‘The guy from the video on YouTube?’ ‘Oh.’ I hate that. I’ve got to be more popular than the video. So I need to keep promoting myself.
+ - I need to show the world that my final goal is to perform huge concerts like Madonna.
+
+29 quotes

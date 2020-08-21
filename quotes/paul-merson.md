@@ -1,0 +1,22 @@
+ - As the saying goes, ‘you don’t fix something if it isn’t broken’
+ - Reading won’t have the confidence to be confident.
+ - Goals dictate how matches go.
+ - When Everton knock it long, they don’t knock it long.
+ - In England, Rooney is a world-class footballer in the world.
+ - Everton are literally a bag of Revells.
+ - It’s very difficult to play when your lung comes out of your air.
+ - Paul Lambert has learned Fabian Delph the game.
+ - David Nugent tore up the Championship but he’s gone to Portsmouth and he’s a fish up a tree.
+ - If you keep walking past the barbers, eventually you’ll get a haircut.
+ - You don’t want to bite your nose off to spite your face.
+ - I think Southampton will finish above teams that are well below them.
+ - Ian Ashby is very underrated and it’s right he gets the accolades he gets.
+ - There’s only one person gets you sacked and that’s the fans.
+ - Football’s all about yesterday, it’s all about now.
+ - Confidence is a horrible thing.
+ - To win the Champions League with Porto, you have to be tactically acute.
+ - United won’t fall asleep against Liverpool. They’ll win it in their sleep.
+ - Every single player on the pitch is now in the Birmingham box, apart from two of them.
+ - When we kicked off and no one came to mark me I thought, ‘Hello, it’s Christmas’
+
+20 quotes

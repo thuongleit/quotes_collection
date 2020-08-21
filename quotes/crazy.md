@@ -1,0 +1,42 @@
+ - Work like there is someone working twenty-four hours a day to take it all away from you. ~~Mark Cuban
+ - Its a crazy world out there. Be curious. ~~Stephen Hawking
+ - You can’t be old and wise, if you were never young and crazy. ~~Chris Brown
+ - The truth is you don’t know what is going to happen tomorrow. Life is a crazy ride, and nothing is guaranteed. ~~Eminem
+ - I’m not strange, weird, off, nor crazy, my reality is just different from yours. ~~Lewis Carroll
+ - To myself I am only a child playing on the beach, while vast oceans of truth lie undiscovered before me. ~~Isaac Newton
+ - People think you’re crazy if you talk about things they don’t understand. ~~Elvis Presley
+ - It surprises me how disinterested we are today about things like physics, space, the universe and philosophy of our existence, our purpose, our final destination. Its a crazy world out there. Be curious. ~~Stephen Hawking
+ - In a mad world, only the mad are sane. ~~Akira Kurosawa
+ - The thing about smart people is that they seem like crazy people to dumb people. ~~Stephen Hawking
+ - To create art means to be crazy alone forever. ~~Charles Bukowski
+ - I never looked at the consequences of missing a big shot. When you think about the consequences you always think of a negative result. ~~Michael Jordan
+ - The surest sign that intelligent life exists elsewhere in the universe is that it has never tried to contact us. ~~Bill Watterson
+ - I’m crazy, but I’m not stupid. ~~Jackie Chan
+ - The world may be broken, but hope is not crazy. ~~John Green
+ - Men may come and men may go but I go on forever. ~~Alfred Tennyson
+ - What is that feeling when you’re driving away from people and they recede on the plain till you see their specks dispersing? – it’s the too-huge world vaulting us, and it’s good-bye. But we lean forward to the next crazy venture beneath the skies. ~~Jack Kerouac
+ - In order to develop normally, a child requires progressively more complex joint activity with one or more adults who have an irrational emotional relationship with the child. Somebody’s got to be crazy about that kid. That’s number one. First, last and always. ~~Urie Bronfenbrenner
+ - If you did not write every day, the poisons would accumulate and you would begin to die, or act crazy or both-you must stay drunk on writing so reality cannot destroy you. ~~Ray Bradbury
+ - Society, you’re a crazy breed. ~~Eddie Vedder
+ - I make my protein drink with whiskey. People think I’m crazy, but that’s the way I am. I get stoned, I do my own thing. ~~Arnold Schwarzenegger
+ - Every child needs at least one adult who is irrationally crazy about him or her. ~~Urie Bronfenbrenner
+ - I’d just be the catcher in the rye and all. I know it’s crazy, but that’s the only thing I’d really like to be. I know it’s crazy. ~~J.D. Salinger
+ - Marriage is the chief cause of divorce. ~~Groucho Marx
+ - Once you say you’re going to settle for second, that’s what happens to you in life. ~~John F. Kennedy
+ - Here we may reign secure; and in my choice To reign is worth ambition, though in hell: Better to reign in hell than serve in heaven. ~~John Milton
+ - He who wishes to be obeyed must know how to command. ~~Niccolò Machiavelli
+ - Having faith often means doing what others see as crazy. ~~Francis Chan
+ - I’m very sane about how crazy I am. ~~Carrie Fisher
+ - Don’t let the opinions of the average man sway you. Dream, and he thinks you’re crazy. Succeed, and he thinks you’re lucky. Acquire wealth, and he thinks you’re greedy. Pay no attention. He simply doesn’t understand. ~~Robert G. Allen
+ - Live life fully while you’re here. Experience everything. Take care of yourself and your friends. Have fun, be crazy, be weird. ~~Tony Robbins
+ - Escapism- that’s what I like. I’m not so crazy about the reality of everything. ~~Michael Jackson
+ - I’m a crazy car guy. I’ve got an airplane hangar full of cars. ~~Paul Walker
+ - We get shy about saying things like I love you. Life is so short. It’s crazy, that we hesitate to express our true thoughts to each other. ~~Yoko Ono
+ - The world of knowledge takes a crazy turn when teachers themselves are taught to learn. ~~Bertolt Brecht
+ - Maintain a sense of humor. People who take themselves too seriously are power-crazy. If they win it will be haircuts for all. Beware of power freaks. ~~Abbie Hoffman
+ - We mathematicans are all a bit crazy. ~~Lev Landau
+ - Never let the fear of striking out keep you from playing the game. ~~Babe Ruth
+ - Your mind will answer most questions if you learn to relax and wait for the answer. ~~William S. Burroughs
+ - Behind every successful man is a woman, behind her is his wife. ~~Groucho Marx
+
+40 quotes

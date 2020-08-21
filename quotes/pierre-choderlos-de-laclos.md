@@ -1,0 +1,23 @@
+ - Revenge is a dish that is best served cold.
+ - La vengeance est un plat qui se mange froid.
+ - All publicity is good publicity.
+ - Truth to tell, the longer I live, the more I’m tempted to think that the only moderately worthwhile people in the world are you and I.
+ - Humanity is not perfect in any fashion; no more in the case of evil than in that of good. The criminal has his virtues, just as the honest man has his weaknesses.
+ - How characteristic of your perverse heart that longs only for what happens to be out of reach.
+ - When one woman strikes at the heart of another, she seldom misses, and the wound is invariably fatal.
+ - Don’t you remember that love, like medicine, is only the art of encouraging nature?
+ - I see you are already as timid as a slave: you might as well be in love.
+ - You may conquer her love of God: you will never overcome her fear of the devil.
+ - Marquise de Merteuil: I’ve distilled every thing to one single principle: win or die.
+ - I assure you that the world is not so amusing as we imagined.
+ - One must not permit oneself excesses, except with persons whom one wishes soon to leave.
+ - I willingly allow that money does not guarantee happiness; but it must also be allowed that it makes happiness a great deal easier to achieve.
+ - I can see that you’re in love, but only in a very narrow sense. It’s the love of someone that finds charms and qualities in a woman that she doesn’t actually have, who puts her in a class apart with every one else in second place, and who stays attached to her even while he’s abusing her.
+ - A man enjoys the happiness he feels, a woman the happiness she gives.
+ - Either you have a rival or you don’t. If you have one, you must please in order to be preferred to him, and if you don’t you must still please-in order to avoid having one.
+ - It was there, in particular, that I confirmed the truth that love, which we cry up as the source of our pleasures, is nothing more than an excuse for them.
+ - Cast between the extremes of happiness and misfortune, uncertainty is a cruel torment.
+ - I am astonished at the pleasure one experiences in doing good; and I should be tempted to believe that what we call virtuous people have not so much merit as they lead us to suppose.
+ - It has become necessary for me to have this woman, so as to save myself from the ridicule of being in love with her: for to what lengths will a man not be driven by thwarted desire?
+
+21 quotes

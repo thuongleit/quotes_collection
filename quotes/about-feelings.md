@@ -1,0 +1,42 @@
+ - Spiteful words can hurt your feelings but silence breaks your heart. ~~C. S. Lewis
+ - Not the ones speaking the same language, but the ones sharing the same feeling understand each other. ~~Rumi
+ - Feeling is the secret. ~~Neville Goddard
+ - Your feelings are your god. ~~Chanakya
+ - Manners are a sensitive awareness of the feelings of others. ~~Emily Post
+ - Do not give in too much to feelings. A overly sensitive heart is an unhappy possession on this shaky earth. ~~Johann Wolfgang von Goethe
+ - Daring greatly means the courage to be vulnerable. It means to show up and be seen. To ask for what you need. To talk about how you’re feeling. To have the hard conversations. ~~Brené Brown
+ - Focus equals feeling. ~~Tony Robbins
+ - Feeling sorry for yourself, and your present condition, is not only a waste of energy but the worst habit you could possibly have. ~~Dale Carnegie
+ - The worse feeling is when someone makes you feel special, then suddenly leaves you hanging, and you have to act like you don’t care at all. ~~Drake
+ - Feelings are much stronger than thoughts. We are all led by instinct, and our intellect catches up later ~~Bono
+ - Contentment with life is not a feeling, but it is a decision we must make. ~~Joyce Meyer
+ - What is good? All that heightens the feeling of power, the will to power, power itself. What is bad? All that is born of weakness. What is happiness? The feeling that power is growing, that resistance is overcome. ~~Friedrich Nietzsche
+ - I offer you peace. I offer you love. I offer you friendship. I see your beauty. I hear your need. I feel your feelings. ~~Mahatma Gandhi
+ - The greatest happiness is to transform one’s feelings into action. ~~Madame de Stael
+ - In vain have I struggled. It will not do. My feelings will not be repressed. You must allow me to tell you how ardently I admire and love you. ~~Jane Austen
+ - U2 is an original species... there are colours and feelings and emotional terrain that we occupy that is ours and ours alone. ~~Bono
+ - The Art of Fulfillment is the ability to experience not only the thrill of the chase, but also the magic of the moment, the unbridled joy of feeling truly alive. ~~Tony Robbins
+ - My motto was always to keep swinging. Whether I was in a slump or feeling badly or having trouble off the field, the only thing to do was keep swinging. ~~Hank Aaron
+ - Friendship is like peeing on yourself: everyone can see it, but only you get the warm feeling that it brings. ~~Robert Bloch
+ - If you will stop feeding your feelings, then they will stop controlling you. ~~Joyce Meyer
+ - The scars of your love remind me of us they keep me thinking that we almost had it all the scars of your love they leave me breathless I can’t help feeling we could have had it all. ~~Adele
+ - Luxury, to me, is not owning a lot of stuff. Luxury, to me, is feeling unrushed. ~~Tim Ferriss
+ - When you are listening to somebody, completely, attentively, then you are listening not only to the words, but also to the feeling of what is being conveyed, to the whole of it, not part of it. ~~Jiddu Krishnamurti
+ - I’m half alive but I feel mostly dead. ~~Jewel
+ - You cannot make yourself feel something you do not feel, but you can make yourself do right in spite of your feelings. ~~Pearl S. Buck
+ - Feeling gratitude and not expressing it is like wrapping a present and not giving it. ~~William Arthur Ward
+ - Thoughts are the shadows of our feelings – always darker, emptier and simpler. ~~Friedrich Nietzsche
+ - If I choose to bless another person, I will always end up feeling more blessed. ~~Marianne Williamson
+ - I’ve become the person I’ve always hated, but I’m happier. ~~Woody Allen
+ - Poetry is the spontaneous overflow of powerful feelings: it takes its origin from emotion recollected in tranquility. ~~William Wordsworth
+ - Never play with the feelings of others. Because you may win the game but the risk is that you will surely lose the person for a life time. ~~William Shakespeare
+ - God is not present in idols. Your feelings are your god. The soul is your temple. ~~Chanakya
+ - First feelings are always the most natural. ~~Louis XIV
+ - Feelings are never true. They play with their mirrors. ~~Jean Baudrillard
+ - A feeling of aversion or attachment toward something is your clue that there’s work to be done. ~~Ram Dass
+ - I pay no attention whatever to anybody’s praise or blame. I simply follow my own feelings. ~~Wolfgang Amadeus Mozart
+ - It’s a weird feeling when people are defining you, and you haven’t even defined yourself. ~~Leonardo DiCaprio
+ - One looks back with appreciation to the brilliant teachers, but with gratitude to those who touched our human feelings. The curriculum is so much necessary raw material, but warmth is the vital element for the growing plant and for the soul of the child. ~~C.G. Jung
+ - Luxury is feeling unrushed. It is designing a life that allows you to do what you want with high leverage, with many options, all while feeling unrushed. ~~Tim Ferriss
+
+40 quotes

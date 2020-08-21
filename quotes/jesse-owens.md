@@ -1,0 +1,40 @@
+ - We all have dreams. But in order to make dreams come into reality, it takes an awful lot of determination, dedication, self-discipline, and effort.
+ - Find the good. It’s all around you. Find it, showcase it and you’ll start believing in it.
+ - One chance is all you need.
+ - I always loved running. It was something you could do by yourself, and under your own power. You could go in any direction, fast or slow as you wanted, fighting the wind if you felt like it, seeking out new sights just on the strength of your feet and the courage of your lungs.
+ - The battles that count aren’t the ones for gold medals. The struggles within yourself – the invisible, inevitable battles inside all of us – that’s where it’s at.
+ - The only victory that counts is the one over yourself.
+ - A lifetime of training for just ten seconds.
+ - Awards become corroded, friends gather no dust.
+ - Running is real. It’s all joy and woe, hard as diamond. It makes you weary beyond comprehension, but it also makes you free.
+ - Friendships born on the field of athletic strife are the real gold of competition. Awards become corroded, friends gather no dust.
+ - The road to the Olympics, leads to no city, no country. It goes far beyond New York or Moscow, ancient Greece or Nazi Germany. The road to the Olympics leads – in the end – to the best within us.
+ - After I came home from the 1936 Olympics with my four medals, it became increasingly apparent that everyone was going to slap me on the back, want to shake my hand or have me up to their suite. But no one was going to offer me a job.
+ - Life doesn’t give you all the practice races you need.
+ - I had four gold medals, but you can’t eat four gold medals.
+ - Although I wasn’t invited to shake hands with Hitler, I wasn’t invited to the White House to shake hands with the President either.
+ - The lives of most men are patchwork quilts. Or at best one matching outfit with a closet and laundry bag full of incongruous accumulations. A lifetime of training for just ten seconds.
+ - We used to have a lot of fun. We never had any problems. We always ate. The fact that we didn’t have steak? Who had steak?
+ - I decided I wasn’t going to come down. I was going to fly. I was going to stay up in the air forever.
+ - It all goes so fast, and character makes the difference when it’s close.
+ - When I came back, after all those stories about Hitler and his snub, I came back to my native country, and I could not ride in the front of the bus. I had to go to the back door. I couldn’t live where I wanted. Now what’s the difference?
+ - Hitler didn’t snub me – it was FDR who snubbed me. The president didn’t even send me a telegram.
+ - The black fist is a meaningless symbol. When you open it, you have nothing but fingers – weak, empty fingers. The only time the black fist has significance is when there’s money inside. There’s where the power lies.
+ - When I passed the Chancellor he arose, waved his hand at me, and I waved back at him. I think the writers showed bad taste in criticizing the man of the hour in Germany.
+ - The only bond worth anything between human beings is their humanness.
+ - If you don’t try to win you might as well hold the Olympics in somebody’s back yard.
+ - To a sprinter, the hundred-yard dash is over in three seconds, not nine or ten.
+ - Every morning, just like in Alabama, I got up with the sun, ate my breakfast even before my mother and sisters and brothers, and went to school, winter, spring, and fall alike to run and jump and bend my body this way and that for Mr. Charles Riley.
+ - I realized now that militancy in the best sense of the word was the only answer where the black man was concerned, that any black man who wasn’t a militant in 1970 was either blind or a coward.
+ - The secret is, first, get a thoroughbred horse because they are the most nervous animals on earth. Then get the biggest gun you can find and make sure the starter fires that big gun right by the nervous thoroughbred’s ear.
+ - It’s like having a pet dog for a long time. You get attached to it, and when it dies you miss it.
+ - I let my feet spend as little time on the ground as possible. From the air, fast down, and from the ground, fast up.
+ - For a time, at least, I was the most famous person in the entire world.
+ - I wanted no part of politics. And I wasn’t in Berlin to compete against any one athlete. The purpose of the Olympics, anyway, was to do your best. As I’d learned long ago from Charles Riley, the only victory that counts is the one over yourself.
+ - It dawned on me with blinding brightness. I realized: I had jumped into another rare kind of stratosphere – one that only a handful of people in every generation are lucky enough to know.
+ - He was constantly on me about the job that I was to do and the responsibility that I had upon the campus. And how I must be able to carry myself because people were looking.
+ - It was bad enough to have toppled from the Olympic heights to make my living competing with animals. But the competition wasn’t even fair. No man could beat a race horse, not even for 100 yards.
+ - People come out to see you perform and you’ve got to give them the best you have within you.
+ - I’d noticed him watching me for a year or so, especially when we’d play games where there was running or jumping.
+
+38 quotes

@@ -1,0 +1,131 @@
+ - If you want to avoid heated arguments, never discuss religion, politics, or whether the toilet paper roll should go over or under.
+ - If money can’t buy happiness, then I guess I’ll have to rent it.
+ - I’m an ugly girl, My face makes you hurl, Sad I have it, I should bag it. Acne everywhere, Unwanted facial hair. I’m a relation to Frankenstein’s creation.
+ - Kind of wish I was dead. Maybe, I’ll blow my brains out, mama, or maybe I’ll go bowling.
+ - Ever since the day you left me, I’ve been so miserable, my dear. I feel almost as bad as I did when you were still here.
+ - Take down those naked pictures of Ernest Borgnine.
+ - I’ll be mellow when I’m dead.
+ - Boys like Peter are afraid of alot of things, like nuclear annihilation and flunking algebra, but they’re not afraid of wolves.
+ - Nows the time to go for all the gusto you can grab. You’ll have plenty of time to be low-key when you’re laid out on the slab.
+ - As my father used to tell me, the only true sign of success in life is being able to do for a living that which makes you happy.
+ - You don’t need to be defined by your job.
+ - It’s hard to force creativity and humor.
+ - I’m just a no-good, scum sucking, nose picking, boot licking, sniveling, groveling, worthless hunk of slime.
+ - I’m stranded all alone in the gas station of love, and I have to use the self service pump.
+ - You got me stranded on the bungee tower of love.
+ - So that’s why one of my rules of parody writing is that it’s gotta be funny regardless of whether you know the source material. It has to work on its own merit.
+ - As a wise man once said, “April Fools Day is for amateurs. You NEVER need an excuse to mess with people’s heads.”
+ - No Joni Mitchell 8 track tapes in my car.
+ - I think my chances of getting into the Rock ‘N’ Roll Hall Of Fame are about as good as Milli Vanilli’s.
+ - I can bend paper clips into the shapes of small animals.
+ - I don’t want to pooh-pooh modern pop. I appreciate that as well, but my personal favorite kind of music is guitar-based rock. I like grunge and garage bands and alternative music, but that’s more my personal taste.
+ - I don’t like to label myself. I know I’m very hard to pigeonhole.
+ - When I swore that you’re getting more and more beautiful everyday. Well, I was only kidding, honey.
+ - That’s a big part of my life – doing things that I’m not prepared to do. Doing things that I don’t know how to do, and keep doing them until I get good at them. I always try to put myself out of my comfort zone and out of my depth, and hopefully somewhere along the line I’ll catch up.
+ - You make me wanna staple bagels to my face, then remove them with a pitchfork.
+ - I was abducted by some aliens from space who kind a looked like Jamie Farr.
+ - My velvet Elvis means the world to me. Although he may not be worth much dough, he means more to me than some old Rembrandt or Van Gogh.
+ - Left all my Beatle records out in the sun, got a coke bottle stuck on the end of my tongue.
+ - I don’t think there are any new media I’d like to cover.
+ - He put Ben Gay inside my jock strap and filled my tooth paste tube up with glue.
+ - I’d rather clean all the bathrooms in Grand Central Station with my tongue than spend one more minute with you.
+ - I don’t watch a lot of other people’s parodies because I don’t want to be unduly influenced.
+ - Maybe I’ll make a huge color tapestry from my belly button lint.
+ - I try not to go the obvious route all the time, but sometimes the most obvious is actually the best.
+ - Got a brand new semi-automatic weapon with a laser sight. Oh, I’m praying that somebody tries to break in here tonight.
+ - When I was a kid, I thought I was going to be an architect, because when I was 12 years old I had a guidance counselor that convinced me that that was the best career choice for me.
+ - You can play some schlock like New Kids On the Block.
+ - I guess I lost a little bit of self-esteem that time that you made it with the whole hockey team.
+ - I know I’m a million times as humble as thou art!
+ - You slammed my face down on the barbecue grill, now my scars are all healing, but my heart never will.
+ - I mean, I hate to gloat, but I’m extremely satisfied with my position in life and the way things have worked out for me.
+ - A lot of rap songs don’t usually have a lot of melody per se.
+ - Buy our album, were Nirvana, a garage band from Seattle. Well, it sure beats raising cattle.
+ - Didn’t have Nintendo, we just poured salt on snails.
+ - My hobbies just sort of gradually became my vocation.
+ - That’s something the kids should know about. Reading is a gateway to witchcraft and lesbianism.
+ - Beans, beans, the magic legumes – the more you ingest, the more you consume.
+ - I knew we were having problems when you put those piranhas in my bathtub again.
+ - I enjoy all kinds of music. But it is kind of strange when I do parodies, instead of setting up drums and guitar amps.
+ - By the time I’m in the studio recording my parody, 10,000 parodies of that song are on YouTube.
+ - It fit pretty nicely into my schedule because we’d pretty much finished the bulk of promotion for Mandatory Fun and were just getting geared up for the World Tour so this was a nice time for me to be working on it.
+ - I like the guitar-driven music of Nirvana at its peak. At that point, I thought there was a lot of really exciting music coming out.
+ - Not any specific one, but I was a huge fan of Frank Jacobs, I guess he wrote the plurality of the song parodies for MAD, Sam Hart, a few others, but that was also where I was first exposed to the art form of song parodies.
+ - It doesn’t take a military genius to see we’ll all be crispy critters after World War III.
+ - I think I’m equally as abusive as the editors normally are for the “Letters and Tomatoes” column, which is the fan mail part of MAD Magazine and an ongoing feature.
+ - I’m still a geek on the inside, that’s the important thing.
+ - I’m very analytical, I’m very precise.
+ - One of the hardest things I’ve had to deal with in my career is keeping my material topical even though I only release albums every three or four years.
+ - Right now I’m listening to a lot of Top 40 music, because THAT’S MY JOB.
+ - Midget wrestling on channel 3, it costs me 50 bucks a month.
+ - You fake something until you’re good at it.
+ - Some people want to advertise their weirdness, and spread it out, that’s not me.
+ - There’s enough people that do unfunny music. I’ll leave the serious stuff to Paris Hilton and Kevin Federline.
+ - The window doesn’t open, the fan is broke, and my face is turning blue. I haven’t been in a crowd like this since I went to see the Who.
+ - I’ve learned how to use my spam filter pretty effectively.
+ - In the ’80s, I was the only game in town, I was the only one getting that kind of exposure in any rotation on MTV. Now with internet culture it seems like everyone is doing music parodies. And they’re not all good!
+ - One of my pet peeves is that sometimes the talents of my band get overlooked because, and it was the same problem that Frank Zappa had, with a lot of groups that use humor, people don’t realize there’s a lot of craft behind the comedy.
+ - I was a huge fan of ‘Mad’ magazine when I was 11, 12, 13 years old. I’d scour used bookstores trying to find back issues, and I’d wait at the newsstand for a new issue to come out. My life revolved around it.
+ - There are probably a few library fines I haven’t paid yet, but I’m a pretty clean-cut guy overall.
+ - What kind of morons do you have working at newspapers in Austin that would base an entire review of an artist’s performance on whether or not they had a good seat?
+ - Until you came along I never dated anyone this low on the food chain.
+ - You still have Top 40 radio now, but it’s 40 different stations. There aren’t many hits that everybody knows, and there aren’t many real superstars.
+ - When I go to my live shows it’s often a multigenerational audience, a family bonding experience.
+ - How can you get bored if the audience is cheering and laughing at something you’re doing?
+ - When I started out, I didn’t feel like I was really accepted in the music or comedy communities, and I was somewhere on the edge, but now I feel like I’m accepted in both, which is extremely gratifying.
+ - I don’t really look at myself as the kind of person who craves attention, but I’ve never been to therapy so there’s probably a lot of stuff about myself that I don’t know.
+ - If I could find the right kind of property, get tied in with the right movie, I’d love to be involved, but I just find it hard to be motivated to do another screenplay right now.
+ - As much as people are griping about the Internet taking sales away from artists, it’s been a huge promotional tool for me.
+ - I’ve done a movie and a TV series, and someday I’d like to do a successful movie and a successful TV series. That would be nice.
+ - My personal taste doesn’t enter into it a lot when I make my decisions as to what to parody.
+ - Many years ago I found out something about hamburgers that really grossed me out. You may not know this, so I hope I don’t make you sick, but it turns out hamburgers are actually made out of dead cows. I am not making this up. Needless to say, as soon as I discovered that, I gave up meat entirely.
+ - There aren’t that many superstars around anymore.
+ - Sometimes I get, “Have you ever thought about doing real music?” I like to think the music I do is real, it just happens to be funny.
+ - The irony is of course that my career has lasted a whole lot longer than some of the people I’ve parodied over the years.
+ - Whenever I do a parody it’s not meant to make you hate anybody’s music really.
+ - I’m obviously not a rapper, and I don’t have any claims to be one, really.
+ - I’m watching the charts every week and hoping something will pop into my head.
+ - It’s hard to say, I picked one of my favorite articles for the MAD vault. Which is one of the features of the Magazine so they don’t have to actually pay artists or writers to come up with new stuff.
+ - He died a long painful death. However, you’ll be happy to hear that just a few years later he was reincarnated as Shirley MacLaine.
+ - My wife went off with Elvis.
+ - I’d like to be able to be more topical and timely and more of-the-moment and I think the way to do that is, instead of waiting until I have twelve songs to release all at once, just to release them as I come up with them.
+ - Somebody will come up to me after a show and have me sign their arm, and the next time I see them my autograph has been permanently inscribed on their arm.
+ - It’s hard to really articulate what the parameters are that make one song parody-able and another song not, but if I can come up with a good enough idea for it, I go for it, and if not, then I have to move on.
+ - I do original songs in the style of other artists, where I try to learn all their musical idiosyncrasies and try to do something that sounds like them and yet is a bit more sick and twisted.
+ - I know now that everything I write, I’m going to put out, and I’ll have to live with it for the rest of my life.
+ - My brothers and sisters hated me because I was an only child.
+ - I’m free to do what I please, I’m probably not going to do albums. Just because I think releasing tracks as singles is a better way for me to stay topical.
+ - I think that nerds, if you want to call them that, have only gotten more hip and assimilated into the culture.
+ - I make charts of songs that are good candidates, good targets, so to speak. Then I try to come up with ideas for parodies. And 99% of those ideas are horrible.
+ - I love the way they run in fright when I turn on the kitchen light. And when I squish them on the ground, they make a pleasant crunchy sound.
+ - People that were a little nerdy in high school would look up to me and know it gets better.
+ - As a kid, I certainly never thought I would get to spend my life doing something fun.
+ - Pop culture’s gotten much more disposable.
+ - I dated Siamese twins, I slept with Big Foot, too. Get me on Sally Jesse, put me on Donahue.
+ - I did have a child, and I was reading a lot of picture books to her, but at the same time writing a children’s book was something that I’d been wanting to do for many years, pretty much since the start of my career.
+ - In fact, when I come up with an idea for a parody I try to resist the urge to Google the idea to see if someone has done it already because the answer is almost always, “Yes, of course they have, they’ve thought of it!”
+ - If something is good enough, it can be out there and people will see it.
+ - It becomes more important to me as time goes on to make every album the best thing I’ve ever done, so it’s a lot of self-imposed pressure that also kind of slows me down a bit.
+ - In a genre where most of the artists are one-hit wonders, I’ve been able to hang around longer than most “serious” acts. I pride myself in being a very talented leech.
+ - People never ask people doing serious music, ‘Do you ever think about doing funny music?’
+ - As it turns out, there is a thing called the Internet, and stuff does go out there whether the suits like it or not.
+ - I write and write and write, and then I edit it down to the parts that I think are amusing, or that help the storyline, or I’ll write a notebook full of ideas of anecdotes or story points, and then I’ll try and arrange them in a way that they would tell a semi-cohesive story.
+ - So I’m one of the few celebrities that got to do a repeat performance on ‘The Simpsons,’ which I’m very flattered by.
+ - Every night for dinner we had a big chunk of dirt.
+ - You can try on our suede underwear if you choose. Do what you want, but don’t step on my blue suede shoes.
+ - People say releasing an album is like giving birth, but it’s more like having a gallbladder operation.
+ - The music has always been my bread and butter, and I’ve focused more of my attention on that.
+ - I can’t get too offended when somebody parodies me.
+ - In the ’80s, I was putting out an album virtually every year, I think mostly based on fear – that if I didn’t, people would soon forget about me.
+ - Probably 90 percent of my albums have polka medleys.
+ - There are a lot of songs that would ostensibly be a good candidate for parody, yet I can’t think of a clever enough idea.
+ - I mean, I don’t write for kids.
+ - I do a lot of different things, sometimes at the same time, and it’s very difficult to figure out where I fit.
+ - My process for the parodies is that I get an idea for a song and then get approval from the artist and then go in and record it and probably try to get it out as soon as possible.
+ - I start with a comprehensive list of all the recent songs that have been big hits – and then I go down that list and see if I can come up with funny ideas for them. I can always come up with ideas, but not necessarily good ones!
+ - I suppose I had my rock star fantasies while I was singing into my hairbrush in the bathroom mirror, but I never really consciously said, ‘OK, this is what I’m going to do for a living and I’m going to be Weird Al.’
+ - A lot of artists have really been supportive over the years.
+ - I like to think that I’ve gotten better at what I do. I spend more time and pay more attention to detail album after album. But pretty much it’s stayed the same.
+ - Velvet Elvis never puts on weight.
+
+129 quotes

@@ -1,0 +1,33 @@
+ - You never know when you’re making a memory.
+ - You can’t break the rules until you know how to play the game.
+ - Who can I turn to? Who can I trust?
+ - I like words. Words are places, rooms, distant airs, thin and tropical. They make us feel and imagine we are more than our bodies.
+ - My worst job was working in the laundry of a nursing home.
+ - I didn’t have any great job prospects.
+ - He loved her, free parts and labor. But she broke down and died.
+ - In my opinion, the Republican Party is the last on the list to care about the needs of old people and children and poor people.
+ - Love will wash you clean in the nights disgrace.
+ - I think we are dying in America, I think our democracy is over.
+ - I want to work and be happy.
+ - When I was single my career was my life, so everything I did was of grave importance and was greatly disturbing.
+ - I’m easily destroyed and I operate on emotional levels.
+ - There is no fear before and no fear after. We give our best.
+ - I was raised by a strong mother and I never felt like I had to be a role, you know, I was just me, who I am.
+ - It’s OK to not be political unless your country is falling apart.
+ - I always felt like my future was at stake every time I stepped on stage and that was kind of hair-raising. At some point I just went, don’t be frightened, you can’t do anything wrong, it’s your show.
+ - I never knew when I was gong to leave. I might be walking over to a kid’s house, then of all a sudden I would just stick out my thumb and hitchhike across three states.
+ - As a musician, I’ve accomplished what I hoped to accomplish.
+ - I’m respected, I’m still working, what more could I ask?
+ - Somehow credibility comes into play if you do things that are too familiar.
+ - Popular music has always had its really horrendous stuff.
+ - I think poetry is best read to oneself.
+ - Singing other people’s material was perceived, I think, as a weakness of my persona. The effect, though, was to make me dig my heels in and try even harder to combine the two.
+ - My family in general – they’re troubled or poorer people.
+ - For the most part, people use God as Santa Claus.
+ - I put out a recording of me singing mostly jazz because I wanted people to know I’m coming from a jazz background.
+ - I had a terrible manager once who described my career as ’spiraling downward.
+ - I really enjoy creating music onstage, to participate in making music live.
+ - I would like to be a part of a community of women, and help women be empowered, but I think I’m not necessarily political. I say that because I really hate politicians, so I don’t fancy sitting around and thinking about them all the time.
+ - I’ve always had an active imagination.
+
+31 quotes

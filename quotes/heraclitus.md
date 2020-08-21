@@ -1,0 +1,172 @@
+ - Big results require big ambitions.
+ - Change is the only constant.
+ - Day by day, what you do is who you become.
+ - Out of every one hundred men, ten shouldn’t even be there, eighty are just targets, nine are the real fighters, and we are lucky to have them, for they make the battle. Ah, but the one, one is a warrior, and he will bring the others back.
+ - The only thing permanent is change.
+ - No man ever steps in the same river twice, for it’s not the same river and he’s not the same man.
+ - There is nothing permanent except change. Nothing is permanent except change. The only constant is change. Change is the only constant. Change alone is unchanging.
+ - Nothing endures but change. There is nothing permanent except change. All is flux, nothing stays still.
+ - The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become.
+ - A man’s character is his fate.
+ - Nothing is constant except change.
+ - You cannot step into the same river twice.
+ - Everything changes and nothing stands still.
+ - All things flow, nothing abides. You cannot step into the same river twice, for the waters are continually flowing on. Nothing is permanent except change.
+ - Those who are awake all live in the same world. Those who are asleep live in their own worlds.
+ - Abundance of knowledge does not teach men to be wise.
+ - Everything is in flux.
+ - A hidden connection is stronger than an obvious one.
+ - Because it is so unbelievable, the Truth often escapes being known.
+ - The sun is new each day.
+ - There is harmony in the tension of opposites, as in the case of the bow and lyre.
+ - Those who love wisdom must investigate many things.
+ - Dogs bark at what they don’t understand.
+ - Nothing is, everything is becoming.
+ - Those who approach life like a child playing a game, moving and pushing pieces, possess the power of kings.
+ - He who hears not me but the logos will say: All is one.
+ - Everything flows and nothing abides, everything gives way and nothing stays fixed.
+ - Good character is not formed in a week or a month. It is created little by little, day by day. Protracted and patient effort is needed to develop good character.
+ - Allow yourself to think only those thoughts that match your principles and can bear the bright light of day. Day by day, your choices, your thoughts, your actions fashion the person you become. Your integrity determines your destiny.
+ - All things are in a state of flux.
+ - Our envy always lasts longer than the happiness of those we envy.
+ - The nature of things is in the habit of concealing itself.
+ - All things come into being by conflict of opposites.
+ - Learning many things does not teach understanding.
+ - History is a child building a sand-castle by the sea, and that child is the whole majesty of man’s power in the world.
+ - The soul is dyed the color of its thoughts. Think only on those things that are in line with your principles and can bear the light of day.
+ - What sense or thought do they have? They follow the popular singers, and they take the crowd as their teacher.
+ - Presumption must be quenched even more than a fire.
+ - To be evenminded is the greatest virtue. Wisdom is to speak the truth and act in keeping with its nature.
+ - If you do not hope, you will not win that which is not hoped for, since it is unattainable and inaccessible.
+ - The world is nothing but a great desire to live and a great dissatisfaction with living.
+ - Invisible harmony is better than visible.
+ - You may travel far and wide but never will you find the boundaries of the soul.
+ - Whoever cannot seek the unforeseen sees nothing for the known way is an impasse.
+ - War is the father and king of all: some he has made gods, and some men; some slaves and some free.
+ - If we do not expect the unexpected, we will never find it.
+ - Realize that war is common and justice is strife, and that all things come into being and pass away through strife.
+ - To get everything you want is not a good thing. Disease makes health seem sweet. Hunger leads to the appreciation of being full-fed. Tiredness creates the enjoyment of resting.
+ - Life has the name of life, but in reality it is death.
+ - The world, an entity out of everything, was created by none of the gods or men, but was, is and will be eternally living fire, regularly becoming ignited and reg- ularly becoming extinguished...
+ - It is in changing that things find purpose.
+ - Nature is wont to hide herself.
+ - Ever-newer waters flow on those who step into the same rivers.
+ - Under the comb, the tangle and the straight path are the same.
+ - Immortal mortals, mortal immortals, one living the others death and dying the others life.
+ - War is the mother of everything.
+ - The Cosmos was not made by gods but always was and is eternal fire.
+ - To God all things are fair and good and right, but men hold some things wrong and some right.
+ - Man is on earth as in an egg.
+ - What was scattered, gathers. What was gathered, blows away.
+ - Change alone is unchanging.
+ - The awake share a common world, but the asleep turn aside into private worlds.
+ - The opposite is beneficial; from things that differ comes the fairest attunement; all things are born through strife.
+ - The seeing have the world in common.
+ - Of all whose words I have heard, no one attains to this, to know that wisdom is apart from all.
+ - All things come out of the one, and the one out of all things.
+ - No same man could walk through the same river twice, as the man and the river have since changed.
+ - There is a stability in the Universe because of the orderly and balanced process of change, the same measure coming out as going in, as if reality were a huge fire that inhaled and exhaled equal amounts.
+ - Many who have learned from Hesiod the countless names of gods and monsters never understand that night and day are one.
+ - The best of men choose one thing in preference to all else, immortal glory in preference to mortal good; whereas the masses simply glut themselves like cattle.
+ - All things flow, nothing abides.
+ - The wise is one only. It is unwilling and willing to be called by the name of Zeus.
+ - Religion is a disease, but it is a noble disease.
+ - Eternity is a child playing, playing checkers; the kingdom belongs to a child.
+ - All things come into being through opposition and all are in flux like a river.
+ - Eyes are more accurate witnesses than ears.
+ - God is day and night, winter and summer, war and peace, surfeit and hunger.
+ - Time is a game played beautifully by children.
+ - The river where you set your foot just now is gone-those waters give way to this, now this.
+ - Never do today what you can put off until tomorrow. Nothing endures but change.
+ - Things keep their secrets.
+ - Justice will overtake fabricators of lies and false witnesses.
+ - How can you hide from what never goes away?
+ - Life is a child moving counters in a game.
+ - The universal cosmic process was not created by any god or man.
+ - A blow to the head will confuse a man’s thinking, a blow to the foot has no such effect, this cannot be the result of an immaterial soul.
+ - The only constant is change. Unless you get a small group of neighbors together to stop it.
+ - The results are in great need greater ambition.
+ - What we have caught and what we have killed we have left behind, but what has escaped us we bring with us.
+ - Those who hear and do not understand are like the deaf. Of them the proverb says: “Present, they are absent.”
+ - To do the same thing over and over again is not only boredom: it is to be controlled by rather than to control what you do.
+ - From out of all the many particulars comes oneness, and out of oneness come all the many particulars.
+ - It is wise to listen, not to me but to the Word, and to confess that all things are one.
+ - Character is our destiny.
+ - No one can step twice into the same river, nor touch mortal substance twice in the same condition. By the speed of its change, it scatters and gathers again.
+ - The gods are immortal men, and men are mortal gods.
+ - Men who wish to know about the world must learn about it in its particular details.
+ - The outcomes are in incredible need more prominent desire.
+ - Those unmindful when they hear, for all they make of their intelligence, may be regarded as the walking dead.
+ - The most beautiful ape is ugly when compared to a human. The wisest human will seem like an ape when compared to a god with respect to wisdom, beauty, and everything else.
+ - There is exchange of all things for fire and of fire for all things, as there is of wares for gold and of gold for wares.
+ - It is hard to contend against one’s heart’s desire; for whatever it wishes to have it buys at the cost of soul.
+ - Couples are wholes and not wholes, what agrees disagrees, the concordant is discordant. From all things one and from one all things.
+ - To God all things are beautiful and good and just.
+ - Thinking is a sacred disease and sight is deceptive.
+ - Even a soul submerged in sleep is hard at work and helps make something of the world.
+ - It ever was, and is, and shall be, ever-living fire, in measures being kindled and in measures going out.
+ - Man is most nearly himself when he achieves the seriousness of a child at play.
+ - The best people renounce all for one goal, the eternal fame of mortals; but most people stuff themselves like cattle.
+ - Eyes and ears are poor witnesses to people if they have uncultured souls.
+ - A dry soul is wisest and best.
+ - There is but one world common for those who are awake, but when men are asleep, each turns away into a world of his own.
+ - The phases of fire are craving and satiety.
+ - If it were not for injustice, men would not know justice.
+ - Corpses are more fit to be thrown out than is dung.
+ - People ought to fight to keep their law as to defend the citys walls.
+ - Opposition brings concord. Out of discord comes the fairest harmony.
+ - The people should fight for the law as for their city wall.
+ - To God all things are beautiful, good, and right; human beings, on the other hand, deem some things right and others wrong. It would not be better if things happened to people just as they wish.
+ - It is by disease that health is pleasant; by evil that good is pleasant; by hunger, satiety; by weariness, rest.
+ - For those who are awake, the Cosmos is One.
+ - Where there is no strife there is decay: ‘The mixture which is not shaken decomposes.’
+ - It is difficult to fight against anger; for a man will buy revenge with his soul.
+ - Hide our ignorance as we will, an evening of wine soon reveals it.
+ - The fairest order in the world is a heap of random sweepings.
+ - The unlike is joined together, and from differences results the most beautiful harmony.
+ - Doctors cut, burn, and torture the sick, and then demand of them an undeserved fee for such services.
+ - The Lord whose oracle is at Delphi neither reveals nor conceals, but gives a sign.
+ - Wisdom is the oneness of mind that guides and permeated all things.
+ - Applicants for wisdom do what I have done: inquire within.
+ - He who does not expect will not find out the unexpected, for it is trackless and unexplored.
+ - May you have plenty of wealth, you men of Ephesus, in order that you may be punished for your evil ways.
+ - Unless you expect the unexpected you will never find it, for it is hard to discover and hard to attain.
+ - The Sibyl, with frenzied mouth uttering things not to be laughed at, unadorned and unperfumed, yet reaches to a thousand years with her voice by aid of the god.
+ - The majority of people have no understanding of the things with which they daily meet, nor, when instructed, do they have any right knowledge of them, although to themselves they seem to have.
+ - Even sleepers are workers and collaborators on what goes on in the universe.
+ - Knowledge of divine things for the most part is lost to us by incredulity.
+ - Stupidity is better kept a secret than displayed.
+ - What are men? Mortal gods. What are gods? Immortal men.
+ - It would not be better if things happened to men just as they wish.
+ - To God everything is beautiful, good, and just; humans, however, think some things are unjust and others just.
+ - When men dream, each has his own world. When they are awake, they have a common world.
+ - Greater dooms win greater destinies.
+ - What is divine escapes men’s notice because of their incredulity.
+ - Time is a child playing with droughts. The lordship is to the child.
+ - One must know that war is common, justice is strife, and everything happens according to strife and necessity.
+ - The way up and the way down are one and the same.
+ - We circle in the night and we are devoured by fire.
+ - Bigotry is the sacred disease.
+ - Man, like a light in the night, is kindled and put out.
+ - You won’t discover the limits of the soul, however far you go.
+ - This universe, which is the same for all, has not been made by any god or man, but it always has been, is, and will be an ever-living fire, kindling itself by regular measures and going out by regular measures.
+ - All men have the capacity of knowing themselves and acting with moderation.
+ - Heraclitus somewhere says that all things are in process and nothing stays still, and likening existing things to the stream of a river he says that you would not step twice into the same river.
+ - I am what libraries and librarians have made me, with little assistance from a professor of Greek and poets.
+ - Most people do not take heed of the things they encounter, nor do they grasp them even when they have learned about them, although they suppose they do.
+ - Things of which there is sight, hearing, apprehension, these I prefer.
+ - It is harder to fight pleasure than to fight emotion.
+ - No one that encounters prosperity does not also encounter danger.
+ - Knowledge is not intelligence.
+ - Wisdom consists in speaking and acting the truth.
+ - To me one man is worth ten thousand if he is first-rate.
+ - Though wisdom is common, yet the many live as if they had a wisdom of their own.
+ - The fairest harmony springs from discord.
+ - It is better to hide ignorance, but it is hard to do this when we relax over wine.
+ - Wisdom is one thing, to know how to make true judgment, how all things are steered through all things.
+ - And some men are as ignorant of what they do when awake as they are forgetful of what they do when asleep.
+ - It is weariness to keep toiling at the same things so that one becomes ruled by them.
+ - Could you tell night from day? No, I regard all such distinctions as logically impossible.
+ - It is better to conceal ignorance than to expose it.
+
+170 quotes

@@ -1,0 +1,57 @@
+ - Leadership is an opportunity to serve. It is not a trumpet call to self- importance.
+ - Joy is not dependent upon outward circumstances. Joy is something that we can have under all circumstances when we are sad or happy. Outward circumstances are always neutral. They seem to be happy or sad according to the happy or sad attitudes of the mind.
+ - The greatest thing that will please God is that you maintain an attitude of unshakable joy.
+ - Trust life, even if you cannot trust people. For human nature is unreliable, but life itself is ruled by immutable law. Right action leads always, in the end, to victory.
+ - Don’t live to be unhappy, live to be happy. If you live to be happy you’ll find the things that make you happy. And as you do that you find that sharing with others makes you much happier than taking from them.
+ - Even-minded and cheerful. When things go bad, you’ll find that the same kind of attitude comes to you naturally.
+ - In a sense, each of us is an island. In another sense, however, we are all one. For though islands appear separate, and may even be situated at great distances from one another, they are only extrusions of the same planet, Earth.
+ - Live more quietly. Live more seeking God’s presence in your own heart.
+ - If you want to know me, listen to my music.
+ - Happiness is a question of attitude, not a question of what’s happening out there.
+ - The secret of friendship is expressing kindness with your eyes and through the tone of your voice, not only with words.
+ - Happiness is like a plant: It must be watered daily with giving thoughts and actions.
+ - I was always seeking truth from childhood. And I identified truth with many things, with science, with politics, with art, and I kept coming back to the thought that without God I can’t get to what I’m looking for.
+ - There are realities we all share, regardless of our nationality, language, or individual tastes. As we need food, so do we need emotional nourishment: love, kindness, appreciation, and support from others.
+ - Happiness is an attitude of mind, born of the simple determination to be happy under all outward circumstances.
+ - Happiness is self-generated. It depends on one’s attitude of mind. The basis of happiness, is the simple fact that the deepest reality of our own nature is ever-existing, ever-conscious, ever-new joy.
+ - Understand that there is no relationship between your inner happiness and your inner joy and the outer things that you experience and behold in the world, that it all begins with you, the world is a mirror to your own Self, when you can look at things and feel joy not in the things but in yourself.
+ - The secret of happiness is the determination to be happy always, rather than wait for outer circumstances to make one happy.
+ - Master said if you want to be happy no one in the world can take happiness from you; if you want to be unhappy, no one in the world can make you happy. So choose to be happy.
+ - Happiness is NOW! It isn’t tomorrow. It isn’t yesterday. Happiness is like a morning glory: Yesterday’s won’t bloom again; tomorrow’s hasn’t opened yet. Only today’s flower can be enjoyed today. Be happy this very moment, and you’ll learn how to be happy always.
+ - A deliberate attitude that you have to hold in your mind as one of the basic rules of yoga is to remain even-minded and cheerful...
+ - Happiness is reverence for all life.
+ - Happiness is a smile of comfort to the sorrowful.
+ - Realize that to have friends one must first be a friend. Make friendship a priority in your life.
+ - Whatever you experience outwardly, take it within yourself and say ‘I’m happy because I’m happy. I’m happy because God is in my heart.’
+ - Attachment is the state of ignorance or forgetfulness, and thus clinging to a memory of enjoyment.
+ - As you begin this day, tell yourself, Today I am incarnated anew! I am released from the hypnosis of my old habits and mistakes! Everything that I have long dreamed of doing I will accomplish in this, my new life.
+ - The “kingdom of heaven” to which he referred was the state of God-consciousness, not the beautiful astral heavens that most people visualize, where virtuous souls go after death.
+ - The essence of Ananda is both personal and sociological. Personally for people who seek truth or identities of God, it helps to be with other people who share those ideals. Environment is stronger than willpower, and when you are with people who have high ideals, it helps you to grow in your ideals.
+ - If you begin to identify yourself with that inner awareness, and then you realize you’re not really doing anything. As long as there’s the thought, “I’m trying to wake up,” that thought of “I” is still there.
+ - That’s what life is for, to find that joy in yourself.
+ - Maturity is the ability to relate appropriately to other realities than one’s own.
+ - Take whatever cause for outward happiness you might have and take it within yourself, so that, if the sun should go out, you will not be any less happy; if the birds stop singing you will not be any less happy.
+ - The real sign of His blessings is if you can have more and more happiness inside. Learn always to be happy; to be happy with the happiness of God. Even- minded and cheerful. This is the fastest route to divine bliss.
+ - Feel that you are happy without any cause for happiness.
+ - It’s not insincere to say you’re happy if your determined to make it true and live in that consciousness.
+ - Happiness is not a brilliant climax to years of grim struggle and anxiety. It is a long succession of little decisions simply to be happy in the moment.
+ - The secret of success is doing things not merely because they are popular, but because you deeply believe in them.
+ - To be happy, you must live in, but not for, the present moment.
+ - Your enemy is still yourself. You don’t have enemies. They may be self-styled. I have plenty of self-styled enemies. I don’t wish them harm.
+ - The two-fold goal of all human striving is the avoidance of pain, and the fulfillment of happiness.
+ - Be able to laugh at difficulties.
+ - Be thou a true yogi. A yogi who understands that everything he’s looking for is really inside himself. Learn to live more in the Self.
+ - Those who walk, run, or slide downhill eagerly would rather not think about the long, hard climb back up the hill again.
+ - If you want to do one good thing in the world, the best thing you can do is give other people joy.
+ - If anything or anyone distresses you, think how you’ll feel a week – a month – a year later. If you can imagine yourself being happy and peaceful then, why waste all that time? Be happy and peaceful now.
+ - Become more and more centered in the Self. To live more and more in the thought that God is here in your consciousness.
+ - Learn to live more in the Self. Come down a little bit to eat and talk as necessary.
+ - Happiness is understanding that friendship is more precious than mere things, more precious than getting your own way, more precious than being in situations where true principles are not at stake.
+ - Spirituality means seeking experience. Not just belief.
+ - The mastery of any subject requires that one identify himself with the particular state of consciousness appropriate to that subject.
+ - Laughter is a medicine you’ve got to use to drive away blues.
+ - Society cannot but depend to a disproportionate degree on its capable few to develop and flourish.
+ - My master’s visualizations were so powerful their condensation into matter was mere signature. Donald Walters, formerly Kriyananda, author of The Path about his guru Yogananda.
+ - You can accept it that it may be true what somebody else says, but until you have experienced it, it is not dynamic to your own awareness.
+
+55 quotes

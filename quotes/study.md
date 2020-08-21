@@ -1,0 +1,42 @@
+ - You’re an idiot. Study harder. ~~Hideaki Anno
+ - Never regard study as a duty, but as the enviable opportunity to learn. ~~Albert Einstein
+ - You become what you study. ~~Robert T. Kiyosaki
+ - Be an individual, work hard, study, get your mind straight, and trust nobody. ~~Tupac Shakur
+ - Study first, play afterwards. ~~Daniel D. Palmer
+ - Power corrupts. Knowledge is power. Study hard. Be evil. ~~Eleanor Roosevelt
+ - Study the past if you want to define the future. ~~Confucius
+ - Continue to study and learn new skills. ~~Edie McClurg
+ - The complete man must work, study and wrestle. ~~Aristotle
+ - When a problem comes along, study it until you are completely knowledgeable. Then find that weak spot, break the problem apart, and the rest will be easy. ~~Norman Vincent Peale
+ - No one can become really educated without having pursued some study in which he took no interest- for it is a part of education to learn to interest ourselves in subjects for which we have no aptitude. ~~T. S. Eliot
+ - Scientists study the world as it is, engineers create the world that never has been. ~~Theodore von Karman
+ - Read less, study less, but think more. ~~Leo Tolstoy
+ - To be a good professional engineer, always start to study late for exams because it teaches you how to manage time and tackle emergencies. ~~Bill Gates
+ - To study music, we must learn the rules. To create music, we must break them. ~~Nadia Boulanger
+ - The study of economy usually shows us that the best time for purchase was last year. ~~Woody Allen
+ - It’s the desire to study the human condition, the desire for collaboration, to learn and absorb, and to lead a well-examined life. ~~Nicole Kidman
+ - Fixed formation is bad. Study this well. ~~Miyamoto Musashi
+ - The study of Nature makes a man at last as remorseless as Nature. ~~H. G. Wells
+ - If you will study the scriptures diligently, your power to avoid temptation and to receive direction of the Holy Ghost in all you do will be increased. ~~Thomas S. Monson
+ - An hour of study, for the modern apostle, is an hour of prayer. ~~Josemaría Escrivá
+ - I would live to study, not study to live. ~~Francis Bacon
+ - No one ever got rich by studying poverty and thinking about poverty. ~~Wallace D. Wattles
+ - Biology is the study of complicated things that give the appearance of having been designed for a purpose. ~~Richard Dawkins
+ - In the whole world there is no study so beneficial and so elevating as that of the Upanishads. It has been the solace of my life, it will be the solace of my death. ~~Arthur Schopenhauer
+ - The best way to predict the future is to study the past, or prognosticate. ~~Robert T. Kiyosaki
+ - Success is a refined study of the obvious. ~~Jim Rohn
+ - Studies serve for delight, for ornaments, and for ability. ~~Francis Bacon
+ - A mind of moderate capacity which closely pursues one study must infallibly arrive at great proficiency in that study. ~~Mary Shelley
+ - Satanism demands study, not worship! ~~Anton Szandor LaVey
+ - History is, strictly speaking, the study of questions; the study of answers belongs to anthropology and sociology. ~~W.H. Auden
+ - One can never study nature too much and too hard. ~~Vincent van Gogh
+ - Classifying the stars has helped materially in all studies of the structure of the universe. ~~Annie Jump Cannon
+ - Massage is the study of anatomy in braille. ~~Jack Meagher
+ - If you study life deeply, its profundity will seize you suddenly with dizziness. ~~Albert Schweitzer
+ - To study in Paris is to be born in Paris! ~~Victor Hugo
+ - When you study natural science and the miracles of creation, if you don’t turn into a mystic you are not a natural scientist. ~~Albert Hofmann
+ - A lifetime is so little a time that we die before we get ready to live. I should like to study at a college, but then I have to say to myself: “You will die before you can do anything else”. ~~John Muir
+ - The study of theology, as it stands in the Christian churches, is the study of nothing. ~~Thomas Paine
+ - Budo is simply the study of the best ways to kill. ~~Masaaki Hatsumi
+
+40 quotes

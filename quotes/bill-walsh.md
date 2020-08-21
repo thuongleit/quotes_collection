@@ -1,0 +1,54 @@
+ - If your why is strong enough you will figure out how!
+ - Champions behave like champions before they are champions.
+ - The culture precedes positive results. It doesn’t get tacked on as an afterthought on your way to the victory stand. Champions behave like champions before they’re champions: they have a winning standard of performance before they are winners.
+ - Concentrate on what will produce results rather than on the results, the process rather than the prize.
+ - Consistent effort is a consistent challenge.
+ - To a winner, complacency and overconfidence can be destructive. To losers, desperation and despondency are just as harmful.
+ - Your path and purpose will become crystal clear when you begin to trust your vision.
+ - Flying by the seat of your pants precedes crashing by the seat of your pants.
+ - Find a great mentor who believes in you, your life will change forever!
+ - As the leader, part of the job is to be visible and willing to communicate with everyone.
+ - You can only succeed when people are communicating, not just from the top down, but in complete interchange. Communication comes from fighting off my ego and listening.
+ - Invest in great relationships, they will pay a lifetime of dividends.
+ - The minute you step away from the negative people in your life you will instantly see the beauty in your horizon.
+ - Afford each person the same respect, support, and fair treatment you would expect if your roles were reversed. Deal with people individually, not as objects who are part of a herd-that’s the critical factor.
+ - Your enthusiasm becomes their enthusiasm; your lukewarm presentation becomes their lukewarm interest in what you’re offering.
+ - Everybody isn’t everybody.
+ - Commit yourself to something you have a passion for.
+ - Act like a VIP and become a VIP.
+ - Nothing is more effective than sincere, accurate praise, and nothing is more lame than a cookie-cutter compliment.
+ - Before you can win the fight, You’ve got to be in the fight.
+ - Failure is part of success, an integral part. Everybody gets knocked down. Knowing it will happen and what you must do when it does is the first step back.
+ - For me the starting point for everything – before strategy, tactics, theories, managing, organizing, philosophy, methodology, talent, or experience – is work ethic. Without one of significant magnitude, you’re dead in the water.
+ - If you see players who hate practice, their coach isn’t doing a very good job.
+ - The ability to help the people around me self-actualize their goals underlines the single aspect of my abilities and the label that I value most – teacher.
+ - A burro is an ass. A burrow is a hole in the ground. As a journalist you are expected to know the difference.
+ - Innovation involves anticipation. It is having a broad base of knowledge on your subject and an ability to see where the end game is headed. Use all your knowledge to get their first. Set the trend and make the competition counter you.
+ - Everybody’s got an opinion. Leaders are paid to make a decision. The difference between offering an opinion and making a decision is the difference between working for the leader and being the leader.
+ - The absolute bottom line in coaching is organization and preparing for practice.
+ - Consistent motivation usually comes from a consuming desire to be able to perform at your best under pressure, namely, the pressure produced by tough competition. If a player needed me to light a fire under him by turning the other team into a demon, he was lacking something I couldn’t give him.
+ - There is a weird phenomenon where technology seems to be getting dumber in some ways as it gets smarter.
+ - Many people erroneously think they have only one chance to succeed, and if they miss that chance, they are doomed to failure. In fact, most people have several opportunities to succeed.
+ - I’ve observed that if individuals who prevail in a highly competitive environment have any one thing in common besides success, it is failure – and their ability to overcome it.
+ - I caution against beginning or ending a quotation with ellipses.
+ - Victory is produced by and belongs to all.
+ - If I have any talent, it’s in the artistic end of football. The variation of movement of 11 players and the orchestration of that facet of football is beautiful to me.
+ - The more you know about English, the less you’re likely to think there are unbreakable “rules” for a lot of things.
+ - I’m not one of those “omg texting kids rite bad” alarmists. I just think there’s an interesting nexus where the Internet itself hastened language change when it comes to Internet terms.
+ - I often think about the class differences involved in “jobs” vs. “careers.”
+ - A harsh reality of newspaper editing is that the deadlines don’t allow for the polish that you expect in books or even magazines.
+ - Strong leaders don’t plead with individuals to perform.
+ - Used properly a hashtag can be really cool. Hashtags provide an opportunity for sly editorial comment, for parallel and perpendicular trains of thought, in the limited space that Twitter and, to some extent, Facebook provide.
+ - If any sort of error is inexcusable, it’s an incorrect phone number. One of the cardinal rules of copy editing is that every phone number published must be checked.
+ - Your attitude will unlock the mystery of success you seek!
+ - Machines aren’t replacing proofreaders at all. Copy editors, who proofread and much, much more, use spellcheck as a tool but read every word that appears in the paper.
+ - 90 percent of the time the terms are misused or unnecessary. Not every image obtained from a computer is a screen shot.
+ - We have a lot of players in their first year. Some of them are also in their last year.
+ - My theory is that, just like with omitting a final comma in a list when not essential for meaning, publishers are trying to save paper and ink or pixels on-screen.
+ - Writing headlines is a specialty – there are outstanding writers who will tell you they couldn’t write a headline to save their lives.
+ - Calculated risks are part of what you do, but the idea that something completely crazy will work just because it’s completely crazy is completely crazy.
+ - By instinct we-leaders-want to run hard all the time; by intellect we know this is not possible. Reconciling those two positions in the context of leadership is an ongoing challenge.
+ - The proper use of commas is often more art than science.
+ - We all know gifs are pronounced “jifs,” right? Their creator says so, damn it!
+
+52 quotes

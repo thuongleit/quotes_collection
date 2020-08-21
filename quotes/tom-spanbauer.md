@@ -1,0 +1,22 @@
+ - To admit ignorance is the highest knowledge. It is the necessary condition for all learning.
+ - Life is absolutely, mysteriously beautiful.
+ - Sometimes the world is so beautiful it hurts.
+ - There is nothing more lonely than a true artist.
+ - We’re all just in our bodies for a moment in our life. Such a brave and lovely act it is to let the body celebrate.
+ - Her heartbeat was in her hands, her heart beat the way she moved her head, her whole body was her heart beating.
+ - Life is a mess, Rose said. You can fix the mess human beings make, Rose said, But you can’t fix the mess being human is.
+ - Identity is your role in life, the part you play. Individuality is who you are, and who you are is revealed to you if you can get to complete presence.
+ - The key to being a warrior is not to be afraid of who you are.
+ - Miracles are out there somewhere. You just got to find them.
+ - Have some fun while you wait for the will of heaven.
+ - The gods know what’s important, what’s wrong about you. They know everything. If you go out searching for the Holy Grail, they won’t let you find it.
+ - It’s the responsibility of the survivor to tell the story.
+ - I’m an old Catholic. I don’t believe in anything Catholic but I do believe that Catholicism keeps me from committing suicide. One.
+ - Looking for who I am is who I am.
+ - I was wounded by a blow of love.
+ - Things start where you don’t know and end up where you know. When you know is when you ask, How did this start?
+ - Why else do we live, except to be loved and remembered by those we love?
+ - The way I figure it, we know we got this world, so live in this one while you’re here. I figure the next one will take care of itself.
+ - Maybe you’ve had skin next to your skin, but when was the last time you let yourself be touched?
+
+20 quotes

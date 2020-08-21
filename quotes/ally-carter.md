@@ -1,0 +1,166 @@
+ - I always finish what i start.
+ - Sometimes it takes an outsider, someone with fresh eyes to see the truth.
+ - Did you hear that? I’m special.
+ - Time, the greatest thief of all.
+ - Don’t get it right, get it written.
+ - I’d Tell You I Love You, But Then I’d Have to Kill You.
+ - Either we’re a team or we aren’t. Either you trust me or you don’t.
+ - Because even though the truth can set you free, that doesn’t mean it won’t be painful.
+ - Waiting. Like it or not, it’s a skill all spies have to master eventually.
+ - Ooh, the silent treatment.
+ - Acting like you don’t care is a whole lot easier when you don’t care.
+ - Hes gone. Hes just gone.
+ - Life is classified. There is always so much that goes unsaid.
+ - It was epic. It was awkward. It was epically awkward.
+ - Fear is a weakness. It makes a person lose her nerve and her cool. It makes people jumpy and organizations nervous, and when that happens, there is always a chance to take advantage.
+ - For a genius thief you really are a stupid girl aren’t you?
+ - A Gallagher Girl’s real grades don’t come in pass or fail – they’re measured in life or death.
+ - Mr. Solomon was right the worst kind of torture is watching someone you love get hurt.
+ - Hello, Gallagher Girl – Zack.
+ - Because sometimes not liking someone is easier.
+ - Talent Katerina is a dangerous thing.
+ - At the core, I try to write characters who are real people with real insecurities, fears, hopes, and dreams, which is why hopefully readers can identify with them.
+ - You’re girls!? he shouted as if the fact had totally eluded him until then.
+ - Why do I feel like I can’t trust you anymore?? I wanted him to lash out. I wanted him to fight, to protest, to argue- to do anything but look deeper into my eyes and say, ’because the Gallagher Academy doesn’t admit fools.
+ - Two days after my dad’s funeral, my mom went on a mission. I never understood it until then – that sometimes a spy doesn’t need a cover so much as she needs a shield.
+ - We wear a lot of labels in our lives, and it’s so very easy to be defined by them. We have grown somehow accustomed to thinking of ourselves as a size eight or a size fourteen, as a capricorn or a taurus, as single or in love.
+ - Eventually, we all end up alone.
+ - If you don’t want to be a victim, don’t act like one.
+ - Even the best thief in the world can’t steal time.
+ - And, of course, there are the perfect day, perfect moment, perfect life dreams that come sometimes and make a person hit the snooze button for hours, trying to go back to sleep and make the perfect moments last.
+ - It’s the people you hold closest who have the most power to make you bleed.
+ - First time it’s a stranger. Second time its just a coincidence. Third time it’s a tail.
+ - I suppose a lot of teenage girls feel invisible sometimes, like they just disappear. Well, that’s me – Cammie the Chameleon. But I’m luckier than most because, at my school, that’s considered cool. I go to a school for spies.
+ - She pulled away and looked at him. ‘I kissed you and you left.’ When Kat heard the pounding, she thought it was the beating of her heart. It was too loud, she thought. Hale was going to hear it; he was going to see it; and he was going to know how much power he had to hurt her.
+ - Hey anyone who thinks a non-military–grade rappelling cable can support the weight of two grown men and a miniature donkey deserves to fall off a cliff.
+ - All these years I’d thought being a spy was challenging. Turns out, being a girl is the tricky part.
+ - He was beside me then, his arms wrapped around me, holding me tightly. “I’m not crazy,” I whispered. “I know.” Believe it or not, that’s the most romantic thing Zachary Goode ever told me. And I kind of loved him for it.
+ - Every decent con man knows that the simplest truth is more powerful than even the most elaborate lie.
+ - And that’s how the Peacock saved the Chameleon.
+ - Most little girls in England grow up wanting to marry a prince. Bex grew up wanting to kick James Bond’s butt and assume his double-0 ranking.
+ - Most people believe me when I lie. I’ve learned how to say the words just right. I have a trusting kind of face. But the boy in front of me was a trained operative, so Zach knew better. And besides, Zach new me.
+ - Not knowing you can’t do something, is sometimes all it takes to do it.
+ - I could have lied. I could have fought. But desperate times call for desperate measures, so I took a chance and called upon a Gallagher Girl’s weapon of last resort. I flirted.
+ - That’s for me to know, and for you to find out.
+ - The Operative tried to implement the Purusey breathing technique, which has been proven effective at fooling polygraphs. There is no conclusive evidence as to whether it is effective at masking the internal lie detectors of fifteen-year-old boys.
+ - Maybe wrist corsages cut off circulation to the brain? I mean, is that why so many girls do stupid things on prom night? I was really going to have to investigate this further, I decided.
+ - You shouldn’t judge someone until you’ve walk a mile through an underground tunnel in her uncomfortable shoes.
+ - I thought about how there are two types of secrets: the kind you want to keep in, and the kind you don’t dare to let out.
+ - Oh.? I shot upright. ‘I was in Mongolia.’ Note to self: learn to be a less extreme liar.
+ - Trust. We stake our lives on it, but it’s a subject that not even the Gallagher Academy can teach. When do you let your guard down? Who do you let in? And I knew at that moment, as I sat beside my mother, bathing in the warm spring light, that those were the questions a good spy never stops asking.
+ - Cammie: I never knew there were this many stars. Zach: I can’t see them. I just see you.
+ - The older I got, the smarter my teachers became.
+ - Do you know what pain is, Cammie? It’s the body’s physical response to imminent harm. It is the mind’s way of telling us to move our hand off the stove or let go of the broken glass.
+ - And as every spy knows, common enemies are how allies always begin.
+ - Aren’t you going to introduce your little girlfriend to your mother?
+ - There are aspectsof this life – of this world – from which you can never walk away. Ever. The fact that almost everything you say to almost everyone you love for the rest of your life will be a lie is one of them.
+ - Note to self: Rachel Morgan is a totally awesome liar.
+ - The time for crying with your girlfriends about a broken heart is over chocolate ice cream and chick flicks – not stun guns and bulletproof vests.
+ - There’s a power that comes with silence. I had grown to fear the unsaid thing. So it felt like a release to say it-to admit that the risk wasn’t just inside our walls-it was inside my skin. I was willing to claw, scratch, and bleed until I’d found it.
+ - You might think being the target of an international terrorist organization, an amnesiac, and a girl with hair dyed in the middle of the night by Macey McHenry would make people stare at you. Well, try walking into the Grand Hall with seriously puffy eyes while holding hands. With a boy.
+ - I don’t want tea, I want justice!
+ - I don’t understand hate. I’ve seen its power. I’ve known its wrath. I’ve even felt it coursing through my veins, pushing me on. But I don’t know where it comes from or why it lasts, how it can take hold in some people and grow.
+ - It was so rare to find someone who was both so young and so wise, both so fresh and so jaded.
+ - You don’t need a search warrant to go through someone’s trash. Seriously. Once it hits the curb it is totally fair game-you an look it up.
+ - Sometime years before, I had dragged an old bean bag chair to that place. I watched Zach sink onto it, and then he pulled me down to lean against him. I felt his arms go around me, holding me tight. I was safe. I was warm. I was home.
+ - And yet, she knew she could be.
+ - Another door swung open, and another guard appeared, this time with Gabrielle, who wore a black catsuit and rappelling harness.
+ - Our world is built on adrenaline and getting away with it. Different cities different names. Its a far simpler life to lead when there is one around to tell you when you are being stupid. Believe me dear cousin I know better than anyone. – Gabrielle.
+ - That’s good; don’t deny it. Denying the undeniable just makes you sound like a fool as well as a liar. In this profession, you can be one- sometimes the other. But never both.
+ - I think it’s kinda nice.? And I did. my mom isn’t famous for her pies. No, she’s famous for defusing a nuclear device in Brussels with only a pair of cuticle scissors and a ponytail holder. Somehow, at the moment, pies seemed cooler.
+ - Pain seared through me again-a hot, burning stab in my gut-and yet my body found strength I didn’t know I had, correcting as I fell.
+ - Or maybe crying is like everything else we do- it’s best if you don’t get caught.
+ - Good-bye Dr. Steve,? I said, then climbed the stairs and went to the fifth floor to die.
+ - Sitting there that day, I knew that the only thing I could do was keep putting one foot in front of the other, hoping none of the secrets on my shoulders would make me lose my balance.
+ - The things that are most precious to us are sometimes the most secret.
+ - Learn her skills, honor her sword, and keep her secrets.
+ - Because death is the only thing that could have ever kept him from you.
+ - Sometimes the biggest lies we tell are to ourselves.
+ - Crouched on the roof between BEx and Liz, I wasn’t a girl who had just broken up with her boyfriend; I looked at my watch and check my gear instead of crying. I had a mission objective and not a broken heart.
+ - You cannot con an honest man.
+ - Denying the undeniable just makes you sound like a fool as well as a liar.
+ - Hamish smiled and rubbed his hands together. “Sure we can. What do you say? Pigs in a Blanket?” He leaned over the cool counter and raised his eyebrows at Gabrielle. “The only way I’ll get under a blanket with you is if both of us are on fire,” she told him.
+ - Of course, the downside of attending a fictional school is that our lacrosse team sucks.
+ - Even though Cammie is fluent in fourteen languages and capable of killing a man seven different ways with her bare hands, she has no idea what to do when she meets an ordinary boy who thinks she’s an ordinary girl.
+ - Time. I would have gone somewhere to buy time.
+ - That wasn’t your mom in you – that was your dad.
+ - You know, it’s okay to admit a little weakness now and then, Cammie. It won’t kill you. In fact, I hear it makes you stronger.
+ - But the heaviest things, I think, are the secrets. They can drown you if you let them.
+ - If you can be still enough and common enough, then it’s really easy to be invisible.
+ - And then, despite everything, I smiled and looked at the note and knew that spring would come – it always does. so I stared out that cold window, watching my breath collect on the glass, trying not to think about my life after the thaw.
+ - Thanks to you, Gabs, we just figured out a half dozen ways not to rob the Henley.
+ - But the downside of being con artist is that it very hard to con. Even if the lies you tell are to yourself.
+ - Insane means fewer cameras!
+ - Tell me or I’ll yell for Mr. and Mrs. Baxter, and you can find out how bex became bex.
+ - The kids kept walking, moving through the Henley’s halls like a tide, but when Kat turned to leave, she walked in the opposite directions. She wasn’t an ordinary kid, after all. Katarina Bishop followed no one.
+ - What are you looking at? Hale asked. Why are you smiling? I worry when you smile.
+ - Kat had been picking things up since her third birthday, when Hamish and Angus’s father took them all to the circus because he needed to “borrow” an elephant.
+ - And I didn’t choose it, Kat. I chose you.
+ - I saw the gun. I sensed the van as it rushed forward, seconds away and coming faster. I heard the screams of the fight behind us. But nothing that night was louder than the masked man’s astonished whisper as he looked at the boy who stood beside me and said, ’you?
+ - It is an occupational hazard that anyone who has spent her life learning how to lie eventually becomes bad at telling the truth.
+ - Step 4: Cough and gag. Step 5: Repeat Step 4 until it feels like maybe your lungs aren’t inside your body anymore. Step 6: Remember that a really cute boy is beside you, so try to cough in a far more attractive manner.
+ - Macey couldn’t decide whether to be intrigued that Hale was walking around with a state-of-the-art covert communications device or be jealous because she’d been caught without one of her own.
+ - I tell you, I’m half tempted to break into CIA custody just so I can break Joe Solomon out of CIA custody just so I can break Joe Solomon.
+ - But I should have known that it doesn’t take that long for change to happen – it takes a second.
+ - I for one like chaos. Chaos looks good on me.
+ - Somebody knows.
+ - I’ll be here when you get back.
+ - We don’t have to do this. Just say the word and I can have a jet here in an hour. We can go anywhere.
+ - You should always trust the instincts of children.
+ - Oh you’re heist-drunk Kitty Kat. And you have been since the Henley.
+ - Turns out, you can take the girl out of the spy school, but you can never take the spy school out of the girl.
+ - It is a little-known fact about covert operations that you will spend a lot of time with people you can’t really trust. They may be traitors and liars. We call them assets or informants. But mostly, in those days, I called him Zach.
+ - The Subject has really blue eyes that twinkle when he looks at someone like she’s maybe a little bit insane.
+ - If he’d looked like a cross between Mr. Clooney and, say, one of the hobbits, I probably would have been far more capable of coherent thought.
+ - He’s a boy, Kat. I hate to break it to you, but we are fundamentally different.
+ - She didn’t protest as Hale slid his arm around her and pulled her to rest against his chest. It was somehow softer there than she remembered.
+ - But then the girl moved, and smiled, and pulled her hand from the grate- a gorgeous green stone clutched tightly in her grasp. It was covered with dust and cobwebs, but it was uncracked and unharmed. And, of course, completely fake.
+ - The window can be fixed, Katerina. I’m far more concerned about him.
+ - Despite popular belief, hitting someone with a closed fist actually hurts the hitter almost as much as the hittee.
+ - Where’s the fun in that?
+ - I’ve thrown enough punches in my life to know when someone is hurting.
+ - And I remembered with a pang what had happened to me the previous summer – that even Gallagher Girls aren’t always as strong as they need to be.
+ - I think the canary left some feathers in there after you ate it.
+ - They were both totally laughing, and he was twirling her, and her hair was flying around like she was in a shampoo commercial. Seriously. She could have sold conditioner to a bald man the way she looked out there.
+ - I’m someone who doesn’t have anything to lose.
+ - Hamish’s right arm was around Angus’s waist as the two of them tangoed past.
+ - Maybe Liz was right and she’d wanted someplace safe. Maybe Mr. Solomon really did understand that running was the only way Macey would find out if we’d run after her. Or maybe, like me, she just wanted to disappear for a little while.
+ - The Bagshaws? They didn’t know she was a nun!
+ - Don’t put your characters on a treadmill. They need to go new places, face new challenges and do new things.
+ - I’m sorry if I’m not flirting with you. I’m kind of spoken for.
+ - Sleep every chance you get. Eat every chance you get. Those were two of the many lessons that Kat learned at her father’s knee and her uncle’s table.
+ - Even though Kate had only known Hale for a little more than two years, she had seen him in a lot of situations.
+ - So I stepped away, reminding myself that when you’re a spy, sometimes all you can do is go on. One foot in front of the other, wherever the narrow path might lead.
+ - And I remember “normal” might never be the same again.
+ - Pretend and it will be true.
+ - Hey, Macey, sorry to drop in but Cammie just had to be alone with me. You know how she gets.
+ - But in the end she merely shrugged, knowing at the very least it would be interesting. Knowing, in her gut, it might just be the beginning.
+ - That’s when I heard the sounds of a certified genius spinning around in circles like a dog chasing its tail.
+ - Now I know that, from this point on, we’ll be the ones doing the chasing. And Iike it.
+ - Teenage girls read in packs. It’s true today, and it was true when I was a teen growing up in a small town in northeast Oklahoma.
+ - Hale looked at Macey, who added, “Seven minutes since shots fired.” “Kat what’s the emergency response tie in Midtown Manhattan?” “Not long enough if they want a clean exit,” she told him. Macey hadn’t heard Kat’s words, but she looked at Hale like she’d read his mind.
+ - The older generation sat looking at the younger, and Kat wondered exactly when and how the baton had been passed. She wanted to know if it was too late to give it back.
+ - Someday you will know that the heart is not always as wise as it is strong. – Uncle Eddie.
+ - That’s the thing about spies. Most of the secrets we keep are from each other.
+ - Kat didn’t know what to say. It’s good to see you too? Thanks for getting me kicked out? Is it possible you’ve gotten even hotter? I think I might have missed you?
+ - I didn’t know what was more disturbing – the fact that something was obviously wrong, or that three faculty members of the world’s premiere spy school had forgotten to lock the door.
+ - Should alcoholics go to liquor stores?
+ - Sure, this was where her father had planned the De Beers diamond heist when she was three. It was the very room where her uncle had orchestrated the hijacking of eighty percent of the world’s caviar when she was seven.
+ - You are back, Cam. Which means for the first time since you left, it’s okay for us to be mad at you for leaving. – Macey.
+ - The Bagshaws aren’t boys. They’re bombs with very colorful fuses.
+ - Even the longest con was never more than an assortment of moments that were in themselves very very short.
+ - Your memory is your first and best weapon, ladies. Learn to use it.
+ - The whole summer lay ahead of us-time to rest, time to wait. And when the future comes-no matter what comes with it-I’ll be smarter. I’ll be stronger. I’ll be ready.
+ - No one would have ever guessed that seven of the world’s most talented teenagers were coming to the Henley that day for an entirely different sort of lesson.
+ - But Hale wasn’t just a member of her crew who had messed up. He was Hale. Her Hale. And Kat just wanted him back.
+ - It felt as if maybe the curse had lifted, the tide had shifted, but then the breeze picked up and a skeet took a very unfortunate turn. Seconds later, Angus was pulling his shot far to the right, shooting a large hole in the second-story galley not ten feet above Marcus’s head.
+ - But I wasn’t the girl I’d been when I left, and I knew it.
+ - If we hadn’t hated him a lot, we might have liked him a little at that moment. But we did. So we didn’t.
+ - Hiding is for amateurs.
+ - Sometimes you forgive people simply becuase you still want them in your life.
+ - It was the first time in years I didn’t wonder if my father was out there, looking at it too.
+ - You were the only one who looked at me and didn’t see her.
+ - If anything happens, Marcus will save you. Won’t you, Marcus? Hale asked, looking up at the man, who nodded. It would be an honor, Miss.
+ - There are some secrets we keep because we can’t bear to let them out and some because it’s better to keep them in.
+
+164 quotes

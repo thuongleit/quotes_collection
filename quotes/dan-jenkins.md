@@ -1,0 +1,28 @@
+ - The golf ball has no sense at all, which is why it has to be given stern lectures constantly, especially during the act of putting.
+ - Always keep in mind that if God didn’t want a man to have mulligans, golf balls wouldn’t come three to a sleeve.
+ - Juanita found herself at Old Jeemy’s radio station in a room she could have sworn was a laboratory where creatures with antennas in their heads, knobs for eyes, jagged arms, and dangly legs conducted experiments on the bodies of dead vocalists.
+ - Regardless of what the tour pros think, golf is a rich and varied game, and what all of us awkward fools do on weekends is what golf is truly all about.
+ - Until Sammy Baugh – pro football in Texas was a one-paragraph story on the third page of the Monday sports section.
+ - Laughter is the only thing that’ll cut trouble down to a size where you can talk to it.
+ - Golfers don’t fist fight. They cuss a bit. But they wouldn’t punch anything or anybody. They might hurt their hands and have to change their grip.
+ - Only two things can stop Tiger – injury or a bad marriage.
+ - There have been so many great moments in golf that you even forget some of them.
+ - As the NFF Historian, I’ll have a new platform to indulge my passion for the most emotional, colorful and hysterical game ever developed by mankind and Walter Camp.
+ - A good one iron shot is about as easy to come by as an understanding wife.
+ - Who is the best the sportswriter who wore shorts? I keep trying to envision Grantland Rice or John Lardner in shorts. It never occurred to me to wear shorts. I’d look too silly to wear shorts.
+ - If a caddie can help you, you don’t know how to play golf.
+ - The devoted golfer is an anguished soul who has learned a lot about putting, just as an avalanche victim has learned a lot about snow.
+ - Baseball would be a better game if more third basemen got hit in the mouth by line drivers.
+ - Lonnie says it doesn’t take long to write a song if you’re stricken with a severe case of the Tennysons. He wasn’t necessarily talking about a chart-climber.
+ - Every golfer has at least 14 enemies: his clubs.
+ - I had always suspected that trying to play golf in the company of big-time pros and a gallery would be something like walking naked into choir practice.
+ - Many Americans follow pro basketball from November through June, for reasons that I found unexplainable, other than the fact that they were overly fascinated with soaring armpits.
+ - Part of the charm of basketball lies in the fact that it’s a simple game to understand. Players race up and down a fairly small area indoors and stuff the ball into a ring with Madonna’s dress hanging on it.
+ - In a story, you have to have a theme and an angle, you have to have a beginning, middle and an end. You have to have a defining moment and kick it to death. You gotta be able to recognize that, by the way. It probably takes experience.
+ - I am among those who firmly believe that a round of golf should not take more than three and a half hours, four at most. Anything longer than that is not a round of golf, it’s life in Albania.
+ - The maplewood flat-finished Martin had represented the most outrageous luxury in her life when she bought it in 1971 for four hundred dollars. But Lonnie Slocum assured her the Martin was a good investment, even if she never learned to play it better than an acid head who was into heavy metal.
+ - When Ballesteros triumphed at the British Open in 1979, for his first major win, he hit so few fairways off the tee that he was often mistaken for a gallery marshall.
+ - Tennis was a game invented by a woman named Samantha Tennis in 1839, in the village of Lobsworth, County of Kent, as a diversion for the wealthy and titled Englishmen of the region, who had nothing better to do at the time but drink, belch and wear funny clothes.
+ - I quickly discovered that trying to go play golf while living in Manhattan was about as easy as trying to grab a taxi while standing out in front of Saks Fifth Avenue in the freezing rain on the last shopping day before Christmas.
+
+26 quotes

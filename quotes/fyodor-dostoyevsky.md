@@ -1,0 +1,482 @@
+ - Above all, don’t lie to yourself.
+ - Pain and suffering are always inevitable for a large intelligence and a deep heart. The really great men must, I think, have great sadness on earth.
+ - It is better to be unhappy and know the worst, than to be happy in a fool’s paradise.
+ - Beauty will save the world.
+ - The mystery of human existence lies not in just staying alive, but in finding something to live for.
+ - Above all, don’t lie to yourself. The man who lies to himself and listens to his own lie comes to a point that he cannot distinguish the truth within him, or around him, and so loses all respect for himself and for others. And having no respect he ceases to love.
+ - But how could you live and have no story to tell?
+ - The best way to keep a prisoner from escaping is to make sure he never knows he’s in prison.
+ - This is my last message to you: in sorrow, seek happiness.
+ - If you want to be respected by others, the great thing is to respect yourself. Only by that, only by self-respect will you compel others to respect you.
+ - The darker the night, the brighter the stars, The deeper the grief, the closer is God!
+ - The cleverest of all, in my opinion, is the man who calls himself a fool at least once a month.
+ - If you want to overcome the whole world, overcome yourself.
+ - Love the animals, love the plants, love everything. If you love everything, you will perceive the divine mystery in things. Once you perceive it, you will begin to comprehend it better every day. And you will come at last to love the whole world with an all-embracing love.
+ - To think too much is a disease.
+ - Man is sometimes extraordinarily, passionately, in love with suffering...
+ - I say let the world go to hell, but I should always have my tea.
+ - To live without Hope is to Cease to live.
+ - To go wrong in one’s own way is better then to go right in someone else’s.
+ - Nothing is easier than to denounce the evildoer; nothing is more difficult than to understand him.
+ - People speak sometimes about the “bestial” cruelty of man, but that is terribly unjust and offensive to beasts, no animal could ever be so cruel as a man, so artfully, so artistically cruel.
+ - What is hell? I maintain that it is the suffering of being unable to love.
+ - The greatest happiness is to know the source of unhappiness.
+ - When reason fails, the devil helps!
+ - Man only likes to count his troubles; he doesn’t calculate his happiness.
+ - The world will be saved by beauty.
+ - Taking a new step, uttering a new word, is what people fear most.
+ - For broad understanding and deep feeling, you need pain and suffering.
+ - Power is given only to those who dare to lower themselves and pick it up. Only one thing matters, one thing; to be able to dare!
+ - Reason is the slave of passion.
+ - There is only one thing that I dread: not to be worthy of my sufferings.
+ - Destroy my desires, eradicate my ideals, show me something better, and I will follow you.
+ - The man who has a conscience suffers whilst acknowledging his sin. That is his punishment.
+ - Man has it all in his hands, and it all slips through his fingers from sheer cowardice.
+ - The Russian soul is a dark place.
+ - I am alone, I thought, and they are everybody.
+ - We sometimes encounter people, even perfect strangers, who begin to interest us at first sight, somehow suddenly, all at once, before a word has been spoken.
+ - Here is a commandment for you: seek happiness in sorrow. Work, work tirelessly.
+ - You will burn and you will burn out; you will be healed and come back again.
+ - The degree of civilization in a society can be judged by entering its prisons.
+ - I can see the sun, but even if I cannot see the sun, I know that it exists. And to know that the sun is there – that is living.
+ - If everything on earth were rational, nothing would happen.
+ - You can be sincere and still be stupid.
+ - I utter what you would not dare think.
+ - Times of crisis, of disruption or constructive change, are not only predictable, but desirable. They mean growth. Taking a new step, uttering a new word, is what people fear most.
+ - Without God all things are permitted.
+ - A society should be judged not by how it treats its outstanding citizens but by how it treats its criminals.
+ - I will not and cannot believe that evil is the normal condition of mankind.
+ - To love is to suffer and there can be no love otherwise.
+ - Lying to ourselves is more deeply ingrained than lying to others.
+ - We are citizens of eternity.
+ - The soul is healed by being with children.
+ - Man grows used to everything, the scoundrel!
+ - Man is a mystery. It needs to be unravelled, and if you spend your whole life unravelling it, don’t say that you’ve wasted time. I am studying that mystery because I want to be a human being.
+ - Anyone who can appease a man’s conscience can take his freedom away from him.
+ - It seems, in fact, as though the second half of a man’s life is made up of nothing, but the habits he has accumulated during the first half.
+ - Love in action is a harsh and dreadful thing compared to love in dreams.
+ - When he has lost all hope, all object in life, man becomes a monster in his misery.
+ - I did not bow down to you, I bowed down to all the suffering of humanity.
+ - Truly great men must, I think, experience great sorrow on the earth.
+ - If you wish to glimpse inside a human soul and get to know a man, don’t bother analyzing his ways of being silent, of talking, of weeping, of seeing how much he is moved by noble ideas; you will get better results if you just watch him laugh. If he laughs well, he’s a good man.
+ - Money is coined liberty.
+ - Learning to love is hard and we pay dearly for it. It takes hard work and a long apprenticeship, for it is not just for a moment that we must learn to love, but forever.
+ - A new philosophy, a new way of life, is not given for nothing. It has to be paid dearly for and only acquired with much patience and great effort.
+ - There is immeasurably more left inside than what comes out in words. Your thought, even a bad one, while it is with you, is always more profound, but in words it is more ridiculous and dishonorable.
+ - If there is no God, then I am God.
+ - A man who lies to himself, and believes his own lies, becomes unable to recognize truth, either in himself or in anyone else, and he ends up losing respect for himself and for others.
+ - I am a fool with a heart but no brains, and you are a fool with brains but no heart; and we’re both unhappy, and we both suffer.
+ - It’s the great mystery of human life that old grief passes gradually into quiet tender joy.
+ - If he’s alive he has everything in his power! Whose fault is it he doesn’t understand that.
+ - I used to imagine adventures for myself, I invented a life, so that I could at least exist somehow.
+ - Obedience, fasting, and prayer are laughed at, yet only through them lies the way to real true freedom. I cut off my superfluous and unnecessary desires, I subdue my proud and wanton will and chastise it with obedience, and with God’s help I attain freedom of spirit and with it spiritual joy.
+ - Inventors and geniuses have almost always been looked on as no better than fools at the beginning of their career, and very frequently at the end of it also.
+ - The awful thing is that beauty is mysterious as well as terrible. God and the devil are fighting there and the battlefield is the heart of man.
+ - Oh I’ve plenty of time, my time is entirely my own.
+ - The man who lies to himself and listens to his own lie comes to such a pass that he cannot distinguish the truth within him.
+ - He who masters the grey everyday is a hero.
+ - Suffering is the sole origin of consciousness.
+ - Nature doesn’t ask your permission; it doesn’t care about your wishes, or whether you like its laws or not. You’re obliged to accept it as it is, and consequently all its results as well.
+ - Compassion is the chief law of human existence.
+ - I think the devil doesn’t exist, but man has created him, he has created him in his own image and likeness.
+ - It is amazing what one ray of sunshine can do for a man!
+ - But men love abstract reasoning and neat systematization so much that they think nothing of distorting the truth, closing their eyes and ears to contrary evidence to preserve their logical constructions.
+ - The fear of appearances is the first symptom of impotence.
+ - I am a dreamer. I know so little of real life that I just can’t help re-living such moments as these in my dreams, for such moments are something I have very rarely experienced. I am going to dream about you the whole night, the whole week, the whole year.
+ - My God, a moment of bliss. Why, isn’t that enough for a whole lifetime?
+ - If one wanted to crush and destroy a man entirely, to mete out to him the most terrible punishment, all one would have to do would be to make him do work that was completely and utterly devoid of usefulness and meaning.
+ - And what’s strange, what would be marvelous, is not that God should really exist; the marvel is that such an idea, the idea of the necessity of God, could enter the head of such a savage, vicious beast as man.
+ - May you be for ever blessed for that moment of bliss and happiness which you gave to another lonely and grateful heart. Isn’t such a moment sufficient for the whole of one’s life?
+ - I agree that two and two make four is an excellent thing; but to give everything its due, two and two make five is also a very fine thing.
+ - Love is such a priceless treasure that you can buy the whole world with it, and redeem not only your own but other people’s sins. Go, and do not be afraid.
+ - I may be mistaken but it seems to me that a man may be judged by his laugh, and that if at first encounter you like the laugh of a person completely unknown to you, you may say with assurance that he is good.
+ - Lack of originality, everywhere, all over the world, from time immemorial, has always been considered the foremost quality and the recommendation of the active, efficient and practical man.
+ - Sarcasm: the last refuge of modest and chaste-souled people when the PRIVACY of their soul is coarsely and intrusively invaded.
+ - I almost do not exist now and I know it; God knows what lives in me in place of me.
+ - There are chance meetings with strangers that interest us from the first moment, before a word is spoken.
+ - I know that you don’t believe it, but indeed, life will bring you through. You will live it down in time. What you need now is fresh air, fresh air, fresh air!
+ - To love someone means to see them as God intended them.
+ - Man, do not pride yourself on your superiority to the animals, for they are without sin, while you, with all your greatness, you defile the earth wherever you appear and leave an ignoble trail behind you – and that is true, alas, for almost every one of us!
+ - Your hand is cold, mine burns like fire. How blind you are, Nastenka!
+ - The more stupid one is, the closer one is to reality. The more stupid one is, the clearer one is. Stupidity is brief and artless, while intelligence squirms and hides itself. Intelligence is unprincipled, but stupidity is honest and straightforward.
+ - The death of a child is the greatest reason to doubt the existence of God.
+ - If he has a conscience he will suffer for his mistake. That will be his punishment-as well as the prison.
+ - Deprived of meaningful work, men and women lose their reason for existence; they go stark, raving mad.
+ - Being at a loss to resolve these questions, I am resolved to leave them without any resolution.
+ - What man wants is simply independent choice, whatever that independence may cost and wherever it may lead.
+ - Civilization has made man, if not always more bloodthirsty, at least more viciously, more horribly bloodthirsty.
+ - It takes something more than intelligence to act intelligently.
+ - A hundred suspicions don’t make a proof.
+ - They were renewed by love; the heart of each held infinite sources of life for the heart of the other.
+ - Man is fond of counting his troubles, but he does not count his joys. If he counted them up as he ought to, he would see that every lot has enough happiness provided for it.
+ - A fool with a heart and no sense is just as unhappy as a fool with sense and no heart.
+ - Everything passes, only truth remains.
+ - Be the sun and all will see you.
+ - It was a wonderful night, such a night as is only possible when we are young, dear reader.
+ - If not reason, then the devil.
+ - Money is coined liberty, and so it is ten times dearer to a man who is deprived of freedom. If money is jingling in his pocket, he is half consoled, even though he cannot spend it.
+ - My soul bleeds and the blood steadily, silently, disturbingly slowly, swallows me whole.
+ - One can’t understand everything at once, we can’t begin with perfection all at once! In order to reach perfection one must begin by being ignorant of a great deal. And if we understand things too quickly, perhaps we shan’t understand them thoroughly.
+ - I believe there is no one deeper, lovelier, more sympathetic and more perfect than Jesus...
+ - In most cases, people, even wicked people, are far more naive and simple-hearted than one generally assumes. And so are we.
+ - In the realist, faith is not born from miracles, but miracles from faith.
+ - Nothing in this world is harder than speaking the truth, nothing easier than flattery.
+ - I punish myself for my whole life, my whole life I punish.
+ - Right or wrong, it’s very pleasant to break something from time to time.
+ - Love the animals. God has given them the rudiments of thought and joy untroubled. Don’t trouble it, don’t harass them, don’t deprive them of their happiness, don’t work against God’s intent.
+ - It is not the brains that matter most, but that which guides them – the character, the heart, generous qualities, progressive ideas.
+ - Intelligence alone is not nearly enough when it comes to acting wisely.
+ - Because I’m a Karamazov. Because when I fall into the abyss, I go straight into it, head down and heels up, and I’m even pleased that I’m falling in just such a humiliating position, and for me I find it beautiful.
+ - There is no subject so old that something new cannot be said about it.
+ - For the secret of man’s being is not only to live but to have something to live for. Without a stable conception of the object of life, man would not consent to go on living, and would rather destroy himself than remain on earth, though he had bread in abundance.
+ - Talking nonsense is man’s only privilege that distinguishes him from all other organisms.
+ - Every ant knows the formula of its ant-hill, every bee knows the formula of its beehive. They know it in their own way, not in our way. Only humankind does not know its own formula.
+ - Everything seems stupid when it fails.
+ - As for me, this is my story: I worked and was tortured. You know what it means to compose? No, thank God, you do not! I believe you have never written to order, by the yard, and have never experienced that hellish torture.
+ - Love every leaf, every ray of light. Love the animals, love the plants, love each separate thing. Loving all, you will perceive the mystery of God in all.
+ - Only the heart knows how to find what is precious.
+ - Love the animals: God has given them the rudiments of thought and joy untroubled.
+ - People talk sometimes of a bestial cruelty, but that’s a great injustice and insult to the beasts; a beast can never be so cruel as a man, so artistically cruel. The tiger only tears and gnaws, that’s all he can do. He would never think of nailing people by the ears, even if he were able to do it.
+ - I have no self-respect. But can a man of acute sensibility respect himself at all?
+ - My life is ending, I know that well, but every day that is left me I feel how my earthly life is in touch with a new infinite, unknown, but approaching life, the nearness of which sets my soul quivering with rapture, my mind glowing and my heart weeping with joy.
+ - The whole work of man really seems to consist in nothing but proving to himself every minute that he is a man and not a piano key.
+ - I gave up caring about anything, and all the problems disappeared. And it was after that that I found out the truth. I learnt the truth last November on the third of November, to be precise and I remember every instant since.
+ - Nothing has ever been more insupportable for a man and a human society than freedom. –The Grand Inquisitor.
+ - I am too young and I’ve loved you too much.
+ - Totally without hope one cannot live. To live without hope is to cease to live. Hell is hopelessness. It is no accident that above the entrance to Dante’s hell is the inscription: “Leave behind all hope, you who enter here.”
+ - The more I love humanity in general, the less I love man in particular.
+ - Only through suffering can we find ourselves.
+ - Hang your merit. I don’t seek anyone’s approbation.
+ - For a woman, all resurrection, all salvation, from whatever perdition, lies in love; in fact, it is her only way to it.
+ - Pass us by, and forgive us our happiness.
+ - With love one can live even without happiness.
+ - I am strongly convinced that not only too much consciousness but even any consciousness at all is a sickness.
+ - Hold your tongue; you won’t understand anything. If there is no God, then I am God.
+ - Only by self-respect will you compel others to respect you.
+ - Don’t be overwise; fling yourself straight into life, without deliberation; don’t be afraid – the flood will bear you to the bank and set you safe on your feet again.
+ - There is only one way to salvation, and that is to make yourself responsible for all men’s sins. As soon as you make yourself responsible in all sincerity for everything and for everyone, you will see at once that this is really so, and that you are in fact to blame for everyone and for all things.
+ - I swear to you, sirs, that excessive consciousness is a disease – a genuine, absolute disease.
+ - My friends, God is necessary for me if only because he is the one being who can be loved eternally.
+ - Love life more than the meaning of it?
+ - But what can a decent man speak of with most pleasure? Answer: Of himself. Well, so I will talk about myself.
+ - I gave up caring about anything, and all the problems disappeared.
+ - Suppose, gentleman, that man is not stupid.
+ - Man is stupid, phenomenally stupid.
+ - I want to suffer and be purified by suffering!
+ - To achieve perfection, one must first begin by not understanding many things! And if we understand too quickly, we may not understand well.
+ - Believe to the end, even if all men went astray and you were left the only one faithful; bring your offering even then and praise God in your loneliness.
+ - Break what must be broken, once for all, that’s all, and take the suffering on oneself.
+ - Talking nonsense is the sole privilege mankind possesses over the other organisms. It’s by talking nonsense that one gets to the truth! I talk nonsense, therefore I’m human.
+ - It suddenly seemed to me that I was lonely, that everyone was forsaking me and going away from me.
+ - Happiness does not lie in happiness, but in the achievement of it.
+ - God is the pain of the fear of death.
+ - No, evidently habit means a lot. The devil knows what habit can do to a person.
+ - Lying is a delightful thing for it leads to the truth.
+ - For all is like an ocean, all flows and connects; touch it in one place and it echoes at the other end of the world.
+ - God has such gladness every time he sees from heaven that a sinner is praying to Him with all his heart, as a mother has when she sees the first smile on her baby’s face.
+ - There is nothing more alluring to man than freedom of conscience, but neither is there anything more agonizing.
+ - I am a ridiculous man. They call me a madman now. That would be a distinct rise in my social position were it not that they still regard me as being as ridiculous as ever.
+ - Do you believe in a future everlasting life? No, not in a future everlasting but in an everlasting life here. There are moments, you reach moments, and time comes to a sudden stop, and it will become eternal.
+ - Dreams seem to be spurred on not by reason but by desire, not by the head but by the heart, and yet what complicated tricks my reason has played sometimes in dreams.
+ - Life had stepped into the place of theory.
+ - The absurd is only too necessary on earth. The world stands on absurdities.
+ - The more you succeed in loving, the more you’ll be convinced at the existence of God and the immortality of your soul.
+ - To cook your hare you must first catch it.
+ - Faith does not, in the realist, spring from the miracle but the miracle from faith. If the realist once believes, then he is bound by his very realism to admit the miraculous also.
+ - A true friend of mankind whose heart has but once quivered in compassion over the sufferings of the people, will understand and forgive all the impassable alluvial filth in which they are submerged, and will be able to discover the diamonds in the filth.
+ - Even as I approach the gambling hall, as soon as I hear, two rooms away, the jingle of money poured out on the table, I almost go into convulsions.
+ - We don’t understand that life is heaven, for we have only to understand that and it will at once be fulfilled in all its beauty, we shall embrace each other and weep.
+ - How many ideas have there been in the history of man which were unthinkable ten years before they appeared?
+ - Love children especially, for they too are sinless like the angels; they live to soften and purify our hearts and, as it were, to guide us.
+ - I have a plan-to go mad.
+ - Although your mind works, your heart is darkened with depravity; and without a pure heart there can be no complete and true consciousness.
+ - I’m drunk but truthful.
+ - Much unhappiness has come into the world because of bewilderment and things left unsaid.
+ - And yet I am convinced that man will never give up true suffering- that is, destruction and chaos. Why, suffering is the sole root of consciousness.
+ - It is necessary that every man have at least somewhere to go. For there are times when one absolutely must go at least somewhere!
+ - In order to love simply, it is necessary to know how to show love.
+ - A widow, the mother of a family, and from her heart she produces chords to which my whole being responds.
+ - You are told a lot about your education, but some beautiful, sacred memory, preserved since childhood, is perhaps the best education of all.
+ - To be acutely conscious is a disease, a real, honest-to-goodness disease.
+ - On an exceptionally hot evening early in July a young man came out of the garret in which he lodged in S. Place and walked slowly, as though in hesitation, towards K. bridge.
+ - If the people around you are spiteful and callous and will not hear you, fall down before them and beg their forgiveness; for in truth you are to blame for their not wanting to hear you.
+ - From a hundred rabbits you can’t make a horse.
+ - He who desires to see the living God face-to-face should not seek him in the empty, firmament of his mind, but in human love.
+ - The consciousness of life is higher than life.
+ - Hell is the inability to love.
+ - To begin with unlimited freedom is to end with unlimited despotism.
+ - They were like two enemies in love with one another.
+ - A beast can never be as cruel as a human being, so artistically, so picturesquely cruel.
+ - Even if we are occupied with important things and even if we attain honour or fall into misfortune, still let us remember how good it once was here, when we were all together united by a good and kind feeling which made us perhaps better than we are.
+ - Existence alone had never been enough for him; he had always wanted more. Perhaps it was only from the force of his desires that he had regarded himself as a man to whom more was permitted than to others.
+ - It was a marvelous night, the sort of night one only experiences when one is young. The sky was so bright, and there were so many stars that, gazing upward, one couldn’t help wondering how so many whimsical, wicked people could live under such a sky.
+ - I swear to you gentlemen, that to be overly conscious is a sickness, a real, thorough sickness.
+ - Who doesn’t desire his fathers death?
+ - Humanity can live without science, it can live without bread, but it cannot live without beauty. Without beauty, there would be nothing left to do in this life. Here the secret lies. Here lies the entire story.
+ - Accept suffering and achieve atonement through it – that is what you must do.
+ - The more incompetent one feels, the more eager he is to fight.
+ - And you’re sorry that the ephemeral beauty has faded so rapidly, so irretrievably, that it flashed so deceptively and pointlessly before your eyes – you’re sorry, for you didn’t even have time to fall in love...
+ - I do not wish you much happiness – it would bore you; I do not wish you trouble either; but, following the people’s philosophy, I will simply repeat: ‘Live more’ and try somehow not to be too bored; this useless wish I am adding on my own.
+ - Walking along the crowded row He met the one he used to know.
+ - In the end they will lay their freedom at our feet and say to us, Make us your slaves, but feed us.
+ - There is immeasurably more left inside than what comes out in words.
+ - If God is dead, everything is allowed.
+ - But I always liked side-paths, little dark back-alleys behind the main road- there one finds adventures and surprises, and precious metal in the dirt.
+ - Suffering is part and parcel of extensive intelligence and a feeling heart.
+ - Men do not accept their prophets and slay them, but they love their martyrs and worship those whom they have tortured to death.
+ - I am crazy about mysterious things.
+ - One circumstance tormented me then: Namely, that no one else was like me, and I was like no one else. I am only one, and they are all.
+ - That’s just the point: an honest and sensitive man opens his heart, and the man of business goes on eating – and then he eats you up.
+ - Nothing is more seductive for a man than his freedom of conscience, but nothing is a greater cause of suffering.
+ - I am told that the proximity of punishment arouses real repentance in the criminal and sometimes awakens a feeling of genuine remorse in the most hardened heart; I am told this is due to fear.
+ - Every man looks out for himself, and he has the happiest life who manages to hoodwink himself best of all.
+ - But try getting blindly carried away by your feelings, without reasoning, without a primary cause, driving consciousness away at least for a time; start hating, or fall in love, only so as not to sit with folded arms.
+ - Here my tears are falling, Nastenka. Let them flow, let them flow – they don’t hurt anybody. They will dry Nastenka.
+ - And, indeed, I will ask on my own account here, an idle question: which is better – cheap happiness or exalted sufferings? Well, which is better?
+ - You can’t be angry with me, because I am a hundred times more severely punished than you, if only by the fact that I shall never see you again.
+ - We always imagine eternity as something beyond our conception, something vast, vast! But why must it be vast?
+ - You sensed that you should be following a different path, a more ambitious one, you felt that you were destined for other things but you had no idea how to achieve them and in your misery you began to hate everything around you.
+ - For, after all, you do grow up, you do outgrow your ideals, which turn to dust and ashes, which are shattered into fragments; and if you have no other life, you just have to build one up out of these fragments.
+ - The meanest and most hateful thing about money is that it even gives one talent.
+ - Even those who have renounced Christianity and attack it, in their inmost being still follow the Christian ideal, for hitherto neither their subtlety nor the ardour of their hearts has been able to create a higher ideal of man and of virtue than the ideal given by Christ of old.
+ - But man is a fickle and disreputable creature and perhaps, like a chess-player, is interested in the process of attaining his goal rather than the goal itself.
+ - If he’s honest, he’ll steal; if he’s human, he’ll murder; if he’s faithful, he’ll deceive.
+ - Life is paradise, and we are all in paradise, but we refuse to see it.
+ - And though I suffer for you, yet it eases my heart to suffer for you.
+ - Every man has some reminiscences which he would not tell to everyone, but only to his friends.
+ - Just take a look around you: Blood is flowing in rivers and in such a jolly way you’d think it was champagne.
+ - Catch several hares and you won’t catch one.
+ - Killing myself was a matter of such indifference to me that I felt like waiting for a moment when it would make some difference.
+ - Every blade of grass, every insect, ant, and golden bee, all so amazingly know their path, though they have not intelligence, they bear witness to the mystery of God and continually accomplish it themselves.
+ - Granted I am a babbler, a harmless vexatious babbler, like all of us. But what is to be done if the direct and sole vocation of every intelligent man is babble, that is, the intentional pouring of water through a sieve?
+ - Life is what matters, life alone – the continuous, eternal process of discovering life – and not the discovery itself.
+ - Drowning men, it is said, cling to wisps of straw.
+ - Alyosha’s heart could not bear uncertainty, for the nature of his love was always active. He could not love passively; once he loved, he immediately also began to help.
+ - I believe the best definition of man is the ungrateful biped.
+ - Never mind a little dirt, if the goal is splendid!
+ - Love a man, even in his sin, for that love is a likeness of the divine love, and is the summit of love on earth.
+ - Eh, brother, but nature has to be corrected and guided, otherwise we’d all drown in prejudices. Without that there wouldn’t be even a single great man.
+ - If someone proved to me that Christ is outside the truth, and that in reality the truth were outside of Christ, then I should prefer to remain with Christ rather than with the truth.
+ - Above all, avoid falsehood, every kind of falsehood, especially falseness to yourself. Watch over your own deceitfulness and look into it every hour, every minute.
+ - A cultivated and decent man cannot be vain without setting a fearfully high standard for himself, and without despising and almost hating himself at certain moments.
+ - You will have many enemies, but even your foes will love you. Life will bring you many misfortunes, but you will find your happiness in them, and will bless life and will make others bless it-which is what matters most.
+ - It’s in despair that you find the sharpest pleasures, particularly when you are most acutely aware of the hopelessness of your position.
+ - At such times I felt something was drawing me away, and I kept fancying that if I walked straight on, far, far away and reached that line where the sky and earth meet, there I should find the key to the mystery, there I should see a new life a thousand times richer and more turbulent than ours.
+ - People with new ideas, people with the faintest capacity for saying something new, are extremely few in number, extraordinarily so, in fact.
+ - Besides, nowadays, almost all capable people are terribly afraid of being ridiculous, and are miserable because of it.
+ - What if, when this fog scatters and flies upward, the whole rotten, slimey city goes with it, rises with the fog and vanishes like smoke.
+ - One can know a man from his laugh, and if you like a man’s laugh before you know anything of him, you may confidently say that he is a good man.
+ - Man is a creative animal, doomed to strive toward a goal, engaged in full-time engineering.
+ - There is not a thing that is more positive than bread.
+ - Drive nature out of the door and it will fly in at the window.
+ - What terrible tragedies realism inflicts on people.
+ - My friend, the truth is always implausible, did you know that? To make the truth more plausible, it’s absolutely necessary to mix a bit of falsehood with it. People have always done so.
+ - Atheism: It seeks to replace in itself the moral power of religion, in order to appease the spiritual thirst of parched humanity and save it; not by Christ, but by force.
+ - Everything will come in due course, if you have the gumption to wait for it.
+ - Realists do not fear the results of their study.
+ - Now I’m living out my life in a corner, trying to console myself with the stupid, useless excuse that an intelligent man cannot turn himself into anything, that only a fool can make anything he wants out of himself.
+ - The more conscious I was of goodness and of all that was ’sublime and beautiful,’the more deeply I sank into my mire and the more ready I was to sink in it altogether.
+ - Be not forgetful of prayer. Every time you pray, if your prayer is sincere, there will be new feeling and new meaning in it, which will give you fresh courage, and you will understand that prayer is an education.
+ - So long as man remains free he strives for nothing so incessantly and so painfully as to find someone to worship.
+ - After all, bluff and real emotion exist so easily side by side.
+ - The chief thing is to love others likeyourself, that’s the chief thing, and that’s everything; nothing else is wanted – you will find out at once how to arrange it all.
+ - You see I kept asking myself then: why am I so stupid that if others are stupid – and I know they are – yet I won’t be wiser?
+ - It’s not God that I don’t accept, Alyosha, only I most respectfully return him the ticket.
+ - The jealous are the readiest of all to forgive, and all women know it.
+ - For what is man without desires, without free will, and without the power of choice but a stop in an organ pipe?
+ - In sinning, each man sins against all, and each man is at least partly guilt for another’s sin. There is no isolated sin.
+ - Fathers, provoke not your children to wrath.
+ - There is nothing easier than lopping off heads and nothing harder than developing ideas.
+ - Trifles, trifles are what matter!
+ - The formula ‘Two and two make five’ is not without its attractions.
+ - We have all lost touch with life, we all limp, each to a greater or lesser degree.
+ - Of course my jokes are in poor taste, inappropriate, and confused; they reveal my lack of security. But that is because I have no respect for myself.
+ - Or renounce life altogether! Accept fate obediently as it is, once and for all, and stifle everything in myself, renouncing any right to act, to live, to love.
+ - I drink because I wish to multiply my sufferings.
+ - Don’t think I’m talking nonsense because I’m drunk. I’m not a bit drunk. Brandy’s all very well, but I need two bottles to make me drunk.
+ - The prince says that the world will be saved by beauty! And I maintain that the reason he has such playful ideas is that he is in love.
+ - Man is a pliable animal, a being who gets accustomed to everything!
+ - Viper will eat viper, and it would serve them both right!
+ - My God, but what do I care about the laws of nature and arithmatic if for some reason these laws and two times two is four are not to my liking?
+ - Bad people are to be found everywhere, but even among the worst there may be something good.
+ - It’s the moon that makes it so still, weaving some mystery.
+ - In summer, intolerable closeness; in winter, unendurable cold. All the floors were rotten. Filth on the floors an inch thick; one could slip and fall...
+ - Humiliate the reason and distort the soul.
+ - I will put up with any mockery rather than pretend that I am satisfied when I am hungry.
+ - The genuine realist, if he is an unbeliever, will always find strength and ability to disbelieve in the miraculous, and if he is confronted with a miracle as an irrefutable fact he would rather disbelieve his own senses than admit the miraculous also.
+ - My sweetheart! When I think of you, it’s as if I’m holding some healing balm to my sick soul, and although i suffer for you, i find that even suffering for you is easy.
+ - Often a man endures for several years, submits and suffers the cruellest punishments, and then suddenly breaks out over some minute trifle, almost nothing at all.
+ - Neither a person nor a nation can exist without some higher idea. And there is only one higher idea on earth, and it is the idea of the immortality of the human soul, for all other “higher” ideas of life by which humans might live derive from that idea alone.
+ - All the Utopias will come to pass only when we grow wings and all people are converted into angels.
+ - You ache with it all; and the more mysterious it is, the more you ache.
+ - If you love all things, you will also attain the divine mystery that is in all things. For then your ability to perceive the truth will grow every day, and your mind will open itself to an all-embracing love.
+ - It is man’s unique privilege, among all other organisms. By pursuing falsehood you will arrive at the truth!
+ - Gambling is a most foolish and imprudent pursuit.
+ - The man who is happy is fulfilling the purpose of existence.
+ - If you can put the question, ‘Am I or am I not responsible for my acts?’ then you are responsible.
+ - Perhaps I really regard myself as an intelligent man only because throughout my entire life I’ve never been able to start or finish anything.
+ - Because everyone is guilty for everyone else. For all the ‘wee ones,’ because there are little children and big children. All people are ‘wee ones.’ And I’ll go for all of them, because there must be someone who will go for all of them.
+ - Gentlemen, I am tormented by questions; answer them for me.
+ - It is easier for a Russian to become an atheist than for anyone else in the world.
+ - Existentialism isn’t so atheistic that it wears itself out showing that God doesn’t exist. Rather, it declares that even if God did exist, that would change nothing.
+ - Speak of a wolf and you see his tail!
+ - Sometimes we desire absolute nonsense because in our stupidity we see in this nonsense the easiest way of attaining some conjectural good.
+ - From harmony, from heavenly harmony, This universal frame began: From harmony to harmony Through all the compass of the notes it ran, The diapason closing full in Man.
+ - I want to suffer so that I may love.
+ - Let us first fulfill Christ’s injunction ourselves and only then venture to expect it of our children. Otherwise we are not fathers, but enemies of our children, and they are not our children, but our enemies, and we have made them our enemies ourselves.
+ - I wanted to discuss the suffering of humanity in general, but perhaps we’d better confine ourselves to the sufferings of children.
+ - I never have frustrations. The reason is to wit: Of at first I don’t succeed, I quit!
+ - What do you think, would not one tiny crime be wiped out by thousands of good deeds?
+ - An anguish of longing would boil up inside me; a hysterical thirst for contradictions and contrasts would appear, and I would embark on dissipations.
+ - The more I detest men individually the more ardent becomes my love for humanity.
+ - In a morbid condition of the brain, dreams often have a singular actuality, vividness, and extraordinary semblance of reality.
+ - Until you have become really, in actual fact, as brother to everyone, brotherhood will not come to pass.
+ - One man doesn’t believe in god at all, while the other believes in him so thoroughly that he prays as he murders men!
+ - On our earth we can only love withsuffering and through suffering.
+ - To a commonplace man of limited intellect, for instance, nothing is simpler than to imagine himself an original character, and to revel in that belief without the slightest misgiving.
+ - Sometimes a man is intensely, even passionately, attached to suffering – that is a fact.
+ - She looked much younger than her age, indeed, which is almost always the case with women who retain serenity of spirit, sensitiveness and pure sincere warmth of heart to old age.
+ - And in fact you’re not like everyone else: you weren’t ashamed just now to confess bad and even ridiculous things about yourself. Who would confess such things nowadays? No one, and people have even stopped feeling any need for self-judgment.
+ - One must first learn to live oneself before one blames others.
+ - I feel pity for him, and that is a poor sign of love.
+ - Let us be servants in order to be leaders.
+ - You must accept it as it is, and hence accept all consequences. A wall is indeed a wall.
+ - Only to live, to live and live! Life, whatever it may be!
+ - A real gentleman, even if he loses everything he owns, must show no emotion. Money must be so far beneath a gentleman that it is hardly worth troubling about.
+ - Make us your slaves, but feed us.
+ - And if there’s love, you can do without happiness too. Even with sorrow, life is sweet.
+ - Russians alone are able to combine so many opposites in themselves at one and the same time.
+ - Right attitudes produces right action.
+ - Let us not forget that the reasons for human actions are usually incalculably more complex and diverse than we tend to explain them later, and are seldom clearly manifest.
+ - My feelings, gratitude, for instance, are denied me simply because of my social position.
+ - If man has one good memory to go by, that may be enough to save him.
+ - There are things which a man is afraid to tell even to himself, and every decent man has a number of such things stored away in his mind.
+ - It is always so, when we are unhappy we feel more strongly the unhappiness of others; our feeling is not shattered, but becomes concentrated...
+ - Reality is infinitely diverse, compared with even the subtlest conclusions of abstract thought, and does not allow of clear-cut and sweeping distinctions. Reality resists classification.
+ - It is a law of nature that every decent man on earth is bound to be a coward and a slave.
+ - We must never forget that human motives are generally far more complicated than we are apt to suppose, and that we can very rarely accurately describe the motives of another.
+ - I love the sticky leaves in spring, the blue sky – that’s all it is. It’s not a matter of intellect or logic, it’s loving with one’s inside, with one’s stomach.
+ - What if man is not really a scoundrel, man in general, I mean, the whole race of mankind-then all the rest is prejudice, simply artificial terrors and there are no barriers and it’s all as it should be.
+ - Grown-up people do not know that a child can give exceedingly good advice even in the most difficult case.
+ - I tell you solemnly, that I have many times tried to become an insect. But I was not equal even to that. I swear, gentlemen, that to be too conscious is an illness- a real thorough-going illness.
+ - But do you understand, I cry to him, do you understand that if you have the guillotine in the forefront, and with such glee, it’s for the sole reason that cutting heads off is the easiest thing, and having an idea is difficult!
+ - I do not rebel against my God, I simply do not accept his world.
+ - The world stands on absurdities, and without them perhaps nothing at all would happen.
+ - We do not understand that life is paradise, for it suffices only to wish to understand it, and at once paradise will appear in front of us in its beauty.
+ - He does not like showing his feelings and would rather do a cruel thing than open his heart freely.
+ - Man is tormented by no greater anxiety than to find someone quickly to whom he can hand over that great gift of freedom with which the ill-fated creature is born.
+ - The Golden Age is the most implausible of all dreams. But for it men have given up their life and strength; for the sake of it prophets have died and been slain; without it the people will not live and cannot die.
+ - To be in love is not the same as loving. You can be in love with a woman and still hate her.
+ - What is the use of Christ’s words, unless we set an example?
+ - The most pressing question on the problem of faith is whether a man as a civilized being can believe in the divinity of the Son of God, Jesus Christ, for therein rests the whole of our faith.
+ - To strive consciously for an object and to engage in engineering – that is, incessantly and eternally to make new roads, wherever they may lead.
+ - Human laziness makes people pigeonhole one another at first site so that they find nothing in common with one another.
+ - Every man needs a place to go to.
+ - For if there’s no everlasting God, there’s no such thing as virtue, and there’s no need of it.
+ - Homeopathic doses are perhaps the strongest.
+ - Schoolboys are a merciless race, individually they are angels, but together, especially in schools, they are often merciless.
+ - If they drive God from the earth, we shall shelter Him underground.
+ - Is it really not possible to touch the gaming table without being instantly infected by superstition?
+ - I have seen the truth. It is not as though I had invented it in my mind. I have seen it, SEEN IT and the living image of it has filled my soul forever...
+ - Neither man nor nation can exist without a sublime idea.
+ - They tease me now, telling me it was only a dream. But does it matter whether it was a dream or reality, if the dream made known to me the truth?
+ - I have in my own life merely carried to the extreme that which you have never ventured to carry even halfway ; and what’s more, you’ve regarded your cowardice as prudence, and found comfort in deceiving yourselves. So that, in fact, I may be even more “alive” than you are. Do take a closer look!
+ - It’s not God that I do not accept, you understand, it is this world of God’s, created by God, that I do not accept and cannot agree to accept.
+ - In a way there’s only a fine shade of difference between the healthy and the deranged.
+ - An artist must know the reality he is depicting in its minutest detail. In my opinion we have only one shining example of that – Count Leo Tolstoy.
+ - But twice-two-makes-four is for all that a most insupportable thing. Twice-two-makes-four is, in my humble opinion, nothing but a piece of impudence. Twice-two-makes-four is a farcical, dressed-up fellow who stands across your path with arms akimbo and spits at you.
+ - A just cause is not ruined by a few mistakes.
+ - I sometimes think love consists precisely of the voluntary gift by the loved object of the right to tyrannize over it.
+ - I cannot understand why the world is arranged as it is.
+ - This pleasure comes precisely from the sharpest awareness of your own degradation; from the knowledge that you have gone to the utmost limit; that it is despicable, yet cannot be otherwise; that you no longer have any way out; that you will never become a different man.
+ - We are all happy if we but knew it.
+ - If you were to destroy the belief in immortality in mankind, not only love but every living force on which the continuation of all life in the world depended, would dry up at once.
+ - There are three forces, the only three forces capable of conquering and enslaving forever the conscience of these weak rebels in the interests of their own happiness. They are: the miracle, the mystery and authority.
+ - If the person laughs well, they are a good person.
+ - He seemed, indeed, to accept everything without the least condemnation though often grieving bitterly.
+ - The sky was horribly dark, but one could distinctly see tattered clouds, and between them fathomless black patches. Suddenly I noticed in one of these patches a star, and began watching it intently. That was because that star had given me an idea : I decided to kill myself that night .
+ - It is not possible to eat me without insisting that I sing praises of my devourer?
+ - There is no virtue if there is no immortality.
+ - There is nothing higher and stronger and more wholesome and useful for life in later years than some good memory, especially a memory connected with childhood, with home.
+ - Love is a teacher, but one must know how to acquire it, for it is difficult to acquire, it is dearly bought, by long work over a long time, for one ought to love not for a chance moment but for all time. Anyone, even a wicked man, can love by chance.
+ - I’ve always considered myself smarter than everyone around me, and sometimes, believe me, I’ve been ashamed of it. At the least, all my life I’ve looked away and never could look people straight in the eye.
+ - Beauty is a terrible and awful thing! It is terrible because it has not been fathomed, for God sets us nothing but riddles. Here the boundaries meet and all contradictions exist side by side.
+ - Perhaps a normal man is supposed to be stupid-how do we know? Perhaps it’s even very beautiful.
+ - To crush, to annihilate a man utterly, to inflict on him the most terrible of punishments so that the most ferocious murderer would shudder at it and dread it beforehand, one need only give him work of an absolutely, completely useless and irrational character.
+ - Ah, Misha, he has a stormy spirit. His mind is in bondage. He is haunted by a great, unsolved doubt. He is one of those who don’t want millions, but an answer to their questions.
+ - Lamentations comfort only by lacerating the heart still more. Such grief does not desire consolation. It feeds on the sense of its hopelessness. Lamentations spring only from the constant craving to re-open the wound.
+ - They have this social justification for every nasty thing they do!
+ - Loving someone is different from being in love with someone. You can hate someone you’re in love with.
+ - What can become of him if he is in such bondage to the habit of satisfying the innumerable desires he has created for himself? He is isolated, and what concern has he with the rest of humanity? They have succeeded in accumulating a greater mass of objects, but the joy in the world has grown less.
+ - Is there in the whole world a being who would have the right to forgive and could forgive?
+ - Only one thing matters, one thing; to be able to dare!
+ - Paradise is hidden in each one of use, it is concealed within me too, right now, and if I wish, it will come for me in reality, tomorrow even, and for the rest of my life.
+ - Man is unhappy because he doesn’t know he’s happy. If anyone finds out he’ll become happy at once.
+ - Since man cannot live without miracles, he will provide himself with miracles of his own making. He will believe in witchcraft and sorcery, even though he may otherwise be a heretic, an atheist, and a rebel.
+ - Everywhere I am the object of an unbelievable esteem, the interest in me is, quite simply, tremendous.
+ - But people will laugh at all sorts of things.
+ - Through error you come to the truth! I am a man because I err! You never reach any truth without making fourteen mistakes and very likely a hundred and fourteen.
+ - A single day is sufficient for a man to discover what happiness is.
+ - It is not the real punishment. The only effectual one, the only deterrent and softening one, lies in the recognition of sin by conscience.
+ - But gamblers know how a man can sit for almost twenty-four hours at cards, without looking to right, or to left.
+ - Man is a creature that can get accustomed to anything, and I think that is the best definition of him.
+ - There is no idea, no fact, which could not be vulgarized and presented in a ludicrous light.
+ - Being in love doesn’t mean loving.
+ - If you love everything, you will perceive the divine mystery of things.
+ - It’s in the homes of spiteful old widows that one finds such cleanliness.
+ - If you happen to have a wart on your nose or forehead, you cannot help imagining that no one in the world has anything else to do but stare at your wart, laugh at it, and condemn you for it, even though you have discovered America.
+ - Beggars, especially noble beggars, should never show themselves in the street; they should ask for alms through the newspapers. It’s still possible to love one’s neighbor abstractly, and even occasionally from a distance, but hardly ever up close.
+ - It’s curious and ridiculous how much the gaze of a prudish and painfully chaste man touched by love can sometimes express and that precisely at a moment when the man would of course sooner be glad to fall through the earth than to express anything with a word or a look.
+ - Was it all put into words, or did both understand that they had the same thing at heart and in their minds, so that there was no need to speak of it aloud, and better not to speak of it?
+ - If there were no God, he would have to be invented.
+ - There is no object on earth which cannot be looked at from a cosmic point of view.
+ - To kill someone for committing murder is a punishment incomparably worse than the crime itself. Murder by legal sentence is immeasurably more terrible than murder by brigands.
+ - Since I wasn’t consulted at the time of the creation of the world, I reserve for myself the right to have my own opinion about it.
+ - Russia was a slave in Europe but would be a master in Asia.
+ - It is not as a child that I believe and confess Jesus Christ. My hosanna is born of a furnace of doubt.
+ - Psychology lures even most serious people into romancing, and quite unconsciously.
+ - Whether one showed you and execution or a little finger, you would extract an equally edifying thought from both of them, and would still be content. That’s the way to get on in life.
+ - How good life is when one does something good and just!
+ - Two and two make four. Nature doesn’t ask your advice. She isn’t interested in your preferences or whether or not you approve of her laws. You must accept nature as she is with all the consequences that that implies.
+ - Man has not the right to turn aside and heed not what is happening in the world around him, and this I maintain on moral grounds of the highest order.
+ - That’s always the way with fanatics; they cross themselves at the tavern and throw stones at the temple.
+ - Man has such a predilection for systems and abstract deductions that he is ready to distort the truth intentionally he is ready to deny the evidence of his senses only to justify his logic.
+ - The perpetration of a crime is accompanied by illness!
+ - I’ve long stopped worrying about who invented whom – God man or man God.
+ - It’s a burden to us even to be human beings-men with our own real body and blood; we are ashamed of it, we think it a disgrace and try to contrive to be some sort of impossible generalized man.
+ - Thus, as a result of heightened consciousness, a man feels as if it’s all right if he’s bad as long as he knows it- as though that were any consolation.
+ - What does reason know? Reason only knows what it has succeeded in learning...
+ - In every idea of genius or in every new human idea, or, more simply still, in every serious human idea born in anyone’s brain, there is something that cannot possibly be conveyed to others.
+ - One can fall in love and still hate.
+ - Woe to the man who offends a small child!
+ - Luxuries are easy to take up but very difficult to give up.
+ - How does it come about that what an intelligent man expresses is much stupider than what remains inside him?
+ - If it were considered desirable to destroy a human being, the only thing necessary would be to give his work a character of uselessness.
+ - Man, so long as he remains free, has no more constant and agonizing anxiety than find as quickly as possible someone to worship.
+ - Whatever distinguishes one lump of flesh from another when we’re alive, we’re all the same once we’re dead. Just used-up shells.
+ - We are born dead, and we are becoming more and more contented with our condition. We are acquiring the taste for it.
+ - But yet I am firmly persuaded that a great deal of consciousness, every sort of consciousness, in fact, is a disease.
+ - Man is bound to lie about himself.
+ - Beyond the grave they will find nothing but death. But we shall keep the secret, and for their happiness we shall allure them with the reward of heaven and eternity.
+ - If the spirit has passed through a great many sensations, possibly it can no longer be sated with them, but grows more excited, and demands more sensations, and stronger and stronger ones, until at length it falls exhausted.
+ - In abstract love of humanity one almost always only loves oneself.
+ - What is most vile and despicable about money is that it even confers talent. And it will do so until the end of the world.
+ - I cannot truly imagine a truly great person who hasn’t suffered.
+ - Can a man possessing conciousness ever really respect himself?
+ - Wealth is the number of things one can do without.
+ - Oh, if only I did nothing simply as a result of laziness.
+ - Two times two will be four even without my will. Is that what you call man’s free will?
+ - And so in that very shame I suddenly begin a hymn.
+ - Life is in ourselves and not in the external.
+ - Actions are sometimes performed in a masterly and most cunning way, while the direction of the actions is deranged and dependent on various morbid impressions – it’s like a dream.
+ - The greater the stupidity, the greater the clarity. Stupidity is brief and guileless, while wit equivocates and hides. Wit is a scoundrel, while stupidity is honest and sincere.
+ - Put away your gods and come and worship ours, or we will kill you and your gods!
+ - They have succeeded in accumulating a greater mass of objects, but the joy in the world has grown less.
+ - There is no sin, and there can be no sin on all the earth, which the Lord will not forgive to the truly repentant! Man cannot commit a sin so great as to exhaust the infinite love of God. Can there be a sin which could exceed the love of God?
+ - Love to throw yourself on the earth and kiss it. Kiss the earth and love it with an unceasing, consuming love.
+ - To care only for well-being seems to me positively ill-bred. Whether it’s good or bad, it is sometimes very pleasant, too, to smash things.
+ - I go to spread the tidings, I want to spread the tidings of what? Of the truth, for I have seen it, have seen it with my own eyes, have seen it in all its glory .
+ - It’s not miracles that generate faith, but faith that generates miracles.
+ - I don’t need money, or, better, it’s not money that I need; it’s not even power; I need only what is obtained by power and simply cannot be obtained without power: the solitary and calm awareness of strength! That is the fullest definition of freedom, which the world so struggles over!
+
+480 quotes

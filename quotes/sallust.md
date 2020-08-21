@@ -1,0 +1,83 @@
+ - Fame is the shadow of passion standing in the light.
+ - Each man the architect of his own fate.
+ - Necessity makes even the timid brave.
+ - Harmony makes small things grow; lack of it makes great things decay.
+ - A good man would prefer to be defeated than to defeat injustice by evil means.
+ - Few men desire liberty; most men wish only for a just master.
+ - The renown which riches or beauty confer is fleeting and frail mental excellence is a splendid and lasting possession.
+ - It is better to use fair means and fail, than foul and conquer.
+ - Those most moved to tears by every word of a preacher are generally weak and a rascal when the feelings evaporate.
+ - Everything that rises sets, and everything that grows, grows old.
+ - They envy the distinction I have won; let them therefore, envy my toils, my honesty, and the methods by which I gained it.
+ - But few prize honour more than money.
+ - Greedy for the property of others, extravagant with his own.
+ - In battle it is the cowards who run the most risk; bravery is a rampart of defense.
+ - To like and dislike the same things that is indeed true friendship.
+ - Poor Britons, there is some good in them after all – they produced an oyster.
+ - The Gods being good and making all things, there is no positive evil, it only comes by absence of good; just as darkness itself does not exist, but only comes about by absence of light.
+ - To hope for safety in flight, when you have turned away from the enemy the arms by which the body is defended, is indeed madness. In battle those who are most afraid are always in most danger; but courage is equivalent to rampart.
+ - Small communities grow great through harmony, great ones fall to pieces through discord.
+ - Every bad precedent originated as a justifiable measure.
+ - Everything rises but to fall, and increases but to decay.
+ - It is the nature of ambition to make men liars and cheats, to hide the truth in their breasts, and show, like jugglers, another thing in their mouths, to cut all friendships and enmities to the measure of their own interest, and to make a good countenance without the help of good will.
+ - Small endeavours obtain strength by unity of action: the most powerful are broken down by discord.
+ - All who consult on doubtful matters, should be void of hatred, friendship, anger, and pity.
+ - Deliberate before you begin; but, having carefully done so, execute with vigour.
+ - Do as much as possible, and talk of yourself as little as possible.
+ - Among intellectual pursuits, one of the most useful is the recording of past events.
+ - No grief reaches the dead.
+ - Ambition breaks the ties of blood, and forgets the obligations of gratitude.
+ - All those who offer an opinion on any doubtful point should first clear their minds of every sentiment of dislike, friendship, anger or pity.
+ - By union the smallest states thrive. By discord the greatest are destroyed.
+ - If the transmigration of a soul takes place into a rational being, it simply becomes the soul of that body. But if the soul migrates into a brute beast, it follows the body outside, as a guardian spirit follows a man. For there could never be a rational soul in an irrational being.
+ - No mortal man has ever served at the same time his passions and his best interests.
+ - The poorest of men are the most useful to those seeking power.
+ - A small state increases by concord; the greatest falls gradually to ruin by dissension.
+ - Distinguished ancestors shed a powerful light on their descendants, and forbid the concealment either of their merits or of their demerits.
+ - As the blessings of health and fortune have a beginning, so they must also find an end. Everything rises but to fall, and increases but to decay.
+ - Ambition drove many men to become false; to have one thought locked in the breast, another ready on the tongue.
+ - We employ the mind to rule, the body to serve.
+ - The fame that goes with wealth and beauty is fleeting and fragile; intellectual superiority is a possession glorious and eternal.
+ - Just to stir things up seemed a great reward in itself.
+ - To someone seeking power, the poorest man is the most useful.
+ - Everything destroyed is either resolved into the elements from which it came, or else vanishes into not-being. If things are resolved into the elements from which they came, then there will be others: else how did they come into being at all?
+ - All persons who are enthusiastic that they should transcend the other animals ought to strive with the utmost effort not to pass through a life of silence, like cattle, which nature has fashioned to be prone and obedient to their stomachs.
+ - Get good counsel before you begin; and when you have decided, act promptly.
+ - Prosperity tries the souls even of the wise.
+ - One can ever assume to be what he is not, and to conceal what he is.
+ - The fact that the stars predict high or low rank for the father of the person whose horoscope is taken, teaches that they do not always make things happen but sometimes only indicate things. For how could things which preceded the birth depend upon the birth?
+ - That power of the Gods which orders for the good things which are not uniform, and which happen contrary to expectation, is commonly called Fortune, and it is for this reason that the Goddess is especially worshipped in public by cities; for every city consists of elements which are not uniform.
+ - Before you act consider; when you have considered, tis fully time to act.
+ - Neither the army nor the treasury, but friends, are the true supports of the throne; for friends cannot be collected by force of arms, nor purchased with money; they are the offspring of kindness and sincerity.
+ - To have the same likes and dislikes, therein consists the firmest bond of friendship.
+ - He that will be angry for anything will be angry for nothing.
+ - It is always easy to begin a war, but very difficult to stop one.
+ - If fortune makes a wicked man prosperous and a good man poor, there is no need to wonder. For the wicked regard wealth as everything, the good as nothing. And the good fortune of the bad cannot take away their badness, while virtue alone will be enough for the good.
+ - In my opinion it is less shameful for a king to be overcome by force of arms than by bribery.
+ - Of the bodies in the cosmos, some imitate mind and move in orbits; some imitate soul and move in a straight line, fire and air upward, earth and water downward.
+ - It is a law of human nature that in victory even the coward may boast of his prowess, while defeat injures the reputation even of the brave.
+ - It is always easy enough to take up arms, but very difficult to lay them down; the commencement and the termination of war are notnecessarily in the same hands; even a coward may begin, but the end comes only when the victors are willing.
+ - For men who had easily endured hardship, danger and difficult uncertainty, leisure and riches, though in some ways desirable, proved burdensome and a source of grief.
+ - For harmony makes small states great, while discord undermines the mightiest empires.
+ - The fame which is based on wealth or beauty is a frail and fleeting thing; but virtue shines for ages with undiminished lustre.
+ - But the case has proved that to be true which Appius says in his songs, that each man is the maker of his own fate.
+ - Sovereignty is easily preserved by the very arts by which it was originally created. When, however, energy has given place to indifference, and temperance and justice to passion and arrogance, then as the morals change so changes fortune.
+ - Most honorable are services rendered to the State; even if they do not go beyond words, they are not to be despised.
+ - But at power or wealth, for the sake of which wars, and all kinds of strife, arise among mankind, we do not aim; we desire only our liberty, which no honorable man relinquishes but with his life.
+ - Of the cosmic Gods some make the world be, others animate it, others harmonize it, consisting as it does of different elements; the fourth class keep it when harmonized.
+ - In my own case, who have spent my whole life in the practice of virtue, right conduct from habitual has become natural.
+ - The firmest friendship is based on an identity of likes and dislikes.
+ - In victory even the cowardly like to boast, while in adverse times even the brave are discredited.
+ - By the wicked the good conduct of others is always dreaded.
+ - Kings are more prone to mistrust the good than the bad; and they are always afraid of the virtues of others.
+ - There were few who preferred honor to money.
+ - The higher your station, the less your liberty.
+ - No man underestimates the wrongs he suffers; many take them more seriously than is right.
+ - It is impossible that there should be so much providence in the last details, and none in the first principles. Then the arts of prophecy and of healing, which are part of the cosmos, come of the good providence of the Gods.
+ - Neither soldiers nor money can defend a king but only friends won by good deeds, merit, and honesty.
+ - The soul is the captain and ruler of the life of morals.
+ - Fortune rules in all things, and advances and depresses things more out of her own will than right and justice.
+ - In my opinion, he only may be truly said to live and enjoy his being who is engaged in some laudable pursuit, and acquires a name by some illustrious action, or useful art.
+ - It is sweet to surve one country by deeds, and it is not absurd to surve her by words.
+
+81 quotes

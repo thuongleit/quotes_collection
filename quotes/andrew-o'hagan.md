@@ -1,0 +1,22 @@
+ - Always trust strangers, it’s the people you know that let you down.
+ - Traveling alone offers the chance to test the limits of what you think you know about yourself.
+ - The first rule of travel is that you should always go with someone you love, which is why I travel alone.
+ - A good nationalism has to depend on a principle of the common people, on myths of a struggling commonality.
+ - Once upon a time, I thought that politics was the name we gave to our higher instincts. That was before Margaret Thatcher, who came to power when I was 11 years old.
+ - It’s not a crime not to know yourself. It’s not a crime to send life away. It’s just a shame.
+ - I wasn’t like other boys. At any rate, I wasn’t like my three elder brothers: they excelled at football and they were like other boys, going up to bed each night hugging annuals filled with stories about the glories of Pele and Danny McGrain.
+ - Writing a novel is an act of self-annihilation as much as self-discovery. You can kill whole appetites and flood whole depths while plumbing them, but if you are serious about it you also get to put something into the world that wasn’t quite there before.
+ - Fans of football and fans of nationhood have a similar zeal. Read the fanzines: their contributors could find a needle-sized diss in a haystack of compliments, and their passions are fundamentalist.
+ - I was 10 when I realised I couldn’t stand football. I’d tried, obviously, before this – no one wants to give in to social pariah-hood without a fight. I had stood frozen on pitches, done some running about and shouted a lot, as though I cared.
+ - I’ve been asked which of the other arts novel-writing is most like, and I have come to believe it is acting. Of course, in terms of pattern it can be like music, in terms of structure it can be like painting, but the job to me is most like acting.
+ - As a writer I care about America, and care about its carelessness.
+ - We do not read to pass the time, but to inhabit time.
+ - A living museum must surely see itself as a locus of argument. A breathing art institution is not a lockup but a moveable feast.
+ - I think I am becoming obsessive-compulsive. David Beckham apparently turns all the Diet Coke cans in his fridge to face the same way every morning, and I nerdily sharpen all the pencils in my pot before sitting down to work.
+ - Interviewing is not a democratic art.
+ - As an old creative industry full of cruelty and moral sense, British journalism once flourished on the imperative that people required the truth in order to survive. But people don’t require that now. They want sensation and they want it for nothing.
+ - Like children all over the world, by the age of 10 I’d come to believe that most of the really humane creatures were not really human at all.
+ - Art you can flush down the loo means nothing to me, even were the loo to be selected by Marcel Duchamp.
+ - The idea that people in novels should be more sympathetic than people in life simply baffles me.
+
+20 quotes

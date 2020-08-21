@@ -1,0 +1,24 @@
+ - I have a tree man coming to trim the jacaranda in my front garden.
+ - We had two rules growing up in my house: If you’re going to take a shower, do it with whomever you’re dating so you don’t waste water; and if you buy one for yourself, buy six, because everybody’s going to want one.
+ - I don’t want to lose my name because that’s how I know myself. There is a legacy here.
+ - Your own experience keeps taking you towards something. My book adds the hope that it’s a better something.
+ - I’m totally convinced I can write the perfect pop song.
+ - I think I have a dark view of the world. I have to make everything funny, otherwise it all seems so sad.
+ - I spent most of my life locked in my bedroom, miserable about my raging acne.
+ - My Dad was so open creatively that I was off in search of black turtleneck bathing suits with long sleeves.
+ - Everyone has flaws. It’s a matter of finding the ones you can live with.
+ - I had a friend whose family had dinner together. The mother would tuck you in at night and make breakfast in the morning. They even had a spare bike for a friend. It just seemed so amazing to me.
+ - My mother tells this story that when I first went to school, I thought I was going to help the teachers. I didn’t realize I was going to get educated.
+ - I’ve got a new relationship and I’m trapped in this old life.
+ - If there’s anything more mortifying than being famous at 14, it’s being washed up right after.
+ - It occurred to me, when I was old enough to make rules of my own, that they should be fair and simple.
+ - How strange, when your father’s wearing women’s clothes and platform shoes, that a pair of loafers looks incredible.
+ - I would think: Stay close to the implants! They must know something because they keep getting asked backstage!
+ - I made enough money to buy a house. That’s crazy, but fame proved ephemeral.
+ - The idea of licking stamps seemed great fun for me.
+ - I grew up with too much freedom. You can’t define yourself.
+ - I didn’t have any concept of age or authority. I remember realising, Oh, the world has rules and we don’t.
+ - Every job I’ve ever gotten has been an accident. All the jobs I actually go after, I don’t get.
+ - I like to think of myself as a New Yorker, which is pathetic.
+
+22 quotes

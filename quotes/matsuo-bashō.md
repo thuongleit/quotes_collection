@@ -1,0 +1,68 @@
+ - Do not seek to follow in the footsteps of the wise. Seek what they sought.
+ - Sitting quietly, doing nothing, Spring comes, and the grass grows, by itself.
+ - The journey itself is my home.
+ - An autumn night – don’t think your life didn’t matter.
+ - Come, butterfly It’s late- We’ve miles to go together.
+ - Learn about a pine tree from a pine tree, and about a bamboo plant from a bamboo plant.
+ - Before enlightenment, chopping wood and carrying water. After enlightenment, chopping wood and carrying water.
+ - Real poetry, is to lead a beautiful life. To live poetry is better than to write it.
+ - Between our two lives there is also the life of the cherry blossom.
+ - Old pond, frog jumps in – plop.
+ - How I long to see among dawn flowers, the face of God.
+ - No matter where your interest lies, you will not be able to accomplish anything unless you bring your deepest devotion to it.
+ - Plunge Deep enough in order to see something that is hidden and glimmering.
+ - Learn the rules, and then forget them.
+ - Every moment of life is the last, every poem is a death poem.
+ - Nothing in the cry of cicadas suggests they are about to die.
+ - Year by year, the monkey’s mask reveals the monkey.
+ - First snow-falling-on the half-finished bridge.
+ - Spring rain conveyed under the trees in drops.
+ - The fact that Saigyo composed a poem that begins, “I shall be unhappy without loneliness,” shows that he made loneliness his master.
+ - When I speak My lips feel cold – The autumn wind.
+ - Winter solitude- in a world of one colour the sound of the wind.
+ - The moon and sun are travelers through eternity. Even the years wander on. Whether drifting through life on a boat or climbing toward old age leading a horse, each day is a journey, and the journey itself is home.
+ - Traveler’s heart. Never settled long in one place. Like a portable fire.
+ - Poverty’s child – he starts to grind the rice, and gazes at the moon.
+ - With every gust of wind, the butterfly changes its place on the willow.
+ - Harvest moon: around the pond I wander and the night is gone.
+ - Felling a tree and gazing at the cut end – tonight’s moon.
+ - The desire to break the silence with constant human noise is, I believe, precisely an avoidance of the sacred terror of that divine encounter.
+ - How much I desire! Inside my little satchel, the moon, and flowers.
+ - I am one who eats breakfast gazing at morning glories.
+ - Go to the object. Leave your subjective preoccupation with yourself. Do not impose yourself on the object. Become one with the object. Plunge deep enough into the object to see something like a hidden glimmering there.
+ - A flute with no holes is not a flute.
+ - Collecting all The rains of May The swift Mogami River.
+ - Do not resemble me-Never be like a musk melon Cut in two identical halves.
+ - Calm and serene The sound of a cicada Penetrates the rock.
+ - Without the bitterest cold that penetrates to the very bone, how can plum blossoms send forth their fragrance to the whole world?
+ - From the pine tree, learn of the pine tree; And from the bamboo, of the bamboo.
+ - What is important is to keep our mind high in the world of true understanding, and returning to the world of our daily experience to seek therein the truth of beauty. No matter what we may be doing at a given moment, we must not forget that is has a bearing upon our everlasting self which is poetry.
+ - Clapping my hands with the echoes the summer moon begins to dawn.
+ - There came a day when the clouds drifting along with the wind aroused a wanderlust in me, and I set off on a journey to roam along the seashores.
+ - Learn how to listen as things speak for themselves.
+ - He who creates three to five haiku poems during a lifetime is a haiku poet. He who attains to completes ten is a master.
+ - Breaking the silence Of an ancient pond, A frog jumped into water – A deep resonance.
+ - When your consciousness has become ripe in true zazen-pure like clear water, like a serene mountain lake, not moved by any wind-then anything may serve as a medium for realization.
+ - Go to the pine if you want to learn about the pine, or to the bamboo if you want to learn about the bamboo. And in doing so, you must leave your subjective preoccupation with yourself. Otherwise you impose yourself on the object and you do not learn.
+ - From all these trees, in the salads, the soup, everywhere, cherry blossoms fall.
+ - On a bare branch a crow is perched – autumn evening.
+ - At the ancient pond the frog plunges into the sound of water.
+ - The sea darkens And a wild duck s call Is faintly white.
+ - Awakened at midnight by the sound of the water jar cracking from the ice.
+ - If I had the knack I’d sing like Cherry flakes falling.
+ - Operating superficially, the mind is random in its activity and stale in its insights and images. However, with practice and experience the mind is freed from the skull, and the fresh and new can appear as though for the first time. It.
+ - This autumn- why am I growing old? bird disappearing among clouds.
+ - Orchidbreathing incense into butterfly’s wings.
+ - Winter garden, the moon thinned to a thread, insects singing.
+ - Just washed, How chill The white leeks!
+ - The haiku that reveals seventy to eighty percent of its subject is good. Those that reveal fifty to sixty percent, we never tire of.
+ - The basis of art is change in the universe.
+ - Old pond, leap-splash – a frog.
+ - Sadly, I part from you; Like a clam torn from its shell, I go, and autumn too.
+ - Year’s end still in straw hat and sandals.
+ - Friends part foreverwild geese lost in cloud.
+ - Make the universe your companion, always bearing in mind the true nature of things-mountains and rivers, trees and grasses, and humanity-and enjoy the falling blossoms and the scattering leaves.
+ - Come, see the true flowers of this pained world.
+ - When composing a verse let there not be a hair’s breath separating your mind from what you write; composition of a poem must be done in an instant, like a woodcutter felling a huge tree or a swordsman leaping at a dangerous enemy.
+
+66 quotes

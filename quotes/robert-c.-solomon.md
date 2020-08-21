@@ -1,0 +1,38 @@
+ - Trust and the ability to identify trustworthiness are not the same thing, although trust and trustworthiness are logically linked.
+ - True, trust necessarily carries with it uncertainties, but we must force ourselves to think about these uncertainties as possibilities and opportunities, not as liabilities.
+ - The brain can be seen as a complex machine, like a gooey computer.
+ - Whether one sees the world as God’s creation or as a secular mystery that science is on the way to figuring out, there is no denying the beauty and majesty of everything from mountain ranges, deserts, and rain forests to the exquisite details in the design of an ordinary mosquito.
+ - All trust involves vulnerability and risk, and nothing would count as trust if there were no possibility of betrayal.
+ - Love can be understood only “from the inside,” as a language can be understood only by someone who speaks it, as a world can be understood only by someone who lives in it.
+ - Trust opens up new and unimagined possibilities.
+ - The trumped-up charges against kitsch and sentimentality should disturb us and make us suspicious.
+ - Building trust begins with an appreciation and understanding of trust, but it also requires practice and practices.
+ - Building trust means thinking about trust in a positive way.
+ - Trust is built step by step, commitment by commitment, on every level.
+ - Trust is a skill learned over time so that, like a well-trained athlete, one makes the right moves, usually without much reflection.
+ - Familiarity can no longer be a necessary condition for trust.
+ - There has been talk in Europe about American hegemony being somehow based upon the use of the dollar in the world. I just don’t see that connection at all.
+ - Trust is not bound up with knowledge so much as it is with freedom, the openness to the unknown.
+ - Thus when I have to summarize naturalized spirituality in a single phrase, it is this: the thoughtful love of life.
+ - Some countries that are close to Europe that already hold Deutschemarks, clearly would automatically hold euros, those are countries in Eastern Europe mainly, a few countries in Africa.
+ - Another question has been raised rather widely in Europe, in Japan as well as in the United States is what, to what extent will the euro become a reserve currency.
+ - In the United States, securities markets are much more developed than they are in Europe.
+ - Trust is a skill, one that is an aspect of virtually all human practices, cultures, and relationships.
+ - Trust is almost always conditional, focused, qualified, and therefore limited.
+ - Many people are blind to trust, not so much to its benefits as to its nature and the practices that make it possible.
+ - If a currency is to become a growing, an increasing reserve currency, there has to be not only a demand for it there has to be a supply of it.
+ - So if the euro, if Euroland is to become a reserve center, if the euro is to become a reserve currency, Euroland will have to have a deficit in its overall balance of payments.
+ - Indeed, some kitsch seems to be flawed by its very perfection, its technical virtuosity and its precise execution, its explicit knowledge of the tradition.
+ - High kitsch, whatever else may be said of it, cannot be openly dismissed as cheap.
+ - The United States as usual has a sizable deficit in the current account of its balance of payments, trade account and other current accounts, current account items.
+ - We also confuse trust with familiarity.
+ - The prices of all imports would rise if the dollar depreciates.
+ - There is a European Central Bank, of course, established and it has the structure similar to the Federal Reserve system, not precisely the same but similar.
+ - On private transactions, I’ll just go very quickly now, a major difference between the United States and Euroland is that in Europe banks are much more important in financial transactions than in the United States.
+ - Chances are the movements of the euro as against the dollar will be relatively moderate.
+ - The dollar is currently the principal reserve currency in the world.
+ - The major material advantage, financial advantage from having a reserve currency is that between 200 and 300 billion dollar bills, that may be twenty, fifty, hundred dollar bills as well as ones, exist in the world – a lot of them in Russia as you all know I’m sure.
+ - Back in those days, in the fifties and sixties, countries had balance of payment’s deficits or surpluses, those were reflected much more than today in movements of reserves among countries.
+ - There’s a stability and growth pact which was agreed for the eleven countries which tries to limit the size of budget deficits among the eleven countries.
+
+36 quotes

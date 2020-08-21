@@ -1,0 +1,81 @@
+ - Solitude matters, and for some people, it’s the air they breathe.
+ - Everyone shines, given the right lighting.
+ - Our culture is biased against quiet and reserved people, but introverts are responsible for some of humanity’s greatest achievements.
+ - Spend your free time the way you like, not the way you think you’re supposed to.
+ - Introverts often work more slowly and deliberately. They like to focus on one task at a time and can have mighty powers of concentration. They’re relatively immune to the lures of wealth and fame.
+ - We have two ears and one mouth and we should use them proportionally.
+ - Don’t think of introversion as something that needs to be cured.
+ - Introverts are capable of acting like extroverts for the sake of work they consider important, people they love, or anything they value highly.
+ - There’s zero correlation between being the best talker and having the best ideas.
+ - The bias against introversion leads to a colossal waste of talent, energy, and happiness.
+ - What looks like multitasking is really switching back and forth between multiple tasks, which reduces productivity and increases mistakes by up to 50 percent.
+ - Most people who have grown up introverted in this very extroverted culture of ours have had painful experiences of feeling like they are out of step with what’s expected of them.
+ - Solve problems, make art, think deeply.
+ - Introverts prefer to work independently, and solitude can be a catalyst to innovation.
+ - You’re told that you’re in your head too much, a phrase that’s often deployed against the quiet and cerebral. Or maybe there’s another word for such people: thinkers.
+ - The next time you see a person with a composed face and a soft voice, remember that inside her mind she might be solving an equation, composing a sonnet, designing a hat. She might, that is, be deploying the power of quiet.
+ - Shyness is the fear of social disapproval or humiliation, while introversion is a preference for environments that are not overstimulating. Shyness is inherently painful; introversion is not.
+ - College students who tend to study alone learn more over time than those who work in groups.
+ - Open-plan offices have been found to reduce productivity and impair memory. They’re associated with high staff turnover. They make people sick, hostile, unmotivated, and insecure.
+ - We put too much of a premium on presenting and not enough on substance and critical thinking.
+ - Figure out what you are meant to contribute to the world and make sure you contribute it.
+ - I’ve never given a speech without being terrified first.
+ - Persistence isn’t very glamorous. If genius is one percent inspiration and ninety-nine percent perspiration, then as a culture we tend to lionize the one percent. We love its flash and dazzle. But great power lies in the other ninety-nine percent.
+ - Jealousy is an ugly emotion, but it tells the truth. You mostly envy those who have what you desire.
+ - We don’t need giant personalities to transform companies. We need leaders who build not their own egos but the institutions they run.
+ - The secret to life is to put yourself in the right lighting.
+ - Or at school you might have been prodded to come “out of your shell” – that noxious expression which fails to appreciate that some animals naturally carry shelter everywhere they go, and that some humans are just the same.
+ - Any time people come together in a meeting, we’re not necessarily getting the best ideas; we’re just getting the ideas of the best talkers.
+ - I get a lot of letters from introverts asking how they can meet people. The key is to make sure that you are doing things you enjoy.
+ - In our culture, snails are not considered valiant animals – we are constantly exhorting people to “come out of their shells” – but there’s a lot to be said for taking your home with you wherever you go.
+ - Opposites attract, and I think temperament is so fundamental that you end up craving someone of the opposite temperament to complete you.
+ - If you enjoy depth, don’t force yourself to seek breadth. If you prefer single-tasking to multi-tasking, stick to your guns.
+ - Solitude is out of fashion. Our companies, our schools and our culture are in thrall to an idea I call the New Groupthink, which holds that creativity and achievement come from an oddly gregarious place.
+ - Introverts living under the Extroversion Ideal are like women in a man’s world, discounted because of a trait that goes to the core of who they are.
+ - We’ve known about the transcendent power of solitude for centuries; it’s only recently that we’ve forgotten it.
+ - Introversion – along with its cousins sensitivity, seriousness, and shyness – is now a second-class personality trait, somewhere between a disappointment and a pathology.
+ - One genuine new relationship is worth a fistful of business cards.
+ - All personality traits have their good side and their bad side. But for a long time, we’ve seen introversion only through its negative side and extroversion mostly through its positive side.
+ - Love is essential, gregariousness is optional.
+ - But when the group is literally capable of changing our perceptions, and when to stand alone is to activate primitive, powerful, and unconscious feelings of rejection, then the health of these institutions seems far more vulnerable than we think.
+ - The purpose of school should be to prepare kids for the rest of their lives, but too often what kids need to be prepared for is surviving the school day itself.
+ - Even when the attention focused on me is positive, I am uncomfortable being looked at by a lot of people – it’s just not my natural state of being.
+ - I’m not saying abolish group work – I think there’s a time and a place for people to come together and exchange ideas, but let’s restore the respect we once had for solitude. And we need to be much more mindful of the way we come together.
+ - In our society, the ideal self is bold, gregarious, and comfortable in the spotlight. We like to think that we value individuality, but mostly we admire the type of individual who’s comfortable ’putting himself out there.
+ - Introverts need to trust their gut and share their ideas as powerfully as they can.
+ - What if you love knowledge for its own sake, not necessarily as a blueprint to action? What if you wish there were more, not fewer reflective types in the world?
+ - I use a lot of old-fashioned expressions.
+ - We have a two-tier class system when it comes to personality style. To devalue introversion is a waste of talent, energy and happiness.
+ - The pressure to entertain, to sell ourselves, and never to be visibly anxious keeps ratcheting up.
+ - It’s never a good idea to organize society in a way that depletes the energy of half the population.
+ - When you’re more focused in getting your message across than you are worrying about how people are viewing you, that’s huge.
+ - Our culture rightly admires risk-takers, but we need our ‘heed-takers’ more than ever.
+ - I’m continually amazed by how many people who appear to be extroverts are actually introverts.
+ - I worry that there are people who are put in positions of authority because they’re good talkers, but they don’t have good ideas.
+ - Your tendency to be inward-directed or outward-directed is huge; it governs every part of the way you live and work and love.
+ - It’s as if they have thinner boundaries separating them from other people’s emotions and from the tragedies and cruelties of the world.
+ - Eleanor Roosevelt, Rosa Parks, Gandhi – all these peopled described themselves as quiet and soft-spoken and even shy. And they all took the spotlight, even though every bone in their bodies was telling them not to.
+ - Being relatively unmoved by rewards gives you the incalculable power to go your own way.
+ - I look back on my years as a Wall Street lawyer as time spent in a foreign country...
+ - There are only a few people out there who can completely overcome their fears, and they all live in Tibet.
+ - There is no one more courageous than the person who speaks with the courage of his convictions.
+ - Extroversion is an enormously appealing personality style, but we’ve turned it into an oppressive standard to which most of us feel we must conform.
+ - America had shifted from what influential cultural historian Warren Susman called a culture of character to a culture of personality, and opened up a Pandora’s box of personal anxieties of which we would never recover.
+ - Naked lions are just as dangerous as elegantly dressed ones.
+ - Every American was to become a performing self.
+ - Scores of studies have shown that venting doesn’t soothe anger; it fuels it.
+ - Should we become so proficient at self-presentation that we can dissemble without anyone suspecting?
+ - I’m insatiably curious about human nature.
+ - As a parent, if give yourself what you need, your children will watch you doing that and will give themselves what they need.
+ - In most job interviews, people say they are looking for people skills and emotional intelligence. That’s reasonable, but the question is, how do you define what that looks like?
+ - I’m insatiably curious about human nature. I feel very lucky that as a writer I get to learn so much about it just to do my job right.
+ - Shyness is inherently uncomfortable; introversion is not. The traits do overlap, though psychologists debate to what degree.
+ - Some introverts are perfectly comfortable with public speaking; I’m not one of them.
+ - Cross the street to avoid making aimless chitchat with random acquaintances.
+ - Do you really believe in what you said or wrote – in the thing that’s bringing criticism? And if I do believe it, I can withstand anything.
+ - I’ve wanted to be a writer since I was four years old!
+ - I actually find extroversion to be a really appealing personality style.
+ - Though shyness per se was unacceptable, reserve was a mark of good breeding.
+ - A widely held, but rarely articulated, belief in our society is that the ideal self is bold, alpha, gregarious. Introversion is viewed somewhere between disappointment and pathology.
+
+79 quotes

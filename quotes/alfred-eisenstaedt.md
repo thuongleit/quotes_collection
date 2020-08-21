@@ -1,0 +1,23 @@
+ - It is more important to click with people than to click the shutter.
+ - When I have a camera in my hand, I know no fear.
+ - The important thing is not the camera but the eye.
+ - In New York’s Times Square a white-clad girl clutches her purse and skirt as an uninhibited sailor plants his lips squarely on hers.
+ - I will be remembered when I’m in heaven. People won’t remember my name, but they will know the photographer who did that picture of that nurse being kissed by the sailor at the end of World War II. Everybody remembers that.
+ - When I photographed Marilyn Monroe, I mixed up my cameras – one had black-and-white film, the other color. I took many pictures. Only two color ones came out all right. My favorite picture of Marilyn hangs always on the wall in my office. It was taken on the little patio of her Hollywood house.
+ - I always prefer photographing in available light – or Rembrandt-light I like to call it – so you get the natural modulations of the face. It makes a more alive, real, and flattering portrait.
+ - I dream that someday the step between my mind and my finger will no longer be needed. And that simply by blinking my eyes, I shall make pictures. Then, I think, I shall really have become a photographer.
+ - Once the amateur’s naive approach and humble willingness to learn fades away, the creative spirit of good photography dies with it. Every professional should remain always in his heart an amateur.
+ - In a photograph a person’s eyes tell much, sometimes they tell all.
+ - I enjoy traveling and recording far-away places and people with my camera. But I also find it wonderfully rewarding to see what I can discover outside my own window. You only need to study the scene with the eyes of a photographer.
+ - Yes, I sold buttons to earn living. But I took pictures to keep on living. Pictures are my life – as necessary as eating or breathing.
+ - Photographers don’t need to be aggressive. Some are. Henry Benson is aggressive – but then he’s from Fleet Street. If you can talk to people, you don’t need to push people around.
+ - All photographers have to do, is find and catch the story-telling moment.
+ - I seldom think when I take a picture. My eyes and fingers react – click. But first, it’s most important to decide on the angle at which your photograph is to be taken.
+ - I want to be a mouse in a mousehole.
+ - We are only beginning to learn what to say in a photograph. The world we live in is a succession of fleeting moments, any one of which might say something significant.
+ - I don’t like to work with assistants. I’m already one too many; the camera alone would be enough.
+ - I have to be as much diplomat as a photographer.
+ - Retire? Retire from What? Life? I will only retire when I am dead!
+ - I see pictures all the time. I could stay for hours and watch a raindrop.
+
+21 quotes

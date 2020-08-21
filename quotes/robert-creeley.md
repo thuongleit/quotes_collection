@@ -1,0 +1,21 @@
+ - Form is never more than an extension of content.
+ - Writing is the same as music. It’s in how you phrase it, how you hold back the note, bend it, shape it, then release it. And what you don’t play is as important as what you do say.
+ - Communication is mutual feeling with someone, not a didactic process of information.
+ - What has happened makes the world. Live on the edge, looking.
+ - Hopefully, I write what I don’t know.
+ - I know this body is impatient. I know I constitute only a meager voice and mind. Yet I loved, I love. I want no sentimentality. I want no more than home.
+ - Love, if you love me, lie next to me. Be for me, like rain, the getting out of the tiredness, the fatuousness, the semi- lust of intentional indifference. Be wet with a decent happiness.
+ - Locale is both a geographic term and the inner sense of being.
+ - No matter how wild reality was obviously often being, it was an absolutely secure place, as a tone and intelligence, and a thing happening.
+ - I don’t think any man writing can worry about what the act of writing costs him, even though at times he is very aware of it.
+ - Moon, moon, when you leave me alone all the darkness is an utter blackness, a pit of fear, a stench, hands unreasonable never to touch. But I love you. Do you love me. What to say when you see me.
+ - God give you pardon from gratitude and other mild forms of servitude.
+ - O love, where are you leading me now?
+ - For love – I would split open your head and put a candle in behind the eyes.
+ - Suddenly the whole imagination of writing and editorial and newspaper and all these presumptions about who am I reading this, and who else other people may be, and all that, it’s so grimly brutal!
+ - The awful thing, as a kid reading, was that you came to the end of the story, and that was it. I mean, it would be heartbreaking that there was no more of it.
+ - There are a lot of editorials that have nothing to do with anything like that. But I was just thinking of that sense of prose as being very responsible and perceptive, thoughtful, intimate, and contriving a quote statement.
+ - The pattern of the narrative never of necessity wants to end, it never has to.
+ - What a great thing! To be a writer! Words are something you can carry in your head. You can really ‘travel light.’
+
+19 quotes

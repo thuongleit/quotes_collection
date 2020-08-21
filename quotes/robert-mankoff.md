@@ -1,0 +1,33 @@
+ - It’s not the ink, it’s the think.
+ - While the end-of-the-world scenario will be rife with unimaginable horrors, we believe that the pre-end period will be filled with unprecedented opportunities for profit.
+ - Im pretty adept with computers and Photoshop for my blog, and I found my style with a conversational voice and an image-ready column.
+ - There is no Algorithm for Humor.
+ - Cartoons, often, that you do for the New Yorker don’t appear for months afterwards, and the record for that is a cartoon that was bought by James Stevenson in 1987 and didn’t appear until 2000.
+ - The most popular cartoon of mine is a guy on the phone looking at his appointment book and saying “No, Thursday’s out. How about never, is never good for you?”
+ - When you look back at the older cartoons, they’re very much more observational cartoons. And the cartoon – the people in the cartoons are not making the joke.
+ - If you have any problems at all, don’t hesitate to shut up.
+ - Cartoons are like fruit flies. Biologists use fruit flies because their large chromosomes and short life cycle make them ideal for studying hereditary changes.
+ - I’m making fun of myself and I think I’m making fun of all men in our desperate, desperate attempt to understand the people we’re with and hopefully through humor have them understand us.
+ - I know everybody wants humor to be subversive and speak truth to power. I don’t think power’s been listening, incidentally.
+ - You do have to put in a lot time to get good at anything and than includes cartoons. So I think it’s true of art and everything else.
+ - I have a cartoon where the guy is pretty much, he’s a regular-sized guy, but he’s the size of the island. He’s saying no man is an island, but I come pretty damn close.
+ - Primitive, naive drawing can also be good drawing but it’s hard to pull off. I don’t think most submitters realize that.
+ - Humor of all types is notoriously subjective. That’s true not only between different people but even within an individual at different times. This subjectivity is often masked when your in a group because laughter is contagious.
+ - I’m really interested in the link between creativity and humor because humor is a type of creativity, and I do think that humorous people and humorous health helps creativity.
+ - I’ve learned not to look a gift horse in the mouth. Why you would want to look any horse the mouth considering how infrequently they brush is beyond me.
+ - The digital realm give cartoons and cartoonists more possibilities for exposure.
+ - Humor is basically a cognitive process. And it’s a creative process not only on the part of the cartoonist but on the part of the viewer.
+ - I was the founder of the Cartoon Bank in the 90s. I was interested in finding ways for cartoonists to supplement their incomes.
+ - I have been married three times and it just keeps better and better, but I’m going to stop here.
+ - I do find that humor helps in relationships. It certainly helps in my marriage now because I’m a very, very fallible person. And if I wasn’t funny I’d be kicked right out the door.
+ - There is humor that’s just whimsy, that we smile at, but the humor that we laugh at, someone has to be – someone’s dignity has to be reduced.
+ - Humor levels the playing field. I understood that early on – that was something I had.
+ - I think what Jewish culture taught me and what the – and Jewish culture now is everyone’s culture – is all these embarrassing things, all these guilt-filled things, all these anxiety filled things are material.
+ - Each cartoon needs the right amount of wrong.
+ - As a cartoonist I do what I find funny. As an editor I have a broader approach realizing that humor is inherently subjective and I don’t want my preferences to rule out what others might like.
+ - A lot of what the Internet is showing is that talent is more disperse than gatekeepers such as myself.
+ - The generations that were exposed to sitcom have the people actually saying the line, saying the joke, whereas sort of before that, you have much more observational humor.
+ - There are no cartoons about happy marriages.
+ - It’s always harder satirize what you like rather than what you dislike.
+
+31 quotes

@@ -1,0 +1,128 @@
+ - I don’t want to get to the end of my life and find that I have just lived the length of it. I want to have lived the width of it as well.
+ - Don’t just live the length of your life – live the width of it as well.
+ - Love is like a batik created from many emotional colors, it is a fabric whose pattern and brightness may vary.
+ - The senses don’t just make sense of life in bold or subtle acts of clarity, they tear reality apart into vibrant morsels and reassemble them into a meaningful pattern.
+ - Love is the best school, but the tuition is high and the homework can be painful.
+ - Wonder is the heaviest element on the periodic table. Even a tiny fleck of it stops time.
+ - No matter how politely one says it, we owe our existence to the farts of blue-green algae.
+ - Like love, travel makes you innocent again.
+ - Mystery causes a mental itch, which the brain tries to soothe with the balm of reasonable talk.
+ - I don’t want to be a passenger in my own life.
+ - Part of the irony of environmentalism is questing for solutions when you know you’re part of the problem.
+ - Love is the most important thing in our lives, a passion for which we would fight or die, and yet we’re reluctant to linger over its names. Without a supple vocabulary, we can’t even talk or think about it directly.
+ - I swear I will not dishonor my soul with hatred, but offer myself humbly as a guardian of nature, as a healer of misery, as a messenger of wonder, as an architect of peace.
+ - Smell is the mute sense, the one without words.
+ - Touch seems to be as essential as sunlight.
+ - Knee-deep in the cosmic overwhelm, I’m stricken by the ricochet wonder of it all: the plain everythingness of everything, in cahoots with the everythingness of everything else.
+ - Because IQ tests favor memory skills and logic, overlooking artistic creativity, insight, resiliency, emotional reserves, sensory gifts, and life experience, they can’t really predict success, let alone satisfaction.
+ - Look at your feet. You are standing in the sky. When we think of the sky, we tend to look up, but the sky actually begins at the earth.
+ - What is erotic? The acrobatic play of the imagination. The sea of memories in which we bathe. The way we caress and worship things with our eyes. Our willingness to be stirred by the sight of the voluptuous. What is erotic is our passion for the liveliness of life.
+ - Words are such small things, like confetti in the brain, and yet they are color and clarify everything, they can stain the mind or warp the feelings.
+ - If cynicism is inevitable as one ages, so is the yearning for innocence. To children heaven is being an adult, and to adults heaven is being children again.
+ - Words are small shapes in the gorgeous chaos of the world.
+ - Libraries change lives. They are the soul of a people.
+ - It’s animal by animal that you save a species.
+ - Happiness doesn’t require laughter, only well-being and a sense that the world is breaking someone else’s heart, not mine.
+ - We live on the leash of our senses. There is no way in which to understand the world without first detecting it through the radar-net of our senses.
+ - Nothing reveals more about the inner life of a people than their arts...
+ - Give a man enough rope and he’ll wrap himself around your little finger.
+ - Horses have made civilization possible.
+ - There are well-dressed foolish ideas just as there are well-dressed fools.
+ - Who would drink from a cup when they can drink from the source?
+ - In the absence of touching and being touched, people of all ages can sicken and grow touched starved. Touch seems to be as essential as sunlight.
+ - The great affair, the love affair with life, is to live as variously as possible, to groom one’s curiosity like a high-spirited thoroughbred, climb aboard, and gallop over the thick, sunstruck hills every day.
+ - The heart is a museum, filled with the exhibits of a lifetime’s loves.
+ - Love is the white light of emotion.
+ - So often loneliness comes from being out of touch with parts of oneself. We go searching for those parts in other people, but there’s a difference between feeling separate from others and separate from oneself.
+ - The only and absolute perfect union of two is when a baby hangs suspended in its mother’s womb, like a tiny madman in a padded cell, attached to her, feeling her blood and hormones, and moods play through its body, feeling her feelings.
+ - All relationships change the brain – but most important are the intimate bonds that foster or fail us, altering the delicate circuits that shape memories, emotions and that ultimate souvenir, the self.
+ - When I go biking, I am mentally far far away from civilization. The world is breaking someone else’s heart.
+ - For me, life offers so many complexly appealing moments that two beautiful objects may be equally beautiful for different reasons and at different times. How can one choose?
+ - Couples are jigsaw puzzles that hang together by touching in just enough points. They’re never total fits or misfits. In time, a pair invents its own commonwealth, complete with anthems, rituals, and lingos-a cult of two with fallible gods.
+ - Love, like truth, is the unassailable defense.
+ - When I set a glass prism on a windowsill and allow the sun to flood through it, a spectrum of colors dances on the floor. What we call “white” is a rainbow of colored rays packed into a small space. The prism sets them free. Love is the white light of emotion.
+ - Couples are jigsaw puzzles that hang together by touching in just enough points.
+ - For if I do something, I never do it thoughtlessly.
+ - Which is crueler, an old man’s lost memories of a life lived, or a young man’s lost memories of the life he meant to live?
+ - Shaped a little like a loaf of French country bread, our brain is a crowded chemistry lab, bustling with nonstop neural conversations.
+ - As fleeting emotions stalk it, a face can leak fear or the guilt of a forming lie.
+ - Violets smell like burnt sugar cubes that have been dipped in lemon and velvet.
+ - We live on the leash of our senses.
+ - I’m fascinated how often and with what whole-heartedness people will risk their lives to perform acts of courage, sacrifice, and compassion for total strangers.
+ - Of all the errands life seems to be running, of all the mysteries that enchant us, love is my favorite.
+ - Adventure is not something you travel to find. It’s something you take with you, or you’re not going to find it when you arrive.
+ - Fear is danger to your body, but disgust is danger to your soul.
+ - Wonder is a bulky emotion. When you let it fill your heart and mind, there isn’t room for anxiety, distress or anything else.
+ - What an odd, ruminating, noisy, self-interrupting conversation we conduct with ourselves from birth to death.
+ - What a lonely species we are, searching for signals of life from other galaxies, adopting companion animals, visiting parks and zoos to commune with other beasts. In the process, we discover our shared identity.
+ - Home is where the heart is, we say, rubbing the flint of one abstraction against another.
+ - Poetry is an act of distillation. It takes contingency samples, is selective. It telescopes time. It focuses what most often floods past us in a polite blur.
+ - Our skin is what stands between us and the world.
+ - Our sense of safety depends on predictability, so anything living outside the usual rules we suspect to be an outlaw, a ghoul.
+ - History is an agreed-upon fiction.
+ - The visual image is a kind of tripwire for the emotions.
+ - Much of life becomes background, but it is the province of art to throw buckets of light into the shadows and make life new again.
+ - So before I start work on a book, I’m like a pregnant mole – I obsessively tidy and order my closets and everything in my study. Because there’s such a cascade of images and ideas that I’m grapping with mentally, I couldn’t also be in a chaotic setting.
+ - If we mammals don’t get something to eat every day or two, our temperature drops, all our signs fall off, and we begin to starve. Living at biological red alert, it’s not surprising how obsessed we are with food; I’m just amazed we don’t pace and fret about it all the time.
+ - A kiss is like singing into someone’s mouth.
+ - Human beings are sloshing sacks of chemicals on the move.
+ - Success produces success, just as money produces money.
+ - Our relationship with nature has changed radically, irreversibly, but by no means all for the bad. Our new epoch is laced with invention. Our mistakes are legion, but our talent is immeasurable.
+ - Above all, we ask the poet to teach us a way of seeing...
+ - Though we marry as adults, we don’t marry adults. We marry children who have grown up and still rejoice in being children, especially if we’re creative.
+ - Writing is my form of celebration and prayer.
+ - A self is a frightening thing to waste, it’s the lens through which one’s whole life is viewed, and few people are willing to part with it, in death, or even imaginatively, in art.
+ - One of the things I like best about animals in the wild is that they’re always off on some errand. They have appointments to keep. It’s only we humans who wonder what we’re here for.
+ - In the early years of the Uprising, we survived on one meal a day of horse meat and soup, but by the end we ate only dried peas, dogs, cats and birds.
+ - After all, coffee is bitter, a flavor from the forbidden and dangerous realm.
+ - We’re losing biodiversity globally at an alarming rate, and we need a cornucopia of different plants and animals, for the planet’s health and our own.
+ - We can’t enchant the world, which makes its own magic; but we can enchant ourselves by paying deep attention.
+ - I believe consciousness is brazenly physical, a raucous mirage the brain creates to help us survive.
+ - Complexity excites the mind, and order rewards it. In the garden, one finds both, including vanishingly small orders too complex to spot, and orders so vast the mind struggles to embrace them.
+ - Choice is a signature of our species.
+ - It’s essential to tailor rehab to what impassions someone. The brain gradually learns by riveting its attention-through endless repetitions.
+ - The brain is only three pounds of blood, dream, and electricity, and yet from that mortal stew come Beethoven’s sonatas. Dizzie Gillespie’s jazz. Audrey Hepburn’s wish to spend the last month of her life in Somalia, saving children.
+ - We tend to think of heroes only in terms of violent combat, whether it’s against enemies or a natural disaster. But human beings also perform radical acts of compassion; we just don’t talk about them, or we don’t talk about them as much.
+ - I hate the fearful trimming of possibilities that age brings.
+ - There is that unique moment when one confronts something new and astonishment begins.
+ - Not much is known about alligators. They don’t train well. And they’re unwieldy and rowdy to work with in laboratories.
+ - The daftest logic brings such sweet unrest.
+ - Flight is nothing but an attitude in motion.
+ - I try to give myself passionately, totally, to whatever I’m observing, with as much affectionate curiosity as I can muster, as a means of understanding a little better what being human is.
+ - Culture is what people invent when they have lost nature.
+ - Who you are isn’t tied solely to what you say, even though it may feel that way to you now.
+ - Nature is also great fun. To pretend that nature isn’t fun is to miss much of the joy of being alive.
+ - Life is a thing that mutates without warning, not always in enviable ways. All part of the improbable adventure of being alive, of being a brainy biped with giant dreams on a crazy blue planet.
+ - We have vexed and bothered every plant and every animal on every continent.
+ - Humans are the most successful invasives of all time.
+ - For the longest time I didn’t realize I was creative – I just thought I was strange.
+ - We ogle plants and animals up close on television, the Internet and in the movies. We may not worship the animals we see, but we still regard them as necessary physical and spiritual companions. Technological nature can’t completely satisfy that yearning.
+ - An animal on a leash is not tamed by the owner. The owner is extending himself through the leash to that part of his personality which is pure dog, that part of him which just wants to eat, sleep, bark, hump chairs, wet the floor in joy, and drink out of a toilet bowl.
+ - Hit a tripwire of smell and memories explode all at once. A complex vision leaps out of the undergrowth.
+ - The knowing, I told myself, is only a vapor of the mind, and yet it can wreck havok with one’s sanity.
+ - We evolved as creatures knitted into the fabric of nature, and without its intimate truths, we can find ourselves unraveling.
+ - For better or worse, zoos are how most people come to know big or exotic animals. Few will ever see wild penguins sledding downhill to sea on their bellies, giant pandas holding bamboo lollipops in China or tree porcupines in the Canadian Rockies, balled up like giant pine cones.
+ - There is a furnace in our cells, and when we breathe we pass the world through our bodies, brew it lightly, and turn it loose again, gently altered for having known us.
+ - I watched her face switch among the radio stations of memory.
+ - Disassociating, mindfulness, transcendence-whatever the label-it’s a sort of loophole in our contract with reality, a form of self-rescue.
+ - There was nothing to do but wait. It is always like this for naturalists, and for poets – the long hours of travel and preparation, and then the longer hours of waiting. All for that one electric, pulse-revving vision when the universe suddenly declares itself.
+ - Adult bats don’t weigh much. They’re mainly fur and appetite.
+ - As the most social apes, we inhabit a mirror-world in which every important relationship, whether with spouse, friend or child, shapes the brain, which in turn shapes our relationships.
+ - Variety is the pledge that matter makes to living things.
+ - In Manhattan last month I heard a woman borrowing the jargon of junkies to say to another, ‘Want to do some chocolate?’
+ - Tranquillity hides in small spaces, and when found needs to be treasured, because you know it’s a phantom that will slip away again.
+ - I’m sure civilizations will still evolve through play, or rather as play, since that seems to be a fundamental mechanism of our humanity.
+ - There’s no place you can go on the prairie that you don’t hear the white noise of the wind, steady and rough as surf curling along a non-existant shore.
+ - One of the keystones of romantic love – and also of the ecstatic religion practiced by mystics – is the powerful desire to become one with the beloved.
+ - I like handling newborn animals. Fallen into life from an unmappable world, they are the ultimate immigrants, full of wonder and confusion.
+ - What would dawn have been like, had you awakened? It would have sung through your bones. All I can do this morning is let it sing through mine.
+ - I am a great fan of the universe, which I take literally: as one. All of it interests me, and it interests me in detail.
+ - And yet, words are the passkeys to our souls. Without them, we can’t really share the enormity of our lives.
+ - Because poets feel what we’re afraid to feel, venture where we’re reluctant to go, we learn from their journeys without taking the same dramatic risks.
+ - To begin to understand the gorgeous fever that is consciousness, we must try to understand the senses and what they can tell us about the ravishing world we have the privilege to inhabit.
+ - Writer’s block is a luxury most people with deadlines don’t have.
+ - Nature neither gives nor expects mercy.
+ - The well of nature is full today. Time to go outside and take a drink.
+ - I’m an Earth ecstatic, and my creed is simple: All life is sacred, life loves life, and we are capable of improving our behavior toward one another. As basic as that is, for me it’s also tonic and deeply spiritual, glorifying the smallest life-form and embracing the most distant stars.
+
+126 quotes

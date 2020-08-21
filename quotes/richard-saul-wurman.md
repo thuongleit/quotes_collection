@@ -1,0 +1,24 @@
+ - In school, we’re rewarded for having the answer, not for asking a good question.
+ - Information anxiety is the black hole between data and knowledge, and it happens when information doesn’t tell us what we want or need to know.
+ - I am terribly fascinated with things that I don’t understand.
+ - What situations can I create that allow me not to have the disease of familiarity?
+ - The organization of information actually creates new information.
+ - Learning can be defined as the process of remembering what you are interested in.
+ - When I have the choice to do something I don’t want to do, I most often – most always – do it anyway.
+ - Accept ignorance; pay more attention to the question than the answer; never be afraid to go in the opposite direction.
+ - The key to making things understandable is to understand what it’s like not to understand.
+ - The fundamental failure of most graphic, product, architectural and even urban design is its insistence on serving the God of Looking-Good rather than the God of Being-Good.
+ - Everyone spoke of an information overload, but what there was in fact was a non-information overload.
+ - A weekday edition of The New York Times contains more information than the average person was likely to come across in a lifetime in seventeenth-century England.
+ - I live by two credos: If you don’t ask, you don’t get. And most things don’t work.
+ - The journey from not knowing to knowing was his work. He was selling his desire to learn about a subject.
+ - If you serve that God, all the others will be taken care of. My quote is: ‘The only way to communicate is to understand what it is like not to understand.’ It is at that moment that you can make something understandable.
+ - Order is no guarantee of understanding. Sometimes just the opposite is true.
+ - You only understand information relative to what you already understand.
+ - The most essential prerequisite to understanding is to be able to admit when you don’t understand something.
+ - People can be motivated to creativity simply with the instruction to “be creative.”
+ - One of the most anxiety-inducing side effects of the information era is the feeling that you have to know it all.
+ - Education is to learning as tour groups are to adventure.
+ - People never forget things, they just never remembered it in the first place because it was too boring.
+
+22 quotes

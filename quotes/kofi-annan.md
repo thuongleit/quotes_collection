@@ -1,0 +1,156 @@
+ - Literacy is a bridge from misery to hope.
+ - To live is to choose. But to choose well, you must know who you are and what you stand for, where you want to go and why you want to get there.
+ - We may have different religions, different languages, different colored skin, but we all belong to one human race.
+ - You are never too young to lead.
+ - Microfinance is an idea whose time has come.
+ - Education is the great equalizer of our time. It gives hope to the hopeless and creates chances for those without...
+ - For everyone, everywhere, literacy is, along with education in general, a basic human right.
+ - Education is, quite simply, peace-building by another name. It is the most effective form of defense spending there is.
+ - When women thrive, all of society benefits, and succeeding generations are given a better start in life.
+ - Literacy is, finally, the road to human progress and the means through which every man, woman and child can realize his or her full potential.
+ - You are never too young to lead and you should never doubt your capacity to triumph where others have not.
+ - Let us be good stewards of the Earth we inherited. All of us have to share the Earth’s fragile ecosystems and precious resources, and each of us has a role to play in preserving them. If we are to go on living together on this earth, we must all be responsible for it.
+ - On this International Day of Peace, let us dare to imagine a world free of conflict and violence.
+ - Literacy unlocks the door to learning throughout life, is essential to development and health, and opens the way for democratic participation and active citizenship.
+ - Extreme poverty anywhere is a threat to human security everywhere.
+ - It is my aspiration that health finally will be seen not as a blessing to be wished for, but as a human right to be fought for.
+ - The future of peace and prosperity that we seek for all the world’s peoples needs a foundation of tolerance, security, equality and justice.
+ - A citizen of the world in the fullest sense – one whose vision and culture gave him a deep empathy with fellow human beings of every creed and color.
+ - Peace is never a perfect achievement.
+ - The United Nations, whose membership comprises almost all the states in the world, is founded on the principle of the equal worth of every human being.
+ - Women themselves have the right to live in dignity, in freedom from want and freedom from fear. On this International Women’s Day, let us rededicate ourselves to making that a reality.
+ - Children are our future and if we use them in battle, we are destroying the future. We must reclaim them, every one of them, one at a time.
+ - Education is a human right with immense power to transform.
+ - I am often asked what can people do to become a good global citizen? I reply that it begins in your own community.
+ - Young people should be at the forefront of global change and innovation. Empowered, they can be key agents for development and peace.
+ - Fierce national competition over water resources has prompted fears that water issues contain the seeds of violent conflict.
+ - Our biggest challenge in this new century is to take an idea that seems abstract – sustainable development – and turn it into a reality for all the world’s people.
+ - No one is born a good citizen or a good democrat or a good leader; it takes time and education.
+ - I urge you to celebrate the extraordinary courage and contributions of refugees past and present.
+ - All our efforts to defeat poverty and pursue sustainable development will be in vain if environmental degradation and natural resource depletion continue unabated.
+ - Ignorance and prejudice are the handmaidens of propaganda. Our mission, therefore, is to confront ignorance with knowledge, bigotry with tolerance, and isolation with the outstretched hand of generosity. Racism can, will, and must be defeated.
+ - Drugs have destroyed many lives, but wrongheaded governmental policies have destroyed many more. I think it’s obvious that after 40 years of war on drugs, it has not worked. There should be decriminalization of drugs.
+ - Microfinance recognizes that poor people are remarkable reservoirs of energy and knowledge.
+ - It has been said that arguing against globalization is like arguing against the laws of gravity.
+ - If our hopes of building a better and safer world are to become more than wishful thinking, we will need the engagement of volunteers more than ever.
+ - The preservation of biodiversity is not just a job for governments. International and non-governmental organisations, the private sector and each and every individual have a role to play in changing entrenched outlooks and ending destructive patterns of behaviour.
+ - Today, no walls can separate humanitarian or human rights crises in one part of the world from national security crises in another. What begins with the failure to uphold the dignity of one life all too often ends with a calamity for entire nations.
+ - Violence against women is perhaps the most shameful human rights violation, and it is perhaps the most pervasive. It knows no boundaries of geography, culture or wealth. As long as it continues, we cannot claim to be making real progress towards equality, development and peace.
+ - Access to safe water is a fundamental human need and therefore a basic human right.
+ - In an era of global abundance, our world has the resources to reduce dramatically the massive divides that persist between rich and poor, if only those resources can be unleashed in the service of all peoples.
+ - We need to create a world that is equitable, that is stable and a world where we bear in mind the needs of others, and not only what we need immediately. We are all in the same boat.
+ - To educate girls is to reduce poverty.
+ - I am not afraid to dream. You first have to start with a dream. Build your castles in the air and give it foundation. Without a dream, you are not going to get anywhere.
+ - In their greatest hour of need, the world failed the people of Rwanda.
+ - You have to wake up every day ready to start again.
+ - We need to think of the future and the planet we are going to leave to our children and their children.
+ - We shall not defeat any of the infectious diseases that plague the developing world until we have also won the battle for safe drinking water, sanitation, and basic health care.
+ - I often quote an African proverb that says: “The world is not ours, the earth is not ours, It’s a treasure we hold in trust for future generations.” And I often hope we will be worthy of that trust.
+ - In an era of globalisation, AIESEC’s programmes have helped young people around the world to develop a broader understanding of cultural socio-economic and business management issues.
+ - Have confidence in the young people, give them a chance, and they will surprise you.
+ - Without a dream you’ll not get anywhere.
+ - Acquiring literacy is an empowering process, enabling millions to enjoy access to knowledge and information which broadens horizons, increases opportunities and creates alternatives for building a better life.
+ - A developed country is one that allows all its citizens to enjoy a free and healthy life in a safe environment.
+ - We need to keep hope alive and strive to do better.
+ - Young people must be included from birth. A society that cuts itself off from its youth severs its lifeline.
+ - We will not enjoy security without development, we will not enjoy development without security, and we will not enjoy either without respect for human rights.
+ - The World is not ours to keep. We hold it in trust for future generations.
+ - There is no development strategy more beneficial to society as a whole – women and men alike – than the one which involves women as central players.
+ - The future belongs to you, but it can only belong to you if you participate and take charge.
+ - Insecurity is love dressed in a child’s clothing.
+ - In an age where community involvement and partnerships with civil society are increasingly being recognized as indispensable, there is clearly a growing potential for cooperative development and renewal worldwide.
+ - Democracy is, in essence, a form of non-violent conflict management. If war is the worst enemy of development, healthy and balanced development is the best form of conflict prevention.
+ - The problem is not with the faith, but with the faithful.
+ - Literacy is a bridge from misery to hope. It is a tool for daily life in modern society. It is a bulwark against poverty, and a building block of development, an essential complement to investments in roads, dams, clinics and factories.
+ - The war on drugs has failed in West Africa and around the world.
+ - On this International Day of Peace, let us all honor those who have suffered from violence. Let us hold in our hearts the ideal of peace.
+ - A United Nations that will not stand up for human rights is a United Nations that cannot stand up for itself.
+ - Unless the Security Council is restored to its pre-eminent position as the sole source of legitimacy on the use of force, we are on a dangerous path to anarchy.
+ - This is a day on which we pay our respects to those who have endured the unimaginable. This is an occasion for the world to speak up against the unspeakable. It is long overdue that a day be dedicated to remembering and supporting the many victims and survivors of torture around the world.
+ - Perhaps the single most successful international agreement to date has been the Montreal Protocol.
+ - We were all children once. And we all share the desire for the well-being of our children, which has always been and will continue to be the most universally cherished aspiration of humankind.
+ - Globalization is a fact of life. But I believe we have underestimated its fragility.
+ - Tolerance, inter-cultural dialogue and respect for diversity are more essential than ever in a world where peoples are becoming more and more closely interconnected.
+ - On this International Literacy Day, let us recall that literacy for all is an integral part of education for all, and that both are critical for achieving truly sustainable development for all.
+ - If globalization is to succeed, it must succeed for poor and rich alike. It must deliver rights no less than riches. It must provide social justice and equity no less than economic prosperity and enhanced communication.
+ - Access to a secure, safe and sufficient source of fresh water is a fundamental requirement for the survival, well-being and socio-economic development of all humanity. Yet, we continue to act as if fresh water were a perpetually abundant resource. It is not.
+ - Any society that does not succeed in tapping into the energy and creativity of its youth will be left behind.
+ - If tolerance, respect and equity permeate family life, they will translate into values that shape societies, nations and the world.
+ - Poverty devastates families, communities and nations. It causes instability and political unrest and fuels conflict.
+ - Founded on the principles of private initiative, entrepreneurship and self-employment, underpinned by the values of democracy, equality and solidarity, the co-operative movement can help pave the way to a more just and inclusive economic order.
+ - The global work of the United Nations is not without reason compared to that of a family – striving for a common goal in concert with all members for a better future.
+ - The world has lost a visionary leader, a courageous voice for justice, and a clear moral compass. By showing us that the path to freedom and human dignity lies in love, wisdom and compassion for one another, Nelson Mandela stands as an inspiration to us all.
+ - Let us work in partnerships between rich and poor to improve the opportunities of all human beings to build better lives.
+ - I have always believed that on important issues, the leaders must lead. Where the leaders fail to lead, and people are really concerned about it, the people will take the lead and make the leaders follow.
+ - To live is to choose.
+ - Children are our future, and their mothers are its guardians.
+ - Under international law, the responsibility for protecting civilians in conflict falls on the belligerents. Under military occupation, responsibility for the welfare of the population falls on the occupiers.
+ - Nelson Mandela stands as an inspiration to us all.
+ - A world government can intervene militarily in the internal affairs of any nation when it disapproves of their activities.
+ - If we are to make poverty history, we must have the active participation of States, civil society and the private sector, as well as individual volunteers.
+ - His Holiness brings a wealth of experience to this exalted office. The United Nations and the Holy See share a strong commitment to peace, social justice, human dignity, religious freedom and mutual respect among the world’s religions.
+ - Landmines are among the most barbaric weapons of war, because they continue to kill and maim innocent people long after the war itself has ended. Also, fear of them keeps people off the land, and thus prevents them from growing food.
+ - Ameen Rihani, one of the earliest Arab Americans, devoted his life to bringing the East and the West together. We are not of the East or the West, he wrote. No boundaries exist in our breast: We are free.
+ - The happiness of any society begins with the well being of the families that live in it.
+ - The United Nations believes that acceptance of these principles will help the Palestinian people achieve their legitimate goal of an end to occupation and the creation of an independent and viable state, living in peace and security with its neighbors.
+ - The United Nations is proud to have the Adopt-A-Minefield Campaign as a partner.
+ - If one is going to err, one should err on the side of liberty and freedom.
+ - We have the means and the capacity to deal with our problems, if only we can find the political will.
+ - Achieving the MDGs is not optional; it is an essential investment in a safer, more human and prosperous world.
+ - In a world of plenty, continued suffering is a terrible stain on our conscience. It is inexcusable that we not strive, with every resource at our disposal, to eliminate suffering.
+ - The number one goal in resolving a conflict is to make sure both sides maintain their self-esteem. You don’t hit a man on the head when you’ve got your fingers between his teeth.
+ - You can do a lot with diplomacy, but with diplomacy backed up by force you can get a lot more done.
+ - We must restore the sacredness of the family as a bedrock of humane values everywhere, in peace as well as in war.
+ - We can love what we are, without hating what, and who, we are not.
+ - If we can come up with innovations and train young people to take on new jobs, and if we can switch to clean energy, I think we have the capacity to build this world not dependent on fossil-fuel. I think it will happen, and it won’t destroy economy.
+ - You have made people listen. You have made people care, and you have taught us that whether we are poor or prosperous, we have only one world to share. You have taught young people that they do have the power to change the world.
+ - Jewish people have been victims of anti-Semitism in many parts of the world, and in Europe they were the target of the Holocaust, the ultimate abomination. Yet, we cannot expect Palestinians to accept this as a reason why the wrongs done to them.
+ - We don’t need any more promises. We need to start keeping the promises we already made.
+ - Open markets offer the only realistic hope of pulling billions of people in developing countries out of abject poverty, while sustaining prosperity in the industrialized world.
+ - The invasion and occupation of Iraq is illegal.
+ - We must bring a message of solidarity, of mutual respect and, above all, of hope. Business cannot afford to be seen as the problem.
+ - If you have a problem and you can’t find a solution, you meet again tomorrow and you keep talking until you find a solution. You can disagree with behavior or a particular position, but you do not resort to calling an opponent worthless.
+ - In the 21st century, I believe the mission of the United Nations will be defined by a new, more profound awareness of the sanctity and dignity of every human life, regardless of race or religion.
+ - Business, labor and civil society organizations have skills and resources that are vital in helping to build a more robust global community.
+ - I don’t see a situation where one side will win militarily, take over Syria, and there will be peace and quiet, a clean victory.
+ - Once you are really challenged, you find something in yourself. Man doesn’t know what he is capable of until he is asked.
+ - Beneath the surface of states and nations, ideas and language, lies the fate of individual human beings in need. Answering their needs will be the mission of the United Nations in the century to come.
+ - It is impossible to realize our goals while discriminating against half the human race. As study after study has taught us, there is no tool for development more effective than the empowerment of women.
+ - No nation can make itself secure by seeking supremacy over all others. We all share responsibility for each other’s security, and only by working to make each other secure can we hope to achieve lasting security for ourselves.
+ - As one of my predecessors said, our objective is not to take people to heaven, but to prevent humanity from going to hell.
+ - Iraq has a new opportunity to comply with all these relevant resolutions of the Security Council.
+ - There can be no doubt that these attacks are deliberate acts of terrorism, carefully planned and coordinated and as such I condemn them utterly. Terrorism must be fought resolutely wherever it appears.
+ - The status quo cannot work.
+ - Remembering is a necessary rebuke to those who say the Holocaust never happened or has been exaggerated.
+ - Terrorism constitutes a direct attack on the values the UN stands for: the rule of law; the protection of civilians; peaceful resolution of conflicts; and mutual respect between people of different faiths and cultures.
+ - If information and knowledge are central to democracy, they are the conditions for development.
+ - Let us, above all, be clear that, without a convincing program of debt relief to start the new millennium, our objective of halving world poverty by 2015 will be only a pipe dream.
+ - This is an historic step forward in the world’s efforts to combat a truly global threat.
+ - Let us all reaffirm our commitment to improving the well- being of families throughout the world.
+ - By signing the Oslo accords in 1993 he took a giant step towards the realization of this vision. It is tragic that he did not live to see it fulfilled.
+ - Whether our task is fighting poverty, stemming the spread of disease or saving innocent lives from mass murder, we have seen that we cannot succeed without the leadership of the strong and the engagement of all.
+ - National markets are held together by shared values and confidence in certain minimum standards. But in the new global market, people do not yet have that confidence.
+ - The Millennium Development Goals can be met by 2015, but only if all involved break with business as usual and dramatically accelerate and scale up action now.
+ - There are a great number of peoples who need more than just words of sympathy from the international community. They need a real and sustained commitment to help end their cycles of violence, and launch them on a safe passage to prosperity.
+ - Sadly, a prize for peace is a rarity in this world. Most nations have monuments or memorials to war, bronze salutations to heroic battles, archways of triumph. But peace has no parade, no pantheon of victory.
+ - We have to be very clear with the population and the countries we enter what we can do and what we cannot do.
+ - In some ways, the challenges are even more daunting than they were at the peak of the cold war. Not only do we continue to face grave nuclear threats, but those threats are being compounded by new weapons developments, new violence within States and new challenges to the rule of law.
+ - Microfinance recognizes that poor people are remarkable reservoirs of energy and knowledge, posing an untapped opportunity to create markets, bring people in from the margins and give them the tools with which to help themselves.
+ - From this vision of the role of the United Nations in the next century flow three key priorities for the future: eradicating poverty, preventing conflict and promoting democracy.
+ - No one is born a good citizen; no nation is born a democracy. Rather, both are processes that continue to evolve over a lifetime. Young people must be included from birth. A society that cuts off from its youth severs its lifeline.
+ - It is not in the United Nations that the Millennium Development Goals will be achieved. They have to be achieved in each of its Member States, by the joint efforts of their governments and people.
+ - I think that peacekeeping can do quite a lot, if they are given the right mandate with the commensurate resources to get the job done.
+ - Let us choose to unite the power of markets with the authority of universal ideals. Let us choose to reconcile the creative forces of private entrepreneurship with the needs of the disadvantaged and the requirements of future generations.
+ - The US-led invasion of Iraq was an illegal act that contravened the UN charter.
+ - To build a more healthy, peaceful and equitable world the classrooms of the world have to be full of girls as well as boys.
+ - Justice has taken its course and the authority and legitimacy of the legal process must be respected.
+ - We need to ensure the poorest in the planet – who will be hardest hit by the financial crisis – are not forgotten.
+ - I hope we do not see another Iraq-type operation for a long time – without UN approval and much broader support from the international community.
+ - The Lord had the wonderful advantage of being able to work alone.
+ - You saw the traumas that people lived through, and wondered what it will take to move us as a human community, as humanity, to help in these dangerous situations.
+ - The problem is this. The spread of markets outpaces the ability of societies and their political systems to adjust to them, let alone to guide the course they take.
+ - Both parties accept this vision. But we can reach it only if we move rapidly and in parallel on all fronts. The so-called ‘sequential’ approach has failed.
+ - Does anyone seriously contend that any nation can fend for itself?
+ - These divisions in the international community – the Syrians bear quite a lot of the blame, but we have enabled it by the divisions between us.
+
+154 quotes

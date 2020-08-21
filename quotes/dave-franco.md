@@ -1,0 +1,23 @@
+ - I’m a tough critic on myself.
+ - For example, for me, my brother helped me get a manager, which I don’t take for granted. It’s tough getting a manager, let alone one that actually cares about you and is smart. But from there, no one’s going to cast me just because I’m James Franco’s little brother.
+ - Everyone always says it’s a blessing to look a lot younger than my age, but sometimes I just want to look my real age.
+ - I wish I were that cat.
+ - I’m not one of those people who are, like, always joking in person.
+ - As much as I love and respect my brother, Im doing my best to distance myself from him and kind of show people that, even though we do look similar and have similar mannerisms, we are completely different.
+ - At this point, I feel like I can allow myself to be goofy and take more risks, and even if I do fall on my face, I know it’s not the end of the world and at least I tried to do something different.
+ - When I’m dating someone, if she bonds with my cats I’ll give her a chance maybe more than I would otherwise. But if she doesn’t like my cats it’s kind of a deal breaker.
+ - On the flip side, no one has any idea who the hell I am. I felt like I had to prove myself to them. On any new project I’m working on, the first week is nerve-wracking, but especially with these people that I admire so much and who I just want to be equal with.
+ - When I was in high school, I was dating this girl and wanted to make her birthday really special. I showed up early to school and went around to every single one of her classes and left a rose with her teachers. Each rose had a note with a little inside joke.
+ - I can’t say I was like a die-hard zombie fan, but I’ve definitely seen a few different zombie movies and TV shows.
+ - There’s so much more freedom in film as far as subject matter and what can be said. And then, also, the process is different because there’s more time. On movies there’s just so much freedom and space to explore in front of the camera.
+ - I don’t just wanna be James Franco’s little brother.
+ - I’m a small shifty kind of guy.
+ - I don’t know if this is an illusion but I would love to be able to take my card-throwing skills and be able to puncture a watermelon. Now I know I can take this question and say, “I would want to solve the economic problems in the world” – but I want to stick that card in that watermelon.
+ - One time I was hanging out with a girl and I wanted to kiss her. I was too nervous to do it, so I wrote ‘Can I kiss you?’ on a Post-It and handed it to her. And it worked!
+ - With these Funny or Die videos, I do everything for them. I write them, act in them, and co-direct them with my buddy Brian McGinn, who I grew up with. We also edit them together. We’re working on a small scale of Internet videos, but we’re slowly trying to make them become a bigger thing.
+ - To be honest, I was kind of a shy kid growing up.
+ - I just know that it’s smart for my career to carve my own path and do my own thing.
+ - I wouldn’t be where I am without these Funny or Die videos in general. When I was first starting out, I would take roles just to get the experience, but not exactly because I believed in the projects I was doing.
+ - In general, the few directors that I’ve worked with that I really respect have taught me a lot about who I am and they’ve opened me up as an actor. I want to take some of that to apply it to when I’m directing actors.
+
+21 quotes

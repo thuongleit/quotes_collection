@@ -1,0 +1,30 @@
+ - People say ‘go with the flow’ but do you know what goes with the flow? Dead fish.
+ - I don’t believe skill was, or ever will be, the result of coaches. It is a result of a love affair between the child and the ball.
+ - Happiness is not being afraid.
+ - Aggression is what I do. I go to war. You don’t contest football matches in a reasonable state of mind.
+ - I am not naive enough to settle for anything less than a reasonable valuation of my worth.
+ - These so-called big stars are people we are supposed to be looking up to. Well they are weak and soft. Priorities have changed in football and they are being dictated to by their wives.
+ - They have a few drinks, and maybe the prawn sandwiches, and they don’t realise what’s going on out on the pitch.
+ - People say I’m hard, I’m Mr Angry. I’m this, I’m that. I just want to win matches. There’s no point going out there and being Mr Nice Guy. We get 55,000 at Old Trafford and I don’t think they want fellas going out there and thinking: Ah, if we lose, so what?
+ - I was a big fan of Maradona growing up and of the current crop Ronaldo is good but Messi is the best I’ve ever seen. I don’t dish out praise lightly but Messi deserves it. I look for weaknesses in his game and I can’t find them.
+ - I don’t think some of the people who come to Old Trafford can spell football, never mind understand it.
+ - Hopefully kids will look at me and see that your dreams can come true.
+ - If it’s not a contract I want then I won’t sign it. That’s not a threat.
+ - Before the game there was all this stuff about anti-racism and anti-bullying. It would be a good idea to start wearing wristbands for anti-diving.
+ - If you love Senegal so much, why don’t you play for them?
+ - He’s been like a fresh of breath air.
+ - United could soon overtake Arsenal as the chief threat to Chelsea, and defiant Keane vowed: We will keep fighting to the end. We are Manchester United, that is what we do.
+ - I’m not at Manchester United to keep everyone happy.
+ - Some people come to Old Trafford and can’t spell football, let alone understand it. They have a few drinks and a prawn sandwich but don’t realise what’s happening on the pitch.
+ - I can’t understand why people in Scotland rave about Darren Fletcher.
+ - The last time I was charged by the FA they had a murder lawyer in against me, so it’s going to be a hard case to win.
+ - Patrick Vieira is 6 foot 4, and he starts having a go at Gary Neville, so I said ‘come on have a go at me,’ that’s it.
+ - A lot has been written about my age and my injuries. A lot of people think I’m going to be 94. I’m actually 34 and I feel quite good. I’m sure the fans will judge me on what I do on the pitch, not what I say.
+ - I just hope he doesn’t frighten the players ’cos they’re frigtened enough right now.
+ - The type of game I play, I’m going to pick injuries and suspensions, unfortunately.
+ - When results aren’t good the manager gets the sack, that’s the game.
+ - Just because a club says a player is not for sale, it doesn’t necessarily mean that.
+ - I still say the ’94 Double team is the best. They could outfight you or outplay you, depending on the way you wanted it. But this side is moving in the same direction.
+ - I think players tend to get anxious if they’ve not really done things properly – like eating, resting or training. If you’re fully prepared you’ve got nothing to worry about – it’s just a game of football.
+
+28 quotes

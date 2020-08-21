@@ -1,0 +1,27 @@
+ - The treachery of demons is nothing compared to the betrayal of an angel.
+ - All great acts are ruled by intention. What you mean is what you get.
+ - Let me tell you a little bit about demons. They love pain and other people’s misery. They lie when it suits them and don’t see anything wrong with it. They corrupt and kill and destroy, all without conscience. You just don’t have the capacity for something as honorable as loving another person.
+ - From the window, I watch the city and the freeway. In the distance, the sky-rises look like mystic spires, unbearably close and far. I want to pick them up and eat them. I want to scream out loud sometimes, but I never do.
+ - Love is when you care more about something else than you do about yourself.
+ - Intention is one of the most powerful forces there is. What you mean when you do a thing will always determine the outcome. The law creates the world.
+ - I’ve never been impulsive. It’s always been in my nature to consider things carefully and then decide upon the best solution. Except, sometimes the circumstances change. Sometimes things get so complicated and so bad that your nature just doesn’t matter anymore.
+ - Sometimes this was just the way the game ended. Sometimes you did your best, and it all went straight to hell anyway.
+ - I wanted to tell her that I loved her, and not in the complicated way I loved our parents, but in a simple way I never had to think about. I loved her like breathing.
+ - I wanted it in the way you sometimes want to jump into very cold water, even though you know it won’t feel good. I wanted to go numb. To see what it felt like to be someone else.
+ - Once, my mother told a whole host of angels that she’d rather die than go back to a man she didn’t love.
+ - The hours spool out like a ribbon I can’t find the end of.
+ - I fell headfirst into a sinkhole of pretty things, and the world inside your eyelids is just as big as the one outside.
+ - The world is full of unused corners.
+ - You presume to name those who have no name. We are pandemonium and disaster. We are the dancing, gibbering horror of the world.
+ - It’s strange, but seeing something broken is somehow worse when you can tell that it used to be beautiful.
+ - Sometimes it doesn’t matter how dark the world gets. You can be saved by the smallest thing.
+ - All my life, I’ve understood the nature of where I come from, but I never thought it might be wicked until now.
+ - People make decisions, and maybe you don’t always agree, but those choices are still their own.
+ - That was the thing about being bereaved. People were overcome with sympathy. They did things for you without even considering whether or not it was the right thing to do.
+ - The things I had were mine and some of them were broken, but they were real. They were so very far from nothing.
+ - The fact is, the contest has always been invulnerability, and even when you win, you still lose.
+ - The simple truth is that you can understand the way you are. You can know and love and hate it. You can blame it, resent it, and nothing changes. In the end, you’re just a part of it.
+ - People do that sometimes. Change.
+ - But what Davenport had been born into had taken so much from her, leaving her with just the wickedest and the worst. Her father had given her life, and then taken every scrap of joy or freedom, and even now that he was dead, all he had left her with was a deep, abiding hatred for what she was.
+
+25 quotes

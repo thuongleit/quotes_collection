@@ -1,0 +1,15 @@
+ - Everyone has a transferable commodity-knowledge. Sharing your unique expertise and making introductions for someone creates a lasting legacy.
+ - This is now a global war on terror and, indeed, it is important, it is imperative that we win in the battles in Afghanistan and that we win in the battles in Iraq. And as the gentleman from Georgia has mentioned, this is not something that is going to be quick and easy.
+ - Mr. Speaker, we are a blessed Nation. We have not suffered another attack on our soil since September 11, and we are grateful. We have killed or captured dozens of members of al Qaeda and the Taliban. Our military and intelligence forces are working both hard and smart.
+ - I often quote Ronald Reagan, who is pretty close to my favorite President ever, I will have to say that, but one of my favorite remarks he ever made was that when you look at Federal programs, there is nothing so close to eternal life on Earth as a Federal Government program.
+ - On energy, we should be exploring for domestic sources of energy.
+ - Government does not have a revenue problem; government has a spending problem. Government does not have a revenue problem; government has a priority problem. It is time that we begin to fine tune our focus and decide what the priority of government ought to be.
+ - Can any of us even imagine, after Pearl Harbor, President Roosevelt suggesting we negotiate a resolution or that we could simply prosecute those involved? Of course it is unimaginable. We are right to be in the Middle East, and we are right to treat this as the war it is.
+ - Liberals in Congress have spent the past three decades pandering to environmental extremists. The policies they have put in place are in large part responsible for the energy crunch we are seeing today. We have not built a refinery in this country for 30 years.
+ - Republicans are not going to play I-told-you-so, but it is pretty obvious that the tax reductions passed in 2003 helped Americans dig out of a recession and get back to work.
+ - We must be certain that we all realize that our enemy is not an enemy that is located in one single place. There are terrorist cells all around the globe.
+ - Republicans rejected calls for amnesty and we’ve fought efforts to provide illegal aliens with taxpayer funded benefits. The American people are far closer to our Republican approach to border security than they are to Nancy Pelosi’s approach.
+ - Our tax policies, the tax relief and reform we passed in 2003 and 2005, helped get government out of the way of America’s entrepreneurs, and our unemployment rate is now lower than it was in the 1970s, the 1980s, and the 1990s.
+ - We all learned in kindergarten that the beginning is a very good place to start. As we have this debate on illegal immigration and illegal entry into this country, let’s begin at the very beginning by sealing the borders to this great Nation.
+
+13 quotes

@@ -1,0 +1,157 @@
+ - Without discipline, there’s no life at all.
+ - If you obey all the rules you miss all the fun.
+ - Good girls go to heaven, bad girls go everywhere.
+ - You can’t change the music of your soul.
+ - Life is hard. After all, it kills you.
+ - Kindness is one of the greatest gifts you can bestow upon another. If someone is in need, lend them a helping hand. Do not wait for a thank you. True kindness lies within the act of giving without the expectation of something in return.
+ - We are taught you must blame your father, your sisters, your brothers, the school, the teachers – but never blame yourself. It’s never your fault. But it’s always your fault, because if you wanted to change you’re the one who has got to change.
+ - As one goes through life, one learns that if you don’t paddle your own canoe, you don’t move.
+ - Never complain. Never explain.
+ - Love has nothing to do with what you are expecting to get – only with what you are expecting to give – which is everything.
+ - If you always do what interests you, at least one person is pleased.
+ - If you need a helping hand, you can find one at the end of your arm.
+ - Don’t moan, don’t whine, don’t blame. Just get on with it.
+ - The thing about life is that you must survive. Life is going to be difficult, and dreadful things will happen. What you do is move along, get on with it, and be tough. Not in the sense of being mean to others, but being tough with yourself and making a deadly effort not to be defeated.
+ - It’s not what you start in life, it’s what you finish.
+ - Listen to the Song of Life.
+ - You don’t pick who you fall in love with. There are so few people to love. It’s hard for one adult to even like another. Almost impossible.
+ - I have not lived as a woman. I have lived as a man. I’ve just done what I damn well wanted to, and I’ve made enough money to support myself, and ain’t afraid of being alone.
+ - You politicians remain professional because the voters remain amateur.
+ - I never lose sight of the fact that just being is fun.
+ - Wouldn’t it be great if people could get to live suddenly as often as they die suddenly?
+ - Life can be wildly tragic at times, and I’ve had my share. But whatever happens to you, you have to keep a slightly comic attitude. In the final analysis, you have got not to forget to laugh.
+ - The notion that work is a burden is a terrible mistake. Working and facing up to one’s responsibilities: That’s happiness.
+ - What you see before you, my friend, is the result of a lifetime of chocolate.
+ - It’s a rather rude gesture, but at least it’s clear what you mean.
+ - The time to make up your mind about people is never.
+ - Silence the artist and you have silenced the most articulate voice the people have.
+ - You are the only person you can actually change.
+ - I welcome death. In death there are no interviews!
+ - The calla lilies are in bloom again. Such a strange flower – suitable to any occasion. I carried them on my wedding day, and now I place them here in memory of something that has died.
+ - It’s life isn’t it? You plow ahead and make a hit. And you plow on and someone passes you. Then someone passes them. Time levels.
+ - If you want to change attitudes, start with a change in behavior.
+ - I love rain. It’s lucky, I always think.
+ - To keep your character intact you cannot stoop to filthy acts. It makes it easier to stoop the next time.
+ - The average Hollywood film star’s ambition is to be admired by an American, courted by an Italian, married to an Englishman and have a French boyfriend.
+ - Vitality! That’s the pursuit of life, isn’t it?
+ - What acting means is that you’ve got to get out of your own skin.
+ - I remember as a child going around with “Votes For Women” balloons. I learnt early what it is to be snubbed for a good cause.
+ - What in the world would we do without our libraries?
+ - I would have been a terrible mother because I’m basically a very selfish human being. Not that that has stopped most people going off and having children.
+ - Who is Katharine Hepburn? It took me a long time to create that creature.
+ - Life’s what’s important. Walking, houses, family. Birth and pain and joy – and then death.
+ - I don’t fear death, it must be like a long sleep.
+ - I think everyone is an opportunist if they have an opportunity.
+ - Life is very hard, isn’t it? It does kill you, after all.
+ - I don’t believe in marriage. It’s bloody impractical. ‘To love, honor, and obey.’ If it weren’t, you wouldn’t have to sign a contract.
+ - Why slap them on the wrist with feather when you can belt them over the head with a sledgehammer.
+ - Everyone thought I was bold and fearless and even arrogant, but inside I was always quaking.
+ - There are no laurels in life, just new challenges.
+ - When a man says he likes a woman in a skirt, I tell him to try one.
+ - If you survive long enough, you’re revered-rather like an old building.
+ - As for me, prizes are nothing. My prize is my work.
+ - The lack of work destroys people.
+ - People who want to be famous are really loners. Or they should be.
+ - If you have to support yourself, you had bloody well better find some way that is going to be interesting.
+ - Life gets harder the smarter you get, the more you know.
+ - I loved Spencer Tracy. I would have done anything for him.
+ - Children need boundaries, so they can know how far they have to go to get beyond them.
+ - Only the really plain people know about love – the very fascinating ones try so hard to create an impression that they soon exhaust their talents.
+ - I won’t go to a restaurant to eat with friends, always join them afterwards for coffee. In company I always get over enthusiastic, and this leads to indigestion.
+ - Dressing up is a bore. At a certain age, you decorate yourself to attract the opposite sex, and at a certain age, I did that. But I’m past that age.
+ - Cold sober, I find myself absolutely fascinating.
+ - Love fattens on smooth words.
+ - Enemies are so stimulating.
+ - It’s either some kind of electricity or some kind of energy. I don’t know what it is, but whatever it is, I’ve got it.
+ - I don’t feel the slightest interest in the next world; I think it’s here. And I think anything good that you’re going to do, you should do for other people here and not so you can try to have a happy time in the next world.
+ - My greatest strength is common sense. I’m really a standard brand – like Campbell’s tomato soup or Baker’s chocolate.
+ - Time is the stuff of which life is made.
+ - Acting is a nice childish profession – pretending you’re someone else and, at the same time, selling yourself.
+ - I was brought up by two extremely intelligent people who gave me the greatest gift that man can give anyone, and that is freedom from fear.
+ - With all the opportunities I had, I could have done more. And if I’d done more, I could have been quite remarkable.
+ - Marriage is a series of desperate arguments people feel passionately about.
+ - To be loved is very demoralizing.
+ - I have had twenty years of perfect companionship with a man among men. He is a rock and a protection. I have never regretted it.
+ - I can remember walking as a child. It was not customary to say you were fatigued. It was customary to complete the goal of the expedition.
+ - It’s a business you go into because your an egocentric. It’s a very embarrassing profession.
+ - How wonderful are the women and men in the world who feed us. Especially those who feed us with no salary. The mothers – I thought. The wives.
+ - The shakes stop if you drink enough, but then so does everything else.
+ - I have loved and been in love. There’s a big difference.
+ - I am a total me, me, Me person.
+ - I don’t think that work ever really destroyed anybody. I think that lack of work destroys them a hell of a lot more.
+ - It’s how you live that really counts.
+ - The woman’s position in the world today is so much harder than a man’s that it makes me choke every time I hear a man complain about anything.
+ - I don’t care WHAT the say about me, as long as it’s not the truth.
+ - It’s a bore – B-O-R-E – when you find you’ve begun to rot.
+ - Life is full of censorship. I cant spit in your eye.
+ - It’s a new low for actresses when you have to wonder what is between her ears instead of her legs.
+ - If it interests you, they don’t have to pay you. It’s a fascinating business anyway-it’s very nice to be paid-but when you do thrilling material, it’s like buying a piece of furniture that’s really good.
+ - People think that I’m tough and strong and that I kicked my way through everything. But they are wrong. The truth is that when I was young I was adorable and a trembling wreck.
+ - I would have made a terrible parent. The first time my child didn’t do what I wanted, I’d kill him.
+ - All my life, I’ve stayed at parties too long because I didn’t know when to go.
+ - If you lead a public life, people are much more on to you than you think.
+ - Being an actor is such a humiliating experience because you are selling yourself to the public, your face, your personality, and that is humiliating. As you get older, it becomes more humiliating because you’ve got less to sell.
+ - You never feel that you have fame. It’s always in back of you.
+ - You sell yourself. The part that I sell is the creature. The adorable part.
+ - Show me an actress who isn’t a personality and I’ll show you a woman who isn’t a star.
+ - A sharp knife cuts the quickest and hurts the least.
+ - Plain women know more about men than beautiful ones do. But beautiful women don’t need to know about men. It’s the men who have to know about beautiful women.
+ - Its a force of life, sex; you cant deny the thrill of riding high, wide and handsome with someone you love.
+ - If you’re given a choice between money and sex appeal, take the money. As you get older, the money will become your sex appeal.
+ - I have many regrets, and I’m sure everyone does. The stupid things you do, you regret if you have any sense, and if you don’t regret them, maybe you’re stupid.
+ - I realised long ago that skirts are hopeless. Anytime I hear a man say he prefers a woman in a skirt, I say, ‘Try one. Try a skirt.’
+ - I have no romantic feelings about age. Either you are interesting at any age or you are not. There is nothing particularly interesting about being old – or being young, for that matter.
+ - I’ve always thought men and women are not too well suited to each other. It’s inevitable that they should come together, but, again, how well suited are they to live together in the same house?
+ - I wear my sort of clothes to save me the trouble of deciding which clothes to wear.
+ - The calla lilies are in bloom again.
+ - I like to move fast, and wearing high heels was tough, and low heels with a skirt is unattractive. So pants took over.
+ - You give because you love and cannot help giving.
+ - My father, a surgeon and urologist, studied sex professionally all his life. Before he died at 82, he told me he hadn’t come to any conclusions about it at all.
+ - I can’t say I believe in prizes. I was a whiz in the three-legged race – that’s something you CAN win.
+ - Once a crowd chased me for an autograph. ‘Beat it, ’ I said, ‘go sit on a tack!’ ‘We made you, ’ they said. ‘Like hell you did, ’ I told them.
+ - Sometimes I wonder if men and women really suit each other. Perhaps they should live next door and just visit now and then.
+ - Only when a woman decides not to have children, can a woman live like a man. That’s what I’ve done.
+ - I was born lucky, and I have lived lucky. What I had was used. What I still have is being used. Lucky.
+ - I don’t give a damn about marriage. But I do care about honor.
+ - It is the plain women who know about love; the beautiful women are too busy being fascinating.
+ - It would be a terrific innovation if you could get your mind to stretch a little further than the next wisecrack.
+ - Don’t give in! Make your own trail. Don’t moan. Don’t complain. Think positively.
+ - In some ways I’ve lived my life like a man, made my own decisions, etc. I’ve been as terrified as the next person, but you’ve got to keep going.
+ - If you want to sacrifice the admiration of many men for the criticism of one, go ahead, get married.
+ - I don’t regret anything I’ve ever done; as long as I enjoyed it at the time.
+ - Loved people are loving people.
+ - Acting is the most minor of gifts. After all, Shirley Temple could do it when she was four.
+ - Two of an actress’s greatest assets are love and pain. A great actress, even a good actress, must have plenty of both in her life.
+ - Being a housewife and a mother is the biggest job in the world, but if it doesn’t interest you, don’t do it – I would have made a terrible mother.
+ - Trying to be fascinating is an asinine position to be in.
+ - I could peel you like a pear and god himself would see the justice in it.
+ - I believe how I act today will affect how I am tomorrow.
+ - Acting is the perfect idiot’s profession.
+ - To live creatively free, do what you know how to do now, then ‘act as if’ you know how to do the rest.
+ - I think all good actors are personalities. If they’re not, they’re not stars. What makes you a star is horsepower.
+ - I think the reason that very few people really fall in love with anyone is that they’re not willing to pay the price.
+ - Death will be a great relief. No more interviews.
+ - My, I like Judy Holliday! She looks like a Monet model. And she’s so – so defenseless. I like defenseless people. They’re the best.
+ - I’ve made forty-three pictures. Naturally I’m adorable in all of them.
+ - The only time I am ever miserable is when I do something just for the money.
+ - I’m a legend because I’ve survived over a long period of time and still seem to be master of my fate – I’m still paddling the goddamned boat myself.
+ - I never realized until lately that women were supposed to be the inferior sex.
+ - Bogart was like Henry Fonda – proud and happy to be an actor.
+ - Man who stands on toilet, gets high on pot!
+ - People have grown fond of me, like some old building.
+ - Nobody owes anybody anything; it’s up to each individual to set high standards for himself or herself, and to set about working hard and creating a solid future.
+ - Afraid of death? Not at all. Be a great relief. Then I wouldn’t have to talk to you.
+ - I always wanted to be a movie actress. I thought it was very romantic. And it was.
+ - I think most of the people involved in any art always secretly wonder whether they are really there because they’re good or there because they’re lucky.
+ - When I’ve been unsuccessful, I’ve been controlled. When I’ve been successful, I’ve been in control.
+ - I’m an atheist, and that’s it. I believe there’s nothing we can know except that we should be kind to each other and do what we can for people.
+ - A boy sows a wild oat or two, the world winks. A girl does the same – scandal.
+ - You can say or write anything about me you like. Just don’t, for any reason, ever tell the truth.
+ - He’s worked his entire life and he’s never lived a single moment, I mean not a moment, in the real world.
+ - I’m what is known as gradually disintegrating. I don’t fear the next world, or anything. I don’t fear hell, and I don’t look forward to heaven.
+ - Most people our brought up to believe they are as good as the person next to them, I was told I was better.
+ - The terrible thing about acting in the theater is that you have to do it at night.
+ - When I started out, I didn’t have any desire to be an actress or to learn how to act. I just wanted to be famous.
+ - I find a woman’s point of view much grander and finer than a man’s.
+
+155 quotes

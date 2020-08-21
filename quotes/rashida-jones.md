@@ -1,0 +1,138 @@
+ - Invest in your brain, invest in your talents. Those things can appreciate and they get better as you get older.
+ - Chemotherapy is brutal. The goal is pretty much to kill everything in your body without killing you.
+ - You can never stop discovering music.
+ - Smiling is definitely one of the best beauty remedies.
+ - It’s downright undignified how many blazers I’ve bought over the years. And will continue to buy. They immediately give shape and add authority. With the perfect blazer, anything is possible.
+ - I can be pretty persuasive if I believe in something strongly enough.
+ - Music is hugely important to me.
+ - I am definitively qualitative about work.
+ - There’ve been times when I have existential conversations with myself, and I’ve thought about leaving and trying to apply my education better. But ultimately it doesn’t really matter. Learning how to write, learning how to write papers and structure, that’s been very helpful for writing.
+ - The minute you feel like there’s nothing left to learn, whether it’s with your career or life, you’re done.
+ - A question I get asked a lot is ‘What is it like to play the straight guy all the time?’ And I’m totally okay with it.
+ - I hate to be a broken record – my parents have a lot to do with that too, because that’s how they live their lives.
+ - I know that in life there will be sickness, devastation, disappointments, heartache – it’s a given. What’s not a given is the way you choose to get through it all. If you look hard enough, you can always find the bright side.
+ - My mother and I are more than best friends; we are partners in crime. After she and my father, Quincy Jones, separated when I was 10 years old, my sister, Kidada, who was 12, went to live with our dad, and I stayed with my mother.
+ - I know my mom said as early as she can remember letting me watch TV, my one treat a week when I was like 6 was to stay up and watch ‘Saturday Night Live.’
+ - I was a chubby, chubby little tub-tub. At the times when it mattered: twelve, thirteen, and fourteen. I’m so happy I was. If you’re beautiful young, you really miss out on developing parts of yourself.
+ - I have six brothers and sisters. We all look totally different: blonde hair, curly hair, green eyes, dark eyes, dark skin, light skin. It’s just how it is.
+ - Be friendly to everybody; protect yourself; people sometimes want a piece of you for no good reason; and always do things out of love not fear.
+ - Everything French is amazing, especially creme brulee, but then burnt sugar works for me in any capacity.
+ - Well, dating has become a sport and not about finding the person you love.
+ - I have a father who came from nothing and conquered the world. The last thing I’m going to do is sit here and spend his money and try to look pretty. That’s not interesting to me at all.
+ - I don’t like expectations.
+ - I think that women are powerful and they’re multifaceted and they’re survivors; they don’t have to depend on a man to do the things they needed them to do, whether it was hunting or lifting heavy things, so what’s a man’s place now? Who knows!
+ - I’m a sponge. I’m obsessed with comedy. I’m obsessed with the idea that you can make somebody laugh, and I love to be around people who can make other people laugh.
+ - My dad always tell me to make decisions from love and not from fear.
+ - I have a deep respect for musicians, and I feel like I would want to be so prepared and so well-educated and deep in the process before I ever release anything.
+ - In early high school years, I was pretty chubby, and I spent a lot of time on my computer, before it was cool to have a computer – because there was a time that was true. So that’s where I developed my personality.
+ - There’s a definite responsibility that comes with being famous. You shouldn’t be able to just dress up and look pretty.
+ - You can love somebody and it can change your life but it doesn’t mean that you’re necessarily right to be together forever, but that love will change your life forever. And that’s okay.
+ - You can’t really invest in your looks as the only thing because it’s a depreciating asset. It’s like putting money into a stock that’s going down.
+ - People don’t believe this, but Hollywood really is a meritocracy.
+ - Smiling is definitely one of the best beauty remedies. If you have a good sense of humor and a good approach to life, that’s beautiful.
+ - It’s such a fortunate life, if you can work as an actor.
+ - I’m friends with a lot of my exes, but it took time. We didn’t just get into it. I don’t think you can be friends until you’re cool with them dating someone else. That’s when you know.
+ - I want a baby and I want a family, for sure.
+ - I’ve always dreamt of having some sort of undercover job. I think it’s probably the coolest thing in the world, but ultimately a very lonely life.
+ - I love guys and the way they think; they’re so straightforward – and women can learn from that.
+ - I’m generally a pretty friendly person.
+ - I think every girl has that a guy she has trouble letting go of.
+ - There’s room for everything in everybody.
+ - My pet peeve and my goal in life is to somehow get an adjective for ‘integrity’ in the dictionary. ‘Truthful’ doesn’t really cover it, or ‘genuine.’ It should be like ‘integritus.’
+ - Ads featuring real women and real beauty are such a necessary component to offset the potentially dangerous programming out there for little girls.
+ - Mostly though, college was me trying to look cooler than I was. There were definitely some Carhartt jeans and backward kangol caps in my repertoire.
+ - I think anybody who has had a long relationship and has had a really hard time letting go, wants to feel like it’s not all for naught, and it’s meaningful, because it makes you who you are.
+ - I love going to weddings.
+ - Women tend to double-speak – I’m definitely guilty of that.
+ - Women can do anything, and I want to see that. I want them to make more movies for girls, and just for girls. I want studios to start doing that.
+ - I have friends who have no choice; they came from whatever town, they didn’t have anybody in entertainment and they just knew they wanted to act and they did it.
+ - Streaking through a large crowd has always been a secret fantasy of mine.
+ - I can fall asleep anywhere.
+ - I’m lucky because I have so many clashing cultural, racial things going on: black, Jewish, Irish, Portuguese, Cherokee. I can float and be part of any community I want.
+ - If you feel like you can’t actually do the right thing and you’re headed off into the field of justice, maybe there’s no point in going into it.
+ - For the most part, it is really nice when people come up to me, because I do think that people who are awkward relate to me, and that’s really nice. It’s generally good.
+ - I like to wear what make me feel great, which can mean the color, or that the fit’s right, or that it’s just an interesting piece of clothing. I like to change it up.
+ - I have a lot of skepticism about marriage and monogamy.
+ - The justice system is flawed, and that just because you’re overtly guilty doesn’t actually mean you’re actually going to go away, to jail.
+ - I have a lot of girl friends who are very adept at making friends, and guys are just not.
+ - I love being part of an ensemble.
+ - I don’t want to be an artist, go on tour and make a video and wear sexy clothes. I would just love to make music.
+ - I don’t think any other emotion is the equivalent of laughter. So I do whatever I can to laugh all the time and to hide my pain.
+ - Music will always be a part of my life, but career-wise, acting is where my heart is.
+ - Timing is everything with relationships.
+ - I definitely work pretty hard to stay present and focused. I’ve also tried to create a life for myself where I’m surrounded by honest, loyal, and funny people, because I like to laugh.
+ - I took a Groundlings class in my 20s, and I was terrible. They didn’t even pass me to the next level.
+ - It’s very challenging to learn something new as an adult.
+ - People are not enjoying life because they’re trying to be something or brand themselves.
+ - When a thing you love faces adversity, you start to feel more protective of it. Also, you take an inventory all the time. You ask yourself, “Is this worth all my fighting?”
+ - There’s no better way to process pain than to write.
+ - I do have designers that I love to wear, like Philip Lim and Marc Jacobs whose stuff I know will look good on my body. But still, I always like to express myself by changing things up.
+ - With acting, the stark reality for women is that it’s nearly impossible to get older in an elegant fashion as an actress. Either you’re fighting your age, or you’re having to own it in a way that feels inelegant, or you’re Meryl Streep and you’re an angel from God.
+ - I am generally cast as the dependable, affable, loving, friend-wife-girlfriend.
+ - In college, I had a lot of friends who were writers and wanted to be writers and I felt intimidated by it. I just didn’t know if I had any gift or voice and I had no confidence about it.
+ - I think you make mistakes, especially in your twenties, where you date guys you wouldn’t even be friends with – ever.
+ - I probably wouldn’t be acting if I didn’t grow up in Hollywood.
+ - If I can surround myself with hilarious people every day, I will always want to go to work.
+ - Good rom-coms have some reflection of the way things are, the sign of the times.
+ - I like to be in a European city where I can speak my language.
+ - In high school, I was on the youth advisory council for the Mayor’s Office of Los Angeles, and that was kind of my first experience in the bureaucratic system. We tried to get things done, and nobody was really interested in getting anything done.
+ - I think there is this thing where people are impressed – it gives you a leg up in the sense that people won’t treat you like a run-of-the-mill actress. They’ll assign “smart” to your word bank, your adjective bank.
+ - Mom is the most unconditionally loving person I will ever know, and she has always supported me on every level.
+ - It’s hard to find female leads that are flawed and interesting and dynamic.
+ - Men do weird things when they experience fear. It’s like a fight or flight thing.
+ - Spy plots are hard, really hard.
+ - I think it’s a relatable concept – when you have a long-term relationship or marriage, and you want to try to be friends with that person, because you kind of grew up with that person and they know you better than anyone, and how it’s just impossible to make that transition seamlessly.
+ - I pretty much borrow my entire beauty regime from my mom.
+ - You know, I grew up on romantic comedies, and it’s hard to find a new way to tell that story.
+ - Well, I’m not a method actress by any stretch of the imagination so the best thing that I can do is be as real as possible and find whatever commonality in that character that I can see myself.
+ - I know what it’s like to have my heart broken. It is not adorable.
+ - For the most part, there’s so much of me in my characters.
+ - I have no issues with my identity.
+ - People are very nice to me, and they’ve been nice as my career has gotten better and I’ve gotten more jobs. But the reality is that if I decided tomorrow that I didn’t want to act anymore, it’s not like people are going to be like, ‘Please, come back!’
+ - In elementary and high school, I never considered acting as a profession.
+ - People still go to Comic-Con because they love comics.
+ - My activities tend to revolve around crossword puzzles, reading and playing piano and games with my friends.
+ - I’ve been really lucky with acting, in that I can do things I believe in and feel good about, and feel good about myself. If for some reason one day that ends, I won’t do it anymore. If I feel like I have to compromise myself to continue to be in this industry, I don’t want to do that.
+ - You know, I definitely have an inclination to work in the public sector.
+ - Caring about what people think of me decreases everyday.
+ - I think people kind of come in who they are, and it sort of doesn’t even matter who their parents are – it can affect you a little bit, and you can be guided and shaped.
+ - I kind of understand now why people freak out when they see celebrities that they love, because that’s how I feel about every single Muppet.
+ - Just because a situation is grim doesn’t mean you don’t have every right to smile.
+ - I don’t really mess with Instagram much, but I get why people love it. Because to me, it’s better to tell a story through a picture than 140 characters.
+ - I find it scary to sing – scarier than acting actually.
+ - I have to say, you know, I’ve seen so many people go through the cycle and become famous and not famous anymore and, you know, want – have their priorities change and want different things.
+ - Music breaks my heart constantly.
+ - My parents are the coolest of the cool on every single level, and it’s because they have a deep appreciation for every moment of their lives.
+ - I would be an idiot to say comedy is easy, but it does come naturally. It never feels forced.
+ - There’s a sense of entitlement and isolationism that I think is really dangerous, and the way globalization and technology have been used isn’t really for the best.
+ - For the most part, having more money and more fame make your life harder. It just does. I’ve seen it happen with people. You know, it’s so hard to stay normal. It’s so hard to stay happy. It’s hard to remember why you were doing what you did in the first place.
+ - I think part of being an adult is leaving the fairytale behind.
+ - I had a nickname in junior high, and I’m loathe to say this: ‘potato lady.’
+ - When people don’t know what you are, you get your heart broken daily.
+ - I’m not easily offended. I have a pretty high tolerance for raunchiness or shock value, so I’m the wrong person to use as a gauge.
+ - As much as my parents are part of Hollywood, I have no recollection of them giving me advice about it.
+ - I feel like until you show every side, you’re not doing the gender justice.
+ - Comedy is like music, and the way to make the best music is to have skilled musicians in your band.
+ - I love fashion, but maybe I love it peripherally.
+ - I don’t think that there’s been one example in history where somebody has openly talked about their personal life and it’s done them any good.
+ - I feel like there is this weird thing where celebrity involvement in political campaigns kind of goes together like peanut butter and chocolate. Sometimes it’s good, sometimes it’s bad.
+ - Marriage feels like an industry with catering and really expensive bands.
+ - I have a lot of girlfriends, but there’s something that’s so easy for me about hanging out with guys. It’s fun, because I feel like they accept me right back, which is really nice.
+ - Control the publics perception of you and nobody will care if you have any talent.
+ - I think I’m a natural appreciator of comedy. I was definitely not the girl in junior high that all the guys wanted to date. They wanted to date my friends – which was great, because I had to be funny.
+ - I’m terrified of performing live.
+ - There’s no sense that you can knock on your neighbor’s door or be part of a local community group, and that’s part of your responsibility as a human being.
+ - In 2002 Mom and I got a chance to act together in a play called ‘Pitching to the Star,’ with her brother, Robert Lipton. The three of us on the same stage – that was such a special experience for me.
+ - I really like the relaxed glamour of the ’70s.
+ - I love romantic comedies. I have a deep respect for them. I think they’re really difficult to write and write well.
+ - Sure, being good at your job is really important, but in acting, so much of the decision’s already made the minute you walk in the room because they’re like, ‘His hair’s good or she’s got the right skin color’ or whatever. It’s so random, but it’s so physically oriented.
+ - Auditioning is the worst.
+ - I totally believe in romance and love and all that.
+ - I did a lot of theater in school. I thought maybe I wanted to go to law school or be a judge or a politician. And then I just kind of got smitten by the process of rehearsal and working with other actors and those kinds of challenges. And then comedy.
+ - I tend to leave the house without makeup all the time. I’m kind of lazy that way.
+ - To me, it’s really easy to feel glamorous and beautiful with red lips. It’s great because you don’t have to do anything else. I don’t have to do anything to my face. I can have cleanly washed hair and if I just put on like a matte red lip, it just makes everything seem special.
+ - I love broad comedy. It has its place. If I were to do that, I’d love to do physical comedy.
+ - I’m a comedy geek so anything comedy related, whether that’s standup shows, improv shows, I’m all over that. That’s my favorite way to be entertained always.
+ - My first love, I’ll never forget, and it’s such a big part of who I am, and in so many ways, we could never be together, but that doesn’t mean that it’s not forever. Because it is forever.
+
+136 quotes

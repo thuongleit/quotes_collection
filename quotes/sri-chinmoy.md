@@ -1,0 +1,351 @@
+ - Peace begins When expectation ends.
+ - Judge nothing, you will be happy. Forgive everything, you will be happier. Love everything, you will be happiest.
+ - Paradise is not a place; it’s a state of consciousness.
+ - Next to meditation is music, soulful music, the music that stirs and elevates our aspiring consciousness.
+ - Do not Blame the world. Find a solution.
+ - Gratitude is the sweetest thing in a seeker’s life- in all human life. If there is gratitude in your heart, then there will be tremendous sweetness in your eyes.
+ - Music is the language of God. God’s language, music, is not like mathematics or geometry. It is a language of love. If we love music, that is enough.
+ - When your love is pure or spiritual, there is no demand, no expectation. There is only the sweetest feeling of spontaneous oneness with the human being or beings concerned.
+ - Our goal is self-transcendence.
+ - Try not to change the world. You will fail. Try to love the world. Lo, the world is changed. Changed forever.
+ - Our goal is not to have A problem-free life. But to conquer all the problems As they appear Along our life-road.
+ - Be sincere in your thoughts, Be pure in your feelings. You will not have to run after happiness. Happiness will run after you.
+ - Meditation is silence, energising and fulfilling. Silent is the eloquent expression of the inexpressible.
+ - Nothing impresses me any more, save and except my own deep meditations.
+ - Optimism is the secret of self-reliance. Self-reliance is the secret of a dynamic power. A dynamic power is the secret of an immediate success.
+ - A spiritually established life is not an easy task. But a materially satisfied life is an impossible task.
+ - Silence is the nest and music is the bird. The bird leaves the nest early in the morning and returns to the nest in the evening. Similarly, in the spiritual world, divine music comes from the inmost soul of Silence.
+ - If we call ourselves children of God, then others are also children of God.
+ - Run and become. Become and run. Run to succeed in the outer world. Become to proceed in the inner world.
+ - Individual self-transcendence collectively inspires humanity at large.
+ - No price is too great to pay for inner peace.
+ - It is music that, being the universal language, has no need to learn any particular language of the world.
+ - Love is never afraid of fear. Fear is always afraid of love.
+ - Hatred is a disguised form of love. You can only hate someone whom you really wish to love, because if you were totally indifferent to that person, you could not even get up enough energy to hate him.
+ - Surrender is a journey from the outer turmoil to the inner peace.
+ - Where love is thick, faults are thin. If you really love someone, then it is difficult to find fault with him. His faults seem negligible, for love means oneness.
+ - Peace does not mean the absence of war, peace means the presence of harmony, love, satisfaction and oneness. Peace means a flood of love in the world family.
+ - I did not come into the world to prove anything. I came into the world to love everyone and everything.
+ - Our human nature likes more to destroy than to build, more to cry than to smile, and more to correct the world than to love and embrace the world.
+ - If you do not find peace inside your own heart, then you will not find it anywhere else on earth.
+ - Meditation is my soul’s soundless conversation with my inner pilot.
+ - True humility means giving joy to others.
+ - Meditation is the language of God. If we want to know what God’s Will is in our life, if we want God to guide us, mould us and fulfil Himself in and through us, then meditation is the language that we must use.
+ - When we transcend ourselves, we do not compete with others. We do not compete with the rest of the world, but at every moment we compete with ourselves.
+ - Like kindness, a smile from the heart not only purifies the human mind but also illumines the human heart.
+ - Meditation speaks. It speaks in silence.
+ - Miracles do happen in every human life.
+ - Peace is our inner wealth. This inner wealth we can bring to the fore only when we expect nothing from the outer world and everything from the Supreme Pilot within us, at God’s Choice Hour.
+ - The Goal can disappear From the mind’s sight But not From the heart’s vision.
+ - If you depend on God’s grace there is no such thing as impossible.
+ - There is only one immediate question: Where is God? The immediate answer is: God is where My heart’s love-breath is.
+ - Man is by nature a lover. Only he has yet to discover the real thing to love. This quest awakens him to the fulfillment of his real Self.
+ - Hope is not mere wishful thinking. It is the precursor of a new dawn that slowly, steadily and unerringly comes to the fore and eventually grows into reality’s existence.
+ - There is only one perfect road and that road is ahead of you, always ahead of you.
+ - I am very happy Because I have conquered myself And not the world. I am very happy Because I have loved the world And not myself.
+ - Silence is not silent. Silence speaks. It speaks most eloquently. Silence is not still. Silence leads. It leads most perfectly.
+ - Friendship must never be buried under the weight of misunderstanding.
+ - If peace is not In Nature’s beauty, Then where is it, where?
+ - Sympathy does not think. It acts. It acts to remove. The ceaseless sufferings. Of the world.
+ - Determination can change your mind. Determination can change your heart. Determination can change your life altogether.
+ - Responsibility is the possibility of opportunity culminating in inevitable fulfillment.
+ - If failure has the strength to turn your life into bitterness itself, then patience has the strength to turn your life into the sweetest joy. Do not surrender to fate after a single failure. Failure, at most, precedes success.
+ - Inner silence is not just the absence of thoughts. No! Silence is the blossoming of our indomitable inner will. Silence is our inner wisdom-light.
+ - To hope is to see with the eye of the heart. To hope is to make the heart captain the vital and the body. To hope is to send darkness-night into exile.
+ - Music is inspiration, soulful inspiration. It inspires the human in us. Music is manifestation, fruitful manifestation. It manifests the divine in us. Music is satisfaction, supreme satisfaction. It satisfies the Pilot Supreme in us.
+ - One who has an inferiority complex can never be really humble, but can only have false modesty or false humility.
+ - Man invents war. Man discovers peace. He invents war from without. He discovers peace from within. War man throws. Peace man sows. The smile of war is the flood of human blood. The smile of peace is the love, below, above.
+ - Remain cheerful, For nothing destructive can pierce through The solid wall of cheerfulness.
+ - If you want to simplify your life, meditation is the answer. If you want to fulfil your life, meditation is the answer. If you want to have joy and offer joy to the world at large, then meditation is the only answer.
+ - When we meditate, what we actually do is enter into a vacant, calm, still, silent mind. We go deep within and approach our true existence, which is our soul. When we live in the soul, we feel that we are actually meditating spontaneously.
+ - How can I have peace? Not by talking about peace, But by walking Along the road of peace.
+ - Man-made religions find fault with one another, whereas God-made religion is eternally a oneness-song – God-manifestation through human aspiration on earth.
+ - Never give up! Never give up! Physical fitness is of paramount importance. There is no age limit when we live in the heart and when we try to be of prayerful and soulful service to God in the heart of humanity.
+ - Hope knows no fear. Hope dares to blossom even inside the abysmal abyss. Hope secretly feeds and strengthens promise.
+ - The vision of Hinduism is unity in diversity. First, Hinduism lovingly embraces all alien elements; second, it tries to assimilate them; third, it tries to expand itself as a whole, with a view to serving humanity and nature.
+ - A moment’s truth can and shall make the world beautiful. A moment’s peace can and shall save the world. A moment’s love can and shall make the world perfect.
+ - When we go deep within, into the deepest recesses of our hearts, we commune with God through meditation. It is through meditation that we can know that God is both with form and without form, with attributes and without attributes.
+ - No more my heart shall sob or grieve. My days and nights dissolve in God’s own Light. Above the toil of life, my soul is a Bird of Fire winging the Infinite.
+ - My heart’s gratitude Is My life’s plenitude.
+ - If you are bathed In God’s Forgiveness-Light, Then no dust of earth Will be able to cling to you.
+ - What you do not use yourself, do not give to others. For example: advice.
+ - God has blessed me with the capacity to meditate even while I am talking.
+ - I never fight with reason- I just ignore it.
+ - Each new day beckons you to walk on the road of self-transcendence. We transcend ourselves, we do not compete with others. We compete only with our previous achievements, and we get joy. Life is nothing but a perpetual possibility.
+ - Peace is a stranger to the rigid mind. Peace is a guest of the flexible heart.
+ - To be true to oneself is the hardest test of life.
+ - Impossibility is a dictionary word.
+ - True success is the only thing that you cannot have unless and until you have offered it to others.
+ - Meditation is silence. Silence is God In His Infinity’s Smile.
+ - Enthusiasm Rules his inner world. Determination Rules his outer world. Therefore Happiness has become His real name.
+ - Real meditation is not done by us. It is done by our Inner Pilot, the Supreme, who is constantly meditating in and through us. We are just the vessel, and we are allowing Him to fill us with His whole Consciousness.
+ - Science has the capacity to show mankind the full development of the mental life. Spirituality has the capacity to show mankind the possibility and inevitability of the life beyond the mind, the supramental life.
+ - He who loves, never grows old. God it a shining example.
+ - We must endure Adversity Bravely and cheerfully.
+ - Love the world. Otherwise, you will be forced to carry the heaviest load: your own bitter self.
+ - Be happy! God sees in you another God. God sees you as another God. God sees you and He as One.
+ - Life is nothing but the expansion of love.
+ - Hope is at once both simple and profound. It is hope that binds Heaven and earth. Hope is the bridge between Heaven and earth.
+ - The fulfilment of life is in the making and manifesting of impossible dreams.
+ - Each individual has to know himself. He has to know himself as the infinite, eternal and immortal Consciousness.
+ - Allow failure to teach you A supreme lesson: Each sunset is the beginning Of a very, very bright And powerful sunrise.
+ - Inside each one of us is a beautiful flower garden. This is the garden of the soul. With each lesson we learn, the garden grows. As we learn together, our individual gardens form a tranquil paradise.
+ - A simple man will have only what he needs, and he will know the difference between what he needs and what he wants. We feel that whatever we want, we desperately need. But before we possess the world, to our wide surprise we see that the world has already possessed us.
+ - Be universal in your love. You will see the universe to be the picture of your own being.
+ - If you have inner peace, nobody can force you to be a slave to the outer reality.
+ - What is love? From the spiritual and inner point of view, love is self-expansion. Human love binds and is bound. Divine Love expands, enlarges itself.
+ - Each human being can at once be a fighter and forgiver. When self-doubt tortures him, he most play the role of a fighter. And when his own ignorance humiliates him, he must play the role of a forgiver.
+ - If you can create harmony in your own life, This harmony will enter into the vast world.
+ - To conquer the egoIs to gainBoundless freedom.
+ - Sacrifice does not mean that, by giving, we lose something. We sacrifice our limited self to our highest and largest Self, and at that time we immediately become the largest and the highest Self.
+ - Hate is often an obverse form of love. You hate someone whom you really wish to love but whom you cannot love.
+ - God’s Compassion – Eye gives us Not only one Chance But countless chances To change our wrong directions.
+ - True, this world of ours is full of hatred and disbelief, but that is no reason why we should not love and why we should not believe. We must love and believe in order to empty the hatred-sea.
+ - I am a man of prayer and meditation. I feel inspiration is of paramount importance. If I can inspire someone, and if that person also can inspire me, then we can do many good things for the betterment of this world.
+ - Meditation means conscious self-expansion. Meditation means one’s conscious awareness of the transcendental Reality. Meditation means the recognition or the discovery of one’s own true self. It is through meditation that we transcend limitation, bondage and imperfection.
+ - Even the tiniest of hopes can show me the way to arrive at my goal.
+ - True happiness Is not a mental hallucination. True happiness Is not a complacent feeling. True happiness Is the spontaneous feeling of joy That comes from knowing 132 You are doing the right thing 133 And leading a divine life.
+ - Silence tells the seeker in us to love, to love himself. It tells us it is wrong to hate ourselves because of our imperfections. When the seeker loves himself, loves the Divine within himself, he eventually realises the Ultimate Truth.
+ - Hope abides; therefore I abide. Countless frustrations have not cowed me. I am still alive, vibrant with life. The black cloud will disappear, The morning sun will appear once again In all its supernal glory.
+ - What is Yoga? Yoga is self-conquest. Self-conquest is God-Realization. He who practices Yoga does two things with one stroke: he simplifies his whole life and he gets a freee access to the Divine.
+ - When I meditate, I feel I am vast, very vast.
+ - The waves of hatred-night can easily be dissolved in the sea of oneness-love.
+ - Not to give up under any circumstances should be the motto of our life: I shall try again and again, and I am bound to succeed. There will be obstacles, but I have to defy the obstacles.
+ - Before one accepts spirituality, astrology is very powerful, like a lion. Then when one enters into a deeper spiritual life, astrology becomes a tiny household cat.
+ - We do not need heaven-born saints but just earth-born seekers who believe in peace and want to live in peace.
+ - Just one smile Immensely increases the beauty Of the universe.
+ - You must never forget that greatness does not guarantee happiness but goodness always does.
+ - I love my enemies for two reasons: they inspire me to recognise my weakness. They also inspire me to perfect my imperfect nature.
+ - When I was an animal I evolved through selfishness. Now that I am a man my evolution can be achieved only through self-sacrifice.
+ - The entire world may not change. The entire world cannot change. The entire world even will not change. But your tiny world you can and will change forever at this very moment with the help of your confidence-heart. Yours will be the unparalleled victory.
+ - Peace is the whole truth that wishes to enrapture humanity. War is the whole falsehood that wants to capture humanity. Peace begins in the soul and ends in the heart. War begins in the mind and ends in the body.
+ - Hope is sweet. Hope is illumining. Hope is fulfilling. Hope can be everlasting. Therefore, do not give up hope, Even in the sunset of your life.
+ - Peace is eternal. It is never too late to have peace. Time is always ripe for that. We can make our life truly fruitful if we are not cut off from our Source, which is the peace of Eternity.
+ - The very nature of kindness is to spread. If you are kind to others, today they will be kind to you, and tomorrow to somebody else.
+ - Every second a seeker can start over, For his life’s mistakes Are initial drafts And not the final version.
+ - Spirituality tells the seeker not to live in the hoary past, not to live in the remote future, but to live in the immediacy of today, in the eternal Now.
+ - The satisfaction of life May not be ours, But the beauty of hope Is all ours.
+ - Daring enthusiasm And abiding cheerfulness Can accomplish everything on earth Without fail.
+ - Each aspirant has to be a divine soldier. He must consciously and constantly use his divine energy to drill himself into a liberated soul.
+ - Meditation gives us peace of mind without a tranquilizer. And unlike a tranquilizer, the peace of mind that we get from meditation does not fade away. It lasts for good in some corner of the inmost recesses of our aspiring heart.
+ - There is no greater miracle than our conscious efforts to become good human beings.
+ - What is joy? It is a bird That we all want to catch. It is the same bird That we all love to see flying.
+ - Do not try to approach God with your thinking mind. It may only stimulate your intellectual ideas, activities, and beliefs. Try to approach God with your crying heart. It will awaken your soulful, spiritual consciousness.
+ - Peace is something spontaneous; it is something that unites us. Peace is something that we have to spread. But unless and until we have peace deep within us, we can never hope to have peace in the outer world.
+ - It is only through inner peace that we can have true outer freedom.
+ - When I think good thoughts, I feel that man is not, after all, so bad.
+ - God does not care If I am bad or good- He wants my love, Not my sainthood.
+ - Is not falling down. Failure Is desiring to live Where I have fallen.
+ - All athletes, without fail, are potentially great and good. A great athlete is a little man tirelessly inspired.
+ - Unless and until you have developed a heart inundated with compassion, do not sit on the seat of judgement.
+ - Spirituality is man’s conscious longing for God. Spirituality tells us that God, who is unknowable today, will tomorrow become knowable and, the day after, will become totally known.
+ - Love of the limited self, the very limited self, is another name for human love. Love of the entire world is another name for divine love.
+ - Our mind thinks of death, our heart thinks of life, and our soul thinks of immortality.
+ - When you invent something, there will always be people to criticise. God’s creation is full of critics, but has God given up His creation because of the critics?
+ - Truth is in all, But love is all.
+ - True spirituality is the acceptance of earth-life. A true seeker is he who accepts life, transforms life and perfects life so that the earth-life can become a conscious instrument of God.
+ - In my weightlifting I am trying to show that if you pray and meditate, you can bring to the fore your inner strength. Now, if somebody is really inwardly strong, he is always at peace.
+ - Love is something that never cared to learn how to judge anybody.
+ - Alas, why does my mind have to walk through the dust of the past every day?
+ - To hope is to see with the eye of the heart.
+ - Character is blazing sunshine in the soul’s abode, the body.
+ - If you do the right thing, eventually you will inspire others to do the right thing.
+ - Your mind has a flood of questions. There is but one teacher Who can answer them. Who is that teacher? Your silence-loving heart.
+ - True inner joy is self-created It does not rely on any outer circumstances A river is flowing in and through you carrying the message of joy. This divine joy is the sole purpose of life.
+ - The hope or climbing aspiration of a divine child is to receive and achieve Peace, Light and Bliss in infinite measure.
+ - There comes a time in the seeker’s life when he discovers that he is at once the lover and the beloved. The aspiring soul which he embodies is the lover in him. And the transcendental Self which he reveals from within is his Beloved.
+ - A sincere seeker knows what his goal is: the highest Truth. He will not delay his journey. In spiritual life, we aspire for the highest Truth, for God, nothing else.
+ - Either by silencing the mind or by opening the heart, today’s man can become tomorrow’s God, tomorrow’s Divinity. And embodied Divinity soon becomes revealed Immortality.
+ - Human love wants to possess and be possessed by the world. Divine love wants to establish its inseparable oneness with the world and then it wants to divinely enjoy this oneness. Supreme Love transforms human love into divine love and blesses divine love with boundless joy and divine pride.
+ - An unaspiring person always complaints. There is no end to his complaints. He bitterly complains even when the blessings of opportunity knock at his very door.
+ - Those who run after happiness will never be happy. Happiness is something that has to come to the fore from within.
+ - Man can be happy and safe only when the heart feels faster than the mind thinks.
+ - The human mind is utterly stupid when it carries, quite willingly, the heavy burden of resentment.
+ - Be kind, be all sympathy, For each and every human being Is forced to fight against himself.
+ - A human being has many divine qualities. But there has never been another unparalleled divine quality like man’s self-sacrifice, nor can there ever be.
+ - In between your failure-tree And your triumph-tree, The tree that is growing Is known as your patience-tree.
+ - No matter how fleeting Your smile is, Your smile is the very beginning Of your wisdom-light.
+ - How to overcome destructive criticism? Just love a little more. That’s all.
+ - Hope pulls the heart of tomorrow into the body of today.
+ - Do you want to be happy? Then make your life as soulfully simple As sleeplessly breathing.
+ - God is the Supreme Musician. It is He who is playing with us, on us and in us. We cannot separate God from His music. The universal Consciousness is constantly being played by the Supreme Himself, and is constantly growing into the Supreme Music.
+ - Wherever you go, go with inspiration and aspiration. Whatever you do, do with love and concern. Whomever you see, see with purity’s beauty And responsibility’s glory.
+ - Never give up hope! Hope ultimately succeeds.
+ - Do you want to make progress? If so, then take each problem not as a challenging rival, but as an encouraging friend of yours, who is helping you to arrive at your ultimate destination.
+ - Before the final curtain goes down On my life, I shall say to my Mother-Earth, “My gratitude-heart is all for you, All for you.”
+ - When we seek appreciation from others, we get not appreciation, but flattery.
+ - You fool, You have been dangling For such a long time! When will you seize the opportunity Or feel the necessity To untangle the taut knot Of your bondage-life?
+ - Let us serve the world soulfully. The pay we will receive for our service will be in the currency of gratitude, God’s gratitude, God the only gratitude.
+ - Outer fire we need to cook. Inner fire we need to liberate. God’s Fire we need to love.
+ - Of all the gifts You have offered to God, Your happiness-gift He treasures most.
+ - I’m not a weight lifter. I’m a seeker. Weight lifting is so insignificant in my life.
+ - There is no human being on earth who does not have the capacity to offer the message of peace to the world at large. But what is needed now is the soulful willingness.
+ - One positive seed-thought Has saved me, My entire life: My Lord Supreme Will always love me No matter what I do Or what I say Or even what I become.
+ - An unaspiring person believes according to what he achieves. An aspiring person achieves according to what he believes.
+ - A musician’s biography is written wherever he performs; everybody hears what he is playing.
+ - Instead of telling the world What it is supposed to do, Why don’t you immediately do it yourself? In this way, I assure you, Your happiness will be surprisingly multiplied.
+ - What comes to me unmistakably is what I carefully or carelessly invite.
+ - To come back to the secret of inner peace, our questioning and doubting mind is always wanting in peace. Our loving and dedicated heart is always flooded with inner peace.
+ - If we feel secure In the depths of our heart, We shall not challenge anybody, For inner confidence Is nothing short of Complete satisfaction.
+ - The whole world is looking for miracles. Every day it is dying to see miracles. But can there be any miracle More challenging, more illumining And more fulfilling Than to see and feel the infinite Beauty Of my Beloved Supreme Inside this tinier than the tiniest Gratitude-heart of mine?
+ - Meditate Silently. You will be able to create a totally new life for yourself.
+ - Not one But twenty-four self-giving-hours Every day I have For my use.
+ - Your heart will be shattered by sorrow If you force it to live In tomorrow’s ephemeral imagination-world Instead of in today’s eternal Reality-Now.
+ - It is better to make mistakes than to lie idle.
+ - When hope makes friends With patience, Hope will be able To live indefinitely.
+ - The beckoning Hands Of God’s hopeful Smile Will, without fail, one day greet The fruitful cries Of man’s prayerful heart.
+ - To be rich is to give a smile with no expectation of return.
+ - Why do we meditate? We meditate precisely because this world of ours has disappointed us and because failure looms large in our day-to-day life. We want fulfillment. We want joy, peace, bliss and perfection within and without. Meditation is the answer, the only answer.
+ - If we feel inwardly strong, we will have no need or desire to speak ill of others.
+ - There is no fundamental difference between one religion and another, because each religion embodies the ultimate Truth. Each religion is right, absolutely right, because each religion conveys the message of Truth in its own way.
+ - War forgets peace. Peace forgives war. War is the death of the life human. Peace is the birth of the Life Divine. Our vital passions want war. Our psychic emotions desire peace.
+ - This divine Compassion is spontaneous Delight. In it there is no feeling of separativity, no feeling that one is superior and the other is inferior. No! It is a feeling of oneness.
+ - What we call our joy, God calls our perfection. Each human being has come into the world with the message of perfection. Each human being will one day realize the highest Truth. Each human being is destined to be fulfilled. It is the birthright of our soul.
+ - This world of ours has everything save and except one thing: peace. And this peace has to start from within. If I have peace of mind, then only can I be of help to you. If you have peace of mind, then only can you be of help to me.
+ - To succeed in any field, Our enthusiasm-eyes must sparkle and our enthusiasm-hearts Must dance.
+ - Some seekers will do anything for their Self-realisation – except work for it.
+ - If you want to understand yourself, Then do not examine yourself. Just love yourself more sincerely, More soulfully And more self-givingly.
+ - World peace can blossom throughout the length and breadth of the world only when the world-peace-dreamers, world-peace-lovers and world-peace-servers desperately, sleeplessly and breathlessly long for the full manifestation of peace here on earth.
+ - My Lord does not want to know what I have done for Him. He just wants to know how I am. If he hears from me that I am happy, then he himself becomes exceedingly happy. In umistakable terms He tells me that my happiness is His real and only Satisfaction.
+ - The world’s oldest wisdom: each evil thought infuses the mind, sooner or later, with an unholy fear.
+ - Life and sports cannot be separated; they are one.
+ - Goodness Is oneness-love In perfect action.
+ - A moment of self-giving lifecan conquer the sorrowsof many long years.
+ - My mind’s cries tell me that everything on earth is tragic. My heart’s smiles tell me that everything on earth is magic.
+ - Do not try to entrap others with your haughty knowledge. To your wide surprise, they will entrap you with their lengthy ignorance.
+ - What is meditation? Meditation is our conscious awareness of something vast and infinite within us. Meditation grants us Peace, Light and Bliss.
+ - Not by blaming the world, not by shunning the world, but only be loving the world can I have peace of mind.
+ - Complete and total perfection will come about only when we feel that our perfection is no perfections as long as the rest of humanity remains imperfect.
+ - My heart needs only one thing. It needs to be guided Along the age-old path Of life-blossoming self-awareness.
+ - Real meditation we get from within or from a spiritual Master. We can never get it from books. From books we can get inspiration or an inner approach to the fulfilment of our outer life. But in order to have true meditation we have to go deep within or follow the guidance of a spiritual Master.
+ - Meditation stops the sound-loving mind.
+ - Each good thought that you have encouraged and nourished is your life’s true work of art.
+ - A heart of peaceIs always the bestProblem-solver.
+ - Is the world so unbearable? No! What we need is only a little more love for the world.
+ - Only by our positive thinking, by our bringing the positive qualities of others to the fore, will this world be able to make progress.
+ - Meditation is acceptance. It is the acceptance of life within us, without us and all around us. Acceptance of life is the beginning of human satisfaction.
+ - To hope is to send darkest night into exile.
+ - The reason I have entered into bodybuilding and weightlifting is to inspire everybody to pray and meditate so they can bring to the fore their own inner strength. If everybody brings to the fore his own inner strength, the world will eventually be inundated with peace.
+ - Since life is but a continuous series of experiences, everything ultimately helps me towards my final enlightenment.
+ - Patience, increasing patience.
+ - When you are right, everything around you is right, for the beautiful flow that is inside your heart has the capacity to spread its fragrance of oneness-light all around you.
+ - Meditation upon the unknown Thought He thought was real meditation. No, meditation is not and cannot be On any thought. Meditation is a conscious withdrawal From the thought-world. Meditation is the place Where Reality, Divinity and Immortality Can each claim their own Perennial existence-light.
+ - If you dare to fight against hatred, There is but one weapon: Love.
+ - What gives life its value if not its constant cry for self-transcendence?
+ - One of the main faults of a fool is that he never changes his mind.
+ - Do not judge but love and be loved, if you want to be really happy.
+ - Meditation tells you only one thing: God is. Meditation reveals to you only one truth: yours is the vision of God.
+ - Wrong thoughts are inside us just because we identify ourselves with these thoughts. If we identify with something else, immediately they have to leave us.
+ - Miracles are everywhere to be found When I surrender my infinite desires To my immortal aspirations.
+ - The way to become happy Is to think And to feel That the very best is yet to come.
+ - Either consciously or unconsciously we are searching for the highest Self, which is at once eternal and infinite.
+ - By hating that person, you have lost something very sweet in yourself.
+ - Hope and faith are two intimate brothers; they always go together. Hope nourishes faith and faith treasures hope.
+ - Meditation is the eye that sees the Truth, the heart that feels the Truth and the soul that realises the Truth.
+ - To deliberately criticise another individual may cause an indelible stain on the critic.
+ - If we live in our oneness-heart, we will feel the essence of all religions which is the love of God. Forgiveness, compassion, tolerance, brotherhood and the feeling of oneness are the signs of a true religion.
+ - Say I have set my goal at 300 pounds, and I cannot do it. The very fact that I have been devotedly practising and practising gives me joy, and the tenacity or perseverance that I am showing is itself progress. Anything that we do devotedly and soulfully helps us make progress.
+ - The secret of inner success is constancy to our highest character. -.
+ - Love is the only wealth that man absolutely needs. Love is the only wealth that God precisely is.
+ - If hope is just a mere wish, if it is just like making friends with fantasy, then consciousness will not respond to it. But if it is something significant, like a vision that is trying to blossom inside the heart of an individual, then consciousness will be elevated.
+ - What is realisation? Realisation is my conscious and constant sailing with my Inner Pilot in His Golden Boat towards the uncharted land, where sooner than at once beauty, divinity and Immortality seeds grow into the richest harvest.
+ - When we pray and meditate sincerely and soulfully, we receive an open-hearted invitation from heaven.
+ - When we listen to the Inner Voice, our outer life becomes full of peace.
+ - Love is hope. Hope is nectar.
+ - Cry within. Meditate within. Dive within. Your inner achievements will far outweigh your outer imperfections.
+ - Life is effort. So says the body. Life is blessing. So says the soul.
+ - We must see that God operates not only in us but in others as well. God also operates in our so-called enemies. But these are not our real enemies. Our real enemies are doubt, fear, anxiety and worry. When we do not cry to perfect others, but only try to perfect our own lives, then we will have joy.
+ - Man’s eternal question is:‘Who is God?’God’s immediate answer is:’My child, who else is God, if not you?
+ - What does peace do? Peace blossoms. What else? Peace spreads. What else? Peace illumines. What else? Peace fulfils.
+ - The power that dominates cannot solve world problems. The power that loves can solve world problems.
+ - It is not human nature to enjoy what we get with no effort.
+ - Not the power to conquer others but the power to become one with others is the ultimate power.
+ - I compete only with myself, and I try to become a better human being. This is my goal.
+ - When I meditate, I clearly see that God is already seated inside my heart.
+ - Meditation does not mean just sitting quietly for five or ten minutes. It requires conscious effort. The mind has to be made calm and quiet; at the same time, it has to be vigilant so as not to allow any distracting thoughts or desires to enter.
+ - Man thinks his mind’s love for world power and his heart’s love for world peace can live together. Indeed, this is the height of man’s stupidity.
+ - If we can feel that it is not our voice, not our fingers, but some reality deep inside our heart which is expressing itself, then we will know that it is the soul’s music.
+ - Meditation simplifies our outer life and energizes our inner life. Meditation gives us a natural and spontaneous life, a life that becomes so natural and spontaneous that we cannot breathe without being conscious of our own divinity.
+ - May peace-dreamers And peace-lovers Occupy the length and breadth Of the world.
+ - A perfect society is built upon mutual trust. Character is the source of that trust.
+ - Who is the winner? Not he who wins but he who has established his cheerful oneness with the result, which is an experience in the form of failure or success, a journey forward or a journey backward.
+ - Our soul lives in Peace and lives for Peace. If we live a life of peace, we are ever enriched and never impoverished. Unhorizoned is our inner peace; like the boundless sky, it encompasses all.
+ - Whether you accept or reject it, God’s Love for you is permanent.
+ - When we meditate we expand, spreading our wings like a bird, trying to enter consciously into Infinity, Eternity and Immortality, welcoming them into our aspiring consciousness. We see, feel and grow into the entire universe of Light-Delight.
+ - Instead of creating a reason why you cannot love the world, try to create a reason why you should and must love the world.
+ - Meditation is not an escape. Meditation is the acceptance of life in its totality, with a view to transforming it for the highest manifestation of the divine Truth here on earth.
+ - You and I create the world by the vibrations that we offer to the world.
+ - Once you have established Your inner contact With your inner Pilot, Your life’s transformation-victory Will not remain a far cry.
+ - Even now when I am answering a question I am at the height of my own meditation.
+ - When you drive, you are doing several things at once. You are using your eyes, ears, hands, your mind. If you have meditated for many years and have reached a lofty height in your meditation, as I have, you can meditate while running and cycling and painting.
+ - Every day there is only one thing to learn: how to be honestly happy.
+ - How beautiful to look at When my prayer Lights a candle of hope In my heart.
+ - Fear is bound to disappear when you realize that failure is not something shameful, damaging, destructive, or painful, but something natural.
+ - To hope is to feel the presence of the inner sun. The inner sun is; the outer sun becomes.
+ - Look at your heart-flower and smile. You will be able to solve your most pressing problems.
+ - God is not a thing to be achieved, but a thing to be.
+ - Only two miracles are worth seeing: The miracle of loving And The miracle of forgiving.
+ - Lack of harmony comes when I feel that I know how to do something better than you. Lack of harmony is the song and dance of superiority. Because everybody feels superior, disharmony at every moment is entering into our lives.
+ - Character is the colossal hope of human improvement within and without.
+ - Let us not worry about the future. Let us only do the right thing Today, At this moment, Here and now. Let the future take care of itself.
+ - There is nothing more powerful than peace.
+ - Life is nothing but the expansion of love. We can cultivate divine love by entering into the Source. The Source is God, who is all Love.
+ - If we can invoke Peace and then offer it to somebody else, we will see how Peace expands from one to two persons, and gradually to the world at large.
+ - Our goal is to go from bright to brighter to brightest, from high to higher to highest. And even in the highest, there is no end to our progress, for God Himself is inside each of us and God at every moment is transcending His own Reality.
+ - This mind is the doubting mind, and in the doubting mind we can never feel the presence of peace. We can feel the presence of peace only in the loving heart.
+ - And in self-giving we become really happy. Real humility is the expansion of our consciousness and our service.
+ - God has not forgotten To give us peace. He is just waiting for us To ask for it.
+ - Each child born on earth Is a unique promise of God To God Himself.
+ - Love the world With your heart’s dreams. Serve the world With your life’s promises.
+ - Love and liveAnd live and loveEach momentTo the fullest.
+ - I take the greatest lesson from compassion – it takes away all the conceit out of my life.
+ - I live in between My heart’s compassion-rain And my life’s oneness-gain.
+ - I begin by imagining the impossible and end by accomplishing the impossible.
+ - Mysticism, poor mysticism! When it is underestimated and oversimplified, it comes down from its original sphere and stands beside religion.
+ - My soul-bird loves my body-cage Only when it is kept fit, Pure and absolutely immaculate.
+ - The greatest misfortune that can come to a human being is to lose his inner peace. No outer force can rob him of it. It is his own thoughts, his own actions, that rob him of it.
+ - The difficulty is that we try to perfect others before we perfect ourselves.
+ - Gratitude is not a mere word; it is not a mere concept. It is the living breath of your real existence on earth.
+ - Now is the time to make good use of time. Today is the day to begin a perfect day.
+ - Prayer and meditation are my inner secret and my outer secret. My muscles are next to nothing compared to the muscles of the professional bodybuilders and weightlifters. It is because of the strength of my prayer-life and meditation-life that I am able to accomplish these feats of strength.
+ - A single thought has the power of a bullet: either it can destroy you or it can help you immensely.
+ - Consciousness is the inner spark or inner link in us, the golden link within us that connects our highest and most illumined part with our lowest and most unillumined part. Consciousness is the connecting link between Heaven and earth.
+ - This world of ours has everything except one thing: peace. Everybody wants and needs peace, whether he be a child or an octogenarian.
+ - Forgive, you will have happiness. Forget, you will have satisfacton. Forgive and forget, You will have everlasting peace Within and without.
+ - There is a peace That fruitfully lives for me Infinitely more Than I can live for myself.
+ - Hope is not an idle term. Hope is the reality that can and does reveal itself to us at God’s choice hour. To hope is to know the secret of achievement.
+ - Among the fearless soldiers that fight for your victory in life, character has no equal.
+ - If you really want to love humanity, then you have to love humanity as it is now.
+ - You hate someone whom you really wish to love, but whom you cannot love. Perhaps he himself prevents you. That is a disguised form of love.
+ - At times to think of one’s outer helplessness is good, but to think always of one’s inner strength is infinitely better.
+ - Peace is something that we become. Once we become peace, then only can we give peace to the world and receive peace from the world.
+ - To free our body from fear what we need is the glorious experience of the soul.
+ - Smile, my friends, my soulful friends, smile. Let us smile. True, this world of ours is full of suffering and excruciating pangs, but that is no reason why we should not smile.
+ - Not by talking, but by praying And becoming something good, Can we offer peace to the world.
+ - Everybody has God inside, but not everybody is able to see God within. One can see God only when one cries for Him. Those who cry for God and pray to God can realise God.
+ - If you play divine music, spiritual music, then you are bound to give and get satisfaction.
+ - When we meditate, what we actually do is enter into the deeper part of our being. At that time, we are able to bring to the fore the wealth that we have deep within us.
+ - No religion is absolutely perfect. Yet not only do we fight for religion, but also are we often willing to sacrifice our lives for it. And what we hopelessly fail to do is to live it. A true religion is that which has no caste, no creed, no colour. It is but an all-uniting and all-pervading embrace.
+ - The inner light actually comes from the soul; it is already inside us. The moment we can have free access to our soul, we will see that this light is coming to the fore to permeate our whole outer existence.
+ - If we know the divine art of concentration, if we know the divine art of meditation, if we know the divine art of contemplation, easily and consciously we can unite the inner world and the outer world.
+ - A peaceful worldIs an immediate, utter and absoluteNecessity.
+ - Hope is man’s preparation for the unknown.
+ - The problem with fault-findingIs that he who finds fault with othersIs in no way a happy person Even after he has successfully Accomplished his task.
+ - O kindle the fire of happiness ! Therein I shall see The door of friendliness, The room of greatness And the palace of godness. I shall see, I shall see.
+ - To follow the crowd Is to miss The destination.
+ - I have opened up an account With God’s Heart-Bank. Therefore, I see nowhere The battering waves of poverty-thoughts.
+ - You must direct your full, intense concentration on the heart. You must feel that you are not the mind. You have to feel that you are growing into the heart. You are only the heart and nothing else.
+ - Once we have this inner peace, world peace can be achieved in the twinkling of an eye.
+ - Love your enemy. It will not only puzzle him, But finally illumine him.
+ - You do not have to be The fastest starter. Just be a starter! You will, without fail, Reach your destination-sun.
+ - Character is just what we inwardly are and outwardly do.
+ - A spiritual life means: It is now or never.
+ - The atom has taught me that the little things do count – most.
+ - The heart-flute Knows how to charm the world.
+ - If your Lord Supreme requests you to do something, rest assured he has already given you the capacity – even more than necessary – long before you actually need it.
+ - Do not cherish suffering. Don’t act like a fool. Don’t think that your suffering is going to accelerate your spiritual progress.
+ - Peace we achieve When we do not expect anything From the world, But only give, give, and give Unconditionally What we have and what we are.
+ - There is no yawning gulf between man and God. Through his aspiration and meditation, Man can become conscious of his oneness with God.
+ - Do you want to change the world? Then change yourself first. Do you want to change yourself? Then remain completely silent inside the silence-sea.
+
+349 quotes

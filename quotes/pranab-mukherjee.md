@@ -1,0 +1,23 @@
+ - No problems are ever resolved by violence. It only aggravates the pain and the hurt on every side.
+ - As Indians, we must of course learn from the past; but we must remain focused on the future. In my view, education is the true alchemy that can bring India its next golden age.
+ - Teaching was my transition from student life to working life. In those days, our system of education was a little different. The number of students in each class was huge. I think in political science general, which I taught, it was around 100.
+ - Our federal Constitution embodies the idea of modern India: it defines not only India but also modernity.
+ - Let Jammu and Kashmir lead the way in the building of a new future for India. Let it set an example to the rest of India and the world by showing how the entire region can be transformed into a zone of peace, stability and prosperity.
+ - I am comfortable at the height where destiny has put me.
+ - The young people of India will build a strong and powerful nation, a nation that is politically mature and economically strong, a nation whose people enjoy both a high quality of life as well as justice.
+ - The government of India and the government of Jammu and Kashmir are determined to ensure that every Kashmiri lives with dignity having equal rights and equal opportunities.
+ - Indian president does not determine policy. Here President is not the policy maker. In the name of the president, the cabinet takes the policy decision.
+ - India is a land of plenty inhibited by poverty; India has an enthralling, uplifting civilization that sparkles not only in our magnificent art, but also in the enormous creativity and humanity of our daily life in city and village.
+ - If the rise of European colonisation began in 18th century India, then the rallying cry of ‘Jai Hind!’ also signalled its end in 1947.
+ - We are all equal children before our mother; and India asks each one of us, in whatsoever role we play in the complex drama of nation-building, to do our duty with integrity, commitment and unflinching loyalty to the values enshrined in our Constitution.
+ - In our generation, the role models were Gandhi and Nehru. We revered them. They were venerated personalities. I read almost every speech of Nehru.
+ - I personally believe that the office of the President of India is not to be sought. It is to be offered.
+ - There is no humiliation more abusive than hunger.
+ - Of course, running a coalition government in a country like India is a difficult task. More so when Congress leads the coalition, since most of the political parties were anti-Congress. To have a coalition, to run a coalition government, you require a lot of adjustments, a lot of flexibility.
+ - I have seen vast, perhaps unbelievable, changes during the journey that has brought me from the flicker of a lamp in a small Bengal village to the chandeliers of Delhi.
+ - In the 1980s, we were advised, why don’t you follow Reaganomics or Thatcherite economics. We said, yes, there are good points, let’s see how we can fit them in the Indian economy. Every country has its own way of moving forward.
+ - Trickle-down theories do not address the legitimate aspirations of the poor. We must lift those at the bottom so that poverty is erased from the dictionary of modern India.
+ - India is content with itself, and driven by the will to sit on the high table of prosperity. It will not be deflected in its mission by noxious practitioners of terror.
+ - I feel that when the reforms in UN take place and the Security Council will be expanded in the permanent membership category, India will have a place, I hope so, but first it is to be expanded.
+
+21 quotes

@@ -1,0 +1,47 @@
+ - Ever since I learnt about confirmation bias I’ve started seeing it everywhere.
+ - We were creating a world where the smartest way to survive is to be bland.
+ - Obviously, I like to write stories that are page-turners. But I always try my very, very hardest to be as factually true as possible.
+ - It’s a lot harder to convince people you’re sane than it is to convince them you’re crazy.
+ - I wondered if sometimes the difference between a psychopath in Broadmoor and a psychopath on Wall Street was the luck of being born into a stable, rich family.
+ - There is no evidence that we’ve been placed on this planet to be especially happy or especially normal. And in fact our unhappiness and our strangeness, our anxieties and compulsions, those least fashionable aspects of our personalities, are quite often what lead us to do rather interesting things.
+ - It’s not a good idea to define the boundaries of normality by tearing apart people who are outside of it.
+ - Friends are the fruitcake of life – some nutty, some soaked in alcohol, some sweet.
+ - Bedlam: an institution with a history so fearsome it gave its name to a synonym for chaos and pandemonium.
+ - Success is always less funny than failure.
+ - Suddenly, madness was everywhere, and I was determined to learn about the impact it had on the way society evolves. I’ve always believed society to be a fundamentally rational thing, but what if it isn’t? What if it is built on insanity?
+ - The laughing way we make damaged people our playthings, it’s so dehumanizing.
+ - No, people back home don’t realize why there is this kind of need for heroes in America at the moment. People in Britain don’t really understand what’s going on here. They don’t understand why Camp X-ray exists.
+ - Feeling no remorse must be a blessing when all you have are your memories.
+ - Capitalism, at its most remorseless, is a physical manifestation of psychopathy.
+ - My paranoia never ends, but I haven’t been paranoid about being spied on my shadowy forces for some time now.
+ - Going to Africa. Hope I don’t get AIDS. Just kidding. I’m white!
+ - The snowflake never needs to feel responsible for the avalanche.
+ - Corporate and political and religious psychopaths ruin economies. They ruin societies.
+ - We want to see ourselves as curious and open-minded and smart and understanding things in terms of context and nuance, but when someone tries to do that in the midst of a shaming they’re turned on.
+ - We’re living in post-nuance online times.
+ - I write funny nonfiction adventure books about crazy, serious worlds.
+ - Well, I had nightmares when I was doing the Klan story all the time. I had a recurring nightmare of basically being exposed as a Jew inside the Klan compound.
+ - But on the extremist side I didn’t get any rejections at all. Everyone agreed to talk to me.
+ - Most goat-related military activity is still highly classified.
+ - I am the neurological opposite of a psychopath, in that I feel anxious almost all the time. It must be great to not constantly feel like you’ve got someone living inside your face, shooting you with a mini Taser.
+ - Oh, you know what bloggers are like, they write and write and write. I don’t know why, because they’re not being paid.
+ - Sometimes the personalities at the helm of the madness industry are, with their drives and obsessions, as mad in their own way as those they study. And that relatively ordinary people are, more and more, defined by their maddest edges.
+ - My worryingly paradoxical thought process could be summarized thus: Thank God I don’t believe in the secret rulers of the world. Imagine what the secret rulers of the world might do to me if I did!
+ - Nothing uniquely bad has happened to me in my personal life, but all the regular little bad things have accumulated to make me a neurotic person. And these adventures are my way of trying to make sense of that.
+ - At first, I did stories on people who were maybe just eccentric. Omar was a natural progression from that.
+ - My ideal world was the early days of Twitter, where everyone was curious about each other and everyone saw it as kind of a window into people’s lives where we could be compassionate and curious and empathetic and we could tell each other secrets.
+ - Twitter wanted to become a more egalitarian justice system, but instead it became a draconian one.
+ - I wasn’t in any way a kind of soothsayer or not surprised when Sept. 11 happened. I was absolutely shocked.
+ - Trying to solve the mystery is what I enjoy most about writing.
+ - Twitter hates tabloids, but Twitter is constantly acting like a tabloid, repeating the mistakes of the things we’re hoping to better.
+ - The way I portrayed the people is accurate. Because they’re human beings and we have a kind of wonderful capacity to be absurd and ridiculous.
+ - Of course there are people who would like to eat breakfast without the screams of toddlers all around them, but those people should get over themselves and stop being stuck up and idiotic.
+ - There’s definitely evidence that capitalism at its most ruthless rewards psychopathic behavior. When you look at the worst corners of the American health insurance industry or the sub-prime banking market, it really feels like the more psychopathically someone behaves, the more it’s rewarded.
+ - In the midst of a burning-hot shaming, calling for patience and context and understanding and empathy can really land you in trouble.
+ - I’m not what you’d call a fearless type of person.
+ - We have to understand how the extremists got the way they are. Without that kind of understanding, we’d never really get to know them. I put in nothing about their childhoods. But what I have put in is stuff about the weird symbiotic relationship between us and them.
+ - I have thought sometimes that the sanest people, the people who are just very balanced, very happy, are probably lower achieving than other people. My kind of irrationality happens to be fear or anxiety.
+ - Discover the time of day when you write best, and write then. For me it’s about 7 am to noon. For other people it’s overnight. Try not to do anything other than write between those times.
+ - You can say anything to David Icke and he will accept it and put it into his ideology.
+
+45 quotes

@@ -1,0 +1,27 @@
+ - Religions survive mainly because they brainwash the young.
+ - I am putting together a secular bible. My Genesis is when the apple falls on Newton’s head.
+ - Humanism is the philosophy that you should be a good guest at the dinner table of life.
+ - A human lifespan is less than a thousand months long. You need to make some time to think how to live it.
+ - There is a beautiful and life-enhancing alternative outlook that offers insight, consolation, inspiration and meaning, which has nothing to do with religion, and everything to do with the best, most generous, most sympathetic understanding of human reality.
+ - And I say, the meaning of life is what you make it. There will be as many different meaningful lives as there are people to live them.
+ - I do not believe that there are any such things as gods and goddesses, for exactly the same reasons as I do not believe there are fairies, goblins or sprites, and these reasons should be obvious to anyone over the age of ten.
+ - To read is to fly: it is to soar to a point of vantage which gives a view over wide terrains of history, human variety, ideas, shared experience and the fruits of many inquiries.
+ - Try lighting your house by prayer instead of electricity and see which one works.
+ - Nothing is truly unnatural, because everything that exists, including human intelligence, is a product of nature. If human intelligence can devise ways for the genes from two men to result in a child, their doing so is an entirely natural event.
+ - I believe that decisions about the timing and manner of death belong to the individual as a human right. I believe it is wrong to withhold medical methods of terminating life painlessly and swiftly when an individual has a rational and clear-minded sustained wish to end his or her life.
+ - Christian churches and Muslim groups have no more right to have their say than women’s institutes or trades unions. The government has actively encouraged faith-based education, and therefore given a megaphone to religious voices and fundamentalists.
+ - Science is the outcome of being prepared to live without certainty and therefore a mark of maturity. It embraces doubt and loose ends.
+ - Misuse of reason might yet return the world to pre-technological night; plenty of religious zealots hunger for just such a result, and are happy to use the latest technology to effect it.
+ - Inculcating the various competing – competing, note – falsehoods of the major faiths into small children is a form of child abuse, and a scandal.
+ - Look at the blogosphere – the biggest lavatory wall in the universe, a palimpsest of graffiti and execration.
+ - Religion and science have a common ancestor – ignorance.
+ - When I was 14 a chaplain at school gave me a reading list. I read everything and I went back to him with a question: how can you really believe in this stuff?
+ - Future generations may or may not judge Wittgenstein to be one of the great philosophers. Even if they do not, however, he is sure always to count as one of the great personalities of philosophy. From our perspective it is easy to mistake one for the other; which he is time will tell.
+ - It takes a certain ingenuous faith – but I have it – to believe that people who read and reflect more likely than not come to judge things with liberality and truth.
+ - Just as modern motorways have no room for ox-carts or wandering pedestrians, so modern society has little place for lives and ways that are too eccentric.
+ - Middle age has been defined as what happens when a person’s broad mind and narrow waist change places.
+ - If there is anything worth fearing in the world, it is living in such a way that gives one cause for regret in the end.
+ - The media no longer hesitate to whip up lurid anxieties in order to increase sales, in the process undermining social confidence and multiplying fears.
+ - It doesn’t have to be the Grand Canyon, it could be a city street, it could be the face of another human being – Everything is full of wonder.
+
+25 quotes

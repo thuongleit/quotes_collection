@@ -1,0 +1,61 @@
+ - A great marriage is not when the perfect couple comes together. It is when an imperfect couple learns to enjoy their differences. ~~Dave Meurer
+ - It is not a lack of love, but a lack of friendship that makes unhappy marriages. ~~Friedrich Nietzsche
+ - They say all marriages are made in heaven, but so are thunder and lightning. ~~Clint Eastwood
+ - If there is such a thing as a good marriage, it is because it resembles friendship rather than love. ~~Michel de Montaigne
+ - What counts in making a happy marriage is not so much how compatible you are but how you deal with incompatibility. ~~Leo Tolstoy
+ - Many marriages would be better if the husband and wife clearly understood that they’re on the same side.  ~~Zig Ziglar
+ - Remember that children, marriages, and flower gardens reflect the kind of care they get. ~~H. Jackson Brown Jr.
+ - A good marriage is where both people feel like they're getting the better end of the deal. ~~Anne Lamott
+ - You can measure the happiness of a marriage by the number of scars that each partner carries on their tongues, earned from years of biting back angry words. ~~Elizabeth Gilbert
+ - Keep your eyes wide open before marriage, half shut afterwards. ~~Benjamin Franklin
+ - I think of how each person in a marriage owes it to the other to find individual happiness, even in a shared life. That this is the only way to grow together, instead of apart. ~~Emily Giffin
+ - The value of marriage is not that adults produce children, but that children produce adults. ~~Peter De Vries
+ - Before marriage, a girl has to make love to a man to hold him. After marriage, she has to hold him to make love to him. ~~Marilyn Monroe
+ - Marriage is like putting your hand into a bag of snakes in the hope of pulling out an eel. ~~Leonardo da Vinci
+ - Some people claim that marriage interferes with romance. There's no doubt about it. Anytime you have a romance, your wife is bound to interfere. ~~Groucho Marx
+ - Marriage becomes hard work once you have poured the entirety of your life's expectations for happiness into the hands of one mere person. Keeping that going is hard work. ~~Elizabeth Gilbert
+ - A marriage is always made up of two people who are prepared to swear that only the other one snores. ~~Terry Pratchett
+ - Love without truth is sentimentality; it supports and affirms us but keeps us in denial about our flaws. Truth without love is harshness; it gives us information but in such a way that we cannot really hear it. ~~Timothy Keller
+ - Let us now set forth one of the fundamental truths about marriage: the wife is in charge. ~~Bill Cosby
+ - The problem with marriage is that it ends every night after making love, and it must be rebuilt every morning before breakfast. ~~Gabriel Garcí­a Márquez
+ - Marriage: If you want something to last forever, you treat it differently. You shield it and protect it. You never abuse it. You don’t expose it to the elements. You don’t make it common or ordinary. If it ever becomes tarnished, you lovingly polish it until it gleams like new. It becomes special because you have made it so, and it grows more beautiful and precious as time goes by. ~~F. Burton Howard
+ - There is a sacredness in tears. They are not the mark of weakness, but of power. They speak more eloquently than ten thousand tongues. They are the messengers of overwhelming grief, of deep contrition, and of unspeakable love. ~~Washington Irving
+ - There is no greater happiness for a man than approaching a door at the end of a day knowing someone on the other side of that door is waiting for the sound of his footsteps. ~~Ronald Reagan
+ - Love like there’s no tomorrow, and if tomorrow comes, love again. ~~Max Lucado
+ - Come grow old with me. The best is yet to be. ~~William Wordsworth
+ - Love doesn’t just sit there, like a stone; it has to be made, like bread, remade all the time, made new. ~~Ursula K. Le Guin
+ - Marriage is not a ritual or an end. It is a long, intricate, intimate dance together and nothing matters more than your own sense of balance and your choice of partner. ~~Amy Bloom
+ - Love does not consist in gazing at each other, but in looking outward together in the same direction. ~~Antoine de Saint-Exupéry
+ - I have found the paradox, that if you love until it hurts, there can be no more hurt, only more love. ~~Mother Teresa
+ - Live so that when your children think of fairness, caring, and integrity, they think of you. ~~H. Jackson Brown Jr.
+ - A successful marriage requires falling in love many times, always with the same person. ~~Mignon McLaughlin
+ - Love is an ideal thing, marriage a real thing. ~~Johann Wolfgang von Goethe
+ - There is no remedy for love, but to love more. ~~Henry David Thoreau
+ - Love is like a friendship caught on fire. In the beginning a flame, very pretty, often hot and fierce, but still only light and flickering. As love grows older, our hearts mature and our love becomes as coals, deep-burning and unquenchable. ~~Bruce Lee
+ - In solitude, where we are least alone. ~~Lord Byron
+ - The greatest weakness of most humans is their hesitancy to tell others how much they love them while they’re alive. ~~O. A. Battista
+ - A man in love is incomplete until he has married. Then he’s finished. ~~Zsa Zsa Gabor
+ - How can a woman be expected to be happy with a man who insists on treating her as if she were a perfectly normal human being. ~~Oscar Wilde
+ - Years of love have been forgot, In the hatred of a minute. ~~Edgar Allan Poe
+ - Don’t worry that children never listen to you; worry that they are always watching you. ~~Robert Fulghum
+ - We waste time looking for the perfect lover, instead of creating the perfect love. ~~Tom Robbins
+ - In the end, the love you take is equal to the love you make. ~~Paul McCartney
+ - Marriage is an alliance entered into by a man who can’t sleep with the window shut, and a woman who can’t sleep with the window open. ~~George Bernard Shaw
+ - If you love somebody, let them go, for if they return, they were always yours. If they don’t, they never were. ~~Khalil Gibran
+ - An archaeologist is the best husband a woman can have. The older she gets the more interested he is in her. ~~Agatha Christie
+ - When I have learned to love God better than my earthly dearest, I shall love my earthly dearest better than I do now. ~~C. S. Lewis
+ - What can you do to promote world peace? Go home and love your family. ~~Mother Teresa
+ - Men marry women with the hope they will never change. Women marry men with the hope they will change. Invariably they are both disappointed. ~~Albert Einstein
+ - In my house I’m the boss, my wife is just the decision maker. ~~Woody Allen
+ - We loved with a love that was more than love. ~~Edgar Allan Poe
+ - There is no more lovely, friendly and charming relationship, communion or company than a good marriage. ~~Martin Luther
+ - I love being married. It’s so great to find that one special person you want to annoy for the rest of your life. ~~Rita Rudner
+ - A good marriage would be between a blind wife and a deaf husband. ~~Michel de Montaigne
+ - Out beyond ideas of wrongdoing and rightdoing there is a field. I’ll meet you there. When the soul lies down in that grass the world is too full to talk about. ~~Rumi
+ - No matter how happily a woman may be married, it always pleases her to discover that there is a nice man who wishes that she were not. ~~H. L. Mencken
+ - But let there be spaces in your togetherness and let the winds of the heavens dance between you. Love one another but make not a bond of love: let it rather be a moving sea between the shores of your souls. ~~Khalil Gibran
+ - Christmas, my child, is love in action. Every time we love, every time we give, it’s Christmas. ~~Dale Evans
+ - Don’t smother each other. No one can grow in the shade. ~~Leo Buscaglia
+ - Happiness equals reality minus expectations. ~~Tom Magliozzi
+
+59 quotes

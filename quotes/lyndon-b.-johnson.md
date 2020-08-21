@@ -1,0 +1,281 @@
+ - Yesterday is not ours to recover, but tomorrow is ours to win or lose.
+ - Doing the right thing is not the problem. Knowing what the right thing is, that’s the challenge.
+ - If you’re not listening, you’re not learning.
+ - There are no problems we cannot solve together, and very few that we can solve by ourselves.
+ - Nothing comes free. Nothing. Not even good, especially not good.
+ - Peace is a journey of a thousand miles and it must be taken one step at a time.
+ - Come now. let us reason together.
+ - Education is the key to opportunity in our society, and the equality of educational opportunity must be the birthright of every citizen.
+ - I’ll tell you what’s at the bottom of it. If you can convince the lowest white man he’s better than the best colored man, he won’t notice you’re picking his pocket. Hell, give him somebody to look down on, and he’ll empty his pockets for you.
+ - I’m gonna hunker down like a jack rabbit in a dust storm.
+ - The noblest search is the search for excellence.
+ - Until justice is blind to color, until education is unaware of race, until opportunity is unconcerned with the color of men’s skins, emancipation will be a proclamation but not a fact.
+ - Art is a nation’s most precious heritage. For it is in our works of art that we reveal to ourselves and to others the inner vision which guides us as a nation. And where there is no vision, the people perish.
+ - At the desk where I sit, I have learned one great truth. The answer for all our national problems – the answer for all the problems of the world – come to a single word. That word is “education.”
+ - Success only feeds the appetite of aggression.
+ - You aren’t learning anything when you’re talking.
+ - If one morning I walked on top of the water across the Potomac River, the headline that afternoon would read: ‘President Can’t Swim.’
+ - Education is not a problem. Education is an opportunity.
+ - I have learned that only two things are necessary to keep one’s wife happy. First, let her think she’s having her own way. And second, let her have it.
+ - If we quit Vietnam, tomorrow we’ll be fighting in Hawaii, and next week we’ll have to fight in San Francisco.
+ - If we are to live together in peace, we must come to know each other better.
+ - Light at the end of the tunnel? We don’t even have a tunnel; we don’t even know where the tunnel is.
+ - Books and ideas are the most effective weapons against intolerance and ignorance.
+ - A President’s hardest task is not to do what is right, but to know what is right.
+ - I want real loyalty. I want someone who will kiss my ass in Macy’s window, and say it smells like roses.
+ - This right to vote is the basic right without which all others are meaningless. It gives people, people as individuals, control over their own destinies.
+ - Voting is the first duty of democracy.
+ - I am a freeman, an American, a United States Senator, and a Democrat, in that order.
+ - The classroom – not the trench – is the frontier of freedom now and forevermore.
+ - In a nation of millions and a world of billions, the individual is still the first and basic agent of change.
+ - The land flourished because it was fed from so many sources – because it was nourished by so many cultures and traditions and peoples.
+ - Republicans simply don’t know how to manage the economy.
+ - Life is never easy. There is work to be done and obligations to be met – obligations to truth, to justice, and to liberty.
+ - All I have I would have given gladly not to be standing here today.
+ - Control of space means control of the world.
+ - At times history and fate meet at a single time in a single place to shape a turning point in man’s unending search for freedom.
+ - We must open the doors of opportunity. But we must also equip our people to walk through those doors.
+ - The separation of church and state is a source of strength, but the conscience of our nation does not call for separation between men of state and faith in the Supreme Being.
+ - Throughout my entire public career I have followed the personal philosophy that I am a free man, an American, a public servant, and a member of my party, in that order always and only.
+ - We did not choose to be the guardians of the gate, but there is no one else.
+ - To sustain an environment suitable for man, we must fight on a thousand battlegrounds. Despite all of our wealth and knowledge, we cannot create a redwood forest, a wild river, or a gleaming seashore.
+ - The fact that a man is a newspaper reporter is evidence of some flaw of character.
+ - If government is to serve any purpose it is to do for others what they are unable to do for themselves.
+ - The thing I would like to do most is to find somehow to bring peace to the world. It has eluded me.
+ - The best fertilizer for a piece of land is the footprints of its owner.
+ - Every man has a right to a Saturday night bath.
+ - If future generations are to remember us more with gratitude than sorrow, we must achieve more than just the miracles of technology. We must also leave them a glimpse of the world as it was created, not just as it looked when we got through with it.
+ - Doing what’s right isn’t the problem. It is knowing what’s right.
+ - The American West is just arriving at the threshold of its greatness and growth. Where the West of yesterday is glamorized in our fiction, the future of the American West now is both fabulous and factual.
+ - Above the pyramid on the great seal of the United States it says in Latin: “God has favored our undertaking.” God will not favor everything that we do. It is rather our duty to divine His will.
+ - If we must disagree, let’s disagree without being disagreeable.
+ - When the burdens of the presidency seem unusually heavy, I always remind myself it could be worse. I could be a mayor.
+ - For this is what America is all about. It is the uncrossed desert and the unclimbed ridge. It is the star that is not reached and the harvest that is sleeping in the unplowed ground.
+ - Education will not cure all the problems of society, but without it no cure for any problem is possible.
+ - Every child must be encouraged to get as much education as he has the ability to take. We want this not only for his sake – but for the nation’s sake.
+ - Let us close the springs of racial poison. Let us pray for wise and understanding hearts. Let us lay aside irrelevant differences and make our nation whole.
+ - I’m the only president you’ve got.
+ - I will do my best. That is all I can do. I ask for your help – and God’s.
+ - In the years since then, those four freedoms – freedom of speech, freedom of worship, freedom from want, and freedom from fear – have stood as a summary of our aspirations for the American Republic and for the world.
+ - We must change to master change.
+ - It is a truism that education is no longer a luxury. Education in this day and age is a necessity.
+ - There’s something special for everyone to do. Remember, no experience is a bad experience unless you gain nothing from it.
+ - Greater love hath no man than to attend the Episcopal Church with his wife.
+ - Of those to whom much is given, much is asked.
+ - I am a compromiser and maneuverer. I try to get something. That’s the way our system works.
+ - A clear stream, a long horizon, a forest wilderness and open sky – these are man’s most ancient possessions. In a modern society, they are his most priceless.
+ - Once we considered education a public expense; we know now that it is a public investment.
+ - War is always the same. It is young men dying in the fullness of their promise. It is trying to kill a man that you do not even know well enough to hate. Therefore, to know war is to know that there is still madness in the world.
+ - Never miss an opportunity to say a word of congratulation upon anyone’s achievement.
+ - We are not about to send American boys 9 or 10 thousand miles away from home to do what Asian boys ought to be doing for themselves.
+ - As we maintain the vigil of peace, we must remember that justice is a vigil, too-a vigil we must keep in our own streets and schools and among the lives of all our people-so that those who died here on their native soil shall not have died in vain.
+ - The guns and the bombs, the rockets and the warships, are all symbols of human failure.
+ - Every citizen will be able, in his productive years when he is earning, to insure himself against the ravages of illness in his old age.
+ - The vote is the most powerful instrument ever devised by man for breaking down injustice and destroying the terrible walls which imprison men because they are different from other men.
+ - Democrats legislate; Republicans investigate.
+ - If we become tow people-the suburban affluent and the urban poor, each filled with mistrust and fear of the other-then we shall effectively cripple each generation to come.
+ - A man without a vote is man without protection.
+ - A compassionate government keeps faith with the trust of the people and cherishes the future of their children. Through compassion for the plight of one individual, government fulfills its purpose as the servant of all the people.
+ - The hungry world cannot be fed until and unless the growth of its resources and the growth of its population come into balance. Each man and woman-and each nation-must make decisions of conscience and policy in the face of this great problem.
+ - Every citizen, regardless of his race, creed, or color, is entitled to equal justice.
+ - While you’re saving your face, you’re losing your ass.
+ - The fifth freedom is freedom from ignorance.
+ - We can draw lessons from the past, but we cannot live in it.
+ - The American city should be a collection of communities where every member has a right to belong. It should be a place where every man feels safe on his streets and in the house of his friends.
+ - Boys, it is just like the Alamo. Somebody should have by God helped those Texans. I’m going to Vietnam.
+ - Any man who’s not willing to take half a loaf in a negotiation, well, that man never went to bed hungry.
+ - Conservation is ethically sound. It is rooted in our love of the land, our respect for the rights of others, our devotion to the rule of law.
+ - No national sovereignty rules in outer space. Those who venture there go as envoys of the entire human race. Their quest, therefore, must be for all mankind, and what they find should belong to all mankind.
+ - The crotch, down where your nuts hang, is always a little too tight.
+ - I’m tired. I’m tired of feeling rejected by the American people. I’m tired of waking up in the middle of the night worrying about the war.
+ - President Can’t Swim.
+ - Poverty must not be a bar to learning and learning must offer an escape from poverty.
+ - We have talked long enough in this country about equal rights. It is time now to write the next chapter – and to write it in the books of law.
+ - We believe, that is, you and I, that education is not an expense. We believe it is an investment.
+ - Democracy is a constant tension between truth and half-truth and, in the arsenal of truth, there is no greater weapon than fact.
+ - This is not a jungle war, but a struggle for freedom on every front of human activity.
+ - One hundred years ago, the slave was freed. One hundred years later, the Negro remains in bondage to the color of his skin.
+ - To hunger for use and to go unused is the worst hunger of all.
+ - There are two kinds of speeches: the Mother Hubbard speech, which, like the garment, covers everything but touches nothing, and the French bathing suit speech, which covers only the essential points.
+ - Effective law enforcement and social justice must be pursued together, as the foundation of our efforts against crime.
+ - We live in a world that has narrowed into a neighborhood before it has broadened into a brotherhood.
+ - We preach the virtues of democracy abroad. We must practice its duties here at home. Voting is the first duty of democracy.
+ - So, I would appeal to my fellow Americans by saying, the only real road to progress for free people is through the process of law and that is the road that America will travel.
+ - I will not seek, and I will not accept the nomination of my party for another term as your president.
+ - Reporters are like puppets. They simply respond to the pull of the most powerful strings.
+ - I believe in the American tradition of separation of church and state which is expressed in the First Amendment to the Constitution. By my office – and by personal conviction – I am sworn to uphold that tradition.
+ - Organized crime constitutes nothing less than a guerilla war against society.
+ - I am going to build the kind of nation that President Roosevelt hoped for, President Truman worked for, and President Kennedy died for.
+ - They call upon us to supply American boys to do the job that Asian boys should do.
+ - This administration here and now declares unconditional war on poverty.
+ - What convinces is conviction.
+ - Today our problem is not making miracles, but managing them.
+ - It is the excitement of becoming – always becoming, trying, probing, falling, resting, and trying again- but always trying and always gaining.
+ - If you have a mother-in-law with only one eye and she has it in the center of her forehead, don’t keep her in the living room.
+ - It is always a strain when people are being killed. I don’t think anybody has held this job who hasn’t felt personally responsible for those being killed.
+ - When the family collapses, it is the children that are usually damaged. When it happens on a massive scale, the community itself is crippled.
+ - Presidents quickly realize that while a single act might destroy the world they live in, no one single decision can make life suddenly better or can turn history around for the good.
+ - The atomic bomb certainly is the most powerful of all weapons, but it is conclusively powerful and effective only in the hands of the nation which controls the sky.
+ - For the college years we will provide scholarships to high school students of the greatest promise and greatest need and guarantee low-interest loans to students continuing their college studies.
+ - The job, of course, will never be finished. For a nation, as for an individual, education is a perpetually unfinished journey, a continuing process of discovery.
+ - The CIA is made up of boys whose families sent them to Princeton but wouldn’t let them into the family brokerage business.
+ - The experts spent a great deal of time and study working out a formula which would be fair to every State and fair to every county and fair to every child, and would put the education dollar where that dollar is needed most, now.
+ - If we fail now, then we will have forgotten in abundance what we learned in hardship: that democracy rests on faith; freedom asks more than it gives; and the judgment of God is harshest on those who are most favored.
+ - He’s a nice guy, but he played too much football with his helmet off.
+ - The family is the corner stone of our society.
+ - Let no one ever think for a moment that national debate means national division.
+ - The great society is a place where men are more concerned with the quality of their goods than with the quantity of their goods.
+ - When I was a boy we didn’t wake up with Vietnam and have Cyprus for lunch and the Congo for dinner.
+ - Law is the great civilizing machinery. It liberates the desire to build and subdues the desire to destroy.
+ - Our objective in South Vietnam has never been the annihilation of the enemy. It has been to bring about a recognition in Hanoi that its objective – taking over the South by force – could not be achieved.
+ - I know – from personal experience – that abiding values and abundant visions are learned in the homes of our people.
+ - The moon and other celestial bodies should be free for exploration and use by all countries. No country should be permitted to advance a claim of sovereignty.
+ - Jack was out kissing babies while I was out passing bills. Someone had to tend the store.
+ - The purposeful many need not and will not bow to the willful few.
+ - The future holds little hope for any government where the present holds no hope for the people.
+ - Scarcely any law of our Redeemer is more openly transgressed, or more industriously evaded, than that by which he commands his followers to forgive injuries. Samuel.
+ - I’d rather give my life than be afraid to give it.
+ - Lincoln was right about not fooling all the people all the time. But Republicans haven’t given up trying.
+ - True poverty does not come from God.
+ - I feel like I just grabbed a big juicy worm with a right sharp hook in the middle of it.
+ - Peace does not come just because we wish for it. Peace must be fought for. It must be built stone by stone.
+ - Our society is illuminated by the spiritual insights of the Hebrew prophets. America and Israel have a common love of human freedom, and they have a common faith in a democratic way of life.
+ - The poor suffer twice at the rioter’s hands. First, his destructive fury scars their neighborhood; second, the atmosphere of accommodation and consent is changed to one of hostility and resentment.
+ - Our purpose in Vietnam is to prevent the success of aggression. It is not conquest, it is not empire, it is not foreign bases, it is not domination. It is, simply put, just to prevent the forceful conquest of South Vietnam by North Vietnam.
+ - Whoever won’t fight when the President calls him, deserves to be kicked back in his hole and kept there.
+ - Justice requires us to remember that when any citizen denies his fellow, saying, ‘His color is not mine,’ or ‘His beliefs are strange and different,’ in that moment he betrays America, though his forebears created this nation.
+ - There is nothing that exasperates people more than a display of superior ability or brilliance in conversation. They seem pleased at the time, but their envy makes them curse the conversationalist in their heart.
+ - You might say that Lyndon Johnson is a cross between a Baptist preacher and a cowboy.
+ - We come to reason, not to dominate. We do not seek to have our way, but to find a common way.
+ - This nation, this generation, in this hour has man’s first chance to build a Great Society, a place where the meaning of man’s life matches the marvels of man’s labor.
+ - I am concerned about the whole man. I am concerned about what the people, using their government as an instrument and a tool, can do toward building the whole man, which will mean a better society and a better world.
+ - We don’t propose to sit here in our rocking chair with our hands folded and let the Communists set up any government in the Western Hemisphere.
+ - A President must call on many persons – some to man the ramparts and to watch the far away, distant posts; others to lead us in science, medicine, education and social progress here at home.
+ - This is a moment that I deeply wish my parents could have lived to share. My father would have enjoyed what you have so generously said of me-and my mother would have believed it.
+ - Every gift contains a danger. Whatever gift we have we are compelled to express. And if the expression of that gift is blocked, distorted, or merely allowed to languish, then the gift turns against us, and we suffer.
+ - Never make a speech at a country dance or a football game.
+ - It is the genius of our Constitution that under its shelter of enduring institutions and rooted principles there is ample room for the rich fertility of American political invention.
+ - We can and should have an abundance of trails for walking, cycling, and horseback riding, in and close to our cities. In the backcountry we need to copy the great Appalachian Trail in all parts of America.
+ - Americans have always built for the future. That is why we established land grant colleges and passed the Homestead Act to open our Western lands more than 100 years ago.
+ - For the primary and secondary school years, we will aid public schools serving low-income families and assist students in both public and private schools.
+ - My most fervent prayer is to be a President who can make it possible for every boy in this land to grow to manhood by loving his country – instead of dying for it.
+ - Every man should know that his conversations, his correspondence, and his personal life are private.
+ - You do not examine legislation in the light of the benefits it will convey if properly administered, but in the light of the wrongs it would do and the harms it would cause if improperly administered.
+ - All of us realize that war requires action. What is sometimes harder for us to realize is that peace and neutrality also require action.
+ - Our numbers have increased in Vietnam because the aggression of others has increased in Vietnam. There is not, and there will not be, a mindless escalation.
+ - Curtis Le May wants to bomb Hanoi and Haiphong. You know how he likes to go around bombing.
+ - If you’re I politics and you can’t tell when you walk into a room who’s for you and who’s against you, then you’re in the wrong line of work.
+ - We have the opportunity to move not only toward the rich society and the powerful society, but upward to the Great Society.
+ - If there is one word that describes our form of society in America, it may be the word-voluntary.
+ - I believe, with abiding conviction, that this people-nurtured by their deep faith, tutored by their hard lessons, moved by their high aspirations-have the will to meet the trials that these times impose.
+ - I hear the headlines on the radio, see them on TV and read them in the paper. When I hear from the men out there, I sometimes don’t believe they are talking about the same situation.
+ - The Russians feared Ike. They didn’t fear me.
+ - I believe the destiny of your generation – and your nation – is a rendezvous with excellence.
+ - When a person finds themselves predisposed to complaining about how little they are regarded by others, let them reflect how little they have contributed to the happiness of others.
+ - The final conquest of poverty is within our grasp.
+ - Poverty has many roots, but the tap root is ignorance.
+ - You’ve got to work things out in the cloakroom, and when you’ve got them worked out, you can debate a little before you vote.
+ - There are plenty of recommendations on how to get out of trouble cheaply and fast. Most of them come down to this: Deny your responsibility.
+ - To conclude that women are unfitted to the task of our historic society seems to me the equivalent of closing male eyes to female facts.
+ - We still seek no wider war.
+ - Every American citizen must have an equal right to vote. There is no reason which can excuse the denial of that right. There is no duty which weighs more heavily on us than the duty we have to ensure that right.
+ - As man draws nearer to the stars, why should he not also draw nearer to his neighbor?
+ - I don’t believe I’ll ever get credit for anything I do in foreign affairs, no matter how successful it is, because I didn’t go to Harvard.
+ - Evil acts of the past are never rectified by evil acts of the present.
+ - The last thing I wanted to do was to be a wartime President.
+ - I report to you that our country is challenged at home and abroad: that it is our will that is being tried and not our strength; our sense of purpose and not our ability to achieve a better America.
+ - We will not have served the water needs of Americans if we meet only the requirements of today’s population. A prudent nation must look ahead and plan for tomorrow.
+ - Men who have worked together to reach the stars are not likely to descend together into the depths of war and desolation.
+ - Just like the Alamo, somebody damn well needed to go to their aid. Well, by God, I’m going to Viet Nam’s aid!
+ - I am persuaded that the people of the world have no grievances, one against the other. The hopes and desires of a man who tills the soil are about the same whether he lives on the banks of the Colorado or on the banks of the Danube.
+ - Not merely a nation but a nation of nations.
+ - The men who have guided the destiny of the United States have found the strength for their tasks by going to their knees. This private unity of public men and their God is an enduring source of reassurance for the people of America.
+ - One lesson you better learn if you want to be in politics is that you never go out on a golf course and beat the President.
+ - If two men agree on everything, you may be sure that one of them is doing the thinking.
+ - There is no excuse-and we should call a spade a spade-for chemical companies and oil refineries using our major rivers as pipelines for toxic waste. There is no excuse for communities to use other people’s rivers as a dump for their raw sewage.
+ - Heck by the time a man scratches his behind, clears his throat, and tells me how smart he is, we’ve already wasted fifteen minutes.
+ - We must open the doors of opportunity.
+ - Liberty is not enough.
+ - In 1790, the nation which had fought a revolution against taxation without representation discovered that some of its citizens weren’t much happier about taxation with representation.
+ - What we won when all of our people united must not be lost in suspicion and distrust and selfishness and politics. Accordingly, I shall not seek, and I will not accept, the nomination of my party for another term as president.
+ - The Secretary of Labor is in charge of finding you a job, the Secretary of the Treasury is in charge of taking half the money you make away from you, and the Attorney General is in charge of suing you for the other half.
+ - In addition to our existing programs, I will recommend a new program for schools and students with a first-year authorization of $1,500 million.
+ - The presidency has made every man who occupied it, no matter how small, bigger than he was; and no matter how big, not big enough for its demands.
+ - The debris of civilization litters the landscapes and spoils the beaches. Conservation’s concerns now is not only for man’s enjoyment-but for man’s survival.
+ - The American people have a right to air that they and their children can breathe without fear.
+ - Mr. Speaker, at a time when the nation is again confronted with necessity for calling its young men into service in the interestsof National Security, I cannot see the wisdom of denying our young women the opportunity to serve their country.
+ - You have your own difficulties. We watch, with friendly confidence in your capacity to merge differences in the grand dream of Canadian design.
+ - It is happily and kindly provided that in every life there are certain pauses, and interruptions, which force consideration upon the careless, and seriousness upon the light, points of time where one course of action ends and another begins.
+ - It means an educational system which does not simply equip the students to adjust to society, but which enables the student to challenge and to modify, and at times reject, if necessary, the received wisdom of his elders.
+ - There are no favorites in my office. I treat them all with the same general inconsideration.
+ - Extremism is the pursuit of the presidency is an unpardonable vice. Moderation in the affairs of the nation is the highest virtue.
+ - Whether we are New Dealer, Old Dealer, Liberty Leaguer or Red, whether we agree or not, we still have the right to think and speak how we feel.
+ - No member of our generation who wasn’t a Communist or a dropout in the thirties is worth a damn.
+ - If the American people don’t love me, their descendants will.
+ - John ain’t been worth a damn since he started wearing $300 suits.
+ - You never want to give a man a present when he’s feeling good. You want to do it when he’s down.
+ - Our understanding of how to live with one another is still far behind our knowledge of how to destroy one another.
+ - Knowledge is of two kinds: we know a subject itself, or know where to find it.
+ - I don’t have any handicap. I am all handicap.
+ - The Great Society is a place where every child can find knowledge to enrich his mind and enlarge his talents.
+ - Our partnership has been built on four pillars The first pillar is peace. The second pillar is freedom. The third pillar is respect. The fourth pillar is cooperation.
+ - In a thousand unseen ways we have drawn shape and strength from the land.
+ - It’s the price of leadership to do the thing you believe has to be done at the time it must be done.
+ - Our most tragic error may have been our inability to establish a rapport and a confidence with the press and television with the communication media. I don’t think the press has understood me.
+ - America has not always been kind to its artists and scholars. Somehow the scientists always seem to get the penthouse while the arts and humanities get the basement.
+ - New laboratories and centers will help our schools lift their standards of excellence and explore new methods of teaching. These centers will provide special training for those who need and deserve special treatment.
+ - The exercise of power in this century has meant for all of us in the United States not arrogance, but agony.
+ - John F. Kennedy was the victim of the hate that was a part of our country. It is a disease that occupies the minds of the few but brings danger to the many.
+ - And Americans have always stood ready to pay the cost in energy and treasure which are needed to make those goals a reality.
+ - The law cannot save those who deny it but neither can the law serve any who do not use it. The history of injustice and inequality is a history of disuse of the law.
+ - For the individual, education is the path to achievement and fulfillment; for the nation, it is a path to a society that is not only free but civilized; and for the world, it is the path to peace – for it is education that places reason over force.
+ - There can no longer be anyone too poor to vote.
+ - No nation in the world has had greater fortune than mine in sharing a continent with the people and the nation of Canada.
+ - Every man of any education would rather be called a rascal, than accused of deficiency in the graces.
+ - A man can take a little bourbon without getting drunk, but if you hold his mouth open and pour in a quart, he’s going to get sick on it.
+ - In the Great Society, work shall be an outlet for mans interests and desires. Each individual shall have full opportunity to use his capacities in employment which satisfies personally and contributes generally to the quality of the Nations life.
+ - We cannot have government for all the people until we first make certain it is government of and by all the people.
+ - I believe that the country weekly acts as a form of social cement in holding the community together.
+ - I once told Nixon that the Presidency is like being a jackass caught in a hail storm. You’ve got to just stand there and take it.
+ - It may be, it just may be, that life as we know it with its humanity is more unique than many have thought.
+ - It will help at every state along the road to learning. For the pre-school years we will help needy children become aware of the excitement of learning.
+ - As the House is designed to provide a reflection of the mood of the moment, the Senate is meant to reflect the continuity of the past – to preserve the delicate balance of justice between the majority’s whims and the minority’s rights.
+ - The best way to begin disarming is to begin-and the United States is ready to conclude firm agreements in these areas and to consider any other reasonable proposal.
+ - There is but one way for a president to deal with Congress, and that is continuously, incessantly, and without interruption. If it is really going to work, the relationship has got to be almost incestuous.
+ - I want to make a policy statement. I am unabashedly in favor of women.
+ - We Americans know – although others appear to forget – the risk of spreading conflict. We still seek no wider war.
+ - When I was young, poverty was so common that we didn’t know it had a name.
+ - So here is the Great Society. It’s the time – and it’s going to be soon – when nobody in this country is poor.
+ - He’s got great vision. If he can get outside, he can take it all the way. That’s what we were worried about.
+ - In our home there was always prayer – aloud, proud and unapologetic.
+ - I am making a collection of the things my opponents have found me to be and, when this election is over, I am going to open a museum and put them on display.
+ - We of the United States consider ourselves blessed. We have much to give thanks for. But the gift of providence we cherish most is that we were given as our neighbors on this wonderful continent the people and the nation of Canada.
+ - In modern warfare there are no victors; there are only survivors.
+ - Every President wants to do right.
+ - In this age when there can be no losers in peace and no victors in war; we must recognize the obligation to match national strength with national restraint.
+ - When things haven’t gone well for you, call in a secretary or a staff man and chew him out. You will sleep better and they will appreciate the attention.
+ - Emancipation was a proclamation, but not a fact.
+ - I want every family in America to have a carpet on the floor and a picture on the wall. After bread, you’ve got to have a picture on the wall.
+ - Jerry Ford is so dumb he can’t fart and chew gum at the same time.
+ - We decided that our first job was to help the schools serving the children from the very lowest income groups. Those families constitute the number one burden, the number one burden in this Nation on the school systems.
+ - Of course, I may go into a strange bedroom every now and then that I don’t want you to write about, but otherwise you can write everything.
+ - Second, this law has become a special symbol of our Nation’s most important purpose: to fulfill the individual – his freedom, his happiness, his promise.
+ - I cannot say and no man could say that no more will be asked of us.
+ - I may not worry as much as Prime Minister Eshkol does about Israel, but I worry as deeply.
+ - He that in the latter part of his life too strictly inquires what he has done, can very seldom receive from his own heart such an account as will give him satisfaction.
+ - You know there is no one in the world I would rather sleep with than Yuki.
+ - I seldom think of politics more than eighteen hours a day.
+ - I believe we can continue the Great Society while we fight in Vietnam.
+ - The test before us as a people is not whether our commitments match our will and our courage; but whether we have the will and courage to match our commitments.
+ - Today – wealthier, more powerful and more able than ever before in our history – our Nation can declare another essential freedom.
+ - I won’t have you electioneering on my doorstep. Every time you get in trouble in Parliament you run over here with your shirttail hanging out.
+ - I am proud to be a member of a party that opens its doors to all men – and closes its hearts to none.
+ - For the first time in our history it is possible to conquer poverty.
+ - All that Hubert needs over there is a gal to answer the phone and a pencil with an eraser on it.
+ - A few years make such havoc in human generations that we soon see ourselves deprived of those with whom we entered the world, and whom the participation of pleasures or fatigues had endeared to our remembrance.
+ - It is important that the United States remain a two-party system. I’m a fellow who likes small parties and the Republican Party can’t be too small to suit me.
+ - This is not Johnson’s war. This is America’s war. If I drop dead tomorrow, this war will still be with you.
+ - I do not find it easy to send the flower of our youth, our finest young men, into battle.
+ - Not now, or not there, or too much, or not at all.
+
+279 quotes

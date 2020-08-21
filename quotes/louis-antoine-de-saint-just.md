@@ -1,0 +1,24 @@
+ - Keep cool and you command everybody.
+ - Morality is stronger than tyrants.
+ - A nation regenerates itself only upon heaps of corpses.
+ - I do not belong to any faction, I will fight them all.
+ - The vessel of Revolution can arrive at port only on a sea reddened by torrents of blood.
+ - One cannot reign innocently: the insanity of doing so is evident. Every king is a rebel and a usurper.
+ - I have not found a single good man in government; I have found good only in the people.
+ - One does not make revolutions by halves.
+ - Every political edict which is not based upon nature is wrong.
+ - It is impossible to reign innocently.
+ - Happiness is a new idea in Europe.
+ - Most arts have produced miracles, while the art of government has produced nothing but monsters.
+ - It is not enough, citizens, to have destroyed the factions, it is necessary now to repair the evil that they have done to the country.
+ - Let Revolutionists be Romans, not Tatars.
+ - If all people are free, all are equal. If they are equal, they are just.
+ - When a people, having become free, establish wise laws, their revolution is complete.
+ - Dare! – this word contains all the politics of our revolution.
+ - When human statecraft attaches a chain to the feet of a free man, whom it makes a slave in contempt of nature and citizenship, eternal justice rivets the other end about the tyrant’s neck.
+ - You who make the laws, the vices and the virtues of the people will be your work.
+ - The French people recognizes the Supreme Being and the immortality of the soul. The first day of every month is to be dedicated to the eternal.
+ - In every Revolution a dictator is needed to save the state by force, or censors to save it by virtue.
+ - It is time that we labored for the happiness of the people. Legislators who are to bring light and order into the world must pursue their course with inexorable tread, fearless and unswerving as the sun.
+
+22 quotes

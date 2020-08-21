@@ -1,0 +1,56 @@
+ - Doing the right thing isn’t always easy – in fact, sometimes it’s real hard – but just remember that doing the right thing is always right.
+ - Don’t be so busy making a living that you forget how to live. Work hard to be successful, but enjoy the journey.
+ - Our comfort zones can be our greatest enemy to our potential.
+ - Frequently, the difference between success and failure is the resolve to stick to your plan long enough to win.
+ - You will never have enough time to do everything you need to do, so what you need is a crystal clear understanding of the important things you have to do.
+ - Successful people keep moving, even when they are discouraged and have made mistakes.
+ - A real leader spends his time fixing the problem instead of finding who to blame.
+ - So much of life is about attitude and how we handle what life throws our way. Life is good – even when a situation appears to be the worst.
+ - You have to escape from management land and get in touch with your people.
+ - When you write things down, you commit to doing them. If you simply tell me what you want to do, there is really no commitment to getting it done.
+ - Never lower your standards just to fill a position. You will pay for it later.
+ - Guard your integrity as if it’s your most precious leadership possession, because that is what it is.
+ - People quit people before they quit companies.
+ - Enthusiasm is something you can’t fake, and it has a tremendous effect on everyone around you.
+ - Success is ultimately realized by people who make more good choices and recover quickly from their bad choices. Our personal and professional success depends on repeating good choices, day in and day out, and avoiding repetition of bad choices.
+ - Change allows us to exit the comfortable and enter the improved.
+ - One of the major sources of stress, anxiety, and unhappiness comes from feeling as if your life is out of control.
+ - Until you accept total responsibility – no matter what – you won’t be able to put plans in place to accomplish your goals.
+ - If you want to be around people who are positive and enthusiastic and eager to live life, your attitude has to be the same.
+ - Trusted counselors, mentors and guides make an indelible mark on the lives they touch, and they provide the two ingredients to success in life – caring and sharing – that cannot be learned or purchased.
+ - For you to be successful and provide your employees with the necessary tools for success, you and your boss must work together – no matter what.
+ - Take the time and energy to manage your boss the same way you manage your team.
+ - Positively dealing with the unexpected by looking for solutions, not excuses, is the choice you need to make.
+ - If expecting something in return is your reason for giving, you are really not giving- you’re swapping. If you receive something in return for your gift, what you receive is a bonus – not a repayment of a debt.
+ - When you depend on another’s perceptions to match your expectations, you’re setting yourself up for disappointment.
+ - If each Monday morning, you make a choice to move into the new work week with renewed commitment and passion, you can change all areas of your life. You can truly change your Mondays and change your life.
+ - You are the chief bucket filler, and the best way to fill buckets is with excellent communication.
+ - The single greatest demotivator of a team is having members who are not carrying their load.
+ - When you accepted your job, you were not chosen solely to fill a position on the organization chart; you were chosen to fill a responsibility.
+ - Don’t stifle your career by limiting you knowledge.
+ - To fulfill you potential, you need to move out of your comfort zone and into the legacy zone.
+ - The success of any change depends, in large measure, on your attitude about that change.
+ - Your job is not to lower the bottom by adjusting for and accommodating the lowest-performing employees. You should be raising the top by recognizing and rewarding superstar behavior.
+ - We all need people who will help us look at situations from a different perspective.
+ - You can help determine your team’s enthusiasm for the change by focusing on the entrance of potential while you are working through the exit of the past.
+ - The truth is that problems won’t just go away.
+ - Press on. Your defining moment may arrive just when you feel surrounded by adversity.
+ - To become a courageous leader, you must realize that accepting responsibility is not optional – it’s mandatory.
+ - The worst type of employee you can have is one who has mentally quit and is still physically coming to work every day.
+ - Give away everything you have learned. If for no other reason, do it selfishly; in order to get more, you must give more.
+ - If your focus is always changing, expect confusion to be rampant on your team.
+ - There are a few things that you can do that will yield better results than doing a whole lot of other things.
+ - Leaders who have integrity possess one of the most respected virtues in all of life.
+ - It is rare for people to say they want to be held accountable, but in reality, everyone wants everyone else to be held accountable.
+ - Every successful person has faced, attacked, and conquered adversity somewhere along the way.
+ - Your team has entrusted a portion of their life to you, and it’s your job to help them grow, personally and professionally.
+ - The most important thing you do as a leader is to hire the right people.
+ - There is a direct correlation between the books you read and the success you achieve.
+ - Whether you realize it or not, you have the power to be successful.
+ - Even though your responsibilities increase when you become a manager, you lose some of the rights or freedoms you may have enjoyed in the past.
+ - What you see in the interview will not get significantly better when the individual is hired.
+ - When it comes to leading people, there is no problem that is unique to you.
+ - One of the main things for a leader is to eliminate confusion.
+ - There is no ‘grand conspiracy’ preventing your from accomplishing what you need to do.
+
+54 quotes

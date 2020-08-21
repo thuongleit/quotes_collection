@@ -1,0 +1,38 @@
+ - There is nothing more to controlling demons than to do good and fear nothing.
+ - A chain of iron is less difficult to break than a chain of flowers.
+ - Weak people talk and do not act, strong people act and keep quiet.
+ - All miracles are promised to faith, and what is faith except the audacity of will which does not hesitate in the darkness, but advances towards the light in spite of all ordeals, and surmounting all obstacles?
+ - Judge not; speak hardly at all; love and act.
+ - Renounce to the desire of possessing worldly things: this is the first step in the path of perfection; by mean of this absolute untie is how the passions can be fought.
+ - Fear is nothing but idleness of the will...
+ - If you wish to seduce an angel, you must play the part of a devil.
+ - To practice magic is to be a quack; to know magic is to be a sage.
+ - When one creates phantoms for oneself, one puts vampires into the world, and one must nourish these children of a voluntary nightmare with one’s blood, one’s life, one’s intellegence, and one’s reason, without ever satisfying them.
+ - Everything is possible to him who wills only what is true! Rest in Nature, study, know, then dare; dare to will, dare to act and be silent!
+ - Passing beauties are only the fugitive reflections of the eternal. All beauty alters and all life melts away; in short, everything passes with marvelous rapidity; beautiful Helen of Troy has become a toothless skull, then a handful of dust, then nothing.
+ - There exists in nature a force which is immeasurably more powerful than steam, and by means of which a single man, who knows how to adapt and direct it, might upset and alter the face of the world.
+ - A good teacher must be able to put himself in the place of those who find learning hard.
+ - Everything lives by movement, everything is maintained by equilibrium, and harmony results from the analogy of contraries; this law is the form of forms.
+ - Nothing can resist the will of man when he knows what is true and wills what is good.
+ - The Placer is an enemy who must necessarily become our lord or our slave; one doesn’t enjoy if it’s not defeated.
+ - Order is never observed; it is disorder that attracts attention because it is awkward and intrusive.
+ - Succeed in not fearing the lion, and the lion will fear YOU. Say to suffering, ‘I will that you shall become a pleasure,’ and it will prove to be such – and even more than a pleasure, it will be a blessing.
+ - EVERY intention which does not assert itself by deeds is a vain intention, and the speech which expresses it is idle speech. It is action which proves life and establishes will.
+ - Doubt is really a groping ignorance.
+ - The Great Work is, before all things, the creation of man by himself, that is to say, the full and entire conquest of his faculties and his future; it is especially the perfect emancipation of his will.
+ - To be rich is to give; to give nothing is to be poor; to live is to love; to love nothing is to be dead; to be happy is to devote oneself; to exist only for oneself is to damn oneself, and to exile oneself to hell.
+ - When we love, we see the infinite in the finite. We find the Creator in the creation.
+ - Mistress of love or of hate, occult science can dispense paradise or hell at its pleasure to human hearts; it disposes of all forms and confers beauty or ugliness; with the wand of Circe it changes men into brutes and animals alternately into men.
+ - What is more absurd and more impious than to attribute the name of Lucifer to the devil, that is, to personified evil. The intellectual Lucifer is the spirit of intelligence and love; it is the paraclete, it is the Holy Spirit, while the physical Lucifer is the great agent of universal magnetism.
+ - Succeed in not fearing the lion, and the lion will fear you.
+ - Weakness ever sympathizes with vice, because vice is a weakness which assumes the mask of strength. Madness holds reason in horror, and on all subjects it delights in the exaggerations of falsehood. The cause of all bewitchments, the poison of all philtres, the power of all sorcerers are there.
+ - In olden times gold was manufactured by science; nowadays science must be renewed by gold. We have fixed the volatile and we must now volatilize the fixed – in other words, we have materialized spirit, and we must now spiritualize matter.
+ - Magic is the divinity of man achieved in union with faith...
+ - It is necessary to DARE what must be attempted.
+ - One can only define the unknown by its supposed and supposable relations with the known.
+ - All the power of the occult healer lies in his conscious will, and all his art consists in producing faith in the patient.
+ - Passing beauties are only the fugitive reflectios of the eternal.
+ - That great Kabbilistical association known in Europe under the name of Masonry appeared suddenly in the world when the revolt against the Church had just succeeded in dismembering Christian unity.
+ - Up to one’s last breath, one may retain the simple joys of childhood, the poetic ecstasies of the young person, the enthusiasms of maturity. Right to the end, one may intoxicate one’s spirit with flowers, with beauty and with smiles.
+
+36 quotes

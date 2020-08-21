@@ -1,0 +1,30 @@
+ - Real heroes are all around us and uncelebrated.
+ - Every viewer who ever turned on Doctor Who has taken him into his heart. He belongs to all of us.
+ - Keep going and don’t give up. You’re doing wonderfully. You’ll know how to fly this thing eventually.
+ - There is no such thing as too much swearing. Swearing is just a piece of linguistic mechanics. The words in-between are the clever ones.
+ - A little showbiz never hurt anyone.
+ - I wish I’d known that one day the geek would inherit the Earth.
+ - My family has to be very patient living with me, if you’re playing a part that’s not you. You have to get it right.
+ - The older I get, the more I think lightness of touch is an incredibly difficult thing to do.
+ - I think that people like the idea that fans are sort of slightly eccentric and strange, but generally I’ve just found them very creative and warm and cheerful.
+ - I’m not an extravagant man. The fact that I can have a coffee out whenever I want still makes me feel grateful.
+ - We had our British background of traditional theatre behind us.
+ - I’m pretty good for an old geek.
+ - I’m a huge fan of The Sopranos, and suddenly, you find yourself going one-to-one with this guy who you’ve been watching for years, watching every flicker in his eye and every detail on his face.
+ - I’d say, don’t listen to what anyone says: you’re good. Go put your anorak on. Get your thick bottle-top specs. Draw your little cartoons and your comics and keep writing to the BBC.
+ - I haven’t played Doctor Who since I was 9 on the playground.
+ - I’m sure if Shakespeare were alive today, he’d be doing classic guitar solos on YouTube.
+ - It’s weathered many a storm, but the British film industry is, thankfully, still afloat.
+ - I love people where, at the end of the day, they’ll pick up a paintbrush and paint clouds. They can physically make things.
+ - I suppose I just like being arty. That’s all. Arty.
+ - I think the most extraordinary thing about fans is the level of excellence that they show in the work that they do. I mean, if you go onto the internet and see some of the fan videos that have been put together, they’re just extraordinary; they could be programmes in their own right.
+ - A girl once came to my beery flat in Kensal Green, opened the blinds and cooked me breakfast. I married her.
+ - I hate restaurants that play music. You come out for a quiet meal, and you’re supposed to put up with all this booming. Why? It’s madness!
+ - I’m so lucky to have worked with Burt Lancaster, who I remember was one of the first people I’d heard swearing in a really interesting way.
+ - Chris Addison is a stand-up comic, but his ability to act is extraordinary, to be so natural, I’ve taken 25 years just getting to that level.
+ - There is no greater symbol of the artistic spirit of Scotland than the Mackintosh building. But more than that it is a symbol of where art belongs, rising as it does out of the heart of a great city. A mighty castle on a hill, it is a part of me, and of all Glaswegians.
+ - I can’t imagine I’ll be the new George Clooney. That’s not really in the cards.
+ - When I first came to London, I loved hanging around in cafes, smoking, scribbling, dreaming. It was life-affirming and fun.
+ - If you actually have to engage with somebody who’s superior to you and actually battle with them, struggle with them, I think it’s more interesting, and funnier for the audience.
+
+28 quotes

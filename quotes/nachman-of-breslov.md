@@ -1,0 +1,83 @@
+ - It is a great mitzvah to be happy always.
+ - If you won’t be better tomorrow than you were today, then what do you need tomorrow for?
+ - You are wherever your thoughts are, make sure your thoughts are where you want to be.
+ - Let the good in me connect with the good in others, until all the world is transformed through the compelling power of love.
+ - Always wear a smile. The gift of life will then be yours to give.
+ - Common sense is strengthened by joy.
+ - Work at not needing approval from anyone and you will be free to be who you really are.
+ - Feel no sadness because of evil thoughts: it only strengthens them.
+ - Seek the good in everyone, and reveal it, bring it forth.
+ - He who has no confidence utters falsehoods, and he who utters falsehoods has no confidence.
+ - Freedom is the world of joy.
+ - All new beginnings require that you unlock a new door.
+ - Grant me the ability to be alone, May it be my custom to go outdoors each day among the trees and grasses among all growing things and there may I be alone, and enter into prayer to talk with the one that I belong to.
+ - Where there is no truth there is no grace.
+ - If all the ancient sacred writings had been preserved, some would be found to be heretical.
+ - More men die from overeating than undernourishment.
+ - Arbitration is justice blended with charity.
+ - Faith is not only in the heart; it should be put into words.
+ - The best weapons of a Jew are his prayers.
+ - Where there is no peace, prayers are not heard.
+ - Proper praying is like a person who wanders through a field gathering flowers-one by one, until they make a beautiful bouquet. In the same manner, a person must gather each letter, each syllable, to form them into words of prayer.
+ - Who lacks confidence speaks lies more readily.
+ - Lies are usually caused by an undue fear of men.
+ - The Exodus from Egypt occurs in every human being, in every era, in every year, and in every day.
+ - Believe that none of the effort you put into coming closer to God is ever wasted – even if in the end you don’t achieve what you are striving for.
+ - Even if you can’t sing well, sing. Sing to yourself. Sing in the privacy of your home. But sing.
+ - Charity cures heartaches.
+ - Whoever is able to write a book and does not, it is as if he has lost a child.
+ - Depression does tremendous damage. Use every ploy you can think of to bring yourself to joy.
+ - Get into the habit of singing a tune. It will give you new life and fill you with joy. Get into the habit of dancing. It will displace depression and dispel hardship.
+ - An angry man is unfit to pray.
+ - Don’t ever fret over married children; they will take care of themselves.
+ - Always remember, joy is not incidental to spiritual quest. It is vital.
+ - God forgets those who reject proof that they are wrong.
+ - The Torah itself becomes coarse in the mouth of a man of pride.
+ - A man should eat slowly, properly, even if he eats alone.
+ - When you help scholars, you gain a share in their learning.
+ - Disparage no book, for it is also a part of the world.
+ - To revive a man is no slight thing.
+ - When a father is quick to lose his tempre, his sons are fools.
+ - I conquered my hostility by putting it away until the day I might need it.
+ - The I is the soul, which endures.
+ - If you do not help a man with his troubles, it is equivalent to bringing troubles to him.
+ - Just as your hand, held before the eye, can hide the tallest mountain, so this small earthly life keeps us from seeing the vast radiance that fills the core of the universe.
+ - Prayers truly from the heart open all doors in Heaven.
+ - Worldly riches are like nuts; many a tooth is broke in cracking them, but never is the stomach filled with eating them.
+ - A poor but humble man who gives nothing to charity is preferrable to a rich but haughty man who does.
+ - Elderly men who are popular with young women usually lack wisdom.
+ - We each have the kind of children we deserve.
+ - While praying, listen to the words very carefully. When your heart is attentive, your entire being enters your prayer without your having to force it.
+ - A man should believe in God through faith, not because of miracles.
+ - If you never want to see the face of hell, when you come home from work every night, dance with your kitchen towel and, if you’re worried about waking up your family, take off your shoes.
+ - Thinking is more precious than all five senses.
+ - Teach a child good manners during babyhood.
+ - A modest woman has good children.
+ - Victory cannot tolerate truth.
+ - A mitzvah that costs money is worth more than one that costs nothing.
+ - Even the poor should give something to charity.
+ - Unfounded hate only multiplies quarrels.
+ - A man’s drive for profit should be prompted by the desire to give charity.
+ - The man who has led a good life will find many allies.
+ - The man who disobeys his parents will have disobedient sons.
+ - Better a superstitious believer than a rational unbeliever.
+ - Knowledge that is paid for will be longer remembered.
+ - Always help those who are being persecuted.
+ - A drunkard cannot plead his case.
+ - A strict master will not have understanding sons.
+ - Flattery leads to vulgarity; the flatterer is despised.
+ - Those who are pure of heart find new thoughts whenever they meditate.
+ - Toothaches afflict those who have no compassion for animals.
+ - Include yourself in any reproof.
+ - Before reciting his prayers, a man should give to charity.
+ - The man who acts humble in order to win praise is guilty of the lowest form of pride.
+ - Charity with a smile shows the donor’s character.
+ - Man must not rely on pure reason; he must mix faith with it.
+ - The prosperity of a country can be seen simply in how it treats its old people.
+ - A quarrelsome man deserves no honors.
+ - Don’t ask God to change the laws of nature for you.
+ - He who cannot accept reproof cannot become great.
+ - Whenever a treaty of peace is signed, God is present.
+ - The world goes on because of those who close their lips when they meet hostility from others.
+
+81 quotes

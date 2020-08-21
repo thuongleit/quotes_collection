@@ -1,0 +1,88 @@
+ - You’ll have time to rest when you’re dead.
+ - Time goes on. So whatever you’re going to do, do it. Do it now. Don’t wait.
+ - Don’t let yourself get attached to anything you are not willing to walk out on in 30 seconds flat if you feel the heat around the corner.
+ - The saddest thing in life is wasted talent.
+ - Whenever there is any doubt, there is no doubt.
+ - If you don’t go, you’ll never know.
+ - Better to be king for a night than a schmuck for a lifetime.
+ - Reputation, you know – a lifetime to build, seconds to destroy.
+ - Some day a real rain will come and wash all the scum off the streets.
+ - The talent is in the choices.
+ - Write down everything you want to do with your life and then spend the next 25 years doing them.
+ - The mind of a writer can be a truly terrifying thing. Isolated, neurotic, caffeine-addled, crippled by procrastination, consumed by feelings of panic, self-loathing, and soul-crushing inadequacy. And that’s on a good day.
+ - If it’s the right chair, it doesn’t take too long to get comfortable in it.
+ - My definition of a good hotel is a place I’d stay at.
+ - I will not hesitate. Not for a second.
+ - You learned the two greatest things in life, never rat on your friends, and always keep your mouth shut.
+ - One of the things about acting is it allows you to live other people’s lives without having to pay the price.
+ - You don’t need words to express feelings.
+ - I got some bad ideas in my head.
+ - When you love someone you gotta trust them, there’s no other way. You gotta give them the key to everything that’s yours. Otherwise, what’s the point?
+ - According to a new survey, women say they feel more comfortable undressing in front of men than they do undressing in front of other women. They say that women are too judgmental, where, of course, men are just grateful.
+ - There’s nothing more ironic or contradictory than life itself.
+ - Italy has changed. But Rome is Rome.
+ - I don’t like to watch my own movies – I fall asleep in my own movies.
+ - I never walk into a place I don’t know how to walk out of.
+ - I hurt someone’s feelings once.
+ - You talking to me? You talking to me? Then who the hell else are you talking to – you talking to me? Well, I’m the only one here.
+ - Feeling a little bit alive is a lot better than just waiting to die.
+ - I go to Paris, I go to London, I go to Rome, and I always say, ‘There’s no place like New York. It’s the most exciting city in the world now. That’s the way it is. That’s it.’
+ - Running a casino is like robbing a bank with no cops around. For guys like me, Las Vegas washes away your sins. It’s like a morality car wash.
+ - You do what you do best, try to stop guys like me.
+ - When you feel that you can’t fight it, you just go for it. When it comes to the arts, passion should always trump common sense.
+ - If you’re an actor, always be true to your character. If you are not an actor, have character and always be true to yourself.
+ - Somebody steals from me, I’m gonna say you stole. Not talk to him for spitting on the sidewalk. Understand?
+ - If you don’t co-operate you’re gonna suffer from fistophobia.
+ - When you make a drama, you spend all day beating a guy to death with a hammer, or what have you. Or, you have to take a bite out of somebody’s face. On the other hand, with a comedy, you yell at Billy Crystal for an hour, and you go home.
+ - I always say people can call me anything they want as long as they don’t call me late for supper.
+ - If De Niro wants to spend the twilight of his career as the McDonald’s of master thespians, we can’t stop him.
+ - Ok let me explain, if you were bitten by a mad infected dog, who will you blame? the dog or its owner? Definitely the owner, so, all the blame is on the USA Government’s shoulders for adopting and supporting a state like Israel.
+ - In the casino, the cardinal rule is to keep them playing and to keep them coming back. The longer they play, the more they lose, and in the end, we get it all...
+ - I always tell actors when they go in for an audition: Don’t be afraid to do what your instincts tell you. You may not get the part, but people will take notice.
+ - There is a certain combination of anarchy and discipline in the way I work.
+ - Thank God for the rain to wash the trash off the sidewalk.
+ - You have to think about one shot. One shot is what it’s all about. A deer’s gotta be taken with one shot.
+ - As an actor who’s starting out, you can’t say, “Hey, I’m too good for this.” You gotta do it, because people see you, your name gets around, and it has a cumulative effect.
+ - New York is more exciting, I guess, than even Paris or London. New York’s the center of something; I don’t know what, really – the center of a lot of things. With all its problems and chaos and craziness, it’s still a great place to live. I can’t see myself living anywhere else.
+ - One regret I have: I didn’t get as much of the family history as I could have for the kids.
+ - It’s important not to indicate. People don’t try to show their feelings, they try to hide them.
+ - Passion should always trump common sense.
+ - I didn’t have a problem with rejection, because when you go into an audition, you’re rejected already. There are hundreds of other actors. You’re behind the eight ball when you go in there.
+ - My mother worked for a woman, Maria Ley-Piscator, who with her husband founded the Dramatic Workshop, which was connected to the New School. My mother did proofreading and typing and stuff or her, and as part of her payment, I was able to take acting classes there on Saturdays when I was 10.
+ - Money makes your life easier. If you’re lucky to have it, you’re lucky.
+ - I have to be able to trust you with my life. Do you understand?
+ - There is only one way to gain access to the truth and that is to not expect anything.
+ - In civilized societies, we spend our lifetimes trying to become what is socially acceptable. We’re dark and we’re light. We all have both sides to us.
+ - I love to find new people. It’s not for the sake of their being new; it’s because if you find someone who perfectly fits a part, that’s such a great thing.
+ - Movies are hard work. The public doesn’t see that. The critics don’t see it. But they’re a lot of work. A lot of work.
+ - I guess the only thing to do now is meet his parents. I’m sure they’re decent people. I mean they gotta be if they named their son Gaylord Focker.
+ - Everybody’s in New York and, hopefully, my younger kids will go to college in New York and find something they want to do so they’ll stay in the city.
+ - Sometimes if you have financial restraints, it’s a benefit. It forces you to come up with a more creative way.
+ - I mean, the actors that I admired were Marlon Brando, Montgomery Clift, an actress named Barbara Harris. And Greta Garbo. They were great actors.
+ - I don’t remember what made me want to be an actor. In fact, I’m always curious.
+ - The hardest thing about being famous is that people are always nice to you.
+ - As I get older, I think that things have been pre-determined for me, whether I liked it or wanted it, wished for it, whatever, way before in some way. And with others, you do have a choice that you can change. And that choice that you make is still part of this grand scheme.
+ - Movies are hard to make, and you have to work toward a common ethic and do your best. You don’t want to work with people who don’t care or who are acting out some neurotic, crazy thesis on the set.
+ - As a kid I didn’t root for the bad guys.
+ - I always enjoy coming to Israel. Israelis are warm, they’re energetic people. Forthright. Very smart. I always like smart people. They’re nice people, you know. Aggressive, and I respect that aggressiveness because you need it in their situation.
+ - I think Hollywood has a class system. The actors are like the inmates, but the truth is they’re running the asylum.
+ - Things rarely turn out the way we want them to.
+ - I’ve never been one of those actors who has touted myself as a fascinating human being. I had to decide early on whether I was to be an actor or a personality.
+ - You always learn something about movies. Directing or acting, there’s always something new. It’s the technological thing; there’s always something to learn.
+ - The director respects what they’ve hired you for and chosen you for: to do the part and respect what you’re doing.
+ - Callista Gingrich. Karen Santorum. Ann Romney. Now do you really think our country is ready for a white first lady?
+ - I spent lunchtime in a grave during the filming of ‘Bloody Mama.’ When you’re younger, you feel that’s what you need to do to help you stay in character. When you get older, you become more confident and less intense about it – and you can achieve the same effect.
+ - I always wanted to direct. Directing is a lot more of a commitment though, a lot more time. I like directors who do very few takes, they know what they want.
+ - I don’t get into these long-winded heavy discussions about character – do we do this or that or what. At the end of the day, what you gotta do is just go out there and do it.
+ - You draw on whatever’s relevant to the part you’re playing. It makes it more personal.
+ - In acting, I always try to go back to what would actually be the real situation, the real human behavior in life.
+ - Good directors can bring certain things out of you, with their intensity or gentleness or sensitivity or understanding. They can make an actor feel he can do no wrong.
+ - I think it’s important to have had at least a few years of obscurity, where people treat you like everybody else.
+ - You don’t just play a part. You’ve got to earn the right to play it.
+ - Auditions are like a gamble. Most likely you won’t get the part, but if you don’t go, you’ll never know if you could’ve got it.
+ - I can get around pretty easily. People don’t expect to see me walking around.
+ - Everyone’s always interested in a dark theme, especially when there’s humor connected to it. It seems like that helps, if that’s an integral and organic part of the whole story.
+ - Loneliness has been following me my whole life.
+ - I certainly know the difference between right and wrong.
+
+86 quotes

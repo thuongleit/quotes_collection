@@ -1,0 +1,49 @@
+ - Being gifted needs courage.
+ - The crowd will follow a leader who marches twenty paces ahead of them, but if he is a thousand paces ahead of them, they will neither see nor follow him.
+ - A love for humanity came over me, and watered and fertilised the fields of my inner world which had been lying fallow, and this love of humanity vented itself in a vast compassion.
+ - It is useless to send armies against ideas.
+ - Dostoevsky preaches the morality of the pariah, the morality of the slave.
+ - On the whole, the world was friendly. It chiefly depended on whether one were good or not.
+ - School is a foretaste of life.
+ - Among the delights of Summer were picnics to the woods.
+ - He who does not understand a joke, he does not understand Danish.
+ - Instead of trying to educate the human race, they should imitate the pedagogues of the seventeenth and eighteenth centuries, who concentrated their efforts on the education of a single person.
+ - But when I was twelve years old I caught my first strong glimpse of one of the fundamental forces of existence, whose votary I was destined to be for life – namely, Beauty.
+ - My first experiences of academic friendship made me smile in after years when I looked back on them. But my circle of acquaintances had gradually grown so large that it was only natural new friendships should grow out of it.
+ - Greatness has nothing to do with results or with success.
+ - I encountered among my comrades the most varied human traits, from frankness to reserve, from goodness, uprightness and kindness, to brutality and baseness.
+ - It was jolly in the country. A cow and little pigs to play with and milk warm from the cow.
+ - That a literature in our time is living is shown in that way that it debates problems.
+ - The stream of time sweeps away errors, and leaves the truth for the inheritance of humanity...
+ - The appalling thing about war is that it kills all love of truth.
+ - We need only think of the number of talented men who sooner or later make their apologies and concessions to philistinism, so as to be permitted to exist.
+ - Poor is the power of the lead that becomes bullets compared to the power of the hot metal that becomes types.
+ - But my doubt would not be overcome. Kierkegaard had declared that it was only to the consciousness of sin that Christianity was not horror or madness. For me it was sometimes both.
+ - Nietzsche says that as soon as he had read a single page of Schopenhauer, he knew he would read every page of him and pay heed to every word, even to the errors he might find. Every intellectual aspirant will be able to name men whom he has read in this way.
+ - I became an ardent, but never a specially good, dancer.
+ - The educator shall help the young to educate themselves in opposition to the age.
+ - I was not afraid of what I did not like. To overcome dislike of a thing often satisfied one’s feeling of honour.
+ - I came into the world two months too soon, I was in such a hurry.
+ - Six hours a day I lived under school discipline in active intercourse with people none of whom were known to those at home, and the other hours of the twenty-four I spent at home, or with relatives of the people at home, none of whom were known to anybody at school.
+ - My father, though, could run very much faster. It was impossible to compete with him on the grass. But it was astonishing how slow old people were. Some of them could not run up a hill and called it trying to climb stairs.
+ - Birth was something that came quite unexpectedly, and afterwards there was one child more in the house.
+ - What is public opinion? It is private indolence.
+ - I admired in others the strength that I lacked myself.
+ - When I was a little boy I did not, of course, trouble much about my appearance.
+ - The Danish glee: the national version of cheerfulness.
+ - It gradually dawned upon me that there was no one more difficult to please than my mother.
+ - The war imbued my tin soldiers with quite a new interest. It was impossible to have boxes enough of them.
+ - The society of the Culture-Philistines makes life a burden to exceptional men.
+ - I was not given to looking at life in a rosy light.
+ - The masses are only to be regarded as one of three things: either as copies of great personalities, bad copies, clumsily produced in a poor material, or as foils to the great, or finally as their tools.
+ - I was a town child, it is true, but that did not prevent me enjoying open-air life, with plants and animals.
+ - But I did not find any positive inspiration in my studies until I approached my nineteenth year.
+ - Just about this time, when in imagination I was so great a warrior, I had good use in real life for more strength, as I was no longer taken to school by the nurse, but instead had myself to protect my brother, two years my junior.
+ - I was always hearing that I was pale and thin and small.
+ - I was at home then in the world of figures, but not in that of values.
+ - Any feeling that I was enriching my mind from those surrounding me was unfortunately rare with me.
+ - The great man is not the child of his age but its step-child.
+ - The loathing of mankind is a force that surprises and overwhelms one, fed by hundreds of springs concealed his subconsciousness. One only detects its presence after having long entertained it unawares.
+ - I did not know what it was to be happy for a whole day at a time, scarcely for an hour.
+
+47 quotes

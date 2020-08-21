@@ -1,0 +1,107 @@
+ - The world needs change, change needs an activity. It has to be planted by a thought.
+ - The power of art is as powerful as weapons of mass destruction; it’s just where war destroys, art inspires. But in order to inspire, you need to react to it. And, if it doesn’t penetrate your mind, you can’t react to it.
+ - In a way “Drive” is probably the greatest superhero movie ever made.
+ - I love films, I love movies, I love television, I love television series, I love the internet, I love anything that enhances images. But most of all, I love, love movies.
+ - Like all art forms, film is a media as powerful as weapons of mass destruction; the only difference is that war destroys and film inspires.
+ - I don’t have to go very far to see the power of beauty. Being desired, feeling desired is a very seductive aspect of our being.
+ - Only God Forgives was very much a generation gap in a way. It was all the youth of the world that embraced it. I make films for young people. That’s what I will continue to do.
+ - In “Drive,” there’s a heightened male edge. In “Only God Forgives,” it was almost crawling back into the womb of the mother. And now with “The Neon Demon,” being reborn as a 16-year-old girl.
+ - I’m a very feminine man. I like feminine things. I don’t go to strip clubs. I don’t drink beer. I don’t play sports.
+ - I woke up one day and I realized I wasn’t born beautiful, but my wife was, so I decided to make a horror film about it: what it would be like to be born beautiful.
+ - I love rock ballads, and I’m kind of in emotional turmoil, being ill and high, so I start to sing to the song, I turn it up and start to sing.
+ - The artificial world that we create through images will essentially become real.
+ - In the end, self-indulgence is very much about your ego and your vanity and your own id. The more you can indulge in it, the more pleasurable it becomes. And then when it feeds out, it’s able to penetrate the mind and create a reaction.
+ - In a way, art is a great way to release your love, fantasy, and desires. It’s like a fetish. It’s a comfortable way of excising a lot of your conscience.
+ - The act of creation can be an extreme violent experience.
+ - We live in a beauty-obsessed culture, which on one hand is absolutely fabulous, but on the flip side, is also dangerously extreme.
+ - I always think once you have the lead protagonist, you cast around that character.
+ - People very quickly define success due to the amount of money something makes. In the end, I think everyone is searching for that experience. That’s why we continue to go to the movies and watch television.
+ - Good and bad, what’s good and bad? I don’t know.
+ - I mean, what do you think creativity is? Nothing but self-indulgence. And the more self-indulgent it is, the more interesting it becomes. So I think that part of creativity is also falling in love with your own narcissism: accepting it, using it as an asset.
+ - The digital revolution is forever. They put importance on that option as well. With Amazon, you’re getting the best of both worlds, with a whole new playing field.
+ - I think that I am a pornographer, meaning that I make movies based on what excites me and what I would like to see.
+ - I don’t do drugs, and so music very much gets me going. When I do something, I think, “If it was a piece of music, what would it be?”
+ - I have not seen “Batman v Superman,” unfortunately. It hasn’t been on the plane, as I’ve been flying a lot.
+ - For me, Amazon has stepped in and presented the future of entertainment. Obviously, the future of entertainment is going to be on the internet.
+ - The vibe, it’s that excitement. New York, you just can’t describe it. You get a similar thing from Paris and London, but it’s not New York.
+ - I like the early comic book characters more than the new ones.
+ - I wanted to make a horror film about beauty.
+ - Nowadays, teenagers are so fast and quick to see through any form of manipulation. Sitting down and just thinking of something is like watching really bad pornography.
+ - The minute you celebrate narcissism, which on one hand is very complex, it’s very ridiculous. You have to love oneself with humor.
+ - I always say I have a Danish passport, but I am a New Yorker at heart.
+ - When you make something that everyone likes, it’s very easy to say, “Well, I’ll just repeat that.” Because that was easy. I have a formula. But creatively, it’s not very interesting.
+ - The kind of group mentality that we had lived under since the Second World War is starting to erupt, and the craving for individualism is now much stronger. It’s not as taboo anymore, as it was when I was younger.
+ - I’ve been lucky to have a beautiful wife and children. The idea that something so beautiful can be so horrific at the same time. Beauty is a complex thing.
+ - Love comes from the strangest places.
+ - I sometimes play different kinds of music to see where the performers end up. I play one genre. Then something else when I do it again. It really helps.
+ - I love watching the superhero movies and I would love to make one.
+ - Man’s fear of sexuality is the basis of all horror from the male perspective.
+ - I’ve stopped showing actors what to actually do. I rather just talk to them about it. Then I usually play music. That’s a great way to convey inner emotion, bring the power of style and acting together. That’s really what it is, very good acting without talking.
+ - Financing films that are demanding is a task, in itself. Because people are so afraid of taking any kind of chance, because they’re afraid the audience isn’t going to respond. But the audience is so hungry for anything that’s a bit original, personal, or different.
+ - We have basic urges all the time. They just manifest themselves in different scenarios, and we have to turn those weaknesses into our strengths. Art is very much about making your weaknesses your strength.
+ - I think that experiencing through art is a wonderful way to expand the horizon and everything around it.
+ - Sometimes I just play the theme from Arthur. It reminds me of my childhood in New York and I just love it.
+ - I’m a fetishist. I make films based on what I would like to see.
+ - I feel that silence is the greatest word, ever. When you don’t talk, people begin to read things into you or you become what they long for. When you don’t talk, you almost become the mirror image of the other person.
+ - There’s incredible effect in being either loved or hated, but knowing that, either way, you have penetrated the mind and have altered it; that is a very pleasurable feeling.
+ - You must understand that violence in a movie is only a tool. If it’s used badly, it will be horrible. If it’s used correctly, it can be very interesting. But, essentially, it’s just a tool.
+ - I very much enjoy my freedom creatively but I also would love to make one of those big Hollywood films that costs a lot of money and has a lot of people running around with cell phones and all that insanity.
+ - Creativity is very self-indulgent.
+ - The more we become civilized, the more we simultaneously understand our need to be virtuous, and our need to understand our experiences on a subconscious level.
+ - I think that television has become really, really interesting, in terms of character development. You can have 13 hours to develop a character, as opposed to 25 minutes in a movie. That excites me.
+ - I consider it a great honour that my movie Drive inspired so many wonderful artists to come together and create one ultra-cool glam experience.
+ - Ironically, even the fashion in New York or Paris or Milan or whatever, or music in Berlin, or art in, I don’t know, Madrid – all these scenes come and go. Everything leads back to Hollywood.
+ - You know the one I want to do? I want to make Batgirl.
+ - I think the idea of individualism has become more dominating in our society. You can even see it by our political system: how people vote, the job situation, the sociological evolution that’s happening, what’s happening in the Middle East and so forth.
+ - I don’t drive because I failed eight times and never got my license.
+ - I don’t believe that art makes people violent in any way. I don’t. But I do believe art can show people how to be violent and that’s much more dangerous in a way.
+ - I also believe on a practical level, if you’re taking time away from people, besides entertaining them, I think it’s important that there’s something to react to.
+ - If you create something that is essentially alien to you – as a man – and make a film about woman, the more I can surround myself with woman and combine it with my soul’s point of view, the more I become a stranger in a strange land.
+ - If an actor or actress is recognizable, that changes our perception of them.
+ - The character requires so many elements. The only one who could fulfill that was this one person: Elle Fanning.
+ - I never desired to really go to Hollywood and make films, and purely because I want my entire control, which I’m used to having.
+ - My initial idea was I wanted to make it a horror film, very much. At times I do enter that world.
+ - That’s half of what we do our daily lives – we react to our surroundings. Of course, we have to make it entertaining, and we are entertainers.
+ - I grew up in the ’80s and John Hughes was the filmmaker making serious movies for teenagers.
+ - Beauty is on one level pure surface, and on the other hand, it’s the most complex subject that we can touch upon because it says everything about us as people. It’s a subject we very quickly begin to argue about. I think that’s so interesting.
+ - Reaction is what changes your understanding of the world.
+ - I just close my eyes and I fantasize what I would like to see.
+ - Cinema is mass media, it is both overtly gross and exciting. It is our great mirror of society.
+ - Personally I kept my feelings out of it and created a fantasy. That’s the process of going through this world being beautiful.
+ - I can do my part of the storytelling. I can carry it. I can paint it. I can maneuver it. I can massage it. But if I don’t have anything to work with, then there’s nothing.
+ - I believe shooting chronologically gives you a very fresh perspective and you’re always aware of where you are in the development of the characters.
+ - I’m a fetish filmmaker, in that I don’t know why I do what I do, I just like to see things. When I figure out what I would like to see, I will put it in a film.
+ - In the end, we’re just showmen. But, I think that it’s an important factor. Not to be anything else but clear about that – for me, creativity is an important part of our evolution. Art has probably done more good for the world than war. But they’re equally powerful. They both create revolutions.
+ - I’ve done collaborations in all my movies, and I think it’s part of what I enjoy about the process. This kind of intimacy that you create. Because it becomes very intimate.
+ - I think the idea was to make a horror film that became a science-fiction film with a lot of melodramatic tropes.
+ - Sometimes you can play against type, or you can just repeat what they’ve already done. It can be an obstacle; it’s a very fine line.
+ - Abbey Lee was a very famous model and had great success. She was very open about the negative aspects of that industry.
+ - I try not to have too specific notions because it messes up the process later on. I leave it very open to interpretation until I start casting. Everything changes a lot when you start casting. I mean everything.
+ - I am not a fan of improvisation, because it bores me. Working off a tight scenario gives you the confidence and ability to – why don’t we change this a little bit and bring it back to the script. You always discover things while shooting.
+ - How can creativity be bad? You can have, “I liked it” or “I didn’t like it,” but, in the end, it’s an individual experience. How can you even begin to define that? I find that sometimes extremely arrogant and counter-productive.
+ - I like doing the promotional work. It’s part of the film’s process. Cannes was very wonderful to premiere.
+ - I can’t make a film that I don’t feel comfortable with.
+ - I’ve never really been on a date, because I’ve been with the same girl since my early twenties, but on our first date, I showed her The Texas Chain Saw Massacre. I was like, “Hey, you’ve got to see this!” And we’ve been together ever since.
+ - The idea of narcissism, essentially, is and will be accepted as a virtue.
+ - I am a child of cinema, and I am a cineaste, so everything I do is a reference to something I’ve heard or experienced or seen. And we all do it, we all steal. The ones who claim they don’t, are obviously lying, because you do. You just have to make it your own.
+ - Understanding one’s own power is more interesting than someone being given something powerful.
+ - There will always be a theatrical experience because there will always be cinemas no matter what. It’s like there will always be theaters to have stage plays in.
+ - Amazon, being a provider – not just on the playing field – is, of course, opening up a whole new set of possibilities. At the same time, Amazon also understands platforms. For them, theatrical is an extremely important event. I also believe it’s the best way of seeing a movie.
+ - I’ve been trying to get away from physical violence; it’s too easy; it doesn’t satisfy me artistically to work with it. Dramatic violence is much more interesting, but it’s much more difficult.
+ - I don’t know if power seduces less or more. I think power is a constant evolving mechanism that, since the dawn of time, on one level corrupts and on another level does not. But I think, no matter what, mutates.
+ - When we met, my agenda was “Get Elle Fanning.” I believe Elle’s was “Get the role.” But we didn’t know that.
+ - I was in Hollywood. It’s the mythology heart. It’s where all the European films came in the ’30s and ’40s. The marriage between Europe and Hollywood has always been the best when it works.
+ - The fairy tale always takes place in worlds that are between, unidentifiable.
+ - The conversations about a film are an example of success because then you know whatever you’ve done has resonated.
+ - I think that’s the struggle of our normality is that we have oppressed desires because of what is accepted and not accepted in society.
+ - I feel Amazon is really bringing films into the future. So for me it was the best of both worlds.
+ - Doing your first film, it’s very important that it’s a commercial success, because that gives you a couple times to experiment until you have to hit the jackpot again.
+ - It’s the hardest thing for an actor not to speak because you take away their main tool. So for an actor, it’s very frustrating and very challenging, and very few people can pull it off. Some actors can say a thousand words with just a look, and it’s a unique gift.
+ - The thing with Ryan, you can look at him for hours. Very few actors have that. It’s a gift.
+ - Look at the birth of anything; it’s always more violent than anything you could ever imagine.
+ - But once you get down to reality, there’s no one to play her and there’s no movie. It would be ridiculous.
+ - Financially, it was very successful. Which is the most important thing. That is the only way you get to make another movie. It’s very simple. The market will value you.
+ - If the Wizard of Oz were real he would be in Hollywood.
+ - I certainly believe that creativity must be an experience. If I’m to steal time away from people, we should give them something to react to.
+
+105 quotes

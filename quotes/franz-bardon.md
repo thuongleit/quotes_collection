@@ -1,0 +1,21 @@
+ - Life is not a fairground, but a school. – Franz Bardon.
+ - It is not advisable to hasten development, because everything needs time. Patience, perseverance and tenacity are fundamental conditions of the development. The pains taken in one’s development will be amply rewarded.
+ - We must always be aware of the fact that the body, soul and mind are to be trained simultaneously, for otherwise it would be impossible to gain and maintain the magic equipoise.
+ - There are no limits, and that applies to everyone on earth.
+ - According to the universal laws, the magician will form his own point of view about the universe which henceforth will be his true religion.
+ - Whoever is willing to enter the magic path should regard it as his sacred duty to practice regular exercises. He ought to be kind, generous and tolerant with his fellow men, but relentless and hard with himself. Only such behavior will be followed by success in magic.
+ - A true initiate will never force anyone who has not reached a certain level of maturity to accept his truth.
+ - Everything that can be found in the universe on a large scale is reflected in a human being on a small scale.
+ - You will find that there is no death at all, in the true sense of the word, but everything goes on living, transmuting and becoming perfect according to primitive laws.
+ - The physical world is the point of departure from whence the magician works and upon which every human being, initiated or not, live and moves through his senses, his spirit, his soul and his physical body.
+ - Be kind and generous to your fellows, but hard and relentless with yourself.
+ - The idea that by eating the meat of an animal, the animal powers or faculties could be conveyed to oneself is nonsense and originates in a mental ignorance of the perfect and genuine primitive laws.
+ - A true magician must not undertake anything regarding which he is not thoroughly informed.
+ - The intuitive magician will find a certain relationship between the earth zone and the muladhara center.
+ - It is in an ennobled soul only that the universal powers can do their work, especially if body, mind and soul have been equally trained and developed.
+ - He who is going to be a magician will recognize that life is dependent on the work of the elements in the various planes and spheres. It is to be seen in great and in small things, in the microcosm as well as in the macrocosm, temporarily and eternally, everywhere there are powers in action.
+ - One must first become a magician before one he can become a Kabbalist. As a Kabbalist, one works differently and more advantageously.
+ - If knowledge and wisdom keep the same pace in development, the adept is enabled to grasp all the laws of the microcosm and the microcosm, not only from the point of view of wisdom, but also from the intellectual side, that is, in a bipolar way, to perceive and utilize them for his own development.
+ - Knowledge and wisdom must go hand in hand. The adept will therefore endeavour to get on in knowledge as well as in wisdom, for neither of the two must lag behind in development.
+
+19 quotes

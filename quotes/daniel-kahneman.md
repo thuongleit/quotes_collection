@@ -1,0 +1,167 @@
+ - Nothing in life is quite as important as you think it is while you’re thinking about it.
+ - We can be blind to the obvious, and we are also blind to our blindness.
+ - Money does not buy you happiness, but lack of money certainly buys you misery.
+ - The confidence people have in their beliefs is not a measure of the quality of evidence but of the coherence of the story the mind has managed to construct.
+ - Our comforting conviction that the world makes sense rests on a secure foundation: our almost unlimited ability to ignore our ignorance.
+ - Hindsight bias makes surprises vanish.
+ - The dominance of conclusions over arguments is most pronounced where emotions are involved.
+ - Odd as it may seem, I am my remembering self, and the experiencing self, who does my living, is like a stranger to me.
+ - True intuitive expertise is learned from prolonged experience with good feedback on mistakes.
+ - Courage is willingness to take the risk once you know the odds. Optimistic overconfidence means you are taking the risk because you don’t know the odds. It’s a big difference.
+ - One of the major biases in risky decision making is optimism. Optimism is a source of high-risk thinking.
+ - There are domains in which expertise is not possible. Stock picking is a good example. And in long-term political strategic forecasting, it’s been shown that experts are just not better than a dice-throwing monkey.
+ - The planning fallacy is that you make a plan, which is usually a best-case scenario. Then you assume that the outcome will follow your plan, even when you should know better.
+ - The most effortful forms of slow thinking are those that require you to think fast.
+ - Endlessly amused by people’s minds.
+ - It doesn’t take many observations to think you’ve spotted a trend, and it’s probably not a trend at all.
+ - We don’t choose between experiences, we choose between memories of experiences. Even when we think about the future, we don’t think of our future normally as experiences. We think of our future as anticipated memories.
+ - Acquisition of skills requires a regular environment, an adequate opportunity to practice, and rapid and unequivocal feedback about the correctness of thoughts and actions.
+ - If there is time to reflect, slowing down is likely to be a good idea.
+ - The psychologist, Paul Rozin, an expert on disgust, observed that a single cockroach will completely wreck the appeal of a bowl of cherries, but a cherry will do nothing at all for a bowl of cockroaches.
+ - It’s a wonderful thing to be optimistic. It keeps you healthy and it keeps you resilient.
+ - Mind is a machine for jumping to conclusions.
+ - We can’t live in a state of perpetual doubt, so we make up the best story possible and we live as if the story were true.
+ - I don’t try to be clever at all. The idea that I could see what no one else can is an illusion.
+ - Laziness is built deep into our nature.
+ - This is the essence of intuitive heuristics: when faced with a difficult question, we often answer an easier one instead, usually without noticing the substitution.
+ - If owning stocks is a long-term project for you, following their changes constantly is a very, very bad idea. It’s the worst possible thing you can do, because people are so sensitive to short-term losses. If you count your money every day, you’ll be miserable.
+ - We are far too willing to reject the belief that much of what we see in life is random.
+ - The concept of loss aversion is certainly the most significant contribution of psychology to behavioral economics.
+ - The idea that the future is unpredictable is undermined every day by the ease with which the past is explained.
+ - By their very nature, heuristic shortcuts will produce biases, and that is true for both humans and artificial intelligence, but the heuristics of AI are not necessarily the human ones.
+ - Establish a closing ritual. Know when to stop working. Try to end each work day the same way, too. Straighten up your desk. Back up your computer. Make a list of what you need to do tomorrow.
+ - The ‘Instagram Generation’ now experiences the present as an anticipated memory.
+ - Optimism is normal, but some fortunate people are more optimistic than the rest of us. If you are genetically endowed with an optimistic bias, you hardly need to be told that you are a lucky person – you already feel fortunate.
+ - The illusion that we understand the past fosters overconfidence in our ability to predict the future.
+ - It’s nonsense to say money doesn’t buy happiness, but people exaggerate the extent to which more money can buy more happiness.
+ - Facts that challenge basic assumptions-and thereby threaten people’s livelihood and self-esteem-are simply not absorbed. The mind does not digest them.
+ - If you can’t take the time for a vacation right now, or even a night out with friends, put something on the calendar – even if it’s a month or a year down the road. Then whenever you need a boost of happiness, remind yourself about it.
+ - A reliable way to make people believe in falsehoods is frequent repetition, because familiarity is not easily distinguished from truth. Authoritarian institutions and marketers have always known this fact.
+ - When you look at the books about well-being, you see one word – it’s happiness. People do not distinguish.
+ - When people believe a conclusion is true, they are also very likely to believe arguments that appear to support it, even when these arguments are unsound.
+ - Most people are highly optimistic most of the time.
+ - We have no reason to expect the quality of intuition to improve with the importance of the problem. Perhaps the contrary: high-stake problems are likely to involve powerful emotions and strong impulses to action.
+ - The premise of this book is that it is easier to recognize other people’s mistakes than your own.
+ - When people think of the outcomes of their decisions, they think much more short term than that. They think in terms of gains and losses.
+ - The concept of happiness has to be reorganised.
+ - It is only a slight exaggeration to say that happiness is the experience of spending time with people you love and who love you.
+ - Clearly, the decision-making that we rely on in society is fallible. It’s highly fallible, and we should know that.
+ - The conclusion is straightforward : self-control requires attention and effort.
+ - If there was one ubiquitous recommendation about marriage it was this: “Don’t go to bed angry.”
+ - Poverty is clearly one source of emotional suffering, but there are others, like loneliness. A policy to reduce the loneliness of the elderly would certainly reduce suffering.
+ - Most successful pundits are selected for being opinionated, because it’s interesting, and the penalties for incorrect predictions are negligible. You can make predictions, and a year later people won’t remember them.
+ - Most of the moments of our life – and I calculated, you know, the psychological present is said to be about three seconds long; that means that, you know, in a life there are about 600 million of them; in a month, there are about 600,000 – most of them don’t leave a trace.
+ - People who are cognitively busy are also more likely to make selfish choices, use sexist language, and make superficial judgments in social situations.
+ - If individuals are rational, there is no need to protect them against their own choices.
+ - We are prone to overestimate how much we understand about the world and to underestimate the role of chance in events.
+ - Slow thinking has the feeling of something you do. It’s deliberate.
+ - Knowing the importance of luck, you should be particularly suspicious when highly consistent patterns emerge from the comparison of successful and less successful firms. In the presence of randomness, regular patterns can only be mirages.
+ - We are often confident even when we are wrong, and an objective observer is more likely to detect our errors than we are.
+ - We associate leadership with decisiveness. That perception of leadership pushes people to make decisions fairly quickly, lest they be seen as dithering and indecisive.
+ - One thing we have lost, that we had in the past, is a sense of progress, that things are getting better. There is a sense of volatility, but not of progress.
+ - A person who has not made peace with his losses is likely to accept gambles that would be unacceptable to him otherwise.
+ - Most of the time, we think fast. And most of the time we’re really expert at what we’re doing, and most of the time, what we do is right.
+ - We are very influenced by completely automatic things that we have no control over, and we don’t know we’re doing it.
+ - When action is needed, optimism, even of the mildly delusional variety, may be a good thing.
+ - Optimistic people play a disproportionate role in shaping our lives. Their decisions make a difference; they are inventors, entrepreneurs, political and military leaders – not average people. They got to where they are by seeking challenges and taking risks.
+ - If you care about being thought credible and intelligent, do not use complex language where simpler language will do.
+ - Often, the most enjoyable part of an activity is the anticipation.
+ - Survival prospects are poor for an animal that is not suspicious of novelty.
+ - The confidence that individuals have in their beliefs depends mostly on the quality of the story they can tell about what they see, even if they see little.
+ - We’re not aware of changing our minds even when we do change our minds. And most people, after they change their minds, reconstruct their past opinion – they believe they always thought that.
+ - Happiness is determined by factors like your health, your family relationships and friendships, and above all by feeling that you are in control of how you spend your time.
+ - The evidence is unequivocal, there’s a great deal more luck than skill in people getting very rich.
+ - After a crisis we tell ourselves we understand why it happened and maintain the illusion that the world is understandable. In fact, we should accept the world is incomprehensible much of the time.
+ - If people are failing, they look inept. If people are succeeding, they look strong and good and competent. That’s the ‘halo effect.’ Your first impression of a thing sets up your subsequent beliefs. If the company looks inept to you, you may assume everything else they do is inept.
+ - Economists think about what people ought to do. Psychologists watch what they actually do.
+ - People talk of the new economy and of reinventing themselves in the workplace, and in that sense most of us are less secure.
+ - We have a very narrow view of what is going on.
+ - Adaptation seems to be, to a substantial extent, a process of reallocating your attention.
+ - A large portion of the weekend effects is explained by differences in the amount of time spent with friends or family between weekends and weekdays.
+ - When you analyze happiness, it turns out that the way you spend your time is extremely important.
+ - All of us roughly know what memory is. I mean, memory is sort of the storage of the past. It’s the storage of our personal experiences. It’s a very big deal.
+ - All of us would be better investors if we just made fewer decisions.
+ - Intuitive diagnosis is reliable when people have a lot of relevant feedback. But people are very often willing to make intuitive diagnoses even when they’re very likely to be wrong.
+ - My interest in well-being evolved from my interest in decision making – from raising the question of whether people know what they will want in the future and whether the things that people want for themselves will make them happy.
+ - It is the consistency of the information that matters for a good story, not its completeness. Indeed, you will often find that knowing little makes it easier to fit everything you know into a coherent pattern.
+ - An investment said to have an 80% chance of success sounds far more attractive than one with a 20% chance of failure. The mind can’t easily recognize that they are the same.
+ - You are more likely to learn something by finding surprises in your own behavior than by hearing surprising facts about people in general.
+ - Negotiations over a shrinking pie are especially difficult because they require an allocation of losses. People tend to be much more easygoing when they bargain over an expanding pie.
+ - Human beings cannot comprehend very large or very small numbers. It would be useful for us to acknowledge that fact.
+ - Managers think of themselves as captains of a ship on a stormy sea. Risk for them is danger, but they are fighting it, very controlled.
+ - Researchers who studied a thousand Dutch vacationers concluded that by far the greatest amount of happiness extracted from the vacation is derived from the anticipation period...
+ - People are really happier with friends than they are with their families or their spouse or their child.
+ - The effort invested in ‘getting it right’ should be commensurate with the importance of the decision.
+ - To better avoid errors, you should talk to people who disagree with you and you should talk to people who are not in the same emotional situation you are.
+ - Divorced women, compared to married women, are less satisfied with their lives, which is not surprising. But they’re actually more cheerful, when you look at the average mood they’re in in the course of the day.
+ - Groups tend to be more extreme than individuals.
+ - Spend some effort in figuring out why each decision did or did not pan out. Doing that systematically is key: really try to question the way you make decisions, and improve it.
+ - Each additional day together is a gift. The end of the day means the end of hostilities, the recognition that the underlying shared values and commitment to the relationship trump the need for one last dig or self-righteous justification.
+ - The brains of humans contain a mechanism that is designed to give priority to bad news.
+ - There’s a very good reason for why economics developed the way it did, and that is that in many situations, the assumption that people will exploit the opportunities available to them is very plausible, and it simplifies the analysis of how markets will behave.
+ - Ten minutes of a smartphone in front of your nose is about the equivalent of an hour long walk in bright daylight. Imagine going for an hour long walk in bright daylight and then thinking, “Now I’ll get some sleep.” It ain’t going to happen.
+ - My impression is that the elimination of memories greatly reduces the value of the experience.
+ - We don’t see very far in the future, we are very focused on one idea at a time, one problem at a time, and all these are incompatible with rationality as economic theory assumes it.
+ - Some memories come with a very compelling sense of truth about them. And that happens to be the case even with memories that are not true.
+ - The experiencing self lives its life continuously. It has moments of experience, one after the other.
+ - The idea that you can ask one question and it makes the point – well, that wasn’t how psychology was done at the time.
+ - When everybody in a group is susceptible to similar biases, groups are inferior to individuals, because groups tend to be more extreme than individuals.
+ - Most things that couples disagree upon aren’t worth more than a day’s combat...
+ - I’m not a great believer in self-help.
+ - Being wealthy is often a powerful predictor that people spend less time doing pleasurable things and more time doing compulsory things and feeling stressed.
+ - So your emotional state really has a lot to do with what you’re thinking about and what you’re paying attention to.
+ - Although professionals are able to extract a considerable amount of wealth from amateurs, few stock pickers, if any, have the skill needed to beat the market consistently, year after year.
+ - There is general agreement among researchers that nearly all stock pickers, whether they know it or not-and few of them do-are playing a game of chance.
+ - Psychologists really aim to be scientists, white-coat stuff, with elaborate statistics, running experiments.
+ - In a rising market, enough of your bad ideas will pay off so that you’ll never learn that you should have fewer ideas.
+ - It was always assumed I would be a professor. I grew up thinking it.
+ - One emphasis of my research has been on the question of how people spend their time. Time is the ultimate finite resource, or course, so the question of how people spend it would seem to be important.
+ - People like leaders who look like they are dominant, optimistic, friendly to their friends, and quick on the trigger when it comes to enemies. They like boldness and despise the appearance of timidity and protracted doubt.
+ - People have little idea, by and large, of the investment world. They are convinced they have an advantage.
+ - I have always emphasized the willingness to discard.
+ - Through some combination of culture and biology, our minds are intuitively receptive to religion.
+ - It’s clear that policymakers and economists are going to be interested in the measurement of well-being primarily as it correlates with health; they also want to know whether researchers can validate subjective responses with physiological indices.
+ - An individual who expresses high confidence probably has a good story, which may or may not be true.
+ - The easiest way to increase happiness is to control your use of time.
+ - People just hate the idea of losing. Any loss, even a small one, is just so terrible to contemplate that they compensate by buying insurance, including totally absurd policies like air travel.
+ - I enjoy being active, but I look forward to the day when I can retire to the Internet.
+ - There’s a tendency to look at investments in isolation. Investors focus on the risk of individual securities.
+ - Experienced happiness refers to your feelings, to how happy you are as you live your life. In contrast, the satisfaction of the remembering self refers to your feelings when you think about your life.
+ - The extra daily social time of 1.7 hours in weekends raises average happiness by about 2%.
+ - Intelligence is not only the ability to reason; it is also the ability to find relevant material in memory and to deploy attention when needed.
+ - The average investor’s return is significantly lower than market indices due primarily to market timing.
+ - People assign much higher probability to the truth of their opinions than is warranted.
+ - Many ideas happen to us. We have intuition, we have feeling, we have emotion, all of that happens, we don’t decide to do it. We don’t control it.
+ - If people do not know what is going to make them better off or give them pleasure, then the idea that you can trust people to do what will give them pleasure becomes questionable.
+ - Question: So investors shouldn’t delude themselves about beating the market? Answer: “They’re just not going to do it. It’s just not going to happen.”
+ - If you’re going to be unreligious, it’s likely going to be due to reflecting on it and finding some things that are hard to believe.
+ - I would not advise people to buy a car or house without making a list. You will probably improve your intuitions by making a list and then sleeping on it.
+ - You should expect little or nothing from Wall Street stock pickers who hope to be more accurate than the market in predicting the future of prices. And you should not expect much from pundits making long-term forecasts.
+ - Individual investors predictably flock to stocks in companies that are in the news.
+ - Our memory tells us stories, that is, what we get to keep from our experiences is a story.
+ - There is a huge wave of interest in happiness among researchers. There is a lot of happiness coaching. Everybody would like to make people happier.
+ - Except for some effects that I attribute mostly to age, my intuitive thinking is just as prone to overconfidence, extreme predictions, and the planning fallacy as it was before I made a study of these issues.
+ - Friends are sometimes a big help when they share your feelings. In the context of decisions, the friends who will serve you best are those who understand your feelings but are not overly impressed by them.
+ - I used to hold a unitary view, in which I proposed that only experienced happiness matters, and that life satisfaction is a fallible estimate of true happiness.
+ - What happens with fear is that probability doesn’t matter very much. That is, once I have raised the possibility that something terrible can happen to your child, even though the possibility is remote, you may find it very difficult to think of anything else. Emotion becomes dominant.
+ - One study found that people who just thought about watching their favorite movie actually raised their endorphin levels by 27 percent.
+ - People’s mood is really determined primarily by their genetic make-up and personality, and in the second place by their immediate context, and only in the third and fourth place by worries and concerns and other things like that.
+ - We know that the French are very different from the Americans in their satisfaction with life. They’re much less satisfied. Americans are pretty high up there, while the French are quite low – the world champions in life satisfaction are actually the Danes.
+ - People should be conscious of the large contribution made by anything that gets people together easily in the reduction of loneliness and emotional well-being.
+ - We have associations to things. We have, you know, we have associations to tables and to – and to dogs and to cats and to Harvard professors, and that’s the way the mind works. It’s an association machine.
+ - We’re generally overconfident in our opinions and our impressions and judgments.
+ - Employers who violate rules of fairness are punished by reduced productivity, and merchants who follow unfair pricing policies can expect to lose sales.
+ - Banks are run by executives, and executives protect themselves, and that does not always mean that banks are going to behave rationally.
+ - Nobody would say, ‘I’m voting for this guy because he’s got the stronger chin,’ but that, in fact, is partly what happens.
+ - It’s very easy for trusted companies to mislead naive customers, and life insurance companies are trusted.
+ - Political columnists and sports pundits are rewarded for being overconfident.
+ - You’re surprised by something, but you don’t really know what surprised you; you recognize someone, but you don’t really know what cues cause you to recognize that person.
+ - Policy makers, like most people, normally feel that they already know all the psychology and all the sociology they are likely to need for their decisions. I don’t think they are right, but that’s the way it is.
+ - Organizations may be better able to tame optimism than individuals are.
+ - You can always find an evolutionary quotation for anything. But the question is whether it’s functional, which is not the same as being evolutionary.
+ - Mental effort, I would argue, is relatively rare. Most of the time we coast.
+ - In essence, the optimistic style involves taking credit for successes but little blame for failures.
+ - Alternative descriptions of the same reality evoke different emotions and different associations.
+ - The brain scientists are the wave of the future in the financial world. If you seek to maximize understanding, whether you’re in academia or in the investment community, you’d better pay serious attention to them.
+
+165 quotes

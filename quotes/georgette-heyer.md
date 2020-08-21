@@ -1,0 +1,53 @@
+ - You may have married her, but she is mine. Do you think I shall let you take her? She may be ten times your wife, but, by God, you shall never have her.
+ - You’re only a man! You’ve not our gifts! I can tell you! Why, a woman can think of a hundred different things at once, all them contradictory!
+ - And don’t you say that it is very kind and obliging of him, sir, like Jessamy, because if you don’t like a person, you don’t wish to be obliged to him!
+ - I am relieved. May I now have the truth?
+ - Well, you have the right to make a sacrifice of yourself, but I’ll be damned if I’ll let you sacrifice me!
+ - Depend upon it, you are just the sort of girl a man would be glad to have for his sister! You don’t even know how to swoon, and I daresay if you tried you would make wretched work of it, for all you have is common sense, and of what use is that, pray?
+ - As soon as one promises not to do something, it becomes the one thing above all others that one most wishes to do.
+ - Do you know, I think that of all your idiosyncrasies that choke you give, when you are determined not to laugh, is the one that most enchants me.
+ - You have a genius for bringing trouble upon yourself.
+ - You don’t feel you could marry me instead? Got no brains, of course, and I ain’t a handsome fellow, like Jack, but I love you. Don’t think I could ever love anyone else.
+ - My dear girl, don’t talk nonsense to me! You’re lazy, that’s all that’s wrong with you. Why don’t you take up social work?
+ - God knows I’m no saint, but I don’t think I’m more of a sinner than any other man.
+ - O God, I love you to the edge of madness, Venetia, but I’m not mad yet – not so mad that I don’t know how disastrous it might be to you – to us both! You don’t realize what an advantage I should be taking of your innocence!
+ - The more enchanted the idyll, greater must be the pain of its ending.
+ - You are an atrocious person! Since the day I met you I have become steadily more depraved.
+ - I daresay Freddy might not be a great hand at slaying dragons- but one has not the smallest need of a man who can kill dragons!
+ - But it is only in epic tragedies that gloom is unrelieved. In real life tragedy and comedy are so intermingled that when one is most wretched ridiculous things happen to make one laugh in spite of oneself.
+ - There is nothing so mortifying as to fall in love with someone who does not share one’s sentiments.
+ - I comfort myself with the reflection that your wife will possibly be able to curb your desire – I admit, a natural one for the most part – to exterminate your fellows.
+ - I remember only what interests me.
+ - She bowed her head, clasping her hands tightly before her upon the arm of his chair, for her heart yearned towards him, yet could not reach him, and it made her throat ache with unhappiness to meet that look of his that rested on her face without seeing it.
+ - Let me tell you, my girl, that I’m swallowing no more of your insults! And if I hear another word from you in disparagement of the Corinthian set it will be very much the worse for you!
+ - It was growing late, and though one might stand on the brink of a deep chasm of disaster, one was still obliged to dress for dinner.
+ - This, said Damerel wrathfully, is the second time you have walked in just as I am about to propose to your sister!
+ - Is it not unsupportable to be held down to a canter when you long to gallop for miles?
+ - Will you marry me, vile and abominable girl that you are? Yes, but, mind, it only to save my neck from being wrung!
+ - Has no one ever told you that it is the height of impropriety to kiss any gentleman, unless you have the intention of accompanying him immediately to the altar?
+ - I do not want a boy. I only want Monseigneur!
+ - Judging from the letters I’ve received from obviously feeble-minded persons who wish I would write another These Old Shades, it ought to sell like hot cakes.
+ - Remind me one day to teach you how to achieve a sneer, Hugh. Yours is too pronounced, and thus but a grimace. It should be but a faint curl of the lips.
+ - How very awkward places we do choose in which to propose to one another!? remarked Mr. Beaumaris.
+ - My dear girl, you don’t consent to an abduction! You consent to an elopement, and I knew you wouldn’t do that.
+ - She succumbed to the eternal feminine passion for bargains.
+ - I liked that young man, did not you? There was something particularly pleasing about his manners, which I thought very easy and frank. He has an air of honest manliness, too, which, in these days of fribbles and counter-coxcombs, I own I find refreshing!
+ - Nevertheless, she did not weep, because, for one thing, it would have made her eyes red, and another, it would be of very little use.
+ - I feel an almost overwhelming interest in the methods of daylight abduction employed by the modern youth.
+ - Those fine eyes of hers had a disconcertingly direct gaze, and very often twinkled in a manner disturbing to male egotism. She had common-sense too, and what man wanted the plainly matter-of-fact, when he could enjoy instead Sophia’s delicious folly?
+ - There is a worse tyranny than that of ill-treatment. It is the tyranny of tears, vapours, appeals to feelings of affection and of gratitude!
+ - Does it ever occur to you, Mama, that my grandfather is a lunatic?
+ - Only trust me! You have fallen into a fit of despondency and there is not the least need! In fact, nothing could be more fatal, in any predicament! It encourages one to suppose that there is nothing to be done, when a little resolution is all that is wanted to bring matters to a happy conclusion.
+ - Of course she is a fool, but so are all girls.
+ - The Marquis believed himself to be hardened against flattery. He thought that he had experienced every variety, but he discovered that he was mistaken: the blatantly worshipful look in the eyes of a twelve-year-old, anxiously raised to his, was new to him, and it pierced his defences.
+ - You will allow that one’s curiosity must be aroused when one learns that a lady is prepared to elope to escape from advances one had not the least intention of making!
+ - The charm of your society, My Sparrow, lies in not knowing what will you say next – though one rapidly learns to fear the worst!
+ - She decided that her wisest course would be to put him out of her mind. After reaching this conclusion she lay thinking about him until at last she fell asleep.
+ - No one could have called Mr. Standen quick-witted, but the possession of three sisters had considerably sharpened his instinct of self-preservation.
+ - What I mean is, like you to have everything you want. Wished it was me, that’s all.
+ - The society of my relatives can only be enjoyed with frequent intervals.
+ - As for the fan, she agreed that it was a most amusing trifle: just what she would wish to buy for herself, if it had not been so excessively ugly!
+ - Eccentricity may be diverting, Mama, but it is out of place in a wife: certainly in my wife!
+ - When fate is got it in for you, there is no limit to what you may have to put up with.
+
+51 quotes

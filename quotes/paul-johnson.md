@@ -1,0 +1,41 @@
+ - Conservation of energy. Never stand up when you can sit down, and never sit down when you can lie down.
+ - The Second World War took place not so much because no one won the First, but because the Versailles Treaty did not acknowledge this truth.
+ - The writer learns to write, in the last resort, only by writing. He must get words onto paper even if he is dissatisfied with them.
+ - Democracy has many enemies, and the terrorist is only one of them.
+ - Euphemism is a human device to conceal the horrors of reality.
+ - If you depart from moral absolutes, you go into a bottomless pit. Communism and Nazism were catastrophic evils which both derived from moral relativism. Their differences were minor compared to their similarities.
+ - The most evil person I ever met was a toss-up between Pablo Picasso and the publisher-crook Robert Maxwell.
+ - As the CIA and KGB, like God and Satan, fight Miltonic battles across five continents...
+ - John Major is what he is: a man from nowhere, going nowhere, heading for a well-merited obscurity as fast as his mediocre talents can carry him.
+ - Every good historian is almost by definition a revisionist. He looks at the accepted view of a particular historic episode or period with a very critical eye.
+ - I was very fond of Princess Diana. She used to have me over to lunch to ask my advice. I’d give her good advice, and she’d say: ‘I entirely agree. Paul, you’re so right.’ Then she’d go and do the opposite.
+ - Next to courage, willpower is the most important thing in politics.
+ - The word ‘meaningful’ when used today is nearly always meaningless.
+ - As a child I found railroad stations exciting, mysterious, and even beautiful, as indeed they often were.
+ - Hell is being trapped in a night-club with the’beautiful people’and forced to live in a’luxury penthouse flat’.
+ - If I see a door ajar, I push on it to see how far it will open, and if it opens wide I go through it.
+ - A deliberate plan is not always necessary for the highest art; it emerges.
+ - I like that lady – Sarah Palin. She’s great. I like the cut of her jib.
+ - A capitalist economy hums when leading businessmen are bubbling with animal spirits and are prepared to sink their money into risky ventures.
+ - The most socially subversive institution of our time is the one-parent family.
+ - This book is dedicated to the people of America – strong, outspoken, intense in their convictions, sometimes wrong-headed but always generous and brave, with a passion for justice no nation has ever matched.
+ - There are no inevitabilities in history.
+ - I don’t write huge books any more. I used to write 1,000 printed pages, but now I write short books. I did one on Napoleon, 50,000 words – enjoyed doing that. He was a baddie. I did one on Churchill, which was a bestseller in New York, I’m glad to say. 50,000 words. He was a goodie.
+ - A Stalin functionary admitted, Innocent people were arrested: naturally – otherwise no one would be frightened. If people were arrested only for specific misdemeanours, all the others would feel safe and so become ripe for treason.
+ - I’ve been having an affair, but I still believe in family values.
+ - I very much wanted to be editor of the ‘New Statesman!’ But I never wanted to be prime minister, except maybe as a little boy.
+ - You know you’re an Arizona native when you have to look up “mass transit” in the dictionary.
+ - If we want foxes, to observe and delight in, we must have hunting.
+ - Human beings are infinitely worth studying, especially the peculiarities that often go along with outstanding gifts.
+ - At some time in their careers, most good historians itch to write a history of the world, endeavor to discover what makes humanity the most destructive and creative of species.
+ - To many, Heathrow in August is a paradigm of Hell.
+ - Courage is the essential element in any great public man or woman.
+ - Global warming, like Marxism, is a political theory of actions, demanding compliance with its rules.
+ - It takes less than a decade for today’s luxury to become a universal necessity.
+ - In the last generation, with public Christianity in headlong retreat, we have caught our first, distant view of a de-Christianized world, and it is not encouraging.
+ - Scanning the newspapers and absorbing with a mixture of incredulity and indignation the enormities they report, I conclude that what England lacks today is, quite simply, sense.
+ - For me this is the vital litmus test: no intellectual society can flourish where a Jew feels even slightly uneasy.
+ - Long periods of recession, which tend to be self-perpetuating, are usually ended by war, or by preparations for it.
+ - In the long term, it is desirable that the human race, faced with the prospect of extinction on Earth, should prepare an escape route for itself to another inhabitable planet.
+
+39 quotes

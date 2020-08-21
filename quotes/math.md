@@ -1,0 +1,42 @@
+ - Math is the only place where truth and beauty mean the same thing. ~~Danica McKellar
+ - The book of nature is written in the language of mathematics. ~~Galileo Galilei
+ - Math is the language of the universe. So the more equations you know, the more you can converse with the cosmos. ~~Neil deGrasse Tyson
+ - A man is like a fraction whose numerator is what he is and whose denominator is what he thinks of himself. The larger the denominator, the smaller the fraction. ~~Leo Tolstoy
+ - The only way to learn mathematics is to do mathematics. ~~Paul Halmos
+ - Number rules the universe. ~~Pythagoras
+ - Mathematics is a more powerful instrument of knowledge than any other that has been bequeathed to us by human agency. ~~René Descartes
+ - To not know math is a severe limitation to understanding the world. ~~Richard P. Feynman
+ - Mathematics expresses values that reflect the cosmos, including orderliness, balance, harmony, logic, and abstract beauty. ~~Deepak Chopra
+ - Mathematics rightly viewed possesses not only truth but supreme beauty. ~~Bertrand Russell
+ - Young man, in mathematics you don’t understand things. You just get used to them. ~~John von Neumann
+ - Mathematics may be defined as the subject in which we never know what we are talking about, nor whether what we are saying is true. ~~Bertrand Russell
+ - To ask the right question is harder than to answer it. ~~Georg Cantor
+ - The purpose of computing is insight, not numbers. ~~Richard Hamming
+ - Mathematics is for lazy people. ~~Peter Hilton
+ - Man discovers truth by reason only, not by faith. ~~Leo Tolstoy
+ - To the wise, life is a problem; to the fool, a solution. ~~Marcus Aurelius
+ - I did not, however, commit suicide, because I wished to know more of mathematics. ~~Bertrand Russell
+ - I would not dare to say that there is a direct relation between mathematics and madness, but there is no doubt that great mathematicians suffer from maniacal characteristics, delirium and symptoms of schizophrenia. ~~John Forbes Nash
+ - The electron is a theory we use; it is so useful in understanding the way nature works that we can almost call it real. ~~Richard P. Feynman
+ - Logic is the anatomy of thought. ~~John Locke
+ - God created everything by number, weight and measure. ~~Isaac Newton
+ - Nature is an infinite sphere of which the center is everywhere and the circumference nowhere. ~~Blaise Pascal
+ - Geometry existed before creation. ~~Plato
+ - The union of the mathematician with the poet, fervor with measure, passion with correctness, this surely is the ideal. ~~William James
+ - It is a capital mistake to theorize before one has data. Insensibly one begins to twist facts to suit theories, instead of theories to suit facts. ~~Arthur Conan Doyle
+ - If a man’s wit be wandering, let him study the mathematics. ~~Francis Bacon
+ - Every new body of discovery is mathematical in form, because there is no other guidance we can have. ~~Charles Darwin
+ - Figures don’t lie, but liars figure. ~~Mark Twain
+ - The scientist does not study nature because it is useful; he studies it because he delights in it, and he delights in it because it is beautiful. ~~Henri Poincaré
+ - You have to run as fast as you can just to stay where you are. If you want to get anywhere, you’ll have to run much faster. ~~Lewis Carroll
+ - Order is heaven’s first law. ~~Alexander Pope
+ - The most important thing we can do is inspire young minds and to advance the kind of science, math and technology education that will help youngsters take us to the next phase of space travel. ~~John Glenn
+ - I loved logic, math, computer programming. I loved systems and logic approaches. And so I just figured architecture is this perfect combination. ~~Maya Lin
+ - Man is an artifact designed for space travel. He is not designed to remain in his present biologic state any more than a tadpole is designed to remain a tadpole. ~~William S. Burroughs
+ - Even if the open windows of science at first make us shiver after the cozy indoor warmth of traditional humanizing myths, in the end the fresh air brings vigor, and the great spaces have a splendor of their own. ~~Bertrand Russell
+ - Poets do not go mad; but chess-players do. Mathematicians go mad, and cashiers; but creative artists very seldom. I am not, as will be seen, in any sense attacking logic: I only say that this danger does lie in logic, not in imagination. ~~Gilbert K. Chesterton
+ - Men who are unhappy, like men who sleep badly, are always proud of the fact. ~~Bertrand Russell
+ - I continued to study Math and Physics on my own, but one and a half years later I realized that I did want to be a composer, and after that I never changed my mind. ~~György Ligeti
+ - Hal Incandenza has an almost obsessive dislike for deLint, whom he tells Mario he sometimes cannot quite believe is even real, and tries to get to the side of, to see whether deLint has a true z coordinate or is just a cutout or projection. ~~David Foster Wallace
+
+40 quotes

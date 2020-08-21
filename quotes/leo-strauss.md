@@ -1,0 +1,29 @@
+ - The silence of a wise man is always meaningful.
+ - Life is too short to live with any but the greatest books.
+ - By realizing that we are ignorant of the most important things, we realize at the same time that the most important thing for us, or the one thing needful, is quest for knowledge of the most important things or quest for wisdom.
+ - No bloody or unbloody change of society can eradicate the evil in man: as long as there will be men, there will be malice, envy and hatred, and hence there cannot be a society which does not have to employ coercive restraint.
+ - One cannot refute what one has not thoroughly understood.
+ - Liberal education reminds those members of a mass democracy who have ears to hear, of human greatness.
+ - It is as absurd to expect members of philosophy departments to be philosophers as it is to expect members of art departments to be artists.
+ - Absolute tolerance is altogether impossible; the allegedly absolute tolerance turns into ferocious hatred of those who have stated clearly and most forcefully that there are unchangeable standards founded in the nature of man and the nature of things.
+ - The Jewish people and their fate are the living witness for the absence of redemption. This, one could say, is the meaning of the chosen people; the Jews are chosen to prove the absence of redemption.
+ - Education to perfect gentlemanship, to human excellence, liberal education consists in reminding oneself of human excellence, of human greatness.
+ - Philosophizing means, then, to ascend from public dogma to essentially private knowledge.
+ - If the highest things are unknowable, then the highest capacity or virtue of man cannot be theoretical wisdom.
+ - All political action aims at either preservation or change. When desiring to preserve, we wish to prevent a change for the worse; when desiring to change, we wish to bring about something better. All political action is then guided by some thought of better or worse.
+ - By becoming aware of the dignity of the mind, we realize the true ground of the dignity of man and therewith the goodness of the world, whither we understand it as created or uncreated, which is the home of man because it is the home of the human mind.
+ - God’s reasons for communicating with man must be subsumed under his reason for communicating to him his account of his creation of the world – and man.
+ - It is safer to try to understand the low in the light of the high than the high in the light of the low. In doing the latter one necessarily distorts the high, whereas in doing the former one does not deprive the low of the freedom to reveal itself as fully as what it is.
+ - God is therefore unknowable. This is the fundamental premise of the Bible.
+ - Liberal relativism has its roots in the natural right tradition of tolerance or in the notion that everyone has a natural right to the pursuit of happiness as he understands happiness; but in itself it is a seminary of intolerance.
+ - Nothing ought to be said or done which could create the impression that unbiased reconsideration of the most elementary premises of philosophy is a merely academic or historical affair.
+ - But the God of the Bible is not only One, but the only possible One.
+ - The clarification of our political ideas insensibly changes into and becomes indistinguishable from the history of political ideas.
+ - For try as one may to expel nature with a hayfork, it will always come back.
+ - Even by proving that a certain view is indispensable for living well, one proves merely that the view in question is a salutary myth: one does not prove it to be true.
+ - It is true that the successful quest for wisdom might lead to the result that wisdom is not the one thing needful. But this result would owe its relevance to the fact that it is the result of the quest for wisdom: the very disavowal of reason must be reasonable disavowal.
+ - If God is One, and if there can be no other God, there can be no idea of God.
+ - The facile delusions which conceal from us our true situation all amount to this: that we are, or can be, wiser than the wisest men of the past. We are thus induced to play the part, not of attentive and docile listeners, but of impresarios and lion-tamers.
+ - A conservative, I take it, is a man who despises vulgarity; but the argument which is concerned exclusively with calculations of success, and is based on blindness to the nobility of the effort, is vulgar.
+
+27 quotes

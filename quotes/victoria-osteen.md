@@ -1,0 +1,29 @@
+ - God loves you UNCONDITIONALLY.
+ - Don’t settle for average. You were made for greatness.
+ - Open your heart and invite God into every circumstance because when God enters the scene, miracles happen.
+ - In life, we will always encounter difficult people. Don’t allow them to frustrate you or steal your joy.
+ - As you keep your mind and heart focused in the right direction, approaching each day with faith and gratitude, I believe you will be empowered to live life to the fullest and enjoy the abundant life He has promised you!
+ - Today let me reassure you, God knows right where you are and He knows how to get you to where you need to be. Even when things don’t go the way you planned, His hand is on you.
+ - It’s good to find common ground with people. When you find common ground and you see things from other people’s perspective, you can have a voice in their lives, you can have an influence.
+ - As women, we’re nurturers by nature. We want to make sure everyone is happy. That’s a good thing, but we also have to put ourselves on that happiness list.
+ - The people closest to you need to hear your words of encouragement the most!
+ - The pressure you are facing is not going to break you. It’s going to make you.
+ - There is no better way to enjoy God’s abundance than to share a meal together with people you love.
+ - When life feels like a yoyo, no matter the ups or the downs know that you’ll always end up in the hands of Almighty God.
+ - Forgiveness sets the prisoner free. And realizing that prisoner was you. That’s what forgiveness does. It sets you free.
+ - When you have an optimistic attitude and you believe that God is guiding you, that you will find the good things in your life and that you will lead to good relationships and good people in your life. And you can make the most of what he’s given you.
+ - When you don’t look at the good things around you, that you lose sight of all those good things. And you’re not going to enjoy your life.
+ - When you come to church, when you worship Him, you’re not doing it for God really. You’re doing it for yourself, because that’s what makes God happy. Amen?
+ - You wouldn’t go very long without eating food; don’t let your spirit starve either. Feed on the Word of God every day.
+ - You know what, my faith is like this – when I die, I’m going to live with God forever and ever. But I believe He wants us to have a good life here on Earth.
+ - We need to keep our families intact. We need to keep our relationships strong, because whatever happens is going to happen. And we’ve got to enjoy our life, and we’ve got to make the most of what we have today.
+ - We should celebrate Christmas throughout the year, but I believe the whole concept of giving was the basis of Christmas, that it was a charitable, you know, giving, and I think we got carried away with giving.
+ - It’s very easy for me to just encourage people in their family life and in their children. It’s just very natural to me. It’s what I feel comfortable doing, and so I enjoy it.
+ - The thing is that oftentimes, we want to be everything all at once. We want to be strong and mature, and God wants that for us, too. But just like that flowerpot had to sit in the sun and receive water day after day, we have to sit in God’s presence every day, too.
+ - I believe that God wants us to show respect.
+ - Well, I – you know, the scripture says that God works by faith. And you have to have faith. You have to have trust in God so that God can work.
+ - One of the first choices we make every day is your attitude. Wake up and put on an attitude of thanksgiving!
+ - You get up every day and you just give it over to God. And something may come against you because of the unforgiveness. But you recognize that. And you say I’m not going to hold this unforgiveness. It’s something that you have to do all the time.
+ - I think money helps us. It helps us. It’s our – it’s our exchange system. But it does not buy you happiness. It doesn’t buy you health.
+
+27 quotes

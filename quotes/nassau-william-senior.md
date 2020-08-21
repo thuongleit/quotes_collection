@@ -1,0 +1,12 @@
+ - To abstain from the enjoyment which is in our power, or to seek distant rather than immediate results, are among the most painful exertions of the human will.
+ - With respect to the first of these obstacles, it has often been made a matter of grave complaint against Political Economists, that they confine their attention to Wealth, and disregard all consideration of Happiness or Virtue.
+ - The state, by relieving idleness, improvidence, or misconduct from punishment, and depriving abstinence and foresight of the reward, which have been provided for them by nature, may indeed destroy wealth, but most certainly will aggravate poverty.
+ - But that the reasoning from these facts, the drawing from them correct conclusions, is a matter of great difficulty, may be inferred from the imperfect state in which the Science is now found after it has been so long and so intensely studied.
+ - The business of a Political Economist is neither to recommend nor to dissuade, but to state general principles, which it is fatal to neglect, but neither advisable, nor perhaps practicable, to use as the sole, or even the principal, guides in the actual conduct of affairs.
+ - We propose in the following Treatise to give an outline of the Science which treats of the Nature, the Production, and the Distribution of Wealth. To that Science we give the name of Political Economy.
+ - Value denotes a relation reciprocally existing between two objects, and the precise relation which it denotes is the quantity of the one which can be obtained in exchange for a given quantity of the other.
+ - The payment made by a manufacturer to a patentee for the privilege of using the patent process, is usually termed, in commercial language, a rent; and under the same head must be ranked all extraordinary qualities of body and mind.
+ - One of the worst of errors would be the general admission of the proposition that a Government has no right to interfere for any purpose except for that of affording protection.
+ - The time I trust will come, perhaps within the lives of some of us, when the outline of this science will be clearly made out and generally recognised, when its nomenclature will be fixed, and its principles form a part of elementary instruction.
+
+10 quotes

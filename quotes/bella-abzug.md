@@ -1,0 +1,25 @@
+ - Maybe we weren’t at the Last Supper, but we’re certainly going to be at the next one.
+ - Never go back, never apologize, and never forget we’re half the human race.
+ - Women will not simply be mainstreamed into the polluted stream. Women are changing the stream, making it clean and green and safe for all – every gender, race, creed, sexual orientation, age, and ability.
+ - This woman’s place is in the House – the House of Representatives.
+ - Women have been trained to speak softly and carry a lipstick. Those days are over.
+ - Women will change the nature of power, rather than power changing the nature of women.
+ - We are coming down from our pedestal and up from the laundry room.
+ - We have done almost everything in pairs since Noah, except govern. And the world has suffered for it.
+ - I am not being facetious when I say that the real enemies in this country are the Pentagon and its pals in big business.
+ - In the face of so much pain, I remain an incurable optimist. I am fueled by the passion of the women I have been privileged to meet and work with, buoyed by their hope for peace, justice, and democracy.
+ - Women’s struggle for equality worldwide is about more than equality between men and women. Our struggle is about reversing the trends of social, economic, political, and ecological crisis – a global nervous breakdown! Our struggle is about creating sustainable lives and attainable dreams.
+ - Our struggle today is not to have a female Einstein get appointed as an assistant professor. It is for a woman schlemiel to get as quickly promoted as a male schlemiel.
+ - I am not elevating women to sainthood, nor am I suggesting that all women share the same views, or that all women are good and all men bad.
+ - Abortion doesn’t belong in the political arena. It’s a private right, like many other rights concerning the family.
+ - I always had a decent sense of outrage.
+ - When I was a young lawyer, working women wore hats. It was the only way they would take you seriously.
+ - The inside operation of Congress – the deals, the compromises, the selling out, the co-opting, the unprincipled manipulating, the self-serving career-building – is a story of such monumental decadence that I believe if people find out about it they will demand an end to it.
+ - If we get a government that reflects more of what this country is really about, we can turn the century – and the economy – around.
+ - In Britain the government has to come down in front of Parliament every day to explain its actions, but here the President never answers directly to Congress.
+ - Nixon impeached himself. He gave us Ford as his revenge.
+ - They are a very extensive minority who have suffered discrimination and who have the same right to participation in the promise and fruits of society as every other individual.
+ - All the men on my staff can type.
+ - The establishment is made up of little men, very frightened.
+
+23 quotes

@@ -1,0 +1,29 @@
+ - Nothing changes, until you change. Everything changes, once you change.
+ - I love to sit on a mountain top and gaze. I don’t think of anything but the people I care about and the view.
+ - I think everyone has the potential to be creative, but they have to find the avenue or avenues that work for them.
+ - Dad was a hypocrite. He could talk about peace and love to the world but he could never show it to his wife and son.
+ - I’m one of those people who snake through the crowd, keep my head low. I’m not looking for attention.
+ - As much as I love music, in my mind, photography is what makes me the happiest – that’s for sure.
+ - Dad made me laugh a lot. He was a real comedian. He had a real sarcastic sense of humour, he could really make a fool out of people. I have to watch it a little bit, because I caught that habit from him. I was really fond of him. He was my idol.
+ - I’m not one for flings, I can tell you that.
+ - I am not John Lennon; I never will be!
+ - Anyone must remember that dad left when I was 3 years old, mom and I lived out of the limelight. We lived a totally different life.
+ - I live in a small apartment in London, not some big house with a lot of security. I don’t like too much security. There’s no freedom. I’m a person, not some precious diamond that needs guarding every second.
+ - I am a complete mother’s boy. I try to do everything with honour, respect and grace because the last thing I would want to do is hurt her.
+ - I don’t meditate in any formal way, but I often lie in bed or find myself in nature and enter into that state of quiet where I get images, feelings, or melodies.
+ - You never know how your work is going to be received.
+ - I have a short temper – I think it’s part of the Celtic background. I used to be a lot more angry, but I was quite discreet with it.
+ - Music’s been with me from the get-go. It was always around me as a kid. Dad got me my first guitar when I was 11 and, at school, if you wanted to be cool you had to be in a band.
+ - A lot of people think that I grew up in recording studios and knew the whole process, but that was never the case.
+ - For me my work is always being compared to my heritage. It has been quite a challenge unto itself just to drop into my voice and develop my individuated sound.
+ - I find it upsetting to see the erosion of manners. It’s very scary. Where are the ‘pleases’ and ’thank yous?
+ - I had always thought of starting my own record company. I haven’t regretted the decision – yet!
+ - Like most photographers, I try to capture a moment in my work.
+ - I’ve done every kind of touring known to mankind. I’ve played the big and the small places.
+ - My goal in life has been to be a songsmith, not a pop person.
+ - My dads music was a great inspiration to me.
+ - I’ve found constancy and balance between creativity and normality.
+ - On the one hand, I’ve had such a normal upbringing with my mum, who has kept me grounded, but on the other, the wild experiences through my dad.
+ - People are generally badly advised when they’re starting out in the creative field.
+
+27 quotes

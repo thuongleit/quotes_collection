@@ -1,0 +1,25 @@
+ - Life is simple. Make good decisions and good things happen. Make bad decisions and bad things happen.
+ - A winner is someone who can look in the mirror at the end of the day and say in pursuit of my goal and dreams I gave my best.
+ - An All-American is an ordinary person with an extraordinary desire to excel. You don’t get to the top of the mountain by just dreaming. It’s nice to dream. But it’s the work ethic and pride that makes you get to that mountain top and that level of success.
+ - I’m living the American dream.
+ - Life has good and bad times. And to get through them you have to battle. Life is not all smooth. I’ve had my bumps and bruises, like anybody, but I’ve always tried to look at life like a glass that’s half full.
+ - My parents were my heroes and my role models. So I thought long and hard over decisions that I would make because I never wanted to disappoint them and break their hearts.
+ - The clothes do not match my personality. I’m more of a very conservative, blue-blazer kind of guy. But as far as my personality, it’s a lot of hot-dog mustard – have a lot of a fun and a lot of excitement. I feel like I’m 68; I act like I’m 12, talking about a game of basketball.
+ - A loser is someone who makes excuses and alibis and blames everyone else for their losses and failures.
+ - The glory of sport is witnessing a well-coached team perform as a single unit, striving for a common goal and ultimately bringing distinction to the jersey the players represent.
+ - I have my Master’s Degree but I learned more at my dinner table than any class I ever took. My dad would come home from the sweat factory and put the money on the table and say Mea, here is some money for insurance and food and we always had that little extra for Friday night pizza at Barcelona’s.
+ - Gowdy had a love affair with the microphone and the fans had a love affair with him. American sports fans truly lost an icon, a legend who never felt he was bigger than anyone else. He had that humility that made him special, and he made everyone feel like they were so important.
+ - My perfect day is to wake up with all kinds of energy and enthusiasm for the day, have a list of what I want to achieve, and at the end of the day look in the mirror and think man, this has been perfect. Everything I planned became a reality.
+ - Really, UCLA’s a great place as well, but they don’t have the kind of environment they have here. The fans here have a passion.
+ - Looking back, I remember telling my daughters that we didn’t have money, pizzazz and a lot of the things we have today, but we had so much love and we lived like millionaires.
+ - The courtside seats belong to the kids.
+ - Coaching to me is the ultimate high, especially when you have a game plan and you see that game plan executed to perfection. To see those players take what you put in front of them in preparation and turn it into a masterpiece – it doesn’t get any better than that.
+ - It’s the greatest achievement I’ve ever witnessed in all my years of being a coach and a television personality. I really, absolutely have been blown away.
+ - It was an incredible effort by the Irish down in Tallahassee. Jameis Winston was too tough in the second half; congrats to the Seminoles.
+ - One day to see that headline, not that someone won a basketball championship, but to see that a cure for cancer has been found, will be a great day for mankind.
+ - It is time for everyone to sit down -the NCAA, the NBA, the players union and the coaching fraternity-and come up with suitable solutions to these problems.
+ - Glue guys aren’t superstars. They’re not the No. 1 option. They just do things only coaches really appreciate. The stars get the headlines, but glue guys help you get in the winner’s circle. I don’t think you can win without having that kind of player.
+ - You’d have to live in a cave not to know about the Carrier Dome. It put Syracuse on the map.
+ - Today in coaching, it’s a two-way street. They can fire you whenever they want. Bottom line: It’s all about what you can do to better yourself professionally. This is a better move.
+
+23 quotes

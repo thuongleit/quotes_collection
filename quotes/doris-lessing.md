@@ -1,0 +1,227 @@
+ - Whatever you’re meant to do, do it now. The conditions are always impossible.
+ - You only learn to be a better writer by actually writing.
+ - Things are not quite so simple always as black and white.
+ - There is no doubt fiction makes a better job of the truth.
+ - Small things amuse small minds.
+ - Any human anywhere will blossom in a hundred unexpected talents and capacities simply by being given the opportunity to do so.
+ - People who love literature have at least part of their minds immune from indoctrination. If you read, you can learn to think for yourself.
+ - Mother’s room, and mother’s need for privacy become a valuable lesson in respect for other people’s rights.
+ - I am interested only in stretching myself, on living as fully as I can.
+ - A writer falls in love with an idea and gets carried away.
+ - That is what learning is. You suddenly understand something you’ve understood all your life, but in a new way.
+ - We’ve got to believe in our beautiful impossible blueprints.
+ - You know, when I was a girl, the idea that the British Empire could ever end was absolutely inconceivable. And it just disappeared, like all the other empires.
+ - My mother was a woman who was very frustrated. She had a great deal of ability, and all this energy went into me and my brother.
+ - The Nobel Prize is run by a self-perpetuated committee. They vote for themselves and get the world’s publishing industry to jump to their tune.
+ - You should write, first of all, to please yourself. You shouldn’t care a damn about anybody else at all. But writing can’t be a way of life – the important part of writing is living. You have to live in such a way that your writing emerges from it.
+ - When I became political and Communist, it was because they were the only people I had ever met who fought the color bar in their lives.
+ - The old watch the young with anguish, pain, fear. Above all what each has learned is what things cost, what has to be paid.
+ - Do you know what people really want? Everyone, I mean. Everybody in the world is thinking: I wish there was just one other person I could really talk to, who could really understand me, who’d be kind to me. That’s what people really want, if they’re telling the truth.
+ - I hate Iran. I hate the Iranian government. It’s a cruel and evil government.
+ - Knowing cats, a lifetime of cats, what is left is a sediment of sorrow quite different from that due to humans: compounded of pain for their helplessness, of guilt on behalf of us all.
+ - What is a hero without love for mankind.
+ - And then, not expecting it, you become middle-aged and anonymous. No one notices you. You achieve a wonderful freedom. It is a positive thing. You can move about, unnoticed and invisible.
+ - Laughter is by definition healthy.
+ - All one’s life as a young woman one is on show, a focus of attention, people notice you. You set yourself up to being noticed and admired. And then, not expecting it, you become middle-aged and anonymous.
+ - Think wrongly if you please, but in all cases think for yourself.
+ - A simple grateful thought turned heavenwards is the most perfect prayer.
+ - It is the mark of great people to treat trifles as trifles and important matters as important.
+ - As the fishes that are taken in an evil net, and as the birds that are caught in the snare; so are the sons of men snared in evil time, when it falleth suddenly upon them.
+ - What of October, that ambiguous month, the month of tension, the unendurable month?
+ - What the feminists want of me is something they haven’t examined because it comes from religion. They want me to bear witness.
+ - There is nothing more boring for an intelligent woman than to spend endless amounts of time with small children.
+ - I’ve won all the prizes in Europe, every bloody one. I’m delighted to win them all, the whole lot.
+ - I do not think that marriage is one of my talents. I’ve been much happier unmarried than married.
+ - I am a person who continually destroys the possibilities of a future because of the numbers of alternative viewpoints I can focus on the present.
+ - You simply don’t get to be wise, mature, etc., unless you’ve been a raving cannibal for thirty years or so.
+ - We are several people fitted inside each other. Chinese boxes. Our bodies are the outside box. Or the inside one if you like.
+ - I don’t know much about creative writing programs. But they’re not telling the truth if they don’t teach, one, that writing is hard work, and, two, that you have to give up a great deal of life, your personal life, to be a writer.
+ - A story is how we construct our experiences.
+ - Perhaps it is a fault of the species who thrive in peace, mutual help, aspirations for more of the same – to forget that outside these borders dwell very different types of mind, feeding on different fuel.
+ - Bad luck for both of us, we are both boulder-pushers.
+ - The worst superstition is to consider our own tolerable.
+ - Artists are the traditional interpreters of dreams and nightmares...
+ - I am so happy to be communicating with people on this newest of new wavelengths which to some older people must seem like a kind of magic.
+ - What society doesn’t realize is that in the past, ordinary people respected learning. They respected books, and they don’t now, or not very much. That whole respect for serious literature and learning has disappeared.
+ - People are just cannibals unless they leave each other alone.
+ - The great secret that all old people share is that you really haven’t changed in seventy or eighty years. Your body changes, but you don’t change at all. And that, of course, causes great confusion.
+ - If what we think now is different from what we thought then, we can take it for granted that what we think in a year will be different again.
+ - For there is never any way to go but in.
+ - Basic facts tend always to be those most easily overlooked.
+ - Writers do not come out of houses without books.
+ - This world is run by people who know how to do things. They know how things work. They are equipped. Up there, there’s a layer of people who run everything. But we – we’re just peasants. We don’t understand what’s going on, and we can’t do anything.
+ - It is not always possible to know, when you make a note of an event, or a state of mind, how this may strike someone perhaps ten thousand years later.
+ - All sanity depends on this: that it should be a delight to feel heat strike the skin, a delight to stand upright, knowing the bones moving easily under the flesh.
+ - Don’t read a book out of its right time for you.
+ - We spend our lives fighting to get people very slightly more stupid than ourselves to accept truths that the great men have always known.
+ - One certainty we all accept is the condition of being uncertain and insecure.
+ - Africa gives you the knowledge that man is a small creature, among other creatures, in a large landscape.
+ - Very few people really care about freedom, about liberty, about the truth, very few. Very few people have guts, the kind of guts on which a real democracy has to depend. Without people with that sort of guts a free society dies or cannot be born.
+ - Words. Words. I play with words, hoping that some combination, even a chance combination, will say what I want.
+ - As you get older, you don’t get wiser. You get irritable.
+ - There’s an unconscious bias in our society: girls are wonderful; boys are terrible. And to be a boy, or young man, growing up, having to listen to all this, it must be painful.
+ - Women have an extraordinary ability to withdraw from the sexual relationship, to immunize themselves against it, in such a way that their men can be left feeling let down and insulted without having anything tangible to complain of.
+ - Men are unwise and curiously planned.
+ - It is our stories that will recreate us, when we are torn, hurt, even destroyed. It is the storyteller, the dream-maker, the myth-maker, that is our phoenix, that represents us at our best, and at our most creative.
+ - Art is the Mirror of our betrayed ideals.
+ - So love is rest? The cosy corner? The little nook? Sometimes it ought to be. Sometimes it is.
+ - The white man has settled like a locust over Africa, and, like the locusts in early morning, cannot take flight for the heaviness of the dew on their wings. But the dew that weights the white man is the money that he makes from our labor.
+ - A woman writer, quitting love before literature when love lets her down, will put literature before love.
+ - Living in a small town anywhere means preserving one’s self behind a mask.
+ - Political correctness is the natural continuum from the party line. What we are seeing once again is a self-appointed group of vigilantes imposing their views on others. It is a heritage of communism, but they don’t seem to see this.
+ - The words of a wise man’s mouth are gracious; but the lips of a fool will swallow up himself.
+ - Time is the River on which the leaves of our thoughts are carried into oblivion.
+ - Envy has always hidden behind moral indignation.
+ - When young I did my best to undo that bit of the British Empire I found myself in: that is, old Southern Rhodesia.
+ - There is only one real sin and that is to persuade oneself that the second best is anything but second best.
+ - Trust no friend without faults, and love a woman, but no angel.
+ - Men are restless, adventurous. Women are conservative – despite what current ideology says.
+ - The critics slap labels on you and then expect you to talk inside their terms.
+ - Humanity’s legacy of stories and storytelling is the most precious we have. All wisdom is in our stories and songs. A story is how we construct our experiences.
+ - Some people obtain fame, others deserve it.
+ - I am sure everyone has had the experience of reading a book and finding it vibrating with aliveness, with colour and immediacy. And then, perhaps some weeks later, reading it again and finding it flat and empty. Well, the book hasn’t changed: you have.
+ - What is terrible is that after every one of the phases of my life is finished, I am left with no more than some banal commonplace that everyone knows.
+ - Better Counsel comes overnight.
+ - I don’t think San Francisco needs defending. I never meet anyone who doesn’t love the place, Americans or others.
+ - We use our parents like recurring dreams, to be entered into when needed.
+ - Women are the cowards they are because they have been semi-slaves for so long. The number of women prepared to stand up for what they really think, feel, experience, with a man they are in love with is still very small.
+ - We are all creatures of the stars.
+ - It is my belief that children are full of understanding and know as much as and more than adults, until they are about seven, when they suddenly become stupid, like adults.
+ - My major aim was to shape a book which would make its own comment, a wordless statement: to talk through the way it was shaped.
+ - Intelligence forbids tears.
+ - But children can’t be a center of life and a reason for being. They can be a thousand things that are delightful, interesting, satisfying, but they can’t be a well-spring to live from. Or they shouldn’t be.
+ - Women are slaves to their beauty.
+ - In university they don’t tell you that the greater part of the law is learning to tolerate fools.
+ - Hitler admired Stalin, quite properly seeing himself as a mere infant in crime compared to his great exemplar.
+ - Loneliness, she thought, was craving for other people’s company. But she did not know that loneliness can be an unnoticed cramping of the spirit for lack of companionship.
+ - You can’t be a Red if you’re married to a civil servant.
+ - All things come alike to all; there is one event to the righteous, and to the wicked; to the good and to the clean, and to the unclean; to him that sacrificeth, and to him that sacrificeth not.
+ - With a library you are free, not confined by temporary political climates. It is the most democratic of institutions because no one – but no one at all – can tell you what to read and when and how.
+ - I lived in a brilliantly lit haze, shifting and flickering according to my changing desires. Of course, that is only a description of being young.
+ - Sometimes I think what I write is funny in its quiet way.
+ - You have to deduce a person’s real feelings about a thing by a smile she does not know is on her face, by the way bitterness tightens muscles at a mouth’s corner, or the way air is allowed to flow from the lungs.
+ - I wasn’t an active feminist in the ’60s, never have been.
+ - The difficulty of writing about sex, for women, is that sex is best when not thought about, not analysed.
+ - Bed is the best place for reading, thinking, or doing nothing.
+ - This is an inevitable and easily recognizable stage in every revolutionary movement: reformers must expect to be disowned by those who are only too happy to enjoy what has been won for them.
+ - Sleep is harder to reach and thinner, and sleeping is no longer the Drop into the black pit all oblivion until the alarm clock, no, sleep is thin and fitful and full of memories and reminders and the dark is never dark enough.
+ - They can’t give a Nobel to someone who’s dead so I think they were probably thinking they had better give it to me now before I popped off.
+ - I never thought of London in terms of possible heroes – of course, there are thousands. It’s a very talented city.
+ - Nicknames are potent ways of cutting people down to size.
+ - Advice to young writers? Always the same advice: learn to trust our own judgment, learn inner independence, learn to trust that time will sort the good from the bad– including your own bad.
+ - I wanted to write about my mother as she should have been if she had not been messed up by World War I.
+ - For she was of that generation who, having found nothing in religion, had formed themselves through literature.
+ - No one’s noticed. So much is destroyed, we can’t be bothered.
+ - Space or science fiction has become a dialect for our time.
+ - I don’t know why I still find it so hard to accept that words are faulty and by their very nature innacurate.
+ - I’m very unhappy when I’m not writing.
+ - I’m always astounded at the way we automatically look at what divides and separates us. We never look at what people have in common.
+ - I’ll be pleased when I’m dead. That will let me off worrying about all these wars.
+ - If a fish is the movement of water embodied, given shape, then cat is a diagram and pattern of subtle air.
+ - What matters most is that we learn from living.
+ - I’ve always disliked words like inspiration. Writing is probably like a scientist thinking about some scientific problem, or an engineer about an engineering problem.
+ - The art of living in a small town is one of the most difficult to acquire.
+ - Novels give you the matrix of emotions, give you the flavour of a time in a way formal history cannot.
+ - She was thirty-nine. No, she did not envy her eighteen-year- old self at all. But she did envy, envied every day more bitterly, that young girl’s genuine independence, largeness, scope, and courage.
+ - I treasure solitude. One doesn’t have to have human contact.
+ - Nonsense, it was all nonsense: this whole damned outfit, with its committees, its conferences, its eternal talk, talk, talk, was a great con trick; it was a mechanism to earn a few hundred men and women incredible sums of money.
+ - Our society is dependent on some precarious mechanisms, and they are very dicey. They can easily collapse.
+ - I spend a good deal of time wondering how we will seem to the people who come after us. This is not an idle interest, but a deliberate attempt to strengthen the power of that “other eye,” which we can use to judge ourselves.
+ - On the news two dozen events of fantastically different importance are announced in exactly the same tone of voice. The voice doesn’t discriminate between a divorce, a horse race, a war in the Middle East.
+ - Man who is he? Too bad, to be the work of God: Too good for the work of chance!
+ - Oh cat, I’d say, or pray: be-ootiful cat! Delicious cat! Exquisite cat! Satiny cat! Cat like a soft owl, cat with paws like moths, jewelled cat, miraculous cat! Cat, cat, cat, cat.
+ - How boring these emotions are that we’re caught in and can’t get free of, no matter how much we want to...
+ - My mother died happily of a stroke in her seventies.
+ - You remember with what you are at the time you are remembering.
+ - The youth do not see the old. They are not programmed to see the old, who are cancelled, negated, wiped out.
+ - Time and distance from the first and second world wars doesn’t seem to lessen their horrors.
+ - Whenever I met anyone who knew anything, I would bore them stiff until they told me what they knew.
+ - The automatic reaction of practically any young person is, at once, against authority. That, I think, began in the First World War because of the trenches, and the incompetence of the people on all fronts.
+ - What I had that others didn’t was a capacity for sticking to it.
+ - I find myself increasingly shocked at the unthinking and automatic rubbishing of men which is now so part of our culture that it is hardly even noticed.
+ - When a book’s pattern and the shape of its inner life is as plain to the reader as it is to the author – then perhaps it is time to throw the book aside, as having had its day, and start again on something new.
+ - At no time, anywhere, was the population of a country told the truth: facts about events trickled into general consciousness much later, if ever.
+ - Literature is analysis after the event.
+ - Wisdom is better than weapons of war; but one sinner destroyeth much good.
+ - An interim report – that is what an autobiography is.
+ - Curse not the king, no not in thy thought; and curse not the rich in thy bedchamber, for a bird of the air shall carry the voice, and that which hath wings shall tell the matter.
+ - What I really can’t stand about the feminist revolution is that it produced some of the smuggest, most unselfcritical people the world has ever seen. They are horrible.
+ - Anna, there’s something very arrogant about insisting on the right to be right.
+ - I write because I’ve always written, can’t stop. I am a writing animal. The way a silk worm is a silk-producing animal.
+ - Advice to young writers? Always the same advice: learn to trust our own judgment.
+ - Argument does not teach children or the immature. Only time and experience does that.
+ - What’s terrible is to pretend that second-rate is first-rate. To pretend that you don’t need love when you do; or you like your work when you know quite well you’re capable of better.
+ - My father was always so mingled with rage at his life.
+ - In the writing process, the more a story cooks, the better.
+ - There is only one way to read, which is to browse in libraries and bookshops, picking up books that attract you, reading only those, dropping them when they bore you, skipping the parts that drag.
+ - You have to be grown up, really grown up, not merely in years, to understand your parents.
+ - Parents should leave books lying around marked ‘forbidden’ if they want their children to read.
+ - Sometimes I dislike women, I dislike us all, because of our capacity for not-thinking when it suits us; we choose not to think when we are reaching our for happiness.
+ - This is a catastrophic universe, always; and subject to hidden reversals, upheavals, changes, cataclysms, with joy never anything but the song of substance under pressure forced into new forms and shapes.
+ - Every spendthrift passion has its attendant courtiers.
+ - The older I get the more secrets I have, never to be revealed and this, I know, is a common condition of people my age. and why all this emphasis on kissing and telling? Kisses are the least of it.
+ - Women often get dropped from memory, and then history.
+ - Growing up is, after all, only the understanding that one’s unique and incredible experience is what every one shares.
+ - Dreams have always been my friend, full of information, full of warnings.
+ - Anna was saying to herself: why do I always have this awful need to make other people see things as I do? It’s childish, why should they? What it amounts to is that I’m scared of being alone in what I feel.
+ - It is terrible to destroy a person’s picture of himself in the interests of truth or some other abstraction.
+ - Capable people do not understand incapacity; clever people do not understand stupidity.
+ - It’s amazing what you find out about yourself when you write in the first person about someone very different from you.
+ - I don’t think that the feminist movement has done much for the characters of women.
+ - There was a time when young people respected learning and literature and now they don’t.
+ - In the writing process, the more the story cooks, the better. The brain works for you even when you are at rest. I find dreams particularly useful. I myself think a great deal before I go to sleep and the details sometimes unfold in the dream.
+ - There is a great line of women stretching out behind you into the past, and you have to seek them out and find them in yourself and be conscious of them.
+ - After a certain age – and for some of us that can be very young – there are no new people, beasts, dreams, faces, events: it has all happened before...
+ - For women like me, integrity isn’t chastity, it isn’t fidelity, it isn’t any of the old words. Integrity is the orgasm. That is something I haven’t any control over.
+ - What really fascinates me is this need that is so strong now that if you read a work of the imagination you instantly have to say, ‘Oh, what this really is is so-and-so,’ reducing it to a simple formula.
+ - I think kids ought to travel. I think it’s very good to carry kids around. It’s good for them. Of course it’s tough on the parents.
+ - Remember that the book which bores you when you are twenty or thirty will open doors for you when you are forty or fifty-and vise versa. Don’t read a book out of its right time for you.
+ - I don’t think in terms of optimism and pessimism when writing a story. I am telling a story.
+ - I didn’t go to school much, so I taught myself what I knew from reading.
+ - I am increasingly afflicted by vertigo where words mean nothing.
+ - Everyone knows that where there is something that is capable of giving profit, then exploited it will be.
+ - Music attacks my inner ear like an antagonist, it’s not my world.
+ - What I did have, which others perhaps didn’t, was a capacity for sticking at it, which really is the point, not the talent at all. You have to stick at it.
+ - The cleverest trick of the Devil is that nobody believes in him. It. Her. Well, we have been very stupid.
+ - I do not think writers ought ever to sit down and think they must write about some cause, or theme, or something. If they write about their own experiences, something true is going to emerge.
+ - It isn’t only the terror everywhere, and the fear of being conscious of it, that freezes people. It’s more than that. People know they are in a society dead or dying.
+ - For the last third of life there remains only work. It alone is always stimulating, rejuvenating, exciting and satisfying.
+ - There are no laws for the novel. There never have been, nor can there ever be.
+ - When old settlers say ‘One has to understand the country,’ what they mean is, ‘You have to get used to our ideas about the native.’ They are saying in effect, ‘Learn our ideas, or otherwise get out; we don’t want you.’
+ - I have a daughter and two grand-daughters and a great grandson in Africa, in Cape Town.
+ - When you’re young you think that you’re going to sail into a lovely lake of quietude and peace. This is profoundly untrue.
+ - All I do is give interviews and spend time being photographed.
+ - As soon as I got the Nobel Prize my back collapsed and I was in hospital.
+ - Her own contempt for any forms of pressure society might put on her was so profound and instinctive that she as instinctively despised anyone who paid tribute to them.
+ - When there’s a war, people get married.
+ - It usually takes me a year to do a book. A year or eighteen months.
+ - We do not know which of our silver products will be judged as gold by our successors, nor does it matter.
+ - Charity has always been a expression of the guilty consciences of a ruling class.
+ - I’m sure that everybody feels a kind of permanent anguish about what’s going on in the world.
+ - I wanted to highlight that whole dreadful process in book publishing that ‘nothing succeeds like success.’
+ - Most novels, if they are successful at all, are original in the sense that they report the existence of an area of society, a type of person, not yet admitted to the general literate consciousness.
+ - September 11 was terrible but, if one goes back over the history of the IRA, what happened to the Americans wasn’t that terrible.
+ - I always hated Tony Blair, from the beginning.
+ - I never stopped reading.
+ - Cats mean kittens, plentiful and frequent.
+ - Writers, and particularly female writers, have to fight for the conditions they need to work...
+ - You have to give up a great deal of life, your personal life, to be a writer.
+ - Some books are not read in the right way because they have skipped a stage of opinion, assume a crystallization of information in society which has not yet taken place.
+ - There’s always this sense of incredulity that writers feel, because they’re usually living flat and ordinary lives, because they have to.
+ - I think novelists perform many useful tasks for their fellow citizens, but one of the most valuable is this: to enable us to see ourselves as others see us.
+ - We are all creatures of the stars and their forces, they make us, we make them, we are part of a dance from which we by no means and not ever may consider ourselves separate.
+ - Every child has the capacity to be everything.
+ - When I started, there were no big interviews, no television, no profiles and all that. The publishers were quite shockingly uncommercial, but they did look after their writers.
+ - Little Tamar, forget the long ago. We are here and we are now, and that is all. We are making a new start.
+ - It can be considered a rule that the probable duration of an Empire may be prognosticated by the degree to which its rulers believe in their own propaganda.
+ - One novel in five hundred or a thousand has the quality a novel should have to make it a novel – the quality of philosophy.
+ - We, as a society, can’t tolerate very much difference.
+ - The most exciting periods of literature have always been those when the critics were great.
+ - I’m not one of those writers that sits worrying about posthumous fame.
+ - My father was in the First World War.
+ - The Freudians describe the conscious as a small lit area, all white, and the unconscious as a great dark marsh full of monsters. In their view, the monsters reach up, grab you by the ankles, and try to drag you down.
+ - Is there any delight as great as the child’s discovering ability?
+ - In fact I’ve reached the stage where I look at people and say – he or she, they are whole at all because they’ve chosen to block off at this stage or that. People stay sane by blocking off, by limiting themselves.
+ - Borrowing is not much better than begging; just as lending with interest is not much better than stealing.
+
+225 quotes

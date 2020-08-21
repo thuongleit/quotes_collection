@@ -1,0 +1,34 @@
+ - If you don’t trust anyone, they can’t let you down.
+ - While the cat’s away, you may find the rats getting damned uppity.
+ - First rule of engineering; beware prototypes. Along with, avoid anything made by an engineer who doesn’t have all his own fingers.
+ - Revenge is simply justice with teeth.
+ - Who’s got my Jaffa Cakes? You know I can’t function without Jaffa Cakes.
+ - Sometimes humour is all we have to say the things that can’t be said.
+ - Nothing is hidden, nothing is ever lost, nothing is ever forgotten. That’s always been part of my problem.
+ - It’s hard to maintain a reputation for being grim and mysterious when you’re accompanied by a brightly clad young thing, skipping merrily along at your side, holding your hand, and smiling sweetly on one and all.
+ - Though I often run out of courage and good sense, stubbornness keeps me going.
+ - I always feel most alive when everything else is dying all around me.
+ - After all, you’re only an immortal until someone manages to kill you. After that, you were just long-lived.
+ - When God wanted a city levelled, or all the first-born slaughtered in one night, he sent an angel.
+ - I didn’t know if I still had it in me to be really dangerous, but I thought so. It’s like knocking someone off a bike with a baseball bat; you never really lose the knack.
+ - God does so love to make a man break a promise.
+ - When you are tired of life, come to Haven. And someone will kill you.
+ - Alexandra was tall and blond, with a balcony you could do Shakespeare from.
+ - Keep your mind too open, and you never know what might walk in.
+ - There are any number of magical creatures, mostly female, whose singing can bring about horror and death. Sirens, undines, banshees, Bananarama tribute bands...
+ - You want me to sneak up on an angel and rip out its pinfeathers, so you can make a fashion statement?
+ - No one likes to admit that in the end we all die by inches, gradually losing all the defining visual characteristics that make us us.
+ - Because nothing makes love and life matter more than the knowledge that some day it must end.
+ - What is the world coming to, when you can’t even trust a rogue vicar and her demon lover?
+ - Never go anywhere without condiments. Condiments are our friends.
+ - The cream-tiled walls were spattered here and there with old dried bloodstains, deep gouges that might have been clawmarks, and all kinds of graffiti. As usual, someone had spelt Cthulhu wrongly.
+ - I went to a house that was not a house. I opened a door that was not a door. And what I saw, I saw.
+ - You know, sometimes I swear the whole universe runs on irony.
+ - The only good hero is the kind who survives to talk about merchandising.
+ - Books can be terrible snobs.
+ - Oh God, it’s her, run!
+ - Wait. You’ve got principles? We’ll have to update your file.
+ - Last night I dreamed I was still human, but now I have woken up, into something better. Farewell, my friends, farewell.
+ - There has been peace. There will be peace again. But right now, we have work to do.
+
+32 quotes

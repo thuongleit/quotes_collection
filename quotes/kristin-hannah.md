@@ -1,0 +1,74 @@
+ - Finding your passion isn’t just about careers and money. It’s about finding your authentic self. The one you’ve buried beneath other people’s needs.
+ - It’s not intentions that matter. It’s actions. We are what we do and say, not what we intend to.
+ - If I have learned anything in this long life of mine, it is this: in love we find out who we want to be; in war we find out who we are.
+ - To make real friends you have to put yourself out there. Sometimes people will let you down, but you can’t let that stop you. If you get hurt, you just pick yourself up, dust off your feelings, and try again.
+ - One thing I can tell you for sure is this: we only regret what we don’t do in life.
+ - And no one drank just one shot of tequila.
+ - Real friends. The kind that don’t purposely hurt your feelings or stop liking you for no reason.
+ - In the sea of grief, there were islands of grace, moments in time when one could remember what was left rather than all that had been lost.
+ - A daughter without her mother is a woman broken. It is a loss that turns to arthritis and settles deep into her bones.
+ - It was the Magic Hour, the moment in time when every leaf and blade of grass seemed to separate, when sunlight, burnished by the rain and softened by the coming night, gave the world an impossibly beautiful glow.
+ - Marriages go through hard times. Sometimes you have to get in there and fight for your love. That’s the only way for it to get better.
+ - Some stories don’t have happy endings. Even love stories. Maybe especially love stories.
+ - Sometimes you simply made the wrong choice and you had to live with it. You could only change the future.
+ - The heat made people crazy. They woke from their damp bedsheets and went in search of a glass of water, surprised to find that when their vision cleared, they were holding instead the gun they kept hidden in the bookcase.
+ - Maybe time didn’t heal wounds exactly, but it gave you a kind of armor, or a new perspective. A way to remember with a smile instead of a sob.
+ - Sitting around and waiting for your muse is not the best choice.
+ - Their friendship was more important than any relationship. Guys would come and go; girlfriends were forever.
+ - As mothers and daughters, we are connected with one another. My mother is the bones of my spine, keeping me straight and true. She is my blood, making sure it runs rich and strong. She is the beating of my heart. I cannot now imagine a life without her.
+ - That was what a best friend did: hold up a mirror and show you your heart.
+ - She used to tell me that she couldn’t feel the sunlight anymore, not even when she was standing in it, not even when it was hot on her cheeks.
+ - No mother. Two small words, and yet within them lay a bottomless well of pain and loss, a ceaseless mourning for touches that were never received and words of wisdom that were never spoken. No single word was big enough to adequately describe the loss of your mother.
+ - We women. as glue for the family. lead lives that are important and conflicted. What we women choose to give up for our families is important and valid.
+ - To lose love is a terrible thing. But to turn away from it is unbearable. Will you spend the rest of your life replaying it in your head? Wondering if you walked away too soon or too easily? Or if you’ll ever love anyone that deeply again?
+ - I always thought it was what I wanted: to be loved and admired. Now I think perhaps I’d like to be known.
+ - She still felt shell-shocked by all of it, numb. Beneath the numbness, though, was a raw and terrible anger that was unlike anything she’d felt before. She had so little experience with genuine anger that it scared her. She actually worried that if she started screaming, she’d never stop.
+ - From the first time we met, we knew everything that mattered about each other, didn’t we? We just knew. I guess that’s what best friends are: parts of each other.
+ - Then he left her there, standing alone, surrounded by word ghosts; things she could have said.
+ - I am such a Pacific Northwest girl.
+ - There are always times in life that you don’t fit in. But you have to go forward and make a place for yourself. That’s what growing up is all about. Being strong and believing in yourself-even when you’re most afraid.
+ - Oh, Mia. You haven’t even begun to find out who you really are, and, believe me, other boys are going to fall in love with you. If a guy can’t see how special you are, he isn’t good enough for you.
+ - She’d been criticized for holding the reins of parenthood too tightly, of controlling her children too completely, but she didn’t know how to let go. From the moment she’d first decided to become a mother, it had been an epic battle.
+ - This is the problem with forever friends. They know too much.
+ - The hallmark of my books is the relationships that define women’s lives.
+ - I guess no one stays friends for more than thirty years without broken hearts along the way.
+ - And before you barrel through some idiotic Cosmo girl list of how-well-do-you-know-your-man questions, let me say that I don’t know squat about him except that he kisses like a god and screws like a devil.
+ - She waited for you in a thousand different ways.
+ - Sometimes being a good friend means saying nothing.
+ - Hands down, the hardest part for me is coming up with an idea. I spend about 14 months writing a book, and that’s a lot of hours spent thinking about a single project. I simply have to love the idea. I’ll go through dozens of workable ideas until I find the one that lights my fire.
+ - A romance novel focuses exclusively on two people falling in love. It can’t be about a woman caring for her aging mother or something like that. It can have that element, but it has to be primarily about the male-female relationship.
+ - The measure of a society is its compassion.
+ - She is like a child picking at a scab, unable to stop herself even though she knows it will hurt.
+ - Memories are who we are. In the end, that’s all the luggage you take with you. Love and Memories are what last.
+ - Popularity means people think they know you.
+ - Alice started to cry. It came with no sound, no shuddering, no childlike hysterics, just a soul-deep release that turned into moisture and dripped down her puffy pink cheeks. She touched her tears, frowning. Then she looked up at Julia and whimpered two words before she fell asleep. ‘Real hurts.’
+ - If she wasn’t careful, she’d slide without a ripple into the gently flowing stream of her old life, pulled back under the current without a wimper of protest. Another housewife lost in the flow.
+ - Thoughts – even fears – were airy things, formless until you made them solid with your voice and once given that weight, they could crush you.
+ - When you’re a mom, you learn about fear. You’re always afraid. Always. About everything from cupboard doors to kidnappers to weather.
+ - Lately he’d been seen going out less and less, becoming that strangest of animals in a small town: a loner.
+ - To those who are here, those who are gone, and those who are lost.
+ - What good did it do to light the world on fire if she had to watch the glow alone?
+ - Promises were a lot like impressions. The second one didn’t count for much.
+ - It isn’t about being at the same school or the same town or even the same room. It’s about being together. Love is a choice you make.
+ - Nothing was easier to shatter than the fragile shield of an idealist.
+ - That was the one thing she knew now. Some chances came and went, and if you missed them, you could spend the rest of your life standing alone, waiting for an opportunity that had already passed you by.
+ - I know about forgiving people and loving them anyway, even after they hurt you.
+ - I can be a little OCD when it comes to my writing.
+ - Liam learned that it was possible to appear to move forward when you were really standing still.
+ - He is a man, and he is afraid. This is not a good combination.
+ - The at-home mother’s life: it was a race with no finish line.
+ - Goddamn, sometimes it hurt to be free.
+ - What I know now about life is this: your mother is a part of everything you do and everything you are.
+ - At one point, she’d wanted to hurl the whole breakfast at the wall. And then she’d remember why it was that men had temper tantrums and women didn’t: cleanup.
+ - It was true; always had been. Friendships were like marriages in that way. Routines and patterns were poured early and hardened like cement.
+ - I prefer to scare myself in the ordinary ways, Daddy. Like letting my children cross the country for college. Why bungee jump when you can put a kindergartener on a school bus? Now, that’s real terror.
+ - Nina knew the power of black and white images. Sometimes a thing was its truest self when the colors were stripped away.
+ - Before this trip and all that she’d learned about the three of them, she would have gotten angry or changed the subject. Anything to obscure the pain she felt. Now she knew better. You carried your pain with you in life. There was no outrunning it.
+ - Jude remembered this pain. Every woman had felt some version of it: the end of first love. It was when you learned, for good and always, that love could be impermanent.
+ - We can’t live other people’s lives for them. Even if we love them.
+ - Whenever I write about motherhood – and I write about it a lot – I am drawing on my experiences as a mother and also my experiences as a daughter.
+ - You couldn’t give up you for them. But what if you wanted them more than you wanted a singular powerful you?
+ - Sometimes holding on was all you could do.
+ - Of course you can fall in love. You just have to let yourself. They don’t call it falling for nothing. -Kate.
+
+72 quotes

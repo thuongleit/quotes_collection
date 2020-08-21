@@ -1,0 +1,33 @@
+ - The human species thinks in metaphors and learns through stories.
+ - The past empowers the present, and the sweeping footsteps leading to this present mark the pathways to the future.
+ - We are not what we know but what we are willing to learn.
+ - Fluidity and discontinuity are central to the reality in which we live.
+ - We do not need to understand other people and their customs fully to interact with them and learn in the process; it is making the effort to interact without knowing all the rules, improvising certain situations, which allows us to grow.
+ - In many ways, constancy is an illusion.
+ - Caring can be learned by all human beings, can be worked into the design of every life, meeting an individual need as well as a pervasive need in society.
+ - What would it be like to have not only color vision but culture vision, the ability to see the multiple worlds of others.
+ - The family is changing not disappearing. We have to broaden our understanding of it, look for the new metaphors.
+ - Insight, I believe, refers to the depth of understanding that comes by setting experiences, yours and mine, familiar and exotic, new and old, side by side, learning by letting them speak to one another.
+ - Most higher education is devoted to affirming the traditions and origins of an existing elite and transmitting them to new members.
+ - Often continuity is visible only in retrospect.
+ - As you get up in the morning, as you make decisions, as you spend money, make friends, make commitments, you are creating a piece of art called your life.
+ - The Christian tradition was passed on to me as a great rich mixture, a bouillabaisse of human imagination and wonder brewed from the richness of individual lives.
+ - Every loss recapitulates earlier losses, but every affirmation of identity echoes earlier moments of clarity.
+ - Solutions to problems often depend upon how they’re defined.
+ - Human beings do not eat nutrients, they eat food.
+ - Human beings tend to regard the conventions of their own societies as natural, often as sacred.
+ - Monotony and repetition are characteristic of many parts of life, but these do not become sources of conscious discomfort until novelty and entertainment are built up as positive experiences.
+ - I had repeatedly accepted inappropriate burdens, stepping in to do what needed to be done. In retrospect, I think I carried them well, but the cost was that I was chronically overloaded, weary, and short of time for politicking, smoothing ruffled feathers, and simply resting.
+ - Goals too clearly defined can become blinkers.
+ - Learning to savor the vertigo of doing without answers or making do with fragmentary ones opens up the pleasures of recognizing and playing with patterns, finding coherence within complexity, sharing within multiplicity.
+ - When parents die, all of the partings of the past are reevoked with the realization that this time they will not return...
+ - Jazz exemplifies artistic activity that is at once individual and communal, performance that is both repetitive and innovative, each participant sometimes providing background support and sometimes flying free.
+ - Fear is not a good teacher. The lessons of fear are quickly forgotten.
+ - The capacity to combine commitment with skepticism is essential to democracy.
+ - Improvisation can be either a last resort or an established way of evoking creativity.
+ - Worlds can be found by a child and an adult bending down and looking together under the grass stems or at the skittering crabs in a tidal pool.
+ - A suprising number of physicians manage to continue to care about persons even after the rigors of medical training.
+ - Improvisation and new learning are not private processes; they are shared with others at every age. We are called to join in a dance whose steps must be learned along the way, so it is important to attend and respond. Even in uncertainty, we are responsible for our steps.
+ - The caretaking has to be done. “Somebody’s got to be the mommy.” Individually, we underestimate this need, and as a society we make inadequate provision for it. Women take up the slack, making the need invisible as we step in to fill it.
+
+31 quotes

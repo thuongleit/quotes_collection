@@ -1,0 +1,196 @@
+ - You can’t fly unless you let yourself fall.
+ - Never stop dreaming, because dreams DO come true.
+ - I’m telling you, people. Everyday we wake up is another blessing. Follow your dreams and don’t let anyone stop you. Never say never.
+ - Keep Going Strong!
+ - Always keep looking forward, and never look back.
+ - Think before you speak, your words could hurt someone’s feeling more than you intended it to.
+ - No matter how talented you are not everyone is going to like you but that’s life, stay strong.
+ - Be humble, be grateful, give back, share, pay it forward, chase your dreams, go for it, and take a moment to remember where it is ALL from.
+ - Stay humble.
+ - I’m not a fighter by nature, but, if I believe in something, I stand up for it.
+ - Two people can look at the same thing and see it differently...
+ - I’m crazy, I’m nuts. Just the way my brain works. I’m not normal. I think differently.
+ - There’s gonna be times when people tell you that you can’t live your dreams, this is what I tell them, Never Say Never.
+ - You’re my favorite part of the day and every morning I look forward to seeing your face.
+ - The blessing is not about being able to receive as much as it is being in a position to give back to others.
+ - Hey Belieber, never lower your head to anyone who criticizes you, your crown can not drop my princess.
+ - I make mistakes growing up. I’m not perfect; I’m not a robot.
+ - Haters are just confused admirers.
+ - One less lonely girl.
+ - You can’t always get what you want. But, if you’re lucky, you get what you need.
+ - But the grass ain’t always greener on the other side, It’s green where you water it.
+ - I close my eyes and I can see a better day. I close my eyes and pray.
+ - All around the world, people want to be loved.
+ - Canada’s the best country in the world.
+ - I hope you guys stay with me forever, because I will always love you and support you.
+ - If you don’t dream big, there’s no use of dreaming. If you don’t have faith, there’s nothing worth believing.
+ - The success I’ve achieved comes to me from God.
+ - Haters will say what they want, but their hate will never stop you from chasing your dream.
+ - Never Say Never if you know you can do what you love don’t give up.
+ - I’m not hiding from anyone. I am who I am, and I’m not perfect.
+ - I want my world to be fun. No parents, no rules, no nothing. Like, no one can stop me. No one can stop me.
+ - Any goal you have, you just have to set it and never give up and always make sure that you always just follow your dreams.
+ - God speaks in the silence of the heart Listening is the beginning of prayer.
+ - I want you here with me To guide me, hold me, and love me now.
+ - Dare to be a sucky skateboarder or a lousy video editor or a completely crappy golfer. If we do only the stuff we’re good at, we never learn anything new.
+ - Whenever I’m sick, my doctor jokes that I have Beiber Fever!
+ - Those Beliebers who haven’t met me yet are the special ones.
+ - I think it’s important to make all women feel like they’re princesses, because every girl is a princess. I’m serious.
+ - Change is uncomfortable. Write that down.
+ - Everything starts from something but something would be nothing if your heart didn’t dream with me.
+ - If I was your boyfriend, I’d never let you go, keep you in my arms girl, you’d never be alone, and I could be a gentlemen anything you want, if I was your boyfriend.
+ - Don’t try to be anybody else because that’s what makes you not swaggy.
+ - People write to me and say, ‘I’m giving up, you’re not talking to me.’ I just write them a simple message like, ‘Never give up,’ you know? And it changes their life.
+ - Don’t say I’m not talented. If you haven’t noticed, I wasn’t made. I was found.
+ - Everybody just tries to be successful. Like, sure, it’s good to be successful, but if you’re working that hard? This is how I feel, I work so many hours a day, and I’m always working, I’m always traveling.
+ - I’m looking forward to influencing others in a positive way. My message is you can do anything if you just put your mind to it.
+ - And all the haters I swear, they look so small from up here.
+ - All girls should feel beautiful.
+ - Why would I give up so much to just be another singer or another person doing what he loves? I’m out here doing everything to the best of my capability to be the best.
+ - My mom means a lot to me. My mom gave up everything. She moved with me and believed in me. She is awesome.
+ - If me and my girlfriend were fighting, and it got to the point where she started crying, I would just shut up and hold her.
+ - Interviewer: “What keeps you grounded?” Bieber: “Gravity.” Interviewer: “What’s up, Justin?” Bieber: “The sky, man.”
+ - My world got very big, very fast, and based on a lot of sad examples from the past, a lot of people expect me to get lost in it.
+ - Music is the universal language no matter the country we are born in or the color of our skin. Bring us all together.
+ - A girl has to have a beautiful smile, Beautiful eyes and she should have a good sense of humor. She should be Honost, loving and trustworthy.
+ - Friends are the best to turn to when you’re having a rough day.
+ - Flowers are nice, but love is better.
+ - Haters scream, trying to bring me down, but my Beliebers can scream louder than that and I am proud of that.
+ - I’m not into screamo music, but I respect it. It’s hard to do, to keep your voice and stuff like that. It’s hard to do, so I respect the music. It’s just not my favorite to listen to. That’s all I want. I just want people to respect me as an artist.
+ - I don’t want to start singing about things like sex, drugs and swearing. I’m into love, and maybe I’ll get more into making love when I’m older. But I want to be someone who is respected by everybody.
+ - Its a Bieber world live it or die.
+ - There are lots of things I really like besides girls. Like pizza. And pranking. And CHUCK NORRIS.
+ - To all the haters out there I wish you the best. You can’t bring me down. I wake up everyday grateful for the opportunity and grateful to the fans.
+ - I just can’t sleep tonight knowing that things ain’t right.
+ - I don’t care if the girl is slim or fat, I just want the girl that makes me happy.
+ - I was taught very well. My mom raised me very well, and so did my dad. I’ve been very blessed to have great parents that cared about me.
+ - I think love is like a learning process throughout your life. You learn how to be better at it and you learn more about it.
+ - It’s okay for my Beliebers to have a boyfriend, but please don’t kiss them in front of me because I get jealous.
+ - A girl could be sitting on her computer, trying to get noticed by me, and not knowing she’s the future Mrs. Justin Bieber.
+ - I definitely want to buy my mom a house once I get enough funds. I think that’s definitely something that I want to do. I think that any person, it’s their dream to buy their mother a house.
+ - I think older people can appreciate my music because I really show my heart when I sing, and it’s not corny. I think I can grow as an artist, and my fans will grow with me.
+ - Sunday comes after Saturday? Weird.
+ - Now that I’m on top, everyone wants to bring me down. Everyone’s trying to tug at me and take my spot.
+ - My mom said I wasn’t allowed to date until I was sixteen, but I broke that rule. She found out and said, ‘I’m disappointed in you.’
+ - I play drums and guitar. My best instrument is definitely drums, so I’m featured a lot on the album drumming. It’s pretty futuristic as well.
+ - I really don’t believe in abortion. It’s like killing a baby.
+ - Music is my passion so I feel like I’ll be doing this for a long time and God forbid if anything happens I’ll still write music. So, I could write music for other people. I see myself making music for a very long time.
+ - It’s kind of hard to balance school and work sometimes. But sometimes, like, if I’m going to the White House and I’m in there doing a tour and stuff, that’s like school.
+ - Singers aren’t supposed to have dairy before a show, but we all know I’m a rule breaker.
+ - My favorite thing is being able to travel around the world and perform for my fans. I think I’ve lost 80 percent of my hearing. I definitely have very loud fans.
+ - I’m really an animal guy. I express myself in different ways as an animal.
+ - Not everyone’s going to like my music. People might not like my music, because I’m just not their style of music that they like to listen to.
+ - I always looked really young. I matured pretty late.
+ - I want girls to hear my music and want to play it again because it made their hearts feel good.
+ - My fans are sexy. Yes they are. They can’t help themselves. It is just how they do.
+ - I don’t have to listen to anything you have to say.
+ - I think that being a gentleman is what matters; taking them out to a nice dinner, open the doors, stuff like that.
+ - I want to go out there and do some different things that people are like, “Wow. That’s crazy. Why didn’t I think of that?”
+ - I don’t like girls who wear lots of make-up and you can’t see their face. Some girls are beautiful but insecure and look much better without the make-up, but decide to put loads on. I like girls with nice eyes and a nice smile.
+ - I won’t even pretend I didn’t care. I wanted to win. I mean, if you don’t care about winning the competition, why show up?
+ - It’s not me trying to act or pose in a certain way. It’s a lifestyle – like a suaveness or a swag, per se.
+ - I’m 18 so I’m still young and I’m still learning. But I mean, relationships in general are hard.
+ - None of my friends smoke. I’ve never smoked a cigarette in my life.
+ - I’m not sure about the parties. But whatever they have in Korea, that’s bad.
+ - This letter really touched my heart. Sabrina says when she lost all her hair during chemo, she wore the cap I gave her.
+ - Not trying to be arrogant, but if I walked down the street and a girl saw me, she might take a look back because maybe I’m good-looking, right?
+ - The Key means a lot to me as a powerful symbol to believe, and this new fragrance is my message to my fans to always believe in their dreams.
+ - The girls show up wearing nothing. I can’t lie, I’m 16, I don’t hate it. I don’t have a girlfriend.
+ - Sometimes I’m like Dory from Finding Nemo. I can’t remember facts.
+ - Young people in the business have grown up and made the wrong decisions, or bad decisions, and haven’t been good role models. To be someone that people look up to is important to me.
+ - Every guy has feminine qualities. You’re raised by your mother and father, and so you get qualities from your mother and father. I was mostly with my mother, but I think the pictures turned out good. Whatever.
+ - I have dumped a girl over the phone. It’s terrible, isn’t it? We got into an argument during a phone call, so I basically said, ‘I don’t wanna be with you anymore,’ and she cried. I saw her after that and it was a bit awkward.
+ - My mind is always racing.
+ - I dont understand why my fans cry when they see me. Do I make you sad? No, right? So smile, I like that!
+ - Anything above 40 is a little too old for me. I just look for a girl who is funny and has nice eyes and a smile.
+ - I would rather call a girl beautiful or pretty; rather than hot or sexy.
+ - A lot of people who are religious, I think they get lost. They go to church just to go to church.
+ - I hang out with a lot of older people, so I’ve matured a little bit, but I do still have my immature side.
+ - My mom is my biggest fan. She’s been a fan since I was a baby.
+ - I’m still rough around the edges. I grew up with not a lot of money, and just played sports my whole life. So you develop the sports-mouth with all of your friends.
+ - I leave the hip thrusts to Michael Jackson.
+ - I usually have to be home by 10 o’clock and my mom takes my computer away at 10.30pm every night.
+ - I have a swagger coach that helps me and teaches me different swaggerific things to do.
+ - Sometimes it’s overwhelming but I love my fans and it’s always great to see them.
+ - If you start taking yourself more seriously than you do God then there’s a problem.
+ - I have a house in Stratford and I got a house in Atlanta but I don’t really live anywhere – I live on the road. I’m kind of like living in a suitcase, travelling so much.
+ - I have crushes, but they’re all too old. Like Beyonce -she has a husband, I might get shot. I went up to give Beyonce a hug at the Grammys and Jay-Z said, watch out buddy! He was kidding, but you know...
+ - What do you get when you give a teenager $200 million? A bunch of has-beens calling you a lesbian for two hours...
+ - Uggs. I think they’re ugly. And I think big sunglasses are kind of overrated. I like big sunglasses but not those huge, round ones.
+ - Anne was a great girl. Hopefully she would have been a belieber.
+ - I don’t know if people know this but I am pretty good at chess. I was always on the chess team at school when I was younger.
+ - My favourite shower jam song is ‘Teenage Dream’ by Katy Perry.
+ - Why do u drive on a parkway and park in the driveway. Its messed up.
+ - I don’t get why my fans call me yummy. I mean I’m not a sandwich!
+ - A lot of teenagers, when they’re in the business, they want to rebel, because they’ve been so tied up and stuff. I’m not too tied up. I like to have fun. I just don’t see myself getting out of control.
+ - It’s so hard, because everyone’s got a camera-phone, and everyone wants to get their picture on the blogs. So they’ll send anything that they have to the blogs. So you don’t really get any privacy.
+ - I don’t understand why my fans ask for a hug, like, i don’t mind, just come and hug me!
+ - I’ve got my eye on a few things to spend my money on. I’ve got my own bank card but I am really good with money. I don’t spend too much at all.
+ - I’m just a regular 16 year old kid. I make good grilled cheese and I like girls.
+ - It would be a shame to go out with a hot girl you can’t have a decent conversation with!
+ - When I get off a flight, I’m not trying to sit there and let them take pictures of me. I’m tired. I’m scratching my eyes. I just don’t like taking pictures in general.
+ - I feel like I carry myself in a more manly way. I don’t carry myself as a boy.
+ - My fans are like my glasses. Without them I’d be blurry.
+ - I wear black diamonds instead of regular ones because I’m not flashy, just flossssy.
+ - I’d like to be an architect. That would be cool. I like drawing.
+ - I’m not going for the sixteenth chapel.
+ - My fans and I have that special connection because whenever we talk on Twitter and Facebook we really have that one on one connection and I feel that’s important.
+ - I was found on Youtube. I think I was detrimental to my own career.
+ - I also try to read all of my fan mail. A lot of them send me candy, which I’m not allowed to eat ’cause my mom says it might be poisonous.
+ - My beloved beliebers I’m officially retiring.
+ - I just want to be young and fun and you know I think people should all wear yellow shoes.
+ - If I notice a cute girl at the meet-and-greet, I might go and talk to her.
+ - I want to grow as an artist and I’m taking a step out, I want my music to mature.
+ - I listened to a lot of Michael Jackson growing up. A lot of Boyz II Men. I loved Mariah Carey. Just big vocalists. I was always that kid who just wore whatever and did whatever.
+ - There’s more people that like me than there are who hate me, so I kind of brush it off.
+ - I luv the book first step to forever by justin bieber.
+ - When you are following me on Twitter, you are literally following my life. I think that’s pretty cool.
+ - I want to be a young dad. By 25 or 26 I want to see myself, like, married or start looking for a family.
+ - Haters call me ‘gay,’ but their girlfriends want me more than them.
+ - Everybody grows up and they have to make decisions, and they try and make the best decisions that they know how to. It’s taken them their whole lives to finally step out and start making their own decisions.
+ - I grew up in a really small town with not a lot of money, and I liked singing, but it was just something that was a hobby.
+ - I grew up below the poverty line; I didn’t have as much as other people did. I think it made me stronger as a person, it built my character. Now I have a 4.0 grade point average and I want to go to college, and just become a better person.
+ - April is a fun month.
+ - Just being young and growing up in this business is hard. Just growing up in general is hard.
+ - My fans are really loud but they are great. I’ve never liked someone so much to go up and scream that loud.
+ - At concerts it makes me happy to see my Beliebers talking to each other because i made them family.
+ - I have my romantic moments – for sure.
+ - Are you curious about cutting off your finger? Do you want to know what that feels like? To me, taking drugs is the same type of thing. In the end, all that happens is you get hurt by it.
+ - My manager is definitely a mentor as well as Usher.
+ - We didn’t have time to go tobogganing, because we didn’t have the toboggan.
+ - When I release something, I’m like, “OK, I want it to be the best.” When I release my fragrance, I want it to be the number one fragrance. I don’t want it to be like, “Oh yeah, you got ninth on the rankings.”
+ - I turned a lot of people off over the past few years, but I know I can still turn out good music and turn everything all around, i’ve lost some of my best qualities. For that, I am sorry.
+ - You know I’m just getting bigger, man. It’s like, my shoulders don’t fit in some things.
+ - If i can do just one tenth of the good Michael Jackson did for others, i can really make a difference in this world.
+ - As hard as I’ve tried, I don’t know how not to be adorable.
+ - I like to just see what’s going on at a certain location and see what there is to do. If it looks and sounds like I’m able to have fun there, then I’m all for it.
+ - I work out every day. Mostly it’s free weights and cardio. I don’t do that stuff where they throw logs at you, what’s it called, cross-fit. None of that. Mainly it’s just me in the gym, lifting weights.
+ - Yeah, I’m a great kisser.
+ - I’m very much a relationship guy. I like to bounce ideas off the person that I love. I like having a real connection.
+ - We’re trying to set up a movie for me in the near future. It’s going to be similar to the story of how I got discovered. Kinda like my own version of ‘8 Mile.’
+ - I’m just trying to get the best sound and have it be consistent and make sense with what I’m going through in my life.
+ - Every one of my fans is so special to me.
+ - I don’t really have an allowance. When I want to get something I just have to ask my mom.
+ - Without the Internet I would have no fans and I wouldn’t be in this business. I owe everything to the Internet and my fans.
+ - That’s going to be the biggest problem, to make people feel like it’s cool for them to like my music.
+ - As I get into it more, I want to grow as an artist, as an entertainer, and basically perfect my craft.
+ - It’s cool when fans spend so much time making things for me. It means a lot.
+ - I liked this girl in my sixth grade class. I dared her to kiss me – but she didn’t!
+ - No matter how much I try, I cant figure out how to not be adorable!
+ - When people see a negative thing about me on a magazine, they’re gonna buy it. Every time some site writes something bad, all my followers go on there, and it brings them more traffic.
+ - At 13 you’re not even thinking about that, you know? I was just playing for fun and uploading videos on YouTube because I wanted to show my family.
+ - I’ve had a few gigs where things have got out of hand and there has been a huge crush with my fans. They are important and I don’t want them being hurt. They are a mad crowd.
+ - I don’t like it when a girl trys to hard and puts loads of makeup on. You gotta show some of yourself.
+ - I want my world to be fun.
+ - We never destroyed anything major, but there were a few small casualties. A couple of lamps were sacrificed.
+ - If I believe the good, then I have to believe the bad.
+ - My fans are flawless as long as you ride with me i will always be there for you.
+ - My fans aren’t obsessed. They’re just incredible and devoted.
+ - I opened my Eyes one day and noticed that the world is full of beautiful girls.
+ - Chicken is good and never stop eating you will look like me and you will have hair like me and sing like me and be 500 pounds!!!!
+ - I don’t own a jet, but I rent jets in my spare time. That’s the quickest and most comfortable.
+ - I learned if you have $100 or $100 million – if you spend more than you have, you’re going to go broke.
+ - I want to thank everybody, all my fans in Israel, all the children, everybody, it’s amazing.
+ - I don’t know that I’ve seen a lot of things I’ve done from beginning to end. I think I’ve seen clips and freaked out. I’m not somebody who watches things they’ve done.
+
+194 quotes

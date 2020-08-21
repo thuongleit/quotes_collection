@@ -1,0 +1,27 @@
+ - The portions of a woman which appeal to man’s depravity Are constructed with considerable care.
+ - Let’s stop somebody from doing something! Everybody does too much.
+ - Let’s find out what everyone is doing, And then stop everyone from doing it.
+ - Don’t let’s go to the dogs tonight, For mother will be there.
+ - An act of God was defined as something which no reasonable man could have expected.
+ - Harriet, Hi! Light of my eye! Come to the pictures and have a good cry, For it’s jolly old Saturday, Mad-as-a-hatter-day, Nothing-much-matter-day-night!
+ - Well, fancy giving money to the Government! Might as well have put it down the drain.
+ - The concept of two people living together for 25 years without a serious dispute suggests a lack of spirit only to be admired in sheep.
+ - A high-brow is someone who looks at a sausage and thinks of Picasso.
+ - The whole Constitution has been erected upon the assumption that the King not only is capable of doing wrong but is more likely to do wrong than other men if he is given the chance.
+ - Greenfly, it’s difficult to see Why God, who made the rose, made thee.
+ - The essence of humour is surprise; that is why you laugh when you see a joke in Punch.
+ - Men who would face torture without a word become blasphemous at the short fourteenth. It is clear that the game of golf may well be included in that category of intolerable provocations which may legally excuse or mitigate behaviour not otherwise excusable.
+ - As my poor father used to say In 1963, Once people start on all this Art Goodbye, moralitee! And what my father used to say Is good enough for me.
+ - The critical period of matrimony is breakfast-time.
+ - Justice should be cheap but judges expensive.
+ - If nobody said anything unless he knew what he was talking about, a ghastly hush would descend upon the earth.
+ - A dull speaker, like a plain woman, is credited with all the virtues, for we charitably suppose that a surface so unattractive must be compensated by interior blessings.
+ - An Englishman never enjoys himself, except for a noble purpose.
+ - A man who has made up his mind on a given subject twenty-five years ago and continues to hold his political opinions after he has been proved to be wrong is a man of principle; while he who from time to time adapts his opinions to the changing circumstances of life is an opportunist.
+ - This high official, all allow, is grossly overpaid; there wasn’t any Board, and now there isn’t any Trade.
+ - For I must write to The Times tonight, and save the world from sin.
+ - My ball is in a bunch of fern, A jolly place to be; An angry man is close astern- He waves his club at me. Well, let him wave-the sky is blue; Go on, old ball, we are but two-We may be down in three, Or nine-or ten-or twenty-five-It matters not; to be alive, Is good enough for me.
+ - There is no reason why a joke should not be appreciated more than once. Imagine how little good music there would be if, for example, a conductor refused to play Beethoven’s Fifth Symphony on the ground that his audience might have heard it before.
+ - People must not do things for fun. We are not here for fun. There is no reference to fun in any Act of Parliament.
+
+25 quotes

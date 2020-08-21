@@ -1,0 +1,28 @@
+ - My life was the best omelette you could make with a chainsaw.
+ - Literature is the ditch I’m going to die in. It’s still the thing I care most about.
+ - The essence of sport is courage.
+ - I may be the wrong person for my life.
+ - The occupational hazard of making a spectacle of yourself, over the long haul, is that at some point you buy a ticket too.
+ - It don’t do you no nevermind to tell nobody nothing.
+ - We have reached the time in the life of the planet, and humanity’s demand upon it, when every fisherman will have to be a river-keeper, a steward of marine shallows, a watchman on the high seas. We are beyond having to put back what we have taken out. We must put back more than we take out.
+ - Giving freaks a pass is the oldest tradition in Montana.
+ - You can’t say enough about fishing. Though the sport of kings, it’s just what the deadbeat ordered.
+ - Fishing should be a ceremony that reaffirms our place in the natural world and helps us resist further estrangement from our origins.
+ - I like young girls. Their stories are shorter.
+ - Something had gone amiss with men, and the weak ones were dangerous.
+ - An undisturbed river is as perfect as we will ever know, every refractive slide of cold water a glimpse of eternity.
+ - I’d be happy to have my biography be the stories of my dogs. To me, to live without dogs would mean accepting a form of blindness.
+ - In the future, I mean to be a fine streamside entomologist. I’m going to start on that when I am much too old to do any of the two thousand things I can think of that are more fun than screening insects in cold running water.
+ - Angling is extremely time consuming. That’s sort of the whole point.
+ - By your late thirties the ground has begun to grow hard. It grows harder and harder until the day that it admits you.
+ - Young anglers love new rivers the way they love the rest of their lives. Time does not seem to be of the essence and somewhere in the system is what they are looking for.
+ - Early on I decided that fishing would be my way of looking at the world. First it taught me to look at rivers. Lately it has been teaching me how to look at people, myself included.
+ - I had just settled Grandma on her folding chair and popped open our box lunch when the corpse floated by.
+ - After fifty years of living, it occurs to me that the most significant thing that people do is go to work, whether it is to go to work on their novel or at the assembly plant or fixing somebody’s teeth.
+ - The mountains paralleled the valley and the snowy peaks were extending with fall to the valley floor.
+ - Generally, we are united in the belief that all rod design has been progressive and that the ideas about fly rods in the past were so bad as to make it amazing that people were able to fish at all.
+ - I simply feel that the frontier of angling is no longer either ethical or geographical. The Bible tells us to watch and listen. Something like this suggests what fishing ought to be about: using the ceremony of our sport and passion to arouse greater reverberations within ourselves.
+ - The trouble is, you can’t properly present something you don’t believe in.
+ - We both liked children; we just didn’t want any ourselves. There were children everywhere, and we saw no reason to start our own brand. Young couples plunge into parenthood and about half the time they end up with some ghastly problem on their hands. We thought we’d leave that to others.
+
+26 quotes

@@ -1,0 +1,167 @@
+ - If you ever go home with somebody and they don’t have books in their house, don’t sleep with them. I think that’s very important.
+ - Without obsession, life is nothing.
+ - Life is nothing if you’re not obsessed.
+ - When they throw the water on the witch, she says, “Who would have thought a good little girl like you could destroy my beautiful wickedness”. That line inspired my life. I sometimes say it to myself before I go to sleep, like a prayer.
+ - Being rich is not about how much money you have or how many homes you own; it’s the freedom to buy any book you want without looking at the price and wondering if you can afford it.
+ - Contemporary art hates you.
+ - Stop blaming your parents. If you’re really angry at 60 years old, you’re an idiot! You’ve got to work some of it out.
+ - True success is figuring out your life and career so you never have to be around jerks.
+ - Don’t sleep with people who don’t read.
+ - If you can make someone laugh who’s dead set against you, that’s the first step to winning them over to your side.
+ - I always wanted to be a juvenile delinquent but my parents wouldn’t let me.
+ - The Easter Bunny is a major reason for heroin addiction in America.
+ - Sometimes I wish I was a woman, just so I could have an abortion.
+ - Pride myself on the fact that my work has no socially redeeming value.
+ - Just make sure your children hate authority and they’ll do fine.
+ - I’m here today because of LSD. LSD gave me the confidence to be who I am today. Completely.
+ - Stupid is never that entertaining. You can be stupid and sexy, stupid and funny but he’s just plain stupid. That is not remarkable, that’s what I mean.
+ - I love to read about anger. A “feel bad” book always makes me feel good. And no other novel in the history of literature is more depressing than Christina Stead’s The Man Who Loved Children.
+ - People are going to say, “I was a lesbian back in the 90s” just like people say, “I was a hippie in the 60s”. I see them struggling. Rich girls struggling with their heterosexuality.
+ - If you’re not sure you could love your children, please don’t have them, because they might grow up and kill us.
+ - Time marches on and I don’t care how people watch my movies as long as they see them. I don’t care if they’re on their phone.
+ - And I seek people who break rules with happiness – and not bringing pain to themselves.
+ - Some call me director, producer, filmmaker. I prefer to call myself pube-king.
+ - Humor is how you change people’s opinions, and if you can make someone laugh, they’ll listen, even if they hate you.
+ - It was a mystery to me. To that awful black-and-white farm, with that aunt who was dressed badly, with smelly farm animals around when she could live with winged monkeys and magic shoes and gay lions. I didn’t get it.
+ - I think that’s why I’ve lasted this long because I love everything I make fun of! I make fun of myself first! I mean, I started my career by calling my films “trash” – the local critics used to complain that I beat the critic to the typewriter.
+ - To understand bad taste one must have very good taste.
+ - Anytime you make someone laugh or satirize something, it’s the best way to change someone’s opinion because they’re defenseless – they laugh, they listen.
+ - People that pick up hitchhikers I believe are basically good people that believe in other people and understand problems and don’t judge people. That’s always the kind of person I’m looking for.
+ - I like rap music. But bragging about being rich to poor people is really offensive. I want to hear a rap song about buying a Cy Twombly painting or dating a museum curator. I want to hear about that kind of rich.
+ - To me, racist jokes are not funny. I am politically correct, in a weird way. I like to push the boundaries that are politically correct.
+ - Technique is nothing more than failed style.
+ - I would never want to live anywhere but Baltimore. You can look far and wide, but you’ll never discover a stranger city with such extreme style. It’s as if every eccentric in the South decided to move north, ran out of gas in Baltimore, and decided to stay.
+ - Ever feel like killing somebody just to see if you could get away with it? Sure, you have. Everybody has little things that get on their nerves.
+ - My hobby is extreme Catholic behavior – BEFORE the Reformation.
+ - I understand why people want to look up their friends – usually they want to see what people they’ve wanted to have sex with look like.
+ - I’ve bought the same used car from the same man since I was 16 – a Buick every time. They always work, I don’t care what color it is. I don’t want people to recognize my car in case I want to commit a crime.
+ - The “Texas Chainsaw Massacre” hitchhiker really made people never want to hitchhike again – the hitcher, the show. Hitchhiking is always vaguely sexual.
+ - I’d love to sell out completely. It’s just that nobody has been willing to buy.
+ - I thank God I was raised Catholic, so sex will always be dirty.
+ - I have no interest in cars. I have a plain, used Buick. I could run over 10 people, and you wouldn’t be able to describe my car.
+ - Nothing is more impotent than an unread library.
+ - I respect everything I make fun of.
+ - I would never do hard-core pornography, because it looks too much like open-heart surgery.
+ - The only time I had a normal boyfriend was during the time of AIDS, so maybe that saved me. It’s certainly not karma.
+ - Maybe there is no better novel in the world than Denton Welch’s In Youth Is Pleasure. Just holding it in my hands, so precious, so beyond gay, so deliciously subversive, is enough to make illiteracy a worse social crime than hunger.
+ - I live in San Francisco, I live in Provincetown. They’re all the same, apart from Baltimore. Baltimore’s the only cheap place left.
+ - To me, beauty is looks you can never forget. A face should jolt, not soothe.
+ - Not wanting anyone to pop my bubble by speaking to me, I immediately began reading Lesbian Nuns, and that did the trick. No one attempted small talk.
+ - Hairspray is the only movie I made that’s subversive, because they’re doing it in every high school in America. A man’s playing a woman, and two men sing a love song to each other.
+ - People always ask me what I’m doing on the subway, but I love it! Sometimes I like to ride in the front car and look out the window at the rats.
+ - I also hate those holidays that fall on a Monday where you don’t get mail, those fake holidays like Columbus Day. What did Christopher Columbus do, discover America? If he hadn’t, somebody else would have and we’d still be here. Big deal.
+ - It wasn’t until I started reading and found books they wouldn’t let us read in school that I discovered you could be insane and happy and have a good life without being like everybody else.
+ - I liked speed. I was on black beauties all the time. Nothing bad happened to me. I didn’t become a drug addict because I always had to make a movie. We weren’t stoned when we made them; I was stoned when I made movies up. I did them all.
+ - If I died tomorrow I’ve accomplished what I set out to do in my life. I enjoy making my movies, I enjoy doing what I do. I have a nice life.
+ - Catholics have more extreme sex lives because they’re taught that pleasure is bad for you. Who thinks it’s normal to kneel down to a naked man who’s nailed to a cross? It’s like a bad leather bar.
+ - I don’t trust anyone that hasn’t been to jail at least once in their life.
+ - I could never kill myself. I approve of suicide if you have horrible health. Otherwise it’s the ultimate hissy fit.
+ - I get dumber as the day goes along. Every second of the day that goes along, I get stupider.
+ - A lot of kids are moving to Baltimore, because we have a great music scene and we’ve got edge. Come on down, we’ve got scary edge. But great edge – it’s still a city you can be a bohemian in.
+ - No comedy should be longer than 90 minutes. There’s no such thing as a good long joke.
+ - Wouldn’t you rather your kid be a drug dealer than a drug addict?
+ - I think social justice is important. I think it’s not fair.
+ - If your kid comes out of the bedroom and says he just shut down the government, he should have an outfit for that.
+ - I’m for gay marriage. I don’t want to do it, but I certainly think people should be allowed to, and I wouldn’t vote for anybody that would be against it. But at the same time, why do we have to be good now? Why can’t we be villains in movies?
+ - Life is a rotten lottery.
+ - Fame is protection if you go to a scary place. Fame is fun. A lot of people don’t say anything and you don’t know they know who you are.
+ - I care about the presidential elections. I always vote. Sometimes I’ve voted more than once, illegally. But you can’t anymore. The picture ID has ruined everything.
+ - Aren’t maids the ultimate art critics?
+ - I tried heroin. I shot up in high school, but I just thought it was so dreary: puking and nodding.
+ - I can’t tell the difference between the best and the worst ’cause I realize not everybody wants to have sex in the middle of a demolition derby race in the car.
+ - The anger I have about high school – which I do have because they discouraged every interest I ever had; actually I call it anti-education – that anger led to my career.
+ - It reinforced everything that I believe. I am an optimist. I believe in the goodness of people.
+ - You see a kid making a film on a cell phone. He doesn’t know what he’s doing either. But it comes out kind of good.
+ - I think that nobody gets mad at me anymore, no matter what I say, because I don’t think I’m mean. I am interested in what’s next.
+ - When I started making movies about weird people, I knew they were weird, I was infected with irony, and I wanted New York to notice.
+ - I built a career on negative reviews. I didn’t get a good review ever until Fran Lebowitz gave me a good review in Interview. That was the first good review I got in 10 years.
+ - You have to remember that it is impossible to commit a crime while reading a book.
+ - Baltimore never changes much. People aren’t impressed by anything. It’s great; it’s not a trendy town.
+ - I never got along in school really – I already knew what I wanted to do. I have never in my life got a paycheck from anywhere in the world that asked if I went to school.
+ - No matter what your sexual preference or gender, no one likes a man who is fussy about his looks. You can spend as much time as you want looking good. But don’t do it in public.
+ - If you purposefully look to shock people, it isn’t funny. That’s what 50 million dollar Hollywood comedies do ; try to be shocking and dirty.
+ - Do we secretly idolize our imagined opposites, yearning to become the role models for others we know we could never be for ourselves?
+ - The only way I’ve learned to change anyone’s mind politically is to make them laugh. My whole career has been about that.
+ - I think that in America there is a new movement of underground movies that wants to kick the ass of independent films that they think whine too much.
+ - I was always flattered, but I just want my movies to make money. I want to be commercial. I’m never the person who says, “I don’t care if people don’t see my movies.” I always want people to see my movies.
+ - Coke didn’t last long enough; it gave me a hangover for two weeks for being high for ten minutes.
+ - An underground hit didn’t make any money and it cost a dollar to get in.
+ - I didn’t become a drug addict because I always had to make a movie.
+ - New York was the last place that my movies caught on. I didn’t make underground movies in New York, and in the 1960s, they were very snobby about that, because the whole scene was here.
+ - I go to colleges all the time in America, and everyone’s gay, and I think how can this be? And it’s only in rich schools. In poor schools, nobody’s gay.
+ - I’m trying to do of a certain attitude in life. I’m against separatism. I’m for everyone to gather. I’m for everyone lunatic to hang out together. I want to hear somebody else’s bad night, not just mine.
+ - My favorite characters are people who think they’re normal but they’re not. I live in Baltimore, and it’s full of people like that. I’ve also lived in New York, which is full of people who think they’re crazy, but they’re completely normal.
+ - Valentine’s Day is my mother’s birthday. If I’m wildly in love, I’ve sent people chicken hearts, which seems to appeal to the kind of person that I’ve been in love with.
+ - I never rewatch the great films of my favorite directors because I’m afraid they won’t hold up.
+ - Wealth is walking into any bookshop and buying any book you want without looking at the price tag.
+ - Everything makes you who you are, so I was lucky that I had a good family that was horrified by what I wanted to do but was also supportive of it, right to the very end.
+ - I’ve always believed in the goodness of people. I teach in prison. They all said, don’t do it. Carry a gun, take Mace. Are you kidding? I guess, they’re around so many criminal elements that they fear for.
+ - I make independent movies. I don’t know how to do anything else. I don’t know any other job that I could really get.
+ - I’m thrilled to have a completely new audience that I can get from Court TV, without it being my own trial. That was the only other way I would have gotten it.
+ - As far as socially redeeming value, I hope I don’t have any.
+ - When I started my goal was to make a successful underground movie. I started making movies in the mid-60s. Underground cinema then only lasted about two or three years.
+ - I want to be harder to reach, not easier.
+ - I think it’s all independent films. There aren’t any! If they were looking for me when I was making Polyester, then it’d be perfect, but they’re not. I’m not looking for that. TV is much bigger and better now; far more people see it.
+ - I mean, what is prison, really, except a good bar without the liquor?
+ - It delights me to find something that kids are doing that surprises me that seems new. That’s the best feeling you can have.
+ - The further away I am from water, the less well I do!
+ - Censorship has been my best press agent my whole life.
+ - I never had any desire to get a tattoo. If I was ever going to get one, I would get a plain anchor with a rope around it, the most unimaginative possible tattoo, like Popeye had.
+ - I’m a film director. Gay is an adjective that I certainly am, but I don’t know that it’s my first one. I think if you’re just a gay filmmaker, you get pigeonholed just like if you say I’m a black filmmaker, I’m a Spanish filmmaker, I’m a whatever.
+ - I hitchhiked at high school. My parents thought was a perfectly normal thing to do even though God knows I got blown a lot of times riding home from school.
+ - William Castle and Alfred Hitchcock were the first director-personalities. Before then, nobody in America knew what a director was.
+ - I imagine Johnny Mathis hates Bin Laden as much as I do, but could Johnny agree Bin Laden had a better speechwriter than Bush? “Axis of Evil”? Come on. “A swimmer in the ocean does not fear the rain” is much more powerful propaganda. Poetic, even.
+ - I haven’t changed – the public has. I’m an insider now, which is hilarious.
+ - I always want to see films that are startling and amazing. Not just shocking. Shocking is easy to do. But startling in the way that makes you change how you think about things. Those are the movies I like the best.
+ - I like hard movies; I like ones that are basically the opposite of a date movie.
+ - There is right and there is wrong, I have NEVER been wrong.
+ - I don’t like heroin, unless you’re a jazz musician and then you have to be on it because jazz is the sound of heroin.
+ - Things are going great in every part of my life except movies. That’s okay. I’ve got a lot of other parts of my life. I’ve made 15 movies. You can see any one of my movies and it says the same thing.
+ - My idea of an interesting person is someone who is quite proud of their seemingly abnormal life and turns their disadvantage into a career.
+ - At the premiere of Hairspray on Broadway, Harvey Fierstein’s mom said to my mom, “Didn’t we raise great sons?” and my mother just started sobbing, because I’m sure they’d both been through other nights when people didn’t say that.
+ - Even illegal weapons have lost their panache. Zip guns and shanks were at least homemade. Where is the craft in a grade-schooler firing a magnum? What is the world coming to? It’s not even bad to be a communist anymore!
+ - How could you think of such awful things? liberal critics always ask. How else could I possibly amuse myself? I always wonder.
+ - Well cult is a word you would never say in Hollywood. In any film business, if you’re trying to get your next film made, you would never say, “Oh, my last film was a cult film.” I’d say, “Oh great, well I hope this one isn’t!”
+ - It isn’t enough to shock. It’s easy to shock. Real surprise is what I’m after.
+ - I’m an old person because I still buy DVDs. I have every one of my albums and 45s – I even have a couple of 33s and I do have a turntable. But I must admit, I don’t listen to vinyl today. But I listen to all types of music.
+ - I would describe myself as a writer that hopes to take you into my world and help you feel a little safer.
+ - I have no interest in ever making a movie I didn’t write. If they were going to take my house away, then I guess I might have to. But my agent knows not to even bother sending me the scripts.
+ - I think that young people understand me perfectly. I think that’s the luckiest thing about my career, that I get older and they get younger, and it didn’t stop with my generation.
+ - I’ll have pot in my home for guests – I’m polite! – but I don’t sit around and smoke by myself, ever. Not like I did when I was young.
+ - How come there’s no terrorism with humor, which is a great way to humiliate your enemy? It’s a great time for that.
+ - To me, bad taste is what entertainment is all about. If someone vomits while watching one of my films, it’s like getting a standing ovation. But one must remember that there is such a thing as good bad taste and bad bad taste.
+ - I’ve had a pretty amazing life, a good life, and God knows I’m thankful, but I do believe that after 30, stop whining! Everybody’s dealt a hand, and it’s not fair what you get. But you’ve got to deal with it.
+ - Hitchhiking, intrinsically, is sexual and dangerous. At the same time I never really felt scared. I was scared that nobody would pick me up and that I’d be waiting by the side of the road for a week.
+ - I used to joke that I was trying to sell out, and nobody would buy me.
+ - Watching a movie should be like hunting. Out of context, every image of the cinema is yours for a split second. Take them before they bury it.
+ - I was thinking about sort of the similarities between “art movies” and lowbrow movies like kitschy sexploitation films. I think they share certain qualities, whether they’re hyper-stylized or overly emotive or just very visual.
+ - I haven’t committed all the crimes in my movies, I would have gotten the death penalty many years ago if I had.
+ - I keep on having ideas and developments. Some happen and some don’t, but I still always have a way of telling a story.
+ - People vomitied at my movies; not because of the movie but because they were drunk. I took credit anyway.
+ - Going to a sensational murder trial is the only way I can relax.
+ - Terrible things always seemed to happen to hitchhikers in movies – including my own. It has always been glamorous and dangerous and scary and sexy.
+ - I couch-surfed for years. But I always wanted to live in Baltimore; I still do. If I had to choose, it would always be Baltimore.
+ - I never thought I’d be 52 years old. I don’t think that anybody at 16 thinks like that.
+ - There was a cultural war going on, the ’60s was going on. All the film critics were square.
+ - My films can be considered political action against the tyranny of good taste.
+ - Get on the fashion nerves of your peers, not your parents – that is the key to fashion leadership.
+ - I learned that people like my work because I praise things that others don’t like.
+ - I think I technically learned some things, hopefully. But I go to the movies for characters and story and a berserk vision.
+ - Anyone from my past I’m interested in, I’ve already stalked their homes. I like to go outside.
+ - People still come to Baltimore and say, “I didn’t realize you made documentaries.”
+ - I must admit, even my fans everywhere I go in the world – just this week I was in London and Glasgow and the week before I was in Des Moines – my fans all look the same in all those cities – they look great!
+ - Everybody should wish they had home movies of themselves, acting out their lunacy on LSD.
+ - I am on the road all the time. Whether I’m in Paris or in a small college town in Texas, I can’t tell the difference, and that’s good. You don’t have to leave where you were born to be cool anymore.
+ - Yeah, I know I should be fighting for gay rights, but who wants to join the army or get married anyway?
+ - I’m perpetual tourist, and that’s the best way to travel. Nobody gets used to you, you make new friends without having to hear anyone’s everyday problems, and you jet back still feeling like a know-it-all.
+ - Shutting down governments on your computer is just as much as fun as going to a riot at Yale.
+ - I think the extremes are something that’s really interesting to see coalesce in movies.
+ - I always say you need something weird on your face and some good shoes and nobody looks in the middle.
+ - Fifty years seems like a good anniversary. Even after I’m dead, how much better could I get than this? I mean, it’s great, I’m not dead, so I get to see it.
+ - God knows if you could start a new sex act that’s more important than making a good movie.
+ - When I was young, no one wanted to be one; now even the President of the United States would call himself an outsider. So now I’m for insiders.
+ - I have to talk about my movies. I have to give interviews to promote what I’m doing. But no one really knows my personal life. And if you don’t have a personal life I feel bad for you.
+ - Pot came first when I was young. But I did the work. It wasn’t a battle of what came first. They went together like “love and marriage, horse and carriage!”
+ - I never thought I had more fun when I was young than kids are having today. I think they have just as much fun. It’s a different way to have fun.
+
+165 quotes

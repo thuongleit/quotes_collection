@@ -1,0 +1,64 @@
+ - You can’t lie to your soul.
+ - I’m not running away, I’m moving on.
+ - What worries me is the professionalism of everything.
+ - How did it make you feel?
+ - By definition, you have to live until you die. Better to make that life as complete and enjoyable an experience as possible, in case death is shite, which I suspect it will be.
+ - Here ah am in the junky’s limbo; too sick tae sleep, too tired tae stay awake. A twilight zone ay the senses where nothing’s real except the crushing, omnipresent misery n pain in your mind n body.
+ - Ah suppose man, ah’m too much ay a perfectionist, ken? It’s likesay, if things go a bit dodgy, ah jist cannae be bothered, y’know.
+ - Are you asking me or telling me?
+ - Writing is about culture and should be about everything. That’s what makes it what it is.
+ - There is a kind of mysticism to writing.
+ - When I first started to get into writing, it was via music. I’d generate ideas for songs that would turn into stories, then they’d turn into novels. I was biased toward music.
+ - I spend so much time on the screen when I am writing, the last thing you want to do is spend more time on the Internet looking at a screen. That’s what I hate about all this technology.
+ - Thir must be less tae life than this.
+ - Bruce, you’re an ugly and silly old man. You’re very possibly an alcoholic and God knows what else. You’re the type of sad case who preys on vulnerable, weak and stupid women in order to boost his own shattered ego. You’re a mess. You’ve gone wrong somewhere pal.
+ - Now there is apparently a causal link between heroin addiction and vegetarianism.
+ - I’m always watching people over a short time frame, putting them in an extreme position. Sometimes you don’t see the humanity in a person because the time frame is so short and the circumstance so extreme.
+ - You can only live in the world you ken. The rest is just wishful thinking or paranoia.
+ - I love doubt in a woman. It’s nearly as sexy as determination.
+ - Everything in the street today seems soft focus.
+ - I’d always liked to read, but when I picked up books I wasn’t getting the same kind of excitement from them that I was from going out clubbing. I wanted to get the same kind of feel.
+ - Most middle-class people I know don’t really live like me. Middle-class people worry a lot about money. They worry a lot about job security, and they do a lot of nine-to-five stuff.
+ - His eyes are wild, psychotic slits that bat-dance in your soul looking for good things to crush or bad elements to identify with.
+ - Some people are easier to love when you don’t have to be around them.
+ - Sometimes ah think that people become junkies just because they subconsciously crave a wee bit ay silence.
+ - I enjoy the freedom of the blank page.
+ - I didn’t have any concept of Trainspotting being published. It was a selfish act. I did it for myself.
+ - There’s nothing worse than a violent beating from an unremarkable person. Physical violence with someone is too much like shagging them. Too much id involved.
+ - Once you’ve been with each other in a primal, shagging state, it’s hard to talk about the weather.
+ - When two people were in love you had to leave them to it. Especially when you weren’t in love and wished that you were. That could embarrass. That could hurt.
+ - Thoughts jostled for space in my crowded brain as I struggled to give them some order which might serve to motivate my listless life.
+ - I’m more of a warrior than you’ll ever be. I believe in the class war. I believe in the battle of the sexes. I believe in my tribe. I believe in the righteous, intelligent clued-up section of the working classes against the brain-dead moronic masses as well as the mediocre, soulless bourgeoisie.
+ - It’s all okay, it’s all beautiful; but ah fear that this internal sea is gaunnae subside soon, leaving this poisonous shite washed up, stranded up in ma body.
+ - I wanted to capture the excitement of house music, almost like a four-four beat, and the best way to do that was to use a language that was rhythmic and performative.
+ - There’s all this stuff that is happening in Edinburgh now, it’s a sad attempt to create an Edinburgh society, similar to a London society, a highbrow literature celebrity society.
+ - You can’t just have stuff that is free and escapist, you have to have stuff that is confrontational as well. You need stuff that is mystical but you need the realism too.
+ - I grew up in a place where everybody was a storyteller, but nobody wrote. It was that kind of Celtic, storytelling tradition: everybody would have a story at the pub or at parties, even at the clubs and raves.
+ - It’s different in Scotland. People who come to readings are more interested in literature as such, but the readership in general is really quite diverse. It’s a cliche, but it’s said that people who read my books don’t read any other books, and you do get that element.
+ - It’s hard to maintain both smack and crack habbits and remember to keep up mobile-phone payments.
+ - Rents once sais, thirs nothin like a darker skin tone tae increase the vigilance ay the police n the magistrates: too right.
+ - I’m working on a screenplay right now for the BBC, but I hope to have the decks cleared soon so I can get into the studio with my pals and put down some more tracks, try to get a strong dance single together.
+ - That’s all very well as an abstract moral principle, Avril, a coffee-table theoretical construct, but there’s no denying the sheer gratuitous pleasure to be derived from seeing members of the ruling class in pain and torment.
+ - Now, for the first time, he’s seeing that there really is a way out of this, and it’s all so simple. You don’t have to run away. You just meet somebody special and step sideways into a parallel universe.
+ - When I’m not writing, I read loads of fiction, but I’ve been writing quite constantly lately so I’ve been reading a lot of nonfiction – philosophy, religion, science, history, social or cultural studies.
+ - I think young writers should get other degrees first, social sciences, arts degrees or even business degrees. What you learn is research skills, a necessity because a lot of writing is about trying to find information.
+ - It’s only now that I realize that behaviour always has a context and precedents, it’s what you do rather than what you are, although we often never recognise that context or understand what these precedents are.
+ - I feel like I’ve exhausted guys and male friendships.
+ - The first job of a writer is to be honest.
+ - Bad luck is usually transmitted by close proximity to habitual sufferers.
+ - When people start writing there is this idea that you have to get everything right first time, every sentence has to be perfect, every paragraph has to be perfect, every chapter has to be perfect, but what youre doing is not any kind of public show, until youre ready for it.
+ - I tend to read more nonfiction, really, because when I’m writing I don’t like to read other fiction.
+ - It wis like auld times, but in a sense that only served tae remind us ay how much things hud changed.
+ - Sometimes there’s a snobbery among literary types that these people don’t really get it, but in a lot of ways they get it more than the literati. There’s a culture in the background that they understand and know. They get that deeper level.
+ - I grew up in what was not so much a familyas a genetic disaster.
+ - It was around the summer of 1982 when the drug problem really impacted. It became a lifestyle rather than a recreation. When you start lying and stealing, you cannot con yourself you’re in control any more.
+ - The dead man is on the trolley and the woman collapses across his chest. That’s what the ghouls want a shufti at, like at that Princess Diana’s funeral, they want to scrutinise those who really knew her, to drink the misery out of their faces.
+ - How many shots does it take before the concept ay choice becomes obsolete?
+ - The establishment, the newspapers, they try to create something called Scottish literature, but when people are actually going to write, they are not going to necessarily prescribe to that, they’ll write what they feel.
+ - Every kind of book I’ve written has been written in a different way. There has not been any set time for writing, any set way, I haven’t re-invented the process every time but I almost have.
+ - When I started off with Trainspotting, it was the way the characters came to me. That’s how they sounded to me. It seemed pretentious to sound any other way. I wasn’t making any kind of political statement.
+ - But even Es and cocaine, over the years they blow holes in your brain, rob you of your memories, your past. Which is fair enough, convenient even.
+ - Ah wonder if anybody this side of the Atlantic has ever bought a baseball bat with playing baseball in mind.
+ - Basically, particularly in Britain, it’s a hegemonic thing that people who write tend to come from the leisure classes. They can afford the time and the books.
+
+62 quotes

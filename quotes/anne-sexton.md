@@ -1,0 +1,263 @@
+ - It doesn't matter who my father was; it matters who I remember he was.
+ - I am a collection of dismantled almosts.
+ - Put your ear down close to your soul and listen hard.
+ - The tongue, the Chinese say, is like a sharp knife: it kills without drawing blood.
+ - I am alone here in my own mind. There is no map and there is no road. It is one of a kind just as yours is.
+ - It is June. I am tired of being brave.
+ - I’m the crazy one who thinks that words reach people.
+ - Watch out for intellect, because it knows so much it knows nothing and leaves you hanging upside down, mouthing knowledge as your heart falls out of your mouth.
+ - I am God, la de dah.
+ - Even so, I must admire your skill. You are so gracefully insane.
+ - When I’m writing, I know I’m doing the thing I was born to do.
+ - I am so imperfect, can you love me when really my soul is deformed? Will you love me anyhow?
+ - It is in the small things we see it. The child’s first step, as awesome as an earthquake. The first time you rode a bike, wallowing up the sidewalk.
+ - I’m lost. And it’s my own fault. It’s about time I figured out that I can’t ask people to keep me found.
+ - I am not at home in myself. I am my own stranger.
+ - Don’t worry if they say you’re crazy. They said that about me and yet I was saner than all of them. I knew. No matter. You know. Insane or sane, you know. It’s a good thing to know – no matter what they call it.
+ - Bless all useful objects, the spoons made of bone, the mattress I cook my dreams upon, the typewriter that is my church with an altar of keys always waiting.
+ - I did not know the woman I would be nor that blood would bloom in me each month like an exotic flower, nor that children, two monuments, would break from between my legs...
+ - Yes I try to kill myself in small amounts, an innocuous occupation. Actually I’m hung up on it.
+ - I am torn in two but I will conquer myself.
+ - One can’t build little white picket fences to keep nightmares out.
+ - Poor thing. To die and never see Brooklyn.
+ - I am crazy as hell, but I know it. And knowing it is a kind of sanity that makes the sickness worse.
+ - The future is a fog that is still hanging out over the sea, a boat that floats home or does not.
+ - As for me, I am a watercolor. I wash off.
+ - A woman who writes feels too much.
+ - Look to your heart that flutters in and out like a moth. God is not indifferent to your need. You have a thousand prayers but God has one.
+ - Fee-fi-fo-fum – Now I’m borrowed. Now I’m numb.
+ - I am not lazy. I am on the amphetamine of the soul. I am, each day, typing out the God my typewriter believes in.
+ - God has a brown voice, as soft and full as beer.
+ - So I won’t hang around in my hospital shift, repeating The Black Mass and all of it. I say Live, Live because of the sun, the dream, the excitable gift.
+ - Poetry to me is prayer...
+ - The town is silent. The night boils with eleven stars. Oh starry starry night! This is how I want to die.
+ - Man is a bird full of mud, I say aloud. And death looks on with a casual eye and scratches his anus.
+ - We are all writing God’s poem.
+ - To love another is somethinglike prayer and it can’t be planned, you just fallinto its arms because your belief undoes your disbelief.
+ - I’m an empress. I wear an apron. My typewriter writes. It didn’t break the way it warned. Even crazy, I’m as nice as a chocolate bar.
+ - It is a dead heart. It is inside of me. It is a stranger yet once it was agreeable, opening and closing like a clam.
+ - Only my books anoint me, and a few friends, those who reach into my veins.
+ - Everyone in me is a bird I am beating all my wings.
+ - I am tearing the feathers out of the pillows, waiting, waiting for Daddy to come home and stuff me so full of our infected child that I turn invisible, but married, at last.
+ - Our eyes are full of terrible confessions.
+ - Don’t bite till you know if it’s bread or stone.
+ - My ideas are a curse. They spring from a radical discontent with the awful order of things. I play clown. I play carpenter. I play nurse. I play witch.
+ - O fallen angel, the companion within me, whisper something holy before you pinch me into the grave.
+ - My death from the wrists, two name tags, blood worn like a corsage to bloom one on the left and one on the right.
+ - God went out of me as if the sea dried up like sandpaper, as if the sun became a latrine. God went out of my fingers. They became stone. My body became a side of mutton and despair roamed the slaughterhouse.
+ - What’s the point of fighting the dollars when all you need is a warm bed? When the dog barks you let him in. All we need is someone to let us in. And one other thing: to consider the lilies in the field.
+ - Rats live on no evil star.
+ - I, in my brand new body, which was not a woman’s yet, told the stars my questions and thought God could really see the heat and the painted light, elbows, knees, dreams, goodnight.
+ - Rejoice with the day lily for it is born for a day to live by the mailbox and glorify the roadside.
+ - My heart is on a budget. It keeps me on the brink.
+ - In a dream you are never eighty.
+ - I will be steel! I will build a steel bridge over my need! I will build a bomb shelter over my heart! But my future is a secret. It is as shy as a mole.
+ - My sleeping pill is white. It is a splendid pearl; it floats me out of myself, my stung skin as alien as a loose bolt of cloth.
+ - I think it will be a miracle if I don’t someday end up killing myself.
+ - Oh, darling, let your body in, let it tie you in, in comfort.
+ - Somebody who should have been born is gone.
+ - Everyone has left me except my muse, that good nurse. She stays in my hand, a mild white mouse.
+ - As it has been said: Love and a cough cannot be concealed. Even a small cough. Even a small love.
+ - Then God spoke to me and said: People say only good things about Christmas. If they want to say something bad, they whisper.
+ - I love you. You are closest to my heart, closer than any other human being. You are my extension. You are my prayer. You are my belief in God. For better or worse you inherit me.
+ - I want to kiss God on His nose and watch Him sneeze and so do you. Not out of disrespect. Out of pique. Out of a man-to-man thing.
+ - And thus Snow White became the prince’s bride. The wicked queen was invited to the wedding feast and when she arrived there were red-hot iron shoes, in the manner of red-hot roller skates, clamped upon her feet.
+ - Sometimes I fly like an eagle but with the wings of a wren.
+ - I am in my own mind. I am locked in the wrong house.
+ - I raise my pelvis to God so that it may know the truth of how flowers smash through the long winter.
+ - There is an animal inside me, clutching fast to my heart, a huge crab.
+ - We are America. We are the coffin fillers. We are the grocers of death. We pack them in crates like cauliflowers.
+ - Please God, we’re all right here. Please leave us alone. Don’t send death in his fat red suit and his ho-ho baritone.
+ - Meanwhile in my head, I’m undergoing open-heart surgery.
+ - Blind with love, my daughter has cried nightly for horses, those long-necked marchers and churners that she has mastered, any and all, reigning them in like a circus hand...
+ - Abundance is scooped from abundance yet abundance remains.
+ - The silence is death. It comes each day with its shock to sit on my shoulder, a white bird, and peck at the black eyes and the vibrating red muscle of my mouth.
+ - There is hope. There is hope everywhere. Today God give milk and I have the pail.
+ - Every time I get happy the Nana-hex comes through. Birds turn into plumber’s tools, a sonnet turns into a dirty joke, a wind turns into a tracheotomy, a boat turns into a corpse...
+ - Poetry is my life, my postmark, my hands, my kitchen, my face.
+ - The boys and girls are one tonight. They unbutton blouses. They unzip flies. They take off shoes. They turn off the light. The glimmering creatures are full of lies. They are eating each other. They are overfed. At night, alone, I marry the bed.
+ - Take the brown eyes of my father, those gun shots, those mean muds. Bury them. Take the blue eyes of my mother, naked as the sea...
+ - Death, I need my little addiction to you. I need that tiny voice who, even as I rise from the sea, all woman, all there, says kill me, kill me.
+ - My husband sings Baa Baa black sheep and we pretend that all’s certain and good, that the marriage won’t end.
+ - Then all this became history. Your hand found mine. Life rushed to my fingers like a blood clot. Oh, my carpenter, the fingers are rebuilt. They dance with yours.
+ - O starry night, This is how I want to die.
+ - And what of the dead? They lie without shoes in the stone boats. They are more like stone than the sea would be if it stopped. They refuse to be blessed, throat, eye and knucklebone.
+ - But even in a telephone booth evil can seep out of the receiver and we must cover it with a mattress, and then tear it from its roots and bury it, bury it.
+ - One of my secret instructions to myself as a poet is “Whatever you do, don’t be boring.”
+ - Perhaps I am no one. True, I have a body and I cannot escape from it. I would like to fly out of my head, but that is out of the question.
+ - Inside many of us is a small old man who wants to get out.
+ - Daylight is nobody’s friend. God comes in like a landlord and flashes on his brassy lamp.
+ - I who was a house full of bowel movement, I who was a defaced altar, I who wanted to crawl toward God could not move nor eat bread.
+ - I am out of practice at living. You are as brave as a motorcycle.
+ - Someone is dead. Even the trees know it, those poor old dancers who come on lewdly, all pea-green scarfs and spine pole.
+ - With this pen I take in hand my selves and with these dead disciples I will grapple. Though rain curses the window let the poem be made.
+ - Love your self’s self where it lives.
+ - Home is my Bethlehem, my succoring shelter, my mental hospital, my wife, my dam, my husband, my sir, my womb, my skull.
+ - You must be a poet, a lady of evil luck desiring to be what you are not, longing to be what you can only visit.
+ - My mouth blooms like a cut.
+ - Evil is maybe lying to God. Or better, lying to love.
+ - I burn the way money burns.
+ - What’s missing is the eyeballs in each of us, but it doesn’t matter because you’ve got the bucks, the bucks, the bucks.
+ - Though rain curses the window let the poem be made.
+ - After a disaster strikes, it can be very devastating and very challenging. You’re going to need a lot of strength and energy, and the American Red Cross suggests you go for the high protein items.
+ - And we are magic talking to itself, noisy and alone. I am queen of all my sins forgotten. Am I still lost? Once I was beautiful. Now I am myself.
+ - Blue eyes wash off sometimes.
+ - Saints have no moderation, nor do poets, just exuberance.
+ - Talk to me about sadness. I talk about it too much in my own head but I never mind others talking about it either; I occasionally feel like I tremendously need others to talk about it as well.
+ - There is a good look that I wear like a blood clot. I have sewn it over my left breast. I have made a vocation of it.
+ - Oh sharp diamond, my mother! I could not count the cost of all your faces, your moods that present that I lost. Sweet girl, my deathbed, my jewel-fingered lady...
+ - To die whole, riddled with nothing but desire for it, is like breakfast after love.
+ - Maybe I am becoming a hermit, opening the door for only a few special animals? Maybe my skull is too crowded and it has no opening through which to feed it soup?
+ - Being kissed on the back of the knee is a moth at the windowscreen...
+ - Big heart, wide as a watermelon, but wise as birth, there is so much abundance in the people I have...
+ - My faith is a great weight hung on a small wire, as doth the spider hang her baby on a thin web.
+ - Come, my pretender, my fritter, my bubbler, my chicken biddy! Oh succulent one, it is but one turn in the road and I would be a cannibal!
+ - The joy that isn’t shared dies young.
+ - The body is a damn hard thing to kill.
+ - We talked death with burned-up intensity, both of us drawn to it like moths to an electric light bulb. Sucking on it!
+ - I am younger each year at the first snow. When I see it, suddenly, in the air, all little and white and moving; then I am in love again and very young and I believe everything.
+ - When they turn the sun on again I’ll plant children under it, I’ll light up my soul with a match and let it sing...
+ - Rocks crumble, make new forms, oceans move the continents, mountains rise up and down like ghosts yet all is natural, all is change.
+ - My safe, safe psychosis is broken. It was hard. It was made of stone. It covered my face like a mask. But it has cracked.
+ - When the cow gives blood and the Christ is born we must all eat sacrifices. We must all eat beautiful women.
+ - Not that it was beautiful, but that, in the end, there was a certain sense of order there; something worth learning in that narrow diary of my mind.
+ - The little girl skipped by under the wrinkled oak leaves and held fast to a replica of herself.
+ - I’m hunting for the truth. It might be a kind of poetic truth, and not just a factual one, because behind everything that happens to you, there is another truth, a secret life.
+ - My business is words. Words are like labels, or coins, or better, like swarming bees.
+ - O yellow eye, let me be sick with your heat, let me be feverish and frowning.
+ - The sea is mother-death and she is a mighty female, the one who wins, the one who sucks us all up.
+ - I am stuffing your mouth with your promises and watching you vomit them out upon my face.
+ - The beautiful feeling after writing a poem is on the whole better even than after sex, and that’s saying a lot.
+ - Depression is boring, I think and I would do better to make some soup and light up the cave.
+ - Suicide is, after all, the opposite of the poem.
+ - I would sell my life to avoid the pain that begins in the crib with its bars or perhaps with your first breath when the planets drill your future into you...
+ - Thief!- how did you crawl into, crawl down alone into the death I wanted so badly and for so long...
+ - She is so naked and singular. She is the sum of yourself and your dream. Climb her like a monument, step after step. She is solid.
+ - And if I tried to give you something else, something outside myself, you would not know that the worst of anyone can be, finally, an accident of hope.
+ - I remember the stink of the liverwurst. How I was put on a platter and laid between the mayonnaise and the bacon. The rhythm of the refrigerator had been disturbed.
+ - For I could not read or speak and on the long nights I could not turn the moon off or count the lights of cars across the ceiling.
+ - Take a woman talking, purging herself with rhymes, drumming words out like a typewriter, planting words in you like grass seed. You’ll move off.
+ - The snow has quietness in it; no songs, no smells, no shouts or traffic. When I speak my own voice shocks me.
+ - Yes, I know. Death sits with his key in my lock. Not one day is taken for granted. Even nursery rhymes have put me in hock.
+ - Even without wars, life is dangerous.
+ - Once I was beautiful. Now I am myself, Counting this row and that row of moccasins Waiting on the silent shelf.
+ - All day I’ve built a lifetime and now the sun sinks to undo it.
+ - Jesus saw the multitudes were hungry and He said, Oh Lord, send down a short-order cook.
+ - The ground has on its clothes. The trees poke out of sheets and each branch wears the sock of God.
+ - There is joy in all: in the hair I brush each morning, in the Cannon towel, newly washed, that I rub my body with each morning...
+ - The soul was not cured, it was as full as a clothes closet of dresses that did not fit.
+ - I’ve grown tired of love You are the trouble with me I watch you walk right by.
+ - When someone kisses someone or flushes the toilet it is my other who sits in a ball and cries. My other beats a tin drum in my heart. My other hangs up laundry as I try to sleep. My other cries and cries and cries when I put on a cocktail dress.
+ - Take adultery or theft. Merely sins. It is evil who dines on the soul, stretching out its long bone tongue. It is evil who tweezers my heart, picking out its atomic worms.
+ - The grass as bristly and stout as chives and me wondering when the ground will break and me wondering how anything fragile survives.
+ - Nature is full of teeth that come in one by one, then decay, fall out.
+ - You who have inhabited me in the deepest and most broken place, are going, going.
+ - When I lie down to love, old dwarf heart shakes her head. Like an imbecile she was born old.
+ - Despite my asbestos gloves, the cough is filling me with black, and a red powder seeps through my veins...
+ - I rot on the wall, my own Dorian Gray.
+ - It’s all a matter of history. Brandy is no solace. Librium only lies me down like a dead snow queen. Yes! I am still the criminal.
+ - Cinderella and the prince lived, they say, happily ever after, like two dolls in a museum case never bothered by diapers or dust, never arguing over the timing of an egg, never telling the same story twice...
+ - Maybe, although my heart is a kitten of butter, I am blowing it up like a zeppelin.
+ - I love the word warm. It is almost unbearable – so moist and breathlike.
+ - All in all, I’d say, the world is strangling.
+ - All I am is the trick of words writing themselves.
+ - True. There is a beautiful Jesus. He is frozen to his bones like a chunk of beef. How desperately he wanted to pull his arms in! How desperately I touch his vertical and horizontal axes! But I can’t. Need is not quite belief.
+ - Craft is a trick you make up to let you write the poem.
+ - It’s a little mad, but I believe I am many people. When I am writing a poem, I feel I am the person who should have written it.
+ - The sanest thing in this world is love.
+ - Give me your skin as sheer as a cobweb, let me open it up and listen in and scoop out the dark.
+ - The Saints come, as human as a mouth, with a bag of God in their backs, like a hunchback, they come, they come marching in.
+ - Once upon a time we were all born, popped out like jelly rolls forgetting our fishdom, the pleasuring seas, the country of comfort, spanked into the oxygens of death...
+ - It was as if a morning-glory had bloomed in her throat, and all that blue and small pollen ate into my heart, violent and religious.
+ - My objects dream and wear new costumes, compelled to, it seems, by all the words in my hands and the sea that bangs in my throat.
+ - I am younger each year at the first snow.
+ - I was the girl of the chain letter, the girl full of talk of coffins and keyholes, the one of the telephone bills, the wrinkled photo and the lost connections...
+ - The fish are naked. The fish are always awake. They are the color of old spoons and caramels.
+ - Suicides have a special language. Like carpenters they want to know which tools. They never ask why build.
+ - For forty days, for forty nights Jesus put one foot in front of the other and the man he carried, if it was a man, became heavier and heavier.
+ - I wonder if the artist ever lives his life – he is so busy recreating it.
+ - The day of fire is coming, the thrush will fly ablaze like a little sky rocket...
+ - I would like to think that no one would die anymore if we all believed in daisies but the worms know better, don’t they? They slide into the ear of a corpse and listen to his great sigh.
+ - All considerations for these human remains! They must have an escort! They are classified!
+ - No matter whose bed you die in the bed will be yours for your voyage onto the surgical andiron of God.
+ - Let God be some tribal female who is known but forbidden.
+ - I imitatea memory of beliefthat I do not own.
+ - The sky breaks. It sags and breathes upon my face. in the presence of mine enemies, mine enemies The world is full of enemies. There is no safe place.
+ - This is what poems are: with mercy for the greedy, they are the tongue’s wrangle, the world’s pottage, the rat’s star.
+ - In an old time there was a king as wise as a dictionary.
+ - The stars are pears that no one can reach, even for a wedding. Perhaps for a death.
+ - My life has appeared unclothed in court, detail by detail, death-bone witness by death-bone witness, and I was shamed at the verdict...
+ - Today is made of yesterday, each time I steal toward rites I do not know, waiting for the lost ingredient, as if salt or money or even lust would keep us calm and prove us whole at last.
+ - Our checks are pale. Our wallets are invalids. Past due, past due, is what our bills are saying and yet we kiss in every corner, scuffing the dust and the cat. Love rises like bread as we go bust.
+ - There is no word for time. Today we will not think to number another summer or watch its white bird into the ground.
+ - If the doctors cure then the sun sees it. If the doctors kill then the earth hides it. The doctors should fear arrogance more than cardiac arrest.
+ - Frog has no nerves. Frog is as old as a cockroach. Frog is my father’s genitals. Frog is a malformed doorknob. Frog is a soft bag of green.
+ - Take your foot out of the graveyard, they are busy being dead.
+ - All the oxygen of the world was in them. All the feet of the babies of the world were in them. All the crotches of the angels of the world were in them. All the morning kisses of Philadelphia were in them.
+ - I would like to bury all the hating eyes under the sand somewhere...
+ - I put the gold star up in the front window beside the flag. Alterations is what I know and what I did: hems, gussets and seams.
+ - What a lay me down this is with two pink, two orange, two green, two white goodnights.
+ - I tied down time with a rope but it came back. Then I put my head in a death bowl and my eyes shut up like clams. They didn’t come back.
+ - I tell you what you’ll never really know: all the medical hypothesis that explained my brain will never be as true as these struck leaves letting go.
+ - All who love have lied.
+ - Let the light be called Day so that men may grow corn or take busses.
+ - Today life opened inside me like an egg...
+ - Not that it was beautiful, but that I found some order there.
+ - I find now, swallowing one teaspoon of pain, that it drops downward to the past where it mixes with last year’s cupful and downward into a decade’s quart and downward into a lifetime’s ocean. I alternate treading water and deadman’s float.
+ - As a writer one has to take the chance on being a fool.
+ - If you meet a cross-eyed person you must plunge into the grass, alongside the chilly ants, fish through the green fingernails and come up with the four-leaf clover...
+ - Daisies in water are the longest lasting flower you can give to someone. Fact. Buy daisies. Not roses.
+ - God owns heaven but He craves the earth.
+ - The family story tells, and it was told true, of my great-grandfather who begat eight genius children and bought twelve almost new grand pianos. He left a considerable estate when he died.
+ - I tell it stories now and then and feed it images like honey. I will not speculate today with poems that think they’re money.
+ - Some women marry houses. It’s another kind of skin; it has a heart, a mouth, a liver and bowel movements.
+ - I have been cut in two.
+ - No one to hate except the slim fish of memory that slides in and out of my brain.
+ - Death’s in the good-bye.
+ - Loving me with my shoes off means loving my long brown legs, sweet dears, as good as spoons; and my feet, those two children let out to play naked.
+ - Now I am just an elderly lady who is full of spleen, who humps around greater Boston in a God-awful hat, who never lived and yet outlived her time, hating men and dogs and Democrats.
+ - I have a black look I do not like. It is a mask I try on. I migrate toward it and its frog sits on my lips and defecates.
+ - Images are probably the most important part of the poem. First of all you want to tell a story, but images are what are going to shore it up and get to the heart of the matter.
+ - Now that I have written many words, and let out so many loves, for so many, and been altogether what I always was a woman of excess, of zeal and greed, I find the effort useless.
+ - Put your mouthful of words away and come with me to watch the lilies open in such a field, growing there like yachts, slowly steering their petals without nurses or clocks.
+ - I think of myself as writing for one person, that one perfect reader who understands and loves.
+ - I suffer for birds and fireflies but not frogs, she said, and threw him across the room. Kaboom! Like a genie out of a samovar, a handsome prince arose in the corner of the bedroom.
+ - Of course the New Testament is very small. Its mouth opens four times as out-of-date as a prehistoric monster, yet somehow man-made...
+ - Now, in my middle age, about nineteen in the head I’d say, I am rowing, I am rowing...
+ - Yesterday I did not want to be borrowed but this is the typewriter that sits before me and love is where yesterday is at.
+ - Women tell time by the body. They are like clocks. They are always fastened to the earth, listening for its small animal noises.
+ - To tell the truth days are all the same size and words aren’t much company.
+ - Dead drunk is the term I think of, insensible, neither cool nor warm, without a head or a foot. To be drunk is to be intimate with a fool.
+ - Let there be seasons so that our tongues will be rich in asparagus and limes.
+ - I’ll put it out there: I am scarred by the nostalgic indicipherability of my own desires; I an engulfed by the intimidating unknown, pushed through darkness and dragged down by the irretrievable past sweetness of my memories.
+ - I leave you, home, when I’m ripped from the doorstep by commerce or fate. Then I submit to the awful subway of the world...
+ - Jewels! Today each twig is important, each ring, each infection, each form is all that the gods must have meant.
+ - Mood can be as important as sense.
+ - Poets are sitting in my kitchen. Why do these poets lie? Why do children get children and Did you hear what it said?
+ - Well, one gets out of bed and the planets don’t always hiss or muck up the day, each day.
+ - God is only mocked by believers.
+ - I see myself as one would see another. I have been cut in two.
+ - I try to take care and be gentle to them. Words and eggs must be handled with care. Once broken they are impossible things to repair.
+ - Poems aren’t postcards to send home.
+ - Why are all these dolls falling out of the sky? Was there a father? Or have the planets cut holes in their nets and let our childhood out, or are we the dolls themselves, born but never fed?
+ - I was only sitting here in my white study with the awful black words pushing me around.
+ - Now I am going back And I have ripped my hand From your hand as I said I would And I have made it this far...
+ - You lay, a small knuckle on my white bed; lay, that fist like a snail, small and strong at my breast. Your lips are animals; you are fed with love. At first, hunger is not wrong.
+ - Thumbs grow into my throat. I wear slaps like a spot of rouge.
+ - You cutting the lawn, fixing the machines, all this leprous day and then more vodka, more soda and the pond forgiving our bodies, the pond sucking out the throb.
+ - I have forgiven all the old actors for dying. A new one comes on with the same lines, like large white growths, in his mouth. The dancers come on from the wings, perfectly mated.
+ - Need is not quite belief.
+ - It would be pleasant to be drunk.
+ - I can only sign over everything, the house, the dog, the ladders, the jewels, the soul, the family tree, the mailbox. Then I can sleep. Maybe.
+ - Father, you died once, salted down at fifty-nine, packed down like a big snow angel, wasn’t that enough?
+ - I grow old on my bitterness.
+ - The place I live in is a kind of maze and I keep seeking the exit or the home.
+ - Letters are false really – they are expressions of the way you wish you were instead of the way you are...
+ - The windows, the starving windows that drive the trees like nails into my heart.
+ - And within the house ashes are being stuffed into my marriage, fury is lapping the walls, dishes crack on the shelves, a strangler needs my throat, the daughter has ceased to eat anything...
+ - I was spread out dailyand examined for flaws.
+ - Our children tremble in their teen-age cribs, whirling off on a thumb or a motorcycle...
+ - I said, the poets are there I hear them singing and lying around their round table and around me still.
+ - Sometimes the soul takes pictures of things it has wished for, but never seen.
+
+261 quotes

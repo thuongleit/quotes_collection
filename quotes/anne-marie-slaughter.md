@@ -1,0 +1,24 @@
+ - I’m a child of the Cold War. You do not say, “Oh, my God, there are Russian planes, so I’m going to cede the field.” I mean, what kind of world would we have had if the United States had done that for 60 years?
+ - In the end, no matter how much you love your work, your work will not love you back.
+ - Patriotism demands the ability to feel shame as much as to feel pride.
+ - Women still can’t have it all.
+ - Having it all means having the same work and family choices that men do. It doesn’t mean having everything that you want. No one has that.
+ - The false pride of perennial celebration, of wearing flag lapel pins while betraying the values that the flag stands for, is like the self-esteem curriculum for toddlers, where everything is praised and no achievement ultimately has meaning.
+ - We should be proud of our country when we have done something to be proud of, when we have lived up to our own standards. But the flip side of genuine pride is being able to recognize when we have fallen short, and to hold ourselves to account.
+ - The American work environment has to change, not the women. We should be recognizing that what women are not fitting into is a very narrow, male-dominated workplace of the 1950s.
+ - What mothers need, as well as fathers, spouses, and the children of aging parents, is an entire national infrastructure of care, every bit as important as the physical infrastructure of roads, bridges, tunnels, broadband, parks and public works.
+ - A man has to define himself as a breadwinner, as opposed to thinking that well, women used to be caregivers who also wanted to have careers; men have always had careers, so why shouldn’t they also want much more family time?
+ - Over my lifetime, women have demonstrated repeatedly that they can do anything that men can do, while still managing traditional women’s work at the same time. But the same expansion of roles has not been available to men.
+ - My husband has spent more time with our children than I have. I don’t think they’re better or worse off.
+ - I am still fully committed to male-female equality.
+ - The international community cannot stand by and watch the massacre of Libyan protesters. In Rwanda we watched. In Kosovo we acted.
+ - Motherhood is a greater predictor of wage inequality than gender is. It’s enormous.
+ - We all love narratives where we’re the captain of our boat, and Americans love them more than anybody else.
+ - The European problem is that it assumes that the minute a woman has a child, the mother identity subsumes the professional identity. Now she’s the mother, above all, and we must give her all this time.
+ - If we’re going to have better choices for women, we’ve got to have better choices for men.
+ - In foreign policy, even if you hold high office, you can’t be sure what the effects will be of the things you do.
+ - I am convinced that this country is ready to have a woman in the White House, but I also think there’s still a lot of hidden sexism.
+ - I very much admire Sheryl Sandberg for what she has done. I really do. But Sandberg’s narrative also implies: “Well, it’s your fault if you couldn’t make it.” There is a certain injustice in that.
+ - Believe it or not, we will actually be better and happier workers if we are allowed to be better parents. We might even rediscover our capacity for fun.
+
+22 quotes

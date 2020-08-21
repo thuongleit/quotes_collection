@@ -1,0 +1,232 @@
+ - You can’t start a fire without a spark.
+ - A time comes when you need to stop waiting for the man you want to become and start being the man you want to be.
+ - Talk about a dream, try to make it real. You wake up in the night with a fear so real. Spend your life waiting for a moment that just don’t come. Well, don’t waste your time waiting.
+ - Everybody’s got a hungry heart.
+ - We gotta get out while we’re young, ’cause tramps like us, baby we were born to run.
+ - Now young faces grow sad and old, and hearts of fire grow cold, we swore blood brothers against the wind, I’m ready to grow young again.
+ - Someday girl, I don’t know when, were gonna get to the place where we really want to go, and we’ll walk in the sun. But til then, tramps like us, baby, we were born to run.
+ - My heart’s dark, but it’s rising. I’m pulling all the faith I can see.
+ - Let there be sunshine, let there be rain, let the broken hearted love again.
+ - Walk tall, or baby don’t walk at all.
+ - Two hearts are better than one.
+ - You can’t start a fire Worrying ’bout your little world falling apart This gun’s for hire Even if we’re just dancing in the dark.
+ - I’m just tired and bored with myself.
+ - Sky of blackness and sorrow, sky of love, sky of tears. Sky of glory and sadness, sky of mercy, sky of fear.
+ - I’m ready to grow young again.
+ - You can hide beneath the covers and study your pain, make crosses from your lovers, throw roses in the rain. Waste your summer praying in vain, for a savior to rise from these streets.
+ - The future is now. Roll up your sleeves and let your passion flow. The country we carry in our hearts is waiting.
+ - Roll down the window and let the wind blow back your hair. The night’s busted open. These two lanes will take us anywhere.
+ - Baby, in a world without pity, do you think what I’m asking too much? I just want to feel you in my arms, share a little of that human touch.
+ - An unfulfilled life makes a hard man.
+ - It’s hard to be a saint in the city.
+ - In a restless heart the seed of betrayal lay.
+ - Every fool has a reason for feeling sorry for himself.
+ - Someday we’ll look back on this and it will all seem funny.
+ - The highway’s jammed with broken heroes on a last chance power drive.
+ - I guess there’s just a meanness in this world.
+ - Put your makeup on, fix your hair up pretty. And meet me tonight in Atlantic City.
+ - You’ve got to learn to live with what you can’t rise above.
+ - I tend to be pessimistic. I want to believe in hope.
+ - It’s a sad man my friend who’s livin’ in his own skin and can’t stand the company.
+ - It ain’t no sin to be glad you’re alive.
+ - Unions have been the only powerful and effective voice working people have ever had in the history of this country.
+ - She kissed me just right, like only a lonely angel can.
+ - Badlands, you got to live it everyday, let the broken hearts stand as the price you’ve got to pay.
+ - You aint a beauty but hey you’re all right.
+ - If you’re an artist, you try to keep an ear to the ground and an ear to your heart.
+ - My soul is lost, my friend, tell me how do I begin again? My city’s in ruins, my city’s in ruins.
+ - Time slips away and leaves you with nothing, mister, but boring stories of glory days.
+ - Now those memories come back to haunt me they haunt me like a curse.
+ - Gonna be a twister to blow everything down That ain’t got the faith to stand its ground Blow away the dreams that tear you apart Blow away the dreams that break your heart Blow away the lies that leave you nothing but lost and brokenhearted.
+ - The release date is just one day, but the record is forever.
+ - To say I’ll make your dreams come true would be wrong, but maybe, darling, I could help them along.
+ - With a chance to make it good somehow, hey, what else can we do now? Except roll down the window, and let the wind blow back your hair.
+ - Me and crazy Janey were making love in the dirt singing our birthday songs.
+ - In America everything’s about who’s number one today.
+ - The highway is alive tonight But nobody’s kiddin’ nobody about where it goes I’m sittin’ down here in the campfire light With the ghost of old Tom Joad.
+ - Is there anybody alive out there?
+ - Got a wife and kid in Baltimore Jack, I went out for a ride and I never went back. Like a river that don’t know where it’s flowing, I took a wrong turn and I just kept going.
+ - Here everybody has a neighbor Everybody has a friend Everybody has a reason to begin again.
+ - Sometimes it’s like someone took a knife, baby, edgy and dull and cut a six inch valley through the middle of my soul.
+ - Just sitting around waiting for my life to begin, while it was all just slipping away.
+ - She’s a walkin’, talkin’ reason to live.
+ - Don’t take yourself too seriously. And take yourself as seriously as death itself.
+ - You have moments of clarity, things become clear to you that you didn’t understand before. But there’s never any making ends meet or finding any time of longstanding peace of mind about something.
+ - A dream of life comes to me, like a catfish dancing on the end of the line.
+ - Baby, this town rips the bones from our back it’s a death trap, it’s a suicide rap. We got to get out while we’re young.
+ - It’s a fairytale so tragic there’s no prince to break the spell. I don’t believe in magic, but for you I will.
+ - When I die throw my body in the back and drive me to the junk yard in my Cadillac.
+ - We all have stories we’re living and telling ourselves.
+ - My dad had a very difficult life, a hard struggle all the time at work. I’ve always felt like I’m seeking his revenge.
+ - Hey, little dolly with the blue jeans on, I want to ramrod with you, honey, ’til half past dawn.
+ - We’re gonna play some pool, skip some school, act real cool, stay out all night, it’s gonna be alright.
+ - Roy Orbison is singing for the lonely, hey, that’s me and I want you only.
+ - So let’s take the good times as they go and I’ll meet you further on up the road...
+ - Every good writer or filmmaker has something eating at them, right? That they can’t quite get off their back. And so your job is to make your audience care about your obsessions.
+ - You’ve always got to remember, rock and roll’s never been about giving up. For me, for a lot of kids, it was a totally positive force... not optimistic all the time, but positive. It was never – never – a bout surrender.
+ - God have mercy on the man who doubts what he’s sure of.
+ - I found the key to the universe in the engine of an old parked car.
+ - Adult life is dealing with an enormous amount of questions that don’t have answers.
+ - Your success story is a bigger story than whatever you’re trying to say on stage. Success makes life easier. It doesn’t make living easier.
+ - Go-kart Mozart was checking out the weather chart to see if it was safe outside.
+ - I got Mary pregnant and man that’s all she wrote. And for my 19th birthday, I got a union card and a factory coat.
+ - Pessimism and optimism are slammed up against each other in my records, the tension between them is where it’s all at, it’s what lights the fire.
+ - From the town of Lincoln Nebraska with a sawed off .410 on my lap, through the Badlands of Wyoming I killed everything in my path.
+ - You’re born into this life paying for the sins of somebody else’s past.
+ - Your legs were heaven, your breasts were the alter, your body was the holy land.
+ - You get used to anything, sooner or later it just becomes your life.
+ - I think life goes through a cycle of losing and refinding yourself all the time. Everyone has disappointments all the time, some of them pretty small, some of them pretty big.
+ - You can go from doing something quite silly to something dead serious in the blink of an eye, and if you’re making those connections with your audience then they’re going to go right along with it.
+ - The marriage-equality issue should be recognized for what it truly is – a civil rights issue that must be approved to assure that every citizen is treated equally under the law.
+ - You can beat on your chest, hell, any monkey can.
+ - I met a girl and we ran away, I swore I’d make her happy every day. And how I made her cry, two faces have I.
+ - The artists we love, they put their fingerprint on your imagination, and on your heart and your soul.
+ - I go to put my arm around you and you give me a look like I’m way out of bounds.
+ - Mister, I ain’t a boy, no I’m a man, and i believe in a promised land.
+ - That you know flag flying over the courthouse Means certain things are set in stone Who we are, what we’ll do and what we won’t.
+ - We’ve got no fairytale ending, in God’s hands our fate is complete. Your heaven’s here in my heart, our love’s this dust beneath my feet.
+ - She went away, she cut me like a knife Hello beautiful thing, maybe you could save my life In just a glance, down here on magic street Loves a fool’s dance And I ain’t got much sense, but I still got my feet.
+ - Wendy, let me in, I wanna be your friend. I wanna guard your dreams and visions.
+ - Blame it on the lies that killed us. Blame it on the truth that ran us down.
+ - I know your mama she don’t like me, cause I play in a rock and roll band.
+ - I would rather feel the hurt inside, yes I would darling, than know the emptiness that your heart must hide.
+ - Your skin upon my skin, in the beating of our hearts, may the living let us in, before the dead tear us apart.
+ - Outside the street’s on fire in a real death waltz between what’s flesh and what’s fantasy.
+ - You ask for your audience’s investment in your music; you’re in a relationship with them. And their relationship with the E Street Band is separate from whatever else I might do. I like the idea of us being something that people rely on.
+ - If you’re good, you’re always looking over your shoulder.
+ - Every rock song is some variation of ‘Pull down your pants’
+ - We’re a long, long way from home, Bobbie; Home’s a long, long way from us. I feel a dirty wind blowing; Devils and dust.
+ - I never start with a political point of view. I believe that your politics are emotionally and psychologically determined by your early experiences.
+ - You can’t kill your way to security and you can’t lead by scaring people.
+ - Some guys they just give up living, and start dying little by little, piece by piece.
+ - ‘Darkness on the Edge of Town’ came out of a huge body of work that had tons of very happy songs.
+ - Fame, on its best day, is kind of like a friendly wave from a stranger by the side of the road. And when it’s not so good, it’s like a long walk home, all alone, with nobody in when you get there.
+ - I want to spit in the face of these badlands.
+ - Certainly tolerance and acceptance were at the forefront of my music.
+ - I’ve had an experience through music that has touched almost every part of me. It educated me in ways that I didn’t get educated in school. So we try to lay on a bit of that, through being funny, being serious, playing hard.
+ - There’s a girl across the bar, I get the message she’s sending. Mmm, she ain’t looking too married, and me, well, I’m pretending.
+ - Somebody who can reckon with the past, who can live with the past in the present, and move towards the future – that’s fabulous.
+ - An audience is not brought to you or given to you; it’s something that you fight for.
+ - Did God make man in a breath of holy fire, or did he crawl on up out of the muck and mire?
+ - I think you can get to a point where nihilism, if that’s the right word, is overwhelming, and the basic laws that society has set up – either religious or social laws – become meaningless.
+ - Music doesn’t tell you where to go. It says, go find your own place. That’s what it told me.
+ - We’re here to re-dedicate you to The Power, The Passion, The Mystery, and The Ministry of Rock and Roll.
+ - Most bands don’t work out. A small unit democracy is very, very difficult.
+ - I told a story with the E Street Band that was bigger and better than I could have done on my own.
+ - Blood moon risin’ in a sky of black dust, tell me baby, who do you trust?
+ - Just sitting back trying to recapture a little of the glory of... Well, the time slips away and leaves you with nothing, mister, but boring stories of Glory days – yeah, they’ll pass you by, Glory days – in the wink of a young girl’s eye.
+ - Nothing matters in the whole wide world when you’re in love with a Jersey girl.
+ - The past is never the past. It is always present. And you better reckon with it in your life and in your daily experience, or it will get you. It will get you really bad.
+ - You can’t be afraid of getting old. Old is good, if you’re gathering in life. Our band is good at understanding that equation.
+ - The great challenge of adulthood is holding on to your idealism after you lose your innocence.
+ - Jack the Rabbit and Weak Knee Willie, you know they’re gonna be there. Sloppy Sue and Big Bones Billy, they’ll be coming up for air.
+ - Ought to be easy, ought to be simple enough: Man meets woman, and they fall in love, But the house is haunted and the ride gets rough. You got to learn to live with what you can’t rise above.
+ - Dancing in the dark. Does fortune wait or just the black hand of fate, It’ll take your God filled soul. Fill it with devils.
+ - To her Cheshire smile, I’ll stand on file, she’s all I ever wanted. But you let your blue walls get in the way of these facts.
+ - You’ll walk with me out on the wire, cuz baby, I’m just a scared and lonely rider, but I gotta know how it feels... I want to know love is wild, babe, I want to know love is real.
+ - I took a month long vacation in the stratosphere, and you know it’s very hard to hold your breath.
+ - Remember all the movies, Terry, we’d go see? Trying to learn how to walk like the heroes we thought we had to be And after all this time to find we’re just like all the rest Stranded in the park and forced to confess To hiding on the Backstreets.
+ - So tell me what I see when I look in your eyes, is that you baby or just a brilliant disguise?
+ - If you listen to the great Beatle records, the earliest ones where the lyrics are incredibly simple. Why are they still beautiful? Well, they’re beautifully sung, beautifully played, and the mathematics in them is elegant. They retain their elegance.
+ - Our American government has strayed too far from American values. It is time to move forward. The country we carry in our hearts is waiting.
+ - The Clash were a major influence on my own music. They were the best rock ‘n’ roll band. Thanks, Joe.
+ - Let’s raise our glass and let the hammer fly, yeah, this is the long good-bye.
+ - Sometimes, at night you could hear the whole damn city crying.
+ - The wise men were all fools, what to do?
+ - The country we carry in our hearts is waiting.
+ - When I look at myself, I don’t see the man I wanted to be.
+ - Basically, I was pretty ostracized in my hometown. Me and a few other guys were the town freaks- and there were many occasions when we were dodging getting beaten up ourselves.
+ - Anyone who’s grown up or lived on the Jersey Shore knows the place is unique.
+ - The Jersey Shore is the kind of place where the policeman has a little cottage that might have been in the family for years and many other people call home.
+ - I walked a thousand miles just to slip this skin.
+ - If the angels are unkind or the season is dark Or if in the end Love just falls apart Well then here’s to our destruction Baby let me be your soul driver.
+ - In the third grade, a nun stuffed me in a garbage can under her desk because she said that’s where I belonged. I also had the distinction of being the only altar boy knocked down by a priest during mass.
+ - They put a rifle in my hand, sent me off to a foreign land to go and kill the Yellow man.
+ - And whether you’re drawn to gospel music or church music or honky-tonk music, it informs your character and it informs your talent.
+ - Hey man, did you see that? His body hit the street with such a beautiful thud.
+ - The first day I can remember looking into a mirror and being able to stand what I saw was the day I had a guitar in my hand.
+ - You use to drive me wild, but lately you get your kicks from just knocking me down, down, down.
+ - There is a real patriotism underneath the best of my music but it is a critical, questioning and often angry patriotism.
+ - I don’t like to write rhetorically or get on a soapbox. I try to make the stuff multi-layered, so that it always has a life outside its social context. I don’t believe that you can tell people anything; you can only draw them in.
+ - Elvis is my religion. But for him, I’d be selling encyclopedias right now.
+ - For me, President Obama is our best choice because he has a vision of the United States as a place where we are all in this together.
+ - In the past, some of the songs that were the most fun, and the most entertaining and rocking, fell by the wayside because I was concerned with what I was going to say and how I was going to say it.
+ - The name ‘Boss’ started with people that worked for me... It was not meant like Boss, capital B, it was meant like ‘Boss, where’s my dough this week?’ And it was sort of just a term among friends. I never really liked it.
+ - When you get fat and lose your hunger. That is when you know the sellout has happened.
+ - Out of our way mister, you best keep.
+ - For one kiss, darling, I swear everything I would give. Cause you’re a walking, talking reason to live.
+ - I cut my bow from the wood of this tree of evil. Of this tree of good, I want a kiss from your lips.
+ - Until I realized that rock music was my connection to the rest of the human race, I felt like I was dying, for some reason, and I didn’t know why.
+ - I had tried to go to college, and I didn’t really fit in. I went to a real narrow-minded school where people gave me a lot of trouble, and I was hounded off the campus – I just looked different and acted different, so I left school.
+ - When they built you brother they broke the mold.
+ - After ‘Born to Run,’ I had a reaction to my good fortune. With success, it felt like a lot of people who’d come before me lost some essential part of themselves. My greatest fear was that success was going to change or diminish that part of myself.
+ - I can sing very comfortably from my vantage point because a lot of the music was about a loss of innocence, there’s innocence contained in you but there’s also innocence in the process of being lost.
+ - My only general rule was to steer away from things I played with the band over the past couple of tours. I was interested in re-shaping the Rising material for live shows, so people could hear the bare bones of that.
+ - I’m interested in what it means to be an American. I’m interested in what it means to live in America. I’m interested in the kind of country that we live in and leave our kids. I’m interested in trying to define what that country is.
+ - In the day we sweat it out on the streets on a runaway American dream.
+ - I spot a little stranger standing across the room, my brain takes a vacation just to give my heart more room.
+ - For an adult, the world is constantly trying to clamp down on itself. Routine, responsibility, decay of institutions, corruption: this is all the world closing in.
+ - Madman drummers, bummers, Indians in the summer with a teenage diplomat. In the dumps with the mumps as the adolescent pumps his way into his hat.
+ - I was unrecognizable to myself; I saw my reflection in a window; I didn’t know my own face.
+ - I was in my late 20s, in the process of shaping my musical outlook and what I wanted it to be about, when I first encountered Woody Guthrie.
+ - When you have three teenagers, it gives a whole new meaning to “homeland security.”
+ - I’m laughing at you, you’re laughing at me.
+ - I was real good at music and real bad at everything else.
+ - I believe when your children are born that you are reborn in some fashion.
+ - For the ones who had a notion, a notion deep inside That it ain’t no sin to be glad you’re alive.
+ - I still like to go to record stores, I like to just wander around and I’ll buy whatever catches my attention.
+ - I was the only person I’d ever met who had a record contract. None of the E Street Band, as far as I know, had been on an airplane until Columbia sent us to Los Angeles.
+ - It’s always felt natural, because I’m generally very comfortable with people.
+ - I got a house full of Rembrandts and priceless art, and all the little girls they wanna tear me apart.
+ - So I bought a forty-four magnum, it was solid steel cast, and in the blessed name of Elvis, well I just let it blast ’til my TV lay in pieces.
+ - A great rock band searches for the same kind of combustible force that fueled the expansion of the universe after the big bang. You want the earth to shake and spit fire. You want the sky to split apart and for God to pour out.
+ - I’m not in any rush. I’m not somebody who, if I write a song, I get it out. That’s not something I’ve ever really quite done.
+ - Tonight I’m stepping lightly and I’m feeling no pain.
+ - I grew up with a very big extended family, with a lot of aunts. We had about five or six houses on one street.
+ - I was signed to a record label at the same time as my friend Elliot Murphy, who makes great records to this day.
+ - The hungry and the haunted explode in a rock’n’roll band.
+ - I’ve found that giving 100% to your job isn’t the same as giving 100% of your life to your job. Very often when I thought I was giving 100% of my life to my job, I was simply obsessing over something.
+ - But the star thing I can live with. The music I can’t live without. And that’s how it lays out for me, you know. I got as big an ego and enjoy the attention.
+ - I’m a synthesist. I’m always making music. And I make a lot of different kinds of music all the time. Some of it gets finished and some of it doesn’t.
+ - I believe the war on poverty is a more American idea than the war on the war on poverty. I believe that most people feel like that. And I believe that it ain’t over till it’s over.
+ - I had a ten-piece band when I was 21 years old, the Bruce Springsteen Band. This is just a slightly expanded version of a band I had before I ever signed a record contract. We had singers and horns.
+ - Yeah, I had gay friends. The first thing I realized was that everybody’s different, and it becomes obvious that all of the gay stereotypes are ridiculous.
+ - I never felt I had enough personal style to pursue being just a guitarist.
+ - No, I always felt that amongst my core fans- because there was a level of popularity that I had in the mid ’80s that was sort of a bump on the scale- they fundamentally understood the values that are at work in my work.
+ - You can beat the drum so hard that people stop listening. I wanted to use my voice wisely and not expend it wastefully.
+ - Settle back is to settle without knowing.
+ - Use it, Rosie, that’s what it’s there for.
+ - I don’t write demographically. I don’t write a song to reach these people or those people.
+ - You can’t have a United States if you are telling some folks that they can’t get on the train. There is a cracking point where a society collapses.
+ - I have to write and play. If I became an electrician tomorrow, I’d still come home at night and write songs.
+ - On any given night, what allows me to get to that higher ground is the audience.
+ - You need two things to remain very, very present. You need to continue to write well and engage yourself in the issues of the day. And you have to continue to make good, relevant records.
+ - That’s what being a front man is all about – the idea of having something supple underneath you, that machine that roars and can turn on a dime.
+ - I have my ideas, I have my music and I also just enjoy showing off, so that’s a big part of it. Also, I like to get up onstage and behave insanely or express myself physically, and the band can get pretty silly.
+ - When I first started in rock, I had a big guy’s audience for my early records. I had a very straight image, particularly through the mid ’80s.
+ - Judge said, what you got in your defense son? Fifty-seven channels and nothing on.
+ - An outgrowth of having a long career is that I have a lot of interesting things around that I get to revisit, and someday get to the place where they become something that I want to do next.
+ - I guess my view of America is of a real bighearted country, real compassionate.
+ - I didn’t know if it would be a success-ful one, or what the stages would be, but I always saw myself as a lifetime musician and songwriter.
+ - Your spoken voice is a part of it – not a big part of it, but it’s something. It puts people at ease, and once again kind of reaches out and makes a bridge for what’s otherwise difficult music.
+ - The audiences are there as a result of my history with the band but also as a result of my being able to reach people with a tune.
+ - I always felt that the musician’s job was to provide an alternative source of information.
+ - Music was my way of keeping people from looking through and around me. I wanted the heavies to know I was around.
+ - When I was very, very young, I decided that I was gonna catalogue my times because that’s what other people who I admired did. That’s what Bob Dylan did, that’s what Frank Sinatra did, Hank Williams did, in very different ways.
+ - I tend to be a subscriber to the idea that you have everything you need by the time you’re 12 years old to do interesting writing for most of the rest of your life – certainly by the time you’re 18.
+ - The first thing that I do when I come out every night is to look at the faces in front of me, very individually.
+ - The only thing I know as I get older is that I don’t really need to be No. 1.
+ - Plus, you know, when I was young, there was a lot of respect for clowning in rock music – look at Little Richard. It was a part of the whole thing, and I always also believed that it released the audience.
+ - The story I have told throughout my work life I could not have told as well without Clarence.
+ - Those wounds stay with you, and you turn them into a language and a purpose.
+ - The criminal ineptitude makes you furious.
+ - Is a dream a lie if it don’t come true? Or is it something worse?
+ - I hadn’t performed by myself in a while. It feels very natural to me, and I assume people come for the very same reasons as they do when I’m with the band: to be moved, for something to happen to them.
+ - You make your music, then you try to find whatever audience is out there for it.
+ - The only thing I can say about having this type of success is that you can get yourself in trouble because basically the world is set open for you. People will say yes to anything you ask, so it’s basically down to you and what you want or need.
+ - For me, I was somebody who was a smart young guy who didn’t do very well in school. The basic system of education, I didn’t fit in; my intelligence was elsewhere.
+ - From the beginning, I imagined I would have a long work life.
+ - I want a thousand guitars.
+ - You know hearts these days are cheap.
+
+230 quotes

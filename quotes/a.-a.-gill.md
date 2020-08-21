@@ -1,0 +1,21 @@
+ - Breakfast is everything. The beginning, the first thing. It is the mouthful that is the commitment to a new day, a continuing life.
+ - Facts are what pedantic, dull people have instead of opinions.
+ - Science fiction is never about the future, in the same way history is rarely about the past: they’re both parable formats for examining or commenting on the present.
+ - You either get the point of Africa or you don’t. What draws me back year after year is that it’s like seeing the world with the lid off.
+ - Is it a particularly British trait to so utterly adore truly appalling men, from Tony Hancock through to Steptoe and Alf Garnett, Captain Mainwaring, Rigsby, Del Boy, Victor Meldrew and on to David Brent from The Office. The most deeply adored characters are all simply vile.
+ - Nobody ever forgets their first night in the bush. It’s among the precious, meagre handful of life firsts that remain indelible.
+ - We like to see death as an unfair conspiracy, and what we want is a magic practitioner, a combination of Dr Watson and Sherlock Holmes.
+ - A lobster bisque ought to be the crowning glory of the potager. And this one was excellent. Silky as a gigolo’s compliment and fishy as a chancellor’s promise.
+ - I don’t know how long a child will remain utterly static in front of the television, but my guess is that it could be well into their thirties.
+ - The interesting adults are always the school failures, the weird ones, the losers, the malcontents, this isn’t wishful thinking. It’s the rule.
+ - Americans think the only funny Brits are John Cleese, Benny Hill and whoever makes our toothpaste. They’re not laughing with us, they are laughing at us.
+ - Sport is how poor kids from poor countries pass through the eye of the needle to riches and recognition.
+ - The truth and the facts aren’t necessarily the same thing. Telling the truth is the object of all art; facts are what the unimaginative have instead of ideas.
+ - Beautifully shot, impeccably paced, it was a clear, unrelenting look at the National Trust, its friends and enemies, and it makes you want to burn your passport and beg the Luftwaffe to have another go.
+ - I still secretly believe that afternoons are the time for the test card and you shouldn’t watch television when the sun is out.
+ - America didn’t bypass or escape civilization. It did something far more profound, far cleverer: it simply changed what civilization could be.
+ - My father was a film-maker. He always said he wanted to go like Humphrey Jennings, the legendary director who stepped backwards over a cliff while framing a better shot.
+ - The reason that chefs become chefs is that they’re not allowed into rooms with windows.
+ - Television gives us the gift to see ourselves as we’d like to be seen.
+
+19 quotes

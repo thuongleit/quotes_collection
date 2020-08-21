@@ -1,0 +1,152 @@
+ - Every pizza is a personal pizza if you try hard and believe in yourself.
+ - Whatever you do, always give 100%. Unless you’re donating blood.
+ - The more relaxed you are, the better you are at everything.
+ - Friendship is so weird. You just pick a human you’ve met and you’re like, ‘Yep, I like this one,’ and you just do stuff with them.
+ - Common sense is like deodorant. The people who need it most never use it.
+ - This is not a dress rehearsal; this is your life.
+ - Religion is the worst enemy of mankind. No single war in the history of humanity has killed as many people as religion has.
+ - People are like music, some speak the truth and others are just noise.
+ - Just beat my record for most consecutive days without dying.
+ - My iPhone has 2 million times the storage of the 1969 Apollo 11 computer. They went to the moon. I throw birds at pig houses.
+ - Don’t think about your errors or failures; otherwise, you’ll never do a thing.
+ - Grab this day by the neck and kiss it.
+ - I think if you can take care of yourself, and then maybe try to take care of someone else, that’s sort of how you’re supposed to live.
+ - I’m a nut, but not just a nut.
+ - Chicks dig me because I rarely wear underwear, and when I do, it’s usually something unusual.
+ - Human sacrifice! Dogs and cats living together! Mass hysteria!
+ - Everyone needs to take a vacation from the sort of automatic things you do.
+ - I’ve killed myself so many times, I don’t even exist anymore.
+ - Life is a game, and it’s much more fun if you play it as your own game, so stay light and loose and relaxed.
+ - You had to keep the mood up; you had to keep the tempo up. You had to keep the feeling of, “Hey, we’re doing something that’s really exciting. It’s fun being with these people.” And the more fun you have, the better you do it.
+ - I’m suspicious of people who don’t like dogs, but I trust a dog when it doesn’t like a person.
+ - No one really wants to admit they are lonely, and it is never really addressed very much between friends and family. But I have felt lonely many times in my life.
+ - We’re born alone. We do need each other. It’s lonely to really effectively live your life, and anyone you can get help from or give help to; that’s part of your obligation.
+ - Atheist leader Madalyn Murray O’Hair was murdered. Jon Murray and Robin Murray-O’Hair were also murdered by individuals involved with the atheist organization.
+ - You’re supposed to have one hand up and one hand down. As you’re trying to going up, you’re trying to pull someone up at the same time.
+ - Be available for life to happen.
+ - You have to be as light as you can be and not get weighed down and stuck in your emotion, stuck in your body, stuck in your head. You just want to always be trying to elevate somehow.
+ - Drinking again? Go to hell. All I ever do is make some movies that made a lot of money now leave me alone, I want to have some fun.
+ - I try to be available for life to happen to me. We’re in this life, and if you’re not available, the sort of ordinary time goes past and you didn’t live it. But if you’re available, life gets huge. You’re really living it.
+ - Afghanistan is just one of those countries that no group can conquer. It’s so challenging to live, and the people are so close among their own tribes, their own groups, that you can’t rule them all, you can’t get an accord from all of them.
+ - It’s a lot of work to read a crummy script.
+ - Eh, it’s not that attractive to have a plan.
+ - All parties are good.
+ - Well, the past is gone, I know that. The future isn’t here yet, whatever it’s going to be. So, all there is, is this. The present. That’s it.
+ - It’s the most terrifying day of your life, the day the first one is born. Your life, as you know it, is gone. Never to return. But they learn how to walk, and they learn how to talk, and you want to be with them. And they turn out to be the most delightful people you’ll ever meet in your life.
+ - Morocco is the greatest. I should be getting money from the Moroccans because I’m just telling everyone that it’s a wonderful place to go.
+ - I smell varmint poontang. And the only good varmint poontang is dead varmint poontang, I think.
+ - It’s hard to be an artist. It’s hard to be anything. It’s hard to be.
+ - I’m just a potato that won’t quit. I’m a potato with some legs. Some have eyes, I’ve got legs.
+ - My back hurts. My legs ache. I’m only four!
+ - The Army needs leaders the way a foot needs a big toe...
+ - Every moment that you share someone else’s pain, feel what they feel, makes you more human.
+ - Melancholy is kind of sweet sometimes, I think. It’s not a negative thing. It’s not a mean thing. It’s just something that happens in life, like autumn.
+ - When I feel like I’m stuck, I do something – not like I’m Mother Teresa or anything, but there’s someone that’s forgotten about in your life, all the time. Someone that could use an ‘Attaboy’ or a ‘How you doin’ out there.
+ - We’re Americans! Do you know what that means? It means our forefathers were kicked out of every decent country in the world.
+ - People confuse friendship and relaxation. It’s incredibly important to be relaxed – you don’t have a chance if you’re not relaxed. So I try very hard to relax any kind of tension. But friendship is different.
+ - I try to be alert and available. I try to be available for life to happen to me.
+ - The secret is to have a sense of yourself, your real self, your unique self. And not just once in a while, or once a day, but all through the day, the week and life.
+ - Disneyland. The world’s biggest people trap, built by a mouse.
+ - The automatic things you do are basically those things that keep you from doing the better things you need to do.
+ - Parties are only bad when a fight breaks out, when men fight over women or vice versa. Someone takes a fall, an ambulance comes, and the police arrive. If you can avoid those things, pretty much all behaviour is acceptable.
+ - All of us kids ended up ‘doing Mom.’ There are four of us who’ve tried show business. Five if you insist on counting my sister the nun, who does liturgical dance.
+ - The cool part about naming your kid is you don’t have to add six numbers to make sure the name is available.
+ - I count on the kindness of strangers.
+ - If you have a good script, that’s what gets you involved. It’s harder to write a good screenplay than to find something.
+ - Here’s the thing, you just have to drive a lot faster, and if you don’t get there, we’re both fired.
+ - To people who want to be rich and famous, I’d say, “Get rich first and see if that doesn’t cover it.”
+ - I’ve retired a couple of times. It’s great, because you can just say, ‘Oh, I’m sorry. I’m retired,’
+ - My favorite thing about New York is the people, because I think they’re misunderstood. I don’t think people realize how kind New York people are.
+ - The atheists traditionally hold their conventions from Good Friday to Easter Sunday during the hours Christ spent in the grave.
+ - I don’t have to take this abuse from you – I have hundreds of people waiting in line to abuse me!
+ - I kinda like this Jay-Z thing, where he’s retired, but he keeps doing shows. I think I beat him to that. If you say you’re retired, people don’t bother you so much, and then if you want to do something, you can do it.
+ - I don’t want to be that guy mumbling into his drink at a bar.
+ - Those are my people, you know? The ones who are going to crash and burn.
+ - It’s fun to watch someone like John Goodman, and yet it takes work. People say ‘he’s not acting, he’s being himself.’ Well it’s hard to be yourself, it’s the hardest job there is.
+ - You cannot pray them out of hell.
+ - The only way we’ll ever know what it’s like to be you is if you work your best at being you as often as you can, and keep reminding yourself: That’s where home is.
+ - I think midlife crisis is just a point where people’s careers have reached some plateau and they have to reflect on their personal relationships.
+ - The government can destroy wealth but it cannot create wealth, which is the product of labor and management working with creation.
+ - People usually go through a bad period when they first get successful. You’re new and you’re hot and things go wrong.
+ - Sometimes I snore, like when I get really tired.
+ - You’ll never be good if you don’t know that you are.
+ - Well it’s hard to be yourself, it’s the hardest job there is.
+ - I’d sort of gone through some sort of spiritual change in the late 70s where I sort of saw there was some other life to live. It changed the way that I worked just having a different presence and a different tension.
+ - You can handle just about anything that comes at you out on the road with a believable grin, common sense and whiskey.
+ - I don’t answer fan mail. I don’t have time for that. It’s like hundreds of thousands of people who think they’re going to become millionaires getting autographs from movie actors. I don’t have time for those idiots. I’ve got stuff to do.
+ - People say I’m difficult and sometimes that’s a badge of honour.
+ - And when I told my sons I might be in City of Ember, they said, ‘Oh! You’re gonna be the mayor?’ And I hadn’t even read the script yet.
+ - Yeah, I think that’s sort of the American way. And it’s also the Polish way, it turns out.
+ - I think that the online world has actually brought books back. People are reading because they’re reading the damn screen. That’s more reading than people used to do.
+ - I feel like I’m a better person when I’m quieter.
+ - The money thing is, the sort of Elvis Presley thing of buying you mother car is great, that’s very good. My mother has learned how to spend money.
+ - I act like a jerk sometimes.
+ - You work, you get paid, you drink.
+ - My first movie, I got nominated for a Canadian Oscar-for Meatballs. For MEATBALLS. And who am I up against? George C. Scott. So he wins the award and I stand up and go, ‘That’s it-let’s get the hell outta here.’
+ - In Japan, you have no idea what they are saying, and they can’t help you either. Nothing makes any sense. They’re very polite, but you feel like a joke is being played on you the entire time you’re there.
+ - If Google doesn’t know the answer, then it’s not a question.
+ - Chicago actors are hard-nosed. They’re tough on themselves and their fellow actors. They’re self-demanding.
+ - I realize it’s impossible to have any sympathy, I mean, true sympathy, for people that are famous.
+ - When you act obnoxious towards people, like on a movie set, they say “we’re ready for you” and I say “oh, go to hell, my feet hurt and my head aches.” You want to have a margarita for lunch, and people like these little ADs and production assistants are like, “well, he’s drinking again.”
+ - I go home and stay there. I wash and scrub up each day, and that’s it. One month I actually grew a moustache, just so I could say that I’d done something.
+ - I think all phases of one’s career are serious if you take it seriously no matter if you are doing high profile dramatic pieces or not.
+ - When you see grown men near to tears because they’ve missed hitting a little white ball into a hole from three feet, it makes you laugh.
+ - Awards are meaningless to me, and I have nothing but disdain for anyone who actively campaigns to get one.
+ - The human condition means that we can zone out and forget what the hell we’re doing.
+ - I’ve been lucky, I’ve had movies that made a lot of money, so I don’t feel like I have to kill every time out. I don’t want that pressure. I don’t need it.
+ - I don’t want to have a relationship with someone if I’m not going to work with them.
+ - If it starts to drag on set, or if you feel like it’s not a fun experience, people get down, the energy gets down. You’ve got to keep the energy up.
+ - Golf was my first glimpse of comedy. I was a caddy when I was a kid. I was on the golf course rather than being in lessons, but I can play better now than I could then.
+ - Somewhere there’s a score being kept, so you have an obligation to live life as well as you can, be as engaged as you can.
+ - Most people, when they talk fast, they get flat.
+ - Mrs. O’Hair died horribly, a victim of the world she helped to shape. Without the Deity she fought so hard against, there is no right and wrong, increasingly people are ruled by their passions and humanity is a tragedy waiting to happen.
+ - When the phone started ringing too many times, I had to take it back to what I can handle. I take my chances on a job or a person as opposed to a situation. I don’t like to have a situation placed over my head.
+ - I didn’t get into this position by being like a stiff sitting on the set in a folding chair. I did it by walking around on the streets and stirring things up.
+ - And I don’t like to work. I only like working when I’m working.
+ - The only good thing about fame that I’ve gotten is I’ve gotten out of a couple of speeding tickets. I’ve gotten into a restaurant when I didn’t have a suit and tie on. That’s really about it.
+ - Whenever I think of the high salaries we are paid as film actors, I think it is for the travel, the time away, and any trouble you get into through being well known. It’s not for the acting, that’s for sure.
+ - It’s much harder to play beloved than to play a rotten guy. Rotten guy is a piece of cake. So playing a beloved person really sets a high bar for your behavior and your acting and what you project.
+ - I don’t believe that you can give the same performance every take. It’s physically impossible, so why bother? If you don’t do what is happening at that moment, then it’s not real. Then you’re holding something back.
+ - Something wild can happen to anybody and I caution anybody that walks out on the street, just settle your accounts before you leave the house every day.
+ - There are people who drove me crazy, but they got the job done. And when I see that person again, I nod my head. Respect.
+ - Love can be seeing that here we are and there’s this world here.
+ - I’ve got kids and that’s important. It’s funny, you think that there’s an expiration date on them and there just isn’t.
+ - There aren’t many downsides to being rich, other than paying taxes and having relatives asking for money. But being famous, that’s a 24 hour job right there.
+ - If people really want to find you, they find you.
+ - I don’t really read the reviews – but I remember one I read a long time ago that said I had a face like a potato.
+ - You can tell how boring a person is by the lack of fear in their eyes when someone is flipping through photos on their phone.
+ - The more relaxed you are, the better you are at everything: the better you are with your loved ones, the better you are with your enemies, the better you are at your job, the better you are with yourself.
+ - Movie acting suits me because I only need to be good for ninety seconds at a time.
+ - Now, the essence, the very spirit of Christmas is that we first make believe a thing is so, and lo, it presently turns out to be so. – Stephen Leacockof Christmas trees around the house, so it smells good.
+ - You don’t have to have all this film stock, you can work faster, and you don’t need a giant crew. It’s great.
+ - One of the things I like about acting is that, in a funny way, I come back to myself.
+ - There are a lot of actors that are more talented than me at Second City who quit it before they even got to a paying status. Weird luck. I had no other option.
+ - I improvise whenever I feel it’s important, or whenever I think that something’s there. It’s nice to have a script that’s so well-written that I don’t have to improvise. I mean, I used to have to re-write whole movies; this is kind of nice.
+ - We still have to put some cherry syrup on it, and then we can eat it.
+ - That’s the reason I’m not the one that’s dead because the attraction of the fast life is very powerful.
+ - I went to Second City, where you learned to make the other actor look good so you looked good and National Lampoon, where you had to create everything out of nothing, and SNL, where you couldn’t make any mistakes, and you learned what collaboration was.
+ - Its Christmas Eve! Its the one night of the year when we all act a little nicer, we smile a little easier, we cheer a little more. For a couple of hours out of the whole year, we are the people that we always hoped we would be.
+ - I wanted to be a doctor once upon a time, but it turns out you’ve got to study, and that wasn’t going to happen. I had no idea what I was going to do. I had trouble holding jobs because they want you to be on time. That wasn’t going to work.
+ - Why would you get up there and bore people? I never have figured that out. These people are supposedly in the entertainment industry, and they finally get up there to that podium and they become the most boring people in the world.
+ - I would jump into the middle of the street and say, “excuse me, there’s a Mercedes that’s got to get through here.” And I would push people out of the way, “get out of the way! Let him through!” Smacking their cars and stuff. Just like, “whack” and you just jump into it.
+ - But I can only take so much TV, because there is so much advice. I find people will preach about virtually anything – your diet, how to live your life, how to improve your golf. The lot. I have always had a thing against the Mister Know-It-Alls.
+ - I’m just an obnoxious guy who can make it appear charming, that’s what they pay me to do.
+ - If I run into someone on the street, that’s one thing. But answering mail for a living? I like a job where you can play and act kind of goofy and have some fun.
+ - I’m over the Oscar thing. I feel that if you really want an Oscar, you’re in trouble. It’s like wanting to be married – you’ll take anybody. If you want the Oscar really badly, it becomes a naked desire and ambition. It becomes very unattractive. I’ve seen it.
+ - Half of the people in this room are more dressed up than on any other day in the year, and the other half are more dressed down.
+ - People only talk about what a joyous experience it is, but there is terror: Your life, as you know it, is over. It’s over the day that child is born. It’s over, and something completely new starts.
+ - You know how funerals are not for the dead, they’re for the living? Bachelor parties are not for the groom, they’re for the uncommitted.
+ - I really don’t know what’s going to come out of my mouth.
+ - I love the financing. It’s fun to do studio movies, too. I think you should do both. You don’t want to be this, “He’s an independent film guy.” It sounds like, “He makes his own dresses.”
+ - You can’t think about what you’re going to do. It just gets in the way. You have to be just available for life, otherwise you’re not bringing anything to the party. So I don’t lie awake thinking about what I’m going to do workwise. There’s just too much going on.
+ - I know how to be sour. I know that taste.
+ - I don’t know what my fans are going to think. It’s definitely not what they’re used to from me.
+ - Harold Ramis and I together did the ‘National Lampoon Show’ off Broadway, ‘Meatballs,’ ‘Stripes,’ ‘Caddyshack,’ ‘Ghostbusters’ and ‘Groundhog Day.’ He earned his keep on this planet. God bless him.
+ - I realized the more fun I had, the more relaxed I was working, the better I worked.
+ - I’ve never made any horrible, horrible movies. If you don’t ruin your reputation, you can always get work.
+ - The studios don’t seem to foster good writing. They’re not so interested in that, but they’re more interested in what worked most recently. They’re definitely very serious about making money, and that’s not a wrong thing, but you don’t have to make money the same way all the time.
+ - I don’t know how this guy knew how much money I was making. I didn’t know how much money I was making.
+ - While I have felt lonely many times in my life, the oddest feeling of all was after my mother, Lucille, died. My father had already died, but I always had some attachment to our big family while she was alive. It seems strange to say now that I felt so lonely, yet I did.
+ - When I was a little kid playing baseball, my manager called me Sleepy. And only a few people, who know me from way, way back, call me that still. I used to drift off and that’s why they made me the catcher, so I wouldn’t fall asleep. That gift I have still.
+
+150 quotes

@@ -1,0 +1,21 @@
+ - Gentlemen, you can’t fight in here! This is the War Room.
+ - Finally, in conclusion, let me say just this.
+ - Now then, what do we know? One, that Professor Fassbinder and his daughter have been kidnapped. Two, that someone has kidnapped them. Three, that my hand is on fire.
+ - If you ask me to play myself, I will not know what to do. I do not know who or what I am.
+ - Is there anybody hiding there in the dark?
+ - Some forms of reality are so horrible we refuse to face them, unless we are trapped into it by comedy. To label any subject unsuitable for comedy is to admit defeat.
+ - Facts – behind them lies the whole fabric of deductive truth.
+ - When you have been killed as many times as I have, you get used to it.
+ - There is no me. I do not exist. There used to be a me but I had it surgically removed.
+ - I am here to fix the problem with yer pheaun.
+ - We don’t want to start a nuclear war unless we really have to, now do we Jack?
+ - I feel ghostly unreal until I become somebody else again on the screen.
+ - Women are more difficult to handle than men. It’s their minds.
+ - To label any subject unsuitable for comedy is to admit defeat.
+ - I’m a classic example of all humorists – only funny when I’m working.
+ - To see me as a person on screen would be one of the dullest experiences you could ever wish to experience.
+ - You have to live before you die, or you’ll die before you live.
+ - If I can’t really find a way to live with myself, I can’t expect anyone else to live with me.
+ - It won’t be easy, that is why I have always failed where others have succeeded.
+
+19 quotes

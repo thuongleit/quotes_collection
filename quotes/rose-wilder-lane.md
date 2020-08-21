@@ -1,0 +1,32 @@
+ - All men are brothers and each man is free.
+ - Happiness is something that comes into our lives through doors we don’t even remember leaving open.
+ - Making the best of things is a damn poor way of dealing with them. My life has been a series of escapes from that quicksand.
+ - Curiosity is the hunger of the human mind.
+ - What I can’t understand is, how can anybody figure now that the government can support us, when we support the government.
+ - I ask myself, ‘why am I so lazy?’ and am too lazy to reply.
+ - It was not seen that woman’s place was in the home until she began to go out of it; the statement was a reply to an unspoken challenge, it was attempted resistance to irresistible change.
+ - As an American I am of course fundamentally opposed to democracy and to anyone advocating or defending democracy, which in theory and practice is the basis of socialism.
+ - I am now a fundamentalist American; give me time and I will tell you why individualism, laissez-faire and the slightly restrained anarchy of capitalism offer the best opportunities for the development of the human spirit.
+ - The need for Government is the need for force; where force is unnecessary, there is no need for Government.
+ - As novices, we think we’re entirely responsible for the way people treat us. I have long since learned that we are responsible only for the way we treat people.
+ - A kiss without a mustache is like an egg without salt.
+ - There is a city myth that country life was isolated and lonely; the truth is that farmers and their families then had a richer social life than they have now. They enjoyed a society organic, satisfying and whole, not mixed and thinned with the life of town, city and nation as it now is.
+ - Men in Government monopolize the necessary use of force; they are not using their energies productively; they are not milking cows. To get butter, they must use guns; they have nothing else to use.
+ - The question is whether personal freedom is worth the terrible effort, the never-lifted burden and risks of self-reliance.
+ - The Democratic Party is now a political mechanism having a genuine political principle: national socialism.
+ - I’m not “filled with my art”. I ain’t got no art. I’ve got only a kind of craftsman’s skill, and make stories as I make biscuits or embroider underwear or wrap up packages.
+ - Plants and animals repeat routine, but men who are not restrained will go into the future like explorers into a new country.
+ - Constant repetition dulls receptivity...
+ - That way of life against which my generation rebelled had given us grim courage, fortitude, self-discipline, a sense of individual responsibility, and a capacity for relentless hard work.
+ - We are never aware of the present; each instant of living becomes perceptible only when it is past, so that in a sense we do not live at all, but only remember living.
+ - I so much like real things – the realities that come naturally from the depths of us like – what shall I say? – the way trees grow, from some inner essential principle of them, just expressing itself.
+ - I came out of the Soviet Union no longer a communist, because I believed in personal freedom.
+ - Life is a thin narrowness of taken-for-granted, a plank over a canyon in a fog.
+ - No state, no government exists. What does in fact exist is a man, or a few men, in power over many men.
+ - An Old World revolution is only a movement around a motionless center; it never breaks out of the circle. Firm in the center is belief in Authority.
+ - The real protection of life and property, always and everywhere.
+ - Our quilts were more than useful, they had the faint sentimentality of a pressed flower. And no more beauty. We did not value them for their appearance, but for the memories in them, for their good wearing qualities and the thrift they represented.
+ - The longest lives are short; our work lasts longer.
+ - I somehow always have this idea that as soon as I can get through this work that’s piled up ahead of me, I’ll really write a beautiful thing. But I never do. I always have the idea that someday, somehow, I’ll be living a beautiful life.
+
+30 quotes

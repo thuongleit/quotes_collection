@@ -1,0 +1,28 @@
+ - I’m just living my life.
+ - I don’t think I’d change the path that’s got me where I am today.
+ - Any time you’re mentioned in the same breath as Tony Esposito, for whatever reason, it’s a great honor. He’s one of my idols. He’s one of the greatest of all time.
+ - Sometimes you’re only human and you learn.
+ - Growing up, sports was my outlet, my way to portray a personality. I was very shy around people but, through sports, something I was good at, I was able to make friends.
+ - It’s important for me to have my family close.
+ - I think that when you are in the limelight it is part of your obligation to be a good role model. A lot of kids look up to you, and you are given a God-given talent, so it is your responsibility. It isn’t hard to deal with. I never have to think twice about doing anything.
+ - I love my hockey, but if you can do that and go home and just be a dad and husband, then you have the best of both worlds.
+ - I’m usually a patient guy anyway.
+ - I’m so busy right now, it’s the beginning of the hockey season for my kids.
+ - I like to try to give something back to the community because I feel fortunate for how I was raised and how my life turned out. Each year, with the help of my brother, Grant, we run a charity golf tournament to raise money for the Ontario Federation for Cerebral Palsy.
+ - The lack of sweat to get a win is probably a record for me.
+ - Everybody ticks differently, but family is very important for me.
+ - Leaf fans loyalty is unshakeable. The fans keep coming back and it hurts, I have been there. I have lost in game six to go to the finals with the Maple Leafs, against Carolina and what a great final that would have been.
+ - I’ve got a lot to look forward to. I’m trying to be the best father I can, and that’s a pretty important role. Some would say it’s more important than stopping pucks.
+ - Like most parents, I want everything for my kids that I didn’t have. But I don’t intend to spoil them. I just enjoy everything that comes naturally with parenthood.
+ - No matter how many years you play, it’s always something new and exciting. It’s sports, you never know what may happen.
+ - You change your mind-set, and as long as you’ve got a good mind-set, you’ll know everything is good.
+ - I still have the passion to play.
+ - I think you always take pride in how you play.
+ - Wins are the most important measure for goalies, I think. Certainly it’s a great accomplishment.
+ - There’s no way I would have thought I would have had the career that I did and the longevity. Absolutely no idea.
+ - I’d recommend the high road to anybody. You wonder about it and you don’t really appreciate it until you do it and you find that it worked for everyone. But I recommend it.
+ - A happy player is a good player, I think.
+ - Hopefully, my teammates will say that I was important and that I gave it everything and I didn’t leave anything to chance my whole career. To be mentioned as Hall-worthy is a great thing.
+ - Anytime you’ve played in a place and you get a win against your old team, it feels good.
+
+26 quotes

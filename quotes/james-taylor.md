@@ -1,0 +1,122 @@
+ - The secret of life is enjoying the passage of time.
+ - I can’t thank you enough for showing up. It’s not the same without you.
+ - Music reminds us that the universe loves us.
+ - Don’t be sad cause your sun is down, the night doesn’t need your sorrow. Don’t be sad cause the light is gone, just keep your mind on tomorrow.
+ - Won’t you look down upon me Jesus, you’ve got to help me make a stand. You just got to see me through another day.
+ - People should watch out for three things: avoid a major addiction, don’t get so deeply into debt that it controls your life, and don’t start a family before you’re ready to settle down.
+ - That’s the motivation of an artist – to seek attention of some kind.
+ - I gathered up my sorrows and I sold them all for gold. And I gathered up the gold, and I threw it all away.
+ - I sometimes wonder how many of these lifetime achievement awards you can accept before you have to do the decent thing and die.
+ - Whenever I see your smiling face, I have to smile myself, because I love you, yes I do.
+ - Baby booty, juicy fruity, truck stop cutie, road side beauty, I’m in love with you.
+ - Winter, spring, summer, or fall, all you gotta do is call, and I’ll be there, ’cause you’ve got a friend.
+ - Never give up, never slow down, never grow old and never ever die young.
+ - Shower the people you love with love Show them the way that you feel Things are gonna work out fine if you only will.
+ - To me, very much of what is artistic is people’s very creative and inventive ways out of impossible situations.
+ - Shower the people you love with love.
+ - Time will take your money, but money won’t buy time.
+ - I think it surprises a lot of people that I’m still around, you know, still – that I’m not pushing up daisies, as they say.
+ - O, it’s enough to be on your way. It’s enough just to cover ground. It’s enough to be moving on. Home: better build it behind your eyes. Carry it in your heart, Safe among your own.
+ - He’s halfway sick and halfway stoned. He’d sure like to kick, but he’s too far gone. So they wind him down with methadone.
+ - I think there’s probably a God-shaped hole in everybody’s being. Even if God only exists in people’s minds, He’s still a force.
+ - Ireland, Italy and Brazil are the most musical places for me. They’re extremely musical cultures and anything you pitch they basically catch.
+ - I collect hats. That’s what you do when you’re bald.
+ - I think people are isolated because of the nature of human consciousness, and they like it when they feel the connection between themselves and someone else.
+ - I find it a lot healthier for me to be someplace where I can go outside in my bare feet.
+ - Sobering up was responsible for breaking up my marriage. That’s what it couldn’t stand.
+ - I’ve seen fire and I’ve seen rain I’ve seen sunny days that I thought would never end I’ve seen lonely times when I could not find a friend But I always thought that I’d see you again.
+ - Synchronized with the rising moon Even with the evening star They were true love written in stone They were never alone, they were never that far apart.
+ - Being on a boat that’s moving through the water, it’s so clear. Everything falls into place in terms of what’s important and what’s not.
+ - It is a process of discovery. It’s being quiet enough and undisturbed enough for a period of time so that the songs can begin to sort of peek out, and you begin to have emotional experiences in a musical way.
+ - You can bring your enemies to their knees with the possible exception of the North Vietnamese.
+ - It won’t be long before another day, were gonna have a good time. And no ones gonna take that time away. You can stay as long as you like.
+ - Quart of whiskey a day for months working hard on a long poem. Wife hiding bottles, myself hiding bottles. Murderous and suicidal. Many hospitalizations, many alibis.
+ - Within my heart is carved a sculpture of your love.
+ - I’ve written a number of songs over the years and it’s a big part of my life, this sort of tension between a longing for home and the call for the open road. It’s sort of like a tug between two families. I even love to miss my home.
+ - Knowing when to quit is probably a very important thing, but I just am not ready.
+ - Einstein said that he never could understand it all, the planets spinning in space, the smile upon your face.
+ - All it really needed was the proper point of view. No one’s gonna bring me down.
+ - No one can tell me that I’m doing wrong.
+ - I started being a songwriter pretending I could do it, and it turned out I could.
+ - Though the body sleeps, the heart will never rest.
+ - I don’t read music. I don’t write it. So I wander around on the guitar until something starts to present itself.
+ - I had a very moral upbringing, and spiritual in a sort of not very specific way.
+ - The report falsely asserts that global warming is causing more extreme weather events, more droughts, more record high temperatures, more wildfires, warmer winters, etc., when each and every one of these false assertions is contradicted by objective, verifiable evidence.
+ - Do me wrong, do me right, tell me lies, but hold me tight.
+ - I told you that I love you, I was only telling a lie. I’ll be long gone come the crack of dawn and I believe the word is goodbye.
+ - If you think my music is sentimental and self-absorbed, I agree with you.
+ - I don’t find the songs; they find me. I just strum my guitar and wait for a lyric to come.
+ - Creativity is the process that gives life to a new product.
+ - Fortunately, it doesn’t seem to have made a lot of difference to my audience that I’m as bald as a billiard ball!
+ - I’m very unstable; there’s no stability in a musician’s life at all. You live on a bus or on the road hand to mouth and you don’t know where your money’s coming from.
+ - I have a studio in a barn at home – we rehearse there, we film there and we record there. It’s fun to hang out with my guys and see what comes out next.
+ - I don’t take compliments very easily. I think most musicians suffer from low self-esteem to some extent.
+ - I believe musicians have a duty, a responsibility to reach out, to share your love or pain with others.
+ - I’m glad about what’s happening to the music business. This last crop of people we had in the 90s, who are going away now, they didn’t like music. They didn’t trust musicians. They wanted something else from it.
+ - I think of myself as a highly spiritual person, but without – I was never really given a religion or a religious experience or a community to sort of subscribe to.
+ - I think that American music, for me, it’s a synthesis of a lot of different things. But for me growing up in North Carolina, the stuff that I was listening to, the things that I was hearing, it was all about black music, about soul music.
+ - The Beatles were a phenomenon, but they were also ordinary blokes like anyone else. I was lucky enough to see that side.
+ - I played the cello from when I was ten, and then I bought a guitar from the father of some friends of mine and played that for a while. And then when I was fourteen or so, I bought a guitar – a real nice one – in Durham, North Carolina, that I worked with up until I was about twenty-five.
+ - Bruce Springsteen’s a rock star. Elton John is a rock star. I’m a folk musician. Honestly, I think that’s true.
+ - If the gig’s going really well, I’m incredibly happy on stage and really feel good about my life and things.
+ - Certain things in life are more important than the usual crap that everyone strives for.
+ - Songs are like myths. Myths are useful because they allow you to cast yourself and your life and your own experience. And for some people, ‘Fire and Rain’ speaks to them in that way.
+ - It’s probably foolish to expect relationships to go on forever and to say that because something only lasts 10 years, it’s a failure.
+ - The sides are steep and the nights are long and cold down in the hole, light and love and the world above mean nothing to the mole.
+ - If you’re an addict, it controls your life and your life becomes uncontrollable. It’s boring and painful, filling your system with something that makes you stare at your shoes for six hours.
+ - It’s hard to find a way forward. When you’re 18 it happens in huge chunks every day, but after 20 years, growth is much more costly.
+ - Once you get that two-way energy thing going, everyone benefits hugely.
+ - One of my earliest memories was me singing ‘Oh, What A Beautiful Mornin’ at the top of my voice when I was seven. I got totally carried away. My grandmother, Sarah, was in the next room. I didn’t even realise she was there. I was terribly embarrassed.
+ - Without a doubt, the warming of the past 100 years has been a welcome respite from a long and deadly Little Ice Age. The possibility that humans may have contributed to the recent warming does not make it any less welcome.
+ - Somehow it helps just to take something that’s internal and externalize it, to see it in front of you.
+ - I’m looking forward to being able to retire from being a public figure and being able to afford to be myself!
+ - It’s the nature of human consciousness to look for trouble constantly, and we find it. We find it.
+ - To be a musician, especially a singer-songwriter – well, you don’t do that if you have a thriving social life. You do it because there’s an element of alienation in your life.
+ - There’s been plenty of adversity, starting the moment he was born. He had a respiratory crisis, and it was touch and go for a week whether he would survive. I think ever since, you can feel this pulse in the guy, an almost physical enthusiasm.
+ - I know there are people who don’t like their audience or like the experience of being recognized or celebrated, but my audience has been very good – they don’t bother me and when they do contact me it’s usually on the nicest possible terms.
+ - My brother Alex fell in love with rhythm and blues early and gave me a strong dose of it.
+ - Just nine lucky soldiers had come through the night, half of them wounded and barely alive. Just nine out of twenty was headed for home, with eleven stories to tell.
+ - I don’t think anyone really says anything new.
+ - What I’ve always done as an entertainer is try to come up with things that people will find interesting, or compelling, or humorous.
+ - It’s easier to make an album, harder to figure out how to get people to notice it...
+ - Songwriting is too mysterious and uncontrolled a process for me to direct it towards any one thing.
+ - Things started to get out of control when I began reading that I was a superstar.
+ - In the beginning, there was a kind of energy that – like an urgency to express myself, and the songs just couldn’t be held in. But I think it changes, the nature of how that – what that energy is. And I need to court the muse in a much more serious way.
+ - If you feel like singing along, don’t.
+ - A concert is always like a feast day to me.
+ - When I cleaned up some 17 odd years ago, I felt terrible for about six months. The only thing that gave me any real relief was strenuous physical activity.
+ - It’s true that I can write a song and not really be sure what the meaning of it is.
+ - I was a functional addict.
+ - I’m always making music. I’m constantly making little musical recordings on my phone or on a little voice recorder I carry with me so I can remember these little pieces of music that eventually becomes songs.
+ - Photographers and reporters are mostly after me. They want to know what I read and what I’m like and I don’t really know myself, so how can I tell them?
+ - I believe 100 percent in the power and importance of music.
+ - I don’t play the kind of music that works in a football stadium.
+ - There’ll come a writing phase where you have to defend the time, unplug the phone and put in the hours to get it done.
+ - I wanted to perform, I wanted to write songs, and I wanted to get lots of chicks.
+ - I was in chemical jail.
+ - I’m grateful to my audience, that there are people who will buy a ticket and come and see us play and who essentially support me and this life of music.
+ - You have to choose whether to love yourself or not.
+ - Music is my living. I enjoy selling my music.
+ - I am myself for a living. I don’t animate a character.
+ - I don’t know much about God. But if everything does originate with God, then certainly songs do as well.
+ - I’m glad that I still have the ability to tour in Europe. I do love it.
+ - I’m trying to look at my blessings and how amazingly well against all odds things have turned out for me.
+ - I tend to write out the first iteration of a lyric here and then go over here and make variations on it, on the page opposite.
+ - I think that we’re all totally isolated beings and always will be.
+ - The SECRET to Love is in OPENING up your Heart.
+ - I have a love-hate relationship with the Grammys because I don’t see the music world as a competitive sport.
+ - Turn away from your animal kind, try to leave your body, just to live in your mind.
+ - I don’t get into heavy political numbers because I don’t find them lyrical.
+ - The Test arena is a place I have been desperate to get back to, it is the pinnacle of the sport.
+ - Television news is now entertainment, and the stories are being written by the people that have a special interest in them.
+ - If I were to try to identify a turning point I’d say that was it – getting clean.
+ - We all have to face pain, and pain makes us grow.
+ - All invisible from where we stand the connections come to pass, and though too strong to comprehend they affect us not the less.
+ - It is the most delightful thing that ever happens to me, when I hear something coming out of my guitar and out of my mouth that wasn’t there before.
+ - I can take criticisms but not compliments.
+ - It’s a real wrenching thing to go from being a private person to being a public person, especially when you’re being autobiographical.
+ - Americans work a long away ahead of themselves because of the size of the place. To make any impact at all you have to promote yourself with live performances ages before a release.
+ - There ain’t no doubt in my mind that love is the finest thing around.
+ - I don’t build no heathen temples, where the Lord has done laid a hand. There’s a well on the hill, let it be.
+
+120 quotes

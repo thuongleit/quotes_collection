@@ -1,0 +1,71 @@
+ - Only the one who walks his own way can’t be overtaken.
+ - Never surrender to the momentum of mediocrity.
+ - Regret is useless in life. It’s in the past. All we have is now.
+ - Hey, you wanna hear my philosophy of life? Do it to him before he does it to you.
+ - All I want to be is normally insane.
+ - Never confuse the size of your paycheck with the size of your talent.
+ - I thank you for not snoring.
+ - Mafia is the best example of capitalism we have.
+ - The military mind has one aim, and that is to make soldiers react as mechanically as possible. They want the same predictability in a man as they do in a telephone or a machine gun, and they train their soldiers to act as a unit, not as individuals.
+ - I had to read Wuthering Heights for English and I never enjoyed a book in all my life as much as that one.
+ - I refused to be a fool dancing on a string held by all of those big shots. I don’t apologise, that’s my life.
+ - I’m going to make him an offer he can’t refuse.
+ - Every time you get knocked down you get up stronger.
+ - Most of the successful people in Hollywood are failures as human beings.
+ - Hollywood is run by Jews, it is owned by Jews...
+ - Privacy is not something that I’m merely entitled to, it’s an absolute prerequisite.
+ - I don’t think I was constructed to be monogamous. I don’t think it’s the nature of any man to be monogamous. Men are propelled by genetically ordained impulses over which they have no control to distribute their seed into as many females as possible.
+ - In a close-up, the audience is only inches away, and your face becomes the stage.
+ - Acting is the least mysterious of all crafts. Whenever we want something from somebody or when we want to hide something or pretend, we’re acting. Most people do it all day long.
+ - Acting is an empty and usless profession.
+ - Would people applaud me if I was a good plumber?
+ - Ask most kids about details about Auschwitz or about how the American Indians were assassinated as a people and they don’t know anything about it. They don’t want to know anything. Most people just want their beer or their soap opera or their lullaby.
+ - Acting, in general, is something most people think they’re incapable of, but they do it from morning to night. The subtlest acting I’ve ever seen is by ordinary people trying to show they feel something they don’t, or trying to hide something. It’s something everyone learns at an early age.
+ - It really don’t matter what you’re thinking about, as long as you’re thinking about something.
+ - I watched a snail crawl along the edge of a straight razor. That’s my dream. That’s my nightmare. Crawling, slithering, along the edge of a straight razor and surviving.
+ - I value each woman for what she has to offer whether it be charm-beauty-wit-intelligence or humor but warmth is the quality I value most.
+ - The more sensitive you are, the more certain you are to be brutalized, develop scabs, never evolve. Never allow yourself to feel anything, because you always feel to much.
+ - The Jews control Hollywood and use it to promote their own agenda.
+ - The most repulsive thing you could ever imagine is the inside of a camel’s mouth. That and watching a girl eat octopus or squid.
+ - The close-up says everything.
+ - George Bernard Shaw said that thinking was the greatest of all human endeavors, but I would say that feeling was. Allowing yourself to feel things, to feel love or wrath, hatred, rage.
+ - We make up any excuse to preserve myths about people we love, but the reverse is also true; if we dislike an individual we adamantly resist changing our opinion, even when somebody offers proof of his decency, because it’s vital to have myths about both the gods and devils in our lives.
+ - Most writers write haphazardly. The actor is fighting unjustified words all the time.
+ - I think awards in this country at this time are inappropriate to be received or given until the condition of the American Indian is drastically altered. If we are not our brother’s keeper, at least let us not be his executioner.
+ - Food has always been my friend. When I wanted to feel better or had a crisis in my life, I opened the icebox.
+ - I put on an act sometimes, and people think I’m insensitive. Really, it’s like a kind of armor because I’m too sensitive. If there are two hundred people in a room and one of them doesn’t like me, I’ve got to get out.
+ - I suppose the story of my life is a search for love, but more than that, I have been looking for a way to repair myself from the damages I suffered early on and to define my obligation, if I had any, to myself and my species.
+ - Do you spend time with your family? Good. Because a man that doesn’t spend time with his family can never be a real man.
+ - Elvis Presley had nothing to do with excellence, just myth.
+ - The four pillars of wisdom that support journalistic endeavors are: lies, stupidity, money-grubbing, and ethical irresponsibility.
+ - We don’t go anywhere. Going somewhere is for squares. We just go!
+ - The close-up says everything, it’s then that an actor’s learned, rehearsed behavior becomes most obvious to an audience and chips away, unconsciously, at its experience of reality. In a close-up, the audience is only inches away, and your face becomes the stage.
+ - I don’t mind that I’m fat. You still get the same money.
+ - An actor must interpret life, and in order to do so he must be willing to accept all experiences that life can offer.
+ - I have eyes like those of a dead pig.
+ - Too much success can ruin you as surely as too much failure.
+ - If the expenditure of money for entertainment in America is any indication of taste, clearly the majority of us are addicted to trash.
+ - The only reason I’m in Hollywood is that I don’t have the moral courage to refuse the money.
+ - If there’s anything unsettling to the stomach, it’s watching actors on television talk about their personal lives.
+ - You’ve seen every single race besmirched, but you never saw an unfavorable image of a kike because the Jews are ever watchful for that. They never allowed it to be shown on the screen!
+ - Sometimes you just get the feeling that here it is 11o’clock in the morning and you’re not in school.
+ - The principal benefit acting has afforded me is the money to pay for my psychoanalysis.
+ - I believe I did what honor dictated and that belief sustains me, except for a slight desire to be dead which I’m sure will pass.
+ - Nobody “becomes” a character. You can’t act unless you are who you are.
+ - I don’t stretch my hand out anymore, but I never get tired of waiting for the next magic.
+ - If you’re successful, acting is about as soft a job as anybody could ever wish for. But if you’re unsuccessful it’s worse than having a skin disease.
+ - I have decided to tell the story of my life as best I can, so that my children can separate the truth from the myths that others have created about me, as myths are created about everyone swept up in the turbulent and distorting maelstrom of celebrity in our culture.
+ - Acting serves as the quintessential social lubricant and a device for protecting our interests and gaining advantage in every aspect of life.
+ - There’s a line in the picture where he snarls, ‘Nobody tells me what to do.’ That’s exactly how I’ve felt all my life.
+ - It is a simple fact that all of us use the techniques of acting to achieve whatever ends we seek.
+ - What might be a brave choice for you, for another person they may simply not experience fear.
+ - People around me never say anything. They just seem to want to hear what I have to say. That’s why I do all the talking.
+ - Even today I meet people who think of me automatically as a tough, insensitive, coarse guy named Stanley Kowalski. They can’t help it, but, it is troubling.
+ - An actor’s a guy who, if you ain’t talking about him, ain’t listening.
+ - It’s the hardest thing in the world to accept a ‘little’ success and leave it that way.
+ - The power and influence of a movie star is curious: I didn’t ask for it or take it; people gave it to me. Simply because you’re a movie star, people empower you with special rights and privileges.
+ - Working with any actor is like working with a monkey.
+ - The only thing an actor owes his public is not to bore them.
+ - I only mean forty per cent of what I say.
+
+69 quotes

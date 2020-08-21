@@ -1,0 +1,33 @@
+ - It’s never too early to teach your children about the tool of money. Teach them how to work for it and they learn pride and self-respect. Teach them how to save it and they learn security and self-worth. Teach them how to be generous with it and they learn love.
+ - Dance is bigger than the physical body. When you extend your arm, it doesn’t stop at the end of your fingers, because you’re dancing bigger than that; you’re dancing spirit.
+ - Dance is about never-ending aspiration.
+ - If you look at a dancer in silence, his or her body will be the music. If you turn the music on, that body will become an extension of what you’re hearing.
+ - Dancing is a gift. You are supposed to do it; it’s like breathing.
+ - I believe in spirit and then I believe a manifestation of spirit is dance.
+ - Learn the craft of knowing how to open your heart and to turn on your creativity. There’s a light inside of you.
+ - I’m moved by contraries, by opposites, the strength that was my mother’s eyes, the beauty of my father’s hands.
+ - So many people dwell on negativity and I’ve survived by ignoring it: it dims your light and it’s harder each time to turn the power up again.
+ - Dancing is being trusted with other people’s guts; choreographing is trusting other people with yours. When I choreograph I’m giving a dancer something to do and trusting the dancer to do it and build on it.
+ - Once you’ve danced, you always dance. You can’t deny the gifts that God sends your way.
+ - You don’t enter a dance studio and say “I can’t do that.” If you do, then why are you in the studio in the first place?
+ - It’s a real gift to have a husband and wife in the company that love each other and that work together. They check on each other emotionally and physically. That’s beautiful to me.
+ - I’ve danced all over the world, and people are people. We cannot cut off from each other in life. In order to lead, you can’t do that.
+ - I was a protege; by the age of 10, I was studying with ballet choreographer Anthony Tudor in a class of adults.
+ - Every dancer lives on the threshold of chucking it.
+ - Excellence is the name of the game...
+ - I believe that this world was set about for us to enjoy and to love and to experience and to have it all be, to a certain extent, unpredictable. Ever since I was a child I have believed that my life has been guided.
+ - I haven’t had a family, but I don’t think of that as a sacrifice: my dancers are my family.
+ - Concert dance is the hardest kind of dance. We tour constantly, around the world, year in and year out. It just doesn’t work for everybody. It’s the lifestyle, it’s the stamina, it’s the love, it’s the dedication, it’s the commitment, it’s all those words.
+ - People come to see beauty, and I dance to give it to them.
+ - I have been guilty of watching Westerns without acknowledging that Native Americans have gone through the same madness as African Americans. Isn’t it extraordinary that sometimes the most offended have not seen others being offended?
+ - I’ve always felt that complement of opposites: body and soul, solitude and companionship, and in the dance studio, contraction and release, rise and fall.
+ - One you have danced, you always dance.
+ - The word ‘suffering’ is not in my vocabulary.
+ - I’ve been in a competitive situation almost all my life. I’ve been having a competition with myself and trying to be the best I could be.
+ - We can go on talking about racism and who treated whom badly, but what are you going to do about it? Are you going to wallow in that or are you going to create your own agenda?
+ - Dance is not endangered – it will always find a way to express itself.
+ - I felt the naivete of a child in my dancing. I cherished that feeling. I had what I call a knowledgeable naivete, and it worked for me.
+ - I want to know who you are as a person, and then I want you to develop as a whole human being.
+ - Maybe its a generational thing, but I never wanted to be the best black dancer in the world. I just wanted to be the best.
+
+31 quotes

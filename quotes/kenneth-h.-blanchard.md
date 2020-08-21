@@ -1,0 +1,101 @@
+ - The key to successful leadership is influence, not authority.
+ - None of us is as smart as all of us.
+ - People who feel good about themselves produce good results.
+ - There’s a difference between interest and commitment. When you’re interested in doing something, you do it only when it’s convenient. When you’re committed to something, you accept no excuses – only results.
+ - Customer service is not a department, it’s everyone’s job.
+ - When you stop learning you stop growing.
+ - Customer service should not be a department, customer service is everyone’s job.
+ - Catch someone doing something right.
+ - Servant-leader ship is all about making the goals clear and then rolling your sleeves up and doing whatever it takes to help people win. In that situation, they don’t work for you, you work for them.
+ - Help People Reach Their Full Potential Catch Them Doing Something Right.
+ - In the past a leader was a boss. Today’s leaders must be partners with their people. They no longer can lead solely based on positional power.
+ - The best minute you spend is the one you invest in people.
+ - When you’re committed to something, you accept no excuses, only results.
+ - What we give our attention to, grows.
+ - All good performance starts with clear goals.
+ - Your customers are only satisfied because their expectations are so low and because no one else is doing better. Just having satisfied customers isn’t good enough anymore. If you really want a booming business, you have to create Raving Fans.
+ - Leadership is not something you do to people. It’s something you do with people.
+ - Start your day with good intentions and set yourself up for a good attitude. It’s not what happens to you that matters but how you respond.
+ - Connect the dots between individual roles and the goals of the organization. When people see that connection, they get a lot of energy out of work. They feel the importance, dignity, and meaning in their job.
+ - Take a minute: look at your goals, look at your performance, see if your behavior matches your goals.
+ - If becoming a high performing organization is the destination, leadership is the engine.
+ - Empowerment is all about letting go so that others can get going.
+ - Real communication happens when people feel safe.
+ - Humility does not mean you think less of yourself. It means you think of yourself less.
+ - If you don’t seek perfection, you can never reach excellence.
+ - Have I done what is really important today?
+ - We are not just our behavior. We are the person managing our behavior.
+ - If God had wanted us to talk more than listen, he would have given us two mouths rather than two ears.
+ - Nice guys may appear to finish last, but usually they are running a different race.
+ - Business is like tennis. Those who serve well win.
+ - The greatest leaders mobilize others by coalescing people around a shared vision.
+ - Your role as a leader is even more important than you might imagine. You have the power to help people become winners.
+ - One of the deepest principles of life and leadership: it’s not about you.
+ - Effective team leaders adjust their style to provide what the group can’t provide for itself.
+ - Positive thinkers get positive results because they are not afraid of problems.
+ - A problem only exists if there is a difference between what is actually happening and what you desire to be happening.
+ - Honesty is telling the truth to ourselves and others. Integrity is living that truth.
+ - It’s really hard to be a servant leader because we come into this world as a baby in a self-survival mode. Life is a journey toward service.
+ - Vision comes alive when everyone sees where his or her contribution makes a difference.
+ - Learning is defined as a change in behavior. You haven’t learned a thing until you take action and use it.
+ - Leadership is anytime you seek to influence the thinking, behavior, or development of others.
+ - Asking for other’s guidance helps you see what you may not be able to see. It’s always important to check your ego and ask for help.
+ - If you don’t toot your own horn, someone else will use it as a spittoon.
+ - The only job security you have today os your commitment to continuous personal improvement.
+ - Life is special when you reach out beyond yourself to be a true servant leader for others.
+ - If we want people on the front lines of companies to be responsible for making good business decisions, they must have the same information that managers use to make good business decisions.
+ - Catching people doing things right is a powerful management concept.
+ - Perpetual prosperity comes to those who help others.
+ - Knowing where you are going is the first step to getting there.
+ - All leaders are permanent learners.
+ - Anything worth doing does not have to be done perfectly – at first.
+ - If you want your people to be responsible, be responsive to their needs.
+ - Before something can become a habit it must first be practiced as a discipline.
+ - Don’t wait until people do things exactly right before you praise them.
+ - For a manager to be perceived as a positive manager, they need a four to one positive to negative contact ratio.
+ - A river without banks is a large puddle.
+ - The productivity of a work group seems to depend on how the group members see their own goals in relation to the goals of the organization.
+ - Trying is just a noisy way of not doing something.
+ - It never hurts to toot your own horn once in a while.
+ - Things not worth doing are not worth doing well.
+ - I absolutely believe in the power of tithing and giving back. My own experience about all the blessings I’ve had in my life is that the more I give away, the more that comes back. That is the way life works, and that is the way energy works.
+ - As a leader, the most important earthly relationship you can cultivate is your relationship with yourself.
+ - The best way to develop responsibility in people is to give them responsibility.
+ - Purpose has to do with one’s calling – deciding what business you are in as a person.
+ - Do your best to succeed and push the limits without violating them.
+ - A little flattery makes people feel good about themselves. When you notice someone looking great, give them a compliment.
+ - Whether you like it or not, you will leave a leadership legacy.
+ - The cure for too much to do is solitude and silence.
+ - If you want to know why your people are not performing well, step up to the mirror and take a peek.
+ - Your game is only as good as your practice.
+ - You have the power to help people become winners.
+ - Beware of putting all your focus into results. While results are important, your people should be your number one area of focus.
+ - We can’t control everything in life, that’s for sure, but we can reach out to the people we love to tell them we love and care about them.
+ - Vision is knowing who you are, where you’re going, and what will guide your journey.
+ - Take what you do seriously, but yourself lightly.
+ - Good thoughts not delivered mean squat.
+ - Leadership is about going somewhere. If you and your people don’t know where you are going, your leadership doesn’t matter.
+ - The most important habit is solitude, quiet time. People who enter their day by taking 45 minutes or an hour for themselves – meditation, prayer, inspirational reading, taking a walk – before they go for it in the real world do best.
+ - As a manager the important thing is not what happens when you are there, but what happens when you are not there.
+ - Vision is a lot more than putting a plaque on the wall. A real vision is lived, not framed.
+ - The Hoffman Process brings forth spiritual leadership in a person. It made my spirituality come alive. Through the Hoffman Process I actually brought my faith into my daily actions.
+ - Successful organizations have one common central focus: Customers.
+ - Congratulations offer more potential than cash. The amount of available cash is limited, but managers have an unlimited supply of congratulations. It’s important to pay people fairly, but managers also should heap on congratulations and feed people’s souls.
+ - Everyday do something in relation to everything that’s important to you.
+ - To ensure that your work is also a play, I recommend that you develop a personal mission statement. This will help you find what it is to enjoy so much that you lose track of time when you’re doing it.
+ - Purpose can never be about achievement; it is much bigger.
+ - I never use notes, they interfere with me.
+ - Present thinking people kill the future.
+ - Most companies spend all their time looking for another management concept and very little time following up the one they have just taught their managers.
+ - No one can make you serve customers well. That’s because great service is a choice.
+ - Empowering means helping teams develop their skills and knowledge and supporting them to use their talents.
+ - Unexpressed good thoughts aren’t worth squat!
+ - Consistency isn’t behaving the same way all the time.
+ - When you touch – don’t take. Touch people only when you are giving something – reassurance, support, encouragement, whatever.
+ - Everyone knows that not all change is good or even necessary. But in a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better.
+ - How many of you would put in front of your house a sign that says gun-free zone?
+ - I grew up in New England. I think I was brought up with the Puritan ethic: that if you worked really hard in life, then good would come to you. The harder you work, the luckier you get. I’ve come to believe that it’s the smarter you work, the better.
+ - Spouses often point out each other’s deficiencies. Instead, we should be each other’s motivator. My husband touches my spirit, and I try my best to motivate him, too.
+ - I cannot say Who Art in Heaven-If all my interests and pursuits are in earthly things.
+
+99 quotes

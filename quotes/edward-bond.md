@@ -1,0 +1,41 @@
+ - I write about violence as naturally as Jane Austen wrote about manners. Violence shapes and obsesses our society, and if we do not stop being violent we have no future.
+ - Our unconscious is not more animal than our conscious, it is often even more human.
+ - It seems to me that we are profoundly ignorant of ourselves.
+ - In the past goodness was always a collective experience. Then goodness became privatised.
+ - The human mind is a dramatic structure in itself and our society is absolutely saturated with drama.
+ - We are still living in the aftershock of Hiroshima, people are still the scars of history.
+ - If you engage people on a vital, important level, they will respond.
+ - Our lives are awkward and fragile and we have only one thing to keep us sane: pity, and the man without pity is mad.
+ - Auschwitz is a place in which tragedy cannot occur.
+ - All you now do is pursue your private objectives within society. Instead of us being a community, everybody is asked to seek their own personal ends. It’s called competition. And competition is antagonism.
+ - Fifteen years ago I walked out of a production of one of my plays at the RSC because I decided it was a waste of time.
+ - Humanity’s become a product and when humanity is a product, you get Auschwitz and you get Chair.
+ - Religion enabled society to organise itself to debate goodness, just as Greek drama had once done.
+ - As Shakespeare himself knew, the peace, the reconciliation that he created on the stage would not last an hour on the street.
+ - The theatre, our theatre, comes from the Greeks.
+ - Now, drama is quite useful at helping us to understand what our position is and, conversely, we might then understand why our theatre is being destroyed.
+ - Violence is hidden within democratic structures because they are not radically democratic – Western democracy is merely a domestic convenience of consumerism.
+ - Violence is never a solution in my plays, just as ultimately violence is never a solution in human affairs.
+ - When humanness is lost the radical difference between the bodies in the pit and people walking on the street is lost.
+ - Shakespeare has no answers for us at all.
+ - I don’t think it’s the job of theatre at the moment to provide political propaganda; that would be simplistic. We have to explore our situation further before we will understand it.
+ - What I try to do in a play is put a problem on stage, head-on, without evasion.
+ - We may seem competent, but by the end of next century there will be new deserts, new ruins.
+ - The truth has got to appear plausible on the stage.
+ - Art is the close scrutiny of reality and therefore I put on the stage only those things that I know happen in our society.
+ - Art is the expression of the conviction that we can have a rational relationship with the world and each other. It isn’t the faith or hope that we can, it is the demonstration that we can.
+ - The one overall structure in my plays is language.
+ - The English sent all their bores abroad, and acquired the Empire as a punishment.
+ - It’s insulting to ask a dramatist what his view of his play is. I have no opinion.
+ - Law and order is one of the steps taken to maintain injustice.
+ - I’m interested in the real world.
+ - At the turn of the century theatre does not have to be prescriptive.
+ - It’s wonderful to be able to sit down and write a play.
+ - In the end I think theatre has only one subject: justice.
+ - First there was the theatre of people and animals, then of people and the devil. Now we need the theatre of people and people.
+ - But we are not in the world to be good but to change it.
+ - It’s politely assumed that democracy is a means of containing and restraining violence. But violence comes not from genes but from ideas.
+ - I write plays not to make money, but to stop myself from going mad. Because it’s my way of making the world rational to me.
+ - What Shakespeare and the Greeks were able to do was radically question what it meant to be a human being.
+
+39 quotes

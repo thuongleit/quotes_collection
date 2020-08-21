@@ -1,0 +1,35 @@
+ - Always be nice to everyone in the firm on the way up. You never know who you may meet on the way down.
+ - Never drink black coffee at lunch; it will keep you awake all afternoon.
+ - I live at home and, if I want to start work at 11 o’clock, I can.
+ - Although it is the biggest time-waster in office life, you must never underrate the importance of the memo. You will be judged by the volume of your paper work.
+ - I think it bespeaks a generous nature, a man who can cook.
+ - People always assume that bachelors are single by choice and spinsters because nobody asked them. It never enters their heads that poor bachelors might have worn the knees of their trousers out proposing to girls who rejected them or that a girl might deliberately stay unmarried...
+ - If you feel compelled to give a New Year’s Eve party, don’t invite people to arrive too early or they’ll go off the boil before midnight.
+ - The male is a domestic animal which, if treated with firmness and kindness, can be trained to do most things.
+ - There is nothing more attractive than a man who is not a New Man.
+ - At home I have big vats of cabbage soup that I make to slim down.
+ - For sheer sexiness, a man must be beautiful. Funny. yes. Clever, no.
+ - Bachelors begin at thirty-six. Up till this age they are regarded as single men.
+ - I love the long grass coming up to meet the willows.
+ - Youve simply got to go on and on with your family and friends and tell them how much you love them because you never know whether theyll be there tomorrow, do you?
+ - The only thing a whirlwind courtship does is blow dust in everyone’s eyes.
+ - I can assure you that the class system is alive and well and living in people’s minds in England.
+ - I’m basically a very happy person and I don’t have to be anybody else.
+ - I have a theory that the secret of marital happiness is simple: drink in different pubs to your other half.
+ - I’m not wild about holidays. They always seem a ludicrously expensive way of proving there’s no place like home.
+ - People who can write a book usually do.
+ - But I always seem to finish a book and then think, oh God, I’ve got to pay a tax bill, so I’d better write a novel, so I tend not to stop and learn word processing.
+ - Leo, sadly, has Parkinsons, but he used to cook all sorts of dazzling things.
+ - I’d never have written the big books in London.
+ - My own parents loved each other very much.
+ - I would really like to spend more time with the family. Every time I go abroad I miss them all dreadfully.
+ - I was so flattered that someone wanted me to write a book, I said I would. It was published in 1969.
+ - And I would really like to be a grandmother, but only when Felix or Emily meet the right person and are ready.
+ - I think we ought to have a kindness year, or a kindness century.
+ - But really I’m not terribly interested in what I eat.
+ - Go to lots of interviews, at least one a month even when you don’t need a job, to keep in training for when you do.
+ - There is something infinitely dingy about the word workshop. Pray that England doesn’t become a nation of workshopkeepers.
+ - It must be a terrible pressure to have to go to the office.
+ - I wrote my earliest piece for The Sunday Times about being a young wife.
+
+33 quotes

@@ -1,0 +1,24 @@
+ - An autobiography is a life story. It starts when you’re born and continues until the end.
+ - I’m usually alone or asleep, at home.
+ - A memoir takes some particular threads, some incidents, some experience from a person’s life and gives an account of it.
+ - I’ve come to think of myself as a writer of books.
+ - Things always change, and New York teaches you that.
+ - I shake my head and the tiny acrobats fall like spangles, like the cool rain on another planet, down to the inside of my feet.
+ - Poetry’s always dead, you know? You don’t realize how good poetry is until 15 years later.
+ - In fact I thought life was pretty much a losing proposition, and I didn’t mind saying so.
+ - It used to be that artists thought of nature as their environment. Now media is our environment. It has been for the past 50, 70 years. It’s what you see on TV, on the computer, what is in the magazines and newspapers.
+ - I believe in people treating each other with respect.
+ - I’m not into this memoir craze that’s been going on for 20 years now and doesn’t seem to ever let up. People just indiscriminately say “memoir” now when it’s a person writing about their own life.
+ - You realize there are certain things that you’ll never do that you always thought would be part of your future. It’s a big relief to discover what you are best suited for, and it’s a real advantage to be able then to focus.
+ - I never thought I would write an autobiography, probably because my first novel, Go Now, is really all drawn from my life, even though it’s more about the psychology going on.
+ - I’m someone who’s really susceptible to tears.
+ - I usually don’t think of anyone ever suspecting that I might be someone who’d cry at stuff. I cry at movies all the time. And sometimes it really pisses me off because I hate it when they’re just jerking my chain and it’s just like completely manipulative.
+ - I love a good play, but they’re too hard to find.
+ - When you’re young, you don’t especially think of yourself as being young. You’re just alive and everything’s interesting and you don’t think of things in terms of age because you’re not conscious of it.
+ - Another thing that’s good about writing to describe a situation or a state of consciousness is that you can finally get it right. That was my intention, and that’s always interesting.
+ - I felt just overwhelmed by input: the Vietnam War and the collapse of the ‘60s and the proliferation of media’ it just felt like everything was too much to handle and you just tuned out.
+ - I decided I wanted out because it was killing me, and I couldnt see where to go with it that wouldnt be fatal.
+ - Nothing lasts in New York. Everything’s always changing in really obvious ways.
+ - It’s really interesting with art-movies too, but art especially – to see how your attitude toward artists and works and your level of appreciation of them is always shifting and changing over the years.
+
+22 quotes

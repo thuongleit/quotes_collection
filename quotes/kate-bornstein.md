@@ -1,0 +1,21 @@
+ - Let’s stop ‘tolerating’ or ‘accepting’ difference, as if we’re so much better for not being different in the first place. Instead, let’s celebrate difference, because in this world it takes a lot of guts to be different.
+ - Your life’s work begins when your great joy meets the world’s great hunger.
+ - There’s a simple way to look at gender: Once upon a time, someone drew a line in the sans of culture and proclaimed with great self-importance, ‘On this site, you are a man; on the other side, you are a woman.’ It’s time for the winds of change to blow that line away. Simple.
+ - There’s no such thing as hurting someone for their own good. There’s only hurting someone for your own good.
+ - I was obsessed, and like most obsessed people, I was the last one to know it.
+ - No matter how your world falls apart-and honey, that’s what happens: we all build ourselves a world, and then it falls apart-but no matter how that happens, you still have the kind heart you’ve had since you were a child, and that’s all that really counts.
+ - Gender is used as a control mechanism that’s just wrong. Gender is never anything to struggle with; gender is something to play with. Once you’re free of the rules that all these hierarchical, oppressive systems place on gender, that’s the tricky part.
+ - Disney will never make a movie about my life story, and that’s a shame – I’d make a really cute animated creature.
+ - The choice between two of something is not a choice at all, but rather the opportunity to subscribe to the value system which holds the two presented choices as mutually exclusive alternatives.
+ - The real problem devolves around class lines once again: it’s the street hormones that folks without insurance, or folks who are too young for prescriptions without parental okay, use. Sometimes those hormones can be pretty rough.
+ - It’s easy to fictionalize an issue when you’re not aware of the many ways in which you are privileged by it.
+ - I honor anybody who wants to be a man and do the work of becoming a man. I honor anyone who mindfully becomes a woman. That’s cool. But, I really don’t get how there’s only two choices. There’s no two of anything else in the entire universe; why should there only be two genders? I don’t get it.
+ - It doesn’t really matter what a person decides to do, or how radically a person plays with gender. What matters, I think, is how aware a person is of the options. How sad for a person to be missing out on some expression of identity, just for not knowing there are options.
+ - I love the idea of being without an identity, it gives me a lot of room to play around; but it makes me dizzy, having nowhere to hang my hat.
+ - Drag queen is a gender like no other, and with practice I’d learned to rise to it.
+ - The whole transgender movement idea is happening in waves around the world. Some areas of the world are further along politically than others. The economy has a lot to do with that, as does moral or religious climate.
+ - The current transgender movement is composed of a great number of factions, divided by those old favorites of class, race, age, language, region, and nationality.
+ - What is a man? What is a woman? And why do we have to be one or the other?
+ - When you’re a Scientologist it’s like the movie Goodfellas, where the gangsters hang out with only other gangsters. We only hung out with each other, so we knew we were saving the world.
+
+19 quotes

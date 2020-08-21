@@ -1,0 +1,61 @@
+ - The turning point in the process of growing up is when you discover the core of strength within you that survives all hurt.
+ - I am neither an optimist nor pessimist, but a possibilist.
+ - We must face what we fear; that is the case of the core of the restoration of health.
+ - The crime of book purging is that it involves a rejection of the word. For the word is never absolute truth, but only man’s frail and human effort to approach the truth. To reject the word is to reject the human search.
+ - Either men will learn to live like brothers, or they will die like beasts.
+ - America is a passionate idea or it is nothing. America is a human brotherhood or it is chaos.
+ - Do not confuse your vested interests with ethics. Do not identify the enemies of your privilege with the enemies of humanity.
+ - There is a hate layer of opinion and emotion in America. There will be other McCarthys to come who will be hailed as its heroes.
+ - When you choose the lesser of two evils, always remember that it is still an evil.
+ - The fact is that life has become a sweepstake. Millions of people who have lost the sense of being able to make anything of the collective effort of shaping their economic society, now expect fortune to descend like pie from the sky.
+ - It is not the armed forces which can protect our democracy. It is the moral strength of democracy which alone can give any meaning to the efforts at military security.
+ - In the end, as any successful teacher will tell you, you can only teach the things that you are. If we practice racism then it is racism we teach.
+ - Power politics existed before Machiavelli was ever heard of; it will exist long after his name is only a faint memory. What he did, like Harvey, was to recognize its existence and subject it to scientific study.
+ - In our culture we make heroes of the men who sit on top of a heap of money, and we pay attention not only to what they say in their field of competence, but to their wisdom on every other question in the world.
+ - Having a thirteen-year-old in the family is like having a general-admission ticket to the movies, radio and TV. You get to understand that the glittering new arts of our civilization are directed to the teen-agers, and by their suffrage they stand or fall.
+ - A religion which has lost its basic conviction about the interconnection of men with men in their common struggles for the human, will never command belief in the realm of the superhuman.
+ - There is no crime in the cynical American calendar more humiliating than to be a sucker.
+ - Small wars are always teetering on the brink of becoming big ones.
+ - When you are seventeen you aren’t really serious.
+ - You may call for peace as loudly as you wish, but where there is no brotherhood there can in the end be no peace.
+ - Science itself is a humanist in the sense that it doesn’t discriminate between human beings, but it is also morally neutral. It is no better or worse than the ethos with and for which it is used.
+ - Man must be at once more humble and more confident; more humble in the face of destructive potentials of what he can achieve, more confident of his own humanity as against computers and robots which are only engines to simulate him.
+ - The so-called lessons of history are for the most part the rationalizations of the victors. History is written by the survivors.
+ - It is almost as easy to be enervated by triumph as by defeat.
+ - There are some who become spies for money, or out of vanity and megalomania, or out of ambition, or out of a desire for thrills. But the malady of our time is of those who become spies out of idealism.
+ - There are almost no limits to the discoveries of how the human brain operates in illness and health, in sleep and waking and dreaming, in calm and under tension. The question is how far man can put these discoveries to use without using them not for cure but for power.
+ - When evil acts in the world it always manages to find instruments who believe that what they do is not evil but honorable.
+ - To deaden yourself against any hurt is to deaden yourself also against the hurt of others.
+ - The taste of democracy becomes a bitter taste when the fullness of democracy is denied.
+ - Somehow life doesn’t always pay off to those who are most insistent.
+ - The way to prevent war is to bend every energy toward preventing it, not to proceed by the dubious indirection of preparing for it.
+ - Despite the success cult, men are most deeply moved not by the reaching of the goal but by the grandness of the effort involved in getting there – or failing to get there.
+ - A world technology means either a world government or world suicide.
+ - The Russians train; they do not dare educate.
+ - America shudders at anything alien, and when it wants to shut its mind against any man’s ideas it calls him a foreigner.
+ - The tourist who moves about to see and hear and open himself to all the influences of the places which condense centuries of human greatness is only a man in search of excellence.
+ - If you mean by capitalism the God-given right of a few big corporations to make all the decisions that will affect millions of workers and consumers and to exclude everyone else from discussing and examining those decisions, then the unions are threatening capitalism.
+ - Of the many things we have done to democracy in the past, the worst has been the indignity of taking it for granted.
+ - American capitalism has been both overpraised and overindicted. It is neither the Plumed Knight nor the monstrous Robber Baron.
+ - The real sadness of fifty is not that you change so much but that you change so little.
+ - Man’s will creates the things that paralyze his brain and brutalize his heart.
+ - I have a simple principle for the conduct of life- never to resist an adequate temptation.
+ - We cannot live by power, and a culture that seeks to live by it becomes brutal and sterile. But we can die without it.
+ - The politics of surprise leads through the Gates of Astonishment into the Kingdom of Hope.
+ - Next to the striking of fire and the discovery of the wheel, the greatest triumph of what we call civilization was the domestication of the human male.
+ - Every step by which men add to their knowledge and skills is a step also by which they can control other men.
+ - Every mob, in its ignorance and blindness and bewilderment, is a League of Frightened Men that seeks reassurance in collective action.
+ - God is what man finds that is divine in himself. It is the best way man can behave in the ordinary occasions of life, and the farthest point to which man can stretch himself.
+ - Some of the more fatuous flag-waving Americans are in danger of forgetting that you can’t extract gratitude as you would extract a tooth; that unless friendship is freely given, it means nothing and less than nothing.
+ - What is dangerous about tranquillizers is that whatever peace of mind they bring is a packaged peace of mind. Where you buy a pill and buy peace of mind with it, you get conditioned to cheap solutions instead of deep ones.
+ - A politician wouldn’t dream of being allowed to call a columnist the things a columnist is allowed to call a politician.
+ - What counted was not the facts but the fears.
+ - The best thing about lying in bed late is that you learn to distinguish between first things and trivia, for whatever presses on you has to prove its importance before it makes you move.
+ - We demand of our political life greater certainty and greater perfection than we demand of our personal life.
+ - The problem of freedom in America is that of maintaining a competition of ideas, and you do not achieve that by silencing one brand of idea.
+ - It is not science that has destroyed the world, despite all the gloomy forebodings of the earlier prophets. It is man who has destroyed man.
+ - A President is best judged by the enemies he makes when he has really hit his stride.
+ - To reject the word is to reject the human search.
+ - A people’s speech is the skin of its culture.
+
+59 quotes

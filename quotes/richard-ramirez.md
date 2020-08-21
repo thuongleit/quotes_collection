@@ -1,0 +1,42 @@
+ - In the end, we all die, and nothing really matters.
+ - I gave up love and happiness a long time ago.
+ - I am beyond your experience. I am beyond good and evil, legions of the night – night breed – repeat not the errors of the Night Stalker and show no mercy.
+ - You don’t understand me. You are not expected to. You are not capable of it. I am beyond your experience.
+ - We are all evil in some form or another, are we not?
+ - Serial killers do, on a small scale, what governments do on a large one. They are products of our times and these are bloodthirsty times.
+ - You maggots make me sick, I will be avenged. Lucifer dwells within us all.
+ - Evil has always existed, the perfect world most people seek shall never come to pass and it’s gonna get worse.
+ - Even psychopaths have emotions. Then again, maybe not.
+ - I don’t believe in the hypocritical, moralistic dogma of this so called civilized-society.
+ - There’s blood behind the Night Stalker.
+ - I don’t need to hear all of society’s rationalizations. I’ve heard them all before and the fact remains that what is, is. You don’t understand me. You are not expected to. You are not capable of it.
+ - Violent delights tend to have violent ends.
+ - I love to kill people. I love to watch them die. I would shoot them in the head and they would wiggle and squirm all over the place, and then just stop. Or I would cut them with a knife and watch their faces turn real white. I love all that blood.
+ - Big deal, death comes with the territory. See you in Disneyland.
+ - We’ve all got the power in our hands to kill, but most people are afraid to use it. The ones who aren’t afraid, control life itself.
+ - Who’s to say what’s evil? A man’s beliefs are his own business. Neither the Church nor anybody else has the right to tell you how to act; that’s what real freedom is about: to be able to be who you really are, not what you are expected or supposed to be.
+ - A book I suggest to everybody is called, “Mysterious Stranger” by Mark Twain. It’s about Satan and his visit here. A good book.
+ - I was not aware of my actions. Everyone must find out who they are and be aware of their actions before they wind up in a vicious predicament.
+ - The media had portrayed me as a cold-hearted, ruthless monster, but I’m really not that way. I’m very down to earth. So, at that time I let people think whatever they wanted to. Tou see or hear about the crimes and then imagine what kind of individual was behind them.
+ - While anger and hate are two things some people can cope with, I cannot. My anger and hate grow to a level that I cannot live comfortably with it.
+ - I’m pretty set in my ways. I doubt anything short of a miracle would change me. I do have an open mind, and I listen to them.
+ - Normal, ordinary people do not think like a Serial Killer. They have no conception of what is going on in a killer’s mind, how he operates.
+ - I’ve killed 20 people, man. I love all that blood.
+ - What Satan means to me-Satan is a stabilizing force in my life. It gives me a reason to be; it gives me-an excuse to rationalize. There is a part of me that believes he really does exist. I have my doubts, but we all do, about many things.
+ - Satanists need to have more faith than Christians, because Christ was seen and felt. Lucifer has never felt the need to be seen, but in everyone’s soul he can be felt.
+ - One time I told this lady to give me all her money, she said no. So I cut her and pulled her eyes out. I would do someone in and then take a camera and set the timer so I could sit them up next to me and take our picture together.
+ - Everybody has got good and evil in them. I’d like to be 100% evil, but I can’t.
+ - Everyone plays a role and no one says what’s truly on their mind.
+ - I read suspense and horror, somethings that intrigue me. I have always been fascinated by death.
+ - My mother and father used to take me to church in Mexico and Texas, wer I used to live. The huge figures of saints and crucifixions. Religion played a big role in my life.
+ - Blood is the substance that allows any living thing to exist, but blood is blood. I have heard of people drinking each other’s blood. They cut each other, and they drink it and it’s supposed to be a euphoric feeling. But, blood has no special interest for me.
+ - And no one knows that better than those who kill for policy, clandestinely or openly, as do the governments of the world, which kill in the name of god and country or for whatever reason they deem appropriate.
+ - I lived a dangerous life. Stealing cars, I could have been shot. Robbing people, I could have been killed. Nothing in existence holds any terror for me. When I was sentenced to death, it didn’t hold anything for me.
+ - Going to the trial was very tiring for me, but I did enjoy it better than sitting in a jail cell. That could be very monotonous.
+ - I believe that most humans have within them the capacity to commit murder.
+ - I’ve been accused of almost every crime you can imagine.
+ - All the killings are going to be blamed on me.
+ - When the state comes to execute a man, they laugh. So do I.
+ - I was receiving so much negative publicity. I wasn’t going to give people the satisfaction of seeing me down.
+
+40 quotes

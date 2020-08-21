@@ -1,0 +1,75 @@
+ - Not one ounce of my self worth depends on your acceptance of me.
+ - Every day, my daddy told me the same thing. ‘Once a task is just begun, never leave it till it’s done. Be the labour great or small, do it well or not at all.’
+ - I learned real early why God gave us two ears and one mouth, because you’re supposed to listen twice as much as you talk.
+ - Greatness occurs when your children love you, when your critics respect you and when you have peace of mind.
+ - Music in movies is all about dissonance and consonance, tension and release.
+ - The process is the most beautiful part.
+ - If architecture is frozen music then music must be liquid architecture.
+ - I was reading Omar Khayyam, Kahlil Gibran, Rumi, L. Ron Hubbard, all sorts of philosophy. Bebop cats are like that. Curious. I wanted to know about everything.
+ - Excellence isn’t an act, it’s a habit.
+ - The act of multitrack recording is the act of arranging.
+ - You Make Your Mistakes To Learn How To Get To The Good Stuff.
+ - I’ve always thought that a big laugh is a really loud noise from the soul saying, “Ain’t that the truth.”
+ - Let’s not get too full of ourselves. Let’s leave space for God to come into the room.
+ - Playing the game, and unfortunately, playing the gangster game is very profitable.
+ - Imagine what a harmonious world it could be if every single person, both young and old shared a little of what he is good at doing.
+ - A lot of the guys were like that – Oscar Pettiford – they just took me under their wing, and that’s why I automatically help young people. I just love it, because they did that for me.
+ - Billy Strayhorn wrote Multicolored Blue. Billy to me is the boss of the arrangers.
+ - I got in the school band and the school choir. It all hit me like a ton of bricks, everything just came out. I played percussion for a while, and stayed after school forever just tinkering around with different things, the clarinets and the violins.
+ - Hell, nobody knows where jazz is going to go. There may be a kid right now in Chitlin Switch, Georgia, who is going to come along and upset everybody.
+ - The climate in the ’50s and ’60s for black performers or black people in the entertainment business was atrocious. It was atrocious.
+ - Arts is just as important as military defense, you know? Emotional defense is just as important.
+ - I’m a great believer in letting lyrics just flow out, wherever they come from.
+ - My son is a hip-hop producer.
+ - I tell my kids and I tell proteges, always have humility when you create and grace when you succeed, because its not about you. You are a terminal for a higher power. As soon as you accept that, you can do it forever.
+ - I got a scholarship to Seattle University and I was writing arrangements for singers and everybody. But the music course was too dry and I really wanted to get away from home.
+ - When you’re over the hill, that’s when you pick up speed.
+ - My grandmother had this high-tech security system – a rusty nail she used to lock the door.
+ - It was messed up, because in 1947 my family moved to Seattle and I had to get up at 5:00 o’clock in the morning to catch the ferry back to Bremerton every morning because I was Boys Club president.
+ - Some summers my father would take us down to visit our grandmother in Louisville, who was an ex-slave, Susan Jones, and she had a shotgun shack they call it, and no electricity, a well in the back, a coal stove, kerosene lamps.
+ - You can study orchestration, you can study harmony and theory and everything else, but melodies come straight from God.
+ - I was raised in Chicago and I guess that was one of the special breeding grounds for gangsters of all colors. That was the Detroit of the gangster world. The car industry was thugs.
+ - I was married for 36 years but now I’m free.
+ - I started imagining this whole different world. It was a society of musicians, a family I hoped I could belong to one day.
+ - It’s the attitude about life, man. Looking at the light instead of the dark. Looking at love instead of fear.
+ - Eight kids and a stepmother, and I just wanted to be out of there and so when I got a scholarship from Boston to the Schillinger House, which is now the Berklee School of Music, I couldn’t wait to get out of there.
+ - I found this out over the years, that racism is a thinly veiled disguise over economics and money. It really is.
+ - A bad song, the three best singers in the world cannot save it, and that’s the bottom line.
+ - Editing while you’re writing is like strangling the baby in the crib.
+ - I don’t deserve a Songwriters Hall of Fame Award. But fifteen years ago, I had a brain operation and I didn’t deserve that, either. So I’ll keep it.
+ - A person’s age can be determined by the degree of pain he experiences when he comes in contact with a new idea.
+ - I’m just a musician and a record producer.
+ - Young people should travel, and they don’t. You can’t know if you don’t go.
+ - Every country can be defined through their food, their music and their language. That’s the soul of a country.
+ - You cannot get an A if you’re afraid of getting an F.
+ - When I was about five or seven years old my mother was placed in a mental institution and so we were with our father who worked very hard, and we had to figure a lot of things out.
+ - The only music I don’t like is bad music.
+ - Everybody has their idiosyncrasies.
+ - A great song can make a terrible singer sound good, but a good singer – you put a great song on top of that, you’re really in great shape!
+ - If I don’t have a mother, I’ll let music be my mother.
+ - If you started in New York you were dealing with the biggest guys in the world. You’re dealing with Charlie Parker and all the big bands and everything. We got more experience working in Seattle.
+ - You have to know that your real home is within.
+ - Making a record is like painting a school bus with a toothbrush.
+ - Count Basie practically adopted me at 13. We became closer and closer and I ended up conducting for him and Sinatra.
+ - We were in the heart of the ghetto in Chicago during the Depression, and every block – it was probably the biggest black ghetto in America – every block also is the spawning ground practically for every gangster, black and white, in America too.
+ - A song should have all the color and beauty of every rose.
+ - China’s got a billion people and a hit record over there is a million records. You know that ain’t right.
+ - Imagine what a harmonious world it...
+ - I’ve met every freak in the business.
+ - It’s amazing how much trouble you can get in when you don’t have anything else to do.
+ - After every war, there was a significant change in the music, and I can understand how that happened. If you participate in protecting the country, you think you can be part of it, but you come back home and it’s worse than ever.
+ - My earliest memories are being pinned to a fence with a switchblade.
+ - We got into all the trouble you could ever imagine. We figured that if the Jones boys and all the gangsters ran Chicago, we had our own territory now. All the stores, all the crime, we were in charge of everything, my stepbrother and my brother.
+ - It’s easy to get next to music theory, especially between your peers and music classes and so forth. You just pay attention. I had a good ear, so I realized that printed music was just about reminding you what to play.
+ - All guys get into music because they love music and they also want to get the girls.
+ - We stole a box of honey jars one time and went out in the woods and took care of the whole box. I don’t think I touched honey again for 20 years. I never wanted to see honey again.
+ - I’m never in my life going to do a record that’s a tribute to myself. I don’t need it.
+ - I’d been in love before – I was always in love.
+ - I never felt like I had a mother.
+ - I was the most subtle person in the world.
+ - I don’t remember feeling love.
+ - I’m a tremendous believer and supporter in hip-hop and rap.
+ - I guess hip-hop has been closer to the pulse of the streets than any music we’ve had in a long time. It’s sociology as well as music, which is in keeping with the tradition of black music in America.
+ - I went with Lionel Hampton for three years. Out of that came a trip to Europe.
+
+73 quotes

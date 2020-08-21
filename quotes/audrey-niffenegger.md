@@ -1,0 +1,88 @@
+ - I won’t ever leave you, even though you’re always leaving me.
+ - I go to sleep alone, and wake up alone. I take walks. I work until I’m tired. I watch the wind play with the trash that’s been under the snow all winter. Everything seems simple until you think about it. Why is love intensified by abscence?
+ - We laugh and laugh, and nothing can ever be sad, no one can be lost, or dead, or far away: right now we are here, and nothing can mar our perfection, or steal the joy of this perfect moment.
+ - It’s dark now and I am very tired. I love you, always. Time is nothing.
+ - Love the world and yourself in it, move through it as though it offers no resistance, as though the world is your natural element.
+ - What we need,? Henry says, ’is a fresh start. A blank slate. Let’s call her Tabula Rasa.
+ - There is only one page left to write on. I will fill it with words of only one syllable. I love. I have loved. I will love.
+ - Don’t you think it’s better to be extremely happy for a short while, even if you lose it, than to be just okay for your whole life?
+ - Sleep is my lover now, my forgetting, my opiate, my oblivion.
+ - Chaos is more freedom; in fact, total freedom. But no meaning. I want to be free to act, and I also want my actions to mean something.
+ - My family isn’t posh; they’re musicians.
+ - When the woman you live with is an artist, every day is a surprise.
+ - The compelling thing about making art – or making anything, I suppose – is the moment when the vaporous, insubstantial idea becomes a solid there, a thing, a substance in a world of substances.
+ - Maybe I’m dreaming you. Maybe you’re dreaming me; maybe we only exist in each other’s dreams and every morning when we wake up we forget all about each other.
+ - I keep myself busy. Time goes faster that way.
+ - Home sweet home. No place like home. Take me home, country roads. Home is where the heart is. But my heart is here. So I must be home. Clare sighs, turns her head, and is quiet. Hi, honey. I’m home. I’m home.
+ - I sit quietly and think about my mom. It’s funny how memory erodes, If all I had to work from were my childhood memories, my knowledge of my mother would be faded and soft, with a few sharp memories standing out.
+ - Why is love intensified by absence?
+ - I’m sorry. I didn’t know you were coming or I’d have cleaned up a little more. My life, I mean, not just the apartment.
+ - Everything seems simple until you think about it.
+ - Think for a minute, darling: in fairy tales it’s always the children who have the fine adventures. The mothers have to stay at home and wait for the children to fly in the window.
+ - He looks sad. Or maybe that’s just how he looks when he isn’t doing something else with his face.
+ - But as usual there’s no answer to this. As usual, that’s just how it is.
+ - Listen, sometimes when you finally find out, you realize that you were much better off not knowing.
+ - I place my hands over her ears and tip her head back, and kiss her, and try to put my heart into hers, for safekeeping, in case I lose it again.
+ - I never understood why Clark Kent was so hell bent on keeping Lois Lane in the dark.
+ - I am suddenly comsumed by nostalgia for the little girl who was me, who loved the fields and believed in God, who spent winter days home sick from school reading Nancy Drew and sucking menthol cough drops, who could keep a secret.
+ - Our love has been the thread through the labyrinth, the net under the high-wire walker, the only real thing in this strange life of mine that I could ever trust.
+ - I think about my mother singing after lunch on a Summer afternoon, twirling in blue dress across the floor of her dressing room.
+ - Sometimes I’m happy when he’s gone, but I’m always happy when he returns. -Clare.
+ - When we met I was wrecked, blasted, and damned, and I am slowly pulling myself together because I can see that you are a human being and I would like to be one, too.
+ - There’s always world enough, and time.
+ - In the dim light of the computer screen he seemed otherworldly; Julia thought him beautiful, though she knew it was the beauty of damage.
+ - Time passes and the pain begins to roll in and out as though it’s a woman standing at an ironing board, passing the iron back and forth, back and forth across a white tablecloth.
+ - Each moment that I wait feels like a year, an eternity. Each moment is as slow and transparent as glass. Through each moment I can see infinite moments line up, waiting. Why has he gone where I cannot follow?
+ - I’m living under water. Everything seems slow and far away. I know there’s a world up there, a sunlit quick world where time runs like dry sand through an hourglass, but down here, where I am, air and sound and time and feeling are thick and dense.
+ - I don’t want to boss anyone and I don’t want to be bossed.
+ - Do you ever miss him? Every day. Every minute. Every minute, she says. Yes, it’s that way, isn’t it?
+ - I have a sort of Christmas-morning sense of the library as a big box full of beautiful books.
+ - The pain has left but I know that it has not gone far, that it is sulking somewhere in a corner or under the bed and it will jump out when I least expect it.
+ - He was not in the house. He did not come back that night. Days went by, and at last she understood that he would not return at all.
+ - I wish for a moment that time would lift me out of this day, and into some more benign one. But then I feel guilty for wanting to avoid the sadness; dead people need us to remember them, even if it eats us, even if all we can do is say “I’m sorry” until it is as meaningless air.
+ - There was only the cemetery itself, spread out in the moonlight like a soft grey hallucination, a stony wilderness of Victorian melancholy.
+ - There are several ways to react to being lost. One is to panic: this was usually Valentina’s first impulse. Another is to abandon yourself to lostness, to allow the fact that you’ve misplaced yourself to change the way you experience the world.
+ - I hate to be where she is not, when she is not. And yet, I am always going. – Henry deTamble.
+ - I wanted someone to love who would stay: stay and be there, always.
+ - My apartment is basically a couch, an armchair, and about four thousand books.
+ - Clare seems so pleased with the idea of me as a pirate that she forgets that I am Stranger Danger.
+ - That’s what alcoholics do. It’s in their job description: fall apart and then keep falling apart.
+ - Is it sad to fancy David Tennant when you’re dead?
+ - You’re the oddest person I’ve ever met, you couldn’t get rid of me if you tried.
+ - I’m bored with knitting. I’ve taken up arson.
+ - We are often insane with happiness. We are also very unhappy for reasons neither of us can do anything about. Like being separated.
+ - I sometimes end up in dangerous situations, and I come back to you broken and messed up, and you worry about me when I’m gone. It’s like marrying a policeman.
+ - I still feel like a castaway, th elast of a once numerous species. It was as though Robinson Crusoe discovered the telltale footprint on the beach and then realized that it was his own. Myself, small as a leaf, thin as water, begins to cry.
+ - When it’s over you look up: the world looks the same but you are somehow different and that feeling lingers for days.
+ - He is coming, and I am here.
+ - I breathe slowly and deeply. I make my eyes still under eyelids, I make my mind still, and soon, Sleep, seeing a perfect reproduction of himself, comes to be united with his facsimile.
+ - Each spine was an encapsulated memory, each book represented hours, days of pleasure, of immersion into words.
+ - That’s the thing about living vicariously; it’s so much faster than actual living. In a few minutes we’ll be worrying about names for the children.
+ - I told Ing once that she dances like a German and she didn’t like it, but it’s true: she dances seriously, like lives are hanging in the balance, like precision dancing can save the starving children of India.
+ - I look at him, look at the book, remember, this book, this moment, the first book I ever loved.
+ - Every minute of his life since then has been marked by her absence, every action has lacked dimension because she is not there to measure against. And when I was young I didn’t understand, but now, I know, how absence can be present, like a damaged nerve, like a dark bird.
+ - My reflection in the mirror shows me pink and puffy. I thought pregnant women were to supposed to glow. I am not glowing.
+ - I think play must have been invented so we wouldn’t go mad thinking about certain things.
+ - You can still be cool when you’re dead. In fact, it’s much easier, because you aren’t getting old and fat and losing your hair.
+ - But you make me happy. It’s living up to being happy that’s the difficult part.
+ - When somebody is that patient, you have to feel grateful, and then you want to hurt them. Does that make any sense?
+ - The cure might be worse than the problem.
+ - It was silly, wasn’t it? But the singing made it not silly.
+ - CLARE: The library is cool and smells like carpet cleaner, although all I can see is marble.
+ - But you know: you know that if I could have stayed, if I could have gone on, that I would have clutched every second: whatever it was, this death, you know that it came and took me, like a child carried away by goblins.
+ - It’s funny how we like labels. If I ever have a bookstore, I’m not going to put any labels on the sections.
+ - What is more basic than the need to be known? It is the entirety of intimacy, the elixir of love, this knowing.
+ - He said something interesting: he said that he thinks there is only free will when you are in time, in the present. He says in the past we can only do what we did, and we can only be there if we were there.
+ - And Clare, always Clare.
+ - He thanked her and left the house in the mood of a shipwrecked man who has allowed the rescue ship to pass him by.
+ - I guess no matter what your family is like, you’re not surprised.
+ - I feel that I an everything to her.
+ - I’ve noticed that Henry needs an incredible amount of physical activity all the time in order to be happy. It’s like hanging out with a greyhound.
+ - He would say her name over and over until it devolved into meaningless sounds – mah REI kuh, mah REI kuh – it became an entry in a dictionary of loneliness.
+ - Now I wonder if it means that the future is a place, or like a place, that I could go to; that is go to in some way other than just getting older.
+ - I love. I have loved. I will love.
+ - He had never realized, while Elspeth was alive, the extent to which a thing had not completely happened until he told her about it.
+ - Henry loves my hair almost as though it is a creature unto itself, as though it has a soul to call its own, as though it could love him back.
+ - The engagement ring is an emerald, and the dim light from the window is refracted green and white in it. The rings are silver, and they need cleaning. They need wearing, and I know just the girl to wear them.
+
+86 quotes

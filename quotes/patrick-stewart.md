@@ -1,0 +1,54 @@
+ - We’ve made too many compromises already; too many retreats. They invade our space and we fall back. They assimilate entire worlds and we fall back. Not again! The line must be drawn here! This far, no further! And I will make them pay for what they’ve done!
+ - Violence is a choice a man makes and he alone is responsible for it.
+ - I wouldn’t know a space-time continuum or warp core breach if they got into bed with me.
+ - I would like to see us get this place right first before we have the arrogance to put significantly flawed civilizations out onto other planets, even though they may be utterly uninhabited.
+ - Whenever the lion fish in the fish tank in the captain’s ready room died it was always a sad moment.
+ - I’ve often reflected on this in the past weeks as I’ve been following the presidential campaign: Very often, I thought it would have been great for both of these guys to sit down and be force-fed a couple of dozen episodes of Star Trek.
+ - I saw Waiting for Godot when I was 17 in rep with a then unknown actor called Peter O’Toole playing Vladimir. I remember leaving the theatre promising myself that one day I would have a go at this play and then pretty much forgot it for 50 years.
+ - I am told that there have been over the years a number of experiments taking place in places like Massachusetts Institute of Technology that have been entirely based on concepts raised by Star Trek.
+ - As time went on, I did campaign to lighten the character a little bit, to introduce some romance into the episodes, outside activities, horse riding and fencing and mountaineering.
+ - I certainly wanted to maintain some sense of mystery about Picard and that’s why we never allowed certain situations to fully evolve, like the relationship between Picard and Beverly Crusher.
+ - At 12 years old in the dangerous world that I was in, with a very difficult home life, I found the stage was the safest place to be. It was predetermined and predictable – and furthermore you got to be someone else. All the problems only began when you left the building.
+ - Violence is never ever a choice that a man should make.
+ - I wasn’t campaigning for a role in a Hollywood television series, it was a fluke. So you’ve got to have a measure of good luck, you really have, being in the right place at the right time.
+ - I was brought up in a very poor and very violent household. I spent much of my childhood being afraid.
+ - So far as education is concerned, it has had a significant impact on a lot of young people who turn to science as a much more exciting and interesting study than they otherwise might have found, entirely as a result of becoming involved with Star Trek.
+ - It still frightens me a little bit to think that so much of my life was totally devoted to Star Trek and almost nothing else.
+ - We’ve heard from many teachers that they used episodes of Star Trek and concepts of Star Trek in their science classrooms in order to engage the students.
+ - Comedy today is not what it was years ago. It’s always changing, in particular to female comics. No longer are certain subjects considered to be a male preserve. Women can talk about sexuality and their bodily functions and it can be very, very entertaining. It’s changed the impact of comedy acting.
+ - I began directing episodes, which was a great light every couple of months. We never short-changed our audience, but it became something that you had to work at rather than something that was a pleasure.
+ - I do what I do in my mother’s name because I couldn’t help her then. Now I can.
+ - As the captain, I was going to be having the dominant role in most of the episodes, and that was appealing. I wasn’t interested in coming to Hollywood to sit around.
+ - There’s no such thing as “just a domestic”.
+ - If someone says ‘Give me one word of advice,’ I say ‘be fearless.’ And knowing without any shadow of a doubt that what they have to give – who they are – is totally unique and not shared by anybody else. And to believe in that uniqueness. It took me decades before I developed courage as an actor.
+ - What identifies an individual as a king is how other people behave towards him. All authority is assumed, and if other people don’t accept your authority then you don’t have it. Perhaps the critical thing to being a convincing figure of authority is actually not to try too hard.
+ - I like things that are funny – in everyday conversation, in incidents that you see, in watching TV or watching film. Comedy has always had an impact on my life.
+ - One day, out of irritation, I said, you know all of those years with the Royal Shakespeare Company, all those years of playing kings and princes and speaking black verse, and bestriding the landscape of England was nothing but a preparation for sitting in the captain’s chair of the Enterprise.
+ - The studio have always claimed that the ship is the star of the show, especially when they’re renegotiating contracts.
+ - For seven years I did very little theatre, and I have to make up some time.
+ - Violence against women is learned. Each of us must examine – and change – the way in which our own behavior might contribute to, enable, ignore or excuse all such forms of violence. I promise to do so, and to invite other me and allies to do the same.
+ - Roddenberry had created quite a complex and at times mysterious character. Guarded, cautious, careful in showing his feelings in expressing his ideas about many things – I found that very interesting.
+ - During the course of the seven years I played scenes with an oil slick, I played a scene with a grain of rice. Sometimes with indescribable creatures. I remember having a conversation with something which was simply a smell, that’s all. It was part of our job.
+ - But as I grew up as a child, falling in love with the theater and Shakespeare, my heroes were Sir Laurence Olivier and Sir John Gielgud.
+ - I made a promise to myself that I would try to introduce something unexpected in every single episode of the series. It was largely to amuse myself as much as anything. I didn’t ever want the audience to feel that they knew everything.
+ - Having spent so much of my life with Shakespeare’s world, passions and ideas in my head and in my mouth, he feels like a friend – someone who just went out of the room to get another bottle of wine.
+ - It’s not just an exclamation, but it’s a rejection of everything to do with Christmas, with the spirit of Christmas, with gift-giving, with generosity.
+ - William Shatner has one style. We have completely contrasting personalities. We’re very good friends. I adore him, but we’re very different people, so they were smart enough to write characters that reflected that.
+ - I think I came back from America a funnier and nicer person than I went.
+ - I am not the archetypal leading man. This is mainly for one reason: as you may have noticed, I have no hair.
+ - The knights of the theater represented to me not only the pinnacle of the profession but the esteem in which the profession was held. To find myself, to my astonishment, in that company is the grandest thing that has professionally happened to me.
+ - Tom Hanks knows the name of all the episodes.
+ - Where can I go that would give me the same level of satisfaction as an actor?
+ - Laurence Olivier said if you have ambition to be a serious classical actor, you must be as fit as an athlete. For me, the breakthrough was going to live in California. I exercised. I drank less. It was one of the things about California that had a positive impact on me.
+ - Creating a believable world on the ship was very important, and technically they got better and better and better at showing the ship too.
+ - I don’t do impersonations. I can do a wounded elephant! I can do a really good cow! And because of the amount of time I spent in North Yorkshire, I do a variety of sheep. All of which I will be happy to roll out for you!
+ - The only still center of my life is Macbeth. To go back to doing this bloody, crazed, insane mass-murderer is a huge relief after trying to get my cell phone replaced.
+ - One of the things that I’ve come to understand is that as I talk a lot about Picard, what I find is that I’m talking about myself.
+ - I’ve met actors where you think, if only you could just clean up your act and get it together, people would want to work with you. Some people are so difficult, it’s just not worth working with them.
+ - I came to feel very, very sentimental about those sets, which is ludicrous, because they represent everything which is transitory and insubstantial. It’s absurd that one should feel sentimental about timber and canvas.
+ - You get all of your neuroses worked out on stage. I haven’t actually played very many nice characters, certainly not on stage. It’s not a quality that attracts me.
+ - During my time we had two chairman of the joint chiefs of staff, at different times of course, on the bridge, both of whom asked my permission to sit on the captain’s chair.
+ - I was just excited by the whole prospect of working in a television series in Hollywood. I had never anticipated that as an actor I would ever end up here. It may be some sort of fantasy I’d thought about from time to time, but it was completely unrealistic.
+ - Encouraging people to believe in it was the most important thing of all. It’s one of the reasons I was always uncomfortable whenever film crews came on the set to shoot things. I didn’t want our make-believe to be exposed.
+
+52 quotes

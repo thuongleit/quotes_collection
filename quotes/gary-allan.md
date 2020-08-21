@@ -1,0 +1,23 @@
+ - Every storm runs out of rain, just like every dark night turns into day.
+ - Every storm runs out of rain.
+ - Struggles make you stronger and the changes make you wiser and happiness has its own way of taking its sweet time. Life isn’t always lovely, but it’s a beautiful ride.
+ - I think you need to do something new to keep reinventing yourself.
+ - No matter who you meet in life, you take something from them, positive or negative.
+ - When you take other people’s opinions, you end up flailing and you have no center.
+ - And happiness has it’s own way of taking its sweet time.
+ - Life aint always beautiful, but its a beautiful ride.
+ - I’ll take lying in your arms tonight over and above any love I’ve known. Memories may find me, but they’ll always be behind me. I’ll take today over yesterday, anyday.
+ - I’m really private, and also, when I’m home, I’m home. I don’t like people in on my business. I believe that you can be overexposed.
+ - I don’t want to hear songs about how sunshiny things are. I don’t like songs that feel like radio candy I like the ones that make you think, laugh or cry – they pull some kind of emotion out of you.
+ - If you date a musician, you’re never, ever really gonna be first either. You’re gonna be right behind the music and maybe right close.
+ - If you come on my property, I’ve got you from the second that you enter on. There’s little lasers my TVs come on in my room and fall just right on you. So, there’s no way to sneak up on me. And I’ve got a loud dog.
+ - I am so anti-people’s opinions when I’m making a record, but when it’s finished and I put it out there, I hope somebody likes it.
+ - I try to write relevant songs about life and whatever I’m going through and whatever people are going through.
+ - My whole back’s tattooed. I just wanted a twist. I was always in punk bands when I was little I think that’s where the tie comes from.
+ - It’s always performing for me. I write and I record so I can perform. It all ties to that. I’ve done it since I was a little kid. That’s my absolute rush, is playing for different people every night, bringing something else to the table they’ve never seen.
+ - Everything about the music industry takes away from you as an artist. They’re always wondering what the next thing is: ‘What do you have?’ It’s a very introverted process.
+ - I love the road. That’s always been my goal. I’ve said that to many record labels. I want to make records. The road is my favorite. Some people hate the road, I love the road.
+ - If you’re truly in a band and you guys have been together for a long time, there’s a family bond that you have. In fact, I’ve talked about this with therapists, especially if you’re talking about a relationship, because when you’re with somebody, you’re going to your family, and she’s alone.
+ - I’ve never listened to an album once I’ve finished it. All I hear is what I should’ve done different. I beat myself up over it.
+
+21 quotes

@@ -1,0 +1,49 @@
+ - I ain’t as good as I once was, But I’m as good once as I ever was.
+ - I will do my duty no matter what the price, I’ve counted up the cost, I know the sacrifice. Oh, and I don’t want to die for you, but if dying is asked of me, I’ll bear that cross of honor cause freedom don’t come free.
+ - Hate me if you want to, love me if you can.
+ - Grandpappy told my pappy, back in my day son, a man had to answer for the wicked he done. Take all the rope in Texas, find a tall oak tree, round up all the bad boys, and hang them in the streets for all the people to see.
+ - My mind is cautious but my heart is in a hurry.
+ - And yet this is farther than I’ve ever fell; You know me much too well. Funny it don’t feel like we just met. It didn’t take much time. Forever’s more than crossed my mind, and we haven’t even said ‘I love you’ yet.
+ - Burning up the phone until there’s nothing left to say, so I lay here and just listen to you breathe. Girl you know it’s only been a week since our first date-back when you were just a stranger to me. I’ve never let another in so soon.
+ - I’d catch moonlight in a bottle, if we could drink a toast to happiness.
+ - Don’t compromise even if it hurts to be yourself.
+ - We ain’t got a lot, but we don’t need anything. Covered in kisses, surrounded by love, showered with blessings from up above.
+ - You’ve got my heart in unfamiliar territory. It’s never been out here on my sleeve. But here tonight with you it’s quite a different story. You bring out a side of me no one has ever seen.
+ - Everybody should have their own thing, and if he don’t want to be a role model, that should be up to him. In the right situations, I can try to help and be a role model, but I’m still gonna speak my mind, and if that affects the role-model deal, then too bad.
+ - I sobered up and I got to thinking, girl, you ain’t much fun since I quit drinking.
+ - A little blue-eyed blonde in a red hot sweater, wants to spice my chili, I think I’ll let her.
+ - I say if you’re going to take a chance on something, you just go full balls to the wall.
+ - My daddy served in the army where he lost his right eye, but he flew a flag out in our yard until the day that he died. He wanted my mother, my brother, my sister and me, to grow up and live happy in the land of the free.
+ - A sucker punch came flying from somewhere in the back. As soon as we can see clearly with our big black eye, we’re going to light up your world like the fourth of July.
+ - It’s time the long arm of the law put a few more in the ground, send them all to their maker and he’ll settle them down.
+ - Raise up your glasses against evil forces; Whiskey for my men, beer for my horses.
+ - Somebody said they seen her heading out of town, now she ran away with a rodeo clown.
+ - Kids on the Youtube, learning how to be cool.
+ - My mom taught us the Serenity Prayer at a young age.
+ - Where did I surrender, can you tell me how and when. I’m the one who’s always in control. Leading with my heart like there is nothing to defend as I lay it all out on the line body and soul. I’ve never let another in so soon.
+ - If I hear a conversation and somebody says something intriguing, my first thought is, Is that a song? I write all year long, and at the end of the year I pull these forty or fifty things out and say which of these things do I want to record.
+ - I’ve always said I can’t tell sometimes that people even have an album out until I see them nominated for a Grammy. I think country gets dumped on across the board by the Grammys.
+ - Justice is the one thing you should always find.
+ - I’m not the kind of man that holds out on a need for nothing. I’m as lonely as any man around, I just don’t like to pick ’em up and lay ’em down.
+ - There ain’t no justice, laws of nature rule this land. Better hide your horses, bury your whiskey.
+ - So as far as leadership and patriotism goes, I think it’s really important that those things have to take place. And I think he’s the best Democratic candidate we’ve had since Bill Clinton. And that’s coming from a Democrat.
+ - Here’s the thing. Just because you’re pro-troops doesn’t mean you’re pro-war. And just because you’re anti-war doesn’t mean you’re anti-troops. Just because you don’t support the war people think you are anti-troops and you are a bad guy.
+ - Don’t apologize for being patriotic. Support the troops.
+ - Writing is not work. In fact, theres nothing better. Writing is something that if the music business went completely away tomorrow – radio stations quit existing and music quit being popular and it was old hat – I would still write songs.
+ - I was raised in bars. My grandmother had one, and when I was 12 years old I’d go stay with her and that’s where I got to watch her band play – she had a seven or eight-piece band, and I would sit in the kitchen and peek through the door. I was kind of a 12-year-old bottle washer.
+ - Things use to be real nice, til they got out of hand. Since they moved in, they call themselves the Taliban.
+ - You know, I’m pro-troops, but I’m not pro-war.
+ - When I came to DreamWorks, I was in bad trouble. They were in bad trouble. They were millions of dollars in the hole and a few days from closing their doors. I was on my last leg.
+ - I write all year, and at the end of the year I put an album out. And if sucks, it sucks, and if it’s good, it’s good. I just let it lay where it lays. It doesn’t stop from doing another one next year.
+ - There’s something I’m afraid to say to you too early, but I’d be a fool to wait too late.
+ - That’s more along what the story is, as opposed to me being onstage singing.
+ - Well, I couldn’t do the day-to-day stuff of being a politician or anything, but I just think everybody should have an opinion and everybody should vote, and that’s what we’re built on.
+ - Writing songs and looking for ideas is like blinking my eyes. It’s an involuntary muscle. I do it without thought.
+ - My deal will always be one solo performance-nominated or not. Not some thrown together rock tribute.
+ - I’m as strong, strong as I can be, but ooh ooh ooh, baby you leave me weak.
+ - There’s some nights I can’t remember with friends I can’t forget.
+ - My first gig, I was about 17 or 18. But I’d been singing a long time. I got a guitar when I was 8, and started trying to write songs as a teenager.
+ - I have drawn a very close bond to all the military people.
+ - Somebody’s sexual preference is, like, who cares?
+
+47 quotes

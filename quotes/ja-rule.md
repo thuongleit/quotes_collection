@@ -1,0 +1,59 @@
+ - Nobody loves me. Sometimes I wish God could come down and hug me.
+ - Broke with nothing to live for and damn ready to die young. I’m the shadow behind the gun, look what I’ve become.
+ - I love music; it’s my passion.
+ - I won’t cry cause I live to die, with my mind on my money and my guns in the sky.
+ - I believe in God and a higher power. I’m still not the religious type per se because religion tore my family apart. I’m still a little scared and skeptical being one with any faith.
+ - There is only one me.
+ - Word to God, we murderers.
+ - The rules, religion to religion that man set forth, made me shy away from religion and have my own one on one with God and cut out the middleman.
+ - Cold hearts don’t bleed. Still they pray for eternity, never seeing tomorrow.
+ - Kill us today or you’ll have to kill us tomorrow.
+ - I’m a keep running through the red light living my life.
+ - If pain is truly love, for my family I die.
+ - Right now, I’m pro-leave beef alone. Big shout-out to all the vegetarians who don’t want beef!
+ - I came into the rap game in 1992; my life was changing, but my group wasn’t successful; I also saw the biggest rappers in the world die all of a sudden in the ensuing years, so it was a matter of conquering yourself before you can conquer the world.
+ - I stopped going to Kingdom Hall, the church, when I was 11 years old, so I was very young. They don’t celebrate birthdays, you get no Christmas, so it’s a very difficult religion for children to get into. And they do a lot of finger-pointing among the Jehovah’s Witnesses.
+ - I love to see my family together. That’s what life is about. It’s about family.
+ - I’m still waiting for the Lord to come hug me.
+ - My family was Jehovah’s Witnesses, which is a really tough religion. It kind of deterred me from religion for a long time. They still practice, but I don’t. But I always remained spiritual, and had a belief that there is a God. I’m trying to find my way, you know?
+ - I believe in God and not religion, because I believe religion is the double cross. Because I’ve been double crossed by three religions, so I think I can safely say that religion – there is maybe something wrong with religion. Every temple that’s put up may not be a holy one, so watch out.
+ - I don’t want people to get confused. I’m not going to be putting out a gospel album.
+ - I think it’s time that we all be there for the children, to learn from the ones who came before us, and to teach our sons and daughters to have respect for themselves. Break the cycle.
+ - I feel like unforgiveness, bitterness and resentment, it blocks the flows of God’s blessings in life.
+ - After doing two years in prison, trust me, I’ve seen a lot of tough guys pray. They’re not just praying for themselves; they’re praying for their family and the people they’ve let down.
+ - I’m an adrenaline guy. I like to do stuff that gets my blood pumping, like roller coasters or jumping out of planes. I’m into all that crazy stuff.
+ - I’m married, I have three children, I never hit my wife.
+ - People think being famous is so glamorous, but half the time you’re in a strange hotel room living out of a suitcase.
+ - There’s always something going on on movie sets. Even just from, you know, maybe you come in tired some days and you’re not in your best mood. It’s different when you’re shooting movies because you’re on a schedule and you gotta come with your A-game every day.
+ - As far as religion goes, I feel like everyone should have their own one-on-one with God.
+ - Right now I’m on my God flow, you know what I mean? I got Job 1:21 tattooed on my chest.
+ - I think I wanna do some action stuff down the road. I wanna kill some aliens. Something real fun, you know? Just a big, fun movie.
+ - I knew I wanted to be successful in some form or fashion. My first dreams and aspirations of being successful was probably that I wanted to be a successful drug dealer. I wanted to be Nino Brown. That was my first dream.
+ - The best decision I ever made, period, was to get into the music business.
+ - Being incarcerated is truly very serious, and it has changed my life to such an extent that breaking the cycle has become my sole focus. Jail is definitely not cool. Education is.
+ - Prison has humbled me in a lot of ways, because when you go to prison, I became 11 R 2024 you know, I wasn’t Ja Rule the superstar. I wasn’t any of that. I was just a regular inmate.
+ - And she’s feeling like her worth is between her legs.
+ - I got a cold feeling toward religion in general. I don’t think God would want to separate families.
+ - I get mad quick and and go off at the handle quick.
+ - As far as rap goes, I grew up in Hollis, Queens, so early influences were people like Run DMC and LL Cool J.
+ - It’s always good to be working.
+ - Because you know, we live in an era now where everything is pushed. We live in a push world where everything gets pushed to you. It’s like, I don’t have to wait for you to send it to me, I’ll go get it off the Internet. So it was difficult to be back in that sort of situation. But it was cool.
+ - I’ve always been a spiritual person who believed in a Higher Power. So, I’ve always had my 1-on-1 with God, even if I wasn’t much of a religious person.
+ - I wanted to go into prison and come out a better person – mentally, physically. So, I read a lot of books, got my GED while I was in there, and worked out every day. Strong body, strong mind.
+ - Galley Molina’s a great inspiration and role model for a lot of young kids out there.
+ - When you go to jail, there’s so much simple stuff missing. You just want some good toilet paper or a real toothbrush, a real blanket and a real bed to lay in.
+ - I just like music that I can relate to, something to listen to in my car.
+ - I got started in 1995, working in a group called The Cash Money Click.
+ - These companies are in it for their dollars, and whatever is hot that is what they follow.
+ - Every religion there’s something foul going on.
+ - That’s the unwritten rule in hip-hop. If I get on a record with you, I want to smash you. That’s it. Every MC knows that. If I’m on a track with you, I want to be the best on the track. That’s just how it is in hip-hop.
+ - I’ve done a lot of films that all have been pretty edgy.
+ - My role now is as an artist and as a mogul to inspire and give others opportunities.
+ - Who made these laws? That’s what I want to know. So that’s why I wear two crosses now. I call it double cross. I believe in God-not religion.
+ - I’ve signed a few sneakers in my day.
+ - The public makes it so that we have to keep assaulting each other.
+ - I went through a lot of phases and studied many religions. I am not into religion, I am spiritual.
+ - Be very nervous of the shaky hands.
+ - Film and TV and stuff like that was something that I wanted to do when I was really, really little; like, I remember I used to do these plays with my cousins. We used to do Michael Jackson performances, and I would be Michael.
+
+57 quotes

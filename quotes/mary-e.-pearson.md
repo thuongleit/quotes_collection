@@ -1,0 +1,47 @@
+ - It can take years to mold a dream. It takes only a fraction of a second for it to be shattered.
+ - Sometimes there’s not a better way. Sometimes there’s only the hard way.
+ - Faith and science, I have learned, are two sides of the same coin, separated by an expanse so small, but wide enough that one side can’t see the other. They don’t know they are connected.
+ - But remember, child, we may all have our own story and destiny, and sometimes our seemingly bad fortune, but we’re all part of a greater story too. One that transcends the soil, the wind, time even our own tears. Greater stories will have their way.
+ - Some things aren’t meant to be known. Only believed.
+ - Awareness There is a dark place. A place where I have no eyes, no mouth. No words. I can’t cry out because I have no breath. The silence is so deep I want to die. But I can’t. The darkness and silence go on forever. It is not a dream. I don’t dream.
+ - Chance. It weaves through our lives like a golden thread, sometimes knotting, tangling, and breaking along the way. Loose threads are left hanging, but the in and out, the back and forth continues, the weaving goes on. It doesn’t stop.
+ - The world before us is a postcard, and I imagine the story we are writing on it.
+ - There is something about her eyes. Eyes don’t breathe. I know that much. But hers look breathless.
+ - Whatever you choose for your stationery is your favorite color because it’s where you pour your heart out.
+ - The dictionary says my identity should be all about being separate or distinct, and yet it feels like it is so wrapped up in others.
+ - There are many words and definitions I have never lost. But some I am only just beginning to truly understand.
+ - Where we are going, I don’t know. It doesn’t seem to be the place that is important but the steps in between.
+ - Pieces. Isn’t that what all of life is anyway? Shards. Bits. Moments. Am I less because I have fewer, or do the few I have mean more?
+ - I don’t want five hundred billion neural chips. I want guts.
+ - On a small planet, where minute follows minute, day follows day, year follows year, where tradition marches on with a deafening, orderly beat -sometimes the order is disturbed by a dreamer, an artist, a scribbler – sometimes the beat is changed one person at a time.
+ - It’s the unknown that I fear, the bites of memories that still have no connections.
+ - It’s other people who make us wise, and I haven’t known nearly enough.
+ - Father says it will come in time. “Time heals,” he says. I don’t tell him that I don’t know what time is.
+ - We all have a dark place in us. It’s what we do with it and the choice we make.
+ - Percentages! Those are for economists, polls, and politicians. Percentages can’t define your identity.
+ - My timing is off. But I had to get it out. Some things you have to tell, no matter how stupid they may sound. Some things you can’t save for later. There might not be a later.
+ - Maybe the impossible is possible when you take everything else away.
+ - Observing and understanding are two different things.
+ - Escape is not about moving from one place to another. It’s about becoming more.
+ - He believes me. But that is nothing new. He always did because I was a rule follower. I played by the rules he understood. But there are new rules now, ones he doesn’t know yet. He’ll learn. Just as I’m learning.
+ - I created an icicle sculpture in the snow. White on white.
+ - Words have longer lives than people.
+ - Are the details of our lives who we are, or is it owning those details that makes the difference?
+ - One small changed family doesn’t calculate into a world that has been spinning for a billion years. But one small change makes the world spin differently in a billion ways for one family.
+ - Do certain events in our lives leave a permanent mark, freezing a piece of us in time, and that becomes a touchstone that we measure the rest of our lives against?
+ - Picture yourself five years from now. Where do you want to be? Remember that. Every day. That’s how you’ll get there.
+ - I thought grandmothers had to like you. It’s a law or something.
+ - I used to be someone.
+ - When is a cell finally too small to hold our essence?
+ - What I think is all I have left. My mind is the only thing that makes me different from a fancy toaster. What we think does matter-it’s all we truly have.
+ - When you are perfect, is there anywhere else to go?
+ - You’ve always been two people. The Jenna who wants to please and the Jenna who secretly resents in. They won’t break, you know. Your parents never thought you were perfect. You did.
+ - Maybe staying on the surface keeps her from returning to a place where she can’t breathe.
+ - When your life has had few events to occupy it, it’s amazing how a simple encounter can seem like an entire three-act play.
+ - I just think perfection and lasting through the ages is for Greek statues, not us mere humans.
+ - Multiple closets for different needs. Overkill.
+ - But I am more than a name. More than they tell me.
+ - I wonder at the weight of a Sparrow.
+ - Maybe we all have a dark place inside of us, a place where dark thoughts and darker dreams live, but it doesn’t have to become who we are.
+
+45 quotes

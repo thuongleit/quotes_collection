@@ -1,0 +1,22 @@
+ - If you can keep going and never give up, ultimately you will get something that you really want.
+ - I think my English is bad.
+ - There’s no common taste in this world.
+ - If first of all you have a wrong idea, then it’s kind of wasting time. No matter how hard that you try with a wrong idea, it makes it difficult to be successful.
+ - One very important element for me to make a movie is, it has to be unique and different from any other.
+ - From a director’s point of view, if I can create different characters which impress the audience, that’s fantastic for me.
+ - Sometimes earning awards doesn’t matter as much as earning revenue or profit, or having a good response from the audience. No matter how many awards you win, if you can’t earn any profit from your movie, if the audience doesn’t like it, then it doesn’t matter how many awards you get.
+ - Every project for me is a risk that I bet on. I believe my senses, and hopefully it will be successful. But sometimes you make it, and sometimes you fail.
+ - A creation needs not only subjectivity, but also objectivity.
+ - Kung fu and soccer are the two things that I was most interested in as a child.
+ - I was very poor. As a child my dream was to have a leather football.
+ - I train my muscles, and I do a lot of stretching, and try to kick higher. But for me, practicing kung-fu is a way to relax myself.
+ - I did learn Chinese kung-fu in a school for a short time, but I couldn’t afford to pay for long-term learning.
+ - To make a kung fu film is like a dream come true, because I’m a big fan of kung fu movies and I’m learning kung fu for a long time.
+ - I had a dog I raised for many years. He was a Pekingese with big eyes and a flat face, very cute.
+ - Why do I use the same actors in different movies? One of the things I really stress in casting is I need to find someone who is suitable for the role in the movie. That’s always the main reason.
+ - I’m extremely busy and running around requires a lot of energy.
+ - I like working as a director most.
+ - Directing, writing, producing and starring is just too tough.
+ - I don’t hate being an actor. But if there’s a choice, I prefer to direct.
+
+20 quotes

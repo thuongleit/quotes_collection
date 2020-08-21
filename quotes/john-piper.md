@@ -1,0 +1,314 @@
+ - God is most glorified in us when we are most satisfied in Him.
+ - Missions is not the ultimate goal of the church. Worship is. Missions exists because worship doesn’t.
+ - The ultimate purpose of life is to show that Jesus is more precious than life.
+ - God is always doing 10,000 things in your life, and you may be aware of three of them.
+ - If you live gladly to make others glad in God, your life will be hard, your risks will be high, and your joy will be full.
+ - Suffering for Jesus is temporary. Pleasure in Jesus is eternal.
+ - The more of God’s Word you know and love, the more of God’s Spirit you will experience.
+ - Christ is glorified in you when he is more precious to you than all that life can give or death can take.
+ - The gospel is not a way to get people to heaven; it is a way to get people to God.
+ - Love is the overflow of joy in God that meets the needs of others.
+ - Worship is an inward feeling and outward action that reflects the worth of God.
+ - Don’t ever think that the sin of your past means there is no hope for your future.
+ - May we catch enough of a vision of Christ that we will not be satisfied unless we know him more fully.
+ - God is not a killjoy; he just opposes what kills joy.
+ - Books don’t change people; paragraphs do, Sometimes even sentences.
+ - If you don’t feel strong desires for the manifestation of the glory of God, it is not because you have drunk deeply and are satisfied. It is because you have nibbled so long at the table of the world. Your soul is stuffed with small things, and there is no room for the great.
+ - Mission exists because worship doesn’t.
+ - Faith begins with a backward look at the cross, but it lives with a forward look at the promises.
+ - God doesn’t waste anything for those who are yielded to him.
+ - If God’s love for his children is to be measured by our health, wealth, and comfort in this life, God hated the apostle Paul.
+ - The deepest and most enduring happiness is found only in God. Not from God, but in God.
+ - Sin is what you do when your heart is not satisfied with God.
+ - Life is precarious, and life is precious. Don’t presume you will have it tomorrow, and don’t waste it today.
+ - This is God’s universal purpose for all Christian suffering: more contentment in God and less satisfaction in the world.
+ - Prayer causes things to happen that wouldn’t happen if you didn’t pray.
+ - I know of no other way to triumph over sin long-term than to gain a distaste for it because of a superior satisfaction in God.
+ - If you are sufficient for your task, it’s too small.
+ - Go, send, or disobey.
+ - Desire that your life count for something great! Long for your life to have eternal significance. Want this! Don’t coast through life without a passion.
+ - Our obedience is God’s pleasure when it proves that God is our treasure.
+ - Zeal for the glory of God motivates world missions.
+ - You ought to marry someone who’s willing to go anywhere for God. If they’re not, they’re out.
+ - There are a thousand needs in the world, and none of them compares to the global need for the gospel.
+ - One of the great uses of Twitter and Facebook will be to prove at the Last Day that prayerlessness was not from lack of time.
+ - One of the great enemies of hope is forgetting God’s promises.
+ - One day America and all its presidents will be a footnote in history, but the kingdom of Jesus will never end.
+ - Your mind was made to know and love God.
+ - The gospel is the good news that the everlasting and ever-increasing joy of the never-boring, ever-satisfying Christ is ours freely and eternally by faith in the sin-forgiving death and hope-giving resurrection of Jesus Christ.
+ - Treasuring life above Christ is a tragedy.
+ - We cannot know what prayer is for until we know that life is war.
+ - We are all starved for the glory of God, not self. No one goes to the Grand Canyon to increase self-esteem. Why do we go? Because there is greater healing for the soul in beholding splendor than there is in beholding self.
+ - We make a god out of whatever we find most joy in. So find your joy in God and be done with all idolatry.
+ - Every experience in life is designed to magnify the cross of Christ.
+ - It is about the greatness of God, not the significance of man. God made man small and the universe big to say something about himself.
+ - Marriage. The roots are deep. The covenant is solid. The love is sweet. Life is hard. And God is good.
+ - Grace is power, not just pardon.
+ - You never outgrow your need to preach to yourself the gospel.
+ - Blind people don’t decide to see. Jesus says, ‘See!’ and they see.
+ - You don’t give God authority over your life. He has it, totally.
+ - God created us for this: to live our lives in a way that makes him look more like the greatness and the beauty and the infinite worth that he really is. This is what it means to be created in the image of God.
+ - Oh, how rare are the Christians who speak with a tender heart and have a theological backbone of steel.
+ - A God-centered theology has to be a missionary theology.
+ - It is better to lose your life than to waste it.
+ - If you don’t know God as beautiful and satisfying, you don’t know him.
+ - We weren’t meant to be somebody – we were meant to know Somebody.
+ - The cross is not a mere event in history; it’s a way of life! Take up your cross DAILY, Jesus said!
+ - Don’t be surprised. There is nothing new under the sun. Only endless repackagings.
+ - But whatever you do, find the God-centered, Christ-exalting, Bible-saturated passion of your life, and find your way to say it and live for it and die for it. And you will make a difference that lasts. You will not waste your life.
+ - God tests His people through hardship.
+ - The purpose of the Lord’s Supper is to receive from Christ the nourishment and strength and hope and joy that come from feasting our souls on all that He purchased for us on the cross, especially His own fellowship.
+ - God is at work in the worst of times. He is at work doing a thousand things no one can see but him.
+ - You can’t praise what you don’t prize.
+ - Christ did not die to make good works merely possible or to produce a half-hearted pursuit. He died to produce in us a passion for good deeds. Christian purity is not the mere avoidance of evil, but the pursuit of good.
+ - God did not just overcome evil at the cross. He made evil serve the overcoming of evil. He made evil commit suicide in doing its worst evil.
+ - There will be no people in heaven who want to be around their things more than Jesus.
+ - Bad theology will eventually hurt people and dishonor God in proportion to its badness.
+ - The essence of faith is being satisfied with all that God is for us in Jesus.
+ - Gratitude is the joy that arises in response to God’s good will toward us in all his gifts.
+ - If you alter or obscure the Biblical portrait of God in order to attract converts, you don’t get converts to God, you get converts to an illusion. This is not evangelism, but deception.
+ - Do we eagerly long for the coming of Christ? Or do we want him to wait while our love affair with the world runs its course? That is the question that tests the authenticity of faith.
+ - Every good thing in the Christian life grows in the soil of humility. Without humility, every virtue and every grace withers. That’s why Calvin said humility is first, second, and third in the Christian faith.
+ - The key that unlocks the treasure chest of God’s peace is faith in the promises of God.
+ - The evil and suffering in this world are greater than any of us can comprehend. But evil and suffering are not ultimate. God is. Satan, the great lover of evil and suffering, is not sovereign. God is.
+ - The Gospel is not a picture of adoption, adoption is a picture of the Gospel.
+ - Our deeds are not the basis of our salvation, they are the evidence of our salvation. They are not foundation, they are demonstration.
+ - It is not saving faith to confess Christ as true. Saving faith receives Christ as a Treasure.
+ - God aims to look valuable in the world, and that happens when we treasure him above all else.
+ - Paradise will not be a hall of mirrors, it will be a display of majesty, and it won’t be ours.
+ - Giving in a regular, disciplined, generous way-up to and beyond the tithe-is simply good sense in view of the promises of God.
+ - In EVERY situation and EVERY circumstance of your life, God is always doing a thousand different things that you cannot see and you do not know.
+ - The strength of patience hangs on our capacity to believe that God is up to something good for us in all our delays and detours.
+ - The greatest threat to your ministry, dear brothers, is that you lose your joy in God.
+ - Spiritual leadership is knowing where God wants people to be and taking the initiative to get them there by God’s means in reliance on God’s power.
+ - The gospel of God and the love of God are expressed finally and fully in God’s gift of himself for our everlasting pleasure. “In your presence there is fullness of joy; at your right hand are pleasures forevermore.”
+ - The greatest cause in the world is joyfully rescuing people from hell, meeting their earthly needs, making them glad in God, and doing it with a kind, serious pleasure that makes Christ look like the Treasure he is.
+ - Christian fasting, at its root, is the hunger of a homesickness for God.
+ - We belittle God when we go through the outward motions of worship and take no pleasure in His person.
+ - Giving is a way of having what you need.
+ - The cost of food in the kingdom is hunger for the Bread of Life.
+ - Doing things in secret that you are ashamed for others to know is practical atheism. God’s knowing doesn’t count?
+ - The call of God does what the call of man cannot. It raises the dead.
+ - Humble us, O God, under your mighty hand, and let us rise, not as professionals, but as witnesses and partakers of the sufferings of Christ.
+ - Servanthood does not nullify leadership; it defines it. Jesus does not cease to be the Lion of Judah when He becomes the lamblike servant of the church.
+ - Put your ear to the ground of God’s word and listen to the rumble of His faithfulness coming.
+ - Marriage is not absolutely for making children. But it is absolutely for making children followers of Jesus.
+ - If we cannot claim to live sinless lives, then the only thing that can keep us from despairing before a holy God is that we have an Advocate in heaven and He pleads our case not on the basis of our perfection but of His propitiation.
+ - Seek to see and feel the gospel as bigger as years go by rather than smaller. Never let the gospel get smaller in your heart.
+ - The great danger of riches is that our affections will be carried away from God to His gifts.
+ - Journaling is a way to be a good steward of the Spirit’s illuminations.
+ - Does Christ get a good reputation because of the way we live? Is the excellence of Christ displayed in our lives? That should matter to us, not whether we ourselves are praised.
+ - Grace is not simply leniency when we have sinned. Grace is the enabling gift of God not to sin. Grace is power, not just pardon.
+ - God wills to be displayed and known and loved and cherished and worshiped.
+ - The ultimate meaning of true womanhood is this: It is a distinctive calling of God to display the glory of his Son in ways that would not be displayed if there were no womanhood.
+ - You get one pass at life. That’s all. Only one. And the lasting measure of that life is Jesus Christ.
+ - There will be no passion to draw others into our worship where there is no passion for worship.
+ - We do not smirk at the misery or the merrymaking of immoral culture. We weep. Being pilgrims does not mean being cynical. The salt of the earth does not mock rotting meat. Where it can, it saves and seasons. And where it can’t, it weeps.
+ - People don’t enjoy salt. They enjoy what is salted. We are the salt of the earth. We do not exist for ourselves.
+ - When all your favorite preachers are gone, and all their books forgotten, you will have your Bible. Master it. MASTER IT!
+ - The engagement of the heart in worship is the coming alive of the feelings and emotions and affections of the heart. Where feelings for God are dead, worship is dead.
+ - The deepest longing of the human heart is to know and enjoy the glory of God. We were made for this.
+ - Adoption is the visible Gospel.
+ - And in these last hours, the lifetime of this year passes before my eyes, and I face the inevitable question: Did I live it well? Will Jesus Christ, the righteous judge, say “Well done, good and faithful servant”?
+ - You can’t make yourself saved. This is very threatening to people, even Christians, because of what it seems to say about freedom.
+ - All the money needed to send and support an army of self-sacrificing, joy-spreading ambassadors is already in the church.
+ - My joy grows with every soul that seeks the glory of God in the face of Jesus Christ. Remember, you have one life. That’s all. You were made for God. Don’t waste it.
+ - Here is a vocation that will bring you more satisfaction than if you became a millionaire ten times over: Develop the extraordinary skill for detecting the burdens of others and devote yourself daily to making them lighter.
+ - We need a Savior. Christmas is an indictment before it becomes a delight.
+ - Where the Bible is esteemed as the inspired and inerrant Word of God, preaching can flourish. But where the Bible is treated merely as a record of valuable religious insight, preaching dies.
+ - History is a conveyor belt of corpses because of Adam’s sin.
+ - Wise people know that all their money belongs to God.
+ - The wisdom of God devised a way for the love of God to deliver sinners from the wrath of God while not compromising the righteousness of God.
+ - The key to Christian living is a thirst and hunger for God. And one of the main reasons people do not understand or experience the sovereignty of grace and the way it works through the awakening of sovereign joy is that their hunger and thirst for God is so small.
+ - Obedience does not consist in paying God back and thus turning grace into a trade. Obedience comes from trusting in God for more grace – future grace – and thus magnifying the infinite resources of God’s love and power.
+ - The way of the cross is the way of suffering. Christians are called to die, not kill, in order to show the world how they are loved by Christ.
+ - The ministry and mission of the church is at the center of Christian giving.
+ - The presence of hope in the invincible sovereignty of God drives out fear.
+ - Even on days when every cinder in our soul feels cold, if we crawl to the Word of God and cry out for ears to hear, the cold ashes will be lifted and the tiny spark of life will be fanned. For ‘the law of the Lord is perfect, reviving the soul.’
+ - Many people are willing to be God-centered as long as they feel that God is man-centered.
+ - The goal of missions is the gladness of the peoples in the greatness of God.
+ - Nothing is more vital than prayer in Christian existence, and few things are more vulnerable to neglect.
+ - Faith is born and sustained by the Word of God, and out of faith grows the flower of joy.
+ - Sanctification is a community project.
+ - Prayer is the open admission that without Christ we can do nothing. And prayer is the turning away from ourselves to God in the confidence that He will provide the help we need. Prayer humbles us as needy and exalts God as wealthy.
+ - Feeling loved by God means feeling glad not only that He crushed His Son so that I can be forgiven, but that He’s crushing everything that takes away from my praising of the glory of His grace.
+ - When I believe in Jesus, I am united to Christ. Therefore, what he did and achieved becomes mine by this union through faith alone. His righteous life is imputed to me. What Christ achieved is counted as mine.
+ - When GOD is our deepest pleasure we display Him as our highest treasure.
+ - God created me – and you – to live with a single, all-embracing, all-transforming passion – namely, a passion to glorify God by enjoying and displaying his supreme excellence in all the spheres of life.
+ - Bad theology dishonors God and hurts people. Churches that sever the root of truth may flourish for a season, but they will wither eventually or turn into something besides a Christian church.
+ - In all the setbacks of your life as a believer, God is plotting for your joy.
+ - O, God of wonder, enlarge my capacity to be amazed at what is amazing, and end my attraction to the insignificant.
+ - Do all things without grumbling. Why? You have a sovereign God who is on your side, who works everything together for your good.
+ - The mind serves to know the truth that fuels the fires of the heart.
+ - All heroes are shadows of Christ.
+ - There is a war going on. All talk of a Christian’s right to live luxuriously “as a child of the King” in this atmosphere sounds hollow – especially since the King himself is stripped for battle.
+ - Too many Christians are fighting graduate school sins with a grammar school knowledge of God.
+ - God is love precisely because He relentlessly pursues the praises of His name in the hearts of His people.
+ - Spot the first risings of your besetting sin and kill it, till it is no more.
+ - Life is too short, too precious, too painful to waste on worldly bubbles that burst.
+ - The wonder of marriage is woven into the wonder of the gospel of the cross of Christ, and the message of the cross is foolishness to the natural man, and so the meaning of marriage is foolishness to the natural man.
+ - Waiting for the Lord in a season of darkness should not be a time of inactivity. We should do what we can do. And doing is often God’s appointed remedy for despair.
+ - There are only three kinds of Christians when it comes to world missions: zealous goers, zealous senders, and disobedient.
+ - Worship is a way of gladly reflecting back to God the radiance of his worth. This cannot be done by mere acts of duty. It can be done only when spontaneous affections arise in the heart.
+ - Headship is the divine calling of a husband to take primary responsibility for Christlike, servant leadership, protection, and provision in the home.
+ - God made us in His own image so that His image would be shown.
+ - Redemption is not perfection. The redeemed must realize their imperfections.
+ - Worship is a way of gladly reflecting back to God the radiance of His worth.
+ - I wrote this poem called “The Calvinist” to capture a glimpse of God’s sovereign intersection with the life of a sinful man. There is no part of life where the greatness of God does not penetrate deeply. I want to help you feel that.
+ - The Great Commission will not get done if we’re not ready to risk our lives and the lives of our family.
+ - Missions is the overflow of our delight in God because missions is the overflow of God’s delight in being God.
+ - In our proud love affair with ourselves we pour contempt, whether we know it or not, on the worth of God’s glory. As our pride pours contempt upon God’s glory, His righteousness obliges Him to pour wrath upon our pride.
+ - Every sin flows from the failure to treasure the glory of God above all things.
+ - Marriage is not mainly about prospering economically. It is mainly about displaying the covenant keeping love between Christ and his Church.
+ - Without the renewed mind, we will distort the Scriptures to avoid their radical commands for self-denial, and love, and purity, and supreme satisfaction in Christ alone.
+ - Don’t marry so you can stop pursuing women. Marry so you can perfect the pursuit of ONE woman for a lifetime.
+ - The highest mental health is not liking myself but being joyfully interested in everything but myself.
+ - One of the most important discoveries I have ever made is this truth: God is most glorified in me when I am most satisfied in him. This is the motor that drives my ministry as a pastor. It affects everything I do.
+ - Why does God bless us with abundance? So we can have enough to live on and then use the rest for all manner of good works that alleviate spiritual and physical misery. Enough for us; abundance for others.
+ - To be a Christian is to move toward need, not comfort.
+ - Our main work is, by the spirit of God, with the Word of God, to portray the glories of God as more beautiful and more satisfying than anything.
+ - It is not surprising that prayer malfunctions when we try to make it a domestic intercom to call upstairs for more comforts in the den.
+ - The really wonderful moments of joy in this world are not the moments of self-satisfaction, but self-forgetfulness. Standing on the edge of the Grand Canyon and contemplating your own greatness is pathological. At such moments we are made for a magnificent joy that comes from outside ourselves.
+ - God has ordained that our preaching become deeper and more winsome as we are broken, humbled, and made low and desperately dependent on grace by the trials of our lives.
+ - To see Him and know Him and be in His presence is the soul’s final feast. Beyond this there is no quest. Words fail. We call it pleasure, joy, delight. But these are weak pointers to the unspeakable experience.
+ - The importance of prayer rises in proportion to the importance of the things we should give up in order to pray.
+ - The Bible says he was raised not just after the blood-shedding, but by it. This means that what the death of Christ accomplished was so full and so prefect that the resurrection was the reward and vindication of Christ’s achievement in death.
+ - At one level, the message of the book of Ruth is that the life of the godly is not a straight line to glory, but they do get there.
+ - God has made us to be conduits of his grace. The danger is in thinking the conduit should be lined with gold. It shouldn’t. Copper will do.
+ - The abortion industry kills as many Black people every four days as the Klan killed in 150 years.
+ - God’s global aim in creation and redemption is not only the glory of his name, but also the gladness of the peoples.
+ - The most dangerous thing in the world is the sin of self-reliance and the stupor of worldliness.
+ - Wimpy worldviews make wimpy Christians. And wimpy Christians won’t survive the days ahead.
+ - God’s greatest interest is to glorify the wealth of His grace by making sinners happy in Him.
+ - Grace is the pleasure of God to magnify the worth of God by giving sinners the right and power to delight in God without obscuring the glory of God.
+ - We need God in ways we do not know. Don’t limit your experience of God to what you can think to ask. Ask for the unknown joy.
+ - When you see Jesus as your Treasure, the Spirit has blown through your heart.
+ - God aims to exalt Himself by working for those who wait for Him.
+ - Do not be more devoted to your own brain than you are to the Bible.
+ - Our lives become trivial. And our capacity for magnificent causes and great worship dies.
+ - I do not appeal to you to screw up your courage and sacrifice for Christ. I appeal to you to renounce all you have to obtain life that satisfies your deepest longings.
+ - I feel a special calling to impart hope to the church I serve.
+ - Be glad in the Lord and receive willingly from His Hand all that he designs for my holiness – both painful and pleasant.
+ - Betrayed by Judas, denied by Peter, abandoned by the eleven, forsaken by God. Darkness, you get one hour. Then you die.
+ - True worship comes from people who are deeply emotional and who love deep and sound doctrine. Strong affections for God rooted in thrush are the bone and marrow of biblical worship.
+ - This is the centre of the gospel – this is what the Garden of Gethsemane and Good Friday are all about – that God has done astonishing and costly things to draw us near.
+ - The bloodline of Jesus is thicker, deeper, stronger than the bloodline of race, ethnicity and family.
+ - Prayer as a relationship is probably your best indicator about the health of your love relationship with God. If your prayer life has been slack, your love relationship has grown cold.
+ - Anger devours almost all other good emotions. It deadens the soul. It numbs the heart to joy and gratitude and hope and tenderness and compassion and kindness.
+ - Strong affections for God, rooted in and shaped by the truth of Scripture – this is the bone and marrow of Biblical worship.
+ - The Meaning of Mature Femininity: At the heart of mature felinity is a freeing disposition to affirm, receive, and nurture strength and leadership from worthy men in ways appropriate to a woman’s differing relationships.
+ - Christ died that we might live. This is the opposite of abortion. Abortion kills that someone might live differently.
+ - Forgiveness costs us nothing. All our costly obedience is the fruit, not the root, of being forgiven. That’s why we call it grace.
+ - Isn’t it ironic that today people say, ‘If you know the love of God, you don’t have to worry when you go on in sin.’ But the apostle John said, ‘If you know the love of God, you won’t be able to go on in sin.’
+ - Out of the freedom from worry that God’s generosity provides comes an impulse toward simplicity rather than accumulation.
+ - There is a great gulf between the Christianity that wrestles with whether to worship at the cost of imprisonment and death, and the Christianity that wrestles with whether the kids should play soccer on Sunday morning.
+ - There is hope in forgiveness.
+ - The assurance of the believer is not that God will save him even if he stops believing, but that God will keep him believing – God will sustain you in faith, he will make your hope firm and stable to the end. He will cause you to persevere.
+ - Worship is basically adoration, and we adore only what delights us. There is no such thing as sad adoration or unhappy praise.
+ - God seldom calls us for an easier life, but always calls us to know more of him and drink more deeply of His sustaining grace.
+ - If you want to be a conduit for God’s grace, you don’t have to be lined with gold. Copper will do.
+ - All that looks like reality to us is dependent on God. There is creation and Creator, nothing more. And creation gets all its meaning and purpose from God.
+ - God is on the move to rescue people from misery to everlasting happiness, which can only be found in him.
+ - We are far too easily pleased.
+ - Will I find spiritual communion with God sweet enough, and hope in his promises deep enough, not just to cope, but to flourish and rejoice in him?
+ - God created us with sexual passion so that there would be language to describe what it means to cleave to him in love and what it means to turn away from him to others.
+ - This assumes that the glory of Christ is our highest treasure, not health, wealth, family or even life. So preaching must continually show not that Jesus is the means to prosperity but that he is better than prosperity.
+ - Boasting is the outward form of the inner condition of pride.
+ - I measure Your love for me by the magnitude of the wrath I deserved, and the wonder of Your mercy by putting Christ in my place.
+ - I don’t know how people pray who don’t believe in the sovereignty of God to do the impossible. Because all the things I want to happen are impossible. If they’re possible I’ll do them.
+ - The very longing for contentment that ought to drive us to simplicity of life and labors of love contents itself instead with the broken cisterns of prosperity and comfort.
+ - Don’t coast through life without a passion.
+ - God is not an employer looking for employees. He is an Eagle looking for people who will take refuge under his wings. He is looking for people who will leave father and mother and homeland or anything else that may hold them back from a life of love under the wings of Jesus.
+ - Where passion for God is weak, zeal for missions will be weak.
+ - The key to praying with power is to become the kind of persons who do not use God for our ends but are utterly devoted to being used for His ends.
+ - When it comes to killing my sin, I don’t wait for the miracle, I act the miracle.
+ - We give glory to God when we trust him to do what he has promised to do-especially when all human possibilities are exhausted. Faith glorifies God. That is why God planned for faith to be the way we are justified.
+ - For the mind of faith, a promised act of God is as good as done.
+ - If my life was to have a single, all-satisfying, unifying passion, it would have to be God’s passion.
+ - If you must choose between loving someone and acting so that they feel loved, always choose to love them.
+ - My mother, who grew up in Pennsylvania, literally washed my mouth out with soap once for saying, ‘Shut up!’ to my sister. She would have washed my mouth out with gasoline if she knew how foul my mouth was racially when she wasn’t around.
+ - The apex of glorifying God is enjoying Him with the heart. But this is empty emotionalism where that joy is not awakened and sustained by true views of God for who He really is.
+ - Avalanches of evil begin with a single pebble of sin.
+ - Don’t follow a defeated foe. Follow Christ. It is costly. You will be an exile in this age. But you will be free.
+ - What was once foolishness to us-a crucified God-must become our wisdom and our power and our only boast in this world.
+ - To love God passionately is to love truth passionately.
+ - The chief end of missions is the supremacy of God in the joy of all peoples.
+ - The Bible is the ultimate authority and infallible, not the pastor and not the elders. And it doesn’t mean that you believe everything he says without examining it.
+ - My Paradise: With Christ. Not sinning. No pain. New earth. Precious in that order.
+ - If we love God’s fame and are committed to magnifying His name above all things, we cannot be indifferent to world missions.
+ - When the heart no longer feels the truth of hell, the gospel passes from good news to simply news.
+ - Do you feel loved by God because you believe he makes much of you, or because you believe he frees you and empowers you to enjoy making much of him?
+ - Death is like my car. It takes me where I want to go.
+ - The ultimate aim of the gospel is the display of God’s glory.
+ - The Bible does not oppose or forbid interracial marriages but sees them as a positive good for the glory of Christ.
+ - If truth does not lead to falling in love, it fails.
+ - America is the first culture in jeopardy of amusing itself to death.
+ - Little hearts, little souls give little lusts big power. Big hearts give little lusts little power.
+ - It is unbiblical and arrogant to try to worship God for any other reason than the pleasure to be had in Him.
+ - We are not as Christ-centered and cross-cherishing as we should be, because we do not ponder the truth that everything good, and everything bad that God turns for the good, was purchased by the sufferings of Christ.
+ - God is not worn out running the galaxy. He’s not taxed at all guiding every dust particle all the time.
+ - I just want to preach so bad I can hardly stand it. I love what I do.
+ - The call of God creates sight in us. It’s the work of God in our hearts to awaken us before his word.
+ - If at the cross every sin was covered, Satan’s mouth is shut. He has no weapon. He can gum you but his fangs are gone.
+ - Worship is ultimate, not missions. Because God is ultimate, not man.
+ - The rich fruit of spontaneity grows in the garden that is well tended by the discipline of schedule.
+ - Loving God with all our mind means that our thinking is wholly engaged to do all it can to awaken and express the heartfelt fullness of treasuring God above all things.
+ - Lives of faith are the great mirror of the dependability of God.
+ - Bad theology dishonors God and hurts people.
+ - If grace is to be free – which is the very meaning of grace – we cannot view it as something to be repaid.
+ - We do not choose suffering simply because we are told to, but because the one who tells us to describes it as the path to everlasting joy.
+ - The further you go in the revealed thoughts of God, the clearer you see that God’s aim in creating the world was to display the value of his own glory.
+ - Intensity is all that matters in painting.
+ - The whole world lives for pleasure. The only difference is theirs is fleeting, while ours is forever in Jesus.
+ - If a tornado twists at 175 miles an hour and stays on the ground like a massive lawnmower for 50 miles, God gave the command.
+ - It’s amazing how many introverts go into the ministry. It’s amazing how many people go into the ministry who don’t really like to be with people.
+ - There are two basic restrictions on marriage in the Bible: Number one, she should marry a man. Number two, he should be a Christian.
+ - Where feelings for God are dead, worship is dead.
+ - Reading is more important to me than eating.
+ - God is infinitely valuable. I can’t think of anything that would have a greater impact on your life than for you to believe that.
+ - Some of you will die in the service of Christ. That will not be a tragedy. Treasuring life above Christ is a tragedy.
+ - God is not an employer looking for employees. He is an Eagle looking for people who will take refuge under his wings.
+ - I am not a missionary, but I have wanted my life to count for the unreached peoples of the world.
+ - It is a fight from start to finish to be happy in God.
+ - What could be a greater privilege than to listen to the voice of God, and be granted by God himself the ears to hear?
+ - Every spirit that does not confess Jesus is not from God.
+ - The Christian life becomes impossible. That is, it becomes supernatural.
+ - Being infinite, God is inexhaustibly interesting. It is therefore impossible that God be boring.
+ - I see no thread running through my work; I simply get on with my life and my painting.
+ - Abstraction is the way to the heart – it is not the heart itself.
+ - The goal of Bethlehem College and Seminary cannot be expressed with man as the end point. Christ is the endpoint.
+ - Not going to God because your faith is weak is like not going to the doctor because you feel sick.
+ - Adjust your doctrine – or just minimize doctrine – to attract the world, and in the very process of attracting them, lose the radical truth that alone can set them free.
+ - The right creative act makes its own laws, and always will do.
+ - We have a name for those who try to praise when they have no pleasure in the object. We call them hypocrites.
+ - Preaching is the pastor’s main work, and preaching is heart work, not just mental work.
+ - Jerusalem meant one thing for Jesus: certain death.
+ - Evangelicals are distraught over the state of America because they have not been taught that we’re aliens here.
+ - No one will be able to rise to the magnificence of the missionary cause who does not feel the magnificence of Christ.
+ - Why Christians do what they do is just as important as what they do. Bad motives ruin good acts.
+ - The line of lovelessness is not drawn between speaking and doing, but between speaking and doing in the truth, and speaking and doing in emptiness. Truth turns word-love into deed-love.
+ - I do not elevate the time or mode of baptism to a primary doctrine.
+ - If you remove enjoyment of God from faith in God, it ceases to be faith.
+ - Lavish giving and open homes are close to the center of life in Christ.
+ - Neither Muslims nor anyone else truly worships the true God if they reject Jesus as he really is in the Gospels.
+ - What defines us as Christians is not most profoundly that we have come to know him but that he took note of us and made us his own.
+ - Woe to us if we get our satisfaction from the food in the kitchen and the TV in the den and the sex in the bedroom with an occasional tribute to the cement blocks in the basement!
+ - Our concern with truth is simply an echo of our concern with God .
+ - The main reason God has given us minds is that we might seek out and find all the reasons that exist for treasuring him in all things and above all things.
+ - We ought not speak too long about God with our minds before we turn and speak to God from our heart. We must stir a lot of prayer into the stew of our theology.
+ - I’ve always wondered, am I a writer who preaches or a preacher who writes? I don’t know. I love them both.
+ - We will not let you choose between being a lover of God and his sovereignty and being a lover of lost people.
+ - Sin carries in it its own misery.
+ - Homosexual behavior has been exploited, and reveled in, and celebrated in art, for millennia.
+ - God has an inexhaustible enthusiasm for the supremacy of His name among the nations.
+ - We are more than a collection of appetites – we are of God.
+ - The dismembering of a human being routinely in 30 minutes on an outpatient bases – or any other way – is barbaric. Four blocks from our church all year long – like churches within smelling distance of Auschwitz or Dachau or Buchenwald.
+ - God without Christ is no God.
+ - I do not aim to be immediately practical but eternally helpful.
+ - I recall hearing one of my professors in seminary say that one of the best tests of a person’s theology was the effect it has on one’s prayers.
+ - Whatever opposes prayer opposes the whole work of ministry.
+ - All of history is moving toward one great goal, the white-hot worship of God and His Son among all the peoples of the earth. Missions is not that goal. It is the means. And for that reason it is the second greatest human activity in the world.
+ - We embrace the hand we’ve been dealt, because we know the Dealer, and he never deals badly.
+ - The greatest act of freeing happened when Jesus died in our place and paid our debt.
+
+312 quotes

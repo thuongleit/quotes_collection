@@ -1,0 +1,33 @@
+ - Editing is where movies are made or broken. Many a film has been saved and many a film has been ruined in the editing room.
+ - I think Pans Labyrinth is genius.
+ - The dynamic is extremely similar to Gremlins and the hero is very similar, plus the small town atmosphere. It really is in a way the third Gremlins movie.
+ - Movies get found in the editing room. The movie that you make is not always necessarily the movie that comes out of the editing room. The trick is to perfect the movie that you have and make it the best version of what you’ve shot, regardless of what the intent may have been.
+ - I’ve sort of closed my mind off to reality shows: I just don’t watch them, don’t care about them, don’t know who the characters are, but they’re all in general usage.
+ - When I was growing up in the ’60s I would have thought that westerns would last forever.
+ - When you make a 3-D movie you actually have to plan the way the visuals look because there’s a parallax issue, and there’s an issue of editing; you can’t edit very quickly in 3-D because the eye won’t adjust fast enough for it.
+ - I think that anybody that wants to direct, particularly writers, should spend some time in an editing room, whether it’s a film of theirs or someone else’s, or shoot their own picture on video and cut it.
+ - I like working with kid actors because they surprise you constantly. I mean, all actors do – but kids particularly.
+ - If you’re doing a family movie, you don’t want it to be stupid. Farting chihuahuas is not my idea of entertainment for kids or adults. So you try to make a movie that adults can see on one level, and kids can see on another.
+ - It’s very hard to have lived through the Sixties and not be political.
+ - Editing is kind of a solitary job.
+ - There go the goddamn brownies!
+ - There’s so little difference between television and features as far as you make the film. I mean, you have less money and it’s a little quicker, but the concept is all on television.
+ - You don’t paint pictures to put them in your attic. You want people to look at them.
+ - Repetitiveness is one of the things that’s most difficult to get away from in genre pictures, because people come specifically to see certain kinds of things but get disappointed if they’re presented in the same way. So to try to find a new way to show old stuff is always the challenge.
+ - My generation remembered going to the movies as an event. We would see these things, we would bring them home, and we would think about them for years because it would take a long time before they would go on television where you could re-experience the fun that you had when you watched them.
+ - I really have to feel that I could make a difference in the movie, or I shouldn’t be doing it.
+ - You do form a cadre of people that you trust and who are good at their jobs and who know you and what your quirks and foibles are. It makes making movies very collegial and a lot more fun.
+ - I mean, movies are all geared to be basically under 25, and they’re all tentpoles, explosions, excitement and all that – they take advantage of the big screen, which is great.
+ - I’ve made a lot of movies with kids in them. I don’t know why that is, but it’s something I’ve noticed.
+ - I’m always looking for films, but the horror scripts that I get tend to be very repetitive and often not that interesting.
+ - What’s the shelf life of a 1931 movie? If it still exists, there will always be film buffs and a niche audience who will want to see it. But in terms of people even understanding in common usage, some of the words we use to describe these movies, I don’t know how long that’s going to last.
+ - A lot of filmmakers from my generation were lucky enough to have their work more or less perpetuated by people who saw them originally on TV and on HBO and certainly on home video.
+ - One of the things I’ve always tried to do is to inject myself as much as possible into the movie, so I feel like it’s mine.
+ - I grew up in New Jersey and my father was a golf pro, so I was groomed for sports, but I wasn’t very good, so my interests lay elsewhere.
+ - Daffy, of course, wants to go on the journey with him but the studio decides they want Daffy back, so Bugs and a young studio executive heroine have to go out and try to bring him back.
+ - I don’t believe that you can judge the worth of a movie in the atmosphere in which it comes out the first time. There’s just so many reasons why some pictures don’t catch on.
+ - I’ve always felt that I shouldn’t make a movie if someone else could do it better.
+ - It’s a lot of power to give the director to edit his own stuff. It’s also a time thing: you don’t want to have to wait for the guy to finish shooting before he starts editing.
+ - When the first movie to show the anger people have about the war is a grade Z zombie movie, that tells you all you need to know about how afraid of ruffling anyone’s feathers people in the movie business are today.
+
+31 quotes

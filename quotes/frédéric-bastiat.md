@@ -1,0 +1,65 @@
+ - If goods don’t cross borders, armies will.
+ - When plunder becomes a way of life, men create for themselves a legal system that authorizes it and a moral code that glorifies it.
+ - The state is that great fiction by which everyone tries to live at the expense of everyone else.
+ - By virtue of exchange, one man’s prosperity is beneficial to all others.
+ - Trade barriers constitute isolation; isolation gives rise to hatred, hatred to war, and war to invasion.
+ - Everyone wants to live at the expense of the state. They forget that the state wants to live at the expense of everyone.
+ - When law and morality contradict each other, the citizen has the cruel alternative of either losing his moral sense or losing his respect for the law.
+ - If philanthropy is not voluntary, it destroys liberty and justice. The law can give nothing that has not first been taken from its owner.
+ - The plans differ; the planners are all alike...
+ - In short, is not liberty the freedom of every person to make full use of his faculties, so long as he does not harm other persons while doing so?
+ - There is only one difference between a bad economist and a good one: the bad economist confines himself to the visible effect; the good economist takes into account both the effect that can be seen and those effects that must be foreseen.
+ - No legal plunder: This is the principle of justice...
+ - Ah, you miserable creatures! You who think that you are so great! You who judge humanity to be so small! You who wish to reform everything! Why don’t you reform yourselves? That task would be sufficient enough.
+ - Repetition may not entertain, but it teaches.
+ - The worst thing that can happen to a good cause is, not to be skillfully attacked, but to be ineptly defended.
+ - The most urgent necessity is, not that the State should teach, but that it should allow education. All monopolies are detestable, but the worst of all is the monopoly of education.
+ - The law commit legal plunder by violating liberty and property.
+ - Competition is merely the absence of oppression.
+ - Nothing is more senseless than to base so many expectations on the state, that is, to assume the existence of collective wisdom and foresight after taking for granted the existence of individual imbecility and improvidence.
+ - Taking Five and Returning Four is not Giving.
+ - The solution of the social problem is in liberty.
+ - Property does not exist because there are laws, but laws exist because there is property.
+ - It is impossible to introduce into society a greater change and a greater evil than this: the conversion of the law into an instrument of plunder.
+ - The law has been perverted through the influence of two very different causes-naked greed and misconceived philanthropy.
+ - Treat all economic questions from the viewpoint of the consumer, for the interests of the consumer are the interests of the human race.
+ - Since the natural tendencies of mankind are so bad that it is not safe to allow them liberty, how comes it to pass that the tendencies of organizers are always good?
+ - Either fraternity is spontaneous, or it does not exist. To decree it is to annihilate it. The law can indeed force men to remain just; in vain would it would try to force them to be self-sacrificing.
+ - There are people who think that plunder loses all its immorality as soon as it becomes legal. Personally, I cannot imagine a more alarming situation.
+ - The law can be an instrument of equalization only as it takes from some persons and gives to other persons. When the law does this, it is an instrument of plunder.
+ - If you wish to prosper, let your customer prosper.
+ - Legal plunder has two roots: One, as we have just seen, is in human selfishness; the other is in false philanthropy.
+ - The politician attempts to remedy the evil by increasing the very thing that caused the evil in the first place: legal plunder.
+ - Justice is achieved only when injustice is absent.
+ - Since no individual acting separately can lawfully use force to destroy the rights of others, does it not logically follow that the same principle also applies to the common force that is nothing more than the organized combination of the individual forces?
+ - There is in all of a strong disposition to believe that anything lawful is also legitimate. This belief is so widespread that many persons have erroneously held that things are “just” because the law makes them so.
+ - And what is liberty, whose very name makes the heart beat faster and shakes the world? Is it not the union of all liberties – liberty of conscience, of education, of association, of the press, of travel, or labor, or trade?
+ - Property, the right to enjoy the fruits of one’s labor, the right to work, to develop, to exercise one’s faculties, according to one’s own understanding, without the state intervening otherwise than by its protective action; this is what is meant by liberty.
+ - If everyone enjoyed the unrestricted use of his faculties and the free disposition of the fruits of his labor, social progress would be ceaseless, uninterrupted, and unfailing.
+ - Man acquires wealth in proportion as he puts his labor to better account.
+ - Law cannot organize labor and industry without organizing injustice.
+ - And now that the legislators and do-gooders have so futilely inflicted so many systems upon society, may they finally end where they should have begun: May they reject all systems, and try liberty; for liberty is an acknowledgment of faith in God and His works.
+ - We cannot doubt that self-interest is the mainspring of human nature. It must be clearly understood that this word is used here to designate a universal, incontestable fact, resulting from the nature of man, and not an adverse judgment, as would be the word selfishness.
+ - Liberty is an acknowledgement of faith in God and his works.
+ - When, then, does plunder stop? It stops when it becomes more painful and more dangerous than labor.
+ - Slavery, protection, and monopoly find defenders, not only in those who profit by them, but in those who suffer by them.
+ - The profit of the one is the profit of the other.
+ - Countries which enjoy the highest level of peace, happiness and prosperity are the ones where the law least interfered with private affairs.
+ - They would be the shepherds over us, their sheep. Certainly such an arrangement presupposes that they are naturally superior to the rest of us. And certainly we are fully justified in demanding from the legislators and organizers proof of this natural superiority.
+ - It is not true that the legislator has absolute power over our persons and property. The existence of persons and property preceded the existence of the legislator, and his function is only to guarantee their safety.
+ - Why don’t you reform yourselves? That task would be sufficient enough.
+ - Is not liberty the destruction of all despotism – including, of course, legal despotism?
+ - It’s always tempting to do good at someone else’s expense.
+ - It is easier to show the disorder that must accompany reform than the order that should follow it.
+ - The balance of trade is an article of faith.
+ - As long as it is admitted that the law may be diverted from its true purpose – that it may violate property instead of protecting it – then everyone will want to participate in making the law, either to protect himself against plunder or to use it for plunder.
+ - Try to imagine a system of labor imposed by force that is not a violation of liberty; a transfer of wealth imposed by force that is not a violation of property rights. If you cannot do so, then you must agree that the law cannot organize labor and industry without organizing injustice.
+ - The mission of law is not to oppress persons and plunder them of their property, even thought the law may be acting in a philanthropic spirit. Its mission is to protect property.
+ - Sometimes the law defends plunder and participates in it. Sometimes the law places the whole apparatus of judges, police, prisons and gendarmes at the service of the plunderers, and treats the victim – when he defends himself – as a criminal.
+ - And this is what has taken place. The delusion of the day is to enrich all classes at the expense of each other; it is to generalize plunder under pretense of organizing it.
+ - Life, faculties, production-in other words, individuality, liberty, property-this is man. And in spite of the cunning of artful political leaders, these three gifts from God precede all human legislation, and are superior to it.
+ - Let us first of all frugality in government-peace and freedom we will have as a bonus.
+ - We hold from God the gift which includes all others. This gift is life – physical, intellectual, and moral life.
+ - Trade protection accumulates upon a single point the good which it effects, while the evil inflicted is infused throughout the mass. The one strikes the eye at a first glance, while the other becomes perceptible only to close investigation.
+
+63 quotes

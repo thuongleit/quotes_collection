@@ -1,0 +1,206 @@
+ - Change your life today. Don’t gamble on the future, act now, without delay.
+ - I was made for another planet altogether. I mistook the way.
+ - I am too intelligent, too demanding, and too resourceful for anyone to be able to take charge of me entirely. No one knows me or loves me completely. I have only myself.
+ - One is not born, but rather becomes, a woman.
+ - Authentic love must be founded on reciprocal recognition of two freedoms. For each of them, love would be the revelation of the self through the gift of the self and the enrichment of the universe.
+ - Self-knowledge is no guarantee of happiness, but it is on the side of happiness and can supply the courage to fight for it.
+ - All oppression creates a state of war.
+ - To give space when what one most yearns for is closeness, that is both the great test and great tragedy of love.
+ - I wish that every human life might be pure transparent freedom.
+ - No woman should be authorized to stay at home and raise her children. Society should be totally different. Women should not have that choice, precisely because if there is such a choice, too many women will make that one.
+ - Marriage is a career which brings about more benefits than many others.
+ - To lose confidence in one’s body is to lose confidence in oneself.
+ - That’s what I consider true generosity: You give your all, and yet you always feel as if it costs you nothing.
+ - Woman has always been man’s dependent, if not his slave; the two sexes have never shaped the world in equality. And even today woman is heavily handicapped, though her situation is beginning to change.
+ - There is only one solution if old age is not to be an absurd parody of our former life, and that is to go on pursuing ends that give our existence a meaning.
+ - The point is not for women simply to take power out of men’s hands, since that wouldn’t change anything about the world. It’s a question precisely of destroying that notion of power.
+ - The writer of originality, unless dead, is always shocking, scandalous; novelty disturbs and repels.
+ - Self-consciousness is not knowledge but a story one tells about oneself.
+ - One’s life has value so long as one attributes value to the life of others, by means of love, friendship, indignation and compassion.
+ - One can not start by saying our earthly destiny has or has not importance, for it depends on us to give it importance.
+ - If I were proud of anything in my life, it would be of our love. I feel we have to tell to each other as many things as we can, so we are not only lovers, but the closest of friends at the same time.
+ - She was not to look beyond herself for the meaning of her life.
+ - Oppression tries to defend itself by its utility.
+ - The body is not a thing, it is a situation: it is our grasp on the world and our sketch of our project.
+ - If you haven’t been happy very young, you can still be happy later on, but it’s much harder. You need more luck.
+ - In every society the artist or writer remains an outsider...
+ - It must be said in addition that the men with the most scrupulous respect for embryonic life are also those who are most zealous when it comes to condemning adults to death in war.
+ - I tore myself away from the safe comfort of certainties through my love for truth – and truth rewarded me.
+ - Marriage is traditionally the destiny offered to women by society. Most women are married or have been, or plan to be or suffer from not being.
+ - No one is more arrogant toward women, more aggressive or scornful, than the man who is anxious about his virility.
+ - On the day when it will be possible for woman to love not in her weakness but in her strength, not to escape herself but to find herself, not to abase herself but to assert herself – on that day love will become for her, as for man, a source of life and not of mortal danger.
+ - The fact that we are human beings is infinitely more important than all the peculiarities that distinguish human beings from one another.
+ - What is an adult? A child blown up by age.
+ - I take on a shape and an existence only if I first throw myself into the world by loving, by doing.
+ - Work would be terribly boring if one did not play the game all out, passionately.
+ - Anger or revolt that does not get into the muscles remains a figment of the imagination.
+ - A couple who go on living together merely because that was how they began, without any other reason: was that what we were turning into?
+ - Jealousy is not contemptible, real love has a beak and claws.
+ - She was ready to deny the existence of space and time rather than admit that love might not be eternal.
+ - Woman is shut up in a kitchen or in a boudoir, and astonishment is expressed that her horizon is limited. Her wings are clipped, and it is found deplorable that she cannot fly.
+ - Women’s mutual understanding comes from the fact that they identify themselves with each other; but for the same reason each is against the others.
+ - Buying is a profound pleasure.
+ - From the very beginning, existentialism defined itself as a philosophy of ambiguity.
+ - The ideal of happiness has always taken material form in the house, whether cottage or castle; it stands for permanence and separation from the world.
+ - What an odd thing a diary is: the things you omit are more important than those you put in.
+ - A foreign country can best be understood through its literature.
+ - Habit has a kind of poetry.
+ - To catch a husband is an art; to hold him is a job.
+ - If you live long enough, you’ll see that every victory turns into a defeat.
+ - To be free is not to have the power to do anything you like; it is to be able to surpass the given toward an open future.
+ - One is not born a genius, one becomes a genius; and the feminine situation has up to the present rendered this becoming practically impossible.
+ - Defending the truth is not something one does out of a sense of duty or to allay guilt complexes, but is a reward in itself.
+ - Cooking is revolution and creation...
+ - When someone you love dies you pay for the sin of outliving her with a thousand piercing regrets.
+ - When women act like women, they are accused of being inferior. When women act like human beings, they are accused of behaving like men.
+ - Women have been burnt as witches simply because they were beautiful.
+ - No existence can be validly fulfilled if it is limited to itself.
+ - Whether you think of it as heavenly or as earthly, if you love life immortality is no consolation for death.
+ - To show your true ability is always, in a sense, to surpass the limits of your ability, to go a little beyond them: to dare, to seek, to invent; it is at such a moment that new talents are revealed, discovered, and realized.
+ - She was trying to get rid of a religious hangover.
+ - The characteristic feature of all ethics is to consider human life as a game that can be won or lost and to teach man the means of winning.
+ - I am incapable of conceiving infinity, and yet I do not accept finity.
+ - Each of us is responsible for everything and to every human being.
+ - People seem to think that if you keep your head empty you automatically fill your balls.
+ - Some things I loved have vanished. A great many others have been given to me.
+ - I think that where you go wrong is that you imagine that your reasons for living ought to fall on you, ready-made from heaven, whereas we have to find them for ourselves.
+ - Representation of the world, like the world itself, is the work of men; they describe it from their own point of view, which they confuse with the absolute truth.
+ - There is only one good. And that is to act according to the dictates of one’s conscience.
+ - A man would never get the notion of writing a book on the peculiar situation of the human male.
+ - You can’t assume the responsibility for everything you do or don’t do.
+ - Every war, every revolution, demands the sacrifice of a generation, of a collectivity, by those who undertake it.
+ - We must not confuse the present with the past. With regard to the past, no further action is possible.
+ - Art is an attempt to integrate evil.
+ - The earthly meaning of eternal life was death, and she refused to die.
+ - It’s not a very big step from contentment to complacency.
+ - Because we are separated everything separates us, even our efforts to join each other.
+ - Fathers never have exactly the daughters they want because they invent a notion a them that the daughters have to conform to.
+ - I cannot be angry at God, in whom I do not believe.
+ - Legislators, priests, philosophers, writers, ans scientists have striven to show that the subordinate position of woman is willed in heaven and advantageous on earth.
+ - Retirement revives the sorrow of parting, the feeling of abandonment, solitude and uselessness that is caused by the loss of some beloved person.
+ - Existence must be asserted in the present if one does not want all life to be defined as an escape toward nothingness.
+ - Whatever the country, capitalist or socialist, man was everywhere crushed by technology, made a stranger to his own work, imprisoned, forced into stupidity.
+ - A man attaches himself to woman – not to enjoy her, but to enjoy himself.
+ - Tonight, once more, life sinks its teeth into my heart.
+ - It was easier for me to think of a world without a creator than of a creator loaded with all the contradictions of the world.
+ - It’s only arrogance if you’re wrong.
+ - That is what chills your spine when you read an account of a suicide: not the frail corpse hanging from the window bars but what happened inside that heart immediately before.
+ - The body is the instrument of our hold on the world.
+ - What would Prince Charming have for occupation if he had not to awaken the Sleeping beauty?
+ - Christian ideology has contributed no little to the oppression of woman.
+ - Life is occupied in both perpetuating itself and in surpassing itself; if all it does is maintain itself, then living is only not dying.
+ - Old age is life’s parody.
+ - The most sympathetic of men never fully comprehend woman’s concrete situation.
+ - Every time a man dies, a child dies too, and an adolescent and a young man as well; everyone weeps for the one who was dear to him.
+ - Justice can never be done in the midst of injustice.
+ - I’m not against mothers. I am against the ideology which expects every woman to have children, and I’m against the circumstances under which mothers have to have their children.
+ - Living by proxy is always a precarious expedient.
+ - Sometimes speech is no more than a device for saying nothing – and a neater one than silence.
+ - Live with no time-out.
+ - Today, however, we are having a hard time living because we are so bent on outwitting death.
+ - Retirement may be looked upon either as a prolonged holiday or as a rejection, a being thrown on to the scrap-heap.
+ - Man is defined as a human being and a woman as a female – whenever she behaves as a human being she is said to imitate the male.
+ - The role of a retired person is no longer to possess one.
+ - Be loved, be admired, be necessary; be somebody.
+ - She would never change, but one day at the touch of a fingertip she would fall to dust.
+ - Literature is born when something in life goes slightly adrift.
+ - Society cares for the individual only so far as he is profitable.
+ - It is a difficult matter for man to realize the extreme importance of social discriminations which seem outwardly insignificant but which produce in woman moral and intellectual effects so profound that they appear to spring from her original nature.
+ - The knight departing for new adventures offends his lady, yet she has nothing but contempt for him if he remains at her feet.
+ - To will freedom and to will to disclose being are one and the same choice; hence, freedom takes a positive and constructive step which causes being to pass to existence in a movement which is constantly surpassed.
+ - Let women be provided with living strength of their own. Let them have the means to attack the world and wrest from it their own subsistence, and their dependence will be abolished – that of man also.
+ - Ah, if only there were two of me, she thought, one who spoke and the other who listened, one who lived and one who watched, how I would love myself! I would envy no one.
+ - Capabilities are clearly manifested only when they have been realized.
+ - When an individual is kept in a situation of inferiority, the fact is that he does become inferior.
+ - My life was hurrying, racing tragically toward its end. And yet at the same time it was dripping so slowly, so very slowly now, hour by hour, minute by minute. One always has to wait until the sugar melts, the memory dies, the wound scars over, the sun sets, the unhappiness lifts and fades away.
+ - The nearer I come to the end of my days, the more I am enabled to see that strange thing, a life, and to see it whole...
+ - The word love has by no means the same sense for both sexes, and this is one cause of the serious misunderstandings that divide them.
+ - When we abolish the slavery of half of humanity, together with the whole system of hypocrisy it implies, then the “division” of humanity will reveal its genuine significance and the human couple will find its true form.
+ - When Goya was 80 he drew an ancient man propped on two sticks, with a great mass of white hair and beard all over his face, and the inscription, “I am still learning.”
+ - Literature takes its revenge on reality by making it the slave of fiction...
+ - To abstain from politics is in itself a political attitude.
+ - Sex pleasure in woman is a kind of magic spell; it demands complete abandon; if words or movements oppose the magic of caresses, the spell is broken.
+ - I had never believed in the sacred nature of literature. God had died when I was fourteen...
+ - It is old age, rather than death, that is to be contrasted with life. Old age is life’s parody, whereas death transforms life into a destiny: in a way it preserves it by giving it the absolute dimension. Death does away with time.
+ - The ballot box is a most inadequate mechanism of change.
+ - The arrogance of some Christians would close heaven to them if, to their misfortune, it existed.
+ - You have never had any confidence in him. And if he has no confidence in himself it is because he sees himself through your eyes.
+ - In order to be an artist, one must be deeply rooted in the society.
+ - The American woman’s inequality with men is proved by her defiant attitude.
+ - She offered her mouth to him, as if enchanted. A Persian princess, a little Indian, a fox, a morning glory, a lovely wisteria – it always pleased them when you told them they looked like something, like something else.
+ - This has always been a man’s world, and none of the reasons that have been offered in explanation have seemed adequate.
+ - We always come back to the same vicious circle – an extreme degree of material or intellectual poverty does away with the means of alleviating it.
+ - There is no justification for present existence other than its expansion into an indefinitely open future.
+ - However gifted an individual is at the outset, if his or her talents cannot be developed because of his or her social condition, because of the surrounding circumstances, these talents will be still-born.
+ - Society turns away from the aged worker as though he belonged to another species. That is why the whole question is buried in a conspiracy of silence. Old age exposes the failure of our entire civilization.
+ - Patience is one of those feminine qualities which have their origin in our oppression but should be preserved after our liberation.
+ - Man is a talking animal and he will always let himself be swayed by the power of the word. Machines won’t change human nature.
+ - I don’t want to be just another blade of grass.
+ - Youth and what the Italians so prettily call stamina. The vigor, the fire, that enables you to love and create. When you’ve lost that, you’ve lost everything.
+ - Dwelling-place and food are useful for life but give it no significance: the immediate goals of the housekeeper are only means, not true ends.
+ - To protest in the name of morality against ‘excesses’ or ‘abuses’ is an error which hints on active complicity. There are no ‘abuses’ or ‘excesses’ here, simpily an all-pervasive system.
+ - Let women be provided with living strength of their own.
+ - In itself, homosexuality is as limiting as heterosexuality: the ideal should be to be capable of loving a woman or a man; either, a human being, without feeling fear, restraint, or obligation.
+ - If her functioning as a female is not enough to define woman, if we decline also to explain her through “the eternal feminine,” and if nevertheless we admit, provisionally, that women do exist, then we must face the question: what is a woman?
+ - Old age was growing inside me. It kept catching my eye from the depths of the mirror. I was paralyzed sometimes as I saw it making its way toward me so steadily when nothing inside me was ready for it.
+ - History is a great cemetery: men, deeds, ideas are always dying as soon as they are born.
+ - Why does one exist? That’s not my problem. One does exist. The thing to do is to take no notice but go at it on the run and to keep on going right on until you die.
+ - Harmony between two individuals is never granted-it has to be conquered indefinitely.
+ - Old age is better for women than for men. First of all, they have less far to fall, since their lives are more mediocre than those of most men.
+ - Christianity gave eroticism its savor of sin and legend when it endowed the human female with a soul.
+ - The whole world was nothing but an exile with no hope of a return.
+ - To be moral is to discover fundamentally ones own being.
+ - To will oneself moral and to will oneself free are one and the same decision.
+ - It is in the knowledge of the genuine conditions of our lives that we must draw our strength to live and our reasons for living.
+ - It is doubtless impossible to approach any human problems with a mind free from bias.
+ - Society cares about the individual only in so far as he is profitable. The young know this. Their anxiety as they enter in upon social life matches the anguish of the old as they are excluded from it.
+ - Those interested in perpetuating present conditions are always in tears about the marvelous past that is about to disappear, without having so much as a smile for the young future.
+ - It’s true that what you find in New York is something other than America. Only small towns and small countries are self-satisfied; a real capital goes beyond its borders.
+ - As long as there have been men and they have lived, they have all felt this tragic ambiguity of their condition, but as long as there have been philosophers and they have thought, most of them have tried to mask it.
+ - The women of today are in a fair way to dethrone the myth of femininity; they are beginning to affirm their independence in concrete ways; but they do not easily succeed in living completely the life of a human being.
+ - It is in great part the anxiety of being a woman that devastates the feminine body.
+ - Love and action always imply a failure, but this failure must not keep us from loving and acting. For we have not only to establish what our situation is, we have to choose it in the very heart of its ambiguity.
+ - Since it is the Other within us who is old, it is natural that the revelation of our age should come to us from outside – from others. We do not accept it willingly.
+ - A writer is hoisted up onto a pedestal only to scrutinize him more closely and conclude that it was a mistake to put him up there in the first place.
+ - Why one man rather than another? It was odd. You find yourself involved with a fellow for life just because he was the one that you met when you were nineteen.
+ - And without a doubt it is more comfortable to endure blind bondage than to work for one’s liberation; the dead, too, are better suited to the earth than the living.
+ - It’s frightening to think that you mark your children merely by being yourself. It seems unfair. You can’t assume the responsibility for everything you do – or don’t do.
+ - Society, being codified by man, decrees that woman is inferior; she can do away with this inferiority only by destroying the male’s superiority.
+ - It is not in giving life but in risking life that man is raised above the animal; that is why superiority has been accorded in humanity not to the sex that brings forth but to that which kills.
+ - Even if one is neither vain nor self-obsessed, it is so extraordinary to be oneself – exactly oneself and no one else – and so unique, that it seems natural that one should also be unique for someone else.
+ - Few tasks are more like the torture of Sisyphus than housework, with its endless repetition: the clean becomes soiled, the soiled is made clean, over and over, day after day.
+ - Woman is determined not by her hormones or by mysterious instincts, but by the manner in which her body and her relation to the world are modified through the action of others than herself.
+ - Sign of old age: distress at all leave-takings, all separations. And the sadness of memories, because I’m aware they’re condemned to death.
+ - For me, the problem of time is linked up with that of death, with the thought that we inevitably draw closer and closer to it, with the horror of decay.
+ - All the idols made by man, however terrifying they may be, are in point of fact subordinate to him, and that is why he will always have it in his power to destroy them.
+ - The curse which lies upon marriage is that too often the individuals are joined in their weakness rather than in their strength – each asking from the other instead of finding pleasure in giving.
+ - There are cases where the slave does not know his servitude and where it is necessary to bring the seed of his liberation to him from the outside: his submission is not enough to justify the tyranny which is imposed upon him.
+ - Indeed, there is nothing more arbitrary than intervening as a stranger in a destiny which is not ours...
+ - The way I approached a question, my habit of mind, the way I looked at things, what I took for granted – all this was myself and it did not seem to me that I could alter it.
+ - Tragedies are all right for a while: you are concerned, you are curious, you feel good. And then it gets repetitive, it doesn’t advance, it grows dreadfully boring: it is so very boring, even for me.
+ - It is perfectly natural for the future woman to feel indignant at the limitations posed upon her by her sex. The real question is not why she should reject them: the problem is rather to understand why she accepts them.
+ - To be oneself, simply oneself, is so amazing and utterly unique an experience that it’s hard to convince oneself so singular a thing happens to everybody.
+ - A Darwinian nation of economic fitness abhors idleness, dependence, non-productivity.
+ - He formed his sentences hesitantly and then threw them at me with such force that I felt as if I were receiving a present each time.
+ - For years I thought my work still lay ahead, and now I find it is behind me: there was no moment when it took place.
+ - In the face of an obstacle which is impossible to overcome, stubbornness is stupid.
+ - To make oneself an object, to make oneself passive, is a very different thing from being a passive object.
+ - The torment that so many young women know, bound hand and foot by love and motherhood, without having forgotten their former dreams.
+ - Few books are more thrilling than certain confessions, but they must be honest, and the author must have something to confess.
+ - Many things would be changed for Americans if they would only admit that there is ill-luck in this world and that misfortune is not a priori a crime.
+ - A man is in the right in being a man; it is the woman who is in the wrong.
+ - Anyway I know only too well that all life is nothing but a brief reprieve from death.
+ - The individuals who seem to us most outstanding, who are honored with the name of genius, are those who have proposed to enact the fate of all humanity in their personal existences.
+ - To be a woman, if not a defect, is at least a peculiarity.
+ - Americans are nature-lovers: but they only admit of nature proofed and corrected by man.
+ - It is impossible to do anything for anyone.
+ - The Communists, following Hegel, speak of humanity and its future as of some monolithic individuality. I was attacking this illusion.
+ - The most mediocre of males feels himself a demigod as compared with women.
+ - Therefore the misfortune which comes to man as a result of the fact that he was a child is that his freedom was first concealed from him and that all his life he will be nostalgic for the time when he did not know it’s exigencies.
+ - I realized that even if we went on talking till Judgment Day, I would still find the time all too short.
+ - The human species is forever in a state of change, forever becoming.
+ - The innumerable conflicts that set men and women against one another come from the fact that neither is prepared to assume all the consequences of this situation which the one has offered and the other accepted.
+ - One is not conceived a lady, one turns into one.
+ - Hegel held that the two sexes were of necessity different, the one being active and the other passive, and of course the female would be the passive one.
+
+204 quotes

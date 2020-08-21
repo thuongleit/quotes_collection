@@ -1,0 +1,41 @@
+ - He who cannot howl will not find his pack.
+ - Poetry is an orphan of silence. The words never quite equal the experience behind them.
+ - Inside my empty bottle I was constructing a lighthouse while all others were making ships.
+ - I slept little, read a lot, and fell in love frequently.
+ - Silence is the only language god speaks.
+ - If I believe in anything, it is in the dark night of the soul. Awe is my religion, and mystery is its church.
+ - The stars know everything, So we try to read their minds. As distant as they are, We choose to whisper in their presence.
+ - When you play chess alone it’s always your move.
+ - Insomnia is an all-night travel agency with posters advertising faraway places.
+ - When people ask me how to find happiness in life I tell them, First learn how to cook.
+ - Poems are other people’s snapshots in which we see our own lives.
+ - Poetry is an orphan of silence.
+ - The plain truth is we are going to die. Here I am, a teeny spec surrounded by boundless space and time, arguing with the whole of creation, shaking my fist, sputtering, growing even eloquent at times, and then-poof! I am gone. Swept off once and for all. I think that is very, very funny.
+ - The poem I want to write is impossible. A stone that floats.
+ - I left parts of myself everywhere, The way absent-minded people leave Gloves and umbrellas Whose colors are sad from dispensing so much bad luck.
+ - The highest levels of consciousness are wordless.
+ - The secret wish of poetry is to stop time.
+ - The truth is dark under your eyelids.
+ - Poetry: three mismatched shoes at the entrance of a dark alley.
+ - I was already dozing off in the shade, dreaming that the rustling trees were my many selves explaining themselves all at the same time so that I could not make out a single word. My life was a beautiful mystery on the verge of understanding, always on the verge! Think of it!
+ - If the sky falls they shall have clouds for supper.
+ - Wanted: a needle swift enough to sew this poem into a blanket.
+ - The stone is a mirror which works poorly. Nothing in it but dimness. Your dimness or its dimness, who’s to say? In the hush your heart sounds like a black cricket.
+ - For Emily Dickinson every philosophical idea was a potential lover. Metaphysics is the realm of eternal seduction of the spirit by ideas.
+ - Words make love on the page like flies in the summer heat and the poet is only the bemused spectator.
+ - I’m not a stickler for truth. To me, lying in poetry is much more fun. I’m against lying in life, in principle, in any other activity except poetry.
+ - Here is something we can all count on. Sooner or later our tribe always comes to ask us to agree to murder.
+ - Making art in America is about saving one’s soul.
+ - A poem is an invitation to a voyage. As in life, we travel to see fresh sights.
+ - The world is beautiful but not sayable. That’s why we need art.
+ - One writes because one has been touched by the yearning for and the despair of ever touching the Other.
+ - We name one thing and then another. That’s how time enters poetry. Space, on the other hand, comes into being through the attention we pay to each word. The more intense our attention, the more space, and there’s a lot of space inside words.
+ - Only poetry can measure the distance between ourselves and the Other.
+ - In their effort to divorce language and experience, deconstructionist critics remind me of middle-class parents who do not allow their children to play in the street.
+ - The ambition of much of today’s literary theory seems to be to find ways to read literature without imagination.
+ - There’s no preparation for poetry.
+ - To submit to chance is to reveal the self and its obsessions.
+ - A ‘truth’ detached and purified of pleasures of ordinary life is not worth a damn in my view. Every grand theory and noble sentiment ought to be first tested in the kitchen-and then in bed, of course.
+ - There are people who live inside their heads and their intellects. It’s something one is born with and stuck with. It’s not something you make a decision about.
+
+39 quotes

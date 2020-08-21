@@ -1,0 +1,26 @@
+ - If you don’t have integrity, you have nothing. You can’t buy it. You can have all the money in the world, but if you are not a moral and ethical person, you really have nothing.
+ - If you build that foundation, both the moral and the ethical foundation, as well as the business foundation, and the experience foundation, then the building won’t crumble.
+ - If you don’t have integrity, you have nothing. You can’t buy it.
+ - Whales who come up and spout off get harpooned.
+ - As I said there is nothing wrong with failing. Pick yourself up and try it again. You never are going to know how good you really are until you go out and face failure.
+ - To understand KKR, I always like to say, don’t congratulate us when we buy a company. Any fool can buy a company. Congratulate us when we sell it and when we’ve done something with it and created real value.
+ - A real entrepreneur is somebody who has no safety net underneath them.
+ - And make sure that capital structure we have in place is the right capital structure. I think that’s the reason that we’ve been successful.
+ - Going public is not a business plan.
+ - The trouble, in my opinion, with corporate America today, is that everything is thought of in quarters.
+ - I thought at the time that I wanted to go into institutional sales, selling stocks and bonds to institutions. In those days, which was the 1960s, the institutional salesman was making about $100,000 a year. I thought that was just an enormous amount of money.
+ - I want people who will stand up to me. People who are not afraid to say exactly what’s on their minds, even though that’s probably not what I want to hear. That’s what I want.
+ - Any fool can buy a company; just pay enough.
+ - I love the ability to work with very good managers, and to provide the right incentives for them, and truly become a partner with that management, and make that management take a long view.
+ - If you have something at risk, you think differently.
+ - I have, in my partner George Roberts, a person who is the most wonderful man in the world to me. He’s like a brother to me. Creating with him, being side by side with him, in whatever we try to do, is a real pleasure to me.
+ - One, I love the creativity. I love the ability to create a capital structure that is appropriate for a company, no matter what field it happens to be in.
+ - I’ve been in a hurry all my life. I’ve been in a hurry to succeed, and in a hurry to prove myself.
+ - It’s not just buying the company. Sure, we picked the right companies, and we picked the right management and, most importantly, we’ve given them the right incentive to perform.
+ - I was an economics major in college, and every summer after school, I would drive my car from California, from Claremont men’s college at the time, to New York. And I worked on Wall Street.
+ - It’s one of the most important things at the end of the day, being able to say no to an investment.
+ - I always like to refer managers in corporate America as the renters of the corporate assets, not the owners.
+ - You only have one thing to sell in life, and that’s yourself.
+ - But once you buy a company, you are married. You are married to that company.
+
+24 quotes

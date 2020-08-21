@@ -1,0 +1,95 @@
+ - Only nothing is impossible.
+ - Sometimes it’s only madness that makes us what we are.
+ - Enough madness? Enough? And how do you measure madness? – The Joker.
+ - I’m the evil mastermind behind the scenes. I’m the wicked puppeteer who pulls the strings and makes you dance. I’m your writer.
+ - It’s so horrible to realize you’re just the same as everyone else, isn’t it?
+ - I won’t tell you again! Don’t look back! In hell you never look back!
+ - I don’t ignore continuity, and try my best to stick as closely to the current status quo as possible, but it’s not my primary concern when I start a story.
+ - Superman loves everyone. He’s like Jesus except he punches people.
+ - Laugh and the world laughs with you!
+ - Before it was a Bomb, the Bomb was an Idea. Superman, however, was a Faster, Stronger, Better Idea.
+ - Who needs girls when you’ve got comics?
+ - The interior of our skulls contains a portal to infinity.
+ - I couldn’t think of one clever way to stop this guy, so I just trusted to mindless violence.
+ - I’m a false icon! The media collaborate in promoting my superficial lifestyle as somehow more valid, more worthy of attention than your real lives! – Gideon Stargrave.
+ - There’s a palace in your head, boy. Learn to live in it always.
+ - Truth speaks best in the language of poetry and symbolism, I think.
+ - If our shallow, self-critical culture sometimes seems to lack a sense of the numinous or spiritual it’s only in the same way a fish lacks a sense of the ocean.
+ - And that’s why people read comics, to get away from the way life works, which is quite cruel and unheroic and ends in death.
+ - I just do what I do because it feels right. Other people attach labels to that.
+ - I think the only way you can get something out is to invest some real emotion into it, which means you’re already writing about what’s going to happen to you, whether you know it or not. That’s why I’m always surprised when people talk about writer’s block. Because to me, it can’t be stopped.
+ - Why am I in Hell? It hurts. It hurts all the time. Why am I in Hell? I just want to go home and lie on the bed the way I used to. Please take me home.
+ - Then I reminded myself that all intelligent children suffer bad dreams.
+ - We love our superheroes because they refuse to give up on us. We can analyze them out of existence, kill them, ban them, mock them, and still they return, patiently reminding us of who we are and what we wish we could be.
+ - Burnout is grist to the mill. I write every day, for most of the day, so it’s just about turning into metaphor whatever’s going on in my life, in the world, and in my head. Every nightmare, every moment of grief or joy or failure, is a moment I can convert into cash via words.
+ - A cannon fires only once but words detonate across centuries.
+ - The first light had cast the first shadow.
+ - Sometimes you wonder, in an interconnected universe, who’s dreaming who?
+ - Metaphor is one of a group of problem-solving medicines known as figures of speech which are normally used to treat literal thinking and other diseases.
+ - Reality and unreality have no clear distinction in our present circumstances.
+ - Look at us! Are we not proof that there is no good, no evil, no truth, no reason? Are we not proof that the universe is a drooling idiot with no fashion sense – Mr Nobody on the fundamental philosophy of the Brotherhood of DADA.
+ - Study yourself the way a hunter studied prey. Exploit your own weaknesses to create desired changes within yourself.
+ - It’s salt. Why don’t you sprinkle some on me, honey? Aren’t I just good enough to eat?
+ - I will rise from the darkness, shining like the morning star. Illuminated woman am I.
+ - The big problem is time. I don’t have enough of it to do all the things I think about doing.
+ - And when it’s all done, when there’s no one left you’ll come back for me. And tell me who I am and why I have to do what I do. And explain ‘Eternity.’ You’ll come back.
+ - A bullet in the right place can change the world.
+ - We’re the new power, come to replace the old. Cameras in the head, children with microchips, spin doctors rewriting reality as it happens.
+ - Performing magic has a lot to do with the arrangement of apparent coincidences and providing pathways along which desires can travel, or, to put it in more basic terms, there’s little point in sigilizing for a lottery win if you don’t also buy a lottery ticket.
+ - Seven actors have played Batman on the big screen, and if you can name all seven without reading any further, your youth has been wasted.
+ - I’m a fan myself, so I try to write the kind of comics I want to read.
+ - Kipling: Where’s your sense of humor? Rebis: We’re working on reconstructing it...
+ - The moon is so beautiful. It’s a big silver dollar, flipped by God. And it landed scarred side up, see? So He made the world.
+ - I’m at a stage in my career where I don’t expect or get too much editorial input into what I’m doing. I have a proven track record of success, so my editors are willing to cut me some slack even when a particular approach is not to their personal taste.
+ - One must commit acts of the highest treason only when dressed in the most resplendent finery.
+ - I just wanted all the wars to be over so that we could spend the money on starships and Mars colonies.
+ - Remember it’s all just a mirror we made to see ourselves in.
+ - I should say I am far more cleverer than any of the people who put me here. As a matter of fact, I could leave any time I wanted. It’s only a doll house after all. Anyway, I don’t mind. I like dolls. Particularly the live ones.
+ - It’s hard for me to believe that a shy, bespectacled college graduate like Brad Meltzer who’s a novelist and a father is a really setting out to be weirdly misogynistic.
+ - Hell changes constantly but there are certain consistent landmarks which always stay in the same relation to one another.
+ - This is the end of our sentence.
+ - I use everything. Turning life into stories is how I make sense of my experience. No matter how weird or disturbing or upsetting to me personally, it all finds its way in there.
+ - I love ‘Batman.’ I love the Adam West ‘Batman.’ I love the animated ‘Batman.’ The character of Batman can encompass any interpretation, which is what makes that character so brilliant and why it’s survived so many different media.
+ - It’s stupid, I know, but I care. All the things that meant so much when we were young. Under the blankets late at night, listening to long-distance radio. All those things lost now or broken. Can you remember? Can you remember that feeling? Perhaps I ought to go to a doctor.
+ - Write comic books if you love comic books so much that you want to write them. Don’t write them like movies. Comics can do a lot of things that movies can’t do, and vice versa.
+ - Why did you make it so hard for me? I’d rather empty the ocean with a sieve. I do it for you. Or count the grains of sand on every beach. All for you. There are so many people, so many countries. But I have time. All the time in the world. Eternity.
+ - The perfect fascist state needs to operate in conditions of perpetual warfare. Have you ever noticed how the world has been in constant crisis since World War II?
+ - The thing that’s been exciting about ‘Superman’ is to see how the character has developed through generations.
+ - Talking to oneself, I have often thought, is the best way to be sure of intelligent and witty conversation.
+ - I’m lucky to have a job doing something I really love to do, and I’m happy to accept the pressures of relentless deadlines or reader expectations as necessary evils. It’s probably not as stressful as mining coal or leading men into battle.
+ - I guess my inspiration is this – I like to pretend that every story that ever happened to ‘Batman’ was real and is part of this one guy’s life.
+ - Sometimes I pretend not to look at my own characters, because that’s like different people getting off with your girlfriend or something.
+ - Writers and artists build by hand little worlds that they hope might effect change in real minds, in the real world where stories are read. A story can make us cry and laugh, break our hearts, or make us angry enough to change the world.
+ - It’s mostly just you have to convince yourself that there’s nothing else in the room but John Lennon and suddenly things start John Lennon-ing!
+ - I prefer working out of strict continuity, because no normal human being can have a firm grip on the constantly shifting bardo-like territory of a comics universe, where entire histories can be erased by a strong enough super-sneeze.
+ - My greatest accomplishment so far is to keep selling enough that I never want for the labor that sustains my Presbyterian soul.
+ - If this book has made any point clear, I hope it’s that things don’t have to be real to be true. Or vice versa.
+ - I was a clubber in the Nineties. I went dancing every week.
+ - I plan years in advance, but I like to leave enough space in the narrative scheme to change things, because I always get my best ideas the closer I come to the end of a project, after I’ve lived with it for a while.
+ - It’s always interesting to see what the real enthusiasts think, but they’re rarely representative of the tastes of the wider audience, so I tend to write for myself, for an imagined smart 14-year-old, and for a couple of friends who are still big comics fans.
+ - I have to confess I’m not a huge comics fan in the wider sense of comics as an art form.
+ - All I know is that you won’t come back until they’re all dead. ‘Eternity.’ Every last one of them. Every man. Every woman. Every child. Global massacre. I dream about that day. A planet of corpses.
+ - Life doesn’t have plots and subplots and denouements. It’s just a big collection of loose ends and dangling threads that never get explained.
+ - Your character that you create in your writing not only represents who you are, but also represents a number of people who you’ve met along the way.
+ - The only time I ever met a character that I wrote was when I met Ian McKellan, when he was playing Magneto in the ‘X-Men’ movies.
+ - I do like to keep abreast of what the hardcore vocal members of the comics-reading audience are talking about on Internet message boards, but there are so few of them, as a percentage of the buying audience, that I can’t allow their opinions to dictate story direction.
+ - These characters were like twelve-bar blues or other chord progressions. Given the basic parameters of Batman, different creators could play very different music.
+ - From now on, I’m opting for ontological terrorism.
+ - When was the last time you had a thought that wasn’t put there by THEM?
+ - There are dozens of unfinished or aborted projects in my files, but I can only assume they don’t get done because they’re not robust enough to struggle through the birth process.
+ - I think that superhero comics in particular are really useful for talking about big emotions and feelings, and personifying and concretizing symbols.
+ - I think any writer coming on to ‘Batman’ should at least attempt to do their own definitive version. What it means to them. Whatever they think that symbol or character can say.
+ - The only thing that made me, or any of us, special was that no one in the whole of history would ever see the universe exactly the same way any other of us saw it.
+ - The world gets more like Disneyland every day, and it’s the same the other way round. I can’t explain what I know. Try explaining RED to a DOG and see how fast he gets bored.
+ - I don’t like to think of my readership as ‘fans,’ a word which has always suggested a kind of power relationship I’m uncomfortable with.
+ - We’ve always known we’d eventually be called upon to open our shirts and save the day, and the superhero was a crude, hopeful attempt to talk about how we all might feel on that day of great power, and great responsibility.
+ - I was always interested in myths growing up. So, first I got into some Roman myths, then I was interested in Norse, then Celtic, then I started spreading to all the other mythologies.
+ - It surprises me constantly that my sometimes-unorthodox approach has such a large following, but I’m very grateful to my readers for allowing me to continue writing 10 or 12 hours a day.
+ - I can always see ways to improve what I’ve done. At the same time, knowing it’s all an ongoing life’s work allows me to be less precious about blind alleys, failed experiments, and misfires.
+ - Unlike novel characters, comic book characters last an eternity. When a character is changed beyond recognition, there’s no longer the merchandising aspect.
+ - Consciousness, rather than being something that we have, is something we participate in.
+ - I tend to only read comics written by friends or people I’ve known. And I’m not a great comic reader.
+ - I write dozens and dozens of pages more than I need, and then edit them down to size. It’s more like sculpture than construction.
+ - He read me extracts from a medical journal describing the progress of a staphylococcus aureus infection. And then he pleasured me with a potato.
+
+93 quotes

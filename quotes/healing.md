@@ -1,0 +1,42 @@
+ - Between stimulus and response is the freedom to choose. ~~Viktor E. Frankl
+ - Every step taken in mindfulness brings us one step closer to healing ourselves and the planet. ~~Nhat Hanh
+ - A broken heart heals when we allow the healing to go as deep as the wound went. ~~Beth Moore
+ - You’ve seen my descent, now watch my rising. ~~Rumi
+ - Time heals all wounds. ~~Stephen King
+ - I allow the healing power in my body to manifest perfect health. ~~Louise Hay
+ - Solitude is for me a fount of healing which makes my life worth living. Talking is often a torment for me, and I need many days of silence to recover from the futility of words. ~~C.G. Jung
+ - Do what is healing to your spirit and without effort you will bring the world healing in return. ~~Alan Cohen
+ - Your silence will not protect you. ~~Audre Lorde
+ - Our task is not to fix blame for the past, but to fix the course for the future. ~~John F. Kennedy
+ - An affirmation to say everyday: The healing power of God is working in me right now. Eveyr day I get better and better in every way. ~~Joyce Meyer
+ - The place of true healing is a fierce place. It’s a giant place. it’s a place of monstrous beauty and endless dark and glimmering light. ~~Cheryl Strayed
+ - Sleep is good, he said, And books are better. ~~George R.R. Martin
+ - From a certain point onward there is no longer any turning back. That is the point that must be reached. ~~Franz Kafka
+ - Each of us has a unique part to play in the healing of the world. ~~Marianne Williamson
+ - Healing in a matter of time, but it is sometimes also a matter of opportunity. ~~Hippocrates
+ - My friends have made the story of my life. ~~Helen Keller
+ - Having compassion starts and ends with having compassion for all those unwanted parts of ourselves. The healing comes from letting there be room for all of this to happen: room for grief, for relief, for misery, for joy. ~~Pema Chödrön
+ - I firmly believe that nature brings solace in all troubles. ~~Anne Frank
+ - The place God calls you to is the place where your deep gladness and the world’s deep hunger meet. ~~Frederick Buechner
+ - The natural healing force within each one of us is the greatest force in getting well. ~~Hippocrates
+ - I always felt, if I can get to a library, I’ll be OK. ~~Maya Angelou
+ - There is only one journey. Going inside yourself. ~~Rainer Maria Rilke
+ - No matter what the issue is, don’t try to justify why you don’t feel good. And don’t try to justify why you should feel differently. Don’t try to blame whatever it is you think the reason is that’s keeping you from feeling good. All of that is wasted effort. Just try to feel better right now. ~~Esther Hicks
+ - There is no charm equal to tenderness of heart. ~~Jane Austen
+ - Through the portals of silence the healing sun of wisdom and peace will shine upon you. ~~Paramahansa Yogananda
+ - If you desire healing, let yourself fall ill let yourself fall ill. ~~Rumi
+ - We have to heal our wounded world. The chaos, despair, and senseless destruction we see today are a result of the alienation that people feel from each other and their environment. ~~Michael Jackson
+ - Life is about not knowing, having to change, taking the moment and making the best of it, without knowing what’s going to happen next. ~~Gilda Radner
+ - The most useful piece of learning for the uses of life is to unlearn what is untrue. ~~Antisthenes
+ - To learn to read is to light a fire; every syllable that is spelled out is a spark. ~~Victor Hugo
+ - We decided that it was no good asking what is the meaning of life, because life isn’t an answer, life is the question, and you, yourself, are the answer. ~~Ursula K. Le Guin
+ - It’s like everyone tells a story about themselves inside their own head. Always. All the time. That story makes you what you are. We build ourselves out of that story. ~~Patrick Rothfuss
+ - Genuine simplicity of heart is a healing and cementing principle. ~~Edmund Burke
+ - And I asked myself about the present: how wide it was, how deep it was, how much was mine to keep. ~~Kurt Vonnegut
+ - The time has come to turn to God and reassert our trust in Him for the healing of America – our country is in need of and ready for a spiritual renewal. ~~Ronald Reagan
+ - Memory nourishes the heart, and grief abates. ~~Marcel Proust
+ - Every moment presents a new opportunity and a new decision. ~~Shakti Gawain
+ - Enlightenment for a wave is the moment the wave realizes it is water. At that moment, all fear of death disappears. ~~Nhat Hanh
+ - I am not bound for any public place, but for ground of my own where I have planted vines and orchard trees, and in the heat of the day climbed up into the healing shadow of the woods. ~~Wendell Berry
+
+40 quotes

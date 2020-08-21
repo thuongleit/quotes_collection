@@ -1,0 +1,113 @@
+ - Loving someone is setting them free, letting them go.
+ - It doesn’t matter how old you are, or what you do in your life, you never stop needing your mom.
+ - If you don’t try at anything, you can’t fail.
+ - Ultimately, you just have one life. You never know unless you try. And you never get anywhere unless you ask.
+ - I don’t believe in sort of holding back, you know, life isn’t a dress rehearsal!
+ - Youre supposed to be the leading lady in your own life, for Gods sake!
+ - My husband is not a jealous person in any way.
+ - Mum and dad were very much friends, and up to life. There was no anxiety for anything when I was growing up, they just taught me to be me.
+ - Life is short, and it is here to be lived.
+ - You know why I fear people’s judgment? Because I know they’re judging. I know they are.
+ - I’m not very technically minded. I mean, I don’t know how to do e-mail on computers.
+ - Of course I believe in marriage. Commitment to one other person in life is glorious.
+ - I have no regrets. If you regret things, you’re sort of stepping backwards. I’m a believer in going forwards.
+ - You can’t be a proper writer without a touch of madness, can you?
+ - If being crazy means living life as if it matters, then I don’t mind being completely insane.
+ - Having children just puts the whole world into perspective. Everything else just disappears.
+ - As a child, I never heard one woman say to me, “I love my body”. Not my mother, my elder sister, my best friend. No one woman has ever said, “I am so proud of my body.” So I make sure to say it to Mia, because a positive physical outlook has to start at an early age.
+ - A good eye cream is really important when you are traveling, busy and stressed-that’s when the dark puffy circles can get you.
+ - I just look better in simple black things.
+ - I look like people that walk down the street. I don’t have perfect boobs, I don’t have zero cellulite – of course I don’t – and I’m curvy. If that is something that makes women feel empowered in any way, that’s great.
+ - I struggle for what I believe in. Life is short, it’s impossible to repeat something; you have to take advantage of things when you can reach them.
+ - I feel very strongly that curves are natural, womanly and real. I shall continue to hope that women are able to believe in themselves for who they are inside, and not feel under such incredible pressure to be unnaturally thin.
+ - There’s something really empowering about going, ‘Hell, I can do this! I can do this all!’ That’s the wonderful thing about mothers, you can because you must, and you just DO.
+ - Every woman has a mother, and every woman will have an issue with that mother and things that mother did or didn’t do. It just depends on how you choose to process the lessons that you learned from your own mother.
+ - Because of the person I am I won’t be knocked down – ever. They can say I’m fat, I’m thin, I’m whatever, and I’ll never stop. I just won’t. I’ve got too much to do. I’ve too much to be happy about.
+ - I suffered from ‘No one will ever fancy me!’ syndrome, well into my teens. Even now I do not consider myself to be some kind of great, sexy beauty. Absolutely not.
+ - I had to grow the hair down there. But because of years of waxing, as all of us girls know, it doesn’t come back quite the way it used to. They even made me a merkin – a wig – because they were so concerned that I might not be able to grow enough.
+ - Plastic surgery and breast implants are fine for people who want that, if it makes them feel better about who they are. But, it makes these people, actors especially, fantasy figures for a fantasy world. Acting is about being real being honest.
+ - I’m not the kind of person who’s going to look at the top of a mountain and go, ‘Oh, look at that! That’s lovely. That’s lovely, that top of that mountain.’ I’m the kind of person who’s going to go, ‘Oh, my God! That’s so lovely! Let’s go climb up it!’
+ - I finally moved out of my parent’s house. It was only fair to let my sister have her own room.
+ - For me, they definitely made it more challenging. The comfort zone factor really kicked in between Leo and I, and I just think that’s because we know each other so well. We’ve known each other since we were 20-years-old.
+ - I am enjoying my face changing, as well as realizing that at the same time, as you get older, the machine isn’t as well-oiled as it was.
+ - I’m a normal human being. I don’t have any desire to change my body as a result of having had two kids. That’s a good thing, isn’t it?
+ - There’s more to life than cheek bones.
+ - I don’t go to the gym because I don’t have time but I do Pilates workout DVDs for 20 minutes or more every day at home.
+ - I don’t have parts of my body that I hate or would like to trade for somebody else’s or wish I could surgically adjust into some fantasy version of what they are.
+ - I think what you feel like as a teenager never really goes away. If you were teased for being fat or thin or having bad teeth, you’re always insecure about that particular area of yourself. So I’ve never thought of myself as any kind of beauty, iconic or otherwise.
+ - Ah, my dad’s whistle. On holidays when I was a kid, we would all be off in the rock pools along the beach. When it came time to go, we’d hear the whistle and we’d all come running. Like dogs!
+ - I hope I’m always learning something.
+ - I’ve decided I am going to start loving my backside because I don’t know anyone who does that. And for my daughter, I want to be able to say to her, ‘I love this.’
+ - There are moments to indulge and enjoy, but I always know when it’s time to go home and wash my knickers.
+ - I’d much rather be known as some curvy Kate than as some skinny stick.
+ - Many roads to take some to joy some to heart ache.
+ - He’s probably the world’s most beautiful looking man, yet he doesn’t think he’s that gorgeous. And to me, he’s just smelly, farty Leo.
+ - Everyone can commit to 20 minutes, especially if there’s a glass of Chardonnay afterwards.
+ - It’s true that you need much time to get rid of the fat girl you once were, but you know I am sincerely grateful for my buttocks.
+ - I accept my body. I accept how I am and make the best of what I am given.
+ - I find it very difficult to wear nice, pretty shoes. I’m much more comfortable in boots or Birkenstocks or loafers.
+ - I do endless chopping and preparing things. I really find that relaxing. I do a lot of thinking as I am chopping and cooking.
+ - When I think about somebody like Keira Knightley, whom I don’t particularly know, I see somebody who is working hard, really trying to challenge herself and make smart choices in spite of people criticising her size and performances.
+ - Acting is about being real, being honest.
+ - I wanted to play incredibly challenging, multifaceted characters. Because we are all a puzzle.
+ - God, my brain really goes to mush when I’m pregnant.
+ - The things that make me happiest in the whole world are going on the occasional picnic, either with my children or with my partner; big family gatherings; and being able to go to the grocery store – if I can get those things in, I’m doing good.
+ - As a woman, especially when you have children, one gets so good at soldiering on – almost too good.
+ - I danced a lot when I was younger, and I’ve always had decent, shapely legs and thought it’s now or never. I mean, when you’re pushing 40, are you really going to wander around in a dress that’s midthigh length?
+ - I accept my body. I accept how I am and make the best of what I am given. Children orientate towards examples. That’s why I talk solely positive about my body in front of my daughter.
+ - My skin still crawls if you call me a movie star. I get embarrassed. I think, don’t be ridiculous. Maybe it’s because I’m British. To me, Julia Roberts that’s a movie star. But when people do call me one, that, I think, is an enormous compliment but, my God, is that a responsibility!
+ - I kept on going and I overcame my fears and got over my insecurities.
+ - I do think it’s important for young women to know that magazine covers are retouched. People don’t really look like that.
+ - It’s funny when someone says to you ‘you’re hot’ and all that, because I don’t think of it in that way.
+ - I’m a bit famous now! It’s a bit strange!
+ - The whole concept of ‘grounding’ children is utterly stupid – they just go off and rebel and don’t like you. When my kids eventually come along, I don’t want them to not like me.
+ - I love it when a character requires me to look less than my red-carpet best.
+ - Yeah, acting is very difficult. As much as I love it, and the challenge of it, I’m so often just terrified by it.
+ - There’s not an awful lot that embarrasses me. I’m the kind of actress that absolutely believes in exposing myself.
+ - Apart from The Holiday, I haven’t really spent a huge amount of time in LA. Not that I avoid it, it’s just that I don’t often go there unless I’m doing press. The one thing I have discovered about LA with kids is that it’s really great for children. They really like the sun and making sand castles.
+ - The highest compliment I could ever receive about my kids – and I can say that this does happen frequently – is when the in-flight crew say to me, ‘Your children are wonderful. They are so well-behaved.’ Every time I am told that, I could weep.
+ - I was a wayward child, very passionate and very determined. If I made up my mind to do something, there was no stopping me.
+ - I’m often drawn to characters that are more obviously one thing. They’re passionate, and there is always an element of strength because I think every person possesses that in some way, even if they’ve experienced hardship in their lives.
+ - I still don’t believe this craziness for being skinny, but I eat sensibly and I don’t stuff down chocolate biscuits.
+ - I love the routine. I love getting up in the morning and getting breakfast and packing lunches and doing the school run. Those things are really important to me. Because I think that those small but key moments are crucial for a kid.
+ - It’s very tempting to have a nanny and live in a gated community and have a chef – I’d love to have a few dinners cooked for me. But I don’t want that for my children. When they’re older, if people say to them, ‘Did you have a chef?’ I want them to be shocked by the question.
+ - I think of myself as a mum who finds the time to go to work. I have to check myself for baby sick before I walk out of the house in the morning. I am really a mum I know I am a great mother.
+ - I’m always inspired by actresses who are older than me. Because I know that person has lived so much more life than I have. There’s a whole other toolbox.
+ - I’m no stranger to the occasional dodgy juice, but it doesn’t taste very nice and it is bloody boring. It’s not a way to live.
+ - Having been here before and lost, to be here and win, I’ve got to tell you, winning is really a lot better than losing. Really a lot better.
+ - I knew it was going to be important that if I had an audience understand who she was, then all those things had to come from a place that was grounded, as opposed to being tics and manners and twitches. I didn’t think it was going to be as rich, perhaps, as if I was going to make it more emotional.
+ - I will tell you that when I was heavy, people would say to me – and it was such a backhanded compliment – they would say, ‘You’ve got such a beautiful face,’ in the way of, like, ‘Oh, isn’t it a shame that from the neck down you’re questionable.’
+ - I love to cook. I could never give that up.
+ - That’s the main reason I took it up But I do feel I don’t know part of, I suppose, my way out of everything, has been really taking care of myself. I think that comes from an awareness that my children really need me, and they need me to be the healthiest version of myself that I can possibly be.
+ - In films I might look glamorous, but I’ve been in hair and make-up for two hours.
+ - I feel like I’m playing more of a role walking down the red carpet than when I’m playing an ordinary woman covered in sweat.
+ - I’ve never understood the notion that actors and actresses should look great on-screen just because they’re on-screen. That doesn’t make sense to me.
+ - Everybody asks me this, whether I’m slightly annoyed that I didn’t get to kiss Johnny Depp We would have laughed.
+ - I have just wanted to be an actress. That’s always been my goal. I didn’t want to be famous.
+ - The audience’s reactions are more important: if people believe in the love story, it’s because they love how we’ve acted. That’s the most beautiful award. It’s very important for me, people appreciating what I do.
+ - I was the kid who never won the races. I never jumped the highest. I wasn’t on the list of the high-achieving.
+ - A lot of the girls were awful, very catty. It was a competitive environment that I didn’t like. You have no idea of the anorexia I saw around me.
+ - I ordinarily do one film a year and the rest of the time I’m at home with the kids. Even when I am working I’m still basically at home and with the kids. I’ve never left them to go to work.
+ - I love to cook; I cook every day. Chicken features a lot in our lives.
+ - I was very, very thrown by the fact that I had to make some big changes in my life in order to be myself, but under this kind of movie-star banner.
+ - So I won an Oscar. It’s amazing. I’ve got that for the rest of my life for a performance I am proud of. It nearly killed me. I am really proud of the film. That’s it, moving on.
+ - Since I was 13 or 14, I’ve always felt older than I actually am.
+ - Honestly, among my acquaintances there is no woman wearing XS.
+ - I’d like to grow old with my face moving.
+ - I never had crushes on anybody when I was younger; I really didn’t.
+ - I wouldn’t be a part of anything that had acts of violence toward children. I don’t think I would do a horror film, either. That just doesn’t sit well on my soul.
+ - One of the reasons I’ve never done intensive psychotherapy or any of that stuff is that if there’s anything in me that needs fixing, I want to know that I can rely on my own intuition to fix it.
+ - If I had a child, I wouldn’t let them go to drama school. At times, I was really unhappy there.
+ - If you’re not still learning and growing as an actor, then you have no backbone and no career.
+ - I am insecure. If you ask me, everybody is.
+ - By nature, I’m a very positive person, and because I’m happy in myself, and in my life, and I’ve got a great husband, and beautiful children, and I have a job that I love that calls for a certain amount of emotional expression, I get to realise a lot of my dreams and aspirations.
+ - Obviously, for the majority of parents and certainly me you gain a million worlds when you have a child. Certainly, it’s the thing that’s changed my life and made me unbelievably happy.
+ - I think I look nicer now. It’s really weird cause when you’re 21 you think, “Oh God, when I’m 36, oh God, that’s nearly 40, and I’ll look really old and wrinkly by then”. And actually I quite like the way I look. I feel OK about myself these days.
+ - I think I’m developing a kind of subconscious loathing of the word ‘franchise.’ I just think of something that’s packaged, something you can buy on a shelf and is immediately disposable. I don’t know. It’s a really weird word for me.
+ - I wouldn’t dream of working on something that didn’t make my gut rumble and my heart want to explode.
+ - I have wrinkles here, which are very evident. And I will particularly say when I look at movie posters, ‘You guys have airbrushed my forehead. Please can you change it back?’ I’d rather be the woman they’re saying ‘She’s looking older’ about than ‘She’s looking stoned.’
+ - I would never accept a role that wasn’t going to stretch me or challenge me in some way. I’d say Holy Smoke! probably did that more than anything I’d ever done. It took me to places I didn’t actually know I could go to, and that’s what I want my career to be all about.
+ - I’m not a period babe. Not at all.
+ - But I really can’t and I actually don’t like switching off because I worry that I might lose my thread, or something. I fall asleep and I hope to God that I’m going to dream about it, because then I don’t have to put it down.
+
+111 quotes

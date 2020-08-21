@@ -1,0 +1,47 @@
+ - If you can keep your head when all about you are losing theirs, it’s just possible you haven’t grasped the situation.
+ - The only reason that they say, ‘Women and children first’ is to test the strength of the lifeboats.
+ - The average, healthy, well-adjusted adult gets up at seven-thirty in the morning feeling just plain terrible.
+ - The real menace in dealing with a five-year-old is that in no time at all you begin to sound like a five-year-old.
+ - I think success has no rules, but you can learn a great deal from failure.
+ - People only call you ‘my dear’ when they are irritated with you.
+ - Do you know how helpless you feel if you have a full cup of coffee in your hand and you start to sneeze?
+ - Some people have such a talent for making the best of a bad situation that they go around creating bad situations so they can make the best of them.
+ - Don’t be silly. I’m a mature, intelligent woman. Of course I’m afraid of my mother.
+ - While in some quarters it is felt that the critic is just a necessary evil, most serious-minded, decent, talented theater people agree that the critic is an unnecessary evil.
+ - I’m tired of all this nonsense about beauty being skin deep. That’s deep enough. What do you want, an adorable pancreas?
+ - Marrying a man is like buying something you’ve been admiring for a long time in a shop window. You may love it when you get it home, but it doesn’t always go with everything else in the house.
+ - Children are different mentally, physically, spiritually, quantitatively, qualitatively; and furthermore, they’re all a little bit nuts.
+ - One of the most difficult things to contend with in a hospital is that assumption on the part of the staff that because you have lost your gall bladder you have also lost your mind.
+ - You don’t seem to realize that a poor person who is unhappy is in a better position than a rich person who is unhappy. Because the poor person has hope. He thinks money would help.
+ - Being divorced is like being hit by a Mack truck. If you live through it, you start looking very carefully to the right and to the left.
+ - I’m not so sure it’s so civilized to be civilized all the time.
+ - A lawyer is never entirely comfortable with a friendly divorce, anymore than a good mortician wants to finish his job and then have the patient sit up on the table.
+ - I feel about airplanes the way I feel about diets. It seems to me that they are wonderful things for other people to go on.
+ - Years ago when a man began to notice that if he stood up on the subway he was immediately replaced by two people, he figured he was getting too fat.
+ - Dearer to me than the evening star A Packard car A Hershey bar Or a bride in her rich adorning Dearer than any of these by far Is to lie in bed in the morning.
+ - I once truly believed that if I had to stand in line for twenty minutes to have a package gift-wrapped it actually gave the recipient more pleasure.
+ - In the beginning, we made the usual mistake of looking at houses we could afford. I am working on a proposition, hereafter to be known as Kerr’s law, which states in essence: All the houses you can afford to buy are depressing.
+ - Some enterprising youth should go from door to door on Christmas morning peddling batteries.
+ - Man is the only animal that learns by being hypocritical. He pretends to be polite and then, eventually, he becomes polite.
+ - I know all about improvisation and the free-form that mirrors the chaos of our time, but I do like to feel that the playwright has done some work before I got there.
+ - When the grandmothers of today hear the word ‘Chippendales,’ they don’t necessarily think of chairs.
+ - Being on a ship is something like being pregnant. You can sit there and do absolutely nothing but stare at the water and have the nicest sense that you are accomplishing something.
+ - I was always the last woman on the last down elevator as the store was closing.
+ - An actor can remember his briefest notice well into senescence and long after he has forgotten his phone number and where he lives.
+ - I have noticed that in plays where the characters on stage laugh a great deal, the people out front laugh very little.
+ - To me having a party is something like having a baby. The fact that you got through the last one alive is not somehow sufficiently reassuring now.
+ - Movie actors are just ordinary, mixed-up people – with agents.
+ - Even though a number of people have tried, no one has yet found a way to drink for a living.
+ - I make mistakes; I’ll be the second to admit it.
+ - I don’t grasp things this early in the day. I mean, I hear voices, all right, but I can’t pick out the verbs.
+ - Women speak because they wish to speak, whereas a man speaks only when driven to speak by something outside himself like, for instance, he can’t find any clean socks.
+ - I will read anything rather than work.
+ - I know what I wish Ralph Nader would investigate next. Marriage. It’s not safe, it’s not safe at all.
+ - Oh, wouldn’t it be wonderful if some manufacturer would make a toy as tough, as staunch, as hard to crack open as the carton it comes in!
+ - If you have formed the habit of checking on every new diet that comes along, you will find that, mercifully, they all blur together, leaving you with only one definite piece of information: french-fried potatoes are out.
+ - Now the thing about having a baby – and I can’t be the first person to have noticed this – is that thereafter you have it.
+ - There is this to be said about having money. You get rejected by a higher class of people.
+ - It takes at least one to make a marriage.
+ - I don’t want to see the uncut version of anything.
+
+45 quotes

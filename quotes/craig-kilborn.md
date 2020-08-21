@@ -1,0 +1,66 @@
+ - My brother asked me once, ‘Are you a misanthrope?’ And I said, ‘No, I just find people irritating.’
+ - If loving you is wrong, then I’ll just like you a whole bunch!
+ - I enjoyed retirement the right way linguine con vongole, red wine and plenty of truffle cheese.
+ - Happy birthday to former First Lady Barbara Bush, who turned seventy-seven this week. Unfortunately, where her granddaughters helped blow out the candles on her cake, it exploded.
+ - Comedy doesn’t always have to come from a dark place.
+ - Or as hockey player Sergei Fedorov knows it, ‘The day I can legally start telling everyone I am sleeping with Anna Kournikova.’
+ - Boeing is working on an invisible fighter jet so nobody can see who’s flying it. Didn’t George Bush fly this in the National Guard, I believe?
+ - Bush said the unemployment situation is turning around. Last week alone, 5,000 people started working for John Kerry.
+ - President Bush is trying to put a positive spin on the latest bad economic numbers. Today he declared victory in the ‘War on Jobs.’
+ - I think mankind is overly sensitive, very needy, greedy, and flawed.
+ - There was an embarrassing moment at a recent Democratic fundraiser. When John Kerry was handed a $10 million dollar check, he said, ‘I do.’
+ - President Bush announced a billion dollar mission to the moon and Mars. He came up with a snappy new slogan – to drill where no man has drilled before.
+ - New rumors that Saddam Hussein is planning to flee to a castle in Libya with 10 billion dollars. Now President Bush doesn’t know whether to nuke him or give him a tax cut.
+ - Maria Shriver is credited with helping Arnold win by standing by him despite allegations of groping. She had to stand by him cause Arnold had a vice grip on her left ass cheek.
+ - Hillary Clinton’s 506-page memoir has come out. So much of her personality shines through, that in the end, you, too, will want to sleep with an intern.
+ - Larry Flynt, running for governor of California. His goal – change our state bird to the spread eagle.
+ - There has been no electricity in Baghdad for a week and the people are angry. You would be angry too if you couldn’t watch your brand new stolen TV.
+ - I don’t do well around the angry, bitter and emotionally fragile among us, which may eliminate 70% of the population.
+ - Critics say Arnold has no previous government experience, but advisers say he’s clearly the most qualified Austrian, ex-Mr. Universe in the race.
+ - Strange medical news from Pakistan: A man had a successful organ transplant with a dog. They gave the man a dog’s organ. In a related story today, Keith Richards was seen chasing a mailman.
+ - I have a wonderful respect for old people.
+ - The election is in full-swing. Republicans have taken out round-the-clock ads promoting George Bush. Don’t we already have that? It’s called Fox News.
+ - In Massachusetts, scientists have created the first human clone. The bad thing is that in thirty years, the clone will still be depressed because the Boston Red Sox will still have not won a World Series.
+ - On Sunday, the president flies to the Azores islands to attend a summit with British Prime Minister Tony Blair and Spanish Prime Minister Jose Aznar, and here’s my prediction: Bush gets voted off.
+ - Saddam Hussein is about to face trial and George Bush wants to execute him. Not because of the war crimes, but because Saddam is beating him in the polls.
+ - George W. Bush even stopped in Pennsylvania to try his hand at the lotto and gave up when he could only think of the numbers 4 and 17.
+ - A telephone survey says that 51 percent of college students drink until they pass out at least once a month. The other 49 percent didn’t answer the phone.
+ - In Louisiana, President Bush met with over 15,000 National Guard troops. Here’s the weird part, nobody remembers seeing him there.
+ - Democrats were quick to point out that President Bush’s budget creates a 1 trillion dollar deficit. The White House quickly responded with ‘Hey, look over there, it’s Saddam Hussein.’
+ - John Kerry announced his plan for how to handle those poor naked prisoners. His wife is going to buy them all a $1,000 Armani suit.
+ - Bryant Gumbel is thrilled about his CBS deal and can’t wait to start alienating the staff of an entirely new network.
+ - Apparently, six women claim that Arnold Schwarzenegger groped them while working on his movies. Hats off to these women who admit they worked on Arnold’s movies.
+ - The places I’ve worked in the past, I always stayed three years and moved on.
+ - I don’t want to scare anybody here but we just received word from police that Howard Dean is loose and may be armed with a microphone.
+ - Martha Stewart was convicted of four counts of lying and obstruction of justice and could serve up to 20 years in Congress.
+ - I think that you’re always going to have some people who are negative or view you in a certain way.
+ - John Kerry will undergo surgery to repair his right shoulder. He originally hurt it when he suddenly switched positions on Iraq.
+ - Did you see the statue topple? Bill Clinton got nostalgic seeing something that big in a beret go down.
+ - Hillary Clinton has finished writing her book where she says her marriage couldn’t be stronger, and Bill just finished his book titled ‘Chicks I Nailed While Hillary was Writing Her Book.’
+ - Tom Ridge now says we don’t have to run out and put plastic sheets all over the house. Great, tell that to my dead parakeet.
+ - Howard Dean is narrowing the field of potential running mates. It’s down to Mike Tyson or Bobby Knight.
+ - Federal authorities have informed Martha Stewart’s lawyers she will be indicted for her role in the ImClone insider trading scandal. Good news for Martha – stripes are back in this year.
+ - Today, John Kerry announced a fool-proof plan to wipe out the $500B deficit. John Kerry has a plan, he’s going to put it on his wife’s Gold Card.
+ - The prison scandal is really hurting President Bush’s poll numbers. In fact, I hear he’s already working on his concession smirk.
+ - Ironically, the possibility that the president dodged his military service has increased his approval ratings with Democrats by 80 percent.
+ - Here in California, one candidate for governor is a 100-year-old woman. She’s going door-to-door and asking one simple question – ‘Do I live here?’
+ - I always tell people I romanticize about doing something simple, like doing radio in northern California.
+ - This is so weird. I saw the new John Kerry campaign commercial and he says, ‘I’m John Kerry and I approve of this message – if I have one.’
+ - Senator Hillary Clinton is attacking President Bush for breaking his campaign promise to cut carbon dioxide emissions, saying a promise made, a promise broken. And then out of habit, she demanded that Bush spend the night on the couch.
+ - In a new poll 54 percent believed President Bush exaggerated the size of Iraq’s missile threat. Hey, he’s a guy.
+ - Yesterday Jerry Springer bowed out of the Ohio Senate race. He said, ‘If I can’t run the most embarrassing campaign in America, then I’m out of here.’
+ - People who go into show business are screwed up.
+ - John Kerry will be the Democratic nominee for president. Democrats finally found someone who is Al Gore without the flash and the sizzle.
+ - Declassified papers report that John Kennedy was taking eight different medications a day. He was so wasted, his Secret Service code name was Ted Kennedy.
+ - I lived in a studio apartment until my mid-30s. I don’t have an extravagant lifestyle.
+ - California’s economy is declining so rapidly that candidates are asking ‘Are you better off now then you were four minutes ago?’
+ - Clinton said he feels safe in Harlem. It’s the only place in the state Hillary is scared to look for him after dark.
+ - Over ten thousand people have signed a petition to recall Governor Schwarzenegger. I’m sorry, that is next year’s joke.
+ - Today Homeland Security Chief Tom Ridge lowered the terror alert from orange to yellow. Does anybody need 16 miles of duct tape?
+ - You may have heard this, that NASA discovered water on Mars When he heard about the water on Mars, President Bush said, ‘Is it regular or unleaded?’
+ - President Bush says in the last month he has created 300,000 new jobs. Yeah, they’re called Kerry campaign workers.
+ - There are 300,000 new jobs and Bush said he’s confused, ‘Can I take credit for good news that I didn’t even make up?’
+ - As fighting in Iraq intensifies, President Bush delivered his supplemental war budget to Congress. The money will cover 30 days of fighting, then we’ll be sent one war every other month until we cancel our subscription.
+ - Singer Boy Dylan was stopped at his own sow by security guards who failed to recognize the singer. Asked to comment, Dylan replied, ‘I can hardly blame them. Look at me.’
+
+64 quotes

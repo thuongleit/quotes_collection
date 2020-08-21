@@ -1,0 +1,24 @@
+ - Show me where you spend your time, money and energy and I’ll tell you what you worship...
+ - The Church is not the building, its the people, its not just the gathering, its also the scattering...
+ - It seems the more I think about not sinning, the more I sin, but the more I think about just loving Jesus, the less I seem to sin. Falling in love seems to be the key...
+ - When do we get to do the stuff? You know, the stuff here in the Bible; the stuff Jesus did, like healing the sick, raising the dead, healing the blind – stuff like that?
+ - Worship is not about personality, temperament, personal limitations, church background, or comfort. It is about God.
+ - Visitation of God’s presence is a byproduct of worship. However, we don’t worship in order to gain His presence. He is worthy to be worshipped whether or not He chooses to show up.
+ - The good news is that Jesus is praying for us. The bad news is that we are going to need it!
+ - Worship, the act of freely giving love to God, forms and informs every activity of the Christian’s life.
+ - Our heart’s desire should be to worship God; we have been designed by God for this purpose. If we don’t worship God, we’ll worship something or someone else.
+ - Obedience to the Lord is not only measured by how much we do for our Savior, but by how we obey Him when nobody is looking.
+ - Instead of focusing on the great men of God, I prefer to focus on the Great God of men.
+ - As we interact with God, we’ll find ourselves more satisfied in Him and less satisfied with things much less important...
+ - A mark of blessing is what you’re giving, not what you’re keeping.
+ - When God calls you to an extraordinary task, He provides extraordinary resources...
+ - We’re in a declared war, but unless were clear about who the enemy is, we’ll waste our time fighting enemies that aren’t enemies at all. There’s only one enemy and no matter what people do, say or react people are never the enemy. The enemy is our only enemy...
+ - We need to learn how to keep people through love. Despite imperfections, sins, and irritating habits of other Christians, they belong to Jesus and they need our love as a healthy climate for growth.
+ - When we stand for social justice, we testify to the presence of the Kingdom.
+ - Gifts and abilities, no matter how magnificent, are either limited or enhanced by character.
+ - We learned that what happens when we are alone with the Lord determines how intimate and deep the worship will be when we come together.
+ - Calvaryites are sometimes a little too heavily oriented to the written Word.
+ - It is important to be biblically literate, but we must also be biblically obedient!
+ - We need the poor as much as they need us...
+
+22 quotes

@@ -1,0 +1,50 @@
+ - Mathematics is the bold luxury of pure reason, one of the few that remain today.
+ - It’s not the genius who is 100 years ahead of his time but average man who is 100 years behind it.
+ - Don’t you know that every perfect life would mean the end of art?
+ - Life is to blame for everything.
+ - Have we not huddled in bunkers, while some premonition of tomorrow hung in the air and a comrade started singing? Oh, it felt so melancholy! And it was kitsch.
+ - Ideology is: intellectual ordering of the feelings; an objective connection among them that makes the subjective connection easier.
+ - One must conform to the baseness of an age or become neurotic.
+ - For only fools, fanatics, and mental cases can stand living at the highest pitch of soul; a sane person must be content with declaring that life would not be worth living without a spark of that mysterious fire.
+ - Only in the most unusual cases is it useful to determine whether a book is good or bad; for it is just as rare for it to be one or the other. It is usually both.
+ - Is not art a tool we employ to peel the kitsch off life? Layer by layer art strips life bare. The more abstract it gets, the more transparent the air is. Can it be that the farther it is removed from life, the clearer art becomes?
+ - Stupidity is active in every direction, and can dress up in all the clothes of truth. Truth, on the other hand, has for every occasion only one dress and one path, and is always at a disadvantage.
+ - Mathematics is the source of a wicked intellect that, while making man the lord of the earth, also makes him the slave of the machine.
+ - We have gained reality and lost dream. No more lounging under a tree and peering at the sky between one’s big and second toes; there’s work to be done. To be efficient, one cannot be hungry and dreamy but must eat steak and keep moving.
+ - Each person is a graveyard of his thoughts. They are most beautiful for us in the moment of their birth; later we can often sense a deep pain that they leave us indifferent where earlier they enchanted us.
+ - Progress would be wonderful – if only it would stop.
+ - Layer by layer art strips life bare.
+ - The thought came to me that all one loves in art becomes beautiful. Beauty is nothing but the expression of the fact that something is being loved. Only thus could she be defined.
+ - If there is a sense of reality, there must also be a sense of possibility.
+ - One does what one is; one becomes what one does.
+ - A particularly fine head on a man usually means that he is stupid; particularly deep philosophers are usually shallow thinkers; in literature, talents not much above the average are usually regarded by their contemporaries as geniuses.
+ - The thoughts of my emotionally so disturbed days must be found again, shifted and developed further. Here and there something of the loose remarks I make must be used, but only when it finds my attention again.
+ - A man who wants the truth becomes a scientist; a man who wants to give free play to his subjectivity may become a writer; but what should a man do who wants something in between?
+ - It is life that does the thinking all around us, forming with playful ease the connections our reason can only laboriously patch together piecemeal, and never to such kaleidoscopic effect.
+ - All still lifes are actually paintings of the world on the sixth day of creation, when God and the world were alone together, without man!
+ - Scientific reason, with its strict conscience, its lack of prejudice, and its determination to question every result again the moment it might lead to the least intellectual advantage, does in an area of secondary interest what we ought to be doing with the basic questions of life.
+ - Philosophers are people who do violence, but have no army at their disposal, and so subjugate the world by locking it into a system.
+ - The truth is not a crystal that can be slipped into one’s pocket, but an endless current into which one falls headlong.
+ - It is reality that awakens possibilities, and nothing would be more perverse than to deny it.
+ - What is the use of good painting? We want a spell cast upon the optical part of our existence! We seldom really see the world, but when we do, we become as still as a picture.
+ - The proverbial notion of historical distance consists in our having lost ninety-five of every hundred original facts, so the remaining ones can be arranged however one likes.
+ - You see how wrong I go, how ridiculous I’m making myself in your eyes by keeping on guessing wrong like this! Doesn’t that help you to come out with it? Come on now!
+ - We sometimes have a flash of understanding that amounts to the insight of genius, and yet it slowly withers, even in our hands – like a flower. The form remains, but the colours and the fragrance are gone.
+ - That the will of the people can be established by voting for democrats is, of course, a delusion. Yet when considering a non-threatening system for deciding between diverse interests, then voting, of course, can be regarded as a humane and civilized process.
+ - Every word wants to be taken literally, else it decays into a lie. But one mustn’t take any word literally, else the world becomes a madhouse.
+ - You proclaim that one should die for the highest virtues, because you take it for granted that nobody’s been living for them, not even for a single hour.
+ - Hardly anyone still reads nowadays. People make use of the writer only in order to work off their own excess energy on him in a perverse manner, in the form of agreement or disagreement.
+ - Anyone who still wants to experience fairytales these days can’t afford to dither when it comes to using their brains.
+ - Anything that endures over time sacrifices its ability to make an impression.
+ - A politician who climbs high over the bodies of the slain is described as vile or great according to the degree of his success.
+ - The thought is not something that observes an inner event, but, rather it is this inner event itself. We do not reflect on something, but, rather, something thinks itself in us.
+ - It is, all in all, a historic error to believe that the master makes the school; the students make it!
+ - The difference between a healthy person and one who is mentally ill is the fact that the healthy one has all the mentall illnesses, and the mentally ill person has only one.
+ - It will always be the same possibilities, in sum or on the average, that go on repeating themselves until a man comes along who does not value the actuality above idea. It is he who first gives the new possibilities their meaning, their direction, and he awakens them.
+ - Every day there comes a moment when a person lays his hands in his lap and all his busyness collapses like ashes. The work accomplished is, from the soul’s point of view, entirely imaginary.
+ - Life forms a surface that acts as if it could not be otherwise, but under its skin things are pounding and pulsing.
+ - A man can’t be angry at his own time without suffering some damage.
+ - He who is allowed to do as he likes will soon run his head into a brick wall out of sheer frustration.
+ - There is nothing in this world as invisible as a monument.
+
+48 quotes

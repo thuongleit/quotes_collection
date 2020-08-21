@@ -1,0 +1,32 @@
+ - Fail big if you have to, but go down trying.
+ - I was lucky enough not to face any required summer reading lists until I went to college. So I still think of summer as the best time to read for fun.
+ - There’s hope around the corner.
+ - A ssure you, the more I travel through time, the more I witness, the more I realize that there are things that are both strange and wonderful, far beyond human comprehension.
+ - Amazing, Yetta thought. Back home I couldn’t have chosen my own husband. And here I’m thinking about choosing presidents, governors, mayors, laws...
+ - I am not just what I remember. I am also what I dream.
+ - Unlike my mother, my father does not cry quietly. His wails roll out like a wave of pain, and I scramble to roll up my window. My mother cannot hear that. I cannot bear to hear it myself. I am not used to my father’s crying. I’ve had no time to harden my heart against him.
+ - I want to Live! Not Die, Not Hide, LIVE!
+ - I wish, peevishly, that he didn’t know anything about how soldiers sleep, how they protect their fellow soldiers. It would be nicer if I could share the cloaks warmth with him, if we could lie with our faces together, whispering into the night.
+ - Maybe everyone is just waiting for someone else to save them.
+ - The sudden silence is horrifying, and it seems to catch my mother off guard. A tiny whimper escapes her, the sound amplified in the stillness. Surely, my father hears her now; surely he and I can’t go on pretending she isn’t crying.
+ - I can tell you that you will have your hearts broken more by the people you love than by the people you hate. But you must still dare to love. The rewards are worth far more than the risks.
+ - I like playing around with the words; I love it when I feel like I’ve picked the exact right word to describe whatever it is I’m trying to describe.
+ - The Government justifies keeping everyone else in poverty because people seem to work the hardest when they’re right on the edge of survival.
+ - I write a book over a period of months or years, and when I’m done with it, usually another year goes by before I see it in print. It’s hard to be patient and wait.
+ - I like the fact that kids are willing to be imaginative and go along with me when I’m telling strange tales.
+ - Sometimes I can spend as long revising a manuscript as I spent writing it in the first place.
+ - After Ive sent my revised draft to my agent and editor, they suggest more improvement sand again, this revision phase can take anywhere from a few hours to a few months.
+ - When writing isn’t going well-then the bad thing about being a writer is that I also have the freedom and flexibility to do something badly, and no one else can fix it for me.
+ - There is nothing more valuable than the printed word.
+ - I started trying to write when I was in second or third grade.
+ - That porch is a happy-looking place, and my father – burdened, stoop-shouldered, cadaverously thin – doesn’t seem to belong on it.
+ - Governments will rise, and governments will fall, and man will do evil to man, and all we can do is turn our hearts to good.
+ - I think I learned a lot from reading in general – even from reading badly written books.
+ - I like to know what I’m celebrating before I put on a party hat.
+ - There’s something about each of my books that I’m really proud of, and there’s something about each of my books that I cringe over.
+ - I loved to read when I was a kid, and as soon as I realized that an actual person got to make up the books I loved so much, I decided that that was the job for me.
+ - Jen, we did it. Everyone’s free now.
+ - Generally I finish a first draft in 2-6 months, then I set it aside for a while so that when I come back to it I can read it with fresh eyes and figure out how to improve it.
+ - It’s just so much fun to make up characters, situations, and everything else about a story. I have so much freedom and flexibility to do whatever I want.
+
+30 quotes

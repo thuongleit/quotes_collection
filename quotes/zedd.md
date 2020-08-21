@@ -1,0 +1,34 @@
+ - Fate does not always seek our consent.
+ - Being yourself is what will make you survive through anything. If you make music to please someone, it’s the first step in the wrong direction. Always do what you believe in, no matter what people say. Only way to go!
+ - There can be powerful magic in acts of desperation.
+ - There is no such thing as pure good or pure evil, least of all in people.
+ - I would never say I will stay in electronic music for the rest of my life. I will always do whatever I feel like at that moment.
+ - A DJ can’t just play one song. It’s about playing a set, or how you connect songs in those two hours, and where you place them.
+ - I’m not emaciated; I’m wiry. Most women find lean men appealing.
+ - I usually write my music on a piano, and I really enjoy performing that way, because that actually shows how the music was in my mind before it actually became an electronic song.
+ - If you’re convinced as an artist of what you’re doing, the only move is to, no matter what people say or what management says or your best friends say or people on Facebook, do what you do, and people will find their way to it.
+ - I’m my own artist, and I see artists as movies. No one should try to change them for anything. If you don’t like it, you just don’t follow it. And if you don’t like a movie you don’t watch it. Watch another movie.
+ - Music is its own language – if you don’t speak it, it’s hard to say what you’re trying to do.
+ - I used to be a drummer in a band, and I really loved playing the drums, so I look forward to the right opportunity to do that at some point. Maybe even on TV. Every single live performance I’m doing on TV, I want it to be different and unique.
+ - I don’t want to put 12 singles on an album. I want to make a story, a little movie.
+ - For the longest time, I wanted to become a pianist. That was kinda my thing.
+ - One agonizing journey down the gauntlet of youth is enough for any man.
+ - I never feel like I need to make a song that sells 5 million copies; that’s not the point of why I make music. It’s great if that happens, like it did with ‘Clarity,’ but my goal is to always make a better track than the last one.
+ - There is magic in patience, you know.
+ - People are stupid; given proper motivation, almost anyone will believe almost anything. BecauHse people are stupid, they will believe a lie because they want to believe it’s true, or because they are afraid it might be true.
+ - I have my wizards rock along. Could I interest you? Naked?
+ - The problem with my eyes is that they have been famished, but now they are feasting.
+ - I fear no secret of a person I trust, and he has no need to fear mine. It is part of being friends.
+ - A man who trusts in luck better have plenty of it.
+ - The time for desperation is upon us. Let’s play.
+ - I love silence. But I usually only listen to that when I’m sleeping.
+ - I can’t just sit down and make a song in a day. It’s only possible if you focus on the music and not the sound.
+ - What I don’t like to hear in music is something has not been thought through: that a sound is just there randomly. I want to make sure that every single little noise that’s in my song is there because it’s supposed to be there.
+ - As we Wizards go, I’m pretty harmless.
+ - What I look for in a voice is for it to be unique. I don’t really care if a singer sings well. Really, it’s about emotion, or being able to sing the lyrics and actually mean it. A lot of singers sing good notes but forget about what words they use.
+ - When you catch other people with a sound like yours, that’s when you know you did something.
+ - A lot of EDM is not bad at all when it’s simple, but a lot of it is not really musical. That’s just what I really like to do: taking what I had at the beginning, which is classical and jazz influences, and putting it into electro.
+ - I’ve been making music for a long time, since I was very young, but at the same time, I’m still exploring what works for me. I feel like I’m just starting out.
+ - I really like working with unique and unknown artists, as they usually bring something fresh to a song.
+
+32 quotes

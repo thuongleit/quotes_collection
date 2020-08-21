@@ -1,0 +1,52 @@
+ - Sherlock and Watson are a love story.
+ - True heroics, obviously, is not the absence of fear, but having that fear and doing something anyway.
+ - I’m a big believer that life changes as much as you want it to.
+ - I have a very extreme state of mind. Things are very black or very white.
+ - My idea of a good night out is staying in.
+ - People misunderstand me.
+ - I’m not posh or common, I’m in between.
+ - Most people have a passive relationship with music and clothes, with culture. But music was my first contact with anything creative. Music is it, as far as I’m concerned.
+ - I’ve always got my eye on my deathbed.
+ - I value being able to go into a record shop and people leaving me alone.
+ - I like the idea of not everything happening between two human beings to be everyone’s property.
+ - I can spot someone with similar fashion sense to me a mile off.
+ - I love home. I’d rather be at home than anywhere else.
+ - What makes Shakespeare eternal is his grasp of psychology. He knew how to nail stuff about us as human beings.
+ - I like bootcut jeans in a plain style with a nice line.
+ - I’ve always loved Christmas and that’s not really gone away from me from being a child to now. It’s always a magical time and I’m unashamed in my love for Christmas.
+ - Being a mod is more of a sensibility than a style.
+ - If you are a plumber, you can work on a shed, or you can work on a mansion. It’s just scale.
+ - I’ve got a stag weekend coming up and I’ve said I’m not doing anything more than a few drinks. I won’t have it. I’ll go home and watch Antiques Roadshow.
+ - I love that pre-mod jazz look of the late Fifties, the Steve McQueen style that influenced the British modernists.
+ - I guess like any friendship, marriage, or whatever it is familiarity breeds more contempt, and more love. They’re just more settled with each other now.
+ - There is nothing far-fetched about disappointment as a subject for comedy. It’s something we are all too familiar with.
+ - Name anything – high-definition TV, computer obsolescence – and I’m pretty much annoyed by it.
+ - The one thing I’ve found is that someone always knows more than you do, including your babies. There are loads of things people presume I know about that I don’t.
+ - Why does everyone have to pretend to be stupid and not know long words?
+ - Disappointment is an endless wellspring of comedy inspiration...
+ - I think if you were known for playing something other than being a nice guy then people might be a little less likely to take liberties with you. If you are Ray Winstone, and people have seen you kick a few people to death, then they are a little less likely to approach you or whatever.
+ - It’s a bit like a fledgeling duck, finding your flippers.
+ - I would wear a full-length cape if I could get away with it – I do love a good swirl in a fog.
+ - You don’t want your children to look at you like you are anything special other than their dad.
+ - I like out, I like the outside world.
+ - I’m one of the few people I know who believes in God.
+ - Thank you, people of Emmyland. To be nominated in such company is an honour, especially for two shows that I’m immensely proud of. I’m delighted.
+ - When I wear jeans I want to look like a man, not a child.
+ - I hate the fact that so much of our life is computerised rather than mechanised.
+ - I hope I inspire children to make films.
+ - Most actors are either a shower of bloody scruffs or think they should dress like Hamlet off stage.
+ - I don’t think it was a surprise that I ended up as an actor, and it was anything but a disappointment.
+ - I buy DVDs. I don’t really buy CDs unless they’re for other people.
+ - Like with anything, good writing suggest itself pretty strongly.
+ - I was probably cool around the end of 2002.
+ - There’s a difference between the parts that I play and who I am and who people think I am. There’s quite a big discrepancy sometimes between those things.
+ - Comedy can’t be about continuous success.
+ - I’ve been doing interviews for years, and in all that time, I’ve virtually never read one and gone, ‘Yep, factually and tonally that’s exactly what happened.’ Pretty much never.
+ - However happy the director is, I have to be okay with it. I’m pretty strict with myself, about throwing things out or trying to be true to whatever the situation dictates.
+ - Acting is the only thing I’m even vaguely good at and acting is something that I think I do know about.
+ - Every actor is riddled with insecurity, of course. But weirdly, I don’t really find that I’d be daunted with taking on roles or anything.
+ - I only really watch my own films, I don’t watch any other films and I don’t particularly like any other actors.
+ - I look like the man in the moon.
+ - I like things that are simple, such as an alarm clock.
+
+50 quotes

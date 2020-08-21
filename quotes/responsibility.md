@@ -1,0 +1,42 @@
+ - There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. ~~Denis Waitley
+ - Follow the three R’s: – Respect for self. – Respect for others. – Responsibility for all your actions. ~~Dalai Lama XIV
+ - Success is your duty, obligation and responsibility. ~~Grant Cardone
+ - The choices we make are ultimately our responsibility. ~~Eleanor Roosevelt
+ - We’re all flawed heroes. Responsibility is power. Take responsibility for the consequences of your actions, and the world is yours. Everything is a choice. ~~Tom Hiddleston
+ - Man is condemned to be free; because once thrown into the world, he is responsible for everything he does. ~~Jean-Paul Sartre
+ - Only you can control your future. ~~Dr. Seuss
+ - It is the responsibility of leadership to work intelligently with what is given, and not waste time fantasizing about a world of flawless people and perfect choices. ~~Marcus Aurelius
+ - The most important thing is to have a sense of responsibility, commitment, and concern for each of our fellow human beings. ~~Dalai Lama XIV
+ - An intellectual is someone whose mind watches itself. ~~Albert Camus
+ - You can’t dodge your responsibilities by saying they don’t exist! ~~Douglas Adams
+ - The past is past, and the future is yet to come. That means the future is in your hands – the future entirely depends on the present. That realization gives you a great responsibility. ~~Dalai Lama XIV
+ - Due to circumstances beyond my control, I am master of my fate and captain of my soul. ~~Ashleigh Brilliant
+ - And a step backward, after making a wrong turn, is a step in the right direction. ~~Kurt Vonnegut
+ - Karma means that all actions have consequences. Grace means that in a moment of atonement -taking responsibility, making amends, asking for forgiveness – all karma is burned. ~~Marianne Williamson
+ - Obedience is your responsibility, the outcome is God’s! ~~Steven Furtick
+ - The pollution of the planet is only an outward reflection of an inner psychic pollution: millions of unconscious individuals not taking responsibility for their inner space. ~~Eckhart Tolle
+ - Men who reject the responsibility of thought and reason can only exist as parasites on the thinking of others. ~~Ayn Rand
+ - Let us not seek the Republican answer or the Democratic answer, but the right answer. Let us not seek to fix the blame for the past. Let us accept our own responsibility for the future. ~~John F. Kennedy
+ - It’s not my responsibility to be beautiful. I’m not alive for that purpose. My existence is not about how desirable you find me. ~~Warsan Shire
+ - The evasion of responsibility is the major cause of most peoples frustrations and defeats. ~~Ayn Rand
+ - Quit thy childhood, my friend, and wake up! ~~Jean-Jacques Rousseau
+ - Make the best use of what is in your power, and take the rest as it happens. ~~Epictetus
+ - It is not selfish or narcissistic to love yourself. It is your first and foremost responsibility. ~~Alan Cohen
+ - Some of us have great runways already built for us. If you have one, take off. But if you don’t have one, realize it is your responsibility to grab a shovel and build one for yourself and for those who will follow after you. ~~Amelia Earhart
+ - Man is nothing else but what he makes of himself. ~~Jean-Paul Sartre
+ - Give someone responsibility and they will do their best. Make them accountable and they will do even better. ~~Simon Sinek
+ - You have to take seriously the notion that understanding the universe is your responsibility, because the only understanding of the universe that will be useful to you is your own understanding. ~~Terence McKenna
+ - We live in a world in which we need to share responsibility. It’s easy to say “It’s not my child, not my community, not my world, not my problem.” Then there are those who see the need and respond. I consider those people my heroes. ~~Fred Rogers
+ - Peak performance begins with your taking complete responsibility for your life and everything that happens to you. ~~Brian Tracy
+ - Whoever renders service to many puts himself in line for greatness – great wealth, great return, great satisfaction, great reputation, and great joy. ~~Jim Rohn
+ - Leaders, true leaders, take responsibility for the success of the team and understand that they must also take responsibility for the failure. ~~Donald Trump
+ - With freedom comes responsibility, a responsibility that can only be met by the individual. ~~Ronald Reagan
+ - There will always be dissident voices heard in the land, expressing opposition without alternatives, finding fault but never favor, perceiving gloom on every side and seeking influence without responsibility. ~~John F. Kennedy
+ - You know I’m old in some ways-in others-well, I’m just a little girl. I like sunshine and pretty things and cheerfulness-and I dread responsibility. ~~F. Scott Fitzgerald
+ - The denial of the right of ownership to a man is a denial of his basic freedom: freedom without property is always incomplete. To be “secured” – but with no accompanying responsibility – is to be the slave of whatever group provides the security. ~~Fulton J. Sheen
+ - Companies are increasingly taking responsibility for the safety of the food they sell, rather than risk their brand on a large recall. ~~Andy Kennedy
+ - If you feel a sense of social responsibility, first of all keep working on yourself. Being peaceful yourself is the first step if you want to live in a peaceful universe. ~~Ram Dass
+ - Wherever men and women are persecuted because of their race, religion, or political views, that place must – at that moment – become the center of the universe. ~~Elie Wiesel
+ - Responsibilities are given to him on whom trust rests. Responsibility is always a sign of trust. ~~James Cash Penney
+
+40 quotes

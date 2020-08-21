@@ -1,0 +1,43 @@
+ - You have to defend your honor. And your family.
+ - My name is Luka I live on the second floor. I live upstairs from you, yes, I think you’ve seen me before.
+ - I wasn’t afraid of going places or doing new things. I would do just about anything or go anywhere. I’d get a notion in my mind and just follow it.
+ - It takes as much discipline to be a mother and a wife as it does to do anything else.
+ - How weird it was to drive streets I knew so well. What a different perspective.
+ - I think people are sexy when they have a sense of humor, when they are smart, when they have some sense of style, when they are kind, when they express their own opinions, when they are creative, when they have character.
+ - Yes I think I’m okay, walked into the door again.
+ - I was the oldest child, and both my parents worked, so I had a great deal of responsibility from a very young age.
+ - So you eat, you sleep, and then this wonderful child comes out, but you don’t feel like you have any control over that process, over her, over her character and who she is.
+ - Kindness to me is only powerful if it has the cruel streak behind it. If someone is kind all the time under all circumstances, they’re just simple-minded. Kindness is only worth something if you have the cruel streak to back it up.
+ - Don’t make a threat and then not do it.
+ - Of course, sometimes when you write personally, you are also writing about society, obliquely reflecting topical issues, but not in a way that people would expect you to or in the way that someone trying to make a point would.
+ - Some girls are taught to be sexy.
+ - To me, a feminist belong in the same category as a humanist or an advocate for human rights. I don’t see why someone who’s a feminist should be thought of differently.
+ - And I really wanted a driver’s license. I was 43, had my learner’s permit and had failed the test once already – but that was in Riverhead, on Long Island.
+ - If language were liquid, it would be rushing in. Instead here we are in a silence more eloquent than any word could ever be.
+ - There are no rules in fights with girls. Just hurting.
+ - When I was pregnant, I felt filled with life, and I felt really happy. I ate well, and I slept well. I felt much more useful than I’d ever felt before.
+ - In the end, my pursuit of the elusive New York State driver’s license became about much more than a divorced woman’s learning to drive for the first time.
+ - I still consider myself a feminist.
+ - I fingerpick a lot because I can get more of a range of feeling from the guitar than I can when I bash away with a pick.
+ - Girls are crazy and mean. They don’t fight fair.
+ - I still feel conflicted because I don’t always get to spend as much time with my daughter as I’d like, given my work.
+ - If you have to fight a crowd of boys, it’s best to go for the biggest one. That way you won’t have to fight them all. The others will see that you mean business and you will win their respect.
+ - Last year’s troubles, They shine up so prettily, They gleam with a lustre they don’t have today.
+ - I always thought that if I was popular I must be doing something wrong.
+ - I loved the atmosphere of the dance studios – the wooden floors, the big mirrors, everyone dressed in pink or black tights, the musicians accompanying us – and the feeling of ritual the classes had.
+ - I had some fears as a kid, but I was also relatively fearless. Maybe that’s a result of living half the time in reality and the other half in fantasy.
+ - Don’t uncork what you can’t contain.
+ - I didn’t go out looking for fights as a kid, but if it was necessary, I’d fight. Fighting was a daily thing where we lived.
+ - It’s striking how commercially viable that impulse for instant intimacy is right now, especially in songs and writing.
+ - The thing that is most interesting about people is the way they are when no one is looking at them or the way they are when they are in private.
+ - I was always inventing characters and making up stories.
+ - Writing is always personal in some way but not always in a direct way.
+ - A lot of my writing is not terribly civilized.
+ - My intellect has always been more responsible than my emotions for how I respond to the world.
+ - I think that if you have a strong narrative, if the idea of the song can be boiled down to the basics, it won’t change that much.
+ - That said, I’ve never thought the fact that I’m a woman was important to my work.
+ - I like to write about things that are extreme in some form. I like to write about something I feel I have to write about.
+ - But I never want to get to the point where I write a safe song or one that represents my sense of a subject in order to appear civilized.
+ - Writing in other voices is almost Japanese in the sense that theres a certain formality there which allows me to sidestep the embarrassment of directly expressing to complete strangers the most intimate details of my life.
+
+41 quotes

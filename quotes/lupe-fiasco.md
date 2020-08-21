@@ -1,0 +1,85 @@
+ - You would never know if you could ever be, If you never try, you would never see.
+ - The point of Islam is to promote peace.
+ - Just be yourself and one day you will find someone who loves you for everything you are, flaws or no flaws.
+ - My greatest enemy at one point was myself, and so now once I got over the fear of myself I don’t fear any man. I never have.
+ - Why kill you when I can just not teach you and get the same results?
+ - How can land be owned by another man. Warns one can not steal what was given as a gift. Is the sky owned by birds and the rivers owned by fish.
+ - I want to make music as good as Radiohead, as good as Coldplay. I can make hip-hop as good as anybody.
+ - The biggest budget is the military budget. For what? We’re fighting two wars in very small countries that have no nuclear weapons, that have no capabilities to destroy anything. They probably couldn’t even get to America.
+ - A match made in heaven set the fires in hell...
+ - Know the weapons of the weak, kill weakness of the heart and never fall asleep.
+ - I think that all the silence is worse than all the violence. Fear is such a weak emotion, that’s why I despise it. We’re scared of almost everything, afraid to even tell the truth. So scared of what you think of me, I’m scared of even telling you.
+ - The truth is limitless in its range, if you drop the T and look at it in reverse it could hurt.
+ - That should be the measure of success for everyone. It’s not money, it’s not fame, it’s not celebrity; my index of success is happiness.
+ - When I retire, I want to step away on a positive note. What you put out into the world comes back to you. You actually change the world with what you do. I want to put some good in the world.
+ - My approach is I put God first; I say “God willing” all the time. The only way things will change is with God. So knowing that I can’t really change anything, I’m just going to satire it.
+ - When you look out into the world and you turn on the news and it’s just so dark, it’s still there. But it’s the battle, it’s the struggle with that, and at the same time to recognize that happiness and love and all those things exist as well.
+ - Most things that are politically right are morally wrong.
+ - With ‘Hip-Hop Saved My Life,’ I attempted to make ‘Kick, Push,’ but for rappers. To give a real basic play-by-play of the life of a rapper before he makes it – if he ever makes it, because you can get stuck in that and be trying to make it for the rest of your life.
+ - What starts in clouded minds finishes in the rain.
+ - I don’t like to degrade women, but I like pornography.
+ - Chief Keef scares me. Not him specifically, but just the culture that he represents.
+ - The world brought me to my knees, what have you brung you?
+ - I trust people to be human. Sometimes you do things that make amazing amounts of sense; sometimes you do things that don’t make any sense whatsoever.
+ - Some people are the greatest people on Earth with good hearts and will get in the studio and make the most negative music in the world for the sake of success. That’s what the music business does to you. That’s what capitalism does to you.
+ - I think that all the silence is worse than all the violence.
+ - My problem is I’m peaceful, and I believe in the people.
+ - Fear is such a weak emotion that’s why I despise it.
+ - For me, I never wore my religion on my sleeve, you know what I’m saying? I never put myself out there as Lupe Fiasco, he’s Muslim, he’s from Chicago, he likes to ride a skateboard.
+ - We weren’t raised Muslim – we were born Muslim. I didn’t go to a Muslim school, but it was just the theme song. It was ambient.
+ - I went from MC to being MS, this microphone controller is the motivational speaker.
+ - I do this for the sake of myself. It’s a selfish process. I don’t really have any expectations from anyone for your comments or your reviews or your previews.
+ - If you feel comfortable, and you feel happy, and successful at your job, then that’s success. You define that as success, then that’s success. Success is not a general thing. It’s a personal thing. It’s a personal attribute.
+ - I know what tablas sound like, because my father played a lot of Ustad Ali Akbar Khan.
+ - If you’re informed, you make an informed choice. You understand the quality of certain things and you understand the history of certain things.
+ - 360 deals are the new things of the industry. It’s not about selling records; it’s about selling T-shirts, getting a piece of your publishing, getting a piece of your touring, and all these other kind of properties.
+ - True terrorism, you know, weaponized fear. In defense of ourselves, we’re fighting – actively fighting something else. But if you’re going to fight terrorism, to me, you fight the root causes of terrorism.
+ - Your child’s future was the first to go with budget cuts.
+ - I have yet to see someone attack Obama over his report card. A lot of people I talk to from both sides of the fence are like, ‘Well, what about this economy? What about these incidents?’ There are still no answers except time, but time is the answer for everything.
+ - Everybody has their opinion on what’s ‘real,’ and what’s they choose to listen to and their personal preference. Whether they’re 2 years old or 200 years old. And people can listen to whatever they want.
+ - The murder rate in Chicago is skyrocketing and you see who’s doing it and perpetrating it, they all look like Chief Keef.
+ - I hope that God forgive us, all of us sinners turn us back into beginners, put us up where the winners go, Holy apartments in the gardens in which the rivers flow, thank you for all your blessings and all of your miracles.
+ - Sometimes I wish I never found the Internet. Sometimes I regret getting a laptop and Wi-Fi for logging into the Internet because it is such a distraction. If you have any addictive personality, the Internet will magnify it.
+ - I’m not in competition with nobody. I want to make good music for my fans who want it, who enjoy it, who learn something from it. And that’s what it is.
+ - You ain’t got to change the whole world. You just alter it a little bit and you redefine it into something beautiful.
+ - All the big revolutions, whether it’s the Industrial Revolution, the Arab Spring, those changes happened by economic and social shifts brought about by the people’s voices, and those things weren’t voted for. Most of our changes today are brought about through technology, not by voting.
+ - The only person who really impressed me with making new music is Cudi. Everyone else seems to be jumping on the same music, the producer-made stuff, but the one person that’s made new music to me is Cudi.
+ - If you’re going to fight terrorism, to me, you fight the root causes of terrorism.
+ - Whats the biggest commercial for aggression, sexuality and materialism? What gets pumped into these kids heads? Taking someone elses girl, which is so laissez-faire in hip-hop, will get you killed in the streets, but it doesnt seem to be an issue when you hear it on the radio.
+ - First of all, you are not really that supreme.
+ - I always preach that you have to be active as a citizen no matter what, and some people just voting as an excuse not to do anything.
+ - You can’t control it once you turn it into the label, so there’s the expectation that it’ll leak a week before the album comes out. That’s the world we live in.
+ - There is no line of demarcation between the amateurs and the pros; everyone is using the same tactics and playing in the same arenas. The only thing that separates them is radio, but the artist doesn’t control who goes to radio and who doesn’t.
+ - The story of ‘Lasers’ is my story. I didn’t have to look too far to get subject matter for this record; it was stuff that was happening to me.
+ - You always wrestle with depression, you always wrestle with those things, because the events and the experiences are still there, and the things that take place are still happening.
+ - Making your moves, paying your dues, chasing the cool.
+ - This nation was founded by rebels and revolutionaries, and its flags were carried across the battlefields by people who were very, very against the status quo and who questioned and criticized.
+ - People don’t understand that where I come from, everyone is either a convict, been in jail, been in a gang, is a hooligan of some sorts, but those are my brothers, my family and the people that I travel with. Those are the people that I roll with.
+ - I always say that you define what success is to yourself.
+ - I find it somewhat liberating to jump, to dive into things that are the opposite of me.
+ - I can’t play any instrument for the life of me, but I know what I want to hear.
+ - I think there’s a lot of the hip-hop crowd behind Barack Obama because he’s a black man. Honestly, I’m rooting for Hillary because race is only going to go so far. All the presidents are men at the end of the day.
+ - I’m a big fan of science fiction, animation, and things of that nature. Other worlds and that type of stuff.
+ - The rewards we get by being those weird guys going against the grain to me are way more massive than selling a million billion records. I like climbing mountains or going on undersea dives for whales and stuff like that.
+ - You know what I had a problem with? The war – the war in Afghanistan.
+ - In my fight against terrorism, to me, the biggest terrorist is Obama, and the United States of America.
+ - I think that American presidents, that position in itself, as well as American foreign policy, it has terrorism in it. CIA agents going to overthrow certain governments – they’re using terrorist tactics. They’re not going in there like, ‘Hey, you wanna have some cake?’
+ - I think you have to ask yourself does voting work on the level that you are trying to effectuate change; that is the conversation you must have.
+ - I saw the dudes who would be the gangsta, big-time guys on the block, but would also be dedicated fathers. It was kind of weird to see that dual story that everybody has.
+ - Faced with the way the system does you in the ’hood sometimes, if you don’t literally get out, your chances are slim. You’ll definitely die mentally. You’ll pretty much die physically.
+ - When I started making my own music, I was more about recreating what I was hearing. I noticed that I had some control over what I was saying, and the effects that it’s going to have on people. I wanted to focus more on the positive side of things, which are more in tune with my morals and ethics.
+ - The men can have a moral compass that is just unshakeable, they can have ethics that run to the core.
+ - Hip-hop is just something I actually know how to do. But I always had aspirations to participate in other forms of music.
+ - I got into skateboarding when I was like a shorty. It was a toy thing.
+ - I don’t really care about the GOPs or the Democratic Party. My point is the people, giving the people truth.
+ - There’s already been black presidents who’ve been corrupt, so it doesn’t strike me that having a black man in office means he’s going to be the Messiah.
+ - The biggest terrorist is Obama.
+ - You need to think about the system that you live in and the comforts that you have. But the comforts that you have that are causing the discomforts of a massive amount of people around the world.
+ - When you start creating opinion, and you start creating difference of opinion, you’re doing something. People are actually sitting down and critiquing. A lot of the stuff people hate, they really don’t. They only look at the outer shell. They don’t really get into it.
+ - I don’t think that politics are as complex as people like to make them seem or out to be.
+ - Success is a very dangerous thing and I think we have to be very careful about when we dictate what success is for somebody else. Because you don’t know what it’s like.
+ - For me, I walk a line of fame and infamy. I walk the line of celebrity and non-celebrity.
+ - Obama came in and gave $700 billion to the bankers off the top as opposed to giving $700 billion to the poor.
+ - I have a lot of fans in the Tea Party, and they disagree with me vehemently. But they’re fans, so we meet and connect and talk, so I’m open to everything.
+
+83 quotes

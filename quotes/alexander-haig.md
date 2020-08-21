@@ -1,0 +1,27 @@
+ - I am in control here, in the White House.
+ - Israel is the largest American aircraft carrier in the world that cannot be sunk, does not carry even one American soldier, and is located in a critical region for American national security.
+ - Practice rather than preach. Make of your life an affirmation, defined by your ideals, not the negation of others. Dare to the level of your capability then go beyond to a higher level.
+ - The warning message we sent the Russians was a calculated ambiguity that would be clearly understood.
+ - Let them march all they want, as long as they continue to pay their taxes.
+ - You have to look at the history of the Middle East in particular. It has been one of failure and frustration, of feudalism and tribalism.
+ - That’s not a lie, it’s a terminological inexactitude.
+ - To declare the Cold War over, and declare democracy has won out over totalitarianism, is a measure of arrogance and wrong-headedness.
+ - Syria is a terrorist state by any definition and is so classified by the State Department. I happen to think Iran is too. Iraq, Iran, Syria, they’re all involved.
+ - I think the new generations in America, the America’s youth, no longer care about Vietnam. They don’t want to hear any more about it.
+ - What the fundamentalists are doing is a total negation of their own faith – encouraging and lionizing suicide bombers and killing women and children, hardly in keeping with the teachings of Prophet Mohammed.
+ - There are contingency plans in the NATO doctrine to fire a nuclear weapon for demonstrative purposes, to demonstrate to the other side that they are exceeding the limits of toleration in the conventional area.
+ - As I look back at the span of the Cold War in those early days, in the ’50s, for example, there was a great deal of Soviet propaganda here in the United States, but it was clumsy, and it was anchored to a lot of ideological support in certain circles in America itself.
+ - If they analyze the situation as thoroughly as they should, Muslims will realize they are the first targets. What are the fundamentalists really after? Simply taking over Islam and then turning its back on modernity.
+ - I’m the only American alive or dead who presided unhappily over the removal of a vice president and a president.
+ - Propaganda was an important arm of the Soviet diplomacy, very important.
+ - The loss of candor is grievous, and in my opinion it may yet prove to be mortal, because if we cannot discuss our problems in plain speech that describes reality, it is unlikely that we will be able to solve them.
+ - I think that perhaps the classic propagandists of the – in the Second World War was Winston Churchill. He was extremely skilled and adept at it.
+ - More often than not, Americans and Westerners overestimated the power and capability of the Soviet Union.
+ - Those who are seeking ways to tap into the potential of e-mail will find themselves in a position to capitalize on the pending explosion in Internet usage.
+ - The world awaits Beijing’s hosting of the 2008 Olympics, an occasion which will bring into the global spotlight the dramatic advances China is making in enhancing the quality of life for its people.
+ - I started out as a Cold Warrior, even my last years in grade school.
+ - In Desert Storm, we had too many troops; in Afghanistan probably not enough for the major commitment we have made.
+ - Sooner or later something had to give. But President Bush, faced with the unprecedented affront of 9-11, could not wait to take action. So he had to do what we were capable of doing, and he did it brilliantly.
+ - Then came the hostage crisis during which Carter did nothing to rattle the ayatollahs who hung tough until Ronald Reagan was inaugurated, when they suddenly backed down.
+
+25 quotes

@@ -1,0 +1,24 @@
+ - Some men a forward motion love, But I by backward steps would move, And when this dust falls to the urn In that state I came, return.
+ - I saw Eternity the other night Like a great ring of pure and endless light, All calm as it was bright.
+ - If thou canst but thither, There grows the flower of Peace, The Rose that cannot wither, Thy fortress and thy ease.
+ - Death, and darkness get you packing, Nothing now to man is lacking, All your triumphs now are ended, And what Adam marred, is mended.
+ - There is in God – some say – A deep, but dazzling darkness; as men here Say it is late and dusky, because they See not all clear. O for that Night! where I in Him Might live invisible and dim!
+ - But felt through all this fleshly dresse Bright shootes of everlastingnesse.
+ - Bright pledge of peace and sunshine! the sure tie Of thy Lord’s hand, the object of His eye! When I behold thee, though my light be dim, Distinct, and low, I can in thine see Him Who looks upon thee from His glorious throne, And minds the covenant between all and One.
+ - They are all gone into the world of light, and I alone sit lingering here.
+ - Man is the shuttle, to whose winding quest And passage through these looms God ordered motion, but ordained no rest.
+ - And yet, as angels in some brighter dreams Call to the soul when man doth sleep. So some strange thoughts transcend our wonted dreams, And into glory peep.
+ - Dear, harmless age! the short, swift span Where weeping Virtue parts with man; Where love without lust dwells, and bends What way we please without self-ends. An age of mysteries! which he Must live that would God’s face see Which angels guard, and with it play, Angels! which foul men drive away.
+ - Some syllables are swords.
+ - Prayer is The world in tune, A spirit-voyce, And vocall joyes, Whose Eccho is heaven’s blisse.
+ - The skin and shell of things Though fair are not Thy wish nor prayer but got My meer despair of wings.
+ - So stick up ivy and the bays, and then restore the heathen ways, green will remind you of the Spring, though this great day denies the thing, and mortifies the earth, and all, but your wild revels, and loose hall.
+ - I played with fire, did counsel spurn, Made life my common stake; But never thought that fire would burn, O that a soul could ache.
+ - Man hath still either toys or care: But hath no root, nor to one place is tied, but ever restless and irregular, about this earth doth run and ride. He knows he hath a home, but scarce knows where; He says it is so far, that he has quite forgot how to go there.
+ - As men are killed by fighting, the truth is lost in disputing.
+ - To God, thy country, and thy friend be true.
+ - Dear Night! this world’s defeat; The stop to busy fools; care’s check and curb; The day of spirits; my soul’s calm retreat Which none disturb! Christ’s progress, and His prayer-time; The hours to which high Heaven cloth chime.
+ - Still young and fine! but what is still in view We slight as old and soil’d, though fresh and new.
+ - The sun doth shake Light from his locks, and, all the way Breathing perfumes, doth spice the day.
+
+22 quotes

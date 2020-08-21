@@ -1,0 +1,174 @@
+ - I have learned that faith means trusting in advance what will only make sense in reverse.
+ - Prayer is a declaration of dependence upon God.
+ - Prayer is the act of seeing reality from God’s point of view.
+ - Homeless people bear God’s image too.
+ - God loves people because of who God is, not because of who we are.
+ - Grace, like water, flows to the lowest part.
+ - Grace is a free gift of God, but to receive a gift you must have open hands.
+ - We deserve punishment and get forgiveness; we deserve God’s wrath and get God’s love.
+ - One who has been touched by grace will no longer look on those who stray as “those evil people” or “those poor people who need our help.” Nor must we search for signs of “loveworthiness.” Grace teaches us that God loves because of who God is, not because of who we are.
+ - Prayer is – keeping company with God.
+ - Grace is free only because the giver himself has borne the cost.
+ - A God wise enough to create me and the world I live in is wise enough to watch out for me.
+ - There is an “offense” to the Gospel no matter how graciously we present it. It includes the message that God, not humanity, is the ultimate judge of right and wrong, and that the choices we make here have eternal consequences.
+ - I rejected the church for a time because I found so little grace there. I returned because I found grace nowhere else.
+ - Christians get very angry toward other Christians who sin differently than they do.
+ - Jesus gave us a model for the work of the church at the Last Supper. While his disciples kept proposing more organization – Hey, let’s elect officers, establish hierarchy, set standards of professionalism – Jesus quietly picked up a towel and basin of water and began to wash their feet.
+ - Jesus announced a great reversal of values in His Sermon on the Mount, elevating not the rich or attractive, but rather the poor, the persecuted, and those who mourn.
+ - Imperfection is the prerequisite for grace. Light only gets in through the cracks.
+ - I do not get to know God and then do His will. I get to know Him by doing His will.
+ - Who would complain if God allowed one hour of suffering in an entire lifetime of comfort? Why complain about a lifetime that includes suffering when that lifetime is a mere hour of eternity?
+ - When the world asks if there is any hope, we can say absolutely! No one is exempt from tragedy or disappointment- God himself was not exempt. Jesus offered no immunity, no way out of the unfairness, but rather a way through it to the other side.
+ - Grace is heartfelt, tinged with love, a spillover gift of the God who extended undeserved favor toward us.
+ - Our confused society badly needs a community of contrast, a counterculture of ordinary pilgrims who insist living a different way. Unlike popular culture, we will lavish attention on the least “deserving” in direct opposition to our celebrity culture’s emphasis on success, wealth, and beauty.
+ - One Harlem preacher likens us to the pink plastic spoons at Baskin Robbins: we give the world a foretaste of what lies ahead, the vision of the Biblical prophets. In a world gone astray we should be activity demonstrating here and now God’s will for the planet.
+ - At Calvary, God accepted his own unbreakable terms of justice.
+ - I have come to know a God who has a soft spot for rebels, who recruits people like the adulterer David, the whiner Jeremiah, the traitor Peter, and the human-rights abuser Saul of Tarsus. I have come to know a God whose Son made prodigals the heroes of his stories and the trophies of his ministry.
+ - Prayer unfolds in the stillness of the soul.
+ - It’s easy to fall into the trap of feeling like you’ve heard everything before and that you have nothing left to learn.
+ - The Quakers have a saying: “An enemy is one whose story we have not heard.” To communicate to post-Christians, I must first listen to their stories for clues to how they view the world and how they view people like me.
+ - O God, make the bad people good, and the good people nice.
+ - The surgery of life hurts. It helps me, though, to know that the surgeon himself, the Wounded Surgeon, has felt every stab of pain and every sorrow.
+ - Human beings do not readily admit desperation. When they do, the kingdom of heaven draws near.
+ - We tend to think, ‘Life should be fair because God is fair.’ But God is not life. And if I confuse God with the physical reality of life- by expecting constant good health for example- then I set myself up for crashing disappointment.
+ - For me, prayer is not so much me setting out a shopping list of requests for God to consider as it is a way of keeping company with God.
+ - When I pray for another person, I am praying for God to open my eyes so that I can see that person as God does, and then enter into the stream of love that God already directs toward that person.
+ - Yet as I read the birth stories about Jesus I cannot help but conclude that though the world may be tilted toward the rich and powerful, God is tilted toward the underdog.
+ - Jesus reserved his hardest words for the hidden sins of hypocrisy, pride, greed and legalism.
+ - Whatever makes us feel superior to other people, whatever tempts us to convey a sense of superiority, that is the gravity of our sinful nature, not grace.
+ - The church is, above all, a place to receive grace: it brings forgiven people together with the aim of equipping us to dispense grace to others.
+ - In a nutshell, the Bible from Genesis 3 to Revelation 22 tells the story of a God reckless with desire to get his family back.
+ - The only thing harder than forgiveness is the alternative.
+ - Goodness cannot be imposed externally, from the top down; it must grow internally, from the bottom up.
+ - The people who related to God best – Abraham, Moses, David, Isaiah, Jeremiah – treated him with startling familiarity. They talked to God as if he were sitting in a chair beside them, as one might talk to a counselor, a boss, a parent, or a lover. They treated him like a person.
+ - The world is not against you, but the world is a place where bad things happen. It’s just true. Airlines crash, people do evil things. A lot of bad things happen and it causes pain.
+ - I have come to know a God of compassion and mercy and love.
+ - The world says you gain your life by getting more and more and more and more, but Jesus says, ‘No, that leads to death. You get it back by giving it away and when you give it away you get it back.’
+ - We do well to remember that the Bible has far more to say about how to live during the journey than about the ultimate destination.
+ - Prayer is to the skeptic a delusion, a waste of time. To the believer it represents perhaps the most important use of time.
+ - Grace is everywhere, like lenses that go unnoticed because you are looking through them.
+ - True healing, of deep connective tissue, takes place in community. Where is God when it hurts? Where God’s people are.
+ - If God consistently sent lightning bolts in response to bad doctrine, our planet would sparkle nightly like a Christmas tree.
+ - Jesus was a master of grace: he attracted sinners and moral outcasts even as he offended the religious and responsible people of his day.
+ - Power, no matter how well-intentioned, tends to cause suffering. Love, being vulnerable, absorbs it. In a point of convergence on a hill called Calvary, God renounced the one for the sake of the other.
+ - Our best efforts at changing society will fall short unless the church can teach the world how to love.
+ - I doubt God keeps track of how many arguments we win; God may indeed keep track of how well we love.
+ - Doubt always coexists with faith, for in the presence of certainty who would need faith at all?
+ - The giants of the faith all had one thing in common: neither victory nor success, but passion.
+ - At the heart of the gospel is a God who deliberately surrenders to the wild, irresistable power of love.
+ - Rather, God has commissioned us as agents of intervention in the midst of a hostile and broken world.
+ - There is but one true Giver in the universe; all else are debtors.
+ - We’re concerned with how things turn out; God seems more concerned with how we turn out.
+ - I have found that lived out, the hardest place to be a Christian is to be in a nice prosperous country with a lot of entertainment options because there’s so many distractions.
+ - I go to church as an expression of my need for God and for God’s family.
+ - C. S. Lewis observed that almost all crimes of Christian history have come about when religion is confused with politics. Politics, which always runs by the rules of ungrace, allures us to trade away grace for power, a temptation the church has often been unable to resist.
+ - No one ever converted to Christianity because they lost the argument.
+ - Augustine started from God’s grace and got it right, Pelagius started from human effort and got it wrong. Augustine passionately pursued God; Pelagius methodically worked to please God.
+ - Indeed we are all in peril if the flawed messenger invalidates the message.
+ - If God doesn’t want something for me, I shouldn’t want it either. Spending time in meditative prayer, getting to know God, helps align my desires with God’s.
+ - Pain narrows vision. The most private of sensations, it forces us to think of ourselves and little else.
+ - The problem of pain meets its match in the scandal of grace.
+ - Love was compressed for all history in that lonely figure on the cross, who said that he could call down angels at any moment on a rescue mission, but chose not to – because of us. At Calvary, God accepted his own unbreakable terms of justice.
+ - If Jesus had never lived, we would not have been able to invent him.
+ - Prayer enters the pool of God’s love and widens outward.
+ - The things, good Lord, that we pray for, give us the grace to labour for’, as Sir Thomas More expressed it. The inner voice of prayer expresses itself naturally in action, just as the inner voice of my brain guides all my bodily actions.
+ - And perhaps, exhibiting the fruit of the Spirit may be our very best defense against a materialist view of mankind here on earth.
+ - If we comprehend what Christ has done for us, then surely out of gratitude we will strive to live ‘worthy’ of such great love. We will strive for holiness not to make God love us but because He already does.
+ - On a small scale, person-to-person, Jesus encountered the kinds of suffering common to all of us. And how did he respond? Avoiding philosophical theories and theological lessons, he reached out with healing and compassion. He forgave sin, healed the afflicted, cast out evil, and even overcame death.
+ - I have found that living with faith in an unseen world requires constant effort.
+ - Faith in God offers no insurance against tragedy.
+ - We in the church have humility and contrition to offer the world, not a formula for success. Almost alone in our success-oriented society, we admit that we have failed, are failing, and always will fail.
+ - People who think they are free eventually end up slaves to their own desires, and those who give their freedom away to the only One you can trust with that freedom eventually get it back.
+ - Love is an overarching style of relating to another.
+ - One of the things I found is that the things we want to say for well-intentioned motives often cause more harm than good. People don’t need our words. They mainly need our presence, they need our love. And if you come in too quickly with explanations, you may do more harm than good.
+ - Christ bears the wounds of the church, his body, just as he bore the wounds of crucifixion. I sometimes wonder which have hurt worse.
+ - The rubber hits the road when we try to show grace to a person most unlike us, even someone morally offensive.
+ - As Ecclesiastes tells it, a wholesale devotion to pleasure will, paradoxically, lead to a state of utter despair.
+ - Some of us seem so anxious about avoiding hell that we forget to celebrate our journey toward heaven.
+ - What you and I think about Jesus and how we respond to Him will determine our destiny for all eternity.
+ - Prayer is – not just bowing your head a few times a day, it pervades all of life.
+ - Christians are not perfect, by any means, but they can be people made fully alive.
+ - My mother believed he would be healed. She counted on God, and the worst thing happened, the impact of that error in theology, in thinking, impacted my life from the very beginning.
+ - What a nation needs more than anything else is not a Christian ruler in the palace but a Christian prophet within earshot.
+ - The people of God are not merely to mark time, waiting for God to step in and set right all that is wrong. Rather, they are to model the new heaven and new earth, and by so doing awaken longings for what God will someday bring to pass.
+ - God formed an alliance based on the world as it is, full of flaws, whereas prayer calls God to account for the world as it should be.
+ - We human beings instinctively regard the seen world as the “real” world and the unseen world as the “unreal” world, but the Bible calls for almost the opposite.
+ - When I am tempted to complain about God’s lack of presence, I remind myself that God has much more reason to complain about my lack of presence.
+ - The self-sacrificing, servant aspect of the Christian life has many parallels to parenthood.
+ - I have more appreciation for why the Bible avoids fuzzy psychologisms and says simply to the stealer, “Steal no more,” and to the tempted, “Flee temptation.” The Bible challenges us to look upward, not inward, for counsel at moments of crisis.
+ - You can know the law by heart without knowing the heart of it.
+ - As a writer, I play with words all day long. I toy with them, listen for their overtones, crack them open, and try to stuff my thoughts inside.
+ - In the stories of extravagant grace given to us by Jesus, there are no loopholes disqualifying us from God’s love.
+ - We need faith and the mind of the Lord Jesus to recognize something of lasting value in even our most ordinary tasks.
+ - Grace is the most perplexing, powerful force in the universe, and, I believe, the only hope for our twisted, violent planet.
+ - The uncommitted share many of our core values, but if we do not live out those values in a compelling way, we will not awaken a thirst for their ultimate Source.
+ - The world thirsts for grace. When grace descends, the world falls silent before it.
+ - In no other arena is the church at greater risk of losing its calling than in the public square.
+ - I ask God most often that we would be an unbroken line of Christians until Christ shall return.
+ - Grace means that God already loves us as much as an infinite God can possibly love.
+ - When suffering happens, it forces us to confront life in a different way than we normally do.
+ - If your church conveys that spirit of condescension or judgment, it’s likely not a place where grace is on tap.
+ - I have yet to find any support in the Bible for an attitude of smugness: Ah, they deserve their punishment; watch them squirm.
+ - I think God isn’t interested in intervening every time some little bad thing happens. God is interested in getting the message of good news and love and comfort and hope across through people like us, ordinary people, or extraordinary people like Bono.
+ - The Cross of Christ may have overcome evil, but it did not overcome unfairness. For that, Easter is required.
+ - The shift in American society from admiring Christians to fearing and criticizing them provides an opportunity for self-reflection. How have we been presenting the message we believe in? Might there be a more grace-filled way?
+ - Sometimes I feel like the most liberal person among conservatives, and sometimes like the most conservative among liberals.
+ - If prayer stands as the place where God and human beings meet, then I must learn about prayer.
+ - Parents learn the uses of power and its limits. They can insist on certain outward behavior but cannot change inner attitudes. They can require obedience but not goodness – and certainly not love.
+ - Misunderstanding must be nakedly exposed before true understanding can begin to flourish.
+ - People instinctively know the difference between something done with a profit motive and something done with a love motive.
+ - Be still. In that focus, all else comes into focus. In that rift in my routine, the universe falls into alignment.
+ - Christianity is not a purely intellectual, internal faith. It can only be lived in community.
+ - Any discussion of how pain and suffering fit into God’s scheme ultimately leads back to the cross.
+ - For me, the world of nature bears spectacular witness to the imaginative genius of our Creator.
+ - Some things just have to be believed to be seen.
+ - We should be asking: How do we respond to a post-Christian society?
+ - Release what is good.
+ - Pleasure represents a great good but also a grave danger.
+ - Prayer is not a means of removing the unknown and predictable elements in life, but rather a way of including the unknown and unpredictable in the outworking of the grace of God in our lives.
+ - God does not accept me conditionally, on the basis of my performance, but bestows his love and forgiveness freely, despite my innumerable failures.
+ - God has, quite literally, all the time in the world for each one of us.
+ - We should do whatever we can to cut through the scum that has grown on our understanding and rediscover freshness.
+ - Whatever else it is, the kingdom of God is decidedly not a call to violent revolution.
+ - Christians are simply pilgrims who acknowledge their lostness and their desire for help in finding the way.
+ - All of the images of Jesus and of the kingdom are small things: be a light in the darkness.
+ - The promise of pleasures so alluring that we may devote our lives to their pursuit, and then the haunting realization that these pleasures ultimately do not satisfy.
+ - By focusing too myopically on what we want God to do on our behalf, we may miss the significance of what he has already done.
+ - What would a church look like that created space for quietness, that bucked the celebrity trend and unplugged from noisy media, that actively resisted our consumer culture? What would worship look like if we directed it more toward God than toward our own amusement?
+ - We admit that we will never reach our ideal in this life, a distinctive the church claims that most other human institutions try to deny.
+ - We respond to healing grace by giving it away.
+ - I begin with confession not in order to feel miserable, rather to call to mind a reality I often ignore. When I acknowledge where I stand before a perfect God, it restores the true state of the universe. Confession simply establishes the proper ground rules of creatures relating to their creator.
+ - By striving to prove how much they deserve God’s love, legalists miss the whole point of the gospel, that it is a gift from God to people who don’t deserve it. The solution to sin is not to impose an ever-stricter code of behavior. It is to know God.
+ - Most observers understand the difference between a committed Christian who accepts Jesus as a model for living and a ‘cultural Christian’ who happens to live in a nation with a Christian heritage. Most Muslims do not.
+ - When we ignore the world outside the walls we suffer-as does it.
+ - Be salt, and a little bit of salt keeps the whole society from going rancid.
+ - Whenever faith seems an entitlement, or a measuring rod, we cast our lots with the Pharisees and grace softly slips away.
+ - We grow up hungry for love, and in ways so deep as to remain unexpressed we long for our Maker to love us.
+ - God must love art because most of the Bible is expressed in the form of story or poetry.
+ - Whatever else we may say about it, the atonement fulfills the Jewish principle that only one who has been hurt can forgive. At Calvary, God chose to be hurt.
+ - God does not seem impressed by size or power or wealth. Faith is what he wants, and the heroes who emerge are heroes of faith, not strength or wealth.
+ - The more we love, and the more unlikely people we love, the more we resemble God – who, after all, loves ornery creatures like us.
+ - Across time and generations, books carry the thoughts and feelings, the essence, of the human spirit.
+ - Nature was one of the key forces that brought me back to God, for I wanted to know the Artist responsible for beauty such as I saw on grand scale in photos from space telescopes or on minute scale such as in the intricate designs on a butterfly wing.
+ - Never do I see Jesus lecturing people on the need to accept blindness or lameness as an expression of God’s secret will; rather, he healed them.
+ - Life with God is an individual matter, and general formulas do not easily apply.
+ - We often surround ourselves with the people we most want to live with, thus forming a club or clique, not a community. Anyone can form a club; it takes grace, shared vision, and hard work to form a community.
+ - True faith does not so much attempt to manipulate God to do our will as it does to position us to do his will.
+ - Only in prayer can we learn to love God with all our heart, mind and soul.
+ - As I read the Bible, it seems clear that God satisfies his “eternal appetite” by loving individual human beings. I imagine He views each halting step forward in my spiritual “walk” with the eagerness of a parent watching a child take the very first step.
+ - People want to go back to those old days, but it’s probably not going to happen.
+ - Dependence, humility, simplicity, cooperation, and a sense of abandon are qualities greatly prized in the spiritual life, but extremely elusive for people who live in comfort.
+ - Jesus tended to honor the losers of this world, not the winners. Our modern culture extravagantly rewards beauty, athletic skill, wealth, and artistic achievement, qualities which seemed to impress Jesus not at all.
+ - I would far rather convey grace than explain it.
+ - The Christian sees the world as a transitional home badly in need of rehab, and we are active agents in that project.
+ - The deadening part of Bible study is when you think you’ve already got it all figured out.
+ - If God doesn’t want something for me, then I shouldn’t want it either.
+ - We should feel dissonance; we are, after all, immortals trapped in mortal surroundings. We lack unity because long ago a gap fissured open between our mortal and immortal parts; theologians trace the fault line back to the Fall.
+ - Power can do everything but the most important thing: it cannot control love.
+ - When I don’t know the answer to something, I write a book about it because it gives me a chance to explore it and go to some people who do have the answers.
+ - We whine about things we have little control over; we lament what we believe ought to be changed.
+ - Jesus did not give the parables to teach us how to live. He gave them, I believe, to correct our notions about who God is and who God loves.
+ - Repentance, not proper behavior or even holiness, is the doorway to grace. And the opposite of sin is grace, not virtue.
+ - Love deems this world worth rescuing.
+
+172 quotes

@@ -1,0 +1,502 @@
+ - Every moment wasted looking back, keeps us from moving forward.
+ - Human rights are women’s rights, and women’s rights are human rights.
+ - Do what is necessary to be resilient. You will get knocked down. What matters is that you get back up.
+ - Fail to plan, plan to fail.
+ - Take criticism seriously, but not personally. If there is truth or merit in the criticism, try to learn from it. Otherwise, let it roll right off you.
+ - Life is too short, time is too precious, and the stakes are too high to dwell on what might have been. We have to work together for what still can be.
+ - Every day is a crossroads. Every day is a chance to change your life and our world for the better.
+ - Caring for others is an expression of what it means to be fully human.
+ - The harder they hit, the more encouraged I get.
+ - Women are the largest untapped reservoir of talent in the world.
+ - Fear is always with us, but we just don’t have time for it. Not Now!
+ - There’s no such thing as other people’s children.
+ - Don’t confuse having a career with having a life.
+ - You can bloom wherever you’re planted, if you put enough effort into it.
+ - When I am talking about “It Takes a Village”, I’m obviously not talking just about or even primarily about geographical villages any longer, but about the network of relationships and values that do connect us and binds us together.
+ - Every child needs a champion.
+ - The worst thing that can happen in a democracy – as well as in an individual’s life – is to become cynical about the future and lose hope.
+ - It takes a village to raise a child.
+ - Too many women in too many countries speak the same language, of silence...
+ - I’m sorry. I don’t recall.
+ - Giving every child a chance to reach their full potential is the best work anyone can do.
+ - You know, everybody has setbacks in their life, and everybody falls short of whatever goals they might set for themselves. That’s part of living and coming to terms with who you are as a person.
+ - Innovation, having fun and giving back, should be the core values for everyone.
+ - I believe in a zone of privacy.
+ - Investing in women is not only the right thing to do, but also the smart thing to do.
+ - Human rights are women’s rights, and women’s rights are human rights. Let us not forget that among those rights are the right to speak freely – and the right to be heard.
+ - I believe that the rights of women and girls is the unfinished business of the 21st century.
+ - To LGBT men and women worldwide, let me say this: wherever you live and whatever the circumstances of your life, whether you are connected to a network of support or feel isolated and vulnerable, please know that you are not alone.
+ - We need a cost-effective, high-quality health care system, guaranteeing health care to all of our people as a right.
+ - It does not matter what country we live in, who our leaders are, or even who we are. Because we are human, we therefore have rights. And because we have rights, governments are bound to protect them.
+ - Let’s continue to stand up for those who are vulnerable to being left out or marginalized.
+ - I am someone who hopes for the best and prepares for the worst.
+ - The challenge is to practice politics as the art of making what appears to be impossible, possible.
+ - Being human, we are imperfect. That’s why we need each other. To catch each other when we falter. To encourage each other when we lose heart. Some may lead; others may follow; but none of us can go it alone.
+ - We should remember that just as a positive outlook on life can promote good health, so can everyday acts of kindness.
+ - In the fight for women’s rights, the support of men remains crucial.
+ - Women are the world’s most underused resource.
+ - I suppose I could have stayed home and baked cookies and had teas.
+ - And please, please, lets us put mental health back on the top of our national agenda, our prisons and our jails are now our mental health institutions.
+ - God bless the America we are trying to create.
+ - Life is too short to dwell on what might have been.
+ - We must stop thinking of the individual and start thinking about what is best for society.
+ - Dynamism is a function of change.
+ - I think I’m chronically exhausted.
+ - All people deserve to be treated with dignity and have their human rights respected, no matter who they are or whom they love.
+ - I’m not going to quit. Why should I quit? This country is worth fighting for.
+ - I think that if you live long enough, you realize that so much of what happens in life is out of your control, but how you respond to it is in your control. That’s what I try to remember.
+ - We need to make equal pay and equal opportunity for women and girls a reality so women’s rights are human rights once and for all.
+ - You’re not always going to make the right decisions, but you have to be guided by what you think is important.
+ - Hair matters. Pay attention to your hair – because everyone else will.
+ - Like being a woman, like being a racial religious tribal or ethnic minority, being LGBT does not make you less human. And that is why gay rights are human rights and human rights are gay rights.
+ - Life is not easy for anyone. Sometimes you don’t see the challenges on the outside, but every single one of us has both those and everything that goes on inside as well. Give it your all. Dare to be all you can be.
+ - What did you do with the time and talents i gave you? God’s question...
+ - I can’t stand whining.
+ - The arts are not a luxury. They are an integral part of our lives as individuals and as a nation.
+ - I have a lot of stamina and I have a lot of resilience.
+ - We ought to be doing all we can to make it possible for every child to fulfill his or her God-given potential.
+ - We’re always going to argue about abortion. It’s a hard choice and it’s controversial, and that’s why I’m pro-choice, because I want people to make their own choices.
+ - If I didn’t kick his ass every day? he wouldn’t be worth anything.
+ - I have never lost faith in America’s essential goodness and greatness.
+ - When families are strong, America is strong.
+ - There is no substitute for love and caring and compassion and human beings helping one another.
+ - Don’t let life pass you by before you realise that it was worth living.
+ - Sometimes, opening up your eyes and realising what you have – no matter how little you think – helps you find yourself.
+ - Never waste a good crisis.
+ - Today’s college student is lazy and uninformed.
+ - It is not enough to preach about family values, we must value families.
+ - Women have always been the primary victims of war. Women lose their husbands, their fathers, their sons in combat.
+ - I am a sensitive person, so it is actually saddening to learn that these poverty-stricken families are most of the time mistreated or looked down upon. Help the poor, like how you would want to be helped if you were in their position.
+ - Although we weren’t able to shatter that highest, hardest glass ceiling this time, thanks to you, it’s got about 18 million cracks in it.
+ - Women have to support other women.
+ - Remember that movie Independence Day, where invaders were coming from outer space and the whole world was united against the invasion? Why can’t we be united on behalf of our planet? And that’s what I want to do.
+ - The first lesson I’ve learned is that no matter what you do in your life, you have to figure out your own internal rhythms – I mean, what works for you doesn’t necessarily work for your friend.
+ - It’s important to take criticism seriously – not personally.
+ - Can’t react every time you’re insulted. Free people absorb destructive things and refuse to be destroyed.
+ - Home is a child’s first and most important classroom.
+ - Who is going to find out? These women are trash. Nobody’s going to believe them.
+ - You show people what you’re willing to fight for when you fight your friends.
+ - Voting is the most precious right of every citizen, and we have a moral obligation to ensure the integrity of our voting process.
+ - We want to lead by our values and out interests in ways that, regardless of the trajectory over the next decade, people will know the United States was on the side of democracy, on the side of the rule of law.
+ - When we liberate the economic potential of women, we elevate the economic performance of communities, nations, and the world.
+ - Gay rights are human rights.
+ - Prediction from a grown-up: Your future is going to be amazing. You will surprise yourself with what you’re capable of and the incredible things you go on to do. Find the people who love and believe in you – there will be lots of them.
+ - Those people on the other side, they will answer any question about climate change by saying, ‘I’m not a scientist.’ Well, I’m not a scientist either. I’m just a grandmother with two eyes and a brain.
+ - Hair matters. This is a life lesson Wellesley and Yale Law School failed to instil. Your hair will send significant messages to those around you.
+ - Forgiveness is a way of opening up the doors again and moving forward, whether it’s a personal life or a national life.
+ - I really do hope that we have a woman president in my lifetime.
+ - In this world and the world of tomorrow, we must go forward together or not at all.
+ - There is a sense that things, if you keep positive and optimistic about what can be done, do work out.
+ - No one understands me better and no one can make me laugh the way Bill does. Even after all these years, he is still the most interesting, energizing and fully alive person I have ever met.
+ - I mean, I’m a big believer in talking to people when you can and trying to solve problems when you can.
+ - I just want to sleep and exercise and travel for fun. And relax. It sounds so ordinary, but I haven’t done it for 20 years.
+ - When women participate in the economy everyone benefits.
+ - Freedom is never granted. It is earned by each generation.
+ - It’s time for a new beginning, for an end to government of the few, by the few, and for the few and to replace it with shared responsibility for shared prosperity.
+ - I believe capital gains, for the most part, should be taxed the same way we tax income from hard work, sweat, and toil. And if we do those things, we can be a country that actually can afford debt-free college again.
+ - When I was growing up, my parents always told me that I had to do what I thought was right and not listen to other people. That was hard for me.
+ - No human being is immune to adversity or personal setbacks.
+ - The challenges of change are always hard. It is important that we begin to unpack those challenges that confront this nation and realize that we each have a role that requires us to change and become more responsible for shaping our own future.
+ - I remember, particularly, a trip to Bosnia where the welcoming ceremony had to be moved inside because of sniper fire.
+ - That’s all you people care about, is money.
+ - We believe strongly that the road to peace and two states living side by side does not go through New York, it goes through Jerusalem and Ramallah.
+ - It’s time that we move from good words to good works, from sound bites to sound solutions.
+ - The American people are tired of liars and people who pretend to be something they’re not.
+ - The word gap leads to an achievement gap and has life-long consequences.
+ - Our future matters, and it is up to us to take it back.
+ - I have many, many old friends, and I always think that it’s important, when you get into politics, to have friends you had before you were in politics and to understand what’s on their minds.
+ - Being LGBT does not make you less human.
+ - If a country doesn’t recognize minority rights and human rights, including women’s rights, you will not have the kind of stability and prosperity that is possible.
+ - I believe marriage is not just a bond but a sacred bond between a man and a woman.
+ - It is absolutely without contradiction that when women are encouraged to participate in the formal economies of their societies, the economy grows.
+ - You cannot have maternal health without reproductive health. And reproductive health includes contraception and family planning and access to legal, safe abortion.
+ - I think the world would be a lot better off if more people were to define themselves in terms of their own standards and values and not what other people said or thought about them.
+ - What the champions of suffrage understood was that the vote is not just a symbol of our equality, but that it can be, if used, a guarantee of results.
+ - We need to be as well prepared to defend ourselves against public health dangers as we should be to defend ourselves against any foreign danger.
+ - No one wants their personal emails made public, and I think most people understand that and respect that privacy.
+ - American values are not just about America, but they speak to the human dignity, the God-given spark that resides in each and every person across the world.
+ - The present system is unsustainable. The only question is whether we will master the change or it will master us.
+ - We came out of the White House not only dead broke, but in debt.
+ - Wealthy women have rights in every country. And poor women don’t.
+ - I did not have textual relations with that server.
+ - I think when somebody’s out in the public eye, that’s what they do. So I’m fully comfortable with who I am, what I stand for, and what I’ve always stood for.
+ - In defeating terror, Israel’s cause is our cause.
+ - When you’re president, you can’t vote present. You have to make a decision. Sometimes it’s a split second decision. You don’t have time to think about it. You’ve got to actually decide.
+ - You know, people make a lot of money talking about me, don’t they?
+ - I challenge assumptions about women.
+ - My own country’s record on human rights for gay people is far from perfect.
+ - What difference, at this point, does it make?
+ - I have met thousands and thousands of pro-choice men and women. I have never met anyone who is pro-abortion.
+ - My parents always stressed the importance of education, working hard in school and learning as much as possible. They also encouraged me to value myself and believe in myself and do what I thought was right for me.
+ - Rich people, God bless us. We deserve all the opportunities to make sure our country and our blessings continue to the next generation.
+ - I’m so grateful this day has ended well.
+ - The Golden Rule: Do unto others as you would have them do unto you. I think it’s a good rule for politics, too.
+ - It’s always surprising to me how many young women think they have to be perfect. I rarely meet a young man who doesn’t think he already is.
+ - I like live audiences, with real people – virtual reality is no substitute.
+ - I am all about new beginnings. A new grandchild, another new hairstyle, a new email account. Why not a new relationship with the press?
+ - The difference between a politician and a statesman is that a politician thinks about the next election while the statesman think about the next generation.
+ - It is often when night looks darkest, it is often before the fever breaks that one senses the gathering momentum for change, when one feels that resurrection of hope in the midst of despair and apathy.
+ - Let’s be honest, for a lot of well meaning, open-minded white people, the sight of a young black man in a hoodie still evokes a twinge of fear.
+ - Islam is the fastest-growing religion in America, a guide and pillar of stability for many of our people...
+ - Our prisons and our jails are now our mental health institutions.
+ - When it comes to foreign policy, it is important to remember that politics stops at the water’s edge.
+ - I hope we will come together as a nation and do whatever it takes to keep guns away from people who have no business with them.
+ - We have a lot of kids who don’t know what works means. They think work is a four-letter word.
+ - China is starting an English-speaking television network around the world, Russia is, Al Jazeera. And the BBC is cutting back on its many language services around the world.
+ - We built a life together based on the things we cared about, the things that we loved, we were blessed with a daughter who turned out pretty well I would say. We have been very blessed.
+ - It’s time to end the era of mass incarceration. We need a true national debate about how to reduce our prison population.
+ - Aww don’t feel noways tired. I’ve come too faarrrrr from where I started frum.
+ - In the Bible it says they asked Jesus how many times you should forgive, and he said 70 times 7. Well, I want you all to know that I’m keeping a chart.
+ - Showing up is not all of life – but it counts for a lot.
+ - Part of diplomacy is to open different definitions of self-interest.
+ - I’m sick and tired of people who say that if you debate and disagree with this administration, somehow you’re not patriotic. We need to stand up and say we’re Americans, and we have the right to debate and disagree with any administration.
+ - Yet again, the family of a young black man is grieving a life cut short. Yet again, the streets of an American city are marred by violence. What we have seen in Baltimore should, indeed I think does, tear at our soul.
+ - First, we parents have to back up school authority and quit making excuses for our kids when they misbehave.
+ - I was in civil society long before I was ever in politics or my husband was ever even elected president.
+ - We do not have to choose between a healthy environment and a healthy economy.
+ - As women and as lawyers, we must never again shy from raising our voices against sexual harassment.
+ - We will never build enough prisons to end our crime problem.
+ - Abortion and racism stem from the same poisonous root, selfishness.
+ - I have always believed that women are not victims, we are agents of change, we are drivers of progress, we are makers of peace – all we need is a fighting chance.
+ - Motown, Motown, that’s my era. Those are my people.
+ - I think the chair’s job is to be fair and I think the job of all of the vice chairs is to make sure that happens. And we have really robust conversations about what balance is, and it’s not easy.
+ - We’re going to take things away from you on behalf of the common good.
+ - I wish I were taller and thinner but the hair you can do something about.
+ - I’m undaunted in my quest to amuse myself by constantly changing my hair.
+ - Why do I have to keep proving to people that I am not a liar?!
+ - It is past time for women to take their rightful place, side by side with men, in the rooms where the fates of peoples, where their children’s and grandchildren’s fates, are decided.
+ - As long as there are those who are willing to shed blood and take innocent life in the name of religion, the name of God, the world will never know a true and lasting peace.
+ - I can survive setbacks, I’ve survived a lot of setbacks in my life. I don’t see them as anything other than the natural ebb and flow of life and politics.
+ - You want me to tell you what my husband thinks? My husband is not secretary of state; I am. If you want my opinion, I will tell you my opinion. I am not going to be channeling my husband.
+ - I wasn’t born a first lady or a senator. I wasn’t born a Democrat. I wasn’t born a lawyer or an advocate for women’s rights and human rights. I wasn’t born a wife or a mother.
+ - I just think that giving a child a chance and sharing what you have with a child is one of the greatest gifts you can give yourself, as well as a child.
+ - I believe that I have created a lot of cognitive dissonance in the minds of people who are comfortable with stereotypes.
+ - I’m still amazed at how my mother emerged from her lonely early life as such an affectionate and levelheaded woman.
+ - We are at war with violent extremism. We are at war with people who use their religion for purposes of power and oppression.
+ - My father was raised with brothers, he was a football player and a boxer, he was a chief petty officer in the Navy, he was a man of his times.
+ - I think you know by now that I’ve been called many things by many people. Quitter is not one of them.
+ - A psychologist once told me that for a boy being in the middle of a conflict between two women is the worst possible situation. There’s always a desire to please each one.
+ - I don’t think feminism, as I understand the definition, implies the rejection of maternal values, nurturing children, caring about the men in your life. That is just nonsense to me.
+ - The only wealth I have to give, is not material – and if you need much more than that, I’m not available.
+ - We need to understand that there is no formula for how women should lead their lives. that is why we must respect the choices that each woman makes for herself and her family. Every woman deserves the chance to realize her God-given potential.
+ - I will fight against the division politics of revenge and retribution. If you put me to work for you, I will work to lift people up, not put them down.
+ - There cannot be true democracy unless women’s voices are heard.
+ - Faith is like stepping off a cliff and expecting one of two outcomes- you will either land on solid ground or you will be taught to fly.
+ - We can’t be fighting the last war. We have to be preparing to fight the new war.
+ - We can’t go to people who have lost their job at GM and say, ‘Oh, by the way, we are going to pay money to build a road here or inoculate children there,’ unless we can demonstrate that it is in America’s interest. I happen to think it is.
+ - I suppose I could have stayed home and baked cookies and had teas, but what I decided to do was to fulfill my profession, which I entered before my husband was in public life.
+ - Our global future depends on the willingness of every nation to invest in its people, especially women and children.
+ - Probably my worst quality is that I get very passionate about what I think is right.
+ - The first years of life are not just important; they are more crucial to shaping children than any other time. Even before they speak, children are extremely sensitive to the messages adults send them.
+ - I believe I am a work horse. I believe that that is what our country needs. We need a president who will roll up our sleeves collectively as a nation and tackle the problems that we confront.
+ - In every religion, there are those who would drape themselves in the mantle of belief and faith only to distort it’s most sacred teachings – preaching intolerance and resorting to violence.
+ - I wonder if it’s possible to be a Republican and a Christian at the same time.
+ - The importance of building relationships among colleagues, of trying to create coalitions behind the issues that you are championing, was not something I ever had much insight into until I was elected and started serving in the Senate.
+ - A democracy depends on the full integration of women into society, especially on seeing to it that they have equal access to the same tools of opportunity as men.
+ - I think we have to face the reality that in a society where there is a legitimate threat of terrorism, not being able to see one’s face, not being able to have some sense of communication in that way, is for many societies a challenge.
+ - We regret mistakes were made.
+ - I think that we have to be constantly asking ourselves, ‘How do we calculate the risk?’ And sometimes we don’t calculate it correctly; we either overstate it or understate it.
+ - The only way to make a difference is to acquire power.
+ - I feel very lucky because of my parents and then my education, the opportunities that I’ve had, so I would like to continue working to improve lives for others.
+ - Small children and unruly people who are demanding attention.
+ - I don’t think the Egyptian people want to see what is a very clear effort to obtain political and economic rights turn into any kind of new form of oppression or suppression or violence or letting loose criminal elements.
+ - I wish we weren’t fighting all the time to protect women’s rights, to protect women’s health.
+ - I made a mistake. That happens. It proves I’m human, which you know, for some people, is a revelation.
+ - When women thrive, economies thrive.
+ - I can’t stand the kind of paralysis that some people fall into because they’re not happy with the choices they’ve made.
+ - Oh I know it well, love is patient, love is kind. It does not envy, it does not boast, it is not proud.
+ - Today we voted as Democrats and Republicans. Tomorrow we begin again as New Yorkers.
+ - The consciousness-raising, the advocacy, the passion, the youth of your movement is so critical.
+ - Freedom means the right of people to assemble, organize, and debate openly.
+ - Everyone has some dysfunction in their families. They have to deal with it. You don’t walk away if you love someone. You help the person.
+ - In too many instances, the march to globalization has also meant the marginalization of women and girls. And that must change.
+ - Marriage has got historic, religious and moral content that goes back to the beginning of time and I think a marriage is as a marriage has always been, between a man and a woman.
+ - Every woman, whoever she is, wherever she lives, should be able to give birth without the fear she’s going to lose her baby or that her baby will lose her mother.
+ - I am particularly horrified by the use of propaganda and the manipulation of the truth and the revision of history.
+ - I’ll get involved in philanthropy.
+ - When any part of humanity is sidelined, the rest of us cannot sit on the sidelines.
+ - Every marriage is a mystery to me, even the one I’m in. So I’m no expert on it.
+ - My two secrets to staying healthy: wash your hands all the time. And, if you can’t, use Purell or one of the sanitizers. And the other is hot peppers. I eat a lot of hot peppers. I for some reason started doing that in 1992, and I swear by it.
+ - Democracy is still a radical idea in a world where we often confuse images with realities, words with actions.
+ - I have to confess that it’s crossed my mind that you could not be a Republican and a Christian.
+ - I want to make change, but I’ve already made change. I will continue to make change. I’m not just running on a promise of change. I’m running on 35 years of change.
+ - There is no doubt that America remains the premier political, economic, military power in the world, and I both expect and count on it remaining so, because I think that’s certainly in our best interest but also the best interests of the world.
+ - You know, my view is that we have a big world out there.
+ - Laws that discriminate validate other kinds of discrimination.
+ - True transformation only comes from sustainable strategies.
+ - I have to defend my husband.
+ - I think many people are not seeing the change. They’re really upset with the current situation. We haven’t seen a major American city go up like this in quite some time.
+ - Real democracy means that no group or faction or leader can impose their will, their ideology, their religion, their desires on anyone else.
+ - You know no one will ever accuse me as having the same policies as George W. Bush.
+ - I have more understanding, more compassion. I am on a much more important quest for the truth than any of you. You just don’t want me to be president.
+ - I believe in delegating power.
+ - There is a great deal of political pressure to only talk about abstinence, and to deny support for condoms and education on using them. This policy will lead to the unnecessary deaths of many people.
+ - Great nations need organizing principles, and ‘Don’t do stupid stuff’ is not an organizing principle.
+ - I am surprised at the way people seem to perceive me, and sometimes I read stories and hear things about me and I go “ugh.” I wouldn’t like her either. It’s so unlike what I think I am or what my friends think I am.
+ - No practice or tradition trumps the human rights that belong to all of us.
+ - I always believed you could learn something from nearly everybody you meet, if you’re open to it.
+ - Egypt is a large, complex, very important country.
+ - While there are few problems in today’s world that the United States can solve alone, there are even fewer that can be solved without the United States.
+ - Like it or not, women are always subject to criticism if they show too much feeling in public.
+ - I sometimes think that I didn’t leave the Republican Party, as much as it left me.
+ - I don’t think we’re at war with Islam. I don’t think we’re at war with all Muslims. I think we’re at war with jihadists.
+ - Dignity does not come from avenging insults, especially from violence that can never be justified. It comes from taking responsibility and advancing our common humanity.
+ - The way to continue our fight now to accomplish the goals for which we stand is to take our energy, our passion, our strength and do all we can to help elect Barack Obama.
+ - It is absolutely clear to me that we have to keep the internet open.
+ - I have a million ideas. The country can’t afford them all.
+ - One thing we know for sure is that change is certain, progress is not.
+ - I have won elections and I have lost elections.
+ - There’s no day that is the same as the day before. So you have to be energized; you have to be focused.
+ - Children today will grow up taking for granted that an African-American or a woman can, yes, become the president of the United States.
+ - I really deplore the tone of his campaign and the inflammatory rhetoric that he is using to divide people. I don’t know that Donald Trump has any boundaries at all.
+ - At the risk of appearing predictable, the Bible was and remains the biggest influence on my thinking. I was raised reading it, memorizing passages from it and being guided by it. I still find it a source of wisdom, comfort and encouragement.
+ - Let’s learn from the wisdom of every mother and father who teaches their daughters there is no limit on how big she can dream and how much she can achieve.
+ - Despite our best efforts and our highest hopes, America’s long struggle with race is far from finished.
+ - Keeping them behind bars does little to reduce crime, but it does a lot to tear apart families, our prisons and our jails are now our mental health institutions.
+ - I certainly think the free-market has failed.
+ - Sometimes, in public life, people ask inappropriate, off-the-wall kinds of questions, don’t they?
+ - I am shocked at how much time I spend in the White House. I mean, you know, for people on the outside, the idea of going to the White House for a meeting must seem like the most important, serious, even glamorous kind of thing to do.
+ - We need to have a resolve that will bring the world together to root out the kind of radical jihadist ideology that motivates organizations like ISIS, a barbaric, ruthless, violent jihadist terrorist group.
+ - Research shows the presence of women raises the standards of ethical behavior and lowers corruption.
+ - As a Christian, part of my obligation is to alleviate suffering. Explicit recognition of that in the Methodist tradition is one reason I’m comfortable in this church.
+ - We are going backwards in a field that’s supposed to be all about moving forward.
+ - Knowing what to expect next gives children a sense of security.
+ - America is best when we work in collaboration with our allies. America is best when we are actually standing up to evil in this world. And ISIS, make no mistake about it, is an evil in this world.
+ - I grew up in a middle-class family in the middle of America in the middle of the last century.
+ - You never know in retrospect whether you did or didn’t do exactly the right thing, stay-at-home mothers, gone-away mothers, all ofus worry whether we should have done something differently than we did.
+ - One of the best investments we can make is to give our kids the ingredients they need to develop in the first five years of life.
+ - You have to be true to yourself.
+ - Laws and traditions that hold back women, hold back entire societies.
+ - While I may not be the youngest candidate in this race, but I will be the youngest woman president in the history of the United States.
+ - I learned some valuable lessons about the legislative process, the importance of bipartisan cooperation and the wisdom of taking small steps to get a big job done.
+ - I’ve had extraordinary good luck with my health, other than a broken elbow.
+ - No society can thrive when half its people are left behind.
+ - Of course, parents are the most important people in a child’s life.
+ - For all the injustices in our past and our present, we have to believe that in the free exchange of ideas, justice will prevail over injustice, tolerance over intolerance and progress over reaction.
+ - Laws have to be backed up with resources and political will. And deep-seated cultural codes, religious beliefs and structural biases have to be changed.
+ - I am neither frustrated nor planning anything other than being the best Secretary of State I could be.
+ - I want people in all the government agencies to be communicating with people because for me, we’re in an era – which didn’t exist before – where you can have instant access to information, and I want to see my government be more transparent.
+ - It’s true that America can’t solve every problem, but I don’t know of any major problem in the world that can be solved without us.
+ - I have absolutely no interest in running for president again. None. None. I mean, I know that’s hard for some people to believe, but, you know, I just don’t.
+ - Laws that require equal protections reinforce the moral imperative of equality.
+ - I am, you know, adamantly against illegal immigration.
+ - I don’t ask anyone else to live my life. I have enough trouble doing that.
+ - I fought all my life for women to make their own choices, in their personal and professional lives. I made mine.
+ - I’m running for president because everyday Americans and their families need a champion, and I want to be that champion. I want to make the words middle class mean something again.
+ - I rarely meet a young man who doesn’t already think he is.
+ - I never thought that the long haired, bearded guy I married in law school would end up being President.
+ - American leadership is essential.
+ - It is a fact that around the world the elites of every country are making money.
+ - I’ve always been intrigued by the Senate, and admired many of the people who have served there.
+ - What was once justified as sanctioned by God is now properly reviled as an unconscionable violation of human rights.
+ - A nuclear-weapons armed Iran is not in anyone’s human-rights interests. That is a direct threat to the lives and the livelihoods and the stability not only of the region but beyond.
+ - I am a fan of the social policies that you find in Europe.
+ - For more than a half a century, we know that we prospered because of a bipartisan consensus on defense and foreign policy. We must do more than return to that sensible, cooperative approach.
+ - Both the American people and nations that censor the internet should understand that our government is committed to helping promote internet freedom.
+ - Our country deserves no less, because all of the other issues we want to deal with depend upon us being secure and strong.
+ - I think I will serve as secretary of state as my last public position.
+ - So nice to be a fashion icon in my day.
+ - One day after laying a wreath at the tomb of Martin Luther King Jr., President Bush appoints a federal judge who has built his career around dismantling Dr. King’s legacy.
+ - The episodic, reactive, almost frantic pace of what is broadcast makes children feel and act frantic and shortens their attention spans and their patience for activities that take time and problems that don’t yield immediate solutions.
+ - There is still work to be done, but that remains a crucial lesson, you cannot bring peace and security to people just by signing an agreement. In fact, most peace agreements don’t last.
+ - I try to read for pleasure whenever I can – it’s a great way just to shut it off for a while so your brain doesn’t get fried.
+ - I have a lifetime of experience that I will bring to the White House. I know Senator McCain has a lifetime of experience that he will bring to the White House. And Senator Obama has a speech he gave in 2002.
+ - Listening to what people in other countries are saying and trying to understand how they perceive their place in the world is essential to a future of peace and security at home and abroad.
+ - From my perspective, you get up every day and you get out there and you make your case, and you reach as many people as possible.
+ - At a time of change and challenge at home and abroad, these investments will enhance the security of Americans, assure the future American leadership, and help build the foundations of peace, stability, and prosperity in the years ahead.
+ - I have said publicly no option should be off the table, but I would certainly take nuclear weapons off the table.
+ - Donald Trump bigotry, his bluster, his bullying, have become his campaign.
+ - It is very clear that the people in Afghanistan do not want the Taliban back.
+ - Every day Americans and their families need a champion, a champion who will fight for them every single day. And I want to be that champion. I want to get up every single day going to work for you, standing up for you.
+ - When a new president comes in, a new president gets to clean house.
+ - Now I know that Wal-Mart’s policies do not reflect the best way of doing business and the values that I think are important in America.
+ - There is no doubt that the increasing numbers of women in the economy has helped fuel significant growth everywhere. And economies that are making the shift more effectively and rapidly are dramatically outperforming those that have not.
+ - No one has ever abandoned a belief because he was forced to do so.
+ - The money has to go to the federal government because the federal government will spend that money better than the private sector will spend it.
+ - We know that much of the training and the direction for terrorists comes from Pakistan and the border area with Afghanistan.
+ - It saddens me that a historic event like this is being misconstrued by a small but vocal group of critics trying to spread the notion that the UN gathering is really the work of radicals and atheists bent on destroying our families.
+ - Democracy can’t be just for billionaires and corporations.
+ - You know, I’m going to start thanking the woman who cleans the restroom in the building I work in. I’m going to start thinking of her as a human being.
+ - There’s a different leader in Syria now. Many of the members of Congress of both parties who have gone to Syria in recent months have said they believe he’s a reformer.
+ - I want a strong military. But I do not believe, among other things, that without an audit, we should be throwing tens of billions of dollars more into the Department of Defense.
+ - The deck is still stacked in favor of those already at the top. And there’s something wrong with that. There’s something wrong when CEOs make 300 times more than the typical worker.
+ - It is a violation of human rights when governments declare it illegal to be gay.
+ - I’m one of these very focused people when it comes to day-to-day work, and I’m trying not to think about what comes next so that I can stay very focused on what I’m doing now.
+ - Don’t you someday want to see a woman president of the United States of America?
+ - I think we do not need to send more jobs to low wage countries. I think corporate America has to start investing in this country and create decent paying jobs here.
+ - We have to use all of America’s strengths to build a world with more partners and fewer adversaries, more shared responsibility and fewer conflicts, more good jobs and less poverty, more broadly based prosperity with less damage to our environment.
+ - No nation can meet the world’s challenges alone.
+ - Our democracy has been around far longer than European democracy.
+ - I have not supported same-sex marriage. I have supported civil partnerships and contractual relationships.
+ - From the theft of confidential cables to 21st-century protest movements, to development breakthroughs that have the potential to change millions of lives, we are all in uncharted territory.
+ - There are rich people everywhere, and yet they don’t contribute to the growth of their countries.
+ - If Planned Parenthood and Human Rights Campaign were part of the establishment, that would be time for all of us to just quit having to work so hard and defend it and fight for it.
+ - We cannot let a minority of people hold a viewpoint that terrorizes the majority of people.
+ - When you are engaged in both trying to kill and capture the enemy and get support from the local population, you have to be always asking yourself, “Is what I’m doing keeping that balance?”
+ - Costs are incurred whenever any group is treated as lesser or the other, whether they are women, racial, or religious minorities, or the LGBT.
+ - Women offer unique contributions to making and keeping peace – and that those contributions lead to better outcomes not just for women, but for entire societies.
+ - One thing we know for sure is that change is certain. Progress is not. Progress depends on the choices we make today for tomorrow and on whether we meet our challenges and protect our values.
+ - I drink tons of water. Just as much water as I can possibly drink.
+ - My feeling is if you’re going to be a leader, you have to carefully assess where people are and where people want to go.
+ - It is because the human experience is universal that human rights are universal.
+ - My husband may have his faults, but he has never lied to me.
+ - I have gone from a Barry Goldwater Republican to a New Democrat, but I think my underlying values have remained pretty constant; individual responsibility and community. I do not see those as being mutually inconsistent.
+ - You’re not a leader if you haven’t been elected.
+ - The United States strongly condemns the illegal disclosure of classified information. It puts people’s lives in danger, threatens our national security, and undermines our efforts to work with other countries to solve shared problems.
+ - Reconciling with an adversary that can be as brutal as the Taliban sounds distasteful, even unimaginable. And diplomacy would be easy if we only had to talk to our friends. But that is not how one makes peace.
+ - Of all the jobs I’ve had, sliming fish was pretty good preparation for life in Washington.
+ - We all remember Bobby Kennedy was assassinated in June in California.
+ - Drug companies should not be allowed to reap excessive profits or spend unreasonable amounts on marketing if they want to receive support that is designed to encourage life- saving and health-improving treatments.
+ - Well, human security is a concept that I am very committed to enshrining in American foreign policy.
+ - In nearly every religion I am aware of, there is a variation of the golden rule. And even for the non-religious, it is a tenet of people who believe in humanistic principles.
+ - You can have the right kind of experience and the wrong kind of experience. Mine is rooted in the real lives of real people, and it will bring real results if we have the courage to change.
+ - I feel like every day, every minute I have to make the most of.
+ - You Don’t Have to Be Perfect. Most Men Never Think Like That.
+ - The children-my own and other people’s-became the passion of my personal and professional life.
+ - I think that like most people I know, I have a range of views, but they are rooted in my values and experience.
+ - Well, I think both Russia and China have a very strong aversion to interference in internal affairs.
+ - One of the things I have been preaching around the world is collecting taxes in an equitable manner, especially from the elites.
+ - I do not think homosexuality is immoral.
+ - People have to stop employing illegal immigrants.
+ - Often those who are denied rights are least empowered to bring about the changes they seek.
+ - It is important to recognize the limited ability of the legal system to prescribe and enforce the quality of social arrangements.
+ - Everybody has some dysfunction in their families.
+ - We finally are where we need to be. We have a strategy and a commitment to go after ISIS.
+ - I want to teach. I want to speak. I want to travel.
+ - It should never be a crime to be gay.
+ - In this changing, complex and exciting world with exploding expectations, we need to find some common ground. We need people and ideas to turn to bind us, and Mahatma Gandhi with his message of oneness for mankind is one of them.
+ - I did not email any classified material to anyone on my email. There is no classified material. I’m certainly well aware of the classification requirements and did not send classified material.
+ - I want the public to see my email. I asked State to release them. They said they will review them for release as soon as possible.
+ - Over the years, we have lost millions of decent paying jobs. These trade agreements have forced wages down in America so the average worker in America today is working longer hours for lower wages.
+ - America can’t succeed unless you succeed. That is why I am running for president of the United States.
+ - I have absolutely no interest in running for president again.
+ - People should meet an acceptable threshold of appropriateness. But for many women in the public eye, it just seems that the burden is so heavy.
+ - There is no formula that I’m aware of for being a successful or fulfilled woman today.
+ - Oh, I’ve never been asked a silly question in my entire life.
+ - Going out and playing football or baseball with the boys, when I was a tomboy, was a great way to learn about winning and losing, and most girls didn’t have that experience.
+ - Refraining from violence is not a sign of weakness in one’s faith but a sign that one’s faith is unshakeable.
+ - Don’t let anybody tell you that it’s corporations and businesses that create jobs.
+ - We must realize that our destiny is strongly linked to the destiny of the poorest on this planet.
+ - There’s a certain consistency to who I am and what I do, and I think people have finally said, ‘Well, you know, I kinda get her now.’ I’ve actually had people say that to me.
+ - I thought it would be easier to carry just one device for my work and for my personal e-mails than two. I did it for convenience and I now looking back think that it might have been smarter to have those two devices from the very beginning.
+ - I think again we’re way out of balance. We’ve got to rein in what has become almost an article of faith that almost anybody can have a gun anywhere at any time. And I don’t believe that is in the best interest of the vast majority of people.
+ - We acknowledge-now with President Obama-that we have made mistakes in the United States, and we along with other developed countries have contributed most significantly to the problem we face with climate change.
+ - The people of New York took a big chance on me. And I’m well aware of that.
+ - I used to sit on the other end of Pennsylvania Avenue and wonder why the Senate was always going into recess, until in my first year I realized how intense the pressure was.
+ - I think we’ve got to understand the complexity of the world that we are facing and no place is more so than in the Middle East.
+ - India has reduced its dependence on Iranian oil. I know their refineries have stopped asking for orders to purchase Iranian oil.
+ - If we only stopped to listen to them for a few minutes, kids could tell us that we move too fast, for their good and ours.
+ - Public financing would fix campaign donor problems.
+ - Heavens, no! It could get subpoenaed. I can’t write anything. When asked if she had a diary.
+ - Well I think in a marriage you have to be honest and ask yourself, you know, what is my role? What is my responsibility?
+ - I never thought I would end up being the Senator from New York.
+ - One of my goals upon becoming Secretary of State was to take diplomacy out of capitals, out of government offices, into the media, into the streets of countries.
+ - Well, I think, by definition, all power has limits.
+ - As I speak to you today, government censors somewhere are working furiously to erase my words from the records of history. But history itself has already condemned these tactics.
+ - We currently have a system for taking care of sickness. We do not have a system for enhancing and promoting health.
+ - There cannot be true democracy unless women’s voices are heard. There cannot be true democracy unless women are given the opportunity to take responsibility for their own lives.
+ - If you wish to fault the administration, it is that we didn’t have a clear picture and we probably didn’t do as clear a job explaining that we did not have a clear picture until days later...
+ - I feel like I have had the most amazing life in my public service.
+ - Does it make any sense at all that the chair of a national party would want fewer voters to see our candidates?
+ - I took the unprecedented step of asking that the State Department make all my work-related emails public for everyone to see.
+ - We’re either going to be dependent on dirty oil from the Gulf or dirty oil from Canada.
+ - Clearly, we need more incentives to quickly increase the use of wind and solar power; they will cut costs, increase our energy independence and our national security and reduce the consequences of global warming.
+ - For everyone here in Ohio and across America who’s been ever been counted out but refused to be knocked out, for everyone who has stumbled but stood right back up, and for everyone who works hard and never gives up – this one is for you.
+ - I’ve never understood multi-party democracy. It’s hard enough with two parties.
+ - You can’t just give a speech and expect people to fall down and agree with you.
+ - While we are each free to believe whatever we choose, we cannot do whatever we choose.
+ - At the end of the day, you know, love does not happen between two perfect people as much as we would wish.
+ - I also believe that we have an extraordinary opportunity for the United States and European Union to lead the world in developing and implementing new and more efficient technologies – smart electrical grids and electrical vehicles.
+ - We need a wide variety of ways for voters to get a good look at our candidates.
+ - Marriage equality is the law of the land. Officials should be held to their duty to uphold the law-end of story.
+ - I don’t have any comment on who the people of Russia choose to be their leaders.
+ - The last time I actually drove a car myself was 1996.
+ - In my family, we were Americans, we were Republicans and we were Methodists.
+ - I’m not running for some Americans but for all Americans.
+ - The Russians and the Chinese have been absolutely clear they don’t want to see Iran with a nuclear weapon.
+ - The American taxpayer should not be treated more shabbily than debtors from other nations and we should be encouraging other nations to help rebuild Iraq’s economy.
+ - Countries that will not tax their elite who expect us to come in and help them serve their people are just not going to get the kind of help from us that historically they may have.
+ - Democracies have to be careful that they do not become so process-driven.
+ - Acting alone, minorities can never achieve the majorities necessary for political change.
+ - I think that you can disagree with people and debate over their positions with issues without engaging in the politics of personal destruction.
+ - I’ve often thought that when something is hard for you, whether it’s going to law school or anything else that challenges you, that’s probably what you should do.
+ - Historically, it is important to try to understand your adversary in order to figure out how they are thinking, what they will be doing, how they will react.
+ - Every president, if you watch what they look like when they come into office, you can see their hair turn white because it’s such a hard job.
+ - I also learned that a person was not necessarily bad just because you did not agree with him, and that if you believed in something, you had better be prepared to defend it.
+ - Everything that happens in America happens in New York.
+ - People should and do trust me.
+ - I, for one, respect those who believe with all their hearts and conscience that there are no circumstances under which any abortion should ever be available.
+ - What I found when I became Secretary of State was a lot of doubts and a lot of concerns and fears from friends, allies, around the world.
+ - There cannot be true democracy unless all citizens are able to participate fully in the lives of their country.
+ - I’m not going to put my lot in with economists.
+ - I know that so many of us hoped that, by electing our first black president, we had turned the page on this chapter in our history. But, despite our best efforts and our highest hopes, America’s long struggle with race is far from finished.
+ - This is a moment in history where it is almost hard to catch your breath.
+ - We are here to advance the cause of women and to advance the cause of democracy and to make it absolutely clear that the two are inseparable.
+ - If the people of the Middle East are not sure what democracy means, let them look to Israel.
+ - We’re going to fight for every vote in every state. We’re going to make a real difference in people’s lives.
+ - I have the experience we need to make the changes we want and I think that’s a winning case.
+ - We Democrats believe in an America where no matter who you are or where you come from, you should have an equal shot at success.
+ - As love and joy flood our streets today, it is hard to imagine how anyone could deny the full protection of our laws to any of our fellow Americans – but there are those who would.
+ - The most important thing that each of us can do is to try even harder to see the world through our neighbor’s eyes.
+ - We’ll hold out our hand; they have to unclench their fist.
+ - I cannot imagine anyone being more of an outsider than the first woman president.
+ - I won the youth vote in Massachusetts and in California. I did very well with it in Ohio.
+ - I don’t think we should be about the business of denying voters in Michigan and Florida the right to be heard.
+ - The safe haven that al-Qaida has found in Pakistan is very troubling.
+ - On some campuses, change is effected through nonviolent or even violent means.
+ - For centuries, New York has served as the gateway for millions of people from all over the world in search of the American dream. It only makes sense that it would now serve as a gateway for the world’s greatest athletes.
+ - We cannot eradicate violence if we do not build strong, inclusive communities.
+ - I’m in charge of the State Department’s 60,000-plus people all over the world, 275 posts.
+ - You’re going to get a lot of advice coming from many different quarters to do things that don’t feel right to you, that don’t reflect who you are and what your values are. So you have to be grounded in who you are and what you believe.
+ - I need people to know that there is a group of people who are part of the leadership of the DNC, and I will make damn sure as a vice chair, and so will others, that we do everything humanly possible to have a level playing field.
+ - I believe that you have to withstand whatever problems come your way. You have to make the decisions that are best for you.
+ - The United States has, unfortunately, been victimized by terrorism going back decades.
+ - I don’t think that strategically it is smart to begin cutting your options when the other side does not move at all.
+ - If you LIKE your email provider, you can KEEP your email provider. Period.
+ - One person’s fashion is another person’s disaster.
+ - I’m not running my campaign for the press. I’m running it for voters. I totally respect the press and what the press has to do.
+ - Egypt has been a partner of the United States over the last 30 years, has been instrumental in keeping the peace in the Middle East between Egypt and Israel, which is a critical accomplishment that has meant so much to so many people.
+ - Every nation has to either be with us, or against us. Those who harbor terrorists, or who finance them, are going to pay a price.
+ - The first step is to take weapons off the streets and to put more police on them.
+ - We are Americans and we have a right to debate and disagree with any administration!
+ - Being gay is not a Western invention. It is a human reality.
+ - There are resources to help and simple steps that parents, preschools, businesses, and communities can take to help our kids succeed, because we’re all in this together, and that’s what the Too Small to Fail Initiative is all about.
+ - Senator Kennedy inspired so many with his decades of service, so I can’t think of a more fitting tribute then working to educate and motivate future generations of citizens and public servants alike.
+ - Hillary Clinton at the end of the day will be a friend of Wall Street.
+ - Several people have told me that one of the most meaningful events they could attend would be something at the White House with their children.
+ - Americans want to have what members of Congress have: guaranteed health coverage.
+ - I have no plans to say or do anything about The Clinton Foundation other than to say how proud I am of it and that I think for the good of the world, its work should continue.
+ - We know in New York we have several million at any one time who are in New York illegally.
+ - I’m not going to have some reporters pawing through our papers. We are the president.
+ - Americans need a champion and I want to be that champion.
+ - Often times when you face such an overwhelming challenge as global climate change, it can be somewhat daunting – it’s kind of like trying to lose weight, which I know something about.
+ - I think that we have to look at ISIS as the leading threat of an international terror network. It cannot be contained, it must be defeated.
+ - It is difficult finding intelligence that is actionable in a lot of these places, but we have to keep trying.
+ - You know, there’s a great saying in Texas – you’ve all heard it – all hat and no cattle. Well, after seven years of George Bush, we need a lot less hat and a lot more cattle.
+ - I don’t think I’ve read any of the books that have been written about me.
+ - I’m going to be pitching Andy Cohen on a new show for Bravo. We can call it ‘Project Pantsuit.’
+ - I have said that I’m not running and I’m having a great time being pres – being a first-term senator.
+ - If we’re going to be successful in taking on the billionaire class, we need a strong national grassroots movement.
+ - No government can love a child, and no policy can substitute for a family’s care. But at the same time, government can either support or undermine families as they cope with moral, social and economic stresses of caring for children.
+ - I’ve never understood the division between so-called realists and so-called idealists.
+ - The nuclear arsenal that Pakistan has, I believe is secure. I think the government and the military have taken adequate steps to protect that.
+ - The truth is that sometimes it is hard even for me to recognize the Hillary Clinton that other people see.
+ - It took a Clinton to clean up after the first Bush, it may take another Clinton to clean up after the second one.
+ - When an army unit returns from service in Iraq or Afghanistan, it barely gets a breather before it begins training for its next deployment.
+ - I’m one of those people who thinks that changing one’s hair is the only part of the body that you can change at will.
+ - I trust voters. Voters decide on whatever basis they think is important to them. I just want them to have a full range of information to make that decision.
+ - Prosperity can’t be just for CEOs and hedge fund managers. Democracy can’t be just for billionaires and corporations. Prosperity and democracy are part of your basic bargain, too.
+ - You cannot have development in today’s world without partnering with the private sector.
+ - It is time to put policy ahead of politics and success ahead of the status quo. It is time for a new strategy to produce what we need: a stable Iraq government that takes over for its own people so our troops can finish their job.
+ - I have been very consistent over the course of my entire life. I have always fought for the same values and principles.
+ - I’ve been really at the highest levels of American political life.
+ - Individual consciences are fine but individual consciences have to be made manifest.
+ - Violence toward women isn’t cultural; it’s criminal.
+ - I meet with people all day long.
+ - Sometimes overturning brutal regimes takes time and costs lives. I wish it weren’t so. I really, really do.
+ - We are at a stage in history in which remolding society is one of the great challenges facing all of us in the West.
+ - I don’t believe that people vote for President based on spouses. I don’t even think they vote much based on vice presidents or any other factor. I think they choose between the two people who are running.
+ - If I want to knock a story off the front page, I just change my hairstyle.
+ - All of us have to recognize that we owe our children more than we have been giving them.
+
+500 quotes

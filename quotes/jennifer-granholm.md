@@ -1,0 +1,85 @@
+ - Sometimes leadership is planting trees under whose shade you’ll never sit.
+ - We cannot wait for the storm to blow over; we must learn to work in the rain.
+ - We honor the dead best by treating the living well.
+ - Often we women are risk averse. I needed the push. Now, more than ever, young women need more seasoned women to provide that encouragement, to take a risk, to go for it. Once a glass ceiling is broken, it stays broken.
+ - Ceremonies are important. But our gratitude has to be more than visits to the troops, and once-a-year Memorial Day ceremonies. We honor the dead best by treating the living well.
+ - America needs to be able to be energy-independent, and the electric vehicle, the battery technology is one way of getting there.
+ - Those who devote their lives to serving our country, children, and neighborhoods are giving back. They have answered the call to serve.
+ - It may be tempting to look back and wring our hands over missed opportunities for change in the preceding decades. But, I’m not interested at looking in the rearview mirror except to learn.
+ - In five years, you’re going to be blown away by the strength and diversity of Michigan’s transformed economy.
+ - There’s only so far you can go before you say enough is enough.
+ - Team Obama continues to dominate new media, spending far more effort and money than Team Romney in targeted online youth outreach.
+ - There’s more technology in your car than there is in your computer. It’s got thousands of parts in it. It’s extremely sophisticated, all that robotics.
+ - I love the protest signs protected by the First Amendment – some of them humorous, some of them passionate, some factual, some entirely incorrect – all of them free ideas.
+ - If you opened up every single potential drilling opportunity in the United States, it would have the effect of lowering gas prices three cents, maybe. And that’s because, of course, oil is traded on a global market.
+ - I certainly never thought I would run for office myself. If someone had suggested it, I would have laughed out loud.
+ - California has a beautiful coastline. It can be a rough coastline. The waves are huge. The rocks are steep. Same thing in Vancouver. It has a beautiful coastline. It’s dramatic.
+ - Republicans are definitely pro-birth – they’ll do everything they can to make sure that that baby comes out, regardless of how it got in, but are they pro-life? Can you be pro-life and vote to cut funding that supports the life of a child?
+ - To compete in a global economy, our students must continue their education beyond high school. To make this expectation a reality, we must give students the tools they need to succeed, including the opportunity to take a college entrance exam.
+ - I’m honestly perplexed about the distinction represented by the cervical wall. On one side, people should be prosecuted if they do anything to harm the fetus, but once on the outside, sorry kid, whatever happens happens. You’re on your own.
+ - If the person at the wheel refuses to ask for directions, it is time for a new driver.
+ - Less than a year after loading the company up with debt, Romney and Bain gave themselves bonuses four times bigger than the $8 million they had put into the deal.
+ - If you don’t have an auto industry, you will not be secure as a nation because you won’t have a backbone like manufacturing to be able to put people to work in producing the means to you keep you secure.
+ - With Michigan’s economic future on the line, we can’t afford to have our 500 local school districts marching in different directions. Instead, we need a high standards, mandatory curriculum to get all our students on the road to higher education and a good paying job.
+ - If you are going to be progressive, then you have to make progress. And that sometimes depends on breaking a few legs.
+ - I am so proud of Michigan’s citizens for the kindness and generosity they have shown in assisting in this endeavor. It is truly heartwarming to see the compassion shown for those in need.
+ - Today in America we are no more ‘post-racial’ than we are ‘post-partisan.’ We have a long way to go.
+ - In Congress, while the House’s proposed defense budget calls for significant increases, it also cuts 11 billion dollars from veterans spending – including healthcare and disability pay. Be clear: we can’t equate spending on veterans with spending on defense.
+ - I have not made any suggestions about climate change. This is more about blending or shifting the conversation about the environment versus the economy. It’s just such an old, outdated conversation.
+ - I urge you to be bold. Life isn’t changed from the balcony. Get onto the floor and dance, dance, dance.
+ - Studies have shown that since women have had access to the pill and family planning measures, they have made huge gains in both wages and in careers that were dominated by men.
+ - Those who purify your water, inspect your meat, and test your kids toys, as well as a huge number of nurses, teachers, and our soldiers, are public employees. The firefighters who don’t hesitate to rush toward danger while you run away from it – they are all public employees.
+ - Don’t mistake niceness for weakness.
+ - What a tremendous act of generosity on the part of the donors who made this possible and what a tremendous opportunity for all these children in Kalamazoo public schools who can now go to college and chase their dreams.
+ - Voter suppression laws, overzealous filibuster use, you name it – the Republicans use every tactic they can to stop our democracy from actually selecting the person with the most support.
+ - Concentrating wealth in the hands of the few and deregulating financial institutions and practices lead to speculative bubbles that eventually burst – and that brings the whole country down.
+ - Every single country that has an auto industry is stepping forward to help that auto industry. Why wouldn’t we help this industry too, because it needs 3.5 million jobs.
+ - We’re on the cusp, on the brink, of enormous change in this country.
+ - Do we want in this nation to lose the backbone of manufacturing in this country? Do we want to be a nation that doesn’t want to manufacture anything?
+ - We need, first of all, for there to be accountability, for there to be somebody who is responsible for enforcing standards and holding people’s feet to the fire.
+ - Thank you for the opportunity for the Democratic Party and progressives to reclaim the votes of the sane citizens of these United States.
+ - The most powerful recent innovation in government is when states aggressively use community colleges for retraining. In Michigan, where large numbers of workers were displaced from the manufacturing industry, we created a wildly successful program: No Worker Left Behind.
+ - We are taking the steps necessary to be ready to send whatever assistance is requested of us, and we are preparing to receive citizens who seek refuge in our state.
+ - If you are tired of partisanship over patriotism, you need to vote for a change in direction.
+ - I have a problem with Mitt Romney. And it’s big problem – one that extends beyond our ideological differences. My big concern is that Mitt Romney wants to become president for no other reason than because there’s a possibility he can win.
+ - There is a gentleness in Michigan that you just can’t replicate.
+ - I understand that Republicans-running-against-Obamacare-in-order-to-save-Medicare is a clever jujitsu. But how long will they play out that argument before they get back to the economy?
+ - The Clinton administration brought 65 cases from 1995 to 2000 before the World Trade Organization. The Bush administration has brought twelve. Twelve cases. They haven’t even been able to stand up for our jobs.
+ - Men and women have served and died to protect American democracy, but their sacrifice will be for naught if that democracy dies from the poison the Supreme Court has injected into our political organs.
+ - So we just hope that all of these governors who are grappling will be able to provide the basic services to our citizens and not have to cut things that really are painful.
+ - Caring for veterans shouldn’t be a partisan issue. It should an American one.
+ - Bill Ford is somebody who wants to move American auto industry, to lead the nation in making us independent of foreign oil, of making the green vehicle.
+ - For most of the 20th century, we didn’t just enjoy economic success in Michigan, we defined it. Our innovators and entrepreneurs created the world’s most productive companies, and our unions made sure that productivity led to broad middle class prosperity.
+ - I’ve, we have in this state, like many other states, we’re experiencing an enormous budget deficit that we’re trying to grapple with. But we will have progress despite the deficits.
+ - A number of us had conversations with the Kerry campaign about what he was going to say about CAFE. What he told us was that he did not want to sacrifice jobs and that he wanted to work with the auto industry to achieve that goal.
+ - We aren’t leveraging this great economic engine, the strongest economy in the world. And yet we have this totally weak response. We import $500 billion a year more in products than we export.
+ - When you get to the extremes there is, sometimes, just the need where you have to stand up.
+ - We went to a small lake, Bass Lake. It was beautiful. It was perfectly still when we got there in the morning. The fog was lifting off the water. It was just magical. And we did catch some fish, 13 fish.
+ - I say Democrats should not be afraid to talk about the morality of life, of caring for children who are born. It seems the Republican obsession with being pro-life lasts about nine months. After that, it’s each baby for herself.
+ - California is beautiful to look at, but you can’t be a part of it like you can in Michigan.
+ - The Kerry campaign was a difficult one to be involved with, it is a real juggling act to set the tone and pace of these things accurately.
+ - I actually prepared Vice President Biden for his debate in the last election. I played Sarah Palin. It’s a little tough debating a woman.
+ - Our great history has been that people came to Michigan because you didn’t have to have a college degree to get a good-paying job. Consequently, we have got a larger number of our population that right now are facing outsourcing, et cetera, without higher or advanced degrees.
+ - There is no reason why, with the huge potential for market out there in the world for fuel-efficient vehicles, we can’t be the cutting edge for change.
+ - Every day in America, African Americans are reminded of their race in ways large and small. Every day.
+ - Bain also asked Kansas City for a $3 million tax break. The Bain executives were taking home $36 million in borrowed funds and were asking Kansas City to forfeit $3 million in public money for police officers, roads and schools? More free stuff!
+ - We need to be celebrating those who serve us rather than mocking them for the purpose of getting on TV and selling some books.
+ - We’ve got this proposal which has been languishing in the legislature, the Water Legacy Act, which is derived from a Republican task force on protecting the Great Lakes. Yet nothing has been done on it.
+ - We need to continue to make the case that Michigan is where you ought to be.
+ - As governor, when I visited our troops in Kuwait and Iraq, I served them Thanksgiving dinner. It was a small gesture compared to their sacrifice.
+ - That’s one of the most exciting things about Michigan’s future. We need to, we must capitalize on our alternative-energy vehicles that we can produce right here.
+ - As a state we are so uniquely positioned in so many ways. Our geography, our placement in the country, and our history positions us to be the state that propels energy efficiency as an industry.
+ - The question is what will Mitt Romney do as president if his policy is simply to be hands off and let the government be made so small it can be drowned in a bathtub. In the 21st century global economy, no state alone has the ability to compete against China.
+ - Public service used to be the highest of callings, until people like Madame Voldemort vilified it.
+ - We have gasoline at $2 a gallon. If that doesn’t drive demand, I don’t know what will.
+ - With respect to the environment in our state and our state’s future – in addition to water which is very important here – I think it is crucial for him to make a sincere commitment to energy efficiency, fuel efficiency, by helping us to produce those cars of the future.
+ - We can’t equate spending on veterans with spending on defense. Our strength is not just in the size of our defense budget, but in the size of our hearts, in the size of our gratitude for their sacrifice. And that’s not just measured in words or gestures.
+ - It’s that Romney is taking advantage of the government’s ‘free stuff,’ too, and has been profiting from it handsomely for a long, long time – even as he rails about the ‘free stuff’ that the government provides other people.
+ - The civil unrest of recent days must come to an end, and the healing process must begin for the future of the community. We will provide assistance both in ending the violence and enabling the healing process in Benton Harbor.
+ - When I was fresh out of law school, I had a burning desire to do something important, to have an impact in some way, but I didn’t know what it was.
+ - Obviously we want to keep the jobs we’ve got.
+ - This is the place where anybody – like an African American kid raised by a single mom – can be president.
+ - I really want to be governor when I have a partner in the White House.
+ - I was approached by friends who encouraged me to run for an open seat – attorney general of Michigan. It was a big risk.
+
+83 quotes

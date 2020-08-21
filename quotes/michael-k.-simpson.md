@@ -1,0 +1,33 @@
+ - A fresh pair of eyes can often find problems.
+ - Millions of Americans, adults and children, lack access to dental care.
+ - For small businesses, regulatory burdens can be overwhelming.
+ - Estimates show that small businesses contribute 60-80 percent of the net new jobs annually.
+ - While most Americans have access to the best oral health care in the world, low-income children suffer disproportionately from oral disease.
+ - I realize the answer is not to create wilderness and walk away.
+ - In the event of the death of a current or former President, like the recent death of President Ronald Reagan, the flag should be flown at half-staff for thirty days from the day of the death.
+ - I have spent time discussing the American political system and current events in Taiwan with the junior diplomats, and they have repeatedly expressed their country’s desire to avoid confrontation with China.
+ - While American taxes pay for much of the research and development that goes into creating the new, life-saving drugs, American consumers continue to subsidize the cost of the drugs for consumers across the world.
+ - Japan continues to work closely with the United States on the issue of the North Korean nuclear crisis and has played an important and constructive role in the Six-Party talks.
+ - The original PATRIOT Act greatly increased our nation’s ability to share intelligence information, made better use of technology, and provided terrorism investigators tools that have long been available in cases involving illegal drugs and organized crime.
+ - We must take action now, by permitting re-importation, to ensure that health care and prescription drugs remain accessible and affordable for everyone.
+ - The solution is to first create an integrated economic development and recreation plan that addresses the needs of the people who live and recreate in central Idaho.
+ - As I travel around Idaho and visit with seniors, I hear almost universal concern about the rising cost of health care, particularly the cost of prescription drugs.
+ - While nothing is certain, I firmly believe our nation is on the verge of a nuclear energy renaissance.
+ - Finally, the House is working to require a comprehensive federal review of IRS regulations with a follow-up report to Congress on possible actions to reduce the tax paperwork burden imposed on small businesses.
+ - The reason to split a court is for administrative purposes, and in the past there has been much debate about the liberal decisions of the Ninth Circuit and so forth; and people have wanted to get out of the Ninth Circuit for that reason.
+ - For a variety of reasons, I believe, the time is right to resolve many of the long standing and thorny land use, recreation, and wilderness designation issues in Central Idaho.
+ - There is no disputing the fact that American consumers pay 30 to 300 percent more for the same prescription drugs as our counterparts in Canada, Europe, and the rest of the world.
+ - The goal of re-importation is to provide American consumers with access to drugs at the world market price – not the inflated price now paid only by Americans.
+ - I have long believed these types of collaborative agreements are a far better approach to federal land management than the contentious battles that too often sidetrack proper resource management.
+ - It’s crucial to keep in mind that the hundreds of millions of dollars now spent on prescription drug advertisements are ultimately paid for by consumers in the form a higher drug prices.
+ - Ultimately, China may use force to push for unification with Taiwan, a scenario we all must work to prevent.
+ - Further, Japan is the second largest donor in Iraq after the United States, with over $5 billion dollars for humanitarian, infrastructure and reconstruction projects.
+ - Your political reputation affects how likely allies are to trust you, and what kind of deals they’ll offer at the negotiating table. There’s also some emotional response in there, so factions do bear grudges. Just like the real thing.
+ - History has shown us that, on extraordinarily rare occasions, it becomes necessary for the federal government to intervene on behalf of individuals whose 14th Amendment rights to legal due process and equal protection may be violated by a state.
+ - I am involved with politics today because of the inspiration I received from Ronald Reagan.
+ - Recent demonstration projects have shown that with some Federal support, a little funding can go a long way toward ensuring that low-income children have access to good oral health care.
+ - That is why I strongly believe we should working in Congress to make America a better place to run a business by reducing the costly burdens of bureaucracy and red tape.
+ - We all read news stories about the difficulties and tensions that the United States has with our allies and even with coalition partners in Iraq, but we rarely read about the good news.
+ - Players have a great deal of flexibility when conducting diplomatic relations with their allies.
+
+31 quotes

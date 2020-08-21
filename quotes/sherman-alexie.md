@@ -1,0 +1,142 @@
+ - Poverty doesn’t give you strength or teach you lessons about perseverance. No, poverty only teaches you how to be poor.
+ - He loved her, of course, but better than that, he chose her, day after day. Choice: that was the thing.
+ - Life is a constant struggle between being an individual and being a member of the community.
+ - Don’t live up to your stereotypes.
+ - Listen you have to read a book three times before you know it.
+ - Books and beer are the best and worst defense.
+ - If you care about something enough, it’s going to make you cry. But you have to use it. Use your tears. Use your pain. Use your fear. Get mad. Arnold, get mad.
+ - The ordinary can be like medicine.
+ - I learned how to stop crying. I learned how to hide inside of myself. I learned how to be somebody else. I learned how to be cold and numb.
+ - Nervous means you want to play. Scared means you don’t want to play.
+ - Do you know why the Indian rain dances always worked? Because the Indians would keep dancing until it rained.
+ - When you resort to violence to prove a point, you’ve just experienced a profound failure of imagination.
+ - You want the good life? You live where white people live, you go to school where white people go to school, and you shop where white people shop.
+ - That’s the whole point of life, you know? To meet new people.
+ - Read. Read 1000 pages for every 1 page that you write.
+ - Nostalgia is always doomed and dooming.
+ - I grabbed my book and opened it up. I wanted to smell it. Heck, I wanted to kiss it. Yes, kiss it. That’s right, I am a book kisser. Maybe that’s kind of perverted or maybe it’s just romantic and highly intelligent.
+ - Is revenge a circle inside of a circle inside of a circle?
+ - I don’t want long hair, I don’t want short hair, I don’t want hair at all, and I don’t want to be a girl or a boy. I want to be a yellow and orange leaf some little kid picks up and pastes in his scrapbook.
+ - He made me realize that hard work – that the act of finishing, of completing, of accomplishing a task – is joyous.
+ - When it comes to death, we know that laughter and tears are pretty much the same thing.
+ - The dream he needed most was the dream that frightened him more.
+ - All I owe the world is my art.
+ - I’m a method writer. In order to write about the emotion, I have to experience it. I get physically tired and exhausted, devoting hours and hours and hours to it.
+ - Everybody likes to have a place to think, to meditate, to eat a burrito...
+ - The world, even the smallest parts of it, is filled with things you don’t know.
+ - If you let people into your life a little bit, they can be pretty damn amazing.
+ - We’re all travelling heavy with illusions.
+ - I write in blood because I remember what it felt like to bleed.
+ - Funny how a little politeness can change people’s minds.
+ - We Indians really should be better liars, considering how often we’ve been lied to.
+ - Pain is never added to pain. It multiplies.
+ - Humor was an antiseptic that cleaned the deepest of personal wounds.
+ - I used to sleep with my books in piles all over my bed and sometimes they were the only thing keeping me warm and always the only thing keeping me alive. Books are the best and worst defense.
+ - I grew up in a storytelling culture, a tribal culture, but also in an American storytelling culture.
+ - We all have to find our own ways to say good-bye.
+ - Most of my heroes are just decent people. Decency is rare and underrated.
+ - My only purpose is to teach children to rebel against authority figures.
+ - When anybody, no matter how old they are, loses a parent, I think it hurts the same as if you were only five years old, you know? I think all of us are always five years old in the presence and absence of our parents.
+ - If one reads enough books one has a fighting chance. Or better, one’s chances of survival increase with each book one reads.
+ - I think I was born with a suitcase.
+ - I don’t know what any individual should do about crossing her own borders. I only know that I live a happier, more adventurous life, by crossing borders.
+ - She wanted to be buried in a coffin filled with used paperbacks.
+ - There isn’t a lot of poverty literature in the young-adult world. And I don’t know why that is, but I think certainly I felt a gap.
+ - At the halfway point of any drunken night, there is a moment when an Indian realizes he cannot turn back toward tradition and that he has no map to guide him toward the future.
+ - We all know the Indians were colonized by the Europeans, but every colonized Indian has been colonized by the Indian reaction to colonization.
+ - Well, as a native, as a colonized people you do live in the in between. The thing is I’m native. But necessarily because I’m a member of the country, I’m also a White American.
+ - Estranged from the tribe that gives no protection, What happens to the soul that hates its reflection?
+ - Also because I’m ambiguously ethnic looking, you know, I come to New York and I can be anything. People generally think I’m half of whatever they are.
+ - The people who loved me when I was seven years old love my books, and the people who didn’t like me when I was seven years old don’t like my books.
+ - If I wasn’t writing poems I’d be washing my hands all the time.
+ - I recognize now that the conditions that Indians are living in are the conditions that poor people everywhere are living in.
+ - I felt so conflicted about having fled the rez as a kid that I created a whole literary career that left me there.
+ - He wanted the songs, the stories, to save everybody.
+ - If you’re good at it, and you love it, and it helps you navigate the river of the world, then it can’t be wrong.
+ - And believe me, a good piece of chicken can make anybody believe in the existence of God.
+ - Every movie is a road movie. Every novel is a mystery. Every tortilla chip is sacred.
+ - I guess a witness is all I am. I think as a writer, you’re pretty removed. Writing is a very selfish, individualistic pursuit. So in that sense I’m a witness because I’m not participating.
+ - If you teach kids how to tell stories, they have a better chance at everything.
+ - I ain’t interested in the truth. I’m interested in the way things should be.
+ - I’ve learned that the worst thing a parent can do is ignore their children.
+ - In the middle of a crazy and drunk life, you have to hang onto the good and sober moments tightly.
+ - I suddenly understood that if every moment of a book should be taken seriously, then every moment of a life should be taken seriously as well.
+ - Do you understand how amazing it is to hear that from an adult? Do you know how amazing it is to hear that from anybody? It’s one of the simplest sentences in the world, just four words, but they’re the four hugest words in the world when they’re put together. You can do it.
+ - It’s not oil that runs the world, it’s shame.
+ - I think the world is a series of broken dams and floods, and my cartoons are tiny little lifeboats.
+ - My school and my tribe are so poor and sad that we have to study from the same dang books our parents studied from. That is absolutely the saddest thing in the world.
+ - Somebody dies and people eat your food. Funny how that works.
+ - One play can change your momentum forever.
+ - That’s right, I am a book kisser.
+ - I think all of us are always five years old in the presence and absence of our parents.
+ - Your past is a skeleton walking one step behind you, and your future is a a skeleton walking one step in front of you. Maybe you don’t wear a watch, but your skeletons do, and they always know what time it is.
+ - I’ve come to the point in my life where I encourage young Native Americans to become much more selfish about their personal needs and wants.
+ - I’m quite aware of my differences. I wouldn’t classify them as weird.
+ - Let us now celebrate the literary allusion.
+ - When you’re depressed, you know, it’s like the world has ended. Even getting out of bed takes the most massive amount of effort. But when you’re manic, oh, it’s so addicting. You know, I have finished novels in two weeks in manic stages.
+ - I know a lot about being white – because I have to, I live in the white world. A white person doesn’t live in the Indian world. I have to be white every day.
+ - I look more Indian when I’m serious.
+ - I was studying the sky like I was an astronomer, except it was daytime and I didn’t have a telescope, so I was just an idiot.
+ - If I were a doctor nobody would be inviting me to talk to reservations. I’d be a different person. Writers can influence more people.
+ - Seems like the cold would never go away and winter would be like the bottom of my feet but then it is gone in one night and in its place comes the sun so large and laughable.
+ - If it’s fiction, then it better be true.
+ - When a glass sits on a table here, people don’t wonder if it’s half filled or half empty. They just hope it’s good beer.
+ - I’m a poet who can whine in meter.
+ - It was so quiet, a reservation kind of quiet, where you can hear somebody drinking whiskey on the rocks three miles away.
+ - Is God a man or a woman? God could be an armadillo. I have no idea.
+ - What kind of life can you have in a house without books?
+ - My father was sleepless most of his life. So by the age of five, I was awake with him all night long, watching bad television or we’d lie in the same bed, and I’d read my comic books while he read his latest spy or mystery novel.
+ - Facebook and Twitter and these other social sites bring every, I mean, 140 characters. I mean, I’m on Twitter and I have fun. But I don’t think anybody learns anything about me as a person.
+ - My wife was the first romantic partner who understood both American and native parts of me – not so much the positive stuff, but the damage.
+ - You know, people speak in poetry all the time. They just don’t realize it.
+ - But we danced, under wigs and between unfinished walls, through broken promises and around empty cupboards.
+ - I remember when people used to think I was smart. I remember when people used to think my brain was useful. Damaged by water, sure. And ready to seizure at any moment. But still useful, and maybe even a little bit beautiful and sacred and magical.
+ - I think a lot of Indians want Indian artists to be cultural cheerleaders rather than cultural investigators.
+ - And then I realized that my sister was trying to LIVE a romance novel. Man, that takes courage and imagination. Well, it also took some degree of mental illness, too, but I was suddenly happy for her. And a little scared. Well, a lot scared.
+ - Sometimes it’s called passing out and sometimes it’s just pretending to be asleep.
+ - Spiritual matters should be private.
+ - Summer coming like a car from down the highway.
+ - I wanted to do a weird book and reestablish my independent, small-press roots.
+ - Like any good shaman, professional baseball player, or politician, my mother always answered questions with questions.
+ - My father is an amazing man.
+ - My father was always depressed. When he was home and sober, he was mostly in his room.
+ - Certainly I’m angry at the way Indians have been treated and continue to be treated. But I don’t think it’s a helpless emotion.
+ - I didn’t know what to say to her. What do you say to people when they ask how it feels to lose everything? When every planet in your solar system has exploded?
+ - I was a controversial figure on my reservation when I was a kid. I was mouthy and opinionated and arrogant. Nothing has changed.
+ - When you construct a mix tape, the first song you come out with has to be a barnburner.
+ - Well, I think the worst part about tribalism is its tendency to fundamentalize, and if I can fight fundamentalism in any of its forms I’m happy.
+ - She was in pain and I loved her, sort of loved her, I guess, so I kind of had to love her pain, too.
+ - I thought I’d been condescended to as an Indian – that was nothing compared to the condescension for writing young adult literature.
+ - My career means, if you’re a non-Indian writing about Indians, at least there’s one Indian in your rearview mirror.
+ - That’s one more thing people don’t know about Indians: We love to talk dirty.
+ - He looked into the crowd for approval, saw his mother and father. He waved and they waved back. Smiles and Indian teeth. They were both drunk. Everything familiar and welcome. Everything beautiful.
+ - Those Montana Indians were so tough that white people were scared of them. Can you imagine a place where white people are scared of Indians and not the other way around? That’s Montana.
+ - My name is Sherman J. Alexie Jr., and I am an insomniac.
+ - If one reads enough books, one has a fighting chance.
+ - We only know how to lose and be lost.
+ - A really good stand-up comic is a poet; it’s about the use of language. It can be really poetic. And I like politically conscious comedy.
+ - When I had no money, and a great book came out, I couldn’t get it. I had to wait. I love the idea that I have hardcover books here and at home that I haven’t read yet. That’s how I view that I’m rich. I have hardcover books I may never read.
+ - White Americans have a short memory.
+ - They put me in a holding cell with a black kid and a white kid and a Chinese kid. We’re the United Nations of juvenile delinquents.
+ - I don’t have to participate in another culture’s ceremonies in order to respect that culture.
+ - Only in rock music and the literary world you see so many ugly white guys with beautiful women. That says a lot about the women, their character. They’re attracted to more than surface.
+ - There have been players with Indian heritage, but there hasn’t been a Native-American professional basketball player who became a regular for all sorts of social and political reasons.
+ - Writing is a lonely business.
+ - The form I most enjoy writing is the sonnet or sonnet-like forms, where you have a – you know, three stanzas or two stanzas that lead into a concluding couplet.
+ - I feel like a carton of eggs holding up an elephant.
+ - I had the feeling I was going to be successful, and I didn’t want to be another disappointing Indian.
+ - We are taught to take the bread into our bodies as proof of Jesus’s body.
+ - I hear poetry whenever I turn on the radio. Eminem is a better poet than just about everybody. He’s better than Billy Collins; he’s better than Richard Wilbur; he’s better than me.
+ - I’m not a pacifist by any measure, but I’m also fully aware that the reasons I might go to war could be very dubious.
+ - Unlike landed white men, she didn’t need to climb mountains to experience mystic panic. All she needed was to set her alarm dock for the next morning, wake when it rang, and go to class.
+ - The problem for me with liberals is that we’ve abdicated our moral responsibility to the universe.
+ - When you read a piece of writing that you admire, send a note of thanks to the author.
+ - In order to know somebody through their words, I mean, it has to be an, it has to be a letter, you know? It has to be a long e-mail. It has to be a five-page hand-written letter, you know, it has to be overwhelming and messy and sloppy as humans are.
+ - Every Indian kid has access to MySpace and Facebook. But that doesn’t mean they have access to books and great teachers. This idea about bringing digital tech into schools is great, but once again I’ll say that this is not how people actually learn.
+ - What inspires a poem for me is usually a moment.
+ - In a real-world way, my gifts are very limited in terms of what I can do.
+ - Because I’m an American, I know there’s all sorts of international folks who would gladly kidnap and behead me.
+ - All art is exploitation.
+ - I don’t think the revisionist historians are accurate. I think their agendas are clouded by selfishness and anger and rage.
+
+140 quotes

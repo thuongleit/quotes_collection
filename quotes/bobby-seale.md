@@ -1,0 +1,30 @@
+ - We don’t hate nobody because of their color. We hate oppression!
+ - There is an entire generation of young people who know nothing about how viciously the FBI attacked The Black Panther Party, and why.
+ - We’re hip to the fact that Superman never saved no black people. You got that?
+ - The only solution to pollution is a people’s humane revolution!
+ - Our position was: If you don’t attack us, there won’t be any violence; if you bring violence to us, we will defend ourselves.
+ - I am not a hoodlum. I’m a community organizer.
+ - My father was a master carpenter and builder. Architectural design, engineering design, mechanical design, three-dimensional views, that was my shtick, my forte.
+ - Electoral politics was always an objective of the Black Panther party, so Barack Obama is a part of what we dreamed and struggled and died for.
+ - We jumped into the protest of Vietnam before the Black Panther Party ever started, before the Black Panther Party was even thought of. In fact, it was late 1965 and 1966 that the anti-Vietnam War, anti-draft to the Vietnam War protest started at University of California, Berkeley.
+ - The Black Panther party of Self-Defense is a revolutionary party.
+ - To develop political and economic power in a capitalist society, you need capital.
+ - You don’t fight racism with racism, the best way to fight racism is with solidarity.
+ - We were like heroes, to stand there and observe the police, and the police were scared to move upon us.
+ - A people who have suffered so much for so long at the hands of a racist society must draw the line somewhere.
+ - I still want my right to defend myself. A railroad operation, and you know it, from Nixon on down. they got you running around violating my constitutional rights.
+ - The people have now come to realize that the only way to deal with the oppressor is to deal on our own terms and this was done.
+ - Money is the medium of exchange, and it’s how you make things happen. To say you hate it is some farfetched, idealistic crap.
+ - I’m still a political revolutionary. The fire never went out of me, but perceptions and realizations change.
+ - I think the American Dream should be about a greater progressive legislation that allows for what I call a necessary future world of cooperational humanism.
+ - I have quite a few good friends in Philadelphia who were police officers.
+ - On the one hand, the guns were there to help capture the imagination of the people. But more important, since we knew that you couldn’t observe the police without guns, we took our guns with us to let the police know that we have an equalizer.
+ - We were not talking about the average white person: we was talking about the corporate money rich and the racist jive politicians and the lackeys, as we used to call them, for the government who perpetuate all this exploitation and racism.
+ - I always tried to raise money for the Black Panthers through business schemes.
+ - The first point was we wanted power to determine our own destiny in our own black community. And what we had done is, we wanted to write a program that was straightforward to the people. We didn’t want to give a long dissertation.
+ - But I think people, especially white people, have to come to understand that the language of the ghetto is a language of its own, and as the party- whose members for the most part come from the ghetto- seeks to talk to the people, it must speak the people’s language.
+ - I’d have no trouble being the barbecue kingpin of America. I’d just add it to all the other things I am: jazz musician, carpenter, architect, engineer and revolutionary.
+ - Fox News never calls up Bobby Seale to articulate a stance in opposition to right-wing conservatives. To me, giving the New Black Panthers a platform on Fox is a subtle tactic to scare people.
+ - All I did in Chicago was to exercise my legal right to speak on my own behalf and I was given four years in jail as a result. But I think the most serious injustice perpetrated by the court system in America is the inability of a black man to get a jury of his peers.
+
+28 quotes

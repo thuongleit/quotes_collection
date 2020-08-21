@@ -1,0 +1,24 @@
+ - Tell me I can’t so I can show you I CAN!
+ - Be careful of who and what you let into your space. Not everyone is worthy of your presence.
+ - I’m not competing with anyone, or begging someone to love me. I feel like I’m loved and I deserve to be where I am.
+ - Just be open, life is about a constant journey and I’m very spiritual, but I’m also in touch with what’s going on around me and who I am, and you have to know yourself. So for me, that’s what keeps me going is just being interactive.
+ - I’ve had great people come in my life, meaning not just men, but women, support me and empower me. So that has lifted me to be the woman I am.
+ - If love found me it can surely find you. I ain’t even got one sad tear left in me.
+ - It takes a while to really love yourself.
+ - Although I’m known for my long, colorful locs, I still don’t take my hair too seriously. I experiment a lot, dyeing it and constantly switching styles to grab attention. My hair is one of my best accessories, and changing it helps express who I am.
+ - I’m just happy that I’m able to take care of what I need to take care of, live, and do the thing that I love the most and that is to sing. People want to hear it, buy it, see it, hold it, record it, bootleg it. It’s fine with me as long as it’s good but when it’s bad I’m in trouble!
+ - When you don’t know how beautiful you are, you will always be in search of happiness.
+ - Ledisi means to come here, to bring forth. It’s a Nigerian word and it’s from the Yorubu culture, I believe, and my parents named me, my dad and my mom, and really my dad, and I had no choice in that. That’s my real name and that’s what it means.
+ - So in every sense, from an independent artist to a major label artist, you just have to have great product, great faith and great people, they all go together.
+ - Any success matters to me.
+ - I would just listen to the complaints about what I do instead of celebrating what I do, and that I’m different and in my own lane. It took a while for me to just ignore the doubts.
+ - There’s always a story in music, and it’s expressed through my music.
+ - There ain’t a wrong time or a wrong place to flaunt. If you feel good, then go on and show it off!
+ - I love energy and people; gosh I love people even when they got on my nerves.
+ - I’m very open, I love music and I love people so you need to know what’s going on.
+ - I’m everything I’m made of. So a part of me is made of classical music. I’m grateful for it.
+ - I study a lot of the greats; I study the current people out now and what people are listening to now. I don’t shun anything away; I just check it all out and make my own judgment.
+ - Know the business you’re in for whatever you do, know it and understand how it works so you can be successful.
+ - I love opera so much. I would never go back to doing it, but I love to listen – I’m grateful for it. I studied diction, breathing control, phrasing, why the song means something. You want to bring that across to your listeners.
+
+22 quotes

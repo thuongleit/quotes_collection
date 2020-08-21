@@ -1,0 +1,33 @@
+ - Behind every successful man there’s a lot of unsuccessful years.
+ - The future will either be green or not at all.
+ - I’m worried about the traditional media, but I think the new media is a plus for democracy.
+ - We must have an expansionary vision, one that captures the imagination and diversity of the whole community, one which benefits a nation which has moved beyond the basics of literacy and numeracy and which wants to develop a learning culture.
+ - The overarching factor to me is if we can’t be kind to each other, we won’t be kind to the planet.
+ - Renewable energy is proven technology, the price is dropping, the rest of the world is going that way, that’s where our investment should be going as well.
+ - The pursuit of eternity is no longer the prerogative of the gods – it is the business of us all, here and now.
+ - Exxon, Coca-Cola, BHP Billiton and News Corporation have much more say in organising the global agenda than the planet’s 5 billion mature-age voters without a ballot box.
+ - There’s a presumption that somehow you calculate beforehand whether something is going to be good politically or not. I simply don’t.
+ - We people of the Earth exist because our potential was there in the Big Bang, 13.7 billion years ago, as the universe exploded into being.
+ - One-time Guinness World Record holder for Yo-Yo endurance.
+ - We are all born bonded to nature; that’s why we put depictions of flowers and forests, rather than bulldozers or log piles, on our walls.
+ - Australia must prioritise education spending. It is not a question of whether or not we have the money, it is a question of how we choose to spend it.
+ - I’m a very great non-violent character. I would never resort to violence to change anything.
+ - I didn’t want to be a shock absorber; I wanted to deliver the shock.
+ - The government’s living in its own cloud cuckoo land and it’s a cloud of greenhouse gases.
+ - I am not a conventionally religious man, but in the wilderness I have come closest to finding myself and knowing the universe and accepting God – by which I mean accepting all that I don’t know.
+ - Globally the Greens have arisen like a spontaneous combustion, a reaction to the narrow-minded state-backed exploitation of resources and wealth for a few at the expense of the many.
+ - I will be Green until the day I die, if not for a long time after.
+ - For comprehensive Earth action, an all-of-the-Earth representative democracy is required. That is, a global parliament.
+ - In securing the future of the planet, we secure happiness for ourselves. One of the aims of the Greens is to turn around the tide of pessimism amongst the young people of the world.
+ - I think I could have been quite difficult to fathom as a youngster, this kid who didn’t talk about himself very much.
+ - Real life security and contentment come not from putting a gun in the cupboard, but from taking a role in the world’s future.
+ - I am aware that one should always make room for renewal in politics. A democracy is the healthier for the turnover of the depth of talent there is in its community.
+ - As a Green, my goal is to put a smile on the face of the coming generations.
+ - With a small fraction of the hundreds of billions of dollars spent on the Iraq war, the US and Australia could ensure every starving, sunken-eyed child on the planet could be well fed, have clean water and sanitation and a local school to go to.
+ - The Greens will continue to champion a fairer society rather than simply the economy and to champion the parliament rather than simply the stock exchange .
+ - I’ve always thought, and it gets tested at times, that I have a great faith in the fundamental goodness of human beings.
+ - Seeing the whales off James Price Point, mothers, babies, bull whales, seeing the count, going up into the thousands of these whales, the assurance that they will be ok with a mega port, mega ships and a huge factory ashore, is now clearly proven wrong.
+ - I have never met a person in whom I did not see myself reflected.
+ - The reality is that if we in this rich, lucky quarter of the planet cannot make a stand for the 30 million other species we share this planet with, let alone our own species, then who can?
+
+31 quotes

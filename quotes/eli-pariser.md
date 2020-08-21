@@ -1,0 +1,24 @@
+ - Your filter bubble is your own personal, unique universe of information that you live in online. What’s in your filter bubble depends on who you are, and it depends on what you do. But you don’t decide what gets in – and more importantly, you don’t see what gets edited out.
+ - The Internet is showing us what it thinks we want to see, but not necessarily what we need to see.
+ - By constantly moving the flashlight of your attention to the perimeter of your understanding, you enlarge your sense of the world.
+ - To be a good citizen, it’s important to be able to put yourself in other people’s shoes and see the big picture. If everything you see is rooted in your own identity, that becomes difficult or impossible.
+ - I think it’s easier than ever to hear only what you want to hear. That doesn’t make a good citizen.
+ - Your computer monitor is a kind a one-way mirror, reflecting your own interests while algorithmic observers watch what you click.
+ - A world constructed from the familiar is the world in which there’s nothing to learn.
+ - The algorithms that orchestrate our ads are starting to orchestrate our lives.
+ - We thought that the Internet was going to connect us all together. As a young geek in rural Maine, I got excited about the Internet because it seemed that I could be connected to the world. What it’s looking like increasingly is that the Web is connecting us back to ourselves.
+ - In a broadcast society, there were these gatekeepers, the editors, and they controlled the flows of information. Along came the Internet and it swept them out of the way, and it allowed all of us to connect together, and it was awesome. But that’s not actually what’s happening right now.
+ - We really need the Internet to be that thing that we all dreamed of it being. We need it to connect us all together. We need it to introduce us to new ideas and new people and different perspectives. And it’s not going to do that if it leaves us all isolated in a Web of one.
+ - In the last year, grassroots contributors like us gave more than $300 million to the Kerry campaign and the DNC, and proved that the Party doesn’t need corporate cash to be competitive. Now it’s our Party: we bought it, we own it, and we’re going to take it back.
+ - More voices means less trust in any given voice.
+ - Personalization is based on a bargain. In exchange for the service of filtering, you hand large companies an enormous amount of data about your daily life – much of whic you might not trust your friends with.
+ - It feels great to have your own views reflected back to you, and you feel so right, but actually it’s very dangerous. Because to make good decisions, you need to have a clear view of what all the options are.
+ - We bought it, we own it, and we’re going to take it back.
+ - In a personalized world, important but complex or unpleasant issues are less likely to come to our attention at all.
+ - Democracy actually requires that the whole public be able to see common problems and address them and step outside of their own sort of narrow self-interest to do so.
+ - It’s a civic virtue to be exposed to things that appear to be outside your interest. In a complex world, almost everything affects you – that closes the loop on pecuniary self-interest. Customers are always right, but people aren’t.
+ - Eric Schmidt likes to point out that if you recorded all human communication from the dawn of time to 2003, it takes up about five billion gigabytes of storage space. Now were creating that much data every two days.
+ - There’s the idea that people should be able to control how the information that they’re giving to websites is used and monetized in a more clear and powerful way. That’s something that probably will need government action.
+ - If you only have one shot at writing a headline, there’s a lot of pressure.
+
+22 quotes

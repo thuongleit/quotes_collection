@@ -1,0 +1,67 @@
+ - Let’s kick the tires and light the fires, big daddy.
+ - I love my wife and I know she loves me. We’re best friends. We’re just lucky to have found each other. It takes a lot of work but I just feel very blessed that I found the right person. It’s a very fortunate situation and not everyone has that.
+ - Everything I do is part of my passion.
+ - I say sorry to my wife about five times a day for various reasons.
+ - Marriage has made me a lot happier and I’m deeply in love with my wife, and I thank God for her every day.
+ - I struggle every day with trying to be a better dad, a better husband, better musician, better artist. It consumes me, and I don’t see an end in sight.
+ - There’s an album by Antonio Carlos Jobim – the album with ‘The Girl From Ipanema.’ That’s the most seductive music ever.
+ - I’ve been all over the world. I love New York, I love Paris, San Francisco, so many places. But there’s no place like New Orleans. It’s got the best food. It’s got the best music. It’s got the best people. It’s got the most fun stuff to do.
+ - I’m not trying to be romantic. I think you can tell when people are trying to be sexy onstage. When I was doing ‘All the Way,’ I was really thinking about my wife. People don’t know my personal experience, but they can tell it’s an honest interpretation.
+ - They don’t make you what you are, you do. You are what you choose to be.
+ - Well, my dad was the district attorney of New Orleans for about 30 years.
+ - I just liked the feeling of being on stage.
+ - My dad was the district attorney of New Orleans for about 30 years. And when he opened his campaign headquarters back in the early ’70s, when I was 5 years old, my mother wanted me to play the national anthem. And they got an upright piano on the back of a flatbed truck and I played it.
+ - It is really rare to find someone you really, really love and that you want to spend your life with and all that stuff that goes along with being married. I am one of those lucky people. And I think she feels that way too. So the romantic stuff is easy because you want them to be happy.
+ - My Dad is my hero. He’s 85 now and he is in great health. He is handsome and strong. He has an incredible moral and ethical backbone. I couldn’t have been luckier with my parents.
+ - New Orleans is my essence, my soul, my muse, and I can only dream that one day she will recapture her glory. I will do everything within my power to make that happen and to help in any way I can to ease the suffering of my city, my people!
+ - With imagination, I’ll get there.
+ - I’m really boring, man. Like, I’m really dull. And I think people may think that I have this glamorous, fun lifestyle, but it’s pretty dull. But that’s what I like.
+ - Golf is good, it means I get some fresh air and exercise, take my mind off work and see some of the landscape of the place I’m visiting.
+ - My life is spontaneous and things just kind of happen.
+ - It is jazz music that called me to be a musician and I have always sang the songs that moved me the most.
+ - A lot of the music that you listen to now is because of the things that the Meters did, the Neville Brothers did, and they’re there, the guys who invented those beats that the guys sample today. Such an enormous opportunity.
+ - I’m a huge Freddie Mercury fan. I think he was the end-all. I love his lack of inhibition, his talent, the chances he took. He made mistakes on his records, and he didn’t care.
+ - My mom and I were super tight. I think she really wanted me to be an artist, you know? She used to like to tell people she wanted to be Beethoven’s mother. That was her thing. She wanted to be the mother of this person.
+ - New Orleans is my essence, my soul, my muse...
+ - You know what’s funny? I don’t ever feel the need to escape. I have a strong marriage. I like my life. You hear about these guys having midlife crises – I don’t see that happening to me.
+ - When I did the album for ‘When Harry Met Sally,’ I found myself out there in front of this big band, which I had no idea how to do, and they wiped the floor with me. It’s a very specific skill, and I didn’t know how to do it.
+ - In my life I find that memories of the spirit linger and sweeten long after memories of the brain have faded.
+ - No matter what genre of music you play when you rack up a couple years of experience, you have your own point of view no matter who it is that is coming in front of you whether it’s a pop artist or a country artist. Whoever.
+ - I live in Connecticut, but eventually I’d like to move back to New Orleans. I grew up there; the pace is a bit slower. Plus, I love crawfish and po’boys.
+ - Singers, like Frank Sinatra and myself, we interpret the songs that we like. Not unlike a Shakespearean actor that goes back to the greatest words ever written, we go back to the greatest songs and bring about my interpretation of them.
+ - I have worked with Habitat for Humanity for awhile.
+ - With a tone so rich, I would never be afraid of the dark. Steinway is the only and the best!
+ - I guess play piano, you know, because that’s the thing I started doing when I was a little kid.
+ - There’s some things I can’t write about, just terrible personal tragedies.
+ - You know, things kind of happen organically and, you know, Broadway sort of happened out of a career in performing and – which happened out of practicing piano when I was a kid.
+ - I’ve raised my girls in a sort of genderless fashion. I mean, I’ll take them to get their nails done – I actually love doing that – but I also play ball with them. As a result, my girls are tough and athletic and game for everything.
+ - My dad and mom believed that you do what you have to do in private and don’t make a big deal out of it. Just try to help people as much as you can.
+ - I have no doubt that the government of this great nation will work with its people to lead New Orleans and the Gulf Coast back to an enlightened, proud, safe part of the world.
+ - The whole ‘American Idol’ way of looking at things is the antithesis of what I grew up with. There are a whole lot of kids wanting to be famous now, whereas if I’d even mentioned that word to one of my teachers, I would have got into a whole load of trouble.
+ - I’m not a movie star. People know me, but they don’t necessarily know what they know me for. I get recognised, but it’s not like Justin Bieber. It’s a nice thing, people are cool.
+ - You won’t talk to anybody who breaks lyrics down more thoroughly. It’s just a complete deconstruction, and when you start to rebuild, nobody has the capacity to do it like me. Which is not to say I’m better, it’s just that there’s a unique quality to everyone.
+ - When I’m acting, I’m in a different place, singing is the last thing on my mind, and when I’m on stage, there’s no acting at all involved, not even presentation, it’s just who I am.
+ - I sing because I’ve forgotten how to scream.
+ - I married my best friend. And I listen! Ultimately I’ve been very fortunate – I understand that that doesn’t happen for everybody but it happened for us and we take it very seriously.
+ - I’m able to sometimes express things even more articulately on the piano than I am with singing.
+ - You know, I feel as comfortable in an uncomfortable situation as I do when things are going smoothly.
+ - Safety’s just danger, out of place.
+ - I’d like to move back to New Orleans.
+ - I only tour in short bursts, I’m only ever away from my family and three daughters for a month or two.
+ - If you can say the lyrics almost like a poem and they stand up, that’s a great thing. Some songs have great lyrics and I don’t like the melodies, and vice versa.
+ - I like to jump some rope and swing kettle bells to get my blood pumping. It makes my voice sound better, and it clears my head.
+ - Not everybody gets to record with an orchestra, and not everybody that gets to record with an orchestra gets to write all their own stuff.
+ - I’m sure that there are reasonable people that had some reasonable projections about the future of New Orleans, but none of those could include not trying to rebuild the city and make it better than it was before.
+ - I think a dad has to make his daughter feel that he’s genuinely interested in what she’s going through.
+ - As you work on something, whether it’s a painting or a piece of music, it’s going to evolve. A relationship is like that too.
+ - I do the things I like to do. It’s sort of a bigger version of having more than one hobby.
+ - I used to go to Bourbon Street when I was a kid and there would be club after club after club of people who were around when the music started. I mean these are legendary, maybe not so well known, but legendary musicians.
+ - We would like to get to a point in our society where people really are colorblind and this message would not have to be told anymore. Unfortunately, we’re not there yet.
+ - I mean these people who work on Broadway, in my opinion, are the most gifted of everyone. I mean they really know how to dance. They really know how to act. They really know how to sing. They know how to perform.
+ - Live theater is just an incredibly powerful medium, and I think anyone who goes, whether they know about it or not, if they see something that sort of fits with them, it’s kind of hard to deny that they had a good time.
+ - Life is really like that: there are certain things that are wonderful and certain things that are not so wonderful and what you are going to do about it. With grace and with dignity, move through them. Deal with them.
+ - You have to read scripts and audition and develop relationships. It takes a long time to develop a body of work but over the last 25 years I guess I’ve done that many movies. In hindsight it may seem effortless, but there’s a lot of work that goes into it.
+ - I get terrible reviews everywhere I go.
+ - I just liked the feeling of being on stage. My parents weren’t pushing me, they didn’t have to, I was obsessed.
+
+65 quotes

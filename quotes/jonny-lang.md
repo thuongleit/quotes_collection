@@ -1,0 +1,54 @@
+ - I feel so blessed, and God has been so good to me.
+ - I truly loved you, but now I’m walking away.
+ - I love all kinds of different music.
+ - I think my favorite thing is the mystery of life – it makes you feel that much better about accomplishing something.
+ - I don’t want to sound arrogant or anything, but I just always knew that my career would be playing music.
+ - I have way too many songs that have music but don’t have lyrics.
+ - My passion is for playing music and although everyone needs a break sometimes just to keep things interesting and fresh, there’s no way I would ever give that up.
+ - My parents had a huge pile of records – vinyl! – that I loved, especially the Motown stuff, Steely Dan, Stevie Wonder, Otis Redding.
+ - Sometimes I’ll get a burst when I write lyrics, it usually happens in 20 minutes and I’ll write the whole song, and that’s really the only way it feels comfortable.
+ - With the style of music that I do, I don’t think it’s at the top of their agenda to push me into doing any compromising material.
+ - My dad was good friends with the Bad Medicine Blues Band – one of the only blues bands in Fargo, as you can imagine! He took me out to see them play when I was 12 years old and I was really inspired by their guitar player, Ted Larsen.
+ - If you get raised up having everything you want and then get put out in the world and try to live your own life, you’ve never had anything to train you how to live.
+ - Yeah, but Jesus is the most important thing to me and I want to be bold about it.
+ - My dad used to play drums in a country band, and my mom is an incredible singer.
+ - Right, yeah, you know, my favorite thing just globally about music is just hopefully I’m able to be, you know, blessing the people in any way that I can.
+ - Yeah, touring can get rough some times and draining, but I always have to pinch myself and realize that I’m doing what I love.
+ - I’ve been getting into different gospel artists; Aretha Franklin is someone I’ve been listening to a lot of.
+ - During a big rock show, you can flub a few things and nobody will hear it, because it gets buried under everything else.
+ - When you get just that right audience and just that right sound on stage and you can just sit back and kinda just let it happen and it’s not really any work. I love those moments. Nothing can beat that for me.
+ - Well, people who are blues purist types are usually the most vocal and the ones that pop up on the websites.
+ - When I began my career, I was constantly referred to as the kid who could play the blues.
+ - I see a lot of parents now who are really supporting their kids playing music.
+ - I definitely have a firm, fixed idea of what compromise is for me.
+ - I think in the future I will end up doing a gospel album.
+ - I’m glad I’ve learned what I’ve learned when I learned it.
+ - I’ve probably gone a month or two without playing guitar, just because I’ve gotten so burnt on it touring all year or whatever.
+ - I think you have to know exactly what you want. Whether you want to be a guitar player or a musician, you have to be really focused on it if you really want to do it.
+ - I think I’ve just gotten better at learning how to write a song.
+ - I think I’m more influenced, just in general, not by blues artists, but more by stuff from Curtis Mayfield, Stevie Wonder. Stevie Wonder is probably my biggest musical influence of all. And Donny Hathaway.
+ - Some of my influences are black gospel artists so I definitely want to do a soul-gospel type thing.
+ - I always knew I wanted to be a musician.
+ - And as I got older and played more, people began to forget about my age and took the music more seriously.
+ - Who I am musically I hope will just keep changing and changing.
+ - I’m glad I didn’t know certain things earlier, because then it wouldn’t be any fun.
+ - It seemed at first that everybody was more concerned with my age.
+ - Cause I enjoy both, I enjoy recording and playing live, but yeah, the rush of playing live is really something.
+ - You know, being able to, in my mind, have a song that you know doesn’t really have any loose ends or you know, extra fat in it, so to speak.
+ - I wanted to have something that I was proud of and that I knew people would enjoy.
+ - Probably my favorite artists to listen to James Taylor, Stevie Wonder – I haven’t gone back in a really long time and really listened to them – my first guitar influences. It’s been awhile since I revisited that.
+ - I’m not a fast, stream-of-consciousness lyricist at all – I know some guys who are, and if there is one skill I wish I had, it’s that.
+ - Right now I really enjoy writing songs.
+ - But I needed to prove to everyone that I was a serious musician.
+ - It’s just satisfying for me to be able to write kind of like a finished, nice product.
+ - I’ve literally become comfortable with approaching whatever style of music at any time.
+ - Apparently, there’s this whole set of disgruntled people but obviously it’s not my intention to offend anyone by changing the style of music that I’ve done.
+ - I really enjoy what I do and have been fortunate to pursue basically whatever I’m feeling at the time.
+ - It’s an honor to win a Grammy, of course.
+ - Well, I got married about two and a half years ago, and that’s been a big change in my life.
+ - I didn’t just want to put something out that I wasn’t satisfied with.
+ - I think it’s like everything you do is just a reflection of who you are as an artist.
+ - I moved from Minnesota out to Los Angeles and I thought I was going to hate it out there, but I really like it.
+ - I’ve been in fortunate position of never really having to battle with my record company to do the things I wanted to do in the studio.
+
+52 quotes

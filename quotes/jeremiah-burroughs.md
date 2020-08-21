@@ -1,0 +1,25 @@
+ - Christian contentment is that sweet, inward, quiet, gracious frame of spirit, which freely submits to and delights in God’s wise and fatherly disposal in every condition.
+ - Contentment is not by addition but by subtraction: seeking to add a thing will not bring contentment. Instead, subtracting from your desires until you are satisfied only with Christ brings contentment.
+ - To be well skilled in the mystery of Christian contentment is the duty, glory and excellence of a Christian.
+ - If riches increase, set not your hearts upon them: so if friends increase, set not your hearts upon them, but trust in the living God, let it be the living God that you rest on even for all outward things in this world.
+ - It is a special part of the divine worship that we owe to God, to be content in a Christian way, as has been shown to you.
+ - Temptations will no more prevail over a contented man, than a dart that is thrown against a brazen wall.
+ - I beseech you to consider that God does not deal by you as you deal with him.
+ - It is the happiness of heaven to have God be all in all.
+ - What is the duty of the circumstances God has put me into?
+ - One drop of the sweetness of heaven is enough to take away all the sourness and bitterness of all the afflictions in the world.
+ - You will not find one Godly man who came out of an affliction worse than when he went into it. Though for a little while he was shaken, yet, at last, he was better for an affliction. But, a great many Godly men have been worse for their prosperity.
+ - My brethren, the reason why you have not got contentment in the things of the world is not because you have not got enough of them-that is not the reason-but the reason is, because they are not things proportionable to that immortal soul of yours that is capable of God himself.
+ - Thus, a godly man wonders at his cross that it is not more, a wicked man wonders his cross is so much:.
+ - I am discontented because I have not these things which God never yet promised me, and therefore I sin much against the Gospel, and against the grace of faith.
+ - A noble heart is a thankful heart that loves to acknowledge whenever it has received any mercy.
+ - But if I have once overcome my heart, and am contented through the grace of God in my heart, then this makes me content not only in one particular but in general, whatever befalls me.
+ - Note this, I beseech you: in active obedience we worship God by doing what pleases God, but by passive obedience we do as well worship God by being pleased with what God does.
+ - Holiness is the very principle of eternal life, the very beginning of eternal life in the heart, and that which will certainly grow up to eternal life.
+ - Oh, that we could but convince men and women that murmuring spirit is a greater evil than any affliction, whatever the affliction!
+ - When God has given you your heart’s desire, what have you done with your heart’s desire?
+ - Your mercies are more than your afflictions.
+ - Faith has this excellency, that it is able to bring life out of death, light out of darkness. It has a kind of creating virtue.
+ - It is a woman’s reason to say I will do such a thing because I will.
+
+23 quotes

@@ -1,0 +1,28 @@
+ - I am not a witch. I’m nothing you’ve heard. I’m you.
+ - We had the 60s sexual revolution, and now people are dying of AIDS.
+ - Absolutely, but let me qualify that-I consider myself an authentic feminist. Not as defined by the modern movement. And, let me clarify that a little bit more. I was an English major, so break it down: -ist means one who celebrates. As a feminist, I celebrate my femininity.
+ - American scientific companies are cross-breeding humans and animals and coming up with mice with fully functioning human brains.
+ - It is those same so-called experts who said we had no chance of winning the primary. It will be hard work, but we can win. And if those same people who fought against me work just as hard for me, we will win.
+ - The conservative movement was told to curl up in a fetal position and just stay there for the next eight years, thank you very much. Well, how things have changed.
+ - Well, creationism, in essence, is believing that the world began as the Bible in Genesis says, that God created the Earth in six days, six 24-hour periods. And there is just as much, if not more, evidence supporting that.
+ - We took the Bible and prayer out of public schools, and now we’re having weekly shootings practically. We had the 60s sexual revolution, and now people are dying of AIDS.
+ - America is now a socialist economy. The definition of a socialist economy is when 50% or more of your economy is dependent on the federal government.
+ - You’re telling me that the separation of church and state is found in the First Amendment?
+ - Physics put people in spiritual harm, the same way pimps put people in physical harm.
+ - The thing that attracts people to “The Sopranos” is the family element. It shows that America still has a longing for that traditional upbringing.
+ - And I’m asking for your support because I want to defend America, as I’ve said before, from becoming a socialist nation.
+ - That’s in the First Amendment?
+ - Americans want our leaders to defend our values, our culture, our legacy of liberty and our way of life, not apologize.
+ - Christine O’Donnell: Well, don’t you think as a host, if I say “this is what I want to talk about”, that’s what we should address? Piers Morgan: Not really, no. You’re a politician.
+ - In order to restore our country to the principles on which it was founded, we need to elect leaders that believe in the principles of the party, not just the power of the party.
+ - I am not a clone of Sarah Palin. I have my own thoughts.
+ - I never had the high-paying job or the company car. It took me over a decade to pay off my student loans. I never had to worry about where to dock my yacht to reduce my taxes.
+ - Where in the Constitution is the separation of church and state?
+ - That’s one of the things I like about him, because he’s been consistent since he changed his mind.
+ - We’re not trying to take back our country. We are our country.
+ - There’s only truth and not truth. You’re either very good or evil.
+ - It’s time to replace career politicians with citizen’s politicians. It’s time to elect people who are going to stand up to the Washington elite and stand up to a White House and Congress hell-bent on ramming socialism down our throat.
+ - Look at what Bush has done. The economy took an incredible hit after September 11. That was a huge shock to the economy. And we’ve recovered a lot quicker than we thought, thanks to Bush and his economic policy.
+ - You’re just gonna create somebody who is, I was gonna say, ‘toying with his sexuality.’ Pardon the pun.
+
+26 quotes

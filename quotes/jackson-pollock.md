@@ -1,0 +1,53 @@
+ - I do not paint nature. I am nature.
+ - I can control the flow of paint: there is no accident.
+ - Art is coming face to face with yourself.
+ - Love is friendship set to music.
+ - I am doubtful of any talent, so whatever I choose to be, will be accomplished only by long study and work.
+ - Painting is self-discovery. Every good artist paints what he is.
+ - The painting has a life of its own.
+ - There is no accident, just as there is no beginning and no end.
+ - My painting does not come from the easel.
+ - When I am in my painting, I’m not aware of what I’m doing.
+ - A method of painting is a natural growth out of a need. I want to express my feelings rather than illustrate them. Technique is just a means of arriving at a statement.
+ - Energy and motion made visible – memories arrested in space.
+ - Abstract painting is abstract. It confronts you. There was a reviewer a while back who wrote that my pictures didn’t have any beginning or any end. He didn’t mean it as a compliment, but it was.
+ - If people would just look at the paintings, I don’t think they would have any trouble enjoying them. It’s like looking at a bed of flowers, you don’t tear your hair out over what it means.
+ - I don’t work from drawings and colour sketches into a final painting. Painting, I think, today – the more immediate, the more direct – the greater the possibilities of making a direct – of making a statement.
+ - A real friend is someone you say a sentence to and they know ten thousand words behind that sentence.
+ - It is only when I lose contact with the painting that the result is a mess. Otherwise there is pure harmony, an easy give and take, and the painting comes out well.
+ - Painting is no problem. The problem is what to do when you’re not painting.
+ - I’ve been thinking of death a lot, and I am amazed by its inevitability, frightened, as we all are, of the totally unknown, and yet feel a long sleep is somehow earned by those of us who live on the edge.
+ - It doesn’t matter how the paint is put on, as long as something is said.
+ - I don’t work from drawings. I don’t make sketches and drawings and color sketches into a final painting.
+ - People have always frightened and bored me consequently I have been within my own shell.
+ - The painter locks himself out of his own studio. And then has to break in like a thief.
+ - The modern artist is working with space and time, and expressing his feelings rather than illustrating.
+ - You can’t learn techniques and then try to become a painter. Techniques are a result.
+ - A man’s life is his work; his work is his life.
+ - My concern is with the rhythms of nature I work inside out, like nature.
+ - A canvas is an arena in which to act.
+ - I want to express my feelings rather than illustrate them.
+ - I don’t use the accident – ’cause I deny the accident.
+ - How do you know when you’re finished making love?
+ - The pictures I contemplate painting would constitute a halfway state and attempt to point out the direction of the future – without arriving there completely.
+ - Technic is the result of a need new needs demand new technics total control denial of the accident States of order organic intensity energy and motion made visible memories arrested in space, human needs and motives acceptance.
+ - Abstract painting is abstract. It confronts you...
+ - I’ve had a period of drawing on canvas in black – with some of my early images coming thru -, think the non-objectivists will find them disturbing – and the kids who think it simple to splash a ‘Pollock’ out.
+ - I have no fear of making changes, destroying the image, etc., because the painting has a life of its own.
+ - On the floor I am more at ease. I feel nearer, more part of the painting, since this way I can walk around it, work from the four sides and literally be in the painting.
+ - He drove his kind of realism at me so hard I bounced right into nonobjective painting.
+ - I continue to get further away from the usual painter’s tools such as easel, palette, brushes, etc. I prefer sticks, trowels, knives and dripping fluid paint or a heavy impasto with sand, broken glass or other foreign matter added.
+ - I’m very representational some of the time, and a little all of the time. But when you’re painting out of your unconscious, figures are bound to emerge.
+ - Well, painting today certainly seems very vibrant, very alive, very exiting. Five or six of my contemporaries around New York are doing very vital work, and the direction that painting seems to be taken here – is – away from the easel – into some sort, some kind of wall, wall painting...
+ - The process is only a means to an end-creating the painting I want. It doesn’t mean anything itself. It’s only a way of creating a result.
+ - When I say artist I mean the man who is building things – creating molding the earth – whether it be the plains of the west – or the iron ore of Penn. It’s all a big game of construction – some with a brush – some with a shovel – some choose a pen.
+ - The strangeness will wear off and I think we will discover the deeper meanings in modern art.
+ - Today painters do not have to go to a subject matter outside of themselves. Most modern painters work from a different source. They work from within.
+ - As to what I would like to be, it is difficult to say. An artist of some kind. If nothing else I shall always study the Arts.
+ - I hardly ever stretch the canvas before painting.
+ - Technique is just a means of arriving at a statement.
+ - My paintings do not have a center, but depend on the same amount of interest throughout.
+ - When I’m painting, I’m not aware of what I’m doing. It’s only after a get acquainted period that I see what I’ve been about. I’ve no fears about making changes for the painting has a life of its own.
+ - Bums are the well-to-do of this day. They didn’t have as far to fall.
+
+51 quotes

@@ -1,0 +1,38 @@
+ - I would rather be a rebel than a slave.
+ - I am what you call a hooligan-.
+ - Justice and judgment lie often a world apart.
+ - I have never advised the destruction of life, but of property, yes.
+ - You have to make more noise than anybody else, you have to make yourself more obtrusive than anybody else, you have to fill all the papers more than anybody else, in fact you have to be there all the time and see that they do not snow you under, if you are really going to get your reform realized.
+ - Manchester is a city which has witnessed a great many stirring episodes, especially of a political character. Generally speaking, its citizens have been liberal in their sentiments, defenders of free speech and liberty of opinion.
+ - I was fourteen years old when I went to my first suffrage meeting. Returning from school one day, I met my mother just setting out for the meeting, and I begged her to let me go along.
+ - We have to free half of the human race, the women, so that they can help free the other half.
+ - If men will not do us justice, they shall do us violence.
+ - I have made speeches urging women to adopt methods of rebellion such as have been adopted by men in every revolution.
+ - The argument of the broken window pane is the most valuable argument in modern politics.
+ - I suppose I had always been an unconscious suffragist. With my temperament and my surroundings, I could scarcely have been otherwise.
+ - It always seems to me when the anti-suffrage members of the Government criticize militancy in women that it is very like beasts of prey reproaching gentler animals who turn in desperate resistance when at the point of death.
+ - Women had always fought for men, and for their children. Now they were ready to fight for their own human rights. Our militant movement was established.
+ - Men make the moral code and they expect women to accept it.
+ - What is the use of fighting for a vote if we have not got a country to vote in?
+ - Our sons and daughters must be trained in national service, taught to give as well as to receive.
+ - We woman suffragists have a great mission – the greatest mission the world has ever known. It is to free half the human race, and through that freedom to save the rest.
+ - If it is right for men to fight for their freedom, and God knows what the human race would be like today if men had not, since time began, fought for their freedom, then it is right for women to fight for their freedom and the freedom of the children they bear.
+ - The whole argument with the anti-suffragists, or even the critical suffragist man, is this: that you can govern human beings without their consent.
+ - Men make the moral code and they expect women to accept it. They have decided that it is entirely right and proper for men to fight for their liberties and their rights, but that it is not right and proper for women to fight for theirs.
+ - You must make women count as much as men; you must have an equal standard of morals; and the only way to enforce that is through giving women political power so that you can get that equal moral standard registered in the laws of the country. It is the only way.
+ - I want to say to you who think women cannot succeed, we have brought the government of England to this position, that it has to face this alternative: either women are to be killed or women are to have the vote.
+ - Those men and women are fortunate who are born at a time when a great struggle for human freedom is in progress. It is an added good fortune to have parents who take a personal part in the great movements of their time. I am glad and thankful that this was my case.
+ - As long as women consent to be unjustly governed, they will be; but directly women say: “We withhold our consent,” we will not be governed any longer as long as government is unjust.
+ - There is something that Governments care for far more than human life, and that is the security of property, and so it is through property that we shall strike the enemy. Be militant each in your own way. I incite this meeting to rebellion.
+ - What is the use of fighting for the vote if we do not have a country to vote in? With that patriotism that has nerved women to endure torture in prison for the national good, we ardently desire that our country shall be victorious.
+ - My childhood was protected by love and a comfortable home. Yet, while still a very young child, I began instinctively to feel that there was something lacking, even in my own home, some false conception of family relations, some incomplete ideal.
+ - Those men and women are fortunate who are born at a time when a great struggle for human freedom is in progress.
+ - I have not personally suffered from the deprivations, the bitterness and sorrow which bring so many men and women to a realisation of social injustice.
+ - I thought I had been a suffragist before I became a Poor Law Guardian, but now I began to think about the vote in women’s hands not only as a right but as a desperate necessity.
+ - Governments have always tried to crush reform movements, to destroy ideas, to kill the thing that cannot die. Without regard to history, which shows that no Government have ever succeeded in doing this, they go on trying in the old, senseless way.
+ - The militancy of men, through all the centuries, has drenched the world with blood. The militancy of women has harmed no human life save the lives of those who fought the battle of righteousness.
+ - I had to get a close-hand view of the misery and unhappiness of a man made world, before I reached the point where I could successfully revolt against it.
+ - How different the reasoning is that men adopt when they are discussing the cases of men and those of women.
+ - Every principle of liberty enunciated in any civilized country on earth, with very few exceptions, was intended entirely for men, and when women tried to force the putting into practice of these principles, for women, then they discovered they had come into a very, very unpleasant situation indeed.
+
+36 quotes

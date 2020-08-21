@@ -1,0 +1,389 @@
+ - Everything I touch is a success.
+ - I am in the right place, at the right time, doing the right thing.
+ - All is well. Everything is working out for my highest good. Out of this situation only good will come. I am safe!
+ - I choose to make the rest of my life the best of my life.
+ - I am open and receptive to all the good and abundance in the Universe.
+ - I deserve the best and I accept the best now.
+ - I accept myself unconditionally right now.
+ - I do not fix problems. I fix my thinking. Then problems fix themselves.
+ - All that I seek is already within me.
+ - Ask for what you want. Believe that you deserve it, and then allow Life to give it to you.
+ - Each day is a new opportunity. I chose to make this day a great one.
+ - Love yourself and you can heal your life.
+ - I allow the healing power in my body to manifest perfect health.
+ - As I say yes to life, life says yes to me!
+ - Everything I need to know is revealed to me. Everything I need comes to me. All is well in my life.
+ - Today I can do anything I put my mind to.
+ - I am grateful for being alive today. It is my joy and pleasure to live another wonderful day.
+ - I let go of all fear and doubt, and life becomes simple and easy for me.
+ - My day begins with gratitude and joy. I look forward with enthusiasm to the adventures of the day, knowing that in my life, All is good.
+ - I close my eyes, think positive thoughts, and breathe goodness in and out.
+ - The simple part is, every thought we think and every word we speak is creating our future. If you change your thinking, you can change your life.
+ - I forgive myself for not being perfect. I am living the very best way I know how.
+ - I am totally safe in the Universe. I am at peace everywhere. I trust life.
+ - Think thoughts that make you happy. Do things that make you feel good. Be with people who make you feel good. Eat things that make your body feel good. Go at a pace that makes you feel good.
+ - I give myself permission to be all that I can be, and I deserve the very best in life.
+ - I am blessed beyond my fondest dreams.
+ - You are not a helpless victim of your own thoughts, but rather a master of your own mind.
+ - I am a capable person, and I can handle anything that comes my way.
+ - My day begins and ends with gratitude and joy.
+ - I am in charge. I take my own power back.
+ - I am one with the power and wisdom of the Universe. I have all that I need.
+ - I am so grateful for my beautiful life. I am cherished and loved. And I share my love and joy with everyone.
+ - My future is bright and beautiful.
+ - I was born to enjoy life. And so it is.
+ - I release all control to the Universe. I am at peace with myself and with life.
+ - Be willing to stop punishing yourself for your mistakes. Love yourself for your willingness to learn and grow.
+ - I am my best friend. Other friends may come and go, but I am always here for me.
+ - I realise that stress is only fear. I now release all fears.
+ - Resistance is the first step to change.
+ - I release any feelings of competition or comparison. I simply do my best and enjoy being me.
+ - I relax and enjoy life. I know that whatever I need to know is revealed to me in the perfect time and space sequence.
+ - Share your joy with everyone in your world.
+ - I am willing to move out of my comfort zone and experience life in a new way.
+ - Each day is a new opportunity. Yesterday is over and done. Today is the first day of my future.
+ - Life can’t give to you if your hands are closed. Open your mind, open your heart, and open your arms.
+ - I love myself for I am a beloved child of the universe and the universe lovingly takes care of me now.
+ - It’s only a thought, and a thought can be changed. I am not limited by any past thinking. I choose my thoughts with care. I constantly have new insights and new ways of looking at my world. I am willing to change and grow.
+ - I now discover how wonderful I am. I choose to love and enjoy myself.
+ - I release all fears and doubts. I accept myself and create peace in my mind and heart. I now choose to free myself from all destructive fears and doubts. I am loved and I am safe.
+ - Challenges are opportunities for me to grow. The more I learn, the more equipped I am to handle whatever situations come up.
+ - I let go of all negativity that rests in my body and mind.
+ - Loving myself and thinking joyful, happy thoughts is the quickest way to create a wonderful life.
+ - I am willing to release old negative beliefs. They are only thoughts that stand in my way. My new thoughts are positive and fulfilling.
+ - Your prosperity consciousness is not dependent on money; your flow of money is dependent upon your prosperity consciousness.
+ - Look in the mirror and tell yourself how wonderful you are.
+ - I follow my inner star. I AM a shining example of Love and Light.
+ - Love is contagious. When I share love, it comes back to me multiplied. Love opens every door.
+ - Today I create a stress-free world for myself.
+ - Peace beings with me. The more peaceful I am inside, the more peace I have to share with others.
+ - Procrastination is another form of resistance.
+ - I love and approve of myself. I love and approve of my body. I feed it nourishing foods and beverages. I exercise it in ways that are fun.
+ - I face my future peacefully and calmly because I know I am enough.
+ - Know that you are the perfect age. Each year is special and precious, for you shall only live it once. Be comfortable with growing older.
+ - I love myself for all my mistakes and missteps. They have been very valuable to me. They have taught me many things. It is the way I learn. I am willing to stop punishing myself for my mistakes.
+ - I now go beyond other people’s fears and limitations. I create my life.
+ - Experiences come and go; however, my love for myself is constant.
+ - Forgiveness is a gift to yourself. It frees you from the past, past experiences, and past relationships. It allows you to live in the present time. When you forgive yourself and forgive others, you are indeed free.
+ - As I love and approve of myself and others, my life gets better and better.
+ - I speak up for myself. I claim my power now.
+ - That’s the way life works: gratitude and appreciation just bring more goodness. Remember: Everything we give out comes back. Gratitude has all sorts of little, surprising rewards.
+ - Somewhere someone is looking for exactly what you have to offer.
+ - That person who is the hardest to forgive is the one who can teach you the greatest lessons. When you love yourself enough to rise above the old situation, then understanding and forgiveness will be easy. And you’ll be free.
+ - I grow spiritually when I accept responsibility for my life.
+ - Guilt is a totally useless emotion. It never makes anyone feel better nor does it change a situation.
+ - Maintain your physical, emotional, and spiritual harmony with the universe by meditating every day. Inhale the precious breath of life. It is your connection to your Higher power.
+ - Thoughts are like drops of water: with our thoughts we can drown in a sea of negativity, or we can float on the ocean of life.
+ - Your security is not your job, or your bank account, or your investments, or your spouse or your parents. Your security is your ability to connect with the cosmic power that creates all things.
+ - I ask for help. I tell Life what I want, and then I allow it to happen.
+ - The Universe loves grateful people. The more grateful you are, the more you get to be grateful about. It’s that simple. Life is really that simple. We make it enormously complicated, but it doesn’t have to be.
+ - Most people are doing the best they can, given what they know and understand, including you. If they knew more and were aware of more, they would do things differently.
+ - The past has no power over us. It doesn’t matter how long we have had a negative pattern. The point of power is in the present moment. What a wonderful thing to realize! We can begin to be free in this moment!
+ - When we think good thoughts and choose the actions that make us feel good, Life provides us with all the evidence we need that we are loved and cared for.
+ - The power is within you. It always has been. How far are you willing to expand the horizons of your thinking and stir that power awake?
+ - The act of forgiveness takes place in our own mind. It really has nothing to do with the other person.
+ - Your mind is a tool you can choose to use any way you wish.
+ - Today is a new day. Today is a day for you to begin creating a joyous, fulfilling life.
+ - Taking a step without knowing the end result is the only way we develop faith and not only this, it’s a practice that connects us with a power greater than ourselves.
+ - See God in every person, place, and thing, and all will be well in your world.
+ - It is okay to ask for help. I give help when others need it, and ask for help when I need it.
+ - I let go of childhood fears. I am a secure, empowered human being.
+ - When we forgive and let go, not only does a huge weight drop off your shoulders, but the doorway to your own self-love opens.
+ - An affirmation opens the door. It’s a beginning point on the path to change.
+ - I am the joy of life expressing and receiving in perfect rhythm.
+ - We learn our belief systems as very little children, and then we move through life creating experiences to match our beliefs. Look back in your own life and notice how often you have gone through the same experience.
+ - It is true if you believe it to be true.
+ - Today I do a mental housecleaning, making room for new, positive thoughts.
+ - Every day it gets easier to look into my own eyes on the mirror and say, “I love you just the way you are.”
+ - If I want to be loved as I am, I have to be willing to love others as they are.
+ - Let’s get back to loving our bodies and accepting them totally as they are.
+ - If you accept a limiting belief, then it will become a truth for you.
+ - If I want to live in a peaceful world, then it is up to me to make sure that I am a peaceful person. No matter how others behave, I keep peace in my heart. I declare peace in the midst of chaos or madness. I surround all difficult situations with peace and love.
+ - Life is really very simple. What we give out, we get back.
+ - I let go of all expectations. People, places and things are free to be themselves, and I am free to be me.
+ - I trust myself, and I trust Life to support and protect me.
+ - There’s no such thing as good weather, or bad weather. There’s just weather and your attitude towards it.
+ - The thoughts we choose to think are the tools we use to paint the canvas of our lives.
+ - Love is acceptance – accepting people as they are. Just acceptance and caring.
+ - I release the past with ease and trust in the process of life.
+ - The bottom line for everyone is I’m not good enough. It’s only a thought, and a thought can be changed.
+ - Each day is a start of a new adventure, and I eagerly look forward to today.
+ - I respect my boundaries, and I insist that others respect them, too.
+ - Everything you need comes to you in perfect time, space and sequence.
+ - It’s not what happens to you, but how you handle it. If Life gives you lemons, make lemonade. If the lemons are rotten, take out the seeds and plant them in order to grow new lemons.
+ - Love happens! I release the desperate need for love, and instead, allow it to find me in the perfect time-space sequence.
+ - I am worth loving. I do not have to earn love. I am lovable because I exist. Others reflect the love I have for myself.
+ - Deep at the center of my being there is an infinite well of love. I now allow this love to flow to the surface.
+ - How you start your day is how you live your day. How you live your day is how you live your life.
+ - As I forgive, I set myself free and experience the bliss of inner peace.
+ - If it grows, eat it. If it doesn’t grow, don’t eat it.
+ - My body mirrors my state of mind. I am healthy, whole and complete.
+ - Financial security puts me at ease and makes me reel good about my future.
+ - Love is the most important healing power there is.
+ - I breathe in the fullness and richness of life.
+ - I accept perfect health as the natural state of my being. I now consciously release any mental patterns within me that could express as dis-ease in any way. Perfect health is my Divine right, and I claim it now.
+ - I will not be distracted by noise, chatter, or setbacks. Patience, commitment, grace, and purpose will guide me.
+ - Your words are so powerful and precious. Learn to harness them, guide them and let them work for you.
+ - Nothing in the past is as powerful as what we choose to do in the present moment.
+ - Prosperity isn’t defined by money alone; it encompasses time, love, success, joy, comfort, beauty, and wisdom.
+ - I am unlimited in my own ability to create the good in my life.
+ - Your thoughts are like the seeds you plant in your garden. Your beliefs are like the soil in which you plant these seeds.
+ - I rejoice in the success of others, knowing that there is plenty for us all.
+ - No matter where you are in life, no matter what you’ve contributed to creating, no matter what’s happening, you are always doing the best you can with the understanding and awareness and knowledge that you have. And when you know more, you will do differently, as I did.
+ - I am totally free to choose thoughts of joy. It is my Divine right to do so.
+ - Everything in your life, every experience, every relationship is a mirror of the mental pattern that is going on inside of you.
+ - Every thought and every word you speak is an affirmation. So why not choose to use only positive affirmations to create an exceptional life? I know you can do it!
+ - The past is over, so it has no power now. The thoughts of this moment create my future.
+ - Affirmations are like seed planted in soil. Poor soil, poor growth. Rich soil, abundant growth. The more you choose to think thoughts that make you feel good, the quicker the affirmations work.
+ - My heart forgives and releases. Inner peace is my goal.
+ - Forgiving makes me feel free and light. I forgive everyone, including myself.
+ - I release all criticism. I only give out that which I wish to receive in return. My love and acceptance of others is mirrored to me in every moment.
+ - Love is always the answer to healing of any sort.
+ - Love of self and love of life connects us with the prosperity of the Universe. Self-love creates self-expression and allows us to be creative in deeply fulfilling ways.
+ - I listen with love to my body’s messages.
+ - All of us can improve the quality of our lives if we practice the art of self-care and train our minds to think thoughts that make us feel good.
+ - My home is a happy place to be. I bless everyone who enters, myself included. Pleasant experiences fill every room.
+ - It feels good to know that I am safe and I am loved.
+ - We choose our sex, our color, our country, and then we look around for the particular set of parents who will mirror the pattern we are bringing in to work on in this lifetime.
+ - When we create peace, and harmony, and balance in our minds, we will find it in our lives.
+ - As I change my thoughts, the world around me changes.
+ - I am willing to release the need to be unworthy. I am worthy of the very best in life, and I now lovingly allow myself to accept it.
+ - Life supports me every step of the way!
+ - Love yourself – Do it now! Don’t wait until you get well or lose the weight, or get the new job, or the new relationship.
+ - Grief is a matter of the heart and soul. Grieve your loss, allow it in, and spend time with it. Suffering is the optional part. Remember that you come into this world in the middle of the movie, and you leave in the middle; and so do the people you love. Love never dies, and spirit knows no loss.
+ - I remove the work should from my vocabulary forever. Should is a word that makes a prisoner of me. Every time I say should, I am making myself wrong, or I am making someone else wrong. I am, in effect, saying I am not good enough.
+ - My body is very wise; it knows how to heal itself.
+ - I do not allow others to influence my thinking unless it is positive or uplifting.
+ - Today healing energy constantly flows through every organ, joint and cell in my body.
+ - I now deserve love. romance, and joy – and all the good that Life has to offer me.
+ - Every experience I have benefits me. I am in the process of positive change.
+ - When you choose to be angry you are affirming that you want greater anger in your life.
+ - Forgiveness is for yourself because it frees you. It lets you out of that prison you put yourself in.
+ - Healing means accepting all parts of ourselves, not just the parts we like, but all of us.
+ - Love is the great miracle cure. Loving ourselves works miracles in our lives.
+ - My best relationship is the one I have with myself. I know I am always connected to a Universe that loves me. I draw loving people and loving experiences to me.
+ - The ability to relax and be mindfully present in the moment comes naturally when we are grateful.
+ - Few parents teach their children how phoney the ads on TV are, how many lies and exaggerations they contain. How could they? These parents were also raised on television ballyhoo.
+ - Every thought we think and every word we speak is an affirmation of what we believe about life and it’s the same with magnetism.
+ - I deserve to have boundaries, and my boundaries are respected. I love and honor myself. I am safe. All is well.
+ - I cannot change another person. I let others be who they are, and I simply love who I am.
+ - I live in a loving, abundant, harmonious universe, and I am grateful.
+ - I have come to this planet to learn to love myself more, and to share that love with all those around me.
+ - I have learned over the years that the nicest thing I can do is to just say to myself, “Good Morning Darling, I love you; we’re going to have a really great day today.”
+ - Life is always trying to love us, but we need to be open if we are to see it. Fear shows us one world; and love shows us another world. We decide which world is real. And we decide which world we want to live in.
+ - I am safe when i express my feelings. I can be serene in any situation.
+ - My life is a party, to be experienced and shared with everyone I know!
+ - Be willing to take the first step, no matter how small it is. Concentrate on the fact that you are willing to learn. Absolute miracles will happen.
+ - Cluttered closets mean a cluttered mind.
+ - I create easily and effortlessly when I let my thoughts come from the loving space of my own heart.
+ - A tragedy can turn out to be our greatest good if we approach it in ways which we can grow.
+ - If you want to understand your parents more, get them to talk about their own childhood; and if you listen with compassion, you will learn where their fears and rigid patterns come from. Those people who “did all that stuff to you” were just as frightened and scared as you are.
+ - You are not making the change because you are a bad person and you are doing it wrong. You make changes because you love yourself and you want to improve the quality of your life.
+ - I am a Divine, magnificent expression of life, and deserve the very best. I accept miracles. I accept healing. I accept wholeness. And most of all, I accept myself. I am precious, and I cherish who I am.
+ - Life is a lottery that we’ve already won. But most people have not cashed in their tickets.
+ - Patience is being at peace with the process of life.
+ - If I wait until I become perfect before I love myself, I will waste my whole life. I am already perfect right here and right now. I am perfect exactly as I am.
+ - Begin to recognize prosperity everywhere, and rejoice in it.
+ - When you find Peace within, you create a Peaceful world around you.
+ - Every day declare for yourself what you want in life. Declare it as though you have it!
+ - The deep, intimate connection I am searching for is within me. I am all that I am looking for. I am love. All is well.
+ - It is safe to look within. As I move through the layers of other people’s opinions and beliefs, I see within myself a magnificent being, wise and beautiful. I love what I see in me.
+ - The body, like everything else in life, is a mirror of our inner thoughts and beliefs. Every cell within your body responds to every single thought you think and every word you speak.
+ - Don’t settle for anybody just to have someone. Set your standards. What kind of love do you want to attract? List the qualities you really want in the relationship. Develop those qualities in yourself and you will attract a person who has them.
+ - I am deeply fulfilled by all that I do.
+ - The more you connect to the Power within you, the more you can be free in all areas of your life.
+ - In order to change your life outside, you must first change inside.
+ - We have a spiritual responsibility to be consciously grateful because that energy’s frequency flows from us and assists in our own healing, our brother’s and sister’s healing, and ultimately the healing of the planet, our EarthMother.
+ - Today we are mentally preparing for tomorrow. The thoughts we think, the words we speak, the beliefs we accept, shape our tomorrows.
+ - Remember: you are the only person who thinks in your mind! You are the power and authority in your world.
+ - Financial security is a constant in my life. I allow my income to constantly expand, no matter what the newspapers and economists say. I move beyond my present income, and I go beyond the economic forecasts. I do not listen to people out there telling me how far I can go or what I can do.
+ - Meditation is really just quieting yourself enough so you can get in touch with your own inner wisdom.
+ - Love is the biggest eraser there is. Love erases even the deepest imprinting because love goes deeper then anything. If you childhood imprinting was very strong, and you keep saying: “It’s their fault. I can’t change,” you stay stuck.
+ - When we change our thoughts, we can truly change the world.
+ - Loving others is easy when you love and accept yourself.
+ - I live in the present moment and easily release all past pain.
+ - You have the power to heal your life, and you need to know that!
+ - Every obstacle is a stepping stone. My good cannot be stopped.
+ - Just like the bright sun, I am a radiant being. Others feel safe and warm in my presence.
+ - If children gave up when they fell for the first time, they would never learn to walk.
+ - If I want to believe that life is lonely and that nobody loves me, then that is what I will find in my world.
+ - Tapping is a powerful tool that can truly heal, allowing forgiveness, love, and acceptance into your life, particularly when used along with affirmations.
+ - I work for enjoyment and satisfaction – not just to earn a living.
+ - My happy thoughts help create my healthy body.
+ - I have a wonderful relationship with my friends, family members, and co-workers. I am appreciated.
+ - No matter where I am on this planet, I am always safe.
+ - I awaken today, appreciating everything in sight, and I give thanks.
+ - To create a wonderful day sometimes takes just a slight change in the way you look at it. Be willing to let go of an old, negative way that you look at something, and look at it in a new, positive way.
+ - Our bodies need real, fresh food to maintain health.
+ - The more we listen to ourselves and make positive changes based on what we discover, the more interesting life becomes.
+ - We are the ones who suffer when we hold on to past grievances.
+ - My intuition is always on my side. I trust it to be there at all times.
+ - We are each responsible for all of our experiences.
+ - We may not know how to forgive, and we may not want to forgive; but the very fact we say we are willing to forgive begins the healing practice.
+ - If things are easy for us, then they are not lessons, but things we already know.
+ - Life is bringing me everything I need and MORE!
+ - If you eat one less candy bar or donut a day, you’re doing your body some good.
+ - Men don’t cry!? ‘Women can’t handle money!’ What limiting ideas to live with.
+ - When our inner vision opens, our horizons expand.
+ - I give myself the green light to move forward, and to joyously embrace the new.
+ - I now stop feeling guilty. I let myself out of that prison.
+ - I am loved and accepted exactly how I am, right here and right now.
+ - The Universe totally supports every thought I choose to think and to believe. I have unlimited choices about what I think. I choose balance, harmony, and peace, and I express it in my life.
+ - Grief is a matter of the heart and soul. Grieve your loss, allow it in, and spend time with it.
+ - This is a new day. Begin anew to claim and create all that is good.
+ - I truly believe that we are here to bless and prosper, each other.
+ - Would you really dig into yesterday’s garbage to make tonight’s meal? Do you dig into yesterday’s mental garbage to create today’s experiences?
+ - The weird people are the best ones! All of my friends are weird.
+ - Some of the things you believe were never true. They were someone else’s fears. Give yourself a chance to examine your thoughts. Change those that are negative. You are deserving.
+ - There is so much love in your heart that you could heal the planet.
+ - My talents are in demand, and my unique gifts are appreciated by those around me.
+ - Begin to listen to what you say. Don’t say anything that you don’t want to become true for you.
+ - Do you want to be right, or do you want to be happy? Forgive yourself and stop punishing yourself.
+ - We are far more than our bodies and personalities. The inner spirit is always beautiful and lovable, no matter how our outer appearances may change.
+ - Today I release the need to blame anyone, including myself.
+ - I’m no longer curious about things that will upset me.
+ - To me, true prosperity begins with feeling good about yourself. It is also the freedom to do what you want to do, when you want to do it. It is never an amount of money; it is a state of mind. Prosperity or lack of it is an outer expression of the ideas in your head.
+ - I open my heart, knowing that love guides my every decision. All is well.
+ - If your mother did not know how to love herself, or your father did not know how to love himself, then it would be impossible for them to teach you to love yourself. They were doing the best they could with what they had been taught as children.
+ - When we are ready to make positive changes in our lives, we attract whatever we need to help us.
+ - Self-approval and self-acceptance in the now are the main keys to positive changes in every area of our lives.
+ - I find that the more willing I am to be grateful for the small things in life, the bigger stuff just seems to show up from unexpected sources, and I am constantly looking forward to each day with all the surprises that keep coming my way!
+ - Your unique creative talents and abilities are flowing through you and are being expressed in deeply satisfying ways. Your creativity is always in demand.
+ - I am ready to be healed. I am willing to forgive. All is well.
+ - Bless and prosper those around you. Bless and prosper yourself.
+ - I rejoice in what I have and I know that fresh new experiences are always ahead. I greet the new with open arms. I trust life to be wonderful.
+ - Be committed to the relationship you have with yourself. We get so committed to other relationships, but often sort of toss ourselves away. We get around to ourselves only now and then. So, really care for who you are. Be committed to loving yourself. Take care of your heart and soul.
+ - I have a special relationship with animals. I contribute to harmony and balance among all the living creatures of the earth.
+ - The gateways to wisdom and learning are always open, and more and more I am choosing to walk through them. Barriers, blocks, obstacles, and problems are personal teachers giving me the opportunity to move out of the past and into the Totality of Possibilities.
+ - My body represents perfection. I am vibrantly healthy.
+ - Your thoughts and beliefs of the past have created this moment, and all the moments up to this moment. What you are now choosing to believe and think and say will create the next moment and the next day and the next month and the next year.
+ - I am as close to changing my life as my current positive thought.
+ - Love surrounds me and protects me.
+ - Love is never outside ourselves; love is within us.
+ - There is no new knowledge, all is ancient and infinite.
+ - If we choose to believe that we’re responsible for our experiences, the good and the so-called bad, then we have the opportunity to outgrow the effects of the past. We can change. We can be free.
+ - I monitor my self-talk, making sure that it is uplifting and supportive of myself and others.
+ - The more people know, the more people share. The more people improve the quality of their lives, the more they’ll talk to other people about it, and then they’ll help each other.
+ - No matter what the problem is, our experiences are just outer effects of inner thoughts.
+ - The only thing that keeps you from deserving, or loving yourself, or whatever, is someone else’s belief or opinion that you have accepted as truth.
+ - If we can use our problems and illnesses as opportunities to think about how we can change our lives, we have power.
+ - If we are willing to do the mental work, almost anything can be healed.
+ - We sometimes forget that we are God-beings, and that the intent of the Creator was for us to enjoy this thing called Life!
+ - Be loving, and you will be lovable. Be open and receptive to love.
+ - I open my arms wide and declare with love that I deserve and accept all good!
+ - The thoughts you choose to think and believe right now are creating your future. These thoughts form your experiences, tomorrow, next week, and next year.
+ - If I dwell on what I don’t want, then I will get more of it. I affirm only the good in Life.
+ - The gateways to wisdom and knowledge are always open.
+ - If you don’t eat right and you don’t know how to take care of your body, you’re not going to have the energy to do anything wonderful.
+ - Filling my mind with pleasant thoughts is the quickest road to health.
+ - I lovingly do everything I can to assist my body in maintaining perfect health.
+ - No one thinks in your mind except you.
+ - No matter where we live on the planet or how difficult our situation seems to be, we have the ability to overcome and transcend our circumstances.
+ - When i feel tense, I remember to relax all of the muscles and organs in my body.
+ - The biggest parts of healing and making myself whole is to accept all of the many parts of myself.
+ - I feel that when we really love and accept and approve of ourselves exactly as we are, then everything in life works.
+ - I have a thorough understanding of nutrition, and I feed my body only foods that support health.
+ - I no longer criticize anyone – not even myself. I only give out positive vibes.
+ - I wish the children could be taught early on that our thinking creates our experience.
+ - How we start our day is often how we live our lives.
+ - Everything you do is by choice. It may not seem so, but it is...
+ - Affirmation statements are going beyond the reality of the present into the creation of the future through the words you use in the now.
+ - I am as successful as I make up my mind to be.
+ - You DO know what to do.
+ - There are people looking for exactly what you have to offer, and you are being brought together on the checkerboard of life.
+ - Don’t run from lessons; they are little packages of treasure that have been given to us. As we learn from them, our lives change for the better.
+ - When we have throat problems, it usually means we do not feel we have the right to do these things. We feel inadequate to stand up for ourselves.
+ - Whatever we send out mentally or verbally will come back to us in like form.
+ - In my life there is an infinite supply of love, it is in exhaustible, I can never use it all in this lifetime so I don’t have to be sparing with it!
+ - As my mind can conceive of more good, the barriers and blocks dissolve. My life becomes full of little miracles popping up out of the blue.
+ - I live in a peaceful world because I choose to think loving and peaceful thoughts.
+ - I grow beyond my family’s limitations and live for myself. It is my turn now.
+ - I know that I cannot take responsibility for other people. We are all under the law of our own consciousness.
+ - I am always safe, no matter which doorway I pass through.
+ - Today I am loving and kind to myself and others.
+ - For every habit we have, for every experience we go through over and over, for every pattern we repeat, there is a NEED WITHIN US for it.
+ - When I talk about doing affirmations, I mean consciously choosing words that will either help eliminate something from your life or help create something new in your life.
+ - It seems to me that everyone on this planet whom I know or have worked with is suffering from self-hatred and guilt to one degree or another. The more self-hatred and guilt we have, the less our lives work. The less self-hatred and guilt we have, the better our lives work, on all levels.
+ - Look at the problems in your life. Ask yourself, ‘What kind of thoughts am I having that create this?’
+ - We get too caught up in the moneymaking part of life. My own biggest concerns are to stay healthy and happy. I think the business will take care of itself and, when I put that thought out into the world, it happens. My company is absolutely growing and growing and growing.
+ - Well, I believe you created those experiences over and over because they mirrored something you believed about yourself. It doesn’t really matter how long we have had a problem, or how big it is, or how life-threatening it is. The Point of Power Is Always in the Present Moment.
+ - My body takes me everywhere easily and effortlessly.
+ - I give a portion of my time to helping others. It is good for my own health.
+ - Each one of us decides to incarnate upon this planet at a particular point in time and space. We have chosen to come here to learn a particular lesson that will advance us upon our spiritual, evolutionary pathway.
+ - They will often tell me they can’t love themselves because they are so fat, or as one girl put it, ‘too round at the edges.’ I explain that they are fat because they don’t love themselves. When we begin to love and approve of ourselves, it’s amazing how weight just disappears from our bodies.
+ - Wherever you go and whomever you meet, you will find your own love waiting for you.
+ - No matter whether your life is pleasant or good; whether you are having big challenges or no challenges, your state of your mind has everything to do with how you will relate to your experiences.
+ - My health is important, so I learn everything I can about nutrition.
+ - We do not have to know how to forgive. All we have to do is be willing to forgive. The Universe will take care of the how.
+ - I am a beautiful flower that is blossoming more and more each day. I delight in my world, and my world delights in me.
+ - Magnetizing things to ourselves is a natural process, but what are we magnetizing towards ourselves, is what we’re giving out.
+ - The past is over and done and cannot be changed. This is the only moment we can experience.
+ - Wherever I am, there is joy and laughter!
+ - I am centered and focused. I feel more secure each day.
+ - People have one of two extreme reactions to my book. They either throw it across the room, or they rush out and buy 10 copies. The message I’m giving out, that what we think about becomes true for us, and negative thoughts mean good things don’t happen, isn’t always easy for some people to take.
+ - I think you can learn to have much more pleasant thoughts moving through your mind that will help ease any situation, and it takes making a conscious choice to do so.
+ - My body loves my in spite of how I may treat it. My body communicates with me, and I now listen to its messages. I am willing to GET the message.
+ - I love myself, therefore, I behave in a loving way to all people for I know that that which I give out returns to me multiplied.
+ - As your understanding of life continues to grow, you can walk upon this planet safe and secure, always moving forward toward your greater good.
+ - In the early days, I didn’t have the money to pay decent salaries, so I didn’t get good people. I got nice people, but I didn’t get good employees.
+ - I am willing to learn how to take good care of my body.
+ - Today I fulfill my creative side. I want to bloom wherever I am planted!
+ - Know that you are always safe. And also know that it’s possible to move from the old to the new, easily and peacefully.
+ - Today I don’t have to fit into anyone else’s emotional atmosphere.
+ - Endless good comes to me in endless ways.
+ - Humor and joy contribute to my total well-being.
+ - I meditate on a regular basis and reap benefits from this practice.
+ - In order to reprogram the subconscious mind, you need to relax the body. Release the tension. Let the emotions go. Get to a state of openness and receptivity. You are always in change. You are always safe.
+ - Self-love helps me make positive changes easily.
+ - The Universe loves a grateful person. The more you thank Life, the more Life will give you to be thankful for.
+ - I only attract loving people in my world for they are a mirror of what I am.
+ - I trust Life. I know it brings me everything that I need at the perfect time and in the perfect way.
+ - Forgiveness is a gift to myself. I forgive, and I set myself free.
+ - Loving ourselves is the miracle cure we are all looking for.
+ - I meditate each day. Going within alleviates tension and stress, and allows me to hear what the Universe wants me to know.
+ - I am gentle with myself, knowing that I am doing the best I can with the knowledge and understanding I have.
+ - What I gave out in the form of words would return to me as experiences.
+ - I think that the way we begin our day is really the way we live our day and the way we live our lives; and that not enough of us are really aware of it.
+ - It is safe to be me. I love life. I am always safe and secure. I move forward in life with joy and ease. All is well in my world.
+ - Love who and what you are and what you do.
+ - Find thoughts that make you feel good and think them a lot.
+ - I comfortably and easily release the old and and welcome the new in my life. I am safe.
+ - One of the bonuses about loving yourself is that you get to feel good.
+ - If people wake up and go, “Oh, where’s the coffee,” or “Oh, another day,” that does not set a good tone for the day.
+ - It doesn’t matter how old you are, there is a little child within who needs love and acceptance.
+ - I have noticed that the Universe loves Gratitude. The more Grateful you are, the more goodies you get.
+ - The door to my heart opens inward. I move through forgiveness to love.
+ - Stop giving your precious energy to things that make you feel bad.
+ - Whenever we are ill, we need to search our hearts to see what we need to forgive.
+ - Each of us at any time and space is doing the very best we can with what we have.
+ - It is essential that we stop worrying about money and stop resenting our bills.
+ - I have the strength to remain calm in the face of change.
+ - I really had no religious upbringing, which is unusual. But I think it saved me, because when I found the theory that I wanted to follow, I did not have anything to unlearn.
+ - Rejoice in the abundance of being able to awaken each morning and experience a new day. Be glad to be alive, to be healthy, to have friends, to be creative, to be a living example of the joy of living. Live to your highest awareness. Enjoy your transformationa l process.
+ - Most of my problems come from rejecting parts of myself.
+ - It’s okay to learn from every experience, and it’s okay to make mistakes.
+ - The more unhappy you are, the more miserable you are, the more you’re going to suffer.
+ - Make joy and happiness the center of your world.
+ - All teachers are good for someone. There are some teachers out there who I cannot stand, for whatever reason. I cannot even bear the sound of one teacher’s voice. Yet they are wonderful teachers for other people. They just are not for me.
+ - We’re all – all of us – a minute away from dying. If you’re aware of that, life becomes a little more precious. Also, you have a slightly different outlook. It’s not so much “gimme, gimme.”
+ - The more we dwell on what we don’t want, the more we get it.
+ - I think we’re all born with this huge canvas in front of us and the paintbrushes and the paint, and we choose what to put on this canvas...
+ - We do seminars, sometimes, for 7,000 people. These are people, predominantly women, who are seeking, who want to know more, who want to improve the quality of their lives, who want to find themselves.
+ - You have been criticizing yourself for years and it hasn’t worked. Try approving of yourself and see what happens.
+ - Love who you are and what you are and what you do. Laugh at yourself and at life and nothing can touch you.
+ - Learn from the past and let it go. Live in today.
+ - If we take, we lose. If we give, we get. It cannot be otherwise.
+ - I am even-tempered and emotionally well balanced.
+ - I trust myself to deal with any problems that arise during the day.
+ - Until you love yourself, you will never know who you really are and you won’t know what you’re really capable of.
+ - You are the power in your world! You get to have whatever you choose to think!
+ - I say ‘Out’ to every negative thought that comes to my mind. No person, place, or thing has any power over me, for I am the only thinker in my mind. I create my own reality and everyone in it.
+ - Explain to people that everything they say is an affirmation. Everything they think is an affirmation. Everything! What you want to do is to get control of what you are saying and thinking, so these things bring you good experiences in life rather than rotten experiences.
+ - Life always brings you what you need.
+ - I believe we create our own lives. And we create it by our thinking, feeling patterns in our belief system.
+ - It’s important to remember that people are always doing the best they can, including you.
+ - The person who is hardest to forgive is the one who can teach you the greatest lessons.
+ - I believe that animals are on the planet so that we can know love and compassion.
+ - I love myself, therefore I love totally in the now, experiencing each moment as good and knowing that my future is bright, and joyous and secure, for I am a beloved child of the universe and the universe lovingly takes care of me now and forever more. And so it is.
+
+387 quotes

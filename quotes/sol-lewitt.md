@@ -1,0 +1,54 @@
+ - Don’t worry about cool, make your own uncool.
+ - The idea becomes a machine that makes the art.
+ - When an artist uses a conceptual form of art, it means that all of the planning and decisions are made beforehand and the execution is a perfunctory affair. The idea becomes a machine that makes the art.
+ - Minimal art went nowhere.
+ - You belong in the most secret part of you. Don’t worry about cool, make your own uncool. Make your own, your own world. If you fear, make it work for you – draw and paint your fear and anxiety.
+ - All intervening steps, scribbles, sketches, drawings, failed work models, studies thoughts, conversations, are of interest. Those that show the thought process of the artist are sometimes more interesting than the final product.
+ - All of the significant art of today stems from Conceptual art. This includes the art of installation, political, feminist and socially directed art.
+ - In my case, I used the elements of these simple forms – square, cube, line and color – to produce logical systems. Most of these systems were finite; that is, they were complete using all possible variations. This kept them simple.
+ - Every generation renews itself in its own way; there’s always a reaction against whatever is standard.
+ - Obviously a drawing of a person is not a real person, but a drawing of a line is a real line.
+ - Conceptual art became the liberating idea that gave the art of the next 40 years its real impetus.
+ - Formal art is essentially rational.
+ - A blind man can make art if what is in his mind can be passed to another mind in some tangible form.
+ - Unless you’re involved with thinking about what you’re doing, you end up doing the same thing over and over, and that becomes tedious and, in the end, defeating.
+ - Banal ideas cannot be rescued by beautiful execution.
+ - Conceptual art is only good if the idea is good.
+ - An architect doesn’t go off with a shovel and dig his foundation and lay every brick. He’s still an artist.
+ - Your work isn’t a high stakes, nail-biting professional challenge. It’s a form of play. Lighten up and have fun with it.
+ - Minimalism wasn’t a real idea – it ended before it started.
+ - I wasn’t really that interested in objects. I was interested in ideas.
+ - Ideas alone can be works of art; they are in a chain of development that may eventually find some form. All ideas need not be made physical.
+ - New materials are one of the great afflictions of contemporary art. Some artists confuse new materials with new ideas.
+ - What the work of art looks like isn’t too important. It has to look like something if it has a physical form. No matter what form it may finally have it must begin with an idea. It is the process of conception and realization with which the artist is concerned.
+ - The idea part is simple but the visual perception is complex.
+ - In conceptual art the idea or concept is the most important aspect of the work.
+ - During the ’70s I was interested in words and meaning as a way of making art.
+ - Most ideas that are successful are ludicrously simple. Successful ideas generally have the appearance of simplicity because they seem inevitable. In terms of idea the artist is free to even surprise himself. Ideas are discovered by intuition.
+ - The system is the work of art; the visual work of art is the proof of the System. The visual aspect can’t be understood without understanding the system. It isn’t what it looks like but what it is that is of basic importance.
+ - One should be intelligent enough to know when not to be too intellectual.
+ - The artist’s aim is not to instruct the viewer, but to give information, whether the viewer understands the information is incidental to the artist.
+ - The narrative of serial art works more like music than like literature.
+ - The other great development has been in photography, but that too was influenced by Conceptual art.
+ - You shouldn’t be a prisoner of your own ideas.
+ - When words such as painting and sculpture are used, they connote a whole tradition and imply a consequent acceptance of this tradition, thus placing limitations on the artist who would be reluctant to make art that goes beyond the limitations.
+ - The artist is seen like a producer of commodities, like a factory that turns out refrigerators.
+ - Just as the development of earth art and installation art stemmed from the idea of taking art out of the galleries, the basis of my involvement with public art is a continuation of wall drawings.
+ - One usually understands the art of the past by applying the conventions of the present thus misunderstanding the art of the past.
+ - I didn’t want to save art – I respected the older artists too much to think art needed saving. But I knew it was finished, even though, at that time, I didn’t know what I would do.
+ - Buying books was a way anyone could acquire a work of art for very little.
+ - Irrational judgements lead to new experience.
+ - Also, since art is a vehicle for the transmission of ideas through form, the reproduction of the form only reinforces the concept. It is the idea that is being reproduced. Anyone who understands the work of art owns it. We all own the Mona Lisa.
+ - A work of art may be understood as a conductor from the artist’s mind to the viewer’s. But it may never reach the viewer, or it may never leave the artist’s mind.
+ - Once it is out of his hand the artist has no control over the way a viewer will perceive the work. Different people will understand the same thing in a different way.
+ - When artists make art, they shouldn’t question whether it is permissible to do one thing or another.
+ - I was not interested in irony; I wanted to emphasize the primacy of the idea in making art.
+ - Artists are mystics rather than rationalists. They leap to conclusions that logic cannot reach.
+ - Artists teach critics what to think. Critics repeat what the artists teach them.
+ - Artists of many diverse types began using simple forms to their own ends.
+ - Most ideas that are successful are ludicrously simple.
+ - What the work of art looks like isn’t too important.
+ - I believe that the artist’s involvement in the capitalist structure is disadvantageous to the artist and forces him to produce objects in order to live.
+ - The thinking of John Cage derived from Duchamp and Dada. I was not interested in that.
+
+52 quotes

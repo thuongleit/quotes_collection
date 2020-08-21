@@ -1,0 +1,31 @@
+ - I think a lot of making art is listening to yourself.
+ - I like that feeling when you’re making art, that you’re taking the energy out of your body and putting it into a physical object. I like things that are labor-intensive : you make a little thing and another little thing and another little thing, and eventually you see a possibility.
+ - You can have fantasies about having control over the world, but I know I can barely control my kitchen sink. That is the grace I’m given. Because when one can control things, one is limited to one’s own vision.
+ - I think that sense of always traveling has something to do with anonymity and privacy and pleasure in having a very clear, very reductive life.
+ - If you stick to your work it will take care of you somehow.
+ - My iPhone has changed my life – I spend hours taking photos of the sidewalk as I walk down the street. I like the casualness, that it’s low-resolution.
+ - I really love printmaking. It’s like a mystery and you’re trying to figure out how to rein it in.
+ - I think making things beautiful is important. But often what’s first considered ugly is beautiful, too.
+ - I trust my work. It’s a collaboration with the material, and when it’s viewed, it’s a collaboration with the world.
+ - Prior to my father’s death, I was having a hard time committing to a career as an artist, but that’s not because of who he was – it was because of who I am. It’s true, though, that I felt I shouldn’t compete with him, and that those feelings went away after he died.
+ - I think that objects have memories. I’m always thinking that I’ll go to the museum and see something and have a big memory about some other lifetime.
+ - Prints mimic what we are as humans: we are all the same and yet every one is different. I think there’s a spiritual power in repetition, a devotional quality, like saying rosaries.
+ - I got into animals by drawing hair follicles. I liked drawing hair, and from that I got into feathers and fur, then into images of animals. The patterning is the same, but the proportions of the body change from one animal to the next. A lot of it is just geometry and consciousness.
+ - As a child I prayed that my calling be revealed – but not with expectation and not with a destination. I became an artist because I didn’t know what to do and I thought it was really fun to make things.
+ - Making art is a lot about just seeing what happens if you put some energy into something.
+ - Source of inspiration. The MAK is a museum that has had a profound effect on me as an artist and art viewer.
+ - My work life makes much less sense now than 20 years ago. It’s Humpty-Dumpty-like in a way; I can’t put the pieces back together.
+ - The point isn’t to know what you’re doing. The point is to have an experience doing something.
+ - I always say I’m Catholic – but a cultural Catholic. I wouldn’t say I’m a spiritual person, although I pray every day.
+ - Many people don’t have relationships to their siblings in adulthood, or they have superficial ones. It’s sort of unfashionable, particularly in America, to be close to your family.
+ - The hardest thing is remembering that you have some complicity in the things that happen to you in your life.
+ - Artists live in unknown spaces and give themselves over to following something unknown.
+ - One hopes that each piece contains enough space for several narratives.
+ - I like Betsy Ross as a model, too, the quilting bee, sitting around with your friends making art, asking what they think, so that you get the benefit of everyone’s opinions and so it’s not just about you in your you-dom.
+ - In our family, there wasn’t anything else besides art. Nothing else in the world existed. My father never spoke about going to a movie or listening to music, other than my mother’s singing.
+ - It’s fun, in a way, to explore what’s risky in one’s life.
+ - It’s one of my loose theories that Catholicism and art have gone well together because both believe in the physical manifestation of the spiritual world.
+ - Our culture seems to believe that it’s entertaining to teach women to be frightened.
+ - I didn’t start to be an artist myself until I was 24.
+
+29 quotes

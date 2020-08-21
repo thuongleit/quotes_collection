@@ -1,0 +1,113 @@
+ - Always walk through life as if you have something new to learn, and you will.
+ - Just be honest with yourself. That opens the door.
+ - You have succeeded in life when all you really want is only what you really need.
+ - Our freedom can be measured by the number of things we can walk away from.
+ - A truly strong person does not need the approval of others any more than a lion needs the approval of sheep.
+ - Be teachable. That is the whole secret.
+ - We can accept God becoming Man to save Man, but not Man becoming God to save himself.
+ - Procrastination is illogical from every viewpoint. It is like the man who wanted to cross the stream, so he sat on the bank to wait for all the water to run by.
+ - You must never fear anything at all.
+ - Genuine effort is success.
+ - Do not mistake desire for love. Desire leaves home in a frantic search for one gratification after another. Love is at home with itself.
+ - Don’t try to live. Let yourself be lived.
+ - You can not escape a prison if you do not know you’re in one.
+ - The miracle of self-healing occurs when the inner patient yields to the inner physician.
+ - Self-knowledge is the great power by which we comprehend and control our lives.
+ - Awareness of your weakness and confusion makes you strong because conscious awareness is the bright light that destroys the darkness of negativity. Detection of inner negativity is not a negative act, but a courageously positive act that makes you a new person.
+ - The terrible immoralities are the cunning ones hiding behind masks of morality, such as exploiting people while pretending to help them.
+ - What you really want for yourself is always trying to break through, just as a cooling breeze flows through an open window on a hot day. Your part is to open the windows of your mind.
+ - Run forward when possible, walk ahead when you can, stagger onward when you must, but never cease your forward movement.
+ - The power of the present moment is so immense it is capable – when lived in fully – of destroying forever every past mistake and regret.
+ - Anger or bitterness toward those who have hurt you will block your path to higher ground. You can have anger toward people or you can have freedom from people, but you can’t have both.
+ - Just as surely as distress must follow self-deceit, healing must follow self-honesty.
+ - Resistance to the disturbance is the disturbance.
+ - All forms of self-defeating behavior are unseen and unconscious, which is why their existence is denied.
+ - The problem is not what other people think, do or say; it is your reaction.
+ - Pseudo-mysticism seeks to evade reality; authentic mysticism wants to live it.
+ - Study carefully the law of cause and effect.
+ - The only reason you do not do great things is because you timidly cling to small things. Will you let loose of small things and bear the uncertainty of having nothing for a while? Do this and eventually you will do great things.
+ - Genuine kindness is not what we do, it is what we are.
+ - Worried thought prevents practical thought which could prevent worried thought.
+ - See human nonsense as nonsense and save years of trying to make sense out of it.
+ - Don’t look for someone in whom to believe. Believe in yourself. The only authentic authority is your own original nature.
+ - Truth is not a matter of personal viewpoint.
+ - It is a true miracle when a man finally sees himself as his only opposition.
+ - We are enslaved by anything we do not consciously see. We are freed by conscious perception.
+ - One of society’s absurd delusions is that the spending of money can cure something.
+ - Aloneness is a wise teacher. Kierkegaard remarked that one sign of spiritual maturity was the ability to be comfortable when alone.
+ - It is wise to seek immortality for time defeats all other ambitions.
+ - Insight into the two selves within a man clears up many confusions and contradictions. It was our understanding that preceded our victory.
+ - You know what is right. Deep down, you know. The battle between your true wisdom and the counterfeit wisdom of society is what causes frustration. Refuse to compromise with what you know is right-with what is right for you.
+ - Interpretation blocks reception while masquerading as reception. Rightness does not need interpretation; it requires simple acceptance and nothing else.
+ - A clear understanding of negative emotions dismisses them.
+ - A desperation to escape a problem is the wrong way. A passion to understand it is the right way.
+ - Remember above all that mental stability comes by examining the contents of the mind, not by avoidence.
+ - Freedom begins as we become conscious of it.
+ - The reason why most people are frustrated is because a lie cannot be turned into a truth.
+ - Is the beam from a lighthouse affected by howling wind and rain? It remains perfectly steadfast and unaffected by the storm. Your true self is like that. Nothing can ever harm you once you are consciously aware that it is so.
+ - Truth does not really hurt, rather it is our resistance to its message that causes us pain.
+ - The world consists of imaginary people, claiming imaginary virtues and suffering from imaginary happiness.
+ - An obvious fact about negative feelings is often overlooked. They are caused by us, not by exterior happenings. An outside event presents the challenge, but we react to it. So we must attend to the way we take things, not to the things themselves.
+ - When told that man lives in delusion everyone thinks of himself as the exception; hence his delusion.
+ - Learn this great secret of life: What people call interruption or disturbance to their routine is just as much a part of living as the routine. To split life into two parts, one called routine and the other called interruption, is to be caught between them.
+ - We can no more enjoy life by hoping for a future result than we can enjoy music by waiting for the final note.
+ - Instead of fighting your problems, picture your way out of them.
+ - Don’t try to be unafraid. That is impossible. Rather, go ahead while being afraid. That is the entire secret for abolishing fear. The Supermind teaches us to have no self-concern at all. Whatever happens to you, act as though it happened to someone else.
+ - The leap is made by dropping vanity over knowledge and by a willingness to become nothing in order to become everything.
+ - Society is like a crowd in carnival costumes with everyone fearful that others will see through his disguise.
+ - A cheery relaxation is man’s natural state, just as nature itself is relaxed. A waterfall is concerned only with being itself, not with doing something it considers waterfall-like.
+ - No one can tell you what is right for you except yourself. So start telling yourself what to do. If you blunder for ten years while thinking for yourself, that is rich treasure when compared with living these ten years under the mental domination of another.
+ - When the mind is exhausted in trying to find the answer, the answer dawns.
+ - It is against the law to permit weak people to steal your strength. Never permit it.
+ - Who asks a king for a penny?
+ - It is utterly useless to try to change the outer world, for it is but a reflection of inner causes. The true seeker seeks to change himself.
+ - Persistence prevails, like a stream that is temporarily blocked by boulders and then collects force enough to overflow onward.
+ - The need to impress others causes half the world’s woes.
+ - Inner guidance is heard like soft music in the night by those who have learned to listen.
+ - It is a mistake for anyone to think he has lived too long in his old, unsatisfactory ways to make the great change. If you switch on the light in a dark room, it makes no difference how long it was dark because the light will still shine. Be teachable. That is the whole secret.
+ - If you call one thing good, you must call its opposite bad. If you think it wonderful to make a big profit in your business, you will also think it terrible if you incur a large loss. The idea is to live above the opposites.
+ - Healing fails to occur because it is much easier to injure another than to heal oneself.
+ - We cannot be free of nagging desires through suppression. This is like trying to keep a rubber boat beneath the water. But we remove compulsive desires altogether by understanding their nature.
+ - Your central self is totally untouched by grief, confusion, desperation.
+ - The genuinely spiritual person is one who has lost all desire to be anyone but exactly who he is, without labels and without apologies. He is what he is and that’s all there’s is to it. Such a man is undivided, uncomplicated and contented.
+ - A person obsessed with the need to be happy will never be so. The obsession is the obstruction.
+ - All heartache is caused by wrong viewpoints.
+ - We are slaves to whatever we don’t understand.
+ - Self awakening enables you to see the human scene as it is, not as it appears to be, which frees you of its chaos.
+ - You can end half your troubles immediately by no longer permitting people to tell you what you want.
+ - Find yourself for courage and confidence are as easy as breathing to the person who really knows who he is.
+ - The only way to do something truly important every day is to seek to understand yourself every day.
+ - Don’t try to be spiritual. That is only a word in the dictionary. Make it your goal to become a normally functioning individual. Let these principles shape you according to your real nature of a simple, decent, honest, unafraid human being.
+ - As incredible as it sounds, an unhappy man does not realize that happiness is better than unhappiness. Knowing only his own concealed anguish, he worships it, which is the same as self-worship.
+ - Can you think of anything more permanently elating than to know that you are on the right road at last?
+ - We find the light only after total defeat of our attempts to deceive and outwit it.
+ - You cannot stop destructive actions by others, but you can stop your own destructive reactions to them.
+ - Cruelty practiced as a matter of social principle or public policy, and presented to the community as a means to a higher goal is the most obscene and decadent phenomenon of any civilization.
+ - The most marvelous experience of life is to transform life according to reality, not imagination.
+ - We clearly realize that freedom’s inner kingdom cannot be touched by exterior attacks.
+ - Truth breaks you down so it can rebuild you according to its specifications in Heaven.
+ - The answers come when you are quietly willing to be without them.
+ - Every day that you attempt to see things as they are in truth Is a supremely successful day.
+ - Realize that the surface personality has no interest in anything which might disturb its darling delusions.
+ - Our life-transformation is in exact proportion to the amount of truth we can take without running away.
+ - One false idea is that anyone can hurt you. Events can ruin your reputation, take your money, mistreat you, revenge itself upon you, deceive, betray, abandon you, but cannot hurt you.
+ - Beauty is only skin deep, but it’s a valuable asset if you’re poor or haven’t any sense.
+ - Mysticism is not this or that particular cup on the table; it is the water poured into all of them.
+ - The search for truth is really a lot of good fun.
+ - There exists a special self which takes every event as if it were the very thing you wanted to happen. That self is the Supermind, which is never upset by anything. Your goal is to nourish it into greater strength. Then, every step is sunlit.
+ - Ignorant people remain ignorant because they have a secret agreement to call one another intelligent.
+ - We must become acquainted with our emotional household: we must see our feelings as they actually are, not as we assume they are. This breaks their hypnotic and damaging hold on us.
+ - A perfect method for awakening is to examine the results of our daily actions. If they are harmful, we know we need more consciousness.
+ - Men have the illusion of having a duty to make the world spin properly, which is precisely what makes it wobble.
+ - If heaven existed as a physical building on earth, human beings would remodel it to make it right.
+ - A false path must be tensely and angrily defended by those it has deceived.
+ - The outer storm ceases the moment the inner storm ends, for they are the same storm.
+ - Bitterness is the outcome of a wrong mental movement – the attempt to force external events to conform to internal fantasy. The cure is to see fantasy as fantasy, which will reveal it as neither necessary nor rewarding.
+ - Whenever encountering a troublesome person, do not identify him as being cruel or stupid or rude or anything else like that. Instead, see him as a frightened person.
+ - We are exactly where we have chosen to be.
+ - To change what you get you must change who you are.
+ - Change is never a loss – it is change only.
+ - When you are genuinely strong, you neither attack nor defend and so retain your energy.
+ - Happiness is liberty from everything that makes us unhappy.
+
+111 quotes

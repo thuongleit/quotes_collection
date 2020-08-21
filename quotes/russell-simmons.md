@@ -1,0 +1,178 @@
+ - You just have to pay attention to what people need and what has not been done.
+ - Don’t ruin a good today by thinking of a bad yesterday, Let it go!
+ - You’ve got to put your head down and do the work. There are no shortcuts.
+ - Needing nothing attracts everything.
+ - Compassion is the ultimate expression of your highest self.
+ - No matter where you want to go, as long as you follow your path with faith, dedication and hard work, you are going to get there.
+ - If you just remember to breathe and smile before you act, you’ll always make the right decision.
+ - Gratefulness is a practice, just like happiness is a choice.
+ - Never change for the mainstream – stay in your lane, and if you’re talented and resilient enough the mainstream will come to you.
+ - There are no failures, only quitters.
+ - Be encouraged. Stay on your hustle. You can’t fail until u quit.
+ - Respect your parents. What they tell you is true. Hard work, dedication and faith will get you anything. Imagination will drive itself. You can get anything you want, but you have to have faith behind all your ideas. Stick to your goals and have an undying faith.
+ - Always focus on your effort, instead of the results of that effort.
+ - Give what you want to receive. If you want happiness, make others happy.
+ - I am very lucky that I have talented and creative people around me. Also, mediation has been a very big part of my freedom, because it allows me to watch all the things going on and allows me to focus.
+ - The book ‘Do You!’ is about your inner voice. And when you connect to that voice then you – then the freedom comes. And we’re only here to be happy. So happy makes money. Money doesn’t make happy.
+ - Reacting to the world with a smile instead of a curse, a wave instead of the middle finger, will actually help you live longer.
+ - If you don’t break a hole through the brick wall, don’t just start digging a new hole. Keep going until you break through that wall.
+ - The person who understands Dharma will have the opposite reaction to a “hard” job. That person will be eager to get started, no matter what kind of work is in front of her, because she understands that she’s doing God’s work. And when you’re working for God, nothing is too hard.
+ - I’m just suggesting that when you’re faced with fear and anxiety, don’t medicate. Meditate instead.
+ - Don’t worry what others are doing. Do you!
+ - Never pass up any opportunity to share your gifts with the world.
+ - Surround yourself with people who are smarter than you.
+ - Good givers are great getters.
+ - By listening to your higher self, or Atman, you can return to the truth that’s already inside of you and in the process change not only yourself, but the entire world, through positivity and love.
+ - Every day set the simple goal of trying to be more awake and less distracted.
+ - Happy can make you money, but money can’t make you happy.
+ - If you give a good thing to the world, then over time your karma will be good, and you’ll receive good.
+ - What holds most people back isn’t the quality of their ideas, but their lack of faith in themselves.
+ - I look for people who have insight in places where I don’t.
+ - It’s very simple: When you’re working your hardest, the world opens up to you.
+ - Whatever you chase will run away from you. So, stop chasing success and realize you already have it all.
+ - You know, sometimes people never get to learn how successful they could have been because they give up too easily. If I’ve learned one thing in all my years in the business, it’s that often things don’t work out the way you want at first. But that doesn’t mean you should give up.
+ - Being a thoughtful vegan makes our time on this Earth more peaceful and joyous, because you get to have a hand in promoting and increasing the happiness, good health and well-being of others – both animal and human – rather than being an instrument of their suffering and death.
+ - The key ingredient to any kind of happiness or success is to never give less than your best.
+ - We meditate so we can see miracles unfolding. Without stillness life is a blur.
+ - No matter where you’re from or what you’ve done, you’re never stuck in a particular circumstance, relationship, or cycle unless you say you are.
+ - It’s all about the work. Nothing is going to fall into your lap.
+ - A person’s strength is to know their weaknesses.
+ - I don’t miss my prayers and I don’t miss my yoga. Those things are important to me.
+ - When you’re a good giver you’re a good getter.
+ - No matter what you’re doing, try to work at that task like it’s your dream job.
+ - I try to keep a positive intention, and use whatever resources I have to benefit others. I try to create businesses that I think are not hurtful. I try to do things that I think are helpful to the environment, to the animals, and to the planet.
+ - Many of my biggest business endeavors were failures before they became a success. Some failed for as long as six years before they hit. Everyone around me thought I was crazy. You just have to stay at it.
+ - You can’t jump to vegan if you’re not. Some people are absolute. Some people are able to be gradual.
+ - If you wake up deciding what you want to give versus what you’re going to get, you become a more successful person. In other words, if you want to make money, you have to help someone else make money.
+ - People are afraid of failure – they don’t like to work so hard and have people keep saying, ‘No.’ I think that’s what people fear most.
+ - You have to learn to laugh all the time. It’s a practice of life. It’s a practice of happiness.
+ - Whatever obstacles appear in your path, put your head down and get past them. Those obstacles aren’t real. They’re just God’s way of testing you. He’s asking you, ‘Do you want to make it or not?’
+ - Art is a way to express yourself and through that you can escape a bad situation.
+ - Antisemitism is just another form of racism. It’s the same sickness, whether it’s about Christians, about Islamophobia, which is horrible. It’s all wrong. It’s all the same.
+ - You’ll see a lot of funny stuff, you’ll see a lot of daddy-knows-best stuff, you’ll see a lot of me and my wife trying to hold the family together.
+ - Hip-hop is a voice for voiceless poor people.
+ - Every time I go into a new venture, I find a “rabbi” who has the business acumen to help me understand the mechanics of that industry, the costs involved in developing a product, and what you need to do in order to make a profit.
+ - My wife Kimora once told me while we were watching “The Texas Chainsaw Massacre” that it’s a vegetarian movie because the way that the woman was screaming, “Aaaahhh,” and trying to run away is how every animal you eat reacted at the slaughterhouse.
+ - I’m always surrounded by smart talented people. I had talented partners. Stan Latham for one. Talent scouts.
+ - As long as you are passionate about your vision, you should keep moving forward.
+ - I think I’m less afraid of failure than some others.
+ - The best defense for any group of people is what we do to defend other people.
+ - I don’t like to say, Oh, this is my favorite record because there was a moment that that record made me feel a certain way. The one on the radio at the present moment could be the one that’s most inspiring, because it’s at that second that you’re aware of “the infinite everything.”
+ - I want to promote poetry to the point where you got all the baldhead kids running around doing poetry, getting the music out of the way and having only words, the spoken word, and then see what happens.
+ - There are songs and melody that make you really happy. And there are spiritual gifts that you have – giving these gifts away sometimes gives you that feeling of inspiration. These seconds of awareness make you realize that any second can be your favorite one, and it really is up to you.
+ - If you run a corporation, your job is to maximize the return on investment for your investors. Good for you. But by the same token, we have to remember that corporations have no compassion. That’s why legislation and regulations are necessary.
+ - I ask everyone – white Hollywood and black Hollywood – to get outside of your comfort zone and make friends. That’s where they’re going to learn from each other, and that’s where they’re going to make better movies and make Hollywood a better place.
+ - If you aren’t passionate about a vision, it’s hard to have faith in it.
+ - Anyone whose mission is keeping people apart is swimming against a very strong tide.
+ - I don’t believe that people create their own visions. Rather, I believe that visions are actually God’s way of communicating with us.
+ - Not every move you make has to be a great leap.
+ - Last year my wife got a Rolls-Royce.
+ - I think that’s what made rap such a stable footprint in culture, that it’s so honest.
+ - The thing about hip-hop is that it’s from the underground, ideas from the underbelly, from people who have mostly been locked out, who have not been recognized.
+ - Quit taking, start giving.
+ - In the end, the overriding factor in whether or not you realize your dreams is going to be you. Not the world. YOU.
+ - Cruelty is cruelty, whether it’s cruelty to children, to the elderly, to dogs and cats, or to chickens.
+ - I always say neediness is the cause of suffering. I’m not the only one who says it. It’s something I adopted and I believe.
+ - The seconds of presence are where most inspiration comes. There are sunsets that promote it.
+ - Always try to be yourself.
+ - I don’t know that God favors the person who has a greater reach than those who have a small reach. It’s the intention. I try to keep a positive intention, and use whatever resources I have to benefit others.
+ - The best way to protect both the policemen and the community going forward is by creating a system that’s just, where everyone feels safe.
+ - Get unstuck from whatever it is you perceive is holding you back from realizing your dreams.
+ - You know, the diversity that America has is so special. It’s starting to really become a cool thing for young people.
+ - I think when you’re very dedicated to something and you’re engaged fully, you become a giver.
+ - I’m not a politician. I only want to help relieve the suffering in communities, and I want to help people see their community in each other.
+ - Music is the noise that surrounds the stillness of the art form.
+ - Culture in America and everywhere else comes from the suffering, from those who don’t want the old ways. They want to bring in the new, whether it’s the ballet, when it started, or Shakespeare.
+ - I knew it was unrealistic to think I could build an institution overnight. But if I took baby steps, eventually it would happen.
+ - Labels cloud our vision and distract us from seeing how much we have in common with one another.
+ - I think the artist’s job throughout history has been to tell – to say things that people are inspired by.
+ - The reason I got a break in Hollywood when I moved here a few years ago is my good buddy, who I was on the beach with when he was a publicist, is now the chairman of HBO.
+ - Black actors on the road, flying around the country working as poets. Those people are inspirations for millions of kids who write.
+ - I would like to employ more people but I don’t want to empower my charities at the cost of exploiting people or doing things that are not useful, so I’m working on that.
+ - I think that diversity is key for the next American entrepreneurs. They want to be a part of this society where there is so much diversity they have to have people from all the experiences.
+ - I try to do things that I think are helpful to the environment, to the animals, and to the planet.
+ - I think people instinctively know that their job is to give service and that they are part of a community. It had a great impact on me when my father walked the picket lines and I walked with him during the civil rights movement.
+ - I had too many businesses that are frivolous. I have enough. What interests me most is under-served communities. We need a new style of empowering these people, and new approaches.
+ - I don’t eat anything that runs away from me.
+ - I kind of think that artists throughout history, poets throughout history have been criticized for sharing what’s on people’s minds and I don’t think it’s any different now.
+ - Hip-hop is such a wide statement of culture that everyone is not the same, and it’s impossible to put it into one box.
+ - I’m a big supporter of President Obama.
+ - No matter what we’ve done or where we’ve been, every single one of us can change.
+ - I feel the choices our president Barack Obama is making now are safer and better.
+ - When you do good by the world, the world will do good by you.
+ - There is no religious or any kind of a gender that should separate you from any religious ideas.
+ - I used to think anxiety and insomnia drove me to success, but it was the stillness that let me be good at anything. When you extend the seconds of stillness, that’s when you’re able to think and learn.
+ - Art allows people a way to dream their way out of their struggle.
+ - Young people, when they’re left alone, always want to have compassion, and they always want to give. They always want to help people who are less fortunate.
+ - Stay in your lane. If you’re good enough, people will move to you.
+ - Look at all the billionaires. If I know 15 billionaires, I know 13 unhappy people.
+ - We need to hear everyone. We need dialogue between police and the community. They’re angry. They’re hurt. A dialogue can cause a shift in consciousness in the person if he’s understanding you and listening.
+ - The poets who do this are uniquely conscious of this silence, this stillness.
+ - Your purpose is to act on the resources God gives you. If God gives you a bucket of fish, you have to distribute those fish. If you don’t, they’re going to rot, attract a bunch of flies, and start stinking up your soul.
+ - Meditation can reintroduce you to the part that’s been missing.
+ - It’s important to focus on what we do best and master one craft at a time.
+ - One positive thought can change your whole day.
+ - If it feels like your life has become a nasty, brackish puddle of water, never forget that you do possess the power to transform it into a beautiful, rushing stream that will carry you to enlightenment.
+ - If you are a good giver, you will be great getter. The less you need, the more you attract.
+ - Decide that no matter what is happening around you, the sun will always be shining in your world.
+ - I think if you’re open-minded, the road will take you where it takes you. If you’re closed, you might not get to go where the road is heading.
+ - Poverty and lack of knowledge must be challenged.
+ - Needing nothing really is the ultimate goal. And to have nothing to do with things.
+ - The past gives great examples of what can happen in the future. It’s always important to remember.
+ - When you give without reservation, you’ll become a magnet that pulls the world toward you.
+ - You have to live your life as if you are already where you want to be.
+ - Hip-hop took some lessons from rock ‘n’ roll, and rock ‘n’ roll took some lessons from hip-hop.
+ - I want to fight poverty and ignorance and give opportunity to those people who are locked out.
+ - Hip-hop is about tearing down the system to better it, tearing down the system to better themselves. No matter how flimsy it might seem, they always wanted the finer things in life.
+ - That really is the best part of being a dad. You remember what’s important in life.
+ - Everyone’s goal is to be happy. Happiness is achieved by promoting happiness to others.
+ - There are poor white people who hear rap music and feel it is about them, because it is. That’s why you have an Eminem and a Bubba Sparxxx and rappers like that.
+ - If you learn late, you pass it on to people so they can learn early. It’s a step process.
+ - I know some people say “Keep your eyes on the prize,” but I disagree. When your eyes are stuck on the prize, you’re going to keep stumbling and crashing into things. If you really want to get ahead, you’ve got to keep your eyes focused on the path.
+ - It’s all about the work. Nothing is going to fall into your lap. If you want to be a lawyer, see yourself as a lawyer, go to the library and start learning the law. If you want to be a rapper, start rapping and get out there. Live your life as if you already are where you want to be.
+ - You know, I love all kinds of activism. I certainly think blacks deserve to have something whether it is affirmative action or an opportunity that should be opened up to them. But at the same time I believe that people of color are not the only poor people in America and all over the world.
+ - I just try to, in my own way, contribute to making a better Hollywood, to move Hollywood to be a leader in social justice, as it always has been, and not to have any holes in their own backyard while they continue to push for equality and all the things that they always stand up for.
+ - My little girls are the most beautiful women in the world. I am a lucky, lucky man. I will spend every day making sure that they know this.
+ - Nowhere in the Bible, Koran, or Torah does it say, “If you curse, then you’re going to hell.” But everywhere it says that if you kill, you’re going to wherever they send you, depending on the religion.
+ - The imagination is how things get done. You have to cultivate creativity.
+ - My experiences have been, from the very beginning, cultural and creative. And my business has been a way of exposing the culture, exposing the artists so that the world could hear and see them.
+ - You don’t expect a 94-year-old white guy to pick “Dope,” which was an awesome movie not even close to being considered by the Academy. And that’s what it’s all about, like, promoting people who might not otherwise get promoted and celebrating people who might not get celebrated.
+ - I don’t eat any animals or anything that has to do with animals. No fish or egg or dairy because I personally don’t feel it’s a good practice to eat anything that might run away from you.
+ - I have 2 million Twitter followers. Some of those people are also yogis and activists and people who really go out and make a difference. I do as much as I can with my voice. It’s effortless in some cases. I try to remind everybody that they have that kind of voice.
+ - American democracy is spoiled by people buying everything in sight and then selling and buying everything in sight, including our politicians.
+ - As I get, I give. Giving as you get is critical. It has everything to do with being happy for yourself, and making others happy is the cause of making yourself happy, and it’s the cycle of giving and getting.
+ - I try to use my voice. I know that celebrity is valuable, and people do listen.
+ - Judgment of the people in the situation is not helpful. How can you help them is the question.
+ - Learn to let your thoughts exist on their own without getting too involved in them.
+ - In my heart, I know that marriage equality for every human being isn’t a question of if, but only a matter of when. I ask those who feel that giving freedom to others somehow binds you, to please take a good look at what you are standing behind.
+ - I know a lot of angry liberals right now. Hell, I know a lot of angry vegans.
+ - Everything you need to know about success is inside of you, because I believe it is inside of all of us. That is, all human beings have potential for infinite success.
+ - I applaud what the Oscars are doing to promote diversity. I think it’s great.
+ - People will always blame the poets for society’s ills. But these are the true artists.
+ - The stuff I do, I do every day, and I’ve been doing it for long periods of time. I don’t start and quit-ever. I start and stay on it.
+ - Actresses are kind of a little crazy.
+ - If you want to say something profound, writing from your heartbeat is different than writing from the loud voices you get from music. If they’re rapping from noise, it’s about robbing people. It’s that simple.
+ - You will be a great entrepreneur if you operate with a real sincere wanting to serve.
+ - In the morning I stand up, scratch a little bit, then I light a candle and I meditate. Every morning. I’ve been meditating for maybe 20 years. I meditate so I can make choices; so I’m not a sheep all the time. So I can see better than what everyone else is doing.
+ - I mostly eat healthy. I just do. I’m not a vegan for health reasons – although obviously I’m 20 pounds lighter than when I started. I stayed 20 pounds lighter. I feel better. My friends say I look better. All that’s true. But I’m a vegan for compassionate reasons.
+ - That was never my intention to compete with the Oscars.
+ - Service is the key to everything in life.
+ - There is no happiness until the mind is still. The cause of all sickness and sadness is the fluctuation of the mind.
+ - I try to make my life about service, and hope that one day we can all ‘see’ a little better because God is with everyone and everywhere.
+ - I think I will always have a connection to young people, to try to bring their voices to the polls, bring their voices wherever they can make a difference. Even to protect their own interests or the interests of the planet or the animals or other individuals, which is critical. I try to keep it.
+ - It is crucial that rappers have the chance to express the truth that is in their heart.
+ - Well, it’s the last step of the civil rights movement: You know, wrap your hands around some money, right?
+ - You can be anything you want to be, and you can start today, instead of waiting for some opportunity.
+ - The soundtrack in the poetry is the soundtrack from your own heartbeat.
+ - I like to move towards a place where my greatest experience is promoting happiness for others. I know that that creates a cycle of the same great experience.
+ - Mistakes only cost you when you don’t acknowledge them.
+ - I’ve been blessed to find people who are smarter than I am, and they help me to execute the vision I have.
+ - I would never condone violence against women in any form, and for all of those I offended, I am sincerely sorry.
+ - I don’t use my brain about the creative thing. From a business standpoint, I instinctively do things: when I get something right, it’s never because I use my brain.
+ - The conditions of suffering that exist today in our impoverished communities are not acceptable. The reflection of those conditions are less concerning to me. And I work everyday about changing the conditions.
+ - I don’t want to appease everyone. It seems very difficult to be steadfast on truth and be a politician.
+ - But rich or poor, black or white, none of us are entitled to anything.
+ - There’s one overriding issue, namely, that we live in a police state so long as the police get to police themselves. And that is why cops go unindicted.
+ - A clear and focused mind will last a lifetime. Getting your mind in shape is nothing less than the key to sustainable success in the world.
+
+176 quotes

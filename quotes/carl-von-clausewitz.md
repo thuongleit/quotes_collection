@@ -1,0 +1,117 @@
+ - The enemy of a good plan is the dream of a perfect plan.
+ - The best form of defense is attack.
+ - Pursue one great decisive aim with force and determination.
+ - To secure peace is to prepare for war.
+ - Knowledge must become capability.
+ - There is only one decisive victory: the last.
+ - Talent and genius operate outside the rules, and theory conflicts with practice.
+ - It is even better to act quickly and err than to hesitate until the time of action is past.
+ - No campaign plan survives first contact with the enemy.
+ - War is nothing but a duel on a larger scale.
+ - By ‘intelligence’ we mean every sort of information about the enemy and his country – the basis, in short, of our own plans and operations.
+ - Knowing is different from doing and therefore theory must never be used as norms for a standard, but merely as aids to judgment.
+ - Blood is the price of victory.
+ - No one starts a war – or rather, no one in his sense ought to do so – without first being clear in his mind what he intends to achieve by the war and how he intends to conduct it.
+ - There are very few men-and they are the exceptions-who are able to think and feel beyond the present moment.
+ - The conqueror is always a lover of peace; he would prefer to take over our country unopposed.
+ - Four elements make up the climate of war: danger, exertion, uncertainty and chance.
+ - Boldness becomes rarer, the higher the rank.
+ - Savage peoples are ruled by passion, civilized peoples by the mind.
+ - Desperate affairs require desperate remedies.
+ - Given the same amount of intelligence, timidity will do a thousand times more damage than audacity.
+ - Every age has its own kind of war, its own limiting conditions and its own peculiar preconceptions.
+ - Courage, above all things, is the first quality of a warrior.
+ - The political object is the goal, war is the means of reaching it, and the means can never be considered in isolation form their purposes.
+ - A conqueror is always a lover of peace.
+ - Be audacious and cunning in your plans, firm and persevering in their execution, determined to find a glorious end.
+ - Two qualities are indispensable: first, an intellect that, even in the darkest hour, retains some glimmerings of the inner light which leads to truth; and second, the courage to follow this faint light wherever it may lead.
+ - Criticism exists only to recognize the truth, not to act as judge.
+ - War is the realm of uncertainty; three quarters of the factors on which action is based are wrapped in a fog of greater or lesser uncertainty.
+ - War is politics by other means.
+ - The great uncertainty of all data in war is because all action, to a certain extent, planned in a mere twilight – like the effect of a fog – gives things exaggerated dimensions and unnatural appearance.
+ - Self-reliance is the best defence against the pressures of the moment.
+ - The art of war in its highest point of view is policy.
+ - Only the element of chance is needed to make war a gamble, and that element is never absent.
+ - Where absolute superiority is not attainable, you must produce a relative one at the decisive point by making skillful use ofwhat you have.
+ - The world has a way of undermining complex plans. This is particularly true in fast moving environments. A fast moving environment can evolve more quickly than a complex plan can be adapted to it. By the time you have adapted, the target has changed.
+ - War is an act of force, and to the application of that force there is no limit. Each of the adversaries forces the hand of the other, and a reciprocal action results which in theory can have no limit...
+ - A prince or general can best demonstrate his genius by managing a campaign exactly to suit his objectives and his resources, doing neither too much nor too little.
+ - Battles decide everything.
+ - If you entrench yourself behind strong fortifications, you compel the enemy seek a solution elsewhere.
+ - The best strategy is always to be very strong.
+ - The side that feels the lesser urge for peace will naturally get the better bargain.
+ - War should never be thought of as something autonomous, but always as an instrument of policy.
+ - Many intelligence reports in war are contradictory; even more are false, and most are uncertain.
+ - Politics is the womb in which war develops.
+ - Timidity is the root of prudence in the majority of men.
+ - With uncertainty in one scale, courage and self-confidence should be thrown into the other to correct the balance. The greater they are, the greater the margin that can be left for accidents.
+ - Whoever does great things with small means has successfully reached the goal.
+ - Boldness will be at a disadvantage only in an encounter with deliberate caution, which may be considered bold in its own right, and is certainly just as powerful and effective; but such cases are rare.
+ - Where execution is dominant, as it is in the individual events of a war whether great or small, then intellectual factors are reduced to a minimum.
+ - Intelligence alone is not courage, we often see that the most intelligent people are irresolute. Since in the rush of events a man is governed by feelings rather than by thought, the intellect needs to arouse the quality of courage, which then supports and sustains it in action.
+ - Although our intellect always longs for clarity and certainty, our nature often finds uncertainty fascinating.
+ - In war more than anywhere else, things do not turn out as we expect.
+ - In war the will is directed at an animate object that reacts.
+ - Knowledge in war is very simple, being concerned with so few subjects, and only with their final results at that. But this does not make its application easy.
+ - Politics is the womb in which war develops – where its outlines already exist in their hidden rudimentary form, like the characteristics of living creatures in their embryos.
+ - War therefore is an act of violence to compel our opponent to fulfill our will.
+ - In war, where imperfect intelligence, the threat of a catastrophe, and the number of accidents are incomparably greater than any other human endeavor, the amount of missed opportunities, so to speak, is therefore bound to be greater.
+ - In war, while everything is simple, even the simplest thing is difficult. Difficulties accumulate and produce frictions which no one can comprehend who has not seen war.
+ - The backbone of surprise is fusing speed with secrecy.
+ - There are cases in which the greatest daring is the greatest wisdom.
+ - I shall proceed from the simple to the complex. But in war more than in any other subject we must begin by looking at the nature of the whole; for here more than elsewhere the part and the whole must always be thought of together.
+ - Everything in war is very simple. But the simplest thing is difficult.
+ - Boldness governed by superior intellect is the mark of a hero.
+ - All war presupposes human weakness and seeks to exploit it.
+ - Surprise becomes effective when we suddenly face the enemy at one point with far more troops than he expected. This type of numerical superiority is quite distinct from numerical superiority in general: it is the most powerful medium in the art of war.
+ - Never forget that no military leader has ever become great without audacity.
+ - In War, the young soldier is very apt to regard unusual fatigues as the consquence of faults, mistakes, and embarrassment in the conduct of the whole, and to become distressed and depondent as a consequence. This would not happen if he had been prepared for this beforehand by exercises in peace.
+ - It should be noted that the seeds of wisdom that are to bear fruit in the intellect are sown less by critical studies and learned monographs than by insights, broad impressions, and flashes of intuition.
+ - What we should admire is the acute fulfillment of the unspoken assumptions, the smooth harmony of the whole activity, which only become evident in the final success.
+ - Every combat is the bloody and destructive measuring of the strength of forces, physical and moral; whoever at the close has the greatest amount of both left is the conqueror.
+ - The more physical the activity, the less the difficulties will be. The more the activity becomes intellectual and turns into motives which exercise a determining influence on the commander’s will, the more the difficulties will increase.
+ - War is only caused through the political intercourse of governments and nations – war is nothing but a continuation of political intercourse with an admixture of other means.
+ - The only situation a commander can know fully is his own: his opponent’s he can know only from unreliable intelligence.
+ - Men are always more inclined to pitch their estimate of the enemy’s strength too high than too low, such is human nature.
+ - In war, more than anywhere else in the world, things happen differently from what we had expected, and look differently when near from what they did at a distance.
+ - The more a leader is in the habit of demanding from his men, the surer he will be that his demands will be answered.
+ - The heart of France lies between Brussels and Paris.
+ - War is the province of chance. in no other sphere of human activity must such a margin be left for this intruder. it increases the uncertainty of every circumstance and deranges the course of events.
+ - Obstinacy is a fault of temperament. Stubbornness and intolerance of contradiction result from a special kind of egotism, which elevates above everything else the pleasure of its autonomous intellect, to which others must bow.
+ - There is nothing more common than to find considerations of supply affecting the strategic lines of a campaign and a war.
+ - No other human activity is so continuously or universally bound up with chance. And through the element of chance, guesswork and luck come to play a great part in war.
+ - War is not an independent phenomenon, but the continuation of politics by different means.
+ - If we read history with an open mind, we cannot fail to conclude that, among all the military virtues, the energetic conduct of war has always contributed most to glory and success.
+ - Close combat, man to man, is plainly to be regarded as the real basis of combat.
+ - War is an act of violence pushed to its utmost limits.
+ - A certain grasp of military affairs is vital for those in charge of general policy.
+ - In the whole range of human activities, war most closely resembles a game of cards.
+ - Great things alone can make a great mind, and petty things will make a petty mind unless a man rejects them as completely alien.
+ - War is the domain of physical exertion and suffering.
+ - Der Krieg ist nichts als eine Fortsetzung des politischen Verkehrs mit Einmischung anderer Mittel. War is merely the continuation of policy with the admixture of other means.
+ - A general who allows himself to be decisively defeated in an extended mountain position deserves to be court-martialled.
+ - As each man’s strength gives out, as it no longer responds to his will, the inertia of the whole gradually comes to rest on the commander’s will alone. The ardor of his spirit must rekindle the flame of purpose in all others; his inward fire must revive their hope.
+ - The invention of gunpowder and the constant improvement of firearms are enough in themselves to show that the advance of civilization has done nothing practical to alter or deflect the impulse to destroy the enemy, which is central to the very idea of war.
+ - Beauty cannot be defined by abscissas and ordinates; neither are circles and ellipses created by their geometrical formulas.
+ - The majority of people are timid by nature, and that is why they constantly exaggerate danger. all influences on the military leader, therefore, combine to give him a false impression of his opponent’s strength, and from this arises a new source of indecision.
+ - The very nature of interactions is bound to make it unpredictable.
+ - To be practical, any plan must take account of the enemy’s power to frustrate it.
+ - All action takes place, so to speak, in a kind of twilight, which like a fog or moonlight, often tends to make things seem grotesque and larger than they really are.
+ - Blind aggressiveness would destroy the attack itself, not the defense.
+ - We shall not enter into any of the abstruse definitions of war used by publicists. We shall keep to the element of the thing itself, to a duel. War is nothing but a duel on an extensive scale.
+ - Strength of character does not consist solely in having powerful feelings, but in maintaining one’s balance in spite of them.
+ - The more a general is accustomed to place heavy demands on his soldiers, the more he can depend on their response.
+ - Just as some plants bear fruit only if they don’t shoot up too high, so in practical arts the leaves and flowers of theory must be pruned and the plant kept close to its proper soil- experience.
+ - Modern wars are seldom fought without hatred between nations; this serves more or less as a substitute for hatred between individuals.
+ - Of all the passions that inspire a man in a battle, none, we have to admit, is so powerful and so constant as the longing for honor and reknown.
+ - The deduction of effect from cause is often blocked by some insuperable extrinsic obstacle: the true causes may be quite unknown. Nowhere in life is this so common as in war, where the facts are seldom fully known and the underlying motives even less so.
+ - War is a conflict of great interests which is settled by bloodshed, and only in that is it different from others.
+ - Responsibility and danger do not tend to free or stimulate the average person’s mind- rather the contrary; but wherever they do liberate an individual’s judgement and confidence we can be sure that we are in the presence of exceptional ability.
+ - Only great and general battles can produce great results.
+ - The difficulty of accurate recognition constitutes one of the most serious sources of friction in war, by making things appear entirely different from what one had expected.
+ - Principles and rules are intended to provide a thinking man with a frame of reference.
+ - If the leader is filled with high ambition and if he pursues his aims with audacity and strength of will, he will reach them in spite of all obstacles.
+ - Pursue one great decisive aim with force and determination. The bloody solution of the crisis, the effort for the destruction of the enemy’s forces, is the first-born son of war. Only great and general battles can produce great results. Blood is the price of victory.
+ - Action in war is like movement in a resistant element. Just as the simplest and most natural of movements, walking, cannot easily be performed in water, so in war, it is difficult for normal efforts to achieve even moderate results.
+
+115 quotes

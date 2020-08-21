@@ -1,0 +1,78 @@
+ - You’ll hunt me. You’ll condemn me. Set the dogs on me. Because that’s what needs to happen. Because sometimes truth isn’t good enough. Sometimes people deserve more. Sometimes people deserve to have their faith rewarded.
+ - Whatever you do, do it completely. Don’t do it half-arsed. Do it more than anybody else would.
+ - The art of survival is a story that never ends.
+ - Sometimes the truth isn’t good enough. Sometimes people have got to have their faith rewarded.
+ - I won’t kill you but I don’t have to save you.
+ - People need dramatic examples to shake them out of apathy and I can’t do that as Bruce Wayne. As a man I’m flesh and blood, I can be ignored, I can be destroyed, but as a symbol, as a symbol I can be incorruptible. I can be everlasting.
+ - I started my career without fans.
+ - I like being responsible for myself.
+ - It’s the actors who are prepared to make fools of themselves who are usually the ones who come to mean something to the audience.
+ - Were all conning ourselves, one way or another, just to get through life.
+ - I find something fascinating about the quiet man in the background who has no desire to be the center of attention.
+ - It was just the two of us, inside there with just mirrors, all the way around us. Everywhere we looked, there were these two freaks, sitting at a table, eyeballing each other.
+ - It’s about pursuing it rather than waiting to see what comes along. That’s partly because I found myself getting typecast, as everyone does unless they pursue roles that are very different from what they’ve done before.
+ - It’s very easy to leave when things go wrong, but to stick around and to basically give life to a town because of everything that it gave you generation after generation after generation, that to me is what defines a true American.
+ - I have a very sissy job, where I go to work and get my hair done, and people do my makeup, and I go and say lines and people spoil me rotten. And everyone has that kind of curiosity of how far can you go, how far can you take it. I think it’s always good testing yourself.
+ - My hope is that people will be repulsed by the character’s complete lack of ethics and obsession with consumerism – that’s what I was saying about the difference between the character’s message and the film’s message.
+ - It’s about pursuing it rather than waiting to see what comes along.
+ - I like the idea of movies having a magic element. How many times have you seen an actor in a movie who you know only as the character? It’s wonderful, isn’t it?
+ - I never want to turn something down because I’m afraid to do it, because of some idea of image or whatever. That was never anything I set out to do. In fact, the opposite, I always want to confuse people in terms of any kind of image and be unpredictable in any kind of movie I make.
+ - You have to treat yourself like a mushroom to some degree, in order to keep on discovering things.
+ - Personally, I love going to see a film when you can really watch a character. If you’ve just read some article about who the actor is sleeping with, that’s gonna be at the back of your mind all the time while you’re watching the film.
+ - I was born in Wales but I’m not Welsh – I’m English.
+ - You say something bad about Newsies and you have an awful lot of people to answer to.
+ - I met my grandfather just before he died, and it was the first time that I had seen Dad with a relative of his. It was interesting to see my own father as a son and the body language and alteration in attitude that comes with that, and it sort of changed our relationship for the better.
+ - Being misunderstood is not a bad thing as an actor. I know the truth.
+ - I’m not really looking forward to wearing a black rubber suit in the summertime in humid Chicago. If you see a pool of sweat through the city, follow it and you will find me.
+ - I’m English. Our dentistry is not world famous.
+ - After the modest success of my first film, I found it very daunting to have to live with that kind of burden of expectations.
+ - I’m English. Our dentistry is not world famous. But I made sure I got moldings of my old teeth beforehand because I miss them.
+ - I’ve had some painful experiences in my life, but I feel like I’m trivializing them by using them for a scene in a movie. I don’t want to do that. It just makes me feel kind of dirty for having done that.
+ - I’m an actor I’m not a politician. I always kick myself when I talk too much about family, or personal things.
+ - My dad was the biggest influence on my life because he was never boring.
+ - And being as I’m somebody who loves movies like The Machinist, I also love going along to big mass entertainment movies. I get in the mood for all kinds of movies, and so I like to try each of them.
+ - Research can be interesting, but it can be pointless as well. The realities of making a movie often are not conducive with that. I’m not knocking it. I love doing research myself, but I admit it doesn’t always add to the performance.
+ - The blue collar milieu was something that I really understood and resonated with me and I thought was underrepresented in American cinema.
+ - I feel like I’m pretty good but I don’t like to toot my own horn, you know. I want to let the work speak for itself and kind of move on to the next thing.
+ - I would have been very happy just cruising around and enjoying the unexpected. I’ve never been ambitious.
+ - Obviously there are times with acting when exactly what is required is just going through the motions, and when doing nothing is the best thing. But at other times, you have to make that leap beyond the immediate environment of people putting up lights on the set.
+ - Art is something to be proud of. Art is no compromise. As an actor, you’re giving it up, you’re at the mercy of so many other people.
+ - I went backwards and forwards over it until I was 22. And then in the past few years I began to say to myself, OK, look, I’m not messing around. This is something I want to attack, instead of thinking, I’ll just see what happens with it.
+ - I think the harder the shoot, the more I feel like I’m enjoying myself.
+ - I want to do good work. I want the opportunity to work with good people, and the only way I’m gonna do that is to commit 110% – you get out what you put in.
+ - I swear, the bigger your muscles get, the duller you are. You become fascinated with carbs and protein and ripped abs and things that are just not interesting at all.
+ - All of the muscles were gone, so that was a real tough time of rebuilding all of that. But you have a deadline, you have an obligation. You’ve said that you will commit to this part, and I just can’t live with myself for not really giving it as much as I can.
+ - It’s tough to make a good movie. I think the bigger the movies are, the worse they are. A lot of big movies make a lot of money and you kind of forget about what they are and they don’t really make you think.
+ - I start from scratch with each movie; I wipe the slate and I certainly don’t rely on some bag of acting tricks I’ve amassed over the years.
+ - I never try to guess what anyone else will take from a movie. Every movie is such a different experience for each and every person. I don’t like it when people try telling people what they should take from a movie. You should go see it with fresh eyes and see for themselves.
+ - Any planning that I have in my career is totally accidental really.
+ - You get those occasional moments when you’re absolutely calm, and you’ve just done something that would have scared you shitless earlier that day, and you’ve just done it like it was nothing. I find that very relaxing.
+ - Nuclear apocalypse-who do you need? Actors are probably not top of the list. What can I do for you? I can pretend to be somebody who can grow you some nice crops.
+ - And I not only inherited an aversion to the nine-to-five routine, but the sense from my parents that being bored and boring is the worst thing that you can be.
+ - There’s a level of confidence in the actor you’re working with that really helps a lot. It makes all the difference.
+ - There have been many times when you spend a number of months and the finished product is not what you wanted to see. And ‘Batman Begins’ was what I wanted to see.
+ - It’s a wonderful thing when your trainer is actually the person you’re playing.
+ - Essentially, I’m untrained, so I just go with my imagination and try to put myself as solidly as I can into the shoes of whatever person I’m going to be playing.
+ - I think there’s a limited amount of planning you can do, at least in the position I’m in. Maybe more successful actors can plan more than I’m able to.
+ - I never, in any city I’ve ever been in, never remember the names of streets. The longest place I ever lived in was for five years and I didn’t know the name of the next street over.
+ - A lot of actors say that theater’s the thing for them. And that’s great, and I’m not one to speak with any authority about it because of not having done it properly. For me, movies are what I love.
+ - There’s nothing like boxing for getting you in shape.
+ - I ain’t the first on the list that people are sending scripts to. I’m very lucky. I’ve managed to put myself in the position with some directors, who will be calling me directly, and we’re working on things and talking about things, but that’s on a purely creative level.
+ - I don’t get it when you get so much openness about the way movies are made, and the special effects and the behind-the-scenes stuff and all of that. I can’t help but feel like this reduces it a little bit.
+ - If you’re smart you’re just gonna be all about the work. But as a young person, you want to going out to clubs and doing all the stuff. I’m just glad I survived it.
+ - When you do a lot of interviews, you find yourself telling the same stories over and over. After you do it for a whole day, you say, ‘Christ, I’ve said this five times today.’ It gets fun when you get so bored you start making it all up.
+ - I always want to confuse people in terms of any kind of image and be unpredictable in any kind of movie I make.
+ - It was a great honor to be called a mo-fo by Sam Jackson.
+ - I want to be able to just act and never do any interview, but I don’t have the balls to stand up to the studio and say, “I’m never doing another interview in my life!”
+ - What I like about it is that I’m not somebody who’s in movies. I’m a guy who’s not very good going around the track with a bunch of guys who are a hell of a lot better.
+ - There are occasions when I’ve pretended to be in a firefight, and then there are people who have really been in a firefight. Clearly it’s absolutely ridiculous, and even disrespectful, to suggest that I understand what that is.
+ - In honesty, there are probably a lot of stories that can be told with Batman. I like the idea of him growing older and he can’t quite do it as much anymore.
+ - I think it’s important when you’re acting to be as relaxed as possible even if you’re doing something intense. You’re basically in a state of dynamic relaxation.
+ - Directors go their whole career without being able to tell personal stories and to work with a cast as talented as they are.
+ - You have to make an effort to be in an unprotected environment because everyone thinks you’re a completely incapable idiot who couldn’t possibly brush his teeth without an assistant. You have to make an effort in order to be able to actually experience the country that you’re in.
+ - I’ve always felt that I would rather see an actor, writer, or musician’s work, rather than actually know the person. If you know too much about an artist, it somehow lessens their ability to do their work as well.
+ - I quite like it when you’re working with people and you only get to know them through the scenes that you’re doing together.
+ - I chose to tell a personal story. When you tell a movie like this that’s as emotionally charged as this is, it’s a risk. As one of my great cinematic heroes, Francis Coppola, would say, “If you aren’t taking the highest, greatest risk, then why are you a filmmaker?”
+ - When it comes to films, people often don’t differentiate between the message of a bad central character and the message of the film itself. They are two separate things.
+
+76 quotes

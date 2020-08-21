@@ -1,0 +1,79 @@
+ - Kill one man, and you are a murderer. Kill millions of men, and you are a conqueror. Kill them all, and you are a god.
+ - My pessimism extends to the point of even suspecting the sincerity of other pessimists.
+ - Theories pass. The frog remains.
+ - Science has made us gods even before we are worthy of being men.
+ - When a scientist is ahead of his times, it is often through misunderstanding of current, rather than intuition of future truth. In science there is never any error so gross that it won’t one day, from some perspective, appear prophetic.
+ - On the brink of being satiated, desire still appears infinite.
+ - We spend our time envying people whom we wouldn’t wish to be.
+ - To reflect is to disturb one’s thoughts.
+ - One kills a man, one is an assassin; one kills millions, one is a conqueror; one kills everybody, one is a god.
+ - Literature: proclaiming in front of everyone what one is careful to conceal from one’s immediate circle.
+ - Think? Why think! We have computers to do that for us.
+ - We give others praise which we ourselves don’t believe, as long as they respond with praise we can believe.
+ - A man is not old as long as he is seeking something.
+ - Quotations – always inexact. I don’t trust people who cannot even copy out.
+ - It is horrible to see everything that one detested in the past coming back wearing the colors of the future.
+ - A married couple are well suited when both partners usually feel the need for a quarrel at the same time.
+ - I still understand a few words in life, but I no longer think they make a sentence.
+ - Never feel remorse for what you have thought about your wife; she has thought much worse things about you.
+ - Somebody told me I should put a pebble in my mouth to cure my stuttering. Well, I tried it, and during a scene I swallowed the pebble. That was the end of that.
+ - The nobility of a human being is strictly independent of that of his convictions.
+ - It takes a very deep-rooted opinion to survive unexpressed.
+ - To be adult is to be alone.
+ - We must watch over our modesty in the presence of those who cannot understand its grounds.
+ - There are things that don’t deserve to be said briefly.
+ - Beauty in art is often nothing but ugliness subdued.
+ - Stupidity, outrage, vanity, cruelty, iniquity, bad faith, falsehood – we fail to see the whole array when it is facing in the same direction as we.
+ - To love an idea is to love it a little more than one should.
+ - In our ideals we unwittingly reveal our vices.
+ - God, that checkroom of our dreams.
+ - Truth is always served by great minds, even if they fight it.
+ - Greatness, in order to gain recognition, must all too often consent to ape greatness.
+ - We find it easy to believe that praise is sincere: why should anyone lie in telling us the truth?
+ - In order to remain true to oneself one ought to renounce one’s party three times a day.
+ - Marriage simplifies life and complicates the day.
+ - It is sometimes important for science to know how to forget the things she is surest of.
+ - Nothing leads the scientist so astray as a premature truth.
+ - It is not easy to imagine how little interested a scientist usually is in the work of any other, with the possible exception of the teacher who backs him or the student who honors him.
+ - When I was young I pitied the old. Now old, it is the young I pity.
+ - A body of work such as Pasteur’s is inconceivable in our time: no man would be given a chance to create a whole science. Nowadays a path is scarcely opened up when the crowd begins to pour in.
+ - It is sometimes well for a blatant error to draw attention to overmodest truths.
+ - There are certain moments when we might wish the future were built by men of the past.
+ - Kill one man, and you are murderer.
+ - Being right is less important to us than the freedom to be wrong.
+ - Science had better not free the minds of men too much, before it has tamed their instincts.
+ - I prefer the honest jargon of reality to the outright lies of books.
+ - Renown? I’ve already got more of it than those I respect, and will never have as much as those for whom I feel contempt...
+ - I don’t judge a regime by the damning criticism of the opposition, but by the ingenuous praise of the partisan.
+ - There are moments when very little truth would be enough to shape opinion. One might be hated at extremely low cost.
+ - Far too often the choices reality proposes are such as to take away one’s taste for choosing.
+ - One must either take an interest in the human situation or else parade before the void.
+ - I think I am one of those who can manage not to take on a completely different appearance under their own glance.
+ - I should have no use for a paradise in which I should be deprived of the right to prefer hell.
+ - To say of men that they are bad is to say they are worse than we think we are, or worse than the ideal man whose image we have built up on the basis of a certain few.
+ - Falsity cannot keep an idea from being beautiful; there are certain errors of such ingenuity that one could regret their not ranking among the achievements of the human mind.
+ - The divine is perhaps that quality in man which permits him to endure the lack of God.
+ - Hatred, for the man who is not engaged in it, is a little like the odor of garlic for one who hasn’t eaten any.
+ - In art as in life the valid sacrifices are those that bring no income.
+ - The ideal, without doubt, varies, but its enemies, alas, are always the same.
+ - One must credit an hypothesis with all that has had to be discovered in order to demolish it.
+ - To be able to observe with a stranger’s eye helps one to see with an artist’s eye. What alienates us inspires.
+ - The books one has written in the past have two surprises in store: one couldn’t write them again, and wouldn’t want to.
+ - What makes our opponents useful is that they allow us to believe that without them we would be able to realize our goals.
+ - In politics, yesterday’s lie is attacked only to flatter today’s.
+ - Whether man is disposed to yield to nature or to oppose her, he cannot do without a correct understanding of her language.
+ - Take heed of critics even when they are not fair; resist them even when they are.
+ - Prerequisite for rereadability in books: that they be forgettable.
+ - To live is often to struggle toward goals one has no desire to reach.
+ - A few great minds are enough to endow humanity with monstrous power, but a few great hearts are not enough to make us worthy of using it.
+ - Already at the origin of the species man was equal to what he was destined to become.
+ - There are some persons we could not cut down to size without diminishing ourselves as well.
+ - The least one can say of power is that a vocation for it is suspicious.
+ - It may offend us to hear our own thoughts expressed by others: we are not sure enough of their souls.
+ - What scientist would not long to go on living, if only to see how the little truths he has brought to light will grow up?
+ - Certain brief sentences are peerless in their ability to give one the feeling that nothing remains to be said.
+ - We bestow on others praise in which we do not believe, on condition that in return they bestow upon us praise in which we do.
+ - The biologist passes. The frog stays the same.
+ - There are big and little truths, but all belong to the same race.
+
+77 quotes

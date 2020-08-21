@@ -1,0 +1,72 @@
+ - Normal is getting dressed in clothes that you buy for work and driving through traffic in a car that you are still paying for – in order to get to the job you need to pay for the clothes and the car, and the house you leave vacant all day so you can afford to live in it.
+ - There’s a trick to the Graceful Exit. It begins with the vision to recognize when a job, a life stage, a relationship is over – and to let go. It means leaving what’s over without denying its value.
+ - Maybe this year, we ought to walk through the rooms of our lives not looking for flaws, but looking for potential.
+ - I rewrite a great deal. I’m always fiddling, always changing something. I’ll write a few words – then I’ll change them. I add. I subtract. I work and fiddle and keep working and fiddling, and I only stop at the deadline.
+ - The truth is that we can overhaul our surroundings, renovate our environment, talk a new game, join a new club, far more easily than we can change the way we respond emotionally. It is easier to change behavior than feelings about that behavior.
+ - Parents remain our touchstones, fellow travelers, even after death. They are both missing and present.
+ - In the biotech revolution, it is the human body, not iron or steel or plastic, that’s at the source. Are the biocapitalists going to be allowed to dig without consent into our genetic codes, then market them?
+ - The central struggle of parenthood is to let our hopes for our children outweigh our fears.
+ - This packrat has learned that what the next generation will value most is not what we owned, but the evidence of who we were and the tales of how we loved. In the end, it’s the family stories that are worth the storage.
+ - My father used to say that if a man fools you once, he’s a jerk. If he fools you twice, you’re a jerk. Only he didn’t use the word “jerk.”
+ - Ultimately, time is all you have and the idea isn’t to save it, but to savour it.
+ - You can teach someone who cares to write columns, but you can’t teach someone who writes columns to care.
+ - What he labels sexual, she labels harassment.
+ - We are told that people stay in love because of chemistry, or because they remain intrigued with each other, because of many kindnesses, because of luck. But part of it has got to be forgiveness and gratefulness.
+ - In today’s amphetamine world of news junkies, speed trumps thoughtfulness too often.
+ - Age is an accumulation of life and loss. Adulthood is a series of lines crossed.
+ - I wonder whether our adoption of Shrink-ese as a second language, the move from religious phrases of judgment to secular words of acceptance, hasn’t also produced a moral lobotomy. In the reluctance, the aversion to being judgmental, are we disabled from making any judgments at all?
+ - Most people do not consider dawn to be an attractive experience – unless they are still up.
+ - What do I want to take home from my summer vacation? Time. The wonderful luxury of being at rest. The days when you shut down the mental machinery that keeps life on track and let life simply wander. The days when you stop planning, analyzing, thinking and just are. Summer is my period of grace.
+ - Taboos are falling across our culture like dominoes. What was unspeakable yesterday dominates talk shows today.
+ - Traditions are the guideposts driven deep in our subconscious minds. The most powerful ones are those we can’t even describe and aren’t even aware of.
+ - I vote because it’s what small-d democracy is about. Because there are places where people fight for generations and stand for hours to cast a ballot knowing what we ought to remember: that it makes a difference. Not always a big difference. Not always an immediate difference. But a difference.
+ - Our ‘mistakes’ become our crucial parts, sometimes our best parts, of the lives we have made.
+ - If there’s a single message passed down from each generation of American parents to their children, it is a two-word line: Better Yourself. And if there’s a temple of self-betterment in each town, it is the local school. We have worshipped there for some time.
+ - In journalism, there has always been a tension between getting it first and getting it right.
+ - We criticize mothers for closeness. We criticize fathers for distance. How many of us have expected less from our fathers and appreciated what they gave us more? How many of us always let them off the hook?
+ - The great myth of our work-intense era is ‘quality time.’ We believe we can make up for the loss of days or hours, especially with each other, by concentrated minutes. But ultimately there is no way to do one-minute mothering. There is no way to pay attention in a hurry.
+ - It is, I suppose, the business of grandparents to create memories and the relative of memories: traditions. We want to lodge moments, like snapshots, in the fleeting video of time.
+ - I have never been especially impressed by the heroics of people convinced they are about to change the world. I am more awed by those who struggle to make one small difference.
+ - When you live alone, you can be sure that the person who squeezed the toothpaste tube in the middle wasn’t committing a hostile act.
+ - When we describe what the other person is really like, I suppose we often picture what we want. We look through the prism of our need.
+ - We want our children to fit in and to stand out. We rarely address the conflict between these goals.
+ - Today Washington is our Hollywood, the Senate our Warner Bros., the White House our Beverly Hills. People who never read a line of a movie magazine deal with the lives of leaders as if they were Elizabeth Taylor and Richard Burton.
+ - I would like to say we’re at a point where global warming is impossible to deny. Let’s just say that global warming deniers are now on a par with Holocaust deniers, though one denies the past and the other denies the present and future.
+ - We continually want to unmask our heroes as if there were more to be learned from their nakedness than from their choice of clothing.
+ - I think most of us become self-critical as soon as we become self-conscious.
+ - I vote because even the lesser of two evils is the lesser of two evils.
+ - Today, much of journalism and politics are in a kind of collusion to oversimplify and personalize issues. No room for ambivalence. Plenty of room for the personal attack.
+ - I don’t know exactly why the notion of homeownership has such a grasp on the American imagination. Perhaps as descendants of landless immigrants we turn our plots into symbols of stability.
+ - All in all, I am not surprised that the people who want to unravel the social contract start with young adults. Those who are urged to feel afraid, very afraid, have both the greatest sense of independence and the most finely honed skepticism about government.
+ - We each have a litany of holiday rituals and everyday habits that we hold on to, and we often greet radical innovation with the enthusiasm of a baby meeting a new sitter. We defend against it and – not always, but often enough – reject it. Slowly we adjust, but only if we have to.
+ - You can fire your secretary, divorce your spouse, abandon your children. But they remain your co-authors forever.
+ - People have been writing premature obituaries on the women’s movement since its beginning.
+ - The same people who tell us that smoking doesn’t cause cancer are now telling us that advertising cigarettes doesn’t cause smoking.
+ - Civility, it is said, means obeying the unenforceable.
+ - It has begun to occur to me that life is a stage I’m going through.
+ - I suppose we make kids the repository of our highest ideals because children are powerless. In that way we can have ideals and ignore them at the same time.
+ - The average parent may, for example, plant an artist or fertilize a ballet dancer and end up with a certified public accountant. We cannot train children along chicken wire to make them grow in the right direction. Tying them to stakes is frowned upon, even in Massachusetts.
+ - Once upon a time we were just plain people. But that was before we began having relationships with mechanical systems. Get involved with a machine and sooner or later you are reduced to a factor.
+ - Saving time, it seems, has a primacy that’s too rarely examined.
+ - Let’s just say that global warming deniers are now on a par with Holocaust deniers.
+ - You can believe in women’s rights without believing that every woman is right.
+ - When speech is divorced from speaker and word from meaning, what is left is just ritual, language as ritual.
+ - Women have gained access to the institutions, but not enough power to overhaul them.
+ - Kerry asks Americans to look at the evidence. Bush asks people to believe.
+ - Values are not trendy items that are casually traded in.
+ - The things we hate about ourselves aren’t more real than things we like about ourselves.
+ - How many of the people I know – sons and daughters – have intricate abstract expressionist paintings of their mothers, created out of their own emotions, attitudes, hands. And how many have only Polaroid pictures of their fathers.
+ - If women can sleep their way to the top, how come they aren’t there?
+ - Maybe at 20 you can write well, but I don’t think you could do what I do. Some things have to happen to you first.
+ - She goes in with a prejudice and comes out with a statistic.
+ - We may never know why Joe Ellis fabricated a heroic past. But we know that the life he embellished has deeply diminished the life he’d earned.
+ - Slowly we adjust, but only if we have to.
+ - On television, journalists now routinely appear on talk-shows-with-an-attitude where they are encouraged to say what they think about something they may not have finished thinking about.
+ - Even if every program were educational and every advertisement bore the seal of approval of the American Dental Association, we would still have a critical problem. It’s not just the programs but the act of watching television hour after hour after hour that’s destructive.
+ - My generation is the first in my species to have put fitness next to godliness on the scale of things. Keeping in shape has become the imperative of our middle age. The heaviest burden of guilt we carry into our forties is flab. Our sense of failure is measured by the grade on a stress test.
+ - What advertisers call brand loyalty is merely the consumer’s defense against the need to waste energy differentiating among things that barely differ.
+ - I regard this novel as a work without redeeming social value, unless it can be recycled as a cardboard box.
+ - We owned what we learned back there; the experience and the growth are grafted into our lives.
+ - Statistically speaking, the Cheerful Early Riser is rejected more completely than a member of any other subculture, save those with boot odor.
+
+70 quotes

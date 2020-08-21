@@ -1,0 +1,21 @@
+ - I despair of ever getting it through anybody’s head I am not interested in bookshops, I am interested in what’s written in the books. I don’t browse in bookshops, I browse in libraries, where you can take a book home and read it, and if you like it you go to a bookshop and buy it.
+ - Talent is the infinite capacity for taking pains. Genius is the infinite capacity for achievement without taking any pains at all.
+ - I do love secondhand books that open to the page some previous owner read oftenest. The day Hazlitt came he opened to “I hate to read new books,” and I hollered “Comrade!” to whoever owned it before me.
+ - If you happen to pass by 84 Charing Cross Road, kiss it for me? I owe it so much.
+ - Hollywood isn’t a place, it’s a way of life.
+ - Did I tell you I finally found the perfect page-cutter? It’s a pearl-handled fruit knife. My mother left me a dozen of them, I keep one in the pencil cup on my desk. Maybe I go with the wrong kind of people but i’m just not likely to have twelve guests all sitting around simultaneously eating fruit.
+ - I love inscriptions on flyleaves and notes in margins, I like the comradely sense of turning pages someone else turned, and reading passages someone long gone has called my attention to.
+ - Standing there, staring at the long shelves crammed with books, I felt myself relax and was suddenly at peace.
+ - My problem is that while other people are reading fifty books I’m reading one book fifty times. I only stop when at the bottom of page 20, say, I realize I can recite pages 21 and 22 from memory. Then I put the book away for a few years.
+ - Why is it that people who wouldn’t dream of stealing anything else think it’s perfectly all right to steal books?
+ - I liked reading about the nun who ate so dainty with her fingers she never dripped any grease on herself. I’ve never been able to make that claim and I use a fork.
+ - It’s against my principles to buy a book I haven’t read, it’s like buying a dress you haven’t tried on.
+ - I do love secondhand books that open to the page some previous owner read oftenest.
+ - And for at least that moment, I wouldn’t have traded the hundreds of books I’ve read for the few I know almost by heart.
+ - History, as they say, is alive and well and living in London.
+ - It looks too new and pristine ever to have been read by anyone else, but it has been: it keeps falling open at the most delightful places as the ghost of its former owner points me to things I’ve never read before.
+ - What fortune teller would ever have had the nerve to predict that the best years of my life would turn out to be my old age?
+ - I personally can’t think of anything less sacrosanct than a bad book or even a mediocre book.
+ - I never overcame my conviction that writing for commercial television was a kind of prostitution.
+
+19 quotes

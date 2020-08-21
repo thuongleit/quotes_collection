@@ -1,0 +1,124 @@
+ - I would much rather be the obnoxious feminist girl than be complicit in my own dehumanization.
+ - I’m not going to sit around and be peace and love with somebody’s boot on my neck.
+ - I’m more interested in a feminism that ends discrimination for all people. It’s not just about a woman becoming the CEO of a company or something. It’s connected to racism and classism and gender issues that go beyond the binary.
+ - It’s really funny – when I’m depressed or I’m having a hard time, I’ll write really fun stuff. And then when I’m really happy, I write really depressing stuff.
+ - I’m not a goddess, for crying out loud. I’m a regular person who took feminism – which I have a deep connection to – and mixed it with music, which I really love to do.
+ - While sexism hurts women most intimately, it also damages men severely.
+ - Popularity is totally overrated.
+ - I don’t appreciate it when women – or men – bandy about these stupid stereotypes about feminism that are age-old, and that are meant to keep people turned off from it. It’s like, “All you have to do is Wikipedia feminism to know that it’s not about man-hating – so shut up.” That makes me annoyed.
+ - I don’t want to waste the precious moments I have, and I’ve felt that way since I was 17. I have to take risks because why else would you be alive? Put your pirate patch on and go on an adventure because you only have one life to live.
+ - When you speak up about any sense of unfairness or injustice, you’re told that you’re overreacting, you’re too angry, too silly-shut up already. It takes a tremendous amount of fortitude to be able to live in this world as a woman, let alone a woman who wants things to change.
+ - In the ’90s, people wore scrunchies, but it was very uncool in the punk scene.
+ - I am not Lyme disease, that’s not who I am, I’m still a feminist artist, but this is a part of my story too, and I’m not going to keep it out to look cooler.
+ - I won’t stop talking. I am a girl you have no control over. There is not a gag big enough to handle this mouth.
+ - I belive power can be used for good, I don’t think every form of power is absolute evil. I wish I would have stepped in, and I really regret it. And that’s why I really encourage young people who are organizing to speak up.
+ - I don’t like being in the service industry and having to deal with people yelling at me all the time. McDonald’s was the hardest job I ever had – so I have a lot of respect for people who work in the fast food industry. Because it’s a hard job.
+ - Internalized sexism that makes us feel like we can’t show ourselves not being perfect.
+ - I wanna be a legend; I wanna be a cult hero. I do!
+ - I think my biggest fear is dying. Although sometimes my biggest fear is not dying. But yeah, I think health stuff for me is more what I’m afraid of.
+ - I really love that I’m giving myself the opportunity finally to not have the pressure of every single song you do having to be “political” or whatever. I’m just making what I wanna make.
+ - I think open adoption is a great idea, because it allows a relationship between the birth mother and her child so that the kid isn’t like, “Where did I come from?” And to have it be like, “Look, you have a bunch of people who love you.”
+ - I hate the attitude of, ‘oh we already have a Lydia Lunch, so we do we need a Bikini Kill.’ Well, there’s like 2 hundered million all-male bands writting ‘baby baby I love you, let me drag you around on my ankle.’ Is that enough already? Duh!
+ - You learn that the only way to get rock-star power as a girl is to be a groupie and bare your breasts and get chosen for the night. We learn that the only way to get anywhere is through men. And it’s a lie.
+ - Don’t get down on yourself that you can’t run a 4K or dance all night long at a fun club. Give yourself a break.
+ - Certain people are like ‘Oh, here come the Feminazis!’ You end up acting 10 times nicer than you even need to be, to be the opposite of the stereotype like ‘You’re the man haters!’ We’re always bending over backwards being extra nice. And I don’t know if being nice is my legacy.
+ - Young girls getting into feminism.
+ - I can’t constantly be trying to write the unwritten song, the song that the 15-year-old girl needs. I need to write the song that I need.
+ - The exciting thing about getting a label together and doing press for it is that hopefully some 15-year-old girl who is the only feminist in her junior-high class will hear about it and be like, “Oh, cool, I hadn’t heard of that, I’m going to check it out.”
+ - I think one things that’s really important in the boy community or whatever, or the boy things, is like, to realize that oppression is a two-way street. You know what I mean? That it’s like, white men are really missing out – I don’t wanna say white men are oppressed but...
+ - I get emails every day from people saying, “I never heard your music. I don’t know anything about you. I just happened to watch this on Netflix. I hope you’re feeling better. More power to you.” It just shows you, I don’t know, how generous and wonderful people can be.
+ - It’s so important for people in political groups to learn the difference between productive criticism and not. When it’s about something you can change, it’s productive. But if it’s just like “You are an evil person”, you can’t change that. There’s no way around that.
+ - Jason Mraz, and the new James Blunt song is the worst thing that has ever been created on the face of the earth.
+ - The cool thing about the Internet is that it’s allowing women more access to their own history.
+ - I need to see my friends or I’m gonna go crazy. I’m not gonna stay home and work.
+ - I watch videos on YouTube of bands that I’ve heard of that I want to check out. And sometimes I don’t even finish the video. And that’s really sad, because maybe I’d like that song. I think that we don’t give stuff a chance to really sink in.
+ - Everybody wasn’t always wasted. Why is punk rock about getting wasted? Isn’t it punk rock to be sober and change the world? I thought it was about challenging capitalism? How are you going to challenge capitalism if you’re wasted?
+ - I’m sure if you see things you wrote when you were 19, you cringe. I saw stuff like angry poetry that I wrote when I was mad at my father, or photos I took where I smeared period blood on myself. It’s embarrassing.
+ - I’m living in a world where there are LGBTQ straight alliances at high schools. I feel pretty psyched on that.
+ - Taking care of yourself is the most important thing.
+ - I don’t think I’ve ever had a woman yell that at me, but women have yelled mean things at me as well.
+ - A lot of artists are just really stupid about money, and it’s really hard to find somebody who kind of thinks of shuffling money around and doing business as an art.
+ - I realized that calling yourself a feminist or not calling yourself a feminist, just by being in a band of all girls, it’s all you talk about.
+ - I never thought that someone would be teaching one of my fanzines. I never thought I’d be off to lecture at a college. It’s still shocking to me.
+ - I’m a very binary person in a bad way where it’s like everything is either totally great or totally awful.
+ - For whatever reason I just remembered being six years old and my parents leaving the house and trusting me to be alone. I had an older sister, I think she was supposed to babysit me but she immediately ran across the street to her friend’s house.
+ - Since I loved underground music, I tried to carve a space for feminism within it. Those were my hopes.
+ - I kind of decided that doing music is enough because I’m already running a couple small businesses. I’m a part of Bikini Kill Records, Le Tigre Records, and Digitally Ruined Records. In dealing with my health and everything, my ability to do that? I wouldn’t be good at it.
+ - Gay marriage! That’s a huge change and a huge win-win for feminism.
+ - Find something that makes you happy, like looking at beautiful pictures, or, if you’re able, listening to beautiful music, or sitting by the window and looking outside – small things like that can be absolutely huge.
+ - It was one of the first things I did on my own; I worked at McDonald’s, raised the money and did it. I’m really, really passionate about pro-choice, because I wouldn’t be here talking to you right now if I’d had a kid at 15.
+ - I think as a culture, we don’t like conflict or looking at icky stuff – especially in our downtime.
+ - I feel like what I’m best at is being a musician and a performer. I want to use that to help people who are good at starting nonprofits.
+ - I didn’t go to high school, I didn’t go to college, I didn’t have women’s studies. All of my feminist ideals and education have been built around art and my friends and community. And so it’s still growing.
+ - I don’t consider myself a divining rod whom God is speaking through or any kind of crap like that.
+ - Feminism rotates between backlash and interest. And the cool thing about the Internet is that it’s allowing women more access to their own history. Part of the problem before the Internet was that we didn’t know which books to read. Someone had to tell you.
+ - You guys are seriously missing out unless you all start listening to girls.
+ - I know I love sexy surf guitars, I know I love loud snare. I love really simple repeating bass lines, and I love weird mad scientist keyboard sounds.
+ - Most of my records are never going to be commercial successes, and I don’t expect that. It’s just all a learning process to me. If something appears as a failure, fine. If there’s success, fine. I like the record, and my friends like the record, and that’s kind of all I can really care about.
+ - Just because I’m a woman doesn’t mean I’m the same as every other female singer.
+ - I wanted to make something that I wanted to hear that I wasn’t hearing.
+ - When you’re a musician and you go out onstage, and you’re someone who loves attention, you are going to become a role model to some extent.
+ - It takes falling down a bunch of times before you start running.
+ - It’s so crazy because kids that wrote to me when they were 14 years old are still in my life. A lot have gone on to become musicians and artists in their own right who inspire me now.
+ - There’s still a lot of misogynist pop music out there, and I think that hearing something that’s so explicitly feminist and so angry – when we’re still growing up in a culture where girls and women are not supposed to be angry – is a real revelation for young women.
+ - As I’ve gotten older, I’ve realized that things are a lot more permeable. It’s not so black and white: not every journalist is a jerk.
+ - I just write what I want to write.
+ - It takes your mind off things when there’s a cat in your lip and he’s purring while you’re petting him.
+ - I wouldn’t want to play Miss Hannigan. I’m not a villain. She’s mean to little children! I can’t do that. That would disrupt my brand.
+ - I am such a bossy producer and such a control freak that there’s a part of me that really longs to be bossed around.
+ - My mom and I had secret from my dad that we didn’t think we were stupid, that we didn’t think we needed feminism to be explained to us.
+ - Art revolves around creating something that isn’t there.
+ - If I had to choose between the band or the friendships, I’d choose the friendships at this point.
+ - Every band I’ve been in, it’s just become my total life. I feel like a child star – I’ve missed out on so much.
+ - Sometimes, being a feminist artist, there are times where I’m in a position where I just want to feel like I’m saying all the right things politically, or I feel like I have to mention my own project over other people’s projects.
+ - It’s the idea that we as people can control our own destinies. The government and the corporations, more even than the government, can’t dictate what artwork we’re supposed to like or what comedy we’re supposed to laugh at.
+ - Just because you’re wearing a goofy hat doesn’t make it performance art.
+ - I know what a good question would be for an actor. What’s your least favorite thing that you’ve ever heard an actor say about acting? Or about being in a movie?
+ - I know that’s really horrible, but that’s how I do it in my head. I’m going to die. It doesn’t matter. I don’t matter. I’m a grain of sand. As a grain of sand, I may as well go out and relate to people and enjoy my short time on this planet that I have. Who knows what’s coming next?
+ - When you’re the person who’s kind of in charge of everything a lot of the time, it’s sometimes nice to get bossed around. It’s sometimes nice to have somebody say, “This is what I want you to do” and to stretch your abilities.
+ - I am possibly thinking about doing an Internet show in the future that will highlight political organizations that I seek out to let people know about them, volunteer opportunities, and donation opportunities.
+ - So many women have experienced horrific forms of male violence throughout their lives, and why isn’t there a song about how you get depressed because of it?
+ - Not to rag on myself, but when people say, ‘What does it feel like to be an icon?’ I’m like, ‘My dog does not think I’m an icon, my cat does not think I am an icon, my cousin does not think I am an icon.’ I have a really lovely group of friends, and I just don’t think about it.
+ - I think that it’s so powerful for me to go see someone like Bridget Everett at Joe’s Pub and watch her weave her songs in and out of these funny, tragic stories – you can talk and sing and it’s not this horrible offense, you’re going to get thrown in artistic jail.
+ - What I’ve heard from younger women and women my age is that the albums changed their lives or it was the first time they had heard feminism that they could relate to. So that’s great.
+ - Feminism is something you do. It’s a verb. It’s what you are. It’s an activity; it’s something you’re actively engaged in.
+ - There are more people who are not straight, white males going to shows.
+ - I really like to talk about my work in a way that is complicated.
+ - People have always had these weird things about how you have to be really good looking to be a singer.
+ - I think that feminism is in cycle. Feminism rotates between backlash and interest.
+ - Every time I get sexually harassed, I’m supposed to turn around and yell at the person, but there are safety issues. Sometimes the best thing you can do it just walk right past that person and have a great day. But sometimes you feel like you really need to say something.
+ - I wanted to say to myself as much as anyone else that we made art.
+ - Johnny Rotten isn’t punk. Maybe that’s punk to somebody, but these people are participating and challenging the corporations that are telling us what punk is and what good music is.
+ - I like loud snare, and I like really treble-y guitars, and that’s just never going to change.
+ - I’m not that interested in female superheroes.
+ - There are people who view their feminism in different ways. I used to beat myself up if I didn’t react to things like I was supposed to.
+ - I feel like there’s this weird thing that as a feminist band you get put in this role as ambassadors.
+ - It’s unexpected for women’s issues to be brought up in places other than women’s centers on college campuses or crisis places.
+ - Think of something that you can do as opposed to all the things you can’t do – and do that.
+ - See who else is interested and join other people’s projects that have already started that you like. You don’t always have to reinvent the wheel and start your own thing.
+ - I was never trying to be the voice for anybody else. I was just trying to sing about what I was going through, and was singing about those things specifically because I knew there was an audience not being served.
+ - I would love to make a bunch of country demos and write country songs for really great country singers.
+ - I felt like going out on the road and mixing it with music – which is something young people are always really interested in – would be a good way to proselytize. It was like feminist evangelism.
+ - The more people, as you know, are able to be on whatever spectrum of femininity and masculinity they are on at that moment, that opens the door for women to not have to be the opposite of what the supposed traditional male is.
+ - If people are like, ‘Oh, you’re an icon,’ then whatever. But who thinks of themselves like that? It’s not like I have posters of myself on the wall.
+ - My mom wasn’t, like, she was reading all these historical romance novels the majority of the time. She read a feminist book and then my dad would sit down and explain it to her like she was an idiot.
+ - Women didn’t want to be on the stage with other women because they didn’t want their bodies to be compared. They didn’t want another female act opening for them because of this weird competitive and tokenistic attitude.
+ - There are so many great artists that are doing interesting things, that I don’t want to focus on boring people.
+ - I made the decision that my contribution needed to be more musical than political. My music was enough, politically. Art matters. Art was enough. My music was enough to say what I had to say.
+ - My original goal in the ’90s, after I found feminism and I was the first generation in my family to go to college, was to spread this information that feminism was still very much alive, and that you can’t believe the media telling you that it doesn’t need to exist and that it doesn’t exist.
+ - I have no clue. I just know I would want to play the least amount of shows that the most people would be able to come to.
+ - I’m lucky enough to have been in the age before the internet and now during the internet. I’m grateful to be a witness to that. It’s horse and buggy versus car. To see how quickly things change has given me a renewed sense of optimism. Does that make sense?
+ - People are actually having conversations about “Is this sexist?”
+ - I’m in a really lucky position where people will be interested in whatever I do, but what I do is sing.
+ - I think that the Internet is really cool because a lot of young feminists don’t feel like they have to reinvent the wheel.
+ - There’s comedians who I consider extremely punk rock who I’ve seen do very political stand up in places where nobody wants to hear that. It’s uncomfortable and scary and you realize it’s the punkest performance you’ve ever witnessed.
+ - Well, part of the thing is, like, what’s the difference between censorship and social responsibility? I sometimes find that the whole censorship argument is used as a way for people to avoid the fact that they’re like...
+ - I felt it was really, really important, not just in the vein of feminist erasure or whatever but also just as an artist that I honored my work.
+ - I’m just working and having a good time and seeing what develops, which is so awesome, because you don’t know what’s going to happen, and I’m letting myself do that a lot more than I ever have.
+ - I realized that I really enjoy writing comedy, and how important comedy is when you feel like total crap.
+ - Part of being in a band, being a painter, or starting a nonprofit is that you’re going to make horrible mistakes and look like a total idiot, but you’re never going to create that thing that really connects with people if you don’t fail over and over and over again.
+ - I think music can definitely be art; I also think music can be crap and not be art.
+ - I’m so language-based and I’m so about communicating, and my art has always been very audience-based, and very about being functional and communicating something, and about feeling like I have to be heard.
+ - I’ve always been like, “Look, you’re going to die and it’s not going to matter after you die that you got out onstage and bombed.”
+
+122 quotes

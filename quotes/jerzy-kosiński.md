@@ -1,0 +1,53 @@
+ - Life is a state of mind.
+ - The principles of true art is not to portray, but to evoke.
+ - She seemed to belong to that pagan, primitive kingdom of birds and forests where everything was infinitely abundant, wild, blooming, and royal in its perpetual decay, death, and rebirth; illicit and clashing with the human world.
+ - I am going to put myself to sleep now for a bit longer than usual. Call it Eternity.
+ - There’s a place beyond words where experience first occurs to which I always want to return. I suspect that whenever I articulate my thoughts or translate my impulses into words, I am betraying the real thoughts and impulses which remain hidden.
+ - Going around under an umbrella interferes with one’s looking up at the sky.
+ - Banks introduced the installment plan. The disappearance of cash and the coming of the credit card changed the shape of life in the United States.
+ - Lovers are not snails; they don’t have to protrude from their shells and meet each other halfway. Meet me within your own self.
+ - I always have a sense of trembling, but so does a compass, after all.
+ - I don’t fret over lost time – I can always use the situations in a novel.
+ - It seems that what I really want is a drug that will increase my consciousness of others, not myself.
+ - In London, the weather would affect me negatively. I react strongly to light. If it is cloudy and raining, there are clouds and rain in my soul.
+ - Here was one place where I could find out who I was and what I was going to become. And that was the public library.
+ - Chance was to work in the garden, where he would care for plants and grasses and trees which grew there peacefully. He would be as one on them: quiet, open hearted in the sunshine and heavy when it rained.
+ - Homelessness is a part of our American system. There should be nothing wrong with this condition as long as the individual is not sentenced to unnecessary suffering and punishment.
+ - All my life I’ve been hiding.
+ - I am inspired by human sexuality. The act itself is mechanical and holds little interest to me.
+ - I look back into past history, the stored experiences or products of the imagination. I look no further forward than the evening.
+ - Mapplethorpe presented the body as a sexual object, separating it from the humanity of the person. He added nothing to photography as a medium. I hold his work in low regard.
+ - A trait which differentiated New York from European cities was the incredible freedom and ease in which life, including sexual life, could be carried on, on many levels.
+ - If we reduce social life to the smallest possible unit we will find that there is no social life in the company of one.
+ - Travel gives me the opportunity to walk through the sectors of cities where one can clearly see the passage of time.
+ - I was pushing myself to extremes in order to discover my many selves.
+ - You don’t die in the United States, you underachieve.
+ - Take a look at the books other people have in their homes.
+ - Persons who have been homeless carry within them a certain philosophy of life which makes them apprehensive about ownership.
+ - Physical comfort has nothing to do with any other comfort.
+ - My choice of a life of adventure may well have been a result of the fact that action raised my blood pressure giving me enough energy to live.
+ - I can create countries just as I can create the actions of my characters. That is why a lot of travel seems to me a waste of time.
+ - I collect human relationships very much the way others collect fine art.
+ - Photography was the first foreign language of my artistic expression.
+ - Gatherings and, simultaneously, loneliness are the conditions of a writer’s life.
+ - I do like to live in other people’s homes. I enjoy being a guest. I am an inexpensive guest. When one lives in another’s home he can enter into the psychic kingdom of that person.
+ - I am curious about grownups, not children.
+ - It’s not that you aren’t likable. On the contrary. You are. It’s just that one wonders if you haven’t made a career out of being so likable.
+ - The planned sit-down reception is an artificial forum where one is presented with a limited number of persons with whom he can hold a conversation.
+ - There must be no worse punishment to a totalitarian nation than the withdrawal of capital.
+ - Take whatever you can from others, and when there is nothing left, forget about them.
+ - I write for a certain sphere of readers in the United States who on average watch seven and a half hours of multichannel television per day.
+ - There are many types of participation. One can observe so intensely that one becomes part of the action, but without being an active participant.
+ - A novelist has a specific poetic license which also applies to his own life.
+ - When people claim to know who I am, I can no longer act freely.
+ - The things I write are for those who are willing to accept a new relationship between the reader and the author.
+ - All my father saw was what he wanted to see.
+ - People say, “Well, you went on television, it enlarged your readership.” It did not at all, not at all. I might as well tell you, I lost some readership, because the profound audience felt somehow bothered by my too easy manner.
+ - And really the purpose of art – for me, fiction – is to alert, to indicate to stop, to say: Make certain that when you rush through you will not miss the moment which you might have had, or might still have.
+ - I do not gather things, I prefer to rent them rather than to possess them.
+ - It is possible to stand around with a cocktail in one’s hand and talk with everyone, which means with no one.
+ - In my photographs it is apparent that there was no posing at the moment I released the shutter.
+ - I suppress in my prose any language which calls attention to itself.
+ - As I go to sleep I remember what my father said-that one can never be sure if one will awake. The way my health is now, this is becoming more and more real.
+
+51 quotes

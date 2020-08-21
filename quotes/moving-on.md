@@ -1,0 +1,58 @@
+ - You must make a decision that you are going to move on. It wont happen automatically. You will have to rise up and say, ’I don’t care how hard this is, I don’t care how disappointed I am, I’m not going to let this get the best of me. I’m moving on with my life. ~~Joel Osteen
+ - Respect yourself enough to walk away from anything that no longer serves you, grows you, or makes you happy. ~~Robert Tew
+ - You are responsible for your life. You can’t keep blaming somebody else for your dysfunction. Life is really about moving on. ~~Oprah Winfrey
+ - When one door closes, another opens; but we often look so long and so regretfully upon the closed door that we do not see the one which has opened for us. ~~Alexander Graham Bell
+ - Nothing will work unless you do. ~~Maya Angelou
+ - Don’t cry because it’s over, smile because it happened. ~~Dr. Seuss
+ - It’s not what happens to you, but how you react to it that matters. ~~Epictetus
+ - If you love someone, set them free. If they come back they're yours; if they don't they never were. ~~Richard Bach
+ - To help yourself, you must be yourself. Be the best that you can be. When you make a mistake, learn from it, pick yourself up and move on. ~~Dave Pelzer
+ - You live, you learn, and you upgrade. ~~Anonymous
+ - People will forget what you said, people will forget what you did, but people will never forget how you made them feel. ~~Maya Angelou
+ - You can only lose what you cling to. ~~Buddha
+ - Here’s to the future, because I’m done with the past. ~~Anonymous
+ - Hanging onto resentment is letting someone you despise live rent-free in your head. ~~Ann Landers
+ - Bad things do happen; how I respond to them defines my character and the quality of my life. I can choose to sit in perpetual sadness, immobilized by the gravity of my loss, or I can choose to rise from the pain and treasure the most precious gift I have – life itself. ~~Walter Anderson
+ - People can be more forgiving than you can imagine. But you have to forgive yourself. Let go of what's bitter and move on. ~~Bill Cosby
+ - Part of being a winner is knowing when enough is enough. Sometimes you have to give up the fight and walk away, and move on to something that’s more productive. ~~Donald Trump
+ - Even if you fall on your face, you’re still moving forward. ~~Victor Kiam
+ - Holding on to anything is like holding on to your breath. You will suffocate. The only way to get anything in the physical universe is by letting go of it. Let go and it will be yours forever. ~~Deepak Chopra
+ - Getting over a painful experience is much like crossing monkey bars. You have to let go at some point in order to move forward. ~~C. S. Lewis
+ - This, too, will pass. ~~Eckhart Tolle
+ - There are far better things ahead than any we leave behind. ~~C. S. Lewis
+ - Life is like riding a bicycle. To keep your balance, you must keep moving. ~~Albert Einstein
+ - Forgive yourself for your faults and your mistakes and move on. ~~Les Brown
+ - The only thing harder than letting go is moving on. ~~Anonymous
+ - Don’t let yesterday use up too much of today. ~~Will Rogers
+ - Forget the past. ~~Nelson Mandela
+ - Some of us think holding on makes us strong; but sometimes it is letting go. ~~Hermann Hesse
+ - Let go. Why do you cling to pain? There is nothing you can do about the wrongs of yesterday. It is not yours to judge. Why hold on to the very thing which keeps you from hope and love? ~~Leo Buscaglia
+ - Don’t dwell on what went wrong. Instead, focus on what to do next. Spend your energies on moving forward, toward finding the answer. ~~Denis Waitley
+ - Even a rock moves on. ~~Anthony Liccione
+ - We keep moving forward, opening new doors, and doing new things, because we’re curious and curiosity keeps leading us down new paths. ~~Walt Disney
+ - A bridge can still be built, while the bitter waters are flowing beneath. ~~Anthony Liccione
+ - Today will never happen again. Don’t waste it with a false start or no start at all. ~~Og Mandino
+ - Moving on, is a simple thing, what it leaves behind is hard. ~~Dave Mustaine
+ - Loving someone is setting them free, letting them go. ~~Kate Winslet
+ - You may encounter many defeats, but you must not be defeated. In fact, it may be necessary to encounter the defeats, so you can know who you are, what you can rise from, how you can still come out of it. ~~Maya Angelou
+ - You can’t look back – you just have to put the past behind you, and find something better in your future. ~~Jodi Picoult
+ - Success seems to be connected with action. Successful men keep moving. They make mistakes, but they don’t quit. ~~Conrad Hilton
+ - Change has to come for life to struggle forward. ~~Helen Hollick
+ - Life can only be understood backwards; but it must be lived forwards. ~~Soren Kierkegaard
+ - Vitality shows in not only the ability to persist but the ability to start over. ~~F. Scott Fitzgerald
+ - Get mad, then get over it. ~~Colin Powell
+ - Goals give you more than a reason to get up in the morning; they are an incentive to keep you going all day. ~~Harvey MacKay
+ - Cry me a river, build a bridge, and get over it. ~~Justin Timberlake
+ - If you love somebody, let them go, for if they return, they were always yours. If they don’t, they never were. ~~Khalil Gibran
+ - The only way to make sense out of change is to plunge into it, move with it, and join the dance. ~~Alan Watts
+ - Today is the first day of the rest of your life. ~~Abbie Hoffman
+ - The only thing a person can ever really do is keep moving forward. Take that big leap forward without hesitation, without once looking back. Simply forget the past and forge toward the future. ~~Alyson Noel
+ - You can love someone so much... But you can never love people as much as you can miss them. ~~John Green
+ - It is only through labor and painful effort, by grim energy and resolute courage, that we move on to better things. ~~Theodore Roosevelt
+ - Sometimes the hardest part isn’t letting go but rather learning to start over. ~~Nicole Sobon
+ - Don't let yesterday take up too much of today. ~~John Wooden
+ - We are all failures – at least the best of us are. ~~J.M. Barrie
+ - People have a hard time letting go of their suffering. Out of a fear of the unknown, they prefer suffering that is familiar. ~~Nhat Hanh
+ - The male is always the pawn in a romantic comedy. Come together, break up, go chase her, get her, roll credits. That’s what happens in all of them. ~~Matthew McConaughey
+
+56 quotes

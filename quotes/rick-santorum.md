@@ -1,0 +1,125 @@
+ - Stand up for your principles, but be a decent human being while you’re doing it.
+ - Prayer and hard work are a pretty good one-two punch to get things done.
+ - CO2 is a pollutant? Tell that to the plants.
+ - As the hobbits are going up Mount Doom, the eye of Mordor is being drawn somewhere else. It’s being drawn to Iraq. You know what? I want to keep it on Iraq. I don’t want the eye to come back to the United States.
+ - I don’t want to go to a trade war, I want to beat China. I want to go to war with China and make America the most attractive place in the world to do business.
+ - If everyone is exceptional, nobody is exceptional.
+ - And yet we have brave men and women who are willing to step forward because they know what’s at stake. They’re willing to sacrifice their lives for this great country. What I’m asking all of you tonight is not to put on a uniform. Put on a bumper sticker.
+ - We are seeing it. We are seeing the fabric of this country fall apart, and it’s falling apart because of single moms.
+ - You can’t ignore the reality that faith and family, those two things are integral parts of having limited government, lower taxes, and free societies.
+ - The most dangerous place for an African-American in this country is in the womb.
+ - Saddam Hussein was not an Islamist. He’s not a radical jihadist. He’s not a radical Muslim. I mean, he was a – he was a Baathist. He was a secular – even though he professed to be a good and devout Muslim.
+ - I thank God that America still has one party that reaches out their hands in love to lift up all of God’s children – born and unborn, and says that each of us has dignity and all of us have the right to live the American Dream.
+ - I think the Supreme Court has, as an equal branch of government, the ability to overrule Congress and the president. But I also feel it’s the role of the Congress and the president to push back. I mean I think it’s important that they are understood as equal branches of government.
+ - You have the right to anything. Does that undermine the fabric of our society? I would argue yes, it does.
+ - My mom was a working woman. She made more money than my dad. Both my parents worked. And this was in the ’60s.
+ - Against the advice of my wife, I endorsed Arlen Specter. I should have listened to my wife.
+ - Well, higher-income people don’t have to pay taxes if they don’t want to because they can move their money somewhere else, they can move their investments. They can stop investing. They can stop working. They don’t need to work. They’re higher-income people.
+ - There are consequences to letting people live out whatever wants or passions they desire.
+ - The more money you take away from families is the less power that family has. And that’s a basic power.
+ - I do care about not 99 percent or 95 percent. I care about the very rich and the very poor. I care about 100 percent of America.
+ - NASCAR and the Daytona 500 are about as American as you can get.
+ - Many of the Christian faith have said, well, that’s okay, contraception is okay. It’s not okay. It’s a license to do things in a sexual realm that is counter to how things are supposed to be.
+ - Now is the time to act or get stuck with a bland, boring career politician who will lose to Barack Obama.
+ - I have lots of favorites movies. I say this only because it’s a favorite movie because it’s a sport I love. I’m a huge baseball fan. There are movies I like as much as this, but I sort of single this movie out because I’m a baseball nut, and that’s ‘Field of Dreams.’
+ - A lesbian woman came up to me and said, ‘why are you denying me my right?’ I said, ‘well, because it’s not a right.’ It’s a privilege that society recognizes because society sees intrinsic value to that relationship over any other relationship.
+ - Big Business wants cheap labor costs.
+ - Satan is attacking the great institutions of America, using those great vices of pride, vanity, and sensuality as the root to attack all of the strong plants that has so deeply rooted in the American tradition.
+ - I believe in capitalism for everybody, not necessarily high finance but capitalism that works for the working men and women of this country who are out there paddling alone in America right now.
+ - I fight very strongly against libertarian influence within the Republican Party and the conservative movement. I don’t think the libertarians have it right when it comes to what the Constitution’s all about. I don’t think they have it right as to what our history is.
+ - We shouldn’t be putting tariffs on anything. That hurts working men and women in US. What we should be doing is making our manufacturing more competitive.
+ - The notion that college education is a cost-effective way to help poor, low-skill, unmarried mothers with high school diplomas or GEDs move up the economic ladder is just wrong.
+ - Isn’t that the ultimate homeland security, standing up and defending marriage?
+ - The president of the United States is a commander-in-chief, and the president of the United States, you know, executes the laws and tries to motivate the American public to make changes that are necessary. It’s not necessarily a CEO type of position.
+ - I support the death penalty and will continue to do that.
+ - This is a spiritual war. And the Father of Lies has his sights on what you would think the Father of Lies would have his sights on: a good, decent, powerful, influential country – the United States of America. If you were Satan, who would you attack in this day and age?
+ - If the Constitution says that marriage is between a man and woman, then things that are inconsistent with that would be inconsistent with the Constitution.
+ - The radical feminists succeeded in undermining the traditional family and convincing women that professional accomplishments are the key to happiness.
+ - Whether it’s polygamy, whether it’s adultery, whether it’s sodomy, all of those things, are antithetical to a healthy, stable, traditional family.
+ - I think I’m the best candidate not just to beat President Obama, but to do what is necessary to get this country going, a conviction conservative who can rally the American public around a common set of values.
+ - I love it when the left and when the president say, ‘Don’t try to impose your values on us, you folks who hold your Bibles in your hand and cling to your guns.’ They have values too. Our values are based on religion, based on life. Their values are based on a religion of self.
+ - Earlier in my political career, I had the opportunity to read the speech, and I almost threw up.
+ - When did it become the law of the land that the Supreme Court has the final say on anything? They cannot have the final say on anything. The American people have the final say on anything.
+ - We’ve seen with this president, experience matters. When that phone call comes at three o’clock in the morning, I will be up and ready for the call because I will know what’s going on in the world around us.
+ - I am not a libertarian, and I fight very strongly against libertarian influence within the Republican Party and the conservative movement.
+ - I’m someone who believes that making things creates wealth.
+ - The family is the first economy. If the family breaks down, well, government gets bigger because of the consequences of family breakdown. We see in the neighborhoods where there are no marriages and there are no two-parent families.
+ - It’s the most ambitious power grab I’ve ever witnessed.
+ - Defend the church. Defend the family. Defend the non-profit community. Defend them against a government that wants to weaken them.
+ - We know the candidate Barack Obama, what he was like – the anti-war government nig- uh, the – America was a source for division around the world, that what we were doing was wrong.
+ - I’m always told that what I say is controversial. Why is it controversial? Because I speak from a tradition that has now fallen out of favor with the dominant media in this country. And so when I say things like marriage should be between one man and one woman, I’m called a bigot.
+ - It’s very interesting, if you look at a study that was done by the Brookings Institute back in 2009, they determined that if Americans do three things, they can avoid poverty. Three things. Work, graduate from high school, and get married before you have children.
+ - I cleaned toilets and shined shoes.
+ - Ron Paul may be the wackiest candidate in the GOP field. But for pure, blind stupidity, nobody beats Santorum. In my 20 years in the Senate, I never met a dumber member, which he reminded me of today.
+ - President Obama once said he wants everybody in America to go to college. What a snob.
+ - What Donald Trump is focused on is a policy of trade that looks after the interests of the American worker, not just the overall GDP numbers. And that is what is resonating.
+ - I’m a capitalist, not a corporatist. I’m not someone who believes we should be bailing out corporations whether their auto industries, or banks.
+ - There is a limitation on debate, which is unlike other bills, for 20 hours, but there is no limitation on amendments. In other words, Republicans if they wanted to, and I suspect they do, could offer literally thousands of amendments and keep Senate in session for weeks and months.
+ - The left, unfortunately, participates in bullying more than the right does. They say they’re tolerant, and they’re anything but tolerant of people who disagree with them and support traditional values.
+ - Candidly, I believe most corporations actually don’t mind big government.
+ - The problem is neutrality ends in poverty, neutrality ends in choices that hurt people’s lives. This administration is deliberately telling organizations that are there to help young girls make good choices, not to tell them what the good choice is. That is absolutely unconscionable.
+ - I want to make sure that the American worker has an opportunity to see their wages rise and their incomes increase.
+ - I don’t think the federal government or federal candidates should be making decisions on everything and opining on everything.
+ - The church has gotten it wrong a few times on science, and I think that we probably are better off leaving science to the scientists and focusing on what we do – what we’re really good at, which is – which is theology and morality.
+ - I would say any type of sexual activity has absolutely no place in the military.
+ - This is the beauty of Donald Trump, that he goes against the Republican orthodoxy, much of which has been rejected a lot of Republican voters, who, well, would be Republican voters, at least in my state, who I think would otherwise like to vote Republican.
+ - My position on how to address the Confederate flag is clear. In Florida, we acted, moving the flag from the state grounds to a museum, where it belonged.
+ - I don’t advocate civil disobedience. I do advocate the role of an informed citizen to try to overturn when a court makes a mistake and gets an issue wrong.
+ - I don’t use the term “black” very often. I use the term African-American more than I use “black”.
+ - Who are benefits promised to, overwhelmingly? Well, they’re promised to older people. And if you have a society like Europe that is upside down where there are a lot more older people than younger people, you have economic calamity.
+ - I would be saying to the Iranians, you either open those facilities, begin to dismantle them and make them available to inspectors or we will degrade those facilities though air strikes. And make it very public that we are doing that. Iran would not get a nuclear weapon under my watch.
+ - My feeling is, well, if it’s my money, I have a right to judge.
+ - America’s honor, your honor is at stake. Go out and preserve the greatest country in the history of the world.
+ - If all you think we need to do to get this economy going and get this country on the right track is to cut government and reduce taxes, you don’t understand America. America is a moral enterprise, not an economic enterprise.
+ - Everybody knows full well my passion about defeating Barack Obama. Over my dead body would I vote for Barack Obama.
+ - Obviously the first thing we need to do is repeal “Obamacare.” That’s one entitlement that we can get rid of. And that’s a couple trillion dollars in spending over the next 10 years.
+ - I think that could be a very compromising situation where people naturally may do things that may not be in the interest of the mission because of other types of emotions that are involved.
+ - Higher income people don’t have to pay taxes if they don’t want to.
+ - You can’t have a limited government if the family breaks down.
+ - There are conservatives in Hollywood who make good movies. They just don’t make conservative movies because that’s not what gets funded.
+ - George W. Bush is the first Catholic president of the United States.
+ - They talk about income inequality. I’m for income inequality.
+ - But look what happens when the government gives you rights. When the government gives you rights, unlike when God gives you rights, the government can take them away. When government gives you rights, the government can tell you how to exercise those rights.
+ - I don’t believe in an America where the separation of church and state is absolute. The idea that the church can have no influence or no involvement in the operation of the state is absolutely antithetical to the objectives and vision of our country.
+ - Newt Gingrich would be a much better president than Barack Obama.
+ - In 1923 there were no government benefits for immigrants except one: Freedom!
+ - Would the potential attraction to Mormonism by simply having a Mormon in the White House threaten traditional Christianity by leading more Americans to a church that some Christians believe misleadingly calls itself Christian, is an active missionary church, and a dangerous cult?
+ - I’ve had the opportunity to spend some time with Donald Trump. He is – he – as you can imagine, I mean, he’s a very engaging man. He’s – he puts on an image as a lot of candidates and I think all of us do when we’re in front of a microphone that’s really tough and combative.
+ - We need to have a president that’s going to pledge, as I have – I’m going to make America the number-one manufacturer so working men and women can have good paying jobs again in America.
+ - We had 90 percent rates, but nobody paid them. And so you had all these exemptions, exclusions, shelters, all this kind of stuff. And that’s why most Americans are saying, ‘Look, let’s just be honest. Let’s have lower rates, but everybody pays them.’
+ - Pick any other Republican in the country. He is the worst Republican in the country to put up against Barack Obama.
+ - I looked at No Child Left Behind after it was enacted and saw what happened and saw the expansion of the federal government and the role of education. And I said, you know, that was – that’s not what I believe in.
+ - I don’t think God will continue to bless America if we continue to kill 1.2 million children every year.
+ - I smoked pot and that was something that I did when I was in college It was something that I’m not proud of, but I did.
+ - I watch the Food Network with my kids. We – yeah, I – I – I generally don’t admit that, but I love cooking.
+ - If the most liberal man that’s ever been in office can get elected when 20 percent of the population identifies as liberal then I think we can elect a conservative when 40 percent of the population identifies themselves as conservative.
+ - This is common sense. This is nature, and what we’re trying to do is defy nature because a certain group of people want to be affirmed by society.
+ - When I say things like ‘Marriage should be between one man and one woman,’ I’m called a bigot.
+ - Radical feminists have been making the pitch that justice demands that men and women be given an equal opportunity to make it to the top in the workplace.
+ - There are certain skills that business people have that are – that are, in fact, helpful in – when it comes to being in political leadership.
+ - Satan has his sights on the United States of America!
+ - I raise money the old fashioned way, I go out and tell people what I think. And I say to them, “If you hire me, I’m a CEO, and I’ll listen to you. But at the end of the day, I’m going to make the decision, something I’ve done throughout my whole career with, frankly, great success.”
+ - I mean the fact is that some of this information that we have found out that led to Usama bin Laden actually came from these enhanced interrogation techniques.
+ - One of the things I will talk about, that no president has talked about before, is I think the dangers of contraception in this country.
+ - I think Donald Trump is going to surprise a lot of people.
+ - If Bruce Jenner says he’s woman then I’m not gonna argue with him. I know what obviously and biologically he is.
+ - If you look at the big entertainment industry and their pursuit of the bottom line profits in exchange for producing content and distributing that content and marketing that content to inappropriate audiences, that’s a problem for me.
+ - I don’t believe in an America where the separation of church and state are absolute.
+ - I’m one of the few people up here who actually believes that we need a level playing field when it comes to manufacturing. That means a good tax code, a good regulatory environment, low energy prices, better opportunities for workers to get training.
+ - We can’t nominate such a weak candidate. I’d love to be able to get one-on-one with Gov. Romney and expose the record that would be the weakest record we could possibly put up against Barack Obama.
+ - All the people who live in the West Bank are Israelis, they’re not Palestinians. There is no ‘Palestinian.’ This is Israeli land.
+ - Donald Trump is a good businessman. He knows how to put the deal together. And I think he’d be a – he’ll be a very constructive figure in the White House.
+ - I don’t want to make black people’s lives better by giving them somebody else’s money; I want to give them the opportunity to go out and earn the money.
+ - Every society in the history of man has upheld the institution of marriage as a bond between a man and a woman. Why? Because society is based on one thing: that society is based on the future of the society. And that’s what? Children. Monogamous relationships.
+ - Watching President Obama apologize last week for America’s arrogance – before a French audience that owes its freedom to the sacrifices of Americans – helped convince me that he has a deep-seated antipathy toward American values and traditions.
+ - And that is what the perception is by the American left, who hates Christendom.
+ - It’s not about contraception. It’s about economic liberty, it’s about freedom of speech, it’s about freedom of religion, it’s about government control of your lives and it’s got to stop!
+ - Marriage is an institution that existed before governments existed. It’s something that reflects nature and reflects God and God’s will for us. And both from the standpoint of faith and reason it makes all the sense in the world. And it’s beneficial for society.
+ - Satan is attacking the great institutions of America. This is a spiritual war. I believe in good and evil.
+ - If you’re a responsible business, you don’t let things like that happen in your business that have an impact on the country.
+ - As the Wall Street Journal called our economic plan, supply-side economics for the working man, is resonating in Minnesota and here in Missouri and across this country.
+ - Governor Romney supported the bailout of Wall Street and decided not to support the bailout of Detroit.
+ - We went into a recession in 2008 because of gasoline prices. The bubble burst in housing because people couldn’t pay their mortgages because of $4 a gallon gasoline.
+ - Its amazing that so many kids turn out to be fairly normal, considering the weird socialization they get in public schools.
+
+123 quotes

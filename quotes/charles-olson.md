@@ -1,0 +1,31 @@
+ - Atlantis will rise again.
+ - The heroes of the present will retreat to the imitation they are anyhow.
+ - Whatever you have to say, leave The roots on, let them Dangle And the dirt Just to make clear Where they come from.
+ - Knowledge is the harvest of attention.
+ - Were all moving, moving, moving. Isnt it nice?
+ - An American is a complex of occasions, themselves a geometry of spatial nature.
+ - Forgive me if I sleep until I wake up.
+ - All that matters is that the thing be the thing of the thing.
+ - I’m sorry, but I was born with a towel on my head.
+ - This morning of the small snow I count the blessings, the leak in the faucet which makes of the sink time, the drop of the water on water.
+ - What does not change is the will to change.
+ - I don’t live for poetry. I live far more than anybody else does.
+ - You don’t help people in your poems. I’ve been trying to help people all my life – that’s my trouble.
+ - There is a grace of life which is still yours, my dear Europe.
+ - You can do anything, literally, right? That’s one of the exciting possibilities of the present.
+ - I hope you’re representing the devil’s advocate.
+ - I sound like Homer. I mean Winslow Homer.
+ - I’m one of the cliches that has grown up.
+ - The Canadian voice is still too rustic.
+ - I take space to be the central fact to man born in America. I spell it large because it comes large here. Large and without mercy.
+ - I defer to all these other American poets who, for some reason, I both envy and admire.
+ - Is it not the play of the mind we are after? Is it not that that shows a mind is there at all?
+ - The poem, for me, is simply the first sound realized in the modality of being.
+ - We all want what’s been suddenly disallowed.
+ - I was playing catch with the European audience.
+ - I’m trying to climb up both walls at once.
+ - You can read everybody. It’s not even interesting to tell the truth because to some extent it’s false.
+ - Fact is based upon vulgar matter.
+ - When will government cease being a nuisance to everybody?
+
+29 quotes

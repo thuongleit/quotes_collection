@@ -1,0 +1,201 @@
+ - Pride is concerned with who is right. Humility is concerned with what is right.
+ - When we put God first, all other things fall into their proper place or drop out of our lives.
+ - You are free to choose, but you are not free to alter the consequences of your decisions.
+ - When obedience ceases to be an irritant and becomes our quest, in that moment God will endow us with power.
+ - When we put God first, all other things fall into their proper place or drop out of our lives. Our love of the Lord will govern the claims for our affection, the demands on our time, the interests we pursue, and the order of our priorities.
+ - He who kneels before God, can stand before any man.
+ - Every knee shall bow and every tongue confess that Jesus is the Christ.
+ - The Book of Mormon was written for us today. God is the author of the book. It is a record of a fallen people, compiled by inspired men for our blessing today. Those people never had the book. It was meant for us.
+ - The Lord is letting the wheat and the tares mature before he fully purges the Church. He is also testing you to see if you will be misled. The devil is trying to deceive the very elect.
+ - It is better to prepare and prevent than it is to repair and repent.
+ - Be cheerful in all that you do. Live joyfully. Live happily.
+ - If you really want to receive joy and happiness, then serve others with all your heart. Lift their burden, and your own burden will be lighter.
+ - True repentance involves a change of heart and not just a change of behavior.
+ - An honorable man or woman is one who is truthful; free from deceit; above cheating, lying, stealing, or any form of deception. An honorable man or woman is one who learns early that one cannot do wrong and feel right. A man’s character is judged on how he keeps his word and his agreements.
+ - Men and women who turn their lives over to God will discover that He can make a lot more out of their lives than they can.
+ - Nothing will surprise us more than when we get to heaven and see the Father and realize how well we know Him and how familiar His face is to us.
+ - Thoughts lead to acts, acts lead to habits, habits lead to character – and our character will determine our eternal destiny.
+ - The high cost of low living.
+ - To a significant degree, we are an overfed and undernourished nation digging an early grave with our teeth, and lacking the energy that could be ours because we overindulge in junk foods.
+ - It is not on the pinnacle of success and ease where men and women grow most. It is often down in the valley of heartache and disappointment and reverses where men and women grow...
+ - Those who think clean thoughts do not do dirty deeds.
+ - The more we express our gratitude to God for our blessings, the more he will bring to our mind other blessings. The more we are aware of to be grateful for, the happier we become.
+ - To the patriots I say this: Take that long eternal look. Stand up for freedom, no matter what the cost. Stand up and be counted. It can help to save your soul-and maybe your country.
+ - Pride is characterized by “What do I want out of life?” rather than by “What would God have me do with my life?” It is self-will as opposed to God’s will. It is the fear of man over the fear of God.
+ - The secret of a happy marriage is to serve God and each other. The goal of marriage is unity and oneness, as well as self-development. Paradoxically, the more we serve one another, the greater is our spiritual and emotional growth.
+ - Just as a man does not desire food until he is hungry, so does he not desire the salvation of Christ until he knows why he needs Christ.
+ - Only Jesus Christ is uniquely qualified to provide that hope, that confidence, and that strength we need to overcome the world and rise above our human failings. To do so, we must place our faith in Him and live by His laws and teachings.
+ - If we love God, do His will, and fear His judgment more than men’s, we will have self-esteem.
+ - That the sole object and only legitimate end of government is to protect the citizen in the enjoyment of life, liberty, and property, and when the government assumes other functions it is usurpation and oppression.
+ - It is a truism that children need more of Mother than of money.
+ - Be a light unto the world, a standard to others. You can live in the world and not partake of the sins of the world. You can live life joyously, beautifully, unmarred by the ugliness of sin. This is our confidence in you.
+ - The secret to missionary work is work. Work, work, work!
+ - To love God with all your heart, soul, mind, and strength is all-consuming and all-encompassin g. It is no lukewarm endeavor. It is total commitment of our very being-physicall y, mentally, emotionally, and spiritually-to a love of the Lord.
+ - God loves us. He’s watching us, he wants us to succeed, and we’ll know someday that he has not left one thing undone for the eternal welfare of each of us. If we only knew it, there are heavenly hosts pulling for us – friends in heaven that we can’t rememer now, who yearn for our victory.
+ - Without Christ there would be no Christmas and without Christ there can be no fulness of JOY.
+ - The greatest test of life is obedience to God.
+ - A good name is still to be preferred over great riches. Especially it is to be preferred to the appearance of riches, aquired with nothing down and nothing to pay for 2 months.
+ - You cannot do wrong and feel right. It is impossible!
+ - What would God have me do with my life?
+ - The temple will be an ever-present reminder that God intended the family to be eternal.
+ - God help us to be grateful for our blessings, never to be guilty of the sin of ingratitude, and to instill this same gratitude into the lives of our children.
+ - Today the devil as a wolf in supposedly a new suit of sheep’s clothing is enticing some men to parrot his line by advocating planned government guaranteed security at the expense of our liberties.
+ - Every man eventually is backed up to the wall of faith, and there he must make his stand.
+ - We do not have to prove the Book of Mormon is true. The book is its own proof.
+ - Mothers, take time to be a real friend to your children. Listen to your children, really listen. Talk with them, laugh and joke with them, sing with them, cry with them, hug them, honestly praise them. Yes, regularly spend unused one-on-one time with each child. Be a real friend to your children.
+ - Young people, you need the wisdom of age, just as some of us older ones need your enthusiasm for life.
+ - I hope we can be happy where we are, be grateful for our blessings-now-here, accept the challenge that is ours and make the most of it, and don’t be envious of others. God help us to be grateful.
+ - Fatherhood is not a matter of station or wealth; it is a matter of desire, diligence, and determination to see one’s family exalted in the celestial kingdom. If that prize is lost, nothing else really matters.
+ - Some men are willing to die for their faith but will not fully live for it. Christ both lived and died for us. By walking in his steps and through his atonement we can gain the greatest gift of all – eternal life – which is that kind of life of the great Eternal One, our Father in heaven.
+ - Youth is the spirit of adventure and awakening. It is a time of physical emerging when the body attains the vigor and good health that may ignore the caution of temperance. Youth is a period of timelessness when the horizons of age seem too distant to be noticed.
+ - No true Latter-day Saint and no true American can be a socialist or a communist or support programs leading in that direction. These evil philosophies are incompatible with Mormonism, the true gospel of Jesus Christ.
+ - Freedom must be continually guarded as something more priceless than life itself.
+ - A man must not only stand for the right principles, but he must also fight for them. Those who fight for principle can be proud of the friends they’ve gained and the enemies they’ve earned.
+ - From the Book of Mormon we learn how disciples of Christ live in times of war.
+ - The proud wish God would agree with them. They are not interested in changing their opinions to agree with God’s.
+ - Clean hearts and healthful food, exercise, early sleep and fresh air, wholesome recreation and meditation combined with optimism that comes from fighting for the right and knowing you’ll eventually win for keeps – this is the tonic every true Christian patriot needs and deserves.
+ - The way to feel better about your own situation is to improve someone else’s circumstances.
+ - What does it mean to love someone with all your heart? It means to love with all your emotional feelings and with all your devotion. Surely when you love your wife with all your heart, you cannot demean her, criticize her, find fault with her, or abuse her by words, sullen behavior, or actions.
+ - Be cheerful in all that you do. Live joyfully. Live happily. Live enthusiastically, knowing that God does not dwell in gloom and melancholy, but in light and love.
+ - I promise you that, with increased attendance in the temples of our God, you shall receive increased personal revelation to bless your life as you bless those who have died.
+ - Humility does not mean weakness. It does not mean timidity. It does not mean fear. A man can be humble and fearless. A man can be humble and courageous.
+ - One good yardstick as to whether a person might be the right one for you is this: in her presence, do you think your noblest thoughts, do you aspire to your finest deeds, do you wish you were better than you are?
+ - Pride adversely affects all our relationships – our relationship with God and His servants, between husband and wife, parent and child, employer and employee, teacher and student, and all mankind.
+ - There is no greater Church calling than that of a home teacher. There is no greater Church service rendered to our Father in Heaven’s children than the service rendered by a humble, dedicated, committed home teacher.
+ - A father’s duty is to make his home a place of happiness and joy.
+ - Families must spend more time together in work and recreation.
+ - Yes, it is the precepts of men versus the revealed word of God. The more we follow the word of God the less we are deceived, while those who follow the wisdom of men are deceived the most.
+ - The Church has no double standard of morality. The moral code of heaven for both men and women is complete chastity before marriage and full fidelity after marriage.
+ - Have good associates or don’t associate at all. Be careful in the selection of your friends. If in the presence of certain persons you are lifted to nobler heights, you are in good company. But if your friends or associates encourage base thoughts, then you had best leave them.
+ - Pride is ugly. It says ‘If you succeed I am a failure.’
+ - Bad experience is a school that only fools keep going to.
+ - Beguiling voices in the world cry out for ‘alternative lifestyles’ for women. They maintain that some women are better suited for careers than for marriage and motherhood.
+ - Praise your children more than you correct them. Praise them for even their smallest achievement.
+ - If men come unto me, I will show unto them their weakness. I give unto men weakness that they may be humble; and my grace is sufficient for all men that humble themselves before me; for if they humble themselves before me, and have faith in me, then will I make weak things become strong unto them.
+ - We need missionaries to match our message.
+ - Temples are places of personal revelation. When I have been weighed down by a problem or a difficulty, I have gone to the House of the Lord with a prayer in my heart for answers. The answers have come in clear and unmistakable ways.
+ - Mothers, train up your children in righteousness; do not attempt to save the world and let your own family fall apart.
+ - Scouting teaches a boy to take care of himself and stand on his own two feet.
+ - Some prideful people are not so concerned as to whether their wages meet their needs as they are that their wages are more than someone else’s. Their reward is being a cut above the rest. This is the enmity of pride.
+ - We should know why paternalism, collectivism, or unnecessary federal supervision will hold our standard of living down and reduce productivity just as it has in every country where it has been tried. We should also know why the communist leaders consider socialism the highroad to communism.
+ - Now, what of the entertainment that is available to our young people today? Are you being undermined right in your homes through your television, radio, slick magazines, and rock music records?
+ - Modesty in dress and language and deportment is a true mark of refinement and a hallmark of a virtuous Latter-day Saint woman.
+ - The responsibility of a man is to lead his family.
+ - Young people, your parents, with their maturity of years and experience you have not had, can provide wisdom, knowledge, and blessings to help you over life’s pitfalls. You may find, that life’s sweetest experiences come when you go to Mom and Dad for help.
+ - The Lord has warned and forewarned us against a day of great tribulation and given us counsel, through His Servants, on how we can be prepared for these difficult times. Have we heeded His counsel?
+ - There are times when you simply have to righteous hang on and outlast the devil.
+ - Fidelity to one’s marriage vows is absolutely essential for love, trust and peace.
+ - We have a sacred responsibility to fulfill the threefold mission of the Church – first, to teach the gospel to the world; second, to strengthen the membership of the Church wherever they may be; third, to move forward the work of salvation for the dead.
+ - One of the cardinal sins in our country is profanity – the taking of the name of the Lord in vain.
+ - I rode horseback three miles each way to get to high school, and in bad weather it was a problem sometimes to make my eight o’clock class on time. Like others, I often missed school to help on the farm, especially in the fall, until after harvest, and in the spring, during planting season.
+ - No true Latter-day Saint and no true American can be a socialist or a communist.
+ - It is a fundamental truth that the responsibilities of motherhood cannot be successfully delegated. No, not to day-care centers, not to schools, not to nurseries, not to babysitters.
+ - When we set goals, we are in command. Clearly understood goals bring our lives into focus just as a magnifying glass focuses a beam of light into a burning point. Without goals our efforts may be scattered and unproductive.
+ - This latter day work is spiritual. It takes spirituality to comprehend it, to love it, to discern it. Therefore, seek the spirit in all you do. Keep it with you continually. That is our challenge.
+ - The expression “follow the Brethren” has a broader meaning than some would apply to it. It means not only to agree with the counsel given to the Church by the Brethren, but also to follow their example in appearance and deportment.
+ - Rights are either God-given as part of the divine plan, or they are granted by government as part of the political plan. If we accept the premise that human rights are granted by government, then we must be willing to accept the corollary that they can be denied by government.
+ - One of Satan’s greatest tools is pride: to cause a man or a woman to center so much attention on self that he or she becomes insensitive to his Creator or fellow beings. It is a cause for discontent, divorce, teenage rebellion, family indebtedness, and most other problems we face.
+ - We must be devoted to sound principles in word and deed: principle above party, principle above pocketbook, principle above popularity.
+ - For years we have heard of the role the Elders could play in saving the Constitution from total destruction. But how can the Elders be expected to save it if they have not studied it and are not sure if it is being destroyed or what is destroying it.
+ - Strong families cultivate an attribute of effective communication. They talk out their problems, make plans together, and cooperate toward common objectives.
+ - Encourage good music and art and literature in your homes. Homes that have a spirit of refinement and beauty will bless the lives of your children forever.
+ - Take care of yourselves physically. Guard your health carefully. It is one of our greatest blessings. I especially encourage some type of exercise program so you can stay physically fit and physically capable in proportion to the demands on your body.
+ - It is not enough simply to try to resist evil or empty our lives of sin. We must also fill our lives with righteousness.
+ - If you turn your life over to the Lord he can do so much more with it than we can.
+ - The deepest joys and blessings in life are associated with family, parenthood, and sacrifice.
+ - The God of heaven sent some of His choicest spirits to lay the foundation of this government. And he has sent other choice spirits to preserve it.
+ - There can be no genuine happiness separate and apart from the home.
+ - I have a vision of the whole Church getting nearer to God by abiding by the precepts of the Book of Mormon.
+ - It is the mark of a truly educated man to know what not to read.
+ - A positive self-image has little relationship to our material circumstances.
+ - I began to realize that when you are at peace with your Maker you can, if not ignore human criticism, at least rise above it.
+ - Above all else, children need to know and feel they are loved, wanted, and appreciated. They need to be assured of that often. Obviously, this is a role parents should fill, and most often the mother can do it best.
+ - If we do not feel like praying, then we should pray until we do feel like praying.
+ - Making decisions is probably the most important thing people ever do. Nothing happens until someone makes a decision.
+ - There could not be a restoration of the gospel without freedom. God provided this country as the base of his operations in these the last days, a place where there would be freedom, where he could restore his gospel.
+ - A mother’s role is God-ordained. Mothers are to conceive, bear, nourish, love, and train. They are to be helpmates and are to counsel with their husbands.
+ - Right and wrong as moral principles do not change. They are applicable and reliable determinants whether the situations with which we deal are simple or complicated. There is always a right and wrong to every question which requires our solution.
+ - If we would truly seek to be more like our Savior and Master, learning to love as He loves should be our highest goal.
+ - While you are going through your trial, you can recall your past victories and coul the blessings that you do have with a sure hope of greater ones to allow if you are faithful.
+ - Any Christian constitutionalist who retreats from this battle jeopardizes his life here and hereafter. Seldom has so much responsibility hung on so few, so heavily; but our numbers are increasing, and we who have been warned have a responsibility to warn our neighbor.
+ - Essentially, pride is a ‘my will’ rather than ‘thy will’ approach to life.
+ - Periodic fasting can help clear up the mind and strengthen the body and the spirit.
+ - If we have any criticism of our leaders, we invite Satan into our lives and beliefs.
+ - Contention in our families drives the Spirit of the Lord away. It also drives many of our family members away. Contention ranges from a hostile spoken word to worldwide conflicts. The scriptures tell us that “Only by pride cometh contention”.
+ - The body needs the rejuvenation that comes from exercise. Walking in the fresh air can be exhilarating and refreshing. Properly directed running can also have some beneficial effects. Simple sit-ups or sports activities can also be helpful.
+ - Nations cannot endure in sin.
+ - Since the beginning, a woman’s first and most important role has been ushering into mortality spirit sons and daughters of our Father in Heaven.
+ - Every Latter-day Saint should make the study of this book a lifetime pursuit. Otherwise, he is placing his soul in jeopardy and neglecting that which could give spiritual and intellectual unity to his whole life.
+ - Now we not only need to say more about the Book of Mormon, but we need to do more with it.
+ - Many a man in his hour of trial has turned to the Book of Mormon and been enlightened, enlivened, and comforted. The psalms in the Old Testament have a special food for the soul of one in distress.
+ - Would we not do well to have the pleasing of God as our motive rather than to try to elevate ourselves above our brother and outdo another?
+ - Without goals our efforts may be scattered and unproductive.
+ - A missionary who is inspired by the Spirit of the Lord must be led by that Spirit to choose the proper approach to be effective. We must not forget that the Lord Himself provided the Book of Mormon as His chief witness. The Book of Mormon is still our most powerful missionary tool. Let us use it.
+ - Happy and successful homes cannot be built on immorality.
+ - Unless we do his teachings, we do not demonstrate faith in him.
+ - Faith is the foundation upon which a godlike character is built. It is a prerequisite for all other virtues.
+ - Thank God for the joys of family life. I have often said there can be no genuine happiness separate and apart from a good home. The sweetest influences and associations of life are there.
+ - Successful families try to work together toward solutions instead of resorting to criticism and contention.
+ - To be a successful missionary one must have the Spirit of the Lord. We are also taught that the Spirit will not dwell in unclean tabernacles. Therefore, one of the first things a missionary must do to gain spirituality is to make sure his own personal life is in order.
+ - The Book of Mormon offers so much that broadens our understandings of the doctrines of salvation. Without it, much of what is taught in other scriptures would not be nearly so plain and precious.
+ - Selfishness is one of the more common faces of pride. ‘How everything affects me’ is the center of all that matters-self-conceit, self-pity, worldly self-fulfillment, self-gratification, and self-seeking.
+ - How vital are mother’s influence and teaching in the home-and how apparent when neglected!
+ - Man is at his best when complimented by the influence of a good woman.
+ - Can human hearts be changed? Why, of course! It happens every day in the great missionary work of the Church. It is one of the most widespread of Christ’s modern miracles. If it hasn’t happened to you – it should.
+ - To their duty to God, youth should realize their duty to our country. They should love and honor the Constitution of the United States, the basic concepts and principles upon which this nation has been established. Yes, they need to develop a love for our free institutions.
+ - Have sufficient food, clothing, and fuel on hand to last at least one year.
+ - Pride is the great stumbling block of Zion. I repeat: Pride is the great stumbling block of Zion.
+ - I grew up believing that the willingness and ability to work is the basic ingredient of successful farming. Hard, intelligent work is the key. Use it, and your chances for success are good.
+ - Personal revelation, consecration of performance, attention to detail, and dependency on God-with these qualities you cannot fail.
+ - I have little need to remind you that water has become one of our major national concerns.
+ - Freedom can be killed by neglect as well as by direct attack.
+ - Christ wants to lift us to where He is. Do we desire to do the same for others?
+ - We cannot do everything at once, but we can do a great deal if we choose our goals well and work diligently to attain them.
+ - Let your minds be filled with the goal of being like the Lord, and you will crowd out depressing thoughts as you anxiously seek to know Him and do His will.
+ - Communities have a responsibility to assist the family in promoting wholesome entertainment. What a community tolerates will become tomorrow’s standard for today’s youth.
+ - Satan knows that youth is the springtime of life when all things are new and young people are most vulnerable.
+ - We live in a day of slick, quiet and clever sins.
+ - Those who are heavy-laden with despair should come unto the Lord.
+ - The Declaration of Independence to which these great men affixed their signatures is much more than a political document. It constitutes a spiritual manifesto-revel ation, if you will-declaring not for this nation only, but for all nations, the source of man’s rights.
+ - The secret of a happy marriage is to serve God and each other.
+ - A man who is pressing forward to accomplish worthy goals can soon put despondency under his feet.
+ - No society will long survive without mothers who care for their young and provide that nurturing care so essential for their normal development.
+ - We will not know Him, until we become like him.
+ - We should confess His hand in all things. Ingratitude is one of our great sins.
+ - We must ever keep in mind that collectivized socialism is part of the communist strategy. Communism is fundamentally socialism. We will never win our fight against communism by making concessions to socialism.
+ - Freedom is an eternal principle. Heaven disapproves of force, coercion and intimidation. Only a free people can be truly a happy people.
+ - In the beginning, Adam was instructed to earn the bread by the sweat of his brow – not Eve. Contrary to conventional wisdom, a mother’s place is in the home!
+ - An almost forgotten means of economic self-reliance is the home production of food. We are too accustomed to going to stores and purchasing what we need.
+ - I would rather say whoa to a leader than gittie up.
+ - Records, radio, television, movies, magazines-all are monopolized by the money managers who are guided by one ethic, the words wealth and power.
+ - Do not make your mind a dumping ground for other people’s garbage.
+ - I speak of honor-your honor to God-your honor to country-your honor to self. I sincerely believe it to be the cure to most of our ills, both on a national or individual basis.
+ - In a home where there is an able-bodied husband, he is expected to be the breadwinner.
+ - This nation was established by the God of heaven as a citadel of liberty. A Constitution guaranteeing those liberties was designed under the superintending influence of heaven.
+ - We can choose to humble ourselves by loving God, adjusting our will to His, and putting Him first in our lives.
+ - Was it not through pride that the devil became the devil? Christ wanted to serve. The devil wanted to rule. Christ wanted to bring men to where He was. The devil wanted to be above men.
+ - We do not find the Savior using force or coercion to accomplish His purposes.
+ - Let us be in a position so we are able to not only feed ourselves through home production and storage, but others as well.
+ - Character is the one thing we make in this world and take with us into the next.
+ - A young woman who knows and loves the Book of Mormon, who has read it several times, who has an abiding testimony of its truthfulness, and who applies its teachings will be able to stand against the wiles of the devil and will be a mighty tool in the hands of the Lord.
+ - Beware of those who would pit the dead prophets against the living prophets, for the living prophets always take precedence.
+ - The world today speaks a great deal about love, and it is sought by many. But the pure love of Christ differs greatly from what the world thinks of love. Charity never seeks selfish gratification. The pure love of Christ seeks only the eternal growth and joy of others.
+ - Let us have no further blind devotion to the communist dominated United Nations!
+ - When we set goals we are in command. If we know where we are going, we can judge more accurately where we are now and make effective plans to reach our destination.
+ - Do not be caught up in materialism, one of the real plagues of our generation-that is, acquiring things, fast-paced living, and securing career success.
+ - The greatest work in all the world is the building of men and women of character. Without character there is not much that is worthwhile.
+ - Ours is a representative republic with a Constitution in which is recognized the natural law and the natural rights of man. It is a republic with a spiritual foundation characterized by freedom – freedom for the individual and for his society.
+ - For the past two centuries, those who do not prize freedom have chipped away at every major clause of our Constitution until today we face a crisis of great dimensions.
+ - The revelation to store food may be as essential to our temporal salvation today as boarding the ark was to the people in the days of Noah.
+ - Every member of the priesthood should understand the divine plan designed by the Lord to raise up the first free people in modern times.
+ - You are the one who must decide whose thoughts you will entertain. You are free to choose-but you are not free to alter the consequences of those choices. You will be what you think about what you consistently allow to occupy the stage of your mind.
+ - The Lord is pleased with every effort, even the tiny, daily ones in which we strive to be more like Him.
+ - A father’s calling is eternal and its importance transcends time. It is a calling for both time and eternity.
+ - Pride is competition-competition between God and Man.
+ - A secret combination that seeks to overthrow the freedom of all lands, nations, and countries is increasing in its evil influence and control over America and the entire world.
+ - The devil knows that if the elders of Israel should ever wake up, they could step forth and help preserve freedom and extend the gospel. Therefore the devil has concentrated, and to a large extent successfully, in neutralizing much of the priesthood. He has reduced them to Sleeping Giants.
+ - Daily, constantly, we choose by our desires, our thoughts, and our actions whether we want to be blessed or cursed, happy or miserable.
+ - The time is long overdue for a massive flooding of the earth with the Book of Mormon for the many reasons which the Lord has given. In this age of electronic media and mass distribution of the printed word, God will hold us accountable if we do not now move the Book of Mormon in a monumental way.
+ - We have many responsibilities, and one cannot expect the full blessings of a kind Providence if he neglects any major duty. A man has duties to his church, his home, his country, and his profession or job.
+
+199 quotes

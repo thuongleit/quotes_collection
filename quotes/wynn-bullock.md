@@ -1,0 +1,25 @@
+ - What you see is real – but only on the particular level to which you’ve developed your sense of seeing. You can expand your reality by developing new ways of perceiving.
+ - Light to me is perhaps the most profound truth in the universe. My thinking has been deeply affected by the belief everything is some form of radiant energy.
+ - Mysteries lie all around us, even in the most familiar things, waiting only to be perceived.
+ - Human beings to me are as much a part of nature as trees or birds, and the unclothed body expresses this belongingness directly and powerfully.
+ - For me photography has been a profession, an avocation. Now it has become a way of life.
+ - You can expand your reality by developing new ways of perceiving.
+ - Creativity is an ode to life. It is not a form of entertainment. It is a form of joy.
+ - I now measure my growth as a photographer in terms of the degrees to which I am aware of, have developed my sense of, and have the skills to symbolize visually the four-dimensional structure of the universe.
+ - When I photograph, what I’m really doing is seeking answers to things.
+ - If you stop searching, you stop living, because then you’re dwelling in the past. If you’re not reaching forward to any growth or future, you might as well be dead.
+ - Searching is everything – going beyond what you know. And the test of the search is really in the things themselves, the things you seek to understand. What is important is not what you think about them, but how they enlarge you.
+ - Whenever I have found myself stuck in the ways I relate to things, I return to nature. It is my principal teacher, and I try to open my whole being to what it has to say.
+ - The urge to create, the urge to photograph, comes in part from the deep desire to live with more integrity, to live more in peace with the world, and possibly to help others to do the same.
+ - I feel all things as dynamic events, being, changing, and interacting with each other in space and time even as I photograph them.
+ - Everything went together perfectly, and this is what I mean by knowing. I didn’t have to analyze anything. I just recognized what was in front of me. All I had to do was set up and take the picture.
+ - I didn’t want to tell the tree or weed what it was. I wanted it to tell me something and through me express its meaning in nature.
+ - I love the medium of photography, for with its unique realism it gives me the power to go beyond conventional ways of seeing and understanding and say, This is real, too.
+ - I totally disagree with the belief that nature was only made for the use of people. Human beings are not the center of the universe, and, if they are to sustain themselves, it is vitally important for them to be awakened to how closely they are linked with the rest of nature.
+ - Theoretical scientists who probe the secrets of the universe and philosophers who seek answers to existence, as well as painters such as Paul Klee who find the thoughts of men of science compatible with art, influence me far more than most photographers.
+ - At 42, I decided to become a photographer because it offered a means of creative thought and action. I didn’t rationalize this, I just felt it intuitively and followed my intuition, which I have never regretted.
+ - A thing is not what you say it is or what you photograph it to be or what you paint it to be or what you sculpt it to be. Words, photographs, paintings, and sculptures are symbols of what you see, think, and feel things to be, but they are not the things themselves.
+ - As sounds in a musical composition can be used not to express physical objects but ideas, emotions, harmonies, rhythmic orders and most any expression of the human mind and spirit, so light can be used visually to express the mind and spirit.
+ - For me a nude photograph should be erotic, not devoid of emotion. The body is a sensual thing, sensuality being one of its most beautiful and meaningful qualities.
+
+23 quotes

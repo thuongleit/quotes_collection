@@ -1,0 +1,21 @@
+ - Pray as if all things depend on God, and work as if all things depend on you.
+ - Don’t just aim high, reach it and grab some happiness along the way.
+ - The only person who fears nothing is one who has nothing to lose.
+ - I want to talk to you. I want to listen to you. I want to walk with you and, yes, I want you in m bed. That’s what I want today. That’s what I’ll want in a hundred years. If you promise to be my wife forever, I will pledge myself to your happiness.
+ - Everyone thinks you’re so strong and self-confident, but inside you’re a frightened child, waiting to suffer betrayal again from those who should love you most.
+ - Life is too short to dance with ugly men.
+ - Only those who row the boat make waves.
+ - If you cannot see the bright side of life, polish the dull side.
+ - Great minds think alike-especially when they are female.
+ - Most males do not mature, they simply grow taller.
+ - I intend to marry Michael, and squander all his money and run his life, and make sure he never again consorts with wicked women or gambles with licentious men. I promise I will henpeck him until he has no life beyond what I allow him, and when we die, I will lie in his arms through all eternity.
+ - I thought society would do the right thing. Now I look around and I think – society never does the right thing. Sometimes people do the right thing. Sometimes one person makes a difference. But civilization has rules, and I’ve learned them well – never be helpless, never be sick, never be poor.
+ - Grumpy is her favorite dwarf.
+ - If our legal counsel, Bob Rutherford, works for Satan, Satan should buy Bob a better toupee.
+ - I do care about real life. It’s just not as interesting as what’s in my books.
+ - Ma, I’m just trying to get going on those grandchildren you want.
+ - Fate Marches on, demanding we find our destinies.
+ - Pamela Palmer’s stories catch you, captivate you, and never let you go.
+ - A princess always takes care that her words are honeyed, for she may have to eat them.
+
+19 quotes

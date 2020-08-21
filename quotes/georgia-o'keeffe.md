@@ -1,0 +1,113 @@
+ - I’ve been absolutely terrified every moment of my life and I’ve never let it keep me from doing a single thing that I wanted to do.
+ - Whether you succeed or not is irrelevant, there is no such thing. Making your unknown known is the important thing.
+ - I found I could say things with color and shapes that I couldn’t say any other way – things I had no words for.
+ - Happiness goes like the wind, but what is interesting stays.
+ - It’s not enough to be nice in life. You’ve got to have nerve.
+ - Nobody sees a flower – really – it is so small it takes time – we haven’t time – and to see takes time, like to have a friend takes time.
+ - Nothing is less real than realism. Details are confusing. It is only by selection, by elimination, by emphasis, that we get at the real meaning of things.
+ - I have already settled it for myself so flattery and criticism go down the same drain and I am quite free.
+ - The men liked to put me down as the best woman painter. I think I’m one of the best painters.
+ - You write about my flower as if I think and see what you think and see of the flower – and I don’t.
+ - One can not be an American by going about saying that one is an American. It is necessary to feel America, like America, love America and then work.
+ - I decided that if I could paint that flower in a huge scale, you could not ignore its beauty.
+ - I’m frightened all the time. But I never let it stop me. Never!
+ - There’s something about black. You feel hidden away in it.
+ - To make your unknown known – that’s the important thing.
+ - You get whatever accomplishment you are willing to declare.
+ - When people read erotic symbols into my painting, they’re really thinking about their own affairs.
+ - I get out my work and have a show for myself before I have it publicly. I make up my own mind about it-how good or bad or indifferent it is. After that, the critics can write what they please. I have already settled it for myself so flattery and criticism go down the same drain and I am quite free.
+ - I don’t see why we ever think of what others think of what we do – no matter who they are. Isn’t it enough just to express yourself?
+ - Bement was a very good teacher but he was a very poor painter. I guess he wasn’t a painter at all. He had no courage and I believe that to create one’s own world in any of the arts takes courage.
+ - Color is one of the great things in the world that makes life worth living to me and as I have come to think of painting it is my efforts to create an equivalent with paint color for the world, life as I see it.
+ - The morning is the best time, there are no people around. My pleasant disposition likes the world with nobody in it.
+ - Filling a space in a beautiful way – that is what art means to me.
+ - God told me if I painted that mountain enough, I could have it.
+ - Interest is the most important thing in life; happiness is temporary, but interest is continuous.
+ - I wish people were all trees and I think I could enjoy them then.
+ - The unexplainable thing in nature that makes me feel the world is big fat beyond my understanding – to understand maybe by trying to put it into form. To find the feeling of infinity on the horizon line or just over the next hill.
+ - I don’t know what Art is but I know some things it isn’t when I see them.
+ - So I said to myself-I’ll paint what I see-what the flower is to me but I’ll paint it big and they will be surprised into taking the time to look at it-I will make even busy New Yorkers take time to see what I see of flowers.
+ - Sometimes I start in a very realistic fashion, and as I go on from one painting to another of the same kind, it becomes simplified until it can be nothing but abstraction.
+ - Art is a wicked thing. It is what we are.
+ - I often painted fragments of things because it seemed to make my statement as well as or better than the whole could.
+ - I do not like the idea of happiness – it is too momentary – I would say that I was always busy and interested in something – interest has more meaning to me than the idea of happiness.
+ - If you take a flower in your hand and really look at it, it’s your world for a moment.
+ - I know I can not paint a flower, I can not paint the sun on the desert on a bright summer morning but maybe in terms of paint colour I can convey to you my experience of the flower or the experience that makes the flower of significance to me at that particular time.
+ - I hate flowers – I paint them because they’re cheaper than models and they don’t move.
+ - I feel there is something unexplored about woman that only a woman can explore.
+ - One works because I suppose it is the most interesting thing one knows to do. The days one works are the best days. On the other days one is hurrying through the other things one imagines one has to do to keep one’s life going...
+ - I always have a curious sort of feeling about some of my things – I hate to show them – I am perfectly inconsistent about it – I am afraid people won’t understand – and I hope they won’t – and am afraid they will.
+ - I decided to accept as true my own thinking.
+ - Someone else’s vision will never be as good as your own vision of your self. Live and die with it ’cause in the end it’s all you have. Lose it and you lose yourself and everything else. I should have listened to myself.
+ - A week ago it was the mountains I thought the most wonderful, and today it’s the plains. I guess it’s the feeling of bigness in both that carries me away.
+ - War is killing the individual in it unless he has learned livingness – if he had it he wouldn’t be a good soldier.
+ - It seems to be my mission in life to wait on a dog.
+ - When you get so that you can’t see, you come to it gradually. And if you didn’t come by it gradually, I guess you’d just kill yourself when you couldn’t see.
+ - It was in the 1920s, when nobody had time to reflect, that I saw a still-life painting with a flower that was perfectly exquisite, but so small you really could not appreciate it.
+ - I have things in my head that are not like what anyone has taught me – shapes and ideas so near to me – so natural to my way of being and thinking that it hasn’t occurred to me to put them down.
+ - The days you work are the best days.
+ - I am trying with all my skill to do a painting that is all woman, as well as all of me.
+ - If one could only reproduce nature, and always with less beauty than the original, why paint at all?
+ - To create one’s world in any of the arts takes courage.
+ - I have a single track mind. I work on an idea for a long time. It’s like getting acquainted with a person, and I don’t get acquainted easily.
+ - Did you ever have something to say and feel as if the whole side of the wall wouldn’t be big enough to say it on, and then sit down on the floor and try to get it onto a sheet of charcoal paper?
+ - I have painted portraits that to me are almost photographic. I remember hesitating to show the paintings, they looked so real to me. But they have passed into the world as abstractions – no one seeing what they are.
+ - I had to create an equivalent for what I felt about what I was looking at – not copy it.
+ - A flower touches everyone’s heart.
+ - You are one of my nicest thoughts.
+ - I decided to start anew, to strip away what I had been taught.
+ - One can’t paint New York as it is, but rather as it is felt.
+ - In the evening I go up in the desert and spend hours watching the sun go down, just enjoying it, and every day I go out and watch it again. I draw some and there is a little painting and so the days go by.
+ - Sun-bleached bones were most wonderful against the blue – that blue that will always be there as it is now after all man’s destruction is finished.
+ - I have lived on a razors edge. So what if you fall off. I’d rather be doing something I wanted to do. I’d walk it again.
+ - The abstraction is often the most definite form for the intangible thing in myself that I can clarify in paint.
+ - I often lay on that bench looking up into the tree, past the trunk and up into the branches. It was particularly fine at night with the stars above the tree.
+ - The painting is like a thread that runs through all the reasons for all the other things that make one’s life.
+ - Objective painting is not good painting unless it is good in the abstract sense. A hill or tree cannot make a good painting just because it is a hill or tree. It is lines and colors put together so that they may say something.
+ - All the earth colours of the painter’s palette are out there in the many miles of badlands...
+ - I think it’s so foolish for people to want to be happy. Happy is so momentary – you’re happy for an instant and then you start thinking again. Interest is the most important thing in life; happiness is temporary, but interest is continuous.
+ - I can’t live where I want to, I can’t go where I want to go, I can’t do what I want to, I can’t even say what I want to. I decided I was a very stupid fool not to at least paint as I wanted to.
+ - I made you take time to look at what I saw and when you took time to really notice my flower, you hung all your associations with flowers on my flower and you write about my flower as if I think and see what you think and see – and I don’t.
+ - When you take a flower in your hand and really look at it, it’s your world for the moment. I want to give that world to someone else. Most people in the city rush around so, they have no time to look at a flower. I want them to see it whether they want to or not.
+ - Whether the flower or the color is the focus I do not know. I do know the flower is painted large to convey my experience with the flower – and what is my experience if it is not the color?
+ - It always seems to me that so few people live – they just seem to exist and I don’t see any reason why we shouldn’t live always – til we die physically...
+ - I got half-a-dozen paintings from that shattered plate.
+ - My first memory is of light – the brightness of light – light all around.
+ - I’m glad I want everything in the world – good and bad – bitter and sweet – I want it all.
+ - We feared the heartlessness of human beings, all of whom are born blind, few of whom ever learn to see.
+ - When I think of death, I only regret that I will not be able to see this beautiful country anymore unless the Indians are right and my spirit will walk here after I’m gone.
+ - It seems to me very important to the idea of democracy to the country and to the world eventually that all men and women stand equal under the sky.
+ - Imagination makes you see all sorts of things.
+ - Marks on paper are free – free speech – press – pictures all go together I suppose.
+ - I’ve been afraid every single day of my life, but I’ve gone ahead and done it anyway.
+ - I find that I have painted my life – things happening in my life – without knowing.
+ - The meaning of a word – to me – is not as exact as the meaning of a color. Colors and shapes make a more definite statement than words.
+ - Anyone who doesn’t feel the crosses simply doesn’t get that country.
+ - I long ago came to the conclusion that even if I could put down accurately the thing I saw and enjoyed, it would not give the observer the kind of feeling it gave me. I had to create an equivalent for what I felt about what I was looking at-not copy it.
+ - I know now that most people are so closely concerned with themselves that they are not aware of their own individuality, I can see myself, and it has helped me to say what I want to say in paint.
+ - I know I am unreasonable about people but there are so many wonderful people whom I can’t take the time to know.
+ - I realized that I had things in my head not like what I had been taught – not like what I had seen – shapes and ideas so familiar to me that it hadn’t occurred to me to put them down. I decided to stop painting, to put away everything I had done, and to start to say the things that were my own.
+ - Since I cannot sing, I paint.
+ - Slits in nothingness are not very easy to paint.
+ - It was all so far away – there was quiet and an untouched feel to the country and I could work as I pleased.
+ - My painting is what I have to give back to the world for what the world gives to me.
+ - Singing has always seemed to me the most perfect means of expression. It is so spontaneous. And after singing, I think the violin. Since I cannot sing, I paint.
+ - I realized that were I to paint flowers small, no one would look at them because I was unknown. So I thought I’ll make them big, like the huge buildings going up. People will be startled; they’ll have to look at them – and they did.
+ - I’d been taught to paint like other people, and I thought, what’s the use? I couldn’t do any better than they, or even as well. I was just adding to the brushpile. So I quit.
+ - I believe I would rather have Stieglitz like something – anything I had done – than anyone else I know.
+ - I believe an artist is the last person in the world who can afford to be affected.
+ - I like an empty wall because I can imagine what I like on it.
+ - I decided I was a very stupid fool not to at least paint as I wanted to.
+ - I look at my work and make up my mind about it. After that, neither flattery nor criticism matters to me.
+ - I like to convey the idea that art is important in everyday life.
+ - I don’t really know where I got my artists idea. The scraps of what I remember do not explain to me where it came from. I only know that by this time it was definitely settled in my mind.
+ - I am not an exponent of expressionism. I don’t know exactly what that means, but I don’t like the sound of it. I dislike cults and isms. I want to paint in terms of my own thinking and feeling.
+ - Now and then when I get an idea for a picture, I think, how ordinary. Why paint that old rock? Why not go for a walk instead? But then I realise that to someone else it may not seem so ordinary.
+ - Making your unknown known is the important thing – and keeping the unknown always beyond you – catching – crystalizing your simpler clearer vision of life – only to see it turn stale compared to what you vaguely feel ahead – that you must always keep working to grasp...
+ - I don’t very much enjoy looking at paintings in general. I know too much about them. I take them apart.
+ - I took back a barrel of bones to New York. They were my symbols of the desert, but nothing more. I haven’t seen enough to think of any other symbolism. The skulls were there and I could say something with them.
+ - Objective painting is not good painting unless it is good in the abstract sense.
+ - I see no reason for painting anything that can be put into any other form as well.
+ - Where I was born and where and how I have lived is unimportant. It is what I have done with where I have been that should be of interest.
+
+111 quotes

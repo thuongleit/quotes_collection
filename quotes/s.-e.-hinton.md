@@ -1,0 +1,64 @@
+ - Stay gold, Ponyboy, stay gold.
+ - The difference is that was then, this is now.
+ - Maybe the two different worlds we lived in weren’t so different. We saw the same sunset.
+ - Things are rough all over.
+ - Stay Gold.
+ - You still have a lot of time to make yourself be what you want. There’s still lots of good in the world. Tell Dally. I don’t think he knows.
+ - Things were rough all over, but it was better that way. That way you could tell the other guy was human too.
+ - Get smart and nothing can touch you.
+ - Greasers will still be greasers and Socs will still be Socs. Sometimes I think it’s the ones in the middle that are really the lucky stiffs.
+ - I learned that if you want to get somewhere, you just make up your mind and work like hell til you get there.
+ - It seemed funny that the sunset she saw from her patio and the one I saw from the back steps was the same one. Maybe the two worlds we lived in weren’t so different. We saw the same sunset.
+ - They grew up on the outside of society. They weren’t looking for a fight. They were looking to belong.
+ - Can you see the sunset real good on the West side? You can see it on the East side too.
+ - I am a greaser. I am a JD and a hood. I blacken the name of our fair city. I beat up people. I rob gas stations. I am a menace to society. Man do I have fun!
+ - Sixteen years on the streets and you can learn a lot. But all the wrong things, not the things you want to learn. Sixteen years on the streets and you see a lot. But all the wrong sights, not the things you want to see.
+ - I think that The Outsiders was meant to be written, and I was just picked to write it.
+ - I had it then. Soda fought for fun, Steve for hatred, Darry for pride, and Two-Bit for conformity. Why do I fight? I thought, and couldn’t think of any real good reason. There isn’t any real good reason for fighting except self-defense.
+ - When I stepped out into the bright sunlight from the darkness of the movie house, I had only two things on my mind: Paul Newman and a ride home.
+ - I was a tomboy and most of my close friends were male.
+ - Y’all were heroes from the beginning. You just didn’t ‘turn’ all of a sudden.
+ - I never base a character on someone I know. You can get ideas from real life, but every character you write is some aspect of yourself.
+ - If you have two friends in your lifetime, you’re lucky. If you have one good friend, you’re more than lucky.
+ - He died violent and young and desperate, just like we all knew he’d die someday.
+ - If you want to be a writer, I have two pieces of advice. One is to be a reader. I think that’s one of the most important parts of learning to write. The other piece of advice is ‘Just do it!’ Don’t think about it, don’t agonize, sit down and write.
+ - It’s okay. We aren’t in the same class. Just don’t forget that some of us watch the sunset too.
+ - I guess I just couldn’t see standing there – alive, talking, thinking, breathing, being – one second, and dead the next. It really bothered me. Death by violence isn’t the same as dying any other way, accident or disease or old age. It just ain’t the same.
+ - Dally was so real he scared me.
+ - California is like a beautiful wild kid on heroin, high as a kite and thinking she’s on top of the world, not knowing she’s dying, not believing it even if you show her the marks.
+ - I lie to myself all the time. But I never believe me.
+ - We couldn’t get along without him. We needed Johnny as much as he needed the gang. And for the same reason.
+ - I have no idea why I write. The old standards are: I like to express my feelings, stretch my imagination, earn money.
+ - You know the rules. No jazz before a rumble.
+ - Writer’s were supposed to be a litte crazy.
+ - You know a guy a longtime, and I mean really know him, you don’t get used to the idea that he’s dead just overnight.
+ - Johnny almost grinned as he nodded. “Tuff enough,” he managed, and by the way his eyes were glowing, I figured Southern gentlemen had nothing on Johnny Cade.
+ - I used to be sure of things. Me, once i had all the answers. I wish i was a kid again, when i had all the answers.
+ - Nothing sparkly can stay.
+ - My mother was physically and emotionally abusive. My father was an extremely cold man.
+ - You know what the crummiest feeling you can have is? To hate the person you love the best in the world.
+ - I don’t know why I go to school unless for kicks, oh well might as well do dissect a frog.
+ - There isn’t any real good reason for fighting except self-defense.
+ - Asleep, he looked a lot younger than going-on-seventeen, but I had noticed that Johnny looked younger when he was asleep too, so I figured everyone did. Maybe people are younger when they are asleep.
+ - All my life I wanted somebody who knew more than I did to tell me the truth.
+ - It ain’t fair that we have all the rough breaks!
+ - I didn’t think much about that statement then. But later I would-I still do. I think about it and think about it until I think I’m going crazy.
+ - They used to be buddies, I thought, they used to be friends, and now they hate each other because one has to work for a living and the other comes from the West Side. They shouldn’t hate each other...
+ - I really do like listening to stuff that’s happened to other people. I guess that’s why I like to read.
+ - We had played a kid’s version of gang fighting called “Civil War,” and then later we had got in on the real thing, we fought with chains and we fought barefisted and we fought Socs and we fought other grease gangs. It was a normal childhood.
+ - I advise writing to oneself. If you don’t want to read it, nobody else is going to read it.
+ - Movies can’t ruin books. They can only ruin movies.
+ - I gotta cut smoking or I’ll never make track next year.
+ - If you enjoy reading something, read it.
+ - Sometimes, I feel like I spent the first part of my life wishing to be a teen-age boy, and the second part condemned to being one.
+ - All of a sudden it felt like people were peering over my shoulder, wondering what I would write next. I was blocked for four years.
+ - He sure put things into words good.
+ - I was desperate for something to read that dealt realistically with teenage life, and I thought others might be, too.
+ - I go straight from thinking about my narrator to being him.
+ - I like having a private name and a public name. It helps keep things straight.
+ - My boyfriend suggested I write two pages a day. He wouldn’t take me out if I hadn’t done my two pages. That’s how I wrote my second novel.
+ - Anything you read can influence your work, so I try to read good stuff.
+ - I’m a good judge of my own work.
+ - Even the most primite societies have an innate resepect for the insane.
+
+62 quotes

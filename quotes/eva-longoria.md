@@ -1,0 +1,120 @@
+ - Hold on to the love, not the loss.
+ - I’m a tomboy. I love shooting guns and running around.
+ - When I want to reward myself I get a relaxing massage.
+ - Your body is a vehicle of your emotions and a vehicle of feelings and a vehicle of whatever you need to get done in life. And you’ve got to take care of that vehicle.
+ - I don’t regret anything I ever do or say. I don’t like to live my life being censored. I like to say what I feel, and I think people respect that because you’re honest.
+ - My mother gave me one piece of advice that stuck with me. She said don’t forget where you came from.
+ - I don’t regret anything I do, ever, whether articles I’ve done or things I’ve said. And as far as what’s happened in the past, I wouldn’t take anything back.
+ - I’m not averse to being tied up in silk scarves. I like a man to take charge. There’s something very sexy about being submissive.
+ - I love being a woman. I love the sexiness we get to exude. But the best thing about being a woman is the power we have over men.
+ - It’s really important to have a healthy sexuality and to be open about it. It’s not a taboo. It’s normal.
+ - The main thing is to be philanthropic in your everyday life. You don’t have to have money to do that. You can do it with your time and your energy.
+ - I grew up with the word “volunteer” as a very powerful word in my family. I was inspired by my mother and by how selfless our family was toward others who didn’t have enough.
+ - I do not regret getting married nor do I regret getting divorced.
+ - Unfortunately, we live our life in public, so any weight gain or pimple is a national story. I don’t get this obsession with weight. It’s not only Hollywood; it’s our society.
+ - A marriage is a partnership.
+ - I think sometimes women are stuck in a type. I’ve never dated the same type. I fall in love with personalities, and they come in different packages.
+ - I’ve always said I want a farmer, not a hunter. Hunters go for the kill and they move on. A farmer nurtures; he watches things grow.
+ - I’m very literate on policy. I’m very literate on the issues, and I’m an American first. I’ve been involved in politics long before I was an actress. I just happen to have a platform now. I just happen to have a voice.
+ - Beauty lies mainly, above all, in personality, not in the skin.
+ - Growing another life inside of you is one of the strangest, but most amazing feelings anyone can have.
+ - You never date someone’s ex-boyfriend. Period. That’s not even the unspoken rule – that’s the spoken rule.
+ - She is a 13-year-old girl who shares Amanda’s name, and politely explained that she could not give up the website. Why? Because the younger Amanda plans to be president of the United States, and she’s going to need the website for her campaign.
+ - The Latina spirit translates to every aspect of our lives, from beauty to work to family. We’re loving, we’re loud, and we’re beautiful in our essence.
+ - I’m very proud of my sisters and everything they’ve accomplished and done. I’m very proud of where I came from.
+ - So many people want me to hate him and destroy him, but I don’t want to. I want him to be happy. He’s not a bad person.
+ - I didn’t grow up speaking Spanish, and the interesting thing was, we would watch these novelas and you didn’t have to speak Spanish to understand what was going on.
+ - You don’t need to know who I’m dating. You don’t need to know what I’m doing. I’m fine with everybody not knowing that.
+ - I still can’t understand why anyone cares about what I do or what I say.
+ - I just came into my own sexuality at thirty. I don’t think it’s something you can deeply experience at 18 or any time before that.
+ - In the Mexican culture, we never miss a baptism, a birthday, a baby shower, a wedding shower, a wedding. You must show up. Otherwise, you’ll be in big trouble.
+ - Hunting is a family thing for me, and it’s a Texas thing. We have a lot of land in Texas that’s been in our family for 12 generations.
+ - I just want to believe in a higher power. That’s a good way to live.
+ - There’s no amount of money that would make me decide something for a career.
+ - I like being small – I’ve known so many women with big boobs who feel overweight or end up with back problems.
+ - There’s a big difference between charity and between activism and philanthropy. They’re very different things and I think, you know, everybody should find a passion or a cause that they can really get behind, but it has to be organic.
+ - I have a personal trainer who comes over at least four times a week and kicks my butt. I get so sore that I can’t even walk.
+ - I banned bottled water from my house – we have a water-filter system so you can drink from the tap. We always drink out of glass, and recycling is a huge deal, which everybody can partake in.
+ - I’m super careful with my skin and make sure to protect it. I always sit under an umbrella. And I’m a sunblock bully. If you’re on the beach with me, I will spray you down with SPF 50-plus.
+ - I always knew pesticides affected farmworkers. That’s why I always tell people, “eat organic.” Not just because it’s better for you but because you know the people who picked your food weren’t in a toxic environment.
+ - I’m a terrific Mexican cook, and I just love Mexican food. And I love cooking Mexican food.
+ - People associate farmworkers with illegal immigrants, and that’s really not the case.
+ - I was born in platform heels. I actually always fall down when I’m wearing flip-flops.
+ - I’ve lost a lot of jobs because I was too pretty. And everybody’s like “Oh, poor you.” But seriously, you don’t get the good roles when you’re beautiful.
+ - On a television show, you basically make a movie a week. Movies take three months – it’s crazy. They’re so slow, it’s like vacation to me.
+ - I was a tomboy and any time anyone says something about me being hot, it makes me giggle.
+ - So, I’m the Eighth Wonder of the World. It’s flattering and very, very funny.
+ - Marriage is a commitment, so you always have to work at it.
+ - When you’re fighting for social justice, one of my biggest pet peeves is speaking out of ignorance.
+ - I’m not going to stop going to the supermarket just because the paparazzi follow me. I love to cook and a cook needs her ingredients!
+ - I find it irresponsible to go, ‘She’s an actress, what does she know?’ That means if you’re a dentist, what do you know? If you’re a lawyer, what do you know? It’s our profession, it’s what we do. It’s not who we are.
+ - I’ve always eaten egg whites because when I was little, I didn’t like the color yellow, so my mom would trick me into eating eggs by taking out the yolk.
+ - I do like British guys. If I had to pick one it would be Ewan McGregor. I met him once and he was gorgeous, even if he is a little short. He has the most amazing charisma.
+ - I do want to have a family at some point. I also want to adopt. I don’t feel pressure to have kids because I know that there are so many out there.
+ - I do believe in forgiving and forgetting. There was a reason we were together. I just want to hold on to the good times.
+ - I guess we have the press to thank for pushing us to see something we didn’t see!
+ - I find it a turnoff whenever men aren’t into some kind of sport. And, no, video games don’t count. I dated a guy who was into video games, and I wanted to shoot myself.
+ - Baking is too precise for me. I cook with a pinch of this or that.
+ - Michelle Obama is going to be an amazing First Lady: She’s intelligent, capable and motivated. She just embodies everything that an American woman should represent.
+ - If I were single and had my career, I’d be happy. You have to be happy with what you’re doing.
+ - Everybody needs a chance to find love.
+ - I actually love fish and vegetables. I was raised on vegetables! Anything green – spinach, broccoli, brussels sprouts – I crave.
+ - I’m not a matchmaker. I’m a horrible matchmaker. I always try. I’m not very good.
+ - For me, as far as skin, I’m a big advocate of facials. And I moisturize. And I read my magazines. I listen to good advice from people who really know, and I try to watch what I eat.
+ - I think what I love most about Oprah’s brand that I would love to do with the Eva Longoria brand is she has purpose with her brand. Everything she does means something.
+ - I’m a fabulous date, I make sure I look good, I like hearing what a guy has to say and I make sure the evening is a real laugh. I like to laugh.
+ - You can’t walk two steps without seeing a pregnant teen.
+ - I’ve always been confident with who I was, but my twenties were hard. I had to learn a lot of life lessons and I think my thirties will be a little easier because of all the wrong turns I took.
+ - I’m a pageant girl from Texas, so I like makeup and hairspray. And the smoky eye? I think I was born with it!
+ - I try to run every time I’m in a new city or country – you just put your shoes on and go. It’s very therapeutic, and it also works for me when I want to lose weight.
+ - I’m naturally athletic. I’ve been involved in sports since I could walk. So, for me to be sedentary is just unacceptable. Not only is it great for your physical body, but it gives me more energy during the day if I’ve worked out. I feel better. I look better.
+ - You’re never too old or too busy to continue your educatioan!
+ - I was making almost minimum wage on ‘The Young and the Restless.’ But it was my first job, so I accepted my first quote. I had a great time on it, and it obviously led me to better things.
+ - I believe, as they say, that you can’t be what you don’t see, and since I saw a lot of smart women in my life, education being at the center, I just mimicked that behavior.
+ - I’m very efficient and the people who work with me always say that – they know when they have a day with me it’s going to be really exhausting because I love to fit as much in as possible.
+ - My worst habit in the kitchen is not allowing anybody to help me. I like to cook by myself.
+ - I got my degree. More importantly, I got a key to American opportunity. That’s who we are – a nation that rewards ambition with opportunity. Where hard work can lead to success, no matter where you start.
+ - In my family, there was one cardinal priority – education. College was not an option; it was mandatory. So even though we didn’t have a lot of money, we made it work. I signed up for financial aid, Pell Grants, work study, anything I could.
+ - Immigration is not the top issue for Latinos. Latinos are like every other American – economy, jobs, healthcare, education.
+ - So many people think you have to be rich and famous to really create an impact, and it’s just not true. Especially when it comes to environmentalism.
+ - Who I am at the core and what I think represents me is really reflected in my family.
+ - I’ve always seen actresses who constantly date their leading men or somebody they co-star with, and I’ve been the opposite. Once I act with you, I feel like you’re my brother.
+ - I’m not a fan of capris. They actually shorten my legs.
+ - I’ve always thought of myself as a role model even before being a ‘celebrity.’ I’ve always been doing charity work and volunteering in the community since I was 8, so when you do that, I think you just assume that role when you put yourself out there.
+ - I love to be pursued. I think that when you’re not a challenge, it’s just nnot as fun for the guy.
+ - I’m on the ground, I’ve been in swing states, I’ve been talking to the American people, I’ve been out there speaking on behalf of Obama’s record, I’ve been in the trenches.
+ - I grew up on a ranch with my father, so he educated us really early on about guns. We used to go target shooting all the time.
+ - I think what destroys Hollywood marriages is our work schedule, not so much infidelity.
+ - I’ll talk about my Tony all day long.
+ - I learned French before I learned Spanish.
+ - When people think of diversity, they think people of color, but it also means women, who are severely underrepresented as directors, writers and producers.
+ - I think I’ve ignored it so much so that when the paparazzi are following me I really don’t see them. You don’t see them anymore.
+ - You don’t get the good roles when you’re beautiful.
+ - I’ve been a longtime advocate of farmworker rights.
+ - I’m a cook, and I’m like, “a dash of this, a pinch of that.” I cook with a lot of passion and instinct. So that’s the hardest thing – to put an actual recipe together.
+ - It’s not a party unless I’m cooking. Some people find entertaining stressful, but it is therapeutic for me; I find it relaxing.
+ - As a woman, you feel like you can change the person, but I don’t think that’s the way it works.
+ - I am honored to be here as co-chair of President Obama’s re-election campaign.
+ - I won a scholarship to come to LA and compete in a modeling and talent completion and was amazed when I won it. I had never acted before in my life and won the acting category. I began to wonder what this is about and then decided to see what happened.
+ - So many people complain that there aren’t enough Latinos on television, and yet when they are, they need support.
+ - I never had a time line for my life. I didn’t say I wanted to be married at 28 and have three kids by the time I was 32.
+ - When I was at the interview asked how I cope with life’s difficulties, I said that saving sense of humor. I’m not lying...
+ - Politics need to stop treating women as a special-interest group.
+ - My acting is still being recognized for the fact that I wasn’t nominated.
+ - We know what we need to do. Let’s re-elect President Obama!
+ - I am treated no different than the other girls.
+ - My mom had four kids, one with special needs. She had a full-time job, and she still came home and made dinner for us every night, from scratch. It was amazing.
+ - I wish I could wear 10 dresses to my wedding. It’s so sad that you put it in storage and then never see it again. I am going to sleep in mine after I wear it.
+ - That’s not who we are as a nation, and let me tell you why: Because the Eva Longoria who worked at Wendy’s flipping burgers – she needed a tax break. But the Eva Longoria who works on movie sets does not.
+ - I wasn’t going to let a little thing like a hurricane keep me from wearing my bathing suit.
+ - I didn’t grow up wanting to become an actor at all. I wanted to be a sports trainer and I was actually an aerobics instructor.
+ - I’m really a very fifties housewife.
+ - I’ve been studying the Constitution for myself but also as a way for me, as a Democrat, to comprehend the Right. I think it’s important that people who are politically active understand both sides.
+ - If you eat food or produce, you should take into account where that food comes from.
+ - I could be a party girl, dating whoever I want and being reckless, but I like being in a relationship. When you have somebody who grounds you and keeps you sane, it helps.
+ - I could never give up Mexican food. Nachos are usually my go-to if I’m courtside at an NBA game. I always, always get my picture taken with my mouth wide open and a tortilla chip sticking out of it!
+ - I would say 80% of the scripts I get are dramas and not comedies or romantic comedies, which is funny because that’s what I do every week.
+ - Meeting people is difficult, period. LA is a difficult place to meet people anyway, and Hollywood is such a small community. But I don’t make it a rule just to date other actors and people in the entertainment industry. It could work out with me and a dentist. It could work out with me and a lawyer.
+ - The work part of a relationship is keeping it where you want it.
+
+118 quotes

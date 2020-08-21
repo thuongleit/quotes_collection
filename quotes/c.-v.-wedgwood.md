@@ -1,0 +1,21 @@
+ - An educated man should know everything about something, and something about everything.
+ - General knowledge may have to be slight or even amateurish knowledge, but it is none the less useful, and we discourage it at our peril.
+ - My own varying estimates of the facts themselves, as the years passed, showed me too clearly how much of history must always rest in the eye of the beholder; our deductions are so often different it is impossible they should always be right.
+ - It should be the historian’s business not to belittle but to illuminate the greatness of man’s spirit.
+ - Without the imaginative insight which goes with creative literature, history cannot be intelligibly written.
+ - Discontent and disorder were signs of energy and hope, not of despair.
+ - International politics, by and large, are a depressing study.
+ - Good writing is almost the concomitant of good history. Literature and history were joined long since by the powers which shaped the human brain; we cannot put them asunder.
+ - Democracy, like the human organism, carries within it the seed of its own destruction.
+ - History is lived forwards but it is written in retrospect. We know the end before we consider the beginning and we can never wholly recapture what it was to know the beginning only.
+ - A nation does not create the historians it deserves; the historians are far more likely to create the nation.
+ - The individual – stupendous and beautiful paradox – is at once infinitesimal dust and the cause of all things.
+ - Without passion there might be no errors, but without passion there would certainly be no history.
+ - For the company of the great is good company as Shakespeare understood it, as Plutarch understood it. The past remains the source from which example and precept can still be drawn.
+ - For the truth is that men do not desire to be the Common Man any more than they are the Common Man. They need greatness in others and the occasion to discover the greatness in themselves.
+ - History being the record of human action is a richly variegated material, and it is not easy to give a true impression of the stuff by snipping off an inch or two for a pattern.
+ - History, in spite of the occasional protest of historians, will always be used in a general way as a collection of political and moral precedents.
+ - The historian ought to be the humblest of men; he is faced a dozen times a day with the evidence of his own ignorance; he is perpetually confronted with his own humiliating inability to interpret his material correctly; he is, in a sense that no other writer is, in bondage to that material.
+ - We have more to learn today from the spectacle of a great man at a great moment than from any number of monographs on ancient wage levels.
+
+19 quotes

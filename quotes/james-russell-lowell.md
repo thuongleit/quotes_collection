@@ -1,0 +1,372 @@
+ - Fate loves the fearless.
+ - Not failure, but low aim, is crime.
+ - Thank God every morning when you get up that you have something to do that day, which must be done, whether you like it or not.
+ - A wise man travels to discover himself.
+ - At the devil’s booth are all things sold. Each ounce of dross costs its ounce of gold.
+ - Books are the bees which carry the quickening pollen from one to another mind.
+ - Democracy gives every man the right to be his own oppressor.
+ - Light is the symbol of truth.
+ - Truth forever on the scaffold, Wrong forever on the throne.
+ - Not what we give, but what we share, for the gift without the giver is bare.
+ - It is by presence of mind in untried emergencies that the native metal of man is tested.
+ - As life runs on, the road grows strange with faces new – and near the end. The milestones into headstones change, Neath every one a friend.
+ - And what is so rare as a day in June? Then, if ever, come perfect days.
+ - AND what is so rare as a day in June? Then, if ever, come perfect days; Then Heaven tries earth if it be in tune, And over it softly her warm ear lays; Whether we look, or whether we listen, We hear life murmur, or see it glisten;.
+ - The time is ripe, and rotten-ripe, for change.
+ - Mishaps are like knives, that either serve us or cut us, as we grasp them by the blade or the handle.
+ - Idleness induces caprice.
+ - That best academy, a mother’s knee.
+ - True freedom is to share All the chains our brothers wear, And, with heart and hand, to be Earnest to make others free!
+ - When I was a beggarly boy, And lived in a cellar damp, I had not a friend nor a toy, But I had Aladdin’s lamp...
+ - Compromise makes a good umbrella, but a poor roof.
+ - Humbleness is always grace; always dignity.
+ - In the scale of the destinies, brawn will never weigh so mach as brain.
+ - The nurse of full-grown souls is solitude.
+ - Behind the dim unknown, Standeth God with the shadow, keeping watch above his own.
+ - History is clarified experience.
+ - Endurance is the crowning quality, And patience all the passion of great hearts.
+ - The foolish and the dead alone never change their opinions.
+ - Greatly begin. Though thou have time, but for a line, be that sublime. Not failure, but low aim is crime.
+ - In the ocean of baseness, the deeper we get, the easier the sinking.
+ - A friendship counting nearly forty years is the finest kind of shade-tree I know.
+ - We look at death through the cheap-glazed windows of the flesh, and believe him the monster which the flawed and cracked glass represents him.
+ - The devil loves nothing better than the intolerance of reformers.
+ - Sincerity is impossible, unless it pervade the whole being, and the pretence of it saps the very foundation of character.
+ - My soul is not a palace of the past...
+ - He gives only the worthless gold who gives from a sense of duty.
+ - To be young is surely the best, if the most precarious, gift of life.
+ - If we see light at the end of the tunnel, it’s the light of the oncoming train.
+ - Safe in the hallowed quiets of the past.
+ - It is mediocrity which makes laws and sets mantraps and spring-guns in the realm of free song, saying thus far shalt thou go and no further.
+ - Truly there is a tide in the affairs of men; but there is no gulf-stream setting forever in one direction.
+ - Death is delightful. Death is dawn, The waking from a weary night Of fevers unto truth and light.
+ - The ultimate result of protecting fools from their folly is to fill the planet full of fools.
+ - Attention is the stuff that memory is made of, and memory is accumulated genius.
+ - God is the only being who has time enough; but a prudent man, who knows how to seize occasion, can commonly make a shift to find as much as he needs.
+ - A great part of human suffering has its root in the nature of man, and not in that of his institutions.
+ - The sentimentalist does not think of what he does so much as of what the world will think of what he does.
+ - Moral supremacy is the only one that leaves monuments, and not ruins, behind it.
+ - The true ideal is not opposed to the real but lies in it; and blessed are the eyes that find it.
+ - A beggar through the world am I, From place to place I wander by. Fill up my pilgrim’s scrip for me, For Christ’s sweet sake and charity.
+ - It is only by instigation of the wrongs of men that what we call the rights of men become turbulent and dangerous.
+ - All thoughts that mold the age begin deep down within the primitive soul.
+ - The greatest homage we can pay to truth, is to use it.
+ - New occasions teach new duties, time makes ancient good uncouth; They must upward still and onward, who would keep abreast of truth.
+ - All God’s angels come to us disguised.
+ - The stiff rails were softened to swan’s-down, and still fluttered down the snow.
+ - Who gives himself with his alms feeds three, himself, his hungering neighbor and me.
+ - But life is sweet, though all that makes it sweet. Lessen like sound of friends departing feet; And death is beautiful as feet of friend. Coming with welcome at our journey’s end.
+ - The snow had begun in the gloaming, and busily all the night had been heaping field and highway with a silence deep and white.
+ - Like streams that keep a summer mind Snow-hid in Jenooary.
+ - And blessed are the horny hands of toil.
+ - Wise skepticism is the first attribute of a good critic.
+ - Who knows whither the clouds have fled? In the unscarred heaven they leave no wake; And the eyes forget the tears they have shed, The heart forgets its sorrow and ache.
+ - A weed is no more than a flower in disguise.
+ - No man can produce great things who is not thoroughly sincere in dealing with himself, who would not exchange the finest show for the poorest reality, who does not so love his work that he is not only glad to give himself for it, but finds rather a gain than a sacrifice in the surrender.
+ - Our American republic will endure only as long as the ideas of the men who founded it continue dominant.
+ - It is singular how impatient men are with overpraise of others, how patient of overpraise of themselves; and yet the one does them no injury, while the other may be their ruin.
+ - And the poorest twig on the elm-tree was ridged inch deep with pearl.
+ - Enthusiasm begets enthusiasm, eloquence produces conviction for the moment; but it is only by truth to Nature and the everlasting institutions of mankind that those abiding influences are won that enlarge from generation to generation.
+ - Earth’s noblest thing,-a woman perfected.
+ - Take winter as you find him, and he turns out to be a thoroughly honest fellow; with no nonsense in him, which is a great comfort in the long-run.
+ - They enslave their children’s children who make compromise with sin.
+ - Wealth may be an excellent thing, for it means power, and it means leisure, it means liberty.
+ - Where one person shapes their life by precept and example, there are a thousand who have shaped it by impulse and circumstances.
+ - These pearls of thought in Persian gulfs were bred, Each softly lucent as a rounded moon; The diver Omar plucked them from their bed, Fitzgerald strung them on an English thread.
+ - There are two kinds of genius. The first and highest may be said to speak out of the eternal to the present, and must compel its age to understand it; the second understands its age, and tells it what it wishes to be told.
+ - Men! whose boast it is that ye Come of fathers brave and free, If there breathe on earth a slave, Are ye truly free and brave?
+ - It is not a great Xerxes army of words, but a compact Greek ten thousand that march safely down to posterity.
+ - Things always seem fairer when we look back at them, and it is out of that inaccessible tower of the past that Longing leans and beckons.
+ - Great truths are portions of the soul of man; Great souls are portions of eternity.
+ - Faith in God, faith in man, faith in work: this is the short formula in which we may sum up the teachings of the founders of New England, – a creed ample enough for this life and the next.
+ - Granting our wish is one of Fate’s saddest jokes.
+ - Whatever you may be sure of, be sure of this, that you are dreadfully like other people.
+ - The dandelions and buttercups gild all the lawn: the drowsy bee stumbles among the clover tops, and summer sweetens all to me.
+ - Nature fits all her children with something to do, he who would write and can’t write, can surely review.
+ - Democracy is nothing more than an experiment in government, more likely to succeed in a new soil, but likely to be tried in all soils, which must stand or fall on its own merits as others have done before it. For there is no trick of perpetual motion in politics any more than in mechanics.
+ - Pride of origin, whether high or low, springs from the same principle in human nature; one is but the positive, the other the negative, pole of a single weakness.
+ - May is a pious fraud of the almanac.
+ - It is the rooted instinct in men to admire what is better and more beautiful than themselves.
+ - They talk about their Pilgrim blood, their birthright high and holy! a mountain-stream that ends in mud thinks is melancholy.
+ - An angel stood and met my gaze, Through the low doorway of my tent; The tent is struck, the vision stays; I only know she came and went.
+ - There is no self-delusion more fatal than that which makes the conscience dreamy with the anodyne of lofty sentiments, while the life is groveling and sensual.
+ - Compromise makes a good umbrella, but a poor roof; it is temporary expedient, often wise in party politics, almost sure to be unwise in statesmanship.
+ - Pride and weakness are Siamese twins.
+ - Stern men with empires in their brains.
+ - For Humanity sweeps onward: where today the martyr stands, On the morrow crouches Judas with the silver in his hands; Far in front the cross stands ready and the crackling fagots burn, While the hooting mob of yesterday in silent awe return To glean up the scattered ashes into History’s golden urn.
+ - Slow are the steps of freedom, but her feet turn never backward.
+ - Once to every man and nation comes the moment to decide.
+ - The mind can weave itself warmly in the cocoon of its own thoughts, and dwell a hermit anywhere.
+ - Hush! Still as death, The tempest holds his breath As from a sudden will; The rain stops short, but from the eaves You see it drop, and hear it from the leaves, All is so bodingly still...
+ - Not a change for the better in our human housekeeping has ever taken place that wise and good men have not opposed it-have not prophesied that the world would wake up to find its throat cut in consequence.
+ - Tiny Salmoneus of the air His mimic bolts the firefly threw.
+ - I have always been of the mind that in a democracy manners are the only effective weapons against the bowie-knife.
+ - That love for one, from which there doth not spring Wide love for all, is but a worthless thing.
+ - Fastidiousness is only another word for egotism; and all men who know not where to look for truth save in the narrow well of self will find their own image at the bottom, and mistake it for what they are seeking.
+ - Talent is that which is in a man’s power; genius is that in whose power a man is.
+ - Sentiment is intellectualized emotion; emotion precipitated, as it were, in pretty crystals by the fancy.
+ - Each day the world is born anew for him who takes it rightly.
+ - There is no good in arguing with the inevitable. The only argument available with an east wind is to put on your overcoat.
+ - They have rights who dare maintain them.
+ - Be He nowhere else, God is in all that liberates and lifts, in all that humbles, sweetens, and consoles.
+ - He’s true to God who’s true to man.
+ - Two meanings have our lightest fantasies,- One of the flesh, and of the spirit one.
+ - Many-sidedness of culture makes our vision clearer and keener in particulars.
+ - The soil out of which such men as he are made is good to be born on, good to live on, good to die for and to be buried in.
+ - The English Puritans pulled down church and state to rebuild Zion on the ruins, and all the while it was not Zion, but America, they were building.
+ - Old gold has a civilizing virtue which new gold must grow old to be capable of secreting.
+ - This imputation of inconsistency is one to which every sound politician and every honest thinker must sooner or later subject himself. The foolish and the dead alone never change their opinion.
+ - Life seems a jest of Fate’s contriving.
+ - The victory’s in believing.
+ - For men in earnest have no time to waste In patching fig-leaves for the naked truth.
+ - Those who know the truth are not equal to those who love it Confucius All truth is safe and nothing else is safe, but he who keeps back truth, or withholds it from men, from motives of expediency, is either a coward or a criminal.
+ - Then to side with Truth is noble when we share her wretched crust, Ere her cause bring fame and profit, and ’t is prosperous to be just; Then it is the brave man chooses, while the coward stands aside, Doubting in his abject spirit, till his Lord is crucified.
+ - The pressure of public opinion is like the pressure of the atmosphere; you can’t see it – but all the same, it is sixteen pounds to the square inch.
+ - No sincere desire of doing good need make an enemy of a single human being; that philanthropy has surely a flaw in it which cannot sympathize with the oppressor equally as with the oppressed.
+ - Scepticism commonly takes up the room left by defect of imagination, and is the very quality of mind most likely to seek for sensual proof of supersensual things. If one came from the dead it could not believe; and yet it longs for such a witness, and will put up with a very dubious one.
+ - New occasions teach new duties.
+ - The thing we long for, that we are For one transcendent moment.
+ - You’ve gut to git up airly Ef you want to take in God.
+ - Love lives on, and hath a power to bless when they who loved are hidden in the grave.
+ - Metaphor is no argument, though it be sometimes the gunpowder to drive one home, and imbed it in the memory.
+ - Life is the jailer, death the angel sent to draw the unwilling bolts and set us free.
+ - True scholarship consists in knowing not what things exist, but what they mean; it is not memory but judgment.
+ - Communism means barbarism.
+ - Practical application is the only mordant which will set things in the memory. Study without it is gymnastics, and not work, which alone will get intellectual bread.
+ - Once to every person and nation come the moment to decide. In the conflict of truth with falsehood, for the good or evil side.
+ - Reputation is only a candle, of wavering and uncertain flame, and easily blown out, but it is the light by which the world looks for and finds merit.
+ - Truth always has a bewitching savor of newness in it, and novelty at the first taste recalls that original sweetness to the tongue; but alas for him who would make the one a substitute for the other.
+ - Large charity doth never soil, but only whitens soft white hands.
+ - Such power there is in clear-eyed self-restraint.
+ - Tyrants are but the spawn of Ignorance, Begotten by the slaves they trample on.
+ - Freedom is the only law which genius knows.
+ - Truth only needs to be for once spoken out; and there’s such music in her, such strange rhythm, as makes men’s memories her joyous slaves.
+ - A great man is made up of qualities that meet or make great occasions.
+ - They are slaves who fear to speak For the fallen and the weak; They are slaves who will not choose Hatred, scoffing, and abuse, Rather than in silence shrink From the truth they needs must think; They are slaves who dare not be In the right with two or three.
+ - In the gain or loss of one race all the rest have equal claim.
+ - Ye come and go incessant; we remain Safe in the hallowed quiets of the past; Be reverent, ye who flit and are forgot, Of faith so nobly realized as this.
+ - Who’s not sat tense before his own heart’s curtain.
+ - A stray hair, by its continued irritation, may give more annoyance than a smart blow.
+ - The gift without the giver is rare.
+ - For only by unlearning Wisdom comes.
+ - Let us be of good cheer, however, remembering that the misfortunes hardest to bear are those which never come.
+ - He who keeps his faith only, cannot be discrowned.
+ - It is quite too common a practice, both in readers and the more superficial class of critics, to judge a book by what it is not, a matter much easier to determine than what it is.
+ - Winds wanders, and dews drip earthward; Rains fall, suns rise and set; Earth whirls, and all but to prosper A poor little violet.
+ - No man, I suspect, ever lived long in the country without being bitten by these meteorological ambitions. He likes to be hotter and colder, to have been more deeply snowed up, to have more trees and larger blown down than his neighbors.
+ - Beauty hath no true glass, except it be in the sweet privacy of loving eyes.
+ - Incredulity robs us of many pleasures, and gives us nothing in return.
+ - Year by year, more and more of the world gets disenchanted. Even the icy privacy of the arctic and antarctic circles is invaded. We have played Jack Horner with our earth, till there is never a plum left in it.
+ - One learns more metaphysics from a single temptation than from all the philosophers.
+ - Where Church and State are habitually associated, it is natural that minds, even of a high order, should unconsciously come to regard religion as only a subtler mode of police.
+ - There is surely room for yet another schoolmaster when a score of seers advertise themselves in Boston newspapers.
+ - Every person born into this world their work is born with them.
+ - The surest plan to make a man is, think him so.
+ - Here was a type of the true elder race, And one of Plutarch’s men talked with us face to face.
+ - Keats longed for fame, but longed above all to deserve it.
+ - The discontent with the existing order of things pervaded the atmosphere, wherever the conditions were favorable, long before Columbus, seeking the back door of Asia, found himself knocking at the front door of America.
+ - That cause is strong which has, not a multitude, but one strong man behind it.
+ - And but two ways are offered to our will, Toil with rare triumph, ease with safe disgrace, The problem still for us and all of human race.
+ - The fireflies o’er the meadow In pulses come and go.
+ - Truth, after all, wears a different face to everybody, and it would be too tedious to wait till all were agreed.
+ - Borrowed garments never keep one warm.
+ - Over all life broods Poesy, like the calm blue sky with its motherly, rebuking face. She is the great reformer, and where the love of her is strong and healthy, wickedness and wrong cannot long prevail.
+ - A sneer is the weapon of the weak. Like other devil’s weapons, it is always cunningly ready to our hand, and there is more poison in the handle than in the point.
+ - Evil is a far more cunning and persevering propagandist than good, for it has no inward strength, and is driven to seek countenance and sympathy.
+ - The eye is the notebook of the poet.
+ - To educate the intelligence is to expand the horizon of its wants and desires.
+ - Men’s thoughts and opinions are in a great degree vassals of him who invents a new phrase or re-applies an old epithet. The thought or feeling a thousand times repeated becomes his at last who utters it best.
+ - Let us be thankful that there is no court by which we can be excluded from our share in the inheritance of the great poets of all ages and countries, to which our simple humanity entitles us.
+ - Folks never understand the folks they hate.
+ - I willingly confess to so great a partiality for trees as tempts me to respect a man in exact proportion to his respect for them.
+ - In creating, the only hard thing is to begin: a grass blade’s no easier to make than an oak.
+ - All the beautiful sentiments in the world weigh less than a single lovely action.
+ - The better part of every man’s education is that which he gives himself.
+ - There is nothing so desperately monotonous as the sea, and I no longer wonder at the cruelty of pirates.
+ - Those who love are but one step from heaven.
+ - Violet! sweet violet! Thine eyes are full of tears; Are they wet Even yet With the thought of other years?
+ - There is something magnificent in having a country to love.
+ - And what they dare to dream of, date to do.
+ - The traitor to Humanity is the traitor most accurst.
+ - Worshippers of light ancestral make the present light a crime.
+ - He gives us the very quintessence of perception,-the clearly crystalized precipitation of all that is most precious in the ferment of impression after the impertinent and obtrusive particulars have evaporated from the memory.
+ - Ah, men do not know how much strength is in poise, That he goes the farthest who goes far enough.
+ - The traitor to Humanity is the traitor most accursed; Man is more than Constitutions; better rot beneath the sod, Than be true to Church and State while we are doubly false to God.
+ - Fortune is the rod of the weak, and the staff of the brave.
+ - It is only the intellect that can be thoroughly and hideously wicked. It can forget everything in the attainment of its ends. The heart recoils; in its retired some drops of childhood’s dew still linger, defying manhood’s fiery noon.
+ - To make the common marvelous is the test of genius.
+ - O chime of sweet Saint Charity, Peal soon that Easter morn When Christ for all shall risen be, And in all hearts new-born! That Pentecost when utterance clear To all men shall be given, When all shall say My Brother here, And hear My Son in heaven!
+ - The only conclusive evidence of a man’s sincerity is that he gives himself for a principle. Words, money, all things else, are comparatively easy to give away; but when a man makes a gift of his daily life and practice, it is plain that the truth, whatever it may be, has taken possession of him.
+ - Dear common flower, that grow’st beside the way, Fringing the dusty road with harmless gold, First pledge of blithesome May, Which children pluck, and, full of pride uphold.
+ - Tis as easy to be heroes as to sit the idle slaves.
+ - Old events have modern meanings; only that survives of past history which finds kindred in all hearts and lives.
+ - It may be glorious to write Thoughts that shall glad the two or three High souls, like those far stars that come in sight Once in a century.
+ - No mud can soil us but the mud we throw.
+ - The story of any one man’s real experience finds its startling parallel in that of every one of us.
+ - How I do love the earth. I feel it thrill under my feet. I feel somehow as if it were conscious of my love, as if something passed into my dancing blood from it.
+ - There is a law of neutralization of forces, which hinders bodies from sinking beyond a certain depth in the sea; but in the ocean of baseness, the deeper we get, the easier the sinking.
+ - Whom the heart of man shuts out, Sometimes the heart of God takes in, And fences them all round about With silence mid the worlds loud din.
+ - The pale and quiet moon Makes her calm forehead bare, And the last fragments of the storm, Like shattered rigging from a fight at sea, Silent and few, are drifting over me.
+ - Life is constantly weighing us in very sensitive scales, and telling every one of us precisely what his real weight is to the last grain of dust.
+ - It is good To lengthen to the last a sunny mood.
+ - Democracy is that form of society, no matter what its political classification, in which every man has a chance and knows that he has it.
+ - To put more faith in lies and hate than truth and love, is the true atheism.
+ - How little inventiveness there is in man, Grave copier of copies.
+ - The quiet tenderness of Chaucer, where you almost seem to hear the hot tears falling, and the simple choking words sobbed out.
+ - Darkness is strong, and so is Sin, But surely God endures forever!
+ - All thoughtful men are solitary and original in themselves.
+ - There are two kinds of weakness, that which breaks and that which bends.
+ - A poet must need be before his own age, to be even with posterity.
+ - The heart forgets its sorrow and ache.
+ - Our seasons have no fixed returns, Without our will they come and go; At noon our sudden summer burns, Ere sunset all is snow.
+ - Most religion-mongers have bated their paradises with a bit of toasted cheese. They have tempted the body with large promises of possessions in their transmortal El Dorado. Sancho Panza will not quit his chimney-corner, but under promise of imaginary islands to govern.
+ - A woman’s love Is mighty, but a mother’s heart is weak, And by its weakness overcomes.
+ - The first lesson of life is to burn our own smoke; that is, not to inflict on outsiders our personal sorrows and petty morbidness, not to keep thinking of ourselves as exceptional cases.
+ - Fashion being the art of those who must purchase notice at some cheaper rate than that of being beautiful, loves to do rash and extravagant things. She must be forever new, or she becomes insipid.
+ - Reading enables us to see with the keenest eyes, to hear with the finest ears, and listen to the sweetest voices of all time.
+ - Reading Chaucer is like brushing through the dewy grass at sunrise.
+ - While tenderness of feeling and susceptibility to generous emotions are accidents of temperament, goodness is an achievement of the will and a quality of the life.
+ - Now the heart is so full that a drop overfills it; We are happy now because God wills it.
+ - Whoever can endure unmixed delight, whoever can tolerate music and painting and poetry all in one, whoever wishes to be rid of thought and to let the busy anvils of the brain be silent for a time, let him read in the “Faery Queen.”
+ - To win the secret of a weed’s plain heart.
+ - If the devil take a less hateful shape to us than to our fathers, he is as busy with us as with them.
+ - Virtue treads paths that end not in the grave.
+ - It is not without reason that fame is awarded only after death. The cloud-dust of notoriety which follows and envelops the men who drive with the wind bewilders contemporary judgment.
+ - I who still pray at morning and at eve Thrice in my life perhaps have truly prayed, Thrice stirred below conscious self Have felt that perfect disenthrallment which is God.
+ - Some kind of pace may be got out of the eeriest jade by the near prospect of oats; but the thoroughbred has the spur in his blood.
+ - Poetry is something to make us wiser and better, by continually revealing those types of beauty and truth, which God has set in all men’s souls.
+ - What men prize most is a privilege, even if it be that of chief mourner at a funeral.
+ - In general those who nothing have to say Contrive to spend the longest time in doing it.
+ - If one waits for the right time to come before writing, the right time never comes.
+ - To have greatly dreamed precludes low ends.
+ - Good luck is the willing handmaid of a upright and energetic character, and conscientious observance of duty.
+ - Though old the thought and oft exprest, Tis his at last who says it best.
+ - No man is born into the world whose work Is not born with him. There is always work, And tools to work withal, for those who will; And blessed are the horny hands of toil.
+ - A profound common sense is the best genius for statesmanship.
+ - Silence is sorrow’s best food.
+ - Men have their intellectual ancestry, and the likeness of some one of them is forever unexpectedly flashing out in the features of a descendant, it may be after a gap of several centuries. In the parliament of the present every man represents a constituency of the past.
+ - Stories now, to suit a public taste, must be half epigram, half pleasant vice.
+ - Solitude is as needful to the imagination as society is wholesome for the character.
+ - Most long lives resemble those threads of gossamer, the nearest approach to nothing unmeaningly prolonged, scarce visible pathways of some worm from his cradle to his grave.
+ - Time is, after all, the greatest of poets; and the sons of Memory stand a better chance of being the heirs of Fame.
+ - Better one bite at forty, of truths bitter rind, than the hot wine that gushed from the vintage of twenty.
+ - There is something solid and doughty in the man that can rise from defeat, the stuff of which victories are made in due time, when we are able to choose our position better, and the sun is at our back.
+ - Comparative criticism teaches us that moral and aesthetic defects are more nearly related than is commonly supposed.
+ - Puritanism, believing itself quick with the seed of religious liberty, laid, without knowing it, the egg of democracy.
+ - It is the privilege of genius that life never grows common place, as it does for the rest of us.
+ - The future works out great men’s destinies; The present is enough for common souls, Who, never looking forward, are indeed Mere clay wherein the footprints of their age Are petrified forever.
+ - Before Man made us citizens, great Nature made us men.
+ - Sorrow is the great idealizer.
+ - We cannot but think there is something like a fallacy in Mr. Buckle’s theory that the advance of mankind is necessarily in the direction of science, and not in that of morals.
+ - Taste is the next gift to genius.
+ - It is curious how tyrannical the habit of reasoning is.
+ - The path of nature is, indeed, a narrow one, and it is only the immortals that seek it, and, when they find it, do not find themselves cramped therein.
+ - All share in the government of the world was denied for centuries to perhaps the ablest, certainly the most tenacious race that had ever lived in it.
+ - If I were asked what book is better than a cheap book, I should answer that there is one book better than a cheap book,-and that is a book honestly come by.
+ - The intellect has only one failing, which, to be sure, is a very considerable one. It has no conscience.
+ - Not but wut abstract war is horrid, I sign to thet with all my heart, But civilysation doos git forrid Sometimes, upon a powder-cart.
+ - With every anguish of our earthly part The spirit’s sight grows clearer.
+ - Through aisles of long-drawn centuries my spirit walks in thought.
+ - Whenever you have the kind of market that is taking shape now – a wildly volatile one with big pricing discrepancies – it plays right into the hands of managers who are very focused on research and stock picking.
+ - Console yourself, dear man and brother; whatever you may be sure of, be sure at least of this, that you are dreadfully like other people. Human nature has a much greater genius for sameness than for originality.
+ - There is no better ballast for keeping the mind steady on its keel, and saving it from all risk of crankiness, than business.
+ - May is a pious fraud of the almanac A ghastly parody of real Spring Shaped out of snow and breathed with eastern wind.
+ - I love her with a love as still As a broad river’s peaceful might, Which by high tower and lowly mill, Goes wandering at its own will, And yet does ever flow aright.
+ - Toward no crimes have men shown themselves so cold- bloodedly cruel as in punishing differences of belief.
+ - From lower to the higher next, Not to the top, is Nature’s text; And embryo Good, to reach full stature, Absorbs the Evil in its nature.
+ - New conditions of life will stimulate thought and give new forms to its expression.
+ - The rich man’s sons inherits cares; The bank may break, the factory burn, A breath may burst his bubble shares, And soft, white hands could hardly earn A living that would serve his turn.
+ - It is curious how tyrannical the habit of reading is, and what shifts we make to escape thinking. There is no bore we dread being left alone with so much as our own minds.
+ - There is only one thing better than tradition and that is the original and eternal life out of which all tradition takes its rise.
+ - That pernicious sentiment, “Our country, right or wrong.”
+ - Christ was the first true democrat that ever breathed, as the old dramatist Dekkar said he was the first true gentleman.
+ - In life’s small things be resolute and great To keep thy muscle trained; Know’st thou when Fate Thy measure takes, or when she’ll say to thee, “I find thee worthy; do this deed for me?”
+ - Did man e’er live Saw priest or woman yet forgive?
+ - Heaven is neither here nor there to me. Everywhere and nowhere. Just not in between, But I believe in Heaven.
+ - Blessed are they who have nothing to say and who cannot be persuaded to say it.
+ - No man can produce great things who is not thoroughly sincere in dealing with himself.
+ - There is no bore we dread being left alone with so much as our own minds.
+ - The opening of the first grammar school was the opening of the first trench against monopoly in Church and State.
+ - God’ll send the bill to you.
+ - Never did Poesy appear So full of heaven to me, as when I saw how it would pierce through pride and fear To the lives of coarsest men.
+ - I would hardly change the sorrowful words of the poets for their glad ones. Tears dampen the strings of the lyre, but they grow the tensor for it, and ring even the clearer and more ravishingly.
+ - Not suffering, but faint heart, is worst of woes.
+ - What a sense of security in an old book which time has criticized for us.
+ - What men call luck Is the prerogative of valiant souls, The fealty life pays its rightful kings.
+ - Most men make the voyage of life as if they carried sealed orders which they were not to open till they were fairly in mid-ocean.
+ - The brain can be easy to buy, but the heart never comes to market.
+ - All free governments, whatever their name, are in reality governments by public opinion ; and it is on the quality of this public opinion that their prosperity depends. It is, therefore, their first duty to purify the element from which they draw the breath of life.
+ - It is beginning to be doubtful whether Parliament and Congress sit in Westminster and Washington, or in the editorial rooms of the leading journals, – so thoroughly is everything debated before the authorized and responsible debaters get on their legs.
+ - The Don Quixote of one generation may live to hear himself called the savior of society by the next.
+ - It may be conjectured that it is cheaper in the long run to lift men up than to hold them down, and that the ballot in their hands is less dangerous to society than a sense of wrong is in their heads.
+ - Fate loves best such syllables as are sweet and sonorous on the tongue.
+ - The material of thought re-acts upon the thought itself.
+ - Earth gets its price for what Earth gives us.
+ - It is the vain endeavor to make ourselves what we are not that has strewn history with so many broken purposes and lives left in the rough.
+ - The very gnarliest and hardest of hearts has some musical strings in it; but they are tuned differently in every one of us.
+ - Who speaks the truth stabs falsehood to the heart.
+ - It is not the insurrections of ignorance that are dangerous, but the revolts of the intelligence.
+ - Joy comes, grief goes, we know not how.
+ - If youth be a defect, it is one that we outgrow only too soon.
+ - O visionary world, condition strange, Where naught abiding is but only change.
+ - For there’s nothing we read of in torture’s inventions, Like a well-meaning dunce, with the best of intentions.
+ - And the choice goes by forever ’twixt that darkness and that light.
+ - Children are God’s Apostles, sent forth, day by day, to preach of love, and hope, and peace.
+ - Nature, they say, doth dote, And cannot make a man Save on some worn-out plan, Repeating us by rote.
+ - The one thing finished in this hasty world.
+ - Human nature has a much greater genius for sameness than for originality.
+ - Fools, when their roof-tree falls, think it doomsday.
+ - With every step of the recent traveler our inheritance of the wonderful is diminished. Those beautiful pictured notes of the possible are redeemed at a ruinous discount in the hard coin of the actual.
+ - If God made poets for anything, it was to keep alive the traditions of the pure, the holy, and the beautiful.
+ - Who is it needs such flawless shafts as fate? What archer of his arrows is so choice, or hits the white so surely?
+ - A man is old when he can pass an apple orchard and not remember the stomachache.
+ - Some day the soft Ideal that we wooed confronts us fiercely, foe-beset, pursued, and cries reproachful: Was it then my praise, and not myself was loved? Prove now thy truth; I claim of thee the promise of thy youth.
+ - Ah, in this world, where every guiding thread Ends suddenly in the one sure centre, death, The visionary hand of Might-have-been Alone can fill Desire’s cup to the brim!
+ - Earth’s biggest country ‘s gut her soul, An’ risen up earth’s greatest nation.
+ - I tell ye wut, my judgment is you’re pooty sure to fail, Ez long ‘z the head keeps turnin’ back for counsel to the the tail.
+ - Piety is indifferent whether she enters at the eye or at the ear. There is none of the senses at which she does not knock one day or other. The Puritans forgot this, and thrust Beauty out of the meeting-house and slammed the door in her face.
+ - Analysis is carried into everything. Even Deity is subjected to chemical tests.
+ - Tyranny is always weakness.
+ - A ginooine statesman should be on his guard, if he must hev beliefs, not to b’lieve ’em too hard.
+ - The nunneries of silent nooks, the murmured longing of the wood.
+ - God’s livery is a very plain one; but its wearers have good reason to be content. If it have not so much gold-lace about it as Satan’s, it keeps out foul weather better, and is besides a great deal cheaper.
+ - To genius life never grows commonplace.
+ - Truth is quite beyond the reach of satire. There is so brave a simplicity in her that she can no more be made ridiculous than an oak or a pine.
+ - Creativity is not the finding of a thing, but the making something out of it after it is found.
+ - There comes Emerson first, whose rich words, every one, Are like gold nails in temples to hang trophies on.
+ - The riches of scholarship, the benignities of literature, defy fortune and outlive calamity. They are beyond the reach of thief or moth or rust. As they cannot be inherited, so they cannot, be alienated.
+ - He mastered whatever was not worth the knowing.
+ - There is no work of genius which has not been the delight of mankind, no word of genius to which the human heart and soul have not sooner or later responded.
+ - I don’t believe in princerple, But oh I du in interest.
+ - One thorn of experience is worth a whole wilderness of warning.
+ - Literature, properly so called, draws its sap from the deep soil of human nature’s common and everlasting sympathies, the gathered leaf-mound of countless generations, and not from any top dressing capriciously scattered over the surface.
+ - Time makes ancient good uncouth.
+ - In the parliament of the present every man represents a constituency of the past.
+ - Evil springs up, and flowers, and bears no seed, And feeds the green earth with its swift decay, Leaving it richer for the growth of truth.
+ - Fanaticism, or, to call it by its milder name, enthusiasm, is only powerful and active so long as it is aggressive. Establish it firmly in power, and it becomes conservatism, whether it will or no.
+ - The wisest man could ask no more of fate Than to be simple, modest, manly, true, Safe from the many, honored by the few; Nothing to court in Church, or World, or State, But inwardly in secret to be great.
+ - It was in making education not only common to all, but in some sense compulsory on all, that the destiny of the free republics of America was practically settled.
+ - To fail at all is to fail utterly.
+ - Making one object, in outward or inward nature, more holy to a single heart is reward enough for a life; for the more sympathies we gain or awaken for what is beautiful, by so much deeper will be our sympathy for that which is most beautiful, – the human soul!
+ - The greater your real strength and power, the quieter it will be exercised.
+ - A word once vulgarized can never be rehabilitated.
+ - Life may be given in many ways, and loyalty to truth be sealed as bravely in the closet as the field.
+ - O reputation! dearer far than life.
+ - They are slaves who fear to speak, for the fallen and the weak.
+ - He who is firmly seated in authority soon learns to think security, and not progress, the highest lesson in statecraft.
+ - An appeal to the reason of the people has never been known to fail in the long run.
+ - Praise follows truth afar off, and only overtakes her at the grave; plausibility clings to her skirts and holds her back till then.
+ - In vain we call old notions fudge, And bend our conscience to our dealing; The Ten Commandments will not budge, And stealing will continue stealing.
+ - A father of the church said that property was theft, many centuries before Proudhon was born. Bourdaloue reaffirmed it. Montesquieu was the inventor of national workshops and of the theory that the state owed every man a living. Nay, was not the church herself the first organized democracy?
+ - This child is not mine as the first was; I cannot sing it to rest; I cannot lift it up fatherly, And bless it upon my breast. Yet it lies in my little one’s cradle, And sits in my little one’s chair, And the light of the heaven she ’s gone to Transfigures its golden hair.
+ - Of my merit On that pint you yourself may jedge: All is, I never drink no sperit, Nor I haint never signed no pledge.
+ - It seems to me that the bane of our country is a profession of faith either with no basis of real belief, or with no proper examination of the grounds on which the creed is supposed to rest.
+ - The secret of force in writing lies not so much in the pedigree of nouns and adjectives and verbs, as in having something that you believe in to say, and making the parts of speech vividly conscious of it.
+ - Many make the household but only one the home.
+ - Aspiration sees only one side of every question; possession many.
+ - Not only around our infancy Doth heaven with all its splendors lie; Daily, with souls that cringe and plot, We Sinais climb and know it not.
+ - Certainly it is no shame to a man that he should be as nice about his country as his sweetheart, yet it would not be wise to hold everyone an enemy who could not see her with our own enchanted eyes.
+ - In the earliest ages science was poetry, as in the latter poetry has become science.
+ - The only faith that wears well and holds its color in all weathers is that which is woven of conviction and set with the sharp mordant of experience.
+
+370 quotes

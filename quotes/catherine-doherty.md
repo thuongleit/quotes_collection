@@ -1,0 +1,29 @@
+ - With the gift of listening comes the gift of healing.
+ - True silence is the speech of lovers.
+ - Acquire inner peace and a multitude will find their salvation near you.
+ - Faith walks simply, childlike, between the darkness of human life and the hope of what is to come.
+ - What you do matters – but not much. What you are matters tremendously.
+ - What binds us together is love, and only love. For love is a Person. Love is God.
+ - Pain is the kiss of Christ.
+ - We do not have to wait for the hereafter – it is now that we are one with Christ.
+ - Listen to God’s speech in his wondrous, terrible, gentle, loving, all-embracing silence.
+ - Lord, give me the heart of a child, and the awesome courage to live it out as an adult.
+ - Real zeal is standing still and letting God be a bonfire in you.
+ - True silence is a garden enclosed, where alone the soul can meet its God.
+ - Purity of heart is love for the weak who constantly fall.
+ - I go to my past in order to discern the future.
+ - We do not go to mission lands to ‘bring Jesus Christ’ as much as to uncover him where he already is.
+ - With God, every moment is the moment of beginning again.
+ - Every meal should be prepared with love and eaten in peace, because its purpose is to strengthen us for the service of Love.
+ - Faith is contagious when we show it to one another.
+ - Preach the Gospel with your life – without compromise!
+ - Faith sees God’s face in every human face.
+ - Faith allows us to enter peacefully into the dark night which faces every one of us at one time or another.
+ - She who received the seed of eternal glory Now dispenses grace, the seed of glory-to-come. My womb was the chalice of the impenetration of God That became the Incarnation of God and man.
+ - A saint is a sinner who loves; it’s that simple!
+ - To pass through the door that leads to God’s kingdom, we must go down on our knees.
+ - Faith is fudamentally a kind of folly...
+ - God reveals himself to those who wait for that revelation, and who don’t try to tear at the hem of a mystery, forcing disclosure.
+ - Faith considers that its precariousness and its finiteness are but the womb in which it abides, moving toward the plenitude and fullness of the eternity which it desires and believes in and which revelation opens to it.
+
+27 quotes

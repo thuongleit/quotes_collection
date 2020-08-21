@@ -1,0 +1,118 @@
+ - I knew all the rules but the rules did not know me.
+ - Society, you’re a crazy breed.
+ - The best revenge is to live on and prove yourself.
+ - I’ll ride the wave, where it takes me!
+ - The smallest oceans still make big big waves.
+ - Life moves fast. As much as you can learn from your history, you have to move forward.
+ - War doesn’t determine who’s right, it determines who’s left.
+ - I’m optimistic yet disillusioned, hopeful yet frustrated.
+ - You don’t love me. If you really knew me, you wouldn’t love me. You love who you think I am. And don’t pretend that you know me. Because I don’t even know myself.
+ - Leave it to me as I find a way to be Consider me a satellite, forever orbiting I knew all the rules, but the rules did not know me Guaranteed.
+ - I don’t trust nobody, especially when they say something good.
+ - Sure as I am breathing, sure as I’m sad I’ll keep this wisdom in my flesh I leave here believing more than I had This love has got no ceiling.
+ - The love received is the love that is saved.
+ - Wind in my hair, I feel part of everywhere Underneath my being is a road that disappeared Late at night I hear the trees, they’re singing with the dead Overhead...
+ - The sorrow grows bigger when the sorrow’s denied.
+ - It’s saying, just stop, and be together. Don’t talk now, just breathe and feel each other’s presence...
+ - I believe in the power of music. To me, it isn’t just a fad. This is a positive thing.
+ - I don’t need drugs to make my life tragic.
+ - Caffeine. The gateway drug.
+ - If you’re anti-war it doesn’t mean you are ‘Pro’ one side or the other in a conflict. However, it does make you ‘Pro’ many thingsPro-Peace, Pro-Human, Pro-Evolution, it makes you Pro-Communication, Pro-Diplomacy, Pro-Love, Pro-Understanding, Pro-Forgiveness.
+ - You kill yourself and you make a big old sacrifice and try to get your revenge. That all you’re gonna end up with is a paragraph in a newspaper. In the end, it does nothing. Nothing changes. The world goes on and you’re gone. The best revenge is to live on and prove yourself.
+ - It’s the ones without scars – those are the people you have to watch out for...
+ - I’ve got my indignation but I’m pure in all my thoughts.
+ - Sometimes, whether you like it or not, people elevate you. It’s real easy to fall.
+ - I don’t question our exsistence, I just question our modern needs.
+ - I’m not having to show off or make a point about how good I am at doing something. I think I’ve always kind of been that way.
+ - I’m Eddie Vedder and I sing. I do.
+ - At a certain point, you realize you have a responsibility more behind yourself and your need for adrenaline. I’m glad I did things in my 20s that were more reckless.
+ - This is still a young man’s game, so we have to stay young. Music allows you to do that, especially rock’n’roll.
+ - Music’s at its best when it has a purpose.
+ - I remember back in 1994 when the Eagles charged more than $100 for tickets. They said, ‘We ain’t Pearl Jam.’ That’s back when records were selling and the Eagles had sold just about as many as anyone on the planet. And years later we’re still charging less than them.
+ - Worship the music, not the musicians.
+ - Singing someone else’s songs is like keeping your clothes on.
+ - If he can’t sleep, how will he ever dream?
+ - Music saved me; I mean, my upbringing was like a hurricane, and music was the tree I held onto.
+ - War hurts. It hurts no matter which sides the bombs are falling on.
+ - Dream the dreams of other men, you’ll be no ones rival.
+ - I’ve never been a calm, midrange type person.
+ - I’m trying to break any chain of negative parenting that I might have survived.
+ - Cannot find the comfort in this world.
+ - I’m probably never happier than when I’m by myself in the water. What I’ve worked and sacrificed for is not to be on stage playing music but to surf in some secluded place. It’s a grounding element. Waves don’t care who you are.
+ - Do you force your kids to pay attention to what’s going on, or do you let them live their lives outside of it? My hope is that my child is a strong activist. That would make me most proud.
+ - If people don’t like what I’m doing I really don’t have time to hear it. I’m doing something good with my life and I challenge them to do the same.
+ - I don’t know how people do it these days – paparazzi and that kind of thing. That’s something I can’t even imagine.
+ - Things like guitars and ukuleles, you should never part with it, because there will probably be good, healthy times spent, just playing and writing.
+ - It seems like a necessary balance to life, being part of the community.
+ - I had a $1.50 from playing the ukulele after owning it seven minutes. I thought, “Hmmm, this has some possibilities.”
+ - You feel that no matter what’s said in the music or how pointed it may get, the most you can wish for is that it plants a few seeds.
+ - I’m making music for music’s sake, and I have an audience I’m proud of.
+ - When I had a child, everyone was telling me that I was going to see the world through her eyes, and everything was going to get this nice gloss to it. I kept waiting for that to happen, and thought there was a real problem with me that it wasn’t.
+ - I’m having a hard time trying to figure out how to say things. I’m a little exhausted by the process.
+ - The nice thing about money is that you can do good things with it. I still feel like if something needs to be done or we need to raise money for someone on death row, we can find ways to do it.
+ - Isn’t Timbaland a make of shoe? It’s a producer? I don’t know who that is. Oh well.
+ - There’s been times when I’ve been standing in a line at a movie and someone’s hit me with something really heavy about someone really close and how our music has helped them get through it. Even in our darkest moments we try and find something beautiful.
+ - Well there’s a lot of machines making music today too so you should expect perfection from them! Other than that it’s humans programming it which is actually why i still like it. But yeah, that sounds about right. Now what I’ve got to do is I’ve got to stop expecting it of myself.
+ - No music is going to stop the war. What’s going to stop the war is a large amount of body bags, or a large amount of people in the streets, protesting it before it starts.
+ - I’m an example of someone who never made it to university. I did have this dream to be a musician. I felt that this dream had an expiration date.
+ - If I’m not on tour or in the studio, I’m in nature somewhere, usually some kind of ocean. Playing music has afforded me that. It’s not lost on me that it’s a tremendous opportunity to be able to spend your life being surrounded by nature.
+ - I don’t work so hard at trying to get every song to be three-dimensional and mean so much. I just want to breathe, right now, with the music.
+ - I used to kind of blame someone for not being able to get through that – I’m talking about the addiction part – but I’ve had a few experiences recently where you don’t blame the person anymore.
+ - It’s not a bad time to be me.
+ - I realized in the early days I just didn’t edit at all. But I think you become a little more cagey with your lyrics when you know more people are going to hear them and make assumptions about you as a person. Realizing that, you want to be a little more opaque.
+ - I was living on the wrong side of the tracks in Evanston, Illinois, in a home for boys. We had these Jackson 5 records. I really related to their voices – they were about my age, but they were doing it.
+ - If at noon you sit down and there’s just silence or blank tape, in an hour if you have a song, that didn’t exist an hour ago. Now it exists and it might exist for a long time. There’s something empowering about that.
+ - The word religion has such bad connotations for me, that it’s been responsible for wars, and it shouldn’t be that way at all, it’s just the way the meaning of the word has evolved to me. I have to wonder what we did on this planet before religion.
+ - You can’t be perfect. You can’t be the perfect father. You can’t be the perfect singer.
+ - Are you woman enough to be my man?
+ - I’m not ready to be that guy who can meet with world leaders and all that. It’s tremendous what Bono does. I don’t know if I could do it, not the way he does. I don’t think many people could.
+ - When it comes to grunge or even just Seattle, I think there was one band that made the definitive music of the time. It wasn’t us or Nirvana, but Mudhoney. Nirvana delivered it to the world, but Mudhoney were the band of that time and sound.
+ - No matter how good you are, at some point your kids are gonna have to create their own independence and think that Mom and Dad aren’t cool, just to establish themselves. That’s what adolescence is about. They’re gonna go through that no matter what.
+ - If it’s a good cause, I’ll play just about anything.
+ - Gave her love away, put it in my pocket when it should of been framed!
+ - We’re not going to be the coolest rock stars in the world. We’re trying to be good musicians.
+ - The one thing about going from the audience to the stage in just three years is that you know how it feels to be down there.
+ - One thing you might suggest to a young band is don’t get involved in any kind of long-term contract because everything changes on a bimonthly basis: The way people hear music and access it, the way it is distributed.
+ - Sorry is the fool who trades his soul for a corvette Thinks he’ll get the girl he’ll only get the mechanic.
+ - You mature as far as your understanding of what it’s going to take, and you increase your stamina. You don’t let frustration overtake you when you’re looking for change.
+ - I just finished touring, and I’m on a detox thing. It’s a heavy detox, so nothing in my belly except water, salt, and cayenne pepper.
+ - I think what happens is when something becomes successful, then a lot of people take credit for it in such ways that it takes credit away from you.
+ - I feel like we have to keep our eyes on the road. Being nostalgic is like taking an offramp and getting a sandwich – and then you get back on the highway. I don’t want to be spending the rest of my life at the gas station.
+ - People on death row, the treatment of animals, women’s right to choose. So much in America is based on religious fundamentalist Christianity. Grow up! This is the modern world!
+ - I had actually been going to Hawaii for quite a while before I ever picked up the uke. I think with anything new you’re going to get more enjoyment out of it if it comes to you quickly, and the uke facilitates that.
+ - I was able to apply ukulele to whatever I’m trying to write. It’s become part of songwriting for me, the knowledge I gained from hearing the melodies come out, and then applying that to guitar or vocals.
+ - It’s understandable why someone would like their entertainment to provide an escape from modern day worries and the reality of war. We feel this record creates a healthy opportunity to process some of these emotions rather than deny them.
+ - I’d like people to be educated on the voting machines, making sure that our democracy isn’t being hijacked by computer technology. There’s no reason there can’t be a paper trail on those machines.
+ - That’s part of the curse: If you’re gonna play the song, you better play it. I’ve tried to phone in ‘Jeremy’ a few times, and it’s tough. It doesn’t work.
+ - I think that if your approach is one where you don’t want to alienate anybody, you’re going to have to soften the viewpoint or the information that you’re offering to such an extent that it doesn’t have the power to make any difference. You have to take that risk.
+ - I probably get strangers coming up to me two or three times a week to just say something nice.
+ - After the Ramones, it was more about new wave for me than punk.
+ - If ‘little George Dubya Bush’ wins, we are going to apply for Canadian citizenship.
+ - There is a thing that happens when you are not as privileged and you start hanging out with a seedier crowd because you can afford to do the same things, And all of a sudden the big night out is sitting in somebody’s trailer, smoking something or getting hold of something to put up to your nose.
+ - The interesting thing is that it seems like George W. Bush would have been happy being the president of anything. He could have been president of Major League Baseball.
+ - Our influences are who we are. It’s rare that anything is an absolutely pure vision; even Daniel Johnston sounds like the Beatles. And that’s the problem with the bands I’m always asked about, the ones derivative of the early Seattle sound. They don’t dilute their influences enough.
+ - At some point, when you read about this factual information that comes out in The New Zealand Herald and it’s barely mentioned in The New York Times, then I think you’ve got to question where this is being manipulated, and where the filters are.
+ - Competition is healthy, if you can turn it off and on. When someone gets too cocky in victory, that can ruin the positive aspect.
+ - Any conversations we hear about ‘So who are Pearl Jam marketing to?’ are despicable.
+ - Your pot laws are great! But your gun laws are even better!
+ - I can still write blues songs because I remember everything.
+ - I don’t wanna think, I wanna FEEL.
+ - As far as viewpoints, I think I’m more well-rounded and definitely more educated, and probably more hopeful than I used to be. I think when you’re young and you get into a cause, you get frustrated with it within a few years, or six months.
+ - When I was 13, I got my first guitar, and I could sort of play Ted Nugent songs, but I couldn’t play the solos. But I could play along with entire Ramones songs.
+ - I think celebrities suck.
+ - You can go down the list of great artists and kind of understand that they are products of their environment. Whether it’s U2 or Henry Rollins or myself or Johnny Lydon, they’re gonna be products of their environment.
+ - This little four-string songwriting tool started changing the way I brought songs to the group.
+ - There’s a lot of bands that get to a certain level, and it just stops. They scrap it. Compare this to, say, The Rolling Stones or The Who, where they just continued on forever and are still playing, or they quit after 20 years.
+ - If there was anything that I learned with my own writing process, maybe there’s too many choices what to write about. Just the amount of subject matter in the world these days; maybe that feels chaotic for me.
+ - So much energy comes out of concerts sometimes, especially good ones that are really moving. And that energy, no matter how great the show is, it dissipates within two weeks or a month.
+ - Wait a minute, yes, those are human heads.
+ - Pretty much at all times music motivates me. How can I say this without sounding in any way proud of myself? Obviously I’ve always written songs that are critical of our government, and talk about our times. Hopefully you attempt to be timeless while doing it.
+ - That makes it even more offensive to me that she’s interested in our band and she did something for Slaughter.
+ - If it’s a band I like, I just hope they will survive it all. And I’ll admit that if it’s crap music, I hope they won’t and it’ll go away. Simply because there are too many great bands who should be heard in their place.
+ - I would thank God, but I don’t believe in it.
+ - Yeah, we’ll play that. You want fries with that?
+ - So my one kid’s 4, my other kid’s 4 months, I’m 44, Barack Obama is the 44th president – it’s all lining up nicely here.
+ - I just think that all of us in this room should have a voice in how the USA is represented. And he don’t allow us our voice, that’s all I’m saying.
+ - It’s fun singing with other people who are really good singers. There’s something kind of poignant about braiding a couple vocals.
+
+116 quotes

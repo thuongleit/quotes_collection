@@ -1,0 +1,41 @@
+ - You cannot do everything at once, so find people you trust to help you. And don't be afraid to say no.
+ - The best gift you can give someone is a part of your soul.
+ - I know that the purpose of life is to understand and be in the present moment with the people you love. It’s just that simple.
+ - Live each day the fullest you can, not guaranteeing therell be a tomorrow, not dwelling endlessly on yesterday.
+ - Beauty is a radiance that originates from within and comes from inner security and strong character.
+ - If you want something badly enough, make an attempt. If you want to paint, get a brush and do it. If you want to sing, sing. A lot of people get scared. They’re afraid to fail. Take that word out of your vocabulary. You don’t “fail.” You’ve “tried your best.”
+ - My Open Hearts Family celebrates not only the traditional family but also extended families that we create from the people we open our hearts to as we journey through life.
+ - You have to count on living every single day in a way you believe will make you feel good about your life – so that if it were over tomorrow, you’d be content with yourself.
+ - I did all the Chef Boyardee commercials, in America, when I was young.
+ - Get over jet-lag quickly. I think a lot of people waste the first few days sleeping in the wrong time zone. Sometimes I take melatonin but at other times a glass of wine will do it.
+ - And I always think of life like a giant wave. You know, it rises and it crests and it flies, and it’s just magnificent, and then it crashes. And for a lot of people, when it crashes, that’s the end, and they go down the deep, dark hole of depression.
+ - We must teach the next generation to not just learn languages, but whole cultures and belief systems. We will then make more of an effort to understand people and their different cultures.
+ - If your heart is open it can never stay broken.
+ - People say women shouldn’t have long hair over a certain age, but I’ve never done what everyone says.
+ - Behind every open heart is a story. Tell yours with my Open Heart collection. There are millions of reasons to give one, but the message is always the same: Keep your heart open and love will always find its way in.
+ - I find it interesting that 16-year-olds are having plastic surgery. People in their 40s used to think, ‘I’m aging, I have to do something about it.’ Now children are deciding they don’t like the way they look.
+ - My father always told me, you can only be your own best. In other words, if you feel you’ve done your best, you’ve done well enough.
+ - What I know now is that we’re all interconnected and that’s a really beautiful thing. We have links to everyone else in our lives and in the world. Different people have different journeys for different reasons. You can’t judge, but you can celebrate that there are connections everywhere.
+ - When I auditioned for ‘Wedding Crashers,’ the producers had never seen any of my other work except for Bond. I got ‘Wedding Crashers’ partly because I was a Bond girl.
+ - I had ordered long legs, but they never arrived. My eyes are weird too, one is gray and the other is green. I have a crooked smile and my nose looks like a ski slope. No, I would not win a Miss contest.
+ - Even though I make those movies, I find myself wishing that more of those magic moments could happen in real life.
+ - I have many friends who do not believe in luck; they believe in blessings. Likewise, I do not believe in coincidences; I believe in miracles.
+ - In life, when stuff happens the instinct is to close off your heart. By leaving your heart open, it leaves room for someone else to come in.
+ - I think a lot of people get so obsessed with the wedding and the expense of the wedding that they miss out on what the real purpose is. It’s not about a production number, it’s about a meaningful moment between two people that’s witnessed by people that they actually really know and care about.
+ - Motherhood has relaxed me in many ways. You learn to deal with crisis. I’ve become a juggler, I suppose. It’s all a big circus, and nobody who knows me believes I can manage, but sometimes I do.
+ - People treat life as though it’s the dress rehearsal for some big show. It’s not. This is it.
+ - It’s interesting that whenever I meet some of the other Bond girls, I always have something in common, and it is an interesting sorority. We all share about our Bonds. ‘Did your Bond do that?’ ‘Yes mine did!’ So it is quite funny conversations. We may as well be in high school.
+ - I’m proud of my wrinkles. They give my face character. As an actress, you mess with that at your peril.
+ - At the end of the day, I let myself have a glass of wine.
+ - What I love about watercolor is that a lot of happy accidents occur.
+ - I think the good thing about my face is it has always been expressive. With Botox that goes – not what you want as an actress.
+ - After my divorce, painting took me out of panic mode and into a serene, calm place. I could absolutely lose myself.
+ - See the gift that change delivers.
+ - I’ve had two terrific relationships, but both ended in marriage.
+ - Every once in a while I go off to do a movie or a television series and I take my art with me. I can stay in character when I paint.
+ - It’s really not a question of how long you have on this earth; it’s about what you do with it.
+ - I love doing comedy. Absolutely love it. After ‘Wedding Crashers,’ people suddenly realized that it was something I could do.
+ - An agent once told me that if I would lose my English accent, I would never stop working in America.
+ - I danced with the London Festival at Covent Garden. I’m a ballerina by trade; I’m a ballerina who sings by the way.
+
+39 quotes

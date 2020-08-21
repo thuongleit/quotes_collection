@@ -1,0 +1,103 @@
+ - A short story is a love affair, a novel is a marriage. A short story is a photograph; a novel is a film.
+ - Love is art, not truth. It’s like painting scenery.
+ - If you’re suicidal, and you don’t actually kill yourself, you become known as ’wry.
+ - I missed him. Love, I realized, was something your spine memorized. There was nothing you could do about that.
+ - Personally I’ve never put much store by honesty- I mean how can you trust a word whose first letter you don’t even pronounce.
+ - If God Speaks Through Burning Bushes, Let’s Burn Bush and Listen to What God Says.
+ - Love drains you, takes with it much of your blood sugar and water weight. You are like a house slowly losing its electricity, the fans slowing, the lights dimming and flickering; the clocks stop and go and stop.
+ - An agony. The exit like the entrance – but reserved. A palindrome: gut-tug.
+ - An author’s life is different, complex, and ongoing, while a character’s remains frozen in one little story.
+ - This was my modest dream come true: unambitious flight. The kind that never even got high enough for a view.
+ - Plots are for dead people.
+ - But family life sometimes had a vortex, like weather. It could be like a tornado in a quiet zigzag: get close enough and you might see within it a spinning eighteen-wheeler and a woman.
+ - When you were six you thought mistress meant to put your shoes on the wrong feet. Now you are older and know it can mean many things, but essentially it means to put your shoes on the wrong feet.
+ - What do I do when writing isn’t going well? Well, I don’t write – which is symptom, cure, and cause. And then sometimes I just tell myself, as I’m writing, “I’ll fix it later.” And sometimes it’s true, I do.
+ - Don’t make your own life your project in your own life: total waste of time.
+ - Forgiveness lives alone and far off down the road, but bitterness and art are close, gossipy neighbors, sharing the same clothesline, hanging out their things, getting their laundry confused.
+ - There seemed nothing so true as a yellow tree.
+ - Love is the answer, said the songs, and that’s OK. It was OK, I supposed, as an answer. But no more than that. It was not a solution; it wasn’t really even an answer, just a reply.
+ - She was unequal to anyone’s wistfulness. She had made too little of her life. Its loneliness shamed her like a crime.
+ - But that inadequacy, or feeling of inadequacy, never really goes away. You just have to trudge ahead in the rain, regardless.
+ - But I believed in starting over. There was finally, I knew, only rupture and hurt and falling short between all persons, but, Shirley, the best revenge was to turn your life into a small gathering of miracles. If I could not be anchored and profound, I would try, at least, to be kind.
+ - Decide that you like college life. In your dorm you meet many nice people. Some are smarter than you. And some, you notice, are dumber than you. You will continue, unfortunately, to view the world in exactly these terms for the rest of your life.
+ - If prose can cast a spell, we will listen to it no matter what it’s saying. If a narrative uses language in a magical and enlivening way, we will listen to the story. But if the language doesn’t cast a spell, we will listen to it only if it is telling us something that actually happened.
+ - I’ve come to realize that life, while being everything, is also strangely not much. Except when the light shines on it a different way and then you realize it’s a lot after all!
+ - Make a list of all the lovers you’ve ever had. Warren Lasher Ed “Rubberhead” Catapano Charles Deats or Keats Alfonse Tuck it in your pocket. Leave it lying around, conspicuously. Somehow you lose it. Make “mislaid” jokes to yourself. Make another list.
+ - When she packed up to leave, she knew that she was saying goodbye to something important, which was not that bad, in a way, because it meant that at least you had said hello to it to begin with...
+ - Usually she ordered a cup of coffee and a cup of tea, as well as a brownie, propping up her sadness with chocolate and caffeine so that it became an anxiety.
+ - Every arrangement in life carried with it the sadness, the sentimental shadow, of its not being something else, but only itself.
+ - Twenty-year-olds have a kind of emotional idealism about relationships and about the world that enables them to say, ‘No, you lied to me. Goodbye.’ When they see wickedness, they walk away.
+ - I don’t go back and look at my early work, because the last time I did, many years ago, it left me cringing. If one publishes, then one is creating a public record of Learning to Write.
+ - A novel is a daily labor over a period of years. A novel is a job. But a story can be like a mad, lovely visitor, with whom you spend a rather exciting weekend.
+ - The only really good piece of advice I have for my students is, ‘Write something you’d never show your mother or father. And you know what they say? I could never do that!’
+ - I’ve accrued a kind of patience, I believe, loosely like change.
+ - To write a short story, you have to be able to stay up all night.
+ - They had, finally, the only thing anyone really wants in life: someone to hold your hand when you die.
+ - I wondered about the half-life of regret.
+ - Nothing’s a joke with me. It just all comes out like one.
+ - I would never understand photography, the sneaky, murderous taxidermy of it.
+ - I wished for eternal and intriguing muteness. I would be the Mysterious Dumb Girl, the Enigmatic Elf. The human voice no longer interested me.
+ - I do have people in mind when I write. I don’t know precisely who they are, however, or how many of them there are.
+ - I count too heavily on birthdays, though I know I shouldn’t. Inevitably I begin to assess my life by them, figure out how I’m doing by how many people remember; it’s like the old fantasy of attending your own funeral: You get to see who your friends are, get to see who shows up.
+ - Later I would come to believe that erotic ties were all a spell, a temporary psychosis, even a kind of violence, or at least they coexisted with these states.
+ - You are unhappy because you believe in such a thing as happy.
+ - Things between us were dissolving like an ice cub in a glass: the smaller it got, the faster it disappeared.
+ - I don’t think of any sentence as a “one-liner”, but I do pay attention to how people actually speak when they are being funny. Rhythm is key.
+ - One had to build shelters. One had to make pockets and live inside them.
+ - I love plays. Even bad ones. I like the fact that actual live, breathing people are standing before you in tense situations that you are not personally responsible for.
+ - Women now were told not to settle for second best, told that they deserved better, but at a time, it seemed, when there was so much less to go around.
+ - A DARK MATTER is a page-turning thriller of every sort: psychological, sociological, epistemological. Plus, it’s really scary.
+ - Begin to wonder what you do write about. Or if you have anything to say. Or even if there is such a thing as a thing to say. Limit these thoughts to no more than ten minutes a day; like sit-ups, they can make you thin.
+ - Most things good for writing are bad for life.
+ - Pleasantness was the machismo of the Midwest. There was something athletic about it. You flexed your face into a smile and let it hover there like the dare of a cat.
+ - Humor comes from the surprise release of some buried tension.
+ - After a childhood of hungering to be an adult, my hunger had passed. Unexpected fates had begun to catch my notice. These middle-aged women seemed very tired to me, as if hope had been wrung out of them and replaced with a deathly, walking sort of sleep.
+ - One should never turn one’s back on a vivid imagination.
+ - For love to last, you had to have illusions or have no illusions at all. But you had to stick to one or the other. It was the switching back and forth that endangered things.
+ - She smiled at him, with longing. ‘Where do you live,’ she asked, ’and how do I get there?
+ - I always do the wrong. I do the wrong thing so much that the times I actually do the right thing stand out so brightly in my memory that I forget I always do the wrong thing.
+ - Those are the love killers. They love you and then they kill you. They’re from another planet. Supposedly.
+ - You know, I’m just a very boring, not very funny person in person. I don’t feel pressured to be otherwise.
+ - Awkwardness is where tension is, and tension is where the story is. It’s also where the comedy is, which I’m interested in; when it resolves it tends to resolve toward melancholy, a certain resignation, which I find interesting as well.
+ - No matter that you anticipate a thing; you get so used to it as part of the future that its actuality, its arrival, its force and presence, startles you, takes you by surprise, as would a ghost suddenly appearing in the room wearing familiar perfume and boots.
+ - As the most recently arrived to earthly life, children can seem in lingering possession of some heavenly lidless eye.
+ - I want to pretend there’s such a thing as requited love. As the endurance of love.
+ - I’ve never been to a dinner party where everyone at the dinner table didn’t say something funny.
+ - I always had the sense with her that she didn’t suffer fools gladly but that life was taking great pains to show her how.
+ - I don’t care if I’m a fish, I still want a bicycle.
+ - Once love had seemed like magic. Now it seemed like tricks.
+ - If I retain any freshness of approach, it’s by going slowly having long intervals between finished projects.
+ - Editing is just ongoing. I don’t count drafts, or know what would fully constitute a draft. But I try to fix as I go. And there’s always more to fix.
+ - This lunge at moral fastidiousness was something she’d noticed a lot in people around here. They were not good people. They were not kind. But they recycled their newspapers!
+ - Adults are living increasingly as children: completely in their imaginations. Reading Harry Potter while every newspaper in the country goes out of business. They know so little that is real.
+ - We were in dialogue that was about something other than what we were saying.
+ - Surely that was why faith had been invented: to raise teenagers without dying. Although of course it was also why death was invented: to escape teenagers altogether.
+ - She was afraid, and the afraid, she realized, sought opportunities for bravery in love.
+ - She hadn’t been given the proper tools to make a real life with, she decided, that was it. She’d been given a can of gravy and a hairbrush and told, “There you go.” – Willing.
+ - Everything one reads is nourishment of some sort – good food or junk food – and one assumes it all goes in and has its way with your brain cells.
+ - We had put almost all of our possessions in storage, which was a metaphor for being twenty, as were so many things.
+ - It was part of being a girl in the ’60s that you were creative.
+ - A funny line can never exist on its own. It needs to be surrounded by mood and circumstances.
+ - You chose love like a belief, a faith, a place, a box for one’s heart to knock against like a spook in the house.
+ - Rather than a teaching tool, I think a novel is more of a witnessing entity. A witnessing entity? What is that? I just want the reader to step in and experience it as a story.
+ - Surrealism could not be made up. It was the very electricity of the real.
+ - You know, as fiction writers, if our instincts are off, we can’t pay our bills.
+ - I did think reviewers were supposed to be polite about story collections – collections are rather delicate creatures in the literary environment – but not everybody got this memo, I guess.
+ - No matter what terror the earth could produce – winds, seas – a person could produce the same, lived with the same, lived with all that mixed-up nature swirling inside, every bit. There was nothing as complex in the world – no flower or stone – as a single hello from a human being.
+ - It is like having a book out from the library. It is like constantly having a book out from the library.
+ - I had never feared insomnia before – like prison, wouldn’t it just give you more time to read?
+ - The affectionate farce I make of him ignores the ways I feel his lack of love for me. But we are managing.
+ - Perhaps we had at last reached that stage of intimacy that destroys intimacy.
+ - It was not miserable – often I did not miss her at all. But there was sometimes a quick, sinking ache when I walked in the door and saw she was not there. Twice, however, I’d felt the same sinking feeling when she was.
+ - This was love, I supposed, and eventually I would come to know it. Someday it would choose me and I would come to know its spell, for long stretches and short, two times, maybe three, and then quite probably it would choose me never again.
+ - Perhaps she drives men away. Perhaps, without even being able to help herself, she just puts men into her ill-tempered car and drives them off: to quarries, dumps, small anonymous bodies of water.
+ - Better to think of writing, of what one does, as an activity, rather than an identity to keep the calling a verb rather than a noun.
+ - I don’t have a love life. I have a like life.
+ - All the world’s a stage we’re going through.
+ - If one publishes, then one is creating a public record of Learning to Write.
+ - Your numbness is something perhaps you cannot help. It is what the world has done to you. But your coldness. That is what you do to the world.
+ - Sometimes I ask myself if writing novels is even respectable.
+ - This is what happened in love. One of you cried a lot and then both of you grew sarcastic.
+ - Writers have no real area of expertise. They are merely generalists with a highly inflamed sense of punctuation.
+
+101 quotes

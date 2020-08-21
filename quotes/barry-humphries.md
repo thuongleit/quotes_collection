@@ -1,0 +1,25 @@
+ - Never be afraid to laugh at yourself, after all, you could be missing out on the joke of the century.
+ - I love Australia – I think.
+ - Australia is an outdoor country. People only go inside to use the toilet. And that’s only a recent development.
+ - Friendship is tested in the thick years of success rather than in the thin years of struggle.
+ - My mother used to say that there are no strangers, only friends you haven’t met yet. She’s now in a maximum security twilight home in Australia.
+ - If you have to explain satire to someone, you might as well give up.
+ - The past is so reliable, so delightful and the best place to live.
+ - I was born with a priceless gift, the ability to laugh at the misfortunes of others.
+ - I know body hair bothers some women, but a lot of men like a fluffy partner.
+ - The truth is deafening, no matter how softly it is spoken.
+ - I like people who are slightly unhygienic. A little grubbiness isn’t so bad. BO chic it should be called.
+ - To live in Australia permanently is rather like going to a party and dancing all night with one’s mother.
+ - New Zealand is a country of thirty thousand million sheep, three million of whom think they are human.
+ - I’m an immensely shy and vulnerable woman. My husband has never seen me naked. Nor has he expressed the least desire to do so.
+ - The whole point of art, aside from the aesthetic pleasure it yields, is that it provides a bridge to the past; that seductive land where we all find certainty and consolation. Nothing quite spans this gulf with such immediacy as the art of popular song.
+ - There is no more terrible fate for a comedian than to be taken seriously.
+ - He’s very, very well-known. I’d say he’s world-famous in Melbourne.
+ - I drift along, thinking about the past a great deal. The past is so reliable, so delightful, and the best place to live. I end up there quite often, you know; it’s very comfortable and dependable.
+ - Sport is a loathsome and dangerous pursuit.
+ - My parents were very pleased that I was in the army. The fact that I hated it somehow pleased them even more.
+ - I have outlived most of my more athletic contemporaries who jogged, golfed and squashed themselves into coronary occlusion.
+ - Everyone had a Japanese maple, although after Pearl Harbor most of these were patriotically poisoned, ringbarked and extirpated.
+ - Most of my contemporaries at school entered the World of Business, the logical destiny of bores.
+
+23 quotes

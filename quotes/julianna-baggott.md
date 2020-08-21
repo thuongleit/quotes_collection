@@ -1,0 +1,72 @@
+ - The intricacy of plotting a thriller is akin to writing formal poetry.
+ - Sometimes you meet someone and you know that your life will be different from then on.
+ - The basic rule of storytelling is ’show, don’t tell.
+ - Women are constantly underestimated in our power, our reach, our collective pull.
+ - I prefer true over happy now.
+ - Writers are socially observant. We find people endlessly fascinating, and real life is mysterious. Sometimes it’s hard to stop staring at the strut and squawk of my fellow man. They can be quite inspiring. Sometimes it’s hard to stop talking to them to see what in the world they’re thinking.
+ - But there it is: Everyone is alone, for life, and maybe that’s not such a bad thing.
+ - Beauty, you can find it here if you look hard enough.
+ - Omission is a sin only if, in the process of deceiving, you forget the truth. Lying is a sin only if, in the process, the lie becomes the only truth.
+ - She let him go once. Every day demands that she release him over and over again.
+ - Different genres allow me to not feel so hemmed in by my own voice, tics, style.
+ - If you look at the world one way, it takes from you – it’s a thief of time, energy, creative mojo. But if you look at the world another way, it gives you an endless supply of motivation.
+ - She glances back before stepping into the alley, and she catches her grandfather looking at her the way he does sometimes – as if she’s already gone, as if he’s practicing sorrow.
+ - I’m about to start something new. I’m waiting to be whelmed. The whelming as you start something new is quite something.
+ - I want women writers to write boldly, wildly, deeply. I want them to feel really liberated to tell the brutal truth, however they see that truth and are moved to tell it.
+ - Memories are like water.
+ - I prefer a cluttered workspace.
+ - Love is selfless, it is a weakness, a giving in, a constant falling.
+ - The lessons learned in journalism also apply. Writing for NPR has taught me to cut a piece in half and then in half again – without losing the essence. Apply that to the swollen prose of a bulky novel and you might reveal a beautiful work.
+ - People know the difference between good and evil in their hearts-if they search them. Religions twist good and evil. Their differences are the kind that need to be taught because they aren’t natural.
+ - I don’t know when I’m writing dark. I don’t know when I’m writing funny or even heartbreaking. I’m always just trying to write it true.
+ - Being cross-genre, you can encounter an image and decide not only how to best express it but what form would express it best.
+ - Sometimes the only way to fix a mistake- is to make it twice.
+ - Writers aren’t born properly labeled so it is hard to know one when one appears.
+ - The generation of women who came before us did much of our shouting. They laid the groundwork and now we can be calm and constant and steady.
+ - Try to think of writing as a gift – more complexly put: it is the curse and the cure.
+ - Writing is my obsession, my passion. My relationship with it is one of the most complex and agonizing and richly vexing that I have in my life.
+ - Writing stories is the habit of lying put to good use.
+ - Literature has done great work for feminism – writing and reading are a practice of empathy – and great literature will continue to do so.
+ - Weakness, like not being able to bury the past. Weakness, like not giving up hope when you know you should.
+ - The fact is there are many women who nod politely, even agree openly within their male-dominated often highly educated cultures, but vote their own minds.
+ - She knows that whispers can be useful. Sometimes they contain real information. But usually they’re fairy tales and lies. This is the worst kind of whisper, the kind that draws you in, gives you hope.
+ - Red Sox fans have been pushed to the brink over the years, but that’s how faith grows stronger.
+ - Genres are just bottles for the various boats. The boats matter to me.
+ - You want the greatest trick for writing a novel? Here it is: imagine urgently whispering your story into one person’s ear – and only one. This one visualization will clarify every word choice you make.
+ - When a colleague of mine had a notable New York Times book, I said, turn one of the chapters in the collection into a pitch for a novel and sell it to your publisher.
+ - My childhood was marked by the great fear of nuclear holocaust. We practiced our Civil Defense Drills, lining up in hallways, curled to the floor, but we knew we’d die or, worse, survive only to suffer radiation and slow death.
+ - Our imaginations are strong as children. Sometimes they get shoved aside, these imaginations. They get dusty and mildewed with age. The imagination is a muscle that has to be put to use or it shrivels.
+ - Love is a luxury. It’s something that people are allowed to indulge in when they’re not simply trying to survive and keep other people alive.
+ - I try not to divide plot and character. I get to know a character by what they want and fear and how those internal forces play out in their lives.
+ - You learn to exploit genre for the more important things – to my mind – like story, character, image, language.
+ - As a writer, my main objective is to tell the story urgently – as if whispering it into one ear – and to know the characters intimately.
+ - When you’re in the world looking for only one thing, you find it or it finds you. The obsession can be mutual.
+ - One of the reasons I write in different genres is that I get to have the feeling – even fleetingly – that I’m not just writing like Baggott again. I can escape myself.
+ - I believe we’re brutes, but then, miraculously, there are those among us who stand up against that brutishness and remind us of the goodness we’re capable of.
+ - No matter what losses happen in a given season, the Red Sox always have next year.
+ - I’ve left the Church – for many reasons that I’ve written about publicly – but it’s still a large part of my identity, and I still have my faith, if not my Church.
+ - I’m a woman, but I’ve been a sexist, too.
+ - My oldest sister was an actress living in NYC by the time I was ten, and desperately wanted to be the one in charge of the words.
+ - Each genre has something to teach me about the others. Not all the lessons are transferable, but many of the most important ones are.
+ - I didn’t start writing so that I could more deeply know myself. I was bored of myself, my life, my childhood, my hometown. I started writing as a way to know others, to get away from myself.
+ - I want to keep looking at ways to stride forward with positivity.
+ - It’s not that I bounce ideas off of my children as much as it is that having children has had a profound effect on the way I see the world. They have mined my soul. They’ve made me a better person and therefore a more empathetic writer.
+ - I write across genres so I see them, more often, as complementary instead of separated by boundaries.
+ - What does it mean to be Catholic and not a Catholic? I feel adrift, homeless. My Catholic imagination allows me to see the soul as a lit breath, seeking the divine. It persists.
+ - I feel too much. It’s like being drummed to death from within. You know?
+ - I don’t have a favorite. I need different genres at different times.
+ - A good novel doesn’t just transcend the boundaries of its target market – it knows nothing about target markets.
+ - Our love is our burden.
+ - I’m a writer of faith. I was raised Catholic, and I have a deeply Catholic imagination.
+ - The truth is that for those 86 long years when the Red Sox went without a World Series win, fans were not only in a recession, but trapped in a longstanding, deeply entrenched sports depression.
+ - My work is to know the characters intimately and to tell their story.
+ - Writing across genres has made me more prolific. When one is fighting me or simply not cutting it, I turn to another.
+ - If I’d learned nothing else, it was this: If you want to be a great writer, be a man. If you can’t be a man, write like one.
+ - Is it wrong to kill something that wants to kill you?
+ - Don’t shame the young for releasing their pent-up fear.
+ - I’ve never thought there was anything I could hope to get by praying for it.
+ - I have faith in human beings. I struggle with that faith.
+ - While I was in college becoming a good Catholic I was also becoming a writer – one haunted by Catholicism.
+ - Some of the best work done to combat the Republicans has been wit and humor.
+
+70 quotes

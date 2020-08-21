@@ -1,0 +1,122 @@
+ - Travel changes you. As you move through this life and this world you change things slightly, you leave marks behind, however small. And in return, life – and travel – leaves marks on you. Most of the time, those marks – on your body or on your heart – are beautiful. Often, though, they hurt.
+ - If I’m an advocate for anything, it’s to move. As far as you can, as much as you can. Across the ocean, or simply across the river. The extent to which you can walk in someone else’s shoes or at least eat their food, it’s a plus for everybody. Open your mind, get up off the couch, move.
+ - The journey is part of the experience – an expression of the seriousness of one’s intent. One doesn’t take the A train to Mecca.
+ - Skills can be taught. Character you either have or you don’t have.
+ - If you’re twenty-two, physically fit, hungry to learn and be better, I urge you to travel – as far and as widely as possible. Sleep on floors if you have to. Find out how other people live and eat and cook. Learn from them – wherever you go.
+ - I don’t have to agree with you to like you or respect you.
+ - Open your mind, get up off the couch, move.
+ - Everything important I learned, I learned as a dishwasher.
+ - Regret is something you’ve got to just live with, you can’t drink it away. You can’t run away from it. You can’t trick yourself out of it. You’ve just got to own it.
+ - There is no Final Resting Place of the Mind.
+ - Luck is not a business model.
+ - I urge you to travel – as far and as widely as possible. Sleep on floors if you have to.
+ - Drink heavily with locals whenever possible.
+ - Recognise excellence. Celebrate weirdness and innovation. Oddballs should be cherished, if they can do something other people can’t do.
+ - Naturally, I’m misanthropic. But the Negronis are helping considerably.
+ - The way you make an omelet reveals your character.
+ - No one understands and appreciates the American Dream of hard work leading to material rewards better than a non-American.
+ - An ounce of sauce covers a multitude of sins.
+ - For a moment, or a second, the pinched expressions of the cynical, world-weary, throat-cutting, miserable bastards we’ve all had to become disappears, when we’re confronted with something as simple as a plate of food.
+ - There is no other place on earth even remotely like New Orleans. Don’t even try to compare it to anywhere else.
+ - Street food, I believe, is the salvation of the human race.
+ - There’s something wonderful about drinking in the afternoon. A not-too-cold pint, absolutely alone at the bar – even in this fake-ass Irish pub.
+ - Good food is very often, even most often, simple food.
+ - That without experimentation, a willingness to ask questions and try new things, we shall surely become static, repetitive, moribund.
+ - If I were trapped in one city and had to eat one nation’s cuisine for the rest of my life, I would not mind eating Japanese. I adore Japanese food. I love it.
+ - It’s that show Friends. Ruined coffee forever.
+ - I’m not going anywhere. I hope. It’s been an adventure. We took some casualties over the years. Things got broken. Things got lost. But I wouldn’t have missed it for the world.
+ - When my father passed, I was still an unsuccessful cook with a drug problem. I was in my mid-thirties, standing behind an oyster bar, cracking clams for a living when he died. So, he never saw me complete a book or achieve anything of note. I would have liked to have shared this with him.
+ - Without Montreal, Canada would be hopeless.
+ - I can unload my opinion on anybody at anytime.
+ - Without new ideas success can become stale.
+ - In this way, writers are indeed, as Henry Miller suggested, traitors to the human race. We may turn a light on inequity, injustice, and oppression from time to time, but we regularly kill what we love in insidious fashion.
+ - Even on the Serengeti, it ain’t a barbecue if there ain’t some kind of beer.
+ - I listen a lot to how people speak. I’ve read a great many good books in my life. I had some excellent English teachers. Surely, those things were helpful.
+ - I won’t eat in a restaurant with filthy bathrooms. This isn’t a hard call. They let you see the bathrooms. If the restaurant can’t be bothered to replace the puck in the urinal or keep the toilets and floors clean, then just imagine what their refrigeration and work spaces look like.
+ - Where once they used to say, ‘Cocaine is God’s way of saying you have too much money’ – now, maybe EDM is. Come ye lords and princelings of douchedom.
+ - I’d like to play bass like Bootsy Collins. I’m serious. That would be my dream.
+ - Meals make the society, hold the fabric together in lots of ways that were charming and interesting and intoxicating to me. The perfect meal, or the best meals, occur in a context that frequently has very little to do with the food itself.
+ - As a chef I’m not your dietitian or your ethicist, I’m in the pleasure business.
+ - This is the dream of all the world. The dream is to live in Granada. You know, work in the morning, have a one-hour nap in the afternoon, and at night go out and have that life. Go out and see your friends and eat tapas and drink red wine and be in a beautiful place.
+ - To me, life without veal stock, pork fat, sausage, organ meat, demi-glace, or even stinky cheese is a life not worth living.
+ - You have to be a romantic to invest yourself, your money, and your time in cheese.
+ - New Orleans is a glorious mutation.
+ - I’m excited by any food that’s prepared by someone who’s proud of what they’re doing, who puts a personal imprint on food.
+ - Context and memory play powerful roles in all the truly great meals in one’s life.
+ - Margarine? That’s not food. I Can’t Believe It’s Not Butter? I can. If you’re planning on using margarine in anything, you can stop reading now, because I won’t be able to help you.
+ - I lurched away from the table after a few hours feeling like Elvis in Vegas – fat, drugged, and completely out of it.
+ - I look at Guy Fieri and I just think, ‘Jesus, I’m glad that’s not me.’
+ - I’m at my most productive before I even have my first cup of coffee. I only get slower and stupider as the day progresses.
+ - America’s most dangerous export was, is and always will be our fast-food outlets.
+ - I’m never a reliable narrator, unbiased or objective.
+ - In that sense, what a great way to live, if you could always do things that interest you, and do them with people who interest you.
+ - People everywhere have been very, very good to me, whether I’m with or without cameras.
+ - When do you stop to de-douche?
+ - Cream rises. Excellence does have its rewards.
+ - Turning your nose up at a genuine and sincere gesture of hospitality is no way to travel or to make friends around the world.
+ - When dealing with complex transportation issues, the best thing to do is pull up with a cold beer and let somebody else figure it out.
+ - The fact that over 50 per cent of the residents of Toronto are not from Canada, that is always a good thing, creatively, and for food especially. That is easily a city’s biggest strength, and it is Toronto’s unique strength.
+ - I admire vegetarians who refuse to eat nothing but vegetables in their homes, but I also admire those who put aside those principles or those preferences when they travel. Just to be a good guest.
+ - You dropped a 500-seat deuce on Times Square.
+ - If you have a good experience in a restaurant, you tell 2 people. If you have a bad experience, you tell 10 people.
+ - In my house, neither my wife nor my daughter are impressed that I’m on television, and they remind me of that frequently.
+ - For me, the cooking life has been a long love affair, with moments both sublime and ridiculous.
+ - I managed to reach a depth of self-loathing that usually takes a night of drinking to achieve.
+ - I’m sure one of the frustrations of being a Western enthusiast of Japanese food and culture is you’re confronted every day with the absolute certainty that you will die ignorant.
+ - What’s the opposite of suck? Un-suck?
+ - I just do the best I can and write something interesting, to tell stories in an interesting way and move forward from there.
+ - An employer of mine back in the ’80s was kind enough to take me on after a rough patch, and it made a big difference in my life that I knew I was the sort of person who showed up on time. It’s a basic tell of character.
+ - A proper saute pan should cause serious head injury if brought down hard against someone else’s skull. If you have any doubts about which will dent, the victim’s head or your pan, then throw that pan right in the trash.
+ - I’m not impressed by any cooks who can brag about a filet mignon. A guy who can take the neck of a shank or can use tripe to make into something delicious is really interesting to me; that’s impressive.
+ - Just because we are not Italian, does not mean we cannot appreciate Michelangelo, it is the same with cuisine.
+ - One of life’s terrible truths is that women like guys who seem to know what they’re doing.
+ - Writing anything is a treason of sorts.
+ - I am not a fan of people who abuse service staff. In fact, I find it intolerable. It’s an unpardonable sin as far as I’m concerned, taking out personal business or some other kind of dissatisfaction on a waiter or busboy.
+ - The roots of creativity of cooking are hungry people trying to figure out how to take something that’s not particularly fresh or tender and transform it into it something delicious that everyone will love.
+ - I need the anesthetic qualities of the local fire water.
+ - I’ve long believed that good food, good eating, is all about risk. Whether we’re talking about unpasteurized Stilton, raw oysters or working for organized crime ‘associates,’ food, for me, has always been an adventure.
+ - Big stuff and little: learning how to order breakfast in a country where I don’t speak the language and haven’t been before – that’s really satisfying to me. I like that.
+ - Good food and good eating are about risk.
+ - Just because I like sushi, doesn’t mean I can make sushi. I’ve come to well understand how many years just to get sushi rice correct. It’s a discipline that takes years and years and years. So, I leave that to the experts.
+ - I was a serious comic collector and fanboy as a kid. I wanted very badly to draw comic books for a lot of my childhood and early adolescence. So when you have an unfulfilled dream like that, when years later you find yourself in a position to make a graphic novel – hell yeah, I’m going to do that.
+ - There are people with otherwise chaotic and disorganized lives, a certain type of person that’s always found a home in the restaurant business in much the same way that a lot of people find a home in the military.
+ - I’m not searching for hard news; I’m not a journalist, but I’m interested in pushing to boundaries of where we can do the kind of stories that we want to do. I mean, it’s a big world and CNN has made it a lot bigger and they haven’t flinched.
+ - If you go to working class, and working poor areas of America, the food sources that are relegated to them are generally limited to unhealthy ones.
+ - I am in no way supportive of hunting for trophies or sport – would never do it and don’t like it that others do. But if you kill it, then eat it, it’s fine.
+ - I think it’s a universal truth that most chefs I know are happiest eating simple, unadorned good things.
+ - I am a delightfully evangelical guy about things I love. I am that annoying guy who sits everyone down and forces them to read some book I like. I’m looking across the full spectrum of genres.
+ - I, personally, think there is a really danger of taking food too seriously. Food should be part of the bigger picture.
+ - Unlicensed hooch from a stranger in a parking lot. Good idea? Yes, of course it is.
+ - I write quickly with a sense of urgency. I don’t edit myself out of existence, meaning I’ll try to write 50 or 60 pages before I start rereading, revising and editing. That just helps with my confidence.
+ - I did go into the Amazonian region of Brazil. They have prehistoric river fish that weigh in at around 600 pounds, which you don’t see anywhere else. And foods that cannot be exported or even found in other parts of Brazil.
+ - I eat strategically. If I know I’m having a big Chinese banquet tomorrow, I’m not eating a big dinner tonight, and I’m not having breakfast.
+ - Thinking of getting into the leg-breaking business, so I can profitably sell crutches later.
+ - Get up early and go to the local produce markets. In Latin America and Asia, those are usually great places to find delicious food stalls serving cheap, authentic and fresh specialties.
+ - My French definitely improves the more I drink, as I worry less and less about absolutely perfect grammar. I do speak and understand the language, just not particularly well.
+ - Always entertain the possibility that something, no matter how squiggly and scary looking, might just be good.
+ - I believe – to the best of my recollection, anyway – that I soon made the classic error of moving from margaritas to actual shots of straight tequila. It does make it easier to meet new people.
+ - I’m a guy who should not have a lot of free time. But when it comes to vacation, I like to pull the plug completely. It’s all about my daughter – I’m no longer the star of my own movie.
+ - They’re professionals at this in Russia, so no matter how many Jell-O shots or Jager shooters you might have downed at college mixers, no matter how good a drinker you might think you are, don’t forget that the Russians – any Russian – can drink you under the table.
+ - It’s been about a week without alcohol of any kind. I’m enjoying my new, clean-living lifestyle.
+ - I can’t do exercises regularly because my schedule changes from day to day. I’m okay with hurting myself, like I’ll lift something until it hurts, but I don’t want to pass out or vomit in front of people.
+ - I’m a Twitter addict. Jose Andres is a serial tweeter. It’s funny to see which chefs have embraced it, and the different paths they take.
+ - Only desperation can account for what the Chinese do in the name of ‘medicine.’ That’s something you might remind your New Age friends who’ve gone gaga over ‘holistic medicine’ and ’alternative Chinese cures.
+ - When I’m back in New York – and this is a terrible thing to complain about – I eat a lot more really, really good food than perhaps I’d like to. So many of my friends are really good chefs. It’s kind of like being in the Mafia.
+ - Going to Southeast Asia for the first time and tasting that spectrum of flavors – that certainly changed my whole palate, the kind of foods I crave. A lot of the dishes I used to love became boring to me.
+ - I, a product of the New Frontier and Great Society, honestly believed that the world pretty much owed me a living – all I had to do was wait around in order to live better than my parents.
+ - You have to love a town where you can both smoke and gamble in a pharmacy.
+ - I wouldn’t want to compare myself to David Byrne whom I consider a genius, but what I think what we have in common is that he’s also a guy who is very interested in the world and who has a lot of passions beyond singing and playing guitar.
+ - There are very sophisticated, very time-consuming dishes to prepare; always from scratch, and always in excess of what you could possibly need. You tend to kill your guests with kindness around here.
+ - Food is everything we are. It’s an extension of nationalist feeling, ethnic feeling, your personal history, your province, your region, your tribe, your grandma. It’s inseparable from those from the get-go.
+ - It’s very rarely a good career move to have a conscience.
+ - Sometimes the greatest meals on vacations are the ones you find when Plan A falls through.
+ - When I cook, I generally stick with what I know, what I’m comfortable with, and what I feel I’ve paid my dues learning, and am good at.
+ - Avoid at all costs that vile spew you see rotting in oil in screwtop jars. Too lazy to peel fresh? You don’t deserve to eat garlic.
+ - Don’t lie about it. You made a mistake. Admit it and move on. Just don’t do it again. Ever.
+ - For their own good, vegetarians should never be allowed near fine beers and ales. It will only make them loud and belligerent, and they lack the physical strength and aggressive nature to back up any drunken assertions.
+ - One of my few virtues – I don’t have a lot of them – would be a deep sense of curiosity. I’m interested in how other people live in other places; I’m interested in other cultures.
+ - The bible of cooking. The all-time argument ender. Early in my cooking career, I wielded my Larousse like a weapon and it never let me down.
+ - I could eat bloody Elvis – if you put enough vinegar on him.
+ - I wanted to write in Kitchenese, the secret language of cooks, instantly recognizable to anyone who has ever dunked french fries for a summer job or suffered under the despotic rule of a tyrannical chef or boobish owner.
+
+120 quotes

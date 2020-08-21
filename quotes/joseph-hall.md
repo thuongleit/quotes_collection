@@ -1,0 +1,71 @@
+ - Perfection is the child of time.
+ - God loveth adverbs; and cares not how good, but how well.
+ - He is a very humble man, that thinks not himself better than some others.
+ - Let me know myself; let others guess at me.
+ - What fools are we, to be besotted with the love of our own trouble, and to hate our liberty and rest!
+ - What I have done is worthy of nothing but silence and forgetfulness, but what God has done for me is worthy of everlasting and thankful memory.
+ - Worldly ambition is founded on pride or envy, but emulation, or laudable ambition, is actually founded in humility; for it evidently implies that we have a low opinion of our present attainments, and think it necessary to be advanced.
+ - Every day is a little life, and our whole life is but a day repeated. Therefore live every day as if it would be the last. Those that dare lose a day, are dangerously prodigal; those that dare misspend it are desperate.
+ - Death borders upon our birth, and our cradle stands in the grave.
+ - It is not the bee’s touching on the flowers that gathers the honey, but her abiding for a time upon them, and drawing out the sweet.
+ - Let others either envy or pity me; I care not, so long as I enjoy myself.
+ - How easy it is for men to be swollen with admiration of their own strength and glory, and to be lifted up so high as to lose sight both of the ground whence they rose, and the hand that advanced them.
+ - Ambition is torment enough for an enemy; for it affords as much discontentment in enjoying as in want, making men like poisoned rats, which, when they have tasted of their bane, cannot rest till they drink, and then can much less rest till they die.
+ - I will rather suffer a thousand wrongs than offer one. I have always found that to strive with a superior is injurious; with an equal, doubtful; with an inferior, sordid and base; with any, full of unquietness.
+ - Nothing fools people as much as extreme passion.
+ - I have seldom seen much ostentation and much learning met together.
+ - He that taketh his own cares upon himself loads himself in vain with an uneasy burden. I will cast all my cares on God; He hath bidden me; they cannot burden Him.
+ - I first adventure, follow me who list And be the second English satirist.
+ - If the sun of God’s countenance shine upon me, I may well be content to be wet with the rain of affliction.
+ - Heaven hath many tongues to talk of it, more eyes to behold it, but few hearts that rightly affect it.
+ - Not to be afflicted is a sign of weakness; for, therefore God imposeth no more on me, because He sees I can bear no more.
+ - It is not sin that kills the soul, but impenitence.
+ - Tranquillity consisteth in a steadiness of the mind; and how can that vessel that is beaten upon by contrary waves and winds, and tottereth to either part, be said to keep a steady course? Resolution is the only mother of security.
+ - I have seldom seen much ostentation and much learning met together. The sun, rising and declining, makes long shadows; at mid day, when he is highest, none at all.
+ - The idle man is the devil’s cushion.
+ - A good man is kinder to his enemy than bad men are to their friends.
+ - Moderation is the silken string running through the pearl chain of all virtues.
+ - The blood that is once inflamed with wine is apt to boil with rage.
+ - Nothing doth so fool a man as extreme passion. This doth make them fools which otherwise are not, and show them to be fools which are so.
+ - It is of no small commendation to manage a little well. To live well in abundance is the praise of the estate, not of the person. I will study more how to give a good account of my little, than how to make it more.
+ - Garments that have once one rent in them are subject to be torn on every nail, and glasses that are once cracked are soon broken; such is man’s good name once tainted with just reproach.
+ - Our body is a well-set clock, which keeps good time, but if it be too much or indiscreetly tampered with, the alarm runs out before the hour.
+ - We must first pray, that God would make us wise; before we can wish, he would make us happy.
+ - It is a shame for the tongue to cast itself upon the uncertain pardon of other’s ears.
+ - Words are as they are taken, and things are as they are used. There are even cursed blessings.
+ - Rich people should consider that they are only trustees for what they posses, and should show their wealth to be more in doing good than merely in having it.
+ - For every bad there might be a worse; and when one breaks his leg let him be thankful it was not his neck.
+ - Recreation is intended to the mind as whetting is to the scythe, to sharpen the edge of it, which otherwise would grow dull and blunt, – as good no scythe as no edge.
+ - Virtues go ever in troops; they go so thick, that sometimes some are hid in the crowd; which yet are, but appear not.
+ - God loves to see his creatures happy; our lawful delight is His; they know not God that think to please Him with making themselves miserable. The idolaters thought it a fit service for Baal to cut and lance themselves; never any holy man looked for thanks from the true God by wronging himself.
+ - Our good purposes foreslowed are become our tormentors upon our deathbed.
+ - If religion might be judged of according to men’s intentions, there would scarcely be any idolatry in the world.
+ - It is not he that reads most, but he that meditates most on Divine truth, that will prove the choicest, wisest, strongest Christian.
+ - Revenge commonly hurts both the offerer and sufferer; as we see in a foolish bee, which in her anger invenometh the flesh and loseth her sting, and so lives a drone ever after.
+ - There would not be so many open mouths if there were not so many open ears.
+ - How apt nature is, even in those who profess an eminence in holiness, to raise and maintain animosities against those whose calling or person they pretend to find cause to dislike!
+ - A reputation once broken may possibly be repaired, but the world will always keep their eyes on the spot where the crack was.
+ - Mark in what order: first, our calling; then, our election; not beginning with our election first. By our calling, arguing our election.
+ - Not only commission makes a sin. A man is guilty of all those sins he hateth not. If I cannot avoid all, yet I will hate all.
+ - We are often infinitely mistaken, and take the falsest measures, when we envy the happiness of rich and great men; we know not the inward canker that eats out all their joy and delight, and makes them really much more miserable than ourselves.
+ - For whom he means to make an often guest, One dish shall serve; and welcome make the rest.
+ - The life of doctrine is in application.
+ - Those who give not till they die show that they would not then if they could keep it any longer.
+ - A man’s opinion is in others; his being is in himself.
+ - As you see in a pair of bellows, there is a forced breath without life, so in those that are puffed up with the wind of ostentation, there may be charitable words without works.
+ - Good prayers never come creeping home. I am sure I shall receive either what I ask, or what I should ask.
+ - The idle man is the Devil’s cushion, on which he taketh his free ease: who, as he is uncapable of any good, so he is fitly disposed for all evil motions.
+ - Even the best things ill used become evils; and, contrarily, the worst things used well prove good.
+ - And, if I were so low that I accounted myself the worst of all, yet some would account themselves in worse case.
+ - He is great enough that is his own master.
+ - The best ground untilled, soonest runs out into rank weeds. A man of knowledge that is negligent or uncorrected, cannot but grow wild and godless.
+ - How endless is that volume which God hath written of the world! Every creature is a letter, every day a new page.
+ - Fools measure actions, after they are done, by the event; wise men beforehand, by the rules of reason and right. The former look to the end, to judge of the act. Let me look to the act, and leave the end with God.
+ - There is many a rich stone laid up in the bowels of the earth, many a fair pearl laid up in the bosom of the sea, that never was seen, nor never shall be.
+ - Earthly greatness is a nice thing, and requires so much chariness in the managing, as the contentment of it cannot requite.
+ - Try to be of some use to others.
+ - The ear and the eye are the mind’s receivers; but the tongue is only busy in expending the treasures received. It, therefore, the revenues of the mind be uttered as fast or faster than they are received, it must needs be bare, and can never lay up for purchase.
+ - Society is the atmosphere of souls; and we necessarily imbibe from it something which is either infectious or healthful.
+ - This field is so spacious that it were easy for a man to lose himself in it; and if I should spend all my pilgrimage in this walk, my time would sooner end than my way.
+
+69 quotes

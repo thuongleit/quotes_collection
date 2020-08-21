@@ -1,0 +1,154 @@
+ - Don’t waste my time- I’m not stupid, and I’m not gullible.
+ - Never sell your soul.
+ - Some women are like elephants. I don’t mean size, I mean they never forget.
+ - Only good people feel guilt.
+ - Would you stop hoping? Hope is just postponed disappointment.
+ - A lot of what children’s hurt feelings are about is how the parents react.
+ - Don’t worry so much about your self-esteem. Worry more about your character. Integrity is its own reward.
+ - You don’t go by your feelings. You do what is right.
+ - People with integrity do what they say they are going to do. Others have excuses.
+ - Children are our second chance to have a great parent-child relationship.
+ - Don’t talk over me, don’t argue with me, just listen.
+ - The people and circumstances around me do not make me what I am, they reveal who I am.
+ - Victimization status is the modern promised land of absolution from personal responsibility.
+ - Promises made out of ignorance should not be kept.
+ - If your life is going to be dictated by what’s comfortable, your life will stink.
+ - Don’t put your nose into somebody else’s laundry, if you are not willing to fold your own.
+ - I’m tired of the ‘can’t win against evil’ way. I’m sorry, you cannot. They’ll run you over. So that is my one big passion. ‘Ten Stupid Things People Do to Let Evil Win’ – that will be my next passion book. I am angry.
+ - People get mad at me very easily. The magnitude of your anger toward me is the measure of how much you know you are doing wrong.
+ - Values are principles and ideas that bring meaning to the seemingly mundane experience of life. A meaningful life that ultimately brings happiness and pride requires you to respond to temptations as well as challenges with honor, dignity, and courage.
+ - When you’re the victim of the behavior, it’s black and white; when you’re the perpetrator, there are a million shades of gray.
+ - If there’s an award for best mother-in-law in the universe, in the future, when my son gets married, I will win that award.
+ - Controlling mothers do not pass the baton to their son’s new wife.
+ - Do not blame God for your stupid decisions.
+ - Postponing happiness until “all your ducks are in order” means never because life is not that clean, fair or predictable. It isn’t what happens to you that defines your life, it is what you do with it that does.
+ - Life does not have meaning through mere existence or acquisition or fun. The meaning of life is inherent in the connections we make to others through honor and obligation...
+ - People who have “their own issues” often don’t stand back and look at the big picture- they’re too busy orchestrating their own issues.
+ - Language is our way of communicating what we want and who we are. By using bad language, we diminish the divine spark within us that defines our humanity.
+ - There is no unconditional love in the universe.
+ - When you choose wrong because it suits you right now, the message you give others is that when it suits you, you may likely do wrong again. You become a threat and liability to others. That’s a pragmatic reason, outside of pride in morality, not to do wrong.
+ - Remember that feelings or emotions emanate from the more ancient, less evolved, lower part of the human brain, while thoughts are a product of our highly evolved, uniquely human, outer part of the brain.
+ - Self-esteem must be earned! When you dare to dream, dare to follow that dream, dare to suffer through the pain, sacrifice, self-doubts, and friction from the world, you will genuinely impress yourself.
+ - There’s no point dating a guy who can’t support a family.
+ - As women go, so goes civilization.
+ - My life is what a salmon must feel like. They are always going upstream, against the current.
+ - I’m so happy, I can hardly spit.
+ - There’s no reason to yell at anybody.
+ - Women seem not to understand, or underestimate, the profound power they have over their husbands.
+ - Most people are weak and frightened, and run from anything which could be upsetting. Most people, also, are takers and not givers.
+ - There’s no point in arguing with me- in my mind, I’m always right.
+ - Learning to endure, transform by perspective or action, and be grateful is the fast lane to a good life. That’s right. Having great luck and fortune is not the conduit to a loving and enjoyable life; gratitude is.
+ - You have to define success in your own way. What maintains your dignity and integrity and what is your life’s plan; where do you want to put your efforts? I could be richer and more famous, but I would have to give up things that are of infinitely more value.
+ - Psychology doesn’t like to talk about evil. It likes to talk about bad childhoods. But I very much believe that some people are evil and motivation is not necessary for evil.
+ - In this regard, pleasure is an event; happiness is a process. Pleasure is an end point; happiness is the journey. Pleasure is material; happiness is spiritual. Pleasure is self-involved; happiness is outer- and other-involved.
+ - Losing a child is probably the singular most horrible thing.
+ - It is attitude, infinitely more than circumstance, that determines the quality of life. Life is often quite tough, challenging us to choose between seemingly esoteric, intangible ideals and getting goodies or good vibes right now. You have character when you most often choose ideals.
+ - Stop saying “right” to me. I’m starting to feel hostile.
+ - You don’t need to make your heart and your head agree. Let your head make the decision, your heart will catch up eventually.
+ - I know I’m right, and I know you’re wrong.
+ - My best way of making someone admit to something’s wrongness is to have them imagine that thing done to them. Suddenly then it all becomes clear.
+ - The meaning of your life comes through your obligations to others.
+ - Women who don’t think they can get a neat guy hang onto losers because something is better than nothing.
+ - The primary concern of the human animal is to avoid rejection and abandonment.
+ - A lot of what children go through is because you adults don’t carry the burden yourself.
+ - Having a sense of purpose in life is the best way to avoid dispair.
+ - Everything I say is true.
+ - I want to be able to say what’s on my mind and in my heart and what I think is helpful and useful without somebody getting angry, some special interest group deciding this is the time to silence a voice of dissent and attack affiliates, attack sponsors. I’m sort of done with that.
+ - Never ask anyone if you should do something, if ultimately you are afraid to do it. You’ll save yourself a lot of trouble.
+ - So it is the fear, weakness, selfishness, and cowardice of onlookers that permit evil behavior to persist.
+ - When you change yourself to win someone’s heart, you better be prepared to accept that this will now be your way of life forever.
+ - Why should a man say what he feels, when a women is going to ignore what he says?
+ - My mother isolated herself from all family and friends for some 20 years. And never met her grandchild, my son.
+ - There are so many responsible, nice, kind guys out there. Why marry a fixer-upper?
+ - The feeling of your baby taking nourishment from your body for the first time is amazing, and it remains the most touching moment of my life.
+ - Situations reveal who we are, they don’t create who we are.
+ - Everyone has the right to go on a vacation without kids if they want.
+ - I’m quite amused by the attempt to excuse not trying harder, by claiming that perfect is not possible; it may not be, but striving toward it as an ideal is! It is in the act of ‘striving’ that we demonstrate character, courage, and conscience.
+ - Children have no reasonable assumption of privacy while they are minors in their parent’s home.
+ - I’m very fond of food. I get hungry, and I like to eat almost all the time.
+ - You guys on the white horses keep trying to save women in distress, not realizing you just end up with a distressed woman.
+ - There are probably more internet hate sites about me than Charles Manson.
+ - If you can’t handle the baggage, you’ll have to get out of the baggage room.
+ - Go do the right thing.
+ - We all get self-centered.
+ - Men are very easy- You treat them well, and they behave right. You don’t treat them well, and they don’t behave right.
+ - That’s your life. Get used to it. Don’t get mad at me- you married him.
+ - Oh, well, there’s a difference between privacy and secrecy.
+ - The worst thing is the world is a defensive my-kid-can’t-do-anything-wrong parent.
+ - If you want a weak man, you might as well marry a woman.
+ - Frankly, too many women treat their husbands as accessories instead of priorities.
+ - If you think positively instead of negatively, you’ll behave better and you’ll feel better.
+ - Principles don’t mean anything until they cost you something.
+ - In the end analysis, all we have is who we are and the way we have lived our lives.
+ - Venting every feeling isn’t mature. Learning to deal with uncomfortable and unpleasant feelings is an important aspect of maturity.
+ - The TEN Commandments are not prefaced with “If you’re in the mood”.
+ - There’s no battered woman alive who didn’t know in advance that the man was bad.
+ - Everyone’s related to someone who robbed a bank or did something.
+ - I’m kind of a jock. I sail, I ride a bike, I hike, I pump iron. I just love to be active.
+ - A woman should always be more concerned with standing up for what is right than making sure everyone ‘likes’ her.
+ - In the history of humanity, women have never been as oppressed as they are right now. Men can make babies with us and then walk away.
+ - Your mother doesn’t own you. Your father doesn’t own you. You own you.
+ - Children are not a right, they are a privileged obligation.
+ - My father was right. Unfortunately, he died before I could tell him.
+ - The ultimate quality of your life is not in your resume, but in the minds and hearts of those you mean something to because you gave yourself to them.
+ - Depth has one address: fidelity in love...
+ - It is typical of women to fester and ferment over disappointments, slights, annoyances, angers, etc.
+ - Probably more than half of the people who go into psychology do so because they need help. I think it’s their way of feeling that they have control.
+ - Men are very easy to get along with- they just want to come home to something pleasant.
+ - Isn’t it nice to know that you can put a worm on your hook and get a fish all charged up?
+ - For a long time, I was a career woman and that was it.
+ - Because it’s possible to do, and you have the right to do it, doesn’t mean it’s the right thing to do.
+ - I want to regain my First Amendment rights.
+ - Nothing is irresistible. There is no feeling that is irresistible.
+ - If you’re a liberal, anything you say is protected. If you’re a conservative, anything you say is hateful.
+ - When you’re around people, act like you like them.
+ - Some people seem to see compassion as being mushy.
+ - Behavior is a symptom. If you look at it like a problem, you’re just going to make a judgment. If you look at like a symptom, you can do something about it.
+ - I spent two yours of my life being anorexic, but I would never dream of throwing up – my God!
+ - I haven’t yelled at anybody today. It’s been a slow day.
+ - People are like nations-if you help them a lot, they hate you.
+ - You have the power. You are the magic wand.
+ - Well, I’m a Harley Babe.
+ - Guys behave like they’re naive, but they’re not stupid. They know what’s going on.
+ - Never miss an opportunity to look like a nice guy.
+ - I think it was much better when you got on your horse and rode two miles to talk to your neighbor.
+ - It’s a tough world out there, and women can’t afford to be weenies.
+ - Language is our way of communicating what we want and who we are.
+ - A lot of people do what we call neurotic things in order to repair their childhood.
+ - When we’re hurting, it does not give us a license to hurt others.
+ - You’ve touched people and known it. You’ve touched people and never may know it. Either way, you have something to give. It is in giving to one another that each of our lives becomes meaningful.
+ - Women have to be controlled- we’re just too emotional.
+ - You can’t marry boys and expect them to be men – and you can’t massage them into being men.
+ - That which is horrifying to you don’t do to anybody else.
+ - The path to solid, supportive, healthy relationships, self-respect, and a quality life starts with the usually painful decision to do the Right Thing.
+ - Marriage is not just about love and living together. It’s much more complicated, especially when you are going to be making a family.
+ - It’s not the worst thing in the world to look different from everyone else.
+ - Did you hear what I said? It was very profound.
+ - There is no movement without our own resistance.
+ - We, as human beings, should wish to be loved and embraced for our character, respected and relied on for our courage, and trusted for our conscience.
+ - I think I average one good sulk a week.
+ - People from the most horrendous of childhoods can have good lives, but it comes down to a very seemingly simple word. ‘Choice.’
+ - Too many people make the past their identity and spend the rest of their lives accumulating sympathy for their past pain.
+ - I was in college in the ’60s, and the whole feminist movement had swept me up.
+ - Make decisions from the strong part of you, not the weak.
+ - Arguing with a man doesn’t work.
+ - I pretty much preach, teach and nag.
+ - Make believe I’m right.
+ - Sometimes guys avoid things they don’t know how to do well.
+ - Going into therapy doesn’t guarantee poop on toast.
+ - Distance lasts a day. But Reality lasts a lifetime.
+ - My way of thinking is better than yours.
+ - There is no such thing in life as no pain and no disappointment.
+ - This is all you have. This is not a dry run. This is your life. If you want to fritter it away with your fears, then you will fritter it away, but you won’t get it back later.
+ - The commandment to honor parents was given to ensure that the elderly, although they may not feel wanted by family or society, are still given their appropriate reward.
+ - Research indicates that most women want their man to earn more than they do.
+ - We can be negative and cynical or we can be charged and hot wored to find a way through it, over it, around it under it.
+ - Other people do not owe me their availability.
+ - There’s nothing wrong with blame, if blame is due.
+ - It doesn’t matter how we were raised. We become the person we choose to be.
+ - I’m involved in so many different things, and there are so many profound reactions to what I do because I am big counter culture.
+ - Never do anything that you aren’t prepared to face the true consequences of.
+ - I’m not good at debating – I’m much better at pontificating.
+ - Listen carefully, because I don’t repeat myself – and if I do, I get testy.
+
+152 quotes

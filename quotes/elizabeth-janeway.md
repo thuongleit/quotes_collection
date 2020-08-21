@@ -1,0 +1,35 @@
+ - If there’s nothing more powerful than an idea whose time has come, there is nothing more ubiquitously pervasive than an idea whose time won’t go.
+ - Humor is an antidote to isolation.
+ - We haven’t come a long way, we’ve come a short way. If we hadn’t come a short way, no one would be calling us baby.
+ - If every nation gets the government it deserves, every generation writes the history which corresponds with its view of the world.
+ - Growing up human is uniquely a matter of social relations rather than biology. What we learn from connections within the family takes the place of instincts that program the behavior of animals; which raises the question, how good are these connections?
+ - This is the power of the powerful to define, to structure, to say, ‘This is the way the world works.’ It’s enormous power. Among the powers of the weak, I think the first one is the power not to believe the powerful.
+ - Power is the ability not to have to please.
+ - Today, what most people live in, or with, is the less-than-nuclear family. Working fathers are absent from home during most of the day, the children are schooled outside it, and practically all women who work for money must go outside to earn their living.
+ - I admire people who are suited to the contemplative life. They can sit inside themselves like honey in a jar and just be.
+ - Powerful people get away with things. That’s one way to demonstrate their difference from the rest of us.
+ - We older women who know we aren’t heroines can offer our younger sisters, at the very least, an honest report of what we have learned and how we have grown.
+ - Love between women is seen as a paradigm of love between equals, and that is perhaps its greatest attraction.
+ - We put up with a lot to be saved from chaos. We always have.
+ - Can one consider controversy without falling into it?
+ - By setting the passenger seat of my car far back, and opening the glove compartment, I nestle in a very large sheet of thick fiberboard. It’s big enough to hold a table easel, my big palette and a water container. Winter is not going to lock me indoors!
+ - We are in a double bind. We are expected to feel inferior not only as women, but because we are old.
+ - If one is going to change things, one has to make a fuss and catch the eye of the world.
+ - I have a problem about being nearly sixty: I keep waking up in the morning and thinking I’m thirty-one.
+ - The greatest barrier to women’s advance in the public world of action has been their acquiescence in the idea that they don’t belong out there.
+ - I am not sure how many “sins” I would recognize in the world. Some would surely be defused by changed circumstances. But I can imagine none that is more irredeemably sinful than the betrayal, the exploitation, of the young by those who should care for them.
+ - Great writers leave us not just their works, but a way of looking at things.
+ - As long as mixed grills and combination salads are popular, anthologies will undoubtedly continue in favor.
+ - Mythology is like gravity, inconvenient at times, but necessary for cohesion.
+ - The maxims for success laid out by the powerful are never much good as guides for those who aren’t powerful.
+ - We don’t get offered crises, they arrive.
+ - Poets are the leaven in the lump of civilization.
+ - If history is really relevant in today’s world, the proposition doesn’t command much respect. Perhaps the past is a different country, but if so no one much wants to travel there.
+ - Creeds and causal systems have argued with each other for millennia, and even so we and our ancestors have managed to live in a world of differing opinions. Philosophical disputes don’t often affect the price of fish or wine.
+ - Few cultures have not produced the idea that in some past era the world ran better than it does now.
+ - Mistrust must be acted on, and effective action by the ruled is not solitary and singular, but joint and repeated.
+ - The idea of power as a possession, whose asset can be banked and drawn on when needed, comes easy to a society whose rules grow out of the methods of finance capitalism.
+ - The common impulse is not to sustain a marriage by finding satisfaction elsewhere, but to end the marriage and set up a new one which will provide the comfort lacking in the first.
+ - Whatever class and race divergences exist, top cats are tom cats.
+
+33 quotes

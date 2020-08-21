@@ -1,0 +1,92 @@
+ - There’s simply no polite way to tell people they’ve dedicated their lives to an illusion.
+ - The secret of happiness is: Find something more important than you are and dedicate your life to it.
+ - What you can imagine depends on what you know.
+ - There are no good reasons to believe in god.
+ - YES we have a soul but it’s made of lots of tiny robots.
+ - The earth has grown a nervous system, and it’s us.
+ - I look around the world and see so many wonderful things that I love and enjoy and benefit from, whether it’s art or music or clothing or food and all the rest. And I’d like to add a little to that goodness.
+ - There may be things that are completely unknowable to us, so we must be careful not to treat the limits of our knowledge as sure guides to the limit of what there is.
+ - It’s a no win situation. It’s a mug’s game. The religions have contrived to make it impossible to disagree with them critically without being rude. They play the hurt feelings card at every opportunity.
+ - A scholar is just a library’s way of making another library.
+ - Religion is defined as social systems whose participants avow a supernatural agent or agents whose approval is to be sought.
+ - The idea that God is a worthy recipient of our gratitude for the blessings of life but should not be held accountable for the disasters is a transparently disingenuous innovation of the theologians.
+ - Go ahead and believe in God, if you like, but don’t imagine that you have been given any grounds for such a belief by science.
+ - Churches have given us great treasures such as music and architecture. Whether that pays for the harm they have done is another matter.
+ - There is no such thing as philosophy-free science, just science that has been conducted without any consideration of its underlying philosophical assumptions.
+ - Love is blind, as they say, and because love is blind, it often leads to tragedy: to conflicts in which one love is pitted against another love, and something has to give, with suffering guaranteed in any resolution.
+ - In the long run I certainly hope information is the cure for fanaticism, but I am afraid information is more the cause than the cure.
+ - Religions have depended on the relative isolation and ignorance of their flocks, forever and this is all breaking down.
+ - The evidence for evolution pours in, not only from geology, paleontology, biogeography, and anatomy, but of course from molecular biology and every other branch of the life sciences.
+ - I am a philosopher, not a scientist, and we philosophers are better at questions than answers.
+ - I don’t myself need that role for God. My view is that creation itself, the universe itself, is the most wonderful thing deserving awe and respect. And that satisfies me as my substitute for God.
+ - People ache to believe that we human beings are vastly different from all other species – and they are right! We are different. We are the only species that has an extra medium of design preservation and design communication: culture.
+ - You don’t get to advertise all the good that your religion does without first scrupulously subtracting all the harm it does and considering seriously the question of whether some other religion, or no religion at all, does better.
+ - Not a single one of the cells that compose you knows who you are, or cares.
+ - There are no forces on this planet more dangerous to all of us than the fanaticisms of fundamentalism.
+ - The mind is the effect, not the cause.
+ - In order to make a perfect and beautiful machine, it is not requisite to know how to make it. All the works of human genius can be understood in the end to be products of a cascade of generate-and-test procedures that are, at bottom, algorithmic and mindless.
+ - If nobody cares, then it doesn’t matter what happens to flowers.
+ - Cost is always an object – the second law of thermodynamics sees to that.
+ - The best thing about saying thank goodness in place of thank God this that here really are lots of ways of repaying your debt of goodness – by setting to create more of it, for the benefit of those to come.
+ - The chief trick to making good mistakes is not to hide them-especially not from yourself.
+ - If the best the roboticists can hope for is the creation of some crude, cheesy, second-rate, artificial consciousness, they still win.
+ - Now that mobile phones and the internet have altered the epistemic selective landscape in a revolutionary way, every religious organisation must scramble to evolve defences or become extinct.
+ - Natural selection is not gene centrist and nor is biology all about genes; our comprehending minds are a result of our fast evolving culture.
+ - Human consciousness is just about the last surviving mystery.
+ - I think religion for many people is some sort of moral viagra.
+ - No matter how smart you are, you’re smarter if you take the easy ways when they are available.
+ - I think many people are terribly afraid of being demoted by the Darwinian scheme from the role of authors and creators in their own right into being just places where things happen in the universe.
+ - The problem is that no ethical system has ever achieved consensus. Ethical systems are completely unlike mathematics or science. This is a source of concern.
+ - You can’t get through seminary and come out believing in God!
+ - Some cultural phenomena bear a striking resemblance to the cells of cell biology, actively preserving themselves in their social environments, finding the nutrients they need and fending off the causes of their dissolution.
+ - The juvenile sea squirt wanders through the sea searching for a suitable rock or hunk of coral to cling to and make its home for life. For this task, it has a rudimentary nervous system. When it finds its spot and takes root, it doesn’t need its brain anymore so it eats it!
+ - True, you don’t have to be religious to be crazy, but it helps.
+ - Some of the greatest, most revolutionary advances in science have been given their initial expression in attractively modest terms, with no fanfare.
+ - To put it bluntly but fairly, anyone today who doubts that the variety of life on this planet was produced by a process of evolution is simply ignorant – inexcusably ignorant, in a world where three out of four people have learned to read and write.
+ - Problems in science are sometimes made easier by adding complications.
+ - In the beginning, there were no reasons; there were only causes. Nothing had a purpose, nothing has so much as a function; there was no teleology in the world at all.
+ - True, you don’t have to be religious to be crazy, but it helps. Indeed, if you are religious, you don’t have to be crazy in the medically certifiable sense in order to do massively crazy things.
+ - Most people in the West who say they believe in God actually believe in belief in God.
+ - Life itself is just a thin coat of paint on the planet, and we hold the paintbrush.
+ - The chief trick to making good mistakes is not to hide them – especially not from yourself. Instead of turning away in denial when you make a mistake, you should become a connoisseur of your own mistakes, turning them over in your mind as if they were works of art, which in a way they are.
+ - The only meaning of life worth caring about is one that can withstand our best efforts to examine it.
+ - Words are memes that can be pronounced.
+ - Consciousness is cerebral celebrity – nothing more and nothing less. Those contents are conscious that persevere, that monopolize resources long enough to achieve certain typical and “symptomatic” effects – on memory, on the control of behavior and so forth.
+ - It stands to reason that we love chocolate cake because it is sweet. Guys go for girls like this because they are sexy. We adore babies because they’re so cute. And, of course, we are amused by jokes because they are funny. This is all backwards. It is. And Darwin shows us why.
+ - A child raised on a desert island, alone, without social interaction, without language, and thus lacking empathy, is still a sentient being.
+ - We need to let our children grow up to face the world armed with knowledge, with much more knowledge than we ourselves had at their age. It is scary, but the alternative is worse.
+ - Human freedom is not an illusion; it is an objective phenomenon, distinct from all other biological conditions and found in only one species – us.
+ - Keep Darwinian thinking out of cosmology, out of psychology, out of human culture, out of ethics, politics, and religion!
+ - As every scuba diver knows, panic is your worst enemy: when it hits, your mind starts to thrash and you are likely to do something really stupid and self-destructive.
+ - Sometimes you don’t just want to risk making mistakes; you actually want to make them – if only to give you something clear and detailed to fix.
+ - Wherever there is a design that is highly successful in a broad range of similar environments, it is apt to emerge again and again, independently – the phenomenon known in biology as convergent evolution. I call these designs ‘good tricks.’
+ - I am inclined to think that nothing could matter more than what people love. At any rate, I can think of no value that I would place higher. I would not want to live in a world without love.
+ - Homunculi are bogeymen only if they duplicate entire the talents they are rung in to explain. If one can get a team or committee of relatively ignorant, narrow-minded, blind homunculi to produce the intelligent behaviour of the whole, this is progress.
+ - Words have a genealogy and it’s easier to trace the evolution of a single word than the evolution of a language.
+ - Atheism, a term which will, I’m sure, eventually become as unnecessary as round-earthism...
+ - The haven all memes depend on reaching is the human mind, but a human mind is itself an artifact created when memes restructure a human brain in order to make it a better habitat for memes.
+ - An inert historical fact is any fact about a perfectly ordinary arrangement of matter in the world at some point in the past that is no longer discernible, a fact that has left no footprints at all in the world today.
+ - We have had plenty of atheist presidents; they just wouldn’t admit it.
+ - In short, we need to recover the courage we celebrate in our heroes, and in particular, the courage to tolerate, for the sake of a free society, a level of risk we hardly ever imagined in the past.
+ - If I know better than you know what I am up to, it is only because I spend more time with myself than you do.
+ - What you can imagine depends on what you know. Philosophers who know only philosophy consign themselves to a janitorial role in the great enterprises of exploration that are illuminating the mysteries of our lives.
+ - I even agree that the concept of god helps some people lead better lives. That does happen. Don’t ever forget it. I just think there are better ways to help people lead better lives.
+ - We live in a world that is subjectively open. And we are designed by evolution to be “informavores”, epistemically hungry seekers of information, in an endless quest to improve our purchase on the world, the better to make decisions about our subjectively open future.
+ - I think that what one can see from a Darwinian account is how the addition of culture in our species turns us into a very special sort of animal, an animal that can be a moral agent in a way that no other animal can be.
+ - Thanks to technology, what almost anybody can do has been multiplied a thousandfold, and our moral understanding about what we ought to do hasn’t kept pace.
+ - Darwin’s idea of natural selection makes people uncomfortable because it reverses the direction of tradition.
+ - I’m the guy who reputedly denies that people experience colors or pains, and thinks that thermostats think – just ask my critics.
+ - People are afraid of being more ignorant than their children – especially, apparantly, their daughters.
+ - Reasons for declaring belief is not are not the same as reasons for believing in god.
+ - How good are the best musical imaginations? Can a trained musician, swiftly reading a score, tell just how that voicing of dissonant oboes and flutes over the massed strings will sound?
+ - We should get used to the idea that we’ll probably never be able to find – and confirm – a good explanation of the ultimate origin of the universe, though I see no reason to believe that we can’t press much further on this question than we have managed to date.
+ - Try to acquire the weird practice of savoring your mistakes, delighting in uncovering the strange quirks that led you astray. Then, when you have sucked out all the goodness to be gained from having made them, you can cheerfully forget them and go on to the next big opportunity.
+ - Whereas religions may serve a benign purpose by letting many people feel comfortable with the level of morality they themselves can attain, no religion holds its member to the high standards of moral responsibility that the secular world of science and medicine does!
+ - Imagination is cheap as long as you don’t have to worry about the details.
+ - Minds are in limited supply, and each mind has a limited capacity for memes, and hence there is considerable competition among memes for entry in as many minds as possible.
+ - The way evolution always discovers reasons is by retroactive endorsement.
+ - It is not so much that we, using our brains, spin our yarns, as that our brains, using yarns, spin us.
+ - The only answer to the endless chains of why, why, why is that the alternatives died.
+ - I don’t think there is any religious revival. I think what we are hearing, the furor, is merely the hysterical response of the churches the handwriting on the wall that they are seeing.
+
+90 quotes

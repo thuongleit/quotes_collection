@@ -1,0 +1,45 @@
+ - The bravest thing I ever did was continuing my life when I wanted to die.
+ - Art is the only thing that helps people stay alive, and it is the only thing that has allowed people to create joy in this insane, suppressive universe. And art is the only thing that they can’t get rid of. They’ve tried, but ultimately they can’t stamp it out.
+ - My focus, my life, my world is now. You just can’t plan the future.
+ - Adults are just children sometimes. But evil, hurt children.
+ - Dreams, they’re what sets us apart from being mere a brain and a body.
+ - I like people like Tina Turner, Chrissie Hynde, Debbie Harry, and Stevie Nicks; you only hear that person in their voice, they sound like nobody else.
+ - The old footage of my dad, I always knew we were cut from the same cloth, because my dad was such a renegade and always marched to the beat of his own drum. To see where we were both dancing and being silly together, it’s too beautiful for words. I was really happy to have that.
+ - I don’t know what’s more nerve-wracking, job insecurity or job security. There’s opportunities and things you compromise with both. When I had endless freedom of schedule, or when I commit to a movie for two months, then I could manage my music and go on the road.
+ - Being beautiful can be a curse, especially if you want to be an artist and create.
+ - Being wild can be wearing a silly hat. Being wild can be dancing weird. Being wild can be shooting people. What do I think being wild is? Nothing. Actually, the whole world is wild. Everything is wild.
+ - I don’t want to be famous as a movie star and have the whole world love me, I want to be a creative actress.
+ - Like everybody I have many different sides.
+ - Music is kind of my everything.
+ - Nobody would ever think, “Oh, get into acting so you can live the straight and narrow path,” but it gave me a sense of discipline and focus.
+ - Sometimes I can be on a cloud and then two hours later feel really small.
+ - My main objective was finding my individuality as a vocalist.
+ - I was like twelve or something, when you first kiss a guy and you see the way the guy reacts, how they get really excited, or whatever. And I’m perceptive, so I think, “Ah, jeez, is that something that I’m able to do?”
+ - In acting, you have a writer, a director, a character – you’re working through being another person – and the irony I always tell people is when I acted early on as a teenager, it actually kept me out of trouble.
+ - As actors, we want to go find the humanity and make it more nuanced and fill in the colors, rather than just being suit people who crack cases, ’cause they aren’t that.
+ - I don’t make an effort to be sloppy. I just don’t consider a perfect hairdo and a perfect face to be beautiful. If I had my way I’d dress myself and do my own makeup for magazine shoots.
+ - What’s exciting to me is the live show medium itself; it’s the last untouchable medium. I don’t think it will ever go away. It has gone on from the beginning of time with little performances around a campfire, I’d imagine, like cavemen doing some chants, rhythm, and sounds, beating on things.
+ - Understanding human nature. Perception. That’s how I see acting – perception and communication.
+ - I’m always revving the engine. In this industry, there are so many twists and turns. You never have it made.
+ - I can write a song in the back of the bus, where I am right now, or in my living room, and I can perform it that night and have an instant reciprocal exchange – an emotional, impactful exchange – and it’s a less technical medium. It’s a pure expression from my soul to other souls.
+ - The worst thing you can do to a kid is tell them that their dreams are invalid.
+ - All the musicians that I know want to act.
+ - I kind of imagine myself at eighty, a cat lady.
+ - With movies and TV, storytelling, it’s a different medium. I really love it, but I’m one part of many, many pieces of that puzzle and a lot of it is out of my control.
+ - The thing is, I want to play real characters and not all girls can be pretty. The thing is, you get these girls who say ‘I’m a character actor’ then you see them in a role and nothing has really changed but the outfit.
+ - I think I can be beautiful with all the little stuff done, and I can be ugly. A lot of attractive actresses can’t be ugly.
+ - I never think I have success even when I have it, for better or for worse.
+ - I’m less of a straight-up, traditional vocalist.
+ - I collect clothes-they keep building and building. I buy them instead of having them washed.
+ - I knew I could live no other way, that the one thing I wanted was to act and do it well.
+ - When I do a film, usually I work from my director. That’s my boss. The director is interpreting the writer’s vision, and we all interpret it, and they create their own vision as well.
+ - Success is a nice by-product but what I really want is work.
+ - Rock’n’roll to me is a rebellion against the sterile pedestal culture of movies.
+ - I know what I’m doing. And I even know when I don’t know what I’m doing. Then there are people who don’t want to know that you know what you’re doing.
+ - All that schooling never prepares you for the reality of life.
+ - As early as when I was five or six I wanted to perform.
+ - Because I’m not perfect looking, I get to play better roles.
+ - I think early on I avoided singing because it was so personal and I didn’t know how to sit in that intimacy. I wrote songs when I was little and I wrote a journal, but I don’t think I knew how to let that truth come out yet.
+ - What I get in rock ‘n’ roll that I don’t get in movies is that connection with people. With music it’s instantaneous, and just to watch people light up, it’s really amazing. I love that connection.
+
+43 quotes

@@ -1,0 +1,51 @@
+ - Pay attention to what you’re paying attention to.
+ - Attention is a limited resource, so pay attention to where you pay attention.
+ - Any virtual community that works, works because people put in some time.
+ - You can’t have an industrial revolution, you can’t have democracies, you can’t have populations who can govern themselves until you have literacy. The printing press simply unlocked literacy.
+ - Democracy is not just voting for your leaders; it’s really premised upon ordinary citizens understanding the issues.
+ - Openness and participation are antidotes to surveillance and control.
+ - Knowing of how to make use of online tools without being overloaded with too much information is, like it or not, an essential ingredient to personal success in the twenty-first century.
+ - People’s social networks do not consist only of people they see face to face. In fact, social networks have been extending because of artificial media since the printing press and the telephone.
+ - Finding a name for something is a way of conjuring its existence, of making it possible for people to see a pattern where they didn’t see anything before.
+ - You can’t assume any place you go is private because the means of surveillance are becoming so affordable and so invisible.
+ - The Amish communities of Pennsylvania, despite the retro image of horse-drawn buggies and straw hats, have long been engaged in a productive debate about the consequences of technology.
+ - I think e-mail petitions are an illusion. It gives people the illusion that they’re participating in some meaningful political action.
+ - A forecasting game is a kind of simulation, a kind of scenario, a kind of teleconference, a kind of artifact from the future – and more – that enlists the participants as ‘first-person forecasters.’
+ - Mobile phones amplify human talents for cooperation.
+ - Mobile communications and pervasive computing technologies, together with social contracts that were never possible before, are already beginning to change the way people meet, mate, work, war, buy, sell, govern and create.
+ - Whenever a technology enables people to organize at a pace that wasn’t before possible, new kinds of politics emerge.
+ - If, like many others, you are concerned social media is making people and cultures shallow, I propose we teach more people how to swim and together explore the deeper end of the pool.
+ - Young voters are crucial. The trend over recent years has been for them to drift away. So anything that gets young voters interested in the electoral process not only has an immediate effect, but has an effect for years and years.
+ - Markets are as old as the crossroads. But capitalism, as we know it, is only a few hundred years old, enabled by cooperative arrangements and technologies, such as the joint-stock ownership company, shared liability insurance, double-entry bookkeeping.
+ - Communicating online goes back to the Defense Department’s Arpanet which started in 1969. There was something called Usenet that started in 1980, and this gave people an opportunity to talk about things that people on these more official networks didn’t talk about.
+ - We must take responsibility for educating ourselves. Being part of a ‘smart mob’ doesn’t guarantee that you’re a responsible participant or collaborator.
+ - The two parts of technology that lower the threshold for activism and technology is the Internet and the mobile phone. Anyone who has a cause can now mobilize very quickly.
+ - We are moving rapidly into a world in which the spying machinery is built into every object we encounter.
+ - Its not a global village, but we’re in a highly interconnected globe.
+ - Personal computers were created by some teenagers in garages because the, the wisdom of the computer industry was that people didn’t want these little toys on their desk.
+ - The AP has only so many reporters, and CNN only has so many cameras, but we’ve got a world full of people with digital cameras and Internet access.
+ - I’ve spent my life alone in a room with a typewriter.
+ - In the broad sense design means thinking about what the function or purpose of things or processes are, and translating that into action.
+ - Humans are humans because we are able to communicate with each other and to organize to do things together that we can’t do individually.
+ - Craigslist is about authenticity. Craig has paid his dues, and people respect him.
+ - It’s kind of astonishing that people trust strangers because of words they write on computer screens.
+ - Mindfulness means being aware of how you’re deploying your attention and making decisions about it, and not letting the tweet or the buzzing of your BlackBerry call your attention.
+ - Any disease support community is a place of deep bonds and empathy, and there are thousands if not tens of thousands of them.
+ - Flash mobbing may be a fad that passes away, or it may be an indicator of things to come.
+ - You can’t pick up the telephone and say, ‘Connect me with someone else who has a kid with leukemia.’
+ - One thing we didn’t know in 1996 is that it’s very, very difficult, if not impossible, to sustain a culture with online advertising.
+ - Advertising in the past has been predicated on a mass market and a captive audience.
+ - By the time you get a job, you know how to behave in a meeting or how to write a simple memo.
+ - I think there are two aspects to smart environments. One is information embedded in places and things. The other is location awareness, so that devices we carry around know where we are. When you combine those two, you get a lot of possibilities.
+ - Humans have lived for much, much longer than the approximately 10,000 years of settled agricultural civilization.
+ - Technology no longer consists just of hardware or software or even services, but of communities. Increasingly, community is a part of technology, a driver of technology, and an emergent effect of technology.
+ - Inexpensive phones and pay-as-you go services are already spreading mobile phone technology to many parts of that world that never had a wired infrastructure.
+ - A phone tree isn’t an ancient form of political organizing, but you have to call every person.
+ - Like most modern Americans, I assume individuality is not only a fundamental value, but a goal in life, an art form.
+ - I’m somebody who seems to stumble into things 10 or 20 years before the rest of the world does.
+ - Some digital natives are extraordinarily savvy.
+ - Journalists don’t have audiences – they have publics who can respond instantly and globally, positively or negatively, with a great deal more power than the traditional letters to the editor could wield.
+ - A lot of people use collaborative technologies badly, then abandon them. They aren’t ‘plug-and-play.’ The invisible part is the social skill necessary to use them.
+ - It’s more important to me to get an e-mail that says, ‘I saw your page and it changed my life,’ than how many hits the page got.
+
+49 quotes

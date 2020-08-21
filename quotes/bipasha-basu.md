@@ -1,0 +1,42 @@
+ - I have blind trust in people. Even if that ends up hurting me, I won’t change. I will go on trusting people because that’s the only way I know to love someone.
+ - If a girl wears a shirt and a skirt, does she become more sensuous? I think a girl in a sari is more sensuous than a girl in a skirt. In my opinion, a wet sari is the most sensuous.
+ - Nothing can save something that is not meant to be, no matter how hard you try.
+ - For me, modelling has been an advantage because if I hadn’t been modelling, I would never have been spotted as an actress. I didn’t have any intention of becoming an actress.
+ - Yes, exes can be good friends, but after a certain time. Though no break-up is a good break-up, time heals everything, including broken friendships. It also depends on the kind of people they are, their mindsets and the reasons for the break ups.
+ - You can’t decide whom to fall in love with. It just happens.
+ - I am a simpleton at heart. In my personal life, I don’t wear makeup.
+ - Whenever I get married, it will be a Bengali wedding. If I won’t have a Bengali wedding, my mother won’t come. She has warned me. So, I am going to have a Bengali wedding for sure.
+ - You’re born single, you die single, but why not being in a relationship is some special ‘single’ status, I don’t understand. Life is less stress being single, I have to admit.
+ - I’m active even on bad days; it’s tough to pin me down. People ask me if I’m a morning or night person. I’m an all-the-time person. I like drinking coffee, but I do it with lots of milk because my energy levels are high even without caffeine. You could call me Obelix, except I don’t have a belly.
+ - I am a positive person. I am not cynical. If you are born in this world, no matter who you are, negative things will happen. If you aren’t positive as a person, you’ll be very unhappy. It’s extremely important to be positive, to laugh, to be happy, to accept life as it comes.
+ - I keep my distance from politics. Lots of money has been offered to me for campaigning over the years, and I have always refused. I used to be very politically aware and very opinionated, but I don’t want to involve myself.
+ - My philosophy towards life is to enjoy it to the fullest and have fun. I am one of those ‘laugh-out-loud’ kinds. I am quirky, yet witty.
+ - I can’t let the baggage of my private life get into work. Artists are more fragile than normal people. But I know that I am a role model for zillions of people, so no matter how deep you are hurting, you need to come out strong.
+ - I believe everything negative that happens in your life is for a positive reason. If your heart breaks, you know that you are a human being and it happens. But you can’t mope over it. There’s only one life. You better get on ahead and fast. Fast enough not to let your past ever catch up with you.
+ - I was a lady gunda in school. Everyone was scared of me, and I was really short and round.
+ - I’m really bad at taking compliments, but whenever I get them, I tell myself, ‘Way to go, girl’ and move on.
+ - I am so pathetic with machines in real life, it’s not a joke. I’d rather walk, or even run, than take the car out myself. I like to be driven around. Yes, I like fancy cars, and fancy bikes, too. It’s my dream to learn how to ride one myself, but for now, I am content being driven around.
+ - It was Vikram Bhatt and ‘Raaz’ that got me interested in the medium of cinema. Before that, I was like any other youngster dabbling with various things – modelling, films – without a definite direction or focus. Now that I’m working with all of them, life has come full circle for me.
+ - If I want to be the sexy Bipasha Basu, then I’ll do a song here or a glam role there. But I want to be part of films that are watched, films that earn money and are new age, with author-backed roles.
+ - I enjoy the TV series ‘Dexter,’ where there’s a reason for every kill. Quentin Tarantino is a favourite, and a ‘Kill Bill’ action-packed movie would be up my street. I’d love to be India’s first scream queen!
+ - I am so enriched because so much has happened in my life. The way I can express myself is because of the life I have led. It’s only when you experience life can you emote it.
+ - I know I look good. The regular adjectives that come my way – sexy, hot, dusky, bong bombshell I love them.
+ - I actually wanted to be a doctor. But doing all those horrid rat dissections made me faint. I studied science till the 12th standard and later took up commerce. I was planning to do chartered accountancy, but fate had something else in store for me.
+ - As a child, I was a brat, and my parents didn’t know how to control me. So they told me ghost stories, which stayed with me. I am still petrified of darkness and being alone.
+ - Shakira is a talented singer, and I am a huge fan of her.
+ - When things have gone really wrong in my life, I’ve cried like a child. I have really, really cried. I cry it out. Two-three days I cry, and then I’m like, enough, time to deal with reality and figure a way out. This is the way I have dealt with everything.
+ - As women, we tend to take the easy way out in showbiz. I have done movies where all I did was look pretty in every frame.
+ - Kissing onscreen is the worst thing in the world. I’m OK with lovemaking scenes, but I hate kissing.
+ - I am very proud of my role in ‘Singularity.’ It pushed me into the territory of period romance. It was a very emotional and challenging role.
+ - I want to do entertaining films, where a woman gets the respect of being an actor.
+ - I would never put on 20 kilos and mess up my system because a role demands it. Hindi cinema doesn’t offer you roles that get you an Oscar, anyway. Tom Hanks can do it in Hollywood; not us.
+ - For the longest time, Indian women have been okay with being curvy. But I think the modern Indian woman needs to get toned. I don’t endorse being thin. Anorexia and bulimia are a reality in India because everybody wants to be thin.
+ - Unless I work with Shah Rukh my career cannot be complete. I can’t hang my boots till that happens.
+ - I have been called ‘Bongshell’ the day I stepped into showbiz. So, any adjective coming my way, I take it positively. Sometimes it’s also entertaining, but I don’t feel bad about it. I’m a proud woman.
+ - I have done some tacky films, but then they were all my decisions, and I’m happy to have made those because they have made me who I am.
+ - In India, we kind of concentrate only on weight loss. I want to teach people that it is very important to be strong and fit, rather than just thin.
+ - I want to do a movie on sports – like a movie on a racer or a marathon runner – as I feel I’ll fit that bill perfectly.
+ - I do a film if it interests me, has a connect with the audience and some entertainment value. The rest doesn’t matter.
+ - You don’t have to do offbeat films to prove that you can act. I have done it but only to prove myself that I can fit convincingly into every kind of films. I want to do the 100 crore film where the hero does all the work, and I get to relax.
+
+40 quotes

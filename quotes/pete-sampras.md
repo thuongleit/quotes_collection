@@ -1,0 +1,83 @@
+ - I did it my way, and I have no regrets when I look back on my career that it was just a big focus for me.
+ - When you go through certain moments of your career and you’re struggling, it just takes time. Time heals, when you’re a little bit down.
+ - I never wanted to be the great guy or the colorful guy or the interesting guy. I wanted to be the guy who won titles.
+ - I’ve got a great wife, a great life.
+ - Choking is being in a position to win, and then experiencing some critical failure of nerve or spirit. That never happened to me. And I can’t help but think it was because I was never afraid to lose.
+ - I hate to lose, and I do whatever I can to win, and if it is ugly, it is ugly.
+ - Baseball is America’s pastime, and that record is absolutely huge in the States.
+ - I didn’t have a big fat Greek wedding, but I have a lot of fat Greek friends.
+ - It’s one-on-one out there, man. There ain’t no hiding. I can’t pass the ball.
+ - I’m enjoying my retirement, enjoying my life. I have two kids and a lot of my time is spent chasing these two animals.
+ - The future is flying home. That’s the immediate future. But long-distance future, I plan on being back. I’m not going to end my time here with that loss.
+ - Tennis obviously isn’t as popular as baseball in the States.
+ - Where I fall down is my short game. I don’t practice enough, and when I have to take a half swing from 50 yards out, that’s trouble.
+ - I can’t just wake up and watch TV and do nothing. I need a day off working out, seeing the wife, play a little golf, see my kids.
+ - Winning is about taking your opponent’s heart out and squeezing it until all the blood has come out, even the very last drop. There are no prizes for a funny loser.
+ - My goal one day is to be in the same sentence as Rod Laver and Ken Rosewall. If I can match them for 10 years, I’d be in their company. They were class acts. That’s what I’d like to be.
+ - I made it look so easy on court all those years. No one realized how hard I had to work. No one realized how much I had to put into it. They underestimated my intensity.
+ - The only person that I have met, that I have ever been in awe of, is Eddie Vedder.
+ - It’s not my place to tell you whom to vote for, to take any political stand, to tell you what religion to believe in. I’m an athlete. I can influence certain things, but when I see other athletes and celebrities telling you whom to vote for, I actually get a bit offended.
+ - There should be more of an off-season in the game. I think you need to have less tournaments, more of a break at the end of the year so guys can recover.
+ - Anybody who has played sports and says they have never choked is lying to you.
+ - I don’t look so much for tips. But when they interview a Nicklaus or a Palmer, I’m all ears. I listen to guys who have done it, been successful for years.
+ - By putting pressure on myself to develop a great game, I had less pressure to win. These days, I tell kids that the way I grew up, it wasn’t about winning. It was about playing well, about playing the “right” way. That approach helped me enjoy the game and develop mine to its maximum potential.
+ - In tennis, you can make a couple of mistakes and still win. Not in golf. I played three rounds in that Tahoe event, and I was drained. Mentally, not physically.
+ - Success is walking out of here with the title, and anything less is not good enough in my book.
+ - Tennis is seen all around the world; if I am home or anywhere in the country, United States, people will stare.
+ - I may be a step slower than I was before reaching 30, but I’m doing all the right things. I guess there are some guys who would take it easy in the latter part of their careers, but I’m stepping it up.
+ - Once the US Open is over in the States, mainstream America doesn’t really follow tennis, unless you are a true tennis fan.
+ - For so long people have just taken what I do for granted. It is not easy to do year-in, year-out, to win Grand Slams and be No. 1.
+ - I’m not going to give in to the critics. I’m going to stop on my own terms, not on when someone else thinks I should.
+ - Once the fifth set comes, it’s a matter of nerves.
+ - I’ve been into golf, trying to get into the gym to stay somewhat fit. I’ve got two boys now, they’re active kids.
+ - You kind of live and die by the serve.
+ - Players aren’t quite as intimidated by my name.
+ - I guess I get my strength from my legs, which are also important in tennis.
+ - When you come back strong, you are going to have little nagging things that you can usually play through, but every now and again, it is to the point where you can’t play.
+ - I don’t think it really matters, who plays first. Whatever they do, they do.
+ - My goal one day is to be in the same sentence as Rod Laver and Ken Rosewall.
+ - Most of the time after the US Open, it is kind of like you are trying to finish strong. But to do it five years and maybe six is something that has never been done before, so it is a huge challenge.
+ - If I win and play well, then the ranking will take care of itself. Defending points is really not a problem. Just go out and play and not worry about it.
+ - I’m staying in shape, working out.
+ - I could be a jerk and get a lot more publicity, but that’s not who I am.
+ - I let my racket do the talking. That’s what I am all about, really. I just go out and win tennis matches.
+ - When you retire you want to get as far away as possible from the game for a couple of years.
+ - Throughout my career, my mind rarely wandered, and I was never sidetracked by distractions, no matter what I was going through off the court.
+ - I feel much more respected in Europe than I do in the States from the press and from the people. Americans expect me to win every match I play.
+ - Golfers are forever working on mechanics. My tennis swing hasn’t changed in 10 years.
+ - Anything can happen out there on any court.
+ - People know me. I’m not going to produce any cartwheels out there. I’m not going to belong on Comedy Central. I’ll always be a tennis player, not a celebrity.
+ - I still feel like my game is very dangerous. I always will have my serve.
+ - Media access to us is more regulated than in golf.
+ - There’s always one shot that I can rely on when I’m not hitting the ball that well, is my serve.
+ - All I cared about in tennis was winning.
+ - People watched the Masters. It was a huge event. It was at The Garden. Now that it is over here in Europe, it has lost a little bit of popularity in the States.
+ - I don’t look at myself as a historical icon, but the reality of it is, yeah, I am playing for history now.
+ - People wrote me off, but I believed in myself. I got the confidence back, and it grew and grew. I won my first major and my last at the place that changed my life.
+ - The difference of great players is at a certain point in a match they raise their level of play and maintain it. Lesser players play great for a set, but then less.
+ - As long as I feel like I can win majors and contend, I’ll continue to play.
+ - When I tied the record five years in a row, even over in Europe, it wasn’t really talked about. It is disap-pointing because it is one of the toughest things to do in sports.
+ - In tennis, you can make a couple of mistakes and still win.
+ - I’ve always led a pretty simple life, with few extravagances. The money in tennis never drove me.
+ - With this ranking system, the more you play, the better off you are.
+ - I loved Wimbledon and what it meant, but the surface felt uncomfortable. I just didn’t like it, I was a hard-court guy, a Californian kid.
+ - A couple hundred people around, and I’m shaking.
+ - That’s not what I’m looking forward to, just being home and just kind of not really sure kind of what to do with myself.
+ - It is nice to walk out on a court to have it packed.
+ - When I committed to playing a little tennis in some exhibitions, it was the best thing for me. It got me in shape. It got me out of the house. It got me doing something I love to do.
+ - There is no doubt about how hard it is to stay on top in any sport, but to do it in an individual sport for the majority of your career, it is not easy.
+ - What I’ve done in the game is always going to stick, no matter what happens.
+ - I think the image of golfers is terrific, and rightly so.
+ - When you struggle winning matches all year and you don’t really get into a groove or rhythm, you just can’t expect to just come in here and have it click.
+ - Retirement is a work in progress. I try to figure out my day, and what I know about myself is that I need structure.
+ - I am here for the goal, and the goal is to try to do it again.
+ - My serve was there, everything was just clicking. Those are the days you dream about, especially in a final.
+ - If Davis Cup was a little bit less or once every two years, I would be more inclined to play. But the way it is now, it is too much tennis for me.
+ - I’m not worried about the weekend, I’m worried about Saturday.
+ - I want to end my career on my terms, not on what people think I should do.
+ - I admire the way golfers handle themselves. But tennis players are a lot younger, as a rule. There aren’t many teenagers on the golf tour.
+ - I’m maybe not quite as sharp as I used to be.
+ - The way I hold the club, I’ve got my hand way over, like I’m driving a motorcycle. My Kawasaki grip.
+ - I am going to hold serve the majority of the time. It is nice to have a little time to return serve.
+
+81 quotes

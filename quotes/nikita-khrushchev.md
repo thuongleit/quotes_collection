@@ -1,0 +1,73 @@
+ - We do not have to invade the United States, we will destroy you from within.
+ - Berlin is the testicles of the West, every time I want the West to scream, I squeeze on Berlin.
+ - If you live among wolves you have to act like a wolf.
+ - The living will envy the dead.
+ - The John Birch Society is Communism’s greatest ally. With its help we will divide and confuse the American people until they have lost faith in their Government, their nation has ceased to be a major world power, and their country is ripe for revolution.
+ - I can prophecy that your grandchildren in America will live under socialism – Our firm conviction is that sooner or later Capitalism will give way to Socialism. Whether you like it or not, history is on our side. We will bury you.
+ - If you don’t like us, don’t accept our invitations and don’t invite us to come to see you. Whether you like it or not, history is on our side. We will bury you.
+ - You Americans are so gullible. No, you won’t accept communism outright, but we’ll keep feeding you small doses of socialism until you’ll finally wake up and find you already have communism. We won’t have to fight you. We’ll so weaken your economy until you’ll fall like overripe fruit into our hands.
+ - Politicians are the same all over. They promise to build bridges even when there are no rivers.
+ - Once you pledge, don’t hedge.
+ - I once said, ‘We will bury you,’ and I got into trouble with it. Of course we will not bury you with a shovel. Your own working class will bury you.
+ - Historians are dangerous people. They are capable of upsetting everything.
+ - Let there be more corn and more meat and let there be no hydrogen bombs at all.
+ - America has been in existence for 150 years and this is the level she has reached. We have existed not quite 42 years and in another seven years we will be on the same level as America. When we catch you up, in passing you by, we will wave to you.
+ - They pay little attention to what we say and prefer to read tea leaves.
+ - No matter how humble a man’s beginnings, he achieves the stature of the office to which he is elected.
+ - Don’t you have a machine that puts food into the mouth and pushes it down?
+ - Without Spam, we wouldn’t have been able to feed our army.
+ - The United States now sleeps under a Soviet moon.
+ - Economics is a subject that does not greatly respect one’s wishes.
+ - They talk about who won and who lost. Human reason won. Mankind won.
+ - The press is our chief ideological weapon.
+ - When you are skinning your customers, you should leave some skin on to heal, so that you can skin them again.
+ - If Adenauer were here with us in the sauna, we could see for ourselves that Germany is and will remain divided but also that Germany never will rise again.
+ - If you cannot catch a bird of paradise, better take a wet hen.
+ - We say the name of God, but that is only habit.
+ - If you feed the people just with revolutionary slogans they will listen today, they will listen tomorrow, they will listen the day after tomorrow, but on the fourth day they will say, “To hell with you.”
+ - If you start throwing hedgehogs under me, I shall throw a couple of porcupines under you.
+ - Do you think when two representatives holding diametrically opposing views get together and shake hands, the contradictions between our systems will simply melt away? What kind of a daydream is that?
+ - Bombs do not choose. They will hit everything.
+ - The USA and USSR will only agree when shrimps learn to fly.
+ - In the future, if nuclear weapons are unleashed there will be no front and no rear.
+ - The dictatorship of the proletariat and the leadership of the Marxist-Leninist party are indispensable conditions for the triumph of the Socialist revolution and the building of Socialism.
+ - President Roosevelt proved that a President could serve for life. Truman proved that anyone could be elected. Eisenhower proved that your country can be run without a President.
+ - The main difference for the history of the world if I had been shot rather than Kennedy is that Onassis probably wouldn’t have married Mrs Khrushchev.
+ - Everyone can err, but Stalin considered that he never erred, that he was always right. He never acknowledged to anyone that he made any mistake, large or small, despite the fact that he made not a few mistakes in the matter of theory and in his practical activity.
+ - What the scientists have in their briefcases is terrifying.
+ - The Americans have surrounded our country with military bases and threatened us with nuclear weapons, and now they will learn just what it feels like to have enemy missiles pointed at you; we’d be doing nothing more than giving them a little of their own medicine.
+ - The more bombers the less room for doves of peace.
+ - Call it what you will, incentives are what get people to work harder.
+ - My arms are up to the elbows in blood. That is the most terrible thing that lies in my soul.
+ - What innocence, may I ask, is being played here when it is known that this virtuous damsel has already got a dozen illegitimate children?
+ - Revolutions are not made for export.
+ - When all the world is socialist, Switzerland will have to remain capitalist, so that it can tell us the price of everything.
+ - The purpose of the United Nations should be to protect the essential sovereignty of nations, large and small.
+ - You do not know, you cannot know, the difficulty of the life of a politician. It means every minute of the day or night, every ounce of your energy. There is no rest, no relaxation. Enjoyment? A politician does not know the meaning of the word.
+ - In a fight you don’t stop to choose your cudgels.
+ - Any fool can start a war, and once he’s done so, even the wisest of men are helpless to stop it – especially if it’s a nuclear war.
+ - There are still some people who think that we have Stalin to thank for all our progress, who quake before Stalin’s dirty under-draws, who stand at attention and salute them.
+ - Of all cities in the United States I have seen, San Francisco is the most beautiful.
+ - Gagarin flew into space, but didn’t see any god there.
+ - If we were to promise people nothing better than only revolution, they would scratch their heads and say: ‘Is it not better to have good goulash?’
+ - I don’t like the life here in New York. There is no greenery. It would make a stone sick.
+ - You must never believe all these things which the scientists say because they always want more than they can get-they are never satisfied.
+ - If you live among dogs, keep a stick. After all, this is what a hound has teeth for-to bite when he feels like it!
+ - I happened to read recently a remark by the American nuclear physicist W. Davidson, who noted that the explosion of one hydrogen bomb releases a greater amount of energy than all the explosions set off by all countries in all wars known in the entire history of mankind. And he, apparently, is right.
+ - Comrades! We must abolish the cult of the individual decisively, once and for all.
+ - Mr. President, call the toady of American imperialism to order.
+ - All the sparrows on the rooftops are crying about the fact that the most imperialist nation that is supporting the colonial regime in the colonies is the United States of America.
+ - Whether you like it or not, history is on our side. We will bury you!
+ - When I was young, I worked for a capitalist twelve hours a day and I was always tired. Now I work for myself twenty hours a day and I never get tired.
+ - But life is a great school. It thrashes and bangs and teaches you.
+ - I don’t understand the music but I certainly understand the girl singer!
+ - He who cannot eat horsemeat need not do so. Let him eat pork. But he who cannot eat pork, let him eat horsemeat. It’s simply a question of taste.
+ - The one who loses his head no longer cares about his hair.
+ - Even now we feel that Stalin was devoted to Communism, he was a Marxist, this cannot and should not be denied.
+ - I know what I say at times is not very diplomatic.
+ - One of the major principles is that Soviet literature must be inseverably linked with the policy of the Communist party.
+ - I want to talk to these people because they stay in power and you change all the time.
+ - Support by United States rulers is rather in the nature of the support that the rope gives to a hanged man.
+ - He was a crystal of morality among our scientists.
+
+71 quotes

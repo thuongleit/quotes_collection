@@ -1,0 +1,127 @@
+ - Think of the solution, not the problem.
+ - Reality is irrelevant; Perception is everything.
+ - If the road is easy, you’re likely going the wrong way.
+ - Knowledge is a weapon. I intend to be formidably armed.
+ - Nothing is ever easy.
+ - Wizards First Rule: People are Stupid.
+ - Your life is your own. Rise up and live it.
+ - Dance with me, Death, I am ready.
+ - People are stupid. They will believe a lie because they want to believe it’s true, or because they are afraid it might be true.
+ - Sometimes, making the wrong choice is better than making no choice. You have the courage to go forward, that is rare. A person who stands at the fork, unable to pick, will never get anywhere.
+ - The Wizard’s First Rule: People are stupid; given proper motivation almost anyone will believe almost anything.
+ - Deserve Victory.
+ - Wizard’s Third Rule Passion rules reason, For better or for worse.
+ - Everything is valuable under the right conditions. To a man dying of thirst, water be more precious than gold. To a drowning man, water be of little worth and great trouble.
+ - Knowledge is a destination. Truth, the journey.
+ - When the whole world is crazy, it doesn’t pay to be sane.
+ - I am dead. Only vengeance can restore me! Only victory can return my life to me!
+ - Wizard’s Sixth Rule The only sovereign you can allow to rule you is reason.
+ - If you are unwilling to defend your right to your own lives, then you are merely like mice trying to argue with owls. You think their ways are wrong. They think you are dinner.
+ - Knowing when to fight is just as important as knowing how.
+ - There is no place so dangerous as a world without magic.
+ - Wizard’s Fourth Rule There is magic in sincere forgiveness; in the forgiveness you give, but more so in the forgiveness you receive.
+ - When you’re the leader, everything is your fault.
+ - I am who I am; no more, no less.
+ - Everyone makes mistakes. How a person deals with their mistakes is a mark of their character.
+ - But this was no ordinary chicken. This chicken was evil manifest.
+ - Laugh all you want. I know my own worth and don’t need to prove it to someone who doesn’t know theirs.
+ - It isn’t what kind of house you have that matters. This is not happiness. It’s what kind of mind you have, and how you care for your fellow man – what you can do to help others who can be helped by no one else.
+ - There is magic in sincere forgiveness – magic to heal.
+ - Once you teach me something, it’s mine to use.
+ - Wizard’s Ninth Rule A contradiction can not exist in reality. Not in part, nor in whole.
+ - The sun has already set on the days we made those choices. We must concentrate on what we can do tomorrow; we can’t relive yesterday.
+ - It does the sheep no good to preach the goodness of a diet of grass, if the wolves are of a different mind.
+ - Others made you into who you were. You made yourself into what you have become.
+ - Even a foolish old woman like me knows that lazy people don’t think for themselves; they only think about themselves.
+ - If God is so powerful, can he create a rock which he cannot lift?
+ - There is nothing that exists that has only one side. Even a piece of paper, thin as it is, has two sides.
+ - Only a fool walks into the future backwards.
+ - Nothing gained without cost is valued. Freedom has a cost, and all will bear it so all will value and preserve it.
+ - Love is not about what you want. It’s about finding happiness for the one you love.
+ - Admitting that you do not know something is the first step to learning.
+ - Wizard’s Second Rule The greatest harm can result from the best intentions.
+ - Nothing marks a man’s character better than his attraction to intelligence.
+ - You can destroy those who speak the truth, but you cannot destroy the truth itself.
+ - Wizard’s Tenth Rule Willfully turning aside from the truth is treason to one’s self.
+ - Teachings that defy reason defy reality; what defies reality defies life. Defying life is embracing death.
+ - Standing for truth is everything. Truth is power. Don’t ever forget that.
+ - I’m surprised you don’t know more about magic, Sister Verna. There is a word that is magic. It can accomplish more than you might think. Maybe you have heard it before. It is the word ’please.
+ - Not everyone is willing to embrace liberty; liberty requires not just effort, but risk. Some people choose to delude themselves and see their chains as protective armor.
+ - You can’t love anyone or anything until you love your own existence first. Love can only grow out of a respect for your own life.
+ - But in the end, we can’t live our lives by ‘what if’ and ‘if only.’ We can only do the best we can to the best of our ability based on what we know. That’s why the truth is so important.
+ - The training of a Mord-Sith takes years – to learn to handle the pain. I guess it’s also why only women are Mord-Sith, men are too weak.
+ - I’d rather look a fool than be right and fail to act.
+ - The only thing you can be is yourself nothing more nothing less.
+ - Once you place that crown of liar on your head, you can take it off again, but it leaves a stain for all time.
+ - The light of a new day always chases the shadows of the night away, and shows us that the shape of our fears is only the ghost of our own minds.
+ - Reasons are the spoils of victory. When you’ve destroyed the enemy, then your leaders write down the reasons in books, and give moving speeches about them. If you’ve done your job, then there aren’t any of the enemy left to dispute your leader’s reasons. At least not until the next war.
+ - Reason and reality are the only means to just laws; mindless wishes, if given sovereignty, become deadly masters.
+ - I don’t think I could have written what I did any earlier.
+ - Honor is honesty to what is, not blind duty to what you wish to be.
+ - It is said that the greatest cruelty is drawn from those with the kindest hearts.
+ - Never let a beautiful woman pick your path for you when there is a man in her line of sight.
+ - Celebrating faith over reason is merely a way of denying what is, in favor of embracing any whim that strikes your fancy.
+ - Fools who won’t see the truth are deadly.
+ - Dancing with death meant being committed to killing, committed with your heart and soul.
+ - Right and wrong are not the product of census.
+ - Fate occasionally touches us all in ways we don’t always understand...
+ - People need an enemy to feel a sense of purpose.
+ - But if used for retribution, magic is vengeance incarnate.
+ - The worse you are at thinking, the better you are at drinking.
+ - In the darkest hours we must believe in ourselves.
+ - You can’t argue with the fools in the world. It’s better to let them have their way, then trick them when they’re not paying attention.
+ - Many people believe everything others say, even though what they see with their own eyes, should be enough to tell them otherwise.
+ - We can’t live our lives according to what might have been. We have to live by what is.
+ - To love someone means that you sometimes are fulfilled the most by putting thier deepest desires above your own.
+ - Everyone has an effect on others. Some people inspire others to do great things. Some take people into crime with them. Those with the gift affect those around them even more.
+ - One of the things that defines our character is how we handle mistakes.
+ - If something is wrong, it matters not if a thousand men are for it; you must still oppose it. If something is just, no amount of popular outcry should stay you from your course.
+ - No one ever goes into battle thinking God is on the other side.
+ - Emotions are the sums created by details, whether those details are true or not.
+ - Grrratch luuug Raaaach aaarg.
+ - After that, I came back every year. Everyone said, ‘Well, when you retire you can move there.’ But I said, ‘Why should I live my whole life where I don’t want to be.’
+ - I had to live this long, have the experiences I’ve had, to create what I do. I knew I wanted to write for years, but I had to be ready so I wouldn’t blow it. The move to Maine was the final step.
+ - Wrong doing must be punished. If not, it will proliferate until anarchy wears the robes of tolerance and understanding.
+ - Fate does not seek our consent.
+ - To question me onceis a simple mistake, Lieutenant. Twice is treason. We execute traitors.-Kahlan.
+ - Charity, if you have the means, is a personal choice, but charity which is expected or compelled is simply a polite word for slavery.
+ - You talk like a drunk man walks: in every direction but where he be headed.
+ - Culture carries no privilege to exist. Cultures do not have value simply because they are. Some cultures, the world is better off without.
+ - The mice think they are right, but my cat eats them anyways. This is the point, reality is nothing, perception is everything.
+ - Once lucky, twice confident, and thrice dead.
+ - It allows you to say things that sound very dramatic and get away with it. If you had characters in modern fiction say the same things as they’re driving down the street in an Oldsmobile they’d sound ludicrous!
+ - Those who have come here to hate should leave now; for in their hate, they only betray themselves.
+ - Fantasy allows you bend the world and the situation to more clearly focus on the moral aspects of what’s happening. In fantasy you can distill life down to the essence of your story.
+ - Perception was easily accomplished, required little effort, and it never had to stand the test of reality.
+ - Kahlan guide me. Kahlan teach me. Kahlan protect me. In your light I thrive. In your mercy I am sheltered. In your wisdom I am humbled. I live only to love you. My life is yours.
+ - Cut the attacker down, to cut them down to their very soul.
+ - Her green eyes came unafraid to his. The connection was so intense that it threatened to drain his sense of self. He felt that he had always known her, that she had always been a part of him, that her needs were his needs.
+ - To the right person, the person who is truly born to it, duty is a form of love, through which all is possible. Duty is not always a denial of things, but an expansion of them to others. Duty is not always a chore, but is best carried out with love.
+ - That’s what friends are for-to be strong for you when you need a moment to find your own strength.
+ - I hate telling that story to people who’ve been struggling for years.
+ - Sometimes, it is necessary to step beyond what you have known and to reach for something more.
+ - I wish people had half the honor of dragons.
+ - We reap a reward merely in the act of helping others. We never know how, or if, that reward will come back to us. Helping is the reward; none other is needed nor better.
+ - Intent is guilt. Failure to successfully carry out the intent does not absolve the guilt.
+ - Books served to keep hard-won knowledge safe. They endured.
+ - I felt like I’d been misplaced in the cosmos and I belonged in Maine.
+ - Life for the strongest. There is no sympathy for the slain, only admiration for the winner’s strength.
+ - Everybody knows it. Wizards are supposed to have beards. It’s common knowledge.
+ - Kahlan stood quietly in the shadows, watching, as evil knocked softly on the door.
+ - I never could understand why some writers treat women as helpless. Every woman I know is strong in her own unique way.
+ - I will have to admit, though, that I will never look at an apple in quite the same way.
+ - Knowledge comes as it will. Life’s lessons come at the most surprising times.
+ - Emotions are the end result, the sum, of things learned.
+ - Wizard’s Seventh Rule Life is the future, not the past.
+ - History is rarely made by reasonable men.
+ - Being afraid something is true is accepting the possibility. Accepting the possibility is the first step to believing.
+ - Every person’s life is theirs by right. An individual’s life can and must belong only to to himself, not to any society or community, or he is then but a slave.
+ - Boundary wardens, Zedd thought, were tougher than they had a right to be.
+ - Emotion did not play a part in truth, only reality did.
+ - But emotions when based on valued things can be a faithful and consistant sum of truths.
+ - Teasingly she took the apple from his mouth. Juice ran down his chin. Slowly, deliberately, she leaned over and licked the sweet juice from his chin. I will have to admit though, that I will never look at an apple in quite the same way.
+ - No amount of telling is worth doing it once.
+ - They look at me and I kind of back up in case they go for my throat.
+ - Ever since I was really little, I’ve had characters that were in my mind.
+
+125 quotes

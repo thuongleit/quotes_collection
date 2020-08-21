@@ -1,0 +1,142 @@
+ - The connections between and among women are the most feared, the most problematic, and the most potentially transforming force on the planet.
+ - Lying is done with words and also with silence.
+ - You must write, and read, as if your life depended on it.
+ - Responsibility to yourself means refusing to let others do your thinking, talking, and naming for you; it means learning to respect and use your own brains and instincts; hence, grappling with hard work.
+ - Courage is not defined by those who fought and did not fall, but by those who fought, fell and rose again.
+ - All new learning looks at first like chaos.
+ - There must be those among whom we can sit down and weep and still be counted as warriors.
+ - In a world where language and naming are power, silence is oppression, is violence.
+ - My heart is moved by all I cannot save: so much has been destroyed I have to cast my lot with those who age after age, perversely, with no extraordinary power, reconstitute the world.
+ - When someone with the authority of a teacher describes the world and you’re not in it, there’s a moment of psychic disequilibrium, as if you looked into a mirror and saw nothing.
+ - When a woman tells the truth she is creating the possibility for more truth around her.
+ - Change is not a threat to your life, but an invitation to live.
+ - Responsibility to yourself means that you don’t fall for shallow and easy solutions-it means that you refuse to sell your talents and aspirations short.
+ - Not biology, but ignorance of ourselves, has been the key to our powerlessness.
+ - Every journey into the past is complicated by delusions, false memories, false namings of real events.
+ - Every poem breaks a silence that had to be overcome.
+ - You have to be free to play around with the notion that day might be night, love might be hate; nothing can be too sacred for the imagination to turn into its opposite or to call experimentally by another name. For writing is re-naming.
+ - The repossession by women of our bodies will bring far more essential change to human society than the seizing of the means of production by workers.
+ - The most notable fact that our culture imprints on women is a sense of our limits. The most important thing a woman can do for another is to illuminate her actual possibilities.
+ - Most women have not even been able to touch this anger, except to drive it inward like a rusted nail.
+ - To work and suffer is to be at home. All else is scenery...
+ - The liar often suffers from amnesia. Amnesia is the silence of the unconscious.
+ - A life I didn’t choose chose me: even my tools are the wrong ones for what I have to do.
+ - If you think you can grasp me, think again: my story flows in more than one direction, a delta springing from the river bed with its five fingers spread.
+ - We can count on so few people to go that hard way with us.
+ - The more I live, the more I think, two people together is a miracle.
+ - Art and literature have given so many people the relief of feeling connected – pulled us out of isolation. It has let us know that somebody else breathed and dreamed and had sex and loved and raged and knew loneliness the way we do.
+ - Your mind now, moldering like wedding-cake, heavy with useless experience, rich with suspicion, rumour, fantasy, crumbling to pieces under the knife-edge of mere fact. In the prime of your life.
+ - Poetry is the liquid voice that can wear through stone.
+ - I don’t trust them but I’m learning to use them.
+ - I keep coming back to you in my head, but you couldn’t know that, and I have no carbons.
+ - What kind of beast would turn its life into words?
+ - Poetry is above all a concentration of the power of language, which is the power of our ultimate relationship to everything in the universe.
+ - The vixen I met at twilight on Route 5 south of Willoughby: long dead. She was an omen to me, surviving, herding her cubs in the silvery bend of the road in nineteen sixty-five.
+ - I’ve had to guess at her, sewing her skin together as I sew mine, though with a different stitch.
+ - No one sleeps in this room without the dream of a common language.
+ - Until we know the assumptions in which we are drenched, we cannot know ourselves.
+ - A decade of cutting away dead flesh, cauterizing old scars ripped open over and over and still it is not enough.
+ - Despair, when not the response to absolute physical and moral defeat is, like war, the failure of imagination.
+ - When one woman tells her truth, it makes a space for other women to tell their truths.
+ - It is important to possess a short-term pessimism and a long-term optimism...
+ - A language is a map of our failures.
+ - It will take all your heart, it will take all your breath It will be short, it will not be simple.
+ - We must use what we have to invent what we desire.
+ - Re-vision – the act of looking back, of seeing with fresh eyes, of entering an old text from a new critical direction – is for women more than a chapter in cultural history: it is an act of survival.
+ - Language is as real, as tangible, in our lives as streets, pipelines, telephone switchboards, microwaves, radioactivity, cloning laboratories, nuclear power stations.
+ - What would it mean to live in a city whose people were changing each other’s despair into hope? – You yourself must change it.
+ - We see daily that our lives are terrible and little, without continuity, buyable and salable at any moment, mere blips on a screen, that this is the way we live now. Memory marketed as nostalgia; terror reduced to mere suspense, to melodrama.
+ - It is the thirtieth of May, the thirtieth of November, a beginning or an end, we are moving into the solstice and there is so much here I still do not understand.
+ - The liar leads an existence of unutterable loneliness.
+ - If you are trying to transform a brutalized society into one where people can live in dignity and hope, you begin with the empowering of the most powerless. You build from the ground up.
+ - No one has imagined us. We want to live like trees, sycamores blazing through the sulfuric air, dappled with scars, still exuberantly budding, our animal passion rooted in the city.
+ - Only to have a grief equal to all these tears!
+ - In America we have only the present tense. I am in danger. You are in danger.
+ - Reality, the oppressor’s tongue.
+ - Experience is always larger than language.
+ - Poetry can open locked chambers of possibiity, restore numbed zones to feeling, recharge desire.
+ - I am a woman in the prime of my life, with certain powers and those powers severely limited by authorities whose faces I rarely see.
+ - TV has created a kind of false collectivity.
+ - The serious revolutionary, like the serious artist, can’t afford to lead a sentimental or self-deceiving life.
+ - I came to explore the wreck.
+ - The decision to feed the world is the real decision. No revolution has chosen it. For that choice requires that women shall be free.
+ - There is nothing revolutionary whatsoever about the control of women’s bodies by men. The woman’s body is the terrain on which patriarchy is erected.
+ - Weather abroad and weather in the heart alike come on Regardless of prediction.
+ - I am the androgyne, I am the living mind you fail to describe in your dead language the lost noun, the verb surviving only in the infinitive the letters of my name are written under the lids of the newborn child.
+ - Art means nothing if it simply decorates the dinner table of power which holds it hostage.
+ - One line typed twenty years ago can be blazed on a wall in spraypaint to glorify art as detachment or torture of those we did not love but also did not want to kill.
+ - If the imagination is to transcend and transform experience it has to question, to challenge, to conceive of alternatives, perhaps to the very life you are living at the moment.
+ - Abortion is violence; a deep, desperate violence inflicted by a woman upon, first of all, herself.
+ - Any woman’s death diminishes me.
+ - Motherhood, in the sense of an intense, reciprocal relationship with a particular child, or children, is one part of female process; it is not an identity for all time.
+ - War is an absolute failure of imagination, scientific and political.
+ - A patriot is one who wrestles for the soul of her country as she wrestles for her own being.
+ - It’s exhilarating to be alive in a time of awakening consciousness; it can also be confusing, disorienting, and painful.
+ - It is the suffering of ambivalence: the murderous alternation between bitter resentment and raw-edged nerves, and blissful gratification and tenderness.
+ - How we dwelt in two worlds the daughters and the mothers in the kingdom of the sons.
+ - I’d call it love if love didn’t take so many years but lust too is a jewel.
+ - The moment of change is the only poem.
+ - The suppressed lesbian I had been carrying in me since adolescence began to stretch her limbs...
+ - The worker can unionize, go out on strike; mothers are divided from each other in homes, tied to their children by compassionate bonds; our wildcat strikes have most often taken the form of physical or mental breakdown.
+ - I long to create something that can’t be used to keep us passive: I want to write a script about plumbing, how every pipe is joined to every other.
+ - Marriage is lonelier than solitude.
+ - I touch you knowing we weren’t born tomorrow, and somehow, each of us will help the other live, and somewhere, each of us must help the other die.
+ - It is the lesbian in us who is creative, for the dutiful daughter of the fathers in us is only a hack.
+ - Lesbian existence comprises both the breaking of a taboo and the rejection of a compulsory way of life. It is also a direct or indirect attack on the male right of access to women.
+ - The beauty of darkness is how it lets you see.
+ - If we had time and no money, living by our wits, what story would you tell?
+ - I have an inward treasure born with me, which can keep me alive if all the extraneous delights should be withheld or offered only at a price I cannot afford to give.
+ - I define “politics” as the on-going collective struggle for liberation and for the power to create – not only works of art, but also just and nonviolent social institutions.
+ - The mother’s battle for her child with sickness, with poverty, with war, with all the forces of exploitation and callousness that cheapen human life needs to become a common human battle, waged in love and in the passion for survival.
+ - False history gets made all day, any day, the truth of the new is never on the news.
+ - War is an absolute failure of imagination, scientific and political. That a war can be represented as helping a people to ‘feel good’ about themselves, or their country, is a measure of that failure.
+ - Art, whose honesty must work through artifice, cannot avoid cheating truth.
+ - There is no ‘the truth,’ ‘a truth’ – truth is not one thing, or even a system. It is an increasing complexity.
+ - These scars bear witness but whether to repair or to destruction I no longer know.
+ - Can you remember? when we thought the poets taught how to live?
+ - Only where there is language is there world.
+ - But before we were mothers, we have been, first of all, women, with actual bodies and actual minds.
+ - Pride is a tricky, glorious, double-edged feeling.
+ - No woman is really an insider in the institutions fathered by masculine consciousness.
+ - For now, poetry has the capacity – in its own ways and by its own means – to remind us of something we are forbidden to see.
+ - One does not give birth in a void, but rather in a cultural and political context. Laws, professional codes, religious sanctions, and ethnic traditions all affect women’s choices concerning childbirth.
+ - Sleeping. Turning in turn like planets rotating in their midnight meadow: a touch is enough to let us know we’re not alone in the universe, even in sleep.
+ - To seek visions, to dream dreams, is essential, and it is also essential to try new ways of living, to make room for serious experimentation, to respect the effort even where it fails.
+ - In the interstices of language lie powerful secrets of the culture.
+ - Love, our subject: we’ve trained it like ivy to our walls.
+ - When I talk of taking a trip I mean forever.
+ - Strangers are an endangered species...
+ - Writers matter in a society to the extent that we can help that society hear its unvoiced longing, encounter its erased and disregarded selves, break with complacency, numbness, despair.
+ - Women’s Studies can amount simply to compensatory history; too often they fail to challenge the intellectual and political structures that must be challenged if women as a group are ever to come into collective, nonexclusionary freedom.
+ - I feel more helpless with you than without you.
+ - To do something very common, in my own way.
+ - As a very young poet, I had been brought up on that dogma that politics was bad for poetry.
+ - I think poets should work in the non-literary, non-academic world, get to know more than a workshop or a university.
+ - Those who speak largely of the human condition are usually those most exempt from its oppressions – whether of sex, race, or servitude.
+ - The channel of art can only become clogged and misdirected by the artist’s concern with merely temporary and local disturbances. The song is higher than the struggle.
+ - If I cling to circumstances I could feel not responsible. Only she who says she did not choose, is the loser in the end.
+ - I believe that words can help us move or keep us paralyzed, and that our choices of language and verbal tone have something – a great deal – to do with how we live our lives.
+ - A thinking woman sleeps with monsters.
+ - We move but our words stand become responsible for more than we intended and this is verbal privilege.
+ - I think my work comes out of both an intense desire for connection and what it means to feel isolated. There’s always going to be a kind of tidal movement back and forth between the two.
+ - But nothing less than the most radical imagination will carry us beyond this place, beyond the mere struggle for survival, to that lucid recognition of our possibilities which will keep us impatient, and unresigned to mere survival.
+ - We have lived with violence far too long.
+ - Go back so far there is another language go back far enough the language is no longer personal.
+ - What we see, we see and seeing is changing.
+ - Poems are like dreams: in them you put what you don’t know you know.
+ - I don’t think we can separate art from overall human dignity and hope.
+ - Life on the planet is born of woman.
+ - The unconscious wants truth, as the body does. The complexity and fecundity of dreams come from the complexity and fecundity of the unconscious struggling to fulfill that desire. The complexity and fecundity of poetry come from the same struggle.
+ - Poetry can add its grain to an accumulation of consciousness against the idea that there is no alternative – that we’re just in the great flow of capitalism and it can never be any different – that this is human destiny, this is human nature.
+ - We who were loved will never unlive that crippling fever.
+ - Our personalities seem dangerously to blur and overlap with our mother’s; and, in a desperate attempt to know where mother ends and daughter begins, we perform radical surgery.
+ - As a society in turmoil, we are going to see more, and more various, attempts to simulate order through repression; and art is a historical target for such efforts.
+ - Heterosexuality has been forcibly and subliminally imposed on women. Yet everywhere women have resisted it, often at the cost of physical torture, imprisonment, psychosurgery, social ostracism, and extreme poverty.
+ - The mind’s passion is all for singling out. Obscurity has another tale to tell.
+ - We are, none of us, ‘either’ mothers or daughters; to our amazement, confusion, and greater complexity, we are both.
+ - Over many years so many poets have touched my imagination and opened paths for me – it hardly makes sense to list them. I have always read a great deal of poetry.
+ - Lies are usually attempts to make everything simpler – for the liar – than it really is, or ought to be.
+ - The unconscious wants truth. It ceases to speak to those who want something else more than truth.
+ - Whatever happens with us, your body will haunt mine.
+
+140 quotes

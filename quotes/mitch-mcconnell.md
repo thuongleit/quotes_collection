@@ -1,0 +1,48 @@
+ - You’ll regret this, and you may regret this a lot sooner than you think.
+ - The money that goes into Social Security is not the government’s money. it’s your money. You paid for it.
+ - We have a debt the size of our economy, which makes us look a lot like Greece.
+ - It just doesn’t occur to an American that someone else will solve their problems. Americans take pride in solving problems for themselves. And if we fail, we get back up and try again. It’s what we do. It’s who we are.
+ - The worst day of my political life was when President George W. Bush signed McCain-Feingold into law in the early part of his first Administration.
+ - The debt they ran up in the first year of the Obama administration is bigger than the last four years of the Bush combined.
+ - We’re living under the Obama economy. Any CEO in America with a record like this after three years on the job would be graciously shown the door. This president blames the managers instead. He blames the folks on the shop floor. He blames the weather.
+ - I’m really proud of this Supreme Court and the way they’ve been dealing with the issue of First Amendment political speech.
+ - The minimum wage is mostly an entry-level wage for young people.
+ - The single most important thing we want to achieve is for President Obama to be a one-term president.
+ - It’s a shame that the president doesn’t embrace the effort to reduce spending. None of us like using situations like the sequester or the debt ceiling or the operation of government to try to engage the president to deal with this.
+ - All Citizens United did was to level the playing field for corporate speech. We now have, I think, the most free and open system we’ve had in modern times.
+ - As the leader of the Republicans what I’m telling that we elected the president to be president. It’s time for him to step up to the plate and lead us in the direction of reducing our excessive spending.
+ - Syria and Iran have always had a pretty tight relationship, and it looks to me like they just cooked up a press release to put out to sort of restate the obvious. They’re both problem countries; we know that. And this doesn’t change anything.
+ - We all know that Social Security is one of this country’s greatest success stories in the 20th century.
+ - We ought to make sure that the eligibility for entitlements meets the demographics of America.
+ - It took us in this country 11 years to get from the Declaration of Independence to the Constitution.
+ - Tiger Woods and John Edwards had a better year than the Stimulus bill.
+ - For everybody who thinks it’s warming, I can find somebody who thinks it isn’t.
+ - The bill that job creators and out-of-work Americans need us to pass is the one that ensures taxes won’t go up – one that says Americans and small-business owners won’t get hit with more bad news at the end of the year.
+ - By their own admission, leaders of the Republican Revolution of 1994 think their greatest mistake was overlooking the power of the veto. They gave the impression they were somehow in charge when they weren’t.
+ - The biggest problem confronting the country is our excessive spending. If we’re not going to deal with it now, when are we going to deal with it? And we’ve watched the government explode over the last four years. We’ve dealt with the revenue issue.
+ - Forcing free market plans to compete with these government-run programs would create an unlevel playing field and inevitably doom true competition...
+ - It seems with every new day, we have a new veto threat from the president.
+ - It is time for a leader who will lead.
+ - Obama hasn’t been working to earn reelection, he’s been working to earn a spot on the PGA tour!
+ - Public disclosure of campaign contributions and spending should be expedited so voters can judge for themselves what is appropriate.
+ - Republicans will not be reduced to being the tax collectors for the Obama economy.
+ - More women are graduating from college now than men.
+ - Are we still a country that takes risks, that innovates, that believes anything is possible? Or are we a country that is resigned to whatever liberty the government decides to dish out?
+ - Mitt Romney has spent his entire life finding ways to solve problems.
+ - I’ve often wished we had more women in the Senate.
+ - America is about to turn the page on Barack Obama’s four-year experiment in big government.
+ - The administration still wants to govern from the far-left and that’s going to produce kind a partisan result here in the Congress.
+ - The president feels not only do we need to change these rogue regimes, but even our friendly allies, who really basically have, sort of, benign dictatorships, need to get with the program if they want to have long-term security and prosperity from terrorism.
+ - Americans don’t think we should be raising taxes on anybody, especially in the middle of a recession.
+ - Whether it’s before the election or after the election, the principle is the American people are choosing their next president and their next president should pick this Supreme Court nominee.
+ - I think the important thing to remember here is that we haven’t been attacked again at home since September of 2001.
+ - The White House has a choice: They can change course, or they can double down on a vision of government that the American people have roundly rejected.
+ - On the issue of Iraq, it is my hope, and my challenge to my colleagues, that our debate will be based on what is best for the future of our nation and for Iraq, not what’s best for a political party or presidential campaign.
+ - A reporter asked recently, ‘What keeps you up at night?’ I replied that I generally sleep well, but if I ever do have trouble, I don’t have to count sheep. I count all the states I’m glad I’m not the governor of.
+ - The new troops in Iraq need to be Iraqi troops.
+ - It’s a shame that we have to use whatever leverage we have in Congress to get the president to deal with the biggest problem confronting our future. And that’s our excessive spending.
+ - While other state governments stiff their vendors, close parks, delay tax refunds, and ignore unacceptably poor service levels, Indiana state employees are setting national standards for efficiency.
+ - I think some of our members may have thought the default issue was a hostage you might take a chance at shooting. Most of us didn’t think that. What we did learn is this – it’s a hostage that’s worth ransoming. And it focuses the Congress on something that must be done.
+ - After adding trillions to the debt on big-government policies most Americans didn’t ask for and which we couldn’t afford, Democratic leaders say they need more money, which they intend to take from small business, even though small businesses create the majority of new jobs.
+
+46 quotes

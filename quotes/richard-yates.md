@@ -1,0 +1,35 @@
+ - Never say anything that doesn’t improve on silence.
+ - No one forgets the truth; they just get better at lying.
+ - Hopeless emptiness. Now you’ve said it. Plenty of people are onto the emptiness, but it takes real guts to see the hopelessness.
+ - You want to play house, you got to have a job. You want to play very nice house, very sweet house, then you got to have a job you don’t like. Great. This is the way ninety-eight-point-nine per cent of the people work things out, so believe me, buddy, you’ve got nothing to apologize for.
+ - The hell with “love” anyway, and with every other phony, time-wasting, half-assed emotion in the world.
+ - Dying for love might be pitiable, but it wasn’t much different, finally, from any other kind of dying.
+ - Hard work, is the best medicine yet devised for all the ills of man- and of woman.
+ - I’m only interested in stories that are about the crushing of the human heart.
+ - It’s a disease. Nobody thinks or feels or cares any more; nobody gets excited or believes in anything except their own comfortable little God damn mediocrity.
+ - Do you know what the definition of insane is? Yes. It’s the inability to relate to another human being. It’s the inability to love.
+ - Being alone has nothing to do with how many people are around.
+ - Acting might bring on emotional exhaustion, but writing tired your brains out. Writing led to depression and insomnia and walking around all day with a haggard look.
+ - You’re painfully alive in a drugged and dying culture.
+ - Our ability to measure and apportion time affords an almost endless source of comfort.
+ - People did change, and a change could be a bloom as well as a withering...
+ - If my work has a theme, I suspect it is a simple one: that most human beings are inescapably alone, and therein lies their tragedy.
+ - There’s never been anything funny about a woman dying for love.
+ - He had won but he didn’t feel like a winner.
+ - He couldn’t even tell whether he was angry or contrite, whether it was forgiveness he wanted or the power to forgive.
+ - Know what we did, Lucy? You and me? We spent our whole lives yearning. Isn’t that the God damndest thing?
+ - Are artists and writers the only people entitled to lives of their own?
+ - And do you know a funny thing? I’m almost fifty years old and I’ve never understood anything in my whole life.
+ - Every man has a right to keep his own sentiments if he pleases.
+ - He took each fact as it came and let it slip painlessly into the back of his mind, thinking, Okay, okay, I’ll think about that one later; and that one; and that one; so that the alert, front part of his mind could remain free enough to keep him in command of the situation.
+ - God knows there certainly ought to be a window around here somewhere, for all of us.
+ - Warren Cox, God knew, was no prize; a commercial person, a sales person, the kind of man who said things like “x numbers of dollars”. At lunch today, laboriously trying to explain some business procedure, he had said “x number of dollars” three times.
+ - A man could rant and smash and grapple with the State Police, and still the sprinklers whirled at dusk on every lawn and the television droned in every living room.
+ - Why did everything always change when all you wanted, all you had ever humbly asked of whatever God there might be, was that certain things be allowed to stay the same?
+ - Anybody’s marriage might benefit from an occasional embargo on talk.
+ - In avoiding specific goals he had avoided specific limitations. For the time being the world, life itself, could be his chosen field.
+ - She just happened to feel like it. Wasn’t that after all, the only reason there was? Had she ever had a less selfish, more complicated reason for doing anything in her life?
+ - He knew it was possible for shame to be nursed and doctored like an illness, if you wanted to keep it separate from the rest of your life, but that didn’t mean there’d be any way to keep from knowing it was there.
+ - If you haven’t written a novel by the time you’re forty you never will!
+
+33 quotes

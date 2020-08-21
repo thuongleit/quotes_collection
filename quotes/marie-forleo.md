@@ -1,0 +1,51 @@
+ - The key to SUCCESS is to START before you’re ready.
+ - Success doesn’t come from what you do occasionally, it comes from what you do consistently.
+ - Clarity comes from action, not thought.
+ - To be responsible, keep your promises to others. To be successful, keep your promises to yourself.
+ - Don’t worry about getting it right. Just get it started.
+ - When you know what’s important, it’s a lot easier to ignore what’s not.
+ - Stay on your game and keep going for your dreams. The world needs that special gift that only you have.
+ - How would you behave if you were the best in the world at what you do?
+ - Don’t be afraid of failure, be afraid of not trying in the first place.
+ - When you fully commit, you will make it.
+ - Insight without action is worthless.
+ - Sensitivity is a sign of strength. It’s not about toughening up, it’s about smartening up.
+ - Showing up fully exactly where you are is the fastest way to get where you want to go!
+ - When you’re hungry for success, don’t let anyone feed you crap about slowing down.
+ - When you start taking consistent action, you will see results.
+ - Proactively bring passion to everything you touch, to everything you do. No matter what task is in front of you, bring as much enthusiasm and energy to it as you possibly can. Bring your full attention, your full presence, the Godlike quality that each of us has within, to every task in your day.
+ - There has never been and never will be another you. You have a purpose – a very special gift that only you can bring to the world.
+ - Everything is figureautable.
+ - True fulfillment in life doesnt come from what we get, it comes from what we give.
+ - No other person ever has, or ever will have, the unique blend of talents, strengths, and perspective that you have.
+ - It’s not about what I can get, it’s what I can give.
+ - Remember, every pro was first an amateur. Start your dream now!
+ - If it’s not scheduled, it’s not real.
+ - The secret to finding our passion is that we bring passion in everything that we do.
+ - Anytime you part with money, bless it and say – ‘There’s always more where that came from.’
+ - Happiness is not a limited resource. So help yourself, and there will be plenty left for everyone else.
+ - You were born with everything you need to answer the call of your soul.
+ - The courage to charge for what you do comes from charging for what you do.
+ - Your dreams aren’t made, or broken, by anyone but you.
+ - I have never, ever, EVER met anyone who’s regretted following their heart.
+ - Information may be free, but an education is priceless.
+ - The world needs you. It needs that special thing you’ve been dreaming about since you were little.
+ - Your feelings will guide you if you have the courage to tap into them and listen.
+ - Any age is the perfect age to follow your dream!
+ - Every successful person I know starts before they feel ready.
+ - You’re always being led to your highest good, as long as you have the courage to listen.
+ - What’s highest and best for you is always what’s highest and best for everyone around you.
+ - When someone criticizes you, it defines who they are, not who you are.
+ - When it comes to forks in the road, your heart always knows the answer, not your mind.
+ - Creative success means balancing your love of starting things with a habit of finishing them.
+ - That mean voice in your head is not you and not true.
+ - If you could avoid all your mistakes, you’d miss everything you learned from them.
+ - It takes courage to begin something, but it can take even more to end it.
+ - Finding the funny is the key to never losing your edge.
+ - Remember, having faith means recognizing the value of what you are here to contribute to the world and allowing your actions to be grounded in that truth.
+ - What if the idea of Mr. Right is completely false? What if there is no Mr. Wrong? What if every relationship-no matter how brief-contains a priceless lesson allowing you to grow and evolve into your grandest self?
+ - Our true worth doesn’t come from the work we do, it comes from who we are as human beings.
+ - Both scientists and sages have told us what we already know to be true in our hearts: everything is connected. Therefore as we change, the world cannot help but change with us.
+ - Not enough is a spiritual state, not an economic one.
+
+49 quotes

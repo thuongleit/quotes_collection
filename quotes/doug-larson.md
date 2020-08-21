@@ -1,0 +1,63 @@
+ - Accomplishing the impossible means only that the boss will add it to your regular duties.
+ - Wisdom is the reward you get for a lifetime of listening when you’d have preferred to talk.
+ - The real secret of patience is to find something to do in the meantime.
+ - Some of the world’s greatest feats were accomplished by people not smart enough to know they were impossible.
+ - Bad news travels fast. Good news takes the scenic route.
+ - To err is human; to admit it, superhuman.
+ - Nostalgia is a file that removes the rough edges from the good old days.
+ - If people concentrated on the really important things in life, there’d be a shortage of fishing poles.
+ - Real elation is when you feel you could touch a star without standing on tiptoe.
+ - A weed is a plant that has mastered every survival skill except for learning how to grow in rows.
+ - Sometimes opportunity knocks, but most of the time it sneaks up and then quietly steals away.
+ - For disappearing acts, it’s hard to beat what happens to the eight hours supposedly left after eight of sleep and eight of work.
+ - If the English language made any sense, lackadaisical would have something to do with a shortage of flowers.
+ - A lot of people mistake a short memory for a clear conscience.
+ - A pun is the lowest form of humor, unless you thought of it yourself.
+ - There must be a happy medium somewhere between being totally informed and blissfully unaware.
+ - Spring is when you feel like whistling even with a shoe full of slush.
+ - A child is a person who can’t understand why someone would give away a perfectly good kitten.
+ - Instead of giving a politician the keys to the city, it might be better to change the locks.
+ - Never doubt the courage of the French. They were the ones who discovered that snails are edible.
+ - Fancy Restaurant: one that serves cold soup on purpose.
+ - Utility is when you have one telephone, luxury is when you have two, and paradise is when you have none.
+ - It’s your ability to inspire and uplift other people that matters, not your ability to outdo them.
+ - The reason people blame things on the previous generation is that there’s only one other choice.
+ - The world is full of people looking for spectacular happiness while they snub contentment.
+ - What some people mistake for the high cost of living is really the cost of living high.
+ - Few things are more satisfying than seeing your own children have teenagers of their own.
+ - Ice hockey is a form of disorderly conduct in which the score is kept.
+ - It’s a wise person who knows the difference between free speech and cheap talk.
+ - Wisdom is the quality that keeps you from getting into situations where you need it.
+ - More marriages might survive if the partners realized that sometimes the better comes after the worse.
+ - A clean basement, garage and attic are signs of an empty life.
+ - Establishing goals is all right if you don’t let them deprive you of interesting detours.
+ - For every little kid who still believes in Santa Claus, there is at least one adult who still believes in professional wrestling.
+ - How come it takes so little time for a child who is afraid of the dark to become a teenager who wants to stay out all night?
+ - There are worse things than getting a call for a wrong number at 4 am. It could be a right number.
+ - Law of Airlines: The shorter the time between flights, the greater the distance between gates.
+ - The trouble with the last snowfall of the season is that you can’t be sure.
+ - The surprising thing about young fools is how many survive to become old fools.
+ - Home computers are being called upon to perform many new functions, including the consumption of homework formerly eaten by the dog.
+ - The idea that no one is perfect is a view most commonly held by people with no grandchildren.
+ - Autumn is a season followed immediately by looking forward to spring.
+ - Life expectancy would grow by leaps and bounds if green vegetables smelled as good as bacon.
+ - An alibi is a reason with a bad reputation.
+ - The aging process has you firmly in its grasp if you never get the urge to throw a snowball.
+ - There’s nothing like having grandchildren to restore your faith in humanity.
+ - Setting a good example for your children does nothing but increase their embarrassment.
+ - People are living longer than ever before, a phenomenon undoubtedly made necessary by the 30-year mortgage.
+ - Few things are more delightful than grandchildren fighting over your lap.
+ - Heredity is a splendid phenomenon that relieves us of responsibility for our shortcomings.
+ - The cat could very well be man’s best friend but would never stoop to admitting it.
+ - A lifetime isn’t nearly long enough to figure out what it’s all about.
+ - In debating the respective merits of dogs and cats, not having to walk a cat when it’s 20 below zero deserves consideration.
+ - If all the cars in the United States were placed end to end, it would probably be Labor Day Weekend.
+ - The trouble with learning from experience is that you never graduate.
+ - A perfect example of the power of prayer is when a blizzard closes the schools on the day of a big exam.
+ - The trouble with class reunions is that old flames have become even older.
+ - The only nice thing about being imperfect is the joy it brings to others.
+ - Democracy is a system that gives people a chance to elect rascals of their own choice.
+ - They should have picked a different city to name after a man who reputedly never told a lie.
+ - One nice thing about telling a clean joke is there’s a good chance no one’s heard it before.
+
+61 quotes

@@ -1,0 +1,32 @@
+ - There are some people who walk into a room and they oxygenate it, by their very being there’s fresh air. Then there are those who come in with the smell of death and they suck the life out.
+ - Sometimes you have to confront your demons and sometimes even let them loose to genuinely find a place where you can gain some understanding.
+ - I did ‘Deathly Hallows’ so my kids could get on the ‘Harry Potter’ set. They met Daniel Radcliffe, who was a darling and couldn’t have been nicer to them so I’m a hero right now.
+ - I was on the set of ‘Braveheart’ and my mate says to me, ‘Do you think this film will be any good?’ And I really meant this, too, I told him ‘Let me put it this way – It won’t win any awards.’ Cut to: five Oscars.
+ - There’s a part of bohemia I love. The lack of prejudice, the lack of aggression, I love the lack, for the most part, of competitiveness. It’s more peaceful.
+ - A script is utterly useless in and of itself; it’s only of any worth the minute your actors, your designers, your directors come into being.
+ - I wanted to dismantle the bollocks that there’s a military structure to a gang, with a leader, second leader, the good looking one, first babe, second babe. It’s far more arbitrary than that and their values shouldn’t be romanticised. They aren’t something you want to sign up to.
+ - In terms of popular cinema, ‘One Flew Over the Cuckoo’s Nest’ is as near perfection as I can think of.
+ - In bringing the subject of religious oppression to a wider audience, I didn’t just want to kick the Catholic Church but to poke a finger in the throat of theocracy and to let it be known that people shouldn’t tolerate this anymore.
+ - Life is much weirder than fiction; nothing’s more absurd.
+ - I know virtually no one of my age who can remember a hug, or a smile from their father, or a ‘Let’s go play football.’
+ - The films that I really enjoy now are films that are made by, for wont of a better word, mavericks.
+ - Just in relation to women, it’s not that huge an imaginative leap to see the connection between the Taliban and the Catholic Church.
+ - In the acting game, you spend a long time fighting against what the director perceives you to be. And half the time the directors don’t know.
+ - It’s not so much that I want to direct but that I have to. When I write something it terrifies me that if I give it to someone else and it doesn’t turn out as it could have done, I’d feel as if I’d orphaned my baby.
+ - Part of the reason why movie bosses are so obsessed with crime movies is because they know that world and the criminals. And that’s what they are – they would not hesitate to act illegally to achieve profit and gain.
+ - The Vatican has tried to condemn ‘The Magdalene Sisters’ as a pack of lies and that I’ve made it all up – I wish I was that good a dramatist – and in terms of public relations, that was the daftest thing they ever did.
+ - When things are really painful, I turn it into comedy.
+ - If I’m at home on my own and the writing isn’t going well, I clean my house. And there have been times in the past few years when my house has looked really clean.
+ - You have to just go with your imagination, where your instinct takes you.
+ - Nine out of ten delinquents are frustrated actors.
+ - Watching people just look out for themselves, I think, is extremely interesting. It goes right back to something like ‘The Beggar’s Opera’ – the underbelly of society, how it operates, and how that reflects their so-called betters.
+ - I don’t like the way some actors, when playing a nasty character, will try to grab hold of something good about them.
+ - What point is there to all the wealth and power that America may have if they can’t look after its own?
+ - I find the world more absurd now than I did when I was a kid.
+ - It takes a very strong brain to resist the absolutes, the myths that the media and the politicians peddle – the idea that if you are too kind, where does it all end? That not to help someone is somehow a good idea.
+ - I hate it when something is set in 1967 and every piece of furniture was made in 1967. No! If it’s set in 1967, people have furniture given to them by their grandmother, which she bought in 1932!
+ - Truth is I don’t think God on a daily basis. I think politics, science.
+ - A lot of actors aren’t particularly good directors. And they’re not particularly good with other actors. That’s kind of a fallacy.
+ - Filmmaking is something I have to do. It’s not something I particularly want to do.
+
+30 quotes

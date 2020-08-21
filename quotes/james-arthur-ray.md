@@ -1,0 +1,36 @@
+ - God’s greatest gift to you is your unlimited potential. Your greatest gift to God is to use that potential to the fullest.
+ - In your life’s defining moments there are two choices – you either step forward in faith and power or you step backward into fear.
+ - It’s easier to have courage and trust the process when you feel you’re making headway. Mastery is not persistence when you see a light at the end of the tunnel. True mastery is persistence when you don’t yet see the light.
+ - Trying is failing with honor.
+ - Your business and results are a reflection of you. Your business and results will grow in direct proportion to your own growth.
+ - Concentrated attention is the collection of units of power on a chosen point of intention.
+ - Often what may appear as a detour in life is actually the most direct and empowering path to your destination.
+ - While the cat’s away, the mice will play.
+ - The only competition you will have is the competition between your disciplined and undisciplined mind.
+ - Buried deep within each of us is a spark of greatness, a spark than can be fanned into flames of passion and achievement. That spark is not outside of you it is born deep within you.
+ - Involution always precedes evolution.
+ - The journey of true success and lasting leaderships begins with the inward journey to the soul.
+ - Here’s the question I would ask you to consider; do you treat yourself the way you want other people to treat you?
+ - The Warrior lives a life full of adventure, living on the edge of opportunity. Life on the edge keeps him in a space of heightened awareness and totally in the moment; therefore no matter what comes his way he is always prepared.
+ - Success is messy. But so is life. Deal with it. Poverty is messier.
+ - The Universe will kick you out of your nest so you can fly.
+ - True wealth is not what you have, it’s what you’re left with with when all you have is gone.
+ - Animals are wonderful, because they put you in a great emotional state.
+ - This principle applies to your family pet, for instance, which I believe are wonderful because they put you into a great emotional state. When you feel love for your pet, that’s a great state of love that’s going to bring goodness into your life, what a gift that is.
+ - Control is never achieved when sought after directly; it is the surprising result of letting go.
+ - Money won’t ever make you happy, nor was it ever meant to. Happiness comes from within. Money at best will make you more comfortable.
+ - There is always a risk to follow your bliss, a price to pursue your passion.
+ - Winners take the action that others won’t.
+ - The content of your thoughts and personal beliefs can be proven by a single indicator – your current results.
+ - The seed you sow today will not produce crop till tomorrow. For this reason, your identity does not lie in your current results. This is not who you are. your current results are who you were.
+ - No one who was normal ever made history.
+ - All results no matter how magnificent are infinitesimal when compared to future possibility.
+ - The most difficult battle you ever fight is the battle to be unique in a world that will marshal its every force to keep you the same.
+ - A person of power embraces challenges in complete gratitude. No matter the situation life may bring, discontent is never justified, rather all is experienced as an opportunity and a privilege to venture and grow.
+ - Every great teacher who has ever walked the planet has told you that life was meant to be abundant.
+ - Every great tradition has told you that you were created in the image and the likeness of the creative source. That means that you have God potential and power to create your world.
+ - Virtually all top achievers know that to really get ahead, you’ve got to be willing to color outside the lines. Here’s why.
+ - To to change misery, disease and failure into joy, health, success and prosperity, I must think, speak and act, in ways which are the exact reverse of how most people think, speak and act.
+ - When your intention is great enough you will ALWAYS find the time and energy to accomplish your desires. You can state excuses to the contrary, but holding on to your old stories is just another way of wasting precious time.
+
+34 quotes

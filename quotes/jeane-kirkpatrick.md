@@ -1,0 +1,44 @@
+ - Words can destroy. What we call each other ultimately becomes what we think of each other, and it matters.
+ - There is no pure free-market economy.
+ - For all their faults, right-wing authoritarian regimes more easily accept democratic reforms than left-wing totalitarian states.
+ - Americans need to face the truth about themselves, no matter how pleasant it is.
+ - Cultural constraints condition and limit our choices, shaping our characters with their imperatives.
+ - Democracy not only requires equality but also an unshakable conviction in the value of each person, who is then equal.
+ - I was a woman in a man’s world. I was a Democrat in a Republican administration. I was an intellectual in a world of bureaucrats. I talked differently. This may have made me a bit like an ink blot.
+ - When the Soviet Union walked out of arms control negotiations, and refused even to discuss the issues, the San Francisco Democrats didn’t blame Soviet intransigence. They blamed the United States.
+ - Solidarity was the movement that turned the direction of history, I think.
+ - No idea holds greater sway in the minds of educated Americans that the belief that it is possible to democratize governments anytime and anywhere under any circumstances .
+ - I think that Ronald Reagan wanted to hear other people’s views, and he always listened carefully, and from time to time he changed his own mind about a position. And especially he took pains to listen carefully to foreign leaders with whom he was dealing.
+ - I believe that detente was having almost the opposite effect of what was intended. What was intended was to sort of end the contest for power and to stop Soviet expansion, especially by military means and the military build-up, the military contest.
+ - History is a better guide than good intentions.
+ - A doctrine of class war seemed to provide a solution to the problem of poverty to people who know nothing about how wealth is created.
+ - Mr. President, we’ve taken off our “Kick Me” sign.
+ - Society has never barred women from bread-winning roles, but only from economic roles that are profitable and respectable.
+ - When the San Francisco Democrats treat foreign affairs as an afterthought, as they did, they behaved less like a dove or a hawk than like an ostrich – convinced it could shut out the world by hiding its head in the sand.
+ - Vietnam presumably taught us that the United States could not serve as the world’s policeman; it should also have taught us the dangers of trying to be the world’s midwife to democracy when the birth is scheduled to take place under conditions of guerrilla war.
+ - They always blame America first!
+ - I think that it’s always appropriate for Americans and for American foreign policy to make clear why we feel that self-government is most compatible with peace, the well-being of people, and human dignity.
+ - Maturity is when we live by the truths that are in our heart and soul, truths we believe to be right for us.
+ - It was not malaise we suffered from; it was Jimmy Carter – and Walter Mondale.
+ - The real point is that totalitarian regimes have claimed jurisdiction over the whole person, and the whole society, and they don’t at all believe that we should give unto Caesar that which is Caesar’s and unto God that which is God’s.
+ - And I think detente had manifestly failed, and that the pursuit of it was encouraging Soviet expansion and rendering the world more dangerous, and especially rendering the Western world in greater peril.
+ - Just as the Russians and the Soviets didn’t manage to wipe out languages in Lithuania, neither have they managed to wipe out religion to the extent that we had feared.
+ - What takes place in the Security Council more closely resembles a mugging than either a political debate or an effort at problem-solving.
+ - Look, I don’t even agree with myself at times.
+ - Tyranny and anarchy are alike incompatible with freedom, security, and the enjoyment of opportunity.
+ - Straying off course is not recognized as a capital crime by civilized nations.
+ - Truth, which is important to a scholar, has to be concrete. And there is nothing more concrete than dealing with babies, burps and bottles, frogs and mud.
+ - A government is not legitimate merely because it exists.
+ - I think that there is absolutely no free market in modern industrial states.
+ - The speed with which armies collapse, bureaucracies abdicate, and social structures dissolve once the autocrat is removed frequently surprises American Policy makers.
+ - And I have no doubt that the American people generally believe the world is safer, and that we are safer, when we are stronger.
+ - I’m a political scientist and I study these things, and I know that economic problems, with the rising unemployment and inflation and low productivity and so forth, were a factor in that election, in that defeat of President Carter.
+ - There is an absolutely fundamental hostility on the part of totalitarian regimes toward religion.
+ - I conclude that it is a fundamental mistake to think that salvation, justice, or virtue come through merely human institutions.
+ - I always assume that democracy is the only good form of government, quite frankly, and democracy is always to be preferred.
+ - Democrats can’t get elected unless things get worse-and things won’t get worse unless they get elected.
+ - We have war when at least one of the parties to a conflict wants something more than it wants peace.
+ - That is simply that Marxism has been tremendously fashionable in our time, so it has infected a very large number of major institutions in many countries of the world. So I suppose that we shouldn’t be too surprised that it should infect the church as well.
+ - All of us confront limits of body, talent, temperament. But that is not all. We are, all of us, also constrained by our time, our place, our civilization.
+
+42 quotes

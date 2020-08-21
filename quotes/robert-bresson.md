@@ -1,0 +1,37 @@
+ - Cinematography is a writing with images in mouvement and with sounds.
+ - Cinematography, a military art. Prepare a film like a battle.
+ - The future of cinematography belongs to a new race of young solitaries who will shoot films by putting their last penny into it and not let themselves be taken in by the material routines of the trade.
+ - Unbalance so as to re-balance.
+ - Catch instants. Spontaneity, freshness.
+ - My movie is born first in my head, dies on paper; is resuscitated by the living persons and real objects I use, which are killed on film but, placed in a certain order and projected on to a screen, come to life again like flowers in water.
+ - An old thing becomes new if you detach it from what usually surrounds it.
+ - When a sound can replace an image, cut the image or neutralize it. The ear goes more towards the within, the eye towards the outer.
+ - Let nothing be changed and all be different.
+ - The point is not to direct someone, but to direct oneself.
+ - In the NUDE, all that is not beautiful is obscene.
+ - Cinema, radio, television, and magazines are a school of inattention: people look without seeing, listen without hearing.
+ - Ideally, nothing should be shown, but that’s impossible.
+ - The faculty of using my resources well diminishes when their number grows.
+ - Ten properties of an object, according to Leonardo: light and dark, color and substance, form and position, distance and nearness, movement and stillness.
+ - Practice the precept: find without seeking.
+ - A film is born in my head and I kill it on paper. It is brought back to life by the actors and then killed in the camera. It is then resurrected into a third and final life in the editing room where the dismembered pieces are assembled into their finished form.
+ - Provoke the unexpected. Expect it.
+ - The true is inimitable, the false untransformable.
+ - Empty the pond to get the fish.
+ - Prefer what intuition whispers in your ear to what you have done and redone ten times in your head.
+ - Model. Two mobile eyes in a mobile head, itself on a mobile body.
+ - Bring together things that have not yet been brought together and did not seem predisposed to be so.
+ - Master Precision. Be a precision instrument myself.
+ - It is in its pure form that an art hits hard.
+ - The eye solicited alone makes the ear impatient, the ear solicited alone makes the eye impatient. Use these impatiences. Power of the cinematographer who appeals to the two senses in a governable way. Against the tactics of speed, of noise, set tactics of slowness, of silence.
+ - The crude real will not by itself yield truth.
+ - To create is not to deform or invent persons and things. It is to tie new relationships between persons and things which are, and as they are.
+ - For me, film-making is combining images and sounds of real things in an order that makes them effective. What I disapprove of is photographing things that are not real. Sets and actors are not real.
+ - Be the first to see what you see as you see it.
+ - Nothing more inelegant and ineffective than an art conceived in another art’s form.
+ - Films can only be made by by-passing the will of those who appear in them, using not what they do, but what they are.
+ - Laugh at a bad reputation. Fear a good one that you could not sustain.
+ - Hide the ideas, but so that people find them. The most important will be the most hidden.
+ - Hostility to art is also hostility to the new, to the unforeseen.
+
+35 quotes

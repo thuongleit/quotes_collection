@@ -1,0 +1,65 @@
+ - I say it firmly: France will remain the country of liberty, of movements, of culture. An active, valiant, dynamic country.
+ - The German-French friendship is indispensable for Europe. And I will never let myself be carried away to making statements that would change it.
+ - Mitterrand had a sense for symbols, and he was the first Socialist president since 1958. He wanted to show that there is historical continuity, a connection with the great figures of French history.
+ - Terrorism fuels itself from all kinds of illicit trafficking: drugs, weapons, human beings.
+ - I am attached to the French language. I will defend the ubiquitous use of French.
+ - I am proud to have been capable of giving people hope again.
+ - I commit myself to serve my country.
+ - We have chased away the clouds, the sky is all ‘rose.’
+ - There cannot be prosperity without security.
+ - My real adversary has no name, no face, no party. It will never be elected, yet it governs – the adversary is the world of finance.
+ - Nothing was given to me, nothing was entrusted to me, nothing was assigned to me. Everything I have, I took by right.
+ - I won’t wait until the end of my term to say I made mistakes at the beginning. That’s too late. I will try to adopt the proper behaviour, if the French give me the chance, right from the start.
+ - I’m going to gather all the French people who want change.
+ - To me, it’s important to preserve proximity to the people. I wouldn’t do anything pretentious, and nothing that hurts the people who voted for me. Triumphalism isn’t my thing.
+ - Everyone says Francois Mitterrand had huge charisma. But before he was president they used to call him badly dressed, old, archaic and say he knew nothing about the economy until the day he was elected. It’s called universal suffrage. When you’re elected, you become the person that embodies France.
+ - Between France and Senegal there’s a history. There’s a language that we both speak. There’s a culture that we share and to which both of our peoples have contributed. But beyond our history, beyond our language, beyond the links that have united us for so long, what unites us today is the future.
+ - My dear citizens, fellow citizens, French people, this 6th of May, have just chosen change by bringing me the presidency of the French republic. I feel the honor, which has been given to me and the task, the important task faced beyond – in front of you to serve my country.
+ - No one imposes things on anyone in Europe. That’s not my notion, nor is it my temperament. The EU has always functioned under the banner of respect, equilibrium and trust.
+ - My adversary is the world of finance.
+ - Germany and France are pinning their hopes on young people, in terms of education, science and innovation.
+ - Before you, I engage myself to serve my country with the devotion and the exemplary that this post demands. I understand responsibilities of the job and, as such, I give a republican salute to Nicolas Sarkozy who has led France for 5 years and who deserves all of our respect.
+ - Mandela’s message will never die. It will continue to inspire freedom fighters and give confidence to people who defend just causes and universal rights.
+ - I am for a clear distinction between public and private life. I believe private matters should be regulated in private and I have asked those close to me to respect this.
+ - Europe needs an engine, and the Franco-German motor has provided that when the two nations have converged on important topics during critical periods. But that partnership shouldn’t be a directorate for other EU members.
+ - There’s always a risk when the candidate becomes president: Will he deliver what is expected of him?
+ - I have defended the interests of France at the G8 in Washington; afterwards I was at Chicago to announce the withdrawal of French troops from Afghanistan; I have participated in two European summits, so I have fully respected the engagements I made to the French.
+ - The British have been particularly shy about the issues of financial regulation, and attentive only to the interests of the City – hence their reluctance to see the introduction of a tax on financial transactions and tax harmonisation in Europe.
+ - I don’t like indecent, unearned wealth. But it is legitimate for an entrepreneur who has created something to make a good living.
+ - What is at stake is preserving our relations with the United States. They should not be changed because of what has happened. But trust has to be restored and reinforced.
+ - My mission is to put France back on its feet. The priority is employment. Efforts have to be made, but those efforts must be made fairly.
+ - I could have made a fortune in cheeseburgers, but I finally chose politics.
+ - If I become president, France will not continue with the same policies as under Nicolas Sarkozy – both in domestic policy and in foreign and European policy.
+ - I don’t want to drive the markets crazy. I don’t want to create trouble, but rather order and rules and norms. We have to struggle against financial excesses, those who speculate with sovereign debt, those who develop financial products which have done so much harm.
+ - I gave myself an objective, to be the second president from Correze and finally to be the successor to Francois Mitterrand.
+ - In an election, one needs both hope and audacity.
+ - Austerity need not be Europe’s fate.
+ - I don’t want to leave my successor and my children to pay for France’s debt.
+ - I know where I’m going and I have told the French. I am sure if hope is there, we will be able to put France back on its feet to live better in five years than we do today.
+ - France, after the month of May, will share trust with the current leadership of the United States which, on many subjects, has tended to take useful positions in our view.
+ - Today, Paris is the capital of the world.
+ - I think that France has not made it clear enough recently to our German friends how important it is to introduce euro bonds as a tool against speculation. And how the necessary budget discipline needs to be accompanied by growth.
+ - To be influential in tomorrow’s world, to defend our values and our development model, France needs Europe and Europe needs France.
+ - We’re all taking part in this solidarity. The French, the Germans, just like all the Europeans in the ESM. Let’s stop thinking that there’s only one country who’s going to pay for the others. That’s false.
+ - Not in the constitution, but I would propose a law to the French parliament that provides for reducing the budget deficit year by year, until we have reached a balanced budget by 2017.
+ - I would like a UK fully engaged in Europe, but I can’t decide in place of the British. I see that for the moment they want to be more in retreat.
+ - During a term in office there are highs and lows, but what counts is that the goal is set as well as the means to achieve it, and the force we put into getting results.
+ - I am the president of the youth of France.
+ - Symbols mean a lot in politics. They indicate a will and create new realities.
+ - A large country with such outstanding economic performance as Germany cannot forget that it owes some of its success to demand from other European countries.
+ - What the French want is coherence, stability and justice. If I am in a favorable position today, it’s because my fellow citizens want to make the effort to straighten out the country, and at the same time they want it to be just and equitable.
+ - My obligation, if I become president, is to give another direction to Europe than the one that is being forced upon us today.
+ - The transatlantic relationship is vital for both our countries: France will remain a reliable ally of the United States. Nevertheless, ally does not mean aligned.
+ - As a president I will be like the candidate that I am, a respectful candidate, a rallying candidate, a normal candidate for a normal presidency, at the service of the Republic.
+ - I want to initiate a change in society in the long term.
+ - If we don’t manage to find not just a compromise but a lasting peace agreement, we know perfectly well what the scenario will be. It has a name, it’s called war.
+ - I perfectly understood President Obama’s attitude throughout the French presidential campaign. He had no reason to distance himself from Nicolas Sarkozy. It’s the basic solidarity that leaders who worked together owe to each other.
+ - Is France a northern European export powerhouse, or a Mediterranean indebted and dependent economy? Yes to both.
+ - An education program is, by definition, a societal program. Work should be done at school, rather than at home.
+ - My goal is to put France back on its feet. I have to put this country back on its feet.
+ - Nicolas Sarkozy said he could see a wave rising. For once he was right. The wave’s coming; it’s high, its strong, and it’s going to smack him in the face.
+ - That is now my mission: to provide a European vision of growth, employment, prosperity – in one word, our future.
+ - There are tensions abroad where people don’t understand our attachment to the freedom of speech, we’ve seen the protests, and I would say that in France all beliefs are respected.
+ - Each country has a soul, and France’s soul is equality.
+
+63 quotes

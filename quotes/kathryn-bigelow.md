@@ -1,0 +1,30 @@
+ - War’s dirty little secret is that some men love it. I’m trying to unpack why, to look at what it means to be a hero in the context of 21st century combat.
+ - When I made my first film, I didn’t think of it as directing, so it wasn’t like I set out to become a director.
+ - What’s most galvanizing for me is the opportunity to be topical and relevant and entertaining. That’s the holy grail.
+ - There should be more women directing; I think there’s just not the awareness that it’s really possible.
+ - Something becomes personal when it deviates from the norm.
+ - Those of us who work in the arts know that depiction is not endorsement. If it was, no artist would be able to paint inhumane practices, no author could write about them, and no filmmaker could delve into the thorny subjects of our time.
+ - Films don’t cause violence, people do. Violence defines our existence. To shield oneself is more dangerous than trying to reflect it.
+ - I can’t change my gender, and I refuse to stop making movies.
+ - I’m interested in social commentary.
+ - My movement from painting to film was a very conscious one.
+ - I’d love to just think of myself as a filmmaker, and I wait for the day when the modifier can be a moot point.
+ - Perhaps the only thing in my favor is that I am very tenacious. I don’t take ‘no’ very well.
+ - I think violence in a cinematic context can be, if handled in a certain way, very seductive.
+ - I choose material instinctually – at the heart of it are characters that I feel are fresh and original, and allow for an opportunity to, I suppose, explore uncharted ground.
+ - You never think the universe will reward your first choice – it just doesnt work like that.
+ - War’s dirty little secret is that some men love it.
+ - There will come a time when the world will look back to modern vivisection in the name of science, as they do now to burning at the stake in the name of religion.
+ - Whereas painting is a more rarefied art form, with a limited audience, I recognized film as this extraordinary social tool that could reach tremendous numbers of people.
+ - I don’t know if I thrive in normal life.
+ - There’s really no difference between what I do and what a male filmmaker might do. I mean we all try to make our days, we all try to give the best performances we can, we try to make our budget, we try to make the best movie we possibly can.
+ - One of the elements in the film that really fascinated me was not to look at the world in bi-polar terms of us vs them or east vs west, which was a by-product of the Cold War.
+ - With each project, I’m going for something that makes viewers think, ‘Wow, I’ve never seen a film like this before,’ and later think, ‘Wow, I’ve only seen a film like this once before. I saw it in theaters and am watching it now on Netflix or a similar streaming service.’
+ - Character and emotionality don’t always have to be relegated to quieter, more simple constructs.
+ - My criteria for doing a television series never changed. I wanted more stability, I wanted more of a sense of family, I wanted to do light comedy.
+ - It’s irrelevant who or what directed a movie; the important thing is that you either respond to it or you don’t.
+ - For some individuals – some soldiers, some contractors – combat provides a kind of purpose and meaning beyond which all else potentially pales in comparison.
+ - I don’t believe in censorship in any form.
+ - I’m definitely not drawn to shooting on a stage, I’m just not.
+
+28 quotes

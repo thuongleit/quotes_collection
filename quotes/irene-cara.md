@@ -1,0 +1,35 @@
+ - Take your passion and make it happen.
+ - I’m a woman with a mission. I’ve learned to believe in myself, my vision and to do things the way I want them done.
+ - Your fear seems to hide deep inside your mind.
+ - That first apartment was a big step. It has a lot to do with being independent.
+ - I am very intense. I can’t help it. That’s the way I am. You can’t be in this business without being intense. The pressure and tension get to you; it can’t help but show on you.
+ - I haven’t had a vacation in years. I’d really like to sneak off and just run around on a beach for a while.
+ - My brother, Mario, is in show business and so are all my cousins on my dad’s side. We come from a family of musicians. My grandmother’s sister in Puerto Rico plays five instruments.
+ - The music industry had virtually blacklisted me.
+ - I liked performing, but not the struggle.
+ - Here I found myself in my early 20s, at the height of my career, up against something I was totally powerless against. I had enemies I had never heard of because of this. I certainly didn’t have needles hanging out of my arms, nor did I smoke anything.
+ - If something isn’t working out in one aspect of my career, it’s not any big neurotic, crazy phase for me, it’s just something that I accept, and that’s okay. I’m not going to keep banging my head against the wall.
+ - The situation is not good with the record companies. It’s just not working out, so I don’t plan to record until it’s straightened out. In the meantime I’m happy doing my movies and writing the music for the theme songs, whether I sing them or not.
+ - Cara is not my real name, and I’m not going to tell you what it is. Only because I do live in New York and enough people already know who my parents are.
+ - My fans are grown now. They are not expecting me to do the bubblegum pop I did 20 years ago, even though it was pretty substantive. It was saying more than bubblegum pop says today. I am continuing where I left off.
+ - I was put into this business by my parents as soon as I could walk. I was groomed by them for this business. I didn’t wake up at the early ages of 5 or 6 and say I want to be a star.
+ - All of a sudden, I was hearing stories about how difficult I was to work with, ridiculous rumors about drugs and what a diva I was. I never had to go to rehab or a program.
+ - We have a tendency in this country that when we say Black it automatically means Black Americans. But that’s a big mistake, and that keeps us divided. There are Blacks all over this entire world-even in Africa.
+ - Life has a balance and natural order. I’m not fighting the flow anymore. My career right now is very up. It’s happening naturally and it’s happening well.
+ - This has been a long and tiring battle for 10 years. And I’m glad it’s finally resolved. My principles and reputation as a creative artist were involved here-it wasn’t just about the royalties. I can now look foward to getting on with my career.
+ - When I act, I act. When I sing, I sing. I don’t put one over the other. Entertaining is what I do best.
+ - It got to a point of where it was ruining my health and I just hated it. I hated doing it and I couldn’t stop without some kind of help to get the longing for it out of my system.
+ - I’ll never be that trusting again, believing accountants and lawyers have my best interests at heart.
+ - I play piano and write better than I can sing.
+ - I refuse to let anybody try to typecast me. It’s against my nature. I like to continually do different things.
+ - It’s important for me to get back to my fans here and around the world. I feel very, very blessed that so many people have continued to write me and to pour out their love for me and my work.
+ - I’ll be gray by the time I’m 30, but I like my hair. It looks shiny. I like the way it looks when those highlights are picked up on camera.
+ - I’ve had my bubblegum years and I did them well. Now it’s time to come back as the woman, artist, and musician that I am without apologizing.
+ - I have a pleasant voice, but I have no great range. I will say that I know how to make a song come alive and I guess I do have a sincerity that comes across. But I do alot of things better than sing.
+ - I knew early in life that I wanted a show business career.
+ - My mother always wanted to be in show business, but her parents discouraged her. So when I started performing for the mirror she enrolled me in dancing, singing and piano lessons.
+ - I didn’t have to go to school, graduate and then go, What am I going to do? I knew from the beginning.
+ - I don’t mean to sound immodest, but I never had any doubt that I’d be successful, nor any fear of success. I was raised as a little goddess who was told she would be a star.
+ - I had been performing since I was 5, so it wasn’t like I hadn’t been on a stage before. I was always older than my age. That’s my nature. I’ve always been a kind of mature kid.
+
+33 quotes

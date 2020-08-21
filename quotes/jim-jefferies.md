@@ -1,0 +1,26 @@
+ - Do you think pandas know they’re Chinese and they’re taking the one child policy a bit too seriously?
+ - The thing about crazy people; they don’t know they are crazy, that’s what make them crazy.
+ - Can’t punch women in the face!
+ - We have a drinking game in Australia, it’s called drinking.
+ - Nobody cares that you’re smart and nobody cares that your kids don’t have bruises.
+ - Every comedian is just doing the comedy they find funny. This is me and it’s not clean in any way. I could get a lot more work on TV playing clean but it’s never interesting.
+ - God built the world, but he did not know it was round.
+ - I don’t write my standup on paper or anything; but I just organically do it on stage, have an idea, chat it up a little bit. I’m keeping notes. I’m trying to keep up with this world and try to bring out a special every year.
+ - I think only things that are personal to us offend us. It’s always bizarre when people who would normally laugh at an AIDS joke won’t laugh at a cancer joke, but far more people know somebody who’s died from cancer.
+ - I’ve never been the type of guy that had a lot of friends or was part of the cool group.
+ - Before doing stand-up, I thought acting was easy – it’s not easy. It’s a hard life. It’s easy in its own way, you just stand there and talk. But there is a difference between people who can do it well and people who can’t.
+ - No matter how successful I got, my mother still thinks I’m a bad person, basically.
+ - I don’t want people to leave the show being upset. So if I am trying to do a new joke, and sometimes I will talk about things like gun control or hostile massacre and I notice people being upset I will change the direction.
+ - Stand-up is just me trying to be as funny as possible in the most concentrated hour with me standing on stage with no storyline, no plot line, and no character development.
+ - Christians are like a thirteen year old kid who still believes in Santa.
+ - I was 13 when I was started questioning and 16 when I stopped believing in God.
+ - I wouldn’t perform in front of the Nazis. I hear they didn’t take freedom of speech too well. It would be a fun gig to rip into them, but I don’t think the ending would be great for me.
+ - There’s a lot of guys up there who like wearing a suit or try doing jokes that they think will play to a certain crowd, or maybe get them corporate work. I’ve always written jokes that I would want to hear. So, I’m trying to entertain myself more than anything.
+ - Because of the way I’ve made my money or the way I’ve conducted myself in public to get success, it doesn’t make me any better a person. So I always thought money and achievement would make me a more legitimate person, where my family seems to think it’s all about actions.
+ - I don’t think I’ve ever prayed in my entire life, never sat and had an imaginary chat with God.
+ - Myself and Jamie Moffat did not agree on everything but he always knew I had the experience.
+ - I have tried reading the Bible but that’s a tough read there. I watch a lot of religious documentaries. I have a keen interest in religion for someone who’s not religious.
+ - Having your own show, where you’re not in trouble all the time, because you’re kind of the boss, is a wonderful experience. If I made mistakes everyone was very nice to me.
+ - I definitely think the formula to making my character seem sweet is to let him act like a jerk, give him a redeeming moment, and have a sweet song playing over the background when it happens.
+
+24 quotes

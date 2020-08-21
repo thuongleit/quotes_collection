@@ -1,0 +1,22 @@
+ - Fear invites aggression – do not show it to a predator.
+ - In the heat of battle, heroes emerge, sometimes from the most unlikely of sources.
+ - Wounds make better lessons than lectures.
+ - Facts mean nothing when they are preempted by appearance. Do not underestimate the power of impression over reality.
+ - There is no man so blind as one who has made up his mind.
+ - It is astonishing how foolish humans can be in groups, especially when they follow their leader without question.
+ - How will I be remembered by my children? This is the true measure of a man.
+ - Let pressure pass over and through you. That way you can’t be harmed by it.
+ - Let the future remain uncertain, for that is the canvas to receive our desires.
+ - The first step in innovation is to know that a thing can be created. After that, the rest is a matter of detail.
+ - Opportunities are a tricky crop, with tiny flowers that are difficult to see and even more difficult to harvest.
+ - An ignorant friend is worse than a learned foe.
+ - Humans are different in private than in the presence of others. While the private persona merges into the social persona in varying degrees, the union is never complete. Something is always held back.
+ - Freedom is an elusive concept. Some men hold themselves prisoner even when they have the power to do as they please and go where they choose, while others are free in their hearts, even as shackles restrain them.
+ - Any school for free citizens must begin by teaching distrust, not trust. It must teach questioning, not acceptance of stock answers.
+ - Simplicity is the most difficult of all concepts.
+ - Life is filled with tests, one after another, and if you don’t recognize them, you are certain to fail the most important ones.
+ - The more tightly packed the group, the greater the need for strict social ranks and orders.
+ - The man who sees an opportunity and does nothing is asleep with his eyes open.
+ - No person can ever know everything that is in the heart of another. We are all Face Dancers in our souls.
+
+20 quotes

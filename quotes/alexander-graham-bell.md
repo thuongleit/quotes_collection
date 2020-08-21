@@ -1,0 +1,40 @@
+ - Before anything else, preparation is the key to success.
+ - When one door closes, another opens; but we often look so long and so regretfully upon the closed door that we do not see the one which has opened for us.
+ - Concentrate all your thoughts upon the work at hand. The sun’s rays do not burn until brought to a focus.
+ - The only difference between success and failure is the ability to take action.
+ - With every door that closes a new one opens.
+ - What this power is I cannot say; all I know is that it exists and it becomes available only when a man is in that state of mind in which he knows exactly what he wants and is fully determined not to quit until he finds it.
+ - The achievement of one goal should be the starting point of another.
+ - A man, as a general rule, owes very little to what he is born with – a man is what he makes of himself.
+ - The day will come when the man at the telephone will be able to see the distant person to whom he is speaking.
+ - Observe, Remember, Compare.
+ - The most successful men in the end are those whose success is the result of steady accretion.
+ - We are all too much inclined, I think, to walk through life with our eyes shut. There are things all round us and right at our very feet that we have never seen, because we have never really looked.
+ - Night is a more quiet time to work. It aids thought.
+ - Great discoveries and improvements invariably involve the cooperation of many minds.
+ - First words on the first telephone – “Mr. Watson – come here – I want to see you.”
+ - The telephone will be used to inform people that a telegram has been sent.
+ - Leave the beaten track behind occasionally and dive into the woods.
+ - Great discoveries and improvements invariably involve the cooperation of many minds. I may be given credit for having blazed the trail, but when I look at the subsequent developments I feel the credit is due to others rather than to myself.
+ - Sometimes we stare so long at a door that is closing that we see too late the one that is open.
+ - One day every major city in America will have a telephone.
+ - Man is an animal which, alone among the animals, refuses to be satisfied by the fulfillment of animal desires.
+ - There cannot be mental atrophy in any person who continues to observe, to remember what he observes, and to seek answers for his unceasing hows and whys about things.
+ - I have travelled around the globe. I have seen the Canadian and American Rockies, the Andes, the Alps and the Highlands of Scotland, but for simple beauty, Cape Breton outrivals them all!
+ - You cannot force ideas. Successful ideas are the result of slow growth. Ideas do not reach perfection in a day, no matter how much study is put upon them.
+ - Don’t keep forever on the public road, going only where others have gone and following one after the other like a flock of sheep. Leave the beaten track occasionally and dive into the woods.
+ - I have always considered myself as an Agnostic...
+ - Wherever you may find the inventor, you may give him wealth or you may take from him all that he has; and he will go on inventing. He can no more help inventing that he can help thinking or breathing.
+ - One day there will be a telephone in every major city in the USA.
+ - God has strewn our paths with wonders and we certainly should not go through life with our eyes shut.
+ - The nation that secures control of the air will ultimately control the world.
+ - Neither the Army nor the Navy is of any protection, or very little protection, against aerial raids.
+ - America is a country of inventors, and the greatest of inventors are the newspaper men.
+ - Ordinary people who know nothing of phonetics or elocution have difficulties in understanding slow speech composed of perfect sounds, while they have no difficulty in comprehending an imperfect gabble if only the accent and rhythm are natural.
+ - Man is the result of slow growth; that is why he occupies the position he does in animal life. What does a pup amount to that has gained its growth in a few days or weeks, beside a man who only attains it in as many years.
+ - I have had the feeling that a properly constructed flying-machine should be capable of being flown as a kite; and conversely, that a properly constructed kite should be capable of use as a flying-machine when driven by its own propellers.
+ - There are two critical points in every aerial flight-its beginning and its end.
+ - Washington is no place in which to carry out inventions.
+ - The final result of our researches has widened the class of substances sensitive to light vibrations, until we can propound the fact of such sensitiveness being a general property of all matter.
+
+38 quotes

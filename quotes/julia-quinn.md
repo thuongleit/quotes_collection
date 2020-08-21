@@ -1,0 +1,103 @@
+ - Don’t settle. Know what you want and reach for it. And if you don’t know what you want, be patient. The answers will come to you in time, and you may find that your heart s desire has been right under your nose all the while.
+ - My mother is convinced that yellow is a happy color and that a happy girl would get a husband. -Penelope Featherington.
+ - In every life there is a turning point. A moment so tremendous, so sharp and clear that one feels as if one’s been hit in the chest, all the breath knocked out, and one knows, absolutely knows without the merest hint of a shadow of a doubt that one’s life will never be the same.
+ - I love you with everything I am, everything I’ve been, and everything I hope to be. I love you with my past, and I love you for my future. I love you for the children we’ll have and for the years we’ll have together. I love you for every one of my smiles and even more, for every one of your smiles.
+ - You have to live each hour as if it’s your last and each day as if you were immortal. – Kate Sheffield.
+ - I can imagine no greater bliss than to lie about, reading novels all day.
+ - A lot could happen in a week. Just look at the last one.
+ - Everyone has secrets. Especially me.
+ - Society is capricious and rewards the bad as often as the good. But it never rewards the quiet.
+ - The Smythe-Smith musicale. Thankfully, it came around just once per year, because Hyacinth was quite certain it would take a full twelve months for her ears to recover.
+ - Tell me something wicked.
+ - Men. The day they learned to admit to a mistake was the day they became women.
+ - It has oft been said that physicians make the worst patients, but it is the opinion of This Author that any man makes a terrible patient. One might say it takes patience to be a patient, and heaven knows, the males of our species lack an abundance of patience.
+ - For me, the dialogue is the easiest part of writing. It just always seems so obvious what a character will say. Maybe its because I talk too much!
+ - When a man writes a romance, the woman dies. When a woman writes one, it ends all tidy and sweet.
+ - Deep inside, she knew who she was, and that person was smart and kind and often even funny, but somehow her personality always got lost somewhere between her heart and her mouth, and she found herself saying the wrong thing or, more often, nothing at all.
+ - Love’s about finding the one person who makes your heart complete. Who makes you a better person than you ever dreamed you could be. Its about looking in the eyes of your wife and knowing all the way to your bones that she’s simply the best person you’ve ever known.
+ - She was petite, small in that way that made a man want to slay dragons.
+ - He sighed, wondering how his life had been turned upside down by this woman in less than forty-eight hours. Correction: by this woman, a pig, and a rabbit.
+ - Daniel held himself very still, waiting for the wave of jealousy that never came. He was furious with the man who’d taken advantage of her innocence, but he did not feel jealous. He did not need to be her first, he realized. He simply needed to be her last. Her only.
+ - Men are sheep. Where one goes, the rest will soon follow. -Lady Whistledown.
+ - He smiled, and suddenly she knew that his words were true. Everything would be all right. Maybe not today and maybe not tomorrow, but soon. Tragedy couldn’t coexist in a world with one of Colin’s smiles.
+ - And I hope you will not think me foolish when I also extend my thanks. Thank you, Michael, for letting my son love her first. – from Janet Stirling, dowager Countess of Kilmartin, to Michael Stirling, Earl of Kilmartin.
+ - You always get more respect when you don’t have a happy ending.
+ - Because if he looked like he was unaffected by her smile, then she would not realize that, in actuality, he was in an utter panic because somewhere deep down inside he’d realized that his life had just changed forever.
+ - She could not bear the thought. She simply could not bear the thought that she might somehow prove to her grandfather that her mother had indeed been a fool and her father had been a damned fool and that she was the damnedest fool of them all.
+ - He was the firstborn Bridgerton of a firstborn Bridgerton of a firstborn Bridgerton eight times over. He had a dynastic responsibility to be fruitful and multiply.
+ - And so Harry became proficient in the task of cleaning up vomit.
+ - He’d been waiting for a love fraught with passion and drama; it hadn’t even occurred to him that true love might be something that was utterly comfortable and just plain easy.
+ - I can’t imagine a romance novel published today where the hero rapes the heroine and she falls in love with him.
+ - When the dead body said, “Good evening,” Annabel had to face the grim conclusion that it wasn’t as dead as she’d hoped.
+ - She tried to remind herself that beauty was only skin deep, but that didn’t offer any helpful excuses when she was berating herself for never knowing what to say to people. There was nothing more depressing than an ugly girl with no personality.
+ - To say that men can be bullheaded would be insulting to the bull.
+ - To this day, The Duke and I remains particularly close to my heart; I felt it was the novel in which my writing took a huge leap forward.
+ - I vow to spend the rest of my life keeping your hands and feet warm.
+ - Suddenly it was too hard to be in his presence, too painful to know that he would belong to someone else.
+ - It was heaven. Forget angels, forget St. Peter and glittering harpsichords. Heaven was a dance in the arms of one’s true love.
+ - It’s only through sheer force and luck that she’s yet to take over the world.
+ - I have to tell you it was the first time even after all these years of expecting my own death that i truly knew what it meant to die because with you gone there was nothing left for me to live for.
+ - Watch over Honoria, will you? See that she doesn’t marry an idiot.
+ - She’d met Colin on a Monday. She’d kissed him on a Friday. Twelve years later. She sighed. It seemed fairly pathetic.
+ - And for the rest of the night, he couldn’t quite forget the smell of her perfume. Or maybe it was the soft sound of her chuckle. Or maybe it was neither of those things. Maybe it was just her.
+ - There was a certain history to this. While heavily pregnant with Amelia, she had asked him if she was radiant or if she just looked like a waddling duck. He told her she’d looked like a radiant duck. This had not been the correct answer.
+ - She needed him to be him. Even if he could not be hers.
+ - Francesca: It’s still a bit cold yet. Michael: Never stopped John and me. Francesca: Yes, well, you’re Scottish. Your blood circulates quite well half frozen.
+ - Every unmarried man is looking for a wife. They just don’t always know it.
+ - She hated that she was still so desperate for a glimpse of him, but it had been this way for years.
+ - In her heart she longed for this man, dreamed of a life that could never be.
+ - Don’t tell me your name. It’s likely to awaken my conscience, and that’s the last thing we want.
+ - I didn’t think I should die but I did not know how I would Live.
+ - This thing between them, this bond – it wasn’t just passion, and it wasn’t wicked. It was love, and it was divine.
+ - Heartache, Daphne eventually learned, never really went away; it just dulled. The sharp, stabbing pain that one felt with each breath eventually gave way to a blunter, lower ache – the kind that one could almost – but never quite – ignore.
+ - Am I not allowed to have my pride? Or is that an emotion reserved for the elite?
+ - There were a lot of things in life to be afraid of, but strangeness ought not be among them.
+ - It’s the curse of motherhood. You’re required to love us even when we vex you.
+ - You don’t always have to kiss a lot of frogs to recognize a prince when you find one -Henrietta Barett.
+ - Any man, you’ll soon learn, has an insurmountable need to blame someone else when he is made to look a fool.
+ - In his heart, she’d been smiling for him. But now she was smiling at Colin Bridgerton, he of the famous charm and sparkling green eyes.
+ - There are moments in a woman’s life when her heart flips in her chest, when the world suddenly seems uncommonly pink and perfect, when a symphony can be heard in the tinkle of a doorbell.
+ - If he was planning to attack and ravish, he gave no indication of being in a hurry to do so.
+ - Did you know I dream about your hair? I use to say it was the color of the sun at sunset, but I’m wrong. It’s brighter than the sun, just as you are.
+ - It was juvenile, he knew, this need to assign blame, but everyone had a right to childish emotions from time to time, didn’t they?
+ - He loved her. He wanted her. He needed her. And he needed her now.
+ - As his hands moved to his trousers, he saw that she was pulling the bedsheets over her. “Don’t,” he said, barely recognizing his own voice. Her eyes met his, and he said, “I’ll be your blanket”.
+ - A man with charm is an entertaining thing, and a man with looks is, ofcourse, a sight to behold, but a man with honor – ah, he is the one, dear reader, to which young ladies should flock.
+ - Just be quiet and accept the praise.
+ - Nothing like trapping the gentlemen where they couldn’t get away.
+ - It was one of those things that had to be experienced to be understood.
+ - But she was already in. Gareth couldn’t help but stand back in admiration. Hyacinth Bridgerton was clearly a natural born athlete. Either that or a cat burglar.
+ - Caroline Trent hadn’t meant to shoot Percival Prewitt, but she had, and now he was dead. Or at least she thought he was dead.
+ - Weakness never got anyone anywhere.
+ - It was a damned good thing men couldn’t have children. Gregory took no shame in admitting that the human race would have died out generations earlier.
+ - There were rules among friends, commandments, really, and the most important one was Thou Shalt Not Lust After Thy Friend’s Sister.
+ - Happy endings are all I can do. I wouldn’t know how to write anything else.
+ - Anthony looked down at his evil clutches – hands, he reminded himself, hands – and grinned anew.
+ - His brows rose. “And how is it that you have come to be such an expert on scrapes and bruises?” “I’m a governess,” she said. Because really, that ought to be explanation enough.
+ - No man of any intelligence would pretend to know a female mind.
+ - This has to be the most self-centered thing I’ve ever said, but no, I think you just wanted to vex me.
+ - And if you say that’s because you lot barged into her home like a herd of mentally deficient sheep, I’m disowning all three of you.
+ - He didn’t know where the thought had come from, or what strange corner of his brain had come to that conclusion, because he was quite certain it would be nearly impossible to live with her, but somehow he knew that it wouldn’t be at all difficult to love her.
+ - It was the one dream he’d never permitted himself to consider.
+ - I would give the world to have one more person for whom I would lay down my life.
+ - Colin decided then and there that the female mind was a strange and incomprehensible organ – one which no man should even attempt to understand. There wasn’t a woman alive who could go from point A to B without stopping at C, D, X, and 12 along the way.
+ - The ranks of society are once again filled with Ambitious Mamas, whose only aim is to see their Darling Daughters married off to Determined Bachelors.
+ - There was a huge difference between dislike and disregard.
+ - I keep waiting for the day in which everyone who loves Downton Abbey will realize they were actually watching a historical romance novel.
+ - He was a puzzle. And Hyacinth hated puzzles. Well, no, in truth she loved them. Provided, of course, that she solved them.
+ - She had been born for this man, and she had spent so many years trying to accept the fact that he had been born for someone else...
+ - A man’s got to keep up appearances. I’ll be universally detested if everyone realizes how perfect you are.
+ - James started to laugh. His chin hurt where she’d smacked him twice, his foot throbbed where she’d stepped on it, and his entire body felt as if he’d swum through a rosebush, which wasn’t as far off the truth as it sounded. Yet still he started to laugh.
+ - I was told once that the most important part of a fight is making sure your opponent looks worse than you do when you’re through.
+ - Love was the best present of all...
+ - Olivia: You didn’t even know I was there! Harry: Excuse me, yes I did.
+ - The biggest challenge of my career, which is something that authors of genre fiction face all the time, is writing something fresh and new and at the same time meeting reader expectations.
+ - No one knows as well as I how much nonsense is printed in books.
+ - Before she knew what she was about, she was jumping about like a crazy woman, yelling, “Yes! Yes! I win!” “You don’t win,” Anthony snapped. “Oh, it feels like I’ve won,” she reveled.
+ - Elizabeth, you resemble nothing so much as a hen trying to hatch a book.
+ - If one didn’t have love, was it better, then, to be alone?
+ - I knew nothing but love and devotion when I was growing up. Trust me, it makes everything easier.
+ - But when Anthony kissed her, she felt as if she were losing her mind. And when he kissed her twice, she wasn’t even sure if she wanted it back!
+ - Most fiction series are written so that the reader can come in at any point and not feel lost, but if you can start at the beginning, why not?
+
+101 quotes

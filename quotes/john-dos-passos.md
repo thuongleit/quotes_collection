@@ -1,0 +1,57 @@
+ - Individuality is freedom lived.
+ - Breaking with old friends is one of the most painful of the changes in all that piling up of a multitude of small distasteful changes that constitutes growing older.
+ - We work to eat to get the strength to work to eat to get the strength to work.
+ - I’ve always thought you should concentrate on paddling your own canoe.
+ - War is utter damn nonsense, a vast cancer fed by lies and self seeking malignity on the part of those who don’t do the fighting.
+ - People don’t choose their careers; they are engulfed by them.
+ - Love is cheap. You can buy it anywhere. Lives are cheap. It’s money that’s dear. You have to work days and sit up nights thinking how to make money.
+ - The terrible thing about having New York go stale on you is that there’s nowhere else. It’s the top of the world.
+ - Apathy is one of the characteristic responses of any living organism when it is subjected to stimuli too intense or too complicated to cope with. The cure for apathy is comprehension.
+ - Git an eyeful of cesspool alley the land of opportunity.
+ - Women alone always order sole. It means something.
+ - When the typewriter stops in a New York office everybody’s embarrassed; men start to quarrel or to make love to the stenographer or drop lighted cigarettes in the wastebasket.
+ - The world’s becoming a museum of socialist failures.
+ - The mind cannot support moral chaos for long. Men are under as strong a compulsion to invent an ethical setting for their behavior as spiders are to weave themselves webs.
+ - When I was a kid I used to tell myself the moon was a silver gong and if I could climb high enough to beat on it with both hands all my wishes would come true.
+ - The business of a novelist is, in my opinion, to create characters first and foremost, and then to set them in the snarl of the human currents of his time, so that there results an accurate permanent record of a phase of history.
+ - If I were sufficiently romantic I suppose I’d have killed myself long ago just to make people talk about me. I haven’t even got the conviction to make a successful drunkard.
+ - Display advertising and the movies, though they may dull the wits, certainly stimulate the eyes.
+ - To fight oppression, and to work as best we can for a sane organization of society, we do not have to abandon the state of mind offreedom. If we do that we are letting the same thuggery in by the back door that we are fighting off in front of the house.
+ - Marxism has not only failed to promote human freedom, it has failed to produce food.
+ - There are too many “creative writing” courses and seminars, in which young wirters are constantly being taught to rewrite the previous generation. They should be experimenting on their own. Every writer faces different problems which he must solve for himself.
+ - I do a lot of revising. Certain chapters six or seven times. Occasionally you can hit it right the first time. More often, you don’t.
+ - Women is fine once you got em pinned down, boss, but when they ain’t pinned down they’re hell.
+ - It is a most curious experience for a man of seventy-two to be confronted with the greenhorn enthusiasms of his youth. Young people think they are so smart. Alas the doctrines they spout with such fervor turn out to be mostly parroted from their elders.
+ - I never see the dawn that I don’t say to myself perhaps.
+ - Shakespeare wouldn’t have been any good if he’d stayed in Stratford. He had to go to London to be bathed in the full current of the Renaissance.
+ - The mind of a generation is its speech. A writer makes aspects of that speech enduring by putting them in print. He whittles at the words and phrases of today and makes of them forms to set the mind of tomorrow’s generation. That’s history. A writer who writes straight is the architect of history.
+ - It’s easy to forget how central the French people are in everything we mean when we say Europe.
+ - The creation of a world view is the work of a generation rather than of an individual, but we each of us, for better or for worse, add our brick to the edifice.
+ - I think the satirist is always basically optimistic. The satirist’s complaint about society is always that it doesn’t measure up to a fairly high ideal he has. I think that even the bitterest satirist, even a man like Swift, was probably rather an optimist at heart.
+ - Time has an undertaking establishment on every block and drives his coffin nails faster than the steam riveters rivet or the stenographers type or the tickers tick out fours and eights and dollar signs and ciphers.
+ - Humanity has a strange fondness for following processions. Get four men following a banner down the street, and, if that banner is inscribed with rhymes of pleasant optimism, in an hour, all the town will be afoot, ready to march to whatever tune the leaders care to play.
+ - It’s almost worth having been in the army for the joy your freedom gives you.
+ - A satirist is a man whose flesh creeps so at the ugly and the savage and the incongruous aspects of society that he has to express them as brutally and nakedly as possible in order to get relief.
+ - That’s the great danger of sectarian opinions, they always accept the formulas of past events as useful for the measurement of future events and they never are, if you have high standards of accuracy.
+ - Life is to be used, not just held in the hand like a box of bonbons that nobody eats.
+ - Anything that happens to you has some bearing upon what you write.
+ - Curiosity urges you on-driving force.
+ - A man is never more his single separate self than when he sets out on a journey.
+ - What’s the use, there never was a woman living who could understand political ideas.
+ - A novel is a commodity that fulfills a certain need; people need to buy daydreams like they need to buy ice cream or aspirin or gin. They even need to buy a pinch of intellectual catnip now and then to liven up their thoughts...
+ - A curious thing about atrocity stories is that they mirror, instead of the events they purport to describe, the extent of the hatred of the people that tell them. Still, you can’t listen unmoved to tales of misery and murder.
+ - There is a part of me in every character, naturally. That’s why novelists rarely write good autobiographies. You start one and it becomes another novel.
+ - A man’s got to work for more than himself and his kids to feel right.
+ - If there is a special Hades for writers is would be in the forced contemplation of their own works.
+ - Great works of the imagination are not produced quickly nor do they take quick effect on the popular mind.
+ - Letters are largely written to get things out of your system.
+ - Talk is a pure art. Its only limits are the patience of listeners who, when they get tired, can always pay for their coffee or change it with a friendly waiter and walk out.
+ - But what’s the good of freedom? What can you do with it? What one wants is to live well and have a beautiful house and be respected by people.
+ - In certain savage tribes in New Guinea, they put the old people up in the trees and shake them once a year in the spring; if they don’t fall out they let them live another year.
+ - The only way to find out anything about what kinds of lives people led in any given period is to tunnel into their records and to let them speak for themselves.
+ - It’s rather grisly, isnt it, how soon a living man becomes nothing more than a collection of stocks and bonds and debts and real estate?
+ - Walt Whitman’s a hell of a lot more revolutionary than any Russian poet I’ve ever heard of.
+ - Mealtime’s the only time I get to devote to the things of the spirit.
+ - Democracy evolves where freedom is able to determine its own policy.
+
+55 quotes

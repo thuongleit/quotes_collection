@@ -1,0 +1,303 @@
+ - One of the most sincere forms of respect is actually listening to what another has to say.
+ - Revolution starts in the mind. Question everything!
+ - Quit saying you don’t have time. You have time for what you make time for in life.
+ - The trees which are pruned, watered and nurtured by caring hands bear the greatest fruits; it is the same with people.
+ - There is a deep interconnectedness of all life on earth, from the tiniest organisms, to the largest ecosystems, and absolutely between each person.
+ - Real transformation requires real honesty. If you want to move forward – get real with yourself.
+ - Acceptance is the road to all change.
+ - When the storm rips you to pieces, you get to decide how to put yourself back together again.
+ - We can change the world one thought at a time, one child at a time, one family at a time, one community at a time, one city, one state and one country at a time.
+ - The world is not fair, and often fools, cowards, liars and the selfish hide in high places.
+ - Change can be beautiful when we are brave enough to evolve with it, and change can be brutal when we fearfully resist.
+ - Giving is the master key to success, in all applications of human life.
+ - An intelligent person is never afraid or ashamed to find errors in his understanding of things.
+ - In a world of hate, love is the revolution.
+ - Rejection is merely a redirection; a course correction to your destiny.
+ - Mean people are really just sad people. They hurt others because they are hurting. Every person is born beautiful, and much of the ugliness in others was put inside of them by other hurting people.
+ - There is no greater intelligence than kindness and empathy.
+ - Don’t abuse yourself or withhold self-love or self-care.
+ - Wake-up! Think for yourself, be yourself and return to what is real.
+ - You cannot save everyone. Some people are going to destroy themselves no matter how much you try to help them.
+ - Love and respect changes everything.
+ - Just because your world is falling apart doesn’t mean you have to fall apart. When everything seems crazy, you be calm. Don’t let the outer chaos you are facing get inside of you.
+ - Know yourself. Be yourself. Love yourself. Seek goodness and be goodness. Seek beauty and be beauty. Seek love and be love.
+ - If you want good things to happen in your life you first have to believe good things are possible for yourself. Quit allowing negative and cynical thinking to get in the way of the good life you deserve.
+ - Abundance is a process of letting go; that which is empty can receive.
+ - Stop your worrying, panicking and stressing. Breathe. Remember, you made it this far through difficulties that seemed impossible. Remember how many times you were saved at the very last minute – this time is no different.
+ - Those who see the world through the lens of love are the true visionaries.
+ - Comfort in expressing your emotions will allow you to share the best of yourself with others, but not being able to control your emotions will reveal your worst.
+ - Within you, you will find everything you need to be complete.
+ - Materialism is an identity crisis.
+ - The more something upsets you, the more it is meant for you. When it no longer upsets you, it is no longer needed because the lesson is complete.
+ - The greatest self is a peaceful smile, that always sees the world smiling back.
+ - Be the love you seek.
+ - True freedom is where an individual’s thoughts and actions are in alignment with that which is true, correct, and of honor – no matter the personal price.
+ - Let the change begin with your choices this very moment.
+ - The feeling of being ‘offended’ is a warning indicator that is showing you where to look within yourself for unresolved issues.
+ - The love and attention you always thought you wanted from someone else is the love and attention you first need to give to yourself.
+ - Life moves forward. The old leaves wither, die and fall away, and the new growth extends forward into the light.
+ - Every positive thought is a silent prayer which will change your life.
+ - Beautiful food and health are priceless.
+ - Every shortcut has a price usually greater than the reward.
+ - Persistence is the most traveled path to success.
+ - When we want to talk, we can instead listen, and let our attentiveness to another’s need to speak be our silent statement.
+ - We must be free, but to have real freedom, you must be wild and free yourself.
+ - No one is more insufferable than he who lacks basic courtesy.
+ - Curiosity is one of the great secrets of happiness.
+ - Become an ambassador of peace in your own life.
+ - Why do we laugh at such terrible things? Because comedy is often the sarcastic realization of inescapable tragedy.
+ - Surrender is not a weakness, or state of inaction, but rather a powerful state of pure energy; the energy of becoming your true purpose.
+ - The master tools of success are invitation, patience, time, gentleness, cooperation, and surrender.
+ - When you surrender and release the illusion of control, you begin to free-fall toward your destiny of a grand reunion with your original-self; a self uncorrupted by the world’s false lessons of fear and control.
+ - It is better to have a fair intellect that is well used than a powerful one that is idle.
+ - Don’t change just so people will like you! Like yourself and your relationships will change. There are people who will love you for – YOU.
+ - Every soul is beautiful and precious; is worthy of dignity and respect, and deserving of peace, joy and love.
+ - We only hurt others because we don’t love ourselves. Learning to truly love yourself changes your relationship with everyone.
+ - Your struggle is your strength. If you can resist becoming negative, bitter or hopeless, in time, your struggles will give you everything.
+ - You can become instantly successful with a simple thought, but long-lasting and pronounced success comes to those who renew their commitment to a mindset of abundance every minute of every hour of every day.
+ - To understand the journey you have to do the walking.
+ - Letting go of your painful past is how you open yourself to a wonderful future.
+ - Let people speak. Let people disagree. Communicate. Listen. Have high-respect, if not for your opponent, then for your own comportment and conduct as a good listener.
+ - When you give others a new chance, a new chance is really being given to you.
+ - We are all students of the world; frail embodied consciousnesses struggling to understand, and be a meaningful part of this great, mysterious gift of life.
+ - We must plant trees, grow gardens instead of lawns, ride bicycles when we can and support responsible local businesses over big brands.
+ - The worst bullies you will ever encounter in your life are your own thoughts.
+ - Cultivating your value proposition in life is the way to move forward. You are the raw material of your own destiny.
+ - Your message means less than the way the message is delivered, because in actuality, the way the message is delivered, IS the message.
+ - If you want your life to be different you have to start reacting to life differently.
+ - Courtesy is a silver lining around the dark clouds of civilization; it is the best part of refinement and in many ways, an art of heroic beauty in the vast gallery of man’s cruelty and baseness.
+ - Courteousness is consideration for others; politeness is the method used to deliver such considerations.
+ - Boundaries and risk management are very important parts of living a healthy and positive life.
+ - You are the artist and the art.
+ - While it is important for people to see your promise you must also remember that hope is the keeper of both happiness and disappointment, the father of both progress and failure.
+ - The folly of endless consumerism sends us on a wild goose-chase for happiness through materialism.
+ - When we try to control, we become controlled; when we release, we become free.
+ - Service heals the recipient and the giver.
+ - You will be a beautiful person, as long as you see the beauty in others.
+ - Remember that the greatest fool in the world may ask more than the wisest man can answer.
+ - In all known time there has never been a greater monster or miracle than the human being.
+ - Giving yourself is the ultimate revolution.
+ - How we treat other people changes them, but even more so, how we treat other people changes us.
+ - You reclaim your power by loving what you were once taught to hate.
+ - Don’t make the mistake of thinking that you have to agree with people and their beliefs to defend them from injustice.
+ - Birth and death; we all move between these two unknowns.
+ - Self-made men often worship their creator.
+ - We must imbue our children with principles of the higher-self, principles which see all people as true equals, and above all, which are sensitive to the delicate and fragile balance of life.
+ - We are all frail-embodied creatures, who at times suffer through injustice, abuse, illness, pain and misfortune.
+ - The struggle is beautiful.
+ - We love most those who we serve most.
+ - We can only save ourselves through elevating our individual consciousness, by realizing there is already completeness within, and exercising as much considerate independence, respect and fairness as is possible.
+ - Success is a spiritual process, not a worldly one.
+ - Dare to believe that good things are possible when you follow your heart.
+ - We must reprogram ourselves to understand that cooperation is a higher principle than competition.
+ - Yearning for the seemingly impossible is the path to human progress.
+ - The deceptive, glossy media images of faces, bodies and social lifestyles, make us hate ourselves so we will buy a solution to love ourselves once again.
+ - The struggle to excavate your true, authentic self from beneath the mountain of conditioning and ridiculous expectation is the epic struggle of your lifetime.
+ - Every moment you are open, as a humble student, you are surrounded with infinite possibilities of choice.
+ - We are here to spend ourselves on others; for each person is a great treasure.
+ - When one learns to focus energy through surrender and sensitivity, they become free, and can access the expansiveness of endless possibility.
+ - Callousness and insolence bring to bare unanimous social condemnation, while the simple efforts of politeness are admired; even in those who are otherwise despised.
+ - Don’t hold together what must fall apart. The familiar life crumbles so the new life can begin.
+ - Extreme nationalism objectifies and dehumanizes those from other countries.
+ - Respectful communication under conflict or opposition is an essential and truly awe-inspiring ability.
+ - It is better to have a meaningful life and make a difference than to merely have a long life.
+ - Hope meets you halfway on a bridge called faith.
+ - All discomfort comes from suppressing your true identity.
+ - You may find many contradictory statements and philosophies within my writings. However, to this I will say such is life, for life is full of contradictions.
+ - Never expect a loan to a friend to be paid back if you want to keep that friend.
+ - Nations and governments come and go, but people remain, and therefore people are the ultimate foundation of what is real and worthy.
+ - A person who makes few mistakes makes little progress.
+ - Wish for the happiness of your enemies, for if they are happy, they are your enemy no more.
+ - Women do not need a knight in shining armor or a Prince Charming to come to their rescue.
+ - We must be kind and gentle gardeners with people and nature.
+ - Suffering is one of life’s great teachers.
+ - Meeting another human is always a sacred event.
+ - Respect is that great spirit of good, which creates the beautiful space giving all souls the simple room to breathe.
+ - Change will never happen when people lack the ability and courage to see themselves for who they are.
+ - If you are really humble you will put yourself first when you need to take care of you.
+ - Where wise actions are the fruit of life, wise discourse is the pollination.
+ - The real violence is committed in the writing of history, the records of the legal system, the reporting of news, through the manipulation of social contracts, and the control of information.
+ - To every soul you encounter, be a mirror, which reflects only their beauty.
+ - Join me in my quest for a greater understanding of our existence. Join me in my desire for a greater self. Join me as I seek the humility to love and understand my fellow man.
+ - When you live positively it is impossible to not also be living for something greater than yourself.
+ - Hate controls everything it touches, but love sets everything it touches free.
+ - Architects of grandeur are often the master builders of disillusionment.
+ - To move forward simply set your intentions, be grateful for what you have, be open to what is possible, and the rest just happens as a beautiful and effortless flow.
+ - People use words to do battle and to hurt one another terribly, tragically and even mortally.
+ - There is something greater than any nation; it is the spirit which created the nation.
+ - Within the hearts men, loyalty and consideration are esteemed greater than success.
+ - As our heart soars, we fly with it! Let love take you places!
+ - Good manners are appreciated as much as bad manners are abhorred.
+ - Like manchurian candidates, we have been made into manchurian consumers, who subconsciously buy when we are triggered by our brand masters.
+ - Command the space of your beingness – a space where you are allowed to grow into your true, unique nature.
+ - Become empty to become complete, for it is the void that defines the form.
+ - The greatest joys in life are found not only in what we do and feel, but also in our quiet hopes and labors for others.
+ - It is better to lose everything you have to keep the balance of justice level, than to live a life of petty privilege devoid of true freedom.
+ - Afford every soul you encounter the wide and free passage they need to give birth to the dear expressions they feel are important.
+ - The supreme lesson of any education should be to think for yourself and to be yourself; absent this attainment, education creates dangerous, stupefying conformity.
+ - If you do not like a certain behavior in others, look within yourself to find the roots of what discomforts you.
+ - There are amazingly wonderful people in all walks of life; some familiar to us and others not. Stretch yourself and really get to know people. People are in many ways one of our greatest treasures.
+ - Freedom is the realization that it is sufficient to simply be a human being.
+ - The only thing you will get from common sense, is a common life. Be uncommon and have uncommon sense.
+ - Want ever so gently. Invite your desires to you like you call a cat. Any aggressive move toward your goals will chase them away.
+ - No time is better spent than that spent in the service of your fellow man.
+ - Some people are so addicted to their misery that they will destroy anything that gets in the way of their fix.
+ - Nationalism as we know it, is the result of a form of state-sponsored branding.
+ - One person really can make a difference. Each person is the revolution.
+ - A person who wants nothing fears nothing.
+ - Your health is a long-range investment that will pay-off when you need it most.
+ - The common person fears to think beyond the common.
+ - Control thought-forms are the basis of our deepest moral crisis.
+ - Human intelligence may not be the best trick nature has to offer.
+ - Lay down your cynicism, and believe in the transformational power of love.
+ - A mistake made by many people with great convictions is that they will let nothing stand in the way of their views, not even kindness.
+ - Once you realize what you really are, you cannot be stopped.
+ - Enthusiasm is the energy and force that builds literal momentum of the human soul and mind.
+ - Do not let your ambitions become a sanctuary for your failures.
+ - Peace for the whole world begins with a smile in your own heart.
+ - Cultivate clarity, strength, vitality and power from natural, beautiful and organic living foods.
+ - The dreamer’s untamed eye sees beyond the illusions to the heart of what is real.
+ - We must quit thinking we know everything, and quit placing “knowledge” over kindness and compassion.
+ - The solution to nearly every problem in the world comes down to greater awareness, compassion, and empathy.
+ - All things are accomplished by the meditative act of releasing illusions and simply becoming.
+ - As free as you allow others to be, such freedom you create for yourself.
+ - The ultimate question of who we are is set before us at all times and answered with every action.
+ - There is little more powerful than when truth joins action.
+ - Let your resistance, judgements, angers and fears inform you.
+ - There are few surer ways to become disliked by men than to perform well where they have performed poorly.
+ - All things are possible through invitation and love.
+ - Let your brilliance be expressed through kindness.
+ - Control is not humble; control is arrogant.
+ - Your attitudes contain your future.
+ - American society will never completely understand the true meaning of equality.
+ - One of the most important things one can do in life is to brutally question every single thing you are taught.
+ - Do not let your grand ambitions stand in the way of small but meaningful accomplishments.
+ - We must strive for literacy and education that teach us to never quit questioning and probing at the assumptions of the day.
+ - Your intelligence is a fire that can illuminate any darkness. Awaken and let your mind burn so brightly! You are alive for a reason!
+ - A polite enemy is just as difficult to discredit, as a rude friend is to protect.
+ - We fake perfect so others don’t have to experience any unpleasant realities, because their life is just as fake as ours.
+ - No belief or idea is sacred, unless it treats all people as sacred.
+ - We create in people through our actions and example. In this way people around us become reflections of our own behavioral patterns and internal energies.
+ - The ability to forgive is one of man’s greatest achievements.
+ - Our understanding of the world around us is constantly being redefined and expanded, and so therefore, it is wiser to be passionate about seeking for truth than knowing it.
+ - Humanity needs heroic leadership from those who see all life as precious.
+ - Nothing GREAT ever happens from thinking SMALL.
+ - One column of truth cannot hold an institution of ideas from falling into ignorance. It is wiser that a person of prudence and purpose save his strength for battles that can be won.
+ - The conflicts we have with the outside world are often conflicts we have within ourselves.
+ - You do not have to do anything to defend yourself in life; just be beautiful, and life will defend you.
+ - People are living books. The real library of life is community.
+ - Want is an empty void – your real value is full and abundant.
+ - Seek for illumination of self, and then the world, through the simple, humble, almighty, supreme virtue of love.
+ - Genius is always accompanied by enthusiasm.
+ - Progress and healing involves seeing every person as not so different from ourselves.
+ - Let go of everything. That is how you get everything; you let go of everything.
+ - True love is quiescent, except in the nascent moments of true humility.
+ - Love softens the hardest edges of life’s tumult.
+ - We must be our own authentically unique truth, and question who we are, what created us, and what processes within us are alien and externally created.
+ - If we fear the unknown then surely we fear ourselves.
+ - The only way is to teach with love, which requires looking beyond what seems, and remembering we create with our judgements.
+ - The real battlefield is the realm of ideas.
+ - The roots of all commonwealth are planted in the understanding that we are all the same human beings.
+ - The nightmare spirit of control has always been, and is, profoundly stupid.
+ - The ignoramus crow of “love it or leave it” omits other viable options, such as staying and changing it.
+ - Truth is not a matter of fact but a state of harmony with progress and hope. Enveloped only in its wings will we ever soar to the promise of our greater selves.
+ - The secret to discovery is to never believe existing facts.
+ - The expansion of your own consciousness, love capacity, humility and compassion – this is the path; this is the way.
+ - Unfortunately, your reputation often rests not on your ability to do what you say, but rather on your ability to do what people expect.
+ - National pride is the culmination of a lifetime public relations campaign of psychological mind-control techniques.
+ - Choose to be pro-active, assertive and self-defining.
+ - There is no happiness outside of ourselves.
+ - If you have not been served personally by caring hands in your own life, do not be bitter, but instead, ask yourself who you can now serve.
+ - The power of getting to know one another is so immense, eclipsed only by first getting to know ourselves.
+ - Every symbol, word, concept, discipline and field is only a temporary rest stop on the highway of discovery.
+ - There are enough resources in the world for everyone.
+ - The world is starving for original and decisive leadership.
+ - Everything comes by being! Be the love you seek. Be the friend you seek. Be the lover you seek. Be the honesty you seek. Be the integrity you seek. Be the patience you seek. Be the tolerance you seek. Be the compassion you seek.
+ - The act of true giving is indistinguishable from receiving.
+ - The most powerful tools of revolution through intention are humility and consciousness.
+ - Source truth exists in greater abundance outside of the symbolic system of words.
+ - Turn towards love, and become love.
+ - The woman must be restored to her rightful place, as the strong, loving maternal leader of peace and reason.
+ - Guilt can interfere with our desires to move forward, to heal properly and to become a person who has the mental health and means of proper recompense.
+ - Positive attitudes qualify you for positive experiences.
+ - If you are competing with slaves, then you are a slave yourself.
+ - By choosing positivity you become a contender for the human spirit giving hope to those in need.
+ - Many an injustice is presented as solution and gift.
+ - It has been my experience that if we make the effort to listen to people when we meet them, and work to get to know them a little, it is then easy to find something likeable in practically anyone.
+ - Food is a part of our contract with life.
+ - The joy and smile of even one child is worth more than the prancing intellects of a thousand men.
+ - If you can be kind to people, you will be a genius in this world.
+ - You cannot save people from themselves. All you can do is stand firmly in your hopes for them, with compassion.
+ - You get most things in life not by taking, but by giving.
+ - Sometimes power is all a person has, so they will protect it even unto their own destruction, for without power they have nothing.
+ - Emotion is often what we rely upon to carry us across the unfathomable voids in our intelligence.
+ - Love is not about others; love is a practice of self-mastery.
+ - You can know something is a lie when it has no love in it.
+ - We are all wealth. We are all treasure. We are the abundance of all things. Spend yourself completely.
+ - Life has a way of shining on people who stand in the sunshine of kind actions.
+ - The master of any craft is first a master of self, cooperating with innate intelligence within.
+ - The test of a belief is not exclusively in the belief itself, but also in the intentions and actions of those who embrace it.
+ - We must each achieve greater individual consciousness and self-knowledge, and project mindful kindness toward everything and everyone.
+ - You have to make the decision to let go of the past if you want to move forward. Reliving your painful past will poison your heart and your tomorrow. If you look at today through the eyes of the past, you can never see what the present moment has to offer.
+ - The best way to win against the intolerable is to tolerate them, for this they have seldom dealt with. Your indulgence may soften their malice and open their eyes to more honorable ways.
+ - If you cannot be open-minded, then you do not possess your ideas, your ideas possess you.
+ - Criticism is no threat to your self-esteem or identity, but rather informs you.
+ - Discovery requires courage and acceptance that we are not in control, and that the future is uncertain.
+ - When trying to teach someone a boundary, they learn less from the enforcement of the boundary and more from the way the boundary was established.
+ - Most people do not actually know how to think for themselves, and unfortunately that prevents them from even knowing it.
+ - Having a sense of purpose is having a sense of self. A course to plot is a destination to hope for.
+ - Evolve your understanding of success from the outer realm of control, materialism, and ego, to the inner realm of surrender, spirituality, and compassion.
+ - Surrender is the path to freedom through our unique authenticity, where we experience the flow of life not through the narrow lens of the mind, but through the vast refuge of the heart.
+ - The master action, to move forward is a form of inaction; being still and quiet.
+ - Wanting anything too desperately is a form of aggression and violence, which will always be met with resistance.
+ - True education is limited to those people who would die without knowing, whereas the masses in the institutions are merely going through the motions, for education is a way of living.
+ - The talent of a true writer and poet is in the ear.
+ - Fanatic is often the name given to people of action by people who are lazy.
+ - People have moments of consciousness and epiphanies throughout their lives, but then suppress the realization.
+ - Truth is often the favorite tool of those who deceive.
+ - Fear is the greatest enemy; the father of all suffering, and love is the only cure for humanity’s great afflictions.
+ - Ambition is not what a man would do, but what a man does, for ambition without action is fantasy.
+ - Any act of violence creates resentment and resistance, because humans were meant to be free.
+ - We can each immediately liberate ourselves as victims in the world, through solidifying an intent to act.
+ - When you focus on want, you become an endless cycle of wants. To get, simply release, and then gently invite.
+ - We do not actually know other people; we only know our judgments.
+ - Many openly show discontentment with their looks, but few with their intelligence. I, however, assure you there are many more plain minds than faces.
+ - In America, educators punish those who actually think for themselves. There is only acceptance for popular opinion.
+ - Love only serves and does not calculate.
+ - Death is the great hope of all life; the desire to expend itself; to be used and consumed by its own longing for itself.
+ - Do you want to know what you are? You are a creator. At every moment you are creating. The real question is, what are you creating?
+ - You will be blessed the moment you realize you already are.
+ - Dare to love every person, including yourself. Become the energy of love.
+ - Being yourself in a world which wants you to be someone else is the highest possible attainment.
+ - The world is starving for leaders who are not afraid to dismantle the sacred and precious beliefs, which hold us as prisoners of the past.
+ - In the company of the accomplished, people hope it will rub off on themselves, in the company of the misfortunate, they fear it!
+ - The realities of the world seldom measure up to the sublime designs of human imagination.
+ - There is no love without forgiveness, and there is no forgiveness without love.
+ - Turn to your community and the great earth for sustenance and knowledge.
+ - The outer world is a reflection of our inner selves.
+ - To have our needs met, to love, to be loved, to feel safe in this world and to each know our purpose, is a simple matter of creating those blessings for others.
+ - Knowledge is that possession that no misfortune can destroy, no authority can revoke, and no enemy can control. This makes knowledge the greatest of all freedoms.
+ - When we are at peace with ourselves the total expression of that true peace includes our outer being; our body.
+ - We believe we are the consumers, but we are the consumed.
+ - Respect is the lifeblood of progress, and the safe harbor of humanity’s great aspirations.
+ - The truth is now as it was yesterday, and as it always will be, that the world is-as we are.
+ - Education should prepare our minds to use its own powers of reason and conception rather than filling it with the accumulated misconceptions of the past.
+ - Humility and full consciousness are inseparable.
+ - The right to justice is something that no one can bestow, nor take away, for it is in one’s heart.
+ - He who is silent must be agreed with, for what shall the wings of opposition thresh upon, without the winds of conversation to shoulder them.
+ - There is a simple path to follow, that appears only when you calm your mind. It leads you on a beautiful journey back to your original self; the perfect, beautiful you.
+ - The art of surrender is the art of getting out of the way of your own growth.
+ - Take without forgetting, and give without remembering.
+ - I have never read for entertainment, but rather for understanding and to satisfy my eager curiosity.
+ - Love heals violence and all its sources. Love only serves and does not calculate. Love gives without expectation, while hate carries an endless tally of debts. Hate controls everything it touches, but love sets everything it touches free.
+ - We must understand that out of community and dialogue, the answers will arrive in their own time and way.
+ - Taking care of yourself is the most powerful way to begin to take care of others.
+ - Let your greatest possession be the ability to let go of any possession, joyfully.
+ - Let us subdue the ravages of the baser-self, and aspire to the higher calling of exalting joy through compassion, for that is the one true purpose of humanity.
+ - When you are not free, you are not creating; you are being created.
+ - You best teach others about healthy boundaries by enforcing yours.
+ - Our creations are the outward expressions of our inner truths.
+ - The true creator-self is a light at heart and free child, who accesses destiny as a simple act of joyful play.
+ - Freedom is not a gift nor does it simply exist for us to have, but rather it is a sacred duty, and its blessed yield of hope is born from none other than the blood of the innocent.
+
+301 quotes

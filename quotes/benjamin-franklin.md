@@ -1,0 +1,502 @@
+ - By failing to prepare, you are preparing to fail.
+ - You can do anything you set your mind to.
+ - Tell me and I forget, teach me and I may remember, involve me and I learn.
+ - An investment in knowledge always pays the best interest.
+ - You may delay, but time will not.
+ - Energy and persistence conquer all things.
+ - Well done is better than well said.
+ - Never leave till tomorrow that which you can do today.
+ - Either write something worth reading or do something worth writing.
+ - Early to bed and early to rise makes a man healthy, wealthy, and wise.
+ - For every minute spent in organizing, an hour is earned.
+ - There are two ways to increase your wealth. Increase your means or decrease your wants. The best is to do both at the same time.
+ - Genius is nothing but a greater aptitude for patience.
+ - The only thing that is more expensive than education is ignorance.
+ - One today is worth two tomorrows.
+ - You will find the key to success under the alarm clock.
+ - When you are finished changing, you're finished.
+ - He that can have patience can have what he will.
+ - Work as if you were to live a thousand years, play as if you were to die tomorrow.
+ - Time is money.
+ - Lost time is never found again.
+ - Blessed is he who expects nothing, for he shall never be disappointed.
+ - Diligence is the mother of good luck.
+ - Practice makes perfect.
+ - What good shall I do this day?
+ - Do not fear mistakes. You will know failure. Continue to reach out.
+ - I didn’t fail the test, I just found 100 ways to do it wrong.
+ - Never ruin an apology with an excuse.
+ - Instead of cursing the darkness, light a candle.
+ - Any society that would give up a little liberty to gain a little security will deserve neither and lose both.
+ - Many people die at twenty five and aren’t buried until they are seventy five.
+ - Love your Enemies, for they tell you your Faults.
+ - An ounce of prevention is worth a pound of cure.
+ - Never confuse Motion with Action.
+ - Being ignorant is not so much a shame, as being unwilling to learn.
+ - When you’re testing to see how deep water is, never use two feet.
+ - He that is good for making excuses is seldom good for anything else.
+ - Justice will not be served until those who are unaffected are as outraged as those who are.
+ - Eat to live, don’t live to eat.
+ - Speak ill of no man, but speak all the good you know of everybody.
+ - Whatever is begun in anger, ends in shame.
+ - Life biggest tragedy is that we get old too soon and wise too late.
+ - How few there are who have courage enough to own their faults, or resolution enough to mend them.
+ - In wine there is wisdom, in beer there is Freedom, in water there is bacteria.
+ - We are all born ignorant, but one must work hard to remain stupid.
+ - If better is possible, good is not enough.
+ - Change is the only constant in life. Ones ability to adapt to those changes will determine your success in life.
+ - Beware of little expenses. A small leak will sink a great ship.
+ - A Penny Saved is a Penny Earned.
+ - Be at war with your vices, at peace with your neighbors, and let every new year find you a better man.
+ - Remember not only to say the right thing in the right place, but far more difficult still, to leave unsaid the wrong thing at the tempting moment.
+ - The heart of a fool is in his mouth, but the mouth of a wise man is in his heart.
+ - It is the working man who is the happy man. It is the idle man who is the miserable man.
+ - One today is worth two tomorrows. Lost time is never found again. Time is money. Dost thou love life? Then do not squander time, for that’s the stuff that life is made of. You may delay, but time will not.
+ - It is the first responsibility of every citizen to question authority.
+ - Contentment makes poor men rich, Discontent makes rich men poor.
+ - Dost thou love life? Then do not squander time, for that’s the stuff life is made of.
+ - They who can give up essential liberty to obtain a little temporary safety deserve neither liberty nor safety.
+ - Thirteen virtues necessary for true success: temperance, silence, order, resolution, frugality, industry, sincerity, justice, moderation, cleanliness, tranquility, chastity, and humility.
+ - Hide not your talents, they for use were made, What’s a sundial in the shade?
+ - Do well by doing good.
+ - Fear God, and your enemies will fear you.
+ - Little strokes fell great oaks.
+ - Reading makes a full man, meditation a profound man, discourse a clear man.
+ - Keep your eyes wide open before marriage, half shut afterwards.
+ - Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight.
+ - A slip of the foot you may soon recover, but a slip of the tongue you may never get over.
+ - To find out a girl’s faults, praise her to her girlfriends.
+ - Happiness depends more on the inward disposition of mind than on outward circumstances.
+ - While we may not be able to control all that happens to us, we can control what happens inside us.
+ - Be slow in choosing a friend, slower in changing.
+ - Those who surrender freedom for security will not have, nor do they deserve, either one.
+ - Who is wise? He that learns from everyone. Who is powerful? He that governs his passions. Who is rich? He that is content. Who is that? Nobody.
+ - A house is not a home unless it contains food and fire for the mind as well as the body.
+ - I wake up every morning at nine and grab for the morning paper. Then I look at the obituary page. If my name is not on it, I get up.
+ - Happiness consists more in small conveniences or pleasures that occur every day, than in great pieces of good fortune that happen but seldom to a man in the course of his life.
+ - Humility makes great men twice honorable.
+ - The Constitution only guarantees the American people the right to pursue happiness. You have to catch it yourself.
+ - There was never a bad peace or a good war.
+ - Trouble knocked at the door, but, hearing laughter, hurried away.
+ - The wise man draws more advantage from his enemies than the fool from his friends.
+ - An investment in knowledge pays the best interest. When it comes to investing, nothing will pay off more than educating yourself. Do the necessary research, study and analysis before making any investment decisions.
+ - If a man empties his purse into his head, no one can take it from him.
+ - The learned fool writes his nonsense in better language than the unlearned, but it is still nonsense.
+ - A good conscience is a continual Christmas.
+ - Wish not so much to live long as to live well.
+ - I am what I am and that’s all that I am and if I’m supposed to be somebody else, why do I look like me?
+ - If you do tomorrow what you did today, you will get tomorrow what you got today.
+ - Diligence overcomes difficulties; sloth makes them.
+ - Tis a great confidence in a friend to tell him your faults; greater to tell him his.
+ - If a man could have half of his wishes, he would double his troubles.
+ - We must all hang together, or assuredly we shall all hang separately.
+ - Silence is not always a sign of wisdom, but babbling is ever a mark of folly.
+ - Life is a kind of Chess, with struggle, competition, good and ill events.
+ - It is better to let 100 criminals go free than to imprison 1 innocent man.
+ - Wine is constant proof that God loves us and loves to see us happy.
+ - Out of adversity comes opportunity.
+ - Fear not death for the sooner we die, the longer we shall be immortal.
+ - A friend in need is a friend indeed!
+ - Whoever would overthrow the liberty of a nation must begin by subduing the freeness of speech.
+ - If you would not be forgotten, as soon as you are dead and rotten, either write things worth reading, or do things worth writing.
+ - If all printers were determined not to print anything till they were sure it would offend nobody, there would be very little printed.
+ - I look upon death to be as necessary to our constitution as sleep. We shall rise refreshed in the morning.
+ - In the Affairs of this World Men are saved, not by Faith, but by the Lack of it.
+ - Doing your best means never stop trying.
+ - God heals, and the doctor takes the fees. Energy and persistence conquer all things. He that is good for making excuses is seldom good for anything else. How many observe Christ’s birthday! How few, his precepts! Oh, it’s easier to keep Holidays than Commandments. Well done is better than well said.
+ - My refusing to eat meat occasioned inconveniency, and I have been frequently chided for my singularity. But my light repast allows for greater progress, for greater clearness of head and quicker comprehension.
+ - There will be plenty of time to sleep once you are dead.
+ - The person who deserves most pity is a lonesome one on a rainy day who doesn’t know how to read.
+ - There are three types of people in the world: Those who are immovable, people who don’t get it, or don’t want to do anything about it; there are people who are movable, people who see the need for change and are prepared to listen to it; and there are people who move, people who make things happen.
+ - Flesh eating is unprovoked murder.
+ - The best of all medicines is resting and fasting.
+ - Many dishes many diseases, Many medicines few cures.
+ - Success is the residue of planning.
+ - If Jack’s in love, he’s no judge of Jill’s beauty.
+ - If you want something done, ask a busy person.
+ - How many observe Christ’s birthday! How few, His precepts!
+ - A long life may not be good enough, but a good life is long enough.
+ - No gains without pains.
+ - Money makes money. And the money that makes money makes more money.
+ - When in doubt, don’t.
+ - A policy of life insurance is the cheapest and safest mode of making a certain provision for one’s family.
+ - Speak little, do much.
+ - Believe none of what you hear and half of what you see.
+ - Be civil to all; sociable to many; familiar with few; friend to one; enemy to none.
+ - If passion drives you, let reason hold the reins.
+ - There are three things extremely hard: steel, a diamond, and to know one’s self.
+ - A Republic, if you can keep it.
+ - A place for everything, everything in its place.
+ - It takes many good deeds to build a good reputation, and only one bad one to lose it.
+ - Idle hands are the devil’s playthings.
+ - By improving yourself, the world is made better. Be not afraid of growing too slowly. Be afraid only of standing still.
+ - The only certain things in life are death and taxes!
+ - The early morning has gold in its mouth.
+ - All mankind is divided into three classes: those that are immovable, those that are movable, and those that move.
+ - To succeed, jump as quickly at opportunities as you do at conclusions.
+ - Most people die at 25 but are buried at 75.
+ - The borrower is slave to the lender and the debtor to the creditor.
+ - An apple a day keeps the doctor away.
+ - Waste neither time nor money, but make the best use of both.
+ - Watch the pennies and the dollars will take care of themselves.
+ - There will be sleeping enough in the grave.
+ - Distrust and caution are the parents of security.
+ - I was surprised to find myself so much fuller of Faults than I had imagined, but I had the Satisfaction of seeing them diminish.
+ - Democracy is two wolves and a lamb voting on what to have for lunch. Liberty is a well-armed lamb contesting the vote.
+ - Man is a tool-making animal.
+ - Nothing but Money, Is sweeter than Honey.
+ - If you have time don’t wait for time.
+ - Constant dropping wears away stones.
+ - Search others for their virtues, thyself for thy vices.
+ - Take time for all things.
+ - A good example is the best sermon.
+ - Industry, perseverance, and frugality make fortune yield.
+ - Outside Independence Hall when the Constitutional Convention of 1787 ended, Mrs. Powel of Philadelphia asked Benjamin Franklin, “Well, Doctor, what have we got, a republic or a monarchy?” With no hesitation whatsoever, Franklin responded, “A republic, if you can keep it.”
+ - Take a coin from your purse and invest it in your mind. It will come pouring out of your mind and overflow your purse.
+ - What I am to be, I am now becoming.
+ - The problem with doing nothing is not knowing when you’re finished.
+ - We are all born without knowledge, but curious. With curiosity we should be able to learn as much as possible. With curiosity, it has to take a lot of work to remain ignorant.
+ - Anyone can complain, and they should have the right to, but if you want to see change you must act. Actions speak louder than words. Don’t complain about things, change things.
+ - A spoonful of honey will catch more flies than a gallon of vinegar.
+ - Make yourself sheep and the wolves will eat you.
+ - Fart for freedom, fart for liberty – and fart proudly.
+ - A little neglect may breed great mischief.
+ - Creditors have better memories than debtors.
+ - The noblest question in the world is: ‘What good may I do in it?’
+ - Experience keeps a dear school, but fools will learn in no other.
+ - A Brother may not be a Friend, but a Friend will always be a Brother.
+ - If gymnastics were easy, it would be called football. 10% talent, 90% hard workEnergy and persistence conquer all things.
+ - Nothing brings more pain than too much pleasure; nothing more bondage than too much liberty.
+ - Where liberty is, there is my country.
+ - Critics are our friends, they show us our faults.
+ - An education is the investment with the greatest returns.
+ - God heals, and the doctor takes the fees.
+ - The doors of wisdom are never shut.
+ - There is no good war or bad peace.
+ - Tricks and treachery are the practice of fools, that don’t have brains enough to be honest.
+ - Idleness is the Dead Sea that swallows all virtues.
+ - When you are good to others, you are best to yourself.
+ - Hunger never saw bad bread.
+ - He that cannot obey, cannot command.
+ - Common sense without education, is better than education without common sense.
+ - Your net worth to the world is usually determined by what remains after your bad habits are subtracted from your good ones.
+ - The handshake of the host affects the taste of the roast.
+ - Moderation in all things – including moderation.
+ - Lend money to an enemy, and thou will gain him, to a friend and thou will lose him.
+ - Those who beat their swords into plowshares usually end up plowing for those who kept their swords.
+ - Keep conscience clear, then never fear.
+ - Don’t throw stones at your neighbors, if your own windows are glass.
+ - Three may keep a secret, if two of them are dead.
+ - Let each new year find you a better person.
+ - Write your injuries in dust, your benefits in marble.
+ - How do you become better tomorrow? By improving yourself, the world is made better. Be not afraid of growing too slowly. Be afraid of standing still. Forget your mistakes, but remember what they taught you. So how do you become better tomorrow? By becoming better today.
+ - The best thing to give to your enemy is forgiveness; to an opponent, tolerance; to a friend, your heart; to your child, a good example; to a father, deference; to your mother, conduct that will make her proud of you; to yourself, respect; to all others, charity.
+ - Your argument is sound, nothing but sound.
+ - Life is a kind of chess.
+ - To err is human, to repent divine; to persist devilish.
+ - Doing an injury puts you below your enemy; revenging one make you but even with him; forgiving it sets you above him.
+ - The best doctor gives the least medicines.
+ - Games lubricate the body and the mind.
+ - Fools make feasts and wise men eat them.
+ - Common sense is something that everyone needs, few have, and none think they lack.
+ - I would rather have it said, ‘He lived usefully,’ than, ‘He died rich.’
+ - Even peace may be purchased at too high a price.
+ - Order – Let all your things have their places; let each part of your business have its time.
+ - Strict punctuality is a cheap virtue.
+ - At twenty years of age the will reigns; at thirty, the wit; and at forty, the judgment.
+ - Those Who Sacrifice Liberty For Security Deserve Neither.
+ - We need a revolution every 200 years, because all governments become stale and corrupt after 200 years.
+ - The best tranquilizer is a clear conscience.
+ - Then plough deep while sluggards sleep, and you shall have corn to sell and to keep.
+ - Better slip with foot than tongue.
+ - If time be of all things most precious, wasting time must be the greatest prodigality, since lost time is never found again; and what we call time enough always proves little enough. Let us then be up and doing, and doing to a purpose; so by diligence shall we do more with less perplexity.
+ - Hope of gain lessens pain.
+ - Trouble springs from idleness, and grievous toil from needless ease.
+ - Great talkers, little doers.
+ - Death takes no bribes.
+ - Serving God is doing good to man, but praying is thought an easier service and therefore more generally chosen.
+ - The sleeping fox catches no poultry.
+ - The man who trades freedom for security does not deserve nor will he ever receive either.
+ - Tomorrow, every Fault is to be amended; but that Tomorrow never comes.
+ - It is the religion of ignorance that tyranny begins.
+ - A word to the wise is enough, and many words won’t fill a bushel.
+ - Words may show a man’s wit but actions his meaning.
+ - There are many roads to success, but only one sure road to failure; and that is to try to please everyone else.
+ - Guests, like fish, begin to smell after three days.
+ - He was so learned that he could name a horse in nine languages; so ignorant that he bought a cow to ride on.
+ - Genius without education is like silver in the mine.
+ - Snowy winter, a plentiful harvest.
+ - A fish is a sock for a fish skeleton.
+ - Half a truth is often a great lie.
+ - Virtue alone is sufficient to make a man great, glorious, and happy.
+ - The game of Chess is not merely an idle amusement; several very valuable qualities of the mind are to be acquired and strengthened by it, so as to become habits ready on all occasions, for life is a kind of chess.
+ - Human felicity is produced not as much by great pieces of good fortune that seldom happen as by little advantages that occur every day.
+ - He that goes a borrowing goes a sorrowing.
+ - Stand firm, don’t flutter!
+ - It is a strange anomaly that men could be careful to insure their houses, their ships, their merchandise, and yet neglect to insure their lives – surely the most important of all to their families, and more subject to loss.
+ - Money has never made man happy, nor will it, there is nothing in its nature to produce happiness. The more of it one has the more one wants.
+ - Slavery is such an atrocious debasement of human nature, that its very extirpation, if not performed with solicitous care, may sometimes open a source of serious evils.
+ - Behold the rain which descends from heaven upon our vineyards; there it enters the roots of the vines, to be changed into wine; a constant proof that God loves us, and loves to see us happy.
+ - Idleness is the Dead Sea that swallows all virtues. Be active in business, that temptation may miss her aim; the bird that sits is easily shot.
+ - We may give advice, but we cannot give conduct.
+ - It is easier to prevent bad habits than to break them.
+ - In a discreet man’s mouth, a public thing is private.
+ - Rebellion against tyrants is obedience to God.
+ - People willing to trade their freedom for temporary security deserve neither and will lose both.
+ - Having been poor is no shame, but being ashamed of it, is.
+ - Sell not virtue to purchase wealth, nor liberty to purchase power.
+ - Would you persuade, speak of interest, not of reason.
+ - Never trust a government that doesn’t trust its own citizens with guns.
+ - For Age and Want save while you may; No morning Sun lasts a whole day.
+ - A father’s a treasure; a brother’s a comfort; a friend is both.
+ - Women and wine, game and deceit, make the wealth small, and the want great.
+ - I fear the man who drinks water and so remembers this morning what the rest of us said last night.
+ - A man in a passion, rides a mad horse.
+ - A lie stands on one leg, truth on two.
+ - Every pot must sit on its own bottom.
+ - Wisdom is in measured routine. Three naps a day will keep you fit, nine breakfasts before noon, spin until you fall on your back, and thrust your face into a nettle plant. Drink at least five cups of a mare’s urine and look upon your self in a silver mirror while you hold your air in your chest.
+ - One of the greatest tragedies of life is the murder of a beautiful theory by a gang of brutal facts.
+ - The best investment is in the tools of one’s own trade.
+ - The problem with common sense is, it isn’t.
+ - The eye of the master will do more work than both his hands.
+ - I am lord of myself, accountable to none.
+ - A lonely man on a rainy night who cannot read.
+ - Great beauty, great strength, and great riches are really and truly of no great use; a right heart exceeds all.
+ - Thinking aloud is a habit which is responsible for most of mankind’s misery.
+ - When the people find that they can vote themselves money that will herald the end of the republic.
+ - What you would seem to be, be really.
+ - Let all Men know thee, but no man know thee thoroughly: Men freely ford that see the shallows.
+ - The English love an insult. It’s their only test of a man’s sincerity.
+ - Keep thy shop, and thy shop will keep thee.
+ - After crosses and losses men grow humbler and wiser.
+ - Lying rides upon debt’s back.
+ - The longer I live the more convinced I become that God governs in the affairs of men. And have we now forgotten that powerful friend? Or do we imagine we no longer need His assistance.
+ - Laziness travels so slowly that poverty soon overtakes it.
+ - For the best return on your money, pour your purse into your head.
+ - If you would not be laughed at, be the first to laugh at yourself.
+ - Give me yesterday’s bread, this day’s flesh, and last year’s cider.
+ - A Man of Knowledge like a rich Soil, feeds If not a world of Corn, a world of Weeds.
+ - By diligence and patience, the mouse bit in two the cable.
+ - O powerful goodness! Bountiful Father! Merciful Guide! Increase in me that wisdom which discovers my truest interest. Strengthen my resolution to perform what that wisdom dictates. Accept my kind offices to thy other children as the only return in my power for thy continual favours to me.
+ - If you would persuade, you must appeal to interest rather than intellect.
+ - Learn of the skillful; he that teaches himself, has a fool for his master.
+ - The busy man has few idle visitors; to the boiling pot the flies come not.
+ - Reckless youth makes rueful age.
+ - He’s the best physician who knows the worthlessness of most medicines.
+ - Where there’s marriage without love, there will be love without marriage.
+ - The discovery of a wine is of greater moment than the discovery of a constellation. The universe is too full of stars.
+ - A man is sometimes more generous when he has but a little money than when he has plenty, perhaps through fear of being thought to have but little.
+ - If you’d be beloved, make yourself amiable. A true friend is the best possession.
+ - An honest Man will receive neither Money nor Praise that is not his due.
+ - A false friend and a shadow attend only while the sun shines.
+ - I fully agree with General Washington, that we must protect this young nation from an insidious influence and impenetration. The menace, gentlemen, is the Jews.
+ - Don’t misinform your Doctor nor your Lawyer.
+ - Our Constitution is in actual operation; everything appears to promise that it will last; but in this world nothing is certain but death and taxes.
+ - If time be of all things the most precious, wasting time must be the greatest prodigality.
+ - Think of these things, whence you came, where you are going, and to whom you must account.
+ - And where is the Prince who can afford to so cover his country with troops for its defense, as that ten thousand men descending from the clouds, might not in many places do an infinite deal of mischief, before a force could be brought together to repel them?
+ - Man will ultimately be governed by God or by tyrants.
+ - There cannot be good living where there is not good drinking.
+ - That which hurts, also instructs.
+ - The greatest inventions are those inquiries which tend to increase the power of man over matter.
+ - In humility imitate Jesus and Socrates.
+ - There are three faithful friends – an old wife, an old dog, and ready money.
+ - The proud hate pride in others.
+ - The worst wheel of the cart makes the most noise.
+ - Great hopes make everything great possible.
+ - Patience in Market, is worth Pounds in a year.
+ - La pereza anda tan despacio que la pobreza no tarda en alcanzarla.
+ - Get what you can, and what you get hold; ’tis the Stone that will turn all your Lead into Gold.
+ - Are you angry that others disappoint you? Remember you cannot depend upon yourself.
+ - Why ruin a young girl’s life when you can make an older women SO very happy !
+ - Human happiness comes not from infrequent pieces of good fortune, but from the small improvements to daily life.
+ - As we must account for every idle word, so must we account for every idle silence.
+ - I have found Christian dogma unintelligible.
+ - Poverty, Poetry, and new Titles of Honor, make Men ridiculous.
+ - Wise men don’t need advice. Fools won’t take it.
+ - Tis easy to see, hard to foresee.
+ - The best way to help the poor is to make them uncomfortable in their own poverty.
+ - A wicked Hero will turn his back to an innocent coward.
+ - Who judges best of a Man, his Enemies or himself?
+ - At a great pennyworth pause a while.
+ - Bargaining has neither friends nor relations.
+ - You cannot always run from a weakness. You must sometime fight it out or perish.
+ - A man compounded of law and gospel is able to cheat a whole country with his religion and then destroy them under color of law.
+ - Here is my Creed. I believe in one God, the Creator of the Universe. That He governs it by His Providence. That He ought to be worshipped.
+ - A penny saved is twopence dear; A pin a day ’s a groat a year.
+ - Be cheerful – the problems that worry us most are those that never arrive.
+ - I don’t believe in stereotypes. I prefer to hate people on a more personal basis.
+ - To be humble to superiors is a duty, to equals courtesy, to inferiors nobleness.
+ - A light purse is a heavy curse.
+ - Remember this saying, The good payer is lord of another man’s purse. He that is known to pay punctually and exactly to the time he promises, may at any time, and on any occasion, raise all the money his friends can spare.
+ - In rivers and bad governments the lightest things swim at top.
+ - If you want to keep a secret from an enemy, tell it not to a friend.
+ - To lengthen thy life, lessen thy meals.
+ - He that rises late must trot all day.
+ - One of the advantages of being a ‘reasonable creature’ is that one can find a reason for whatever one wants to do.
+ - If you would know the value of money; go, and try to borrow some! For, he that goes a borrowing, goes a sorrowing! and indeed, so does he that lends to such people, when he goes to get it in again!
+ - Half-wits talk much, but say little.
+ - In the dark, all cats are grey.
+ - Tolerate no Uncleanliness in Body, Clothes, or Habitation.
+ - Some are weatherwise, some are otherwise.
+ - Strange secrets are let out by Death Who blabs so oft the follies of this world.
+ - Those have a short Lent who owe money to be paid at Easter.
+ - Vice knows she is ugly, so puts on her mask.
+ - God works wonders now and then; Behold a lawyer, an honest man.
+ - A lady asked Dr. Franklin Well Doctor what have we got a republic or a monarchy – “A republic,” replied the Doctor, “if you can keep it.”
+ - No employment can be managed without arithmetic, no mechanical invention without geometry.
+ - Observe all men, thyself most.
+ - Fond pride of dress is sure a very curse.
+ - The man who does things makes mistakes, but he doesn’t make the biggest mistake of all-doing nothing.
+ - What one relishes, nourishes.
+ - Sloth, like rust, consumes faster than labor wears, while the used key is always bright.
+ - None but the well-bred man knows how to confess a fault, or acknowledge himself in an error.
+ - It is the eye of other people that ruin us. If I were blind I would want, neither fine clothes, fine houses or fine furniture.
+ - A quarrelsome man has no good neighbours.
+ - No nation was ever ruined by trade.
+ - Wouldst thou enjoy a long Life, a healthy Body, and a vigorous Mind, and be acquainted also with the wonderful Works of God? labour in the first place to bring thy Appetite into Subjection to Reason.
+ - Applause waits on success.
+ - If you would be loved, love, and be loveable.
+ - Without justice, courage is weak.
+ - So convenient a thing to be a reasonable creature, since it enables one to find or make a reason for every thing one has a mind to do.
+ - Let no pleasure tempt thee, no profit allure thee, no persuasion move thee, to do anything which thou knowest to be evil; so shalt thou always live jollity; for a good conscience is a continual Christmas.
+ - The first mistake in public business is the going into it.
+ - There is nothing wrong with retirement as long as one doesn’t allow it to interfere with one’s work.
+ - Those who laugh often never grow old.
+ - The man that walks wit crowd, will get no farther than the crowd. The man that walks alone, will reach places unknown.
+ - Educate your children to self-control, to the habit of holding passion and prejudice and evil tendencies subject to an upright and reasoning will, and you have done much to abolish misery from their future and crimes from society.
+ - The only time a question should be asked is when all other possibilities of finding the answer for yourself have been eliminated.
+ - Be not disturbed at trifles, or at accidents common or unavoidable.
+ - Love your Neighbour; yet don’t pull down your Hedge.
+ - The way to be safe is never to be secure.
+ - Women are books, and men the readers be...
+ - E’er you remark another’s sin, bid your own conscience look within.
+ - I believe in one God, Creator of the Universe in that He ought to be whipped from pilar to post and back again for His shameful actions toward Humanity.
+ - You will observe with concern how long a useful truth may be known, and exist, before it is generally received and practiced on.
+ - The purpose of money was to purchase one’s freedom to pursue that which is useful and interesting.
+ - Only a virtuous people are capable of freedom.
+ - He that would live in peace and at ease must not speak all he knows or all he sees.
+ - Be studious in your profession, and you will be learned. Be industrious and frugal, and you will be rich. Be sober and temperate, and you will be healthy. Be in general virtuous, and you will be happy. At least you will, by such conduct, stand the be.
+ - The good will of the governed will be starved if not fed by the good deeds of the governors.
+ - The way to wealth is as plain as the way to market. It depends chiefly on two words, industry and frugality: that is, waste neither time nor money, but make the best use of both. Without industry and frugality nothing will do, and with them everything.
+ - Everybody’s human-everybody makes mistakes. If you laugh it off and keep going and try to give it your best the next time around, people respect that.
+ - If you wish information and improvement from the knowledge of others, and yet at the same time express yourself as firmly fix’d in your present opinions, modest, sensible men, who do not love disputation, will probably leave you undisturbed in the possession of your error.
+ - Nature performs the cure, the physician takes the fee.
+ - The art of acting consists in keeping people from coughing.
+ - If you would be wealthy, think of saving as well as getting.
+ - All human situations have their inconveniences. We feel those of the present but neither see nor feel those of the future; and hence we often make troublesome changes without amendment, and frequently for the worse.
+ - Gain may be temporary and uncertain; but ever while you live, expense is constant and certain: and it is easier to build two chimneys than to keep one in fuel.
+ - Laws too gentle are seldom obeyed; too severe, seldom executed.
+ - Read much, but not too many books.
+ - In short, the way to wealth, if you desire it, is as plain as the way to market. It depends chiefly on two works, industry and frugality.
+ - A learned blockhead is a greater blockhead than an ignorant one.
+ - People want to catch a buzz. That is why drugs are illegal, yet people still try to get their hands on them no matter what the consequence. Drugs make us happy, they may not be healthy.
+ - Content and Riches seldom meet together, Riches take thou, contentment I had rather.
+ - Democracy is like having two wolves and a lamb decide what is for dinner.
+ - Anger is never without a reason, but seldom with a good one.
+ - No longer virtuous no longer free; is a Maxim as true with regard to a private Person as a Common-wealth.
+ - Let honesty and industry be thy constant companions, and spend one penny less than thy clear gains; then shall thy pocket begin to thrive; creditors will not insult, nor want oppress, nor hungerness bite, nor nakedness freeze thee.
+ - Make the best use of both time and money. Add industry and frugal dealings if they pay very well and if you’re free to it.
+ - Pen, wax and parchment govern the world.
+ - Let thy discontents be thy secrets; if the world knows them ’twill despise thee and increase them.
+ - Traveling is one way of lengthening life, at least in appearance.
+ - Much Virtue in Herbs, little in Men.
+ - Pride is as loud a beggar as want, and a great deal more saucy. When you have bought one fine thing, you must buy ten more, that your appearance may be all of a piece; but it is easier to suppress the first desire than to satisfy all that follow it.
+ - Neglect kills injuries, revenge increases them.
+ - Neither a Fortress nor a Maidenhead will hold out long after they begin to parley.
+ - Success has ruined many a man.
+ - The Sting of a reproach, is the Truth of it.
+ - Laws without morals are in vain.
+ - At the working man’s house, hunger looks in but dares not enter.
+ - Pay what you owe and you’ll know what’s your own.
+ - The poor have little; beggars, none; the rich, too much; enough, not one.
+ - Many have quarreled about religion that never practice it.
+ - If you do not exclude them, in less than 200 years our descendants will be working in the fields to furnish them substance, while they will be in the counting houses rubbing their hands. I warn you, gentlemen, if you do not exclude Jews for all time, your children will curse you in your graves.
+ - Wink at small faults; remember thou hast great ones.
+ - No better relation than a prudent and faithful friend.
+ - Give me 26 lead soldiers and I will conquer the world.
+ - It is better to take many injuries than to give one.
+ - A nod from a lord is a breakfast for a fool.
+ - I have found Christian dogma unintelligible. Early in life, I absenteed myself from Christian assemblies.
+ - Most people return small favors, acknowledge medium ones and repay greater ones – with ingratitude.
+ - Innocence is its own defense.
+ - I have lived a long time, sir, and the longer I live the more convincing proofs I see of this truth – that God governs in the affairs of men.
+ - Many foxes grow gray but few grow good.
+ - Bad gains are true losses.
+ - A little House well fill’d, a little Field well till’d, and a little Wife well will’d, are great Riches.
+ - Leisure is the time for doing something useful. This leisure the diligent person will obtain the lazy one never.
+ - Quarrels never could last long, if on one side only lay the wrong.
+ - Love well, whip well.
+ - There are lazy minds as well as lazy bodies.
+ - Avoid dishonest gain: no price can recompence the pangs of vice.
+ - Clean your finger before you point at my spots.
+ - As Pride increases, Fortune declines.
+ - A dying man can do nothing easy.
+ - Never spare the parson’s wine nor the baker’s pudding.
+ - Why does the blind man’s wife paint herself.
+ - He that would fish, must venture his bait.
+ - If you ride a horse, sit close and tight, if you ride a man, sit easy and light.
+ - Wine makes daily living easier, less hurried with fewer tensions and more tolerance.
+ - To all apparent beauties blind, each blemish strikes an envious mind.
+ - Flowers are the alphabet of angels, whereby they write on the hills and fields mysterious truths.
+ - He that blows the coals in quarrels that he has nothing to do with, has no right to complain if the sparks fly in his face. – Ben Franklin.
+ - One good husband is worth two good wives, for the scarcer things are, the more they are valued.
+ - He that can take rest is greater than he that can take cities.
+ - Great good nature without prudence is a great misfortune.
+ - Beware of meat twice boiled, and an old foe reconciled.
+ - The cunning man steals a horse, the wise man lets him alone.
+ - A single man has not nearly the value he would have in a state of union. He is an incomplete animal. He resembles the odd half of a pair of scissors.
+ - You can’t tell anyone anything. You have to teach people for them to remember. Let the person experience what you are teaching and they will learn.
+ - What maintains one vice would bring up two children.
+ - No European who has tasted savage life can afterwards bear to live in our societies.
+ - A full Belly makes a dull Brain: The Muses starve in a Cook’s Shop.
+ - He’s a fool who cannot conceal his wisdom.
+ - He that by the Plough would thrive, Himself must either hold or drive.
+ - Sarcasm is the lowest form of humor but the highest form of flattery.
+ - Where there’s no law, there’s no bread.
+ - There have been as great souls unknown to fame as any of the most famous.
+ - Industry pays debts, while despair increases them.
+ - Time is an herb that cures all Diseases.
+ - He that riseth late, must trot all day, and shall scarce overtake his business at night.
+ - The rotten apple spoils his companion.
+ - Masonic labor is purely a labor of love. He who seeks to draw Masonic wages in gold and silver will be disappointed. The wages of a Mason are in the dealings with one another; sympathy begets sympathy, kindness begets kindness, helpfulness begets helpfulness, and these are the wages of a Mason.
+ - He that takes a wife, takes care.
+ - You can not pluck roses without fear of thorns, Nor enjoy a fair wife without danger of horns.
+ - Look before, or you’ll find yourself behind.
+ - That it is better 100 guilty Persons should escape than that one innocent Person should suffer, is a Maxim that has been long and generally approved.
+ - The strictest law sometimes becomes the severest injustice.
+ - A ship under sail and a big-bellied woman, Are the handsomest two things that can be seen common.
+ - Sloth and Silence are a Fool’s Virtues.
+ - He that lieth down with Dogs, shall rise up with Fleas.
+ - Pardoning the Bad, is injuring the Good.
+ - Presumption first blinds a man, then sets him a running.
+ - Glass, China, and Reputation, are easily cracked, and never well mended.
+ - Enjoy the present hour, be mindful of the past; And neither fear nor wish the Approaches of the last. Learn of the skillful: He that teaches himself, hath a fool for his master.
+ - The discontented man finds no easy chair.
+ - To be proud of virtue, is to poison yourself with the Antidote.
+ - Pride that dines on vanity, sups on contempt.
+ - Let thy maid servant be faithful, strong, and homely.
+ - Those who in quarrels interpose, must often wipe a bloody nose.
+ - A cheerful face is nearly as good for an invalid as healthy weather.
+ - Praise to the undeserving is severe satire.
+ - Be neither silly, nor cunning, but wise.
+ - Handle your tools without mittens.
+ - If you have no Honey in your Pot, have some in your Mouth.
+ - The two most beautiful sights I have witnessed in my life are a full blown ship at sail and the round-bellied pregnant female.
+ - The first Degree of Folly, is to conceit one’s self wise; the second to profess it; the third to despise Counsel.
+ - Want of care does us more damage than want of knowledge.
+ - It is ill-manners to silence a fool and cruelty to let him go on.
+ - Quacks are the greatest liars in the world except their patients.
+ - I think opinions should be judged by their influences and effects; and if a man holds none that tend to make him less virtuous or more vicious, it may be concluded that he holds none that are dangerous, which I hope is the case with me.
+ - Perhaps I’m too saucy or provoking?
+ - Teach your child to hold his tongue; he’ll learn fast enough to speak.
+ - Security without liberty is called prison.
+ - Blame-all and Praise-all are two blockheads.
+ - No man ought to own more property than needed for his livelihood; the rest, by right, belonged to the state.
+ - After three days men grow weary, of a wench, a guest, and weather rainy.
+ - When passion rules, she never rules wisely.
+ - To be proud of knowledge is to be blind with light.
+ - She that paints her Face, thinks of her Tail.
+ - The grand leap of the whale up the Fall of Niagara is esteemed, by all who have seen it, as one of the finest spectacles in nature.
+
+500 quotes

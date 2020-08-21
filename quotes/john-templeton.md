@@ -1,0 +1,88 @@
+ - Help yourself by helping others.
+ - It is nice to be important, but it’s more important to be nice.
+ - Bull-markets are born on pessimism, grow on skepticism, mature on optimism and die on euphoria.
+ - There will always be bull markets followed by bear markets followed by bull markets.
+ - An attitude of gratitude creates blessings.
+ - The person who really wants to do something finds a way; the other finds an excuse.
+ - The four most expensive words in the English language are, ‘This time it’s different.’
+ - Success is a process of continually seeking answers to new questions.
+ - Kindness comes back like a boomerang to those who are kind. Perhaps, its return takes years. Perhaps, the kindness returns from a different direction than that which we sent out kindness. But it will return. It is never lost.
+ - Diversify your investments.
+ - The commitment of giving your best at all times, in all circumstances and under all conditions, can enable you to find value in, and lend value to, every experience.
+ - An attitude of gratitude creates blessings. Help yourself by helping others. You have the most powerful weapons on earth – love and prayer.
+ - Everyone has special talents, and it is our duty to find ours and use them well.
+ - It is impossible to produce superior performance unless you do something very different.
+ - For those properly prepared, the bear market is not only a calamity but an opportunity.
+ - Those who spend too much will eventually be owned by those who are thrifty.
+ - The time of maximum pessimism is the best time to buy.
+ - If you’re not grateful, you’re not rich – no matter how much you have.
+ - If you want to have a better performance than the crowd, you must do things differently from the crowd.
+ - Invest at the point of maximum pessimism.
+ - The air we breathe is necessary to keep us alive, but we must continually breathe it out so we can breathe fresh air back into our lungs. God gives us his love, which we can keep in action by breathing it out to others, thus making room in our hearts for a fresh supply of love.
+ - Happiness pursued eludes, happiness given returns.
+ - The opposite of humility is arrogance – the belief that we are wiser or better than others. Arrogance promotes separation rather than community. It looms like a brick wall between us and those from whom we could learn.
+ - Work at being a humble person.
+ - By facing our challenges and overcoming them, we grow stronger, wiser, and more compassionate.
+ - As we learn to share and give and care, love increases. A person who knows how to love does not seem to feel lonely or alone. In this sense, the power of love can become a true weapon against harm.
+ - If we have not developed a reservoir of spiritual wealth, no amount of money is likely to make us happy. Spiritual wealth provides faith. It gives us love. It brings and expands wisdom. Spiritual wealth leads to happiness because it guides us into useful or loving relationships.
+ - To buy when others are despondently selling and sell when others are greedily buying requires the greatest fortitude and pays the greatest reward.
+ - Let no day go by without counting your blessing.
+ - The best investment with the least risk and the greatest dividend is giving.
+ - Humility about how little I know has encouraged me to listen more carefully and more wisely.
+ - For all long-term investors, there is only one objective-maximum total real return after taxes.
+ - Would it not be strange if a universe without purpose accidentally created humans who are so obsessed with purpose?
+ - To get joy, we must give it and to keep joy, we must scatter it.
+ - Be very careful. Giving because we think we will get something back will not work. You must be 100 percent willing to give and never experience any return, or it will not work.
+ - If you are curious as to what your future may hold, you can look into a mirror. What is reflecting back? Does a sparkle in your eyes indicate excitement about new adventures and opportunities? Does a smile on your lips portray an inner happiness and abundant goodwill towards others?
+ - What happens to us in life is less important; the real question can be whether or not we use the experience to grow.
+ - Each of us has a purpose for living beyond our own survival and pleasure. Every individual is like a thread in a beautiful tapestry with a vital contribution to make, not only to the sustenance of life as we know it, but in the creation and development of more beneficial expressions of life.
+ - Tell your readers to use it or lose it. If you don’t use your muscles, they get weak. If you don’t use your mind it begins to fail.
+ - If we become increasingly humble about how little we know, we may be more eager to search.
+ - High ethics and religious principles form the basis for success and happiness in every area of life.
+ - Hate, like prayer, changes the person involved in the activity, not the person the activity is aimed at.
+ - Living life with a smile is like throwing yeast into a bowl of flour, adding warm water and waiting for the flour to rise. It multiplies may times over.
+ - Usually God favours the people who try to do good. So, when you find that the crowd is desperately trying to sell, help them and buy. When you find that the crowd is overenthusiastically trying to buy, help them and sell. It usually works out.
+ - The person who is willing to say yes to experience is the person who discovers new frontiers.
+ - Thanksgiving being thankful or grateful results in more to be thankful for.
+ - Before this century is over, the Dow Jones Industrial Average will probably be over one million versus around 10,000 now. So for the long-term, the outlook is tremendously bullish if you buy stocks blindly to keep for a century.
+ - A successful life depends less on how long you live than on how much you can pack into the time you have.
+ - How wonderful it would be if we could help our children and grandchildren to learn thanksgiving at an early age. Thanksgiving opens the doors. It changes a child’s personality. A child is resentful, negative, or thankful. Thankful children want to give, they radiate happiness, they draw people.
+ - Faith does not imply a closed, but an open mind. Quite the opposite of blindness, faith appreciates the vast spiritual realities that materialists overlook by getting trapped in the purely physical.
+ - Three of my children are medical doctors; they know at least a hundred times as much about your body as my grandfather knew, but they don’t know much more about soul than he did.
+ - Do your homework or hire wise experts to help you. Never jump into a business you have no idea about.
+ - Never forget: the secret of creating riches for oneself is to create them for others.
+ - The main focus in my life now is to open people’s minds so no one will be so conceited that they think they have the total truth. They should be eager to learn, to listen, to research and not to confine, to hurt, to kill, those who disagree with them.
+ - You must be a fundamentalist to be really successful in the market.
+ - If a business is not ethical, it will fail, perhaps not right away but eventually.
+ - It’s self-centered to think that human beings, as limited as we are, can describe divinity.
+ - Self-improvement comes mainly from trying to help others.
+ - If governments encourage people to become more spiritual there will be a reduction in healthcare costs.
+ - The other boys at Yale came from wealthy families, and none of them were investing outside the United States, and I thought, ‘That is very egotistical. Why be so shortsighted or near-sighted as to focus only on America? Shouldn’t you be more open-minded?’
+ - I thought, I’m only going to be on this planet once, and only for a short time. What can I do with my life that will lead to permanent benefits?
+ - It is only by understanding the emotion of others that an investor has a chance to produce superior results.
+ - As we begin to praise ourselves and our world, we begin to blossom in ways that are beautiful to behold.
+ - I focus on spiritual wealth now, and I’m busier, more enthusiastic, and more joyful than I have ever been.
+ - Suppose you went to your priest and asked for help; he would refer you to the Bible. But if you went the next day to your medical doctor and he referred you to the book of Hippocrates, which was written at about the same time as the Bible, you would think that was old-fashioned.
+ - Share prices fluctuate more than share values.
+ - Outperforming the majority of investors requires doing what they are not doing. Buying when others have despaired, and selling when they are full of hope, takes fortitude.
+ - The only way to experience love is to give it.
+ - Surprising and interesting things happen to those who keep their eyes and their minds open and alert!
+ - I have no quarrel with what I learned in the Presbyterian church – I am still an enthusiastic Christian. But why shouldn’t I try to learn more? Why shouldn’t I go to Hindu services? Why shouldn’t I go to Muslim services? If you are not egotistical, you will welcome the opportunity to learn more.
+ - The correct description is that we try every day to become more humble when we talk about divinity, we try to realize how little we know and how open minded we should be. It’s self centered to think that human beings, as limited as we are, can describe divinity.
+ - I grew up Presbyterian. Presbyterians thought the Methodists were wrong. Catholics thought all Protestants were wrong. The Jews thought the Christians were wrong. So, what I’m financing is humility. I want people to realize that you shouldn’t think you know it all.
+ - True peace is a quality you carry within yourself, regardless of external circumstances.
+ - I believe all religions are becoming obsolete, clinging to ancient concepts.
+ - Sell a stock only when you have found a new stock that is a 50% better bargain than the one that you hold.
+ - While there are many problems, if one focuses on the bigger picture there are numerous reasons to be thankful for living in a time of remarkable progress and wonderful possibilities for the future.
+ - The objective of our religious foundations is to teach people that they are hurting themselves when they say they believe something. What we should realize is we know almost nothing about God and therefore we should be eager to search and to learn.
+ - If you are not egotistical, you will welcome the opportunity to learn more.
+ - Basic reality seems to be that the more you try to be like God by radiating unlimited love, the more you become flooded by waves of love from others and from God.
+ - Anybody who had come up with a new concept would have been under suspicion for being out of step with the tradition or out of step with the teachings of the church.
+ - A doctor today would never prescribe the treatments my grandfather used in the Confederate Army, but a minister says pretty much the same thing today that a minister would have said back then.
+ - The question is not is there a God, but is there anything else except God? God is everyone and each of us is a little bit.
+ - Let’s worship Divinity, but understand the divinity we worship is beyond our comprehension.
+ - The idea that an individual can find God is terribly self-centered. It is like a wave thinking it can find the sea.
+ - I’m really convinced that our descendants a century or two from now will look back at us with the same pity that we have toward the people in the field of science two centuries ago.
+ - Politicians who are willing to spend too much are the ones who get reelected.
+
+86 quotes

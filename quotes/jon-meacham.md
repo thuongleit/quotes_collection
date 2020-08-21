@@ -1,0 +1,63 @@
+ - There is nothing new under the sun.
+ - World War II ended the Great Depression with one of the great public-private industrial collaborations in the history of man.
+ - America has long raised political and cultural cognitive dissonance to an art form. We are capable of living with enormous inequality and injustice while convincing ourselves that we are in fact moving toward what Churchill called the “broad, sun-lit uplands.”
+ - In America, now, let us – Christian, Jew, Muslim, agnostic, atheist, wiccan, whatever – fight nativism with the same strength and conviction that we fight terrorism. My faith calls on its followers to love one’s enemies. A tall order, that – perhaps the tallest of all.
+ - The government invented the Internet.
+ - An unexamined faith is not worth having, for fundamentalism and uncritical certitude entail the rejection of one of the great human gifts: that of free will, of the liberty to make up our own minds based on evidence and tradition and reason.
+ - A globalized world is by now a familiar fact of life. Building walls or moats may sound appealing, but the future belongs to those who tend to their people and then boldly engage the rest of the world, near and far.
+ - Liberty is precious. But so is life. It should not be so difficult for men and women of good will and good heart and sound mind to find the right balance between the two.
+ - Given that sexual orientation is innate and that we are all, in theological terms, children of God, to deny access to some sacraments based on sexuality is as wrong as denying access to some sacraments based on race or gender.
+ - We are exceptional not because of who we are but because of what we do and how we put the ideals of human dignity, individual freedom, and liberty under law into action.
+ - The more we can do to support and promulgate the intellectual traditions of the Abrahamic faiths – of Judaism, Christianity, and Islam – the better armed we will be to fight fundamentalism.
+ - Barack Obama is many things; among them, he is a tough and even ferocious political warrior.
+ - Whenever there is news of a terrible shooting, I wonder why America has so miserably failed to enact even common-sense gun legislation.
+ - The perennial conviction that those who work hard and play by the rules will be rewarded with a more comfortable present and a stronger future for their children faces assault from just about every direction. That great enemy of democratic capitalism, economic inequality, is real and growing.
+ - One of the earliest resurrection scenes in the Bible is that of Thomas demanding evidence – he wanted to see, to touch, to prove. Those who question and probe and debate are heirs of the apostles just as much as the most fervent of believers.
+ - A wise nation should cultivate a political spirit that allows opponents to cooperate without fearing an automatic execution from their core supporters. Who knew that the real rogues in American politics would be the ones who dare to get along?
+ - Extremists often derive their inspiration from literal interpretations of texts that should rightly be read not as Associated Press reports from the ancient world, but as theological and literary enterprises requiring independent intellectual assessment.
+ - As crucial as religion has been and is to the life of the nation, America’s unifying force has never been a specific faith, but a commitment to freedom – not least freedom of conscience.
+ - I am a huge admirer of Franklin Roosevelt’s, and I believe social security has done untold good in alleviating the once-widespread issue of poverty among the elderly. FDR believed in the greatness and generosity of Americans – but he was also a cold-blooded politician.
+ - The middle class, one of the great achievements in history, is becoming more of a relic than a reality.
+ - An important thing to remember about the press is there is no ideological bias.
+ - I am a southerner who grew up with and around guns. I own some still. My father gave me a .22 rifle when I was 9 and a single barrel .410 shotgun when I was 10.
+ - I do not believe ‘Newsweek’ is the only catcher in the rye between democracy and ignorance, but I think we’re one of them, and I don’t think there are that many on the edge of that cliff.
+ - Here is a pretty good rule of thumb for Democratic Presidents: if it didn’t work for Franklin D. Roosevelt, who won four terms and a World War, it probably won’t work for you either.
+ - Cynically but accurately put, Americans oppose public intervention or regulation if it helps others, but favor it if it helps them – take social security, disaster relief, public works projects, for example.
+ - Steadiness of faith, was, in the long run, as illuminating and essential as sophistication of thought.
+ - Religious belief, like history itself, is a story that is always unfolding, always subject to inquiry and ripe for questioning. For without doubt there is no faith.
+ - Given that religious faith is an intrinsic element of human experience, it is best to approach and engage the subject with a sense of history and a critical sensibility.
+ - One of the central memories of my childhood is of hunting – not well; I am a terrible shot – quail and dove and grouse on a farm on the Tennessee River.
+ - Scripture is not inerrant; believers are called to interpret biblical texts in light of tradition and reason.
+ - The central tenet of Christianity as it has come down to us is that we are to reach out when our instinct is to pull inward; to give when we want to take; to love when we are inclined to hate; to include when are tempted to exclude.
+ - A lot of people, including business leaders, think the future belongs to China. Globalization is not a zero-sum game, but we need to hone our skills to stay in play.
+ - While we remain a nation decisively shaped by religious faith, our politics and our culture are, in the main, less influenced by movements and arguments of an explicitly Christian character than they were even five years ago. I think this is a good thing – good for our political culture.
+ - Once the cry and the cause of a generation of progressives to make America safer, fairer and cleaner, ‘regulation’ is now a dirty word in our politics. Even Democrats are quick to talk about cutting regulations; Republicans hate them with – how to put it? – evangelical fervor.
+ - The American system of political spending is so unregulated that it might make Adam Smith rethink free markets.
+ - The past always seems somehow more golden, more serious, than the present. We tend to forget the partisanship of yesteryear, preferring to re-imagine our history as a sure and steady march toward greatness.
+ - Without education, we are weaker economically. Without economic power, we are weaker in terms of national security. No great military power has ever remained so without great economic power.
+ - The way to put oneself in a position to take the harder, more honorable political path is to argue for one’s virtues in a vigorous way.
+ - The problem for those who assert biblical authority in support of traditional definitions of marriage is that one could, with equal validity, assert that the lending of money or certain kinds of haircuts are forbidden by God, or that slavery and the subjugation of women are authorized by the Lord.
+ - Mysteries and thrillers are not the same things, though they are literary siblings. Roughly put, I would say the distinction is that mysteries emphasize motive and psychology whereas thrillers rely more heavily on action and plot.
+ - The decline and fall of the modern religious right’s notion of a Christian America creates a calmer political environment and, for many believers, may help open the way for a more theologically serious religious life.
+ - No government can be maintained without the principle of fear as well as duty.
+ - The fact is that America has been at her most prosperous when government and the private sector have been not at war, but in a wary, if often underplayed, alliance. History is unmistakable on this point.
+ - Anyone weighing whether to re-elect the President should take the bin Laden operation into account: it is a powerful exhibit that Obama is a steely Commander in Chief – a critical test for many Americans.
+ - Jefferson was the rare leader who stood out from the crowd without intimidating it.
+ - History tells us that America does best when the private sector is energetic and entrepreneurial and the government is attentive and engaged. Who among us, really, would, looking back, wish to edit out either sphere at the entire expense of the other?
+ - The Occupy Wall Street protests at last suggest that America’s wealth gap is once again becoming an organizing political principle in the country.
+ - We chose the most interesting image available to us to illustrate the theme of the cover, which is what we always try to do. We apply the same test to photographs of any public figure, male or female: does the image convey what we are saying? That is a gender-neutral standard.
+ - The attacks of September 11 – and subsequent acts of terror from London to Madrid to Fort Hood, Texas – embody the most repulsive of human instincts, the will to power at the price of the lives of others.
+ - Our greatest leaders are neither dreamers nor dictators: They are, like Jefferson, those who articulate national aspirations yet master the mechanics of influence and know when to depart from dogma.
+ - President Obama is now losing to ‘Republican Nominee’ in polls – no name needed.
+ - In rich and captivating prose, Jessica DuLong kindly invites the rest of us on the journey of her lifetime: from a dot-com job to the fabled waters of the Hudson River, where she became a fireboat engineer. This is an unusual and fascinating book.
+ - Sometimes paranoids have enemies, and conspiracies are only laughable when they fail to materialize.
+ - Part of what I loved – and love – about being around older people is the tangible sense of history they embody. I’m interested in military history, for instance, because both my grandfathers fought in World War II. I’m interested in writing because one of those grandfathers wrote books.
+ - Reagan is the Republican FDR, an exemplar of presidential greatness.
+ - Like the Bible-a document that often contradicts itself and from which one can construct sharply different arguments-theology is the product of human hands and hearts.
+ - Incumbent White House parties have won 10 of the last 18 presidential elections; the odds are tight, but they favor Obama in 2012. And so gloomy Democrats, check your despair; gleeful Republicans, watch the hubris.
+ - I don’t think anyone is qualified to answer questions of eternal fate definitively, much less pinpoint it to a given day.
+ - An epic subject requires a writer of epic skill and scope, and we have a perfect pairing in Cleopatra and Stacy Schiff. Absorbing and illuminating, this new biography will endure.
+ - It would be great if politics were fact-based, but it is not, and it is surely not nuance-based. What works in a classroom or a think tank does not work on Capitol Hill or in the White House. Obama sometimes seems to be running the Brookings Institution, not the country.
+ - From Jefferson to Jackson to Lincoln to FDR to Reagan, every great president inspires enormous affection and enormous hostility. We’ll all be much saner, I think, if we remember that history is full of surprises and things that seemed absolutely certain one day are often unimaginable the next.
+
+61 quotes

@@ -1,0 +1,502 @@
+ - Living well is the best revenge.
+ - He who cannot forgive breaks the bridge over which he himself must pass.
+ - One father is more than a hundred schoolmasters.
+ - Where there is peace, God is.
+ - Love and a cough cannot be hid.
+ - Only the wearer knows where the shoe pinches.
+ - Step by step the ladder is ascended.
+ - Good words are worth much, and cost little.
+ - God’s mill grinds slow, but sure.
+ - Show me a liar, and I’ll show you a thief.
+ - A bad workman quarrels with his tools.
+ - In solitude, be a multitude to thyself.
+ - Skill and confidence are an unconquered army.
+ - Give a clown your finger, and he will take your hand.
+ - The best mirror is an old friend.
+ - Sometimes the best gain is to lose.
+ - Be thrifty, but not covetous.
+ - Little wealth, little care.
+ - If a donkey bray at you, don’t bray at him.
+ - One hour’s sleep before midnight is worth three after.
+ - Thou that hast given so much to me give me one thing more, a grateful heart: not thankful when it pleaseth me, as if Thy blessings had spare days, but such a heart whose pulse may be Thy praise.
+ - Do well and right and let the world sink.
+ - The eyes have one language everywhere.
+ - He that steals an egg will steal an ox.
+ - Where your will is ready, your feet are light.
+ - Wealth is the Conjurer’s Devil, Whom, when he thinks he hath, the Devil hath him.
+ - Be calm in arguing; for fierceness makes error a fault, and truth discourtesy.
+ - When war begins, then hell openeth.
+ - A good digestion turneth all to health.
+ - The shortest answer is doing.
+ - God provides for him that trusteth.
+ - Death keeps no calendar.
+ - Lend only what you can afford to lose.
+ - A great ship asks deep water.
+ - Good land, evill way.
+ - Love makes a good eye squint.
+ - Sweet spring, full of sweet days and roses, a box where sweets compacted lie.
+ - It is a poor sport that is not worth a candle.
+ - The wine in the bottle does not quench thirst.
+ - God sees hearts as we see faces.
+ - Thursday come, and the week’s gone.
+ - The resolved mind hath no cares.
+ - Words are women, deeds are men.
+ - An old friend is a new house.
+ - All truths are not to be told.
+ - Enrich my heart, mouth, hands in me, With faith, with hope, with charity, That I may run, rise, rest with Thee.
+ - Hope is the poor man’s bread.
+ - Time is the rider that breaks youth.
+ - Prayer should be the key of the day and the lock of the night.
+ - You may bring a horse to the river, but he will drinke when and what he pleaseth.
+ - When God will punish, hee will first take away the understanding.
+ - Good service is a great inchantment.
+ - Knowledge is but folly unless it is guided by grace.
+ - I had rather ride on an ass that carries me than a horse that throws me.
+ - A penny spar’d is twice got.
+ - The life of spies is to know, not bee known.
+ - The Law is not the same at morning and at night.
+ - Though the Fox run, the chicken hath wings.
+ - Love bade me welcome, but my soul drew back.
+ - The way is an ill neighbour.
+ - Let anger’s fire be slow to burn.
+ - The wind in ones face makes one wise.
+ - You cannot flea a stone.
+ - Law sutes consume time, and mony, and rest, and friends.
+ - The book of books, the storehouse and magazine of life and comfort, the holy Scriptures.
+ - Better never begin than never make an end.
+ - For want of a naile the shoe is lost, for want of a shoe the horse is lost, for want of a horse the rider is lost.
+ - In the kingdome of a cheater the wallet is carried before.
+ - He hath no leisure who useth it not.
+ - God sends cold according to clothes.
+ - Of faire things, the Autumne is faire.
+ - To bee beloved is above all bargaines.
+ - He that cannot forgive others, breaks the bridge over which he himself must pass if he would ever reach heaven; for everyone has need to be forgiven.
+ - An Idle youth, a needy Age.
+ - When children stand quiet, they have done some ill.
+ - Quick believers need broad shoulders.
+ - The chicken is the country’s, but the city eats it.
+ - A good Judge conceives quickly, judges slowly.
+ - To a crazy ship, all winds are contrary.
+ - Sweet rose, whose hue, angry and brave, Bids the rash gazer wipe his eye, Thy root is even in the grave, And thou must die.
+ - The rage of a wild boar is able to spoil more then one wood.
+ - Pleasing ware is half sold.
+ - He that is not handsome at 20, nor strong at 30, nor rich at 40, nor wise at 50, will never be handsome, strong, rich or wise.
+ - Woe to the house where there is no chiding.
+ - Beauty draws more than oxen.
+ - An ill wound is cured, not an ill name.
+ - Good is god, but better carries it.
+ - Knowledge is no burden.
+ - All are not merry that dance lightly.
+ - Two sparrows on one Ear of Corn make an ill agreement.
+ - Honor and profit lie not all in one sack.
+ - Church bells beyond the stars heard, the soul’s blood, The land of spices; something understood.
+ - No day so clear but hath dark clouds.
+ - Let all live as they would die.
+ - Help thyself, and God will help thee.
+ - Music helps not the toothache.
+ - The love of money and the love of learning rarely meet.
+ - A gentle heart is tied with an easy thread.
+ - Love makes all hard hearts gentle.
+ - Things well fitted abide.
+ - To a boiling pot flies come not.
+ - None knows the weight of another’s burden.
+ - The honey is sweet, but the Bee stings.
+ - When a dog is drowning, everyone offers him a drink.
+ - He pares his apple that will cleanly feed.
+ - That is gold which is worth gold.
+ - The lion is not so fierce as they paint him.
+ - Gold opens all locks, no lock will hold against the power of gold.
+ - Good and quickly seldom meet.
+ - Love your neighbor, yet pull not down your hedge.
+ - Who shuts his hand has lost his gold, Who opens it hath it twice told.
+ - He puls with a long rope, that waits for anothers death.
+ - The best smell is bread; the best saver, salt; the best love, that of children.
+ - Great trees are good for nothing but shade.
+ - He who has the pepper may season as he lists.
+ - The Fox, when hee cannot reach the grapes, saies they are not ripe.
+ - Keep not ill men company, lest you increase the number.
+ - A handful of good life is better than a bushel of learning.
+ - If you walk on snow you cannot hide your footprints.
+ - You must lose a fly to catch a trout.
+ - Words and feathers the wind carries away.
+ - Lord! who hath praise enough?
+ - Prettiness dies first.
+ - No naked man is sought after to be rifled.
+ - Take heed of the wrath of a mighty man, and the tumult of the people.
+ - Although the sun shine, leave not thy cloake at home.
+ - An ill deed cannot bring honor.
+ - Calmness is great advantage; he that lets Another chafe, may warm him at his fire.
+ - Only a sweet and virtuous soul, like seasoned timber, never gives.
+ - If things were to be done twice, all would be wise.
+ - To live peaceably with all breedes good blood.
+ - Chuse none for thy servant who have served thy betters.
+ - Gossips are frogs, they drinke and talke.
+ - He thinkes not well, that thinkes not againe.
+ - It’s a dangerous fire begins in the bed-straw.
+ - Power seldome grows old at Court.
+ - Every man’s censure is first moulded in his own nature.
+ - Woe be to him that reads but one book.
+ - Many kiss the hand they wish cut off.
+ - One father is enough to govern one hundred sons, but not a hundred sons one father.
+ - Dare to be true. Nothing can need a lie: a fault which needs it most, grows two thereby.
+ - Mend your clothes and you may hold out this year.
+ - A verse may find him whom a sermon flies, And turn delight into a sacrifice...
+ - Who would have thought my shrivel’d heart could have recovered greenness?
+ - Bells call others, but themselves enter not into the Church.
+ - The God of love my shepherd is, And he that doth me feed: While he is mine, and I am his, What can I want or need?
+ - It is good to have friends both in Heaven and Hell.
+ - A rugged stone growes smooth from hand to hand.
+ - There is no body will go to hell for company.
+ - Whatsoever was the father of a disease, an ill diet was the mother.
+ - Praise day at night, and life at the end.
+ - I read, and sigh, and wish I were a tree; For sure then I should grow To fruit or shade: at least some bird would trust Her household to me, and I should be just.
+ - Patience, time and money accommodate all things.
+ - A scepter is one thing, and a ladle another.
+ - Ah my deare God! though I am clean forgot, Let me not love thee, if I love thee not.
+ - To a greedy eating horse a short halter.
+ - The life of man is a winter way.
+ - A drunkards purse is a bottle.
+ - Gold thou mayst safely touch; but if it stick Unto thy hands, it woundeth to the quick.
+ - Man is all symmetry, Full of proportions, one limb to another.
+ - Dry bread at home is better then rost meate abroad.
+ - Man Proposeth, God disposeth.
+ - Old wine, and an old friend, are good provisions.
+ - One slumber finds another.
+ - Hell is full of good meanings and wishings.
+ - Short boughs, long vintage.
+ - He – the country parson – is not witty or learned or eloquent, but holy.
+ - Critics are like brushers of noblemen’s clothes.
+ - Vertue now is in herbs and stones and words onely.
+ - A kinsman, a friend, or whom you intreate, take not to serve you, if you will be served neately.
+ - It’s not good fishing before the net.
+ - Never was strumpet faire.
+ - Some had rather lose their friend then their Jest.
+ - Sorrow was all my soul; I scarce believed, Till grief did tell me roundly, that I lived.
+ - Of all smells, bread; of all tastes, salt.
+ - Sum up at night what thou hast done by day.
+ - A wise man cares not for what he cannot have.
+ - Every path hath a puddle.
+ - To a good spender God is the Treasurer.
+ - If I have enough for myself and family, I am steward only for myself; if I have more, I am but a steward of that abundance for others.
+ - Grief melts away Like snow in May, As if there were no such cold thing.
+ - God sends a curst cow short horns.
+ - God heales, and the Physitian hath the thankes.
+ - Be useful where thou livest.
+ - By suppers more have been killed than Galen ever cured.
+ - He that trusts in a lie, shall perish in truth.
+ - Take heed of winde that comes in at a hole, and a reconciled Enemy.
+ - The charges of building and making of gardens are unknowne.
+ - The eye will have his part.
+ - The great would have none great and the little all little.
+ - The ofspring of those that are very young, or very old, lasts not.
+ - The vertue of a coward is suspition.
+ - Three can hold their peace, if two be away.
+ - Were there no fooles, badd ware would not passe.
+ - Whether goest, griefe? where I am wont.
+ - Who would doe ill ne’re wants occasion.
+ - You may be on land, yet not in a garden.
+ - A garden must be looked into, and dressed as the body.
+ - Follow not truth too near the heels, lest it dash out thy teeth.
+ - O what a sight were Man, if his attires Did alter with his minde; And like a dolphins skinne, his clothes combin’d With his desires!
+ - The Wolfe must dye in his owne skinne.
+ - Hee that eats the hard shall eate the ripe.
+ - In a great River great fish are found, but take heede, lest you bee drowned.
+ - Our owne actions are our security, not others judgements.
+ - The ballance distinguisheth not betweene gold and lead.
+ - The Devill is not alwaies at one doore.
+ - A cherefull looke makes a dish a feast.
+ - Vnder water, famine; under snow, bread.
+ - The devil divides the world between atheism and superstition.
+ - A little given seasonably excuses a great gift.
+ - Though you rise early, yet the day comes at his time, and not till then.
+ - By the needle you shall draw the thread, and by that which is past, see how that which is to come will be drawne on.
+ - An old dog barks not in vain.
+ - Great business turns on a little pin.
+ - God strikes not with both hands, for to the sea he made heavens, and to rivers foords.
+ - Knowledge makes one laugh, but wealth makes one dance.
+ - Rise, heart; thy Lord is risen. Sing His praise Without delays, Who takes thee by the hand, that thou likewise With Him mayst rise: That, as His death calcined thee to dust, His life may make thee gold, and, much more, just.
+ - A piece of a Churchyard fits everybody.
+ - The house is a fine house, when good folks are within.
+ - A small heart hath small desires.
+ - All griefes with bread are lesse.
+ - Be what thou wouldst seeme to be.
+ - Dogs are fine in the field.
+ - Every one is witty for his owne purpose.
+ - Folly growes without watering.
+ - God complaines not, but doth what is fitting.
+ - A Caske and an ill custome must be broken.
+ - He that hath no good trade, it is to his losse.
+ - He that plaies his mony ought not to value it.
+ - Hee that stumbles and falles not, mends his pace.
+ - If great men would have care of little ones, both would last long.
+ - Love makes one fitt for any work.
+ - None is so wise, but the foole overtakes him.
+ - We must recoile a little, to the end we may leap the better.
+ - Take heed of a young wench, a prophetesse, and a Lattin bred woman.
+ - Wine makes all sorts of creatures at table.
+ - A servant with this clause Makes drudgery divine; Who sweeps a room as forThy laws Makes it and th’action fine.
+ - Hee that workes after his owne manner, his head akes not at the matter.
+ - The House shewes the owner.
+ - Three women make a market.
+ - A man of great memory without learning hath a rock and a spindle and no staff to spin.
+ - Talking payes no toll.
+ - Corn is cleaned with wind, and the Soul with chastening.
+ - Do not grudge To pick out treasures from an earthen pot. The worst speaks something good.
+ - Bee not a Baker, if your head be of butter.
+ - The bird loves her nest.
+ - You cannot make a wind-mill goe with a paire of bellowes.
+ - Gaming, women, and wine, while they laugh they make men pine.
+ - Some evils are cured by contempt.
+ - A feather in hand is better then a bird in the ayre.
+ - Building and marrying of Children are great wasters.
+ - Gamsters and race-horses never last long.
+ - Never was a miser a brave soul.
+ - Let thy mind’s sweetness have its operation upon thy body, clothes, and habitation.
+ - The gentle Hawke halfe mans her selfe.
+ - The thought hath good leggs, and the quill a good tongue.
+ - Who praiseth Saint Peter, doth not blame Saint Paul.
+ - Laugh not too much; the witty man laughs least: For wit is news only to ignorance. Lesse at thine own things laugh; lest in the jest Thy person share, and the conceit advance.
+ - Religion a stalking horse to shoot other foul.
+ - Sinnes are not knowne till they bee acted.
+ - The constancy of the benefit of the yeere in their seasons argues a Deity.
+ - The first and last frosts are the worst.
+ - My house, my house, though thou art small, Thou art to me the Escurial.
+ - Lie not, neither to thyself, nor man, nor God. Let mouth and heart be one; beat and speak together, and make both felt in action. It is for cowards to lie.
+ - Take the gentle path.
+ - Read as you taste fruit or savor wine, or enjoy friendship, love, or life.
+ - Better speake truth rudely, then lye covertly.
+ - Was ever grief like mine?
+ - The Jewes spend at Easter, the Moors at marriages, the Christians in sutes.
+ - By all means use sometimes to be alone.
+ - Drink not the third glass, which thou canst not tame, when once it is within thee.
+ - Learn weeping, and thou shalt gain laughing.
+ - At dinner my man appeares.
+ - Give loosers leave to talke.
+ - A holy habit clenseth not a foule soule.
+ - One enemy is too much.
+ - Hee begins to die, that quits his desires.
+ - But who does hawk at eagles with a dove?
+ - Perversnes makes one squint ey’d.
+ - Many things are lost for want of asking.
+ - To a close shorn sheep, God gives wind by measure.
+ - A gift much expected is paid, not given.
+ - The world is now adayes, God save the Conquerour.
+ - On a good bargain think twice.
+ - Hee that hath a Fox for his mate, hath neede of a net at his girdle.
+ - All flesh is not venison.
+ - The cow knows not what her tail is worth till she has lost it.
+ - Wisedome hath one foot on Land, and another on Sea.
+ - When thou dost tell another’s jest, therein Omit the oaths, which true wit cannot need; Pick out of tales the mirth, but not the sin.
+ - Amiens was taken by the Fox, and retaken by the Lion.
+ - Gentility is nothing but Ancient Riches.
+ - Litle stickes kindle the fire; great ones put it out.
+ - One mouth doth nothing without another.
+ - To play at Chesse when the house is on fire.
+ - Drought never brought dearth.
+ - Great deservers grow Intolerable presumers.
+ - Take heed of credit decaid, and people that have nothing.
+ - There is no heat of affection but is joyned with some idlenesse of brain, says the Spaniard.
+ - Persons unmask their evilest qualities when they do quarrel.
+ - A hatt is not made for one shower.
+ - If a good man thrive, all thrive with him.
+ - Little dogs start the Hare, the great get her.
+ - To seek in a Sheep five feet when there is but four.
+ - Great Fortune brings with it Great misfortune.
+ - Wee leave more to do when wee dye, then wee have done.
+ - Teach me, my God and king In all things thee to see And what I do in anything To do it as for thee.
+ - Love is not found in the market.
+ - We Batchelors laugh and shew our teeth, but you married men laugh till your hearts ake.
+ - Hee that is in a towne in May loseth his spring.
+ - Good is the mora that makes all sure.
+ - He that contemplates hath a day without night.
+ - When a knave is in a plumtree he hath neither friend nor kin.
+ - Advise none to marry or go to war.
+ - Take heed of mad folks in a narrow place.
+ - The good mother sayes not, Will you? but gives.
+ - A poore beauty finds more lovers then husbands.
+ - Castles are Forrests of stones.
+ - He that’s foolish in the fault, let him be wise in the punishment.
+ - It is good to hold the asse by the bridle.
+ - Love is the true price of love.
+ - All things require skill but an appetite.
+ - There come nought out of the sacke but what was there.
+ - Trust no friend with that you need fear him if he were your enemy.
+ - Punishment is lame, but it comes.
+ - Covetousnesse breaks the bag.
+ - Harken to reason or shee will bee heard.
+ - The faulty stands on his guard.
+ - To speake of an Vsurer at the table marres the wine.
+ - If any speak ill of thee, fly home to thy own conscience and examine thy heart. If thou art guilty, it is a just correction; if not guilty, it is a fair instruction.
+ - A sleepy master makes his servant a Lowt.
+ - No hair so small but hath his shadow.
+ - Serve a noble disposition, though poore, the time comes that hee will repay thee.
+ - Threatned men eat bread, says the Spaniard.
+ - The mouse that hath but one hole is quickly taken.
+ - Prosperity lets goe the bridle.
+ - A poore mans Cow dies a rich mans child.
+ - I escaped the Thunder, and fell into the Lightning.
+ - Water a farre off quencheth not fire.
+ - A sad, wise valor is the brave complexion.
+ - A civil guest Will no more talk all, than eat all the feast.
+ - We must love, as looking one day to hate.
+ - When one is on horsebacke hee knowes all things.
+ - Working and making a fire doth discretion require.
+ - He that believes all misseth; he that believes nothing, hits not.
+ - Hee that learnes a trade hath a purchase made.
+ - A good pay-master starts not at assurances.
+ - The yeare doth nothing else but open and shut.
+ - He that respects not is not respected.
+ - True beauty lives on high. Ours is but a flame borrowed thence.
+ - An upbraided morsell never choaked any.
+ - The dark grave, which knows all secrets, can alone reclaim the fatal doubt once cast on a woman’s name.
+ - Princes are venison in Heaven.
+ - Take heede of an oxe before, of an horse behind, of a monke on all sides.
+ - Hee that falles into the durt, the longer he stayes there, the fowler he is.
+ - If the braine sowes not corne, it plants thistles.
+ - Though the Mastiffe be gentile, yet bite him not by the lippe.
+ - Ty it well, and let it goe.
+ - When prayers are done, my Lady is ready.
+ - He complaines wrongfully on the sea that twice suffers shipwrack.
+ - Hee that labours and thrives spins gold.
+ - No profit to honour, no honour to Religion.
+ - Slander is a shipwrack by a dry Tempest.
+ - That’s the best gowne that goes up and downe the house.
+ - Ther’s no great banquet but some fares ill.
+ - A snow year, a rich year.
+ - The Frier preached against stealing, and had a goose in his sleeve.
+ - A flatterers throat is an open Sepulcher.
+ - Nothing secure unlesse suspected.
+ - Leave jesting whiles it pleaseth, lest it turne to earnest.
+ - Withough danger you cannot go beyond danger.
+ - Envy not greatness: for thou mak’st thereby Thyself the worse, and so the distance greater.
+ - Many, affecting wit beyond their power, Have got to be a dear fool for an hour.
+ - An old cat sports not with her prey.
+ - A dead Bee maketh no Hony.
+ - Hee that gets out of debt, growes rich.
+ - Not a long day, but a good heart rids worke.
+ - The dog gnawes the bone because he cannot swallow it.
+ - The goate must browse where she is tyed.
+ - The tongue talkes at the heads cost.
+ - Vertue and a Trade are the best portion for Children.
+ - When you are an Anvill, hold you still; when you are a hammer, strike your fill.
+ - It is part of a poor spirit to undervalue himself and blush.
+ - Could have recovered greenness?
+ - No sooner is a Temple built to God but the Devill builds a Chappell hard by.
+ - That flesh is but the glasse, which holds the dust That measures all our time; which also shall Be crumbled into dust.
+ - The smith and his penny both are black.
+ - All beasts of prey are strong or treacherous.
+ - Rivers neede a spring.
+ - The crow bewailes the sheepe, and then eates it.
+ - There are three waies, the Vniversities, the Sea, the Court.
+ - True praise rootes and spreedes.
+ - Without favour none will know you, and with it you will not know your selfe.
+ - To write a verse or two is all the praise That I can raise.
+ - Who is so deafe, as he that will not hear?
+ - A wicked mans gift hath a touch of his master.
+ - Armour is light at table.
+ - Cover your selfe with your shield, and care not for cryes.
+ - Favour will as surely perish as life.
+ - A full belly neither fights nor flies well.
+ - War makes thieves and peace hangs them.
+ - Souldiers in peace are like chimneys in summer.
+ - The wolfe eats oft of the sheep that have been warn’d.
+ - Summe up at night what thou hast done by day; And in the morning what thou hast to do. Dresse and undresse thy soul; mark the decay And growth of it; if, with thy watch, that too Be down then winde up both; since we shall be Most surely judg’d, make thy accounts agree.
+ - All our pompe the earth covers.
+ - Dry feet, warme head, bring safe to bed.
+ - Not only ought fortune to be pictured on a wheel, but every thing else in this world.
+ - Bibles laid open, millions of surprises.
+ - He that lies with the dogs, riseth with fleas.
+ - Light burdens, long borne, grow heavy.
+ - An idle head is a boxe for the winde.
+ - Divine ashes are better then earthly meale.
+ - Every one fastens where there is gaine.
+ - Good words quench more then a bucket of water.
+ - Saint Luke was a Saint and a Physitian, yet is dead.
+ - One sound blow will serve to undo us all.
+ - We cannot come to honour under Coverlet.
+ - When God will, no winde but brings raine.
+ - Reason and speech we onely bring.
+ - We live in an age that hath more need of good example than precepts.
+ - A mountaine and a river are good neighbours.
+ - Hee stands not surely, that never slips.
+ - Of a new Prince, new bondage.
+ - Ready mony is a ready Medicine.
+ - Night is the mother of counsels.
+ - Let none say, I will not drinke water.
+ - They that know one another salute a farre off.
+ - Who gives to all, denies all.
+ - Well may hee smell fire, whose gowne burnes.
+ - Would you know what money is, go borrow some.
+ - Bee not idle and you shall not bee longing.
+ - Cloath thee in war, arme thee in peace.
+ - Great strokes make not sweete musick.
+ - He that sowes trusts in God.
+ - Weight justly and sell dearely.
+ - Who will sell the Cow, must say the word.
+ - Good cable, to enforce and draw, And be thy law, While thou didst wink and wouldst not see.
+ - Who goes to bed, and doth not pray, Maketh two nights to every day!
+ - Every one is weary, the poore in seeking, the rich in keeping, the good in learning.
+ - A bad dog never sees the Wolfe.
+ - He that’s long a giving, knowes not how to give.
+ - Send not a Catt for Lard.
+ - Every mile is two in winter.
+ - Deceive not thy physician, confessor, nor lawyer.
+ - Never had ill workeman good tooles.
+ - Take heed of a step-mother; the very name of her sufficeth.
+ - The death of a young wolfe doth never come too soon.
+ - The thorne comes forth with the point forwards.
+ - Women laugh when they can, and weepe when they will.
+ - Hast comes not alone.
+ - Reckon right, and February hath one and thirty daies.
+ - The Catt sees not the mouse ever.
+ - The wrongs of a Husband or Master are not reproached.
+ - To the counsell of fooles a woodden bell.
+ - A crooked log makes a strait fire.
+ - Conversation makes one what he is.
+ - Forbeare not sowing because of birds.
+ - He that speakes sowes, and he that holds his peace, gathers.
+ - Assaile who will, the valiant attends.
+ - He that trusts much Obliges much, says the Spaniard.
+ - Old Camels carry young Camels skins to the Market.
+ - Water trotted is as good as oates.
+ - Pursue not a victory too far. He hath conquered well that hath made his enemy fly; thou mayest beat him to a desperate resistance, which may ruin thee.
+ - Where the drink goes in, there the wit goes out.
+ - Better a snotty child, then his nose wip’d off.
+ - Good horses make short miles.
+ - Hee that hath one hogge makes him fat, and hee that hath one son makes him a foole.
+ - Heresie is the school of pride.
+ - Nothing lasts but the Church.
+ - A coole mouth, and warme feet, live long.
+ - One faire day in winter makes not birds merrie.
+ - Whether shall the Oxe goe, where he shall not labour?
+ - Willowes are weak, yet they bind other wood.
+ - Go not for every grief to the physician, nor for every quarrell to the lawyer, nor for every thirst to the pot.
+ - That from small fires comes oft no small mishap.
+ - All is well with him, who is beloved of his neighbours.
+ - A little and good fills the trencher.
+ - There is great force hidden in a gentle command.
+ - Jest not with the eye or with Religion.
+ - Paines to get, care to keep, feare to lose.
+ - Some make a conscience of spitting in the Church, yet robbe the Altar.
+ - The beast that goes alwaies never wants blowes.
+ - The Divell never assailes a man, except he find him either void of knowledge, or of the fear of God.
+ - The Germans wit is in his fingers.
+ - The March sunne raises but dissolves not.
+ - The thread breakes, where it is weakest.
+ - To buy deare is not bounty.
+ - Wee know not who lives or dies.
+ - Who remove stones, bruise their fingers.
+ - Yeeres know more then bookes.
+ - Be not too presumptuously sure in any business; for things of this world depend on such a train of unseen chances that if it were in man’s hands to set the tables, still he would not be certain to win the game.
+ - After so many deaths I live and write;.
+ - When once thy foot enters the church, be bare. God is more there than thou: for thou art there Only by his permission. Then beware, That leads from earth to heaven.
+ - Halfe the world knowes not how the other halfe lies.
+ - A pittifull looke askes enough.
+ - Amongst good men two men suffice.
+ - Astrologie is true, but the Astrologers cannot finde it.
+ - Curtesie on one side only lasts not long.
+ - Every ill man hath his ill day.
+ - Feare, the Bedle of the Law.
+ - Gifts enter every where without a wimble.
+
+500 quotes

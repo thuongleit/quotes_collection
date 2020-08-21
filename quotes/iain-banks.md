@@ -1,0 +1,78 @@
+ - Empathize with stupidity and you’re halfway to thinking like an idiot.
+ - I think the easiest people to fool are ourselves. Fooling ourselves may even be a necessary precondition for fooling others.
+ - Political correctness is what right-wing bigots call what everybody else calls being polite.
+ - One should never mistake pattern for meaning.
+ - Reason shapes the future, but superstition infects the present.
+ - You need to read more science fiction. Nobody who reads science fiction comes out with this crap about the end of history.
+ - The bomb lives only as it is falling.
+ - A guilty system recognizes no innocents.
+ - Any theory which causes solipsism to seem just as likely an explanation for the phenomena it seeks to describe ought to be held in the utmost suspicion.
+ - It’s a library, only the stupid or the evil are afraid of those.
+ - I just think people overvalue argument because they like to hear themselves talk.
+ - The trouble with writing fiction is that it has to make sense, whereas real life doesn’t.
+ - All you ever were was a little bit of the universe, thinking to itself. Very specific; this bit, here, right now. All the rest was fantasy.
+ - All our lives are symbols. Everything we do is part of a pattern we have at least some say in. The strong make their own patterns and influence other people’s, the weak have their courses mapped out for them. The weak and the unlucky, and the stupid.
+ - One should never regret one’s excesses, only one’s failures of nerve.
+ - I am not being obtuse. You are being paranoid.
+ - What’s one more meaningless act of violence on that zoo of a planet? It would be appropriate. When in Rome; burn it.
+ - You have to have something worth saying and then the ability to say it- writing’s a double skill, really.
+ - What is all your studying worth, all your learning, all your knowledge, if it doesn’t lead to wisdom? And what’s wisdom but knowing what is right, and what is the right thing to do?
+ - Technology determines the possibilities of society. It doesn’t matter whether you start out from a fascist state or a communist state or a free-market state.
+ - I’m an only child so am happy with my own company and I don’t really get lonely.
+ - It was the day my grandmother exploded.
+ - Here, in the bare dark face of night A calm unhurried eye draws sight We see in what we think we fear The cloudings of our thought made clear.
+ - As a writer, you get to play, you get alter time, you get to come up with the smart lines and the clever comebacks you wish you’d thought of.
+ - A lot of what the ‘Culture’ is about is a reaction to all the science fiction I was reading in my very early teens.
+ - People were always sorry. Sorry they had done what they had done, sorry they were doing what they were doing, sorry they were going to do what they were going to do; but they still did whatever it is. The sorrow never stopped them; it just made them feel better. And so the sorrow never stopped.
+ - An Outside Context Problem was the sort of thing most civilisations encountered just once, and which they tended to encounter rather in the same way a sentence encountered a full stop.
+ - Torture is such a slippery slope; as soon as you allow a society or any legal system to do that, almost instantly you get a situation where people are being tortured for very trivial reasons.
+ - I’m saying with very few exceptions nothing lasts forever, and among those exceptions, no work or thought of man is numbered.
+ - I’m a devoted husband. That must strike you as totally deviant.
+ - I think the future stopped looking American when you think back to Blade Runner and Neuromancer, when it started to look more Japanese.
+ - Mr Blawke always reminded me of a heron; I’m not sure why. Something to do with a sense of rapacious stillness, perhaps, and also the aura of one who knows time is on his side.
+ - There’s an old Sysan saying that the soup of life is salty enough without adding tears to it.
+ - Escape is a consumer goods like another.
+ - In so much of politics you’re not allowed to disagree with what’s been agreed.
+ - The combination of modern ordnance and outdated tactics had, as usual, created enormous casualties on both sides.
+ - Perdition awaits at the end of a road constructed entirely from good intentions, the devil emerges from the details and hell abides in the small print.
+ - Most mainstream male fiction is littered with heroines, and female characters are basically so great, you want to fall in love with them.
+ - One of the advantages of having laws is the pleasure one may take in breaking them.
+ - If you have any helpful suggestions I’d be pleased to hear them. If all you can do is make snide insinuations then it would probably benefit all concerned if you bestowed the fruits of your prodigious wit on someone with the spare time to give them the consideration they doubtless deserve.
+ - Science fiction is trying to find alternative ways of looking at realities.
+ - Half the fun of writing a novel is finding out from other people later on what you actually meant.
+ - Intellectual achievement. The exercise of skill. Human feeling.
+ - Even in my side of the world, I’ve been in publishing for what, 25 or 26 years, and it’s gone from being a gentlemen’s club to being a few big players, and it’s very corporatised.
+ - There has seldom if ever a shortage of eager young males prepared to kill and die to preserve the security, comfort and prejudices of their elders, and what you call heroism is just an expression of this simple fact; there is never a scarcity of idiots.
+ - Soon equates to good, later to worse, Uagen Zlepe, scholar. Therefore, immediacy.
+ - The point is, there is no feasible excuse for what are, for what we have made of ourselves. We have chosen to put profits before people, money before morality, dividends before decency, fanaticism before fairness, and our own trivial comforts before the unspeakable agonies of others.
+ - I think we need politicians; we need people who want to serve.
+ - I wouldn’t like to be a character in one of my books!
+ - I still have some of my old University essays, and I do still have my drawing book from primary year seven.
+ - I’m not a great believer in awards-of course the fact that I’ve never won one has nothing to do with it at all!
+ - He knew all the answers. Everybody did. Everybody knew everything and everybody knew all the answers. It was just that the enemy seemed to know better ones.
+ - You get so caught up in what you’re writing – action sequences tend to do that more than anything else because you’re living it, and feeling for your characters.
+ - Even galaxy-spanning anarchist utopias of stupefying full-spectrum civilisational power have turf wars within their unacknowledged militaries.
+ - I love writing and can’t imagine not being able to do it. I want an easy life and if it had been difficult I wouldn’t be doing it. I do admire writers who do it even though it costs them.
+ - I am, as I have always been, of the opinion that while the niceties of normal moral constraints should be our guides, they must not be our masters.
+ - What is any achievement, however great it was, once time itself is dead?
+ - After doing extensive research, I can definitely tell you that single malt whiskies are good to drink.
+ - I think a lot of people are frightened of technology and frightened of change, and the way to deal with something you’re frightened of is to make fun of it. That’s why science fiction fans are dismissed as geeks and nerds.
+ - There are no gods, we are told, so I must make my own salvation.
+ - Most people are not prepared to have their minds changed, and I think they know in their hearts that other people are just the same, and one of the reasons people become angry when they argue is that they realize just that, as they trot out their excuses.
+ - In theory, I work an eight-hour day and a five-day week which means I can socialise with my pals who mostly have normal jobs like teaching and computer programming.
+ - I just come up with the stories and write them as well as I can. There’s not really a great deal of strokey-beard thinking going on.
+ - I still find it hard to understand that anyone could argue that you can’t have machines that exhibit consciousness.
+ - By the usual reckoning, the worst books make the best films.
+ - It looks perverted and wasteful to us, but then one thing that empires are not about is the efficient use of resources and the spread of happiness; both are typically accomplished despite the economic short-circuiting – corruption and favoritism, mostly – endemic to the system.
+ - One of your American professors said that to study religion was merely to know the mind of man, but if one truly wanted to know the mind of God, you must study physics.
+ - I remember being shocked when I discovered some of my school pals didn’t have books in their homes. I thought it was like not having oxygen, or hot water.
+ - Look at these humans! How could such glacial slowness even be called life? An age could pass, virtual empires rise and fall in the time they took to open their mouths to utter some new inanity!
+ - I’ve always loved Scotland, and I’m not a huge fan of big cities, to be honest. I like them to dip into for a bit, but I’m not sure I would want to live in one again.
+ - There is a quite a lot of effort involved but I find action sequences some of the quickest to write and the most fun.
+ - Any such inklings were like a few scattered grains of truth dissolved in an ocean of nonsense, and were anyway generally inextricably bound up with patently paranoid ravings which served only to devalue the small amounts of sense and pertinence with which they were associated.
+ - Experience as well as common sense indicated that the most reliable method of avoiding self-extinction was not to equip oneself with the means to accomplish it in the first place.
+ - Something in your voice tells me we approach the question of remuneration.
+ - Smell is a very animal thing, almost reptilian, where the more cerebral things like reading less so.
+ - If this goes badly and I make a crater, I want it named after me!
+
+76 quotes

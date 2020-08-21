@@ -1,0 +1,42 @@
+ - It’s not about the number of hours you practice, it’s about the number of hours your mind is present during the practice. ~~Kobe Bryant
+ - You have to be odd to be number one. ~~Dr. Seuss
+ - Number rules the universe. ~~Pythagoras
+ - The number one reason people fail in life is because they listen to their friends, family, and neighbors. ~~Napoleon Hill
+ - My number one piece of advice is: you should learn how to program. ~~Mark Zuckerberg
+ - Age is just a number, maturity is a choice. ~~Harry Styles
+ - The purpose of computing is insight, not numbers. ~~Richard Hamming
+ - Job dissatisfaction is the number one factor in whether you survive your first heart attack. ~~Tony Robbins
+ - An infinite number of monkeys typing into GNU emacs would never make a good program. ~~Linus Torvalds
+ - A genius is a genius, regardless of the number of morons who belong to the same race – and a moron is a moron, regardless of the number of geniuses who share his racial origin. ~~Ayn Rand
+ - Great leaders are willing to sacrifice the numbers to save the people. Poor leaders sacrifice the people to save the numbers. ~~Simon Sinek
+ - The idea that we are alone in the universe seems to me completely implausible and arrogant, considering the number of planets and stars that we know exist, it’s extremely unlikely that we are the only form of evolved life. ~~Stephen Hawking
+ - The number one key to success in life is to master your own state. If you can manage and master your states, there’s nothing you can’t do. ~~Tony Robbins
+ - Rule number one is, don’t sweat the small stuff. Rule number two is, it’s all small stuff. ~~Mike Davies
+ - I’ll give you my phone number. When you worry, call me. I’ll make you happy. ~~Bob Marley
+ - God built the universe on numbers. ~~Pythagoras
+ - Rise like Lions after slumber In unvanquishable number- Shake your chains to earth like dew Which in sleep had fallen on you Ye are many-they are few. ~~Percy Bysshe Shelley
+ - As a child, I wanted to know how things worked and to control them. With a friend, I built a number of complicated models that I could control. It was a natural next step to want to know how the universe works. ~~Stephen Hawking
+ - I think probably kindness is my number one attribute in a human being. I’ll put it before any of the things like courage or bravery or generosity or anything else. ~~Roald Dahl
+ - Any man who tries to be good all the time is bound to come to ruin among the great number who are not good. ~~Niccolò Machiavelli
+ - A person’s success in life can usually be measured by the number of uncomfortable conversations he or she is willing to have. ~~Tim Ferriss
+ - Our freedom can be measured by the number of things we can walk away from. ~~Vernon Howard
+ - The total number of minds in the universe is one. ~~Erwin Schrödinger
+ - It is not in numbers, but in unity, that our great strength lies. ~~Thomas Paine
+ - Stand for people. Not a product or service or metric or number. If we stand for real, living, breathing people, we will change the world. ~~Simon Sinek
+ - A life is made up of a great number of small incidents, and a small number of great ones. ~~Roald Dahl
+ - In America everything’s about who’s number one today. ~~Bruce Springsteen
+ - The number one problem in today’s generation and economy is the lack of financial literacy. ~~Alan Greenspan
+ - All the mathematical sciences are founded on the relations between physical laws and laws of numbers. ~~James Clerk Maxwell
+ - Look, let me put it this way: with me, you’re number one and there isn’t even a number two. ~~Charles Bukowski
+ - My own opinion is enough for me, and I claim the right to have it defended against any consensus, any majority, anywhere, any place, any time. And anyone who disagrees with this can pick a number, get in line, and kiss my ass. ~~Christopher Hitchens
+ - God put me on this earth to accomplish a certain number of things. Right now I am so far behind that I will never die. ~~Bill Watterson
+ - One is too small a number to achieve greatness. No accomplishment of real value has ever been achieved by a human being working alone. ~~John C. Maxwell
+ - The total number of stars in the Universe is larger than all the grains of sand on all the beaches of the planet Earth. ~~Carl Sagan
+ - The surest way of finding peace of mind is that which helps the greatest number of others to find it. ~~Napoleon Hill
+ - I’m an investor in a number of biotech companies, partly because of my incredible enthusiasm for the great innovations they will bring. ~~Bill Gates
+ - Ladies and gentlemen of the jury, exhibit number one is what the seraphs, the misinformed, simple, noble-winged seraphs, envied. Look at this tangle of thorns. ~~Vladimir Nabokov
+ - Do you think Arabs are dumb? They gave us our numbers. Try doing long division with Roman numerals. ~~Kurt Vonnegut
+ - Sometimes you have to erase the messages, delete the numbers, and move on. You don’t have to forget who that person was to you, but you do have to accept that they aren’t that person anymore. ~~Drake
+ - Money is multiplied in practical value depending on the number of W’s you control in your life: what you do, when you do it, where you do it, and with whom you do it. I call this the freedom multiplier. ~~Tim Ferriss
+
+40 quotes

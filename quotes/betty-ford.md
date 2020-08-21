@@ -1,0 +1,32 @@
+ - You can make it, but it’s easier if you don’t have to do it alone.
+ - I believe the equal rights amendment is a necessity of life for all citizens. The cabinet sometimes felt that I shouldn’t be so outspoken.
+ - The problem with drugs is that people forget to stop doing them. There’s a time and a place for everything, Mr. Mackey, and it’s called college.
+ - For 14 years, I’d been on medication for the pinched nerve, the arthritis, the muscle spasms in my neck, and I’d lost my tolerance for pills. If I had a single drink, the alcohol, on top of the pills, would make me groggy.
+ - The search for human freedom can never be complete without freedom for women.
+ - My family joins me in sharing the difficult news that Gerald Ford, our beloved husband, father, grandfather and great grandfather has passed away at 93 years of age. His life was filled with love of God, his family and his country.
+ - You never know what you can do until you have to do it.
+ - A liberated woman is one who feels confident in herself, and is happy in what she is doing. She is a person who has a sense of self-it all comes down to a freedom of choice.
+ - I know I was an alcoholic because I was preoccupied whether alcohol was going to be served or not.
+ - I’ve learned a lot about myself. Most of it is all right. When I add up the pluses and subtract the minuses, I still come out pretty well.
+ - Alcohol may pick you up a little bit, but it lets you down in a hurry.
+ - A housewife deserves to be honored as much as a woman who earns her living in the marketplace. I consider bringing up children a responsible job. In fact, being a good housewife seems to me a much tougher job than going to the office and getting paid for it.
+ - Being a lady does not require silence.
+ - I have an independent streak. You know, it’s kind of hard to tell a independent woman what to do.
+ - I feel it’s important to be active. People who retire, sit by their swimming pool and golf course and plan to relax have a very empty life.
+ - I don’t look at what I’ve lost. I look instead at what I have left.
+ - It’s always been my feeling that God lends you your children until they’re about eighteen years old. If you haven’t made your points with them by then, it’s too late.
+ - My makeup wasn’t smeared, I wasn’t disheveled, I behaved politely, and I never finished off a bottle, so how could I be alcoholic?
+ - Friends aren’t any more important than breath or blood to a high school senior.
+ - What man could afford to pay for all the things a wife does, when she’s a cook, a mistress, a chauffeur, a nurse, a baby-sitter? But because of this, I feel women ought to have equal rights, equal Social Security, equal opportunities for education, an equal chance to establish credit.
+ - That’s what we’re here on this Earth for, to help others.
+ - I think once I made up my mind that I was allergic to alcohol, and that’s what I learned, it made sense to me. And I think it was kind of pointed out that you know if you were allergic to strawberries, you wouldn’t eat strawberries. And that made sense to me.
+ - Holding these babies in my arms makes me realize the miracle my husband and I began.
+ - I really didn’t want to have my name on the center, because it just seemed like it was too much of a personal thing.
+ - I’ll never forget the day that I was told I would have to have a mastectomy. My reaction to the words was total denial.
+ - And I have always told the patients when I talk to them. When they come around and say, “What will you have to drink? Oh that’s right you don’t drink.” Just speak up and say, ‘Of course I drink. But I just don’t drink alcohol.’
+ - But my activities have been pretty much focused in the last almost 30 years on the recovery, of my own recovery, the understanding for my family of my recovery.
+ - I don’t feel that because I’m First Lady, I’m very different from what I was before. It can happen to anyone. After all, it has happened to anyone.
+ - When I say we’ve had an ideal marriage, I’m not just talking about physical attraction, which I can imagine can wear pretty thin if it’s all a couple has built on. We’ve had that and a whole lot more.
+ - We’re full all the time. And people do have good success and I think one of the programs at the center, the Continuing Care, helps them with their success. Because it’s difficult the first year.
+
+30 quotes

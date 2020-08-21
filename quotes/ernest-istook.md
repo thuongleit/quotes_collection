@@ -1,0 +1,25 @@
+ - English should be our official language. Reading and speaking English are requirements to become a citizen.
+ - America’s strength is not our diversity; our strength is our ability to unite people of different backgrounds around common principles. A common language is necessary to reach that goal.
+ - Instead of this confusion, we need the unifying force of an official language, English, which is the language of success in America.
+ - To become an American citizen, we require people to read, write and speak in English. That is to help them to assimilate in our melting pot, truly to become Americans. We mock that when the cherished right to vote does not involve English any more.
+ - Education begins at home and I applaud the parents who recognize that they – not someone else – must take responsibility to assure that their children are well educated.
+ - My father was the son of immigrants, and he grew up bilingual, but English is what my father taught me and what he spoke to me. America’s strength is not our diversity; it is our ability to unite around common principles even when we come from different backgrounds.
+ - Home schooled children frequently combine for many purposes – and they interact well. The growth of the home schooling movement means that more and more children are learning together, just not in a traditional classroom.
+ - We are all American. If we believe that we are Americans, if we believe that what binds us together is what we have in common, then it must include the common language, and that common tongue is English.
+ - It’s good that the first half of the speech emphasized freedom, because George W. Bush has been the global champion for freedom. As he said, if we don’t fight tyranny it will not leave us alone in peace.
+ - Out of control judicial activism threatens traditional marriage in America.
+ - America has global trade with plenty of nations that provide inexpensive labor, but it’s better for us when they’re in our own hemisphere, rather than sending that business halfway around the world.
+ - Printing ballots in multiple languages costs millions of dollars every year. It also discourages immigrants from integrating into American society and gaining the benefits that come from speaking English.
+ - Americans should be free to recognize our religious heritage; doing that is not the same as creating a government-sponsored religion.
+ - The birth of democracy in Iraq is one of the great positive changes of our era.
+ - While even pornography is protected as free speech, the courts have consciously undermined religious speech and freedom of religion for years.
+ - Thousands of present day students, like many of our Founding Fathers, are being taught at home.
+ - The motives of these parents vary, many parents don’t like the curriculum being taught to their kids, or are wary of the threat of peer pressure or the presence of drugs or violence lurking in too many of our schools today.
+ - The American people do not want people thumbing their nose at the law. It undercuts the very fabric of our society and the system of civil justice and of criminal justice as well.
+ - Research and development needs permanent tax credits to build the technology that spurs our growth. But no government programs alone can get America’s students to study more science and math parents must push and help their children to meet this goal.
+ - Those people who want to express their religious beliefs on public property should enjoy the same rights that we provide to those protesting the war in Iraq.
+ - There’s a lot of exaggerated talk about CAFTA, but it’s actually a fairly routine trade agreement. Although it involves fairly small nations, they’re still more important trade partners than places like Australia or many other larger nations.
+ - The courts are using the First Amendment to attack religion, when they should be using it to protect religion.
+ - There are a lot of Grinches out there that would like nothing better than to take any references to religion out of the holiday season.
+
+23 quotes

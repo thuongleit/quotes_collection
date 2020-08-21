@@ -1,0 +1,27 @@
+ - I’m sorry if my traumatized life is an inconvenience to you and your perfect existence.
+ - I am a practicing Catholic, but my lineage is Jewish, so if someone asks me if I’m Jewish, I say yes.
+ - If you can see life as a learning experience, you can turn any negative into a positive.
+ - I have the ugliest feet in the world. But even if I didn’t dance, they would still be ugly. My toes are too big!
+ - Dance is very, very old. With Louis XIV at Versailles is where ballet started.
+ - My issue in the past with nudity was that these scenes had been written solely for box office draw.
+ - No matter what your choices are, you truly have no control about what people think of you.
+ - I love New York. I love the multicultural vibe here. Los Angeles doesn’t inspire me in any way. Everyone is in the same industry, yet you feel very isolated.
+ - When I look back on it now, I am so glad that the one thing that I had in my life was my belief that everything in life is a learning experience, whether it be positive or negative. If you can see it as a learning experience, you can turn any negative into a positive.
+ - I think teenagers in the States grow up too fast. In Canada, kids are exposed to different things. Like school is very different; it’s not nearly as social. Canadian teenagers see it as a much more serious place.
+ - It’s almost better most times to not talk in a scene. I think you can actually express a lot more without words.
+ - I’ve never been opposed to nudity. I’ve been opposed to nudity for box-office draw.
+ - I find the most interesting and most daring scripts tend to be for independent films.
+ - Party of Five won a Golden Globe, it was a well-written television series.
+ - I’m just one of those people that if I sit down to watch a horror film, I put my hands over my face and I cry a lot and I don’t see half of the film because I’m too upset.
+ - Scream was great for what it was. For a horror film, it was intelligent, it was funny, it took a laugh at itself.
+ - There’s a feeling of elation that comes after getting off stage and then there’s a feeling of utter sadness that comes after getting off the stage.
+ - I always thought I should base how good I am on how good I feel I am.
+ - You’re being cast for your acting ability. It’s not based on the way your body functions. If you’re playing a lead in a movie, it’s for that character and they’ll tailor it to you. In a dance company, you have to fit in a definite mold.
+ - There’s something really nice about not sitting separate from the crew in some massive trailer away from the studio. To actually be there with them, it’s more of a creative process.
+ - People either know Alan Rudolph and love every single one of his films or they don’t know him at all.
+ - I don’t know how people can live without a therapist.
+ - There are very few dance companies in the world and you have to be phenomenal. You have to not be injured. You have to have a really strong mind to deal with the dance world. People who can do it are amazing to me. You cannot have a life outside of dance.
+ - The first time I ever screamed at someone was in a scene, and I’d never screamed at someone in my life.
+ - That’s absolutely how I am. Like race, black or white – I see absolutely no difference. Because for me it’s just such a reality. You are human, I am human, let’s try to accept one another for whatever we are.
+
+25 quotes

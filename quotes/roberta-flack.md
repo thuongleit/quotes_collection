@@ -1,0 +1,21 @@
+ - Strumming my pain with his fingers, singing my life with his words, killing me softly with his song.
+ - The first time ever I saw your face I thought the sun rose in your eyes.
+ - So see every opportunity as golden, and keep your eyes on the prize – yours, not anybody else’s.
+ - Getting married is easy. Staying married is more difficult. Staying happily married for a lifetime is among the fine arts.
+ - A song to me is a very tangible thing. I can feel it with my hands and see it with my eyes...
+ - Music is an art form that doesn’t need to be explained. It needs to be performed; it needs to be felt; it needs to be listened to; it needs to progress.
+ - There’s a river somewhere that flows through the lives of everyone.
+ - Walking in the dark, seeing lovers do their thing. That’s the time, I feel like making love to you.
+ - Tonight, we will both discover, how friends turn into lovers, when I make love to you.
+ - As musicians, and as people who sell material for people to hear and absorb, it’s important that we use that voice wisely.
+ - Remember: Always walk in the light. And if you feel like you’re not walking in it, go find it. Love the light.
+ - That’s a wonderful thing, because one of the primary qualities of a good performance is honesty.
+ - Bill Evans is a real serious jazz pianist who, in my book, crossed over boundaries in terms of color. He used the piano as his canvas.
+ - Music comes first from my heart, and then goes upstairs to my head where I check it out.
+ - I’ve been overweight all my life.
+ - I have been on diets that were supervised by doctors, that were carefully supervised where I lost weight.
+ - I didn’t know how well my first album had done; it was enough to get me to do the second album, which was a continuation of the music I’d worked on and perfected.
+ - Once you’re successful with a certain kind of music, it’s hard not to have faith in it as a means to stay successful.
+ - My hope is that out of all the anger and seeming hostility that we hear in some of today’s music will come some sort of coalition that will become politically involved.
+
+19 quotes

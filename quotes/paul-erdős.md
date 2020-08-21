@@ -1,0 +1,22 @@
+ - The purpose of life is to conjecture and prove.
+ - There’ll be plenty of time to rest in the grave.
+ - God may not play dice with the universe, but something strange is going on with the prime numbers.
+ - I’ll tell you once, and I’ll tell you again. There’s always a prime between n and 2n.
+ - A mathematician is a device for turning coffee into theorems.
+ - Every human activity, good or bad, except mathematics, must come to an end.
+ - You don’t have to believe in God, but you should believe in The Book.
+ - I know numbers are beautiful. If they aren’t beautiful, nothing is.
+ - It is not enough to be in the right place at the right time. You should also have an open mind at the right time.
+ - Mathematics is the surest way to immortality. If you make a big discovery in mathematics, you will be remembered after everyone else will be forgotten.
+ - Finally I am becoming stupider no more.
+ - Television is something the Russians invented to destroy American education.
+ - When I was a child, the Earth was said to be two billion years old. Now scientists say it’s four and a half billion. So that makes me two and a half billion.
+ - Here I am: My brain is open.
+ - God has the Big Book, the beautiful proofs of mathematical theorems are listed here.
+ - It will be another million years, at least, before we understand the primes.
+ - Another roof, another proof.
+ - Property is a nuisance.
+ - Mathematics is not yet ready for such problems.
+ - There are three signs of senility. The first sign is that a man forgets his theorems. The second sign is that he forgets to zip up. The third sign is that he forgets to zip down.
+
+20 quotes

@@ -1,0 +1,57 @@
+ - The only truth is love beyond reason.
+ - Memory is what makes us young or old.
+ - I don’t know where my road is going, but I know that I walk better when I hold your hand.
+ - Take time as it comes, the wind as it blows, woman as she is.
+ - Life is a sleep, love is a dream; and you have lived if you have loved.
+ - Great artists have no country.
+ - How glorious it is – and also how painful – to be an exception.
+ - Perfection does not exist; to understand it is the triumph of human intelligence; to expect to possess it is the most dangerous kind of madness.
+ - The blood of my motherland waters a magic plant that cures all ills. That plant is art, and sometimes art needs corruption as a kind of fertilizer.
+ - Man is a pupil, pain is his teacher.
+ - The only true language in the world is a kiss.
+ - With a kiss let us set out for an unknown world.
+ - The return makes one love the farewell.
+ - Any cigar smoker is a friend, because I know how he feels.
+ - In my flowery dreams there’s always you. I do not regret it one bit.
+ - The glass I drink from is not large, but at least it is my own.
+ - I have come too late into a world too old.
+ - The mouth keeps silent to hear the heart speak.
+ - What I need is a woman who is something, anything: either very beautiful or very kind or in the last resort very wicked; very witty or very stupid, but something.
+ - Oh! my friend, when you feel bursting on your lips the vow of eternal love, do not be afraid to yield, but do not confound wine with intoxication; do not think the cup divine because the draft is of celestial flavor; do not be astonished to find it broken and empty in the evening.
+ - Romanticism is the abuse of adjectives.
+ - The life of a devotee is a crusade of which the heart is the Holy Land.
+ - The most disagreeable thing that your worst enemy says to your face does not approach what your best friends say behind your back.
+ - Know that there is often hidden in us a dormant poet, always young and alive.
+ - The soft contralto notes of a woman’s voice are born in the immediate region of the heart.
+ - Partake of love as a temperate man partakes of wine; do not become intoxicated.
+ - A happy memory is perhaps on this earth truer than happiness itself.
+ - One must not trifle with love.
+ - Is is true that dictators never dream because they can change their smallest fantasies into realities if they want to?
+ - It is easy to promise, and alas! How easy to forget!
+ - I deeply wished I could make the stars all come down and breathe them; disappear in them.
+ - Disgrace is the synonym of discovery.
+ - There are temptations more attractive than angels. Liberty, Patriotism, the good of humanity – words like that are the silver scales of the Tempter’s flaming wings.
+ - The costliest women are the ones who cost nothing.
+ - Reason may cure illusions, but not suffering.
+ - Vanity and dignity are incompatible with each other; vain women are almost sure to be vulnerable.
+ - There is no worse sorrow than remembering happiness in the day of sorrow.
+ - Repartee is altogether a natural endowment, and is the lightning of the mind.
+ - Taxes are a universal burden in moral as well as in civil life. There is not a pleasure, social or otherwise, which is not assessed by fate at its full value!
+ - The heart that once has been your shrine for other loves is too divine.
+ - Things they don’t understand always cause a sensation among the English.
+ - The most despairing songs are the most beautiful, and I know some immortal ones that are pure tears.
+ - As all the perfumes of the vanished dayRise from the earth still moistened with the dewSo from my chastened soul beneath thy rayOld love is born anew.
+ - Few persons enjoy real liberty; we are all slaves to ideas or habits.
+ - What a frightful weapon is human thought! It is our defense and our safeguard, the most precious gift that God has made us. It is ours and it obeys us; we may launch it forth into space, but, once outside of our feeble brains, it is gone; we can no longer control it.
+ - Each memorable verse of a true poet has two or three times the written content.
+ - Happiness may have but one night, as glory but one day.
+ - If love is a play, this play, as old as the world, fiasco or not, it is, all in all, the least bad thing that has so far been found. The roles are trite, I admit, but if the play had no value the whole universe wouldn’t know it by heart.
+ - Experience is the name men give to their follies or their sorrows.
+ - In love matters; keep your pen from paper.
+ - I can’t help it, the idea of the infinite torments me.
+ - A lively retrospect summons back to us once more our youth, with vivid reflex of its early joys and unstained pleasures.
+ - Look at the sun! It’s dry, it’s dead, it needs a drink, it wants blood! And I’ll give it blood!
+ - Christianity ruined emperors, but saved peoples.
+ - Nothing is a sin when you obey the orders of a priest.
+
+55 quotes

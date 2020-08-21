@@ -1,0 +1,247 @@
+ - I am no bird; and no net ensnares me; I am a free human being with an independent will.
+ - I would always rather be happy than dignified.
+ - The trouble is not that I am single and likely to stay single, but that I am lonely and likely to stay lonely.
+ - What you want to ignite in others must first burn inside yourself.
+ - The human heart has hidden treasures, In secret kept, in silence sealed; The thoughts, the hopes, the dreams, the pleasures, Whose charms were broken if revealed.
+ - Life is so constructed, that the event does not, cannot, will not, match the expectation.
+ - You are human and fallible.
+ - Crying does not indicate that you are weak. Since birth, it has always been a sign that you are alive.
+ - If all the world hated you, and believed you wicked, while your own conscience approved you, and absolved you from guilt, you would not be without friends.
+ - But life is a battle: may we all be enabled to fight it well!
+ - Oft a little morning rain Foretells a pleasant day.
+ - I can live alone, if self-respect, and circumstances require me so to do. I need not sell my soul to buy bliss. I have an inward treasure born with me, which can keep me alive if all extraneous delights should be withheld, or offered only at a price I cannot afford to give.
+ - Life appears to me too short to be spent in nursing animosity, or registering wrongs.
+ - Prejudices, it is well known, are most difficult to eradicate from the heart whose soil has never been loosened or fertilized by education; they grow firm there, firm as weeds among stones.
+ - The shadows are as important as the light.
+ - Give him enough rope and he will hang himself.
+ - God did not give me my life to throw it away.
+ - Intelligence and proper education will give you independence of spirit.
+ - Rapidly, merrily, Life’s sunny hours flit by, Gratefully, cheerily Enjoy them as they fly!
+ - I have for the first time found what I can truly love- I have found you. You are my sympathy-my better self-my good angel-I am bound to you with a strong attachment.
+ - I remembered that the real world was wide, and that a varied field of hopes and fears, of sensations and excitments, awaited those who had the courage to go forth into it’s expanse, to seek real knowledge of life amidst it’s perils.
+ - You mocking changeling- fairy-born and human-bred!
+ - Take my love. One day share my life. Be my dearest, first on earth.
+ - Look twice before you leap.
+ - I try to avoid looking forward or backward, and try to keep looking upward.
+ - Who has words at the right moment?
+ - I see at intervals the glance of a curious sort of bird through the close set bars of a cage: a vivid, restless, resolute captive is there; were it but free, it would soar cloud-high.
+ - Remorse is the poison of life.
+ - Silence is of different kinds, and breathes different meanings.
+ - Better to be without logic than without feeling.
+ - Happiness quite unshared can scarcely be called happiness; it has no taste.
+ - What necessity is there to dwell on the Past, when the Present is so much surer-the Future so much brighter?
+ - Every atom of your flesh is as dear to me as my own: in pain and sickness it would still be dear.
+ - He is not to them what he is to me.
+ - I could not unlove him now, merely because I found that he had ceased to notice me.
+ - Peril, loneliness, an uncertain future, are not oppressive evils, so long as the frame is healthy and the faculties are employed; so long, especially, as Liberty lends us her wings, and Hope guides us by her star.
+ - A ruffled mind makes a restless pillow.
+ - The soul, fortunately, has an interpreter – often an unconscious, but still a truthful interpreter – in the eye.
+ - All my heart is yours, sir: it belongs to you; and with you it would remain, were fate to exile the rest of me from your presence forever.
+ - The idea of seeing the sea – of being near it – watching its changes by sunrise, sunset, moonlight, and noonday – in calm, perhaps in storm – fills and satisfies my mind.
+ - I have not broken your heart – you have broken it; and in breaking it, you have broken mine.
+ - But what is so headstrong as youth? What so blind as inexperience?
+ - Daydreams are the delusions of the devil.
+ - Better to try all things and find all empty, than to try nothing and leave your life a blank.
+ - There is no happiness like that of being loved by your fellow creatures, and feeling that your presence is an addition to their comfort.
+ - Let your performance do the thinking.
+ - I’m just going to write because I cannot help it.
+ - His mind was indeed my library, and whenever it was opened to me, I entered bliss.
+ - You never felt jealousy, did you, Miss Eyre? Of course not: I need not ask you; because you never felt love. You have both sentiments yet to experience: your soul sleeps; the shock is yet to be given which shall waken it.
+ - Yet it would be your duty to bear it, if you could not avoid it: it is weak and silly to say you cannot bear what it is your fate to be required to bear.
+ - I am no bird and no net ensnares me.
+ - After a youth and manhood passed half in unutterable misery and half in dreary solitude, I have for the first time found what I can truly love – I have found you.
+ - Am I hideous, Jane? Very, sir: you always were, you know.
+ - Your will shall decide your destiny.
+ - Out of association grows adhesion, and out of adhesion amalgamation.
+ - Friendship however is a plant which cannot be forced – true friendship is no gourd spring up in a night and withering in a day.
+ - Make my happiness – I will make yours.
+ - Youth has its romance, and maturity its wisdom, as morning and spring have their freshness, noon and summer their power, night and winter their repose. Each attribute is good in its own season.
+ - Life is still life, whatever its pangs; our eyes and ears and their use remain with us, though the prospect of what pleases be wholly withdrawn, and the sound of what consoles must be silenced.
+ - I ask you to pass through life at my side – to be my second self, and best earthly companion.
+ - It is far better to endure patiently a smart which nobody feels but yourself, than to commit a hasty action whose evil consequences will extend to all connected with you.
+ - I like this day; I like that sky of steel; I like the sternness and stillness of the world under this frost.
+ - Shake me off, then, sir – push me away; for I’ll not leave you of my own accord.
+ - Life appears to me too short to be spent in nursing animosity, or registering wrongs. With this creed, revenge never worries my heart, degradation never too deeply disgusts me, injustice never crushes me too low. I live in calm, looking to the end.
+ - I believe while I tremble; I trust while I weep.
+ - I am neither a man nor a woman but an author.
+ - I had not intended to love him; the reader knows I had wrought hard to extirpate from my soul the germs of love there detected; and now, at the first renewed view of him, they spontaneously revived, great and strong! He made me love him without looking at me.
+ - And it is you, spirit – with will and energy, and virtue and purity – that I want, not alone with your brittle frame.
+ - Beauty is in the eye of the gazer.
+ - When we are struck at without a reason, we should strike back again very hard; I am sure we should – so hard as to teach the person who struck us never to do it again.
+ - I am not talking to you now through the medium of custom, conventionalities, nor even of mortal flesh: it is my spirit that addresses your spirit; just as if both had passed through the grave, and we stood at God’s feet, equal – as we are!
+ - I shall be thirty-one next birthday. My youth is gone like a dream; and very little use have I ever made of it. What have I done these last thirty years? Precious little.
+ - Die without me if you will. Live for me if you dare.
+ - Her coming was my hope each day, Her parting was my pain; The chance that did her steps delay Was ice in every vein.
+ - You, sir, are the most phantom-like of all; you are a mere dream.
+ - Even for me life had its gleams of sunshine.
+ - I don’t call you handsome, sir, though I love you most dearly: far too dearly to flatter you. Don’t flatter me.
+ - A beauty neither of fine colour nor long eyelash, nor pencilled brow, but of meaning, of movement, of radiance.
+ - Flirting is a woman’s trade, one must keep in practice.
+ - Friends always forget those whom fortune forsakes.
+ - We wove a web in childhood, A web of sunny air; We dug a spring in infancy Of water pure and fair; We sowed in youth a mustard seed, We cut an almond rod; We are now grown up to riper age? Are they withered in the sod?
+ - It is a pity that doing one’s best does not always answer.
+ - The eagerness of a listener quickens the tongue of a narrator.
+ - I am anchored on a resolve you cannot shake. My heart, my conscience shall dispose of my hand – they only. Know this at last.
+ - Do you like him much?? I told you I liked him a little. Where is the use of caring for him so very much: he is full of faults.? Is he?? All boys are.
+ - Dread remorse when you are tempted to err, Miss Eyre; remorse is the poison of life.
+ - As to the thoughts, they are elfish. Those eyes in the Evening Star you must have seen in a dream.
+ - If you don’t love another living soul, then you’ll never be disappointed.
+ - Memory in youth is active and easily impressible; in old age it is comparatively callous to new impressions, but still retains vividly those of earlier years.
+ - Unheard-of combinations of circumstances demand unheard-of rules.
+ - It is in vain to say human beings ought to be satisfied with tranquility: they must have action; and they will make it if they cannot find it.
+ - The word book acted as a transient stimulus.
+ - I know what it is to live entirely for and with what I love best on earth. I hold myself supremely blest – blest beyond what language can express; because I am my husband’s life as fully as he is mine.
+ - Alas! never had I loved him so well!
+ - I believe in some blending of hope and sunshine sweetening the worst lots. I believe that this life is not all; neither the beginning nor the end. I believe while I tremble; I trust while I weep.
+ - The human and fallible should not arrogate a power with which the divine and perfect alone can be safely intrusted.
+ - On the contrary, I’m a universal patriot, if you could understand me rightly: my country is the world.
+ - There is, in lovers, a certain infatuation of egotism; they will have a witness of their happiness, cost that witness what it may.
+ - Oh! that gentleness! how far more potent is it than force!
+ - I am not an angel,? I asserted; ’and I will not be one till I die: I will be myself. Mr. Rochester, you must neither expect nor exact anything celestial of me – for you will not get it, any more than I shall get it of you: which I do not at all anticipate.
+ - You can write nothing of value unless you give yourself wholly to the the theme – and when you so give yourself – you lose appetite ans sleep – it cannot be helped –.
+ - Everyone else is just cocktails.
+ - He made me love him without looking at me.
+ - Conventionality is not morality.
+ - I do not think, sir, you have any right to command me, merely because you are older than I, or because you have seen more of the world than I have; your claim to superiority depends on the use you have made of your time and experience.
+ - I stood lonely enough, but to that feeling of isolation I was accustomed: it did not oppress me much.
+ - I soon forgot storm in music.
+ - That a greater fool than Jane Eyre had never breathed the breath of life; that a more fantastic idiot had never surfeited herself on sweet lies, and swallowed poison as if it were nectar.
+ - Of late years an abundant shower of curates has fallen upon the North of England.
+ - To you I am neither man nor woman. I come before you as an author only. It is the sole standard by which you have a right to judge me – the sole ground on which I accept your judgment.
+ - Neither birth nor sex forms a limit to genius.
+ - Such is the imperfect nature of man! such spots are there on the disc of the clearest planet; and eyes like Miss Scatcherd’s can only see those minute defects, and are blind to the full brightness of the orb.
+ - I knew you would do me good in some way, at some time – I saw it in your eyes when I first beheld you.
+ - I believe that creature is a changeling: she is a perfect cabinet of oddities.
+ - To prolong doubt was to prolong hope.
+ - I am not your dear; I cannot lie down: send me to school soon, Mrs. Reed, for I hate to live here.
+ - Mr. Rochester, I no more assign this fate to you than I grasp at it for myself. We were born to strive and endure – you as well as I: do so. You will forget me before I forget you.
+ - Feeling without judgement is a washy draught indeed; but judgement untempered by feeling is too bitter and husky a morsel for human deglutition.
+ - I tired of the routine of eight years in one afternoon.
+ - Thank you, Mr. Rochester, for your great kindness. I am strangely glad to get back again to you: and wherever you are is my home – my only home.
+ - Gentle, soft dream, nestling in my arms now, you will fly, too, as your sisters have all fled before you: but kiss me before you go – embrace me, Jane.
+ - The vehemence of emotion, stirred by grief and love within me, was claiming mastery, and struggling for full sway; and asserting a right to predominate: to overcome, to live, rise, and reign at last; yes, – and to speak.
+ - Rochester: My bride is here, because my equal is here, and my likeness. Jane, will you marry me?
+ - There is, I am convinced, no picture that conveys in all its dreadfulness, a vision of sorrow, despairing, remediless, supreme. If I could paint such a picture, the canvas would show only a woman looking down at her empty arms.
+ - It is hard work to control the workings of inclination and turn the bent of nature; but that it may be done, I know from experience. God has given us, in a measure, the power to make our own fate.
+ - I am not deceitful: if I were, I should say I loved you; but I declare I do not love you: I dislike you the worst of anybody in the world.
+ - I can be on guard against my enemies, but God deliver me from my friends!
+ - I feel monotony and death to be almost the same.
+ - Conventionality is not morality. Self-righteousness is not religion. To attack the first is not to assail the last.
+ - You transfix me quite.
+ - You are afraid of me, because I talk like a sphinx.
+ - My love has placed her little hand With noble faith in mine, And vowed that wedlock’s sacred band Our nature shall entwine. My love has sworn, with sealing kiss, With me to live – to die; I have at last my nameless bliss: As I love – loved am I!
+ - Rochester: I am to take mademoiselle to the moon, and there I shall seek a cave in one of the white valleys among the volcano-tops, and mademoiselle shall live with me there, and only me.
+ - He turned away; he threw himself on his face on the sofa. ‘Oh, Jane! my hope – my love – my life!’ broke in anguish from his lips.
+ - I like rudeness a great deal better than flattery.
+ - There was no possibility of taking a walk that day.
+ - I desired liberty; for liberty I gasped; for liberty I uttered a prayer; it seemed scattered on the wind then faintly blowing.
+ - A depressing and difficult passage has prefaced every page I have turned in life.
+ - I could not answer the ceaseless inward question-why I thus suffered; now, at the distance of-I will not say how many years, I see it clearly.
+ - Great pains were taken to hide chains with flowers.
+ - Well had Solomon said,’Better is a dinner of herbs where love is, than a stalled ox and hatred therewith.
+ - God waits only the separation of spirit from flesh to crown us with a full reward. Why, then, should we ever sink overwhelmed with distress, when life is so soon over, and death is so certain an entrance to happiness – to glory?
+ - The City seems so much more in earnest: its business, its rush, its roar are such serious things, sights and sounds. The City is getting its living – the West-End but enjoying its pleasure.
+ - Whatever my powers – feminine or the contrary – God had given them, and I felt resolute to be ashamed of no faculty of his bestowal.
+ - If life be a war, it seemed my destiny to conduct it single-handed.
+ - For I too liked reading, thought of a frivolous and childish kind; I could not digest or comprehend the serious or substantial.
+ - The ease of his manner freed me from painful restraint; the friendly frankness, as correct as cordial, with which he treated me, drew me to him.
+ - I liked my name pronounced by your lips in a grateful, happy accent.
+ - I mean that I value vision, and dread being struck stone blind.
+ - When you are inquisitive, Jane, you always make me smile. You open your eyes like an eager bird, and make every now and then a restless movement, as if answers in speech did not flow fast enough for you, and you wanted to read the tablet of one’s heart.
+ - You had no right to be born; for you make no use of life. Instead of living for, in, and with yourself, as a reasonable being ought, you seek only to fasten your feebleness on some other person’s strength.
+ - I only want an easy mind, sir; not crushed by crowded obligations.
+ - Besides this earth, and besides the race of men, there is an invisible world and a kingdom of spirits: that world is round us, for it is everywhere.
+ - If you are cast in a different mould to the majority, it is no merit of yours: Nature did it.
+ - Little Jane’s love would have been my best reward, without it, my heart is broken.
+ - Liberty lends us her wings and Hope guides us by her star.
+ - Fair as a lily, and not only the pride of life, but the desire of his eyes.
+ - I’ll walk where my own nature would be leading. It vexes me to choose another guide.
+ - The cool peace and dewy sweetness of the night filled me with a mood of hope: not hope on any definite point, but a general sense of encouragement and heart-ease.
+ - My rest might have been blissful enough, only a sad heart broke it.
+ - Some of the best people that ever lived have been as destitute as I am; and if you are a Christian, you ought not to consider poverty a crime.
+ - Reserved people often really need the frank discussion of their sentiments and griefs more than the expansive.
+ - Cheerfulness, it would appear, is a matter which depends fully as much on the state of things within, as on the state of things without and around us.
+ - The man of regular life and rational mind never despairs.
+ - And with that answer, he left me. I would much rather he had knocked me down.
+ - We should acknowledge God merciful, but not always for us comprehensible.
+ - What delusion has come over me? What sweet madness has seized me?
+ - Tact, if it be genuine, never sleeps.
+ - Prodigious was the amount of life I lived that morning.
+ - If there is one notion I hate more than another, it is that of marriage – I mean marriage in the vulgar, weak sense, as a mere matter of sentiment.
+ - I seem to have gathered up a stray lamb in my arms: you wandered out of the fold to seek your shepherd, did you, Jane?
+ - It is good to be attracted out of ourselves, to be forced to take a near view of the sufferings, the privations, the efforts, the difficulties of others.
+ - Is there not a terrible hollowness, mockery, want, craving, in that existence which is given away to others, for want of something of your own to bestow it on?
+ - Say whatever your memory suggests is true; but add nothing and exaggerate nothing.
+ - No mockery in the world ever sounds to me as hollow as that of being told to cultivate happiness. Happiness is not a potato, to be planted in mould, and tilled with manure.
+ - Monsieur, sit down; listen to me. I am not a heathen, I am not hard-hearted, I am not unchristian, I am not dangerous, as they tell you; I would not trouble your faith; you believe in God and Christ and the Bible, and so do I.
+ - You have rather the look of another world. I marvelled where you had got that sort of face.
+ - I have little left in myself – I must have you. The world may laugh – may call me absurd, selfish – but it does not signify. My very soul demands you: it will be satisfied, or it will take deadly vengeance on its frame.
+ - I think I must admit so fair a guest when it asks entrance to my heart.
+ - You ask rather too many questions. I have given you answers enough for the present: now I want to read.
+ - I like the spirit of this great London which I feel around me. Who but a coward would pass his whole life in hamlets; and for ever abandon his faculties to the eating rust of obscurity?
+ - That to begin with; let respect be the foundation, affection the first floor, love the superstructure.
+ - I wished critics would judge me as an author, not as a woman.
+ - If he were insane, however, his was a very cool and collected insanity.
+ - We know that God is everywhere; but certainly we feel His presence most when His works are on the grandest scale spread before us; and it is in the unclouded night-sky, where His worlds wheel their silent course, that we read clearest His infinitude, His omnipotence, His omnipresence.
+ - A new chapter in a novel is something like a new scene in a play;.
+ - If we would build on a sure foundation in friendship, we must love our friends for their sakes rather than for our own.
+ - Men judge us by the success of our efforts. God looks at the efforts themselves.
+ - What the deuce is to do now?
+ - Presentiments are strange things: and so are sympathies; and so are signs; and the three combined make one mystery to which humanity had not yet found the key.
+ - Consistency, madam, is the first of Christian duties.
+ - Talented people almost always know full well the excellence that is in them.
+ - Something of vengeance I had tasted for the first time; as aromatic wine it seemed, on swallowing, warm and racy: its after-flavour, metallic and corroding, gave me a sensation as if I had been poisoned.
+ - I thank my Maker, that in the midst of judgment he has remembered mercy. I humbly entreat my Redeemer to give me strength to lead henceforth a purer life than I have done hitherto.
+ - Men, in general, are a sort of scum, very different to anything of which you have an idea.
+ - You – you strange – you almost unearthly thing! – I love as my own flesh. You – poor and obscure, and small and plain as you are – I entreat to accept me as a husband.
+ - I can so clearly distinguish between the criminal and his crime; I can so sincerely forgive the first while I abhor the last.
+ - I had a theoretical reverence and homage for beauty, elegance, gallantry, fascination but had I met those qualities incarnate in masculine shape, I should have known instinctively that they had nor could have sympathy with anything in me...
+ - The charm of variety there was not, nor the excitement of incident; but I liked peace so well, and sought stimulus so little, that when the latter came I almost felt it a disturbance, and rather still wished it had held aloof.
+ - If he does go, the change will be doleful. Suppose he should be absent spring, summer, and autumn: how joyless sunshine and fine days will seem!
+ - Self abandoned, relaxed and effortless, I seemed to have laid me down in the dried-up bed of a great river; I heard a flood loosened in remote mountains, I felt the torrent come; to rise I had no will, to flee I had no strength.
+ - He was the first to recognise me, and to love what he saw.
+ - Strange that grief should now almost choke me, because another human being’s eye has failed to greet mine.
+ - Novelists should never allow themselves to weary of the study of real life.
+ - In sunshine, in prosperity, the flowers are very well; but how many wet days are there in life – November seasons of disaster, when a man’s hearth and home would be cold indeed, without the clear, cheering gleam of intellect.
+ - I envy you your peace of mind, your clean conscience, your unpolluted memory. Little girl, a memory without blot of contamination must be an exquisite treasure-an inexhaustible source of pure refreshment: is it not?
+ - Propensities and principles must be reconciled by some means.
+ - The writer who possesses the creative gift owns something of which he is not always master – something that, at times, strangely wills and works for itself.
+ - To see and know the worst is to take from Fear her main advantage.
+ - I am always easy of belief when the creed pleases me.
+ - I can only say with deeper sincerity and fuller significance what I have always said in theory Wait God’s will.
+ - To talk to each other is but a more animated and an audible thinking.
+ - While I loved, and while I was loved, what an existence I enjoyed!
+ - But afterwards, is there nothing more for me in life – no true home – nothing to be dearer to me than myself?
+ - There is nothing I fear so much as idleness, the want of occupation, inactivity, the lethargy of the faculties; when the body is idle, the spirit suffers painfully.
+ - Oh madam, when you put bread and cheese, instead of burnt porridge, into these children’s mouths, you may indeed feed their vile bodies, but you little think how you starve their immortal souls!
+ - A waft of wind came sweeping down the laurel-walk, and trembled through the boughs of the chestnut: it wandered away-away-to an indefinite distance-it died. The nightingale’s song was then the only voice of the hour: in listening to it, I again wept.
+ - They will both be happy, and I do not grudge them their bliss; but I groan under my own misery: some of my suffering is very acute. Truly, I ought not to have been born: they should have smothered me at first cry.
+ - True enthusiasm is a fine feeling whose flash I admire where-ever I see it.
+ - Poverty, for me, is synonymous with degradation.
+ - You, Jane, I must have you for my own – entirely my own.
+ - It is not violence that best overcomes hate – nor vengeance that most certainly heals injury.
+ - Oh, I am not going to die, am I? He will not separate us, we have been so happy.
+ - Nervous alarms should always be communicated, that they may be dissipated.
+ - Writers cannot choose their own mood: with them it is not always hide-tide, nor – thank Heaven! – always Storm.
+ - It did not seem as if a prop were withdrawn, but rather as if a motive were gone: it was not the power to be tranquil which had failed me, but the reason for tranquility was no more.
+ - Fortune is proverbially called changeful, yet her caprice often takes the form of repeating again and again a similar stroke of luck in the same quarter.
+ - Wise people say it is folly to think anybody perfect; and as to likes and dislikes, we should be friendly to all, and worship none.
+ - When his first-born was put into his arms, he could see that the boy had inherited his own eyes, as they once were – large, brilliant, and black.
+ - I doubt if I have made the best use of all my calamities. Soft, amiable natures they would have refined to saintliness; of strong, evil spirits they would have made demons; as for me, I have only been a woe-struck and selfish woman.
+ - As far as my experience of matrimony goes – I think it tends to draw you out of, and away from yourself.
+ - I both wished and feared to see Mr. Rochester on the day which followed this sleepless night. I wanted to hear his voice again, yet feared to meet his eye.
+ - Adversity is a good school.
+ - There are not unfrequently substantial reasons underneath for customs that appear to us absurd; and if I were ever again to find myself amongst strangers, I should be solicitous to examine before I condemned.
+ - Reader, I literally married him.
+ - No severe or prolonged bodily illness followed this incident of the red-room: it only gave my nerves a shock, of which I feel the reverberation to this day.
+ - Too often do reviewers remind us of the mob of Astrologers, Chaldeans, and Soothsayers gathered before ‘the writing on the wall’ and unable to read the characters or make known the interpretation.
+ - The negation of severe suffering was the nearest approach to happiness I expected to know. Besides, I seemed to hold two lives – the life of thought, and that of reality.
+ - Your station is in my heart, and on the necks of those who would insult you.
+ - I think you will learn to be natural with me, as I find it impossible to be conventional with you.
+ - Children can feel, but they cannot analyse their feelings; and if the analysis is partially effected in thought, they know not how to express the result of the process in words.
+ - Old maids like the houseless and unemployed poor, should not ask for a place and an occupation in the world: the demand disturbs the happy and the rich.
+ - This is a terrible hour, but it is often that darkest point which precedes the rise of day; that turn of the year when the icy January wind carries over the waste at once the dirge of departing winter, and the prophecy of coming spring.
+ - Good fortune opens the hand as well as the heart wonderfully; and to give somewhat when we have largely received, but to afford a vent to the unusual ebullition of the sensations.
+ - I could not help it: the restlessness was in my nature; it agitated me to pain sometimes.
+
+245 quotes

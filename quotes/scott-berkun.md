@@ -1,0 +1,24 @@
+ - Innovation is significant positive change.
+ - I don’t want to be perfect. I want to be useful, I want to be good, and I want to sound like myself. Trying to be perfect gets in the way of all three.
+ - Part of the challenge of innovation is coming up with the problem to solve, not just its solution.
+ - It’s not the fear of writing that blocks people, it’s fear of not writing well; something quite different.
+ - The bottleneck is never code or creativity; it’s lack of clarity.
+ - This is one big problem with working remotely: no one believes you have a job at all.
+ - Good public speaking is based on good private thinking.
+ - Experiment is the expected failure to deliberately learn something.
+ - Big thoughts are fun to romanticize, but it’s many small insights coming together that bring big ideas into the world.
+ - Commit yourself to taking enough risks that you will fail some of the time. If you’re not failing, we’re not doing something sufficiently difficult or creative.
+ - The way you find the answers to your problems will be unique to you.
+ - Most people doubt online meetings can work but they somehow overlook that most in-person meetings don’t work either.
+ - It’s rare for people to genuinely try to understand what others are trying to say.
+ - It seems that bad advice that’s fun will always be better known than than good advice that’s dull-no matter how useless that fun advice is.
+ - People tell me this is obvious. But it’s ok to be obvious. Knowing and doing are different. Many people know many obvious things they completely fail to do, despite their knowledge.
+ - If you’d like to be good at something, the first thing to out the window is the notion of perfection.
+ - History can’t give attention to what’s been lost, hidden, or deliberately buried; it is mostly a telling of success, not the partial failures that enabled success.
+ - My intent is simply to know my material so well that I’m very comfortable with it. Confidence, not perfection, is the goal.
+ - It’s safe to assume that no matter where you stand, someone would be happy to be in your shoes, just as you’d be happy to be in someone else’s.
+ - There is a big difference between wanting to say you wrote a book, and actually writing one. Many people think they want to write, even though they find crafting sentences and paragraphs unpleasant. They hope there is a way to write without writing. I can tell you with certainty there isn’t one.
+ - Anyone can criticize or accept praise, but initiating a positive exchange is a hallmark of a difference maker.
+ - Innovative ideas are rarely rejected on their merits; they’re rejected because of how they make people feel. If you forget people’s concerns and feelings when you present an innovation, or neglect to understand their perspectives in your design, you’re setting yourself up to fail.
+
+22 quotes

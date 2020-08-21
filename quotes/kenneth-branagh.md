@@ -1,0 +1,46 @@
+ - My definition of success is control.
+ - Hamlet and Victor Frankenstein are each obsessed with death. Hamlet’s whole story is a philosophical preparation for death; Victor’s is an intellectual refusal to accept it.
+ - The glory of 70mm is the sharpness of the image it offers.
+ - Actually I think ‘A Midsummer Night’s Dream’ could sit very very perfectly in the middle of a Disney world I think.
+ - As soon as someone I don’t respect tells me I can’t do something, it just makes me want to do it even more.
+ - I’m basically quite a cheerful person.
+ - In the hands of a great poet, words have ways of affecting us in ways we don’t understand.
+ - If it’s good art, it’s good.
+ - If you’ve done a brilliant version it becomes something else.
+ - Somehow I know there was something so right about my doing Frankenstein and taking so long over it that I’ve probably been laying some ghost inside myself. It was a very necessary job for me to do, but it’ll take some time to recover from it.
+ - It’s very strange that the people you love are often the people you’re most cruel to.
+ - Adults are just children who earn money.
+ - We’re self obsessed and mad and stupid – not that other people can’t be the same way – but the extremes are kind of honest in some mad way. Anyway, I like them.
+ - Don’t stand up when you can sit down and don’t sit down when you can lie down.
+ - So many plays with magic in them that would be a terrific invitation to an imaginative animation team.
+ - It’s no accident that Cinderella has been in the culture for thousands of years, and in cross cultures. I’ve traveled a bit recently, and in Russia, they completely believe they own this tale. And in Italy, they feel it absolutely is part of who they are. There is a timeless web to it.
+ - Actors are the best and the worst of people. They’re like kids. When they’re good, they’re very very good. When they’re bad they’re very very naughty.
+ - After Frankenstein, I feel as if I want to make a film about somebody having a nice cup of tea.
+ - Even if people are all from the same place, there can be very, very different approaches. It’s one of the things I’m fascinated by. It’s why I like directing. I like to see how different people approach trying to be truthful, on camera or in the theater, and whether you can make them match up.
+ - Truth is like most opinions – best unexpressed.
+ - I started being interested in acting when I heard the voices of Sir Laurence Olivier and Sir John Gielgud and Sir Alec Guinness. Ive had the great privilege of working with Sir Derek Jacobi and Sir Anthony Hopkins. These are people who inspire the work that I do.
+ - It’s quite hard for people to just accept that they’re very contradictory.
+ - I’m just a foul-mouthed Brit.
+ - I come from the theatre, my bones are in the theatre; it’s as natural as breathing to want to be in the theatre.
+ - I wanted to have a place and a space, and a building, in which to create a season of work I am here because the idea of a theatrical home is very appealing to me.
+ - Music and language are a vital element. We, as actors and directors, offer it to people who want to experience it. Sometimes the actual meaning is less important than the words themselves.
+ - Variety is very, very good. Going from medium to medium, if you get the chance to do it, from theater to television to film, which are all distinctly different, keeps me sharp.
+ - The elasticity of Shakespeare is extraordinary.
+ - When I’m acting, I’m in the director’s hands. I’m very happy to be. I like to be focused on what I’m doing.
+ - If you’ve been to Moscow, it’s a really exciting and great city, but it still feels like you should be a little careful about which way you’re going to step.
+ - It doesn’t mean old or younger. I’ve learned a lot from people much younger than me as well as people much older than me. So I think it’s about honesty and generosity.
+ - I certainly have been guilty of trying to sweep things under the carpet.
+ - The best actors, I think, have a childlike quality. They have a sort of an ability to lose themselves. There’s still some silliness.
+ - The ferocity of passion that is engendered by people when they don’t like what you’ve done is really tremendous. It’s intense.
+ - There is some mysterious thing that goes on whereby, in the process of playing Shakespeare continuously, actors are surprised by the way the language actually acts on them.
+ - Two billion people watched the royal wedding. Clearly, they’re interested in that – the outside of what appears to be lives that have a certain amount of privilege. They have gifts, they have history, they have a sort of unusual and separate position, which maybe involves paying a price.
+ - I don’t feel in a kind of race or competition with him or anybody else, because that kind of reactive thing isn’t good, or isn’t useful for natural creative instincts.
+ - I only really cast people who are desperate to be in it – who were dying to be in it, whose talent I believed in and were dead ready to do the work that was necessary.
+ - Even when a film is finished, when I direct a film, sometimes it’s a dark profession, but it requires a peculiar form of courage that I admire.
+ - There are some amazing stories from all over this country, where people’s work and contribution has been acknowledged. To be part of that is an absolutely fantastic feeling.
+ - I think that a lot of exciting elements are finding a place where a film is happily, truly about something.
+ - For all the cynicism that the world contains, people are a little more open to those things that maybe are to do with returning you to some kind of simpler, happier state.
+ - The long version of the play is actually an easier version to follow. In all of the cut versions the intense speeches are cut too close together for the audience and the actors.
+ - Sometimes it comes out in what I call tricksy behavior. That’s not always easy to deal with, but it’s fascinating. The key thing is to make sure that somebody’s tricks don’t trip up somebody else.
+
+44 quotes

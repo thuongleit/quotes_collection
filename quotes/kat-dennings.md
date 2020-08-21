@@ -1,0 +1,37 @@
+ - I don’t take crap from anyone, so that makes people think I’m rebellious. I’m not. I’m just not a pushover.
+ - I don’t know, I like the word sassy.
+ - I have nothing to hide!
+ - People make the mistake of drinking the Kool-Aid, believing your own hype, letting people tell you you’re this or you’re that or you’re too this.
+ - I buy food and gasoline – that’s it.
+ - I don’t think I’m a weirdo in a bad way. There’s just a lot going on in my head.
+ - I think you can tell when someone is being dishonest as an actor.
+ - I was a very unique child.
+ - I can’t imagine wanting to be famous just for the sake of being famous. I think fame should come along with success, talent.
+ - I tried being anorexic for four hours and then i was like, i need some bagels.
+ - I don’t really think about doing something kind, I think there’s just a way to conduct your daily life with compassion to other people.
+ - I think it’s important for people to know that it’s okay to feel like you’re not better as long as you keep trying.
+ - I like people’s attitudes more than fashion or beauty or whatever it is.
+ - I can say that I had a particularly painful teenage-hood.
+ - I would love to do a period movie. I’ve always wanted to wear the corset, you know. It’s a girl thing!
+ - Although anything can happen when under the influence of ice water.
+ - I always hold doors open, I always try to be nice.
+ - I’ve basically made a career out of my imagination. I feel very lucky.
+ - Any glamorous moment you might mistake me for having is always pretend.
+ - I really am pretty boring. There’s no reason to take pictures of me.
+ - Quirky is what a guy would call a girl he doesn’t understand.
+ - Actors make less than you think.
+ - I don’t think I’ve had a holiday in my entire life that wasn’t about my dad’s work.
+ - Acting is something that I couldn’t recommend to anyone because the odds of it working out are so insane. I don’t know how it worked out for me. I had no connections to this industry. I had no ins anywhere.
+ - There’s nothing else I would rather do, unless there was a profession that involved cuddling bunny rabbits and kittens all day for money.
+ - I haven’t actually studied acting at all.
+ - I was a home-schooled kid, living in the forest, and I didn’t even have cable. I’m serious.
+ - I am very outspoken, obviously, and I should say that I can’t judge anyone for doing anything.
+ - I want to see as many movies as I can and I covet a lot of weird influential movies.
+ - I don’t die in anything!
+ - I’ve had people tell me to get Mystic Tan, blonde highlights, choppy haircuts, but I’ve made a conscious decision not to cave.
+ - I have friends who are so sarcastic but I never view it as mean.
+ - Acting is one of the most risky businesses you could ever be in. You literally do not know where your next paycheck will come from.
+ - If I had a robot friend, he or she would be electric.
+ - There’s stuff I don’t like to rehearse, really emotional things, I don’t like to rehearse. You just beat it to death.
+
+35 quotes

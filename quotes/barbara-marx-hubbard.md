@@ -1,0 +1,53 @@
+ - Small islands of coherence in a sea of chaos can shift the whole system to a higher order.
+ - Cultural creatives take a stand for a more spiritualized, personalized, and integrated culture.
+ - We are moving from unconscious evolution through natural selection to conscious evolution by choice.
+ - We can enhance democracy by making it in line with its original vision. Read the dollar bill – E pluribus unum, out of many, one; novus ordo seclorum, a new order of the ages. That’s democracy.
+ - The solution to depression, among other things, is to go within and see if you can tune into more of what might want to come forth out of you. Then take action to follow the path of what attracts you. Reach out, read a book, call a friend, join an organization. Go toward that which attracts you.
+ - Behold, I am writing anew, through scribes on Earth who are willing to listen to me again with new ears, in the light of the present crises on planet Earth.
+ - Music stimulates within us direct experience of expanded reality.
+ - One-fourth of humanity must be eliminated from the social body. We are in charge of God’s selection process for planet Earth. He selects, we destroy. We are the riders of the pale horse, Death.
+ - Crises precede transformation.
+ - Mother Earth is giving birth to a co-creative humanity. There’s not a majority anywhere, but it’s cropping up everywhere, because old leadership does not have the authority to guide us.
+ - I actually think every person can make a difference. Every single human being has within the impulse to express more of who they truly are.
+ - When you get a new worldview you get a new world. It’s like the shift from medieval Christianity to the Renaissance and enlightenment.
+ - Let’s assume there is some validity in these prophecies. What vision of the future, of the new world, might we see so that we can place our attention upon this vision as a strange attractor to carry us through this critical transition?
+ - Success means participating fully in the conscious evolution of humanity, contributing to the shift in time to avoid the chaos and disasters foreseen.
+ - There will be a change in worldview from materialism and failure to conscious evolution. And everyone’s potential to participate!
+ - As a feminine cocreator, having lived through the arc of evolution from 1929 to the present, I offer encouragement and vocational arousal to all!
+ - By understanding evolution as the expression of universal intelligence, now becoming conscious of itself within us, and as us, we overcome the dichotomy between current evolutionists who see no design in evolution, and creationists who often propose and anthropomorphic God as creator.
+ - I see more people all the time feeling something growing from within them to more fully realize their heart’s desire, their desire to give more, to be more, to do more.
+ - I see the meaning of apocalypse as an unveiling of our deeper self.
+ - Catastrophe and creation are twins.
+ - Synergy does not mean giving up what we want. It means joining to co-create so each is able to receive ever more of what attracts us through joining rather than opposing.
+ - Everything you do counts forever. You are an expression of the whole process of creation; you are a cocreator.
+ - We hold these truths to be self-evident; All people are born creative; Endowed by our Creator with the inalienable right and responsibility to express our creativity for the sake of ourselves and our world.
+ - I feel so often that depression is a signal of more that wants to be expressed within you. There is an innate impulse in everyone to express more of who they truly are, and you get depressed when you don’t feel you’re able to do that.
+ - Ask to know what you are born to do. Follow the compass of joy.
+ - The great human problem of evil stems from the illusion of separateness. Whenever this illusion is overcome, we behave lovingly to one another.
+ - My mission is to tell the story of the birth of ourselves as a universal humanity, awakening all of us to our unique opportunity to participate through our own conscious evolution.
+ - I think we’re in a global crisis of unprecedented scale, with global warming and climate change, and we don’t have the solution using any of the separated structures that are attempting to solve these issues, whether it be the United Nations, or the global corporations.
+ - We, the elders, have been patiently waiting until the last moment before quantum transformation. The destructive one-fourth must be eliminated from the social body.
+ - Synergistic convergence is the most important idea we have at our disposal to prevent collapse scenarios and move forward in a nonlinear manner toward an evolutionary society.
+ - In human history there has been a continuous and growing impulse toward the regeneration and transformation of humanity.
+ - I think it’s innate in human nature to want to make a difference, to make your life meaningful.
+ - When we experience our own desire for transformation, we are feeling the universe evolving through us.
+ - Whenever a few people are gathered with a spiritual impulse to connect, to resonate through the heart, to make a shift from their own ego to their essence, and then to connect to do whatever work in the world they are called to do, that’s an evolutionary circle.
+ - The destructive one-fourth must be eliminated from the social body.
+ - The social potential movement is on the threshold of a mass awakening, seeking to carry into society what individuals have learned spiritually and personally.
+ - We know in history that great individuals have totally changed everything, whether it be Jesus Christ or Abraham Lincoln or Winston Churchill or Albert Einstein. I actually think every person can make a difference.
+ - All people are born creative. And there’s nobody who’s helpless, nobody.
+ - Planetary Citizenship reveals a vital blueprint for a compassionate and sustainable world. Hazel Henderson and Daisaku Ikeda make a formidable team stepping forward as humanity’s guides in this great transition to the next stage of social evolution.
+ - Apocalypse can mean the unveiling of the deeper self of humanity.
+ - The Book of Revelation is a description of one path to the New Jerusalem, but this scenario is not inevitable.
+ - Whatever we are going through is part of the planetary struggle to evolve.
+ - I believe it is urgent to begin now, before we are constrained by a totally controlled society monitoring limited resources on the planet. Now is the time to establish our extraterrestrial base in freedom; later it may be under the coercion of necessity.
+ - Common sense dictates that we evaluate our beliefs on the basis of how they affect us. If they make us more loving, creative, and wise, they are good beliefs. If they make us cruel, jealous, depressed and sick, they cannot be good beliefs.
+ - Transformationally motivated people are the growing edge of a great continuity of souls reaching back to the very earliest times.
+ - I came to a clear internal realization that there was nothing I could do as a separated self that would ever fulfill me.
+ - Evolutionary circles are one of the key social forms in which people are connecting and can connect to make a difference throughout the world.
+ - Problems are evolutionary drivers.
+ - With enough of us connecting heart with heart, center with center, innovation with innovation, prayer with prayer, through the internet and the noosphere, we can have a major impact on a more gentle transition toward the next stage of evolution.
+ - In the next 30 years we can destroy our world. With the very same powers – spiritual, social, scientific – we can evolve our world. Our mission is to serve as catalysts for a planetary awakening in our lifetime, to take a non-violent path to the next stage of our evolution.
+ - It doesn’t matter where anybody lives, we’re all here.
+
+51 quotes

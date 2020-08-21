@@ -1,0 +1,21 @@
+ - I like reading. I just hate school.
+ - I think a primal role of a man in a relationship is to protect his woman.
+ - It’s something that I think I’m going to have to fight against for most of my career, for people to take me seriously as an actor as opposed to a good-looking guy. It’s not what I want to be known as.
+ - I have to wear six pairs of speedos when I run.
+ - I feel fortunate. I’ve really gotten to work with amazing talented people, and to learn from them, which is why I’m doing this. If I can work with the best director I’m going to do it.
+ - The Internet is an actor’s best friend.
+ - You have to emote much more to get what you’re trying to get across to come through a quarter inch of latex that’s superglued to your face.
+ - I love art. I used to have a painting of Gorbachev that was given to my family by Gorbachev.
+ - I couldn’t be more blessed.
+ - I support myself. My wife and I together – it’s all our household. I’m really proud of that.
+ - There were two auditions for The Social Network, one with Aaron Sorkin and one with David Fincher. I was a nervous wreck. I was like, Okay, how do I hold the paper without my hands making it shake?
+ - I was always Armie. There couldn’t be a 90-year-old Armand and a 9-day-old one. And I heard enough jokes about baking soda.
+ - My great-great-grandfather Julius founded the Communist Party in New York.
+ - I try to do romantic gestures all the time.
+ - I don’t think I should tell you what to do, nor should the government. As long as you enjoy your own personal liberties and don’t infringe on the liberties of others, I don’t care.
+ - I grew up in the Cayman Islands. I didn’t play video games or watch TV. I would basically come home from school, throw down my backpack, grab my machete, and go hike and chop down trees to make a fort.
+ - My wife comes from a foodie family so I’ve been indoctrinated into that. I had sweetbreads the other night, and I have to say, not my favorite thing in the world You’re eating a gland.
+ - I never grew up reading or fantasizing about fairy tales. I was always too busy, like, outside being a kid.
+ - As a fluke, my great-grandfather hit one of the largest oil reserves in California.
+
+19 quotes

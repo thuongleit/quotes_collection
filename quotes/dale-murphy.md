@@ -1,0 +1,21 @@
+ - Whether I’m hitting .100 or .300, I have resolved to at least enjoy every game.
+ - If you live what you believe, you will always have the respect of others.
+ - To go to hospitals and see people fight and overcome cystic fibrosis or cancer or any number of illnesses is to see courage that is humbling. And athletes constantly need to be humbled.
+ - Society is what we make of it, so we’d better try to make it the best we can.
+ - One of the more challenging things in life is not being the guy who does the cheating, but not saying anything about it and going along with it.
+ - Maybe I am naive about certain things. But I’m glad. I know all I want to know.
+ - To work with children anywhere is just plain fun.
+ - You don’t usually get treated unfairly. You usually get what you deserve.
+ - Tommie Aaron taught me how to have a good attitude, to be easy going and not get uptight.
+ - When you come right down to it, I guess I really am pretty bland.
+ - Joe Torre would tell you to make sure you can hit the ball on the outside part of the plate.
+ - It’s critical that the manager has the respect of players so he can make the moves that he feels is appropriate without having somebody go to the papers. They respect you. So you respect them back.
+ - My heroes are people who are working hard and trying to make a good living for their families. My heroes are people who put their families first.
+ - God isn’t really interested in our batting averages.
+ - I don’t want to give people the impression that I’m an almost perfect human being.
+ - It’s always great when you’re really needed.
+ - I think people found out I’m just like anybody else. I’ve got problems, too.
+ - I’ve been complimented enough and asked to run for various offices out here in Utah, but right now, I’m not interested. I don’t know that I have the stomach for it.
+ - I’ve been lucky to have a lot of opportunities to help people.
+
+19 quotes

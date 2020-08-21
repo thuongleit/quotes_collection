@@ -1,0 +1,106 @@
+ - Where there’s a will, there’s a way.
+ - Always be more than you appear and never appear to be more than you are.
+ - I might bend, but I will NEVER break because it’s in my nature as a strong woman.
+ - I am thankful for all the hard times I’ve been through and all the tears I’ve cried because that has put me as closer to God and made me the strong woman I am today!
+ - Global climate change is one of the greatest challenges facing humanity in the twenty-first century.
+ - Freedom does not mean being free of something, but to be free to do something.
+ - Look forward to the future and look forward to the unknown. Nothing stays the same and people change. One day that hurt and pain will be a distant memory.
+ - When it comes to human dignity, we cannot make compromises.
+ - Ladies, it is not your education, status or personality that has brought you here but the elegance of God which was still and still working upon you.
+ - Neither the chains of dictatorship nor the fetters of oppression can keep down the forces of freedom for long.
+ - The willingness to learn new skills is very high.
+ - A good compromise is one where everybody makes a contribution.
+ - Don’t get bitter and twisted and nasty by life. You may have been wronged or cheated on; two wrongs never make a right. Instead learn your mistakes and learn your lessons. Remain strong with your head held high.
+ - I am thankful for the way I was raised, to be positive. Even when times have gotten rough I have always tried to look on the bright side. Even when I was put down, yelled at and made feel insignificant, I still thought things were alright. I did realize when enough is enough.
+ - Democracy must be our answer to terrorism.
+ - One can remain more sure-footed by taking small steps, but perhaps achieve greater speed by taking bigger steps. Of course, one also runs the risk of setting out in a completely erroneous direction. Surely the important thing isn’t the length of our steps, but that the objective is clear.
+ - It is a fact that, if I single out Germany, our rate of growth is too low and we have very high unemployment.
+ - Budget consolidation and economic growth are two sides of the same coin.
+ - Overcoming the Cold War required courage from the people of Central and Eastern Europe and what was then the German Democratic Republic, but it also required the steadfastness of Western partner over many decades when many had long lost hope of integration of the two Germanys and Europe.
+ - I still believe in the old fashioned ways of showing a woman Respect and Honor!!
+ - The euro is our common fate, and Europe is our common future.
+ - It’s not five minutes to midnight. It’s five minutes after midnight.
+ - We must never forget our responsibilities as politicians to our country and its citizens. We must always remain humble before our people.
+ - Spying among friends is never acceptable.
+ - At this time – we’re in a dramatic crisis – euro bonds are precisely the wrong answer. They lead us into a debt union, not a stability union. Each country has to take its own steps to reduce its debt.
+ - Ordinary people regard a man of a certain force and flexibility of character as they do a lion; they look at him with a sort of wonder, perhaps they admire him; but they will on no account house with him.
+ - The real problem is that the financial base for our social security system is shrinking because the number of normal jobs is falling. In other words, we have to address the challenge of how to make employment, in the classic sense, attractive once again.
+ - If I run a time-limited test program, I’ll never discover whether markets with additional employment truly exist. A solution in the low-wage sector cannot be a limited special program.
+ - Nobody in Europe will be abandoned. Nobody in Europe will be excluded. Europe only succeeds if we work together.
+ - Don’t get bogged down by life and other people’s problems or hang ups.
+ - Freedom is the very essence of our economy and society. Without freedom the human mind is prevented from unleashing its creative force. But what is also clear is that this freedom does not stand alone. It is freedom in responsibility and freedom to exercise responsibility.
+ - The Freedom Bell in Berlin is, like the Liberty Bell in Philadelphia, a symbol which reminds us that freedom does not come about of itself. It must be struggled for and then defended anew every day of our lives.
+ - I am courageous at the decisive moment. But I need a good deal of start-up time, and I try to take as much as possible into consideration beforehand.
+ - Just because times change and alot of people think that dating multiple people is the thing these days, it just isn’t a solid foundation at all in matters of the heart. I still believe in marriages that have a physically powerful foundation.
+ - I am not here for women only, but also for women.
+ - The digital world creates situation where there are no secrets anymore.
+ - Whoever decides to dedicate their life to politics knows that earning money isn’t the top priority.
+ - I think that the EU with the Lisbon agenda has put the right emphasis on growth and employment.
+ - This multicultural approach, saying that we simply live side by side and live happily with each other has failed. Utterly failed.
+ - I don’t carry any early childhood trauma around with me, if that’s what you’re hinting at. The story of the bicycles – and there were three of them which were stolen from me – I’ve dealt with it well.
+ - We feel bound to the Christian image of humanity – that is what defines us. Those who do not accept this are in the wrong place here.
+ - There’s a rumour going around that states cannot go bankrupt. This rumour is not true.
+ - Our relationship with the United States is not reduced to questions of fighting terrorism and the Iraq war. German-American relations were so good for so many years because they extended deeply into the normal lives of people.
+ - The G7 and former G8 group has always viewed itself as a community of values, the annexation of Crimea, which is a blatant violation of the principles of international law, and the events in eastern Ukraine are serious violations of these common values.
+ - I think we can say our energy system will be the most efficient and environmentally friendly in the world.
+ - I felt really sorry for Oliver Kahn. Up to that point he had made lots of saves for the German team. Of course he could have caught the ball but it just happened. It was bad luck. In that situation, you need to be very strong psychologically to carry on.
+ - As politicians we have to react to the fact that many people do not feel that they can relate to the EU.
+ - Europe can only hold together and stand together, which is very important in times of migration challenges, terrorism challenges, if each country takes responsibility for itself.
+ - For 10 years, I have fought passionately for climate protection.
+ - If you want to be constructive in politics, the less you look back, the better. If you do look back, then it can only be to learn for yourself through the events that have taken place.
+ - We need trust among allies and partners. Such trust now has to be built anew.
+ - I don’t believe you are simply born with the ambition of becoming chancellor. But if you want to make a difference, if you enjoy putting ideas into practice, then the post of chancellor has to be the one presenting the biggest opportunity of all.
+ - First, we need good, stable relations with Russia. Second, we must make every effort to save energy and focus on using various sources to meet our energy needs. We must not allow ourselves to become dependent.
+ - It is nonsense to say that Germans are unable to change.
+ - The US military has achieved a decisive blow against al-Qaeda with its commando action against Osama Bin Laden and his killing.
+ - NATO needs to adapt its strategy to meet new challenges.
+ - As a woman with strong opinions talking about technology and politics is not always welcome in Germany. Nope, it’s more like having a great cheerleader team behind me. People who follow my journey know I have a slightly colorful personality. The rest skipped out long ago.
+ - I believe that we will move forward a little tomorrow but I have my doubts that we will achieve a result.
+ - And I think that a woman as chancellor can also serve as a good example,.
+ - I want to see everyone contribute to the overall costs of the system, and with their entire earnings. I’m convinced that an objective discussion will reveal that the differences between the parties, which have been greatly exaggerated in some quarters, aren’t that significant after all.
+ - We all want to be honest and draw lessons from the past, the WHO is the only international organization that has universal political legitimacy on global health issues. This is why it’s so important to render its structures more efficient.
+ - It certainly is dangerous that there are only a few clubs left in Europe that can afford to pay millions. At the end of the day however, the spectators decide the rates of pay – by watching the games and consuming the goods and services advertised on sports TV programmes.
+ - I believe that we do not share as many values with Russia yet as we do with the United States. On the other hand, we have a strong interest in Russia developing in a reasonable direction.
+ - In the German football team players from different clubs need to get on with each other both on and off the pitch. In the grand coalition Christian Democrats and Social Democrats sit in the same boat and need to pull in the same direction.
+ - Eurobonds are absolutely wrong. In order to bring about common interest rates, you need similar competitiveness levels, similar budget situations. You don’t get them by collectivizing debts.
+ - I said, yet again, for Germany, Europe is not only indispensable, it is part and parcel of our identity. We’ve always said German unity, European unity and integration, that’s two parts of one and the same coin. But we want, obviously, to boost our competitiveness.
+ - Today’s Russia is not to be compared with the Soviet Union of back then.
+ - In Europe it is particularly important that we build good relations to everyone who holds political responsibility because Europe can only be build together.
+ - I never underestimated myself. And I never saw anything wrong with ambition.
+ - If we remind ourselves of the fact that every fifth American today rightly points and perhaps also with a certain degree of pride to his German ancestry or her German ancestry, we can safely say that we, indeed, share common roots.
+ - Let me say this on a personal note. Without the United States of America, I would in all probably not be able to stand here before you today.
+ - We cannot allow employers in Germany to pay hourly wages of 50 cents and shift the remainder of the burden to the taxpayer. After all, we want to create jobs, not open a self-service shop for resourceful employers.
+ - I feel sorry sometimes for these sportsmen and women who put in just as much effort as the footballers. For example, athletes train at least as hard as footballers but have to be happy if they can earn enough to finance a decent education.
+ - The problem is, of course, that these interest groups are all asking for changes, but their enthusiasm for change rapidly disappears when it affects the core of their own interests.
+ - The substance of the constitution is preserved. That is a fact.
+ - The markets want to force us to do certain things. That we won’t do. Politicians have to make sure that we’re unassailable, that we can make policy for the people.
+ - Partners like the United States and Germany must always discuss all issues, including these questions. I welcome the fact that a discussion over legitimate methods of questioning and interrogation is taking place in both Germany and the United States.
+ - We have freedom to demonstrate in Germany, but there is no place for incitement and insulting people who come to us from other countries.
+ - An institution like Guantanamo in its present form cannot and must not exist in the long term. We must find different ways of dealing with prisoners. As far as I’m concerned there’s no question about that.
+ - I want us to be able to preserve our level of prosperity. We must constantly remind ourselves that Germany has been eating into its capital. It is only through successful management that we can once again secure our foundation of prosperity and social security.
+ - To be serious, if we were only interested in earning big money then a politician would have to go and work in industry.
+ - I will not let anyone tell me we must spend more money. This crisis did not come about because we issued too little money but because we created economic growth with too much money and it was not sustainable growth.
+ - We believe in the rights of every individual to seek his fortune, in respect for others and in tolerance. Let us reply to the terrorists by resolutely living our values and by redoubling those values across all of Europe – now more than ever.
+ - The question is: Would there be a market in Germany for certain types of employment if one were to allow the employed person to earn less than is necessary to maintain his standard of living?
+ - For a few years, more people have been leaving our country than entering it. Wherever it is possible, we must lower the entry hurdles for those who bring the country forward.
+ - The people in East Germany have lived through so many changes in the last 15 years like never before in the country, and they did this often with great enthusiasm. But in the West we also have a high degree of transformations.
+ - It seems to me that the fact that I am a woman is a bigger issue than the fact that I’m from the East. For me it isn’t really important. I’ve only ever known myself as a woman.
+ - No bank should be allowed to become so big that it can blackmail governments.
+ - Information obtained under dubious circumstances cannot play a role in legal proceedings in a constitutional state. But everything that’s available must be taken into account in threat prevention.
+ - We can’t constantly explain to our voters that taxpayers have to be on the hook for certain risks, rather than those who make a lot of money taking those risks.
+ - There is anything but an assurance of success, I have to be very clear about that.
+ - That is why everyone in politics, and we do it, must make sure that they do not depend on one single interest group. A good compromise is one where everybody makes a contribution.
+ - So Europe needs to be competitive and we also need to be competitive if we wish to remain an interesting economic partner for the United States. This has to be done on the basis of strength, of competitiveness.
+ - I am not an expert in this field but I do try to keep up to date with the Bundesliga. And I do follow World Cups and European Championships more closely.
+ - Herr Schroder has conducted two electoral campaigns, and he is doing it again now, by not telling people what is really necessary. He keeps avoiding the difficult and uncomfortable issues, those that imply changes and therefore provoke discussions.
+ - Above all it is important to point out that we can only maintain our prosperity in Europe if we belong to the most innovative regions in the world.
+ - It will not be possible to solve the current crisis with euro bonds.
+ - Politicians have to be committed to people in equal measures.
+ - From this experience we have learned that in a big party it is important to have the necessary and often controversial discussions on policy issues such as the health system while in opposition.
+ - On the one hand, the financial projection is on the agenda – we will see if this problem can be resolved or not. I think it is a right idea to stage a special summit, which would deal with the question of priorities of European politics.
+ - Personally, I think that for example the chemical directive in its present form does too much damage to the chemical industry – especially the medium sized businesses – and will hurt our worldwide competitiveness.
+ - Only our own strength, a strong conservative party, can prevent Red-Red-Green from taking power at the federal level in 2017.
+ - Everyone wants a more simple tax system. But if this means that certain tax breaks have to be cut, people are no longer so enthusiastic.
+ - That makes me think of the 2002 World Cup Final above all else. Nobody thought at the time that our team would get through to the Final against Brazil. We should remember that this summer.
+
+104 quotes

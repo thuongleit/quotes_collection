@@ -1,0 +1,24 @@
+ - Gully Foyle is my name And Terra is my nation Deep space is my dwelling place The stars my destination.
+ - The mind is the reality. You are what you think.
+ - The whole point of extravagance is to act like a fool and feel like a fool, but enjoy it.
+ - Faith in faith’ he answered himself. ‘It isn’t necessary to have something to believe in. It’s only necessary to believe that somewhere there’s something worthy of belief.
+ - Most science fiction, quite frankly, is silly nonsense.
+ - Tenser, said the Tensor. Tension, apprehension, and dissension have begun.
+ - Millions for nonsense, but not one cent for entropy.
+ - It’s obvious we can’t all be a Gully Foyle, but most of us energize at such a low level, so far short of our real capabilities, we could all be more, do more.
+ - You pigs, you. You rut like pigs, is all. You got the most in you, and you use the least. You hear me, you? Got a million in you and spend pennies. Got a genius in you and think crazies. Got a heart in you and feel empties. All a you. Every you...
+ - Eight, sir; seven, sir; Six, sir; five, sir; Four, sir; Three, sir; Two, sir; one! Tenser, said the Tensor. Tenser, said the Tensor. Tension, apprehension, And dissension have begun.
+ - Intellect is the ability to avoid belaboring the obvious.
+ - Life is a freak. That’s its hope and glory.
+ - I’m not much interested in extrapolating science and technology; I merely use extrapolation as a means of putting people into new quandaries which produce colorful pressures and conflicts.
+ - If a man’s got talent and guts to buck society, he’s obviously above average. You want to hold on to him. You straighten him out and turn him into a plus value. Why throw him away? Do that enough and all you’ve got left are the sheep.
+ - Don’t ask the world to stop moving because you have doubts.
+ - I’m a great believer in people and their untapped potential.
+ - I challenge you, me. Die or live and be great.
+ - One of the things that everybody knows about space travel but never mentions is its aphrodisiac quality.
+ - We always do what’s natural, only sometimes we shouldn’t do it.
+ - If you can have everything at fifty that you wanted when you were fifteen, you’re happy.
+ - The man who gives his own decisions priority over society is a criminal.
+ - I’ve handed life and death back to the people who do the living and the dying.
+
+22 quotes

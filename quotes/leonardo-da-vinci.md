@@ -1,0 +1,463 @@
+ - Simplicity is the ultimate sophistication.
+ - Learning never exhausts the mind.
+ - Learn how to see. Realize that everything connects to everything else.
+ - Time stays long enough for those who use it.
+ - The noblest pleasure is the joy of understanding.
+ - Learning is the only thing the mind never exhausts, never fears, and never regrets.
+ - I have been impressed with the urgency of doing. Knowing is not enough; we must apply. Being willing is not enough; we must do.
+ - Once you have tasted flight, you will forever walk the earth with your eyes turned skyward, for there you have been, and there you will always long to return.
+ - The artist sees what others only catch a glimpse of.
+ - Nothing strengthens authority so much as silence.
+ - It had long since come to my attention that people of accomplishment rarely sat back and let things happen to them. They went out and happened to things.
+ - Art is never finished, only abandoned.
+ - The deeper the feeling, the greater the pain.
+ - Study without desire spoils the memory, and it retains nothing that it takes in.
+ - The greatest deception men suffer is from their own opinions.
+ - One can have no smaller or greater mastery than mastery of oneself.
+ - It is easier to resist at the beginning than at the end.
+ - As a well spent day brings happy sleep, so life well used brings happy death.
+ - Intellectual passion drives out sensuality.
+ - He who loves practice without theory is like the sailor who boards ship without a rudder and compass and never knows where he may cast.
+ - Patience serves as a protection against wrongs as clothes do against cold. For if you put on more clothes as the cold increases, it will have no power to hurt you. So in like manner you must grow in patience when you meet with great wrongs, and they will then be powerless to vex your mind.
+ - The mind that engages in subjects of too great variety becomes confused and weakened.
+ - I have offended God and mankind because my work didn't reach the quality it should have.
+ - The painter has the Universe in his mind and hands.
+ - Every now and then go away, have a little relaxation, for when you come back to your work your judgment will be surer. Go some distance away because then the work appears smaller and more of it can be taken in at a glance and a lack of harmony and proportion is more readily seen.
+ - He who wishes to be rich within a day, will be hanged within a year.
+ - A painter should begin every canvas with a wash of black, because all things in nature are dark except where exposed by the light.
+ - Where the spirit does not work with the hand, there is no art.
+ - Painting is poetry that is seen rather than felt, and poetry is painting that is felt rather than seen.
+ - Water is the driving force of all nature.
+ - The acquisition of knowledge is always of use to the intellect, because it may thus drive out useless things and retain the good. For nothing can be loved or hated unless it is first known.
+ - I love those who can smile in trouble...
+ - I have from an early age abjured the use of meat, and the time will come when men such as I will look upon the murder of animals as they now look upon the murder of men.
+ - As every divided kingdom falls, so every mind divided between many studies confounds and saps itself.
+ - Where there is shouting, there is no true knowledge.
+ - There are three classes of people: those who see. Those who see when they are shown. Those who do not see.
+ - Principles for the Development of a Complete Mind: Study the science of art. Study the art of science. Develop your senses- especially learn how to see. Realize that everything connects to everything else.
+ - Nothing can be loved or hated unless it is first understood.
+ - Details make perfection, and perfection is not a detail.
+ - The knowledge of all things is possible.
+ - As you cannot do what you want, want what you can do.
+ - The wisest and noblest teacher is nature itself.
+ - Make your work to be in keeping with your purpose.
+ - Fix your course on a star and you’ll navigate any storm.
+ - The most beautiful words of love are told in silence for a look.
+ - While I thought that I was learning how to live, I have been learning how to die.
+ - God sells us all things at the price of labor.
+ - All our knowledge has its origin in our perceptions.
+ - The moment is timeless.
+ - Iron rusts from disuse, stagnant water loses its purity, and in cold weather becomes frozen; even so does inaction sap the vigors of the mind.
+ - My body will not be a tomb for other creatures.
+ - Marriage is like putting your hand into a bag of snakes in the hope of pulling out an eel.
+ - Nature never breaks her own laws.
+ - Wisdom is the daughter of experience.
+ - The human foot is a masterpiece of engineering and a work of art.
+ - Blinding ignorance does mislead us. O! Wretched mortals, open your eyes!
+ - Every obstacle is destroyed through rigor.
+ - One has no right to love or hate anything if one has not acquired a thorough knowledge of its nature. Great love springs from great knowledge of the beloved object, and if you know it but little you will be able to love it only a little or not at all.
+ - Everything comes from everything, and everything is made out of everything, and everything returns into everything.
+ - An arch consists of two weaknesses which, leaning one against the other, make a strength.
+ - The function of muscle is to pull and not to push, except in the case of the genitals and the tongue.
+ - All sciences are vain and full of errors that are not born of Experience, the mother of all Knowledge.
+ - A diamond is just a lump of coal that stuck to its job.
+ - The greater the man’s soul, the deeper he loves.
+ - Beauty perishes in life, but is immortal in art.
+ - The desire to know is natural to good men.
+ - The smallest feline is a masterpiece.
+ - Vows begin when hope dies.
+ - Every obstacle yields to stern resolve.
+ - He who walks straight rarely falls.
+ - Therefore, O students, study mathematics and do not build without foundations.
+ - Vitality and beauty are gifts of Nature for those who live according to its laws.
+ - Such is the supreme folly of man that he labours so as to labour no more.
+ - Medicine is the restoration of discordant elements; sickness is the discord of the elements infused into the living body.
+ - The discovery of a good wine is increasingly better for mankind than the discovery of a new star.
+ - Life well spent is long.
+ - He turns not back who is bound to a star.
+ - Depth and strength of a human character are defined by its moral reserves.
+ - The lie is so vile, that even if it were in speaking well of godly things, it would take off something from God’s grace; and Truth is so excellent, that if it praises but small things they become noble.
+ - He who does not understand the supreme certainty of mathematics is wallowing in confusion.
+ - Art is the queen of all sciences communicating knowledge to all the generations of the world.
+ - It is an acknowledged fact that we perceive errors in the work of others more readily than in our own.
+ - Beyond a doubt truth bears the same relation to falsehood as light to darkness.
+ - I roamed the countryside searching for answers to things I did not understand.
+ - Experiment is the sole interpreter of the artifices of Nature.
+ - Painting is concerned with all the 10 attributes of sight; which are: Darkness, Light, Solidity and Colour, Form and Position, Distance and Propinquity, Motion and Rest.
+ - Envy wounds with false accusations, that is with detraction, a thing which scares virtue.
+ - If you do not rest on the good foundation of nature, you will labour with little honor and less profit.
+ - Lust is the cause of generation.
+ - If you call painting dumb poetry, the painter may call poetry blind painting.
+ - Here is a thing which the more it is needed the more it is rejected: and this is advice, which is unwillingly heeded by those who most need it, that is to say, by the ignorant.
+ - Men wrongly lament the flight of time, blaming it for being too swift; they do not perceive that its passage is sufficiently long, but a good memory, which nature has given to us, causes things long past to seem present.
+ - The mind of a painter should be like a mirror which is filled with as many images as there are things placed before him.
+ - Instrumental or mechanical science is the noblest and above all others, the most useful.
+ - Whoever despises the high wisdom of mathematics nourishes himself on delusion and will never still the sophistic sciences whose only product is an eternal uproar.
+ - To make a perfume, take some rose water and wash your hands in it, then take a lavender flower and rub it with your palms, and you will achieve the desired effect.
+ - Inequality is the cause of all local movements.
+ - The sun gives spirit and life to the plants and the earth nourishes them with moisture.
+ - If you are on the side whence the wind is blowing you will see the trees looking much lighter than you would see them on the other sides; and this is due to the fact that the wind turns up the reverse side of the leaves which in all trees is much whiter than the upper side.
+ - If you are representing a white body let it be surrounded by ample space, because as white has no colour of its own, it is tinged and altered in some degree by the colour of the objects surrounding it.
+ - If you find from your own experience that something is a fact and it contradicts what some authority has written down, then you must abandon the authority and base your reasoning on your own findings.
+ - Poor is the pupil who does not surpass his master.
+ - Mechanics is the paradise of the mathematical sciences because by means of it one comes to the fruits of mathematics.
+ - Obstacles cannot crush me. Every obstacle yields to stern resolve. He who is fixed to a star does not change his mind.
+ - Those who are inspired by a model other than Nature, labor in vain.
+ - I awoke, only to see that the rest of the world is still asleep.
+ - We know more about the movement of celestial bodies than about the soil underfoot.
+ - Our life is made by the death of others.
+ - Every action needs to be prompted by a motive.
+ - Savage is he who saves himself.
+ - Who sows virtue reaps honor.
+ - Human subtlety will never devise an invention more beautiful, more simple or more direct than does nature because in her inventions nothing is lacking, and nothing is superfluous.
+ - I have been impressed with the urgency of doing.
+ - The eye, the window of the soul, is the chief means whereby the understanding can most fully and abundantly appreciate the infinite works of Nature; and the ear is second.
+ - Fire is to represent truth because it destroys all sophistry and lies; and the mask is for lying and falsehood which conceal truth.
+ - The motive power is the cause of all life.
+ - Every now and then go away, have a little relaxation, for when you come back to your work your judgment will be surer.
+ - Just as iron rusts from disuse, even so does inaction spoil the intellect.
+ - Nothing is hidden under the sun.
+ - In rivers, the water that you touch is the last of what has passed and the first of that which comes; so with present time.
+ - No human investigation can be called real science if it cannot be demonstrated mathematically.
+ - Just as iron rusts from disuse, and stagnant water putrefies, or when cold turns to ice, so our intellect wastes unless it is kept in use.
+ - The eye is the window of the human body through which it feels its way and enjoys the beauty of the world.
+ - Music may be called the sister of painting, for she is dependent upon hearing, the sense which comes second and her harmony is composed of the union of proportional parts sounded simultaneously, rising and falling in one or more harmonic rhythms.
+ - The color of the object illuminated partakes of the color of that which illuminates it.
+ - Strive to preserve your health; and in this you will better succeed in proportion as you keep clear of the physicians, for their drugs are a kind of alchemy concerning which there are no fewer books than there are medicines.
+ - Nature is the source of all true knowledge. She has her own logic, her own laws, she has no effect without cause nor invention without necessity.
+ - He who truly knows has no occasion to shout.
+ - If you put on more garments, the cold cannot reach you. Similarly, increase your patience and concentration and even great injuries cannot vex your mind.
+ - Truth at last cannot be hidden. Dissimulation is of no avail. Dissimulation is to no purpose before so great a judge. Falsehood puts on a mask. Nothing is hidden under the sun.
+ - Let proportion be found not only in numbers and measures, but also in sounds, weights, times, and positions, and what ever force there is.
+ - An artist’s studio should be a small space because small rooms discipline the mind and large ones distract it.
+ - Those who are enamoured of practice without science are like a pilot who goes into a ship without rudder or compass and never has any certainty of where he is going. Practice should always be based upon a sound knowledge of theory.
+ - Feathers shall raise men even as they do birds towards heaven :- That is by letters written with their quills.
+ - When you put your hand in a flowing stream, you touch the last that has gone before and the first of what is still to come.
+ - Learning acquired in youth arrests the evil of old age; and if you understand that old age has wisdom for its food, you will so conduct yourself in youth that your old age will not lack for nourishment.
+ - Nature is full of infinite causes that have never occurred in experience.
+ - Oysters open completely when the moon is full; and when the crab sees one it throws a piece of stone or seaweed into it and the oyster cannot close again so that it serves the crab for meat. Such is the fate of him who opens his mouth too much and thereby puts himself at the mercy of the listener.
+ - Who would believe that so small a space could contain the images of all the universe?
+ - Whoever in debate quotes authority uses not intellect, but memory.
+ - The natural desire of good men is knowledge.
+ - Necessity is the mistress and guide of nature. Necessity is the theme and inventress of nature, her curb and her eternal law.
+ - Make yourself a master of perspective, then acquire perfect knowledge of the proportions of men and other animals.
+ - Whoever does not respect life, does not deserve it.
+ - A day will come in which men will look upon an animal’s murder the same way they look today upon a man’s murder.
+ - A good memory, which nature has endowed us with, causes things long past to seem present.
+ - Many have made a trade of delusions and false miracles, deceiving the stupid multitudes.
+ - I wish to work miracles...
+ - It is useful to constantly observe, note, and consider.
+ - The faculty of imagination is both the rudder and the bridle of the senses.
+ - To enjoy – to love a thing for its own sake and for no other reason.
+ - Just as iron which is not used grows rusty, and water putrefies and freezes in the cold, so the mind of which no use is made is spoilt.
+ - All objects transmit their image to the eye in pyramids and the nearer to the eye these pyramids are intersected the smaller will the image appear of the objects which cause them.
+ - Medicine is the restoration of discordant elements.
+ - Although nature commences with reason and ends in experience it is necessary for us to do the opposite, that is to commence with experience and from this to proceed to investigate the reason.
+ - The truth of things is the chief nutriment of superior intellects.
+ - You don’t get into trouble because of the things you don’t know. It is the things you don’t know you don’t know that really get you into a mess.
+ - You must grow in patience when you meet with great wrongs, and they will then be powerless to vex your mind.
+ - To any white body receiving the light from the sun, or the air, the shadows will be of a bluish cast.
+ - A gray day provides the best light.
+ - Art lives from constraints and dies from freedom.
+ - In time and with water, everything changes.
+ - O speculators about perpetual motion, how many vain chimeras have you created in the like quest? Go and take your place with the seekers after gold.
+ - The beginnings and ends of shadow lie between the light and darkness and may be infinitely diminished and infinitely increased. Shadow is the means by which bodies display their form. The forms of bodies could not be understood in detail but for shadow.
+ - Darkness is absence of light. Shadow is diminution of light.
+ - Among the great things which are to be found among us, the being of nothingness is the greatest.
+ - The five senses are the ministers of the soul.
+ - Look at light and admire its beauty. Close your eyes, and then look again: what you saw is no longer there; and what you will see later is not yet.
+ - Perspective is to painting what the bridle is to the horse, the rudder to a ship.
+ - If you cause your ship to stop and place the head of a long tube in the water and place the outer extremity to your ear, you will hear ships at a great distance from you.
+ - There shall be wings! If the accomplishment be not for me, ’tis for some other. The spirit cannot die; and man, who shall know all and shall have wings.
+ - Learn diligence before speedy execution.
+ - Small rooms or dwellings discipline the mind, large ones weaken it.
+ - If you are alone you belong entirely to yourself. If you are accompanied by even one companion you belong only half to yourself or even less in proportion to the thoughtlessness of his conduct and if you have more than one companion you will fall more deeply into the same plight.
+ - Nature alone is the master of true genius.
+ - Being willing is not enough. We must do.
+ - All knowledge which ends in words will die as quickly as it came to life, with the exception of the written word: which is its mechanical part.
+ - The young man should first learn perspective, then the proportions of objects. Next, copy work after the hand of a good master, to gain the habit of drawing parts of the body well; and then to work from nature, to confirm the lessons learned.
+ - A life well used procures a happy death.
+ - Why does the eye see a thing more clearly in dreams than the imagination when awake?
+ - Poetry is superior to painting in the presentation of words, and painting is superior to poetry in the presentation of facts. For this reason I judge painting to be superior to poetry.
+ - Good culture is born of a good disposition; and since the cause is more to be praised than the effect, I will rather praise a good disposition without culture, than good culture without the disposition.
+ - Truly man is the king of beasts, for his brutality exceeds them. We live by the death of others. We are burial places.
+ - Avoid the precepts of those thinkers whose reasoning is not confirmed by experience.
+ - The painter must be solitary. For if you are alone you are completely yourself, but if you are accompanied by a single companion, you are only half yourself.
+ - Science is the captain, and practice the soldiers.
+ - The eye which turns from a white object in the light of the sun and goes into a less fully lighted place will see everything as dark.
+ - The greatest geniuses sometimes accomplish more when they work less.
+ - I’m not contented to capture the world. I want to change it.
+ - Man has much power of discourse which for the most part is vain and false; animals have but little, but it is useful and true, and a small truth is better than a great lie.
+ - Virtue is our true wealth and the true reward of its possessor; it cannot be lost, it never deserts us until life leaves us.
+ - The poet ranks far below the painter in the representation of visible things, and far below the musician in that of invisible things.
+ - Not to anticipate is already to moan.
+ - Especially learn how to see.
+ - All thoughts start from emotions.
+ - Men of lofty genius when they are doing the least work are most active.
+ - Everything proceeds from everything else and everything becomes everything, and everything can be turned into everything else.
+ - Science is the observation of things possible, whether present or past; prescience is the knowledge of things which may come to pass, though but slowly.
+ - One can have no more mastery over the environment, than one has over himself.
+ - The Book of the science of Mechanics must precede the Book of useful inventions.
+ - To discover the soul living in somebody’s body, we watch the surrounding of the body, and if it’s messy and disordered, so is the soul.
+ - Poor is the man who desires a lot.
+ - Fame alone raises herself to Heaven, because virtuous things are in favour with God.
+ - That painter who has no doubts will achieve little.
+ - Of the original phenomena, light is the most enthralling.
+ - Experience does not err. Only your judgments err by expecting from her what is not in her power.
+ - Motion is created by the destruction of balance.
+ - He who has access to the fountain does not go to the water-pot.
+ - He who never puts his trust in any man will never be deceived.
+ - Threats alone, are the weapons of the threatened man.
+ - The supreme misfortune is when theory outstrips performance.
+ - The art of procreation and the members employed therein are so repulsive, that if it were not for the beauty of the faces and the adornments of the actors and the pent-up impulse, nature would lose the human species.
+ - Any color is more distinctly seen when opposed to its contrary: thus, black on white, blear near yellow, green near red, and so on.
+ - When you draw a nude, sketch the whole figure and nicely fit the members to it and to each other. Even though you may only finish one portion of the drawing, just make certain that all the parts hang together, so that the study will be useful to you in the future.
+ - It is ordained that to the ambitious, who derive no satisfaction from the gifts of life and the beauty of the world, life shall be a cause of suffering, and they shall possess neither the profit nor the beauty of the world.
+ - He who cannot establish dominion over himself will have no dominion over others.
+ - A bird is an instrument working according to mathematical law, which instrument it is within the capacity of man to reproduce with all its movements.
+ - A wave is never found alone, but is mingled with the other waves.
+ - The human bird shall take his first flight, filling the world with amazement, all writings with his fame, and bringing eternal glory to the nest whence he sprang.
+ - Wood feeds the fire which burns it.
+ - While you are alone you are entirely your own master and if you have one companion you are but half your own, and the less so in proportion to the indiscretion of his behavior.
+ - The Medici created and destroyed me.
+ - I roamed the countryside searching for answers to things I did not understand. Why shells existed on the tops of mountains. How the various circles of water form around the spot which has been struck by a stone, and why a bird sustains itself in the air.
+ - A deaf and dumb person who sees two men in conversation – may nevertheless understand from the attitudes and gestures of the speakers, how well their discussion is getting along.
+ - Be a mirror, absorb everything around you and still remain the same.
+ - The eye encompasses the beauty of the whole world.
+ - For those colours which you wish to be beautiful, always first prepare a pure white ground.
+ - Learning acquired in youth arrests the evil of old age.
+ - Fire destroys all sophistry, that is deceit; and maintains truth alone, that is gold.
+ - Nature appears to have been the cruel stepmother rather than the mother of many animals.
+ - A long life is a life well spent.
+ - Black is like a broken vessel, which is deprived of the capacity to contain anything.
+ - To such an extent does nature delight and abound in variety that among her trees there is not one plant to be found which is exactly like another; and not only among the plants, but among the boughs, the leaves and the fruits, you will not find one which is exactly similar to another.
+ - Every action needs to be prompted by a motive. To know and to will are two operations of the human mind. Discerning, judging, deliberating are acts of the human mind.
+ - Common Sense is that which judges the things given to it by other senses.
+ - Test knowledge through experience, be prepared to make mistakes, and be persistent about it.
+ - Every man at three years old is half his height.
+ - Supreme happiness will be the greatest cause of misery, and the perfection of wisdom the occassion of folly.
+ - O sleepers! what a thing is slumber! Sleep resembles death. Ah, why then dost thou not work in such wise as that after death thou mayst retain a resemblance to perfect life, when, during life, thou art in sleep so like to the hapless dead?
+ - Happy will they be who lend ear to the words of the dead.
+ - The painter’s mind is a copy of the divine mind, since it operates freely in creating the many kinds of animals, plants, fruits, landscapes, countrysides, ruins, and awe-inspiring places.
+ - No one should ever imitate the style of another because, with regard to art, he will be called a nephew and not a child of nature.
+ - There is nothing that deceives us more than our own judgment when used to give an opinion on our own works. It is sound in judging the work of our enemies but not that of our friends, for hate and love are two of the most powerfully motivating factors found among living things.
+ - I am still hopeful. A falcon, Time. But the coincidence is probably accidental.
+ - Not to punish evil is equivalent to authorizing it.
+ - We must doubt the certainty of everything which passes through the senses, but how much more ought we to doubt things contrary to the senses, such as the existence of God and the soul.
+ - When Fortune comes, seize her in front with a sure hand, because behind she is bald.
+ - Thirst will parch your tongue and your body will waste through lack of sleep ere you can describe in words that which painting instantly sets before the eye.
+ - Every part is disposed to unite with the whole, that it may thereby escape from its own incompleteness.
+ - It’s not enough that you believe what you see. You must also understand what you see.
+ - Even the richest soil, if left uncultivated will produce the rankest weeds.
+ - The length of a man’s outspread arms is equal to his height.
+ - The mole has very small eyes and it always lives under ground; and it lives as long as it is in the dark but when it comes into the light it dies immediately, because it becomes known; – and so it is with lies.
+ - I say that the power of vision extends through the visual rays to the surface of non-transparent bodies, while the power possessed by these bodies extends to the power of vision.
+ - A clever man without wisdom is like a beautiful flower without fragrance.
+ - When taking a selfie, remember the most natural pose is still best.
+ - Do not reveal, if liberty is precious to you; my face is the prison of love.
+ - The painter will produce pictures of little merit if he takes the works of others as his standard.
+ - A beautiful body perishes, but a work of art dies not.
+ - Perspective is the rein and rudder of painting.
+ - We, by our arts may be called the grandsons of God.
+ - Inaction saps the vigor of the mind.
+ - I have always felt it is my destiny to build a machine that would allow man to fly.
+ - We know well that mistakes are more easily detected in the works of others than in one’s own.
+ - The water which rises in the mountain is the blood which keeps the mountain in life.
+ - You grow in reputation like bread in the hands of a child.
+ - We might say that the earth has the spirit of growth; that its flesh is the soil.
+ - Reprove your friend in secret and praise him openly.
+ - Constancy does not begin, but is that which perseveres.
+ - Happy will be those who give ear to the words of the dead: – The reading of good works and the observing of their precepts.
+ - The worst evil which can befall the artist is that his work should appear good in his own eyes.
+ - A poet knows he has achieved perfection not when there is nothing left to add, but when there is nothing left to take away.
+ - True and great love springs out of great knowledge, and where you know little you can love but little or not at all.
+ - People reveal themselves completely only when they are thrown out of the customary conditions of their life.
+ - Why are the bones of great fishes, and oysters and corals and various other shells and sea-snails, found on the high tops of mountains that border the sea, in the same way in which they are found in the depths of the sea?
+ - Nothing will be left, Nothing in the air, nothing under the earth, nothing in the waters. All will be exterminated.
+ - There is no object so large but that at a great distance from the eye it does not appear smaller than a smaller object near.
+ - Slender certainty is better than portentous falsehood.
+ - He who can copy can do.
+ - To me it seems that those sciences are vain and full of error which are not born of experience, mother of all certainty, first-hand experience which in its origins, or means, or end has passed through one of the five senses.
+ - What induces you, oh man, to depart from your home in town, to leave parents and friends, and go to the countryside over mountains and valleys, if it is not for the beauty of the world of nature?
+ - Patience serves as a protection against wrongs as clothes do against cold.
+ - He who wishes to see how the soul inhabits the body should look to see how that body uses its daily surroundings. If the dwelling is dirty and neglected, the body will be kept by its soul in the same condition, dirty and neglected.
+ - The imagination is to the effect as the shadow to the opaque body which causes the shadow.
+ - You should prefer a good scientist without literary abilities than a literate one without scientific skills.
+ - I have found that, in the composition of the human body as compared with the bodies of animals, the organs of sense are duller and coarser. Thus, it is composed of less ingenious instruments, and of spaces less capacious for receiving the faculties of sense.
+ - We should not desire the impossible.
+ - Practice should always be based upon a sound knowledge of theory.
+ - Whatever you think matters – doesn’t. Follow this rule, and you will add decades to your life. Rodger Rosenblatt As a well spent day brings happy sleep, so life well used brings happy death.
+ - Lying on a feather mattress or quilt will not bring you renown.
+ - If we make mistakes in our first compositions and do not know them, we may not amend them.
+ - Wherever good fortune enters, envy lays siege to the place and attacks it; and when it departs, sorrow and repentance remain behind.
+ - The organ of perception acts more readily than judgment.
+ - That which has no limitations, has no form.
+ - Study me, reader, if you delight in me, because on very few occasions shall I return to the world, and because the patience for this profession is found in very few, and only in those who wish to compose things anew. Come, oh men, to see the miracles that such studies will disclose to nature.
+ - One’s thoughts turn towards Hope.
+ - For youth, everything is sport.
+ - What is fair in men, passes away, but not so in art.
+ - For in truth great love is born of great knowledge of the thing loved.
+ - He only moves toward the perfection of his art whose criticism surpasses his achievement.
+ - Of the four elements water is the second in weight and the second in respect of mobility. It is never at rest until it unites with the sea...
+ - O painter, take care lest the greed for gain prove a stronger incentive than renown in art, for to gain this renown is a far greater thing than is the renown of riches.
+ - O mighty and once living instrument of formative nature. Incapable of availing thyself of thy vast strength thou hast to abandon a life of stillness and to obey the law which God and time gave to procreative nature.
+ - O admirable necessity! O powerful action! What mind can penetrate your nature? What language can express this marvel? None, to be sure. This is where human discourse turns toward the contemplation of the divine.
+ - Man and animals are in reality vehicles and conduits of food, tombs of animals, hostels of Death, coverings that consume, deriving life by the death of others.
+ - He who in reasoning cites authority is making use of his memory rather than of his intellect.
+ - Advertisers constantly invent cures to which there is no disease.
+ - The evil which does me no harm is like the good which in no wise avails me.
+ - You can have no dominion greater or less than that over yourself.
+ - The light and heat of the universe comes from the sun, and its cold and darkness from the withdrawal of the sun.
+ - The eye – which sees all objects reversed – retains the images for some time.
+ - O painter skilled in anatomy, beware lest the undue prominence of the bones, sinews and muscles cause you to become a wooden painter from the desire to make your nude figures reveal all.
+ - The first object of the painter is to make a flat plane appear as a body in relief and projecting from that plane.
+ - O time! swift devourer of all created things!
+ - How many emperors and how many princes have lived and died and no record of them remains, and they only sought to gain dominions and riches in order that their fame might be ever-lasting.
+ - An artist who lacks the power of self-criticism accomplishes but little. It is good if your work stands higher than your own opinion of it; bad if it is on the same level. But it is a great disaster if your work stands lower than your judgment of it.
+ - Let no man who is not a Mathematician read the elements of my work.
+ - It is the infinite alone that cannot be attained, for if it could it would become finite.
+ - Men standing in opposite hemispheres will converse and deride each other and embrace each other, and understand each other’s language.
+ - Shadow is the diminution alike of light and of darkness, and stands between darkness and light.
+ - In the days of thy youth seek to obtain that which shall compensate the losses of thy old age.
+ - Things severed shall be united and shall acquire of themselves such virtue that they shall restore to men their lost memory: – That is the papyrus sheets, which are formed out of several strips and preserve the memory of the thoughts and deeds of men.
+ - The painter or draftsman ought to be solitary, in order that the well-being of the body not sap the vigour of the mind.
+ - One day the world will look upon research upon animals as it now looks upon research on human beings.
+ - People of higher talent work, even if they seem to do nothing.
+ - How painting surpasses all human works by reason of the subtle possibilities which it contains.
+ - The merit of painting lies in the exactness of reproduction. Painting is a science and all sciences are based on mathematics. No human inquiry can be a science unless it pursues its path through mathematical exposition and demonstration.
+ - Just as courage imperils life, fear protects it.
+ - Anyone who conducts an argument by appealing to authority is not using his intelligence; he is just using his memory.
+ - An infinite number of men will sell publicly and unhindered things of the very highest price, without leave from the Master of it; while it never was theirs nor in their power; and human justice will not prevent it.
+ - Do not imitate one another’s style. If you do, so far as your art is concerned you will be called a grandson, rather than the son of Nature.
+ - Experience never errs; it is only your judgments that err by promising themselves effects such as are not caused by your experiments.
+ - The vine that has grown old on an old tree falls with the ruin of that tree, and through that bad companionship must perish with it.
+ - When counting, try not to mix chickens with blessings.
+ - The earth is moved from its position by the weight of a tiny bird resting upon it.
+ - I would venture to affirm that a man cannot attain excellence if he satisfy the ignorant and not those of his own craft, and if he be not ‘singular’ or ‘distant,’ or whatever you like to call him.
+ - If anyone wishes to see how the soul dwells in its body, let him observe how this body uses its daily habitation; that is to say, if this is devoid of order and confused, the body will be kept in disorder and confusion by its soul...
+ - It is better to imitate ancient than modern work.
+ - Nature varies the seed according to the variety of the things she desires to produce in the world.
+ - Oh! Speculators on things, boast not of knowing the things that nature ordinarily brings about; but rejoice if you know the end of those things which you yourself device.
+ - Let not your rage or malice destroy a life.
+ - I have wasted my hours.
+ - Good writing comes from good talent.
+ - I abhor the supreme folly of those who blame the disciples of nature in defiance of those masters who were themselves her pupils.
+ - Those who condemn the supreme certainty of mathematics feed on confusion, and can never silence the contradictions of the sophistical sciences which lead to eternal quackery.
+ - I shall do down in history as the man who opened a door!
+ - There is no higher or lower knowledge, but one only, flowing out of experimentation.
+ - He who fears dangers will not perish by them.
+ - Some promises and time disappoint us.
+ - If you put on more clothes as the cold increases, it will have no power to hurt you. Let us hope that.
+ - To be a winner you must want to win but must know of the chance of losing and must not fear of it.
+ - The motions of men must be such as suggest their dignity or their baseness.
+ - Movement will fail sooner than usefulness.
+ - That which can be lost cannot be deemed riches.
+ - It vexes me greatly that having to earn my living has forced me to interrupt the work and to attend to small matters.
+ - We may call painting the grandchild of nature.
+ - The eye transmits its own image through the air to all the objects which face it, and also receives them on its own surface, whence the “sensus communis” takes them and considers them.
+ - The fox when it sees a flock of herons or magpies or birds of that kind, suddenly flings himself on the ground with his mouth open to look as he were dead; and these birds want to peck at his tongue, and he bites off their heads.
+ - I am not to blame for putting forward, in the course of my work on science, any general rule derived from a previous conclusion.
+ - Make an effort to collect the good features from many beautiful faces.
+ - When you are alone you are all your own.
+ - Old age takes in part savoury wisdom for its food – see to that your old age will not lack in nourishment.
+ - Experience never misleads; what you are misled by is only your judgment, and this misleads you by anticipating results from experience of a kind that is not produced by your experiments.
+ - The fame of the rich man dies with him; the fame of the treasure, and not of the man who possessed it, remains.
+ - To lie is vile, to tell truth is excellent, if not noble.
+ - It is a far worthier thing to read by the light of experience than to adorn oneself with the labors of others.
+ - Every loss which we incur leaves behind it vexation in the memory, save the greatest loss of all, that is, death, which annihilates the memory, together with life.
+ - Avoid studies of which the result dies with the worker.
+ - Our body is dependent on heaven and heaven on the Spirit.
+ - All the bystanders at an event worthy of note adopt various gestures of admiration when contemplating the occurrence.
+ - A man was desired to rise from bed because the sun was already up. He replied: “If I had as far to go and as much to do as he has, I should be up by now; but having but a little way to go, I shall not get up yet.”
+ - Here is a thing which the more you fear and avoid it the nearer you approach to it, and this is misery; the more you flee from it the more miserable and restless you will become.
+ - Nothing is so much to be feared as Evil Report.
+ - It is ill to praise, and worse to blame, the thing which you do not understand.
+ - It is no small benefit on finding oneself in bed in the dark to go over again in the imagination the main lines of the forms previously studied, or other noteworthy things conceived by ingenious speculation.
+ - The memory of benefits is a frail defence against ingratitude.
+ - The boundaries of bodies are the least of all things.
+ - To speak well of a base man is much the same as speaking ill of a good man.
+ - Necessity is a guardian in Nature.
+ - It seems that it had been destined before that I should occupy myself so thoroughly with the vulture, for it comes to my mind as a very early memory, when I was still in the cradle, a vulture came down to me, he opened my mouth with his tail and struck me a few times with his tail against my lips.
+ - Painting is concerned with the ten things you can see: these are darkness and brightness, substance and color, form and place, remoteness and nearness, movement and rest.
+ - The grave will fall in upon him who digs it.
+ - I have solved what color is, however ; I still have no idea about what line is.
+ - A luminous body will appear more brilliant in proportion as it is surrounded by deeper shadow.
+ - Things that are separate shall be united and acquire such virtue that they will restore to man his lost memory.
+ - The senses are of the earth, the reason stands apart from them in contemplation.
+ - Those who, in debate, appeal to their qualifications, argue from memory, not from understanding.
+ - Those who become enamoured of the art, without having previously applied to the diligent study of the scientific part of it, may be compared to mariners who put to the sea in a ship without rudder or compass and therefore cannot be certain of arriving at the wished for port.
+ - I am not poor. Poor are those who desire many things.
+ - Love, Fear, and Esteem, – Write these on three stones.
+ - The instant the atmosphere is illuminated it will be filled with an infinite number of images which are produced by the various bodies and colours assembled in it. And the eye is the target, a lodestone, of these images.
+ - I have discovered that a screw-shaped device such as this, if it is well made from starched linen, will rise in the air if turned quickly.
+ - Make your faces so that they do not all have the same expression, as one sees with most painters, but give them different expression, according to age, complexion, and good or bad character.
+ - There is no result in nature without a cause; understand the cause and you will have no need of the experiment.
+ - A good painter has two main objects to paint, man and the intention of his soul. The former is easy, the latter hard as he has to represent it by the attitude and movement of the limbs.
+ - The vivacity and brightness of colors in a landscape will never bear any comparison with a landscape in nature when it is illumined by the sun, unless the painting is placed in such a position that it will receive the same light from the sun as does the landscape.
+ - Each man is always in the middle of the surface of the earth and under the zenith of his own hemisphere, and over the centre of the earth.
+ - Fear arises sooner than anything else.
+ - Man’s external form, marvellously constructed, is not much as compared with the divine soul that dwells inside that structure.
+ - There are many kinds of beauty as people who possess it.
+ - If the thing loved is base, the lover becomes base.
+ - Weight is caused by one element being situated in another; and it moves by the shortest line towards its centre, not by its own choice, not because the centre draws it to itself, but because the other intervening element cannot withstand it.
+ - The great man presides over all his states of consciousness with obstinate rigor.
+ - When the thing taken into union is perfectly adapted to that which receives it, the result is delight and pleasure and satisfaction.
+ - Ask counsel of him who rules himself well.
+ - Being engulfed in practice without delicate knowledge related to it, is in many ways like entering a ship without knowing where it is headed.
+ - The lover is drawn by the thing loved, as the sense is by that which it perceives...
+ - There is nothing which deceives us as much as our own judgement.
+ - One shall be born from small beginnings which will rapidly become vast. This will respect no created thing, rather will it, by its power, transform almost every thing from its own nature into another.
+ - Experience, the interpreter between creative nature and the human race, teaches the action of nature among mortals: how under the constraint of necessity she cannot act otherwise than as reason, who steers her helm, teaches her to act.
+ - A painter was asked why, since he made such beautiful figures, which were but dead things, his children were so ugly; to which the painter replied that he made his pictures by day, and his children by night.
+ - Oh! how foul a thing, that we should see the tongue of one animal in the guts of another.
+ - The knowledge of the past times and of the places of the earth is both an ornament and nutriment to the human mind.
+ - The painter who draws by practise and judgment of the eye without the use of reason is like the mirror which reproduces within itself all the objects which are set opposite to it without knowledge of the same.
+ - The bones of the Dead will be seen to govern the fortunes of him who moves them.
+ - Sculptured figures which appear in motion, will, in their standing position, actually look as if they were falling forward.
+ - Nature is constrained by the cause of her laws which dwell inborn in her. Variant: Nature is constrained by the order of her own law which lives and works within her.
+ - Men and words are ready made, and you, O Painter, if you do not know how to make your figures move, are like an orator who knows not how to use his words.
+ - Truth was always but the daughter of time.
+ - O Time with your teethy years! You swallow up all things little by little in a slow-motion, wrinkling process of dying.
+ - Just as food eaten without appetite is a tedious nourishment, so does study without zeal damage the memory by not assimilating what it absorbs.
+ - Of the horse I will say nothing because I know the times.
+ - Many will think they may reasonably blame me by alleging that my proofs are opposed to the authority of certain men held in the highest reverence by their inexperienced judgments; not considering that my works are the issue of pure and simple experience.
+ - The human being, creature of eyes, needs the image.
+ - A natural action is accomplished in the briefest manner.
+ - Drawing is based upon perspective, which is nothing else than a thorough knowledge of the function of the eye.
+ - The study of what is excellent is food for the mind and body.
+ - The spirit desires to remain with its body, because, without the organic instruments of that body, it can neither act, nor feel anything.
+ - Every action done by nature is done in the shortest way.
+ - Tears come from the heart and not from the brain.
+ - The lover is moved by the beloved object as the senses are by sensual objects; and they unite and become one and the same thing. The work is the first thing born of this union; if the thing loved is base the lover becomes base.
+ - The painter strives and competes with nature.
+ - Perspective is a most subtle discovery in mathematical studies, for by means of lines it causes to appear distant that which is near, and large that which is small.
+ - All the elements will be seen mixed together in a great whirling mass, now borne towards the centre of the world, now towards the sky; and now furiously rushing from the South towards the frozen North, and sometimes from the East towards the West, and then again from this hemisphere to the other.
+ - When that which loves is united to the thing beloved it can rest there; when the burden is laid down it finds rest there. There will be eternal fame also for the inhabitants of that town, constructed and enlarged by him.
+ - Love shows itself more in adversitythan in prosperity; as light does, which shines most where the place isdarkest.
+ - Of several bodies all equally larger and distant, that most brightly illuminated will appear to the eye nearest and largest.
+ - When you are painting you should take a flat mirror and often look at your work within it, and it will then be seen in reverse, and will appear to be by the hand of some other master, and you will be better able to judge of its faults than in any other way.
+ - Whatever you do in life, if you want to be creative and intelligent, and develop your brain, you must do everything with the awareness that everything, in some way, connects to everything else.
+ - The limiting surface of one thing is the beginning of another.
+ - The divisions of Perspective are 3, as used in drawing; of these, the first includes the diminution in size of opaque objects; the second treats of the diminution and loss of outline in such opaque objects; the third, of the diminution and loss of colour at long distances.
+ - The soul can never be corrupted with the corruption of the body, but it is like the wind which causes the sound of the organ, and which ceases to produce a good effect when a pipe is spoilt.
+ - Abbreviators do harm to knowledge and to love.
+ - Nothing is more apt to deceive us than our own judgment of our work. We derive more benefit from having our faults pointed out by our enemies than from hearing the opinions of friends.
+ - The good painter must paint two things: a person and the essence of his soul.
+ - He who possesses most must be most afraid of loss.
+ - First study the science, and then practice the art which is born of that science.
+ - My works are the issue of simple and plain experience which is the true mistress.
+ - He who despises painting has no love for the philosophy in nature.
+ - To speak ill of a good person is not truly good, all in all.
+ - A man of supreme folly: his life flies away while he is merely hoping to enjoy it.
+ - A single and distinct luminous body causes stronger relief in the objects than a diffused light; as may be seen by comparing one side of a landscape illuminated by the sun, and one overshadowed by clouds, and illuminated only by the diffused light of the atmosphere.
+ - Men born in hot countries love the night because it refreshes them and have a horror of light because it burns them.
+ - Many will be busied in taking away from a thing, which will grow in proportion as it is diminished.
+ - The variety of colour in objects cannot be discerned at a great distance, excepting in those parts which are directly lighted up by the solar rays.
+ - It reflects no great honour on a painter to be able to execute one thing well.
+ - Fire destroys falsehood, that is sophistry, and restores truth, driving out darkness.
+ - If on your own or by the criticism of others you discover error in your work, correct it then and there; otherwise in exposing your work to the public, you will expose your error also.
+ - Truth is so excellent, that if it praises but small things they become noble.
+ - Your brain is much better than you think; just use it!
+ - Given the cause nature produces the effect in the briefest manner that it can employ.
+
+461 quotes

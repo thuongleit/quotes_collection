@@ -1,0 +1,37 @@
+ - Time spent in reconnaissance is seldom wasted.
+ - We kill all the caterpillars, then complain there are no butterflies.
+ - The only true test of friendship is the time your friend spends on you.
+ - Never cry over anything that can’t cry over you.
+ - What’s the Future? It’s a blank sheet of paper, and we draw lines on it, but sometimes our hand is held, and the lines we draw aren’t the lines we wanted.
+ - There are some things that once you’ve lost, you never get back. Innocence is one. Love is another. I guess childhood is a third.
+ - Too much thinking, not enough feeling.
+ - Some people wake up drowsy. Some people wake up energized. I wake up dead.
+ - Blame it on Peer Pressure.
+ - I live in the light, But carry my dark with me.
+ - Life’s harder, the deeper you feel things.
+ - Live as though you’ll die tomorrow, but farm as though you’ll live forever.
+ - At that age you think boys have as much personality as coat hangers and, you don’t notice their looks. Then you grow up.
+ - Well, I’ve learnt this much: it doesn’t matter what it costs, it’s worth paying the price. You can’t live cheap and you can’t live for nothing. Pay the price and be proud you’ve paid it, that’s what I reckon.
+ - Oh, Homer! You don’t have to play dumb anymore! You’re not at school now.
+ - I can’t describe the feeling when I go down – it’s down down down and there’s never going to be an up again. And whatever was good isn’t good any more; white becomes grey, music becomes dictionaries, honey becomes beer and the sky a curdled lemon. There’s no caramel anymore.
+ - Silence, always my fortress, sometimes my prison.
+ - It’s good to keep changing your mind. It shows you’re thinking. I’ll only stop changing my mind when I’m dead. And maybe not even then.
+ - I knew I was breaking about a dozen laws but I guess I had different attitudes to stuff like that since the war. Laws were for the stupid the immature the irresponsible. The inflexible and the narrow-minded. The prejudiced. The obsessive. The lazy and careless and selfish and spoilt. The violent.
+ - Don’t treat people as you think they are, treat them as you think they are capable of becoming.
+ - I didn’t confess how wrecked I was. Let them keep thinking I was Superwoman if they wanted. I knew the truth.
+ - We believed we were safe. That was the big fantasy.
+ - I’m a person of the mountains and the open paddocks and the big empty sky, that’s me, and I knew if I spent too long away from all that I’d die; I don’t know what of, I just knew I’d die.
+ - When you’re scared you can either give in to the panic and let your mind fall apart, or you can take charge of your mind and think brave.
+ - Let no stranger intrude here, no invader trespass. This was ours, and this we would defend.
+ - There’s no room for anything else. You forget that you’re tired or cold or hungry. You forget that banged-up knee and your aching tooth. You forget the past, and you forget that there’s such a thing as a future.
+ - My survival was up to me. I had nothing and I had no one. What I did have, I told myself, was my mind, my imagination, my memory, my feelings, my spirit. These were important and powerful things.
+ - Sometimes I got worried that my memory was falling apart.
+ - The world was quickly forgetting us. And there was little news to report.
+ - If you added up all the really significant episodes in your life they’d probably come to less than sixty minutes.
+ - Life’s harder, the deeper you feel things, was all I could think as I put the books away. Feelings, who needs them? Sometimes they’re like a gift, when you feel love or happiness. Sometimes they’re a curse.
+ - Sometimes I think I’d rather be frightened than bored. At least when you’re frightened you know you’re alive.
+ - Nothing reaches inside you and grabs you by the guts the way fear does.
+ - We’d thought that we were among the first humans to invade this basin, but humans had invaded everything, everywhere. They didn’t have to walk into a place to invade it.
+ - The dreams now were simply of staying alive.
+
+35 quotes

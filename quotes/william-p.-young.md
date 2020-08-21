@@ -1,0 +1,88 @@
+ - Submission is not about authority and it is not obedience; it is all about relationships of love and respect.
+ - Transformation without work and pain, without suffering, without a sense of loss is just an illusion of true change.
+ - If anything matters, then everything matters.
+ - Paradigms power perceptions, perceptions power emotions.
+ - Don’t ever discount the wonder of your tears. They can be healing waters and a stream of joy. Sometimes they are the best words the heart can speak.
+ - Forgiveness is not about forgetting. It is about letting go of another person’s throat.
+ - Love always leaves a significant mark.
+ - Living unloved is like clipping a bird’s wings and removing its ability to fly.
+ - All I want from you is to trust me with what little you can, and grow in loving people around you with the same love I share with you. It’s not your job to change them, or to convince them. You are free to love without an agenda.
+ - True love never forces.
+ - You are free to love without an agenda.
+ - Did I hear God call me an idiot?
+ - Sometimes honesty can be incredibly messy.
+ - Pain has a way of clipping our wings and keeping us from being able to fly.
+ - You have to take the time to prepare the soil if you want to embrace the seed.
+ - Emotions are the colors of the soul.
+ - If a rainbow makes a sound, or a flower as it grows, that was the sound of her laughter.
+ - The God of Evangelical Christianity is a Monster.
+ - Forgiveness in no way requires that you trust the one you forgive.
+ - Relationships are never about power, and one way to avoid the will to power is to choose to limit oneself- to serve.
+ - Jesus was always challenging the dogma of religion. So, you know, it’s not like I’m out there by myself.
+ - The ‘will to power and independence’ has become so ubiquitous that it is now considered normal.
+ - Mackenzie, you cannot produce trust, just as you cannot ‘do’ humility. It either is or is not. Trust is the fruit of a relationship in which you know you are loved. Because you do not know that I love you, you cannot trust me.
+ - I don’t want my kids growing up with the image of God that I had – Plato’s white grandfatherly god – because that god is not a very good father. When it comes down to it, you can’t trust him with your kids.
+ - My dad was a preacher. My relationship, for example, with my father – very difficult, and very painful, and it took me 50 years to wipe the face of my father off the face of God.
+ - But, enough of that for now. Let’s get lost again in the starry night.
+ - Each relationship between two persons is absolutely unique. That is why you cannot love two people the same. It simply is not possible. You love each person differently because of who they are and the uniqueness that they draw out of you.
+ - Sin is its own punishment, devouring you from the inside.
+ - The intricacy and the inherent beautiful fragility of the human soul is such that it is uniquely damaged and only God knows how to heal it, and it’s going to take time.
+ - Why do children love to hide and seek? Ask any person who has a passion to explore and discover and create. The choice to hide so many wonders from you is an act of love that is a gift inside the process of life.
+ - You don’t play a game or color a picture with a child to show your superiority. Rather, you choose to limit yourself so as to facilitate and honor that relationship.
+ - Grace doesn’t depend on suffering to exist, but where there is suffering you will find grace in many facets and colors.
+ - And when you learn, over the course of your life, that it’s not about pleasing God, it’s about learning how to trust God. That’s a huge watershed, because trust is a whole different ballgame than appeasement or pleasing.
+ - I don’t need to punish people for sin. Sin is its own punishment, devouring you from the inside. It’s not my purpose to punish it; it’s my joy to cure it.
+ - Perhaps there is supranatural: reason beyond the normal definitions of fact or data-based logic; something that only makes sense if you can see a bigger picture of reality. Maybe that is where faith fits in.
+ - I had a very angry father and was disconnected from my family.
+ - He was sick of God and God’s religion, sick of all the little religious social clubs that didn’t seem to make any real difference or affect any real changes.
+ - It is so easy to get sucked into the if-only game, and playing it is a short and slippery slide into despair.
+ - Love is not the limitation; love is the flying.
+ - I wrote a story for my kids. It’s fiction. It’s not systematic theology. It’s not a new book of the Bible. It’s flawed, I wrote it. All of that goes into the mix, but I love the controversy. It elevates the conversation.
+ - Jesus is not the ’founder of Christianity.
+ - Even though you can’t finally grasp me, guess what? I still want to be known.
+ - The soul is healed by being with children. – Fyodor Dostoyevsky.
+ - There is always risk in relationships, but bottom line? The world has no meaning apart from relationships. Some are just messier than others, some are seasonal, others are difficult, and a few are easy, but every one of them is important.
+ - I grew up fundamentalist, evangelical, Protestant. Those are my roots, and they are good roots. But it means the Pharisees are my people. I grew up with an image of God that was not helpful – largely the face of my father expanded.
+ - I am especially fond of you.
+ - I don’t just want a piece of you and a piece of your life. Even if you were able, which you are not, to give me the biggest piece, that is not what I want. I want all of you and all of every part of you and your day.
+ - It is not the nature of love to force a relationship, but it is the nature of love to open the way.
+ - So many believe that it is love that grows, but it is the knowing that grows and love simply expands to contain it.
+ - Part of my journey is to say that the soul of the human being must be a massively intricate, wonderful creation that God has a respect for in ways that we do not and that leaves a huge amount of space to go explore.
+ - Image and appearance tell you little. The inside is bigger than the outside when you have the eyes to see.
+ - Thank goodness there are women in our lives – that’s all I can say. We get saved by the women in our lives.
+ - I really do believe that God is love, one of deep affection and grace and forgiveness and inspiration.
+ - I’m not an actual author but an accidental one.
+ - It is remarkable how a seemingly insignificant action or event can change entire lives.
+ - Anger is the right response to something that is so wrong. But don’t let the anger and pain and loss you feel prevent you from forgiving him and removing your hands from around his neck.
+ - Life takes a bit of time and a lot of relationship.
+ - It is my desire and intent to trust the multi-layered good purposes of God than in what humans fabricate out of their need and experience. I specifically ask not to know these purposes so that I might remain a child in their unfolding.
+ - I give you an ability to respond and your response is to be free to love and serve in every situation, and therefore each moment is different and unique and wonderful.
+ - Authority, as you usually think of it, is merely the excuse the strong use to make others conform to what they want.
+ - You cannot produce trust just like you cannot ‘do’ humility. It either is or is not.
+ - The arrival of the unforeseen reveals the depths of one’s heart.
+ - The world in many ways would be a much calmer and gentler place if women ruled. There would have been fewer children sacrificed to the gods of greed and power.
+ - You cannot heal yourself. You cannot heal anybody else. We’re designed to do this in community because we were created inside community for community by community.
+ - Look at us human beings: it’s so much easier to be right than to love.
+ - I was raised in a tribal situation, among cannibal people.
+ - I suppose that since most of our hurts come through relationships so will our healing, and I know that grace rarely makes sense for those looking in from the outside.
+ - It is impossible for you to take power over the future because it isn’t even real.
+ - It wasn’t long ago I was cleaning toilets and now I have protestors. How cool is this?
+ - Disconnect your identity from what you produce, and that’s a hard thing for us because we think of our significance, worth and value based on what we do instead of who we are.
+ - I have moments that aren’t too bad, but there’s always something I’m struggling with, or feeling guilty about. I just figured I needed to try harder, but I find it difficult to sustain that motivation.
+ - I believe that, that Christ became sin for us.
+ - God’s voice had been reduced to paper, and even that paper had to be moderated and deciphered by the proper authorities and intellect.
+ - I’m an accidental writer.
+ - I often find that getting head issues out of the way first makes the heart stuff easier to work on later.
+ - Today’s minor irritations may become tomorrow’s treasured memories. We often don’t know what we are missing, until it’s missing.
+ - Nothing in life is ritual.
+ - Let me say for now that we knew once the Creation was broken, true fathering would be much more lacking than mothering. Don’t misunderstand me, both are needed- but an emphasis on fathering is necessary because of the enormity of its absence.
+ - This life is only the anteroom of a greater reality to come.
+ - The ability to choose is at the essential core of our grandeur. Even evil exists because God respects our ability to choose.
+ - You are the root, and only God knows that the flower will be.
+ - Because you continue to inhabit and believe your metaphors, you cannot see what is true.
+ - The enemy of a writer is not controversy but obscurity.
+ - Responsibilites and expectations are the basis of guilt and shame and judgement, and they provide the essential framework that promotes performance as the basis for identity and value.
+ - I think that most creative fiction involves the transformational process, whether it is Dickens or Dostoyevsky and the writer in some sense is expressing their own journey through such a wilderness.
+ - Truth will set you free. And Truth has a name...
+
+86 quotes

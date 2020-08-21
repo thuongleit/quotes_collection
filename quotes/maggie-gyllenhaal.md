@@ -1,0 +1,52 @@
+ - I studied English literature; I took 2 independent religion classes, but I wasn’t a religion major really.
+ - If I’ve learned anything as a mom with a daughter who’s three, I’ve learned that you cannot judge the way another person is raising their kid. Everybody is just doing the best they can. It’s hard to be a mom.
+ - I didn’t think at all about my body until after I stopped nursing. When I was nursing, my body was my daughter’s, I didn’t even think about it. Then I finished nursing, and I was kind of like “Oh, huh, wow, my body’s so different.”
+ - I have a couple of girlfriends who are like, healing. We take care of each other. They know when I need to be taken care of.
+ - I’m still trying to figure out what the right line is between myself and the people I play. Sometimes I go too far one way or too far the other.
+ - I don’t even notice the advertisement that comes up on my screen. I’m a smart person and it’s just something I’ve just blacked out because it doesn’t seem right to me.
+ - I’m pretty good at indulging myself. I’m about to go travel for a week. I like to get massaged, go into steam rooms. I take care of myself.
+ - You’re invited to tons of parties, and you’ll wear these shoes and that dress, and it can be enticing, but I think it also sucks you dry. If you do it a little, sure, it’s fun, but too much and you start to lose your footing.
+ - I’m playing somebody who is a recovering drug addict who got out of prison. It takes place in 2 weeks-the 1st 2 weeks I’m out of prison.
+ - I am looking for movies that are actually about something and that are questioning something. Movies that are provocative in some way and I am also looking for roles that I think will force me to grow or learn something about myself or the world in order to play them well.
+ - I think most human beings, even if you’re in a situation that’s constricting or complicated or hard, they try to survive.
+ - I liked that idea. Someone who’s trying to perform herself and not succeeding.
+ - I made a movie where I played a girl that just got out of prison and we shot it very very quickly but very intensely-that took me a long time to get over.
+ - Who can I trust? You have to invest in somebody and chances are you’re probably going to invest in somebody who’s going to deceive you. I’ve been conned a couple of times, but now I’m a little more savvy.
+ - Sometimes things go really well, and sometimes they don’t, and it’s not ultimately the most important thing.
+ - I want roles that challenge people to question where they are in life.
+ - I really want my kids to feel, is that they can be themselves in the world.
+ - I feel there is no shortage of real interesting women’s roles. But I found them and did all of them just now.
+ - Every actor has to find space where they are free, in order to do good work.
+ - You’re not going to do good work if you’re not choosing something because it inspires you.
+ - I feel so gratified about having finished college. I learned how to articulate myself. It gave me confidence more than anything. And also the ability to analyze the text.
+ - You have a right to your opinion about the work that you’re doing. An artist is as equally important as the director. If you believe that, you can work in any circumstances.
+ - The real test will be having a family; when I have a family you have to come home, you have to eat dinner with your kids.
+ - These past couple of years have been about learning to not sabotage myself in a subtler way – for instance, even just by putting moisturiser on when I get out of the shower. Learning to honour myself and believing that I’m worth taking care of.
+ - Having an education is invaluable.
+ - People write things in newspapers about me that aren’t true – or that are true. They take pictures of my kids on the way to school. I get a little bit inured to it in a way that I think most people probably aren’t.
+ - What I think is new is the wealth of roles for actual women in television and in film. That’s what I think is revolutionary and evolutionary.
+ - There is a need, especially right now in America, to be a bit provocative.
+ - We have our phones right by our beds, right next to us in our most exposed, vulnerable moments. And yet the government could have been collecting information from our phones at any moment. I think that basically as humans, we feel that’s a violation.
+ - A big part of being an actress specifically is feeling entitled to your artistic opinion, feeling that it means something, and being able to stand by it.
+ - I’m 37 and I was told recently I was too old to play the lover of a man who was 55. It was astonishing to me. It made me feel bad, and then it made feel angry, and then it made me laugh.
+ - I don’t think there are that many parts I could say unequivocally “I would not play that,” but there’s lots of parts I read and I think, “I don’t really want to do that. I don’t really think that’s how women act.”
+ - I want to have some effect on the way the world works in whatever way I can, and I also want to have the power to help get the movies that I think are important made.
+ - A play is much easier to maintain your personal life with because if you’re rehearsing, you’re working like from 11 to 6 or 11 to 5 and you get to have your whole morning and your whole evening. When you’re doing the play, you have all day.
+ - I would like to do a big movie that many, many people see but I just know I would be miserable if it didn’t have something to it.
+ - Honestly, I’m always aware of the political implications of the movies that I make.
+ - I was thinking about how people were upset about the information that came out from Snowden about the NSA – many people were upset, including myself. But I was kind of surprised by how little we did about it – how little fighting we did.
+ - I find myself more and more interested only in roles which move the world forward.
+ - A lot of actresses are doing incredible work right now, playing real women, complicated women. I don’t feel despairing at all. And I’m more looking with hope for something fascinating.
+ - There was something to me that was really compelling about that woman, already knowing she couldn’t get pregnant. When I made that movie I was maybe 24, and to be 24 and already know you can’t get pregnant, that was really interesting to me.
+ - I do seem to have a bit of a predilection for movies that say something transgressive.
+ - Some people would say you need what you need to work, but I need very little to work, because I learned how to make movies on tiny movies. It’s all kind of easy for me.
+ - If you’re going to play a hooker in a movie, the movie has to have the perspective, of course, that it isn’t such a great thing. Probably the only way to really play a hooker well is to believe you’re doing something that’s good. But at the same time, the movie can’t have that point of view.
+ - To get people emotionally involved in something intellectual and political is important.
+ - Acting is really important to me, so I think it would be really hard for me to do something I didn’t believe in.
+ - Being a mother has absolutely forced me. You have to write things down and have systems for all of it. And then you set up systems and you realize they don’t work.
+ - I would like to have a home in the country that I could go to. First in this country and the other in the Mediterranean.
+ - Now, there are roles which are capturing a vibrant moment in an older woman’s life. There was a time when those interesting roles stopped at 28. A few years ago we would have been finished by our age.
+ - Ten years ago, it was really difficult for a young actress to walk onto a set and disagree with the director and having that be OK and have a conversation about it and everyone be cool with it.
+ - I don’t see that many movies lately that are actually about something, that are trying to challenge something about the way that people interact.
+
+50 quotes

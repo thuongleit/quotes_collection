@@ -1,0 +1,38 @@
+ - What is it about conformity itself that causes us all to require it of our neighbors and of our artists and then, with consummate fickleness, to forget those who fall into line and eternally celebrate those who do not?
+ - The popular eye is not untrained; it is only wrongly trained – trained by inferior and insincere visual representations.
+ - Every great historic change has been based on nonconformity, has been bought either with the blood or with the reputation of nonconformists.
+ - I became interested in photography when I found my own sketching was inadequate.
+ - Each artist comes to the painting or sculpture because there he can be told that he, the individual, transcends all classes and flouts all predictions. In the work of art, he finds his uniqueness confirmed.
+ - Form is the shape of content...
+ - All art is based on non-conformity.
+ - An ametuer is an artist who supports himself with outside jobs which enable him to paint. A professional is someone whose wife works to enable him to paint.
+ - It is the mission of art to remind man from time to time that he is human, and the time is ripe, just now, today, for such a reminder.
+ - Only an individual can imagine, invent, or create. The whole audience of art is an audience of individuals.
+ - Art almost always has its ingredient of impudence, its flouting of established authority, so that it may substitute its own authority and its own enlightenment.
+ - Paint what you are, paint what you believe, paint what you feel.
+ - If you’re going to be an artist, all life is your subject. And all your experience is part of your art. A youngster told me recently that he was going to give himself a year to see if he has talent. A year! It takes a lifetime to see if you have it. Painting is total engagement.
+ - Of course I realize that photography is not the technical facility as much as it is the eye, and this decision that one makes for the moment at which you are going to snap, you know.
+ - It is an intimately communicative affair between the painter and his painting, a conversation back and forth, the painting telling the painter even as it receives its shape and form.
+ - I believe that if it were left to artists to choose their own labels, most would choose none.
+ - The time when I had desire to go to the United States I didn’t have a penny. It was in the middle of the depression, you know. I couldn’t get as far as Hoboken at that time.
+ - It may be a point of great pride to have a Van Gogh on the living room wall, but the prospects of having Van Gogh himself in the living room would put a great many devoted art lovers to rout.
+ - If one has set for himself the position that his painting shall not misconstrue his personal mode of thinking, then he must be rather alert to just what he does think.
+ - Now, my knowledge of photography was terribly limited.
+ - When you talk about war on poverty it doesn’t mean very much; but if you can show to some degree this sort of thing then you can show a great deal more of how people are living and a very great percentage of our people today.
+ - Being an artist is not only what you do, but how you live your life.
+ - I feel, having the choices I had, I felt I had more control over my own medium than I did over photography.
+ - How do you paint yellow wheat against a yellow sky? You paint it jet black.
+ - Content may by trivial. But I do not think that any person may pronounce either upon the weight or upon the triviality of an idea before its execution.
+ - To abstract is to draw out the essence of a matter. To abstract in art is to separate certain fundamentals from irrelevant material which surrounds them.
+ - To abstract is to draw out the essence of a matter.
+ - The artist is likely to be looked upon with some uneasiness by the more conservative members of society.
+ - I was primarily interested in people, and people in action, so that I did nothing photographically in the sense of doing buildings for their own sake or a still life or anything like that.
+ - I was brought in, not in the photographic department at all, I was brought in on a thing called Special Skills. I was to do posters, pamphlets, murals, propaganda in general, you know.
+ - The moving toward one’s inner self is a long pilgrimage for a painter. It offers many temporary successes and high points, but impels him on toward the more adequate image.
+ - The values that reside in art are anarchic, they are every man’s loves and hates and his momentary divine revelation.
+ - The natural reaction of the artist will be strongly towards bringing man back into focus as the center of importance.
+ - Now, when I came on to Washington to begin my job, I was so interested in photography at that time that I really would have preferred to work with Stryker than with my department, which was more artistic if you wish.
+ - I’ve been asked often what is the difference between an amateur and a professional artist, and I will tell you. An amateur artist is one who works all week at something else so he can paint on Saturday and Sunday. A professional artist is one whose wife works so he can paint all the time.
+ - It is not the how of painting but the why. To imitate a style would be a little like teaching a tone of voice or a personality.
+
+36 quotes

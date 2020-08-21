@@ -1,0 +1,23 @@
+ - Dance like nobody’s watching...
+ - You’ve got to dance like nobody’s watching, and love like it’s never going to hurt.
+ - Love travels the miles upon the wings of Angels.
+ - Standing knee deep in a river and dying of thirst.
+ - I would step into a place of being lined up with a sense of purpose and my inner compass, and everything was going in the same direction. Then I’d get lazy and get off the track. And then things would start to fall apart, and I’d back up and get it together again.
+ - So all of these things are going on that make you wake up and realize you are a mortal person. You can choose to cruise through your life, but if you do, you’re going to open your eyes at some point, and it’s gone.
+ - An eye for an eye til everyone is blind.
+ - I want to savor the aging process. As you get older, you trade your innocence for wisdom and the wisdom is your reward.
+ - A gourmet meal without a glass of wine just seems tragic to me somehow.
+ - You know, your speaking voice comes back, but your singing voice you use in a different way.
+ - I don’t live in as much fear as I used to. I’m not afraid of the music business. Life is too damn short. I know what’s important, and the tasks are very clear.
+ - So I really did stop and change what I saw I was about, and really try to put that principle into play as the center of everything – my friendships, my marriage, my career, my family, my way of being in the world. And that changed everything for me.
+ - That’s the great paradox of living on this earth, that in the midst of great pain you can have great joy as well. If we didn’t have those things we’d just be numb.
+ - If you say that you’re all about a certain something, and look back and see that the choices that you’ve made don’t reflect that, then there’s something for you to look at.
+ - And in fact, I think the more we start to worship perfection the more soul leaks out of art.
+ - Tonight I feel like all of creation is asking us to dance.
+ - I can’t even say I’ve begun yet, but I’m trying on the idea that there is a book in my future.
+ - Or if I have my head in the results, I can’t work with what I have, because I’m trying to force something to happen. And with singing, any time you force it, you tighten up. If you tighten up, you’re screwed, nothing will work.
+ - I guess the biggest thing is that I committed to a spiritual center before I do anything else. And I put some daily things in my life into practice and I maintain that, to make sure that I don’t drop the ball.
+ - You have to write badly to write at all. If it’s crappy, I will rewrite it later. But it will be mine. You can hear the resonance of an artist who goes into herself.
+ - I’ve come to understand my role. On some level, I provide the context for them to shine. I also know my role is the steward of the songs, and the center point, the artist that the stuff all revolves around. But I really try to honor that.
+
+21 quotes

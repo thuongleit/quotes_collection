@@ -1,0 +1,25 @@
+ - Good code is its own best documentation.
+ - The trouble with quick and dirty is that dirty remains long after quick has been forgotten.
+ - Good code is its own best documentation. As you’re about to add a comment, ask yourself, “How can I improve the code so that this comment isn’t needed?” Improve the code and then document it to make it even clearer.
+ - The job of the average manager requires a shift in focus every few minutes. The job of the average software developer requires that the developer not shift focus more often than every few hours.
+ - It’s better to wait for a productive programmer to become available than it is to wait for the first available programmer to become productive.
+ - In software, the chain isn’t as strong as its weakest link; it’s as weak as all the weak links multiplied together.
+ - The primary purpose of software estimation is not to predict a project’s outcome; it is to determine whether a project’s targets are realistic enough to allow the project to be controlled to meet them.
+ - A brute force solution that works is better than an elegant solution that doesn’t work.
+ - Software projects fail for one of two general reasons: the project team lacks the knowledge to conduct a software project successfully, or the project team lacks the resolve to conduct a project effectively.
+ - It’s OK to figure out murder mysteries, but you shouldn’t need to figure out code. You should be able to read it.
+ - Heuristic is an algorithm in a clown suit. It’s less predictable, it’s more fun, and it comes without a 30-day, money-back guarantee.
+ - A blanket attempt to avoid mistakes is the biggest mistake of all.
+ - Engineering is the application of scientific principles toward practical ends. If the engineering isn’t practical, it’s bad engineering.
+ - It’s hard enough to find an error in your code when you’re looking for it; it’s even harder when you’ve assumed your code is error-free.
+ - Even when you have skilled, motivated, hard-working people, the wrong team structure can undercut their efforts instead of catapulting them to success. A poor team structure can increase development time, reduce quality, damage morale, increase turnover, and ultimately lead to project cancellation.
+ - Good visual layout shows the logical structure of a program.
+ - Motivation is undoubtedly the single greatest influence on how well people perform. Most productivity studies have found that motivation has a stronger influence on productivity than any other factor.
+ - A typical software project can present more opportunities to learn from mistakes than some people get in a lifetime.
+ - In my experience, you either have encapsulation and abstraction or you have neither. There is no middle ground.
+ - Trying to apply formal methods to all software projects is just as bad as trying to apply code-and-fix development to all projects.
+ - The default movement on a software project should be in the direction of taking elements of the software away to make it simpler rather than adding elements to make it more complex.
+ - There are no secrets on an successful software project. Both good and bad news must be able to move up and down the ptoject hierarchy without restriction.
+ - 95% on content and the computer language remains the same.
+
+23 quotes

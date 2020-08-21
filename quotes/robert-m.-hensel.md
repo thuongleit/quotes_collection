@@ -1,0 +1,55 @@
+ - There is no greater disability in society, than the inability to see a person as more.
+ - The mind is like a sponge, soaking up endless drops of knowledge.
+ - Know me for my abilities, not my disability.
+ - I’m chasing my dreams straight to the top – into a sky that has no limits.
+ - To be, I must endure the pain.
+ - I’m just a man on a mission, to prove my disability hasn’t won.
+ - I choose not to place “DIS,” in my ability.
+ - I don’t have a dis-ability, I have a different-ability.
+ - Whenever we begin to feel as if we can no longer go on, HOPE whispers in our ear to remind us that we are strong.
+ - Life is a challenge, and I’m staying in the game to win.
+ - A positive attitude, can turn a storm into a sprinkle.
+ - To find equality for mankind, we must first remove the barriers that have divided us for so long.
+ - When the heart speaks, love listens.
+ - Every failure is just another step closer to a win. Never stop trying.
+ - No disability or dictionary out there, is capable of clearly defining who we are as a person.
+ - Limitations only go so far.
+ - Never take more out of life, than you intend to give back.
+ - In the dark, equality for all of mankind couldn’t seem brighter.
+ - Friendship reaches well above all currency.
+ - Hands of time move us forward, never back. Only memories frozen in mind, can we re-enact.
+ - Let your courage and determination be the vehicle that drives you, and takes you anywhere in this life you wanna go.
+ - A brush of kindness can paint a smile on a face.
+ - Dare to walk the path that others have feared to travel, and a leader shall then be born.
+ - Take a good hard look in the mirror, and remember yourself as you are today, cause as time changes, so does the scenery.
+ - Success is measured simply by the amount of effort we put forth, in conquering our objectives.
+ - As a disabled man, let my life be a reflection of the endless amount of ability that exists in each and everyone of us.
+ - He who dares to speak with a razor sharp tongue, shall in end, bare the final scar.
+ - We, the one’s who are challenged, need to be heard. To be seen not as a disability, but as a person who has, and will continue to bloom. To be seen not only as a handicap, but as a well intact human being.
+ - Being born with a disability, can sometimes be a struggle, but it is the ability to overcome such a challenge, that makes it so worth the fight. NEVER GIVE UP!!!
+ - Reality bites, and I’ve got the teeth marks to prove it.
+ - Structure builds minds into great Monuments.
+ - It doesn’t matter which side of the tracks your from, the train still rolls the same.
+ - My disability has opened my eyes to see my true abilities.
+ - I have a Disability yes that’s true, but all that really means is I may have to take a slightly different path than you.
+ - A single man of one, only pebbles can be moved, but many men together, stands no mountain that can’t move.
+ - If my body were a tree trunk, the rings would surely reveal the time it has had to mature.
+ - Placing one foot in front of the other, I’ve climbed to higher lengths. Reaching beyond my own limitations, to show my inner strength. No obstacle too hard, for this warrior to overcome. I’m just a man on a mission, to prove my disability hasn’t won.
+ - Build your world around me, and promise to never let me go, and if ever their comes a time it may seem crowded, may we expand so love may grow.
+ - Tears are the body’s raindrops of emotion.
+ - I can not, and will not judge, by what my eyes may see. For the skin on a man shall not reveal his true identity.
+ - A poem is but a thought, a mere memory caught at play. From hand onto paper, bleeding thoughts emerge.
+ - Poetry, is the insulation that lies between the inner walls of the mind.
+ - Failure leaves open a door for us to try, and try again.
+ - Life isn’t all about what you don’t have, but yet, what you do with what you have been given.
+ - Have courage enough to accept what you can not change, but yet courageous enough to stand up and fight for what you can.
+ - There may be troubled waters along the many paths my life shall take, but only I as a man, may keep my vessel afloat, and guide myself straight.
+ - Now I look beyond what I can’t do and focus on what I CAN.
+ - In order for us to reach success, we must first find, the ladder.
+ - Where ever fear exists, courage can be found.
+ - No one has ever died, from an overexposure to education.
+ - A man is not wealthy simply by the contents of his pockets alone, but instead by the richness of his heart.
+ - One is more desirable when loved, not feared.
+ - We are the true architects of our lives. Only we as individuals and individuals alone, carry within us, the inner ability to make any changes to it’s blue prints.
+
+53 quotes

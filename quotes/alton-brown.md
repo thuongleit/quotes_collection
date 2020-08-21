@@ -1,0 +1,40 @@
+ - Good service can save a bad meal, but there is no level of food that can save bad service.
+ - Your patience will be rewarded.
+ - Remember, America: organization will set you free.
+ - The way to any woman’s heart, be she witch or Wonderwoman, princess or Pocahontas, is through her stomach.
+ - The only unitasker allowed in my kitchen is a fire extinguisher.
+ - The kitchen’s a laboratory, and everything that happens there has to do with science. It’s biology, chemistry, physics. Yes, there’s history. Yes, there’s artistry. Yes, to all of that. But what happened there, what actually happens to the food is all science.
+ - Now my wife may think she’s locked me out of the kitchen but MacGyver’s not my patron saint for nothing.
+ - A home cook who relies too much on a recipe is sort of like a pilot who reads the plane’s instruction manual while flying.
+ - Cooking is an observation-based process that you can’t do if you’re so completely focused on a recipe.
+ - I looked for a very long time, knowing that it had to happen, but it took me a long time to find someone with the same background and whatnot and I finally found him.
+ - There are no bad foods, only bad food habits.
+ - I only really fake it anymore with sommeliers who are being really snotty to me and I don’t want to take their grief and so I try to do something to kind of throw them off or put them on the defensive, even if I don’t know what I’m talking about.
+ - Slicing a warm slab of bacon is a lot like giving a ferret a shave. No matter how careful you are, somebody’s going to get hurt.
+ - A meringue is really nothing but a foam. And what is a foam after all, but a big collection of bubbles? And what’s a bubble? It’s basically a very flimsy little latticework of proteins draped with water. We add sugar to this structure, which strengthens it. But things can, and do, go wrong.
+ - I think a lot of food shows, especially when we started ‘Good Eats’ back in the late ’90s, they were still really about food. ‘Good Eats’ isn’t about food, it’s about entertainment. If, however, we can virally infect you with knowledge or interest, then all the better.
+ - Racism. It’s ugly. Even in tubers.
+ - A pie dough comes together exactly like a biscuit only there is very, very little liquid and no leavening involved. Other than that, the same rules apply. My best advice: handle the dough as little as possible.
+ - You know most of the food that Americans hold so dear – things like hamburgers and hot dogs – were road food, but even before they were road food, they were peasant food.
+ - Laughing brains are more absorbent.
+ - I know people that could serve me canned tuna and saltine crackers and have me feel more at home at their table than some people who can cook circles around me. The more you try to impress people, generally the less you do.
+ - I approach cooking from a science angle because I need to understand how things work. If I understand the egg, I can scramble it better. It’s a simple as that.
+ - Wine is like women. It tempts you; it comforts you; it confuses you and can even turn on you when you least expect it. It can be your friend one day and your enemy the next.
+ - So on one hand, honey is an amazingly sophisticated and efficient food source. On the other hand, it’s bee backwash.
+ - I have nothing but sympathy for the people who are forced to work with me. I’m better now at picking out those that want to play that game with me, and those that don’t.
+ - We are fat and sick and dying because we have handed a basic, fundamental and intimate function of life over to corporations. We choose to value our nourishment so little that we entrust it to strangers. This is insanity. Feed yourselves. Feed your loved ones. And for God’s sake feed your children.
+ - Well, you know, when you go into a restaurant, one of the scariest things is the wine list, so whenever I’m really feeling intimidated, I’ll just pick a wine type, like a Chianti or Brunello or a Burgundy, and I’ll pick a year that’s missing and ask for that one.
+ - Seriously. I’m not very bright, and it takes a lot for me to get a concept – to really get a concept. To get it enough that it becomes part of me. But when it happens I get real excited about it.
+ - My mantra was to educate people – to actually give them the know-how they could use – and to do it in a very subversive kind of way. I would entertain them, and I was going to teach them whether they knew it or not.
+ - I’m a filmmaker who decided to go to culinary school. All I picked up was the fact if I didn’t understand what was going on with every single ingredient, I could be qualifying for, like, the lunch food job at my daughter’s school.
+ - I became a cook so I could cook and tell stories in wacky ways.
+ - I say grace. I’m a big believer in grace. I happen to believe in a God that made all the food and so I’m pretty grateful for that and I thank him for that. But I’m also thankful for the people that put the food on the table.
+ - My college degree was in theater. But the real reason, if I have any success in that milieu, so to speak, is because I spent a lot of years directing, I spent a lot of years behind the camera.
+ - My feeling has always been that ‘Good Eats’ would have never happened had it been left to a committee.
+ - If you really love stuffing, wait until the turkey comes out of the oven, add some of the pan drippings to the stuffing, and bake it in a dish. That’s called dressing, and that’s not evil – stuffing is, though.
+ - I can’t talk about anything or write about anything if I don’t understand it. So a lot of the stuff that I go through and a lot of the time that I spend is understanding.
+ - Believe me, a grain is a terrible thing to waste.
+ - My first book is really about heat. That book, for me, was an exploration of heat as ingredient. Why we don’t talk about heat as an ingredient, I don’t quite understand, because it is the common ingredient to all cooking processes.
+ - I had kicked around the idea for Good Eats when I was directing commercials.
+
+38 quotes

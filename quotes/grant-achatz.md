@@ -1,0 +1,22 @@
+ - People like to think the creative process is romantic. The artist drifts to sleep at night, to be awakened by the subliminal echoes of his or her next brilliant idea. The truth, for me at least, is that creativity is primarily the result of hard work and study.
+ - Food is a necessary component to life. People can live without Renoir, Mozart, Gaudi, Beckett, but they cannot live without food.
+ - My personality was always such that I always look straight forward, never behind or to the side.
+ - I had D minuses in chemistry and all of the sciences, and now I’m known as a molecular gastronomist.
+ - What makes the food that we do at Alinea so interesting on the outside is that we really don’t let ourselves say no to an idea.
+ - It’s not really the life of cooking that’s hard – it’s what you make of it and what level you push yourself to.
+ - I hate stuff in my pockets, can’t stand it. I’ll carry stuff in my hands rather than put it in my pockets.
+ - Food can be expressive and therefore food can be art.
+ - I lived my whole life in the kitchen. Not only that, but it’s the passion, it’s the love for cooking and food. It’s dictated my entire life – every aspect of it. So, in some ways, the thought of not being able to do that anymore radically affects your life.
+ - If I had one piece of advice for people – if they are cooking from the Alinea cookbook, the Betty Crocker cookbook or the back of the box – read through the entire recipe first before reaching for any ingredients, and then read again and execute the directions.
+ - In a lot of ways, a lot of smells that aren’t necessarily edible smell good, and they remind you of certain aspects of food. So making those associations with what smells good or smells a certain way and pairing that with actual edible ingredients is one avenue that we take creatively.
+ - The popularity of the Internet and using it as an available resource has really changed the way chefs kind of gather information and look for inspiration. To me, a food trend is potentially a lot of people following an idea.
+ - We all eat two to six times a day. Why? Because we are supposed to, we are programmed to, we want to.
+ - My home kitchen is airy, with a gas stove, a stainless-steel island table in the center and granite countertops. It’s very modest but there’s tons of counter space, so you can slap down three or four cutting boards.
+ - I wish that food trucks could exist here in Chicago like they do in Brooklyn and in New York, where you’re actually cooking off the truck.
+ - Anything that could ever prevent me from achieving a goal, I put in a box, tape it up, throw it over my shoulder. You aim for a goal and attain it. Then you look to the next one.
+ - Part of becoming a little bit older and having the opportunities that I have, you want to start giving back to people who have been influential and helped you along the way.
+ - Most smoked salts are made with liquid smoke, which is a condensate, but really, really good smoked salt is literally smoked.
+ - To me, every kitchen appliance is useful and nothing’s overrated. When I look at my little espresso machine, I don’t see coffee. I see a steaming valve as an opportunity to make amazing creme brulee.
+ - It is critical to have a sound understanding of traditional culinary principles before attempting to push boundaries in cuisine. Larousse Gastronomique helps me execute the progressive cooking we do at Alinea.
+
+20 quotes

@@ -1,0 +1,40 @@
+ - It’s an important thing to remember where you came from.
+ - Said I loved you but I lied, cause this is more than love I feel inside.
+ - I’m pretty irreverent. There is a lot of need to find humour in life. Although I’d never be as disrespectful to laugh at someone’s expense.
+ - No matter how great we get with digital formats of instrumentation, nothing really quite duplicates the real thing.
+ - It’s understanding the intention of a composer that allows a producer and an arranger to make those moments speak.
+ - You know, fans who think we were made for each other and describe it in excruciating detail. You get peculiar things and beautiful things. But either way they’re clearly thinking about you, which is nice.
+ - When your car is about to go off a cliff, it’s a weird time to be thinking about gas mileage and drag coefficients; better to take the right control action – look out the window and steer or use the brake until you’re back on course.
+ - As you get older, your experiences become more precious. Nothing material is important to me. It’s people who are precious.
+ - I like the simple ‘I love your work’ letters. You never get sick of people’s appreciation. They think they’re troubling you, but it’s lovely people associate my songs with certain moments in their lives.
+ - It’s not quite the Tom Jones show, but yes, I’ve had undergarments. If I get a bra chucked on stage I’ll hold it up so the audience can decide what to think. And I’ll usually blame a guy for doing it.
+ - To sing along with Stevie Wonder, you had to make your voice do things it was not accustomed to doing.
+ - We used to call it recurrent airplay when someone had a hit.
+ - To be honest I listen to the female opinion on my photos. If all the girls in the office choose a certain shot, even if I don’t like it, it becomes a front runner because, really, what do I know about how others perceive me?
+ - I’m proud of my mentors. Ray Charles is the strongest influence on me as a singer.
+ - Yes!!! I booked a commercial!!!
+ - The bigger you are, the harder they come down on you.
+ - Considering the amount of information we’re bombarded by, it’s amazing if a song can transcend time.
+ - With the internet, things are so much more immediate. People taste-test things to see if they want to buy the CD.
+ - I have to be happy in the here and now because every time you start focusing on your legacy you’re really setting yourself up for disappointment.
+ - When you have great songs that are going to live longer than the composers, everything you can do to bring those different elements and nuances out, serve the song.
+ - But I’m not superstitious. I don’t really eat dinner before I go on stage, because digesting a lot of food kind of shuts you down. And I try not to get involved in emotional conversations with anyone beforehand either, so I’ve got a clear head.
+ - I still get butterflies. It’s because there’s a certain level of responsibility you carry when doing a concert. You’ve got to sound at least as good as the record.
+ - I have friends who’ve tried to break into the UK, who went back with their tails between their legs. Fortunately I’ve had the opposite experience.
+ - Its a combination of melody and lyrics, not one without the other. Its a confluence of these different elements that makes something powerful.
+ - When I started studying for the arias it was like going into training for a heavyweight title fight.
+ - Dr. King is so inspiring, so impressive, so moving as a human being.
+ - You can’t make everybody love what you do, but you can know how great you feel doing it.
+ - Black music has increased my enjoyment of what I do. It has increased my range, my ability to reach into myself and accept myself.
+ - I accept that appearance is a big thing in this business. But being around Hollywood and having actor friends and doing music videos, it does make you more aware of how you look. With music videos they send you rough cuts, and in certain frames of me, I just see a nose advert.
+ - Someone told me there was a publisher that could find a good home for my songs, but I didn’t want to give up my pursuit of a career in the business as an artist.
+ - The whole industry evolves around a great song.
+ - I was blown away by the control and the range that I was hearing. I’m listening to Pavarotti and thinking, What the hell have I been doing with my voice all these years?
+ - A lot of my success comes from black music. It’s something I’m very proud of.
+ - Whoever best serves the song is going to be served by the song.
+ - One song will launch you, but you don’t want to be a one-song artist.
+ - There are certain people who have become better artists, but they’re brilliant at marketing. I think someone who’s been phenomenal like that is Madonna.
+ - The Top 40 is geared toward 20 and under, not 20 and up. That’s the audience I’m geared to.
+ - You’re presuming too much by using the word legacy – presuming that someone is going to care.
+
+38 quotes

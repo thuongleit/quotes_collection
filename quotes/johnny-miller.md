@@ -1,0 +1,23 @@
+ - Sports are 90% inspiration and 10% perspiration.
+ - Serenity is knowing that your worst shot is still pretty good.
+ - It’s not so much what you accomplish in life that really matters, but what you overcome that proves who you are, what you are, and whether you are a champion.
+ - Golf’s Holy Grail – a genius course.
+ - I don’t think anywhere is there a symbiotic relationship between caddie and player like there is in golf.
+ - Pebble is a piece of sacred ground. They say it’s the greatest meeting of land and water in the world. This course was heaven designed – just the way it fits on the land.
+ - The mental aspect of golf is what makes golf such a great sport.
+ - I don’t want to brag, but I do more homework on the course than any other announcer. I chart the greens to get all the breaks. I walk down into the greenside bunkers. I walk into the fairway bunkers to see whether a player can reach the green from them.
+ - If you are a bad putter, you will not make a putt. If you have a tendency to chili-dip wedges, you’ll be chili-dipping them all over the place for sure. Whatever your weakness, it will come up in spades during the Ryder Cup.
+ - If you don’t like my announcing, you don’t like me.
+ - There are plenty of guys who played great golf, had great careers and only won a few majors.
+ - For me, ‘choking’ is just another term in golf.
+ - Most announcers play pattycake, pattycake with the players they’re covering.
+ - Every day I try to tell myself that this is going to be fun today. I try to put myself in a great frame of mind before I go out – then I screw it up with the first shot.
+ - When Nicklaus plays wells well, he wins. When he plays badly, he finishes second. When he plays terribly, he finishes third.
+ - I played so bad, I got a get-well card from the IRS.
+ - Look, I’m not trying to be critical when I’m on the air.
+ - Only one golfer in a thousand grips the club lightly enough.
+ - In golf, ‘close’ is like the north and south rim of the Grand Canyon.
+ - Seve wore his emotions on his sleeve. You could see how much the guy cared about winning.
+ - Nobody ever heard Jack Nicklaus say “I don’t know” about anything.
+
+21 quotes

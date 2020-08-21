@@ -1,0 +1,38 @@
+ - Just keep going. Everybody gets better if they keep at it.
+ - The hardest thing to do in baseball is to hit a round baseball with a round bat, squarely.
+ - I’ve found in life the more you practice, the better you get. If you want something enough and work hard to get it, your chances of success are greater.
+ - If you don’t think too good, don’t think too much.
+ - All I want out of life is that when I walk down the street, folks will say, “There goes the greatest hitter who ever lived.”
+ - You’ve got to be ready for the fastball.
+ - The key to hitting is just plain working at it. Work, that’s the real secret.
+ - A man has to have goals – for a day, for a lifetime – and that was mine, to have people say, ‘There goes Ted Williams, the greatest hitter who ever lived.’
+ - I don’t want to take anything away from Roger Maris and Mickey Mantle. They’re both great hitters, but they’re batting against guys they never would have seen in previous years.
+ - God gets you to the plate, but once you’re there you’re on your own.
+ - There has always been a saying in baseball that you can’t make a hitter, but I think you can improve a hitter. More than you can improve a fielder. More mistakes are made hitting than in any other part of the game.
+ - No one has come up with a substitute for hard work.
+ - No one can ever see the ball hit the bat because it’s physically impossible to focus your eyes that way. However, when I hit the ball especially hard, I could smell the leather start to burn as it struck the wooden bat.
+ - Hitting is the most important part of the game. It is where the big money is, where much of the status is, and the fan interest.
+ - I object to fishing tournaments less for what they do to fish than what they do to fishermen.
+ - People always told me that my natural ability and good eyesight were the reasons for my success as a hitter. They never talk about the practice, practice, practice.
+ - There’s only one way to become a hitter. Go up to the plate and get mad. Get mad at yourself and mad at the pitcher.
+ - Baseball is the only field of endeavor where a man can succeed three times out of ten and be considered a good performer.
+ - If I could run like Mantle I’d hit .400 every year!
+ - You have to hit the fastball to play in the big leagues.
+ - All managers are losers, they are the most expendable pieces of furniture on the face of the Earth.
+ - If I was being paid thirty-thousand dollars a year, the very least I could do was hit .400.
+ - There goes the greatest hitter who ever lived.
+ - Think. Don’t just swing. Think about the pitcher, what he threw you last time up, his best pitch, who’s up next. Think.
+ - I hope somebody hits .400 soon. Then people can start pestering that guy with questions about the last guy to hit .400.
+ - Joe DiMaggio was the greatest all-around player I ever saw. His career can not be summed up in numbers and awards. It might sound corny, but he had a profound and lasting impact on the country.
+ - Baseball is 50% from the neck up.
+ - Hitting is fifty percent above the shoulders.
+ - If you get fooled by a pitch with less than two strikes, take it.
+ - By the time you know what to do, you’re too old to do it.
+ - A man has to have goals – for a day, for a lifetime...
+ - The Cleveland Cavaliers just offered me a full-time job and a house! A house! A house!
+ - I’ve found that you don’t need to wear a necktie if you can hit.
+ - They invented the All-Star game for Willie Mays.
+ - Baseball gives every American boy a chance to excel, not just to be as good as someone else but to be better than someone else. This is the nature of man and the name of the game.
+ - If there was ever a man born to be a hitter it was me.
+
+36 quotes

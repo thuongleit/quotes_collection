@@ -1,0 +1,26 @@
+ - Professional is not a label you give yourself – it’s a description you hope others will apply to you.
+ - Believe passionately in what you do, and never knowingly compromise your standards and values. Act like a true professional, aiming for true excellence, and the money will follow.
+ - Your task as a leader is to help others to succeed, not to strive only for your own success. If I don’t trust your motives, nothing else will matter -because my primary concern is your integrity.
+ - What you do with your billable time determines your current income, but what you do with your non-billable time determines your future.
+ - If your clients aren’t actively telling their friends about you, maybe your work isn’t as great as you think it is.
+ - Don’t get stampeded by what people around you value. The task is to figure out what YOU value – and value highly enough to throw yourself into with unqualified passion.
+ - Before a leader can be accepted, let alone succeed, autonomous professionals must agree to be influenced by that person.
+ - Professionals have to decide on which subjects they are prepared to give nagging rights.
+ - Whether or not your values are operational is crucially determined by whether or not there are consequences for noncompliance.
+ - You cannot and should not try to please everyone. Make sure that the right people like you, and it will be expected that others will not. That’s how the world works.
+ - Focus on being the best you can at what you want to do.
+ - What do I have to do to earn and deserve the key relationships that are going to get me where I want to go?
+ - A true professional feels no pressure to run up a client’s bill, knowing that any reduction in revenues caused by being efficient will be more than recompensed by the reputation earned for being honest and trustworthy.
+ - The courage to care about your people, your clients, and your career.
+ - What is important is what inspires persistence and determination- in other words what you care about.
+ - Truly visionary and successful companies have discovered that there is no conflict between the pursuit of profit and having a pursuit beyond profit.
+ - The noble path does win but only if you are prepared to make the investment over a long period of time.
+ - Stop teaching students that they are the best and the brightest.
+ - When did you feel most fulfilled? When did you impress yourself, or otherwise feel most proud of yourself?
+ - I will not accept your guidance and critique unless you are supportive and nurturing. On the other hand, you need to be continually demanding.
+ - No one can manage you if you don’t give them permission to do so. But if you are interested in accomplishing as much as you are capable of, then I believe there are good reasons to grant that permission.
+ - Success comes from doing what you enjoy. If you don’t enjoy it, how can it be called success?
+ - More than any other factor, it is the people we have to deal with that determine the quality of our work lives.
+ - Left untended, knowledge and skill, like all assets, depreciate in value surprisingly quickly.
+
+24 quotes

@@ -1,0 +1,22 @@
+ - Not prayer without faith, nor faith without prayer, but prayer in faith, is the cost of spiritual gifts and graces.
+ - In the time of Jesus the mount of transfiguration was on the way to the cross. In our day the cross is on the way to the mount of transfiguration. If you would be on the mountain. you must consent to pass over the road to it.
+ - Jesus has never slept for an hour while one of His disciples watched and prayed in agony.
+ - No parent ought to punish a child except with a view to the child’s good. And in order to do good to a child through his punishment, a parent must religiously refrain from punishing him while angry.
+ - In all holiest and most unselfish love, friendship is the purest element of the affection. No love in any relation of life can be at its best if the element of friendship be lacking. And no love can transcend, in its possibilities of noble and ennobling exaltation, a love that is pure friendship.
+ - Value friendship for what there is in it, not for what can be gotten out of it.
+ - The moment you accept God’s ordering, that moment your work ceases to be a task, and becomes your calling; you pass from bondage to freedom, from the shadow-land of life into life itself.
+ - Friendship by its very nature consists in loving, rather than in being loved.
+ - Conscience tells us that we ought to do right, but it does not tell us what right is – that we are taught by God’s word.
+ - It is not an easy thing for a parent of today to bear always in mind that every child of his is as truly an individual as he was when he was a child.
+ - If a man is unable to find the way to Jesus, he ought to be led. It is good work this bringing the blind to Him who alone can give them sight.
+ - It takes practice to use one’s eyes, even when God has opened them. And there are some believers who never get beyond confounding a doctrinal statement of a truth with a living exemplification of that truth.
+ - He who knows how to teach a child is not competent for the oversight of a child’s education unless he also knows how to train a child.
+ - All that any of us has to do in this world is his simple duty.
+ - A loving trust in the Author of the Bible is the best preparation for a wise study of the Bible.
+ - Attention is our first duty whenever we want to know what is our second duty. There is no such cause of confusion and worry about what we ought to do, and how to do it, as our unwillingness to hear what God would tell us on that very point.
+ - There are ever two ways of striving to fill one’s place in the world: one is by seeking to prove one’s self useful; the other, by striving to render one’s self useless. The first way is the commoner and the more attractive; the second is the rarer and more noble.
+ - Hardly anything can be more important in the mental training of a child than the bringing him to do it in its proper time, whether he enjoys it or not. The measure of a child’s ability to do this becomes, in the long run, the measure of his practical efficiency in whatever sphere of life he labors.
+ - An over-readiness to criticise or to depreciate a minister of Christ is proof of a lack of devotion to Christ.
+ - Just as sure as the days go by, Jesus will come to us, looking for fruit; and He will come in personal hunger, needing and longing for the fruit which we might have ready for Him.
+
+20 quotes

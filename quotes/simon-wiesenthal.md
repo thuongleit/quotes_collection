@@ -1,0 +1,33 @@
+ - God must have been on leave during the Holocaust.
+ - For evil to flourish, it only requires good men to do nothing.
+ - Tolerance and human rights require each other.
+ - Freedom is not a gift of heaven, you have to fight for it every day.
+ - There is no freedom without justice.
+ - Human rights is the only ideology that deserves to survive.
+ - I have lost my mother, my father, my five, and ninety relatives in Poland. Poland is for me a cemetery.
+ - Survival is a privilege which entails obligations. I am forever asking myself what I can do for those who have not survived.
+ - What happened to the Jews cannot be compared with all the other crimes. Every Jew had a death sentence without a date.
+ - For your benefit, learn from our tragedy. It is not a written law that the next victims must be Jews. It can also be other people.
+ - Justice for crimes against humanity must have no limitations.
+ - What connects two thousand years of genocide? Too much power in too few hands.
+ - Hatred can be nurtured anywhere, idealism can be perverted into sadism anywhere. If hatred and sadism combine with modern technology the inferno could erupt anew anywhere.
+ - If you know from history the danger, then part of the danger is over because it may not take you by surprise as it did your ancestors.
+ - My cause was justice, not vengeance. My work is for a better tomorrow and a more secure future for our children and grandchildren.
+ - Violence is like a weed – it does not die even in the greatest drought.
+ - Humour is the weapon of unarmed people: it helps people who are oppressed to smile at the situation that pains them.
+ - The combination of hatred and technology is the greatest danger threatening mankind.
+ - I know I am not only the bad conscience of the Nazis. I am also the bad conscience of the Jews. Because what I have taken up as my duty was everybody’s duty.
+ - No gassing took place in any camp on Germany soil.
+ - Technology without hatred can be a blessing. Technology with hatred is always a disaster.
+ - Even before I had had time to really think things through, I realized we must not forget. If all of us forgot, the same thing might happen again, in 20 or 50 or 100 years.
+ - The schools would fail through their silence, the Church through its forgiveness, and the home through the denial and silence of the parents. The new generation has to hear what the older generation refuses to tell it.
+ - The history of man is the history of crimes, and history can repeat. So information is a defence. Through this we can build, we must build, a defence against repetition.
+ - The new generation has to hear what the older generation refuses to tell it.
+ - Forgetting is something that time takes care of, but forgiveness is an act of volition, and only the sufferer is qualified to make the decision.
+ - When history looks back, I want people to know the Nazis weren’t able to kill millions of people and get away with it.
+ - Discovering witnesses is just as important as catching criminals.
+ - The end was surely near. The Nazis killed you only when you were naked, because they knew, psychologically, that naked people never resist.
+ - Simon Wiesenthal told me that any political party in a democracy that uses the word ‘freedom’ in its name is either Nazi or Communist.
+ - There were millions of such families anxious only for peace and quiet in their own little nests. These were the mounting blocks by which the criminals climbed to power and kept it.
+
+31 quotes

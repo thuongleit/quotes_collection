@@ -1,0 +1,44 @@
+ - If I miss one day of practice, I notice it. If I miss two days, the critics notice it. If I miss three days, the audience notices it.
+ - The very essence of success is practice.
+ - I owe my sucess in one per cent to my talent, in ten per cent to luck, and in ninety per cent to hard word. Work, work, and more work is the secret to success.
+ - Rhythm is the pulse of music.
+ - Before I was a genius I was a drudge.
+ - True originality has its foundations in the soul, not in the mind, and when there is an effort to create something different it is usually a failure. Beethoven or Schumann or Chopin did not try to be original. They were original.
+ - Art without technique is invertebrate, shapeless, characterless.
+ - America, the country of my heart, my second home.
+ - I am nothing! If you could know the dream of what I would like to be, you would realize how little I have accomplished.
+ - Times change, people change, thought and feeling take new shapes, put on fresh garments, sons bow their heads unwillingly to that which enraptured their fathers.
+ - If I do not practice one day; I know it. If I do not practice the next, the orchestra knows it; if I do not practice the third day, the whole world knows it.
+ - I cannot imagine a genuinely happy home without music in it.
+ - You are a dear soul who plays polo, and I am a poor Pole who plays solo.
+ - The culture of any country is gauged first by its progress in art.
+ - Piano playing is more difficult than statesmanship. It is harder to awake emotions in ivory keys than it is in human beings.
+ - Chopin was an invalid, as you know, but his music was volcanic.
+ - Just as surely as every new language mastered opens up a new world, so knowledge of a Beethoven, a Chopin, or a Schumann opens up a new world in spiritual beauty and thought.
+ - Art is the expression of the immortal part of man.
+ - The Pole listening to Chopin listens to the voice of his whole race.
+ - Fatherland before everything, art afterward.
+ - Change follows change in us, almost without transition; we pass from blissful rapture to sobbing woe; a single step divides our sublimest ecstasies from the darkest depth of spiritual despondency.
+ - A man is not necessarily a master because he happened to compose two or three centuries ago. Let us beware of the worship of mere antiquity.
+ - Man is naturally lazy, therefore he invents labor-saving devices.
+ - The ultimate necessity is the summoning of the mind and will to do their duty.
+ - It is not from choice that my life is music and nothing more, but when one is an artist what else can he be? When a whole lifetime is too short to attain the heights he wants to reach, how then can he devote any of the little time he has to things outside of his art?
+ - When I miss a week in practice, my audience knows it. When I miss a day, I know it.
+ - Art is great only when it bears the stamp of the individual.
+ - Is there anything more true than human pain? Is there anything more sincere than the cry for help from those who suffer? Only a great wave of mankind’s pity can surmount an immense wave of human misery?
+ - Music is the only art that actually lives.
+ - Beginnings play their prized part in every finished human accomplishment, for beginnings mean the birth of added progress.
+ - Intellectual isolation always follows commercial isolation.
+ - When one is an artist, what else can he be?
+ - Music expresses first of all sadness rather than joy.
+ - The mere fact of knowing that a great audience waits on your labor is enough to shake all your nerves to pieces.
+ - The genius is the man who has genuine and deep human relations with others, who does not cut himself off in the search for originality, but who realizes the value of artistic tradition.
+ - There have been a few moments when I have known complete satisfaction, but only a few. I have rarely been free from the disturbing realization that my playing might have been better.
+ - The great familiar musical works are always greeted by the audiences as ever welcome and beloved friends.
+ - Musical expression is never primarily national, but is personal and individual rather. It is so deep, so profound, that it goes beyond and below nationality and gives voice to the most private feeling. In music there is never exact heredity. Each man is an individual.
+ - There flows throughout our whole history a stream of humanity, of generosity, of tolerance, so broad, so powerful, and so pure that it would be vain indeed to look for a similar one in the past of any other European country.
+ - Art must be a slow and normal evolution.
+ - I am inclined to believe that some music, like certain poetry, finds its appeal and way to all.
+ - I established a certain standard of behavior, that, during my playing, there must be no talking.
+
+42 quotes

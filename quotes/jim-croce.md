@@ -1,0 +1,25 @@
+ - If I could save time in a bottle The first thing that I’d like to do Is to save every day.
+ - If I had time in a bottle, if words could make wishes come true, I’d save everyday for eternity passes. And then I would spend them with you.
+ - If I had a box just for wishes and dreams that had never come true, the box would be empty, except for the memory of how they were answered by you.
+ - Well, you don’t tug on Superman’s cape, you don’t spit into the wind. You don’t pull on the mask of old Lone Ranger and you don’t mess around with Jim.
+ - Moving ahead, so life won’t pass me by.
+ - A fool I am and I’ll always be. They can change their minds, but they can’t change me.
+ - I’ve overcome the blow, I’ve learned to take it well. I only wish my words could just convince myself that it just wasn’t real. But that’s not the way it feels.
+ - After all, it’s what we’ve done that makes us what we are.
+ - I’ve looked around enough to know that you’re the one I want to go through time with.
+ - If you dig it, do it. If you dig it a lot, do it twice.
+ - Nobody loves a fat girl, but oh how a fat girl can love.
+ - Nobody ever had a rainbow baby until they had the rain.
+ - Bridges are meant for burning, when the people and memories they join aren’t the same.
+ - Every time I tried to tell you the words just came out wrong, so I’ll have to say I love you in a song.
+ - My only boss was the clock on the wall and my only friend, never really was a friend at all. I’ve traded love for pennies, sold my soul for less. Lost my ideas in that long tunnel of time. And I’ve turned inside out and around about and back and then found myself right back where I started again.
+ - Well I should be sitting in an air-conditioned office in a swivel chair, talking trash to the secretary. Saying, hey now mama, come on over here.
+ - Lost my ideals in that tunnel of time.
+ - I was searching all the time for something that I’d never lost or left behind.
+ - She might be nasty, she might be fat, but I never met a person who would tell her that.
+ - He’s bad, bad Leroy Brown, baddest dude in the whole damn town, badder than old King Kong, and meaner than a junk yard dog.
+ - They wouldn’t listen to the fact that I was genius.
+ - Tried to find me an executive position, but no matter how smooth I talked they wouldn’t listen to the fact that I was a genius.
+ - He cast his eyes upon her and the trouble soon began, cause Leroy Brown learned a lesson about messing with the wife of a jealous man.
+
+23 quotes

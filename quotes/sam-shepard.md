@@ -1,0 +1,54 @@
+ - When you hit a wall – of your own imagined limitations – just kick it in.
+ - I believe in my mask – The man I made up is me I believe in my dance – And my destiny.
+ - Love is the only disease that makes you feel better.
+ - Everyone wants a piece of land. It’s the only sure investment. It can never depreciate like a car or a washing machine. Land will double its value in ten years. In less than that. Land is going up every day.
+ - I don’t understand my feelings. I really don’t. I don’t understand how I could hate you so much after so much time. How, no matter how much I’d like to not hate you, I hate you even more. It grows.
+ - Democracy’s a very fragile thing. You have to take care of democracy. As soon as you stop being responsible to it and allow it to turn into scare tactics, it’s no longer democracy, is it? It’s something else. It may be an inch away from totalitarianism.
+ - This isn’t champagne anymore. We went through the champagne a long time ago. This is serious stuff. The days of champagne are long gone.
+ - Beginnings are definitely the most exciting, middles are perplexing and endings are a disaster.
+ - My dad had a lot of bad luck. You could see his suffering, his terrible suffering, living a life that was disappointing and looking for another one.
+ - Character is an essential tendency. It can be covered up, it can be messed with, it can be screwed around with, but it can’t be ultimately changed. It’s the structure of our bones, the blood that runs through our veins.
+ - When you die it’s the end of your life.
+ - When you consider all the writers who never even had a machine. Who would have given an eyeball for a good typewriter. Any typewriter. All the ones who wrote on a matchbook covers. Paper bags. Toilet paper. Who had their writing destroyed by their jailers. Who persisted beyond all odds.
+ - Hollywood is geared toward teenage idiocy.
+ - I don’t want to be a playwright, I want to be a rock and roll star.
+ - I’ll develop my own image. I’m an original man. A one and only. I just need some help.
+ - I’ve heard writers talk about “discovering a voice,” but for me that wasn’t a problem. There were so many voices that I didn’t know where to start.
+ - There’s gonna be a general lack of toast in the neighborhood this morning.
+ - You can’t keep messing me around like this. It’s been going on too long. I can’t take it anymore. I get sick every time you come around. Then I get sick when you leave. You’re like a disease to me.
+ - I like cars. I like travel. I like the idea of people breaking down and I’m the only one who can help them get on the road again. It would be like being a magician. Just open up the hood and cast your magic spell.
+ - Farm country – you know, hay, horses, cattle. It’s the ideal situation for me. I like the physical endeavors that go with the farm – cutting hay, cleaning out stalls, or building a barn. You go do that and then come back to the writing.
+ - I had a definite sense of somehow being a passenger in an evil vehicle crusing through Paradise.
+ - People talk about the 1960s in a nostalgic way, but to me it was terrifying. People were getting assassinated. There was Vietnam. There were race riots. It felt like everything was going to get blown up sky-high. It didn’t feel like flower power. It felt like Armageddon.
+ - The funny thing about having all this so-called success is that behind it is a certain horrible emptiness.
+ - The great thing for me, now, is that writing has become more and more interesting. Not just as a craft but as a way into things that are not described. It’s a thing of discovering. That’s when writing is really working. You’re on the trail of something and you don’t quite know what it is.
+ - It’s one of the great tragedies of our contemporary life in America, that families fall apart. Almost everybody has that in common.
+ - Sides are being divided now. It’s very obvious. So if you’re on the other side of the fence, you’re suddenly anti-American. It’s breeding fear of being on the wrong side.
+ - We’re being sold a brand new idea of patriotism. It never occurred to me that patriotism had to be advertised. Patriotism is something you deeply felt. You didn’t have to wear it on your lapel or show it in your window or on a bumper sticker. That kind of patriotism does not appeal to me at all.
+ - In real life we don’t know what’s going to happen next. So how can you be that way on a stage? Being alive to the possibility of not knowing exactly how everything is going to happen next – if you can find places to have that happen onstage, it can resonate with an experience of living.
+ - I didn’t go out of my way to get into this movie stuff. I think of myself as a writer.
+ - Caryl Churchill is a writer of some note, but in the sack, she makes me explain everything.
+ - In many of my plays, there was a kind of autobiographical character in the form of a son or young man. The purpose of it, of course, was to write about myself. That character was always the least fully realized. Eighteen years later, you realize, That’s what he was about.
+ - Ive been so spoiled in the theater, writing plays where I can just do exactly what I want and nobody messes with me.
+ - The words I overuse are all adverbs.
+ - I think without writing I would feel completely useless.
+ - It’s funny, in a way the actor is a writer. It’s not like the two things are so separate as to be like apples and oranges. The writer and the actor are one.
+ - When you see the way things deteriorate before your very eyes. Everything running down hill. It’s kind of silly to even think about youth.
+ - I was in the war. I know how to kill. I was over there. I know how to do it. I’ve done it before. It’s no big deal. You just make an adjustment. You convince yourself it’s all right. That’s all. It’s easy. You just slaughter them.
+ - Film acting is really the trick of doing moments. You rarely do a take that lasts more than 20 seconds. You really earn your spurs acting onstage. I needed to do that for myself. I would hate to say at the end of everything that I never did a stage play.
+ - There are places where writing is acting and acting is writing. I’m not so interested in the divisions. I’m interested in the way things cross over.
+ - I’m a writer. The more I act, the more resistance I have to it. If you accept work in a movie, you accept to be entrapped for a certain part of time, but you know you’re getting out. I’m also earning enough to keep my horses, buying some time to write.
+ - Being a writer is so great because you’re literally not dependent on anybody. Whereas, as an actor, you have to audition or wait for somebody else to make a decision about how to use you, with writing, you can do it anywhere, anytime you want. You don’t have to ask permission.
+ - I feel very lucky and privileged to be a writer. I feel lucky in the sense that I can branch out into prose and tell different kinds of stories and stuff. But being a writer is so great because youre literally not dependent on anybody.
+ - For me, playwriting is and has always been like making a chair. Your concerns are balance, form, timing, lights, space, music. If you don’t have these essentials, you might as well be writing a theoretical essay, not a play.
+ - Ideas emerge from plays, not the other way around.
+ - To sing a song is quite different than to write a poem. I’m not and never will be a novelist, but to write a novel is not the same thing as writing a play. There is a difference in form, but essentially what you’re after is the same thing.
+ - I’ve come to feel that if I can’t make something happen in under an hour and a half, it’s not going to happen in a compelling way in a three-hour play.
+ - I got to New York when I was eighteen. I was knocking around, trying to be an actor, writer, musician, whatever happened.
+ - I don’t get offered leading parts. I suppose I’ve become a kind of character actor or sideman. I think it had to do with probably in the ’90s, I refused so many leading roles that they gave up on me, or I just became unpopular, or I became old. All those reasons.
+ - When I first started, I didn’t really know how to structure a play. I could write dialogue, but I just sort of failed beyond that, and kind of went wherever I wanted to go.
+ - I was shot in the wrist when I was a kid. Deliberately.
+ - I still haven’t gotten over this thing of walking down the street and somebody recognizing you because you’ve been in a movie. There’s this illusion that movie stars only exist in the movies. And to see one live is like seeing a leopard let out of the zoo.
+ - After the falling out with my father, I worked on a couple of ranches – thoroughbred layup farms, actually – out toward Chino, California. That was fine for a little while, but I wanted to get out completely, and twenty miles away wasnt far enough.
+
+52 quotes

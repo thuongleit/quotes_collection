@@ -1,0 +1,48 @@
+ - The truth is that a life well lived is always lived on a rising scale of difficulty.
+ - Sometimes standing against evil is more important than defeating it. The greatest heroes stand because it is right to do so, not because they believe they will walk away with their lives. Such selfless courage is a victory in itself.
+ - Lay your life down. Your heartbeats cannot be hoarded. Your reservoir of breaths is draining away. You have hands, blister them while you can. You have bones, make them strain – they can carry nothing in the grave. You have lungs, let them spill with laughter.
+ - Understand this: we are both tiny and massive. We are nothing more than molded clay given breath, but we are nothing less than divine self-portraits, huffing and puffing along the mountain ranges of epic narrative arcs prepared for us by the Infinite Word Himself.
+ - Life is a story. Why do we die? Because we live. Why do we live? Because our Maker opened His mouth and began to tell a story.
+ - The moon was up, painting the world silver, making things look just a little more alive.
+ - Drink your wine. Laugh from your gut. Burden your moments with thankfulness. Be as empty as you can be when that clock winds down. Spend your life. And if time is a river, may you leave a wake.
+ - We are narrative creatures, and we need narrative nourishment-nar rative catechisms.
+ - Sometimes standing against evil is more important than defeating it.
+ - That wasn’t me. I’m not a morning person. There’s another person inside of me that does all the morning things.
+ - What I say is, don’t go playing unless you can win. Only sit down to chess with idiots, only kick a dog what’s dead already, and don’t love a lady unless she loves you first.
+ - Do not fear the shadowy places. You will never be the first one there. Another went ahead and down until He came out the other side.
+ - Living is the same thing as dying. Living well is the same thing as dying for others.
+ - Man is born to trouble. Man is born for trouble. Man is born to battle trouble. Man is born for the fight, to be forged and molded – under torch and hammer and chisel – into a sharper, finer, stronger image of God.
+ - Glory is sacrifice, glory is exhaustion, glory is having nothing left to give.
+ - Your father died for me, and dying with you would be an honor, though not as great as dying to save you.
+ - Cowards live for the sake of living, but for heroes, life is a weapon, a thing to be spent, a gift to be given to the weak and the lost and the weary, even to the foolish and the cowardly.
+ - Here Spring just grows and greens and warms, spreading life, wrapping us in her arms, until suddenly we realize that she’s not a girl anymore. She’s a woman. A woman named Summer.
+ - Going where no man has gone before is more difficult than it sounds. Our cousins and ancestors were no less curious than we are, and were perhaps bolder. This world is their tomb. You should look under the bed.
+ - Self-loathing and self-worship can easily be the same thing. You hate the small sack of fluids and resentments that you are, and you would go to any length, and betray anything and anyone, to preserve it.
+ - The world is R-rated, and no one’s checking IDs.
+ - Marx called religion an opiate, and all too often it is. But philosophy is an anaesthetic, a shot to keep the wonder away.
+ - It is hard to stay focused with so much swirling around me. God is distracting. He never stops talking, and I can never stop listening. There is a reason we sleep.
+ - Truth: We are the present. We are now. We are the razor’s edge of history. The future flies at us and from that dark blur we shape the past. And the past is forever.
+ - The fall of man did not introduce evil; it placed us on the wrong side of it, under its rule, needing rescue.
+ - Horace smiled. “Always breakfast like a man condemned. One never knows that a day may bring.”
+ - In the Darwinian world, self-preservation is the ultimate shiny good.
+ - Descartes, the Frenchman, had little trouble knowing that he existed.
+ - Narrative living is the beginning of rhetoric.
+ - Spring is worth the wait. Life is worth the death.
+ - God’s big enough that small doesn’t matter.
+ - Caves and darkness can’t hold you when you die, they can only hold your bones.
+ - Stories are like catechisms, but they’re catechisms for your impulses, they’re catechisms with flesh on.
+ - If you knew the meaning of life, would you necessarily like it?
+ - Every rock is spoon by the Word. Every time I touch a stone, I am touching the Voice of God. Every cell of me is crafted by that artistry. My life is His breath. But we mortals grow numb. We want to feel more. And so we add MSG to our earthly brands of holiness.
+ - I’ve watched goldfish make babies, and ants execute earwigs. I’ve seen a fly deliver live young while having its head eaten by a mantis. And I had a golden retriever behave like one.
+ - No place is ever the same tomorrow.
+ - But God never seems capable of moderation.
+ - May my living be grace to those behind me.
+ - Do you dislike your role in the story, your place in the shadow? What complaints do you have that the hobbits could not have heaved at Tolkien? You have been born into a narrative, you have been given freedom. Act, and act well until you reach your final scene.
+ - Tom had traveled around the sun eleven times when the delivery truck brought his mother’s newest fridge, but a number doesn’t really describe his age.
+ - Your life is your own, your glory is your glory, but you will lose it if you keep it for yourself. Grasp it for the sake of others...
+ - Columbus was the first to come to the east. Vikings don’t count, and neither do all the people who were standing on the beaches and waving when he got here.
+ - Every four years, I’ll watch figure skating, but I’m no closer to buying tights.
+ - Do not slip into writing for the mind and the mind alone. In other words, do not play merely upon our ability to reason. And do not focus only on visuals. Write for the whole person.
+ - I am here to paint you a picture of the world I see.
+
+46 quotes

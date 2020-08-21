@@ -1,0 +1,83 @@
+ - Everything starts from a dot.
+ - Music is the ultimate teacher.
+ - Of all the arts, abstract painting is the most difficult. It demands that you know how to draw well, that you have a heightened sensitivity for composition and for colors, and that you be a true poet. This last is essential.
+ - Color is the keyboard, the eyes are the harmonies, the soul is the piano with many strings. The artist is the hand that plays, touching one key or another, to cause vibrations in the soul.
+ - The circle is the synthesis of the greatest oppositions. It combines the concentric and the eccentric in a single form and in equilibrium. Of the three primary forms, it points most clearly to the fourth dimension.
+ - Colour is a power which directly influences the soul.
+ - Every work of art is the child of its age and, in many cases, the mother of our emotions. It follows that each period of culture produces an art of its own which can never be repeated.
+ - Orange is red brought nearer to humanity by yellow.
+ - In the hierarchy of colors, green represents the social middle class, self-satisfied, immovable, narrow...
+ - The observer must learn to look at the picture as a graphic representation of a mood and not as a representation of objects.
+ - The artist must train not only his eye but also his soul.
+ - Only just now awakening after years of materialism, our soul is still infected with the despair born of unbelief, of lack of purpose and aim.
+ - Color provokes a psychic vibration. Color hides a power still unknown but real, which acts on every part of the human body.
+ - The eyes are hammers.
+ - The more abstract is form, the more clear and direct its appeal.
+ - With few exceptions, music has been for some centuries the art which has devoted itself not to the reproduction of natural phenomena, but rather to the expression of the artist’s soul, in musical sound.
+ - There is no must in art because art is free.
+ - To create a work of art is to create the world.
+ - That is beautiful which is produced by the inner need, which springs from the soul.
+ - Every artist, as child of his age, is impelled to express the spirit of his age.
+ - Everything shows me its face, its innermost being, its secret soul, which is more often silent than heard.
+ - The sensations of colors on the palette can be spiritual experiences.
+ - In your works, you have realized what I, albeit in uncertain form, have so greatly longed for in music. The independent progress through their own destinies, the independent life of the individual voices in your compositions is exactly what I am trying to find in my paintings.
+ - The spirit, like the body, can be strengthened and developed by frequent exercise. Just as the body, if neglected, grows weaker and finally impotent, so the spirit perishes if untended.
+ - The deeper the blue becomes, the more strongly it calls man towards the infinite, awakening in him a desire for the pure and, finally, for the supernatural The brighter it becomes, the more it loses its sound, until it turns into silent stillness and becomes white.
+ - Color transmits and translates emotion.
+ - Abstract art places a new world, which on the surface has nothing to do with ‘reality,’ next to the ‘real’ world.
+ - The spirit is often concealed within matter to such an extent that few people are generally capable of perceiving it.
+ - Absolute green is the most restful color, lacking any undertone of joy, grief, or passion. On exhausted men this restfulness has a beneficial effect, but after a time it becomes tedious.
+ - The sound of colors is so definite that it would be hard to find anyone who would express bright yellow with bass notes or dark lake with treble...
+ - In general, therefore, color is a means of exerting a direct influence upon the soul. Color is the keyboard. The eye is the hammer. The soul is the piano with its many strings. The artist is the hand that purposefully sets the soul vibrating by means of this or that key.
+ - The artist must train not only his eye but also his soul, so that it can weigh colours in its own scale and thus become a determinant in artistic creation.
+ - Almost without exception, blue refers to the domain of abstraction and immateriality.
+ - As a picture painted in yellow always radiates spiritual warmth, or as one in blue has apparently a cooling effect, so green is only boring.
+ - The joy of life consists in the inevitable, continual triumph of new values.
+ - Every man who steeps himself in the spiritual possibilities of his heart is a valuable helper in the building of the spiritual pyramid which will someday reach to heaven.
+ - Objects damage pictures.
+ - Doubts must be resolved alone within the soul. Otherwise one would profane one’s own powerful solution.
+ - Empty canvas. In appearance – really empty, silent, indifferent. Stunned, almost. In effect – full of tensions, with thousand subdued voices, heavy with expectations. A little frightened because it may be violated.
+ - The artist must be blind to distinction between ‘recognized’ or ‘unrecognized’ conventions of form, deaf to the transitory teaching and demands of his particular age.
+ - I value those artists who embody the expression of their life.
+ - The work of art is born of the artist in a mysterious and secret way. From him it gains life and being. Nor is its existence casual and inconsequent, but it has a definite and purposeful strength, alike in its material and spiritual life.
+ - I really believe that I am the first and only artist to throw not just the ‘subject’ out of my paintings, but every ‘object’ as well.
+ - Each color lives by its mysterious life.
+ - The impact of the acute angle of a triangle on a circle produces an effect no less powerful than the finger of God touching the finger of Adam in Michelangelo.
+ - Every work of art is the child of its time, often it is the mother of our emotions.
+ - Efforts to revive the art principles of the past at best produce works of art that resemble a stillborn child.
+ - The nightmare of materialism, which has turned the life of the universe into an evil, useless game, is not yet past; it holds the awakening soul still in its grip.
+ - Black is like the silence of the body after death, the close of life.
+ - The composition is the organized sum of the interior functions of every part of the work.
+ - Our epoch is a time of tragic collision between matter and spirit and of the downfall of the purely material world view.
+ - In their pursuit of the same supreme end, Matisse and Picasso stand side by side, Matisse representing color and Picasso form.
+ - The artist must have something to say, for mastery over form is not his goal but rather the adapting of form to its inner meaning.
+ - Color is the keyboard. The eye is the hammer. The soul is the piano, with its many strings.
+ - The world is full of resonances. It constitutes a cosmos of things exerting a spiritual action. The dead matter is a living spirit.
+ - It should not be forgotten that art is not a science where the latest ‘correct’ theory declares the old to be false and erases it.
+ - In every painting a whole is mysteriously enclosed, a whole life of tortures, doubts, of hours of enthusiasm and inspiration.
+ - Art is not vague production, transitory and isolated, but a power which must be directed to the improvement and refinement of the human soul.
+ - An empty canvas, apparently really empty, that says nothing and is without significance – almost dull, in fact – in reality, is crammed with thousands of undertone tensions and full of expectancy. Slightly apprehensive lest it should be outraged.
+ - The artist is not a ‘Sunday child’ for whom everything immediately succeeds. He does not have the right to live without duty. The task that is assigned to him is painful, it is a heavy cross for him to bear.
+ - The force that propels the human spirit on the clear way forward and upward is the abstract spirit.
+ - The artist is the hand that, by touching this or that key, sets the soul vibrating automatically.
+ - Every phenomenon can be experienced in two ways. These two ways are not arbitrary, but are bound up with the phenomenon – developing out of its nature and characteristics : Externally – or – inwardly.
+ - Color cannot stand alone.
+ - A parallel between color and music can only be relative – just as a violin can give warm shades of tone, so yellow has shades, which can be expressed by various instruments.
+ - All methods are sacred if they are internally necessary. All methods are sins if they are not justified by internal necessity.
+ - In place of an intensive cooperation among artists, there is a battle for goods. Hatred, partisanship, cliques, jealousy, and intrigues are the natural consequences of an aimless, materialist art.
+ - There is only one road to follow, that of analysis of the basic elements in order to arrive ultimately at an adequate graphic expression.
+ - An empty canvas is a living wonder – far lovelier than certain pictures.
+ - Each period of a civilisation creates an art that is specific in it and which we will never see reborn. To try and revive the principles of art of past centuries can lead only to the production of stillborn works.
+ - The life of the spirit may be fairly represented in diagram as a large acute-angled triangle divided horizontally into unequal parts with the narrowest segment uppermost. The lower the segment the greater it is in breadth, depth, and area.
+ - It is essential that the painter should develop not only his eyes, but also his soul, so that it too may be capable of weighing colors in balance...
+ - The word compositon moved me spiritually and I made it my aim in life to paint a composition. It affected me like a prayer and filled me with awe.
+ - Colors produce a spiritual vibration, the impression they create is important only as a step towards this vibration.
+ - The arts are encroaching one upon another, and from a proper use of this encroachment will rise the art that is truly monumental.
+ - A painter, who finds no satisfaction in mere representation, however artistic, in his longing to express his inner life, cannot but envy the ease with which music, the most non-material of the arts today, achieves this end. He naturally seeks to apply the methods of music to his own art.
+ - Today is the great day of one of the revelations of this world. The interrelationships of these individual realms were illumined as by a flash of lightning; they burst unexpected, frightening, and joyous out of the darkness. Never were they so strongly tied together and never so sharply divided...
+ - When I was thirteen or fourteen I bought a paintbox with oil paints from money slowly saved up. The feeling I had at the time – or better – the experience of color coming slowly out of the tube – is with me to this day.
+ - I applied streaks and blobs of colors onto the canvas with a palette knife, and I made them sing with all the intensity I could...
+ - Painting took on a fabulous strength and splendor; the object was discredited as an indispensable element of the picture.
+ - The organic laws of construction tangled me in my desires, and only with great pain, effort, and struggle did I break through these ’walls around art.
+
+81 quotes

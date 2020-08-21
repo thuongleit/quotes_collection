@@ -1,0 +1,21 @@
+ - If the cake fits, eat it!
+ - I hate France. It’s like the whole country’s on a diet.
+ - The dog always dies. Go to the library and pick out a book with an award sticker and a dog on the cover. Trust me, that dog is going down.
+ - Be the Ambulance. Make toast.
+ - In our family, you don’t get a childhood. We’re too busy trying to dominate the world.
+ - We don’t have to love it. We just have to steal it.
+ - Ask yourself: ‘Do I feel the need to laminate?’ Then teaching is for you.
+ - The thing about a cavity search is this: it has nothing to do with the dentist.
+ - If it isn’t on YouTube, it might as well have never happened.
+ - Ask me. I’m a cow expert.
+ - Dan was suspicious. “How did he find out where we were staying?” Amy frowned. “I think that’s the message inside the message. He wants us to know that he has a long reach–that’s he’s rich and powerful.” “Like we’ll see his giant mansion and assume he works at Burger King,” scoffed Dan.
+ - Jonah peered critically up at the Renaissance masterpiece. “Man, those copies don’t due it justice. This one’s the truth!” “Only a Janus,” groaned Hamilton.
+ - You don’t get Billie Joe Armstrong’s autograph on your forehead without following your instincts.
+ - No fair! Those guys ripped off what we rightfully stole!
+ - They crested a rise, and there it was, in the hollow between rolling hills – a low, square building, ghostly gray in the moonlight. “Is that it?” asked Hamilton. “It probably isn’t the local opera house,” groaned Ian.
+ - Art theft gave a guy an appetite.
+ - For someone who’e smarter than a supercomputer, sometimes you’re a real idiot.
+ - Amy, since when do you have a boyfriend?
+ - Sinead broke in. “The cops need to know what to do with Evan, Amy. What should I tell them?” “Shoot to kill?” Ian suggested.
+
+19 quotes

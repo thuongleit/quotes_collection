@@ -1,0 +1,22 @@
+ - Men of science have made abundant mistakes of every kind; their knowledge has improved only because of their gradual abandonment of ancient errors, poor approximations, and premature conclusions.
+ - Erudition without pedantry is as a rare as wisdom itself.
+ - The most malicious kind of hatred is that which is built upon a theological foundation.
+ - There are but few saints amongst scientists, as among other men, but truth itself is a goal comparable with sanctity.
+ - Greek culture is pleasant to contemplate because of its great simplicity and naturalness, and because of the absence of gadgets, each of which is sooner or later a cause of servitude.
+ - The main, as well as the least obvious, achievement of the Middle Ages was the creation of the experimental spirit and this was primarily due to the Muslims down to the 12th century.
+ - It is childish to assume that science began in Greece; the Greek “miracle” was prepared by millenia of work in Egypt, Mesopotamia and possibly in other regions. Greek science was less an invention than a revival.
+ - From the humanistic point of view every human achievement is unforgettable and immortal in its essence, even if it is replaced by a “better” one.
+ - The rationalism of the creative minds was tempered by abundant fantasies, and the supreme beauty of the monuments was probably spoiled by the circumambient vanities and ugliness; in a few cases the Greeks came as close to perfection as it was possible to do, yet they were human and imperfect.
+ - The darkness, of which the historians complain, is essentially the darkness of their own ignorance.
+ - A deed happens in a definite place at a definite time, but if it be sufficiently great and pregnant, its virtue radiates everywhere in time and space.
+ - If we are generous enough, we can stretch our souls everywhere and everywhen else. If we succeed in doing so, we shall discover that our present embraces the past and the future and that the whole world is our province.
+ - Some forty years of experience in my field as a scholar and as a teacher have given me great confidence mixed with greater humility.
+ - Wisdom is not mathematical, nor astronomical, nor zoological; when it talks too much of any one thing it ceases to be itself. There are wise physicists, but wisdom is not physical; there are wise physicians, but wisdom is not medical.
+ - On the basis of my historical experience, I fully believe that mathematics of the 25th century will be as different from that of today as the latter is from that of the 16th century.
+ - The historical order is very interesting, but accidental and capricious; if we would to understand the growth of knowledge, we cannot be satisfied with accidents, we must explain how knowledge was gradually built up.
+ - Scientific achievements seem evanescent, because the very progress of science causes their supersedure; yet some of them are of so fundamental a nature that they are immortal in a deeper way.
+ - The whole past and the whole world are alive in my heart, and I shall do my part to communicate their presence to my readers.
+ - I am obliged to deal with hundreds of men and to make them live without killing the reader.
+ - The whole iconography of ancient science is simply the fruit of wishful thinking.
+
+20 quotes

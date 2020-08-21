@@ -1,0 +1,30 @@
+ - Winning means being unafraid to lose.
+ - If you wait for the right time or the good times to start a business, you wait all your life.
+ - If it’s not fun, you are not doing it right.
+ - If football taught me anything about business, it is that you win the game one play at a time.
+ - It’s perfectly okay to want to quit – as long as you don’t.
+ - The greatness of America is capitalism, free market capitalism. The exceptionalism of American business.
+ - Ignoring facts does not make them go away.
+ - Leadership must be demonstrated, not announced.
+ - Profit isn’t and shouldn’t be the mission of business. The mission of business is to help people. To help your customers, your co-workers, your employees, and your partners. Success is not a number – it’s not X dollars or Y customers – it’s a measurement of VALUE.
+ - I discovered that the more I hustled, the luckier I seemed to get.
+ - Cultivate your desire for success to be greater than the fear of failure; Failure is merely a pitstop between where you stand and success. Failure allows you to learn the fastest; Failure inspires winners and defeats losers.
+ - Fear causes people to draw back from situations. It brings on mediocrity, it dulls creativity, it sets one up to be a loser in life.
+ - None of us really pushes hard enough. People always talk about playing over your head when you are up against someone really good. Maybe you don’t play over your head at all. Maybe it’s just potential you never knew you had.
+ - When everything else breaks down, I don’t hesitate to roam out of the pocket and do the boogaloo.
+ - You can only learn by opening yourself up to engage with different sources of information. How can you learn something if you never see it, read it, or hear it?
+ - In sports, teams win and individuals don’t.
+ - The failure to be perfect does not mean you are not a success; it is giving your best that helps you to understand the joy of receiving.
+ - The pro athlete is a sad tale. He signs a big contract and thinks he’s set for life. I didn’t think I was set for life, and I don’t now. As athletes, we are important, celebrities, in demand and rich. Then we are out of the game and we are not important, not celebrities, not in demand and not rich.
+ - It’s a lonesome walk to the sidelines, especially when thousands of people are cheering your replacement.
+ - You know, quarterbacks, I think greatness in quarterbacks is taking what you’ve got, whether it’s a great team, a good team, or a struggling team and make them better.
+ - Maybe you can’t play over your head at all. Maybe it’s just potential you never knew you had.
+ - Television isn’t my career. Business is.
+ - Success, in my view, is the willingness to strive for something you really want.
+ - That’s how I judge a quarterback: Either you make plays or you don’t. I don’t even want to talk about mechanics.
+ - What’s so wonderful about business is that every time I start thinking I’m special, I get knocked on my ass.
+ - Quarterbacks need to make their team better. If it’s a bad team, they can even make a bad team better.
+ - Great quarterbacks, good quarterbacks, make plays.
+ - The New York Times Bestseller ‘The Amateur,’ written by Ed Klein, former editor of the ‘New York Times Magazine,’ is one of the best books I’ve read.
+
+28 quotes

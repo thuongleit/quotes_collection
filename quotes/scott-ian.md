@@ -1,0 +1,32 @@
+ - Metal guys are huge nerds. A good percentage of them are either horror or sci-fi or comic book or fantasy nerds.
+ - Why would heavy metal ever go away?
+ - I really don’t worry about what people say or what they have to say or what they think – it just doesn’t matter.
+ - I will absolutely say that Johnny Ramone was a huge influence on me. I’m a giant Ramones fan.
+ - Anthrax, it’s something that gets you sick, it’s horrible, strong. It’s a heavy-metal band name if there ever was one.
+ - I’ve always been a true believer that if men had babies, nobody would be trying to tell them what they can and can’t do with their bodies.
+ - Music and songs are written at different periods of time, at different times in your life. They reflect the feelings you have and to be honest, I quite like having positive emotions.
+ - Everything I do is metal. When I clean my house, it’s metal.
+ - I’m not the kind of guy who sits around at home and writes songs. Once in a while I’ll pick up a guitar and noodle around, but it’s rare.
+ - I’m just not a big fan of the too-cool-for-school indie world. Metal bands have never been invited or been able to be part of the cool kids, and I like it that way.
+ - I think the best riffs and the best songs come when you’re jamming and having a good time.
+ - What I love about ‘The Walking Dead’ is it’s a human story, which is to me what makes the comic book so good, but once you jump from the pages of the book to the screen, the gore and the zombies have to look great.
+ - A guitar for me is pretty much strictly in the context of writing songs for my band, coming up with ideas with my band, and then being able to perform those songs as best as I can on stage – that’s what the guitar for me has always been.
+ - I could care less about sitting around and practicing the guitar for hours a day and trying to be the best guitar player on the planet.
+ - I kind of live in this weird world where I am exposed to a lot of stuff, but then again I am not exposed to a lot of stuff.
+ - To me, the guitar is a tool for songwriting, and it’s fun, too. The day that it’s not fun, that’s when I’m not gonna play guitar anymore.
+ - To be honest, I’m one of the least-technical guitar players around. I just want a guitar to feel good and sound good. That’s it, period.
+ - What is it about a zombie that appeals to me? I don’t know. Maybe that it’s just the most possible – I don’t know – of all the supernatural entities.
+ - When you’re younger – duh – you don’t really have the tools to deal with certain things in your life.
+ - People think of Jews as the Woody Allen stereotype, the nebbishy kind of thing, but that’s not the kind of Jews I know. I know plenty of Israelis and plenty of tough guys that are Jewish. So, I think it makes sense that Jews play metal.
+ - I don’t even know who that person was in the ’80s. I see pictures of myself from back then and I don’t even recognize myself.
+ - Nobody gets into a band and thinks they’re going to have a 30-year career.
+ - I love what I do, somehow I have been able to play in a band for my entire life and that is all I ever wanted to do. I love that I get to do that.
+ - I’m certainly not a practicing Jew. I would never claim, ‘I’m Jewish.’ That’s not the first and foremost thing in my mind, as far as who I am as a person.
+ - If someone wants to sticker a record for whatever reason, that’s fine. But once it affects someone’s opportunity to, you know, get that record, then I have a problem with it.
+ - I have enough to think about – I just don’t ever want to have to think about my car.
+ - My grandfather was Orthodox, and he was religious, but neither of my parents were. Of course, as they got older, it seems like they get more religious the older they get, even though they’re still not practicing Jews.
+ - As big as Metallica are, they’re still not like a pop act. As big as they are, they’re still not U2 or Lady Gaga. It’s still underground.
+ - Even as a kid, if I would come across something cool in the record store, that would be how I found out about bands. It’s kind of the same way these days. In a way even less because there are no record stores to go to anymore.
+ - Theres a thousand other things I would rather spend money on than a car.
+
+30 quotes

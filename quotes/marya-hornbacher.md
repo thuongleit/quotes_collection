@@ -1,0 +1,62 @@
+ - I either want to be completely recovered or completely emaciated. It’s the in between that I can’t stand, the limbo of failure where you know that you haven’t done your best at one or the other: dying or living.
+ - There is, in fact, an incredible freedom in having nothing left to lose.
+ - In truth, you like the pain. You like it because you believe you deserve it.
+ - You will not stop. The pain is necessary, especially the pain of hunger. It reassures you that you are strong, can withstand anything, that you are not a slave to your body, you don’t have to give in to its whining.
+ - The biggest fear of my life is living. My second biggest fear is dying.
+ - Hatred is so much closer to love than indifference.
+ - We turn skeletons into goddesses and look to them as if they might teach us how not to need.
+ - You will miss her sometimes. Bear in mind she’s trying to kill you. Bear in mind you have a life to live.
+ - Falling in love happens so suddenly that it seems, all at once, that you have always been in love.
+ - There is, in the end, the letting go.
+ - Never, never underestimate the power of desire. If you want to live badly enough, you can live. The great question, at least for me, was: How do I decide I want to live?
+ - And yet you are all that you have, so you must be enough. There is no other way.
+ - For me, the first sign of oncoming madness is that I’m unable to write.
+ - I’m a driven perfectionist, very self-critical.
+ - We know we need, and so we acquire and eat and eat, past the point of bodily fullness, trying to sate a greater need. Ashamed of this, we turn skeletons into goddesses and look to them as if they might teach us how to not-need.
+ - I mean, we all know the dangers of starving, but bulimia? That can’t be that bad. It’s only bad when you get really thin. Who worries about bulimics? They’re just gross.
+ - Anorexia and bulimia seem to be getting much more common in boys, men, and women of all ages and socioeconomic backgrounds; they are also becoming more common in racial groups previously thought to be impervious to the problem.
+ - But new love only lasts so long, and then you crash back into the real people you are, and from as high as we were, it’s a very long fall, and we hit the ground with a thud.
+ - That nothing – not booze, not love, not sex, not work, not moving from state to state – will make the past disappear.
+ - We think of bulimia and anorexia as either a bizarre psychosis, or as a quirky little habit, a phase, or as a thing that women just do. We forget that it is a violent act, that it bespeaks a profound level of anger toward and fear of the self.
+ - I am feeling fine. I remember these words and recite them. These are the things you say when asked how you are. After all, it would be odd to say: I’m not feeling. Or, more to the point: I’m not, I have ceased to be. Where am I?
+ - I have a remarkable ability to delete all better judgement from my brain when I get my head set on something. I have no sense of moderation, no sense of caution. I have no sense pretty much.
+ - I know how this feels: the tightening of the chest, the panic, the what-have-I-done-wait-I-was-kidding. Eating disorders linger so long undetected, eroding the body in silence, and then they strike. The secret is out. You’re dying.
+ - And so I went through the looking glass, stepped into the netherworld, where up is down and food is greed, where convex mirrors cover the walls, where death is honor and flesh is weak. It is ever so easy to go. Harder to find your way back.
+ - I know for a fact that sickness is easier, but health is more interesting.
+ - I began to measure things in absence instead of presence.
+ - I get absolutely shitfaced. I am shitfaced and hyper and ten years old. I am having the time of my life.
+ - I think many people with a chronic illness would prefer not to have their chronic illness, simply because it’s high maintenance.
+ - People take the feeling of full for granted.
+ - Because I’m not, in fact, depressed, Prozac makes me manic and numb – one of the reasons I slice my arm in the first place is that I’m coked to the gills on something utterly wrong for what I have.
+ - I had a love affair with books, with characters and their words. Books kept me company. When the voices of the book faded, as with the last long chord of a record, the back cover crinkling closed, I could swear I heard a door click shut.
+ - It is, at the most basic level, a bundle of contradictions: a desire for power that strips you of all power. A gesture of strength that divests you of all strength.
+ - You can’t teach an ear, you can’t teach talent, but you can teach people who have those things not to just fly by the seat of their pants.
+ - After a lifetime of silence, it is difficult then to speak.
+ - He leaned down and whispered to me: No matter how thin you get, no matter how short you cut your hair, it’s still going to be you underneath. And he let go of my arm and walked back down the hall.
+ - I grew into it. It grew into me. It and I blurred at the edges, became one amorphous, seeping, crawling thing.
+ - When you deal with nonfiction you deal with human characters.
+ - But in some ways, the most significant choices one makes in life are done for reasons that are not all that dramatic, not earth-shaking at all; often enough, the choices we make are, for better or for worse, made by default.
+ - So many means of self-destruction, so little time.
+ - Some people who are obsessed with food become gourmet chefs. Others become eating disorders.
+ - There are women in my closet, hanging on the hangers. a different woman for each suit, each dress, each pair of shoes. I hoard clothes. My makeup spills from the bathroom drawers, and there are different women for different lipsticks.
+ - You can only whine for so long. Then you need to get your life back.
+ - That’s the nice thing about dreams, the way you wake up before you fall.
+ - My brain sometimes departs from the agreed-upon reality, and my private reality is a very lonely place. But in the end, I’m not sure I wish I’d never gone there.
+ - All of us have theories about the world and about ourselves. We will go to great lengths to prove ourselves right because it keeps the world in our head coherent and understandable.
+ - Madness strips you of memory and leaves you scrabbling around on the floor of your brain for the snatches and snippets of what happened, what was said, and when.
+ - When you are mad, mad like this, you don’t know it. Reality is what you see. When what you see shifts, departing from anyone else’s reality, it’s still reality to you.
+ - The fact that you were essentially dead does not register until you begin to come alive.
+ - You wake up one morning and there it is, sitting in an old plaid bathrobe in your kitchen, unpleasant and unshaved. You look at it, heart sinking. Madness is a rotten guest.
+ - The madness is there, and will always be there. But it will keep sleeping, as long as I don’t wake it up.
+ - My parents say that even as a very, very little kid, the way that I acted was dramatically different from other little kids.
+ - Children take in more information than we’d like to believe.
+ - We were at another funeral party. I wasn’t sure who had died this time, but it was a suicide, and upsetting because it was completely out of season. No on killed themselves in summertime. It was rude.
+ - The joy is an absurd yellow tulip, popping up in my life, contradicting all the evidence that shows it should not be there.
+ - The anoretic operates under the astounding illusion that she can escape the flesh, and, by association, the realm of emotions.
+ - Having a normal person around me made it poingnantly clear to me that I was out of control.
+ - My students know I have a life, they know I’ve written about my life. They know some detail, probably more than they know about their physics teacher, but I would’ve told them anyway!
+ - I wish I could find words to explain what this kind of cold is like- the cold that has somehow gotten in underneath your skin and is getting colder and colder inside you.
+ - When you believe that you are not worthwhile in and of yourself, in the back of your mind you also begin to believe that life is not worthwhile in and of itself. It is only worthwhile insofar as it relates to your crusade. It is a kamikaze mission.
+ - I am often drawn to what appear at first to be ‘dark’ or ‘difficult’ subjects, but which, upon further examination, are always and only reflections of the ways human beings attempt, however clumsily, badly, or well, to connect with others.
+
+60 quotes

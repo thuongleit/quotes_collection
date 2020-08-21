@@ -1,0 +1,45 @@
+ - But America isn’t a country of family values; Mexico is a country of family values. This is a country of people who leave home.
+ - Mexico was most powerfully my father’s smile and not, as you might otherwise imagine, not language, not pigment.
+ - So, rather than becoming multicultural, rather than becoming a person of several languages, rather than becoming confident in your knowledge of the world, you become just the opposite. You end up in college having to apologize for the fact that you no longer speak your native language.
+ - Learning can cause social fracture. Your people start expressing themselves.
+ - A primary reason for my success in the classroom was that I couldn’t forget that schooling was changing me and separating me from the life I enjoyed before becoming a student.
+ - I think what education gives you is a voice. It gives you a way of talking to a judge. When a policeman pulls you off to the side of the road, you have a voice. When you cross a border, you have a voice. When you are writing to express your opinions, you have a voice.
+ - There are things so deeply personal that they can be revealed only to strangers.
+ - Though I am alive now, I do not believe an old man’s pessimism is nessessarily truer than a young man’s optimism simply because it comes after. There are things a young man knows that are true and are not yet in the old man’s power to recollect. Spring has its sappy wisdom.
+ - Bilingual-education advocates say it’s important to teach a child in his or her family’s language. I say you can’t use family language in the classroom – the very nature of the classroom requires that you use language publicly.
+ - I write about race in America in hopes of undermining the notion of race in America.
+ - Education is that human process of feeling your body mature, feeding your mind with ideas that it never had before, or information you never had. You simply cannot do that on a computer.
+ - But one does not forget by trying to forget. One only remembers.
+ - Human unhappiness is evidence of our immortality.
+ - In some countries, of course, Spanish is the language spoken in public. But for many American children whose families speak Spanish at home, it becomes a private language. They use it to keep the English-speaking world at bay.
+ - The drama of the essay is the way the public life intersects with my personal and private life. It’s in that intersection that I find the energy of the essay.
+ - The popular idea of a role model implies that an adult’s influence on a child is primarily occupational, and that all a black child needs is to see a black doctor, and then this child will think, “Oh, I can become a doctor too.”
+ - The Census Bureau is thinking of creating a new category because so many kids don’t know how to describe themselves using the existing categories. I call these kids the “Keanu Reeves Generation,” after the actor who has a Hawaiian father and a Welsh mother.
+ - I think it’s an important thing for a Mexican to say, especially now with the rebellion in Chiapas. Mexico has to confront her Indian face, and yet she refuses to do so. When you turn on Mexican television, it’s like watching Swedish TV: everyone is blond.
+ - My decision was sparked by affirmative action. There was a point in my life when affirmative action would have meant something to me – when my family was working-class, and we were struggling.
+ - When a society doesn’t know what to do with its young, it’s in real trouble. When the young don’t know what to do with society – at the very least, revolutions start there.
+ - The difference between being Mexican and being Chinese, as I can see it, is that when you go to Harvard from a Chinese family, the whole family goes to Harvard. When you’re a Mexican and you go to Harvard, you betray the family.
+ - I don’t deny people their fantasy life, but I do think that we desperately need to start realizing just how complicated our reality is in America. Sitcoms just don’t show us that.
+ - In the Sacramento of the 1950s, it was as though White simply hadn’t had time enough to figure Brown out. It was a busy white time. Brown was like the skinny or fat kids left over after the team captains chose sides. You take the rest – my cue to wander away to the sidelines, to wander away.
+ - My grandmother would always tell me that I was hers, that I was Mexican. That was her role. It was not my teacher’s role to tell me I was Mexican. It was my teacher’s role to tell me I was an American.
+ - I became a writer not because my father was one – my father made false teeth for a living. I became a writer because the Irish nuns who educated me taught me something about bravery with their willingness to give so much to me.
+ - Who knows what Yale thought it was getting when it hired Richard Rodriguez? The people who offered me the job thought there was nothing wrong with that. I thought there was something very wrong. I still do. I think race-based affirmative action is crude and absolutely mistaken.
+ - I don’t think writers should be convenient examples. I don’t think we should make people feel settled. I don’t try to be a gadfly, but I do think that real ideas are troublesome. There should be something about my work that leaves the reader unsettled. I intend that.
+ - Henry Ford didn’t just create a cheap way of getting away from your in-laws; he basically understood that there was something in us as a culture that wanted to be on the move, that wanted to get out.
+ - Now we have this idea that, not only do you go to first grade to learn your family’s language, but you go to a university to learn about the person you were before you left home.
+ - I worry these days that Latinos in California speak neither Spanish nor English very well. They are in a kind of linguistic limbo between the two. They don’t really have a language, and are, in some deep sense, homeless.
+ - It is very curious that the United States and Canada both assume that diversity means only race and ethnicity. They never assume it might mean more Nazis, or more Southern Baptists. That’s diversity too, you know.
+ - Language is a social event.
+ - You don’t know Mexico, man. You have trivialized Mexico. You are a fool about Mexico if you think that Mexico is five blocks. That is not Mexico; that is some crude Americanism you have absorbed.
+ - Of course, since we don’t see the Indian as a living figure – having turned the Indian into a kind of mascot for the ecology movement, a symbol of prehistory – we can’t see the Indian among us.
+ - So many of my friends tell me they’re not religious. I’m like, Of course you’re religious. You watch Oprah Winfrey, don’t you?
+ - I came from a white middle class neighborhood. Was I expected to go back there and teach the woman next door about Renaissance sonnets? The embarrassing truth of the matter was that I was being chosen because Yale University had some peculiar idea about what my skin color or ethnicity signified.
+ - I think brown marks a reunion of peoples, an end to ancient wanderings. Rival cultures and creeds conspire with Spring to create children of a beauty, perhaps of a harmony, previously unknown. Or long forgotten.
+ - What really terrifies Americans is the prospect that the Indian is very much alive, that the Indian is having nine babies in Guatemala, and that those nine babies are headed this way. This is one reason why Americans hold on so dearly to the myth of the dead Indian.
+ - The notion that you go to a public institution in order to learn private information about yourself is absurd. We used to understand that when students went to universities, they would become cosmopolitan. They were leaving their neighborhoods.
+ - I think the universities have co-opted the intellectual, by and large. But there is an emerging intellectual set coming out of Washington think tanks now. There are people who are leaving the universities and working for the government or in think tanks, simply looking for freedom.
+ - You learn in America to speak two ways. You learn in public discourse not to be very specific about your religious life. Or, if we talk about it, we’ll find a secular way of doing it that will not be offensive to people of non-belief. So, that you go through life with these alternate voices.
+ - It’s no surprise that at the same time that American universities have engaged in a serious commitment to diversity, they have been thought-prisons. We are not talking about diversity in any real way. We are talking about brown, black, white versions of the same political ideology.
+ - The Indians had to be either killed, or herded into reservations, which were essentially concentration camps, and forgotten. Their history had to be absolutely obliterated so that we could believe that we were living on virgin soil.
+
+43 quotes

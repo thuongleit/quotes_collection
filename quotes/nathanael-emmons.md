@@ -1,0 +1,25 @@
+ - Habit is either the best of servants or the worst of masters.
+ - Obedience to God is the most infallible evidence of sincere and supreme love to him.
+ - It is easy to learn something about everything, but difficult to learn everything about anything.
+ - Real holiness has love for its essence, humility for its clothing, the good of others as its employment, and the honor of God as its end.
+ - One principal reason why men are so often useless is that they neglect their own profession or calling, and divide and shift their attention among a multitude of objects and pursuits.
+ - I could never think well of a man’s intellectual or moral character, if he was habitually unfaithful to his appointments.
+ - Steady, patient, persevering thinking will generally surmount every obstacle in search of truth.
+ - You ask if we shall know our friends in heaven. – Do you suppose we are greater fools there than here?
+ - Be short in all religious exercises. Better leave the people longing than loathing.
+ - Make no display of your talents or attainments; for every one will clearly see, admire, and acknowledge them, so long as you cover them with the beautiful veil of modesty.
+ - These two rules make the best system: first, have something to say; second, say it.
+ - Selfishness is the root and source of all natural and moral evils.
+ - Style should be like window-glass, perfectly transparent, and with very little sash.
+ - Just definitions either prevent or put an end to disputes.
+ - Death stamps the characters and conditions of men for eternity. – As death finds them in this world, so will they be in the next.
+ - Moral conduct includes every thing in which men are active and for which they are accountable. They are active in their desires, their affections, their designs, their intentions, and in every thing they say and do of choice; and for all these things they are accountable to God.
+ - Insanity destroys reason, but not wit.
+ - In reasoning upon moral subjects, we have great occasion for candor, in order to compare circumstances, and weigh arguments with impartiality.
+ - The more men have multiplied the forms of religion, the more vital Godliness has declined.
+ - Any fact is better established by two or three good testimonies than by a thousand arguments.
+ - The weakest spot in every man is where he thinks himself to be the wisest.
+ - There is not a single spot between Christianity and atheism, upon which a man can firmly fix his foot.
+ - How vast is eternity! – It will swallow up all the human race; it will collect all the intelligent universe; it will open scenes and prospects wide enough, great enough, and various enough to fix the attention, and absorb the minds of all intelligent beings forever.
+
+23 quotes

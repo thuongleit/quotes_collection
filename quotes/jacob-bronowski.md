@@ -1,0 +1,74 @@
+ - Man masters nature not by force but by understanding. This is why science has succeeded where magic failed: because it has looked for no spell to cast over nature.
+ - It is important that students bring a certain ragamuffin, barefoot irreverence to their studies; they are not here to worship what is known, but to question it.
+ - Man is unique not because he does science, and his is unique not because he does art, but because science and art equally are expressions of his marvelous plasticity of mind.
+ - Man is a singular creature. He has a set of gifts which make him unique among the animals, so that unlike them, he is not a figure in the landscape, he is the shaper of the landscape.
+ - Science is the acceptance of what works and the rejection of what does not. That needs more courage than we might think.
+ - Man masters nature not by force, but by understanding.
+ - Dream or nightmare, we have to live our experience as it is, and we have to live it awake. We live in a world which is penetrated through and through by science and which is both whole and real. We cannot turn it into a game simple by taking sides.
+ - Science, like art, is not a copy of nature but a re-creation of her.
+ - The symbol and the metaphor are as necessary to science as to poetry.
+ - Science is a tribute to what we can know, although we are fallible.
+ - The basis for poetry and scientific discovery is the ability to comprehend the unlike in the like and the like in the unlike.
+ - Fifty years from now if an understanding of man’s origins, his evolution, his history, his progress is not in the common place of the school books we shall not exist.
+ - Dissent is the mark of freedom.
+ - There must be something unique about man because otherwise, evidently, the ducks would be lecturing about Konrad Lorenz, and the rats would be writing papers about B. F. Skinner.
+ - The most powerful drive in the ascent of man is his pleasure in his own skill. He loves to do what he does well. And having done it well, he loves to do it better.
+ - A man becomes creative, whether he is an artist or scientist, when he finds a new unity in the variety of nature. He does so by finding a likeness between things which were not thought alike before.
+ - There is no absolute knowledge. And those who claim it, whether they are scientists or dogmatists, open the door to tragedy.
+ - The force that makes the winter grow Its feathered hexagons of snow, and drives the bee to match at home Their calculated honeycomb, Is abacus and rose combined. An icy sweetness fills my mind, A sense that under thing and wing Lies, taut yet living, coiled, the spring .
+ - Mass, time, magnetic moment, the unconscious: we have grown up with these symbolic concepts, so that we are startled to be told that man had once to create them for himself. He had indeed, and he has: for mass is not an intuition in the muscle, and time is not bought ready-made at the watchmaker’s.
+ - The world can only be grasped by action, not by contemplation.
+ - Knowledge is not a loose-leaf notebook of facts. Above all, it is a responsibility for the integrity of what we are, primarily of what we are as ethical creatures.
+ - It is a mistake to think of creative activity as something unusual.
+ - The air in a man’s lungs 10,000,000,000, 000,000,000,000 atoms, so that sooner or later every one of us breathes an atom that has been breathed before by anyone you can think of who has ever lived – Michelangelo or George Washington or Moses.
+ - We gain our ends only with the laws of nature; we control her only by understanding her laws.
+ - A genius is a man who has two great ideas.
+ - Whether our work is art or science or the daily work of society, it is only the form in which we explore our experience which is different.
+ - I call that brilliant sequence of cultural peaks The Ascent of Man.
+ - The human baby, the human being, is a mosaic of animal and angel.
+ - Astronomy is not the apex of science or of invention. But it is a test of the cast of temperament and mind that underlies a culture.
+ - Nations in their great ages have not been great in art or science, but in art and science.
+ - Certainty ends inquiry.
+ - To imagine is the characteristic act, not of the poet’s mind, or the painter’s, or the scientist’s, but of the mind of man.
+ - There are three creative ideas which, each in its turn, have been central to science. They are the idea of order, the idea of causes, and the idea of chance.
+ - It is very much easier to divide your outlook on the world into two halves, to say that you know this belongs to the daily half and this belongs to the Sunday half.
+ - The painter’s portrait and the physicist’s explanation are both rooted in reality, but they have been changed by the painter or the physicist into something more subtly imagined than the photographic appearance of things.
+ - All science is the search for unity in hidden likenesses.
+ - One aim of physical sciences had been to give an exact picture the material world. One achievement of physics in the twentieth century has been to prove that that aim is unattainable.
+ - It is not the business of science to inherit the earth, but to inherit the moral imagination; because without that, man and beliefs and science will perish together.
+ - The paradox of knowledge is not confined to the small, atomic scale; on the contrary, it is as cogent on the scale of man, and even of the stars.
+ - The largest single step in the ascent of man is the change from nomad to village agriculture.
+ - The men who made the Industrial Revolution are usually pictured as hardfaced businessmen with no other motive than self-interest. That is certainly wrong. For one thing, many of them were inventors who had come into business that way.
+ - A popular cliche in philosophy says that science is pure analysis or reductionism, like taking the rainbow to pieces; and art is pure synthesis, putting the rainbow together. This is not so. All imagination begins by analyzing nature.
+ - The world today is made, it is powered by science; and for any man to abdicate an interest in science is to walk with open eyes towards slavery.
+ - To me, being an intellectual doesn’t mean knowing about intellectual issues; it means taking pleasure in them.
+ - It’s a sort of curious phenomenon that God is somehow not quite as nice as the devil; the devil doesn’t punish you for behaving well, but God punishes you for behaving badly.
+ - Knowledge is not a loose leaf notebook of facts.
+ - I grew up to be indifferent to the distinction between literature and science, which in my teens were simply two languages for experience that I learned together.
+ - The most remarkable discovery ever made by scientists was science itself.
+ - We are all shot through with enough motives to make a massacre, any day of the week that we want to give them their head.
+ - Every judgment in science stands on the edge of error, and is personal.
+ - The child is not a prisoner of its inheritance; it holds its inheritance as a new creation which its future actions will unfold.
+ - Nature is more subtle, more deeply intertwined and more strangely integrated than any of our pictures of her than any of our errors. It is not merely that our pictures are not full enough; each of our pictures in the end turns out to be so basically mistaken that the marvel is that it worked at all.
+ - Progress is the exploration of our own error.
+ - Satire is not a social dynamite. But it is a social indicator: it shows that new men are knocking at the door.
+ - Ask an impertinent question and you are on the way to the pertinent answer.
+ - To me the most interesting thing about man is that he is an animal who practices art and science and in every known society practices both together.
+ - In the moment of appreciation we live again the moment when the creator saw and held the hidden likeness.
+ - Science is a very human form of knowledge. We are always at the brink of the known; we always feel forward for what is to be hoped. Every judgment in science stands on the edge of error and is personal. Science is a tribute to what we can know although we are fallible.
+ - The idea that the universe is running down comes from a simple observation about machines. Every machine consumes more energy than it renders.
+ - The progress of science is the discovery at each step of a new order which gives unity to what had seemed unlike.
+ - Time is not bought ready-made at the watchmaker’s.
+ - One original thought is worth the sum total of human knowledge, because it advances the sum total of human knowledge by that one original thought.
+ - The preoccupation with the choice of a mate both by male and female I regard as a continuing echo of the major selective force by which we have evolved.
+ - There is a social injunction implied in the positivist and analyst methods. This social axiom is that :;:;:;:;:;:; We OUGHT to act in such a way that what IS true can be verified to be so.
+ - The central opposition between magic and science is the opposition between power and knowledge.
+ - Revolutions are not made by fate but by men.
+ - Nature has not fitted man to any specific environment.
+ - The great poem and the deep theorem are new to every reader, and yet are his own experiences, because he himself recreates them.
+ - A theory in its day helps to solve the problems of the day.
+ - Has there ever been a society which has died of dissent? Several have died of conformity in our lifetime.
+ - It doesn’t matter whether you’re talking about bombs or the intelligence quotients of one race as against another if a man is a scientist, like me, he’ll always say Publish and be damned.
+ - Power is the by-product of understanding.
+
+72 quotes

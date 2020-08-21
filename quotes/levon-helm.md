@@ -1,0 +1,44 @@
+ - If you pour some music on whatever’s wrong, it’ll sure help out.
+ - The power of music just kinda kills all those ills; it cures everything and you’ve got more energy just from the music. And, I’ve never seen it fail. It’s good for ya; real good for ya.
+ - Music is the language of heaven.
+ - If you give it good concentration, good energy, good heart and good performance, the song will play you.
+ - Those bad times are important. They give you a chance to practice, listen, take stock, have a life, get your feet back on the ground, and maybe you’ll live to tell the story.
+ - Good times don’t last long sometimes.
+ - If it doesn’t come from your heart, music just doesn’t work.
+ - New York, it was an adult portion. It was an adult dose. So it took a couple of trips to get into it. You just go in the first time and you get your ass kicked and you take off. As soon as it heals up, you come back and you try it again. Eventually, you fall right in love with it.
+ - The rock star stuff never came up for us. The Band was never attacked by groupies before, during or after any show that we ever played.
+ - I like to get within handshaking distance of the crowd. If it happens, they know it, we know it, and that’s all we came here for.
+ - When I was younger, I used to drive up to a bunch of turkeys, roll down the window and say something. They’d all gobble back at once.
+ - My dad and I played music. He teaches me a song or two every time I’m home.
+ - You can either make it come around or you can’t. By the time we would be ready to record a song, we would know for sure that it was the best way we could do it.
+ - I never subscribe to the stay-at-home policy. I’m not sick of the road or sick of eating in good restaurants around the country. I like to travel.
+ - Drums just always sounded like the most fun part of that good music for me.
+ - If things are going slow, I’m itchy.
+ - I don’t fool with a lot of things that I can’t have fun with. There’s not much reward in that.
+ - I love horns, and the bigger the band, the better it sounds to my ear.
+ - I’m not in it for my health. I’m a musician and I wanna live the way I do.
+ - Most of our stuff was trial and error. You live with a tape recorder, you turn it on, you play the song and you listen to it.
+ - Anytime I switch to another instrument, I immediately turn it into another kind of drum so that I can understand it better.
+ - I played some Yamaha drums that I like a lot. And I like the Yamaha people a lot too. They’ve been really nice to me and The Band.
+ - Forever Young, by Dylan, is one of my favorite songs.
+ - By the time The Band did The Last Waltz, the chemistry had changed, and it wasn’t a thrill anymore to live that studio kind of life.
+ - Conway Twitty was always our local hero while I was growing up. He had a series of good bands. I wanted to sit in, if Conway would let me. And he did a couple of times.
+ - The Jungle Bush Beaters didn’t last too long as a group, but we had a pretty good time while we did.
+ - When the second record came out, they started calling it The Band. I voted to call it The Crackers. I’m no fool.
+ - With horns and a full rhythm section, the drums always looked like the best seat in the house.
+ - If you feel like you’re getting into a rut with a song, a night off usually fixes it.
+ - I was in high school, trying to get out of high school. The only thing slowing me up was grades.
+ - The Band never really played big concert tours. We never sold millions and millions of albums.
+ - I don’t think I’m a millionaire, but I’m comfortable.
+ - Drums usually seem to tune themselves.
+ - We’re all dealt with the same hand here, so to speak. I feel like I’ve had it a lot better than most people. I’ve had the opportunity to travel and play music all my life.
+ - I’ve had all the lessons I could get. I’ve learned from everybody I’ve ever met.
+ - Songs don’t wear out. Good songs are good now. If they were a comfort during those hard times in the past, they’ll be a comfort in today’s age.
+ - Dad and mom would have preferred that I be a doctor, a lawyer, a scientist, or a great humanitarian.
+ - The crowd is just as important as the group. It takes everything to make it work.
+ - I don’t hear record companies coming up with any good ideas or suggestions. Historically, if it ain’t their idea, it ain’t no good, so you got that to contend with.
+ - I like walking on the edge.
+ - My parents wanted me to be smart and be a scholar, and the best I could do was graduate high school.
+ - Lord, when the song wants to pick up and go a little faster towards the end, it’s hard for me to resist.
+
+42 quotes

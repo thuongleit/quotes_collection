@@ -1,0 +1,44 @@
+ - Don’t wait on perfect conditions for success to happen; just go ahead and do something!
+ - True professional selling is simply sharing enthusiasm.
+ - Continual learning is the key to continual living.
+ - Change, even if unwelcome, forces us to reevaluate what our best options are. Those times of transitions are great opportunities to look for recurring patterns in your life and make adjustments to build on the good and reduce the bad.
+ - Unfounded fears about your competence and abilities can cripple your unique talents and gifts, which are waiting to be released.
+ - No man can Become Rich without enriching others.
+ - Success is never an accident. It typically starts as imagination, becomes a dream, stimulates a goal, grows into a plan of action – which then inevitably meets with opportunity. Don’t get stuck along the way.
+ - No high achiever ever woke up in the morning and said ‘let’s see what happens.’
+ - Don’t be so busy trying to make a living that you’re too busy to make a life.
+ - Perfectionism is not as much the desire for excellence, as it is the fear of failure couched in procrastination .
+ - I started in the industry in Public Relations, Quality Assurance, Information Systems and furniture moving. I tried my hand in design and haven’t looked back. I’m fond of hackysack, racquetball, BBQ grilling, hanging out with my wife and friends.
+ - How sad that we often diminish our best gifts by struggling valiantly to develop in someone else’s area of ability. It is better to focus on your uniqueness and do that with excellence than to end up with mediocrity in several areas.
+ - Meaningful work is within your grasp.
+ - Don’t settle for comfortable misery, a sad state where you’re hanging on to what is most predictable and familiar at the risk of letting exciting opportunities pass you by.
+ - Sorrow, anger and resentment look back, worry looks around, while faith, hope, and optimism look to the future.
+ - Our expectations determine how we respond. Be careful what you expect.
+ - Choosing to associate with positive, optimistic people will accelerate our positive growth.
+ - A goal is a dream with a timeframe on it.
+ - No individual can achieve worthy goals without accepting accountability for his or her own actions.
+ - Money is ultimately not enough compensation for investing your time and energy: there has to be a sense of purpose, meaning and fulfillment.
+ - In one line of his poem he said good fences make good neighbors. I’d like to think that Alaska and British Columbia working together can prove that we can be pretty darned good neighbors without fences.
+ - Circumstances will never determine your amount of happiness. Circumstances only highlight who you already are.
+ - The loss of a job may be the wake up-call needed to redeem the fire of your genius.
+ - Success doesn’t sneak up on us; it starts as a dream that we combine with a clear plan of action.
+ - Embrace the work opportunity you have today. It may be the stepping-stone you need on your way to success.
+ - If we have no identity apart from our jobs, we are truly vulnerable.
+ - We’re also fairly stubborn, I think, fairly independent. We have our share of difficulties with our federal government, although I’ve tried to as I am here encourage a better way of discussing those problems.
+ - Find ways to embrace the things that make you unique, and you’ll unlock the ways you can make a difference in the world.
+ - The people who complain the loudest about never having an opportunity in life are usually the ones who have no idea what they really want.
+ - To look for a job before looking deeply inward is likely to short-circuit the process of finding your calling.
+ - The heart of our relationship, this natural environment that has blessed us really all along the west coast of North America, on both sides of the border we’ve realized that this incredible natural wealth comes with a price.
+ - Don’t be indecisive and unstable in all your ways. Rather, walk in the strength, confidence, and boldness that come from decisive action.
+ - It’s easy to focus on the things that divide us. Sometimes too easy.
+ - Your security is determined by your ability to define what it is you do that has value. The clearer you can be on what it is you do well and what provides value for someone else, the more security you have.
+ - Opportunity lies between your own two ears.
+ - The difference between the successful and the troubled is not error-free living; it is that by discovering and implementing a life calling, the successful stand on their pile of trash while the troubled sit under theirs.
+ - In today’s work arena, creativity may be more of an asset than competence.
+ - Have you ever noticed that even if God allows you to have a dream, you’re expected to work to make it happen?
+ - The key to success is to be true to who you really are.
+ - My underwear is my own person buisness.
+ - Passion is more developed than discovered.
+ - I like getting on my high horse. I look good on it. Like a knight...
+
+42 quotes

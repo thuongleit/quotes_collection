@@ -1,0 +1,22 @@
+ - Done right, a performance review is one of the best opportunities to encourage and support high performers and constructively improve your middle- and lower-tier workers.
+ - Understanding your employee’s perspective can go a long way towards increasing productivity and happiness.
+ - You know, as most entrepreneurs do, that a company is only as good as its people. The hard part is actually building the team that will embody your company culture and propel you forward.
+ - The best cover letters I’ve read are from people who have a passion for my company, and can make that passion come to life on a page. The letters that make me say, ‘Yes! This person really gets it.’ Because, at the end of the day, I want to hire people who already get it. Most hiring managers do.
+ - If you’re able to arrange a trial period with a new hire, do it. It will give both of you a chance to make sure the position is a good fit – and can help you avoid being in the awkward situation of wanting to fire someone three or four weeks in.
+ - So many of my rookie mistakes could have been avoided by first-hand exposure to other, more experienced technology entrepreneurs.
+ - For those working menial jobs or putting in 100-hour weeks for corporations, the lure of starting your own business can seem like a great way to get more flexibility, upside, and ownership.
+ - What do I want to do with my life?
+ - Get your product in front of actual, living, breathing strangers. Your college roommate’s approval does not mean there’s market demand.
+ - When you start a new company, you have to do it all. Yes, all of it.
+ - One of the top causes of startup death – right after cofounder problems – is building something no one wants.
+ - Call it nature or nurture, there are differences in how men and women approach professional conduct, and facing these issues head-on will make us all more equipped to succeed.
+ - We knew when we started the Daily Muse, we wanted a recruiting-focused business model rather than an advertising-focused one. We felt like publishers were being forced to go to more and more extreme lengths to monetize through advertising.
+ - It’s fantastic to be known as a company that responds quickly to users, shares great resources and friendly banter with them over Twitter, and forges relationships on Pinterest, Facebook, and every other social media site out there.
+ - Sure, you’re an intelligent and highly capable individual, and you are learning a lot on the fly as you build your company. But you also need to come to terms with the fact that there are things you have chosen not to be an expert in.
+ - As we’ve grown ‘The Daily Muse’ and met contacts who want to collaborate with us, knowing who does what has helped us be clear on who we want our partners to connect with – and makes us look buttoned up, too. SEO firm? Talk to our COO. An editor from the ‘Huffington Post?’ Meet our Editor-in-Chief.
+ - Thinking big is only one part of being a successful entrepreneur.
+ - Sure, it’s fun to chat with people with interesting backgrounds who seem to have a passion for your company. But a job interview is not a friendly chat. You need to determine whether candidates, can they really do the job. So ask them to prove it.
+ - Much-derided chick lit, chick flicks, and chick magazines have left ambitious women in a bind. Why is it that I, a young woman, can read ‘GQ,’ enjoy ‘Fight Club,’ and subscribe to ‘Thrillist,’ while the idea of a guy doing the same with ‘Glamour,’ ‘27 Dresses’ and ‘Daily Candy’ is nearly unheard of?
+ - Keeping a ‘CEO blog’ or ‘founder’s blog’ can be a great platform for engaging your users in a nontraditional way, reaching people outside of your product pitch and building rapport without selling them anything except a belief in your ideas.
+
+20 quotes

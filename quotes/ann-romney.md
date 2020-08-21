@@ -1,0 +1,55 @@
+ - Everybody has problems. Everyone has issues.
+ - There is huge merit in both Eastern and Western medicine, and I’ve taken a little bit from both.
+ - It can be here today and gone tomorrow.
+ - Women wear many hats in their lives. Daughter, sister, student, breadwinner. But no matter where we are or what we’re doing, one hat that moms never take off is the crown of motherhood. There is no crown more glorious.
+ - Dreams fulfilled, help others launch new dreams.
+ - Motherhood was my career. I’m totally satisfied with that.
+ - How I measure riches is by the friends I have and the loved ones I have and the people that I care about in my life, and that’s where my values are and that’s where my riches are.
+ - You just deal with the cards that are dealt you and you just go on and push forward.
+ - We all have burdens and we need to learn to carry each other’s burdens, lighten each other’s load.
+ - Multiple Sclerosis is obviously close to my heart and I’m determined to make a difference in the lives of people who suffer from the disease by raising the profile of MS, as well as raising funds for advocacy and research.
+ - In marriage, it’s always that give and take and rebalancing that we have to do in how we can help each other. But, I have been known at times by my sons, that is the name that they call me-the Mitt stabilizer.
+ - We are all children of the same God, and we have to come together to solve our problems and not be fighting so much.
+ - We’re too smart to know there aren’t easy answers. But we’re not dumb enough to accept that there aren’t better answers.
+ - I do recognize the most valuable work being done across the country is that work being done inside the four walls in our homes. And let us not forget how important the work of the mother and father are to raising responsible citizens.
+ - The secret to a happy marriage is a sense of humor, because marriage throws you curveballs. It is not easy.
+ - I am the granddaughter of a Welsh coal miner who was determined that his kids get out of the mines. My dad got his first job when he was six years old, in a little village in Wales called Nantyffyllon, cleaning bottles at the Colliers Arms.
+ - Raising children is the hardest job that there is on the face of the Earth.
+ - Once your health is taken away, you have nothing.
+ - It may look perfect, but that’s one thing I have learned about life is that it isn’t always what it looks.
+ - I made a choice to stay home and raise five boys. Believe me, it was hard work.
+ - You can never ask God to tell you what the end is. You can ask, “Is this a good thing to do?” But not, “How is this going to turn out?” That answer you will never get.
+ - If I were a 40-year-old woman, 40-to-50, I’d want to be getting my mammograms. They catch cancers, and cancer is very curable if you catch it early.
+ - My faith experience, well, as you can imagine, you need a lot of faith to raise five boys.
+ - The greatest advantage of being First Lady is the opportunity it presents to truly make a difference on issues of great importance.
+ - We give 10 percent of our income to our church every year. Do you think that is the kind of person who is trying to hide things, or do things?
+ - I read somewhere that Mitt and I have a ‘storybook marriage.’ Well, in the storybooks I read, there were never long, long, rainy winter afternoons in a house with five boys screaming at once. And those storybooks never seemed to have chapters called MS or breast cancer.
+ - As his partner on this amazing journey, I can tell you Mitt Romney was not handed success. He built it.
+ - A storybook marriage? No, not at all. What Mitt Romney and I have is a real marriage.
+ - Everyone in life has their challenges, mine have not been financial.
+ - When you’re used to being healthy and strong and vibrant and everything and then – bang – overnight you’re desperately ill, it’s frightening.
+ - We can be poor in spirit, and I don’t even consider myself wealthy, which is an interesting thing, it can be here today and gone tomorrow.
+ - I know what it’s like to finish the laundry and to look in the basket five minutes later and it’s full again. I know what it’s like to pull all the groceries in, and see the teenagers run through, and all of a sudden, all of the groceries you just bought a few hours ago are gone.
+ - We need to respect choices that women make.
+ - Everywhere I go people come up to me, they mob me – anyone who has MS or has a relative with MS – they come up and hug and cry.
+ - Sometimes when I hear criticism of my husband, I want to come out of my seat and clock somebody. But you learn to take a deep breath.
+ - The thing that’s nice about pregnancy is that in the end, you have a baby.
+ - I am so mad at the press I could just strangle them!
+ - I’d sit on a horse and forget I was even sick.
+ - Riding exhilarated me; it gave me a joy and a purpose.
+ - I love the fact that there are also women out there that don’t have a choice and they must go to work and they still have to raise the kids. Thank goodness that we value those people too.
+ - If you really want to know how a person will operate, look at how they’ve lived their life.
+ - Mitt doesn’t like to talk about how he has helped others because he sees it as a privilege, not a political talking point.
+ - I know for certain people I’m championing a struggle that they’re going through.
+ - I eat as healthy as I can. It is tough.
+ - You know how exasperated you can be when you’re the mother of five young boys.
+ - It’s the moms who always have to work a little harder, to make everything right.
+ - When I was so fatigued that I couldn’t move, the excitement of going to the barn and getting my foot in the stirrup would make me crawl out of bed.
+ - We’ve given all you people need to know and understand about our financial situation and how we live our life.
+ - I think we recognize as Americans there are certain things that are just primary to the freedoms and liberties that we enjoy here and religious freedom is one of the most important things we as Americans cherish.
+ - There have been so many people that have come up and embraced me as an example of what it’s like to face something tough and just get up the next day and keep pushing.
+ - I know what it’s like to struggle and to have those concerns that all mothers have.
+ - I think we identify ourselves by labels or things that we are able to do: I am this. I am a good cook. I am a good mother. I am a good this. I am a good doctor. I am a good lawyer. When you can’t do those things anymore, you wonder where your identity is.
+ - My kids don’t drink and don’t smoke. For me, that’s a great blessing.
+
+53 quotes

@@ -1,0 +1,38 @@
+ - You see, time is an ocean, not a garden hose. Space is a puff of smoke, a wisp of cloud.
+ - Start working on whatever you hesitate Because there is an ending to every beginning. When you make it to the end, You will realize the hesitation was a waste of time.
+ - That ability to see the right choice, but not until several hours have passed since making the wrong one? That’s what makes a person a dumbass, folks.
+ - Son, the greatest trick the Devil pulled was convincing the world there was only one of him.
+ - But remember, there are two ways to dehumanize someone: by dismissing them, and by idolizing them.
+ - My melon soul Crushed by your Gallagher of apathy.
+ - The phrase ‘sodomized by a bratwurst poltergeist’ suddenly flew through my mind.
+ - Something coming back from the dead was almost always bad news. Movies taught me that. For every one Jesus you get a million zombies.
+ - Kittens will make your sad go away.
+ - Let’s say you have an ax. Just a cheap one, from Home Depot. On one bitter winter day, you use said ax to behead a man. Don’t worry, the man was already dead. Or maybe you should worry, because you’re the one who shot him.
+ - If I knew me as somebody else, I would hate me just as much. Why have a double standard?
+ - You see, Frank found out the hard way that the dark things lurking in the night don’t haunt old houses or abandoned ships. They haunt minds.
+ - When a man plans, a woman laughs.
+ - All of society is built to prop up that lie, the whole world a big, noisy puppet show meant to distract us from the fact that at the end, you’ll die, and you’ll probably be alone.
+ - Solving the following riddle will reveal the awful secret behind the universe, assuming you do not go utterly mad in the attempt. If you already happen to know the awful secret behind the universe, feel free to skip ahead.
+ - I wanted to curl up into a fetal position and start sucking my thumb, let my tears and dripping saliva pool under me. Sorry. I tried living, tried being sentient. Can’t do it. Can’t live in the same universe with that.
+ - There is no word in the English language for the feeling someone gets when they suddenly realize they’re standing next to an unholy monster impersonating a human. Monstralization, maybe?
+ - Antidepressants. The thought of this girl actually being depressed made me want to grab the whole planet and throw it into the sun. Well, more than usual anyway.
+ - Which would prove I’m a monster, Arnie? Sacrificing the people I love for the fight? Or walking away from the fight to save the people i love?
+ - John flung himself into a pseudo-karate stance, one hand poised behind him and one in front, posed like a cartoon cactus. I thought for an odd moment he had moved his limbs so fast they had made that whoosh sound through air but then I realized John was making that sound with his mouth.
+ - Cynicism does not cause inaction...
+ - Children die every day because millions of us tell ourselves that caring is just as good as doing.
+ - Are the most dangerous creatures the ones that use doors or the ones that don’t?
+ - You know if you walked around the world, your hat would travel thirty-one feet farther than your shoes?
+ - You’re the kind of man a man wants when a man wants a man.
+ - Falling in love with a house or a car or a pair of shoes, it was a dead end. You save your love for the things that can love you back.
+ - Tried to escape, to block out the fact that I was being eaten alive by arachnids. For some reason the only thing I could replace it with was the image of being eaten by tiny clowns.
+ - Here’s exclusive Channel 5 video of a local man having his brain eaten by a winged gremlin. Local gremlin experts warn that –.
+ - They came looking for dark and terrible revelations and instead found out something even more dark and terrible: that their lives were trite and boring.
+ - I once saw Arnold Schwarzenegger kill a man in a movie by grabbing his head and twisting it until the neck broke. Was that difficult? Could a man do it without a lot of practice?
+ - And watch out for Molly. See if she does anything unusual. There’s something I don’t trust about the way she exploded and then came back from the dead like that.
+ - Welcome to freakdom, Dave. It’ll be time to start a Web site soon, where you’ll type out everything in one huge paragraph.
+ - Guys like him, the ones who grip the Bible so tight they leave fingernail grooves, they’re the ones who are the most scared of their dark side. Always going too far the other way, fighting for the Lord, often just because it gives them an excuse to fight.
+ - War is about remaking the world to suit the whims of some powerful group over the whims of some other powerful group. The dead are just the sparks that fly from the metal as they grind it down.
+ - John’s old Caddie had a huge engine that would qualify as a human rights violation if built today. It roared down the road, chugging gas and farting a blue cloud of dinosaur souls.
+ - To this day I don’t know if he was struggling with the moral implications of gunning down half a dozen civilians, or if he was mentally counting to see if he had that many shells left in the gun.
+
+36 quotes

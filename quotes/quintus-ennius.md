@@ -1,0 +1,27 @@
+ - He who has two languages has two souls.
+ - The victor is not victorious if the vanquished does not consider himself so.
+ - Let no one weep for me, or celebrate my funeral with mourning; for I still live, as I pass to and fro through the mouths of men.
+ - Ennius was the father of Roman poetry, because he first introduced into Latin the Greek manner and in particular the hexameter metre.
+ - The idle mind knows not what it wants.
+ - A true friend is tested in adversity.
+ - He who civilly shows the way to one who has missed it, is as one who has lighted another’s lamp from his own lamp; it none the less gives light to himself when it burns for the other.
+ - One man by delaying saved the state for us.
+ - O friend unseen, unborn, unknown, Student of our sweet English tongue, I never indulge in poetics – Unless I am down with rheumatics.
+ - No one regards what is before his feet; we all gaze at the stars.
+ - How can life be worth living, if devoid Of the calm trust reposed by friend in friend? What sweeter joy than in the kindred soul, Whose converse differs not from self-communion?
+ - To open his lips is crime in a plain citizen.
+ - He hath freedom whoso beareth a clean and constant heart within.
+ - I never indulge in rhyme or stanza Unless I’m in bed with the influenza.
+ - Don’t ask of your friends what you yourself can do.
+ - They hate whom they fear.
+ - A sure friend is known in unsure circumstances.
+ - Here is he laid to whom for daring deed, nor friend nor foe could render worthy meed.
+ - A true friend is distinguished in the crisis of hazard and necessity; when the gallantry of his aid may show the worth of his soul and the loyalty of his heart.
+ - Let no one pay me honor with tears, nor celebrate my funeral rites with weeping.
+ - Whom men fear they hate, and whom they hate, they wish dead.
+ - That is true liberty, which bears a pure and firm breast.
+ - The ape, vilest of beasts, how like to us.
+ - The Roman state stands by ancient customs, and its manhood.
+ - He whose wisdom cannot help him, gets no good from being wise.
+
+25 quotes

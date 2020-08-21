@@ -1,0 +1,27 @@
+ - If you wait for luck to turn up, life becomes very boring.
+ - There are two types of sacrifices: correct ones and mine.
+ - First, how to sac my queen, then rook, then bishop, then knight, then pawns.
+ - Some sacrifices are sound; the rest are mine.
+ - I like to grasp the initiative and not give my opponent peace of mind.
+ - Just as one’s imagination is stirred by a girl’s smile, so is one’s imagination stirred by the possibilities of chess.
+ - When I asked Fischer why he had not played a certain move in our game, he replied: ‘Well, you laughed when I wrote it down!’
+ - Quiet moves often make a stronger impression than a wild combination with heavy sacrifices.
+ - In my games I have sometimes found a combination intuitively simply feeling that it must be there. Yet I was not able to translate my thought processes into normal human language.
+ - Fischer is the greatest genius to descend from the chess heavens.
+ - For pleasure you can read the games collections of Andersson and Chigorin, but for benefit you should study Tarrasch, Keres and Bronstein.
+ - Later, I began to succeed in decisive games. Perhaps because I realized a very simple truth: not only was I worried, but also my opponent.
+ - Fischer is Fischer, but a knight is a knight!
+ - Botvinnik’s right! When he says such things, then he’s right. Usually, I prefer not to study chess but to play it. For me chess is more an art than a science. It’s been said that Alekhine and I played similar chess, except that he studied more. Yes, perhaps, but I have to say that he played, too.
+ - Of course, errors are not good for a chess game, but errors are unavoidable and in any case, a game without ant errors, or as they say ‘flawless game’ is colorless.
+ - I go over many games collections and pick up something from the style of each player.
+ - It is difficult to play against Einstein’s theory -on his first loss to Fischer.
+ - Without technique it is impossible to reach the top in chess, and therefore we all try to borrow from Capablanca his wonderful, subtle technique.
+ - Many Chess players were surprised when after the game, Fischer quietly explained: ‘I had already analyzed this possibility’ in a position which I thought was not possible to foresee from the opening.
+ - I will not hide the fact that I love to hear the spectators react after a sacrifice of a piece or pawn. I don’t think that there is anything bad in such a feeling; no artist or musician is indifferent to the reactions of the public.
+ - I believe most definitely that one must not only grapple with the problems on the board, one must also make every effort to combat the thoughts and will of the opponent.
+ - As long as my opponent has not yet castled, on each move I seek a pretext for an offensive. Even when I realize that the king is not in danger.
+ - Naturally, the psychological susceptibility of a match participant is significantly higher than a participant in a tournament, since each game substantially changes the over-all position.
+ - The cherished dream of every chessplayer is to play a match with the World Champion. But here is the paradox: the closer you come to the realization of this goal, the less you think about it.
+ - I have always thought it a matter of honour for every chess player to deserve the smile of fortune.
+
+25 quotes

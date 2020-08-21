@@ -1,0 +1,23 @@
+ - Love is moral even without legal marriage, but marriage is immoral without love.
+ - Corporal punishment is as humiliating for him who gives it as for him who receives it; it is ineffective besides. Neither shame nor physical pain have any other effect than a hardening one.
+ - At every step the child should be allowed to meet the real experience of life; the thorns should never be plucked from his roses.
+ - Education can give you a skill, but a liberal education can give you dignity.
+ - The more horrifying this world becomes, the more art becomes abstract.
+ - Anyone who would attempt the task of felling a virgin forest with a penknife would probably feel the same paralysis of despair that the reformer feels when confronted with existing school systems.
+ - When one paints an ideal, one does not need to limit one’s imagination.
+ - Conventionality is the tacit agreement to set appearances before reality, form before content...
+ - All philanthropy is only a savoury fumigation burning at the mouth of a sewer.
+ - Not observation of a duty but liberty itself is the pledge that assures fidelity.
+ - Nothing would more effectively further the development of education than for all flogging pedagogues to learn to educate with the head instead of with the hand.
+ - The emancipation of women is practically the greatest egoistic movement of the nineteenth century, and the most intense affirmation of the right of the self that history has yet seen.
+ - The destruction of the personality is the great evil of the time.
+ - The home was a closed sphere touched only at its edge by the world’s evolution.
+ - The educator must above all understand how to wait; to reckon all effects in the light of the future, not of the present.
+ - Art, that great undogmatized church.
+ - Love requires peace, love will dream; it cannot live upon the remnants of our time and our personality.
+ - The socially pernicious, racially wasteful, and soul-withering consequences of the working of mothers outside the home must cease. And this can only come to pass, either through the programme of institutional upbringing, or through the intimate renaissance of the home.
+ - The very forces that liberty has set free work against the dangerous consequences of liberty.
+ - The belief that we some day shall be able to prevent war is to me one with the belief in the possibility of making humanity really human.
+ - The mother is the most precious possessions of the nation, so precious that society advances its highest well-being when it protects the functions of the mother.
+
+21 quotes

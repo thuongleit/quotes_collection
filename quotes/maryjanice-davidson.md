@@ -1,0 +1,30 @@
+ - Has anyone ever told you that you lack focus?
+ - It never failed – I’d buy a new journal, write like a madwoman for ten pages, then lose total interest in the process. Three months later, I’d start the whole process all over again. I think I just liked buying new notebooks.
+ - It’s inappropriate for the queen of the dead to be afraid of ghosts.
+ - Back off, boys. You don’t want to mess with an out-of-work secretary. We’re real testy.
+ - You don’t scare me, Cadence Jones. I’ve lived with crazy, I’ve ridden with crazy, I’ve vacationed with crazy, I’ve visited crazy in various hospitals, I’ve sat in on therapy sessions with crazy. Frankly, I think women who don’t have major emotional disorders are really very dull.
+ - I’ve always assumed he’d be around to be, you know, yelled at and taken for granted. And of course I was wrong. Nobody’s going to put up with that forever.
+ - I’m in a Roadrunner cartoon, Sinclair. And I’m the coyote.
+ - You have attained maturity; display it for us, if you please.
+ - Did vampirism encourage Stockholm syndrome?
+ - I’ve been stabbed before. Barely a week ago, in fact. AND I’ve been audited, AND I come from a broken home. In short – no offense, shorty – you don’t scare me.
+ - It was scary how much she sounded like me sometimes. Maybe that’s why she totally got on my nerves.
+ - I’ve got a folder full of rejection slips that I keep. Know why? Because those same editors are now calling my agent hoping I’ll write a book or novella for them. Things change. A rejection slip today might mean a frantic call to your agent in six months.
+ - Elizabeth Anne Taylor April 25, 1974 – April 25, 2004 Our Sweetheart, Only resting.
+ - I zoomed in on the shoe department like a blonde homing pigeon. Shoes, shoes everywhere! Ah, sweet shoes. I truly think you can take the measure of a civilization by looking at its footwear.
+ - Take your hands off her, Sinclair told the guy behind me, Or they’ll write books about what I’ll do to you.
+ - Can you burn me up with holy water? Poke me to death with your crucifix? Pelt me with communion wafers?
+ - She couldn’t tell where his pupils ended and the irises began; looking into those eyes was like looking into a well where children had drowned.
+ - We have souls. Sure we do. Otherwise we’d do bad things all the time. You know, like politicians.
+ - Wow, girlfriend, you’re incompatible with life! And here I thought I was just incompatible with pink.
+ - I could have gone to medical school, I said. Except for all the math and stuff.
+ - Hell couldn’t be worse than a WalMart after midnight, right?
+ - All writers are crazy. So never mind what the editors and your family and your critique group tells you. Submit your manuscripts and keep submitting until you get an offer. Then you can be crazy, with a paycheck.
+ - They weren’t moving. Perhaps I was dazzling then with my ineptitude. It had happened before.
+ - He said my name the way diabetics talked about hot fudge sundaes.
+ - I trudged around on the muddy river bottom for half an hour, patiently waiting to drown, before giving up and slogging my way back to shore.
+ - I know it’s practical for career women, but sneakers with suits? Jesus couldn’t possibly weep harder than I did.
+ - There’s more than one way for a girl to Google a cat.
+ - Why is it suddenly uncool to spell? That’s all I want to know.
+
+28 quotes

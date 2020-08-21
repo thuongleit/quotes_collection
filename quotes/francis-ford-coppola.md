@@ -1,0 +1,136 @@
+ - Drinking wine is just a part of life, like eating food.
+ - The essence of cinema is editing.
+ - My talent is that I just try and try and try and try again and little by little it comes to something...
+ - I like simplicity; I don’t need luxury.
+ - Wine is so much more than a beverage. It’s a romance, a story, a drama-all of those things that are basically putting on a show.
+ - There’s nothing creative about living within your means.
+ - I have much to learn from my daughter Sofia. Her minimalism exposes my limitations: I’m too instinctive and operatic, I put too much heart into my work, I get lost sometimes in bizarre things – it’s my Italian heritage.
+ - My family were symphonic musicians and in the opera. Also, it was my era, the love of radio. We used to listen to the radio at night, close our eyes and see movies far more beautiful than you can photograph.
+ - When I was sixteen or seventeen, I wanted to be a writer. I wanted to be a playwright. But everything I wrote, I thought, was weak. And I can remember falling asleep in tears because I had no talent the way I wanted to have.
+ - You ought to love what you’re doing because, especially in a movie, over time you really will start to hate it.
+ - When you make a film it is like asking yourself a question. When it is finished, you know the answer. Ultimately with all of cinema, we are just trying to learn about ourselves. I have always used the opportunity to make a film to learn more about myself, which I am still doing.
+ - When a movie is about to come out on its initial debut, there are a lot of people involved – the financiers, the studio and the producers and also, many times, the foreign distributors. So it is a time of tremendous pressure and uncertainty.
+ - When I was about 9, I had polio, and people were very frightened for their children, so you tended to be isolated. I was paralyzed for a while, so I watched television.
+ - In kindergarten that used to be my job, to tell them fairytales. I liked Hans Christian Andersen, and the Grimm fairy tales, all the classic fairy tales.
+ - To make great movies, there is an element of risk. You have to say, ‘Well, I am going to make this film, and it is not really a sure thing.’
+ - Roger Corman exploited all of the young people who worked for him, but he really gave you responsibility and opportunity. So it was kind of a fair deal.
+ - Anything you build on a large scale or with intense passion invites chaos.
+ - So much of the art of film is to do less. To aspire to do less.
+ - Usually, the stuff that’s your best idea or work is going to be attacked the most.
+ - The things you get fired for when you’re young are the same things that you get lifetime achievement awards for when you’re old.
+ - I always knew what I thought the theme was, the core, in one word. In ‘The Godfather’ it was succession. In ‘The Conversation’ it was privacy. In ‘Apocalypse’ it was morality.
+ - We had access to too much money, too much equipment, and little by little, we went insane.
+ - A director is the ringmaster of a circus that’s inventing itself.
+ - Time is the lens through which dreams are captured.
+ - Work on nothing less than epic scale.
+ - An essential element of any art is risk. If you don’t take a risk then how are you going to make something really beautiful, that hasn’t been seen before?
+ - Although knowledge of structure is helpful, real creativity comes from leaps of faith in which you jump to something illogical. But those leaps form the memorable moments in movies and plays.
+ - Music is a big factor in helping the illusion of the film come to life. The same way music brings back different periods of our lives.
+ - I think it’s better to be overly ambitious and fail than to be underambitious and succeed in a mundane way. I have been very fortunate. I failed upward in my life!
+ - My film is not a movie; it’s not about Vietnam. It is Vietnam.
+ - You don’t have to specialize – do everything that you love and then, at some time, the future will come together for you in some form.
+ - I think cinema, movies, and magic have always been closely associated. The very earliest people who made film were magicians.
+ - I don’t think there’s any artist of any value who doesn’t doubt what they’re doing.
+ - I associate my motion picture career more with being unhappy and scared, or being under the gun, than with anything pleasant.
+ - Films and hotels have many aspects that are the same. For example, there is always a big vision, an idea.
+ - It was the man’s dream, and his inspiring attempt to make them come true that remain important.
+ - I had a number of teachers who hated me. I didn’t do well in school.
+ - I wanted to be a film student again, as a man in my 60s. To go someplace alone and see what you can cook up, with non-existent budgets. I didn’t want to be surrounded by comforts and colleagues, which you have when when you’re a big time director. I wanted to write personal works.
+ - I had a number of very strong personalities in my family. My father was a concert flutist, the solo flute for Toscanini.
+ - I probably have genius. But no talent.
+ - People feel the worst film I made was ‘Jack.’ But to this day, when I get checks from old movies I’ve made, ‘Jack’ is one of the biggest ones. No one knows that. If people hate the movie, they hate the movie. I just wanted to work with Robin Williams.
+ - Art depends on luck and talent.
+ - I wrote the script of Patton. I had this very bizarre opening where he stands up in front of an American flag and gives this speech. Ultimately, I was fired. When the script was done, they hired another writer and that script was forgotten.
+ - If you’re not allowed to experiment anymore for fear of being considered self-indulgent or pretentious or what have you, then everyone’s going to just stick to the rules – there’s not going to be any additional ideas.
+ - They needed someone to write a script of The Great Gatsby very quickly for the movie they were making. I took this job so I’d be sure to have some dough to support my family.
+ - I like to work in the morning. I like to sometimes go to a place where I’m all alone where I’m not going to get a phone call early that hurts my feelings, because once my feelings are hurt, I’m dead in the water.
+ - I’ve been failing for, like, ten or eleven years. When it turns, it’ll turn. Right now I’m just trying to squeeze through a very tight financial period, get the movie out, and put my things in order.
+ - The most adventurous thing I’ve done is learn how to fly a helicopter in the Philippines. One night we landed on a beach and slept on it.
+ - Whom God wishes to destroy, He first makes successful in show business.
+ - We were raised in an Italian-American household, although we didn’t speak Italian in the house. We were very proud of being Italian, and had Italian music, ate Italian food.
+ - I bring to my life a certain amount of mess.
+ - I have always credited the writer of the original material above the title: Mario Puzo’s The Godfather, Bram Stoker’s Dracula, or John Grisham’s The Rainmaker. I felt that I didn’t have the right to Francis Coppola’s anything unless I had written the story and the screenplay.
+ - When I do a novel, I don’t really use the script, I use the book; when I did Apocalypse Now, I used Heart of Darkness. Novels usually have so much rich material.
+ - When that happens – when risk is taken and the filmmakers dive into the subject matter without a parachute – very often what you get it something with those qualities that make it age well with the public.
+ - Ten Days That Shook The World, by Eisenstein, I went to see it, and I was so impressed with this film, so impressed with what cinema could do.
+ - I landed a job with Roger Corman. The job was to write the English dialogue for a Russian science fiction picture. I didn’t speak any Russian. He didn’t care whether I could understand what they were saying; he wanted me to make up dialogue.
+ - I remember growing up with television, from the time it was just a test pattern, with maybe a little bit of programming once in a while.
+ - Sound is your friend because sound is much cheaper than picture, but it has equal effect on the audience – in some ways, perhaps more effect because it does it in a very indirect way.
+ - Anyone who’s made film and knows about the cinema has a lifelong love affair with the experience. You never stop learning about film.
+ - Sequels are not done for the audience or cinema or the filmmakers. It’s for the distributor. The film becomes a brand.
+ - I’m no longer dependent on the movie business to make a living. So if I want to make movies as other old guys would play golf, I can.
+ - If I have to be remembered for something, I want it remembered that I really liked children and was a good camp counselor.
+ - Most filmmakers can’t afford to try something out that doesn’t work.
+ - I wanted to write and direct movies and not be forced to adapt them from a bestselling book.
+ - You have to really be courageous about your instincts and your ideas. Otherwise you’ll just knuckle under, and things that might have been memorable will be lost.
+ - I thought I wanted to be a playwright because I was interested in stories and telling stories.
+ - I’ve been offered lots of movies. There’s always some actor who’s doing a project and would like to have me do it. But you look at the project and think, ‘Gee, there are a lot of good directors who could do that.’ I’d like to do something only I can do.
+ - So give yourself that chance to put together the 80, 90 pages of a draft and then read it very in a nice little ceremony, where you’re comfortable, and you read it and make good notes on it, what you liked, what touched you, what moved you, what’s a possible way, and then you go about on a rewrite.
+ - All of a sudden, there are great Japanese films, or great Italian films, or great Australian films. It’s usually because there are a number of people that cross-pollinated each other.
+ - I gladly, I voluntarily gave up the kind of commercial film career I had going as soon as I had enough money to finance my own films.
+ - I was the kind of kid that had some talents or ability, but it never came out in school.
+ - I used to love going into local hardware stores, to look at little things they made locally. Nowadays it’s harder, though you can still do it in Vietnam.
+ - I was interested in the idea of succession – showing a father and a son both in their own time and drawing a contrast.
+ - The professional world was much more unpleasant than I thought. I was always wishing I could get back that enthusiasm I had when I was doing shows at college.
+ - I realized I probably wouldn’t make another film that cuts through commercial and creative things like ‘Godfather’ or ‘Apocalypse.’
+ - I don’t go on set with an army of people because the most expensive elements of a movie production are the plane tickets, the hotel rooms, food and gasoline. If you’re willing to discover new colleagues in the place that you are, you can save a ton of money.
+ - In a sense, I think a movie is really a little like a question and when you make it, that’s when you get the answer.
+ - The only TV I would be interested in exploring would be live television. There’s no substitute for a team of artists performing at their peak live when failure is possible. It’s a high-wire act. That excites me.
+ - I’m very proud of my flops, as much as of my successes.
+ - I always think upon Lee Strasberg with warmth, and reviewing his wisdom is a pleasure.
+ - I live near San Francisco in the most beautiful spot on earth and enjoy myself in many ways. Yes, I love to work, which for now is to think and read and write, so it’s all a dream come true.
+ - A number of images put together a certain way become something quite above and beyond what any of them are individually.
+ - That’s part of the requirement for me to be an artist is that you’re trying to share your personal existence with others and trying to illuminate modern life, trying to understand life.
+ - I was a pretty shy, lonely kid. I blossomed about age 17, when I went to college.
+ - When I was going for my graduate degree, I decided I was going to make a feature film as my thesis. That’s what I was famous for-that I had my thesis film be a feature film, which was ‘You’re a Big Boy Now.’
+ - Today’s winemakers still worry about quality.
+ - Lots of people have criticized my movies, but nobody has ever identified the real problem: I’m a sloppy filmmaker.
+ - The whole reason one wants to do lower budget films is because the lower the budget, the bigger the ideas, the bigger the themes, the more interesting the art.
+ - If you’re a person who says yes most of the time, you’ll find yourself in the hotel business and the restaurant business.
+ - I was excited to discover, in this tale by Eliade, the key themes that I most hope to understand better time, consciousness and the dreamlike basis of reality.
+ - I just admire people like Woody Allen, who every year writes an original screenplay. It’s astonishing. I always wished that I could do that.
+ - The stuff that I got in trouble for, the casting for The Godfather or the flag scene in Patton, was the stuff that was remembered, and was considered the good work.
+ - One thing that I’m sure of is the real pleasure of life – it’s not being known, it’s not having your own jet plane, it’s not having a mansion the pleasure is to learn something.
+ - Most directors have one masterpiece by which they are known. Kurosawa has at least eight or nine.
+ - I had been a kid that moved so much, I didn’t have a lot of friends. Theater really represented camaraderie.
+ - I was terrible at maths, but I could grasp science, and I used to love to read about the lives of the scientists. I wanted to be a scientist or an inventor.
+ - The internet in hotels should be free – and I really resent it when they charge you five dollars for a bottle of water beside your bed.
+ - Without a doubt, I was born to want to make cinema, but the kind of cinema I want to make is not like commercial movies, which I enjoy myself, but I wanted to be the kind of filmmaker who wrote original work, sort of like a novelist would who deals with who we are and our times or our relationships.
+ - I was raised as a Catholic, but I didn’t like the Catholic Church at all. I thought the nuns were mean.
+ - George Lucas doesn’t have the most physical stamina. He was so unhappy making Star Wars that he just vowed he’d never do it again.
+ - I know that if a film is ready to emerge out of what I write, I’ll be able to go off and make it without asking anyone’s permission.
+ - I’ve been blessed with enough wealth that I can make a film myself up to a certain budget. So one way I thought I would reinvent myself was just to make these very small, personal films that I’ve financed myself.
+ - The time a movie is made is unique, not only from the talent that is available but if the public was ready for it.
+ - You’re in a profession in which absolutely everybody is telling you their opinion, which is different. That’s one of the reasons George Lucas never directed again.
+ - I always found the film world unpleasant. It’s all about the schedule, and never really flew for me.
+ - But who said art has to cost money? And therefore, who says artists have to make money?
+ - I never went to a psychologist or psychiatrist in my life. Never. You know, Italians are a little prejudiced against that kind of thing.
+ - As long as I can make lots of money in other businesses, I’ll continue to subsidize my own work.
+ - Being a former theater student, of course, there is a part of me that is fascinated with stage crafts and what you can do with illusions and working within the confines of the studio.
+ - When I was 13, I worked for Western Union. When the telegrams came in, I would glue them on the paper and deliver them on my bicycle.
+ - Listen, if there’s one sure-fire rule that I have learned in this business, it’s that I don’t know anything about human nature.
+ - Death is what makes life an event.
+ - It’s ironic that at age 32, at probably the greatest moment of my career, with The Godfather having such an enormous success, I wasn’t even aware of it, because I was somewhere else under the deadline again.
+ - I believe that filmmaking – as, probably, is everything – is a game you should play with all your cards, and all your dice, and whatever else you’ve got. So, each time I make a movie, I give it everything I have. I think everyone should, and I think everyone should do everything they do that way.
+ - I still think Ned Beatty should’ve played Don Corleone.
+ - Most Italians who came to this country are very patriotic. There was this exciting possibility that if you worked real hard, and you loved something, you could become successful.
+ - When newspapers started to publish the box office scores of movies, I was horrified. Those results are totally fake because they never include the promotion budget.
+ - By working in the morning, I find a sense of peace; it’s isolated peace, but I can definitely be in touch with my feelings, and then I just start.
+ - Steven Spielberg is unique. I feel that the kinds of movies he loves are the same kinds of movies that the big mass audience loves. He’s very fortunate because he can do the things he naturally likes the best, and he’s been very successful.
+ - I had an older brother who was very interested in literature, so I had an early exposure to literature, and and theater. My father sometimes would work in musical comedies.
+ - The photographer and the director are where reality and fantasy meet.
+ - I became quite successful very young, and it was mainly because I was so enthusiastic and I just worked so hard at it.
+ - I just finished a film a few days ago, and I came home and said I learned so much today. So if I can come home from working on a little film after doing it for 45 years and say, I learned so much today, that shows something about the cinema. Because the cinema is very young. It’s only 100 years old.
+ - It is a little disappointing to see that your legs are not as strong. But I like the idea of growing old, and the thought of approaching death is not particularly daunting to me.
+ - I have more of a vivid imagination than I have talent. I cook up ideas. It’s just a characteristic.
+ - I made this movie for $40,000, which was this little black-and-white horror film called Dementia 13, which we made in about nine days.
+ - I think a sequel is a waste of money and time. I think movies should illuminate new stories.
+ - I had a heartbreaking experience when I was 9. I always wanted to be a guard. The most wonderful girl in the world was a guard. When I got polio and then went back to school, they made me a guard. A teacher took away my guard button.
+ - Movies are the art form most like man’s imagination.
+ - I liked to work in a shop down in the basement and invent things and build gadgets.
+ - I was never sloppy with other people’s money. Only my own. Because I figure, well, you can be.
+ - Some critics are stimulating in that they make you realise how you could do better, and those are valued.
+ - The essence of cinema is editing. It’s the combination of what can be extraordinary images of people during emotional moments, or images in a general sense, put together in a kind of alchemy.
+ - Frank Capra was a prop man, I think. John Ford was a prop man. It was a little bit of a father and son thing, and you kind of worked your way up.
+
+134 quotes

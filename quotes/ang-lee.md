@@ -1,0 +1,108 @@
+ - We need storytelling. Otherwise life just goes on and on, like the number Pi.
+ - I took the name Green Destiny from – well there is such a sword called Green Destiny. It is green because you keep twisting it, it’s an ancient skill, you keep twisting it and knocking it and twisting it until it is very elastic and light.
+ - I make movies for a long time. It doesn’t get easier.
+ - In the past I’ve made movies that were pretty universally liked. You can’t really hate them. You can discard them, but you can’t really hate them.
+ - I’m a drifter and an outsider. There’s not one single environment I can totally belong to.
+ - I feel that everyone has a Hulk inside, and each of our Hulks is both scary and, potentially, pleasurable. That’s the scariest thing about them.
+ - Every movie I make, that’s my hideout, the place I don’t quite understand but feel most at home.
+ - I don’t think the Hulk is a superhero. He’s the first Marvel character who is a tragic monster. Really an anti-hero.
+ - Sometimes, you have to get angry to get things done.
+ - My cultural roots are something illusive.
+ - I grew up pretty much prevented from knowing anything from Communist China except that they were the bad guys that stole our country.
+ - I find it hard to deliver straightforward things.
+ - So many times you see beautiful lovemaking scenes with a lot of exposure or an awkward lovemaking scene, but I think it’s very rare that you see it private.
+ - When I sent those scripts, that was the lowest point of my life. We’d just had our second son, and when I went to collect them from hospital, I went to the bank to try and get some money to buy some diapers, the screen showed I’ve got $26 left.
+ - I like to go back to Chinese film-making from time to time. I don’t think I can make Chinese films back to back; it’s such a big effort. I’d have to take a very long break.
+ - Thinking back to those earlier days, I felt I was weak when I wasn’t making movies, and then when I was, I thought I was weak as a family member.
+ - I’m a big boy now, and I have to deliver.
+ - It’s just what I am. When I am in the zone making one movie, I just didn’t want to read anything else or do anything else, so I don’t really develop projects.
+ - Sexuality is a big issue, but there are others – how much you commit to a relationship, to social obligation, to honesty and being honest with yourself.
+ - Sometimes films ignore other points of view because it’s simpler to tell the story that way, but the more genuine and sympathetic you are to different points of view and situations, the more real the story is.
+ - The woman’s perspective is like the dark side of the moon: it always exists, but it is never exposed, at least not in my culture.
+ - The most mysterious feminine factor, the existence that we men, we don’t know. It’s woman. It’s feminine. That’s what the sword is about. That’s the symbolic meaning of the sword.
+ - As artists, we like night more than day sometimes.
+ - With 3D you’re right there immersed in the world.
+ - I’m not a romantic. In life I didn’t have much experience with romance.
+ - I don’t like to deal with studios.
+ - Making movies is a way of understanding myself and the world.
+ - I’m aware of what’s missing from my life.
+ - Beautifully-acted and precisely observed, ILO ILO is an amazing debut, full of heart and intelligence.
+ - I see a movie as a way of learning about the world, about myself, and learning about my relationship with people and art.
+ - Meanwhile, the Ice Storm was still in development, And that was something I really wanted to do, and frankly I don’t think I was ready to do a big production like this.
+ - My first instinct was to cast as close to the short story as possible, but then I realized that I needed actors who could go for it and that they had to function well as a couple in a love story.
+ - A movie is really provocation. It’s not a message, it’s not a statement.
+ - When you talk about God, the first thing that comes along is not love, it’s fear. You have to fear, and be in awe. You have to be scared. Any religion, it’s like first thing...
+ - No matter how widely spread out the films are, how different, you still are you.
+ - For a filmmaker, it’s a rare chance to do a personal film on a big canvas.
+ - There’s a level of sophistication of filmmaking that’s mind-boggling. Anything you need for your movie, there’s an establishment that can make it happen really fast.
+ - If the movie is quiet I generally feel the audience is busy. That’s when they’re working.
+ - Kids don’t even read comic books anymore. They’ve got more important things to do – like video games.
+ - I don’t care about writing really.
+ - I think, if allowed, 3D is a new film language. I can have more adventure exploring a new media, that’s very exciting. 2D we know most of it, things haven’t changed for decades; it’s the same principles, so 3D’s more exciting.
+ - Not taboo – it’s just that straight actors still risk their careers commercially and economically. They have to please the crowd – they’re movie stars; their image is their industry. It goes beyond acting.
+ - Fighting for identity is something that is very much in my life.
+ - I think doing period piece is easier, because after a certain distance, everybody is equal, I think. The relative contemporary is harder. I think that’s the way it is.
+ - When there is a strong woman character in a story – that always grabs me.
+ - You have to know the rules, otherwise you have no tools to communicate to the audience, but to keep it fresh you have to break some. I don’t choose genres as the element, but the material itself is the element, then I’ll decide what genre I need. That’s just how I work.
+ - My father’s family were liquidated during the Cultural Revolution in China because they were landowners. He was the only one to escape. I was born and brought up in Taiwan. But you absorb the trauma. My parents had no sense of security.
+ - The way I go about a lovemaking scene is that we will talk about it during the rehearsing time.
+ - In my culture, there’s a tradition that when you’re in an overwhelming situation and you don’t know what to do, you put yourself in a woman’s shoes.
+ - It’s not a pleasure torturing actors, although some of them enjoy it.
+ - There’s a certain time in the core of making a movie from pre-production to halfway through post-production I don’t read any project, my agent will tell people that “he’s not reading.” And then when I know how the movie’s probably gonna work halfway into post-production, I’ll come along.
+ - 3D is quite a lot more advanced in animated movies; for live-action movies we’re just taking baby steps, we’re just in the beginning.
+ - I like to do drama, something about life that could be disappointing.
+ - First we pre-visualized it so the actors could act. It took a long time to get that to come to life and to design those coming out of the screen. We had great fun with that. It takes a long time, a year maybe.
+ - I don’t have a checklist. Whatever material excites me, they’ll call for a certain genre or combination of genres. It’ll come naturally and I’ll be eager to learn how that thing works. I learn the rules, and I’ll probably break some of them.
+ - On a Chinese film you just give orders, no one questions you. Here, you have to convince people, you have to tell them why you want to do it a certain way, and they argue with you. Democracy.
+ - I think that at heart I am an old-fashioned Chinese, really I am.
+ - The fear factor actually brings the genuineness.
+ - I have two sons in America, and all they care about in Chinese culture is Jackie Chan and Jet Li.
+ - I just did a dramatic love story. Whether it’s a cultural phenomenon is not for me to say.
+ - Sensitivity and money are like parallel lines. They don’t meet.
+ - I’m not a master of films. I’m rather a slave.
+ - I don’t have incredible knowledge about films or of filmmaking history; I’m not that kind of person.
+ - Summer blockbusters are very expensive to make. They have things that have to be expensive, such as 600 effects shots or CG characters that have to go a certain way, or a film design that is different but expensive.
+ - American films are less American every day, because you have to please a world audience. There’s less authenticity, so it’s more accessible.
+ - Many times when you make a movie, it feels like your biggest mistake. But even if a film isn’t a hit, you shouldn’t view it as a mistake.
+ - In Taiwan, I’d be like Michael Jordan walking down the street.
+ - I am not particularly religious. But I think we do face the question of where God is, why we are created and where does life go, why we exist. That sort of thing. And it is very hard to talk about it these days, because it cannot be proven. It is hard to discuss it rationally.
+ - Economically, it’s more expensive to make movies. I hope digital movies change that.
+ - I think a movie is a media that is evoking feelings.
+ - When I see something I like, that’s all that counts. What they use, how they get there, I never bother them.
+ - I grew up pretty peacefully, in that Eastern way. You easily solve problems, believe in harmony. Reduce conflicts, take orders until one day you give orders.
+ - My father was the center of the family, and everyone tried to please him.
+ - I think great romance needs great obstacles and textures.
+ - My mother loves me and everything goes well. I have no conflict with her, so that’s not dramatic.
+ - After making several tragic movies in a row, I was looking to do a comedy, and one without cynicism.
+ - I look at American movies, the big muscles, and try to apply that to Chinese film-making.
+ - You become the movie you are making.
+ - If there’s something that can be formulated, regulated, give you security, then nobody would lose money. Every movie would be successful. And that’s certainly not the case.
+ - Americans are hidden dragons to me.
+ - So I’m a one movie at a time person, I don’t develop. Normally we do a movie then one thing leads to another. If something pops up that catches my attention, then I’ll decide.
+ - I feel like all of my characters now take this congested situation, they clash, and from there you purge yourself.
+ - I think each movie-making process is a very exhausting and satisfying and fulfilling experience for me.
+ - When I have a full schedule like that, I don’t see myself sitting there for a couple of months, doing the research, going through a painful process, it’s just not my thing anymore.
+ - There’s only one movie in my career I’ve had regrets with cutting it shorter, and I think some scenes maybe I shouldn’t have cut.
+ - You can get rich or famous by doing the same thing.
+ - I think the book struck me in a few ways that I thought very interesting to pick it as my first martial arts film. It has a very strong female character and it was very abundant in classic Chinese textures.
+ - I think people are universal.
+ - Directing, I get all kinds of inspiration. It’s working with people. It’s a lot more fun.
+ - I guess in Hollywood you chart your life by Oscars. You say to each other, ‘Remember when that movie won that year? It was 2006. Remember that?’
+ - Now I’m kind of established as a director, I much prefer directing to writing.
+ - I’m just a pretty regular dad.
+ - Depending on the budget. I think I prefer 3D to 2D now. Also, because of 3D I have to use a digital camera, which is the way it’s going anyway. That still confuses me, a digital camera versus film.
+ - What is really a stretch to me is to make quick decisions.
+ - When I started out, nobody gave me scripts, so I had to write.
+ - If it was a choice between making movies and doing nothing, he’d probably still wish me to make movies, So he made me keep going.
+ - I had to find my way of translating the excitement you get when you’re reading comic books to the big screen.
+ - I think a lot of people do big movies not because they are talented artists but because they can function in the circumstances.
+ - I wanted to shoot straight, mainstream, somehow off-beat. Not only realistic West, which is quite unfamiliar to the world’s population – even to a lot of Americans.
+ - Every movie is unknown.
+ - Over the years Woodstock got glorified and romanticised and became the event that symbolised Utopia. It’s the last page of our collective memory of the age of innocence. Then things turned ugly and would never be the same again.
+ - Making a martial arts film in English to me is the same as John Wayne speaking Chinese in a western.
+ - When something possesses me, I go ahead and do it.
+ - I think the American West really attracts me because it’s romantic. The desert, the empty space, the drama.
+ - Usually with this genre the first thing that happens is a good fight sequence to show that you’re in good hands. So we broke that rule. I think a lot of that comes from the western audience.
+ - I have a lot of repression. So repression is what I make movies about.
+
+106 quotes

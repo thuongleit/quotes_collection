@@ -1,0 +1,67 @@
+ - What we have done for ourselves alone dies with us; what we have done for others and the world remains and is immortal.
+ - Above all things let us never forget that mankind constitutes one great brotherhood; all born to encounter suffering and sorrow, and therefore bound to sympathize with each other.
+ - Faith begins where Reason sinks exhausted.
+ - It is not in the books of the Philosophers, but in the religious symbolism of the Ancients, that we must look for the footprints of Science, and re-discover the Mysteries of Knowledge.
+ - The sovereignty of one’s self over one’s self is called Liberty.
+ - Man’s real genius and knowledge remains preserved in books.
+ - Be prudent, diligent, temperate and discreet. Remember that every human being has a claim upon your kind offices.
+ - We must pass through the darkness, to reach the light.
+ - Strange and mysterious name to give to the spirit of Darkness! Lucifer, the Son of the Morning! Is it he who bears the Light, and with its splendors intolerable blinds feeble, sensual, or selfish souls? Doubt it not!
+ - We Masons are among the fortunate ones who are taught to meet together with others opposing convictions or competitive ideas and yet respect each other as Brothers.
+ - Philosophy is a kind of journey, ever learning yet never arriving at the ideal perfection of truth.
+ - It is most true, that Truth is a Divine attribute and the foundation of every virtue. To be true, and to seek to find and learn the Truth, are the great objects of every good Mason.
+ - The true philosophy, known and practiced by Solomon, is the basis on which Masonry is founded.
+ - Masonry is identical with the Ancient Mysteries.
+ - All religious expression is symbolism.
+ - Every Masonic Lodge is a temple of religion; and its teachings are instruction in religion.
+ - For it is true now, as it always was and always will be, that to be free is the same thing as to be pious, to be wise, to be temperate and just, to be frugal and abstinent, and to be magnanimous and brave; and to be the opposite of all these is the same as to be a slave.
+ - Work only can keep even kings respectable.
+ - Masonry is a search after Light. That search leads us directly back, as you see, to the Kabalah.
+ - We live our little life; but Heaven is above us and all around and close to us; and Eternity is before us and behind us; and suns and stars are silent witnesses and watchers over us. We are enfolded by Infinity.
+ - Force, unregulated or ill-regulated, is not only wasted in the void, like that of gunpowder burned in the open air, and steam unconfined by science; but, striking in the dark, and its blows meeting only the air, they recoil, and bruise itself.
+ - The Word of God is the universal and invisible Light, cognizable by the senses, that emits its blaze in the Sun, Moon, Planets, and other Stars.
+ - There are greater and better things in us all, than the world takes account of, or than we take note of; if we would but find them out.
+ - The universal medicine for the Soul is the Supreme Reason and Absolute Justice; for the mind, mathematical and practical Truth; for the body, the Quintessence, a combination of light and gold.
+ - But the hour cometh, and now is, when the true worshippers shall worship the Father in spirit and in truth: for the Father seeketh such to worship him. God is a spirit: and they that worship him must worship him in spirit and in truth.
+ - True thoughts have duration in themselves. If the thoughts endure, the seed is enduring; if the seed endures, the energy endures; if the energy endures, then will the spirit endure. The spirit is thought; thought is the heart; the heart is the fire; the fire is the Elixir.
+ - Virtue is but heroic bravery, to do the thing thought to be true, in spite of all enemies of flesh or spirit, in despite of all temptations or menaces.
+ - Pride is not the heritage of man; humility should dwell with frailty, and atone for ignorance, error, and imperfection.
+ - One man is equivalent to all Creation. One man is a World in miniature.
+ - Justice to others and to ourselves is the same; that we cannot define our duties by mathematical lines ruled by the square, but must fill with them the great circle traced by the compasses.
+ - Less glory is more liberty. When the drum is silent, reason sometimes speaks.
+ - Two forms of government are favorable to the prevalence of falsehood and deceit. Under a Despotism, men are false, treacherous, and deceitful through fear, like slaves dreading the lash. Under a Democracy they are so as a means of attaining popularity and office, and because of the greed for wealth.
+ - The Secret of the Occult Sciences is that of Nature itself, the Secret of the generation of the Angels and Worlds, that of the Omnipotence of God .
+ - The double law of attraction and radiation or of sympathy and antipathy, of fixedness and movement, which is the principle of Creation, and the perpetual cause of life.
+ - Doubt, the essential preliminary of all improvement and discovery, must accompany the stages of man’s onward progress. The faculty of doubting and questioning, without which those of comparison and judgment would be useless, is itself a divine prerogative of the reason.
+ - The eyes of the cheerful and of the melancholy man are fixed upon the same creation; but very different are the aspects which it bears to them.
+ - Reverence for greatness dies out, and is succeeded by base envy of greatness.
+ - The Universe should be deemed an immense Being, always living, always moved and always moving in an eternal activity inherent in itself, and which, subordinate to no foreign cause, is communicated to all its parts, connects them together, and makes the world of things a complete and perfect whole.
+ - Man is encompassed with a dome of incomprehensible wonders. In him and about him is that which should fill his life with majesty and sacredness. Something of sublimity and sanctity has thus flashed down from heaven into the heart of every one that lives.
+ - The doctrines of the Bible are often not clothed in the language of strict truth, but in that which was fittest to convey to a rude and ignorant people the practical essentials of the doctrine.
+ - The common right is nothing more or less than the protection of all, pouring its rays on each. This protection of each by all, is Fraternity.
+ - Hypocrisy is the homage that vice and wrong pay to virtue and justice .
+ - War is a series of catastrophes which result in victory.
+ - Almost all the noblest things that have been achieved in the world, have been achieved by poor men; poor scholars, poor professional men, poor artisans and artists, poor philosophers, poets, and men of genius.
+ - Man is not to be comprehended as a starting-point, or progress as a goal, without those two great forces, Faith and Love. Prayer is sublime.
+ - Everything actual must also first have been possible, before having actual existence.
+ - If the effort also is predestined, it is not the less our effort, made of our free will.
+ - Let us drink together, fellows, as we did in days of yore. And still enjoy the golden hours that Fortune has in store; The absent friends remembered be, in all that’s sung or said, And Love immortal consecrate the memory of the dead.
+ - Phenomena are constantly folded back upon themselves.
+ - We do not see and estimate the relative importance of objects so easily and clearly from the level or the waving land as from the elevation of a lone peak, towering above the plain; for each looks through his own mist.
+ - Will is the dynamic soul-force.
+ - That which we say and do, if its effects last not beyond our lives, is unimportant.
+ - To work with the hands or brain, according to our requirements and our capacities, to do that which lies before us to do, is more honorable than rank and title.
+ - A man should live with his superiors as he does with his fire: not too near, lest he burn; nor too far off, lest he freeze.
+ - All the great and beneficent operations of Nature are produced by slow and often imperceptible degrees. The work of destruction and devastation only is violent and rapid.
+ - The word well spoken, the deed fitly done, even by the feeblest or humblest, cannot help but have their effect. More or less, the effect is inevitable and eternal.
+ - We seem never to know what any thing means or is worth until we have lost it.
+ - We avoid sensuousness, only by resorting to simple negation. We come at last to define spirit by saying that it is not matter.
+ - A dim consciousness of infinite mystery and grandeur lies beneath all the commonplace of life. There is an awfulness and a majesty around us, in all our little worldliness .
+ - Justice is peculiarly indispensable to nations. The unjust State is doomed of God to calamity and ruin. This is the teaching of the Eternal Wisdom and of history .
+ - A war for a great principle ennobles a nation.
+ - Justice is peculiarly indispensable to nations.
+ - A war for a great principle ennobles a nation. A war for commercial supremacy, upon some shallow pretext, is despicable, and more than aught else demonstrates to what immeasurable depths of baseness men and nations can descend.
+ - The unconsidered act of the poorest of men may fire the train that leads to the subterranean mine, and an empire be rent by the explosion.
+ - There are no temptations from which assailed virtue may not gain strength, instead of falling before them, vanquished and subdued.
+
+65 quotes

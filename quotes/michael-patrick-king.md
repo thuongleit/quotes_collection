@@ -1,0 +1,22 @@
+ - Seasons change, so do cities. People come into your life and people go, but it’s comforting to know: the ones you love are always in your heart and if you’re very lucky, a plane ride away.
+ - I always like a good math solution to any love problem.
+ - Maybe our mistakes are what make our fate. Without them, what would shape our lives? Perhaps, if we never veered off course, we wouldn’t fall in love or have babies or be who we are.
+ - Who’s to say where funny stops and ‘too far’ starts?
+ - Nothing else exists when art does.
+ - The thing you can’t let go of is gravity. The reality of gravity in writing. If someone says something really mean in a sitcom, and the next wave isn’t a reaction to the reality of that, you start losing relatability. In a lot of romantic comedies, they throw out the rules of life.
+ - People wince when something is in bad taste. They laugh when it’s funny. If it’s too dirty or wrong, they won’t laugh. But if it’s a big, dirty, smart, funny laugh, they love it.
+ - That’s the thing about needs. Sometimes when you get them met, you don’t need them anymore.
+ - My mom would be leaving the house and she’d say, ‘Don’t you pull out all of the old dresses in the attic and put on a show again!’ And the door would close, and that’s exactly what I’d do. The show was calling me!
+ - Every character when born is a stereotype.
+ - People pull away from something if it’s not of good taste. People lean into something if it’s okay.
+ - If I talk to a woman for more than five minutes I can tell you exactly whether she’s an Aidan girl or a Mr. Big girl. Aidan girls are more interested in nurturing relationships and building a nest while Mr. Big girls are more about show and having fun.
+ - I try not to repeat a story. I try not to repeat an emotion. I want it to be all sort of new for the viewers and to challenge myself as a writer, so there’s always pressure. What else can you come up with?
+ - My female writers have always been my backbone. I had a writing room of six women for five years so I know what women do. Cultivated by me, by the way!
+ - I think I would love a shot at remaking ‘The Philadelphia Story,’ as daunting as it is. I still think it’s fantastic. I love the ’30s comedies because they’re allowed to be both comic and elegant, and the women are so complicated in them.
+ - The first-time director thing is just another label somebody puts on you.
+ - I don’t wear a watch. How do I know my time? I find that someone will always tell me.
+ - I really enjoy women and I totally understand and applaud the diversity that they have in terms of their emotions and intellects and vulnerability and strengths.
+ - I’m happiest in an empty church. I love the smell of a church.
+ - The second episode of any new show can be tough. You have about a week to top the well-crafted and polished pilot episode that was written over six months.
+
+20 quotes

@@ -1,0 +1,30 @@
+ - If we had not winter, the spring would not be so pleasant; if we did not sometimes taste of adversity, prosperity would not be so welcome.
+ - If we had no winter, the spring would not be so pleasant.
+ - If ever two were one, then surely we. If ever man were loved by wife, then thee.
+ - Fire hath its force abated by water, not by wind; and anger must be allayed by cold words, and not by blustering threats.
+ - Sweet words are like honey, a little may refresh, but too much gluts the stomach.
+ - We must, therefore, be here as strangers and pilgrims, that we may plainly declare that we seek a city above.
+ - Flesh of my flesh, bone of my bone, I here, though there, yet both but one.
+ - Let Greeks be Greeks, and women what they are.
+ - Sin and shame ever go together; he that would be freed from the last must be sure to shun the company of the first.
+ - Wisdom with an inheritance is good, but wisdom without an inheritance is better than an inheritance without wisdom.
+ - If ever wife was happy in a man, compare with me, ye women if you can.
+ - There is no object that we see; no action that we do; no good that we enjoy; no evil that we feel, or fear, but we may make some spiritual advantage of all: and he that makes such improvement is wise, as well as pious.
+ - The spring is a lively emblem of the Resurrection.
+ - I happy am, if well with you.
+ - I wish my Sun may never set, but burn.
+ - Youth is the time of getting, middle age of improving, and old age of spending.
+ - My hope and treasure lies above.
+ - Iron till it be thoroughly heated is incapable to be wrought; so God sees good to cast some men into the furnace of affliction, and then beats them on His anvil into what frame He desires.
+ - Some laborers have hard hands, and old sinners have brawny consciences.
+ - The world no longer lets me love, My hope and treasure are above.
+ - I prize thy love more than whole mines of gold or all the riches that the East doth hold.
+ - Authority without wisdom is like a heavy ax without an edge – fitter to bruise than polish.
+ - Wickedness comes to its height by degrees. He that dares say of a less sin, Is it not a little one? will ere long say of a greater, Tush, God regards it not!
+ - Satan, that great angler, hath his sundry baits for sundry tempers of men, which they all catch greedily at, but few perceive the hook till it be too late.
+ - A prosperous state makes a secure Christian, but adversity makes him Consider.
+ - He that would be content with a mean condition must not cast his eye upon one that is in a far better estate than himself, but let him look upon him that is lower than he is, and, if he see that such a one bears poverty comfortably, it will help to quiet him.
+ - That when we live no more, We may live ever.
+ - But man grows old, lies down, remains where once he’s laid.
+
+28 quotes

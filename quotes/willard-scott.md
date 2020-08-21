@@ -1,0 +1,57 @@
+ - When I can, I do 25 minutes of calisthenics every day.
+ - When you hit the big time, big money, big egos, people don’t talk. You have no friends.
+ - Positive feelings come from being honest about yourself and accepting your personality, and physical characteristics, warts and all; and, from belonging to a family that accepts you without question.
+ - Never slap a man who chews tobacco.
+ - Nobody actually talks to anybody anymore. People in cubicles next to each other, they e-mail each other.
+ - I talk too much. I eat too much.
+ - Everyone complains about the weather, but nobody ever seems to do anything about it.
+ - Librarians have always been among the most thoughtful and helpful people. They are teachers without a classroom.
+ - Why do we love our grandparents so much? Part of the reason I think has to do with the tremendous natural affection and affinity that kids have for older people, whether they are their actual grandparents or not.
+ - The only way to predict if there’s a cloud on your horizon due to glaucoma is to get tested. No matter what the diagnosis, the forecast is for clear vision in the years ahead.
+ - Nature’s a tranquilizer as you get older.
+ - Thanksgiving just gets me all warm and tingly and all kinds of wonderful inside.
+ - I got more mail than anybody on the history of The Today Show, but half of it was to get me off the air.
+ - There are plenty of good-looking women out there. Go get them.
+ - I’d like to do ‘Saturday Night Live.’
+ - My grandmother was a typical farm-family mother. She would regularly prepare dinner for thirty people, and that meant something was always cooking in the kitchen. All of my grandmother’s recipes went back to her grandmother.
+ - I had the privilege of having two sets of loving grandparents.
+ - It’s simply a tragedy that anyone today goes blind from glaucoma, when it’s so unnecessary.
+ - These days, you have to have a gimmick to do the weather. You have to have an act.
+ - Bryant Gumbel’s ego has applied for statehood. And if it’s accepted, it will be the fifth-largest.
+ - I get all fired up about aging in America.
+ - August depresses me a little. I don’t even feel like eating. And when I don’t eat, that’s a sure sign of stagnation.
+ - The TV weatherman has always been one of the best, most secure jobs. They change anchors, they change the set, producers come and go. But the weather person hangs on forever!
+ - Take a microphone out of my hands, and I’m just plain folks.
+ - I wore dresses all the time. I like to wear dresses.
+ - If I go down in for anything in history, I would like to be known as the person who convinced the American people that catfish is one of the finest eating fishes in the world.
+ - I’ve always had a reputation as a buffoon.
+ - Having a phobia has changed me.
+ - When something’s over with me, it’s over.
+ - I’m not the dumbest guy that ever lived.
+ - I think women can cope a lot better than men.
+ - The best cookies of all in the world are the ones my daughter Sally makes. They come out all uniform with nice little air holes.
+ - There is something endearing about the weatherman.
+ - I’m Southern Baptist, not a meteorologist.
+ - My dad was an agent for Met Life. In the ’50s, I remember the mortality rate was something like – you had – 58 was the average age. Then it was moved up to 62, and then 65, 68.
+ - No libraries, no progress.
+ - Will Rogers was an American hero – someone you could get your teeth into and love.
+ - Viewers figure, ‘Uncle Willard doesn’t know any more about the weather than I do.’ They’re right.
+ - Just do the math. In the next 50 to 75 years, people will be living to be 130 and 140. They’ll be working until they’re 100. It’s incredible.
+ - I’ve produced more pilots than United Airlines, and they’ve all been disasters. Every audition I ever took in my life I lost.
+ - I have always said that the best training to be a TV newsman or anybody on television is to do a children’s show because you are oblivious to the fact that there is a camera there.
+ - I have the best job in the entire history of broadcasting.
+ - As an only child, I never felt insecure and always had total love.
+ - Remember Judy Garland? She retired 40 times.
+ - Everything I’ve ever done in my life has been a fluke.
+ - I want to get my own show because ‘Today’ will eventually get tired of me, or the audience will get tired of me.
+ - I go to McDonald’s at least once a week. I always get a No. 2.
+ - Tom Browkaw said it best. He said NBC could survive without him or the rest of the news division, but not Nancy Fields.
+ - I loved Harry Truman with all my heart and soul.
+ - I run me like a conglomerate, because that’s what I am.
+ - A good marriage is like an incredible retirement fund. You put everything you have into it during your productive life, and over the years it turns from silver to gold to platinum.
+ - When I was just starting out in the business, I used to love to watch Lorne Greene doing the Macy’s Thanksgiving Day Parade. I said right then, ‘That’s what I want to do someday,’ and it’s been one dream that has come true.
+ - The critics – how come you never see any of them on TV?
+ - In high school, I weighed 175 to 180. I looked like Abraham Lincoln. I was 6-foot-3, biggest thing in the class, but tall, not fat.
+ - It was a big story and yesterday’s soup. Who cares?
+
+55 quotes

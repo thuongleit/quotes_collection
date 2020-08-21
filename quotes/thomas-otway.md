@@ -1,0 +1,31 @@
+ - Oh woman! lovely woman! nature made thee To temper man; we had been brutes without you; Angels are painted fair to look like you; There’s in you all that we believe of heaven, Amazing brightness, purity, and truth, Eternal joy, and everlasting love.
+ - There is such sweet pain in parting that I could hang forever on thine arms, and look away my life into thine eyes.
+ - The worst thing an old man can be is a lover.
+ - Honesty needs no disguise nor ornament; be plain.
+ - Clocks will go as they are set, but man, irregular man, is never constant, never certain.
+ - Honest men are the soft easy cushions on which knaves repose and fatten.
+ - Let us embrace, and from this very moment vow an eternal misery together.
+ - Ambition is a lust that is never quenched, but grows more inflamed and madder by enjoyment.
+ - No flattery, boy! an honest man cannot live by it; it is a little, sneaking art, which knaves use to cajole and soften fools withal.
+ - And for an apple damn’d mankind.
+ - Shining through tears, like April suns in showers, that labor to overcome the cloud that loads em.
+ - Justice is lame as well as blind, amongst us.
+ - False as the adulterate promises of favorites in power when poor men court them.
+ - Revenge, the attribute of gods! They stamped it with their great image on our natures.
+ - Love reigns a very tyrant in my heart.
+ - Cowards are scared with threatenings; boys are whipped into confession; but a steady mind acts of itself, ne’er asks the body counsel.
+ - Honesty was a cheat invented first To bind the hands of bold deserving rogues, That fools and cowards might sit safe in power, And lord it uncontroll’d above their betters.
+ - If love be treasure, we’ll be wondrous rich.
+ - Who’s a prince or beggar in the grave?
+ - The poor sleep little.
+ - No praying, it spoils business.
+ - And die with decency.
+ - Ere man’s corruptions made him wretched, he Was born most noble that was born most free; Each of himself was lord; and unconfin’d Obey’d the dictates of his godlike mind.
+ - Could my griefs speak, the tale would have no end.
+ - Children blessings seem, but torments are.
+ - I may boldly speak In right, though proud oppression will not hear me!
+ - Home I would go But that my doors are hateful to my eyes, Fill’d and damm’d up with gaping creditors, Watchful as fowlers when their game will spring.
+ - You wags that judge by rote, and damn by rule.
+ - Base natures ever judge a thing above them, and hate a power they are too much obliged to.
+
+29 quotes

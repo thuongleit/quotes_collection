@@ -1,0 +1,41 @@
+ - Be kind to yourself so you can be happy enough to be kind to the world.
+ - Even small acts of kindness can make a profound difference to somebody else.
+ - Don’t pressure yourself. Don’t worry about what others think you should do or what the societal “norm” is. Do what moves you and makes you smile and the “good” will follow.
+ - I want to live in a world where ‘normal’ is an insult.
+ - We are bound only by the limits of our imaginations.
+ - If God is watching your every move, you should probably straighten up your act a little bit.
+ - Do what moves you and makes you smile and the “good” will follow.
+ - I paid my way through college as a carpenter and a woodworker. So I’ve built the house I live in and most of the furniture that’s in it, and I do a lot of woodworking still.
+ - I am passionate about tea, running, the idea that we are bound only by the limits of our imaginations, and maple syrup.
+ - It warms the cockles of my heart. Words chosen carefully.
+ - Angels are totally real. Tinkerbell has a hot ass. Wendigos exist. It’s all true. Satan is blonde. True fact.
+ - I think participating in GISHWHES is a crash course in facing our fears: people go to crowded shopping malls wearing scuba gear, order from a fast food restaurant in Shakespearean verse or jump out of airplanes among many other tasks.
+ - Well, I like to write poetry. I’m a published poet.
+ - I’m just trying to remember what self-respect feels like. It’s a fading memory.
+ - I’ve been compiling a list of art project ideas for a long time. These are ideas of things I would love to see someday. They range from the practical – jackets with woodstoves in them – to the sublime – images of nuns on waterslides.
+ - It is good to be God, yeah. It’s nice to get the recognition that I’ve been working so hard for.
+ - It’s fun to see people blow through their own perceived limitations.
+ - When I was in high school, I liked to pretend that I was a Russian foreign exchange student. I would do things like go into a pizza restaurant and tell them Id never had pizza before, and theyd bring me into the kitchen and show me how to make an American pizza. Its really fun.
+ - I occasionally go to a yoga class. Everyone looks so limber and coordinated compared to me. I feel like I scare my classmates.
+ - I suppose “giving without expecting anything in return” isn’t something new, but it always pushes your happy button when you do it or see it.
+ - If i write a book it will probably be a book about how not to use the internet or a book of poetry.
+ - Helping others pulls us out of our own problems. And so does dressing up like frogs and playing leap frog in a Starbucks. Who would’ve known.
+ - When I try to use incantations at work i often find they have no effect and my coworkers just laugh at me.
+ - If you can dress as a stormtrooper and go to a laundromat, or wear a sexy cheese gown in public, you might start to find “normal” social interactions a little less daunting.
+ - Dressage is when you put a dress on your horse. It’s like putting on drag, but for horses.
+ - I’ve been a river kayaker for a long time and I’ve done quite a few trips. I like kayaking and I like canoeing. I don’t really like being on yachts or sailboats or cruise ships. I don’t like anything that’s large and not human-powered.
+ - I am honored to even be considered for any list that includes such icons as Jared Padalecki and Jensen Ackles. I have had posters of those guys hanging over my bed for years now. I find the whole thing quite arousing.
+ - Being a father is like directing Alien or Invasion of the Body Snatchers. It’s much more difficult than directing an episode of TV. Also, directing a show or movie lasts a few months at most, parenting lasts for decades.
+ - When the Haiti earthquake happened, I registered with UNICEF to set up an account, and posted to Twitter for people to donate to it. In a matter of a couple of hours, $30,000 had been donated. That, to me, was eye-opening.
+ - The image of a person completely covered in cotton candy made me laugh the most. I’m not sure why. To me, being tarred and feathered in sugar is just good comedy.
+ - Being God is not all it’s cracked up to be, and it’s not as easy as one would think it would be. You’d think the deck would be really stacked in your favor as God, but of course, I’ve run into some pretty big obstacles and problems.
+ - I grew up with a family that had very little and were at times homeless.
+ - When you’re doing lots and lots of episodes and you’re playing the same character, it’s great because you really get to know the character and it becomes a really fast style and you find subtleties in it.
+ - As an actor, if you want to while shooting, you can run back to your trailer and take a nap. But you cannot do that while directing.
+ - I’m not actually pop culture or social media savvy. I really didn’t know what Twitter was when I created an account.
+ - A lot of times you see really good-looking guys on TV and you sort of assume that maybe there’s some sort of vacuity behind them.
+ - I’ve never done too much inquiry into angels.
+ - I think there are presences out there that we can’t see or directly communicate with that have benevolent influence on us. Whether they’re angels or something else, I’m not sure.
+ - I am a frustrating interviewee. I’m like Ronald Reagan. I don’t remember and I don’t recall.
+
+39 quotes

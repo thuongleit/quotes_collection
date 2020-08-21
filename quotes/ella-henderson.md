@@ -1,0 +1,28 @@
+ - Create a vision that makes you wanna jump out of bed in the morning.
+ - I WAS a mermaid in my past-life! I definitely was. I don’t know why I’m obsessed with them that much, which is why I think that somehow in my past-life I must have just lived underwater or something. Maybe I was a fish or a dolphin, but I do believe in mermaids.
+ - I think a lot of people assume from my music and stuff I’m constantly talking about deep and meaningful things, but then with my friends I’m just a class clown.
+ - I’m not very much an open book, I do really express myself only through my music and when I’m in that safe environment and I don’t have to let anything go out of the studios that I don’t want to go out.
+ - By the time I was ten or eleven, I had a song-book and I was writing everything down. It used to just be my hobby but now it’s like my diary, it’s where I can go in my own little bubble.
+ - To do a world tour with my album, that would be really incredible. I love travelling, and I love travelling through my music.
+ - Most of the time I write my best songs just from feeling a strong emotion, so whether I’m just really angry or really sad or really happy, I immediately sit down at a piano and I begin writing a song.
+ - I guess my biggest influence was actually my Grandfather. He used to play old records on vinyl, and would play old jazz and soul music like Ella Fitzgerald, Billie Holiday and The Rat Pack and swing music.
+ - I love reggae music; reggae music’s like my go-to.
+ - I just love making sounds. Anything that made a sound, as a kid I was just taken back by and would sit with it for ages and just try and make all different sounds on it.
+ - I always feel like when I’ve listened to a great song I know it, ’cuz it’s the only time I’ll ever get goosebumps or something like that.
+ - The simple questions are always the hardest ones.
+ - I definitely love music that’s coming out now, there’s some really exciting fresh artists coming through which is really cool. I guess it’s from old and new, where my influences are based.
+ - I started playing the piano from the age of three and I started teaching myself; we always had a piano round the house.
+ - I just used to love the sound of especially a female vocal like Ella Fitzgerald for example, it’s just that empowering self-control that can make a whole room go silent. I fell in love with that sound.
+ - I was teaching myself notes from three and then by seven I’d figured out how to play some chords, and at school I used to love writing poems and poetry, so I guess I kind of put two and two together and that formed my songwriting from an early age.
+ - From an early age I’ve written songs and played the piano.
+ - I think I was a mermaid and I used to swim the shores or Hawaii and used to pop up and see coconuts and pineapples everywhere.
+ - I think there’s thousands of good songs in the world – the songs that we can all sing along to, songs that are just so catchy they end up being in your head. But I think a great song is something that emotionally engages with you and connects with you.
+ - A piano in the house, when I came home from school and was able to play all these different notes with all theses different sounds, I really found that fascinating.
+ - Reggae music really chills me out in my dressing-room before I head on stage.
+ - I knew what I didn’t want, and I knew whatever it was going to be it had to be believable and it had to come from me and I had to drive it. The way I write is very honest and when I think of the music that I listened to growing up, I loved it because I believed it.
+ - I had to introduce a lot of people into my writing environment which I thought at first I would find really difficult, but I actually found that I loved it. It meant that I was meeting different people; it meant that I was expressing myself in different ways.
+ - When I do my vocal warm-ups everyone calls me the dolphin because I do stupid siren noises.
+ - There was always a piano around the house and I’ve got other brothers and sisters but I’m the youngest, and none of them ever wanted to play it. So I guess I was the only one that was gonna end up playing it, if it was one of us.
+ - I think we’ve all got a mirror man in our life – male, female, it’s someone who love themselves before they can love anyone else.
+
+26 quotes

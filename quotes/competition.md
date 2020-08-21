@@ -1,0 +1,42 @@
+ - No competition, no progress. ~~Bela Karolyi
+ - I am not in competition with anyone but myself. My goal is to improve myself continuously. ~~Bill Gates
+ - It’s early in the morning and your competition is still sleeping. ~~Greg Plitt
+ - In training, you listen to your body. In competition, you tell your body to shut up. ~~Rich Froning Jr.
+ - Never compete, create. ~~Earl Nightingale
+ - You have competition every day because you set such high standards for yourself that you have to go out every day and live up to that. ~~Michael Jordan
+ - Winning isn’t getting ahead of others, it is getting ahead of yourself. ~~Roger Staubach
+ - The world is so full of people who are grabbing and self-seeking. So the rare individual who unselfishly tries to serve others has an enormous advantage. He has little competition. ~~Dale Carnegie
+ - So many times people are afraid of competition, when it should bring out the best in us. We all have talents and abilities, so why be intimidated by other people’s skills? ~~Lou Holtz
+ - We want to be first; not first if, not first but; but first! ~~John F. Kennedy
+ - I release any feelings of competition or comparison. I simply do my best and enjoy being me. ~~Louise Hay
+ - Life is a kind of Chess, with struggle, competition, good and ill events. ~~Benjamin Franklin
+ - Competition is a sin. ~~John D. Rockefeller
+ - The most meaningful way to differentiate your company from your competition, is to do an outstanding job with information. ~~Bill Gates
+ - Competition is overrated. In practice it is quite destructive and should be avoided wherever possible. Much better than fighting for scraps in existing markets is to create and own new ones. ~~Peter Thiel
+ - Inside the Great Mystery that is, we don’t really own anything. What is this competition we feel then, before we go, one at a time, through the same gate? ~~Rumi
+ - In a competition of love we’ll all share in the victory, no matter who comes first. ~~Muhammad Ali
+ - There are only two sources of competitive advantage: the ability to learn more about our customers faster than the competition and the ability to turn that learning into action faster than the competition. ~~Jack Welch
+ - The squeaky wheel gets the grease but the quacking duck gets shot. ~~Carl Sandburg
+ - Optimization is generally detrimental to future success, but it is the only way to accomplish present success in competition with others who are equally interested in short-term results. ~~Erik Naggum
+ - Cooperation is always more powerful than competition. ~~Bob Proctor
+ - Competition is the law of the jungle, but cooperation is the law of civilization. ~~Peter Kropotkin
+ - Competition should not be for a share of the market-but to expand the market. ~~W. Edwards Deming
+ - Competition is like experimentation in science, a discovery process, and it must rely on the self interest of producers, it must allow them to use their knowledge for their purposes, because nobody else possesses the information. ~~Friedrich August von Hayek
+ - Do not overestimate the competition and underestimate yourself. You are better than you think. ~~Tim Ferriss
+ - Take life step by step, pace by pace, slowly slowly, and leave the competition to others. ~~Eddie Redmayne
+ - Don’t steal – the government hates competition! ~~Ron Paul
+ - When a show fails to destroy the competition-and it can fail while attracting 20 million viewers-it is itself destroyed. ~~Les Brown
+ - I’m a prideful person when it comes to competition. ~~Ray Lewis
+ - There are only two kinds of businesses in this world: Businesses in crazy competition, and businesses that are one of a kind. ~~Peter Thiel
+ - Where combination is possible, competition is impossible. ~~George Stephenson
+ - You might not be able to outthink, outmarket or outspend your competition, but you can outwork them. ~~Lou Holtz
+ - I’m in competition with myself and I’m losing. ~~Roger Waters
+ - I’ve been in international competition, and now I know what the big boys can do. You don’t go out and just run. There’s an offense and a defense. ~~Steve Prefontaine
+ - The competition to hire the best will increase in the years ahead. Companies that give extra flexibility to their employees will have the edge in this area. ~~Bill Gates
+ - Competition is always a fantastic thing, and the computer industry is intensely competitive. ~~Bill Gates
+ - The way for newspapers to meet the competition of radio and television is simply to get out better papers. ~~H. L. Mencken
+ - What began in deadly competition has helped us to see that global cooperation is the essential precondition for our survival. Travel is broadening. It’s time to hit the road again. ~~Carl Sagan
+ - And if we’re all one, we need to stop our competition with each other. Most of the decisions we make are about survival and winning. ~~Neale Donald Walsch
+ - Competition exists to choose who gets the prize when the prize can’t be shared. ~~Andrew Harvey
+
+40 quotes

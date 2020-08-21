@@ -1,0 +1,50 @@
+ - The first great and primary business to which I ought to attend every day is to have my soul happy in the Lord.
+ - God not only orders our steps, He orders our stops.
+ - Only a life of prayer and meditation will render a vessel ready for the Master’s use.
+ - The only way to learn strong faith is to endure great trials.
+ - The greater the trial, the sweeter the victory.
+ - Faith does not operate in the realm of the possible. There is no glory for God in that which is humanly possible. Faith begins where man’s power ends.
+ - The beginning of anxiety is the end of faith, and the beginning of true faith is the end of anxiety.
+ - There was a day when I died; died to self, my opinions, preferences, tastes and will; died to the world, its approval or censure; died to the approval or blame even of my brethren or friends; and since then I have studied only to show myself approved unto God.
+ - The word of God is our only standard, and the Holy Spirit our only teacher.
+ - God is the author of the Bible, and only the truth it contains will lead people to true happiness.
+ - The Spirit and the Word must be combined. If I look to the Spirit alone without the Word, I lay myself open to great delusions also. If the Holy Ghost guides us at all, He will do it according to the Scriptures and never contrary to them.
+ - Our heavenly Father never takes anything from his children unless he means to give them something better.
+ - When God overcomes our difficulties for us, we have the assurance that we are engaged in His work and not our own.
+ - Where faith begins, anxiety ends; where anxiety begins, faith end.
+ - Trials, obstacles, difficulties and sometimes defeats, are the very food of faith.
+ - Now what is food for the inner man? Not prayer, but the Word of God; and here again, not the simple reading of the Word of God, so that it only passes through our minds, just as water passes through a pipe, but considering what we read, pondering it over and applying it to our hearts.
+ - God judges what we give by what we keep.
+ - I live in the spirit of prayer. I pray as I walk about, when I lie down and when I rise up. And the answers are always coming.
+ - Laying up treasures in heaven will draw the heart heavenward.
+ - When the day of recompense comes, our only regret will be that we have done so little for Him, not that we have done too much.
+ - Be assured that Christianity is something more than forms and creeds and ceremonies: there is life, and power, and reality, in our holy faith.
+ - I desire many things concerning myself; but I desire nothing so much, as to have a heart filled with love to the Lord. I long for a warm personal attachment to Him.
+ - If we desire our faith to be strengthened, we should not shrink from opportunities where our faith may be tried, and therefore, through trial, be strengthened.
+ - The greater the difficulty to be overcome, the more will it be seen to the glory of God how much can be done by prayer and faith.
+ - Money is really worth no more than as it can be used to accomplish the Lord’s work. Life is worth as much as it is spent for the Lord’s service.
+ - When sight ceases, it is the time for faith to work. The greater the difficulties, the easier it is for faith. As long as human possibilities for success remain, faith does not accomplish things as easily as when all natural prospects fail.
+ - Never give up praying until the answer comes.
+ - Every instance of obedience, from right motives, strengthens us spiritually, whilst every act of disobedience weakens us.
+ - In order to enjoy the Word, we ought to continue to read it, and the way to obtain a spirit of prayer, is, to continue praying; for the less we read the Word of God, the less we desire to read it, and the less we pray, the less we desire to pray.
+ - God delights to increase the faith of His children. We ought, instead of wanting no trials before victory, no exercise for patience, to be willing to take them from God’s hands as a means. Trials, obstacles, difficulties and sometimes defeats, are the very food of faith.
+ - I believe God has heard my prayers. He will make it manifest in His own good time that He has heard me. I have recorded my petitions that when God has answered them, His name will be glorified.
+ - The joy which answers to prayer give, cannot be described; and the impetus which they afford to the spiritual life is exceedingly great.
+ - The vigor of our spiritual life will be in exact proportion to the place held by the Bible in our life and thoughts.
+ - There were few people, perhaps, more passionately fond of travelling, and seeing fresh places, and new scenes, than myself; but now, since, by the grace of God, I have seen beauty in the Lord Jesus, I have lost my taste for these things.
+ - If honest of heart and uprightness before God were lacking or if I did not patiently wait on God for instruction, or if I preferred the counsel of my fellow-men to the declarations of the Word of God, I made great mistakes.
+ - It is a common temptation of Satan to make us give up the reading of the Word and prayer when our enjoyment is gone; as if it were of no use to read the Scriptures when we do not enjoy them, and as if it were no use to pray when we have no spirit of prayer.
+ - In the greatest difficulties, in the heaviest trials, in the deepest poverty and necessities, He has never failed me; but because I was enabled by His grace to trust Him He has always appeared for my help. I delight in speaking well of His name.
+ - God is pleased continually to vary His mode of dealing with us, in order that we may not be tempted to trust in donors, or in circumstances, but in Him alone, and to keep our eye fixed upon Him.
+ - If the Holy Spirit guides us, He will do it according to the Scriptures and never contrary to them.
+ - Oh this is reality, not a fable, that the Lord Jesus Christ is our friend. And we should not be satisfied until we are brought to this.
+ - Often the work of the Lord itself may be a temptation to keep us from that communion with Him which is so essential to the benefit of our own souls.
+ - A servant of God has but one Master. It ill becomes the servant to seek to be rich, and great, and honored in that world where his Lord was poor, and mean, and despised.
+ - The province of faith begins where probabilities cease and sight and sense fail.
+ - Through faith in the Lord Jesus alone can we obtain forgiveness of our sins, and be at peace with God; but, believing in Jesus, we become, through this very faith, the children of God; have God as our Father, and may come to Him for all the temporal and spiritual blessings which we need.
+ - The Lord Jesus, everything. In himself worse than nothing. By grace, in Christ, the son of the King.
+ - There is an intimate connection between the life of the Christian here and the enjoyment and the glory in the day of Christ’s appearing.
+ - If we say we trust in Him, but in reality do not, then God, taking us at our word, lets us see that we do not really confide in Him, and hence failure arises.
+ - As a warning to parents, I mention that my father preferred me to my brother, which was very injurious to both of us. To me, as tending to produce in my mind a feeling of self-elevation; and to my brother, by creating in him a dislike both towards my father and me.
+
+48 quotes

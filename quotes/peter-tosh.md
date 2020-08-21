@@ -1,0 +1,34 @@
+ - I’m on my way to happiness, where I can find some peace and rest.
+ - What the Rastaman represents is positivity.
+ - Legalize it, and I will advertise it.
+ - My philosophy is: if you don’t bear a cross, you can’t wear a crown so you gotta go through some form of humiliation to reach tribulation.
+ - I don’t need no peace. I need equal rights and justice.
+ - Peace is a certificate you get in the grave.
+ - To be coordinated with the power of balance, your mind and your temple must be running parallel.
+ - I’ve got to pick myself up Dust myself off And start all over again.
+ - Reggae must be lived, not played. It is a lifebeat everytime, mon.
+ - It takes a lot of physical and spiritual energy to balance on one wheel. Seen?
+ - There are lots of imposters in this earth, and to very first there always comes a second, to every reality there always come a fantasy, and the fantasy wants to come and live the life of the reality.
+ - I am good. I live good. I think good. I don’t have to feel good to be good, I take my goodness wherever I go.
+ - I do nothing I regret, man, because I try to do nothing abominable. As long as there is not an abomination, there is nothing to regret, you understand?
+ - I travel the garden of music, thru inspiration. It’s a large, very large garden, seen?
+ - I don’t owe no one no obligation, and no one owe me none so every ’ting is fine.
+ - In the beginning there was the word. The word was Jah. The word is in I, Jah is in I. I make what is good, better, and what is better, best. I follow this in every aspect of life.
+ - To have the truth in your possession you can be found guilty, sentenced to death.
+ - My songs is hard stuff which politicians don’t want on them radio station because they still want people to live in ignorancy.
+ - I mean the flesh, never fade! The flesh never leave the creation, see, because with that divine spirit the flesh cannot fade. If the spirit is weak then the flesh fade, seen?
+ - Music is a science, it heals depression, it awakens, most people don’t know, they just take music for an entertainment, something to dance to, and enjoy yourself and you go to bed and forget it tomorrow, music must never be forgotten, it’s like a fountain that keeps on flowing.
+ - I want to have complete control over every media so that when I make my record I put on it what I want to put on it. Not what society wants me to put on it.
+ - How old is the sun? Sun not temporary, not chronological. There is the terra-celestial and the celestial. I am celestial, mon. I am here, there and everywhere. I live among men so I must adjust myself. When I go to other planet, I must adjust myself there, too, mon.
+ - People are beginning to recognize reggae music, and know it’s a very powerful music, and researchers have been researching and coming up with reports that it’s a great music, a healing music.
+ - If I wasn’t a singer, I’d be a bloodclaat revolutionary.
+ - Everyone’s trying to reach the top. Tell me how far is it from the bottom.
+ - And I ask why am I black, they say I was born in sin, and shamed inequity. One of the main songs we used to sing in church makes me sick, ’love wash me and I shall be whiter than snow.
+ - I man don’t come red, I come Black.
+ - Soon the earth will tilt on its axis and begin to dance to the reggae beat to the accompaniment of earthquake. And who can resist the dance of the earthquake, mon?
+ - I feel good to know that they recognize the potential of reggae music. And they are exposing it to the world, letting the world hear how beautiful reggae music can be.
+ - Because everyone who try a-go to church, and they were trying to teach but they weren’t teaching, they was brainwashing. Since I would never call that teaching...
+ - I don’t have to say I’m going to make a song. A song is always there. I just have to open my mouth and a song comes out.
+ - When I play for the people, every time I play for my audience they are hypnotized, seen. These guys know the potential of the music.
+
+32 quotes

@@ -1,0 +1,63 @@
+ - In developing countries, lack of infrastructure is a far more serious barrier to trade than tariffs.
+ - What you measure affects what you do. If you don’t measure the right thing, you don’t do the right thing.
+ - GDP tells you nothing about sustainability.
+ - Poverty is what we call the extremes at the bottom.
+ - It is trust, more than money, that makes the world go round.
+ - Active learning is always involved with interaction between teachers and students and Socratic methods and that’s gonna continue.
+ - Development is about transforming the lives of people, not just transforming economies.
+ - Not everybody is qualified to go to Stanford, but everybody should have access to the best qualify for which they are eligible.
+ - The reason that the invisible hand often seems invisible is that it is often not there.
+ - If the President asked you to help, I don’t think anybody could refuse, unless one felt that one couldn’t be effective.
+ - If you’re injured in an automobile accident, and you sue the driver, you get much more for your injury than if you’re fighting for your country. There’s a double standard here.
+ - International lending banks need to focus on areas where private investment doesn’t go, such as infrastructure projects, education and poverty relief.
+ - Climate change is a reality.
+ - Any society has to delegate the responsibility to maintain a certain kind of order. Enforcing regulations, making sure people stop at stoplights. We can’t function as a society without rules and regulations, and the enforcement mechanism of those rules and regulations.
+ - Macroeconomic policy can never be devoid of politics: it involves fundamental trade-offs and affects different groups differently.
+ - Most poor people earn more than minimum wage when they are working; their problem is not low wages. The problem comes when they are not working.
+ - The problem is a lot of what is called economics is not economics. It is more ideology or religion.
+ - Health care is very different from other sectors of the economy in several respects, one of which is the fact that the risk can be very high beyond people’s ability. That leads to insurance.
+ - Trickle-down economics is a myth. Enriching corporations – as the TPP would – will not necessarily help those in the middle, let alone those at the bottom.
+ - American inequality didn’t just happen. It was created.
+ - There must have been something in the air of Gary that led one into economics: the first Nobel Prize winner, Paul Samuelson, was also from Gary, as were several other distinguished economists.
+ - Unfettered market American-style capitalism doesn’t work. Developing countries can’t afford that kind of luxury. They just can’t afford it. Period. If there’s a mistake, they can’t afford to put out $2 trillion.
+ - Governments can enhance growth by increasing inclusiveness. A country’s most valuable resource is its people. So it is essential to ensure that everyone can live up to their potential, which requires educational opportunities for all.
+ - No one would look just at a firm’s revenues to assess how well it was doing. Far more relevant is the balance sheet, which shows assets and liability. That is also true for a country.
+ - The only people benefiting in Iraq war are George Bush’s Jr. friends in the oil industry. He has done the American economy and the global economy an enormous disfavor, but his Texan friends couldn’t be happier.
+ - Certainly, the poverty, the discrimination, the episodic unemployment could not but strike an inquiring youngster: why did these exist, and what could we do about them.
+ - Amherst is a liberal arts college, committed to providing students with a broad education.
+ - The notion that every well educated person would have a mastery of at least the basic elements of the humanities, sciences, and social sciences is a far cry from the specialized education that most students today receive, particularly in the research universities.
+ - The only surprise about the economic crisis of 2008 was that it came as a surprise to so many.
+ - The military is focusing only on the short run costs. If they don’t provide appropriate body armor, they save some money today, but the healthcare cost is going to be the future for some other president down the line. I view that as both fiscally and morally irresponsible.
+ - The recovery of the banks is what happens when you reduce competition, lend money to them at zero interest rates, allow them to gamble. That particular style of restoration actually inhibits the economic recovery.
+ - There is a growing consensus that the European systems have worked better than the American: They have been able to deliver better health care to more people at lower cost.
+ - I went to Amherst because my brother had gone there before me, and he went there because his guidance counselor thought that we would do better there than at a large university like Harvard.
+ - I understand why political leaders in the beginning want to be cheerleaders to generate optimism. But to admit that they didn’t understand the depths of the problem afterwards, I found a little bit surprising.
+ - The life prospects of an American are more dependent on the income and education of his parents than in any of the other advanced industrial countries.
+ - You saw on your TV what happened in New Orleans after Hurricane Katrina. The Reserves or National Guard are usually the people we use for those national emergencies. They weren’t here, they were over in Iraq, and so we were less protected.
+ - I don’t think if we had been able to make that choice rationally, we would have said that’s what we want to do. We would have said: “Can’t we save the banks and solve our health care problems?” The answer is yes. You could have.
+ - I think that for the developing world there are many versions of capitalism, and countries have to choose one that’s appropriate.
+ - I went to public schools, and while Gary was, like most American cities, racially segregated, it was at least socially integrated – a cross section of children from families of all walks of life.
+ - What most Americans mean when they say “the end of the recession” is, “When will it be back to normal? When can we get jobs? When will the employment rate be back to 4 percent or 5 percent?”
+ - Economists often like startling theorems, results which seem to run counter to conventional wisdom.
+ - When I said “the pocket of the banks,” it is not necessarily a mercenary relationship. It is a mindset.
+ - I think in part the reason is that seeing an economy that is, in many ways, quite different from the one grows up in, helps crystallize issues: in one’s own environment, one takes too much for granted, without asking why things are the way they are.
+ - You can’t overestimate what happens when you encourage regulators to believe that the goal of regulation is not to regulate.
+ - I grew up in a family in which political issues were often discussed, and debated intensely.
+ - But individuals and firms spend an enormous amount of resources acquiring information, which affects their beliefs; and actions of others too affect their beliefs.
+ - If stability and efficiency required that there existed markets that extended infinitely far into the future – and these markets clearly did not exist – what assurance do we have of the stability and efficiency of the capitalist system?
+ - Most people think the Iraq war has increased the probability of an attack. However, it’s difficult to put this aspect into financial terms.
+ - As I noted in my Nobel lecture, an early insight in my work on the economics of information concerned the problem of appropriability – the difficulty that those who pay for information have in getting returns.
+ - In debate, one randomly was assigned to one side or the other. This had at least one virtue – it made one see that there was more than one side to these complex issues.
+ - For that to happen, growth has to be very strong. To get back to normalcy, we will have to have extended growth of more than 3 percent. That’s not in the cards.
+ - The important lesson of the deficit is – and the national debt – is we have to be careful about how we’re spending money.
+ - For instance, one of the costs of the war is that soldiers today get very seriously injured but stay alive, and we can keep them alive but at an enormous price.
+ - Amherst was pivotal in my broad intellectual development; MIT in my development as a professional economist.
+ - One has to always ask the question: Where can one be most effective in helping shape policies? It is always difficult when you’re inside because you’re very constrained.
+ - My teachers helped guide and motivate me; but the responsibility of learning was left with me, an approach to learning which was later reinforced by my experiences at Amherst.
+ - Much of my work in this period was concerned with exploring the logic of economic models, but also with attempting to reconcile the models with every day observation.
+ - The issue is: $1 trillion or $2 trillion is a lot of money. If our objective is to have stability in the Middle East, secure oil, or extend democracy, you can do a lot of democracy buying for this sum. To put it in context: The whole world spends $50 billion a year on foreign aid.
+ - I knew that discrimination existed, even though there were many individuals who were not prejudiced.
+ - Similarly, payments for a dead soldier amount to only $500,000, which is far less than standard estimates of the lifetime economic cost of a death. This statistical value of a life in the US amounts to circa $6.5 million.
+ - The extra curricular activity in which I was most engaged – debating – helped shape my interests in public policy.
+
+61 quotes

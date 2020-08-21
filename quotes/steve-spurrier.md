@@ -1,0 +1,33 @@
+ - A swamp is where Gators live. We feel comfortable there, but we hope our opponents feel tentative. A swamp is hot and sticky and can be dangerous. Only Gators get out alive.
+ - We all like to prove people wrong who say we’re no good.
+ - You know what FSU stands for, don’t you? Free Shoes University.
+ - So, I didn’t say we are going to win a lot, but we are going to play like winners, and we’ve got a plan in place to teach our guys how to play like winners and play like a champion.
+ - You can’t spell Citrus without UT.
+ - I don’t think telling the truth ever gets anyone in trouble in the long run. Maybe the day after, but not in the long run.
+ - He was the unloving father that I never had, but I still craved his acceptance.
+ - Coaching to me is correcting mistakes and trying to get your players to think. If raising your voice occasionally gets them to think better, then that’s called coaching.
+ - Cheating is cheating. Some coaches believe if you can get away with it, cheating is smart. I have no respect for those guys.
+ - If I had a defense like Hal Mumme has, I would be trying them on every kickoff.
+ - But the real tragedy was that 15 hadn’t been colored yet.
+ - In the offseason, why can’t it be a little lighter? It’s not life or death. I try to have a little fun, but all of my comments are true. I don’t lie. If they get mad at me for saying something that isn’t true, then tap me on my shoulder and say, ‘That isn’t true.’
+ - Number three, we’re going to play very smart and we’re not going to beat ourselves. If the other team is better than us and they just out execute us and play better then we can live with that, but we’re going to play smart and give ourselves every opportunity to win the game.
+ - I think I’ve got an outstanding defensive assistant staff that’s really going to help us have consistent, strong defenses. And offensively, we have an excellent staff. We’ve got some younger guys on offense, but that’s what I coach and have my entire coaching career.
+ - It’s easier to win the National Championship than the SEC, ask Nick Saban.
+ - I really believe everything is here for us to be very successful.
+ - The Pope is 77 years old and he’s in charge of a billion people. All I have to do is put 11 on the field.
+ - In my experience I’ve learned women are better streakers.
+ - I do get away maybe a little bit more than most coaches do, but that seems to have worked for me in my coaching career. I recommended the way not to get burned out from your job is to have some hobbies and get away from it when you can.
+ - We’ve got a support system that gives our players a wonderful opportunity to graduate. If they go to class and give good effort, they can graduate from this school, and I believe that’s important when you go out recruiting.
+ - Number four, we’re going to play like winners, play the game the way it’s meant to be played. Don’t get full of yourself if something good happens. Don’t get too depressed when something bad happens.
+ - You keep playing, you get a lead and build on it. People get mad when you keep playing, but that’s part of the game, too.
+ - In Knoxville, they’re still doing cartwheels because they went 7-6 and won a bowl game.
+ - Our coaches want to be a part of South Carolina football when they win it for the first time. When they win the division, when they win the SEC, win a major bowl game, etc. The opportunities to do it all for the first time here make it extra special.
+ - Number two, we’re going to play with a lot of effort. Our guys are going to be in such good shape that fatigue is not going to be a problem. We’re going to play with full effort from snap to whistle on every play the entire game.
+ - Obviously my last two years in the NFL were not much fun at all.
+ - So you get two good hours on the field about every day, you get about an hour and a half in the meeting room and that’s pretty much all you need to thoroughly coach your team.
+ - But as coaches, we need to get a little more fire and passion and be more demanding that our guys get the job done. I think players will respond to that, and we’ll see.
+ - But at some point, we’ve got to have disciplined play and have got to coach better. I’m not putting it on the players. We’ve got to coach them to tackle and block better. It’s as simple as that. If we can do those things, we’ll have a chance.
+ - All I can say is that I’m going to try to coach the way I’ve coached in the past. And if it ends up not being good enough, then so be it.
+ - Recruiting can be a little deceiving at times. You never know what you’ve got until you really, really play it out.
+
+31 quotes

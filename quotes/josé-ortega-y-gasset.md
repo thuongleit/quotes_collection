@@ -1,0 +1,127 @@
+ - Tell me what you pay attention to and I will tell you who you are.
+ - Effort is only effort when it begins to hurt.
+ - All we are given are possibilities to make ourselves one thing or another.
+ - We fall in love when our imagination projects nonexistent perfection upon another person. One day, the fantasy evaporates and with it, love dies.
+ - I am I plus my surroundings; and if I do not preserve the latter, I do not preserve myself.
+ - To learn English you must begin by thrusting the jaw forward, almost clenching the teeth, and practically immbilizing the lips. In this way the English produce the series of unpleasant little mews of which their language consists.
+ - I am I plus my circumstances.
+ - These are the only genuine ideas, the ideas of the shipwrecked. All the rest is rhetoric, posturing, farce.
+ - Love is exclusivity, selection.
+ - Being an artist means ceasing to take seriously that very serious person we are when we are not an artist.
+ - An ‘unemployed’ existence is a worse negation of life than death itself.
+ - Life is a terrible conflict, a grandiose and atrocious confluence. Hunting submerges man deliberately in that formidable mystery and therefore contains something of religious rite and emotion in which homage is paid to what is divine, transcendent, and in the laws of Nature.
+ - The metaphor is perhaps one of man’s most fruitful potentialities. Its efficacy verges on magic, and it seems a tool for creation which God forgot inside one of His creatures when He made him.
+ - The hero’s will is not that of his ancestors nor of his society, but his own. This will to be oneself is heroism.
+ - In this initial illimitableness of possibilities that characterizes one who has no nature there stands out only one fixed, pre-established, and given line by which he may chart his course, only one limit: the past.
+ - The man who discovers a new scientific truth has previously had to smash to atoms almost everything he had learnt, and arrives at the new truth with hands blood stained from the slaughter of a thousand platitudes.
+ - Nobility is defined by the demands it makes on us – by obligations, not by rights. Noblesse oblige. ‘To live as one likes is plebeian; the noble man aspires to order and law.’
+ - The person portrayed and the portrait are two entirely different things.
+ - The hunter who accepts the sporting code of ethics keeps his commandments in the greatest solitude, with no witness or audience other than the sharp peaks of the mountain, the roaming cloud, the stern oak, the trembling juniper, and the passing animal.
+ - With morality we correct the mistakes of our instincts, and with love we correct the mistakes of our morals.
+ - We cannot put off living until we are ready.
+ - Barbarism is the absence of standards to which appeal can be made.
+ - The individual point of view is the only point of view from which one is able to look at the world in its truth.
+ - The essence of man is, discontent, divine discontent; a sort of love without a beloved, the ache we feel in a member we no longer have.
+ - The preoccupation with what should be is estimable only when the respect for what is has been exhausted.
+ - A fascinating mystery of nature is manifested in the universal fact of hunting: the inexorable hierarchy among living beings. Every animal is in a relationship of superiority or inferiority with regard to every other. Strict equality is exceedingly improbable and anomalous.
+ - We cannot put off living until we are ready. The most salient characteristic of life is its urgency, ‘here and now’ without any possible postponement. Life is fired at us point-blank.
+ - Law is born from despair of human nature.
+ - He who wishes to teach us a truth should not tell it to us, but simply suggest it with a brief gesture, a gesture which starts an ideal trajectory in the air along which we glide until we find ourselves at the feet of the new truth.
+ - Man is a fugitive from nature.
+ - Our firmest convictions are apt to be the most suspect; they mark our limitations and our bounds. Life is a petty thing unless it is moved by the indomitable urge to extend its boundaries.
+ - The tapestry of history that seems so full of tragedy when viewed from the front has countless comic scenes woven into its reverse side. In truth, tragedy and comedy are the twin masks of history – its mass appeal.
+ - I am myself and what is around me, and if I do not save it, it shall not save me.
+ - Better beware of notions like genius and inspiration; they are a sort of magic wand and should be used sparingly by anybody who wants to see things clearly.
+ - Hatred is a feeling which leads to the extinction of values.
+ - The real magic wand is the child’s own mind.
+ - Men play at tragedy because they do not believe in the reality of the tragedy which is actually being staged in the civilised world.
+ - When you are fed up with the troublesome present, take your gun, whistle for your dog, and go out to the mountain.
+ - We need to study the whole of history, not to fall back into it, but to see if we can escape from it.
+ - Life is fired at us point blank.
+ - The hunter is the alert man. But this itself-life as complete alertness-is the attitude in which the animal exists in the jungle.
+ - Revolution is not the uprising against preexisting order, but the setting up of a new order contradictory to the traditional one.
+ - The type of human being we prefer reveals the contours of our heart.
+ - Since love is the most delicate and total act of a soul, it will reflect the state and nature of the soul.
+ - The well being of democracies regardless of their type and status is dependent on one small technical detail: The right to vote. Everything else is secondary.
+ - Civilization is nothing more than the effort to reduce the use of force to the last resort.
+ - The choice of a point of view is the initial act of a culture.
+ - To be surprised, to wonder, is to begin to understand. This is the sport, the luxury, special to the intellectual man.
+ - Rancor is an outpouring of a feeling of inferiority.
+ - Poetry has become the higher algebra of metaphors.
+ - Human vitality is so exuberant that in the sorriest desert it still finds a pretext for glowing and trembling.
+ - The will to be oneself is heroism.
+ - History is the science of people.
+ - Excellence means when a man or woman asks of himself more than others do.
+ - The metaphor is probably the most fertile power possessed by man.
+ - Man’s being is made of such strange stuff as to be partly akin to nature and partly not, at once natural and extranatural, a kind of ontological centaur, half immersed in nature, half transcending it.
+ - Today violence is the rhetoric of the period.
+ - Hating someone is feeling irritation by their mere existence.
+ - To be free means to be lacking in constitutive identity.
+ - To wonder is to begin to understand.
+ - What makes a nation great is not primarily its great men, but the stature of its innumerable mediocre ones.
+ - The good is, like nature, an immense landscape in which man advances through centuries of exploration.
+ - To write well consists of continuously making small erosions, wearing away grammar in its established form, current norms of language. It is an act of permanent rebellion and subversion against social environs.
+ - Every intellectual effort sets us apart from the commonplace, and leads us by hidden and difficult paths to secluded spots where we find ourselves amid unaccustomed thoughts.
+ - The most radical division that it is possible to make of humanity is that which splits it into two classes of creatures: Those who make great demands on themselves, piling up difficulties and duties; and those who demand nothing special of themselves, bu.
+ - All life is the struggle, the effort to be itself.
+ - One age cannot be completely understood if all the others are not understood. The song of history can only be sung as a whole.
+ - Every life is, more or less, a ruin among whose debris we have to discover what the person ought to have been.
+ - This is the gravest danger that today threatens civilization: State intervention; the absorption of all spontaneous social effort by the State, that is to say, of spontaneous historical action, which in the long run sustains, nourishes, and impels human destinies.
+ - Love is that splendid triggering of human vitality the supreme activity which nature affords anyone for going out of himself toward someone else.
+ - For the person for whom small things do not exist, the great is not great.
+ - The truth is that no horizon is especially interesting by itself, by virtue of its peculiar content, and that any horizon, wide or narrow, brilliant or dull, varied or monotonous, may possess an interest of its own which merely requires a vital adjustment to be discovered.
+ - There are people who so arrange their lives that they feed themselves only on side dishes.
+ - The world is the sum-total of our vital possibilities.
+ - Living is nothing more or less than doing one thing instead of another.
+ - Life is a series of collisions with the future; it is not the sum of what we have been, but what we yearn to be.
+ - If the human intellect functions, it is actually in order to solve the problems which the man’s inner destiny sets it.
+ - Why write if this too easy activity of pushing a pen across paper is not given a certain bullfighting risk and we do not approach dangerous, agile and two-horned topics?
+ - Life is a struggle with things to maintain itself among them. Concepts are the strategic plan we form in answer to the attack.
+ - Under the species of Syndicalism and Fascism there appears for the first time in Europe a type of man who does not want to give reasons or to be right, but simply shows himself resolved to impose his opinions.
+ - Thinking is the desire to gain reality by means of ideas.
+ - The difficulties which I meet with in order to realize my existence are precisely what awaken and mobilize my activities, my capacities.
+ - Man is a substantial emigrant on a pilgrimage of being, and it is accordingly meaningless to set limits to what he is capable of being.
+ - That Marxism should triumph in Russia, where there is no industry, would be the greatest contradiction that Marxism could undergo. But there is no such contradiction, for there is no such triumph. Russia is Marxist more or less as the Germans of the Holy Roman Empire were Romans.
+ - There is but one way left to save a classic; to give up revering him and use him for our own salvation.
+ - In order to master the unruly torrent of life the learned man meditates, the poet quivers, and the political hero erects the fortress of his will.
+ - By speaking, by thinking, we undertake to clarify things, and that forces us to exacerbate them, dislocate them, schematize them. Every concept is in itself an exaggeration.
+ - Life means to have something definite to do-a mission to fulfill-and in the measure in which we avoid setting our life to something, we make it empty. Human life, by its very nature, has to be dedicated to something.
+ - The people with the clear heads are the ones who look life in the face, realize that everything in it is problematic, and feel themselves lost. And this is the simple truth: that to live is to feel oneself lost. Those who accept it have already begun to find themselves, to be on firm ground.
+ - Biography – a system in which the contradictions of a human life are unified.
+ - The trend towards pure art betrays not arrogance, as is often thought, but modesty. Art that has rid itself of human pathos is a thing without consequence...
+ - Man must not only make himself: the weightiest thing he has to do is to determine what he is going to be. He is causa sui to the second power.
+ - Poetry is adolescence fermented, and thus preserved.
+ - Life is an operation which is done in a forward direction. One lives toward the future, because to live consists inexorably in doing, in each individual life making itself.
+ - Stupefaction, when it persists, becomes stupidity.
+ - Life is the external text, the burning bush by the edge of the path from which God speaks.
+ - An idea is a putting truth in check-mate.
+ - It is not obligatory for a generation to have great men.
+ - Abasement, degradation is simply the manner of life of the man who has refused to be what it is his duty to be.
+ - The cynic, a parasite of civilization, lives by denying it, for the very reason that he is convinced that it will not fail.
+ - Order is not pressure which is imposed on society from without, but an equilibrium which is set up from within.
+ - Life is a series of collisions with the future.
+ - The characteristic of the hour is that the commonplace mind, knowing itself to be commonplace, has the assurance to proclaim the rights of the commonplace and to impose them wherever it will.
+ - The heart of man does not tolerate an absence of the excellent and supreme.
+ - Whether he be an original or a plagiarist, man is the novelist of himself.
+ - The poet begins where the man ends. The man’s lot is to live his human life, the poet’s to invent what is nonexistent.
+ - We do not live to think, but, on the contrary, we think in order that we may succeed in surviving.
+ - I do not deny that there may be other well-founded causes for the hatred which various classes feel toward politicians, but the main one seems to me that politicians are symbols of the fact that every class must take every other class into account.
+ - Triumph cannot help being cruel.
+ - I am free by compulsion, whether I wish to be or not.
+ - The struggle with the past is not a hand-to-hand fight. The future overcomes it by swallowing it. If it leaves anything outside it is lost.
+ - A revolution only lasts fifteen years, a period which coincides with the effectiveness of a generation.
+ - Thought is not a gift to man but a laborious, precarious and volatile acquisition.
+ - Whoever has not felt the danger of our times palpitating under his hand, has not really penetrated to the vitals of destiny, he has merely pricked the surface.
+ - Man has to live with the body and soul which have fallen to him by chance.
+ - We live at a time when man believes himself fabulously capable of creation, but he does not know what to create.
+ - Commonplaces are the tramways of intellectual transportation.
+ - To rule is not so much a question of the heavy hand as the firm seat.
+ - The masses think that is is easy to flee from reality, when it is the most difficult thing in the world.
+ - There are, above all, times in which the human reality, always mobile, accelerates, and bursts into vertiginous speeds. Our time is such a one, for it is made of descent and fall.
+ - Man adapts himself to everything, to the best and the worst.
+ - In these years we are witnessing the gigantic spectacle of innumerable human lives wandering about lost in their own labyrinths, through not having anything to which to give themselves.
+ - There may be as much nobility in being last as in being first, because the two positions are equally necessary in the world, the one to complement the other.
+ - We distinguish the excellent man from the common man by saying that the former is the one who makes great demands on himself, and the latter who makes no demands on himself.
+ - Living is a constant process of deciding what we are going to do.
+
+125 quotes

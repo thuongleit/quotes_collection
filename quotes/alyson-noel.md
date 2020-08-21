@@ -1,0 +1,106 @@
+ - As above, so below, as within, so without.
+ - The only thing a person can ever really do is keep moving forward. Take that big leap forward without hesitation, without once looking back. Simply forget the past and forge toward the future.
+ - There is an old and very wise Native American saying: Every time you point a finger in scorn – there are three remaining fingers pointing right back at you.
+ - That’s what true love is. It cannot be broken, it cannot be chipped away, it’s eternal, everlasting, and it can weather any storm.
+ - You cannot always have happiness, but you can always give happiness.
+ - Today’s worries are yesterday’s fears and tomorrow’s stories.
+ - Best friends make the worst enemies, they know all your secrets and how to hurt you the most.
+ - Only love heals. Anger, guilt, and fear can only destroy and separate you from your true capabilities.
+ - Forgiveness is healing – everything is energy – thoughts create – we are all connected – what you resist persists – true love never dies – the soul’s immortality is the only true immortality –.
+ - Trust works both ways.
+ - Whenever I look at me, all I see are things I’d like to change.
+ - You can’t change the past, it just is.
+ - We meet the people we’re supposed to when the time is just right.
+ - Miracles do occur, and it’s never too late to turn your life around and reach for something better.
+ - But I’ve strayed so far from normal now, I’ll never find my way back. And the truth is, I no longer want to.
+ - What if it can’t be worked out? What if I’m – what if I’m broken for good?
+ - Have I ever told you how much I love you, Ever? Have I? Ever, Ever?
+ - Gone surfing. Be back soon. -D.
+ - True character is revealedby the way people react to the bigger challenges in life.
+ - We spend our lives getting caught up in all the wrong things – led astray by our minds, our egos, seeing ourselves as separate from each other, rather than listening to the truth that lies within our own hearts, the truth that we are all connected, we are all in it together.
+ - The true liberation, the true path to freedom, lay in the ability to forgive.
+ - Life is still life. It’s still tough, complicated, and more than a little messy, with lessons to be learned, mistakes to be made, triumphs and disappointments to be had, and not every day is meant to be a party.
+ - My feelings for you are not conditional. I don’t judge you. I don’t lose patience with you. I don’t punish you. I just love you. That’s all. Pure and simple.
+ - Our past may shape us, but it doesn’t define who we become.
+ - The truth is revealed when you are ready to receive it when you need it in order to move forward to take the next step in your journey. to move on toward your destiny.
+ - We don’t always get the journey we want. But we always get the journey we need.
+ - Forgiveness is healing. Especially forgiving yourself.
+ - The other side of midnight’s hour strikes a herald thrice rung Seer, Shadow, Sun – together they come Sixteen winters hence – the light shall be eclipsed Leaving darkness to ascend beneath a sky bleeding fire.
+ - Soundlessly whispering into the void, my lips moving quickly, silently, without ceasing. Calling his name, calling him to me. Even though there’s no use. Even though it’s futile. Even though it’s way past too late.
+ - Life is not meant to be an open-book test.
+ - The heart knows no logic, and rarely corresponds with the brain.
+ - It’s over. Absolutely, completely, eternally over.
+ - Hating requires caring. In which case, I couldn’t possibly hate you.
+ - The trick is to learn to see with your heart, not with your eyes.
+ - You cannot outwalk your problems. Can never run fast enough to evade them completely.
+ - May you bring unconditional love and infinite peace.
+ - Everything passes. Everything experiences the birth and death cycle.
+ - Knowing that wishes don’t always come about in the way that we think, but if you believe and keep your mind open, there’s a really good chance they will manifest in some way.
+ - Music is one of the highest art forms there is. It can define a life, change a life, or even safe a life, in just three short minutes.
+ - What we think about, what we concentrate on, will always, always, be reflected on the outside.
+ - Because I don’t have everything I want. Not even close.
+ - No matter what happens, we’ll always be together, always find a way to locate each other. No matter which guise my soul decides to wear, I will always return to you. Just like I always have returned to you.
+ - I guess by now I should know enough about loss to realize that you never really stop missing someone-you just learn to live around the huge gaping hole of their absence.
+ - But the moment our eyes meet, I’m right back under his spell, a helpless hunk of steel to his irresistible magnet.
+ - You’re strictly a tulip girl – a red tulip girl.
+ - Four hundred years of losing out on the girl of my dreams isn’t sitting very well with me these days.
+ - Deep down inside, my heart knew the score. And I know that Haven was wrong. It’s not always a case of one loving more than the other. When two people are truly meant to be, they love equally. Differently – but still equal.
+ - Because the truth is, I do love him. I’ve loved him without ceasing. I’ve loved him since that very first day. I loved him even when I swore I didn’t. I can’t help it. I just do.
+ - Foolish Ever, don’t you realize there’s no longer any difference between you and your-monster? You are the monster. It’s your dark side, your shadow self, and you’ve now joined as one.
+ - You never know what you have till you’ve lost it.
+ - And now I’m right back where I started. Sober and miserable.
+ - The fact is, the heart and mind aren’t always friendly. And in my case, they’re barely speaking.
+ - When you think about it in the big scheme of things our time together is like a dash of spice in a big cosmic soup – important for richness of flavor but still not quite the main ingredient. The past is over. It can’t and shouldn’t be reclaimed. All we ever have is now anyway.
+ - Damen, seriously, you must know I don’t love you because you’re immortal, I love you because you’re you.
+ - Does it really matter if I choose the bus over a BMW, and generic over Gucci? Because the car, the wardrobe, the zip code-those are just nouns, things that are fun to have around, sure, but in the end, they have nothing to do with the real me. Nothing to do with who I really am.
+ - Ever, if I’ve learned nothing else in my six hundred years of living, it’s that people hate change almost as much as they hate for their beliefs to be challenged.
+ - You and I are meant to be. It’s the only thing I’m absolutely sure of. And while I have no idea what to expect, I promise I’ll do whatever it takes to find my way back.
+ - I was a beautiful vampire princess loved, worshiped and admired by all. I lived in a luxurious gothic castle and I have no idea how I ended up at this fiberglass table with you losers.
+ - Because if you’re gonna make someone choose, then you shouldn’t be surprised when they don’t choose you.
+ - The only reason I lost, the only reason I failed to get what I want, is because the monster is me, there’s no difference between us. It makes all the moves, calls all the shots, while I’m just along for the ride, with no idea how to pull the brakes or get off.
+ - Didn’t I promise I’d always look after you and keep you from harm?
+ - You’ll always be safe with me.
+ - I mean, yeah, maybe our fate is sometimes fixed and unchangeable, but there are other times when its shaped purely by the actions we take...
+ - Your heart always knows what’s important. It always knows how to guide you. It’s pure, and trustworthy – though it will never shout to be heard. it will never speak above a whisper. But if you learn how to heed it, how to hear it, you will never feel lost in the world.
+ - Aw, now look at that, you’re being sarcastic, aren’t you?
+ - I thought it was real. But by morning, all I had left were fragmented pieces, shifting images with no beginning or end.
+ - Dogs are a gift to mankind. They are happy and joyful and loyal by nature. They are pure, positive energy and teach by example. That is all that’s required of them.
+ - And while I’m sure you feel that your particular mistake is extraordinarily big, insurmountable even, contrary to what you might think, these types of things can always be undone, and oftentimes aren’t nearily as lethal as we think – or, should I say, as we allow them to be.
+ - She’s kind of a, well, you know, a B with an itch.
+ - For the moment, I’m just Daire – a girl straddling two bloodlines. One I was given – one I must earn.
+ - I’m after something far more esoteric than a virginal shag. Though, if you’d like, darlin’, I’m certainly up for the task.
+ - Because that was some mega tense awkwardness, a real ‘Hello my name is Ever and I’ll be your next stalker’ kind of moment...
+ - Whenever I look at me, all i see are things I’d like to change. Whenever Damon looks at me, all he sees is a glorious gift from the universe somewhere in the middle lies the truth.
+ - Explaining that I’m faced with a choice between being with the love of my life, or saving four lives that were never meant to end.
+ - So you’ve made a friend. How sad for them.
+ - Everyone carries a shadow, and the less it is embodied in the individual’s conscious life, the blacker and denser it is.
+ - Prince Kanta was crazy!
+ - Well, it’s nice to have a dream. But it’s even nicer when there’s a remote possibility of it coming true.
+ - After two solid weeks of waking up in Damen’s bed, wrapped in Damen’s arms, you’d think I’d have grown used to it by now. But nope. Not even close. Though I could get used to it. I’d like to get used to it.
+ - Are you staring at me because you’ve seen my doppelganger roaming the halls, playing kind of the cafeteria? Or because you need to borrow a pencil and you’re too shy to ask?
+ - Rules should always be bent, if not broken. It’s the only way to have any fun.
+ - Just make sure you’re gone by the time we get to Miles’s. It creeps me out to see you sitting in his lap without his permission.
+ - Mine. I’m on my side.
+ - Sometimes destiny lies just outside of our reach.
+ - So cute how you called out for Damen after conjuring that chaste little love scene in your head.
+ - The two of us warmed by a bold beam of light that wicks the moisture from my dress, my hair, and my skin – returning it to the sky where it promises to find me again in the form of dew, snow, or rain.
+ - Haven’s warm, clammy palms press hard against my cheeks as the tarnished edge of her silver skull ring leaves a smudge on my skin.
+ - Remember when you picked me up like a frisbee and tossed me across you yard?
+ - Nothing can rival the incredible rush the act of creation brings. Of crafting something you know is destined to be great for all time.
+ - Somewhere in the crowd was at least one potential friend who’d understand the fundamental value of goofing off. Because if not, how boring would that be?
+ - Six hundred years is an awfully long time, Ever. So long it’s impossible for either of us to imagine. Though it is more than enough time to rack up a few dirty skeletons for the old metaphorical closet, right?
+ - I look at him more than a little shocked by his words knowing how much he likes being right being in charge most people do.
+ - Family dinner. Seven-thirty sharp. Tie optional. Straight-jacker required.
+ - I’m always thinking about what I’m missing. Even when I’m happy with what I have.
+ - And just as I start to move past him, my hip accidentally rubs against his, and his face is so close, and his eyes so deep, that I can’t help but lift my fingers to his smooth, sculptured cheek. Then without even thinking, I close my eyes, lean in, and kiss him.
+ - The weird thing about saying good-bye is that it never gets easier.
+ - I’m with him, and he’s with me, and that’s the way it’s meant to eternally be.
+ - The love of every single one of my lives.
+ - He looks at me, the light in his eyes fractures into millions of bits – a kaleidoscope of darkness that may never be fixed.
+ - Damen’s The One. Always has been. Always will be.
+ - Either way, we’ll ride out together. That’s how it is with soul mates. Thats just what they do.
+ - One more sign of how perfect Damen is – he keeps a pair of trunks in his car.
+ - What a tangle love is.
+ - Home. That wonderful place I was lucky enough to revisit no matter how short a time finally realizing it’s not relegated to just one single place its wherever you make it.
+
+104 quotes

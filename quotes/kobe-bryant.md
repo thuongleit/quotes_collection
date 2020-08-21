@@ -1,0 +1,121 @@
+ - Great things come from hard work and perseverance. No excuses.
+ - Everything negative – pressure, challenges – is all an opportunity for me to rise.
+ - I have nothing in common with lazy people who blame others for their lack of success. Great things come from hard work and perseverance. No excuses.
+ - Heroes come and go, but legends are forever.
+ - If you’re afraid to fail, then you’re probably going to fail.
+ - It’s not about the number of hours you practice, it’s about the number of hours your mind is present during the practice.
+ - If you see me in a fight with a bear, pray for the bear.
+ - I can’t relate to lazy people. We don’t speak the same language. I don’t understand you. I don’t want to understand you.
+ - I’m chasing perfection.
+ - Everybody shut up. Let us work.
+ - I wanna be the best, simple and plain.
+ - You always have to be on edge. You always have to take every practice, every game, like it is your last.
+ - My brain cannot process failure. It will not process failure
+ - If you want to make history, you have to do historic things.
+ - Love me or hate me. It’s one or the other. Always has been. Hate my game, my swagger. Hate my fadeaway, my hunger. Hate that I’m a veteran, a champion. Hate that. Hate it with all your heart. And hate that I’m loved for the exact same reasons.
+ - There is power in understanding the journey of others to help create your own.
+ - Each moment of my life I was dreaming of how great I could be, and continued working hard. Each time I closed my eyes I could see me shining bright like a sun.
+ - These young guys are playing checkers. I’m out there playing chess.
+ - What I’m doing right now, I’m chasing perfection... and if I don’t get it, I’m going to get this close.
+ - As far as carrying the torch for the years to come, I don’t know. I just want to be the best basketball player I can be.
+ - I focus on one thing and one thing only – that’s trying to win as many championships as I can.
+ - Sports are such a great teacher. I think of everything they’ve taught me: camaraderie, humility, how to resolve differences.
+ - We all can be masters at our craft, but you have to make sacrifices that come along with making that decision.
+ - You just stay patient, that’s all.
+ - Listen to how everyone is talking about you. You have to use it as fuel for motivation.
+ - People just don’t understand how obsessed I am with winning.
+ - I never tried to prove anything to someone else. I wanted to prove something to myself.
+ - I’ll do whatever it takes to win games, whether it’s sitting on a bench waving a towel, handing a cup of water to a teammate, or hitting the game-winning shot.
+ - When you love something, you’ll always come back to it. You’ll always keep asking questions, and finding answers.
+ - Everything has a purpose. And that purpose has a story that goes along with it. It just depends on what your passion is.
+ - The most important thing is to try and inspire people so that they can be great in whatever they want to do.
+ - Basketball is my refuge, my sanctuary. I go back to being a kid on the playground. When I get here, it’s all good.
+ - My parents are my backbone. Still are. They’re the only group that will support you if you score zero or you score 40.
+ - If you make it, great. If you miss it, what’s there to be afraid of?
+ - I’m here. I’m not going anywhere. No matter what the injury – unless it’s completely debilitating – I’m going to be the same player I’ve always been. I’ll figure it out. I’ll make some tweaks, some changes, but I’m still coming.
+ - You’re my backbone. You’re a blessing. You’re a piece of my heart. You’re the air I breathe. And you’re the strongest person I know, and I’m so sorry for having to put you through this and having to put our family through this.
+ - Winning takes precedence over all. There’s no gray area. No almosts.
+ - The party’s just getting started. This is where the fun starts.
+ - Where are your balls at?
+ - I don’t want to be the next Michael Jordan, I only want to be Kobe Bryant.
+ - I’m playing against great players, playing against the best in the world. The competition-that’s what I’ve always wanted.
+ - Everyone looks at your watch and it represents who you are, your values and your personal style.
+ - I like playing for the purple and gold. This is where I want to finish up.
+ - I don’t want to say I’ll be back at the top of my game because everybody’s gonna think I’m crazy and it’s the old player not letting go sort of thing, but that’s what it’s gonna be.
+ - You can’t be held captive by the fear of failure or the fear of what people may say.
+ - The motivation for me is just the game itself, just playing the game the right way and trying to win, compete every time I step out there on the floor. That’s motivation enough for me to go out there and play well.
+ - I don’t just try to score. The challenge is elevating my teammates to be able to win a championship.
+ - Christmas morning, I’m going to open presents with my kids. I’m going to take pictures of them opening the presents. Then I’m going to come to the Staples Center and get ready to work.
+ - I’m reflective only in the sense that I learn to move forward. I reflect with a purpose.
+ - I’m focused on the task that lies ahead for us.
+ - I wear the number 10 Jersey for the US National Team in honour of the Greatest athlete I have ever seen: Messi.
+ - When I’m finished playing, I want people to say, ‘He handled this well, he kept his cool.’
+ - He shouldn’t have been in the NBA, but we were too cheap to pay for a point guard.
+ - You want me to own a team and deal with these rich, spoiled stubborn athletes, and try to get them to perform? No thank you.
+ - The people who truly know me know what I’m like. There have been people who try to say things that aren’t fair, and I check them. And then they don’t like me because I checked them.
+ - One thing you gotta know about me is I have absolutely no filter. I have no problem saying what the hell I think of someone.
+ - What does perfection look like to me? Championship rings.
+ - Just got one more than Shaq. You can take that to the bank.
+ - I realize now that there’s a strength in dunking that I can use to my advantage. When you dunk all the time it isn’t as demoralizing to the opponent, but when you dunk at a key moment in the game you can use it to change the momentum.
+ - It’s different from being 21 and you think there’s endless amount of opportunities. At 33, the ending is much, much closer.
+ - There’s been a lot of talk of me being a one-man show but that’s simply not the case. We win games when I score 40 points and we’ve won when I score 10.
+ - If they want to win right now, I’m all for it. That’s all I said the whole time. If you want to wait five years, let me know. My legs aren’t as young as they used to be.
+ - The only thing I’m afraid of is bees. I don’t like bees. I’m allergic to them.
+ - I was an idiot when I was a kid.
+ - The Black Mamba collection of watches is me: It is my alter ego, so to speak. As I mentioned before, it is sharp, cutting edge and sleek which are characteristics I try to apply when I’m out there on the basketball court.
+ - I’m not the most patient of people.
+ - You can’t go and anticipate what it is that you want to see. You just have to be present. Be where you are.
+ - Once you open your eyes and start looking around you, you start picking up things that are very obvious.
+ - I wouldn’t say I’m a ball hog. I’m a shooter. I don’t necessarily hog the ball, but I put them up, though. I definitely much rather shoot it than pass it. That’s just how I am.
+ - I draw from the crowd a lot.
+ - I don’t talk trash often, but when I do, I go for the jugular.
+ - Dropkick Murphys get me going, Red Hot Chili Peppers, Nirvana... plus, all the regular hip-hop stuff.
+ - The topic of leadership is a touchy one. A lot of leaders fail because they don’t have the bravery to touch that nerve or strike that chord. Throughout my years, I haven’t had that fear.
+ - I was just letting the shots fly. You know, I don’t leave any bullets in the chamber.
+ - I’m not jumping through the gym by any means. But I don’t need to be able to do that in order to be a great player.
+ - It never bothered me when people would say, ‘You only win championships because you’re playing with Shaq.’ It bothered me when he said it.
+ - What people see on court is another side of me; it’s not me.
+ - I won’t react to something just because I’m supposed to, because I’m an African-American.
+ - The important thing is that your teammates have to know you’re pulling for them and you really want them to be successful.
+ - I’m extremely willful to win, and I respond to challenges. Scoring titles and stuff like that... it sounds, well, I don’t care how it sounds – to me, scoring comes easy. It’s not a challenge to me to win the scoring title, because I know I can.
+ - I wouldn’t say I’m a ball hog. I’m a shooter.
+ - I feel like I just returned a 100-yard kickoff in the last two minutes of the Super Bowl to win it all, only to have my run called back by a flag on the play.
+ - In an individual sport, yes, you have to win titles. Baseball’s different. But basketball, hockey? One person can control the tempo of a game, can completely alter the momentum of a series. There’s a lot of great individual talent.
+ - Being a leader, it’s the art of trying to find the balance, the right times with each individual and what they need at that moment. It requires looking outward as opposed to looking inside.
+ - It’s disgusting, but my father taught me when your mouth gets dry, just suck the sweat out of your own jersey. There’s no bravado to any of it; it’s just a disgusting little trick.
+ - I love going one-on-one with someone. That’s what I do. I’ve never lost. It’s a whole different game, just to have them right in front of you and be able to do whatever you want.
+ - It doesn’t matter to me what place I get traded to. If I was traded someplace – I’d play anywhere.
+ - He is a fool who only sees the mischiefs that are past.
+ - I don’t have to hear that criticism, that idotic criticism anymore.
+ - If there were camera phones back in the day, the biggest athletes in the world would have had a lot of explaining to do.
+ - I don’t think a coach becomes the right coach until he wins a championship.
+ - Teach players the game at an early age and stop treating them like cash cows for everyone to profit off of.
+ - I enjoy playing at the heart of it is just a kid who really loves playing the game of basketball.
+ - Sometimes I do wonder what college would have been like. But I made my decision.
+ - I think that game is a testament to what happens when you put no ceiling to what you’re capable of doing.
+ - I grew up in front of these people, and now they are seeing me as an ‘older’ young man.
+ - Everybody wants to talk about NBA players being selfish and arrogant and individuals. But what you saw today was a team bonding and facing adversity and coming out with a big win.
+ - Pooper scooper? Yeah, I’ve done it a few times. Every once in a while, you have to.
+ - I love the weather, I love my ’63 droptop Impala, I love the 405, and I love my guys.
+ - This is an award I couldn’t have won on my own. I can’t thank these guys enough. These are my guys, these are my brothers.
+ - If I panic, everyone else panics.
+ - I’ve pretty much done all I can here and, you know, God will carry me the rest of the way, so I’m pretty comfortable with that.
+ - I was shooting 45 times a game. What was I supposed to do? Pass it into Chris Mihm & Kwame Brown?
+ - I’ve got four dogs, and I just don’t do dog doo. I’m a diva when it comes to that.
+ - Eeew, I’d be a little uncomfortable Googling myself. People sit there – and Google themselves? That’s kind of weird.
+ - It’s hard for me to grasp the concept of somebody being nervous when I’m talking to them.
+ - It’s not a question of if we make the playoffs; we will. And when we get there, I have no fear of anyone.
+ - We’re grown ass men, you don’t need to be falling all over the place.
+ - Twitter is great to connect with fans and be transparent. I enjoy that aspect about it. But really, I’m still trying to figure it out.
+ - My role is to make sure we’re moving in the right direction, getting points, rebounds, steals, assists and providing leadership.
+ - It’s just a matter of getting those legs back.
+ - At the end of 2003, my game was complete. Shooting, defense, using the dribble, transition, midrange stuff was all there. Then it was about fine-tuning and trying to improve in each area.
+ - We all know what flopping is when we see it. The stuff that you see is where guys aren’t really getting hit at all and are just flailing around like a fish out of water.
+ - Magic has five championships. I have five championships. I’m pretty sure we both know what we’re doing.
+ - I’m going to be the Will Smith of the NBA.
+ - I’m a scorer, not a triple-double player.
+ - I had some shots that I felt like I should’ve made; I just didn’t make them. I’m not going to shoot the ball great every night.
+ - For us to be the team that got him that historic 10th championship is special for us.
+ - It really doesn’t matter to me. We’re just talking about clothes. I can understand what the NBA is trying to do. I love my sneakers, but we’re just talking about clothes.
+
+119 quotes

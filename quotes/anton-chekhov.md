@@ -1,0 +1,324 @@
+ - Don’t tell me the moon is shining; show me the glint of light on broken glass.
+ - Knowledge is of no value unless you put it into practice.
+ - People don’t notice whether it’s winter or summer when they’re happy.
+ - Man is what he believes.
+ - All saints have past and all sinners have a future.
+ - Only entropy comes easy.
+ - If you want to work on your art, work on your life.
+ - If you fear loneliness, then don’t get married.
+ - You must trust and believe in people or life becomes impossible.
+ - What a fine weather today! Can’t choose whether to drink tea or to hang myself.
+ - If there is a gun hanging on the wall in the first act, it must fire in the last.
+ - The world is, of course, nothing but our conception of it.
+ - I’ve never been in love. I’ve dreamt of it day and night, but my heart is like a fine piano no one can play because the key is lost.
+ - People should be beautiful in every way – in their faces, in the way they dress, in their thoughts, and in their innermost selves.
+ - Love, friendship and respect do not unite people as much as a common hatred for something.
+ - Money, like vodka, turns a person into an eccentric.
+ - I promise to be an excellent husband, but give me a wife who, like the moon, will not appear every day in my sky.
+ - People who lead a lonely existence always have something on their minds that they are eager to talk about.
+ - My love is like a stone tied round my neck; it’s dragging me down to the bottom; but I love my stone. I can’t live without it.
+ - There are plenty of good people, but only a very, very few are precise and disciplined.
+ - Then I feel so happy and at the same time so sad, it’s unimaginable.
+ - Dear sweet unforgettable childhood.
+ - When a woman isn’t beautiful, people always say, ‘You have lovely eyes, you have lovely hair.’
+ - We shall find peace. We shall hear angels, we shall see the sky sparkling with diamonds.
+ - Do you remember you shot a seagull? A man came by chance, saw it and destroyed it, just to pass the time.
+ - One must speak about serious things seriously.
+ - It’s very hard, feeling that you’re no more than a piece of unwanted furniture in this world.
+ - The happy man only feels at ease because the unhappy bear their burden in silence. Without this silence, happiness would be impossible.
+ - Is it our job to judge? The gendarme, policemen and bureaucrats have been especially prepared by fate for that job. Our job is towrite, and only to write.
+ - Life is given only once, and one wants to live it boldly, with full conscious and beauty.
+ - Advertising is the very essence of democracy.
+ - There are still many more days of failure ahead, whole seasons of failure, things will go terribly wrong, you will have huge disappointments, but you have to prepare for that, you have to expect it and be resolute and follow your own path.
+ - Women can’t forgive failure.
+ - Man will become better when you show him what he is like.
+ - If in the first act you have hung a pistol on the wall, then in the following one it should be fired. Otherwise don’t put it there.
+ - I’m the seagull. No, that’s not it. I’m an actress. That’s it.
+ - You ask me what life is. That’s like asking what a carrot is. A carrot is a carrot, and there’s nothing more to know.
+ - The role of the artist is to ask questions, not answer them.
+ - Life has gone by as if I never lived.
+ - Medicine is my lawful wife and literature my mistress; when I get tired of one, I spend the night with the other.
+ - In all the universe nothing remains permanent and unchanged but the spirit.
+ - Everyone has the same God; only people differ.
+ - The University brings out all abilities, including incapability.
+ - It’s easier to write about Socrates than about a young woman or a cook.
+ - Better to perish from fools than to accept praises from them.
+ - Try to reason about love, and you will lose your reason.
+ - If there’s a gun on the wall in act one, scene one, you must fire the gun by act three, scene two. If you fire a gun in act three, scene two, you must see the gun on the wall in act one, scene one.
+ - I would love to meet a philosopher like Nietzsche on a train or boat and to talk with him all night. Incidentally, I don’t consider his philosophy long-lived. It is not so much persuasive as full of bravura.
+ - Perhaps the feelings that we experience when we are in love represent a normal state. Being in love shows a person who he should be.
+ - A good upbringing means not that you won’t spill sauce on the tablecloth, but that you won’t notice it when someone else does.
+ - There is nothing more awful, insulting, and depressing than banality.
+ - Your talent sets you apart: if you were a toad or a tarantula, even then, people would respect you, for to talent all things are forgiven.
+ - A man wants nothing so badly as a gooseberry farm.
+ - Try to be original in your play and as clever as possible; but don’t be afraid to show yourself foolish; we must have freedom of thinking, and only he is an emancipated thinker who is not afraid to write foolish things.
+ - In displaying the psychology of your characters, minute particulars are essential. God save us from vague generalizations!
+ - A sweet lie is more gracious for us than a virulent but real truth.
+ - If many remedies are prescribed for an illness you can be sure it has no cure.
+ - He who desires nothing, hopes for nothing, and is afraid of nothing, cannot be an artist.
+ - Any idiot can face a crisis – it’s day to day living that wears you out.
+ - Write about this man who, drop by drop, squeezes the slave’s blood out of himself until he wakes one day to find the blood of a real human being – not a slave’s – coursing through his veins.
+ - Write only of what is important and eternal.
+ - It is easy to be a philosopher in academia, but it is very difficult to be a philosopher in life.
+ - There is something beautiful, touching and poetic when one person loves more than the other, and the other is indifferent.
+ - The government is not God. It does not have the right to take away that which it can’t return even if it wants to.
+ - To advise is not to compel.
+ - People understand God as the expression of the most lofty morality. Maybe He needs only perfect people.
+ - I can only regard with bewilderment an educated man who is also religious.
+ - We live not in order to eat, but in order not to know what we feel like eating.
+ - To harbor spiteful feelings against ordinary people for not being heroes is possible only for narrow-minded or embittered man.
+ - My mistress has come home; at last I’ve seen her. Now I’m ready to die.
+ - I don’t know why one can’t chase two rabbits at the same time, even in the literal sense of those words. If you have the hounds, go ahead and pursue.
+ - In nature a repulsive caterpillar turns into a lovely butterfly. But with human beings it is the other way round: a lovely butterfly turns into a repulsive caterpillar.
+ - When a person is born, he can embark on only one of three roads of life: if you go right, the wolves will eat you; if you go left, you’ll eat the wolves; if you go straight, you’ll eat yourself.
+ - Narrative prose is a legal wife, while drama is a posturing, boisterous, cheeky and wearisome mistress.
+ - There is nothing more vapid than a philistine petty bourgeois existence with its farthings, victuals, vacuous conversations, and useless conventional virtue.
+ - Brevity – the sister of talent.
+ - Oh, dreams! In one night, lying with one’s eyes shut, one may sometimes live through more than ten years of happiness.
+ - The sea has neither meaning nor pity.
+ - They say philosophers and wise men are indifferent. Wrong. Indifference is a paralysis of the soul, a premature death.
+ - Doctors are just the same as lawyers; the only difference is that lawyers merely rob you, whereas doctors rob you and kill you too.
+ - Despicable means used to achieve laudable goals render the goals themselves despicable.
+ - The unhappy are egotistical, base, unjust, cruel, and even less capable of understanding one another than are idiots. Unhappinessdoes not unite people, but separates them.
+ - A tree is beautiful, but what’s more, it has a right to life; like water, the sun and the stars, it is essential. Life on earth is inconceivable without trees.
+ - I still lack a political, religious and philosophical world view – I change it every month – and so I’ll have to limit myself to descriptions of how my heroes love, marry, give birth, die, and how they speak.
+ - The aim of fiction is absolute and honest truth.
+ - For God’s sake, have some self-respect and do not run off at the mouth if your brain is out to lunch.
+ - Dear and most respected bookcase! I welcome your existence, which has for over one hundred years been devoted to the radiant ideals of goodness and justice.
+ - One can only call that youth healthful which refuses to be reconciled to old ways and which, foolishly or shrewdly, combats the old. This is nature’s charge and all progress hinges upon it.
+ - When a person expends the least amount of motion on one action, that is grace.
+ - Formerly, when I would feel a desire to understand someone, or myself, I would take into consideration not actions, in which everything is relative, but wishes. Tell me what you want and I’ll tell you who you are.
+ - I would like to be a free artist and nothing else, and I regret God has not given me the strength to be one.
+ - Life on earth is inconceivable without trees.
+ - My holy of holies is the human body.
+ - When a lot of remedies are suggested for a disease, that means it can’t be cured.
+ - When you live on cash, you understand the limits of the world around which you navigate each day. Credit leads into a desert with invisible boundaries.
+ - I confess I seldom commune with my conscience when I write.
+ - Exquisite nature, daydreams, and music say one thing, real life another.
+ - If you say in the first chapter that there is a rifle hanging on the wall, in the second or third chapter it absolutely must go off. If it’s not going to be fired, it shouldn’t be hanging there.
+ - A writer should not so much write as embroider on paper; the work should be painstaking, laborious.
+ - Without a knowledge of languages you feel as if you don’t have a passport.
+ - When we retreat to the country, we are hiding not from people, but from our pride, which, in the city and among people, operates unfairly and immoderately.
+ - To regard one’s immortality as an exchange of matter is as strange as predicting the future of a violin case once the expensive violin it held has broken and lost its worth.
+ - Women writers should write a lot if they want to write. Take the English women, for example. What amazing workers.
+ - A man who doesn’t drink is not, in my opinion, fully a man.
+ - I am now and have always been a stranger to the realm of practical matters.
+ - Please, understand that your life is bad and dreary!
+ - The secret of boring people lies in telling them everything.
+ - We learn about life not from plusses alone, but from minuses as well.
+ - One had better not rush, otherwise dung comes out rather than creative work.
+ - Only during hard times do people come to understand how difficult it is to be master of their feelings and thoughts.
+ - Better a debauched canary than a pious wolf.
+ - When a person doesn’t understand something, he feels internal discord: however he doesn’t search for that discord in himself, as he should, but searches outside of himself. Thence a war develops with that which he doesn’t understand.
+ - A hungry dog believes in nothing but meat.
+ - Everything should be first-rate in a person, his face, clothes, soul and thoughts.
+ - If you ever have need of my life, come and take it.
+ - Fine. Since the tea is not forthcoming, let’s have a philosophical conversation.
+ - I kept thinking how marvellous it would be if I could somehow tear my heart, which felt so heavy, out of my chest.
+ - I’m in mourning for my life.
+ - The world perishes not from bandits and fires, but from hatred, hostility, and all these petty squabbles.
+ - To fear love is to fear life, and those whose fear life are already three parts dead...
+ - The task of a writer is not to solve the problem but to state the problem correctly.
+ - I have the feeling that I’ve seen everything, but failed to notice the elephants.
+ - There is no national science, just as there is no national multiplication table; what is national is no longer science.
+ - Love is a scandal of the personal sort.
+ - Only one who loves can remember so well.
+ - I am dying. I haven’t drunk champagne for a long time.
+ - Even in Siberia there is happiness.
+ - MEDVIEDENKO Why do you always wear mourning? MASHA I dress in black to match my life. I am unhappy.
+ - The snow has not yet left the earth but spring is already asking to enter your heart...
+ - If in the first act you introduce a gun, by the third act you have to use it.
+ - Watching a woman make Russian pancakes, you might think that she was calling on the spirits or extracting from the batter the philosopher’s stone.
+ - People’s destinies are so different. Some people drag along, unnoticed and boring – they’re all alike, and they’re all unhappy. Then there are others, like for instance you – you’re one in a million. You’re happy –.
+ - Life is a vexatious trap; when a thinking man reaches maturity and attains to full consciousness he cannot help feeling that he is in a trap from which there is no escape.
+ - My holy of holies is the human body, health, intelligence, talent, inspiration, love, and absolute freedom – freedom from violence and falsehood, no matter how the last two manifest themselves.
+ - In Russia there is no philosophy, but philosophize everything, even the small fry.
+ - Do silly things. Foolishness is a great deal more vital and healthy than our straining and striving after a meaningful life.
+ - Let us learn to appreciate there will be times when the trees will be bare, and look forward to the time when we may pick the fruit.
+ - You confuse two things: solving a problem and stating a problem correctly. It is only the second that is obligatory for an artist.
+ - A naive man is nothing better than a fool. But you women contrive to be naive in such a way that in you it seems sweet, and gentle, and proper, and not as silly as it really is.
+ - One must never place a loaded rifle on the stage if it isn’t going to go off. It’s wrong to make promises you don’t mean to keep.
+ - Do you know when you may concede your insignificance? Before God or, perhaps, before the intellect, beauty, or nature, but not before people. Among people, one must be conscious of one’s dignity.
+ - An artist’s flair is sometimes worth a scientist’s brains.
+ - If I had listened to the critics I’d have died drunk in the gutter.
+ - Solomon made a big mistake when he asked for wisdom.
+ - In descriptions of nature one must seize on small details, grouping them so that when the reader closes his eyes he gets a picture.
+ - He is no longer a city dweller who has even once in his life caught a ruff or seen how, on clear and cool autumn days, flocks of migrating thrushes drift over a village. Until his death he will be drawn to freedom.
+ - An expansive life, one not constrained by four walls, requires as well an expansive pocket.
+ - My own experience is that once a story has been written, one has to cross out the beginning and the end. It is there that we authors do most of our lying.
+ - There ought to be a man with a hammer behind the door of every happy man.
+ - Art, especially the stage, is an area where it is impossible to walk without stumbling.
+ - A man can deceive his fiancee or his mistress as much as he likes and, in the eyes of a woman he loves, an ass may pass for a philosopher. But a daughter is a different matter.
+ - Wherever there is degeneration and apathy, there also is sexual perversion, cold depravity, miscarriage, premature old age, grumbling youth, there is a decline in the arts, indifference to science, and injustice in all its forms.
+ - A fiance is neither this nor that: he’s left one shore, but not yet reached the other.
+ - I am not a liberal, not a conservative, not a believer in gradual progress, not a monk. I should like to be a free artist and nothing more.
+ - Common hypocrites pass themselves off as doves; political and literary hypocrites pose as eagles. But don’t be fooled by their eagle-like appearance. These are not eagles, but rats or dogs.
+ - Reason and justice tell me there’s more love for humanity in electricity and steam than in chastity and vegetarianism.
+ - Be sure not to discuss your hero’s state of mind. Make it clear from his actions.
+ - The stupider the peasant, the better the horse understands him.
+ - There should be more sincerity and heart in human relations, more silence and simplicity in our interactions. Be rude when you’re angry, laugh when something is funny, and answer when you’re asked.
+ - Never bring a cannon on stage in Act I unless you intend to fire it by the last act.
+ - There are people whom even children’s literature would corrupt. They read with particular enjoyment the piquant passages in the Psalter and in the Wisdom of Solomon.
+ - I myself smoke, but my wife asked me to speak today on the harmfulness of tobacco, so what can I do? If it’s tobacco, then let it be tobacco.
+ - Lermontov died at age twenty-eight and wrote more than have you and I put together. Talent is recognizable not only by quality, but also by the quantity it yields.
+ - And what does it mean – dying? Perhaps man has a hundred senses, and only the five we know are lost at death, while the other ninety-five remain alive.
+ - To Moscow, to Moscow, to Moscow!
+ - If our life has a meaning, an aim, it has nothing to do with our personal happiness, but something wiser and greater.
+ - Life does not agree with philosophy: There is no happiness that is not idleness, and only what is useless is pleasurable.
+ - Faith is an aptitude of the spirit. It is, in fact, a talent: you must be born with it.
+ - I should think I’m going to be a perpetual student.
+ - The desire to serve the common good must without fail be a requisite of the soul, a necessity for personal happiness; if it issuesnot from there, but from theoretical or other considerations, it is not at all the same thing.
+ - When men ask me how I know so much about men, they get a simple answer: everything I know about men, I learned from me.
+ - Eyes – the head’s chief of police. They watch and make mental notes.
+ - Capital punishment kills immediately, whereas lifetime imprisonment does so slowly. Which executioner is more humane? The one whokills you in a few minutes, or the one who wrests your life from you in the course of many years?
+ - At the door of every happy person there should be a man with a hammer whose knock would serve as a constant reminder of the existence of unfortunate people.
+ - Thought and beauty, like a hurricane or waves, should not know conventional, delimited forms.
+ - You look boldly ahead; isn’t it only that you don’t see or divine anything terrible in the future; because life is still hidden from your young eyes.
+ - Man has been endowed with reason, with the power to create, so that he can add to what he’s been given.
+ - Great Jove angry is no longer Jove.
+ - Calculating selfishness is the annihilation of self.
+ - We old bachelors smell like dogs, do we? So be it. But I must take issue with your claim that doctors who treat female illnesses are womanizers and cynics at heart. Gynecologists deal with savage prose the likes of which you have never dreamed of.
+ - Satiation, like any state of vitality, always contains a degree of impudence, and that impudence emerges first and foremost when the sated man instructs the hungry one.
+ - If you look at anything long enough, say just that wall in front of you – it will come out of that wall.
+ - You will not become a saint through other people’s sins.
+ - It’s been a long time since I’ve had champagne.
+ - Lying is the same as alcoholism. Liars prevaricate even on their deathbeds.
+ - I expect I shall be a student to the end of my days.
+ - What a delight it is to respect people!
+ - Dear, sweet, unforgettable childhood! Why does this irrevocable time, forever departed, seem brighter, more festive and richer than it actually was?
+ - And it is the way with us that you may express disapproval of the sun or the moon, or anything you like, but God preserve you from touching the Liberals! Heaven forbid!
+ - An artist observes, selects, guesses, and synthesizes.
+ - To judge between good or bad, between successful and unsuccessful would take the eye of a God.
+ - When one longs for a drink, it seems as though one could drink a whole ocean-that is faith; but when one begins to drink, one can only drink altogether two glasses-that is science.
+ - By nature servile, people attempt at first glance to find signs of good breeding in the appearance of those who occupy more exalted stations.
+ - Life is difficult for those who have the daring to first set out on an unknown road. The avant-garde always has a bad time of it.
+ - There isn’t a Monday that would not cede its place to Tuesday.
+ - The more refined one is, the more unhappy.
+ - Each of us is full of too many wheels, screws and valves to permit us to judge one another on a first impression or by two or three external signs.
+ - Everyone judges plays as if they were very easy to write. They don’t know that it is hard to write a good play, and twice as hardand tortuous to write a bad one.
+ - It’s better to live down a scandal than to ruin one’s life.
+ - Just as I shall lie alone in the grave, so, in essence, do I live alone.
+ - Probably nature itself gave man the ability to lie so that in difficult and tense moments he could protect his nest, just as do the vixen and wild duck.
+ - I don’t understand anything about the ballet; all I know is that during the intervals the ballerinas stink like horses.
+ - Nothing lulls and inebriates like money; when you have a lot, the world seems a better place than it actually is.
+ - Hypocrisy is a revolting, psychopathic state.
+ - Ah, Caviar! I keep on eating it, but can never get my fill. Like olives. It’s a lucky thing it’s not salty.
+ - All of life and human relations have become so incomprehensibly complex that, when you think about it, it becomes terrifying and your heart stands still.
+ - A good person will feel guilty even before a dog.
+ - Writers are as jealous as pigeons.
+ - Our pride and self-importance are European, while our development and actions are Asiatic.
+ - Sports are positively essential. It is healthy to engage in sports, they are beautiful and liberal, liberal in the sense that nothing serves quite as well to integrate social classes, etc., than street or public games.
+ - People are far more sincere and good-humored at speeding their parting guests than on meeting them.
+ - If ever my life can be of any use to you, come and claim it.
+ - Happiness does not await us all. One needn’t be a prophet to say that there will be more grief and pain than serenity and money. That is why we must hang on to one another.
+ - The personal life of every individual is based on secrecy, and perhaps it is partly for that reason that civilized man is so nervously anxious that personal privacy should be respected.
+ - Three o’clock in the morning. The soft April night is looking at my windows and caressingly winking at me with its stars. I can’t sleep, I am so happy.
+ - I think human beings must have faith or must look for faith, otherwise our life is empty, empty. To live and not to know why the cranes fly, why children are born, why there are stars in the sky. You must know why you are alive, or else everything is nonsense, just blowing in the wind.
+ - Moscow is a city that has much suffering ahead of it.
+ - In countries where there is a mild climate, less effort is expended on the struggle with nature and man is kinder and more gentle.
+ - The problem is that we attempt to solve the simplest questions cleverly, thereby rendering them unusually complex. One should seekthe simple solution.
+ - Do you see that tree? It is dead but it still sways in the wind with the others. I think it would be like that with me. That if I died I would still be part of life in one way or another.
+ - By poeticizing love, we imagine in those we love virtues that they often do not possess; this then becomes the source of constant mistakes and constant distress.
+ - When you want to touch the reader’s heart, try to be colder. It gives their grief as it were, a background, against which it stands out in greater relief.
+ - Every coming year is as bad as the previous one, the only difference being that in most cases it is even worse.
+ - The wealthy man is not he who has money, but he who has the means to live in the luxurious state of early spring.
+ - Everything on earth is beautiful, everything – except what we ourselves think and do when we forget the higher purposes of life and our own human dignity.
+ - It’s not a matter of old or new forms; a person writes without thinking about any forms, he writes because it flows freely from his soul.
+ - When performing an autopsy, even the most inveterate spiritualist would have to question where the soul is.
+ - One must not put a loaded rifle on the stage if no one is thinking of firing it.
+ - Neither I nor anyone else knows what a standard is. We all recognize a dishonorable act, but have no idea what honor is.
+ - If I were asked to chose between execution and life in prison I would, of course, chose the latter. It’s better to live somehow than not at all.
+ - The illusion which exalts us is dearer to us than ten thousand truths.
+ - Write, write, write-till your fingers break.
+ - Death can only be profitable: there’s no need to eat, drink, pay taxes, offend people, and since a person lies in a grave for hundreds or thousands of years, if you count it up the profit turns out to be enormous.
+ - I was oppressed with a sense of vague discontent and dissatisfaction with my own life, which was passing so quickly and uninterestingly, and I kept thinking it would be a good thing if I could tear my heart out of my breast, that heart which had grown so weary of life.
+ - I don’t care for success. The ideas sitting in my head are annoyed by, and envious of, that which I’ve already written.
+ - The thirst for powerful sensations takes the upper hand both over fear and over compassion for the grief of others.
+ - It’s worth living abroad to study up on genteel and delicate manners. The maid smiles continuously; she smiles like a duchess on a stage, while at the same time it is clear from her face that she is exhausted from overwork.
+ - What seems to us serious, significant and important will, in future times, be forgotten or won’t seem important at all.
+ - Flies purify the air, and plays – the morals.
+ - Every person lives his real, most interesting life under the cover of secrecy.
+ - There are no small number of people in this world who, solitary by nature, always try to go back into their shell like a hermit crab or a snail.
+ - Death is terrifying, but it would be even more terrifying to find out that you are going to live forever and never die.
+ - Once a man gets a fixed idea, there’s nothing to be done.
+ - A woman is fascinated not by art but by the noise made by those in the field.
+ - It is depressing to hear the unfortunate or dying man jest.
+ - I was so drunk the whole time that I took bottles for girls and girls for bottles.
+ - In general, Russia suffers from a frightening poverty in the sphere of facts and a frightening wealth of all types of arguments.
+ - In all my life I never met anyone so frivolous as you two, so crazy and unbusinesslike. I tell you in plain Russian your property is going to be sold and you don’t seem to understand what I say.
+ - The wealthy are always surrounded by hangers-on; science and art are as well.
+ - When all is said and done, no literature can outdo the cynicism of real life; you won’t intoxicate with one glass someone who has already drunk up a whole barrel.
+ - Everything is good in due measure and strong sensations know not measure.
+ - The critics suppose that it is easy to write a play. They aren’t aware that writing a good play is difficult and writing a bad one is twice as hard.
+ - All great sages are as despotic as generals, and as ungracious and indelicate as generals, because they are confident of their impunity.
+ - If you can’t distinguish people from lap-dogs, you shouldn’t undertake philanthropic work.
+ - There is nothing new in art except talent.
+ - Nothing can be accomplished by logic and ethics.
+ - If one wants to lead a good life, A HUMAN LIFE, one must work.
+ - It always seems to the brothers and the father that their brother or son didn’t marry the right person.
+ - Of course politics is an interesting and engrossing thing. It offers no immutable laws, nearly always prevaricates, but as far asblather and sharpening the mind go, it provides inexhaustible material.
+ - To live simply to die is by no means amusing, but to live with the knowledge that you will die before your time, that’s really is idiotic.
+ - A man and a woman marry because both of them do not know what to do with themselves.
+ - The more cultured a man, the less fortunate he is.
+ - A writer is not a confectioner, a cosmetic dealer, or an entertainer.
+ - How unbearable at times are people who are happy, people for whom everything works out.
+ - Oh, I have now a mania for shortness. Whatever I read – my own or other people’s works – it all seems to me not short enough.
+ - One must be a god to be able to tell successes from failures without making a mistake.
+ - We go to great pains to alter life for the happiness of our descendants and our descendants will say as usual: things used to be so much better, life today is worse than it used to be.
+ - It’s even pleasant to be sick when you know that there are people who await your recovery as they might await a holiday.
+ - It is the writer’s business not to accuse and not to prosecute, but to champion the guilty, once they are condemned and suffer punishment.
+ - For the salvation of his soul the Muslim digs a well. It would be a fine thing if each of us were to leave behind a school, or a well, or something of the sort, so that life would not pass by and retreat into eternity without a trace.
+ - I have no will of my own. Never did. Limp and lily-livered, I always obey – is it possible that’s attractive to women?
+ - The air of one’s native country is the most healthy air.
+ - Can words such as Orthodox, Jew, or Catholic really express some sort of exclusive personal virtues or merits?
+ - It’s immoral to steal, but you can take things.
+ - Sometimes we go to a play and after the curtain has been up five minutes we have a sense of being able to settle back in the arms of the playwright. Instinctively we know that the playwright knows his business.
+ - It is a poor thing for the writer to take on that which he doesn’t understand.
+ - If there’s any illness for which people offer many remedies, you may be sure that particular illness is incurable, I think.
+ - What’s the use of talking? You can see for yourself that this is a barbarous country; the people have no morals; and the boredom!
+ - And only now, when he was gray-haired, had he fallen in love properly, thoroughly, for the first time in his life.
+ - Despite your best efforts, you could not invent a better police force for literature than criticism and the author’s own conscience.
+ - It is always “Youth, youth,” when there is nothing else to be said.
+ - To make a face from marble means to remove from the slab everything that is not the face.
+ - I divide all literary works into two categories: Those I like and those I don’t like. No other criterion exists for me.
+ - When a person hasn’t in him that which is higher and stronger than all external influences, it is enough for him to catch a good cold in order to lose his equilibrium and begin to see an owl in every bird, to hear a dog’s bark in every sound.
+ - You look at any poetic creature: muslin, ether, demigoddess, millions of delights; then you look into the soul and find the most ordinary crocodile!
+ - I have in my head a whole army of people pleading to be let out and awaiting my commands.
+ - The bourgeoisie loves so-called “positive” types and novels with happy endings since they lull one into thinking that it is fine to simultaneously acquire capital and maintain one’s innocence, to be a beast and still be happy.
+ - Anna Petrovna: Never talk to women about your own good qualities. Let them find out for themselves.
+ - No matter how corrupt and unjust a convict may be, he loves fairness more than anything else. If the people placed over him are unfair, from year to year he lapses into an embittered state characterized by an extreme lack of faith.
+ - You only have to start a job of work to realize how few decent, honest folk there are about.
+ - Those who come a hundred or two hundred years after us will despise us for having lived our lives so stupidly and tastelessly. Perhaps they’ll find a means to be happy.
+ - In one-act pieces there should be only rubbish that is their strength.
+ - A woman can become a man’s friend only in the following stages – first an acquantaince, next a mistress, and only then a friend.
+ - But if you had asked him what his work was, he would look candidly and openly at you with his large bright eyes through his gold pincenez, and would answer in a soft, velvety, lisping baritone: “My work is literature.”
+ - Isolation in creative work is an onerous thing. Better to have negative criticism than nothing at all.
+ - Humankind has understood history as a series of battles because, to this day, it regards conflict as the central facet of life.
+ - He is an emancipated thinker who is not afraid to write foolish things.
+ - I swear fearfully at the conventions of the stage.
+ - The world is a fine place. The only thing wrong with it is us. How little justice and humility there is in us, how poorly we understand patriotism!
+ - It is not only the prisoners who grow coarse and hardened from corporal punishment, but those as well who perpetrate the act or are present to witness it.
+ - Even while lying, you’ll be believed if you speak with authority.
+ - To believe in God is not hard. Inquisitors, Byron and Arakcheev believed in Him. No, believe in man!
+ - What must human beings be, to destroy what they can never create?
+ - You are right to demand that an artist engage his work consciously, but you confuse two different things: solving the problem and correctly posing the question.
+ - There are in life such confluences of circumstances that render the reproach that we are not Voltaires most inopportune.
+ - I think that it would be less difficult to live eternally than to be deprived of sleep throughout life.
+ - Desription should be very brief and have an incidental nature.
+ - When an actor has money he doesn’t send letters, he sends telegrams.
+ - To describe drunkenness for the colorful vocabulary is rather cynical. There is nothing easier than to capitalize on drunkards.
+ - I’ve noticed that people who get married cease to be curious.
+ - It is easier to ask of the poor than of the rich.
+ - One can prove or refute anything at all with words. Soon people will perfect language technology to such an extent that they’ll beproving with mathematical precision that twice two is seven.
+ - Not one of our mortal gauges is suitable for evaluating non-existence, for making judgments about that which is not a person.
+ - That can not possibly be, because it could never possibly be.
+ - It is as acceptable now to love the wives of others as it is to smoke their cigars and read their books.
+ - In short stories it is better to say not enough than to say too much, because, because – I don’t know why.
+ - The more simply we look at ticklish questions, the more placid will be our lives and relationships.
+ - The time has come for writers, especially those who are artists, to admit that in this world one cannot make anything out, just as Socrates once admitted it, just as Voltaire admitted it.
+ - An actress without talent, forty years old, ate a partridge for dinner, and I felt sorry for the partridge, for it occurred to me that in its life it had been more talented, more sensible, and more honest than the actress.
+ - A grimy fly can soil the entire wall and a small, dirty little act can ruin the entire proceedings.
+ - A person loves to talk about his illnesses although that is the least interesting part of his life.
+ - Country acquaintances are charming only in the country and only in the summer. In the city in winter they lose half of their appeal.
+
+322 quotes

@@ -1,0 +1,279 @@
+ - The mind is not a vessel to be filled but a fire to be kindled.
+ - Come back with your shield – or on it.
+ - I don’t need a friend who changes when I change and who nods when I nod; my shadow does that much better.
+ - What we achieve inwardly will change outer reality.
+ - A Spartan woman, as she handed her son his shield, exhorted him saying, “As a warrior of Sparta come back with your shield or on it.”
+ - For the wise man, every day is a festival.
+ - God is the brave man’s hope, and not the coward’s excuse.
+ - Proper listening is the foundation of proper living.
+ - No beast is more savage than man when possessed with power answerable to his rage.
+ - The great god Pan is dead.
+ - Painting is silent poetry, and poetry is painting that speaks.
+ - If I were not Alexander, I would be Diogenes.
+ - When Demosthenes was asked what were the three most important aspects of oratory, he answered, ‘Action, Action, Action.’
+ - Instead of using medicine, better fast today.
+ - Know how to listen, and you will profit even from those who talk badly.
+ - Barba non facit philosophum.
+ - The worship most acceptable to God comes from a thankful and cheerful heart.
+ - Wisdom is neither gold, nor silver, nor fame, nor wealth, nor health, nor strength, nor beauty.
+ - Rest is the sweet sauce of labor.
+ - Those who aim at great deeds must also suffer greatly.
+ - Caesar’s wife should be above suspicion.
+ - To make no mistakes is not in the power of man; but from their errors and mistakes the wise and good learn wisdom for the future.
+ - It is part of a good man to do great and noble deeds, though he risk everything.
+ - Perseverance is more prevailing than violence; and many things which cannot be overcome when they are together, yield themselves up when taken little by little.
+ - Spintharus, speaking in commendation of Epaminondas, says he scarce ever met with any man who knew more and spoke less.
+ - I see the cure is not worth the pain.
+ - But for the sake of some little mouthful of flesh we deprive a soul of the sun and light, and of that proportion of life and time it had been born into the world to enjoy.
+ - Grief is natural; the absence of all feeling is undesirable, but moderation in grief should be observed, as in the face of all good or evil.
+ - A good man will take care of his horses and dogs, not only while they are young, but also when they are old and past service.
+ - A warrior carries his shield for the sake of the entire line.
+ - An imbalance between rich and poor is the oldest and most fatal ailment of all republics.
+ - The talkative listen to no one, for they are ever speaking. And the first evil that attends those who know not to be silent is that they hear nothing.
+ - Alexander esteemed it more kingly to govern himself than to conquer his enemies.
+ - Neither blame or praise yourself.
+ - Silence at the proper season is wisdom, and better than any speech.
+ - For the mind does not require filling like a bottle, but rather, like wood, it only requires kindling to create in it an impulse to think independently and an ardent desire for the truth.
+ - Fate leads him who follows it, and drags him who resist.
+ - The omission of good is no less reprehensible than the commission of evil.
+ - A lover’s soul lives in the body of his mistress.
+ - Extraordinary rains pretty generally fall after great battles.
+ - When the strong box contains no more both friends and flatterers shun the door.
+ - Not by lamentations and mournful chants ought we to celebrate the funeral of a good man, but by hymns, for in ceasing to be numbered with mortals he enters upon the heritage of a diviner life.
+ - Anaximander says that men were first produced in fishes, and when they were grown up and able to help themselves were thrown up, and so lived upon the land.
+ - The whole life of man is but a point of time; let us enjoy it.
+ - That we may consult concerning others, and not others concerning us.
+ - For it was not so much that by means of words I came to a complete understanding of things, as that from things I somehow had an experience which enabled me to follow the meaning of words.
+ - Learn to be pleased with everything, with wealth so far as it makes us beneficial to others; with poverty, for not having much to care for; and with obscurity, for being unenvied.
+ - When the candles are out all women are fair.
+ - The measure of a man is the way he bears up under misfortune.
+ - Cicero called Aristotle a river of flowing gold, and said of Plato’s Dialogues, that if Jupiter were to speak, it would be in language like theirs.
+ - Where the lion’s skin will not reach, you must patch it out with the fox’s.
+ - Oh, what a world full of pain we create, for a little taste upon the tongue.
+ - Nature without learning is blind, learning apart from nature is fractional, and practice in the absence of both is aimless.
+ - The drop hollows out the stone not by strength, but by constant falling.
+ - Water continually dropping will wear hard rocks hollow.
+ - For the correct analogy for the mind is not a vessel that needs filling, but wood that needs igniting.
+ - To find fault is easy; to do better may be difficult.
+ - It is wise to be silent when occasion requires, and better than to speak, though never so well.
+ - I am all that hath been, and is, and shall be; and my veil no mortal has hitherto raised.
+ - Grief is like a physical pain which must be allowed to subside somewhat on its own before medical treatment is applied.
+ - Antisthenes says that in a certain faraway land the cold is so intense that words freeze as soon as they are uttered, and after some time then thaw and become audible, so that words spoken in winter go unheard until the next summer.
+ - Immoderate grief is selfish, harmful, brings no advantage to either the mourner or the mourned, and dishonors the dead.
+ - If you declare that you are naturally designed for such a diet, then first kill for yourself what you want to eat. Do it, however, only through your own resources, unaided by cleaver or cudgel or any kind of ax.
+ - Wise men are able to make a fitting use even of their enmities.
+ - Those are greedy of praise prove that they are poor in merit.
+ - Character is long-standing habit.
+ - Socrates said he was not an Athenian or a Greek, but a citizen of the world.
+ - What, did you not know, then, that to-day Lucullus dines with Lucullus?
+ - As bees extract honey from thyme, the strongest and driest of herbs, so sensible men often get advantage and profit from the most awkward circumstances.
+ - The whole of life is but a moment of time. It is our duty, therefore to use it, not to misuse it.
+ - Reason speaks and feeling bites.
+ - It is a high distinction for a homely woman to be loved for her character rather than for beauty.
+ - Silence is an answer to a wise man.
+ - Poverty is not dishonorable in itself, but only when it comes from idleness, intemperance, extravagance, and folly.
+ - In human life there is constant change of fortune; and it is unreasonable to expect an exemption from the common fate. Life itself decays, and all things are daily changing.
+ - Nor let us part with justice, like a cheap and common thing, for a small and trifling price.
+ - It is a true proverb, that if you live with a lame man, you will learn to limp.
+ - Among real friends there is no rivalry or jealousy of one another, but they are satisfied and contented alike whether they are equal or one of them is superior.
+ - The measure of a man’s life is the well spending of it, and not the length.
+ - All men whilst they are awake are in one common world: but each of them, when he is asleep, is in a world of his own.
+ - Of all the disorders in the soul, envy is the only one no one confesses to.
+ - When a man’s struggle begins within oneself, the man is worth something.
+ - Nothing made the horse so fat as the king’s eye.
+ - Men who marry wives very much superior to themselves are not so truly husbands to their wives as they are unawares made slaves to their position.
+ - Fate, however, is to all appearance more unavoidable than unexpected.
+ - No man ever wetted clay and then left it, as if there would be bricks by chance and fortune.
+ - Evidence of trust begets trust, and love is reciprocated by love.
+ - For he who gives no fuel to fire puts it out, and likewise he who does not in the beginning nurse his wrath and does not puff himself up with anger takes precautions against it and destroys it.
+ - It is no flattery to give a friend a due character; for commendation is as much the duty of a friend as reprehension.
+ - Lysander said that the law spoke too softly to be heard in such a noise of war.
+ - Demosthenes overcame and rendered more distinct his inarticulate and stammering pronunciation by speaking with pebbles in his mouth.
+ - As geographers, Sosius, crowd into the edges of their maps parts of the world which they do not know about, adding notes in the margin to the effect that beyond this lies nothing but sandy deserts full of wild beasts, and unapproachable bogs.
+ - The process may seem strange and yet it is very true. I did not so much gain the knowledge of things by the words, as words by the experience I had of things.
+ - Choose what is best, and habit will make it pleasant and easy.
+ - The state of life is most happy where superfluities are not required and necessities are not wanting.
+ - Let us carefully observe those good qualities wherein our enemies excel us; and endeavor to excel them, by avoiding what is faulty, and imitating what is excellent in them.
+ - Since, during storms, flames leap from the humid vapors and dark clouds emit deafening noises, is it surprising the lightning, when it strikes the ground, gives rise to truffles, which do not resemble plants?
+ - Agesilaus being invited once to hear a man who admirably imitated the nightingale, he declined, saying he had heard the nightingale itself.
+ - The poor go to war, to fight and die for the delights, riches, and superfluities of others.
+ - He who owns a hundred sheep must fight with fifty wolves.
+ - Friendship requires a steady, constant, and unchangeable character, a person that is uniform in his intimacy.
+ - The crowns of kings do not prevent those who wear them from being tormented sometimes by violent headaches.
+ - It is indeed a desirable thing to be well-descended, but the glory belongs to our ancestors.
+ - Courage consists not in hazarding without fear; but being resolutely minded in a just cause.
+ - Nature and wisdom never are at strife.
+ - Apothegms are the most infallible mirror to represent a man truly what he is.
+ - Pythias once, scoffing at Demosthenes, said that his arguments smelt of the lamp.
+ - To fail to do good is as bad as doing harm.
+ - To be ignorant of the lives of the most celebrated men of antiquity is to continue in a state of childhood all our days.
+ - The real destroyer of the liberties of the people is he who spreads among them bounties, donations and benefits.
+ - Nothing is cheap which is superfluous, for what one does not need, is dear at a penny.
+ - Were it only to learn benevolence to humankind, we should be merciful to other creatures.
+ - Speech is like cloth of Arras opened and put abroad, whereby the imagery doth appear in figure; whereas in thoughts they lie but as packs.
+ - Do not speak of your happiness to one less fortunate than yourself.
+ - The wildest colts make the best horses.
+ - Good birth is a fine thing, but the merit is our ancestors.
+ - Prosperity has this property; it puffs up narrow souls, makes them imagine themselves high and mighty, and leads them to look down upon the world with contempt; but a truly noble spirit appears greatest in distress;.
+ - A traveller at Sparta, standing long upon one leg, said to a Lacedaemonian, “I do not believe you can do as much.” “True,” said he, “but every goose can.”
+ - A fool cannot hold his tongue.
+ - It is a hard matter, my fellow citizens, to argue with the belly, since it has no ears.
+ - Vultures are the most righteous of birds: they do not attack even the smallest living creature.
+ - The richest soil, if uncultivated, produces the rankest weeds.
+ - Rather I fear on the contrary that while we banish painful thoughts we may banish memory as well.
+ - Solon being asked, namely, what city was best to live in. That city, he replied, in which those who are not wronged, no less than those who are wronged, exert themselves to punish the wrongdoers.
+ - He who busies himself in mean occupations, produces in the very pains he takes about things of little or no use, an evidence against himself of his negligence and indisposition to what is really good.
+ - We ought not to treat living creatures like shoes or household belongings, which when worn with use we throw away.
+ - The flatterer’s object is to please in everything he does; whereas the true friend always does what is right, and so often gives pleasure, often pain, not wishing the latter, but not shunning it either, if he deems it best.
+ - Most people do not understand until old age what Plato tells them when they are young.
+ - Words will build no walls.
+ - Water and our necessary food are the only things that wise men must fight for.
+ - Time is the wisest of all counselors.
+ - Athenodorus says hydrophobia, or water-dread, was first discovered in the time of Asclepiades.
+ - Distressed valor challenges great respect, even from an enemy.
+ - When another is asked a question, take special care not to interrupt to answer it yourself.
+ - Abstruse questions must have abstruse answers.
+ - The very spring and root of honesty and virtue lie in good education.
+ - These Macedonians are a rude and clownish people; they call a spade a spade.
+ - As small letters hurt the sight, so do small matters him that is too much intent upon them; they vex and stir up anger, which begets an evil habit in him in reference to greater affairs.
+ - Euripides was wont to say, silence was an answer to a wise man; but we seem to have greater occasion for it in our dealing with fools and unreasonable persons; for men of breeding and sense will be satisfied with reason and fair words.
+ - Moral habits, induced by public practices, are far quicker in making their way into men’s private lives, than the failings and faults of individuals are in infecting the city at large.
+ - There is no stronger test of a person’s character than power and authority, exciting as they do every passion, and discovering every latent vice.
+ - Let a prince be guarded with soldiers, attended by councillors, and shut up in forts; yet if his thoughts disturb him, he is miserable.
+ - Fortune had favoured me in this war that I feared, the rather, that some tempest would follow so favourable a gale.
+ - I had rather men should ask why my statue is not set up, than why it is.
+ - An old doting fool, with one foot already in the grave.
+ - Why does pouring Oil on the Sea make it Clear and Calm? Is it that the winds, slipping the smooth oil, have no force, nor cause any waves?
+ - So very difficult a matter is it to trace and find out the truth of anything by history.
+ - Forgetfulness transforms every occurrence into a non-occurrence.
+ - He is a fool who leaves things close at hand to follow what is out of reach.
+ - He is a fool who lets slip a bird in the hand for a bird in the bush.
+ - A remorseful change of mind renders even a noble action base, whereas the determination which is grounded on knowledge and reason cannot change even if its actions fail.
+ - Valour, however unfortunate, commands great respect even from enemies: but the Romans despise cowardice, even though it be prosperous.
+ - It is easy to utter what has been kept silent, but impossible to recall what has been uttered.
+ - It is not reasonable that he who does not shoot should hit the mark, nor that he who does not stand fast at his post should win the day, or that the helpless man should succeed or the coward prosper.
+ - Custom is almost a second nature.
+ - A few vices are sufficient to darken many virtues.
+ - Wickedness frames the engines of her own torment. She is a wonderful artisan of a miserable life.
+ - Themistocles replied that a man’s discourse was like to a rich Persian carpet, the beautiful figures and patterns of which can only be shown by spreading and extending it out; when it is contracted and folded up, they are obscured and lost.
+ - What is bigger than an elephant? But this also is become man’s plaything, and a spectacle at public solemnities; and it learns to skip, dance, and kneel.
+ - Beauty is the flower of virtue.
+ - The superstitious man wishes he did not believe in gods, as the atheist does not, but fears to disbelieve in them.
+ - Our nature holds so much envy and malice that our pleasure in our own advantages is not so great as our distress at others’.
+ - Pompey bade Sylla recollect that more worshipped the rising than the setting sun.
+ - Blinded as they are to their true character by self-love, every man is his own first and chiefest flatterer, prepared, therefore, to welcome the flatterer from the outside, who only comes confirming the verdict of the flatterer within.
+ - But the Lacedaemonians, who make it their first principle of action to serve their country’s interest, know not any thing to be just or unjust by any measure but that.
+ - The obligations of law and equity reach only to mankind; but kindness and beneficence should be extended to the creatures of every species, and these will flow from the breast of a true man, as streams that issue from the living fountain.
+ - Philosophy is an act of living.
+ - Memory: what wonders it performs in preserving and storing up things gone by – or rather, things that are.
+ - Xenophon says that there is no sound more pleasing than one’s own praises.
+ - Zeno first started that doctrine, that knavery is the best defence against a knave.
+ - He who first called money the sinews of the state seems to have said this with special reference to war.
+ - The most glorious exploits do not always furnish us with the clearest discoveries of virtue or vice in men.
+ - Riches for the most part are hurtful to them that possess them.
+ - He who least likes courting favour, ought also least to think of resenting neglect; to feel wounded at being refused a distinction can only arise from an overweening appetite to have it.
+ - Justice makes the life of such as are in prosperity, power and authority the life of a god, and injustice turns it to that of a beast.
+ - The belly has no ears.
+ - Painting is silent poetry.
+ - For man is a plant, not fixed in the earth, nor immovable, but heavenly, whose head, rising as it were from a root upwards, is turned towards heaven.
+ - Courage stands halfway between cowardice and rashness, one of which is a lack, the other an excess of courage.
+ - The man who first brought ruin upon the Roman people was he who pampered them by largesses and amusements.
+ - Cato used to assert that wise men profited more by fools than fools by wise men; for that wise men avoided the faults of fools, but that fools would not imitate the good examples of wise men.
+ - The man who is completely wise and virtuous has no need of glory, except so far as it disposes and eases his way to action by the greater trust that it procures him.
+ - To conduct great matters and never commit a fault is above the force of human nature.
+ - Wickedness is a wonderfully diligent architect of misery, of shame, accompanied with terror, and commotion, and remorse, and endless perturbation.
+ - Children are to be won to follow liberal studies by exhortations and rational motives, and on no account to be forced thereto by whipping.
+ - If you hate your enemies, you will contract such a vicious habit of mind that it will break out upon those who are your friends, or those who are indifferent to you.
+ - Being summoned by the Athenians out of Sicily to plead for his life, Alcibiades absconded, saying that that criminal was a fool who studied a defence when he might fly for it.
+ - Children ought to be led to honorable practices by means of encouragement and reasoning, and most certainly not by blows and ill treatment.
+ - Time which diminishes all things increases understanding for the aging.
+ - In words are seen the state of mind and character and disposition of the speaker.
+ - There is no debt with so much prejudice put off as that of justice.
+ - Prosperity is no just scale; adversity is the only balance to weigh friends.
+ - We ought to regard books as we do sweetmeats, not wholly to aim at the pleasantest, but chiefly to respect the wholesomest; not forbidding either, but approving the latter most.
+ - When men are arrived at the goal, they should not turn back.
+ - Authority and place demonstrate and try the tempers of men, by moving every passion and discovering every frailty.
+ - There is never the body of a man, how strong and stout soever, if it be troubled and inflamed, but will take more harm and offense by wine being poured into it.
+ - The pilot cannot mitigate the billows or calm the winds.
+ - Though others before him had triumphed three times, Pompeius, by having gained his first triumph over Libya, his second over Europe, and this the last over Asia, seemed in a manner to have brought the whole world into his three triumphs.
+ - Moral good is a practical stimulus; it is no sooner seen than it inspires an impulse to practice.
+ - So also it is good not always to make a friend of the person who is expert in twining himself around us; but, after testing them, to attach ourselves to those who are worthy of our affection and likely to be serviceable to us.
+ - It does not follow, that because a particular work of art succeeds in charming us, its creator also deserves our admiration.
+ - Pittacus said, “Every one of you hath his particular plague, and my wife is mine; and he is very happy who hath this only”.
+ - Lamentation is the only musician that always, like a screech-owl, alights and sits on the roof of any angry man.
+ - Books delight to the very marrow of one’s bones. They speak to us, consult with us, and join with us in a living and intense intimacy.
+ - The generous mind adds dignity to every act, and nothing misbecomes it.
+ - The giving of riches and honors to a wicked man is like giving strong wine to him that hath a fever.
+ - Democritus said, words are but the shadows of actions.
+ - Either is both, and Both is neither.
+ - Remember what Simonides said, that he never repented that he had held his tongue, but often that he had spoken.
+ - Lying is a most disgraceful vice; it first despises God, and then fears men.
+ - What All The World Knows Water is the principle, or the element, of things. All things are water.
+ - Cicero said loud-bawling orators were driven by their weakness to noise, as lame men to take horse.
+ - They fought indeed and were slain, but it was to maintain the luxury and the wealth of other men.
+ - Ease and speed in doing a thing do not give the work lasting solidity or exactness of beauty.
+ - Pythagoras, when he was asked what time was, answered that it was the soul of this world.
+ - I confess myself the greatest coward in the world, for I dare not do an ill thing.
+ - As those that pull down private houses adjoining to the temples of the gods, prop up such parts as are contiguous to them; so, in undermining bashfulness, due regard is to be had to adjacent modesty, good-nature and humanity.
+ - Let us not wonder if something happens which never was before, or if something doth not appear among us with which the ancients were acquainted.
+ - Mothers ought to bring up and nurse their own children; for they bring them up with greater affection and with greater anxiety, as loving them from the heart, and so to speak, every inch of them.
+ - Gout is not relieved by a fine shoe nor a hangnail by a costly ring nor migraine by a tiara.
+ - Lysander, when Dionysius sent him two gowns, and bade him choose which he would carry to his daughter, said, “She can choose best,” and so took both away with him.
+ - The same intelligence is required to marshal an army in battle and to order a good dinner. The first must be as formidable as possible, the second as pleasant as possible, to the participants.
+ - If you light upon an impertinent talker, that sticks to you like a bur, to the disappointment of your important occasions, deal freely with him, break off the discourse, and pursue your business.
+ - When one is transported by rage, it is best to observe attentively the effects on those who deliver themselves over to the same passion.
+ - One made the observation of the people of Asia that they were all slaves to one man, merely because they could not pronounce that syllable No.
+ - Nothing is harder to direct than a man in prosperity; nothing more easily managed that one is adversity.
+ - What can they suffer that do not fear to die?
+ - God alone is entirely exempt from all want of human virtues, that which needs least is the most absolute and divine.
+ - It is circumstance and proper measure that give an action its character, and make it either good or bad.
+ - Where two discourse, if the anger of one rises, he is the wise man who lets the contest fall.
+ - The first evil those who are prone to talk suffer, is that they hear nothing.
+ - I have heard that Tiberius used to say that that man was ridiculous, who after sixth years, appealed to a physician.
+ - Talkativeness has another plague attached to it, even curiosity; for praters wish to hear much that they may have much to say.
+ - It was not important how many enemies there are, but where the enemy is.
+ - Courage and wisdom are, indeed, rarities amongst men, but of all that is good, a just man it would seem is the most scarce.
+ - He who reflects on another man’s want of breeding, shows he wants it as much himself.
+ - Nothing exists in the intellect that has not first gone through the senses.
+ - For to err in opinion, though it be not the part of wise men, is at least human.
+ - Archimedes had stated, that given the force, any given weight might be moved; and even boasted that if there were another earth, by going into it he could remove this.
+ - He who cheats with an oath acknowledges that he is afraid of his enemy, but that he thinks little of God.
+ - The present offers itself to our touch for only an instant of time and then eludes the senses.
+ - Friendship is the most pleasant of all things, and nothing more glads the heart of man.
+ - It were better to have no opinion of God at all than such a one as is unworthy of him; for the one is only belief – the other contempt.
+ - Statesmen are not only liable to give an account of what they say or do in public, but there is a busy inquiry made into their very meals, beds, marriages, and every other sportive or serious action.
+ - The conduct of a wise politician is ever suited to the present posture of affairs. Often by foregoing a part he saves the whole, and by yielding in a small matter secures a greater.
+ - Note that the eating of flesh is not only physically against nature, but it also makes us spiritually coarse and gross by reason of satiety and surfeit.
+ - If Nature be not improved by instruction, it is blind; if instruction be not assisted by Nature, it is maimed; and if exercise fail of the assistance of both, it is imperfect.
+ - We rich men count our felicity and happiness to lie in these superfluities, and not in those necessary things.
+ - It is the usual consolation of the envious, if they cannot maintain their superiority, to represent those by whom they are surpassed as inferior to some one else.
+ - Whenever anything is spoken against you that is not true, do not pass by or despise it because it is false; but forthwith examine yourself, and consider what you have said or done that may administer a just occasion of reproof.
+ - As soft wax is apt to take the stamp of the seal, so are the minds of young children to receive the instruction imprinted on them.
+ - To please the many is to displease the wise.
+ - What most of all enables a man to serve the public is not wealth, but content and independence; which, requiring no superfluity at home, distracts not the mind from the common good.
+ - The authors of great evils know best how to remove them.
+ - Real excellence, indeed, is most recognized when most openly looked into.
+ - We are more sensible of what is done against custom than against nature.
+ - The ripeness of adolescence is prodigal in pleasures, skittish, and in need of a bridle.
+ - Had I a careful and pleasant companion that should show me my angry face in a glass, I should not at all take it ill; to behold man’s self so unnaturally disguised and dishonored will conduce not a little to the impeachment of anger.
+ - It is a thing of no great difficulty to raise objections against another man’s oration, it is a very easy matter; but to produce a better in it’s place is a work extremely troublesome.
+ - Man is neither by birth nor disposition a savage, nor of unsocial habits, but only becomes so by indulging in vices contrary to his nature.
+ - Hesiod might as well have kept his breath to cool his pottage.
+ - Even a nod from a person who is esteemed is of more force than a thousand arguments or studied sentences from others.
+ - He shall fare well who confronts circumstances aright.
+ - When malice is joined to envy, there is given forth poisonous and feculent matter, as ink from the cuttle-fish.
+ - Anger turns the mind out of doors and bolts the entrance.
+ - A healer of others, himself diseased.
+ - Both Empedocles and Heraclitus held it for a truth that man could not be altogether cleared from injustice in dealing with beasts as he now does.
+ - Cato requested old men not to add the disgrace of wickedness to old age, which was accompanied with many other evils.
+ - It is no disgrace not to be able to do everything; but to undertake, or pretend to do, what you are not made for, is not only shameful, but extremely troublesome and vexatious.
+ - The human heart becomes softened by hearing of instances of gentleness and consideration.
+ - It is the admirer of himself, and not the admirer of virtue, that thinks himself superior to others.
+ - Nor is drunkenness censured for anything so much as its intemperate and endless talk.
+ - There is no perfecter endowment in man than political virtue.
+ - Knowledge of divine things for the most part, as Heraclitus says, is lost to us by incredulity.
+ - The usual disease of princes, grasping covetousness, had made them suspicious and quarrelsome neighbors.
+ - A friend should be like money, tried before being required, not found faulty in our need.
+ - I do not think that shoemaker a good workman that makes a great shoe for a little foot.
+
+277 quotes

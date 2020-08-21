@@ -1,0 +1,43 @@
+ - I’m not childless, darling. I am childfree.
+ - If I had to live my life again, I’d make the same mistakes, only sooner.
+ - Only good girls keep diaries. Bad girls don’t have time.
+ - Too many of our countrymen rejoice in stupidity, look upon ignorance as a badge of honor. They condemn everything they don’t understand.
+ - I’m the foe of moderation, the champion of excess.
+ - I’ll come and make love to you at five o’clock. If I’m late start without me.
+ - If I were well behaved, I’d die of boredom.
+ - Say anything about me, darling, as long as it isn’t boring.
+ - Fill what is empty, empty what is full, and scratch where it itches.
+ - I have enemies I’ve never met – that’s fame.
+ - A frozen daiquiri of a scorching afternoon is soothing. It makes living more tolerable.
+ - No man worth his salt, no man of spirit and spine, no man for whom I could have any respect, could rejoice in the identification of Tallulah’s husband. It’s tough enough to be bogged down in a legend. It would be even tougher to marry one.
+ - I thought I told you to wait in the car.
+ - They say it’s the good girls who keep diaries. The bad girls never have the time. Me, I just wanna live a life I’m gonna remember even if I don’t write it down.
+ - I think the Republican party should be placed in drydock and have the barnacles scraped off its bottom.
+ - It’s unlikely I’ll ever submit to a psychiatrist’s couch. I don’t want some stranger prowling around through my psyche, monkeying with my id. I don’t need an analyst to tell me that I have never had any sense of security. Who has?
+ - Whatever you have read I have said is almost certainly untrue, except if it is funny, in which case I definitely said it.
+ - My father warned me about men and booze but he never said anything about women and cocaine.
+ - Nobody can be exactly like me. Sometimes even I have trouble doing it.
+ - A Republican. A Republican. That’s worse than being a goddamned Communist!
+ - Don’t think this has taught me a lesson !
+ - I have been tight as a tick! Fried as a mink! Stiff as a goat!
+ - I’m the foe of moderation, the champion of excess. If I may lift a line from a die-hard whose identity is lost in the shuffle, ‘I’d rather be strongly wrong than weakly right.’
+ - There have only been two authentic geniuses in the world, Willie Mays and Willie Shakespeare and I think you’d better put Shakespeare first, darling.
+ - Cocaine isn’t habit forming. I should know, I’ve been using it for years.
+ - If you know your Bible and your Shakespeare and can shoot craps, you have a liberal education.
+ - My progress reminded me of the horses in The Whip. They raced at the limit of their speed directly toward the audience. But they raced on a treadmill which canceled out their progress.
+ - For acting, darlings, is the world’s most perilous trade. Compared with actors, steeple jacks and deep-sea divers lead snug and placid lives.
+ - Will TV kill the theater? If the programs I have seen, save for “Kukla, Fran and Ollie,” the ball games and the fights, are any criterion, the theater need not wake up in a cold sweat.
+ - I detest acting because it is sheer drudgery.
+ - In my lifetime I’ve been to bed with men, women, and odd pieces of furniture.
+ - Do you know what my ambition is in life? To be without ambition. As far back as I can remember I’ve been absolutely hag-ridden. I’d like to attain the state of mind that the Indians call Nirvana. That, for me, would happen if I were free of ambition.
+ - In the theater lying is looked upon as an occupational disease.
+ - Drink reacts on its practitioners in conflicting ways. One brave can knock off a quart of Scotch and look and act as sober as Herbert Hoover. Another, after three Martinis, makes two-cushion carroms off the chaise lounge as he attempts to negotiate the bathroom.
+ - Don’t be taken in by the guff that critics are killing the theater. Commonly they sin on the side of enthusiasm. Too often they give their blessing to trash.
+ - Here’s a rule I recommend: Never practice two vices at once.
+ - It’s one of the tragic ironies of the theatre that only one man in it can count on steady work – the night watchman.
+ - I’ve been called many things, but never an intellectual.
+ - I’m not at my best when I moralize or philosophize. Logic is elusive, especially to one who so rarely uses it.
+ - They aren’t making mirrors like they use to.
+ - I’ve had a man and I’ve had a woman, and there’s got to be something better.
+
+41 quotes

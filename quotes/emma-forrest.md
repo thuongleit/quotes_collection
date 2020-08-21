@@ -1,0 +1,40 @@
+ - Write a page every single day, even if what you put on the page that day is no good – it’s the only way to get better.
+ - If killing yourself is not an option anymore, you have to sink into the darkness instead, and make something out of it.
+ - I like the cuts – they comfort me – I can’t lie.
+ - Time heals all wounds. And if it doesn’t, you name them something other than wounds and agree to let them stay.
+ - Let me tell you something: when you dance, you are the greatest dancer who has ever lived. And when you sing, you will have the courage to raise your voice to the heavens, knowing that you may never get an answer.
+ - But I saw the pain and sadness in everything, and swirled it round my mouth like a fine wine.
+ - Of course he freaked me out. Of course it’s nothing to do with me. But none of that matters. He loved me and now he doesn’t. I was everything to him and now I am nothing.
+ - When I was younger I loved Betty Blue, and at the moment I’m completely besotted with Angelina Jolie. But sometimes I’m unnerved by the idea of men liking her. Because I think that there is a side to every man that really wants to watch a woman fall apart.
+ - Every fear, every night terror, every hour I cried for Liev, every fight with Sebastian is registered as a neat white scar.
+ - I still believe that you truly find yourself not in travel, but in other human souls.
+ - Now that he’s gone, I feel like I’m a senior citizen who gave away her life savings over the phone. And this is the crux: I never in my life believed in someone as much as I believed in him. The shame is overwhelming.
+ - Everyone asks about how I’ll feel about the tattoos and scars in thirty years. I always say: “I’ll like them.” I’ve always loved damaged monuments, in architecture and in humans.
+ - Jeff Bridges says that the reason he’s one of the few stars in Hollywood whose made his marriage last for decades is that every time they think there’s no more doors left to walk through in the room, they just keep looking and keep looking until they find one.
+ - I’m in love with someone good and kind and gentle, and he’s seen the darkness too, but somehow we’ve become each other’s light.
+ - Yes, I have patterns of love addiction. But I’m a woman. Of course I do.
+ - I want you to stay. I never want there to be a time when we don’t share space.
+ - It took a long time, but my heart now feels full when I think of him. When you fall in love again – which I have – it’s funny the other things that come back in with that open-ness. You have this ghost chorus of the lovers who came before, but they’re benign now, they’re good spirits.
+ - I finally accept that not only do I not understand the death of my relationship, but I do not need to. These men were good and kind to me, they loved me and I loved them back and the shock at the finish holds no wisdom. The revelation is not that I lost them, but that I had them.
+ - He was a super shiny boy and I liked the shape of him. Under the blanket. In the shower. I liked his shadow on the street and his imprint on the sofa. I hated the smell of hair gel on his head, but I loved it on the pillow. I love the smell of losing someone.
+ - We intersect. He says he thanks every star that we existed on the same celestial plain. But here we are on earth, dirty, well used, a man-made throughway for intersecting dreams.
+ - My radar, after all these years of sanity, is still off when it comes to what people do or don’t mean.
+ - If you don’t know who you are, madness gives you something to believe in.
+ - It’s all in her walk, a cartoon swagger. Part Jayne Mansfield, part Muhammad Ali. Men never know if it’s an invitation upstairs or an invitation outside.
+ - I wish I had been less keen to inject my own opinions, but I was a teenager and your teenage self is generally an idiot compared to the adult you. That’s the way it should be. If it’s the other way around, you have a problem.
+ - It’s as if he can no longer acknowledge the love he felt or the pain I am in. I have been dismissed. I don’t think I was smarter or as beautiful as the other girls he did this to. It’s just that I was me. It was all I had.
+ - My thoughts are messy, my emotions are messy, my body goes in and out at will. The raised white scars on my arms and legs are the only aspect of my being that comes close to minimalism. They came from chaos, but it is hard to carve frustration and unease into the flesh. Only straight lines.
+ - I enjoy films where two characters are coming of age, just different ages. That’s why I love ‘Paper Moon’ so much.
+ - I would say at the moment the only person who could have played me this past year would have to be Angelina Jolie.
+ - Well. There is a psychiatric occurrence we see in men-not often women-where they put all their hopes and dreams onto one person, so intensely that at some point it trips a wire in the brain circuitry, and that causes them to go, in a minute, 180 degrees the other way.
+ - I’m not crazy or dangerous, just a bit eccentric and lonely.
+ - No one ever loved you like him. And no one ever took it away so completely. But it’s here. Look around.
+ - There’s so much guilt there attached to having a perfectly good life.
+ - When he kisses me, I cry. I explain it’s not because I wish he were someone else, it’s because it’s such a shock to the system to be desired after feeling so completely abandoned.
+ - You can have this kind of love. You can have it. You just grab it. Of course the problem with having that love is that you can lose it, too.
+ - When you live with voices in your head, you are drawn inextricably to voices outside your head. Very often the voices work to confirm your worst suspicions. Or think of things you could never have imagined! There are only so many hours of the day to hate yourself.
+ - At least you know where you are with blood. At least other people can see it.
+ - People don’t know. We don’t know ourselves so we tell ourselves what we really know is other people. We could say the depth of pain we feel for the lovers who’ve left us is because we knew them so well.
+ - Cyndi Lauper was hilarious and generous, someone I’d loved from childhood who didn’t disappoint.
+
+38 quotes

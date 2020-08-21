@@ -1,0 +1,23 @@
+ - I read because one life isn’t enough and in the pages of a book, I can be anybody.
+ - Because nobody but a reader ever became a writer.
+ - When I read a good book, it’s like traveling the world without ever leaving my chair.
+ - I read because one of these days I’m going to get out of this town, and I’m going to go everywhere and meet everybody, and I want to be ready.
+ - Anyone who thinks small towns are friendlier than big cities lives in a big city.
+ - Writing is communication, not self-expression. Nobody in this world wants to read your diary except your mother.
+ - I caught a glimpse of happiness, and saw it was a bird on a branch, fixing to take wing.
+ - With the poetry of plain speaking, Shannon Hitchcock recreates the daily drama of a vanished world.
+ - I’m so far gone that I’m telling the truth. It sounds like a foreign language.
+ - This is how you hold onto your family. You hold them with open hands so they are free to find futures of their own. It’s just that simple.
+ - Martin Wilson’s What They Always Tell Us hears the voices of the young as they struggle toward adulthood...
+ - We write by the light of every story we have ever read.
+ - The years went by, and Mary Alice and I grew up, Slower than we wanted to, faster than we realized.
+ - If you cannot find yourself on the page very early in life, you will go looking for yourself in all the wrong places.
+ - The only way you can write is by the light of the bridges burning behind you.
+ - We don’t write what we know. We write what we wonder about.
+ - If you’re going to read minds, start with a simple one.
+ - That meant I could come back whenever I could manage it. And she was telling me to go. She knew the decision was too big a load for me to carry by myself. She knew me through and through. She had eyes in the back of her heart.
+ - Only the nonreader fears books.
+ - Humor is anger that was sent to finishing school.
+ - Fame is a funny thing, like a secret, both are hard to keep.
+
+21 quotes

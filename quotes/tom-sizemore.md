@@ -1,0 +1,32 @@
+ - Well you know for me, the action is the juice.
+ - I am not as crazy as people think.
+ - I read a lot. I am an inveterate reader. I always have a novel going.
+ - I’m a big baby. I’m not tough at all.
+ - I used to blame my problems on other people. But my moment of clarity, if you want to call it that, came when I was looking in the mirror one day and just burst into tears. It wasn’t just that I looked bad, it was that I knew my problem was me.
+ - It’s just acting. I take acting seriously but up to a point.
+ - I’m afraid of the dark. I’m not kidding.
+ - Being alone is scarier than any boogey man and the reason why I don’t choose to see Horror movies as a rule.
+ - I was a wayward kid, a rambunctious and angry teenager, but I found acting as a fifteen-year-old.
+ - It was dog food. Beef livers with onions in a can. You open it up and it looks like vomit.
+ - I’m essentially a momma’s boy with a good education.
+ - I’m a very fortunate actor. I’m blessed to be the position I’m in right now.
+ - I didn’t come to Hollywood to drink or get high, and I don’t want to be considered a cool actor – I want to be a great actor.
+ - Why am I the way I am? Well, I used to be different.
+ - I’m not really rebellious. People think I am, but I’m not.
+ - Now, if I think a scene should go a certain way and it goes another, I’m able to go that new way with ease.
+ - Although I get so much fan mail from Great Britain, tell me, am I more famous there than Michael Madsen?
+ - I think being a movie star is about whether an audience can watch you and care about you.
+ - I shot a couple of movies in jail, but I was never in jail.
+ - My wife and I are a team, and it’s good for my work because I’m interested in working from a stable base.
+ - I play tough guys in movies and behaved like one in front of the press because I thought that was what a man did.
+ - Temptation is impossible for me to resist Come on. This is Hollywood. It’s in the job description.
+ - If someone messes with me, I’m going to mess with them.
+ - I like to touch things. In my house I have a lot of velvet drapes and thick, lush couches.
+ - Actors have to make you believe that it’s happening for the first time and all that jazz and make it human and at the same time entertain you.
+ - You must have to want it so badly, if there is any way you can live without it, get out of it. Being an unsuccessful actor is like having a skin disease. Make sure your passion is not misplaced.
+ - Fatherhood didnt change me in the beginning very much.
+ - Acting is never done. We’re trying to keep it real and make sure that you’re entertained and it seems unrehearsed.
+ - I weighed 190 when I got to boot camp, I came out at 178. I ate only the beans and tomato sauce.
+ - I’m trying to reestablish my career and do great work and give my kids the life they deserve.
+
+30 quotes

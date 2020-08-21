@@ -1,0 +1,210 @@
+ - Change before you have to.
+ - If you don’t have a competitive advantage, don’t compete.
+ - Before you are a leader, success is all about growing yourself. When you become a leader, success is all about growing others.
+ - When you were made a leader you weren’t given a crown, you were given the responsibility to bring out the best in others.
+ - Control Your Own Destiny or Someone Else Will.
+ - There’s no such thing as work-life balance. There are work-life choices, and you make them, and they have consequences.
+ - Strategy is not a lengthy action plan. It is the evolution of a central idea through continually changing circumstances.
+ - Its a marathon, its not a sprint. Ten years. Fifteen years. You’ve got to get up everyday, with a new idea, a new spin, and you’ve got to bring it to work, every day.
+ - When there’s change, there’s opportunity.
+ - Face reality as it is, not as it was or as you wish it to be.
+ - In real life, strategy is actually very straightforward. You pick a general direction and implement like hell.
+ - An organization’s ability to learn, and translate that learning into action rapidly, is the ultimate competitive advantage.
+ - The team with the best players wins.
+ - A leader’s role is not to control people or stay on top of things, but rather to guide, energize and excite.
+ - There are only two sources of competitive advantage: the ability to learn more about our customers faster than the competition and the ability to turn that learning into action faster than the competition.
+ - Giving people self-confidence is by far the most important thing that I can do. Because then they will act.
+ - Culture drives great results.
+ - A leader’s job is to look into the future and see the organization, not as it is, but as it should be.
+ - Face reality as it is, not as it was, or as you wish it were. Be candid with everyone. Don’t manage, lead. Change before you have to. If you don’t have a competitive advantage, don’t compete. Control your own destiny, or someone else will.
+ - In the end, your integrity is all you’ve got.
+ - Set stretch goals. Don’t ever settle for mediocrity. The key to stretch is to reach for more than you think is possible. Don’t sell yourself short by thinking that you’ll fail.
+ - The biggest opportunity for big companies has come by far in the digitization of internal processes.
+ - Keep learning; don’t be arrogant by assuming that you know it all, that you have a monopoly on the truth; always assume that you can learn something from someone else.
+ - If I had to run a company on three measures, those measures would be customer satisfaction, employee satisfaction and cash flow.
+ - Be candid with everyone.
+ - Trust happens when leaders are transparent.
+ - Great leaders love to see people grow. The day you are afraid of them being better than you is the day you fail as a leader.
+ - I might not be the brightest bulb in the chandelier, but I’m pretty good at getting most of the other bulbs to light up.
+ - Just because you are the boss doesn’t mean you are the source of all knowledge.
+ - No company, small or large, can win over the long run without energized employees who believe in the mission and understand how to achieve it.
+ - If you pick the right people and give them the opportunity to spread their wings and put compensation as a carrier behind it you almost don’t have to manage them.
+ - It is better to act too quickly than it is to wait too long.
+ - HR should be every company’s killer app. What could possibly be more important than who gets hired?
+ - Strategy means making clear-cut choices about how to compete.
+ - Willingness to change is a strength, even if it means plunging part of the company into total confusion for a while.
+ - Cash is king. Get every drop of cash you can get and hold onto it.
+ - When it comes to strategy, ponder less and do more.
+ - Companies don’t give job security. Only satisfied customers do.
+ - Leaders relentlessly upgrade their team, using every encounter as an opportunity to evaluate, coach, and build self-confidence.
+ - Make winners out of every business in your company. Don’t carry losers.
+ - Without doubt, there are lots of ways to measure the pulse of a business. But if you have employee engagement, customer satisfaction, and cash flow right, you can be sure your company is healthy and on the way to winning.
+ - Every great leader has a generosity gene.
+ - Don’t make the process harder than it is.
+ - You talk about seeing around corners as an element of success. That’s what differentiates the good leader. Not many people have it. Not many people can predict that corner. That would be a characteristic of great leaders.
+ - Getting the right people in the right jobs is a lot more important than developing a strategy.
+ - Never miss out on an opportunity like a good recession.
+ - The world will belong to passionate, driven leaders – people who not only have enormous amounts of energy, but who can energize those whom they lead.
+ - Arrogance is a killer, and wearing ambition on one’s sleeve can have the same effect. There is a fine line between arrogance and self-confidence.
+ - Take time to get to know people. Understand where they are coming from, what is important to them. Make sure they are with you.
+ - In manufacturing, we try to stamp out variance. With people, variance is everything.
+ - I was never the smartest guy in the room. From the first person I hired, I was never the smartest guy in the room. And that’s a big deal. And if you’re going to be a leader – if you’re a leader and you’re the smartest guy in the world – in the room, you’ve got real problems.
+ - Management is all about managing in the short term, while developing the plans for the long term.
+ - When all is said and done, teaching is what I try to do for a living.
+ - Public hangings are teaching moments. Every company has to do it. A teaching moment is worth a thousand CEO speeches. CEOs can talk and blab each day about culture, but the employees all know who the jerks are. They could name the jerks for you. It’s just cultural. People just don’t want to do it.
+ - The best thing workers can bring to their jobs is a lifelong thirst for learning.
+ - Real communication is an attitude, an environment. It is the most interactive of all processes. It requires countless hours of eyeball to eyeball, back and forth. It involves more listening than talking.
+ - Simple messages travel faster, simpler designs reach the market faster and the elimination of clutter allows faster decision making.
+ - No vision is worth the paper it’s printed on unless it is communicated constantly and reinforced with rewards.
+ - When employees underperform, a leader tells them so.
+ - The secret of success is changing the way you think.
+ - Failing to differentiate among employees – and holding on to bottom-tier performers – is actually the cruelest form of management there is.
+ - The world belongs to passionate driven people.
+ - If we get the right people in the right job we’ve won the game.
+ - Someone, somewhere has a better idea.
+ - Strategy is simply resource allocation. When you strip away all the noise, that’s what it comes down to. Strategy means making clear cut choices about how to compete. You cannot be everything to everybody, no matter what the size of your business or how deep its pockets.
+ - The last thing you want to do is be a bore. When you wake up in the morning, give yourself a good mirror test. If you look like you’re going to be a sulking, pouting bore, slap yourself in the face before you go out to the office.
+ - Any time there is change, there is opportunity. So it is paramount that an organization get energized rather than paralyzed.
+ - Excellence and competitiveness aren’t incompatible with honesty and integrity.
+ - You can’t grow long-term if you can’t eat short-term. Anybody can manage short. Anybody can manage long. Balancing those two things is what management is.
+ - The thing it taught me was that winning’s a helluva lot more fun than losing. It also taught me that the team with the best players that worked together the best wins.
+ - Again, your challenge is not just to improve. It is to break the service paradigm in your industry or market so that customers aren’t just satisfied, they’re so shocked that they tell strangers on the street how good you are.
+ - Common mission trap for companies: trying to be all things to all people at all times.
+ - The essence of competitiveness is liberated when we make people believe that what they think and do is important – and then get out of their way while they do it.
+ - Managers can waste a lot of time at the outset of a crisis denying that something went wrong. Skip that step.
+ - Take the middle 70 percent and tell them what they need to do to get into the top 20 percent.
+ - Every employee, not just the senior people, should know how a company is doing.
+ - If you can’t energize others, you can’t be a leader.
+ - Nobody is too important to lead the initiative you say is important.
+ - No one can guarantee you a job other than satisfied customers. That’s the only thing that works. Nothing creates work other than products and services you provide that create satisfied customers.
+ - Strong managers who make tough decisions to cut jobs provide the only true job security in today’s world. Weak managers are the problem. Weak managers destroy jobs.
+ - Globalization is now no longer an objective but an imperative, as markets open and geographic barriers become increasingly blurred and even irrelevant.
+ - Business success is less a function of grandiose predictions than it is a result of being able to respond rapidly to real changes as they occur.
+ - What is a budget review? A personal review with numbers.
+ - One of the things about leadership is that you cannot be a moderate, balanced, thoughtful, careful articulator of policy. You’ve got to be on the lunatic fringe.
+ - People always overestimate how complex business is. This isn’t rocket science. We’ve chosen one of the world’s simplest professions.
+ - Don’t lose youself on the way to the top.
+ - Get the best player because whether it’s soccer or whether it’s anything else the team with the best players wins. So focus your energy on getting the best and getting rid of the weakest.
+ - Ninety-nine point nine percent of all employees are in the pile because they don’t think.
+ - One of the jobs of a manager is to instill confidence, pump confidence into your people. And when you’ve got somebody who’s raring to go and you can smell it and feel it, give ’em that shot.
+ - If you reward candor, you’ll get it.
+ - I believe social responsibility begins with a strong, competitive company. Only a healthy enterprise can improve and enrich the lives of people and their communities.
+ - Shun the incremental and go for the leap.
+ - The most important quality of leadership is intellectual honesty. The reality principle – the ability to see the world as it really is, not as you wish it were.
+ - A good leader remains focused. Controlling your destination is better than being controlled by it.
+ - If you get the best people on your team, you’ve got plenty of time to do the things you like to do and can add more value to.
+ - People who are coaches will be the norm. Other people won’t get promoted.
+ - If GE’s strategy of investment in China is wrong, it represents a loss of a billion dollars, perhaps a couple of billion dollars. If it is right, it is the future of this company for the next century.
+ - For a large organization to be effective, it must be simple.
+ - If we wait for the perfect answer, the world will pass us by.
+ - My bosses cautioned me about my candor. Now my GE career is over, and I’m telling you that it was my candor that helped make it work.
+ - If you don’t deliver, you don’t earn the flexibility.
+ - You measure your people and you take action on those that don’t measure up.
+ - Stretch targets energize. We have found that by reaching for what appears to be the impossible, we often actually do the impossible; and even when we don’t quite make it, we inevitably wind up doing much better than we would have done.
+ - The operative assumption today is that someone, somewhere, has a better idea; and the operative compulsion is to find out who has that better idea, learn it, and put it into action-fast.
+ - The 3Ss of Winning in business are speed, simplicity, and self-confidence.
+ - My main job was developing talent. I was a gardener providing water and other nourishment to our top 750 people. Of course, I had to pull out some weeds, too.
+ - If you’re not in Germany, you’re not in Europe. And if you’re not in Asia, you’re nowhere.
+ - In every company, differentiation is never more important than it is in times of trouble, and that’s the time when everyone tends to go to the well and equalize rather than differentiate.
+ - Lack of candor blocks smart ideas, fast action, and good people contributing all the stuff they’ve got. It’s a killer.
+ - We bring together the best ideas – turning the meetings of our top managers into intellectual orgies.
+ - I don’t feel under-taxed in any way at all.
+ - In my lifetime, Mitt Romney is the most qualified leader I’ve ever seen run for the presidency of the United States.
+ - Leading a big company means never allowing a company to take itself too seriously.
+ - Short cycle business are being impacted by credit, and are being impacted by gasoline prices, food, distribution businesses, chemical business.
+ - I guarantee you it will not be anyone from the outside.
+ - Protecting underperformers always backfires.
+ - Your goal, in other words, should be to make your bosses smarter, your team more effective, and the whole company more competitive because of your energy, creativity, and insights.
+ - For a large corporation to be effective, it must be simple. For an organization to be simple, its people must have self-confidence and intellectual self-assurance. Insecure managers create complexity, real leaders do not clutter.
+ - I’ve learned in a hundred ways that I rarely regretted acting but often regretted NOT acting fast enough.
+ - In difficult times your best must be hugged, loved, kissed, rewarded, paid – everything. And your worst must be the people that leave, because your best are going to take you to the next game.
+ - Approach every meeting with a purposeful, high-energy, ready-to-make-a-contribution attitude, and watch how fast leadership’s perception of you follows your behavior.
+ - If you want risk taking, set an example yourself and reward and praise those that do.
+ - Nothing of any importance has ever been accomplished by a pessimist.
+ - Globalization has changed us into a company that searches the world, not just to sell or to source, but to find intellectual capital – the world’s best talents and greatest ideas.
+ - Most organizations fail in driving change.
+ - The team with the best players usually does win – this is why you need to invest the majority of your time and energy in developing your people.
+ - We have the brand, and we have the fulfillment capability. Now we had to get the Net, and that’s the easiest part of the game.
+ - Trying to get people to face reality and see the world the way it really is is an absolutely critical aspect of leadership, in my view.
+ - I believe that in any initiative, you can’t have a flavor of the month. When you believe something is profound in a company, you can not be a logical leader. You have to go to the lunatic fringe. There is no way that logic is what you need to change people.
+ - You got to be rigorous in your appraisal system. The biggest cowards are managers who don’t let people know where they stand.
+ - We know where most of the creativity, the innovation, the stuff that drives productivity lies – in the minds of those closest to the work.
+ - This shows you are never too old to get surprised.
+ - You can’t behave in a calm, rational manner. You’ve got to be out there on the lunatic fringe.
+ - If we don’t create private sector jobs and just – just creating public sector jobs, we’re going nowhere. This is a bad game. You’ve got to have innovation. You’ve got to have tax policies that support innovation.
+ - When I stop learning something new and start talking about the past versus the future, I will go.
+ - If you managed a baseball team, would you listen more closely to the team accountant or the director of player personnel?
+ - An overburdened, overstretched executive is the best executive, because he or she doesn’t have the time to meddle, to deal in trivia, to bother people.
+ - The story about GE that hasn’t been told is the value of an informal place. I think it’s a big thought. I don’t think people have ever figured out that being informal is a big deal.
+ - You hang around with good people, you play a lot of golf, and you have a pretty good life. That’s what success is all about. It’s getting people you like, who want to take the hill with you, who want to win, who have the passion. This is not rocket science.
+ - Not surprisingly, work-life moaners tend to be a phenomenon of below-average performers.
+ - You can’t believe how hard it is for people to be simple, how much they fear being simple. They worry that if they’re simple, people will think they’re simpleminded. In reality, of course, it’s just the reverse. Clear, tough-minded people are the most simple.
+ - The hero is the one with ideas.
+ - Ideally, the star will be replaced within eight hours. This sends the message that no single individual is bigger than the company.
+ - People aren’t the same. Business is, in my opinion, all about the team that fields the best players. It’s not about an idea. An idea goes away. Somebody catches up with it. It’s not about a widget.
+ - I’m not perfect, but if there are any points given for caring about people with every fiber of your being and giving life all you’ve got every day, then I suppose I have a shot.
+ - The best way to support dreams and stretch is to set apart small ideas with big potential, then give people positive role models and the resources to turn small projects into big businesses.
+ - Give me a highly successful unionized industry.
+ - No one is guaranteed a job in this.
+ - Creative artists have great passion.
+ - Any jerk can have short-term earnings. You squeeze, squeeze, squeeze, and the company sinks five years later.
+ - Genuine leadership comes from the quality of your vision and your ability to spark others to extraordinary performance.
+ - If you’ve got a company that has a mentality inside that is filled with searching for a better idea every day, not just as a slogan but as a real concept, you will have innovation around you all the time.
+ - What Sam Walton did was to go into one of the most mature industries of all and find a way to make it grow, grow, grow, double-digit, month after month, year after year. He did it by innovation, customer focus, and above all, speed.
+ - As leaders, we owe it to every employee to let them know where they stand in the organization.
+ - If you have a reputation as a big, stiff bureaucracy, you’re stuck.
+ - Change has no constituency and a perceived revolution has even less.
+ - In any bad situation you can not let yourself be a victim.
+ - We’ve only been wealthy in this country for 70 years. Who said we ought to have all this? Is it ordained?
+ - In the future, those who are not coaches will not be promoted.
+ - Globalization has taken a hit in that there is some sand in the gears because most of us have supply chains that are all over the world that we’ve had to lengthen.
+ - If work is just going in every day and getting a check, it’s an ugly life. When you can make work a meaningful purpose, you’ve hit the jackpot for people.
+ - First and most obvious, bring out the three old warhorses of competition – cost, quality, and service – and drive them to new levels, making every person in the organization see them for what they are, a matter of survival.
+ - If you don’t have public hangings for bad culture in a company, if you don’t take people out and let them say, they went home to spend more time with the family. It’s crazy.
+ - All of management is about self-confidence.
+ - If you’re a leader and you’re the smartest guy in the world – in the room, you’ve got real problems.
+ - The Internet is the Viagra of big business.
+ - What the Commission is seeking cuts the heart out of the strategic rationale of our deal.
+ - I actually think that the economy has got some positives. It’s got the market. It’s got consumer confidence and it’s got banks throwing – I mean central bankers throwing money at it around the world.
+ - Does coaching work? Yes. Good coaches provide a truly important service. They tell you the truth when no one else will.
+ - What business could be mature when you have economies with more than 2 billion people in India, China and Southeast Asia?
+ - You have no right to be a leader if someone who works for you doesn’t know where they stand.
+ - There is no straight line to a dream.
+ - A strategy is something like, an innovative new product; globalization, taking your products around the world; be the low-cost producer. A strategy is something you can touch; you can motivate people with; be number one and number two in every business. You can energize people around the message.
+ - A company has only so much money and managerial time. Winning leaders invest where the payback is the highest. They cut their losses everywhere else.
+ - Some people have better ideas than others; some are smarter or more experienced or more creative. But everyone should be heard and respected.
+ - So every time you think about your work-life balance issue, remember what your boss is thinking about – and that’s winning. Your needs may get heard – and even successfully resolved – but not if the boss’s needs aren’t met as well.
+ - GE’s businesses turned in a terrific first quarter. Our products and services are being well received in unusually robust global markets.
+ - Out-innovating them is the way to beat China. And to do everything that we do in this country to support innovative policy, that drives innovation and new products and more jobs and creates jobs. You can’t – you can’t put a wall up around here. We tried that in the ’30s. It didn’t work.
+ - I don’t think environmentalists have the slightest reason to be concerned about globalization because every time you move a plant to a new place you upgrade the neighborhood. You put in global standards. You put in modern plants. And all the plants around it get improved.
+ - As a leader, your job is to energize people around the mission and vision you’ve articulated.
+ - The binders, the charts, the grids may seem formidable, but the meetings themselves are built around informality, trust, emotion and humor.
+ - I think the move by Mr. Greenspan was welcomed by everyone here.
+ - The productivity now at universities is terrible. Tenure is a terrible idea. It keeps them around forever and they don’t have to work hard.
+ - The main social responsibility for a company is to win.
+ - The value decade is upon us. If you can’t sell a top-quality product at the world’s lowest price, you’re going to be out of the game.
+ - You are not a leader to win a popularity contest-you are a leader to lead.
+ - Real change agents comprise less than 10% of all business people.
+ - They were making a deal for a property that clearly was a property that we wanted to own, so we had to act, and act as quickly as we could, and make the offer more attractive.
+ - The idea flow from the human spirit is absolutely unlimited. All you have to do is tap into that well. I don’t like to use the word efficiency. It’s creativity. It’s a belief that every person counts.
+ - Business is a game, and as with all games, the team that puts the best people on the field and gets them playing together wins. It’s that simple.
+ - I’ve learned that mistakes can often be as good a teacher as success.
+ - One of the ways we’ll know that Work-Out has been successful is that my style of leadership will no longer be tolerated in this company.
+ - The record results for the third quarter once again demonstrate the ability of GE’s diverse mix of leading global businesses to deliver top-line growth, increased margins and strong cash generation.
+ - The 1980s will seem like a walk in the park when compared to new global challenges, where annual productivity increases of 6% may not be enough. A combination of software, brains, and running harder will be needed to bring that percentage up to 8% or 9%.
+ - Getting every employee’s mind into the game is a huge part of what a CEO job is all about. Taking everyone’s best ideas and transferring them to others is the secret. There’s nothing more important.
+ - You never know how diverse your career can be. I think it’s wonderful. My life has always been the next page, not the last page.
+ - The most important job you have is growing your people, giving them a chance to reach their dreams.
+ - When it’s time to let someone go, do it right. No surprises. No humiliation.
+ - Above all, good leaders are open. They go up, down, and around their organization to reach people. They don’t stick to the established channels. They’re informal. They’re straight with people. They make a religion out of being accessible. They never get bored telling their story.
+ - It’s the internet like the flu – it just spreads like crazy.
+ - The idea of let’s all share the pain equally, or let’s freeze salaries altogether – it’s ass-backwards. It’s absolutely ass-backwards.
+ - Good business leaders create a vision, articulate the vision, passionately own the vision, and relentlessly drive it to completion.
+ - Our behavior is driven by a fundamental core belief: the desire, and the ability, of an organization to continuously learn from any source, anywhere; and to rapidly convert this learning into action is its ultimate competitive advantage.
+ - That’s all managing is: just coming up with the right questions and getting the right answers.
+ - When the amount of change externally exceeds the amount of change internally, the end is in sight.
+ - Don’t take a job because your mother wants you to. Don’t be a victim. You own your decision.
+ - Getting candor right – with your reports, your peers, and your boss – is a skill that can make or break your career.
+ - Trust is enormously powerful in a corporation. People won’t do their best unless they believe they’ll be treated fairly. The only way I know how to create that kind of trust is by laying out your values and then walking the talk. You’ve got to do what you say you’ll do, consistently, over time.
+
+208 quotes

@@ -1,0 +1,34 @@
+ - I became a director just for the love of movies, because of the power of cinema.
+ - I believe in God, absolutely.
+ - My experience of test screenings is that you don’t know what kind of mood people are going to be in, and sometimes the studios accept what Joe Blo says – and this guy could just be a frustrated filmmaker, or not paying attention.
+ - You’ll see in the movie he constantly does that-he only drinks his tea a certain way, brings his own tea bags, the guy pours hot water, it’s like a consistency throughout the film, but he never breaks his habits. I mean, to a point, where he has to.
+ - Cinema Paradiso, because it reminds me of why I make movies, the magic of movies, the romance of movies.
+ - Bruce Willis. Pain in my ass, no problem about that. We just didn’t get along. We got along off camera, but shooting we just didn’t get along.
+ - Being a kid growing up with Kurosawa films and watching Sergio Leone movies just made me love what it could do to you, and how it could influence you – make you dream.
+ - We’re very good friends, we have a very honest relationship. He keeps me honest, I keep him honest. He’s an incredible actor and when you have an actor like Denzel action becomes drama.
+ - It’s a hard line to walk, man. Cause you know you want to make this movie, you want to make it dark and real, you want to show all this stuff but unfortunately you can’t always do that.
+ - I just think you can’t shut your life off to just, you know, one thing. You gotta be open-minded. Explore things. Feed your artist.
+ - One hundred percent, I mean, many of the Sergio Leone movies were with Clint Eastwood, and that’s what it is.
+ - If I’m going to see my mom, I’m going to church!
+ - You’ll see a consistent, like the tea, the tea bags you saw there-you’ll see a consistent-did you see the cafeteria? I mean the diner?
+ - I’ve become friends with Michael Mann and Oliver Stone; I’ve seen those guys work and that was great to see.
+ - If you see someone lying out knives and forks consistently, but then one day those knives and forks become weapons you’re not sure if he does that as a warrior, that’s just his thing.
+ - I only pay to take my son to the movies, because most of the time I only watch European movies, independent movies, or screen them privately. But I like to go to movies with my son because it’s still fun; it reminds me of why I make movies.
+ - I like the platform to show your art and everything that goes along with that. To show your voice and hopefully find films that are more politically driven, films that maybe inspire.
+ - It’s not worth it, it’s not about money, especially when you’re dealing with a culture. It should be about elevating the idea of what we are and who we are as people in the cinema, and that kind of stuff keeps dragging us back down.
+ - I’d seen too many shrines in South Central and thought it was worth asking where the first bullet came from that started all this violence.
+ - It’s a dumb question, because I don’t look at things as a black director, just as a director, so ask me as a director first and we can segue into the colour thing later.
+ - Sometimes violence in a very real way is much faster and more impactful because it feels real and you’re watching it happen and you’re watching your star do these things, so it’s not like he’s doing superhero moves.
+ - Some men don’t gel when it comes to work – you have different work ethics, different opinions, different points of views, different methods of filmmaking – and we didn’t gel.
+ - I started studying mythology, just on my own. Joseph Campbell, mysticism.
+ - I like the opportunity to make films.
+ - Well, we studied a lot of books and things like that. Denzel has a personal experience with it, not himself, that’s his business-I won’t get into that, but he knows a lot about it as well. So, we took some real life experiences that we both-I’ve been told that I have OCD.
+ - I’m a product of older filmmakers I guess, the past where you get to make movies and scenes are what they are.
+ - So it’s hard to be an artist and be true to the reality of the world you want to create and also make it entertaining and successful financially.
+ - I like making movies.
+ - What I learned is, don’t forget who you are, because that’s what’s going to make you a filmmaker.
+ - Well, I mean, the original is certainly the jump-off, it certainly is what it is, you know, I grew up around that era so I watched all those shows. The basic concept is there, it’s just a different movie. Totally different actors, different filmmakers, different script, but same concept.
+ - Even the Westerns that I grew up with, the Sergio Leone’s and all that, there was always a sort of anti-hero, a guy reluctant to shame even, to pick up the gun again because he wants to help other people, and he does, he uses his skills for that.
+ - In movies you get to do that. Sometimes with the vigilante justice movie he has to also tangle with police, which are traditional or security people. Is there going to be any of that in this?
+
+32 quotes

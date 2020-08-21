@@ -1,0 +1,194 @@
+ - Imam Hussain’s sacrifice is for all groups and communities, an example of the path of rightousness.
+ - Our work is the presentation of our capabilities.
+ - Conversation enriches the understanding, but solitude is the school of genius.
+ - I am indeed rich, since my income is superior to my expenses, and my expense is equal to my wishes.
+ - Revenge is profitable, gratitude is expensive.
+ - Religion is a mere question of geography.
+ - The winds and the waves are always on the side of the ablest navigators.
+ - Books are those faithful mirrors that reflect to our mind the minds of sages and heroes.
+ - The history of empires is the history of human misery.
+ - I never make the mistake of arguing with people for whose opinions I have no respect.
+ - Truth, naked, unblushing truth, the first virtue of all serious history, must be the sole recommendation of this personal narrative.
+ - It was Rome, on the fifteenth of October, 1764, as I sat musing amidst the ruins of the Capitol, while the barefooted friars were singing vespers in the Temple of Jupiter, that the idea of writing the decline and fall of the city first started to my mind.
+ - We improve ourselves by victories over ourselves. There must be contest, and we must win.
+ - I was never less alone than when by myself.
+ - History is indeed little more than the register of the crimes, follies, and misfortunes of mankind.
+ - The various modes of worship which prevailed in the Roman world were all considered by the people as equally true; by the philosopher as equally false; and by the magistrate as equally useful.
+ - A bloody and complete victory has sometimes yielded no more than the possession of the field and the loss of ten thousand men has sometimes been sufficient to destroy, in a single day, the work of ages.
+ - Language is the leading principle which unites or separates the tribes of mankind.
+ - An absolute monarch, who is rich without patrimony, may be charitable without merit; and Constantine too easily believed that he should purchase the favour of Heaven if he maintained the idle at the expense of the industrious, and distributed among the saints the wealth of the republic.
+ - There is more pleasure to building castles in the air than on the ground.
+ - In discussing Barbarism and Christianity I have actually been discussing the Fall of Rome.
+ - The first of earthly blessings, independence.
+ - Fanaticism obliterates the feelings of humanity.
+ - Every person has two educations, one which he receives from others, and one, more important, which he gives to himself.
+ - Hope, the best comfort of our imperfect condition, was not denied to the Roman slave; and if he had any opportunity of rendering himself either useful or agreeable, he might very naturally expect that the diligence and fidelity of a few years would be rewarded with the inestimable gift of freedom.
+ - Vicissitudes of fortune, which spares neither man nor the proudest of his works, which buries empires and cities in a common grave.
+ - Where error is irreparable, repentance is useless.
+ - Corruption, the most infallible symptom of constitutional liberty.
+ - A taste for books, which is still the pleasure and glory of my life.
+ - A nation ignorant of the equal benefits of liberty and law, must be awed by the flashes of arbitrary power: the cruelty of a despot will assume the character of justice; his profusion, of liberality; his obstinacy, of firmness.
+ - But the power of instruction is seldom of much efficacy, except in those happy dispositions where it is almost superfluous.
+ - A heart to resolve, a head to contrive, and a hand to execute.
+ - The books of jurisprudence were interesting to few, and entertaining to none: their value was connected with present use, and they sunk forever as soon as that use was superseded by the innovations of fashion, superior merit, or public authority.
+ - I have but one lamp by which my feet are guided, and that is the lamp of experience. I know no way of judging of the future but by the past.
+ - I have somewhere heard or read the frank confession of a Benedictine abbot: “My vow of poverty has given me a hundred thousand crowns a year; my vow of obedience has raised me to the rank of a sovereign prince.” – I forget the consequences of his vow of chastity.
+ - In the end, they wanted security more than they wanted freedom.
+ - As long as the same passions and interests subsist among mankind, the questions of war and peace, of justice and policy, which were debated in the councils of antiquity, will frequently present themselves as the subject of modern deliberation.
+ - The love of study, a passion which derives fresh vigor from enjoyment, supplies each day, each hour, with a perpetual source of independent and rational pleasure.
+ - War, in its fairest form, implies a perpetual violation of humanity and justice.
+ - We may therefore acquiesce in the pleasing conclusion, that every age of the world has increased, and still increases, the real wealth, the happiness, the knowledge, and perhaps the virtue, of the human race.
+ - If we are more affected by the ruin of a palace than by the conflagration of a cottage, our humanity must have formed a very erroneous estimate of the miseries of human life.
+ - The best and most important part of every man’s education is that which he gives himself.
+ - While the Romans languished under the ignominious tyranny of eunuchs and bishops, the praises of Julian were repeated with transport in every part of the empire, except in the palace of Constantius.
+ - The union of the Roman empire was dissolved; its genius was humbled in the dust; and armies of unknown barbarians, issuing from the frozen regions of the North, had established their victorious reign over the fairest provinces of Europe and Africa.
+ - A reformer should be exempt from the suspicion of interest, and he must possess the confidence and esteem of those whom he proposes to reclaim.
+ - In a distant age and climate, the tragic scene of the death of Hosein will awaken the sympathy of the coldest reader.
+ - Freedom is the first wish of our heart; freedom is the first blessing of nature; and unless we bind ourselves with voluntary chains of interest or passion, we advance in freedom as we advance in years.
+ - If a man were called to fix the period in the history of the world during which the condition of the human race was most happy and prosperous, he would, without hesitation, name that which elapsed from the death of Domitian to the accession of Commodus.
+ - The desire of perfection became the ruling passion of their soul; and it is well known, that while reason embraces a cold mediocrity, our passions hurry us, with rapid violence, over the space which lies between the most opposite extremes.
+ - The Gauls were endowed with all the advantages of art and nature; but as they wanted courage to defend them, they were justly condemned to obey, and even to flatter, the victorious Barbarians, by whose clemency they held their precarious fortunes and their lives.
+ - If this Punic war was carried on without any effusion of blood, it was owing much less to the moderation than to the weakness of the contending prelates.
+ - The division of the Roman world between the sons of Theodosius marks the final establishment of the empire of the East, which, from the reign of Arcadius to the taking of Constantinople by the Turks, subsisted one thousand and fifty-eight years in a state of premature and perpetual decay.
+ - My English text is chaste, and all licentious passages are left in the decent obscurity of a learned language.
+ - The most worthless of mankind are not afraid to condemn in others the same disorders which they allow in themselves; and can readily discover some nice difference in age, character, or station, to justify the partial distinction.
+ - Style is the image of character.
+ - The first and indispensable requisite of happiness is a clear conscience.
+ - The primitive Christians perpetually trod on mystic ground, and their minds were exercised by the habits of believing the most extraordinary events.
+ - Such events may be disbelieved or disregarded; but the charity of a bishop, Acacius of Amida, whose name might have dignified the saintly calendar, shall not be lost in oblivion.
+ - There is nothing perhaps more adverse to nature and reason than to hold in obedience remote countries and foreign nations, in opposition to their inclination and interest.
+ - Fear has been the original parent of superstition, and every new calamity urges trembling mortals to deprecate the wrath of their invisible enemies.
+ - The terror of the Roman arms added weight and dignity to the moderation of the emperors. They preserved the peace by a constant preparation for war.
+ - In old age the consolation of hope is reserved for the tenderness of parents, who commence a new life in their children, the faith of enthusiasts, who sing hallelujahs above the clouds; and the vanity of authors, who presume the immortality of their name and writings.
+ - Hope, the best comfort of our imperfect condition.
+ - Every man who rises above the common level has received two educations: the first from his teachers; the second, more personal and important, from himself.
+ - Flattery is a foolish suicide; she destroys herself with her own hands.
+ - Our sympathy is cold to the relation of distant misery.
+ - To a philosophic eye, the vices of the clergy are far less dangerous than their virtues.
+ - Whatever evils either reason or declamation have imputed to extensive empire, the power of Rome was attended with some beneficial consequences to mankind; and the same freedom of intercourse which extended the vices, diffused likewise the improvements of social life.
+ - If all the barbarian conquerors had been annihilated in the same hour, their total destruction would not have restored the empire of the West: and if Rome still survived, she survived the loss of freedom, of virtue, and of honour.
+ - The urgent consideration of the public safety may undoubtedly authorize the violation of every positive law. How far that or any other consideration may operate to dissolve the natural obligations of humanity and justice, is a doctrine of which I still desire to remain ignorant.
+ - But the sages of Greece and Rome turned aside from the awful spectacle, and, pursuing the ordinary occupations of life and study, appeared unconscious of any alterations in the moral of physical government of the world.
+ - The end comes when we no longer talk with ourselves. It is the end of genuine thinking and the beginning of the final loneliness.
+ - The separation of the Arabs from the rest of mankind has accustomed them to confound the ideas of stranger and enemy.
+ - Suspicious princes often promote the last of mankind, from a vain persuasion that those who have no dependence except on their favor will have no attachment except to the person of their benefactor.
+ - It is the common calamity of old age to lose whatever might have rendered it desirable...
+ - So natural to man is the practice of violence that our indulgence allows the slightest provocation, the most disputable right, as a sufficient ground of national hostility.
+ - Genius may anticipate the season of maturity; but in the education of a people, as in that of an individual, memory must be exercised, before the powers of reason and fancy can be expanded: nor may the artist hope to equal or surpass, till he has learned to imitate, the works of his predecessors.
+ - In the field of controversy I always pity the moderate party, who stand on the open middle ground exposed to the fire of both sides.
+ - The laws of probability, so true in general, so fallacious in particular.
+ - The Roman government appeared every day less formidable to its enemies, more odious and oppressive to its subjects.
+ - I darted a contemptuous look at the stately models of superstition.
+ - These idle disputants overlooked the invariable laws of nature, which have connected peace with innocence, plenty with industry, and safety with valour.
+ - As for this young Ali, one cannot but like him. A noble-minded creature, as he shows himself, now and always afterwards; full of affection, of fiery daring. Something chivalrous in him; brave as a lion; yet with a grace, a truth and affection worthy of Christian knighthood.
+ - A martial nobility and stubborn commons, possessed of arms, tenacious of property, and collected into constitutional assemblies form the only balance capable of preserving a free constitution against the enterprise of an aspiring prince.
+ - My early and invincible love of reading – I would not exchange for the treasures of India.
+ - Many a sober Christian would rather admit that a wafer is God than that God is a cruel and capricious tyrant.
+ - A Locrian, who proposed any new law, stood forth in the assembly of the people with a cord round his neck, and if the law was rejected, the innovator was instantly strangled.
+ - The love of freedom, so often invigorated and disgraced by private ambition, was reduced, among the licentious Franks, to the contempt of order, and the desire of impunity.
+ - But the human character, however it may be exalted or depressed by a temporary enthusiasm, will return by degrees to its proper and natural level, and will resume those passions that seem the most adapted to its present condition.
+ - The style of an author should be the image of his mind, but the choice and command of language is the fruit of exercise.
+ - Our ignorance is God; what we know is science.
+ - To an active mind, indolence is more painful than labor.
+ - It is the first care of a reformer to prevent any future reformation.
+ - Such, indeed, is the policy of civil war: severely to remember injuries, and to forget the most important services. Revenge is profitable, gratitude is expensive.
+ - It is impossible to reduce, or, at least, to hold a distant country against the wishes and efforts of its inhabitants.
+ - The mixture of Sarmatic and German blood had contributed to improve the features of the Alani, to whiten their swarthy complexions, and to tinge their hair with a yellowish cast, which is seldom found in the Tartar race.
+ - When Julian ascended the throne, he declared his impatience to embrace and reward the Syrian sophist, who had preserved, in a degenerate age, the Grecian purity of taste, of manners and of religion. The emperor’s prepossession was increased and justified by the discreet pride of his favourite.
+ - Passion, interest, or caprice, suggested daily motives for the dissolution of marriage; a word, a sign, a message, a letter, the mandate of a freedman, declared the separation; the most tender of human connections was degraded to a transient society of profit or pleasure.
+ - It has been sagaciously conjectured, that the artful legislator indulged the stubborn prejudices of his countrymen.
+ - History, which undertakes to record the transactions of the past, for the instruction of future ages, would ill deserve that honourable office if she condescended to plead the cause of tyrants, or to justify the maxims of persecution.
+ - A false modesty is the meanest species of pride.
+ - The author himself is the best judge of his own performance; none has so deeply meditated on the subject; none is so sincerely interested in the event.
+ - I sighed as a lover, I obeyed as a son.
+ - Boethius might have been styled happy, if that precarious epithet could be safely applied before the last term of the life of man.
+ - Of human life, the most glorious or humble prospects are alike and soon bounded by the sepulchre.
+ - And thus toleration produced not only mutual indulgence, but even religious concord. The superstition of the people was not embittered theological rancor.
+ - Where the subject lies so far beyond our reach, the difference between the highest and the lowest of human understandings may indeed be calculated as infinitely small; yet the degree of weakness may perhaps be measured by the degree of obstinacy and dogmatic confidence.
+ - A warlike nation like the Germans, without either cities, letters, arts, or money, found some compensation for this savage state in the enjoyment of liberty. Their poverty secured their freedom, since our desires and our possessions are the strongest fetters of despotism.
+ - Pleasure and guilt are synonymous terms in the language of the monks, and they discovered, by experience, that rigid fasts, and abstemious diet, are the most effectual preservatives against the impure desires of the flesh.
+ - Constantinople was the principal seat and fortress of Arianism; and, in a long interval of forty years, the faith of the princes and prelates who reigned in the capital of the East was rejected in the purer schools of Rome and Alexandria.
+ - Amiable weaknesses of human nature.
+ - The law of nature instructs most animals to cherish and educate their infant progeny. The law of reason inculcates to the human species the returns of filial piety.
+ - Augustus was sensible that mankind is governed by names; nor was he deceived in his expectation, that the senate and people would submit to slavery, provided they were respectfully assured that they still enjoyed their ancient freedom.
+ - Let us read with method, and propose to ourselves an end to which our studies may point. The use of reading is to aid us in thinking.
+ - The patient and active virtues of a soldier are insensibly nursed in the habits and discipline of a pastoral life.
+ - The ruin of Paganism, in the age of Theodosius, is perhaps the only example of the total extirpation of any ancient and popular superstition; and may therefore deserve to be considered, as a singular event in the history of the human mind.
+ - Antoninus diffused order and tranquility over the greatest part of the earth. His reign is marked by the rare advantage of furnishing very few materials for history; which is, indeed, little more than the register of the crimes, follies, and misfortunes of mankind.
+ - But the wisdom and authority of the legislator are seldom victorious in a contest with the vigilant dexterity of private interest.
+ - Whenever the offence inspires less horror than the punishment, the rigour of penal law is obliged to give way to the common feelings of mankind.
+ - Greek is a musical and prolific language, that gives a soul to the objects of sense, and a body to the abstractions of philosophy.
+ - Under a democratical government the citizens exercise the powers of sovereignty; and those powers will be first abused, and afterwards lost, if they are committed to an unwieldy multitude.
+ - Active valour may often be the present of nature; but such patient diligence can be the fruit only of habit and discipline.
+ - History should be to the political economist a wellspring of experience and wisdom.
+ - On the approach of spring, I withdraw without reluctance from the noisy and extensive scene of crowds without company, and dissipation without pleasure.
+ - A society in which marriage is encouraged and industry prevails soon repairs the accidental losses of pestilence and war.
+ - The voice of history is often little more than the organ of hatred or flattery.
+ - But the desire of obtaining the advantages, and of escaping the burdens, of political society, is a perpetual and inexhaustible source of discord.
+ - The revenge of a guilty woman is implacable.
+ - Philosophy, with the aid of experience, has at length banished the study of alchymy; and the present age, however desirous of riches, is content to seek them by the humbler means of commerce and industry.
+ - The courage of a soldier is found to be the cheapest and most common quality of human nature.
+ - The monastic studies have tended, for the most part, to darken, rather than to dispel, the cloud of superstition.
+ - The pains and pleasures of the body, howsoever important to ourselves, are an indelicate subject of conversation.
+ - Man has much more to fear from the passions of his fellow-creatures, than from the convulsions of the elements.
+ - At that time the archiepiscopal throne of Alexandria was filled by Theophilus, the perpetual enemy of peace and virtue; a bold, bad man, whose hands were alternately polluted with gold and with blood.
+ - It is seldom that minds long exercised in business have formed any habits of conversing with themselves, and in the loss of power they principally regret the want of occupation.
+ - The progress of despotism tends to disappoint its own purpose.
+ - The authority of Plato and Aristotle, of Zeno and Epicurus, still reigned in the schools; and their systems, transmitted with blind deference from one generation of disciples to another, precluded every generous attempt to exercise the powers, or enlarge the limits, of the human mind.
+ - The savage nations of the globe are the common enemies of civilized society; and we may inquire, with anxious curiosity, whether Europe is still threatened with a repetition of those calamities, which formerly oppressed the arms and institutions of Rome.
+ - The subject, however various and important, has already been so frequently, so ably, and so successfully discussed, that it is now grown familiar to the reader, and difficult to the writer.
+ - The awful mysteries of the Christian faith and worship were concealed from the eyes of strangers, and even of catechumens, with an affected secrecy, which served to excite their wonder and curiosity.
+ - It was no longer esteemed infamous for a Roman to survive his honor and independence.
+ - The land was then covered with morasses and forests, which spread to a boundless extent, whenever man has ceased to exercise his dominion over the earth.
+ - It has been calculated by the ablest politicians that no State, without being soon exhausted, can maintain above the hundredth part of its members in arms and idleness.
+ - The historian must have some conception of how men who are not historians behave.
+ - Every event, or appearance, or accident, which seems to deviate from the ordinary course of nature has been rashly ascribed to the immediate action of the Deity.
+ - There exists in human nature a strong propensity to depreciate the advantages, and to magnify the evils, of the present times.
+ - A nation of slaves is always prepared to applaud the clemency of their master who, in the abuse of absolute power, does not proceed to the last extremes of injustice and oppression.
+ - The Indian who fells the tree that he may gather the fruit, and the Arab who plunders the caravans of commerce are actuated by the same impulse of savage nature, and relinquish for momentary rapine the long and secure possession of the most important blessings.
+ - The possession and the enjoyment of property are the pledges which bind a civilised people to an improved country.
+ - The pathetic almost always consists in the detail of little events.
+ - The science of the laws is the slow growth of time and experience.
+ - The active cavalry of Scythia is always followed, in their most distant and rapid incursions, by an adequate number of spare horses, who may be occasionally used, either to redouble the speed, or to satisfy the hunger, of the barbarians. Many are the resources of courage and poverty.
+ - The fabric of a mighty state, which has been reared by the labours of successive ages, could not be overturned by the misfortune of a single day, if the fatal power of the imagination did not exaggerate the real measure of the calamity.
+ - It has always been my practice to cast a long paragraph in a single mould, to try it by my ear, to deposit it in my memory, but to suspend the action of the pen till I had given the last polish to my work.
+ - To the University of Oxford I acknowledge no obligation; and she will as cheerfully renounce me for a son, as I am willing to disclaim her for a mother. I spent fourteen months at Magdalen College: they proved the fourteen months the most idle and unprofitable of my whole life.
+ - Europe is secure from any future irruptions of Barbarians; since, before they can conquer, they must cease to be barbarous.
+ - When a public quarrel is envenomed by private injuries, a blow that is not mortal or decisive can be productive only of a short truce, which allows the unsuccessful combatant to sharpen his arms for a new encounter.
+ - A philosopher may deplore the eternal discords of the human race, but he will confess, that the desire of spoil is a more rational provocation than the vanity of conquest.
+ - Does there exist a single instance of a saint asserting that he himself possessed the gift of miracles?
+ - The active, insatiate principle of self-love can alone supply the arts of life and the wages of industry; and as soon as civil government and exclusive property have been introduced, they become necessary to the existence of the human race.
+ - Ignorant of the arts of luxury, the primitive Romans had improved the science of government and war.
+ - In populous cities, which are the seat of commerce and manufactures, the middle ranks of inhabitants, who derive their subsistence from the dexterity or labour of their hands, are commonly the most prolific, the most useful, and, in that sense, the most respectable part of the community.
+ - A state of skepticism and suspense may amuse a few inquisitive minds. But the practice of superstition is so congenial to the multitude that, if they are forcibly awakened, they still regret the loss of their pleasing vision.
+ - On the slightest touch the unsupported fabric of their pride and power fell to the ground. The expiring senate displayed a sudden lustre, blazed for a moment, and was extinguished for ever.
+ - The principles of a free constitution are irrecoverably lost, when the legislative power is nominated by the executive.
+ - The mathematics are distinguished by a particular privilege, that is, in the course of ages, they may always advance and can never recede.
+ - The sentiment of fear is nearly allied to that of hatred.
+ - The progress of manufactures and commerce insensibly collects a large multitude within the walls of a city: but these citizens are no longer soldiers; and the arts which adorn and improve the state of civil society, corrupt the habits of the military life.
+ - The Romans, who so coolly and so concisely mention the acts of justice which were exercised by the legions, reserve their compassion and their eloquence for their own sufferings, when the provinces were invaded and desolated by the arms of the successful Barbarians.
+ - To a lover of books the shops and sales in London present irresistible temptations.
+ - In the second century of the Christian era, the empire of Rome comprehended the fairest part of the earth, and the most civilized portion of mankind.
+ - The most distinguished merit of those two officers was their respective prowess, of the one in the combats of Bacchus, of the other in those of Venus.
+ - The gravest of the ecclesiastical historians, Eusebius himself, indirectly confesses that he has related whatever might redound to the glory, and that he has suppressed all that could tend to the disgrace, of religion.
+ - The laws of a nation form the most instructive portion of its history.
+ - A jurisdiction thus vague and arbitrary was exposed to the most dangerous abuse: the substance, as well as the form, of justice were often sacrificed to the prejudices of virtue, the bias of laudable affection, and the grosser seductions of interest or resentment.
+ - Extreme distress, which unites the virtue of a free people, imbitters the factions of a declining monarchy.
+ - Instructed by history and reflection, Julian was persuaded that, if the diseases of the body may sometimes be cured by salutary violence, neither steel nor fire can eradicate the erroneous opinions of the mind.
+ - The frequent repetition of miracles serves to provoke, where it does not subdue, the reason of mankind...
+ - The Gauls derided the hairy and gigantic savages of the North; their rustic manners, dissonant joy, voracious appetite, and their horrid appearance, equally disgusting to the sight and to the smell.
+ - According to the law of custom, and perhaps of reason, foreign travel completes the education of an English gentleman.
+ - Since the primitive times, the wealth of the popes was exposed to envy, their powers to opposition, and their persons to violence.
+ - Unprovided with original learning, unformed in the habits of thinking, unskilled in the arts of composition, I resolved to write a book.
+ - The fierce and partial writers of the times, ascribing all virtue to themselves, and imputing all guilt to their adversaries, have painted the battle of the angels and the demons.
+ - The ascent to greatness, however steep and dangerous, may entertain an active spirit with the consciousness and exercise of its own power: but the possession of a throne could never yet afford a lasting satisfaction to an ambitious mind.
+ - Their poverty secured their freedom, since our desires and our possessions are the strongest fetters of despotism.
+ - Whenever the spirit of fanaticism, at once so credulous and so crafty, has insinuated itself into a noble mind, it insensibly corrodes the vital principles of virtue and veracity.
+ - Of the various forms of government which have prevailed in the world, an hereditary monarchy seems to present the fairest scope for ridicule.
+ - In everyage and country, the wiser, or at least the stronger, ofthetwosexes, hasusurped thepowers ofthe state, and confined the other to the cares and pleasures of domestic life.
+ - Majorian presents the welcome discovery of a great and heroic character, such as sometimes arise, in a degenerate age, to vindicate the honor of the human species.
+ - It was among the ruins of the capitol that I first conceived the idea of a work which has amused and exercised nearly twenty years of my life.
+ - As long as mankind shall continue to bestow more liberal applause on their destroyers than on their benefactors, the thirst of military glory will ever be the vice of the most exalted characters.
+ - The revolution of ages may bring round the same calamities; but ages may revolve without producing a Tacitus to describe them.
+
+192 quotes

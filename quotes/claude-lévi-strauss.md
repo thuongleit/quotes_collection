@@ -1,0 +1,34 @@
+ - The scientist is not a person who gives the right answers, he’s one who asks the right questions.
+ - I hate travelling and explorers.
+ - I am the place in which something has occurred.
+ - Since music is the only language with the contradictory attributes of being intelligible and untranslatable, the musical creator is a being comparable to the gods, and music itself the supreme mystery of the science of man.
+ - Language is a form of human reason, which has its internal logic of which man knows nothing.
+ - Objects are what matter. Only they carry the evidence that throughout the centuries something really happened among human beings.
+ - I have never known so much naive conviction allied to greater intellectual poverty.
+ - The anthropologist respects history, but he does not accord it a special value. He conceives it as a study complementary to his own: one of them unfurls the range of human societies in time, the other in space.
+ - Understanding arises from reducing one type of reality into another.
+ - Not all poisonous juices are burning or bitter nor is everything which is burning and bitter poisonous.
+ - Our system is the height of absurdity, since we treat the culprit both as a child, so as to have the right to punish him, and as an adult, in order to deny him consolation.
+ - There is today a frightful disappearance of living species, be they plants or animals. And it’s clear that the density of human beings has become so great, if I can say so, that they have begun to poison themselves. And the world in which I am finishing my existence is no longer a world that I like.
+ - With all its technical sophistication, the photographic camera remains a coarse device compared to the human hand and brain.
+ - There is one fact that can be established. The only phenomenon which, always and in all parts of the world, seems to be linked with the appearance of writing.
+ - In the case of European towns, the passing of centuries provides an enhancement; in the case of American towns, the passing of years brings degeneration. It is not simply that they have been newly built; they were built so as to be renewable as quickly as they were put up, that is, badly.
+ - The police are not entrusted with a mission which differentiates them from those they serve. Being unconcerned with ultimate purposes, they are inseparable from the persons and interests of their masters, and shine with their reflected glory.
+ - Animals are good to think with.
+ - The world began without man, and it will complete itself without him.
+ - The dogma of cultural relativism is challenged by the very people for whose moral benefit the anthropologists established it in the first place. The complaint the underdeveloped countries advance is not that they are being westernized, but that the westernization is proceeding too slowly.
+ - Scientific knowledge advances haltingly and is stimulated by contention and doubt.
+ - I think that a society cannot live without a certain number of irrational beliefs. They are protected from criticism and analysis because they are irrational.
+ - No contact with savage Indian tribes has ever daunted me more than the morning I spent with an old lady swathed in woolies who compared herself to a rotten herring encased in a block of ice.
+ - Just as the individual is not alone in the group, nor anyone in society alone among the others, so man is not alone in the universe.
+ - How can my old photographs fail to create in me a feeling of emptiness and sorrow? They make me acutely aware that this second deprivation will be final this time...
+ - These facts make the creator of music a being like the gods, and make music itself the supreme mystery of human knowledge.
+ - Anthropology found its Galileo in Rivers, its Newton in Mauss.
+ - Teaching and research are not to be confused with training for a profession. Their greatness and their misfortune is that they are a refuge or a mission.
+ - Nor must we forget that in science there are no final truths.
+ - All the essentials of humanity’s artistic treasures can be found in New York.
+ - The image a society evolves of the relationship between the living and the dead is, in the final analysis, an attempt, on the level of religious thought, to conceal, embellish or justify the actual relationships which prevail among the living.
+ - Natural man did not precede society, nor is he outside it.
+ - I can’t help thinking that science would be more appealing if it had no practical use.
+
+32 quotes

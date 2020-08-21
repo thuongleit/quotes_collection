@@ -1,0 +1,142 @@
+ - You need nothing to be happy – you need something to be sad.
+ - Feelings are just visitors, let them come and go.
+ - Mind is there, in front of you. Don’t log in.
+ - Your mantra is thank you. Just keep saying thank you. Don’t explain. Don’t complain. Just say thank you. Say thank you to existence.
+ - The greatest step towards a life of happiness and simplicity is to let go. Trust in the power that is already taking care of you spontaneously without effort.
+ - If I could give you only one advice, I would say: Don’t identify with anything. Be completely empty – no one. Be no-body and see if you lose anything but delusion.
+ - Don’t remind the world that it is sick and troubled. Remind it that it is beautiful and free.
+ - Everything is just now. Your existence is just now. Just timeless Now. All the rest is just a dream due to conditioning and memory.
+ - Don’t be too quick to interpret the moment. Just keep quiet. My encouragement would always be: never think anything is against you, everything is blessing. Why should it be different? Just be quiet. Let it all work itself out.
+ - Leave your existence to existence, stop caring for yourself so much and let the universe care for you; it is the best mother.
+ - Who reminds you to breathe and to beat your heart? Something is there, taking care...
+ - When you can bear your own silence, you are free.
+ - Something brought you here. Trust that it will satisfy its own intention to take you Home.
+ - Pay attention to that which sees the mind.
+ - When you drop all your ideas, fantasies and projections about who you are and what freedom is and remain completely empty, this is freedom.
+ - Questions appear real for as long as you consider yourself to be a person. When you realize you are the impersonal presence, all questions vanish.
+ - The mind is like the wind. You’re trying to stop the wind, dressed as a kite. How are you going to do it?
+ - Don’t belong to anything. Don’t belong to anyone. Just Be. Feel your Being first and foremost, and don’t compare or compete. Just Be your Being.
+ - Your urge to control life controls you.
+ - Attention pays attention to a lot of things, but when attention pays attention to attention, then there is a stillness, and that stillness introduces you to your Self.
+ - The place you are looking for is the place from which you are looking.
+ - You already are, the peace you are looking for. Be still and know that.
+ - To change the world is not your mission. To change yourself is not your duty. To awaken to your true nature is your opportunity.
+ - All experiences come and go. What witnesses experiencing itself?
+ - When you know you know nothing, an air of openness and humility prevails. Then real understanding enters the mind.
+ - Your heart is the light of this world. Don’t cover it with your mind.
+ - Learn to leave things. If you don’t have an interest in something, you don’t need even to transcend it!
+ - Stop and sink into this timeless moment!
+ - The final bridge to cross is to let go of the mind-created ‘spiritual’ self. Burn that bridge behind you. Stay empty of self-image and cease looking back. Remain in the neutrality of being. That’s it!
+ - If you could look inside the Heart of any and every single human being, you would fall in love with them completely. If you see the inside as it really Is and not as your mind projects it to be, you would be so purely in love with the whole thing.
+ - If you are curious, you will learn. If you are desperate, you will discover.
+ - When you have no intention then you have no tension! Be flexible.
+ - Attempting to understand consciousness with your mind, is like trying to illuminate the sun with a candle...
+ - Let it be whatever it will be. Give up trying to manipulate. This is Freedom.
+ - If you wish to find Love, don’t look for the object of love but rather for the source of love. There you will find the Beloved.
+ - If you seek approval from others in this world, you will not know happiness.
+ - It is the conditioned mind that says, ‘I’m lost.’ Let mind be lost. Lose your mind. Lose your mind inside your heart.
+ - Don’t try and save yourself. The self that is trying to be saved is not you.
+ - There is no need to believe or disbelieve your thoughts – just don’t enter anything. They don’t distract you – you get distracted. Nothing exists in itself as a distraction – it is you who get distracted. Why?
+ - In the spiritual journey, you cannot be a wine taster, you have to become a drunk.
+ - Ego is a ghost who is terrified of dying.
+ - Let the mind come as it wants; just you don’t go with it. The greatest salesman in the world cannot sell you if you don’t buy.
+ - Face your fears and stop allowing the mind to hold you captive.
+ - Whatever comes, don’t push it away. When it goes, do not grieve.
+ - Observe and gradually you will come to see that all existence is occurring in empty awareness.
+ - Our illness is often our healing.
+ - Wanting something to make you happy is a sure way to be miserable.
+ - Out of the formless the forms appear.
+ - Nothing belongs to you or me. Nothing belongs. Everything, everything, everything simply IS.
+ - Mind and body have taken the journey, but the real home place is your own heart. It is infinite and so wherever you go, you are always Home.
+ - Giving energy to the mind, is like giving your neighbour a gun to shoot you with.
+ - Ignoring the mind is a beautiful sadhana. This is what many of the sages did. They ignored the mind out of existence. It loses its influence and its potency when it is ignored.
+ - Actually, being what you are is the simplest. What is difficult is to stop being what you are not.
+ - We are identifying with what is passing so fear comes. We are trying to make steady and permanent what is by nature impermanent.
+ - As far as the search for truth is concerned, 98% of our thinking is rubbish. The remaining 2% is garbage. Throw it all out and be empty! Truth cannot be caught by intellect alone – grace is needed.
+ - Day by day become more and more intimate with the inner stillness, joy and love which is the fragrance your own pure heart. Keep quiet.
+ - Don’t let your mind see through your eyes.
+ - The nature of illusion is that, when you see through it, it disappears.
+ - Forget about trying to stabilize the personal sense of Self. It is inherently unstable. See that the Self watches this.
+ - You are the unchanging manifesting as the changefulness.
+ - To be free from false identity and the hypnosis of conditioning is the biggest smile and joy you are going to feel in your life.
+ - If the ‘I am the doer’ idea goes, then only I Am remains and that ‘I Am’ has no religion.
+ - When you see what is not real, this laughter comes.
+ - When the mind adjusts to simply staying here, then that mind is not called mind any more. It’s just Self. It’s only ever Self.
+ - It is not about mind-watching; but rather recognizing That which watches the mind.
+ - The whole point of all these conversations is to leave your mind empty, not full. If you go away with learning, you have missed the opportunity.
+ - Something is aware of even the energy of confusion inside of you. There is no need to get unconfused. Leave it – it will pass.
+ - You are the knower of knowledge; you perceive perceiving. Come to this place, and see if any questions remain there within you.
+ - The ocean does not require that the waves are still to be more ocean-like.
+ - At the end of the day, you can have something in your head, something in your hand, or something in your heart. What are you choosing?
+ - The seeing is instant. The recognition can be instant but it will take some time to stabilize the mind into the heart completely.
+ - We are the space in which thoughts appear, play, and dissolve like clouds drifting in the infinite sky.
+ - When you are free from delusion, you can enjoy illusion. Enjoy the dream but enjoy the dream being free.
+ - Upon discovering truth, the natural love one has for oneself expands until it encompasses the whole world. This Love removes the ego.
+ - The ways of the mind are ancient, but you are timeless.
+ - You are here. You are not the one who will go and come. Let what you’re suffering from go and come, not you. You stay put.
+ - Beingness is just joy.
+ - You ask, ‘How to live my life?’ But with the question you are suffocating life itself, for life is spontaneity.
+ - Be willing that any feeling can visit your house.
+ - Everything is happening spontaneously, and the witnessing of it is also happening spontaneously. Everything is already happening in natural balance.
+ - That which is revealed when thoughts are absent is also here when thoughts are present.
+ - You want to be free as the ego, but you need to be free FROM the ego. To be free from it is to understand its unreality.
+ - The ship is going by a mighty engine, and you are busy rowing.
+ - Be in the spirit of Truth and any words you speak are in alignment with that spirit.
+ - Leave everything for one moment, in unending time and just be. This is the majesty of Being.
+ - Once you are present in the Energyfield of Self-discovery, it’s like you are a piece of ice in warm water. The warm water is the Self. The ice is the mind. The warm water is not fighting with the ice. The ice can not resist the melting. It is a natural and fatal attraction.
+ - Consciousness shakes off the littleness of being and finds the infinite space in which all things have a place. Be in your universality.
+ - Bless everything in existence with your entire being and immediately you recognise your inner state of completeness and harmony.
+ - There’s no one there to understand, there’s just understanding, which flourishes in you as peace, joy and contentment.
+ - Sometimes consciousness devises an obstacle in order to have the experience of transcending it.
+ - So vast is that Being that there’s enough room for every sensation to have its momentary play.
+ - How can you say you are peaceful if you are still identified with mind?
+ - Everything takes you back to yourself. When you get there, you know you never left. You only dreamt you left. You have never been other than that. You are only dreaming due to the idea of ‘I am the body.’
+ - When the raindrop touches the ocean, can it tell a story.
+ - Your self-image is as ephemeral as the play of light dancing on the surface of the water.
+ - Some people know they are dreaming when they are asleep. You must also know you are dreaming when you wake-up. When you know you are dreaming when you wake up, then you are really waking up.
+ - Mind can come. All this world is minds. But something is not concerned with the calculating, interpreting tendency of the mind.
+ - You wake up each day from the dream; but to be free, you must also wake up from the waking state.
+ - The game is not set. There are so many layers that it is being perceived on. As your own consciousness becomes more refined, the game changes.
+ - All the mind-streams eventually flow into the One ocean Beingness. There are many pathways for the mind; there are no paths for the Heart, for the Heart is infinite and fills everything.
+ - The Light of one human being who discovers the Truth has been lighting human existence for thousands of years. Such is the power of a human being who realizes the Truth of who they are.
+ - You are the light of consciousness and also the witness of this light. You are pure awareness.
+ - There are no garments. There’s no undressing now. There’s nothing at all.
+ - Satsang is the invitation to step into the fire of self-discovery. This fire will not burn you, it will burn only what you are not.
+ - No thought has any power. You have power. And when you identify and believe in the thought you give power to the thought.
+ - All the ups and downs are grace in different wrappings, sent to refine consciousness. Say thanks to them all.
+ - If you do not trust life to unfold, the mind takes over and it becomes a game of strategy, motivated by anxiety. This mistrust is unfair. Life has given us so much, and yet we do not trust it.
+ - You are the Master, the mind is your servant. That is the correct relationship.
+ - I don’t have to be anything at all. I don’t even have to be myself, because there is no such thing as not being myself. I am inescapably myself.
+ - Life cannot be against you, for you are Life itself. Life can only seem to go against the ego’s projections, which are rarely the truth.
+ - There is a mystery within all beings bursting to reveal itself, in the ones who become quiet enough to discover it. In this discovery a benevolent force shines spontaneously from your presence towards all beings, and this light cannot help but illuminate the world.
+ - Feelings, by themselves, do not create problems. It is rather the tendency to interpret and analyze them. When out of habit you believe those interpretations, it is there that the suffering begins.
+ - Just as you wash your hands before eating, clear your mind before engaging with the world.
+ - Marinate in your own being, grow in your wisdom, mature in understanding, be firm in your conviction, be strong in your Self.
+ - When you are free, all who come in contact with you will be blessed. Some may run away, but still they run away blessed.
+ - The simplest aspect of self-enquiry is to just hold onto the sense I AM, the sense of Being. Keep the sense of “I” or “I AM” by itself. Everyone can do this exercise – it brings immediate results.
+ - God can never be close. God can never be close because it would mean that there is some place where God is not. God is infinite. We cannot exist outside of the infinite. Therefore, God is our Reality.
+ - The world is full of Buddhas but they’re sleeping.
+ - Attempting to identify with the source is an idea. You are already that.
+ - When one is genuinely ready, Truth finds a way to introduce itself inside the heart and ends the feeling of separation.
+ - The greatest healing would be to wake up from what we are not.
+ - Throw everything away, forget about it all!
+ - Let every thought come and hug you, but you don’t hug anything. Then, gradually, the noise will start to back off.
+ - The way of the mind is to study many things; the way of the Beingness is to focus on one thing...
+ - You are the harmony within which all things move. They are just illusion.
+ - You are the somewhere you are trying to get to.
+ - Stay faithful to your own discovery, leave the rest and life will take care of it.
+ - Satsang is here to wash off the minds face and to reveal the face of God.
+ - You are learning too much, remembering too much, trying to hard relax a little bit, give life a chance to flow its own way, unassisted by your mind and effort. Stop directing the river’s flow!
+ - For those whose heart and whose attention is immersed in the truth, they don’t need to have to worry.
+ - Consciousness is the greatest movie-maker in the whole world.
+ - You have been an apprentice long enough; it is now time to shed your protective skin. Trust!
+ - Blessings upon your mind and heart. Let openness, trust and love be your first response. This is the secret to everlasting joy, peace and contentment.
+ - All you need to do is recognize your true position as the witness. You only have to do this for some time, until the spell is broken. Even after the spell is broken these mental tendencies may arise, but without any power, just like you can see the moon in the daylight.
+ - Trust your Heart. Value its intuition. Choose to let go of fear, and to open to the true and you will awaken to the freedom, clarity and joy of Being.
+ - You are not merely the body; you are 100% Pure Being. But you must find this out for yourself. It must become your own discovery, happening in your innermost being.
+ - Self-Enquiry is not asking you to believe or to trust – it is putting a mirror in front of you and asking you to look. Enquiry is suited to many people in the West, because we are more mental. And it is very direct. So unsparing is its look that nothing can escape.
+ - You cannot be anything that you point to.
+ - Mainly we obsess on fixing or pacifying the mind. I simply ask you to observe it from a place of neutrality.
+ - Blessed is the mind that jumps over and beyond its own conditioning and lands again into its natural state of unmoving awareness.
+
+140 quotes

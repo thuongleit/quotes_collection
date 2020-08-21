@@ -1,0 +1,346 @@
+ - Don’t Panic.
+ - I love deadlines. I love the whooshing noise they make as they go by.
+ - Reality is frequently inaccurate.
+ - I may not have gone where I intended to go, but I think I have ended up where I needed to be.
+ - In the beginning the Universe was created. This has made a lot of people very angry and been widely regarded as a bad move.
+ - Time is an illusion. Lunchtime doubly so.
+ - A common mistake that people make when trying to design something completely foolproof is to underestimate the ingenuity of complete fools.
+ - You live and learn. At any rate, you live.
+ - The fact that we live at the bottom of a deep gravity well, on the surface of a gas covered planet going around a nuclear fireball 90 million miles away and think this to be normal is obviously some indication of how skewed our perspective tends to be.
+ - So long, and thanks for all the fish.
+ - Nothing travels faster than the speed of light, with the possible exception of bad news, which obeys its own special laws.
+ - There is no point in using the word 'impossible' to describe something that has clearly happened.
+ - All opinions are not equal. Some are a very great deal more robust, sophisticated and well supported in logic and argument than others.
+ - Human beings, who are almost unique in having the ability to learn from the experience of others, are also remarkable for their apparent disinclination to do so.
+ - Space is big. You just won’t believe how vastly, hugely, mind-bogglingly big it is. I mean, you may think it’s a long way down the road to the chemist’s, but that’s just peanuts to space.
+ - A life that is burdened with expectations is a heavy life. Its fruit is sorrow and disappointment.
+ - It can be very dangerous to see things from somebody else's point of view without the proper training.
+ - All you really need to know for the moment is that the universe is a lot more complicated than you might think, even if you start from a position of thinking it's pretty damn complicated in the first place.
+ - Life is wasted on the living.
+ - The quality of any advice anybody has to offer has to be judged against the quality of life they actually lead.
+ - 42 is a nice number that you can take home and introduce to your family.
+ - Beethoven tells you what it's like to be Beethoven and Mozart tells you what it's like to be human. Bach tells you what it's like to be the universe.
+ - We can't win against obsession. They care, we don't. They win.
+ - Don't believe anything you read on the net. Except this. Well, including this, I suppose.
+ - To give real service you must add something which cannot be bought or measured with money, and that is sincerity and integrity.
+ - I’d far rather be happy than right any day.
+ - There is a theory which states that if ever anyone discovers exactly what the Universe is for and why it is here, it will instantly disappear and be replaced by something even more bizarre and inexplicable. There is another theory, which states that this has already happened.
+ - I refuse to answer that question on the grounds that I don’t know the answer.
+ - Perhaps I'm old and tired, but I always think that the chances of finding out what really is going on are so absurdly remote that the only thing to do is to say hang the sense of it and just keep yourself occupied.
+ - In order to fly, all one must do is simply miss the ground.
+ - Earth: mostly harmless.
+ - Humans think they are smarter than dolphins because we build cars and buildings and start wars etc., and all that dolphins do is swim in the water, eat fish and play around. Dolphins believe that they are smarter for exactly the same reasons.
+ - It’s not the fall that kills you; it’s the sudden stop at the end.
+ - The single raindrop never feels responsible for the flood.
+ - If you really want to understand something, the best way is to try and explain it to someone else.
+ - We are stuck with technology when what we really want is just stuff that works.
+ - I think the problem, to be quite honest with you, is that you’ve never actually known what the question is.
+ - Solutions nearly always come from the direction you least expect, which means there’s no point trying to look in that direction because it won’t be coming from there.
+ - A cup of tea would restore my normality.
+ - The difference between us and a computer is that, the computer is blindingly stupid, but it is capable of being stupid many, many million times a second.
+ - Let’s think the unthinkable, let’s do the undoable. Let us prepare to grapple with the ineffable itself, and see if we may not eff it after all.
+ - Funny, how just when you think life can’t possibly get any worse it suddenly does.
+ - This must be Thursday. I never could get the hang of Thursdays.
+ - Don’t you understand that we need to be childish in order to understand? Only a child sees things with perfect clarity, because it hasn’t developed all those filters which prevent us from seeing things that we don’t expect to see.
+ - Would it save you a lot of time if I just gave up and went mad now?
+ - If it looks like a duck, and quacks like a duck, we have at least to consider the possibility that we have a small aquatic bird of the family anatidae on our hands.
+ - If there’s anything more important than my ego around, I want it caught and shot now.
+ - Flying is learning how to throw yourself at the ground and miss.
+ - We are not an endangered species ourselves yet, but this is not for lack of trying.
+ - You can’t dodge your responsibilities by saying they don’t exist!
+ - Sherlock Holmes observed that once you have eliminated the impossible then whatever remains, however improbable, must be the answer. I, however, do not like to eliminate the impossible.
+ - Everything you see or hear or experience in any way at all is specific to you. You create a universe by perceiving it, so everything in the universe you perceive is specific to you.
+ - He attacked everything in life with a mix of extraordinary genius and naive incompetence, and it was often difficult to tell which was which.
+ - Time travel, by its very nature, was invented in all periods of history simultaneously.
+ - We are now cruising at a level of two to the power of twenty-five thousand to one against and falling, and we will be restoring normality just as soon as we are sure what is normal anyway.
+ - Anything invented after you’re thirty-five is against the natural order of things.
+ - I only know as much about myself as my mind can work out under its current conditions. And its current conditions are not good.
+ - The ships hung in the sky in much the same way that bricks don’t.
+ - We all like to congregate at boundary conditions. Where land meets water. Where earth meets air. Where bodies meet mind. Where space meets time. We like to be on one side, and look at the other.
+ - Who is this god person anyway?
+ - Democracy is all about not electing the wrong man-eating lizard.
+ - For a moment he felt good about this. A moment or two later he felt bad about feeling good about it. Then he felt good about feeling bad about feeling good about it and satisfied, drove on into the night.
+ - We demand rigidly defined areas of doubt and uncertainty!
+ - There are some oddities in the perspective with which we see the world.
+ - How do you know you’re having fun if there’s no one watching you have it?
+ - And so the Universe ended.
+ - How many roads must a man walk down?
+ - There are two things you should remember when dealing with parallel universes. One, they’re not really parallel, and two, they’re not really universes.
+ - Space is unimaginably big.
+ - Why are people born? Why do they die? Why do they want to spend so much of the intervening time wearing digital watches?
+ - Capital Letters Were Always The Best Way Of Dealing With Things You Didn’t Have A Good Answer To.
+ - The mere thought hadn’t even begun to speculate about the merest possibility of crossing my mind.
+ - The idea was fantastically, wildly improbable. But like most fantastically, wildly improbable ideas it was at least as worthy of consideration as a more mundane one to which the facts had been strenuously bent to fit.
+ - There was a point to this story, but it has temporarily escaped the chronicler’s mind.
+ - Even a manically depressed robot is better to talk to than nobody.
+ - I tend to get very suspicious of anything that thinks it’s art while it’s being created.
+ - Most of the time spent wrestling with technologies that don’t quite work yet is just not worth it for end users, however much fun it is for nerds.
+ - It is a rare mind indeed that can render the hitherto non-existent blindingly obvious. The cry ‘I could have thought of that’ is a very popular and misleading one, for the fact is that they didn’t, and a very significant and revealing fact it is too.
+ - She had what it took: great hair, a profound understanding of strategic lip gloss, the intelligence to understand the world and a tiny secret interior deadness which meant she didn’t care.
+ - You come to me for advice, but you can’t cope with anything you don’t recognize. Hmmm. So we’ll have to tell you something you already know but make it sound like news, eh Well, business as usual, I suppose.
+ - I find that writing is a constant battle with exactly the same problems you’ve always had.
+ - Zaphod felt he was teetering on the edge of madness and wondered if he shouldn’t just jump over and have done with it.
+ - The difficulty with this conversation is that it’s very different from most of the ones I’ve had of late. Which, as I explained, have mostly been with trees.
+ - Six pints of bitter, said Ford Prefect. And quickly please, the world’s about to end.
+ - I have terrible periods of lack of confidence. I just don’t believe I can do it and no evidence to the contrary will sway me from that view.
+ - It all sounds rather naive and sentimental to be talking about children laughing and dancing and singing together when we all know perfectly well that what children do in real life is snarl and take drugs.
+ - It is a mistake to think you can solve any major problems just with potatoes.
+ - Dennis Hutch had stepped up into the top seat when its founder had died of a lethal overdose of brick wall, taken while under the influence of a Ferrari and a bottle of tequila.
+ - Would you like me to go and stick my head in a bucket of water?
+ - Rather than arriving five hours late and flustered, it would be better all around if he were to arrive five hours and a few extra minutes late, but triumphantly in command.
+ - The Macintosh may only have 10% of the market, but it is clearly the top 10%.
+ - Lovers of print are simply confusing the plate for the food.
+ - But while nature has considerable resilience, there is a limit to how far that resilience can be stretched. No one knows how close to the limit we are getting. The darker it gets, the faster we’re driving.
+ - Beauty doesn’t have to be about anything. What’s a vase about? What’s a sunset or a flower about? What, for that matter, is Mozart’s Twenty-third Piano Concerto about?
+ - Having not said anything the first time, it was somehow even more difficult to broach the subject the second time around.
+ - Please call me Eddie if it will help you to relax.
+ - Isn’t it enough to see that a garden is beautiful without having to believe that there are fairies at the bottom of it too?
+ - I wrote an ad for Apple Computer: “Macintosh – We might not get everything right, but at least we knew the century was going to end”.
+ - Marvin started his ironical humming again. Zaphod hit him and he shut up.
+ - Bypasses are devices that allow some people to dash from point A to point B very fast while other people dash from point B to point A very fast.
+ - If you stick a Babel fish in your ear you can instantly understand anything said to you in any form of language.
+ - I think media are at their most interesting before anybody’s thought of calling them art, when people still think they’re just a load of junk.
+ - Let the past hold on to itself and let the present move forward into the future.
+ - Even the evil-looking bird perched on a rod in the bar had stopped screeching out the names and addresses of local contract killers, which was a service it provided for free.
+ - For seven and a half million years, Deep Thought computed and calculated, and in the end announced that the answer was in fact Forty-two – and so another, even bigger, computer had to be built to find out what the actual question was...
+ - The simple truth is that interstellar distances will not fit into the human imagination.
+ - Looking up into the night sky is looking into infinity – distance is incomprehensible and therefore meaningless.
+ - He felt that his whole life was some kind of dream and he sometimes wondered whose it was and whether they were enjoying it.
+ - To summarize the summary of the summary: people are a problem.
+ - For a moment, nothing happened. Then, after a second or so, nothing continued to happen.
+ - In an infinite Universe anything can happen.
+ - We have normality. I repeat, we have normality. Anything you still can’t cope with is therefore your own problem.
+ - Don’t spin your wheels and stress. Take a deep breath, center yourself and make a plan.
+ - You can tune a guitar, but you can’t tuna fish. Unless of course, you play bass.
+ - High on a rocky promontory sat an Electric Monk on a bored horse.
+ - Technology is a word that describes something that doesn’t work yet.
+ - One is never alone with a rubber duck.
+ - It takes an awful lot of time to not write a book.
+ - If you try and take a cat apart to see how it works, the first thing you have on your hands is a non-working cat.
+ - Space is really big-REALLY big.
+ - There is another theory that states: This has already happened...
+ - Unfortunately this Electric Monk had developed a fault, and had started to believe all kinds of things, more or less at random. It was even beginning to believe things they’d have difficulty believing in Salt Lake City.
+ - The impossible often has a kind of integrity which the merely improbable lacks.
+ - We’ll be saying a big hello to all intelligent lifeforms everywhere and to everyone else out there, the secret is to bang the rocks together, guys.
+ - The Hitch-Hiker’s Guide to the Galaxy also mentions alcohol. It says that the best drink in existence is the Pan Galactic Gargle Blaster, the effect of which is like having your brains smashed out with a slice of lemon wrapped round a large gold brick.
+ - In the old days, writers used to sit in front of a typewriter and stare out of the window. Nowadays, because of the marvels of convergent technology, the thing you type on and the window you stare out of are now the same thing.
+ - Meanwhile, the poor Babel fish, by effectively removing all barriers to communication between different races and cultures, has caused more and bloodier wars than anything else in the history of creation.
+ - Everybody has their moment of great opportunity in life. If you happen to miss the one you care about, then everything else becomes eerily easy.
+ - We live in strange times. We also live in strange places, each in a universe of our own. The people with whom we populate our universe are the shadows of whole other universes intersecting with our own.
+ - A beach house isn’t just real estate. It’s a state of mind.
+ - If we see you smoking we will assume you are on fire and take appropriate action.
+ - Arthur blinked at the screens and felt he was missing something important. Suddenly he realized what it was. “Is there any tea on this spaceship?” he asked.
+ - Now the world has gone to bed, Darkness won’t engulf my head, I can see by infrared, How I hate the night. Now I lay me down to sleep, Try to count electric sheep, Sweet dream wishes you can keep, How I hate the night. -Marvin.
+ - The major difference between a thing that might go wrong and a thing that cannot possibly go wrong is that when a thing that cannot possibly go wrong goes wrong it usually turns out to be impossible to get at and repair.
+ - Life! Don’t talk to me about life!
+ - A computer terminal is not some clunky old television with a typewriter in front of it. It is an interface where the mind and body can connect with the universe and move bits of it about.
+ - See first, think later, then test. But always see first. Otherwise you will only see what you were expecting. Most scientists forget that.
+ - I am a private detective. I am paid to be inquisitive and presumptuous.
+ - We are stuck with technology when all we really want is just stuff that works. How do you recognize something that is still technology? A good clue is if it comes with a manual.
+ - Every country is like a particular type of person. America is like a belligerent, adolescent boy, Canada is like an intelligent, 35 year old woman. Australia is like Jack Nicholson.
+ - I’d take the awe of understanding over the awe of ignorance any day.
+ - Assumptions are what we don’t know we are making.
+ - If life is going to exist in a Universe of this size, then the one thing it cannot afford to have is a sense of proportion.
+ - I’m spending a year dead for tax reasons.
+ - What god would be hanging around Terminal Two of Heathrow Airport trying to catch the 15:37 flight to Oslo?
+ - Alone of all the races on earth, they seem to be free from the ‘Grass is Greener on the other side of the fence’ syndrome, and roundly proclaim that Australia is, in fact, the other side of that fence.
+ - When people you greatly admire appear to be thinking deep thoughts, they probably are thinking about lunch.
+ - The complexities of cause and effect defy analysis.
+ - I don’t believe it. Prove it to me and I still won’t believe it.
+ - And then, just when you think that you have experienced all the wonders that this world has to offer, you round a peak and suddenly think you’re doing the whole thing over again, but this time on drugs.
+ - There’s always a moment when you start to fall out of love, whether it’s with a person or an idea or a cause, even if it’s one you only narrate to yourself years after the event: a tiny thing, a wrong word, a false note, which means that things can never be quite the same again.
+ - It is folly to say you know what is happening to other people. Only they know, if they exist. They have their own Universes of their own eyes and ears.
+ - And all dared to brave unknown terrors, to do mighty deeds, to boldly split infinitives that no man had split before – and thus was the Empire forged.
+ - You just come along with me and have a good time. The Galaxy’s a fun place. You’ll need to have this fish in your ear.
+ - Time is the worst place, so to speak, to get lost in, as Arthur Dent could testify, having been lost in both time and space a good deal. At least being lost in space kept you busy.
+ - It’s part of the shape of the Universe. I only have to talk to somebody and they begin to hate me.
+ - 2,000 years ago one man got nailed to a tree for saying how great it would be if everyone was nice to each other for a change.
+ - He stood up straight and looked the world squarely in the fields and hills. To add weight to his words he stuck the rabbit bone in his hair. He spread his arm out wide. “I will go mad!” he annouced.
+ - My doctor says that I have a malformed public-duty gland and a natural deficiency in moral fibre and that I am therefore excused from saving universes.
+ - And so the problem remained; lots of people were mean, and most were miserable, even the ones with digital watches.
+ - If there’s any real truth, it’s that the entire multidimensional infinity of the Universe is almost certainly being run by a bunch of maniacs.
+ - I always thought something was fundamentally wrong with the universe.
+ - The story goes that I first had the idea for The Hitchiker’s Guide to the Galaxy while lying drunk in a field in Innsbruck.
+ - First we thought the PC was a calculator. Then we found out how to turn numbers into letters with ASCII – and we thought it was a typewriter. Then we discovered graphics, and we thought it was a television. With the World Wide Web, we’ve realized it’s a brochure.
+ - If God allows proof that he exists he robs people of faith and without faith what is God? Nothing.
+ - Let us be dreamers, thinkers, speculative philosophers, or as our spouses would have it: Idiots.
+ - Yes, it is true that sometimes unusually intelligent and sensitive children can appear to be stupid. But stupid children can sometimes appear to be stupid as well. I think that’s something you might have to consider.
+ - Zaphod did not want to tangle with them and, deciding that just as discretion is the better part of valor, so was cowardice is the better part of discretion, he valiantly hid himself in a closet.
+ - I’m up to here with cool, okay? I am so amazingly cool you could keep a side of meat in me for a month. I am so hip I have difficulty seeing over my pelvis.
+ - Any man who can hitch the length and breadth of the galaxy, rough it, slum it, struggle against terrible odds, win through, and still know where his towel is is clearly a man to be reckoned with.
+ - The hardest assumption to challenge is the one you don’t even know you are making.
+ - Structural linguistics is a bitterly divided and unhappy profession, and a large number of its practitioners spend many nights drowning their sorrows in Ouisghian Zodahs.
+ - The fact is, I don’t know where my ideas come from. Nor does any writer. The only real answer is to drink way too much coffee and buy yourself a desk that doesn’t collapse when you beat your head against it.
+ - The reason why so many sects hang around airports looking for converts: they know that people there are at their most vulnerable and perplexed, and ready to accept any kind of guidance.
+ - A fragrant breeze wandered up from the quiet sea, trailed along the beach, and drifted back to the sea again, wondering where to go next. On a mad impulse it went up to the beach again. It drifted back to sea.
+ - I can see we’re in for a fabulous evening’s apocalypse.
+ - I am terribly proud of-I was born in Cambridge in 1952 and my initials are DNA!
+ - Some say that the universe is made so that when we are about to understand it it changes into something even more incomprehensible. And then there are those who say that this has already happened.
+ - Fifteen years was a long time to be stranded anywhere, particularly somewhere as mind-boggingly dull as Earth.
+ - I find the whole business of religion profoundly interesting. But it does mystify me that otherwise intelligent people take it seriously.
+ - There’s nothing worse than sitting down to write a novel and saying, “Well, okay, I’m going to do something of high artistic worth.” It’s funny.
+ - This planet has – or rather had – a problem, which was this: most of the people living on it were unhappy for pretty much all of the time.
+ - I am rarely happier than when spending entire day programming my computer to perform automatically a task that it would otherwise take me a good ten seconds to do by hand.
+ - I’m 48, which is a bit of a shock to me. Why only last year I thought I was a precocious young thing!
+ - I think the idea of art kills creativity.
+ - So you can imagine what happens when a mainland species gets introduced to an island. It would be like introducing Al Capone, Genghis Khan and Rupert Murdoch into the Isle of Wight – the locals wouldn’t stand a chance.
+ - Anyone who is capable of getting themselves made President should on no account be allowed to do the job.
+ - The longest and most destructive party ever held is now into its fourth generation and still no one shows any signs of leaving. Somebody did once look at his watch, but that was eleven years ago now, and there has been no follow up.
+ - Shee, you guys are so unhip it’s a wonder your bums don’t fall off.
+ - I teleported home last night with Ron and Sid and Meg Ron stole Meggy’s heart away and I got Sidney’s leg.
+ - In those days spirits were brave, the stakes were high, men were real men, women were real women and small furry creatures from Alpha Centauri were real small furry creatures from Alpha Centauri.
+ - Numbers written on restaurant bills within the confines of restaurants do not follow the same mathematical laws as numbers written on any other pieces of paper in any other parts of the Universe. This single fact took the scientific world by storm.
+ - Grown men, he told himself, in flat contradiction of centuries of accumulated evidence about the way grown men behave, do not behave like this.
+ - Being offended by things is the world’s big hobby at the moment. It’s almost taken over from wearing goatee beards.
+ - Nobody got murdered before lunch. But nobody. People weren’t up to it. You needed a good lunch to get both the blood-sugar and blood-lust levels up.
+ - What does it matter? Science has achieved some wonderful things, of course, but I’d far rather be happy than right any day.
+ - Far out in the uncharted backwaters of the unfashionable end of the western spiral arm of the Galaxy lies a small unregarded yellow pizza.
+ - Put away your worries, the world is a good and perfect place. It is in fact very easy.
+ - I think fish is nice, but then I think that rain is wet, so who am I to judge?
+ - The World Wide Web is the only thing I know of whose shortened form takes three times longer to say than what it’s short for.
+ - There was a terribly ghastly silence. There was a terribly ghastly noise. There was a terribly ghastly silence.
+ - The Hollywood process is like trying to grill a steak by having a succession of people coming into the room and breathing on it.
+ - Pardon me for breathing, which I never do any way so I don’t know why I bother to say it, oh God, I’m so depressed.
+ - Marvin was humming ironically because he hated humans so much.
+ - A mobile phone needs a manual in the way that a teacup doesn’t.
+ - Siamese Cats have a way of staring at you. Those who have walked in on the Queen cleaning her teeth will know the expression.
+ - Nobody likes a whistler, particularly not the divinity that shapes our ends.
+ - The bird that would soar above the plain of tradition and prejudice must have strong wings.
+ - The only person for whom the house was in any way special was Arthur Dent, and that was only because it happened to be the one he lived in.
+ - If they don’t keep exercising their lips, he thought, their brains start working.
+ - Ah, this is obviously some strange usage of the word ‘safe’ that I wasn’t previously aware of.
+ - Humans are not proud of their ancestors, and rarely invite them round to dinner.
+ - Here’s what the Encyclopedia Galactica has to say about alcohol. It says that alcohol is a colourless volatile liquid formed by the fermentation of sugars and also notes its intoxicating effect on certain carbon-based life forms.
+ - Driving a Porsche in London is like bringing a Ming vase to a football game.
+ - If somebody thinks they’re a hedgehog, presumably you just give ’em a mirror and a few pictures of hedgehogs and tell them to sort it out for themselves.
+ - One of the things Ford Prefect had always found hardest to understand about humans was their habit of continually stating and repeating the very very obvious.
+ - The dew has fallen with a particularly sickening thud this morning.
+ - The lights went out in his eyes for absolutely the very last time ever.
+ - In the center lay the exploded carcass of a lonely sperm whale that hadn’t lived long enough to be disappointed with its lot.
+ - One of the major problems encountered in time travel is not that of accidentally becoming your own father or mother. There is no problem involved in becoming your own father or mother that a broadminded and well-adjusted family can’t cope with.
+ - Words used carelessly, as if they did not matter in any serious way, often allowed otherwise well-guarded truths to seep through.
+ - Stotting is jumping upward with all four legs simultaneously. My advice: do not die until you’ve seen a large black poodle stotting in the snow.
+ - He was constantly reminded of how startlingly different a place the world was when viewed from a point only three feet to the left.
+ - There are some people you like immediately, some whom you think you might learn to like in the fullness of time, and some that you simply want to push away from you with a sharp stick.
+ - Ford Prefect suppressed a little giggle of evil satisfaction, realized that he had no reason to suppress it, and laughed out loud, a wicked laugh.
+ - He sniggered. He didn’t like to think of himself as the sort of person who giggled or sniggered, but he had to admit that he had been giggling and sniggering almost continuously for well over half an hour now.
+ - Very deep. You should send that in to the Reader’s Digest. They’ve got a page for people like you.
+ - He has personality problems beyond the dreams of analysts.
+ - Will you stop counting!? snarled Zaphod. ‘Yes,’ said Ford Prefect, ’in three minutes and thirty-five seconds.
+ - We notice things that don’t work. We don’t notice things that do. We notice computers, we don’t notice pennies. We notice e-book readers, we don’t notice books.
+ - Lord, lord, lord. Protect me from the consequences of the above prayer.
+ - So the hours are pretty good then?? he resumed. The Vogon stared down at him as sluggish thoughts moiled around in the murky depths. Yeah,? he said, ’but now you come to mention it, most of the actual minutes are pretty lousy.
+ - Only by counting could humans demonstrate their independence of computers.
+ - In moments of great stress, every life form that exists gives out a tiny subliminal signal.
+ - God is no longer an explanation of anything, but has instead become something that would itself need an insurmountable amount of explaining.
+ - What is this? Some sort of galactic hyperhearse?
+ - These creatures you call mice, you see, they are not quite as they appear. They are merely the protrusion into our dimension of vastly hyperintelligent pandimensional beings.
+ - You can’t possibly be a scientist if you mind people thinking that you’re a fool.
+ - If there was one thing life had taught her it was that there are times when you do not go back for your bag and times when you do. It had yet to teach her to distinguish between the two types of occasion.
+ - There is no problem so complicated that you can’t find a very simple answer to it if you look at it right.
+ - I tend not to read or watch Science Fiction, particularly not comedy Science Fiction. The point is that if it’s less good than what I do, there’s no point in reading it, if it’s better than what I do it makes me depressed.
+ - Time doesn’t necessarily happen in chronological order.
+ - Nobleness was one word for making a fuss about the trivial inevitabilities of life, but there were others.
+ - The books people are writing today, they’re too long. You get a little bit of plot, and then pages and pages of Creative Writing. They teach classes in how to do this. They should teach classes in how to stop!
+ - He actually caught himself saying things like “Yippee,” as he pranced ridiculously round the house.
+ - He inched his way up the corridor as if he would rather be yarding his way down it, which was true.
+ - Very strange people, physicists – in my experience the ones who aren’t dead are in some way very ill.
+ - Deep in the fundamental heart of mind and Universe there is a reason.
+ - He felt like an old sponge steeped in paraffin and left in the sun to dry.
+ - This man is the bee’s knees, Arthur, he is the wasp’s nipples. He is, I would go so far as to say, the entire set of erogenous zones of every major flying insect of the Western world.
+ - Obviously somebody had been appallingly incompetent and he hoped to God it wasn’t him.
+ - Anything that thinks logically can be fooled by something else that thinks at least as logically as it does.
+ - Why should I want to make anything up? Life’s bad enough as it is without wanting to invent any more of it.
+ - I wanted to be John Cleese. It took me some time to realise that the job was taken.
+ - Do you find coming to terms with the mindless tedium of it all presents an interesting challenge?
+ - Being literate as a writer is good craft, is knowing your job, is knowing how to use your tools properly and not to damage the tools as you use them.
+ - He hoped and prayed that there wasn’t an afterlife. Then he realized there was a contradiction involved here and merely hoped that there wasn’t an afterlife.
+ - The Universe, as has been observed before, is an unsettlingly big place, a fact which for the sake of a quiet life most people tend to ignore.
+ - The future of computer power is pure simplicity.
+ - He didn’t know why he had become president of the galaxy, except that it seemed a fun thing to be.
+ - That young girl is one of the least benightedly unintelligent organic life forms it has been my profound lack of pleasure not to be able to avoid meeting.
+ - I don’t go to mythical places with strange men.
+ - Radio did not kill books and television did not kill radio or movies – what television did kill was cinema newsreel. TV does it much better because it can deliver it instantly. Who wants last week’s news?
+ - There is an art to the business of making sandwiches which it is given to few ever to find the time to explore in depth. It is a simple task, but the opportunities for satisfaction are many and profound.
+ - The system of life on this planet is so astoundingly complex that it was a long time before man even realized that it was a system at all and that it wasn’t something that was just there.
+ - How do I know the past is not a fiction conceived to reconcile the difference between my state of mind and the present.
+ - Anything that happens, happens.
+ - A computer chatted to itself in alarm as it noticed an airlock open and close itself for no apparent reason. This was because Reason was in fact out to lunch.
+ - It’s good to leave your room super-messy when you’re away. Whoever tries to break into your room will thought it has already been ransacked.
+ - Why’ is the only question that bothers people enough to have an entire letter of the alphabet named after it. The alphabet does not go ‘A B C D What? When? How?’ but it does go ‘V W X Why? Z.
+ - Dirk was, for one of the few times in a life of exuberantly prolific loquacity, wordless.
+ - The world is a thing of utter inordinate complexity and richness and strangeness that is absolutely awesome.
+ - We’ll meet the meat.
+ - No. No games. He wanted her and didn’t care who knew it. He definitely and absolutely wanted her, longed for her, wanted to do more things than there were names for with her.
+ - The bowler approached the wicket at a lope, a trot, and then a run. He suddenly exploded in a flurry of arms and legs, out of which flew a ball.
+ - Even light, which travels so fast it takes most races thousands of years to realize that it travels at all, takes time to journey between the stars.
+ - My own strategy is to find a car, or the nearest equivalent, which looks as if it knows where it’s going and follow it. I rarely end up where I was intending to go, but often I end up somewhere I needed to be.
+ - There is a feeling which persists in England that making a sandwich interesting, attractive, or in any way pleasant to eat is something sinful that only foreigners do.
+ - As a result of all this hardship, dirt, thirst, and wombats, you would expect Australians to be a dour lot. Instead, they are genial, jolly, cheerful, and always willing to share a kind word with a stranger, unless they are an American.
+ - Believe me, it is a great deal better to find cast-iron proof that you’re innocent than to languish in a cell hoping that the police – who already think you’re guilty – will find it for you.
+ - It’s guff. It doesn’t advance the action. It makes for nice fat books such as the American market thrives on, but it doesn’t actually get you anywhere.
+ - Just believe everything I tell you, and it will all be very, very simple.? Ah, well, I’m not sure I believe that.
+ - Ow! My brains!
+ - There was one planet off in the seventh dimension that got used as a ball in a game of intergalactic bar billiards. Got potted straight into a black hole.
+ - Gordon Way’s astonishment at being suddenly shot dead was nothing compared to his astonishment at what happened next.
+ - I didn’t notice I was being set upon by a pickpocket, which I am glad of, because I like to work only with professionals.
+ - I was created to fulfill a function and I failed in it. I negated my own existence.
+ - I am rarely happier than when spending an entire day programming my computer...
+ - He shifted his weight from foot to foot, but it was equally uncomfortable on each.
+ - I think you ought to know I’m feeling very depressed.
+ - The more Susan waited, the more the doorbell didn’t ring. Or the phone.
+ - When the girl sitting at the next table looked away from a moment, Dirk leaned over and took her coffee. He knew that he was perfectly safe doing this because she would simply not be able to believe that this had happened.
+ - A nerd is someone who uses a telephone to talk to other people about telephones.
+ - He felt a spasm of excitement because he knew instinctively who it was, or at least knew who it was he wanted it to be, and once you know what it is you want to be true, instinct is a very useful device for enabling you to know that it is.
+ - The idea that Bill Gates has appeared like a knight in shining armor to lead all customers out of a mire of technological chaos neatly ignores the fact that it was he who, by peddling second-rate technology, led them into it in the first place.
+ - I love to keep poking and prodding at it. I’ve thought about it so much over the years that that fascination is bound to spill over into my writing.
+ - One always overcompensates for disabilities. I’m thinking of having my entire body surgically removed.
+ - When the idea comes, I often can’t remember where it came from. I remember very little about writing the first series of Hitchhiker’s. It’s almost as if someone else wrote it.
+ - I don’t say that I don’t believe in God because that implies that there is a God for me not to believe in.
+ - Here, for whatever reason, is the world. And here it stays. With me on it.
+ - I say what it occurs to me to say when I think I hear people say things. More I cannot say.
+ - The little waiter’s eyebrows wandered about his forehead in confusion.
+ - People who need to bully you are the easiest to push around.
+ - Cyberspace is – or can be – a good, friendly and egalitarian place to meet.
+ - Presidents don’t have power. Their job is to draw attention away from it.
+ - I’m so great even I get tongue-tied talking to myself.
+ - My universe is my eyes and my ears. Anything else is hearsay.
+ - I seem to be having tremendous difficulty with my life-style.
+ - Conceited little mega-puppy.
+ - The seat received him in a loose and distant kind of way, like an aunt who disapproves of the last fifteen years of your life and will therefore furnish you with a basic sherry, but refuses to catch your eye.
+ - The last time anybody made a list of the top hundred character attributes of New Yorkers, common sense snuck in at number 79.
+ - In the stillness, a fly would not have dared clear it’s throat.
+ - He turned slowly like a fridge door opening.
+ - I really didn’t foresee the Internet. But then, neither did the computer industry. Not that that tells us very much of course – the computer industry didn’t even foresee that the century was going to end.
+ - Ha, but my life is a box of wormgears.
+ - Being virtually killed by a virtual laser in a virtual space is just as effective as the real thing, because you are as dead as you think you are.
+ - I think a nerd is a person who uses the telephone to talk to other people about telephones. And a computer nerd therefore is somebody who uses a computer in order to use a computer.
+ - He learned to communicate with birds and discovered their conversation was fantastically boring. It was all to do with windspeed, wingspans, power-to-weight ratios and a fair bit about berries.
+ - Many men of course became extremely rich, but this was perfectly natural and nothing to be ashamed of because no one was really poor, at least no one worth speaking of.
+ - He had got himself a life. Now he had to find a purpose in it.
+ - There is a piece of me that likes to fondly imagine my maverick and rebellious nature, but, more accurately, I like to have a nice and cosy institution that I can rub up against a little bit.
+ - Moving from radio to television, you can take most of the words with you.
+ - The great thing about being the only species that makes a distinction between right and wrong is that we can make up the rules for ourselves as we go along.
+ - And for all the richest and most successful merchants life inevitably became rather dull and niggly, and they began to imagine that this was therefore the fault of the worlds they’d settled on.
+ - The Hitch Hiker’s Guide has not been an opera. It has however been a tapestry, if you count a woven bath towel as a tapestry.
+ - It was his subconscious which told him this – that infuriating part of a person’s brain which never responds to interrogation, merely gives little meaningful nudges and then sits humming quietly to itself, saying nothing.
+ - If I were not an atheist, I think I would have to be a Catholic because if it wasn’t the forces of natural selection that designed fish, It must have been an Italian.
+ - The teacher usually learns more than the pupils. Isn’t that true? “It would be hard to learn much less than my pupils,” came a low growl from somewhere on the table, “without undergoing a pre-frontal lobotomy.”
+ - The only moral it is possible to draw from this story is that one should never throw the Q letter into a privet bush, but unfortunately there are times when it is unavoidable.
+ - For as long as he could remember, he’d suffered from a vague nagging feeling of being not all there.
+ - Time affords us the ability to blame past errors on others while whole heartedly pronouncing our futures successes.
+ - The Saab seethed off into the night. Arthur watched it go, as stunned as a man might be who, having believed himself to be totally blind for five years, suddenly discovers that he had merely been wearing too large a hat.
+ - That was it. That was really it. She knew that she had told herself that that was it only seconds earlier, but this was now the final real ulimate it.
+ - The air was stifling, but he liked it because it was stifling city air, full of excitingly unpleasant smells, dangerous music, and the distant sound of warring police tribes.
+ - My absolute favourite piece of information is the fact that young sloths are so inept that they frequently grab their own arms and legs instead of tree limbs, and fall out of trees.
+ - If everyone knew exactly what I was going to say, then there would be no point in my saying it, would there?
+ - The light was only just visible – except of course that there was no one to see, no witnesses, not this time, but it was nevertheless a light.
+ - But for a moment Dirk had a sense of inifinite loss and sadness that somewhere among the frenzy of information noise that daily rattled the lives of men he thought he might have heard a few notes that denoted the movements of gods.
+ - Mc Donalds he thought. There’s no longer any such thing as a Mc Donalds hamburger. He passed out. When he came around seconds later he found he was sobbing for his mother.
+ - It was one of those pictures that children are supposed to like but don’t. Full of endearing little animals doing endearing things, you know?
+ - Who should play the lead role in a film about me? Dunno. Danny De Vito? Jeff Goldblum? Meryl Streep? Someone of that kind.
+ - Their minds sang with the ecstatic knowledge that either what they were doing was completely and utterly and totally impossible or that physics had a lot of catching up to do.
+ - Much to his annoyance, a thought popped into his mind. It was very clear and very distinct, and he had now come to recognize these thoughts for what they were. His instinct was to resist them.
+ - Many respectable physicists said that they weren’t going to stand for this – partly because it was a debasement of science, but mostly because they didn’t get invited to those sort of parties.
+
+344 quotes

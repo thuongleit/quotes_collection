@@ -1,0 +1,157 @@
+ - You can’t always get what you want, but if you try sometimes, you might find, you get what you need.
+ - I can’t get no satisfaction.
+ - It’s Only Rock and Roll.
+ - Time is on my side, yes it is.
+ - You can’t always get what you want.
+ - As long as my face is on page one, I don’t care what they say about me on page seventeen.
+ - People are so brainwashed by the rules that they don’t know what really matters.
+ - Lose your dreams and you might lose your mind.
+ - Americans are funny people: first you shock them, then they put you in a museum.
+ - Anarchy is the only slight glimmer of hope.
+ - I must be careful not to get trapped in the past. That’s why I tend to forget my songs.
+ - No one, but no one, is equal, or ever will be. Elvis was and is supreme.
+ - Life’s just a cocktail party – on the street.
+ - A good thing never ends.
+ - I don’t like drugs. I think cocaine is a very bad, habit-forming bore. It’s about the most boring drug ever invented.
+ - Don’t take life too seriously and always remember: it is just a passing fad.
+ - Patriotism is an instant reaction that fades away when the war starts.
+ - Polarization affects families and groups of friends. Its a paralyzing situation. A civil war of opinion.
+ - Casanova, he had no money and no power, and according to some, he even was cute. But he had talent to live, and some literature talent. I love how he invented himself.
+ - I’d rather be dead than singing ‘Satisfaction’ when I’m forty-five.
+ - He stole my music but he gave me my name.
+ - Everyone knows what their roots are, but you’ve got to explore everywhere. You’ve got to explore the sky too.
+ - Only a madman or an actor would want to be President of the United States.
+ - You wake up in the morning and you look at your old spoon, and you say to yourself, ‘Mick, it’s time to get yourself a new spoon.’ And you do.
+ - People don’t bother to check with anything anymore. They just like to speculate in print. We like fact-checking!
+ - I’m very ambivalent in my feelings about marriage. I think it promises a lot to people – sort of like saying, once you get married you are on the highway to heaven, and quite often it isn’t that. I think marriage has always been based on a combination of religious and legal reasons.
+ - The past is a great place and I don’t want to erase it or to regret it, but I don’t want to be its prisoner either.
+ - I don’t only like rock music. There are other forms of music that I find interesting. I would want to do everything, every kind of music. I wouldn’t want to be limited to like playing heavy metal or whatever.
+ - I don’t hate journalists. You can’t hate a class of people. It’s wrong to say that. But I do think they’re a bit like poison. Never trust them. You can’t trust them as a class of people. It’s their job not to be trusted.
+ - I don’t know if rock is dying. I wouldn’t want to say that, but the world does change. Nothing stays the same.
+ - I don’t spend money on anything. I don’t collect anything. I don’t spend it on furniture.
+ - People love talking about when they were young and heard Honky Tonk Women for the first time. It’s quite a heavy load to carry on your shoulders, the memories of so many people.
+ - Dandelions don’t tell no lies...
+ - Right now I can’t be sure that I will be back on stage. We have been touring for two years and that is way too much.
+ - I’m not the businessman. I don’t deal with the business at all. Not anymore. Occasionally, every four years or five years, they tell me I’ve run out of money, I have to go and make some more.
+ - People think they know you. They know the things about you that you have forgotten.
+ - You have to sing every day so you can build up to being, you know, Amazingly Brilliant.
+ - I am conservative with a small ‘c.’ It’s possible to be conservative in fiscal policy, and tolerant on moral issues or questions of freedom of expression.
+ - I love America, but I can’t spend the whole year here. I can’t afford the taxes.
+ - I don’t find it easy dealing with people with drug problems. It helps if you’re all taking drugs, all the same drugs.
+ - People get very thoughtful when they are in cars. I no longer care for cars. I don’t collect them.
+ - I don’t believe in astrology. It’s a lot of crap. I just think that’s another thing you should throw out the window. Mysticism. Cheap. It’s amazing that people still hang on to that after all these years.
+ - I prefer to live in a rented house. No ties. Nothing around my neck. Just the minimum kind of bare comforts of home.
+ - People also like partnerships because they can identify with the drama of two people in partnership. They can feed off a partnership, and that keeps people entertained. Besides, if you have a successful partnership, it’s self-sustaining.
+ - The Beatles were so big that it’s hard for people not alive at the time to realize just how big they were.
+ - I am pleased the Ministry of Culture is protecting the morals of expatriate bankers and their girlfriends.
+ - Thanks to everyone in Israel for the wonderful welcome. It was a great show and we’ll remember it forever.
+ - Thousands of years people have taken drugs, whether it’s alcohol, which was invented about 5,000 years ago. People have been using that. And all kinds of marijuana and all these things, tobacco. So all these drugs have been – it seems to be the propensity of human beings to want to use them.
+ - Music should elevate you. You can be raised, or left stranded. You can’t be raised all the time, in my experience. This might be a rare moment. You might just go up to that level but that’s always good.
+ - I’ve managed to avoid tattoos so far.
+ - The only performance that makes it, that makes it all the way is the one that achieves madness.
+ - If you are British, you soon get used to people not loving you. The Irish remind us of offenses from 100 years ago. Perhaps we should react to what the French did to us even longer ago.
+ - Either we stay at home and become pillars of the community or we go out and tour. We couldn’t really find any communities that still needed pillars.
+ - Well, don’t we all feel like jumping to the end of the world sometimes?
+ - I don’t really mind criticism in music or in shows and stuff like that at all. I mean, it doesn’t really worry me even if it’s like out of place. At least it’s relevant.
+ - I didn’t want to make teenage comedies, and I didn’t want to make really trashy films. I wanted to make films that were a bit challenging.
+ - I didn’t really like being at college. It wasn’t like it was Oxford and had been the most wonderful time of my life. It was really a dull, boring course I was stuck on.
+ - I should think that being my old lady would be all the satisfaction or career any woman needs.
+ - I think that people taking drugs occasionally are great. I think there’s nothing wrong with it. But if you do it the whole time, you don’t produce as good things as you could.
+ - I got nasty habits; I take tea at three.
+ - My secrets must be poetic to be believable.
+ - I wasn’t understanding enough about drug addition. No one seemed to know much about drug addiction. Things like LSD were all new. No one knew the harm. People thought cocaine was good for you.
+ - I don’t think enjoying life is an exclusive prerogative of young people.
+ - For some people it’s real therapy to talk to journalists about their private lives and inner thoughts. But I would rather keep something to myself.
+ - Rock has to absorb other rhythmic forms, because the underlying rhythm of music changes with fashion, and people like to move differently, and the underlying rhythms have to be the ones that people want to dance to.
+ - People have different personalities when they’re drunk or take heroin, or whatever drugs.
+ - It’s all right letting yourself go, as long as you can get yourself back.
+ - I don’t watch much ESPN. Unless they have soccer on.
+ - I don’t really count myself as a very sophisticated businessperson. I’m a creative artist. All I know from business I’ve picked up along the way.
+ - I came into music just because I wanted the bread. It’s true. I looked around and this seemed like the only way I was going to get the kind of bread I wanted.
+ - I always think it’s better to be not taking drugs or drinking or anything. That’s not saying I’ve never done it because I have. But I sort of learned I think after a while there has been – it didn’t take me that long to realize that it wasn’t a good thing.
+ - I don’t believe in having bands for solo records.
+ - Starting off in music, the purpose of it was not to become like well known on the street and be famous. You know, I didn’t even think about that part of being famous. Famous for making records, yes, but famous face in a woman’s magazine, I never thought of that. I didn’t want that.
+ - I enjoy doing different kinds of things. I just enjoy being not tied too much. I feel that I’m tied to myself as a kind of traditional musician and a singer, and the history that I have ties me down.
+ - There’s hundreds of different ways of writing songs.
+ - Goddess was made in my home in France. The material retained an integrity whit it would have lost in Los Angeles studio.
+ - If you’re really on some heavily addictive drug, you think about the drug, and everything else is secondary. You try and make everything work, but the drug comes first.
+ - My mother has always been unhappy with what I do. She would rather I do something nicer, like be a bricklayer.
+ - I love country music, but I find it very hard to take it seriously. I also think a lot of country music is sung with the tongue in cheek, so I do it tongue in cheek.
+ - Boys, as far as England was concerned, were always the hard core. And you just know the guys like it. They want to be you. Some might be attracted to you without knowing it.
+ - People have this obsession. They want you to be like you were in 1969. They want you to, because otherwise their youth goes with you. It’s very selfish, but it’s understandable.
+ - Everyone in the movie industry wants to win an Oscar. I don’t think that’s why you make movies. But winning an Oscar is not just about making a great movie, unfortunately. It’s also having a good Oscar campaign.
+ - Any performer is one person privately and then he’s another person when he steps on the stage.
+ - Movies in this country, its very complicated, and we could bang on about it forever, but the French movie industry is very different because its very obviously French.
+ - I believe we should encourage children to sing and play instruments from an early age.
+ - When we heard we were topping the bill over James Brown we couldn’t believe it. We tried for two days to get it changed round – I mean you can’t follow an act like that.
+ - Anyone taking heroin is thinking about taking heroin more than they’re thinking about anything else. That’s the general rule about most drugs.
+ - I have never wanted to give up performing on stage, but one day the tours will be over.
+ - I was having a bit of trouble. I wasn’t in a good relationship. Or I was in too many bad relationships. I had so many girlfriends at that point. None of them seemed to care they weren’t pleasing me very much. I was obviously in with the wrong group.
+ - Samba rhythm is a great one to sing on, but it’s also got some other suggestions in it, an undercurrent of being primitive – because it is a primitive African, South American, Afro-whatever-you-call-that rhythm. So to white people, it has a very sinister thing about it.
+ - Normally I am not so violent. Everything comes from the question: Where will I die? It is a strong concern.
+ - If you get to be a really big headliner, you have to be prepared for people throwing bottles at you in the night.
+ - It’s heartening to return to live music, heartening for people like me in a band. It’s a very traditional thing to return to. It re-validates the original form that we fell in love with.
+ - It’s like everyone I have dinner with, I’m having an affair with. Who was it I met the other day? Minnie Driver! She seems charming, but that’s the only time I’ve met her.
+ - I never really studied business in school. I kind of wish I had, but how boring is that?
+ - My father was furious with me, absolutely furious. I’m sure he wouldn’t have been so mad if I’d have volunteered to join the army. Anything but this. He couldn’t believe it. I agree with him: It wasn’t a viable career opportunity.
+ - The new fashion is to talk about the most private parts of your life; other fashion is to repent of your excesses and to criticize the drugs that made you happy in the other times.
+ - You can’t be jealous and be a leader.
+ - In England they always try out new mobile phones in Isle of Man. They’ve got a captive society. So I said, you should try the legalization of all drugs on the Isle of Man and see what happens.
+ - The Spice Girl Victoria Beckham has just published the story of her life. I confess that it is not in my reading table.
+ - I really don’t see myself being apart from music. I like doing lots of different things. I’ve been involved in film for quite a long time and I just like doing film.
+ - There’s no great technical expertise in being a movie producer.
+ - Acting is mostly interpretive. They use different parts of you, and different sides of you, and different so-called talents.
+ - I see songwriting as having to do with experience, and the more you’ve experienced, the better it is. But it has to be tempered, and you just must let your imagination run.
+ - I think, like most people, my moral values tend to be pretty fuzzy.
+ - I don’t like being completely isolated. I need the energy from other people.
+ - Drug use makes you snappy, and you get very bad-tempered and have terrible hangovers.
+ - When you start a new project, no matter if it’s a movie like Enigma or an album like Goddess, you are always learning something. While I search, I find something new.
+ - It’s not selling out, it is called making lots of money.
+ - You have to realize that everyone in a band is all more or less together, and everyone has their own niche, and some people lead in some ways, and some people lead in others.
+ - I didn’t have any inhibitions. I saw Elvis and Gene Vincent, and I thought, “Well, I can do this.” And I liked doing it.
+ - Quite often when I record a song, writing it and making a demo is the big thing and, after that, I think, how do I actually translate this into real life? A lot of the time I think I can’t be bothered.
+ - I’d done a very long project on Bridges To Babylon. I was on the road for ages with that. When I came off the road, I thought, the next thing I want to do on my own.
+ - I would like to reach a balance and forget a few things.
+ - Many Americans have no idea of what has been the foreign policy of their country. If you don’t know about something, you can’t understand what is going on.
+ - That’s one of the good things about a lot of the young British bands, they are mixing all styles of music. I think that’s very good because that’s very modern.
+ - I don’t think that being in a full-time relationship is necessarily for everybody all of the time. It’s not necessarily some state of grace.
+ - I read the most extravagant things about people who suffer and depress because of things written about them.
+ - Have I turned into a motorized preacher? We spend so much time in cars that if you don’t try to get some experiences out of it, you can go crazy.
+ - I, personally, have a lot of energy, so I don’t see it as an immediate problem.
+ - It’s a real buzz, even in front of 20 people, to make a complete fool of yourself. But people seemed to like it. And the thing is, if people started throwing tomatoes at me, I wouldn’t have gone on with it.
+ - Of course we’re doing it for the money. We’ve always done it for the money.
+ - You don’t always do the same things you’ve done the night before. That’s what makes playing live so interesting as opposed to being in the studio.
+ - I haven’t had the time to plan returning to the scene because I haven’t left it.
+ - We have recorded songs on the same day that were released years later in other albums.
+ - Americans get very simple explanations of what happens to them.
+ - In England you’re skewered on the altar of pop culture if you become pretentious.
+ - Don’t you think it’s sometimes wise not to grow up.
+ - I think people are afraid to express their opinions half the time.
+ - You have to write a song around this specific character or to enhance a specific scene. A lot of other craft goes on.
+ - Always as a musician you must have one thing you do well.
+ - I don’t think people care about the mechanics of songwriting.
+ - I think it’s very important that you have at least some sort of inner thing you don’t talk about. That’s why I find it distasteful when all these pop stars talk about their habits.
+ - I am not a librarian of my own work. It’s a good thing not to be too involved with what you have done.
+ - I am not very conscious of the figures of speech that I use.
+ - The terrible attack in Manhattan has given place to a burst of patriotism in the United States.
+ - If you’re the singer in the band, you always get more attention than anyone else.
+ - I like to have a peek, see what the audience is doing during the opening act, because it gives you a clue and gives you a good feeling of where you are – the air can be different in different places.
+ - When you write songs, you have to like them yourself first, but then you have to make everyone else like them, because you can force them to play it, but you can’t force them to like it.
+ - I wasn’t taking so many drugs that it was messing up my creative processes. It was a very good period, 1968 – there was a good feeling in the air. It was a very creative period for everyone.
+ - I was never that interested in business, to be honest. I do the minimal amount of business as possible because I’m not actually interested in it as a thing. But some people are interested in it, and there’s nothing wrong with that.
+ - The grown-up world was a very ordered society in the early ’60s, and I was coming out of it. America was even more ordered than anywhere else. I found it was a very restrictive society in thought and behavior and dress.
+ - Killing for ideas is the most dangerous form of killing at all. Being willing to die for your ideas rather than your country is another concept, but dying for an idea, like in religion, is absurd.
+ - Biographies of British pop celebrities are terrible.
+ - It’s nice to collect stamps, but if it becomes obsessive, and you start stealing for your stamps, it becomes too much.
+ - Of course, I do occasionally arouse primeval instincts, but I mean, most men can do that. They can’t do it to so many. I just happen to be able to do it to several thousand people. It’s fun to do that.
+ - You never really know what’s going to happen. You never know what the audience is going to be like or how they’re going to behave.
+ - I don’t really like using guns too much, you know, even for sport.
+ - Something that you can’t play in your kitchen is rap. It is done in your neighbour’s kitchen.
+ - Most people in England don’t live in the North, and people are snobby in England, so they wanted a band from the South.
+ - A lot of times songs are very much of a moment, that you just encapsulate. They come to you, you write them, you feel good that day, or bad that day.
+ - I don’t want to be my extravert self all the time.
+ - Americans shocked me by their behavior and their narrow-mindedness.
+ - The music’s rehearsed a lot. All people think about is, they think, in rock ‘n’ roll, they get the music off right and they think it’s okay standing, looking macho. Well, it’s not. That’s boring. If you want to be a performer you’ve got to do a lot more work than that.
+ - Thank you for leaving us alone but giving us enough attention to boost our egos.
+
+155 quotes

@@ -1,0 +1,42 @@
+ - Saigon is hot, full of atmosphere, activity, and commerce.
+ - Embrace your dorkdom or rail against it. The choice is yours.
+ - I don’t believe that wishing works. I think we get the things we work for.
+ - I guess darkness serves a purpose: to show us that there is redemption through chaos. I believe in that. I think that’s the basis of Greek mythology.
+ - As a young man I prayed for success. Now I just pray to be worthy of it.
+ - Graham Greene, as I understand it, was quite outspoken in his criticism of American foreign policy.
+ - I wish I could go home. I’ve been on the road since May. I wonder if my dogs still remember me.
+ - Most people go, I wish for world peace. But chaos has a place in balancing out the light and the dark in the world. I don’t know if I would wish for world peace.
+ - To swing or not to swing? Swing.
+ - As sophisticated as the technology gets, the less sophisticated you have to become as an actor.
+ - Of course I was a dork, but that’s OK. Because all the coolest people I know were dorks.
+ - The other day, when my 4-year-old saw a flowering tree and said, “Daddy, it’s raining petals,” that was poetry that just melted my heart into a mushy, yummy Fudgsicle.
+ - I’ve been grateful enough, smart enough to take the work with Ian McKellen in Gods And Monsters.
+ - I wish I could have 25,000 years of my personal family history documented in a very powerful computer or a CD-ROM that I could just pop in and my computer would never crash.
+ - I recently watched Peter Brook’s Lord of the Flies, and it wasn’t a favorite film. Then I saw the one that was made in 1990, which in my opinion didn’t match up to the original.
+ - When you throw punches at actors, you stop, you pull it, and it looks like you pulled it. When you throw punches at cartoon characters, they are not there, so you can swing through. It looks like you really decked them.
+ - Maybe my caveman ancestors invented the wheel or something. I’m not sure.
+ - I believe you have a responsibility to comport yourself in a manner that gives an example to others. As a young man, I prayed for success. Now I pray just to be worthy of it.
+ - I mean, it was a mummy movie. It was a good film independent of its source. It that looks like Lawrence of Arabia on steroids in a lot of ways.
+ - I’m starting to judge success by the time I have for myself, the time I spend with family and friends. My priorities aren’t amending; they’re shifting.
+ - I wanted to have the opportunity to travel to Vietnam and Sydney, and have the chance to work there.
+ - Elizabeth Hurley and I had a lot of fun together. She’s a very beautiful, confident woman.
+ - If you run an Internet search on Vietnam and the war, most of the information you get begins at about 1962. I think this is telling. It is missing the whole period that led up to the reasons the war happened in the first place.
+ - What if Shakespeare had had a test audience for Romeo and Juliet or Hamlet?
+ - Horrible things happen, but were they horrible? No, they were just circumstances of the world.
+ - I still don’t understand the music industry that much. Everything I learned was from hanging out with rock musicians in studios. I certainly have respect for those who make music their livelihood.
+ - Burroughs was never really that pleased with the way popular culture and society treated his character. He tried to make a few movies of his own as a result, but they weren’t very good.
+ - I have so much satisfaction in my life. I have a beautiful wife and the great stimulation of an interesting career. I’m the most happy fellow that I know.
+ - They had a hard time miking me in my loin cloth, I mean, where were they gonna tape it?
+ - I wish the rock ‘n’ roll scene to be back in.
+ - Ian McKellen is brilliant with research. I paid really close attention to the sources he goes to. He’s a very, very intelligent man.
+ - George of the Jungle is a cartoon. He’s a guy who swings around on a vine all day. Are you not buying that?
+ - I think you have to show homage to creators.
+ - I remember thinking, I want to work for the camera.
+ - I always approach comedy roles pretending they aren’t funny.
+ - I was molded, spent my time underneath a lot of goo. And then the bits and pieces were sculpted. It took probably 10 days to create each character after all those camera tests.
+ - I suppose if it has a practical purpose, I appreciate a pat on the back. I suppose it’s rewarding, ultimately.
+ - The test audience holds a great deal of power in the process of filmmaking in the United States.
+ - All you have to do is just believe in what’s there; then, the audience will, too.
+ - I would act whether or not I was paid. I would be involved in ensemble groups. I would have the desire to tell stories.
+
+40 quotes

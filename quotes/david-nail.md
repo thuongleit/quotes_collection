@@ -1,0 +1,21 @@
+ - Nowadays, social media is the easiest place to go to find something.
+ - I love barbecue, its my favorite thing to eat.
+ - It’s hard to believe the life that ‘Someone Like You’ has taken on. It’s proof that people hunger for great songs – and they are open to different interpretations of songs they love.
+ - I naively thought I had to go door to door, find somebody who could record me singing some songs. I didn’t know Music Row, I didn’t know anything! So after six or seven months, I went back home and went to college.
+ - Over the course of a day, you get to get a feel for where you’re playing, so when you get out on stage, you already feel like you’ve had a bit of a bonding experience with them.
+ - I think every singer hears songs that make you want to sing them.
+ - I’m a worrywart, so I’m always a bit more stressed out than I should be or wish I was.
+ - As a singer, I just want to try to honor what the writers create – and as someone who’s trying to write songs, I just hope I can stand in their company and not embarrass myself.
+ - Sometimes you get so jaded, you don’t have those initial connections and emotions with music, because you are promoting your own.
+ - My philosophy has always been that I hope I have a good enough day to give me another one, I hope that I have a good enough year to give me another year. I know that’s cliched, but it’s the truth in how I approach my career.
+ - There are very few people that I deal with from a business side that it’s just strictly a one-sided business relationship. I think that’s important.
+ - I really like singing, but coming from a small town like where I grew up, how do you start that journey?
+ - Any time I get to go home is a joyous occasion.
+ - I decided I was just going to sing the type of songs I gravitated toward and inspired me and moved me. I was going to let the people whose job it was to decide what places to put it, and let them do that. I’ll stick to the singing part.
+ - I’ve never really gotten into the whole labels thing. There were times I would cover a pop song, and people would say ‘You sound really country.’ I gave up on that whole thing a long time ago.
+ - I’m obviously very involved with my own charity and foundation that I work with. Obviously, I’m very passionate about that.
+ - I pay such close attention of the record making process that most people would assume are very little and wouldn’t be that big of a deal; the packaging, the title, and the harmonies, I think, are arguably as important as the lead vocals.
+ - I think anytime you get nominated for an award, its a very humbling thing.
+ - I have learned from Twitter that you get that instant feedback about what people think about what you did.
+
+19 quotes

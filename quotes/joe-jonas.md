@@ -1,0 +1,46 @@
+ - Sometimes the only way to win is to die trying.
+ - One thing nobody knows about me is that three of my fingers are edible, but I cant tell you which fingers.
+ - I’ve gone through a lot of stuff in my life so far. There are stories I haven’t really been able to tell.
+ - What’s up, I’m DJ Danger. Some people might think it’s dangerous to have an unbrella inside, but i am dangerous!
+ - A lot of people put pressure on themselves and think it will be way too hard for them to live out their dreams. Mentors are there to say, ‘Look, it’s not that tough. It’s not as hard as you think. Here are some guidelines and things I have gone through to get to where I am in my career.’
+ - Being on stage makes me come to life. When all eyes are on you, they’re watching every move you make.
+ - DNCE is “dance without the a.” It’s not a perfect word, and you don’t always have to be a perfect dancer to dance. Life is just sometimes not perfect.
+ - I believe in God, and that’s a personal relationship that I have, but I’m not religious in any way.
+ - I became friends with a lot of chefs. I was a judge on ‘Top Chef’ last year. It was a dream come true.
+ - One thing he misses about New Jersey: One thing they don’t have out here in California is Rita’s Italian Ices. We used to have one right next to our house and it was so good!
+ - I can’t grow a moustache.
+ - I love being in a brothers band. I have no desire to move away from it at all.
+ - I think it’s important to watch out for our environment and to be careful.
+ - I love Paris – it’s one of my favorite cities – and so to shoot a video in Paris was a dream come true.
+ - I’m a big fan of Tiesto, and Swedish House Mafia are awesome. I absolutely want to work with them.
+ - I warm up. I do about 50 push-ups with my trainer and my security just to get pumped up before a show, get our energy up. And then I just go have fun.
+ - I’ve accomplished a lot, but I still have more dreams that I want to achieve.
+ - If it’s the first kiss, it’s important for the eyes to be closed so you know it’s real. It’s almost like a Disney movie!
+ - I love making Italian food. And coconut chicken.
+ - Elizabeth Taylor. In her heyday, she was amazing.
+ - I love a good fitted suit. England is known for men who can wear good suits.
+ - Chris Brown is a fantastic artist and songwriter and to be able to work with him was kind of unbelievable.
+ - I’m a big fan of certain new acts. I love any genre of music, and I think it’s really great to see that there are new artists coming through. It’s kinda funny to think that I’m like the old man on campus now. But I’m really happy for groups like One Direction. I think they’re really good guys.
+ - I had a bowl cut for years, and glasses. When Harry Potter became famous, I looked just like him.
+ - I love rock, pop, and funk. I love being able to blend these three and create something unique for people.
+ - I’ve got my library card and i’m checking you out!
+ - Every studio needs a rubber chicken.
+ - I had a faux-hawk for a while and I used to buzz the sides and design it. It was really bad.
+ - I prefer the band aspect of things. I feel comfortable. It feels good to look to my left and right and see three other people on stage with you that love music as much as you.
+ - I went to sleep away camp seven years in a row. I was such a pro.
+ - I began writing with a Michael Buble mentality. I think he’s fantastic, and it’s the perfect music for any date night, ever.
+ - I love fashion. Over the past year I’ve got heavily into it.
+ - I’m a big shoe guy, too. I have far too many pairs. Whenever there’s a new style out, I’ll text my stylist: ‘Can we get a pair of those?’
+ - I feel like every artist has an opportunity to create something new and to challenge themselves to reach out to a new crowd.
+ - When I meet a fan, I always try to learn something about that fan.
+ - You should always remember that you were chosen to be on this earth.
+ - I did other stuff before then, but I was sexually active at 20. I’m glad I waited for the right person, because you look back and you go, ‘That girl was bats– crazy. I’m glad I didn’t go there.’
+ - I wanna go play my music in a club.
+ - Im understanding that, in music, you can really be yourself and people accept you for who you are, that is a big thing to me.
+ - Adele’s amazing, I think the world of her and her music and I think Tinie Tempah is cool. To work with someone like Kanye West would be awesome.
+ - I had a New Year’s kiss once. But it was like, ‘Let’s start the year off together,’ and then we wound up breaking up the night after!
+ - Heels are really hard to wear. I feel bad for every girl that has to wear heels or chooses to wear heels. They’re not fun.
+ - I think people have been really receptive to understanding that I’ve grown up and the music’s going to sound a little different.
+ - When life gives you lemons, throw them back.
+
+44 quotes

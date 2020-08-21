@@ -1,0 +1,35 @@
+ - In a multicultural, diverse society there are countless ways in which people negotiate the everyday lived experience and reality of diversity.
+ - To the Muslim woman, the hijab provides a sense of empowerment. It is a personal decision to dress modestly according to the command of a genderless Creator; to assert pride in self, and embrace one’s faith openly, with independence and courageous conviction.
+ - But persistent name calling? that prolongs hurt. It stretches out. Each nasty word stretches the rubber band further away until finally, one day, it snaps back at you with maximum impact.
+ - Most Muslim women know it is fear and curiosity that cause people to stare. They know it is ignorance and stereotypes that cause people to suppose that a piece of material covering the hair strips a woman of the ability to speak English, pursue a career, work a remote control.
+ - Belief means nothing without actions.
+ - Sometimes it’s easy to lose faith in people. And sometimes one act of kindness is all it takes to give you hope again.
+ - Life isn’t like the movies. People don’t change overnight. people don’t go from arrogant and self-righteous to ashamed and remorseful. They don’t suddenly give in when they’ve spent years taking out. No doesn’t magically become a Yes.
+ - We are, at almost every point of our day, immersed in cultural diversity: faces, clothes, smells, attitudes, values, traditions, behaviours, beliefs, rituals.
+ - True friends are those who love you not in spite of your faults and imperfections, but because of them.
+ - The hijab, or sikh turban, or Jewish skullcap are all explicit symbols, but they do not represent a threat or affront to others, and have no bearing on the competence, skills and intelligence of a person.
+ - And it’s when I’m standing there this morning, in my PJs and a hijab, next to my mum and my dad, kneeling before God, that I feel a strange sense of calm. I feel like nothing can hurt me, and nothing else matters.
+ - Everything is relative. If you want to understand a problem you look at its cause. You don’t look at its manifestation.
+ - You never feel good when you lie. It doesn’t matter how much you want something, if you lie to somebody you love, and they actually, sincerely believe you, you feel like a cockroach that needs some serious Raid action.
+ - That’s when this warm feeling buzzes through you and you smile to yourself, knowing God’s watching you, knowing that He knows you’re trying to be strong to please Him.
+ - We have to choices in this world; we either try to survive or to give up.
+ - When it comes to the hijab – why to wear it, whether to wear it, how to wear it – there is theology and then there is practice, and there is huge diversity in both.
+ - Parents. Honestly. Sometimes they really do think the world revolves around them.
+ - I want to be with one person in my life. I want to know that the guy I spend the rest of my life with is the first person I share something so intimate and exciting with.
+ - The easiest way for readers to connect with characters and feel sympathy is to make the character entertaining, sympathetic and likeable.
+ - Spirituality is deeply personal. Yet, society has to face the fact that certain faiths celebrate spirituality through an overt expression of inner convictions.
+ - It’s like one of those scenes from a feel-good Hollywood movie. Where everybody is happy and nobody’s hair fizzes in the wind. Where it doesn’t rain, your shoes stay comfortable all day, and everybody’s jokes are funny.
+ - Yes, Simone, he is mentally unstable for being attracted to you. call the men in white suits.
+ - My family are observant Muslims, but I’ve come to the faith through an intellectual conviction, and that’s something that they’ve taught me. It’s never been forced upon me. They’ve given me a very strong identity as an Australian Muslim.
+ - I’ve always loved writing, and the impulse for me is storytelling. I don’t sit down and think: ‘What political message can I sell?’ I love the creativity of it.
+ - One of the first serious attempts I made to write a novel was when I was in Grade 6 and I had read ‘Matilda.’ I wrote my own version and my teacher had it bound and permitted me to read it to the class – cementing my love of reading, writing and Roald Dahl!
+ - I do most of my reading on the train ride to and from work. But I always have a book in my handbag so that I can read at any time, anywhere.
+ - I wasn’t rebellious. Other friends had far stricter parents and where there wasn’t a relationship of respect and communication, they were usually the opposite; kids go to the other extreme.
+ - It is time Australian Muslims stop being treated as negotiable citizens in their own country. It is time people stop ‘tolerating’ us, presuming some right to decide if we have a place in our own home.
+ - You should take notes whenever you hear interesting or original language.
+ - I’ve been writing stories since I was a kid. I love writing stories.
+ - I couldn’t stop bawling, watching the towers come down. it was a terrible thing to happen. And a terrible thing to realize that I don’t sit though the nigh crying when such horrors happen all the time.
+ - If I like a book, I tend to read the author’s entire collection. But I choose mainly through personal recommendations, general word of mouth and book reviews.
+ - When you exist in the centre of a debate, as a topic, a hypothesis – otherised and stigmatised – you become the prop in a proposition.
+
+33 quotes

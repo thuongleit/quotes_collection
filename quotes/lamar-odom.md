@@ -1,0 +1,29 @@
+ - We’re all products of our environment. The key is not to fall.
+ - If I put my mind to something and really want it, I’ll go after it and get it.
+ - My grandmother was always upbeat, a naturally happy person. I think I got that from her.
+ - I’m a role model. I have overcome the negativity, and I’m playing.
+ - Sometimes I still don’t know if I’m prepared to go through the entire season, dealing with the different personalities, the crowds, the politics.
+ - I did some things I regret, and I know there are people who think they know me. I’ve heard the things they say, and some of them are hurtful.
+ - My grandma always said bad things don’t last forever.
+ - Either you can do it or you can’t. I think I can overcome anything I put my mind to.
+ - You want to remain hungry and stay in a good place as a competitor; at the same time, you want to be confident but not cocky. You have to realize that you can lose. We have to stay hungry, because losing is the worst thing that can happen now. That’s a road we don’t want to go down.
+ - I’m just a basketball player, you know? Just put me where you need me.
+ - You’ve got to play with pride and guts.
+ - The thing I love about the NBA game is that it’s a playmaker’s league.
+ - I’ve always been taught to care what other people think. My grandmother and mother taught me to project a positive image of myself.
+ - I’m one of those players that I think I can do what’s asked of me. Whether it’s putting the ball in the basket, rebounding the ball, diving on the floor, making other people better, I’m willing to do anything just to win.
+ - Perception rules the world. Everyone knows that. Where we live and where we’re from, you just can’t escape it.
+ - A little adversity can’t hold me down.
+ - I’m always going to be under a microscope, and I haven’t always handled it well.
+ - In New York, the dunk is not the thing. To break somebody down and shoot a J-that’s as big as a dunk in New York.
+ - I think a lot of the media love the game and hate the people who play it.
+ - People have always told me, ‘Yo, you’re too unselfish. Shoot more.’
+ - I just try to focus on the basketball game and not get caught up in all the media.
+ - There’s pressure every night to be the best on the court. I put a lot of pressure on myself. Pressure is part of the game. It is also part of life. I want to prove I can do the work and be a success off the court as well as on it.
+ - Lamar is just Lamar. My teammates probably can explain that a little better than I can. If I just go out there and do what I do and be myself, it shouldn’t be a problem.
+ - There was a possibility I could have been out of the NBA. It’s taught me something that was a little deeper than basketball. I’m talking about life decisions.
+ - I’ve always felt that I’m a natural leader.
+ - Me. I like to have fun. I’m like a kid in a candy story out there.
+ - When I’m on the court, it’s like I’m in heaven.
+
+27 quotes

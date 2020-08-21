@@ -1,0 +1,502 @@
+ - The biggest adventure you can ever take is to live the life of your dreams.
+ - Turn your wounds into wisdom.
+ - You get in life what you have the courage to ask for.
+ - Do what you have to do until you can do what you want to do.
+ - You don't become what you want, you become what you believe.
+ - The greatest discovery of all time is that a person can change his future by merely changing his attitude.
+ - Helping others is the way we help ourselves.
+ - Surround yourself only with people who are going to take you higher.
+ - Leadership is about empathy. It is about having the ability to relate to and connect with people for the purpose of inspiring and empowering their lives.
+ - Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough.
+ - You have to find what sparks a light in you so that you in your own way can illuminate the world.
+ - When you undervalue what you do, the world will undervalue who you are.
+ - You’ve got to follow your passion. You’ve got to figure out what it is you love – who you really are. And have the courage to do that. I believe that the only courage anybody ever needs is the courage to follow your own dreams.
+ - Do the one thing you think you cannot do. Fail at it. Try again. Do better the second time. The only people who never tumble are those who never mount the high wire.
+ - The more you praise and celebrate your life, the more there is in life to celebrate.
+ - Luck is a matter of preparation meeting opportunity.
+ - Your true passion should feel like breathing; it’s that natural.
+ - True forgiveness is when you can say, "Thank you for that experience."
+ - You can have it all. Just not all at once.
+ - Follow your passion. It will lead you to your purpose.
+ - When I look at the future, it's so bright it burns my eyes.
+ - Trust your instincts. Intuition doesn’t lie.
+ - The big secret in life is that there is no secret. Whatever is your goal, you can get there if you are willing to work.
+ - Education is the key to unlocking the world, a passport to freedom.
+ - A mentor is someone who allows you to see the hope inside yourself. A mentor is someone who allows you to know that no matter how dark the night, in the morning joy will come. A mentor is someone who allows you to see the higher part of yourself when sometimes it becomes hidden to your own view.
+ - Real integrity is doing the right thing, knowing that nobody’s going to know whether you did it or not.
+ - One if the hardest things in life to learn are which bridges to cross and which bridges to burn.
+ - Everyone wants to ride with you in the limo, but what you want is someone who will take the bus with you when the limo breaks down.
+ - I don't want anyone who doesn't want me.
+ - Whatever you fear most has no power. It is your fear that has the power.
+ - Live your best life!
+ - You are responsible for your life. You can’t keep blaming somebody else for your dysfunction. Life is really about moving on.
+ - Where there is no struggle, there is no strength.
+ - A mentor is someone who allows you to see the hope inside yourself.
+ - Great communication begins with connection.
+ - The whole point of being alive is to evolve into the complete person you were intended to be.
+ - It makes no difference how many peaks you reach if there was no pleasure in the climb.
+ - If a man wants you, nothing can keep him away. If he doesn't want you, nothing can make him stay.
+ - I know for sure that what we dwell on is who we become.
+ - With every experience, you alone are painting your own canvas, thought by thought, choice by choice. 
+ - Create the highest, grandest vision possible for your life, because you become what you believe.
+ - Running is the greatest metaphor for life, because you get out of it what you put into it. 
+ - In the mist of difficulty lies opportunity.
+ - Your calling isn't something that somebody can tell you about. It’s what you feel. It is the thing that gives you juice. The thing that you are supposed to do. Nobody can tell you what that is. You know it inside yourself.
+ - Challenges are gifts that force us to search for a new center of gravity. Don’t fight them. Just find a new way to stand.
+ - I trust that everything happens for a reason, even if we are not wise enough to see it.
+ - Let passion drive your profession.
+ - Forgiveness is giving up the hope that the past could have been any different.
+ - Always listen to your inner voice.
+ - Some women have a weakness for shoes. I can go barefoot if necessary. I have a weakness for books.
+ - Move with the flow. Don’t fight the current. Resist nothing. Let life carry you. Don’t try to carry it.
+ - Step out of the history that is holding you back. Step into the new story you are willing to create.
+ - I’ve come to believe that each of us has a personal calling that’s as unique as a fingerprint – and that the best way to succeed is to discover what you love and then find a way to offer it to others in the form of service, working hard, and also allowing the energy of the universe to lead you.
+ - What you focus on expands, and when you focus on the goodness in your life, you create more of it.
+ - The smallest change in perspective can transform a life. What tiny attitude adjustment might turn your world around?
+ - Pray as if it’s up to God, work as if it’s up to you.
+ - A world of possibilities awaits you. Keep turning the page.
+ - Doing the best at this moment puts you in the best place for the mext moment.
+ - Don’t live your life to please other people.
+ - In God, I move and breathe and have my being.
+ - The great courageous act that we must all do, is to have the courage to step out of our history and past so that we can live our dreams.
+ - Make yourself a priority. Fill yourself up so that you can give more to others.
+ - If you want your life to be more rewarding, you have to change the way you think.
+ - If you're going to binge, literature is definitely the way to do it.
+ - Breathe. Let go. And remind yourself that this very moment is the only one you know you have for sure.
+ - Think like a queen. A queen if not afraid to fail. Failure is another stepping stone to greatness.
+ - Meditate. Breathe consciously. Listen. Pay attention. Treasure every moment. Make the connection.
+ - Follow your instincts. That’s where true wisdom manifests itself.
+ - If you are still breathing, you have a second chance.
+ - Every day brings a chance to live free of regret and with as much joy, fun, and laughter as you can stand.
+ - There is no greater gift you can give or receive than to honor your calling. It’s why you were born. And how you become most truly alive.
+ - Only make decisions that support your self-image, self-esteem, and self-worth.
+ - Nothing happens until you decide. Make a decision and watch your life move forward.
+ - Cheers to a new year and another chance for us to get it right.
+ - You must feed your mind with reading material, thoughts, and ideas that open you to new possibilities.
+ - Education is the way to move mountains, to build bridges, to change the world. Education is the path to the future. I believe that education is indeed freedom.
+ - Whatever your secret, live your own truth; life is too short.
+ - What you do today creates every tomorrow.
+ - Self-esteem comes from being able to define the world in your own terms and refusing to abide by the judgments of others.
+ - To move forward you have to give back.
+ - Failure is a great teacher and, if you are open to it, every mistake has a lesson to offer.
+ - I believe that every single event in life happens in an opportunity to choose love over fear.
+ - To love yourself is a never-ending journey.
+ - Align your personality with your purpose, and no one can touch you.
+ - You look at yourself and you accept yourself for who you are, and once you accept yourself for who you are you become a better person.
+ - As you become more clear about who you really are, you’ll be better able to decide what is best for you – the first time around.
+ - Every time a child is saved from the dark side of life, every time one of us makes the effort to make a difference in a child’s life, we add light and healing to our own lives.
+ - I believe the choice to be excellent begins with aligning your thoughts and words with the intention to require more from yourself.
+ - You get to know who you really are in a crisis.
+ - Year’s end is neither an end nor a beginning but a going on, with all the wisdom that experience can instill in us. Cheers to a new year and another chance for us to get it right.
+ - Leadership is about empathy.
+ - Once you clarify your purpose for doing something, the way to do it becomes clear.
+ - There’s a difference between thinking you deserve to be happy and knowing that you are worthy of being happy. Your being alive makes worthiness your birthright. You alone are enough.
+ - Appreciating what shows up in your life changes your personal vibration. Gratitude elevates your life to a higher frequency.
+ - Your journey begins with a choice to get up, step out, and live fully.
+ - I want every day to be a fresh start on expanding what is possible.
+ - If friends disappoint you over and over, that’s in large part your own fault. Once someone has shown a tendency to be self-centered, you need to recognize that and take care of yourself; people aren’t going to change simply because you want them to.
+ - This year I am choosing to live beyond my wildest dreams. I wonder where they’ll take me.
+ - Have the courage to follow your passion – and if you don’t know what it is, realize that one reason for your existence on earth is to find it.
+ - The best thing about dreams is that fleeting moment, when you are between asleep and awake, when you don’t know the difference between reality and fantasy, when for just that one moment you feel with your entire soul that the dream is reality, and it really happened.
+ - Truth allows you to live with integrity. Everything you do and say shows the world who you really are. Let it be the Truth.
+ - Living your best life is your most important journey in life.
+ - Everybody has a story. And there’s something to be learned from every experience.
+ - Ask the right questions, and the answers will always reveal themselves.
+ - Alone time is when I distance myself from the voices of the world so I can hear my own.
+ - You are not your circumstances. You are your possibilities. If you know that, you can do anything.
+ - Forgiveness is giving up the hope that the past could have been any different, it’s accepting the past for what it was, and using this moment and this time to help yourself move forward.
+ - If you can see it, and believe it, it is a LOT easier to achieve it.
+ - When you live with an open heart, unexpected, joyful things happen.
+ - If you’re sitting around waiting on somebody to save you, to fix you, to even help you, you are wasting your time because only you have the power to take responsibility to move your life forward.
+ - Anything you can imagine, you can create.
+ - You want to be in the driver’s seat of your own life because if you are not, life will drive you.
+ - You have the RIGHT to change your mind.
+ - I believe luck is preparation meeting opportunity. If you hadn’t been prepared when the opportunity came along, you wouldn’t have been lucky.
+ - So go ahead. Fall down. The world looks different from the ground.
+ - Dream big – dream very big. Work hard – work very hard. And after you’ve done all you can, you stand, wait and fully surrender.
+ - You cannot wait for someone to save you, to help you, to complete you. No one can complete you. You complete yourself.
+ - Follow your passion. Do what you love, and the money will follow. Most people don’t believe it, but it’s true.
+ - No experience is ever wasted. Everything has meaning.
+ - You know you are on the road to success if you would do your job, and not be paid for it.
+ - Your intention rules your life and determines the outcome.
+ - Women of South Africa are some of the most powerful people on Earth. Change what you believe is possible for yourself.
+ - There were no ugly people in Ethiopia.
+ - You are worthy because you were born.
+ - You have a gift that only you can give the world – that’s the whole reason you’re on the planet. Use your precious energy to build a magnificent life that really is attainable. The miracle of your existence calls for celebration every day.
+ - Don’t get confused with what people say you are, with who you know you are.
+ - There is no such thing as failure. Failure is just life trying to move us in another direction.
+ - Courage is feeling the fear and doing it anyway.
+ - Biology is the least of what makes someone a mother.
+ - You will be wounded many times in your life. You’ll make mistakes. Some people will call them failures but I have learned that failure is really God’s way of saying, “Excuse me, you’re moving in the wrong direction.” It’s just an experience, just an experience.
+ - Take five minutes to center yourself in the morning – set your intention every day.
+ - What I know for sure is that every sunrise is like a new page, a chance to right ourselves and receive each day in all its glory. Each day is a wonder.
+ - Nobody but you is responsible for your life. You are responsible for your life. What is your life? What is all life? What is every flower, every rock, every tree? Energy. And you’re responsible for the energy you create for yourself, and you’re responsible for the energy that you bring to others.
+ - Your life is a journey of learning to love yourself first and then extending that love to others in every encounter.
+ - Find a way to get paid for doing what you love. Then every paycheck will be a bonus.
+ - The key to realizing a dream is to focus not on success but significance – and then even the small steps and little victories along your path will take on greater meaning.
+ - You get from the world what you give to the world.
+ - Every day brings a chance for you to draw in a breath, kick off your shoes, and dance.
+ - You define your own life. Don’t let other people write your script.
+ - If you take care of your body, it’ll take care of you.
+ - When you give up on life, never give up on yourself, because there is so much for you to keep on giving!
+ - Follow your feelings. If it feels right, move forward. If it doesn’t feel right, don’t do it.
+ - The way through the challenge is to get still and ask yourself, ‘What is the next right move? What is the next right move?’ and then, from that space, make the next right move and the next right move.
+ - Dream the biggest dream for yourself. Hold the highest vision of life for yourself.
+ - This is your moment. Own it.
+ - Committing to a lifetime of wellness is not a luxury-it’s a necessity. You’ll never have enough time; you have to make the time.
+ - Failing is another stepping-stone to greatness.
+ - What I know for sure is that you feel real joy in direct proportion to how connected you are to living your truth.
+ - God can dream a bigger dream for you than you can dream for yourself, and your role on Earth is to attach yourself to that divine force and let yourself be released to it.
+ - Reading gave me hope.
+ - Learn from every mistake, because every experience, particularly your mistakes, are there to teach you and force you into being more who you are.
+ - Tune out the naysayers, tune into your own courage, and take a bold step toward the passion-filled life you really want.
+ - Can you see me? Can you hear me? Does anything I say mean anything to you?
+ - Always take a stand for yourself, your values. You’re defined by what you stand for.
+ - It’s only when you make the process your goal that the big dream can follow.
+ - Everybody looks at their poop.
+ - Don’t waste your time in the race looking back to see what the other guy is doing. It’s not about the other guy. It’s about what can you do. You just need to run that race as hard as you can. You need to give it everything you’ve got, all the time, for yourself.
+ - In the end, all you have is your reputation.
+ - Devote today to something so daring even you can’t believe you’re doing it.
+ - Become the change you want to see – those are words I live by.
+ - Everybody’s life matters.
+ - If it’s not hard, you’re not dreaming big enough!
+ - Worrying is wasted time. Use the same energy for doing something about whatever worries you.
+ - I’m finally ready to own my own power, to say, “This is who I am.” If you like it, you like it. And if you don’t like it, you don’t. So watch out; I’m gonna fly.
+ - Everybody has a calling. And your real job in life is to figure out as soon as possible what that is, who you were meant to be, and to begin to honor that in the best way possible for yourself.
+ - You become what you believe. You are where you are today in your life based on everything you have believed.
+ - Your soul tells you when it’s time to move on.
+ - Your life’s work is to find your life’s work-and then to exercise the discipline, tenacity, and hard work it takes to pursue it.
+ - When women put their heads together, powerful things can happen!
+ - Taking care of your body, no matter what your age, is an investment.
+ - Whenever you can’t think of something to be grateful for, remember your breath. With each breath you take, you can say, ‘I’m still here.’ Make each day a holiday of thankfulness -and give yourself the gift of gratitude!
+ - Even the wildest dreams have to start somewhere. Allow yourself the time and space to let your mind wander and your imagination fly.
+ - She is the mother I never had, she is the sister everybody would want. She is the friend that everybody deserves. I don’t know a better person.
+ - Understand that the right to choose your own path is a sacred privilege. Use it. Dwell in possibility.
+ - The best way to succeed is to discover what you love and find a way to offer it to others.
+ - The happiness you feel is in direct proportion to the love you give.
+ - Your work speaks for you. Your art defines you.
+ - One percent doubt is zero percent faith.
+ - If it never rained, nothing would grow.
+ - Self-esteem means knowing you are the dream.
+ - What I know for sure is that what you give comes back to you.
+ - Skiing is the next best thing to having wings.
+ - It is confidence in our bodies, minds and spirits that allows us to keep looking for new adventures.
+ - There is no such thing as failure. Mistakes happen in your life to bring into focus more clearly who you really are.
+ - The single greatest thing you can do to change your life today would be to start being grateful for what you have right now. And the more grateful you are, the more you get.
+ - Sometimes you find out what you are supposed to be doing by doing the things you are not supposed to do.
+ - The way to choose happiness is to follow what is right and real and the truth for you. You can never be happy living someone else’s dream. Live your own. And you will for sure know the meaning of happiness.
+ - Failure is a signpost to turn you in another direction.
+ - You are responsible for your life. It doesn’t matter what your Mama did. It doesn’t matter what your Daddy didn’t do. You are responsible for your life.
+ - I was raised to believe that excellence is the best deterrent to racism or sexism. And that’s how I operate my life.
+ - If you peel back the layers of your life-the frenzy, the noise-stillness is waiting. That stillness is you.
+ - Don’t settle for a relationship that won’t let you be yourself.
+ - There is a vision for my life that is greater than my imagination can hold.
+ - When ordinary people decide to do extraordinary things they transform their lives and the lives of others around them.
+ - True self-esteem is realizing that you are valuable because you were born. No matter where you came from, what color your skin is, what people say about your family or what mean things people may have done to you, because you were born, you are important and you matter.
+ - You are the single biggest influence in your life.
+ - Be thankful for what you have; you’ll end up having more.
+ - You are what you are by what you BELIEVE!
+ - There are no mistakes in life!
+ - If you re not speaking your own truth, you will never be able to be all you are meant to be. You cannot be pretending to be somebody else.
+ - Everyone has to learn to think differently, bigger, to open to possibilities.
+ - I am a person who lives my life based on intention. I don’t do anything without intention because intention determines the outcome of your life. It’s like cause and effect.
+ - I have a lot of things to prove to myself. One is that I can live my life fearlessly.
+ - Energy is the essence of life. Every day you decide how you’re going to use it by knowing what you want and what it takes to reach that goal, and my maintaining focus.
+ - I look at problems as opportunities and use every person, every incident, and every encounter as an opportunity to show a more loving part of myself.
+ - If you let it, the noise of the world will drown out the voice of God, which is your intuition.
+ - We’re all looking for the highest, fullest expression of ourselves as a human being.
+ - No gesture is too small when done with gratitude.
+ - What God intended for you goes far beyond anything you can imagine.
+ - When you do your best, people notice.
+ - Books were my pass to personal freedom.
+ - That whisper you keep hearing is the universe trying to get your attention.
+ - I think mentors are important and I don’t think anybody makes it in the world without some form of mentorship. Nobody makes it alone. Nobody has made it alone. And we are all mentors to people even when we don’t know it.
+ - Your life is a reflection of how you think.
+ - Everything in your world is created by what you think.
+ - Every time you state what you want or believe, you’re the first to hear it. It’s a message to both you and others about what you think is possible. Don’t put a ceiling on yourself.
+ - It is very true, that the way you think creates reality for yourself.
+ - We are held accountable for every intention, which is why you are sitting where you are right now.
+ - You aren’t your past, you are probability of your future.
+ - Never give up your power to another person.
+ - No matter where you are on your journey, that’s exactly where you need to be. The next road is always ahead.
+ - What I know for sure is that pleasure is energy reciprocated. What you put out comes back. Your base level of pleasure is determined by how you view your whole life.
+ - I know that you cannot hate other people without hating yourself.
+ - Opportunity may knock only once but temptation leans on the door bell.
+ - It’s not easy being grateful all the time. But it’s when you feel least thankful that you are most in need of what gratitude can give you.
+ - I used to have a fake Louis Vuitton bag because I thought it meant something in life. But now I realize that all the things in the world don’t define you. It’s what you stand for, what you’re willing to do, how close to the truth you’re willing to be in your life.
+ - Everybody matters. Everyone just wants to be heard.
+ - You will survive anything if you live your life from the point of view of truth.
+ - Getting older is the best thing that ever happened to me. I wake up every morning rejoicing that I’m still here with an opportunity to begin again and be better.
+ - No experience is wasted. Everything in life is happening to grow you up, to fill you up, to help you become more of who you were created to be.
+ - Let your light shine. Shine within you so that it can shine on someone else. Let your light shine.
+ - The key is not to worry about being successful, but to instead to work toward being significant – and the success will naturally follow...
+ - People just want to know that they matter.
+ - If you don’t heal the wounds of your childhood, you bleed into the future.
+ - My constant prayer for myself is to be used in service for the greater good.
+ - My business skills have come from being guided by my inner self – my intuition.
+ - Lessons often come dressed up as detours and roadblocks.
+ - Start embracing the life that is calling you and use your life to serve the world.
+ - Just being born makes you worthy enough to be here.
+ - All stress comes from resisting what is.
+ - When you choose the paradigm of service, it turns everything you do from a job into a gift.
+ - The essential question is not, “How busy are you?” but “What are you busy at?”
+ - The struggle of my life created empathy – I could relate to pain, being abandoned, having people not love me.
+ - Although there may be tragedy in your life, there’s always a possibility to triumph. It doesn’t matter who you are, where you come from. The ability to triumph begins with you. Always.
+ - Your gut is your inner compass.
+ - I have incredible stamina- the what-do-I-got-that-they-ain’t-got kind of stamina.
+ - If it doesn’t feel right, don’t do it. That is the lesson, and that lesson alone will save you a lot of grief.
+ - I will just create, and if it works, it works, and if it doesn’t, I’ll create something else. I don’t have any limitations on what I think I could do or be.
+ - That’s what life is: an open door to all that is possible. And that’s a powerful thing.
+ - Right now you are one choice away from a new beginning.
+ - When you educate a girl, you begin to change the face of a nation.
+ - You were seen, you were heard and you matter.
+ - Allowing the truth of who you are-your spiritual self-to rule your life means you stop the struggle and learn to move with the flow of your life.
+ - The work of your life is to discover your purpose and get on with the business of living it out.
+ - The next road is always ahead.
+ - The truth is I have from the very beginning listened to my instincts. All of my best decisions in life have come because I was attuned to what really felt like the next right move for me.
+ - Often intuition will direct you. If it feels right, it’s probably right.
+ - Keeping a journal will change your life in ways that you’d never imagine.
+ - Love is a lesson worth learning.
+ - The commonality in the human experience is the same. We have the same sorrows, and the same triumphs. Joy is joy is joy.
+ - I’m a truth seeker. That’s what I do every day on the show – put out the truth. Some people don’t like it, they call it sensational, but I say life is sensational.
+ - Every birthday, you decide whether to mark it the end of your greatest days or the beginning of your finest hour.
+ - Your greatest power is to show love, to receive love and to be love.
+ - You only have to believe that you can succeed, that you can be whatever your heart desires, be willing to work for it, and you can have it.
+ - When your life is on course with it’s purpose, you are your most powerful.
+ - Don’t wait for someone else to complete you. ‘Jerry Maguire’ was just a movie.
+ - What I find powerful is a person with the confidence to be her own self.
+ - If things go wrong and you hit a dead end-as you will-it’s just life’s way of saying it’s time to change course.
+ - One of the biggest mistakes humans make is to believe there is only one way. There are many diverse paths leading to what you call God.
+ - What I’ve learned about being angry with people is that it generally hurts you more than it hurts them.
+ - If something feels right, I do it. If it feels wrong, I don’t. It’s really very, very simple, but you’ve got to be willing to take your chances doing stuff that may look crazy to other people – or not doing something that looks right to others but just feels wrong to you.
+ - Death shows up to remind us to live more fully.
+ - Even in bad times, always say thank you. Whatever you are going through, God is using you to get through. God has already put a rainbow in the cloud.
+ - Dare to be different. Be a pioneer. Be a leader. Be the kind of woman who in the face of adversity will continue to embrace life and walk fearlessly toward the challenge.
+ - What matters is how you feel inside, because feeling beautiful on the inside is key to looking good.
+ - The miracle of your existence calls for celebration every day.
+ - You have two choices: You can come down from the mountain and spend the rest of your days thinking it was so beautiful there, or you can create a vision, look upward, see the next mountain, and start the climb all over again.
+ - Real success means creating a life of meaning through service that fulfills your reason for being here.
+ - I see all art as a complement to telling people’s stories. I’m in the storytelling business. I believe that the humanity that all of us share is the stories of our lives, and everybody has a story. Your story is as important as the next person’s story.
+ - What I know for sure is that the only way to endure the quake is to adjust your stance. You can’t avoid the daily tremors. Don’t fight them. Just find a different way to stand.
+ - I finally realized that being grateful to my body was key to giving more love to myself.
+ - Your life is big. Keep reaching.
+ - We create stress for ourselves because you feel like you have to do it. You have to. I don’t feel that anymore.
+ - If you neglect to recharge a battery, it dies. And if you run full speed ahead without stopping for water, you lose momentum to finish the race.
+ - One of the things that I encourage for anybody who is interested in their own charity or philanthropy is to start from where you are and what has mattered to you.
+ - Make the right decision even when nobody’s looking and you will always turn out okay.
+ - Bravery shows up in everyday life when people have the courage to live their truth, their vision and their dreams.
+ - It isn’t until you come to a spiritual understanding of who you are – not necessarily a religious feeling, but deep down, the spirit within – that you can begin to take control.
+ - When you know who you are and what you stand for, you stand in wisdom.
+ - I believe that there are forces of light and darkness in the world, and I don’t want to be a contributor to the force of darkness.
+ - Purpose is the thread that connects the dots to everything you do that leads you to an extraordinary life.
+ - I can’t imagine I could have become the person I am now without books. Books became synonymous with freedom. They showed that you could open doors and walk through.
+ - Mr. Right is coming, but he’s in Africa and he’s walking.
+ - There is a lesson in almost everything that you do, and getting the lesson is how you move forward. It is how you enrich your spirit.
+ - Your gut is your inner compass. Whenever you have to consult with other people for an answer, you’re headed in the wrong direction.
+ - Honor your calling. Everybody has one. Trust your heart and success will come to you.
+ - Books showed me there were possibilities in life, that there were actually people like me living in a world I could not only aspire to but attain. Reading gave me hope. For me, it was the open door.
+ - Don’t worry about being successful. Worry about being significant.
+ - I am a woman in process. I’m just trying like everybody else. I try to take every conflict, every experience, and learn from it. Life is never dull.
+ - I don’t believe in failure. It is not failure if you enjoyed the process.
+ - Being a mother is the hardest job on earth. Women everywhere must declare it so.
+ - A gift isn’t a gift unless it has meaning. Just giving things to people, especially children, create the expectation of more things.
+ - I don’t think of myself as a poor deprived ghetto girl who made good. I think of myself as somebody who from an early age knew I was responsible for myself, and I had to make good.
+ - Step through new doors. The majority of the time there’s something fantastic on the other side.
+ - All the money in the world doesn’t mean a thing if you don’t have time to enjoy it.
+ - I believe that one of life’s greatest risks is never daring to risk.
+ - You can’t do it all yourself. Don’t be afraid to rely on others to help you accomplish your goals.
+ - The secret to being successful is to find a way to bring yourself through, even in your stories. People are looking for the essence of your truth. When you can bring your own truth to it, that’s when it works.
+ - It’s all about dreams. If I had to attribute my success in life to any one thing it is this. I believed in my dreams, even when no one else did.
+ - Intent and service-that is my motto.
+ - You have to be responsible for the energy you’re putting out into the world.
+ - Nothing happens until you decide.
+ - The way to choose happiness is to follow what is right and real and the truth for you.
+ - I choose to rise up out of that storm and see that in moments of desperation, fear, and helplessness, each of us can be a rainbow of hope, doing what we can to extend ourselves in kindness and grace to one another. And I know for sure that there is no them – there’s only us.
+ - Joy is a sustained sense of well-being and internal peace – a connection to what matters.
+ - The future is full of possibility, whether you make one tiny change – or a whole invigorating, thrilling, inspiring bunch of them.
+ - What has made me successful is the ability to surrender my plans, dreams and goals to a power that’s greater than other people and greater than myself.
+ - It’s great to have a private jet. Anyone that tells you that having your own private jet isn’t great is lying to you.
+ - No matter how diligent or persistent you have been, there is not one of us who made this journey toward success by ourselves.
+ - My first day in Chicago, September 4, 1983. I set foot in this city, and just walking down the street, it was like roots, like the motherland. I knew I belonged here.
+ - You really haven’t changed, you’ve just become more of yourself. That is really what were all trying to do: become more of ourselves.
+ - Doubt means don’t. Don’t move. Don’t answer. Don’t rush forward.
+ - People never fail to amaze me. They face the unimaginable with a shot of grace and a rush of adrenaline; they steel their nerves; they summon their cool or anger or faith or whatever it takes to pull them through, and they go on to live another day.
+ - Getting my lifelong weight struggle under control has come from a process of treating myself as well as I treat others in every way.
+ - I’ve often called mothers the greatest spiritual teachers in the world.
+ - Be more splendid, more extraordinary. Use every moment to fill yourself up.
+ - Ordinary people can bring about change.
+ - Our beliefs can move us forward in life, or they can hold us back.
+ - Every time you suppress some part of yourself or allow others to play you small, you are in essence ignoring the owner’s manual your creator gave you and destroying your design.
+ - When you learn to say thank you, you see the world anew.
+ - If you want to accomplish the goals of your life, you have to begin with the spirit.
+ - Keep a grateful journal. Every night, list five things that you are grateful for. What it will begin to do is change our perspective of your day and your life.
+ - I am grateful for the blessings of wealth, but it hasn’t changed who I am. My feet are still on the ground. I’m just wearing better shoes.
+ - What I know is, if you do work that you love, and work that fulfills you, the rest will come. I truly believe the reason I’ve been so financially successful is because my focus has never been on the money.
+ - We are not Human Beings experiencing spiritual lives, we are spiritual beings experiencing human lives.
+ - The reason I’ve been able to be so financially successful is my focus has never, ever for one minute been money.
+ - All trials force the question, Who are you really? And you must trust yourself to answer.
+ - You cannot be loving when you are blaming. You cannot be loving when you are criticising. You cannot be loving when you are judging.
+ - The stories that you tell yourself can make or break you – no matter who you are.
+ - Be quiet. Part of your responsibility is to honour the quiet inside yourself so you can hear the call.
+ - I remember a specific moment, watching my grandmother hang the clothes on the line, and her saying to me, ‘you are going to have to learn to do this,’ and me being in that space of awareness and knowing that my life would not be the same as my grandmother’s life.
+ - You do what you have to do to get through today, and that puts you in the best place tomorrow.
+ - Transforma as tuas feridas em sabedoria!
+ - The greatest lesson of life is that you are responsible for your life.
+ - Take the ideas that speak to you. Use your imagination. Create something wonderful.
+ - The best work we can all do is create the highest vision possible for our lives and be led by that vision to the greatest good.
+ - All of life is energy and we are transmitting it at every moment.
+ - I cannot be defined by what other people think.
+ - When people say they are looking for happiness, I ask, What are you giving to the world?
+ - That’s really what wealth does for you. It gives you freedom to make choices.
+ - Take what you can do and use it for the highest good to benefit others.
+ - If all this happened to you what paradigm might you develop? How might that paradigm affect you in terms of your life from that point on? What does this tell you about Abe? There are no failures, only lessons to be learned.
+ - What you want to do is to get to the point where you only do what matters to you. The real goal in life is to become more of who you are, so that you can make the choices that really satisfy who you are and what you want to do.
+ - Live from the heart of yourself.
+ - You are here to do something you are uniquely created for. No one else can do it like you can, that’s why you’re here.
+ - I’ve learned not to worry about what might come next.
+ - If you want to feel good, you have to go out and do some good.
+ - If you believe you can only go so far, it is an obstacle.
+ - I started out giving thanks for small things, and the more thankful I became, the more my bounty increased.
+ - If you allow yourself to breathe into the depth, wonder, beauty, craziness, and strife everything that represents the fullness of your life you can live fearlessly. Because you come to realize that if you just keep breathing, you cannot be conquered.
+ - Think about any attachments that are depleting your emotional reserves. Consider letting them go.
+ - If you feel incomplete, you alone must fill yourself with love in all your empty shattered spaces.
+ - You can either waltz boldly onto the stage of life and live the way you know your spirit is nudging you to, or you can sit quietly by the wall, receding into the shadows of fear and self doubt.
+ - Making other people happy is what brings me happiness. I have a blessed life, and I have always shared my life’s gifts with others. I will continue to use my voice and my life as a catalyst for encouraging people to help make a difference in the lives of others.
+ - What I know for sure is that if you can survive 11 days in cramped quarters with a friend and come out laughing, your friendship is the real deal. I know ours is.
+ - Whatever you fear most has no power – it is your fear that has the power. The thing itself cannot touch you. But if you allow your fear to seep into your mind and overtake your thoughts, it will rob you of your life.
+ - Remember, you are co-creating your life with the energy of your own intentions.
+ - If you come to fame not understanding who you are, it will define who you are.
+ - Anybody pretending to be anything other than who you really are-you will never, ever reach your personal potential.
+ - The roles we play in each other’s lives are only as powerful as the trust and connection between us – the protection, safety, and caring we are willing to share.
+ - There’s a level of disrespect for the office that occurs. And that occurs in some cases and maybe even many cases because he’s African American. There’s no question about that and it’s the kind of thing nobody ever says but everybody’s thinking it.
+ - The only courage you will need is the courage to live the life you are meant to.
+ - When you educate a woman, you set her free. Had I not had books and education in Mississippi, I would have believed that’s all there was.
+ - I trust in the ebb and flow of the universe. I trust that life’s bigger than what I can see. I trust that there is a divine order beyond my control. And I trust that no matter what happens, I will be all right.
+ - Gratitude is the single greatest treasure I will take with me from this experience.
+ - I believe in the power that not only allows the sun to rise but turns seeds into flowers and dreams into realities.
+ - The chance to love and be loved exists no matter who or where you are.
+ - The reason I gained so much weight in the first place and the reason I had such a sorry history of abusive relationships with men was I just needed approval so much. I needed everyone to like me, because I didn’t like myself much.
+ - Check your ego at the door and check your gut instead. Every right decision I have ever made has come from my gut. Every wrong decision I’ve made was the result of me not listening to the greater voice of myself.
+ - I believe the choice to become a mother is the choice to become one of the greatest spiritual teachers there is.
+ - My father turned my life around insisting I be more than I was and by believing I could be more.
+ - I’m not even kind of a lesbian.
+ - Nothing is ever wrong. We learn from every step we take. Whatever you did today was the way it was meant to be. Be proud of you.
+ - Joy is one part inner peace, one part giddy delight and 100% attainable.
+ - I’ve always believed free will is a birthright. God even allows us to choose whether to be led by the divine order.
+ - I tried to empty myself and let the spirit of Sethe inhabit me.
+ - You don’t have a man, you need spaghetti.
+ - Having the courage to stand up and pursue your dreams will give you life’s greatest reward and life’s greatest adventure.
+ - You become what you believe. And to believe that you are created by the power that’s greater than yourself means anything is possible.
+ - I try to live in the moment and let that moment carry me to the next great place.
+ - What I know for sure: Often we don’t even realize who we’re meant to be because we’re so busy trying to live out someone else’s ideas. But other people and their opinions hold no power in defining our destiny.
+ - I always knew I’d be a millionaire by age thirty-two. In fact, I am going to be the richest black woman in America.
+ - You can’t accomplish anything worthwhile if you inhibit yourself. If life teaches you nothing else, know this for sure: When you get the chance, go for it.
+ - I believe that education is freedom. It provides the tools to affect one’s own destiny.
+ - Tithe in kind where your spirit is fed.
+ - Happiness is there for the taking – and the making.
+ - I still have my feet on the ground, I just wear better shoes.
+ - What other people label or might try to call failure, I have learned is just God’s way of pointing you in a new direction.
+ - I had no idea that being your authentic self could make me as rich as I’ve become. If I had, I’d have done it a lot earlier.
+ - The thrill is to keep envisioning what can be.
+ - I am the seed of the free, and I know it. I intend to bear great fruit.
+ - I am where I am because of the bridges I have crossed.
+ - Do not waste your time with people who have shown you they really mean no good for you.
+ - The ultimate comfort zone is within.
+ - For years I’ve advocated keeping a gratitude journal, writing down five things every day that brought pleasure and gratefulness.
+ - It took a lot of courage to take the high road, but I would rather be significant with six million people watching a show with meaning, than everyone watching a show with no meaning.
+ - Nobody’s journey is seamless or smooth. We all stumble. We all have setbacks. It’s just life’s way of saying, ‘Time to change course.’
+ - Difficulties come when you don’t pay attention to life’s whisper. Life always whispers to you first, but if you ignore the whisper, sooner or later you’ll get a scream.
+ - You are awareness disguised as a human being.
+ - What I know for sure: Having the best things is no substitute for having the best life. When you can let go of the desire to acquire, you know you are really on your way.
+ - I didn’t just fall off the wagon. I let the wagon fall on me.
+ - I’ve come to believe that each of us has a personal calling that’s as unique as a fingerprint.
+ - I believe everyday your life speaks to you – through every experience, through the people you meet, and even through pain, fear and self-doubt.
+ - In order to be truly happy, you must live along with, and you must stand for something larger than yourself.
+ - My idea is to give hope, because where there is no hope, there is no vision, and where there is no vision, people will perish.
+ - When you run a race, you hurt your ability to compete when you turn your head to look at the competition chasing you, you lose a step physically and psychologically. Run the race always stretching to do your best, imitations will come in last, no one can catch an original.
+ - Inner wisdom is more important than wealth. The more you spend it, the more you gain.
+ - If you seek what is honorable, what is good, what is the truth of your life, all the other things you could not imagine come as a matter of course.
+ - One of my best moves is to surround myself with friends who, instead of asking, ‘Why?’ are quick to say, ‘Why not?’ That attitude is contagious.
+ - Whatever someone did to you in the past has no power over the present. Only you give it power.
+ - My idea of heaven is a great big baked potato and someone to share it with.
+ - The best of times is now.
+ - You are always walking in the direction of either love or fear. Choose wisely.
+ - The surest way to bring goodness to yourself is to make it your intention to do good for somebody else.
+ - Making a Different Choice Gives You the Opportunity to Live a Different Life.
+ - Living in the moment brings you a sense of reverence for all of life’s blessings.
+ - Every choice in life either moves you forward or keeps you stuck.
+ - Following your heart’s desire will lead you in the direction your spirit wants to go.
+ - People make things happen. All the rest is just window dressing.
+ - Not like I need an excuse to enjoy a Moscow mule, but this tray and six-mug set, handmade in Mexico with hammered recycled copper, makes cocktail hour extra special.
+ - When you learn, teach. When you get, give. Maya Angelou taught me that.
+ - When I woke up in the morning and look in the mirror I realise that one of the reasons I don’t own a handgun is, I would have shot my thighs off years ago.
+ - When you’re doing the work you’re meant to do, it feels right and every day is a bonus, regardless of what you’re getting paid.
+ - I don’t think you ever stop giving. I really don’t. I think it’s an on-going process. And it’s not just about being able to write a check. It’s being able to touch somebody’s life.
+ - I have created a life by stepping out of the box of people’s limitations. I call it zigging when others are zagging.
+ - I’m black, I don’t feel burdened by it and I don’t think it’s a huge responsibility. It’s part of who I am. It does not define me.
+ - I’m easy to look at, but so hard to see.
+ - There is no paycheck that can equal the feeling of contentment that comes from being the person you are meant to be.
+ - If I lost control of the business I’d lose myself-or at least the ability to be myself. Owning myself is a way to be myself.
+ - To this day I always say my prayers on my knees ’cause I think maybe they get there sooner.
+ - You cannot continue to succeed in the world or have a fulfilling life in the world unless you choose to use your life in the service somehow to others and give back what you have been given. That’s how you keep it. That’s how you get it. That’s how you grow it.
+ - I think that when you invite people to your home, you invite them to yourself.
+ - The best way to look at aging is to see it as an opportunity to leave what didn’t work behind and step boldly into a brand new future.
+ - I know that I am more than my personality, my body, and my body image.
+ - We need to deprogram ourselves. I know for sure that you can’t give what you don’t have. If you allow yourself to be depleted to the point where your emotional and spiritual tank is empty and you’re running on fumes of habit, everybody loses. Especially you.
+ - The pathway to your best life isn’t the route of denial. It’s owning every moment.
+ - There is no greater source of strength and power for me in my life than going still, being quiet and recognizing what real power is.
+ - I have a sense of greatness, which comes from feeling that I’m doing what I’m supposed to be doing on the planet – empowering people, especially women.
+ - What you put out is already on its way back to you.
+ - I truly understand that there is a lesson in everything that happens to us. So I tried not to spend my time asking “Why did this happen to me?” but trying to figure out why I had chosen this.
+ - The key to realizing a dream is to focus not on success but significance.
+ - All pain is the same.
+ - To play down mothering as small is to crack the very foundation on which greatness stands.
+ - There is no easy way out. If there were, I would have bought it. And believe me, it would be one of my favorite things!
+ - As you become more clear about who...
+ - Every one of us gets through the tough times because somebody is there, standing in the gap to close it for us.
+ - There’s a surge, there’s a kind of energy field that says, ‘I’m in my groove, I’m in my groove.’ and nobody has to tell you, ‘You go, girl,’ because you know you’re already gone.
+ - Wow, wow, wow! I never imagined meatless meals could be so satisfying.
+ - Be loving to yourself and others will see that love reciprocated. This rule works every time.
+ - In every aspect of our lives, we are always asking ourselves, How am I of value? What is my worth? Yet I believe that worthiness is our birthright.
+ - Duct tape is like the force. It has a light side, and it holds the world together.
+ - If you’re hurting, you need to help somebody else ease their hurt. If you’re in pain, help somebody else’s pain.
+ - I know for sure that appreciating whatever shows up for you in life changes your personal vibration. You radiate and generate more goodness for yourself when you’re aware of all you have and not focusing on your have-nots.
+ - Here’s what my love affair with quotations has taught me: the more you focus on words that uplift you, the more you embody the ideas contained in those words.
+ - I want to use television not only to entertain, but to help people lead better lives.
+ - You know that old joke about the guy who lives to be 104? The punch line goes something like ‘If I knew I was gonna get this old, I’d have taken much better care of myself.’ Well, guess what? We actually are living longer, and the time to start taking care of ourselves is right this minute.
+ - I interviewed – no – had lunch with Harper Lee several years ago, trying to convince Harper Lee to do “To Kill a Mockingbird” for the book club. She wouldn’t do it. She said, “Honey, I said everything I wanted to say.”
+ - The deepest courage we can exercise is continuing to believe in our dreams until we make them come true.
+ - Connect. Embrace. Liberate. Love somebody. Just one person. And then spread that to two. And as many as you can. You’ll see the difference it makes.
+ - Use what you have to run toward your best – that’s how I now live my life.
+ - Failure is life at it’s most poignant and it’s only there to push you in the right direction.
+ - All life is energy and we are transmitting it at every moment. We are all little beaming little signals like radio frequencies, and the world is responding in kind.
+ - People have power to make a difference in their lives.
+ - Don’t put a ceiling on yourself.
+ - I’ve learned that you can’t have everything and do everything at the same time.
+ - What I know for sure is that behind every catastrophe, there are great lessons to be learned. Among the many that we as a country need to get is that as long as we play the “us and them” game, we don’t evolve as people, as a nation, as a planet.
+ - Let not one single life have passed in vain. What really matters is who you love and how you love.
+ - Spirituality for me is recognizing that I am connected to the energy of all creation, that I am a part of it and it is always a part of me.
+ - Every choice gives you a chance to pave your own road. Keep moving. Full speed ahead.
+ - When I didn’t have friends, I had books.
+ - I don’t think there’s anything better you can do in this world than bring light wherever you go.
+ - Balance lives in the present. The surest way to lose your footing is to focus on what dreadful things might happen.
+ - I was happy over little things: mango sorbet, and running, and the way my feet felt touching the ground when I ran.
+ - It doesn’t take a lot to make me happy. I take pleasure from everything I do.
+ - It’s up to each of us to get very still and say, ‘This is who I am.’ No one else defines your life. Only you do.
+ - If I say, ‘Oh nice,’ about seven times in the same show, things aren’t going well.
+ - Whatever your calling or purpose is, it’s your job to feel it. No gift that you have been given was made for yourself.
+ - I believe that everyone is the keeper of a dream – and by tuning into one another’s secret hopes, we can become better friends, better partners, better parents, and better lovers.
+ - Life isn’t about what you have but what you have to give.
+ - Well, I am a Christian who believes that there are certainly many more paths to God other than Christianity.
+ - Personally, I think if a women hasn’t met the right man by the time she’s 24, she may be lucky.
+ - Failure is just a way for our lives to show us we’re moving in the wrong direction, that we should try something different.
+ - Other people and their opinions hold no power in defining our destiny.
+ - Go ahead: Live with abandon. Be outrageous at any age. What are you saving your best self for?
+ - When I was a kid and the other kids were home watching “Leave it to Beaver,” my father and step-mother were marching me off to the library.
+ - You really can change. Your reality is based on the way you think.
+ - What least makes a mother is biology.
+ - The roses, the lovely notes, the dining and dancing are all welcome and splendid. But when the Godiva is gone, the gift of real love is having someone who’ll go the distance with you. Someone who, when the wedding day limo breaks down, is willing to share a seat on the bus.
+ - It’s time for us as a country to try to come together in ways that freedom was really meant to be.
+ - I pray to be used in service to a greater purpose higher than my own.
+
+500 quotes

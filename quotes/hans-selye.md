@@ -1,0 +1,30 @@
+ - Adopting the right attitude can convert a negative stress into a positive one.
+ - Its not stress that kills us, it is our reaction to it.
+ - To be totally without stress is to be dead.
+ - Stress is the spice of life.
+ - Complete freedom from stress is death.
+ - To make a great dream come true, you must first have a great dream.
+ - As much as we thirst for approval we dread condemnation.
+ - Stress, in addition to being itself, was also the cause of itself, and the result of itself.
+ - Nothing erases unpleasant thoughts more effectively than conscious concentration on pleasant ones.
+ - The healthiest of all human emotions is gratitude.
+ - Stress is not necessarily something bad it all depends on how you take it. The stress of exhilarating, creative successful work is beneficial, while that of failure, humiliation or infection is detrimental.
+ - Man should not try to avoid stress any more than he would shun food, love or exercise.
+ - Every stress leaves an indelible scar, and the organism pays for its survival after a stressful situation by becoming a little older.
+ - Leaders are leaders only as long as they have the respect and loyalty of their followers.
+ - Mental tensions, frustrations, insecurity, aimlessness are among the most damaging stressors, and psychosomatic studies have shown how often they cause migraine headache, peptic ulcers, heart attacks, hypertension, mental disease, suicide, or just hopeless unhappiness.
+ - Gratitude is the most important of all human emotions.
+ - To remain healthy a man must have some goal, some purpose in life that he can respect and be proud to work for.
+ - My advice to any young person at the beginning of their career is to try to look for the mere outlines of big things with their fresh, untrained and unprejudiced mind.
+ - If you want to live a long life, focus on making contributions .
+ - Gratitude conserves the vital energies of a person more than any other attitude tested.
+ - The true scientist never loses the faculty of amazement.
+ - The builder of the best racing car is not necessarily its best driver.
+ - Almost no germ is unconditionally dangerous to man; its disease-producing ability depends upon the body’s resistance.
+ - Even after the greatest defeats, the depressing thought of being a failure is best combated by taking stock of all your past achievements.
+ - The element of chance in basic research is overrated. Chance is a lady who smiles only upon those few who know how to make her smile.
+ - Who would enjoy a life of no runs, no hits, no errors?
+ - Unlock your natural drives by doing what you enjoy.
+ - Indeed, not all attacks-especially the bitter and ridiculing kind leveled at Darwin-are offered in good faith, but for practical purposes it is good policy to assume that they are.
+
+28 quotes

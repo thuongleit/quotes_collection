@@ -1,0 +1,27 @@
+ - I wasn’t the kind of kid who would get A’s without even trying. I had to work to get good grades, but I was very organised about it because I always wanted to do well at everything I did. I’m very competitive.
+ - It’s quite funny in that I once won Rear of the Year at my school! I was about 17 in the sixth form and we used to have an end of year celebration and give out different awards. I even got a little trophy!
+ - It’s really important for me to look good before a race. I definitely think if I feel I look good, it makes me feel more confident.
+ - My idea of beauty is somebody that doesn’t have to try too much, someone who is effortless and fresh.
+ - Things have changed so much, with Facebook and Twitter. Everyone is so much more accessible these days: no British athlete has ever experienced what we are experiencing now. It’s such a unique situation with the home Olympics.
+ - I’m proud of the way I’ve dealt with setbacks. It’s hard when you feel down and you think, ‘Why is the world doing this to me?’ But you have to pick yourself up again. That’s what makes you a better athlete.
+ - I just love thinking about what makes people tick.
+ - One minute you’re a developing athlete trying to get to the top, then the next minute you do well and win a medal somewhere, and then it’s all foisted on you. You never know when it’s going to happen. You don’t think about the media side of things when you’re a young athlete trying to do well.
+ - On a scale of one to 10, I’d rate my body confidence as a good seven. Everyone has their hang-ups, but I see my body as a training tool and I feel good about it.
+ - Training is full-on. Some days I really don’t want to get out of bed and hit that track again. Sunday and Monday morning sessions are always horrible. But who really looks forward to going to work on a Monday morning?
+ - People think the gold medal is yours and they say you’re going to win – but they have no idea how hard it is. People aren’t doing it negatively – they’re mostly lovely and they really do want you to win – but they don’t understand the difficulty and intensity of competition.
+ - To unwind after training, I love to have a long hot soak in the bath, then veg out on the sofa with a box set. I’m a box-set junkie! I absolutely love ‘Grey’s Anatomy.’
+ - I carry a golf ball to put under my feet when they get tight, and a Thera-Band for general stretching.
+ - To get the adrenaline pumping between events – or to help me switch off, Jay Z, the Roots and Drake are on my playlist.
+ - We always spend more time on the throwing events and a little bit more on the long jump. They’re my weaker events – they don’t come as naturally to me as running and jumping. I like the hurdles and the high-jump, I’m a springy, speedy athlete so those suit me.
+ - People who aren’t perhaps that into sport are going to be following me and wanting to be part of the Olympics. That definitely does bring added pressure but as an athlete the Olympics are the ultimate competition.
+ - After my first day of competition I put on compression socks. They help me recover for the next day.
+ - I think there’s going to be pressure on all the British athletes. It’s a home Olympics at the end of the day. I like adrenaline, that’s something I feed off. I’m just going to go out there and do my best.
+ - I learned what I need to do in the long jump, what I needed to do in the javelin and I’ve been able to rectify those events. It’s been a bit of a learning curve, which is good.
+ - I love getting dressed up for red carpet events and having my hair and makeup done professionally – that definitely helps with nerves of going down the red carpet.
+ - I was around 15 when I first wanted to compete in an Olympics. I even remember the first time I got to wear a GB kit as a junior. I’ve even kept it. It’s in my mum’s loft somewhere, probably gone mouldy by now.
+ - I want to experience that massive adrenalin rush when you step into a new stadium, all the more so when that Olympic Stadium is packed full of people waving British flags.
+ - I don’t look at Twitter between events because it’s a distraction but I will ring my fiance and parents to let them know how it’s going.
+ - I don’t want to think of life after competing. But if I were to do anything else I’d go down the psychology route. That’s what interests me.
+ - I do watch what I eat but I’ve got a real sweet tooth.
+
+25 quotes

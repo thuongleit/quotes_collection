@@ -1,0 +1,22 @@
+ - To die on a dying Earth – I’d live, if only to weep.
+ - I’m not a girl. I’m a genius.
+ - I think we ought to decide that man-hating is not only respectable but honorable. To be a misandrist a woman needs considerable ingenuity, originality, and resilience. A misogynist requires no such resources.
+ - Ignorance is not bad faith. But persistence in ignorance is.
+ - As my mother once said: The boys throw stones at the frog in jest. But the frogs die in earnest.
+ - There are plenty of images of women in science fiction. There are hardly any women.
+ - I once asked a young dissertation writer whether her suddenly grayed hair was due to ill health or personal tragedy; she answered: “It was the footnotes”.
+ - Privileged groups, like everyone else, want to think well of themselves and to believe that they are acting generously and justly.
+ - How withered away one can be from a life of unremitting toil.
+ - There are more whooping cranes in the United States of America than there are women in Congress.
+ - To act in a way both sexist and racist, to maintain one’s class privilege, it is only necessary to act in the customary, ordinary, usual, even polite manner.
+ - Minority art, vernacular art, is marginal art. Only on the margins does growth occur.
+ - The trouble with men is that they have limited minds. That’s the trouble with women, too.
+ - Sit a man on his ass with nothing to do but eat and the first thing that goes is his mind. It never fails.
+ - When the memory of one’s predecessors is buried, the assumption persists that there were none and each generation of women believes itself to be faced with the burden of doing everything for the first time. And if no one ever did it beforewhy do we think we can succeed now?
+ - When one culture has the big guns and the other has none, there is a certain predictablity about the outcome.
+ - The demon got up. The demon said Fool. To think you can eat their food and not talk to them. To think you can take their money and not be afraid of them. To think you can depend on their company and not suffer from them.
+ - I didn’t and don’t want to be a ‘feminine’ version or a diluted version or a special version or a subsidiary version or an ancillary version, or an adapted version of the heroes I admire. I want to be the heroes themselves.
+ - Real artists, it seems to me, are those who don’t repeat themselves.
+ - Art is collective. Always, it has a tradition behind it.
+
+20 quotes

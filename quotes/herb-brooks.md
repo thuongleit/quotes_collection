@@ -1,0 +1,25 @@
+ - Great moments are born from great opportunities.
+ - Risk something or forever sit with your dreams.
+ - Write your own book instead of reading someone else’s book about success.
+ - You can’t be common, the common man goes nowhere; you have to be uncommon.
+ - This, is your time! Now go out there and take it!
+ - The name on the front is a hell of a lot more important than the one on the back.
+ - You were born to be a player. You were meant to be here. This moment is yours.
+ - Success is won by those who believe in winning and then prepare for that moment.
+ - You don’t have enough talent to win on talent alone.
+ - Let me start with issuing you a challenge: Be better than you are. Set a goal that seems unattainable, and when you reach that goal, set another one even higher.
+ - Win, lose, or tie, you’re gonna play like champions!
+ - If you give 99 percent, you will make my job very easy.
+ - When you pull on that jersey, you represent yourself and your teammates, and the name on the front is a hell of a lot more important than the one on the back. Get that through your head!
+ - You win with people, not with talent. So the quality of the people is very important in building your team. I always looked for people with a solid value system. Then I recruited kids from a cross-section of different personalities, talents and styles of play.
+ - You must have goals in your life, or otherwise be prepared to be used by those who do have them.
+ - And maybe I’m a little smarter now than I was before for all the stupid things I’ve done.
+ - What is courage? Let me tell you what I think it is. An indefinable quality that makes a man put out that extra something, when it seems there is nothing else to give. I dare you to be better than you are. I dare you to be a thoroughbred.
+ - This is your moment. You’re meant to be here.
+ - We should be dreaming. We grew up as kids having dreams, but now we’re too sophisticated as adults, as a nation. We stopped dreaming. We should always have dreams.
+ - You’re only as good as your values.
+ - Maybe I’m sort of like the players – there’s still a lot of little boy in me.
+ - If I’d have went on the ice when this thing happened, someone would have speared me or something. It’s a great feeling of accomplishment and pride. They had to do it; it was their moment.
+ - Everything goes in cycles, to a degree.
+
+23 quotes

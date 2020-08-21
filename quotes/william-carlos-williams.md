@@ -1,0 +1,112 @@
+ - It is difficult to get the news from poems, yet men die miserably every day for lack of what is found there.
+ - When I am alone I am happy.
+ - We sit and talk quietly, with long lapses of silence, and I am aware of the stream that has no language, coursing beneath the quiet heaven of your eyes, which has no speech.
+ - It is not what you say that matters but the manner in which you say it; there lies the secret of the ages.
+ - No ideas but in things.
+ - If they give you lined paper, write the other way.
+ - Love is a young green willow shimmering at the bare wood’s edge.
+ - What power has love but forgiveness? In other words by its intervention what has been done can be undone. What good is it otherwise?
+ - You lethargic, waiting upon me, waiting for the fire and I attendant upon you, shaken by your beauty Shaken by your beauty Shaken.
+ - A poem is a small machine made out of words.
+ - It is not fair to be old, to put on a brown sweater.
+ - Empty pockets make empty heads.
+ - I think all writing is a disease. You can’t stop it.
+ - That which is possible is inevitable.
+ - Time is a storm in which we are all lost.
+ - Poets are damned but they are not blind, they see with the eyes of angels.
+ - And yet one arrives somehow, finds himself loosening the hooks of her dress in a strange bedroom – feels the autumn dropping its silk and linen leaves about her ankles. The tawdry veined body emerges twisted upon itself like a winter wind.
+ - It is at the edge of a petal that love waits.
+ - The American idiom has much to offer us that the English language has never heard of.
+ - The poem is a capsule where we wrap up our punishable secrets.
+ - As the rain falls so does your love bathe every open object of the world.
+ - But the sea which no one tends is also a garden.
+ - Poe gives the sense for the first time in America, that literature is serious, not a matter of courtesy but of truth.
+ - My surface is myself. Under which to witness, youth is buried. Roots? Everybody has roots.
+ - Among of green stiff old bright broken branch come white sweet May again.
+ - Hell take curtains! Go with some show of inconvenience; sit openly – to the weather as to grief. Or do you think you can shut your grief in?
+ - It’s a strange courage you give me ancient star: Shine alone in the sunrise toward which you lend no part!
+ - Hold back the edges of your gown, Ladies, we are going through hell.
+ - The Moon, the dried weeds and the Pleiades – Seven feet tall the dark, dried weed stalks make a part of the night a red lace on the milky blue sky.
+ - Say it, no ideas but in things – nothing but the blank faces of the houses and cylindrical trees bent, forked by preconception and accident – split, furrowed, creased, mottled, stained – secret – into the body of the light!
+ - History, history! We fools, what do we know or care.
+ - The descent beckons as the ascent beckoned.
+ - Love is unworldly and nothing comes of it but love.
+ - Man has survived hitherto because he was too ignorant to know how to realise his wishes- Now that he can realise them, he must either change them or perish.
+ - Lifeless in appearance, sluggish dazed spring approaches They enter the new world naked, cold, uncertain of all save that they enter.
+ - For what we cannot accomplish, what is denied to love, what we have lost in the anticipation a descent follows, endless and indestructible.
+ - I’ll write whatever I damn please, whenever I damn please and as I damn please and it’ll be good if the authentic spirit of change is on it.
+ - To refine, to clarify, to intensify that eternal moment in which we alone live there is but a single force the imagination.
+ - If it ain’t a pleasure, it ain’t a poem.
+ - Sometimes I find myself thinking, rather wistfully, about Lao Tzu’s famous dictum: ‘Govern a great nation as you would cook a small fish.’ All around me I see something very different, let us say – a number of angry dwarfs trying to grill a whale.
+ - THESE are the desolate, dark weeks when nature in its barrenness equals the stupidity of man. The year plunges into night and the heart plunges lower than night.
+ - The instant trivial as it is is all we have unless-unless things the imagination feeds upon, the scent of the rose, startle us anew.
+ - It was the love of love, the love of swallows up all else, a grateful love, a love of natural, of people, of animals, a love ingengering gentleness and goodness that moved meand that I saw in you.
+ - A profusion of pink roses being ragged in the rain speaks to me of all gentleness and its enduring.
+ - Everyone in this life is defeated but a man, if he be a man, is not defeated.
+ - Without invention nothing is well-spaced.
+ - Your thighs are appletrees. Your knees are a southern breeze.
+ - Old age is a flight of small cheeping birds skimming bare trees above a snow glaze. Gaining and failing they are buffeted by a dark wind – But what? On harsh weedstalks the flock has rested – the snow is covered with broken seed husks and the wind tempered with a shrill piping of plenty.
+ - Divorce is the sign of knowledge in our time.
+ - I pick the hair from her eyes and watch her misery with compassion.
+ - Sorrow is my own yard where the new grass flames as it has flamed often before but not with the cold fire that closes round me this year.
+ - Poets are being pursued by the philosophers today, out of the poverty of philosophy. God damn it, you might think a man had no business to be writing, to be a poet unless some philosophic stinker gave him permission.
+ - For the beginning is assuredly the end- since we know nothing, pure and simple, beyond our own complexities.
+ - For there is a wind or a ghost of wind in all books echoing the life there, a high wind that fills the tubes of the ear until we think we hear a wind, actual.
+ - The only realism in art is of the imagination.
+ - Among the rain and lights I saw the figure 5 in gold on a red firetruck moving tense unheeded to gong clangs siren howls and wheels rumbling through the dark city.
+ - Why do I write today? The beauty of the terrible faces of our nonentities stirs me to it: colored women day workers- old and experienced- returning home at dusk, in cast off clothing faces like old Florentine oak.
+ - The better work men do is always done under stress and at great personal cost.
+ - Each speech having its own character, the poetry it engenders will be peculiar to that speech also in its own intrinsic form. The effect is beauty, what in a single object resolves our complex feelings of propriety.
+ - Outside, the north wind, coming and passing, swelling and dying, lifts the frozen sand drives it a-rattle against the lidless windows and we may dear sit stroking the cat stroking the cat and smiling sleepily, prrrr.
+ - In summer, the song sings itself.
+ - Being an art form, verse cannot be “free” in the sense of having no limitations or guiding principle.
+ - We are blind and live our blind lives out in blindness.
+ - What “love” is I don’t know if it’s not the response of our deepest natures to one another.
+ - Afraid lest he be caught up in a net of words, tripped up, bewildered and so defeated-thrown aside-a man hesitates to write down his innermost convictions.
+ - The business of love is cruelty which, by our wills, we transform to live together.
+ - I tried to put a bird in a cage. O fool that I am! For the bird was Truth. Sing merrily, Truth: I tried to put Truth in a cage!
+ - By the road to the contagious hospital under the surge of the blue mottled clouds driven from the northeast – a cold wind.
+ - One thing I am convinced more and more is true, and that is this: The only way to be truly happy is to make others happy. When you realize that and take advantage of the fact, everything is made perfect.
+ - But all art is sensual and poetry particularly so. It is directly, that is, of the senses, and since the senses do not exist without an object for their employment all art is necessarily objective. It doesn’t declaim or explain, it presents.
+ - The perfect man of action, is the suicide.
+ - Death will be late to bring us aid.
+ - The only human value of anything, writing included, is intense vision of the facts.
+ - O Marvelous! What new configuration will come next? I am bewildered with multiplicity.
+ - What power has love but forgiveness?
+ - The weight of love Has buoyed me up Till my head Knocks against the sky.
+ - Nothing whips my blood like verse.
+ - Covertly the hands of a great clock go round and round! Were they to move quickly and at once the whole secret would be out and the shuffling of all ants be done forever.
+ - A new music is a new mind.
+ - Liquor and love rescue the cloudy sense banish its despair give it a home.
+ - No wreaths please – especially no hothouse flowers. Some common memento is better, something he prized and is known by: his old clothes – a few books perhaps.
+ - The pure products of America go crazy – mountain folk from Kentucky or the ribbed north end of Jersey with its isolate lakes and valleys, its deaf-mutes, thieves.
+ - O frost bitten blossoms, That are unfolding your wings From out the envious black branches. Bloom quickly and make much of the sunshine. The twigs conspire against you! Hear hem! They hold you from behind.
+ - The pure products of America go crazy.
+ - Love is that common tone shall raise his fiery head and sound his note.
+ - I thought my friends were damn fools, because they didn’t know any better way of conducting their lives. Still they conformed better than I to a code. I wanted to conform but I couldn’t so I wrote my poetry.
+ - So different, this man And this woman: A stream flowing In a field.
+ - Houses – the dark side silhouetted on flashes of moonlight!
+ - Remorse is a virtue in that it is a stirrer up of the emotions but it is a folly to accept it is a criticism of conduct.
+ - Imagination though it cannot wipe out the sting of remorse can instruct the mind in its proper uses.
+ - There is no comment on pictures but pictures, on music but music, on poems but poetry. If you do, you do. If you don’t, you don’t. And that’s all there is to that.
+ - By listening to his language of his locality the poet begins to learn his craft. It is his function to lift, by use of imagination and the language he hears, the material conditions and appearances of his environment to the sphere of the intelligence where they will have new currency.
+ - Most of the beauties of travel are due to the strange hours we keep to see them.
+ - It is almost impossible to state what one in fact believes, because it is almost impossible to hold a belief and to define it at the same time.
+ - What can any of us do with his talent but try to develop his vision, so that through frequent failures we may learn better what we have missed in the past.
+ - But time in only another liar, so go along the wall a little further: if blackberries prove bitter there’ll be mushrooms, fairy-ring mushrooms in the grass, sweetest of all fungi.
+ - Prose may carry a load of ill-defined matters like a ship. But poetry is the machine which drives it, pruned to a perfect economy.
+ - The War is the first and only thing in the world today. The arts generally are not, nor is this writing a diversion from that for relief, a turning away. It is the war or part of it, merely a different sector of the field.
+ - Unless there is a new mind there cannot be a new line, the old will go on repeating itself with recurring deadliness.
+ - There is nothing beginning nor end to the imagination but it delights in its own seasons reversing the usual order at will.
+ - Who isn’t frustrated and does not prove it by his actions – if you want to say so? But through art the psychologically maimed may become the most distinguished man of his age. Take Freud for instance.
+ - Shoes twisted into incredible lilies.
+ - The job of the poet is to use language effectively, his own language, the only language which is to him authentic.
+ - All women are not Helen, I know that, but have Helen in their hearts.
+ - I will teach you my townspeople how to perform a funeral for you have it over a troop of artists unless one should scour the world you have the ground sense necessary.
+ - Either I exist or I do not exist, and no amount of pap which I happen to be lapping can dull me to the loss.
+ - No opinion can be trusted; even the facts may be nothing but a printer’s error.
+ - I think these days when there is so little to believe in – – when the old loyalties – – God, country, and the hope of Heaven – – aren’t very real, we are more dependent than we should be on our friends. The only thing left to believe in – – someone who seems beautiful.
+ - History must stay open, it is all humanity.
+ - I have never been one to write by rule, not even by my own rules.
+
+110 quotes

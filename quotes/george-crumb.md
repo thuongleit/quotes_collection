@@ -1,0 +1,28 @@
+ - The future will be the child of the past and the present, even if a rebellious child.
+ - The retrospective glance is a relatively easy gesture for us to make.
+ - I believe that music surpasses even language in its power to mirror the innermost recesses of the human soul.
+ - I frequently hear our present period described as uncertain, confused, chaotic.
+ - Although technical discussions are interesting to composers, I suspect that the truly magical and spiritual powers of music arise from deeper levels of our psyche.
+ - Perhaps many of the perplexing problems of the new music could be put into a new light if we were to reintroduce the ancient idea of music being a reflection of nature.
+ - If we look at music history closely, it is not difficult to isolate certain elements of great potency which were to nourish the art of music for decades, if not centuries.
+ - The rhythms of nature – the sounds of wind and water, the sounds of birds and insects – must inevitably find their analogues in music.
+ - Music might be defined as a system of proportions in the service of a spiritual impulse.
+ - I have observed, too, that the people of the many countries that I have visited are showing an ever increasing interest in the classical and traditional music of their own cultures.
+ - One very important aspect of our contemporary musical culture – some might say the supremely important aspect – is its extension in the historical and geographical senses to a degree unknown in the past.
+ - I am optimistic about the future of music.
+ - Perhaps of all the most basic elements of music, rhythm most directly affects our central nervous system.
+ - This is not a happy time for this kind of music in this country.
+ - Unquestionably, our contemporary world of music is far richer, in a sense, than earlier periods, due to the historical and geographical extensions of culture to which I have referred.
+ - Writing seems to be more difficult as you move through the years.
+ - It is easy to write unthinking music.
+ - As interesting as that music can occasionally be, I don’t think it really replaces the other.
+ - Nonetheless, I sense that it will be the task of the future to somehow synthesize the sheer diversity of our present resources into a more organic and well-ordered procedure.
+ - The advent of electronically synthesized sound after World War II has unquestionably had enormous influence on music in general.
+ - I pick up the New York Times or Time and it’s talking about the latest rock group, which I’m sure is exciting to some people, but it neglects a huge area of music.
+ - Most of my influences are turn-of-the-century.
+ - I am certain that most composers today would consider today’s music to be rich, not to say confusing, in its enormous diversity of styles, technical procedures, and systems of esthetics.
+ - The development of new instrumental and vocal idioms has been one of the remarkable phenomena of recent music.
+ - Perhaps two million years ago the creatures of a planet in some remote galaxy faced a musical crisis similar to that which we earthly composers face today.
+ - I must confess, my Spanish is not so good – except I read a little, so I started with the English but then determined that it would have to be in Spanish.
+
+26 quotes

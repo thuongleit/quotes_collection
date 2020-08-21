@@ -1,0 +1,28 @@
+ - Before Man goes to the stars he should learn how to live on Earth .
+ - I have not long to live. I have lasted more than a man’s average allotted span, and while I still am hale and hearty, I know full well the hand of time, while it may miss a man at one reaping, will get him at the next.
+ - It is only of life on Earth, however, that one can speak with any certainty. It seems to me that all life on Earth, the sum total of life upon the Earth, has purpose.
+ - Without consciousness and intelligence, the universe would lack meaning.
+ - If mankind were to continue in other than the present barbarism, a new path must be found, a new civilization based on some other method than technology.
+ - These are the stories the Dogs tell, when the fires burn high and the wind is from the north.
+ - The chain of life runs smoothly from one generation to the next and none of the links stand out except here and there a link one sees by accident.
+ - Here lies one from a distant star, but the soil is not alien to him, for in death he belongs to the universe.
+ - We came into a homeless frontier, a place where we were not welcome, where nothing that lived was welcome, where thought and logic were abhorrent and we were frightened, but we went into this place because the universe lay before us, and if we were to know ourselves, we must know the universe.
+ - Time is still the great mystery to us. It is no more than a concept; we don’t know if it even exists.
+ - This is the very center of everything there is. A huge black hole eating up the galaxy. The end of everything.
+ - Once there had been joy, but now there was only sadness, and it was not, he knew, alone the sadness of an empty house; it was the sadness of all else, the sadness of the Earth, the sadness of the failures and the empty triumphs.
+ - What do you mean by faith? Is faith enough for Man? Should he be satisfied with faith alone? Is there no way of finding out the truth? Is the attitude of faith, of believing in something for which there can be no more than philosophic proof, the true mark of a Christian?
+ - Inside the time bubble we do not age. We age only when we are outside of it.
+ - When I talk of the purpose of life, I am thinking not only of human life, but of all life on Earth and of the life which must exist upon other planets throughout the universe.
+ - I have tried at times to place humans in perspective against the vastness of universal time and space. I have been concerned with where we, as a race, may be going and what may be our purpose in the universal scheme – if we have a purpose. In general, I believe we do, and perhaps an important one.
+ - Could that have been what happened to the human race – a willing perversity that set at naught all human values which had been so hardly won and structured in the light of reason for a span of more than a million years?
+ - We said, there’s another second gone, there’s another minute and another hour and another day, when, as a matter of fact the second or the minute or the hour was never gone. It was the same one all the time. It had just moved along and we had moved with it.
+ - A religion is a system of symbols which acts to establish powerful, pervasive, and long-lasting moods in men by formulating conceptions of a general order of existence and clothing those conceptions with such an aura of factuality that the moods and motivations seem uniquely realistic.
+ - And time itself? Time was a never-ending medium that stretched into the future and the past – except there was no future and no past, but an infinite number of brackets, extending either way, each bracket enclosing its single phase of the Universe.
+ - I’m just a propagandist and a propagandist doesn’t have to know what he is talking about, just so he talks about it most convincingly.
+ - My reluctance to use alien invasion is due to the feeling that we are not likely to be invaded and taken over.
+ - Must faith be exactly that, the willingness and ability to believe in the face of a lack of evidence? If one could find the evidence, would then the faith be dead?
+ - It would seem to me that by the time a race has achieved deep space capability it would have matured to a point where it would have no thought of dominating another intelligent species.
+ - If the means were available, we could trace our ancestry – yours and mine – back to the first blob of life-like material that came into being on the planet.
+ - It seems to me, thinking of it, that there must be some universal plan which set in motion the orbiting of the electrons about the nucleus and the slower, more majestic orbit of the galaxies about one another to the very edge of space.
+
+26 quotes

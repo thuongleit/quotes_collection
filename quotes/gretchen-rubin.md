@@ -1,0 +1,115 @@
+ - Self-awareness is a key to self-mastery.
+ - What you do every day matters more than what you do once in a while.
+ - The days are long, but the years are short.
+ - Act the way you WANT to feel.
+ - Don’t let the perfect be the enemy of the good. Lower the bar. Actually spending ten minutes clearing off one shelf is better than fantasizing about spending a weekend cleaning out the basement.
+ - One of the best ways to make yourself happy is to make other people happy. One of the best ways to make other people happy is to be happy yourself.
+ - We tend to overestimate what we can do in a short period, and underestimate what we can do over a long period.
+ - Being taken for granted is an unpleasant but sincere form of praise. Ironically, the more reliable you are and the less you complain, the more likely you are to be taken for granted.
+ - I enjoy the fun of failure. It’s fun to fail, I kept repeating. It’s part of being ambitious; it’s part of being creative. If something is worth doing, it’s worth doing badly.
+ - Habits are the invisible architecture of everyday life.
+ - Sometimes I succeed, sometimes I fail, but every day is a clean slate and a fresh opportunity.
+ - Do good, feel good; feel good, do good.
+ - Turn off your email; turn off your phone; disconnect from the Internet; figure out a way to set limits so you can concentrate when you need to, and disengage when you need to. Technology is a good servant but a bad master.
+ - When you work regularly, inspiration strikes regularly.
+ - Happiness comes not from having more, not from having less, but from wanting what you have.
+ - Outer order contributes to inner calm.
+ - Negative emotions like loneliness, envy, and guilt have an important role to play in a happy life; they’re big, flashing signs that something needs to change.
+ - September is the other January.
+ - Turns out that people who try new things, go new places, learn new skills, etc. are happier. This can be tough, because novelty and challenge also bring frustration and irritation – but if you can push through that, novelty and challenge can bring enormous happiness rewards.
+ - Volunteering to help others is the right thing to do, and it also boosts personal happiness.
+ - We are happy when we are growing.
+ - It’s easy to be heavy; hard to be light.
+ - The First Splendid Truth: To be happy, I need to think about feeling good, feeling bad, and feeling right, in an atmosphere of growth.
+ - The biggest waste of time is to do well something that we need not do at all.
+ - Money. It’s a good servant but a bad master.
+ - Nothing,? wrote Tolstoy, ’can make our life, or the lives of other people, more beautiful than perpetual kindness.
+ - Work harder to appreciate your ordinary day.
+ - I needed to change the lens through which I viewed everything familiar.
+ - Be a storehouse of happy memories.
+ - Happiness: “You Bring Your Own Weather To The Picnic.”
+ - The belief that unhappiness is selfless and happiness is selfish is misguided. It’s more selfless to act happy. It takes energy, generosity, and discipline to be unfailingly lighthearted.
+ - Happiness is a critical factor for work, and work is a critical factor for happiness. In one of those life-isn’t-fair results, it turns out that the happy outperform the less happy. Happy people work more hours each week – and they work more in their free time, too.
+ - Remember that although the distinction can be difficult to draw, loneliness and solitude are different.
+ - Enthusiasm is a form of social courage.
+ - Enthusiasm is more important than innate ability, it turns out, because the single more important element in developing an expertise is your willingness to practice.
+ - He is my fate. He’s my soul mate. He pervades my whole existence. So, of course, I often ignore him.
+ - Now is now. Here is my treasure.
+ - You can choose what you do, you cant choose what you like to do.
+ - Flawed can be more perfect than perfection.
+ - Getting paperwork under control makes me feel more in control of my life generally.
+ - A book is a better way to develop a complicated idea, or to tell a big story and to show how ideas weave in and out of each other, which is something that comes up a lot in happiness because all these ideas are interconnected.
+ - There are no do overs and some things just aren’t going to happen. It is a little sad but you just have to embrace what is.
+ - It’s the task that’s never started that’s more tiresome.
+ - Pay close attention to any flame of enthusiasm.
+ - Feelings follow actions. If I’m feeling low, I deliberately act cheery, and I find myself actually feeling happier. If I’m feeling angry at someone, I do something thoughtful for her and my feelings toward her soften. This strategy is uncannily effective.
+ - There is a preppy wabi-sabi to soft, faded khakis and cotton shirts, but it’s not nice to be surrounded by things that are worn out or stained or used up.
+ - Look for happiness under your own roof.
+ - Happy people make people happy, but I can’t make someone be happy, and no one else can make me happy.
+ - One of the best ways to make yourself happy in the present is to recall happy times from the past. Photos are a great memory-prompt, and because we tend to take photos of happy occasions, they weight our memories to the good.
+ - We can use decision-making to choose the habits we want to form, use willpower to get the habit started, then – and this is the best part – we can allow the extraordinary power of habit to take over. At that point, were free from the need to decide and the need to use willpower.
+ - I’m a creature of routine, and I hate feeling incompetent, so I avoided novelty and challenge. Making an effort to push myself in that way has brought me surprising boost.
+ - Knowing what you admire in others is a wonderful mirror into your deepest, as yet unborn, self.
+ - Some kind of clutter is difficult – letting go of things with sentimental value, sifting through papers – but some clutter I find very refreshing to clear. I drive my daughters nuts because I’m always wandering into their rooms to clear clutter.
+ - The things that go wrong often make the best memories.
+ - I have a lucky perfume. I love beautiful smells, but I save one of my favorite perfumes to wear only when I feel like I need some extra luck.
+ - Keep in mind that to avoid loneliness, many people need both a social circle and an intimate attachment. Having just one of two may still leave you feeling lonely.
+ - The most reliable predictor of not being lonely is the amount of contact with women. Time spent with men doesn’t make a difference.
+ - I can build a happy life only on the foundation of my own nature.
+ - The absence of feeling bad isn’t enough to make you happy; you must strive to find sources of feeling good.
+ - If you always use your stapler in one place, keep it there, instead of thinking that all the office supplies should go in one place. I’ve moved a lot of things around in my house because of that.
+ - We must exercise ourselves in the things which bring happiness, since, if that be present, we have everything, and, if that be absent, all our actions are directed toward attaining it.
+ - Enthusiasm is more important to mastery than innate ability.
+ - I’m a person who’s fine saying ‘No.’ I like saying to myself, “no gossiping,” “no nagging.”
+ - We need to have intimate, enduring bonds; we need to be able to confide; we need to feel that we belong; we need to be able to get support, and just as important for happiness, to give support. We need many kinds of relationships; for one thing, we need friends.
+ - I always had the uncomfortable feeling that if I wasn’t sitting in front of a computer typing, I was wasting my time – but I pushed myself to take a wider view of what was “productive.” Time spent with my family and friends was never wasted.
+ - Behind our unremarkable front door waits the little world of our making – our home.
+ - I am living my real life, this is it. Now is now, and if I waited to be happier, waited to have fun, waited to do the things that I know I ought to do, I might never get the chance.
+ - Studies show that aggressively expressing anger doesn’t relieve anger but amplifies it. On the other hand, not expressing anger often allows it to disappear without leaving ugly traces.
+ - In general, religious people seem to be happier than non-religious people – under various definitions of “religiosity,” such as church attendance or professed spiritual beliefs.
+ - In the scope of a happy life, a messy desk or an overstuffed coat closet is a trivial thing, yet I find – and I hear from other people that they agree – that getting rid of clutter gives a disproportionat e boost to happiness.
+ - Working is one of the most dangerous forms of procrastination.
+ - Forbearance is a form of generosity.
+ - No one regrets having changed a lightbulb.
+ - When we don’t get any treats, we feel depleted, resentful, and angry, and we feel justified in self-indulgence. We start to crave comfort – and grab that comfort wherever we can, even if it means breaking good habits.
+ - One of the great joys of falling in love is the feeling that the most extraordinary person in the entire world has chosen you.
+ - If I pretend to myself that I’m different from the way I truly am, I’m going to make choices that won’t make me happy.
+ - What’s fun for other people may not be fun for you- and vice versa.
+ - Having a messy coat closet should not be a big deal in a full life, and yet there’s something about getting control of that coat closet that’s surprisingly satisfying.
+ - Pouring out ideas is better for creativity than doling them out by the teaspoon.
+ - What I’ve also noticed is the term happiness, or happy is intimidating to some people. Some people deny that it’s even possible to be happy, or to achieve happiness. Happiness sounds like this magical destination that you arrive at and then everything is sort of solved, or it’s different.
+ - Guard your children’s free time – from you.
+ - I used to be very disciplined about only buying three books ahead of what I was reading, but my husband corrupted me, and now I’m dozens ahead of myself!
+ - There’s also something about your bed; it’s sort of a symbol of yourself and of your marriage, if you’re married. Making your bed doesn’t seem to be an important thing in a happy life, and yet it can be that tiny foothold into a more orderly life that sometimes people need.
+ - Superstition is the irrational belief that an object or behavior has the power to influence an outcome, when there’s no logical connection between them. Most of us aren’t superstitious – but most of us are a ‘littlestitious.’
+ - One of the things that you see ancient philosophers and contemporary scientists agree on is that strong relationships are a key to happiness, maybe the key to happiness. People who have more strong relationships in their lives just feel happier.
+ - I grasped two things: I wasn’t as happy as I could be, and my life wasnt going to change unless I made it change.
+ - No leader did more for his country than Winston Churchill. Brave, magnanimous, traditional, he was like a king-general from Britain’s heroic past. His gigantic qualities set him apart from ordinary humanity; there seemed no danger he feared, no effort too great for his limitless energies.
+ - When I thought about why I was sometimes reluctant to push myself, I realized that it was because I was afraid of failure – but in order to have more success, I needed to be willing to accept more failure.
+ - One of the most important lessons of childhood is discovering what you like to do.
+ - I always say you can self-medicate through closet cleaning. Everyone knows that feeling of a clear surface, and how it makes you feel you can really focus and start your work.
+ - Getting control of stuff makes people feel like they have more control over their lives – maybe irrationally, but it’s one of these psychological truths.
+ - There’s a kind of magical thinking about these kinds of things. Throw away those bad photos before the “magic” attaches to them, so the good ones stand out.
+ - People in religions that teach that believers in other faiths are condemned, for example, tend to have lower life satisfaction. People who believe in heaven and hell tend to be less happy than those believe only in heaven.
+ - Your unhappiness doesn’t help anyone else – and in fact, as I mentioned in another answer, happy people are more altruistically inclined. So happiness is not a selfish goal.
+ - If I give more to myself, I can ask more from myself. Self-regard isn’t selfish.
+ - In ‘Before and After,’ I identify the sixteen strategies that we can use to make or break our habits. Some are quite familiar, such as ‘Monitoring,’ ‘Scheduling,’ and ‘Convenience.’ Some took me a lot of effort to identify, such as ‘Thinking,’ ‘Identity,’ and ‘Clarity.’
+ - The more I examine the issue of clutter, the more effort I put into combating it, because it really does act as a weight.
+ - A blog is something that, everyday there’s a new thing and that’s part of the fun of it, you’re just constantly moving forward. A book really gives you more time to reflect and think hard on things very, very deep.
+ - It’s true that people do assume that people who are critical are smarter than people who are uncritical.
+ - Time waits for no ovary.
+ - Happiness is hard because it’s very subjective. I know the people that seem happiest to me, but whether they are actually – what they’re really like inside is really hard to say.
+ - To eke out the most happiness from an experience, we must anticipate it, savor it as it unfolds, express happiness, and recall a happy memory.
+ - Sometimes I think it’s easier to think about being happier, for what ever that means to you then worrying about what is happiness and what would life be if I finally achieved this ultimate happiness?
+ - People are powerfully moved by imagination, belief, and knowledge. They can consider the past and future. They can make changes in their behavior out of reason, in a way that animals can’t do.
+ - Creativity arises from a constant churn of ideas, and one of the easiest ways to encourage that fertile froth is to keep your mind engaged with your project. When you work regularly, inspiration strikes regularly.
+ - I have a passion for children’s literature. Young adult literature. I love it. I’ve always loved it.
+ - Focus not on doing less or doing more but on doing what you value.
+ - One of my Secrets of Adulthood is: Most decisions don’t require extensive research.
+ - The number one resolution that people mention to me as something that’s made them happier is – to my surprise – making the bed.
+ - Contemporary research shows that happy people are more altruistic, more productive, more helpful, more likable, more creative, more resilient, more interested in others, friendlier, and healthier. Happy people make better friends, colleagues, and citizens.
+ - I can DO ANYTHING I want, but I can’t DO EVERYTHING I want.
+ - It’s so easy to wish that we’d made an effort in the past, so that we’d happily be enjoying the benefit now, but when now is the time when that effort must be made, as it always is, that prospect is much less inviting.
+ - People feel happier when they feel like they’re progressing. When they feel like something in their life is growing or getting better.
+
+113 quotes

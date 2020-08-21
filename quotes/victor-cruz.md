@@ -1,0 +1,43 @@
+ - At the end of the day, there are people out there that want to see you fail.
+ - I never dreamed about being a millionaire – I dreamed about being a football player.
+ - I was actually a Cowboys fan.
+ - Every step, whether at high school or at college or at the NFL, I had to climb and crawl and scratch to get there.
+ - Take your time. Love is gonna come. Don’t force it. Don’t try to make it happen. Relax, take your time, and you’ll know when it’s there. My mom gave me that advice.
+ - My mom lived by herself with two kids. Sacrifice was the name of the game at our house.
+ - Some guys just slip under the radar.
+ - I was always the type of person that whenever I started something I finished it. And, I was always held accountable for my actions.
+ - I definitely want to teach my daughter Spanish.
+ - It was definitely some tough moments throughout my life, but I kind of stayed focused and came through the other end of the tunnel.
+ - I knew what type of player I was: a free agent, a small kid who came from a small school.
+ - I don’t need any nicknames.
+ - I don’t recognize my former self. Like I’m on the outside looking in at my life. Who is that guy?
+ - My mom and my father’s birthday are on the same day.
+ - I was afraid I would see someone from my past who thought I was this big athlete, and then I end up being just normal.
+ - Football was what I was good at, and it was what I loved.
+ - I couldn’t care less about what anybody else has to say.
+ - I want to be a New York Giant for a very long time.
+ - Growing up in Paterson wasn’t the easiest thing.
+ - It’s still pretty surreal. I wake up every day and just pinch myself and kind of think about how far I’ve come and all the stuff I have done.
+ - Never in a million years would I think I’d play in a Super Bowl.
+ - My mom was dying for me to write a book, she was my biggest advocate.
+ - I just want to continue to play football and be myself.
+ - I always have to have a six pack or twelve pack of Entenmann’s doughnuts in my house, no other brand.
+ - There are times where I am trying to make the big play before I even catch the football.
+ - I want to win championships.
+ - I kinda wanted to play receiver more.
+ - Sometimes on the basketball court or on the football field, you enter this place called ‘The Zone.’ You’re not supposed to acknowledge when you’re in ‘The Zone,’ but when you are, you simply cannot be stopped.
+ - There were times when I thought I would never own a car.
+ - I don’t want to be on ‘Dancing With the Stars’ anytime soon.
+ - It is funny what a year can do.
+ - It’s amazing, especially coming from the small city of Paterson, to have all of those people just being behind you and supporting your career and understanding where you come from.
+ - You have to think about your image and how you want people to view you. And if it becomes too much, people will get kind of tired of you.
+ - Everybody wants to defeat the defending champs.
+ - I can just sense some eyes, some people kinda stare a little bit like they recognize me but don’t quite know for sure kinda thing.
+ - I just want to continue the success and be an athlete that is shown in a good light in New York City.
+ - As a kid, my grandma would be dancing all the time.
+ - When I was young, it wasn’t about the money, it wasn’t about the fame and fortune, it was about playing football.
+ - I’ve had the same barber since I was about 14 years old.
+ - I think I’ve got some more big plays left in me.
+ - There’s only one life. There’s no repeats. You only get one life, and you gotta take advantage of it.
+
+41 quotes

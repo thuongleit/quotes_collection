@@ -1,0 +1,94 @@
+ - Set your goal and keep moving forward.
+ - When you pay attention to detail, the big picture will take care of itself.
+ - If you look good, you feel good, and if you feel good, you do good.
+ - Every little thing you do leads up to a bigger thing.
+ - One of my favorite Japanese proverbs is “Fall down 7 times, stand up 8”.
+ - A fight is 10% physical and 90% mental.
+ - Always pursue your dreams and work hard at it.
+ - Some people learn to lose. Others lose and learn.
+ - With discipline, belief, and the right knowledge, we become the best we can be.
+ - My mentality is like a Samurai: They used to every day work on their technique to make themselves almost perfect. Because perfection is impossible, but every day, you get closer to perfection.
+ - The danger is not to set your goal too high and fail to reach it. It’s to set your goal too low and reach it.
+ - Growth is a long term game, and the crappy days are more important.
+ - The key to effective visualization is to create the most detailed, clear and vivid a picture to focus on as possible. The more vivid the visualization, the more likely, and quickly, you are to begin attracting the things that help you achieve what you want to get done.
+ - It’s easy to talk, it’s harder to fight.
+ - It all comes down to confidence: your body can do great things only if it believes it can accomplish them.
+ - Seeking knowledge is like opening doors. And I know the doors are everywhere.
+ - The only way forward in life is innovation.
+ - I’m not impressed by your performance.
+ - Pick a goal, make a realistic plan to reach that goal, work through each step of the plan, and repeat.
+ - It’s not the most powerful animal that survives. It’s the most efficient.
+ - Respect is the most important thing. Be respectful toward others and have respect for yourself.
+ - No two journeys are alike. Nobody can pretend to know the journey another person takes to achieve his dreams.
+ - What happens when you accept and embrace your fear? Fear becomes your weapon.
+ - Training to become champion is the toughest thing. The fight itself is just a test.
+ - There is a difference between a fighter and a martial artist. A fighter is training for a purpose: He has a fight. I’m a martial artist. I don’t train for a fight. I train for myself. I’m training all the time. My goal is perfection. But I will never reach perfection.
+ - Train smart at all times and do your best to avoid injury. Training smart is more important than training hard.
+ - There’s no honour fighting in the street, there is nothing to gain.
+ - I like to think I’m like water that adapts to its surroundings and eventually finds a way in.
+ - I’ve trained myself to fight an army, so one guy will not defeat me.
+ - It’s like life. The more knowledge you get, the more questions you ask. The smarter you get, the more you realize that everything can be possible.
+ - Watching myself fight, I realize the line between success and failure is so narrow, it’s scary.
+ - With training and self discipline; clear focus and confidence; problems can be overcome and even lead to unexpected gains.
+ - A cockroach can’t defeat a dinosaur. But the cockroach is better at one thing, and it has ensured its survival through the ages: Adaptation. One could adapt to the environment and the other one couldn’t.
+ - It’s not always the strong that survive. It takes brains, guts, tolerance and forward thinking.
+ - I’m a martial artist, and I don’t train because I have a fight; I train because it’s my lifestyle, and I’ll train every day if I’m not hurt.
+ - Power is different when you combined it with wisdom. Wisdom allows you to use less power to accomplish more tasks.
+ - The only way to ever truly get your confidence and swagger back, I’ve learned, is to fight for them.
+ - One of the keys to learning for me has been to not get so hung up on the past. It’s important to remember the past, but that doesn’t mean you have to torture yourself with it by reliving it every single day.
+ - If I’m disrespectful to my opponent, how can I respect myself?
+ - Everyone is a threat, and anyone can be beat at any given moment. No one is invincible.
+ - A true master gives all his knowledge. But only when the student is ready.
+ - I am a public person and I have my private life. It’s important for me that my private life stay private, that what I share with the people is my public personality.
+ - Humility is the first rule of martial arts. Either you learn humility quickly, or you leave because your ego can’t handle losing repeatedly.
+ - It’s OK to get butterfly in your stomach; the key is to learn how to make them fly in formation.
+ - Respect your opponent, just make them respect you more.
+ - Only way to eliminate the element of surprise is to know yourself and now your adversary.
+ - It’s not always the best team that wins the game it’s the team that plays better.
+ - Make sure your approach is consistent and steady so that you can maintain the progress you’re making as your journey continues.
+ - I’m training all the time. My goal is perfection. But I will never reach perfection.
+ - You think I was born rich? I’ve worked really hard. You have no idea.
+ - My fear delivered one of the great lessons of my life: That someone without fear can’t push himself. He can’t get better. He can’t transform negatives into positives. He can’t open his world to creativity and invention, or even progress.
+ - You can spend your life watching other people win or beat your name into history.
+ - Once I got over my anger and rage from childhood, once I stopped feeling like a victim, I was able to open myself to great sources of learning.
+ - The goal is to avoid mediocrity by being prepared to try something and either failing miserably or triumphing grandly.
+ - Before each one of my fights, I make a point of saluting my opponent. I salute the other fighter out of respect, even though he is trying to take something from me.
+ - Innovation is very important to me, especially professionally. The alternative, standing pat, leads to complacency, rigidity and eventually failure.
+ - The truth is that I didn’t start as a winner. When I was a kid, I was just another reject. I started at the bottom. I think all winners do.
+ - I’m the kind of guy who only makes a mistake once, never twice.
+ - Everyone in life faces obstacles. That’s what made me who I am. I don’t regret to have been bullied because probably if I would not have faced those obstacles I would not have been the man that I am. It make my stronger in a way and it helped me to forge the person that I am right now.
+ - Thanks to his willingness to face me, my life takes shape, my path evolves.
+ - For me, personally, when I’m afraid of something – when you’re afraid of something, normally you try to go away, you try to avoid it. Instead of avoiding it, to overcome your fear, I believe you need to embrace it.
+ - Innovation keeps me ahead of my competition. It means that my foes must adapt to me, not the other way around.
+ - I think it makes your stronger to admit that you’re scared, because you’re not scared to say that you’re scared.
+ - A guy that has more knowledge has the advantage.
+ - I see the world as a knowledge hardware story, and every day I’m just walking through the aisles.
+ - Nervous and scared is a good thing, it’s your friend. You feel more on the edge, you feel like you’re about to fall down the river, it’s a good thing for me. I like that feeling.
+ - I try to protect my loved ones, the people I share my life with, because they don’t have a public life like me. I want to keep their lives private out of respect for them.
+ - I bow to my opponent in praise and thanks. After the fight is a time for humility, acceptance and analysis, no matter the result.
+ - Fear is the genesis of most of the good things that have occurred in my life. Fear is the beginning of every success I’ve lived.
+ - I will never take the fact that I am Welterweight Champion for granted. I learnt my mistake in the past. No matter how great, no matter how people tell me how great I am, I’m always one mistake away from losing everything.
+ - I’ve come up with my own cure for a closed mind: try it once, and see.
+ - Fights aren’t won in the octagon, they’re won in the months leading up to them, in a near-empty gym, in the lost hours of a day, whether I feel like it or not.
+ - I fight with emotion, but I don’t fight with anger. I could be angry, but I’m not going to fight with anger because when you fight with anger you can make mistakes.
+ - One of the important lessons I learned from my parents is always to respect authority figures like teachers.
+ - When you prepare a list of improvements and you make them small and achievable, you won’t just stick to then, you’ll increase the chances that you’ll keep moving forward.
+ - I will repeat a technique until it is mastered, no matter when that will be. One certainty though: it will be.
+ - I want to use every second of my life, every time that I have in my life, to make me a better fighter. That’s why I’m a martial artist. For me, it’s more than a job – it’s a way of living.
+ - One of the lessons I learned in all those years practicing karate is that progress only comes in small incremental portions.
+ - I’m always scared when I fight. But that fear is what keeps me more alert and more focused. It’s good to have fear.
+ - It’s not about how you are when things go well, what defines you is how you are when you fail from an obstacle.
+ - Innovation, born from true creativity, depends on movement.
+ - Once fear enters your life – it will take you in one of two directions: empowerment or panic.
+ - If you prepare your subconscious for highly stressful situations, you can create harmony with your fears. You can tame fear like a wild animal and use it to your advantage.
+ - It’s bizarre, a punch in the face hurts less when you win than when you lose.
+ - My goal is to share all my learning, all of my knowledge, so that other generations of martial arts will benefit.
+ - I was a big fan of Jean-Claude Van-Damme growing up, and I always wanted to be a martial artist ’cause of him.
+ - There are two kinds of people who do martial arts: those who practice a thousand different kicks one time each, and those who practice one kick a thousand times minimum. You can guess which group I belong to.
+ - My mentality is that when I go to sleep at night, I’m a better martial artist than when I woke up in the morning.
+ - This extends to all things, but you only learn it by losing a few times.
+ - When great depths of unrelenting sorrow are punctuated by great peaks of joy and liberation, the result is delicious.
+ - I am very honored and excited to be part of UFC 100; it’s going to be the hardest challenge of my career so far and it’s going to be pretty tough – I can’t wait.
+ - Nick Diaz is a champion so he’s got the spirit that comes with it. So he’s not going to give up mentally. You see a lot of guys give up mentally and that’s why they get knocked out or submitted. They give up mentally before they lose.
+
+92 quotes

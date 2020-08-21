@@ -1,0 +1,34 @@
+ - The second principle of magic: things which have once been in contact with each other continue to act on each other at a distance after the physical contact has been severed.
+ - I am a plain practical man, not one of your theorists and splitters of hairs and choppers of logic.
+ - The temple of the sylvan goddess, indeed, has vanished, and the King of the Wood no longer stands sentinel over the Golden Bough.
+ - But once a fool always a fool, and the greater the power in his hands the more disastrous is likely to be the use he makes of it. The heaviest calamity in English history, the breach with America, might never have occurred if George the Third had not been an honest dullard.
+ - The scapegoat upon whom the sins of the people are periodically laid, may also be a human being.
+ - Yet perhaps no sacrifice is wholly useless which proves there are men who prefer honour to life.
+ - In primitive society, where uniformity of occupation is the rule, and the distribution of the community into various classes of workers has hardly begun, every man is more or less his own magician; he practices charms and incantations for his own good and the injury of his enemies.
+ - Small minds cannot grasp great ideas; to their narrow comprehension, their purblind vision, nothing seems really great and important but themselves.
+ - The custom of burning a beneficent god is too foreign to later modes of thought to escape misinterpretation.
+ - By religion, then, I understand a propitiation or conciliation of powers superior to man which are believed to direct and control the course of nature and of human life.
+ - This doctrine of transmigration or reincarnation of the soul is found among many tribes of savages.
+ - With the advance of knowledge, therefore, prayer and sacrifice assume the leading place in religious ritual; and magic; which once ranked with them as a legitimate equal, is gradually relegated to the background and sinks to the level of a black art.
+ - The Athenians regularly maintained a number of degraded and useless beings at the public expense; and when any calamity, such as plague, drought, or famine, befell the city, they sacrificed two of these outcast scapegoats.
+ - The awe and dread with which the untutored savage contemplates his mother-in-law are amongst the most familiar facts of anthropology.
+ - The moral world is as little exempt as the physical world from the law of ceaseless change, of perpetual flux.
+ - For there are strong grounds for thinking that, in the evolution of thought, magic has preceded religion .
+ - The man of science, like the man of letters, is too apt to view mankind only in the abstract, selecting in his consideration only a single side of our complex and many-sided being.
+ - The advance of knowledge is an infinite progression towards a goal that ever recedes.
+ - Some of the old laws of Israel are clearly savage taboos of a familiar type thinly disguised as commands of the Deity.
+ - The old notion that the savage is the freest of mankind is the reverse of the truth. He is a slave, not indeed to a visible master, but to the past, to the spirits of his dead forefathers, who haunt his steps from birth to death, and rule him with a rod of iron.
+ - It is a common rule with primitive people not to waken a sleeper, because his soul is away and might not have time to get back.
+ - The consideration of human suffering is not one which enters into the calculations of primitive man.
+ - The question whether our conscious personality survives after death has been answered by almost all races of men in the affirmative.
+ - In point of fact magicians appear to have often developed into chiefs and kings.
+ - Even the recognition of an individual whom we see every day is only possible as the result of an abstract idea of him formed by generalization from his appearances in the past.
+ - Indeed the influence of music on the development of religion is a subject which would repay a sympathetic study.
+ - If mankind had always been logical and wise, history would not be a long chronicle of folly and crime.
+ - The slow, the never ending approach to truth consists in perpetually forming and testing hypotheses, accepting those at which at the time seem to fit the facts and rejecting the others.
+ - The abundance, the solidity, and the splendor of the results already achieved by science are well fitted to inspire us with a cheerful confidence in the soundness of its method.
+ - Man has created gods in his own likeness and being himself mortal he has naturally supposed his creatures to be in the same sad predicament.
+ - For when a nation becomes civilized, if it does not drop human sacrifices altogether, it at least selects as victims only such wretches as would be put to death at any rate. Thus the killing of a god may sometimes come to be confounded with the execution of a criminal.
+ - The world cannot live at the level of its great men.
+
+32 quotes

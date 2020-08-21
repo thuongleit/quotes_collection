@@ -1,0 +1,502 @@
+ - Do one thing at a time, and while doing it put your whole soul into it to the exclusion of all else.
+ - Arise, awake, stop not until your goal is achieved.
+ - Believe in yourself and the world will be at your feet.
+ - The greatest sin is to think yourself weak.
+ - In a day when you don’t come across any problems, you can be sure that you are travelling in a wrong path.
+ - Take up one idea. Make that one idea your life – think of it, dream of it, and live on that idea. Let the brain, muscles, nerves, every part of your body, be full of that idea, and just leave every other idea alone. This is the way to success that is way great spiritual giants are produced.
+ - Anything that makes weak – physically, intellectually and spiritually, reject it as poison.
+ - In a conflict between the heart and the brain, follow your heart. 
+ - You have to grow from the inside out. None can teach you, none can make you spiritual. There is no other teacher but your own soul.
+ - Whatever you think that you will be. If you think yourself weak, weak you will be; if you think yourself strong, you will be.
+ - Dare to be free, dare to go as far as your thought leads, and dare to carry that out in your life. 
+ - Books are infinite in number and time is short. The secret of knowledge is to take what is essential. Take that and try to live up to it.
+ - There is no limit to the power of the human mind. The more concentrated it is, the more power is brought to bear on one point.
+ - Neither seek nor avoid, take what comes.
+ - Great work requires great and persistent effort for a long time. Character has to be established through a thousand stumbles.
+ - All knowledge that the world has ever received comes from the mind; the infinite library of the universe is in our own mind.
+ - You can not believe in God until you believe in yourself.
+ - The world is the great gymnasium where we come to make ourselves strong.
+ - Each work has to pass through these stages: ridicule, opposition, and then acceptance. Those who think ahead of their time are sure to be misunderstood.
+ - The brain and muscles must develop simultaneously. Iron nerves with an intelligent brain – and the whole world is at your feet.
+ - Fear is death, fear is sin, fear is hell, fear is unrighteousness, and fear is wrong life. All the negative thoughts and ideas that are in the world have proceeded from this evil spirit of fear.
+ - They alone live, who live for others.
+ - The whole life is a succession of dreams. My ambition is to be a conscious dreamer, that is all.
+ - Education is the manifestation of perfection already existing in man.
+ - Are great things ever done smoothly? Time, patience, and indomitable will must show.
+ - Comfort is no test of truth. Truth is often far from being comfortable.
+ - Don't look back – forward, infinite energy, infinite enthusiasm, infinite daring,and infinite patience – then alone can great deeds be accomplished
+ - The fire that warms us can also consume us; it is not the fault of the fire.
+ - Are you unselfish? That is the question. If you are, you will be perfect without reading a single religious book, without going into a single church or temple.
+ - Blessed are they whose bodies get destroyed in the service of others.
+ - The great secret of true success, of true happiness, is this: the man or woman who asks for no return, the perfectly unselfish person, is the most successful.
+ - All the powers in the universe are already ours. It is we who have put our hands before our eyes and cry that it is dark.
+ - The world is ready to give up its secrets if we only know how to knock, how to give it the necessary blow. The strength and force of the blow come through concentration.
+ - Where can we go to find God if we cannot see Him in our own hearts and in every living being.
+ - The greatest religion is to be true to your own nature. Have faith in yourselves.
+ - Bless people when they revile you. Think how much good they are doing by helping to stamp out the false ego.
+ - I, for one, thoroughly believe that no power in the universe can withhold from anyone anything they really deserve.
+ - This universe is the wreckage of the infinite on the shores of the finite.
+ - Our first duty is not to hate ourselves, because to advance we must have faith in ourselves first and then in God. Those who have no faith in themselves can never have faith in God.
+ - The greatest truths are the simplest things in the world, simple as your own existence.
+ - We reap what we sow we are the makers of our own fate. The wind is blowing; those vessels whose sails are unfurled catch it, and go forward on their way, but those which have their sails furled do not catch the wind. Is that the fault of the wind? We make our own destiny.
+ - All love is expansion, all selfishness is contraction. Love is therefore the only law of life. He who loves lives, he who is selfish is dying. Therefore love for love’s sake, because it is law of life, just as you breathe to live.
+ - All powers are within you, you can do anything and everything.
+ - However we may receive blows, and however knocked about we may be, the Soul is there and is never injured. We are that Infinite.
+ - Neither seek nor avoid, take what comes.
+ - Condemn none: if you can stretch out a helping hand, do so. If you cannot, fold your hands, bless your brothers, and let them go their own way.
+ - So long as there is desire or want, it is a sure sign that there is imperfection. A perfect, free being cannot have any desire.
+ - The moment I have realized God sitting in the temple of every human body, the moment I stand in reverence before every human being and see God in him – that moment I am free from bondage, everything that binds vanishes, and I am free.
+ - All differences in this world are of degree, and not of kind, because oneness is the secret of everything.
+ - Strength is life, Weakness is death.
+ - All truth is eternal. Truth is nobody’s property; no race, no individual can lay any exclusive claim to it. Truth is the nature of all souls.
+ - Take up an idea, devote yourself to it, struggle on in patience, and the sun will rise for you.
+ - Was there ever a more horrible blasphemy than the statement that all the knowledge of God is confined to this or that book? How dare men call God infinite, and yet try to compress Him within the covers of a little book!
+ - The will is not free – it is a phenomenon bound by cause and effect – but there is something behind the will which is free.
+ - Man is to become divine by realizing the divine. Idols or temples, or churches or books, are only the supports, the help of his spiritual childhood.
+ - We are what our thoughts have made us; so take care about what you think. Words are secondary. Thoughts live; they travel far.
+ - Stand up and be strong! No fear. No superstition. Face the truth as it is!
+ - We are what our thoughts have made us.
+ - Go on bravely. Do not expect success in a day or a year. Always hold on to the highest. Be steady. Avoid jealousy and selfishness. Be obedient and eternally faithful to the cause of truth, humanity, and your country, and you will move the world.
+ - Strength is Life, Weakness is Death. Expansion is Life, Contraction is Death. Love is Life, Hatred is Death.
+ - Service to man is service to god.
+ - Devotion to duty is the highest form of worship of God.
+ - You must have an iron will, if you would cross the ocean. You must be strong enough to pierce mountains.
+ - Freedom can never be reached by the weak. Throw away all weakness. Tell your body that it is strong, tell your mind that it is strong, and have unbounded faith and hope in yourself.
+ - The secret of karma yoga which is to perform actions without any fruitive desires is taught by Lord Krishna in the Bhagavad-Gita.
+ - My child, what I want is muscles of iron and nerves of steel, inside which dwells a mind of the same material as that of which the thunderbolt is made.
+ - Thoughts are living things – they travel far.
+ - Purity, perseverance, and energy - these three I want.
+ - Cowards never win victories. We have to fight fear and troubles and ignorance if we expect them to flee before us.
+ - Music alone can take you to the Highest!
+ - He who is alone is happy. Do good to all, like everyone, but do not love anyone. It is a bondage, and bondage brings only misery. Live alone in your mind – that is happiness. To have nobody to care for and never minding who cares for one is the way to be free.
+ - The seeker’s silence is the loudest form of prayer.
+ - Give up all desire for enjoyment in earth or heaven. Control the organs of the senses and control the mind. Bear every misery without even knowing that you are miserable. Think of nothing but spiritual freedom.
+ - To work with undaunted energy! What fear! Who is powerful enough to thwart you.
+ - I am responsible for my fate, I am the bringer of good unto myself, I am the bringer of evil. I am the Pure and Blessed One. We must reject all thoughts that assert to the contrary.
+ - Strength and manliness are virtue; weakness and cowardice are sin.
+ - Everything will come right if you are pure and sincere. We want hundreds like you bursting upon society and bringing new life and vigor of the spirit wherever they go.
+ - Be strong, my young friends; that is my advice to you. You will be nearer to Heaven through football than through the study of the Gita. These are bold words; but I have to say them, for I love you. I know where the shoe pinches.
+ - A few heart-whole, sincere, and energetic men and women can do more in a year than a mob in a century.
+ - Even the least work done for others awakens the power within; even thinking the least good of others gradually instills into the heart the strength of a lion.
+ - Marriage and sex and money the only living devils.
+ - Man can become like God and acquire control over the whole universe if he multiplies infinitely his centre of self-consciousness.
+ - Man is the highest being in creation, because he attains to freedom.
+ - The more we grow in Love, Virtue and Holiness, the more we see Love, Virtue and Holiness outside.
+ - One may gain political and social independence, but if one is a slave to his passions and desires, one cannot feel the pure joy of real freedom.
+ - A man ought to live in this world like a lotus leaf, which grows in water but is never moistened by water; so a man ought to live in the world – his heart to God and his hands to work.
+ - All these ideas such as astrology, although there may be a grain of truth in them, should be avoided.
+ - Man makes the mistake of separating himself from God and identifying himself with the body.
+ - Above all, India is the land of religion.
+ - Be proud that thou art an Indian, and proudly proclaim, “I am an Indian, every Indian is my brother.” Say, “The ignorant Indian, the poor and destitute Indian, the Brahmin Indian, the Pariah Indian, is my brother.”
+ - Even forgiveness, if weak and passive, is not true: fight is better. Forgive when you could bring legions of angels to the victory.
+ - Love and charity for the whole human race, that is the test of true religiousness.
+ - Say it with pride we are Hindus.
+ - Never forget that a man is made great and perfect as much by his faults as by his virtues. So we must not seek to rob a nation of its character, even if it could be proved that the character was all faults.
+ - This is the principle of Universal Brotherhood of man with one another, with all life down to the little ants.
+ - All is the Self or Brahman. The saint, the sinner, the lamb, the tiger, even the murderer, as far as they have any reality, can be nothing else, because there is nothing else.
+ - Take off the veil of hypnotism which you have cast upon the world, send not out thoughts and words of weakness unto humanity.
+ - It may be that I shall find it good to get outside of my body – to cast it off like a disused garment. But I shall not cease to work! I shall inspire men everywhere, until the world shall know that it is one with God.
+ - See Christ, then you are a Christian; all else is talk.
+ - A Brahmin is not so much in need of education as a Chandala. If the son of a Brahmin needs one teacher, that of a Chandala needs ten.
+ - Take Risks in Your Life If u Win, U Can Lead! If u Lose, U Can Guide!
+ - Everything is easy when you are busy. But nothing is easy when you are lazy.
+ - If you have infinite patience and perseverance, success is bound to come. No mistake in that.
+ - Be a hero. Always say, ‘I have no fear.’ Tell this to everyone – ‘Have no fear.’
+ - The whole point is to discipline the mind.
+ - Christ, Buddha, and Krishna are but waves in the Ocean of Infinite Consciousness that I am!
+ - Ignorance is death, Knowledge is life.
+ - Have faith in yourself, all power is in you, be conscious and bring it out.
+ - Hinduism is the mother of all religions.
+ - Do not lower your goals to the level of your abilities. Instead, raise your abilities to the height of your goals.
+ - Do not wait for anybody or anything. Do whatever you can. Build your hope on none.
+ - If the mind is intensely eager, everything can be accomplished – mountains can be crumbled into atoms.
+ - Charity opens the heart.
+ - My countrymen should have nerves of steel, muscles of iron, and minds like thunderbolt.
+ - Help and not fight. Assimilation and not destruction. Harmony and Peace and not dissension.
+ - The fruit falls from the tree when it gets ripe. So wait for the time to come. Do not hurry. Moreover, no one has the right to make others miserable by his foolish acts. Wait, have patience, everything will come right in time.
+ - The Kingdom of Heaven is within us. God is within us. He is the Soul of our souls. See Him in your own soul. That is practical religion. That is freedom.
+ - Purity, patience and perseverance are the three essentials to success and above all love.
+ - Each soul is potentially divine.
+ - The earth is enjoyed by heroes.
+ - Truth, purity, and unselfishness wherever these are present, there is no power below or above the sun to crush the possessor thereof. Equipped with these, one individual is able to face the whole universe in opposition.
+ - Fill the brain with high thoughts, highest ideals, place them day and night before you, and out of that will come great work.
+ - Learn Everything that is Good from Others, but bring it in, and in your own way absorb it; do not become others.
+ - Be brave! Be strong! Be fearless! Once you have taken up the spiritual life, fight as long as there is any life in you. Even though you know you are going to be killed, fight till you “are killed.” Don’t die of fright. Die fighting. Don’t go down till you are knocked down.
+ - Spirituality is the science of the Soul.
+ - We have to practice to become perfect.
+ - I am a Hindu, I am proud to belong to a religion which has taught the world both tolerance and universal acceptance. We believe not only in universal toleration, but we accept all religions as true.
+ - Everything can be sacrificed for truth, but truth cannot be sacrificed for anything.
+ - Work unto death! I am with you, and when I am gone, my spirit will work with you. This life comes and goes; wealth, fame, enjoyments are only of a few days. It is better, far better to die on the field of duty, preaching the truth, than to die like a worldly worm. Advance!
+ - Man is born to conquer nature and not to follow it.
+ - The infinite library of the Universe is in your mind.
+ - So long as the millions live in hunger and ignorance, I hold every man a traitor who, having been educated at their expense, pays not the least heed to them.
+ - You must keep a strict eye on your health; let everything else be subordinated to that.
+ - Take courage and work on. Patience and steady work- this is the only way.
+ - The gift of knowledge is the highest gift in the world.
+ - This is a great fact: strength is life; weakness is death. Strength is felicity, life eternal, immortal; weakness is constant strain and misery, weakness is death.
+ - Every one wants to command, and no one wants to obey; and this is owing to the absence of that wonderful brahmacharya system of yore. First, learn to obey. The command will come by itself. Always first learn to be a servant, and then you will be fit to be a master.
+ - The power of concentration is the only key to the treasure-house of knowledge.
+ - A brave, frank, clean-hearted, courageous and aspiring youth is the only foundation on which the future nation can be built.
+ - Business is business, no child’s play.
+ - Be not in despair, the way is very difficult, like walking on the edge of a razor; yet despair not, arise, awake, and find the ideal, the goal.
+ - The three essentials of Hinduism are belief in God, in the Vedas as revelation, in the doctrine of Karma and transmigration.
+ - The history of the world is the history of a few men who had faith in themselves.
+ - We are responsible for what we are, and whatever we wish ourselves to be, we have the power to make ourselves.
+ - Neither money pays, nor name pays, nor fame, nor learning; it is CHARACTER that cleave through adamantine walls of difference.
+ - Without birth or death, eternal, ever-existing, free, unchangeable and beyond all conditions is this Soul of man – the real Self of Man – the Atman.
+ - Out of purity and silence comes the word of power.
+ - All misery and pain come from attachment.
+ - Unity in variety is the plan of the universe.
+ - The remedy for weakness is not brooding over weakness, but thinking of strength.
+ - Give me few men and women who are pure and selfless and I shall shake the world.
+ - Love is always mutual and reflective. You may hate me, and if I want to love you, you repulse me. But if I persist, in a month or a year you are bound to love me. It is a well-known psychological phenomenon.
+ - Do not figure out big plans at first, but, begin slowly, feel your ground and proceed up and up.
+ - Everything is ended if you forgive and forget.
+ - First, believe in the world-that there is meaning behind everything.
+ - What makes you weep, my friend? In you is all power. Summon up your all-powerful nature, O mighty one, and this whole universe will lie at your feet. It is the Self alone that predominates, and not matter.
+ - If you can think that infinite power, infinite knowledge and indomitable energy lie within you, and if you can bring out that power, you also can become like me.
+ - Purity, patience and perseverance overcome all obstacles. All great things must of necessity be slow.
+ - I am neither man nor angel. I have no sex nor limit. I am knowledge itself. I am He. I have neither anger nor hatred. I have neither pain nor pleasure. Death or birth I never had. For I am Knowledge Absolute, and Bliss Absolute. I am He, my soul, I am He!
+ - Ask nothing; want nothing in return. Give what you have to give; it will come back to you, but do not think of that now.
+ - If there is one word that you find coming out like a bomb from the Upanishads, bursting like a bombshell upon masses of ignorance, it is the word “fearlessness.”
+ - Never mind these failures, these little backslidings; hold the ideal a thousand times, and if you fail a thousand times, make the attempt once more.
+ - In real meditation you forget the body. You may be cut to pieces and not feel it at all. You feel such pleasure in it. You become so light. This perfect rest we will get in meditation.
+ - The organs are the horses, the mind is the rein, the intellect is the charioteer, the soul is the rider, and the body is the chariot.
+ - Liberty in thought and action is the only condition of life, growth and well-being: Where it does not exist, the man, the race, and the nation must go down.
+ - Now is wanted intense Karma-Yoga with unbounded courage and indomitable strength in the heart. Then only will the people of the country be roused.
+ - The best thermometer to the progress of a nation is its treatment of its women.
+ - Astrology and all these mystical things are generally signs of a weak mind.
+ - The Vedas teach that the soul is divine, only held in the bondage of matter; perfection will be reached when this bond will burst, and the word they use for it is, therefore, Mukti – freedom, freedom from the bonds of imperfection, freedom from death and misery.
+ - Come out into the Universe of Light. Everything in the Universe is Yours, stretch out your arms and Embrace it with Love.
+ - Whatever you think, that you will be.
+ - He who struggles is better than he who never attempts.
+ - Man is the nearest approach to Brahman.
+ - You see, no one can teach anybody. The teacher spoils everything by thinking that he is teaching. Thus Vedanta says that within man is all knowledge-even in a boy it is so-and it requires only an awakening, and that much is the work of a teacher.
+ - Astrology and all these mystical things are generally signs of a weak mind; therefore as soon as they are becoming prominent in our minds, we should see a physician, take good food, and rest.
+ - Manifest the divinity within you and everything will be harmoniously arranged around it.
+ - Had I lived in Palestine, in the days of Jesus of Nazareth, I would have washed his feet, not with my tears, but with my heart’s blood!
+ - Accumulate power in silence and become a dynamo of spirituality.
+ - He is an atheist who does not believe in himself. The old religions said that he was an atheist who did not believe in God. The new religion says that he is an atheist who does not believe in himself.
+ - Cowards only sin, brave men never, no, not even in mind.
+ - Our Soul is a spark of the Divine. It is pure and perfect. Evil deeds merely obstruct our vision of the true nature of our Soul. Through good deeds we can become conscious of this perfection again.
+ - Stand up, be bold, and take the blame on your own shoulders. Do not go about throwing mud at others; for all the faults you suffer from, you are the sole and only cause.
+ - The idea of perfect womanhood is perfect independence.
+ - Music is the highest art and to those who understand, is the highest worship.
+ - Calm and silent and steady work, and no newspaper humbug, no name-making, you must always remember.
+ - Friends or foes, they are all instruments in Her hands to help us work out our own karma, through pleasure or pain. As such, ‘Mother’ bless all.
+ - Do not look back upon what has been done. Go Ahead.
+ - Unselfishness is more paying, only people have not the patience to practice it.
+ - We want the education by which character is formed, strength of mind is increased, the intellect is expanded, and by which one can stand on one’s own feet.
+ - All great undertakings are achieved through mighty obstacles. Keep up the deepest mental poise. Take not even the slightest notice of what puerile creatures may be saying against you.
+ - Spirituality as a science, as a study, is the greatest and healthiest exercise that the human mind can have.
+ - Through practice comes Yoga, through Yoga comes knowledge, through knowledge love, and through love bliss.
+ - Be not Afraid of anything. You will do Marvelous work. it is Fearlessness that brings Heaven even in a moment.
+ - The mind has to be gradually and systematically brought under control.
+ - To be good and to do good-that is the whole of religion.
+ - The present is determined by our past actions, and the future by the present.
+ - This is the first lesson to learn: be determined not to curse anything outside, not to lay the blame upon anyone outside, but stand up, lay the blame on yourself. You will find that is always true. Get hold of yourself.
+ - Many a time comes when we want to interpret our weakness and cowardice as forgiveness and renunciation.
+ - Om is the greatest, meaning the Absolute.
+ - Prana is the driving power of the world, and can be seen in every manifestation of life.
+ - Work on with the intrepidity of a lion but at the same time with the tenderness of a flower.
+ - Religion in India culminates in freedom.
+ - The greatest sin is to think that you are weak. No one is greater: realize that you are Brahman. Nothing has power except what you give it.
+ - What we want is muscles of iron and nerves of steel. We have wept long enough. No more weeping, but stand on your feet and be men. It is man-making theories that we want. It is man-making education all round that we want.
+ - Even the greatest fool can accomplish a task if it were after his or her heart. But the intelligent ones are those who can convert every work into one that suits their taste.
+ - The ideal of womanhood in India is motherhood – that marvellous, unselfish, all – suffering, ever – forgiving mother.
+ - Immediately you will be perfect, you will become God.
+ - When an idea exclusively occupies the mind, it is transformed into an actual physical or mental state.
+ - Feel, my children, feel; feel for the poor, the ignorant, the downtrodden; feel till the heart stops and the brain reels and you think you will go mad; then pour the soul out at the feet of the Lord, and then will come power, help and indomitable energy.
+ - The sages are often ignorant of physical science, because they read the wrong book-the book within; and the scientists are too often ignorant of religion, because they too read the wrong book-the book outside.
+ - As long as we require someone else to make us happy, we are slaves.
+ - That man has reached immortality who is disturbed by nothing material.
+ - Everything has a cause.
+ - Ignorance is death, knowledge is life. Life is of very little value, if it is a life in the dark, groping through ignorance and misery.
+ - I pity the Hindu who does not see the beauty in Jesus Christ’s character. I pity the Christian who does not reverence the Hindu Christ.
+ - It is faith that makes a lion of a man.
+ - God is cruel and not cruel. He is all being and not being at the same time. Hence He is all contradictions. Nature also is nothing but a mass of contradictions.
+ - From the high spiritual flights of the Vedanta philosophy, of which the latest discoveries of science seem like echoes, to the low ideas of idolatry with its multifarious mythology, the agnosticism of the Buddhists and the atheism of the Jains, each and all have a place in the Hinduism religion.
+ - The best guide in life is strength. In religion, as in all other matters, discard everything that weakens you, have nothing to do with it.
+ - The chief helps in this liberation are Abhyasa and Vairagya. Vairagya is non – attachment to life, because it is the will to enjoy that brings all this bondage in its train; and Abhyasa is constant practice of any one of the Yogas.
+ - The powers of the mind are like the rays of the sun when they are concentrated they illumine.
+ - Have faith that you are all, my brave lads, born to do great things! Let not the barks of puppies frighten you, no, not even the thunderbolts of heaven, but stand up and work!
+ - Perfect sincerity, holiness, gigantic intellect, and all-conquering will. Let only a handful of men work with these, and the whole world will be revolutionized.
+ - Always keep the mind cheerful. Everyone will die once. Cowards suffer the pangs of death again and again, solely due to the fear in their own minds.
+ - The Absolute God of the universe, the creator, preserver, and destroyer of the universe, is impersonal principle.
+ - The test of Ahimsa is absence of jealousy.
+ - The test of ahimsa is the absence of jealousy. The man whose heart never cherishes even the thought of injury to anyone, who rejoices at the prosperity of even his greatest enemy, that man is the bhakta, he is the yogi, he is the guru of all.
+ - External nature is only internal nature writ large.
+ - May the shadow of the Almighty ever rest on all those you love.
+ - No one is ever really taught by another; each of us has to teach himself. The external teacher offers only the suggestion, which arouses the internal teacher, who helps us to understand things.
+ - Build up your health. Do not dwell in silence upon your sorrows.
+ - Neither seek nor avoid; take what comes. It is liberty to be affected by nothing. Do not merely endure; be unattached.
+ - High achievements in art, music, etc., are the results of concentration.
+ - Truth does not pay homage to any society, ancient or modern. Society has to pay homage to Truth or die.
+ - Ishvara is the highest manifestation of the Absolute Reality, or in other words, the highest possible reading of the Absolute by the human mind. Creation is eternal, and so also is Ishvara.
+ - Excessive attention to the minutiae of astrology is one of the superstitions which has hurt the Hindus very much.
+ - So long as we perceive this world in motion, we have to conceive will behind it.
+ - Experience is the only teacher we have.
+ - It is the greatest manifestation of power to be calm.
+ - Bold words and bolder deeds are what we want. Awake, awake, great ones! The world is burning with misery. Can you sleep?
+ - The highest manifestation of strength is to keep ourselves calm and on our own feet.
+ - I stand for truth. Truth will never ally itself with falsehood. Even if all the world should be against me, Truth must prevail in the end.
+ - Purusha is the; great attraction of the universe; though untouched by and unconnected with the universe, yet it attracts the whole; universe.
+ - The Vedanta teaches men to have faith in themselves first.
+ - None will be able to resist truth and love and sincerity. Are you sincere? Unselfish even unto death, and loving? Then fear not, not even death.
+ - It is the highest manifestation of the power of Vairagya when it takes away even our attraction towards the qualities.
+ - True religion comes not front the teaching of men or the reading of books; it is the awakening of the spirit within us, consequent upon pure and heroic action.
+ - Bear in mind, my children, that only cowards and those who are weak commit sin and tell lies. The brave are always moral. Try to be moral, try to be brave, try to be sympathising.
+ - To be unselfish, perfectly selfless, is salvation itself; for the man within dies, and God alone remains.
+ - Let us blame none, let us blame our own Karma.
+ - Say, “I can do everything .” “Even if poison of a snake is powerless if you can firmly deny it.”
+ - Bless people when they revile you. Think how much good they are doing by helping to stamp out the false ego. Hold fast to the real Self. Think only pure thoughts, and you will accomplish more than a regiment of mere preachers. Out of purity and silence comes the word of power.
+ - Have faith in yourself. You people were once the Vedic Rishis. Only, you have come in different forms, that’s all. I see it clear as daylight that you all have infinite power in you. Rouse that up; arise, arise – apply yourselves heart and soul, gird up your loins.
+ - Meditation, you know, comes by a process imagination. You go through all these processes purification of the elements – making the one melt the other, that into the next higher, that into mind, that into spirit, and then you are spirit.
+ - The greatest help to spiritual life is meditation. In meditation we divest ourselves of all material condition and feel our divine nature.
+ - According to the Hindu way of thinking, marriage is rather a duty than a privilege.
+ - Expansion is life. Love is expansion. Love is therefore the only law of life.
+ - It is the Prana that is manifesting as motion.
+ - The mistake is that we cling to the body when it is the spirit that is really immortal.
+ - The meditative state is the highest state of existence. So long as there is desire, no real happiness can come. It is only the contemplative, witness-like study of objects that brings to us real enjoyment and happiness.
+ - To make a great future India, the whole secret lies in organization, accumulation of power, co-ordination of wills.
+ - We first observe facts, then generalise, and then draw conclusions or principles.
+ - Matter is motion outside, mind is motion inside.
+ - No one is to blame for our miseries but ourselves.
+ - The mind generally takes up various objects, runs into all sorts of things. That is the lower state. There is a higher state of the mind, when it takes up one object and excludes all others.
+ - Meditate upon the Om that is in the heart.
+ - Internal and external nature, mind and matter, are in time and space, and are bound by the law of causation.
+ - As the cause is, so the effect will be Cause is never different from effect, the effect is but the cause reproduced in another form.
+ - A Sannyasin cannot belong to any religion, for his is a life of independent thought, which draws from all religions; his is a life of realisation, not merely of theory or belief, much less of dogma.
+ - Infinite perfection is in every man, though unmanifested.
+ - Man, therefore, according to the Vedanta philosophy, is the greatest being that is in the universe.
+ - No two persons have the same mind or the same body.
+ - There is no good in store so long as malice and jealousy and egotism will prevail.
+ - My faith is in the younger generation, the modern generation. Out of them will come my workers. They will work out the whole problem like lions.
+ - Science, art, learning and metaphysical research all have their proper functions in life, but if you seek to blend them, you destroy their individual characteristics until, in time, you eliminate the spiritual, for instance, from the religious altogether.
+ - Never allow weakness to overtake your mind. Remember Mahavira, remember the Divine Mother! And you will see that all weakness, all cowardice will vanish at once.
+ - We reap what we sow. We are the makers of our own fate. None else has the blame, none has the praise.
+ - Buddha taught kindness towards lower beings; and since then there has not been a sect in India that has not taught charity to all beings, even to animals. This kindness, this mercy, this charity – greater than any doctrine – are what Buddhism left to us.
+ - The Older I grow, the more everything seems to me to lie in manliness. This is my new gospel.
+ - Thinking of objects, attachment to them is formed in a man. From attachment longing, and from longing anger grows.
+ - Sincerity of conviction and purity of motive will surely gain the day; and even a small minority, armed with these, is surely destined to prevail against all odds.
+ - There cannot be friendship without equality.
+ - Let the mind be cheerful but calm. Never let it run into excesses, because every excess will be followed by a reaction.
+ - The history of the world is the history of a few men who had faith in themselves. That faith calls out the divinity within. You can do anything. You fail only when you do not strive sufficiently to manifest infinite power. As soon as a man or a nation loses faith, death comes.
+ - Marriage is not for individual happiness, but for the welfare of the nation and the caste.
+ - Dependence is misery. Independence is happiness.
+ - Gita and Ganga constitute the essence of Hinduism; one its theory and the other its practice.
+ - Even the minds of animals, such as dogs, lions, cats, and serpents, become charmed with music.
+ - It is impossible to think about the welfare of the world unless the condition of women is improved. It is impossible for a bird to fly on only one wing.
+ - Truth can be stated in a thousand different ways, yet each one can be true.
+ - Do not hate anybody, because that hatred which comes out from you must, in the long run, come back to you. If you love, that love will come back to you, completing the circle.
+ - If you really want to judge the character of a man, look not at his great performances. Watch a man do his most common actions.
+ - Be free; hope for nothing from anyone. I am sure if you look back upon your lives you will find that you were always vainly trying to get help from others which never came.
+ - We shall have to work like lions, keeping the ideal before us, without caring whether “the wise ones praise or blame us”.
+ - I hate this world, this dream, this horrible nightmare, with its churches and chicaneries, its books and blackguardisms, its fair faces and false hearts, its howling righteousness on the surface and utter hollowness beneath and, above all, its sanctified shopkeeping!
+ - If superstition enters, the brain is gone.
+ - If Jesus Christ was not perfect, then the religion bearing his name falls to the ground.
+ - Soft-brained people, weak-minded, chicken-hearted, cannot find the truth. One has to be free, and as broad as the sky.
+ - Proselytism is tolerated by Hinduism. Any man, whether he be a Shudra or Chandala, can expound philosophy even to a Brahmin. The truth can be learnt from the lowest individual, no matter to what caste or creed he belongs.
+ - One ounce of practice is worth a thousand pounds of theory.
+ - The happiest is the man who is not at all selfish.
+ - Work and worship are necessary to take away the veil, to lift off the bondage and illusion.
+ - The power is with the silent ones, who only live and love and then withdraw their personality. They never say “me” and “mine”; they are only blessed in being instruments.
+ - You may meditate on whatever you like, but I shall meditate on the heart of a lion. That gives strength.
+ - The soul has neither sex, nor caste nor imperfection.
+ - This world is not for cowards. Do not try to fly. Look not for success or failure. Join yourself to the perfectly unselfish will and work on.
+ - All these disciplines are for the purification of the heart. And as soon as it is pure, all truths flash upon it in a minute; all truth in the universe will manifest in your heart, if you are sufficiently pure.
+ - Don’t you find that in a weak physique it is difficult to control the sex – appetite or anger?
+ - Strength, strength it is that we want so much in this life, for what we call sin and sorrow have all one cause, and that is our weakness. With weakness comes ignorance, and with ignorance comes misery.
+ - Bullies are always cowards.
+ - Whatever others think or do, lower not your standard of purity, morality and love of God.
+ - Man has infinite power within himself, and he can realise it – he can realise himself as the one infinite Self. It can be done; but you do not believe it. You pray to God and keep your powder dry all the time.
+ - God is very merciful to those whom He sees struggling heart and soul for spiritual realization. But remain idle, without any struggle, and you will see that His grace will never come.
+ - What do we call the river? Every moment the water is changing, the shore is changing, every moment the environment is changing, what is the river then? It is the name of this series of changes.
+ - We are the sons of Light and children of God. Glory unto the Lord, we will succeed.
+ - We have wept enough. No more weeping, but stand on feet and be men.
+ - Have faith in yourselves, great convictions are the mother of great deeds.
+ - Only by practice and non-attachment can we conquer mind.
+ - We become forgetful of the ego when we think of the body as dedicated to the service of others – the body with which most complacently we identify the ego.
+ - Whatever you are doing, put your whole mind on it. If you are shooting, your mind should be only on the target. Then you will never miss. If you are learning your lessons, think only of the lesson. In India boys and girls are taught to do this.
+ - Please everyone without becoming a hypocrite or a coward.
+ - The greatest force is derived from the power of thought. The finer the element, the more powerful it is. The silent power of thought influences people even at a distance, because mind is one as well as many. The universe is a cobweb; minds are spiders.
+ - Jnana, bhakti, yoga and karma – these are the four paths which lead to spiritual freedom. One must follow the path for which one is best suited. But in this age, special stress should be laid on karma yoga.
+ - Shri Krishna says: “Better die in your own path than attempt the path of another.”
+ - The uplift of the women, the awakening of the masses must come first, and then only can any real good come about for the country, for India.
+ - Anything that brings spiritual, mental, or physical weakness, touch it not with the toes of your feet.
+ - In these days of intellectual awakening and steadily asserting public opinion, the holy places of the Hindus, their condition, and method of work have not escaped tile keen eye of criticism; and this city, being the holy of holies to all Hindus, has not failed to attract its full share of censure.
+ - Perfection does not come from belief or faith. Talk does not count for anything. Parrots can do that. Perfection comes through the disinterested performance of action.
+ - You must be fearless. It is the coward who fears and defends himself.
+ - Where you find the attraction for lust and wealth considerably diminished, to whatever creed he may belong, know that his inner spirit is awakening.
+ - Shri Ramakrishna use to say, “As Long as I Live, so long do I learn”. That man or that society which has nothing to learn is already in the jaws of death.
+ - Turn thy gaze inward, wherein resides the Supreme Self.
+ - Remember the only sign of life is motion and growth.
+ - The past was great no doubt, but I sincerely believe that the future will be more glorious still.
+ - So long as you have faith in your Guru, nothing will be able to obstruct your way.
+ - Whenever we attain a higher vision, the lower vision disappears of itself.
+ - If in this hell of a world one can bring a little joy and peace even for a day into the heart of a single person, that much alone is true; this I have learnt after suffering all my life; all else is mere moonshine.
+ - To me an Indian is one who has got a Vedantic brain which probes deep and soars high; an Islamic body that is vibrant and valiant; a Buddhistic heart overflowing with compassion and kindness and Christian limbs of service and sacrifice.
+ - Have charity towards all beings. Pity those who are in distress. Love all creatures. Do not be jealous of anyone. Look not to the faults of others.
+ - Pay no attention whatsoever to newspaper nonsense or criticism. Be sincere and do your duty. Everything will come all right. Truth must triumph.
+ - May blessings and happiness attend every step of your progress in this world.
+ - Persevere on, my brave lads, We have only just begun. Never despond! Never say enough!
+ - It is the duty of all to support and side with Dharma. All must fight and support Dharma regardless of their personality, background, status.
+ - The cause of today is the effect of the past and the cause for the future.
+ - Never turn back to see the result of what you have done. Give all to the Lord and go on, and think not of it.
+ - Experience is the only teacher we have. We may talk and reason all our lives, but we shall not understand a word of truth until we experience it ourselves.
+ - The principles of the Vedanta not only should be preached everywhere in India, but also outside. Our thought must enter into the make-up of the minds of every nation, not through writings, but through persons.
+ - The awakening of the soul to its bondage and its effort to stand up and assert itself – this is called life.
+ - He who has no faith in himself can never have faith in God.
+ - The one theme of the Vedanta philosophy is the search after unity. The Hindu mind does not care for the particular; it is always after the general, nay, the universal. “what is it that by knowing which everything else is to be known.” That is the one search.
+ - Have faith in your destiny.
+ - We cannot see outside what we are not inside. The universe is to us what the huge engine is to the miniature engine; and indication of any error in the tiny engine leads us to imagine trouble in the huge one.
+ - As thou thinkest, so art thou.
+ - There is nothing so high as renunciation of self.
+ - A sapling must be hedged about for protection, but when it becomes a tree, a hedge would be a hindrance. So there is no need to criticise and condemn the old forms.
+ - The will is stronger than anything else. Everything must go down before the will, for it comes from God. A pure and strong will is omnipotent.
+ - Anything that is western origin, first you verify it, then accept it. Anything that is Indian origin, first accept it, then verify it if necessary.
+ - The calm man is not the man who is dull. You must not mistake Sattva for dullness or laziness. The calm man is the one who has control over the mind waves. Activity is the manifestation of inferior strength, calmness, of the superior.
+ - It is the calm, forgiving, equable, well-balanced mind that does the greatest amount of work.
+ - You have the right to work, but do not become so degenerate as to look for results. Work incessantly, but see something behind the work. Even good deeds can find a man in great bondage. Therefore be not bound by good deeds or by desires for name and fame.
+ - Self-love is the first teacher of self-renunciation.
+ - Why should a Man be Moral? Because this strengthens his will.
+ - I ask you all so earnestly to open girl’s schools in every village and try to uplift them. If the Conditions of women are raised, then their children will, by their noble actions, glorify the name of the Country.
+ - Women will work out their destinies – much better, too, than men can ever do for them. All the mischief to women has come because men undertook to shape the destiny of women.
+ - Advaita is the only system that gives us complete control over ourselves, takes off all dependence and its associated superstitions, thus making us brave to suffer, brave to do, and in the long run, attain to absolute freedom.
+ - There is no other teacher but your own soul.
+ - If you want to live, go back to Christ. You are not Christians. Go back to Christ. Go back to him who had nowhere to lay his head. Better be ready to live in rags with Christ than to live in palaces without him.
+ - All the powers in the universe are already ours.
+ - Space-time-causation, or name-and-form, is what is called Maya.
+ - The ideal person is he who, in the midst of the greatest silence and solitude, finds the intensest activity, and in the midst of the intensest activity finds the silence and solitude of the desert.
+ - Why are people so afraid? The answer is that they have made themselves helpless and dependent on others. We are so lazy, we do not want to do anything ourselves. We want a Personal God, a Savior or a Prophet to do everything for us.
+ - Be not afraid, for all great power throughout the history of humanity has been with the people. From out of their ranks have come all the greatest geniuses of the world, and history can only repeat itself. Be not afraid of anything. You will do marvellous work.
+ - Do you think these sannyasi children of Sri Ramakrishna are born to simply to sit under trees lighting dhuni-fires? Whenever any of them will take up some work, people will be astonished to see their energy. Learn from them how to work.
+ - It is only by doing good to others that one attains to one’s own good.
+ - Even our smallest attempts are not in vain. We know that nothing is lost.
+ - We must plunge heart and soul and body into the work. And until we are ready to sacrifice everything else to one Idea and to one alone, we never, never will see the Light.
+ - The very reason for nature’s existence is for the education of the soul.
+ - Stand in that reverent attitude to the whole universe, and then will come perfect non attachment.
+ - Think of a space in your heart, and in the midst of that space think that a flame is burning. Think of that a flame is burning. Think of that flame as your own soul and inside the flame is another effulgent light, and that is the Soul of your soul, God. Meditate upon that in the heart.
+ - The disciple must have great power of endurance. Bear all evil and misery without one thought of unhappiness, resistance, remedy, or retaliation. That is true endurance, and that you must acquire.
+ - The Upanishads do not reveal the life of any teacher, but simply teach principles.
+ - We never change, we never die, and we are never born.
+ - As soon as extreme attachment comes, a man loses himself, he is no more master of himself, he is a slave.
+ - Knowledge of the Absolute depends upon no book, nor upon anything; it is absolute in itself. No amount of study will give this knowledge; is not theory, it is realization. Cleanse the dust from the mirror, purify your own mind, and in a flash you know that you are Brahman.
+ - Do not believe a thing because you have read about it in a book. Do not believe a thing because another man has said it was true. Do not believe in words because they are hallowed by tradition. Find out the truth for yourself. Reason it out. That is realization.
+ - Say – i am the Atman in which my lower ego has become merged for ever. Be perfect in this idea; and then as long as the body endures, speak unto others this message of fearlessness: “Thou art That”, “Arise, awake, and stop not till the goal is reached!”
+ - Body is an unreal dream, and we think we are all bodies.
+ - If you think about disaster, you will get it. Brood about death and you hasten your demise. Think positively and masterfully, with confidence and faith, and life becomes more secure, more fraught with action, richer in achievement and experience.
+ - The “ego” like its correlative “non-ego”, is the product of the body, mind etc. The only proof of the existence of the real Self is realisation.
+ - Every attempt to solve the laws of causation, time, and space would be futile, because the very attempt would have to be made by taking for granted the existence of these three.
+ - If you have knowledge and see a man weak, do not condemn him. Go to his level and help him if you can. He must grow.
+ - The Vedanta recognizes no sin it only recognizes error. And the greatest error, says the Vedanta is to say that you are weak, that you are a sinner, a miserable creature, and that you have no power and you cannot do this and that.
+ - You are the makers of your own fortunes. You make yourselves suffer, you make good and evil, and it is you who put your hands before your eyes and say it is dark. Take your hands away and see the light.
+ - Art is – representing the beautiful. There must be Art in everything.
+ - Perfection is not to be attained, it is already within us.
+ - Our duty is to encourage every one in his struggle to live up to his own highest idea, and strive at the same time to make the ideal as near as possible to the Truth.
+ - Something cannot be made out of nothing. Nor can something be made to go back to nothing.
+ - Not believing in the glory of our own soul is what the Vedanta calls atheism.
+ - Self-sacrifice, not self-assertion, is the law of the highest universe.
+ - Nature grinds all of us. Keep count of the ounce of pleasure you get. In the long run, nature did her work through you, and when you die your body will make other plants grow. Yet we think all the time that we are getting pleasure ourselves. Thus the wheel goes round.
+ - The best guide in life is strength.
+ - Religion in India must be made as free and as easy of access as is God’s air.
+ - No better commentary on the Vedas has been written or can be written.
+ - Life is short, and therefore, one thing being certain, death, let us take up a great ideal, and give up the whole life to it. For what is the value of life, this vegetating little low life of man? Subordinating it to one high ideal is the only value that life has.
+ - Hindus believe Buddha to be an Avatara.
+ - As soon as we react, we become slaves. A man blames me, and I immediately react in the form of anger. A little vibration which he created made me a slave.
+ - In countries where there is no marriage, there is no duty between husband and wife; when marriage comes, husband and wife live together on account of attachment; and that kind of living together becomes settled after generations; and when it becomes so settled, it becomes a duty.
+ - National prosperity is another name for death and degradation to millions of other races.
+ - Cut the bondage of all worldly affections; go beyond laziness and all care as to what becomes of you.
+ - Real freedom is not merely doing what you like, but also NOT doing what you like.
+ - Be grateful that the poor man is there, so that by making a gift to him you are able to help yourself.
+ - I want each one of my children to be a hundred times greater than I could ever be. Everyone of you must be a giant- must, that is my word. Obedience, readiness, and love for the cause- if you have these three, nothing can hold you back.
+ - If money help a man to do good to others, it is of some value; but if not, it is simply a mass of evil, and the sooner it is got rid of, the better.
+ - Have faith in yourselves, be proud of your ancestors, instead of being ashamed of them.
+ - Charity never faileth.
+ - God is not to be reached by the weak. Never be weak. You have infinite strength within you. How else will you conquer anything? How else will you come to God?
+ - TO worship God even for the sake of salvation or any other reward is equally degenerate. Love knows no reward. Give your love unto to God, but do not ask anything in return even from Him through pray.
+ - We have lost faith in ourselves. Therefore to preach the Advaita aspect of the Vedanta is necessary to rouse up the hearts of men, to show them the glory of their souls. It is therefore that I preach this Advaita, and I do so not as a sectarian, but upon universal and widely acceptable grounds.
+ - The Indian mythology has a theory of cycles, that all progression is in the form of waves.
+ - Marriage is the truest goal for ninety-nine per cent of the human race, and they will live the happiest life as soon as they have learnt and are ready to abide by the eternal lesson – that we are bound to bear and forbear and that life to every one must be a compromise.
+ - An intellectual, heartless man never becomes an inspired man. It is always the heart that speaks in the man of love; it discovers a greater instrument than intellect can give you, the instrument of inspiration.
+ - No more materialism, no more this egoism, I must become spiritual.
+ - To me the thought of oneself as low and humble is a sin and ignorance.
+ - Let us work without desire for name or fame or rule over others. Let us be free from the triple bonds of lust, greed of gain, and anger. And this truth is with us!
+ - Blame nobody else, do not commit the mistake of the ignorant.
+ - That is the great fact which you ought to remember. We are the children of the Almighty, we are sparks of the infinite, divine fire. How can we be nothings? We are everything, ready to do everything, we can do everything, and man must do everything.
+ - Work hard, be steady, and have faith in the Lord. Set to work.
+ - The benefits of knowledge can only be realized in practice.
+ - Through faithful practice, layer after layer of the mind opens before us, and each reveals new facts to us.
+ - Put God behind everything-human beings, animals, food, and work. Make this a habit.
+ - Religion, in India, means realisation and nothing short of that.
+ - If a thing happens once, it can happen again. If any human being has ever realised perfection, we too can do so. If we cannot become perfect here and now, we never can in any state or heaven or condition we may imagine.
+ - All real progress must be slow.
+ - Attachment comes only where we expect a return.
+ - If you want to have life, you have to die every moment for it. Life and death are only different expressions of the same thing looked at from different standpoints; they are the falling and the rising of the same wave, and the two form one whole.
+ - Principles must conquer in the long run, for that is the manhood of man.
+ - Marriage or non-marriage, good or evil, learning or ignorance, any of these is justified, if it leads to the goal.
+ - All the forces that are working in this body have been produced out of food; we see that every day.
+ - Stand upon the Atman, then only can we truly love the world. Take a very, very high stand; knowing our universal nature, we must look with perfect calmness upon all the panorama of the world.
+ - I reached Ghazipur three days ago. Here I am putting up in the house of Babu Satish Chandra Mukherji, a friend of my early age. The place is very pleasant. Close by flows the Ganga, but bathing there is troublesome, for there is no regular path, and it is hard work wading through sands.
+ - All growth, progress, well – being, or degradation is but relative.
+ - It is clear to us that, for good or for evil, our vitality is concentrated in our religion. You cannot change it. You cannot destroy it and put in its place another.
+ - Body is the name of a series of changes.
+ - Everything that has form, everything that is the result of combination, is evolved out of this Akasha.
+ - Holiness sincerity, and faith.
+ - The forms have value only so far as they are expressions of the life within. If they have ceased to express life, crush them out without mercy.
+ - The development of man is a return to an original perfection.
+ - Pay particular attention to your health, but too much coddling of the body will, on the contrary, also spoil the health.
+ - Chemistry ceases to improve when one element is found from which all others are deductible. Physics ceases to progress when one force is found of which all others are manifestations. So religion ceases to progress when unity is reached, which is the case with Hinduism.
+ - If faith in ourselves had been more extensively taught and practiced, I am sure a very large portion of the evils and miseries that we have would have vanished.
+ - I am teaching you now about it, but how many of you will practice it?
+ - An atheist can be charitable but not religious. But the religious man must be charitable.
+ - Change is always in regard to something which does not change, or which changes relatively less.
+ - We have either to progress or to degenerate. Our ancestors did great things in the past, but we have to grow into a fuller life and march beyond even their great achievements.
+ - Never are we nearer the Light than when the darkness is deepest.
+ - I am a socialist not because I think it is a perfect system, but half a loaf is better than no bread. The other system has been tried and found wanting.
+ - I am neither the mind, nor the intellect, nor the ego, nor the mind-stuff.
+ - My ideal, indeed, can be put into a few words, and that is: to preach unto mankind their divinity, and how to make it manifest in every movement of life.
+ - Jesus Christ was willing to admit every good man to the family of God. It is not the man who believes a certain something, but the man who does the will of the Father in heaven, who is right. On this basis-being right and doing right-the whole world can unite.
+ - Unselfishness is God. One may live on a throne, in a golden palace, and be perfectly unselfish; and then he is in God. Another may live in a hut and wear rags, and have nothing in the world; yet, if he is selfish, he is intensely merged in the world.
+ - The banyan tree does not mean awakening, nor does the hill, nor the saint, nor the European couple. The lotus is a symbol of regeneration.
+ - The law of attraction which holds good for the heavenly bodies also holds good for the smallest particles.
+ - The man who becomes angry never does a great amount of work, and the man whom nothing can make angry accomplishes so much.
+ - In the world take always the position of the giver. Give everything and look for no return. Give love, give help, give service, give any little thing you can, but keep out barter. Make no conditions and none will be imposed on you. Let us give out of our own bounty, just as God gives to us.
+ - Never talk about the faults of others, no matter how bad they may be. Nothing is ever gained by that. You never help one by talking about his fault; you do him an injury, and injure yourself as well.
+ - That which is selfish is immoral, and that which is unselfish is moral.
+ - Forget not that thy marriage, thy wealth, thy life are not for sense-pleasure, are not for thy individual personal happiness.
+ - So long as even a single dog in my country is without food, my whole religion will be to feed it.
+ - Even if our every attempt is a failure, and we bleed and are torn asunder, yet, through all this, we have to preserve our heart – we must assert our Godhead in the midst of all these difficulties.
+ - Watch people do their most common actions; these are indeed the things that will tell you the real character of a great person.
+ - I am indebted to my mother for the efflorescence of my knowledge.
+ - Alcohol is not the answer to all questions.
+ - The sea calm is the Absolute; the same sea in waves is Divine Mother.
+ - Know that every time you feel weak, you not only hurt yourself but also the cause. Infinite faith and strength are the only conditions of success.
+ - Say to your own minds, “I am He, I am He”. Let it ring day and night in your minds like a song, and at the point of death declare : “I am He”. That is truth; the infinite strength of the world is yours.
+ - Renunciation, and renunciation alone, is the real secret, the Mulamantra, of all Realisation.
+ - Form and formless are intertwined in this world. The formless can only be expressed in form and form can only be thought with the formless.
+ - This life is a hard fact; work your way through it boldly, though it may be adamantine; no matter, the soul is stronger.
+ - One ounce of the practice of righteousness and of spiritual Self-realisation outweighs tons and tons of frothy talk and nonsensical sentiments.
+ - Man is guided by the stomach. He walks and the stomach goes first and the head afterwards. Have you not seen that? It will take ages for the head to go first.
+ - One possessing Vairagya does not understand by Atman the individual ego but the All-pervading Lord, residing as the Self and Internal Ruler in all. He is perceivable by all as the sum total.
+ - Siva, O Siva, carry my boat to the other shore!
+ - The waters of the Ganga are roaring among his matted locks.
+ - Oh, to live even for a day in the full light of freedom, to breathe the free air of simplicity! Isn’t that the highest purity?
+ - Desire, ignorance, and inequality – this is the trinity of bondage.
+ - Infinite power of the spirit, brought to bear upon matter evolves material development, made to act upon thought evolves intellectuality, and made to act upon itself makes of man a God. First, let us be Gods, and then help other to be GOds. Be and Make. Let this be our motto.
+ - The kingdom of heaven is within us. The Jewish idea was a kingdom of heaven upon this earth. That was not the idea of Jesus.
+ - This rascal ego must be obliterated.
+ - No negative, all positive, affirmative. I am, God is, everything is in me. I will manifest health, purity, knowledge, whatever I want.
+ - The householder must always please his wife with money, clothes, love and faith and never do anything to disturb her. That man who has succeeded in getting the love of a chaste wife has succeeded in his religion and has all the virtues.
+ - The more opposition there is, the better. Does a river acquire velocity unless there is resistance? The newer and better a thing is, the more opposition I will meet with at the outset. It is opposition which foretells success. Where there is no opposition there is no success either.
+ - Nothing else is necessary but these – love, sincerity, and patience.
+ - If there be no eternal life, still the enjoyment of spiritual thoughts as ideals is keener and makes a man happier, whilst the foolery of materialism leads to competition and undue ambition and ultimate death, individual and national.
+ - Whether you bathe in the Ganga for a thousand years or live on vegetable food for a like period, unless it helps towards the manifestation of the Self, know that it is all of no use.
+ - We must have life building, man-making, character-making assimilation of ideas.
+ - Superstition is great enemy of man but bigotry is worse.
+ - Meditation is a sort of prayer and prayer is meditation. The highest meditation is to think of nothing. If you can remain one moment without thought, great power will come.
+ - All action of Sattva, a modification of Prakriti characterised by light and happiness, is for the soul. When Sattva is free from egoism and illuminated with the pure intelligence of Purusha, it is called the self-centred one, because in that state it becomes independent of all relations.
+ - Wherever there has been expansion in love or progress in well-being, of individuals or numbers, it has been through the perception, realisation, and the practicalisation of the Eternal Truth-the oneness of all beings.
+ - When we use our imagination properly it is our greatest friend; it goes belyond reason and is the only light that takes us everywhere.
+
+500 quotes

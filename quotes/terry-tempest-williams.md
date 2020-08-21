@@ -1,0 +1,206 @@
+ - Storytelling is the oldest form of education.
+ - The Eyes of the Future are looking back at us and they are praying for us to see beyond our own time.
+ - Finding beauty in a broken world is creating beauty in the world we find.
+ - Stories have the power to create social change and inspire community.
+ - My voice is born repeatedly in the fields of uncertainty.
+ - Once upon a time, when women were birds, there was the simple understanding that to sing at dawn, and to sing at dusk, was to heal the world through joy. The birds still remember what we have forgotten, that the world is meant to be celebrated.
+ - Rituals are the formulas by which harmony is restored.
+ - To slow down is to be taken into the soul of things.
+ - Blind obedience in the name of patriotism or religion ultimately takes our lives.
+ - There is something very sensual about a letter. The physical contact of pen to paper, the time set aside to focus thoughts, the folding of the paper into the envelope, licking it closed, addressing it, a chosen stamp, and then the release of the letter to the mailbox – are all acts of tenderness.
+ - Find something that matters deeply to you and pursue it. Question. Stand. Speak. Act. Make us uncomfortable. Make us think.
+ - To be whole. To be complete. Wildness reminds us what it means to be human, what we are connected to rather than what we are separate from.
+ - I pray to the birds because they remind me of what I love rather than what I fear. And at the end of my prayers, they teach me how to listen.
+ - Greed says there is never enough. Abundance says there is more than enough. Greed closes the door behind itself. Abundance opens the door for others.
+ - I am interested and deeply curious about our need for a spiritual life, a life of greater meaning, and how we come to a more ethical view of life within our communities that is more inclusive than exclusive, one that is extended even beyond our own species.
+ - The birds and I share a natural history. It is a matter of rootedness, of living inside a place for so long that the mind and imagination fuse.
+ - I wonder about silence. Also about darkness. I love the idea that city lights are a “conspiracy” against higher thoughts.
+ - An individual doesn’t get cancer, a family does.
+ - Despair shows us the limit of our imagination. Imaginations shared create collaboration, collaboration creates community, and community inspires social change.
+ - The discipline of writing a memoir comes in the editing. This is where I cut, slash, and burn – where my creative mind is transformed into a ruthless one. No word escapes my scrutiny. It is here where I see what boundaries need to be set.
+ - The only thing I have done religiously in my life is keep a journal. I have hundreds of them, filled with feathers, flowers, photographs, and words – without locks, open on my shelves.
+ - The heart is the path to wisdom because it dares to be vulnerable in the presence of power.
+ - Grief dares us to love once more.
+ - Abundance is an expansion of energy. Abundance is a form of gratitude, a generosity, a modesty, a bow toward others – what we can give, what we can share, rather than what we can take.
+ - Most of all, differences of opinion are opportunities for learning.
+ - We find our voice, we lose our voice, we retrieve it, honor it, and hopefully, learn how to share it with others and stand in the center of our power. Translation is a theme. Fear and courage are a theme.
+ - Creativity ignited a spark. In that moment, I saw that art is not peripheral, beauty is not optional, but a strategy for survival.
+ - Buddha says there are two kinds of suffering: the kind that leads to more suffering and the kind that brings an end to suffering.
+ - If a man knew what a woman never forgets, he would love her differently.
+ - I take a deep breath and sidestep my fear and begin speaking from the place where beauty and bravery meet – within the chambers of a quivering heart.
+ - Greed is a deprivation of abundance, a hoarding, a constriction of energy.
+ - Dying doesn’t cause suffering. Resistance to dying does.
+ - It is important to remember all true change begins at the margins and moves toward the center. This does not make the climate change movement marginal, it makes it muscular, organic, with a true movement toward the center.
+ - To write requires an ego, a belief that what you say matters. Writing also requires an aching curiosity leading you to discover, uncover, what is gnawing at your bones.
+ - I think our lack of intimacy with the land has initiated a lack of intimacy with each other. What we perceive as non- human, outside of us, is actually in direct relationship with us.
+ - There are two important days in a woman’s life: the day she is born and the day she finds out why.
+ - The time had come to protest with the heart, that to deny one’s genealogy with the earth was to commit treason against one’s soul.
+ - Perhaps the most radical act we can commit is to stay home.
+ - I write about nuclear tests in Refuge – “The Clan of One-Breasted Women.” With so many of the women in my family being diagnosed with breast cancer, mastectomies led to one-breasted women. I believe it is the result of nuclear fallout.
+ - The act of civil disobedience is the act of taking our anger and turning it into sacred rage. It is a personal and collective gesture of resistance and insistance.
+ - I am slowly, painfully discovering that my refuge is not found in my mother, my grandmother, of even the birds of Bear River. My refuge exists in my capacity to love. If I can learn to love death then I can begin to find refuge in change.
+ - If the desert is holy, it is because it is a forgotten place that allows us to remember the sacred. Perhaps that is why every pilgrimage to the desert is a pilgrimage to the self. There is no place to hide and so we are found.
+ - I know, that Rilke quote – “Beauty is the beginning of terror” – I think about that a lot. It’s that realization that we are so small, and yet we are so large in our capacity to relate to the beauty of things.
+ - The world is holy. We are holy. All life is holy. Daily prayers are delivered on the lips of breaking waves, the whisperings of grasses, the shimmering of leaves.
+ - I write because it is dangerous, a bloody risk, like love, to form the words, to say the words, to touch the source, to be touched, to reveal how vulnerable we are, how transient.
+ - The Japanese have a word – aware – which, in my understanding is, again, that full range – both the joy and the sorrow of our life. One does not exist without the other. And I really feel that.
+ - I write to make peace with the things I cannot control. I write to create fabric in the world that often appears black and white. I write to meet my ghosts. I write to begin a dialogue. I write to imagine things differently and in imagining things differently perhaps the world will change.
+ - My body is a compass – and it does not lie.
+ - Shards of glass can cut and wound or magnify a vision.
+ - Faith is not about finding meaning in the world, there may be no such thing – faith is the belief in our capacity to create meaningful lives.
+ - This is the sorcery of literature. We are healed by our stories.
+ - Through revision, I enter the realm of the unspeakable and find the words that have eluded me.
+ - A shadow is never created in darkness. It is born of light. We can be blind to it and blinded by it. Our shadow asks us to look at what we don’t want to see.
+ - I have inherited a belief in community, the promise that a gathering of the spirit can both create and change culture. In the desert, change is nurtured even in stone by wind, by water, through time.
+ - I believe every woman should own at least one pair of red shoes.
+ - Hope radiates outward from the center of our concerns. Hope dares us to stare the miraculous in the eye and have the courage not to look away.
+ - I think about capitalism, consumerism, our consumptive nature as a species approaching the 21st century. I certainly don’t have the answers.
+ - Story is a relationship between the teller and the listener, a responsibility. After the listening you become accountable for the sacred knowledge that has been shared.
+ - What I mean by “An Unspoken Hunger.” It’s a hunger that cannot be quelled by material things. It’s a hunger that cannot be quelled by the constant denial.
+ - To me, writing is about how we see. The writers I want to read teach me how to see-see the world differently. In my writing there is no separation between how I observe the world and how I write the world. We write through our eyes. We write through our body. We write out of what we know.
+ - I really do believe if there is hope in the world, then it is to be found within our own communities with our own neighbors, and within our own homes and families.
+ - The unexpected action of deep listening can create a space of transformation capable of shattering complacency and despair.
+ - I can’t imagine a secular life, a spiritual life, an intellectual life, a physical life. I mean, we would be completely wrought with schizophrenia, wouldn’t we?
+ - Our sense of community and compassionate intelligence must be extended to all life forms, plants, animals, rocks, rivers, and human beings. This is the story of our past and it will be the story of our future.
+ - When one woman doesn’t speak, other women get hurt.
+ - Perhaps the Wilderness we fear is the pause between our own heartbeats, the silence that reminds us we live by grace.
+ - I think my heart breaks daily living in Salt Lake City, Utah. But I still love it. And that is the richness, the texture.
+ - The danger is in what we codify, commodify, and exploit.
+ - Beauty is transformed over time, and not without destruction.
+ - Our family has made its livelihood from the land, digging trenches for hundreds of miles cross-country. You could say this is a real paradox, to destroy the land, yet love it at the same time. This is a typical story of Westerners, how we build community through change.
+ - When I look in the mirror, I see a woman with secrets. When we don’t listen to our intuition, we abandon our souls. And we abandon our souls because we are afraid if we don’t, others will abandon us.
+ - Our correspondences have wings – paper birds that fly from my house to yours – flocks of ideas crisscrossing the country. Once opened, a connection is made. We are not alone in the world.
+ - What I fear and desire most in this world is passion. I fear it because it promises to be spontaneous, out of my control, unnamed, beyond my reasonable self. I desire it because passion has color, like the landscape before me. It is not pale. It is not neutral. It reveals the backside of the heart.
+ - We write out of our humanity by writing through our direct experience. That which is most personal is most general, which becomes both our insight and protection as a writers. This is our authority as women, as human beings.
+ - My family lives all around me. We see each other daily. It’s very, very complicated. I think that families hold us together and they split us apart.
+ - I think we have to stand up against what is unacceptable, and to push the boundaries and reclaim a more humane way of being in the world, so that we can extend our compassionate intelligence and begin to work with a strengthened will and imagination that can take us into the future.
+ - Word by word, the language of women so often begins with a whisper.
+ - Tortoise steps, slow steps, four steps like a tank with a tail dragging in the sand. Tortoise steps, land based, land locked, dusty like the desert tortoise herself, fenced in, a prisoner on her own reservation – teaching us the slow art of revolutionary patience.
+ - When I said, “I am my mother, but I’m not,” I was saying my path would be my own.
+ - It was fascinating listening to this wonderful biologist, Sarah Allen Miller, speak of her relationship to these beings for 20 years.
+ - I would say I am at peace with the mystery of my mother’s journals. Of course, I will always wonder, but isn’t that the creative tension of living with uncertainty? By leaving me her empty journals, my mother has made herself very present.
+ - I was extremely close with my mother and my grandmothers, we shared our lives – fully, honestly – and it was heightened as each succumbed to cancer. Little was hidden between us. No time. And what was hidden, turned inward. I made a vow to speak. Speak or die.
+ - Every time we make love to a human being, fully, we are making love to everything that lives and breathes. In that sense it becomes communion. It is a sacrament.
+ - I love the interrelatedness of things.
+ - Words empower us, move us beyond our suffering, and set us free.
+ - To hold silence and to be silenced are two very different experiences. And so another theme emerges, that of light and shadow. When we share our voice, who benefits? When we withhold, who benefits? And what are the consequences and costs of both?
+ - Democracy is an insecure landscape.
+ - There is an art to writing, and it is not always disclosure. The act itself can be beautiful, revelatory, and private.
+ - No separation between the spiritual and the physical. It is all one.
+ - These handwritten words in the pages of my journal confirm that from an early age I have experienced each encounter in my life twice: once in the world, and once again on the page.
+ - I write to create red in a world that often appears black and white.
+ - Story is a sacred visualization, a way of echoing experience.
+ - I admire how she protects her energy and understands her limitations.
+ - Whatever artistry may occur within the manuscript, the magic happens for me in the last draft. Whatever I have been resistant to say must finally be said. In the end, I see where my pencil has been leading me.
+ - Home is where we have a history.
+ - Each voice is distinct and has something to say. Each voice deserves to be heard. But it requires the act of listening.
+ - I believe that when we are fully present, we not only live well, we live well for others.
+ - I can only say that I believe the Mormon Church is changing because the people inside the church are changing, particularly, the women. And if the women in the Mormon Church are changing, that means the men in the Mormon Church will change – slowly, reluctantly to be sure, but inevitably.
+ - For me, it always comes back to the land, respecting the land, the wildlife, the plants, the rivers, mountains, and deserts, the absolute essential bedrock of our lives. This is the source of where my power lies, the source of where all our power lies.
+ - I still have great faith in democracy. I have great belief in the power of community.
+ - We forget the nature of true power. The power within is abundance. The power without is greed.
+ - Hope is not attached to outcomes but is a state of mind.
+ - How do we create beauty in a broken world? How do we create a view of sustainability in an economy that is crashing? How do we reconfigure our lives, how do we pick up the pieces and create a meaningful life? So, yes, we have a different form of leadership but the questions remain the same.
+ - I grew up in a culture in which it was a sin for a woman to speak out.
+ - When you are with a landscape or a human being where there is no need to speak, but simply to listen, to perceive, to feel.
+ - CONVERSATION is the vehicle for change.
+ - There are things within the culture that absolutely enrage me, and for me it is sacred rage. But it’s not just peculiar to Mormonism – it’s any patriarchy that I think stops, thwarts, or denies our creativity.
+ - I think I must be worried all the time – maybe that is the other side of joy, you know, holding that line of the full range of emotions.
+ - We are wearing coats of trust. When one tells a story this is what happens.
+ - The moment Eve bit into the apple, her eyes opened and she became free. She exposed the truth of what every woman knows: to find our sovereign voice often requires a betrayal.
+ - I remember as a child, my grandmother read to me Silent Spring. It was incomprehensible to me that there could be a world without birdsong.
+ - I think about the poet Rainer Maria Rilke who said that it’s the questions that move us, not the answers. As a writer, I believe that it’s our task, our responsibility, to hold the mirror up to social injustices that we see and to create a prayer of beauty. The questions serve us in that capacity.
+ - I am not so interested in religion or dogma of any kind. It is too restrictive for me, too organizational, too hierarchical, and too tied up in power and being right. You call it a “rabid evangelism.”
+ - Agitation gives birth to creation.
+ - The question I’m constantly asking myself is: what are we afraid of? I think it’s important for us to follow that line of fear, because that is ultimately our line of growth.
+ - There is no one true church, no one chosen people.
+ - To withhold words is power. But to share our words with others, openly and honestly, is also power.
+ - Having lived in Utah all of my life, I can tell that in many ways I know of no place more lonely, no place more unfamiliar. When I talk about how it is both a blessing and a burden to have those kinds of roots, it can be terribly isolating, because when you are so familiar, you know the shadow.
+ - I think direct political action, civil disobedience, in particular, is something to be taken very seriously.
+ - I write from the place of inquiry. The first draft is a discovery period to see what I know and what I don’t know. My task is simply to follow the words. There are surprises along the way. I just have to get it down. Call it the sculptor’s clay.
+ - Choosing with integrity means finding ways to speak up that honor your reality, the reality of others, and your willingness to meet in the center of that large field. It’s hard sometimes.
+ - What is evolution if not creative adaptation and the progression of our own souls?
+ - I remember a phone call from a friend of mine who lives along the MacKenzie River. She said, “This is the first year in twenty that the chinook salmon have not returned.” This woman knows the names of things. This woman is committed to a place. And she sounded the alarm.
+ - People talk about medium. What is your medium? My medium as a writer has been dirt, clay, sand – what I could touch, hold, stand on, and stand for – Earth. My medium has been Earth. Earth in correspondence with my mind.
+ - Revolution is not something outside of us, but inside us, begging for our engagement every single day.
+ - How do we remain faithful to our own spiritual imagination and not betray what we know in our own bodies? The world is holy. We are holy. All life is holy.
+ - The climate change movement is a river overflowing seeping into every nook and cranny.
+ - To engage in civil disobedience is to feel the abundance of courage, the gratitude for a democracy that still invites us to speak from our hearts, to act from our conscience and have faith in the consequences of moral action. Abundance is a form of consciousness.
+ - I write as a witness to what I have seen.
+ - I have a sequence to my creative life. In spring and fall, I am above ground and commit to community. In the summer, I’m outside. It is a time for family. And in the winter, I am underground. Home. This is when I do my work as a writer – in hibernation. I write with the bears.
+ - I don’t think of myself as an American; I see myself as a human being.
+ - In the early days of the Mormon Church, stewardship toward the land was a priority. It was a matter of survival in the desert.
+ - If we fail in this country, it is because we are too timid. If we lose our way in America, it is because we are too complacent. We must become conscious to the real threats before us and act creatively, imaginatively, now. We can no longer look to leadership beyond ourselves.
+ - If so, then it was also here where I came to know I can survive what hurts. I believed in my capacity to stand back up and run into the waves again and again, no matter the risk.
+ - I think the whole idea of home is central to who we are as human beings.
+ - I accept the Organic Trinity of Mineral, Vegetable, and Animal with as much authority as I accept the Holy Trinity. Both are sacred.
+ - I feel like we are at a time of great creativity if we choose to embrace it as such, if we choose to engage the will of our imaginations and imagine another way of being in the world.
+ - I love the ordered mind of history because it takes us out of the chaos, momentarily, and says, “Ah, so this is the story we are engaged in.”
+ - Water is nothing if not ingemination, an encore to the tenacity of life.
+ - We can try to kill all that is native, string it up by its hind legs for all to see, but spirit howls and wildness endures.
+ - I think that water is a tremendous organizing principle.
+ - Community is extremely intimate. When we talk about humor, I love that you know when you’re home because there is laughter in the room, there is humor, there is shorthand. That is about community.
+ - The pain that we feel when we are making love with someone is that we know it will end. It’s that paradoxical response of joy and suffering.
+ - I think that the only thing that can bring us into a place of fullness is being out in the land with other. Then we remember where the source of our power lies.
+ - I appreciate all of the unexpected places, internal and external, that my writing has taken me.
+ - What every woman knows is that we are remade each time we make love, each time we give birth; each time we feel the blood making its way through our body into our cupped hands, we remember it is our destiny to make change.
+ - We are aching to come together and I think it has little to do with liberal or conservative discourse. I think it has to do with increasing disconnection with what is real and soul-serving.
+ - Landscape shapes culture.
+ - Each horizon, each place holds its own evolutionary power be it the prairie or the plateaus, the mountains or the marshes at Great Salt Lake. For me, this is the nature of peace. Our task is to learn how to see it, feel it, hear it, and care for these places as our own home ground.
+ - I don’t set boundaries for myself when I am writing; if I did, I would be paralyzed from the start, unable to write a word on the page.
+ - I can tell that in Refuge the question that was burning in me was, how do we find refuge in change? Everything around me that was familiar had been turned inside out with my mother’s diagnosis of ovarian cancer and with the Bear River Migratory Bird Refuge being flooded.
+ - I worry, that we are a people in a process of great transition and we are forgetting what we are connected to. We are losing our frame of reference.
+ - I believe a politics of place emerges where we are deeply accountable to our communities, to our neighborhoods, to our home.
+ - Sometimes you have to disclaim your country and inhabit another before you can return to your own.
+ - I think wherever we are, we can create an atmosphere of openness and trust, where women and those who feel marginalized feel safe to speak the truth of their lives.
+ - When you look at the Pueblo communities along the Rio Grande, when you talk to the Navajo people, the Ute people, and certainly the native peoples of California who still have their communities intact, it is what they have always known: that we are not apart from nature but a part of it.
+ - Who wants to be a goddess when we can be human? Perfection is a flaw disguised as control.
+ - We’re animals, I think we forget that. I think there is an ancient archetypal memory that still exists within us. If we deny that, what is the cost? So I do think it’s what binds us as human beings.
+ - Style is like voice, it grows organically from the truth of one’s own life experience. Not in terms of chapters, per se, but in terms of stories. It is the story itself that creates an inherent structure.
+ - What is the most important thing one learns in school? Self-esteem, support, and friendship.
+ - I wonder how it is we have come to this place in our society where art and nature are spoke in terms of what is optional, the pastime and concern of the elite?
+ - Is this the curse of modernity, to live in a world without judgment, without perspective, no context for understanding or distinguishing what is real and what is imagined, what is manipulated and what is by chance beautiful, what is shadow and what is flesh?
+ - To hear something asks very little of us. To listen places our entire being on notice.
+ - I feel that within the Mormon culture there is a tremendous amount of fear – of women’s voices, of questioning of authority, and ultimately of our own creativity.
+ - This is an incredibly creative time. It is a difficult time. It is a disparaging time. A time of cultural and global transitions based on the realization that the Earth cannot support nonsustainable practices anymore.
+ - That is the wonderful ecological mind that Gregory Bateson talks about – the patterns that connect, the stories that inform and inspire us and teach us what is possible.
+ - If you take away all the prairie dogs, there will be no one to cry for the rain.
+ - I think that it’s too much to take on the world. It’s too much to take on Los Angeles. All I can do is to go back home to the canyon where we live and ask the kinds of questions that can make a difference in our neighborhoods.
+ - We mask our needs as the needs of others.
+ - Social change can be seen as a mosaic, taking that which is broken and creating something new.
+ - When I write, I put one foot in front of the other. It’s an act of faith. I just follow my heart.
+ - A trip to the hospital is always a descent into the macabre. I have never trusted a place with shiny floors.
+ - I can only tell where I feel most at home, which is in the erosional landscape of the red rock desert of southern Utah, where the Colorado River cuts through sandstone and the geologic history of the Earth is exposed: our home in Castle Valley.
+ - I come from a culture that embodies the need to convert others to “the truth.” The Mormon Church has one of the largest missionary programs in the world. That does not interest me.
+ - I believe capitalism will eventually be replaced by a communitarian ethic where the rights and care of all beings will be taken into consideration, not just the greed of a corporate few.
+ - Today, I feel stronger, learning to live within the natural cycles of a day and to not expect too much of myself. As women, we hold the moon in our bellies. It is too much to ask to operate on full-moon energy three hundred and sixty-five days a year. I am in a crescent phase.
+ - Our kinship with Earth must be maintained; otherwise, we will find ourselves trapped in the center of our own paved-over souls with no way out.
+ - We’re human, this is our world, and I think we learn that that which is most personal is most general. And so, in a sense, we disappear into this larger world.
+ - The sin we commit against each other as women is lack of support. We hurt. We hurt each other. We hide. We project. We become mute or duplicitous, and we fester like boiling water until one day we erupt like a geyser. Do we forget we unravel in grief?
+ - Abundance is rooted in community, not individualism. Abundance is what is before our eyes, but we cannot see when we are blinded by greed.
+ - We are taught not to trust our own experiences. Great Salt Lake teaches me experience is all we have.
+ - Hopefully there will come a time when I have no words, when I can honor and hold that kind of stillness that I so need, crave, and desire in the natural world.
+ - Abundance is a dance with reciprocity – what we can give, what we can share, and what we receive in the process.
+ - What other species now require of us is our attention. Otherwise, we are entering a narrative of disappearing intelligences.
+ - Not everything is meant for all to hear.
+ - Women piece together their lives from the scraps left over for them.
+ - I am a Mormon woman, I am not orthodox. It is the lens through which I see the world. I hear the Tabernacle Choir and it still makes me weep.
+ - Pico Iyer describes his writing as “intimate letters to a stranger,” and I think that is what the writing process is. It begins with a question, and then you follow this path of exploration.
+ - There is an unraveling, a great unraveling that I believe is occurring. Not without its pain, not without its frustration. Perhaps the fundamentalism we see within America right now is in response to these changes. We fear change, and so we cling to what is known.
+ - I think we are living a life without specificity, and then our lives become abstractions.
+ - When silence is a choice, it is an unnerving presence. When silence is imposed, it is censorship.
+ - The mind creates those things that exist.
+ - I will never be able to say what is in my heart because words fail us, because it is in our nature to protect, because there are times when what is public and what is private must be discerned.
+ - When Emily Dickinson writes, “Hope is the thing with feathers that perches in the soul,” she reminds us, as the birds do, of the liberation and pragmatism of belief.
+ - What is private belongs to me alone. What is personal belongs to all of us through the shared experience of being human.
+ - If you waste water, you die.
+ - The choices and decisions we make in terms of how we use the land ultimately affect our very DNA. Environmental issues are life issues.
+ - As a writer, I have learned that each time I pick up my pencil I betray someone.
+ - The only book worth writing is the book that threatens to kill you.
+ - Good writing must stay open to the questions and not fall prey to the pull of a polemic, otherwise, words simply become predictable, sentimental, and stale.
+ - There are times we have to put our body on the line for what we believe, for the injustices we see even within our own families.
+ - I believe the personal is the collective. One of the ironies of writing memoir is in using the “I” it becomes an alchemical “we.” This is the sorcery of literature.
+ - Mythmaking is the evolutionary enterprise of translating truths.
+ - At the heart of Mormonism is a high regard for community. That is its strength. I have great respect for that.
+
+204 quotes

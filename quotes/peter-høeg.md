@@ -1,0 +1,32 @@
+ - Traveling tends to magnify all human emotions.
+ - There is one way to understand another culture. Living it. Move into it, ask to be tolerated as a guest, learn the language.
+ - If you want to support others you have to stay upright yourself.
+ - I feel the same way about solitude as some people feel about the blessing of the church. It’s the light of grace for me. I never close my door behind me without the awareness that I am carrying out an act of mercy toward myself.
+ - I’ve had the privilege of learning foreign languages. Instead of merely speaking a watered-down form of my mother tongue, like most people, I’m also helpless in two or three other languages.
+ - We all try to camouflage the monotony, But it takes a lot of energy. To insist on being special all the time. When we’re so much like one another anyway. Our triumphs are the same. Our pain. Try for a moment to feel what relief there is in the ordinary.
+ - Under certain circumstances the fateful decisions in life, sometimes even in matters of life and death, are made with an almost indifferent ease. While the little things-for instance, the way people hang on to what is over-seem so important.
+ - It may be necessary to stand on the outside of one is to see things clearly.
+ - I’m no expert on types of cars. As far as i’m concerned, you could send all the cars in the world through a compactor and shoot them out into the stratosphere and put them in orbit around Mars. Except, of course, the taxis that have to be at my disposal when I need them.
+ - The fear for oneself, that one can do something about. Upon it one can turn the light of awareness. But when one is no longer worrying about oneself, then the fear comes for other people and, after that, for the world. There are no fearless people, only fearless moments.
+ - Confronted with people who have power, and who enjoy using it, I turn into a different person, a baser and meaner one.
+ - She was transparent, like a watercolor. As if she were about to dissolve in sound, in tones not yet created.
+ - The body’s pain is so paper-thin and insignificant compared to that of the mind.
+ - I don’t fall in love anymore. Just like I don’t get the mumps.
+ - To want to understand is an attempt to recapture something we have lost.
+ - Whining is a virus, a lethal, infectious, epidemic disease.
+ - We think there are limits to the dimensions of fear. Until we encounter the unknown. Then we can all feel boundless amounts of terror.
+ - I like him. I have a weakness for losers. Invalids, foreigners, the fat boy of the class, the ones nobody ever wants to dance with. My heart beats for them. Maybe because I’ve always known that in some way I will forever be one of them.
+ - Love has something to do with recognition, We can be fascinated by the unknown, we can be attracted by it, but love is something that grows, slowly, in an atmosphere of trust.
+ - The problem with anger against God is that it’s impossible to go higher in the system to complain.
+ - Grief is a gift, something you have to earn.
+ - We sat there and I knew that this was how it felt to be totally accepted. You sit close to another person and are understood, everything is understood and nothing is judged and you are indispensable.
+ - The motive for our actions doesn’t lie ahead of us. It’s something behind us that we’re trying to escape.
+ - Perhaps it’s true that love is eternal. But it’s appearance changes all the time.
+ - People under thirty haven’t yet stopped believing that something wonderful can suddenly happen.
+ - Some thoughts have glue on them. – -Smilla.
+ - It’s these small differences in people’s karma that determine if we get up or remain lying on the ground.
+ - The great systems that inform the world about the truth and life invariably claim to be absolutely truthful and well-balanced. In reality they are quaking bridges built out of yearning.
+ - I’m not crying about anything or anyone in particular. The life I live I created for myself, and I wouldn’t want it any different. I cry because in the universe there is something as beautiful as Kremer playing the Brains violin concerto.
+ - Never do I close my door behind me without being conscious that I am carrying out an act of charity towards myself.
+
+30 quotes

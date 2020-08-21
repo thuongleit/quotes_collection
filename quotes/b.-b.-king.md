@@ -1,0 +1,75 @@
+ - The beautiful thing about learning is that nobody can take it away from you.
+ - Everybody wants to go to Heaven, but no one wants to die to get there!
+ - A day that I don’t learn something new is a wasted day.
+ - A guitar is like an old friend that is there with me.
+ - Education is the one thing that no one can take from you.
+ - You only live but once, and when your died your done, so let the good times roll.
+ - Playing guitar is like telling the truth.
+ - May I live forever. But may you live forever and a day.
+ - And as long as people have problems, the blues can never die.
+ - No one can take it away from you.
+ - Charlie Christian had no more impact on my playing than Django Reinhardt or Lonnie Johnson. I just wanted to play like him. I wanted to play like all of them. All of these people were important to me. I couldn’t play like any of them, though...
+ - We all have idols. Play like anyone you care about but try to be yourself while you’re doing so.
+ - The crowds treat me like my last name. When I go onstage people usually stand up, I never ask them to, but they do. They stand up and they don’t know how much I appreciate it.
+ - I call myself a blues singer, but you ain’t never heard me call myself a blues guitar man.
+ - Elvis, he was unique. And he loved the blues, it was a pity he didn’t do more.
+ - I wanted to connect my guitar to human emotions.
+ - I’ve said that playing the blues is like having to be black twice. Stevie Ray Vaughan missed on both counts, but I never noticed.
+ - My mother was a very beautiful lady, I thought. She was very good to me. I guess – she died when I was nine and a half, but if she had lived I probably wouldn’t be trying to play guitar. She wanted me to be known, but as something else. Not a guitar player.
+ - The blues was like that problem child that you may have had in the family. You was a little bit ashamed to let anybody see him, but you loved him. You just didn’t know how other people would take it.
+ - Hard times don’t necessarily mean being poor all the time. I’ve known people that was a part of a family and always feel that the family likes everybody else but them. That hurts and that’s as deep a hurt as you can possibly get.
+ - Albert King wasn’t my brother in blood, but he sure was my brother in Blues.
+ - I liked blues from the time my mother used to take me to church. I started to listen to gospel music, so I liked that. But I had an aunt at that time, my mother’s aunt, who bought records by people like Lonnie Johnson, Robert Johnson, Blind Lemon Jefferson and a few others.
+ - The blues are three L’s – living, loving and hopefully, laughing.
+ - Religion began as a natural explanation of the universe. The problem started when people refused to accept new evidence.
+ - I look at an audience kind of like meeting my in-laws for the first time. You want to be yourself, but you still want to be somebody that they like. When I go on the stage each night, I try my best to outguess my audience.
+ - Janis Joplin sings the blues as hard as any black person.
+ - We are here because there are things that need our help. Like the planet. Like each other. Like animals. The world is like a garden, and we are its protectors.
+ - I’ve always liked ladies all my life. I guess it started with my mom. So every time I saw a pretty lady, I thought, she’s pretty.
+ - If you can’t get your songs to people one way, you have to find another.
+ - I can’t afford no liquor, all I can buy is beer and wine.
+ - Water from the white fountain didn’t taste any better than from the black fountain.
+ - I gave you seven children, but now you want to give them back.
+ - Music is good for everybody. They say it soothes the savage beast. Well, I think theirs a beast in all of us. So let’s get some more music and soothe all the beasts out there.
+ - The Blues? It’s the mother of American music. That’s what is is – the source.
+ - I can’t think of anyone I’ve mistreated. I’ve always thought that I am my brother’s keeper. And I believe there’s a ‘great spirit’ that takes care of all of us.
+ - The blues was bleeding the same blood as me.
+ - It seems like I always had to work harder than other people. Those nights when everybody else is asleep, and you sit in your room trying to play scales.
+ - There are so many sounds I still want to make, so many things I haven’t yet done.
+ - I don’t have a favorite song that I’ve written. But I do have a favorite song: ‘Always on My Mind,’ the Willie Nelson version. If I could sing it like he do, I would sing it every night. I like the story it tells.
+ - God made Blues right after he made woman.
+ - A lot of people believe what other people say.
+ - There’s a sadness to all kinds of music if you want to hear it. There’s also happiness to it if you want to hear it.
+ - I don’t like anybody to be angry with me. I’d rather have friends.
+ - I’m self-taught. But I finally learned that they was having little shows or night dances or whatever you call them at little juke joints not far from where I lived, and I used to go there. They wouldn’t let me play inside, but I could sit outside on the weekends, when it wasn’t raining or something.
+ - If you want to be a good blues singer, people are going to be down on you, so dress like you’re going to the bank to borrow money.
+ - When I sing, I play in my mind; the minute I stop singing orally, I start to sing by playing Lucille.
+ - Jazz is the big brother of the blues. If a guy’s playing blues like we play, he’s in high school. When he starts playing jazz it’s like going on to college, to a school of higher learning.
+ - Growing up, I was taught that a man has to defend his family. When the wolf is trying to get in, you gotta stand in the doorway.
+ - When I do eventually drop, I pray to God that it will happen in one of three ways. Firstly, on stage or leaving the stage, then secondly in my sleep. And the third way? You’ll have to figure that out for yourself!
+ - I never use that word, retire.
+ - The way I feel today, as long as my health is good and I can handle myself well and people still come to my concerts, still buy my CDs, I’ll keep playing until I feel like I can’t.
+ - I don’t think anybody steals anything; all of us borrow.
+ - Many people leave the country to see beautiful places. I just look out the window and see some of the most gorgeous scenery ever, right here in the USA.
+ - You never miss what you’ve never had. I never had any other life. I didn’t know any other life.
+ - I’m no good with chords. I’m horrible with chords.
+ - When you don’t have much money, you worry that they’ll just put you in the ground someplace and your loved ones won’t know where you are.
+ - I do it because I still get a kick out of it. I still love performing. It keeps me young.
+ - Kenny Burrell is overall the greatest guitarist in the world and he’s my favorite.
+ - I don’t like to feel that I owe anything. I like to feel that I pay my own way, no free lunch.
+ - I guess you can look at me, and tell I’m the old man. My name is BB King.
+ - Ladies, friends, and music – without those three, I wouldn’t wanna be here.
+ - Being a blues singer is like being black two times.
+ - When I was young, I didn’t play like I do today. So these kids are starting at the height that I’ve reached. Think what they might do over time.
+ - I was glad to see other blues guitarists like Albert King have crossover successes like me. We played in the same places like the Whisky and the Filmore. When Albert made his guitar cry, he could cut you so deep!
+ - I’ve been married twice. Most women would rather not be married to a traveling blues singer.
+ - It just seemed to me that the way I played was nice. I could hear it myself.
+ - I don’t think it’s meant for man to know everything at once.
+ - Sometimes the proprietors of the little juke joints gave me a couple dollars. I loved that. I’d go back next Saturday.
+ - I’ve put up with more humiliation than I care to remember.
+ - There was a lot of other young players around at that time when I was coming, but there was older people like Blind Lemon, which was one of my favorites. I don’t know, just seemed like everybody I heard could play better than me.
+ - It’s going to be years and years before most people realize how greatly he contributed to American music.
+ - I don’t do much recording anymore, but before I really stopped, I was glad to get five, five cent a record. That’s why when I see people today and they complain about what they get, and I picked cotton for $2.50 a day.
+ - I don’t try to just be a blues singer – I try to be an entertainer. That has kept me going.
+
+73 quotes

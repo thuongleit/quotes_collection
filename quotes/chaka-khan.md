@@ -1,0 +1,43 @@
+ - You’ve just got to follow your own path. You have to trust your heart and you have to listen to the warnings.
+ - My philosophy is familiarity breeds contempt.
+ - Every personal experience of my life impacts my music.
+ - If I wanted to fight to make a better world racially, I wouldn’t be in the music business. You dig, if I were going to be a freedom fighter music is the wrong field.
+ - If I love a song, I make it mine.
+ - I love to sing. It’s the easiest thing for me to do.
+ - Your moment of clarity comes when you face your fears. Sobriety gave me back me – my life. Self-medication kills you slowly. You can never get a handle on that. It’s a highly destructive force that has to be dealt with on a spiritual level as much as a physical one.
+ - It’s time for those of us who have a voice to speak out for life, for love and for justice using the same media we’ve used throughout our careers.
+ - Painted faces, sun burnt skin, fixed expressions, smiles worn thin.
+ - I want to give some positive messages and to empower some people.
+ - One of the album’s songs features Mary J. Blige, but I don’t want to talk too much about it yet. I think you will hear the music that’s been playing in my head when it comes out.
+ - I control my life and I have never let success run away with me – I’ve taken it and ran. And the only thing that could threaten my stability is me – I’m my only threat and my own worst enemy. Beyond that, I don’t feel successful. I’m nowhere near where I plan to be as far as my goals.
+ - Spirituality has played an amazing part. Its been paramount in my life.
+ - I’d been in a vicious cycle and circle of people and couldn’t see my way out. So I picked myself up one day about 15 years ago and moved where I didn’t know anyone.
+ - But me and my sister knew all the Doris Day and Frank Sinatra songs, too.
+ - I’ve always struggled so much just to appreciate myself.
+ - If we could just see how related we all are, how we’re really all in the same place.
+ - Every personal experience of my life impacts my music. I can only give what I have. And when I receive, I give it back. I often fix it or color it differently or give it in my way, but thats what its about.
+ - Walking through this life really is walking through fire.
+ - I won’t become a household word, or achieve the fame I deserve in my lifetime because of the way I look.
+ - In my thirties, I felt I had hold of one of the reins some of the time.
+ - I can only give what I have. And when I receive, I give it back.
+ - I’m an extremely determined person. I’m very serious about what I do.
+ - It sacrifices people’s lives and their essences at the drop of a dimeI had a manager once say to me, You know you’re worth more money dead than alive.
+ - America breeds ambition and while that can be a good thing, sometimes it’s not. Ambition also breeds competition and that can be a very bad thing. People become chronically preoccupied with competing and don’t know when to stop. It can become unhealthy.
+ - But really, we also need to learn how to love one another as women. How to appreciate and respect each other.
+ - My mother was into opera and my father was into jazz, so there was a lot of jazz in the house where I grew up.
+ - There is no perfect love – that’s something I’m very realistic about.
+ - As you get older, though, you realize there are fire extinguishers. You do have an ability to control the flames.
+ - When I was in my twenties, it felt like I was riding wild horses, and I was hoping I didnt go over a cliff.
+ - The bickering and fighting and hating that women do with each other – it’s going to kill us as a race of people.
+ - I have a lot of charity work I’m into right now, and selling my Chakalates – supporting that whole effort.
+ - I’d like to work on putting art programs back in schools.
+ - Well. I’m probably not loving myself like I should, but I’m really trying.
+ - I like to work spontaneously.
+ - My mom took me to see Goldfinger. My mom took me to see To Sir, With Love.
+ - Being a singer is a way for me to get to a platform to do more.
+ - I’ve been collaborating with Ira Schickman on some songs, and there will be many other, great musicians involved.
+ - If I pop everyone who calls me a diva then I’m going to spend the rest of my life in prison.
+ - I mean, I’m not unhappy, but there’s still so much I want to do.
+ - There are a lot of people I would have liked to have collaborated with, and would still like to.
+
+41 quotes

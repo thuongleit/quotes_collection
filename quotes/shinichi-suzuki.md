@@ -1,0 +1,34 @@
+ - Music is the language of the heart without words.
+ - Perhaps it is music that will save the world.
+ - Knowledge is not skill. Knowledge plus ten thousand times is skill.
+ - Children learn to smile from their parents.
+ - Man is a child of his environment.
+ - The heart that feels music will feel people.
+ - Patience is the absence of expectation.
+ - The fate of a child is in the hands of his parents.
+ - Talent is no accident of birth. In today’s society a good many people seem to have the idea that if one is born without talent, there is nothing he can do about it; they simply resign themselves to what they consider to be their fate.
+ - If children hear fine music from the day of their birth and learn to play it, they develop sensitivity, discipline and endurance. They get a beautiful heart.
+ - Music exists for the purpose of growing an admirable heart.
+ - The real essence of art turned out to be not something high up and far off – it was right inside my ordinary daily self – If a musician wants to become a finer artist, he must first become a finer person.
+ - If I simply do my best, I cannot complain even if I am taken to hell.
+ - Tone has the living soul.
+ - Art is not in some far-off place. A work of Art is the expression of a man’s whole personality, sensibility and ability.
+ - What is man’s ultimate direction in life? It is to look for love, truth, virtue, and beauty.
+ - It is necessary to be concerned about the importance of educating a really beautiful human spirit.
+ - Live by looking for things to do for other people.
+ - Every child grows; everything depends on the teacher.
+ - I am mentally preparing myself for the five-year-old mind. I want to come down to their physical limitations and up to their sense of wonder and awe.
+ - An unlimited amount of ability can develop when parent and child are having fun together.
+ - Practise only as many times as you have breakfast.
+ - Art Exists for the human species. I think that all of the people who love art, those who teach art, and all of you should burn with the obligation to save the world.
+ - It is in our power to educate all the children of the world to become a little better as people, a little happier.
+ - Wrong education and upbringing produces ugly personalities, whereas a fine upbringing and good education will bring forth superior sense and feeling, as well as nobility and purity of mind.
+ - I cannot live without children.
+ - I play with children so that I can learn from them.
+ - Musical ability is not an inborn talent but an ability which can be developed. Any child who is properly trained can develop musical ability just as all children develop the ability to speak their mother tongue. The potential of every child is unlimited.
+ - If a musician wants to become a finer artist, he must first become a finer person.
+ - A child’s slowness in any subject indicates a deficiency in his environment, educational or otherwise.
+ - I have come to the definite conclusion that musical ability is not an inborn talent but an ability which can be developed.
+ - Any child can be developed, it depends on how you do it.
+
+32 quotes

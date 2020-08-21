@@ -1,0 +1,34 @@
+ - All good things are wild and free. ~~Henry David Thoreau
+ - If you truly love nature, you will find beauty everywhere. ~~Vincent van Gogh
+ - Nature does not hurry, yet everything is accomplished. ~~Lao Tzu
+ - Study nature, love nature, stay close to nature. It will never fail you. ~~Frank Lloyd Wright
+ - Nature is pleased with simplicity. ~~Isaac Newton
+ - The clearest way into the Universe is through a forest wilderness. ~~John Muir
+ - The earth has music for those who listen. ~~George Santayana
+ - Man is the most insane species. He worships an invisible God and destroys a visible Nature. Unaware that this Nature he’s destroying is this God he’s worshiping. ~~Hubert Reeves
+ - The mountains are calling and I must go. ~~John Muir
+ - Adopt the pace of nature: her secret is patience. ~~Ralph Waldo Emerson
+ - The earth laughs in flowers. ~~Ralph Waldo Emerson
+ - In all things of nature there is something of the marvelous. ~~Aristotle
+ - We do not see nature with our eyes, but with our understandings and our hearts. ~~William Hazlitt
+ - In every walk with nature one receives far more than he seeks. ~~John Muir
+ - Knowing trees, I understand the meaning of patience. Knowing grass, I can appreciate persistence. ~~Hal Borland
+ - The world is big and I want to have a good look at it before it gets dark. ~~John Muir
+ - For in the true nature of things, if we rightly consider, every green tree is far more glorious than if it were made of gold and silver. ~~Martin Luther
+ - Heaven is under our feet as well as over our heads. ~~Henry David Thoreau
+ - I go to nature to be soothed and healed, and to have my senses put in order. ~~John Burroughs
+ - Wilderness is not a luxury but a necessity of the human spirit. ~~Edward Abbey
+ - Every sunset brings the promise of a new dawn. ~~Ralph Waldo Emerson
+ - I am losing precious days. I am degenerating into a machine for making money. I am learning nothing in this trivial world of men. I must break away and get out into the mountains to learn the news. ~~John Muir
+ - The poetry of the earth is never dead. ~~John Keats
+ - Those who contemplate the beauty of the earth find reserves of strength that will endure as long as life lasts. ~~Rachel Carson
+ - Come forth into the light of things, let nature be your teacher. ~~William Wordsworth
+ - Men stumble over pebbles, never over mountains. ~~Marilyn French
+ - When one tugs at a single thing in nature, he finds it attached to the rest of the world. ~~John Muir
+ - I will be the gladdest thing under the sun! I will touch a hundred flowers and not pick one. ~~Edna St. Vincent Millay
+ - I realized that If I had to choose, I would rather have birds than airplanes. In wilderness I sense the miracle of life, and behind it our scientific accomplishments fade to trivia. Real freedom lies in wildness, not in civilization. ~~Charles A. Lindbergh
+ - The woods are lovely, dark and deep, but I have promises to keep, and miles to go before I sleep, and miles to go before I sleep. ~~Robert Frost
+ - The more civilized man becomes, the more he needs and craves a great background of forest wildness, to which he may return like a contrite prodigal from the husks of an artificial life. ~~Ellen Burns Sherman
+ - Science has never drummed up quite as effective a tranquilizing agent as a sunny spring day. ~~W. Earl Hall
+
+32 quotes

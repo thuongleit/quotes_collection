@@ -1,0 +1,39 @@
+ - Aspire not to have more, but to be more.
+ - We are workers, not master builders, ministers, not messiahs. We are prophets of a future not our own.
+ - Ask and it shall be given you; Seek and ye shall find; Knock and it shall be opened unto you. For everyone that asketh, receiveth; And he that seeketh, Findeth; and to him that knocketh It shall be opened. Aspire not to have more, but to be more.
+ - There are many things that can only be seen through eyes that have cried.
+ - The who have a voice must speak for those who are voiceless.
+ - Peace is the product of justice and love.
+ - Let us not tire of preaching love; it is the force that will overcome the world.
+ - I do not believe in death without resurrection. If they kill me I will rise again in the people of El Salvador.
+ - We cannot do everything, and there is a sense of liberation in realizing that.
+ - We cannot do everything, and there is a sense of liberation in realizing that. This enables us to do something, and to do it very well. It may be incomplete, but it is a beginning, a step along the way, an opportunity for the Lord’s grace to enter and do the rest.
+ - We are prophets of a future not our own.
+ - God is not satisfied with appearance. God wants the garment of justice. God wants his Christians dressed in love.
+ - There is no dichotomy between man and God’s image. Whoever tortures a human being, whoever abuses a human being, whoever outrages a human being, abuses God’s image.
+ - Let us not forget: we are a pilgrim church, subject to misunderstanding, to persecution, but a church that walks serene, because it bears the force of love.
+ - I am bound, as a pastor, by divine command to give my life for those whom I love, and that is all Salvadoreans, even those who are going to kill me.
+ - Let us not tire of preaching love; it is the force that will overcome the world. Let us not tire of preaching love. Though we see that waves of violence succeed in drowning the fire of Christian love, love must win out; it is the only thing that can.
+ - When the church hears the cry of the oppressed it cannot but denounce the social structures that give rise to and perpetuate the misery from which the cry arises.
+ - Peace is generosity. It is right and it is duty.
+ - When we leave Mass, we ought to go out the way Moses descended Mt Sinai: with his face shining, with his heart brave and strong to face the world’s difficulties.
+ - We must not seek the child Jesus in the pretty figures of our Christmas cribs. We must seek him among the undernourished children who have gone to bed at night with nothing to eat, among the poor newsboys who will sleep covered with newspapers in doorways.
+ - If God accepts the sacrifice of my life, may my death be for the freedom of my people. A bishop will die, but the Church of God, which is the people, will never perish. I do not believe in death without resurrection. If they kill me, I will rise again in the people of El Salvador.
+ - We may never see the end results, but that is the difference between the master builder and the worker.
+ - Even when they call us mad, when they call us subversives and communists and all the epithets they put on us, we know we only preach the subversive witness of the Beatitudes, which have turned everything upside down.
+ - When we speak for the poor, please note that we do not take sides with one social class. What we do is invite all social classes, rich and poor, without distinction, saying to everyone let us take seriously the cause of the poor as though it were our own.
+ - The Bible has a very meaningful expression: The Spirit makes all things new. We are those who grow old, and we want everything done to our aged standards. The Spirit is never old; the Spirit is always young.
+ - Beautiful is the moment in which we understand that we are no more than an instrument of God; we live only as long as God wants us to live; we can only do as much as God makes us able to do; we are only as intelligent as God would have us be.
+ - No prayer fully expresses our faith.
+ - We suffer with those who have disappeared, those who have had to flee their homes, and those who have been tortured.
+ - You can tell the people that if they succeed in killing me, that I forgive and bless those who do it. Hopefully, they will realize they are wasting their time. A bishop will die, but the church of God, which is the people, will never perish.
+ - That is the hope that inspires Christians. We know that every effort to better society, especially when injustice and sin are so ingrained, is an effort that God blesses, that God wants, that God demands of us.
+ - No confession brings perfection.
+ - We lay foundations that will need further development.
+ - One must not love oneself so much, as to avoid getting involved in the risks of life that history demands of us, and those that fend off danger will lose their lives.
+ - Our responsibility as Christians makes us tremble.
+ - A Christian’s authenticity is show in difficult hours it is in difficult hours that the church grows in authenticity. Blest be God for this difficult hour in our archdiocese. Let us be worthy of it.
+ - That we may give our body and our blood over to suffering and pain, like Christ – not for Self, but to give harvests of peace and justice to our People.
+ - True liberty does violence to self and, like Christ, who disregarded that he was sovereign becomes a slave to serve others.
+
+37 quotes

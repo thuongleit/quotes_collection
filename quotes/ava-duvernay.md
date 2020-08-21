@@ -1,0 +1,36 @@
+ - If your dream only includes you, it’s too small.
+ - When you’re in your lane, there’s no traffic.
+ - Don’t wait for permission to do something creative.
+ - Stop asking, start doing.
+ - Be passionate and move forward with gusto every single hour of every single day until you reach your goal.
+ - Figure out what you need to do to be the heroine of your own story.
+ - Film school was a privilege I could not afford.
+ - All the traditional models for doing things are collapsing; from music to publishing to film, and it’s a wide open door for people who are creative to do what they need to do without having institutions block their art.
+ - Some black filmmakers will say, “I don’t want to be considered a black filmmaker, I’m a filmmaker.” I don’t think that. I’m a black woman filmmaker.
+ - I didn’t start out thinking that I could ever make films. I started out being a film lover, loving films, and wanting to have a job that put me close to them and close to filmmakers and close to film sets.
+ - I make films about black women and it doesn’t mean that you can’t see them as a black man, doesn’t mean that he can’t see them as a white man or she can’t see them as a white woman.
+ - In documentaries, there’s a truth that unfolds unnaturally, and you get to chronicle it. In narratives, you have to create the situations so that the truth will come out.
+ - I think I am a little jealous of women who have great girlfriends as adults.
+ - I love making films. I’m happiest when I’m doing it. For me, the fear is not being able to make the next thing and not being able, as a woman filmmaker and as a filmmaker of color, to put together the resources to make another thing.
+ - I’m a prison abolitionist because the prison system as it is set up is just not working. It’s horrible.
+ - If you’re doing something outside of dominant culture, there’s not an easy place for you. You will have to do it yourself.
+ - I didn’t go to film school. I got my education on the set as a niche publicist in the film industry.
+ - When I’m marketing a film, whether its mine or someone else’s, I work with a great deal of strategy and elbow grease until the job is done.
+ - The documentaries were something that I could do for a small amount of money, and then I felt like as long as I found the truth in the stories I was telling as a doc, I could teach myself filmmaking through doc filmmaking.
+ - At the end of the day, I had to remain dedicated to historical accuracy.
+ - I think that women definitely have a special bond as friends that is hard to describe to men, and we don’t often see that portrayed narratively.
+ - I wish I could be the black woman Soderbergh, and put the camera on my shoulder and shoot beautifully while I directed.
+ - Hollywood needs more women directors, and Mama Ava needs a carafe and a half of that sweet vino divino.
+ - I’ve been to Sundance eight times as a publicist and thought I was very prepared. I mean, who could’ve been more prepared for me? A publicist who’s been there eight times. Getting there as a filmmaker was a completely surreal, different, unexpected experience.
+ - I don’t understand the iPhone. I just don’t get it. Don’t ya’ll have to write serious emails throughout the day? How can you possibly manage detailed missives on a phone with no keys?
+ - There’s something very important about films about black women and girls being made by black women. It’s a different perspective. It is a reflection as opposed to an interpretation, and I think we get a lot of interpretations about the lives of women that are not coming from women.
+ - I just don’t think there’s a lot of support for the woman’s voice in cinema, and it becomes really difficult to raise that money and start again every time.
+ - I tell the stories that are of interest to me.
+ - Filmmakers need to realize that their job isn’t done when they lock picture. We must see our films through.
+ - You know, often films that are deemed positive, nobody wants to see them.
+ - I really admire Werner Herzog and Spike Lee. They’re amazing documentarians. If you took away all the narratives, they’d just be amazing documentarians.
+ - I think good publicists are just like good mommies – always looking out, making sure folks are comfortable and making sure that folks are on time and making sure that folks are getting what they need and know what they need to do.
+ - As long as you’re in an environment where the worth of the project isn’t based on the project but what its predecessors did, it’s not truly inclusive.
+ - All the films I do, I write the scripts, I direct.
+
+34 quotes

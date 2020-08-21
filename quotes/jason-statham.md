@@ -1,0 +1,65 @@
+ - Looking good and feeling good go hand in hand. If you have a healthy lifestyle, your diet and nutrition are set, and you’re working out, you’re going to feel good.
+ - Your body is like a piece of dynamite. You can tap it with a pencil all day, but you’ll never make it explode. You hit it once with a hammer: Bang! Get serious. Do 40 hard minutes, not an hour and half of nonsense. It’s so much more rewarding.
+ - Do 40 hard minutes, not an hour and a half of nonsense.
+ - I’ve come from nowhere, and I’m not shy to go back.
+ - There is something about yourself that you don’t know...
+ - I’m enthusiastic and ambitious, and I work hard.
+ - And it was a great experience, you know, to travel the world and compete at a certain level. It teaches you discipline, focus, and certainly keeps you out of trouble.
+ - I’m certainly not Tom Cruise or Brad Pitt.
+ - I love to get behind the wheel and get competitive.
+ - I’m used to being efficient and a guy that can do more than the average guy can.
+ - I just gravitate to those more testosterone-filled sort of parts than me playing something a bit more fairy-like.
+ - I love Tony Jaa. He’s one of the best and most capable martial arts stuntmen in the world.
+ - Once you expose your private life, if you give one little bit, the floodgates are open and everyones got a free range for you.
+ - I’m more into MMA than any other sport. I watch a lot of the UFC fights. I have since it first came onto the scene.
+ - People like to pigeonhole you.
+ - The fight training was very extensive, a lot of stretching, a lot of coordination of balance exercises.
+ - I’m prepared to take risks. And every movie that I do is a risk. No one knows what the movie is going out turn out like.
+ - When I go to the cinema I watch all different kinds of films.
+ - It’s not like I’m dying to do work that’s taken seriously, and I’m not looking to become a thespian. It’s not what I’m looking for; I’m just looking to do quality work.
+ - Some of my favorite movies are action movies. You want something good to say. That comes from good writing. But writing is not a skill I possess, unfortunately.
+ - You ain’t ever gonna get an Academy Award for doing ‘Crank,’ and you certainly won’t for doing all the other movies I’ve done.
+ - I think we’re all sensitive; everyone has a certain way about themselves that people don’t like to let their emotions out too often. I think people tend to suppress them and hold them in, so I think there’s a bit of that in me.
+ - One of the toughest guys in the world is Randy Couture – he is the true epitome of what a tough guy is.
+ - My father used to run auctions. He’s now a singer in the Canary Islands.
+ - The insurance of working with a big, already successful franchise just gives you the chance to do other things on a more personal level.
+ - I’m not fixed in any genre. I love all kinds of films. The essential thing is; you have to have good material. If you have the filmmaker, and the material, and the script is good, you can start from there.
+ - Look at someone like Edward Norton. A truly phenomenal actor. He’s definitely went to school and trained.
+ - I used to play a lot of racket sports, tennis and squash.
+ - I like to relax. Spend it with people that I’ve grown up with, or people that I care about, and just relax, sit around doing nothing or sitting on a beach.
+ - A kid is something precious, and you want to protect it and keep it fun. I’m not a dad, but I’ve seen people and how they behave with their kids.
+ - Musclemen grow on trees. They can tense their muscles and look good in a mirror. So what? I’m interested in practical strength that’s going to help me run, jump, twist, punch.
+ - Jet was very busy. I’ve been inspired by a lot of his movies.
+ - I’m not as big a soccer fan as people might imagine, being British.
+ - Guy Ritchie, he thinks going to drama school is the worst thing in the world.
+ - Every sequel needs to be bigger and better.
+ - I’ve been unfortunate enough to be working, and recovering from a few injuries now and again.
+ - I suppose that’s the European way, dangerous and hairy.
+ - I know, a lot of the films I’ve done, it’s obvious I’m going to beat up six guys and just walk out the door. There’s not a lot of motivating factors – it’s just action for the sake of action.
+ - If you got a good imagination, a lot of confidence and you kind of know what you are saying, then you might be able to do it. I know a lot of colorful characters at home that would make great actors.
+ - Sometimes there are people who don’t know how to make action movies – and that situation isn’t a good one.
+ - Well, I’m used to rubbing shoulders with crooks and criminals.
+ - I like fashion. My mum was a dressmaker, believe it or not, so the consequence of that was that all my clothes were homemade, and I looked like a terrible mess until I was old enough to buy my own. But I love good tailoring.
+ - A lot of actors are frustrated because they want to do things that are different and test themselves. Character actors are always looking for something the opposite of what they did.
+ - Usually I’m trying to work with people that I’ve worked with before, so we have a certain amount of know-how and what we’re going to do together.
+ - I should never go with rumors because they’re often not correct.
+ - People take chances every now and then, and you don’t want to disappoint them.
+ - Without doing the big blockbusters, I wouldn’t be able to find the money to go after little projects that I want to do.
+ - It’s street theater. You have to make it entertaining so people don’t get bored and walk away.
+ - And if people come up and say they like the movies you’re in, it’s a great compliment.
+ - I’ve never been one to run around in Speedos on the beach.
+ - I’d love to do a comedy. I’d love to do a two-hander like the old Leathal Weapon movies. I love those, like an action comedy with the straight man and the funny man. I’d love to do one of those. Just got to find one, find a funny man that wants to do one with me.
+ - I endured many weeks of it, but I had a big background in martial arts and fighting as a kid, so kind of all the problems got brushed away and I was ready.
+ - The thing about the UK is we don’t really make that many great movies.
+ - I’m not a method actor; I hope you know that!
+ - I was a sportsman for years. I’ve always had a physical background. I’ve always had an interest in boxing and fighting. To get physical in films is a dream. I love it.
+ - Every actor has a strength, and sometimes you just respond to things that you see yourself better at. I’m aware of what I can and can’t do.
+ - Action comedy, if you can get it right, it is, for me, a particularly brilliant genre. It really is.
+ - If anybody knows how to make action movies it’s Sly.
+ - A lot of action movies today seem to have scenes that just lead up to the action.
+ - In Hollywood, people get reputations, just rumors that are passed down.
+ - I like heist movies. I like action movies that set all the elements into one and a chance to do something that comes from a great stable of writing.
+ - I think being a competitive diver for years helps you focus and dedicate yourself to what’s needed.
+ - It’s something I never dreamed I’d be doing, making movies.
+
+63 quotes

@@ -1,0 +1,100 @@
+ - Life is full of what-ifs, many of which could easily have been realities, had just a few things been different.
+ - To become a stoic is to endorse the truthfulness of its world view and accept its prescription for how you ought to live, not just to like how it makes you feel.
+ - Trying to keep up with health advice can feel like surfing the Net for weather forecasts: what you find is always changing, often contradictory and rarely encouraging.
+ - Accepting that the world is full of uncertainty and ambiguity does not and should not stop people from being pretty sure about a lot of things.
+ - If there’s one thing that makes me cynical, it’s optimists. They are just far too cynical about cynicism. If only they could see that cynics can be happy, constructive, even fun to hang out with, they might learn a thing or two.
+ - Untested assumptions and lazy habits of thought can be shown up, once put in a spotlight of a different hue.
+ - The simplest and clearest motivation for taking animal welfare seriously is the recognition that pain is in and of itself a bad thing, and that to inflict significant amounts of it unnecessarily is wrong.
+ - True respect means taking other people’s beliefs seriously and assuming they are adult and intelligent enough to be able to cope with it if you tell them, clearly and civility, why you think they are totally, utterly and disastrously wrong.
+ - On social networking sites, we may expose ourselves, but we choose to do so. We are in control and, often wrongly, we do not feel we are giving away tradable data.
+ - Being virtuous is wonderful thing, but feeling virtuous is a shortcut to vice.
+ - There is such a thing as fanaticism, it is always wrong, and if you disagree, you’re wrong too.
+ - Real life is about accepting ups and downs, the good and the bad, the possibility of failure as well as the ambition to succeed. Atheism speaks to the truth about our human nature because it recognizes all this and does not seek to shield us from the truth by myth and superstition.
+ - True humility is expressed in deeds, not words. The humble are those who truly walk the same ground as everyone else – not necessarily with grovelling, hunched backs, but certainly not lording it over others, either.
+ - Waiting is so unusual that many of us can’t stand in a queue for 30 seconds without getting out our phones to check for messages or to Google something.
+ - It is true that legality is not morality, and sticking to the law is necessary for good citizenship, but it is not sufficient.
+ - Society needs both justice and compassion, a head and a heart, if it is to be civilised.
+ - Economics is uncertain because its fundamental subject matter is not money but human action. That’s why economics is not the dismal science, it’s no science at all.
+ - Any celebration meal to which guests are invited, be they family or friends, should be an occasion for generous hospitality.
+ - Nature deals the cards without thought or care, and there is no point in blaming the dealer. All we can do is make the best of the hands we have been dealt.
+ - The greatest moral failing is to condemn something as a moral failing: no vice is worse than being judgmental.
+ - I am only me for practical purposes.
+ - Dover’s cliffs call to mind the Roman invasion; the Battle of Britain; our proximity to, yet difference from, mainland Europe; and international trade and exploration, both fair and exploitative.
+ - When you try to cool down hot emotions, what tends to happen is that you end up either repressing them or losing them altogether. Neither is desirable. Without emotion, much social interaction loses its meaning or changes for the worse.
+ - When you do the right thing, but not to any particular person, we instinctively feel that we have earned some sort of pay back. Since no-one will do that for us, we opt for self-service reciprocation.
+ - The supposed revelations of God to humanity through Christ, or the word of God to Mohammed through the angel Gabriel, had the power they did because they indicated new truths, new directions for followers.
+ - No matter how convinced we are that someone is nasty, evil or just plain criminal, if they have not been convicted of any crime and support views that are upheld and defended by many law-abiding citizens, the only way to tackle them is through democratic debate.
+ - Being able and willing to complain is what makes us rational and moral animals, capable of seeing and articulating the difference between how things are and how they should be.
+ - You don’t choose what you believe moment to moment, but choices you have made do shape what you come to believe.
+ - Right and wrong are not simply matters of evolutionary impacts and what is natural.
+ - Atheists have to live with the knowledge that there is no salvation, no redemption, no second chances. Lives can go terribly wrong in ways that can never be put right.
+ - Instead of showing strangers kindness and giving them the benefit of the doubt, we increasingly show them only fear, and that is bad for us and them.
+ - Wellbeing is a notion that entails our values about the good life, and questions of values are not ultimately scientific questions.
+ - The idea that there is a sharp boundary between our true inner selves and the outside world is pervasive but highly questionable. The boundaries of the self might well be more porous than we ordinarily think.
+ - The very act of questioning whether you exist proves you do, because you must be there for the doubt to be entertained in the first place.
+ - Too often, complaint is not about principled objection on moral grounds, but opportunistic objection on grounds of self-interest. To rectify this, we need to work on mastering the art of complaint.
+ - People should not expect the state to protect them from fraudsters. If we do, we get into the habit of neglecting our own powers of intellectual discernment.
+ - If I hammer my own thumb while doing some DIY, it’s not nice, but it’s not the end of the world. To care obsessively about similar levels of discomfort in animals seems to be a case of mistaken moral priorities.
+ - Yesterday’s news feeds our fear that our neighbours are more likely than not to be bad eggs: benefit fraudsters, bogus asylum seekers, paedophiles or jihadist terrorists.
+ - Atheists should point out that life without God can be meaningful, moral and happy.
+ - Philosophy has to be enquiring; it can take nothing on faith, and its methods are based not on the blind acceptance of authority, but on establishing truths by reason and argument.
+ - Love is indeed, at root, the product of the firings of neurons and release of hormones.
+ - The mark of a mature, psychologically healthy mind is indeed the ability to live with uncertainty and ambiguity, but only as much as there really is. Uncertainty is no virtue when the facts are clear, and ambiguity is mere obfuscation when more precise terms are applicable.
+ - You should protest about the views of people you disagree with over major moral issues, and argue them down, but you should not try to silence them, however repugnant you find them. That is the bitter pill free speech requires us to swallow.
+ - Rules matter, and to be rules they need to be universal in form: always do this, never do that. But it is foolish to rule out in advance the possibility that an occasion might arise when normal rules just don’t apply. Rules are not there to be broken, but sometimes break them we must.
+ - The truly humble feel the ground beneath their feet every day and do not only become aware of it when held aloft or pushed down to their knees.
+ - We can take suffering to be an opportunity to learn and to grow. But if we are honest, we should remember that this is making the best of a bad job, and that minimising suffering takes priority over optimising its outcome.
+ - Most people believe, more or less, that the value of a human life is the same, irrespective of where on the planet it happens to find itself. But, of course, not every life has the same value for us.
+ - Heathens are unredeemed outcasts from heaven who roam the planet without hope of surviving the deaths of their bodies. They may have values, but they are not secured by any divine source. Yet we embrace this because we think it represents the truth.
+ - No genuine choice is ever simply a matter of the arbitrary exercise of will. Take your choice of lunch today. You can’t decide to want anything, but what you want will at least in part be a result of a series of other choices and judgments you’ve made in your life to date.
+ - I maintain the importance of an absolute prohibition against torture, while acknowledging that even absolute prohibitions can sometimes be broken. If that is a contradiction, it is a contradiction that ethics has to embrace, or else it becomes like glass: hard, clear, but fatally inflexible.
+ - Since Plato, we have been considering the nature of knowledge, the meaning of meaning and the status of the physical world.
+ - Constructive complaint requires only two things: that what you are complaining about should be different, and that it can be different. It sounds simple, but too often our protests fail this test.
+ - The idea that the mind can extend even beyond the body is an intriguing one, and is bound to become more pressing as we increasingly develop technologies that augment our natural abilities.
+ - If there is an art of living, it is not something that can be taught timelessly. We have lessons to learn from Aristotle et al, for sure, but not if we simply uproot them from their epoch and stamp them into 21st-century soil.
+ - True virtue would never liken its rewards to points on a loyalty card, not because it is its own reward, but because it is not something we should practice to accrue future benefits.
+ - Being a good neighbour is about compassion, which is as warm-blooded as justice is cool-headed.
+ - No one has ever understood anything better by assuming that there is no reason for why it is the way it is.
+ - The reason Buddhism can be so naturalised is because, stripped of its supernatural elements, its core teachings can be giving a sound, secular philosophical interpretation. In other words, it becomes a religion acceptable to the contemporary, naturalistic mind only when it ceases to be a religion.
+ - It’s not leftovers that are wasteful, but those who either don’t know what to do with them or can’t be bothered.
+ - If we find it hard to believe that winning millions might not be so lucky after all, we just don’t have a good enough imagination. If I fantasise about winning the lottery, it doesn’t take long before all sorts of worrisome potential consequences occur to me.
+ - If we now find ourselves looking down on the cheap and convenient, it is only because we now have better things which are affordable.
+ - We can’t control whether we are rewarded for our endeavours, with cash or recognition. It is not up to us how much cash or time we get on Earth, but it is down to us how we spend it.
+ - If you believe you are right, then you should believe that you can make the case that you’re right. This requires you to deal with serious objections properly.
+ - If philosophy is to be a valuable part of life, we have to appreciate it for its own sake, and not just for what it’s done for us lately.
+ - We do wrong willfully when we fail to think hard about whether what we’re doing is right.
+ - Cooking can be rewarding when it is a choice and no longer the onerous duty of the housewife, and when a dishwasher can lighten the load at the other end of the process.
+ - Whatever your religious persuasion, if you believe that that the universe is governed by benign forces, at some point you have to explain why there is so much suffering, misfortune and misery in the world.
+ - Seek first what is true and of value, and then whatever happiness follows will be of the appropriate quantity and, more importantly, quality.
+ - One reason why it has become harder to promote the beneficial side of emotions such as anger is that the moral vocabulary of good and bad has been replaced by the self-help lexicon of positive and negative thinking.
+ - Trade has played a vital role in the social evolution of humankind. It allowed people to specialise, which raises both skill levels and efficiency. It brought people from different lands together, co-operating rather than competing over resources.
+ - In my experience, those who make the biggest fuss about not spending much at Christmas are generally the ones who buy what they want and eat where they want 12 months a year.
+ - Christmas is a rare occasion when we are reminded that we have obligations to people we did not choose to be related to, and that love is not just a spontaneous feeling but something we sometimes really have to work at, with people we may not even much like.
+ - Big sporting events and spectacles might give the national morale a shot in the arm, but they are too transient and taste-specific to stand as robust symbols of nationhood.
+ - Daily life is better when it involves interactions with real people who have a personal investment in their labour, like shopkeepers, than it is with someone ‘just doing my job’ or the infernal self-checkout machine.
+ - The reason to be an atheist is not that it makes us feel better or gives us a more rewarding life. The reason to be an atheist is simply that there is no God and we would prefer to live in full recognition of that, accepting the consequences, even if it makes us less happy.
+ - As a teenager, I increasingly had questions about religion to which I found no good answers.
+ - I don’t think anyone who genuinely embraced sincerity, charity and modesty could be intolerant or divisive.
+ - No one who has understood even a fraction of what science has told us about the universe can fail to be in awe of both the cosmos and of science.
+ - It is often said that having gone through any kind of suffering tends to makes you appreciate life more and live more in the present. I’m not sure how universal or long-lasting these effects really are.
+ - Perhaps the biggest myth about cynicism is that it deepens with age. I think what really happens is that experience painfully rips away layers of scales from our eyes, and so we do indeed become more cynical about many of the things we naively accepted when younger.
+ - The modern believer is not suspicious enough, which is perhaps why, when they try to construct arguments in their defence, the convictions are left doing all the work and reason, debilitated by neglect, weakly fails to prop them up.
+ - Believers are right when they say that to understand a religion properly you need to get under its skin. But to understand it fully, you cannot stay there: you have to take a more objective view, too.
+ - People do care where their food, or other goods, comes from, not merely if the price is right. And that means no business can afford to ignore the impacts their buying practices have on producers and on the perceptions and choices of consumers.
+ - Stress means something different if it is the result of rewarding work rather than struggling to keep the family out of debt.
+ - Progress is more of a challenge for the cynic but also more important and urgent, since for the optimist things aren’t that bad and are bound to get better anyway.
+ - Metaphorical tone deafness is when people are unable to discern what is of value in something. I think I’m tone deaf to poetry, for instance. Despite having studied it into a second year of university, most of it just leaves me cold.
+ - The only good reason to embrace a philosophical position is that you are convinced it is true or at least makes sense of the world better than the alternatives.
+ - Traditional arguments for the existence of God and contemporary attempts to use fine-tuning and cosmology to back up the case for his existence always strike me as kinds of games, since hardly anyone believes on the basis of these arguments at all.
+ - Morality is more than possible without God, it is entirely independent of him.
+ - Indeed, without emotion it seems unlikely we can even have morality.
+ - Philosophy is at its most engaged when it is impure. What is being recovered from the Ancient Greek model is not some lost idea of philosophy’s pure essence, but the idea that philosophy is mixed up with everything else.
+ - Justice can only be dispensed when you have all the facts in front of you.
+ - From time to time, it is worth wandering around the fuzzy border regions of what you do, if only to remind yourself that no human activity is an island.
+ - The capacity to make free choices is not something we either have entirely or not at all. Rather, choices become freer the more they are the result of our own capacity to reflect on and assess facts and arguments.
+ - This is the deal: we are happy to single out people as superior just as long as they don’t accept the description themselves. We want heroes and idols, but we also want egalitarianism, and that requires proclamations of humility from our gods.
+ - Happiness is not the same as life satisfaction, while neither are identical to what we might call flourishing.
+ - It may not have the virtuous ring of the golden rule, but the maxim ‘never say never’ is one of the most important in ethics.
+ - The border between the natural and the supernatural, religion and philosophy, may not always be clear. But there are lines, and we should know and accept which side of it we are on.
+
+98 quotes

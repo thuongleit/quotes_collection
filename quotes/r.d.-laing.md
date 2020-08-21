@@ -1,0 +1,89 @@
+ - Life is a sexually transmitted disease and the mortality rate is one hundred percent.
+ - Pain in this life is not avoidable, but the pain we create avoiding pain is avoidable.
+ - The range of what we think and do is limited by what we fail to notice. And because we fail to notice that we fail to notice, there is little we can do to change until we notice how failing to notice shapes our thoughts and deeds.
+ - Insanity – a perfectly rational adjustment to an insane world.
+ - The range of what we think and do is limited by what we fail to notice.
+ - We have to realize that we are as deeply afraid to live and to love as we are to die.
+ - True guilt is guilt at the obligation one owes to oneself to be oneself. False guilt is guilt felt at not being what other people feel one ought to be or assume that one is.
+ - Do not adjust your mind, the fault is in reality.
+ - Schizophrenia cannot be understood without understanding despair.
+ - If we can revert to the truth, then a great deal of one’s suffering can be erased, because a great deal of one’s suffering is based on sheer lies.
+ - Our behavior is a function of our experience. We act according to the way we see things. If our experience is destroyed, our behavior will be destructive. If our experience is destroyed, we have lost our own selves.
+ - Psychological breakdowns are actually breakthroughs to enlightenment.
+ - Where can you scream? It’s a serious question: where can you go in society and scream?
+ - The experience and behavior that gets labeled schizophrenic is a special strategy that a person invents in order to live in an unlivable situation.
+ - Madness need not be all breakdown. It may also be break-through.
+ - No one acts or experiences in a vacuum...
+ - There is a great deal of pain in life and perhaps the only pain that can be avoided is the pain that comes from trying to avoid pain.
+ - We are all murderers and prostitutes – no matter to what culture, society, class, nation one belongs, no matter how normal, moral, or mature, one takes oneself to be.
+ - Schizophrenia is a successful attempt not to adapt to pseudo- social realities.
+ - From the alienated starting point of our pseudo-sanity, everything is equivocal. Our sanity is not “true” sanity. Their madness is not “true” madness. The madness of our patients is an artifact of the destruction wreaked on them by us, and by them on themselves.
+ - They are playing a game. They are playing at not playing a game. If I show them I see they are, I shall break the rules and they will punish me. I must play their game, of not seeing I see the game.
+ - The psychiatrist must become a fellow traveler with his patient.
+ - We are all in a post-hypnotic trance induced in early infancy.
+ - Each time a new baby is born there is a possibility of reprieve. Each child is a new being, a potential prophet, a new spiritual prince, a new spark of light precipitated into the outer darkness.
+ - We are effectively destroying ourselves by violence masquerading as love.
+ - We live in a moment of history where change is so speeded up that we begin to see the present only when it is already disappearing.
+ - Few books today are forgivable.
+ - Whether life is worth living depends on whether there is love in life.
+ - If I hazard a guess as to the most endemic, prevalent anxiety among human beings-including fear of death, abandonment, loneliness-nothing is more prevalent than the fear of one another.
+ - Our ‘normal’ ‘adjusted’ state is too often the abdication of ecstasy, the betrayal of our true potentialities.
+ - There is no such condition as ‘schizophrenia,’ but the label is a social fact and the social fact a political event.
+ - If I don’t know I don’t know, I think I know. If I don’t know I know I know, I think I don’t know.
+ - When family relations are no longer harmonious, we have filial children and devoted parents.
+ - Being embodied as such is no insurance against feelings of hopelessness or meaningslessness. Beyond his body, he still has to know who he is.
+ - Freud was a hero. He descended to the Underworld and met there stark terrors. He carried with him his theory as a Medusa’s head which turned these terrors to stone.
+ - Here we have the paradox, the potentially tragic paradox, that our relatedness to others is an essential aspect of our being, as is our separateness, but any particular person is not a necessary part of our being.
+ - Human beings seem to have an almost unlimited capacity to deceive themselves, and to deceive themselves into taking their own lies for truth.
+ - Truth is literally that which is without secrecy, what discloses itself without a veil.
+ - I am quite sure that a good number of “cures” of psychotics consist in the fact that the patient has decided, for one reason or other, once more to play at being sane.
+ - We live equally out of our bodies and out of our minds.
+ - I cannot experience your experience. You cannot experience my experience. We are both invisible men.
+ - The way out is through the door you came in.
+ - What is to be done? We who are still half alive, living in the often fibrillating heartland of a senescent capitalism – can we do more than reflect the decay around and within us? Can we do more than sing our sad and bitter songs of disillusion and defeat?
+ - What we think is less than what we know; What we know is less than what we love; What we love is so much less than what there is. And to that precise extent we are so much less than what we are.
+ - In the context of our present pervasive madness that we call normality, sanity, freedom, all our frames of reference are ambiguous and equivocal.
+ - We are bemused and crazed creatures, strangers to our true selves, to one another, and to the spiritual and material world – mad, even, from an ideal standpoint we can glimpse but not adopt.
+ - Children do not give up their innate imagination, curiosity, dreaminess easily. You have to love them to get them to do that.
+ - Any experience of reality is indescribable!
+ - We all live under the constant threat of our own annihilation. Only by the most outrageous violation of ourselves have we achieved our capacity to live in relative adjustment to a civilization apparently driven to its own destruction.
+ - A lot of the time I’m in the present, and I’m thinking about the past or scheming about the future and missing every present moment, instead of actually partaking of the sacrament of every present moment.
+ - What do you do when you don’t know what to do? No wonder there are more suicides among psychiatrists than in any other profession.
+ - The condition of alienation, of being asleep, of being unconscious, of being out of one’s mind, is the condition of the normal man.
+ - The universe was a vast machine yesterday, it is a hologram today. Who knows what intellectual rattle we’ll be shaking tomorrow.
+ - Normal men have killed perhaps 100,000,000 of their fellow normal men in the last fifty years.
+ - The brotherhood of man is evoked by particular men according to their circumstances. But it seldom extends to all men. In the name of our freedom and our brotherhood we are prepared to blow up the other half of mankind and to be blown up in our turn.
+ - A mental healer may be a psychiatrist. A psychiatrist may or may not be a mental healer.
+ - In the society of men the truth resides now less in what things are than in what they are not. Our social realities are so ugly if seen in the light of exiled truth, and beauty is no longer possible if it is not a lie.
+ - The square root of nothing.
+ - Philosophy does not exist. It is nothing but an hypostatized abstraction.
+ - Attempts to wake before our time are often punished, especially by those who love us most. Because they, bless them, are asleep. They think anyone who wakes up, or who, still asleep, realizes that what is taken to be real is a ‘dream’ is going crazy.
+ - Alienation as our present destiny is achieved only by outrageous violence perpetrated by human beings on human beings.
+ - The dynamics and structures found in those groups called families in our society may not be evident in those groups called families in other places and times.
+ - No one has schizophrenia, like having a cold. The patient has not “got” schizophrenia. He is schizophrenic.
+ - In describing one way of going mad, I shall try to show that there is a comprehensible transition from the sane schizoid way of being-in-the-world to a psychotic way of being-in-the-world.
+ - Perhaps God is not dead; perhaps God himself is mad.
+ - The human mind has to ask “Who, what, whence, whither, why am I?” And it is very doubtful if the human mind can answer any of these questions.
+ - Beauty is almost no longer possible if it is not a lie.
+ - Society highly values its normal man. It educates children to lose themselves and to become absurd, and thus to be normal.
+ - One cannot say everything at once.
+ - Even facts become fictions without adequate ways of seeing “the facts”. We do not need theories so much as the experience that is the source of the theory. We are not satisfied with faith, in the sense of an implausible hypothesis irrationally held: we demand to experience the “evidence”.
+ - No one has the answer: we are answer and question.
+ - Doctors have throughout time made fortunes on killing their patients with their cures. The difference in psychiatry is that it is the death of the soul.
+ - I’m ridiculous to feel ridiculous when I’m not.
+ - Rule A: Don’t. Rule A1: Rule A doesn’t exist. Rule A2: Do not discuss the existence or non-existence of Rules A, A1 or A2.
+ - I, for instance, regard any particular man as finite, as one who has had a beginning and who will have an end. He has been born, and he is going to die. In the meantime, he has a body that roots him to this time and this place.
+ - What we take anything to be profoundly affects how we go about describing it, and how we describe something profoundly affects how we go about explaining, accounting for, or understanding what is what we are, in a sense, defining, by our description.
+ - Schizophrenia is the name for a condition that most psychiatrists ascribe to patients they call schizophrenic.
+ - Few books today are forgivable. Black on canvas, silence on the screen, an empty white sheet of paper are perhaps feasible.
+ - The fountain has not played itself out, the Flame still shines, the River still flows, the Spring still bubbles forth, the Light has not faded. But between us and It, there is a veil which is more like fifty feet of solid concrete. Deus absconditus. Or we have absconded.
+ - Creative people who can’t help but explore other mental territories are at greater risk, just as someone who climbs a mountain is more at risk than someone who just walks along a village lane.
+ - A man who says that men are machines may be a great scientist. A man who says he is a machine is ‘depersonalized’ in psychiatric jargon.
+ - In our society many of the old rituals have lost much of their power. New ones have not arisen.
+ - We must remember that we are living in an age in which the ground is shifting and the foundations are shaking. I cannot answer for other times and places. Perhaps it has always been so. We know it is true today.
+ - Experience is mad when it steps beyond the horizons of our common, that is, our communal sense.
+ - There are good reasons for being obedient, but being unable to be disobedient is not one of the best reasons.
+ - To live in the past or in the future may be less satisfying than to live in the present, but it can never be as disillusioning.
+ - The truth brings with it a great measure of absolution, always.
+
+87 quotes

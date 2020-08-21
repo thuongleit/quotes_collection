@@ -1,0 +1,48 @@
+ - I wish there was a way to know you were in the good old days before you actually left them.
+ - Don’t be afraid of fear. Because it sharpens you, it challenges you, it makes you stronger; and when you run away from fear, you also run away from the opportunity to be your best possible self.
+ - Shouldn’t EVERY week be Infection Control Week?
+ - You are literally too stupid to insult.
+ - I’m a very jaded and cynical person.
+ - I feel like I’m worried about my later years in life because I feel like I’m using up so much good karma right now. There’s going to be some sort of karmic backlash somewhere down the road.
+ - It has been said that a rolling stone gathers no moss. I would add that sometimes a rolling stone also gathers no verifiable facts or even the tiniest morsels of journalistic integrity.
+ - My friend and I sang an a cappella rendition of Extreme’s ‘More Than Words’ at one of our football pep rallies in a desperate attempt to look cool. For a while, I wore pink Converse All Stars because I thought it made me seem daring and irreverent.
+ - So long as your desire to explore is greater than your desire to not screw up, you’re on the right track.
+ - That’s actually a rare thing to be on a set full of people that you admire and make you laugh all the time.
+ - When you try hard at everything you do, even when it feels foolish to do so, you’re opening up doors and possibilities you might not be seeing in the moment.
+ - February is a month of months, and there is one special day: Valentine’s Day on the 14th. I know it’s still a ways off, but I just can’t wait. Janice, if you’re watching, will you make me the happiest man in the world and get out of my apartment?
+ - As a hobbyist, there’s something about miniature anything that captures my imagination.
+ - You take a vacation to a place like Thailand and you’re ready for the excitement of something new and foreign. But when you’re working 14-hour days, all you want is something familiar to ground you. And there’s just nothing there.
+ - I’ve been to Indonesia, but I’ve never been to Thailand. I hear the people are lovely, the food is delicious, and that the heat and humidity are lethal.
+ - I have profound respect for Sacha Baron Cohen, but Borat is not a particularly comfortable movie for me to sit through.
+ - I love travel. I love to go spend time in new places. And even though I got horribly sick in Thailand, and it was the sickest I may have ever been in my life, I still loved the trip.
+ - When you’re in New York City or Los Angeles, even if you’re not dealing with show business, there’s still this sense that it’s the center of the universe. And I think that’s a really dangerous, limiting mindset.
+ - Alcohol causes conflicts, firearms resolve conflicts.
+ - There is something beautiful in the mundane if you take enough microscope to it and focus in on something that seems innocuous to begin with.
+ - There are currently more political parties in Iraq than unbombed buildings to hold them.
+ - Whenever I’ve messed around with radio-controlled things, there’s always been a part of me that’s thought, I wonder if there might actually be a little guy piloting these vehicles.
+ - When you’re playing a fictional character reacting to the real world, it’s incredibly difficult and confusing and kind of messes with your values a bit.
+ - I think that music at inappropriate times with inappropriate volumes can be the funniest thing ever.
+ - Probably my favorite thing about watching a movie that I’m in the first time is to see all the things I didn’t know were happening in a scene around me.
+ - With the tiger you’re always on edge, and you always have to keep your distance. The monkey is far less threatening so you’re more relaxed around the monkey, and I think that’s actually hazardous.
+ - It’s kind of hard to win most elections on anti-family, immorality, and Satan-worship.
+ - This may come as a surprise, given the nature of my job, but I am very guarded and contemplative. I’m not a naturally boisterous person.
+ - Improvisation is about finding the best joke or the silliest way to get something across. Improvising conflict is always fun because you can just go for it.
+ - First there was the New Hampshire primary, and we had nearly a year leading up to it. And now, look! Three primaries in one weekend! How many of these things are they going to have?
+ - April is tax month. If you are having trouble filing your taxes, then you should hire an accountant. They’ll give you the same advice that they’ve given hundreds of corporations – taxes are for douche bags.
+ - I lived in New York for 10 years, I loved it, I never second-guessed it. There were definitely times when I thought, “I will never leave this place.” And I kind of got into that center-of-the-universe mindset.
+ - Vulnerability is huge. I love to see that in characters. It’s something I feel like a lot of my comedic heroes have always done.
+ - I’m sure I cause just as much consternation for editors as any other actor, but it definitely makes me feel more comfortable understanding how and why all the different camera setups exist.
+ - I’ve always been into toys and kits and models. I’m kind of a toy nerd.
+ - I loved the show Lost, in part because the writers were so nimble in how they would take things from previous episodes, that probably weren’t created with any intent towards a larger narrative, and they would get woven into narratives in a really elegant and exciting way.
+ - Who among us wouldn’t rush out and buy a Pepsi if we thought it would make the Osborne’s disappear?
+ - As an actor, you can really play the intensity and gravity and seriousness of the moment, and just rely on the circumstances being funny. The joke is kind of the situation you’re in, or the way you’re reacting to something, as opposed to the characters just saying something witty.
+ - All I knew is that I loved movies and comedy and TV, and I wanted to perform. I made a bunch of shorts and movies in college, and that was always fun too. I directed some plays in college. It was taking it all in and trying to immerse myself in as much of it as possible.
+ - I cannot stress this enough – if you try to install an HDTV in a non-HDTV compatible house, you may tear the space-time continuum.
+ - I had envisioned doing comedy since childhood. For sure.
+ - I happen to think singing is hilarious, especially when it pops out at the wrong time.
+ - Getting any movie made is just like trying to push a giant boulder up a mountain, and there’s so many moving parts. Obviously, there’s the creative side, and then there’s the logistical side, and they’re both colossal.
+ - Sometimes you just create a joke out of thin air in the editing room. So I’m really glad I’ve had that experience. It gives me a little more confidence in front of the camera.
+ - People who grew up in New York City or Los Angeles tend not to even understand what goes on in the rest of the country. I’m really glad to have grown up in an environment where I actually was kind of a weirdo because I was obsessed with comedy and movies and stuff.
+ - It’s incredibly fun to play someone that you don’t like. It exorcises your own demons in a way. It’s cathartic. We all have things that we don’t like about ourselves, little things. And I get to amplify those things and put them out there. It’s fun and it has a cleansing effect.
+
+46 quotes

@@ -1,0 +1,27 @@
+ - Read like a wolf eats.
+ - A book is a friend. You can never have too many.
+ - I owe everything I am and everything I will ever be to books.
+ - Do what you can as you can. Trouble, problems, will come no matter what you do, and you must respond as they come.
+ - That’s all it took to solve problems – just sense.
+ - If books could have more, give more, be more, show more, they would still need readers who bring to them sound and smell and light and all the rest that can’t be in books. The book needs you.
+ - It was as though I had been dying of thirst and the librarian had handed me a five gallon bucket of water. I drank and drank. The only reason I am here and not in prison is because of that woman. I was a loser, but she showed me the power of reading.
+ - Stories are like a river that flows – you dip a bucket in it.
+ - Running with dogs is like dancing with winter.
+ - Personal inspection at zero altitude. The stories come from my life – if not my own experiences, then about topics and subjects that interest me.
+ - And the last thought he had that morning as he closed his eyes was: I hope the tornado hit the moose.
+ - Things seemed to go back and forth between reality and imagination – except that it was all reality.
+ - When he sat alone in the darkness and cried and was done, all done with it, nothing had changed. His leg still hurt, it was still dark, he was still alone and the self-pity had accomplished nothing.
+ - I spent uncounted hours sitting at the bow looking at the water and the sky, studying each wave, different from the last, seeing how it caught the light, the air, the wind; watching patterns, the sweep of it all, and letting it take me. The sea.
+ - Patience, he thought. So much of this was patience – waiting, and thinking and doing things right. So much of all this, so much of all living was patience and thinking.
+ - Adults are locked into car payments and divorces and work. They haven’t got time to think fresh.
+ - Books make me feel safe. Books make me feel normal.
+ - Name the book that made the biggest impression on you. I bet you read it before you hit puberty. In the time I’ve got left, I intend to write artistic books – for kids – because they’re still open to new ideas.
+ - Initially, he worried that he might be going crazy. But then he decided if you felt you were crazy you weren’t really crazy because he had heard somewhere that crazy people didn’t know they were insane.
+ - We make a mistake in thinking we own pets – the animals open their lives up and make us a part of them.
+ - He had to keep thinking of them because if he forgot them and did not think of them they might forget about him. And he had to keep hoping.
+ - The person who reads can bail, but the person who doesn’t fails.
+ - I read like a wolf eats. I read myself to sleep every night.
+ - The essence of war is insanity. Destruction, death, women widowed, children orphaned, lands plundered, property destroyed, lives decimated – it’s all bad.
+ - School didn’t work for me. I hated it.
+
+25 quotes

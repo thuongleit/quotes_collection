@@ -1,0 +1,30 @@
+ - Invest in everything, attach to nothing.
+ - Forgiveness is not a one-time-only event. It is a process.
+ - Being willing makes you able.
+ - Purpose directs passion and passion ignites purpose.
+ - If you value yourself, you understand that you are a gift to anyone you meet.
+ - Where you begin doesn’t matter. Your willingness to start is what counts.
+ - Excuses excuse us from fulfilling our potential.
+ - Be loving and the love in your life will increase.
+ - Fear is an affirmation of your growth.
+ - When you heed the calling of your heart, you are following your purpose. Having purpose in your life gives you the courage to do the things you are meant to do. When you are purpose driven, you have learned to listen to your intutition and never let no get in your way.
+ - You don’t have to earn or deserve love. You are love. Loving is never about how others treat you. It is always about how you are treating yourself.
+ - Caring what others think about us is normal. The desire to belong is basic to human nature. But in order to feel like you truly belong, you must accept yourself for who you are. This is critical to Fearless Living.
+ - When your commitment is to be loving regardless of the circumstances, there is no room for harsh words. You assert yourself not from a desire to control but from a desire to stand for who you are.
+ - Accepting what others see as your strengths is crucial to your continued growth. Compliments are a gift. They are an opportunity for you and another person to connect in a powerful, positive way. How did you handle the last compliment directed at you? Did you accept it?
+ - Each moment is a moment of choice and your commitments keep you true to yourself, choice by choice.
+ - Living in intention through acceptance, responsibility, pro-active choice, and the willingness to be ordinary, will move fear aside and allow intuition to surface. All of those skills teach us to be inner focused and aware of who we are becoming. That is powerful. That changes lives.
+ - Investing and connecting are the key factors in turning any intention into reality.
+ - Listen to others as if they are telling you the truth, ask questions when you aren’t clear, and allow others the room to have different feelings than you. No more assigning hidden motives, prejudging and cutting people off before separating fact from fiction.
+ - We are afraid of failure, of ridicule, of being rejected. We are afraid we’re not good enough.
+ - Let go of what you think life should be so you can experience the life you have.
+ - Yet if we are to live fully, we must love as though we’ve never been hurt, dream as though our hopes have never been dashed, and take steps toward the future as though life has never given us pain.
+ - Complaining advertizes your fears.
+ - Your body’s reaction to fear is the same whether you are faced with a physical threat or an emotional one.
+ - In order to make any permanent changes, you have to be willing. Willing to see things differently. Willing to experience new ideas. Willing to listen to the people who cheered you on rather than ones who echoed your fears.
+ - Seeing people as innocent is the greatest gift you can give another human being: the gift of acceptance.
+ - The first is based in fear, the second in fearlessness.
+ - Our ability to receive is a necessary component if we desire to own our power, claim our worth and live fearlessly.
+ - The words you say to yourself create your self image.
+
+28 quotes

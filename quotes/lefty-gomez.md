@@ -1,0 +1,28 @@
+ - I’d rather be lucky than good.
+ - He knew he was Joe DiMaggio, and he knew what that meant to the country.
+ - I couldn’t speak enough Spanish. I couldn’t make myself understood on that club.
+ - When Neil Armstrong first set foot on the moon, he and all the space scientists were puzzled by an unidentifiable white object. I knew immediately what it was. That was a home run ball hit off me in 1933 by Jimmie Foxx.
+ - I’ve got a new invention. It’s a revolving bowl for tired goldfish.
+ - One rule I had was make your best pitch and back up third base. That relay might get away and you’ve got another shot at him.
+ - A lot of things run through your head when you’re going in to relieve in a tight spot. One of them was, “Should I spike myself?”
+ - I never had a bad night in my life, but I’ve had a few bad mornings.
+ - I don’t want to throw him nothing. Maybe he’ll just get tired of waiting and leave.
+ - When I first signed with the Yankees, the regulars wouldn’t talk to you until you were with the team three or four years. Nowadays the rookies get $100,000 to sign and they don’t talk to the regulars.
+ - Only triple I ever got.
+ - Jimmy Foxx could hit me at midnight with the lights out.
+ - The secret of my success was clean living and a fast outfield.
+ - I was never nervous when I had the ball, but when I let go I was scared to death.
+ - I had been having trouble with my eyes. One day my glasses fogged up while I was pitching, but when I cleaned them and looked at the plate and saw Foxx clearly, it frightened me so much I never wore them again.
+ - I was the worst hitter ever. I never even broke a bat until last year when I was backing out of the garage.
+ - I don’t know. I’ve never been on second before.
+ - I’m the guy that made Joe DiMaggio famous.
+ - I’m something like the old soak who never knew whether his wife told him to take one drink and come home at 12, or take 12 and come home at one.
+ - I want to thank all my teammates who scored so many runs and Joe DiMaggio, who ran down so many of my mistakes.
+ - You just can’t imagine the kind of guy he was without seeing him play. He was a circus, a play, a movie, all rolled into one.
+ - We lost 14 straight. Then we had a game rained out and it felt so good we had a victory dinner.
+ - I talked to the ball a lot of times in my career. I yelled, “Go foul. Go foul.”
+ - He’s in a rut. Gehringer goes two for five on opening day and stays that way all season.
+ - I’d rather not throw the ball at all.
+ - If you don’t throw it, they can’t hit it.
+
+26 quotes

@@ -1,0 +1,31 @@
+ - You just grow up and learn to think instead of just feel.
+ - The first thing that attracts me to any script is the writing. If I find myself becoming lost in a good yarn, then I feel certain that others will, too.
+ - I am very lucky. I have known wonderful romantic love in my life but to actually see this little creature and find him to be the most beautiful creature in the world. I know all mothers and fathers feel that way.
+ - There are some roles you just don’t say ‘no’ to. Those compass points: you get them so rarely as an actress.
+ - I admire people who overcome obstacles or who have to commit – I’ve always really admired commitment, whether it be a commitment to living or a commitment to love. People who commit to a moment. People who are not somewhere else, but in the room with you.
+ - I was very lucky in that my parents were very broad-minded. Because they had come from another country and hadn’t been able to fulfill their dreams, they wanted me to be more of myself, if you know what I mean.
+ - The experience of having a child does crack you wide open. I felt like I suddenly had to rebuild the skin that I’d grown over the years before having a child. Perhaps that might be quite interesting in terms of acting.
+ - You can’t worry too much about profile; otherwise, you become a different kind of actor, and that’s not the kind of actor I want to be.
+ - I suppose it’s whether you want to be a famous person, or whether you want to be an actor. You have to decide what your priorities are. Great actor, huge star. Sometimes, the two walk hand in hand. Most of the time, they don’t.
+ - I think creative people need to do a bit of, you know, tuning into every radio station – you just do, otherwise you don’t know much about other people. You kind of have to learn a bit about yourself so you can work out how we all behave and why we do the things we do.
+ - As I get older, I want to draw on my experience to make roles better. I see that in the older women who inspire me – their experience makes them better.
+ - The level of sacrifice in the world of dancing is incredibly intense, that work ethic if nothing else – get up, go to class, rehearsal, performance, get up, go to class – that’s your life, and it’s like that for a finite time, usually.
+ - That’s the trouble with the suburbs: it’s not a city, so you’re not anonymous, and it’s not a small town, so that people really care about you, but everybody kind of knows each other’s business, so you’re very judged.
+ - I was quite shy. I used to write stories all the time, and I think that was a worry for my parents.
+ - I sometimes think it’s like a weird elastic band. The more tragic your work is, the quicker you snap back. There’s a catharsis in telling a miserable old tale; you get rid of demons.
+ - There are people out there with three jobs and small children. Being an actor is a walk in the park compared to working as a cleaner overnight. I’m lucky I’m not plucking chickens.
+ - I’m a right pain in the hole for my agent. I won’t take certain parts if I think they’re offensive or banal. For instance, I won’t do a film if I think it’s full of violence for violence’s sake, or a television drama if I don’t think it’s intelligent writing.
+ - I think American drama is at its best when it takes the domestic and makes it epic, like a Greek tragedy in the front room.
+ - People can be a bit flagrant when they’re having an affair. Most of the time, there’s an element of it where they want to be discovered because they’re in crisis. They need the boil to be burst, in some way, for a resolution.
+ - I try very hard not to take work home, but it can be tricky. Sometimes it feels as if you are wearing your costume underneath your own clothes! I suppose things are always ticking away in the back of your mind.
+ - I’m not a great beauty. That’s not me.
+ - People at a point of conflict are always the most interesting stories to tell.
+ - Any kind of conflict draws me to a role.
+ - I think it helps to have a good old-fashioned trajectory, plodding along. Obviously one has an ego and it’s really easy to have that ego tickled, but what helps me get through the night is if I concentrate on just quality of work so that I don’t panic about my profile.
+ - When I started drama school, theatre was the main draw. I never had any movie star notions. Not that there were family ties to the theatre, either.
+ - Nothing is more diminishing than trying to control success or hold on to things.
+ - I don’t look like Catherine Zeta-Jones, so I don’t think Hollywood would be that interested in me, to be honest. I just want nice work.
+ - I just would like to keep going. If I kept getting the kind of work that I’ve been getting for the last 20 years for the next 20, I’d be a bloody Dame of the British Empire. I’d be so happy.
+ - In theatre, there’s the director, the writer, and below them the actor. In film, it’s the actors who are most important. That goes against the grain for me.
+
+29 quotes

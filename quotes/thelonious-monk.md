@@ -1,0 +1,43 @@
+ - Jazz is freedom. You think about that.
+ - A genius is the one most like himself.
+ - The loudest noise in the world is silence.
+ - The only cats worth anything are the cats that take chances.
+ - Just because you’re not a drummer doesn’t mean you don’t have to keep time.
+ - Trying to explain music is like trying to dance architecture.
+ - I say, play your own way. Don’t play what the public want – you play what you want and let the public pick up on what you doing – even if it does take them fifteen, twenty years.
+ - Jazz is my adventure.
+ - Whatever you think can’t be done, somebody will come along and do it. A genius is the one most like himself.
+ - I find my inspiration in myself.
+ - The piano ain’t got no wrong notes.
+ - There are no wrong notes; some are just more right than others.
+ - I compose my pieces with a formula that I created myself.
+ - If you really understand the meaning of be-bop, you understand the meaning of freedom.
+ - After two takes you’re imitating yourself.
+ - Everyone is a genius at being themselves.
+ - I don’t have a definition of Jazz. You’re just supposed to know it when you hear it.
+ - Everyone is influenced by everybody but you bring it down home the way you feel it.
+ - I always believed in being myself.
+ - I don’t know what other people are doing – I just know about me.
+ - It can’t be any new note. When you look at the keyboard, all the notes are there already. But if you mean a note enough, it will sound different. You got to pick the notes you really mean!
+ - I played the wrong wrong notes.
+ - A note can be as small as a pin or as big as the world, it depends on your imagination.
+ - Sometimes it’s to your advantage for people to think you’re crazy.
+ - I don’t know where jazz is going. Maybe it’s going to hell. You can’t make anything go anywhere. It just happens.
+ - I’d go stupid collecting and counting my money.
+ - Jazz is my adventure. I’m after new chords, new ways of syncopating, new figures, new runs. How to use notes differently. That’s it. Just using notes differently.
+ - I didn’t know there were 2 ten o’clocks in a day...
+ - I have to listen to New York; I live there. I wasn’t born there, but I’ve been living there all my life.
+ - Everybody in all countries tries to play jazz.
+ - Those who want to know what sound goes into my music should come to NY and open their ears.
+ - Anybody talented in any way – they’re called eccentric.
+ - I can shoot pool, and I can play ping-pong. I’m pretty good at those games.
+ - Be-bop wasn’t developed in any deliberate way.
+ - Its always night, or we wouldn’t need light.
+ - All musicians are subconsciously mathematicians.
+ - The majority of juice-heads and winos and junkies arent musicians.
+ - I never though much about race.
+ - I was playing birthday parties. House-rent parties where they used to sell whisky during prohibition.
+ - We have two kids, my wife and myself.
+ - Miles’d got killed if he hit me.
+
+41 quotes

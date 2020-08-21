@@ -1,0 +1,85 @@
+ - Go forth and set the world on fire.
+ - Finding God in All Things.
+ - Pray as if God will take care of all; act as if all is up to you.
+ - Love ought to show itself in deeds more than in words.
+ - Teach us to give and not to count the cost.
+ - Discouragement is not from God.
+ - For those who love, nothing is too difficult, especially when it is done for the love of our Lord Jesus Christ.
+ - He who carries God in his heart bears Heaven with him wherever he goes.
+ - The glory of God is humankind fully alive.
+ - He who goes about to reform the world must begin with himself, or he loses his labor.
+ - Laugh and grow strong.
+ - Dearest Lord, teach me to be generous; teach me to serve you as you deserve; to give and not to count the cost.
+ - God will not be outdone in generosity.
+ - To conquer himself is the greatest victory that man can gain.
+ - It is not hard to obey when we love the one whom we obey.
+ - For those who believe, no proof is necessary. For those who disbelieve, no amount of proof is sufficient.
+ - If our church is not marked by caring for the poor, the oppressed, the hungry, we are guilty of heresy.
+ - If God causes you to suffer much, it is a sign that He certainly intends to make you a saint.
+ - Sin is unwillingness to trust that what God wants for me is only my deepest happiness.
+ - Occupy yourself in beholding and bewailing your own imperfections rather than contemplating the imperfections of others.
+ - All the things in this world are gifts of God, created for us, to be the means by which we can come to know him better, love him more surely, and serve him more faithfully.
+ - Teach us, Good Lord, to give and not count the cost; to fight and not to heed the wounds; to toil and not to seek for rest; to labor and not to ask for any reward save that of knowing that we do thy will.
+ - We must speak to God as a friend speaks to his friend, servant to his master; now asking some favor, now acknowledging our faults, and communicating to Him all that concerns us, our thoughts, our fears, our projects, our desires, and in all things seeking His counsel.
+ - Few souls understand what God would effect in them if they should give themselves entirely into his hands and allow his grace to act.
+ - May it please Christ our Lord to grant us true humility and abnegation of will and judgment, so that we may deserve to begin to be His disciples.
+ - SPIRITUAL EXERCISES whereby to conquer oneself, and order one’s life, without being influenced in one’s decision by any inordinate affection.
+ - God freely created us so that we might know, love, and serve him in this life and be happy with him forever. God’s purpose in creating us is to draw forth from us a response of love and service here on earth, so that we may attain our goal of everlasting happiness with him in heaven.
+ - The more completely we focus our attention on our Creator and Lord, the less chance there is of our being distracted by creatures.
+ - You have given it all to me. To you, Lord, I return it. Everything is yours; do with it what you will. Give me only your love and grace. That is enough for me.
+ - Be generous to the poor orphans and those in need. The man to whom our Lord has been liberal ought not to be stingy. We shall one day find in Heaven as much rest and joy as we ourselves have dispensed in this life.
+ - God inclines to shower His graces upon us, but our perverted will is a barrier to His generosity.
+ - Let us work as if success depended upon ourselves alone, but with heartfelt conviction that we are doing nothing, and God everything.
+ - A person with imprecise ideas can understand little and be of less help to others.
+ - After you have made a decision that is pleasing to God, the Devil may try to make you have second thoughts. Intensify your prayer time, meditation, and good deeds. For if Satan’s temptations merely cause you to increase your efforts to grow in holiness, he’ll have an incentive to leave you alone.
+ - He who is not getting better is getting worse.
+ - The acknowledgment of and gratitude for favors and gifts received is loved and esteemed in Heaven and on earth.
+ - God our Lord would have us look to the Giver and love Him more than His gift, keeping Him always before our eyes, in our hearts, and in our thoughts.
+ - So with that will prompt and prepared to serve all those whom I perceive to be servants of my Lord, I will speak of three things with simplicity and love as if I were speaking to my own soul.
+ - May the perfect grace and eternal love of Christ our Lord be our never-failing protection and help.
+ - It is proper to ask for sorrow with Christ in sorrow, anguish with Christ in anguish, tears and deep grief because of the great affliction Christ endures for me.
+ - Receive, Lord, all my liberty, my memory, my understanding and my whole will.
+ - God gives each one of us sufficient grace ever to know His holy will, and to do it fully.
+ - Remember that bodily exercise, when it is well ordered, as I have said, is also prayer by means of which you can please God our Lord.
+ - Among the many signs of a lively faith and hope we have in eternal life, one of the surest is not being overly sad at the death of those whom we dearly love in our Lord.
+ - In the case of those who are making progress from good to better, the good angel touches the soul gently, lightly, sweetly, as a drop of water enters a sponge, while the evil spirit touches it sharply, with noise and disturbance, like a drop of water falling on a rock.
+ - One must wage war against his predominant passion and not retreat until, with God’s help, he has been victorious.
+ - True, I am in love with suffering, but I do not know if I deserve the honor.
+ - What seems to me white, I will believe black if the hierarchical Church so defines.
+ - He who is devout to the Virgin Mother will certainly never be lost.
+ - We must put aside all judgment of our own, and keep the mind ever ready and prompt to obey in all things the true Spouse of Christ our Lord, our holy Mother, the hierarchical Church.
+ - To withdraw from creatures and repose with Jesus in the Tabernacle is my delight; there I can hide myself and seek rest. There I find a life which I cannot describe, a joy which I cannot make others comprehend, a peace such as is found only under the hospitable roof of our best Friend.
+ - Let your modesty be a sufficient incitement, yea, an exhortation to everyone to be at peace on their merely looking at you.
+ - Considering that the blessed life we so long for consists in an intimate and true love of God Our Creator and Lord, which binds and obliges us all to a sincere love.
+ - Let me look at the foulness and ugliness of my body. Let me see myself as an ulcerous sore running with every horrible and disgusting poison.
+ - Do not put faith in constant happiness, and fear most when all smiles upon you.
+ - It is not the finest wood that feeds the fire of Divine love, but the wood of the Cross.
+ - If you attach your heart to certain places and occupations, obedience oftentimes places you in some other place that you may not like; to be always cheerful, be always humble and obedient.
+ - Truth always ends by victory; it is not unassailable, but invincible.
+ - Stand firm and immovable as an anvil when it is beaten upon.
+ - No idle word should be uttered. I understand a word to be idle when it serves no good purpose, either for myself or for another, and was not intended to do so.
+ - Idleness is hells fishhook for catching souls.
+ - We should not have a petty regard for God’s gifts, though we may and should despise our own imperfections.
+ - May God our Lord never let me harm anyone when I cannot help him!
+ - As for joy, as little as one can have of it in this life, experience shows that it is not the idle who possess it, but those who are zealous in the service of God.
+ - Spiritual infirmities such as tepidity are caused, not only by chills but also by fevers, that is, by excessive zeal.
+ - The safest and most suitable form of penance seems to be that which causes pain in the flesh but does not penetrate to the bones, that is, which causes suffering but not sickness.
+ - To have prevented one single sin is reward enough for the labors and efforts of a whole lifetime.
+ - He who has heard the Word of God can bear his silences...
+ - Remember that the good angels do what they can to preserve men from sin and obtain God’s honor. But they do not lose courage when men fail.
+ - It is one thing to be eloquent and charming in profane speech, and another when the one speaking as a religious.
+ - All the honey that can be gathered from the flowers of this world has less sweetness than the vinegar and gall of Jesus Christ our Lord.
+ - Concerning the harsh treatment of the body for our Lord’s sake, I would say, avoid anything that would cause the shedding even of a drop of blood.
+ - A religious ought to dread more being afraid of poverty than experiencing it.
+ - If anyone asks you for something that you believe would be injurious to him, refuse, but in such a manner as not to lose his good-will.
+ - They who load us with insults and ignominies give us the means of acquiring treasures more precious than any that man can gain in this life.
+ - If one fears men much he will never do anything great for God: all that one does for God arouses persecution.
+ - Above all, remember that God looks for solid virtues in us, such as patience, humility, obedience, abnegation of your own will – that is, the good will to serve Him and our neighbor in Him. His providence allows us other devotions only insofar as He sees that they are useful to us.
+ - We should always be disposed to believe that that which appears white is really black, if the hierarchy of the Church so decides.
+ - The servant of God earns half a doctorate through illness.
+ - If, one day, I should offend God in any way, or grow remiss, though ever so little, in that which concerns His holy service and glory, I solemnly implore Him, rather let me die.
+ - There is no doubt that God will never be wanting to us, provided that He finds in us that humility which makes us worthy of His gifts, the desire of possessing them, and the promptitude to co-operate industriously with the graces He gives us.
+ - The picture. A great plain, comprising the entire Jerusalem district, where is the supreme Commander-in-Chief of the forces of good, Christ our Lord: another plain near Babylon, where Lucifer is, at the head of the enemy.
+ - Calisto, a companion of Ignatius, and who on recovering from a severe illness had heard of the imprisonment of Ignatius, hastened from Segnovia, where he was staying, and came to Alcala, that he, too, might be cast into prison.
+
+83 quotes

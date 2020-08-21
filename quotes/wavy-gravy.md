@@ -1,0 +1,24 @@
+ - We can make a difference and have fun doing it.
+ - Keep your sense of humor, my friend; if you don’t have a sense of humor it just isn’t funny anymore.
+ - There’s always a little bit of heaven, even in a disaster area.
+ - Put your good where it does the most.
+ - And I also thought that Richard Nixon was the greatest political education we have ever had, but it looks like we need to relearn them again.
+ - Laughter is the valve on the pressure cooker of life.
+ - Good morning! What we have in mind is breakfast in bed for four hundred thousand.
+ - Laughter is the valve on the pressure cooker of life. Either you laugh and suffer, or you got your beans or brains on the ceiling.
+ - I am in total ecstasy with where my life is now.
+ - We are all the same person trying to shake hands with our self.
+ - The whole earth is in jail and we’re plotting this incredible jailbreak.
+ - I became a clown when these docs came to the house in Berkeley and asked me to come cheer up kids. I’d just had my third spinal fusion and I was looking for something to take my mind off the pain I was in.
+ - Death was Patrick Henry’s second choice.
+ - Well, this week for example, I was just in Los Angeles making a documentary for German television on whales. They had tried to get me in England where they missed me.
+ - I’m related to the portrait painter George Romney.
+ - To let the people know there was life beyond Shirley Dean, we decided to focus on voter registration; each day I set up my card table somewhere in the district, signed people up, and passed out noses.
+ - A clown I knew who was retiring from Ringling Brothers gave me his giant shoes, and somebody else made me a clown suit.
+ - I always say, dare to struggle, dare to grin.
+ - There are no mistakes and it’s never boring on the edge of imagination, which is only pure spirit having a bit of fun.
+ - What a rush it was to plunge into the bin of official decision and cast a ballot in favor of FUN.
+ - It had an enormous impact to the point of the United Nations passing a resolution against the killing and hunting of these whales as they are an endangered species. This was a documentary on the plight of the whales.
+ - I had 500 kids at camp this past summer for example. We do nine weeks for kids and nine days for grown ups every summer. The adult camp is a lot of fun.
+
+22 quotes

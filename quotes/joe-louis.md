@@ -1,0 +1,28 @@
+ - Everybody wants to go to heaven, but nobody wants to die.
+ - A champion doesn’t become a champion in the ring, he’s merely recognized in the ring. His “becoming” happens during his daily routine.
+ - It hurt to even bump into him.
+ - You need a lot of different types of people to make the world better.
+ - He can run, but he can’t hide.
+ - Lots of things wrong with America, but Hitler ain’t going to fix them.
+ - If you gotta tell them who you are, you ain’t nobody.
+ - Once that bell rings you’re on your own. It’s just you and the other guy.
+ - There is no such thing as a natural boxer. A natural dancer has to practice hard. A natural painter has to paint all the time. Even a natural fool has to work at it.
+ - I hope they’re still making women like my momma. She always told me to do the right thing. She always told me to have pride in myself; she said a good name is better than money.
+ - Money can’t buy happiness, but it does quiet the nerves.
+ - We’re going to do our part and we’ll win because we’re on God’s side.
+ - Why should I? When someone insulted Caruso, did he sing an aria for him?
+ - I can show you how to box. I can teach you every technique and trick I know, but I can never make you a fighter. That comes from inside, and it’s something no one else can ever give you.
+ - Yeah, I’m scared. I’m scared I might kill Schmeling.
+ - I made the most of my ability and I did my best with my title.
+ - When I was boxing I made five million and wound up broke, owing the government a million.
+ - I don’t like money very much, but it calms my nerves.
+ - You have to be tough and stick it out, or you wind up being nothing.
+ - Every man got a right to his own mistakes. Ain’t no man that ain’t made any.
+ - Every man’s got to figure out how to get beat sometime.
+ - The one-time cotton picker was now the heavyweight champion of the world.
+ - Every fighter have a plan until he’s been beaten.
+ - The whole damned country was depending on me.
+ - The way taxes are, you might as well marry for love.
+ - Let me tell you, that was a thrill. Now, even more, I knew I had to get Schmeling good.
+
+26 quotes

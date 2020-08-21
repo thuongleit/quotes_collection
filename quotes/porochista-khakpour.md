@@ -1,0 +1,10 @@
+ - Be careful what you wish for, I guess. I believe – this will sound bloated, but I believe it – that true art, the potent stuff, can take the world down with it, just like religion can. And the opposite of course.
+ - I love outsider stories. And I also like a lot of genre fiction, too. So I wanted to write a literary book that flirted with thriller and fantasy and even science fiction. I wanted the coming-of-age story and the love story to be about “outsiderdom” – one of the themes I am most interested in.
+ - There is less gray area there, less doubt. There is a security in being some thing all the way. Our culture, too, encourages this way of being – exaggeration, for example, is the key to advertising success in the United States. But hyperbole also seems a big part of Iranian culture, as well.
+ - Time kept on and on like the cheapest toilet paper.
+ - For me, every human is a little bit an exaggerated version of a real human – in most cases, they are versions of myself. I am someone deeply motivated by extremes – the poles not only become home for me, but they also become, strangely, my comfort zones.
+ - There are so many reasons, but a big reason is that the literary world is simply too white. When there are more professors of color being employed by these institutions maybe there will be some change in the student populations.
+ - The original Zal story by Ferdowsi gives a very moving account of an infant who had all odds against him – he was left to die in the wilderness and a giant, benevolent bird rescued him and became his guardian angel. This tale thrilled me; I’ve always wanted to write about it.
+ - I just see in pop culture, music, visual art, books, etc., a real hunger for the new and different, and I think that’s amazing. Satisfying this hunger is part of the responsibility of a creative person.
+
+8 quotes

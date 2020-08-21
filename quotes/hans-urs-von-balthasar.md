@@ -1,0 +1,31 @@
+ - What you are is God’s gift to you, what you become is your gift to God.
+ - Being disguised under the disfigurement of an ugly crucifixion and death, the Christ upon the cross is paradoxically the clearest revelation of who God is.
+ - Without Easter, Good Friday would have no meaning. Without Easter, there would be no hope that suffering and abandonment might be tolerable. But with Easter, a way out becomes visible for human sorrows, an absolute future: more than a hope, a divine expectation.
+ - The Church does not dispense the sacrament of baptism in order to acquire for herself an increase in membership but in order to consecrate a human being to God and to communicate to that person the divine gift of birth from God.
+ - Consequently, Christian meditation is entirely trinitarian and at the same time entirely human. In order to find God, no one need reject being human personally or socially, but in order to find God all must see the world and themselves in the Holy Spirit as they are in God’s sight.
+ - Love alone is credible.
+ - Our situation today shows that beauty demands for itself at least as much courage and decision as do truth and goodness, and she will not allow herself to be separated and banned from her two sisters without taking them along with herself in an act of mysterious vengeance.
+ - Lovers are the ones who know most about God; the theologian must listen to them.
+ - It is to the Cross that the Christian is challenged to follow his Master: no path of redemption can make a detour around it.
+ - The saints are never the kind of killjoy spinster aunts who go in for faultfinding and lack all sense of humor.
+ - The greatest tragedy in the history of Christianity was neither the Crusades nor the Reformation nor the Inquisition, but rather the split that opened up between theology and spirituality at the end of the Middle Ages.
+ - Only the Christian religion, which in its essence is communicated by the eternal child of God, keeps alive in its believers the lifelong awareness of their being children, and therefore of having to ask and give thanks for things.
+ - Thus it is necessary to commence from an inescapable duality: the finite is not the infinite.
+ - The Holy Spirit knows what a particular age’s most pressing need is far better than men with their programs.
+ - We no longer dare to believe in beauty and we make of it a mere appearance in order the more easily to dispose of it.
+ - Prior to an individual’s encounter with the love of God at a particular time in history, however, there has to be another, more fundamental and archetypal encounter, which belongs to the conditions of possibility of the appearance of divine love to man.
+ - Above all we must not wish to cling to our suffering. Suffering surely deepens us and enhances our person, but we must not desire to become a deeper self than God wills. To suffer no longer can be a beautiful, perhaps the ultimate sacrifice.
+ - God defines himself as “I am who I am”, which also means: My being is such that I shall always be present in every moment of becoming.
+ - There is a moment when the interior light of the “eyes of faith” becomes one with the exterior light that shines from Christ, and this occurs because man’s thirst, as he strives and seeks after God, is quenched as he finds repose in the revealed form of the Son.
+ - What the Father gives is the capacity to be a self, freedom, and thus autonomy, but an autonomy which can be understood only as a surrender of self to the other.
+ - The work with which we embark on this first volume of a series of theological studies is a work with which the philosophical person does not begin, but rather concludes.
+ - To be a child means to owe one’s existence to another, and even in our adult life we never quite reach the point where we no longer have to give thanks for being the person we are.
+ - A truth that is merely handed on, without being thought anew from its very foundations, has lost its vital power.
+ - There will never be beings unloved by God, since God is absolute love.
+ - If God wishes to reveal the love that he harbors for the world, this love has to be something that the world can recognize, in spite of, or in fact in, its being wholly other.
+ - Only in Christ are all things in communion. He is the point of convergence of all hearts and beings and therefore the bridge and the shortest way from each to each.
+ - Christian obedience, by its very nature, has a heroic character.
+ - The first attempt at a response: there must have been a fall, a decline, and the road to salvation can only be the return of the sensible finite into the intelligible infinite.
+ - There is much in Christianity which can be subjected to exact analysis. But the ultimate things are shrouded in the silent mysteries of God.
+
+29 quotes

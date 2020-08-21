@@ -1,0 +1,140 @@
+ - Drink coffee! Do stupid things faster and with more energy!
+ - I like to see the glass as half full, hopefully of jack daniels.
+ - Don’t judge me because I’m quiet. No one plans a murder out loud.
+ - She’s like a hurricane on crystal meth.
+ - I may not look like much, but I’m an expert at pretending to be a ninja.
+ - Mistakes were made. Others were blamed.
+ - If it weren’t for physics and law enforcement, I’d be unstoppable.
+ - Never knock on death’s door. Ring the doorbell then run. He totally hates that. – T-shirt.
+ - My goal in life is to have a psychiatric disorder named after me.
+ - I chose the road less traveled. Now I’m lost.
+ - There are very few personal problems that can’t be solved with a suitable application of high explosives.
+ - Life isn't about finding yourself. It's mostly about chocolate.
+ - Do not disturb. Already there.
+ - You take everything onto your shoulders like that guy who holds up the world, and you shouldn’t. You’re not nearly as muscular.
+ - I stop fighting my inner demons. We’re on the same side now. T-shirt.
+ - I know karate, and like two other Japanese words – T-SHIRT.
+ - Nothing sucks more than that moment during an argument when you realize you’re wrong. -T-Shirt.
+ - When fighting clowns, always go for the juggler.
+ - I totally take back all those times I didn’t want to nap when I was younger. – T-SHIRT.
+ - Jesus may love you, but i’m his favourite.
+ - Friends don’t let friends get killed by serial killers.
+ - When I want your opinion, I’ll remove the duct tape. – T-SHIRT.
+ - I knew dating the son of Satan would turn out badly.
+ - That’s the thing about things. They tend to happen.
+ - If I couldn’t be a good example, I’d just have to be a horrible warning.
+ - They were back. The demons in all their glory. And they had a plan. I made plans sometimes, too, but they rarely involved world domination. Hot dogs on a grill, maybe. Tequila.
+ - You’re the reason I breathe.
+ - Doing nothing is hard. You never know when you’re done.
+ - Since I had a soft spot for zombies and my curiosity was killing me, I opted for plan Z.
+ - Who knew Demon Child would have such a normal name? I expected something exotic like Serena or Destiny or the Evil One That Comes in the Night to Make Us Chilly.
+ - While I was busy reminiscing about my first day on earth, I had forgotten that I was falling to my death. Damned ADD.
+ - I’m currently unsupervised It frisks me out too but the possibilities are endless.
+ - An integral part of any best friend’s job is to immediately clear your computer history if you die.
+ - There is a great need for a sarcasm font.
+ - He said you sparkle like a newborn galaxy and have more attitude than a rich kid with his daddy’s Porsche.
+ - Have they even seen the Winchester boys? Sammy and Dean’s existence proves there is a god and she is a woman.
+ - What’s your specialty? Oh, you know. Madness. Mayhem. Debauchery. And even with all that going for me, I can still make a mean mojito.
+ - If you must eat a banana in public, never make eye contact.
+ - I meant to behave. There were just too many other options. – T-SHIRT.
+ - Sorry. i just can’t seem to help myself. My brain is freaking out. Two predawn mornings in a row. It doesn’t know what to think, how to act. I’ll have a talk with it later. Perhaps get it some counseling.
+ - I could hardly be responsible for my actions when everyone around me gave me every opportunity to sink to their low expectations.
+ - She shook her head then took off again, and I found myself struggling to keep up with her in my bunny slippers. With a sigh, I realized I was getting way too much exercise. I’d just have to counteract it later with cake.
+ - I intend to live forever. So far, so good. – T-SHIRT.
+ - There comes a moment when you know you just aren’t going to do anything esle productive for the rest of the day.-T-Shirt.
+ - I often question my sanity. Occasionally, it replies.
+ - He bombarded me with words, of all things, apparently clueless to the fact that the predawn hours rendered me incapable of coherent thought.
+ - Try writing an entire story with only a thousand words at your disposal. It’s a terrific lesson in economy and precession.
+ - Reyes leaned back against the bar, crossed his arms over his chest, and studied me from beneath those same ridiculously long lashes. Men and their freaking lashes. It was so unfair. Like the exorbitant cost of designer shoes. Or world hunger.
+ - I stood and walked around the desk so I could stand over him. Menacingly. Like Darth Vader, only with better lung capacity.
+ - I did that thing where you scratch your eyebrow and flip someone off at the same time. I’m good at multitasking like that.
+ - I’m Charlotte Davidson: private investigator, police consultant, all -around badass. Or I could’ve been a badass, had I stuck with those lessons in mixed martial arts. I was only in that class to learn how to kill people with paper.
+ - I strode toward Mr. Coffee with lust in my eyes. We’d had a thing for quite some time now Mr. Coffee and I...
+ - Oh, and she told me that men want only one thing. And on that note, I must give praise and thanks to the powers that be. I don’t want much else from them either.
+ - My calculations – allowing for a 12 percent margin of error, based on the radius of the corresponding confidence interval and the surgeon general’s warning – concluded that they probably didn’t stay behind for the tacos.
+ - My real mom died when I was born – hemorrhaged to death while giving birth to me, which has never been one of my favorite memories – and Dad married Denise before I’d turned a year. Without even asking my opinion on the matter. Denise and I never really clicked.
+ - It’s all fun and games until someone loses a testicle. – T-SHIRT.
+ - See you in a few. Hold down the fort, Mr. Wong!
+ - Still, this whole grim reaper thing should have come with a manual. Or a diagram of some kind. A flowchart would have been nice.
+ - She didn’t smile back. Not even a little. I totally needed to read that book on how to win friends and influence people. But that would involve an innate desire to win friends and influence people.
+ - Looks like macho boy’s cool just melted like a Slush Puppie in August.
+ - I may as well cut my losses and make a hasty exit while I still had enough self-esteem to walk upright. Crawling was so demoralizing.
+ - He was like chocolate-covered heroin, and I was an addict through and through.
+ - He had given me so much information, I wanted some time to absorb it all, but I didn’t want to leave him. Not like this. Not ever, as long as I lived. Or until I had to get back on the case. Whichever came first.
+ - His gaze slid over me like a veil of fire. He could ignite my deepest desires with a single glance. I decided right then and there no more reading romance novels by candelight.
+ - Who knew that all this time the nectar of the Gods was in my va-jay-jay.
+ - I may not have any skeletons in my closet, but I do have a little box of souls in my sock drawer. – T-SHIRT.
+ - Reyes Farrow. Because perfection is a dirty job, but someone has to do it.
+ - I’m a virgin. But this is an old shirt. – T-SHIRT.
+ - I’d have a longer attention span if there weren’t so many shiny things.
+ - I know how you feel. I’ve been analyzed to death as well. Not, like, professionally, though I did date a psych major who said I had attention issues. Or at least that’s what I think he said. I wasn’t really paying attention. Anyway, where was I?
+ - SARC- was my second favorite -ASM word.
+ - My prodding me didn’t elicit a reaction. His unseeing eyes stared straight through me. Which was odd. He’d seemed so sane huddled in Cookie’s trunk.
+ - I’d never taken to four foot creatures who had the uncanny ability to point out all my flaws in thirty second flat. And just for the record, I can too read without moving my lips.
+ - It isn’t the fall that will kill you, but the sudden stop.
+ - He’s an enigma wrapped up in sensuality padlocked with a dozen chains of desire and topped off with a razor-sharp ribbon of danger. There are more layers to him than a billionaire’s wedding cake.
+ - Okay, I’ll strip. I’ll tap dance. I’ll sing ‘La Cucaracha’ in C minor.
+ - He’d actually hit me! It didn’t matter that hitting me wasn’t really like hitting a regular girl and I’d be completely healed in a matter of hours. I was still a freaking girl, and he damned well knew it. I’d just have to hit him back. With a lead pipe. Or an eighteen-wheeler.
+ - You know you have ADD when Look A chicken – T-shirt.
+ - Felt my heartbeat falter, hesitate, then stumble awkwardly forward, tripping on the next beat, then the next, faster and faster until each one tumbled into the other like the drumroll of dominoes crashing together. Funny how time stands still when death is imminent.
+ - I suck at all this supernatural stuff. But I fry a mean chicken. Oh, good. I hate it when the nice ones get fried.
+ - Man, that woman was quick when she wanted to be. But put her behind the wheel of a Buick...
+ - Dead people I could handle. They were usually beyond hysteria. This was the people-left behind part. The hard part.
+ - In Cookie’s defense, it was raining wildcats and rabid dogs.
+ - Charley: If you‘re not going to tell me where you are, if you‘re not going to trust me to help you, then why are you here? Why bother? Reyes: Because you‘re the reason I breathe.
+ - I went down like a drunken cowgirl trying to line dance to Metallica.
+ - Nobody wants to look like a fool. Nine times out of ten, that reason alone keeps people from allowing themselves to believe.
+ - A sheriff arrested me. I could be mistaken, but I’m pretty sure my men-in-uniform fetish began that day. The sheriff was hot. And he handcuffed me. I’ve never been the same.
+ - There was nothing like a trip to the gynecologist to make one feel just a little violated. Charley.
+ - I shifted in my chair as Dad waited for a response. He seemed determined, his resolve unwavering. This would take tact. Prudence. Possibly Milk Duds. “Are you psychotic?” I asked, realizing my plan to charm and bribe him if need be flew out the window the minute I opened my mouth.
+ - I hardly loathe myself. Have you seen my ass?
+ - Insanity does NOT run in my family. It strolls through, takes it’s time, and gets to know everyone personally – T-Shirt.
+ - After a geological epoch passed in which single-celled organisms evolved into talk show hosts, Mr. Coffee was still holding out on me.
+ - God I loved Sammy. I’d considered marrying him, but his wife got upset when I asked for his hand.
+ - Garrett must have sensed I was awake. “Hey Detective,” he said to Uncle Bob, who was now trudging across the grating toward us. “I think we’re losing her. I have no choice but to perform mouth-to-mouth.” “Don’t you dare,” I said, my lids still in lockdown.
+ - My plans often went awry. Much like my thoughts. Hold the phones. Maybe Saan had ADD, too. It would explain a lot.
+ - Come here often?? I asked instead, humoring no one but myself. So it was totally worth it.
+ - Yeah, but what happens if life hands me pickles? – Bumper sticker.
+ - It is sexy in here or is it just me?
+ - I had a horrible feeling my leg was broken. If it wasn’t, it had a lot of explaining to do.
+ - The police never find it as funny as you do.-T-Shirt.
+ - I pointed in the general vicinity of my left ovary, “This is Beam Me Up.” Then to my right. “And this is Scotty.” Garret chuckled and buried his face in his hands. He asked.
+ - He seemed determines, his resolve unwavering. This would take tact. Prudence. Possible Milk Duds.
+ - Just in case, though, I stormed into my apartment, tossed a quick hello to Mr. Wong, then rummaged through my entertainment center to lay out all my exorcism equipment. I kept it in my entertainment center because exorcisms were nothing if not entertaining.
+ - Whatever makes your balloon red, Swopes.
+ - Your existence gives me a headache. Go stand over there.
+ - Glitch was about as wild and unpredictable as a carrot stick.
+ - I have them a few minutes to absorb everything while I teased Ubie, who only had to recover from his near-death experience. I was so glad Reyes hadn’t ripped him to shreds. I liked him much better un-shredded. Unlike, say, my preference for lettuce or heavy metal guitar solos.
+ - It would be a miracle to solve this case. Luckily, I believed in miracles. No, wait, that was testicles. I believed in testicles.
+ - I was just passing by. Saw the commotion. Figured you were involved.
+ - After searching for a space, I parked behind the tattoo parlor in front of a sign that said NO PARKING. Since it didn’t specify to whom it was referring, I figured it couldn’t possibly be talking to me.
+ - Pretending to drink coffee was similar to faking an orgasm.
+ - I totally should’ve gone to Hogwarts when I had the chance.
+ - You can’t fix stupid, but you can numb it was a 2 by 4. – T-SHIRT.
+ - A split second later, my life flashed before my eyes, and I came to one important conclusion about it. It was fun while it lasted.
+ - Surely my macking on some guy in an insane asylum wouldn’t hurt him. He’d been living with his stalker, for heaven’s sake.
+ - Cookie had taken her daughter amber to school then walked the thirty-something feet to work earlier. Our business was on the second floor of Calamity’s, my dad’s bar, which sat right in front of our apartment building. The short commute was nice and rarely invloved rabid raccoons.
+ - I sort of got off on making bad guys sweat. Which was not unlike my love of making good guys sweat, just by very different means.
+ - When life hands you lemons say, “Lemons? What else have you got?” – bumper sticker.
+ - If I was going to go out tonight, I was going to go out fighting. Or screaming in agony. Either way.
+ - I sat with my two best friends, knowing beyond a shadow of a doubt that only two of us would make it out of there alive. Though I did tend to exaggerate.
+ - Love was not only blind, it often careened into Blithering Idiotsville as well.
+ - But we’d never really seen eye to eye. Mostly ’cause he was much taller than I was.
+ - I should’ve known the day was going to turn out bad when it started with my father trying to kill me.
+ - I can hear other things, too. Before you came around, I had no idea a man could make a girl scream like that. Reyes seems very talented.
+ - I was white. Chalk had more color than I did. And quite possibly more personality.
+ - I could be irksome when I put my left ventricle into it.
+ - Somebody has to be sane during regular business hours, and it’s not going to be me, missy.
+ - What in the name of Zeus’s testicles?
+ - For the first time in my life, I was in a shoot-out. A real, honest-to-goodness shoot-out with a bad guy. And, apparently, we both sucked.
+ - He had threatened my parents. I had to remember that. Still, it was really hard to stay mad at a wounded naked man.
+ - Cook, at that moment in time, I would have sold my body for a mocha latte.
+ - This is one Fruit Loop beyond certifiable.
+ - Who is Dr. A. von Holstein? And is he related, by chance, to a race of cows?
+ - You were the one who hit me on the roof? I hit you on the jaw. We just happened to be on a roof at the time.
+ - I love children, but I don’t think I can eat a whole one.- Bumper sticker.
+ - I lowered the gun but didn’t holster it. Not just yet. She could turn out to be psychotic. Or a door-to-door salesperson.
+ - Paperwork wouldn’t be so bad if it weren’t for all the paper. And the work.
+ - This place is like crazy on crackers.
+
+138 quotes

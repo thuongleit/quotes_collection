@@ -1,0 +1,31 @@
+ - Tactics is knowing what to do when there is something to do. Strategy is knowing what to do when there is nothing to do.
+ - Like the alchemist of old, for ever searching for the philosopher’s stone, the analyst to-day never stops looking for stronger moves to prevent the defender from establishing equality.
+ - To avoid losing a piece, many a person has lost the game.
+ - Some part of a mistake is always correct.
+ - The tactician must know what to do whenever something needs doing; the strategist must know what to do when nothing needs doing.
+ - I never defeated a healthy opponent.
+ - I talk to myself because I like dealing with a better class of people.
+ - The mistakes are there, waiting to be made.
+ - An isolated pawn spreads gloom all over the chessboard.
+ - A Queen’s sacrifice, even when fairly obvious, always rejoices the heart of the chess-lover.
+ - As for me, I am unfortunate enough not to posses a happy temperament like Najdorf, who views every happening in a rosy light and avoids any possibility of self-criticism. I am one of those unlucky skeptics who never overlook the dark side of even the happiest experience.
+ - In chess, there is only one mistake: over-estimation of your opponent. All else is either bad luck or weakness.
+ - All Chess players should have a hobby.
+ - It’s always better to sacrifice your opponent’s men.
+ - Chess is a fairy tale of 1001 blunders.
+ - No one ever won a game by resigning.
+ - Seize the outpost K5 with your knight, and you can go to sleep. Checkmate will come by itself.
+ - Drawn games are sometimes more scintillating than any conclusive contest.
+ - A game is always won through a mistake.
+ - The winner is the one who makes the next-to-last mistake.
+ - Psychologically, the choice of an appropriate opening is of the utmost importance for a player’s success in a tournament.
+ - Whenever Black succeeds in assuming the initiative in maintaining it to a successful conclusion, the sporting spirit of the chess lover feels gratified, because it shows that the resources of the game are far from being exhausted.
+ - It is well-known that chess and music go well together, and many are those who have achieved unusual proficiency in both.
+ - The first essential for an attack is the will to attack.
+ - Any opening is good enough, if its reputation is bad enough.
+ - A draw can be obtained not only by repeating moves, but also by one weak move.
+ - Lasker thought that his rationalism rendered him immune from the surprises of chess theory.
+ - The ability to create and to control the tension of battle is perhaps the principal attainment of the great player.
+ - Shall we ever live to see the following wise prohibition – the audience is forbidden to smoke and the masters are forbidden to ‘smoke out’ the audience by playing exchanging variations?
+
+29 quotes

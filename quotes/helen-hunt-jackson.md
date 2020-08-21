@@ -1,0 +1,27 @@
+ - By all these lovely tokens September days are here, With summer’s best of weather And autumn’s best of cheer.
+ - I know the lands are lit, with all the autumn blaze of Goldenrod.
+ - Next time!? In what calendar are kept the records of those next times which never come?
+ - Bee to the blossom, moth to the flame; Each to his passion; what’s in a name?
+ - Motherhood is priced Of God, at price no man may dare To lessen or misunderstand.
+ - Who longest waits most surely wins.
+ - When Time is spent, Eternity begins.
+ - The woman who creates and sustains a home, and under whose hands children grow up to be strong and pure men and women, is a creator second only to God.
+ - O May, sweet-voice one, going thus before, Forever June may pour her warm red wine Of life and passions, – sweeter days are thine!
+ - The goldenrod is yellow, The corn is turning brown, The trees in apple orchards With fruit are bending down.
+ - That indescribable expression peculiar to people who hope they have not been asleep, but know they have.
+ - Most men call fretting a minor fault, a foible, and not a vice. There is no vice except drunkenness which can so utterly destroy the peace, the happiness of a hoe.
+ - O sweet, delusive Noon, Which the morning climbs to find, O moment sped too soon, And morning left behind.
+ - Now and then one sees a face which has kept its smile pure and undefiled. Such a smile transfigures; such a smile, if the artful but know it, is the greatest weapon a face can have.
+ - Great loves, to the last, have pulses red; All great loves that have ever died dropped dead.
+ - There is nothing so skillful in its own defense as imperious pride.
+ - I shall be found with ‘Indians’ engraved on my brain when I am dead. A fire has been kindled within me, which will never go out.
+ - Who waits until the wind shall silent keep Will never find the ready hour to sow.
+ - Stain my eyes as I may, on all sides all is black.
+ - Wounded vanity knows when it is mortally hurt; and limps off the field, piteous, all disguises thrown away. But pride carries its banner to the last.
+ - There cannot be found in the animal kingdom a bat, or any other creature, so blind in its own range of circumstance and connection, as the greater majority of human beings are in the bosoms of their families.
+ - Nothing can be so bad as to be displeased with one’s self...
+ - One of Dr. Johnson’s ingredients of happiness was, “A little less time than you want.” That means always to have so many things you want to see, to have, and to do, that no day is quite long enough for all you think you would like to get done before you go to bed.
+ - The voice of one who goes before, to makeThe paths of June more beautiful, is thineSweet May!
+ - O month when they who love must love and wed.
+
+25 quotes

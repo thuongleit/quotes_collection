@@ -1,0 +1,40 @@
+ - When men are oppressed, it’s a tragedy. When women are oppressed, it’s tradition.
+ - If knowledge is power, clandestine knowledge is power squared; it can be withheld, exchanged, and leveraged.
+ - A family stitched together with love seldom unravels.
+ - If the family were a boat, it would be a canoe that makes no progress unless everyone paddles.
+ - If family violence teaches children that might makes right at home, how will we hope to cure the futile impulse to solve worldly conflicts with force?
+ - As the mother of a son, I do not accept that alienation from me is necessary for his discovery of himself. As a woman, I will not cooperate in demeaning womanly things so that he can be proud to be a man. I like to think the women in my son’s future are counting on me.
+ - The risk for a woman who considers her helpless children her “job” is that the children’s growth toward self-sufficiency may be experienced as a refutation of the mother’s indispensability, and she may unconsciously sabotage their growth as a result.
+ - If the family were a fruit, it would be an orange, a circle of sections, held together but separable – each segment distinct.
+ - Work-family conflicts – the trade-offs of your money or your life, your job or your child – would not be forced upon women with suchsanguine disregard if men experienced the same career stalls caused by the-buck-stops-here responsibility for children.
+ - A toy has no gender and no idea of whether a girl or boy is playing with it.
+ - We need old friends to help us grow old and new friends to help us stay young.
+ - Apathy is the self-defense of the powerless.
+ - Illness is the proving ground of friendship.
+ - I used to anticipate my childhood birthday parties as if each were an annual coronation. Like most kids, I loved sitting at the head of the table with a crown on my head.
+ - Friends seem to be like aspirin; we don’t really know why they make a sick person feel better, but they do.
+ - Boys don’t make passes at female smart asses.
+ - Friendships aren’t perfect and yet they are very precious. For me, not expecting perfection all in one place was a great release.
+ - To me, a person’s identity is composed of both an ‘I’ and a ‘we.’ The ‘I’ finds itself in love, work, and pleasure, but it also locates itself within some meaningful group identity – a tribe, a community, a ‘we.’ America is too big and bland a tribe for most of us.
+ - Mothers remember a child’s first words, and quote them in tones usually reserved for Byron.
+ - The ultra-right would have us believe that families are in trouble because of humanism, feminism, secular education, or sexual liberation, but the consensus of Americans is that what tears families apart is unemployment, inflation, and financial worries.
+ - I want to visit Memory Lane, I don’t want to live there.
+ - It angers me that sick people have to wait for everything and everybody – doctors, nurses, callbacks, lab results, prescriptions, medications, technicians, treatment rooms. If illness is the embodiment of powerlessness, which, believe me, is true, then waiting is its temporal incarnation.
+ - No labourer in the world is expected to work for room, board, and love -except the housewife.
+ - Housework is the only activity at which men are allowed to be consistently inept because they are thought to be so competent at everything else.
+ - America is a nation fundamentally ambivalent about its children, often afraid of its children, and frequently punitive toward its children.
+ - Children’s liberation is the next item on our civil rights shopping list.
+ - Although Freud said happiness is composed of love and work, reality often forces us to choose love or work.
+ - The politics of the family are the politics of a nation. Just as the authoritarian family is the authoritarian state in microcosm, the democratic family is the best training ground for life in a democracy.
+ - Other than life experience, nothing left a deeper imprint on my formative self than the movies.
+ - When a family is free of abuse and oppression, it can be the place where we share our deepest secrets and stand the most exposed, a place where we learn to feel distinct without being better, – and sacrifice for others without losing ourselves.
+ - We can remind the world that all the dead on both sides have not settled our differences, so now it is time for the living to renounce violence as a means of solving this conflict.
+ - When the president of the United States flicks the switch to light up the Christmas tree on the White House lawn, that house ceases to be an American symbol; it becomes a Christian symbol.
+ - I feel about mothers the way I feel about dimples: because I do not have one myself, I notice everyone who does.
+ - If the Richter scale could measure human calamities, the loss of a child would register a ten.
+ - What I often say to people who are quick to say I’m not a feminist is if you think you’re not a feminist, give it all back.
+ - Like many another romance, the romance of the family turns sour when the money runs out. If we really cared about families, we would not let ‘born again’ patriarchs send up moral abstractions as a smokescreen for the scandal of American family economics.
+ - Friends can be said to “fall in like” with as profound a thud as romantic partners fall in love.
+ - Control is a big issue when you’re sick. It’s the first thing you lose – other losses come later.
+
+38 quotes

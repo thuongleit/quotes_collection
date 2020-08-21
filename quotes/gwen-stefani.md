@@ -1,0 +1,108 @@
+ - Life is short and you’ve got to get the most out of it.
+ - I have learned to delegate.
+ - Never say never. In your life you never know what’s going to happen next.
+ - Everything works out how it should.
+ - Act as young as you feel. You’re not getting older; you’re getting more entitled to be your fabulous self.
+ - Sometimes you have to sacrifice your performance for high heels.
+ - You feel pretty gross when you are first pregnant. You don’t feel cute, you feel disgusting. You’re getting fat. It was hard.
+ - Sometimes life is so crazy, you have to go through something to be able to find out what you’re supposed to talk about next, and I think that’s what happened to me.
+ - Look at your watch now. You’re still a super hot female.
+ - The one thing that makes me feel super lucky about my financial success is that I have a housekeeper.
+ - And all I know is, you’ve got to give me everything. Nothing less ’cause, you know I give you all of me.
+ - My songs are basically my diaries. Some of my best songwriting has come out of time when I’ve been going through a personal nightmare.
+ - Love is when you have a bad day but then you see the one you love and everything seems to be ok.
+ - I try not to be but Im super-neurotic about diet. Im neurotic about trying not to be neurotic! Im like every other girl. I have to try really hard my whole life to try to be fit. And Im super-vain. And I want to wear cute clothes.
+ - Our memories, they can be inviting. But some are altogether, mighty frightening.
+ - I’m just writing what I feel, and I really don’t think I’ve done anything wrong that I need to hide. The biggest thing, and I don’t even like to bring it up, is my children – you know, you’ve gotta protect them.
+ - No one can force me to do something unless I’m passionate about it.
+ - I think I’ve been able to fool a lot of people because I know I’m a dork. I’m a geek.
+ - I wanted so badly to have a backup plan for when I’m not performing anymore. Let’s be realistic: it’s not going to be like this forever.
+ - Being a mom is hard, I think a lot of working moms feel that way.
+ - My priorities are always going to be my husband and my family now. That’s a huge, huge thing.
+ - Finding that balance between work and family is the hardest thing I’ve ever done – by far.
+ - And if I let myself down, appear on stage when I’m not looking my best, it’s not fun for me. I just beat myself up about it.
+ - I remember the day I discovered James Dean and Marilyn Monroe. I don’t know why it affected me so strongly, but I walked down to the corner store and bought every poster of them, and I did my whole room up. Overnight.
+ - Every day I fail at something.
+ - I remember my boyfriend and I had just broken up, and I was like ‘I don’t care how much it costs, I’m getting my hair bleached!’ That’s really when everything changed.
+ - I’ve never been good at giving advice. The only advice I ever gave people was to find something that you are passionate about. But I hate giving advice, because, who am I? I’m just a girl.
+ - If you’re not Prince, you’re never going to sound like Prince.
+ - I’ve made clothes my whole life, but I was just naive about the fashion world. But I think it’s successful because I’ve been really involved. Picking the samples, inspirations, color palette.
+ - My mom and dad met at Anaheim High School.
+ - I’m just an Orange County girl from a loving family making music with my friends. It’s not really that big of a deal.
+ - My mom always said I was the peacemaker in the family. My older brother, Eric, was the leader, the creative one. I was just his puppet.
+ - I like the old, vintage Hollywood look.
+ - Don’t shave, don’t shower, don’t care. Be really stinky and wear the same clothes every day. I think what makes a man sexy is not being self-aware. That’s what’s really cute to me.
+ - There’s nothing that compares to being in a band with your best friends. We’re so comfortable together, we understand each other. It feels, like, normal. Whereas solo period felt like I was trying to be something, and play a role, and pretend.
+ - I don’t fight with people – like, I can barely fight with my husband because I’ll just start crying instead.
+ - I never wanted to go for the cute boys. Why would you wanna have a boyfriend that’s cuter than you?
+ - I was down after divorce – I was all the way down. And I just felt like, “God, I gotta turn this around. I can’t go down like this. I have to know that this is happening for a reason.” And I knew that I had to turn to music.
+ - To write an album takes so much focus and selfish time, to just write and think about your life. For me. Maybe not for other people.
+ - Being a singer is all about me. About ego. Being a mom is all about being selfless – two different worlds.
+ - I’ve always loved fashion – it’s a reflection of your personality.
+ - I’m in a band, and I know exactly who those girls are. I know exactly what goes on backstage. I wish I had a little leash to walk him around.
+ - I’ve always worked really hard, and the hardest thing I’ve ever done is have kids!
+ - I have to be creative to be happy.
+ - Now I’m a wife and a mother of two. It’s a really different role. I always referred to No Doubt as a marriage, because that’s what it’s like to be together for so long and go through what we’ve been through. I can’t really have that relationship with them anymore.
+ - I wish I could write more make-believe. It’s a lot easier to write about hard times and when things are going wrong. But I’ve never been a private person.
+ - I’ve been spoiled being in the fashion business. My son will be like, ‘Mommy, 20 new pairs of shoes came today. How come?’ Because I’m always telling him it’s not normal to have 20 pairs of tennis shoes to try on before school.
+ - You can’t plan anything, right? You can try.
+ - If I wasn’t even famous or had any success, I would still wake up and put tons of make-up on, and put on a cool outfit. That’s always been who I’ve been my whole life, so that’s never gonna change. I love fashion. I love getting dressed up. I love Halloween, too.
+ - I imagine my children are going to save me from my vanity and be my passion and fill whatever fears I have of the amazing time I’m having right now being gone.
+ - I remember so vividly the first song I ever wrote. It was called ‘Different People.’
+ - Every record that I’ve ever made, I listen to it so much before it comes out. As soon as it comes out, I never listen to it again. It’s, like, over.
+ - I had done the No Doubt record Push and Shove, and that was a real challenge for me: I think after the giving birth twice, going on multiple tours, all the stuff that I had done, I really got quite burned out after that.
+ - Generally I would say that I’m not a super-adventurous shadow girl. I’m all about a lip, eyebrow, and mascara, but through the years, working with different talented makeup artists, I learned how awesome eye makeup can be if you get it right. That’s how we got the colors we came up with.
+ - My parents always pushed creativity on us, but they made it seem like the fun thing to do.
+ - Being in a band you can wear whatever you want – it’s like an excuse for Halloween every day.
+ - As a famous person you think how you’re gonna end it, get away and have a normal life.
+ - It’s interesting to watch where music is going next. Isn’t it always rotating? It is so weird how disposable pop music is, even mine. It just goes by so fast.
+ - This last year I kind of stopped working out. I think my body just needed a break. And so I did that, and focused more on feeling good as opposed to beating myself up.
+ - Writing songs is super intimate. It’s a bit like getting naked.
+ - Oh yea FORTUNATELY the girls are a lot braver then the guys, they flirt all the time.
+ - My mom and dad met at Anaheim High School. After they got married, all they wanted to do was have four children, and they did.
+ - I think everyone has gifts and everyone has talents. If you are successful at it, it feels really good but it never really penetrates completely.
+ - I’d like to have no rules and eat what I want, but I’ve learned over the years that I’m so disappointed when I can’t wear the clothes I want to wear.
+ - I would love to learn to play something so I don’t have to rely on someone to collaborate with.
+ - I like to make my husband like me more, and he likes it when I’m wearing makeup.
+ - I had gotten pregnant with Apollo, and I didn’t plan on that – it was just such a beautiful miracle. Four weeks later they called me and, like “Do you want to do The Voice?” It was this incredible opportunity to do something different.
+ - I love Vivienne Westwood. So much. Every time I go to London, first thing I do is go in there. It’s ridiculous!
+ - After you make a fool of yourself a few hundred times, you learn what works.
+ - When you write a great song, it just blows you away. When you write a song that connects with people around the world – I mean like it actually transcends language barriers – you see how it can affect people, and it’s quite a tall order to follow up on.
+ - I thought that I was going to be like this earth mother. When people would complain about being pregnant, I was like, ‘What are you talking about? It’s incredible! Just enjoy it.’
+ - I grew up near Disneyland, and my brother’s an animator, so I was always really inspired by bright, cartoony colors and that whole feeling of happiness.
+ - I remember when I was in school, they would ask, ‘What are you going to be when you grow up?’ and then you’d have to draw a picture of it. I drew a picture of myself as a bride.
+ - At a certain point I’m going to want to have a family.
+ - I’m vain enough to want do a movie again.
+ - I have people that are affected by what I do, what I say, and that would be the one place where it gets complicated. But being honest and truthful – I just believe that’s the best way to be.
+ - I’ve been trying to do films for years. So I’ve decided to wait until the next good part comes along and develop a record on my own in the meantime.
+ - How am I supposed to be a mom to two kids, a wife and do a show every night? It’s impossible!
+ - What did turtles evolve from? Really, I want to know. And for God’s sake, don’t say lizards, because turtles are nothing like lizards. They could not be more different.
+ - Out of all the artistic things I do, music is the most rewarding because it’s so hard to write songs.
+ - I’m kind of lazy. I like to lie around with my husband and watch TV and stuff like that.
+ - I think when I first started discovering I could write songs, I was so naive. And it was after I got broken up with and had my heart sliced up into a bunch of little pieces that I was like, “I’m going to say this.” I didn’t even know how to play guitar.
+ - I have to work very hard to look the way I do. I want the girls out there to know that.
+ - It takes a lot of selfish time to make music.
+ - I don’t have a strong sense of self-worth unless I’m doing something.
+ - I’m neurotic about trying not to be neurotic!
+ - Have another baby. I mean, it’s such a miracle to have one. And there’s so...
+ - Before, I was really passive, all I cared about was being in love with my boyfriend. I didn’t have any creative power, nothing. I don’t know that person any more.
+ - It was such a turning point to find that I had a talent and I had something to contribute, somewhere.
+ - I have to tell everyone everything that’s going on. It is different once you’re married, because that’s sacred.
+ - It’s not about me – it’s like, “How can I help you?” And when you give like that, you receive so much. It was an incredible experience, but it also gave me that bug: I wanted new music so badly.
+ - It’s superfun being a mom, but it’s hard too.
+ - I got married and decided I wanted to do a dance record, and I didn’t ever expect for it to be what it was or for the ‘No Doubt’ thing to be such a long break, but it was one of those things where you just had to sort of follow your inspiration.
+ - At first it was my brother’s songwriting and I was just doing what everyone told me.
+ - I want to be a guy, but I want to wear a lot of makeup.
+ - I grew up in a normal family. I have sweet parents, who are still married. But my life is so different from how I thought it would be.
+ - I work out five days a week, I can’t imagine not doing it.
+ - I’m like a peanut butter sandwich.
+ - I was a different person before I started to write. When I realized I could be a songwriter and that people would listen – that was when I started feeling good in my life.
+ - Although I’d always wanted children, it was such an opposite thing to being a singer.
+ - I’ve always been a girl who loves to dress up.
+ - I don’t mean this in a stuck-up way, but I needed an attitude song.
+ - I’m lucky to not have a real job, to be able to express myself, be creative and be relevant.
+ - It feels like the more I’m out there in the public eye, the more criticism I get. You need to have confidence – that’s what it takes to walk out there and sing a song in front of a huge group of people.
+ - I was thinking that when I have children, that I should always dress as a character for them, so they think their mom is Alice in Wonderland or Cinderella. It would be totally messed up!
+ - Music has this emotional thing to it, and it touches people in crazy ways. The power of having that power is something that, once you have it, you don’t want it to ever end.
+
+106 quotes

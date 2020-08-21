@@ -1,0 +1,44 @@
+ - I was a late bloomer. But anyone who blooms at all, ever, is very lucky.
+ - Take your vitamins. Exercise. Just work to love yourself as much as you can – not more than the people around you but not so much less.
+ - I have learned to get pleasure from speaking of pain.
+ - Poets are like steam valves, where the ordinary feelings of ordinary people can escape and be shown.
+ - Maybe we can use a metaphor for it, out of dance. I think for many years I was aware of the need, in dance and in life, to breathe deeply and to take in more air than we usually take in.
+ - Writing or making anything-a poem, a bird feeder, a chocolate cake-has self-respect in it. You’re working. You’re trying. You’re not lying down on the ground, having given up.
+ - I’m not asking a poem to carry a lot of rocks in its pockets. Just being an ordinary observer and liver and feeler and letting the experience get through you onto the notebook with the pen, through the arm, out of the body, onto the page, without distortion.
+ - I did not deceive him, he did not deceive me, I did not leave him, he did not leave me, I freed him, he freed me.
+ - I did not know him, I knew my idea of him.
+ - I wish I wrote more about the world at more distance from myself.
+ - Baseball is reassuring. It makes me feel as if the world is not going to blow up.
+ - Once you lose someone it is never exactly the same person who comes back.
+ - The older I get, the more I see the power of that young woman, my mother.
+ - I have never thought I could take it, not even for the children. It is all I have wanted to do, to stand between them and and pain. But I come from a long line of women who put themselves first.
+ - Because a poem is not written while running or while answering the phone. It’s written in whatever minutes one has. Sometimes you have half an hour.
+ - This creature of the poem may assemble itself into a being with its own centrifugal force.
+ - One of the duties of a baseball fan is to engage in arguments with the man behind him.
+ - We’re all taking on too much, we’re all asking too much of ourselves. We’re all wishing we could do more, and therefore just doing more.
+ - At one point I took on a new job, and I just didn’t have time to do anything but work.
+ - My poems – I don’t even like the sound of that, in a way. Not that anyone else wrote them. But we know that only people who are really close to us care about our personal experience.
+ - She’d crack A joke sharp as a tin lid Hot from the teeth of the can-opener, And cackle her crack-corn laugh.
+ - So I did quit coffee and I did quit smoking. But I haven’t managed that with drinking!
+ - When I quit all these things and said I didn’t have any time, I meant I didn’t have any time.
+ - To me, the mind seems to be spread out in the whole body – the senses are part of the brain. I guess they’re not where the thinking is done.
+ - Everyone is so different. I sometimes wish I wrote in a different way. You know, that feeling of: So-and-so writes slowly, if only I wrote slowly.
+ - The teaching is very rewarding, and very time-consuming, and very exhausting. But it’s wonderful. The community here at NYU is very precious to me.
+ - A family is a mystery.
+ - Every poet I know – although there may be some I don’t know who lead very different lives, who maybe live in the country and don’t teach – tends to be just like the rest of us: just really busy, really overcommitted.
+ - I’m probably so out of it at my age that I don’t know what people think.
+ - There is something in me maybe someday to be written; now it is folded, and folded, and folded, like a note in school.
+ - Well, one thing I’m really interested in, when I’m writing, is being accurate.
+ - It might be a bad thing, not to know what’s going on in the world. I can’t say I really approve of it.
+ - Who wants to put together something that will bear some relationship to the vision or memory or experience or story or idea or dream or whatever.
+ - The decision for me was whether to have ‘The Father’ be a book that told a story – from the point of view of this speaker, the daughter – without, as in the earlier books, then having a section on something else and a section on something else.
+ - Their spirits and their visions are embodied in their craft. And so is mine. It’s not Jane Saw Puff. But the clarity of Jane Saw Puff is precious to me.
+ - If I wrote in a sonnet form, I would be distorting. Or if I had some great new idea for line breaks and I used it in a poem, but it’s really not right for that poem, but I wanted it, that would be distorting.
+ - Many poets write books. They’ll tell you: Well, I’ve got my next book, but there are two poems I need to write, one about x, one about y. This is a wonder to me.
+ - The older I get, the more I feel.
+ - I didn’t have time to sit down and look at the work of a year and choose what to type.
+ - I’m not sure that the benefit – as a writer and as a citizen – that I would get from reading at least the front page of the Times every day or every other day would outweigh the depression.
+ - I think this is true for all artists. My senses are very important to me.
+ - Seeing yourself as responsible for the quality of your relationship, as a prime mover in your life, I think is a bold, amazing step.
+
+42 quotes

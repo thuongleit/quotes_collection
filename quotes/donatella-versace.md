@@ -1,0 +1,95 @@
+ - Fashion is about dreaming and making other people dream.
+ - Feminism is dead in the world. It comes from another time. I’m a feminist. I want to fight, but I don’t see many people with this desire to fight for something. Women don’t help each other, especially in fashion.
+ - Creativity comes from a conflict of ideas.
+ - Fashion is a weapon that you can use when you need it.
+ - What is comfortable fashion? To be comfortable, that can’t be in the vocabulary of fashion. If you want to be comfortable, stay home in your pajamas.
+ - Something has to change in the world. Without change, young people will have no future.
+ - I don’t even know what my natural colour is. Natural? What is natural? What is that? I do not believe in totally natural for women. For me, natural has something to do with vegetables.
+ - A business woman needs a successful mix of design and practicality. I look for that special piece that sets the watch apart from the norm. I want to have something unique that differentiates itself with style and glamour.
+ - I find older men more attractive than boys. I need a man who can teach me a thing or two.
+ - Powerful women intimidate men. If she’s a really well-known woman, she has a career, she’s famous – in that case, men are really afraid.
+ - As with most things in my life, I believe you should try to enjoy yourself and never feel like you are a slave to a routine.
+ - Fashion is not frivolous. I am a businesswoman, a very serious person.
+ - I think glamour all the time. I wake up in the morning and I’m already thinking glamour.
+ - New York is full of creative people, not only in fashion.
+ - The three biggest fashion mistakes are cheap suits, shoes, and shirts. Spend your money on something good.
+ - When my mother did fittings for her clients, I was hiding, looking at these beautiful ladies try on these fantastic clothes. I was dreaming as a small child to try these clothes on myself.
+ - Elegance is always in style for men. There are all different kinds of elegance. It can be silk, it can be a T-shirt.
+ - The man of the millennium is much more liberated than the man of the ’90s.
+ - In mythology, the Medusa can petrify people with a look – which is a good thing, I think. But the Medusa is a unique symbol – something strong. It’s about going all the way.
+ - Women’s bodies are curvy, sensual, it’s about being happy to be a woman – and sexy is always good.
+ - Plus-sized women shouldnt think of themselves as a size. They should think of themselves as women with rich goals in life. Size doesn’t mean, really, anything. You can carry your size with pride and dress in a way that you like.
+ - In Italian there is an expression: We don’t sleep on the fame.
+ - For me, music gives a voice to fashion.
+ - I think men know to seduce women though words and conversation and nice gestures. That’s much sexier than when a man uses muscle.
+ - Elegance is always in style for men.
+ - You can have small moments of happiness in life. You certainly can’t expect years and years of it.
+ - My main influence is – it’s music. It lifts the spirit. I am always listening to music. And sometimes what inspires me is a little sound or some small arrangement. I really do listen to music continuously all day long – very loud, so people can’t stand to be around me anymore.
+ - It’s no good being too easily swayed by people’s opinions. You have to believe in yourself.
+ - I am not a great believer in fairy tales. Every woman should fight hard for her own happy endings. Although occasionally it is nice to wake up as a princess.
+ - I’m a designer, and I work very hard at that. People sometimes want to put down fashion by saying it’s frivolous or superficial, but it’s not that way at all. It’s actually very hard work.
+ - I like perfume and flowers.
+ - The first thing I do each morning is get out of bed and give my dog, Audrey, a hug. She’s a Jack Russell. I think having an animal is a wonderful thing, particularly dogs. They are great levelers, there’s no nonsense with them, and they just want simple affection.
+ - Fashion is all about happiness. It’s fun. It’s important. But it’s not medicine.
+ - I always wear high heels – I simply feel naked without them.
+ - Scent is very important. Strong fragrances suit some men, while citrus types suit others. I like my men to smell fresh and woody, but also like a man.
+ - Lady Gaga is the present and the future. She is the most revolutionary and inspirational artist. She is fearless and daring.
+ - I wake up at about the same time every day. I sleep well and wake without an alarm clock.
+ - Fashion needs fresh blood, and London is the most creative place for that.
+ - A business woman needs a successful mix of design and practicality.
+ - You can be too boring, but you can never be too seductive.
+ - It would be very easy for us to do a collection that everybody would like and not criticize. But criticism is a part of life. You have to take it.
+ - Many young people don’t know what Versace represent. I want to show what makes Versace an iconic brand.
+ - You can’t pretend that everybody likes Versace. It would be boring. It’s better to create a reaction than to create no reaction. That’s dangerous.
+ - Die and born again, die and born again. It’s the story of my life.
+ - It’s good to see the children be creative. It’s the pleasure of the future.
+ - Giving up my heels was harder than giving up the drugs.
+ - I’m like a little kid when it comes to music. I mean, the music is always blasting wherever I am that people always knock on my door and say, ‘It’s too loud!’ But I think music gives so much inspiration.
+ - In fashion, only sexy won’t go out of fashion.
+ - My style is not that big. I wear heels, tight pants, and I wear diamonds.
+ - For me the safety pin is about rebellion, and I’m punk in the soul.
+ - In order to be responsible, you need some discipline in your life. For a while I lost mine.
+ - My mother didn’t want me to be in fashion. She was in the fashion business, so was my brother, and she thought it was too crazy for me. She wanted me to be married with children, to be independent, yes, but not to have a crazy life.
+ - Let’s just say beauty inspires me. But I like all beauty – I think it really comes from the inside out.
+ - To be Catholic puts a lot of fear in you. It’s a great religion, but also one that can limit your experience. You fear experience because everything is a sin.
+ - Haven’t you heard? I sleep every night in the deep freezer!
+ - People are always surprised when they spend time with my children by how normal they are. They’re polite. They’re well mannered. They’re very down to earth, in a way.
+ - You can never forget the time you are living in because the past is the past and it will never come back. So to adjust your philosophy and creativity in fashion to the time you’re living in is the most important thing.
+ - There’s time to slow down, after you’re dead.
+ - It’s very important for a brand to have an identity through the years, but it’s very important as well to evolve because times change so fast.
+ - Fashion is not frivolous.
+ - The suit does not represent the businessman anymore. Nor does the loud shirt represent the rock star. The same man can now wear both.
+ - Some men look great unshaven; others just look like they forgot to shave. Beards and mustaches can be really distinctive if you go for an earthy, rock-and-roll look like the Kings of Leon or the Killers.
+ - Hollywood is a very inspiring place.
+ - I believe it is the responsibility and duty of those in high-profile positions to give a voice to people whose voices cannot be heard.
+ - I don’t like balance. Balance is not a word you can use in Versace fashion.
+ - I’ve learned how to appreciate what I have. And it’s a lot. I’m very lucky.
+ - I do think that exercise is important, not only to keep you in shape but also for your state of mind. However, I am not fanatical about it.
+ - I have long been a fan and enthusiast where art is concerned.
+ - Gianni created the whole thing. I came later and helped him.
+ - I’d need an incredibly talented make up artist to make me look natural!
+ - In fashion, women have more sensitivity, more sense of the body, so they know how things fit and feel. Yet there are not many women who study fashion. It’s ridiculous.
+ - I think people need to see Prince live to really understand how remarkable he is. He has always been inspiring because he is never afraid to break rules or barriers or invent something new – and if you love fashion, then you need to be able to do that.
+ - I think I asphyxiated my children.
+ - For so long Versace couture was identified with celebrities and music, which I love. But at the same time it could overwhelm the clothes.
+ - Richard Avedon is a true genius of photography and one of the greatest artists of our time.
+ - I don’t think about making sexy clothes. It’s just my instinct to make them.
+ - During the eighties and nineties, people wanted to be chic, elegant, bourgeois.
+ - I have worked with wool all my life as a designer. There’s so much more to it than knitwear – it’s an amazingly versatile material and can be used in so many different ways from chic to rustic.
+ - I studied at a university in Florence and finished my degree. My mother was very strict about this recipe: You need to get your degree.
+ - I don’t see anybody categorized as a ‘fashion diva,’ except for me! And I like that. I am thought of as a diva because I wear an evening dress and I take care of my look when I go out. I go to parties regarding business, not for fun. And that’s why they call me a ‘diva.’
+ - My muse changes all the time because I think every designer is a bit of a muse for themselves in a way – they just don’t want to say it.
+ - I was a fashion addict by the time I was 11 years old. I’d wear a miniskirt and patent-leather boots.
+ - I think people need to see Prince live to really understand how remarkable he is.
+ - When I meet celebrities, I have to know what they are like and only then can I design. The clothes have to fit their personality.
+ - I think there was a time when I was too strict and controlling. I think I asphyxiated my children.
+ - We shouldn’t be copying what we see. We should try to find our own sense of style, to believe in ourselves.
+ - I understand that the rule of fashion is to change, even as a successful designer – you do not want to be stuck in the same rut.
+ - I know who the Versace woman is because I wear the clothes myself.
+ - Sometimes big designers are afraid that people won’t recognize them if they change that much.
+ - I love Alexander McQueen. I like the construction of his suits. I think it’s fantastic.
+ - I love anyone who breaks the rules, and musicians always break the rules – in an aggressive way.
+ - I don’t like my physique at all.
+ - I go from a full working day to making sure I am home for dinner with my kids. I couldn’t do that in a 10cm mini skirt but I am not going to resort to sweatpants and an old t-shirt.
+
+93 quotes

@@ -1,0 +1,26 @@
+ - I’m left handed, but my dad taught me to play guitar right-handed.
+ - I’m a shepherd, not a sheep, and I’ve always prided myself on being a leader and not a follower.
+ - It pisses me off, people are idiots, but what are you going to do? The world is full of idiots. That’s why we’ll never have flying cars. People don’t know how to drive.
+ - The sword was a very elegant weapon in the days of the samurai. You had honor and chivalry much like the knights, and yet it was a gruesome and horrific weapon.
+ - I don’t see many people with longevity anymore. Everything was harder when I started, and you had to take acting lessons, do theater parts, work on connections and then get lucky. The technology is good, but it’s also a hindrance for longevity.
+ - I don’t really go back over my old shows, but I’ll see them occasionally, mostly I want to go back and change things about the character as I look at them.
+ - Chess is a game that benefits people of all ages, especially kids, in any area of life, business, problem solving, and social skills. Chess has the unique ability to combine focus, concentration, imagination, coordination, teamwork, and leadership all at the same time.
+ - You’ve got Corey Feldman doing his thing, and the problem is, they’re trying to be pop stars. You can’t compare Salty to any of the other actors out there playing music.
+ - I really pay attention to the bass in the music I listen to, and that’s what I tend to write toward.
+ - Stand-up in general is the most raw form of entertainment. There is no pyrotechnics or back-up dancers, it’s just live and die by your jokes, that’s it.
+ - I’ve been in this business so long, it just doesn’t faze me. I know what’s going to happen before it happens.
+ - I don’t think you can ever make enough to be set for life. Well, I guess there are limits. In the billions, I guess.
+ - I’m the guy who will eat something that looks nice when I’m out, but when I take it home in a doggie bag, it’ll sit in the back of my refrigerator until it starts to move.
+ - If I ever went, I’d want to go peacefully in my sleep. I wouldn’t want to plan my own death.
+ - I’m not a big radio guy, I don’t listen to whatever is the hip new thing.
+ - If we could sell 100,000 units every album, that would rock. We’d have a big cult following, we’d have a built-in fanbase so we could pretty much play anywhere, people would show up and rock out.
+ - There’s people that figure if they hang out with you, all of a sudden they’re going to be successes. I’ve had two or three stalkers in my life.
+ - There are a lot of girls that will try to hook up with you, then try to have your kid because they figure they’re going to get all this money from you.
+ - You see people who are 19 or 20 years old and they don’t even know who The Who is. It’s like, where have you been? Justin Timberlake? C’mon. Where are the roots?
+ - Kids these days don’t know as much about music as they think they do.
+ - I don’t know who’s worse with little boys, Mario or Michael Jackson.
+ - We don’t know what we’re writing until it just comes out. We don’t sit around crunching numbers.
+ - These days, everyone is a writer, producer and movie star. You post something on the web, get enough hits, and suddenly you have TV show.
+ - I’ve been blessed to have done different roles, but I don’t think people see me as funny.
+
+24 quotes

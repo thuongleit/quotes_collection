@@ -1,0 +1,30 @@
+ - Your dresses should be tight enough to show you’re a woman and loose enough to show you’re a lady.
+ - You can have anything you want in life if you dress for it.
+ - Even the most beautiful legs – Marlene Dietrich’s, for instance – look better when the kneecap is covered.
+ - With women, there’s a basic female instinct of caring deeply about the way they look; women stars have a narcissist complex.
+ - Fashion is a language. Some know it, some learn it, some never will – like an instinct.
+ - The cardinal sin is not being badly dressed, but wearing the right thing in the wrong place.
+ - You can lead a horse to water and you can even make it drink, but you can’t make actresses wear what they don’t want to wear.
+ - What a costume designer does is a cross between magic and camouflage. We create the illusion of changing the actors into what they are not. We ask the public to believe that every time they see a performer on the screen he’s become a different person.
+ - Life is competitive; clothes gird us for the competition.
+ - Many women have asked me if it is possible to have a well-built wardrobe on a limited budget. ‘Money,’ I tell them, ‘is no guarantee of taste, and an overstuffed wardrobe is often as bare as a skeleton when it comes to wearable apparel.’
+ - Some people need sequins, others don’t.
+ - Clothes are the way you present yourself to the world; they affect the way the world feels and thinks about you; subconsciously they affect the way you feel and think about yourself.
+ - Growing old gracefully used to begin at about 35, but today women prefer to ‘stay young gratefully’ with thanks to designers, beauticians and plastic surgeons.
+ - A designer is only as good as the star who wears her clothes.
+ - Building a proper wardrobe is like building a home. Indeed, you should think of it like a home, because it is something you’re going to live in. It must be comfortable and suit all your needs.
+ - My motto is that the audience should notice the actors, not the clothes.
+ - The subjective actress thinks of clothes only as they apply to her; the objective actress thinks of them only as they affect others, as a tool for the job.
+ - Just imagine dressing the two handsomest men in the world, and then getting this!
+ - There are three fashion periods: the past, the present and Mae West.
+ - As women, we all have certain weaknesses. I know one who can’t resist pretty shoes but has nothing suitable to wear with them. Others adore frilly lingerie but never have any money to buy outer clothing.
+ - We don’t make glamorous movies today. Everything now is very realistic, artistic – and depressing. When is the last time you you saw a wonderful musical or a fabulous fantasy?
+ - Marlene Dietrich and Roy Rogers are the only two living humans who should be allowed to wear black leather pants.
+ - Many faux pas of fashion can be avoided if you curb your instinctive desire to buy things with your heart instead of your head.
+ - Couture has copied my things for years, in addition to countless other costume designers, claiming theirs were the original ideas. It’s all part of the business, unfortunately.
+ - We ask the public to believe that every time they see an actress or actor that they are a different person.
+ - Before you are interviewed for the job you want, try on the complete outfit you intend to wear.
+ - I have yet to see one completely unspoiled star, except for the animals-like Lassie.
+ - There’s no such thing as a standard size movie star, or woman for that matter.
+
+28 quotes

@@ -1,0 +1,502 @@
+ - Do it for joy and you can do it forever.
+ - Get busy living or get busy dying.
+ - You can, you should, and if you’re brave enough to start, you will.
+ - If you want to be a writer, you must do two things above all others: read a lot and write a lot.
+ - The scariest moment is always just before you start.
+ - Talent is cheaper than table salt. What separates the talented individual from the successful one is a lot of hard work.
+ - Good books don't give up all their secrets at once.
+ - Remember, Hope is a good thing, maybe the best of things, and no good thing ever dies.
+ - Fiction is the truth inside the lie.
+ - Books are a uniquely portable magic.
+ - Amateurs sit and wait for inspiration, the rest of us just get up and go to work.
+ - Books are the perfect entertainment: no commercials, no batteries, hours of enjoyment for each dollar spent. What I wonder is why everybody doesn’t carry a book around for those inevitable dead spots in life.
+ - Fear can hold you prisoner. Hope can set you free.
+ - There's no harm in hoping for the best as long as you're prepared for the worst.
+ - If you don’t have time to read, you don’t have the time (or the tools) to write. Simple as that.
+ - A little talent is a good thing to have if you want to be a writer. But the only real requirement is the ability to remember every scar.
+ - Go then, there are other worlds than these.
+ - Above all else, be consistent.
+ - Talent is a wonderful thing, but it won't carry a quitter. 
+ - You want to remember that while you're judging the book, the book is also judging you.
+ - Kill your darlings, kill your darlings, even when it breaks your egocentric little scribbler’s heart, kill your darlings.
+ - Reading a good long novel is in many ways like having a long and satisfying affair.
+ - I have to remind myself that some birds aren’t meant to be caged. Their feathers are just too bright.
+ - Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win.
+ - Let me tell you something my friend. Hope is a dangerous thing. Hope can drive a man insane.
+ - The trust of the innocent is the liar’s most useful tool.
+ - The road to hell is paved with adverbs.
+ - To write is human, to edit is divine.
+ - When the time is gone, you can never get it back.
+ - The most important things are the hardest to say.
+ - Time heals all wounds.
+ - Once I fell in love with books, I fell in love completely.
+ - The brain is a muscle that can move the world.
+ - Writing is seduction. Good talk is part of seduction. If not so, why do so many couples who start the evening at dinner wind up in bed?
+ - When you write you tell yourself a story. When you rewrite you take out everything that is NOT the story.
+ - If God gives you something you can do, why in God’s name wouldn’t you do it?
+ - Be true, be brave, stand All the rest is darkness.
+ - Your hair is winter fire January embers My heart burns there, too.
+ - It’s a little place on the Pacific Ocean. You know what the Mexicans say about the Pacific? They say it has no memory. That’s where I want to live the rest of my life. A warm place with no memory.
+ - When asked, ‘How do you write?’ I invariably answer, ‘one word at a time.’
+ - The place where you made your stand never mattered. Only that you were there... and still on your feet.
+ - I’m most afraid of losing my mind. You lose your identity, your sense of who you are, where you are.
+ - The man in black fled across the desert, and the gunslinger followed.
+ - You learn best by reading a lot and writing a lot, and the most valuable lessons of all are the ones you teach yourself.
+ - Go now. Our journey is done. And may we meet again, in the clearing, at the end of the path.
+ - The writer must have a good imagination to begin with, but the imagination has to be muscular, which means it must be exercised in a disciplined way, day in and day out, by writing, failing, succeeding and revising.
+ - Writing is not life, but I think that sometimes it can be a way back to life.
+ - Write with the door closed, rewrite with the door open.
+ - Sarcastic people tend to be marshmallows underneath the armor.
+ - Description begins in the writer’s imagination, but should finish in the reader’s.
+ - JK Rowling created seven Horcruxes. She put a part of her soul in every book and now her books will live forever.
+ - The most important things are the hardest to say. They are the things you get ashamed of, because words diminish them.
+ - No one can tell what goes on in between the person you were and the person you become. No one can chart that blue and lonely section of hell. There are no maps of the change. You just come out the other side. Or you don’t.
+ - Only enemies speak the truth; friends and lovers lie endlessly, caught in the web of duty.
+ - A change is as good as a rest.
+ - The monster nevers dies.
+ - Murder is like potato chips: you can’t stop with just one.
+ - The scholar’s greatest weakness: calling procrastination research.
+ - It starts with this: put your desk in the corner, and every time you sit down there to write, remind yourself why it isn’t in the middle of the room. Life isn’t a support system for art. It’s the other way around.
+ - We make up horrors to help us cope with the real ones.
+ - Writing is magic, as much the water of life as any other creative art. The water is free. So drink. Drink and be filled up.
+ - Writing fiction, especially a long work of fiction, can be a difficult, lonely job; it’s like crossing the Atlantic Ocean in a bathtub. There’s plenty of opportunity for self-doubt.
+ - Friends don’t spy; true friendship is about privacy, too.
+ - Writers are often the worst judges of what they have written.
+ - I am the literary equivalent of a Big Mac and fries.
+ - The turtle couldn’t help us.
+ - Only God gets things right the first time.
+ - When a good writer is having fun, the audience is almost always having fun too.
+ - I write to find out what I think.
+ - Writing is like sex. The more you think about it, the harder it is to do. It’s better not to think about it so much and just let it happen.
+ - A boy does not need a father unless he is a good father, but a good father is indispensable.
+ - When all else fails, give up and go to the library.
+ - Only library books speak with such wordless eloquence of the power good stories hold over us.
+ - I work until beer o’clock.
+ - Time takes it all, whether you want it to or not.
+ - A man without a sense of purpose, even one whose bank accounts are stuffed with money, is always a small man.
+ - Long days and pleasant nights.
+ - A short story is like a kiss in the dark.
+ - Madness is a kind of mental suicide.
+ - It’s a long way back to Eden, Sweetheart, so don’t sweat the small stuff.
+ - I think that we’re all mentally ill. Those of us outside the asylums only hide it a little better – and maybe not all that much better after all.
+ - Alone. Yes, that’s the key word, the most awful word in the English tongue. Murder doesn’t hold a candle to it and hell is only a poor synonym.
+ - Talent is never static. It’s always growing or dying.
+ - The battle between good and evil is endlessly fascinating because we are participants every day.
+ - He thrusts his fists against the posts and still insists he sees the ghosts.
+ - I believe most people are essentially good. I know that I am. It’s you I’m not entirely sure of.
+ - Reading in bed can be heaven, assuming you can get just the right amount of light on the page and aren’t prone to spilling your coffee or cognac on the sheets.
+ - If you don’t control your temper, your temper will control you.
+ - The thought process can never be complete without articulation.
+ - People think that I must be a very strange person. This is not correct. I have the heart of a small boy. It is in a glass jar on my desk.
+ - I was in enough to get along with people. I was never socially inarticulate. Not a loner. And that saved my life, saved my sanity. That and the writing. But to this day I distrust anybody who thought school was a good time. Anybody.
+ - In polite society, we call our obsessions hobbies.
+ - As a species we’re fundamentally insane. Put more than two of us in a room, we pick sides and start dreaming up reasons to kill one another. Why do you think we invented politics and religion?
+ - Time and tide wait for no man.
+ - You should never trust a person who prays in public.
+ - First comes smiles, then lies. Last is gunfire.-Roland Deschain, of Gilead.
+ - The past is obdurate.
+ - A short story is a different thing all together – a short story is like a kiss in the dark from a stranger.
+ - You cannot condemn a man for what may only be a figment of your own imagination.
+ - There may be fairies, there may be elves, but God helps those who help themselves.
+ - Terrible thing to live in fear. Brooks Hatlen knew it. Knew it all too well. All I want is to be back where things make sense. Where I won’t have to be afraid all the time.
+ - Don’t ask me silly questions I won’t play silly games I’m just a simple choo choo train And I’ll always be the same. I only want to race along Beneath the bright blue sky And be a happy choo choo train Until the day I die.
+ - Kids, fiction is the truth inside the lie, and the truth of this fiction is simple enough: the magic exists.
+ - People who try hard to do the right thing always seem mad.
+ - Death, but not for you, gunslinger. Never for you. You darkle. You tinct. May I be brutally frank? You go on.
+ - What is writing? Writing is telepathy.
+ - Don’t let the sun go down without saying thank you to someone, and without admitting to yourself that absolutely no one gets this far alone.
+ - There are a great many ways to commit suicide you know.
+ - We lie best when we lie to ourselves.
+ - The unconscious mind writes poetry if it’s left alone.
+ - If you want to play, you gotta pay.
+ - I do not kill with my gun; He who kills with his gun has forgotten the face of his father. I kill with my heart.
+ - Drive away and try to keep smiling. Get a little rock and roll on the radio and go toward life with all the courage you can find and all the belief you can muster. Be true, be brave, stand.
+ - By the time I was fourteen the nail in my wall would no longer support the weight of the rejection slips impaled upon it. I replaced the nail with a spike and went on writing.
+ - I have two amazing things in my life: I’m pain-free and I’m debt-free.
+ - A product is something made in a factory; a brand is something that is bought by the customer. A product can be copied by a competitor; a brand is unique. A product can be quickly outdated; a successful brand is timeless.
+ - We have once again succeeded in destroying what we could not create.
+ - We’re all going to die; I’m just trying to make it a little more interesting.
+ - The good thing about being old, is you don’t have to worry about dying young.
+ - A coward judges all he sees by what he is.
+ - But I believe in love, you know; love is a uniquely portable magic. I don’t think it’s in the stars, but I do believe that blood calls to blood and mind calls to mind and heart to heart.
+ - We all float down here!
+ - If you wrote something for which someone sent you a check, if you cashed the check and it didn’t bounce, and if you then paid the light bill with the money, I consider you talented.
+ - And will I tell you that these three lived happily ever after? I will not, for no one ever does. But there was happiness. And they did live.
+ - Did-a-chick? Dum-a-chum? Dad-a-cham? Ded-a-chek?
+ - I am your number one fan.
+ - We each owe a death, there are no exceptions, I know that, but sometimes, oh God, the Green Mile is so long.
+ - Writing good dialogue is art as well as craft.
+ - The Lord is my shepherd. I shall not want for nothing. He makes me lie down in the green pastures. He greases up my head with oil. He gives me kung-fu in the face of my enemies. Amen.
+ - Some things were better lost than found.
+ - A library is a place where you can live a thousand lives. So why are you waiting when you could be living? Visit your library today.
+ - Books and movies are like apples and oranges. They both are fruit, but taste completely different.
+ - It’s alright to feel fear, but sometimes a very bad idea to show it.
+ - I’d like to learn French well enough to write in that language.
+ - Sometimes human places, create inhuman monsters.
+ - I’m convinced that FEAR is at the root, of all bad writing.
+ - A cowardly leader is the most dangerous of men.
+ - Talent is a dull knife that will cut nothing unless it is wielded with great force.
+ - Fear is the emotion that makes us blind.
+ - The mind can calculate, but the spirit yearns, and the heart knows what the heart knows.
+ - Home is watching the moon rise over the open, sleeping land and having someone you can call to the window, so you can look together. Home is where you dance with others, and dancing is life.
+ - You can’t polish a turd.
+ - True sorrow is as rare as true love.
+ - Optimism is a perfectly legitimate response to failure.
+ - A product can be quickly outdated, but a successful brand is timeless.
+ - Memory is the basis of every journey.
+ - If it’s ka it’ll come like a wind, and your plans will stand before it no more than a barn before a cyclone.
+ - Life isn’t a support system for art. It’s the other way around.
+ - The world had teeth and it could bite you with them anytime it wanted.
+ - Man has come to dominate the planet thanks to two essential traits. One is intelligence. The other has been the absolute willingness to kill anyone and anything that gets in his way.
+ - There will be water if God wills it.
+ - Friends come in and out of our lives, like busboys in a restaurant.
+ - If you don’t have the time to do something right, where are you going to find the time to fix it?
+ - Perfect paranoia is perfect awareness.
+ - Life turns on a dime.
+ - You can’t deny laughter; when it comes, it plops down in your favorite chair and stays as long as it wants.
+ - We never know which lives we influence, or when, or why.
+ - Humor is almost always anger with its make-up on.
+ - The devil’s voice is sweet to hear.
+ - It was the possibility of darkness that made the day seem so bright.
+ - I try to create sympathy for my characters, then turn the monsters loose.
+ - It’s best to be ruthless with the past.
+ - I never had any friends later on like the ones I had when I was 12 – Jesus, did you?
+ - People don’t get better, they just get smarter. When you get smarter you don’t stop pulling the wings off flies, you just think of better reasons for doing it.
+ - Ka was a wheel; it was also a net from which none ever escaped.
+ - The soil of a man’s heart is stonier; a man grows what he can and tends it.
+ - French is the language that turns dirt into romance.
+ - And the most terrifying question of all may be just how much horror the human mind can stand and still maintain a wakeful, staring, unrelenting sanity.
+ - Definition Of A Wanderer: A guy who’s always looking beyond.
+ - You are the grim, goal-oriented ones who will not believe that the joy is in the journey rather than the destination no matter how many times it has been proven to you.
+ - I love crime, I love mysteries, and I love ghosts.
+ - I dreamed of you. I dreamed you were wandering in the dark, and so was I. We found each other. We found each other in the dark.
+ - It’s a hard life if you don’t weaken.
+ - Pride, that invisible bone that keeps the neck stiff.
+ - When your story is ready for rewrite, cut it to the bone. Get rid of every ounce of excess fat. This is going to hurt; revising a story down to the bare essentials is always a little like murdering children, but it must be done.
+ - Sometimes dead is better.
+ - It’s a cash and carry world. Sometimes you pay a little. Mostly it’s a lot. Sometimes, it’s everything you have.
+ - Good luck is just bad luck with its hair combed.
+ - The last good time always comes, and when you see the darkness creeping toward you, you hold on to what was bright and good. You hold on for dear life.
+ - Lovecraft opened the way for me, as he had done for others before me.
+ - Our memories have voices, too. Often sad ones that clamor like raised arms in the dark.
+ - Pray for rain all you like, but dig a well as you do it.
+ - It’s “Merry Christmas” at our house. Whatever it is at yours, have a happy one. And be good to somebody.
+ - Discipline and constant work are the whetstones upon which the dull knife of talent is honed until it becomes sharp enough, hopefully, to cut through even the toughest meat and gristle.
+ - Not every book has to be loaded with symbolism, irony, or musical language, but it seems to me that every book-at least every one worth reading-is about something.
+ - Love isn’t soft, like the poets say. Love has teeth which bite and the wounds never close.
+ - But there’s one thing I’m sure about. An opening line should invite the reader to begin the story. It should say: Listen. Come in here. You want to know about this.
+ - The stories we hear in our childhood are the ones we remember all our lives.
+ - You have to stay faithful to what you’re working on.
+ - Wendy? Darling? Light, of my life. I’m not gonna hurt ya. I’m just going to bash your brains in.
+ - Every book you pick up has its own lesson or lessons, and quite often the bad books have more to teach than the good ones.
+ - It’s hard to let go. Even when what you’re holding onto is full of thorns, it’s hard to let go. Maybe especially then.
+ - There’s a saying – “Write what you know.” It’s bad advice if you take it as an unbreakable rule, but good advice if you use it as a foundation.
+ - Time’s the thief of memory.
+ - A person’s never too old for stories. Man and boy, girl and woman, we live for them. – Roland Deschain.
+ - The truth is in the details.
+ - Sometimes stories cry out to be told in such loud voices that you write them just to shut them up.
+ - I think we rarely recognize the fifth business in our lives at the time those people are changing us.
+ - God wiped snot out of his nose and that was you.
+ - City life is no life for a country man; for such a man that life is a kind of damnation in itself.
+ - Sometimes there is absolutely no difference at all between salvation and damnation.
+ - But now the joy is gone and the sadness is back, the sadness feels like something deserved, the price of some not-quite-forgotten betrayal.
+ - When love leaves the world, all hearts are still. Tell them of my love and tell them of my pain and tell them of my hope, which still lives. For this is all I have and all I am and all I ask.
+ - The simple truth of things is that bad dreams are far better than bad wakings.
+ - I can’t understand why people use religion to hurt each other when there’s already so much pain in the world.
+ - Read a lot, write a lot is the great commandment.
+ - Her body was wrapped in shadows like moth wings, like rose-petals.
+ - Good writing is often about letting go of fear and affectation. Affectation itself, beginning with the need to define some sorts of writing as ‘good’ and other sorts as ‘bad’ is fearful behavior.
+ - No good friends, no bad friends; only people you want, need to be with. People who build their houses in your heart.
+ - That wasn’t any act of God. That was an act of pure human fuckery.
+ - It is the tale, not he who tells it.
+ - Outside, daylight was bleeding slowly toward dusk.
+ - Fault always lies in the same place: with him weak enough to lay blame.
+ - Nobody likes to see a stupid guy wise up.
+ - Time takes it all, whether you want it to or not. Time takes it all, time bears it away, and in the end there is only darkness. Sometimes we find others in that darkness, and sometimes we lose them there again.
+ - I think that friendship always makes us feel such sweet gratitude, because the world almost always seems like a very hard desert, and the flowers that grow there seem to grow against such high odds.
+ - Teaching school is like having jumper cables hooked to your brain, draining all the juice out of you.
+ - If God rewards us on earth for good deeds – the Old Testament suggests it’s so, and the Puritans certainly believed it – then maybe Satan rewards us for evil ones.
+ - We are going to fight. We are going to be hurt. And in the end, we will stand.
+ - Battles that last five minutes spawn legends that live a thousand years.
+ - Everyone needs a hobby, he said. And everyone needs a miracle or two, just to prove life is more than just one long trudge from the cradle to the grave.
+ - Once again there was the desert, and that only.
+ - Hearts are tough, Most times they don’t break. Most times they are only bend.
+ - Just remember that Dumbo didn’t need the feather; the magic was in him.
+ - Pain is the biggest power of love.
+ - The world was the Overlook Hotel, where the party never ended. Where the dead were alive forever.
+ - Harry Potter is about confronting fears, finding inner strength and doing what is right in the face of adversity. Twilight is about how important it is to have a boyfriend.
+ - How many have to die before we will give up these dangerous toys?
+ - To the devil with false modesty.
+ - True love always happens in a flash.
+ - A person’s memory is everything, really. Memory is identity. It’s you.
+ - He who speaks without an attentive ear is mute.
+ - The world had moved on and all that was over, done before fairly begun.
+ - But it’s writing, damn it, not washing the car or putting on eyeliner. If you can take it seriously, we can do business. If you can’t or won’t, it’s time for you to close the book and do something else. Wash the car, maybe.
+ - A man who lies about beer makes enemies.
+ - When you write, you want to get rid of the world, don’t you? Of course you do. When you’re writing, you’re creating your own worlds.
+ - God is cruel. Sometimes he makes you live.
+ - It is, after all, the dab of grit that seeps into an oyster’s shell that makes the pearl, not pearl-making seminars with other oysters.
+ - I hated school. I don’t trust anybody who looks back on the years from 14 to 18 with any enjoyment. If you liked being a teenager, there’s something really wrong with you.
+ - In many cases when a reader puts a story aside because it ‘got boring,’ the boredom arose because the writer grew enchanted with his powers of description and lost sight of his priority, which is to keep the ball rolling.
+ - If you intend to write as truthfully as you can, your days as a member of polite society are numbered.
+ - I like to get ten pages a day, which amounts to 2,000 words. That’s 180,000 words over a three-month span, a goodish length for a book – something in which the reader can get happily lost, if the tale is done well and stays fresh.
+ - My mother was a reader, and she read to us. She read us Dr. Jekyll and Mr. Hyde when I was six and my brother was eight; I never forgot it.
+ - The past is obdurate. It doesn’t want to change.
+ - All is forgotten in the stone halls of the dead. These are the rooms of ruin where the spiders spin and the great circuits fall quiet, one by one...
+ - Just go on dancing with me like this forever and I’ll never tire. We’ll scrape our shoe on the stars and hang upside down from the moon.
+ - Gordie: Do you think I’m weird? Chris: Definitely. Gordie: No man, seriously. Am I weird? Chris: Yeah, but so what? Everybody’s weird.
+ - Busy as a one legged man in an ass kicking contest.
+ - I believe that the combination of pencil and memory creates a kind of practical magic, and magic is dangerous.
+ - As with all other aspects of fiction, the key to writing good dialogue is honesty.
+ - Home is where you dance with others, and dancing is life.
+ - I have no opinion. No, none at all. Opinion is politics, and politics is an evil which has caused many a fellow to be hung while he’s still young and pretty.
+ - A writer’s notebook is the best way in the world to immortalize bad ideas. My idea about a good idea is one that sticks around and sticks around and sticks around.
+ - When the dawn was still long hours away, bad thoughts took on flesh and began to walk. In the middle of the night thoughts became zombies.
+ - No matter how many times you shake it the last drop always ends up in your pants.
+ - Any word you have to hunt for in a thesaurus is the wrong word. There are no exceptions to this rule.
+ - Human Nature Baby, grab it and growl.
+ - Speaking personally, you can have my gun, but you’ll take my book when you pry my cold, dead fingers off of the binding.
+ - When it came to the dark fuckery of the human heart, there seemed to be no limit.
+ - If a fear cannot be articulated, it can’t be conquered.
+ - Dolls with no little girls around to mind them were sort of creepy under any conditions.
+ - Life was such a wheel that no man could stand upon it for long. And it always, at the end, came round to the same place again.
+ - Death was no less a miracle than birth.
+ - I felt lonely and content at the same time. I believe that is a rare kind of happiness.
+ - A man with a good wife is the luckiest of God’s creatures...
+ - On the subject of love at first sight, I’m with the Beatles: I believe that it happens all the time.
+ - He found himself still with too many questions and not enough answers.
+ - Any thoughts of guilt, any feelings of regret, had faded. The desert had baked them out.
+ - Trust, a sense of humor, and don’t let the sun go down on an argument without trying to make it up. That’s all I know about good marriage. I’ve been married a long time – it seems to be working.
+ - Adults are the real monsters.
+ - Writing is a lonely job. Having someone who believes in you makes a lot if difference. They don’t have to makes speeches. Just believing is usually enough.
+ - Don’t go beyond, no matter how much you feel you need to, Doctor. The barrier was not made to be broken. Remember this: there is more power here than you know. It is old and always restless. Remember.
+ - A hurt body and mind aren’t just like a dictatorship; they are a dictatorship. There is no tyrant as merciless as pain, no despot so cruel as confusion.
+ - Let the word and the legend go before you. Let the world go before you. Let your shadow grow. Let it grow hair on its face. Let it become dark. Given time, words may even enchant an enchanter.
+ - Without story books is like a person with no soul.
+ - Fantasy has a better chance of lasting than a lot of other things. The Hobbit and the Narnia books, they seem to get handed down father to son, mother to daughter. Because they’re set in a fantasy world, they can remain relevant.
+ - Acknowledge your good fortune by sharing it.
+ - Reading takes time, and the glass teat takes too much of it.
+ - Nobody lives forever, but we all shine on.
+ - Pride was the belt you used to hold your pants up when you had no pants.
+ - I’m a salami writer. I try to write good salami, but salami is salami.
+ - God turned out to be a bunch of bad little kids playing interstellar Xbox. Isn’t that funny?
+ - May be she’ll learn something about what death really is, which is where the pain stops and the good memories begin. Not the end of life but the end of pain.
+ - When facts speak, the wise man listens.
+ - If I kept saying it; if I kept reaching out. My accident really taught me just one thing: the only way to go on is to go on. To say ‘I can do this’ even when you know you can’t.
+ - Doubters will doubt to the end.
+ - Let me say it again: You must not come lightly to the blank page.
+ - I thought it was great fun to scare people. I also knew it was socially acceptable because there were a lot of horror movies out there.
+ - It’s a mystery. That’s the first thing that interests me about the idea of God. If there is one, it’s mysterious and powerful and awesome to even consider the concept, and you have to take it seriously.
+ - And you may make revelations that cost you dearly only to have people look at you in a funny way, not understanding what you’ve said at all, or why you thought it was so important that you almost cried while you were saying it.
+ - As always at these times when he felt really in need of God the front of his mind was serene, but the deeper part, where faith did constant battle with doubt, was terrified that there would be no answer.
+ - I’m a slow reader, but I usually get through seventy or eighty books a year, most fiction. I don’t read in order to study the craft; I read because I like to read.
+ - A lot of fairy tales are thinly disguised hostility raps against parents. Kids know that they can’t make it on their own, that if they were left alone, they would die.
+ - But see that you get on. That’s your job in this hard world, to keep your love alive and see that you get on, no matter what. Pull your act together and just go on.
+ - Things come in three major degrees in the human experience, I think. There’s good, bad, and terrible. And as you go down into progressive darkness towards terrible, it gets harder and harder to make subdivisions.
+ - Well, I’m like a drug addict, I’m always saying I’m going to stop, and then I don’t, what I’ve said consistently is that I hope I know when to stop: when it starts to get repetitive.
+ - I choose to believe in God because it makes things better.
+ - Clear communication between selves – the surface self and the deep self – is the enemy of self-doubt. It slays confusion.
+ - Jesus watches from the wall, But his face is cold as stone, And if he loves me As she tells me Why do I feel so all alone?
+ - Such an ego simply forbade certain lines of thought.
+ - Like the man said, a little hope never hurt anybody.
+ - A secret needs two faces to bounce between; a secret needs to see itself in another pair of eyes.
+ - Writing is like being in a dream state or under self-directed hypnosis. It induces a state of recall that – while not perfect – is pretty spooky.
+ - I think reality is thin, you know, thin as lake ice after a thaw, and we fill our lives with noise and light and motion to hide that thinness from ourselves.
+ - Everything’s a lot tougher when it’s for real. That’s when you choke. When it’s for real.
+ - Life turns on a dime. Sometimes towards us, but more often it spins away, flirting and flashing as it goes: so long, honey, it was good while it lasted, wasn’t it?
+ - Until we see each other again, keep your head together, read some good books, be useful, be happy.
+ - Politics always change. Stories never do.
+ - Horror movies often work better when we have a stake in the game. The more we care about the characters, the more human they are to us, the more appealing they are to us and the more effective the horror tends to be.
+ - The first movie I ever saw was a horror movie. It was Bambi. When that little deer gets caught in a forest fire, I was terrified, but I was also exhilarated.
+ - No one ever does live happily ever after, but we leave the children to find that out for themselves.
+ - FEAR stands for face everything and recover – Old AA saying.
+ - A person can’t change all at once.
+ - When you sit down to write, write. Don’t do anything else except go to the bathroom, and only do that if it absolutely cannot be put off.
+ - When you write a book, you spend day after day scanning and identifying the trees. When you’re done, you have to step back and look at the forest.
+ - Fantasy fiction is essentially about the concept of power; great fantasy fiction is about people who find it at great cost or lose it tragically; mediocre fantasy fiction is about people who have it and never lose it but simply wield it.
+ - God doesn’t bribe, child. He just makes a sign and lets people take it as they will.
+ - A person who doesn’t learn from the past is an idiot, in my estimation.
+ - This is how a man looks when he’s deciding that the risk of death is better than the risk of change.
+ - And didn’t they say that, although curiosity killed the cat, satisfaction brought the beast back?
+ - The first draft of a book – even a long one – should take no more than three months, the length of a season.
+ - Superhero movies and comic books teach a lesson that runs directly counter to the culture-of-violence idea: guns are for bad guys too cowardly to fight like men.
+ - Nightmares exist outside of logic, and there’s little fun to be had in explanations; they’re antithetical to the poetry of fear.
+ - I wouldn’t have missed a single minute of it, Not for the whole world.
+ - When you ask me what I’m afraid of, I’d say I still go to see ghost movies when I get a chance or some sort of supernatural being, but it doesn’t scare me as it scared me when I was a child.
+ - I think it is beyond doubt that H. P. Lovecraft has yet to be surpassed as the twentieth century’s greatest practitioner of the classic horror tale.
+ - Weird love’s better than no love at all.
+ - In bowling and in life, if a person made the spares, the strikes would take care of themselves.
+ - Was there ever a trap to match the trap of love?
+ - Only children tell the whole truth, you know. That’s what makes them children.
+ - The tears that heal are also the tears that scald and scourge.
+ - There’s a Mr. Hyde for every happy Jekyll face, a dark face on the other side of the mirror.
+ - If there is love, smallpox scars are as pretty as dimples. – Japanese Proverb.
+ - She did not know if her gift came from the lord of light or of darkness, and now, finally finding that she didn’t care which, she wad overcome with almost indescribable relief, as if a huge weight, long carried, had slipped from her shoulders.
+ - It’s not the pain I’m afraid of; I know about the pain. What I’m afraid of is the end of this small, sweet dream.
+ - Death is a mystery, and burial is a secret.
+ - The redness was going out of the light now, the remains of the day were a fading pink, the color of wild roses.
+ - It was like drowning, only from the inside out.
+ - He smiles a lot. But I think there might be worms inside him making him smile.
+ - Bird and bear and hare and fish, give my love her fondest wish.
+ - Sooner or later even the fastest runners have to stand and fight.
+ - Time was a face on the water, and like the great river before them, it did nothing but flow.
+ - And in real life endings aren’t always neat, whether they’re happy endings, or whether they’re sad endings.
+ - Time is a face on the water.
+ - The mystery of the universe is not time but size.
+ - If you can’t laugh when things go bad – laugh and put on a little carnival – then you’re either dead or wishing you were.
+ - When you’re six, most of your Bingo balls are still floating around in the draw-tank.
+ - Money means I can support my family and still do what I love. Not very many people can say that in this world, and not many writers can say that.
+ - The thing under my bed waiting to grab my ankle isn’t real. I know that, and I also know that if I’m careful to keep my foot under the covers, it will never be able to grab my ankle.
+ - There’s nothing like stories on a windy night when folks have found a warm place in a cold world.
+ - You could not turn off love- even the rather absent, sometimes taken for granted love- the way you’d turn off a faucet. Love ran from the heart and the heart had it’s own imperatives.
+ - Symbolism exists to adorn and enrich, not to create an artificial sense of profundity.
+ - I worry about you Bev. I worry a lot.
+ - In both writing and sleeping, we learn to be physically still at the same time we are encouraging our minds to unlock from the humdrum rational thinking of our daytime lives.
+ - The quickest way to learn about a new place is to know what it dreams of.
+ - God pisses down the back of your neck every day but only drowns you once.
+ - The King is in his Tower, eating bread and honey. The Breakers in the basement, making all the money.
+ - I’m having a magenta day. Not just red, but magenta!
+ - And when there are enough outsiders together in one place, a mystic osmosis takes place and you’re inside.
+ - Silent white light filled the world. And the righteous and unrighteous alike were consumed in that holy fire.
+ - Wherever you write is supposed to be a little bit of a refuge, a place where you can get away from the world. The more closed in you are, the more you’re forced back on your own imagination.
+ - But this wealth of information produced little or no insight.
+ - There’s one novel, Cujo, that I barely remember writing at all.
+ - I looked at the ceiling and wished this life was over. This unhappy life that had started out so confidently. I thought I would sleep no more that night but eventually I did. In the end we always wear out our worries. That’s what Wire man says.
+ - Every marriage has two hearts, one light and one dark.
+ - Passing time adds false memories and modifies real ones.
+ - I believe the road to hell is paved with adverbs, and I will shout it from the rooftops.
+ - Like some dogs: kick them once and they never trust you again, no matter how nice you are to them.
+ - Constant reading will pull you into a place – a mind-set, if you like the phrase – where you can write eagerly and without self-consciousness.
+ - Death is when the monsters get you.
+ - Like all sweet dreams, it will be brief, but brevity makes sweetness, doesn’t it?
+ - Black as night and as beautiful as forever.
+ - If you’ve ever been homesick, or felt exiled from all the things and people that once defined you, you’ll know how important welcoming words and friendly smiles can be.
+ - There is the Watchmaker Theory that God wound up the universe and let it tick. That may be. or it may be that he takes a hand in things from time to time. But whatever it is, I am sure that there is something out there.
+ - The muses are ghosts, and sometimes they come uninvited.
+ - That was what I wanted, but I don’t need it to be gone. I can love you and I can love life and bear the pain all at the same time. I think the pain might even make the rest better, the way a good setting can make a diamond look better.
+ - People can be stunningly unobservant.
+ - A man who can’t bear to share his habits is a man who needs to quit them.
+ - I don’t take notes; I don’t outline, I don’t do anything like that. I just flail away at the goddamn thing. I’m a salami writer. I try to write good salami, but salami is salami. You can’t sell it as caviar.
+ - Anything with the power to make you laugh over thirty years later isn’t a waste of time. I think something like that is very close to immortality.
+ - So what, ghosts can’t hurt you. That’s what I thought then.
+ - Write what you like, then imbue it with life and make it unique by blending in your own personal knowledge of life, friendship, relationships, sex, and work. Especially work. People love to read about work. God knows why, but they do.
+ - They say that loving eyes can never see, but that’s a fool’s axiom. Sometimes, they see too much.
+ - He lay back, put his arm over his eyes, and tried to hold onto the anger, because the anger made him feel brave. A brave man could think. A coward couldn’t.
+ - Roland had taught him that self-deception was nothing but pride in disguise, an indulgence to be denied.
+ - Writing is like a little hole in reality that you can go through and you can get out and you can be someplace else for a while.
+ - The worst advice? ‘Don’t listen to the critics.’ I think that you really ought to listen to the critics, because sometimes they’re telling you something is broken that you can fix.
+ - Time slowed and reality bent; on and on the eggman went.
+ - For a woman a man will do many things that he’d turn his back on in an instant when alone; things he’d back away from, nine times out of ten, even when drunk adn with a bunch of his friends egging him on.
+ - When it comes to the past, everyone writes fiction.
+ - I can’t see the future, but it’s grim. The depletion of resources – we’re living in this dine-and-dash economy.
+ - I have the world’s best job. I get paid to hang out in my imagination all day.
+ - I was built with a love of the night and the unquiet coffin.
+ - The old sleep poorly. Perhaps they stand watch.
+ - He remembered waking up once, listening to the wind, thinking of all the dark and rushing cold outside and all the warmth of this bed, filled with their peaceful heat under two quilts, and wishing it could be like this forever.
+ - It was not fair, it was not fair, it was not fair. So cried his child’s heart, and then his child’s heart died a little. For that is also the way of the world.
+ - Here I am, ninety years old and ready for the cooling board, using a brand new Macintosh computer, and there you sit, twenty-two and gorgeous, fresh as a new peach, yet scrawling on a yellow legal pad like an old maid in a Victorian romance.
+ - In small towns people scent the wind with noses of uncommon keenness.
+ - Ka works and the world moves on.
+ - A boy who once wiped his ass with poison ivy probably doesn’t belong in a smart people’s club.
+ - It’s hard enough for a person to keep their own socks pulled up, let alone someone else’s.
+ - There should be no telephone in your writing room, certainly no TV or videogames for you to fool around with. If there’s a window, draw the curtains or pull down the shades unless it looks out at a blank wall.
+ - The quiet, singing voice of the rose. The song that promised all might be well, all might be well, that all manner of things might be well.
+ - The concept of dreaming is known to the waking mind but to the dreamer there is no waking, no real world, no sanity; there is only the screaming bedlam of sleep.
+ - You say true, I say thankya.
+ - What I’m saying is that I’m trying to find rational reasons to explain irrational feelings, and that’s neveer a good sign.
+ - All Thing Serve the Beam.
+ - And then the world exploded.
+ - And suddenly it didn’t seem to matter any more, nothing would matter if she could turn over, turn over and see the stars, turn over and look once and die.
+ - Kill if you will, but command me nothing!
+ - There’s a lot of things people think they can’t do and then discover they can when they find themselves tight-wired.
+ - The world, although well-lighted with fluorescents and incandescent bulbs and neon, is still full of odd dark corners and unsettling nooks and crannies.
+ - I don’t want to go to the heaven that I learned about when I was a kid. To me, it seems boring.
+ - The shining. It was a good name, a comforting name, because she had always thought of it as a dark thing.
+ - Words create sentences; sentences create paragraphs; sometimes paragraphs quicken and begin to breathe.
+ - No one can be as intellectually slothful as a really smart person.
+ - The sun was a molten coin burning a circle in the low-hanging overcast, surrounded by a fairy-ring of moisture.
+ - We all have a tendency to want order in our lives. But order presupposes authority, and authority presupposes, sooner or later, that we’ll all need hooves. It’s going to happen sooner or later, isn’t it? You know it is.
+ - Remember in elementary school you were told that in case of fire you have to line up quietly in a single file from smallest to tallest? What is the logic in that? What, do tall people burn slower?
+ - If being a kid is about learning how to live, then being a grown-up is about learning how to die.
+ - There is no tyrant as merciless as pain.
+ - For me, good description usually consists of a few well-chosen details that will stand for everything else.
+ - I love music, and I can play a little. But anyone can see the difference between someone who’s talented and someone that’s not.
+ - She ran out of her marriage the way a woman can run out of a pair of sandals when she decides to let go and really dash.
+ - Showrunning is a thing where you have to work with tons of different people. You have to schmooze people, you have to talk to network people. I don’t want to do any of that.
+ - Writing’s about getting up, getting well, and getting over. Getting happy, okay? Getting happy.
+ - Successful rebellions always begin in secret.
+ - Panic is highly contagious, especially in situations when nothing is known and everything is in flux.
+ - Let evil wait for the day on which it must fall.
+ - Sometimes a cigar is just a smoke and a story’s just a story.
+ - One of life’s great truths is this: when one is about to be struck by a speeding six-hundred pound Coke machine, one need worry about little else.
+ - He supposed that even in Hell, people got an occasional sip of water, if only so they could appreciate the full horror of unrequited thirst when it set in again.
+ - In spite of the problems he was having he was going on with his life. There are thousands who don’t or won’t or can’t and plenty of them aren’t in prison either.
+ - Marriage is referred to in the bible as “mystical union,” and it really is in the sense that two people who don’t know each other get together. I’m always interested in how much you find out about the other person and how much you don’t find out.
+ - When you put on a clown suit and a rubber nose, nobody has any idea what you look like inside.
+ - Flip-flop, hippety-hop, offa your rocker and over the top, life’s a fiction and the world’s a lie, so put on some Creedence and let’s get high.
+ - The town kept its secrets, and the Marsten House brooded over it like a ruined king.
+ - Beating heroin is child’s play compared to beating your childhood.
+ - We don’t know the days that will change our lives. Probably just as well.
+ - Want to know the best thing about teaching? Seeing that moment when a kid discovers his or her gift. There’s no feeling on earth like it.
+ - I’m still in love with what I do, with the idea of making things up, so hours when I write always feel like very blessed hours to me.
+ - If the stuff you’re writing is not for yourself, it won’t work.
+ - And poets, in my view, and I think the view of most people, do speak God’s language – it’s better, it’s finer, it’s language on a higher plane than ordinary people speak in their daily lives.
+ - There’s always someone who knows something.
+ - Americans are apocalyptic by nature. The reason why is that we’ve always had so much, so we live in deadly fear that people are going to take it away from us.
+ - Say what you mean. Say what you see. Make a photograph, if you can, for the reader.
+ - There are things of such darkness and horror – just, I suppose, as there are things of such great beauty – that they will not fit through the puny human doors of perception.
+ - And she sees that the moonlight is losing its orange glow. It has become buttery, and will soon turn to silver.
+ - People seem to think there’s a magic formula to writing, i just write 1 word at a time.
+ - Sometimes when you’re young, you have moments of such happiness, you think you’re living on someplace magical, like Atlantis must have been. Then we grow up and our hearts break into two.
+ - You cannot friend a hawk, they said, unless you are a hawk yourself, alone and only a sojourner in the land, without friends or the need of them.
+ - He would write it for the reason he felt that all great literature, fiction and nonfiction, was written: truth comes out, in the end it always comes out. He would write it because he felt he had to.
+ - The cumulative power of doing things the same way every day seems to be a way of saying to the mind: You’re going to be dreaming soon.
+ - I’ve been typed as a horror writer, and I’ve always said to people, “I don’t care what you call me as long as the checks don’t bounce and the family gets fed.”
+ - If I can get it down on paper without puking all over the word processor, then as far as I’m concerned, it’s fit to see the light of day.
+ - Few if any seemed to have grasped the Principle of Reality; new knowledge leads always to yet more awesome mysteries. Greater physiological knowledge of the brain makes the existence of the soul less possible yet more probable by the nature of the search.
+ - I identify with the characters very closely. At the same time that I’m outside, writing, I’m also inside, experiencing, and it can be very unsettling.
+ - When you’re five and you hurt, you make a big noise in the world. At ten you whimper. But by the time you make fifteen you begin to eat the poisoned apples that grow on your own inner tree of pain.
+ - I always drank, from when it was legal for me to drink. And there was never a time for me when the goal wasn’t to get as hammered as I could possibly afford to. I never understood social drinking, that’s always seemed to me like kissing your sister.
+ - That’s the curse of the reading class. We can be seduced by a good story even at the most inopportune moments.
+ - American grammar doesn’t have the sturdiness of British grammar, but it has its own scruffy charm.
+ - Tell him he’s wrong. Tell him that even if he’s right about waiting, he’s right for the wrong reasons, and that makes him all the way wrong.
+ - For most of us, I think it’s easier to admit doing wrong than being stupid.
+ - When it comes to rock music, I’m not much of a player, but I do have entry-level chops. I’m more knowledgeable as a listener, and Revival gave me a way to write about rock and roll without being preachy or boring.
+ - If you can read in the 21st century you own the world.
+ - Even at eleven, he had observed that things turned out right a ridiculous amount of the time.
+ - He was a clot looking for a place to happen, a splinter of bone hunting a soft organ to puncture, a lonely lunatic cell looking for a mate – they would set up housekeeping and raise themselves a cozy little malignant tumor.
+ - But in high school the business of irrevocable choices began. Doors slipped shut with a faint locking click that was only heared clearly in the dreams of later years.
+ - If you’re just starting out as a writer, you could do worse than strip your television’s electric plug-wire, wrap a spike around it, and then stick it back into the wall. See what blows, and how far. Just an idea.
+ - How life did imitate art sometimes. And the cruder the art, the closer the imitation.
+ - I’m one of those people who doesn’t really know what he thinks until he writes it down.
+ - I don’t spend the day writing. I’ll maybe write fresh copy for two hours, and then I’ll go back and revise some of it and print what I like and then turn it off.
+ - It wasn’t just love that held people together. There was secrets, and the price you paid to keep them.
+ - A good reputation is something that must be earned, yet can never be bought.
+ - I recognize terror as the finest emotion and so I will try to terrorize the reader. But if I find that I cannot terrify, I will try to horrify, and if I find that I cannot horrify, I’ll go for the gross-out. I’m not proud.
+ - If something is accessible to a lot of people, it’s got to be dumb because most people are dumb.
+ - Shall there be truth between us, as two men? Not as friends, but as enemies and equals?
+ - Sometimes the embers are better than the campfire.
+ - The water was glassy and calm, still candy-colored in the afterglow of sunset.
+ - The wife whose sweetly given reply in the face of any problem would be, “Whatever you think is best, dear.” Women, take note: a wife like that never needs to fear bubbling away the last of her life through a cut throat.
+ - Eddie discovered one of his childhood’s great truths. Grownups are the real monsters, he thought.
+ - I watched Titanic when I got back home from the hospital, and cried. I knew that my IQ had been damaged.
+ - What can be done when you’re eleven can often never be done again.
+ - Any game looks straight if everyone is being cheated at once.
+ - I just didn’t want her to get hurt. I thought she was going to be. But everyone gets their share, don’t they? Sure. Pow, in the nose. Pow, in the eye. Pow, below the belt, down you go, and the ref just went out for a hot dog.
+ - Hearts can break. Yes, hearts can break. Sometimes I think it would be better if we died when they did, but we don’t.
+ - A broken spoon may be a fork in disguise.
+ - Seven, Richie thought. That’s the magic number. There has to be seven of us. That’s the way it’s supposed to be.
+ - I am in trouble here. This woman is not right.
+ - Put an egg in your shoe and beat it, make like a tree and leave, imitate an amoeba and split.
+ - It was life, often unsatisfying, frequently cruel, usually boring, sometimes beautiful, once in a while exhilarating.
+ - Nobody likes a clown at midnight.
+ - I know life is hard, I think everyone knows that in their hearts, but why dos it have to be cruel, as well? Why does it have to bite?
+ - Language does not always have to wear a tie and lace-up shoes.
+ - Belief in the supernatural or belief in wild talents like precognition and telepathy and telekinesis and things like that, it seems to me that belief in those things is just very, very freeing.
+ - She had never dreamed there could be so much pain in a life when there was nothing physically wrong. She hurt all the time.
+ - Say your name over two hundred times and discover you are no one.
+ - Let’s face it. No kid in high school feels as though they fit in.
+ - It’s strange how pain marks our faces, and makes us look like family.
+ - In these silences something may rise.
+
+500 quotes

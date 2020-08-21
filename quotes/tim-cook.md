@@ -1,0 +1,108 @@
+ - You are more powerful than you think.
+ - Life is fragile. We’re not guaranteed a tomorrow so give it everything you’ve got.
+ - Let your joy be in your journey, not in some distant goal.
+ - The reality of today from a cyber security point of view – I think some of the top people predict that the next big war is fought on cyber security.
+ - I want to be the pebble in the pond that creates the ripple for change.
+ - In the world of cyber security, the last thing you want is to have a target painted on you.
+ - I just want to build great products.
+ - You can focus on things that are barriers or you can focus on scaling the wall or redefining the problem.
+ - For the most important decisions in your life, trust your intuition, and then work with everything you have, to prove it right.
+ - The sidelines are not where you want to live your life. The world needs you in the arena!
+ - We believe in saying no to thousands of projects so that we can really focus on the few that are truly important and meaningful to us.
+ - A few years ago, users of Internet services began to realize that when an online service is free, you’re not the customer. You’re the product.
+ - Those who try to achieve success without hard work ultimately deceive themselves-or worse-deceive others.
+ - We pave the sunlit path toward justice together, brick by brick. This is my brick.
+ - Creativity is people who care enough to keep thinking about something until they find the simplest way to do it.
+ - You can only do so many things great, and you should cast aside everything else.
+ - I am driven by great work and seeing people do incredible things and having a part in that.
+ - We do a lot of things for reasons besides profit motive. We want to leave the world better than we found it.
+ - Intuition is critical in virtually everything you do. But, without relentless preparation and execution, it is meaningless.
+ - Price is rarely the most important thing. A cheap product might sell some units. Somebody gets it home and they feel great when they pay the money, but then they get it home and use it and the joy is gone.
+ - The longer the meeting, the less is accomplished.
+ - I’d rather Apple cannibalize Apple than somebody else cannibalize Apple.
+ - In the long arc of time, you are only relevant if customers love you.
+ - I love museums. But I don’t want to live in one.
+ - The iPad is the clearest expression of our vision of the future of personal computing.
+ - Security isn’t just a feature, it’s a base, it’s a fundamental, right.
+ - I learned that focus is key. Not just in your running a company, but in your personal life as well.
+ - What makes Siri cool is she has a personality.
+ - Never try to fix other people. God does not need to do a bank shot off your lips.
+ - We’re very simple people at Apple. We focus on making the world’s best products and enriching people’s lives.
+ - Excellence has become a habit.
+ - Apple has lost a visionary and creative genius, and the world has lost an amazing human being.
+ - An acorn would never brag about giving shade.
+ - Certainly some things that are very good can sometimes be used in a bad way.
+ - There are times in all of our lives when a reliance on gut or intuition just seems more appropriate – when a particular course of action just feels right.
+ - I despise politics. There is no room for it in a company. My life is going to be way too short to deal with that.
+ - Most business models have focused on self interest instead of user experience. Those are the kinds of problems we solve to solve.
+ - Anything can change, because the smartphone revolution is still in the early stages.
+ - Graduates, your values matter. They are your north star. And work takes on new meaning when you feel you’re pointed in the right direction. Otherwise, it’s just a job. And life is too short for that.
+ - Right to privacy is really important. You pull that brick out and another and pretty soon the house falls.
+ - To whom much is given, much is expected. I do believe this. It’s embedded in me.
+ - Apple has a culture of excellence that is, I think, so unique and so special. I’m not going to witness or permit the change of it.
+ - My business is not reading your messages. I don’t have a business doing that. And it’s against my values to do that. I don’t want to read your private stuff.
+ - With hacking getting more and more sophisticated, the hacking community has gone from the hobbyist in the basement to huge sophisticated companies that are essentially doing this, or groups of people or foreign agents inside and outside the United States.
+ - Nobody wants to buy sour milk.
+ - The iPad remains Apple’s second bestselling product – all the more reason why the iPad Pro needs to be “big” in every sense of the word.
+ - Apple Watch is the most personal device we’ve ever created.
+ - Apple Stores Offer the Best Buying Experience and Customer Service On The Planet.
+ - People are running huge enterprises off of hacking and stealing data.
+ - We sold more iPads in the last quarter alone than any PC manufacturer sold in their entire line.
+ - If you want me to do things only for ROI reasons, you should get out of this stock.
+ - The reality is, is that we love competition, at Apple. We think it makes us all better. But we want people to invent their own stuff.
+ - Apple Pay is forever changing the way we pay for things.
+ - It is possible to be aware of God at all times.
+ - When I go into my living room and turn on the TV, I feel like I have gone backwards in time by 20 to 30 years. It’s an area of intense interest. I can’t say more than that.
+ - Our message, to people around the country and around the world, is this: Apple is open. Open to everyone, regardless of where they come from, what they look like, how they worship or who they love.
+ - I remember what it was like to grow up in the South in the 1960s and 1970s. Discrimination isn’t something that’s easy to oppose. It doesn’t always stare you in the face. It moves in the shadows. And sometimes it shrouds itself within the very laws meant to protect us.
+ - Televisions are devices with screens that things appear on.
+ - Companies that get confused, that think their goal is revenue or stock price or something. You have to focus on the things that lead to those.
+ - If I’m working with you for several months on things, if I have a relationship with you, and I decide one day I’m going to sue you, I’m a country boy at the end of the day. I’m going to pick up the phone and tell you I’m going to sue you.
+ - It’s the privilege of a lifetime for me to work with the most innovative people on Earth. Only Apple can deliver this kind of innovation in such a beautiful, integrated, and easy to use way. It’s what we love to do, it’s what we stand for.
+ - Discrimination, in all its forms, is bad for business.
+ - Eighty percent of our revenues are from products that didn’t exist 60 days ago. Is there any other company that would do that?
+ - Since these early days, I have seen and have experienced many types of discrimination and all of them were rooted in the fear of people that were different than the majority.
+ - I believe that if you took privacy and you said, I’m willing to give up all of my privacy to be secure. So you weighted it as a zero. My own view is that encryption is a much better, much better world. And I’m not the only person that thinks that.
+ - The government should always be the one defending civil liberties.
+ - That brings us to iPad. We think the iPad is the poster-child of the post-PC world.
+ - So I had to figure out for myself what was right and true. It was a search. It was a process. It drew on the moral sense that I’d learned from my parents, and in church, and in my own heart, and led me on my own journey of discovery.
+ - There’s something very dangerous happening in states across the country. A wave of legislation, introduced in more than two dozen states, would allow people to discriminate against their neighbors.
+ - I’m not targeting government. I’m not saying hey, I’m closing it because I don’t want to give you any data. I’m saying that to protect out customers, we have to encrypt. And a side affect of that is, I don’t have the data.
+ - I think two people with strong points of view can appreciate each other even more.
+ - You can’t have a back door that’s only for the good guys.
+ - We’re putting all of our energy into making it right. And we have already had several software updates. We’ve got a huge plan to make it even better. It will get better and better over time. We screwed up. That’s the fact.
+ - The future of television is what our competitors have been doing for years.
+ - There’s a mountain of information about us. I mean there’s so much. Anyway, I’m not an intelligence person. But I just look at it and it’s a mountain of data.
+ - I don’t think Apple has to own a content business.
+ - Our competition is different: They’re confused. They chased after netbooks. Now they’re trying to make PCs into tablets and tablets into PCs. Who knows what they’ll do next? I can’t answer that question, but I can tell you that we’re focused.
+ - Honestly, we’ll compete with everybody. I love competition. As long as people invent their own stuff, I love competition.
+ - I personally admire Steve Jobs not most for what he did, or what he said, but for what he stood for. The largest lesson I learned from Steve was that the joy in life is in the journey, and I saw him live this every day.
+ - While our team managed the manufacturing ramp better than ever before, we could have sold many more iPhones with greater supply and we are working hard to fill orders as quickly as possible.
+ - If I’m expected to keep your messages, and everybody else’s, then there should be a law that says, you need to keep all of these.
+ - America is always stronger when we do things together.
+ - Everybody doesn’t want to have to be a computer scientist to protect themselves. Most people have no desire to do that.
+ - We have three post-PC devices: the iPod, the iPhone, and the iPad, the revolutionary device that defined a whole new categoryit’s outstripping the wildest of predictions.
+ - I’ve always hated litigation, and I continue to hate it.
+ - I am who I am, and I’m focused on that, and being a great CEO of Apple.
+ - Apple is this great American company that could have only happened here.
+ - Maybe law enforcement would like the ability to turn on the camera on your Mac.
+ - We’re talking about a world where the PC is no longer the center, but just a devicewhere your new devices need to be more portable, more personal.
+ - Without encryption, you and I wouldn’t be able to do our banking online. We wouldn’t be able to buy things online, because your credit cards – they’ve probably been ripped off anyway, but they would be ripped off left and right every day if there wasn’t encryption.
+ - If I know what your messages are, if I can read those, I’ll probably be able to conclude where you’re going, who you’re with, the location the message was sent.
+ - I don’t own encryption, Apple doesn’t own encryption. Encryption, as you know, is everywhere. In fact some of encryption is funded by our government.
+ - Apple doesn’t do hobbies as a general rule.
+ - When I think of civil liberties I think of the founding principles of the country. The freedoms that are in the First Amendment. But also the fundamental right to privacy.
+ - And that’s what everyone at Apple is focused on – pushing forward and creating the future.
+ - Our new watches are made entirely of double super gold. They are just a piece of gold that you can wear to the left, right, or directly on top of the other gold you own.
+ - I don’t really think anything Microsoft does puts pressure on Apple.
+ - Siri has proven to us that people want to relate to the phone in a different way.
+ - No one should have a key that turns a billion locks. It shouldn’t exist.
+ - The worst thing in the world that can happen to you if you’re an engineer that has given his life to something is for someone to rip it off and put their name to it.
+ - Today, we are pleased to announce the biggest advancement in iPhone.
+ - We have to make sure, at Apple, that we stay true to focus, laser focus – we know we can only do great things a few times, only on a few products.
+ - In my view the tablet and the PC are different. You can do things with the tablet if you are not encumbered by the legacy of the PC.
+ - From an app point of view, if you looked at innovation on the PC, you’d be hard pressed to find companies innovating. The list is small.
+ - We make the best phone, we don’t make the most phones.
+ - A great product isn’t just a collection of features. It’s how it all works together.
+
+106 quotes

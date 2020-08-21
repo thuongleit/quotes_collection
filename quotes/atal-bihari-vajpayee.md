@@ -1,0 +1,22 @@
+ - Freedom is incomplete without social justice.
+ - You can change friends but not neighbours.
+ - If you do not like anything in a particular book, then sit and discuss it. Banning a book is not a solution. We have to tackle it ideologically.
+ - We hope the world will act in the spirit of enlightened self-interest.
+ - Let us together commence a journey of peace, harmony and progress in South Asia.
+ - Poverty is multidimensional. It extends beyond money incomes to education, health care, political participation and advancement of one’s own culture and social organisation.
+ - No state should be allowed to profess partnership with the global coalition against terror, while continuing to aid, abet and sponsor terrorism.
+ - In the euphoria after the Cold War, there was a misplaced notion that the UN could solve every problem anywhere.
+ - Our nuclear weapons are meant purely as a deterrent against nuclear adventure by an adversary.
+ - The reality is that international institutions like the UN can only be as effective as its members allow it to be.
+ - The overwhelming public sentiment in India was that no meaningful dialogue can be held with Pakistan until it abandons the use of terrorism as an instrument of its foreign policy.
+ - Global interdependence today means that economic disasters in developing countries could create a backlash on developed countries.
+ - Did Indira Gandhi ask for somebody’s permission to carry out the test in 1974?
+ - The Bio-diversity Convention has not yielded any tangible benefits to the world’s poor.
+ - The success of family welfare depends on giving women complete freedom with their lives. The need of the hour is that people should plan their families as per their convenience and get the bare minimum health facilities.
+ - We do not believe that a nuclear war should be fought and we do not believe that a nuclear war can be won.
+ - People who ask us when we will hold talks with Pakistan are perhaps not aware that over the last 55 years, every initiative for a dialogue with Pakistan has invariably come from India.
+ - We believe that the United States and the rest of the international community can play a useful role by exerting influence on Pakistan to put a permanent and visible end to cross-border terrorism against India.
+ - There was an implicit conviction that the UN would be stronger than the sum of its constituent member-states.
+ - The UN’s unique legitimacy flows from a universal perception that it pursues a larger purpose than the interests of one country or a small group of countries.
+
+20 quotes

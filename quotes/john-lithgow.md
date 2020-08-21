@@ -1,0 +1,53 @@
+ - Take care, be kind, be considerate of other people and other species, and be loving.
+ - Time sneaks up on you like a windshield on a bug.
+ - I was married very young. I lived a very middle class life. I was married at age 21, divorced at 31. I didn’t sleep on people’s couches.
+ - I keep looking for things I haven’t done yet.
+ - Academics tend to have wonderfully infantile senses of humor.
+ - My only regret is that we didn’t have more kids. I came from a family of four kids, but my wife and I just started too late.
+ - You have to overcome enormous self-consciousness, but nudity is about the strongest thing you can do in an acting performance. It’s the most unsettling or the most comic or the most sexual.
+ - I’m a con artist in that I’m an actor. I make people believe something is real when they know perfectly well it isn’t.
+ - I learned the most about myself, and you ask what I learned? Well, I learned my strengths and my weaknesses, and it’s far more important to learn about your weaknesses than your strengths.
+ - If my life was a play, age 35 was my intermission.
+ - I’m very concerned for the future of the earth and its amazing creatures. We’ve got to be careful and make sure we don’t foul our own nest.
+ - I’d sleep under a Vermeer.
+ - I can’t imagine doing an hour-long dramatic series because it’s so much work. A sitcom is a wonderful gig. You work from 10 to 4 every day, it’s fun, and you get to live at home.
+ - It’s my theory that if you hear enough applause and laughter at a young enough age, you’re doomed.
+ - The most exciting acting tends to happen in roles you never thought you could play.
+ - I got a wonderful college education. I went to Harvard. In those four years I accumulated a lot of knowledge but I also created a kind of habit of learning that has stayed with me my whole life.
+ - Growing up I didn’t want to be an actor. I sort of didn’t want to go into the family business; the main reason being there was something I wanted to do far more, which was be an artist.
+ - Shakespeare is like mother’s milk to me.
+ - My father was a man of the theater. I grew up in a theater family. As a young man, as a boy, I gypsied around with my siblings and my parents to, like, eight different towns, went to eight different schools. All those things were extremely formative, and I think that’s what happens.
+ - It’s very interesting, I had an extremely intense experience with my dad in 2002, when he was an old man and very ill and I was taking care of him and my mother, and he was extremely depressed, virtually lost the will to live, and I realized my main job was cheering him up to save his life.
+ - I don’t hesitate to do nudity as an actor if it’s done well.
+ - I look for every opportunity to mix comedy and horror and tragedy. I love catching audiences off-guard.
+ - I gave up shame a long time ago.
+ - I really prize and love great painting. It’s so out of date now. It’s slightly come back in.
+ - I’m a fun father, but not a good father. The hard decisions always went to my wife.
+ - You kill three people, they call you a murderer. You kill a million people, they call you a conqueror. Go figure.
+ - I think there are all sorts of ways of turning into an actor, and there are a vast variety of different actors. You know, you interview plenty of actors and you know they come at it from a different direction and acting means different things to a lot of people.
+ - Books make great gifts because they’re something you love that you can share.
+ - When you end a successful sitcom, the most sensible thing to do is go back to the theater.
+ - I certainly had my years as an out of work actor but I was married with a baby. My wife was supporting us.
+ - I never get tired of hearing compliments.
+ - I consider myself a very lucky actor that, approaching 60, I’m still employed and employable.
+ - Look at the darkest hit musicals – Cabaret, West Side Story, Carousel – they are exuberant experiences. They send you out of the theater filled with music.
+ - There’s nothing like spending an evening with an audience every night.
+ - It’s a very tough time for the playwright. Broadway has become almost a musical comedy theme park with all these long-running shows.
+ - For me, working on stage is much more exhausting than all the other mediums, but it’s also much more thrilling.
+ - The Broadway audience is made up of a greater percentage of tourists now. There’s not nearly as much variety and danger and challenge in what’s being offered.
+ - I have a lot of faith in people.
+ - Up there with my awards, I have a great big statue of Groucho Marx, just to put everything in perspective.
+ - I went to Princeton High School, when I was very serious about being an artist. I was in a theatre family but I didn’t want to become an actor.
+ - One of the things that gives me a lot of pleasure about both the solo show and the book is that it tells people about my dad. He really was an important man. He was a kind of pioneer of regional theater. He was the first American producer to ever produce all of Shakespeare plays.
+ - I find I have to walk a little faster in public these days, but it’s very easy to remember when nobody had any idea who I was.
+ - If you read in front of your kids, it’s very likely that they’ll become readers, too.
+ - I was in 20 Shakespearean plays by the time I was 20.
+ - What you aspire to on a sitcom is the feeling of live comedy.
+ - In animation, there’s this exhilarating moment of discovery when you see the film and you say, Oh THAT’S what I was doing.
+ - Everybody’s a dreamer.
+ - If it’s well written and well directed and you’ve got good actors to work with, acting is easy. But making sure all the ducks are in a row is the hard part. It’s very rare.
+ - We should have charity for what the dead say. We may disapprove of what they say, but we should not insult them and revile them knowing they cannot not defend themselves.
+ - That’s how you deal with stardom; you make it the least important part of your life.
+ - Instead of being a theater actor who sometimes does movies I became a movie actor who sometimes does theater.
+
+51 quotes

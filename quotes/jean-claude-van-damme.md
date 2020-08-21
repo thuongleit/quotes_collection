@@ -1,0 +1,59 @@
+ - According to statistics, one person out of five is disturbed. If there are four people around you who seem normal, that’s not good.
+ - God gave me a great body and it’s my duty to take care of my physical temple.
+ - A cookie has no soul, it’s just a cookie. But before it was milk and eggs. And in eggs there’s the potential for life.
+ - If you phone a psychic and she doesn’t answer the phone before it rings, hang up.
+ - My last fight was more than 20 years ago. I’m not a fighter, I’m a lover. If somebody’s going to speak bad about me, I will walk away. But if a guy like Steven Seagal slaps me once, I will slap him twice as hard. Life is full of violence.
+ - I love challenges. If you don’t have any and can do whatever you want. Then it’s probably time to die.
+ - I’ve had my ups and downs. My fair share of bumpy roads and heavy winds. That’s what made me what I am today.
+ - You can create the perfect triceps by just pushing yourself off your wall.
+ - I’m fast, why? Because I eat vegetables.
+ - I train, for me, very smartly. I don’t train heavy, I do a lot of isometrics.
+ - You know, I looked at my face in the mirror this morning, and I like being old. My face has more content and when I train in the gym now, I am not training to be strong or handsome – just better than I was yesterday. These days the race is just against myself.
+ - Your body has enough weight for you to be in perfect condition just working against yourself.
+ - I am the Fred Astaire of karate.
+ - Air is beautiful, yet you cannot see it. It’s soft, yet you cannot touch it. Air is a little like my brain.
+ - My wife is not my best sexual partner, but she’s good with the housework.
+ - I am fascinated by air. If you remove the air from the sky, all the birds would fall to the ground. And all the planes, too.
+ - A pair of legs engineered to defy the laws of physics and a mindset to master the most epic of splits.
+ - Showing myself nude from behind doesn’t pose any problems, but from the front that’s another story. I don’t want to lose all my fans!
+ - I don’t want to be buried in the ground, rotting, with all those worms. What I would love is to have my body dropped where you have those big icebergs and the water is so cold and pure, to be eaten by a polar bear or a seal or an otter.
+ - You need at least six or seven years to understand the philosophy and concentration of karate to know to clean your spirit of everything and dedicate your mind and body to the sport.
+ - You just have to take a little salt, and since I’m doing that it’s, like, BOOM! In one week, I felt it kick in. All the commotion around me, all the water around me, moving left and right around me, became like a lake.
+ - Karate’s a very boring sport, but when you know the technique you can go further and further.
+ - It’s time for me to do things I like so I will be happy, my wife will be happy, my friends will be happy. I just want to do something I’m proud of. It’s time for me to change. I could sign with a company for 10 movies and I’m the king of video and so what?
+ - I love karate, it’s like a bible to me. But deep inside I’m so I mean, I’m so sensitive.
+ - Everybody understands a slap in the face. In Japan, Belgium, or America, a punch is a punch. Comedy will be different in Europe or America or Japan, so my movies are very international.
+ - What is a movie star? It is an illusion. It was everything I ever wanted to be, but it became a kind of shell, non? It was what made me famous and got me women. But it wasn’t real.
+ - I really am a guy who can be black and white. I don’t understand, too much, the gray. And truly I can go from one type of character to another type of character.
+ - A man may have the best of wealth, cars and fame. But there is nothing more precious in life that he will get than a woman’s heart.
+ - Because no matter what you say in life, the truth will always be the truth. You know when someone is telling the truth, you look in the eyes. I have a tendency to believe people.
+ - I’m not a movie star. I’m a brand name. Van Damme is like Levi’s. I go on vacation, and everywhere I go, people love me for my name, not for my movies.
+ - I’m one of the most sensitive human beings on Earth – and I know it.
+ - Believe me – I’ve done very good stuff and very crazy stuff, and I don’t regret the crazy stuff.
+ - We are here to condemn the Palestinian occupation of the territories, but also to condemn the recent racist attack in France, against both Jews and Arabs.
+ - I came to America with a dream and I made it. The dream became reality. America is built for success.
+ - Obviously I’ve taken drugs.
+ - I’m lucky, because I started action movies at the age of 25. Now I’m 47, and I’m still kicking like a mule, and I’m as flexible as before.
+ - When I was 24, I was full of life. I was that ham who wanted to be famous, a movie star, all that stuff. I think it’s cool. But it was not what I was searching for, really. It was more a delusion.
+ - I now truly believe it is impossible for me to make a bad movie.
+ - In an action film you act in the action. If it’s a dramatic film you act in the drama.
+ - What I promise to my actors, and to my director, is to give them the salary and everything they need.
+ - It looks good when you see someone kicking at the age of 51 with no double. It’s kinda cool for people to know that past 50 we can keep flexible.
+ - I came back to my original wife. I came back to her after I made a few boo-boos in my life. Coming back to her was good for me, good for her and good for the children.
+ - If a product is more expensive than another one and more sustainable in ecology, consumers will not buy it. We’re in a very sharp competitive market.
+ - When you finish a film, if you believed in your character, you’re empty.
+ - In the past, I was working out too heavy.
+ - When I go on location, we have a schedule. And when you have a schedule, you know when you’re not working, so I train very well on location. But I also train three or four times a week at home, but today I train differently than before.
+ - Life is short. I’m years old. I’ve got years to go where I can be the best I can be. I want those years to be precious, not like before, cranking two or three movies a year. I’ve made a ton of movies in my life, but so what?
+ - You have to believe what you say, and if you believe what you are saying, then acting is easy.
+ - All I wanted to do was to become famous, but then I found out that it was nothing special.
+ - I’m a big traveler these days. I was in Hong Kong. I live there. I was just in Belgium with my parents and now I’m on my way to North America. You will find me all over.
+ - The action films I will make in the future will be more believable and character-based. I am now on my second cycle of fame, and I want to make films that smell real and are truthful.
+ - My time of martial arts was traditional.
+ - What really helps a guy to become an action hero today is the directing of the movie. All those fast cuts.
+ - My body looks like 30 but my face looks like 50. But I cannot walk bare-chested in the streets. I like to do these movies to challenge myself physically.
+ - I’m not complaining about doing 20-hour days. It’s a joy to be able to work on yet another film.
+ - I’ve become 40, my audience is partly the same age.
+ - There are some movie stars in Hollywood that are so scared, they also tell the reporter that they are recording them, in case there is something wrong with what they wrote about them in the papers.
+
+57 quotes

@@ -1,0 +1,41 @@
+ - Call me sick. Call me deranged. I’m gonna be your worst nightmare. I’m gonna be your hero whether you like it or not!
+ - I pride myself on being a Legend Killer.
+ - That’s your first mistake. Do not trust me.
+ - It’s not arrogance, it’s just destiny.
+ - There’s a new sexy boy now!
+ - My accomplishments are endless.
+ - If things go our way, you might see why I’m a legend. And if your daddy has a problem with that, he’ll find out why I’m the Legend Killer.
+ - I’m going to the main event of Wrestlemania! Where’re you going?
+ - In this business, it is about making an impact.
+ - I just want everyone to know that even though Hogan won at Summerslam I still pinned him 1, 2, 3.
+ - This one man dynasty has only just begun.
+ - I recently saw Brooke Hogan’s new music video, and I’ve got to say she looked hot.
+ - Get a look at greatness!
+ - I entered this ring Randy Orton, Legend Killer. When all was said and done, I left as Randy Orton, Legend.
+ - I’d RKO my own grandmother if it meant keeping this title. Then I’d RKO your grandmother just to see the look on her face.
+ - The single greatest moment of my life happened in Toronto, Canada!
+ - Take a look people, take a good look at greatness!
+ - Why can’t I be naked baby?!
+ - There’s no stopping Randy Orton!
+ - You’re nothing but an apple, a silly t-shirt, a catchphrase and a stupid haircut.
+ - Someone said DX over here? It was this dipshit with the cowboy hat over here.
+ - I forgot how it feel like to have the top of my foot hurt so bad from kicking people on the face...
+ - Ric Flair, you put me in this position. You named me the Legend Killer and after Tuesday, you will respect me.
+ - Don’t ever interrupt me again. And next time you do, show me the proper respect.
+ - Not only am I younger, but I’m better looking.
+ - If you hadn’t noticed, I like to talk about myself.
+ - You think you’re funny! You think you’re funny Cena, huh? The only pose you’re going to be doing tonight is lying on your back with me on top!
+ - I’m a third generation superstar.
+ - I’m not Triple H, and I certainly am not John Cena.
+ - The Youngest World Heavyweight Champion in History!
+ - Greatness has entered the ring! Thank you very much you may bow at will!
+ - I’m going to take the legend of Hulk Hogan and kill it!
+ - The only reason you’re undefeated at WrestleMania is because you’ve never faced me at WrestleMania.
+ - You obey Wade Barrett’s orders and you disrespect every person who has ever been champion. Including yourself.
+ - Hey, Vickie, why don’t you come down here and reprimand me to my face!
+ - I’m sorry Dolph, but around here, you gotta earn respect.
+ - I saw her backstage and said hi, took a picture with her. Tried to get a convo going, but the kid had know idea wut to think!
+ - So Carlito think about this: all the apple-biting.
+ - Roddy how many times have you won a World Championship?
+
+39 quotes

@@ -1,0 +1,55 @@
+ - If you feel like a weirdo, it’s okay because weirdos rule the world.
+ - I sold my soul to the devil. I’d like to thank the devil.
+ - Tina Fey is one of my heroes.
+ - I’ve felt depressed many times in my life, so I can draw on those times in my life when I need to.
+ - When I’m on the couch, I usually have the TV on and my MacBook Air nearby. And sometimes, when my ADD is really kicking in, I have my iPad too. And my iPhone. And a magazine that I haven’t gotten to. And a book under the pillow to my left.
+ - I get really weird when I’m not working. I have to keep working.
+ - Sarcasm is weird. Even not in acting, in life I feel ‘sarcastic’ is a word that people use to describe me sometimes so when I meet someone, it’s almost they feel they have to also be sarcastic, but it can sometimes just come off as mean if it’s not used in the right way.
+ - I do have magical powers, I try to use them for good and not evil, but I can pretty much make anyone do whatever I want them to do, if they’re within range.
+ - My mom’s Puerto Rican. That’s why I’m so lively and colorful.
+ - I’ve had experiences in my life where I’ve met certain people that have opened up something in me and given me hope and a new outlook on life.
+ - It’s weird, huh? It’s like the minute you kinda give up control you just know what to do without doing anything.
+ - I like my name. My mom named me after a song by the 1970s group Bread. So, it’s meaningful, and I like the song. It’s a love song – kind of – but it’s kind of depressing and dark.
+ - Louis C. K. is one of my all time favorite standup comedians.
+ - I’m totally an anxious mess all the time. There’s a constant dialogue going on in my brain, and it’s just reminding me of all the failures that I have had, and all of the things I need to do, and all of the things I’m not doing good enough.
+ - I’m too awkward to date, I think. I’m kind of all or nothing, you know? Either put a baby inside of me or leave me alone.
+ - I’m not a super emotional person, so that’s one reason I love acting – it makes me deal with myself in that kind of way.
+ - The female love interest is boring to me. A female that’s interesting, smart, funny – that’s what I’m drawn to. I wouldn’t say that every character has to be smart, but she has to have one trait I can relate to.
+ - I always want to keep growing and keep surprising people, and showing them different parts of me.
+ - I realized two things from an early age – I was insane and had some kind of comedic thing going on. My brain was wired to think about things in terms of how funny they were.
+ - My people would love it if I smiled more, if I was more ‘approachable.’
+ - It would be hilarious if I worked in a bowling alley.
+ - I want people to like me but not at my expense.
+ - The only pressure comes form myself. I put pressure on myself at first just because I was intimidated. When I made Amy Poehler laugh, it was a big thing for me. She’s been one of my role models since high school, because she started UCB, which is what I wanted to do since high school.
+ - I just want to keep finding special characters that I feel like I can bring to life and characters that are real and not superficial.
+ - My grandfather came over from Puerto Rico and raised his kids speaking English so that it would be easier for them to assimilate.
+ - It’s such a thing now, people making fun of other people on the Internet.
+ - Make all your decisions based on how hilarious it would be if you did it.
+ - My first boyfriend that I ever had, actually sang a song that he wrote for me on-stage to ask me out. That was pretty romantic.
+ - I’m going to create my own opportunities. If I can’t find the roles I want, I’ll just make them.
+ - I’m not super comfortable in my skin. I have to make it work for me, and that usually amounts to making it uncomfortable for everyone else.
+ - I mean, sometimes I hate interviews because I always feel like I sound stupid.
+ - Well, I was obsessed with Judy Garland growing up. Like, obsessed.
+ - I don’t let myself ‘surf’ on the Web, or I would probably drown.
+ - A lot of independent films offer a harsh reality check.
+ - I definitely can relate to being down and closed-off at certain times in my life.
+ - If I have the option, I always read the paper or a book or something I can touch and destroy in my own hands.
+ - Improv is so different, it’s such a collaborative thing, you’re working with other people, nothing is planned and it’s kind of this community mentality, whereas stand-up, you’re alone and it was really hard.
+ - With stand-up, it doesn’t matter who you are. If the audience claps because they love your movies, that clapping stops after five seconds, and then it’s your job to make them laugh.
+ - Once you do a character in Hollywood and people haven’t seen you before, they put you in a box and they think that’s all that you can do and it’s hard to get people to take a risk on you.
+ - I can’t say I follow politics extremely closely, but I’m definitely aware of what’s going on in the world.
+ - I love great acting, as nerdy as that sounds.
+ - I think it’s nice to get a break from all of the big Hollywood comic book action-movies and see something that’s relatable and funny and interesting.
+ - When you improvise, you work off the laughs from the audience, but when you step on stage to do standup, it’s silent.
+ - When I was doing comedy in New York, before I was in movies, I was never known as the deadpan actress. I was just a comedienne.
+ - I’ve always wanted to do all kinds of roles, dramatic roles and comedic roles, all kinds of roles.
+ - I’m like that person who hates going to magic shows – and I love magic, I love wizards – but going to a show where there is any possibility of audience participation is a nightmare for me.
+ - I’m not, like, Daniel Day Lewis. Yet. I will get there!
+ - I obviously bring all of my insecurities along with me to any role that I tackle.
+ - Writing is hard – writing is the hardest.
+ - I think being on a TV show is amazing but also, people get kind of used to seeing you a certain way and so it becomes a challenge to break free from that in a way.
+ - I’m pretty good at weaseling my way into a job, even if I have no business being there.
+ - There are always parts of me that come out in the characters that I play – it’s the only thing I have to work with and to draw off of.
+ - There’s no photo-shoot academy. If there was, I’d probably be kicked out.
+
+53 quotes

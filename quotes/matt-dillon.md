@@ -1,0 +1,43 @@
+ - One of my greatest fears is not being able to change, to be caught in a never-ending cycle of sameness. Growth is so important.
+ - I don’t hide out. If you build a wall around yourself, it draws people to invade it. Fear is the enemy.
+ - It’s important to air your concerns and fears with someone you trust. When you’re honest about how you can change and grow, and where your weaknesses are, then you open the door for improvement and change.
+ - I don’t know why, but I like the saxophone.
+ - Love is messy. It’s not something that’s real clean.
+ - It’s tough when you started out as young as I did to look back and see how far I’ve come. I try to be easy on myself and go ‘Look man, you were younger, you were learning; you learn, you grow.’ But I’m not my best judge. I always feel like my best work is still ahead of me.
+ - I’m not a Buddhist, or a card-carrying member of any religion.
+ - The first music I was ever exposed to was Irish folk music, like the Clancy Brothers. My father plays that and Christmas songs.
+ - I sometimes think love is God’s way of hoodwinking people into having kids. You fall in love, and all that passion goes into procreating and wanting children. I’ve felt that need to want to raise a child. It’s a creative urge. But you can express that creative urge in other ways.
+ - It seems like a cliche, but you do grow up a lot faster when you travel a lot, go through things like this interview, spend time away from home and hang around with other actors. It’s inevitable that you’re not going to have a so-called normal childhood.
+ - I only hear my own voice. When you start hearing other voices, then it’s time to worry.
+ - It’s really nice to be able to do something that you’ve never done. I think that’s the gift of being an actor because I get to play a cop, a racist cop and I’ve never done that before. It’s nice to inhabit these other worlds especially when you get to work with great actors.
+ - When I was twenty-two it was a lot harder to get hurt by women. It was easier for me to, you know, cheat on a girlfriend. I can’t lie like that anymore.
+ - I’m drawn to women who live in a world different from my own. I don’t believe you have to marry someone from your own backyard. James Joyce married a woman who never read any of his books.
+ - I know this sounds kind of crazy, but I think we’re all actors.
+ - The worst thing I could be accused of is that I’m a one-way dude, only out for myself. But the worst thing a woman can do is not to say anything. Especially when you’re starting a relationship.
+ - I don’t like movies where everything happens fast. I like the buildup, the obstacles, the mystery.
+ - In politics there are so many holes, so many contradictions, you don’t know what’s happening.
+ - My driving, I’ve been accused of not being the best, most safest driver.
+ - I think anytime you can do something you haven’t seen or done in a film before, it’s always a great day as an actor.
+ - I like conflict, drama’s conflict and if you don’t have that in the character it’s really not a worthwhile role to play for me.
+ - It’s a pretty good job being an actor, but it’s work sometimes. And when I say work, I mean it’s a job. You’re going to a job.
+ - One of my biggest fears is not being able to break out of a rut; of becoming a prisoner to my ways, unable to change course. But in my mid-thirties, I learned you can change your thinking.
+ - I grew up with the white picket fence. My dad went to work nine to five, and he had a station wagon.
+ - I don’t like to give out advice. I make suggestions when I get to know somebody a little bit, but I don’t know about advice.
+ - I think a lot of directors, they come out of film school, they don’t know anything about acting. Or they’re writers that don’t know anything about the process. And I think they’re afraid sometimes to talk to actors and be honest with actors.
+ - I had acting teachers, and one of the things that was encouraged was to keep it fresh, to be spontaneous. That’s the magic of film often.
+ - It was being young and sensitive and an actor. There was a lot of pressure, everything was a hurdle.
+ - Acting is very competitive. There are few good scripts out there and the ones that are good are very competitive. You look at your options and often times they’re not too appealing.
+ - I have always wanted to play different kinds of stuff, but it’s hard, first to find good material, and then to change people’s perception of you so they’ll let you do it. I mean, I would really like to play a poet, but once they get this notion of you as a street guy, it’s hard to change that.
+ - I used to make fun of the kids in school who acted or went to dance class.
+ - I do get bottled up in interviews. You’re thinking about what you’re saying, and suddenly you get all tangled. So people think I’m sullen, or that I don’t have much to say. But my friends will tell you: a lot of times I talk too much.
+ - I don’t worry about whether a character is likable, as long as the character is believable.
+ - As an actor, you can’t be off the market for too long.
+ - Of course, if you’re gonna make movies, you gotta make movies, and I’m not gonna say no to a good role.
+ - The great, rewarding thing about directing is that you’re overseeing the whole thing. When you’re an actor, you’re just one department.
+ - Actors don’t generally go asking other actors for advice too much, but I’ll take suggestions wherever I can.
+ - I look for really great characters. I say great because as long as they’re really good, there’s something you can do. And really good storytelling. And when people ask me what the story is, I say it’s really several stories really. They’re intermeshed.
+ - I don’t consider myself a Hollywood liberal, but I have my convictions and my beliefs.
+ - I like to do comedy, but I’ll be perfectly honest, I prefer to do drama and more character-driven-based stuff, generally.
+ - These are people who haven’t gone through the legal means to becoming citizens like our forefathers did. They want all the benefits but none of the responsibilities.
+
+41 quotes

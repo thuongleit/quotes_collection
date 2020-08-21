@@ -1,0 +1,53 @@
+ - And I tell myself, a moon will rise from my darkness.
+ - Without hope we are lost.
+ - Standing here, staying here, permanent here, eternal here, and we have one goal, one, one: to be.
+ - On this earth there is that which deserves life.
+ - Palestinian people are in love with life.
+ - I thought poetry could change everything, could change history and could humanize, and I think that the illusion is very necessary to push poets to be involved and to believe, but now I think that poetry changes only the poet.
+ - I am from there. I am from here. I am not there and I am not here. I have two names, which meet and part, and I have two languages. I forget which of them I dream in.
+ - We suffer from an incurable malady: Hope.
+ - Nothing is harder on the soul, than the smell of dreams, while they’re evaporating.
+ - My homeland is not a suitcase, and I am no traveller.
+ - If the Olive Trees knew the hands that planted them, Their Oil would become Tears.
+ - Poetry and beauty are always making peace. When you read something beautiful you find coexistence; it breaks walls down.
+ - A person can only be born in one place. However, he may die several times elsewhere: in the exiles and prisons, and in a homeland transformed by the occupation and oppression into a nightmare.
+ - I am not a lover of Israel, of course. I have no reason to be. But I don’t hate Jews.
+ - She does not love you. Your metaphors thrill her you are her poet. But that’s all there’s to it.
+ - The metaphor for Palestine is stronger than the Palestine of reality.
+ - I don’t decide to represent anything except myself. But that self is full of collective memory.
+ - I believe in the power of poetry, which gives me reasons to look ahead and identify a glint of light.
+ - I wish I were a candle in the darkness.
+ - Where can I free myself of the homeland in my body?
+ - I am patient and am waiting for a profound revolution in the consciousness of the Israelis. The Arabs are ready to accept a strong Israel with nuclear arms – all it has to do is open the gates of its fortress and make peace.
+ - May poetry and God’s name have mercy on us!
+ - Exile is more than a geographical concept. You can be an exile in your homeland, in your own house, in a room.
+ - I have learned and dismantled all the words in order to draw from them a single word: Home.
+ - We are captives of what we love, what we desire, and what we are.
+ - To be under occupation, to be under siege, is not a good inspiration for poetry.
+ - Life defined only as the opposite of death is not life.
+ - I see poetry as spiritual medicine.
+ - The importance of poetry is not measured, finally, by what the poet says but by how he says it.
+ - Have I had two roads, I would have chosen their third.
+ - Sarcasm helps me overcome the harshness of the reality we live, eases the pain of scars and makes people smile.
+ - Sometimes I feel as if I am read before I write. When I write a poem about my mother, Palestinians think my mother is a symbol for Palestine. But I write as a poet, and my mother is my mother. She’s not a symbol.
+ - The stars had only one task: they taught me how to read. They taught me I had a language in heaven and another language on earth.
+ - History laughs at both the victim and the aggressor.
+ - My love, I fear the silence of your hands.
+ - I learnt all the words worthy of the court of blood So that I could break the rule I learnt all the words and broke them up To make a single word: Homeland...
+ - I love women whose hidden desires make horses put an end to their lives at the threshold.
+ - Against barbarity, poetry can resist only by confirming its attachment to human fragility like a blade of grass growing on a wall while armies march by.
+ - The Palestinians are the only nation in the world that feels with certainty that today is better than what the days ahead will hold. Tomorrow always heralds a worse situation.
+ - I’ve built my homeland, I’ve even founded my state – in my language.
+ - One day, I will be a poet. Water will depend on my visions.
+ - Far away, our dreams have nothing to do with what we do. The wind carries the night, and passes on, aimless.
+ - We have to understand – not justify – what gives rise to this tragedy. It’s not because they’re looking for beautiful virgins in heaven, as Orientalists portray it. Palestinian people are in love with life. If we give them hope – a political solution – they’ll stop killing themselves.
+ - The poem is in my hands, and can run stories through her hands.
+ - And what I don’t understand I grasp it only when it’s too late.
+ - I want to find a language that transforms language itself into steel for the spirit – a language to use against these sparkling insects, these jets.
+ - I never wanted children; maybe I’m afraid of responsibility.
+ - The days have taught you not to trust happiness because it hurts when it deceives.
+ - When a writer declares that his first book is his best, that is bad. I progress successively from book to book.
+ - For the Arabs in Israel there is always a tension between nationality and identity.
+ - When I passed the age of 50, I learned how to control my emotions.
+
+51 quotes

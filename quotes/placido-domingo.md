@@ -1,0 +1,44 @@
+ - When it becomes clear that no one else shares your level of passion, you are where you belong.
+ - The high note is not the only thing.
+ - Singing becomes a form of therapy.
+ - If money was my only motivation, I would organize myself differently.
+ - My strength is my enthusiasm.
+ - The voice collects and translates your bad physical health, your emotional worries, your personal troubles.
+ - On the other hand, I have devoted so much energy to reach the top that I accept the stress of being there.
+ - I’m not superstitious because it brings bad luck.
+ - I feel like a little boy who is constantly offered new toys.
+ - But enough joking. I am singing. This is all my life.
+ - We all have a destiny in accordance with the breadth of our shoulders. My shoulders are broad.
+ - When a young artist is ready, one has to bring him into the limelight.
+ - Should it happen tomorrow, I would fall to my knees to give thanks to God for such a career.
+ - Every three days on average, I am alone on stage, facing the public.
+ - I then realized that I could never be satisfied again with the mere natural charm of my voice, that I had to constantly paint when singing, melting all the colors, expressing reds and blacks that had to be less primary but bursting with subtly colored combinations.
+ - I was married at 16, a father at 17 and divorced at 18.
+ - Young singers are much better educated musically, much better informed, through discs and videos, than I was.
+ - I hope I have given back half the joy music has given me.
+ - I feel at home in an orchestral score.
+ - What is sad is not to be able to do today what you have done in your youth. But what is good is to remember that – when you were able – you did it to the best of your ability.
+ - But I won’t deprive myself of singing opera as long as my voice follows.
+ - When you are confronted with an opera, you have to keep an eye on everything: the musicians, the chorus, the ballet, the singers, the staging.
+ - I am never wrong when it comes to my possibilities.
+ - Don’t you think it astonishing that, at 58, I am still working at improving my career?
+ - Between parts I was too old for and roles that were too overwhelming, out of reach then for my voice. I carved out a niche with the Wagnerian repertoire since I am attracted by its theatrical intensity.
+ - With my personal preparation at the piano, I can afford to hum at half voice.
+ - The press regularly proclaims my ambitions and my financial demands.
+ - In the last century, everybody was singing lower.
+ - This season, over eight productions, I am presenting four young tenors.
+ - The public made me and then encouraged me for many years, and my future even now depends upon it.
+ - When I was a young man, I was a baritone, very far from possessing the whole range of the tenor then.
+ - I will prove that a great conducting career is expecting me.
+ - To stay at my best, I have to stop talking during the preceding day.
+ - The public is a part of my real life.
+ - I attended less than two years of Conservatory in Mexico City.
+ - Honestly, if the public still wants to hear me in some works, I have to go down a half step.
+ - I have always studied my parts with the orchestral score and not with the piano reduction.
+ - When working with an orchestra, you never spend more than 20 minutes per recording session.
+ - Let us be clear: I take ten times more money for a concert than for an opera performance.
+ - It is strange, but nobody is shocked when pop singers make a fortune in the space of two years.
+ - When facing symphonic orchestras which have played some works five thousands times, you have nothing to do.
+ - The atmosphere of the theater is my oxygen.
+
+42 quotes

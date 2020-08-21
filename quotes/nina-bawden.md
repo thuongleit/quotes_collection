@@ -1,0 +1,26 @@
+ - I am not a victim. I am an angry survivor.
+ - People who don’t read seem to me mysterious. I don’t know how they think or learn about other people. Novels are a very important part of our education.
+ - I like stirring the pot – I think it’s part of my duty, to shake people up a bit – make them look at things in a different way.
+ - Ten thousand pounds is the legal value of a negligently taken life, of a child or a parent. A cold and somewhat mean-spirited calculation: you would do better if you slipped on a paving-stone and broke a front tooth.
+ - I dislike the word ‘victim.’ I dislike being told that I ‘lost’ my husband – as if I had idly abandoned you by the side of the railway track like an unwanted pair of old shoes.
+ - One good reason for writing novels based on your life is that you have something to read in old age when you’ve forgotten what happened.
+ - I grew up on a suburban street with lace curtains and dull neighbours, so I made up stories to tell my friend, in which they became serial killers and burglars. She told her mother, who then told mine.
+ - All writers are thieves; theft is a necessary tool of the trade.
+ - I would hate to live in the country, unless I was living on a farm.
+ - I was born in a small suburb of Ilford in a rather nasty housing estate that my mother despised. She had grown up in the country, so when the war came and I was evacuated to Wales she thought I was much better off there.
+ - Life isn’t so complicated for children. They have more time to think about the really important things. That’s why I occasionally moralise in my children’s books in a way I wouldn’t dare when writing for adults.
+ - A writer’s work may be a coded autobiography, but only a very close friend could decipher it.
+ - I wanted to be a war reporter – scrabbling around, exposing things. I didn’t want to go to university, I wanted to get a job, but Auntie Beryl said I should go to Oxford.
+ - Children often have a much stronger concept of morality than adults.
+ - I met my second husband on a bus. We looked at each other and that was it. We were both married to other people at the time and behaved badly, but we didn’t seem to have any choice. We were very happy for nearly 50 years and would still be together if it wasn’t for the bloody railways.
+ - I like writing for children. It seems to me that most people underestimate their understanding and the strength of their feelings and in my books for them I try to put this right.
+ - Adults get more confused by social worker jargon. Unlike children, they are also less likely to see two sides of an argument, and they no longer think they can make the world a better place. That can make them rather boring, I suppose.
+ - I met Richard Burton, an RAF cadet on a two-term course. I would have flirted more enthusiastically if it had not been for the horrid boils on the back of his neck.
+ - There are many times when I think I would have rather died with my husband. It would have been pleasanter, simpler. But it would have been worse for the children and the family in general.
+ - People’s lives are in the care of the railways when they get on a train. The railways should remember that.
+ - I’ve never found it made the slightest difference being a woman – though there is a sort of feeling that as you get older you’re not so interesting.
+ - I hope in my books I help children to see their strengths, and show them I have some idea of what they may occasionally be going through. Especially at tricky moments when it is easier to go back and evade things rather than go forwards and confront them.
+ - If you are going to make companies, corporations, actually responsible for the safety of other people’s lives, then if they fail in their duty, the only thing to prevent them failing in their duty is the fear that they would be put behind bars.
+ - Margaret Thatcher was in my year, and our first-year college photograph shows us standing side by side in the back row. We were both grammar school girls on state scholarships.
+
+24 quotes

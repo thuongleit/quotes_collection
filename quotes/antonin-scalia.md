@@ -1,0 +1,50 @@
+ - Bear in mind that brains and learning, like muscle and physical skill, are articles of commerce. They are bought and sold. You can hire them by the year or by the hour. The only thing in the world not for sale is character.
+ - Devout Christians are destined to be regarded as fools in modern society. We are fools for Christ’s sake. We must pray for courage to endure the scorn of the sophisticated world.
+ - Day by day, case by case, the Supreme Court is busy designing a Constitution for a country I do not recognize.
+ - Words have meaning. And their meaning doesn’t change.
+ - Interior decorating is a rock-hard science compared to psychology practiced by amateurs.
+ - A Bill of Rights that means what the majority wants it to mean is worthless.
+ - If we’re picking people to draw out of their own conscience and experience a ‘new’ Constitution, we should not look principally for good lawyers. We should look to people who agree with us. When we are in that mode, you realize we have rendered the Constitution useless.
+ - In the eyes of government we are just one race here. It is American.
+ - One can be sophisticated and believe in God. Reason and intellect are not to be laid aside where matters of religion are concerned.
+ - If you’re going to be a good and faithful judge, you have to resign yourself to the fact that you’re not always going to like the conclusions you reach. If you like them all the time, you’re probably doing something wrong.
+ - It would be gross understatement to say that the Telecommunications Act of 1996 is not a model of clarity. It is in many important respects a model of ambiguity or indeed even self-contradiction.
+ - In a big family the first child is kind of like the first pancake. If it’s not perfect, that’s okay, there are a lot more coming along.
+ - Campaign promises are – by long democratic tradition – the least binding form of human commitment.
+ - Words no longer have meaning if an Exchange that is not established by a State is “established by the State”.
+ - I think the main fight is to dissuade Americans from what the secularists are trying to persuade them to be true: that the separation of church and state means that the government cannot favor religion over nonreligion.
+ - The wise do not investigate such silliness.
+ - On this day, when we’re celebrating our constitutional heritage, I urge you to be faithful to that heritage – to impose on our fellow citizens only the restrictions that are there in the Constitution, not invent new ones, not to invent the right because it’s a good idea.
+ - As long as judges tinker with the Constitution to ‘do what the people want,’ instead of what the document actually commands, politicians who pick and confirm new federal judges will naturally want only those who agree with them politically.
+ - The attitude of people associating guns with nothing but crime, that is what has to be changed. I grew up at a time when people were not afraid of people with firearms.
+ - I even accept for the sake of argument that sexual orgies eliminate social tensions and ought to be encouraged.
+ - Why can’t the state accede to the public’s wishes?
+ - Why in the world would you have it interpreted by nine lawyers?
+ - The court’s job is to uphold the Constitution and you don’t call that off in times of crisis. Would the framers have allowed this practice?
+ - This is so absurd that it has, to my knowledge, never been contemplated.
+ - Persuade your fellow citizens it’s a good idea and pass a law. That’s what democracy is all about. It’s not about nine superannuated judges who have been there too long, imposing these demands on society.
+ - There is nothing new in the realization that the Constitution sometimes insulates the criminality of a few in order to protect the privacy of us all.
+ - Is it really so easy to determine that smacking someone in the face to find out where he has hidden the bomb that is about to blow up Los Angeles is prohibited under the Constitution?
+ - But I also believe that a lot of gun owners would agree that AK-47s belong in the hands of soldiers, not on the streets of our cities.
+ - What is a moderate interpretation of the text? Halfway between what it really means and what you’d like it to mean?
+ - The Constitution does not trust judges to make determinations of criminal guilt.
+ - Power tends to corrupt. But the power in Washington resides in Congress, if it wants to use it. It can do anything-it can stop the Vietnam War. It can make its will felt, if it can ever get its act together to do anything.
+ - A journalistic purpose could be someone with a Xerox machine in a basement.
+ - Certainly one cannot ban cross burning in the sanctity of his bedroom.
+ - To be honest about it, that is the view of Christians taken by modern society. Surely those who adhere to all or most of these traditional Christian beliefs are to be regarded as simpleminded.
+ - To many Americans, everything from the Easter morning to the Ascension had to be made up by the groveling enthusiasts as part of their plan to get themselves martyred.
+ - People look at rights as if they were muscles – the more you exercise them, the better they get.
+ - The purpose of the Federalist Society was to bring together young people who had this skepticism about what they were being taught and to let them know that there were others who shared this skepticism.
+ - Under all the usual rules of interpretation, in short, the Government should lose this case. But normal rules of interpretation seem always to yield to the overriding principle of the present Court: The Affordable Care Act must be saved.
+ - With respect to public acknowledgment of religious belief, it is entirely clear from our nation’s historical practices that the Establishment Clause permits this disregard of polytheists and believers in unconcerned deities, just as it permits the disregard of devout atheists.
+ - The government has room to scale back individual rights during wartime without violating the Constitution. The Constitution just sets minimums. Most of the rights that you enjoy go way beyond what the Constitution requires.
+ - It’s a long, uphill fight to get back to original orthodoxy. We have two ‘originalists’ on the Supreme Court. That’s something.
+ - It is difficult to maintain the illusion that we are interpreting a Constitution, rather than inventing one.
+ - Rather than rewriting the law under the pretense of interpreting it, the Court should have left it to Congress to decide what to do about the Act’s limitation of tax credits to state Exchanges.
+ - A search is a search, even if it happens to disclose nothing but the bottom of a turntable.
+ - This is an execution, not surgery. Where does that come from, that you must find the method of execution that causes the least pain?
+ - It would also be strange to find in the midst of a catalog of the rights of individuals a provision securing to the states the right to maintain a designated “Militia.” Dispassionate scholarship suggests quite strongly that the right of the people to keep and bear arms meant just that.
+ - A law can be both economic folly and constitutional.
+ - For in order for capitalism to work – in order for it to produce a good and a stable society – the traditional Christian virtues are essential.
+
+48 quotes

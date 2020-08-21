@@ -1,0 +1,57 @@
+ - I am the best in the world at what I do.
+ - I am the Ayatollah of rock ‘n’ rolla.
+ - I’m from Winnipeg, you idiot!
+ - You will never ever be the same again!
+ - Live events are notorious for being pressure free. Stress free. It’s all about just doing the match. Doing what you feel.
+ - Did you ever know that you’re a jackass?
+ - Don’t you touch me again. I will knock you out, junior!
+ - Will you please shut the hell up!?
+ - You’ve got a man-beast, and a ho-beast.
+ - Am I a workaholic? Yes, but I also have no problem taking time for myself.
+ - There’s no limit to what you can accomplish in the world of entertainment. It’s all I’ve ever known since I was 19.
+ - I’ve always been pretty good at remembering the details about certain things.
+ - I like to do something different that people don’t expect. That’s what I’ve always been about, in everything I do.
+ - If Shakespeare was alive today, he’d be writing wrestling shows.
+ - An ordinary day. I get up early, drive to the airport, from there driving to the arena where we wrestle. Then if we have a show I will take another plane for my destination. Otherwise I will take a plane to return home and fall in bed very, very late.
+ - I wish you the beast of luck!
+ - In true rock star fashiuon, I had insomina last night and I didn’t sleep at all. So all I need is a bottle of Jack Daniels and some groupies, and I’ll be just like David Lee Roth.
+ - When you stop being nervous is when you should retire. I’m always a little nervous for anything I do because when complacency sets in, that’s when I feel it’s time to move on to something else.
+ - Back in the hood after a tremendous Aussie tour! Thanks to all who rocked with us, I promise it won’t be another 5 yrs before we return! Best news is I’m off for the rest of the year now! Time to get krunk...
+ - If you want to see Chris Jericho drink a beer with Stone Cold Steve Austin, give me a doo-a dee-dee-dam, dee-dee-doo.
+ - The only people who try to tell you that you can’t do something, are the people who have failed.
+ - Congratulations to one of my favorite opponents and greatest rivals on returning to the WWE. The Rock is the BEST promo man of all time...
+ - You can’t wrestle forever. It’s a very physically taxing job. There’s no doubt about it. Physically, and more importantly, mentally.
+ - Well Stephanie, I’d like to thank you for giving me such a kind Christmas gift, but unfortunately I didn’t get you any gifts. But then again, what can you get for the girl whose had everyone?
+ - Think about it – pro wrestling as an Olympic sport would be pretty cool. Look at figure skating or gymnastics – what is it? It’s a choreographed performance that is judged.
+ - When you go to the Hollywood world and you wade in the waters out there, you never know who you’re going to meet and what meetings you’re going to have at some point, somewhere that leads to something else. So you could see somebody years later that comes to fruition.
+ - Welcome to Raw, is, Jericho!
+ - Queen Elizabeth, she’s the ultimate hypocrite!
+ - I’ve never been the type of person to stick with the same thing or be complacent or rest on my laurels.
+ - I have a journalism degree, but I’d rather be the person who is being written about rather than the person who is writing.
+ - I want TNA to grow as a company, it’s better for me as a performer and me as a businessman. But how can they grow if every chance they get they are constantly talking about up north and the WWE?
+ - Now you’re the Queen of Hardcore, but movies don’t count!
+ - All I ask is for people to trust me.
+ - People ask me what my favorite WWE era is. It’s now, because I’m living it.
+ - Whenever you get a bunch of guys that are funny or think they’re funny, when you first meet, there’s always a lot of bits and it’s never, ever, ever funny. So basically you have to get through the awkwardness.
+ - As a matter of fact I could beat you two with both my arms and my legs tied. I’ll roll down this ramp and score myself a 7-10 idiot split!
+ - There’s no unemployment insurance if you don’t have a job in wrestling. You really have to be committed, to have a love and a passion for the sport, a belief in yourself that you can do it.
+ - A live performance is the same no matter what genre it is. Wrestling, rock ’n roll, hosting, acting – it’s the same thing.
+ - I’ve always had an air of mystery.
+ - There are a lot of similarities between dancing and wrestling. The costumes are the same, the spandex and all that, but you have to be light on your feet to do both, and you have to remember choreography.
+ - We both liked the idea but couldn’t figure out a way to get up to the roof. Vince had just seen the Spider-Man movie and suggested we shoot webs out of our wrists and swing up there. We asked Vince not to contribute any more ideas.
+ - I am Chris Jericho, your new hero! And I am the new millenium for the World Wrestling Federation!
+ - I always like doing things that no one’s ever done before. Doing things a little out of the ordinary.
+ - You can’t come back to TV for two months. It’s too short. You can’t start anything. It’s too much of a tease and there’s really nowhere you can go.
+ - The most important thing about being in wrestling is that you have to connect with the crowd, connect with the fans, and you either want them to love you, or to hate you. Either way, so long as they’re reacting to what you’re doing.
+ - If the show is great, it doesn’t matter who wrote it. It doesn’t matter who takes charge when you’re filming it. It just matters if it works or not.
+ - Lo, I am the most stupendous in the land at my particular profession.
+ - The only rumors worth listening to have Stevie Nicks on vocals.
+ - Wrestling is part of what I do, but far from the only thing.
+ - I think a Chris Jericho triple DVD set is a great present. I don’t what my kids are complaining about...
+ - I remember when I was a kid that the only way to see Hulk Hogan wrestle was you’d have to go to the live shows. He was never on TV. So I thought “Why not do the same thing?”
+ - Of course you have an e-mail, you idiot, just read it!
+ - In Hollywood, there really is a stigma against wrestling. I think that’s why people think wrestlers are Neanderthals who can’t string two words together.
+ - I never want to hide my wrestling background.
+ - Shawn Michaels is quite simply the greatest performer in WWE history.
+
+55 quotes

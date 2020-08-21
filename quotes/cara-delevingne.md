@@ -1,0 +1,34 @@
+ - Don’t worry, be happy! Embrace your weirdness.
+ - You have this one life. How do you wanna spend it? Apologizing? Regretting? Questioning? Hating yourself? Dieting? Running after people who don’t see you? Be brave. Believe in yourself. Do what feels good. Take risks. You have this one life. Make yourself proud.
+ - Stop trying to define who you are and just be.
+ - Stay cool, hang loose, admit nothing.
+ - I wish my school days could have dragged on a little longer, or that I could go back and do it later in life.
+ - The energy you give off is the energy you receive. I really think that, so I’m always myself – JUMPING, dancing, singing around, trying to cheer everybody up.
+ - My dream is to go spend a week on some island with no phone.
+ - It’s hard finding people you trust or who aren’t going to take your money. Everyone wants to get a piece of whatever you’re doing. It’s a nightmare.
+ - My sexuality is not a phase. I am who I am.
+ - Scorsese, Spielberg, Tarantino, Peter Jackson – all of you: I’m here, I’m ready. I can do funny faces, I can sing, I can dance. Hire me!
+ - I wanted to be a Disney Channel star! I wanted to be Hannah Montana.
+ - I love to beatbox and have been doing it before I even knew what it was.
+ - It’s not just that I love bacon so much; I feel like something about bacon reflects my personality. It’s salty and it’s bad for you and it’s delicious. I just love it so f – ing much, that’s why.
+ - Kids should speak to each other. They’re horrid to each other online, they bully each other – they should shut up and stop it. The problem with social media is there is too much freedom. It’s too much, too young.
+ - My way of relaxing was always doing the opposite and playing the drums, but I need to be able to actually chill.
+ - Of course, I loved the Spice Girls. I loved Geri and Baby, but who liked Posh Spice? They said I looked like her, and I said: ‘That’s not cool, that’s really mean.’
+ - If I was rich enough, I would love to launch my own record label. I would love to try and give all my musically talented friends a start in the industry.
+ - I like fashion, but I love, love, love music and film; they are my two passions. I would love to pursue my acting and my love of music more than anything.
+ - I spend most of my time wearing uncomfortable things, so for me, it’s all about trainers.
+ - I treat the camera like a person – I gaze into it. Photos are a flat thing, and you need to put life into them.
+ - I hate high heels, more than anything.
+ - If I am able to carry on modeling, I’ll be very happy to, but my passion is definitely in music and acting. I would love to do what Meryl Streep is doing. Her or Judi Dench, or maybe Charlize Theron as well.
+ - I’ve started doing yoga and meditation, but I’m not very good at that kind of thing and turning my brain off.
+ - I had no interest in fashion when I was younger. I was such a tomboy.
+ - Fame, do I like it? No. It has bought a lot for me in my career, but there are a lot of downsides to it. You give up your privacy. I did it to myself but not to my family and friends. You don’t ask for it. You just have to live with it.
+ - I had no interest in fashion when I was younger. I was such a tomboy. I loved soccer, as you call it, or sports in general. The first time I was a bridesmaid, to my auntie, I refused to go down the aisle without my football shorts underneath my dress.
+ - I’m a world class Beat Boxer; you should hear the noises I can make with my mouth.
+ - We are all a quarter good, a quarter bad, a quarter animal and a quarter child which equals a whole bunch of crazy.
+ - I love Christopher Bailey and Burberry, Mulberry for bags, and Hudson for jeans.
+ - I like a little bit of designer, with a bit of vintage and high street mixed in. I love it when you find those one-off key pieces, which end up becoming investment pieces.
+ - They’re like lips, they’re like noses, they’re like eyeballs, you should be able to have them out all the time if you want. Nipples are beautiful things, don’t hide them.
+ - Working with Mario Testino was a joy. He’s very young spirited, and it’s always lovely and a pleasure to spend time talking to him about all different things.
+
+32 quotes

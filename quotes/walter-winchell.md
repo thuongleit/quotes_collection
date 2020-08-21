@@ -1,0 +1,29 @@
+ - Never above you. Never below you. Always beside you.
+ - America – love it or leave it.
+ - A friend is one who walks in when others walk out.
+ - Today’s gossip is tomorrow’s headline.
+ - Money sometimes makes fools of important persons, but it may also make important persons of fools.
+ - I never lost a friend I wanted to keep.
+ - An optimist is someone who gets treed by a lion but enjoys the scenery.
+ - Gossip is the art of saying nothing in a way that leaves practically nothing unsaid.
+ - Too many people expect wonders from democracy, when the most wonderful thing of all is just having it.
+ - Good evening, Mr. and Mrs. America from border to border and coast to coast and all the ships at sea. Let’s go to press.
+ - Broadway is a main artery of New York life – the hardened artery.
+ - It’s a sure sign of summer if the chair gets up when you do.
+ - The same thing happened today that happened yesterday, only to different people.
+ - Nothing recedes like success.
+ - The best way to get along is never to forgive an enemy or forget a friend.
+ - Here lies Walter Winchell in the dirt he loved so well.
+ - She’s been on more laps than a napkin.
+ - Hell hath no fury like a woman cheated out of a million dollars.
+ - The way to become famous fast is to throw a brick at someone who is famous.
+ - I usually get my stuff from people who promised somebody else that they would keep it a secret.
+ - Hollywood is where they shoot too many pictures and not enough actors.
+ - A pessimist is one who builds dungeons in the air.
+ - Hollywood is a place where they place you under contract instead of under observation.
+ - Remember that nobody will ever get ahead of you as long as he is kicking you in the seat of the pants.
+ - We must not indulge in unfavorable views of mankind, since by doing it we make bad men believe they are no worse than others, and we teach the good that they are good in vain.
+ - A certain columnist has been banned from all Shubert openings. Now he can wait three days and go to their closings.
+ - The only ones who like Milton Berle are his mother – and the public.
+
+27 quotes

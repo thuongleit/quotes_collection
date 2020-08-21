@@ -1,0 +1,22 @@
+ - Time is change, transformation, evolution.
+ - A people’s memory is history; and as a man without a memory, so a people without a history cannot grow wiser, better.
+ - We take a drink only for the sake of the benediction.
+ - The worst dog gets the best bone.
+ - In this world it is very dangerous to be weak.
+ - A letter depends on how you read it, a melody on how you sing it.
+ - Ugliness is the greatest of all sins.
+ - To be of the eternal, you must be of the earth.
+ - A heap of bricks is not yet a house.
+ - Youth is fair, a graceful stag, Leaping, playing in a park. Age is gray, a toothless hag, Stumbling in the dark.
+ - A stranger’s rose is but a thorn.
+ - Many refined people will not kill a fly, but eat an ox.
+ - If the husband sits on a chair in the Garden of Eden, his wife is his footstool.
+ - Prosperity may be found in small as in big business.
+ - Don’t look up to heaven, for what will you see in the sky, except stars, luminous but cold, wholly insensitive to pity?
+ - Prayer sometimes dulls the hunger of the pauper, like a mother’s finger thrust into the mouth of her starving baby.
+ - Purim is the birthday of the first Schutz-Jude, the first Jewish toady to foreign royalty.
+ - In the second and third exiles we have served as a living protest against greed and hate, against physical force, against “might makes right”!
+ - It is not only individuals peoples too cannot live merely for themselves. The whole world must be redeemed.
+ - At the Throne of Glory it is not the nobly-born that are beloved, but the nobly-risen.
+
+20 quotes

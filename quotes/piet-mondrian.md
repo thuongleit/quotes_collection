@@ -1,0 +1,33 @@
+ - The only problem in art is to achieve a balance between subjective and objective.
+ - The more basic the color, the more inward, the more pure.
+ - Curves are so emotional.
+ - Everything is expressed through RELATIONSHIPS.
+ - All painting – the painting of the past as well as of the present – shows us that its essential plastic means were only line and color.
+ - The surface of things gives enjoyment, their interiority gives life.
+ - The truly modern artist is aware of abstraction in an emotion of beauty.
+ - Intellect confuses intuition.
+ - It is a task of art to express clear vision of reality.
+ - I, too, find the flower beautiful in its outward appearance. But a deeper beauty lies concealed within.
+ - Every true artist has been inspired more by the beauty of lines and color and the relationships between them than by the concrete subject of the picture.
+ - The position of the artist is humble. He is essentially a channel.
+ - Art is not made for anybody and is, at the same time, for everybody.
+ - In past times when one lived in contact with nature, abstraction was easy; it was done unconsciously. Now in our denaturalized age abstraction becomes an effort.
+ - To approach the spiritual in art, one will make as little use as possible of reality, because reality is opposed to the spiritual.
+ - By the unification of architecture, sculpture and painting a new plastic reality will be created.
+ - What is natural does not have to be a representation of something. I’m now working on a thing that is a reconstruction of a starry sky, and yet I’m making it without a given from nature. Someone who says he uses a theme from nature can be right, but also someone who says he uses nothing at all.
+ - The emotion of beauty is always obscured by the appearance of the object. Therefore, the object must be eliminated from the picture.
+ - I hate everything approaching temperamental inspiration,’sacred fire’and all those attributes of genius which serve only as cloaks for untidy minds.
+ - I don’t want pictures, I want to find things out.
+ - The purer the artist’s ‘mirror’ is, the more true reality reflects in it. Overseeing the historical culture of art, we must conclude that the mirror only slowly is purified. Time producing this purifying shows a gradual, more constant and objective image of reality.
+ - I wish to approach truth as closely as is possible, and therefore I abstract everything until I arrive at the fundamental quality of objects.
+ - If the universal is the essential, then it is the basis of all life and art. Recognizing and uniting with universal therefore gives us the greatest aesthetic satisfaction, the greatest emotion of beauty. the more this union with the universal is felt, the more individual subjectivity declines.
+ - Reality manifests itself as constant and objective – independent of us, but as changeable in space and time. Consequently, its reflection in us contains both properties. Mixed up in our mind, these properties are confused and we do not have a proper image of reality.
+ - Cubism did not accept the logical consequences of its own discoveries; it was not developing abstraction towards its own goal, the expression of pure reality.
+ - This new plastic idea will ignore the particulars of appearance, that is to say, natural form and colour. On the contrary, it should find its expression in the abstraction of form and colour, that is to say, in the straight line and the clearly defined primary colour.
+ - Why should art continue to follow nature when every other field has left nature behind?
+ - Observing sea, sky and stars, I sought to indicate their plastic function through a multiplicity of crossing verticals and horizontals. Impressed by the vastness of Nature, I was trying to express its expansion, rest and unity.
+ - The relation of color and the relation of proportion are both based on the relation of position.
+ - The colored planes, as much by position and dimension as by the greater value given to color, plastically express only relationships and not forms.
+ - In art the search for a content which is collectively understandable is false; the content will always be individual.
+
+31 quotes

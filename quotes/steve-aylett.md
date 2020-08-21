@@ -1,0 +1,35 @@
+ - A sniper is like a genius – it’s not enough to be one, you have to be one at something.
+ - The most amusing thing about a pantomime horse is the necessity of having to shoot it twice.
+ - In America, fundamentalist Christians believe the world was created 6,000 years ago – in England people drink in bars that are older than that.
+ - A society will manufacture an image of progress and locate it in the direction it wishes to take us.
+ - An office is a machine for dying.
+ - Hang up the phone on a vampire, the definition of carefree.
+ - Let us forget the past – this is the only way to be genuinely surprised.
+ - A hundred percent of marriages end in divorce, disappearance or death.
+ - Fractal litigation, whereby the flapping of a butterfly’s wings on one side of the world resulted in a massive compensation claim on the other.
+ - Stab me if you can enjoy it – but not if it feels like a duty. Stab me vertically if I’m lying down and horizontally if I’m running.
+ - Originality irritates so obscurely that people may have to evolve to scratch it.
+ - The great thing about being ignored is that you can speak the truth with impunity.
+ - From space this Earth is incandescent with abominations – the gods write their signature in our entrails.
+ - The best way of getting into something is to think of it as mischief.
+ - A key and a strangler – this is all a simple tale requires.
+ - Ideas are self-replenishing, like snot.
+ - Biting enemies seems to be acceptable in a surprisingly narrow range of circumstances, or so a ninja shouted at me once.
+ - How many times does a man have to shave before his chin gets the message?
+ - One thing you’ll say for skeletons, they’ll always give you a smile.
+ - Most books are so well written they barely have any effect on the reader’s senses.
+ - Honesty is the voice that is acceptable in every matter.
+ - Gun stripping is the tea ceremony of America.
+ - What’s life in this nation? Collect emptiness in a household of cornflakes. Transient fuel gobbles attention, the television aches, the truth walks. Scheme worms welcome your corpse, trap clicks and you’re in heaven, bored rigid.
+ - Sanity’s a virginity of the mind.
+ - Since childhood I’d been suspected of imagination.
+ - I knew books could see people around them, they ground their tiny teeth, tried to rattle like windows, stories to tell.
+ - He has been positively growing tusks trying to create a breed of human insect which will continue to live on this accursed planet. Everyone needs a goal.
+ - The law is where reality goes to die.
+ - Dreams always end before you kill the last person.
+ - In books there’s nothing of the fish covered in the coldness of the sea, or the feeling of a star touching space. Bad for business.
+ - What happens when the hitcher and the driver are equally murderous?
+ - One golfer a year is hit by lightning. This may be the only evidence we have of God’s existence.
+ - The optimist sees the future as a rabbit sees the oncoming truck – getting bigger, not closer.
+
+33 quotes

@@ -1,0 +1,93 @@
+ - Without translation, I would be limited to the borders of my own country. The translator is my most important ally. He introduces me to the world.
+ - Photography has a meaning only if it exhausts all possible images.
+ - Cities, like dreams, are made of desires and fears.
+ - The ultimate meaning to which all stories refer has two faces: the continuity of life, the inevitability of death.
+ - I’m reading! I don’t want to be disturbed!
+ - Writing always means hiding something in such a way that it then is discovered.
+ - The ideal place for me is the one in which it is most natural to live as a foreigner.
+ - You take delight not in a city’s seven or seventy wonders, but in the answer it gives to a question of yours.
+ - Melancholy is sadness that has taken on lightness.
+ - Sometimes one who thinks himself incomplete is merely young.
+ - My confidence in the future of literature consists in the knowledge that there are things that only literature can give us, by means specific to it.
+ - Futures not achieved are only branches of the past: dead branches.
+ - The word connects the visible trace with the invisible thing, the absent thing, the thing that is desired or feared, like a frail emergency bridge flung over an abyss.
+ - When I’m writing a book I prefer not to speak about it, because only when the book is finished can I try to understand what I’ve really done and to compare my intentions with the result.
+ - The more enlightened our houses are, the more their walls ooze ghosts.
+ - There is no language without deceit.
+ - A classic is a book that has never finished saying what it has to say.
+ - Each sort of cheese reveals a pasture of a different green, under a different sky.
+ - In love, as in gluttony, pleasure is a matter of the utmost precision.
+ - Everything has already begun before, the first line of the first page of every novel refers to something that has already happened outside the book.
+ - Arriving at each new city, the traveler finds again a past of his that he did not know he had: the foreignness of what you no longer are or no longer possess lies in wait for you in foreign, unpossessed places.
+ - It is not the voice that commands the story: it is the ear.
+ - You are about to begin reading Italo Calvino’s new novel, If on a winter’s night a traveler.
+ - Memories images, once they are fixed in words, are erased.
+ - Everything can change, but not the language that we carry inside us, like a world more exclusive and final than one’s mother’s womb.
+ - You know that the best you can expect is to avoid the worst.
+ - Memory is redundant: it repeats signs so that the city can begin to exist.
+ - Biographical data, even those recorded in the public registers, are the most private things one has, and to declare them openly is rather like facing a psychoanalyst.
+ - It is within you that the ghosts acquire voices.
+ - In abortion, the person who is massacred, physically and morally, is the woman.
+ - In politics, as in every other sphere of life, there are two important principles for a man of any sense: don’t cherish too many illusions, and never stop believing that every little bit helps.
+ - Literature remains alive only if we set ourselves immeasurable goals, far beyond all hope of achievement. Only if poets and writers set themselves tasks that no one else dares imagine will literature continue to have a function.
+ - When politicians and politically minded people pay too much attention to literature, it is a bad sign – a bad sign mostly for literature. But it is also a bad sign when they don’t want to hear the word mentioned.
+ - Myth is the hidden part of every story, the buried part, the region that is still unexplored because there are as yet no words to enable us to get there. Myth is nourished by silence as well as by words.
+ - The universe is the mirror in which we can contemplate only what we have learned to know in ourselves.
+ - Nobody looks at the moon in the afternoon, and this is the moment when it would most require our attention, since its existence is still in doubt.
+ - Elsewhere is a negative mirror. The traveler recognizes the little that is his, discovering the much he has not had and will never have.
+ - Work stops at sunset. Darkness falls over the building site. The sky is filled with stars. “There is the blueprint,” they say.
+ - The city of cats and the city of men exist one inside the other, but they are not the same city.
+ - At times the mirror increases a thing’s value, at times denies it.
+ - A classic is a book which with each rereading offers as much of a sense of discovery as the first reading.
+ - Traveling, you realize that differences are lost: each city takes to resembling all cities, places exchange their form, order, distances, a shapeless dust cloud invades the continents.
+ - They knew each other. He knew her and so himself, for in truth he had never known himself. And she knew him and so herself, for although she had always known herself she had never been able to recognize it until now.
+ - Knowledge of the world means dissolving the solidity of the world.
+ - Very often the effort men put into activities that seem completely useless turns out to be extremely important in ways no one could foresee. Play has always been the mainspring of culture.
+ - If you want to know how much darkness there is around you, you must sharpen your eyes, peering at the faint lights in the distance.
+ - The sea where living creatures were at one time immersed is now enclosed within their bodies.
+ - You reach a moment in life when, among the people you have known, the dead outnumber the living. And the mind refuses to accept more faces, more expressions: on every new face you encounter, it prints the old forms, for each one it finds the most suitable mask.
+ - The struggle of literature is in fact a struggle to escape from the confines of language; it stretches out from the utmost limits of what can be said; what stirs literature is the call and attraction of what is not in the dictionary.
+ - The human race is a zone of living things that should be defined by tracing its confines.
+ - To fly is the opposite of traveling: you cross a gap in space, you vanish into the void, you accept not being in a place for a duration that is itself a kind of void in time; then you reappear, in a place and in a moment with no relation to the where and when in which you vanished.
+ - Reading is going toward something that is about to be, and no one yet knows what it will be.
+ - Who are we, who is each one of us, if not a combinatoria of experiences, information, books we have read, things imagined?
+ - The unconscious is the ocean of the unsayable, of what has been expelled from the land of language, removed as a result of ancient prohibitions.
+ - What Romantic terminology called genius or talent or inspiration is nothing other than finding the right road empirically, following one’s nose, taking shortcuts.
+ - It is only through the confining act of writing that the immensity of the nonwritten becomes legible.
+ - You’ll understand when you’ve forgotten what you understood before.
+ - One reads alone, even in another’s presence.
+ - A classic is the term given to any book which comes to represent the whole universe, a book on a par with ancient talismans.
+ - The best introduction to the psychological world of one of the most important and gifted writers of our time.
+ - Falsehood is never in words; it is in things.
+ - Who are we, who is each one of us, if not a combination of experiences, information, books we have read, things imagined? Each life is an encyclopedia, a library, an inventory of objects, a series of styles, and everything can be constantly shuffled and reordered in every way conceivable.
+ - I will start out this evening with an assertion: fantasy is a place where it rains.
+ - The line between the reality that is photographed because it seems beautiful to us and the reality that seems beautiful because it has been photographed is very narrow.
+ - In general confusion youth recognizes itself and rejoices.
+ - Novelists tell that piece of truth hidden at the bottom of every lie.
+ - A human being becomes human not through the casual convergence of certain biological conditions, but through an act of will and love on the part of other people.
+ - Every time I must find something to do that will look like something a little beyond my capabilities.
+ - The catalogue of forms is endless: until every shape has found its city, new cities will continue to be born. When the forms exhaust their variety and come apart, the end of cities begins.
+ - The more one was lost in unfamiliar quarters of distant cities, the more one understood the other cities he had crossed to arrive there.
+ - It’s better not to know authors personally, because the real person never corresponds to the image you form of him from reading his books.
+ - The soul is often in the surface, and the importance of ‘depth’ is overestimated.
+ - So you begin to wonder if Leonia’s true passion is really, as they say, the enjoyment of new and different things, and not, instead, the joy of expelling, discarding, cleansing itself of a recurrent impurity.
+ - Nobody these days holds the written word in such high esteem as police states do.
+ - Today each of you is the object of the other’s reading, one reads in the other the unwritten story.
+ - Now, the old man happened to be the Lord.
+ - Novels as dull as dishwater, with the grease of random sentiments floating on top.
+ - Revolutionaries are more formalistic than conservatives.
+ - We could say, then, that man is an instrument the world employs to renew its own image constantly.
+ - What harbor can receive you more securely than a great library?
+ - I have tried to remove weight, sometimes from people, sometimes from heavenly bodies, sometimes from cities; above all I have tried to remove weight from the structure of stories and from language.
+ - I do not have any political commitments anymore. I’m politically a total agnostic; I’m one of the few writers in Italy who refuses to be identified with a specific political party.
+ - The city, however, does not tell its past, but contains it like the lines of a hand.
+ - I am a prisoner of a gaudy and unlivable present, where all forms of human society have reached an extreme of their cycle and there is no imagining what new forms they may assume.
+ - The satirist is prevented by repulsion from gaining a better knowledge of the world he is attracted to, yet he is forced by attraction to concern himself with the world that repels him.
+ - Each new Clarice, compact as a living body with its smells and its breath, shows off, like a gem, what remains of the ancient Clarices, fragmentary and dead.
+ - If a lover is wretched who invokes kisses of which he knows not the flavor, a thousand times more wretched is he who has had a taste of the flavor and then had it denied him.
+ - How well I would write if I were not here!
+ - For the man who thought he was Man there is no salvation.
+ - The things that the novel does not say are necessarily more numerous than those it does say and only a special halo around what is written can give the illusion that you are reading also what is not written.
+ - Cities, like dreams, are made of desires and fears, even if the thread of their discourse is secret, their rules are absurd, their perspectives deceitful, and everything conceals something else.
+
+91 quotes

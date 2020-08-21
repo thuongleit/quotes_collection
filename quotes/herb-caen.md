@@ -1,0 +1,27 @@
+ - The precise location of heaven on earth has never been established but it may very well be right here.
+ - Logic is no answer to passion.
+ - There are a thousand viewpoints in the viewtiful city.
+ - I sometimes worry about my short attention span, but not for long...
+ - Isn’t it nice that people who prefer Los Angeles to San Francisco live there?
+ - We are reorganizing in order to eliminate duplication and redundancy.
+ - All American cars are basically Chevrolets.
+ - Martinis are like breasts, one isn’t enough, and three is too many.
+ - A city is not gauged by its length and width, but by the broadness of its vision and the height of its dreams.
+ - I have a memory like an elephant. I remember every elephant I’ve ever met.
+ - San Francisco isn’t what it used to be, and it never was.
+ - The clock doesn’t matter in baseball. Time stands still or moves backwards. Theoretically, one game could go on forever. Some seem to.
+ - I tend to live in the past because most of my life is there.
+ - Just two days in Manhattan and you find yourself looking for a place to wash your handkerchief after you wipe your forehead and it comes away black. Is there a dirtier or more fascinating city anywhere in the land? The answer to both parts of the question has to be positively negative.
+ - A city is a state – of mind, of taste, of opportunity. A city is a marketplace – where ideas are traded, opinions clash and eternal conflict may produce eternal truths.
+ - The trouble with born-again Christians is that they are an even bigger pain the second time around.
+ - Best trumpet: Mike Vax, an alumnus of the Kenton Band, who plays every style with a bright cutting edge, throwing in bop riffs here and there.
+ - The waterfront without the Ferry Tower would be like a birthday cake without a candle.
+ - Baffling late-life discovery: Golfers wear those awful clothes on purpose.
+ - Americans are pragmatic, relatively uncomplicated, hearty and given to broad humor.
+ - God! I loove this city!
+ - The world of Manhattan is small and tightly knit, and the man on top retains a certain humility. He knows how far and fast he can fall by looking at the guy across the street. The view from the $250,000 apartment covers a lot of ground, most of it condemned.
+ - It is better to have loved and lost, but only if you have a good attorney.
+ - When a place advertises itself as ‘World Famous,’ you may be sure it isn’t.
+ - Satire of satire tends to be self-canceling, and deliberate shock tactics soon lose their ability to shock, especially when they’re too deliberate.
+
+25 quotes

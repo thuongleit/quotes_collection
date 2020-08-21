@@ -1,0 +1,191 @@
+ - We spend money that we do not have, on things we do not need, to impress people who do not care.
+ - Fear is not real. It is a product of thoughts you create. Do not misunderstand me. Danger is very real. But fear is a choice.
+ - Talent you have naturally. Skill is only developed by hours and hours and hours of beating on your craft.
+ - Don’t ever let someone tell you that you can’t do something. You got a dream, you gotta protect it. When people can’t do something themselves, they are going to tell you that you can’t do it. You want something, go get it. Period.
+ - Being realistic is the most common path to mediocrity.
+ - Running and reading are the keys of life.
+ - There's no reason to have a plan B because it distracts from plan A.
+ - You don’t set out to build a wall. You don't say ‘I’m going to build the biggest, baddest, greatest wall that’s ever been built.’ You don’t start there. You say, ‘I’m going to lay this brick as perfectly as a brick can be laid.’ You do that every single day. And soon you have a wall.
+ - Stop letting people who do so little for you control so much of your mind, feelings and emotions.
+ - Don’t chase people. Be yourself, do your own thing and work hard. The right people – the ones who really belong in your life – will come to you. And Stay.
+ - The road to success is through commitment.
+ - Don’t compare yourself to others. That’s when you start to lose confidence in yourself.
+ - There are so many people who have lived and died before you. You will never have a new problem; you're not going to ever have a new problem. Somebody wrote the answer down in a book somewhere.
+ - If you’re absent during my struggle, don’t expect to be present during my success.
+ - Never underestimate the pain of a person, because in all honesty, everyone is struggling. Some people are just better at hiding it than others.
+ - The person that works the hardest wins.
+ - The greatest dreams are always unrealistic.
+ - You want something? Go get it.
+ - Throughout life people will make you mad, disrespect you and treat you bad. Let God deal with the things they do, cause hate in your heart will consume you too.
+ - I want the world to be better because I was here. I want my life, I want my work, my family, I want it to mean something and if you are not making someone else’s life better then you are wasting your time.
+ - Those who say I can, and those who say I can’t – are both usually right.
+ - I know who I am, I know what I believe, that’s all I need to know. From there, you do what you need to do.
+ - Danger is very real but fear is a choice.
+ - Don’t let failure go to your heart, and don’t let success go to your head.
+ - And where I excel is ridiculous, sickening, work ethic. You know, while the other guy’s sleeping? I’m working.
+ - Make a choice of what you want, who you want to be and how you’re going to do it. The universe will get out of your way.
+ - I want the world to be better because I was here.
+ - Fear is not real. The only place that fear can exist is in our thoughts of the future. It is a product of our imagination, causing us to fear things that do not at present and may not ever exist. That is near insanity. Do not misunderstand me danger is very real but fear is a choice.
+ - Begin each day as if it were on purpose.
+ - I don’t want to be an icon. I want to be an idea. I want to represent possibilities.
+ - I’m motivated by fear. Fear of fear. I hate being scared to do something. And I think what developed in my early days was the attitude that I started attacking things that I was scared of.
+ - The keys to life are running and reading.
+ - I’m not afraid to die on a treadmill.
+ - You are who you associate with. Look around at your five closest friends and that’s who you are. If you don’t want to be that person, you know what you gotta do.
+ - Can I say something? Um, I’m the type of person that if you ask me a question and I don’t know the answer, I’m gonna tell you that I don’t know. But I bet you what, I know how to find the answer and I will find the answer.
+ - Sometimes you have to forget what’s gone, appreciate what still remains, and look forward to what’s coming next.
+ - I love you and I’m here for you.
+ - You’ll never achieve 100 percent if 99 percent is okay.
+ - I do not have to build a perfect wall today. I just have to lay a perfect brick.
+ - I’ve always considered myself to be just average talent and what I have is a ridiculous insane obsessiveness for practice and preparation.
+ - Money and success don’t change people; they merely amplify what is already there.
+ - Remember, don’t try to build the greatest wall that’s ever been built. Focus on laying a single, expertly-placed brick. Then keep doing that, every day.
+ - Never lie, steal, cheat, or drink. But if you must lie, lie in the arms of the one you love. If you must steal, steal away from bad company. If you must cheat, cheat death. And if you must drink, drink in the moments that take your breath away.
+ - Never lie to people, because the people you are able to lie to, are the people who trust you.
+ - Being realistic is the most commonly traveled road to mediocrity. Why would you be realistic? What’s the point of being realistic? I’m going to do it. It’s done. It’s already done. The second I decide it’s done, it’s already done.
+ - If you’re always ready, you don’t have to get ready.
+ - It’s better to be prepared than to get ready.
+ - I’d rather live my life knowing that I’m not perfect than spend my whole life pretending to be.
+ - Greatness lives on the edge of destruction.
+ - A sad thing in life is that sometimes you meet someone who means a lot to you, only to find out in the end it was never bound to be, and you just have to let go.
+ - Your life will become better by making other lives better.
+ - Greatness exists in all of us.
+ - The first step before anybody else in the world believes it, is that you believe it.
+ - There’s a certain delusional quality that all successful people have to have.
+ - So if you stay ready, you ain’t gotta get ready, and that is how I run my life.
+ - When I say I am going to run three miles, I run five. With that mentality, it is actually difficult to lose.
+ - Smiling is the best way to face every problem, to crush every fear, to hide every pain.
+ - If you’re not willing to work hard, let someone else do it. I’d rather be with someone who does a horrible job, but gives 110% than with someone who does a good job and gives 60%.
+ - Being realistic is the most commonly travelled road to mediocrity. What’s the point of being realistic? It’s unrealistic to walk into a room, flip a switch, and have light come on, but fortunately Edison didn’t think so.
+ - Don’t chase people. Be yourself, do your own thing and work hard.
+ - 10 ways to love: listen, speak, give, pray, answer, share, enjoy, trust, forgive, promise.
+ - The women who don’t seek attention are usually the women you need to be giving your attention to.
+ - The best feeling in the world is knowing that you actually mean something to someone.
+ - The first step is you have to say that you can.
+ - Be magic choose and believe that you can do anything you set your mind to believe. We are who we choose to be.
+ - Whatever your dream is, every extra penny you have needs to be going to that.
+ - I want to represent possibilities.
+ - Life is dangerous and you’re not gonna live a life without risk.
+ - The things that have been most valuable to me I did not learn in school.
+ - Anything can go away. There’s no such thing as safety and security. You can do things that give you the illusion of safety and security, but there’s really no such thing.
+ - I keep going because I doubt myself. It drives me to be better. I’ve learned that the mastery of self-doubt is the key to success. It’s like being animated by the love of a woman – the need to be worthy of her.
+ - I think my general disposition on life is finding what’s funny about it. When something happens, the first thing in my mind is, “What’s funny about it?”
+ - Everybody need a partner to stand right by their side. Not only down for the good times. But also down through the bad times.
+ - The game cannot be won, only played.
+ - You have to make every group you come in contact with better.
+ - I can’t run away when I’m scared. I always have to attack. That’s how I deal with seemingly difficult things.
+ - You play a part in every aspect of your life going the way you want or not going the way that you want. It has very little to do with other people.
+ - I want to represent the idea that you really can make what you want I believe I can create whatever I want to create.
+ - When you create art, the world has to wait.
+ - Give me a problem, I’ll give you a solution. I just love living. That’s a feeling you can’t fake. I’m glad every single day. I think that even the camera can feel that I’m a happy man.
+ - I believe you need to be educated about what you want to do in life, but I don’t believe you actually need college to get you there.
+ - You can’t win enough, you can’t have enough money, you can’t succeed enough. There is not enough.
+ - I read a Bruce Lee quote that shifted how I’m trying to live my life right now. He said, “Some targets are only meant to be aimed at.” Right? And I took that to mean a shift for myself from goal orientation to path orientation.
+ - I have a great time with my life, and I wanna share it.
+ - You can’t be scared to die for the truth. The truth is the only thing that is ever going to be constant.
+ - Human beings are not creatures of logic; we are creatures of emotion. And we do not care what’s true. We care how it feels.
+ - Boys laugh at what they put girls through – but they won’t be laughing when – they’re wiping tears off their daughters face for the same reason.
+ - I control every interaction with every human being I’m with. I can actually manage any situation with 98 percent of the people on Earth.
+ - We didn’t grow up with the sense that where we were was where we were gonna be. We grew up with the sense that where we were almost didn’t matter, because we will be becoming something greater.
+ - I’ve always been attracted to characters with insurmountable odds and obstacles, because innately, however inarticulately I’ve always believed that my dreams and my desires can command and bend time and space to be the things that I want them to be.
+ - I’ve trained myself to illuminate the things in my personality that are likable and to hide and protect the things that are less likeable.
+ - I honestly believe that if I decided to be the president of the United States, I could do it. That might sound foolish to some. But in my mind, if Ronald Reagan can become president, why not Will Smith?
+ - When you find things that are tried and true for millennia, you can bet that it’s going to happen tomorrow.
+ - There is nothing like having to change your physical form to put you in contact with every weak part of yourself, to train yourself in discipline. Put somebody on a treadmill and I’ll tell you how good they are at any other thing they do in life.
+ - Love is the ultimate theme, but it’s not just for women.
+ - The things that have been most valuable to me I did not learn in school. Traditional education is based on facts and figures and passing tests – not on a comprehension of the material and its application to your life.
+ - Even a blind squirrel finds an acorn now and again.
+ - It’s quite highly possible that I have peaked. I mean, I just can’t imagine what else I could do beyond this. It’s really a bittersweet kind of feeling.
+ - Begging for acknowledgment, or even asking, diminishes dignity and diminishes power.
+ - Adolf Hitler was a vile, heinous, vicious killer responsible for one of the greatest acts of evil committed on this planet.
+ - I’m a student of world religion, so to me, it’s hugely important to have knowledge and to understand what people are doing.
+ - Summer, summer, summertime time to sit back and unwind.
+ - I look at Bill Clinton, the way I look at Bill Gates. As long as my Microsoft stock is going up, I don’t care what Bill Gates does in the privacy of his own home.
+ - Make time for it. Just get it done. Nobody ever got strong by thinking about it. They did it.
+ - Even Hitler didn’t wake up going, ‘Let me do the most evil thing I can do today.’ I think he woke up in the morning and using a twisted, backwards logic, he set out to do what he thought was ‘good.’
+ - Correct me if I’m wrong, but isn’t driving around on a bus and having a campfire kind of adding to the environment problem?
+ - It feels like God visits everywhere else, but lives in Africa.
+ - My God, my higher power, it’s mine and mine alone. I create my connection, and I decide what my connection is going to be.
+ - Life is lived on the edge.
+ - I refuse to accept anything less than 100% of what I can achieve.
+ - Believing in yourself is the first step to accomplishing any goal. If you think you’re going to fail, you probably will.
+ - I love living. I think that’s infectious, it’s something you can’t fake.
+ - I don’t know what my calling is, but I want to be here for a bigger reason. I strive to be like the greatest people who have ever lived.
+ - If the world attacks and you slide off track, remember one fact, I got your back.
+ - Your words and thoughts have physical power.
+ - Just stay ready. Stay in shape and then you don’t have to rush to train before the movie starts. I’ll show you my abs later because I’m in shape. But that idea, if you stay ready, you don’t have to get ready.
+ - Our thoughts, our feelings, our dreams, our ideas, are physical in the universe.
+ - The guy who’s willing to hustle the most is gonna be the guy that just gets that loose ball.
+ - Probably means there’s a good chance. Possibly means we might or we might not.
+ - In my mind, I’ve always been an A-list Hollywood superstar. Y’all just didn’t know yet.
+ - There’s a certain delusional quality that all successful people have to have. You have to believe that something different than what has happened for the last 50 million years of history – you have to believe that something different can happen.
+ - There is no pain worse than not achieving a dream when it is your fault. If God did not want you to have it, that is one thing. But if you do not get what you desire because you are lazy, there is no pain worse than that.
+ - If you learn how to defeat that person when you’re running. You will know how to not quit when things get hard in your life.
+ - I like to look good, but I like my body to function well more than anything. For me, it’s as spiritual and intellectual as it is physical. And emotional. I enjoy pushing myself.
+ - I’ve never really viewed myself as particularly talented. I’ve viewed myself as slightly above average in talent.
+ - There’s nothing you’ve ever been successful at that you didn’t work on every day.
+ - What people are perceiving will dictate what their life and ultimately what your interaction is.
+ - I don’t necessarily believe in organized religion.
+ - As a child, I watched ‘Dallas’ and that was my vision for my life for as long as I could remember.
+ - You can’t break poor people mentality. Once you grow up poor, you don’t take anything for granted. It can have the negative side also because you can never truly be relaxed.
+ - We all want to be in love and find that person who is going to love us no matter how our feet smell, no matter how angry we get one day, no matter the things we say that we don’t mean.
+ - If anybody can find someone to love them and to help them through this difficult thing that we call life, I support that in any shape or form.
+ - You can cry, ain’t no shame in it.
+ - You can create whatever you want. You just have to know what you want and take the opportunities as they come your way. We are who we choose to be.
+ - The only man you will ever get is some fool named Grady who falls asleep in his soup.
+ - I had to focus and create a character in Bagger Vance, not just do my ‘Will Smith’ thing and get paid.
+ - I believe that eclecticism is a virtue. It may not be a word, but its definitely a virtue.
+ - There ain’t no problem that some other dude didn’t have 1,000 years ago.
+ - If it was something that I really committed myself to, I don’t think there’s anything that could stop me becoming President of the United States.
+ - She has got to have command of her body. So when she goes out into the world, she’s going out with a command that is hers. She is used to making those, decisions herself.
+ - I have fun. I enjoy my life. And I was hardwired for a deep connection between service, God, and happiness. You kind of need all of those things to be in play for one to have the others.
+ - Tons of women would love to have sex with me. I hate the image of black men as promiscuous and unable to control themselves sexually. I don’t like that image.
+ - Black people playing tennis, next white people will be tap dancing!
+ - The desire to be a good father is really innate. There aren’t a lot of movies that depict that relationship because men, we have to pretend that we’re not that emotional about it.
+ - Whatever you have is gonna die and you are gonna have to rebirth something new. You have to be willing to ride the waves.
+ - When I was young, and I’d get A’s, I’d get this good feeling of all the things that I could be. And then I’d never became any of them.
+ - I believe that my connection to my higher power, is separate from everybody else’s. I don’t believe that the Muslims have all the answers and I don’t believe the Christians or the Jews have all the answers.
+ - There’s so much negative imagery of black fatherhood. I’ve got tons of friends that are doing the right thing by their kids, and doing the right thing as a father – and how come that’s not as newsworthy?
+ - Thomas Jefferson was a real poet. He was slick with that ‘pursuit’ of happiness because the ‘pursuit’ puts it back on you.
+ - I’m a student of patterns. At heart, I’m a physicist. I look at everything in my life as trying to find the single equation, the theory of everything.
+ - I think it would be arrogant and borderline foolish to believe there’s no other life forms that exist out there.
+ - The execs don’t care what color you are. They care about how much money you make. Hollywood is not really black or white. It’s green.
+ - I love creating music and television and film. I love the hustle, I love the grind, I love working sixteen- and eighteen-hour days and waking up at four the next morning and going to the gym. I love that.
+ - My grandmother used to always say, ‘People need to be worth something.’
+ - I love being black in America, and especially being black in Hollywood.
+ - For me, there is nothing more valuable than how people feel in a movie theater about a movie.
+ - Being famous is such a gift for me because small things make people’s lives brighter. You just shake somebody’s hand. You just smile and write your name and people will talk about it for the rest of their lives.
+ - Part of being an actor is almost self-hypnosis during those brief moments when the cameras are rolling. You want to actually believe you’re Chris Gardner or Muhammad Ali.
+ - Any time you see a white guy in jail, you know he did something bad.
+ - I met my father for the first time when I was 28 years old. I made up my mind that when I had children, my children were going to know who their father was.
+ - Well, all I know is what I read in the papers.
+ - I was raised in a Baptist household, went to a Catholic church, lived in a Jewish neighborhood, and had the biggest crush on the Muslim girls from one neighborhood over.
+ - Just because the kid’s cute, doesn’t mean you’re not the father.
+ - I truly believe that I can be president of the US if I really want to.
+ - So to really be able to dive into what does it mean to be broken by an experience, and I developed it just through research and talking and understanding the truth of what it means to lose everything.
+ - Goofy was the word that was used most often by my sisters because I’ve been this tall ever since I was 12 years old.
+ - I’ve always been the goofy kid. Growing up, I always enjoyed the comedic aspect of relating to women. Even on camera, it was always the funny take on it.
+ - A rapper is about being completely true to yourself. Being an actor is about changing who you are.
+ - Coming from sitcom television and coming from music you burn up every single second. You don’t leave anything there. You burn it up and you pass out when you walk off stage, so I took that concept into acting.
+ - I’ve always been a jokester. The things I got in trouble for, when I was little, was always about making a joke or setting up a prank or being silly when I should be paying attention.
+ - My skin is hard when it comes to my music. But with my movies, I’m still a virgin in a lot of ways. I’m not used to being shot down for no reason.
+ - I want to take care of people. I want to help people. The maximum joy that I have is when I can create something that makes someone else’s life lighter, brighter, or better.
+ - Tommy Lee Jones is hilarious. I would say, if you look at the body of his work, the character he is most like is the one in ‘The Fugitive.’ That’s how he talks and jokes. That is the type of energy he has.
+ - When I was growing up, I installed refrigerators in supermarkets. My father was an electrical engineer.
+ - On learning to swim: I’m too big to have some woman hold my stomach and say ‘Now kick your feet.’
+ - I had a hit single on the radio for 30 days before I graduated from high school.
+ - Why is life at this point in the twentieth century so focused upon the very beginning of life and the very end of life? What about the 80 years we have to live between those two inexorable bookends?
+ - I feel like I could run for President. People often laugh, but if I set my mind to it, within the next 15 years I could be in the White House.
+ - One of my teachers used to call me Prince, because I always had a way of charming myself in and out of different situations.
+ - I first wanted to be a comedian when I was six or seven and my dad showed me Laurel and Hardy’s “Perfect Day” on tv.
+ - The big thing I tell my kids is you have to control how you label things. It’s very important to me they understand the power they have to create the lives that they want.
+ - Ninety percent of what youre saying isnt coming out of your mouth.
+ - It’s great to be black in Hollywood. When a black actor does something, it seems new and different just by virtue of the fact that he’s black.
+ - I love producing. I am loving doing that. I think that is my most natural space in the business. I just love producing or editing and that’s where I thrive.
+ - In black neighborhoods, everybody appreciated comedy about real life. In the white community, fantasy was funnier. I started looking for the jokes that were equally hilarious across the board, for totally different reasons.
+ - The first time that I performed as an actor was the first day on the set of ‘The Fresh Prince of Bel-Air.’
+ - I try to speak my points of view about black America, and how I feel about black men and the role that black men should play in their lives with their children and in their lives with their women.
+ - I think with movies I am really connecting to the Joseph Campbell idea of the collective unconscious.
+ - Give me about 10 years, I’m going to run for President. If I can squeeze in an NBA championship before that, I’ll do it.
+
+189 quotes

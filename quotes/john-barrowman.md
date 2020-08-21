@@ -1,0 +1,41 @@
+ - Never apologize for being nerdy.
+ - I’m one who will always speak my mind and say what I feel!
+ - Honestly, the world can be a dark enough place. Light it up.
+ - I think my biggest appeal for fans is probably the fact that I’m honest. I’m up front about who I am. I’m a little naughty. I have a naughty side and everybody knows that. But I know when to use that and when not to.
+ - I did archery when I was in high school. In our gym class we had two weeks of archery, and I remember taking the bow and arrow and firing it up and across the street into a car parking lot.
+ - You have to do bad things in order to become a hero. You have to make sacrifices.
+ - Love is love, no matter who you fall in love with, love is love, it can be painful, it can be wonderful.
+ - I was the one who taught my sister and my niece how to walk in high heels.
+ - You can be in the public eye all the time and still have a private life, but the important thing is to keep in touch with the people who put you there.
+ - I’ve always thought people would find a lot more pleasure in their routines if they burst into song at significant moments.
+ - There’s a lot of me in Captain Jack and there’s a lot of Captain Jack in me. And there is no pun intended.
+ - I would wish that people would accept people for who they are, not be judgemental, allow people to live their lives and enjoy themselves and that would be my wish for people.
+ - I’ve always said in my career and in my life I only do things I’m interested in.
+ - I do tend to eat healthily most of the time, but I don’t restrict myself. I believe in eating anything and everything in moderation and doing some exercise.
+ - I live my life openly and freely every day anyway, and do what I want to do, but I don’t take any great risks.
+ - I have a real passion for driving. Earlier on in my life I wanted to be a race car driver. But I don’t pay an extortionate amount of money for cars. I’m pretty frugal.
+ - I’m really passionate about pantomime because it is often the first introduction for a child to theatre, and if that child has a great experience at a pantomime they will continue to come year after year.
+ - My humour and my work ethic definitely come from my Scottish side, and I have to say the sense of humour doesn’t really translate when I’m in America.
+ - I’m a fan of comic books. I’m a nerd. I’m a geek. I’m all that stuff.
+ - It’s taken me 30 years to get this way, and I don’t intend to let go. I work hard, but I play hard, too, and that’s the one part of me that nobody sees. But I intend to be around for a long time yet.
+ - Have I ever been the shy retiring type? Never. Not since the day I was born.
+ - I don’t think nudity is a bad thing, I don’t think people should be embarrassed about their bodies, and I don’t mind whipping it out.
+ - You know, every year ‘Torchwood’ has become something a little different than it was before. It’s still sci-fi, but it doesn’t just deal with spaceships and aliens all the time, because we’ve done that. Our science fiction is more psychological.
+ - I don’t feel sorry for myself, because I’m living my dream. Even when I was a little boy I used to stand in the playground and pretend I was on ‘Opportunity Knocks.’
+ - The one thing that makes ‘Torchwood’ work so brilliantly and makes it a little bit above the rest of all other sci-fi dramas out there is that we have a sense of humour.
+ - If you put a label on yourself, people will pigeonhole you.
+ - We get the scripts before the table read, but I don’t look at them until we go into the table read. I don’t want to know, when I’m playing a moment in the current episode, what’s going to happen because it might change how I’m playing that.
+ - I’m lively when I perform and I always put everything into a show, but when I get home I love lying down in front of the TV and relaxing.
+ - When I was younger I wanted to be an airline pilot, but that lasted for about 30 seconds.
+ - If you do something and it goes wrong, you learn from it and you move on.
+ - Whenever I’m in Glasgow I go and stand outside the front of the house I grew up in, which is in Mount Vernon.
+ - For some reason I seem to be a massive hit with middle-aged women. I seriously don’t know what it is.
+ - I find with television, you have to play personality, whereas onstage, everyone talks about ‘the character,’ and what you do. It’s a very different thing, because stage is much bigger, but on television, for things to come across to the public, I think you have to play a bit of your personality.
+ - As an actor, I only play what is in the moment, rather than in the future, but sometimes the past is more important than what is coming up in the future.
+ - I don’t call myself an actor, I call myself an entertainer, because I don’t just do one thing.
+ - I’m not one of those actors who likes to analyze things too much, so I trust what the writers are doing with the characters, in order to give them their journey. My job is to come in and try to make those words on the page come alive on camera.
+ - It wasn’t until I got involved in ‘Doctor Who’ that I started doing dramas on television.
+ - I am not one of those actors who dwells on the histrionics and the subtext and future text of the character. I deal with the scenes that I’m doing at that specific time, because if I do that, they play in more of a real way.
+ - In everything I do, I find some of myself, or a lot of myself, and put it into the role.
+
+39 quotes

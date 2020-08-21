@@ -1,0 +1,23 @@
+ - We are all bound up together in one great bundle of humanity, and society cannot trample on the weakest and feeblest of its members without receiving the curse in its own soul.
+ - Intense love is often akin to intense suffering.
+ - My hands were weak, but I reached them out To feebler ones than mine, and over the shadow of my life Stole the light of a peace divine.
+ - A room to myself is a luxury that I do not always enjoy.
+ - Slavery is dead, but the spirit which animated it still lives.
+ - So close is the bond between man and woman that you can not raise one without lifting the other. The world can not move ahead without woman’s sharing in the movement, and to help give a right impetus to that movement is woman’s highest privilege.
+ - If we have had no past, it is well for us to look hopefully to the future – for the shadows bear the promise of a brighter coming day...
+ - I belong to this race, and when it is down I belong to a down race; when it is up I belong to a risen race.
+ - I like the character of Moses. He is the first disunionist we read of in the Jewish Scriptures.
+ - Apparent failure may hold in its rough shell the germs of a success that will blossom in time, and bear fruit throughout eternity.
+ - Every mother should endeavor to be a true artist.
+ - As the saffron tints and crimson flushes of morn herald the coming day, so the social and political advancement which woman has already gained bears the promise of the rising of the full-orbed sun of emancipation. The result will be not to make home less happy, but society more holy.
+ - I do not think the mere extension of the ballot a panacea for all the ills of our national life. What we need to-day is not simplymore voters, but better voters.
+ - Amid ancient lore the Word of God stands unique and pre-eminent. Wonderful in its construction, admirable in its adaptation, it contains truths that a child may comprehend, and mysteries into which angels desire to look.
+ - No man can feel the iron which enters another man’s soul.
+ - True politeness is to social life what oil is to machinery, a thing to oil the ruts and grooves of existence. False politeness can shine without warming and glitter without vivifying.
+ - There is material among us for the broadest comedies and the deepest tragedies, but, besides money and leisure, it needs patience, perseverance, courage, and the hand of an artist to weave it into the literature of the country.
+ - The true aim of female education should be, not a development of one or two, but all the faculties of the human soul, because no perfect womanhood is developed by imperfect culture.
+ - One needs both leisure and money to make a successful book.
+ - Oh, could slavery exist long if it did not sit on a commercial throne?
+ - The respect that is only bought by gold is not worth much.
+
+21 quotes

@@ -1,0 +1,228 @@
+ - Life is very interesting.. In the end, some of your greatest pains, become your greatest strengths.
+ - Life’s too short. We have to love each other.
+ - If you don’t take risks, you’ll have a wasted soul.
+ - Happiness is a choice. You have to choose it – and you have to fight for it.
+ - I am not someone who is ashamed of my past. I’m actually really proud. I know I made a lot of mistakes, but they, in turn, were my life lessons.
+ - I think happiness is what makes you pretty. Period. Happy people are beautiful. They become like a mirror and they reflect that happiness.
+ - I’m okay with the idea that slow and steady wins the race.
+ - Love is the hardest habit to break, and the most difficult to satisfy.
+ - I’ve always loved butterflies, because they remind us that it’s never too late to transform ourselves.
+ - I pray to be like the ocean, with soft currents, maybe waves at times. More and more, I want the consistency rather than the highs and the lows.
+ - I think a breakup can be the beginning of a friendship. That’s not me trying to make everything OK – it’s me saying, “No, we love each other. Let’s not pretend we don’t.”
+ - I don’t want to sit around and hope good things happen. I want to make them happen.
+ - Feeding a child at school is such a simple thing – but it works miracles.
+ - Trust that things will be okay – especially if you put in the time and effort to make them be okay.
+ - I believe that everything happens for a reason, but I think it’s important to seek out that reason – that’s how we learn.
+ - I never regret anything. Because every little detail of your life is what made you into who you are in the end.
+ - I don’t know anybody’s road who’s been paved perfectly for them, there are no manuals, you don’t know what life has in store for you.
+ - There’s a big world out there. Bigger than prom, bigger than high school, and it won’t matter if you were the prom queen or the quarterback of the football team or the biggest nerd. Find out who you are and try not to be afraid of it.
+ - My twenties were about exploring love and being a wildflower and trying to figure everything out. Now I’m not comfortable being that happy wildflower anymore, but I still don’t feel like a woman. I wonder when that moment’s going to hit.
+ - I’m not after fame and success and fortune and power. It’s mostly that I want to have a good job and have good friends; that’s the good stuff in life.
+ - A fish may love a bird, but where would they live?
+ - The best kind of parent you can be is to lead by example.
+ - I have certainly had my share of long-distance love affairs.
+ - You can never, never have too many books.
+ - Daisies are like sunshine to the ground.
+ - Everyone is like a butterfly, they start out ugly and awkward and then morph into beautiful graceful butterflies that everyone loves.
+ - Life is not about focusing on the obstacles. It’s about how you handle them, and whether you get enlightenment or levity from the way you do it.
+ - I love being single. It’s great. I get to be who I am and do what I want and be with the people I love. I feel like I have everything and I’m very fortunate, and it’s very rich fulfilling time in my life.
+ - I think chemistry is finding something you love about a person and then transfering it to an in love kind of thing.
+ - When I lay my head on the pillow at night I can say I was a decent person today. That’s when I feel beautiful.
+ - Internet does not equal sodium pentothal.
+ - Don’t show your flaws.
+ - A lot of my business is about protecting creativity.
+ - A thank-you can be just as meaningful as a soulful ten-page message.
+ - I could never be cynical, not that I think there’s anything wrong with cynicism. I think it can be quite funny at times. But I just feel so grateful to be alive.
+ - A few years ago, I bought an old red bicycle with the words Free Spirit written across its side – which is exactly what I felt like when I rode it down the street in a tie-dyed dress.
+ - I don’t think that life happens by sitting back and waiting. People hold their cards so tight to their chest. Life is short. Tell people you love them. What’s the worst that’s going to happen?
+ - Sometimes you come to a point where there’s nothing more you can do. You love and respect each other, but it’s not working. So you amicably decide to part. I don’t know what the future holds: a lot of people get back together after they break up.
+ - Every morning I stay in bed for ten minutes to ponder my place in the universe. Then I wash my face and check my karma.
+ - I don’t want to be stinky poo poo girl, I want to be happy flower child.
+ - I took the stairs and felt like my childhood took the elevator.
+ - I just think everything is a learning experience and every moment that you have that actually feels good inside of your heart is an absolute blessing and a gift.
+ - I think there’s a tremendous amount of guilt that goes on between mothers and daughters, no matter how good or bad their relationships are. It kills girls inside when they think they’re letting their mothers down.
+ - I think that being happy makes the biggest impact on your physical appearance.
+ - Being pregnant and having a toddler, as every parent says, is amazing. You’re very tired, but it’s so wonderful. God, it’s emotional, but it’s the best. I wouldn’t want to be anywhere else.
+ - I no longer have the fear of being alone. It’s cool to find out that you don’t need a boyfriend to be happy.
+ - When I was 19, I picked up an old, tiny, automatic Yashica camera and I just started shooting. We didn’t have iPhones back then, we didn’t even have cell phones. I loved having a camera in my hand.
+ - I want people to love me, but it’s not going to hurt me if they don’t.
+ - I’m such a profound believer that timing is everything; I would tattoo that on my arm.
+ - I think I’m moody because I’m a woman. I can ask any man in this room, like women are just inherently like, moody or hormonal people. I don’t know how men deal with it. I praise them.
+ - It wasn’t my choice to be an open book, but when people found out what my life was like when I was 14 or 15, I didn’t deny it. I think the more imperfect you are, the more human you are.
+ - In a world and a life that moves so fast, photography just makes the sound go out and it makes you stop and take a pause. Photography calms me.
+ - There’s something liberating about not pretending. Dare to embarrass yourself. Risk.
+ - I try each day, each month, each year to become a better and better person and to be good to the people I love and let them know how much I appreciate them.
+ - I mean, I come from a hippie mentality where I just think to know someone, you need to look into their eyes. Eyes are so important. Until they start melon-balling eyes out, I won’t be able to get to know someone another way.
+ - If I die before my cat, I want a little of my ashes put in his food so I can live inside him.
+ - It’s never too late. Don’t focus on what was taken away. Find something to replace it, and acknowledge the blessing you have.
+ - From my perspective, there’s no reason to be afraid of aging, because if you age, you’re lucky! The alternative is death.
+ - I loved the world of roller derby because I thought it was such an empowering metaphor, that you get out there and do it. It’s such a rocker, athletic, capable, cool exhibitionist sport; it’s about this great sort of camaraderie.
+ - I love romance. I’m a sucker for it. I love it so much. It’s pathetic.
+ - Indecision is the most unsexy thing on the planet. I don’t know if I’m sexy but I think decisiveness is sexy. I also lose trust and faith in them when I realise I’m a bit on my own and that’s a very disheartening feeling.
+ - I think happiness is a choice. If you feel yourself being happy and can settle in to the life choices you make, then it’s great. It’s really, really great. I swear to God, happiness is the best makeup.
+ - Celebrity! It’s become the most disgusting word on the planet. It makes me sick to my stomach.
+ - You have to fight unhappiness like a dragon with fire and breathe.
+ - My therapist says I still haven’t got in touch with my anger. Maybe one day I’m going to explode. But I’m still really happy. I know it looks like a strange and painful upbringing – all those experiences led me to the paths that I’m on now.
+ - Women shouldn’t be burdened by what existed in their past, we should all learn how to turn pain into strength.
+ - I’m sure wine snobs look at me and think, how dare you.
+ - God made a very obvious choice when he made me voluptuous; why would I go against what he decided for me? My limbs work, so I’m not going to complain about the way my body is shaped.
+ - When things are perfect, that’s when you need to worry most.
+ - You can’t live your life blaming your failures on your parents and what they did or didn’t do for you. You’re dealt the cards that you’re dealt. I realised it was a waste of time to be angry at my parents and feel sorry for myself.
+ - It’s the worst when you’re kissing someone who’s not a good kisser, and you’re trying to make it look good, but you feel like you’re just working on your own.
+ - Great dad. Yeah, he would ask me for money on birthdays and, you know, inappropriate times. And I just wrote him off like, ‘You’re not a father.’ I just learned you cannot emotionally invest in people who are not attainable.
+ - To be honest, I don’t have data in my brain of how a relationship with a man is supposed to function.
+ - Just when you think you’re hitting your stride someone will shout “cut” and ask you to move your head to the left. It’s such an awkward process. You try to make it passionate but it ends up being mechanical.
+ - I wanna smoke pot, but I can’t, cause I’m too paranoid.
+ - I am who I am because of the people who influenced me growing up, and many of them were gay. No one has any right to tell anyone what makes a family.
+ - My life choices are not supposed to be the gateway to somebody else’s. That’s my journey.
+ - I have no regrets in my life whatsoever.
+ - I know that I won’t succeed at everything, every day. Some days have to be solely about my daughter. Some days I really try to be a good wife. Other days, I can take a few hours for myself and just do nothing but really focus on work.
+ - I’m glad I lived such a full life before I settled down into a family because I got to enjoy it and get it out of my system.
+ - I used to have a blankie, and when my mom had to wash it, I would sit outside the dryer and watch it go round and round, and cry.
+ - I’ve got Flossie dog, and she is great. She and I are still in love, 14 years. That’s a relationship that works.
+ - Once you’ve been in a mental institution, people are going to look at you funny.
+ - I aspire to be that, to be a voice of reason one day.
+ - To be really great and interesting, you have to be a little crazy. I just don’t think one comes without the other.
+ - I feel like some of my baby fat is going away, and that’s not just physically, it’s psychologically. I think that your body is in tune with your mind and your spirituality and your heart. If things are going better, I just think you look better.
+ - Speaking of important things, there are so many battles right now that people are fighting for that it’s overwhelming, but I am always in favor of people who crusade for the sake of people’s hearts and their well-being. That is what is important.
+ - I want people to be blown away when I do what they don’t expect.
+ - I started finding hearts in things – whether it was like, a tree I was passing, a straw wrapper on the ground; I think the heart has one continuous line, which is very powerful.
+ - You know you’re putting a good thing out into the universe when you put on glitter.
+ - My limbs work, so I’m not going to complain about the way my body is shaped.
+ - I still feel like I have a lot to prove. My biggest burning question is ‘How much more are you capable of?’
+ - One thing that got me started on it was the jean jacket. It’s an item that could make you believe you’re in the 50s or punk-rock 70s or grunge 90s. I was really focused on timelessness, and I think music is very timeless.
+ - I’m a very research-, homework-oriented person.
+ - There are a lot of us little gypsies out there that need to go and find another place you know. A safer, healthier or just a different venue in order to develop and find ourselves. I am so lucky to live the life that I do.
+ - If you’re going to be alive and on this planet, you have to, like, suck the marrow out of every day and get the most out of it.
+ - I love Tate Modern; there’s such great style and shopping here. I love the galleries and the pubs out on the street, just having your pint as the sun is setting.
+ - I love the very exposed, humorous, imperfect, never-trying to-pretend-to-be-perfect journey that I have been on in my life.
+ - The thing that has been weighing on my mind this week is that I wanted to go and save all the little live lobsters in restaurants and throw them back in the ocean. Imagine me being arrested for that.
+ - I make movies. I have a passion. Puppies and daisies don’t accomplish anything. That’s not me at all.
+ - What’s helped me is having really good friends I know I can rely on. Cameron Diaz is one of the greatest friends anyone can ever have. She has so much love to give.
+ - I decided very early on that it took too much of my energy to pretend to be someone else. People will make up their minds about me whatever I do or say, but at least I know I am being true to myself.
+ - I think Shazam is one of the coolest inventions on the planet, and whether I was in a thrift store or in my car, every other week I was Shazaming another Best Coast song.
+ - Everything I do, I do infinite percent.
+ - I don’t think that I have any musical talent.
+ - I have always been fond of recognizing the spiritual side of someone’s personality. It’s a very lovely concept.
+ - I never really had a childhood. I was around adults all the time. My favorite book when I was eight was “Everything You Always Wanted to Know About Sex – But Were Afraid to Ask”. I was not afraid to ask.
+ - I used to look in the mirror and feel shame, I look in the mirror now and I absolutely love myself.
+ - It’s embarrassing to go through any rebellious stage in front of people that you love and respect, and yet I’m glad I did.
+ - I can cook about two things. I can boil hot water for the only pasta I can make.
+ - I’m very sensitive to the English language. I studied the dictionary obsessively when I was a kid and collect old dictionaries. Words, I think, are very powerful and they convey an intention.
+ - I would love to be a travel writer. I’d be so stoked.
+ - I love inventive food, but I want the classic dishes to taste like how I remember them. I get a little bummed out when there is too much fancy stuff going on and it doesn’t resemble the original dish at all.
+ - I’ve never dated anybody older, actually. There are so many things I’m curious about, and I’d love to be able to say, “Teach me.” I want to learn from the people around me.
+ - I never want to get to the point where it’s all about my needs, and the hell with anybody else.
+ - My whole life, I’ve wanted to feel comfortable in my skin. It’s the most liberating thing in the world.
+ - I’m a real stay-at-home mom. I’m really hands-on. Everything else became secondary.
+ - I hate women who say they can eat whatever they want, because I don’t relate to that at all. It isn’t fair! I absolutely live for food.
+ - Kissing in the movies is a real art – figuring out where to put your heads so it looks good on camera. I have had other co-stars who couldn’t work that out, which made it a lot harder for me.
+ - No matter what the genre, I want to see me and my friends. I want to see reality. I want to see what we’re really like. I loved Bridesmaids. I thought it was the most honest portrayal of female friendship in such a long time.
+ - I don’t cook, I can’t cook, and it is really abominable to see me in the kitchen. I order in takeaway food or get my friends to cook because a lot of them are very good.
+ - I always thought I desperately wanted a husband and a big family, because I didn’t have it growing up.
+ - Whether you’re throwing up or breaking up, you want your girlfriend right there! I don’t trust women who don’t go to their girlfriends.
+ - California is an unbelievable state. One day I might be in a spiritual place like Joshua Tree, then before I know it, I’m eating groovy sushi in a mini-mall. I’m a Cali girl through and through.
+ - Oh, I love hugging. I wish I was an octopus, so I could hug 10 people at a time!
+ - I loved Duran Duran’s “Girls on Film” – it was really sexy and naughty and totally weird. When you’re a kid watching that stuff on television you’re like, “Well, we are opening up as a society!”
+ - I love writing, directing and photography; if I could figure out a way to put the three things together, that’s what I would love to do.
+ - I never act my characters – I am them.
+ - I really wanted a wonderful, traditional home for my kid.
+ - I’m a total control freak and love to participate in the design of every single aspect of life.
+ - I don’t really get into architecture in the hotel room. But maybe a little Feng Shui here and there.
+ - I like so many different kinds of chick flicks. I like rom-coms, I like female friendship movies.
+ - I just didn’t understand the American political system, and I felt really stupid about that.
+ - I really want to understand the mind so I can be more comfortable with the way people are. Being comfortable with people is incredibly important.
+ - I always leave a relationship with a sense of hope.
+ - And people say it all the time: ‘You’re a celebrity.’ No, I’m an actor. I’m a producer. I’m a director. I’m a toad. I’m roadkill. I’m anything but a celebrity.
+ - Everything I touched in the kitchen turned out crappy, no matter how closely I followed the recipe or copied the cooking show.
+ - I was raised in that generation where it was all ‘Women can have it all!’ and I don’t think you can. I think something falls off the table. The good thing is that the things that stay on the table become so much more important.
+ - The reason I started officially learning to cook was because when I first got pregnant, I had to face the sad fact that I didn’t even know how to boil an egg.
+ - I didn’t grow up in a traditional family, and I never had a family dinner around the table, so whenever I actually had a dinner ‘plan,’ it meant a lot to me; it made me feel excited and safe.
+ - Kissing – and I mean like, yummy, smacking kissing – is the most delicious, most beautiful and passionate thing that two people can do, bar none. Better than sex, hands down.
+ - I live for makeup and I like wine. These are my truths!
+ - I’ve spent a lot of time in my life dedicating myself to love or the pursuit of love or the understanding of love. And now I’ve stopped believing in happy endings and I’ve started believing in good days.
+ - People are like moths. First they are ugly and awkward, until they break out of their shell and become a beautiful butterfly.
+ - Sometimes get lost in the white noise of people’s anger and being super adamant on one side or the other. And what fails to happen is that you actually aren’t disseminating the information that you want to get across to these people.
+ - I feel like I came out of the womb and was punted – there you go, out in the world!
+ - I’d rather be a few pounds heavier and enjoy life than be worried all the time.
+ - Different cocktails for different Saturday nights.
+ - When you become very ill – raise your head. You will definitely see the sunlight.
+ - I think happiness is what makes you pretty.
+ - The more you do speak from the heart, rather than thumping the agenda, people will listen or relate or open themselves up more.
+ - I never have been insecure, because I see what a waste it is. I know there is a solution to insecurity. I don’t tend to be thrown by problems that don’t have solutions. And insecurity has a wealth of alternatives.
+ - The people I grew up around who I really liked were quick on the draw. It always just wowed me. And my mum would make weird funny comments. I can see in myself her self-deprecating, hippie humour. I can’t take myself too seriously.
+ - I think its nice when people find love, because I feel like everyone deserves it.
+ - Young girls come up to me all the time to ask for advice. They see me as a survivor.
+ - But in some ways, I’m like an old woman – lived it, seen it, done it, been there, have the T-shirt.
+ - You can’t treat a romantic relationship the same way you do a business one, by being bossy. It takes tender, compromising, loving tactics. And that’s such a different approach.
+ - I definitely don’t think that I’m hot doo-doo. I don’t.
+ - I looooove cookbooks. I cook a lot when I’m pregnant.
+ - I love romantic comedies that are set in a world. It’s not just a boy and a girl falling in love, out of love, and back in love.
+ - I don’t like working by a monitor. I stand right next to the camera, and I’m very performance-oriented. That really means everything to me, whether it’s doing an improv of a joke or an emotional scene, and everything in between.
+ - I cry a lot. I’ll cry because I see a person walking down the street looking lonely.
+ - I’m just learning who I am and how relationships work and how to make them function. No different from anyone else.
+ - I’m very homework-oriented – I’m a little Tracy Flick-ish.
+ - I always get nervous before a kissing scene. I make sure I always brush my teeth and eat lots of fruit and nice foods rather than garlic. I’m terribly self conscious.
+ - Some of the mini-worlds that filmmakers have created are so ingrained in my love of culture.
+ - I want to be with the man who wants to open a movie studio with me and make films for new, fresh filmmakers who aren’t getting a chance somewhere else. I haven’t yet had that type of partnership in a romantic relationship.
+ - When I was a kid, I got really great advice from someone who is so important to me and someone who I respect so much, and they told me, ‘Don’t do too many endorsements. Don’t throw your name on things; think of your longevity.’
+ - I think a any person who has a high profile job or who travels all the time or who has a lot of stress associated with their job can be difficult to be in a relationship with.
+ - My mother and I split ways when I was very young and have never really reconciled.
+ - Kisses, even to the air, are beautiful.
+ - I still can’t spell anything, but I can bust out two-dollar words.
+ - Oh, I would love to be a motivational speaker. I have pulled myself out of a million potholes, and I can see the potholes ahead of me. That doesn’t mean that I could always do that so perfectly for my own life. I totally fall in potholes.
+ - Both of my marriages have taught me the same lesson twice over really harsh: listen to your instincts. Don’t be a people pleaser.
+ - It’s only through listening that you learn, and I never want to stop learning.
+ - I am obsessed with ice cubes. Obsessed.
+ - I love working with the actors eye-to-eye. I think something gets lost in translation, not only through a monitor, but when you leave the area where the actual scene is taking place.
+ - Any acting roles will be few and far between until my kids are older and by then, who knows what I’ll want to do?
+ - I believe you can be the person that you dream of being.
+ - There’s a hunger and a fervor that I have, but there’s no person I’m going to push to the side to get where I’m going. I want to create my own road.
+ - If you’re 35 and single and it’s a choice, it feels fine. So I didn’t settle with the wrong person yet. Big deal!
+ - When it comes to business, I am a woman, and when it comes to relationships, I am a child. I just haven’t figured out how to bring the same confidence and conviction I have in the boardroom to my romantic relationships.
+ - Families in real life don’t tend to resolve things neatly.
+ - Sometimes I bust out and do things so permanent. Like tattoos and marriage.
+ - I’m so in control of my life, you shouldn’t dislike anything I do-because I’m not only in the best place I’ve ever been, but it keeps getting better and better.
+ - I did love horror films from the ’70s and ’80s. That was my sweet spot.
+ - When you’ve been locked up in a mental institution, people are going to ask questions. It was OK, because I didn’t have to act perfect all the time.
+ - I’ve been a vegetarian for years and years. I’m not judgemental about others who aren’t, I just feel I cannot eat or wear living creatures.
+ - I’ve approached so many things in my life with such intensity that I want to approach motherhood with dedication and focus.
+ - The older you get, the few slumber parties there are, and I hate that. I liked slumber parties. What happened to them?
+ - The low points I had all helped make up my character, so I probably wouldn’t want to do away with them because I like being flawed and I like having them help me grow and change and become better and stronger.
+ - Going back to Georgiana Drew and John Drew, and my great-grandfather Maurice Barrymore, and it was such a sort of circus of odd, interesting people that loved acting.
+ - As a kid I got to like hang out with Stephen King. That was like the highlight of my life. Cause I think he’s the raddest human being ever.
+ - I’m such a workaholic. I’m always thinking about work.
+ - I don’t like camera trickery and editing and doubles and all of that.
+ - I’ve always said that one night, I’m going to find myself in some field somewhere, I’m standing on grass, and it’s raining, and I’m with the person I love, and I know I’m at the very point I’ve been dreaming of getting to.
+ - I always like worlds where you could be in several different time periods.
+ - I try to be a good shiksa wife. I go to Central Synagogue in New York.
+ - But it’s all about confidence and allowing yourself to put your personality into it. I really am the worst singer on the planet; I make people cry and vomit when I sing.
+ - I feel really connected to these young ladies I get to work with; I’m dancing around with them and playing music for them. We sit down and get to know each other so we have a shorthand.
+ - I learned early on that family, as far as my mother and father, were not an option.
+ - Girls want to be with guys who have a sense of humor-it makes them far more attractive to us.
+ - In general, people are true to their signs.
+ - I’ve been producing for 13 years. I’ve made a string of joyful movies with positive messages about comedy, love and romance.
+ - My own mum cared about Hollywood, and I didn’t. I wanted to act, and I loved the creativity of it, but I didn’t care for the lifestyle.
+ - I’m certainly not an uptight home owner.
+ - I love movies, I love being a part of them, and this is the one occupation I love living and playing in and stressing myself out over.
+ - I’m a carb queen. I’ll always order macaroni and cheese, but I don’t want it to be fancy. I want it to be as close to Kraft Services as it can possibly get!
+ - I think that we all have to have that rite of passage of dating the tortured artist who seems cooler than we think we are; we aspire to be like them, and we’re excited that somebody is turning us on to new music or a new lifestyle.
+ - Nobdoy is solid and perfect all of the time.
+ - You’ve just got to do the best that you can.
+ - I can’t think of any issue that is more important than working to see that no schoolchild in this world goes hungry.
+ - As I’ve gotten older, I’ve really wanted to find more balance and calm.
+ - I try to make movies that I would want to go see rather than ones I would just want to do as an actor. I want people to have movies full of romance and hope and empowerment, something they can escape into and feel good about. I love happy endings.
+ - I just want to make sure I have a sense of balance between work and life, because work is my life and the lines can get really blurry.
+ - My life takes me all over the world, and I know how hard that can be on a relationship.
+ - I think the world offers so many wonderful varieties of obstacles, but that shouldn’t be one for kids – is the worry that ‘my parents wont be there.’
+ - Putting your name on something and having no idea how it came about if someone else did all the work – that’s not me.
+ - My culinary skills are terrible. I can’t even make toast taste good. I do make scrambled eggs for myself sometimes but I wouldn’t even inflict that on anyone else.
+ - I like women who like each other and empower each other.
+ - Being a Barrymore didn’t help me, other than giving me a great sense of pride and a strange spiritual sense that I felt OK about having the passion to act. It made sense because my whole family had done it and it helped rationalise it for me.
+ - It’s my crusade to help women feel good about themselves.
+ - I was born 10 years old.
+ - I grew up in a makeup chair, to see! the women around me getting ready was so aspirational, It is about mothers and daughters, a girl watching her mom at a vanity table.
+ - I can tell when an actor’s forcing tears, and it’s tricky because you then have to film it and edit in a certain way to skirt around the issue.
+ - When you work in film, you learn to appreciate a distributor. You can have this great little film, but if you don’t have a distributor, you are sitting in your living room with a great little film.
+
+226 quotes

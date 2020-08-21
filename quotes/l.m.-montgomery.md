@@ -1,0 +1,278 @@
+ - Isn’t it nice to think that tomorrow is a new day with no mistakes in it yet?
+ - I’m so glad I live in a world where there are Octobers. It would be terrible if we just skipped from September to November, wouldn’t it?
+ - Nothing is ever really lost to us as long as we remember it.
+ - My life is a perfect graveyard of buried hopes.
+ - It was November – the month of crimson sunsets, parting birds, deep, sad hymns of the sea, passionate wind-songs in the pines. Anne roamed through the pineland alleys in the park and, as she said, let that great sweeping wind blow the fogs out of her soul.
+ - In this world you’ve just got to hope for the best and prepare for the worst and take whatever God sends.
+ - It’s been my experience that you can nearly always enjoy things if you make up your mind firmly that you will.
+ - In everything you do aim to excel for what is worth doing is worth doing well.
+ - I’m so glad I live in a world where there are Octobers.
+ - Nothing worth while is every easy come by.
+ - We should regret our mistakes and learn from them, but never carry them forward into the future with us.
+ - Dear old world’, she murmured, ’you are very lovely, and I am glad to be alive in you.
+ - We pay a price for everything we get or take in this world; and although ambitions are well worth having, they are not to be cheaply won, but exact their dues of work and self denial, anxiety and discouragement.
+ - Next to trying and winning, the best thing is trying and failing.
+ - God’s in His heaven, alls right with the world’, whispered Anne softly.
+ - It’s not what the world holds for you. It’s what you bring to it.
+ - People laugh at me because I use big words. But if you have big ideas, you have to use big words to express them, haven’t you?
+ - Oh, it’s delightful to have ambitions. I’m so glad I have such a lot. And there never seems to be any end to them – that’s the best of it. Just as soon as you attain to one ambition you see another one glittering higher up still. It does make life so interesting.
+ - I am simply a ‘book drunkard.’ Books have the same irresistible temptation for me that liquor has for its devotee. I cannot withstand them.
+ - It’s dreadful what little things lead people to misunderstand each other.
+ - Which would you rather be if you had the choice – divinely beautiful or dazzlingly clever or angelically good?
+ - Good night, belovedest. Your sleep will be sweet if there is any influences in the wishes of your own.
+ - As a rule, I am very careful to be shallow and conventional where depth and originality are wasted.
+ - Gilbert, I’m afraid I’m scandalously in love with you.
+ - Nothing ever seems impossible in spring, you know.
+ - It’s delightful when your imaginations come true, isn’t it?
+ - Some people go through life trying to find out what the world holds for them only to find out too late that it’s what they bring to the world that really counts.
+ - A bosom friend – an intimate friend, you know – a really kindred spirit to whom I can confide my inmost soul.
+ - We ought always to try to influence others for good.
+ - Nothing mattered much to me for a time there, after you told me you could never love me, Anne. There was nobody else – there never could be anybody else for me but you. I’ve loved you ever since that day you broke your slate over my head in school.
+ - I wonder what it would be like to live in a world where it was always June.
+ - Nobody is ever too old to dream. And dreams never grow old.
+ - There might be some hours of loneliness. But there was something wonderful even in loneliness. At least you belonged to yourself when you were lonely.
+ - Humor is the spiciest condiment in the feast of existence. Laugh at your mistakes but learn from them, joke over your troubles but gather strength from them, make a jest of your difficulties but overcome them.
+ - She wanted to be alone – to think things out – to adjust herself, if it were possible, to the new world in which she seemed to have been transplanted with a suddenness and completeness that left her half bewildered to her own identity.
+ - There’s such a lot of different Annes in me. I sometimes think that is why I’m such a troublesome person. If I was just the one Anne it would be ever so much more comfortable, but then it wouldn’t be half so interesting.
+ - I can’t cheer up – I don’t want to cheer up. It’s nicer to be miserable!
+ - You have the itch for writing born in you. It’s quite incurable. What are you going to do with it?
+ - A cold in the head in June is an immoral thing...
+ - There is another bend in the road after this. No one knows what will happen.
+ - But she had long ago learned that when she wandered into the realm of fancy she must go alone. The way to it was by an enchanted path where not even her dearest might follow her.
+ - I’m really a very happy, contented little person in spite of my broken heart.
+ - If you can sit in silence with a person for half an hour and yet be entirely comfortable, you and that person can be friends. If you cannot, friends you’ll never be and you need not waste time in trying.
+ - I feel as though someone’s handed me the moon and I don’t exactly know what to do with it.
+ - Despair is a free man – hope is a slave.
+ - Even when I’m alone I have real good company – dreams and imaginations and pretendings. I like to be alone now and then, just to think over things and taste them. But I love friendships – and nice, jolly little times with people.
+ - The world calls them its singers and poets and artists and storytellers; but they are just people who have never forgotten the way to fairyland.
+ - Houses are like people – some you like and some you don’t like – and once in a while there is one you love.
+ - Rebellion flamed up in her soul as the dark hours passed by – not because she had no future but because she had no past.
+ - There was something in her movements that made you think she never walked but always danced.
+ - The night was clear and frosty, all ebony of shadow and silver of snowy slope; big stars were shining over the silent fields; here and there the dark pointed firs stood up with snow powdering their branches and the wind whistling through them.
+ - Human nature is not obliged to be consistent.
+ - Anne was always glad in the happiness of her friends; but it is sometimes a little lonely to be surrounded everywhere by happiness that is not your own.
+ - I love them, they are so nice and selfish. Dogs are TOO good and unselfish. They make me feel uncomfortable. But cats are gloriously human.
+ - When I left Queen’s my future seemed to stretch out before me like a straight road. I thought I could see along it for many a milestone. Now there is a bend in it. I don’t know what lies around the bend, but I’m going to believe that the best does.
+ - We belong to the race that knows Joseph.
+ - A house isn’t a home without the ineffable contentment of a cat with its tail folded about its feet. A cat gives mystery, charm, suggestion.
+ - Dogs want only love but cats demand worship.
+ - Don’t try to write anything you can’t feel – it will be a failure – ’echoes nothing worth.
+ - Don’t you ever imagine things differently than what they are? Oh, Marilla, how much you miss.
+ - Proverbs are all very fine when there’s nothing to worry you, but when you’re in real trouble, they’re not a bit of help.
+ - Gossip lies nine times and tells a half truth the tenth.
+ - I don’t really care what people think about me if they don’t let me see it.
+ - I’m sure I shall always feel like a child in the wood.
+ - Night is beautiful when you are happy – comforting when you are in grief – terrible when you are lonely and unhappy.
+ - Children can be the most cruel creatures alive. They have the herd instinct of prejudice against any outsider, and they are merciless in its indulgence.
+ - I believe flowers have souls. I have known roses that I expect to meet in heaven.
+ - But really, Marilla, one can’t stay sad very long in such an interesting world, can one?
+ - Tomorrow is always fresh, with no mistakes in it.
+ - Life is worth living as long as there’s a laugh in it.
+ - March came in that winter like the meekest and mildest of lambs, bringing days that were crisp and golden and tingling, each followed by a frosty pink twilight which gradually lost itself in an elfland of moonshine.
+ - Some nights are like honey – and some like wine – and some like wormwood.
+ - That’s the worst of growing up, and I’m beginning to realize it. The things you wanted so much when you were a child don’t seem half so wonderful to you when you get them.
+ - All life lessons are not learned at college,’she thought. Life teaches them everywhere.
+ - The world looks like something God had just imaged for his own pleasure, doesn’t it?
+ - I’ve come home in love with loneliness.
+ - And if you couldn’t be loved, the next best thing was to be let alone.
+ - The woods call to us with a hundred voices, but the sea has one only – a mighty voice that drowns our souls in its majestic music. The woods are human, but the sea is of the company of the archangels.
+ - Steal not this book for fear of shame For on it is the owners name And when you die the Lord will say Where is the book you stole away And when you say you do not know The Lord will say go down below.
+ - I like to hear a storm at night. It is so cosy to snuggle down among the blankets and feel that it can’t get at you.
+ - I’m not a bit changed – not really. I’m only just pruned down and branched out. The real me – back here – is just the same.
+ - Secrets are generally terrible. Beauty is not hidden – only ugliness and deformity.
+ - But it ain’t our feelings we have to steer by through life – no, no, we’d make shipwreck mighty often if we did that. There’s only the one safe compass and we’ve got to set our course by that – what it’s right to do.
+ - Red hair is my life long sorrow.
+ - Isn’t it splendid to think of all the things there are to find out about? It just makes me feel glad to be alive-it’s such an interesting world.
+ - Oh, sometimes I think it is of no use to make friends. They only go out of your life after awhile and leave a hurt that is worse than the emptiness before they came.
+ - You may tire of reality but you never tire of dreams.
+ - She had never before minded being alone. Now she dreaded it. When she was alone now she felt so dreadfully alone.
+ - Fear is a confession of weakness. What you fear is stronger than you, or you think it is, else you wouldn’t be afraid of it.
+ - All things great are wound up with all things little.
+ - Kindred spirits are not so scarce as I used to think. It’s splendid to find out there are so many of them in the world.
+ - Isn’t it better to have your heart broken than to have it wither up? Before it could be broken it must have felt something splendid. That would be worth the pain.
+ - A plate of apples, an open fire, and a jolly good book are a fair substitute for heaven.
+ - Isn’t it terrible the way some unworthy folks are loved, while others that deserve it far more, you’d think, never get much affection?
+ - I think it would be worse to expect nothing than to be disappointed.
+ - I read in a book once that a rose by any other name would smell as sweet, but I’ve never been able to believe it. I don’t believe a rose WOULD be as nice if it was called a thistle or a skunk cabbage.
+ - I must get out all my ambitions and dust them.
+ - Besides, I’ve been feeling a little blue – just a pale, elusive azure. It isn’t serious enough for anything darker.
+ - That’s one of the things we learn as we grow older – how to forgive. It comes easier at forty than it did at twenty.
+ - Youth is not a vanished thing but something that dwells forever in the heart.
+ - I’d rather look ridiculous when everybody else does than plain and sensible all by myself.
+ - We’ve had a beautiful friendship, Diana. We’ve never marred it by one quarrel or coolness or unkind word; and I hope it will always be so. But things can’t be quite the same after this. You’ll have other interests. I’ll just be on the outside.
+ - Have you ever noticed that when people say it is their duty to tell you a certain thing you may prepare for something disagreeable? Why is it that they never seem to think it a duty to tell you the pleasant things they hear about you?
+ - She suddenly found herself laughing without bitterness.
+ - Anne laughed and sighed. She felt very old and mature and wise – which showed how young she was.
+ - Poor soul, she always knew everything about her neighbors, but she never was very well acquainted with herself.
+ - We must have ideals and try to live up to them, even if we never quite succeed. Life would be a sorry business without them. With them it’s grand and great.
+ - You were never poor as long as you had something to love.
+ - The world is always young again for just a few moments at the dawn.
+ - No one can be free who has a thousand ancestors.
+ - My pen shall heal, not hurt.
+ - Anne “felt instinctively” that romance was peeping at her around a corner.
+ - Rilla was fond of italics, as most girls of fifteen are.
+ - What a spineless thing I must be not to have one enemy!
+ - I am simply a book drunkard.
+ - You’re never safe from being surprised until you’re dead.
+ - The only true animal is a cat, and the only true cat is a gray cat.
+ - It was less humiliating to admit crying because of your feet than because – because somebody had been amusing himself with you and your friends had forgotten you, and other people patronised you.
+ - It’s rather hard to decide just when people are grown up...
+ - Desire grows by what it feeds on.
+ - There be three gentle and goodlie things, To be here, To be together, And to think well of one another.
+ - I was very much provoked. Of course, I knew there are no fairies; but that needn’t prevent my thinking there is.
+ - It’s all very well to read about sorrows and imagine yourself living through them heroically, but it’s not so nice when you really come to have them, is it?
+ - You mayn’t get the things themselves; but nothing can prevent you from having the fun of looking forward to them.
+ - All i want is a dress with puffy sleaves.
+ - Their happiness was in each others keeping, and both were unafraid.
+ - I wish every one in the world was as warm and sheltered as we are tonight.
+ - Oh, of course there’s a risk in marrying anybody, but, when it’s all said and done, there’s many a worse thing than a husband.
+ - Anyone who has gumption knows what it is, and anyone who hasn’t can never know what it is. So there is no need of defining it.
+ - It is never quite safe to think we have done with life. When we imagine we have finished our story fate has a trick of turning the page and showing us yet another chapter.
+ - I am well in body though considerably rumpled up in spirit.
+ - Everything is new in the spring. Springs themselves are always so new, too. No spring is ever just like any other spring. It always has something of its own to be its own peculiar sweetness.
+ - Look at that sea, girls – all silver and shadow and vision of things not seen. We couldn’t enjoy its loveliness any more if we had millions of dollars and ropes of diamonds.
+ - I don’t know that she is as amusing as she was when she was a child, but she makes me love her and I like people who make me love them. It saves me so much trouble in making myself love them.
+ - The body grows slowly and steadily but the soul grows by leaps and bounds. It may come to its full stature in an hour.
+ - The beauty of winter is that it makes you appreciate spring.
+ - Twilight drops her curtain down, and pins it with a star.
+ - The little things of life, sweet and excellent in their place, must not be the things lived for; the highest must be sought and followed; the life of heaven must be begun here on earth.
+ - When people ask me what on earth I want to keep two cats for I tell them I keep them to do my resting for me.
+ - Because when you are imagining, you might as well imagine something worth while.
+ - Don’t be very frightened, Marilla. I was walking the ridge-pole and I fell off. I suspect I have sprained my ankle. But, Marilla, I might have broken my neck. Let us look on the bright side of things.
+ - Cakes have such a terrible habit of turning out bad just when you especially want them to be good.
+ - Anne came dancing home in the purple winter twilight across the snowy places.
+ - She will love deeply – suffer terribly – she will have glorious moments to compensate.
+ - I’ve loved you ever since that day you broke your slate over my head in school.
+ - Nobody can keep on being angry if she looks into the heart of a pansy for a little while.
+ - If it’s IN you to climb you must – there are those who MUST lift their eyes to the hills – they can’t breathe properly in the valleys.
+ - That is one good thing about this world – there are always sure to be more springs.
+ - Wouldn’t it be nice if roses could talk? I’m sure they could tell us such lovely things.
+ - Blessings be the inventor of the alphabet, pen and printing press! Life would be – to me in all events – a terrible thing without books.
+ - Facts are stubborn things, but, as some one has wisely said, not half so stubborn as fallacies.
+ - She had a way of embroidering life with stars.
+ - I love pretty things; and I hate to look in the glass and see something that isn’t pretty. It makes me feel so sorrowful – just as I feel when I look at any ugly thing. I pity it because it isn’t beautiful.
+ - All pioneers are considered to be afflicted with moonstruck madness.
+ - Don’t look at me so sorrowfully and so disapprovingly, dearest. I can’t be sober and serious – everything looks so rosy and rainbowy to me.
+ - There are a great many people who do not understand things so there is no use in telling them.
+ - The woods are never solitary – they are full of whispering, beckoning, friendly life. But the sea is a mighty soul, forever moaning of some great, unshareable sorrow, which shuts it up into itself for all eternity.
+ - It was rapture enough just to sit there beside him in silence, alone in the summer night in the white splendor of moonshine, with the wind blowing down on them out of the pine woods.
+ - Most of the trouble in life comes from misunderstanding, I think,? said Anne.
+ - No use in taking a cat’s opinion of a dog.
+ - I suppose all this sounds very crazy – all these terrible emotions always do sound foolish when we put them into our inadequate words. They are not meant to be spoken – only felt and endured.
+ - Plum puffs can’t minister to a mind diseased or a world that’s crumbling to pieces.
+ - Anne always remembered the silvery, peaceful beauty and fragrant calm of that night. It was the last night before sorrow touched her life; and no life is ever quite the same again when once that cold, sanctifying touch has been laid upon it.
+ - Kindred spirits alone do not change with the changing years.
+ - At seventeen dreams DO satisfy because you think the realities are waiting for you farther on.
+ - I feel as if I had opened a book and found roses of yesterday sweet and fragrant, between its leaves.
+ - She looked like a head-on collision between a fashion plate and a nightmare.
+ - Don’t you just love poetry that gives you a crinkly feeling up and down your back?
+ - I wouldn’t want to marry anybody who was wicked, but I think I’d like it if he could be wicked and wouldn’t.
+ - Isn’t it good just to be alive on a day like this? I pity the people who aren’t born yet for missing it.
+ - Outgrowing things we love is never a pleasant process.
+ - Matthew, much to his own surprise, was enjoying himself. Like most quiet folks he liked talkative people when they were willing to do the talking themselves and did not expect him to keep up his end of it.
+ - Reading stories is bad enough but writing them is worse.
+ - Do you think amethysts can be the souls of good violets?
+ - Nobody whom this war has touched will ever be happy again in quite the same way. But it will be a better happiness, I think, little sister – a happiness we’ve earned.
+ - The ghosts of things that never happened are worse than the ghosts of things that did.
+ - If a kiss could be seen it would look like a violet.
+ - I have learned to look upon each little hindrance as a jest and each great one as a foreshadowing of victory.
+ - It’s so hard to get up again – although of course the harder it is the more satisfaction you have when you do get up, haven’t you?
+ - Trees have as much individuality as human beings. Not even two spruces are alike. There is always some kink or curve or bend of bough to single each one out from its fellows.
+ - To dispair is to turn your back on God.
+ - It is a strange thing to read a letter after the writer is dead – a bitter-sweet thing, in which pain and comfort are strangely mingled.
+ - I’m always sorry when pleasant things end. Something still pleasanter may come after, but you can never be sure.
+ - An old house with its windows gone always makes me think of something dead with its eyes picked out.
+ - Gossip, as usual, was one-third right and two-thirds wrong.
+ - Death grows friendlier as we grow older.
+ - War was a hellish, horrible hideous thing – too horrible and hideous to happen in the twentieth century between civilised nations.
+ - A child that has a quick temper, just blaze up and cool down, ain’t never likely to be sly or deceitful.
+ - Ruby Gillis thinks of nothing but young men, and the older she gets the worse she is. Young men are all very well in their place, but it doesn’t do to drag them into everything, does it?
+ - Tears don’t hurt like the ache does.
+ - But the worst of imagining things is that the time comes when you have to stop and that hurts.
+ - When you’ve learned to laugh at the things that should be laughed at, and not to laugh at those that shouldn’t, you’ve got wisdom and understanding. -Aunt Jimsie.
+ - To love is easy and therefore common – but to understand – how rare it is!
+ - For there is no bond more lasting than that formed by the mutual confidences of that magic time when youth is slipping from the sheath of childhood and beginning to wonder what lies for it beyond those misty hills that bound the golden road.
+ - Fairyland is the loveliest word because it means everything the human heart desires.
+ - I believe I’ve put forth a tiny soul-root into Kingsport soil this afternoon. I hope so. I hate to feel transplanted.
+ - I know you’re a fool, Jim Hardy, but for heaven’s sake pretend you’re not for five minutes.
+ - Do you know, Gilbert, there are times when I strongly suspect that I love you!
+ - Dramatic things always have a bitterness for some one.
+ - Don’t believe in imagining things different from what they really are. When the Lord puts us in certain circumstances He doesn’t mean for us to imagine them away.
+ - It was three o’clock in the morning – the wisest and most accursed hour of the clock. But sometimes it sets us free.
+ - We don’t know where we’re going, but isn’t is fun to go?
+ - I love bright red drinks, don’t you? They taste twice as good as any other color.
+ - It’s not vanity to know your own good points. It would just be stupidity if you didn’t; It’s only vanity when you get puffed up about them.
+ - I wish we could see perfumes as well as smell them. I’m sure they would be very beautiful.
+ - As she walked along she dramatized the night. There was about it a wild, lawless charm that appealed to a certain wild, lawless strain hidden deep in Emily’s nature – the strain of the gypsy and the poet, the genius and the fool.
+ - It’s good advice, but I expect it will be hard to follow; good advice is apt to be, I think.
+ - One can’t get over the habit of being a little girl all at once.
+ - There is no use in loving things if you have to be torn from them, is there? And it’s so hard to keep from loving things, isn’t it?
+ - She had looked her duty courageously in the face and found it a friend – as duty ever is when we meet it frankly.
+ - Do you know what I think Mayflowers are, Marilla? I think they must be the souls of the flowers that died last summer, and this is their heaven.
+ - Mrs. Spencer said it was wicked of me to talk like that, but I didn’t mean to be wicked. It’s so easy to be wicked without knowing it, isn’t it?
+ - You’ll never write anything that really satisfies you though it may satisfy other people.
+ - Fear is a vile thing, and is at the bottom of almost every wrong and hatred of the world.
+ - When one great passion seizes possession of the soul all other feelings are crowded out.
+ - Why did dusk and fir-scent and the afterglow of autumnal sunsets make people say absurd things?
+ - There are many worse friends than the soft, silent, furry, cat-folk.
+ - I shall give life here my best, and I believe it will give its best to me in return.
+ - It is when my umbrella turns inside out that I am convinced of the total depravity of inanimate things.
+ - After all, what could you expect from a pig but a grunt?
+ - If you can’t be cheerful, be as cheerful as you can.
+ - I’ve just been imagining that it was really me you wanted after all and that I was to stay here for ever and ever. It was a great comfort while it lasted. But the worst of imagining things is that the time comes when you have to stop and that hurts.
+ - Doesn’t matter what a person’s name is as long as he behaves himself.
+ - Nasturtiums, who colored you, you wonderful, glowing things? You must have been fashioned out of summer sunsets.
+ - People who haven’t red hair don’t know what trouble is.
+ - I couldn’t live where there were no trees – something vital in me would starve.
+ - Anybody is liable to rheumatism in her legs, Anne. It’s only old people who should have rheumatism in their souls, though. Thanks goodness, I never have. When you get rheumatism in your soul you might as well go and pick out your coffin.
+ - It only seems as if you are doing something when you’re worrying.
+ - The point of good writing is knowing when to stop.
+ - There must be a limit to the mistakes one person can make, and when I get to the end of them, then I’ll be through with them. That’s a comforting thought.
+ - When people mean to be good to you, you don’t mind very much when they’re not quite – always.
+ - You must pay the penalty of growing-up, Paul. You must leave fairyland behind you.
+ - But was anything in life, Anne asked herself wearily, like one’s imagination of it?
+ - Saying one’s prayers isn’t exactly the same thing as praying...
+ - There are so many unpleasant things in the world already that there is no use in imagining any more.
+ - It’s the fools that make all the trouble in the world, not the wicked.
+ - I’ve always loved the night and I’ll like lying awake and thinking over everything in life, past, present and to come. Especially to come.
+ - But feeling is so different from knowing. My common sense tells me all you can say, but there are times when common sense has no power over me. Common nonsense takes possession of my soul.
+ - When I make up my mind to do a thing it stays made up.
+ - She seemed to walk in an atmosphere of things about to happen.
+ - There is nothing more aggravating than a man who won’t talk back – unless it is a woman who won’t.
+ - Why is it that the nicest things never are healthy?
+ - It is ever so much easier to be good if your clothes are fashionable.
+ - People who don’t like cats always seem to think there is some peculiar virtue in not liking them.
+ - There is a book of Revelation in every one’s life, as there is in the Bible.
+ - Rilla’s heart skipped a beat – or, if that be a pysiological impossibility, she thought it did.
+ - I know I haven’t much sense or sobriety, but I’ve got what is ever so much better – the knack of making people like me.
+ - Walter’s eyes were very wonderful. All the joy and sorrow and laughter and loyalty and aspirations of many generations lying under the sod looked out of their dark-gray depths.
+ - It’s as easy to give away a million as a hundred if you have not got either...
+ - We are never half so interesting when we have learned that language is given us to enable us to conceal our thoughts.
+ - It’s so much more romantic to end a story up with a funeral than a wedding.
+ - Nathan always believed his wife was trying to poison him but he didn’t seem to mind. He said it made life kind of exciting.
+ - I heard someone once say that the years from fifteen to nineteen are the best years in a girl’s life.
+ - It’s the worst kind of cruelty – the thoughtless kind. You can’t cope with it.
+ - People told her she hadn’t changed much, in a tone which hinted they were surprised and a little disappointed she hadn’t.
+ - The trouble with you people is that you don’t laugh enough.
+ - It makes you feel very virtuous when you forgive people, doesn’t it?
+ - Satirize wickedness if you must – but pity weakness.
+ - A good laugh is as good as a prayer sometimes.
+ - A favor is never so long-lived as a grudge.
+ - I wonder why people so commonly suppose that if two individuals are both writers they must therefore be hugely congenial.
+ - That is one consolation when you are poor – there are so many more things you can imagine about.
+ - It does not do to laugh at the pangs of youth. They are very terrible because youth has not yet learned that ’this, too, will pass away.
+ - We are both going to pray that we may live together all our lives and die the same day.
+ - It’s fun to be almost grown up in some ways, but it’s not the kind of fun I expected, Marilla. There’s so much to learn and do and think that there isn’t time for big words.
+ - What had seemed easy in imagination was rather hard in reality.
+ - I don’t like green Christmases. They’re not green – they’re just nasty faded browns and grays.
+ - It’s such an interesting world. It wouldn’t be half so interesting if we knew all about everything, would it?
+ - I don’t know which is worse – to have somebody you DON’T like ask you to marry him or NOT have some one you DO like. Both are rather unpleasant.
+ - That’s one splendid thing about such affairs – it’s so lovely to look back to them.
+ - You noticed that I wore this outfit twice? Why, the only thing you wear twice is a sour expression.
+ - Being frightened of things is worse than the things themselves.
+ - Heretics are wicked, but they’re mighty int’resting. It’s jest that they’ve got sorter lost looking for God, being under the impression that He’s hard to find – which He ain’t never.
+ - Who would endure life if it were not for the hope of death?
+ - Oh, Marilla, I thought I was happy before. Now I know that I just dreamed a pleasant dream of happiness. This is the reality.
+ - Anne: “But have you ever noticed one encouraging thing about me, Marilla? I never make the same mistake twice”. Marilla: “I don’t know as that’s much benefit when you’re always making new ones”.
+
+276 quotes

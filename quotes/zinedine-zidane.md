@@ -1,0 +1,61 @@
+ - You don’t need a reason to help people.
+ - I once cried because I had no shoes to play soccer, but one day, I met a man who had no feet.
+ - I am proud of where I come from and I will never forget the people I grew up with.
+ - Messi is the Mozart of football.
+ - I don’t know if we are the best team in the world. I am lucky to be playing alongside some of the best players around. It’s a dream.
+ - Every day I think about where I come from and I am still proud to be who I am: first, a Kabyle from La Castellane, then an Algerian from Marseille, and then a Frenchman.
+ - Everything I have achieved in football is due to playing football in the streets with my friends.
+ - I am first of all from La Castellane and Marseille.
+ - Nobody knows if Zidane is an angel or demon. He smiles like Saint Teresa and grimaces like a serial killer.
+ - I’m very inspired by him-it was my father who taught us that an immigrant must work twice as hard as anybody else, that he must never give up.
+ - It’s hard to explain but I have a need to play intensely every day, to fight every match hard. And this desire never to stop fighting is something else I learnt in the place where I grew up.
+ - Zidane is unique. The ball flows with him. He is more like a dancer than a football player.
+ - Life is full of regrets, but it doesn’t pay to look back.
+ - In France, everybody realized that God exists, and that he is back in the French international team. God is back, there is little left to say.
+ - Sometimes words are harder than blows.
+ - Real Madrid is the most important thing that happened to me, both as a footballer and as a person.
+ - You can’t get bored of winning. You can win 10 games in a row but you keep the same will to snatch the 11th. You always need more.
+ - If you are determined and confident, there is nothing in this great existence that can stop you from achieving what you want.
+ - Football boots are very technical and have lots of specific requirements.
+ - Music was important. Football was the easy part.
+ - Zidane is the master. Over the past 10 years, there’s been no-one like him, he has been the best player in the world.
+ - I was lucky to come from a difficult area. It teaches you not just about football but also life. There were lots of kids from different races and poor families. People had to struggle to get through the day.
+ - Ronaldinho is a special player, but Thierry Henry is probably technically the most gifted footballer ever to play the beautiful game.
+ - The only important thing I have to say is that my father never fought against his country.
+ - If Giggs was French, Pires or myself would have been on the bench.
+ - It’s only natural to want to select your best players and there is no doubt for me that Paul Scholes is still in a class of his own. He’s almost untouchable in what he does. I never tire of watching him play.
+ - We were a family who had come from nothing and now we had respect from French people of all sorts.
+ - I may have had a lot of luck in my life, but I still need to find a challenge in the game.
+ - Sometimes I don’t know what takes me over during a game. Sometimes I just feel I have moved to a different place and I can make the pass, score the goal or go past my marker at will.
+ - When your own fans whistle and jeer, then you have a big problem.
+ - Zidane was from another planet. When Zidane stepped onto the pitch, the 10 other guys just got suddenly better. It is that simple.
+ - I have always said the French team is the most important thing that has happened to me. I thought deeply about it and I want to play for France again.
+ - I love Madrid. I am happy to be here. I have been here three years and hope to be here longer. But I am proud of where I come from and never forget the people I grew up with.
+ - My father is an Algerian, proud of who he is and I am proud that my father is Algerian.
+ - Everything Iniesta does impresses me. He could even play as goalkeeper. He’s magical.
+ - A Mediterranean city is really my culture.
+ - All of us at Juventus agreed Manchester United were the best side we met in the Champions League. They have so many talented young players and can only get better and better. Giggs is truly world class.
+ - I have a need to play intensely every day, to fight every match hard.
+ - Zidane is one of the greatest players in history, a truly magnificent player.
+ - I have decided to come back for Les Bleus.
+ - It doesn’t matter how many times you win an award, it is always very special.
+ - Scholes is undoubtedly the best midfielder of his generation.
+ - We must not let ourselves get driven off course, no matter what happens we must stick to our natural game.
+ - It’s the first time it’s happened to me and maybe the last. It’s a strange sensation, not normal for me. I can’t remember scoring three goals, even when I was a kid.
+ - The French team has given me so much and I want to help it. I told myself I did not have much time left in soccer, and I want to profit from it to the maximum.
+ - We are well aware of the task ahead of us in what will be a very difficult match but which we all dream of playing.
+ - There was huge pressure, especially before the big games. Not many people believed in us, but we believed in ourselves. We wanted to do something good and we did.
+ - I am supposed to set an example to young players.
+ - I have never had the opportunity to play in England, so I know little about it.
+ - If Zizou kept his temper, he would not be the genius that he is.
+ - The door can never be closed for good to any player.
+ - My toughest opponent? Scholes of Manchester. He is the complete midfielder.
+ - Mandela has played a crucial part in history. He’s done some extraordinary things, not only for his country but also for the whole world.
+ - To be recognised by a whole country is incredible. This is massive.
+ - You rarely come across the complete footballer, but Scholes is as close to it as you can get. One of my regrets is that the opportunity to play alongside him never presented itself during my career.
+ - The England team must always be respected. They always fight to the end.
+ - It’s true, pressure is something that goes with football nowadays. You need to accept it, and everything that it involves – the good and the bad.
+ - My memories of events and games are fragmented.
+ - Obviously fashion is a completely different world from football.
+
+59 quotes

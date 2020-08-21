@@ -1,0 +1,32 @@
+ - Unforgettable in every way, and forever more, that’s how you’ll stay.
+ - I may be helping to bring harmony between people through my music.
+ - If you smile through your fear and sorrow, smile and maybe tomorrow you’ll see the sun come shining through for you.
+ - I’m a businessman. I work for business people. The kind of thing they say is: Now we’ve sold a lot of records, let’s sell some more.
+ - There’s just one thing I can’t figure out. My income tax!
+ - Critics don’t buy records. They get ’em free.
+ - People don’t slip. Time catches up with them.
+ - Smile and maybe tomorrow you’ll see that life is still worth while if you just smile.
+ - Madison Avenue is afraid of the dark.
+ - I can’t bear to see myself even in movies. The feeling is complex. I can’t stand the sight of myself.
+ - The only sport I’m not interested in is horse racing. That’s because I don’t know the horses personally.
+ - I got the message. All of us get the message, sooner or later. If you get it before it’s too late or before you’re too old, you’ll pull through all right.
+ - If you ever plan to motor west, travel my way, take the highway that is best. Get your kicks, on Route Sixty-six.
+ - I’m an interpreter of stories. When I perform it’s like sitting down at my piano and telling fairy stories.
+ - Primarily I’m a meat man, although once in a while I toy with a few vegetables.
+ - Get me well so I can get on television and tell people to stop smoking.
+ - Only time, education and plenty of good schooling will make anti-segregation work.
+ - The people who know nothing about music are the ones always talking about it.
+ - I am famous because I am an African American jazz artist.
+ - I’m in the music business for one purpose – to make money.
+ - The only prejudice I’ve found anywhere in TV is in some advertising agencies, and there isn’t so much prejudice as just fear.
+ - I am an American citizen and feel I am entitled to the same rights as any other citizen.
+ - Music is emotional, and you may catch a musician in a very unemotional mood or you may not be in the same frame of mind as the musician. So a critic will often say a musician is slipping.
+ - I make no claim to being a business genius. You can make so much money in this business that it loses its value.
+ - I’m a musician at heart. I know I’m not really a singer. I couldn’t compete with real singers. But I sing because the public buys it.
+ - The Supreme Court is having a hard time integrating schools. What chance do I have to integrate audiences?
+ - If I could read it, I could play it.
+ - I’m not playing for other musicians. We’re trying to reach the guy who works all day and wants to spend a buck at night. We’ll keep him happy.
+ - You’ve got to change with the public’s taste.
+ - It’s not the people in the South who create racial problems – it’s the people who are governing.
+
+30 quotes

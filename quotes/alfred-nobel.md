@@ -1,0 +1,31 @@
+ - If I have a thousand ideas and only one turns out to be good, I am satisfied.
+ - I am a misanthrope and yet utterly benevolent, have more than one screw loose yet am a super-idealist who digests philosophy more efficiently than food.
+ - Contentment is the only real wealth.
+ - Home is where I work, and I work everywhere.
+ - I am a misanthrope yet utterly benevolent.
+ - Nature is man’s teacher. She unfolds her treasures to his search, unseals his eye, illumes his mind, and purifies his heart; an influence breathes from all the sights and sounds of her existence.
+ - Worry is the stomach’s worst poison.
+ - It is not sufficient to be worthy of respect in order to be respected.
+ - I intend to leave after my death a large fund for the promotion of the peace idea, but I am skeptical as to its results.
+ - Good wishes alone will not ensure peace.
+ - Justice is to be found only in the imagination.
+ - My dynamite will sooner lead to peace than a thousand world conventions. As soon as men will find that in one instant, whole armies can be utterly destroyed, they surely will abide by golden peace.
+ - The truthful man is usually a liar.
+ - Hope is nature’s veil for hiding truth’s nakedness.
+ - A recluse without books and ink is already in life a dead man.
+ - Lying is the greatest of all sins.
+ - The savants will write excellent volumes. There will be laureates. But wars will continue just the same until the forces of the circumstances render them impossible.
+ - One can state, without exaggeration, that the observation of and the search for similarities and differences are the basis of all human knowledge.
+ - A heart can no more be forced to love than a stomach can be forced to digest food by persuasion.
+ - I have not the slightest pretension to call my verses poetry; I write now and then for no other purpose than to relieve depression or to improve my English.
+ - Second to agriculture, humbug is the biggest industry of our age.
+ - Lawyers have to make a living, and can only do so by inducing people to believe that a straight line is crooked.
+ - Kant’s style is so heavy that after his pure reason, the reader longs for unreasonableness.
+ - For me writing biographies is impossible, unless they are brief and concise, and these are, I feel, the most eloquent.
+ - I am not aware that I have deserved any notoriey, and I have no taste for its buzz.
+ - For my part, I wish all guns with their belongings and everything could be sent to hell, which is the proper place for their exhibition and use.
+ - I would not leave anything to a man of action as he would be tempted to give up work; on the other hand, I would like to help dreamers as they find it difficult to get on in life.
+ - The first time I saw nitroglycerine was in the beginning of the Crimean War. Professor Zinin in St. Petersburg exhibited some to my father and me, and struck some on an anvil to show that only the part touched by the hammer exploded without spreading.
+ - The only true solution would be a convention under which all the governments would bind themselves to defend collectively any country that was attacked.
+
+29 quotes

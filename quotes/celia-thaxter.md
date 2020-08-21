@@ -1,0 +1,31 @@
+ - There shall be an eternal summer in the grateful heart.
+ - This very act of planting a seed in the earth has in it to me something beautiful. I always do it with a joy that is largely mixed with awe.
+ - When in the fresh mornings I go into my garden before anyone is awake, I go for the time being into perfect happiness.
+ - Like the musician, the painter, the poet, and the rest, the true lover of flowers is born, not made. And he is born to happiness in this vale of tears, to a certain amount of the purest joy that earth can giver her children, joy that is tranquil, innocent, uplifting, unfailing.
+ - To stand by the beds at sunrise and see the flowers awake is a heavenly delight.
+ - Look to the East, where up the lucid sky; the morning climbs! The day shall yet be fair.
+ - The eternal sound of the sea on every side has a tendency to wear away the edge of human thought and perception...
+ - As I hold the flower in my hand and think of trying to describe it, I realize how poor a creature I am, how impotent are words in the presence of such perfection.
+ - When the snow is still blowing against the window-pane in January and February and the wild winds are howling without, what pleasure it is to plan for summer that is to be.
+ - Last week, when I went early into my garden, a rose-breasted grosbeak was sitting on the fence. Oh, he was beautiful as a flower. I hardly dared to breathe, I did not stir, and we gazed at each other fully five minutes before he concluded to move.
+ - If death were the exception and not the rule, and we were not so swiftly to follow, these separations would be intolerably sad. We know no more of our next change of life than we knew of this before we were born into it; but that which we call death is merely change, who can doubt?
+ - As I work among my flowers, I find myself talking to them, reasoning and remonstrating with them, and adoring them as if they were human beings. Much laughter I provoke among my friends by so doing, but that is of no consequence. We are on such good terms, my flowers and I.
+ - One golden day redeems a weary year.
+ - The summer day was spoiled with fitful storm; At night the wind died and the soft rain dropped; With lulling murmur, and the air was warm, And all the tumult and the trouble stopped.
+ - Across the narrow beach we flit, One little sand-piper and I; And fast I gather, bit by bit, The scattered drift-wood, bleached and dry, The wild waves reach their hands for it, The wild wind raves, the tide runs high, As up and down the beach we flit, One little sand-piper and I.
+ - The toad has indeed no superior as a destroyer of noxious insects, and he possesses no bad habits and is entirely inoffensive himself, every owner of a garden should treat him with utmost hospitality.
+ - Like the musician, the painter, the poet and the rest, the true lover of flowers is born, not made.
+ - He who is born with a silver spoon in his mouth is generally considered a fortunate person, but his good fortune is small compared to that of the happy mortal who enters this world with a passion for flowers in his soul.
+ - So deeply is the gardener’s instinct implanted in my soul, I really love the tools with which I work; the iron fork, the spade, the hoe, the rake, the trowel, and the watering pot are pleasant objects in my eyes.
+ - Already the dandelions Are changed into vanishing ghosts.
+ - No sadder sound salutes you than the clear, Wild laughter of the loon.
+ - Dear little head, that lies in calm content Within the gracious hollow that God made In every human shoulder, where He meant Some tired head for comfort should be laid.
+ - O brief, bright smile of summer! O days divine and dear The voices of winter’s sorrow Already we can hear. And we know that the frosts will find us, And the smiling skies grow rude, While we look in the face of Beauty, And worship her every mood.
+ - Early in April, as I was vigorously hoeing in a corner, I unearthed a huge toad, to my perfect delight and satisfaction; he had lived all winter, he had doubtless fed on slugs all the autumn. I could have kissed him on the spot.
+ - I am fully and intensely aware that plants are conscious of love and respond to it as they do to nothing else.
+ - Ever since I could remember anything, flowers have been like dear friends to me, comforters, inspirers, powers to uplift and to cheer.
+ - It seems to me the worst of all the plagues is the slug, the snail without a shell. He is beyond description repulsive, a mass of sooty, shapeless slime, and he devours everything.
+ - Soon will set in the fitful weather, with fierce gales and sullen skies and frosty air, and it will be time to tuck up safely my roses and lillies and the rest for their winter sleep beneath the snow, where I never forget them, but ever dream of their wakening in happy summers yet to be.
+ - It is curious that the leaf should so love the light and the root so hate it.
+
+29 quotes

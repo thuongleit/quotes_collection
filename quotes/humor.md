@@ -1,0 +1,41 @@
+ - Do what you do best, and outsource the rest. ~~Peter F. Drucker
+ - The problem with the world is that the intelligent people are full of doubts, while the stupid ones are full of confidence. ~~Charles Bukowski
+ - The best ideas come as jokes. Make your thinking as funny as possible. ~~David Ogilvy
+ - Oh sorry, I was taking life seriously. ~~Bill Hicks
+ - Humor is by far the most significant activity of the human brain. ~~Edward De Bono
+ - Nothing is stronger than habit. ~~Ovid
+ - Of course I don’t look busy, I did it right the first time. ~~Scott Adams
+ - If everything seems to be going well, you have obviously overlooked something. ~~Steven Wright
+ - When it is a question of money, everybody is of the same religion. ~~Voltaire
+ - Time flies like an arrow; fruit flies like a banana. ~~Groucho Marx
+ - Procrastination is not the problem. It is the solution. Procrastinate now, don’t put it off. ~~Ellen DeGeneres
+ - Action without thought is mindlessness, and thought without action is hypocritical. ~~Ayn Rand
+ - Only dumb people try to impress smart people. Smart people just do what they do. ~~Chris Rock
+ - If you had to identify, in one word, the reason why the human race has not achieved, and never will achieve, its full potential, that word would be ‘meetings.’ ~~Dave Barry
+ - Go on, prove me wrong. Destroy the fabric of the universe. See if I care. ~~Terry Pratchett
+ - Cocaine is God’s way of telling you you are making too much money. ~~Robin Williams
+ - I do not feel obliged to believe that the same God who has endowed us with sense, reason, and intellect has intended us to forego their use. ~~Galileo Galilei
+ - A cigarette is a pinch of tobacco rolled in paper with fire at one end and a fool at the other. ~~George Bernard Shaw
+ - Make crime pay. Become a lawyer. ~~Will Rogers
+ - Before you criticize a man, walk a mile in his shoes. That way, when you do criticize him, you’ll be a mile away and have his shoes. ~~Steve Martin
+ - Every normal man must be tempted, at times, to spit on his hands, hoist the black flag, and begin slitting throats. ~~H. L. Mencken
+ - A serious and good philosophical work could be written consisting entirely of jokes. ~~Ludwig Wittgenstein
+ - I don’t mean to sound bitter, cold, or cruel, but I am, so that’s how it comes out. ~~Bill Hicks
+ - When I was in boy scouts, I slipped on the ice and hurt my ankle. A little old lady had to help me across the street. ~~Steven Wright
+ - The main reason Santa is so jolly is because he knows where all the bad girls live. ~~George Carlin
+ - Trying to define yourself is like trying to bite your own teeth. ~~Alan Watts
+ - Men are disturbed not by the things that happen, but by their opinion of the things that happen. ~~Epictetus
+ - So that his place shall never be with those cold and timid souls who knew neither victory nor defeat. ~~Theodore Roosevelt
+ - One does not accumulate but eliminate. It is not daily increase but daily decrease. The height of cultivation always runs to simplicity. ~~Bruce Lee
+ - They muddy the water, to make it seem deep. ~~Friedrich Nietzsche
+ - First you forget names, then you forget faces. Next you forget to pull your zipper up and finally, you forget to pull it down. ~~George Burns
+ - Turn your melodrama into a mellow drama. ~~Ram Dass
+ - The status quo sucks. ~~George Carlin
+ - When I write, I feel like an armless, legless man with a crayon in his mouth. ~~Kurt Vonnegut
+ - Men, their rights, and nothing more; women, their rights, and nothing less. ~~Susan B. Anthony
+ - Happiness? A good cigar, a good meal, a good cigar and a good woman – or a bad woman; it depends on how much happiness you can handle. ~~George Burns
+ - The habit of being happy enables one to be freed, or largely freed, from the domination of outward conditions. ~~Robert Louis Stevenson
+ - You can’t have everything. Where would you put it? ~~Steven Wright
+ - Friendship is like peeing on yourself: everyone can see it, but only you get the warm feeling that it brings. ~~Robert Bloch
+
+39 quotes

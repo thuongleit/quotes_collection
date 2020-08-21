@@ -1,0 +1,35 @@
+ - In a growth mindset, challenges are exciting rather than threatening. So rather than thinking, oh, I’m going to reveal my weaknesses, you say, wow, here’s a chance to grow.
+ - Becoming is better than being.
+ - What did you learn today? What mistake did you make that taught you something? What did you try hard at today?
+ - This is hard. This is fun.
+ - Teaching is a wonderful way to learn.
+ - No matter what your current ability is, effort is what ignites that ability and turns it into accomplishment.
+ - Picture your brain forming new connections as you meet the challenge and learn. Keep on going.
+ - What did you try hard at today?
+ - Test scores and measures of achievement tell you where a student is, but they don’t tell you where a student could end up.
+ - You have to work hardest for the things you love most.
+ - Don’t judge. Teach. It’s a learning process.
+ - Effort is one of those things that gives meaning to life. Effort means you care about something, that something is important to you and you are willing to work for it.
+ - Important achievements require a clear focus, all-out effort, and a bottomless trunk full of strategies. Plus allies in learning.
+ - I don’t mind losing as long as I see improvement or I feel I’ve done as well as I possibly could.
+ - Failure is information-we label it failure, but it’s more like, ‘This didn’t work, I’m a problem solver, and I’ll try something else.’
+ - The best thing parents can do is to teach their children to love challenges, be intrigued by mistakes, enjoy effort, and keep on learning.
+ - We like to think of our champions and idols as superheroes who were born different from us. We don’t like to think of them as relatively ordinary people who made themselves extraordinary.
+ - Why seek out the tried and true, instead of experiences that will stretch you?
+ - What can I learn from this? What will I do next time I’m in this situation?
+ - It is not always people who start out the smartest who end up the smartest.
+ - For twenty years, my research has shown that the view you adopt for yourself profoundly affects the way you lead your life. It can determine whether you become the person you want to be and whether you accomplish the things you value.
+ - It’s for you to decide whether change is right for you right now. Maybe it is, maybe it isn’t. But either way keep the growth mindset in your thoughts then when you bump up against obstacles you can turn to it, it will always be there for you showing you a path into the future.
+ - Why waste time proving over and over how great you are, when you could be getting better?
+ - You’re in charge of your mind. You can help it grow by using it in the right way.
+ - Praising children’s intelligence harms their motivation and it harms their performance.
+ - A company that cannot self-correct cannot thrive.
+ - The whole point of marriage is to encourage your partner’s development and have them encourage yours.
+ - Wow, that’s a really good score. You must have worked really hard.
+ - Vowing, even intense vowing, is often useless. The next day comes and the next day goes. What works is making a vivid, concrete plan.
+ - Choosing a partner is choosing a set of problems. There are no problem-free candidates.
+ - The wrong kind of praise creates self-defeating behavior. The right kind motivates students to learn.
+ - More and more research is suggesting that, far from being simply encoded in the genes, much of personality is a flexible and dynamic thing that changes over the life span and is shaped by experience.
+ - Research shows that normal young children misbehave every three minutes.
+
+33 quotes

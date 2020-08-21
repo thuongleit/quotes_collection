@@ -1,0 +1,38 @@
+ - For as we have many members in one body, and all members have not the same office: so we, being many, are one body in Christ, and every one members one of another.
+ - Pain and sorrow and misery have a right to our assistance: compassion puts us in mind of the debt, and that we owe it to ourselves as well as to the distressed.
+ - But to us, probability is the very guide of life.
+ - There is a much more exact correspondence between the natural and moral world than we are apt to take notice of.
+ - The principle we call self-love never seeks anything external for the sake of the thing, but only as a means of happiness or good: particular affections rest in the external things themselves.
+ - Thus self-love as one part of human nature, and the several particular principles as the other part, are, themselves, their objects and ends, stated and shown.
+ - Compassion is a call, a demand of nature, to relieve the unhappy as hunger is a natural call for food.
+ - Happiness does not consist in self-love.
+ - The tongue may be employed about, and made to serve all the purposes of vice, in tempting and deceiving, in perjury and injustice.
+ - God Almighty is, to be sure, unmoved by passion or appetite, unchanged by affection; but then it is to be added that He neither sees nor hears nor perceives things by any senses like ours; but in a manner infinitely more perfect.
+ - Every thing is what it is, and not another thing.
+ - Every man is to be considered in two capacities, the private and public; as designed to pursue his own interest, and likewise to contribute to the good of others.
+ - Things and actions are what they are, and the consequences of them will be what they will be: why then should we desire to be deceived?
+ - Happiness or satisfaction consists only in the enjoyment of those objects which are by nature suited to our several particular appetites, passions, and affections.
+ - Both our senses and our passions are a supply to the imperfection of our nature; thus they show that we are such sort of creatures as to stand in need of those helps which higher orders of creatures do not.
+ - Every man hath a general desire of his own happiness; and likewise a variety of particular affections, passions, and appetites to particular external objects.
+ - The love of liberty that is not a real principle of dutiful behavior to authority is as hypocritical as the religion that is not productive of a good life.
+ - The private interest of the individual would not be sufficiently provided for by reasonable and cool self-love alone; therefore the appetites and passions are placed within as a guard and further security, without which it would not be taken due care of.
+ - Thus there is no doubt the eye was intended for us to see with.
+ - The sum of the whole is plainly this: The nature of man considered in his single capacity, and with respect only to the present world, is adapted and leads him to attain the greatest happiness he can for himself in the present world.
+ - As this world was not intended to be a state of any great satisfaction or high enjoyment, so neither was it intended to be a mere scene of unhappiness and sorrow.
+ - The Epistles in the New Testament have all of them a particular reference to the condition and usages of the Christian world at the time they were written.
+ - Self-love then does not constitute THIS or THAT to be our interest or good; but, our interest or good being constituted by nature and supposed, self-love only puts us upon obtaining and securing it.
+ - Love of our neighbour, then, has just the same respect to, is no more distant from, self-love, than hatred of our neighbour, or than love or hatred of anything else.
+ - The first thought is often the best.
+ - Virtue, as such, naturally procures considerable advantages to the virtuous.
+ - In all common ordinary cases, we see intuitively at first view what is out duty, what is the honest part. This is the ground of the observation, that the first thought is often the best. In these cases, doubt and deliberation is itself dishonesty; as it was in Balaam upon the second message.
+ - Virtue is not to be considered in the light of mere innocence, or abstaining from harm; but as the exertion of our faculties in doing good.
+ - Every one of our passions and affections hath its natural stint and bound, which may easily be exceeded; whereas our enjoyments can possibly be but in a determinate measure and degree.
+ - People might love themselves with the most entire and unbounded affection, and yet be extremely miserable.
+ - Man may act according to that principle or inclination which for the present happens to be strongest, and yet act in a way disproportionate to, and violate his real proper nature.
+ - The satisfaction that accompanies good acts is itself not the motivation of the act; satisfaction is not the motive, but only the consequence.
+ - That which is the foundation of all our hopes and of all our fears; all our hopes and fears which are of any consideration; I mean a Future Life.
+ - It is not at all incredible, that a book which has been so long in the possession of mankind should contain many truths as yet undiscovered.
+ - Remember likewise there are persons who love fewer words, an inoffensive sort of people, and who deserve some regard, though of too still and composed tempers for you.
+ - The object of self-love is expressed in the term self; and every appetite of sense, and every particular affection of the heart, are equally interested or disinterested, because the objects of them all are equally self or somewhat else.
+
+36 quotes

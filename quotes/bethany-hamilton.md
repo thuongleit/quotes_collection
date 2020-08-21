@@ -1,0 +1,55 @@
+ - I don’t need easy, I just need possible.
+ - Courage doesn’t mean you don’t get afraid. Courage means you don’t let fear stop you.
+ - Courage, sacrifice, determination, commitment, toughness, heart, talent, guts. That’s what little girls are made of; the heck with sugar and spice.
+ - The paramedic whispered in my ear ‘God will never leave you or forsake you.’
+ - I wouldn’t change what happened to me because then I wouldn’t have this chance, in front of all of you, to embrace more people than I ever could have with two arms.
+ - You fall off the horse and you get back on.
+ - Love is bigger then a tsunami, stronger then any fear.
+ - God has a lot more to give and to offer than the world has to give.
+ - I gave my heart to Jesus when I was five-years-old and since then it’s been a special relationship. To me it’s not a religion; it’s just talking to God, reading his word, and doing my best to honor him in everything I do.
+ - Fear is something that can really hold us all back from different things in life. It’s important to notice what your fears are and try to conquer them.
+ - Being able to turn to Jesus after the shark attack kept me alive.
+ - Love God; love others; do your best in all you do, even if you fall short!
+ - My belief is where I get my strength. When I’m struggling with something, I can go to God for help and I’m excited to share that.
+ - My faith in God is a huge part of my life, and yeah He has blessed me with an amazing family, and group of friends. In the Bible he tells us to think positively about ourselves, to not be down on ourselves. So I just try to live the way He wants me to, and make the best decisions I can.
+ - I don’t really want people looking to me for inspiration. I just want to be a sign along the way that points toward Heaven.
+ - I believe in Jesus Christ, and I believe He gave me the passion and determination to continue surfing. You fall off the horse, and you get back on. I had to go for it.
+ - I think sharks are beautiful creatures, and I don’t think we should stop going in the ocean because of them. You drive down the road and you get in an accident, but most people end up driving down the road again. Surfing is you’re going into their home and it’s just a natural part of life.
+ - Love is bigger than any tidal wave or fear.
+ - Our health and well-being is something that we can almost control, to a certain extent. We can choose to eat healthy, we can choose to think positively, and we can choose to have good posture. All this stuff makes a difference, and the way that you look and feel, and your confidence.
+ - In the end, my love for surfing helped me overcome my fear of sharks.
+ - I just try to be myself and not conform to something I’m not and just continue doing what I do. I just try not to think about the fact that I’m an inspiration for people.
+ - People can do whatever they want if they just set their heart to it, and just never give up, and just go out there and do it.
+ - I think it doesn’t matter if you are the best surfer in the world. I’m going to try to be the best surfer I can be. It’s not all about competing and being the best. It’s more about having fun and just doing what you love.
+ - I think passion is something that’s more powerful than even love. It’s something that you’re not willing to let go of, and you’ll work really hard to make sure that stays a part of your life.
+ - I can’t change it, That was God’s plan for my life and I’m going to go with it.
+ - Strive to find things to be thankful for and just look for the good in who you are!
+ - Your looks do not define who you are.
+ - God will give us the strength to be able to handle things. I mean, you can try to do it on your own, and sometimes you can pull off some stuff, but in the long run, it’s much easier with Him by our side.
+ - I don’t know how long I’ll be competing, but I’ll always be surfing. I’ll be surfing until I’m old.
+ - The author describes how impressed she was with the detailed storyboards that outlined her movie – “not just sketches, but real art”. She then describes a Hawaiian sunset as, “God painting His storyboard on the sky”.
+ - It’s been amazing to touch people’s lives.
+ - Doing everything with one arm, being well-known, and having a book and a movie, it’s fairly abnormal. As far as just not having to worry about past experiences, I’ve healed very well.
+ - Like, with one arm I know I can surf, but competitive surfing can be really frustrating, and sometimes you don’t do as well as you want to. It can be discouraging at times. But whenever I do get frustrated, I just focus on God.
+ - I’m actually not star-struck. I like to give people their own space and admire them from a distance.
+ - My strength came from my relationship with Christ and from the love and encouragement of my family and friends.
+ - There’s no such thing as a handicap – it’s all in your head.
+ - Compassion can drive us to do amazing things and give us perspective.
+ - Losing an arm is kinda lame at one point, but at the same time, so much good has come out of it.
+ - I enjoy hanging out with friends, going on hikes and playing tennis. I also enjoy Bible study and making dinners. I have a pretty mellow life away from the water.
+ - Both of my parents are surfers, of course, so they understood where my passion for surfing was at and I guess they saw the talent that I had.
+ - We all need that extra friend outside of our immediate family to talk about that extra stuff you wouldn’t normally talk to your parents about.
+ - I just love being on the ocean and being creative on the waves and the feeling you get when you’re surfing. All around it’s beautiful and fun.
+ - It’s easy to look at the things of this world to solve our challenges and obstacles in life, but when we submit our lives to Christ, His grace, mercy, peace and love will bring true fulfillment to our lives.
+ - It’s hard for me to describe the joy I felt after I stood up and rode wave in for the first time after the attack. I was incredibly thankful and happy inside. The tiny bit of doubt that would sometimes tell me you’ll never surf again was gone in one wave.
+ - I’m a surfer at heart. Both my parents moved to Hawaii in the 1970s, where they met and became Christians. Then they taught me and my two brothers how to love the Lord – and how to surf!
+ - I’m just waiting for God to tell me what to do, but whatever it is, I want to be doing something like I am doing now-serving God and helping people.
+ - God created the heavens and the earth, the oceans and the waves for our enjoyment. Surfing is just my way of worshipping Him.
+ - Surfing is very special and unique. It’s really hard to explain unless you’ve tried it. It’s being out in the ocean in the sun, the water on your skin, and the adrenalin rush when you catch a wave. You have to be creative so it’s like an art form in a way.
+ - I could never have embraced this many people with two arms.
+ - Being creative on the waves is challenging, but we each create art in our own way.
+ - My only real fear was that I would not be able to surf again because I was concerned that I would not physically be able to do it. I knew that if I wasn’t able to surf then my life would really change.
+ - The media can be challenging, but at the same time, without the media, I would not have been able to share my personal story. Often the media can bring beauty and encouragement to people’s lives.
+ - To lose your everyday life of surfing and being creative on waves, enjoying the ocean – that’s scary to me. It was essential to at least try surfing again and get out there and see how it went.
+
+53 quotes

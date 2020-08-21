@@ -1,0 +1,223 @@
+ - Trees that are slow to grow bear the best fruit.
+ - One should eat to live, not live to eat.
+ - It is not only for what we do that we are held responsible, but also for what we do not do.
+ - Life is a tragedy to those who feel and a comedy to those who think.
+ - The greater the obstacle, the more glory in overcoming it.
+ - Without knowledge, life is no more than the shadow of death.
+ - A wise man is superior to any insults which can be put upon him, and the best reply to unseemly behavior is patience and moderation.
+ - Love is a great master. It teaches us to be what we never were.
+ - You are my peace, my solace, my salvation.
+ - Every good act is charity. A man’s true wealth hereafter is the good that he does in this world to his fellows.
+ - Nearly all men die of their medicines, not of their diseases.
+ - Great is the fortune of he who possesses a good bottle, a good book, and a good friend.
+ - The great ambition of women is to inspire love.
+ - Man’s greatest weakness is his love for life.
+ - It infuriates me to be wrong when I know I’m right.
+ - I prefer an interesting vice to a virtue that bores.
+ - No one is safe from slander. The best way is to pay no attention to it, but live in innocence and let the world talk.
+ - Music and dance are all you need.
+ - My hate is general, I detest all men; Some because they are wicked and do evil, Others because they tolerate the wicked, Refusing them the active vigorous scorn Which vice should stimulate in virtuous minds.
+ - Long is the road from conception to completion.
+ - We die only once, and for such a long time.
+ - One ought to look a good deal at oneself before thinking of condemning others.
+ - People spend most of their lives worrying about things that never happen.
+ - A learned fool is more a fool than an ignorant fool.
+ - Gold makes the ugly beautiful.
+ - The more we love our friends, the less we flatter them; it is by excusing nothing that pure love shows itself.
+ - You are a fool in four letters, my son.
+ - Of all the noises known to man, opera is the most expensive.
+ - As the purpose of comedy is to correct the vices of men, I see no reason why anyone should be exempt.
+ - Words and deeds are far from being one. Much that is talked about is left undone.
+ - The ancients, sir, are the ancients, and we are the people of today.
+ - If you make yourself understood, you’re always speaking well.
+ - Writing is like prostitution. First you do it for love, and then for a few close friends, and then for money.
+ - With a smile we should instruct our youth...
+ - Love is often the fruit of marriage.
+ - Consistency is only suitable for ridicule.
+ - To inspire love is a woman’s greatest ambition, believe me. It’s the one thing woman care about and there’s no woman so proud that she does not rejoice at heart in her conquests.
+ - The secret to fencing consists in two things: to give and to not receive.
+ - I want people to be sincere; a man of honor shouldn’t speak a single word that doesn’t come straight from his heart.
+ - You only die once, but you will be dead for a very long time.
+ - The defects of human nature afford us opportunities of exercising our philosophy, the best employment of our virtues. If all men were righteous, all hearts true and frank and loyal, what use would our virtues be?
+ - Good Heavens! For more than forty years I have been speaking prose without knowing it.
+ - I believe that two and two are four and that four and four are eight.
+ - It is a folly second to none; to try to improve the world.
+ - My fair one, let us swear an eternal friendship.
+ - It is good food and not fine words that keeps me alive.
+ - We must take the good with the bad; For the good when it’s good, is so very good That the bad when it’s bad can’t be bad!
+ - The proof of true love is to be unsparing in criticism.
+ - Of all follies there is none greater than wanting to make the world a better place.
+ - Hypocrisy is a fashionable vice, and all fashionable vices pass for virtue.
+ - There is something inexpressibly charming in falling in love and, surely, the whole pleasure lies in the fact that love isn’t lasting.
+ - In society one needs a flexible virtue; too much goodness can be blamable.
+ - Doubts are more cruel than the worst of truths.
+ - There are pretenders to piety as well as to courage.
+ - It is a fine seasoning for joy to think of those we love.
+ - Things are only worth what you make them worth.
+ - There is nothing so necessary for men as dancing.
+ - Most people die from the remedy rather than from the illness.
+ - And with his arms crossed he looks pityingly down from his spiritual height on everything that anyone says.
+ - No matter what Aristotle and the Philosophers say, nothing is equal to tobacco; it’s the passion of the well-bred, and he who lives without tobacco lives a life not worth living.
+ - The absence of the beloved, short though it may last, always lasts too long.
+ - No reason makes it right To shun accepted ways from stubborn spite; And we may better join the foolish crowd Than cling to wisdom, lonely though unbowed.
+ - But it is not reason that governs love.
+ - Malicious men may die, but malice never.
+ - I hate all men, the ones because they are mean and vicious, and the others for being complaisant with the vicious ones.
+ - Outside of Paris, there is no hope for the cultured.
+ - It is the public scandal that offends; to sin in secret is no sin at all.
+ - Folk whose own behavior is most ridiculous are always to the fore in slandering others.
+ - I have the fault of being a little more sincere than is proper.
+ - Man, I can assure you, is a nasty creature.
+ - There’s nothing people can’t contrive to praise or condemn and find justification for doing so, according to their age and their inclinations.
+ - Our minds need relaxation, and give way unless we mix with work a little play.
+ - The less we deserve good fortune, the more we hope for it.
+ - The more powerful the obstacle, the more glory we have in overcoming it; and the difficulties with which we are met are the maids of honor which set off virtue.
+ - I might, by chance, write something just as shoddy; But then I wouldn’t show it to everybody.
+ - One easily bears moral reproof, but never mockery.
+ - I always do the first line well, but I have trouble doing the others.
+ - Rest assured that there is nothing which wounds the heart of a noble man more deeply than the thought his honour is assailed.
+ - According to the saying of an ancient philosopher, one should eat to live, and not live to eat.
+ - Birth is nothing where virtue is not.
+ - We always speak well when we manage to be understood.
+ - Nothing can be fairer, or more noble, than the holy fervor of true zeal.
+ - I have the knack of easing scruples.
+ - Two wives? That exceeds the custom.
+ - How easy love makes fools of us.
+ - How easily a fathers tenderness is recalled, and how quickly a son’s offenses vanish at the slightest word of repentance!
+ - Time has nothing to do with the matter.
+ - If you suppress grief too much, it can well redouble.
+ - You have but to hold forth in cap and gown, and any gibberish becomes learning, all nonsense passes for sense.
+ - Everything that’s prose isn’t verse and everything that isn’t verse is prose. Now you see what it is to be a scholar!
+ - I recover my property wherever I find it.
+ - Men often marry in hasty recklessness and repent afterward all their lives.
+ - Anyone may be an honorable man, and yet write verse badly.
+ - When there is enough to eat for eight, there is plenty for ten.
+ - The road is long fro the project to its completion.
+ - The most effective way of attacking vice is to expose it to public ridicule. People can put up with rebukes but they cannot bear being laughed at: they are prepared to be wicked but they dislike appearing ridiculous.
+ - All is wholesome in the absence of excess.
+ - Perfect good sense shuns all extremity, content to couple wisdom with sobriety.
+ - You think you can marry for your own pleasure, friend?
+ - Unreasonable haste is the direct road to error.
+ - A lover tries to stand in well with the pet dog of the house.
+ - I feed on good soup, not beautiful language.
+ - The scandal of the world is what makes the offence; it is not sinful to sin in silence.
+ - Gold gives to the ugliest thing a certain charming air, For that without it were else a miserable affair.
+ - Esteem must be founded on some sort of preference. Bestow it on everybody and it ceases to have any meaning at all.
+ - Betrayed and wronged in everything, I’ll flee this bitter world where vice is king, And seek some spot unpeopled and apart Where I’ll be free to have an honest heart.
+ - Assassination’s the fastest way.
+ - Sharing with Jupiter is never a dishonor.
+ - It may cost me twenty thousand francs; but for twenty thousand francs, I will have the right to rail against the iniquity of humanity, and to devote to it my eternal hatred.
+ - Even Rome cannot grant us a dispensation from death.
+ - I want to be distinguished from the rest; to tell the truth, a friend to all mankind is not a friend for me.
+ - To live without loving is not really to live.
+ - Of all human foibles love of living is the most powerful.
+ - Wives rarely fuss about their beauty To guarantee their mate’s affection.
+ - Ah, there are no children nowadays.
+ - All right-minded people adore it; and anyone who is able to live without it is unworthy to draw breathe.
+ - Grammar, which knows how to control even kings.
+ - The envious will die, but envy never.
+ - The world, dear Agnes, is a strange affair.
+ - We live under a prince who is an enemy to fraud, a prince whose eyes penetrate into the heart, and whom all the art of impostors can’t deceive.
+ - I will not leave you until I have seen you hanged.
+ - Frenchmen have an unlimited capacity for gallantry and indulge it on every occasion.
+ - True, Heaven prohibits certain pleasures; but one can generally negotiate a compromise.
+ - Cover that bosom that I must not see: souls are wounded by such things.
+ - Each day my reason tells me so; But reason doesn’t rule in love, you know.
+ - We are easily duped by those we love.
+ - He makes his cook his merit, and the world visits his dinners and not him.
+ - Ah! how annoying that the law doesn’t allow a woman to change husbands just as one does shirts.
+ - Those whose conduct gives room for talk are always the first to attack their neighbors.
+ - Perfect reason avoids all extremes.
+ - If Claret is the king of natural wines, Burgundy is the queen.
+ - In clothes as well as speech, the man of sense Will shun all these extremes that give offense, Dress unaffectedly, and, without haste, Follow the changes in the current taste.
+ - There is no secret of the heart which our actions do not disclose.
+ - Its as if you think you’d never find Reason and the Sacred intertwined.
+ - Tobacco is the passion of honest men and he who lives without tobacco is not worthy of living.
+ - A laudation in Greek is of marvellous efficacy on the title-page of a book.
+ - People don’t mind being mean; but they never want to be ridiculous.
+ - He must have killed a lot of men to have made so much money.
+ - He who follows his lessons tastes a profound peace, and looks upon everybody as a bunch of manure.
+ - All the power is with the sex that wears the beard.
+ - The duty of comedy is to correct men by amusing them.
+ - Although I am a pious man, I am not the less a man.
+ - There is no fate more distressing for an artist than to have to show himself off before fools, to see his work exposed to the criticism of the vulgar and ignorant.
+ - Books and marriage go ill together.
+ - People are all alike in their promises. It is only in their deeds that they differ.
+ - Birth is nothing without virtue, and we have no claim to share in the glory of our ancestors unless we endeavor to resemble them.
+ - Don’t appear so scholarly, pray. Humanize your talk, and speak to be understood.
+ - There is no reward so delightful, no pleasure so exquisite, as having one’s work known and acclaimed by those whose applause confers honor.
+ - Isn’t the greatest rule of all the rules simply to please?
+ - Debts are nowadays like children begot with pleasure, but brought forth in pain.
+ - I maintain, in truth, That with a smile we should instruct our youth, Be very gentle when we have to blame, And not put them in fear of virtue’s name.
+ - Show some mercy to this chair which has stretched out its arms to you for so long; please satisfy its desire to embrace you!
+ - Age brings about everything; but it is not the time, Madam, as we know, to be a prude at twenty.
+ - Once you have the cap and gown all you need do is open your mouth. Whatever nonsense you talk becomes wisdom and all the rubbish good sense.
+ - My heavens! I’ve been talking prose for the last forty years without knowing it.
+ - The impromptu reply is precisely the touchstone of the man of wit.
+ - Then worms shall try That long preserved virginity, And your quaint honor turn to dust, And into ashes all my lust. The grave’s a fine and private place But none, I think, do there embrace.
+ - All the ills of mankind, all the tragic misfortunes that fill the history books, all the political blunders, all the failures of the great leaders have arisen merely from a lack of skill at dancing.
+ - One can be well-bred and write bad poetry.
+ - It is fine for a woman to know a lot; but I don’t want her to have this shocking desire to be learned for learnedness sake. When I ask a woman a question, I like her to pretend to ignore what she really knows.
+ - It’s an odd job, making decent people laugh.
+ - No matter what everybody says, ultimately these things can harm us only by the way we react to them.
+ - That must be fine, for I don’t understand a word.
+ - All extremes does perfect reason flee, And wishes to be wise quite soberly.
+ - We should look long and carefully at ourselves before we pass judgement on others.
+ - To marry a fool is to be no fool.
+ - Cultivated people should be superior to any consideration so sordid as a mercenary interest.
+ - Frankly, it’s good enough to lock up in a drawer.
+ - When you model yourself on people, you should try to resemble their good sides.
+ - Malicious tongues spread their poison abroad and nothing here below is proof against them.
+ - To find yourself jilted is a blow to your pride. Do your best to forget it and if you don’t succeed, at least pretend to.
+ - All the satires of the stage should be viewed without discomfort. They are public mirrors, where we are never to admit that we seeourselves; one admits to a fault when one is scandalized by its censure.
+ - Better to be married than dead!
+ - Deference and intimacy live far apart.
+ - Reason is not what decides love.
+ - The true touchstone of wit is the impromptu.
+ - A husband is a plaster that cures all the ills of girlhood.
+ - Some of the most famous books are the least worth reading. Their fame was due to their having done something that needed to be doing in their day. The work is done and the virtue of the book has expired.
+ - The smallest errors are always the best.
+ - Oh, how fine it is to know a thing or two.
+ - In order to prove a friend to one’s guests, frugality must reign in one’s meals; and, according to an ancient saying, one must eat to live, not live to eat.
+ - The genuine Amphitryon is the Amphitryon with whom we dine.
+ - There’s a sort of decency among the dead, a remarkable discretion: you never find them making any complaint against the doctor who killed them!
+ - There is no protection against slander.
+ - Oh, I may be devout, but I am human all the same.
+ - I have a heart to love all the world; and like Alexander I wish there were yet other worlds, so I could carry even further my amorous conquests.
+ - You never see the old austerity That was the essence of civility; Young people hereabouts, unbridled, now Just want.
+ - The art of flatterers is to take advantage of the foibles of the great, to foster their errors, and never to give advice which may annoy.
+ - All which is not prose is verse; and all which is not verse is prose.
+ - The only people who can be excused for letting a bad book loose on the world are the poor devils who have to write for a living.
+ - Everyone has a right to his own course of action.
+ - New-born desires, after all, have inexplicable charms, and all the pleasure of love is in variety.
+ - Without dance, a man can do nothing.
+ - Sometimes I feel something akin to rage At the corrupted morals of this age!
+ - Grammar, which knows how to lord it over kings, and with high hands makes them obey its laws.
+ - When we are understood, we always speak well, and then all your fine diction serves no purpose.
+ - A good husband be the best sort of plaster for to cure a young woman’s ailments.
+ - I find medicine is the best of all trades because whether you do any good or not you still. Get your money.
+ - Stay awhile that we may make an end the sooner.
+ - One cannot but mistrust a prospect of felicity: one must enjoy it before one can believe in it.
+ - There is no praise to bear the sort that you put in your pocket.
+ - What a terrible thing to be a great lord, yet a wicked man.
+ - It’s true Heaven forbids some pleasures, but a compromise can usually be found.
+ - How strange it is to see with how much passion People see things only in their own fashion!
+ - Too great haste leads us to error.
+ - It is a strange enterprise to make respectable people laugh.
+ - Solitude terrifies the soul at twenty.
+ - Gold is the key, whatever else we try; and that sweet metal aids the conqueror in every case, in love as well as war.
+ - Innocence is not accustomed to blush.
+ - People of quality know everything without ever having learned anything.
+ - I will maintain it before the whole world.
+ - Reasoning is the pastime of my whole household, and all this reasoning has driven out Reason.
+ - Virtue is the first title of nobility.
+ - We are all mortals, and each is for himself.
+ - Human weakness is to desire to know what one does not want to know.
+ - And knowing money is a root of evil, in Christian charity, he’d take away whatever things may hinder your salvation.
+ - Heaven forbids, it is true, certain gratifications, but there are ways and means of compounding such matters.
+ - I would like to be like my father and all the rest of my ancestors who never married.
+ - She is laughing up her sleeve at you.
+ - People can be induced to swallow anything, provided it is sufficiently seasoned with praise.
+ - A woman always has her revenge ready.
+
+221 quotes

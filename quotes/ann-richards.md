@@ -1,0 +1,45 @@
+ - Learn to enjoy your own company. You are the one person you can count on living with for the rest of your life.
+ - The here and now is all we have, and if we play it right it’s all we’ll need.
+ - I’ve been tested by fire, and the fire lost.
+ - Cherish your friends and family as if your life depended on it. Because it does.
+ - A road to a friend’s house is never long.
+ - You can put lipstick and earrings on a hog and call it Monique, but it’s still a pig.
+ - After all, Ginger Rogers did everything that Fred Astaire did. She just did it backwards and in high heels.
+ - We have forgotten to be our brothers and sisters keepers. And we have forgotten that the Number 1 goal is to love one another.
+ - I’m against an income tax because all the rich people hire lawyers and accountants to be sure that they don’t pay income tax.
+ - I’ve always said that in politics, your enemies can’t hurt you, but your friends will kill you.
+ - There is a lot more to this life than just the struggle to make money.
+ - Power is what calls the shots, and power is a white male game.
+ - I’m not afraid to shake up the system, and government needs more shaking up than any other system I know.
+ - I have a real soft spot in my heart for librarians and people who care about books.
+ - If you think taking care of yourself is selfish, change your mind. If you don’t, you’re simply ducking your responsibilities.
+ - I’ve always told my children that life is like a layer cake. You get to put one layer on top of the other, and whether you frost it or not is up to you.
+ - Oh, I would probably have raised more hell.
+ - I feel very strongly that change is good because it stirs up the system.
+ - I have very strong feelings about how you lead your life. You always look ahead, you never look back.
+ - I thought I knew Texas pretty well, but I had no notion of its size until I campaigned it.
+ - They blame the low income women for ruining the country because they are staying home with their children and not going out to work. They blame the middle income women for ruining the country because they go out to work and do not stay home to take care of their children.
+ - Weight-bearing exercise builds bone density, builds your muscular strength so that you can hold your body up where those bones have a tendency to get weak.
+ - Now we Democrats believe that America is still the country of fair play, that we can come out of a small town or a poor neighborhood and have the same chance as anyone else, and it doesn’t matter whether we are black or Hispanic, or disabled or women.
+ - I think you have to deal with grief in the sense that you have to recognize that you have it, and say that it’s OK to have all the sadness.
+ - You bet being funny helps accomplish things. I’ve always maintained that people don’t realize how many brain cells it takes to be funny. And politics ought to be fun – after baseball it’s our next favorite national pastime.
+ - Young women should begin to build bone mass early in their lives. The more mass there is, the less they will lose in later life. They should enjoy a diet of calcium-rich foods and avoid food and drink that causes bone loss.
+ - We saw farms go on the auction block while we bought food from foreign countries. Well, that’s wrong.
+ - Well, you know my number one cause has always been that women’s reproductive health needs to be protected.
+ - I believe in recovery, and I believe that as a role model I have the responsibility to let young people know that you can make a mistake and come back from it.
+ - Let me tell you, sisters, seeing dried egg on a plate in the morning is a lot dirtier than anything I’ve had to deal with in politics.
+ - People don’t know that New York really is just made up of a group of very small neighborhoods.
+ - July does not a November election make.
+ - I have an awfully good life.
+ - I get a lot of cracks about my hair, mostly from men who don’t have any.
+ - If you can’t fill the till, then don’t pass the bill.
+ - Doctors are our partners, and they need all the assistance we can give them to be sure we get the right diagnosis.
+ - Teaching was the hardest work I had ever done, and it remains the hardest work I have done to date.
+ - I had such high expectations of myself. I was going to be the best mother, the best housewife, the best entertainer, the best nurse, you know – what it was, I was going to be the best. And I could never live up to my expectations.
+ - We’re living in a whole new social and economic order with a whole new set of problems and challenges. Old assumptions and old programs don’t work in this new society and the more we try to stretch them to make them fit, the more we will be seen as running away from what is reality.
+ - One of the truths of our time is the hunger deep in people are over the planet for coming into relationship with each other.
+ - We’re not going to have the America that we want until we elect leaders who are going to tell the truth – not most days, but every day.
+ - I have always had the feeling I could do anything and my dad told me I could. I was in college before I found out he might be wrong.
+ - Jesse Jackson is a leader and a teacher who can open our hearts and open our minds and stir our very souls.
+
+43 quotes

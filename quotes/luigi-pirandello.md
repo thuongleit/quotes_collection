@@ -1,0 +1,54 @@
+ - Whoever has the luck to be born a character can laugh even at death. Because a character will never die! A man will die, a writer, the instrument of creation: but what he has created will never die!
+ - Life is little more than a loan shark: It exacts a very high rate of interest for the few pleasures it concedes.
+ - Life is full of strange absurdities, which, strangely enough, do not even need to appear plausible, since they are true.
+ - Nature uses human imagination to lift her work of creation to even higher levels.
+ - Inevitably we construct ourselves. Let me explain. I enter this house and immediately I become what I have to become, what I can become: I construct myself. That is, I present myself to you in a form suitable to the relationship I wish to achieve with you. And, of course, you do the same with me.
+ - If only we could see in advance all the harm that can come from the good we think we are doing.
+ - The secret of living is to find a pivot, the pivot of a concept on which you can make your stand.
+ - Refusing to have an opinion is a way of having one, isn’t it?
+ - You should show some respect for what other people see and feel, even though it be the exact opposite of what you see and feel.
+ - I am an “unrealized” character, dramatically speaking...
+ - It is much easier to be a hero than a gentleman.
+ - We think we understand each other, but we never really do.
+ - Whatever is a reality today, whatever you touch and believe in and that seems real for you today, is going to be – like the reality of yesterday – an illusion tomorrow.
+ - As soon as one is born, one starts dying.
+ - If you shut yourself up disdainfully in your ivory tower and insist that you have your own conscience and are satisfied with its approval, it is because you know that everybody is criticizing you, condemning you, or laughing at you.
+ - I present myself to you in a form suitable to the relationship I wish to achieve with you.
+ - Here is a piece of earth. If you stand staring at it and doing nothing, what does the earth yield? Nothing. Just like a woman.
+ - Six Characters in Search of an Author.
+ - In bed my real love has always been the sleep that rescued me by allowing me to dream.
+ - There is someone who is living my life. And I know nothing about him.
+ - Logic is one thing, the human animal another. You can quite easily propose a logical solution to something and at the same time hope in your heart of hearts it won’t work out.
+ - Women are like dreams, they are never the way you would like to have them.
+ - You too must not count too much on your reality as you feel it today, since like yesterday, it may prove an illusion for you tomorrow.
+ - Woe to him who doesn’t know how to wear his mask, be he king or pope!
+ - I would love to spend all my time writing to you; I’d love to share with you all that goes through my mind, all that weighs on my heart, all that gives air to my soul; phantoms of art, dreams that would be so beautiful if they could come true.
+ - The man, the writer, the instrument of the creation will die, but his creation does not die.
+ - We’re like so many puppets hung on the wall, waiting for someone to come and move us or make us talk.
+ - Anyone can be heroic from time to time, but a gentleman is something you have to be all the time.
+ - Each of us when he appears before his fellows is clothed in a certain dignity. But every man knows what unconfessable things pass within the secrecy of his own heart.
+ - Blind yourself, for I am blind.
+ - When you say you are in love with humanity, you are well satisfied with yourself.
+ - We all grasp on to a single idea of ourselves, the way aging people dye their hair. It’s no matter that this dye doesn’t fool you. My lady, you don’t dye your hair to decieve other people, or to fool yourself, but rather to cheat your image in your mirror a little.
+ - Woman – for example, look at her case! She turns tantalizing inviting glances on you. You seize her. No sooner does she feel herself in your grasp than she closes her eyes. It is a sign of her mission, the sign by which she says to man: “Blind yourself, for I am blind.”
+ - Pretending is a virtue. If you cant pretend, you can’t be king.
+ - Buffoons, buffoons! One can play any tune on them!
+ - Personally, I don’t give a rap for documents; for the truth in my eyes is not in them but in the mind.
+ - Every true man, sir, who is a little above the level of the beasts and plants does not live for the sake of living, without knowing how to live; but he lives so as to give a meaning and a value of his own to life.
+ - One cannot choose what he writes – one can only choose to face it.
+ - It is the hardest thing to close the open hand of someone you love.
+ - It is misery, you know, unspeakable misery for the man who lives alone and who detests sordid, casual affairs; not old enough to do without women, but not young enough to be able to go and look for one without shame!
+ - We ride through life on the beast within us. Beat the animal, but you can’t make it think.
+ - Man never reasons so much and becomes so introspective as when he suffers; since he is anxious to get at the cause of his sufferings, to learn who has produced them, and whether it is just or unjust that he should have to bear them.
+ - Not one of us can lie or pretend. We’re all fixed in good faith in a certain concept of ourselves.
+ - A fact is like a sack which won’t stand up if it’s empty. In order that it may stand up, one has to put into it the reason and sentiment which caused it to exist.
+ - Each of us, face to face with other men, is clothed with some sort of dignity, but we know only too well all the unspeakable things that go on in the heart.
+ - The facts are to blame, my friend. We are all imprisoned by facts: I was born, I exist.
+ - When the characters are really alive before their author, the latter does nothing but follow them in their action, in their words, in the situations which they suggest to him.
+ - Do you believe you can know yourselves if you don’t somehow con- struct yourselves? Or that I can know you if I don’t construct you in my way? And can you know me if I don’t construct you in my way? We can know only what we succeed in giving form to.
+ - When a character is born, he acquires at once such an independence, even of his own author, that he can be imagined by everybody even in many other situations where the author never dreamed of placing him; and so he acquires for himself a meaning which the author never thought of giving him.
+ - Phantoms in general are nothing more than trifling disorders of the spirit; images we cannot contain within the bounds of sleep.
+ - None of us can estimate what we do when we do it from instinct.
+ - Shake yourself free from the manikin you create out of a false interpretation of what you do and what you feel, and you’ll at once see that the manikin you make yourself is nothing at all like what you really are or what you really can be!
+
+52 quotes

@@ -1,0 +1,49 @@
+ - Death is not goodbye.
+ - If I don’t wield the sword, I can’t protect you. If I keep wielding the sword, I can’t embrace you. -Ichigo Kurosaki.
+ - Don’t use such strong words. It’ll only make you look weak.
+ - If such a thing called happiness exists in this world, it should be something which resembles the limitless nothingness. Nihility is having nothing and having nothing to lose. If that isn’t “happiness”, then what is?
+ - Those who do not know what love is likens it to beauty Those who claim to know what love is likens it to ugliness -Gin Ichimaru.
+ - I hate loneliness, but it loves me.
+ - If I were rain, That joins sky and earth that otherwise never touch, Could I join two hearts as well?
+ - When someone changes your world, that’s when you know he’s important to you.
+ - Before facing you enemy, you must first face yourself.
+ - We stand in awe before that which cannot be seen. We respect with every fiber of our being that which cannot be explained.
+ - The rain drags Black Sun down, but the rain dried by White Moon.
+ - If you give me wings I will soar for you Even if this whole land Sinks down to the water If you give me a sword I will fight for you Even if this whole sky Shoots through with your light.
+ - Red like blood White like bone Red like solitude White like silence Red like the beastly instinct White like a god’s heart Red like thawing hatred White like a frozen, pained cry Red like the night’s hungry shadows Like a sigh piercing the moon it shines white and shatters red.
+ - If it’s me, it would be a waste not to dance no matter what.
+ - No, nothing can change my world – Ichigo Kurosaki, Black Moon Rising.
+ - Live a good long life. Grow old and die after I do. And if you can, die laughing.
+ - You just noticed? You’re slow...
+ - If it rusts, it can never be trusted If its owner fails to control it, it will cut him Yes, pride is like a blade.
+ - Every thing in this world exist to wear you down.
+ - We fear that which we cannot see.
+ - In Japan, artists and fans are rather far apart from each other.
+ - Envious because I have a heart, Gluttonous because I have a heart, Greedy because I have a heart, Prideful because I have a heart, Slothful because I have a heart, Wrathful because I have a heart, Because I have a heart, I lust for all that you are.
+ - So stop sulking. You’re not old enough for the cool, tortured look.
+ - We must never shed tears That is the life form’s defeat and if we give into the emotions then it only becomes proof of our inability to control it.
+ - I wonder can I carry on with the speed of the world without you in it.
+ - He who does not fear the sword he holds is not worthy of holding a sword. -Hisagi Shuuhei.
+ - We should not shed tears That is a surrender of the body to the heart It is only proof That we are beings that do not know What to do with out hearts.
+ - I can’t go back because I lost all my Soul Reaper powers! – Rukia You lost your powers? What are they, socks? – Ichigo.
+ - They say even death can’t cure an idiot. -Ririn.
+ - My innocence is a dying flower.
+ - When the two that share destiny part and reunite, beyond the frame of time, the ceased clock will awake and start to tick once again.
+ - Don’t die. Don’t die! You don’t have to win. You don’t have to keep trying! Just don’t get hurt anymore, please!
+ - The fact that I am so young So Immature Seems unforgivable to The decrepit Perfect and faultless adults.
+ - We have Not one In common No two Are shaped alike The third Because of that eye we lack In the fourth Direction there is hope The fifth Is at the heart -Orihime Inoue.
+ - Can I start by asking why your drawings abnormally suck?
+ - Your shadow stealthily leaves nothing of where you go, like a poisoned needle that sews together my footsteps. Your light pliantly strikes the water tower, like a lightning bolt that severs the source of my life. -Soifon.
+ - Everyone in this world acknowledges as truth only what is convenient for them. They have no other way of living.
+ - Hold on. So in my mind, this jacked-up, sideways ridiculousness is the normal state?
+ - People have hope because they cannot see Death standing behind them.
+ - Doesn’t matter who it is I’ll friggin break ’em -Grimmjow jaggerjaques.
+ - I know that. What’s your point?
+ - No world is without sacrifices. But if we produce casualties, we would also sustain casualties of our own.
+ - Cats cant speak, that’s common sense. -Yoruichi.
+ - You gotta wonder about someone who would be dumb enough to fallo a person as crazy as him! wait, I think I just insulted myself – ganju.
+ - The fact that Gene Simmon’s son is a manga-ka disturbs me more than whether he’s really copying or not.
+ - Ikkaku: Rescue her? How many of you are here? Seven? Maybe eight? Ichigo: Five people and a cat.
+ - Sanity? Sorry, I don’t ever remember having something like that before.
+
+47 quotes

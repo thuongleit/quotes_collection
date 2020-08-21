@@ -1,0 +1,64 @@
+ - When the Fox hears the Rabbit scream he comes a-runnin’, but not to help.
+ - Hannibal Lecter: We live in a primitive time – don’t we, Will? – neither savage nor wise. Half measures are the curse of it. Any rational society would either kill me or give me my books.
+ - Problem-solving is hunting; it is savage pleasure and we are born to it.
+ - Typhoid and swans – it all comes from the same place.
+ - I think it’s easy to mistake understanding for empathy – we want empathy so badly. Maybe learning to make that distinction is part of growing up. It’s hard and ugly to know somebody can understand you without even liking you.
+ - One can only see what one observes, and one observes only things which are already in the mind.
+ - I am the dragon, and you call me insane.
+ - Nothing made me happen. I happened.
+ - The worm that destroys you is the temptation to agree with your critics, to get their approval.
+ - The most stable elements, Clarice, appear in the middle of the periodic table, roughly between iron and silver. Between iron and silver. I think that is appropriate for you.
+ - Hannibal at eighteen was rooting for Mephistopheles and contemptuous of Faust, but he only half-listened to the climax. He was watching and breathing Lady Murasaki...
+ - The tragedy is not to die, but to be wasted.
+ - It rubs the lotion on its skin. It does this whenever it is told.
+ - There is no murder. We make murder, and it matters only to us.
+ - You cant reduce me to a set of influences.
+ - Dr. Fell, do you believe a man could become so obsessed with a woman, from a single encounter? Could he daily feel a stab of hunger for her and find nourishment in the very sight of her? I think so. But would she see through the bars of his plight and ache for him?
+ - Being smart spoils a lot of things, doesn’t it?
+ - He moves smoothly and slowly, carrying his concentration like a brimming cup.
+ - I would not have had that happen to you. Discourtesy is unspeakably ugly to me.
+ - Nothing makes us more vulnerable than loneliness except greed.
+ - There is a common emotion we all recognize and have not yet named – the happy anticipation of being able to feel contempt.
+ - Did you ever think, Clarice, why the Philistines don’t understand you? It’s because you are the answer to Samson’s riddle. You are the honey in the lion.
+ - What does he do, Clarice? What is the first and principal thing he does, what need does he serve by killing? He covets. How do we begin to covet? We begin by coveting what we see every day.
+ - It’s fear, Jack. The man deals with a huge amount of fear.? Because he got hurt?? No, not entirely. Fear comes with imagination, it’s a penalty, it’s the price of imagination.
+ - You must understand that when you are writing a novel you are not making anything up. It’s all there and you just have to find it.
+ - Silence can mock.
+ - Shiloh isn’t haunted – men are haunted. Shiloh doesn’t care.
+ - One quality in a person doesn’t rule out any other quality. They can exist side by side, good and terrible. Socrates said it a lot better.
+ - Hello Clarice...
+ - It’s hard to have anything isn’t it? Rare to get it, hard to keep it. This is a damn slippery planet.
+ - Life’s too slippery for books, Clarice; anger appears as lust, lupus presents as hives.
+ - Gratitude’s got a short half-life, Clarice.
+ - God’s creatures who cried themselves to sleep stirred to cry again.
+ - How seldom we recognize the sound when the bolt of our fate slides home.
+ - She didn’t give a damn about some of them, but she had grown to learn that inattention can be a stratagem to avoid pain, and that it is often misread as shallowness and indifference.
+ - But the face on the pillow, rosy in the firelight, is certainly that of Clarice Starling, and she sleeps deeply, sweetly, in the silence of the lambs.
+ - I ate his liver with some fava beans and a nice chianti.
+ - He was numb except for dreading the loss of numbness.
+ - When you feel strain, keep your mouth shut if you can.
+ - A census taker tried to quantify me once. I ate his liver with some fava beans and a big Amarone. Go back to school, little Starling.
+ - I love myself that much and I will never apologize to you.
+ - On a related subject, Signore Pazzi, I must confess to you: I’m giving serious thought to eating your wife.
+ - Intense fear comes in waves; the body can’t stand it for long at a time.
+ - In making friends, she was wary of people who foster dependency and feed on it. She had been involved with a few – the blind attract them, and they are the enemy.
+ - The very air had screams smeared on it. He flinched from the noise in this silent room.
+ - He sees very clearly – he damn sure sees through me. It’s hard to accept that someone can understand you without wishing you well. At Starling’s age it hadn’t happened to her much.
+ - When Will Graham could open his right eye, he saw the clock and knew where he was- an intensive-care unit. He knew to watch the clock. Its movement assured him that this was passing, would pass. That’s what it was there for.
+ - I collect church collapses, recreationally. Did you see the recent one in Sicily? Marvelous! The facade fell on sixty-five grandmothers at a special mass. Was that evil? If so, who did it? If he’s up there, he just loves it, Officer Starling. Typhoid and swans – it all comes from the same place.
+ - Ready when you are Sergeant Pempbry.
+ - Over this odd world, this half the world that’s dark now, I have to hunt a thing that lives on tears.
+ - We can only learn so much and live.
+ - We routinely leave our small children in day care among strangers. At the same time, in our guilt we evince paranoia about strangers and foster fear in children.
+ - Back at his chair he cannot remember what he was reading. He feels the books beside him to find the one that is warm.
+ - Writing novels is the hardest thing I’ve ever done, including digging irrigation ditches.
+ - You know how cats do. They hide to die. Dogs come home.
+ - The advantage of beating a mute is he can’t tell on you.
+ - I’m doing one of three things: I’m writing. I’m staring out the window. Or I’m writhing on the floor.
+ - Because it’s his bad luck to be the best.
+ - I found, and find, the scrutiny of Dr. Lecter uncomfortable, intrusive, like the humming of your thoughts when they x-ray your head.
+ - I expect most psychiatrists have a patient or two they’d like to refer to me.
+ - I’ll confess it is pleasant to look at you asleep. You’re quite beautiful, Clarice.
+ - It occured to Starling how much Roden would benefit from an elbow smash in the hinge of his jaw.
+
+62 quotes

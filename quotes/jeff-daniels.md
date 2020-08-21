@@ -1,0 +1,43 @@
+ - Are we just pretending to be unhappy so that we can add drama to our lives, so that we seem more substantial?
+ - Everything’s a story, kid. Stories are what help us make sense of the world.
+ - Nothing seems to matter but ourselves. That’s not how I was brought up. I don’t recognize the country I live in anymore.
+ - I don’t watch dailies. I don’t pretend not to read reviews, I just don’t. I wait for it to come on the air, just like everybody else.
+ - I went to Walter Reed hospital a couple of times to visit wounded soldiers, kids with no legs and one arm. You start to question some things.
+ - I think we have the attention span of a gnat. You know, with cell phones and Twitter.
+ - I think Michigan keeps you sane and on an even keel through the ups and downs. In Michigan, I do fireworks, shovel snow and live life.
+ - I know I’m not bipolar or schizophrenic, but this career allows you to explore, to take some facets of yourself and spin it.
+ - I love living in Michigan, which has been great for my kids and my family.
+ - There’s not a single job in this town. There’s nothin’, nada, zip. Unless you wanna workforty hours a week.
+ - The indie world changed when the economy went south. I was frustrated with doing something, then waiting for it to come out, and sometimes it never did, or would just play in New York for 50 people. So I really wanted to try something else.
+ - I’m the guy to call. Look at the resume. I have kids of my own. I have dogs.
+ - On cable now, the writer is king. Any actor chases that.
+ - I love the theater, but if I had to choose, I would choose a film at this time in my life. Something meaty, to sink my teeth into.
+ - Stars don’t want to have flaws. Stars like to be likable.
+ - One of the more noble things the Oscars can do is pay attention to movies no one knows about. Blockbusters don’t need much help.
+ - I think it’s a style of acting that you trust. You trust the instincts.
+ - Give me good writing, and I’ll play it all day.
+ - Meryl Streep’s brilliant, just brilliant. I’ve been fortunate to do two movies with Meryl. And for an actor to go moment to moment like she does, there’s no one better. And she dances between moments. Each take is different because she’s riding instincts, she’s riding impulses. And she trusts that.
+ - Comedy is hard to do. All the cliches about it are true.
+ - You know, its really strange now with the Internet, with everyone having an unsolicited, anonymous opinion.
+ - Every actor just wants good writing.
+ - I never starved. And you know, whatever talent I have, I’ve relied on that, versus image or star. I have just said, ‘Hire me if you want somebody good.’ I tried to be as good as I could be every time out, and that’s kind of bridged the decades.
+ - I never starved. And you know, whatever talent I have, I’ve relied on that, versus image or star.
+ - I have done all of the genres, and the dramatic role is my favorite.
+ - The biggest compliment I think an actor can get is I can’t imagine anyone else in the role.
+ - Well, the music industry is littered with actors who belatedly came to singing.
+ - I always wanted to do films. I’d gone to New York early in 1976 and did a lot of theater, but I really wanted to chase the paths of people like Pacino and Lemmon and those guys. Alan Arkin. Film was where I wanted to go.
+ - There is no best anything in art.
+ - You see a lot of these movies that are really just 90-minute video games. The effects are incredible. I get it: There’s an art to that, terrific. I’m not interested in it, but there’s an art to that I suppose.
+ - And the actors tend not to want to watch themselves very often. I’m one of those guys.
+ - Television in the last few years has been where all the great writers are going. TV now is what indie film used to be.
+ - We’re all capable of anything as human beings. Any emotion, any action. We really are.
+ - I think the American electorate should work a little harder at getting informed. That includes hearing, truly listening, to what the other side is saying. Whether you’re left or right.
+ - I was haunted by trainers going “Up, up, up, get up.” You find yourself picking your head up and then realizing, They aren’t talking to me.
+ - I just never did buy this idea that you have to live in Los Angeles to be an actor. I didn’t see that as a requirement in my job description.
+ - I never said, ‘I’m going to be a big star.’ I said, ‘I’m going to be a good actor.’ And that took the pressure off.
+ - I learned a long time ago that the show you’re going to see isn’t the one you have in your head. As soon as you understand that, you’re going to enjoy it a lot more.
+ - As an actor, you’re always at the service of somebody else’s vision. In a play, it’s more of the director’s vision, and he or she’s got their hands on you all the way up to opening night, and if it’s a film, there are even more people.
+ - I also write plays, so I understand the writers mind, and how obsessed you can get writing.
+ - There are so many projects that you go into hoping the story works, and here comes a new third act and that kind of thing.
+
+41 quotes

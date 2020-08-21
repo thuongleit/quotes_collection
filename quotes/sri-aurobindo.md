@@ -1,0 +1,192 @@
+ - Life is life – whether in a cat, or dog or man. There is no difference there between a cat or a man. The idea of difference is a human conception for man’s own advantage.
+ - By your stumbling, the world is perfected.
+ - Love is the keynote, Joy is the music, Knowledge is the performer, the Infinite All is the composer and audience.
+ - The soul in man is greater than his fate...
+ - There is no greater pride and glory than to be a perfect instrument of the Master.
+ - The supreme end is the freedom of the spirit.
+ - The whole world yearns after freedom, yet each creature is in love with his chains; this is the first paradox and inextricable knot of our nature.
+ - The principle of Yoga is the turning of one or of all powers of our human existence into a means of reaching divine Being.
+ - Detachment is the beginning of mastery.
+ - Care not for time and success. Act out thy part, whether it be to fail or to prosper.
+ - The first principle of true teaching is that nothing can be taught.
+ - Peace is the first condition, without which nothing else can be stable.
+ - Live within; be not shaken by outward happenings.
+ - A quiet mind does not mean that there will be no thoughts or mental movements at all, but that these will be on the surface, and you will feel your true being within, separate from them, observing but not carried away.
+ - The experiences of your past life which are stored within come up to the surface to be rejected. By rejecting all these by and by the inside will have to be cleansed.
+ - When Reason died, then Wisdom was born.
+ - The consciousness of the supreme Purusha remains above, but in the mind there may be a Purusha consciousness which they call the cosmic consciousness – it is wide, all-pervading, one. Outside this goes on the play of Prakriti.
+ - The mind has these four levels: physical, vital, buddhi, higher mind. The Supermind is far above these.
+ - Do not be eager for things above.
+ - The business of both parent and teacher is to enable and to help the child to educate himself, to develop his own intellectual, moral, aesthetic and practical capacities and to grow freely as an organic being, not to be kneaded and pressured into form like an inert plastic material.
+ - True knowledge is not attained by thinking. It is what you are; it is what you become.
+ - The Atheist is God playing at hide and seek with Himself.
+ - One can see light above the head; that indicates a consciousness outside the body. But that itself is not the Truth-Consciousness or Vijnana. But much light descending from there illumines this consciousness.
+ - In order to see, you have to stop being in the middle of the picture.
+ - Only the soul that is naked and unashamed, can be pure and innocent, even as Adam was in the primal garden of humanity .
+ - All existence is a manifestation of God.
+ - Death is but changing of our robes to wait in wedding garments at the Eternal’s gate.
+ - The great are strongest when they stand alone, A God-given might of being is their force.
+ - Man is a transitional being. He is not final. The step from man to superman is the next approaching achievement in the earth evolution. It is inevitable because it is at once the intention of the inner spirit and the logic of nature’s process.
+ - Perfect health, sincerity, honesty, straightforwardness, courage, disinterestedness, unselfishness, patience, endurance, perseverance, peace, calm, self control are all things that are taught infinitely better by example than by beautiful speeches.
+ - What the soul sees and has experienced, that it knows; the rest is appearance, prejudice and opinion.
+ - The inside must be made entirely calm and quiet and there should reign an upward aspiration – a state of awaiting.
+ - The fly that touches honey cannot use it’s wings; so too the soul that clings to spiritual sweetness ruins it’s freedom and hinders contemplation.
+ - Be conscious first of thyself within, then think and act.
+ - Our human knowledge is a candle burnt On a dim altar to a sun-vast Truth.
+ - Only when Eternity takes Time by the hand, Only when infinity weds the finite’s thought, Can man be free from himself and live with God.
+ - Witness and stand back from Nature, that is the first step to the soul’s freedom.
+ - Be conscious first of thyself within, then think and act. All living thought is a world in preparation; all real act is a thought manifested. The material world exists because an idea began to play in divine self–consciousness.
+ - All thoughts, desires, conventions, attachments which come from outside must be ruthlessly pushed away.
+ - Sit in meditation ! But do not think ! Look only at your mind ! You will see thoughts coming into it ! Before they can enter, throw these away from your mind till your mind is capable of entire silence.
+ - Sin and virtue are a game of resistance we play with God in His efforts to draw us towards perfection.
+ - The language of the Veda itself is sruti, a rhythm not composed by the intellect but heard, a divine Word that same vibrating out of the Infinite to the inner audience of the man who had previously made himself fit fot the impersonal knowledge.
+ - With which part do you watch? Surely with the mind? That won’t do. It is the silent Purusha within who must watch all.
+ - He who chooses the infinite has been chosen by the infinite.
+ - The practice of Yoga brings us face to face with the extraordinary complexity of our own being.
+ - There is nothing mind can do that cannot be better done in the mind’s immobility and thought-free stillness. When mind is still, then truth gets her chance to be heard in the purity of the silence.
+ - Vain indeed is all overweening pride in the conquest even of the entire universe if one has not conquered one’s own passions.
+ - Hidden nature is secret God.
+ - The cup has to be left clean and empty for the divine liquor to be poured into it.
+ - Inspiration is a slender river of brightness leaping from a vast and Eternal Knowledge, it exceeds reason more perfectly than reason exceeds the knowledge of the senses.
+ - There are two powers that alone can effect in their conjunction the great and dificult thing which is the aim of our endeavour, a fixed and unfailing aspiration that calls from below and a supreme Grace from above that answers.
+ - To hope for a true change of human life without a change of human nature is an irrational and unspiritual proposition.
+ - Fear not to be nothing that thou mayst be all.
+ - The highest aim of the aesthetic being is to find the Divine through beauty; the highest Art is that which by an inspired use of significant and interpretative form unseals the door of the spirit.
+ - Death fosters life that life may suckle death.
+ - When we have passed beyond knowings, then we shall have Knowledge.
+ - The supramental transformation, the supramental evolution must carry with it a lifting of mind, life and body out of themselves into a greater way of being in which yet their own ways and powers would be, not suppressed or abolished, but perfected and fulfilled by the self-exceeding.
+ - There are all kinds of people, and in the attempt to build up a solidarity among them, defects of each one affect all the others.
+ - Turkey, Japan do great work because they can keep under control their little personal selfishness, egoism, jealousy, etc. when they get down to work.
+ - Genius discovers a system; average talent stereotypes it till it is shattered by fresh genius.
+ - If India is to survive, she must be made young again. Rushing and billowing streams of energy must be poured into her; her soul must become, as it was in the old times, like the surges, vast, puissant, calm or turbulent at will, an ocean of action or of force.
+ - The Purusha should assume at all times the attitude of a giver of sanction while rejecting the lower movements and accepting only truth-movements.
+ - God does work through both pure and impure vessels but that does not mean that one should keep nature impure for ever. When the vessel will become pure the urge for action coming from within will be a flawless, definitive action. As long as that does not happen one has to minimize one’s activities.
+ - In the middle of an ocean on board a ship, one can get a sense of vastness.
+ - After having stopped the lower activities of the mind, it must be made receptive; and, instead of weaving all kinds of empty and idle thoughts, the mind should receive intuitions from above.
+ - Is it true that existence consists only in the action of energy? Or is it not rather that energy is an output of Existence?
+ - If Hell were possible, it would be the shortest cut to the highest heaven. For verily God loveth.
+ - The expression “from above” is for us only a way of speaking. Many receive from above the command for action – we call it intuition.
+ - There should of course be left a field of work for the sake of experiment but at all times one must remember that there will always remain open a possibility of err.
+ - Can everybody contact the higher forces? No, not indeed; but they submit themselves to a discipline and this brings them success.
+ - The Bhagavad-Gita is a true scripture of the human race a living creation rather than a book, with a new message for every age and a new meaning for every civilization.
+ - What men call knowledge, is the reasoned acceptance of false appearances. Wisdom looks behind the veil and sees.
+ - Ourselves within us lethal forces nurse; We make of our own enemies our guests.
+ - Transform reason into ordered intuition; let all thyself be light. This is thy goal.
+ - There is nothing small in God’s eyes; let there be nothing small in thine.
+ - Faith is the soul’s witness to something not yet manifested, achieved or realised, but which yet the Knower within us, even in the absence of all indications, feels to be true or supremely worth following or achieving.
+ - Life was a sorrowful throb of this Matter teaching it anguish, Teaching it hope and desire trod out too soon in the mire, Life the frail joy that regrets its briefness, life the long sorrow.
+ - She saw the myriad gods, and beyond God his own ineffable eternity; she saw that there were ranges of life beyond our present life, ranges of mind beyond our present mind and above these she saw the splendors of the spirit.
+ - A thought is an arrow shot at the truth; it can hit a point, but not cover the whole target. But the archer is too well satisfied with his success to ask anything farther.
+ - Live according to Nature, runs the maxim of the West; but according to what nature, the nature of the body or the nature which exceeds the body? This first we ought to determine.
+ - The human mind moves always forward, alters its viewpoint and enlarges its thought substance, and the effect of these changes is to render past systems of thinking obsolete or, when they are preserved, to extend, to modify and subtly or visibly to alter their value.
+ - Arise, transcend Thyself, Thou art man and the whole nature of man Is to become more than himself.
+ - India of the ages is not dead nor has she spoken her last creative word; she lives and has still something to do for herself and the human peoples.
+ - While doing sadhana you must quieten your mind and keep awake the Purusha consciousness behind all your activities.
+ - There is a knowledge in the heart of sleep.
+ - If it be true that spirit is involved in Matter and apparent Nature is secret God, then the manifestation in the divine in himself and the realization of God within and without are the highest and most legitimate aim possible to man on earth.
+ - The heart’s words fall back unheard from Wisdom’s throne.
+ - The mind is running on all sides to think about many things, – what we call thoughts coming from outside. We must withdraw the mind from these distractions and make it abide in the self. Thus guarding the peace within we shall have to do the work without.
+ - A great thing would be done if all these God-visions could embrace and cast themselves into each other; but intellectual dogma and cult egoism stand in the way.
+ - Those who have advanced rise to the mind which is in the head, – they have the play of their mental movements in the head itself. But all these are inside the body; man is, as it were, shut up in a box, his entire consciousness is confined within the organism. This imprisonment has to be undone.
+ - Forgiveness is praised by the Christian and the Vaishnava, but for me, I ask, “What have I to forgive and whom?”
+ - It will not do to depend on the mind alone.
+ - They proved to me by convincing reasons that God does not exist; Afterwards I saw God, for he came and embraced me. And now what am I to believe- the reasoning of others or my own experience? Truth is what the soul has seen and experienced; the rest is appearance, prejudice and opinion.
+ - What sort of politics you people do? Such is the way of all parliaments: one can sense even beforehand the trend of voting, in which direction it will turn.
+ - Knowledge gropes but meets not Wisdom’s face.
+ - One may come armoured, Invinsible. His will immobile meets the mobile hour. The world blows cannot bend this Victor Head. Calm and sure are his steps in the growing night. The goal recedes, he hurries not his pace. He asks from no help from the inferior Gods. His eyes are fixed on the immutable aim.
+ - The Divine Truth is greater than any religion or creed or scripture or idea or philosophy.
+ - Yoga is a generic name for any discipline by which one attempts to pass out of the limits of one’s ordinary mental consciousness into a greater spiritual consciousness.
+ - A God who cannot smile, could not have created this humorous universe.
+ - What do you want to do sadhana for? The aim should not be the satisfaction of egoism: “I want to be a great yogi; I shall have so much power and with that power I shall establish myself in the world.” All such thoughts must be thrown far away.
+ - The existence of poverty is the proof of an unjust and ill-organised society, and our public charities are but the first tardy awakening in the conscience of a robber.
+ - In the normal play of our mind there are all sorts of perversions; hence the need to stop all these things and inculcate right thinking, right willing – in other words, Truth must be established.
+ - The mind of an ordinary man is truly near the heart.
+ - The higher Truth is all the time working in us but through the lower power – Aparashakti. It is when we become conscious of the play of this higher Power then only yoga begins.
+ - Each victory gained over oneself means new strength to gain more victories.
+ - Watch the too indignantly righteous. Before long you will find them committing or condoning the very offence which they have so fiercely censured.
+ - Evolution is not finished; reason is not the last word nor the reasoning animal the supreme figure of Nature. As man emerged out of the animal, so out of man the superman emerges.
+ - Do not allow things to intrude from outside.
+ - To feed death with her works is here life’s doom.
+ - The only work that spiritually purifies us is that which is done without personal motives.
+ - Turn all things to honey; this is the law of divine living.
+ - The Atheist is God playing at hide and seek with Himself; but is the Theist any other? Well, perhaps; for he has seen the shadow of God and clutched at it.
+ - There is a veil between the Supermind above and the lower Prakriti below – the veil of ingrained formations. This veil may completely withdraw or be partially withdrawn. Thus even if there is some little opening, with the contact of Light from above the lower nature will get slowly changed.
+ - All that is born and destroyed is reborn in the sweep of the ages; Life like a decimal ever recurring repeats the old figure.
+ - One mighty deed can change the course of things; a lonely thought becomes omnipotent.
+ - Remember that you are at an exceptional hour in a unique epoch, that you have this great happiness, this invaluable privilege, of being present at the birth of a new world.
+ - The consciousness of the seer, is a greater power for knowledge than the consciousness of the thinker. The perceptual power of the inner sight is greater and more direct than the perceptual power of thought:...
+ - Thy goal, the road thou choosest are thy fate.
+ - The spiritual path is one of falling on your face, getting up, brushing yourself off, turning and looking sheepishly at God and then taking the next step.
+ - When thou findest thyself scorning another, look then at thy own heart and laugh at thy folly.
+ - Suffering makes us capable of the full force of the Master of Delight; it makes us capable also to bear the utter play of the Master of Power. Pain is the key that opens the gates of strength; it is the high-road that leads to the city of beatitude.
+ - My God is love and sweetly suffers all.
+ - But few are those who tread the sunlit path; Only the pure in soul can walk in light.
+ - Your mind has some clearness and capacity for right thinking; it opens towards the heights, but for its own sake, – to receive light from above for its own activity.
+ - One has to do sadhana for the total manifestation of the Divine in oneself.
+ - Delight is the secret. Learn of pure delight and thou shalt learn of God. What then was the commencement of the whole matter? Existence that multiplied itself for sheer delight of being and plunged into numberless trillions of forms so that it might find itself innumerably.
+ - That within us which seeks to know and to progress is not the mind but something behind it which makes use of it.
+ - The anarchic is the true divine state of man in the end as in the beginning; but in between it would lead us straight to the devil and his kingdom.
+ - Trust the divine power, and she will free the godlike elements in you and shape all into an expression of divine nature.
+ - That which we call the Hindu religion is really the Eternal religion because it embraces all others.
+ - To be free from all egoistic motive, careful of truth in speech and action, void of self-will and self-assertion, watchful in all things, is the condition for being a flawless servant.
+ - What comes from outside, one mistakes it as coming from inside. So many thoughts etc. move about outside in the universal – these manifest inside you. All these you must push away as foreign to you and the inside must be made peaceful, calm and quiet; then it will start descending from above.
+ - Our lives are God’s messengers beneath the stars.
+ - What I cannot do now is the sign of what I shall do hereafter. The sense of impossibility is the beginning of all possibilities. Because this temporal universe was a paradox and an impossibility, therefore the Eternal created it out of His being.
+ - All kinds of indications will come from above and whatever you do must be referred to the Above.
+ - The most vital issue of the age is whether the future progress of humanity is to be governed by the modern economic and materialistic mind of the West or by a nobler pragmatism guided, uplifted and enlightened by spiritual culture and knowledge...
+ - The Gita is the greatest gospel of spiritual works ever yet given to the race.
+ - Evolution of consciousness is the central motive of terrestrial existence.
+ - Propaganda is necessary only for the sake of money!
+ - Material things are not to be despised-without them there can be no manifestation in the material world.
+ - Nothing in the many processes of Nature, whether she deals with men or with things, comes by chance or accident or is really at the mercy of external causes.
+ - One must have first of all a solid foundation.
+ - Late, I learned that when reason died, then Wisdom was born; before that liberation, I had only knowledge.
+ - War is a dangerous teacher and physical victory leads often to a moral defeat.
+ - Outside and above the mind there is the play of a consciousness which is lighted by the higher Truth, but man is not conscious of it and of that he has to be conscious.
+ - And, in order to possess the Truth, the plays of the lower nature must be stopped.
+ - All desires and egoism will have to be banished from the being.
+ - If a religion is not universal, it cannot be eternal. A narrow religion, a sectarian religion, an exclusive religion can live only for a limited time and a limited purpose.
+ - To make a revolution is not in the grain of our people’s nature.
+ - No danger can perturb my spirit’s calm.
+ - What have I to forgive and whom?
+ - To doubt the experience is to discourage it. Let it be developed, see what is in it.
+ - You have however within you an inclination towards completeness.
+ - You have a strong active nature. And this in you is a point of strength. If you can mould it rightly this will become a very great strength. On the other hand, this too is your weak point – a hindrance in sadhana.
+ - New sentient creatures filled the unseen depths, Life’s glory and swiftness ran in the beauty of beasts.
+ - The Person is a bubble on Time’s sea.
+ - Life, the river of the Spirit, consenting to anguish and sorrow.
+ - What is God after all? An eternal child playing an eternal game in an eternal garden.
+ - What is required is faith. Man has body, life and mind but that is not all that constitutes man. He has risen to the mind as a result of evolution. Now a higher consciousness will be evolved – this I call Supermind. It is the instrument of the Divine Consciousness, the Truth-Consciousness.
+ - The all-embracing vast being which is there behind the play of the universe and with which you will have to identify yourself – for this is your true self.
+ - While doing work if the mind continues to be active let it be so, but there must be at the same time a capacity for silence.
+ - But difficulties were made to be overcome and if the Supreme Will is there, they will be overcome.
+ - Not only a truer knowledge, but a greater power comes to one in the quietude and silence of a mind that, instead of bubbling on the surface, can go to its own depths and listen.
+ - The desire of your vital being is towards work. And the vital being won’t find any interest in yoga so long as you do not have any experience of the higher and fuller life that is in yoga. As long as this experience is not there, the vital being will not find any interest.
+ - For all problems of existence are essentially problems of harmony.
+ - Not in the state of unconsciousness, but in full awareness when the higher Power will descend into and direct us, then only the yogic life will begin.
+ - Until you get a guidance from above you cannot be sure; but to get this guidance it requires time and sadhana.
+ - To have a developed intellect is always helpful if one can enlighten it from above and turn it to a divine use.
+ - Our actual enemy is not any force exterior to ourselves, but our own crying weaknesses, our cowardice, our selfishness, our hypocrisy, our purblind sentimentalism.
+ - To attempt social reform, educational reform, industrial expansion, the moral improvement of the race without aiming, first and foremost, at political freedom is the very height of ignorance and futility.
+ - A woman has the greatest opportunity to provide the best outcome for a baby and its potentialities. Not only by having a conscious and definite will to form the child accordingly to the highest ideal she can conceive, but first and foremost having the aspiration to work on herself.
+ - Samskrit language, as has been universally recognized by those competent to form a judgment, is one of the most magnificent, the most perfect, the most prominent and wonderfully sufficient literary instrument developed by the human mind.
+ - I swore that I would not suffer from the world’s grief and the world’s stupidity and cruelty and injustice and I made my heart as hard in endurance as the nether millstone and my mind as a polished surface of steel. I no longer suffered, but enjoyment had passed away from me.
+ - Delight is the secret. Learn of pure delight and thou shalt learn of God.
+ - Metaphysical thinking will always no doubt be a strong element in her mentality, and it is to be hoped that she will never lose her great, her sovereign powers in that direction.
+ - Impossibility is only a sum of greater unrealised possibles. It veils an advanced stage and a yet unaccomplished journey.
+ - Man in the world’s life works out the dreams of God.
+ - The subliminal mind receives and remembers all those touches that delight the soul. Our soul takes joy in this right touching by the Essence of all experience.
+ - Yes, this Purusha consciousness must be maintained; otherwise the calm will not last. The knocks and blows that come from outside cannot disturb one, if this Purusha consciousness remains at the back.
+ - In order to satisfy the vital being, it must be offered some activity, and at the same time the mind should be slowly made to take interest in yoga.
+ - The Force which has to be called down from above must be pure and quiet because there are all kinds of forces – it will not do to call them all. And one must have sincerity.
+ - We cannot afford to raise any institution to the rank of a fetish. To do so would be simply to become the slaves of our own machinery.
+ - Yes, it is difficult for man to cross beyond the idea of duty.
+ - Rather hang thyself than belong to the horde of successful imitators.
+ - We can arrive at a point of view where the preservation of the individual activities is no longer inconsistent with our comprehension of the cosmic consciousness or our attainment to the transcendent and supracosmic.
+ - An active mind needs an outlet. If it stops by itself from within, well and good; otherwise one should not try to stop this by force.
+ - The meeting of man and God must always mean a penetration and entry of the divine into the human and a self-immergence of man in the Divinity.
+ - Man’s freedom is relative and it cannot be held solely responsible for the imperfection of his nature.
+ - One who loves God finds the object of his love everywhere.
+ - This world is a vast unbroken totality, a deep solidarity joins its contrary powers.
+
+190 quotes

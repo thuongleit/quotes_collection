@@ -1,0 +1,55 @@
+ - Be bold, be humble, be brave, be resilient, be productive, be good, good to yourselves and good to each other. Be careful; be caring.
+ - You can’t please everyone, and you can’t make everyone like you.
+ - A boat is always safe in the harbor, but that’s not what boats are built for.
+ - Be fearless. Have the courage to take risks. Go where there are no guarantees.
+ - The media can be an instrument of change. It can maintain the status quo and reflect the views of the society or it can awaken people and change minds. It depends on who’s piloting the plane.
+ - It’s fine to be on the hamster wheel, running and running, trying to grab the brass ring or whatever you define as success, but your relationships, that’s really all that matters when it’s all said and done.
+ - Changing the world doesn’t happen all at once. It isn’t a big bang. It’s an evolution, the sum of a billion tiny sparks. And some of those sparks will have to come from you.
+ - I feel like a human pinata. The disappointing thing is, no candy is going to spill out.
+ - You can’t assume that kindness is an inherited trait. It is learned behavior.
+ - Prepare yourself to be employable.
+ - It’s these parallel universes when someone you love is sick. Your world is this completely foreign place involving radiation and tumor markers. Outside, people are buying sweaters.
+ - Can you explain what Internet is?
+ - Dig deep and believe in yourself and have the self-confidence you need to forge ahead.
+ - I knew I had to be a journalist because I’m deeply curious about the world.
+ - And have the courage to accept that you’re not perfect, nothing is, and no one is – and that’s OK.
+ - Obviously, people in Texas have big hearts.
+ - I don’t know the vast majority of you personally, and it may sound kind of corny, but I really feel as if we’ve become friends through the years. And you’ve been with me during a lot of good times and some very difficult ones. I can’t tell you how grateful I am.
+ - The sooner you learn that life is not fair, the better off you’ll be.
+ - The person I enjoyed interviewing the most was Elmo from Sesame Street because he is so unpredictable and he is always eating my hair and my face.
+ - I realized that whatever your path, whatever your calling, the most damaging thing you can do is let other voices define you and drown out your own. You’ve got to block them out and find that place deep inside you, shaken but still intact, and hold on to it.
+ - He was always sort of a scrappy little kid wasn’t he? A bit of a fighter?
+ - What brought me into the TV business is what keeps me here and happy. You can learn something new every day if you have a really positive attitude.
+ - I think sometimes people project things on you, but I’m trying to handle everything that’s happened to me with a certain amount of grace, dignity and good manners. You just can’t necessarily win all the time.
+ - I think it’s dangerous if your goal in life is to get the other guy, then you’re not going to be doing a really quality job yourself.
+ - Nobody ever asks men about the work-life balance, and I just find that interesting, because clearly, I would imagine most men also want to be good fathers, and I’m sure they want to be good partners.
+ - He would take the blow so you didn’t have to.
+ - Misperceiving that there is one correct choice is a common mistake. Coming to understand that there are usually a few good choices – and then there’s the one you pick, commit to, and make great – is the best way to make flexible, optimal, good decisions in life.
+ - If I hear the word ‘perky’ again, I’ll puke.
+ - My daughters depend on me for a lot more than food, clothing and shelter. They depend on me as an example of how to go on.
+ - Sometimes I think change is a good thing.
+ - I could announce one morning that the world was going to blow up in three hours and people would be calling in about my hair!
+ - I beg. I call. I badger. I cajole. Part of the secret is everyone has fun and thats really motivating.
+ - Some suggested over the weekend that it is wrong to expect Elian Gonzalez to live in a place that tolerates no dissent or freedom of political expression. They were talking about Miami.
+ - Just had lunch with the president who seems pensive, slightly deflated, realistic, aggravated and resolute. Didn’t eat his pie.
+ - A less-than dream job can help you find your dreams.
+ - When I made coffee and Xeroxed and distributed newspapers at ABC News, I thought my life was over.
+ - You know, you’ve got serious pieces, you’ve got light pieces, you’ve got cooking segments, you’ve got health-related topics, so it’s not as if they’ve had a unique personality from the get-go.
+ - And they like being able to turn on the television day in and day out to see someone that they know and they feel comfortable with and trust hopefully and respect even.
+ - And I’ve always – the competition is one aspect of the job, but I think if you’re too busy worrying about the competition, you don’t focus enough on what you’re doing.
+ - Sexism is so five minutes ago. I think for the most part, people accept that women are as competent as men.
+ - I hope I have a little talent, but a lot of it was luck. I went through setbacks. People said I looked too young, people said I wasn’t good, nobody said, ‘Come here, baby, we’re going to make you a star.’ Early on, when I’d say, ‘Can I do some anchoring?’ people would look at me like I was crazy.
+ - All three networks have always had a morning show but now cable of course is taking some of that audience away and a variety of other things, probably the Internet as well.
+ - I know there’s a great deal of speculation, and while I appreciate the interest, kind of, my contract ends in May and I’m trying to figure out what I’m going to do. I’m fortunate to have a couple of opportunities to think long and hard about.
+ - Oftentimes Westerners don’t really understand fully the values of this particular culture. And I think the jury is still out as to whether democracy can really thrive in Iraq.
+ - That studies have shown that more people are getting up earlier, they’re getting their news earlier. They’re getting less sleep, getting up at earlier hours.
+ - Now, if they’re there to talk about something specifically, and I determine through my own editorial judgment, that another area isn’t germane, or isn’t an important part of it, that’s something else. But we never agree to anything in advance, absolutely not.
+ - I don’t always have a lot of energy, but my kids almost always revitalize me.
+ - But of course when people watch morning television, Terry, it’s a very different animal. You know, they’re running around, they’re getting their kids ready for school, they’re probably doing eight million things, they’re brushing their teeth.
+ - I’ve always tried to stay true to my authentic self.
+ - They see us interacting with people, they see us doing serious interviews, they see us having fun, and when you’re conversing with someone, you get a much clearer impression of who that person is than if they are just reading into a news piece.
+ - Obviously I love doing newsmaker interviews, and if I can contribute in any way to that, I would love to. I love reporting, getting out in the field and talking to people about various issues.
+ - There’s nothing like being in the moment, even when that moment isn’t captured or shared.
+ - The whole culture of wearing flags on our lapel and saying ‘we’ when referring to the United States and, even the ‘shock and awe’ of the initial stages, it was just too jubilant and just a little uncomfortable.
+
+53 quotes

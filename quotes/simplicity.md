@@ -1,0 +1,42 @@
+ - Avoiding complexity reduces bugs. ~~Linus Torvalds
+ - Simplicity is the key to brilliance. ~~Bruce Lee
+ - Simplicity is not a simple thing. ~~Charlie Chaplin
+ - The rule is to carry as little as possible. ~~Henry David Thoreau
+ - Simplicity is prerequisite for reliability. ~~Edsger W. Dijkstra
+ - Greatness of spirit is accompanied by simplicity and sincerity. ~~Aristotle
+ - Art is the elimination of the unnecessary. ~~Pablo Picasso
+ - Out of chaos, find simplicity, From discord, find harmony. ~~Bruce Lee
+ - Simplify always – do not complicate. ~~Émile Coué
+ - Simplicity is a most complex form. ~~Duke Ellington
+ - Do few things but do them well, simple joys are holy. ~~Francis of Assisi
+ - When the subject is strong, simplicity is the only way to treat it. ~~Thomas Jefferson
+ - Simplicity is a great virtue but it requires hard work to achieve it and education to appreciate it. And to make matters worse: complexity sells better. ~~Edsger W. Dijkstra
+ - Simplicity in character, in manners, in style; in all things the supreme excellence is simplicity. ~~Henry Wadsworth Longfellow
+ - Simplicity is the trademark of GENIUS. ~~Robin S. Sharma
+ - Avoid fragmentation: Find your focus and seek simplicity. Purposeful living calls for elegant efficiency and economy of effort-expanding the minimum time and energy necessary to achieve desired goals. ~~Dan Millman
+ - Simplicity is really hard. ~~Jonathan Ive
+ - True refinement seeks simplicity. ~~Bruce Lee
+ - Simplicity requires ruthlessness. ~~Tim Ferriss
+ - Simplicity is always the secret, to a profound truth, to doing things, to writing, to painting. Life is profound in its simplicity. ~~Charles Bukowski
+ - Three Tips: Simplify, Simplify, Simplify. ~~Jakob Nielsen
+ - Nature has a great simplicity and therefore a great beauty. ~~Richard P. Feynman
+ - Cultivate poverty like a garden herb, like sage. ~~Henry David Thoreau
+ - God made man simple, but how he changed and got complicated is hard to say. ~~Johann Wolfgang von Goethe
+ - Order and simplification are the first steps toward the mastery of a subject. ~~Thomas Mann
+ - Simplicity, suitability and proportion. ~~Elsie De Wolfe
+ - Simplicity of approach is always best. ~~Charlie Chaplin
+ - Simple things should be simple and complex things should be possible. ~~Alan Kay
+ - In the beginning was simplicity. ~~Richard Dawkins
+ - Let your capital be simplicity and contentment. ~~Henry David Thoreau
+ - For effective communication, use brevity. Jesus said, ‘Follow me.’ Now that’s brief! He could be brief because of all that he was that he didn’t have to say. ~~Jim Rohn
+ - If we are to love sincerely, and with simplicity, we must first of all overcome the fear of not being loved. ~~Thomas Merton
+ - Even before string theory, especially as physics developed in the 20th century, it turned out that the equations that really work in describing nature with the most generality and the greatest simplicity are very elegant and subtle. ~~Edward Witten
+ - Every morning was a cheerful invitation to make my life of equal simplicity, and I may say innocence, with Nature herself. ~~Henry David Thoreau
+ - The Rosary is my favorite prayer. A marvelous prayer! Marvelous in its simplicity and its depth. In the prayer we repeat many times the words that the Virgin Mary heard from the Archangel, and from her kinswoman Elizabeth. ~~Pope John Paul II
+ - I believe an appreciation for simplicity, the everyday – the ability to dive deeply into the banal and discover life’s hidden richness – is where success, let alone happiness, emerges. ~~Joshua Waitzkin
+ - Genuine simplicity of heart is a healing and cementing principle. ~~Edmund Burke
+ - I am struck by the simplicity of light in the atmosphere in the autumn, as if the earth absorbed none, and out of this profusion of dazzling light came the autumnal tints. ~~Henry David Thoreau
+ - The art of art, the glory of expression, is simplicity. Nothing is better than simplicity, and the sunlight of letters is simplicity. Nothing is better than simplicity-nothing can make up for excess, or for the lack of definiteness. ~~Walt Whitman
+ - For us, with the rule of right and wrong given us by Christ, there is nothing for which we have no standard. And there is no greatness where there is not simplicity, goodness, and truth. ~~Leo Tolstoy
+
+40 quotes

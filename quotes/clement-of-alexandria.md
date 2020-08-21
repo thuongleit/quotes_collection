@@ -1,0 +1,38 @@
+ - He who knows himself knows god.
+ - If you do not hope, you will not find what is beyond your hopes.
+ - All our life is like a day of celebration for us; we are convinced, in fact, that God is always everywhere. We work while singing, we sail while reciting hymns, we accomplish all other occupations of life while praying.
+ - Every woman should be filled with shame by the thought that she isa woman.
+ - GOD became man so that we in our turn may become God.
+ - When you see your brother, you see God.
+ - Above all Christians are not allowed to correct by violence sinful wrongdoings.
+ - Those who glory in their looks – not in their hearts – dress to please others.
+ - It is not your outward appearance that you should beautify, but your soul, adorning it with good works.
+ - I think that one must approach the Logos Savior, not induced by the fear of punishment and not in the expectation of some kind of a reward, but primarily for the sake of the good in itself. Such will stand on the right in the sanctuary.
+ - The rule of life for a perfect person is to be in the image and likeness of God.
+ - Prayer is happy company with God.
+ - Explain the Scriptures by the Scriptures.
+ - There is one river of Truth which receives tributaries from every side.
+ - And Numenius, the Pythagorean philosopher, expressly writes: ‘For what is Plato, but Moses speaking in Attic Greek.’
+ - The Lord has turned all our sunsets into sunrise.
+ - When lies have been accepted for some time, the truth always astounds with an air of novelty.
+ - But by no manner of means are women to be allotted to uncover and exhibit any part of their person, lest both fall,-the men by being excited to look, they by drawing on themselves the eyes of the men.
+ - Therefore let us repent and pass from ignorance to knowledge, from foolishness to wisdom, from licentiousness to self-control, from injustice to righteousness, from godlessness to God.
+ - We are not to throw away those things which can benefit our neighbor. Goods are called good because they can be used for good: they are instruments for good, in the hands of those who use them properly.
+ - It is far better to be happy than to have our bodies act as graveyards to animals.
+ - For, in truth, an image is only dead matter shaped by the craftsman’s hand. But we have no sensible image of sensible matter, but an image that is perceived by the mind alone: God, who alone is truly God.
+ - But those who are ready to toil in the most excellent pursuits, will not desist from the search after truth, till they get the demonstration from the Scriptures themselves.
+ - The Lord ate from a common bowl, and asked the disciples to sit on the grass. He washed their feet, with a towel wrapped around His waist – He, who is the Lord of the universe!
+ - If you enroll as one of God’s people, then heaven is your country and God your lawgiver.
+ - What does God think of spurious beauty, rejecting utterly as He does all falsehood?
+ - The Word of God became man, that thou mayest learn from man how man may become God.
+ - The law itself exhibits justice and teaches wisdom by abstinence from sensible images and by calling out to the Maker and Father of the universe.
+ - The purified righteous man has become a coin of the Lord, and has the impress of his King stamped upon him.
+ - When the two shall be one, the outside as the inside, and the male and the female neither male nor female.
+ - He alone can remit sins who is appointed our Master by the Father of all; He only is able to discern obedience from disobedience.
+ - It is absolutely impossible at the same time to be a man of understanding and not to be ashamed to gratify the body.
+ - Just as God’s will is creation and is called ‘the world’ so His intention is the salvation of men, and it is called ‘the Church.’
+ - Prayer that runs its course till the last day of life needs a strong and tranquil soul.
+ - Now the images and temples constructed by mechanics are made of inert matter, so that they too are inert, material, and profane. Even if you perfect the art, it partakes of mechanical coarseness. Works of art cannot then be sacred and divine.
+ - We say that knowledge is not mere talk, but a certain divine knowledge, that light which is kindled in the soul as a result of obedience to the commandments, and which reveals all that is in a state of becoming, enables man to know himself and teaches him to become possessed of God.
+
+36 quotes

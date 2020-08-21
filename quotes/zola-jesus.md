@@ -1,0 +1,22 @@
+ - When you fall in love, you become weak.
+ - You are born and then you die, but in between you can do anything you want. It’s society that creates rules for us, but you can break out of that.
+ - No matter what you do, if there’s something you’re afraid of, you need to break through it.
+ - I try to create songs that are really massive and intense, but at the same time remaining honest and raw.
+ - The word ‘theatrical’ makes me cringe, because it suggests a performance is staged, put on, rehearsed. And while all this is true for an opera, I believe the act of singing and performing should always be honest, raw, guttural.
+ - There can only be one Queen Bey.
+ - The only reason I would write a break-up song is because my own problem of allowing myself to relate to people.
+ - People don’t really understand who I am. They always think that I’m very dark or depressed, but it couldn’t be further from the truth!
+ - I feel like humans are a disease. It’s a hard thing to communicate in a pop song. I mean, who wants to hear that?
+ - I started performing opera when I was 10 years old. I didn’t perform as Zola Jesus until I was probably 18.
+ - I don’t find much influence in opera. It was such a different part of me.
+ - And my music is always such a release of what I feel inside, an impulse.
+ - I guess something people wouldn’t expect me to listen to are artists like Alicia Keys. But she is so incredibly talented. She has this huge voice and great work ethic, which I really respect in an artist. She is also very humble and gracious and devoted to her skill.
+ - True expression is hard when performing opera. The problem is that opera relies on the dramatic context of the piece. It can be interpreted and represented, but there are guidelines; there is a vocabulary within the pieces that you must know objectively and reflect.
+ - My music started as a way to break through weaknesses – like anxiety, which was completely taking over my whole life, where I could barely function.
+ - As a child, I was always making sound; it was a compulsion. I loved to scream and yell and sing; it freed me from all the thoughts in my head. I begged for opera lessons because opera singing is the most formidable, most emotional way to use your voice.
+ - It sounds kind of stupid, but I’ve never not wanted to be a musician. It’s been inside me since I was little so I don’t know what else I would do.
+ - The greatest benefit of being a solo performer is that it is seriously frightening, but at the same time very empowering. It’s just you and the audience. All the weight is on you to deliver the songs.
+ - I don’t know why people think I’m a Goth – that’s a misconception.
+ - I think I’m making music that’s pretty universal.
+
+20 quotes

@@ -1,0 +1,35 @@
+ - I think I appear very innocent and soft, but I’m actually very dark and edgy. It’s a weird dichotomy.
+ - I stay fat because it just wouldn’t be fair to all the thin people if I were this good-looking, intelligent, funny, and thin. It’s a public service really.
+ - The good thing about being shy though as a child is that you become very observant because you’re not really actively participating. You’re sitting back watching everyone. I think that’s really helped me as an actress because I’m good at observing people and then copying them for comic effect.
+ - I love rapping. I do. My styling’s similar to Missy Elliott – I think she’s so dope. In a weird way, that’s how I first learned the American accent: doing American rap songs.
+ - I’d love to do a court-room drama. I loved ‘Ally McBeal.’ That was one of the main reasons I went to law school.
+ - I contracted malaria in rural Mozambique. I was a youth ambassador for Australia. For a year after high school, you give positive speeches about Australia and as part of it I traveled to lots of different countries.
+ - I never thought I would end up being an actress. I thought I really was going to do serious stuff like law or politics.
+ - Work hard to achieve integrity in your work and your relationships with the people you work with.
+ - When I was younger I did karate and martial arts, and I think it’s really cool for girls to have those kinds of abilities.
+ - I try to be healthy. I train three days a week with a trainer. But I do like to eat, clearly. And I do eat dessert every day. If I cut that out, yes, I would lose weight.
+ - When you’re a kid, you don’t want to be teased.
+ - I think girls who looked like me or were from the poorer area where I’m from in Australia, like you don’t think “Oh, I’m going to be a movie star.” You just didn’t think that would happen to girls like me where I’m from.
+ - I don’t really care what I look like that much, and I think women out there should just be happy with the way they look. They shouldn’t really try to conform to any kind of stereotype. Just be happy and hopefully healthy.
+ - My American accent is really, really good. I started out in the theater, doing all different characters with all different accents. When I first came to America, I thought I would be playing American, all the time. It was just weird how it worked out that I played more international characters.
+ - All my family has very good mathematical abilities – like, so dorky. I was the dork then in school – on any maths exams I’d get 100%. I just knew how to do maths and most people would hate it, but for some reason it just came.
+ - I come from a family of professional dog-showers, one step above carnies, but I didn’t want to join the family business.
+ - I think Russell Crowe is a brilliant actor.
+ - I think that actresses can be in all different shapes and sizes, but it is a profession, and as an actor, your body is one of your big tools. So you’ve got to be fit in a sense.
+ - Usually when I ask people to reach into my velvety pouch it means something different.
+ - If I get two lines in the script, I somehow turn it into 20. I’ve got a bit of a bad habit of doing that, of just embellishing my little moment.
+ - I’ve got a swimming pool and I pretend to be like a mermaid, like in the middle of the night. It kind of de-stresses me.
+ - I like to take things one step at a time, because the entertainment industry is very uncertain.
+ - For a comedienne, you have to have a little tragedy or a dark side, just not too much. Otherwise it’s too disruptive.
+ - Been sitting at home all weekend writing for MTV Movie Awards – unfortunately MTV won’t let me do my strip routine ala Magic Mike...
+ - As a kid, I never thought I’d be an actress. Never, ever, ever, no way. I was really shy – bordering on social disorder shy – and I was really academic.
+ - I really like writing from real-life experiences. Audiences seem to prefer the stuff I couldn’t have made up.
+ - Even when I’m playing someone named ‘Fat Amy.’ I’m all about confidence and attitude.
+ - When I was just a girl in Sydney, no one thought, ‘Oh, she’s going to be a movie star.’ No one. I had to get by with actual skill and talent.
+ - I do notice that when I come in to meet casting people, they love that I’m Australian. Maybe it’s our good work ethic.
+ - Because of my filming commitments in America, you have to sign contracts where you can’t change your physical appearance.
+ - There are so many glamorous actresses, but you know what? In the real world, nobody looks like that.
+ - The more I know about America, the better I’ll be at performing American characters and American stories.
+ - At school, nobody thought I was smart and I became smart. Nobody wanted to be my friend and then I had lots of friends.
+
+33 quotes

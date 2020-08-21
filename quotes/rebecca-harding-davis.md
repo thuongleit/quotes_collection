@@ -1,0 +1,27 @@
+ - Reform is born of need, not pity. No vital movement of the people has worked down, for good or evil; fermented, instead, carried up the heaving, cloggy mass.
+ - These great turning-days of life cast no shadow before, slip by unconsciously. Only a trifle, a little turn of the rudder, and the ship goes to heaven or hell.
+ - The sun, the earth, love, friends, our very breath are parts of the banquet.
+ - War may be an armed angel with a mission, but she has the personal habits of the slums.
+ - Every child was taught from his cradle that money was Mammon, the chief agent of the flesh and the devil. As he grew up it was his duty as a Christian and a gentleman to appear to despise filthy lucre, whatever his secret opinion of it might be.
+ - Crime, to the man of the forties, was an alien monstrous terror.
+ - Men and women thought and did noble and mean things that would have been impossible to them before or after. A man cannot drink old Bourbon long and remain in his normal condition. We did not drink Bourbon, but blood.
+ - It is a good rule never to see or talk to the man whose words have wrung your heart, or helped it, just as it is wise not to look down too closely at the luminous glow which sometimes shines on your path on a summer night, if you would not see the ugly worm below.
+ - Reform is born of need, not pity.
+ - America may have great poets and novelists, but she never will have more than one necromancer.
+ - TO preach a sermon or edit a newspaper were the two things in life which I always felt I could do with credit to myself and benefit to the world, if I only had the chance.
+ - It was part of your religion to hate the British.
+ - The histories which we have of the great tragedy give no idea of the general wretchedness, the squalid misery, which entered into every individual life in the region given up to the war. Where the armies camped the destruction was absolute.
+ - We have grown used to money. The handling, the increase of it, is the chief business of life now with most of us.
+ - Nowhere in this country, from sea to sea, does nature comfort us with such assurance of plenty, such rich and tranquil beauty as in those unsung, unpainted hills of Pennsylvania.
+ - Sitting by the chimney corner as we grow old, the commonest things around us take on live meanings and hint at the difference between these driving times and the calm, slow moving days when we were young.
+ - For, after all, put it as we may to ourselves, we are all of us from birth to death guests at a table which we did not spread.
+ - We don’t often look into these unpleasant details of our great struggle. We all prefer to think that every man who wore the blue or gray was a Philip Sidney at heart.
+ - It has happened to me to meet many of the men of my day whom the world agreed to call great.
+ - But remember, I am no politician, and no seer into souls.
+ - No man surely has so short a memory as the American.
+ - You were only truly patriotic if you had a laborer for a grandfather and were glad of it.
+ - The only hero known to my childhood was Henry Clay.
+ - You will find the poet who wrings the heart of the world, or the foremost captain of his time, driving a bargain or paring a potato, just as you would do.
+ - North and South were equally confident that God was on their side, and appealed incessantly to Him.
+
+25 quotes

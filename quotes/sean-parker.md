@@ -1,0 +1,44 @@
+ - A million dollars isn’t cool. You know what’s cool? A billion dollars.
+ - Running a start-up is like eating glass. You just start to like the taste of your own blood.
+ - I had a desire to prove to myself that I was actually in control – that I wasnt a puppet.
+ - There is no simple answer to what I think.
+ - I definitely wanted to earn my freedom. But the primary motivation wasn’t making money, but making an impact.
+ - You just keep pushing yourself harder and harder to achieve more and more – I don’t think it’s ever quite as glamorous as it appears on the outside.
+ - Spotify is returning a huge amount of money. We’ll overtake iTunes in terms of what we bring to the record industry in under two years.
+ - You want people using your product because it’s a part of your life, then they can’t stop using it.
+ - Look – There’s good creepy and there’s bad creepy. Today’s creepy is tomorrow’s necessity.
+ - Ever since Napster I’ve dreamt of building a product similar to Spotify.
+ - Your biggest challenge as an entrepreneur is not concealing your idea from others or keeping your idea a secret, it is actually convincing people that you’re not crazy and that you can pull this off.
+ - Part of the challenge of being an entrepreneur, if you’re going for a really huge opportunity, is trying to find problems that aren’t quite on the radar yet and try to solve those.
+ - I’ve been doing a hybrid of investing and entrepreneurship, which I think initially I wasn’t set out to do. But I realized it fit my personality.
+ - There’s a lot of artists whose contracts are written in such a way that they do not get paid for what’s happening on streaming services.
+ - Facebook isn’t helping you make new connections, Facebook doesn’t develop new relationships, Facebook is just trying to be the most accurate model of your social graph. There’s a part of me that feels somewhat bored by all of this.
+ - I suffer from the delusion that every product of my imagination is not only possible, but always on the cusp of becoming real.
+ - The leader of a company needs to have a decision tree in his head – if this happens, we go this way, but if it winds up like that, then we go this other way.
+ - It’s not cool. I think being a wealthy member of the establishment is the antithesis of cool. Being a countercultural revolutionary is cool. So to the extent that you’ve made a billion dollars, you’ve probably become uncool.
+ - What comes after the revolution is inevitably bureaucracy. Whoever wins the revolution builds a bureaucracy.
+ - I think the perception of wealth and power is that things just become easier and easier when in reality as you raise the stakes things become more stressful.
+ - At every point I am besieged by people who would like me to conform to some social norm of whatever sort of social group they expect me to be a part of. I never have any identification with these social groups.
+ - I’ve never been much of a joiner.
+ - It would be incredibly presumptuous and self-serving of me to believe that Facebook was the end of history. The only way it could possibly be the end of history is if it becomes some sort of artificial super intelligence that takes over the world.
+ - You can now be a master of your own destiny. I’m not sure why you would sign up with a record label.
+ - You actually don’t want people thinking your product is cool, because then you’re a fad.
+ - It seems like the right thing to do is tackle problems other people aren’t working on.
+ - Gray hats are the ones who think they’re doing good, but they’re not. You learn that when the FBI shows up on your doorstep.
+ - Little startups are ridiculously overfunded.
+ - I can sort of do what I want. Maybe I have to work harder to prove myself in some new relationship because they’ve heard some wacky stories about me. But at least I can get the meeting.
+ - You have got to be willing to be poor as an entrepreneur.
+ - The market is ridiculously overcrowded with early stage investors. This results in a talent drain, where the best talent gets diffused and work for their own startups.
+ - I lived on couches for something like six months. I had no home. I was totally broke. I would stay at a friend’s house for two weeks, then move because I didn’t want to become this permanent mooch.
+ - In truth the social media elements of the Obama campaign, while extremely innovative, did not produce a lot of results.
+ - I think Facebook’s biggest problem is the glut of information that Facebook’s power users are overwhelmed with.
+ - My interactions with Sorkin were agonisingly weird. He is by far the weirdest person I have ever met. I had dinner with him and a few hours before I got an e-mail from his assistant saying, ‘Sean, this does not need to be a long conversation. Aaron is only going to use it to win your trust.’
+ - One of the difficulties in living the lifestyle I lead is that it is hard to get my friends in one place.
+ - If I were worried about my reputation, I wouldn’t do anything with start-ups.
+ - At the end of the day, money is just a proxy for votes. That is what makes politics so vulnerable to social media.
+ - There’s definitely some sort of dissent brewing between labels, publishing companies and artists. A lot of it has to do with older licensing schemes.
+ - Solving specific problems is what drives me. I am not interested in having a career. I never have been.
+ - The transition strategies are more important than understanding what the outcome state will be.
+ - I focus on things that are the highest value and do them perfectly.
+
+42 quotes

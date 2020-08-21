@@ -1,0 +1,59 @@
+ - When you can’t imagine how things are going to change, that doesn’t mean that nothing will change. It means that things will change in ways that are unimaginable.
+ - Information wants to be free. Believe it.
+ - The ruins of the unsustainable are the 21st century’s frontier.
+ - Don’t become a well rounded person. Well rounded people are smooth and ull. Become a thoroughly spiky person.
+ - Anything that can be done to a rat can be done to a human being. And we can do most anything to rats. This is a hard thing to think about, but it’s the truth. It won’t go away because we cover our eyes. THAT is cyberpunk.
+ - The future isn’t just unwritten, it’s unsearched.
+ - Cyberspace is the funhouse mirror of our own society.
+ - Your attitude determines your altitude. Your ambitions are bigger than life Of course. They must be. They encompass it.
+ - But even the Four Horsemen of Kidporn, Dope Dealers, Mafia and Terrorists don’t worry me as much as totalitarian governments. It’s been a long century, and we’ve had enough of them.
+ - The future is a process, not a destination. Richard Stallman is a guy my age. I sympathize with Richard rather more than I sympathize with Richard’s open-source ideas, but the guy’s a mortal human being and so is his social movement. Open-source is a means of production.
+ - My dream appliance circa 2050 has one big dial on it, and when I twist it to the right, my IQ goes up to 450.
+ - Every passing year brings us more past futures. Here in Europe they had a Dark Age so extensive, radical and obliterative that everyone forgot how to speak Latin. It’s counterproductive to blither on about “the” future. It’s always somebody’s future, and we’re not who we used to be.
+ - I haven’t had that good a time in ages. Since September 11, really. I just felt so happy, it was like the sun came out of the clouds for me. I love Italy.
+ - I know that the human condition will be radically changed through technical means. Much of this change will be painful, monstrous and horrible. Most mutations are disgusting failures, most experiments are failures. I accept this and I don’t find it frightening.
+ - The level of ignorance is declining, and the ability to accumulate data and manipulate it for various ends is increasing.
+ - It’s a truism in technological development that no silver lining comes without its cloud.
+ - In a world so redolent with wonder, how can we allow ourselves to conduct our daily lives with so little insight, such absence of dignity?
+ - Tomorrow composts today.
+ - If bin Laden is in fact publicly killed, then the US military will find itself standing around with its hands in its pockets, wondering what’s supposed to come next.
+ - Obsolescence and death, the reign of the archaic, the abandoned, and the corny: Really, if you saw Windows 3.0 on the sidewalk outside the building, would you bend over and pick it up?!?
+ - The internet brought many laudable things, but prosperity, stability, accountability and honest politics were not four of them.
+ - The past is a kind of future that has already happened.
+ - A dagger is the noble weapon of Brutus. Everyone understands that tyrants fall to daggers. A bomb is a sordid modern device with many complex working parts. Only engineers understand bombs.
+ - One of the points about distractions is that everything that they do is destabilizing.
+ - Everybody has a different Internet.
+ - Science fiction is not about the freedom of imagination. It’s about a free imagination pinched and howling in a vise that other people call real life.
+ - If poets are the unacknowledged legislators of the world, science fiction writers are its court jesters. We are Wise Fools who can leap, caper, utter prophecies, and scratch ourselves in public. We can play with Big Ideas because the garish motley of our pulp origins make us seem harmless.
+ - I do have two data identities. I have my name, Bruce Sterling, which is my public name under which I write novels. I also have my other name, which is my legal name under which I own property and vote.
+ - A set of Bollywood actresses are coming through Dallas soon in a live tour; I’d pay a lot to see them, but alas, I’m fully booked elsewhere.
+ - Humans are very aggressive and scrappy, and go to war at the drop of a hat. However, a standard land war is no longer going to work as it is no longer technically possible.
+ - My idea of an amusement park story is getting adventurers to go tour environmental disaster areas. After all, if the entire Great Barrier Reef gets killed, which seems like an extremely lively possibility, what are you going to do with all that rotting limestone?
+ - We might be on the brink of an apocalypse if, instead of poor people with suicide bombs killing middle class guys, middle-class people with suicide bombs started killing rich guys.
+ - You don’t get to cut that chain of evidence and start over. You’re always going to be pursued by your data shadow, which is forming from thousands and thousands of little leaks and tributaries of information.
+ - Competence doesn’t seem like a big deal until you are forced to realize that your own government has none.
+ - You know what’s truly weird about any financial crisis? We made it up. Currency, money, finance, they’re all social inventions. When the sun comes up in the morning it’s shining on the same physical landscape, all the atoms are in place.
+ - I don’t think there’s much distinction between surveillance and media in general. Better media means better surveillance. Cams are everywhere.
+ - Worrying about a large institution, especially when it has computers, is like worrying about a large gorilla, especially when it’s on fire.
+ - The frontiers of the future will be the ruins of the unsustainable.
+ - But from another, deeper perspective: we shouldn’t involve outselves in lines of development where the ultimate victory condition is emulating dead people. There’s no appeal in that. It’s bad for us. That kind of inherent mournfulness is just not a good way to be human.
+ - The Bollywood distribution system is so corrupt that they have trouble making money off movies. So they sell shoes that an actress stepped in. If they turned up the amps some, maybe they could sell the actresses.
+ - David Brin is a technological determinist. He thinks that we understand the trend and we need to hop on it. I don’t have any such illusions.
+ - Saying you have a political solution is like saying you can write a pop song that’s going to stay at the top of the list forever. I don’t have many illusions about this, but I’m not cynical about it.
+ - Everybody wants to disown neocon strategy, including the neocons, because that strategy never worked. Still, it was, in point of fact, a strategy. Nobody else has one.
+ - It’s going to be really interesting to see what the heroin market does in the next two years or so. One thing you can be pretty sure of. The Afghan peasants who grow poppies won’t get rich. The money will end up in places like Dubai.
+ - A security cam is one small part of a much larger universe of cams. The much larger effect, socially, politically and economically, is going to come from a much larger trend.
+ - War as Napoleon knew it just not possible any more. However, we’re very unlikely to accept or recognize “world peace” even when we get it.
+ - There’s no victory-condition for being human.
+ - I wouldn’t describe that “position” as “parasitic.” I’d describe that experience as “edifying.” I don’t merely write from a critical intellectual distance. I actually live around here.
+ - Political people don’t solve stuff – not really. Political people are like guys in pop music.
+ - If politics and business fail us, of course the military will be called in. In the developing world, the massive and repeated ecological disasters are quite commonly met by the military.
+ - In a start-up society, huge sums can fall on innocent parties, almost by accident .
+ - People in the Pentagon had colleagues killed and maimed by bin Laden. They’re trying to find bin Laden and kill him and his cult. Naturally they consider that a legitimate thing to do, but they’re having mixed success at the job.
+ - I’m an entertainer in the military-entertainment complex.
+ - Maybe we’re about to radically change the operating system of the human condition. If so, then this would be a really good time to make backups of our civilization.
+ - Privacy under what circumstance? Privacy at home under what circumstances? You have more privacy if everyone’s illiterate, but you wouldn’t really call that privacy. That’s ignorance.
+ - I was once a student in a punk T-Shirt hooked on screwed-up scenarios. Thats how I became the esteemed cultural figure that I am today.
+ - I like to get paid for doing basic research, so it’s pleasant to write some nonfiction about it.
+
+57 quotes

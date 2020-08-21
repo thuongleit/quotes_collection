@@ -1,0 +1,26 @@
+ - Being a scientist helps to support both my life as a Jesuit and my belief in God.
+ - If I have a fundamental belief that the universe is created by God, then I also come to the belief that that universe reflects God, it gives me some knowledge of Him. Obviously, therefore, the more I know of the universe is, the more enriched my limited knowledge of God is.
+ - Neither of us can come to either a knowledge of God, or a denial of God by our scientific research.
+ - Nothing we learn about the universe threatens our faith. It only enriches it.
+ - The nature of God is something that is of serious interest to believers, to theologians, and to philosophers. And yet we can’t come to the nature of God, unless we also have some knowledge of the nature of the universe as having come from God.
+ - My answer to someone who is in contrast with me – by not seeing God in the scientific data – is that you don’t see God in the scientific data because you’re not me. I have other experiences than you have, that bring me to look at this data as enriching my experience of God.
+ - I hope I’m not giving the impression of an ivory tower science, but for me science is an attempt to understand, it’s an attempt to understand the universe.
+ - The Copernican revolution was actually a contribution to the life of the church, the development of our view of ourselves in terms of the Universe, and therefore our view of God, et cetera. But, that took centuries, and struggles, and conflicts before that happened.
+ - The whole dimension of religious belief requires transcendence, it requires going beyond what you can establish rationally.
+ - I can’t see for the life of me how an attempt to understand the universe, which I believe comes from God, can alienate us from God.
+ - The knowledge of God, the belief in God, is what I call an a-rational process. It’s not rational – it doesn’t proceed by scientific investigation – but it’s not irrational because it doesn’t contradict my reasoning process. It goes beyond it.
+ - There are many people who do view scientific research as alienating from religion and from God, and when so many people do, there must be some reason for it.
+ - Doing science is not inherently incompatible with religious faith.
+ - There are dimensions to me that are not just the thinking person, but the person who is much richer, the person who has other emotional experiences, psychological experiences, these experiences also enrich me.
+ - Christianity has always had sort of an ability to absorb the developments in science. But, it’s always done it very slowly.
+ - I don’t use scientific data as a foundation for believing in God – I use it as an enrichment of my knowledge of God.
+ - I have never come to know God, to see God, to believe in God through doing science. He’s not the conclusion of some sort of process of my personal scientific investigation.
+ - I think that anybody who thinks science is going to explain everything in biological systems, or in physical cosmology, et cetera, is actually mistaken, because I think within science – if correctly understood – those claims are not being made.
+ - Because God is reflected in the world in which me made, in some sense, my scientific investigation has always supported my belief in God in a very real sense. It helps me to pray better.
+ - Scientists in general tend to have what I would call a bit of hubris that the public do not necessarily understand. So scientists some times make claims that are misunderstood by the public.
+ - As a religious priest I find it a very enriching experience to do my scientific research.
+ - Science is and should be seen as “completely neutral” on the issue of the theistic or atheistic implications of scientific results.
+ - I think today the church faces a very real challenge in not repeating the errors of the past, in sort of a stand off, a fear of science.
+ - People tend not to disassociate the technological issues from pure scientific research, so that science sometimes gets a bad name for things that science doesn’t deserve having a bad name for.
+
+24 quotes

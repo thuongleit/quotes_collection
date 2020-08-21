@@ -1,0 +1,22 @@
+ - People think that if you’re sexy you have no brains, and if you have brains you aren’t in touch with your sexual side. I’m trying to tell people, ‘You can have it both ways.’
+ - It’s easier to shut yourself off outside than reveal your inner thoughts.
+ - I’m learning to embrace who I am and what I look like.
+ - I look forward to change, but there is a part of me that absolutely dreads it.
+ - We all need to make time for a burger once in a while.
+ - I’m a small-town girl, and it’ll never be beaten out of me.
+ - I’m a bit of a workaholic.
+ - If you want to demoralize somebody’s spirit, you take away their hope.
+ - I’m happily married but it’s absolutely heavenly.
+ - The best beauty advice I ever received is to keep skin hydrated and limit harsh exposure to the sun. If you are set on the tanned look, there are plenty of great creams that will give you a healthy-looking glow.
+ - I might do my own independent film, that my husband wrote for me, if all the ducks are in a row.
+ - I think that you can’t help but bring pieces of who you are. No matter what you do, it comes through you, as a vessel.
+ - I just feel like I’m a part of a really cool group of ladies, really good actresses. And each of them kind of does it in their own way, but the character itself is such a great, strong lady that I like that they keep reinventing her.
+ - Any kind of advice that I’ve been given to cut out carbs forever, don’t do it. It just doesn’t work. You do okay for a while and then you just overcarb.
+ - I constantly have anxiety about being the lead of the show. I don’t talk about it because it scares me. But I’ve always wanted to be part of something where I could work on a character in such a big manner, and you get offered that with all the trappings of being the lead of the show.
+ - I really enjoy comedy, but I also still really enjoy the drama aspect. So, I don’t like to narrow my possible chances out there.
+ - I’m pretty klutzy and I’ve always been, so I have to own up to it. It’s part of my charm!
+ - Well, I love TV, and I love a good script.
+ - When you’re out there in Vancouver doing your thing, and then you come down and you see how positive people are – people who are so jazzed and so supportive.
+ - But I still had to tell myself, Keep looking up. I will tell you, he isnt Superman for nothing.
+
+20 quotes

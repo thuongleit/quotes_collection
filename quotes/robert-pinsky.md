@@ -1,0 +1,24 @@
+ - When I had no roof I made audacity my roof.
+ - Whatever makes a child want to glue macaroni on a paper plate and paint the assemblage and see it on the refrigerator – that has always been strong in me.
+ - Autobiography is a genre notorious for falsehood.
+ - The heart grows brutal feeding on fantasies.
+ - There is something cathartic about having absolute loss articulated.
+ - An underestimated element in poetry, that reading aloud makes clear, is the pause. I mean especially the force of a pause or a couple of pauses close together, contrasted with a longer unit of grammar.
+ - The poetry I love is written with someone’s voice and I believe its proper culmination is to be read with someone’s voice. And the human voice in that sense is not electronically reproduced or amplified.
+ - Poetry’s medium is not merely light as air, it is air: vital and deep as ordinary breath.
+ - If a poem is written well, it was written with the poet’s voice and for a voice. Reading a poem silently instead of saying a poem is like the difference between staring at sheet music and actually humming or playing the music on an instrument.
+ - In jazz, as in poetry, there is always that play between what’s regular and what’s wild. That has always appealed to me.
+ - The medium of poetry is a human body: the column of air inside the chest, shaped into signifying sounds in the larynx and the mouth. In this sense, poetry is just as physical or bodily an art as dancing.
+ - Deciding to remember, and what to remember, is how we decide who we are.
+ - In the particular presence of memorable language we can find a reminder of our ability to know and retain knowledge itself: the brightness wherein all things come to see.
+ - The medium of poetry is not words, the medium of poetry is not lines-it is the motion of air inside the human body, coming out through the chest and the voice box and through the mouth to shape sounds that have meaning. It’s bodily.
+ - For Aliki Barnstone, poetry seems a natural medium. The vision and cadences of these poems suggest a sensibility for which poetry is as inevitable as breathing or eating.
+ - Poetry’s medium is the individual chest and throat and mouth of whoever undertakes to say the poem.
+ - Sometimes the ideas that mean the most to you will feel true long before you can quite formulate them or justify them.
+ - Poetry is the most bodily of the arts.
+ - To talk about the reality of life here and the work that you do here at the university.
+ - Art will not solve your problems. It will not enable you to live merrily.
+ - If what you want to do is make good art, decide whats good and try to imitate it.
+ - Poetic language is singularly appropriate for recounting the life of the king who is traditionally accepted as the author of the poetic psalms, some of which are included in the narrative.
+
+22 quotes

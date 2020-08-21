@@ -1,0 +1,25 @@
+ - I’m always trying to turn things upside down and see if they look any better.
+ - I am interested in imperfections, quirkiness, insanity, unpredictability. That’s what we really pay attention to anyway. We don’t talk about planes flying; we talk about them crashing.
+ - Think like an artist. Dress like an insurance salesman.
+ - No matter what your cultural sophistication or what language you speak, everyone can understand images.
+ - Your children will smash your understanding, knowledge and reality. You will be better off. Then they will leave. You’ll miss them forever.
+ - Design is just language and the real issue is what you use that language to do.
+ - You’ll never go wrong when you work with someone smarter than you.
+ - To me, nothing is more vibrant than having the power to do something but not having the experience of knowing what’s right and what’s wrong.
+ - Perspective is a moment in time that cannot be fully appreciated until that moment has passed.
+ - I use contrary-ism in every part of my life.
+ - I like being a 10-year-old kid who’s in charge.
+ - Consumer culture is contradiction in terms.
+ - I’m not against beauty, it just sounds boring to me.
+ - We don’t talk about planes flying. We talk about them crashing.
+ - Pictures are so good at giving people information that they’re not looking for.
+ - Good designers are no longer satisfied in taking the manuscript from someone and making it look nice. One of the things that I’ve tried to do is move from being a designer to a content provider.
+ - If you don’t have an idea, all you have is style.
+ - If someone is going to permit me to make a publication that is politically and culturally progressive and not tell me to put their favorite movie stars on the cover, if I get to do what I want in an honest way – as I did in the beginning at ‘Colors’ – then I’m going to do it.
+ - I believe that this whole question of some photography being true and some untrue is a non-question. Photography is not objective; it never was objective.
+ - When you make something no one hates, no one loves it.
+ - The difference between good design and great design is INTELLIGENCE.
+ - Edits are very important to me – they’re the way in which I work on everything.
+ - I’m not as good a writer as I’d like to be; therefore, I like to use images to tell stories.
+
+23 quotes

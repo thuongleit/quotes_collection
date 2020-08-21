@@ -1,0 +1,52 @@
+ - I just want people to take a step back, take a deep breath and actually look at something with a different perspective. But most people will never do that.
+ - There’s only one thing that everyone in this world has in common: whether you want to love somebody and you want to be loved in return.
+ - It’s just exciting to be part of something that is brand-new.
+ - I listen to all kinds of songs. There’s something to be learned from every type of music and from the one making it, whether it’s pop or jazz or hip-hop.
+ - I don’t care how small the game. I want to win.
+ - I just want to be as creative as I possibly can.
+ - You can’t listen to what people who aren’t musical have to say. When Anytime was released, I had bad reviews, and at first I was hurt. Your songs are like your children. You don’t want to hear, ‘Your kid is ugly.’ But I knew the record was good and it would sell.
+ - A fine timepiece is part of dressing like a gentleman. When I first made a little money, I bought my first watch, which was a Rolex Daytona. It was just one of those things that said I was successful.
+ - It doesn’t matter the genre or type of art, if it’s authentic there’s an apparent beauty to it and as an artist, that’s very inspiring.
+ - Every little kid that steps on the court or the field has aspirations to go pro. I think being a pro basketball player is the best job. The thing I had to realize was that I can’t do every dream that I have.
+ - When it’s your chance to step up to the plate, just hit it out of the park, and everybody will forget about everything that came before.
+ - I am a writer – that is what I am before being a performer or musician. I love waking up in the morning and then going to sleep that night with something that did not exist.
+ - He knows I rip him off every day. He’s the godfather for me. Nobody can say they aren’t influenced by what Stevie Wonder has done.
+ - I write about moments, and I don’t make blanket statements about anything because no one has all the answers; nobody’s come up with a foolproof way to do anything when it comes to emotions.
+ - This year I’ve really decided to get into the best shape of my life, and I’ve gotten there by changing not only what I eat but when I eat and how often, as well as my usual workout routine. The combination has made such a big difference, and I finally feel in the best shape of my life.
+ - I just do what I do and hope it’s accepted by the public at large. It’s different from when Marvin Gaye and Stevie revolutionized what music was 25 years ago. Now there’s all this technology that’s available to everyone. It’s tough to be ahead of anyone.
+ - I watch my contemporaries, and they love to live in the studio and I don’t. I have a life. I treat it as a 9-to-5. I try to create something new every day, and then I get on with my life.
+ - Back in college, when I got kicked out of school, I was still in school, I’d just written the song that got me my record deal. If I hadn’t gotten kicked out of school I wouldn’t be where I am now. Three months after that, I got my record deal and the rest is history.
+ - I’m constantly being courted by labels and their backing. Obviously the market is there when you talk about the economics and the numbers, but it’s hard to give up the freedom of being able to do whatever you want.
+ - I’ll always write music. Whether I release a record, whether I let the public hear it or not, I’m always writing music.
+ - I hope at some point in my career when my name is mentioned, someone will say “Oh yeah he has a good song!” I’d be happy with that.
+ - I think I’ve tried to stay true to my music since the beginning. It’s kind of hard because of the access and technology but I just do what I do.
+ - Lionel Richie told me forget about the critics. But if you come back with hit after hit, you don’t have to worry about anything.
+ - I used to play pianos in bars. You know in hotels, you’d see guys playing piano with a snifter? That was me, with a painted-on mustache. I was about 15.
+ - Every song that I’ve done is me in one way or another.
+ - I was a nerd academically. But I was also an athlete and a musician. I never wanted to be shut out of any situation. I think it was that more than anything.
+ - I kind of hate the fact that people are always trying to put you into a category. I hate walls, and I hate boundaries. I don’t like that. I listen to everything.
+ - I grew up in a time where anything was possible.
+ - I decided I am not going to say things I do not mean anymore.
+ - I was brought up to be a gentleman. That means you know how to walk, talk and dress the part.
+ - The guy comes up to the plate, there’s always a chance where he can get a grand slam and everybody forgets about all the times he missed.
+ - Jazz is all about improvisation and it’s about the moment in time, doing it this way now, and you’ll never do it this way twice. I’ve studied the masters. Why would I want to play ball after the guys who sit on a bench? I want to play like Michael Jordan.
+ - It is great to have your own label; you can cultivate your own artists I’ve worked with pretty much everyone I wanted to.
+ - I’m never satisfied with what I do.
+ - By 17, I had a whole band that would go in and play. It was called Spontaneous Inventions, after a Bobby McFerrin album.
+ - Most of the stuff I learned to play, I learned in high school. I had a band in high school, a jazz-fusion thing, and I was the keyboard player. I was interested in how the instruments worked and the theory behind playing with them.
+ - I started as a writer and when I sent my demos out everyone wanted to know who was singing and if that person wanted a record deal.
+ - My fans are the best in the world! They’ve grown up with me and stayed with me through this entire journey.
+ - I was probably six years old when I first sang before an audience.
+ - I kinda went back to that period between ’88 and ’94 where I felt like I was the most creative, without being hindered by powers that be. I was no longer going to try to hinder myself to what I thought was going to be on the radio.
+ - I wanted to put jazz on the record, all the loves of music that I had on the record, so I could show people I was ahead of my 19 years. It may have been over the heads of some people.
+ - I’m not thinking about what needs to be on the radio. I’m not thinking about anything other than – I’m just going to let this music come out of me and not have any sort of preconceived notion of what I should do. I’m just going to do it.
+ - Music used to be essential and meaningful, but now it’s disposable.
+ - As I’ve gotten older, now I’ve really got to back that up with record sales. Anytime showed me that I could still have some of those elements I wanted, but you still have to come with hit after hit after hit.
+ - People don’t like when you point out to them and remind them that they’re not very smart.
+ - I do not wear my emotions on my sleeve; I write about them.
+ - For me able to do the records I want to do and not have to worry about this producer or that producer or that trend, I’m not really interested in that.
+ - Being a musician, you want to be able to do the hardest stuff there is. People would think it’s classical, but in classical, it’s all on the page and the difficulty is keeping up with the music.
+ - Stevie didn’t use the technology to drive the song. He used it to enhance. I use the tools to further my work, I don’t use my work to further the tools.
+ - I’m not like a legend that – so I’m sort of in the middle in this sort of gray area where, you know, I’m creating music, and I’m not saying there isn’t an audience, because there is; because all of those people go out and spend $80 to $150 on a concert ticket.
+
+50 quotes

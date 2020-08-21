@@ -1,0 +1,71 @@
+ - Life is real only then, when “I am”.
+ - Remember yourself always and everywhere.
+ - Awakening begins when a man realizes that he is going nowhere and does not know where to go.
+ - Conscious faith is freedom. Emotional faith is slavery. Mechanical faith is foolishness.
+ - If you meditate and the Devil comes, make the Devil meditate.
+ - Better to die than live in sleep.
+ - Without self knowledge, without understanding the working and functions of his machine, man cannot be free, he cannot govern himself and he will always remain a slave.
+ - You can never awaken using the same system that put you to sleep in the first place.
+ - Only super-efforts count.
+ - Without struggle, no progress and no result. Every breaking of habit produces a change in the machine.
+ - It is only by grounding our awareness in the living sensation of our bodies that the ‘I Am,’ our real presence, can awaken.
+ - Begin with the possible; begin with one step.
+ - Awakening is possible only for those who seek it and want it, for those who are ready to struggle with themselves and work on themselves for a very long time and very persistently in order to attain it.
+ - Real love is a cosmic force which goes through us. If we crystallize it, it becomes the greatest power in the world.
+ - My way is to develop the hidden potentialities of man; a way that is against Nature and against God.
+ - The degree of consciousness corresponds to the degree of density or the speed of vibrations. The denser the matter, the less conscious it is.
+ - Two things in life are infinite; the stupidity of man and the mercy of God.
+ - Love without knowledge is demonic.
+ - Remember you come here having already understood the necessity of struggling with yourself – only with yourself. Therefore thank everyone who gives you the opportunity.
+ - The first reason for people’s slavery is our ignorance, and above all, our ignorance of ourselves.
+ - Sincerity is the key which will open the door through which you will see your separate parts, and you will see something quite new. You must go on trying to be sincere. Each day you put on a mask, and you must take it off little by little.
+ - Blessed is he who has a soul, blessed is he who has none, but woe and grief to him who has it in embryo.
+ - If you help others, you will be helped, perhaps tomorrow, perhaps in one hundred years, but you will be helped. Nature must pay off the debt. It is a mathematical law and all life is mathematics.
+ - The evolution of man is the evolution of his consciousness, and ‘consciousness’ cannot evolve unconsciously. The evolution of man is the evolution of his will, and ‘will’ cannot evolve involuntarily.
+ - Never think of results, just do!
+ - Patience is the mother of will.
+ - A miracle is not the breaking of physical laws, but rather represents laws which are incomprehensible to us.
+ - A ‘sin’ is something which is not necessary.
+ - By teaching others you will learn yourself.
+ - It is very difficult also to sacrifice one’s suffering. A man will renounce any pleasures you like but he will not give up his suffering.
+ - The greatest untold story is the evolution of God.
+ - Consciousness is a state in which a man knows all at once everything that he in general knows and in which he can see how little he does know and how many contradictions there are in what he knows.
+ - Time began when you were born. It will end when you die.
+ - There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction.
+ - Man has the possibility of existence after death. But possibility is one thing and the realization of the possibility is quite a different thing.
+ - What is possible for individual man is impossible for the masses.
+ - Practice love first on animals, they are more sensitive.
+ - Take the understanding of the East and the knowledge of the West-and then seek.
+ - Laughter relieves us of superfluous energy, which, if it remained unused, might become negative, that is, poison. Laughter is the antidote.
+ - With thorns in the inner world there will always be roses in the outer world, in law-able compensation.
+ - One of the best means for arousing the wish to work on yourself is to realize that you may die at any moment. But first you must learn how to keep it in mind.
+ - The crowd neither wants nor seeks knowledge, and the leaders of the crowd, in their own interests, try to strengthen its fear and dislike of everything new and unknown. The slavery in which mankind lives is based upon this fear.
+ - Try to understand what I am saying: everything is dependent on everything else, everything is connected, nothing is separate. Therefore everything is going in the only way it can go. If people were different everything would be different. They are what they are, so everything is as it is.
+ - Common aim is stronger than blood.
+ - Humanity is moving in a circle. The progress in mechanical things of the past hundred years has proceeded at the cost of losing many other things which perhaps were much more important for it.
+ - I ask you to believe nothing that you cannot verify for yourself.
+ - Nothing can be attained without suffering but at the same time one must begin by sacrificing suffering.
+ - That which is easy is bad for your inner life.
+ - It is the greatest mistake to think that man is always one and the same. A man is never the same for long. He is continually changing. He seldom remains the same even for half an hour.
+ - Man must use what he has, not hope for what is not.
+ - If you want to lose your faith, make friends with a priest.
+ - What you need to know is very little, but to know that little takes very very much.
+ - Every grown-up man consists wholly of habits, although he is often unaware of it and even denies having any habits at all.
+ - Now everything that you do is written in red or black in Angel Gabriel’s book. Not for everyone is this record kept, but only for those who have taken a position of responsibility. There is a Law of Sins, and if you do not fulfil all your obligations, you will pay.
+ - If you can serve a cup of tea right, you can do anything.
+ - He who has gotten rid of the disease of “tomorrow” has a chance of achieving what he is here for.
+ - All who have come to me must have enema each day.
+ - To know means to know all. Not to know all means not to know. In order to know all, it is only necessary to know a little. But, in order to know this little, it is first necessary to know pretty much.
+ - The only type of sexual relations possible are those with someone who is as advanced and capable as oneself.
+ - As long as our ideas are the same, we will never be apart.
+ - In order to understand the interrelation of truth and falsehood in life, a man must understand falsehood in himself, the constant incessant lies he tells himself.
+ - From looking at your neighbor and realizing his true significance, and that he will die, pity and compassion will arise in you for him and finally you will love him.
+ - Would a CONSCIOUS human being destroy himself through war, and crime, and quarrels? No, a man simply knows not what he does to himself.
+ - The highest that a man can attain is to be able to do.
+ - Those who have not sown anything during their responsible life will have nothing to reap in the future.
+ - Religion is doing; a man does not merely think his religion or feel it, he ‘lives’ his religion as much as he is able, otherwise it is not religion but fantasy or philosophy.
+ - Every ceremony or rite has a value if it is performed without alteration. A ceremony is a book in which a great deal is written. Anyone who understands can read it. One rite often contains more than a hundred books.
+ - In properly organized groups no faith is required; what is required is simply a little trust and even that only for a little while, for the sooner a man begins to verify all he hears the better it is for him.
+ - If a sufficient number of people who wanted to stop war really did gather together, they would first of all begin by making war upon those who disagreed with them. And it is still more certain that they would make war on people who also want to stop wars but in another way.
+
+69 quotes

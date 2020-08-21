@@ -1,0 +1,79 @@
+ - I want to have more sex, travel more, drink more wine and love life.
+ - It takes a lot of courage to face up to things you can’t do because we feed ourselves so much denial.
+ - It’s insecure, and it’s immature.
+ - I have a hyper personality.
+ - Look at me. I’m skinny, I have a big nose, no tits and no ass, but in a room full of beautiful women, I would still leave with the most gorgeous guy.
+ - People think of Latina women as being fiery and fierce, which is usually true. But I think the quality that so many Latinas possess is strength. I’m very proud to have Latin blood.
+ - There’s nobody on this earth who can tell you that what you’re feeling is wrong. They can tell you it’s different to what they’re feeling.
+ - I had to quit ballet because it felt like a part of me was dying inside.
+ - I love the anxiety, the pressure of the loud room full of yapping kids. But I’m a kid myself.
+ - I like to be around people who are very passionate. People that won’t fight but that will be very over-protective and outspoken about their opinion, their point of view, their ideas.
+ - Glamour is about feeling good in your own skin.
+ - Not to settle. If you’re not happy with a person, leave. And wait until you find that one person who makes you feel good about yourself every single day and is not expecting you to change, but to grow.
+ - I want to be the best daughter, sister, friend and wife I can possibly be – because when I die, I am not going to be buried with my Oscar.
+ - Basically, there’s not enough sex in movies, that’s it. I’m trying to say it, people. I miss sex in movies because sex is natural, guns are not.
+ - In Caribbean there is no middle class: you’re either rich or you’re poor. And the ladder to success is not really a ladder, it’s a chain; once you reach a certain level, you can’t go back and you can only keep going forward.
+ - I find it really frustrating when people go, “I want to be famous and glamorous like you.”
+ - The biggest obstacle I’ve had to overcome is being a woman in a man’s world.
+ - There comes a day when you’ve become comfortable in your skin. But God as my witness, I am going to try to do everything I can to keep this ass together for as long as I possibly can – without going against nature.
+ - Happiness is nothing but temporary moments here and there – and I love those. But I would be bored out of my mind if I were happy all the time.
+ - Fathers, sons, brothers, men everywhere: Your legacy will not perish if you take your partner’s surname, or she keeps hers.
+ - Science fiction is a genre that no everyone is keen on watching.
+ - I’m very accepting with my age. It’s like notches on your belt: experience, wisdom, and a different kind of beauty. There comes a day when you’ve become comfortable in your skin.
+ - I’m a very feminine person, but I have this hard shell, man, and I stay focused and don’t take things personally.
+ - Growing up, my dolls were doctors and on secret missions. I had Barbie Goes Rambo.
+ - I love skin. I don’t believe the body is something to hide.
+ - Sometimes we have to be patient because the one thing that is inevitable in life is evolution. Whether it comes at the pace that we are expecting it or not, it’s inevitable.
+ - Our censorship has sort of gotten a little too far. Too much censorship is just as bad as having none at all. Children need to be exposed to things, because if they don’t see it, eventually, it’s not like it’s not going to happen, but it’s just that there needs to be a balance.
+ - I love being in space. I love being challenged by great roles that a company like Marvel creates amazing movies that no only give audiences an adventure but also give us as artists an opportunity for us to be challenged to embody amazing, multilayered characters.
+ - I get along very well with animals and children. I dig them, I get them.
+ - I never like to get political, but when you have the ability, through your media, to influence a large mass of people, I would want to be a part of the evolving cycle of progress vs. keeping things the way that they are.
+ - I love women. I worship women. Don’t want to be any other woman but myself.
+ - I don’t understand labels. I don’t need anybody to tell me I’m Latina or black or anything else. I’ve played characters that were written for Caucasian females, I just want to be given the same consideration as everybody else, and so far that has been happening.
+ - I’m a sci-fi girl. If I can have anything in life, I’d want tons of great science-fiction movies and stories. It’s so progressive, beautiful, and imaginative.
+ - A child speaks more sense than an adult half of the time.
+ - I love aging. Why would I want to be 21 for the rest of my life?
+ - As an artist, I like working with filmmakers that have the balls to kind of imagine the unimaginable. Those are kind of the radicals that I identify with.
+ - I always strive to keep a balance with my fears. I don’t like to be ruled by them. At the same time, I don’t like the idea of living my life totally free of any fears. I like having that moderation.
+ - I knew who Leonard Nimoy was, and that he embodied what Star Trek meant to all the fans. But it wasn’t until I started doing my research for this movie, and started going to fan sites, that I began to fall in love with these characters.
+ - On the basis of being a woman, by playing an alien, I avoid playing someone’s girlfriend here on Earth because that’s a bit of a canker sore.
+ - I love wearing men’s clothing and underwear.
+ - I’m learning the power of going away for the weekend and keeping myself company.
+ - I don’t like things like little sandals that look fragile. I like to look strong and commanding.
+ - For the actor’s wishes to be respected in terms of characteristics that your character’s gonna have, you have to work with good and intelligent and talented stunt people that not only can carry weapons well but can also carry a personality.
+ - I like to look strong and commanding.
+ - You have to be very committed and find happiness in the work that you do.
+ - It’s ok to say, ‘this is what I want’ and go after it.
+ - I’m more of a guy’s girl. I like having a beer in a bar, and I don’t bicker or sit down and do my nails.
+ - I think as an American society, when we’re paying too many taxes or dealing with war, we don’t want to see sad things at the movies.
+ - Call me crazy – I love elk meat!
+ - As actors you have this trait to imitate very easily. I don’t want to imitate anything or limit myself of finding this creature, this woman because I’m looking at magazines and I’m reading comics, and I’m asking people that are avid readers of The Guardians.
+ - I just want to be a part of great stories, whether I’m part of an amazing ensemble cast or I’m leading it or the antagonist or whatever.
+ - It gets pretty boring when all you are is the support system for a male character.
+ - Physical roles give me a chance to learn something new.
+ - Dancing for the length of time that I did, it centered me in such a way to be really in tune with my body, and I just feel like I’m physically able to do things because of my ballet background. Without ballet, I don’t think I’d look graceful at all on screen.
+ - I’m so intrigued by women throughout history where the significance of what they were representing at that time is obscured by the fact a man saved them or they were prostitutes.
+ - When I act, a part of me goes into the character I am playing.
+ - I don’t believe actors who say they don’t bleed into their characters. It’s absolutely impossible not to.
+ - I find it really frustrating when people go, “I want to be famous and glamorous like you.” It’s hard for me not to have a bad thought when someone says that to me, since if there’s anything this business is not, is glamorous. It’s only glamorous for maybe five minutes every now and then.
+ - In dance you use every party of your body except your voice. I wanted to start acting because I wanted to use my voice.
+ - You find a way to work with people you have more in common with.
+ - I never really watched the TV series.
+ - Every character has their reasons – even the characters who do dumb things.
+ - The biggest battle that I have is being a woman in the world. That takes center stage for me.
+ - I know the responsibility that entails from telling a story. The one thing I despise the most is when I go to a movie and I see a whole bunch of lazy actors making me waste my time and money.
+ - Every time an adult is going to write something for a teenager and you don’t have, physically, a person who is that, you are always going to be a little off.
+ - I’m a girl from Queens. I’ve never gone, ‘What am I doing today? Oh, I’m gonna grab a gun and learn how to use it.’
+ - If there’s anything that I’ve always said about myself is that to me, it’s much more important for me to get to work with filmmakers that I’ve grown up loving and admiring.
+ - Music is a very big participant in everything I do, from the moment I wake up to the moment I go to bed.
+ - I am hoping for a long career.
+ - As a woman, you spend so much time either cooking or getting ready to go somewhere. I like to have music when I’m doing either of these things.
+ - Our brains are very animal but also very strange and egotistical. We’re narcissistic.
+ - What doesn’t feel okay to me, what feels a little bit out of balance, is when you want to turn yourself into something else – when you want to be another person.
+ - Before an actor can be this or be that, the actor must simply be.
+ - Where people really base their principles has nothing to do with the color of someone’s skin, it has to do with money and their class.
+ - I just want to be part of great stories that are told and for them to be relevant.
+ - I am fluent in Spanish and I understand French, Italian and Portuguese.
+ - I want to be in the small percentage of women who don’t settle for conventional roles.
+
+77 quotes

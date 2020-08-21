@@ -1,0 +1,43 @@
+ - Overthinking is often a product of underdoing.
+ - The only way to get to Heaven is to go through Hell.
+ - If you are seeking the right path, you are already on the right path.
+ - Positive change always encounters resistance, conflict, and obstacles. We must embrace difficult and heated situations in life, for that is the method of igniting our reactions in order to transform them.
+ - Love is the weapon of the future.
+ - Our ego seeks to understand everything. It wants all the answers. Part of what destroys the ego and connects us with the light is doing things that absolutely don’t make any sense. If we want something beyond logic, like a miracle, we have to do something that is beyond logic.
+ - God never answers prayers. It is people who answer their own prayers by knowing how to connect and utilize the divine energy of the Creator and the God-like force in their own souls.
+ - Listening better. Caring more. Being there. Its not big changes, but the little ones in our daily lives that make all the difference. With little ways to love more, big things happen.
+ - Your garbage, transformed, is your gift.
+ - Share love. Share time. Share friendship. Just share. Put some love into everything you do.
+ - The more we invest in our spirituality, the more consistently we can elevate our consciousness and connect to the spiritual source of everything good.
+ - Every little action creates an effect: We are all interconnected.
+ - Addiction is a revolt of the soul.
+ - The bottom line is: We must be working on arriving at the destination for which we were put on this planet.
+ - I imagine God to be like my father. My father was always the voice of certainty in my life. Certainty in the wisdom, certainty in the path, certainty always in God. For me God is certainty in everything. Certainty that everything is good and everything is God.
+ - Love is a weapon of Light, and it has the power to eradicate all forms of darkness. That is the key. When we offer love even to our enemies, we destroy their darkness and hatred...
+ - I believe that if Mohammed, Buddha, Jesus, and Moses all got together they would be best of friends because the spiritual basis of all religions is something that builds unity.
+ - Ego is one of the biggest weapons that is used to take us down. It’s self-destructive. It’s a problem on all levels – even regular people can have big ego problems.
+ - If we each take responsibility in shifting our own behavior, we can trigger the type of change that is necessary to achieve sustainability for our race or this planet. We change our planet, our environment, our humanity every day, every year, every decade, and every millennia.
+ - We need to realize that our path to transformation is through our mistakes. We’re meant to make mistakes, recognize them, and move on to become unlimited.
+ - Kabbalah is all about change. It isn’t about being proud of our good qualities: the wisdom is about transforming our darkness into light.
+ - Change requires leaving our comfort zones and plunging headfirst into uncomfortable situations. It’s true this causes some pain and discomfort for a moment, but it’s the quickest path to generating long-term fulfillment.
+ - Healing is a choice. It’s not an easy one because it takes work to turn around your habits. But keep making the choice and shifts will happen.
+ - Change is inevitable. Things absolutely cannot stay the same. The type of change we invoke is up to each and every one of us.
+ - Good ideas are a dime a dozen. What counts is completion. Look at your life and all the half finished projects sitting on your shelf. Commit to taking on one of these ideas and finishing what you started.
+ - Personal responsibility is not only recognizing the errors of our ways. Personal responsibility lies in our willingness and ability to correct those errors individually and collectively.
+ - It is not our sexual preferences, the color of our skin, the language we speak, nor the religion we practice that creates friction, hatred and wars amongst in society. It is our words and the words of our leaders that can create that disparity.
+ - When I grew up, I thought I was Jewish. Now I don’t consider myself Jewish. I consider myself a Kabbalist.
+ - The problem with certainty is that sometimes it can sound cold and heartless, although it is the most compassionate and supportive answer.
+ - With so much evidence of depleting natural resources, toxic waste, climate change, irreparable harm to our food chain and rapidly increasing instances of natural disasters, why do we keep perpetuating the problem? Why do we continue marching at the same alarming beat?
+ - When you’re truly connecting with wisdom, the more you learn, the more you realize the less you know.
+ - At the end of the day, the key to happiness is taking ultimate responsibility for your reactions to all of your experiences – the good and the chaotic.
+ - Many can argue that it is our power of intelligence that is the key to the human domination of our planet. I suggest that it is the ability to put our thoughts into words that can be communicated to others.
+ - In truth, we are all part of the team of humanity. And as such, we are all obligated to share ourselves, and our talents, for the sake of the team.
+ - The truth is that we were born to have it all. And part of our handicap as adults is that we no longer understand our potential.
+ - It’s our own small voice within that is our oppressor; it says we are not worthy and not powerful enough. Our limited beliefs are the real foes we need to fight and conquer.
+ - A rewarding relationship occurs when there is a common spiritual goal, shared spiritual values and a mutual desire to build a relationship upon a spiritual foundation and for the purpose of connecting to the light of the creator.
+ - I do believe that the original sources of all religions should be taught, because with that we will find our similarities, not just our differences...
+ - When you give 100 percent to another person, two literally become one.
+ - We are increasingly open to understanding how we are all connected and that if we sink the ship that we are all on, we all drown. However, we have simultaneously become so focused on our own life experiences that we think we are alone.
+ - In every relationship, the work is never just in the positive actions we do for each other, but in the follow up.
+
+41 quotes

@@ -1,0 +1,21 @@
+ - I am a champion standing over the shadow of my former self.
+ - Use your imagination only on the future, never on the present or the past.
+ - The darkness inside your head is something your imagination fills with stories that have nothing to do with the real darkness around you.
+ - But people do things to survive, and then after they survive, they can’t live with what they’ve done.
+ - Imagine a world in which no writer has written a literary novel in sixty years. Imagine a place where not a single person has read a book that is truly about the character at its center.
+ - Orphans are the only ones who get to choose their fathers, and they love them twice as much.
+ - The death of dictator Kim Jong-Il has cast all eyes on North Korea, a country without literature or freedom or truth.
+ - I thought that, with so much current attention focused on the topic of North Korea, I might share what I think are three books which cast a rare light on the elusive realm of North Korea.
+ - For an entire populace, change, growth, and spontaneity were dangerous. Acting upon a personal desire, whispering a hidden longing, revealing your true feelings – all the human actions we think of as essential to a character – had be censored by the self lest they be punished by the state.
+ - All the lessons you need to learn in life, he said, will be taught to you by your enemy.
+ - Like putting a name to my problems would solve anything.
+ - The urge to create a fictional narrative is a mysterious one, and when an idea comes, the writer’s sense of what a story wants to be is only vaguely visible through the penumbra of inspiration.
+ - I’d known that the visit would be highly scripted and that genuine interactions with citizens wouldn’t be possible, since it’s illegal for them to speak with foreigners. Still, I’d thought I’d had a unique look at North Korea, only to discover I was wrong.
+ - In my experience, ghosts are made up only of the living, people you know are out there but are forever out of range.
+ - What good’s a captive without her captor?
+ - The next day, she was silent. For breakfast, she murdered an onion and served it raw.
+ - A good story feels both surprising and inevitable, fresh and familiar.
+ - I know it really sounds cheesy, but I did feel a duty to try to tell the stories of people who couldn’t speak for themselves.
+ - Had she never been hungry enough to eat a flower? Did she not know that you could eat daisies, daylilies, pansies, and marigolds? That hungry enough, a person could consume the bright faces of violas, even the stems of dandelions and the bitter hips of roses?
+
+19 quotes

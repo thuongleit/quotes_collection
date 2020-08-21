@@ -1,0 +1,91 @@
+ - I have no fear, I have only love.
+ - Your graciousness is what carries you. It isn’t how old you are, how young you are, how beautiful you are, or how short your skirt is. What it is, is what comes out of your heart. If you are gracious, you have won the game.
+ - I have my own life. And I am stronger than you know.
+ - If the sun warms up the rain, and the rain puts out the sun. Why does the greatest love become the greatest pain?
+ - I do not walk away in the face of adversity and never have.
+ - You live by the light of the moon, and I live by desire.
+ - She is like a cat in the dark And then she is the darkness She rules her life like a fine skylark And when the sky is starless All your life you’ve never seen a woman Taken by the wind Would you stay if she promised you heaven? Will you ever win?
+ - And I knew then, as I know now, that I still have so much to do.
+ - The loneliness of a one night stand is hard to take.
+ - A wound gets worse when it’s treated with neglect.
+ - When you’re hurt or angry, let go by tapping into your humbleness. You want people to remember you for your grace.
+ - Love is a word that some entertain. If you find it you have won the game.
+ - Timeless is the creature who is wise. And timeless is the prisoner in disguise.
+ - When you grow up as a girl, the world tells you the things that you are supposed to be: emotional, loving, beautiful, wanted. And then when you are those things, the world tells you they are inferior: illogical, weak, vain, empty.
+ - I’m going to be singing Dreams and Rhiannon when I’m 75 – and that’s just fine with me. I just hope my chiffon doesn’t get tangled in my rocking chair.
+ - If I had my life to live over, I would never dream.
+ - I’m not a witch, I just like Halloween, and I thought that blondes look skinnier in black.
+ - Time makes you bolder, children get older. I’m getting older, too.
+ - You know, the man of my dreams might walk round the corner tomorrow. I’m older and wiser and I think I’d make a great girlfriend. I live in the realm of romantic possibility.
+ - I’m going to spend my life writing poems, turning them into music that will affect people and touch their hearts. I’m going to write the songs that people can’t write for themselves.
+ - Love is only one fine star away, even though the living is sometimes laced with lies.
+ - As a member of Fleetwood Mac, for two weeks I was still working at the restaurant because I’d given them notice. I didn’t just want to walk in there and say, “‘I’m going to be a famous rock star so I quit and I never liked your food anyway”.
+ - Being able to take care of myself is something that my mom really instilled in me.
+ - My life is a testament to believing that if you want something you can make it happen.
+ - In comparison to the eight years I spent on Klonopin, the cocaine and brandy wins hands down. If you are ever in a drugstore and they put you on Klonopin, run out of there screaming.
+ - I’m timeless, I got that Dickensian, London street-urchin look in high school. I’ll never be in style, but I’ll always be different.
+ - Time cast a spell on you but you won’t forget me, I know I could have loved you, but you would not let me. I’ll follow you down ’til the sound of my voice will haunt you, you’ll never get away from the sound of the woman that loves you.
+ - Most women would not be happy being me. People say, ‘But you’re alone.’ But I don’t feel alone. I feel very un-alone.
+ - If you can find a passion at a young age, somewhere between fifteen and thirty, if you can find that passion, I can pretty much guarantee you that you can be sixty-five and still love that passion and still have a reason to dance out of bed and down the hall every morning.
+ - And the moon never beams Without bringing me dreams And the sun never shines But I see the bright eyes I lie down by the side Of my darling My life, my life...
+ - I hated Chris, my brother. I would pull his hair and kick him, until one day my father gave him permission to fight back. I’ll be apologizing to him for the rest of my life.
+ - I’ve laid down with love and woke up with lies. What’s it all, worth only the heart can measure.
+ - I am pretty fearless, and you know why? Because I don’t handle fear very well; I’m not a good terrified person.
+ - I hope that my niece in 20 years is going to say to me, ‘Aunt Stevie, what was with your hair?’
+ - I totally believe in magic. Because my life, I think, has been very magic, and magical things have come true for me time after time after time.
+ - I saw her do ‘Different Drum’ and thought, that’s what I’m gonna do. I don’t look that good in cut-offs, but that’s what I’m gonna do.
+ - Thunder only happens when it’s raining...
+ - Klonopin is a horrible, dangerous drug.
+ - My other family is Fleetwood Mac. I don’t need the money, but there’s an emotional need for me to go on the road again. There’s a love there; we’re a band of brothers.
+ - I think they all went too far. Their jeans got too low, their tops got too see-through. Personally, I think that sexy is keeping yourself mysterious. I’m really an old-fashioned girl, and I think I’m totally sexy.
+ - I sketch the faces upside down because it’s like drawing from the left side of the brain or the right side of the brain. I never took an art lesson in my life.
+ - I believe that there is a certain amount of mysticism that all women should have, that you should never tell all your secrets, that you should never tell everybody all about you.
+ - For 70 nights, right across America, I’ve been getting out there with two ex-lovers and we’ve been playing songs which are so specific about each of us, you just wouldn’t know. We’re friends now but we can’t forget what happened between us.
+ - I want to be age appropriate. I don’t want to be that girl you see walking away and she looks 25 and then she turns around and she looks 90.
+ - You don’t need help to write a song. You just need to get over this experience that bummed you out so bad. The relationship you were in is over, it was over a long time ago, and you need to move on.
+ - It was my 16th birthday – my mom and dad gave me my Goya classical guitar that day. I sat down, wrote this song, and I just knew that that was the only thing I could ever really do – write songs and sing them to people.
+ - I’ve seen every one, from Motley Crue to John Denver, with tears running down my face. I had no idea everyone had such a hard time.
+ - If you’re an unattractive girl who’s trying to be beautiful with Botox, forget it. If you are a beautiful girl who’s trying to be beautiful with Botox, you will look like you’re angry all the time.
+ - Klonopin – more deadly than coke.
+ - The truly incredible thing is were realizing that you can perform a two-and-a-half-hour gig without being high and still have a fantastic time.
+ - Singing is the love of my life, but I was ready to give it all up because I couldn’t handle people talking about how fat I was.
+ - We fought very hard for feminism, for women’s rights. What I’m seeing today is a very opposite thing. I don’t know why, but I see women being put back in the place. And I hate it. We’re losing all we worked so hard for and it really bums me out.
+ - I love leather and I love lace, but not necessarily together. I’m probably happiest in a long black velvet dress, black suede boots, and some kind of really beautiful wrap than I am in anything else. I don’t even own a pair of jeans.
+ - I was not going to be a stupid girl singer. I was going to be way more than that.
+ - We don’t need to have somebody that’s gonna make sure they pay for our market bills. It’s like we have only one reason to love and that is for the real idea of love.
+ - Love is only one fine star away.
+ - I’m obsessed with lighting. I’m constantly shopping for different lightbulbs. I love rainbow lightbulbs. And also, one should not live without dimmers. Life is all about lighting.
+ - Rock and menopause do not mix. It is not good, it sucks and every day I fight it to the death, or, at the very least, not let it take me over.
+ - Rock and menopause do not mix.
+ - I had Botox and I hated it. For four long months, I looked like a different person.
+ - It’s really hard when you break up with somebody, or somebody breaks up with you, and you’re in this band; guess who you have to see in the next day in the hotel in the breakfast room? That person.
+ - Even in my really bad, drugged-out days, I didn’t go away. I still toured, still did interviews. I never gave up the fight. That’s why I’m who I am today, because I didn’t leave. And I think I made the right choice.
+ - I don’t love the years going by. I’d just as soon stay forty-five. But it’s OK because I feel a whole lot better than I did at thirty-five.
+ - But for me, I knew that if I had a baby, I would have to take care of that baby, and I wouldn’t have been happy with a nanny taking care of my baby and walking into the room and having my child run across the room to another woman.
+ - There is a part of me that has to depend on fantasy, because if you can’t be somewhat of a fantasy person, then you can’t write.
+ - Men are going to go out on the road and they’re going to find other women. So if you really want to save yourself a whole lot of heartache, do not fall in love with somebody in a band. Just don’t.
+ - I keep all my poems in my journals and lock them away. They are the start of everything.
+ - If you have stage fright, it never goes away. But then I wonder: is the key to that magical performance because of the fear?
+ - My generation fought very hard for feminism, and we fought very hard to not be labeled as you had to have a husband or you had to be in a relationship, or you were somehow not a cool chick.
+ - That’s not going to happen, because I don’t want it to happen. I don’t want a movie about me until I’m very, very old – when I’m very, very old, everybody that wants to play me will be middle-aged.
+ - Stop dragging my heart around.
+ - When you’re rich and famous you are the dominant force in a relationship, even if you try hard not to be. I’ve talked of sacrificing everything for Fleetwood Mac, but I realize now that it is simply the only thing I’ve ever wanted to do.
+ - Do you want to be an artist and a writer, or a wife and a lover? With kids, your focus changes. I don’t want to go to PTA meetings.
+ - I made a conscious decision that I was not going to have children. I didn’t want others raising them, and looking after them myself would get in the way of being a musician and writer.
+ - The people that can’t sing anymore that had great voices are the people that went away for five years and then just decided to come back. And you just can’t make a comeback. Comebacks are no good. You have to just keep singing. Or keep dancing.
+ - I wouldn’t like to be in movies. Movie people are strange. They live a different life than musicians do.
+ - I didn’t want to look like anyone else – like Janis Joplin or Grace Slick. That’s why I never went to any of the big designers.
+ - I don’t really like to be filmed.
+ - I watched Janis one time – we opened for her – and that’s the only time I ever saw her. We opened for Jimi Hendrix. I got to stand on the side of the stage and watch him for two hours and then he died. But I got the essence before they left.
+ - The day before my 16th birthday I got my guitar.
+ - Most bands people have side projects and it’s not considered a death threat as it was say, with The Beatles.
+ - I preferred not to be laden down with a big instrument. If you’re behind a guitar, you get used to being behind a guitar, and you don’t really perform because you can’t. I wanted to be able to just hold on to the mike and sing.
+ - I’m doing lots of interviews and stuff. I’m longing for the days of getting up, not having to put on makeup and do my hair and just going to the studio.
+ - The female rock-‘n’-roll-country-pop songwriter is back, and her name is Taylor Swift. And it’s women like her who are going to save the music business.
+ - If you want to find somebody and you want to be married and you want to have children, don’t make it a rock star.
+ - If you see somebody running down the street naked every single day, you stop looking up.
+ - By the time I was five, I was a little diva.
+ - Right now I’m not involved with anybody, but I hope by 75 I will be again.
+ - What has Rock and Roll ever done for us? Everything.
+
+89 quotes

@@ -1,0 +1,70 @@
+ - Architecture is a dangerous mix of power and importance.
+ - Sustainability has become an ornament.
+ - The City is an addictive machine from which there is no escape.
+ - Find optimism in the inevitable.
+ - There’s something really interesting about current urbanism: the only model is the universal model, and there is increasingly incapacity to consider the virtues and the qualities that are there, and then to build on them. The only thing is complete transformation.
+ - Infrastructure is much more important than architecture.
+ - I wanted to disconnect from contemporary architecture.
+ - Evil can also be beautiful. The Coliseum in Rome, for example, a wonderful structure with an awful past. Just think about the bloody gladiator fights there.
+ - The good is not a category that interests me.
+ - A building has at least two lives – the one imagined by its maker and the life it lives afterward – and they are never the same.
+ - I’d say that my profession ends where architectural thinking ends – architectural thinking in terms of thinking about programs and organizational structure. These abstractions play a role in many other disciplines, and those disciplines are now defining their ‘architectures’ as well.
+ - Our office acts like a kind of educational establishment and we are very careful who we educate.
+ - The stronger the identity, the more it imprisons, the more it resists expansion, interpretation, renewal, contradiction.
+ - Talk about beauty and you get boring answers, but talk about ugliness and things get interesting.
+ - It is not possible to live in this age if you don’t have a sense of many contradictory forces.
+ - Lagos was the ultimate dysfunctional city – but actually, in terms of all the initiatives and ingenuity, it mobilised an incredibly beautiful, almost utopian landscape of independence and agency.
+ - Most old cities are now sclerotic machines that dispense known qualities in ever-greater quantities, instead of laboratories of the uncertain. Only the skyscraper offers business the wide-open spaces of a man-made Wild West, a frontier in the sky.
+ - The word ‘celebrity’ and the word ‘architect’ are basically incompatible.
+ - Architects work in two ways. One is to respond precisely to a client’s needs or demands. Another is to look at what the client asks and reinterpret it.
+ - We live in an almost perfect stillness and work with incredible urgency.
+ - Not many architects have the luxury to reject significant things.
+ - Nobody should be anything, but because I once had a different profession and I’m interested in writing, I took it upon me.
+ - I am incredibly bad at predicting the future; I am only smart enough to observe the present and listen to my intuition about tendencies.
+ - The architecture per se isn’t at fault. The more important factor, in my view, is the political neglect of these areas, which have essentially been cut off from other neighborhoods.
+ - When air conditioning, escalators, and advertising appeared, shopping expanded its scale, but also limited its spontaneity. And it became much more predictable, almost scientific. What had once been the most surprising became the most manipulated.
+ - But now sustainability is such a political category that it’s getting more and more difficult to think about it in a serious way. Sustainability has become an ornament.
+ - The work in S, M, L, XL was almost suicidal. It required so much effort that our office almost went bankrupt.
+ - As more and more architecture is finally unmasked as the mere organization of flow – shopping centers, airports – it is evident that circulation is what makes or breaks public architecture...
+ - When shopping was still connected to the street it was also an intensification and articulation of the street. Now it has become utterly independent – contained, controlled, surveyed.
+ - Manhattan has generated a shameless architecture that has been loved in direct proportion to its defiant lack of self-hatred, hasbeen respected exactly to the degree that it went too far.
+ - Manhattan is an accumulation of possible disasters that never happen.
+ - The great problem of the concert hall is that the shoebox is the ideal shape for acoustics but that no architect worth their names wants to build a shoebox.
+ - In the end, there will be little else for us to do but shop.
+ - The Metropolis strives to reach a mythical point where the world is completely fabricated by man, so that it absolutely coincides with his desires.
+ - Lagos was not very inviting even to Lagosians. It was considered a no-go zone, almost in its entirety.
+ - We know that Las Vegas is junk, but at the same time I think that exactly the same process and ultimately also, perhaps the same logic, attaches itself to or underlies our masterpieces. We live in an amazing era when in spite of an absence of masters there is an explosion of masterpieces.
+ - Any architectural project we do takes at least four or five years, so increasingly there is a discrepancy between the acceleration of culture and the continuing slowness of architecture.
+ - Architecture is a rare collective profession: it’s always exercised by groups. There is an essential modesty, which is a complete contradiction to the notion of a star.
+ - That has been my entire life story. Running against the current and running with the current. Sometimes running with the current is underestimated. The acceptance of certain realities doesn’t preclude idealism. It can lead to certain breakthroughs.
+ - In this branch of utopian real estate, architecture is no longer the art of designing buildings so much as the brutal skyward extrusion of whatever site the developer has managed to assemble.
+ - Prada is extremely directed in terms of communicating what they like and what they don’t like. That is actually extremely pleasant because it clarifies very easily what you can do and what you need to do.
+ - The acceptance of certain realities doesn’t preclude idealism. It can lead to certain breakthroughs.
+ - I like fashion, whether or not it’s overpriced, because it creates a sense of the sublime with relatively few means.
+ - You need to look at inequality as a typical condition of modern society.
+ - There’s nothing Dutch about my architecture.
+ - The areas of consensus shift unbelievably fast; the bubbles of certainty are constantly exploding.
+ - There are essentially two possibilities. One is to be, shall we say, an average architect and do the same thing everywhere. The other is to let yourself be inspired and even changed by the unique qualities of the place where you’re building. We always try to take the second approach.
+ - Escape from the architecture ghetto is one of the major drivers and has been from the very beginning.
+ - There is no plateau of resting or stabilising. Once you are interested in how things evolve, you have a kind of never-ending perspective, because it means you are interested in articulating the evolution, and therefore the potential change, the potential redefinition.
+ - The luxury of our position now is that we can almost assemble any team to address any issue.
+ - Journalists seem mostly interested in what brand of shoes I wear.
+ - Designs are increasingly winning competitions because they are literally green, and because somewhere they feature a small windmill.
+ - I think one of the important evolutions is that we no longer feel compulsively the need to argue, or to justify things on a kind of rational level. We are much more willing to admit that certain things are completely instinctive and others are really intellectual.
+ - Influence is a very unpleasant subject and I deal with it in a maybe irresponsible way, which is to really ignore it. It would be a nightmare if we started to really think about it; it would tie our hands, it would tie everyone elses hands.
+ - People can inhabit anything. And they can be miserable in anything and ecstatic in anything. More and more I think that architecture has nothing to do with it. Of course, that’s both liberating and alarming.
+ - As an architect, I always have mixed feelings. On the one hand, your fingers are itching. As a human being, you are happy to participate in the indolence.
+ - We discovered a person in Lagos who had a fish stall, and within a single square metre she carried two children all the way to Harvard. She supported an unbelievable escape of her children into education. In that sense it was a city completed pixillated, and every pixel contained amazing stories.
+ - Asia is still dominated by skyscrapers. I hope that, in European cities, it will become a declining trend. They were almost never necessary.
+ - Let’s put it this way: One can be happy or unhappy in a building. But some buildings make us more depressed than others.
+ - The institutions are working better now, the banks are much more functional. At this time, 1997, there were no mobile phones! It’s a whole different thing now with mobile phones: technology has created a form of regulation, because people can actually talk to each other a lot more.
+ - Criticism per se does not worry me. I’ve always solicited it as part of the design process.
+ - Each building has to be beautiful, but cheap and fast, but it lasts forever. That is already an incredible battery of seemingly contradictory demands. So yes, I’m definitely perhaps contradictory person, but I operate in very contradictory times.
+ - One cannot completely avoid this landmark character with large buildings such as these. But the city itself is also gigantic.
+ - We say we want to create beauty, identity, quality, singularity. And yet, maybe in truth these cities that we have are desired. Maybe their very characterlessness provides the best context for living.
+ - When we went in the late 1990s, Nigeria was still in a dictatorship. So we didn’t go with a mission. It started really with a sort of blankness and open-endedness.
+ - If you have this reputation you can sit back and endure it, or you can try to do things with it.
+ - In a script, you have to link various episodes together, you have to generate suspense and you have to assemble things – through editing, for example. It’s exactly the same in architecture. Architects also put together spatial episodes to make sequences.
+ - Without a tighter union, Europe will disintegrate.
+
+68 quotes

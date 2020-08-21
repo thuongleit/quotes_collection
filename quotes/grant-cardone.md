@@ -1,0 +1,52 @@
+ - Success is your duty, obligation and responsibility.
+ - Make time, not excuses.
+ - Never lower your target ; increase your actions.
+ - Have goals so big your problems pale in comparison.
+ - Never lower your price, add value.
+ - Massive success is the best revenge.
+ - Do what others refuse to do.
+ - The average call me obsessed, the successful call me for advice.
+ - Wake up! No one is going to save you. No one is going to take care of your family or your retirement. No one is going to “make things” work out for you. The only way to do so is to utilize every moment of every day at 10X levels.
+ - Think about it: What’s the worst thing that can happen to you if you just totally go for it?
+ - Rich people invest money and poor people spend it.
+ - Don’t go to work to work, go to work to prosper.
+ - As long as you are alive, you will either live to accomplish your own goals and dreams or be used as a resource to accomplish someone else’s.
+ - Your family is depending on you. No better reason to bring all your game all the time.
+ - Never depend on one action.
+ - You can’t reach your potential without haters.
+ - You will never be admired without being criticized first.
+ - Most people only work enough so that it feels like work, whereas successful people work at a pace that gets such satisfying results that work is a reward. Truly successful people don’t even call it work; for them, it’s a passion. Why? Because they do enough to win!
+ - Fear depends on time for it’s strength! Confront that which you fear with speed.
+ - Obscurity is a bigger problem than money.
+ - I suggest that you become obsessed about the things you want; otherwise, you are going to spend a lifetime being obsessed with making up excuses as to why you didn’t get the life you wanted.
+ - Never reduce a target. Instead, increase actions. When you start rethinking your targets, making up excuses, and letting yourself off the hook, you are giving up on your dreams!
+ - Most opportunities are disguised as problems.
+ - Success is the difference between where you are and where you could be.
+ - Don’t just make money, make a difference.
+ - The ambitious are criticized by those that have given up.
+ - Rich people use debt to leverage investments and grow cash flows. Poor people use debt to buy things that make rich people richer.
+ - Average is a failing plan! Average doesn’t work in any area of life. Anything that you give only average amounts of attention to will start to subside and will eventually cease to exist.
+ - I’m going to do anything and everything, remove every boulder, every hurdle and every problem out of my way to make my dreams come true.
+ - Realistic thinking is based on what others think is possible-but they are not you and have no way of knowing your potential and purposes.
+ - Quit sharing bad news and gossip you aren’t a garbage truck.
+ - Money doesn’t know about clocks, schedules or holidays and you shouldn’t either. Money loves people that have great work ethic.
+ - Just Remember: The people that say, “your dreams are impossible ” have already quit on theirs.
+ - You can’t get anywhere flying under the radar.
+ - Success tends to bless those who are most committed to giving it the most attention.
+ - No economy, no matter how bad, can hold down a goal that is followed by enough action.
+ - No matter how exceptional your product, you won’t benefit financially if you can’t sell it.
+ - Money is like a jealous lover. Ignore it and it will ignore you, or worse, it will leave you for someone who makes it a priority.
+ - Almost every problem people face in their careers and other aspects of their lives – such as failed diets, marriages, and financial problems – are all the result of not taking enough action.
+ - You know, you don’t need to grow old to die. I was dying at the age of 20 as a result of no direction and no purpose.
+ - You can’t hate and ball at the same time.
+ - There are certain things in life that have limits, but you don’t unless you impose limits on yourself.
+ - Criticism precedes admiration and – like it or not – goes hand in hand with success. Keep pouring on the success, and sooner or later, the very same people who were putting you down will be admiring you for what you have done.
+ - The economy is not the problem, how people respond is the problem!
+ - Anyone who minimizes the importance of success to your future has given up on his or her own chances of accomplishment and is spending his or her life trying to convince others to do the same.
+ - Don’t be confused by what looks like luck to you. Lucky people don’t make successful people; people who completely commit themselves to success seem to get lucky in life.
+ - Treating success as an option is one of the major reasons why more people don’t create it for themselves-and why most people don’t even get close to living up to their full potential.
+ - Some people claim that expectations are the reason for unhappiness. However, I can assure you from personal experience that you’ll suffer greatly by setting subpar targets.
+ - Companies that only focus on expense reduction are all but dead as they will find themselves sooner or later unable to reduce anymore.
+ - That is what lower performers do; they make others wrong for doing what is necessary in order to make themselves feel okay about doing nothing! The highest performers-the winners-respond by studying successful people and duplicating success.
+
+50 quotes

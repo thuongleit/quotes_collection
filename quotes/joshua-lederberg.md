@@ -1,0 +1,34 @@
+ - I got my Nobel Prize for my lab work.
+ - The single biggest threat to man’s continued dominance on the planet is the virus.
+ - I’d like to put in a vote for the intrinsic fascination of science.
+ - I don’t believe anybody can really grasp everything that’s even in one textbook.
+ - Try hard to find out what you’re good at and what your passions are, and where the two converge, and build your life around that.
+ - So many of the things I’ve predicted were technologies that were just sitting right in front of us.
+ - I think we have to believe we are here for some purpose, and I know there are many cynics who will deny it, but they don’t live as if they deny it.
+ - Everybody has to learn for the first time.
+ - Although I am a public figure, I’m still a little shy. I don’t think my own personality is important. I prefer to keep some small dosage of privacy.
+ - By the time I was 12 or 13, I was studying biochemistry textbooks.
+ - I get curious about new things. My real strength is going into a field that has not been investigated before, and finding new approaches to it.
+ - As soon as you go into any biological process in any real detail, you discover it’s open-ended in terms of what needs to be found out about it.
+ - A Swedish newspaper reporter called and said, You’ve been awarded the Prize. I was quite sure it was a practical joke.
+ - I’m not easily inhibited by the fact that I don’t know something about a subject. It doesn’t stop me from dabbling in it.
+ - If lifespan jumps by 30 or 40 years, that has enormous implications.
+ - I certainly saw science as a kind of calling, and one with as much legitimacy as a religious calling.
+ - If it takes you 20 or 25 years to establish yourself in one field, you really ought to be careful not to stray too far.
+ - If we have isolated individuals able to inflict enormous harm, imagine what a single lunatic can do with a nuclear weapon. I think the whole base of civil society is at risk.
+ - All of civility depends on being able to contain the rage of individuals.
+ - Being successful at a very young age gave me the confidence and the capability to try out other things.
+ - I started on the use of the Internet for scientific communication. Our research group was one of the very first to make really systematic use of it as a way of managing research projects.
+ - The central moral issue of science is that we do not have a science of peace and hardly know where to begin in building one.
+ - When I was in high school, I became interested in cytochemistry: chemical analysis under the microscope, and trying to understand the composition of cells.
+ - My ambitions were already very clearly fixed by the time I was 6 or 7.
+ - I have many shortcomings. I feel very lucky to have been able to have what I’ve had.
+ - To have the recognition of your colleagues is great. The public attention is a mixed blessing.
+ - If you wanted to dissect the structure of living cells, genetic analysis was an extremely powerful method, so my interest turned to that.
+ - I believe I am a person with unusual talents. I think I’d be a liar or stupid if I were to deny that.
+ - I hope I’ve lived a life of science whose style will encourage younger people.
+ - I did get a very fine education, and not just in science. It took some pressure on the part of my elders to convince me that I really should take an interest in humanities.
+ - I wish I had a talent for dropping things as well as taking on new ones. It gets to be quite a clutter after a while.
+ - I was a bad practicing physician because I was never sure of the diagnosis or of the treatment.
+
+32 quotes

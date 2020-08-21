@@ -1,0 +1,47 @@
+ - Why can’t people just sit and read books and be nice to each other?
+ - Libraries rock! Not a sermon, just a fact. As a kid I was a library rat and books changed my life. They can change yours.
+ - It’s not the beginning or the destination that counts. It’s the ride in between.
+ - I’m ever curious about the world.
+ - Depending on the situation, sometimes you can know a person better in ten minutes than someone you have crossed paths with all your life.
+ - Today might not be so good. But tomorrow, you got another chance to get it right.
+ - The military is a very cool world to write about. I went down to Ft. Benning, Ga., for military training, and I learned a lot about soldiers and officers and why they joined up and what their life has been like.
+ - Passion is a rare commodity. When you find it, treasure it and never give it up!
+ - It’s hard, Cotton. To let yourself love something you know you may never have.
+ - Why waste time trying to discover the truth, when you can so easily create it?
+ - As my father wrote, one’s courage, hope, and spirit can be severely tried by the happenstance of life. But as I learned on this Virginia mountain, so long as one never loses faith, it is impossible to ever truly be alone.
+ - Human beings are infinitely fallible, completely unreliable. Science is not. Science is absolute. Under strict principles, if you do A and B, then C will occur. This rarely happens if you inject the inefficiences of humanity into the process.
+ - Assumptions are dangerous things. I like facts a lot better.
+ - Because life doesn’t work that way. You can do everything perfectly. Do everything you think you’re supposed to be doing. Fulfill every expectation that other people may have. And you still won’t get the results you think you deserve. Life is crazy and maddening and often makes no sense.
+ - Small mistakes tend to lead to large ones. Ours is a lifetime appoinment, and all you have is your reputation. Once it’s gone, it doesn’t comeback.
+ - Only I could drink a thousand drinks and never forget a damn thing. I would just remember every detail of the thousand drinks down to the shapes of the ice cubes.
+ - It’s my experience that most folk who ride trains could care less where they’re going. For them it’s the journey itself and the people they meet along the way. You see, at every stop this train makes, a little bit of America, a little bit of your country, gets on and says hello.
+ - You haven’t yet seen me be rude. When I am it’s unmistakable. – Michelle Maxwell.
+ - A young man’s ambition, can there be a more fleeting prospect?
+ - I’m tired of people screaming about price and forgetting about the content.
+ - It’s the hardest thing in the world to put yourself in someone else’s place, try to really feel what they feel, figure out why they do the things they do. Especially when it’s easier to stick a label on something. Or someone.
+ - I’m a wicked ping-pong player.
+ - Trapped in a trap of your own making.
+ - You learn a lot about a person when she saves your life, – Mecho.
+ - Time doesn’t really heal, it just makes you not to give a crap.
+ - People have given me classified information, but always with the disclaimer ‘This can never end up in a book.’ And it never does.
+ - Anyone who’s lived has lost somebody.
+ - Fiction is sort of a way to set the record straight, and let people at least believe that justice can be achieved and the right outcomes can occur.
+ - When a poor man gives something, that is a sacrifice indeed. When a rich man gives something, it hardly rises to the same level.
+ - I’d read a lot of thrillers about politicians and presidents, but never one where you flip the stereotypes and make good people bad and bad people good.
+ - I’m scattered, and then that last hundred pages, bam, I’m a laser.
+ - People who have expertise just love to share it. That’s human nature.
+ - Half truths were a wonderful way to inspire credibility.
+ - You know what kind of person it takes to run for President? Not normal. They could start out okay, but by the time they reach that level they’ve sold their soul to the devil so many times and stomped the guts out of enough people that they are definitely not like you and me, not even close.
+ - Nothing, absolutely nothing, was above corruption so long as human beings were involved.
+ - Some people take 10 years to write a book and some can do one in under a year.
+ - Two people can care for each other but not want the same things.
+ - I can write with a crying child on my lap. I have. Often.
+ - I look for material that both interest me and challenges me. If I am drawn to the material and I have to work hard at it, the characters and the plots reflect the hours and hours of research.
+ - I’m ever curious about the world. I’m driven to go out and find new things to write about. Having a vivid imagination is also a plus.
+ - Most people associate reading with laying on the beach. They don’t see that it’s crucial for a democracy!
+ - That’s what civilization sometimes did to threats, real or perceived. They walled them off. Us against them. Survival of the fittest. You die so I can live.
+ - But protagonists are protagonists and heroes are heroes.
+ - As a lawyer, as a private citizen, you see a lot of injustice.
+ - The human spirit was the strongest medicine on earth. And sometimes all it needed was a little encouragement to pull off a miracle.
+
+45 quotes

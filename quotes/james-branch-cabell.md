@@ -1,0 +1,45 @@
+ - The optimist proclaims that we live in the best of all possible worlds; and the pessimist fears this is true.
+ - I am willing to taste any drink once.
+ - The only way of rendering life endurable is to drink as much wine as one can come by.
+ - The realization that life is absurdand cannot be an end, but only abeginning. This is a truth nearly allgreat minds have taken as their starting point.
+ - And one would worship a woman whom all perfections dower, But the other smiles at transparent wiles; and he quotes from Schopenhauer. Thus two by two we wrangle and blunder about the earth, And that body we share we may not spare; but the Gods have need of mirth.
+ - Why is the King of Hearts the only one that hasn’t a moustache?
+ - Man alone of animals plays the ape to his dreams .
+ - The touch of time does more than the club of Hercules.
+ - I take it that I must be the eternal playfellow of time. For piety and common-sense and death are rightfully time’s toys; and it is with these three that I divert myself.
+ - There is no gift more great than love.
+ - Trapped dreams must die.
+ - Time changes all things and cultivates even in herself an appreciation of irony, and, therefore, why shouldn’t I have changed a trifle?
+ - In religious matters a traveller loses nothing by civility.
+ - For all men have but a little while to live and none knows his fate thereafter. So that a man possesses nothing certainly save a brief loan of his body: and yet the body of man is capable of much curious pleasure.
+ - Love, I take it, must look toward something not quite accessible, something not quite understood.
+ - No lady is ever a gentleman.
+ - Everything in life is miraculous. For the sigil taught me that it rests within the power of each of us to awaken atwill from a dragging nightmare of life made up of unimportant tasks and tedious useless little habits, to see life as it really is, and to rejoice in its exquisite wonderfulness.
+ - Oh, do the Overlords of Life and Death always provide some obstacle to prevent what all of us have known in youth was possible from ever coming true?
+ - Whatever there is to know, That shall we know one day.
+ - Literature is a vast bazaar where customers come to purchase everything except mirrors.
+ - I was born, I think, with the desire to make beautiful books – brave books that would preserve the glories of the Dream untarnished, and would re-create them for battered people, and re-awaken joy and magnanimity.
+ - Every notion that any man, dead, living, or unborn, might form as to the universe will necessarily prove wrong.
+ - As it is, plain reasoning assures me I am not indispensable to the universe: but with this reasoning, somehow, does not travel my belief.
+ - No person of quality ever remembers social restrictions save when considering how most piquantly to break them.
+ - Whatever pretended pessimists in search of notoriety may say, most people are naturally kind, at heart.
+ - The desire to write perfectly of beautiful happenings is, as the saying runs, old as the hills – and as immortal.
+ - I ask of literature precisely those things of which I feel the lack in my own life.
+ - What am I that I am called upon to have prejudices concerning the universe?
+ - Some few there must be in every age and every land of whom life claims nothing very insistently save that they write perfectly of beautiful happenings.
+ - People never want to be told anything they do not believe already.
+ - I have followed after the truth, across this windy planet upon which every person is nourished by one or another lie.
+ - At all events, I do not mean to leave it unaltered.
+ - I do that which I do in every place. Here also, at the gateway of that garden into which time has not entered, I fight with time my ever-losing battle, because to do that diverts me.
+ - A manpossessesnothing certainlysavea brief loanof his own body.
+ - Thou shalt not offend against the notions of thy neighbor.
+ - People must have both their dreams and their dinners in this world, and when we go out of it we must take what we find. That is all.
+ - But with man the case is otherwise, in that when logic leads to any humiliating conclusion, the sole effect is to discredit logic.
+ - In what else, pray, does man differ from the other animals except in that he is used by words?
+ - There are many of our so-called captains on industry who, if the truth were told, and a shorter and uglier word were not unpermissible, are little better than malefactors of great wealth.
+ - Patriotism is the religion of hell.
+ - I am Manuel. I have lived in the loneliness which is common to all men, but the difference is that I have known it. Now it is necessary for me, as it is necessary for all men, to die in this same loneliness, and I know that there is no help for it.
+ - The man was not merely very human; he was humanity. And I reflected that it is only by preserving faith in human dreams that we may, after all, perhaps some day make them come true.
+ - There is no escaping, at times, the gloomy suspicion that fiddling with pens and ink is, after all, no fit employment for a grown man.
+
+43 quotes

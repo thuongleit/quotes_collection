@@ -1,0 +1,8 @@
+ - If there’s a god, it knows exactly what it would take to convince me and has refused to provide it. In fact, it has gone to great lengths to hide any evidence of its existence. That doesn’t seem like a deity that wants to be worshiped to me.
+ - If for every well-intended prayer uttered in hopes of making the world a better place, there was instead a good deed accomplished, the world might look as though those prayers had been answered.
+ - While it may be impossible to ‘disprove’ the existence of some ‘Higher Power’ or abstract Creator, it is entirely possible – through analysis and research – to find discrepancies within the ancient, organized religious traditions that support the idea of a specific God.
+ - Not only do I believe that it is possible to maintain moral standards without the crutch of religion but I would argue that it is the only way to achieve true goodness.
+ - We are all born free from all religious affiliations and only come to believe in such things after being introduced to it – so, atheism is the default position. Although some children are not indoctrinated with a specific religion before the age of reason, there are many more who are.
+ - Religious people claim that it’s just the fundamentalists of each religion that cause problems. But there’s got to be something wrong with the religion itself if those who strictly adhere to its most fundamental principles are violent bigots and sexists.
+
+6 quotes

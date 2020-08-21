@@ -1,0 +1,27 @@
+ - I get a lot of letters from people. They say “I want to be a writer. What should I do?” I tell them to stop writing to me and to get on with it.
+ - I can’t exist without books.
+ - To say that Agatha Christie’s characters are cardboard cut-outs is an insult to cardboard cut-outs.
+ - Eunice Parchman killed the Coverdale family because she could not read or write.
+ - Many emotions go under the name of love, and almost any one of them will for a while divert the mind from the real, true, and perfect thing.
+ - We no more forget the faces of our enemies than of those we love.
+ - I really do literally put myself into a character’s shoes.
+ - Ten thousand years of civilization shed in an instant when you put a woman behind the wheel of a car.
+ - The knives of jealousy are honed on details.
+ - We always know when we are awake that we cannot be dreaming even though when actually dreaming we feel all this may be real.
+ - The trouble with psychology is that it doesn’t take human nature into account.
+ - I think about death every day – what it would be like, why it would happen to me. It would be humiliating to be afraid.
+ - Some say life is the thing, but I prefer reading.
+ - While most of the things you’ve worried about have never happened, it’s a different story with the things you haven’t worried about. They are the ones that happen.
+ - Nobody really lives in the present.
+ - I think to be driven to want to kill must be such a terrible burden.
+ - I try, and I think I succeed, in making my readers feel sorry for my psychopaths, because I do.
+ - It is not so much true that the world loves a lover as that the lover loves all the world.
+ - It’s living – a broad spectrum of living – that teaches you how to live, not philosophy. Philosophy teaches you how to think.
+ - I’ve had two proposals since I’ve been a widow. I am a wonderful catch, you know. I have a lot of money.
+ - Maybe being married is talking to oneself with one’s other self listening.
+ - To be a classic, a novel should be original.
+ - Growing old is not all sweetness and light. Old women especially are invisible.
+ - When one has children one has no privacy. They take it for granted that what is yours is theirs, personal things and the secrets of your heart, as well as possessions.
+ - There are only two periods in a woman’s life when she hopes to be taken for older than she is, under sixteen and over ninety.
+
+25 quotes

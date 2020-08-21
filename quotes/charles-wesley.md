@@ -1,0 +1,31 @@
+ - Faith, mighty faith, the promise sees, And looks to God alone; Laughs at impossibilities, And cries it shall be done.
+ - Come, thou long expected Jesus, born to set thy people free; from our fears and sins release us; let us find our rest in thee. Israel’s strength and consolation, hope of all the earth thou art, dear desire of every nation, joy of every longing heart.
+ - Hark the herald angels sing ‘Glory to the newborn King! Peace on earth and mercy mild God and sinners reconciled’ Joyful, all ye nations rise Join the triumph of the skies With the angelic host proclaim: ‘Christ is born in Bethlehem’ Hark! The herald angels sing ‘Glory to the newborn King!’
+ - Let us unite the two so long divided, knowledge and vital piety.
+ - A charge to keep I have, A God to glorify; A never dying soul to save, And fit it for the sky.
+ - O for a thousand tongues to sing my great Redeemer’s praise, the glories of my God and King, the triumphs of his grace!
+ - Christ, by highest heaven adored. Christ, the everlasting Lord, Late in time behold Him come, Offspring of a virgin’s womb. Veiled in flesh the Godhead see, Hail the incarnate Deity! Pleased as Man with man to dwell; Jesus, our Immanuel!
+ - God buries His workmen but carries on His work.
+ - Be friends of everyone. Be enemies of no-one.
+ - Hark the herald angels sing, Glory to the new-born king.
+ - Come to earth to taste our sadness, He whose glories knew no end. By His life He brings us gladness, our Redeemer, Shepherd, Friend. Leaving riches without number, born within a cattle stall. This, the everlasting wonder, Christ was born the Lord of all.
+ - Jesus weeps and loves me still.
+ - Expand Thy wings, celestial Dove, brood o’er our nature’s night; on our disordered spirits move, and let there now be light.
+ - God is gone up on high with a triumphant noise.
+ - To God your every Want In instant Prayer display, Pray always; Pray, and never faint; Pray, without ceasing, Pray.
+ - Jesus, Thou art all compassion, pure unbounded love Thou art; Visit us with Thy salvation, enter every trembling heart.
+ - Keep us little and unknown, prized and loved by God alone.
+ - Gentle Jesus, meek and mild...
+ - My soul is all an aching void.
+ - When summoned hence to thine eternal sleep, Oh, may’st thou smile while all around thee weep.
+ - Gentle Jesus, meek and mild, Look upon a little child; Pity my simplicity, Suffer me to come to thee.
+ - In Fellowship; alone To God, with Faith, draw near, Approach His Courts, besiege His Throne With all the power of Prayer.
+ - Rejoice, the Lord is King! Your Lord and King adore; Mortals, give thanks and sing, And triumph evermore: Lift up your heart, lift up your voice; Rejoice, again, I say rejoice.
+ - How few young men realize that their success in life depends more upon what they are than upon what they know. It is self-esteem that has brought the race this far.
+ - Our children will grow up confused, not respecting the Bible or anything else that is sacred.
+ - Lo! He comes with clouds descending, Once for favoured sinners slain; Thousand thousand Saints attending Swell the triumph of His train.
+ - Christ the Lord is risen to-day, Sons of men and angels say. Raise your joys and triumphs high; Sing, ye heavens, and earth reply.
+ - The wisdom coming from above, the faith that sweetly works by love.
+ - The person who bears and suffers evils with meekness and silence is the sum of a Christian man.
+
+29 quotes

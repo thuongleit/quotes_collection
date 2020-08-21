@@ -1,0 +1,27 @@
+ - Our thought is the unseen magnet, ever attracting its correspondence in things seen and tangible.
+ - Every thought of yours is a real thing – a force.
+ - There is a supreme power and ruling force which pervades and rules the boundless universe. You are a part of this power.
+ - Whatever the mind is set upon, or whatever it keeps most in view, that it is bringing to it, and the continual thought or imagining must at last take form and shape in the world of seen and tangible things.
+ - Let us remember, so far as we can, that every unpleasant thought is a bad thing literally put into the body.
+ - Keep your mind as much as you can from dwelling on your ailment. Think of strength and power and you will draw it to you. Think of health and you get it.
+ - Goodwill to others is constructive thought. It helps build you up. It is good for your body. It makes vour blood purer, your muscles stronger, and your whole form more symmetrical in shape. It is the real elixir of life. The more such thought you attract to you, the more life you will have.
+ - Faith is power to believe and power to see.
+ - Possibilities and miracles mean the same thing.
+ - You may be saying: ‘I have failed in life and shall always be a failure.’ That is because you are ever looking back, living in your failure and thereby bringing to you more failure. Reverse this attitude of mind; work it the other way and live in future success.
+ - The man who succeeds must always in mind or imagination live, move, think, and act as if he had gained that success, or he never will gain it.
+ - To succeed in any undertaking, any art or any trade or any profession, simply keep it ever persistently fixed in mind as an aim, and then study to make all effort toward it play or recreation. The moment it becomes hard work, we are not advancing.
+ - There is a sense in the tree which feels your love and responds to it. It does not respond or show its pleasure in our way or in any way we can now understand.
+ - A mighty, eternal and incomprehensible force pushes us all forward. But while all are so being pushed, many linger and look back. Unconsciously, they oppose this force.
+ - To grieve at any loss, be it of friend or property, weakens mind and body. It is no help to the friend grieved for. It is rather an injury; for our sad thought must reach the person, even if passed to another condition of existence, and it is a source of pain to that person.
+ - Our thoughts, or in other words, our state of mind, is ever at work ‘fixing up’ things good or bad in advance.
+ - The arrow always tipped with ill nature and sarcasm is deadliest to him who sends it.
+ - Every regret, every mournful thought, takes so much out of your life. It is force used to pile on more misery.
+ - The science of happiness lies in controlling our thought and getting thought from sources of healthy life.
+ - The power generated of ten minds for good is superior to that of ten thousand minds acting on a lower motive. But it is a silent power. It moves in mysterious ways. It is noiseless. It makes no show of open opposition. It uses no methods of effort through tongue or arm or physical force.
+ - Fear is but another name for lack of power to control our minds, or, in other words, to control the kind of thought we think or put out.
+ - Love yourself and feel worth it. Attend to your joy!
+ - In the spiritual life every person is his or her own discoverer, and you need not grieve if your discoveries are not believed in by others. It is your business to push on find more and increase individual happiness.
+ - Unreasoning prejudices are bred out of the continual living in the past.
+ - Parents sometimes forget that after the child emerges from the utter physical and mental helplessness of infancy, it is becoming more and more an individual.
+
+25 quotes

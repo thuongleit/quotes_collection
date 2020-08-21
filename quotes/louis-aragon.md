@@ -1,0 +1,26 @@
+ - I have no friends, there are only people I love.
+ - There are other relations besides reality, which the mind is capable of grasping and which also are primary, like chance, illusion, the fantastic, the dream.
+ - Geniuses are like ocean liners: they should never meet.
+ - Language was not given to man: he seized it.
+ - Yes, I read. I have that absurd habit. I like beautiful poems, moving poetry, and all the beyond of that poetry. I am extraordinarily sensitive to those poor, marvelous words left in our dark night by a few men I never knew.
+ - Reality is the apparent absence of contradiction. The marvelous is the eruption of contradiction within the real.
+ - That you are not already golden word in our streets Already memories Your love fades Already Whether you are no longer to have perished.
+ - Your imagination, my dear fellow, is worth more than you imagine.
+ - There are strange flowers of reason to match each error of the senses. Admirable gardens of absurd beliefs, forebodings, obsessions and frenzies. Unknown, ever-changing gods take shape there.
+ - Of all possible sexual perversions, religion is the only one to have ever been scientifically systematized.
+ - Everything that is not me is incomprehensible.
+ - I demand that my books be judged with utmost severity, by knowledgeable...
+ - The painting of tomorrow will use the photographic eye as it has used the human eye.
+ - Error is certainty’s constant companion. Error is the corollary of evidence. And anything said about truth may equally well be said about error: the delusion will be no greater.
+ - What on earth is modern exegesis up to? Oh, little lazy one! Some red wine and up! Off you go, brandishing your fork, stripped of Ophelia’s useless ornaments, fire in your large nostrils, out to rake the muck of metaphors.
+ - The carnal contact side by side, from heel to armpit, brings shudders that shake up nature like the flights of nocturnal birds.
+ - And there are loners in rural communities who, at the equinox, are said to don new garments and stroll down to the cities, where great beasts await them, fat and docile.
+ - Photography intervenes in a very strange way. It makes the streets, gates, squares of the city into illustrations of a trashy novel, draws off the banal obviousness of this ancient architecture to inject it with the most pristine intensity...
+ - We know that the nature of genius is to provide idiots with ideas twenty years later.
+ - O reason, reason, abstract phantom of the waking state, I had already expelled you from my dreams, now I have reached a point where those dreams are about to become fused with apparent realities: now there is only room here for myself.
+ - It sometimes happens that pleasure blows anywhere it damn well chooses.
+ - Can the knowledge deriving from reason even begin to compare with knowledge perceptible by sense?
+ - The authors of book reviews would consider themselves dishonored were they to mention, as they should, the subject of the book.
+ - As if one could do what one wanted with one’s own body!
+
+24 quotes

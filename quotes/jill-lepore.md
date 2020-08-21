@@ -1,0 +1,25 @@
+ - Disrupt, and you will be saved.
+ - History is a long and endlessly interesting argument, where evidence is everything and storytelling is everything else.
+ - My mother married my father in 1956. She was twenty-eight, and he was thirty-one. She loved him with a fierce steadiness borne of loyalty, determination, and an unyielding dignity.
+ - In kindergarten, you can learn how to be a citizen of the world.
+ - The study of history requires investigation, imagination, empathy, and respect. Reverence just doesnt enter into it.
+ - Stages of life are artifacts. Adolescence is a useful contrivance, midlife is a moving target, senior citizens are an interest group, and tweenhood is just plain made up.
+ - In antihistory, time is an illusion.
+ - Why do beautiful women love ugly men?
+ - You can be strong as any boy if you’ll work hard and train yourself in athletics, the way boys do.
+ - Reviewing a book written by someone you’re living with and sleeping with is, needless to say, wrong.
+ - Epidemics follow patterns because diseases follow patterns. Viruses spread; they reproduce; they die.
+ - Germ theory, which secularized infectious disease, had a side effect: it sacralized epidemiology.
+ - Folklore used to be passed by word of mouth, from one generation to the next; thats what makes it folklore, as opposed to, say, history, which is written down and stored in an archive.
+ - The world may not be getting better and better, but our devices are getting newer and newer.
+ - Conservatism cherishes tradition; innovation fetishizes novelty. They tug in different directions, the one toward the past, the other toward the future.
+ - Mainly, the more faddish and newer stages of life are really just marketing schemes. Tweenhood. The young old. The quarter-life crisis.
+ - Republicans were more pro-choice than Democrats up until the late 1980s.
+ - We have hands that must work, brains that must think, and personalities that must be developed.
+ - Epidemiologists study patterns in order to combat infection. Stories about epidemics follow patterns, too. Stories arent often deadly, but they can be virulent: spreading fast, weakening resistance, wreaking havoc.
+ - Old reference books are like tree rings. Without them, there’d be no way to know what a tree had lived through.
+ - A great deal of what many Americans hold dear is nowhere written on those four pages of parchment, or in any of the amendments. What has made the Constitution durable is the same as what makes it demanding: the fact that so much was left out.
+ - Nineteenth-century grass-roots populism made twentieth-century progressivism possible.
+ - History is hereditary only in this way: we, all of us, inherit everything, and then we choose what to cherish, what to disavow, and what do do next, which is why it’s worth trying to know where things come from.
+
+23 quotes

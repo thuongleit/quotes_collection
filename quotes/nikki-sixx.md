@@ -1,0 +1,91 @@
+ - The Tibetan Book of Living and Dying says that death is the graduation ceremony, while living is just a long course in learning and preparing for the next journey. If we acknowledge death as the beginning, then how can we fear it?
+ - Ego is the great enemy. Ego will hold you back every single time.
+ - If you don’t deal with your demons, they will deal with you, and it’s gonna hurt.
+ - Don’t waste your death on a half assed life.
+ - Live in the moment. Moments make history.
+ - I don’t fear death; I welcome it with open arms and a smirk. But until that wondrous day, I will continue to savor and celebrate all those who have graduated before me.
+ - There is nothing like a trail of blood to find your way back home. When you’ve lost it all, that’s when you finally realize that life is beautiful.
+ - Don’t Take Anything Personally Nothing others do is because of you. What others say and do is a projection of their own reality, their own dream. When you are immune to the opinions and actions of others, you won’t be the victim of needless suffering.
+ - Addiction – When you can give up something any time, as long as it’s next Tuesday.
+ - In life, when the baggage gets too heavy, you have to put it down.
+ - There is something about spending Christmas alone, naked, sitting by the Christmas tree gripping a shotgun, that lets you know your life is spinning dangerously outta control.
+ - Just let it happen and, I promise you, all that is magic will appear.
+ - Rock and Roll’s got to be like Jack Daniels. You’ve got to feel it burn.
+ - My favorite moments are when the bass falls in the pocket with the drums, the guitar is on top just slicing it, and the melody is scraping across like a sidewinder shattering through the monitor. It’s just, ahhh, I love it! That’s the jones, the hit, the buzz right there. It gets me off.
+ - Motley Crue, collectively and individually, have done things on our own terms.
+ - Selling my soul would be a lot easier if I could just find it.
+ - Sometimes I think I should just buy a blow-up party doll. Same level of intelligence, plastic, and full of air. The problem is, I’d probably fall in love.
+ - Hi. It’s Nikki. I’m not here right now because I’m dead.
+ - People want to see the car crash instead of the race. But, when you’re the one in the car that’s crashing, it’s not much fun. I’m enjoying the race.
+ - In my own life I like to be poised and have a positive outlook on life, and I’m leading by example to my children and people around me.
+ - Overconfidence comes from fear and doubt, and you boast an ego when you’re feeling less than.
+ - When you’ve tasted excess, everything else tastes bland...
+ - President George Washington used to wear a wig and make-up. I mean, c’mon, if he could do it, I can do it.
+ - I don’t want to jump through hoops for people.
+ - Life is like a long ride to nowhere in particular.
+ - I forgive my mom for being a psycho and my dad for being a loser.
+ - My main camera is a Nikon D3. I use a French camera from the 1800s for wet plate photography, I use a Hasselblad sometimes. But to me the camera really doesn’t matter that much. I don’t have a preference for film or digital.
+ - Artists are very young, and say, Um, ok, to these industry dudes.
+ - What’s worse? Being strung out or being fat?
+ - In the end, the whole Internet thing kills me, because you can use it as a positive thing or you can read into all the negativity. And I think youve gotta put out positive energy, put out cool viral stuff, and then just stay out of peoples opinions.
+ - I can’t make anybody happy, so I try my best to be good at what I do.
+ - I’ve got so many mountains to climb and goals to conquer. I’ve got so many scars I want to leave on the planet. I just feel like I’m not there yet. I feel like I am just getting started.
+ - I sort of have a dark, twisted, offbeat way of writing, which I see coming up in my kids. It’s funny, on Halloween, one of my daughters said, “Halloween isn’t supposed to be happy, dad, it’s supposed to be dark. ” No smiling pumpkins at the Sixx household!
+ - I think anything thats creative really takes my mind off whatever it is that Im going through in my life. If youre going through heartbreak, and you can write a song, its a wonderful win-win, because it takes your mind off the heartbreak, and you get to vent.
+ - When I know too much I get bored too fast.
+ - The trouble with asking questions is you sometimes get answers you don’t wanna hear.
+ - Which side of the blade is sharper? The lie or the truth? It all seems irrelevant when your jugular is sliced open and you’re lying in a pool of blood for the whole world to see.
+ - Some girl asked me for an autograph and I asked her why, she said because she admires me. I said she should see a shrink. Then she started crying and I started laughing.
+ - You want to love unconditionally everything you do, or don’t do it.
+ - I had to find the courage to turn my life around.
+ - I’ve got five kids and I’m married, Tommy’s got two kids and he’s been married, Vince just got married again, Mick’s out of a relationship, Tommy’s single as well. We’ve done a lot in our life, we’ve covered a lot of miles.
+ - At birth we are very much like a new hard drive – no viruses, no bad information, no crap that’s been downloaded into it yet. It’s what we feed into that hard drive that starts the corruption of the files.
+ - The more confident you are, the more you can let go and believe that the people you’ve chosen to be in your circle are able to do what they say they’re going to do and what they’re really good at. It has made me a better band member, too.
+ - Perfection is unattainable, so I like to live in imperfection.
+ - I remember opening up my first vinyl and seeing the incredible artwork it had. There’s nothing like it. You also get that true gritty sound on vinyl that really makes a rock record sound great, which CDs can never achieve.
+ - If I could make a record in two minutes and thirty seconds, I’d do it. I want the creativity, and I don’t give a f – k about the snare sound.
+ - A song has to be hummable and memorable at it simplest form, and that’s what bass does for me. I feel like the glue to everything.
+ - Every day, I wake up, and the first thing I think of is my kids.
+ - What’s the best angle to cut someone’s throat? Well, usually from behind. That’s usually how it works.
+ - You grow, learn, and the more I can sit in silence and be comfortable with myself, the more I can make noise, as ironic and Zen Buddhist and satanic as it sounds!
+ - What’s exciting about being an artist, still, and what I’m really finding is awesome is that you can do it until you drop. I don’t care how many lines I have on my face – I’ll keep doing it!
+ - There’s a pattern when tours start – a pattern of infighting, of making up, of breaking up, of addiction. There’s a pattern of going to jail. There’s a pattern of passion for music.
+ - I have always believed that if you are honest in what you do, continually reinvent yourself at the same time, and there’s respect amongst your band members, then you will be respected.
+ - Anybody I’m in a band with can do what they do better than me. I’m a huge believer that I can play bass or whatever I bring to the table – producing, songwriting, orchestrating – and I can look at the other guys and say, “He’s got that, he’s got this, and I have this.” It’s a team thing.
+ - I love a little distortion across the bass; I think it kind of adds something to the sound of the band when the bass is a little overdriven.
+ - People say I have a distorted lens. I think I see things as they really are.
+ - The more I go onstage, the more quiet I am before, because I intend to go onstage and slaughter.
+ - The industry is a menace to artists.
+ - There’s nothing unique about me as a parent. I am a parent. My kids are kids. We do the best we can do.
+ - I feel my spot is somewhere between a bass player and a rhythm guitar player. I play with a pick. I play very aggressively. I always have a distortion pedal in line, and I play less melodies and do more stuff against the guitars that create melodies.
+ - I’ll play anyone in Uno and crush them.
+ - Friends tell each other what nobody else is willing to tell you.
+ - Its just kind of known in the music industry that a farewell tour means for now.
+ - I used to think the only way to be truly alive is to confront your mortality.
+ - When I’m onstage, I hope it looks like what I want to see – the lights, the pyro, the band.
+ - If your album sells, that’s cool, more people find out about you, more people get turned on to what we’re really about-which is a live rock and roll band.
+ - I look back at things I said when I was younger – it was bulls – t. You do what you have to do to go where you have to go, but I look back and I don’t believe what that guy was saying.
+ - It’s physically very, very, very trying to be onstage as a performer, not unlike an athlete, for thirty years.
+ - It’s about what happens on stage, whether we can deliver it in a hungry way that is who we are in our hearts.
+ - Personal chemistry forges the way for musical chemistry.
+ - The Stones are not the kind of band that want to get in the details. That’s why they have a producer and engineer – to pull the magic out of them and make them sound so great.
+ - I don’t like to write music by myself anymore. It’s boring. I want the jamming, the push and pull, and the excitement that comes with it.
+ - It’s human nature to want to keep going, but you have to fight against the “I’m just gonna keep doing it” when you know the possibility of not looking great on the way out.
+ - We have a growing new fan base, and we wanted to get out now, and play now, and the timing was right.
+ - I just think if I can go from being a homeless kid with a dream of being in the biggest band in the world and making that happen, I can do a lot of other cool stuff, too.
+ - If you were on the phone with me and Tommy right now, we would probably forget you were there, we’d just be cracking jokes. It’s like Beavis and Butthead.
+ - How lucky can one guy get? I was a runaway, and then I was in one of the biggest bands in the world. I’ve sold out every arena. I’ve sold millions and millions of records.
+ - When I’m onstage, I’m more in the audience in my head than I am on the stage.
+ - I’ve got my fingers in many pies and I’m very excited about creating stuff and watching it blossom and bloom and harvest it and get on with the next thing.
+ - Formats are going to change because this is what the people want. It’s not what the labels want.
+ - Darkness can be funny. It can be quirky. There are different ways that that stuff comes out as a creative person. But the actual conflicted, twisted, decaying, rotting soul? That’s not me. No more.
+ - We were telling everybody we weren’t getting back together when we were in the studio actually recording. We wanted to try it on, to see how it would fit.
+ - When I photograph someone, I want to shoot the subject and get them out of my studio so I can play with the photos and do all the stuff I want.
+ - Some cats, Iggy Pop, they’re going to always have that hunger.
+ - We want to keep extending our brand into different places, into movies and soundtracks and our music will live on through licensing and our brand lives on through merchandise and new generations will get to wear our clothing and our T-shirts and stuff that’s associated with us.
+ - Your shallow men shall dream, dreams, your insightful men shall see visions.
+ - I’m able to make decisions even in the face of adversity.
+ - I harbored a lot of resentment as a teenager and as a young adult. I still have a problem with authority, I’m trying to listen!
+ - I love Starbucks. Maybe thats a bit sad. But I definitely need my caffeine. Its what gets me out of bed in the morning.
+
+89 quotes

@@ -1,0 +1,32 @@
+ - I usually have pretty good intuition on projects that I work on.
+ - I believe that this life is all we have. I don’t believe in anything after this, so I think the choices we make here are so important and the relationships we choose are crucial, especially in that time when we are developing ourselves and we’re becoming adults.
+ - We all can relate to people’s weaknesses. We might put up a facade that everything is perfect but none of us are. When we see that weakness in somebody else, we understand or give ourselves a little bit of leeway.
+ - I hate pork rinds. I couldn’t imagine how anybody would ever get the idea of taking skin from a pig and frying it and then trying to sell it to people. And then people actually buy it to eat it. That is the true sign of the decline of the human race.
+ - I was meeting a lot of directors and reading scripts, and I was like, “Well, I’d love to play this part,” but I couldn’t.
+ - If you think back to the moments when you’ve gone through the most pain in your life, or the most severe anxiety, your body is very much involved in that. Your body is expressing those emotions. So, when we, as actors, try to access those feelings, the body is a great tool to use.
+ - I always look for good stories and good characters, and if they’re placed in a whodunit, then I’m interested.
+ - I think I’ve seen the first ‘RoboCop’ like 15 or 20 times. I’m like a kid that way.
+ - You can make an interesting character in a small portion of a movie, for a character that doesn’t have that much on the page, if you just find the contradictions. That’s something that I try to bring to my performances.
+ - I went to high school in Texas for one year, my senior year. My parents wanted me to get out of Stockholm because I was running with the wrong crew. They wanted me to get back to my roots.
+ - You’re always trying to look for material that is as challenging as possible, so that’s why I like stuff where the characters go through the most difficult times they’ve ever had in their life. It makes me push myself further and learn more about myself.
+ - You’re not able to do a lot of projects because you don’t have a name. I wanted to get my movies to come over that hedge, so that I could do the movies that I wanted to do.
+ - I miss the Swedish women on the first day of spring cause they all just blossom in the most incredible way.
+ - Excuse me, I have to go. Somewhere there is a crime happening.
+ - I used to throw up before I went on stage, every time. Even though it’s only 200 people in the audience, and a movie like RoboCop is going to be seen by many, many people, I know I’d be much more nervous doing a play than being on set shooting.
+ - If we weren’t doing remakes, nobody would know who Shakespeare was. I’m not saying that RoboCop is Shakespeare, but it’s a way we’re retelling. That’s what we do as human beings. We retell our favorite stories.
+ - You have to think before speaking. That’s a quality I’m continuously evolving. For some reason, it seems like I’m bumping my head into the wall a little bit too many times.
+ - I don’t think there have been many alien movies where the actors have actually seen the aliens.
+ - As actors we’re like these vagabond artists, we have to be invited to perform so if you don’t have a choice of options its very hard to define yourself.
+ - I think you’re always afraid when you go into like a big superhero movie that it’s gonna be kinda just action and you’re not gonna be able to just really go to the bottom of the characters.
+ - I really want to live in New York. That’s the city of my dreams.
+ - I always get sort of an image of what the character is gonna look like and then I kind of go with it.
+ - Everybody is trying to make something real, something with a core of substance, and of course, an exciting action movie with a lot of terrific stuff and fantastic visuals and everything, but at the core of it, it’s a movie with substance and something that is going to make people think.
+ - I think for a lot of people that had seen me do ‘Snabba Cash,’ after watching ‘The Killing,’ I think they got a sense that I could do different kinds of characters.
+ - You have a lot more leeway to be contradictory playing a character than most of the scripts have in them. That’s how all actors are. We have so many different sides of ourselves and we’re so different, in meeting with different people. The audiences relate more to that and find that more believable.
+ - It’s great to get to work with your idols.
+ - Being an actor in movies is a lot about the power of your imagination and making the circumstance real to you so the audience will feel that it’s real.
+ - There are a lot of wrong reasons to do a remake, but there are some good ones. I think it’s human nature, in many ways, to retell our favorite stories. We do it in the theater, all the time. I’ve seen four different Hamlets, and every one has given me something different.
+ - I think I’m a boxer, but then when I get hurt, I’ll start scrapping.
+ - It’s always the thing when you’re shooting out and about with real people and you could get a couple of bogeys like sticking their face in front of the camera, like ‘Hey!’
+
+30 quotes

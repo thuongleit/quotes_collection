@@ -1,0 +1,21 @@
+ - Breathe. It’s only a bad day not a bad life.
+ - Never chase love, affection, or attention. If it isn’t given freely by another person, it isn’t worth having.
+ - In a world where you can be anything, be yourself.
+ - Suicide isn’t cowardly. I’ll tell you what’s cowardly; treating people so badly that they want to end their lives.
+ - Drop Pants, Not Bombs. Break Dance, Not Hearts. Draft Beer, Not People. Make LOVE, Not WAR.
+ - Being unique is what’s cool. Normal? What’s normal? A setting on a washing machine. No one wants to be that.
+ - A cup at Starbucks isn’t really that expensive when you consider what Victoria’s Secret charges per cup...
+ - Kiss an angel good morning and love her like the devil when you get back home.
+ - I’ve always had an interest in the fashion industry. Fashion advertising and lifestyle branding has always been intriguing and provocative to me. It’s not just clothing or style that I had interest in, it was more the marketing side of things that I had intrigue in.
+ - Rhinos are just fat unicorns. If we’d give them the time and attention they deserve, as well as a diet: They’d reveal their majestic ways.
+ - You gotta believe you can accomplish anything, and those who believe that they can accomplish anything, most likely will.
+ - If you want to make something happen in your life or career, well then you make and find the time. Simple as that.
+ - The biggest reward is seeing via social media people sending me pictures back with excitement of what they bought from my fashion line. I ReTweet most everyone i see who tweets a photo.
+ - I think time management and dedication are the main factors along with being an organized person. To say I was highly ambitious would be an understatement. I’m never one to sit around, I always have to be creating in various facets to keep myself entertained.
+ - My main intention was to not only create collections that defined myself and style, but to also create things that my fans identify with me and feel a belonging to.
+ - My collections are a reflection of my personal style and interests. All the textiles, fabrics and patterns are of my personal choice.
+ - I’ve always been altering clothing my entire life. But I would have to say my first real amateur endeavor would have to be drawing, designing and then literally cutting and sewing every piece of costume for my first band I formed in Hollywood.
+ - I put my phone on airplane mode and it didn’t fly Worst. Transformer. Ever.
+ - I never look at failing as an option anyhow. I believe thinking you could fail is already shooting yourself in the foot and setting yourself up for failure.
+
+19 quotes

@@ -1,0 +1,24 @@
+ - Love and politics are the two great figures of social engagement. Politics is enthusiasm with a collective; with love, two people. So love is the minimal form of communism.
+ - Love without risk is an impossibility, like war without death.
+ - Love is not a contract between two narcissists.
+ - Those who have nothing have only their discipline.
+ - We have the riots we deserve.
+ - In love, fidelity signifies this extended victory: the randomness of an encounter defeated day after day through the invention of what will endure.
+ - What kind of world does one see when one experiences it from the point of view of two and not one? What is the world like when it is experienced, developed and lived from the point of view of difference and not identity? That is what I believe love to be.
+ - All resistance is a rupture with what is. And every rupture begins, for those engaged in it, through a rupture with oneself.
+ - We know that communism is the right hypothesis. All those who abandon this hypothesis immediately resign themselves to the market economy, to parliamentary democracy-the form of state suited to capitalism-and to the inevitable and ‘natural’ character of the most monstrous inequalities.
+ - Without mathematics, we are blind.
+ - Art attests to what is inhuman in man.
+ - Emancipatory politics always consists in making seem possible precisely that which, from within the situation, is declared to be impossible.
+ - If you limit yourself to sexual pleasure it’s narcissistic. You don’t connect with the other, you take what pleasure you want from them.
+ - In order to improve democracy, then, it’s necessary to change the people, as Brecht ironically proposed.
+ - There is no ethics in general. There are only-eventually-ethics of processes by which we treat the possibilities of a situation.
+ - For a politics of emancipation, the enemy that is to be feared most is not repression at the hands of the established order. It is the interiority of nihilism, and the unbounded cruelty that can come with its emptiness.
+ - The absolute contingency of the encounter takes on the appearance of destiny. The declaration of love marks the transition from chance to destiny and that’s why it is so perilous and so burdened with a kind of horrifying stage fright.
+ - The cinema is a place of intrinsic indiscernibility between art and non-art.
+ - I feel really assured by the fact that the women I have loved I have loved for always.
+ - It must be said that today, at the end of its semantic evolution, the word ‘terrorist’ is an intrinsically propagandistic term. It has no neutral readability. It dispenses with all reasoned examination of political situations, of their causes and consequences.
+ - Evil is the interruption of a truth by the pressure of particular or individual interests.
+ - To believe that the intolerable crime is to burn a few cars and rob some shops, whereas to kill a young man is trivial, is typically in keeping with what Marx regarded as the principal alienation of capitalism: the primacy of things over existence, of commodities over life and machines over workers.
+
+22 quotes

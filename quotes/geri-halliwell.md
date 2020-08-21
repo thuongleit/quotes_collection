@@ -1,0 +1,61 @@
+ - A pat on the back is six inches away from a kick up the ass.
+ - I am absolutely blessed and I’m very grateful for where I am today.
+ - It’s important to learn to laugh at ourselves. Don’t take life too seriously.
+ - For me feminism is bra-burning lesbianism. It’s very unglamorous.
+ - Words are like butter Rolling off my lips Cut like a knife And now I’m sinking battleships.
+ - Perfectionism kills art. I find that if I criticise myself, it spoils the fun. You can get paralysed by analysis – it takes all the playfulness away.
+ - I’m much more accepting of myself. A lot of my body issues have naturally settled down.
+ - First my mother was Spanish. Then she became a Jehovahs Witness.
+ - There will always be a few people who just want to knock you down or are jealous or just want to be horrible for the sake of it. I don’t know what drives someone to be nasty.
+ - My favorite word is existentialism. I can’t say it and I’m not quite sure what it means.
+ - The truth sets you free. It’s a very liberating thing, when you say this is who I am warts and all and then you can just get on with life. It’s amazing.
+ - I have got one of those faces that change every day: you can dress me up, make me look vampy and then make me look 12 years old. But don’t all women do this thing? We all take on these roles.
+ - Being a celebrity, you can remain a child for ever, almost. You get away with more; you can get too pampered and it’s not healthy.
+ - Step by step, the road is long, but at the end you can touch a star.
+ - It is a blessing to have pretty people around me. I like people who are sparky, positive. Evil, dark people are repelled by me: Oooh no! Too much sunlight.
+ - In school nativity plays I was always the bloody little donkey, I was never Mary.
+ - Some people are naturally thin and some people are naturally heavier. It doesn’t mean that bigger is healthier, or much thinner is healthier, it’s on an individual basis.
+ - I love Australian people.
+ - I’ve been all sorts of different shapes and sizes at different times in my life.
+ - I have days of self-doubt, but I think the kindest thing I can do to myself is accept where my body is at.
+ - I love being on the beach – it’s my favourite place. I can chill out, read, listen to music, play with my daughter.
+ - We hope for the future, then we reach for the past.
+ - I won’t mention the word tired. This is the 20th century and I can go around a little faster.
+ - For me, reading was always the great escape without getting your fingers burnt.
+ - Obviously Victoria and Mel B have become mothers and there is a part of me that wants to be a mum.
+ - I think it’s unnecessary to be mean for the sake of being mean, but I do believe you have to be truthful, but with love.
+ - I’ve learnt that if I tell myself I’m not allowed something, I binge on it later. So if I want chocolate, I have chocolate. If I want biscuits, I have biscuits. I love cake. I just love cake.
+ - I’ve had singing lessons and plan to show off.
+ - Being mean about other people isn’t on my radar.
+ - I have always wanted a solo career, deep in the darkest pit of myself, but I didn’t dare admit it to myself even. It took me a long time to confront my fears.
+ - Competition is for dogs and horses.
+ - Someone taught me how to eat properly. Learning from others is important when it’s not working for yourself.
+ - I was so afraid of upsetting people, and not being liked for saying something that was not to everyone’s taste.
+ - It’s about labeling. For me feminism is bra-burning lesbianism. It’s very unglamorous. I’d like to see it rebranded. We need to see a celebration of our femininity and softness.
+ - I’m never getting too lonely because it’s the kind of disease where you might sit in front of the TV with three bags of biscuits, rather than communicate with the world.
+ - I obviously want to give a healthy body image to my own daughter. I think having good examples, eating properly, that’s all one can do – and just be really loving around her. I’ve tried to give her confidence in who she is. I think she’s all right in the confidence department.
+ - I have never sung a whole song on my own before and I am not the best dancer in the world, but I would rather try and fall than not not try at all.
+ - Becoming a solo singer is like going from an eau de toilette to a perfume. It’s much more intense.
+ - Yes, Sept 11th was unfortunate.
+ - Everyone has a mad half-hour once a month.
+ - I don’t know a lot about politics but I have great trust in him as leader.
+ - I have a history of eating disorders but, as a mother, you think of being an example to your child. I’m so much more balanced than I was.
+ - I’ve got an image of me at the bottom of my garden sitting under my silver birch tree reading, while everyone else had gone somewhere exotic.
+ - I have been wearing black, which was a reaction to the Ginger thing. But now I have hopes and I can be anything. Tomorrow I might be naked with a feather boa, who knows?
+ - A lot of people have said that I’ve got a voice that speaks to children. I think I’ve got a natural naivety to me. I’m childish.
+ - We’re all just trying to fit in and find ourselves, particularly when we’re growing up.
+ - There’s always going to be that pressure when you’re in front of the camera. When you’re famous it’s just an extreme version of reality and there’s a pressure to look a certain way.
+ - We are obsessed with image. I don’t think we should take it that seriously.
+ - I like doing accents. One of my friends works in hotel reservations and I’ll ring her up and complain about the suite. Sometimes I get her.
+ - I want to communicate through my music. If you want to know Geri Halliwell listen to my album: it tells you more about me than a documentary ever could.
+ - I know that I’ve overfed myself trying to prop myself up because I’m exhausted.
+ - Id never choose to turn the clock back.
+ - I don’t know what I’m doing, but I’m damn well gonna do it!
+ - I was a late starter on the romantic front. I didn’t start dating until I was in my 30s.
+ - Lyrically I’m very ironic and silly, but I hope I’ll touch your heart.
+ - I just feel that the only power I have is setting a good example.
+ - I think I’ve really learned how important it is to empower women.
+ - It’s really important to remember that most people in the public eye are human for a start and a lot of things that you read in the media get slightly misconstrued and manipulated.
+ - I’ve always made my own clothes since I was a little girl. I was a terrible sewer, but I was always cutting and customising.
+
+59 quotes

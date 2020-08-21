@@ -1,0 +1,310 @@
+ - Everyone has talent. What is rare is the courage to follow the talent to the dark place where it leads.
+ - Dogs come into our lives to teach us about love and loyalty. They depart to teach us about loss. A new dog never replaces an old dog; it merely expands the heart. If you have loved many dogs, your heart is very big.
+ - And the trouble is, if you don’t risk anything, you risk even more.
+ - Advice is what we ask for when we already know the answer but wish we didn’t.
+ - Take your life in your own hands, and what happens? A terrible thing: no one to blame.
+ - Anger is really disappointed hope.
+ - Do you want me to tell you something really subversive? Love is everything it’s cracked up to be. That’s why people are so cynical about it. It really is worth fighting for, being brave for, risking everything for. And the trouble is, if you don’t risk anything, you risk even more.
+ - Love is everything it’s cracked up to be. It really is worth fighting for, being brave for, risking everything for.
+ - As long as I’m facing the right direction, it doesn’t matter the size of my steps.
+ - Exceptional people are often called crazy by the ordinary world.
+ - You see a lot of smart guys with dumb women, but you hardly ever see a smart woman with a dumb guy.
+ - I don’t think you will ever fully understand how you’ve touched my life and made me who I am. I don’t think you could ever know just how truly special you are that even on the darkest nights you are my brightest star.
+ - The most important education you get is your own – the one you learn in solitude.
+ - If, every day, I dare to remember that I am here on loan, that this house, this hillside, these minutes are all leased to me, not given, I will never despair.
+ - Always do the things you fear the most. Courage is an acquired taste, like caviar.
+ - Art is always an energy exchange.
+ - A wet dream in the mind of New York.
+ - If we are all made of God, it is our friends who remind us. We pass the gift of God to them. They pass it back to us when we need it most.
+ - I think professionalism is important, and professionalism means you get paid.
+ - Fame means millions of people have the wrong idea of who you are.
+ - Perhaps it is because Venice is both liquid and solid, both air and stone, that it somehow combines all the elements crucial to make our imaginations ignite and turn fantasies into realities.
+ - At fifty the madwoman in the attic breaks loose, stomps down the stairs, and sets fire to the house. She won’t be imprisoned anymore.
+ - The soul is awakened through service.
+ - A new dog never replaces an old dog, it merely expands the heart.
+ - What are the sources of poetry? Love and death and the paradox of love and death. All poetry from the beginning is about Eros and Thanatos. Those are the only subjects. And how Eros and Thanatos interweave.
+ - I remember everything but forgive anyway.
+ - Ambivalence is a wonderful tune to dance to. It has a rhythm all its own.
+ - If there’s anything the world disdains more than uppity young women, it’s uppity old women. Dying young has always been a woman’s best career move.
+ - What is the fatal charm of Italy? What do we find there that can be found nowhere else? I believe it is a certain permission to be human, which other places, other countries, lost long ago.
+ - Silence is the bluntest of blunt instruments. It seems to hammer you into the ground. It drives you deeper and deeper into your own guilt. It makes the voices inside your head accuse you more viciously than any outside voices ever could.
+ - Where is Hollywood located? Chiefly between the ears. In that part of the American brain lately vacated by God.
+ - Love is everything it’s cracked up to be.
+ - Few women see power as an end in itself. The point of power is the freedom to cultivate roses.
+ - Fear is a sign-usually a sign that I’m doing something right.
+ - My grandchildren are fabulous and funny.
+ - You can’t be creative and still be a good girl.
+ - I have not ceased being fearful, but I have ceased to let fear control me.
+ - Poetry is what we turn to in the most emotional moments of our life – when a beloved friend dies, when a baby is born or when we fall in love.
+ - They keep saying the right person will come along. I think mine got hit by a truck.
+ - This is the sad bed of chosen chastity because you are miles and mountains away.
+ - The words carry their own momentum. A confession in motion tends to stay in motion. Newton’s first law of jealousy.
+ - My mother wanted me to be her wings, to fly as she never quite had the courage to do. I love her for that. I love the fact that she wanted to give birth to her own wings.
+ - The perfect man is the true partner. Not a bed partner nor a fun partner, but a man who will shoulder burdens equally with you and possess that quality of joy.
+ - My reaction to porno films is as follows: After the first ten minutes, I want to go home and screw. After the first twenty minutes, I never want to screw again as long as I live.
+ - Pain is not love. Love flowers; love gives without taking; love is serene and calm.
+ - There were 117 psychoanalysts on the Pan Am flight to Vienna and I’d been treated by at least six of them. And married a seventh.
+ - If you don’t have time to do it right you must have time to do it right you must have time to do it over. If you don’t know where you are going, how do you know when you get there? If you don’t risk anything, you risk even more.
+ - The truth is simple, you do not die from love. You only wish you did.
+ - We are so scared of being judged that we look for every excuse to procrastinate.
+ - Beware of the man who praises women’s liberation; he is about to quit his job.
+ - I am not sure if love is a salve or just a deeper kind of wound.
+ - Blaming women is always in fashion.
+ - We are finally driven to monogamy not by morality but by exhaustion.
+ - The hardest part is believing in yourself at the notebook stage. It is like believing in dreams in the morning.
+ - Divorce is my generation’s coming of age ceremony – a ritual scarring that makes anything that happens afterward seem bearable.
+ - I stand in the mist and cry, thinking of myself standing in the mist and crying, and wondering if I will ever be able to use this experience in a book.
+ - Having stopped expecting truth, we rarely get it.
+ - If you’ve been a pretty woman and always pursued by lovers, losing that and not having that – it feels like a great loss.
+ - You don’t get to choose what you get famous for and you don’t get to control which of your life’s many struggles gets to stand for you.
+ - Jealousy is all the fun you think they had.
+ - I am not quite sure how writing changes things, but I know that it does. It is indirect-like the trails of earthworms aerating the earth. It is not always deliberate-like the tails of glowing dust dragged by comets.
+ - Sex doesn’t disappear, it just changes forms.
+ - From Roman times to the present, Italy has been a country to fall in love with – a tribute to all that is enduring, crazy, pagan, joyous, melancholy, at once banal and divine, in the human spirit.
+ - Surviving means being born over and over.
+ - There are no atheists on turbulent airplanes.
+ - I’ve become more conservative about sex as I’ve gotten older.
+ - When I met my husband, I refused to invite him home for Passover because I was embarrassed my mother might serve all the catered dishes in the wrong order.
+ - Most sex is not really intimate.
+ - A baby’s a full time job for three adults. Nobody tells you that when you’re pregnant, or you’d probably jump off a bridge. Nobody tells you how all-consuming it is to be a mother-how reading goes out the window and thinking too.
+ - I am never so calm as after I have written. And the next morning I will feel the familiar anxiety and I will have to begin the process all over again.
+ - People are terrified. A lot of them are in relationships that aren’t satisfying, and if you tell them they can change their life, they get really scared.
+ - All people believe their suffering is greater than others.
+ - I am old enough to know that laughter, not anger, is the true revelation.
+ - Someday every woman will have orgasms- like every family has color TV- and we can all get on with the business of life.
+ - Before things are written down they don’t exist in quite the same way. The act of fixing them in words gives them a kind of currency that can be traded.
+ - I think men have always been afraid of women’s sexuality, and the restrictions they put on women testify to that.
+ - There is a rhythm to the ending...
+ - Women who bear children before they establish serious habits of work, may never establish them at all.
+ - The older we get, the more Jewish we become in my family.
+ - Singularity shows something wrong in the mind.
+ - I write slowly by hand. Publishing is effectively bankrupt for you unless you are Danielle Steele. It takes a year to write book and advances are going down or disappearing.
+ - Sex has the unparalleled power to make us absurd to ourselves. It also has the power to make us understand transcendence.
+ - Without the gods, how would I sing?? I asked. With your own voice,? he said.
+ - Sadly, because of the enormous gap between rich and poor, some mothers can afford helpers, but many can’t. Those who can would be kinder to refrain from criticizing other women.
+ - I think I’ve become more cynical about sex. Meaning, I don’t think sex in and of itself leads to an epiphany.
+ - Famous people complain about fame, but they never want to give it back, myself included.
+ - If we can be sufficient unto ourselves, we need fear no entangling webs.
+ - Men and women, women and men. It will never work.
+ - I do believe that in every age there are people whose consciousness transcends their own time and that these people, whether fictional or historical, are those with whom we most closely identify and those about whom we most enjoy reading.
+ - I think poetry is the best thing I do. It’s certainly the purest. I seem to switch gears without too much trouble. Non-fiction is in many ways the easiest to write.
+ - I never became a writer for the money. I am a poet first. Even getting published is a miracle for poets.
+ - When everyone thinks they know you, it’s hard not to be guarded.
+ - As a past president of the Writers Guild, I think women shouldn’t write for free. Maybe you have to do it for a time, to make a reputation, but I think the idea of giving your work away is the beginning of authors not being able to make a living.
+ - Women tend to be preservers of the social structure, of marriage. They don’t want to upset their husbands or their significant others. They don’t want to hurt people.
+ - Many, many people have done a lot more sexual experimentation than I have.
+ - Since flesh can’t stay, we pass the words along.
+ - The most important thing for a writer is to be locked in a study...
+ - Writing has often been accompanied by terror, silences, and then wild bursts of private laughter that suddenly make all the dread seem worthwhile.
+ - Though my friends envied me because I always seemed so cheerful and confident, I was secretly terrified of practically everything.
+ - I was surprised by my daughter’s generation and how they were rebelling against the ’70s idea that sex was perfect and it should be sought.
+ - I thought to spend my declining years writing poetry and teaching – but that won’t pay the Bergdorf’s bill. I think I’ll move to somewhere life is cheaper.
+ - When I was a ten-year old bookworm and used to kiss the dust jacket pictures of authors as if they were icons, it used to amaze me that these remote people could provoke me to love.
+ - I have ne’er been in a chamber with a lawyer when I did not wish either to scream with desperation or else fall into the deepest of sleeps, e’en when the matter concern’d my own future most profoundly.
+ - If you apologize for something that isn’t your fault in the first place, you, in effect, confirm their belief that it is your fault.
+ - It is the city of mirrors, the city of mirages, at once solid and liquid, at once air and stone.
+ - Art keeps one young, I think, because it keeps one perpetually a beginner, perpetually a child.
+ - How could one create life with someone who represented death?
+ - The future is merely a shadow which blocks out the joys of the present and emphasizes the miseries of the past.
+ - In a bad marriage, friends are the invisible glue. If we have enough friends, we may go on for years, intending to leave, talking about leaving -instead of actually getting up and leaving.
+ - The Passion that one Soul hath for God cannot be judged by another.
+ - Is there a phrase in the English language more fraught with menace than a tax audit?
+ - We all deal with our fantasy lives and sometimes are disappointed by reality.
+ - She was mine and not-mine all at once. She was the most beautiful thing I had ever seen and the most terrifying.
+ - Never joke with the press. Irony does not translate into newsprint.
+ - Humor is one of the most serious tools we have for dealing with impossible situations.
+ - Perhaps every generation thinks of itself as a lost generation and perhaps every generation is right.
+ - Driving me away is easier than saying goodbye.
+ - How wonderful to have someone to blame! How wonderful to live with one’s nemesis! You may be miserable, but you feel forever in the right.
+ - Ken, my husband, just smelled like he belonged to me. I’m not talking about hygiene. I’m talking about when you hug him, he either feels like a member of your tribe or not. It’s their scent.
+ - Never follow a dog act. You know you’re on the skids when you play yourself in the movie version of your life.
+ - Home is where your books are.
+ - Good sex is a mystery. Perhaps humping and pumping is not a mystery, but good sex is a mystery, and how human beings become truly intimate remains a mystery.
+ - Is there no Villain in this World who doth not regard himself as a poor abus’d Innocent, no She-Wolf who doth not think herself a Lamb, no Shark who doth not fancy that she is a Goldfish?
+ - I actually think leaving your children alone to fantasize, to write, to make projects on their own is good for them. Breathing down their necks is a form of control. Children should have their own space.
+ - As women, we can’t look old. We can’t be fat. We’re supposed to look like the 14-year-old models in Vogue, who are younger and younger and skinnier and skinnier, and they are air-brushed and contoured and Photoshopped.
+ - We were not human beings going through spiritual experiences; we were spiritual beings going through human experiences, in order to grow.
+ - The best slave does not need to be beaten. She beats herself.
+ - Critics write out of intellectual exercise, not poets. Poets write straight from the heart.
+ - I believe I belong to the last literary generation, the last generation, that is, for whom books are a religion.
+ - Memory is the most transient of all possessions. And when it goes, it leaves as few traces as stars that have disappeared.
+ - It was easy enough to kill yourself in a fit of despair. It was easy enough to play the martyr. It was harder to do nothing. To endure your life. To wait.
+ - Show me a woman who doesn’t feel guilty and I’ll show you a man.
+ - Poetry is the language we speak in the most terrifying or ecstatic passages of our lives. But the very word poetry scares people. They think of their grade school teachers reciting ‘Hiawatha’ and they groan.
+ - My generation had Doris Day as a role model, then Gloria Steinem – then Princess Diana. We are the most confused generation.
+ - It’s easier to write about pain than about joy. Joy is wordless.
+ - A baby’s mother also needs a mother.
+ - Despite all the cynical things writers have said about writing for money, the truth is we write for love. That is why it is so easy to exploit us.
+ - There is still the feeling that women’s writing is a lesser class of writing, that what goes on in the nursery or the bedroom is not as important as what goes on in the battlefield, that what women know about is a less category of knowledge.
+ - Men must be stripped of arrogance and women must become independent for any mutually nurturing alliance to endure between the sexes.
+ - Silence is the bluntest of blunt instruments.
+ - Conflict is the soul of literature.
+ - I have lived my life according to this principle: If I’m afraid of it, then I must do it.
+ - Whenever I go anywhere but Italy for a vacation, I always feel vaguely disappointed, as if I have made a mistake.
+ - At times it is strangely sedative to know the extent of your own powerlessness.
+ - I have enormous pride in the survival of the Jewish people, the cultural heritage of the Jewish people, but I’m not observant, and I don’t belong to a synagogue. I don’t go to temple on high holy days, but I’m proud to be Jewish.
+ - Creativity demands nothing less than all you have. Talent alone is never enough.
+ - What a damnably lonely profession writing is! In order to do it, one must banish the world, and having banished it, one feels cosmically alone.
+ - To name oneself is the first act of both the poet and the revolutionary.
+ - Underneath it all, you longed to be annihilated by love...
+ - It’s horrible getting older. I mean, it’s wonderful because you see the circles of life get completed. But it’s horrible losing your looks.
+ - Love is love, but marriage is an investment.
+ - It takes courage to lead a life. Any life.
+ - Poetry is the inner life of a culture, its nervous system, its deepest way of imagining the world. A culture that ignores its poets, chokes off its nervous system and becomes mortally ill.
+ - Being a daughter is only half the equation; bearing one is the other.
+ - Writing about sex turns out to be just writing about life.
+ - Court, in our society, is often the last resort of stubbornness.
+ - I have forgotten my rave reviews and memorized my vicious ones – like most writers.
+ - What I would like to give my daughter is freedom. And this is something that must be given by example, not by exhortation.
+ - In any triangle, who is the betrayer, who the unseen rival, and who the humiliated lover? Oneself, oneself, and no one but oneself!
+ - A dreary censorship, and self-censorship, has been imposed on books by the centralization of the book industry.
+ - People in the land of LaLa look like expensive wax fruit. And they work hard to achieve that look.
+ - All natural disasters are comforting because they reaffirm our impotence, in which, otherwise, we might stop believing. At times it is strangely sedative to know the extent of your own powerlessness.
+ - As women got little crumbs of power, men began to act paranoid – as if we’d disabled them utterly. Do all women have to keep silent for men to speak? Do all women have to be legless for men to walk?
+ - And what if I don’t want forgiveness?
+ - Often I find that poems predict what I’m going to do later in my own writing, and often I find that poems predict my life. So I think poetry is the most intense expression of feeling that we have.
+ - Women are the only exploited group in history to have been idealized into powerlessness.
+ - We don’t have a clear path forward, and that’s been the case for feminism since the 18th century, when the idea of the rights of women actually began.
+ - A book burrows into your life in a very profound way because the experience of reading is not passive.
+ - Betrayal betrays the betrayer.
+ - There is no loneliness like the loneliness of a dead marriage.
+ - Every time women make tremendous strides, the right wing gets terrified and creates laws making it hard to get an abortion or birth control.
+ - Gossip is the opiate of the oppressed.
+ - I don’t believe in organized religion. I believe that people should try to connect with their own life force and let it lead them to do with their lives what they will find satisfying.
+ - The worst thing about jealousy is how low it makes you reach.
+ - I don’t know what the definition of pornography is and nobody else does either. Pornography is somebody else’s erotica that you don’t like. People are interested in their own sexuality and they’ve always reflected it in their art. End of story.
+ - Blocks usually stem from fear of being judged. If you imagine the world is listening, you’ll never write a line.
+ - I started with poetry because it was direct, immediate, and short. It was the ecstasy of striking matches in the dark.
+ - As a reader, I want a book to kidnap me into its world. Its world must make my so-called real world seem flimsy. Its world must lure me to return. When I close the book, I should feel bereft.
+ - Sometimes it was worth all the disadvantages of marriage just to have that: one friend in an indifferent world.
+ - Loving someone is a loss of freedom – but one doesn’t think of it as loss because one gains so much else.
+ - I think feminism means what it has always meant – women want to use all their gifts, all their talents and be judged impartially for them. I don’t think feminism has ever meant anything else.
+ - Writers are doubters, compulsives, self-flagellants. The torture only stops for brief moments.
+ - Birth is the start of loneliness and loneliness the start of poetry...
+ - Nothing you write is ever lost to you. At some other level your mind is working on it.
+ - People always think that history proceeds in a straight line. It doesn’t. Social attitudes don’t change in a straight line. There’s always a backlash against progressive ideas.
+ - I’m very dependant. I fall apart regularly.
+ - Souls have neither Sex nor Colour.
+ - Allow me to put the record straight. I am forty-six and have been for some years past.
+ - Compose with utter freedom and edit with utter discipline.
+ - Poems, like dreams, are a sort of royal road to the unconscious. They tell you what your secret self cannot express.
+ - Unhappiness is our element. We come to believe we can’t function without it.
+ - Nothing quite has reality for me till I write it all down – revising and embellishing as I go. I’m always waiting for things to be over so I can get home and commit them to paper.
+ - The only difference between men and women is that women are able to create new little human beings in their bodies while simultaneously writing books, driving tractors, working in offices, planting crops – in general, doing everything men do.
+ - That was probably the mistake of my generation, that we thought that having sex with anyone would be intimate and it wasn’t.
+ - Memory is the crux of our humanity. Without memory we have no identities. That is really why I am committing an autobiography.
+ - Pregnancy seemed like a tremendous abdication of control. Something growing inside you which would eventually usurp your life.
+ - I had been a feminist all my life, but the big problem was how to make your feminism jibe with you unappeasable hunger for male bodies.
+ - Pleasure is terrifying because it breaks down the boundaries between people. Embracing passion means living with fear.
+ - I know so many women in their fifties, sixties and seventies who delight in being on their own. It’s amazing. They don’t see any stigma attached to it. We don’t need a man to prove our identity anymore.
+ - I believe that there’s a force of life in the universe, and that when we’re writing or making music or painting, we’re likely to connect with that flow.
+ - When you start having lunch and actually eating, it’s already over.
+ - A book is a box brimming with incendiary material. The reader strikes the match.
+ - Love is serene and calm.
+ - I can live without it all – love with its blood pump, sex with its messy hungers, men with their peacock strutting, their silly sexual baggage, their wet tongues in my ear.
+ - No one ever found wisdom without also being a fool.
+ - You reach a point in life where you realize that you might as well do what you need to do, because your being loved or not being loved is really a function of the people you encounter and not of yourself. That is an immensely liberating insight.
+ - Most sex doesn’t really bring people together. You have to reach a certain level of connection, I think, and that’s pretty rare.
+ - Men have always detested women’s gossip because they suspect the truth: their measurements are being taken and compared.
+ - I have a very sensitive nose. I identify with dogs. I understand the world through my nose.
+ - Why does life need evidence of life?
+ - Why do analysts always answer a question with a question?
+ - I thought of the nameless inventor of the bathtub. I was somehow sure it was a woman. And was the inventor of the bathtub plug a man?
+ - I don’t necessarily read everything. I read what I need to read to inspire the book I’m trying to finish.
+ - Women’s books are kind of discriminated against. If a man writes a book about his family stories, people think of it as literature. If it’s a woman, she’s ‘spilling her guts,’ and it’s not art.
+ - I don’t think that I had any idea that ‘Fear of Flying’ would become a part of the culture. I had no idea that it would go all over the world and be published in Chinese and Serbo-Croat and so on.
+ - Genius is a strong aphrodisiac.
+ - I prefer to work in the morning. I get up now at five in the morning. In the morning is when I feel freshest.
+ - Friends love misery, in fact. Sometimes, especially if we are too lucky or too successful or too pretty, our misery is the only thing that endears us to our friends.
+ - The sexuality doesn’t end. It really doesn’t. You’re sexual your whole life, if you’re a sexual person.
+ - Is perception equivalent to existence?
+ - It’s important to know what you’re going to spend your life on, and the only way you’re going to find that is by connecting with the force inside yourself.
+ - I don’t cook. My mother didn’t cook. My daughter doesn’t cook.
+ - Women are not the richer sex. Women are not equal in society.
+ - We all parent the best we can. Being human, we’re ambivalent. We want perfection for our babies, but we also need sleep.
+ - Plot is just a fancy way of saying ’and then.
+ - When I sit down at my writing desk, time seems to vanish. I think it’s a wonderful way to spend one’s life.
+ - Solitude is un-American.
+ - The trick is not how much pain you feel – but how much joy you feel. Any idiot can feel pain. Life is full of excuses to feel pain, excuses not to live, excuses, excuses, excuses.
+ - Is a currency worth anything if no one wants it? We used to buy shoes in Italy. Remember?
+ - Isn’t it our job to be appalled by our parents? Isn’t it every generation’s duty to be dismayed by the previous generation? And to assert that we are different – only to discover later that we are distressingly the same?
+ - Mediocre prose might be read as an escape, might be spoken on television by actors, or mouthed in movies. But mediocre poetry did not exist at all. If poetry wasn’t good, it wasn’t poetry. It was that simple.
+ - It takes a spasm of love to write a poem.
+ - Murky language means someone wants to pick your pocket.
+ - My generation of young female writers discovered that we could dictate the form and content of our own fiction.
+ - As a seasoned insomniac, I knew sometimes the way to beat sleeplessness was to outwit it: to pretend you didn’t care about sleeping. Then sometimes sleep became piqued, like a rejected lover, and crept up to try to seduce you.
+ - The trick is not how much pain you feel – but how much joy you feel.
+ - It’s hard to do fiction and nonfiction simultaneously.
+ - A concern with ‘public morality’ is – if not the last refuge of a scoundrel – the first foray of the fascist.
+ - I think the Jews are an amazing group of people and their survival is amazing.
+ - I look forward and see myself look back.
+ - I want you. I want you. I want you. Anything to avoid saying: I love you.
+ - We find our calling or it finds us, and it’s a sin against the fates not to use your talent when you have it.
+ - Eating is never so simple as hunger.
+ - No one ever found wisdom without also being a fool. Writers, alas, have to be fools in public, while the rest of the human race can cover its tracks.
+ - It took me years to learn to sit at my desk for more than two minutes at a time, to put up with the solitude and the terror of failure, and the godawful silence and the white paper.
+ - Young people never believe in the possibility of their own deaths. That’s one reason old men can send them to war.
+ - Each artist or writer who works in Venice comes to believe that the city yields its most special secret to him or her alone.
+ - The stones themselves are thick with history, and those cats that dash through the alleyways must surely be the ghosts of the famous dead in feline disguise.
+ - There is a rhythm to the ending of a marriage just like the rhythm of a courtship, only backward.
+ - A Soul is partly given, partly wrought; remember always that you are the Maker of your own Soul.
+ - Each one an antidote to the one that went before. Each one a reaction, an about-face, a rebound.
+ - You should write first drafts as if they will never be shown to anyone.
+ - We all have fantasies about sex that are more perfect than anything in reality.
+ - I’m not classically pretty; I’ve always been too heavy; I’ve had thyroid disease and it’s very hard for me to lose weight – but I’ve always had men pursue me. I’ve always had that ‘it’ thing. God knows why. Maybe it’s pheromones, I don’t know.
+ - I’m interested in what happens to people when they get into that publicity machine. We tend to think things have changed, but there’s still a deep sexism underlying the way women are treated publicly.
+ - Hate generalizes; love is particular.
+ - I’ve kept journals at many times in my life starting from when I was about 13 or 14. But it’s boring and contrived to keep a journal every day. Better to write as the mood strikes.
+ - I convinced myself that sadness and compromise were the ways of the world...
+ - It is the artists who make the true value of the world, though at times they may have to starve to do it. They are like earthworms, turning up the soil so things can grow, eating dirt so that the rest of us may eat green shoots.
+ - True intimacy is rare and it depends on other things besides sex.
+ - I don’t think that sex necessarily produces intimacy.
+ - Writing is one of the few professions left where you take all the responsibility for what you do. It’s really dangerous and ultimately destroys you as a writer if you start thinking about responses to your work or what your audience needs.
+ - Love gives without taking.
+ - Every country gets the circus it deserves. Spain gets bullfights. Italy the Church. America Hollywood.
+ - When I’m sitting at the desk not being able to write line one, it’s silence and despair! It’s not so easy to put the pen to the legal pad or type the first sentence on the computer screen.
+ - Each day that I don’t write I get more fragmented.
+ - Faith is the Knowledge of the Heart, Logick the Knowledge of the Mind.
+ - Many people today believe that cynicism requires courage. Actually, cynicism is the height of cowardice. It is innocence and open-heartednes s that requires the true courage – however often we are hurt as a result of it.
+ - If you imagine the world listening, you’ll never write a line. That’s why privacy is so important. You should write first drafts as if they will never be shown to anyone.
+ - What I discovered was is that it’s rare to find a person that you feel very intimate with, and you can sleep with lots of people and not find what you’re looking for.
+ - You’re not too fat; you’re just in the wrong country.
+ - Anybody who instantly goes from being a poet and a graduate student to being a public figure has to be in a state of shock. First people want to praise you, and then they want to attack you. No one can prepare you for it.
+ - Courage is the only Magic worth having.
+ - I believe that women should live for love, for motherhood and for intellect, and I believe we shouldn’t have to choose. And I believe that’s always been difficult for women, to express themselves intellectually, maternally, and passionately.
+ - It is the nature of those books we call classics to wait patiently on the shelf for us to grow into them.
+ - Women are individuals in parenting, and why not?
+ - It is not surprising that Venice is known above all for mirrors and glass since Venice is the most narcissistic city in the world, the city that celebrates self-mirroring.
+ - Feminism is teaching. I’ve gotten a lot of pleasure pushing younger writers that I’ve met and worked with.
+ - Don’t ye know that ev’ry Soul on Earth feels itself to be an Orphan?
+ - I see that the greatest thing about getting older is how your judgment changes and how you come to understand the cycles of life. And you keep having these amazing flashes of understanding.
+ - Sex and creativity are often seen by dictators as subversive activities.
+ - I knew I was in England by the smell.
+ - One writes not by will but by surrender.
+ - All authors know that any book is a casting of runes, a reading of cards, a map of the palm and heart. We make up the ocean – then fall in. But we also write the life raft.
+ - You are always naked when you start writing; you are always as if you had never written anything before; you are always a beginner. Shakespeare wrote without knowing he would become Shakespeare.
+ - I know some good marriages-marriages where both people are just trying to get through their days by helping each other, being good to each other.
+ - I write lustily and humorously. It isn’t calculated; it’s the way I think. I’ve invented a writing style that expresses who I am.
+ - In a world not made for women, criticism and ridicule follow us all the days of our lives. Usually they are indications that we are doing something right.
+ - In loving life you love what can’t survive...
+ - Sex just as a drive, as a hormonal drive, is not very interesting.
+ - It’s only when you’re forbidden to talk about the future that you suddenly realize how much the future normally occupies the present.
+ - The only rule I have when writing is to try to tell the truth. That doesn’t mean you can’t exaggerate, edit, rewrite things to make them more dramatic. But emotional truth is what I look for in writing.
+ - You have to enjoy being a woman. Why should being a woman be such a negative thing where you always have to improve yourself? I have never in my entire life met a man who didn’t want to go to bed with me because I was too fat.
+ - Any system was a straightjacket if you insisted on adhering to it so totally and humorlessly.
+ - Life has no plot. It is by far more interesting than anything you can say about it...
+ - I mostly hate organized religion, which I think is a force for the oppression of women and creates warfare.
+ - You must have a certain amount of maturity to be a poet. Seldom do sixteen-year-olds know themselves well enough.
+ - Perhaps all artists were, in a sense, housewives: tenders of the earth household.
+ - Once I worshipped Keats for dying young. Now I think it’s braver to die old.
+ - All my forebears worked for a living. My grandfather painted portraits. My mother too. My aunt painted seascapes.
+ - What was the point of spending your life with someone you were always looking for ways to decieve?
+ - Every time I catch myself saying, “Oh no, you shouldn’t try that,” I think, “Yes, I should.”
+ - As yet we use our media only for selling things – including, of course, political candidates. What will happen when someone masters the art of selling souls?
+ - Writers are always at the edge of the inferno, and the fire is licking at our toes. Luckily, this turns us on!
+ - Because I loved myself, I was loved.
+ - Keeping a journal implies hope.
+ - My generation was not only maligned in book reviews and attacked in graduate school but we lived to see our adored and adorable daughters wonder why feminism had become a dirty word.
+ - It is for this, partly, that I write. How can I know what I think unless I see what I write.
+
+308 quotes

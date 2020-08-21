@@ -1,0 +1,45 @@
+ - My master’s degree was in English literature.
+ - Your actions toward others are your bank deposit. It’s easy to be good to nice people, but try to be caring to everyone. It is a test.
+ - God is Love, my friends- nothing more, nothing less.
+ - Strength is nothing more than enduring life – to be able to survive the heartaches and agonies we go through with our heads held high. Sometimes just walking through adversity to get to the other side is a sign of strength.
+ - In the course of our eternal existence, we spend infinitely more time in the spirit world on the other side than we spend in the human world on earth.
+ - Plant now the roses of Hope, Love, Promise, God Consciousness, and the Glory of your Soul.
+ - It’s so sad: anything that has to do with God, people want to dispel.
+ - Psychics can never be 100 percent. I think that would be scary to be 100 percent.
+ - I know that there is no such thing as death, because our spirit has always been alive and always will be. We are as eternal as God who created us.
+ - A ghost is someone who hasn’t made it – in other words, who died, and they don’t know they’re dead. So they keep walking around and thinking that you’re inhabiting their – let’s say, their domain. So they’re aggravated with you.
+ - I made the contract with God years ago, that no matter what came through, I would say it, but if I ever hurt someone, I would stop.
+ - Animals are just pure, uncomplicated entities of creation from God. They live like the Maasai do in Kenya-for each day is forever to them and the “Now” is what they live in. You can get aggravated with your pets and yell at them, but in a matter of minutes they are licking your hand again in love.
+ - Death is the Graduation of the Soul.
+ - Animal totems, like the tiger, come from the Other Side to protect us while we are away from Home.
+ - Let me assure you that all of our pets, and animals of every kind will be with us for eternity on the Other Side.
+ - Steve Jobs was Galileo in a past life. Discovery was instinctual for him.
+ - Death is the reward for living.
+ - Everyone dreams, but not everybody remembers their dreams because some people go into delta; they go too low.
+ - I listen to my spirit guide.
+ - You know, bad people, I’ve never seen bad people have angels.
+ - The weeds keep multiplying in our garden, which is our mind ruled by fear. Rip them out and call them by name.
+ - Live each day as your last, and tomorrow is forever.
+ - Dreams really tell you about yourself more than anything else in this world could ever tell you.
+ - It’s abundantly clear that we already have extraterrestrials living among us, and people are stepping forward who can communicate with them.
+ - Look to what you have around you and be grateful, instead of searching for more. All you take with you when you leave this world is love, friendship, and good deeds.
+ - I don’t like tofu. I’d sooner eat a sponge.
+ - I can assure you that those who have already passed have not only made it to the Other Side, but are in a state of bliss.
+ - I keep a night light on because my room is so full at night, I can’t get to sleep!
+ - I’ve always been interested in past lives, because they’re earmarks of what creates us.
+ - The more painful it is, tragically, the more you do learn, though, that’s the good part.
+ - Both of us were orphans. No one would remember what we remembered. The elders that stood as protective shields, as references to our past, and as reflections of who we were and are and where we came from, were gone.
+ - I know that The Other Side, and the spirits who live there, are as real as this earth we live on, and that the only thing separating “her” from “there” is a thinly veiled difference in vibrational frequency.
+ - I always tell what I see.
+ - I do a lot of stuff. I mean, you know, charity work.
+ - What I think a psychic is, unfortunately, I think in this day and age, it’s taken on sort of a rancid sound.
+ - I don’t think that there is a person that I’ve met – I’m sure there are – that I’ve had any conflict with.
+ - A spirit is, like, your mother, my dad, who’ve made it. They can come around, but they come around in a loving way because they’ve already made it to God. Most people make it.
+ - I have the same problems that everybody else does.
+ - What have you learned from those times when life was easy?
+ - Every person who has a reading with me has an audiotape.
+ - I’ve always wanted to put a little solarium on the back of my house. You know. Glass.
+ - People are afraid to die, and even more afraid to live.
+ - People continue to fear dying, only because no one ever has.
+
+43 quotes

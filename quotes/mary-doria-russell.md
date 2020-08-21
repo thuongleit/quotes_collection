@@ -1,0 +1,27 @@
+ - The sparrow still falls.
+ - When the preponderance of human beings choose to act with justice and generosity and kindness, then learning and love and decency prevail. When the preponderance of human beings choose power, greed, and indifference to suffering, the world is filled with war, poverty, and cruelty.
+ - Tradition was safety; change was danger.
+ - Indulge me, John. Cynicism and foul language are the only vices I’m presently capable of. Everything else takes energy or money.
+ - No matter how dark the tapestry God weaves for us, there’s always a thread of grace.
+ - Rain falls on everyone, lightning strikes some. What cannot be changed is best forgotten. God made the world, and He saw that it was good. Not fair. Not happy. Not perfect. Good.
+ - How can you hear your soul if everyone is talking?
+ - I do what I do without hope of reward or fear of punishment. I do not require Heaven or Hell to bribe or scare me into acting decently.
+ - Feelings are facts. Look straight at ’em and deal with ’em. Work it through, as honestly as you can. If God is anything like a middle-class white chick from the suburbs, which I admit is a long shot, it’s what you do about what you feel that matters.
+ - In my worldview, there are filers, and there are pilers. Filers think alphabetically. Pilers think geologically.
+ - Love is a debt, she thought. When the bill comes, you pay in grief.
+ - House-training, I must tell you, is a formality that can elude young dachshunds for some time; this is particularly true in climates that affront their sensibilities with outrageous meteorological insults. Rain, for example, or a startling gust of wind.
+ - God’s got a lot of explaining to do. Of course, God never explains. When life breaks your heart, you’re just supposed to pick up the pieces and start all over, I guess.
+ - When it comes down to it, I don’t have much in the way of advice to offer you, but here it is: Read to children. Vote. And never buy anything from a man who’s selling fear.
+ - The dachshund is a perfectly engineered dog. It is precisely long enough for a single standard stroke of the back, but you aren’t paying for any superfluous leg.
+ - The trouble with illusions is that you aren’t aware you have any until they are taken away from you.
+ - The sign of a good decision is the multiplicity of reasons for it.
+ - I had a doctorate in biological anthropology. I got a post-doc at CWRU dental school in 1983 teaching gross anatomy.
+ - Instead of taking a year off, I started Dreamers of the Day exactly 36 hours after I sent the manuscript for A Thread of Grace to the publisher!
+ - If we keep demanding that God yield up His answers, perhaps some day we will understand them. And then we will be something more than clever apes, and we shall dance with God.
+ - God save us from idealists! They dream of a world without injustice, and what crime won’t they commit to get it! I swear, Mirella, I’ll settle for a world with good manners.
+ - Like so many Boomers, I saw Lawrence of Arabia in 1962 when it was first released and when we were young teenagers. Im not quite sure why – I really wish some psychologist would explain this – but that movie had a tremendous effect on many of us.
+ - Cleveland is really good about recognizing its artists because of the Arts Council.
+ - Watching him with one eye, she wondered if men ever figured out that they were more appealing when they were pursuing their own work than when they were pursuing a woman.
+ - Each generation of adolescents has at least two historical events that color its responses to whatever happens next.
+
+25 quotes

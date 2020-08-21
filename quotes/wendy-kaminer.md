@@ -1,0 +1,27 @@
+ - There are only two states of being in the world of codependency – recovery and denial.
+ - I don’t spend much time thinking about whether God exists. I don’t consider that a relevant question. It’s unanswerable and irrelevant to my life, so I put it in the category of things I can’t worry about.
+ - Faith is not a function of stupidity but a frequent cause of it.
+ - In its more authoritarian forms, religion punishes questioning and rewards gullibility. Faith is not a function of stupidity, but a frequent cause of it.
+ - As Camille Paglia’s success has demonstrated, what is most marketable is absolutism and attitude undiluted by thought.
+ - When the inner child finds a guardian angel, publishers are in heaven.
+ - Jargon seems to be the place where the right brain and the left brain meet.
+ - I don’t care if religious people consider me amoral because I lack their beliefs in God. I do however care deeply about efforts to turn religious beliefs into law and those efforts benefit greatly from the conviction that individually and collectively we cannot be good without God.
+ - The phenomenal success of the recovery movement reflects two simple truths that emerge in adolescence: all people love to talk about themselves, and most people are mad at their parents. You don’t have to be in denial to doubt that truths like these will set us free.
+ - Secularists are often wrongly accused of trying to purge religious ideals from public discourse. We simply want to deny them public sponsorship.
+ - The press and the public like certainty and affirmation of popular biases. But real science thrives on the capacity for doubt.
+ - In this climate – with belief in guardian angels and creationism becoming commonplace – making fun of religion is as risky as burning a flag in an American Legion hall.
+ - It is the inevitable effect of religion on public policy that makes it a matter of public concern. Advocates of religiosity extol the virtues or moral habits that religion is supposed to instill in us. But we should be equally concerned with the intellectual habits it discourages.
+ - We don’t cut off the hands of thieves or castrate rapists. Why must we murder murderers?
+ - If all issues are personalized, we lose our capacity to entertain ideas, to generalize from our own or someone else’s experiences, to think abstractly. We substitute sentimentality for thought.
+ - For the most part, executions happen in obscurity. If people did hear about executions, if they were publicized, even televised, I fear more would enjoy them than be repelled by them.
+ - Under the rubric of religious freedom, we respect the right to worship differently much more than the right to worship not at all.
+ - Interactivity has the virtue of democracy, conferring upon everyone with access to a computer the right and opportunity to be heard, but it’s also saddled with democracy’s vice – a tendency to assume that everyone who has a right to be heard has something to say that’s worth hearing.
+ - The dissemination of pseudoscience, including such things as the fascination with near-death experiences and the growing belief by Americans – 34 percent of them – in reincarnation are dangerous. They help to break down the standards of reason.
+ - Give the FBI unchecked domestic spying powers and instead of focusing on preventing terrorism, it will revert to doing what it does best – monitoring, harassing, and intimidating political dissidents and thousands of harmless immigrants.
+ - Only people who die very young learn all they really need to know in kindergarten.
+ - The magical thinking encouraged by any belief in the supernatural, combined with the vilification of rationality and skepticism, is more conducive to conspiracy theories than it is to productive political debate.
+ - Patriotism does not oblige us to acquiesce in the destruction of liberty. Patriotism obliges us to question it, at least.
+ - Like heterosexuality, faith in immaterial realities is popularly considered essential to individual morality.
+ - Tolerance is thin gruel compared to the rapture of absolute truths. It’s not surprising that religious people are often better protected by atheists and agnostics than each other.
+
+25 quotes

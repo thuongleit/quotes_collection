@@ -1,0 +1,31 @@
+ - We must never lose sight of the fact that the law has a moral foundation, and we must never fail to ask ourselves not only what the law is, but what the law should be.
+ - Democracy is something that you must learn each generation. It has to be taught.
+ - At the heart of liberty is the right to define one’s own concept of existence, of meaning, of the universe, and of the mystery of human life.
+ - No union is more profound than marriage, for it embodies the highest ideals of love, fidelity, devotion, sacrifice, and family. In forming a marital union, two people become something greater than once they were.
+ - First Amendment freedoms are most in danger when the government seeks to control thought or to justify its laws for that impermissible end. The right to think is the beginning of freedom, and speech must be protected from the government because speech is the beginning of thought.
+ - The fetus, in many cases, dies just as a human adult or child would: It bleeds to death as it is torn from limb from limb. The fetus can be alive at the beginning of the dismemberment process and can survive for a time while its limbs are being torn off.
+ - The remedy for speech that is false is speech that is true. This is the ordinary course in a free society. The response to the unreasoned is the rational; to the uninformed, the enlightened; to the straight-out lie, the simple truth.
+ - Sometimes you don’t know if you’re Caesar about to cross the Rubicon or Captain Queeg cutting your own tow line.
+ - The federal sentencing guidelines should be revised downward. By contrast to the guidelines, I can accept neither the necessity nor the wisdom of federal mandatory minimum sentences. In too many cases, mandatory minimum sentences are unwise and unjust.
+ - Family members have a personal stake in honoring and mourning their dead and objecting to unwarranted public exploitation that, by intruding upon their own grief, tends to degrade the rites and respect they seek to accord to the deceased person who was once their own.
+ - There’s a time for debate and a time for consensus. There’s a time for advocacy and time for first principles.
+ - No one questions the validity, the urgency, the essentiality of the Voting Rights Act.
+ - The Government may not suppress lawful speech as the means to suppress unlawful speech.
+ - Asking questions is an essential part of police investigation. In the ordinary sense a police officer is free to ask a person for identification without implicating the Fourth Amendment.
+ - The federal statute is invalid, for no legitimate purpose overcomes the purpose and effect to disparage and injure those whom the state, by its marriage laws, sought to protect in personhood and dignity.
+ - The First Amendment is often inconvenient. But that is besides the point. Inconvenience does not absolve the government of its obligation to tolerate speech.
+ - The Constitution needs allegiance and loyalty and renewal and understanding with each generation, or else it’s not going to last.
+ - A law imposing criminal penalties on protected speech is a stark example of speech suppression.
+ - The Constitution doesn’t belong to a bunch of judges and lawyers. It belongs to you.
+ - The case for freedom, the case for our constitutional principles the case for our heritage has to be made anew in each generation. The work of freedom is never done.
+ - The Constitution promises liberty to all within its reach, a liberty that includes certain specific rights that allow persons, within a lawful realm, to define and express their identity.
+ - As the Constitution endures, persons in every generation can invoke its principles in their own search for greater freedom.
+ - I do not think that we should select judges based on a particular philosophy as opposed to temperament, commitment to judicial neutrality and commitment to other more constant values as to which there is general consensus.
+ - When a juvenile commits a heinous crime, the State can exact forfeiture of some of the most basic liberties, but the State cannot extinguish his life and his potential to attain a mature understanding of his own humanity.
+ - There’s substance to the point that sociological information is new. We have five years of information to weigh against 2,000 years of history or more.
+ - It is proper that we acknowledge the overwhelming weight of international opinion against the juvenile death penalty.
+ - In the political context fair means somebody that will vote for the unions or for the business. It can’t mean that in the judicial context or we’re in real trouble.
+ - You have plaintiffs attorneys, you have defense attorneys. So there is no unified bar that will protect a particular judge who has made a courageous decision that’s unpopular.
+ - Any time you burn a cross in Virginia, it’s a crime?
+
+29 quotes

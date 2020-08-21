@@ -1,0 +1,25 @@
+ - The best revenge in the world is success.
+ - I ain’t no gangster. I’m a grown man trying to run a business.
+ - You got good and bad people everywhere.
+ - No matter what it is, I think people want the answer they want, they don’t want the truth.
+ - For thugs from the ghetto, violence is a way of life – it’s what helps you survive.
+ - In prison, you get the chance to see who really loves you.
+ - There’s no difference in dealing with the music business with the majors than any other competition. The music business is way more cutthroat than any other business.
+ - Basically, people are never happy enough because they want more money.
+ - When I start getting old, I’m going to start ending my prayers like, “Lord, it’d be a good day to die.” I don’t wanna be 130 years old with a diaper on, all my friends dead and gone. I wanna get to heaven, come get me!
+ - If you wanna cross somebody, then do that. Don’t act like it wasn’t you.
+ - My kids get everything they want and are raised well.
+ - I’m in prison. But my heart and mind is free. Gangsta haters on the streets are doing more time than me. They need 30 police escorts with them every time they walk down the street.
+ - As far as anybody in the rap game ever tryin to assassinate my character, thats impossible. You talkin about a man who has always walked the walk and talked the talk.
+ - If you grow up in the suburbs, you hear of people dying of old age, car wrecks, cancer. In the city, it’s always people dying of violence or stray bullets.
+ - Coming from prison, you’re more appreciative. Somebody gives you a bottle of water, you’re like, “Thank you.” Because that water means something. It might not be too good. It might not even be drinkable, but you know, you gotta do what you gotta do.
+ - I’m gonna make sure everybody get their justice. This the year for business, this the year for my book, this the year for the movie and this the year for getting even. I’m on my way.
+ - No person ever gave me nothing but God.
+ - Prison makes you a better judge of character. You pick up on people much faster.
+ - The music business would be much better, for the youth and the kids, if they start hiring employees that understand the kids.
+ - I don’t care about how many times somebody recognizes my face.
+ - People don’t know how hard it is to have your own business.
+ - How could you be from the ghetto and be a rat?
+ - I am in the penitentiary. The only thing that I do is my time.
+
+23 quotes

@@ -1,0 +1,204 @@
+ - Disgust is intuitive microbiology.
+ - We will never have a perfect world, but it’s not romantic or naive to work toward a better one.
+ - I would argue that nothing gives life more purpose than the realization that every moment of consciousness is a precious and fragile gift.
+ - It’s natural to think that living things must be the handiwork of a designer. But it was also natural to think that the sun went around the earth. Overcoming naive impressions to figure out how things really work is one of humanity’s highest callings.
+ - Fiction is empathy technology.
+ - My laptop has freed me to travel.
+ - Statisticians tell us that people underestimate the sheer number of coincidences that are bound to happen in a world governed by chance.
+ - With violence, as with so many other concerns, human nature is the problem, but human nature is also the solution.
+ - If you give people literacy, bad ideas can be attacked and experiments tried, and lessons will accumulate.
+ - Overcoming naive impressions to figure out how things really work is one of humanity’s highest callings.
+ - Obviously no language is innate. Take any kid from any race, bring them up in any culture and they will learn the language equally quickly. So no particular language is in the genes. But what might be in the genes is the ability to acquire language.
+ - Human nature is complex. Even if we do have inclinations toward violence, we also have inclination to empathy, to cooperation, to self-control.
+ - The theory that religion is a force for peace, often heard among the religious right and its allies today, does not fit the facts of history.
+ - The European wars of religion were more deadly than the First World War, proportionally speaking, and in the range of the Second World War in Europe. The Inquisition, the persecution of heretics and infidels and witches, they racked up pretty high death tolls.
+ - Evolutionary psychology is one of four sciences that are bringing human nature back into the picture.
+ - Being smarter gives you a tailwind throughout life. People who are more intelligent earn more, live longer, get divorced less, are less likely to get addicted to alcohol and tobacco, and their children live longer.
+ - We instinctively fear snakes, but we appear not to be afraid of fast cars, which are a real danger now. This suggests our emotions were shaped by our evolutionary environment not the one we grew up in.
+ - Like the early days of the Internet, the dawn of personal genomics promises benefits and pitfalls that no one can foresee.
+ - Why are empirical questions about how the mind works so weighted down with political and moral and emotional baggage?
+ - Equality is not the empirical claim that all groups of humans are interchangeable; it is the moral principle that individuals should not be judged or constrained by the average properties of their group.
+ - The stuff of life turned out to be not a quivering, glowing, wondrous gel but a contraption of tiny jigs, springs, hinges, rods, sheets, magnets, zippers, and trapdoors, assembled by a data tape whose information is copied, downloaded and scanned.
+ - In a high tech world the cure for the tragic shortcomings and perilous fallacies of human intuition is education, but education in economics, evolutionary biology, probability and statistics – unfortunately most High School and College curricula have barely changed since Medieval times!
+ - Astrology had an important role in the ancient world. You can’t understand many things unless you know something about astrology – the plays of Shakespeare and so on.
+ - Language is a window into human nature, but it is also a fistula, an open wound through which we’re exposed to an infectious world.
+ - Everyone’s pedigree merges into everyone else’s pedigree. So if you go back far enough, everyone is related.
+ - Photography is a demanding action sport. The light can change so quickly. I often find myself sprinting so that I can catch the perfect light falling on a photogenic subject.
+ - I spent 20 years doing research on regular and irregular verbs, not because I’m an obsessive language lover but because it seemed to me that they tapped into a fundamental distinction in language processing, indeed in cognitive processing, between memory lookup and rule-driven computation.
+ - Democracy is an imperfect way of steering between the violence of anarchy and the violence of tyranny, with the least violence you can get away with.
+ - Art works because it appeals to certain faculties of the mind. Music depends on details of the auditory system, painting and sculpture on the visual system. Poetry and literature depend on language.
+ - In the 1970s, many intellectuals had become political radicals. Marxism was correct, liberalism was for wimps, and Marx had pronounced that ‘the ruling ideas of each age have ever been the ideas of its ruling class.’
+ - Personality and socialization aren’t the same thing.
+ - All our behaviours are a result of neurophysiological activity in the brain. There is no reason to believe there is any magic going on.
+ - The rules of friendship are tacit, unconscious; they are not rational. In business, though, you have to think rationally.
+ - The problem with the emotions is not that they are untamed forces or vestiges of our animal past; it is that they were designed to propagate copies of the genes that built them rather than to promote happiness, wisdom, or moral values.
+ - People know there is a difference between what you do and what you accept. There is a difference between me knowing that people swear, me hearing people swear and me swearing, and everyone accepting that this is something you can do as much as you like.
+ - Human evolution, at first, seems extraordinary. How could the process that gave rise to slugs and oak trees and fish produce a creature that can fly to the moon and invent the Internet and cross the ocean in boats?
+ - Writers acquire their technique by spotting, savoring, and reverse-engineering examples of good prose.
+ - Since violence is largely a male pastime, cultures that empower women tend to move away from the glorification of violence and are less likely to breed dangerous subcultures of rootless young men.
+ - The human capacity for compassion is not a reflex that is triggered automatically by the presence of another living thing.
+ - I try to jog in every city I visit, and I particularly enjoy harbour-front paths that let me ogle big ships, railroad bridges and the ruins of factories and warehouses.
+ - All over the world, belief in the supernatural has authorised the sacrifice of people to propitiate bloodthirsty gods, and the murder of witches for their malevolent powers.
+ - Though knowledge itself increasingly ignores boundaries between fields, professors are apt to organize their pedagogy around the methods and history of their academic subculture rather than some coherent topic in the world.
+ - No one knows what the nongenetic causes of individuality are. Perhaps people are shaped by modifications of genes that take place after conception, or by haphazard fluctuations in the chemical soup in the womb or the wiring up of the brain or the expression of the genes themselves.
+ - There has to be innate circuitry that does the learning, that creates the culture, that acquires the culture, and that responds to socialization.
+ - One of my favourite kinds of movie is the American picaresque, in which the characters make their way across the country, learning about life against the gorgeous backdrops of that vast land.
+ - If the myth of pure evil is that evil is committed with the intention of causing harm and an absence of moral considerations, then it applies to very few acts of so-called ‘pure evil’ because most evildoers believe what they are doing is forgivable or justifiable.
+ - Morality, then, is not a set of arbitrary regulations dictated by a vengeful deity and written down in a book; nor is it the custom of a particular culture or tribe. It is a consequence of the interchangeability of perspectives and the opportunity the world provides for positive-sum games.
+ - Genes are a play within a play, not the interior monologue of the players.
+ - I teach classes 28 weeks of the year, but the rest of the time I do research and write books.
+ - Without goals the very concept of intelligence is meaningless.
+ - The world has far too much morality.
+ - Plants can’t very well defend themselves by their behavior, so they resort to chemical warfare, and plants are saturated with toxins and irritants to deter creatures like us who want to eat them.
+ - In societies no less than individuals, acknowledging our limitations may ultimately be more humane than denying them.
+ - People today sometimes get uncomfortable with empirical claims that seem to clash with their political assumptions, often because they haven’t given much thought to the connections.
+ - People consider the harms they inflict to be justified and forgettable, and the harms they suffer to be unprovoked and grievous.
+ - Why do people believe that there are dangerous implications of the idea that the mind is a product of the brain, that the brain is organized in part by the genome, and that the genome was shaped by natural selection?
+ - I think that communism was a major force for violence for more than 100 years, because it was built into its ideology – that progress comes through class struggle, often violent.
+ - Why is it surprising that scientists might have long hair and wear cowboy boots? In fields like neuroscience, where the events you are recording are so minute, I suspect scientists cultivate a boring, reliable image. A scientist with a reputation for flamboyance might be suspect.
+ - Cognitive psychology has shown that the mind best understands facts when they are woven into a conceptual fabric, such as a narrative, mental map, or intuitive theory. Disconnected facts in the mind are like unlinked pages on the Web: They might as well not exist.
+ - People do not think in English or Chinese or Apache; they think in a language of thought. This language of thought probably looks a bit like all these languagesBut compared with any given language, mentalese must be richer in some ways and simpler in others.
+ - Thinking is a physical process, the human brain is not exempt from evolution.
+ - We are visual creatures. Visual things stay put, whereas sounds fade.
+ - Societies that empower women are less violent in every way.
+ - Cognitive psychology tells us that the unaided human mind is vulnerable to many fallacies and illusions because of its reliance on its memory for vivid anecdotes rather than systematic statistics.
+ - The connections I draw between human nature and political systems in my new book, for example, were prefigured in the debates during the Enlightenment and during the framing of the American Constitution.
+ - Morality is not just any old topic in psychology but close to our conception of the meaning of life. Moral goodness is what gives each of us the sense that we are worthy human beings.
+ - I get drawn in when I feel there is something deep and mysterious going on beneath the surface of something.
+ - In any dispute, each side thinks it’s in the right and the other side is demons.
+ - Language mavens commonly confuse their own peeves with a worsening of the language.
+ - According to a recent study of the brains of identical and fraternal twins, differences in the amount of gray matter in the frontal lobes are not only genetically influenced but are significantly correlated with differences in intelligence.
+ - The art of photography is all about directing the attention of the viewer.
+ - The stirrings of morality emerge early in childhood. Toddlers spontaneously offer toys and help to others and try to comfort people they see in distress.
+ - Whenever you speak to someone, you are presuming the two of you have a certain degree of familiarity – which your words might alter. So every sentence has to do two things at once: convey a message and continue to negotiate that relationship.
+ - The moral, then, is that familiar categories of behavior – marriage customs, food taboos, folk superstitions, and so on – certainly do vary across cultures and have to be learned, but the deeper mechanisms of mental computation that generate them may be universal and innate.
+ - Climate change could produce a lot of misery and waste without necessarily leading to large-scale armed conflict, which depends more on ideology and bad governance than on resource scarcity.
+ - Mother Teresa was the very embodiment of saintliness: white-clad, sad-eyed, ascetic and often photographed with the wretched of the earth.
+ - Consistent style prevents presentation from getting in the way of content.
+ - We’re living in primate heaven. We’re warm, dry, we’re not hungry, we don’t have fleas and ticks and infections. So why are we so miserable?
+ - Evolution is an indispensable component of any satisfying explanation of our psychology.
+ - People are under the impression that dictionaries legislate language. What a dictionary does is keep track of usages over time.
+ - My politics were pretty anarchistic until 1969 when the Montreal police went on strike. Within hours, mayhem and rioting broke out and the Mounties had to be called in to restore order. It instilled in me that one’s convictions can be subjected to empirical test.
+ - One of the things that people complain about is loneliness, disconnectedness. If you live in a society where your life is rarely threatened and most of your relationships are more on an economic exchange basis, then this could leave people feeling less connected.
+ - We can shape events in each other’s brains with exquisite precision.
+ - There’s a common criticism of evolutionary psychology that it’s fatalistic and it dooms us to eternal strife, ‘Why even try to work toward peace if we’re just bloody killer apes and violence is in our genes?’
+ - Babies are born with the instinct to speak, the way spiders are born with the instinct to spin webs. You don’t need to train babies to speak; they just do. But reading is different.
+ - I think that a failure of statistical thinking is the major intellectual shortcoming of our universities, journalism and intellectual culture.
+ - By exploring the political and moral colorings of discoveries about what makes us tick, we can have a more honest science and a less fearful intellectual milieu.
+ - Consciousness surely does not depend on language. Babies, many animals, and patients robbed of speech by brain damage are not insensate robots; they have reactions like ours that indicate that someone’s home.
+ - Language pedants hew to an oral tradition of shibboleths that have no basis in logic or style, that have been defied by great writers for centuries, and that have been disavowed by every thoughtful usage manual.
+ - Technology, ideology, and social and cultural changes periodically throw out new forms of violence for humanity to contend with.
+ - There’s guilt about our treatment of native peoples in modern intellectual life, and an unwillingness to acknowledge there could be anything good about Western culture.
+ - An enormous amount of scientific language is metaphorical. We talk about a genetic code, where code originally meant a cipher; we talk about the solar system model of the atom as though the atom were like a sun and moon and planets.
+ - Morality comes from a commitment to treat other as we wish to be treated, which follows from the realization that none of us is the sole occupant of the universe.
+ - For example, parents who talk a lot to their children have kids with better language skills, parents who spank have children who grow up to be violent, parents who are neither too authoritarian or too lenient have children who are well-adjusted, and so on.
+ - Natural selection is not the only process that changes organisms over time. But is the only process that seemingly designs organisms over time.
+ - Heritability pertains to the entirety of the genome, not to a single gene.
+ - Commerce, trade and exchange make other people more valuable alive than dead, and mean that people try to anticipate what the other guy needs and wants. It engages the mechanisms of reciprocal altruism, as the evolutionary biologists call it, as opposed to raw dominance.
+ - Anything that makes it easier to imagine trading places with someone else increases your moral consideration for that other person.
+ - The reason the United States is not so likely to invade Iran is precisely because of the lessons learned from Iraq. And conversely, the Iranian push towards nuclear capability is calculated to deter invasions like the kind deposing Saddam Husain.
+ - Forcing modern speakers of English to not – whoops, not to split an infinitive because it isn’t done in Latin makes about as much sense as forcing modern residents of England to wear laurels and togas.
+ - The fact that people can forget these simple truths when intellectualizing about children shows how far modern doctrines have taken us. They make it easy to think of children as lumps of putty to be shaped instead of partners in a human relationship.
+ - Consciousness turns out to consist of a maelstrom of events distributed across the brain. These events compete for attention, and as one process outshouts the others, the brain rationalizes the outcome after the fact and concocts the impression that a single self was in charge all along.
+ - Equity feminism is a moral doctrine about equal treatment that makes no commitments regarding open empirical issues in psychology or biology.
+ - It’s likely that taboo words are stored in the right hemisphere of the brain. Massive left hemisphere strokes or the entire surgical removal of the left hemisphere can leave people with no articulate speech other than the ability to swear, spout cliches and song lyrics.
+ - My opinions about human nature are shared by many psychologists, linguists, and biologists, not to mention philosophers and scholars going back centuries.
+ - When time permits, I try to see interesting people in the cities I visit. In Seattle, I met Paul Allen, the co-founder of Microsoft, who is shy in personality but flamboyant in his philanthropy.
+ - Racism, because it favors color over talent, is bad for business.
+ - It begins with skepticism. The history of human folly, and our own susceptibility to illusions and fallacies, tell us that men and women are fallible.
+ - Just as blueprints don’t necessarily specify blue buildings, selfish genes don’t necessarily specify selfish organisms. As we shall see, sometimes the most selfish thing a gene can do is build a selfless brain. Genes are a play within a play, not the interior monologue of the players.
+ - I think this confusion leads intellectuals and artists themselves to believe that the elite arts and humanities are a kind of higher, exalted form of human endeavor.
+ - As technology accumulates and people in more parts of the planet become interdependent, the hatred between them tends to decrease, for the simple reason that you can’t kill someone and trade with him too.
+ - I think a lot of moral debates are not over what is the basis of justice, but who gets a ticket to play in the game.
+ - Many artists and scholars have pointed out that ultimately art depends on human nature.
+ - If crime is going down, you shouldn’t be increasing resources for crime prevention. Or you should be taking note of what has worked and concentrate the crime-prevention methods on policies that have a track record of success.
+ - Genetically influenced behavior is not necessarily good and not necessarily unchangeable. Explanations of bad behavior that appeal to genes do not absolve a person any more than do explanations that appeal to upbringing.
+ - Jews are known for many things, but strength, swiftness, and agility are not among them. There is one trait, as controversial as it is familiar, for which Jews are above all known, and that is shrewdness in business.
+ - You wouldn’t believe the kind of hate mail I get about my work on irregular verbs.
+ - If anything, Powerpoint, if used well, would ideally reflect the way we think.
+ - Of course the theory of evolution would be vacuous if it offered a glib explanation for every inexplicable act.
+ - I don’t think aggression works like thirst or sleep. I think aggression is more elicited by particular situations. I think it can be mitigated.
+ - Working out what it would take to program goodness into a robot shows not only how much machinery it takes to be good but how slippery the concept of goodness is to start with.
+ - Tom Hanks, who starred in ‘The Da Vinci Code,’ turns out to be related to a number of the historic characters that feature in ‘The Da Vinci Code,’ including William the Conqueror and Shakespeare.
+ - The reason I’m not a neurobiologist but a cognitive psychologist is that I think looking at brain tissue is often the wrong level of analysis. You have to look at a higher level of organization.
+ - But the newest research is showing that many properties of the brain are genetically organized, and don’t depend on information coming in from the senses.
+ - Something about the topic of consciousness makes people, like the White Queen in Through The Looking Glass, believe six impossible things before breakfast.
+ - By all measures men are the more violent gender.
+ - Aggression, like every other part of human behavior we take for granted, is a challenging engineering problem!
+ - You could think of an ecosystem as a bunch of antagonistic arms races, almost: Everything that an animal depends upon for food is the body part of some other animal or plant who would just as soon keep that body part for itself.
+ - We often feel that a clever aphorism captures a truth that would require pages to defend in any other way.
+ - As women are empowered, violence can come down, for a number of reasons. By all measures, men are the more violent gender.
+ - The linguistic clumsiness of tourists and students might be the price we pay for the linguistic genius we displayed as babies, just as the decrepitude of age in the price we pay for the vigor of youth.
+ - So no, it’s not all in the genes, but what isn’t in the genes isn’t in the family environment either. It can’t be explained in terms of the overall personalities or the child-rearing practices of parents.
+ - Humans are so innately hardwired for language that they can no more suppress their ability to learn and use language than they can suppress the instinct to pull a hand back from a hot surface.
+ - In our society, the best predictor of a man’s wealth is his wife’s looks, and the best predictor of a woman’s looks is her husband’s wealth.
+ - The brain is not a bag of traits. It’s startlingly complex. There are few or no single genes with a consistent effect on the mind.
+ - As long as your ideology identifies the main source of the world’s ills as a definable group, it opens the world up to genocide.
+ - A decent government with an effective, but not gratuitously violent, police force and a fair court system are essential. This deters and incapacitates psychopaths, bullies and hotheads – and if it earns the confidence of the people, they don’t have to become violent in self-defence.
+ - An eye for beauty locks onto faces that show signs of health and fertility – just as one would predict if it had evolved to help the beholder find the fittest mate.
+ - Pre-state societies were far more violent than our own.
+ - If you look in general at people who live in anarchy, they have quite high rates of death from either homicide or warfare or both. Anarchy is one of the main reasons for violence, and it may be the most important.
+ - The likelihood that inborn differences are one contributor to social status does not mean that it is the only contributor.
+ - If people are innately saddled with certain sins and flaws, like selfishness, prejudice, sort-sightedness, and self-deception, then political reform would seem to be a waste of time.
+ - As many political writers have pointed out, commitment to political equality is not an empirical claim that people are clones.
+ - One can choose to obsess over prescriptive rules, but they have no more to do with human language than the criteria for judging cats at a cat show have to do with mammalian biology.
+ - I don’t consider myself to be that radical a thinker.
+ - Economic libertarians and Christian evangelicals, united by their common enemy, are strange bedfellows in today’s Republican party, just as the two Georges – the archconservative Wallace and the uberliberal McGovern – found themselves in the same Democratic Party in 1972.
+ - We really are creatures of a violent world, biologically speaking – watching violence and learning about it is one of our cognitive drives.
+ - If you aren’t just brought up in your tribe but interact with other people either directly or vicariously, through journalism and literature, you see what life is like from other points of view and are less likely to demonize them or dehumanize others and more likely to empathize with them.
+ - But in most cases even the possibility that the correlations reflect shared genes is taboo.
+ - Solving a problem in a hundred years is, practically speaking, the same as not solving it at all.
+ - Probably Hobbes got it right when he said that a leviathan, a third party with a monopoly on the use of legitimate use of force in a territory, might be among the biggest violence reduction techniques ever invented.
+ - As individual people, embedded in our daily lives, of course we’re interested in what makes one person different from another. We’ve got to hire one person and not another, marry one person and not another.
+ - America had, for one thing, lived in anarchy for – until much more recently than Europe. We had the Wild West, where the cliche of the cowboy movies was the nearest sheriff is 90 miles away, and so you had to pack a gun and defend yourself.
+ - Words let us say the things we want to say and also things we would be better off not having said. They let us know the things we need to know, and also things we wish we didn’t.
+ - I never outgrew my conversion to atheism at 13, but at various times was a serious cultural Jew.
+ - Evolutionary psychologists seem to want to unmask our noblest motives as ultimately self-interested – to show that our love for children, compassion for the unfortunate and sense of justice are just tactics in a Darwinian struggle to perpetuate our genes.
+ - We can make fun of hockey fans, but someone who enjoys Homer is indulging the same kind of vicarious bloodlust.
+ - What is true for the emotions may also be true for the intellect. Some of our perplexities may come from a mismatch between the purposes for which our cognitive faculties evolved and the purposes to which we put them today.
+ - Students do everything on laptops these days, so I definitely think electronic books are a trend that’s going to expand.
+ - There is no society ever discovered in the remotest corner of the world that has not had something that we would consider the arts. Visual arts – decoration of surfaces and bodies – appears to be a human universal.
+ - We adults protect ourselves with laws, police, workplace regulations and social norms and there is no conceivable reason why children should be left more vulnerable, other that laziness or callousness in considering what life is like from their point of view.
+ - Paris Hilton, it turns out, is related to fellow celebrity jailbirds Zsa Zsa Gabor and G. Gordon Liddy.
+ - All of the violence that doesn’t occur doesn’t get reported on the news.
+ - It is true that raids and battles killed a tiny percentage of the numbers that die in modern warfare. But in tribal violence, the clashes are more frequent, the percentage of men in the population who fight is greater, and the rates of death per battle are higher.
+ - Regardless of its causes, thoughtlessly blaming the present is a weakness which, even if it is never outlawed, ought to be resisted. Though commonly flaunted as a sign of sophistication, it can be an opportunity for one-upmanship and an excuse for misanthropy, especially against the young.
+ - I like ice hockey. No one is ever going to ask me to write about that as a metaphor for life.
+ - As a graduate student, I wrote a long paper connecting the dots between mathematical models of learning and language development in children. It was published in a major journal.
+ - Unfortunately, creative people are at their most creative when writing their autobiographies.
+ - Conventions are unstated agreements within a community to abide by a single way of doing things – not because there is any inherent advantage to the choice, but because there is an advantage to everyone making the same choice.
+ - For all the tribulations in our lives, for all the troubles that remain in the world, the decline of violence is an accomplishment that we can savor – and an impetus to cherish the forces of civilization and enlightenment that made it possible.
+ - The human moral sense can excuse any atrocity in the minds of those who commit it, and it furnishes them with motives for acts of violence that bring them no tangible benefit.
+ - Parents provide their children with genes as well as an environment, so the fact that talkative parents have kids with good language skills could simply mean that and that the same genes that make parents talkative make children articulate.
+ - For one thing, before the 20th century, there were plenty of genocides. We tend to forget about them, partly because they weren’t as well documented and partly because, until recently, people didn’t care. We used euphemisms like ‘sackings’ and ‘sieges’ instead of calling them ‘genocides.’
+ - Look at almost any passage, and you’ll find that a paragraph has five or six metaphors in it. It’s not that the speaker is trying to be poetic, it’s just that that’s the way language works.
+ - Theories of art carry the seeds of their own destruction.
+ - Reading is a technology for perspective-taking. When someone else’s thoughts are in your head, you are observing the world from that person’s vantage point.
+ - The supposedly immaterial soul, we now know, can be bisected with a knife, altered by chemicals, started or stopped by electricity, and extinguished by a sharp blow or by insufficient oxygen.
+ - Violent movements attract thugs and firebrands who enjoy the mayhem. Violent tactics provide a pretext for retaliation by the enemy and alienate third parties who might otherwise support the movement.
+ - The great appeal of the doctrine that the mind is a blank slate is the simple mathematical fact that zero equals zero.
+ - Photography is a kind of virtual reality, and it helps if you can create the illusion of being in an interesting world.
+ - There’s a misconception that survival of the fittest means survival of the most aggressive. The adjective ‘Darwinian’ used to refer to ruthless competition; you used to read that in business journals. But that’s not what Darwinian means to a biologist; it’s whatever leads to reproductive success.
+ - One of the perks of being a psychologist is access to tools that allow you to carry out the injunction to know thyself.
+ - Of course, genes can’t pull the levers of our behavior directly. But they affect the wiring and workings of the brain, and the brain is the seat of our drives, temperaments and patterns of thought.
+ - Terrorist bombings, like rampage shootings, are events that maximize the amount of publicity per amount of damage. That’s why people do them, because they know they will set off a media frenzy.
+ - I think students should know something about religion as a historical phenomenon, in the same way that they should know something about socialism and humanism and the other great ideas that have shaped political philosophies and therefore the course of human events.
+ - The idea that children are passive repositories to be shaped by their parents has been massively overstated. A child’s peer group is a far greater determinant of its development and achievements than parental aspiration.
+ - If we are not to abandon values such as peace and equality, or our commitments to science and truth, then we must pry these values away from claims about our psychological makeup that are vulnerable to being proven false.
+ - However much we might deplore the profit motive, or consumerist values, if everyone just wants i-Pods we would probably be better off than if they wanted class revolution.
+ - Today we take it for granted that war happens in smaller, poorer and more backward countries.
+ - The elevation of parochial values to the realm of the sacred is a license to dismiss other people’s interests, and an imperative to reject the possibility of compromise.
+ - Evolutionarily speaking, there is seldom any mystery in why we seek the goals we seek – why, for example, people would rather make love with an attractive partner than get a slap on the belly with a wet fish.
+ - The foundation of individual rights is the assumption that people have wants and needs and are authorities on what those wants and needs are. If people’s stated desires were just some kind of erasable inscription or reprogrammable brainwashing, any atrocity could be justified.
+ - Commerce is a noble profession, and Jews should get over any self-hatred they might harbor from contemplating the capitalist spirit of diaspora Judaism.
+ - As every student in Philosophy 101 learns, nothing can force me to believe that anyone except me is conscious. This power to deny that other people have feelings is not just an academic exercise but an all-too-common vice, as we see in the long history of human cruelty.
+ - Galileo wrote that ’the book of nature is written in the language of mathematics; without its help it is impossible to comprehend a single word of it.
+ - No matter how inured you get to atrocities, you’re still always stunned and shocked by how cruel and wasteful Homo sapiens can be.
+ - I do look for openings where I can overturn popular misconceptions, but unlike Christopher Hitchens, I am neither a contrarian nor a lone heretic. I like to have a significant number of academics watching my back.
+ - Some people believe that the nuclear bomb should be awarded the Nobel Peace Prize, since it scared the major powers away from war by equating it with doomsday.
+ - Most intellectuals today have a phobia of any explanation of the mind that invokes genetics.
+ - An ideology can provide a satisfying narrative that explains chaotic events and collective misfortunes in a way that flatters the virtue and competence of believers, while being vague or conspiratorial enough to withstand skeptical scrutiny.
+ - If the cartoon were completely accurate, though, life would be a cacophany of spoinks.
+ - I have never been a fan of science fiction. For me, fiction has to explore the combinatorial possibilities of people interacting under the constraints imposed by our biology and history. When an author is free to suspend the constraints, it’s tennis without a net.
+
+202 quotes

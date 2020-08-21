@@ -1,0 +1,93 @@
+ - Please touch me. I need you to touch me.
+ - Love is not the absence of logic but logic examined and recalculated heated and curved to fit inside the contours of the heart.
+ - There are a million ways to lose someone you love.
+ - As for being somewhere you’re not supposed to be – Maybe you’re here for a reason, or there is no reason.
+ - I belong to you. There is no one else. All I want is to be where you are.
+ - I suppose love is never a sure thing, no matter what words are spoken. Love requires a leap of faith into the abyss, every time.
+ - But even if you have what everyone else wants- if it isn’t what you want, it isn’t what you want.
+ - I was so afraid of wanting too much that I couldn’t trust her handing me a shot at getting it. I don’t want to be that senselessly fearful ever again.
+ - The way he kissed me felt like a brand. Like he was tattooing himself under my skin.
+ - Tonight I want to stand on the side of a cliff and look down, dare the wind to gust and knock me off. Everyone thinks that falling to your death is the worst thing that can happen. But that’s a lie. The worst thing is to be alive for no reason.
+ - I say I don’t believe in love, but that’s not really true – love is just the name of an emotion. It’s like on steroids. It’s lust with ethics.
+ - What do you say when the feelings don’t fit into words?
+ - I don’t believe there’s a reason for everything, and having faith doesn’t mean I’m blind. I believe people make poor choices. I believe bad things happen to good people. I believe there’s evil in the word that I will never understand, but will never stop fighting.
+ - But just because you’re strong and resilient doesn’t mean you never need someone to be there for you, to take care of you.
+ - Everyone isn’t logical. Everything doesn’t make sense in the end. Sometimes you have to forget about explanations or excuses and leave people and places behind, because otherwise they will drag you straight down.
+ - The exception is I’m not going away. Don’t ask me to do that ever again.
+ - Look – guys are dogs. Women have known this since the beginning of time. Guys don’t want to be chased; they chase. So if you’re going to catch one, you have to know how to make him chase you.
+ - When you find yourself in a hole, the first thing to do is stop digging.
+ - And I’m okay, I really am, most of the time. But sometimes, I’m just not.
+ - Some of us can begin to heal the damage people have done to us by escaping the situation, but some of us need more than that. Tattoos make statements that need to be made. Or hide things that are no one’s business. Your scars are battle wounds, but you don’t see them that way. Yet.
+ - No offense to hot girls everywhere- but newsflash- there are hot girls everywhere.
+ - I want it to be better than okay. You deserve better than okay.
+ - I kept my eyes open on the ride home. Peeking over Lucas’s shoulder, i watched the scenery fly by-and it was exhilarating, not frightening. I trusted him. I had since that first night, when i let him drive me home.
+ - Not stupid. Overly trusting, maybe, but that reflects on his lack of trustworthiness, not on your intelligence.
+ - His breath in my ear, he ran his tongue along the curved edge, sucking the fleshy lobe and my small diamond stud into his mouth, and my eyes drifted closed while I babbled a weak sound of longing.
+ - You ’re so beautiful.
+ - I’ve changed since I’ve known you. Not because you made me into someone else – but because you showed me a path I’d never paid attention to, and I chose to follow it.
+ - And then she told me she didn’t want someone who needed her in order to be a better guy. She wanted someone who was better by himself, with or without her.
+ - No matter what happened to any individual person, life was going on elsewhere. The first time Kennedy kissed me, it stood to reason that at the same time, other people were splitting up. And the night Kennedy broke my heart, somewhere – maybe right there in my dorm, other people were falling in love.
+ - I tilt her chin up and bend my face to hers, silently praising every woman who’s had a hand in making her who she is.
+ - I’m a hopeful romantic who adores novels with happy endings, because there are enough sad endings in real life.
+ - She’s the ulimate heroine, strong-willed and independent, intelligent, loyal, but at the same time, she’s not flawless, she’s not above mistakes, or falling in love.
+ - Time would not change what I was feeling – or not feeling. I’d had time, and though the ache from his desertion hadn’t disappeared, it was decreasing. My future was blurry, yes, but I was beginning to imagine a future when I would no longer miss him at all.
+ - Stay here tonight, Jacqueline. I need to keep you here, at least tonight. Please.
+ - I watched him pull his t-shirt over his head. I could put hin on replay doing that and watch it all day...
+ - I don’t know why it’s so hard for me to say those three words. Most guys throw it around like breath, like bait.
+ - The getting is easy; the keeping is the important part.
+ - He’s already chasing you. Now all you have to do is keep running. Just not too fast.
+ - She’s like a wind-up monkey that winds itself.
+ - Erin was right. Apologies could come too late.
+ - The key to lying skillfully is never lie to yourself.
+ - Oh No! My wings are effed up!
+ - I try to be rational and suppress the hope that this is for real, but hope has a way of closing its eyes to reason and it just keeps growing.
+ - I never wanted you to get hurt, but i wanted to take you from him.
+ - No matter what grief or loss takes place, most of life flows on all around us, as though nothing’s changed. At some point in our sorrow, we each make a choice to sink or swim. There’s no alternative.
+ - When you finally figure out what you really want, everything else pales in comparison.
+ - When you find yourself about to say something that crosses a line, something that could cause irreparable harm, sometimes the best you can do is just not say that thing.
+ - That’s what faith is, right?’ he says. ‘Believing in what can’t be known? Fall into my arms, Dori. I’ll catch you, every time, and I won’t let go.
+ - As we lay in the semi-dark hours later, we faced each other, sharing his pillow. I’d never felt more connected to anyone.
+ - LUCAS: I’ve done a couple from memory but they aren’t the same. Can’t quite get the shape of your jaw. The line of your neck. And your lips. I need to spend more time staring at them and less time tasting them. ME: I can’t say i agree with that notion. LUCAS: More of both, then.
+ - Few of us can actually change the world. We can only change ourselves. But if enough people took that to heart, the world would change.
+ - But the scars are always there, waiting for something to poke them.
+ - Woman, if i was straight, i would steal you from him so hard.
+ - I thought about texting Lucas, but what would i say? That i’d tossed and turned all night, thinking of his hands on me?
+ - It isn’t fair how I doubt him, and I wonder if he’ll ever gather that my loss of faith extends further than I’d ever known it would, severing lines of trust and leveling my confidence like a city-flattening tornado.
+ - Bonus: I now knew what Erin meant by lickable abs.
+ - He took one of my hands in his, and I brought the other to his face, wondering how his eyes could look like chipped ice and still warm me to my core.
+ - Somebody always wants more.
+ - Every moment was a before and an after. Every moment was a now to be lived.
+ - That’s how they say it: He loves you in his own way. Well, what about my way? What if I need for him to love me in my way?
+ - I’d basically described myself: a quiet, studious bookworm who would go to bed at a decent hour. A non-partier who wouldn’t bring a parade of boys through our room, or make it the floor headquarters for beer pong.
+ - Sorry, boyfriends everywhere – you’re doomed to sit through an hour and forty-seven minutes of syrupy drivel. The payoff? Between my face, Tadd’s abs and Quinton’s biceps, your girl will be ready for takeoff as soon as the credits roll. You’re welcome.
+ - Too much quiet left me depressed and consuming condiments for meals.
+ - But I’ll say this, if what looks like the facts of the matter are conflicting with your feelings, then you need more information before deciding.
+ - I was sure you ’d dropped the class, which made me selfishly ecstatic. Without even knowing i was doing it, i started looking for you on campus.
+ - The truth was, he now belonged only to my past, and it was time I begin to accept it, as much as it hurt to do so.
+ - There’s something uncontaminated about her, and I don’t even mean sexually or whatever. I mean the way she is, at her core. Like when you wake up and the world has been blanketed by snow overnight, and not a single footstep or tire track has spoiled the untouched perfection of it.
+ - Testing her sexuality, she thinks she’s caught a beautiful fish, when in reality, she’s netted a shark.
+ - I could never be afraid of you.
+ - It was as though he didn’t exist, and then suddenly, he was everywhere.
+ - I shrugged. “I guess that guys who’d never do something like that have a hard time believing some other guy would,” I said, but I could see her point. Awareness and apologies were fine and good, but they could come too late.
+ - What I can’t do anywhere is be with you.
+ - Really, he could have just punched me in the stomach, because my brain refused to comprehend the words he was saying. A physical assault, it might have understood.
+ - People rarely said what they thought, or revealed how they felt. No one was honest.
+ - He laughed, and the sound reduced the pain of every sore place on my body to the dullest ache.
+ - Over the past three years, we’d become each other’s habit. And though he’d broken his habit of me when he walked away, I’d not broken my habit of him.
+ - Good God, what did he not remember?
+ - He stared down at me, and i examined his beautiful eyes up close, something i’d never tire of doing.
+ - Damn Kennedy. Damn him, damn him. It would serve him right to see me with someone like Lucas. Someone so different, but equally hot. More so, if I started calculating details.
+ - So when do we get to the junk-kicking?
+ - Rather than raising his voice like everyone else, he leaned close to my ear and asked, “Dance with me?” I felt his warm breath and inhale the scent of his aftershave -something basic and male.
+ - I breathed him in, closing my mouth tight and inhaling the scent of him through my nose. I felt sheltered by him. Safe.
+ - Erin and I spent four hours shopping for dresses and shoes Tuesday night. She was going all out in her intention to make Chaz regret any decision he’d made that didn’t include worshipping at her feet.
+ - He was in a slow-motion mood-one of my favorites, though it meant i’d be driven crazy before we were done.
+ - Landon Loucas Maxfield was asleep on his sofa. With me.
+ - I’ve been known to slum it and shop in the gag-him-and-bag-him aisles, believe it or not.
+ - Alarmed, I realized what my visceral reaction implied: jealousy. Over a guy I barely knew, with whom I’d exchanged more saliva than sentences.
+ - People feel the need to choose sides when a relationship splits – it’s human nature.
+ - I’ve come to ask how you do it. How you feel what I know you’re feeling and then walk away like that.
+ - Alcohol removes inhibitions. It doesn’t trigger criminal violence where there was none before.
+ - They call it ‘falling in love’ because it’s less like stepping and more like tripping. Tripping is the part where you’re still trying to remain upright.
+
+91 quotes

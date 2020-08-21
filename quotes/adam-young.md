@@ -1,0 +1,32 @@
+ - Reality is a lovely place, but I wouldn’t want to live there.
+ - I am fallen, flawed and imperfect. Yet drenched in the grace and mercy that is found in Jesus Christ, there is strength.
+ - If you can fly, don’t stop at the sky, ’cause there’s footprints on the moon!
+ - Life isn’t how you survive the thunderstorm, but how you dance in the rain.
+ - Stay in the Word. The moment you start letting go of that, you’re on the road to compromise. Stay grounded, remain pure, keep your eyes fixed on Jesus.
+ - Writing music is like tasting the sky. It keeps me dreaming in color.
+ - I live alone in a house, so for me it’s very good to just be able to re-charge and just disappear and escape from reality and that’s usually when I write most of my lyrics and my songs. It’s a very happy productive place.
+ - When you write, produce, engineer and mix everything yourself, it tends to take a long time to do anything. And when you’re a perfectionist little monster, it makes it even harder. But it’s a blast and I wouldn’t trade the opportunity for all the ice cream sandwiches in the universe.
+ - You’ve got mountains of your own, I’ll bet on it. Take heart. Be encouraged. Remain steadfast. Hang on for dear life. You’ve got a better grip than you realize.
+ - Sometimes the good fight feels impossible, but I for one, am NOT giving up.
+ - I’m scared to death that I’ll never be afraid.
+ - Maybe some are so busy waiting, they forget what indescribable beauty is right there in front of them.
+ - It’s very cool for me to be able to get in an airplane and fly for fourteen hours and show up in a place I never thought I’d ever be and have kids in the same room singing these songs I’d written so far away. To me, that’s so surreal.
+ - Time. There is much time left and lots of life seasons. There is much to see, to do, and to be.
+ - I kind of tend to do most of my adventures in my mind.
+ - Today I fell asleep reading a book. The book is called INSOMNIA. I win.
+ - I really do like surprises. I’m not so talented at planning things out or having schedules before or sticking to the plan per se, but yeah I’m very much a spontaneous guy and it’s sort of hard for me to multi-task and to have all these things going on at once.
+ - For me, it’s always best to just push everything out and just disappear by myself alone somewhere – and it’s kind of like a need of mine.
+ - A boy and a girl started dating after he backed his car into hers. They met by accident.
+ - Usually, whatever’s in front of me is what I’m focused on and it’s 100% on that and then I kind of move from one thing to the next. Like, if I go to a restaurant and I order food, I always just eat one thing at a time.
+ - I’m a very introverted guy, so I don’t need to be around people for as long as someone who’s very extroverted to get that sort of social fix per se.
+ - Someone invent a NO LIFE alert so you can push a button and tons of people show up and hang out with you.
+ - I’d probably go to see Saturn first-thing and see as close to those rings as I can get and see if I can fly by one of them and try and put one of my hands through them.
+ - I built you a sandcastle because you’re a princess, but I tore it down because I’m a loser.
+ - I’m a studio guy. That’s really what I love the most. I’m so fascinated with audio gear and recording techniques and whatnot, it’s pretty mesmerizing.
+ - When you listen to someone sing from inside their head, their same mix, and you listen to their voice as loud as they like it, or the track of the band as low as they like it, you can really hear all of the nuances and the mistakes if there are any.
+ - I tend to have to just get away from it all, so it is nice when touring to be able to come home for a week or two and close the door and not really see anybody.
+ - You work so hard at something to make sure that it’s very pure and very genuine and very steadfast to who you are, so creative control for me is a big one. Thankfully, I’ve been able to retain 98% of it which I never really expected, so I’m very grateful to be able to control what I can.
+ - When I was a small boy, old people used to squat down to my eye level and ask me what I wanted to be when I grew up, to which my answer was invariably, “a pirate.” Their stunned silence was always very reassuring.
+ - There is no old Adam Young, there is no new Adam Young, merely different colors and? different brushstrokes over the same canvas.
+
+30 quotes

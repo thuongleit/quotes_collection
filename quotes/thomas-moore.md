@@ -1,0 +1,61 @@
+ - A friendship that like love is warm; A love like friendship, steady.
+ - Here bring your wounded hearts, here tell your anguish; Earth has no sorrow that Heaven cannot heal.
+ - Silence is not an absence of sound but rather a shifting of attention toward sounds that speak to the soul.
+ - Humility, that low, sweet root, from which all heavenly virtues shoot.
+ - We need people in our lives with whom we can be as open as possible. To have real conversations with people may seem like such a simple, obvious suggestion, but it involves courage and risk.
+ - When Time who steals our years away Shall steal our pleasures too, The mem’ry of the past will stay, And half our joys renew.
+ - A soulmate is someone to whom we feel profoundly connected, as though the communicating and communing that take place between us were not the product of intentional efforts, but rather a divine grace.
+ - A few moments of silence may be all the meditation we need at times. Our homes could have a little space for withdrawal and quiet, and even a small garden could offer some distance from noise.
+ - It is precisely because we resist the darkness in ourselves that we miss the depths of the loveliness, beauty, brilliance, creativity, and joy that lie at our core.
+ - You may break, you may shatter the vase, if you will, But the scent of the roses will hang round it still.
+ - Romantic love is an illusion. Most of us discover this truth at the end of a love affair or else when the sweet emotions of love lead us into marriage and then turn down their flames.
+ - To love you was pleasant enough. And, oh! ’tis delicious to hate you!
+ - The ordinary acts we practice every day at home are of more importance to the soul than their simplicity might suggest.
+ - Came but for friendship, and took away love.
+ - Socrates and Jesus, two teachers of virtue and love, were executed because of the unsettling, threatening power of their souls, which was revealed in their personal lives and in their words.
+ - The key to seeing the world’s soul, and in the process wakening our own, is to get over the confusion by which we think that fact is real and imagination is illusion.
+ - Come o’er the sea, Maiden with me, Mine through the sunshine, storms and snows; Seasons may roll, But the true soul Burns the same, where’er it goes.
+ - Finding the right work is like discovering your own soul in the world.
+ - What’s important is finding out what works for you.
+ - The past, the future: – two eternities!
+ - Peace to each manly soul that sleepeth; Rest to each faithful eye that weepeth...
+ - Go where we may, rest where we will, Eternal London haunts us still.
+ - It is only through mystery and madness that the soul is revealed.
+ - The heart that has truly loved never forgets, But as truly loves on to the close.
+ - Soul is to be found in the vicinity of taboo.
+ - Rich and rare were the gems she wore, And a bright gold ring on her hand she bore.
+ - And the heart that is soonest awake to the flowers is always the first to be touch’d by the thorns.
+ - We let a river shower its banks with a spirit that invades the people living there, and we protect that river, knowing that without its blessings the people have no source of soul.
+ - A genuine odyssey is not about piling up experiences. It is a deeply felt, risky, unpredictable tour of the soul.
+ - From plants that wake when others sleep, from timid jasmine buds that keep their odour to themselves all day, but when the sunlight dies away let the delicious secret out to every breeze that roams about.
+ - Though an angel should write, still ’tis devils must print.
+ - Bastard Freedom waves Her fustian flag in mockery over slaves.
+ - A pretty wife is something for the fastidious vanity of a roue to retire upon.
+ - Usually, the main problem with life conundrums is that we don’t bring to them enough imagination.
+ - Faith, Fanatic faith, once wedded fast to some dear falsehood, hugs it to the last.
+ - All that’s bright must fade, The brightest still the fleetest; All that’s sweet was made But to be lost when sweetest.
+ - This is the right time, and this is the right thing.
+ - Disappointments in love, even betrayals and losses, serve the soul at the very moment they seem in life to be tragedies. The soul is partly in time and partly in eternity. We might remember the part that resides in eternity when we feel despair over the part that is in life.
+ - Love doesn’t demand perfection, but it does ask you to give yourself with less reserve than you’d prefer.
+ - Though the last glimpse of Erin with sorrow I see, Yet wherever thou art shall seem Erin to me; In exile thy bosom shall still be my home, And thine eyes make my climate wherever we roam.
+ - Fond memory brings the light of other days around me.
+ - I thought that the light-house looked lovely as hope, That star on life’s tremulous ocean.
+ - There is no way to re-enchant our lives in a disenchanted culture except by becoming renegades from that culture and planting the seeds for a new one.
+ - With what a deep devotedness of woe I wept thy absence – o’er and o’er again Thinking of thee, still thee, till thought grew pain, And memory, like a drop that, night and day, Falls cold and ceaseless, wore my heart away!
+ - Most, if not all, problems brought to therapists are issues of love. It makes sense that the cure is also love.
+ - It may help us, in those times of trouble, to remember that love is not only about relationship, it is also an affair of the soul.
+ - Every season hath its pleasure; Spring may boast her flowery prime, Yet the vineyard’s ruby treasuries Brighten Autumn’s sob’rer time.
+ - It is quite cruel that a poet cannot wander through his regions of enchantment without having a critic, forever, like the old man of the sea, upon his back.
+ - The problem in narcissism is not the high ideals and ambitions, it’s the difficulty one encounters when trying to give them body.
+ - I have plenty of machinery around me; what I really need is a more enchanting world in which to live and work.
+ - This wretched brain gave way, and I became a wreck at random driven, without one glimpse of reason or heaven.
+ - Like the stain’d web that whitens in the sun, grow pure by being purely shone upon.
+ - The soul doesn’t distinguish between good and bad as much as between what is nutritious and what isn’t. Finding the right work is like discovering your own soul in the world.
+ - Like ships that have gone down at sea, when heaven was all tranquillity.
+ - How many times do we lose an occasion for soul work by leaping ahead to final solutions without pausing to savor the undertones? We are a radically bottom-line society, eager to act and to end tension, and thus we lose opportunities to know ourselves for our motives and our secrets.
+ - In our prayer and meditation we hope for fulfilling ordinary life.
+ - It is only to the happy that tears are a luxury.
+ - A philosopher being asked what was the first thing necessary to win the love of a woman, answered, Opportunity!
+ - Sweet flowers alone can say what passion fears revealing.
+
+59 quotes

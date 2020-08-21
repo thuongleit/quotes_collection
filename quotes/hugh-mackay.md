@@ -1,0 +1,29 @@
+ - Nothing is perfect. Life is messy. Relationships are complex. Outcomes are uncertain. People are irrational.
+ - No one welcomes chaos, but why crave stability and predictability?
+ - It’s Australian to do such things because, however uncivilised they may seem, it’s human to do them.
+ - So, if falling crime rates coincide with the rise of violent video games and increasing violence on TV and at the cinema, should we conclude that media violence is causing the drop in crime rates?
+ - I suspect the secret of personal attraction is locked up in our unique imperfections, flaws and frailties.
+ - It is the misfortune of contemporary leaders, across the whole spectrum of Australian life, that the community’s demand for strong leadership is growing in direct proportion to our lack of confidence in ourselves. The end of this century is an unusually difficult time to be a leader in Australia.
+ - Universal literacy was a 20th-century goal. Before then, reading and writing were skills largely confined to a small, highly educated class of professional people.
+ - Some researchers sensibly suggest that rather than worrying too much about which programs our children are watching, we should concentrate on trying to reduce the total amount of time they spend in front of the screen.
+ - The copycat effects of media violence, similar to those previously attributed to westerns, radio serials and comic books, are easy to exaggerate.
+ - The thing we need most is each other.
+ - Although we love the idea of choice – our culture almost worships it – we seek refuge in the familiar and the comfortable.
+ - Parents should be encouraged to read to their children, and teachers should be equipped with all available techniques for teaching literacy, so the varying needs and capacities of individual kids can be taken into account.
+ - Indeed, in the present climate of mistrust of institutions, many people who yearn for a more meaningful and fulfilling life would regard the church as an unlikely place to go for guidance.
+ - Still, most of those effects occur in the context of harmless play and it is patently obvious that children are not normally turned into aggressive little monsters by TV or video games, since most children do not become aggressive little monsters.
+ - One reason we resist making deliberate choices is that choice equals change and most of us, feeling the world is unpredictable enough, try to minimise the trauma of change in our personal lives.
+ - It seems inevitable that the magic of the written word will fade.
+ - But the rule seems to be that the bigger and more life-changing the decision, the less it will seem like a decision at all.
+ - Is it possible that literacy standards are falling because young Australians are growing up in a culture in which they can be entertained and informed, and in which they can communicate effectively, without having to master any but the most rudimentary literacy skills?
+ - On average, Australians watch more than three hours of television a day, compared with 12 minutes a day spent by the average couple talking to each other.
+ - Reading is a huge effort for many people, a bore for others, and, believe it or not, many people prefer watching TV.
+ - Obviously, every child should be given the best possible opportunity to acquire literacy skills.
+ - With increasing frequency and growing vehemence, you hear people saying they are ashamed to be Australians.
+ - But many researchers operate as if it is their responsibility to demonstrate that video violence has a direct effect on the behaviour of young children, because that will help to explain why society is becoming more violent.
+ - Actually, I can’t imagine anything more tedious than a perfect person, especially if it was someone who also demanded perfection from me.
+ - Polls are no substitute for leadership because, at its very essence, leadership is about giving people what they don’t already have – a sense of vision, inspiration, or even an adequate grasp of a particular subject.
+ - Yet in our enthusiasm for the idea that everyone should be able to read and write fluently, we may be missing a crucial point: in today’s culture, finely honed literacy skills are simply not as important as they once were.
+ - A strangely reflective, even melancholy day. Is that because, unlike our cousins in the northern hemisphere, Easter is not associated with the energy and vitality of spring but with the more subdued spirit of autumn.
+
+27 quotes

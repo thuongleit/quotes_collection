@@ -1,0 +1,116 @@
+ - You’ve changed me forever. And I’ll never forget you.
+ - Heal my heart and make it clean, open up my eyes to the things unseen, show me how to love like you have loved me.
+ - Break my heart. Break it a thousand times if you like. It was only ever yours to break anyway.
+ - Break my heart for what breaks yours. Everything I am for you kingdom’s cause, as I walk from nothing to eternity.
+ - I’ll love you until my very last breath. Every beat of my heart is yours. I don’t want to die without you knowing that.
+ - Cinderella never asked for a prince. She asked for a night off and a dress.
+ - Live your life. Be happy as you can be, let go of the things that don’t matter, and fight.
+ - True love is usually the most inconvenient kind.
+ - The best people all have some kind of scar.
+ - All I knew was, even if she wasn’t mine, I wanted to leave her with a smile.
+ - Mistakes mean it’s real.
+ - Accepting help is its own kind of strength.
+ - No, I’m not choosing him or you. I’m choosing me.
+ - Darling, you’re perfect.
+ - Love is beautiful fear.
+ - When you love someone, you sacrifice.
+ - You’re an idiot, Maxon Schreave. Your parents have completely sabotaged you. You could have a thousand girls set before you, and it wouldn’t matter. You’re too stupid to see love when it stands right in front of you.
+ - Need someone to talk to? I could tug my ear right now.
+ - It’s always the fear of looking stupid that stops you from being awesome.
+ - You know that you’ve found something amazing, and you want to hold on to it forever; and every second after you have it, you fear the moment you might lose it.
+ - Leave it to you to find beauty in something others would say ruins a day.
+ - I let myself be sad. I let myself think of him.
+ - The Selection was no longer something that was simply happening to me, but something I was actively a part of. I was an Elite.
+ - Bravery hides in amazing places.
+ - Sometimes I feel like we’re a knot, too tangled to be taken apart.
+ - Any girl who would risk her life for someone she loves certainly deserves to be called a lady.
+ - Maybe what I wanted was stupid. Maybe it wasn’t even something I could have. But, still it was mine. I didn’t think I could sacrifice my dreams, no matter how much my family meant to me.
+ - Your Majesty – Tugging my ear. Whenever.
+ - It turns out I’m absolutely terrible at staying away from you. It’s a very serious problem.
+ - You’re too beautiful for your own good. Once you leave, we’ll have to send some of the guards with you. You’ll never survive on your own, poor thing.
+ - You were the one who changed us when you left me in the tree house; and you keep thinking that if you push hard enough, you can make everything go back to before that moment. It doesn’t work that way. Give me a chance to choose you.
+ - I think there are pieces of yourself that you will always guard.
+ - History isn’t something you study. It’s something you should just know.
+ - I kind of wanted someone to rearrange the stars so they spelled out his words. I needed them big and bright, and somewhere I could see then when things felt dark. I love you. And I’m so, so proud.
+ - You’re worth it. I don’t think you get that. You’re worth it to me.
+ - It was a special feeling, irreplaceable, that was priceless. No queen on the throne could feel more important than me.
+ - I don’t know if I’m supposed to be holding on or letting go. I don’t want to give up, but if there’s nothing for me to hope for, then tell me.
+ - And I know I’m about to play second fiddle to another woman, as I should. But my love for you will never change, Maxon.
+ - America Singer, one day you will fall asleep in my arms every night. And you’ll wake up to my kisses every morning.
+ - I want everything with you, America. I want the holidays and the birthdays, the busy season and lazy weekends. I want peanut butter fingertips on my desk. I want inside jokes and fights and everything. I want a life with you.
+ - It’s just the way it is. The sky is blue, the sun is bright, and Aspen endlessly loves America. It’s how the world was designed to be.
+ - Listen to me, kitten. Win or lose, you’ll always be a princess to me.
+ - There are some things you don’t learn about yourself until you let someone else into the most intimate places of your heart.
+ - It wasn’t like I made his world better. It was like I was his world. It wasn’t some explosion; it wasn’t fireworks. It was a fire, burning slowly from the inside out.
+ - Castes never meant that much to me.
+ - I was nearly attacked. All because I missed your smell.
+ - Every girl will come with pros and cons. Some people will choose to focus on the worst in some of your options and the best in others, and it will make no sense to you why they seem so narrow minded. But I’m here for you, whatever your choice.
+ - It was almost comforting, this mutual acceptance of our secrets.
+ - She had brillant red hair, like honey and roses and the sun all together.
+ - I should have known that if any girl was going to disobey an order, it would be you.
+ - My shoes I got to pick. I chose worn-out red flats. I figured I should make it clear from the start that I wasn’t princess material.
+ - Opinions change. Don’t let that one moment bring you down too much.
+ - America, you are full of nothing but bad ideas. Great intentions but awful ideas.
+ - You deserved to be loved. And I hope you get to marry for love and not a number.
+ - Ah yes, the man or the crown. I’m afraid some can’t tell the difference.
+ - Great. Now the queen thought I was a misfit, too.
+ - It’s amazing how photography can capture just a split second of something exquisite.
+ - If this were a simpler matter, I’d have eliminated everyone else by now.
+ - The picture of me just after I’d found out Aspen was saving up to marry me. I looked radiant, hopeful, beautiful. I looked like I was in love. And some idiot thought that love was for Prince Maxon.
+ - You get confused by crying women, I get confused by walks with princes.
+ - And I know it’s over, but it’s the same way I felt when you broke up with me.
+ - It is fine to be upset, but that won’t get you anywhere. You gotta think about what you can learn from this. So far, looks like all you’ve learned is how to beat up on something that can’t beat you back.
+ - It’s because I’m so good-looking, isn’t it?
+ - How did thie person-someone I’d imagined would be my polar opposite-always seem to find the things that would make me the happiest?
+ - He wasn’t allowed to come with me there – my own rule for this little adventure. No more. Good-bye, Aspen.
+ - I’d spare your tears for the rest of your life if I could.
+ - Vehemently denying something always implies guilt.
+ - Is this a good time to pat your shoulder?
+ - Well, the one thing I’ve thought about is having dad give me away. You know when he takes your hand and he puts it in the hand of the person you marry? That’s the only part I’ve ever wanted.
+ - I had to stop myself from laughing. Who needs help taking a pill?
+ - No wonder I’d never had any friends. I was shockingly bad at it.
+ - But I guessed she would never stop wanting more for me, more from me. Maybe that’s what mothers did.
+ - He reached up and tugged his ear. And I did the same.
+ - America, there’s no question that you’ve had my heart from the beginning. By now you have to know that.
+ - Try patting them on the back or shoulder and telling them everything is going to be fine. Lots of times when girls cry, they don’t want you to fix the problem, they just want to be consoled.
+ - She couldn’t have been more than twelve years old. In her hands was a sign that said RED-HEADS RULE! with a little crown painted in the corner and tiny stars everywhere. I knew I was the only redhead in the competition, and I noticed that her hair and mine were very nearly the same shade.
+ - The Swendish queen – whose name I couldn’t pronounce to save my life.
+ - So here I was expecting at the very best a cordial welcome from the girls who were prepared to fight me to the death for someone I didn’t want. Instead I was embraced.
+ - I pranced around the room like a blind moose, but what I lacked in grace I made up for in effort.
+ - Correct. President Wallis was the president before the Chinese assault and continued leading the United States throughout the war.
+ - Yeah, Mom, I’ll just keep telling the prince that he has absolutely no shot with me and offend him as often as I can. Great plan.
+ - And Carolina will be cheering on the beautiful daughter of Magda and Shalom Singer, the new Lady America Singer!
+ - It hurt me to be away from him. Some days I went crazy wondering what he was doing. And when I couldn’t handle it, I practiced music. I really had Aspen to thank for me being the musician that I was. He drove me to distraction. And that was bad.
+ - If this were a simpler matter, I’d have eliminated everyone else by now. I know how I feel about you. Maybe it’s impulsive of me to think I could be so sure, but I’m certain I would be happy with you.
+ - I guessed princesses-in-training didn’t wear pants.
+ - I curled closer to May, comforted by her warmth.
+ - That was my great ambition. Not to be Illea’s princess. To be Aspen’s.
+ - When we died, no one would know, and that fraction of a moment that was so important to who we were would be gone.
+ - He’d wanted his first kiss to be with me.
+ - She must have been debating staying in the line or forcing me to run home and change.
+ - You ask for such simple things, I can’t deny you.
+ - I’ve tried to make choices. You don’t really trust me to.
+ - I only wish I knew that you’d actually want to be with me when that time is over.
+ - I thought about the cameras following me in the terminal and pictured my family watching my entrance on TV. I hoped they’d be proud.
+ - Despite the knowledge that her affections were unattainable, I couldn’t help but be drawn to try.
+ - I know there was a time, when our country was new, when the assignment of these numbers helped organize something that was on the brink of not existing. But we are no longer that country. We are so much more now.
+ - Knowledge isn’t love.
+ - If we just planned for everything we could, we’d make it through everything we couldn’t.
+ - Because even though you’re dating five other women, I think I’m cheating on you.
+ - It doesn’t really matter how you feel about your character; it just matters what you do with it.
+ - All the talk in the world won’t undo what we are. They put us in a corner we could never get out of on our own, and they’re not in a rush to pull us out.
+ - But if it was always a point of speculation, where one person insisted it was a certain way and another denied it, how would anyone ever hold on to the truth?
+ - I would be the best of us, the highest of the lows.
+ - One can never help being born into perfection.
+ - But you should know the love can wear away under the stress of being married. Someone you think you love now, you might start to hate when he couldn’t take care of your children, it’d be even worse. Love doesn’t always survive under those circumstances.
+ - If you don’t want me to be in love with you, you’re going to have to stop looking so lovely. First thing tomorrow I’m having your maids sew some potato sacks together for you.
+ - You made me proud, America. Sometimes I’m surprised at the things you say, but I don’t know why. You were always stronger than you knew.
+ - You are not the world, but you are everything that makes the world good.
+ - It’s hard to know everything about people close to you, even the people you love the most.
+ - Mary took hold of the zipper. “Suck it in, miss.” I obeyed, and as the dress cinched me in again, I thought of a soldier going to war. Different armor but the same idea. Tonight I was taking down a man.
+ - You said that to get things right one of us would have to take a leap of faith. I think I’ve discovered the canyon that must be leaped, and I hope to find you waiting for me on the other side.
+ - Could it be that simple? Tell one story to one generation and repeat it until it was accepted as fact?
+ - A lot of things are yours, America.
+ - When has anything in either of our lives ever been fair?
+
+114 quotes

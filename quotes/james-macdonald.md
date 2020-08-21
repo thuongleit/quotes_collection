@@ -1,0 +1,63 @@
+ - Jesus washing the disciples feet is the most supreme act of humility in all of God’s word.
+ - Gratitude is the attitude that sets the altitude for living.
+ - By your grace, I will not despair. I believe that I will see the goodness of the Lord in the land of the living.
+ - The core of humanity’s sin problem is not a horizontal behavior to be corrected but a Vertical relationship to be restored.
+ - I will not fail: God is always victorious.
+ - If you’re wrong in the way you’re right, you’re wrong even if you’re right.
+ - The Christian way is a life of faith. In order to hold on to the promises of God, you’ve got to believe them and live by them.
+ - A rebellion against God, even as believers, is fueled by the toxic fumes of unbelief.
+ - When we get bumped – we spill what we are full of – Be strong in the grace that is in Christ Jesus.
+ - Humility is losing yourself in the doing of serving.
+ - When God promises, He’s not saying, I’ll try. He means, I can and I will.
+ - It doesn’t matter what has happened, better things are coming. God’s plan produces hope in me.
+ - Doubt is a lack of confidence or assurance that God will keep his promises. Faith is an active confidence that God’s promises are always true.
+ - Faith sees the opportunity; doubt sees the obstacles. What you see is what you get!
+ - When you say, I don’t know exactly what God is doing, but I know he’s in control that’s evidence you’re trusting Him.
+ - I don’t have everything I want but I have everything I need. That’s contentment.
+ - Trust means you anchor your heart in the reality of God’s awareness of your situation.
+ - Humility is a do thing, not a feel thing. Humility is an action, not a style.
+ - When we worry, we are telling God, “You are neither trustworthy nor in control, so I need to worry and scheme as I take matters into my own hands.” In this way unbelief drives worry, for it is impossible to worry when we are trusting in the provision of our sovereign God.
+ - At this moment, God is watching your life and at some point in this trial, He will say enough. You don’t need to falter.
+ - The biggest obstacle to making Christ magnificent is the refusal to make yourself small.
+ - Don’t miss God’s fingerprints all over the events, lining up people and circumstances in perfect timing to preserve His people and advance His agenda.
+ - Don’t lean on your own understanding. If your trust in God is limited by your understanding of His ways, you will always have a limited trust.
+ - Fear is the contradiction of faith. Faith says, Whatever it is, it’ll be okay because of God.
+ - Repentance is the key that unlocks the door to all that God has for us, but it is not easy.
+ - You can’t teach a person to love something. But you can get him to feel the heat of your love for something.
+ - What kind of future is in God’s plan? A good one to which you can look forward. That’s why you can hope.
+ - I experience transcendence when something infinite reminds me I am finite.
+ - God brings tests into your life because your faith in Him – your belief that He is in control and that He is good – can be proved only in times when life is hard.
+ - When it’s personal and painful, humble yourself.
+ - Church was never intended to be a place where we serve God to the exclusion of meeting with Him.
+ - What you hope for determines what you live for. What you hope for determines WHO you live for. Hope misplaced can devastate you.
+ - Beware of begging God for things you don’t have to have.
+ - Take a deep breath and take this to heart; God has nothing to do with broken promises. When He says, I promise, mark it down it’s going to happen.
+ - This fight is not going to be over in 10 minutes or 10 weeks; there’s no quick solution. If you think it’s taking too long, remember, God is with you.
+ - While we wait, God builds our faith in His promises.
+ - Praying is what confirms our true belief that we cannot succeed without God, and its absence confirms the exact opposite.
+ - While you can’t keep fear from visiting, you can slam the door in its face. With God’s promise in your hand, that’s exactly what you are able to do.
+ - It’s not unlikely that God would lie that would be a matter of probability. It is impossible for God to lie.
+ - Whether you realize it or not, your ongoing battle with unbelief drives all your sinful thoughts, emotions, desires, and actions.
+ - If He wasn’t going to use that hard thing for your good, it wouldn’t have happened. He had to sign off on every single thing that touches your life.
+ - You’ll face overwhelming odds; you’ll be incredibly outnumbered. Fear would be your natural inclination. But keep in mind, God is with you.
+ - God looked through eternity past and He saw you and He chose to reach out and redeem you by His own grace. It’s hard to imagine that kind of love.
+ - Every obedience is not easy. This is for Jesus Christ. He deserves everything!
+ - You will never experience the fullness of joy you were created to know until Jesus Christ has first place in every area.
+ - Competing loves are detected in the gap between saying and doing.
+ - Let God Himself be the main attraction at church again...
+ - The marquee scrolling across our minds trying to reinterpret life reads: “God-Against-Us.” This becomes the dominant lens through which our flesh interprets life. We no longer give our loving Father the benefit of the doubt. Instead, we view every event as conclusive proof that God is against us.
+ - God owns the truth. The issue is our ability to derive truth apart from God’s sufficient Word.
+ - You might not think it now, but if you’re one of God’s children, you’re going to figure it out by the end of your life God is good.
+ - The day you stop loving your people, they’re not your people anymore.
+ - The counselee should be aware that you are not God. Better yet, she should be aware that you are aware that you are not God.
+ - Only when we have done all we knew to do can we wait by faith for God to do what only He can do.
+ - I want to be a part of the grand plan. Being on board with God’s objectives means I understand that this is not about me.
+ - Do the things you used to do, and you’ll feel the feelings you used to feel.
+ - We all know the disappointments that come when we base anticipation on what we and other humans can deliver. God will never have a problem delivering!
+ - Too many times we’re looking for ways to get around deep waters and dangerous fires, rather than through them. Has this ever been your experience?
+ - I’ve learned to be careful of becoming a critic. Criticism really sours your heart.
+ - Let God Himself be the main attraction at church again, and let us be tireless in our insistence that church is for God, about God, through God, and to the glory of His great Son.
+ - I have been studying now for about 2 years, on a rather intensive basis, the UFO problem. I have interviewed several hundred witnesses in selected cases, and I am astonished at what I have found.
+ - God’s not afraid of a mess. He wants to do a cleaning.
+
+61 quotes

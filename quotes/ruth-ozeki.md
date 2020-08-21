@@ -1,0 +1,37 @@
+ - Life is fleeting. Don’t waste a single moment of your precious life. Wake up now! And now! And now!
+ - What if I travel so far away in my dreams that I can’t get back in time to wake up?
+ - Everything in the universe is constantly changing, and nothing stays the same, and we must understand how quickly time flows by if we are to wake up and truly live our lives.
+ - The relationship between reader and writer is reciprocal in a way. We co-create each other. We are constantly emerging out of the relationship we have with others.
+ - With the ancient is wisdom; and in length of days understanding.
+ - There are many answers, none of them right, but some of them most definitely wrong.
+ - But in the time it takes to say now, now is already over. It’s already then.
+ - I have a pretty good memory, but memories are time beings, too, like cherry blossoms or ginkgo leaves; for a while they are beautiful, and then they fade and die.
+ - I think that if we don’t learn to inhabit other people’s perspectives, then we’re never going to understand why people do what they do.
+ - I believe it doesn’t matter what it is, as long as you can find something concrete to keep you busy while you are living your meaningless life.
+ - Sometimes when she told stories about the past her eyes would get teary from all the memories she had, but they weren’t tears. She wasn’t crying. They were just the memories, leaking out.
+ - Inspiration comes from everything from the entire world, and its hard to pinpoint one thing. I can trace one inspiration to the writing of 13th-century Zen master Dogen Zenji, who writes beautifully about time.
+ - My mind is like a gyre, and odd juxtapositions happen.
+ - Fiction is an elemental force, which has the power to shape reality in its own image – or images, I should say – because reality, like light, exists not only as a single point or particle, but also as an array of possibilities.
+ - Life is evanescent, but left to itself it rarely fails to offer some consolation.
+ - That’s what it feels like when I write, like I have this beautiful world in my head, but when I try to remember it in order to write it down, I change it, and I can’t ever get it back.
+ - An unfinished book. left unattended, turns feral, and she would need all her focus, will and ruthless determination to tame it again.
+ - No matter how much bullying they inflict on my body, as long as I have this hope, I can endure any pain.
+ - The wondrous thing about nature, her gift to us, is her wanton promiscuity. She reproduces herself with abandon, with teeming infinite generosity.
+ - It takes a long time to write a book. I’m not going to spend that much time trying to deliver a message. The reason I do it is because I want to understand something myself. It’s not a delivery device, it’s an inquiry device. Didactic fiction to my mind never works. It backfires.
+ - When Im writing a novel, which is what I like to write, I get up early, sit zazen, make a pot of green tea. I wear wrist cuffs to keep my wrists warm and minimize irritation from extended contact with the surface of my desk. I sit down and write.
+ - And if you decide not to read anymore, hey, no problem, because you’re not the one I was waiting for anyway. But if you decide to read on, then guess what? You’re my kind of time being and together we’ll make magic!
+ - The important thing was that we were being polite and not saying all the things that were making us unhappy, which was the only way we knew how to love each other.
+ - Casting your voice out into the future is very beautiful to me.
+ - Information is a lot like water; it’s hard to hold on to, and hard to keep from leaking away.
+ - You never know who it’s going to be, or what they’ll bring, but whatever it is, it’s always exactly what is needed.
+ - Writing a book is a way of thinking to me, the only way of thinking that I have found successful.
+ - Print is predictable and impersonal, conveying information in a mechanical transaction with the reader’s eye. Handwriting, by contrast, resists the eye, reveals its meaning slowly, and is as intimate as skin.
+ - Every seed has a story.
+ - A person is born form the deep conditions of the world. A person pokes up from the world and roll along like a wave. Until it’s time to sink down again. Up, down. Person, wave.
+ - Even though I was making documentaries, my films had fictional elements to them. I think I like blurring those distinctions because so much of what we see on television purports to be the truth, but it’s often largely imaginary – or wishful thinking, or any number of less honorable things.
+ - Zazen is better than a home. Zazen is a home that you can’t ever lose.
+ - By the time we, consumers, are aware of processes like genetic engineering, they’re already being done. It’s sort of like the war in Iraq: By the time we know about it, it’s almost a fait accompli. And that’s certainly true with science.
+ - When I start writing novels, I go into them with a spirit of inquiry, rather than to substantiate prejudices I had in the beginning. If you don’t do that, you can’t write good characters.
+ - It was really a means-of-production problem. It costs so much to make films. With a novel, you can write the whole thing on a ream of paper from Staples for $4.
+
+35 quotes

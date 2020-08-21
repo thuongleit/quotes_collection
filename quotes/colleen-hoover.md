@@ -1,0 +1,151 @@
+ - Keep an open mind; it’s the only way new things can get in.
+ - Sometimes in life, we need a few bad days in order to keep the good ones in perspective.
+ - Push your boundaries, that’s what they’re there for.
+ - So you keep your ocean, I’ll take the Lake.
+ - Sometimes, two people have to fall apart to realize how much they need to fall back together.
+ - God gives us the ugliness so we don’t take the beautiful things in life for granted.
+ - Selflessness. It should be the basis of every relationship. If a person truly cares about you, they’ll get more pleasure from the way they make you feel, rather than the way you make them feel.
+ - When life gives you lemons, make sure you know whose eyes you need to squeeze them in.
+ - I want you to remember who you are, despite the bad things that are happening to you. Because those bad things aren’t you. They are just things that happen to you. You need to accept that who you are and the things that happen you, are not one and the same.
+ - Your heart is so beautiful and someday someone is going to love that heart like it deserves to be loved.
+ - I need someone who is willing to watch me brave the ocean and then dare me not to drown.
+ - I need a chapter break.
+ - Love is the most beautiful thing in the world. Unfortunately, it’s also one of the hardest things in the world to hold on to, and one of the easiest things to throw away.
+ - Imperfections define perfection.
+ - Question everything. Your love, your religion, your passion. If you don’t have questions, you’ll never find answers.
+ - A life of mediocrity is a waste of a life.
+ - Hearts get infiltrated. Promises get broken. Rules get shattered. Love gets ugly.
+ - There will never be a maybe someday.
+ - Don’t take life too seriously Punch it in the face when it needs a good hit Laugh at it.
+ - I don’t want to be someone’s second choice.
+ - Every day of my life it feels as if I’m fighting my way up an escalator that only goes down. And no matter how fast or how hard I run to try to reach the top, I stay in the same place, sprinting, getting nowhere.
+ - My lack of access to the real world has been replaced completely by books, and it can’t be healthy to live in a land of happily ever afters.
+ - Choose your battles, but don’t choose very many.
+ - I’m the only one that can be held accountable for the way my life turns out.
+ - Find a balance between head and heart.
+ - There are people you meet that you get to know, and then there are people you meet that you already know.
+ - Just because you blocked the memory of me out of your mind doesn’t mean you blocked the memory of me out of your heart.
+ - We try so hard to hide everything we’re really feeling from those who probably need to know our true feelings the most. People try to bottle up their emotions, as if it’s somehow wrong to have natural reactions to life.
+ - And once again in my new world full of heartache and lies, this hopeless boy somehow finds a way to make me smile.
+ - If I were a carpenter, I would build you a window to my soul. But I would leave that window shut and locked, so that every time you tried to look through it all you would see is your own reflection. You would see that my soul is a reflection of you.
+ - Understanding a situation doesn’t always make it easier.
+ - It’s like you came along and woke up my soul.
+ - Please don’t allow anyone to make you feel less than what you are.
+ - It’s not a confession if no one reads it. It’s just an unshared secret.
+ - The things that knock you down in life are tests, forcing you to make a choice between giving in and remaining on the ground or wiping the dirt off and standing up even taller than you did before you were knocked down.
+ - When I touch you, I’m touching you because I want to make you happy. When I kiss you, I’m kissing you because you have the most incredible mouth I’ve ever seen and you know I can’t not kiss it. And when I make love to you – I’m doing exactly that. I’m making love to you because I’m in love with you.
+ - I’ve loved Hope since we were kids. But tonight? Tonight I fell in love with Sky.
+ - Be accepting. Of everything. People’s differences, their similarities, their choices, their personalities. Sometimes it takes a variety to make a good collection. The same goes for people.
+ - I’m afraid if I listen to my heart once, I’ll never figure out how to ignore it again.
+ - I’m pretty sure my addiction to reading has just reached a whole new level.
+ - But I’ve learned over the past year what it really means to be able to miss someone. In order to miss someone, that means you were privileged enough to have them in your life to begin with.
+ - The moment my lips touch yours, it will be your first kiss. Because if you’ve never felt anything when someone’s kissed you, then no one’s ever really kissed you. Not the way I plan on kissing you.
+ - Some secrets should never turn into confessions. I know that better than anyone.
+ - I’ve been looking for you my whole damn life.
+ - It’s crap that you’re letting on bad year determine your fate for the rest of your life.
+ - Words can sometimes have a far greater effect on a heart than a kiss.
+ - If I live the life I’m given, I won’t be scared to die.
+ - Never judge others. You both know good and well how unexpected events can change who a person is. Always keep that in mind. You never know what someone else is experiencing within their own life.
+ - This thing about you that you think is your flaw – it’s the reason I’m falling in love with you.
+ - I love being with yo so bad When we aren’t together, I miss you so bad One of these days I’m going to marry you so bad and it’ll be so so good.
+ - Most teenagers are stashing away cigarettes and weed – I stash away sugar.
+ - If I took every romantic poem, every book, every song, and every movie I’ve ever read, heard or seen and extracted the breathtaking moments, somehow bottling them up, they would pale in comparison to this moment. This moment is incomparable.
+ - I’ll never be able to give you everything you deserve, but I’ll definitely spend the rest of my life trying.
+ - I want to tell you exactly how I feel but there isn’t a single goddamned word in the entire dictionary that can describe this point between liking you and loving you, but I need that word. I need it because I need you to hear me say it.
+ - It’s amazing how you don’t realize just how alone and scared you were until you have someone by your side to support you.
+ - Laugh a lot. Never go a day without laughing at least once.
+ - Nothing in my life has ever felt so good yet hurt so achingly bad.
+ - Always remember there is nothing worth sharing, like the love that let us share our name.
+ - Love isn’t always pretty. Sometimes you spend all your time hoping it’ll eventually be something different. Something better. Then, before you know it, you’re back to square one, and you lost your heart somewhere along the way.
+ - I look at my reflection in the mirror and I see a girl who desperately wants to forgive a boy, but not without a hell of a lot of grovelling first.
+ - I’ve learned some thing about my heart. It can break. It can ripped apart. It can harden and freeze. It can stop. Completely. It can shatter in to million pieces. It can explode. It can die. The only thing that made it start beating again? The moment you open your eyes.
+ - You did everything you could, but sometimes all the love in the world from mothers and brothers isn’t enough to help pull someone out of their nightmare. We just need to accept that things are what they are, and all the guilt and regret in the world can’t change that.
+ - Kisses like his should come with a warning label. They can’t be good for the heart.
+ - For her I bend, for you I break.
+ - Those are the hardest pieces of all to accept. The pieces of our puzzle That just don’t belong.
+ - Regret is counterproductive. It’s looking back on a past that you can’t change. Questioning things as they occur can prevent regret in the future.
+ - I don’t want her to feel nothing when I kiss her. I want her to feel everything.
+ - It’s amazing how much distance one truth can create between two people.
+ - It’s not just lies they’re referring to. It’s life. You can’t run to another town, another place, another state. Whatever it is you’re running from-it goes with you. It stays with you until you find out how to confront it.
+ - She deserves to be kissed by someone who loves her. Someone who spends every waking moment trying to do everything right by her. Someone who would rather die than see her hurt. She doesn’t deserve to be kissed by anyone other than me.
+ - I want her to wait for me. I want her to wait for me so bad. I don’t want to think about her ever allowing anyone bedsides me to love her.
+ - I used to think the best part of me died with Les, but the best part of me is standing right here in front of me.
+ - But everything wrong with her is everything that draws me in and makes her perfect. She’s flat-out rude to me and I love it. She’s stubborn and I love it.
+ - You just have to choose which wrong choice feels the least wrong.
+ - You, baby girl. You’re my final piece.
+ - I know we shouldn’t be putting ourselves into a situation we’re only going to regret once it’s over.
+ - It’s what happens when two people become one: they no longer only share love. They also share all of the pain, heartache, sorrow, and grief.
+ - Me: Why don’t you ever practice on your balcony like you used to? This question gets me immediate eye contact from him, but it doesn’t last. His eyes flicker across my face, down my body, and finally back to his phone. Ridge: Why would I? You’re not out there anymore.
+ - Time has completely stopped, and all I’m thinking about while we kiss is how this is what saves people. Moments like these with people like her are what make all the sufferings worth it.
+ - Nothing is permanent. The only thing any of us have in common is the inevitable.
+ - In reality, people are who they are and they’ll never really change.
+ - She doesn’t speak, but she doesn’t have to. I know in these moments, when it’s just her and me and nothing else, that she truly, soul-deep loves me.
+ - We’ve got an entire lifetime ahead of us to do things like get married. But sometimes things in people’s lives don’t happen in chronological order like they should. Especially in our lives. Our chronological order got mixed up a long time ago.
+ - That’s not a good idea.
+ - The weight of lies will bring you down, follow you to every town ’cause nothing happens here that doesn’t happen there.
+ - I want to be your soulmate, even if I don’t believe in them.
+ - My eyes trail from his hand to the tattoo written in small script across his forearm. Hopeless.
+ - Breckin, this is Holder. Holder is not my boyfriend, but if I catch him trying to break the record for best first kiss with another girl, then he’ll soon be my not breathing non-boyfriend.
+ - I wish I could explain how I feel, but nothing can explain this moment. Not a vase of stars. Not a book. Not a song. Not even a poem. Nothing can explain the moment when the woman you would give your life for sees her daughter for the very first time.
+ - I’ve lost a lot in my long life. Yes, I’ve seen pain and I’ve seen strife. But I’ll never give up; I’ll never let go. Because I’ll always have my ray of hope.
+ - How ever, I’ve learned that the heart can’t be told when and who and how it should love. The heart does whatever the hell it wants to do. The only thing we can control is whether we give our lives and our minds the chance to catch up to our hearts.
+ - God, if just holding hands with him feels this intense, I can’t imagine what everything else with him would feel like.
+ - If words could break souls, my words just broke his in two.
+ - You probably faked passing out the other day, just so you could be carried in my hot, sweaty, manly arms.
+ - A guy can tell a girl he’s in love with her until he’s blue in the face. Words don’t mean anything to a woman when her head’s full of doubt. You have to show her.
+ - To me, lyrics are harder to write when you have to invent the feelings behind them. That’s when lyrics take a lot of thought, when they aren’t genuine.
+ - I kiss her every way I can possibly kiss her, because I plan on loving her every way I can possibly love her. Every single time we refused to cave in to our feelings in the past makes this kiss completely worth the sacrifices.
+ - Say it’s wrong, but baby, it feels right.
+ - I can’t explain to you how perfect this girl is. And when I say perfect, I mean imperfect, because there’s just too much wrong with her. But everything wrong with her is everything that draws me in and makes her perfect.
+ - It’s the beautiful moments like this that make up for the ugly love.
+ - I don’t care who the student is, teachers should never be condescending. That should be the first rule in the teacher handbook.
+ - I just wanna make sure that you don’t miss out on the things in life that are happening when you’re not thinking. Because believe me, those are the best things in life.
+ - She dips her spoon into her ice cream, then puts the spoon back in her mouth. I can’t stop staring at that spoon. I think I love that spoon.
+ - There’s nothing like the guilt you feel when there’s room in your heart to love evil.
+ - Lust is the best of all the deadly sins.
+ - Never in all my life and in all my years of living in a world of silence have I wanted to hear something as much as I want to hear her sing right now. I want to hear her so bad it physically hurts.
+ - Then this girl completely shatters the window to my soul and crawls inside.
+ - Layken Cooper, I love you. I’ve loved you since the second I laid eyes on you and I haven’t stopped loving you for a second since.
+ - Sarcasm isn’t at all funny when it’s the truth.
+ - We cry survivor to survivor.
+ - The line isn’t so black and white anymore. I’m pretty sure gray just became my new favorite color.
+ - Death. The only thing inevitable in life.
+ - But I’m not falling in love with her piece by piece anymore. I’m in love with the whole girl. Every single piece of her.
+ - Hurts to see you everyday Cupid shuts his eyes and shot me twice Smell your perfume on my bed Thoughts of you invade my head Truths are written, never said And if I can’t be yours now I’ll wait here on this ground Till you come, till you take me away Maybe someday Maybe someday.
+ - Sometimes not speaking says more than all the words in the world.
+ - Thank you for knowing exactly how to handle me, because sometimes I’m not even sure how to handle myself.
+ - When I published my first novel, Slammed, I included lyrics at the beginning of each chapter from one of my favorite bands, The Avett Brothers. The overwhelmingly positive response from readers to those lyrics really surprised me.
+ - You don’t deserve words, Sky. You deserve actions.
+ - What do you do when you’re bored? You don’t have internet or TV. Do you just sit around all day and think about how hot I am?
+ - You only miss the idea of him. You weren’t happy with him even before you found out he was cheating. You were only with him because it was comfortable. You miss the relationship, but you don’t miss Hunter.
+ - My sweet is that me and Kel are finally brothers. My suck is that I now know what Will and Layken did during their honeymoon.
+ - There isn’t a doubt in my mind that we could be perfect for each others life, Sydney. It’s our lives that aren’t perfect for us.
+ - There are three questions every woman should be able to answer yes to before they commit to a man. If you answer no to any of this question, run like hell.
+ - Live. If you mix the letters up in the words like and love, you get live.
+ - What you want to do tonight? I read Daniel’s text and respond. Sorry. Plans. WTF, puss flap!? No! Me. You. Plans. Can’t. Pretty sure I have a date. Sky? Yep. Can I come? Nope. Can I be your date next Saturday, then? Sure, babe. Can’t wait, sugar.
+ - Love and hate, despite their polar opposites, are both feelings that are induced by passion. I can handle that. It’s the indifference I don’t know how to process.
+ - I need one of those chapter breaks. I just want to catch my breath, but I have no idea how.
+ - The more I open up to him, the more I need him. The more I admit to myself that I need him, the most it hurts to know that I still don’t exactly have him.
+ - I’m not a sucker for happily ever afters, but if these two characters don’t get theirs I might climb inside this e-reader and lock them both inside that damn garage forever.
+ - I love how you aren’t weird and awkward, despite the fact that you’ve been severely cut off from socialization to the point where you make the Amish look trendy.
+ - I’m Tetris, Silas. All my pieces and parts are going to fit into all of your pieces and parts.
+ - For once in my life, I was here and nowhere else.
+ - Her lips are in close proximity to mine, so of course I have to kiss them.
+ - It’s odd when your best friend has an even better best friend.
+ - My body is a damn traitor.
+ - I wonder if it’s possible for people to fall in love with a person one characteristic at a time, or if you fall for the entire person at once.
+ - Tears begin to well in my eyes. I have no idea how or if I even deserve him, but there’s one thing I know for sure. As long as he’s part of it, I’ll never live a life of mediocrity.
+ - Should it matter what genre it is if the book is good?
+ - Not everyone gets a happily every after. Life is real and sometimes it’s ugly and you just have to learn how to cope.
+ - I hold still against her, taking one final look at this amazing, beautiful girl beneath me. “You’re the greatest thing that’s ever happened to my life,” I whisper.
+ - Devastated should be reserved for mothers.
+ - I want you to hear me love you.
+ - What you’re feeling now, and the person you may reach with your words five years from now-that’s why you write poetry.
+ - My suck was losing my best friend to an eleven year old.
+ - Every single person that spent a few bucks to buy a book that I wrote deserves a big thank you from my whole family.
+ - I love you because of you. Because of every single thing about you.
+ - He got one of those intelligent phones. Now he’s trying to twit the President.
+ - I lie back on my pillow and think back to that day. The day that I fell for my wife.
+ - Now that I have you back, I’m never letting you go. That’s a promise. I’m not letting you go again.
+
+149 quotes

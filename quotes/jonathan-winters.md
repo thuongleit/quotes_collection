@@ -1,0 +1,29 @@
+ - If your ship doesn’t come in, swim out to it.
+ - I couldn’t wait for success, so I went ahead without it.
+ - You’ve got to be an observer. And you’ve got to take time to listen to people, talk, to watch what they do.
+ - I may not be playing with a full deck but I don’t need a full deck. I have four aces.
+ - As a kid, I always wanted to be lots of things. I was a Walter Mitty type. I wanted to be in the French Foreign Legion, a detective, a doctor, a test pilot with a scarf, a fisherman who hauled in a tremendous marlin after a 12-hour fight.
+ - Nothing is impossible. Some things are just less likely than others.
+ - I don’t do jokes. The characters are my jokes.
+ - I began painting well before I started doing comedy. In fact, when I came out of the war in 1946, I enrolled in art school in Dayton, Ohio. I painted for three years, and then show business took hold.
+ - I’m from the Delbert Home for the Unusual.
+ - God is in my head, but the devil is in my pants.
+ - I have a photographic memory; I just haven’t developed it yet.
+ - Well, the most terrible fear that anybody should have is not war, is not a disease, not cancer or heart problems or food poisoning – it’s a man or a woman without a sense of humor.
+ - I’ve always been proud of being a Marine. I won’t hesitate to defend the Corps.
+ - I’ve done for the most part pretty much what I intended – I ended up doing comedy, writing and painting. I’ve had a ball. And as I get older, I just become an older kid.
+ - I know you can be funny without being filthy.
+ - Throughout my life, I’ve been gratified that I’ve been able to keep the child in me alive and inspire others.
+ - My mother had a radio show – a Barbara Walters type of gal and was very successful for about 20-some years on a radio station.
+ - When you wear so many hats in society, you never know who you are. That’s the beauty of it. Because once you find out who you are, you’re screwed.
+ - I was always an observer, even as a child. I could be satisfied to sit in a car for 3 hours and just look at the street go by while my mother went shopping.
+ - I find painting a much slower process than comedy, where you can go a mile a minute verbally and hope to God that some of the people out there understand you.
+ - I don’t paint every day. I’m not that motivated. I don’t do anything the same every day.
+ - Now the freaks are on television, the freaks are in the movies. And it’s no longer the sideshow, it’s the whole show. The colorful circus and the clowns and the elephants, for all intents and purposes, are gone, and we’re dealing only with the freaks.
+ - My paintings and comedy have a lot in common. They are both improvisations based on observation.
+ - I was talking to a businessman, and I said, Don’t you think most men are little boys? And he said, I’m no little boy! I make seventy-five thousand dollars a year. And I said, Well, the way I look at it – you just have bigger toys.
+ - Discipline is tough for a guy who is a rebel.
+ - I have never pretended to be any kind of super-religious kind of man, but I feel very strongly that you can be funny without being dirty.
+ - Something I’ll always remember – when I was a kid, I shook hands with Orville Wright. Forty years later, I shook hands with Neil Armstrong. The guy that invented the airplane and the guy that walked on the moon. In a lifetime, that’s kinda wild when you think about it.
+
+27 quotes

@@ -1,0 +1,62 @@
+ - The illiterate of the 21st century will not be those who cannot read and write, but those who cannot learn, unlearn, and relearn.
+ - If you don’t have a strategy, you’re part of someone else’s strategy.
+ - You’ve got to think about big things while you’re doing small things, so that all the small things go in the right direction.
+ - Change is not merely necessary to life – it is life.
+ - The future always comes too fast and in the wrong order.
+ - The first rule of survival is clear: Nothing is more dangerous than yesterday’s success.
+ - It is always easier to talk about change than to make it.
+ - Technology feeds on itself. Technology makes more technology possible.
+ - By instructing students how to learn, unlearn and relearn, a powerful new dimension can be added to education.
+ - Change is non-linear and can go backwards, forwards and sideways.
+ - Information overload will lead to ‘future shock syndrome’ as an individual will suffer severe physical and mental disturbances.
+ - If we do not learn from history, we shall be compelled to relive it. True. But if we do not change the future, we shall be compelled to endure it. And that could be worse.
+ - I work virtually every waking hour.
+ - It is better to err on the side of daring than the side of caution.
+ - Knowledge is the most democratic source of power.
+ - Much education springs from some image of the future. If the image of the future held by a society is grossly inaccurate, its education system will betray its youth.
+ - The political technology of the Industrial age is no longer appropriate technology for the new civilization taking form around us. Our politics are obsolete.
+ - The great growling engine of change – technology.
+ - A new civilization is emerging in our lives, and blind men everywhere are trying to suppress it.
+ - Change is the process by which the future invades our lives.
+ - Our technological powers increase, but the side effects and potential hazards also escalate.
+ - Future shock is the dizzying disorientation brought on by the premature arrival of the future.
+ - Information is a substitute for time, space, capital, and labor.
+ - Every generation gets a chance to change the world Pity the nation that won’t listen to your boys and girls Cos the sweetest melody is the one we haven’t heard.
+ - The next major explosion is going to be when genetics and computers come together. I’m talking about an organic computer – about biological substances that can function like a semiconductor.
+ - Parenthood remains the greatest single preserve of the amateur.
+ - Change is the process by which the future invades our lives, and it is important to look at it closely, not merely from the grand perspectives of history, but also from the vantage point of the living, breathing individuals who experience it.
+ - Humanity faces a quantum leap forward. It faces the deepest social upheaval and creative restructuring of all time. Without clearly recognizing it, we are engaged in building a remarkable new civilization from the ground up. This is the meaning of the Third Wave.
+ - To survive, to avert what we have termed future shock, the individual must become infinitely more adaptable and capable than ever before.
+ - Knowledge is promiscuous. It mates and gives birth to more knowledge.
+ - The Law of Raspberry Jam: the wider any culture is spread, the thinner it gets.
+ - One of the most highly developed skills in contemporary Western civilization is dissection: the split -up of problems into their smallest possible components. We are good at it. So good, we often forget to put the pieces back together again.
+ - You cannot get a new economy without a new society.
+ - You can use all the quantitative data you can get, but you still have to distrust it and use your own intelligence and judgment.
+ - The customer will become so integrated into the production process that we will find it more and more difficult to tell just who is actually the consumer and the producer.
+ - My wife and I, unlike many intellectuals, spent five years working on assembly lines. We came to fully understand the criticisms of the industrial age, in which you are an appendage of a machine that sets the pace.
+ - It would be a mistake to assume that the present day educational system is unchanging. On the contrary, it is undergoing rapid change. But much of this change is no more than an attempt to refine the existent machinery, making it ever more efficient in pursuit of obsolete goals.
+ - The control of knowledge is the crux of tomorrow’s worldwide struggle for power in every human institution.
+ - The recognition that no knowledge can be complete, no metaphor entire, is itself humanizing. It counteracts fanaticism. It grants even to adversaries the possibility of partial truth, and to oneself the possibility of error.
+ - There are discoverable limits to the amount of change that the human organism can absorb.
+ - We need a multiplicity of visions, dreams and prophecies – images of potential tomorrows.
+ - By challenging anthropocentricism and temporal provincialism, science fiction throws open the whole of civilization and its premises to constructive criticism.
+ - Science fiction is the sovereign prophylactic against future shock.
+ - Idea-assassins rush forward to kill any new suggestion on the grounds of its impracticality, while defending whatever now exists as practical, no matter how absurd.
+ - We need people who can see straight ahead and deep into the problems. Those are the experts. But we also need peripheral vision and experts are generally not very good at providing peripheral vision.
+ - One of the definitions of sanity is the ability to tell real from unreal. Soon we’ll need a new definition.
+ - Future shock is the shattering stress and disorientation that we induce in individuals by subjecting them to too much change in too short a time.
+ - To think that the new economy is over is like somebody in London in 1830 saying the entire industrial revolution is over because some textile manufacturers in Manchester went broke.
+ - Man has a limited biological capacity for change. When this capacity is overwhelmed, the capacity is in future shock.
+ - If industrialism, with its faster pace of life, has accelerated the family cycle, super-industrialism now threatens to smash it altogether.
+ - Never in history has distance meant less.
+ - Anyone nit-picking enough to write a letter of correction to an editor doubtless deserves the error that provoked it.
+ - We will only keep people from fleeing the countryside into urban favelas, villas miseries, shantytowns and squatter villages when the productivity gap is closed between what brute labor on the soil can accomplish and what advanced technology makes possible today – and will make possible tomorrow.
+ - The next major explosion is going to be when genetics and computers come together.
+ - Freedom of expression is no longer a political nicety, but a precondition for economic competitiveness.
+ - Many countries today have begun the transition from an industrial wealth system and civilization to a knowledge-based system – without appreciating that a new wealth system is impossible without a corresponding new way of life.
+ - If you have the right knowledge you can substitute it for all the other facts of production.
+ - Human beings were held accountable long before there were corporate bureaucracies. If the knight didn’t deliver, the king cut off his head.
+ - Most managers were trained to be the thing they most despise – bureaucrats.
+ - The biggest tragedy I had was the loss of my daughter from neuromuscular disease in 2000, at age 46.
+
+60 quotes

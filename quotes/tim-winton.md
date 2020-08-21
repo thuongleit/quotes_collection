@@ -1,0 +1,32 @@
+ - It’s the pointless things that give your life meaning. Friendship, compassion, art, love. All of them pointless. But they’re what keeps life from being meaningless.
+ - The ocean is a supreme metaphor for change. I expect the unexpected but am never fully prepared.
+ - It’s how I fill the time when nothing’s happening. Thinking too much, flirting with melancholy.
+ - The desert is a spiritual place, we vaguely understand, and the sea the mere playground of our hedonism.
+ - I came home at dusk with my ears ringing from the quiet.
+ - For every moment the sea is peace and relief, there is another when it shivers and stirs to become chaos. It’s just as ready to claim as it is to offer.
+ - There is nowhere else I’d rather be, nothing else I would prefer to be doing. I am at the beach looking west with the continent behind me as the sun tracks down to the sea. I have my bearings.
+ - Surviving is the strongest memory I have; the sense of having walked on water.
+ - It’s funny, but you never really think much about breathing. Until it’s all you ever think about.
+ - We rise to a challenge and set a course. We take a decision. You put your mind to something. Just deciding to do it gets you halfway there. Daring to try.
+ - When you’re surfing you’re not thinking about where you parked the car or what you’re going to do when you grow up or what you’re going to buy when you’ve got lots of money. You know, you’re just there. You’re in the moment. And I think in a contemporary world, that’s a rare privilege.
+ - I liked books – the respite and privacy of them – books about plants and the formation of ice and the business of world wars. Whenever I sank into them I felt free.
+ - People are fools, not monsters.
+ - And you can’t help but worry for them, love them, want for them – those who go on down the close, foetid galleries of time and space without you.
+ - Somewhere a bicycle bell rings. Somewhere else there’s a war on. Somewhere else people turn to shadows and powder in an instant and the streets turn to funnels and light the sky with their burning. Somewhere a war is over.
+ - It’s dark already and I’m out here again, talking, telling the story to the quiet night.
+ - It’s sadness coming on like the old days, the vast seamless hopeless weight of sadness looking for a place to rest.
+ - I love the sea but it does not love me. The sea is like a desert in that it is quite rightly feared. The sea and the desert are both hungry, they have things to be getting on with so you do not go into them lightly.
+ - I just sit here and tell the story as though I can’t help it. There’s always something in the day that reminds me, that sets me off all hot and guilty and scared and rambling and wistful, like I am now.
+ - And the sun on the wall of her room, the block of sun with all the tiny flying things in it. When she was little she thought they were the souls of dead insects, still buzzing in the light.
+ - It’s impossible to imagine what Australia would be like without surfing.
+ - Hunting and gathering are in my blood. But I’ve lived long enough to witness a diminution in the seas, and to notice a fragility where once I saw – or assumed – an endless bounty.
+ - The beachcomber goes looking for trouble, everything he finds is a sign of trouble. The writer is the same; without trouble he has nothing to work with, so he picks over the tide line, over the bits and pieces of people’s lives with grim fascination.
+ - It’s terrifying to think you can remember things you shouldn’t possibly be able to. It’s like that childhood fear of having your soul slip from your body in your sleep. The darkness, those black sheets of glass sliding over you, upping the pressure, pushing you through the time and space and story.
+ - I was in my thirties before I learnt that I too would prefer not to see what I could no longer have.
+ - Wherever I went I felt like the last person awake in a room full of sleepers.
+ - The night is full of stories. They float up like miasmas, as though the dead leave their dreams in the earth where you bury them, only to have them rise to meet you in sleep. Mostly the scenes are familiar, but sometimes everything is strange, the people unknown.
+ - And though I’ve lived to be an old man with my very own share of happiness for all the mess I made, I still judge every joyous moment, every victory and revelation against those few seconds of living.
+ - Being afreaid proves you’re alive and awake.
+ - People do change – individuals, families, nations – and the pace of transformation need not be geological.
+
+30 quotes

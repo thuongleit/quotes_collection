@@ -1,0 +1,42 @@
+ - Remember, Hope is a good thing, maybe the best of things, and no good thing ever dies. ~~Stephen King
+ - Let your hopes, not your hurts, shape your future. ~~Robert H. Schuller
+ - After all, tomorrow is another day. ~~Margaret Mitchell
+ - Now is no time to think of what you do not have. Think of what you can do with that there is. ~~Ernest Hemingway
+ - You’ve got to believe that God is in control of your life. It may be a tough time but you’ve got to believe that God has a reason for it and he’s going to make everything good. ~~Joel Osteen
+ - Let perseverance be your engine and hope your fuel. ~~H. Jackson Brown Jr.
+ - Hope begins in the dark, the stubborn hope that if you just show up and try to do the right thing, the dawn will come. You wait and watch and work: you don’t give up. ~~Anne Lamott
+ - Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree. ~~Martin Luther
+ - You can do anything if you have enthusiasm. Enthusiasm is the yeast that makes your hopes rise to the stars. ~~Henry Ford
+ - Where there is no vision, there is no hope. ~~George Washington Carver
+ - Hope is the pillar that holds up the world. Hope is the dream of a waking man. ~~Pliny the Elder
+ - Oft hope is born when all is forlorn. ~~J. R. R. Tolkien
+ - Hope is a renewable option: If you run out of it at the end of the day, you get to start over in the morning. ~~Barbara Kingsolver
+ - We all live under the same sky, but we don’t all have the same horizon. ~~Konrad Adenauer
+ - If money is your hope for independence, you will never have it. The only real security that a man can have in this world is a reserve of knowledge, experience and ability. ~~Henry Ford
+ - With every mistake, we must surely be learning. ~~George Harrison
+ - Fairy tales do not tell children the dragons exist. Children already know that dragons exist. Fairy tales tell children the dragons can be killed. ~~Gilbert K. Chesterton
+ - Since I was young, I have always known this: Life damages us, every one. We can’t escape that damage. But now, I am also learning this: We can be mended. We mend each other. ~~Veronica Roth
+ - Every area of trouble gives out a ray of hope; and the one unchangeable certainty is that nothing is certain or unchangeable. ~~John F. Kennedy
+ - If you can love someone with your whole heart, even one person, then there’s salvation in life. Even if you can’t get together with that person. ~~Haruki Murakami
+ - All the great things are simple, and many can be expressed in a single word: freedom, justice, honor, duty, mercy, hope. ~~Winston Churchill
+ - The creation of a thousand forests is in one acorn. ~~Ralph Waldo Emerson
+ - You can cut all the flowers but you cannot keep spring from coming. ~~Pablo Neruda
+ - There is no medicine like hope, no incentive so great, and no tonic so powerful as expectation of something tomorrow. ~~Orison Swett Marden
+ - He who has health, has hope; and he who has hope, has everything. ~~Thomas Carlyle
+ - Courage is like love, it must have hope for nourishment. ~~Napoleon
+ - I hope I shall possess firmness and virtue enough to maintain what I consider the most enviable of all titles, the character of an honest man. ~~George Washington
+ - Enthusiasm is the yeast that makes your hopes shine to the stars. Enthusiasm is the sparkle in your eyes, the swing in your gait. The grip of your hand, the irresistible surge of will and energy to execute your ideas. ~~Henry Ford
+ - Selfishness must always be forgiven you know, because there is no hope of a cure. ~~Jane Austen
+ - You must not lose faith in humanity. Humanity is an ocean; if a few drops of the ocean are dirty, the ocean does not become dirty. ~~Mahatma Gandhi
+ - The inability to open up to hope is what blocks trust, and blocked trust is the reason for blighted dreams. ~~Elizabeth Gilbert
+ - Hope is a bad thing. It means that you are not what you want to be. It means that part of you is dead, if not all of you. It means that you entertain illusions. It’s a sort of spiritual clap, I should say. ~~Henry Miller
+ - We can drop the fundamental hope that there is a better “me” who one day will emerge. We can’t just jump over ourselves as if we were not there. ~~Pema Chödrön
+ - To travel hopefully is a better thing than to arrive. ~~Robert Louis Stevenson
+ - Sympathy constitutes friendship; but in love there is a sort of antipathy, or opposing passion. Each strives to be the other, and both together make up one whole. ~~Samuel Taylor Coleridge
+ - I’ve read the last page of the Bible. It’s all going to turn out all right. ~~Billy Graham
+ - Children are the world’s most valuable resource and its best hope for the future. ~~John F. Kennedy
+ - He who despairs of the human condition is a coward, but he who has hope for it is a fool. ~~Albert Camus
+ - Believe that man will not merely endure; he will prevail. ~~William Faulkner
+ - To keep the heart unwrinkled, to be hopeful, kindly, cheerful, reverent that is to triumph over old age. ~~Thomas Bailey Aldrich
+
+40 quotes

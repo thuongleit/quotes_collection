@@ -1,0 +1,36 @@
+ - If you want to earn more – learn more.
+ - You can succeed if nobody else believes it, but you will never succeed if you don’t believe in yourself.
+ - A man is judged by the company he keeps, and a company is judged by the men it keeps, and the people of Democratic nations are judged by the type and caliber of officers they elect.
+ - You cannot raise a man up by calling him down.
+ - Beware of ignorance when in motion; look out for inexperience when in action, and beware of the majority when mentally poisoned with misinformation, for collective ignorance does not become wisdom.
+ - Seven national crimes: 1. I don’t think. 2. I don’t know. 3. I don’t care. 4. I am too busy. 5. I leave well enough alone. 6. I have no time to read and find out. 7. I am not interested.
+ - Your greatness is measured by your kindness.
+ - The difficulties and struggles of today are but the price we must pay for the accomplishments and victories of tomorrow.
+ - Before you can write a check, you must first make out a deposit slip; before you can draw money out of a bank, you must put money into a bank; before you are entitled to a living, you must give the world a life; if you want to make a first-class living, learn to give the world a first-class life.
+ - Confidence is the foundation for all business relations. The degree of confidence a man has in others, and the degree of confidence others have in him, determines a man’s standing in the commercial and industrial world.
+ - No man will succeed unless he is ready to face and overcome difficulties and prepared to assume responsibilities.
+ - When men are so busy making money that they have no time for anything else, then the day is not far off when they will have no money for anything else.
+ - Nations begin to dig their own graves when men talk more of human rights and less of human duties.
+ - Men must be honest with themselves before they can be honest with others. A man who is not honest with himself presents a hopeless case.
+ - Every so often we hear people clamor for a change. Let’s change the Constitution, change the form of Government, change everything for better or worse except to change the only thing that needs changing first: The human heart and our standard of success and human values.
+ - Freedom of press and freedom of speech: What a blessing for a country while in the hands of honest, patriotic men; what a curse if in the hands of designing demagogues.
+ - If your business keeps you so busy that you have no time for anything else, there must be something wrong either with you or with your business.
+ - The more men, generally speaking, will do for a Dollar when they make it, the more that Dollar will do for them when they spend it.
+ - What a pleasure life would be to live if everybody would try to do only half of what he expects others to do.
+ - Are you appalled at existing conditions? Don’t waste your energy trying to change conditions from without! Change the Human Heart from within.
+ - It is better to displease the people by doing what you know is right.
+ - If you wish to succeed in managing and controlling others – learn to manage and control yourself.
+ - Most men believe that it would benefit them if they could get a little from those who have more. How much more would it benefit them if they would learn a little from those who know more.
+ - If the majority of people of a country, no matter how great its natural resources, organize and conspire to get more out and put less in, to do less and get more, how long will, how long can it last?
+ - For the self-development of men and women it is absolutely necessary that they should be alone with themselves at least one hour each day-to get the blessings of solitude.
+ - A man without religion or spiritual vision is like a captain who finds himself in the midst of an uncharted sea, without compass, rudder and steering wheel. He never knows where he is, which way he is going and where he is going to land.
+ - When away from home always be like the kind of man you would care to take into your own home.
+ - It is not what people do when they work, but what they do when they don’t work that causes all their troubles.
+ - A man who tries to make the workmen believe that their employers are their natural enemies is indeed the worst enemy of workmen. For the employees of yesterday are the employers of today, and the employees of today can and will partly be the employers of tomorrow.
+ - We will never have real safety and security for wage earners unless we provide for safety and security for the wage payers and wage savers.
+ - True religion is not a mere doctrine, something that can be taught, but is a way of life. A life in community with God. It must be experienced to be appreciated. A life of service. A living by giving and finding one’s own happiness by bringing happiness into the lives of others.
+ - Men will get no more out of life than they put into it.
+ - You cannot help the small men, by tearing down the big men.
+ - No man can make good during working hours who does the wrong thing outside of working hours.
+
+34 quotes

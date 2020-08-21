@@ -1,0 +1,26 @@
+ - That which He has not assumed He has not healed.
+ - It is more important that we should remember God than that we should breathe: indeed, if one may say so, we should do nothing else besides.
+ - We are not made for ourselves alone, we are made for the good of all our fellow creatures.
+ - These three things God requires of all the Baptized: right faith in the heart, truth on the tongue, temperance in the body.
+ - Let us become like Christ, since Christ became like us. He assumed the worse that He might give us the better; He became poor that we through His poverty might be rich.
+ - Give something, however small, to the one in need. For it is not small to one who has nothing. Neither is it small to God, if we have given what we could.
+ - What He was, He laid aside; what He was not, He assumed. He takes upon Himself the poverty of my flesh so that I may receive the riches of His divinity.
+ - I cannot think on the one without quickly being encircled by the splendor of the three; nor can I discern the three without being straightway carried back to the one.
+ - He took our flesh and our flesh became God, since it is united with God and forms a single entity with him. For the higher perfection dominated, resulting in my becoming God as fully as he became man.
+ - Christ is born: glorify Him. Christ comes from heaven: go out to meet Him. Christ descends to earth: let us be raised on high.
+ - If anyone does not believe that Holy Mary is the Mother of God, such a one is a stranger to the Godhead.
+ - The Godhead is, to speak concisely, undivided there is one mingling of Light, as it were of three suns joined to each other.
+ - Remember God more often than you breathe.
+ - Worship the Trinity, which I call the only true devotion and saving doctrine.
+ - It is difficult to practice obedience; but it is even more difficult to practice leadership.
+ - Mine is to chew on the appropriate texts and make them delectable.
+ - All who have lived according to God still live unto God, though they have departed this life. For this reason, God is called the God of Abraham, Isaac and Jacob, since He is the God, not of the dead, but of the living.
+ - For God loves to be entreated, He loves to be compelled.
+ - The first of all beautiful things is the continual possession of God.
+ - Different men have different names, which they owe to their parents or to themselves, that is, to their own pursuits and achievements. But our great pursuit, the great name we wanted, was to be Christians, to be called Christians.
+ - Our teaching may contain nothing impious, nothing diluted.
+ - It is like employing a small tool on big constructions, if we use human wisdom in the hunt for knowledge of reality.
+ - God thought and things came to be, in-formed: the divine thought is the complicated womb of all that is. For it’s not likely that, like some painter, He conjured up an image from a similar image, having seen beforehand things which His own one mind did not write.
+ - Let us not esteem worldly prosperity or adversity as things real or of any moment, but let us live elsewhere, and raise all our attention to Heaven; esteeming sin as the only true evil, and nothing truly good, but virtue which unites us to God.
+
+24 quotes

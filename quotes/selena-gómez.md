@@ -1,0 +1,120 @@
+ - If you love something, set it free. And if it really loves you, it will find a way to come back.
+ - I may not be perfect, but i’m always me.
+ - What makes you different is what makes you beautiful.
+ - The people who put you down don’t have to stop you from chasing your dreams. Stand up, and prove them wrong.
+ - This is a modern fairytale. No happy endings. No wind in our sails. But I can’t imagine a life without. Breathless moments.
+ - I’m no beauty queen, I’m just beautiful me.
+ - Never look back. If Cinderella had looked back and picked up the shoe she would have never found her prince.
+ - There’s a million reasons why I should give you up. But the heart wants what it wants.
+ - You have every right to a beautiful life.
+ - Be yourself always, there’s no one better.
+ - I won’t apologize for who I am.
+ - Music just affects people’s feelings. It brings out emotions in you and makes you happy and sad.
+ - I’m not really a girly girl.
+ - I can make the stars dance.
+ - I always want to push myself, even though I’m not in the entire thing. My friend Taylor says, “If you’re the smartest person in the entire room, you’re in the wrong room.”
+ - You are who you surround yourself with. I know that’s such a cliche quote, but it’s true.
+ - You have to treat people the way you want to be treated, because ultimately, you’re not gonna get anywhere if you’re just mean to people.
+ - Success is nothing if you don’t have the right people to share it with; you’re just gonna end up lonely.
+ - You can’t be afraid of what people are going to say, because you’re never going to make everyone happy.
+ - You reflect on the people who used to be in your life, and it’s like, ‘Wow, I can’t believe that person was ever really in my life.’ But people are put into your life for seasons, for different reasons, and to teach you lessons.
+ - I try my best to be a good person and be the best I can be.
+ - If there never was a night or day and memories could fade away, then we’d be nothing left but the dreams we made.
+ - You are not defined by an Instagram photo, by a like, by a comment. That does not define you.
+ - You made me insecure, Told me I wasn’t good enough.
+ - It’s always better to be real.
+ - There’s an amount of love that can never – no matter what – be taken away or torn apart, no matter the situation. There are certain people who you will always, always love.
+ - Childhood decisions do not have to define you.
+ - I realize everybody wants what they don’t have. But at the end of the day, what you have inside is much more beautiful than what’s on the outside!
+ - Being single can pave the way for new opportunities.
+ - Haters can keep on hating.
+ - I believe in second chances, but I don’t believe in third or fourth chances.
+ - Trust yourselves. Love and be loved.
+ - The older I’ve gotten, the more I’ve learned that I have to open myself up to all opportunities. Maybe I’ll get burned and not meet the right people, but I won’t know until I do it.
+ - I’m human, I’m not perfect. I make mistakes all the time, but I guess my job is to keep those mistakes to myself, which I’m already fine doing and just try to be the best I can be for those kids.
+ - My mom always told me if I love what I’m doing and I’m having fun then just continue to do it. But if it’s not fun for me anymore and I’m miserable, then I’m going to go back to Texas and quit it all, to be honest.
+ - I want someone honest, someone who’s very sweet to my family and friends, and polite to the other people around me.
+ - I got my first car when I was 16, but I didn’t have a license. It was a Ford Escape. And I just let it sit there for two years, because I enjoyed having my mom drive me.
+ - I love what I do, and I always make sure to tell my fans I’m not perfect, so don’t think I am. I make mistakes. I’m human, and we all are. But I try to be the best I can be, and that’s all I really can do.
+ - I want to keep pushing myself so I never feel settled. I don’t really know if it’s going to end up working. I’m stressed out most of the time.
+ - It’s important just to be yourself. And probably stay out of trouble.
+ - I’ve tried it, and I’ve never been that girl. I’m always going to be the girl you want to take home to your parents, not for the night.
+ - I’m more of a smooth peanut butter kinda girl.
+ - I’m just happy to do projects I’m passionate about.
+ - I never really said I want to be a role model. But then when it happened I was so down for it.
+ - I’m going to hang out with people, and I’m going to explore myself, and I’m okay with that.
+ - I’m human, so of course certain things sometimes hurt. I just laugh at it.
+ - My attention span is all over the place, and I overthink things. I’m an insomniac.
+ - If you have three people in your life that you can trust, you can consider yourself the luckiest person in the whole world.
+ - Everything happens for a reason and, something better will come along for me!
+ - Being yourself is all it takes. If you want to impress someone don’t be someone else just be yourself.
+ - You have different people who come into your life and they affect you in a way and leave an impact on you. Whether it’s projects or friends or directors, it’s just an opportunity that people give me.
+ - I’d much rather be the oddball out than kind of create something of myself that I’m not proud of.
+ - Sometimes when you’re in love, there are things you feel that you can’t really explain. It doesn’t really make sense. That’s how I feel when i’m in love.
+ - I dress like a 30-year-old woman.
+ - I was bullied every second of every day in elementary and middle school. Obviously, people are going to bring you down because of your drive. But, ultimately, it makes you a stronger person to turn your cheek and go the other way.
+ - Hollywood life is never true. Ever.
+ - I need you here with me we look for our love but we dont find it im searching and searching, I really need you here with me boy were going Round-and Round!
+ - My perfect guy wears converse, is totally laid back, and doesn’t worry about being cool.
+ - On played the Mayor’s daughters in Horton Hears a Who: I had never done animation, so I thought it would be cool to try something different.
+ - I’ve heard the rumors but you won’t come clean. I guess I’m hoping it’s because of me...
+ - Disney is a machine, and I’m grateful for it, but I feel like being part of that environment made me crave the reaction from other projects even more.
+ - I don’t like hiding. I do like to keep certain things to myself, but at the end of the day, I’m eighteen, and I’m going to fall in love.
+ - Magic: The Gathering, Gossamer Phantom. I asked him, ‘Do you believe it’s real?’ He almost started crying and said, ‘Yes, I do think it’s real’ and I said, ‘Then that’s all that matters.’
+ - I don’t think that I’ll always necessarily be, I guess, famous. I think, hopefully I’ll just have longevity at what I love. So, I kind of think it’s about taking the right steps and the right roles, and doing the best you can and praying.
+ - I believe in love – yes, I’m one of those girls.
+ - I’ve learned that I want what I deny. I want someone who is crazy about me, who treats me like a princess. I want the picture-perfect fairy tale stuff.
+ - I like to run around. I’m enjoying traveling. I absorb as much as I can, and I get to go to beautiful places that I don’t know if I would ever visit.
+ - I really want to go to Ireland. It’s really green I hear and very pretty. So I’d really like to go there and spend a nice amount of time because I always travel but for like a second. I never get to enjoy the places.
+ - I’ve done everything I could to the best of my ability. Thank you for the unconditional love and cyber hugs. You inspire me.
+ - I love Nicki Minaj, Eminem, Katy Perry. They are all about being themselves and I love that.
+ - To be honest Im quite boring I love to go bowling and to the moviesWhen it comes to my wardrobe I think I dress like a 30 year old woman.
+ - I do not give a damn what I look like, I don’t. I wish I could pay attention because Gwen Stefani, say, looks flawless. Of course, when I’m on red carpets, I’m nervous, sweaty, and weird.
+ - You fall in love, and it completely consumes you.
+ - I don’t actually like dates. I get awkward as I never know what to do.
+ - I do think I might scare some guys, because I’m like, ‘I want to change the world! I have dreams! What do you want to do?’ But I only know how to be me.
+ - Going through a rough break-up? Nothing a little dance party with friends can’t ease.
+ - I hadn’t really been in that world for too long. It was fun for me, but definitely wasn’t my world. When I went to my first Paris Fashion Week, I had been invited to the Louis Vuitton show by Nicolas. We met there. It was all organic and fun for me.
+ - My car is so bad, I hit poles I’m not kidding I hit things all the times, I hit bushes it’s really bad.
+ - Dancing allows me to go away and not have to think of what I’m doing next.
+ - You can successfully take a jab at your ex without having everyone criticize you for it.
+ - Obviously I like to make sure that my life is separate, so as me as a person, I know that my fans know me. But as an actor I like to do different things and I’m gonna want to try new things that may not necessarily have a positive meaning.
+ - I’m in love with love and totally believe in marriage, but that’s not even on my radar right now. I am not putting energy into dating.
+ - I think regular school is harder than my job. You have to deal with kids picking on you, and you wanting to look good and all this stuff. It was way too much pressure.
+ - The day I got my first letter from a fan, I felt like I’d been touched by an angel.
+ - She was really strong around me. Having me at 16 had to have been a big responsibility. My mom gave up everything for me, had three jobs, supported me, sacrificed her life for me.
+ - It’s hard enough growing up and figuring out who you are and what on earth you wanna be and it doesn’t help when people are constantly cutting you down.
+ - One of my favorite songs I’ve ever done is “Who Says,” and I was 17 when I recorded that song. It was just so exactly what I felt, during that time. That’s when I knew how powerful music is.
+ - Making new friends is tough. You don’t really know who to trust when you’re away from people that you love a lot.
+ - I used to say that I wanted someone cute and nice, an actor too, so he’d get it. But now I think it would be good for me to date someone who’s not in the business.
+ - I have a right to live my life and just be me with whoever I choose. We just do the best we can.
+ - I do agree to a certain extent that it is unfortunate that I have to be a little more aware of being a kid and growing up and figuring out who I am, but at the same time, it’s part of what I love.
+ - I don’t know how to be anything but myself.
+ - I’d love to do my own music for sure. I’d love to have a band.
+ - Being cool, having a ‘cool’ energy is just not attractive to me.
+ - The older you get, the more you have to talk about, and music is a really good outlet. I’ve chilled on it a little bit, and I can’t wait to see what I’m going to step into, now that I have this collection of things.
+ - Artistically, you want to be able to do a lot of things that can challenge you to not just stay in the same thing.
+ - I do everything for my fans. I do my clothing line, my fragrance, my TV show, my music everything is based on them.
+ - I have to make decisions that people are a little confused about, in a way, and I just express the appreciation, admiration and respect I have. I just try to be the best I can, but I’m human.
+ - I’m really nervous, because it’s actually happening. You forget after a while when you start talking about something that it’s actually going to happen.
+ - I don’t really have a structured path of wanting to say, “This is what I’ll do next.” I’m just going to read a bunch of scripts and see which one I love. There are so many things I would love to play, in all different genres.
+ - I love the scrapbooks, I have a shelf of scrapbooks fans give me – they’re so sweet, so detailed!
+ - I wanted to be like my friends. I hung out with girls who had blue eyes and blond hair and I thought, ‘I want to look like them!’
+ - I have a lot of wonderful people in my life – probably five, collectively – who I can tell everything to.
+ - You can have it all without suffering from a meltdown.
+ - I was very dramatic as a kid. I loved to entertain. I was taking my bathing suits and painting them black and putting sparkles on them because I thought I was going to be on stage.
+ - I constantly find myself changing my mind all the time. One day, I want to do just acting and just that. One day I want to do music and just that.
+ - You kind of can’t help who you’ll fall in love with. I’d date someone who isn’t in the business in a heartbeat.
+ - At the end of the day, love is such a normal thing, and everyone deals with it. Just because it’s a different lifestyle doesn’t change the meaning of what I’ve been raised on, which is fairy tales.
+ - People tell me what to do every single day. They think I’m boring. I’m Disney kid. So, there’s that.
+ - At the end of the day, besides everything that I do, I’m still just a 20-year-old girl and a Texan, at that.
+ - This is a very superficial job. I sit in a chair for two hours and get hair and makeup done and talk about myself in interviews. That’s a very vain thing to do. And I do get caught up in it sometimes.
+ - I don’t really like dressing up. Some people probably think actresses dress up everywhere they go. I’m in sweatpants half the time with my hair in a ponytail.
+ - Speaking of friends, the best ones always have your back.
+ - I love Katy Perry! She gave me a song for my second album.
+ - Everywhere you go you hear things that are untrue. You’ve just got to learn that if I don’t say it, physically out of my mouth, on camera, it’s not true.
+ - I attempt to be who I am and it’s fun. At the same time, growing up doing what I’m doing can be a little crazy.
+ - The Jonas Brothers are all sweet. They’re so amazing to me. They’ve become really good friends of mine, but I’m not dating any of them.
+ - I feel like I should be able to be 18 and have the friends that I choose and to have fun and live my life.
+
+118 quotes

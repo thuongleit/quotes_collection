@@ -1,0 +1,25 @@
+ - You can take this job and shove it because I quit.
+ - If wishes were fishes, the world would be an ocean.
+ - As God is my witness, he is broken in half!
+ - Business is about to pick up here!
+ - It’s a Slobberknocker!
+ - Pat Patterson works at The Brisco Brothers bodyshop Yeah, he does rear-end work!
+ - Matt Hardy’s quicker than a hiccup.
+ - All that I can say about Owen Hart, is that I hope that I can be, as good a man as him, so that I can see him again, someday.
+ - It is a human demolition derby!
+ - I did enjoy the broadcasting work of King, Punk and Josh Mathews last Monday on Raw. Josh is a hard working young man who does his homework and he did well with his opportunity to sit at the grown up table on Raw.
+ - Steve Austin will never be employee of the month!
+ - One last toast, to our friend, Owen Hart. We’ll never forget you, buddy.
+ - I’m not sure the ring is big enough to hold both these egos!
+ - I do have high expectations for Alex Riley. He seems athletic, articulate and intelligent. Only time will tell how far he goes, but Riley has bonafide potential. FCW did a nice job of preparing Alex for WWE. Alex’s future success is largely up to Alex.
+ - Just like Brad Pitt and what’s her name!
+ - To hell with Trish’s nose!
+ - Two beautiful women crashing and burning for the sake of the Women’s Championship!!!
+ - Cena, love him or not, connects with the ticket buying public better than any one in the biz. End of story.
+ - Nice to see Christian return as he’s been on the injured list for months. ‘Captain Charisma’ is due to have a big 2011. Very skilled, underrated talent.
+ - Stunner! Stunner! He got all of it by God!
+ - I think I’m vision-impaired!
+ - This crowd is letting Kurt know that he sucks. Just in case he had forgotten.
+ - Is there a better wrestling villain on TV these days than CM Punk? Arguable question but for my sauce, Punk is right there at the top of the heap with a handful of his peers.
+
+23 quotes

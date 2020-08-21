@@ -1,0 +1,29 @@
+ - Focused, hard work is the real key to success.
+ - If you aren’t sure which way to do something, do it both ways and see which works better.
+ - Sometimes, the elegant implementation is just a function. Not a method. Not a class. Not a framework. Just a function.
+ - Low-level programming is good for the programmer’s soul.
+ - An interesting question: is it easier to motivate a learned individual that never does anything, or educate an ignorant individual that actually produces things?
+ - Because of the nature of Moore’s law, anything that an extremely clever graphics programmer can do at one point can be replicated by a merely competent programmer some number of years later.
+ - The speed of light sucks.
+ - Making one brilliant decision and a whole bunch of mediocre ones isn’t as good as making a whole bunch of generally smart decisions throughout the whole process.
+ - I recognize that I possess a very special intellect, but at the same time, I recognize that I’m lacking in a lot of areas. But being well-rounded is greatly overrated.
+ - Note to self: Pasty-skinned programmers ought not stand in the Mojave desert for multiple hours.
+ - If you’re willing to restrict the flexibility of your approach, you can almost always do something better.
+ - At its best, entertainment is going to be a subjective thing that can’t win for everyone, while at worst, a particular game just becomes a random symbol for petty tribal behavior.
+ - You can prematurely optimize maintainability, flexibility, security, and robustness just like you can performance.
+ - Everybody’s saturated with the marketing hype of next-generation consoles. They are wonderful, but the truth is that they are as powerful as a high end PC is right now.
+ - It’s nice to have a game that sells a million copies.
+ - I wanted to remain a technical adviser for Id, but it just didn’t work out. Probably for the best, as the divided focus was challenging.
+ - It’s a good thing Doom 3 is selling very well...
+ - It is not that uncommon for the cost of an abstraction to outweigh the benefit it delivers. Kill one today!
+ - The idea that I can be presented with a problem, set out to logically solve it with the tools at hand, and wind up with a program that could not be legally used because someone else followed the same logical steps some years ago and filed for a patent on it is horrifying.
+ - The situation is so much better for programmers today – a cheap used PC, a linux CD, and an internet account, and you have all the tools necessary to work your way to any level of programming skill you want to shoot for.
+ - Honestly, I spend very little time thinking about past events, and I certainly don’t have them ranked in any way. I look back and think that I have done a lot of good work over the years, but I am much more excited about what the future holds.
+ - I’d rather have a search engine or a compiler on a deserted island than a game.
+ - It is difficult to make good scalable use of a CPU like you can of a graphics card. You certainly don’t want ‘better or worse’ physics or AI in your game.
+ - We do not see the PC as the leading platform for games. That statement will enrage some people, but it is hard to characterize it otherwise; both console versions will have larger audiences than the PC version.
+ - I like to think I’m pretty good at what I do.
+ - The Xbox 360 is the first console that I’ve ever worked with that actually has development tools that are better for games than what we’ve had on PC.
+ - One of the big lessons of a big project is you don’t want people that aren’t really programmers programming, you’ll suffer for it!
+
+27 quotes

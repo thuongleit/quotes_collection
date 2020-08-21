@@ -1,0 +1,35 @@
+ - We often reward mediocrity because it is comforting. If they can do it, anyone can do it.
+ - To live intensely is a basic human necessity.
+ - Whining is a form of manipulation. People will give anything to make you shut up.
+ - We have no control over fate and history, but we can control how we conduct ourselves in this life.
+ - People who read books in public places are regarded with suspicion because they appear self-sufficient. When you seem self-sufficient, other people think that you think you’re better than them, and they get resentful.
+ - My Macbook is my new boyfriend, except that he’s dependable and meets all my demands.
+ - Life is a series of random collisions.
+ - What does not kill you will make you stronger and more cynical.
+ - We read because we are essentially alone.
+ - Beware of those who have never been bored, depressed, or angry. There is something seriously wrong with them.
+ - Sometimes I wonder if, instead of falling madly in love, we should aspire to fall sanely in love. But then, what would be the point?
+ - One of the advantages of having an imaginary boyfriend is that he exists only for you, therefore he can not be stolen. The disadvantage is that you can not introduce him to your friends.
+ - As you go through life, you learn many lessons. Unfortunately these lessons only apply to the specific instances in which you learned them. Therefore you can expect to make horrible mistakes no matter how long you live.
+ - Yes, it’s true that you can’t learn everything from books. But you do learn something about everything.
+ - If you are honest with yourself, your life will be so much more pleasant.
+ - Greasy food might not be good for your body, but it does wonders for the soul. A healthy diet may prolong your life, but what would you have to live for? What is the point of living to a hundred if you have to subsist on bland food? One may as well die of boredom.
+ - Someday you will look back on all the awful stuff that’s happening to you, and fondly smile. Doesn’t say much about the future, does it?
+ - Never, ever point out that a woman is eating too much.
+ - Screw us once, shame on them; screw us twice, shame on us.
+ - The reason producers make stupid movies is because there are stupid people who will pay to see them.
+ - We are all the same in that we all want to be different.
+ - You can not make someone love you. You can not be thin enough or white enough or famous enough. The choice is entirely the other person’s. Then again, you might try hypnosis.
+ - Once you’ve read too many trashy best-sellers, you begin to look for something with substance, something that attempts to define the universe.
+ - That’s really what the mall is all about: money. At the mall the rule is: Credito, ergo sum – I shop, therefore I am.
+ - There’s nothing wrong with self-improvement, as long as you recognize that at some point you’re going to have to accept yourself in all your imperfect glory. What’s wrong with liking yourself the way you are?
+ - Why should I bring happiness to those I loathe by obliterating myself, when I can make them miserable just by existing?
+ - Everyone declares that love is irrational, and yet everytime this statement is proven correct, they profess amazement. They seem to assume that love will make an exception in their case. It never does.
+ - While being madly in love is fun, perhaps one should aspire to be sanely in love.
+ - We don’t really have a movie industry; we have a trailer industry. The movie guys make five minutes worth of stuff to get people in the theatre, and eighty-five minutes of filler.
+ - The reason men rule is because women let them.
+ - What we call the wisdom that comes with age is usually simple caution.
+ - That’s the thing about a great book. Every time you read it, it’s different, because you’re different. You’ve changed since the last time you picked it up, things have happened to you.
+ - In relationships it is best to assume nothing.
+
+33 quotes

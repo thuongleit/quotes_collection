@@ -1,0 +1,39 @@
+ - That deep silence has a melody of its own, a sweetness unknown amid the harsh discords of the world’s sounds.
+ - God needs no worship, no praise, no thanksgiving. It is man himself who needs the benefit to be derived from these activities.
+ - Solitude is strength; to depend on the presence of the crowd is weakness. The man who needs a mob to nerve him is much more alone than he imagines.
+ - Peace is a costly privilege-to be fought for, attained and won. It comes only from a conquered mind.
+ - Study everything, join nothing.
+ - Meditation is THE fundamental practice of the Quest.
+ - This withdrawal from the day’s turmoil into creative silence is not a luxury, a fad, or a futility. It dissolves mental tensions and heals negative emotions.
+ - The ego will always be able to find ways to keep the aspirant busy in self-improvement, thus binding him or her to the fact that the self is still there behind all the improvements. For why should the ego kill itself?
+ - Every morning is like a new reincarnation into this world. Let us take it then for what it is and live each moment anew.
+ - Deep down within the heart there is a stillness which is healing, a trust in the universal laws which is unwavering, and a strength which is rock-like. But because it is so deep we need both patience and perseverance when digging for it.
+ - You may accept the inevitable with bitterness and resentment or with patience and grace. Mere acceptance is not sufficient.
+ - Every test successfully met is rewarded by some growth in intuitive knowledge, strengthening of character, or initiation into a higher consciousness.
+ - Every discussion which is made from an egoistic standpoint is corrupted from the start and cannot yield an absolutely sure conclusion. The ego puts its own interest first and twists every argument, word, even fact to suit that interest.
+ - When it seems humanly impossible to do more in a difficult situation, surrender yourself to the inner silence and thereafter wait for a sign of obvious guidance or for a renewal of inner strength.
+ - If outer events bring him to a position where he can bear them no longer and force him to cry out to the higher power in helplessness for relief, or if inner feelings bring humiliation and recognition of his dependence on that power, this crushing of the ego may open the door to grace.
+ - Man is more miserable, more restless and unsatisfied than ever before, simply because half his nature – the spiritual – is starving for true food, and the other half – the material – is fed with bad food.
+ - No man who has lived through a temporary spiritual experience is ever likely to forget it. His days will be haunted until he sets out to seek ways and means of repeating it.
+ - When every situation which life can offer is turned to the profit of spiritual growth, no situation can really be a bad one.
+ - Your self is sacred; be true to it.
+ - Our greatest illusion is disillusion. We imagine that we are disillusioned with life, when the truth is that we have not even begun to live.
+ - The Quest not only begins in the heart but also ends there.
+ - The world is our school for spiritual discovery.
+ - The artist must raise the cup of his vision aloft to the gods in the high hope that they will pour into it the sweet mellow wine of inspiration.
+ - Find the god in your own heart and you will understand by direct intuition what all the great teachers, real mystics, true philosophers and inspired people have been trying to tell you by the tortuous method of using words.
+ - Although the pure truth has never been stated, nevertheless it has never been lost. Its existence does not depend upon human statement but upon human sensitivity. In this it is unlike all other knowledge.
+ - It is a grave misconception to regard the mystical progress as passing mostly through ecstasies and raptures. On the contrary, it passes just as much through broken hearts and bruised emotions, through painful sacrifices and melancholy renunciations.
+ - Accept the long night patiently, quietly, humbly, and resignedly as intended for your true good. It is not a punishment for sin committed but an instrument of annihilating egoism.
+ - Outwardly one’s life may suffer every kind of limitation, from bodily paralysis to miserable surroundings, but inwardly it is free in meditation to reach out to a sphere of light, beauty, truth, love, and power.
+ - He is beginning to master wisdom when he tries to learn how not to try.
+ - While the mind remains so fixed in its own personal affairs, be they little or large, it has no chance to open up its higher levels. When attention and emotion are kept so confined, the chance they offer of this higher use is missed. The peace, truth, and goodness which could be had are untouched.
+ - Whoever wants the “I” to yield up its mysterious and tremendous secret must stop it from looking perpetually in the mirror, must stop the little ego’s fascination with its own image.
+ - Whoever lives in the spirit lives in perennial peace. It is a happy peace, a smiling peace, but one is not lost in it. One is aware also of the suffering which exists around him or her and the world at large.
+ - Let us accept the invitation, ever-open, from the Stillness, taste its exquisite sweetness, and heed its silent instruction.
+ - The succession of thoughts appears in time, but the gap between two of them is outside time. The gap itself is normally unobserved. The chance of enlightenment is missed.
+ - Appetite has really become an artificial and abnormal thing, having taken the place of true hunger, which alone is natural. The one is a sign of bondage but the other, of freedom.
+ - All methods and techniques – and of course all human beings who propound them – are merely instruments to help the student obtain a methodless, technique-free, teacherless state.
+ - Now an extraordinary and helpful fact is that by making Mind the object of our attention, not only does the serenity which is its nature begin to well up of its own accord but its steady unchanging character itself helps spontaneously to repel all disturbing thoughts.
+
+37 quotes

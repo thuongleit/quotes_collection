@@ -1,0 +1,83 @@
+ - Energy flows where attention goes.
+ - You can start with nothing. And out of nothing, and out of no way, a way will be made.
+ - The pain pushes you, until the vision pulls you.
+ - I am available to more good than I have ever experienced, imagined, or realized before in my life.
+ - Mediocrity always attacks excellence.
+ - The truth is that there’s more than enough good to go around. There is more than enough creative ideas. There is more than enough power. There is enough for everyone. If you believe it, if you can see it, if you act from it, it will show up for you. That’s the truth.
+ - You can begin to shape your own destiny by the attitude that you keep.
+ - Gratitude places you in the energy field of plentitude. Perceiving life in a consciousness of gratitude is literally stepping into another dimension of living. Suddenly the seeming ordinariness of your days takes on a divine sparkle.
+ - This is our moment. This is our destiny. It’s a good destiny.
+ - Learn to become still. And to take your attention away from what you don’t want, and all the emotional charge around it, and place your attention on what you wish to experience.
+ - Be a beneficial presence on the planet. Give your Gifts. Boldly go where no woman or no man has ever gone before.
+ - Stand fully in the now moment with gratitude, enthusiasm, openness, and readiness to respond to Life as it greets you.
+ - A bad day for the ego is a good day for the soul.
+ - Don’t look for your dreams to come true; look to become true to your dreams.
+ - The universe corresponds to the nature of your song.
+ - Today, refuse to see yourself as a recipient of negative vibrations or as a victim of subtle or gross influence around you. Practice broadcasting the high vibrations of your inner radiance remembering all the while that the place upon which you stand is holy simply because you are standing there.
+ - Be for something and against nothing.
+ - You are at a choice-point in every moment of each circumstance, each activity, spoken word and thought.
+ - When one begins to really feel into the spiritual dimension of their beings, they bump into love. They bump into compassion. They bump into beauty.
+ - We are unlimited beings. We have no ceiling.
+ - When we radiate the warmth of our love-energy, our compassion-energy on the planet, we shine the qualities of our Source!
+ - There’s nothing wrong with us. There’s nothing missing in us. Everything is for us and there is nothing against us. Let us remember this together.
+ - Problems can only exist if they have your attention.
+ - Love: You’re not meant to wait for it. You’re not meant to search for it. You’re meant to generate it.
+ - Silently repeat to yourself: I forgive myself for any ways in which I knowingly or unknowingly caused hurt or harm to any living being or creature. I forgive all who have ever hurt or harmed me. Everything between us is now cleared up.
+ - And you can break yourself free from your hereditary patterns, cultural codes, social beliefs; and prove once and for all that the power within you is greater than the power that’s in the world.
+ - So as you are beginning your day anchor yourself in the truth. Know that all is well. Extend this to your friends, colleagues and all that you meet. That life is for YOU! It is never against you.
+ - Fall forward, in your failing, and rise up with a soul on fire!
+ - Grow deep roots to harvest rich fruit! When your roots run deep, you cannot help but bear the fruit of the Spirit.
+ - We are unlimited beings. We have no ceiling. The capabilities and the talents and the gifts and the power that is within every single individual that is on this planet, is unlimited.
+ - We are here to change. We are here to grow, develop and unfold. We are progressive beings that have infinite capacity.
+ - You attract the predominant thoughts that you’re holding in your awareness.
+ - Ah, the first step in humility: Listening.
+ - Complaint is a prayer to the devil.
+ - Happiness is the natural state of our being.
+ - We are pushed by pain until we are pulled by vision.
+ - You can begin right now to feel healthy You can begin to feel prosperous. You can begin to feel the love that’s surrounding you, even if it’s not there. And what will happen is the universe will correspond to the nature of your song.
+ - Too many people are living in a prison that they have themselves manufactured.
+ - I’ve seen many miracles take place in people’s lives. Financial miracles, miracles of physical healing, mental healing, healing of relationships.
+ - It has been proven now scientifically that, an affirmative thought is hundreds of times more powerful than a negative thought.
+ - Gratitude places you in the energy field of plentitude. Glow with gratitude and see how awe and joy will make their home in you.
+ - When you make the U-turn to the Universal Presence and apply the Universal practices and principles, your life is changed.
+ - When we shift from negatively complaining to positively affirming, conditions change. Then complaining is no longer the operative law in our life-freedom is.
+ - We’ve gotten caught up in thinking we are what we look like, the physical, the exterior. We think we’re the lamp shade. We’ve forgotten that we are the light-the electricity and the luminosity that lights up every man, woman, and child. The light is who we truly are.
+ - Each time we bring to routine activities an awareness of ‘now,’ we raise our vibratory frequency and cause the freshness of the moment to fall upon us.
+ - Who am I, and where am I going? You are the answer to this question. You are here to ask the question, and to be the answer.
+ - Mistakes are about getting the blessing in the lesson and the lesson in the blessing.
+ - Trust, practice, and then release yourself into the goodness of Existence and your life will prove that what you believe, you see.
+ - If you are not consciously directing your life, you will lose your footing and circumstances will decide for you.
+ - If you are not living in joy, you are out of integrity with your soul.
+ - It’s a wonderful destiny! God made no mistakes when God wrote the beautiful, unfolding pattern of delight as You!
+ - Creation is always happening. Every time and individual has a thought, or a prolonged chronic way of thinking, they’re in the creation process. Something is going to manifest out of those thoughts.
+ - You can change your life, and you can heal yourself.
+ - Affirmations don’t make something happen; they make something welcome.
+ - If you want love, love somebody.
+ - Today give up false mental attachments and beliefs! Free yourself from the delusion that anything external can fulfill the hunger of your soul for God-Consciousness.
+ - When you make genuine contact with your inner Spirit, there is an inner joy, an inner peace, that takes over.
+ - Stop looking outside for help. You’re sourced and fuelled and funded by a renewable resource, which is within you. It never runs out. It is your Essence. It’s your life.
+ - Our universe is not a ‘was’ or a ‘will be’ system. It is an ‘is’ system vibrating within the ‘now’ measurement of time.
+ - Meditation and prayer have withstood the test of time. They work today as perfectly as they did for those who first practised and perfected them.
+ - Our journey into consciousness of wealth begins with the realization that we have already arrived!
+ - This is the great Secret of life.
+ - Place your attention on what you wish to experience.
+ - Your good is happening right now, even as you accept this statement of truth.
+ - A person all wrapped up in themselves makes for a mighty small package.
+ - Do you live in a mine field or a garden? When we live in a minefield mentality, we explode with the weeds of worry, doubt, fear, lack and limitation. Choose to cultivate your inner garden!
+ - Authentic gratitude is a way of life. When you wake up in the morning let your first thought be one of thanksgiving that you have another day to walk in the love of God. As you go through your day, see the Giver behind all of the gifts freely being given to you.
+ - A spiritual intention is a resounding YES to awakening to your fullest potential. It may include several of your life structures: mental, emotional, financial, relational – because there is no aspect of your life that is not spiritual.
+ - If you are not thinking for yourself, someone else is thinking for you. Choose for yourself and become free from society’s undertow. The Universe is ready to support you.
+ - Stop the mental chatter about what’s wrong and what’s not complete. There is a presence of Love that is seeking to express itself through you.
+ - The belief that a personal life exists apart from God creates experience disconnected from God. This is painful and frustrating. Our spiritual work is to break down the illusion that we have a life here and that a life of God is somewhere else.
+ - The beautiful thing about the law of attraction is that you can begin where you are, and you can begin to think, real thinking, and you can begin to generate within yourself a feeling tone of harmony and happiness. The law will begin to respond to that.
+ - Our primordial purpose is to respond to the impulsion from within to solve the mystery of our individual existence, to find and be the authentic Self that is, has been and ever shall be.
+ - Integrity is about being integrated with the spiritual values of the Universe. It is also about being happy, because happiness and joy mean that you’re coming into integrity with your soul.
+ - There are laws of the universe and if you practice them they will respond to you.
+ - The enlightened give thanks for what most people take for granted.
+ - You are a cosmic happening rooted in a local event, NOT the other way around.
+ - When you see the world that God sees, you see a world that is loving, compassionate, and filled with individuals who live together in harmony and peace.
+ - The point is to create a system where individuals don’t work simply for money or personal gain but to support the planet and its inhabitants in entering the next stage of evolutionary progression.
+ - There’s an intelligence within the heart that is far bigger than our figuring out the mind.
+ - You cannot bring anything new into your life until you are grateful for what you have now.
+
+81 quotes

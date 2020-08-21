@@ -1,0 +1,28 @@
+ - Rock’n’roll saved my soul.
+ - My mind is turning into kind of a fine gelatinous ball of pepper.
+ - Tonight I am going to defecate on stage because I think that is the only way to express the nature of my soul according to rock and roll.
+ - A lot of the lyrical ideas do have a lot of meaning in a way, although it is somewhat abstracted.
+ - So lots of respect for all you boys and girls out there who tab out songs like all the time. You bring rock and roll music closer to the people. Gratefully yours.
+ - Noise has taken the place of punk rock. People who play noise have no real aspirations to being part of the mainstream culture. Punk has been co-opted, and this subterranean noise music and the avant-garde folk scene have replaced it.
+ - It’s hard for bands to stick it out because people grow up, and it never really pays off. If you’re looking for some sort of payoff, it’s not gonna happen.
+ - Every now and again, the alternative culture is cherished by the mainstream for what it is, rather than how it should be, like the mainstream popular music.
+ - I really want to do a book on the history of the no-wave music scene in New York, how it extended out and formed lots of other things. It was such a great visual culture.
+ - Lyric writing is an interesting process in Sonic Youth. There’s three people writing now, and we’ve all had a lot of interest and involvement with expression through words.
+ - Buddhism has become a socially recognized religious philosophy for Americans, whereas it used to be considered an exotic religion.
+ - Whenever I can afford to do something, I do it.
+ - I never go back and listen to the recorded document. The thrill comes when the balance can be attained. Everyone in the room can have a shared, communal rock experience.
+ - I was surrounded by nature and trying to come to terms with this blissful nature versus the inhumane mentality of war. People were being deluded by someone using the word peace.
+ - I have to reign myself in a lot.
+ - Most people can’t tell now who wrote what. I like that blurring of identities within the band. because it becomes a unified thing that can’t be related to other forms of historical poetry.
+ - Each member does whatever they want with the song and it totally changes it from whatever idea I hear around it. It turns it into a Sonic Youth song and completely away from it being a solo song.
+ - I certainly don’t sit around in the morning making pancakes listening to Whitehouse or anything.
+ - I grew up in the early ’70s in New England.
+ - I never do releases to try and make or break some contemporary band.
+ - The band has a liberal philosophy – that’s sort of a given.
+ - Anyone who grows up with parents who are very influential, there are cases where people run away from that if they have parents who are really lame.
+ - We always try to encourage more songs sung by Kim, because there are always requests for it. I certainly don’t want to ball hog all the singing.
+ - I wanted to hear the songs in the way that I had written them, which was very basic. All I wanted was drums and another guitar, and I was just going to sing.
+ - Hits are for squares.
+ - We’re playing all these weird festivals, usually outdoors.
+
+26 quotes

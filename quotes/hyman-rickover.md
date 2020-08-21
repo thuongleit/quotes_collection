@@ -1,0 +1,39 @@
+ - The Devil is in the details, but so is salvation.
+ - All new ideas begin in a non-conforming mind that questions some tenet of the conventional wisdom.
+ - The devil is in the details, and everything we do in the military is a detail.
+ - More than ambition, more than ability, it is rules that limit contribution; rules are the lowest common denominator of human behavior. They are a substitute for rational thought.
+ - Optimism and stupidity are nearly synonymous.
+ - I have the charisma of the chipmunk. I never have thought I was smart. I thought the people I dealt with were dumb.
+ - Above all, we should bear in mind that our liberty is not an end in itself; it is a means to win respect for human dignity for all classes of our society.
+ - Success teaches us nothing; only failure teaches.
+ - Nothing so sharpens the thought process as writing down one’s arguments. Weaknesses overlooked in oral discussion become painfully obvious on the written page.
+ - In Greek mythology, Antaeus was a giant who was strong as long as he had contact with the earth. When he was lifted from the earth he lost strength. So it is with engineers. They must not become isolated from the real world.
+ - Half-truths are like half a brick – they can be thrown farther.
+ - When doing a job – any job – one must feel that he owns it, and act as though he will remain in that job forever.
+ - We bury the men who do the nation’s creative work under layers of administrators and mountains of memoranda. We shrivel creativity by endless frustrations.
+ - If you are going to sin, sin against God, not the bureaucracy. God will forgive you but the bureaucracy won’t.
+ - As a guide to engineering ethics, I should like to commend to you a liberal adaptation of the injunction contained in the oath of Hippocrates that the professional man do nothing that will harm his client.
+ - I have a son. I love my son. I want everything that I do to be so safe that I would be happy to have my son operating it. That’s my fundamental rule.
+ - A child is being properly educated only when he is learning to become independent of his parents.
+ - To doubt one’s own first principles is the mark of a civilized man. Don’t defend past actions; what is right today may be wrong tomorrow. Don’t be consistent; consistency is the refuge of fools.
+ - Good ideas are not adopted automatically. They must be driven into practice with courageous patience.
+ - Act as if you are going to live for ever and cast your plans way ahead. You must feel responsible without time limitations, and the consideration of whether you may or may not be around to see the results should never enter your thoughts.
+ - Good ideas are not adopted automatically. They must be driven into practice with courageous impatience. Once implemented they can be easily overturned or subverted through apathy or lack of follow-up, so a continuous effort is required.
+ - Free discussion requires an atmosphere unembarrassed by any suggestion of authority or even respect.
+ - Trying to make things work in government is sometimes like trying to sew a button on a custard pie.
+ - It is a human inclination to hope things will work out, despite evidence or doubt to the contrary. A successful manager must resist this temptation.
+ - The tools of the academic designer are a piece of paper and a pencil with an eraser. If a mistake is made, it can always be erased and changed. If the practical-reactor designer errs, he wears the mistake around his neck; it cannot be erased. Everyone sees it.
+ - Human experience shows that people, not organizations or management systems, get things done.
+ - It troubles me that we are so easily pressured by purveyors of technology into permitting so-called “progress” to alter our lives without attempting to control it-as if technology were an irrepressible force of nature to which we must meekly submit.
+ - When the men in Russia foul up, they are dismisses, sometimes losing their necks. But we protect those who fail and press them to the government bosom.
+ - How the hell are you supposed to know what God wants you to do with your life, eh?
+ - Knowing more about the public effects his work will have, the engineer ought to consider himself an “officer of the court” and keep the general interest always in mind.
+ - Responsiblity is a unique concept. It can only reside and inhere in a single individual. You may share it with others, but your portion is not diminished. You may delegate it, but it is still with you. You may disclaim it, but you cannot divest yourself of it.
+ - Thoughts arising from practical experience may be a bridle or a spur.
+ - Those involved with practical reactors, humbled by their experiences, speak less and worry more.
+ - The man in charge must concern himself with details. If he does not consider them important, neither will his subordinates.
+ - A system under which it takes three men to check what one is doing is not control; it is systematic strangulation.
+ - Any one detail, followed through to its source, will usually reveal the general state of readiness of the whole organization.
+ - I believe it is the duty of each of us to act as if the fate of the world depended on him. Admittedly, one man by himself cannot do the job. However, one man can make a difference. We must live for the future of the human race, and not for our own comfort or success.
+
+37 quotes

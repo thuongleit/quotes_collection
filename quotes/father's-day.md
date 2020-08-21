@@ -1,0 +1,28 @@
+ - My father didn't tell me how to live; he lived, and let me watch him do it. ~~Clarence Budington Kelland
+ - My father gave me the greatest gift anyone could give another person, he believed in me. ~~Jim Valvano
+ - Any man can be a father, but it takes someone special to be a dad. ~~Anne Geddes
+ - The older I get, the smarter my father seems to get. ~~Tim Russert
+ - Dad is a son's first hero and a daughter's first love. ~~Anonymous
+ - By the time a man realizes that maybe his father was right, he usually has a son who thinks he's wrong. ~~Charles Wadsworth
+ - A father's smile has been known to light up a child's entire day. ~~Susan Gale
+ - A daughter needs a dad to be the standard against which she will judge all men. ~~Anonymous
+ - A truly rich man is one whose children run into his arms when his hands are empty. ~~Ziad K. Abdelnour
+ - The heart of a father is the masterpiece of nature. ~~Antoine François Prévost
+ - I cannot think of any need in childhood as strong as the need for a father’s protection. ~~Sigmund Freud
+ - It doesn't matter who my father was; it matters who I remember he was. ~~Anne Sexton
+ - One father is more than a hundred schoolmasters. ~~George Herbert
+ - A father is someone who is proud to see you get your first car, but secretly wishes it had no keys. ~~Linda Poindexter
+ - When a father gives to his son, both laugh; when a son gives to his father, both cry. ~~William Shakespeare
+ - A father is the one friend upon whom we can always rely. In the hour of need, when all else fails, we remember him upon whose knees we sat when children, and who soothed our sorrows; and even though he may be unable to assist us, his mere presence serves to comfort and strengthen us. ~~Émile Gaboriau
+ - It is a wise father who knows his own child. ~~William Shakespeare
+ - Sometimes the poorest man leaves his children the richest inheritance. ~~Ruth E. Renkel
+ - Blessed indeed is the man who hears many gentle voices call him father. ~~Lydia Maria Francis Child
+ - A father is the template of a man Nature gives a girl. ~~Allison Pearson
+ - Before I got married I had six theories about raising children; now, I have six children and no theories. ~~John Wilmot
+ - No music is so pleasant to my ears as that word – father. ~~Lydia Maria Francis Child
+ - A boy does not need a father unless he is a good father, but a good father is indispensable. ~~Stephen King
+ - It is not flesh and blood, but heart which makes us fathers and sons. ~~Friedrich Schiller
+ - A father is always making his baby into a little woman. And when she is a woman he turns her back again. ~~Enid Bagnold
+ - Fatherhood is pretending the present you love most is soap-on-a-rope. ~~Bill Cosby
+
+26 quotes

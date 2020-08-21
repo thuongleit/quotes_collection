@@ -1,0 +1,43 @@
+ - It is easily overlooked that what is now called vintage was once brand new.
+ - My father loved people, children and pets.
+ - Some people do rely too much on technology. Look, technology is wonderful and I love it. When I was in the UK and I had hit records I would also have a high tax bill at the end of the year, and that would be the time to buy up all the technology – it was write offs.
+ - Our last jam session was this past Christmas. Dad played his harmonica, mom sang in English and Italian, and I played guitar. I’m so happy that we could share that musical experience for one last time.
+ - Fortunately I own a vintage brain, and I am alive and well in the 21st century, still making records, still working at an intense pace and most of all, still having fun doing it.
+ - In August most of Europe goes on holiday.
+ - I like to work with people who have a sense of putting a song over, and can sing in tune, and with passion. With technology you can polish a turd, but there’s still no button you can press for passion.
+ - Marc Bolan had inspired so many people to pick up a guitar and join a band.
+ - In the last 17 years of his working life, my father was finally rewarded with having landed a great job as first, a maintenance engineer, and then a senior locksmith with the Federal Reserve Bank of New York.
+ - The labels are not getting the returns they want from their PR. Plus, for every Taylor Swift there are a hundred thousand nobodies out there who are probably making better music. Self-releasing is the only way to go.
+ - Any respectable artist has really given up on a label because the labels are still kidding themselves that the only way to go is to sign these big names like Lady Gaga and expect to make gazillions.
+ - Despite a few really bad days we had quite a lot of fun making Low, especially when all the radical ideas were making sense and things were starting to click.
+ - You don’t necessarily need expensive gear or giant budgets to reach an audience.
+ - Since my teen years I was interested in martial arts.
+ - Rock and Roll has certainly tried to take its toll on me. I’d rather not talk about my past excesses here, although some hardcore rockers might argue that those excesses were responsible for some great records, but I know which side I came out on.
+ - Originally a record producer more or less hired a bunch of professionals to participate in a recording session, the performers and the technicians, and a music director was put in charge. That directly related to a film producer’s job.
+ - I keep reviewing my feelings about the supernatural.
+ - I am flying back to New York as I write this. I will never forget these wonderful 35 days and I would go back to Copenhagen in a heartbeat to work there again.
+ - When I was five my parents bought me a ukulele for Christmas. I quickly learned how to play it with my father’s guidance. Thereafter, my father regularly taught me all the good old fashioned songs.
+ - Oh, it was so hard to leave Paris, just about my favorite city in the world.
+ - The eighties turned the whole system upside down. They would sign three groups and give them five or ten million dollars each to make three records. Out of those three records maybe one would be a hit. The economy changed, and that’s why the music changed.
+ - I love Logic Audio and have been using it for years. All my track outputs used to come up on my old board in the same order as in the old Mac G4 – 1 through 32, came up as 1 through 32, for instance.
+ - Finally, I would like to remind record companies that they have a cultural responsibility to give the buying public great music. Milking a trend to death is not contributing to culture and is ultimately not profitable.
+ - My profession is called record production.
+ - I grew up to the sound of live music in our Brooklyn household.
+ - I make records with an open mind, I always have.
+ - I kind of liked the method of the seventies where they would throw a little bit of money at a hundred different groups – not millions of dollars per group, but, you know, a few thousand. Throw them in the studio, and if five of those groups came out with a hit record it would be money well spent.
+ - Today’s recording techniques would have been regarded as science fiction forty years ago.
+ - I am not a creature of habit.
+ - We always started these albums as making demos, that went right on until Scary Monsters.
+ - My father had a brilliant scholastic record in high school and was awarded a college scholarship. Unfortunately he had to turn it down so that he could continue to support his family.
+ - Towards the end of the seventies pop was gaining the momentum and respectability was very high with groups like Yes and Queen who were making “classical” rock records. They were also bringing in big bucks. So the eighties became the “bottom line” decade.
+ - Now I know what it’s like to be a rock star. No, I didn’t sleep with 5 groupies at once. But I was interviewed about 45 times in 5 days in 3 cities.
+ - The ukulele was the first of many instruments they had bought for me. They got me a guitar when I was eleven, which my son Morgan uses until this day. They paid for 3 years of guitar lessons; they bought me a bass fiddle, which I still play.
+ - But some great records are are being made with today’s technology and there are still great artists among us. Likewise there are artists today who are so reliant on modern technology, they wouldn’t have emerged when recording was more organic.
+ - Today a record producer is even more involved and is often the production’s sole musician, one person playing all the instruments one-by-one.
+ - No one else in our family was a professional musician so this took an enormous leap of faith on their part.
+ - Pop was initially ignored as a moneymaker by the recording industry. In the seventies they were still relying on Frank Sinatra and Tony Bennett for their big hits. You know, most of the budget for the record companies in those days went to the classical department – and those were big budget albums.
+ - Computers have virtually replaced tape recorders.
+ - You could make some great sounds with technology. That’s what recording is all about. What happens in the studio is very magical, and should be, in my opinion.
+ - The object is to make a great record and you have to do whatever it takes.
+
+41 quotes

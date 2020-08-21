@@ -1,0 +1,36 @@
+ - Live your life with arms wide open. Today is where your book begins. The rest is still unwritten.
+ - The pen is in your hands, the rest is still unwritten.
+ - No one else can feel it for you only you can let it in no one else, no one else can speak the words on your lips treat yourself in what’s unspoken live your life with arms wide open today is where your book begins the rest is still unwritten.
+ - Staring at the blank page before you, Open up the dirty window, Let the sun illuminate the words that you could not find.
+ - I love arranging my music, not in alphabetical order but by mood, creating playlists for when I have energy and want to work out or go-out party mixes and music to chill out to.
+ - I bruise easily so be gentle when you handle me...
+ - Feel the rain on your skin, no one else can feel it for you.
+ - Just like the moon, I’ll step aside, and let your sun shine while I follow behind...
+ - A lot of my songs are about taking whatever life throws at you and making the most of it.
+ - Music is a very powerful thing. If I’m angry, I can write a song about it, and it seems to make everything okay.
+ - I hate that feeling of being so full that you feel like you’re gonna burst, so I try not to do that.
+ - The common denominator is a love of music.
+ - Write your own songs. It helps you to mean what you’re singing, which will then make it mean something to listeners.
+ - The way that I approach music has a bit of a sense of humor to it. Something slightly different that people can still relate to.
+ - It’s common knowledge that in the entertainment industry there’s a lot of craziness that goes down, and it’s really hard for anyone to stay sane. It’s not a very natural environment to be in for too long. It’s not very healthy.
+ - I love lamb shank. It’s my favorite thing. You don’t have it in America. It’s a younger meat – it just falls off the bone – it’s kind of like a roast. I really like blackened cod too.
+ - I would love to do something with Coldplay.
+ - My skin is like a map of where my heart has been And I can’t hide the marks It’s not a negative thing.
+ - I think my song about ‘I want to have your babies’ really does freak a lot of guys out, not just my boyfriend!
+ - I wanted to write about relationships. But I didn’t feel I had the experience to sing about them in a deep way. Studying psychology helped me out in terms of my understanding. I still look through my old textbooks when I’m in need of inspiration.
+ - I like doing very high action things. Running, boxing, a lot of free weights. They’re not heavy. I eat what I want, really, because I think that while you’re working out you can eat better.
+ - Surround yourself with friends who only call you a superstar.
+ - My family comes from New Zealand, but I’m a London girl. I was born and raised in London, but I’ve got the blood of a New Zealander, so I always kind of felt like I didn’t belong – in a good way.
+ - I took temp jobs, recorded a demo in the evenings and eventually shopped a record deal. All I knew was that I wanted to write songs; thankfully, I also got to sing them.
+ - I’m very honest in my music and I’m often asked to explain the lyrics; as an introvert, I find that quite hard. And I always wear high heels on stage, which can be painful.
+ - I don’t want to be the next anyone. I just want to be me, now. And that means all different things.
+ - People don’t listen to one radio station. On iTunes you can mix different worlds and bring country and pop and folk and live music together with a mass audience. I could have sung ‘Easy’ in a country way but I just sang it how I sing. I think it’s a really nice blend.
+ - The music technology scene is changing so fast its hard to keep up.
+ - I liked English and art and did a lot of painting. And for some reason I was good at math, but I wasn’t an A student. I really had to work hard to get good grades.
+ - I did actually like school. When I was 17, I was in college, but before that, I was home-schooled. I was very social. I liked to know everyone.
+ - I got a job as soon as I could – 11 or 12. I started babysitting and then I got a part-time job at a pharmacy in England. I just remember loving the feeling of going out and buying my own clothes! I’d go bargain-hunting and get secondhand vintage stuff.
+ - I get very deep into the writing and recording process.
+ - As a teenager I had friends who had little music studios in their bedrooms and garages. I’d go and play around; very soon, my hobby became a passion.
+ - I know I should keep this a secret, but Celine Dion is something of an icon to me.
+
+34 quotes

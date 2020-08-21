@@ -1,0 +1,48 @@
+ - Catholics are born for combat.
+ - There is in the Sacred Heart the symbol and express image of the infinite love of Jesus Christ which moves us to love in return.
+ - God is not only true, but Truth itself.
+ - Peace is built on the foundation of justice.
+ - Divorce is born of perverted morals and leads to vicious habits.
+ - We hold upon this earth the place of God Almighty.
+ - The first law of history is to dread uttering a falsehood; the next is not to fear stating the truth; lastly, the historian’s writings should be open to no suspicion of partiality or animosity.
+ - The devotion which God sends to the succor of His Church and of the nations at the present time is the devotion to the Most Holy Eucharist. It is the highest of all devotions.
+ - Inequality of rights and power proceeds from the very Author of nature...
+ - The fact that God gave the whole human race the earth to use and enjoy cannot indeed in any manner serve as an objection against private possessions.
+ - Every man has by nature the right to possess property as his own. This is one of the chief points of distinction between man and the animal creation.
+ - No one is so rich that he does not need another’s help; no one so poor as not to be useful in some way to his fellow man; and the disposition to ask assistance from others with confidence and to grant it with kindness is part of our very nature.
+ - Once the demands of necessity and propriety have been met, the rest that one owns belongs to the poor.
+ - Heart of Jesus, burning with love for us, inflame our hearts with love of Thee.
+ - They knew only too well the intimate bond which unites faith with worship, ‘the law of belief with the law of prayer,’ and so, under the pretext of restoring it to its primitive form, they corrupted the order of the liturgy in many respects to adapt it to the errors of the Innovators.
+ - The Rosary is the most excellent form of prayer and the most efficacious means of attaining eternal life. It is the remedy for all our evils, the root of all our blessings. There is no more excellent way of praying.
+ - The family was ordained of God that children might be trained up for himself; it was before the church, or rather the first form of the church on earth.
+ - It is not the part of prudence to neglect that which antiquity in its long experience has approved and which is also taught by apostolic authority.
+ - You are not to be looked upon as holding the true Catholic faith if you do not teach that the faith of Rome is to be held.
+ - Wages ought not to be insufficient to support a frugal and well-behaved wage-earner.
+ - To suffer and to endure is the lot of humanity.
+ - The Church of Christ, therefore, is one and the same forever.
+ - Remember and understand well that where Peter is, there is the Church; that those who refuse to associate in communion with the Chair of Peter belong to Antichrist, not to Christ. He who would separate himself from the Roman Pontiff has no further bond with Christ.
+ - We are convinced that the Rosary, if devotely used is bound to benefit not only the individual but society at large.
+ - It is neither just nor human so to grind men down with excessive labour as to stupefy their minds and wear out their bodies.
+ - People differ in capacity, skill, health, strength; and unequal fortune is a necessary result of unequal condition. Such inequality is far from being disadvantageous either to individuals or to the community.
+ - Our own belief is that the renovation of the world will be brought about only by the Holy Eucharist.
+ - The Rosary offers an easy way to present the chief mysteries of the Christian religion and to impress then upon the mind.
+ - We have seen that this great labor question cannot be solved save by assuming as a principle that private ownership must be held sacred and inviolable. The law, therefore, should favor ownership, and its policy should be to induce as many as possible of the people to become owners.
+ - Nothing emboldens the wicked so greatly as the lack of courage on the part of the good.
+ - To this must be added that the hiring of labor and the conduct of trade are concentrated in the hands of comparatively few; so that a small number of very rich men have been able to lay upon the teeming masses of the laboring poor a yoke little better than that of slavery itself.
+ - Inasmuch as the domestic household is antecedent, as well as in idea as in fact, the family must necessarily have rights and duties which are prior than those of the Community and founded more immediately in nature.
+ - Books of apostates, heretics, schismatics, and all other writers defending heresy or schism or in any attacking the foundations of religion, are altogether prohibited.
+ - But the supreme teacher in the Church is the Roman Pontiff. Union of minds, therefore, requires, together with a perfect accord in the one faith, complete submission and obedience of will to the Church and to the Roman Pontiff, as to God Himself.
+ - It is shameful and inhuman to treat men like chattels to make money by, or to regard them merely as so much muscle or physical power.
+ - Moreover, Christians are born for combat, whereof the greater the vehemence, the more assured, God willing, the triumph: ‘Have confidence; I have overcome the world’
+ - Not only, in strict truth, was marriage instituted for the propagation of the human race, but also that the lives of husbands and wives might be made better and happier.
+ - It is quite unlawful to demand, defend, or to grant unconditional freedom of thought, or speech, of writing or worship, as if these were so many rights given by nature to man.
+ - It is an in, a grave evil and a disturbance of the right order, for a larger and higher organisation, to arrogate to itself functions which can be performed efficiently by smaller and lower bodies.
+ - The liberty of thinking and publishing whatsoever each one likes, without any hindrances, is not in itself an advantage over which society can wisely rejoice. On the contrary, it is the fountainhead and origin of many evils.
+ - There are three influences which appear to Us to have the chief place in effecting this downgrade movement of society. These are-first, the distaste for a simple and laborious life; secondly, repugnance to suffering of any kind; thirdly, the forgetfulness of the future life.
+ - For what concerns diversity of rites in the sacred liturgy, the Apostolic See has always made its position clear: not only it does not condemn diversity, but it eagerly and willingly grants to each nation the right to keep and preserve the legitimate customs and traditions of its forbears.
+ - Inadequacy of his own strength, learned from experience, impels and urges a man to enlist the help of others.
+ - Nothing is more important than to war on war.
+ - O Virgin most holy, none abounds in the knowledge of God except through thee; none, O Mother of God, obtains salvation except through thee, none receives a gift from the throne of mercy except through thee.
+ - The twentieth century must be a century of the Blessed Sacrament if it means to be a century of resurrection and of life.
+
+46 quotes

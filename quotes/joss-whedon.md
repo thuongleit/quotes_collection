@@ -1,0 +1,240 @@
+ - I write to give myself strength. I write to be the characters that I am not. I write to explore all the things I’m afraid of. 
+ - Remember to always be yourself. Unless you suck.
+ - If nothing we do matters, then all that matters is what we do.
+ - I am a leaf on the wind. Watch how I soar!
+ - Whatever makes you weird is probably your greatest asset.
+ - Make it dark, make it grim, make it tough, but then, for the love of God, tell a joke.
+ - The hardest thing in this world, is to live in it.
+ - I’m not a control freak – I’m a control enthusiast.
+ - If you can’t do something smart, do something right.
+ - The news isn’t there to tell you what happened. It’s there to tell you what it wants you to hear or what it thinks you want to hear.
+ - Don’t give people what they want, give them what they need.
+ - Never sit at a table you can’t walk away from.
+ - Take my love, take my land Take me where I cannot stand I don’t care, I’m still free You can’t take the sky from me.
+ - If you can’t run, you crawl. If you can’t crawl – you find someone to carry you.
+ - Half of writing history is hiding the truth.
+ - I cannot abide useless people.
+ - We have done the impossible. And that makes us mighty.
+ - The greatest expression of rebellion is joy.
+ - So, no more running. I aim to misbehave.
+ - You take people, you put them on a journey, you give them peril, you find out who they really are.
+ - Recognizing power in another does not diminish your own.
+ - Very occasionally, if you pay really close attention, life doesn’t suck.
+ - Don’t just be yourself. Be all of yourself. Don’t just live. Be that other thing connected to death. Be life. Live all of your life. Understand it, see it, appreciate it. And have fun.
+ - I’ll take crazy over stupid any day.
+ - People with real power never fear of losing it. People with control think of little else.
+ - You go to movies to see people you love suffer – that’s why you go to the movies. You don’t go to see a movie about a guy who already knows he has a wonderful life.
+ - Redemption is something you have to fight for in a very personal, down-dirty way. Some of our characters lose that, some stray from that, and some regain it.
+ - Buffy Anne Summers 1981-2001 Beloved sister Devoted Friend She saved the world A lot.
+ - How did you find me here? If I was blind, I would see you. Stay with me. Forever. That’s the whole point. I’ll never leave. Not even if you kill me.
+ - The only way to real mature love is to get past the tropes of what we consider ‘romance.’
+ - Forgiveness is like a great act of compassion. That it was done not because someone deserved it, but because they needed it.
+ - Everybody who made it through adolescence is a hero.
+ - Equality is not a concept. It’s not something we should be striving for. It’s a necessity. Equality is like gravity. We need it to stand on this earth as men and women.
+ - We don’t need heroes so much as recognizing ourselves as heroes.
+ - I have a desperate longing to have a desperate longing.
+ - In every generation there is a chosen one. She alone will stand against the vampires the demons and the forces of darkness. She is the slayer.
+ - Even in the darkness, every color can be found. And every day of rain brings water flowing to things growing in the ground.
+ - Angel, when I look into the future, all I see is you! All I want is you. I know the feeling.
+ - If you think that happiness means total peace, you will never be happy. Peace comes from the acceptance of the part of you that can never be at peace. It will always be in conflict. If you accept that, everything gets a lot better.
+ - Absolutely eat dessert first. The thing that you want to do the most, do that.
+ - Come a day there won’t be room for naughty men like us to slip about at all. This job goes south, there well may not be another. So here is us, on the raggedy edge. Don’t push me, and I won’t push you. Dong le ma?
+ - The thing about a hero, is even when it doesn’t look like there’s a light at the end of the tunnel, he’s going to keep digging, he’s going to keep trying to do right and make up for what’s gone before, just because that’s who he is.
+ - I don’t write just to be clever. But sometimes I do. And if you don’t have an understanding of the language, then the way in which it’s bent doesn’t actually register. It’s the old you-gotta-paint-like-them-before-you-can-paint-like-you thing.
+ - Loneliness is about the scariest thing out there.
+ - Hey, this is weird. I ordered one frozen yogurt and they gave me two. You don’t happen to like frozen yogurt do you? I love it! You’re kidding! What a crazy, random happenstance!
+ - We need narrative; it feeds us in a particular way, and deconstructing it completely before you’ve actually experienced it, I think it leaves us unfed.
+ - I am a great believer in found families and I’m not a great believer in blood.
+ - You can’t take the sky from me.
+ - I think it’s always important for academics to study popular culture, even if the thing they are studying is idiotic. If it’s successful or made a dent in culture, then it is worthy of study to find out why.
+ - I describe television as feminine and movies as masculine, in the sense that television wants to examine a problem from all sides and talk about it for a long time, and movies just want to hit the climax and then maybe have a smoke.
+ - If you’re going to make a science fiction movie, then have a hover craft chase, for God’s sake.
+ - Peace comes from the acceptance of the part of you that can never be at peace.
+ - The more power that we have, the less human we are.
+ - Can’t stop the signal.
+ - A vague disclaimer is nobody’s friend.
+ - You either have to write or you shouldn’t be writing. That’s all.
+ - Sometimes people are layered like that. There’s something totally different underneath than what’s on the surface. But sometimes, there’s a third, even deeper level, and that one is the same as the top surface one. Like with pie.
+ - There’s a reason Tony Stark makes fun of ‘Thor,’ and mentions ‘Shakespeare’ in the park in ‘The Avengers.’ It’s great to play high drama and comedy alongside a modern story.
+ - Faith in God means believing absolutely in something with no proof whatsoever. Faith in humanity means believing absolutely in something with a huge amount of proof to the contrary. We are the true believers.
+ - If I wrote what I really think, I would be so sad all the time. We create to fill a gap – not just to avoid the idea of dying, it’s to fill some particular gap in ourselves.
+ - The misogyny that is in every culture is not a true part of the human condition. It is life out of balance, and that imbalance is sucking something out of the soul of every man and woman who’s confronted with it.
+ - Time is what turns kittens into cats.
+ - Writing is the greatest thing that can happen to a human being. It’s the best.
+ - People love a happy ending. So every episode, I will explain once again that I don’t like people. And then Mal will shoot someone. Someone we like. And their puppy.
+ - I don’t have a particular ambition in any medium. I just want to keep telling stories. If somebody pays me, also good.
+ - Ultimately what I end up writing about is helplessness and the flipside of that, empowerment.
+ - You know, I always was an early morning or late night writer. Early morning was my favorite; late night was because you had a deadline. And at four in the morning you make up some of your most absurd jokes.
+ - Identity is something that you are constantly earning.
+ - Do you love me? What? Do you? I love you. I don’t know if I trust you. Maybe you shouldn’t do either. Maybe I’m the one who should decide!
+ - I mean, I knew I wasn’t a nice person, but what did I do in my past life to deserve this? I must have hit a bus full of nuns while driving a stolen car on my way to selling drugs to schoolchildren!
+ - You give my regards to St. Peter, or whoever has his job, but in Hell.
+ - Everyone has their first date and the object is to hide your flaws. And then you’re in a relationship, and it’s all about hiding your disappointment. And then, once you’re married, it’s about hiding your sins.
+ - I’m working on Buffy: Deep Space Nine. It will be dark and badly received.
+ - You’re going to burn in a very special level of hell. A level they reserve for child molesters and people who talk at the theater.
+ - Humor keeps us alive. Humor and food. Don’t forget food. You can go a week without laughing.
+ - You can’t just throw people at all your problems, dear.
+ - The one thing a creator can bring to the table when everybody else has all the money and power is centeredness and the ability to walk away. Never sit at a table you can’t walk away from.
+ - Love is for children. I owe him a debt.
+ - Horror movies don’t exist unless you go and see them, and people always will.
+ - Okay, uh, I’m lost. I’m angry. And I’m armed.
+ - There’s a fine line between support and stalking and let’s all stay on the right side of that.
+ - I don’t want the giant ego. I don’t want to become Kevin Costner, singing on the soundtrack to The Postman.
+ - Xander, don’t speak Latin in front of the books.
+ - I love fantasy. I love horror. I love musicals. Whatever doesn’t really happen in life is what I’m interested in. As a way of commenting on everything that does happen in life, because ultimately the only thing I’m really interested in is people.
+ - People used to laugh that academics would study Disney movies. There’s nothing more important for academics to study, because they shape the minds of our children possibly more than any single thing.
+ - This is a sad, sad reflection on our times, when people must feed off the carcasses of beloved stories from their youths-just because they can’t think of an original idea of their own, like I did with my Avengers idea that I made up myself.
+ - And by the way it’s not about making money, it’s about taking money. Destroying the status quo because the status is not quo. The world is a mess and I just need to rule it.
+ - Doctor, I’m taking your sister under my protection. If any thing happens to her, anything at all, I swear to you I will get very choked up. Honestly, there could be tears.
+ - My life has included a study of Shakespeare and to me it’s very natural, but I know that it’s not always accessible to other people.
+ - Sarah Michelle Gellar’s made some really good choices. She’s had some bad breaks. She goes with the independent, interesting young filmmakers and then they get slammed, like ‘Southland Tales.’ I’m proud of what she’s trying to do. It’s hard.
+ - Live all of your life. Understand it, see it, appreciate it. And have fun.
+ - It’s not enough to bash in heads. You’ve got to bash in minds.
+ - Men not only don’t get what’s important about what women are capable of, but in fact they fear it, and envy it, and want to throw stones at it, because it’s the thing they can’t have.
+ - The way a musical can make us feel is unlike anything else, in song and particularly in dance. I think people fly through plate-glass windows when they get shot because movies don’t have dance scenes any more. This is what we do instead.
+ - The stupidest person in the room might have the best idea.
+ - I don’t understand why or how anyone ever pulled off the whole idea of ‘women are inferior.’
+ - Oddly enough, I never studied writing. I studied almost everything except writing.
+ - I set out in television with one simple goal: to purchase a Russian bride. Didn’t work out. Immigration stuff – it’s complicated.
+ - Let’s put it this way: If a raccoon can carry a movie, then they believe maybe even a woman can.
+ - The two things that matter the most to me: emotional resonance and rocket launchers. Party of Five, a brilliant show, and often made me cry uncontrollably, suffered ultimately from a lack of rocket launchers.
+ - Every kid who hated grownups becomes a grownup. Well, except the ones who died.
+ - There are two things that I cannot resist: one is musicals and the other is a spaceship in trouble. But I am smart enough not to combine the two things.
+ - To accept duality is to earn identity.
+ - I designed ‘Buffy’ to be an icon, to be an emotional experience, to be loved in a way that other shows can’t be loved. Because it’s about adolescence, which is the most important thing people go through in their development, becoming an adult.
+ - There is nothing more painful in the world than Aly when she makes her big eyes. She makes her big hurt eyes, there’s nothing you can do. She just kills you.
+ - We are, all of us, incoherent text, and just knowing that – knowing that no matter how much you say, ‘I am this’ and part of you is not that – means that you can say it.
+ - How do you know your Colossus is the genuine article in the first place? I read his mind. I matched his DNA. I smelled him. I also did that.
+ - I believe the only reality is how we treat each other. The morality comes from the absence of any grander scheme, not from the presence of any grander scheme.
+ - Science fiction is like a blender – you can put in any historical experience and take influences from everything you see, read or experience.
+ - If I find out I have to write today and nothing else, that’s a perfect day. I know a lot of people who are great at it and make it look easy who are tortured and miserable people. Writing for me is perfect peace.
+ - Every day’s a negotiation and sometimes it’s done with guns.
+ - I tried to write a TV series, and then I discovered first of all that I love writing more than anything on this earth, and that you could write exactly as well as you want to.
+ - My favorite part of Comic-Con? The groupies. Man, they have loose morals, really. Men, women, I’m just saying that it gets weird on Sunday night. No, that’s sadly never happened.
+ - Who is to say who is the villain and who is the hero? Probably the dictionary.
+ - I write to give myself strength.
+ - The first lesson a watcher learns is to separate truth from illusion. Because in the world of magicks, it’s the hardest thing to do.
+ - I think there’s a possibility that comic book movies are getting a tiny bit better on the one hand because they’re no longer made by executives, who are, you know, ninety-year-old bald tailors with cigars, going, ‘The kids love this!’
+ - I love to write. I love it. I mean there’s nothin in the world I like better, and that includes sex, probably because I’m so very bad at it.
+ - In production, in the first couple of weeks of production, that it was more like making an internet musical.
+ - I think it’s not inaccurate to say that I had a perfectly happy childhood during which I was very unhappy.
+ - You don’t buy a Picasso because you love the frame.
+ - I’ll always protect what I’m working on. Which is why more and more of it is stuff only I can ruin.
+ - Those of us who write spend our entire lives in an endless English class.
+ - I find that when you read a script, or rewrite something, or look at something that’s been gone over, you can tell, like rings on a tree, by how bad it is, how long it’s been in development.
+ - If I had created reality television I would have had a much greater influence, but then I would have had to KILL MYSELF.
+ - The thing with the comics is that you have license to go down every alley your brain can think of.
+ - What ‘Scream’ was great at was presenting ironic detachment and then making you actually care about the people that were having it, and juxtaposing it with their situation, all in the service of making a great horror movie. It was fresh.
+ - Shiny, let’s be bad guys!
+ - Two things that matter to me. Emotional resonance and rocket launchers.
+ - People feel removed from sexism. ‘I’m not a sexist, but I’m not a feminist.’ They think there’s this fuzzy middle ground. There’s no fuzzy middle ground. You either believe that women are people or you don’t. It’s that simple.
+ - Try taking a stand on just one leg. You need to see both sides.
+ - Sketchy: I’m no stranger to stoner logic.
+ - He’s like Super Librarian, y’know? Everyone forgets, Willow, that knowledge is the ultimate weapon.
+ - Stay crunchy, even in milk.
+ - You have a responsibility to listen to the dissent in yourself.
+ - No one’s going to go see the story of Othello going to get a peaceful divorce.
+ - I go to movies expecting to have a whole experience. If I want a movie that doesn’t end, I’ll go to a French movie. A movie has to be complete within itself; it can’t just build off the first one or play variations.
+ - I’d rather make a show 100 people need to see, than a show that 1000 people want to see.
+ - The comic world has its own limitations, as everything does. I adore it, I respect it, but it’s not going to take over all of me.
+ - I’m well aware when they fired the starting gun I was halfway down the track, but I still ran as fast as I could for 25 years.
+ - Dr. Banner, your work is unparalleled. And I’m a huge fan of the way you lose control and turn into an enormous, green rage monster.
+ - Don’t just be yourself. Be all of your selves.
+ - The rules are very important in a horror movie.
+ - My visions of the future are always pretty much standard issue. The rich get richer, the poor get poorer and there are flying cars.
+ - I loved the idea of a girl going into a dark alley, and a monster comes, and then she just aces him. It’s like, you want to see the tiny person suddenly take control. God, my whole career is basically about that!
+ - As we all know, blinking lights means science.
+ - You are talking crazy-person talk. Put your words in word places please.
+ - I don’t want to create responsible shows with lawyers in them. I want to invade people’s dreams.
+ - I’m a very hard-line, angry atheist. Yet I am fascinated by the concept of devotion.
+ - You can’t be a storyteller and a speechwriter at the same time.
+ - In other news, it’s been far too long since I gloated massively about the fact that I know what’s going to happen on Buffy and you all don’t.
+ - You know, the thing that I do to waste time is think of things I want to make. That’s how my mind is employed.
+ - Life’s a show and we all play a part And when the music starts We open up our hearts.
+ - Somebody once asked me if I have anything like faith, and I said I have faith in the narrative. I have a belief in a narrative that is bigger than me, that is alive and I trust will work itself out.
+ - Someone else’s loss is my chocolatey goodness.
+ - I was raised by a hardcore feminist.
+ - They can take everything away from me, but they can never take my pride, unless I somehow get some.
+ - Anything can be good. Even Last Action Hero could’ve been good. There’s an idea somewhere in almost any movie : if you can find something that you love, then you can do it. If you can’t, it doesn’t matter how skilful you are...
+ - I think ‘Batman Begins’ is certainly my favorite Batman movie I’ve seen.
+ - When I created Buffy, I wanted to create a female icon, but I also wanted to be very careful to surround her with men that not only have no problem with the idea of a female leader, but were in fact engaged and even attracted to the idea.
+ - Lockheed! You found me! You are the best X-Dragon ever.
+ - I did my English A level in England, and we studied Shakespeare. I had great, great high school teachers, and we parsed the text within an inch of its life.
+ - Cordelia: I personally don’t think it’s possible to come up with a crazier plan. Oz: We attack the Mayor with hummus. Cordelia: I stand corrected. Oz: Just keeping things in perspective.
+ - Every time somebody opens their mouth they have an opportunity to do one of two things – connect or divide.
+ - Don’t give me songs, give me something to sing about!
+ - I eat ‘The Walking Dead’ like its made of brains. Can’t even watch the show, I love the book so much.
+ - If I kill you, you’ll be awake, you’ll be facing me, and you’ll be armed.
+ - It’s about women. It’s about power and it’s about women and you just hate those two words in the same sentence, don’t you?
+ - I’m a science fiction geek from birth – that’s just who I am.
+ - What I love most about icons is finding out what’s behind them, exploring the price of their power.
+ - You can either watch TV or you can make TV.
+ - Making ‘The Avengers’ was very important to me, but it was also extremely arduous. I missed my friends and I missed my home, so I decided to throw them all on camera, which is the only way I seem to know to relate to people.
+ - The goal is always about the next story. It’s always about the thing I haven’t done before. It’s about learning, or it’s about becoming better, and it’s about whatever story grabs hold of me.
+ - Let freedom ring, unless it’s on vibrate.
+ - War is not just the business of death, it is the antitheses of life.
+ - Buffy loves Angel. He loves her. And I love Ho Hos.
+ - Every vampire fiction reinvents vampires to its own needs. You take what you want.
+ - I love all genres. The only thing I get stymied by is the Family Drama. I don’t necessarily know how to approach that.
+ - I am a fan of sequels even though they are inevitably awful.
+ - People always say I write a lot of pop culture references. Can somebody please count the pop culture references in ‘Firefly?’ Because I don’t know how to put this to you, but there was one. I referenced The Beatles in the pilot.
+ - I wish more people would take the extraordinary talent they have and just let their id go because that’s what we discovered. We discovered that the sillier we got, the more people believed that we were speaking from our hearts.
+ - I write to be the characters that I am not.
+ - All worthy work is open to interpretations the author did not intend. Art isn’t your pet – it’s your kid. It grows up and talks back to you.
+ - Everybody who labels themselves a ‘nerd’ isn’t some giant person locked in a cubbyhole who’s never seen the opposite sex. Especially with the way the Internet is now, I think that definition is getting a little more diffuse.
+ - I’m never interested in movies where you don’t care about the people you’re watching, and that’s my biggest quibble about horror, that kids have gotten stupider and stupider.
+ - In the time of gods and monsters, what is the worth of a man?
+ - When I was a kid, maybe 11, I remember saying, ‘When I grow up I wanna have enough money to buy a really cool car, because I won’t.’
+ - Because it’s no longer enough to be a decent person. It’s no longer enough to shake our heads and make concerned grimaces at the news. True enlightened activism is the only thing that can save humanity from itself.
+ - I keep thinking they’re gonna call me. I keep thinking they’re gonna crunch the numbers and think, oh, we can make money with this! And they don’t.
+ - I wanted to drag Shakespeare from obscurity. I’ve been a fan my whole life.
+ - I always watch what I say. I am what I say.
+ - An audience who watches my shows knows who I am, knows that right when they think I’m going to make a joke, I’m going to blow something up, or during the worst peril, I’m going to have someone give someone a kiss – it’s just going to happen.
+ - I’m not big on regret. It’s not on my schedule.
+ - Everything I do is going to contain the message that men who are going to be comfortable with powerful women are going to be more powerful men.
+ - Back in my day, which was about a week and a half ago, we took our lumps and we got back up and we cried like babies and quit and then put on weight.
+ - When you’re making a film, you have an obligation to fill the frame with life.
+ - I’m a very gentle man, not unlike Gandhi.
+ - Writers are completely out of touch with reality.
+ - Beautiful revelations of power are often written by the guy who got kicked around and didn’t have any power.
+ - I still believe that even though ‘The Empire Strikes Back’ is better in innumerable ways than ‘Star Wars,’ ‘Star Wars’ wins.
+ - I believe we are the only sentient beings in the universe, and I believe that 500 years from now, we will still be the only sentient beings around.
+ - I am the immaculate embodiment of worlds.
+ - Every writer loves the idea of being able to go in and fix a problem and then leave without obligation. It’s fun!
+ - I’ve been to two festivals in my life, and I’ve never been to Toronto. I haven’t really been making festival movies. This is new territory for me.
+ - Veronica solves little puzzles because she, like all of us, cannot unravel the bigger ones.
+ - Because to me, there is no logic of any kind behind misogyny. Therefore, it’s funny, because it’s so completely random to me. It’s senseless.
+ - I’m totally cool. I’m totally calm, and I’m totally cool. My calm is exceeded only by my cool. Which is total. Here we go.
+ - I don’t think I’m like Shakespeare.
+ - A great scientist is more open to a new idea than almost anybody.
+ - Kristen Stewart is kind of captivating; she can just stare at stuff and it works because I still want to watch it.
+ - What you cut out becomes part of the story you tell.
+ - There’s a lot of anger in the Twitter-verse, as I’ve discovered. But there’s a lot of love.
+ - Psychic, though? That sounds like something out of science fiction. We live in a space ship, dear.
+ - Obsession is beautiful. It’s what makes art.
+ - Every time you work on a project, it’s a little vacation from the project you’re working on the other 23 hours. That’s the thing – it replenishes you to do something else.
+ - It’s very important that we start creating new content again. We can only build on nostalgia so much before we have nothing left to build on.
+ - A writer is supposed to have anonymity.
+ - Most people don’t see Hamlet as an old bald guy.
+ - TV’s like whitewater rafting: Without rocks, there wouldn’t be rapids, and it wouldn’t be as much fun.
+ - I can do web, comic books, macrame, art.
+ - In TV, there’s so much compromise, it does start to grate a bit. But if you’re a writer or an actor, it really is the place to be.
+ - I leave the world in terrible turmoil. I come back, same turmoil. Nothing at all different. Well, outfits are a little different...
+ - What Sarah brings to the part is her intelligence, at the same time, she’s got that hormonal, idiosyncratic goofiness that makes Buffy not just the Terminator.
+ - It’s not any huge secret that I’m an atheist.
+ - I love comics, very much, and I love being alone, but I also love the other part. I love actors, and I love filmed entertainment, and that is not something I plan to turn my back on.
+ - As far as I am concerned, the first episode of Buffy was the beginning of my career. It was the first time I told a story from start to finish the way I wanted.
+ - I never tire of the heroes that I knew growing up.
+ - The networks have a particular agenda, a particular model and structure. It doesn’t have anything to do with content. This is not a dis on them – they are a business model, run by business people.
+ - I get recognized just often enough to keep my ego bouncing along, but not so much that I can’t go places.
+ - I don’t think I’m a celebrity. Maybe I’m a cult figure?
+ - The problem is I want to do everything. I really love all of it, and I love every aspect of movie-making and storytelling, and I love television, I love the Internet. I wish I had time to do absolutely everything.
+ - Casting is storytelling.
+ - There are many films and TV shows I make where people find themselves in fantastical situations; as often as possible, their reactions to it are very normal.
+ - I respect the rules of TV, the rules of keeping things commercial and interesting and pop-y and fun.
+ - We had the camera locked, but not the location of the sun.
+ - Captain, I think you have a problem with your brain being missing.
+ - If something isn’t working, if you have a story that you’ve built and it’s blocked and you can’t figure it out, take your favorite scene, or your very best idea or set-piece, and cut it. It’s brutal, but sometimes inevitable.
+ - Actors wait tables, directors work at video stores.
+
+238 quotes

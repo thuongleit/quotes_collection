@@ -1,0 +1,26 @@
+ - If you want creativity, take a zero off your budget. If you want sustainability, take off two zeros.
+ - The car is the cigarette of the future.
+ - A car is like a mother-in-law – if you let it, it will rule your life.
+ - We can’t have landfills forever, and we can’t ask others to accept our trash.
+ - Creativity starts when you cut a zero from your budget.
+ - The secret to the city is integration. Every area of the city should combine work, leisure and culture. Separate these functions and parts of the city die.
+ - There is little in the architecture of a city that is more beautifully designed than a tree.
+ - After working in cities for nearly 40 years, I am telling you that every city can improve its quality of life in less than three years, no matter the scale or the financial conditions.
+ - If you provide good alternatives for public transport, you won’t have traffic problems.
+ - We have to change from ‘ego-architecture’ to ‘eco-architecture.’
+ - There is no endeavor more noble than the attempt to achieve a collective dream.
+ - I have realized after all these years that a city that has a good quality of life attracts jobs. People don’t want to invest in places if there is no quality of life.
+ - Many cities end up putting off things because they want to understand everything. They don’t understand that innovating is about starting. Taking care of a city is a process that you start, and then give the population space to respond.
+ - A city grows like an organism. It is a structure of living and working together a mix of functions.
+ - Cities are not problems. They are solutions.
+ - Curitiba is not a paradise. We have all the problems that most Latin American cities have. We have slums. We have the same difficulties, but the big difference is the respect given by people due to the quality of the services which are provided.
+ - Bureaucracy is like a fungus that contaminates everything.
+ - The design of a city is like a strange archeology.
+ - Every city has to deal with the problem of cars and public transport.
+ - Brazil will change when its cities change.
+ - I always try to say, ‘If you want to help the environment, try to do just two things. One, use less of your car. Second, separate your garbage.’
+ - A lot of people assume that the expensive ideas are the most effective ones, but that is simply not true.
+ - Every city in the world can be improved in less than three years.
+ - A city is like a family portrait – you don’t tear it up if you don’t like your uncle’s nose.
+
+24 quotes

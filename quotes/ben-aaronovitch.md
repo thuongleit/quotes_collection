@@ -1,0 +1,28 @@
+ - In the winter she curls up around a good book and dreams away the cold.
+ - The clever people at CERN are smashing particles together in the hope that Doctor Who will turn up and tell them to stop.
+ - The motto of West African cooking is that if the food doesn’t set fire to the tablecloth the cook is being stingy with the pepper.
+ - Coffee arrived and the espresso was excellent, like an aromatic electric fence.
+ - The study of the victim is called victimology because everything sounds better with and ology tacked on the end.
+ - The first rule about a black woman’s hair is you don’t talk about a black woman’s hair. And the second rule is you don’t ever touch a black woman’s hair without getting written permission first.
+ - For a terrifying moment I thought he was going to hug me, but fortunately we both remembered we were English just in time. Still, it was a close call.
+ - It’s a sad fact of modern life that if you drive long enough, sooner or later you must leave London behind.
+ - My dad once told me that the secret to a happy life was never to start something with a girl unless you were willing to follow wherever it led. It’s the best piece of advice he has ever given me, and probably the reason I was born.
+ - This I know for a fact: the reason African women have children is so that there’s someone else to do the housework.
+ - Actually I’d always thought he sat in the library with a slim volume of metaphysical poetry until the commissioner called him on the bat phone and summoned him into action. Holy paranormal activity, Nightingale – to the Jag mobile.
+ - My Dad says that being a Londoner has nothing to do with where you’re born. He says that there are people who get off a jumbo jet at Heathrow, go through immigration waving any kind of passport, hop on the tube and by the time the train’s pulled into Piccadilly Circus they’ve become a Londoner.
+ - He was calling it an atonic seizure because, even if he didn’t know why it had happened, it was important to give it a cool name.
+ - Landscaping is the great cardinal sin of modern architecture. It’s not your garden, it’s not a park – it’s a formless patch of grass, shrubbery and the occasional tree that exists purely to stop the original developer’s plans from looking like a howling concrete wilderness.
+ - Holy paranormal activity, Nightingale – to the Jag mobile.
+ - Despite my mum being from a small village in the middle of a forest, I’m not a country person. I don’t like my bacon sandwich to be curiously snuffling at my fingers. But sometimes being police means holding your breath and fondling a pig.
+ - On the plus side, there were no rioters in sight but on the minus side this was probably because everywhere I looked was on fire.
+ - That which does not kill us has to get up extra early in the morning if it wants to get us next time.
+ - Questions would be asked. Answers would be ignored.
+ - If you find yourself talking to the police, my advice is to stay calm but look guilty; it’s your safest bet.
+ - What do you think you’re doing?
+ - Every male in the world thinks he’s an excellent driver. Every copper who’s ever had to pick an eyeball out of a puddle knows that most of them are kidding themselves.
+ - The media are doing this, not because they have a sinister motive, but because they love to feel that they are influencing events. That’s why they hate politicians so much, because politicians have direct power and they do not.
+ - When you’re a boy your life can be measured out as a series of uncomfortable conversations reluctantly initiated by adults in an effort to tell you things that you either already know or really don’t want to know.
+ - This is your brain on magic.
+ - It’s a police mantra that all members of the public are guilty of something, but some members of the public are more guilty than others.
+
+26 quotes

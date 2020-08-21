@@ -1,0 +1,25 @@
+ - Being adequately informed is a democratic duty, just as the vote is a democratic right. A misinformed electorate, voting without knowledge, is not a true democracy.
+ - Time is found in the calibration of the individual to the timing of a collective endeavour, the social grace that less clock-bound societies must practise.
+ - Singing with others is an unmediated, shared experience as each person feels the same music reverberating in their individual bodies. Singing is part of our humanity; it is embodied empathy.
+ - The losses of the natural world are our loss, their silence silences something within the human mind.
+ - The silencing of the rainforests is a double deforestation, not only of trees but a deforestation of the mind’s music, medicine and knowledge.
+ - We are animal in our blood and in our skin. We were not born for pavements and escalators but for thunder and mud.
+ - If people can’t acknowledge the wisdom of indigenous cultures, then that’s their loss.
+ - Clock measurement is not time itself. In fact, so opposed are they that one could argue the clock is not a synonym, but the opposite of time.
+ - Clearly, many branches of science need an exquisite precision of timekeeping and the infinitesimal decimals of calibration, so space launches, for example, are not scheduled for leap-second dates. But society as a whole neither needs that obsessive time measurement nor is well served by it.
+ - In many traditions, the world was sung into being: Aboriginal Australians believe their ancestors did so. In Hindu and Buddhist thought, Om was the seed syllable that created the world.
+ - A functional media is as important to democratic freedom as voting.
+ - Human language is lit with animal life: we play cats-cradle or have hare-brained ideas; we speak of badgering, or outfoxing someone; to squirrel something away and to ferret it out.
+ - A wild creature is not subject to any will except its own.
+ - The clock, for all its precision in measurement, is a blunt instrument for the psyche and for society. Schedules can replace sensitivity to the mood of a moment, clock time can ride roughshod over the emotions of individuals.
+ - Children say they are unhappy in every language they have. They say it in silence, and they say it in riots.
+ - All definitions of wilderness that exclude people seem to me to be false. African ‘wilderness’ areas are racist because indigenous people are being cleared out of them so white people can go on holiday there.
+ - I don’t write quickly, and I don’t want to.
+ - The woods are a place where children can go to think. Children gravitate towards these spaces. When I was a child it was nothing more than a scrubby little overhang under a rhododendron bush, but it was incredibly important to me.
+ - Society understands the architecture of academia and knows there are relevant qualifications in different fields, and the media accepts the idea of specialisations and accords greater respect to those with greater expertise. With one exception: climate science.
+ - As a writer you have a duty to be a messenger.
+ - Just because Galileo was a heretic doesn’t make every heretic a Galileo.
+ - I’m not against entertainment: if someone wants to read nonsense-mongers, let them, but I resent the appearance of parity between two articles on an issue as serious as climate change when one article is actually gibberish masked in pseudoscience and the other is well informed and accurate.
+ - Language is wild – you can’t fence it or tell it what to do – and it’s the same with people. Even under the worst excesses of Stalinism or consumerism, the human spirit will still express itself.
+
+23 quotes

@@ -1,0 +1,58 @@
+ - What I like about being alone is being able to do whatever you want and it’s for yourself.
+ - I think you can be mature without being grown-up. You can also be grown-up without being mentally mature. One of them is forced, while the other one is your choice.
+ - In life, there is always that special person who shapes who you are, who helps to determine the person you become.
+ - I think once you sort of cross over and you realize what books can be – and if they mean something to you – there’s just no stopping you.
+ - Usually the kids are portrayed as very one-dimensional. Like these mindless animals that just have three things on their minds: getting laid, getting drunk, and driving real fast over Mulholland Drive.
+ - Jazz is my comfort music, like comfort food.
+ - Getting the pretty back is about getting back in touch with your essential self: the part of you that knows what you really want.
+ - Yes, my kids come first, but as a parent I need to come to them with a fresh mind. I can’t be too exhausted or too tired. And I am a better parent when I have more energy.
+ - It’s the universal feeling that we all are alone – that we’re all different. I think the movie’s one resounding theme is that everybody feels the same, and we’re all alone together. Some people come up to me on the street and thank me for helping them get through their teen years.
+ - I can’t believe I gave my panties to a geek.
+ - I’ve done kissing scenes with people who have been loaded. I’d think, ‘Do you actually have to drink that Jack Daniels to kiss me?’
+ - I think once you’re a mother, you kind of always see your kids as a baby anyway no matter how old they get.
+ - I used to sing with my father’s jazz band and then when I was ten years old a musician friend of his suggested that I try out for the first west coast production of Annie.
+ - I don’t really believe in regret. I think you can always learn from the past, but I wouldn’t want a different life.
+ - The moment you make someone promise anything is the same moment you ask them to lie to you.
+ - I wish I had been more prepared, both for success and for failure, when I was younger.
+ - We are the most brutal with the people we love the most.
+ - And to be honest, most actors are incredibly solipsistic.
+ - I like to say, jazz music is kind of like my musical equivalent of comfort food. You know, it’s always where I go back to when I just want to feel sort of grounded.
+ - I don’t like being alone. I haven’t been alone since I got a boyfriend.
+ - I can’t stand films that make the kids out to be heroes and the parents to be imbeciles.
+ - When you say you’re 40, you can’t call yourself an ingenue any more.
+ - John Hughes had such a huge impact on filmmaking.
+ - My parents always raised us with the idea of having college in mind. You sort of need a college education. It’s part of life. It’s something that you do – like going to your prom.
+ - Automatically everybody thinks of me as an actress who is trying to sing. And if I weren’t me I’d probably think the same thing.
+ - From my experience, forgiving is the only way to survive.
+ - I didn’t have parents who were, you know, racing to get a reality television show, you know? Or looking to benefit in some way from their daughter’s fame.
+ - People feel like they grew up with me.
+ - I’ve been acting for so long it’s more like – I won’t say easy, exactly, but there’s not the same angst with writing that comes about with acting. Writing – particularly when you’re writing yourself, when it’s you, when it’s your life, you really can’t hide.
+ - When I was a little kid I thought I would grow up to be black and sing jazz in nightclubs.
+ - I’m really intimidated by beautiful people. Beautiful guys, especially.
+ - I think that it is real important for someone to be really honest and open emotionally. I’m really an emotional person. If I’m that way and the guy isn’t that way I just really feel like a jerk.
+ - All of the advice that I give, I’m not an expert by any means, but it’s just my opinion. So if somebody likes me or likes y style or my career, I think they should have that feeling.
+ - The wonderful thing about books is you never run out of them, you can just keep going. So I’m always finding new writers, or old writers that I just happen not to have read.
+ - Did you work for the money to buy those earrings? Or did your Daddy buy those for you?
+ - I think when people hear about a celebrity writing a book of any kind, the assumption is that it was dictated to a ghostwriter.
+ - To preach abstinence, I think, is absolutely not the right message to give to kids.
+ - Originally I considered myself a singer.
+ - I never felt terribly comfortable in the public eye.
+ - Sometimes when people have kids young, they’re not ready.
+ - I felt all the things that other teenagers felt. I was insecure in lots of ways, over-confident in others. I was very emotional. Excitable.
+ - The cover I was really excited about was ‘Seventeen’ magazine. To me, it was much bigger than ‘Time.’ ‘Seventeen’ was where I wanted to be.
+ - I never really felt like I belonged in California.
+ - I think we do live in a very specialized society, where once you think about somebody as one thing, it’s hard to change that. But I do a lot of things. I act, I write, I sing.
+ - I just needed to leave Hollywood.
+ - Whenever people ask me how I manage to get through this whole crazy time of being incredibly famous and sort of an icon and supposedly a role model and all of this insanity, I always cite my family and then books. I don’t know what I would have done without books.
+ - A lot of people don’t realize that not everybody gets high.
+ - I have a very independent spirit.
+ - I’ve always been the go-to girl for all of my girlfriends in terms of relationship advice or clothing advice.
+ - I’m so associated with being young and being with a teenager.
+ - I’ve always been the bookish type, and I’ve never really hidden that about myself.
+ - Books have always been really important to me; they’re my saving grace.
+ - When I was turning 40, I felt that there were no books out there that hit the spot in terms of what I wanted to read.
+ - I don’t have control over how people choose to perceive me. The only thing I have control over is my writing.
+ - I just did in my early twenties what most did when they were teenagers, being free and exploring and making mistakes, but I did it in France. I did it privately.
+ - Whatever it is that gives you that confidence will vary from person to person, but I do believe that it is the key to succeeding at anything in life – career, relationships, anything.
+
+56 quotes

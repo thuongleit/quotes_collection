@@ -1,0 +1,54 @@
+ - If you try hard enough, you can bend the spoon; you can shift reality.
+ - I’m a nudist at heart.
+ - You can be childlike without being childish. A child always wants to have fun. Ask yourself, ‘Am I having fun?’
+ - I love my children beyond all reason. They’re my joy, even when they’re wild with kid energy.
+ - I’m so busy these days. I forget everything but my lines.
+ - If I could only get people to rub my belly for good lucky and then throw money in my fountain, it’d be a perfect world.
+ - Life is never straightforward or emotionally black and white.
+ - Look, I hate to sound like Pollyanna, but I literally can’t wait to get to work in the morning. I’ve got steady jobs, I’ve got my health, and I’m here in the greatest city in the world. I’d be a pig not to be grateful.
+ - You can be childlike without being childish.
+ - Hate is a draining bottomless pit from whence nothing good or of any value can come. Try to eat a balanced diet. Guys only want one thing.
+ - I love my lifestyle now, but at the end of nine months, you’re toast. You are toast. It’s like running a marathon. You can’t think while you’re doing it. Especially when different directors come in who are not part of the posse, the circle.
+ - I’d like to go away for six months and learn to kiteboard and windsurf. I love pinochle, I love chess and I love windsurfing.
+ - I take this art very seriously and passionately. I love what I do. You can’t help but grow. That’s not to say you don’t make mistakes or make bad choices, but that’s part of the art. Painters paint bad paintings.
+ - I’d have to say Bali’s my favorite place that I’ve visited.
+ - It is a weird feeling to have people go, ‘Hey Chris’ like they know me. But, number one, 99 percent of my experiences have been really cool. People couldn’t be nicer and more positive.
+ - It’s always been kind of weird to me because when you give someone an autograph, you’re looking down at a piece of paper and once you sign it the person moves on.
+ - My mother raised three children on her own and my dad was a doctor working 16 hours a day.
+ - TV’s hard work. I don’t know how the hell Angela Lansbury survived doing ‘Murder, She Wrote’ all those years. And sure, everyone wants to be Bruce Willis or George Clooney – they want to be in film for the range of characters you get to play.
+ - I think we present extreme aspects of human behavior and hopefully get at times, messages across or bring issues to the table or as we so often say, shed light into the dark crevices of human nature.
+ - I still have a dream of one day – I would love to hire a semi-retired contractor and just build a house – him and I building a house for me. I would truly love to do that.
+ - I love feeling the crispness of fall and the sensuality of spring.
+ - You can watch any episode you want and have a compelling story being told.
+ - You couldn’t pay me enough to be a law enforcement officer. Their job is a tough job. You have to solve people’s problems, you have to baby-sit people, you have to always be doing this cat-and-mouse game with the bad guys. My respect for them is immense.
+ - I took acting classes in college, and once I graduated, I decided to give acting a shot when I couldn’t really think of anything else to do. It took me a couple of years to get an agent, and my first big break was The Fanelli Boys, which was a sitcom on NBC. Then I did a few television movies.
+ - I rarely see one of the ‘summer blockbuster’ movies. I’d like to see a stronger focus on smaller, smarter movies.
+ - I’m just an actor, but if the extra part of it is that I’m helping people or people are being helped by the virtue of what we’re doing, then that’s just a really nice added extra.
+ - If you take life at face value, it loses its luster pretty quickly. If you go after it, you get more out of it.
+ - I’ve written a couple screenplays and half-finished plays.
+ - I love to act. I need to act. It’s the big itch I need to scratch.
+ - I really love to act; I love everything about it. I’ve never had this addiction to being known. I mean, sure, if you go into acting, there’s part of you that is saying, ‘I want attention’ but I was brought up to work to deserve attention, and it is the work, not the trappings that are important.
+ - But I came from a conservative Republican background.
+ - When I portray Stabler, I have to shave every day and cut my hair every week! And then, I really like to change my looks for films like ‘Harold and Kumar Go to White Castle’ where I have the pleasure of playing the ugliest man in the world.
+ - In my own defense, I wrote a one-man show, and that to me was more where I fit.
+ - I like intellectual journeys.
+ - On the secret to a lasting marrige: One of you has to be sane, and the other one is only allowed to be insanne occasionally. We take turnes on who gets to be wich person.
+ - I didn’t get into acting to be a public service announcer or an advocate and yet, by virtue of this show and how we handle the subject matter that we’ve been given, that’s kind of how it’s evolved in certain ways.
+ - I have worried about getting pigeon-holed, but now I think I’ve done enough weird, offbeat stuff not to be. And I also know that I do things for the right reasons: I’ve made my money, so I don’t have to say yes to anything.
+ - I don’t get called very often to play innocents.
+ - My first thought when I came here was that I understood why there are so many great Irish writers – because there is something mystical in the air. There’s always this cloudy, moody sky and it’s challenging.
+ - It’s great to be recognized when I’m looking for a table at a crowded restaurant, but I still don’t put it to best use. I’m such a lump. I won’t cut the line. It’s my Catholic guilt. I gotta get used to it.
+ - I’ve got the best of all worlds. It’s every actor’s dream to wake up in New York City and go to an acting job rather than to a restaurant to wash dirty dishes. And I live so close to the studios that I ride my bike to work.
+ - My wife has brought great beauty into my life. And my daughter has brought me nothing but joy. Those qualities were greatly lacking.
+ - The reason why I hate working in theatre is the tedium of memorisation. But once that is done, then you feast on this never-ending meal. If you play it correctly, every night is fraught with very high stakes that are very difficult to find in everyday life.
+ - I’m always learning from experiences because each one is different and there are different players involved in the project at the time with their own way of doing things.
+ - I think to be a successful comic, you have to be exceptionally smart and exceptionally perceptive.
+ - But when you’re a working actor – and that’s what you keep saying in your head, how blessed you are to have a job – and you are working with heavyweights, working with the best guys in TV, it’s pretty cool. Exhausting, but cool.
+ - Crime is one of the leads of the show. If there’s ever anything that deals with a character’s personal life, you don’t have to worry about it getting too crazy. People don’t have to worry about character arcs. Each episode is a self-contained unit.
+ - We went online to surrogacy agencies. We interviewed lots of people – and I have to say, with all due respect, some of them were freaks. I was very leery of the process the whole way through.
+ - Whoever envisions not one but two series in New York?
+ - De Niro was a hero of mine. And Sean Penn. But I’ve realized I can’t operate at that level of intensity. That’s okay for movies. On TV, when you live with horror day in and day out, you have to protect yourself.
+ - The surprising thing about fatherhood was finding my inner mush. Now I want to share it with the world.
+ - I had great faith in Irish actors, that they’d be hip to the whole theatre thing, and they are. I had no illusions of coming over here as some kind of big shot. It’s been a learning experience for me too.
+
+52 quotes

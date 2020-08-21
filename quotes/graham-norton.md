@@ -1,0 +1,44 @@
+ - I am very quick to judge.
+ - I don’t think you should have to try to be nice, I think most people are nice. I think being cheerful and nice is just a politeness.
+ - All my day is spent dealing with other people. When I come home I like it to be empty. The presence of others in my house kind of annoys me. I love coming home and shutting the doors. I feel brain dead. I’m relatively available, but not to live with.
+ - You don’t want money to make you a social freak where you can only hang out with rich people.
+ - All my interesting stories are from before I was on television. Nothing interesting has happened to me since then. Maybe it’s because the most interesting thing in my life is the show and that’s on telly.
+ - I always say I’d rather be miserable by myself than unhappy in a relationship.
+ - The higher your profile becomes, the more aware you are that people out there might hate you.
+ - I am really bad at actually interviewing people.
+ - My parents grew up working class, but in that way that working class families do, they spent a fortune on education to better me.
+ - In my experience the difference between a straight and a bisexual is about four pints.
+ - Tolerance is forced on people in London.
+ - A good rule to remember for life is that when it comes to plastic surgery and sushi, never be attracted by a bargain.
+ - My life could have been so grim really, really grim.
+ - Some people think they’re depressed and they go to the doctor and want pills. And you just think: ‘You hate where you live, you’ve lost your job, your boyfriend has dumped you, could all this be why you’re depressed?’
+ - Straight men just can’t imagine the bliss of being in a relationship with someone who finds farting as funny as they do.
+ - Forty freaked me out. I didn’t see it coming. My life was in a state of chaos – I was moving jobs and moving house – and it just hit me like a ton of bricks.
+ - An awful lot of female celebrities are very beautiful whereas a lot of male celebrities are not so hot.
+ - I’d like to retire at 50 but I don’t want to sell papers in the middle of London on a Zimmer.
+ - Where I get bored is when I show up for a shoot and they want me to wear a feather boa. Too obvious a thing for a poof on the telly to do.
+ - Do I have more depth than I’m given credit for? No!
+ - I think the word is adult!
+ - I loved Lucille Ball growing up.
+ - Occasionally the state of the planet can knock me off my perky perch.
+ - Those years between drama school and getting onto the stand-up circuit were pretty lean.
+ - I have nothing to say about my childhood. It was a perfectly pleasant upbringing – it’s not like it was unhappy or anything.
+ - Well, certainly I think American television is – that’s proper TV.
+ - The only people who are desperate to go on the show are people we’re desperate not to have on the show.
+ - The only time I took Ecstacy was years and years ago. It was absolutely amazing.
+ - I do get pleasure from very inconsequential things, like shopping for clothes.
+ - I was a failed actor but I still wanted to show off, so I ended up doing live comedy.
+ - I’m actually quite self-sufficient, so it might look as if there isn’t room for anyone in my life. That isn’t entirely the case.
+ - You don’t want to be hard to look at. Plain very good, hard to look at bad. The plain shall inherit the earth; time is our friend.
+ - It sounds deeply shallow, but for brief spells every member of the public can be fascinating.
+ - The BBC is a victim of its own independence.
+ - Britain’s such a twisted, weird little place.
+ - A comedian’s a comedian. They’re a very kind of cynical bunch. I guess that’s why I like them.
+ - It’s lovely to get one successful show – the chances of finding a second one are not so hot.
+ - If it was possible for me to adopt, I probably would, but no one’s going to let me adopt.
+ - I’m often dating people, but I don’t say it because you sort of know it won’t last long.
+ - I don’t think I’ve got bad taste. I’ve got no taste.
+ - All these people I interview are worth ten times what I’m worth.
+ - I’ve so exceeded what I ever wanted to do.
+
+42 quotes

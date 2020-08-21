@@ -1,0 +1,66 @@
+ - Most people talk when they have nothing to say. I’m not talking because I have too much to say. None of which I’d want you to hear.
+ - The road less traveled will not be smooth.
+ - My thoughts create my world -Marcus Flutie.
+ - We are perfect in our imperfection.
+ - You can only be in a bad mood for so long before you have to face up to the fact that it isn’t a bad mood at all; it’s just your sucky personality.
+ - Even with the best intentions, growing apart might just be an inevitable part of growing up.
+ - I never understood the point of being sad when I could choose to be happy.
+ - I feel better when I am not around people. When I am alone, alone, alone.
+ - Where’s my syllabus to guide me through life?
+ - Don’t stop doing what you love. Don’t let your future be ruined by a bunch of loony sand monkeys.
+ - As much as I don’t care about those things, I think it’s human nature to not want to feel totally insignificant.
+ - I don’t know if she’s making the right choice, but it’s not my choice to make. I promise to support her, whatever she decides. Because that’s what sisters do.
+ - Love may have the longest arms, but it can still fall short of an embrace.
+ - And so I’ll let you go, and let it be. Whatever.
+ - I almost can’t believe I’m going to make myself vulnerable to him again. But what is love but the most extreme and exquisite form of risk perception? I know that relationships don’t last. And yet, with him, the risk of not being with him is much worse than any other hurt I can imagine.
+ - A relationship ends because you’ve outgrown it. It can begin again because you, as two, can fill the new shape.
+ - The higher my GPA gets the more I realize high school is useless.
+ - You gotta take chances in this life or you’re already dead.
+ - It’s so much easier to convince yourself you’re madly in love with someone when you know nothing about him.
+ - Marcus Flutie slept with just about every girl on the Eastern Seaboard except me. Though, he tried to get into my panties when I was a freshman but turned him down because I refuse to disempower myself just for a few clit twitches.
+ - Fear is the greatest form of oppression. The best way to rise up in protest is to live your life to its fullest!
+ - You, yes, you, linger inside my heart The same you who stopped us before we could start.
+ - It kind of makes me wish that the worst thing that will ever happen to me would just hurry up and happen already. That way I could live the rest of my life in bliss, if only because I know how much worse things could be.
+ - When you say too much about anything important, it always ends up sounding more trivial than it is. Words trash it.
+ - The real world, whether we like it or not, is right here, right now. All of this, every day, is important. Everybody matters. Everything we do has an effect on other, directly or indirectly, whether we realize it or not.
+ - I love when I reach Marcus on the phone and as he says hello, I can hear the music he’s listening to in the background. That music is the sound of him without me. How he surrounds himself when I’m not there, which is almost all the time.
+ - Bad things can happen to anyone at any time, whether you follow the rules or not.
+ - I hate the very human inclination towards insensitivity.
+ - See, my idea of cute comes with an IQ requirement. It’s geeky cute. It’s Rivers Cuomo, not Justin Timberlake. It’s Gideon Yago, not Brian Mcfayden. Jimmy Fallon, yes please! Brad Pitt, no thank you.
+ - Excuse our appearances. We are taking apart yesterday, to make way for tomorrow.
+ - I know it makes sense for me and him to just break up now and just live our separate lives and not have to worry about missing each other all the time. But when I think about that, I get sick. Physically sick. Like I seriously throw up. I need to be with him, even if I can’t, like, be with him.
+ - You called me a natural con artist and asked me what other secrets I was hiding. I didn’t answer because I already knew, in some deep, primal way, what furtive truth you were referring to: That I was destined to fall in love with you.
+ - I don’t know anything about anything. The only difference between then and now is this: I may know more than I used to but my wisdom pales in comparison to that which I have yet to learn.
+ - I used to think that I wouldn’t change anything from my past, because doing so would inevitably affect who I am now. But considering my current state, I’m thinking it might not be a bad idea to go back in time to fix things.
+ - All subjects are the same. I memorize notes for a test, spew it, ace it, then forget it. What makes this scary for the future of our country is that I’m in the tip-top percentile on every standardized test. I’m a model student with a very crappy attitude about learning.
+ - I knew, deep down, that love, though a beautiful beginning, isn’t enough. It’s the practice of honoring and caring for another that’s noble, not the emotion of love itself. The emotion is the easy part.
+ - I love you. And I want you, too. But. However. Unfortunately...
+ - Since I’ve known you, you’ve been spinning and spinning and spinning into all these various personas, and none of this self-exploration and experimentation has given you a sense of peace. I’ve known you for six years, intimately for four, and I still have no idea who I’m in love with.
+ - It’s just Jessica and Marcus, oxymoronically alone together.
+ - I’m in crisis. I’m about to bump with a five-foot chino-chicano.
+ - I wish our love was right now.
+ - When I’m at school in the city, I don’t feel particularly worldly or wise. It’s only when I come back home that I remember exactly why I left.
+ - Gone for a while Hoping, always, to return If you will let me.
+ - Ever notice how people wait until they’re not going to see you anymore to say something nice to you?
+ - So much of courtship is the unspoken.
+ - Words can be used as a bomb or balm.
+ - The tales we tell ourselves about ourselves makes us who we are.
+ - Girls will get together just to get together. Guys need an activity as an excuse. Otherwise it’s too homo for them to handle.
+ - I can let my true self shine in front of God.
+ - The minute our correspondence becomes obligatory, there’s no point in keeping touch at all.
+ - I just don’t see the point in beating myself up. I think it’s more productive to concentrate on being a better person right now than punishing myself for who I was in the past.
+ - Every day, I live a lie But not the crocodile kind.
+ - You can only really really hurt the ones that you really really love.
+ - I know. It’s shocking to think that the government would try to stick its nose in our ladyparts.
+ - You. Yes You.
+ - Zen cuts straight through the Quidditch match in progress and almost gets taken down by a Beater hurling a Nerf quaffle right at his machopartes.
+ - He always loved her because of, not in sprite of, her flaws.
+ - Faith is accepting what makes no sense, what we cannot prove, but know down deep in our souls is real.
+ - I do so much revising as I go along; I wonder how I could write books if I hadn’t grown up in the computer age. I think I’d be a very different writer. I find myself cutting and pasting, changing things around and deleting whole paragraphs constantly.
+ - Then again maybe there’s something that I’ve been doing in the privacy of my own bedroom my whole life that I think is perfectly normal but is actually illegal in thirty-two states.
+ - The great thing about fiction is that you can start off by telling the truth, then start making stuff up like crazy whenever you feel like it.
+ - That’s what all love comes down to, doesn’t it? We help others only as much as they let us.
+ - I’m not sure I’ll ever be finished. No matter how much I write, there will always be something I should’ve said.
+ - Then a lightning bolt shot straight through my skivvies. Sha-ZAM!
+
+64 quotes

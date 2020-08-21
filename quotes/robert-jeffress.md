@@ -1,0 +1,28 @@
+ - The cross of Jesus Christ represents the intersection of God’s love and God’s holiness.
+ - Unlike many people today, Jesus did not teach that all religions in the world are simply different paths up the same mountain of truth that leads to God. Jesus could not have been more clear: he offers the only way to heaven.
+ - The willingness of God to sacrifice his Son to reconcile us to himself is a demonstration of his love for us.
+ - God’s love means that our Creator desires to have a relationship with us. God’s holiness prevents him from having fellowship with us and, instead, demands the outpouring of his anger against us.
+ - Every parent has the responsibility to cultivate his child’s heart. If we leave our children’s heart alone, they tend to become like a garden, overgrown with evil and with sin.
+ - God has not called us to save America; He has called us to save Americans from the coming judgment of God by introducing them to faith in Jesus Christ.
+ - If the universalists are correct in saying that everyone is going to be in heaven regardless of what they believe, or the pluralists are correct that all religions lead to the same god, then the horrific death of Jesus Christ was completely unnecessary.
+ - Christianity alone teaches that our only way for reconciliation with God is by his grace that is received through faith.
+ - Every parent’s first responsibility is to teach his child that there is a God to whom he’s accountable and that God has certain commands that we’re obligated to obey.
+ - I believe in such a thing called mental illness that leads to some evil.
+ - If trusting in Christ is the only way to be saved one has to wonder about infants, small children, and those who are child-like who are incapable of exercising faith in Christ.
+ - One of the consistent themes you’ll find throughout the Bible is that God will always provide the necessary information about Jesus Christ to someone who sincerely desires to receive that revelation.
+ - A 2008 poll of 35,000 Americans revealed that 57% of Evangelical church attenders believe that many religions can lead to eternal life.
+ - I think God gives medication that heals some illnesses. But I think when you deny the reality of evil, you want to use medicine to solve every problem, and it doesn’t solve every problem.
+ - Various religions offer a variety of theories about life, death, and eternity. And yet, as different as all religions are, they share one common characteristic: they teach that the way to be reconciled to God is through works and rituals.
+ - Jesus clearly taught that the majority of humanity will spend eternity in hell, and only a few will find the exclusive way to salvation.
+ - I share five scriptural insights that lead me to the conclusion that those who are incapable of trusting in Christ on their own are still welcomed into heaven the same way you and I are welcomed into heaven: by the grace of God.
+ - Nobody will be sent to hell for rejecting a gospel they’ve never heard.
+ - While love is one of God’s attributes, it’s not his only attribute. God is also holy and just.
+ - The only reason Christ submitted himself to the horrendous experience of bearing the sins of the entire world is because his death provided the only way for reconciliation with God.
+ - We’re in danger of losing an even more foundational belief of Christianity: that salvation is only possible through faith in Jesus Christ.
+ - A recent Pew Study revealed that 70% of Americans with a religious affiliation say that many religions lead to eternal life. Some people might think that “surely the statistics among evangelical Christians is different.” Not by much.
+ - Any tool that helps instill God’s Word in the lives of people is something I can enthusiastically endorse!
+ - It is true Christians have done terrible things throughout history. But they’ve always been acting in opposition to their Christian faith. There are no New Testament verses that say, Kill unbelievers.
+ - If it’s true that Christ was correct in saying that faith in himself is the only way to heaven, then sharing that truth is a demonstration of love, not hatred, toward unbelievers.
+ - The idea that there is only one way to be reconciled with God has its origins in the Old Testament.
+
+26 quotes

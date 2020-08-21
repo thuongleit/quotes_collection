@@ -1,0 +1,124 @@
+ - I have given God countless reasons not to love me. None of them has been strong enough to change Him.
+ - If Jesus Christ isn’t strong enough to motivate you to live biblically, you don’t know Him at all.
+ - There is no such thing as a great man of God, only weak, pitiful, faithless men of a great and merciful God.
+ - I would not trade the difficult years for all the prosperity in the world. God knows what each one of us must suffer in order to be conformed to the image of Christ.
+ - Everybody wants to go to heaven. They just don’t want God to be there when they get there.
+ - It is only against the pitch blackness of the night that we see the glory of the stars. And it is only against the pitch blackness of man’s radical depravity that we can begin to see the glories of the gospel.
+ - Holiness is not merely a feeling, state of mind, or good intention. It involves practical separation from sin and real separation unto God.
+ - Why would we want fame, when God promises us glory? Why would we be seeking the wealth of the world when the wealth of heaven is ours? Why would we run for a crown that will perish with time, when we’re called to win a crown that is imperishable?
+ - Our weaknesses are not as negative as we may believe. They make us rely upon God’s grace and power for greater Christlikeness and ministry.
+ - People tell me judge not lest ye be judged. I always tell them, twist not scripture lest ye be like satan.
+ - Most of you live your life on flimsy little songs, not upon the word of God.
+ - Instead of telling them God has a wonderful plan for their life – tell them who God is.
+ - We rob men of a greater vision of God because we will not give them a lower vision of themselves.
+ - Salvation is a work of God to show His glory. That’s why He’s not going to let it fail.
+ - The question is not, “Do you know you are a sinner?” the question is this, “As you have heard me preach the Gospel, has God so worked in your life that the sin you once loved you now hate?”
+ - We must not adopt the world’s view and then tweak it to make it Christian. We must draw a line in the sand and stand firm in the radical teachings of Christ and His gospel. We must preach the truth and be the examples of the truth we preach.
+ - If you want to follow Jesus because He’ll fix your marriage, if you want to follow Jesus because He’ll give you a better life, that’s idolatry. Follow Christ for the sake of Christ; He is worthy!
+ - God saved you for Himself; God saved you by Himself; God saved you from Himself.
+ - If you’re going to choose your friends, you better choose them well, because when you look at your friends, you’re looking at a mirror reflection. You’re looking at you; you are looking at you.
+ - It’s not comparing yourself with others who call themselves Christians. Compare yourself to the Scripture.
+ - A Christian is not somebody who stays away from all the wicked things he loves and clings to all the righteous things he hates so that he can go to heaven. The fear of the Christian is not going to hell. The fear of the Christian is being separated from Christ.
+ - Does our Gospel presentation make men excited about what God can do for them on this earth, or about whom God is?
+ - The judgment of God against this nation will not be turned by a more conservative President, but by the repentance of its people.
+ - A Christian who does not pray is like prince in beggars clothes who stands but a few inches from His father’s throne and yet does not ask.
+ - You are a steward of every moment, of every talent, of every gift, of every resource that God has given you. Chose wisely what you do today!
+ - If someone is truly converted, they will publicly confess Christ in word and deed. That does not mean presenting them in front of the church on the night of their supposed conversion.
+ - The person that I most admire is Jesus Christ. He is the only perfect Person. There is simply no comparison. The difference between Him and all other men is not merely quantitative, but qualitative. He is in a category all to Himself.
+ - You ask me ‘What’s the the greatest act of faith?’ To me is to look in the mirror of God’s word, and see all my faults, all my sin, all my shortcomings and to believe that God loves me exactly as he says he does.
+ - Over the epitaph of this generation it will say ENTERTAINED TO DEATH.
+ - If you are going to walk with Jesus Christ, you are going to be opposed by everything in the world and by the great majority of evangelicals. You’re going to be opposed.
+ - The evidence of justification by faith is the ongoing work of sanctification through the Holy Spirit.
+ - A Theologian has nothing on a man who has experienced God.
+ - What’s the will of God for my life? You don’t need to know the will of God in your life, you need to know the God of your life!
+ - We are Christians because we find our identity, life, and purpose in Christ. We are evangelical because we believe the gospel and esteem it as the great central truth of God’s revelation to men.
+ - AMEN, let Him take it all! He’s worthy!
+ - How would you ever learn unconditional love if you were married to someone who met all the conditions?
+ - If a person professes faith in Christ and yet falls away or makes no progress in godliness, it does not mean that he has lost his salvation. It reveals that he was never truly converted.
+ - American Christianity is based more on a godless culture than it is the word of God.
+ - To the wind with what the world thinks about us. We are not to seek the approval of earth, but the honor of heaven.
+ - There are endless treasures of grace waiting for those who will make even the most feeble attempts to pray. The weakest prayers yield grace.
+ - The question is not, “Do you want to go to heaven?” The question is, “Do you want God?”
+ - We are given so few years on this earth, and there are so many good things that get in the way of the best things. We must live for eternity.
+ - The Lord continues to empty us in order to teach us to lay aside all self-reliance, that we may cling to Christ alone.
+ - The measure of biblical truth that we have grasped is not determined by the size of our heads, but the breadth of our hearts.
+ - What is holiness? The end product of what holiness is it’s to love God in the same way He loves Himself; it’s to esteem God as much as He esteems Himself, and to separate yourself unto that love, and to keep yourself in that love.
+ - The devil would gladly give a Bible to every man and promote obedience to its commands if in exchange we would surrender to him the Gospel.
+ - It is absurd to think that a man can believe in Christ, with his heart, and it not have a radical affect on the rest of his life.
+ - I have never met an old saint who regretted having spent too much time in prayer, but I have met many who regretted having spent too little!
+ - The evidence that a person has truly opened their life to Christ is continued fellowship with Christ.
+ - The great truths of Christianity do not belong to the professional theologians alone, but to every person who calls upon the name of Christ.
+ - Your children will go to public school and they will be trained for somewhere around 15,000 hours in ungodly secular thought. And then they’ll go to Sunday school and they’ll color a picture of Noah’s ark. And you think that’s going to stand against the lies that they are being told?
+ - Your best friend is the one who tells you the most truth.
+ - Idolatry is when you become the source of your own joy. Poverty of spirit is a wonderful thing.
+ - Look to the fields white unto harvest; pray for the fields; prepare for the fields; go to the fields or support those who go.
+ - The true convert does not receive the gospel as an addition to his previous life, but in exchange for it.
+ - You love to listen to the very same things that nailed your supposed Savior to the tree?
+ - The terrible sticky thing about truth is if it exists, it’s coming for you.
+ - Men and women who are used of GOD, if I had only a few words to describe them, they are the passionate-weak, they are the violently-desperate.
+ - I used to tell young preachers, in order to preach you’ve got to have the power of God on your life. Now I tell them, in order to tie your shoes you’ve got to have the power of God on your life.
+ - The evidence of conversion is not a decision card filled out, it’s a life being lived out.
+ - The preachers are the greatest problem in the United States of America.
+ - Teach the Scriptures to your children daily, discipline your children consistently, and love your children unconditionally. If you do these things, you will have acted biblically.
+ - God is an inexhaustible source of all we need. Our unbelief is discovered in how little we avail ourselves of this infinite fountain.
+ - To fight against pride, it is wise to surround ourselves with those who know us and love us enough to speak into our lives with words of correction and rebuke.
+ - We as Americans are the wealthiest Christians who ever walked on the face of the earth. We are the most protected Christians that ever walked on the face of the earth, and yet we are the emptiest Christians who ever walked on the face of the earth.
+ - The work is hindered. The glory of God is tarnished and it is because the people of God no longer know how to discern the things of God.
+ - Most people today in our churches are lost, and they demonstrate that they are lost because their entire Christianity is nothing more than, ‘They made a decision.’
+ - People who only listen to preachers have a tendency to put them on a pedestal, but those who live with preachers recognize that they are just common men.
+ - To the self-righteous, being judged according to deeds does not seem too alarming but to the man who knows himself the thought is terrifying.
+ - When you refuse to teach on the radical depravity of men, it is an impossibility that you bring glory to God, His Christ, and His cross, because the cross of Jesus Christ and the glory thereof is most magnified when it’s placed in front of the backdrop of our depravity!
+ - Tell them that everything in their life is going to have to bend to His will. Repent and believe.
+ - The Christian ministry is difficult, and we must not be lazy or trite. However, we often place burdens upon ourselves and make demands upon ourselves that are not according to the will of God. The more I know God and understand His perfect work on my behalf, the more I am able to rest.
+ - How many people do you know believe they’re going to heaven because, they’re not trusting so much in Christ as they are the sincerity of the decision they made a long time ago?
+ - A lot of people think that Christianity is you doing all the righteous things you hate and avoiding all the wicked things you love in order to go to Heaven. No, that’s a lost man with religion. A Christian is a person whose heart has been changed; they have new affections.
+ - The moment when you take your first step through the gates of hell, the only thing you will hear is all of creation standing to its feet and applauding and praising God because God has rid the earth of you. That’s how not good you are.
+ - In the gospel of Jesus, sincere and costly discipleship always accompanies genuine conversion. The gospel of Jesus teaches men that a mere profession of faith alone is no sound evidence of salvation.
+ - The problem is not liberal politicians, its evangelical preachers.
+ - We honor the old prophets, we honor the Tozers and Spurgeons but we don’t want to pay the price they paid, and they paid the price by being men who walked alone who lived with God and who loved His word.
+ - He is the creator, and sustainer and Lord of all things and He is worthy of your honor and obedience.
+ - We deal five minutes with a person and their conversion and then we spend the next fifty years trying to disciple a goat into a sheep. I’m not saying this because I’m angry. I’m saying this because countless people are being deceived.
+ - When will we realize that one of the greatest mission fields in the West is the pews of our churches every Sunday morning?
+ - The evidence that you truly repented long ago when you said you did is because you’re still repenting now and even to a greater degree. The evidence that you believed a long time ago is that you’re still believing now and ever more believing in greater and greater degrees.
+ - It’s absolutely absurd to say you are a disciple of Jesus Christ yet not bear the fruit of Jesus Christ.
+ - If a Work of God does NOT Continue, it was NEVER a Work of God.
+ - If the devil walks in and starts pointing out all kinds of things about you, you yawn. And you go, ‘You don’t even know the half of it.’
+ - What can not be overcome in prayer? Answer me! What cannot be done by the hand of the Almighty? Answer me! What can be done by your feeble arms!? ANSWER ME! He can take down the iron curtain in a day, He CAN convert a nation in an hour. Call upon Him, believe Him.
+ - Next, they’ll say, “Do you want to go to heaven?” Have you ever had anybody say, “No, I’d rather go to hell.” My friend, understand this, everyone wants to go to heaven. They just don’t want God to be there when they get there.
+ - The greatest heresy in the American Evangelical and Protestant church is that if you pray and ask Jesus Christ to come into your heart, He will definitely come in!
+ - What is Christianity all about? It is about an intimate relationship with God. And I HATE a christendom, a churchianity that God is not big enough and glorious enough so that we have to give them other things.
+ - A $50 haircut, cool glasses, skinny jeans and a tattoo does not a prophet make.
+ - Don’t touch the ark of God! It is the God of Israel who is wounding people with regards to their sin. Do NOT comfort the soul that God is breaking.
+ - A true Christian will be sensitive to the sin in their life and it will lead them to brokenness and genuine confession, but the person who says they are a Christian and are not sensitive to sin, it does not lead them to confession, a person who is that way is not a Christian.
+ - This is evangelicalism today: sensual, carnal, unconverted people that have just enough deceptive religion to drive them straight into Hell! Are you that kind of person? Or do you have new affections?
+ - Then they ask, “Do you want Jesus to come into your heart?” Does it bother anyone that this formula or language is not found in the New Testament?
+ - We call men to repent and believe. And if they repent and believe, truly in that moment they are saved in that moment. But the evidence is more than just the sincerity of a prayer. It is a continuation of the working of God in their life through sanctification.
+ - The truth is this: I am a Southern Baptist, and the great majority of Southern Baptists are lost.
+ - Christ is not knocking on the door of a sinner’s heart, but on the door of a wayward church.
+ - In that moment of salvation, of belief, they are opening their lives to the person of Jesus.
+ - Maybe that is why there are not a whole lot of problems between the church and worldly culture today, because we are not confronting the culture around us.
+ - When we realize what we were before Christ and what we deserved in that state, it further magnifies the enormity of the gospel for us.
+ - All the decisions you makehow many of those decisions are based on you doing simply what’s right in your own eyes, and how many times specifically have you gone to Scripture looking for the answer, with regard to anything?
+ - I believe alot of churches in America are not churches.
+ - The most precise and thoughtful scholar is limited in what he knows and wrong in some things that he affirms; the most devoted saint is stained with sin and full of error; the bravest heart among us will fail and break; but Christ is altogether lovely, holy, and unfailing.
+ - I now understand more of our calling. The weakest instruments are chosen to do the greatest works so that the glory might go to God.
+ - You go up to the devil and ask if he knows he’s a sinner and he’ll say, “Well, yes I am! And a mighty fine one at that!”
+ - The problem is, even when we preach the Gospel correctly, then we go to this thing on how to invite men and it’s not biblical or historical. We get them to jump through some evangelical hoops and say, “yes” to the appropriate questions and we pope-ishly announce them to be saved.
+ - Those who would send out thousands of questionnaires asking the unconverted what they would desire most in a worship service should realize that ten thousand unanimous opinions of carnal men do not carry the authority of one jot or tittle of God’s Word.
+ - We have forgotten how to blush.
+ - So you walk up to this man sinner and you say, “God loves you and He has a wonderful plan for your life!” and he goes, “What? God loves me? That’s fantastic. I LOVE ME, TOO! And He loves me more than I love me? Well, that’s hard to imagine. I’ll take a God like that. You got two of them?”
+ - If you give them a God made in their own image, I guarantee they’ll accept Him. But He won’t be the God who saves.
+ - Repentance is simply giving up to stop fighting against God and to stop attempting to gain your own salvation through your own works; to literally give up and fall upon Christ. That is salvation.
+ - Pray for the field. If God calls, then prepare for the field. When it is time, go to the field. A life lost for Christ is a life well spent.
+ - Remember this: you must always be growing in the gospel and your knowledge of it. It is not Christianity 101, but Christianity from A to Z. You have not mastered the gospel, nor will you master it, but it will master you!
+ - When preachers teach biblically and clearly about the judgment of God and the dangers of hell, men begin to see that their greatest need is to be saved from eternal condemnation, and the more “practical” needs of this present age become trivial in comparison.
+ - When someone comes along later and tries to preach the Gospel to them because they’re living in the world, they won’t listen.
+ - Possessing a correct interpretation of each individual doctrine is not sufficient; we must also learn to hold each doctrine in harmony with the others.
+ - You have Jesus and Jesus has you or you are barren and wasted and lost!
+ - If we judge our lives by what we know or by what we say, we can easily deceive ourselves into thinking that we are something we are not; it is wiser to evaluate ourselves by the amount of truth we actually live. This is very humbling.
+ - We find or invent the cleverest means of attributing our sins to anything or anyone outside of ourselves.
+ - In the history of extra-biblical study and research tools there has never before been a resource as useful as the Puritan Hard Drive.
+ - You cannot learn doctrine well until you follow the doctrine you learn!
+ - Prior to the reign of the godly King Josiah, the law of God had been lost in the temple for many years. Has the same thing occurred among us? Has the evangel been lost among evangelicals?
+
+122 quotes

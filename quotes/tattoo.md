@@ -1,0 +1,42 @@
+ - My body is my journal, and my tattoos are my story. ~~Johnny Depp
+ - An artist is not paid for his labor but for his vision. ~~James Whistler
+ - A tattoo is graffiti on the temple of the body. ~~Gordon B. Hinckley
+ - My tattoos are reminders to hang in there when things get rough. ~~Demi Lovato
+ - Express yourself through your art – whether it’s your drawings in a sketchpad, tattoos on your skin, the shade of your lipstick, or the clothes that you wear. ~~Kat Von D
+ - My tattoos are like a scrapbook of my life. Sometimes you don’t feel comfortable in your own skin, so covering it up with pictures helps. ~~Frank Iero
+ - Don’t worry, don’t be afraid, ever, because this is just a ride. ~~Bill Hicks
+ - I will not fail, I will not disappoint you, I will not let you down. ~~Arnold Schwarzenegger
+ - Show me a man with a tattoo and I’ll show you a man with an interesting past. ~~Jack London
+ - It’s all too much and not enough at the same time. ~~Jack Kerouac
+ - God gives the nuts, but he does not crack them. ~~Franz Kafka
+ - You don’t have to be naked to be sexy. ~~Nicole Kidman
+ - I got this Jesus tattoo on my wrist when I was 18 because I know that it’s always going to be a part of me. When I’m playing, it’s staring right back at me, saying, ‘Remember where you came from.’ ~~Katy Perry
+ - My tattoos say “Stay strong.” “Stay” on one wrist and “strong” on the other. I’m able to look at them and be thankful for being alive. ~~Demi Lovato
+ - It is not a disgrace to fail. Failing is one of the greatest arts in the world. ~~Charles F. Kettering
+ - When I’m good, I’m very good. But when I’m bad I’m better. ~~Mae West
+ - The other day, I got a henna tattoo that says “Forever.” ~~Zach Galifianakis
+ - My number is 174517; we have been baptized, we will carry the tattoo on our left arm until we die. ~~Primo Levi
+ - Painting is an infinitely minute part of my personality. ~~Salvador Dalí
+ - I think tattoos are horrible. It’s like living in a Pucci dress full-time. ~~Karl Lagerfeld
+ - If the body is a temple, then tattoos are its stained glass windows. ~~Sylvia Plath
+ - Johnny Depp is like a brother to me. We have matching tattoos on our backs – Charles Baudelaire, the flowers of evil, this giant skeleton thing. It’s kind of a secret. People say to us, ‘Why did you get that?’ And we say, ‘No reason.’ ~~Marilyn Manson
+ - Having a baby is like getting a tattoo on your face. You really need to be certain it’s what you want before you commit. ~~Elizabeth Gilbert
+ - I am a bit of a bad boy. I have tattoos and I mess around. That’s part of my image, so it’s cool. ~~Zayn Malik
+ - Not one great country can be named, from the polar regions in the north to New Zealand in the south, in which the aborigines do not tattoo themselves. ~~Charles Darwin
+ - Usually all my tattoos came at good times. A tattoo is something permanent when you’ve made a self-discovery, or something you’ve come to a conclusion about. ~~Angelina Jolie
+ - I don’t have any tattoos but I’ve thought about getting Ernie, from Bert and Ernie, on my earlobe. He made a big impression on me as a kid. And I have pretty big earlobes. ~~J Mascis
+ - The first tattoo I got was when I was 17, and it’s a cross on my bicep with ‘Only God Can Judge Me’ underneath. ~~Trey Songz
+ - A very common thing these days is people show up and they ask us in the band to sign with a Sharpie right on their skin and they go get it tattooed the next day. Then they’ll show up at another show and they’ll have their tattoo. ~~Jared Leto
+ - I haven’t had a drink in thirteen years, but occasionally I’m tempted to have one beer. The problem is that if I have that one beer, I wake up in Tijuana four days later with a tattoo and a sore ass. ~~Craig Ferguson
+ - Why not wear a scar of Motherhood? Better than a tattoo or a mark of Honor. Let the world know what you’ve achieved. ~~Richelle Mead
+ - He said, I’m better off without her, until I showed him my tattoo. ~~Tom Waits
+ - Painting and tattooing the body is a return to animalism. ~~Johann Wolfgang von Goethe
+ - Becoming a vampire is forever. You don’t get to change your mind about it later. For me, I think that’s one of the big drawbacks with anything that’s permanent. How do you know how you’re going to feel in five years or 10 years? Even with a tattoo. ~~Stephenie Meyer
+ - I never thought about getting any tattoos removed. ~~Henry Rollins
+ - For someone who likes tattoos, the most precious thing is bare skin. ~~Cher
+ - I’m really glad I did not tattoo on my body ’cause I don’t want them. So, permanence is a very scary thing to me, along with things that don’t change at all. ~~Stephenie Meyer
+ - I have no love for myself as a human being, but I have immense pride in the music I make, and I believe it has an important place. Others do, too, and the thousands of people with Morrissey tattoos certainly proves something. ~~Steven Morrissey
+ - I'd rather be hated for who I am, than loved for who I am not. ~~Kurt Cobain
+ - Successful people ask better questions, and as a result, they get better answers. ~~Tony Robbins
+
+40 quotes

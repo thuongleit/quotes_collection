@@ -1,0 +1,42 @@
+ - Be the silent watcher of your thoughts and behavior. You are beneath the thinker. You are the stillness beneath the mental noise. You are the love and joy beneath the pain. ~~Eckhart Tolle
+ - Nothing is worth more than this day. You cannot relive yesterday. Tomorrow is still beyond your reach. ~~Johann Wolfgang von Goethe
+ - Happiness is your nature. It is not wrong to desire it. What is wrong is seeking it outside when it is inside. ~~Ramana Maharshi
+ - Welcome to the present moment. Here. Now. The only moment there ever is. ~~Eckhart Tolle
+ - Confine yourself to the present. ~~Marcus Aurelius
+ - Mindfulness isn’t difficult, we just need to remember to do it. ~~Sharon Salzberg
+ - Mindfulness is the miracle by which we master and restore ourselves. ~~Nhat Hanh
+ - If you know something hurtful and not true, don’t say it. If you know something hurtful and true, don’t say it. If you know something helpful but not true, don’t say it. If you know something helpful and true, find the right time to say it. ~~Buddha
+ - The foundation of all mental illness is the unwillingness to experience legitimate suffering. ~~C.G. Jung
+ - Self-knowledge is the first step to maturity. ~~Jane Austen
+ - Mindfulness means being awake. It means knowing what you are doing. ~~Jon Kabat-Zinn
+ - To pay attention, this is our endless and proper work. ~~Mary Oliver
+ - Every step taken in mindfulness brings us one step closer to healing ourselves and the planet. ~~Nhat Hanh
+ - Your greatness is here and now. Your happiness is here and now. ~~Napoleon Hill
+ - Daring greatly means the courage to be vulnerable. It means to show up and be seen. To ask for what you need. To talk about how you’re feeling. To have the hard conversations. ~~Brené Brown
+ - Mindfulness must be engaged. Once there is seeing, there must be acting. Otherwise, what’s the use of seeing? ~~Nhat Hanh
+ - With mindfulness, you can establish yourself in the present in order to touch the wonders of life that are available in that moment. ~~Nhat Hanh
+ - Mindfulness of the body leads to nirvana. ~~Buddha
+ - If it isn’t good, let it die. If it doesn’t die, make it good. ~~Ajahn Chah
+ - Seek and see all the marvels around you. You will get tired of looking at yourself alone, and that fatigue will make you deaf and blind to everything else. – Don Juan. ~~Carlos Castaneda
+ - Retire to the center of your being, which is calmness. ~~Paramahansa Yogananda
+ - Only the present moment contains life. ~~Nhat Hanh
+ - Mindfulness is the aware, balanced acceptance of the present experience. It isn’t more complicated that that. It is opening to or recieving the present moment, pleasant or unpleasant, just as it is, without either clinging to it or rejecting it. ~~Sylvia Boorstein
+ - The past cannot survive in your presence. It can only survive in your absence. ~~Eckhart Tolle
+ - The habit of spending nearly every waking moment lost in thought leaves us at the mercy of whatever our thoughts happen to be. Meditation is a way of breaking this spell. ~~Sam Harris
+ - World is a dance. Mindfulness is witnessing that dance. ~~Amit Ray
+ - Mindfulness is a mental activity that in due course eliminates all suffering. ~~Ayya Khema
+ - Stretch your mind and fly. ~~Whitney M. Young
+ - Always make new mistakes. ~~Esther Dyson
+ - There is no enlightenment outside of daily life. ~~Nhat Hanh
+ - The unconscious process moves spiral-wise around a center, gradually getting closer, while the characteristics of the center grow more and more distinct. ~~C.G. Jung
+ - Our true nature is like a precious jewel: although it may be temporarily buried in mud, it remains completely brilliant and unaffected. We simply have to uncover it. ~~Pema Chödrön
+ - Our thinking minds deprive us of the happiness that comes when we are living fully in the moment. ~~Ram Dass
+ - Look past your thoughts, so you may drink the pure nectar of This Moment. ~~Rumi
+ - If you walk into a forest – you hear all kinds of subtle sounds – but underneath there is an all pervasive silence. ~~Eckhart Tolle
+ - If we practice mindfulness, we always have a place to be when we are afraid. ~~Nhat Hanh
+ - Awareness is like the sun. When it shines on things, they are transformed. ~~Nhat Hanh
+ - The next message you need is always right where you are. ~~Ram Dass
+ - In your present-moment awareness, awaken to your innocence, your trust, your love, your eternal being. ~~Deepak Chopra
+ - One must be truly able to say I in order to know the mystery of the Thou in its whole truth. ~~Martin Buber
+
+40 quotes

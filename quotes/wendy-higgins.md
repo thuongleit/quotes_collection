@@ -1,0 +1,23 @@
+ - The purpose of life is to find your way back to a spiritual way of thinking and living – to be able to get past the physical stuff.
+ - The beauty of poetry is that it can mean different things to different people at different times.
+ - But even the worst earthly pain and heartache doesn’t last into the heavenly realm. And it all serves a higher purpose.
+ - Those two need each other like a bullet needs a target.
+ - I want to introduce myself to every freckle on your body.
+ - I can’t believe I’m about to drink with my father- this is wrong on so many levels.
+ - Hey, princess of Popsicles! Queen of curlicue cones.
+ - I didn’t know exactly what the future held, but I knew we were a team. Parting would not break us.
+ - Girl, all you have to do is say the word, and Mr. Lusty McLust a Lot here will be happy to whisper some dirty nothings in your ear.
+ - Good gracious, he was sexy – a word that had not existed in my personal vocabulary until that moment. This guy was sexy like it was his job or something.
+ - He was smoking hot. As in H-O-T-T, hott. I’d never understood until that moment why girls insisted on adding an extra t. This guy was extra-t-worthy.
+ - We have to face difficulties to find out what our true strengths are. How we come back from failure is a very valuable test.
+ - This is right, Kai. We love each other.? He closed his eyes. ‘I’d do anything for you.’ ‘Just love me,’ I whispered.
+ - I knew I hated straight shots of anything except tequila. I was definitely a tequila girl.
+ - I felt you come alive when we kissed, and I know you’re afraid of that. Afraid to unleash that other side of yourself.
+ - I’m to old for this.
+ - Too much was between us, pulling us together at the same time as it pushed us apart. Our need for each other would always be in constant battle with our need to keep the other safe.
+ - Because all I could think about was you, Anna, and how good you are, and what you’d think of me. You put thoughts into my head a Neph shouldn’t have!
+ - He was my drummer. My guy. Mine. I bit my lip to hold back a grin.
+ - I was more myself with you during those three days than I’ve ever been with anyone in my life. It’d be easier if I could be fake with you, but you bring out everything in me, little Ann. All of it.
+ - I think a third shower might be necessary.
+
+21 quotes

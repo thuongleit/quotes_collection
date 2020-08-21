@@ -1,0 +1,25 @@
+ - In politics, madame, you need two things: friends, but above all an enemy.
+ - You can’t be chasing 15 rabbits. Otherwise, the public mind cannot follow you.
+ - If your only objective is to be popular, you’re going to be popular but you will be known as the Prime Minister who achieved nothing.
+ - The Conservatives over the years have done a great deal, from Sir John A, to Diefenbaker, and others.
+ - Every cabinet minister gets a mission statement from the Prime Minister.
+ - I can see now a vision emerging how Canada is going to profit in the future from our Arctic resources without destroying the environment on which it is all based.
+ - My second biggest mistake in life, for which I have no one to blame but myself, is having accepted payments in cash from Karlheinz Schreiber. My biggest mistake in life was pretending that I wasn’t trying to avoid paying taxes on that money.
+ - I would go to them and I would explain this is the price of going forward. We’re going to move ahead in all these other areas. We’re moving ahead in tax reform and GST, we are moving ahead on trade, but this will not be done at the cost of the environment.
+ - Trudeau’s contribution was not to build Canada but to destroy it, and I had to come in and save it.
+ - The biggest trading partner of the United States is not West Germany or Japan, it’s right here.
+ - Whether the process proves to be Kyoto or something else, let’s acknowledge the urgency of global warming.
+ - You have to spend your political capital on great causes for your country.
+ - For example, the Prime Minister earlier this year talked about the importance of the Arctic to our future. He’s right. A hundred years from now, the strength of Canada is going to be coming from our resources in the Arctic.
+ - So that was Reagan’s political problem. As a rancher in California, he was an environmentalist himself. But the President of the United States doesn’t control everything that happens in Washington.
+ - I commend Sri Chinmoy for his faith and serenity, and I hope he will continue to exert his calming and constructive influence on the international community for many years to come.
+ - We decided that the environment was an integral part of our policies and the political thrust of our government. We gave it the priority and we sustained it with the money required to make it happen.
+ - There are so many demands on your time, on your resources, and on the prestige of the government.
+ - First, President Reagan was not enthusiastic. But I built up a relationship with him in other areas and then persuaded him that this was important to us and to me, and that we had to at least be in the process of looking at this seriously.
+ - When I appointed the Minister of the Environment to major cabinet status, the Planning and Priorities committee, the signals that that sent through Ottawa were major, because that’s what the bureaucracy understands.
+ - I am not denying anything I did not say.
+ - I think the government has to reposition environment on top of their national and international priorities.
+ - Once you articulate an agenda, you have to follow it.
+ - And look, I was a big, brassy guy who won and won big. I did what I wanted.
+
+23 quotes

@@ -1,0 +1,84 @@
+ - I’m lazy. But it’s the lazy people who invented the wheel and the bicycle because they didn’t like walking or carrying things.
+ - If there were fish in the lake, fishing would make no sense.
+ - Words are plentiful; deeds are precious.
+ - He who puts out his hand to stop the wheel of history will have his fingers crushed.
+ - Deep faith eliminates fear.
+ - We hold our heads high, despite the price we have paid, because freedom is priceless.
+ - The fall of the Berlin Wall makes for nice pictures. But it all started in the shipyards.
+ - There is something of the warrior in me.
+ - You have riches and freedom here but I feel no sense of faith or direction. You have so many computers, why don’t you use them in the search for love?
+ - When I was fighting communism, there was rapid development of satellite television and cell phones, and communism, to survive, would have to block all these information devices.
+ - I had my own battle tactics.
+ - I believe that any violation of privacy is nothing good.
+ - He who once became aware of the power of Solidarity and who breathed the air of freedom will not be crushed.
+ - I only fear God, and my wife – sometimes.
+ - Power is only important as an instrument for service to the powerless.
+ - Everyone wants a voice in human freedom. There’s a fire burning inside all of us.
+ - This is the moment of your defeat; you have just put in the last nails in the coffin of communism.
+ - It is hardly possible to build anything if frustration, bitterness and a mood of helplessness prevail.
+ - Freedom must be gained step by step, slowly. Freedom is a food which must be carefully administered when people are too hungry for it.
+ - In many parts of the world the people are searching for a solution which would link the two basic values: peace and justice. The two are like bread and salt for mankind.
+ - The sole and basic source of our strength is the solidarity of workers, peasants and the intelligentsia, the solidarity of the nation, the solidarity of people who seek to live in dignity, truth, and in harmony with their conscience.
+ - We must be courageous but also reasonable. The world admires us for walking a tightrope without falling off. It asks us to keep our balance.
+ - When he saw injustice, he wanted to do away with it. He saw communism, and he wanted to put an end to it.
+ - I want to light the lights of patriotism.
+ - My youth passed at the time of the country’s reconstruction from the ruins and ashes of the war in which my nation never bowed to the enemy paying the highest price in the struggle.
+ - The world needs leaders of vision instead of leaders on television.
+ - I will talk and act, not on my knees, but with prudence.
+ - The politicians always told us that the Cold War stand-off could only change by way of nuclear war. None of them believed that such systemic change was possible.
+ - As a nation we have the right to decide our own affairs, to mould our own future. This does not pose any danger to anybody. Our nation is fully aware of the responsibility for its own fate in the complicated situation of the contemporary world.
+ - Freedom may be the soul of humanity, but often you have to struggle to prove it.
+ - Communism prevents organizations from developing by stopping the flow of information. The system is based on police and listening devices and triggers the worst characteristics in humans.
+ - We shall not yield to violence. We shall not be deprived of union freedoms. We shall never agree with sending people to prison for their convictions.
+ - Communism is a monopolistic system, economically and politically. The system suppresses individual initiative, and the 21st century is all about individualism and freedom. The development of technology supported these directions.
+ - I have always been and will be an enemy of communism, but I love all people.
+ - My most ardent desire is that my country will recapture its historic opportunity for a peaceful evolution and that Poland will prove to the world that even the most complex situations can be solved by a dialogue and not by force.
+ - It is not difficult to censor foreign news. What is difficult today is to censor one’s own thoughts, To sit by and see the blind man On the sightless horse, riding into the bottomless abyss.
+ - I have a vision, and I know I’m right.
+ - Obviously people want social calm, but if you do not let clever and ingenious people to participate, obviously there must be some dormant volcano that will erupt, sooner or later.
+ - When I recall my own path of life I cannot but speak of the violence, hatred and lies. A lesson drawn from such experiences, however, was that we can effectively oppose violence only if we ourselves do not resort to it.
+ - Without a single shot we’ve managed to liberate the world of communism but now there is a need for a global solidarity.
+ - There should be a left leg and a right leg. And I’ll be in between.
+ - In myself I am nothing. It all comes from God and the Virgin Mary.
+ - I don’t like to look a man in the eye.
+ - I made the right decisions, I set everything on the right course, the reforms are going in the right direction.
+ - The hope of the nation which throughout the nineteenth century had not for a moment reconciled itself with the loss of independence, and fighting for its own freedom, fought at the same time for the freedom of other nations.
+ - The people in Poland had to deal with painful reforms.
+ - The defense of our rights and our dignity, as well as efforts never to let ourselves to be overcome by the feeling of hatred – this is the road we have chosen.
+ - I belong to the generation of workers who, born in the villages and hamlets of rural Poland, had the opportunity to acquire education and find employment in industry, becoming in the course conscious of their rights and importance in society.
+ - Communism is a monopolistic system, economically and politically.
+ - One could always do more, faster and cleverer, but democracy has its own rhythm.
+ - I think if I got a bicycle from my father, I should give a car to my son.
+ - I belong to a nation which over the past centuries has experienced many hardships and reverses. The world reacted with silence or with mere sympathy when Polish frontiers were crossed by invading armies and the sovereign state had to succumb to brutal force.
+ - I believed it would succeed. It was Polish Solidarity and its victory that put an end to the old era when what mattered were borders and rival blocs.
+ - I am happy that Poland is returning to the road of pluralism and democracy.
+ - If once again Germany destabilizes Europe, then Germany will be not be divided again, but wiped off the map. East and West have the necessary technology in order to enforce this verdict. If Germany begins again, there is no other solution.
+ - Let the veil of silence fall presently over what happened afterwards. Silence, too, can speak out.
+ - Lying at the root of the social agreements of 1980 are the courage, sense of responsibility, and the solidarity of the working people. Both sides have then recognized that an accord must be reached if bloodshed is to be prevented.
+ - I hope to work harder than ever to help people around the world.
+ - We need a global parliament, a global government and possibly a global ministry for security.
+ - I realize that the strivings of the Polish people gave rise, and still do so, to the feelings of understanding and solidarity all over the world.
+ - For now, capitalism is working to produce more money but does not see the people. This problem is getting worse across the world.
+ - Irrespective of todays judgment and the price we had to pay in this generation, we were able to close an epoch of divisions, different blocs and borders, opening the way for an era of globalization.
+ - I allowed myself to be taken in by the intellectuals. I believed too much in the Polish intellectuals and followed their advice.
+ - You should go to the polls, organize yourself. But once lawmakers are chosen, they must be respected.
+ - President Lech Kaczynski is not at all active in Poland and his image abroad leaves a lot to be desired.
+ - I am overjoyed that I do not need a heart transplant at this time.
+ - Building democracy as an imposition from abroad is a form of imperialism.
+ - What until then seemed impossible to achieve has become a fact of life. We have won the right to association in trade unions independent from the authorities, founded and shaped by the working people themselves.
+ - Our firm conviction that ours is a just cause and that we must find a peaceful way to attain our goals gave us the strength and the awareness of the limits beyond which we must not go.
+ - Our national history has so often filled us with bitterness and the feeling of helplessness.
+ - My country is in the grips of a major economic crisis. This is causing dramatic consequences for the very existence of Polish families. A permanent economic crisis in Poland may also have serious repercussions for Europe. Thus, Poland ought to be helped and deserves help.
+ - I can’t imagine the right wing trying to unite without my participation.
+ - The program of our movement stems from the fundamental moral laws and order.
+ - I got politics and economics moving and then others took over.
+ - Now is the era of intellect, information and the Internet.
+ - I must tell you that the supply of words on the world market is plentiful, but the demand is falling.
+ - Capitalism is in crisis.
+ - I most sincerely wish that the world in which we live be free from the threat of a nuclear holocaust and from the ruinous arms race. It is my cherished desire that peace be not separated from freedom which is the right of every nation. This I desire and for this I pray.
+ - Authority must be respected and chosen wisely.
+ - Dictators and oppressors should continue to fear me because I will be here for a long time.
+ - My health is very much improved.
+ - Communists are great capitalists, so there is no threat anymore.
+
+82 quotes

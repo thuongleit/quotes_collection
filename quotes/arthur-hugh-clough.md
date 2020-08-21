@@ -1,0 +1,38 @@
+ - Say not the struggle nought availeth, The labour and the wounds are vain, The enemy faints not, nor faileth, And as things have been, things remain.
+ - If hopes were dupes, fears may be liars.
+ - Thou shalt not covet; but tradition approves all forms of competition.
+ - Allah isgreat, no doubt, and Juxtaposition his prophet.
+ - Grace is given of god, but knowledge is bought in the market.
+ - It fortifies my soul to know That, though I perish, Truth is so: That, howsoe’er I stray and range, Whate’er I do, Thou dost not change. I steadier step when I recall That, if I slip Thou dost not fall.
+ - Thou shalt not steal; an empty feat, When it’s so lucrative to cheat.
+ - Thou shalt not kill; but needst not strive officiously to keep alive.
+ - In front, the sun climbs slow, how slowly, but westward, look, the land is bright.
+ - Do not adultery commit; Advantage rarely comes of it.
+ - As I sat at the Cafe I said to myself, They may talk as they please about what they call pelf, They may sneer as they like about eating and drinking, But help it I cannot, I cannot help thinking How pleasant it is to have money, heigh-ho! How pleasant it is to have money!
+ - Rome, believe me, my friend, is like its own Monte Testaceo, Merelya marvellous mass of broken and castaway wine-pots.
+ - The horrible pleasure of pleasing inferior people.
+ - That out of sight is out of mind is true of most we leave behind.
+ - Come back again, old heart! Ah me! Methinks in those thy coward fears There might, perchance, a courage be, That fails in these the manlier years; Courage to let the courage sink, Itself a coward base to think, Rather than not for heavenly light Wait on to show the truly right.
+ - Put forth thy leaf, thou lofty plane, East wind and frost are safely gone; With zephyr mild and balmy rain The summer comes serenely on; Earth, air, and sun and skies combine To promise all that’s kind and fair: But thou, O human heart of mine, Be still, contain thyself, and bear.
+ - Truth is a golden thread, seen here and there In small bright specks upon the visible side Of our strange being’s party-coloured web.
+ - Thou shalt have one God only: who Would be at the expense of two?
+ - Each for himself is still the rule We learn it when we go to school The devil take the hindmost, O!
+ - Action will furnish belief,-but will that belief be the true one? This is the point, you know.
+ - Whither depart the souls of the brave that die in the battle, Die in the lost, lost fight, for the cause that perishes with them?
+ - No graven images may be Worshipped, except the currency.
+ - And almost everyone when age, disease, or sorrows strike him, inclines to think there is a God, or something very like him.
+ - Loving if the answering breast Seem not to be thus possessed, Still in hoping have a care; If it do, beware, beware! But if in yourself you find it, Above all things mind it, mind it!
+ - Old things need not be therefore true, O brother men, nor yet the new; Ah! still awhile the old thought retain, And yet consider it again!
+ - The highest political buzz word is not liberty, equality, fraternity or solidarity; it is service.
+ - Thought may well be ever ranging, And opinion ever changing, Task-work be, though ill begun, Dealt with by experience better; By the law and by the letter Duty done is duty done Do it, Time is on the wing!
+ - As ships becalmed at eve, that lay With canvas drooping, side by side, Two towers of sail, at dawn of day Are scarce, long leagues apart, descried.
+ - How pleasant it is to have money.
+ - O tell me, friends, while yet we part, And heart can yet be heard of heart, O tell me then, for what is it Our early plan of life we quit; From all our old intentions range, And why does all so wholly change? O tell me, friends, while yet we part!
+ - I sit at my table en grand seigneur, And when I have done, throw a crust to the poor; Not only the pleasure, one’s self, of good living, But also the pleasure of now and then giving. So pleasant it is to have money, heigh ho! So pleasant it is to have money.
+ - A world where nothing is had for nothing.
+ - There is a great Field-Marshal, my friend, who arrays our battalions; Let us to Providence trust, and abide and work in our stations.
+ - Dance on, dance on, we see, we see Youth goes, alack, and with it glee, A boy the old man ne’er can be; Maternal thirty scarce can find The sweet sixteen long left behind.
+ - This world is bad enough maybe; We do not comprehend it; But in one fact can all agree God won’t, and we can’t mend it.
+ - Out of sight is out of mind.
+
+36 quotes

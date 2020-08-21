@@ -1,0 +1,127 @@
+ - It’s not over until you win.
+ - Do what is easy and your life will be hard. Do what is hard and your life will become easy.
+ - No matter how bad it is, or how bad it gets, I’m going to make it.
+ - Shoot for the moon and if you miss you will still be among the stars.
+ - To be successful, you must be willing to do the things today others won’t do in order to have the things tomorrow others won’t have.
+ - You will win if you don’t quit.
+ - Too many of us are not living our dreams because we are living our fears.
+ - Life has no limitations, except the ones you make.
+ - Change your thinking. Change your life! Your thoughts create your reality. Practice positive thinking. Act the way you want to be, and soon you will be the way you act.
+ - Other people’s opinion of you does not have to become your reality.
+ - In every day, there are 1,440 minutes. That means we have 1,440 daily opportunities to make a positive impact.
+ - Review your goals twice every day in order to be focused on achieving them.
+ - Help others achieve their dreams and you will achieve yours.
+ - Most people fail in life not because they aim too high and miss, but because they aim too low and hit.
+ - There is nothing more powerful than a changed mind.
+ - Life is a fight for territory and once you stop fighting for what you want, what you don’t want will automatically take over.
+ - Forgive yourself for your faults and your mistakes and move on.
+ - It is better to aim high and miss than to aim low and hit.
+ - Fear is the most subtle and destructive of all human diseases. Fear kills dreams and hope.
+ - If you set goals and go after them with all the determination you can muster, your gifts will take you places that will amaze you.
+ - Don’t underestimate yourself. You are capable of more than you can ever imagine.
+ - Make each day count by setting specific goals to succeed, then putting forth every effort to exceed your own expectations.
+ - If you’re going through hell, don’t stop, keep moving!
+ - Just because Fate doesn’t deal you the right cards, it doesn’t mean you should give up. It just means you have to play the cards you get to their maximum potential.
+ - When you are not pursuing your goal, you are literally committing spiritual suicide.
+ - Accept responsibility for your life. Know that it is you who will get you where you want to go, no one else.
+ - If it’s hard, do it hard! Nobody said it would be easy.
+ - Ask for help. Not because you are weak. But because you want to remain strong.
+ - You have something special, you have GREATNESS within you!
+ - When life knocks you down, try to land on your back. Because if you can look up, you can get up. Let your reason get you back up.
+ - Whatever life may send your way – make the best of it. Don’t waste your time and energy worrying about it. Instead, find a way to do something about it. Learn from it, adjust to it, be strong, be flexible and be your best in every situation.
+ - You don’t get what you want in life. You get who you are.
+ - If you want to be rich watch what rich people do everyday and do it. And watch what poor people do and don’t do it.
+ - Never let someone’s opinion become your reality. Never sacrifice who you are because someone else has a problem with it. Love who you are inside and out.
+ - No matter what happens, no matter how far you seem to be away from where you want to be, never stop believing that you will somehow make it.
+ - No one rises to low expectations.
+ - The wealthiest place on the planet is the graveyard, because in the graveyard we will find inventions that we were never ever exposed to, ideas, dreams that never became a reality, hopes and aspirations that were never acted upon.
+ - If you take responsibility for yourself you will develop a hunger to accomplish your dreams.
+ - Do what you need to do, so that you can do what you want to do. Success and convenience do not go together. You have what it takes to be successful, so you have to step up your game and make room for it.
+ - Take action in order to move toward your goals.
+ - I can bounce back from adversity and reinvent my life – it’s possible.
+ - I will heighten my life by helping others heighten theirs.
+ - Define your priorities, know your values and believe in your purpose. Only then can you effectively share yourself with others.
+ - Don’t waste another minute dealing with a toxic, negative, energy-draining person. Some people are wired for negativity. They love being argumentative, combative and abusive. Run for your life as quickly as possible.
+ - Go after what you want as if your life depended on it. Because it Does!
+ - No one will take better care of your dream than you.
+ - Leap and grow your wings on the way down.
+ - You have something special. You have greatness in you. You have the ability to do more than you can ever begin to imagine.
+ - There comes a time when you have to drop your burdens in order to fight for yourself and your dreams.
+ - You can’t see the picture when you’re in the frame.
+ - As you reach your goals, set new ones. That is how you grow and become a more powerful person.
+ - If you want to keep getting what you’re getting, keep doing what you’re doing.
+ - Wanting something is not enough. You must hunger for it. Your motivation must be absolutely compelling in order to overcome the obstacles that will invariably come your way.
+ - Your goals are the road maps that guide you and show you what is possible for your life.
+ - Your dream was given to you. If someone else can’t see it for you, that’s fine, it was given to you and not them. It’s your dream. Hold it. Nourish it. Cultivate it!
+ - Whatever you’re seeking-it’s seeking You.
+ - If you run around with 9 losers pretty soon you’ll be the 10th loser.
+ - No one gets out of the game of life alive. You either die in the bleachers, or on the field. So, you might as well play out on the field, and go for it.
+ - If you only talk to a person’s head and not their heart people won’t listen to you.
+ - You have the courage and power to live your dreams.
+ - Do something about your life now.
+ - Stand up for what you believe in, because you can fall for anything.
+ - If you go through life being casual, you will end up a casualty.
+ - Honor your commitments with integrity.
+ - Know your gifts and share them.
+ - Align yourself with people that you can learn from, people who want more out of life, people who are stretching and searching and seeking some higher ground in life.
+ - Goals help you channel your energy into action.
+ - Begin to read a book that will help you move toward your dream.
+ - Your smile will give you a positive countenance that will make people feel comfortable around you.
+ - When it comes to success, it will come when it comes. A delay does not mean a denial.
+ - There are winners, there are losers and there are people who have not yet learned how to win.
+ - The time is ‘now’ to do something – don’t drag your feet.
+ - You must see your goals clearly and specifically before you can set out for them. Hold them in your mind until they become second nature.
+ - One of the most essential things you need to do for yourself is to choose a goal that is important to you. Perfection does not exist – you can always do better and you can always grow.
+ - Provide more service than what you get paid for.
+ - If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness.
+ - You were created on purpose for a purpose. There is a thirst and hunger in your heart that is real. Pay attention to it.
+ - Never, under any conditions allow circumstances to determine your reality.
+ - I advise you to say your dream is possible and then overcome all inconveniences, ignore all the hassles and take a running leap through the hoop, even if it is in flames.
+ - How to discover your greatness? By upgrading our relationships and by having goals beyond our comfort zone.
+ - The key to success is discovering your innate power and using it daily.
+ - What we do and accomplish is only the tip of the iceberg of what’s possible for us.
+ - In the end, it is the person you become, not the things you have achieved, that is the most important.
+ - The only limits to the possibilities in your life tomorrow are the buts you use today.
+ - Forgive those who have hurt you.
+ - You can’t get out of life alive.
+ - There are two types of relationships: nourishing and toxic. Do not keep the toxic. What interaction does light have with darkness? None!
+ - You must remain focused on your journey to greatness.
+ - Live out of your imagination instead of out of your memory.
+ - If you are carrying strong feelings about something that happened in your past, they may hinder your ability to live in the present.
+ - You have to know what is right for you and go after it regardless of what others say.
+ - Be willing to go all out, in pursuit of your dream. Ultimately it will pay off. You are more powerful than you think you are.
+ - We were all born with a certain degree of power. The key to success is discovering this innate power and using it daily to deal with whatever challenges come our way.
+ - Accept the consequences of your actions in order to become the agent of your mental, physical, spiritual and material success.
+ - If you are not excited about your own dream, how can you expect anybody else to be?
+ - Goals are not dreamy, pie-in-the-sky ideals. They have every day practical applications and they should be practical.
+ - We must look for ways to be an active force in our own lives. We must take charge of our own destinies, design a life of substance and truly begin to live our dreams.
+ - A friend who is far away is sometimes much nearer than one who is at hand.
+ - Downsizing trends and the changing global market require people to reinvent themselves and think like entrepreneurs.
+ - When a show fails to destroy the competition-and it can fail while attracting 20 million viewers-it is itself destroyed.
+ - Perfection does not exist – you can always do better and you can always grow.
+ - Your ability to communicate is an important tool in your pursuit of your goals, whether it is with your family, your co-workers or your clients and customers.
+ - It takes someone with a vision of the possibilities to attain new levels of experience. Someone with the courage to live his dreams.
+ - Practice only makes for improvement.
+ - Life takes on meaning when you become motivated, set goals and charge after them in an unstoppable manner.
+ - Anytime you suffer a setback or disappointment, put your head down and plow ahead.
+ - We have to live life with a sense of urgency so not a minute is wasted.
+ - Sometimes you’ve got to #? believe in someone else’s belief in you until your #? belief kicks in.
+ - Don’t confuse who you are with the results that you produce.
+ - Make sure when you fall you land on your back if you can see you can get up.
+ - The only thing that can possibly keep you from going after your dreams is the person standing in your shoes, wearing your clothes, and thinking your negative thoughts.
+ - Doing great requires that we become great people, and all of us can become great people.
+ - You cannot be wimpy out there on the dream-seeking trail. Dare to break through barriers, to find your own path.
+ - No one knows what they can do until they try.
+ - Whatever you accomplish in life is a manifestation not as much of what you do, as of what you believe you deserve.
+ - Unlike productions in the other arts, all television shows are born to destroy two other shows.
+ - All of us need to grow continuously in our lives.
+ - You must think of failure and defeat as the spring boards to new achievements, and to the next level of accomplishment.
+ - In the prosperous times, you put it in your pocket; in the lean times, you put it in your heart and that’s when you discover who you are.
+ - In day-to-day commerce, television is not so much interested in the business of communications as in the business of delivering audiences to advertisers. People are the merchandise, not the shows. The shows are merely the bait.
+ - Here’s other quotes and sayings you can motivate yourself with. Practice only makes for improvement.
+ - Fear does not have any special power unless you empower it by submitting to it.
+ - See yourself confronting your fears in your mind’s eye and handling those fears like a champ.
+ - The gifts we are given in life require the best of us, not merely our best intentions.
+ - We have the responsibility to put our gifts to work.
+
+125 quotes

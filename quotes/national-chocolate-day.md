@@ -1,0 +1,25 @@
+ - Chemically speaking, chocolate really is the world’s perfect food. ~~Michael Levine
+ - Chocolate is cheaper than therapy, and you don’t need an appointment. ~~Jill Shalvis
+ - When it comes to chocolate, resistance is futile. ~~Regina Brett
+ - I never met a chocolate I could not eat. ~~Danielle Steel
+ - Women need chocolate. It’s a scientific fact. ~~Sophie Kinsella
+ - Let's face it, a nice creamy chocolate cake does a lot for a lot of people; it does for me. ~~Audrey Hepburn
+ - Life was like a box of chocolates. You never know what you’re gonna get. ~~Winston Groom
+ - When we don’t have the words chocolate can speak volumes. ~~Joan Bauer
+ - If chocolate were a mandatory part of breakfast, people wouldn’t be so grouchy in the morning. ~~Joanne Fluke
+ - Negativity isn’t the way to go, smile more, eat some chocolate. ~~Ed Sheeran
+ - Biochemically, love is just like eating large amounts of chocolate. ~~John Milton
+ - There are four basic food groups: plain chocolate, milk chocolate, dark chocolate, and white chocolate. ~~Jill Shalvis
+ - After about twenty years of marriage, I’m finally starting to scratch the surface of what women want. And I think the answer lies somewhere between conversation and chocolate. ~~Mel Gibson
+ - Life isn't about finding yourself. It's mostly about chocolate. ~~Darynda Jones
+ - All you need is love. But a little chocolate now and then doesn’t hurt. ~~Charles M. Schulz
+ - Happiness is German engineering, Italian cooking, and Belgian chocolate. ~~Patricia Briggs
+ - If there’s no chocolate in Heaven, I’m not going. ~~Jane Seabrook
+ - Chocolate says “I’m sorry” so much better than words. ~~Rachel Vincent
+ - Anything is good if it’s made of chocolate. ~~Jo Brand
+ - Life without chocolate is just an existence. ~~Sue Costello
+ - I could give up chocolate but I’m not a quitter. ~~Lora Brody
+ - If it were easy to resist, it would not be called chocolate cake. ~~Maryrose Wood
+ - There is nothing better than a friend, unless it is a friend with chocolate. ~~Linda Grayson
+
+23 quotes

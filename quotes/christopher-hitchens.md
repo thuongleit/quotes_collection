@@ -1,0 +1,405 @@
+ - What can be asserted without evidence can be dismissed without evidence.
+ - Take the risk of thinking for yourself.
+ - Never be a spectator of unfairness or stupidity. Seek out argument and disputation for their own sake; the grave will supply plenty of time for silence.
+ - The essence of the independent mind lies not in what it thinks, but in how it thinks.
+ - It’s called faith because it’s not knowledge.
+ - Religion is not the belief there is a god. Religion is the belief god tells you what to do.
+ - There are all kinds of stupid people that annoy me but what annoys me most is a lazy argument.
+ - Don’t take refuge in the false security of consensus.
+ - Morality comes from humanism and is stolen by religion for its own purposes.
+ - I am, I hope, never offensive by accident.
+ - Religion is poison because it asks us to give up our most precious faculty, which is that of reason, and to believe things without evidence. It then asks us to respect this, which it calls faith.
+ - Exceptional claims, require exceptional evidence.
+ - The one unforgivable sin is to be boring.
+ - Islamophobia: a word created by fascists, and used by cowards, to manipulate morons.
+ - The man who prays is the one who thinks that god has arranged matters all wrong, but who also thinks that he can instruct god how to put them right.
+ - I don’t have a body, I am a body.
+ - The search for Nirvana, like the search for Utopia or the end of history or the classless society, is ultimately a futile and dangerous one. It involves, if it does not necessitate, the sleep of reason. There is no escape from anxiety and struggle.
+ - Human decency is not derived from religion. It precedes it.
+ - Forgotten were the elementary rules of logic, that extraordinary claims require extraordinary evidence and that what can be asserted without evidence can also be dismissed without evidence.
+ - There can be no progress without head-on confrontation.
+ - To the dumb question, ‘Why me?’ the cosmos barely bothers to return the reply, ‘Why not?’
+ - The beauty of science hugely outranks the charms of superstition.
+ - If someone tells me that I’ve hurt their feelings I’m still waiting to hear what your point is.
+ - I think religion should be treated with ridicule, hatred, and contempt, and I claim that right.
+ - My own opinion is enough for me, and I claim the right to have it defended against any consensus, any majority, anywhere, any place, any time. And anyone who disagrees with this can pick a number, get in line, and kiss my ass.
+ - I appear as a skeptic, who believes that doubt is the great engine, the great fuel of all inquiry, all discovery and all innovation.
+ - I learned that very often the most intolerant and narrow-minded people are the ones who congratulate themselves on their tolerance and open-mindedness.
+ - For God so loved the world, that he gave his only begotten Son, that whosoever believeth in him will believeth in anything. – Hitchens 3:16.
+ - Once you assume a creator and a plan, it makes us objects in a cruel experiment whereby we are created sick and commanded to be well.
+ - Name a moral statement or action, uttered or performed by a religious person that could not have been uttered or performed by an unbeliever.
+ - I have no time to waste on this planet being told what to do by those who think that God has given them instructions.
+ - Human beings are pattern-seeking animals who will prefer even a bad theory or a conspiracy theory to no theory at all.
+ - If religious instruction were not allowed until the child had attained the age of reason, we would be living in a quite different world.
+ - In the ordinary moral universe, the good will do the best they can, the worst will do the worst they can, but if you want to make good people do wicked things, you’ll need religion.
+ - Philosophy begins where religion ends, just as by analogy chemistry begins where alchemy runs out, and astronomy takes the place of astrology.
+ - I’m an atheist. I’m not neutral about religion, I’m hostile to it. I think it is a positively bad idea, not just a false one. And I mean not just organized religion, but religious belief itself.
+ - I want to urge you very strongly to travel as much as you can, and to evolve yourself as an internationalist. It’s as important a part of your education as a radical as the reading of any book.
+ - Those who are determined to be ‘offended’ will discover a provocation somewhere. We cannot possibly adjust enough to please the fanatics, and it is degrading to make the attempt.
+ - Happiness is fleeting and life is brief, but we know that, nonetheless, life can be savored and that happiness, even of the ecstatic kind, is available to us.
+ - The finest fury is the most controlled.
+ - Ever since I discovered that my god given male member was going to give me no peace, I decided to give it no rest in return.
+ - Since it is obviously inconceivable that all religions can be right, the most reasonable conclusion is that they are all wrong.
+ - I’ve had some dark nights of the soul, of course, but giving in to depression would be a sellout, a defeat.
+ - I’m dying, but so are you.
+ - No society has gone the way of gulags or concentration camps by following the path of Spinoza and Einstein and Jefferson and Thomas Paine.
+ - Jesus is Santa Claus for Adults.
+ - A melancholy lesson of advancing years is the realisation that you can’t make old friends.
+ - Religion is man-made. Even the men who made it cannot agree on what their prophets or redeemers or gurus actually said or did.
+ - All of life is a wager.
+ - To terrify children with the image of hell, to consider women an inferior creation – is that good for the world?
+ - Everybody does have a book in them, but in most cases that’s where it should stay.
+ - Skepticism rather than credulity is the highest principle that the human intellect can use to ennoble our existence.
+ - We keep on being told that religion, whatever its imperfections, at least instills morality. On every side, there is conclusive evidence that the contrary is the case and that faith causes people to be more mean, more selfish, and perhaps above all, more stupid.
+ - Religion gets its morality from us. We don’t get our morality from religion.
+ - My own view is that this planet is used as a penal colony, lunatic asylum and dumping ground by a superior civilisation, to get rid of the undesirable and unfit. I can’t prove it, but you can’t disprove it either.
+ - Don’t swallow your moral code in tablet form.
+ - The atheist proposition is the following – most of the time – it may not be said that there is no god; it may be said that there is no reason to think that there is one.
+ - I’m not even an atheist so much as I am an antitheist; I not only maintain that all religions are versions of the same untruth, but I hold that the influence of churches, and the effect of religious belief, is positively harmful.
+ - Alcohol makes other people less tedious, and food less bland, and can help provide what the Greeks called entheos, or the slight buzz of inspiration when reading or writing.
+ - It’s amazing how relaxing it is not to claim you know more than you do. I’m surprised that those who claim to speak in the name of god don’t take more advantage of this relief.
+ - In one way, I suppose, I have been ‘in denial’ for some time, knowingly burning the candle at both ends and finding that it often gives a lovely light.
+ - To ‘choose’ dogma and faith over doubt and experience is to throw out the ripening vintage and to reach greedily for the Kool-Aid.
+ - Why do humans exist? A major part of the answer: because Pikaia Gracilens survived the Burgess decimation.
+ - Your favorite virtue? An appreciation for irony.
+ - Demands that you believe the impossible do not lead to peaceful outcomes.
+ - I say that homosexuality is not just a form of sex, it’s a form of love, and it deserves our respect for that reason.
+ - Forget it. Never explain; never apologize. You can either write posthumously or you can’t.
+ - There is an unusually high and consistent correlation between the stupidity of a given person and that person’s propensity to be impressed by the measurement of IQ.
+ - You have to choose your future regrets.
+ - Doubt, skepticism, innovation, and inquiry are the only means by which wonder, beauty, awe, and symmetry will be discovered.
+ - Distrust compassion; prefer dignity for yourself and others. Don’t be afraid to be thought arrogant or selfish.
+ - I think being an atheist is something you are, not something you do.
+ - The trade-off between freedom and security, so often proposed so seductively, very often leads to the loss of both.
+ - The discovery there is no god is a great relief, because if there were, it would be like living in a celestial North Korea if there was one. You would never be able to escape.
+ - If you can charm everyone it means you don’t care about anyone in particular.
+ - What do you most value in your friends? Their continued existence.
+ - Terrorism is the tactic of demanding the impossible, and demanding it at gunpoint.
+ - It’s true that obscenity is a matter of taste and in the eye of the beholder.
+ - One of the great questions of philosophy is, do we innately have morality, or do we get it from celestial dictation? A study of the Ten Commandments is a very good way of getting into and resolving that issue.
+ - The secular state is the guarantee of religious pluralism. This apparent paradox, again, is the simplest and most elegant of political truths.
+ - I suppose that one reason I have always detested religion is its sly tendency to insinuate the idea that the universe is designed with ‘you’ in mind or, even worse, that there is a divine plan into which one fits whether one knows it or not. This kind of modesty is too arrogant for me.
+ - Nonintervention does not mean that nothing happens. It means that something else happens.
+ - Religion fosters servility and solipsism.
+ - Beautiful sentences pop into my head. Beautiful sentences that aren’t always absolutely accurate. Then, I have to choose between the beautiful sentence and being absolutely accurate. It can be a difficult choice.
+ - It is not that there are no certainties, it is that it is an absolute certainty that there are no certainties.
+ - One must state it plainly. Religion comes from the period of human pre-history where nobody – not even the mighty Democritus who concluded that all matter was made from atoms – had the smallest idea what was going on.
+ - If I’m in a political argument, I think I can, with reasonable accuracy and without boasting, put the other person’s side of the case at least as well as they could. One has to be able to say that in any well-conducted argument.
+ - To reflect upon the event horizon is a great deal more awe-inspiring than a burning bush or a wooden statue that weeps or pees or bleeds.
+ - The struggle for a free intelligence has always been a struggle between the ironic and the literal mind.
+ - The gods that? we’ve made are exactly the gods you’d expect to be made by a species that’s about half a chromosome away from being chimpanzee.
+ - Teasing is very often a sign of inner misery.
+ - Allow a friend to believe in a bogus prospectus or a false promise and you cease, after a short while, to be a friend at all.
+ - I’m afraid the SS’s relationship with the Catholic Church is something the Church still has to deal with and does not deny.
+ - The taming and domestication of religion is one of the unceasing chores of civilization.
+ - I became a journalist partly so that I wouldn’t ever have to rely on the press for my information.
+ - Its a matter of principle. If Jews born in Brooklyn have a right to a state in Palestine then Palestinians born in Jerusalem have a right to a state in Palestine.
+ - That most risky and volatile of all things a self-pitying majority.
+ - I burned the candle at both ends and it often gave a lovely light.
+ - What a country, and what a culture, when the liberals cry before they are hurt, and the reactionaries pose as brave nonconformists, while the radicals make a fetish of their own jokey irrelevance.
+ - One can’t indefinitely do for somebody what he is reluctant to do for himself.
+ - Will an Iraq war make our Al Qaeda problem worse? Not likely.
+ - Billy Graham is a boring, racist charlatan.
+ - No child’s behind left.
+ - The mildest criticism of religion is also the most radical and the most devastating one. Religion is man-made.
+ - I’d always somehow felt slightly as if I’d been born in the wrong country.
+ - With modern American dentistry it is simply amazing to see what transformation can be wrought in a single day.
+ - The one thing that the racist can never manage is anything like discrimination: he is indiscriminate by definition.
+ - Virtue and merit can become their opposites if they are exacted or compelled...
+ - There is no such thing as closure, and it wouldn’t be worth having if it were available, because all it would mean is that something that was quite an important part of you had gone numb.
+ - I don’t think the war in Afghanistan was ruthlessly enough waged.
+ - I’m a member of no party. I have no ideology. I’m a rationalist. I do what I can in the international struggle between science and reason and the barbarism, superstition and stupidity that’s all around us.
+ - Religion makes kind people say unkind things: “I must prove my faith, so mutilate the genitals of my children.” They wouldn’t do that if God didn’t tell them to do so.
+ - The worst days are when you feel foggy in the head – chemo-brain they call it. It’s awful because you feel boring. As well as bored. And stupid. And resigned.
+ - The creation story is ridiculous garbage. And has given us a completely false picture of our origin as a species and the origins of the cosmos. If you want a good mythical story it would be the life of Socrates.
+ - A good day is one where I can not just read a book, but write a review of it. Maybe today I’ll be able to do that. I get for some reason somewhat stronger when the sun starts to go down. Dusk is a good time for me. I’m crepuscular.
+ - There’s no Hell mentioned in the Old Testament. The punishment of the dead is not specified there. It’s only with gentle Jesus, meek and mild, that the idea of eternal torture for minor transgressions is introduced.
+ - Europeans think Americans are fat, vulgar, greedy, stupid, ambitious and ignorant and so on. And they’ve taken as their own, as their representative American, someone who actually embodies all of those qualities.
+ - Time spent arguing with the faithful is, oddly enough, almost never wasted.
+ - I love it when Muslims go to war with each other, as I do when the Christians do, because it shows there’s no such thing as the Christian world and the Islamic world. That’s all crap.
+ - Judaism is not just one more religion, but in its way the root of religious evil.
+ - Redemption is promised at the low price of surrender of your critical faculties.
+ - The amazing fact is that America is founded on a document. It’s a work in progress. It can be tested by each generation.
+ - What is your idea of earthly happiness? To be vindicated in my own lifetime.
+ - Violent, irrational, intolerant, allied to racism and tribalism and bigotry, invested in ignorance and hostile to free inquiry, contemptuous of women and coercive toward children: organized religion ought to have a great deal on its conscience.
+ - As the cleansing ocean closes over bin Laden’s carcass, may the earth lie lightly on the countless graves of those he sentenced without compunction to be burned alive or dismembered in the street.
+ - The essence of tyranny is not iron law. It is capricious law.
+ - Trust is not the same as faith. A friend is someone you trust. Putting faith in anyone is a mistake.
+ - Thanks to the telescope and the microscope, religion no longer offers an explanation for anything important.
+ - I sympathize afresh with the mighty Voltaire who, when badgered on his deathbed and urged to renounce the devil, murmured that this was no time to be making enemies.
+ - How dismal it is to see present day Americans yearning for the very orthodoxy that their country was founded to escape.
+ - I am a person of faith: I am a person who will believe practically anything on no evidence at all.
+ - I would say that if you don’t believe that Jesus of Nazareth was the Christ and Messiah, and that he rose again from the dead and by his sacrifice our sins are forgiven, you’re really not in any meaningful sense a Christian.
+ - Most of the utopian community ideas actually are religious. They’re based more on the idea of the monastery than the commune.
+ - A gentleman is never rude except on purpose – I can honestly be nasty sober, believe you me.
+ - Religion, it is true, still possesses the huge if cumbersome and unwieldy advantage of having come first.
+ - To remember friendship is to recall those conversations that it seemed a sin to break off.
+ - Well, to the people who pray for me to not only have an agonising death, but then be reborn to have an agonising and horrible eternal life of torture, I say, ‘Well, good on you. See you there.’
+ - Today I want to puke when I hear the word ‘radical’ applied so slothfully and stupidly to Islamist murderers; the most plainly reactionary people in the world.
+ - My favorite time in the cycles of public life is the time when the Pope is dead and they haven’t elected a new one. There’s no one in the world who is infallible for those weeks. And you know, I don’t miss it.
+ - In the grip of a neurological disorder, I am fast losing control of words even as my relationship with the world has been reduced to them.
+ - There are also people who say it’s God’s curse on me that I should have it near my throat because that was the organ of blasphemy which I used for so many years. I’ve used many other organs to blaspheme as well if it comes to that.
+ - Evolution is, as well as smarter than we are, infinitely more callous and cruel, and also capricious.
+ - Who are your favourite heroines in real life? The women of Afghanistan, Iraq, and Iran who risk their lives and their beauty to defy the foulness of theocracy. Ayaan Hirsi Ali and Azar Nafisi as their ideal feminine model.
+ - And the pleasures and rewards of the intellect are inseparable from angst, uncertainty, conflict and even despair.
+ - David Irving is not just a Fascist historian. He is also a great historian of Fascism .
+ - I think I write in a fairly self-confident manner.
+ - In order to be a part of the totalitarian mind-set, it is not necessary to wear a uniform or carry a club or a whip. It is only necessary to wish for your own subjection, and to delight in the subjection of others.
+ - All the excitements of a prohibited book had their usual effect, one of which, as always, is to expose the fact that the censors don’t know what they are talking about.
+ - A point, like a joke, is a terrible thing to miss.
+ - A faction willing to take the risks of making war on the ossified status quo in the Middle East can be described as many things, but not as conservative.
+ - Of course we have free will because we have no choice but to have it.
+ - In my life, the only certainty is to be uncertain. I’m an unbeliever who believes in skepticism. I’m only sure about being unsure.
+ - I’m very happy by myself – I’m lucky in that way – if I’ve got enough to read and something to write about and a bit of alcohol for me to add an edge, not to dull it.
+ - There are two clocks ticking in Iran. One is the democracy movement clock which is ticking now faster than it was but it’s got a lot of catching up to do. And then there’s the clock that’s ticking towards a nuclear weaponry.
+ - Endless praise and adoration, limitless abnegation and abjection of self; a celestial North Korea.
+ - Exercise is a pastime only for those who are already slender and physically fit. It just isn’t so much fun when you have a marked tendency to wheeze and throw up, and a cannonball of a belly sloshing around inside the baggy garments.
+ - I apply the Abraham Lincoln test for moral casuistry: ‘If slavery is not wrong, nothing is wrong.’ Well, then, if waterboarding does not constitute torture, then there is no such thing as torture.
+ - It’s surprising to me how many of my friends send Christmas cards, or holiday cards, including my atheist and secular friends.
+ - One can’t live without fear, it’s a question of what is your attitude towards fear? I’m afraid of a sordid death. I’m afraid that I will die in an ugly or squalid way, and cancer can be very vigorous in that respect.
+ - You notice how liberals keep saying, ‘If only Islam would have a Reformation’ – it can’t have one. It says it can’t. It’s extremely dangerous in that way.
+ - The most educated person in the world now has to admit – I shall not say confess – that he or she knows less and less but at least knows less and less about more and more.
+ - Solidarity is an attitude of resistance, I suppose, or it should be.
+ - What is it you most dislike? Stupidity, especially in its nastiest forms of racism and superstition.
+ - If I convert it’s because it’s better that a believer dies than that an atheist does.
+ - Chemotherapy isn’t good for you. So when you feel bad, as I am feeling now, you think, ‘Well that is a good thing because it’s supposed to be poison. If it’s making the tumor feel this queasy, then I’m OK with it.’
+ - Primate and elephant and even pig societies show considerable evidence of care for others, parent-child bonding, solidarity in the face of danger, and so on.
+ - Religion attacks us in our deepest integrity by saying we wouldn’t be able to make a moral decision without it.
+ - For me, the life of the angler is an almost flawless example of how not to have a good time.
+ - For the people who ostensibly wish me well or are worried about my immortal soul, I say I take it kindly.
+ - Islam is at once the most and the least interesting of the world’s monotheisms. It builds upon its primitive Jewish and Christian predecessors, selecting a chunk here and a shard there, and thus if these fall, it partly falls also.
+ - Pakistan has to export a lot of uneducated people, many of whom have become infected with the most barbaric reactionary ideas.
+ - Anyone who can look me in the eye and say they prefer the story of Moses or Jesus or Mohammed to the life of Socrates is intellectually defective.
+ - The only real radicalism in our time will come as it always has – from people who insist on thinking for themselves and who reject party-mindedness.
+ - Do not imagine that you can escape judgment if you rob people with a false prospectus rather than with a knife.
+ - The quality you most admire in a woman? Courage moral and physical: “anima”-the ability to visualize the mind and need of a man. Also a sense of the absurd.
+ - You can’t have occupation and human rights.
+ - You should be nicer to him,? a schoolmate had once said to me of some awfully ill-favored boy. ‘He has no friends.’ This, I realized with a pang of pity that I can still remember, was only true as long as everybody agreed to it.
+ - The concept of loneliness and exile and self-sufficiency continually bucks me up.
+ - The cause of my life has been to oppose superstition. It’s a battle you can’t hope to win – it’s a battle that’s going to go on forever. It’s part of the human condition.
+ - Reagan is doing to the country what he can no longer do to his wife.
+ - Cluster bombs are perhaps not good in themselves, but when they are dropped on identifiable concentrations of Taliban troops, they do have a heartening effect.
+ - Cheap booze is a false economy.
+ - It’s much worse to see a woman drunk than a man: I don’t know quite why this is true but it just is. Don’t ever be responsible for it.
+ - The moment of near despair is quite often the moment that precedes courage.
+ - In order to terminate a pregnancy, you have to still a heartbeat, switch off a developing brain.
+ - A good liar must have a good memory. Kissinger is a stupendous liar with a remarkable memory.
+ - The fact is: It’s true what they say about the United States. It is a land of opportunity. It is too various to get bored with it.
+ - Perhaps the values of socialists can only be realized by socialists in a nonsocialist society.
+ - Three words for those who want to put the Christ back in Christmas: Jingle Bell Rock.
+ - The only position that leaves me with no cognitive dissonance is atheism.
+ - Religion is not just incongruent with morality, but in essential ways incompatible with it.
+ - I don’t say things like “the grace of God.” All that’s white noise to me, not because I’m an intellectual. For many people, it’s gibberish. Likewise, the idea that the Koran was dictated by an archaic illiterate is a fantasy.
+ - I personally want to “do” death in the active and not the passive, and to be there to look it in the eye and be doing something when it comes for me.
+ - I didn’t think Marilyn Monroe was beautiful. It used to worry me. I thought maybe I’m not put together like the other chaps.
+ - I’m a single-issue voter, to get straight to the point. I’m really only interested in the candidate who’s toughest and least apologetic when it comes to the confrontation with Islamic Jihadism.
+ - Indeed, it’s futile to try and use Holy Scripture to support any political position. I deeply distrust anyone who does. Just look at what an Islamic Republic is like.
+ - I’m not afraid of being dead, that’s to say there’s nothing to be afraid of. I won’t know I’m dead, would be my strong conviction. And if I find that I’m alive in any way at all, that’ll be a pleasant surprise. I quite like surprises.
+ - To what faults do you feel most indulgent? To the ones that arise from urgent material needs.
+ - I think the socialist movement, by removing many, many people from grinding stagnation and poverty and overwork, does enable people not just to lead better lives but to be better people.
+ - I could be spending time looking through a telescope or into a microscope and finding out the most extraordinary, wonderful things, but people say faith can move mountains. Faith in what, by the way? You haven’t said.
+ - If you look at any Muslim society and you make a scale of how developed they are, and how successful the economy is, it’s a straight line. It depends on how much they emancipate their women.
+ - Henry Kissinger should have the door shut in his face by every decent person and should be shamed, ostracized and excluded.
+ - I think that there is no supernatural dimension. The natural world is quite wonderful enough. The more we know about it, the much more wonderful it is than any supernatural proposition.
+ - If waterboarding does not constitute torture, then there is no such thing as torture.
+ - This walking business is overrated: I mastered the art of doing it when I was quite small, and in any case, what are taxis for?
+ - The human wish to credit good things as miraculous and to charge bad things to another account is apparently universal.
+ - The noble title of “dissident” must be earned rather than claimed; it connotes sacrifice and risk rather than mere disagreement.
+ - Those who want to be offended don’t have the right to try and close down the newspaper that offends them.
+ - As well as being a vulgar producer of her own spectacle, and an embarrassment to her family, Cindy Sheehan is at best a shifty fantasist.
+ - I try to deny myself any illusions or delusions, and I think that this perhaps entitles me to try and deny the same to others, at least as long as they refuse to keep their fantasies to themselves.
+ - There is a limit to the success of conservative populism and the exploitation of “little guy” or “silent majority” rhetoric, and it is very often reached because of the emaciated, corrupted personalities of the demagogues themselves.
+ - Of course, I do everything for money.
+ - It’s often a bad sign when people defend themselves against charges which haven’t been made.
+ - Atheists have always argued that this world is all that we have, and that our duty is to one another to make the very most and best of it.
+ - When I go to the clinic next and sit with a tube in my arm and watch the poison go in, I’m in an attitude of abject passivity. It doesn’t feel like fighting at all; it just feels like submitting.
+ - The totalitarian, to me, is the enemy – the one that’s absolute, the one that wants control over the inside of your head, not just your actions and your taxes.
+ - I learned that to be amusing was not to be frivolous and that language – always the language – was the magic key as much to prose as to poetry.
+ - A rule of thumb with humor; if you worry that you might be going too far, you have already not gone far enough. If everybody laughs, you have failed.
+ - If the Qur’an was the word of God, it had been dictated on a very bad day.
+ - Intellectuals never sound more foolish than when posing as the last civilised man.
+ - It is exactly the fear of revenge that motivates the deepest crimes, from the killing of the enemy’s children lest they grow up to play their own part, to the erasure of the enemy’s graveyards and holy places so that his hated name can be forgotten.
+ - The brilliant Schiller was wrong in his Joan of Arc when he said against stupidity the gods themselves contend in vain. It is actually by means of the gods that we make our stupidity and gullibility into something ineffable.
+ - It is only those who hope to transform human beings who end up by burning them, like the waste product of a failed experiment.
+ - Thus, though I dislike to differ with such a great man, Voltaire was simply ludicrous when he said that if god did not exist it would be necessary to invent him. The human invention of god is the problem to begin with.
+ - The governor of Texas, who, when asked if the Bible should also be taught in Spanish, replied that ’if English was good enough for Jesus, then it’s good enough for me.
+ - In a Pyongyang restaurant, don’t ever ask for a doggie bag.
+ - I think the materialist conception of history is valid.
+ - Flaubert was right when he said that our use of language is like a cracked kettle on which we bang out tunes for bears to dance to, while all the time we need to move the very stars to pity.
+ - To be in opposition is not to be a nihilist.
+ - Never ask while you are doing it if what you are doing is fun. Don’t introduce even your most reliably witty acquaintance as someone who will set the table on a roar.
+ - When you fall ill, people send you CDs. Very often, in my experience, these are by Leonard Cohen.
+ - There are people who cannot forget, as neither do I, the lesson of the years of the Indochina War. Which was, first, that the state is capable of being a murderer. A mass murderer, and a conspirator and a liar.
+ - Not since North Korean media declared Kim Jong-il to be the reincarnation of Kim Il Sung has there been such a blatant attempt to create a necrocracy, or perhaps mausolocracy, in which a living claimant assumes the fleshly mantle of the departed.
+ - The politicized sponsors of this pseudoscientific nonsense should be ashamed to live, let alone die. If you want to take part in the “war” against cancer, and other terrible maladies, too, then join the battle against their lethal stupidity.
+ - At Oxford one was positively encouraged to take wine during tutorials. The tongue must be untied.
+ - I have a strong constitution which has served me quite well, though if I hadn’t had such a strong one I might have led a more healthy life perhaps.
+ - I’m not particularly a feminist, but if you get women off the animal cycle of reproduction and give them some say in how many children they’ll have, immediately the floor will rise.
+ - I have been taunting the Reaper into taking a free scythe in my direction and have now succumbed to something so predictable and banal that it bores even me.
+ - Literature, not scripture, sustains the mind and – since there is no other metaphor – also the soul.
+ - In our time, the symbol of state intrusion into the private life is the mandatory urine test.
+ - The stupider the regime the more intelligent the people get and the more humorous.
+ - Part of the function of memory is to forget; the omni-retentive mind will break down and produce at best an idiot savant who can recite a telephone book, and at worst a person to whom every grudge and slight is as yesterday’s.
+ - Terrorism works better as a tactic for dictatorships, or for would-be dictators, than for revolutionaries .
+ - You can only have one aim per debate.
+ - It’s probably a merciful thing that pain is impossible to describe from memory.
+ - I have been called arrogant myself in my time, and hope to earn the title again, but to claim that I am privy to the secrets of the universe and its creator – that’s beyond my conceit.
+ - It’s considered perfectly normal in this society to approach dying people who you don’t know but who are unbelievers and say, ‘Now are you gonna change your mind?’ That is considered almost a polite question.
+ - If you think that the intifada in France is about housing, go and try covering the story wearing a yarmulka .
+ - What better way for a ruling class to claim and hold power than to pose as the defenders of the nation.
+ - When Maimonides says that the Messiah will come but that ‘he may tarry,’ we see the origin of every Jewish shrug from Spinoza to Woody Allen.
+ - My children, to the extent that they have found religion, have found it from me, in that I insist on at least a modicum of religious education for them.
+ - I leave it to the faithful to burn each other’s churches and mosques and synagogues, which they can be always relied upon to do.
+ - The rich world likes and wishes to believe that someone, somewhere, is doing something for the Third World. For this reason, it does not inquire too closely into the motives or practices of anyone who fulfills, however vicariously, this mandate.
+ - I don’t think it’s possible to have a sense of tragedy without having a sense of humor.
+ - Jesus makes large claims for his heavenly father but never mentions that his mother is or was a virgin, and is repeatedly very rude and coarse to her when she makes an appearance.
+ - A celebrity is well known for being well known. I’m relatively well known – but for what I’ve written and said, or so I fondly imagine.
+ - It’s a big mistake to think that your own cause, or your own country, or your own side has God in its corner. For one thing, it commits the sin of pride.
+ - The Bible may, indeed does, contain a warrant for trafficking in humans, for ethnic cleansing, for slavery, for bride-price, and for indiscriminate massacre, but we are not bound by any of it because it was put together by crude, uncultured human mammals.
+ - For most of my life I let women do the driving and was happy to let them.
+ - The press is still investing itself, it seems to me, in a sort of cynicism. It comes out better for them if they can predict hard times, bogging down, sniping, attrition.
+ - Cancer victimhood contains a permanent temptation to be self-centred and even solipsistic.
+ - I’m not very impressed by people who yell “traitor” and “communist” and other less printable things. I don’t like it.
+ - It especially annoys me when racists are accused of ‘discrimination.’ The ability to discriminate is a precious faculty; by judging all members on one ‘race’ to be the same, the racist precisely shows himself incapable of discrimination.
+ - Only a complete moral idiot can believe for an instant that we are fighting against the wretched of the earth. We are fighting, as I said before, against the scum of the earth.
+ - All the time, I’ve felt that life is a wager and that I probably was getting more out of leading a bohemian existence as a writer than I would have if I didn’t.
+ - It’s normally agreed that the question ‘How are you?’ doesn’t put you on your oath to give a full or honest answer.
+ - If people I’ve never met or don’t know say that what I’ve written or done or said means anything to them, then I’m happy to take it at face value, for once. It cheers me up.
+ - George Bush made a mistake when he referred to the Saddam Hussein regime as ‘evil.’ Every liberal and leftist knows how to titter at such black-and-white moral absolutism.
+ - Ordinary morality is innate in my view.
+ - If you say “the economy,” you show you’re stupid. There’s no such thing as the economy. There is not a unity between the forces of production and the relations of production.
+ - Urging humans to be superhumans, on pain of death and torture, is the urging of terrible self-abasement at their repeated and inevitable failure to keep the rules.
+ - The suicide-bombing community is not absolutely 100 percent religious, but it is pretty nearly 100 percent religious.
+ - The secular argument, or the liberal argument, is to as much as possible remove taboos so things do not become unmentionable; to let some air into the discussion.
+ - In particular, it is absurd to hope to banish envy of other people’s possessions or fortunes, if only because the spirit of envy can lead to emulation and ambition and have positive consequences.
+ - The people who tend to raise antiwar slogans will do so generally when it’s American or British interests involved.
+ - Knowing that we are primates, I think, is a fascinating discovery, and a very interesting and rather cheering one.
+ - Authors who moan with praise for their editors always seem to reek slightly of the Stockholm syndrome.
+ - If asked my opinion about virginity, I would say, “I’m opposed to it.” I don’t think it deserves to be celebrated, at any rate. Or at least, if I’m not opposed, I’m very highly skeptical and critical of it.
+ - Everything about Christianity is contained in the pathetic image of ’the flock.
+ - And yet, I wake up every day to a sensation of pervading disgust and annoyance. I probably ought to carry around some kind of thermometer or other instrument, to keep checking that I am not falling prey to premature curmudgeonhood.
+ - I vote and I do jury duty.
+ - I’m terrified of losing my voice.
+ - There is a division within the neo-conservative movement, which is, by the way, one of the tests of its authenticity as a tendency. I would say I was a supporter of Paul Wolfowitz.
+ - I joined a small but growing post-Trotskyite Luxembourgist sect.
+ - Even with all the advantages of retrospect, and a lot of witnesses dead and gone, you can’t make your life look as if you intended it or you were consistent. All you can show is how you dealt with various hands.
+ - To be in opposition is not to be a nihilist. And there is no decent or charted way of making a living at it. It is something you are, and not something you do.
+ - Not many people come through esophageal cancer and live to talk about it, or not for long.
+ - We live only a few conscious decades, and we fret ourselves enough for several lifetimes.
+ - My father had died, and very swiftly, too, of cancer of the esophagus. He was 79. I am 61. In whatever kind of a ‘race’ life may be, I have very abruptly become a finalist.
+ - It’s considered acceptable in our culture to approach perfect strangers, as often or not who may be in extremis, and evangelise. I don’t see why that’s considered a normal thing.
+ - What word or expression do you most overuse? Re-reading a collection of my stuff, I was rather startled to find that it was ’perhaps.
+ - We have lived in a world where the discoveries of physics and genetics are far more awe-inspiring, as well as infinitely more liberating, than the claims of any religion.
+ - People know when they are being lied to, they know when their rulers are absurd, they know they do not love their chains.
+ - A bit of a stomach give a chap a position in society.
+ - To be against rationalization is not the same as to be opposed to reasoning.
+ - Religion has been an enormous multiplier of tribal suspicion and hatred.
+ - I don’t think Romney is wacky at all, but religion makes intelligent people say and do wacky things, believe and affirm crazy things. Left on his own, Romney would never have said something like the Garden Of Eden was in Missouri, and will be again.
+ - Religion makes intelligent people say and do wacky things, believe and affirm crazy things.
+ - The pornography of tough-mindedness, covert action, and preparedness for “peace through strength” has had a predictably hypnotic effect on the legislative branch, turning it from legal watchdog to lapdog.
+ - I don’t think there’s any need to have essays advocating selfishness among human beings; I don’t know what your impression has been, but some things require no further reinforcement.
+ - The term ‘the American Left’ is as near to being meaningless or nonsensical as any term could really be in politics. It isn’t really a force in politics anymore. And it would do well to ask itself why that is.
+ - How is the United States at once the most conservative and commercial AND the most revolutionary society on Earth?
+ - In modern Greek history, there is a close relationship between national humiliation and political radicalization.
+ - It’s impossible, I think, however much I’d become disillusioned politically or evolve into a post-political person, I don’t think I’d ever change my view that socialism is the best political moment humans have ever come up with.
+ - One of the many problems with the American left has been its image as something rather too solemn, mirthless, herbivorous, dull, monochrome, righteous, and boring.
+ - Well, I’ll put it this way: you can certainly say belief in God makes people behave worse. That can be proved beyond a doubt.
+ - I used to wish there was a useful term for those of us who thought American power should be used to remove psychopathic dictators.
+ - I still make sure to go, at least once every year, to a country where things cannot be taken for granted, and where there is either too much law and order or too little.
+ - The people who must never have power are the humorless. To impossible certainties of rectitude they ally tedium and uniformity.
+ - A sure sign of ineptitude and malice is manifested when one’s attacker is willing to cover himself with mud in order to try and make some of it adhere to his target.
+ - The easiest way to establish a dictatorship is to claim you are God’s representative on earth.
+ - I have more than once in my time woken up feeling like death.
+ - I have nowhere claimed nor even implied that unbelief is a guarantee of good conduct or even an indicator of it.
+ - Here we are then, I was thinking, in a war to the finish between everything I love and everything I hate. Fine. We will win and they will lose. A pity that we let them pick the time and place of the challenge, but we can and we will make up for that.
+ - An individual deficient in the sense of humor represents more of a challenge to our idea of the human than a person of subnormal intelligence.
+ - The reading public isn’t born that doesn’t think foreigners are either funny or faintly sinister.
+ - Hardest of all, as one becomes older, is to accept that sapient remarks can be drawn from the most unwelcome or seemingly improbable sources, and that the apparently more trustworthy sources can lead one astray.
+ - If you think all this is going on, all these gigantic fields of gravity and light with you in mind, then you really do have a self-centredness problem.
+ - Ronald Reagan used to alarm his Soviet counterparts by saying that surely they’d both unite against an invasion from Mars.
+ - We know that our life is essentially tragic. I’m absolutely not for handing over that very important department of our psyche to those who say, “Why didn’t you say so before? God has a plan for you in mind.”
+ - Millions of people die every day. Everyone’s got to go sometime.
+ - I do not believe any of the statistical claims that are made about public opinion. I don’t see why anybody does.
+ - My dear wife has, I would say, probably never opened a religious book, and seems to be one of those people to whom the whole idea is utterly remote and absurd.
+ - I felt Clinton represented the worst of the 1960s.
+ - Only a humorless tyrant could want a perpetual chanting of praises that, one has no choice but to assume, would be the innate virtues and splendors furnished him by his creator, infinite regression, drowned in praise!
+ - Human society is inconceivable unless words are to some extent bonds.
+ - If I was to interrupt this article every few sentences, asking you whether or not I was making a good impression on you, I hope and believe that you would think I was a servile jerk. Yet this is what our politicians are doing in every speech.
+ - The true essence of a dictatorship is in fact not its regularity but its unpredictability and caprice; those who live under it must never be able to relax, must never be quite sure if they have followed the rules correctly or not.
+ - History is a tragegy, not a morality tale.
+ - We have preachers and savants who dilate endlessly on the sanctity of family and childhood but who tolerate a system in which a casual observer can correlate a child’s social origin with its physical well-being.
+ - No one has the right to tell me what to do because he has a divine warrant.
+ - The violence in the Bible is appalling.
+ - Yes, I, well, when I write, as often as I can, I try to write as if I’m talking to people. It doesn’t always work, and one shouldn’t always try it, but I try and write as if I am talking, and trying to engage the reader in conversation.
+ - High moral character is not a precondition for great moral accomplishments.
+ - I’ve been to Uganda and to North Korea and to Eritrea, countless horror spots around the world.
+ - No school of philosophy has ever solved this question of whether being determines consciousness or the other way around. It may be a false antithesis.
+ - So there’s nothing more vulgar than the sound of someone saying, God Bless America, someone who doesn’t really believe it, but he thinks it will make him look good to other people. I think it’s the most nauseating spectacle.
+ - Only the aspirants for president are fool enough to believe what they read in the newspapers.
+ - I don’t think consensus-building politics is what I’m meant to be doing.
+ - The faithful believe that certain truths have been ‘revealed.’ The skeptics and secularists believe that truth is only to be sought by free inquiry and trial and error. Only one of those positions is dogmatic.
+ - I have often thought that when I do die it will be of sheer boredom...
+ - Friends call me Hitch. Maybe it can be turned into a 900-phone number. People would pay to talk to me.
+ - We have millions and millions of North Korean children totally stunted in mind and body and will have to be dealt with at some point, who have been raised to believe that they live in a regime that is run by a god.
+ - God did not create man in his own image. Evidently, it was quite the other way about, which is the painless explanation for the profusion of gods and religions, and the fratricide both between and among faiths, that we see all about us and that has so retarded the development of civilization.
+ - I became a journalist because one didn’t have to specialise.
+ - Unlike other countries, it was founded on written proclamations. America is an ideal as well as a republic. Its documents are open to revisions. They’re works in progress. There’s an invitation to participate.
+ - There either is a god or there is not; there is a ‘design’ or not.
+ - In the brute physical world, and the one encompassed by medicine, there are all too many things that could kill you, don’t kill you, and then leave you considerably weaker.
+ - I have quite a decent constitution in spite of all my abuse of it and my advanced years. I’m still quite robust.
+ - No moral person would do such a thing unless they thought it was divinely warranted.
+ - I don’t have any terrific self-esteem issues but I do sometimes realise I’ve been too lucky and that I’m over-praised. It makes me nervous. I have this sense of being overrated.
+ - The Koran shows every sign of being thrown together by human beings, as do all the other holy books.
+ - The diet book is one of those fool-and-money separation devices that seems, like roulette or slot machines, never to lose its power.
+ - I could not possibly improve on the sentiment, but I don’t think it ought to depend on the current austerities. Isn’t Christmas a moral and aesthetic nightmare whether or not the days are prosperous?
+ - There is no reason at all why there aren’t enough people to guard New Orleans and to help stabilise Baghdad.
+ - People until I was 60 would always say they thought I looked younger, which I think, without flattering myself, I did, but I think I certainly have, as George Orwell says people do after a certain age, the face they deserve.
+ - It ought to be an offense to be excruciating and unfunny in circumstances where your audience is almost morally obliged to enthuse.
+ - You can be a Polish American, or an Arab American, or a Greek American but you can’t be English American. Why not?
+ - I don’t envy or much respect people who are completely politicised.
+ - I think the cultural task is to separate our impulses and needs and desires from the supernatural and, above all, from the superstitious.
+ - Nothing could make me forget what the Reagan years had actually been like.
+ - I must have been one of the least surprised people on earth on September 11. I felt very braced for that. I knew something like that was going to come.
+ - Your least favorite virtue, or nominee for the most overrated one? Faith. Closely followed – in view of the overall shortage of time – by patience.
+ - It must be obvious to anyone who can think at all that the charges against the Hussein regime are, as concerns arsenals of genocidal weaponry, true.
+ - I make preparations both to live and to die every day, but with the emphasis on not dying, and on acting as if I was going to carry on living.
+ - I’m here as a product of process of evolution, which doesn’t make very many exceptions. And which rates life relatively cheaply.
+ - You don’t say ‘they all do it’ unless you know you’ve been doing it too.
+ - The thing about religion is that it’s the first and the worst. The worst because it’s the first.
+ - Ronald Reagan used to alarm other constituencies by speaking freely about the End Times foreshadowed in the Bible.
+ - One of the many dreadful aspects of the Kennedy ‘legacy’ is the now-unbreakable grip of celebrity politics, image-doctoring, stage management, and “torch-passing” rhetoric in general.
+ - I have tried for much of my life to write as if I was composing my sentences to be read posthumously.
+ - I mean, what would I be doing if I couldn’t write? But that fortunately hasn’t proved to be the case and I can read any day. I still read a lot, and I can write any day, but much more slowly and fewer words.
+ - Talking, it seemed to me, was the point of adult existence.
+ - I retain what’s interesting to me, but I don’t have a lot of strategic depth.
+ - I don’t even like showing my stuff to publishers and editors much.
+ - The role of dissident is not, and should not be, a claim of membership in a communion of saints. In other words, the more fallible the mammal, the truer the example.
+ - As is so often the case with pieces that appear in the Onion, I honestly could not decide whether this was a clever hoax or not – the arguments were almost exactly as stupid as the real thing.
+ - Those who had alleged that a million civilians were dying from sanctions were willing, nay eager, to keep those same murderous sanctions if it meant preserving Saddam!
+ - Principles have a way of enduring, as do the few irreducible individuals who maintain allegiance to them.
+ - I’ve proved to be as difficult to convert as I am to hypnotize.
+ - Unless a reincarnationist is willing to say there was a ‘first generation’ of souls created with the first humans, he is exposed to absurdity by the recency of human life on the planet.
+ - I was taught very early on that the state can be, and is, a liar and a murderer.
+ - If you’ve led a rather bohemian and rackety life, as I have, it’s precisely the cancer that you’d expect to get. That’s a bit of a yawn.
+ - The penalty for getting mugged in an American city and losing your ID is that you can’t fly home.
+ - It’s no fun to appreciate to the full the truth of the materialist proposition that I don’t have a body, I am a body.
+ - So far, I have decided to take whatever my disease can throw at me, and to stay combative even while taking the measure of my inevitable decline. I repeat, this is no more than what a healthy person has to do in slower motion.
+ - I’d like to prove to other people that it’s not the end of everything to be diagnosed with cancer.
+ - Your ideal authors ought to pull you from the foundering of your previous existence, not smilingly guide you into a friendly and peaceable harbor.
+ - Where would you like to live? In a state of conflict or a conflicted state?
+ - The great thing about the United States and the historically magnetic effect it has had on a lot of people like me is its generosity, to put it simply.
+ - A lot of people, because of my contempt for the false consolations of religion, think of me as a symbolic public opponent of that in extremis. And sometimes that makes me feel a bit alarmed, to be the repository of other people’s hope.
+ - I’m not that keen on the idea of being unconscious.
+ - I don’t think souls or bodies can be changed by incantation. Or anything else by the way.
+ - We become accomplices in evil every time we seek to soothe the unslakable appetites of the crime family that sits in Pyongyang.
+ - Only the force of American arms, or the extremely credible threat of that force, can bring a fresh face to power.
+ - It’s a better tradition for people who think for themselves and who don’t pray in aid of any supernatural authority. That’s what you should be spending your life is in spreading and deepening that tradition.
+ - Those of us who are most genuinely repelled by war and violence are also those who are most likely to decide that some things, after all, are worth fighting for.
+ - As I’ve said before, you can be an atheist and anything you like.
+ - One of the most repellent spectacles at election times is the pretense of piety on the part of people running for office.
+ - My political life has been informed by the view that if there was any truth to religion there wouldn’t really be any need for politics.
+ - The person who is certain, and who claims divine warrant for his certainty, belongs now to the infancy of our species.
+ - Did we not aid the grisly Taliban to achieve and hold power? Yes indeed ‘we’ did. Well, does that not double or triple our responsibility to remove them from power?
+ - Religion is compulsory in English schools, you know.
+
+403 quotes

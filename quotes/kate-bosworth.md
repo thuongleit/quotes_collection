@@ -1,0 +1,23 @@
+ - I keep everything that’s private private.
+ - I don’t want to broadcast my personal life because I feel it’s off-putting.
+ - The artist-muse relationship is romantic and passionate, and complex, and I would imagine that would be a hard relationship to have if you’re not with the person. It requires so much of each other, you have to be in love with each other.
+ - I prefer to just jump into something instead of put it on the back burner, and I suppose that’s how I deal with most challenging things. I’d rather just attack it head-on.
+ - I love indoor cycling – it has made a really big difference. I feel a lot skinnier. It’s kind of the ultimate cardio.
+ - When I watch people like Cate Blanchett act, I don’t know what is going on in her life, you just get lost in her performance and that’s what I hope to do as well.
+ - It’s so different when you change your hair color, you’re treated so differently. It’s a very funny experience. It’s fun, I love changing up my hair.
+ - Look, some people talk about their personal lives a lot; I try not to, unless it’s more of a generality.
+ - I was a real loner in high school, even though people assume I was the head cheerleader.
+ - I grew up in a small town where everyone wanted to be the same or look the same and was afraid to be different.
+ - I just think that people take me a little more seriously as a brunette. I don’t know if that’s just because of a societal preconceived notion that all blondes are stupid, but it’s a different kind of attitude.
+ - I hold theatre acting in such high esteem that it scares me.
+ - I almost envy people who say whatever they want.
+ - I wasn’t a social butterfly at all.
+ - Acting is a life experience. I’m always learning things when I’m making a movie. So the fame part of it is fine when you consider what you get out of this job.
+ - You promote your films; it’s part of your job. You do the magazine covers and stuff, and then I try to live a really normal life. I definitely don’t try to make it into any more craziness than it is.
+ - I can’t deal with someone flashy. That’s so not me.
+ - At the time, when you’re being dissected and judged it’s pretty brutal, but in hindsight it’s great and – it sounds cliched – you do come out the other side better and stronger.
+ - You never grow out of high school sadly.
+ - It’s sort of interesting how, when you get older, things that were once so important sort of fall away.
+ - That’s the funniest thing about portraying certain things on screen, sitting next to your parents and they get to see this glimpse of me kissing another guy.
+
+21 quotes

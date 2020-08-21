@@ -1,0 +1,59 @@
+ - Nature is not a place to visit. It is home.
+ - Find your place on the planet. Dig in, and take responsibility from there.
+ - Walking is the great adventure, the first meditation, a practice of heartiness and soul primary to humankind. Walking is the exact balance beween spirit and humility.
+ - Nature is orderly. That which appears to be chaotic in nature is only a more complex kind of order.
+ - Practically speaking, a life that is vowed to simplicity, appropriate boldness, good humor, gratitude, unstinting work and play, and lots of walking, brings us close to the actually existing world and its wholeness.
+ - Walking is the exact balance between spirit and humility.
+ - The size of the place that one becomes a member of is limited only by the size of one’s heart.
+ - Wildness It is perennially within us, dormant as a hard-shelled seed, awaiting the fire or flood that awakes it again.
+ - O, ah! The awareness of emptiness brings forth a heart of compassion!
+ - Three-fourths of philosophy and literature is the talk of people trying to convince themselves that they really like the cage they were tricked into entering.
+ - I never find words right away. Poems for me always begin with images and rhythms, shapes, feelings, forms, dances in the back of my mind.
+ - After weeks of watching the roof leak I fixed it tonight by moving a single board.
+ - Range after range of mountains. Year after year after year. I am still in love.
+ - The lessons we learn from the wild become the etiquette of freedom.
+ - To work on behalf of the wild is to restore culture.
+ - Read carefully, then don’t read; work hard, then forget about it; know your tradition, then liberate yourself from it; learn language, then free yourself from it. Finally, know at least one form of magic.
+ - The best thing you can do for the planet is to stay home.
+ - You don’t want to be victimized by your lesser talents.
+ - Poetry a riprap on the slick rock of metaphysics.
+ - Grandfather Space. The Mind is his Wife.
+ - Burning the small dead branches broke from beneath thick spreading whitebark pine. A hundred summers snowmelt rock and air hiss in a twisted bough.
+ - There are those who love to get dirty and fix things. They drink coffee at dawn, beer after work. And those who stay clean, just appreciate things. At breakfast they have milk and juice at night. There are those who do both, they drink tea.
+ - True affluence is not needing anything.
+ - Gratitude to the Great Sky who holds billions of stars – and goes yet beyond that – beyond all powers, and thoughts and yet is within us – Grandfather Space. The Mind is his Wife.
+ - In Western Civilization, our elders are books.
+ - When the mind is exhausted of images, it invents its own.
+ - Revolutionary consciousness is to be found among the most ruthlessly exploited masses: animals, trees, water, air, grasses.
+ - Streams and mountains never stay the same.
+ - Why should the peculiarities of human consciousness be the narrow standard by which other creatures are judged?
+ - All this new stuff goes on top turn it over, turn it over wait and water down from the dark bottom turn it inside out let it spread through Sift down even. Watch it sprout. A mind like compost.
+ - Our relation to the natural world takes place in a place.
+ - You should really know what the complete natural world of your region is and know what all its interactions are and how you are interacting with it yourself. This is just part of the work of becoming who you are, where you are.
+ - In the 40,000 year time scale we’re all the same people. We’re all equally primitive, give or take two or three thousand years here or a hundred years there.
+ - Today we are aware as never before of the plurality of human life-styles and possibilities, while at the same time being tied, like in an old silent movie, to a runaway locomotive rushing headlong toward a very singular catastrophe.
+ - A great poet does not express his or her self; he expresses all of our selves.
+ - You run into people who want to write poetry who don’t want to read anything in the tradition. That’s like wanting to be a builder but not finding out what different kinds of wood you use.
+ - Forests in the tropics are cut to make pasture to raise beef for the American market. Our distance from the source of our food enables us to be superficially more comfortable, and distinctly more ignorant.
+ - The other side of the “sacred” is the sight of your beloved in the underworld, dripping with maggots.
+ - Will be but corpses dressed in frocks, who cannot speak to birds or rocks.
+ - I try to hold both history and wilderness in mind, that my poems may the true measure of things and stand against the unbalance and ignorance of our times.
+ - I recalled when I worked in the woods and the bars of Madras, Oregon. That short-haired joy and roughness America your stupidity. I could almost love you again.
+ - I don’t know of any other city where you can walk through so many culturally diverse neighborhoods, and you’re never out of sight of the wild hills. Nature is very close here.
+ - All that we did was human, stupid, easily forgiven, Not quite right.
+ - Clouds sink down the hills Coffee is hot again. The dog Turns and turns about, stops and sleeps.
+ - All those years and their moments – Crackling bacon, slamming car doors, Poems tried out on friends, Will be one more archive, One more shaky text.
+ - What is any religion? A little ritual, a little superstition, and some magic. It’s not a strictly spiritual affair; it has psychological roles to fulfill. You might not want it to be a religion based on your own experience but that’s like wanting to clean up your dreams.
+ - Zen aims at freedom but its practice is disciplined.
+ - Knowing where and who are intimately linked.
+ - I thought, that day I started, I sure would hate to do this all my life, And dammit, that’s just what I’ve gone and done.
+ - With no surroundings there can be no path, and with no path one cannot become free.
+ - Thought is just an apprehension of touch.
+ - Sometime in the last ten years the best brains of the Occident discovered to their amazement that we live in an Environment. This discovery has been forced on us by the realization that we are approaching the limits of something.
+ - Being the Stream Meditation is not just a rest or retreat from the turmoil of the stream or the impurity of the world. It is a way of being the stream, so that one can be at home in both the white water and the eddies. Meditation may take one out of the world, but it also puts one totally into it.
+ - My Grandmother standing wordless fifteen minutes Between rows of loganberries, clippers poised in her hand.
+ - Place and the scale of space must be measured against our bodies and their capabilities.
+ - A reading is a kind of communion. The poet articulates the semi-known for the tribe.
+ - Wildness is not just the “preservation of the world,” it is the world.
+
+57 quotes

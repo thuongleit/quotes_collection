@@ -1,0 +1,29 @@
+ - It’s time to make love, douse the glim; The fireflies twinkle and dim; The stars lean together Like birds of a feather, And the loin lies down with the limb.
+ - Death is never an ending, death is a change; Death is beautiful, for death is strange; Death is one dream out of another flowing.
+ - My heart has become as hard as a city street, the horses trample upon it, it sings like iron, all day long and all night long they beat, they ring like the hooves of time.
+ - The wandering one, the inquisitive dreamer of dreams, the eternal asker of answers, stands in the street, and lifts his palms for the first cold ghost of rain.
+ - Forward into the untrodden! Courage, old man, and hold on to your umbrella!
+ - Music I heard with you was more than music, and bread I broke with you was more than bread. Now that I am without you, all is desolate; all that was once so beautiful is dead.
+ - We were all born of flesh, in a flare of pain. We do not remember the red roots whence we rose, but we know that we rose and walked, that after a while we shall lie down again.
+ - All that is beautiful, and all that looks on beauty with eyes filled with fire, like a lover’s eyes: all of this is yours; you gave it to me, sunlight! all these stars are yours; you gave them to me, skies!
+ - The days, the nights, flow one by one above us. The hours go silently over our lifted faces. We are like dreamers who walk beneath a sea. Beneath high walls we flow in the sun together. We sleep, we wake, we laugh, we pursue, we flee.
+ - O sweet clean earth, from whom the green blade cometh! When we are dead, my best beloved and I, close well above us, that we may rest forever, sending up grass and blossoms to the sky.
+ - For in this walk, this voyage, it is yourself, the profound history of your ‘self,’ that now as always you encounter.
+ - Death is one dream out of another flowing.
+ - Death is a meeting place of sea and sea.
+ - The hiss was now becoming a roar – the whole world was a vast moving screen of snow – but even now it said peace, it said remoteness, it said cold, it said sleep.
+ - Youth yearns to youth, full blood loves full blood only.
+ - We are the ghosts of the singing furies .
+ - He whose first emotion, on the view of an excellent work, is to undervalue or depreciate it, will never have one of his own to show.
+ - Separate we come, and separate we go, And this be it known, is all that we know.
+ - I love you, what star do you live on?
+ - No god save self, that is the way to live...
+ - All lovely things will have an ending, all lovely things will fade and die; and youth, that’s now so bravely spending, Will beg a penny by and by.
+ - The wind shrieks, the wind grieves; It dashes the leaves on walls, it whirls then again; And the enormous sleeper vaguely and stupidly dreams And desires to stir, to resist a ghost of pain.
+ - Life is the thing – the song of life – The eager plow, the thirsty knife!
+ - The truth – a hideous spectacle!
+ - Poetry will absorb and transmute, as it always has done, and glorify, all that we can know.
+ - The one you love leans forward, smiles, deceives you, Opens a door through which you see dark dreams.
+ - One is least sure of one’s self, sometimes, when one is most positive.
+
+27 quotes

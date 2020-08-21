@@ -1,0 +1,27 @@
+ - No God, no peace; know God, know peace.
+ - A lie may take care of the present, but it has no future.
+ - Kindness is like snow-it beautifies everything it covers.
+ - All the flowers of all the tomorrows are in the seed of today.
+ - The trouble with being a good sport is that you have to lose to prove it.
+ - God’s answers are wiser than our prayers.
+ - Prayer is not a device for getting our wills done through heaven, but a desire that God’s will may be done on earth through us.
+ - Money talks. If it’s the dollar, it’s small talk.
+ - Opportunity is often dressed up in work clothes.
+ - Faith is the profound knowing that comes before reality confirms it.
+ - A woman likes a strong, silent man because she thinks he is listening.
+ - Our children are the only possessions we can take to heaven.
+ - If you listen too much to advice, you may wind up making other people’s mistakes.
+ - When Christ is the center of your focus, all else will come into proper perspective.
+ - Happiness is when you see your husband’s old girlfriend and she’s fatter than you.
+ - When a man marries a woman, they become one-the trouble starts when they try to decide which one.
+ - Advice is like snow – the softer it falls, the deeper it goes.
+ - It takes a certain kind of man to be in politics – a small one.
+ - Gossip has been described as halitosis of the mind.
+ - Many Christians suffer from loneliness because they are sitting instead of serving.
+ - Adversity is only sand on your track to prevent you from skidding.
+ - A fellow with the smallest mind is the one who is usually most willing to give someone a piece of it.
+ - It seems that more people today have a greater desire to live long than they do to live well.
+ - Advice is like cooking-you should try it before you feed it to others.
+ - The trouble with good advice is that it usually interferes with our plans.
+
+25 quotes

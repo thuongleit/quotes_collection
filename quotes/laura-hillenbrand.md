@@ -1,0 +1,43 @@
+ - A lifetime of glory is worth a moment of pain. Louie thought: Let go.
+ - Without dignity, identity is erased.
+ - Dignity is as essential to human life as water, food, and oxygen. The stubborn retention of it, even in the face of extreme physical hardship, can hold a man’s soul in his body long past the point at which the body should have surrendered it.
+ - Dignity is as essential to human life as water, food, and oxygen.
+ - The paradox of vengefulness is that it makes men dependent upon those who have harmed them, believing that their release from pain will come only when their tormentors suffer.
+ - Without dignity, identity is erased. In its absence, men are defined not by themselves, but by their captors and the circumstances in which they are forced to live.
+ - For ‘Seabiscuit,’ I interviewed 100 people I never met.
+ - This self-respect and sense of self-worth, the innermost armament of the soul, lies at the heart of humanness; to be deprived of it is to be dehumanized, to be cleaved from, and cast below, mankind.
+ - But with nonfiction, the task is very straightforward: Do the research, tell the story.
+ - His conviction that everything happened for a reason, and would come to good, gave him laughing equanimity even in hard times.
+ - When he thought of his history, what resonated with him now was not all that he had suffered but the divine love that he believed had intervened to save him.
+ - At that moment, something shifted sweetly inside him. It was forgiveness, beautiful and effortless and complete. For Louie Zamperini, the war was over.
+ - It’s easy to talk to a horse if you understand his language. Horses stay the same from the day they are born until the day they die. They are only changed by the way people treat them.
+ - I am in an altogether new world now. I can think of nothing more wonderful. It is a real touch of all that heaven means.
+ - My illness is excruciating and difficult to cope with. It takes over your entire life and causes more suffering than I can describe.
+ - I am actually in poor health due to chronic fatigue and immune dysfunction syndrome, and my ability to work is greatly diminished right now, so I have to get better before I can start another big project.
+ - I was 8 years old when I went across the street from my house to a fair, and they always had a used book sale. For a quarter I bought a book called ‘Come On Seabiscuit.’ I loved that book. It stayed with me all those years.
+ - Fatigue is what we experience, but it is what a match is to an atomic bomb.
+ - I am disabled, so I can’t travel, and I have not been to any development meetings, but Gary and the others affiliated with the film keep me updated on everything.
+ - His books were the closest thing he had to furniture and he lived in them the way other men live in easy chairs.
+ - The biggest problem has been exhaustion. I’ve spent about 6 of the last 14 years completely bedridden.
+ - For me, being a writer was never a choice. I was born one. All through my childhood I wrote short stories and stuffed them in drawers. I wrote on everything. I didn’t do my homework so I could write.
+ - Honestly, I expected to get a cold reception because of my subject matter. But when editors took a look at the story I had to tell, and saw that this was not a parochial story at all, they really warmed to it.
+ - People think I must have been turning cartwheels on the night I sealed the movie deal – which was only two days after sealing the book deal – but I was really quite terrified.
+ - I’ve used a cellphone exactly twice. Things move on. The world changes. And I don’t know it.
+ - I identified in a very deep way with the individuals I was writing about because the theme that runs through this story is of extraordinary hardship and the will to overcome it.
+ - I’m attracted to subjects who overcome tremendous suffering and learn to cope emotionally with it.
+ - I had been writing professionally since 1988.
+ - Since signing with Universal, I have been working closely with Gary Ross, the director, producer and screenwriter. We have spent many hours on the phone, and I’ve been sending him information and items that have been useful to the writing process.
+ - Books on horse racing subjects have never done well, and I am told that publishers had come to think of them as the literary version of box office poison.
+ - I have to detach myself completely from aspirations. I hardly ever listen to music anymore because it arouses all of this yearning in me.
+ - Having a lot of people suddenly depending on me to get the job done was a marvelous motivator. The book and movie deals seemed to flip a switch in my head, and off I went.
+ - I have vertigo. Vertigo makes it feel like the floor is pitching up and down. Things seem to be spinning. It’s like standing on the deck of a ship in really high seas.
+ - I got sick when I was 19, and I’d been a really healthy 19-year-old, so I don’t have a lot to compare it to. Does it feel like the pain after you give birth? I don’t know.
+ - I look at the film as an opportunity to see some bountifully creative minds do something that I could not do – tell the story with images. I can’t wait to see what they do.
+ - I spoke to my agent and learned that a Hollywood scout had seen my proposal in one of the publishing houses, and had faxed it to Hollywood, where it was generating a lot of interest.
+ - My agent and I put out my proposal one Thursday afternoon in August, 1998. Publishers started bidding immediately, and that process progressed for a few days.
+ - And at that point, I think my experience in covering the subject helped me. I think editors felt comfortable with the idea of me telling this story because I had demonstrated that I know this business pretty well.
+ - My work was entirely nonfiction.
+ - I think if I had been writing fiction, where the work is entirely dependent on the writer’s creativity and the potential directions the narrative might take are infinite, I might have frozen.
+ - I think authors can get into trouble viewing the subject matter as their turf.
+
+41 quotes

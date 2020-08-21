@@ -1,0 +1,32 @@
+ - American movies and music deliver themes of freedom, innocence, and power that appeal to others – partly because America itself was put together out of a multiplicity of national traditions.
+ - It’s an old anarchist dream that people can take care of their own lives.
+ - The genius of the economic machine is in its ability to convert these indulgences into profitability. It converts desire into attention, a grip on our eyeballs and eardrums, which in turn can be marketed to advertisers.
+ - So American culture is itself a hybrid and lends itself to use in other people’s hybrids.
+ - My business is the analytical framework.
+ - Like Americans, people outside America want fun, want an emotional compensation for the utilitarianism and calculation that mark the rest of their lives.
+ - I am a realist as well as an idealist, and I think that it is incumbent upon those of us in opposition to try to work within what are always arduous circumstances to stretch the limits of the possible.
+ - My position is not that John Kerry is either Jesus Christ or the prophet Mohammad. My position is that John Kerry is the possibility of restarting politics.
+ - I first came to think about media and politics in the late 1960s, having observed some distortions up close, but since then I wouldn’t say that my personal experience has remained an important motive for my writing about media.
+ - The mobilisation which Bush has been able to perform since 11 September 2001 has to be fought – at least by Americans – in the name of a wise, honourable and democratic patriotism.
+ - Sure, I’ve often been misrepresented – anyone frequently quoted has this experience.
+ - Human inertia makes the everyday environment, the furniture, as it were, appear to be a given.
+ - To win power anywhere you have to convince people that you can do something for them.
+ - Americas are, for a variety of reasons, the most adept at producing the kind of entertainment that delivers easy satisfactions.
+ - Right now, we have no possibility of politics because we have a one-party state.
+ - I don’t think anyone in the media thinks strategically about society.
+ - Some versions of patriotism come close to the tribal, which we all want to surpass, and some don’t.
+ - A century of convulsive change leaves huge demographic gouge marks.
+ - There is a fuzzy but real distinction that can and I believe should be made, between patriotism, which is attachment to a way of life, and nationalism, which is the insistence that your way of life deserves to rule over other ways of life.
+ - The moguls are driven by their respective desires for profit – period.
+ - All I will say is that there are particular features of the American constitutional system that renders a third party futile – at best.
+ - Some fine day, Democrats may figure out how to get on the right side of the value divide – how to define America as a place of the common good and not a playground of the strong.
+ - Who of us does not recognize that the life we live, however larded with brave talk about values and thought and ideals, is not actually a life dedicated to immersion in the endless torrent of images, songs, sounds and stories?
+ - Mills insisted that a sociologist’s proper subject was the intersection of biography and history.
+ - Today’s global justice movement may be the biggest, most diverse and energetic in history.
+ - Navigation is power of a limited sort – it enables us to manage the immensity of the media torrent.
+ - I am concerned about how to reverse the process by which a fundamentalist right and a corporate elite were able to seize power in the United States.
+ - Collectively, we are in thrall to media – because they deliver to us many of the psychic goods we crave, and we know no other way to live.
+ - We may repeat the awful revolutionary history of the 20th century because of the vulnerability of social movements to demagoguery.
+ - I don’t for the life of me understand how anybody could contemplate the results of the 2000 election in the US and say that electoral politics doesn’t matter any more, and that Ralph Nader was right when he said there is no difference between the two parties.
+
+30 quotes

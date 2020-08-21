@@ -1,0 +1,27 @@
+ - There is more here than meets the eye.
+ - In few people is discretion stronger than the desire to tell a good story.
+ - Autumn is no time to lie alone.
+ - Beauty without colour seems somehow to belong to another world.
+ - It is useless to talk with those who do not understand one and troublesome to talk with those who criticize from a feeling of superiority. Especially one-sided persons are troublesome. Few are accomplished in many arts and most cling narrowly to their own opinion.
+ - Real things in the darkness seem no realer than dreams.
+ - The memories of long love gather like drifting snow, poignant as the mandarin ducks who float side by side in sleep.
+ - Old age is a disease from which there is no recovery but the old nun’s recent attack had certainly been brought on chiefly by the fatigue of so much travelling.
+ - Though the body moves, the soul may stay behind.
+ - Intimacy between stepchildren and stepparents is indeed proverbially difficult.
+ - One ought not to be unkind to a woman merely on account of her plainness, any more than one had a right to take liberties with her merely because she was handsome.
+ - There are as many sorts of women as there are women.
+ - In a certain reign there was a lady not of the first rank whom the emperor loved more than any of the others. The grand ladies with high ambitions thought her a presumptuous upstart, and lesser ladies were still more resentful. Everything she did offended someone.
+ - No penance can your hard heart find save such as you long since have taught me to endure.
+ - Who has told you that the fruit belies the flower? For the fruit you have not tasted, and the flower you know but by report.
+ - A night of endless dreams, inconsequent and wild, is this my life; none more worth telling than the rest.
+ - Ceaseless as the interminable voices of the bell-cricket, all night till dawn my tears flow.
+ - Foolish indeed are those who trust to fortune.
+ - How much the more in judging of the human heart should we distrust all fashionable airs and graces, all tricks and smartness, learnt only to please the outward gaze.
+ - Stepmothers in books usually behave very spitefully towards the children entrusted to them. But he was now learning by his own experience that in real life this does not always happen.
+ - It is indeed in many ways more comfortable to belong to that section of society whose action are not publicly canvassed and discussed.
+ - People who do not get into scrapes are a great deal less interesting than those who do.
+ - You that in far-off countries of the sky can dwell secure, look back upon me here; for I am weary of this frail world’s decay.
+ - It is in general the unexplored that attracts us...
+ - How strange a thing is the heart of man!
+
+25 quotes

@@ -1,0 +1,23 @@
+ - The universe is Why, How, and What, in any order, and all at once.
+ - When truth is divided, errors multiply.
+ - Art can make the old surprising, and the new and sudden soothing.
+ - We should see the desire for neatness, the desire for sharp impressions, as a desire in art.
+ - The most important thing for you to do is see that in hoping to be affected by other things as fully as possible, you become more yourself.
+ - In reality opposites are one; art shows this.
+ - Is there in every work of art something which shows reality as one and also something which shows reality as many and diverse? – must every work of art have a simultaneous presence of oneness and manyness, unity and variety?
+ - All beauty is a making one of opposites, and the making one of opposites is what we are going after in ourselves.
+ - If a mistake is not a stepping stone, it is a mistake.
+ - True individuality is the repose arising from the relation of a self to all it has to do with. Bad individuality has in it a separation between outward action and a flat repose inwardly.
+ - There is not one thing that music does which does not say something about how a person should organize himself, too.
+ - You don’t want to see things as they are because your ego would have to admit that things outside yourself are necessary for the self to be. You still have fun, as most people do, from manipulating things.
+ - Originality in art puts charm where it wasn’t.
+ - Concealment is equated, unknowingly to ourselves, with individuality; the more we conceal the more it seems we are asserting our very personality, resisting a somewhat repellent, unwelcome intrusion of other things into ourselves.
+ - To see the outside world as the same stuff as our most secret or unknown thoughts is a fine necessity...
+ - The resolution of conflict in self is like the making one of opposites in art.
+ - Art is a way of showing greater fairness to things than is customary.
+ - Every work of art is about everything.
+ - In order to be deep, we sometimes have to cut through and cut apart. That is to be seen in the common phrase, ‘Cut it out!’ The reason is that this thing is seen as superfluous and therefore it should be excised, as a growth, unnecessary, should be excised.
+ - Reality is all that which can affect one.
+ - The purpose of photography is to create an emotion about the world through what has been carefully seen and selected.
+
+21 quotes

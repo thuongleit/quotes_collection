@@ -1,0 +1,96 @@
+ - It’s my life and it’s now or never.
+ - Success is falling nine times and getting up ten.
+ - Believe in love. Believe in magic. Hell, believe in Santa Clause. Believe in others. Believe in yourself. Believe in your dreams. If you don’t, who will?
+ - It’s now or never I ain’t gonna live forever I just wanna live while I’m alive It’s my life.
+ - Nothing is as important as passion. No matter what you want to do with your life, be passionate.
+ - Take my hand and we’ll make it – I swear.
+ - I’ll be there forever and a day – Always I’ll be there till the stars don’t shine Till the heavens burst and The words don’t rhyme And I know when I die, you’ll be on my mind And I’ll love you – Always.
+ - Believe in your dreams. If you don’t, who will?
+ - When the World Gets in my Face I say, Have a Nice Day.
+ - When you’re about to give up and your heart’s about to break, remember that you’re perfect, God makes no mistakes.
+ - Miracles happen everyday, change your perception of what a miracle is and you’ll see them all around you.
+ - We all need to be blind sometimes in order to see.
+ - Each one of you has something no one else has, or has ever had: your fingerprints, your brain, your heart. Be an individual. Be unique. Stand out. Make noise. Make someone notice. That’s the power of individuals.
+ - You can’t win ’til you’re not afraid to lose.
+ - You better stand tall when they’re calling you out, don’t bend, don’t break, and don’t back down!
+ - Just because someone has fancy sneakers doesn’t mean they can run faster.
+ - Nothing is as important as passion.
+ - I like progress but I hate change.
+ - Passion, not pedigree, will win in the end.
+ - I can’t sing a love song Like the way it’s meant to be Well, I guess I’m not that good anymore But baby, that’s just me.
+ - Don’t get too comfortable with who you are at any given time – you may miss the opportunity to become who you want to be.
+ - It’s easy to say, ‘I love you,’ to someone, but it’s more meaningful to thank someone for loving you.
+ - All I have is this guitar, these chords and the truth.
+ - Jersey girls have this inner glow that makes them more beautiful than any other girls.
+ - How can the Replacements be the best band of the 80s when I’ve never even heard of them?
+ - You just stay the course, and do what it is that you do, and grow while you’re doing it. Eventually it will either come full circle, or at least you’ll go to bed at night happy.
+ - Any time that you think you’ve hit the top of the mountain, the truth of the matter is you’ve just reached another mountain. And it’s there to climb all over again.
+ - I walk these streets, a loaded six string on my back I play for keeps, ’cause I might not make it back; I been everywhere, and I’m standing tall I’ve seen a million faces an I’ve rocked them all.
+ - If you could see yourself the way that others do, you’d wish you were as beautiful as you.
+ - You don’t need fancy sneakers to run fast.
+ - It’s all the same, only the names will change, everyday it seems we’re wasting away. Another place, where the faces are so cold, I’d drive all night just to get back home.
+ - And I laughed so hard I think I died.
+ - I’d rather die than fade away.
+ - Falling in love is painful on the knees.
+ - If you told me to cry for you I could If you told me to die for you I would Take a look at my face There’s no price I won’t pay To say these words to you.
+ - There’s a vintage which comes with age and experience.
+ - We’re always looking for something.
+ - You think you know me just because you know my name, think you’ve seen me ’cause you’ve seen every line on my face.
+ - Heaven looks a lot like New Jersey.
+ - With an iron-clad fist, I wake up and French-kiss the morning.
+ - Map out your future – but do it in pencil. The road ahead is as long as you make it. Make it worth the trip.
+ - A friend of mine, a friend of yours. My better half, Richard Stephen Sambora.
+ - The internet and social networking are new avenues for the next Bob Dylan to be born on.
+ - We are at a crossroads in the music business: with the rise of the internet, the world we live in has changed, and the past is not coming back. But I see the glass as half-full: the internet and social networking are new avenues for the next Bob Dylan to be born on.
+ - New songs are why artists go on the road. That’s why I go on the road. It’s a three-prong play. Writing: You’re intrigued. Recording: It brings it to life. And then you want to share it.
+ - My health and my family are the core of my being.
+ - You’re never going to see the fat Elvis in me. People I admired like Janis Joplin, Jimi Hendrix and John Belushi all died at 27. I’ve got jeans older than that.
+ - Women have always ruled my life, be it my mother, my wife, my assistant, or my daughter, so I don’t really fight with them. I relinquished control years ago.
+ - Find an independent woman-who loves you for you and will be your best friend. I got it right the first time and was very, very lucky.
+ - Map out your future, but do it in pencil.
+ - Tonight I’ll dust myself off, tonight I’ll suck my gut in, I’ll face the night and I’ll pretend I got something to believe in.
+ - The spirits, they intoxicate me. I watched them infiltrate my soul. They try to say it’s too late for me. Once I was promised absolution, there’s only one solution for my sins. And I blame this world, for making a good man evil. Now I ain’t getting into heaven, if the devil has his way.
+ - I would kick this bad world’s ass if I could just get on my feet.
+ - I always think I’m the Tom Cruise of music – a lot of success and fans, but no critics, darling.
+ - Time, ain’t nothin, but time. It’s a verse with no rhyme, and it all comes down to you.
+ - I could always write songs, act, get into politics, or stay home with the kids. But I’ve got to have some fun.
+ - New Jersey shaped who and what I am. Growing up in Jersey gave you all the advantages of New York, but you were in its shadow. Anyone who’s come from here will tell you that same story.
+ - We’ve had all the ebbs and flows of any real career. Trust me. We’ve been at the highest highs and pretty low lows. But that said, we always stay true to who we were. We didn’t jump on fads and fashions.
+ - If you’re from New Jersey, let people make all those bad jokes about our state. Don’t let anyone know how great it is here. It’s the best kept secret.
+ - You know these love letters mix with whisky, just don’t light a match when you kiss me.
+ - I’d crawl over broken glass for Elle MacPherson or Cindy Crawford.
+ - I pray every day, several times. It soothes me. I don’t ask for anything, except for health.
+ - I took some important things with me from sports. Rock and roll is a team sport. You’re only as good as your weakest link.
+ - My mom was the poster girl for the Marines. So she was in the poster saying, “I want you.” My parents were both Marines.
+ - I don’t work well outside the lines; my report card once read, ‘doesn’t play well with others.’
+ - Women rule the world. It’s not really worth fighting because they know what they’re doing. Ask Napoleon. Ask Adam. Ask Richard Burton or Richie Sambora. Many a man has crumbled.
+ - I was a boy toy for a bunch of women.
+ - The only thing I like more than my wife is my money, and I’m not about to lose that to her and her lawyers, that’s for damn sure.
+ - I try to explain that to my kids – the experience of going to a record store, flipping through racks and finding that album cover that intrigues you – but my kids don’t want to know about it. They download the one song on the album they like, and pay their 99 cents.
+ - If you wanted to torture me, you’d tie me down and force me to watch our first five videos.
+ - Guys will take one pair of jeans, five T-shirts and three pair of socks and that’ll get you by for 10 weeks.
+ - You have to be either naive or power-hungry to get into politics. I wouldn’t consider it myself. I am too well-informed.
+ - Piano playing is a dying art. I love the fact that I can be one guy with one instrument evoking an emotional and musical experience.
+ - It’s not hard to get a girl if I wanted one. But it doesn’t mean you want it, and even if you did, you’re certainly not going to rub it in anybody’s face.
+ - I went to Catholic school in and out. I’m what you call a recovering Catholic. I have many major issues with the church.
+ - I was just another long-haired teenage kid with visions of grandeur, strumming a tennis racket or a broom in front of his bedroom mirror.
+ - If people have to tell you how successful they are, they really aren’t that successful.
+ - I have had some sorry-ass looks, but I’m the first one to laugh. I’m either to credit or to blame for the ’80s.
+ - I think record companies are criminals.
+ - I want to own an NFL franchise. I understand the business of football.
+ - The only enemy is ignorance. Peace, people. Let’s get rid of all this nuclear testing.
+ - My philanthropy is no relation to anybody else’s. None. My philanthropy and what we do at the foundation speaks for itself and has no relation to anyone’s.
+ - I’m not a big disco guy. Some of that English techno-poppy stuff wouldn’t get me in the mood either.
+ - I went to a radio station on Long Island in 1982, and thank goodness for me, it was so new that there was no receptionist. So the DJ opened up his booth, and took my tape and listened to it and thought it was a hit song.
+ - We’ve been gone five years and the best they could come up with was boy bands?
+ - I might have been through some changes, but changing the way I look wasn’t one of the major ones. To be honest. I’m sick of the whole subject of my hair. I mean, are you just sitting there looking at my hair, or are you looking at me?
+ - In our town, the most popular way out was joining the service. So my three best friends joined the Navy to get out. I didn’t.
+ - Elton John said to me, “I have all the negatives.”
+ - I’m a football guy. Baseball, I enjoy it at playoff time.
+ - For years, I’ve had a hankering for the portrait of Benjamin Franklin by Joseph Duplessis. Franklin is credited with so many inventions: the postal system, lightning rods, the constitution. He was a rock star before there was such a thing.
+ - If Elton John and Madonna had a baby it would be Lady Gaga.
+ - I’m not a big disco guy.
+ - There’s not a platinum record hanging in my house anywhere. It doesn’t exist here. I’m over it. They’re all in the garage, wrapped up in bubblewrap.
+ - The Rolling Stones set the bar to where I look to as a band. But I don’t envision myself touring in the way they do. My knees won’t hold out.
+
+94 quotes

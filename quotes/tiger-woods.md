@@ -1,0 +1,198 @@
+ - The greatest thing about tomorrow is, I will be better than I am today.
+ - If you’re not nervous, it means you don’t care.
+ - I believe that my creative mind is my greatest weapon.
+ - We all make decisions. But in the end, our decisions make us.
+ - All I know is I’ve tried my best.
+ - No matter how good you get you can always get better, and that’s the exciting part.
+ - You have to look at the past in order to learn from it and move on. I’ve done a lot of reflecting over the past year. And certainly, I’ve turned the corner and am looking more toward the future in a lot of ways.
+ - I have a big-picture outlook, I am willing to fall, and I understand it’s ok to fall, but I am going to get back up, I may take a step back, but in the end, I am going to take a giant leap forward.
+ - My main focus is on my game.
+ - Winning takes care of everything.
+ - My mother’s a Buddhist. In Buddhism, if you want to achieve enlightenment, you have to do it through meditation and self-improvement through the mind. That’s something she’s passed on to me: to be able to calm myself down and use my mind as my main asset.
+ - People don’t understand that when I grew up, I was never the most talented. I was never the biggest. I was never the fastest. I certainly was never the strongest. The only thing I had was my work ethic, and that’s been what has gotten me this far.
+ - My mind is my biggest asset. I expect to win every tournament I play.
+ - Achievements on the golf course are not what matters, decency and honesty are what matter.
+ - I have let my family down and I regret those transgressions with all of my heart.
+ - I believe in myself. There’s nothing wrong with believing in myself. That’s the whole idea, is that you can always become better.
+ - And I don’t cook, either. Not as long as they still deliver pizza.
+ - My dad used to say, ‘Just because you dress up in a coat and tie, it doesn’t influence your intelligence.’
+ - I think the golf swing is all about rotation, all about trying to keep the club on plane.
+ - Hockey is a sport for white men. Basketball is a sport for black men. Golf is a sport for white men dressed like black pimps.
+ - America’s a melting pot, all races, cultures, religious choices.
+ - The greatest thing about tomorrow is, I will be better than I am today. And that’s how I look at my life. I will be a better golfer, I will be a better person, I will be a better father, I will be a better husband, I will be a better friend. That’s the beauty of tomorrow.
+ - Sensationalism sells: Don’t let the facts get in the way of a good story.
+ - I was unfaithful. I had affairs. I cheated.
+ - My mother was right when she said that turning pro would take away my youth.
+ - You’ve got to figure out what works best for you. That’s the hard part. I know I can’t play as stoic as Hogan, and I can’t talk as much as Trevino. You have to be your own person.
+ - I’m going to try to keep getting better.
+ - I owe a lot of people an apology. I hurt a lot of people. Not just my wife. My friends, my colleagues, the public, kids who looked up to me. There were a lot of people that thought I was a different person and my actions were not according to that.
+ - Winning is not always the barometer of getting better.
+ - I got hoes in different area codes.
+ - You hit a bad shot, you have to get over it right there and then so you can get focused on the next one.
+ - It’s hard to believe, but anything can happen. Accidents do happen, unfortunately, it happened at the worst time.
+ - I’m getting back to my old roots.
+ - I always feel pressure. If you don’t feel nervous, that means you don’t care about how you play. I care about how I perform. I’ve always said the day I’m not nervous playing is the day I quit.
+ - If you can’t laugh at yourself, who can you laugh at?
+ - It provides a different type of element and mental strain athletes love. That’s what makes the game of golf so special.
+ - A lot has transpired in my life.
+ - It is technology. They all changed to a harder golf ball, so they gave up spinning on the greens. They all changed to longer drivers, bigger heads with hotter faces and lighter shafts. The problem is, the harder you hit it, the more control you lose.
+ - Talent is something you are born with, and a skill is something you develop. 99% of what you need to succeed in golf are skills.
+ - As a child growing up, you never thought about being in a videogame, then to have a game of your own and be lucky enough to set the bar with it in the gaming world, it’s a dream come true.
+ - I’ve been a gamer all my life.
+ - Under pressure, you can win with your mind.
+ - Everyone wants to get a piece of me.
+ - I’m trying as hard as I can, and sometimes things don’t go your way, and that’s the way things go.
+ - I miss hanging out with my friends, getting in a little trouble. I have to be so guarded now.
+ - I stopped living according to my core values. I knew what I was doing was wrong but thought only about myself and thought I could get away with whatever I wanted to.
+ - Education is a priority over any sport because without a mind you can’t contribute to society.
+ - My dad has always taught me these words: care and share. That’s why we put on clinics. The only thing I can do is try to give back. If it works, it works.
+ - I don’t get to live by different rules. The same boundaries that apply to everyone apply to me.
+ - I don’t believe that human beings can achieve ultimate enlightenment, because humans have flaws.
+ - I hurt my wife, my kids, my mother, my wife’s family, my friends, my foundation and kids all around the world who admired me.
+ - I get to play golf for a living. What more can you ask for – getting paid for doing what you love.
+ - I don’t want to become as good as I once was. I want to become better.
+ - It’s cool now to play golf.
+ - Buddhism teaches that a craving for things outside ourselves causes an unhappy and pointless search for security. It teaches me to stop following every impulse and to learn restraint. Obviously, I lost track of what I was taught.
+ - I am deeply aware of the disappointment and hurt that my infidelity has caused to so many people, most of all my wife and children.
+ - Money and fame made me believe I was entitled. I was wrong and foolish.
+ - I wake up every day and I can’t wait to go to work, and that’s a gift. Not too many people have the opportunity to feel that way.
+ - I think life is all about having a balance, and trying to find equilibrium and not getting things one way or the other.
+ - A golfer should never make a mental mistake because the ball is just sitting there waiting for you to hit it.
+ - There’s no sense in going to a tournament if you don’t believe that you can win it. And that is the belief I have always had. And that is not going to change.
+ - I felt that I had worked hard my entire life and deserved to enjoy all the temptations around me. I felt I was entitled, and thanks to money and fame, I didn’t have to go far to find them.
+ - You can win all the tournaments you want, but the majors are what you’re remembered for. It’s how you’re measured as a champion in our sport. The majors are where it’s at.
+ - I don’t think you’re ever there. You never arrive, but if you do, you might as well quit because you’re already there. Can’t get any better. And as players, if you ever have that moment – you should never have that moment. You’re always trying to get better.
+ - I want to say to each of you, simply, and directly, I am deeply sorry for my irresponsible and selfish behavior I engaged in.
+ - I want to be what I’ve always wanted to be: dominant.
+ - I’m trying as hard as I possibly can each and every day to get my life better and better and stronger. And if I win championships along the way, so be it.
+ - You can always become better.
+ - The key is to design great golf courses all around the world. But my plan is only to do a select few. I devote so much of my time to these. I’m kind of a hands-on kind of person. I always want to do the best that I can in all of my life and this is no different.
+ - I don’t see myself as the Great Black Hope. I’m just a golfer who happens to be black and Asian. It doesn’t matter whether they’re white, black, brown or green.
+ - I made my share of mistakes. People can look at that as what not to do, and if they choose to make fun of it, that’s fine. I can’t control that. All I know is that I can control myself. And at that point in my life, I wasn’t even able to do that.
+ - If money titles meant anything, I’d play more tournaments. The only thing that means a lot to me is winning. If I have more wins than anybody else and win more majors than anybody else in the same year, then it’s been a good year.
+ - If you’re lucky to have three close people in your life, you’re blessed.
+ - I chase a little white ball around and work on my farmer tan, that’s about it. I think that I’ve been lucky enough to represent some great companies, and I think maybe that’s what it is.
+ - My body is a little bit sore from all of the practicing and playing and training, and your mind gets a little tired of it, too. It’s nice to be able to recharge and come back fresh for the remainder of the year.
+ - My dad told me this: You get out of it what you put into it. If you put in effort and log your time, you’ll get the results.
+ - I’d like to share my experiences and the lessons I’ve learned and hopefully create some amazing, fun courses.
+ - Every sport evolves. Every sport gets bigger and more athletic, and you have to keep up.
+ - I’m committed to try to make the product the best I possibly can.
+ - Golf has made me and shaped me into the person I am here today.
+ - I think the best thing is being able to play golf competitively for a living. Ever since I was a little boy, that’s something I’ve always wanted to do, and now I get a chance to live out my dreams.
+ - You’re going to make mistakes. The key is to learn from them as fast as possible and make changes as soon as you can. That’s not always easy to do because ego and pride get in the way, but you have to put all that aside and look at the big picture.
+ - For many my behavior has been a major disappointment, my behavior has caused considerable worry to my business partners, and everyone involved in my business, but most importantly to the young people we influence, I apologize.
+ - All I can say is that I’m getting married in the future. I’ve narrowed it down to that.
+ - Golf is evolving, every day, every shot.
+ - I’ve been in some seriously bad places playing golf and it’s just part of the game. You’re going to hit bad shots, you’re going to be in bad spots, and each course, when you learn it, you learn where not to go.
+ - I love to play golf, and that’s my arena. And you can characterize it and describe it however you want, but I have a love and a passion for getting that ball in the hole and beating those guys.
+ - My dad has always taught me these words: care and share.
+ - I have been fortunate to have my game peak at the right times.
+ - I think the hardest part about Golf is being committed to your wife.
+ - Well, you know, a lot of people look at the negative things, the things that they did wrong and – which I do. But I like to stress on the things I did right, because there are certain things that I like to look at from a positive standpoint that are just positive reinforcement.
+ - I know that balance that I need to have in my life.
+ - I’m lucky to have been able to represent different companies over my career.
+ - To have the opportunity to complete the slam at the Open at St Andrews, the home of golf, is something I will never ever forget.
+ - Sad to say I’m missing the Masters. Thanks to the fans for so many kind wishes.
+ - I’ve gotten more buff.
+ - The joy I get from winning a major championship doesn’t even compare to the feeling I get when a kid writes a letter saying: ‘Thank you so much. You have changed my life.’
+ - In golf, just because a person is big and cut and ripped, doesn’t mean they have a physical advantage.
+ - I’d gotten away from my Buddhism. And I quit meditating.
+ - My body is a little bit sore from all of the practicing and playing and training.
+ - I’m playing in the Masters. It’s obviously very important to me, and I want to be there. I’ve worked a lot on my game and I’m looking forward to competing. I’m excited to get to Augusta and I appreciate everyone’s support.
+ - The amount of meetings I’ve been in – people would be shocked. But that’s how you gain experience, how you can gain knowledge, being in meetings and participating. You learn and grow.
+ - I do not look back at what might have been. If I did that, playing golf would drive me crazy.
+ - I hit a one-yard draw in there.
+ - I did envisage being this successful as a player, but not all the hysteria around it off the golf course.
+ - I am the toughest golfer mentally.
+ - As a kid, I might have been psycho, I guess, but I used to throw golf balls in the trees and try and somehow make par from them. I thought that was fun.
+ - It will always be the ball and me.
+ - I can play a power game, but I also have the ability to step it up to another level and hit shots even further on call.
+ - I’m not as far along as Jack Nicklaus was at this age, but I’m trying.
+ - A pre-putt routine helps you stay nice and relaxed so you can make the best stroke possible.
+ - I probably will have to become more political down the road when my playing days are done, because I’m going to have to have the support of others to grow my foundation.
+ - I treat golf as a sport. I let other people treat it like a hobby.
+ - In therapy I have learned the importance of keeping spiritual life and professional life balanced. I need to regain my balance.
+ - I thoroughly enjoy getting away from the game and going out fishing because it’s so relaxing, so quiet and peaceful. I mean, there’s no noise other than nature – and it’s so different from what I do in a tournament situation that it just eases my mind.
+ - Everyone knows what the Masters is, even if you’re a non-golfer. People know what Wimbledon is. They know what the Super Bowl is. There are certain events that people just know about.
+ - I’ve always known where I wanted to go in life.
+ - It was a mixed bag pretty much all week. A lot of really, really good stuff out there, some mediocre and some bad.
+ - In retrospect, golf for me was an apparent attempt to emulate the person I looked up to more than anyone: my father. He was instrumental in helping me develop the drive to achieve, but his role, as well as my mother’s, was one of support and guidance, not interference.
+ - One of the things my dad kept instilling in me was the joy of the game. He made it fun for me. A lot of the time I see kids that don’t enjoy being out there and that’s a shame; you’re supposed to enjoy the game.
+ - Golf is something I do selfishly for myself.
+ - Golf is fluid. It’s always changing. It’s always evolving. First of all, you never master it.
+ - The key in shooting any good round is to give yourself some chances and, tomorrow, if my swinging is feeling any good, I’ll have some chances. But, if it’s not, then I’ll have to give myself those 15- to 20-footers and hope I can make those.
+ - I have not been true to my values and the behavior my family deserves.
+ - I didn’t have many ups and downs, and I just tried to par every hole.
+ - As a child, the family that I had and the love I had from my two parents allowed me to go ahead and be more aggressive, to search and to take risks knowing that, if I failed, I could always come home to a family of love and support.
+ - I don’t know if I even have an aura, man. I just try to win.
+ - We have a lot of fun every year, and I really enjoy being part of junior golf and the development of these players.
+ - It’s something you have to find from within. You have to keep pushing yourself from within. It’s not about what other people think and what other people say. It’s about what you want to accomplish and do you want to go out there and be prepared to beat everyone you play or face.
+ - In order to hit a good golf shot at that moment in time when you’re standing over the ball, you must believe that golf shot is the most important things in your life.
+ - My dad was my best friend and greatest role model. He was an amazing dad, coach, mentor, soldier, husband and friend.
+ - I’ve always had that knack for staying pretty even keel and the more the situation gets tense the more I see things clearly and I think that’s just a knack that I’ve always had.
+ - There are still courses in the United States that I am not allowed to play because of the color of my skin.
+ - Nobody could have prepared me for the life I’ve had to become accustomed to.
+ - The virtue of privacy is one that must be protected in matters that are intimate and within one’s own family.
+ - I started changing my swing in late 1999.
+ - I love to play to win.
+ - My failures have made me look at myself in a way I’ve never wanted to before.
+ - All that really matters is I have two beautiful kids, and I’m trying to be the best dad I can possibly be, and that’s the most important thing of all.
+ - I’ve had the luxury of playing golf around the world, and I’ve spent a lot of time evaluating how to play all kinds of courses.
+ - I will have to earn trust and respect from my kids.
+ - Don’t force your kids into sports. I never was. To this day, my dad has never asked me to go play golf. I ask him. It’s the child’s desire to play that matters, not the parent’s desire to have the child play. Fun. Keep it fun.
+ - The good thing about coming over to the UK is that I can get some rest.
+ - I mean, as an athlete, as a competitor, you have to have that belief in yourself.
+ - The most important thing to me is winning tournaments. I love winning.
+ - Younger guys now are all working out, and you find that if everyone’s doing it and you’re not doing it, you’re going to be left behind.
+ - There are a lot of great players from Europe who have never played Augusta, but all the guys in America have all played St. Andrews. They’ve gone over and made a trip to play St. Andrews.
+ - I’ve been going to chiropractor for as long as I can remember. It’s as important to my training as practicing my swing.
+ - As you all know, I’m kind of a perfectionist.
+ - There’s nothing wrong with having your goals really high and trying to achieve them. That’s the fun part. You may come up short. I’ve come up short on a lot on my goals, but it’s always fun to try and achieve them.
+ - I am not without faults and I am far short of perfect. I am dealing with my behavior and personal failings behind closed doors with my family. Those feelings should be shared by us alone.
+ - You can play from the wrong position for a long time with good hands, but eventually it’s going to catch up with you.
+ - No matter who you are, the game is fluid. The game is always evolving, so you always have to keep working on it. There are plenty of hours in the day to get that done.
+ - One of the things that my parents have taught me is never listen to other people’s expectations. You should live your own life and live up to your own expectations, and those are the only things I really care about it.
+ - My kids are doing just great.
+ - The major championships have always been a special focus in my career, and as a professional, I think Augusta is where I need to be.
+ - I’m addicted. I’m addicted to golf.
+ - I’ll tell you what, I’ve been in some seriously bad places playing golf and it’s just part of the game.
+ - When you look at all of the great players who ever played the game, they all had that other gear that they could go to, and it makes a world of difference.
+ - I believe in Buddhism. Not every aspect, but most of it. So I take bits and pieces.
+ - If you have wind it becomes more difficult than you think.
+ - The majority of my blood is Asian.
+ - Golf is a very serious part of my life, but when you stop having fun at it, that’s when it’s time to hang it up.
+ - I was living a life of a lie, I really was.
+ - No matter how you play the golf course, no matter how well you play, you’re going to have to make 6 and 8 footers for par. It’s just a given here.
+ - If you are given a chance to be a role model, I think you should always take it because you can influence a person’s life in a positive light, and that’s what I want to do. That’s what it’s all about.
+ - I’ve exceeded a few of my goals, but I’m behind on a couple of others.
+ - There are golfers everywhere who may never get a chance to play a links course in Scotland, a tree-lined course in America or the sand belts of Australia. Hopefully I can bring some of those elements into their backyards.
+ - I’ve done some pretty bad things in my life.
+ - I love to compete. That’s the essence of who I am.
+ - When things go right and you test properly and you find equipment that’s better than what you were playing, then you can do some pretty neat things on the golf course.
+ - The thing you don’t dream about as a kid is all the peripheral stuff that comes with success.
+ - A lot of times I blend in a little bit easier because I’m not like a basketball player who’s going to stand out because of his height.
+ - People don’t really bother me as much as you might think.
+ - I like the idea of being a role model. It’s an honor.
+ - I don’t just want to be the best black player or the best Asian player. I want to be the best golfer ever.
+ - In order to help people, you have to first learn how to help yourself.
+ - I do plan to return to golf one day. I just don’t know when that day will be.
+ - Personal sins should not require press releases and problems within a family shouldn’t have to mean public confessions.
+ - Tiger, come on now, you’ve still got work to do. This round and golf tournament are not over. Hang in there and finish the race.
+ - It’s just a matter of, for me, getting my mind where it needs to be. Certainly I’ve made a lot of adjustments in my life, and I’ve gone through a lot. A lot.
+ - Seve was one of the most talented and exciting golfers to ever play the game. His creativity and inventiveness on the golf course may never be surpassed. His death came much too soon.
+ - My dad was a big believer of having a golf club that fit me. Always have a golf club that fits you, so you don’t have to make any swing compensations for that particular golf club.
+ - My goal is to remain healthy my entire career, and a healthy diet seems like a good start.
+ - I ran straight through the boundaries a married couple should live by.
+ - There’s always stuff to work on. You’re never there.
+ - Variety is not everything! Viagra is!
+ - Most players I play with, I don’t look at their swing when they’re over the ball or anything like that.
+ - My kid is not going to wear a flat bill.
+ - The biggest thing is to have a mind-set and a belief you can win every tournament going in.
+ - I think that in itself, if you’re a true golfer, you’ll see specific things you need to work on. Much cheaper than private lessons.
+ - The Masters is where I won my first major, and I view this tournament with great respect. After a long and necessary time away from the game, I feel like I’m ready to start my season at Augusta.
+ - At the end of every tournament, to review every stroke and every hole, seeing what I can learn from the experience.
+ - As a kid when I was growing up, as any kid, you think you know every thing and I was no different to that.
+ - There are guys on Tour who hit the ball further than me. I always thought it was important to have power, but more important to have power in reserve.
+ - I was living a life of a lie. And I was doing a lot of things, that hurt a lot of people. And stripping away denial and rationalization you start coming to the truth of who you really are and that can be very ugly.
+
+196 quotes

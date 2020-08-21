@@ -1,0 +1,35 @@
+ - There is no change without sacrifice.
+ - When I graduated from the University of Pennsylvania I had a baby in one arm, a diploma in the other and I didn’t know where I was going in life.
+ - I actually feel most relaxed when I’m working.
+ - I have been the victim of many of the injustices that women who are my clients have had. That is how I understand how this is impacting their lives economically, psychologically, often physically. It’s all personal. For me, if one woman is denied her rights, we’re all being denied our rights.
+ - Male privilege and entitlement are dying a very painful death; no one gives up power without a struggle.
+ - Do not let adversity break you. Think of it as a learning experience that will make you stronger.
+ - Minorities have never been given their rights. They have always had to wage a political and legal battle to win them.
+ - I have two grandchildren.
+ - When you’re fighting for civil rights, it’s sometimes two steps forward and one step back. Civil rights are an evolution; and you have to bring people along.
+ - Why is it immoral to be paid for an act that is perfectly legal if done for free?
+ - The more I know about men the more I like dogs.
+ - I live in a war zone. I would never have imagined 37 years ago when I started practicing law that there would still be so much discrimination against women, so much denial of women’s rights.
+ - Women will no longer be silent when they suffer injustices against them.
+ - I’m not interested in dating. I like being with my own best friend, me. Certain women, particularly older women, cannot believe I like going to a social event by myself. But I do.
+ - I’m a civil rights attorney. I’m a victim rights attorney.
+ - There are enough high hurdles to climb, as one travels through life, without having to scale artificial barriers created by law or silly regulations.
+ - I was a single mother when my child was little.
+ - Fighting injustice keeps you young.
+ - There still is a war on women in terms of politicians in Washington and the state legislatures trying to eliminate any rights we have fought to win and that the Supreme Court has afforded us.
+ - Because of my life experiences, I understand that I have an opportunity to help other women. I have the desire and the ability.
+ - Generally, dictatorships do not work in marriage – or, for that matter, in any other relationship.
+ - I have known some wonderful men.
+ - Eventually I figured out there was something systematic in the way women are treated.
+ - I cannot take every case that people ask me to take.
+ - Well, I like empowering my clients.
+ - Do feminists have a sense of humor? Yes.
+ - People who are pierced should not be snickered at, should not become the object of ridicule, should not be singled out for special and uneven and unequal treatment. They should be respected just like everybody else.
+ - Both princes and princesses belong in palaces of power, but the doors won’t always open unless you fight for your rights.
+ - I have represented people in book deals.
+ - Instead of receiving the help that she had hoped for, Mr. Cain instead decided to provide her with his idea of a stimulus package.
+ - It is very frightening to feel alone when you are standing against a rich and powerful person and all his attendant helpers.
+ - I do believe that, under the law, under the Constitution of the United States, and under our public policy, that women deserve and should have a right to enjoy equal employment opportunity.
+ - As my father would have said, I went through the college of hard knocks.
+
+33 quotes

@@ -1,0 +1,63 @@
+ - There is no expedient to which a man will not resort to avoid the real labor of thinking.
+ - If you have great talents, industry will improve them: if you have but moderate abilities, industry will supply their deficiency.
+ - The real character of a man is found out by his amusements...
+ - The value and rank of every art is in proportion to the mental labor employed in it, or the mental pleasure in producing it.
+ - Nothing is denied to well-directed labor.
+ - Excellence is never granted to man, but as the reward of labour.
+ - The mind is but a barren soil; a soil which is soon exhausted, and will produce no crop, or only one, unless it be continually fertilized and enriched with foreign matter.
+ - A room hung with pictures is a room hung with thoughts.
+ - Certainly, nothing can be more simple than monotony.
+ - The excellence of every art, must consist in the complete accomplishment of its purpose.
+ - A mere copier of nature can never produce any thing great, can never raise and enlarge the conceptions, or warm the heart of the spectator.
+ - A painter must compensate the natural deficiencies of his art. He has but one sentence to utter, but one moment to exhibit. He cannot, like the poet or historian, expatiate, and impress the mind...
+ - Common observation and a plain understanding is the source of all art.
+ - It is to Titian we must turn our eyes to find excellence with regard to color, and light and shade, in the highest degree. He was both the first and the greatest master of this art. By a few strokes he knew how to mark the general image and character of whatever object he attempted...
+ - Raphael and Titian seem to have looked at Nature for different purposes; they both had the power of extending their view to the whole; but one looked only for the general effect as produced by form, the other as produced by colour.
+ - Less coin, less care...
+ - He who resolves never to ransack any mind but his own, will be soon reduced, from mere barrenness, to the poorest of all imitations; he will be obliged to imitate himself, and to repeat what he has before often repeated.
+ - The art of seeing nature, or, in other words, the art of using models, is in reality the great object, the point to which all our studies are directed.
+ - Art in its perfection is not ostentatious; it lies hid and works its effect, itself unseen.
+ - Invention strictly speaking, is little more than a new combination of those images which have been previously gathered and deposited in the memory; nothing can come from nothing.
+ - In portraits, the grace and, we may add, the likeness consists more in taking the general air than in observing the exact similitude of every feature.
+ - A passion for his art, and an eager desire to excel, will more than supply an artist with the place of method.
+ - The great end of all arts is to make an impression on the imagination and the feeling. The imitation of nature frequently does this. Sometimes it fails and something else succeeds.
+ - Taste depends upon those finer emotions which make the organization of the soul.
+ - A mere copier of nature can never produce anything great.
+ - I wish you to be persuaded that success in your art depends almost entirely on your own industry; but the industry which I principally recommend is not the industry of the hands, but of the mind.
+ - While I recommend studying the art from artists, Nature is and must be the fountain which alone is inexhaustible, and from which all excellences must originally flow.
+ - Poetry operates by raising our curiosity, engaging the mind by degrees to take an interest in the event, keeping that event suspended, and surprising at last with an unexpected catastrophe.
+ - The first degree of proficiency is, in painting, what grammar is in literature, a general preparation for whatever the student may afterward choose for more particular application. The power of drawing, modeling, and using colors, is very properly called the language of the art.
+ - Could we teach taste or genius by rules, they would be no longer taste and genius.
+ - Whatever trips you make, you must still have nature in your eye...
+ - Simplicity is an exact mediumbetween too little and too much.
+ - An eye critically nice can only be formed by observing well-colored pictures with attention.
+ - What is a well-chosen collection of pictures, but walls hung round with thoughts?
+ - The young mind is pliable and imitates, but in more advanced states grows rigid and must be warmed and softened before it will receive a deep impression.
+ - Gardening as far as Gardening is Art, or entitled to that appellation, is a deviation from nature; for if the true taste consists, as many hold, in banishing every appearance of Art, or any traces of the footsteps of man, it would then be no longer a Garden.
+ - Though colour may appear at first a part of painting merely mechanical, yet it still has its rules, and those grounded upon that presiding principle which regulates both the great and the little in the study of a painter.
+ - The painter of genius will not waste a moment upon those smaller objects which only serve to catch the sense, to divide the attention, and to counteract his great design of speaking to the heart.
+ - Genius is supposed to be a power of producing excellences which are put of the reach of the rules of art: a power which no precepts can teach, and which no industry can acquire.
+ - I do not see in what manner practice alone can be sufficient for the production of correct, excellent, and finished pictures. Works deserving this character never were produced, nor ever will arise, from memory alone...
+ - Martial music has sudden and strongly marked transitions from one note to another which that style of music requires; while in that which is intended to move the softer passions, the notes imperceptibly melt into one another.
+ - Words should be employed as the means, not the end; language is the instrument, conviction is the work.
+ - Nothing can be made of nothing; he who has laid up no material can produce no combination.
+ - What has pleased and continues to please, is likely to please again; hence are derived the rules of art, and on this immovable foundation they must ever stand.
+ - The great use of copying, if it be at all useful, should seem to be in learning color; yet even coloring will never be perfectly attained by servilely copying the model before you.
+ - I have heard painters acknowledge, though in that acknowledgment no degradation of themselves was intended, that they could do better without nature than with her; or as they express themselves, ’that it only put them out.
+ - The true test of all the arts is not solely whether the production is a true copy of nature, but whether it answers the end of art, which is to produce a pleasing effect upon the mind.
+ - All the gestures of children are graceful; the reign of distortion and unnatural attitudes commences with the introduction of the dancing master.
+ - There can be no doubt but that he who has the most materials has the greatest means of invention...
+ - The greatest man is he who forms the taste of a nation; the next greatest is he who corrupts it.
+ - However minutely labored the picture may be in the detail, the whole will have a false and even an unfinished appearance, at whatever distance, or in whatever light it can be shown.
+ - Reform is a work of time; a national taste, however wrong it may be, cannot be totally changed at once.
+ - Let me recommend to you not to have too great dependence on your practice or memory, however strong those impressions may have been which are there deposited. They are forever wearing out, and will be at least obliterated, unless they are continually refreshed and repaired.
+ - You are never to lose sight of nature; the instant you do, you are all abroad, at the mercy of every gust of fashion, without knowing or seeing the point to which you ought to steer.
+ - Perhaps blue, red, and yellow strike the mind more forcibly from there not being any great union between them, as martial music, which is intended to rouse the nobler passions...
+ - Style in painting is the same as in writing; a power over materials, whether words or colors, by which conceptions or sentiments are conveyed.
+ - It is impossible that anything will be well understood or well done that is taken into a reluctant understanding, and executed with a servile hand.
+ - Few have been taught to any purpose who have not been their own teachers.
+ - And he who does not know himself does not know others, so it may be said with equal truth, that he who does not know others knows himself but very imperfectly.
+ - It is but a poor eloquence which only shows that the orator can talk.
+ - Every art, like our own, has in its composition fluctuating as well as fixed principles. It is an attentive inquiry into their difference that will enable us to determine how far we are influenced by custom and habit, and what is fixed in the nature of things.
+
+61 quotes

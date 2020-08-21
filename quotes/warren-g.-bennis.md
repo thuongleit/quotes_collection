@@ -1,0 +1,76 @@
+ - Leadership is the capacity to translate vision into reality.
+ - In life, change is inevitable. In business, change is vital.
+ - Success in management requires learning as fast as the world is changing.
+ - Leadership is like beauty – it’s hard to define but you know it when you see it.
+ - Leadership is a function of knowing yourself, having a vision that is well communicated, building trust among colleagues, and taking effective action to realize your own leadership potential.
+ - Becoming a leader is synonymous with becoming yourself. It is precisely that simple, and it is also that difficult.
+ - Good leaders make people feel that they’re at the very heart of things, not at the periphery. Everyone feels that he or she makes a difference to the success of the organization. When that happens people feel centered and that gives their work meaning.
+ - Leaders learn by leading, and they learn bestby leading in the face of obstacles. As weather shapes mountains, problems shape leaders.
+ - Don’t over-react to the trouble makers.
+ - Trust resides squarely between faith and doubt.
+ - Without a terrific leader, you’re not going to have a Great Group. But it is also true that you’re not going to have a great leader without a Great Group.
+ - It is the capacity to develop and improve their skills that distinguishes leaders from followers.
+ - Leaders do not avoid, repress, or deny conflict, but rather see it as an opportunity.
+ - Trust is the emotional glue that binds followers and leaders together.
+ - More leaders have been made by accident, circumstance, sheer grit, or will than have been made by all the leadership courses put together.
+ - While great leaders may be as rare as great runners, great actors, or great painters, everyone has leadership potential, just as everyone has some ability at running, acting, and painting.
+ - In order to serve its purpose, a vision has to be a shared vision.
+ - Who succeeds in forming and leading a Great Group? He or she is almost always a pragmatic dreamer. They are people who get things done, but they are people with immortal longings. Often, they are scientifically minded people with poetry in their souls.
+ - You are your own raw material. When you know what you consist of and what you want to make of it, then you can invent yourself.
+ - Leaders are people who do the right thing: managers are people who do things right. Both roles are crucial, but they differ profoundly. I often observe people in top positions doing wrong things well.
+ - Innovation- any new idea-by definition will not be accepted at first. It takes repeated attempts, endless demonstrations, monotonous rehearsals before innovation can be accepted and internalized by an organization. This requires courageous patience.
+ - Followers who tell the truth, and leaders who listen to it, are an unbeatable combination.
+ - Successful leadership is not about being tough or soft, sensitive or assertive, but about a set of attributes. First and foremost is character.
+ - Learning to be an effective leader is no different than learning to be an effective person. And that’s the hard part.
+ - I am reminded how hollow the label of leadership sometimes is and how heroic followership can be.
+ - Excellence is a better teacher than mediocrity.
+ - Create a compelling vision, one that takes people to a new place, and then translate that vision into a reality.
+ - Servant leadership teaches us that you have to lay your cards on the table.
+ - Leaders should always expect the very best of those around them. They know that people can change and grow.
+ - The learning person looks forward to failure or mistakes. The worst problem in leadership is basically early success.
+ - The most dangerous leadership myth is that leaders are born...
+ - The manager asks how and when; the leader asks what and why.
+ - Perhaps the central task of the leader of leaders thus becomes the development of other leaders.
+ - There is a profound difference between information and meaning.
+ - The new leader is one who commits people to action, who converts followers into leaders, and who may convert leaders into agents of change.
+ - Vision animates, inspires, transforms purpose into action.
+ - Leaders wonder about everything, want to learn as much as they can, are willing to take risks, experiment, try new things. They do not worry about failure but embrace errors, knowing they will learn from them.
+ - The basis of leadership is the capacity of the leader to change the mindset, the framework of the other person.
+ - Charisma is the result of effective leadership, not the other way around.
+ - The manager has a short-range view; the leader has a long-range perspective.
+ - If I had to reduce the responsibilities of a good follower to a single rule, it would be to speak truth to power.
+ - Power is the basic energy needed to initiate and sustain action or, to put it another way, the capacity to translate intention into reality and sustain it. Leadership is the wise use of this power: Transformative leadership.
+ - Find the appropriate balance of competing claims by various groups of stakeholders. All claims deserve consideration but some claims are more important than others.
+ - Listening to the inner voice – trusting the inner voice – is one of the most important lessons of leadership.
+ - Recognize the skills and traits you don’t possess, and hire the people who have them.
+ - Unlike top management at Enron, exemplary leaders reward dissent. They encourage it. They understand that, whatever momentary discomfort they experience as a result of being told they might be wrong, it is more than offset by the fact that the information will help them make better decisions.
+ - Leaders are people who believe so passionately that they can seduce other people into sharing their dream.
+ - The manager administers; the leader innovates.
+ - Leadership has become a heavy industry. Concern and interest about leadership development is no longer an American phenomenon. It is truly global. Though I will probably be in less demand, I wanted to move on.
+ - Government is like an onion. To understand it, you have to peel through many different layers. Most outsiders never get beyond the first or second layer.
+ - If you’re the leader, you’ve got to give up your omniscient and omnipotent fantasies – that you know and must do everything. Learn how to abandon your ego to the talents of others.
+ - Our tendency to create heroes rarely jibes with the reality that most nontrivial problems require collective solutions.
+ - The opposite of hope is despair, and when we despair, it is because we feel there are no choices.
+ - If knowing yourself and being yourself were as easy to do as to talk about, there wouldn’t be nearly so many people walking around in borrowed postures, spouting secondhand ideas, trying desperately to fit in rather than to stand out.
+ - Trust is difficult to define, but we know when it’s present and when it’s not.
+ - I wanted the influence. In the end I wasn’t very good at being a president. I looked out of the window and thought that the man cutting the lawn actually seemed to have more control over what he was doing.
+ - The future has no shelf life.
+ - A passion for continual learning, a refined, discerning ear for the moral and ethical consequences of their actions, and an understanding of the purposes of work and human organisations.
+ - Make sure you have someone in your life from whom you can get reflective feedback.
+ - A leader is someone whose actions have the most profound consequences on other people’s lives, for better or worse, sometime forever and ever.
+ - If I were to give off-the-cuff advice to anyone trying to institute change, I would say, “How clear is the metaphor?”
+ - Around the world, the generals are being ousted, and the poets are taking charge.
+ - I used to think that running an organization was equivalent to conducting a symphony orchestra. But I don’t think that’s quite it; it’s more like jazz. There is more improvisation.
+ - Great Groups need to know that the person at the top will fight like a tiger for them.
+ - That’s nonsense; in fact, the opposite is true. Leaders are made rather than born.
+ - Ineffective leaders often act on the advice and counsel of the last person they talked to.
+ - What job is worth the enormous psychic cost of following a leader who values loyalty in the narrowest sense.
+ - Companies which get misled by their own success are sure to be blind sided.
+ - People who know what they want and why they want it, and have the skills to communicate that to others in a way that gains support.
+ - The ability to plan for what has not yet happened, for a future that has only been imagined, is one of the hallmarks of leadership.
+ - You need people who can walk their companies into the future rather than back them into the future.
+ - Successful leaders are great askers.
+ - Just as no great painting has ever been created by a committee, no great vision has ever emerged from the herd.
+ - Growing other leaders from the ranks isn’t just the duty of the leader, it’s an obligation.
+
+74 quotes

@@ -1,0 +1,42 @@
+ - There is no such dichotomy as ‘human rights’ versus ‘property rights.’ No human rights can exist without property rights. ~~Ayn Rand
+ - Peace is more than just an absence of war. True peace is justice, true peace is freedom, and true peace dictates the recognition of human rights. ~~Ronald Reagan
+ - Men should not petition for rights, but take them. ~~Thomas Paine
+ - It does not matter what country we live in, who our leaders are, or even who we are. Because we are human, we therefore have rights. And because we have rights, governments are bound to protect them. ~~Hillary Clinton
+ - All human beings are born free and equal in dignity and rights... ~~Eleanor Roosevelt
+ - A human being has no natural rights of any nature. ~~Robert A. Heinlein
+ - Respect for human rights is not social work; it is not merely an act of compassion. It is the first obligation of government and the source of its legitimacy. ~~Ronald Reagan
+ - Individual rights are not subject to a public vote; a majority has no right to vote away the rights of a minority. ~~Ayn Rand
+ - Liberty is meaningless where the right to utter one’s thoughts and opinions has ceased to exist. That, of all rights, is the dread of tyrants. It is the right which they first of all strike down. ~~Frederick Douglass
+ - Coffee is a way of stealing time that should by rights belong to your older self. ~~Terry Pratchett
+ - The destiny of human rights is in the hands of all our citizens in all our communities. ~~Eleanor Roosevelt
+ - The highest result of education is tolerance. Long ago men fought and died for their faith; but it took ages to teach them the other kind of courage, – the courage to recognize the faiths of their brethren and their rights of conscience. ~~Helen Keller
+ - Where, after all, do universal human rights begin? In small places, close to home. ~~Eleanor Roosevelt
+ - People tend to forget their duties but remember their rights. ~~Indira Gandhi
+ - Insurrection is the most sacred of rights and the most indispensable of duties. ~~Marquis de Lafayette
+ - A man’s rights are not violated by a private individual’s refusal to deal with him. ~~Ayn Rand
+ - Democracy, like liberty, justice and other social and political rights, is not “given”, it is earned through courage, resolution and sacrifice. ~~Aung San Suu Kyi
+ - We are all one family in the world. Building a community that empowers everyone to attain their full potential through each of us respecting each other’s dignity, rights and responsibilities makes the world a better place to live. ~~Pope John Paul II
+ - Genuine tragedies in the world are not conflicts between right and wrong. They are conflicts between two rights. ~~Georg Wilhelm Friedrich Hegel
+ - It takes more than a college degree to make one a person of education. Any person who is educated is one who has learned to get whatever he wants in life without violating the rights of others. ~~Napoleon Hill
+ - Freedom and Property Rights are inseparable. You can’t have one without the other. ~~George Washington
+ - Some values must be universal, like human rights and the equal worth of every human being. ~~Björn Ulvaeus
+ - If you want to know where you would have stood on slavery before the Civil War, don’t look at where you stand on slavery today. Look at where you stand on animal rights. ~~Paul Watson
+ - I believe in animal rights, human rights, land rights, water rights, air rights. ~~Rod Coronado
+ - For what people have always sought is equality before the law. For rights that were not open to all alike would be no rights. ~~Marcus Tullius Cicero
+ - We don’t need lists of rights and wrongs, tables of do’s and don’ts: we need books, time, and silence. Thou shalt not is soon forgotten, but Once upon a time lasts forever. ~~Philip Pullman
+ - If a group of beings from another planet were to land on Earth – beings who considered themselves as superior to you as you feel yourself to be to other animals – would you concede them the rights over you that you assume over other animals? ~~George Bernard Shaw
+ - Rights are not gifts from one man to another, nor from one class of men to another. It is impossible to discover any origin of rights otherwise than in the origin of man; it consequently follows that rights appertain to man in right of his existence, and must therefore be equal to every man. ~~Thomas Paine
+ - Two rights don’t equal a left. ~~Roald Dahl
+ - I chose to defend human rights because I cannot maintain my silence in the face of injustice. ~~Chen Guangcheng
+ - Democracy, the practice of self-government, is a covenant among free men to respect the rights and liberties of their fellows. ~~Franklin D. Roosevelt
+ - The freedom to make and remake our cities and ourselves is, I want to argue, one of the most precious yet most neglected of our human rights. ~~David Harvey
+ - The end does not justify the means. No one’s rights can be secured by the violation of the rights of others. ~~Ayn Rand
+ - If the abuse be enormous, nature will rise up, and claiming her original rights, overturn a corrupt political system. ~~Samuel Johnson
+ - No freedom is secure if your property rights are not secure. ~~Neal Boortz
+ - Something out of the ordinary course of business is taking place that creates an investment opportunity. The list of corporate events that can result in big profits for you runs the gamut – spinoffs, mergers, restructurings, rights offerings, bankruptcies, liquidations, asset sales, distributions. ~~Joel Greenblatt
+ - America’s founding Ideal was the principle of individual rights. Nothing more – and nothing less. ~~Ayn Rand
+ - The bottom line is that you only have the rights you fight for. ~~Tim Ferriss
+ - A government is the most dangerous threat to man's rights: it holds a legal monopoly on the use of physical force against legally disarmed victims. ~~Ayn Rand
+ - True peace must be anchored in justice and an unwavering commitment to universal rights for all humans, regardless of ethnicity, religion, gender, national origin or any other identity attribute. ~~Desmond Tutu
+
+40 quotes

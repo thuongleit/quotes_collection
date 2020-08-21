@@ -1,0 +1,42 @@
+ - Far away, to an infinite world I escape. I’m clear and calm, I’m unafraid. Sunless days, in my sheltered milkyway. In Saturn’s rings I feel no pain.
+ - I think it’s important to find the little things in everyday life that make you happy.
+ - Thank God I have music to vent my emotions. I’d be in a prison if I didn’t.
+ - You make me feel like a candy apple, red and horny.
+ - I am searching for the truth. Somewhere, it’s in the music.
+ - The monsters are in your own head.
+ - Welcome to the church of me.
+ - I want to sit with my legs wide open and laugh so loud that the whole damn restaurant turns and looks at me.
+ - I’m raising my daughter with her grandparents in the picture, and that feels good.
+ - Feminists were psyched that I had armpit hair.
+ - I’d love to act. I feel that it’s another naked, mysterious challenge, like jazz. It kind of intrigues me in the same way.
+ - Didgeridoo was something I picked up while I was on tour in Australia with Peter Gabriel in ’93. I found out later that it’s only meant to be played by men.
+ - And she is your holy Mary. And I am so ordinary.
+ - I’m a songwriter who’s put my childhood memories and teenage angst into songs.
+ - I wore Nietzsche’s eyes. Now that I step back to see, I haven’t been me.
+ - I wanted to be a cheerleader, like my sister was – all the most popular and beautiful girls are cheerleaders and I wanted that, and it demolished this vision of myself. That’s when I found the piano, when music saved me; that’s when I first attempted to write my own songs.
+ - Our planet is a tiny atom in god’s kingdom.
+ - At the age of 15 months my daughter was diagnosed with very bad asthma, and essentially I put my career on hold for a good eight years.
+ - I’ve left Bethlehem, and I feel free. I’ve left the girl I was supposed to be, and some day I’ll be born.
+ - When you’re a plebeian you want success, and when you’re successful you want to be a plebeian again.
+ - The flower has opened, has been in the sun and is unafraid. I’m taking more chances; I’m bold and proud.
+ - Just watching my cats can make me happy.
+ - The river was always there inside of me, but I was very shy. I could see that this was my path. I felt destiny in my own music.
+ - For me music is a vehicle to bring our pain to the surface, getting it back to that humble and tender spot where, with luck, it can lose its anger and become compassion again.
+ - I like women who can throw a ball and laugh loud and have some spine, and I like men who don’t mind cooking dinner.
+ - If not for music, I would probably be a very frustrated scientist. It’s one way to answer the question, ‘What is the meaning of life?’ I feel music answers it better.
+ - I’m accepting I’m not living that younger, dreamed version of myself in the big city.
+ - I was curious and hungry at a young age, and jazz was such a mystery to me, an ocean where you can express yourself in the moment. It represented freedom, it represented wearing wings and going somewhere with music.
+ - Being a writer is a very private, internal process. Ultimately I am more the writer, being an introvert.
+ - I don’t like to sit and bask in my own awards. Awards represent artistic death to me.
+ - I like doing the crossword puzzle in the New York Times, not watching E! on TV.
+ - But at the age of 44, I sure hope to be a better businesswoman. I want to get the music straight to my fans.
+ - I hope and believe we are paving a better future for female artists to come.
+ - I see my albums as working diaries, as living scrapbooks of me and my life.
+ - I’m used to adversity and working really well in difficult situations. It was hard for me to accept the success.
+ - But looking back, the fact was that I had a couple of big hits too quickly and it was simply too much for an introvert like me to handle.
+ - I think of my shows as family reunions. I give 100% every time. I just do. It’s a huge therapeutic release. Also I love my touring family. And I love my audiences very much.
+ - The older I get, the more I see that there really aren’t huge zeniths of happiness or a huge abyss of darkness as much as there used to be. I tend to walk a middle ground.
+ - I’m glad I made a piece of art that can be interpreted so widely. Art is always interpreted subjectively.
+ - Hitler’s brothers are on the rise, they’re wearing everyday disguises.
+
+40 quotes

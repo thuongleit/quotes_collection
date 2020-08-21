@@ -1,0 +1,23 @@
+ - The heart and soul of the company is creativity and innovation.
+ - I think it is incredibly important to be open and accessible and treat people fairly and look them in the eye and tell them what is on your mind.
+ - I get up at 4:30 in the morning, seven days a week, no matter where I am in the world.
+ - What I’ve really learned over time is that optimism is a very, very important part of leadership.
+ - People don’t like to follow pessimists.
+ - And it’s only the beginning of a new era of exceptional Star Wars storytelling; next year we’ll release our first standalone movie based on these characters, followed by Star Wars: Episode VIII in 2017, and we’ll finish this trilogy with Episode IX in 2019.
+ - Keeping it simple for the consumer is incredibly dire.
+ - People go to Disney because they know its brand attributes. We believe we have an opportunity to go with our content directly to consumers.
+ - I ride a bike and use aerobic equipment twice a week, and work out with a trainer, lifting weights.
+ - I began as a weatherman and I learned very quickly I wasn’t very good at it.
+ - It’s in our best interest to put some of the old rules aside and create new ones and follow the consumer-what the consumer wants and where the consumer wants to go.
+ - I drive myself to and from work. I love the privacy.
+ - Steve Jobs was a great friend as well as a trusted advisor. His legacy will extend far beyond the products he created or the businesses he built. It will be the millions of people he inspired, the lives he changed, and the culture he defined.
+ - I had worked at Disney since they bought the company that I had worked for, ABC in the mid-90s.
+ - If we give people the ability to buy a lot more because they can store a lot more, for a company that creates TV shows and movies, that’s fantastic.
+ - People still love a good story, and I don’t think that will change.
+ - Sometimes I feel like I’m a contestant in a reality show that probably would be called The Apprentice Survivor Millionaire.
+ - I have a fondness for jazz, particularly for jazz singers, Billie Holiday and Ella Fitzgerald all the way through the Sinatra era.
+ - We’re delighted to be working with Apple to offer fans a new and innovative way to experience our wildly popular shows.
+ - I started off wanting very much to be a newscaster.
+ - I think it is important for people who are given leadership roles to assume that role immediately.
+
+21 quotes

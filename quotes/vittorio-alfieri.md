@@ -1,0 +1,26 @@
+ - Often the test of courage is not to die but to live.
+ - There is a silence, the child of love, which expresses everything, and proclaims more loudly than the tongue is able to do; there are movements that are involuntary proofs of what the soul feels.
+ - Joy surfeited turns to sorrow.
+ - Deep vengeance is the daughter of deep silence.
+ - First thoughts are not always the best.
+ - That blood which thou hast spill’d, should join you closely in an eternal bond.
+ - Heaven takes care that no man secures happiness by crime.
+ - To err is human; but contrition felt for the crime distinguishes the virtuous from the wicked.
+ - The talent of making friends is not equal to the talent of doing without them.
+ - Sometimes blood, for the sake of sparing it, is spilled.
+ - Original thoughts can be understood only in virtue of the unoriginal elements which they contain.
+ - A usurper always distrusts the whole world.
+ - I had seen the great, but I had not seen the small.
+ - Where there are laws, he who has not broken them need not tremble.
+ - For ’tis impossible Hate to return with love.
+ - Joy, when it is excessive, overcomes as much as grief.
+ - Disgrace does not consist in the punishment, but in the crime.
+ - Thou knowest not the endless artifices of a court. Invented crimes are often there alleged; but real ones, and those especially, which may offend his pride, are oftentimes not to a king divulged.
+ - The time for hope is gone, and come for fear.
+ - The guilty is he who meditates a crime; the punishment is his who lays the plot.
+ - Alas, ’tis force alone that can compel to virtuous actions a degenerate people.
+ - A conquering king will banish from his breast hatred towards one whom he no longer fears.
+ - If ardent passions push not men on to lofty enterprise, calm wisdom never will accomplish it.
+ - Necessity inspires the fatal thought.
+
+24 quotes

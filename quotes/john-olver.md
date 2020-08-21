@@ -1,0 +1,21 @@
+ - Since 1850, burning of fossil fuels, coal, oil and natural gas has increased 100 times to produce energy as the world has industrialized to serve the world’s more than 6 billion and growing population.
+ - America has lost the moral high ground with the rest of the world, and we have fewer allies as a result. President Bush and his administration have undermined the war on terror by using tactics outlawed by international treaty and condemned by even our closest friends.
+ - As a scientist, my attention became totally focused on global warming some 15 years ago by the elegant and powerful measurements of carbon dioxide trapped in ice cores taken as much as 2 miles deep from the great East Antarctica ice sheet.
+ - The industrialization of China alone would increase by 90 percent the concentration of CO2 in our atmosphere and would at least increase the atmospheric CO2 by at least another 100 parts per million.
+ - President Bush’s war on Iraq is viewed broadly in Islamic communities as an attack on Islam, and thus the President has alienated a large part of one fifth of the world’s population.
+ - America has also forever lost the service of thousands of good soldiers who are now disabled as a result of battle wounds in Iraq. Many others will need mental and emotional rehabilitation before they can return to normal life.
+ - In this age of globalization, instant real time media and television, everyone all over the world realizes that high energy usage equates with a high standard of living and wealth.
+ - Yet, if we accept the solution offered today by this bill to explore and develop for oil on the coastal plain of ANWR, it will be 5 years, at least, and probably closer to 8 before the first barrel of oil flows from that effort.
+ - The most extreme individuals and factions in Islamic countries are now more motivated than ever to kill Americans, and the number of potential terrorists has greatly expanded.
+ - The military’s own report says that one-third of deaths and casualties could have been avoided if proper body armor and vehicle armor had been provided from the start of the war.
+ - In the remaining months, we should focus on achieving more robust international involvement in training of Iraqi soldiers, police officers, judges, teachers, and doctors – all key elements needed to end the sectarian and civil conflict and build Iraq’s future.
+ - We all know we have a problem, a broad problem. Ninety-eight percent of the fuel that is used by our vehicles, our autos and trucks for personal and commercial purposes, for highway and air travel operates on oil. The world has the same problem.
+ - The scientists who do climate research understand that much of the ever increasing concentration of CO2 in the atmosphere since 1850 must be attributed to burning those fossil fuels to produce the energy that drives industrialization.
+ - So a truthful assessment of how America is doing in the war on terror as a result of President Bush’s war on Iraq is that we have been set back by decades.
+ - As this body of knowledge has evolved, a much more critical job for researchers and scientists has evolved into explaining and educating policy makers and the public to the risks of global warming and the possible consequences of action or of no action.
+ - We need to make it clear that we will withdraw from Iraq within 6 to 9 months – so that the Iraqis will know that they must stand up and defend the opportunity given to them.
+ - The incompetence regarding body and vehicle armor rises almost to a level of criminal negligence.
+ - Americans were told repeatedly by President Bush and Vice President Cheney that Iraq had weapons of mass destruction. None were ever found.
+ - The conduct of President Bush’s war of choice has been plagued with incompetent civilian leadership decisions that have cost many lives and rendered the war on and occupation of Iraq a strategic policy disaster for the United States.
+
+19 quotes

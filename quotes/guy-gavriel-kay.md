@@ -1,0 +1,44 @@
+ - There are no wrong turnings. Only paths we had not known we were meant to walk.
+ - The deeds of men, as footprints in the desert. Nothing under the circling moons is fated to last. Even the sun goes down.
+ - You have to be afraid for it to count as bravery.
+ - When I was 18 years old, in a more innocent time, my first backpacking trip through Europe, I sneaked into the Temple of Saturn in the Roman Forum after nightfall and spent several hours in there avoiding the guards patrolling.
+ - Eanna love us, Adaon preserve us, Morian guard our souls.
+ - I will not say I am sorry, but I can tell you that I grieve.
+ - Liu Fang is a truly gifted, world-famous player of the pipa and the guzheng, classical Chinese stringed instruments.
+ - We are the total of our longings.
+ - We must be what we are, or we become our enemies.
+ - Ice is for death and endings.
+ - A hand fought best when it made a fist.
+ - Irritation for some men was their response to strain.
+ - It was different, though, knowing something in your thoughts and then hearing it confirmed, made real, planted in the world like a tree.
+ - Weariness, sometimes more than anything else, can bring an end to war.
+ - But if you couldn’t do everything, did that mean you did nothing?
+ - How we remember changes how we have lived. Time runs both ways. We make stories of our lives.
+ - Some writers later, describing the events of that night and day, wrote that Wan’yen of the Altai had seen a spirit-dragon of the river and become afraid. Writers do that sort of thing. They like dragons in their tales.
+ - In this world, where we find ourselves, we need compassion more than anything, I think, or we are all alone.
+ - Sometimes you didn’t really arrive at a conclusion about your life, you just discovered that you already had.
+ - She was owner and captive, both, of a bitterly divided heart.
+ - Words were power, words tried to change you, to shape bridges of longing that no one could ever really cross.
+ - We salvage what we can, what truly matters to us, even at the gates of despair.
+ - What man would dare believe that all he planned might come to pass?
+ - As many have noted, the peril for authors is that our work space is too easily our play space.
+ - One didn’t stop to talk with creatures from one’s nightmares.
+ - Why did becoming accustomed to something have to render its pleasures stale.
+ - What mortal knew the way their fate line would run?
+ - By things so achingly small are lives measured and marred.
+ - One man sees a riselka: his life forks there. Two men see a riselka: one of them shall die. Three men see a riselka: one is blessed, one forks, one shall die.
+ - Writing is never, ever easy but I wake up every morning grateful for the gift of being able to do this.
+ - You’d never killed anyone. Then you had.
+ - Dave hung up. And unplugged the phone. With a fierce and bitter pain he stared at it, watching how, over and over again, it didn’t ring.
+ - There are kinds of action, for good or ill, that lie so far outside the boundaries of normal behavior that they force us, in acknowledging that they have occurred, to restructure our own understanding of reality. We have to make room for them.
+ - It can be hard to write a skillfully entertaining fiction, but a great book wants to be more, and wants more from us.
+ - There was some sadness in how that could happen, falling out of love with something that had shaped you. Or even people who had.
+ - The military preferred – invariably – those who could be readily defined, assigned roles, understood, and controlled.
+ - Men made wagers with their judgment, their allegiances, their resources.
+ - It is always difficult, even with the best will in the world, to look back a long way and see anything resembling the truth.
+ - She had been a solitary child, and then solitary as a woman, drawn into an orbit of her own that took her away from others, even those who would be her friends.
+ - I have always argued, in a good novel, interesting things happen to interesting people.
+ - After a while, you start to realize that you should write a book you would want to read. I try to write a book I would enjoy.
+ - Lazy poets try to elicit a reader’s response with words designed to tug at the heart.
+
+42 quotes

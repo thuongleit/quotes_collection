@@ -1,0 +1,62 @@
+ - To be beautiful means to be yourself. You don’t need to be accepted by others. You need to accept yourself.
+ - Waking up this morning, I smile. Twenty-four brand new hours are before me. I vow to live fully in each moment and to look at all beings with eyes of compassion.
+ - Smile, breathe and go slowly.
+ - Breathing in, I calm body and mind. Breathing out, I smile. Dwelling in the present moment I know this is the only moment.
+ - We are here to awaken from our illusion of separateness.
+ - Letting go gives us freedom, and freedom is the only condition for happiness. If, in our heart, we still cling to anything – anger, anxiety, or possessions – we cannot be free.
+ - Life is available only in the present moment.
+ - Compassion is a verb.
+ - Thanks to impermanence, everything is possible.
+ - You must love in such a way that the person you love feels free.
+ - When another person makes you suffer, it is because he suffers deeply within himself, and his suffering is spilling over. He does not need punishment; he needs help. That’s the message he is sending.
+ - Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor.
+ - Our own life has to be our message.
+ - I promise myself that I will enjoy every minute of the day that is given me to live.
+ - Because of your smile, you make life more beautiful.
+ - The most precious gift we can offer anyone is our attention. When mindfulness embraces those we love, they will bloom like flowers.
+ - The secret of Buddhism is to remove all ideas, all concepts, in order for the truth to have a chance to penetrate, to reveal itself.
+ - The past is gone, the future is not yet here, and if we do not go back to ourselves in the present moment, we cannot be in touch with life.
+ - Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy.
+ - The wave does not need to die to become water. She is already water.
+ - Only the present moment contains life.
+ - My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground on which I stand.
+ - In mindfulness one is not only restful and happy, but alert and awake. Meditation is not evasion; it is a serene encounter with reality.
+ - Walk as if you are kissing the Earth with your feet.
+ - If in our daily life we can smile, if we can be peaceful and happy, not only we, but everyone will profit from it. This is the most basic kind of peace work.
+ - Drink your tea slowly and reverently, as if it is the axis on which the world earth revolves – slowly, evenly, without rushing toward the future.
+ - Breath is the bridge which connects life to consciousness, which unites your body to your thoughts. Whenever your mind becomes scattered, use your breath as the means to take hold of your mind again.
+ - For things to reveal themselves to us, we need to be ready to abandon our views about them.
+ - If we do not know how to take care of ourselves and to love ourselves, we cannot take care of the people we love. Loving oneself is the foundation for loving another person.
+ - In true love, you attain freedom.
+ - Usually when we hear or read something new, we just compare it to our own ideas. If it is the same, we accept it and say that it is correct. If it is not, we say it is incorrect. In either case, we learn nothing.
+ - The true miracle is not walking on water or walking in air, but simply walking on this earth.
+ - Understanding means throwing away your knowledge.
+ - The mind can go in a thousand directions, but on this beautiful path, I walk in peace. With each step, the wind blows. With each step, a flower blooms.
+ - Peace is present right here and now, in ourselves and in everything we do and see. Every breath we take, every step we take, can be filled with peace, joy, and serenity. The question is whether or not we are in touch with it. We need only to be awake, alive in the present moment.
+ - I am determined to practice deep listening. I am determined to practice loving speech.
+ - There is no enlightenment outside of daily life.
+ - Breathing in, there is only the present moment. Breathing out, it is a wonderful moment.
+ - It is my conviction that there is no way to peace – peace is the way.
+ - When we are mindful, deeply in touch with the present moment, our understanding of what is going on deepens, and we begin to be filled with acceptance, joy, peace and love.
+ - If you love someone but rarely make yourself available to him or her, that is not true love.
+ - The seed of suffering in you may be strong, but don’t wait until you have no more suffering before allowing yourself to be happy.
+ - At any moment, you have a choice, that either leads you closer to your spirit or further away from it.
+ - If we are not fully ourselves, truly in the present moment, we miss everything.
+ - When you say something really unkind, when you do something in retaliation your anger increases. You make the other person suffer, and he will try hard to say or to do something back to get relief from his suffering. That is how conflict escalates.
+ - The source of love is deep in us and we can help others realize a lot of happiness. One word, one action, one thought can reduce another person’s suffering and bring that person joy.
+ - In true dialogue, both sides are willing to change.
+ - Our notions about happiness entrap us. We forget that they are just ideas. Our idea of happiness can prevent us from actually being happy. We fail to see the opportunity for joy that is right in front of us when we are caught in a belief that happiness should take a particular form.
+ - We have more possibilities available in each moment than we realize.
+ - The miracle is not to walk on water. The miracle is to walk on the green earth, dwelling deeply in the present moment and feeling truly alive.
+ - If you look deeply into the palm of your hand, you will see your parents and all generations of your ancestors. All of them are alive in this moment. Each is present in your body. You are the continuation of each of these people.
+ - If you suffer and make your loved ones suffer, there is nothing that can justify your desire.
+ - Each moment is a chance for us to make peace with the world, to make peace possible for the world, to make happiness possible for the world.
+ - It is possible to live twenty-four hours a day in a state of love. Every movement, every glance, every thought, and every word can be infused with love.
+ - It is said that God has created man in his own image. But it may be that humankind has created God in the image of humankind.
+ - Attachment to views is the greatest impediment to the spiritual path.
+ - By eating meat we share the responsibility of climate change, the destruction of our forests, and the poisoning of our air and water. The simple act of becoming a vegetarian will make a difference in the health of our planet.
+ - Until there is peace between religions, there can be no peace in the world.
+ - As long as you find something beautiful, good, and true to believe in and abide by, you have the equivalent of God in your life.
+ - Being vegetarian here also means that we do not consume dairy and egg products, because they are products of the meat industry. If we stop consuming, they will stop producing. Only collective awakening can create enough determination for action.
+
+60 quotes

@@ -1,0 +1,35 @@
+ - I have arrived, and the spotlight is on me, honey!
+ - Let me get you to understand I don’t bully anybody. I stand up for what I believe in and I’m very honest and I always tell the truth. I’m not a liar, I’m not manipulative and I don’t stab you in your back because I will stab you in your chest.
+ - Why be so nasty and so rude, when I can be so fierce and so successful.
+ - I don’t keep up with the Joneses, I am the Joneses.
+ - I think that everyone is saying all kinds of things about ‘rich.’ Not only am I rich from doing some of things I’ve been able to do, but I’m rich in spirit. I’m rich in health. I’m rich in every way possible.
+ - I know I’m not a bully and everybody has their opinions and that’s fine with me.
+ - Close your legs to married men!
+ - I’m a size 10. I could be a size 8 if i wanted to, but i’m effin hungry.
+ - When I walk into the room, I own it!
+ - I wouldn’t want to do a ‘Maury Povich’ show. Baby daddy! Who’s your daddy? Who’s your mama? I wouldn’t want to do that kind of show.
+ - When you watch these reality shows, the person that is hated on the most is usually the one that gets the most shine.
+ - Because I’m shooting ‘The New Normal’ and ‘Real Housewives of Atlanta’ at the same time, so my schedule is double. I leave one show and go and shoot the other. The cameras are with me for, like, every day of my life. So I’m extremely tired.
+ - I have a glam-baby. Let’s be correct, now. I’m way too young and too fabulous to be a grandma. I’m a glam-mom.
+ - I’m just not into trying to convince people like me. I always say to myself, ‘It is what it is.’ I walk into a situation knowing that people are either going to love me or they’re not, and that’s OK. I’m just going to be me. You can’t be everything to everyone.
+ - I feel like strength comes from within. And like everything that I am and experience make you strong. And I’ve been through so many things in my life and those things have taught me. I’m one of those girls, every experience, I learned from my experience.
+ - I am obsessed with trash TV. I watch all reality shows. I watch all the ‘Housewives.’ I am a huge fan of ‘New Jersey.’
+ - I feel like I’ve come off as an outspoken woman. Sometimes I think I’ve come off as confrontational. But I feel like it’s been pretty fair. Those are parts of me.
+ - Every year for New Years I write down all of my goals and dreams and put them in my Bible. At the end of the year I go and pull the paper out and check this off and check that off.
+ - I don’t know what reality television does, but it breaks up relationships.
+ - Well, you know, I love being an entrepreneur and when I did ‘Celebrity Apprentice’ with Mr. Trump, he taught us a lot about starting businesses.
+ - I love talk shows and hosting. I would want to do something like that. I’m not sure I would want to be a reality star continuously.
+ - My first film was with Cuba Gooding Jr, ‘The Fighting Temptations,’ and I had a little part here and there on little shows as guest stars. And I’ve taken acting classes.
+ - I don’t have anything to hide. And for the record, I am not against plastic surgery. I believe that any woman that wants to do anything or fix anything that bothers her – if she’s doing it for herself – I’m all for it.
+ - Teen Moms! I started watching them like the first two seasons, and I stopped. I stopped because they are too young. I feel sorry for them. And I didnt watch that show Hoarders. That thing would made my skin crawl.
+ - Not only did I come out as a reality star that was very boisterous and vivacious and outspoken and all those things. I flipped that into money and respect. And a lot of people can’t do that.
+ - I am here now, because I am supposed to be here. And I guess when it is my time to cross over there, I will be over there. I am not religious, but I am spiritual, honey. My day is coming!
+ - I’m just a real person and I tell it like it is. I don’t have a lot of secrets, which has been a fault of mine.
+ - I don’t get star-stuck. I love Angelina Jolie, though.
+ - I’ve heard that I’ve gotten a lighter complexion, as if I’ve bleached my skin. I think that is so stupid and ludicrous. For those who want to bleach their skin, that’s fine. I just didn’t bleach mine. I’m a black woman. I don’t want to be anything but a black woman.
+ - I was very popular in high school.
+ - I would love to be a guest on a talk show or a panel that shows women who have been on reality shows who’ve had success, to prove to audiences that you don’t have to be a fool to become successful.
+ - There are so many reality shows on now where they want you to be crazy, the girls are just going bananas; you know how they portray brown girls. They portray us in a different type of light.
+ - I like the Kardashians. I’m a fan. I watch their show.
+
+33 quotes

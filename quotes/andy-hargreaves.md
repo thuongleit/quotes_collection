@@ -1,0 +1,99 @@
+ - Teachers who believe they can make a real difference in their students lives REALLY do.
+ - On assessment: measure what you value instead of valuing only what you can measure.
+ - Change is easy to propose, hard to implement, and especially hard to sustain.
+ - Don’t raise the bar and narrow the gap, but narrow the gap to raise the bar.
+ - Teaching is a passionate profession.
+ - Too many professional development initiatives are done to teachers – not for, with or by them.
+ - There is no algorithm for creativity.
+ - Education leaders must have the will at times to release leadership to the teachers the parents and the students.
+ - Courageous leadership is not fearless leadership. What makes you a leader is how you deal with your fears.
+ - Teachers create and transform energy. They are the dynamos of educational change.
+ - Every solution has a problem.
+ - What we want for our students we should want for our teachers: learning, challenge, support, and respect.
+ - On school culture: It’s hard to eat something you’ve had a relationship with.
+ - Teaching is a never-ending story. The work is never over; the job is never done.
+ - High performance leaders capitalize on crises to galvanize the motivation and actions of people in the organization.
+ - If we’re all on the same page, no one’s reading the whole book.
+ - All teachers are already leaders. It’s in the nature of teaching.
+ - A successful school has to engage all the people, all the powers, and all the capacities within it.
+ - High performing organizations have cultures of creativity and risk. They encourage workers to innovate and play.
+ - Sustainable leadership does not compromise the future by expanding and accelerating too quickly in the present.
+ - Every learner has special needs.
+ - We need standards with flexibility, not standardization with force if we are to get the best from our teachers.
+ - We learn more from people who are different from us than ones who are the same.
+ - The most important emotion in classrooms is surprise.
+ - Walking makes us take problems in our stride.
+ - Schools often get the teachers they deserve!
+ - Adolescence is about digging out the iron inside irony.
+ - We must use collegiality not to level people down but to bring together their strength and creativity.
+ - One or two bad teachers is a problem with the teachers. A school with many bad teachers is a problem of leadership.
+ - When the purge of teacher individualism is unrestrained, eccentricity, initiative and individuality become the casualties.
+ - Capacity building originally meant helping people to help themselves. Now it means required training to deliver imposed policies.
+ - If one foot is in a bucket of steam, and the other is in a bucket of ice, you are not, on average, comfortable.
+ - The Common Curriculum can easily become the karaoke curriculum, where everyone just follows the bouncing ball of the script.
+ - In collaborative cultures, failure and uncertainty are not protected but shared and discussed to gain support.
+ - Lateral trust among colleagues is as important as vertical trust within the hierarchy.
+ - A brainscan cannot interpret itself and neither can a data dashboard in education.
+ - Teachers still command great respect in the families and societies of many Asian cultures.
+ - Total teachers aren’t perfect teachers.
+ - Blame and betrayal are the emotional enemies of improvement.
+ - Improvement is about doing something better; innovation is about doing something new.
+ - Students and their families carry more responsibility for student success in the East.
+ - Pompous asses knows how to put the moan in sanctimonious.
+ - We must never return to the Julie Andrews curriculum where we teach “a few of my favorite things”!
+ - Teachers who don’t pull their weight drag down the profession and their colleagues with it.
+ - On being: Arrogance is not the prerogative of the gifted.
+ - Although everyone wants to change the teacher, it’s time for the agents of educational reform to change themselves.
+ - In high performing countries, principals are working with highly qualified teachers who come from the top tiers of the graduation range, who have been rigorously prepared in universities and through supervised practice in schools, and who remain in education for all of their careers.
+ - Sustainable leadership does no harm to and actively improves the surrounding environment.
+ - Arrogance is the conjoined twin of ignorance.
+ - Human growth is not like rhubarb. It can be nurtured and encouraged but it cannot be forced.
+ - Teachers are always emotional: by default if they bore us, and by design when they excite us.
+ - We disagree with the assertion that great teachers can be replaced by online alternatives. The futuristic claim that technology will triumph over teachers ignores all the social and relational dimensions of teaching and learning.
+ - The teacher has more power than the Minister.
+ - The bags that teachers carry home symbolize their guilt about the endless care they have to give.
+ - On teacher education: induction into current mandates must not turn into seduction away from best practice.
+ - Trust processes as well as people.
+ - You cannot understand the teacher or their teaching without understanding the person the teacher is.
+ - It is not the time to put school districts up for auction. Now is the time to galvanize them into action.
+ - Singapore gives 10 percent ‘white space’ time to all of its teachers to come up with their own innovations outside of the official curriculum. This encourages teachers to turn to their colleagues for inspiration and ideas.
+ - Educational reforms are like ripe fruit. They rarely travel well.
+ - In Finland, within very broad government guidelines, teachers create their own curricula together across schools in every community and district. They don’t confine collaboration to their own individual schools and to just implementing other people’s ideas.
+ - Economic necessity should be the mother of educational invention.
+ - You cannot switch teachers on and off as if they were PowerPoint presentations.
+ - We should test prudently; not profligately.
+ - High performance leaders create an inspiring future by connecting with a classic and honorable past.
+ - Leadership is often the afterthought of educational change.
+ - Evaluation schemes that implicate 100% of the staff to detect a small % of incompetents are a waste of time.
+ - High performance leaders know they have to breathe out when they are coming up for air.
+ - Too often, shared visions really mean, “I have a vision; you share it!”
+ - Mentors turn into tormentors if they believe they are always right.
+ - Culture is the possibility and impossibility that bacon and fruit can appear on the same plate.
+ - Time is the enemy of freedom.
+ - We need to establish platforms for teachers to initiate their own changes and make their own judgments on the frontline, to invest more in the change capacities of local districts and communities, and to pursue prudent rather than profligate approaches to testing.
+ - Leadership is the cigarette that’s smoked once the change has been consummated.
+ - We will not achieve high performance in education if we replace teachers with machines or turn teachers into machines.
+ - Implementation of technological change must involve critics as well as advocates.
+ - When creativity is the goal, schools must have their own platforms to network and innovate.
+ - It’s time for the US to widen its circle of learning, not to circle its wagons against hostile ideas in education reform.
+ - In healthy individuals, emotions don’t distort rationality, they enhance it!
+ - Physically, teachers are often alone in their own classrooms with no other adults for company. Psychologically, they never are.
+ - Excellence is the asymptotic state that never quite reaches perfection.
+ - Teaching is not the oldest profession. But it is certainly among the loneliest.
+ - Alberta funds almost all its schools and districts to design and evaluate their own innovations. Teachers are the drivers of change, not the driven.
+ - On data: We are the drivers, not the driven.
+ - It is those who have the distinction of privilege who set the standards of disgust with failure.
+ - Schools cannot shut their gates and leave the outside world on the doorstep.
+ - As we seek to eliminate individualism in teaching, we should not eradicate individuality with it.
+ - Your most memorable students are in your first classes and your last classes: make your last years the finest of your career.
+ - There is no morality without temptation; otherwise it is just lack of opportunity.
+ - Service to others should be one of the most basic purposes of family life and schooling.
+ - The economists who have put the spotlight on teacher quality are the ones who most misunderstand it.
+ - On learning: if you really want alignment, go to a chiropractor.
+ - Strong professional communities risk and sometimes relish conflict.
+ - It’s important to be innovative when times are prosperous. It’s essential to be innovative when they are not.
+ - Students are often the last to know about change that is occurring in their own school system.
+ - Deadwood did not kill itself!
+ - Professional trust is a process, not a state.
+
+97 quotes

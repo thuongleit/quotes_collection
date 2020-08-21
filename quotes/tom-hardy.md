@@ -1,0 +1,52 @@
+ - It doesn’t matter who you are. What matters is your plan.
+ - We’re all flawed human beings and we all have a cauldron of psychosis which we have to unravel as we grow older and find the way we fit in to live our lives as best as possible.
+ - I’m from a nice, suburban, middle-class family, but my tattoos remind me where I’ve been.
+ - I think it’s important that you always transform if you can. That’s what I was trained to do. You try and hide yourself as much as you can – that’s the key to longevity.
+ - I’m here to challenge myself and to see whether I can shape-shift in an environment that’s actually quite daunting, but which I think would be nice to shine a light into. The destination of any interesting drama is that you shine a light into a place that not many people know about.
+ - I’m not a big guy anyway. I’m only, what, 150 pounds? I was 190 for ‘Batman,’ 179 for ‘Warrior.’ Films make you look big.
+ - I have a very busy head. I have inside voices that I have learned to contain.
+ - Whatever character you play, remember they are always doing something they are not just talking.
+ - Love is doing something you don’t want to do for someone you don’t particularly like at that moment.
+ - There’s always a certain pride in getting the job done properly.
+ - Style, I think, is panache. Who are you? What did you do today? And what are you worth to me? What do you have to offer the world? How did you spend your time today on this planet? How are you spending your time every second? What are you doing now? Are you alive, or are you somnambulant?
+ - My job is to show and tell. If I get better at showing and telling then presumably I get hired more.
+ - Maybe it’s a little ambitious of me to presume that no matter how big the film is, that I can always go down to the shop to buy a pint of milk.
+ - If you look round Hollywood there’s no end of white smiles and six packs. Long lines of beautiful people lining up to be incredible on film.
+ - And I like people. I like to know what you’re really up to. I’m a bit of a nosey busy body. Why do they do the things they do? Why are they prepared to do the things they do to get what they want? When? Where? Who?
+ - If you’re lucky like me, your relationship with your brother has resolved itself on the peaceful side of the fence and has stayed there. But if you’re someone who’s got a family that’s all fractured and finding it hard to relate, that’s a very sad place to be.
+ - I love dogs. Like, A LOT. They’re my favorite animal. Ever.
+ - I’m a nice middle class public schoolboy who underachieved and wasn’t going anywhere fast. I didn’t get any GCSEs or A-levels. But everyone was like: “Please, will you do something?” And I was thinking: “Well, I kind of like the idea of joining the French Foreign Legion.”
+ - I guess if I had fifty million dollars I could spend more time at home...
+ - I think online dating is a way of procuring people. Like Facebook and Myspace, it’s the way that people connect now and procure small children and sometimes dodgy relationships. I don’t think it’s very healthy.
+ - The lack of carbohydrates can make you a little crazy.
+ - I hate publicists and publicity. But I love the people.
+ - I play Xbox. I have a little boy to look after. I have dogs. You know, I have things to do. I would love to be able to sit down and watch something like a movie. I watch my own movies because I have to.
+ - I’m very sensitive. Because my mum was my primary emotional caregiver growing up, I found myself being pinned into dresses, darting her dresses, choosing her high heels for the evening or what to wear. I’m very much a mommy’s boy.
+ - You don’t step on stage to eat; you go there to be eaten.
+ - I had no immediate knowledge of the world of Batman at all. I’m quite incubated. I just keep myself to myself and my dog.
+ - Online dating is cool but I think Myspace and Facebook is a little bit off key.
+ - If I am duly compared to Marlon Brando at all, well, I can only think of The Teahouse of the ‘Shanghai Noon,’ that they’re comparing me to that!
+ - My father came from an intellectual and studious avenue as opposed to a brawler’s avenue. So I had to go further afield and I brought all kinds of unscrupulous oiks back home – earless, toothless vagabonds – to teach me the arts of the old bagarre.
+ - I don’t know anything about god except that it’s not me. So, somewhere between that acceptance and doing my homework and being competitive and having ambition and loving my job and observing and reflecting my society, that’s where I find the purpose. Because man needs purpose.
+ - I liked you better when you were drunk .
+ - I had a huge imagination. My granddad says I was a bit of a Walter Mitty character.
+ - A lot of people say I seem masculine, but I don’t feel it. I feel intrinsically feminine. I’d love to be one of the boys but I always felt a bit on the outside. Maybe my masculine qualities come from overcompensating because I’m not one of the boys.
+ - I’m an armchair psychologist, I suppose, and I like to kind of sit around and guess and pretend I know what’s going on.
+ - Fame and stuff like that is all very cool, but at the end of the day, we’re all human beings. Although what I do is incredibly surreal and fun and amazing and I’m really grateful for it, I don’t believe my own press release, do you know what I mean?
+ - I’m going to fail to hit the mark I’ve put up before me because it’s not possible to hit it. I want to be the best at what I do so I’ve got to get over myself already because that’s never going to happen. I ain’t ever going to be God.
+ - I wanted my dad to be proud of me, and I fell into acting because there wasn’t anything else I could do, and in it I found a discipline that I wanted to keep coming back to, that I love and I learn about every day.
+ - Vanity is normal in performers. Does it bother other people? All the time. But nine times out of 10, that says more about them than you.
+ - Ju jitsu is very Buddhist. All that we fear we hold close to ourselves to survive. So if you’re drowning and you see a corpse floating by, hang on to it because it will rescue you.
+ - I set myself that decision, otherwise I’m driving an opinion at you, and I think that would be treating you like you’re an idiot. I don’t want to force-feed you my opinion.
+ - Being an only child, I didn’t have any other family but my mom and dad really, since the rest of my family lived quite far away from London.
+ - There’s an abundance of exposure when you start working in American films. Inevitably you become a brand and that has to be controlled.
+ - As actors, we have the opportunity to work with many directors. Directors only work with themselves and other actors. They never know what it is like to work with another director. So that relationship that one has with a director is entirely always the king.
+ - I get hired more then I get seen more. I get seen more then maybe celebrity and fame happens but at the end of the day there’s no difference between my five dollar performance and my fifty million dollar performance. It’s not going to make me a better father.
+ - I like to be other people, not me. And when you’re on the red carpet, it’s like, ‘Here’s Tom Hardy.’ I don’t want to be me. That’s why I play other people.
+ - I’m just getting settled as a responsible man – but if you split the elephant into little mouthfuls it will be fine.
+ - I’m into parlor dramas. I’m into theatre. I’m trained for the stage. I trained to do Chekhov and Shakespeare, I was trained for the stage.
+ - David Mamet we all know is a great screenplay writer and playwright and a great director. If you like him, you like him. If you hate him, you really hate him. He’s someone who’s into controversy, you know what I mean? That’s David Mamet.
+ - I have to make my bones with Hollywood to get in. And when I do maybe I’ll metamorphose from Mr. Muscles or whatever it is I am now and become an irascible tosser.
+ - I think I had only been working nine months when I got ‘Star Trek,’ and it was huge. It was very overwhelming. So that opened my eyes a bit at an early age, kind of how not be frightened when walking into a responsibility of something like that.
+
+50 quotes

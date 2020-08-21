@@ -1,0 +1,78 @@
+ - Every expert was once a beginner.
+ - Conscience is the authentic voice of God to you.
+ - It is now true that this is God’s Country, if equal rights-a fair start and an equal chance in the race of life are everywhere secured to all.
+ - You know I am given to antiquarian and genealogical pursuits. An old family letter is a delight to my eyes. I can prowl in old trunks of letters by the day with undiminished zest.
+ - He serves his party best who serves the country best.
+ - Unjust attacks on public men do them more good than unmerited praise.
+ - The bold enterprises are the successful ones. Take counsel of hopes rather than of fears to win in this business.
+ - Nothing brings out the lower traits of human nature like office-seeking. Men of good character and impulses are betrayed by it into all sorts of meanness.
+ - It is a government by the corporations, for the corporations.
+ - If any of my men kill prisoners, I’ll kill them.
+ - Must swear off from swearing. Bad habit.
+ - It is a government of the people by the people for the people no longer it is a government of corporations by corporations for corporations.
+ - All appointments hurt. Five friends are made cold or hostile for every appointment; no new friends are made. All patronage is perilous to men of real ability or merit. It aids only those who lack other claims to public support.
+ - I am loaded down to the guards with educational, benevolent, and other miscellaneous public work, I must not attempt to do more. I cannot without neglecting imperative duties.
+ - I am a freeman and jolly as a beggar.
+ - Fighting battles is like courting girls: those who make the most pretensions and are boldest usually win.
+ - Wars will remain while human nature remains. I believe in my soul in cooperation, in arbitration; but the soldier’s occupation we cannot say is gone until human nature is gone.
+ - The filth and noise of the crowded streets soon destroy the elasticity of health which belongs to the country boy.
+ - It is the debtor that is ruined by hard times.
+ - To vote is like the payment of a debt, a duty never to be neglected, if its performance is possible.
+ - Disunion and civil war are at hand; and yet I fear disunion and war less than compromise. We can recover from them. The free States alone, if we must go on alone, will make a glorious nation.
+ - One of the tests of the civilization of people is the treatment of its criminals.
+ - Universal suffrage is sound in principle. The radical element is right.
+ - Virtue is defined to be mediocrity, of which either extreme is vice.
+ - Law without education is a dead letter. With education the needed law follows without effort and, of course, with power to execute itself; indeed, it seems to execute itself.
+ - In the great and deep qualities of mind, heart, and soul, there is no change. Homer and Solomon speak to the same nature in man that is reached by Shakespeare and Lincoln. but in the accidents, the surroundings, the change is vast. All things now are mobile – movable.
+ - My wish for the American woman is that she may always be an elevating influence-man’s inspiration. Let him go forth to duty while she weaves the spell which makes home a paradise to which he may return, ever welcome, whether he is victor or vanquished.
+ - My policy is trust, peace, and to put aside the bayonet. I do not think the wise policy is to decide contested elections in the States by the use of the national army.
+ - The best religion the world has ever known is the religion of the Bible. It builds up all that is good.
+ - Strikes and boycotting are akin to war, and can be justified only on grounds analogous to those which justify war, viz., intolerable injustice and oppression.
+ - I am succeeding very well so far with my legging, but it is a very mean business for a man that has been well brought up to engage in. It is the only way to get a bill from Cincinnati through, so it must be done.
+ - The President of the United States should strive to be always mindful of the fact that he serves his party best who serves his country best.
+ - As friends go it is less important to live.
+ - It is the desire of the good people of the whole country that sectionalism as a factor in our politics should disappear...
+ - The most noticeable weakness of Congressmen is their timidity. They fear the use to be made of their “record.” They are afraid ofmaking enemies. They do not vote according to their convictions from fear of consequences.
+ - The independence of all political and other bother is a happiness.
+ - Every age has its temptations, its weaknesses, its dangers. Ours is in the line of the snobbish and the sordid.
+ - So far as laws and institutions avail, men should have equality of opportunity for happiness; that is, of education, wealth, power. These make happiness secure. An equal diffusion of happiness so far as laws and institutions avail.
+ - My policy is trust peace and to put aside the bayonet.
+ - Honesty, good intentions and industry, you will have of course. Without these your career would soon end with the loss of your good name. But you must be ambitious to be a good deal more. Webb Hayes, his son, went on to found what had become the Union Carbide Corporation.
+ - Do not let your bachelor ways crystallize so that you can’t soften them when you come to have a wife and a family of your own.
+ - We people in camp are merely big children, wayward and changeable.
+ - How strange a scene is this in which we are such shifting figures, pictures, shadows. The mystery of our existence – I have no faith in any attempted explanation of it. It is all a dark, unfathomed profound.
+ - The progress of society is mainly the improvement in the condition of the workingmen of the world.
+ - The study of tools as well as of books should have a place in the public schools. Tools, machinery, and the implements of the farmshould be made familiar to every boy, and suitable industrial education should be furnished for every girl.
+ - The religion of the Bible is the best in the world. I see the infinite value of religion. Let it be always encouraged. A world ofsuperstition and folly have grown up around its forms and ceremonies. But the truth in it is one of the deep sentiments in human nature.
+ - My hobby more and more is likely to be common school education, or universal education.
+ - Free government cannot long endure if property is largely in a few hands, and large masses of people are unable to earn homes, education, and a support in old age.
+ - No political party can ever make prohibition effective. A political party implies an adverse, an opposing, political party. To enforce criminal statutes implies substantial unanimity in the community. This is the result of the jury system. Hence the futility of party prohibition.
+ - The unrestricted competition so commonly advocated does not leave us the survival of the fittest. The unscrupulous succeed best in accumulating wealth.
+ - Abolish plutocracy if you would abolish poverty.
+ - An amazing invention – but who would ever want to use one?
+ - If a liberal policy towards the late Rebels is adopted, the ultra Republicans are opposed to it; if the colored people are honored, the extremists of the other wing cry out against it. I suspect I am right in both cases.
+ - I have the greatest aversion to being a candidate on a ticket with a man whose record as an upright public man is to be in question – to be defended from the beginning to the end.
+ - I would strenuously urge a single term of six years.
+ - Let every man, every corporation, and especially let every village, town, and city, every county and State, get out of debt and keep out of debt. It is the debtor that is ruined by hard times.
+ - I too mean to be out of politics. The ratification of the Fifteenth Amendment gives me the boon of equality before the law, terminates my enlistment, and discharges me cured.
+ - No person connected with me by blood or marriage will be appointed to office.
+ - Abolish plutocracy if you would abolish poverty. As millionaires increase, pauperism grows. The more millionaires, the more paupers.
+ - I regard the inflation acts as wrong in all ways. Personally I am one of the noble army of debtors, and can stand it if others can. But it is a wretched business.
+ - Busy replying to letters from divers office-seekers. They come by the dozens.
+ - I am not liked as a President by the politicians in office, in the press, or in Congress. But I am content to abide the judgment – the sober second thought – of the people.
+ - Perhaps the happiest moment of my life was then, when I saw that our line didn’t break and that the enemy’s did.
+ - The man of large and conspicuous public service in civil life must be content without the Presidency. Still more, the availability of a popular man in a doubtful State will secure him the prize in a close contest against the first statesman of the country whose State is safe.
+ - Youth, however, is a defect that she is fast getting away from and may perhaps be entirely rid of before I shall want her.
+ - One thing you may be sure of, I was not a party to covering up anything.
+ - In avoiding the appearance of evil, I am not sure but I have sometimes unnecessarily deprived myself and others of innocent enjoyments.
+ - I hope you will be benefitted by your churchgoing. Where the habit does not Christianize, it generally civilizes. That is reason enough for supporting churches, if there were no higher.
+ - Shall the railroads govern the country, or shall the people govern the railroads? Shall the interest of railroad kings be chieflyregarded, or shall the interest of the people be paramount?
+ - It will be the duty of the Executive, with sufficient appropriations for the purpose, to prosecute unsparingly all who have been engaged in depriving citizens of the rights guaranteed to them by the Constitution.
+ - I would honor the man who give to his country a good newspaper.
+ - The truth is, this being errand boy to one hundred and fifty thousand people tires me so by night I am ready for bed instead of soirees.
+ - We can travel longer, night and day, without losing our spirits than almost any persons we ever met.
+ - The melancholy thing in our public life is the insane desire to get higher.
+ - We are in a period when old questions are settled and the new are not yet brought forward. Extreme party action, if continued in such a time, would ruin the party. Moderation is its only chance. The party out of power gains by all partisan conduct of those in power.
+ - Both parties are injured by what is going on at Washington. Both are, therefore, more and more disposed to look for candidates outside of that atmosphere.
+
+76 quotes

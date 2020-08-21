@@ -1,0 +1,22 @@
+ - I worked for suffrage for years, and got it. I’ve worked for peace for 55 years and haven’t come close.
+ - It is unconscionable that 10,000 boys have died in Vietnam. If 10,000 American women had mind enough they could end the war, if they were committed to the task, even if it meant going to jail.
+ - If I had my life to live over, I would do it all again, but this time I would be nastier.
+ - I may be the first woman member of Congress, but I won’t be the last.
+ - Men are not killed because they get mad at each other. They’re killed because one of them has a gun in any dispute.
+ - You take people as far as they will go, not as far as you would like them to go.
+ - Go! Go! Go! It makes no difference where, just so you go! go! go! Remember, at the first opportunity, go!
+ - There can be no compromise with war.
+ - Men and women are like right and left hands: it doesn’t make sense not to use both.
+ - There can be no compromise with war; it cannot be reformed or controlled; cannot be disciplined into decency or codified into common sense; for war is the slaughter of human beings, temporarily regarded as enemies, on as large a scale as possible.
+ - What one decides to do in crisis depends on one’s philosophy of life, and that philosophy cannot be changed by an incident. If one hasn’t any philosophy in crises, others make the decision.
+ - You can no more win a war than you can win an earthquake.
+ - War is the slaughter of human beings, temporarily regarded as enemies, on as large a scale as possible.
+ - Small use it will be to save democracy for the race if we cannot save the race for democracy.
+ - The most disappointing feature of working for a cause is that so few people have a philosophy of life. We used to say, in the suffrage movement, that we could trust the woman who believed in suffrage, but we could never trust the woman who just wanted to vote.
+ - The greatest threat to peace is the barrage of rightist propaganda portraying war as decent, honorable, and patriotic.
+ - As a woman I can’t go to war, and I refuse to send anyone else.
+ - I want to stand by my country, but I cannot vote for war.
+ - We’re half the people; we should be half the Congress.
+ - Killing more people won’t help matters.
+
+20 quotes

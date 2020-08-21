@@ -1,0 +1,27 @@
+ - A winner never stops trying.
+ - The quality of a man’s life is in direct proportion to his commitment to excellence.
+ - A champion is simply someone who did not give up when he wanted to.
+ - Today, you have 100% of your life left.
+ - There’s a misconception about teamwork. Teamwork is the ability to have different thoughts about things; it’s the ability to argue and stand up and say loud and strong what you feel. But in the end, it’s also the ability to adjust to what is the best for the team.
+ - To live a disciplined life, and to accept the result of that discipline as the will of God – that is the mark of a man.
+ - Setting a goal is not the main thing. It is deciding how you will go about achieving it and staying with that plan.
+ - In my opinion, character is the most important determinant of a person’s success, achievement and ability to handle adversity.
+ - I don’t believe in team motivation. I believe in getting a team prepared so it knows it will have the necessary confidence when it steps on a field and be prepared to play a good game.
+ - Coaching is making men do what they don’t want, so they can become what they want to be.
+ - I’ve learned that something constructive comes from every defeat.
+ - Leadership is a matter of having people look at you and gain confidence, seeing how you react. If you’re in control, they’re in control.
+ - The secret to winning is constant, consistent management.
+ - Football is to Texas what religion is to a priest.
+ - There is only a half step difference between the champions and those who finish on the bottom. And much of that half step is mental.
+ - When you want to win a game, you have to teach. When you lose a game, you have to learn.
+ - A vital team characteristic is the ability to overcome adversity. Any team acquires experience and endurance as it learns to fight back. This in turn builds the kind of character which seldom crumbles at a time of crisis or testing.
+ - First become a winner in life. Then it’s easier to become a winner on the field.
+ - If you are prepared, you will be confident, and will do the job.
+ - Football is an incredible game. Sometimes it’s so incredible, it’s unbelievable.
+ - The more successful you become, the longer the yardstick people use to measure you by.
+ - I like the South because it is so much warmer on the sidelines than it is up North.
+ - Right after the game, say as little as possible.
+ - A team that has character doesn’t need stimulation.
+ - I’d rather have a second-best decision diligently pursued than a first-best decision lackadaisically pursued.
+
+25 quotes

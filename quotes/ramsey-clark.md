@@ -1,0 +1,23 @@
+ - People who don’t cherish their elderly have forgotten whence they came and whither they go.
+ - Honesty is the best policy in international relations, interpersonal relations, labor, business, education, family and crime control because truth is the only thing that works and the only foundation on which lasting relations can build.
+ - Turbulence is life force. It is opportunity. Let’s love turbulence and use it for change.
+ - A right is not what someone gives you; it’s what no one can take from you.
+ - The great and constant need of those who investigate homicide and practice forensic pathology or criminal law is a warm humanism.
+ - Islam is the only religion that gives dignity to the poor.
+ - We’re not a democracy. It’s a terrible misunderstandin g and a slander to the idea of democracy to call us that. In reality, we’re a plutocracy: a government by the wealthy.
+ - Nothing so diminishes democracy as secrecy.
+ - They could call Jesus a terrorist too. I mean, he was pretty tough on money lenders a time or two.
+ - The measure of your quality as a public person, as a citizen, is the gap between what you do and what you say.
+ - Our history shows that the death penalty has been unjustly imposed, innocents have been killed by the state, effective rehabilitation has been impaired, judicial administration has suffered. It is the poor, the sick, the ignorant, the powerless, and the hated who are executed.
+ - If Rosa Parks had not refused to move to the back of the bus, you and I might never have heard of Dr. Martin Luther King.
+ - Violence is the ultimate human degradation.
+ - I didn’t volunteer; they asked me. I felt a duty to testify.
+ - A humane and generous concern for every individual, his health and his fulfillment, will do more to soothe the savage heart than the fear of state-inflicted death, which chiefly serves to remind us how close we remain to the jungle.
+ - This country of ours has committed the most serious act of aggression in its history by engaging in a war of aggression without a declaration of war by Congress.
+ - Most faults are not in our Constitution, but in ourselves.
+ - The United States is not nearly so concerned that its acts be kept secret from its intended victims as it is that the American people not know of them.
+ - Who will protect the public when the police violate the law?
+ - There are few better measures of the concern a society has for its individual members and its own well being than the way it handles criminals.
+ - Both trials are marred with injustice, both are flawed.
+
+21 quotes

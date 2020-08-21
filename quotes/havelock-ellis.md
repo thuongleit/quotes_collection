@@ -1,0 +1,91 @@
+ - The Promised Land always lies on the other side of a Wilderness.
+ - Pain and death are part of life. To reject them is to reject life itself.
+ - Jealousy, that dragon which slays love under the pretence of keeping it alive.
+ - To make a mountain out of a mole-hill.
+ - Every man of genius sees the world at a different angle from his fellows, and there is his tragedy.
+ - All civilization has from time to time become a thin crust over a volcano of revolution.
+ - Charm is a woman’s strength just as strength is a man’s charm.
+ - All the art of living lies in a fine mingling of letting go and holding on.
+ - There is nothing that war has ever achieved that we could not better achieve without it.
+ - The place where optimism most flourishes is the lunatic asylum.
+ - A religion can no more afford to degrade its Devil than to degrade its God.
+ - It is on our failures that we base a new and different and better success.
+ - Philosophy is a purely personal matter. A genuine philosopher’s credo is the outcome of a single complex personality; it cannot be transferred. No two persons, if sincere, can have the same philosophy.
+ - Dancing as an art, we may be sure, cannot die out, but will always be undergoing a rebirth. Not merely as an art, but also as a social custom, it perpetually emerges afresh from the soul of the people.
+ - Liberty is always unfinished business.
+ - Sexual pleasure, wisely used and not abused, may prove the stimulus and liberator of our finest and most exalted activities.
+ - The aesthetic pleasure of dance is a secondary reflection of the primary, vital joy of courtship.
+ - The absence of flaw in beauty is itself a flaw.
+ - When love is suppressed hate takes its place.
+ - No act can be quite so intimate as the sexual embrace.
+ - Dreams are real as long as they last. Can we say more of life?
+ - The conflict of forces and the struggle of opposing wills are of the essence of our universe and alone hold it together.
+ - A man must not swallow more beliefs than he can digest.
+ - Of woman as a real human being, with sexual needs and sexual responsibilities, morality has often known nothing.
+ - We cannot remain consistent with the world save by growing inconsistent with our past selves.
+ - What we call ‘morals’ is simply blind obedience to words of command.
+ - The family only represents one aspect, however important an aspect, of a human being’s functions and activities. A life is beautiful and ideal or the reverse, only when we have taken into our consideration the social as well as the family relationship.
+ - Every artist writes his own autobiography.
+ - There is nothing more fragile than civilization.
+ - However well organized the foundations of life may be, life must always be full of risks.
+ - Civilized men arrived in the Pacific, armed with alcohol, syphilis, trousers, and the Bible.
+ - The art of dancing stands at the source of all the arts that express themselves first in the human person. The art of building, or architecture, is the beginning of all the arts that lie outside the person; and in the end they unite.
+ - In philosophy, it is not the attainment of the goal that matters, it is the things that are met with by the way.
+ - The mother is the child’s supreme parent.
+ - The romantic embrace can only be compared with music and with prayer.
+ - The greatest task before civilization at present is to make machines what they ought to be, the slaves, instead of the masters of men.
+ - Beauty is the child of love.
+ - The average husband enjoys the total effect of his home but is usually unable to contribute any of the details of work and organisation that make it enjoyable.
+ - The great writer finds style as the mystic finds God, in his own soul.
+ - The sanitary and mechanical age we are now entering makes up for the mercy it grants to our sense of smell by the ferocity with which it assails our sense of hearing.
+ - At the present day the crude theory of the sexual impulse held on one side, and the ignorant rejection of theory altogether on the other side, are beginning to be seen as both alike unjustified.
+ - Socialism also brings us up against the hard rock of eugenic fact which, if we neglect it, will dash our most beautiful social construction to fragments.
+ - All progress in literary style lies in the heroic resolve to cast aside accretions and exuberances, all the conventions of a past age that were once beautiful because alive and are now false because dead.
+ - The by-product is sometimes more valuable than the product.
+ - There is a very intimate connection between hypnotic phenomena and religion.
+ - If men and women are to understand each other, to enter into each other’s nature with mutual sympathy, and to become capable of genuine comradeship, the foundation must be laid in youth.
+ - The immense value of becoming acquainted with a foreign language is that we are thereby led into a new world of tradition and thought and feeling.
+ - The husband – by primitive instinct partly, certainly by ancient tradition – regards himself as the active partner in matters of love and his own pleasure as legitimately the prime motive for activity.
+ - Heroes exterminate each other for the benefit of people who are not heroes.
+ - The relation of the individual person to the species he belongs to is the most intimate of all relations.
+ - The second great channel through which the impulse towards the control of procreation for the elevation of the race is entering into practical life is by the general adoption, by the educated – of methods for the prevention of conception except when conception is deliberately desired.
+ - I always seem to have a vague feeling that he is a Satan among musicians, a fallen angel in the darkness who is perpetually seeking to fight his way back to happiness.
+ - What we call progress is the exchange of one nuisance for another nuisance.
+ - Birth-control is effecting, and promising to effect, many functions in our social life.
+ - The prevalence of suicide, without doubt, is a test of height in civilization; it means that the population is winding up its nervous and intellectual system to the utmost point of tension and that sometimes it snaps.
+ - It has always been difficult for Man to realize that his life is all an art. It has been more difficult to conceive it so than to act it so. For that is always how he has more or less acted it.
+ - The mother is really a more immediate parent than the father because one is born from the mother, and the first experience of any infant is the mother.
+ - Men who know themselves are no longer fools. They stand on the threshold of the door of Wisdom.
+ - It is becoming clear that the old platitudes can no longer be maintained, and that if we wish to improve our morals we must first improve our knowledge.
+ - Mankind is becoming a single unit, and that for a unit to fight against itself is suicide.
+ - Those persons who are burning to display heroism may rest assured that the course of social evolution will offer them every opportunity.
+ - Failing to find in women exactly the same kind of sexual emotions, as they find in themselves, men have concluded that there are none there at all.
+ - It is only the great men who are truly obscene. If they had not dared to be obscene, they could never have dared to be great.
+ - For every fresh stage in our lives we need a fresh education, and there is no stage for which so little educational preparation is made as that which follows the reproductive period.
+ - Imagination is a poor substitute for experience.
+ - No faith is our own that we have not arduously won.
+ - It is the little writer rather than the great writer who seems never to quote, and the reason is that he is never really doing anything else.
+ - We cannot be sure that we ought not to regard the most criminal country as that which in some aspects possesses the highest civilization.
+ - Still, whether we like it or not, the task of speeding up the decrease of the human population becomes increasingly urgent.
+ - Man lives by imagination.
+ - To live remains an art which everyone must learn, and which no one can teach.
+ - One can know nothing of giving aught that is worthy to give unless one also knows how to take.
+ - It is curious how there seems to be an instinctive disgust in Man for his nearest ancestors and relations. If only Darwin could conscientiously have traced man back to the Elephant or the Lion or the Antelope, how much ridicule and prejudice would have been spared to the doctrine of Evolution.
+ - The mathematician has reached the highest rung on the ladder of human thought.
+ - All arguments are meaningless until we gain personal experience. One must win one’s own place in the spiritual world painfully and alone. There is no other way of salvation. The Promised Land always lies on the other side of a wilderness.
+ - There is held to be no surer test of civilization than the increase per head of the consumption of alcohol and tobacco. Yet alcohol and tobacco are recognizable poisons, so that their consumption has only to be carried far enough to destroy civilization altogether.
+ - In the early days of Christianity the exercise of chastity was frequently combined with a close and romantic intimacy of affection between the sexes which shocked austere moralists.
+ - Life is livable because we know that wherever we go most of the people we meet will be restrained in their actions towards us by an almost instinctive network of taboos.
+ - There has never been any country at every moment so virtuous and so wise that it has not sometimes needed to be saved from itself.
+ - The more rapidly a civilization progresses, the sooner it dies for another to rise in its place.
+ - The parents have not only to train their children: it is of at least equal importance that they should train themselves.
+ - Where there is most labour there is not always most life.
+ - Einstein is notmerely an artist in his moments of leisure and play, as a great statesman may play golf or a great soldier grow orchids. He retains the same attitude in the whole of his work. He traces science to its roots in emotion, which is exactly where art is also rooted.
+ - So far as business and money are concerned, a country gains nothing by a successful war, even though that war involves the acquisition of immense new provinces.
+ - Here, where we reach the sphere of mathematics, we are among processes which seem to some the most inhuman of all human activities and the most remote from poetry. Yet it is here that the artist has the fullest scope of his imagination.
+ - The world’s greatest thinkers have often been amateurs; for high thinking is the outcome of fine and independent living, and for that a professional chair offers no special opportunities.
+ - The modesty of women, which, in its most primitive form among animals, is based on sexual periodicity, is, with that periodicity, an essential condition of courtship.
+ - Education, whatever else it should or should not be, must be an inoculation against the poisons of life and an adequate equipment in knowledge and skill for meeting the chances of life.
+ - A sublime faith in human imbecility has seldom led those who cherish it astray.
+
+89 quotes

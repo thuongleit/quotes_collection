@@ -1,0 +1,77 @@
+ - A feature film is twenty-four lies per second.
+ - On the set I make jokes I can’t get too involved, or it turns into sentimental soup. I try to keep it light.
+ - I want to make it clear: it’s not that I hate mainstream cinema. It’s perfectly fine. There are a lot of people who need to escape, because they are in very difficult situations, so they have the right to escape from the world. But this has nothing to do with an art form.
+ - If I tell the audience what they should think, then I am robbing them of their own imagination and their own capacity of deciding what’s important to them.
+ - It’s unbearable when someone changes around you. Just imagine that your life partner changes, then it is difficult to cope with. Or your mother. Or your father. They were strong and now they’re like a baby – it’s not so funny.
+ - I’m not really a happy person. It’s a question of temperament. I have a tendency toward melancholy. You can feel quite happily melancholic.
+ - Unfortunately, you’re helpless when people interpret your work wrongly. There are simply people who can’t or won’t understand or accept what you’re trying to do. When you take the risk of expressing yourself in public, you have to open yourself to that possibility.
+ - An artist is someone who should raise questions rather than give answers. I have no message.
+ - When making a film, I’m never concerned about whether the theme is new or whether it’s been done before in cinema or not. I’m led to make films if there’s a theme that interests me or I experience something in my own life that confronts me with something that I want to deal with.
+ - I consider all my films experiments.
+ - To me, it’s far more efficient to mobilize the imagination. It’s far more efficient to hear a creaking step, for example, than to see the face of a monster, which usually looks ridiculous, and where you know that the blood is ketchup.
+ - Mainstream cinema raises questions only to immediately provide an answer to them, so they can send the spectator home reassured. If we actually had those answers, then society would appear very different from what it is.
+ - You become a film critic because you’re interested in film. I don’t know whether knowing so much about cinema leads you to make better films, but it certainly can’t hurt.
+ - Pornography, it seems to me, is no different from war films or propaganda films in that it tries to make the visceral, horrific, or transgressive elements of life consumable.
+ - The difficulty, then, is when you create a church, an institution, and you create a dogma. When you create an ideology, that’s the danger. Communism, too, is a beautiful idea, but millions of people died when communism became an ideology.
+ - It’s impossible to consider living without ideals. However, when ideas lead to ideology, that’s a very dangerous thing. Ideology then leads to creating the image of an enemy, and it leads to the murder and massacre that we’ve seen since the beginning of time.
+ - Films that are entertainments give simple answers but I think that’s ultimately more cynical, as it denies the viewer room to think. If there are more answers at the end, then surely it is a richer experience.
+ - If you go with the principle, you should go with the principle. If I really saw the subject very differently than ten years ago, I would have done a different movie.
+ - It’s the duty of art to ask questions, not to provide answers. And if you want a clearer answer, I’ll have to pass.
+ - My mother as a young girl went out with a young SS officer and she didn’t really know what was going on – she just liked the uniform. When he told her about the things that he did, she was disgusted and broke up with him.
+ - Film is 24 lies per second at the service of truth, or at the service of the attempt to find the truth.
+ - In my film “Benny’s Video,” I depicted violence but I failed to say all that I had to say, so I wanted to continue the dialog and that’s why I did “Funny Games.” The irony is that after I shot “Funny Games,” but it hadn’t been released at all anywhere.
+ - Because in the feudal system of that period at least 80% of people lived in villages, so it’s very simple to get a cross-section of society in a single village. You get the microcosm of the social macrocosm.
+ - I try to get closer to reality, to get close to the contradictions. The cinema world can be a real world rather than a dream world.
+ - What I like are films that take me seriously, that don’t treat me as more stupid than I am.
+ - Never say no. It always depends on what’s possible. I don’t care so much where it is; it’s what I want to do that matters.
+ - Personally, I can’t stand violence. In any standard American mainstream movie, there’s 20 times more violence than in any one of my films, so I don’t know why those directors aren’t asked why they’re such specialists for violence.
+ - If I’m reading a book that doesn’t leave me with questions, moving questions, that I feel confronted with, then for me it’s a waste of time. I don’t want to read a book that simply confirms what I already know.
+ - Even the most elitist director or author who claims that he doesn’t care if his works are seen or not, then I have to think that he’s either a liar or a hypocrite.
+ - What we’re doing for another person is more important than what we’re feeling for them.
+ - It is boring to have all the answers. Only political people have answers.
+ - There are really two types of laughter on the part of the spectator. There is the laughter of recognition – which means seeing things you’re familiar with and laughing at yourself. But there’s also hysterical laughter – a way of dealing with the things we see that upset us.
+ - It’s a disease of critics that once they’ve labeled someone, it’s very hard to change their perspective. It’s laziness.
+ - I’ve never let producers tell me what to do. Even when I was making television, I always did what I wanted to do, and if I couldn’t, I didn’t do it. It was a freedom that, these days, young directors starting out don’t have.
+ - I never suffered from the absence of a father. On the contrary, as a child I was more inclined to see men as a disturbing factor. It made things difficult for me when I started working as a director.
+ - I think that religion is an integral part of human needs, but the question also is how you understand religion.
+ - At its best, film should be like a ski jump. It should give the viewer the option of taking flight, while the act of jumping is left up to him.
+ - I give the spectator the possibility of participating. The audience completes the film by thinking about it; those who watch must not be just consumers ingesting spoon-fed images.
+ - Classicism becomes avant-garde when everyone else is doing their utmost to develop new stylistic forms. I think it’s healthy to return to classical forms.
+ - It’s a fact that people who are in a weakened position, whether physically or mentally, have this perception of the outer world as threatening. Everything that is unexpected or unknown is seen as a potential danger.
+ - Awards are important for all directors because they improve your working conditions. You’re only as good as your last film, so if you get prizes or large audiences, then you get more money for your next film.
+ - I want to be able to control things and that’s very difficult to do if you’re not 100% in a particular language. It makes you uncertain and it makes you nervous.
+ - To decide to film a movie again shot by shot, you must be masochistic to a certain degree because it is a much greater challenge.
+ - The dumber people are, the more they feel the need for a broad set of shoulders they can lay their head against.
+ - And I don’t believe that children are innocent. In fact, no one seriously believes that. Just go to a playground and watch the kids playing in the sandbox! The romantic notion of the sweet child is simply the parents projecting their own wishes.
+ - As a European filmmaker, you can not make a genre film seriously. You can only make a parody.
+ - As a private person, professionally I am invisible.
+ - Film is simply the most complex way you can express yourself.
+ - All movies assault the viewer in one way or another.
+ - My father and I had a good relationship, it was very relaxed. He had a lot of humour. He looked a little bit like me, although he had no beard. He had the appearance of a very elegant British-looking man.
+ - To be perfectly honest, I think that as I’m growing older, I’m just growing more impatient. I’ll be very happy if at some point people say, ‘Michael’s grown wiser and softer in his old age.’ But we’ll have to wait and see what my next project is.
+ - Usually music is used to hide a film’s problems.
+ - I never use soundtrack; it is always part of the story.
+ - You’ll see more violence in any television crime series than you will in my films Art is there to have a stimulating effect, if it earns its name. You have to be honest, that’s the only thing.
+ - Of course I am a child of European culture. There are a number of great directors from which I learned, but there is nobody in particular I got inspired from.
+ - People expect me to be dark and gloomy, then write that I’m a jolly chap, and after all, that is what I am. I think it’s a case of an absolute romantic naivety that there should be a parallel between the work and the artist.
+ - I’m interested in seeing films that confront me with new things, with films that make me question myself, with films that help me to reflect on subjects that I hadn’t thought about before, films that help me progress and advance.
+ - Drama lives on conflict. If you’re trying to deal with social issues seriously, there’s no way of avoiding violence, which is so present in society.
+ - And if there was one title that could be applied to all my films, it would be ‘Civil War’ – not civil war in the way we know it, but the daily war that goes on between us all.
+ - In German. I’m more sensitized to the details, to the emotions. In English, I wouldn’t detect as much nuance.
+ - It’s harder to write a story with just two people in a room than with 50 characters.
+ - It’s much harder to write a script that involves two people in a single location than 20 people in 30 different locations.
+ - I learned my business in the theater and in television, particularly working with the actors. You can learn much more in the theater than directing a movie, because then you have no time when you are shooting a movie to really work with the actors. You have to learn this craft somewhere else.
+ - I like to write for actors I know and with whom I’ve worked before. You can write to their strengths and weaknesses and write roles that are better suited to them.
+ - Because I’m the author of my screenplays I know what I’m looking for. It’s true that I can be stubborn in demanding that I get what I want, but it’s also a question of working with patience and love.
+ - If you do an original film and you want to cut a scene out you do it. But when you do a shot by shot remake you don’t have that option and every scene has to work again.
+ - Like every filmmaker, I make my films to reach the widest audience possible.
+ - A strict form such as mine cannot be achieved through improvisation.
+ - In terms of cinema and filmmaking, there are certainly the unexpected gifts that the actors bestow on you. Film is always a question of compromises with respect to what you originally intended.
+ - I’m far more relaxed with German. I’m a control freak. I like to know exactly who’s saying and doing what.
+ - For me, it’s always difficult when a historical film claims to depict or represent a reality that none of us can know, that is always different. It’s always the case. We never know what happened then.
+ - People have been educated to expect answers, even before the questions come along. It’s the TV principle. You offer three possible answers before the questions come to relax and calm the audience.
+ - I’m not someone who enjoys long talks, long rehearsals. I’m very technical: I tell my actors, you come in, you sit down, you pick up a coffee, you look here, you say the line. We try it with the cameras rolling, and if it doesn’t work, we adjust it until it does. It’s very simple.
+ - It could be Fascist, religious or political – it’s always the same model that operates in these circumstances, and it’s that which is the actuality of this film. Therefore, it’s not specifically an explanation of German Fascism because that would be an impossible thing to do in any case.
+ - I think watching a movie that simply confirms my feelings is a waste of time. That applies not only to movies, but also to books and every form of art.
+
+75 quotes

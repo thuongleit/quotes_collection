@@ -1,0 +1,291 @@
+ - A Stoic is someone who transforms fear into prudence, pain into transformation, mistakes into initiation, and desire into undertaking.
+ - The three most harmful addictions are heroin, carbohydrates, and a monthly salary.
+ - Don’t aim to be perfect! Aim to be antifragile.
+ - Bitcoin is the beginning of something great: a currency without a government, something necessary and imperative.
+ - Antifragility is beyond resilience or robustness. The resilient resists shocks and stays the same; the antifragile gets better.
+ - Weak men act to satisfy their needs, stronger men their duties.
+ - Learn to fail with pride – and do so fast and cleanly. Maximise trial and error – by mastering the error part.
+ - The fool generalizes the particular; the nerd particularizes the general; some do both; and the wise does neither.
+ - Steve Jobs, Bill Gates and Mark Zuckerberg didn’t finish college. Too much emphasis is placed on formal education – I told my children not to worry about their grades but to enjoy learning.
+ - Missing a train is only painful if you run after it! Likewise, not matching the idea of success others expect from you is only painful if that’s what you are seeking.
+ - Dress your best on your execution day. Be extremely courteous to your assistant when you lose money. Try not to blame others for your fate, even if they deserve blame. Never exhibit any self-pity. Do not complain.
+ - Suckers try to win arguments, nonsuckers try to win.
+ - Love without sacrifice is like theft.
+ - Academia is to knowledge what prostitution is to love; close enough on the surface but, to the non-sucker, not exactly the same thing.
+ - If you see fraud and do not say fraud, you are a fraud.
+ - For the robust, an error is information.
+ - They will envy you for your success, your wealth, for your intelligence, for your looks, for your status – but rarely for your wisdom.
+ - A man without a heroic bent starts dying at the age of thirty.
+ - Being an entrepreneur is an existential, not just a financial thing.
+ - Remember that you are a Black Swan.
+ - This is the central illusion in life: that randomness is a risk, that it is a bad thing...
+ - The opposite of manliness isn’t cowardice; it’s technology.
+ - The weak shows his strength and hides his weaknesses; the magnificent exhibits his weaknesses like ornaments.
+ - Heroes are heroes because they are heroic in behavior, not because they won or lost.
+ - To bankrupt a fool, give him information.
+ - The characteristic feature of the loser is to bemoan, in general terms, mankind’s flaws, biases, contradictions, and irrationality – without exploiting them for fun and profit.
+ - The fragile wants tranquility, the antifragile grows from disorder, and the robust doesn’t care too much.
+ - I want to live happily in a world I don’t understand.
+ - What I learned on my own I still remember.
+ - Never take advice from someone wearing a tie.
+ - Injecting some confusion stabilizes the system.
+ - There are secrets to our world that only practice can reveal, and no opinion or analysis will ever capture in full.
+ - We know from chaos theory that even if you had a perfect model of the world, you’d need infinite precision in order to predict future events. With sociopolitical or economic phenomena, we don’t have anything like that.
+ - What fools call “wasting time” is most often the best investment.
+ - Comfort makes you weaker. We need some variability, some stressors. Not too much, but just enough.
+ - You find peace by coming to terms with what you don’t know.
+ - The inability to predict outliers implies the inability to predict the course of history.
+ - Things always become obvious after the fact.
+ - The difference between technology and slavery is that slaves are fully aware that they are not free.
+ - History doesn’t crawl; it leaps.
+ - Information is antifragile; it feeds more on attempts to harm it than it does on efforts to promote it.
+ - Prediction, not narration, is the real test of our understanding of the world.
+ - An idea starts to be interesting when you get scared of taking it to its logical conclusion.
+ - There are systems that use failure as fuel for improvement, where the cost of failure is small.
+ - Half of the people lie with their lips; the other half with their tears.
+ - Hard work will get you a professorship or a BMW. You need both work and luck for a Booker, a Nobel or a private jet.
+ - Never ask anyone for their opinion, forecast, or recommendation. Just ask them what they have – or don’t have – in their portfolio.
+ - A good maxim allows you to have the last word without even starting a conversation.
+ - Those who do not think that employment is systemic slavery are either blind or employed.
+ - By setting oneself totally free of constraints, free of thoughts, free of this debilitating activity called work, free of efforts, elements hidden in the texture of reality start staring at you; then mysteries that you never thought existed emerge in front of your eyes.
+ - Education makes the wise slightly wiser, but it makes the fool vastly more dangerous.
+ - A verbal threat is the most authentic certificate of impotence.
+ - Failure saves lives. In the airline industry, every time a plane crashes the probability of the next crash is lowered by that.
+ - My major hobby is teasing people who take themselves and the quality of their knowledge too seriously and those who don’t have the guts to sometimes say: I don’t know...
+ - Anything that provides you with very, very stable income, very stable conditions, maybe generally stable, that often, it masks real risks, risks of blow-ups.
+ - Work hard, not in grunt work, but in chasing such opportunities and maximizing exposure to them. This makes living in big cities invaluable because you increase the odds of serendipitous encounters-you gain exposure to the envelope of serendipity.
+ - Don’t cross a river if it is four feet deep on average.
+ - Charm is the ability to insult people without offending them; nerdiness the reverse.
+ - I remind myself of Einstein’s remark that common sense is nothing but a collection of misconceptions acquired by age 18...
+ - The Internet allows the small guy a global marketplace. But technology is harmful in the sense that we get too much information from it. Because of the web we get 10 times the amount of noise we ever got, which makes harmful fallacies far more likely.
+ - Wittgenstein’s ruler: Unless you have confidence in the ruler’s reliability, if you use a ruler to measure a table you may also be using the table to measure the ruler.
+ - You get pseudo-order when you seek order; you only get a measure of order and control when you embrace randomness.
+ - The best philosophers were not academics, but had another job, so their philosophy was not corrupted by careerism.
+ - If I could predict what my day would exactly look like, I would feel a little bit dead.
+ - The central idea in The Black Swan is that: rare events cannot be estimated from empirical observation since they are rare.
+ - If my detractors knew me better they would hate me even more.
+ - The fastest way to become rich is to socialize with the poor; the fastest way to become poor is to socialize with the rich.
+ - Academia is to knowledge what prostitution is to love.
+ - People are much less interested in what you are trying to show them than what you are trying to hide.
+ - Probability is not about the odds, but about the belief in the existence of an alternative outcome, cause, or motive.
+ - I disagree with the followers of Marx and those of Adam Smith: the reason free markets work is because they allow people to be lucky, thanks to aggressive trial and error, not by giving rewards or “incentives” for skill.
+ - When I trade, I don’t have an agency problem; I have my neck on the line. When a bank or banker trades, it’s not his neck on the line.
+ - Karl Marx, a visionary, figured out that you can control a slave much better by convincing him he is an employee.
+ - Globalization has created this interlocking fragility. At no time in the history of the universe has the cancellation of a Christmas order in New York meant layoffs in China.
+ - When an investor focuses on short-term investments, he or she is observing the variability of the portfolio, not the returns – in short, being fooled by randomness.
+ - Only in recent history has “working hard” signaled pride rather than shame for lack of talent, finesse and, mostly, sprezzatura .
+ - Success is becoming in middle adulthood what you dreamed to be in late childhood.
+ - Never ask a trader if he is profitable: you can easily see it in his gesture and gait.
+ - When you beat up someone physically, you get excercise and stress relief; when you assault him verbally on the Internet, you just harm yourself.
+ - It is my great hope someday, to see science and decision makers rediscover what the ancients have always known. Namely that our highest currency is respect.
+ - Few understand that procrastination is our natural defense, letting things take care of themselves and exercise their antifragility.
+ - The curious mind embraces science; the gifted and sensitive, the arts; the practical, business; the leftover becomes an economist.
+ - Redundancy is ambiguous because it seems like a waste if nothing unusual happens. Except that something unusual happens-usually .
+ - We tend to use knowledge as therapy.
+ - You have family-owned businesses that have been around for 500 years. You cannot name a corporation that survives intact for even a few decades.
+ - When you write, you don’t have the social constraints of having people in front of you, so you talk about abstract matters.
+ - Democracies can’t handle austerity measures very well.
+ - It has been more profitable for us to bind together in the wrong direction than to be alone in the right one.
+ - An ad hominem attack against an individual, not against an idea, is highly flattering. It indicates that the person does not have anything intelligent to say about your message.
+ - Much of modern life is preventable chronic stress injury.
+ - Those who were unlucky in life in spite of their skills would eventually rise. The lucky fool might have benefited from some luck in life; over the longer run he would slowly converge to the state of a less-lucky idiot. Each one would revert to his long-term properties.
+ - Asking science to explain life and vital matters is equivalent to asking a grammarian to explain poetry.
+ - A system, artificially stabilized, and of course you have hidden risks under the surface, and you don’t know where the risks are.
+ - Procrastination is the soul rebelling against entrapment.
+ - Answer e-mails from junior people before more senior ones. Junior people have further to go and tend to remember who slighted them.
+ - It’s harder to say no when you really mean it.
+ - Writing is the art of repeating oneself without anyone noticing.
+ - When we want to do something while unconsciously certain to fail, we seek advice so we can blame someone else for the failure.
+ - If one puts an infinite number of monkeys in front of typewriters, and lets them clap away, there is a certainty that one of them will come out with an exact version of the ‘Iliad.’
+ - If you want to annoy a poet, explain his poetry.
+ - Social science means inventing a certain brand of human we can understand.
+ - Poverty is clearly one source of emotional suffering, but there are others, like loneliness.
+ - Mental clarity is the child of courage, not the other way around.
+ - For many people, commuting is the worst part of the day, and policies that can make commuting shorter and more convenient would be a straightforward way to reduce minor but widespread suffering.
+ - Modernity: we created youth without heroism, age without wisdom, and life without grandeur.
+ - I no longer care about the financial system. I gave them my roadmap. OK? Thanks, bye. I’ve no idea what’s going on. I’m disconnected. I’m totally disengaged.
+ - You exist if and only if you are free to do things without a visible objective, with no justification and, above all, outside the dictatorship of someone else’s narrative.
+ - Most people are sceptical about the wrong things and gullible about the wrong things.
+ - What America does best is produce the ability to accept failure.
+ - If humans fight the last war, nature fights the next one.
+ - Greatness starts with the replacement of hatred with polite disdain.
+ - You need a story to displace a story.
+ - Intelligence consists in ignoring things that are irrelevant.
+ - An elephant is vastly more efficient, metabolically, than a mouse. It’s the same for a megacity as opposed to a village. But an elephant can break a leg very easily, whereas you can toss a mouse out of a window and it’ll be fine. Size makes you fragile.
+ - We have this culture of financialization. People think they need to make money with their savings rather with their own business. So you end up with dentists who are more traders than dentists. A dentist should drill teeth and use whatever he does in the stock market for entertainment.
+ - Economics make homeopath and alternative healers look empirical and scientific.
+ - When some systems are stuck in a dangerous impasse, randomness and only randomness can unlock them and set them free.
+ - Wit seduces by signaling intelligence without nerdiness.
+ - Meditation is a way to be narcissistic without hurting anyone.
+ - Private equity has absolutely no reason to exist. The private equity holder has all the upside and the banks all the downside.
+ - The more data we have, the more likely we are to drown in it.
+ - Aesthetics, ethics, and many good things in humans are contagious.
+ - You have a real life if and only if you do not compete with anyone in any of your pursuits.
+ - You never win an argument until they attack your person.
+ - As countries get rich they start increasing education and the very educated people tend to not like trial and error, because they think they’re obligated to use the body of knowledge they have.
+ - It takes extraordinary wisdom and self-control to accept that many things have a logic we do not understand that is smarter than our own.
+ - It is a sign of weakness to avoid showing signs of weakness.
+ - If you don’t feel that you haven’t read enough, you haven’t read enough.
+ - A washing machine needs constant maintenance. It doesn’t want any harm. It wants tranquility, and you need someone to – you’re not going to harm it by continuously monitoring it and adjusting it.
+ - If something is going on, I hear about it. I like to talk to people, I socialise. Television is a waste of time. Human contact is what matters.
+ - Being an economist is the least ethical profession, closer to charlatanism than any science.
+ - Restaurants get you in with food to sell you liquor; religions get you in with belief to sell you rules.
+ - You will be civilized on the day you can spend a long period doing nothing, learning nothing, and improving nothing, without feeling the slightest amount of guilt.
+ - Doctors most commonly get mixed up between absence of evidence and evidence of abense.
+ - Ideas come and go, stories stay.
+ - Banks have never made money in the history of banking, losing the equivalent of all their past profits periodically – while bankers strike it rich.
+ - This is the tragedy of modernity: as with neurotically overprotective parents, those trying to help are often hurting us the most.
+ - The traits I respect are erudition and the courage to stand up when half-men are afraid for their reputation. Any idiot can be intelligent.
+ - Just as being nice to the arrogant is no better than being arrogant toward the nice, being accommodating toward anyone committing a nefarious action condones it.
+ - Wear your best for your execution and stand dignified. Your last recourse against randomness is how you act – if you can’t control outcomes, you can control the elegance of your behaviour. You will always have the last word.
+ - I lift heavy weights and sprint, but I am so bad at it that I develop severe injuries.
+ - When you ask people, ‘What’s the opposite of fragile?,’ they tend to say robust, resilient, adaptable, solid, strong. That’s not it. The opposite of fragile is something that gains from disorder.
+ - Never think that lack of variability is stability. Don’t confuse lack of volatility with stability, ever.
+ - Modernity has replaced ethics with legalese, and the law can be gamed with a good lawyer.
+ - Janet Yellen at the FED is equivalent to having a biology schoolteacher who has never seen blood perform brain surgery.
+ - Never trust a journalist unless she’s your mother.
+ - I’m in favour of religion as a tamer of arrogance. For a Greek Orthodox, the idea of God as creator outside the human is not God in God’s terms. My God isn’t the God of George Bush.
+ - At no point in history have so many non-risk-takers, that is, those with no personal exposure, exerted so much control.
+ - If you roll dice, you know that the odds are one in six that the dice will come up on a particular side. So you can calculate the risk. But, in the stock market, such computations are bull – you don’t even know how many sides the dice have!
+ - The person you are most afraid to contradict is yourself.
+ - An erudite is someone who displays less than he knows; a journalist or consultant the opposite.
+ - The rationalist imagines an imbecile-free society; the empiricist and imbecile-proof one, or even better, a rationalist-proof one.
+ - To succeed in life requires a total inability to do anything that makes you uncomfortable when you look at yourself in the mirror.
+ - Maximum of an average is necessarily less volatile than the average maximum.
+ - Let me be more aggressive: we are largely better at doing than we are at thinking, thanks to antifragility. I’d rather be dumb and antifragile than extremely smart and fragile, any time.
+ - You will get the most attention from those who hate you. No friend, no admirer and no partner will flatter you with as much curiosity.
+ - For the classics philosophical insight was the product of a life of leisure; for me a life of leisure is the product of philosophical insight.
+ - To be completely cured of newspapers, spend a year reading the previous week’s newspapers.
+ - Decomposition, for most, starts when they leave the free, social, and uncorrupted college life for the solitary confinement of professions and nuclear families.
+ - People focus on role models; it is more effective to find antimodels – people you don’t want to resemble when you grow up.
+ - The twentieth century was the bankruptcy of the social utopia; the twenty-first will be that of the technological one.
+ - The classical man’s worst fear was inglorious death; the modern man’s worst fear is just death.
+ - When you develop your opinions on the basis of weak evidence, you will have difficulty interpreting subsequent information that contradicts these opinions, even if this new information is obviously more accurate.
+ - Suckers think that you cure greed with money, addiction with substances, expert problems with experts, banking with bankers, economics with economists, and debt crises with debt spending.
+ - It was obvious that their profits were simply cash borrowed from destiny with some random payback time.
+ - It’s not a good idea to take a forecast from someone wearing a tie. If possible, tease people who take themselves and their knowledge too seriously.
+ - The irony of the process of thought control: the more energy you put into trying to control your ideas and what you think about, the more your ideas end up controlling you.
+ - Daily news and sugar confuse our system in the same manner.
+ - I’m a capitalist but one who is smallist and localist, and who favours businesses where owners are still in charge.
+ - Categorizing is necessary for humans, but it becomes pathological when the category is seen as definitive, preventing people from considering the fuzziness of boundaries, let alone revising their categories.
+ - The psychologist Gerd Gigerenzer has a simple heuristic. Never ask the doctor what you should do. Ask him what he would do if he were in your place. You would be surprised at the difference.
+ - Read books are far less valuable than unread ones.
+ - Probability is not a mere computation of odds on the dice or more complicated variants; it is the acceptance of the lack of certainty in our knowledge and the development of methods for dealing with our ignorance.
+ - He who has never sinned is less reliable than he who has only sinned once. And someone who has made plenty of errors-though never the same error more than once-is more reliable than someone who has never made any.
+ - Forecasting by bureaucrats tends to be used for anxiety relief rather than for adequate policy making.
+ - I drive a hybrid, moving into an electric car. I only drink tap water, never consume food that’s travelled.
+ - Life is a tightrope between two errors: generalizing the wrong particular and particularizing the wrong general.
+ - People who forecast simply because “that’s my job,” knowing pretty well that their forecast is ineffectual, are not what I would call ethical. What they do is no different from repeating lies simply because “it’s my job.”
+ - Fragility is the quality of things that are vulnerable to volatility.
+ - The bonus for bankers fragilizes the system. Someone has the upside at the expense of others.
+ - Capitalism is about adventurers who get harmed by their mistakes, not people who harm others with their mistakes.
+ - Luck is the grand equalizer.
+ - If you hear a “prominent” economist using the word ‘equilibrium,’ or ‘normal distribution,’ do not argue with him; just ignore him, or try to put a rat down his shirt.
+ - Banking is a very treacherous business because you don’t realize it is risky until it is too late. It is like calm waters that deliver huge storms.
+ - Success is about honour, feeling morally calibrated, absence of shame, not what some newspaper defines from an external metric.
+ - But they never notice the following inconsistency: this so-called worst-case event, when it happened, exceeded the worst case at the time.
+ - Every social association that is not face-to-face is injurious to your health.
+ - The book is the only medium left that hasn’t been corrupted by the profane.
+ - Rationalism crashes in the tails.
+ - By all means, avoid words – threats, complaints, justification, narratives, reframing, attempts to win arguments, supplications; avoid words!
+ - What organized dating sites fail to understand is that the people are far more interesting in what they don’t say about themselves.
+ - Modernity needs to understand that being rich and becoming rich are not mathematically, personally, socially, and ethically the same thing.
+ - All of technology, really, is about maximizing free options.
+ - To become a philosopher, start by walking very slowly.
+ - Your reputation is harmed the most by what you say to defend it.
+ - Another definition of modernity: conversations can be more and more completely reconstructed with clips from other conversations taking place at the same time on the planet.
+ - The best way to measure the loss of intellectual sophistication – this “nerdification,” to put it bluntly – is in the growing disappearance of sarcasm, as mechanic minds take insults a bit too literally.
+ - I’ve debated many economists who claim to specialize in risk and probability: when one takes them slightly outside their narrow focus, but within the discipline of probability, they fall apart, with the disconsolate face of a gym rat in front of a gangster hit man.
+ - I always remind myself that what one observes is at best a combination of variance and returns, not just returns.
+ - Political life loves some volatility.
+ - The only valid political system is one that can handle an imbecile in power without suffering from it.
+ - We glorify those who left their names in history books at the expense of those contributors about whom our books are silent. We humans are not just a superficial race – we are a very unfair one.
+ - The world we live in is vastly different from the world we think we live in.
+ - The problem of knowledge is that there are many more books on birds written by ornithologists than books on birds written by birds and books on ornithologists written by birds.
+ - A mistake is not something to be determined after the fact, but in the light of the information until that point.
+ - Probability and expectation are not the same. Its probability and probability times the pay off.
+ - My nightmare scenario is that the government saves Citibank once again, as well as the other banks, and business resumes as usual. Then, the next time the system breaks, it breaks much, much bigger.
+ - Much of aging comes from a misunderstanding of the effect of comfort.
+ - A country’s assets reside in the tinkerers, the hobbyists, and the risk-takers.
+ - In the United States large corporations control some members of Congress. All this does is delay the corporation’s funeral at our expense.
+ - He who has never sinned is less reliable than he who has only sinned once.
+ - If you are in banking and lending, surprise outcomes are likely to be negative for you.
+ - Paul Krugman is a danger to society!
+ - People used to wear ordinary clothes weekdays, and formal attire on Sunday. Today it is the exact reverse.
+ - Scepticism is effortful and costly. It is better to be sceptical about matters of large consequences, and be imperfect, foolish and human in the small and the aesthetic.
+ - We didn’t get where we are thanks to the sissy notion of resilience.
+ - Experience is devoid of the cherry-picking that we find in studies.
+ - The tragedy of virtue is that the more obvious, boring, unoriginal, and sermonizing the proverb, the harder it is to implement.
+ - Debt is a mistake between lender and borrower, and both should suffer.
+ - I’m a private intellectual, not a public one.
+ - We should reward people, not ridicule them, for thinking the impossible.
+ - While in theory randomness is an intrinsic property, in practice, randomness is incomplete information.
+ - In economic life and history more generally, just about everything of consequence comes from black swans; ordinary events have paltry effects in the long term.
+ - What we do today has nothing to do with capitalism or socialism. It is a crony type of system that transfers money to the coffers of bureaucrats.
+ - Realism is punishing. Probabilistic skepticism is worse.
+ - Most so-called writers keep writing and writing with the hope, some day, to find something to say.
+ - Someone bemoaned that there were so few women in economics. But there are also very few men in economics.
+ - I hated school because I liked to daydream and the system tried to stop me from that.
+ - Anything organic requires some dose of variability so it can adapt all the time, and fixing things is not a good idea.
+ - The payoff of a human venture is, in general, inversely proportional to what it is expected to be.
+ - Also, it’s good to have more than one profession, in case your own profession goes out of style. A Wall Street trader who’s also a belly dancer will do a lot better than a trader who winds up driving a taxi.
+ - Go to parties. You can’t even start to know what you may find on the envelope of serendipity. If you suffer from agoraphobia, send colleagues.
+ - Modernity widened the distance between the sensational and the relevant.
+ - The imagination of the genius vastly surpasses his intellect; the intellect of the academic vastly surpasses his imagination.
+ - Randomness works well in search sometimes better than humans.
+ - You want failures to be small and informational. Silicon Valley does very well. It knows how to use failure as a tool for improvement.
+ - I am happy everywhere except in places where I see glitz and rich farts. I am happiest in Brooklyn, where the concentration of rich farts is minimal.
+ - I want them poor and they deserve to be poor. You can’t have capitalism without punishment.
+ - Older people are most beautiful when they have what is lacking in the young: poise, erudition, wisdom, phronesis, and this post-heroic absence of agitation.
+ - We favor the visible, the embedded, the personal, the narrated, and the tangible; we scorn the abstract.
+ - Simplicity is not so simple to attain.
+ - We should ban banks from risk-taking because society is going to pay the price.
+ - You are rich if and only if money you refuse tastes better than money you accept.
+ - It does not matter how frequently something succeeds if failure is too costly to bear.
+ - Is the economy something organic or is it something engineered? I think it’s closer to the organic. You harm it by artificially suppressing volatility in it.
+ - The government-sponsored institution Fannie Mae, when I look at its risks, seems to be sitting on a barrel of dynamite, vulnerable to the slightest hiccup. But not to worry: their large staff of scientists deemed these events “unlikely.”
+ - The best way to learn a language may be an episode of jail in a foreign country.
+ - The worst side effect of wealth is the social associations it forces on its victims, as people with big houses end up socializing with other people with big houses.
+ - My best definition of a nerd: someone who asks you to explain an aphorism.
+ - If you’re going to fail, you’d rather fail early than fail late in general.
+ - It is much harder to become independent if you are wealthy than to become wealthy if you are independent.
+ - An option hides where we don’t want it to hide.
+ - The sucker’s trap is when you focus on what you know and what others don’t know, rather than the reverse.
+ - Don’t ask the barber whether you need a haircut, and don’t ask an academic if what he does is relevant.
+ - In science you need to understand the world; in business you need others to misunderstand it.
+ - The difference between slaves in Roman and Ottoman days and today’s employees is that slaves did not need to flatter their boss.
+ - People work out, they stress their body, and their body gets stronger from stress.
+ - My biggest problem with modernity may lie in the growing separation of the ethical and the legal.
+ - What we need to do is break the financial community’s grip on society.
+ - I don’t read the papers; I stopped reading the papers. I read the papers only during periods of crisis, and I think papers are too long on a regular day and too short days when we have a crisis.
+ - Cumulative errors depend largely on the big surprises, the big opportunities. Not only do economic, financial, and political predictors miss them, but they are quite ashamed to say anything outlandish to their clients and yet events, it turns out, are almost always outlandish.
+ - Never, never, never think – that’s one lesson you should have in life. Never think that lack of variability is stability.
+ - Character is proportionate to N, the number of consecutive failures without being discouraged, or equivalently, the number of successive rejections without being intimidated.
+ - Never take advice from anyone in a tie. They’ll bankrupt you. Don’t ask a general for advice on war, and don’t ask a broker for advice on money.
+ - Deficits are like putting dynamite in the hands of children. They can get out of control very quickly.
+ - A prophet is not someone with special visions, just someone blind to most of what others see.
+ - Read books are far less valuable than unread ones. The library should contain as much of what you do not know as your financial means, mortgage rates, and the currently tight real-estate market alow you to put there.
+ - Switzerland is the perfect place where you have volatility at a municipal level that nothing up top – small units competing with each other.
+ - If you let markets – in general, my belief is that if you let markets give you information, they’ll give you the information rather than artificially prop up everything.
+ - People have the problem of denial. This is one of the things I learned in Lebanon. Everybody who left Beirut when the war started, including my parents, said, ‘Oh, its temporary.’ It lasted 17 years! People tend to underestimate the gravity of these situations. That’s how they work.
+ - The American people will eventually get hurt by this accumulated deficit. That’s the problem. We have too much deficit. We have to find a solution.
+ - Alan Greenspan is unskilled; you don’t take the unskilled seriously.
+ - But it remains the case that you know what is wrong with a lot more confidence than you know what is right.
+ - Make sure that you are in a situation where the constant mistakes are small and can be used for something.
+ - I don’t know anyone on Wall Street who goes to work every day thinking of anything but how to increase their bonus.
+ - We cannot truly plan, because we do not understand the future-but this is not necessarily a bad news. We could plan while bearing in mind such limitations. It just takes guts.
+ - The opposite of fragile is something that gains from disorder.
+ - There is a certain category of fool-the overeducated, the academic, the journalist, the newspaper reader, the mechanistic scientist, the pseudo-empiricist, those endowed with what I call epistemic arrogance, this wonderful ability to discount what they did not see, the unobserved.
+ - Rank beliefs not according to their plausibility but by the harm they may cause.
+ - Please, don’t drive a school bus blindfolded.
+ - The grandchildren should not bear the debts of the grandparents.
+ - Nobody reads the disclosures that roll down your computer screen. You click ‘I agree’ but you don’t know what you’re agreeing to.
+ - The track record of economists in predicting events is monstrously bad. It is beyond simplification; it is like medieval medicine.
+ - A competitive athlete is painful to look at; trying hard to become an animal rather than a man, he will never be as fast as a cheetah or as strong as an ox.
+ - In politics we face the choice between warmongering, nation-state loving, big-business agents on one hand; and risk-blind, top-down, epistemic arrogant big servants of large employers on the other. But we have a choice.
+ - Bankers, they’re not harmed by their mistakes. They benefit when things go right, and the society pays the price.
+ - It might be useful to be able to predict war. But tension does not necessarily lead to war, but often to peace and to denouement.
+ - I’d rather have the market tell us what – I’d rather have events precipitate events, rather than just sit there like passive people in Washington.
+ - It is remarkable how fast and how effectively you can construct a nationality with a flag, a few speeches, and a national anthem; to this day I avoid the label “Lebanese,” preferring the less restrictive “Levantine” designation.
+
+289 quotes

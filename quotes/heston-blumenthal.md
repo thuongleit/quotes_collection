@@ -1,0 +1,31 @@
+ - I have this desire to keep improving, so I find fault.
+ - At home I’ve got 1,500 cook books and the spines have all gone, the pages are all torn – it’s chaos.
+ - I worked 120 hours a week for eight years. That’s 20 to 22 hours a day every day and one week I only got 15 hours sleep.
+ - You think about some of the most memorable meals you’ve ever had; the food will be good but it will often be about locating a mental memory and taste is inexorably linked to all the other senses and memory, so ultimately it is all about taste.
+ - You need to do the work to bring the money in, but not compromise standards.
+ - If it doesn’t taste good it doesn’t go on the menu.
+ - This kitchen is completely calm. Some of the old-fashioned chefs – they become kings in their kitchen, they’ve got to be called chef. But I don’t care if someone calls me chef or Heston, it really doesn’t bother me.
+ - I am not the world’s most confident person.
+ - Being branded number one restaurant in the world is actually very humbling.
+ - I was determined that if I failed it wouldn’t be due to lack of effort.
+ - Take note of what’s around you and maximise sensory pleasure.
+ - What gets me excited is the original principle.
+ - I’ve got around 400 cookbooks.
+ - I write and chop with my left hand and do everything else, including eating with a knife, with my right.
+ - Development is where my heart is focused because eating is the only thing that we do that involves all the senses. We eat with our eyes and our ears and our noses.
+ - I still love doing what I do, and I’m really lucky to get up in the morning and want to go to work.
+ - As we get older, we tend to become more risk averse because we tend to find reasons why things wont work. When you are a kid, you think everything is possible, and I think with creativity it is so important to keep that naivety.
+ - I would try doing a dish 30 different ways.
+ - But most is all to do with work. There are aspects of work that are enjoyable, that you could call a hobby.
+ - No, when I worked as an accountant I was falling asleep waiting for 5 o’clock.
+ - I’m not scared of anything in particular, but I am motivated by a fear of failure as opposed to a need to succeed.
+ - Now my complaint is there are only 18 hours to work in a day.
+ - I tend to take negative comments to heart.
+ - I haven’t raised my voice for eight to 10 years in the kitchen. And I won’t have anybody shouting. If I hear of anybody having a go at anyone else, they’ll get disciplined.
+ - You know how sad your life is when you know the release date of DVDs.
+ - It was not easy with a newborn, asking your wife to give up the family home and your security.
+ - Television forces people to be larger than life. I would be too shy.
+ - It was quite a challenge to make people eat crab ice cream.
+ - A lot of country pubs will receive Michelin stars.
+
+29 quotes

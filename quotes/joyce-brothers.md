@@ -1,0 +1,55 @@
+ - If you change nothing, nothing changes.
+ - Success is a state of mind. If you want success, start thinking of yourself as a success.
+ - Trust your hunches. They’re usually based on facts filed away just below the conscious level.
+ - Love comes when manipulation stops; when you think more about the other person than about his or her reactions to you. When you dare to reveal yourself fully. When you dare to be vulnerable.
+ - The only people who don’t make mistakes are the people who don’t do anything.
+ - The greatest happiness is family happiness.
+ - The best proof of love is trust.
+ - Studies indicate that the one quality all successful people have is persistence.
+ - I have found in work that you only get back what you put into it, but it does come back gift-wrapped.
+ - Happiness hides in life’s small details. If you’re not looking, it becomes invisible.
+ - A person’s self-concept is the core of his personality.
+ - If your energy is as boundless as your ambition, total commitment may be a way of life you should seriously consider.
+ - In each of us there are places we have never gone. Only by pressing the limits do you ever find them.
+ - There is a rule in sailing where the more maneuverable ship should give way to the less maneuverable craft. I think this is sometimes a good rule to follow in human relationships as well.
+ - No matter how much pressure you feel at work, if you could find ways to relax for at least five minutes every hour, you’d be more productive.
+ - Don’t always try to be popular. It isn’t possible for everyone to like you. It’s far more important for you to like yourself. And when you respect yourself, strangely, you get more respect than when you court it from others.
+ - The cynic finds love with the idealist. The rebel with the conformist. The social butterfly with the bookworm. They help each other balance their lives.
+ - A woman should never underestimate the power of the child in the man. Sometimes the child seems to be in the driver’s seat at the very moment when all a man’s adult judgment and insight is needed.
+ - When you come right down to it, the secret to having it all is loving it all.
+ - I think we should follow a simple rule: if we can take the worst, take the risk.
+ - When success comes in the door, it seems, love often goes out the window.
+ - Feeling gratitude isn’t born in us-it’s something we are taught, and in turn, we teach our children.
+ - The more we have, the more we want. And for this reason, we never have it all.
+ - Love, real love, is not simply a state of bliss. It is an ever-changing state, the result of time and emotional development, of trust and commitment.
+ - The world at large does not judge us by who we are and what we know; it judges us by what we have.
+ - Before your dreams can come true, you have to have those dreams.
+ - Hunches are a kind of subterranean logic shorthand.
+ - For some reason, we see divorce as a signal of failure, despite the fact that each of us has a right, and an obligation, to rectify any other mistake we make in life.
+ - Don’t fool yourself that you are going to have it all. You are not. Psychologically, having it all is not even a valid concept. The marvelous thing about human beings is that we are perpetually reaching for the stars. The more we have, the more we want. And for this reason, we never have it all.
+ - Strong families use the word we a lot, but I is never forgotten. Family members know they have the freedom to go off on their own, even if the direction is one that we have never followed before. The family message is, We’re behind you, so you can be you.
+ - I don’t believe in luck. We make our own good fortune.
+ - Music is stored in our long-term memory. When we learn something through music, we tend to remember it longer and believe it more deeply. Dr. Joyce Brothers.
+ - They say that money is not everything. I say that when you don’t have any, it is everything.
+ - It is a man’s world at the top, at the bottom, and in between. Men are in the catbird seat as far as income, opportunity, status, and power are concerned. This is the way it always has been and, as far as men are concerned, it is the way it always should be.
+ - I have emerged from the tunnel of grief into the light. Life is better. Not the same, but good and getting better all the time.
+ - A philosopher is a person who doesn’t care which side his bread is buttered on; he knows he eats both sides anyway.
+ - No matter how lovesick a woman is, she shouldn’t take the first pill that comes along.
+ - Anger repressed can poison a relationship as surely as the crudest words.
+ - If we did get a divorce, the only way my husband would find out about it is if they announced it on Wide World of Sports.
+ - The best of all possible marriages is a seesaw in which first one, then the other partner is dominant.
+ - The need to connect with one another intimately is what makes and keeps us human. The challenge throughout life is to find the courage to reach out to potential partners when our primary relationship ends and to recharge our tried-and-true unions when their sizzle starts to fizzle.
+ - Those who have easy, cheerful attitudes tend to be happier than those with less pleasant temperaments, regardless of money, making it, or success.
+ - There’s a very positive relationship between people’s ability to accomplish any task and the time they’re willing to spend on it.
+ - Women who are confident of their abilities are more likely to succeed than those who lack confidence, even though the latter may be much more competent and talented and industrious.
+ - I don’t give advice. I can’t tell anybody what to do. Instead I say this is what we know about this problem at this time. And here are the consequences of these actions.
+ - The simple but observable fact is that the more you love, the more you are able to love.
+ - Any man who watches more than three consecutive football games on TV in one day can be declared legally dead.
+ - When you forgive, you gain strength and come out a winner.
+ - For men to be virgins, we think it’s negative. We think that there’s something wrong with them.
+ - Women do not dress specifically for men or against other women. They dress for their subconscious.
+ - Scientists still know less about what attracts men than they do about what attracts mosquitoes.
+ - Those who are the most happy appear to know it the least; happiness is something that for the most part seems to mainly consist in not knowing it.
+ - Some men are self-made, but most are the revised work of a wife and children.
+
+53 quotes

@@ -1,0 +1,38 @@
+ - One good test is worth a thousand expert opinions.
+ - The rocket worked perfectly except for landing on the wrong planet.
+ - Science does not have a moral dimension. It is like a knife. If you give it to a surgeon or a murderer, each will use it differently.
+ - A good engineer gets stale very fast if he doesn’t keep his hands dirty.
+ - It takes sixty-five thousand errors before you are qualified to make a rocket.
+ - All one can really leave one’s children is what’s inside their heads. Education, in other words, and not earthly possessions, is the ultimate legacy, the only thing that cannot be taken away.
+ - My friends they were dancing here in the streets of Huntsville when our first satellite orbited the Earth. They were dancing again when the first Americans landed on the Moon. I’d like to ask you, don’t hang up your dancing slippers.
+ - Conquering the universe one has to solve two problems: gravity and red tape. We could have mastered gravity.
+ - Get me a broom. I’ll sweep my own office.
+ - Don’t tell me that man doesn’t belong out there. Man belongs wherever he wants to go – and he’ll do plenty well when he gets there.
+ - Man belongs wherever he wants to go.
+ - By the year 2000 we will undoubtedly have a sizable operation on the Moon, we will have achieved a manned Mars landing and it’s entirely possible we will have flown with men to the outer planets.
+ - My experiences with science led me to God. They challenge science to prove the existence of God. But must we really light a candle to see the sun?
+ - Crash programs fail because they are based on theory that, with nine women pregnant, you can get a baby in a month.
+ - The best computer is a man, and it’s the only one that can be mass-produced by unskilled labor.
+ - It is in scientific honesty that I endorse the presentation of alternative theories for the origin of the universe, life and man in the science classroom. It would be an error to overlook the possibility that the universe was planned rather than happening by chance.
+ - If we were to start today on an organized and well-supported space program I believe a practical passenger rocket can be built and tested within ten years.
+ - I believe in an immortal soul. Science has proved that nothing disintegrates into nothingness. Life and soul, therefore, cannot disintegrate into nothingness, and so are immortal.
+ - I find it as difficult to understand a scientist who does not acknowledge the presence of a superior rationality behind the existence of the universe as it is to comprehend a theologian who would deny the advances of science.
+ - For me, the idea of a creation is not conceivable without invoking the necessity of design. One cannot be exposed to the law and order of the universe without concluding that there must be design and purpose behind it all.
+ - I believe that the time has arrived for medical investigation of the problems of manned rocket flight, for it will not be the engineering problems but rather the limits of the human frame that will make the final decision as to whether manned space flight will eventually become a reality.
+ - It was very successful, but it fell on the wrong planet.
+ - We should remember that science exists only because there are people, and its concepts exist only in the minds of men. Behind these concepts lies the reality which is being revealed to us, but only by the grace of God.
+ - Our sun is one of a 100 billion stars in our galaxy. Our galaxy is one of billions of galaxies populating the universe. It would be the height of presumption to think that we are the only living thing in that enormous immensity.
+ - The logistic requirements for a large, elaborate mission to Mars are no greater that those for a minor military operation extending over a limited theatre of war.
+ - The same forces of nature which enable us to fly to the stars, enable us also to destroy our star.
+ - Everybody knows what the moon is, everybody knows what this decade is, and everybody can tell a live astronaut who returned from the moon from one who didn’t.
+ - The greatest gain from space travel consists in the extension of our knowledge. In a hundred years this newly won knowledge will pay huge and unexpected dividends.
+ - Looking back, nothing seems so simple than a utopian vision realised.
+ - I’m convinced that before the year 2000 is over, the first child will have been born on the moon.
+ - What we will have attained when Neil Armstrong steps down upon the moon is a completely new step in the evolution of man.
+ - If we continue at this leisurly pace, we will have to pass Russian customs when we land on the moon.
+ - I only hope that we shall not wait to adopt the program until after our astronomers have reported a new and unsuspected asteroid moving across their fields of vision with menacing speed. At that point it will be too late!
+ - Man is not made for space. But with the help of biologists and medical doctors, he can be prepared and accommodated.
+ - With our present knowledge, we can respond to the challenge of stellar space flight solely with intellectual concepts and purely hypothetical analysis. Hardware solutions are still entirely beyond our reach and far, far away.
+ - There are flying grandfathers. But I intend to be an orbiting grandfather.
+
+36 quotes

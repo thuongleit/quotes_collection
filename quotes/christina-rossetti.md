@@ -1,0 +1,65 @@
+ - Obedience is the fruit of faith.
+ - In the bleak midwinter Frosty wind made moan, Earth stood hard as iron, Water like a stone; Snow had fallen, Snow on snow, Snow on snow, In the bleak midwinter, Long ago.
+ - Love came down at Christmas, Love all lovely, Love Divine; Love was born at Christmas; Star and angels gave the sign.
+ - Remember me when I am gone away, gone far away into the silent land.
+ - Better by far you should forget and smile than that you should remember and be sad.
+ - What are heavy? sea-sand and sorrow. What are brief? today and tomorrow. What are frail? spring blossoms and youth. What are deep? the ocean and truth.
+ - Can anything be sadder than work left unfinished? Yes, work never begun.
+ - Silence is more musical than any song.
+ - We must not look at goblin men, We must not buy their fruits: Who knows upon what soil they fed Their hungry thirsty roots?
+ - Does the road wind up-hill all the way? Yes, to the very end.
+ - Spring is when life’s alive in everything.
+ - The downhill path is easy, but there’s no turning back...
+ - For there is no friend like a sister in calm or stormy weather.
+ - Tread softly! All the earth is holy ground.
+ - One day in the country Is worth a month in town.
+ - Lie still, lie still, my breaking heart; My silent heart, lie still and break: Life, and the world, and mine own self, are changed For a dream’s sake.
+ - What is the beginning? Love. What is the course. Love still. What the goal. The goal is love.
+ - For there is no friend like a sister in calm or stormy weather; To cheer one on the tedious way, to fetch one if one goes astray, to lift one if one totters down, to strengthen whilst one stands.
+ - Faith is like a lily, lifted high and white.
+ - Flowers preach to us if we will hear.
+ - Love is like a rose, the joy of all the earth.
+ - A pin has a head, but has no hair.
+ - Consider The lilies of the field whose bloom is brief: – We are as they; Like them we fade away As doth a leaf.
+ - All things that pass Are wisdom’s looking-glass.
+ - Observe this dew-drenched rose of Tyrian gardens A rose today. But you will ask in vain Tomorrow what it is; and yesterday It was the dust, the sunshine, and the rains.
+ - O Lord, I cannot plead my love of Thee: I plead Thy love of me: – the shallow conduit hails the unfathomed sea.
+ - And all the winds go sighing, for sweet things dying.
+ - The loves that meet in Paradise shall cast out fear, And Paradise hath room for you and me and all.
+ - My heart is like a singing bird.
+ - Love shall be our token; love be yours and love be mine.
+ - O Lord, who art our guide even unto death, grant us, I pray Thee, grace to follow Thee whithersoever Thou goest. In little daily duties to which Thou callest us, bow down our wills to simple obedience.
+ - Were there no God, we would be in this glorious world with grateful hearts, and no one to thank.
+ - Who has seen the wind? Neither you nor I but when the trees bow down their heads, the wind is passing by.
+ - Not as she is, but as she fills his dream.
+ - It is not the deed we do Though the deed be never so fair, But the love that the dear Lord looketh for, Hidden with lovely care In the heart of the deed so fair.
+ - Why one day in the country Is worth a month in town; Is worth a day and a year Of the dusty, musty, lag-last fashion That days drone elsewhere.
+ - Where innocent bright-eyes daisies are With blades of grass between, Each daisy stands up like a star Out of a sky of green.
+ - O passing angel, speed me with a song, a melody of heaven to reach my heart and rouse me to the race and make me strong.
+ - The city mouse lives in a house, The garden mouse lives in a bower.
+ - Hurt no living thing: Ladybird, nor butterfly, Nor moth with dusty wing.
+ - Fair as the moon and joyful as the light; Tot wan with waiting, not with sorrow dim; Not as she is, but was when hope shone bright; Not as she is, but as she fills his dreams.
+ - Choose love not in the shallows but in the deep.
+ - Open wide the windows of our spirits and fill us full of light; open wide the door of our hearts, that we may receive and entertain Thee with all our powers of adoration.
+ - Heaven is the presence of God.
+ - I lock my door upon myself, And bar them out; but who shall wall Self from myself, most loathed of all?
+ - She gave up beauty in her tender youth, gave all her hope and joy and pleasant ways; she covered up her eyes lest they should gaze on vanity, and chose the bitter truth.
+ - And may you happy live, And long us bless.
+ - For one man is my world of all the men this wide world holds; O love, my world is you.
+ - Because the birthday of my life Is come, my love is come to me.
+ - Why does the sea moan evermore? Shut out from heaven it makes its moan, It frets against the boundary shore; All earth’s full rivers cannot fill The sea, that drinking thirsteth still.
+ - Be the green grass above me, with showers and dewdrops wet; and if thou wilt, remember, and if thou wilt, forget.
+ - I might show facts as plain as day: but, since your eyes are blind, you’d say, ‘Where? What?’ and turn away.
+ - Yet come to me in dreams, that I may live My very life again though cold in death; Come back to me in dreams, that I may give Pulse for pulse, breath for breath: Speak low, lean low, As long ago, my love, how long ago.
+ - It’s surely summer. for there’s a swallow: Come one swallow, his mate will follow, The bird race quicken and wheel and thicken.
+ - Hope is like a hairball trembling from its birth...
+ - My heart is breaking for a little love.
+ - Oh roses for the flush of youth, And laurel for the perfect prime; But pluck an ivy branch for me Grown old before my time.
+ - Ah me, but where are now the songs I sang When life was sweet because you call’d them sweet?
+ - A man is ever apt to contemplate himself out of all proportion to his surroundings.
+ - All earth’s full rivers can not fillThe sea that drinking thirsteth still.
+ - To me it seems our duty towards the Bible is to obey its teaching in faith. I do not think we are bound to understand or account for all its utterances.
+ - The violets whisper from the shade Which their own leaves have made: Men scent our fragrance on the air, Yet take no heed Of humble lessons we would read.
+ - Good deeds are many, but good lives are few...
+
+63 quotes

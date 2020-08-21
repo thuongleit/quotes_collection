@@ -1,0 +1,171 @@
+ - Life is short and the older you get, the more you feel it. Indeed, the shorter it is. People lose their capacity to walk, run, travel, think, and experience life. I realise how important it is to use the time I have.
+ - To be an artist, you don’t have to compose music or paint or be in the movies or write books. It’s just a way of living. It has to do with paying attention, remembering, filtering what you see and answering back, participating in life.
+ - I have a work ethic. If I say I’m going to do something, I do it.
+ - You should always do the things in life that are both interesting and make you afraid.
+ - You do need to get lucky, no matter how talented you are.
+ - Be kind. It’s worthwhile to make an effort to learn about other people and figure out what you might have in common with them.
+ - I think if you don’t say something it’s lying by omission. I personally think it’s immoral.
+ - You can’t really go back to where you came from. I don’t think any of us can.
+ - I like naturally occurring film grain, and what happens to film when it’s under- and over-exposed.
+ - There’s no excuse to be bored. Sad, yes. Angry, yes. Depressed, yes. Crazy, yes. But there’s no excuse for boredom, ever.
+ - When you’re under stress as a human being, you behave oddly and your relationships with people become strained.
+ - I think every family is dysfunctional, and some manage to control it better than others.
+ - Travel is one of the best anti-war weapons that there are. I’ve been to Iran, and if you’re there you see little kids, cops, old people, cemeteries. Once you see that, you can’t say, ‘Oh, Iran, let’s bomb them.’
+ - If there’s one thing I’ve learned from traveling, it’s that it is definitely more important how you are than where you are. You can say, ‘Oh, I hate X city, I hate that country, or I prefer this city,’ but it’s a little bit up to you to find some kind of happiness.
+ - Life is short and the older you get, the more you feel it. Indeed, the shorter it is.
+ - As you get older, you get stuck in your ways; just as you become stiffer physically, you also become stiffer mentally and more narrow-minded unless you make a conscious effort to keep yourself flexible.
+ - I have friends who I get along with who I know get very uncomfortable being alone, unless they’re with people, talking all the time. Whether it’s on the phone, or in person, they’re never by themselves. Whereas I could be alone for months.
+ - Photography, painting or poetry – those are just extensions of me, how I perceive things; they are my way of communicating.
+ - I’m not that involved in personal grooming. But I try not to be offensive to people.
+ - People like to pigeonhole you. It’s easier.
+ - I don’t speak up about something unless I feel strongly about it and until I’ve researched a subject extensively and have an informed decision about it.
+ - On a practical level, poetry isn’t something anybody has really made a great living at. I might sell some books and, once in a while, someone might pay to hear me read.
+ - You know, real life doesn’t just suddenly resolve itself. You have to keep working at it. Democracy, marriage, friendship. You can’t just say, ‘She’s my best friend.’ That’s not a given, it’s a process.
+ - Once you learn the idea of what a good guy is, you want your dad to be a good guy, and when your dad lets you down and doesn’t act like a good guy, it’s disappointing and can make you angry as you see it happen, which is beautiful and very believable.
+ - I have a multicultural background, so I tend to have an open mind about things, and I find other cultures interesting.
+ - When we shot ‘The Lord of the Rings,’ we had special permission to film in wild areas of New Zealand that could be accessed only by helicopter. They would drop us off and we would work all day, and they’d pick us up and take us out again.
+ - I think that every person has many, many people inside of them. We change our personality depending on who we are talking to or what situation we are in.
+ - I’m not afraid of death, but I resent it. I think it’s unfair and irritating. Every time I see something beautiful, I not only want to return to it, but it makes me want to see other beautiful things. I know I’m not going to get to all the places I want to go.
+ - I like stories that leave you wanting more, leave you wondering, but don’t tell you everything.
+ - I have a publishing company of books by me and books of others. It drew people to poetry readings and photo exhibitions and painting exhibitions that I’ve been doing for years before that.
+ - As far as money goes, there’s a saying in Denmark: ‘Your last suit doesn’t have any pockets.’ You can’t take it with you. You can make all the money you want, but who cares?
+ - Some people who like dogs don’t like cats, but I’m not like that.
+ - In other words, I’m against cheating, greed, cruelty, racism, imperialism, religious fundamentalism, treason, and the seemingly limitless capacity for hypocrisy shown by Bush and his administration.
+ - To be honest, I don’t really care about any pope. It’s not something I think about much, to be quite honest with you.
+ - We all have secrets, some secrets bigger than others, is a normal human thing.
+ - If you daren’t enter the forest, or cannot find it, then perhaps you might find one tree, or a place where a tree could be, and just stop for a quiet moment to see what happens.
+ - Nobody really knows anybody completely, even if they’ve been married to ’em for 53 years, you know?
+ - When I heard Puerto Ricans in New York City, it sounded very strange. And the first time I heard someone from Spain, I thought they had a speech impediment!
+ - I was raised speaking English and Spanish. And I also speak Danish. And I can get by in French and Italian. I’ve acted in Spanish and English, but when something has to do with emotions, sometimes I feel I can get to the heart of the matter better in Spanish.
+ - I’m certainly curious about people. As a kid, I moved around a lot. I was raised in a lot of different places, and thanks to working in the movies, I’ve gotten to keep traveling. I’ve always been interested in other cultures and languages.
+ - You have a moral obligation to finish the job you said you would do.
+ - When there is conflict, it’s good to step away, even for five minutes, because you could say terrible things that you can’t take back, so it’s best to walk away.
+ - Joseph Campbell said the privilege of a lifetime is being yourself. That’s his feeling. And I guess it’s mine too.
+ - Further devastation of the air, land and sea is obviously a very real possibility, unless the attitudes of politicians and all who irresponsibly exploit our natural resources change significantly in the very near future and all collaborate and sacrifice for the good of the planet.
+ - What art does is it makes you feel alive and makes you feel like you’re connected.
+ - I’ve been naked physically in movies – but it’s a whole other thing to be naked emotionally in a way that’s not just a distraction or a character.
+ - Yes, I would agree that America, just like Spain was in the 17th Century, is the main empire of the world and they are the ones who, on the surface, are the most pushy: pushing their language, pushing their culture – or what there is of it – pushing by force their system on others.
+ - It’s hard not to get depressed when you pay attention to the world and how strangely and corrupt the people in it sometimes behave.
+ - It’s just like with people. You’re going to get along better working with them – human or equine – if you ask politely rather than demand that they do things.
+ - With few exceptions, one ought always do what one is afraid of.
+ - I don’t think special attention should be given to an actor or a singer or a baseball player or a soccer player more than anyone else, but they do have an opinion like anyone else.
+ - Because of the internet, satellite TV, and the digital world, you can stay in touch, you can learn about other people from a young age.
+ - You know, ‘Viggo’ is a pretty dorky name in Denmark. It’s like ‘Oswald’ or something. It’s a very old Scandinavian name, at least 1,000 years old.
+ - I’m sort of contrary and stubborn sometimes. When everybody says, ‘You have to read this book! You have to read this book!’ I’m like ‘Oh, I’ll get around to it.’
+ - Sometimes you look at a movie and you can see that the actor or actress said, ‘I’m taking this onboard because I’m making a ton of money, and not because it’s going to be something special.’
+ - I don’t have a BlackBerry or whatever you call it. And there is something to be said for being isolated and out of phone range, because you can fall into a habit to such a degree that you don’t even realise that you’ve lost something: silence.
+ - Pinochet and Barack Obama both have the same primary goal, and that’s to be president and stay president as long as allowed.
+ - Some actors learn the habit of promoting themselves as a brand – by dressing in a certain way, by going out with a certain person – it gives them what they obviously want, which is to keep a level of fame. I’m not putting it down.
+ - I’m not afraid of death, but I resent it. I think it’s unfair and irritating.
+ - I’m optimistic about people and about the planet and about nature. I think it’s resilient, like people are.
+ - You don’t have to make something that people call art. Living is an artistic activity, there is an art to getting through the day.
+ - Can you join, ask sincerely for affection without sweaty hand of expectation, understanding and accepting if it never is given?
+ - I try to research or make up for myself what happened in any character’s life. From when he was born until the first page of the script. I fill in the blanks.
+ - I like the detail work of telling a story in small pieces, as is done in movie-making, and also the long leap of faith needed to see a theatre performance through each night. Both require focus and self-discipline.
+ - Most movies are lucky to have one moment, one shot that you look at and you always remember that moment and that scene.
+ - I look at my job as looking at the world from points of view that are different from mine – sometimes radically different from mine.
+ - At the end of the 19th century and the first half of the 20th century in Austria, there was a lot of anti-Semitism. Anti-Semitism in Austria was much more pervasive than in Germany. And Austrians took to Nazi ideas and anti-Semitism much more readily than Germans did, really.
+ - Like most people I can be lazy, so it’s nice to have a goal or deadline or reason to work out. I feel better when I get to exercise, or when I’m outdoors. I like to hike, swim and run, and I love to play soccer.
+ - If you don’t find some way to discuss what’s going on inside you, it can come out in other ways that are self-destructive.
+ - If I can get a day to myself, I won’t answer the phone, I’ll read or go for a walk. Simple, basic things. People think there’s always time to do that but there isn’t. Life is short.
+ - Usually the characters I play are men of few words, who communicate in non-verbal ways.
+ - In a lot of places in the United States and certainly even more places around the world, the image of the cowboy has become, for some people, a negative one. The word ‘cowboy’ implies a strong, stubborn individual whose individualism depends on pulling down other people’s individualism.
+ - Saying you are a patriot does not make you one; wearing a flag pin does not in itself mean anything at all.
+ - I was raised in Argentina until I was 11 and now I go back there a lot, at least twice a year. It’s a country where I feel very comfortable and it represents an important period in my life.
+ - It’s true that I have a wide range of interests. I like to write and paint and make music and go walking on my own and garden. In fact, gardening is probably what I enjoy doing more than anything else.
+ - People are becoming more intimately acquainted with people who are different than them – it’s not so unusual anymore.
+ - I’m an optimist; I always hope that each new script is going to be a great story.
+ - In a way, editing is not unlike the movies. The best books, just like the best movies, are a collaboration. They’re only as good as the compromise made between the artists involved.
+ - America is an empire in decay. But we don’t have to lash out and do damage on the way down. We can reverse some of the damage we’ve done. It’s possible.
+ - Having a mixed background and feeling a little bit like a fish out of water in most places can be a benefit.
+ - I don’t think Adam Sandler or Will Ferrell fear competition from me in their arena.
+ - It’s very rare you get a great script just handed to you, or sent to you, by someone you don’t know.
+ - I think, on a surface level, people are surprised to see me playing such a passive role in ‘Good.’
+ - I would literally climb out of the cradle while my parents slept, go and crawl off. I did this a couple of times apparently. I’d cross the road and into someone’s house, wake them up banging pots and pans in the kitchen.
+ - I’ve never been conscious of having any real career plan, and I do not have a wish-list of actors, directors, screenwriters, or cameramen I’m hoping to work with. Life, I feel, has a way of leading us to the right situations and people, or at least to interesting ones.
+ - There are people that grandstand and seem to be publicly politically engaged because they like the attention, more than because they’re genuinely concerned about the world. But I don’t think that’s the majority.
+ - Jung viewed Freud as a mentor, but he never wanted to be anybody’s disciple.
+ - I mean, any movie or story that makes you accept and be grateful for something about your life is doing something right.
+ - I’m not a great fan of monarchy in general, but I have to say the Danish monarchy is closer to the people; it’s not as stuffy as the English one.
+ - Kids are shy and they often don’t want to make eye contact or say “thank you.”
+ - It’s amazing to me that Glenn Beck can be on the cover of ‘Time,’ and there can be a whole article about him basically saying, ‘Well, you know, he’s controversial.’ It’s like, ‘No, he’s a dangerous idiot who needs the help of a good psychiatrist!’
+ - I’m very comfortable in Argentina. I was raised there as a baby and stayed there until I was 11 years old, so the first decade of my life or my formative years were spent in Argentina. I stayed in tune with the food, music and language.
+ - I don’t think you get to be pope without making some enemies, like you do when you’re president.
+ - When I was a little boy, I rode, but I didn’t own horses.
+ - I think maybe because I do other things and they mean as much to me as movie acting, it takes the onus off me. It’s not the end of the world if I can’t get a film job, or if a movie doesn’t turn out well – even though I don’t like it when that happens.
+ - For ‘Hidalgo,’ I just spent as much time around horses as I could, which made sense.
+ - It doesn’t take that many years for a kid to realise that they’re going to die. It’s always there in the back of their mind the rest of their lives.
+ - Adult characters are all the things they’ve encountered over time. But kids haven’t accumulated all the life experience, all the regrets. They tend to be more in the moment, more willing to play, to be joyful.
+ - We often live in the past a lot more than we probably realize.
+ - I really enjoyed working with New Zealanders as crew members, as teammates. They’re great, and it’s a beautiful country. It’s one of the most beautiful places I’ve ever been, and I’ve traveled quite a bit.
+ - I’m just looking as always for something that’s stimulating and I hope to find a good story that’s a challenge, whether it’s big or small. Or that it finds me. I don’t have like a career plan. Maybe I should, but I don’t.
+ - I like movies that leave you with something to think about, to discuss, to debate, you know?
+ - In the end, the actor’s main power is the power to say, ‘No.’
+ - It’s almost a standard tactic, really, to try to minimize any effort that people in the entertainment business or in any public occupation make to express themselves.
+ - I don’t like people who get into fights about football – or anything else.
+ - Toronto Film Festival is one of those festivals where there are 400 movies, and unless you have a distributor who is super confident and puts a lot of money into it, sometimes movies can go unwatched or unnoticed.
+ - I’d like to, when it’s all said and done, say that I have at least a few stories that I feel proud of.
+ - In a movie, you’re raw material, just a hue of some color and the director makes the painting.
+ - I’ve never played a Dane in a movie. I’ve had offers to be in Danish movies, including for some good directors, but I either had a job at the time or, when I was available, the movie just didn’t happen. Hopefully someday I’ll do one.
+ - The best thing an actor can be is flexible, because all directors are different and all actors are different.
+ - You know, Freud accepted his lot very stoically and very well and with a sense of humor. He aged and died gracefully, and there’s a lot to be said for that.
+ - As a kid I read Jules Verne, H. G. Wells, and a few others. As an adult have admired Leonardo da Vinci’s drawings and notebooks.
+ - In terms of the movie business, being in a ‘Lord of the Rings’ has given me more interesting options as work.
+ - I’ve never had a problem with people paying attention to what you’re doing and say they find that they liked it.
+ - You can’t really divorce yourself and your life from the world you live in.
+ - I love rehearsing, but a lot of directors don’t, and some actors don’t.
+ - One of the most effective tools that the Cheney-Bush junta has used to marginalize dissenting or even mildly inquisitive American citizens has been the accusation of being unpatriotic.
+ - Anyone can identify with those moments in life where circumstances or people inform us that we’ve strayed from the path of our better nature and intentions. We know what that’s like, and we resist it – so as not to feel like we’re bad people.
+ - When people say that entertainers should “know your place,” they might as well say the same thing about plumbers and teachers and cab drivers. We all should be able to express our views.
+ - With any character I have played, there’s infinite possibilities for how they might behave, depending on who they are talking to or how they react to things.
+ - Those who have the power and should be the most responsible are often the least responsible.
+ - I have never been in a natural place and felt that it was a waste of time. I never have. And it’s a relief. If I’m walking around a desert or whatever, every second is worthwhile.
+ - I think you have to be flexible above all as an actor; different characters have different demands, actors that you work with are different in their approach, or how you get along or don’t get along with them.
+ - Most actors can’t make any kind of living.
+ - A little recognition is not a bad thing because it means people appreciate your work. The only problem is when you can’t walk down the street or have a meal without people looking at you. I want to be the one looking at people.
+ - Any nominations a movie gets helps to raise the level of curiosity in the public, so in that sense awards and nominations are important.
+ - You see people on the street yelling and think they’re crazy, but maybe they’re just happy and expressing what they feel at all times.
+ - I have no idea what ‘method actor’ means.
+ - If you tell the story emotionally in a truthful way, then you start naturally looking at the landscape and thinking “Wow, we have to watch out.”
+ - A lot of people can forget about you in Los Angeles.
+ - The Holocaust movie is almost a genre in itself these days.
+ - Ignorance breeds antipathy. Until I got to know how computers worked, I didn’t want anything to do with them. I said, ‘Well, why do I need them? I write letters.’ Which I still do.
+ - When I have a day off, I won’t spend it at a Hollywood party. I’d rather be at home with paints and a blank canvas.
+ - People talk about method actors, meaning someone that’s prepared very, very well, or whatever they mean when they talk about it. But the right method is whatever works for you. And what works for me on any given day is going to be different.
+ - If you’re trying to please everyone, then you’re not going to make anything that is honestly yours, I don’t think, in the long run.
+ - In a lot of ways, I envy someone like Omar Sharif who lived in a hotel for decades.
+ - The money I earn from films means I can help the people I want to help – you can do a lot of good if you want to.
+ - In principle, I think the idea of rewarding a good effort is interesting, but movies are generally different from each other as are performances and the conditions on how the performances are given and how they’re edited and so forth.
+ - There might be people out there who wouldn’t hire me because they thought I should keep my mouth shut, but I’m not aware of that. Even if I saw evidence of that, it wouldn’t really concern me.
+ - More often than not, the experience of shooting the movie has been disappointing and the end product has been a mere shadow of what I hoped it would be. But immersing myself in the story – that’s what I like best of all.
+ - This basic thing I always do: ‘What happened between the character’s birth, and page one of the script?’ Anything that’s not in the story, I’ll fill in the blanks.
+ - I know people who prepare their roles in such a way that they technically look ahead and memorize their gestures, and then they stick to it. Those that are technically proficient enough can make it seem natural, but they do that and don’t really take in what other people are doing.
+ - There’s no sense in doing something, especially if it’s a hard job, if you can’t have a little fun.
+ - I try to avoid conflict. I don’t want people to be unhappy.
+ - The first decade of your life is really important; it’s formative.
+ - A lot of times, movies that are in the top 10 lists or maybe even win Baftas or Oscars, you then watch them a year later and you go, ‘Maybe it wasn’t so great.’
+ - People will like to say that ‘Eastern Promises’ is brutal, but the only reason they say that is because the scenes stick with them. They are realistic. They are in-your-face and you see the consequences. It’s not a bunch of quick editing cuts.
+ - I like a twisted sense of humour. On ‘A History of Violence,’ David Cronenberg and I would be doing the grimmest scenes and laugh a lot.
+ - Kids accept where they are because they don’t know the past. They know what they have; they know where they are.
+ - When I land in a country and they ask for ‘occupation,’ I always just put ‘artist.’ I think that covers all of it.
+ - If in my twenties I’d gotten one of the two-dozen roles that I did screen tests for and almost got, I think I would have become bored with the awards circuit, the whole hype machine.
+ - Each time I make a movie, it’s like a paid scholarship to a different university course.
+ - I take my work seriously, but it’s not the only thing that exists in the world.
+ - Awards for arts, where you make comparisons, don’t make much sense.
+ - I have a roof over my head. I had a breakfast, and a lot of people in the world can’t say that. I’m not going to complain about being interviewed.
+ - I know I said I wanted to live forever and I would never be bored, but the reality is, it’s probably kind of sad to live forever if you’re the only one sticking around.
+ - My goal is just to make movies, whether they’re big or small, that I’d like to see 10 years from now.
+ - You know, real life doesn’t just suddenly resolve itself. You have to keep working at it.
+ - I grew up with horses when I was a kid in Argentina. I like them. I respect them. I’m careful around them. You never know what they’re going to do. They’re endlessly interesting. I’ve had some good acting partners that were horses over the years.
+ - Being an actor, imitating to the point of inhabiting the lives of others, may simply be a way of continuing to do what I learned to do as a boy – to travel, mentally and physically.
+ - I realise how important it is to use the time I have. I respect people who want to do that by watching television. I happen to want to read books. But I know I can’t read all the books or watch all the movies in one lifetime.
+ - I pursue the things I do because I’m interested in them.
+ - I was born in New York but as a baby moved to Venezuela and Argentina. I’ve also lived in Denmark, where my father’s from. I’ve traveled a lot, and having that sort of background probably increased the chance that I was going to remain curious as an adult about people who are different.
+ - It’s always interesting to play a character that obviously has a secret.
+ - I think that people who get to a certain position, and then try to ferociously defend it or build on it, it’s kind of a dead-end street. You see people becoming miserable that way.
+ - Like most people – unless they’re very practised at it or have no warm blood at all in their veins – I feel a little apprehensive about the red carpet. It’s always a bit bewildering when people are taking pictures and asking questions before the ceremony.
+ - I prefer the smaller acting than big histrionics. It’s about reacting and looks, which is often underestimated.
+ - Every year I hear people complain that the quality of screenplays and movies is declining. In my opinion, the vast majority of scripts written – as well as most movies that are released – are not very original, well-written, or interesting. It has always been that way, and I think it always will be.
+ - I’ve been lucky to learn by playing all kinds of roles and watching all kinds of really good cinematographers, actors, and directors for many years before people were even aware of me in terms of audience.
+
+169 quotes

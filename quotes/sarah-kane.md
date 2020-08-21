@@ -1,0 +1,32 @@
+ - There’s not a drug on earth can make life meaningful.
+ - I am the beast at the end of the rope.
+ - No boy is worth crying over, and the one who is won’t make you cry.
+ - I feel like I’m eighty years old. I’m tired of life and my mind wants to die.
+ - Death is my lover and he wants to move in.
+ - What I sometimes mistake for ecstasy is simply the absence of grief.
+ - Please. Don’t switch off my mind by attempting to straighten me out. Listen and understand, and when you feel contempt don’t express it, at least not verbally, at least not to me.
+ - Embrace beautiful lies – the chronic insanity of the sane.
+ - No one survives life.
+ - It is myself I have never met whose face is pasted on the underside of my mind.
+ - To create something beautiful about despair or out of a feeling of despair is for me the most hopeful life affirming thing a person can do.
+ - Once you have perceived that life is very cruel, the only response is to live with as much humanity, humour and freedom as you can.
+ - She’s talking about herself in the third person because the idea of being who she is, of acknowledging that she is herself, is more than her pride can take.
+ - Only love can save me and love has destroyed me.
+ - I’m here, got no choice. But you, you should be telling people.
+ - Have you made any plans? Take an overdose, slash my wrists then hang myself. All those things together? It couldn’t possibly be misconstrued as a cry for help.
+ - You get mixed messages because I have mixed feelings.
+ - Sleep with a dog and rise full of fleas.
+ - Here I am and there is my body dancing on glass.
+ - Of course I loved you, you saved my life. I wish you hadn’t I wish you hadn’t I wish you’d left me alone.
+ - I am an emotional plagiarist, stealing other people’s pain, subsuming it into my own until I can’t remember whose it is any more.
+ - I don’t have music, Christ I wish I had music but all I have is words.
+ - I crave white on white and black, but my thoughts race in glorious technicolour, prodding me awake, whipping away the warm blanket of invisibility every time it sears to smother my mind in nothing.
+ - I love you still, Against my will.
+ - If you died it would be like my bones had been removed. No one would know why, but I would collapse.
+ - They will love me for that which destroys me.
+ - Here I am and there is my body dancing on glass In accident time where there are no accidents You have no choice the choice comes after.
+ - There is an objective reality in which my body and mind are one. But I am not here and never have been.
+ - Comedy is easy. First, people have to fall down. Next, include someone a little hefty. It’s a hoot.
+ - Your hair is an act of God.
+
+30 quotes

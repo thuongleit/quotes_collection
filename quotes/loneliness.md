@@ -1,0 +1,42 @@
+ - To live alone is the fate of all great souls. ~~Arthur Schopenhauer
+ - The strongest man in the world is he who stands most alone. ~~Henrik Ibsen
+ - Leave my loneliness unbroken. ~~Edgar Allan Poe
+ - I’ll never forget how the depression and loneliness felt good and bad at the same time. Still does. ~~Henry Rollins
+ - Great eagles fly alone; great lions hunt alone; great souls walk alone-alone with God. Such loneliness is hard to endure, and impossible to enjoy unless God accompanied. Prophets are lone men; they walk alone, pray alone and God makes them alone. ~~Leonard Ravenhill
+ - I have found both freedom and safety in my madness; the freedom of loneliness and the safety from being understood, for those who understand us enslave something in us. ~~Khalil Gibran
+ - If one’s different, one’s bound to be lonely. ~~Aldous Huxley
+ - My loneliness was born when men praised my talkative faults and blamed my silent virtues. ~~Khalil Gibran
+ - The trouble is not that I am single and likely to stay single, but that I am lonely and likely to stay lonely. ~~Charlotte Brontë
+ - Loneliness is only an opportunity to cut adrift and find yourself. In solitude you are least alone. ~~Bruce Lee
+ - I am stronger than depression and I am braver than loneliness and nothing will ever exhaust me. ~~Elizabeth Gilbert
+ - Solitude was my only consolation – deep, dark, deathlike solitude. ~~Mary Shelley
+ - Loneliness and darkness have just robbed me of my valuables. ~~Sigmund Freud
+ - I was a man who thrived on solitude; without it I was like another man without food or water. Each day without solitude weakened me. I took no pride in my solitude; but I was dependent on it. The darkness of the room was like sunlight to me. ~~Charles Bukowski
+ - A sad soul can kill quicker than a germ. ~~John Steinbeck
+ - When the snows fall and the white winds blow, the lone wolf dies but the pack survives. ~~George R.R. Martin
+ - She did not know the nature of her loneliness. The only words that named it were: This is not the world I expected. ~~Ayn Rand
+ - Success definitely brings on loneliness. People think you’re lucky, that you have everything. They think you can go anywhere and do anything, but that’s not the point. One hungers for the basic stuff. ~~Michael Jackson
+ - Loneliness, tenderness, high society, notoriety, you fight for the throne and you travel alone. ~~Bob Dylan
+ - I had traded the fight against love for the fight against loneliness, the fight against life for the fight against death. ~~F. Scott Fitzgerald
+ - All great and precious things are lonely. ~~John Steinbeck
+ - Solitude is different from loneliness, and it doesn’t have to be a lonely kind of thing. ~~Fred Rogers
+ - Real loneliness is not necessarily limited to when you are alone. ~~Charles Bukowski
+ - Loneliness becomes a lover, solitude a darling sin. ~~Ian Fleming
+ - Loneliness is emptiness, but happiness is you. ~~Johnny Cash
+ - Loneliness is equal to the radius of one’s awareness. ~~Yoko Ono
+ - If you fear loneliness, then don’t get married. ~~Anton Chekhov
+ - Fiction is one of the few experiences where loneliness can be both confronted and relieved. ~~David Foster Wallace
+ - I hold my face in my two hands. No, I am not crying. I hold my face in my two hands to keep the loneliness warm – two hands protecting, two hands nourishing, two hands preventing my soul from leaving me in anger. ~~Nhat Hanh
+ - Music was my refuge. I could crawl into the space between the notes and curl my back to loneliness. ~~Maya Angelou
+ - Though we are all human beings, we have built walls between ourselves and our neighbors through nationalism, through race, caste, and class – which again breeds isolation, loneliness. ~~Jiddu Krishnamurti
+ - Start announcing freedom from anything that’s holding you back. Freedom from addictions, freedom from loneliness, freedom from lack, freedom from struggle. You are prophesying your future. Your words are setting the direction for your life. ~~Joel Osteen
+ - Words are loneliness. ~~Henry Miller
+ - It is not time or opportunity that is to determine intimacy; – it is disposition alone. Seven years would be insufficient to make some people acquainted with each other, and seven days are more than enough for others. ~~Jane Austen
+ - I’m supposed to be, I am an artist. Yes, I’m lonely. But I’m married to my loneliness. ~~Lady Gaga
+ - I felt a haunting loneliness sometimes, and felt it in others – young clerks in the dusk, wasting the most poignant moments of night and life. ~~F. Scott Fitzgerald
+ - Maybe ever’body in the whole damn world is scared of each other. ~~John Steinbeck
+ - What should young people do with their lives today? Many things, obviously. But the most daring thing is to create stable communities in which the terrible disease of loneliness can be cured. ~~Kurt Vonnegut
+ - We’re all lonely for something we don’t know we’re lonely for. How else to explain the curious feeling that goes around feeling like missing somebody we’ve never even met? ~~David Foster Wallace
+ - Greatness lies, not in being strong, but in the right using of strength; and strength is not used rightly when it serves only to carry a man above his fellows for his own solitary glory. He is the greatest whose strength carries up the most hearts by the attraction of his own. ~~Henry Ward Beecher
+
+40 quotes

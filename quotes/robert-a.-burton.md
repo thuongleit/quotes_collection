@@ -1,0 +1,22 @@
+ - A quiet mind cureth all.
+ - Cookery is become an art, a noble science; cooks are gentlemen.
+ - Hope and patience are two sovereign remedies for all, the surest reposals, the softest cushions to lean on in adversity.
+ - Build castles in the air.
+ - It is most true, stylus virum arguit, – our style betrays us.
+ - Diseases crucify the soul of man, attenuate our bodies, dry them, wither them, rivel them up like old apples, make them as so many Anatomies.
+ - Out of too much learning become mad.
+ - Ignorance is the Mother of Devotion.
+ - Temperance is a bridle of gold; he, who uses it rightly, is more like a god than a man.
+ - Our mental limitations prevent us from accepting our mental limitations.
+ - Seneca thinks the gods are well pleased when they see great men contending with adversity.
+ - He is only fantastical that is not in fashion.
+ - They are proud in humility, proud that they are not proud.
+ - Every man hath a good and a bad angel attending on him, all his life long.
+ - One was never married, and that’s his hell; another is, and that’s his plague.
+ - Tobacco, divine, rare superexcellent tobacco, which goes far beyond all panaceas, potable gold and philosopher’s stones, a sovereign remedy to all diseases.
+ - Employment, which Galen calls ‘Nature’s Physician,’ is so essential to human happiness that indolence is justly considered as the mother of misery.
+ - Certainty and similar states of ‘knowing what we know’ arise out of involuntary brain mechanisms that, like love or anger, function independently of reason.
+ - Every schoolboy hath that famous testament of Grunnius Corocotta Porcellus at his fingers end.
+ - Naught so sweet as melancholy.
+
+20 quotes

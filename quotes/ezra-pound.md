@@ -1,0 +1,168 @@
+ - America is a lunatic asylum.
+ - A slave is one who waits for someone to come and free him.
+ - Democracy is now currently defined in Europe as a ‘country run by Jews,’
+ - If a man isn’t willing to take some risk for his opinions, either his opinions are no good or he’s no good.
+ - Here is our poetry, for we have pulled down the stars to our will.
+ - Wars in old times were made to get slaves. The modern implement of imposing slavery is debt.
+ - The sum of human wisdom is not contained in any one language.
+ - USURY is the cancer of the world, which only the surgeon’s knife of Fascism can cut out of the life of the nations.
+ - Properly, we should read for power. Man reading should be man intensely alive. The book should be a ball of light in one’s hand.
+ - Be not cheap or mediocre in desiring.
+ - The technique of infamy is to start two lies at once and get people arguing heatedly over which is the truth.
+ - Either move or be moved.
+ - Great literature is simply language charged with meaning to the utmost possible degree.
+ - In our time, the curse is monetary illiteracy, just as inability to read plain print was the curse of earlier centuries.
+ - The Image is more than an idea. It is a vortex or cluster of fused ideas and is endowed with energy.
+ - I guess the definition of a lunatic is a man surrounded by them.
+ - Adolf Hitler was a Jeanne d’Arc, a saint. He was a martyr. Like many martyrs, he held extreme views.
+ - And the days are not full enough And the nights are not full enough And life slips by like a field mouse Not shaking the grass.
+ - What thou lovest well remains, the rest is dross What thou lov’st well shall not be reft from thee What thou lov’st well is thy true heritage.
+ - Speak against unconscious oppression, Speak against the tyranny of the unimaginative, Speak against bonds.
+ - The ant’s a centaur in his dragon world.
+ - The sum of human wisdom is not contained in any one language, and no single language is capable of expressing all forms and degrees of human comprehension.
+ - Presentation, not reference...
+ - Fit for kings, formal gardens afford an earthly Elysium and the odd impression that we mere men might actually control nature for a time.
+ - Every great change is simple.
+ - Literature does not exist in a vacuum. Writers as such have a definite social function exactly proportional to their ability as writers. This is their main use.
+ - Literature is news that stays news.
+ - No teacher has ever failed from ignorance. That is empiric professional knowledge. Teachers fail because they cannot ‘handle the class.’ Real education must ultimately be limited to men how INSIST on knowing, the rest is mere sheep-herding.
+ - When two men in business always agree, one of them is unnecessary.
+ - The modern artist must live by craft and violence. His gods are violent gods. Those artists, so called, whose work does not show this strife, are uninteresting.
+ - Bureaucrats are a pox. They are supposed to be necessary. Certain chemicals in the body are supposed to be necessary to life, but cause death the moment they increase beyond a suitable limit.
+ - America, my country, is almost a continent and hardly yet a nation.
+ - Compose in the sequence of the musical phrase, not in sequence of a metronome.
+ - The temple is holy because it is not for sale.
+ - What matters most is not the idea, but the capacity to believe in it completely.
+ - Wars are made to make debt.
+ - I have tried to write Paradise Do not move Let the wind speak that is paradise. Let the Gods forgive what I have made Let those I love try to forgive what I have made.
+ - The apparition of these faces in the crowd; Petals on a wet black bough.
+ - Sumer is icumen in, Lhude sing cucc. Groweth sed, and bloweth med, And springth the wude nu, Sing cuccu!
+ - A real building is one on which the eye can light and stay lit.
+ - It doesn’t matter which leg of your table you make first, so long as the table has four legs and will stand up solidly when you have finished it.
+ - Glance is the enemy of vision.
+ - I have always thought the suicide should bump off at least one swine before taking off for parts unknown.
+ - With one day’s reading a man may have the key in his hands.
+ - From the colour the nature And by the nature the sign! Beatific spirits welding together As in one ash-tree in Ygdrasail.
+ - There is natural ignorance and there is artificial ignorance. I should say at the present moment the artificial ignorance is about eighty-five per cent.
+ - Good writers are those who keep the language efficient. That is to say, keep it accurate, keep it clear.
+ - Don’t be blinded by the theorists and a lying press.
+ - To say that a state cannot pursue its aims because there is no money, is like saying that an engineer cannot build roads, because there are no kilometers.
+ - I desired my dust to be mingled with yours Forever and forever and forever.
+ - A people that grows accustomed to sloppy writing is a people in the process of losing grip on its empire and on itself.
+ - The only history that matters is the history we know.
+ - This is no book. Whoever touches this touches a man.
+ - Any general statement is like a check drawn on a bank. Its value depends on what is there to meet it.
+ - The concept of genius as akin to madness has been carefully cultivated by the inferiority complex of the public.
+ - Pay no attention to the criticism of men who have never themselves written a notable work.
+ - Liberty is not a right but a duty.
+ - A civilized man is one who will give a serious answer to a serious question. Civilization itself is a certain sane balance of values.
+ - A crowd pagan as ever imperial Rome was, eager, careless with an animal vigor unlike that of any European crowd that I ever looked at.
+ - Allow me to say that I would long since have committed suicide had desisting made me a professor of Latin.
+ - Poets who are not interested in music are, or become, bad poets.
+ - The artist is the antenna of the race.
+ - The flavors of the peach and the apricot are not lost from generation to generation. Neither are they transmitted by book learning.
+ - Genius is the capacity to see ten things where the ordinary man sees one, and the man of talent sees two or three, plus the ability to register that multiple perception in the material of his art.
+ - What matters is not the idea a man holds, but the depth at which he holds it.
+ - The age demanded an image Of its accelerated grimace, Something for the modern stage, Not, at any rate, an Attic grace.
+ - Fundamental accuracy of statement is the ONE sole morality of writing.
+ - No man understands a deep book until he has seen and lived at least part of its contents.
+ - Learn of the green world what can be thy place In scaled invention or true artistry.
+ - I would hold the rosy, slender fingers of the dawn for you.
+ - Man is an over-complicated organism. If he is doomed to extinction he will die out for want of simplicity.
+ - Until you know who has lent what to whom, you know nothing whatever of politics, you know nothing whatever of history, you know nothing of international wrangles.
+ - To break the pentameter, that was the first heave.
+ - It is the business of the artist to make humanity aware of itself.
+ - Rhythm is form cut into time.
+ - The artist is always beginning. Any work of art which is not a beginning, an invention, a discovery is of little worth.
+ - All my life I believed I knew something. But then one strange day came when I realized that I knew nothing, yes, I knew nothing. And so words became void of meaning. I have arrived too late at ultimate uncertainty.
+ - All great art is born of the metropolis.
+ - The serious artist must be as open as nature. Nature does not give all of herself in a paragraph. She is rugged and not set apart into discreet categories.
+ - As for literature It gives no man a sinecure. And no one knows, at sight, a masterpiece. And give up verse, my boy, There’s nothing in it.
+ - Artists are the antennae of the race, but the bullet-headed many will never learn to trust the great artists.
+ - The only thing one can give an artist is leisure in which to work. To give an artist leisure is actually to take part in his creation.
+ - Real education must ultimately be limited to men who insist on knowing, the rest is mere sheep-herding.
+ - The book shd. be a ball of light in one’s hand.
+ - The rustling of the silk is discontinued, Dust drifts over the courtyard, There is not sound of footfall, and the leaves Scurry into heaps and lie still, And she the rejoicer of the heart is beneath them: A wet leaf that clings to the threshold.
+ - Use no superfluous word, no adjective, which does not reveal something.
+ - Go to the adolescent who are smothered in family – Oh how hideous it is To see three generations of one house gathered together! It is like an old tree with shoots, And with some branches rotted and falling.
+ - Nothing written for pay is worth printing. Only what has been written against the market.
+ - Rhythm must have meaning.
+ - The primary pigment of poetry is the IMAGE.
+ - When words cease to cling close to things, kingdoms fall, empires wane and diminish.
+ - One discards rhyme, not because one is incapable of rhyming neat, fleet, sweet, meet, treat, eat, feet but because there are certain emotions or energies which are nor represented by the over-familiar devices or patterns.
+ - Your mind and you are our Sargasso Sea.
+ - Gloom and solemnity are entirely out of place in even the most rigorous study of an art originally intended to make glad the heart of man.
+ - Poetry is a language pared down to its essentials.
+ - I dunno what my 23 infantile years in America signify. I left as soon as motion was autarchic – I mean my motion.
+ - I did not enter into silence. Silence captured me.
+ - Technique is the test of sincerity. If a thing isn’t worth getting the technique to say, it is of inferior value.
+ - You have been second always. Tragical? No. You preferred it to the usual thing: One dull man, dulling and uxorious, One average mind- with one thought less, each year.
+ - Quiet this metal! Let the manes put off their terror, let them put off their aqueous bodies with fire. Let them assume the milk-white bodies of agate. Let them draw together the bones of the metal.
+ - Poetry must be as well written as prose.
+ - The intellect is a very nice whirligig toy, but how people take it seriously is more than I can understand.
+ - Humanity is the rich effluvium, it is the waste and the manure and the soil, and from it grows the tree of the arts.
+ - With Usura With usura hath no man a house of good stone each block cut smooth and well fitting.
+ - No picture is made to endure nor to live with but it is made to sell and sell quickly with usura, sin against nature, is thy bread ever more of stale rags is thy bread dry as paper.
+ - The man who fears war and squats opposing My words for stour, hath no blood of crimson But is fit only to rot in womanish peace.
+ - Colloquial poetry is to the real art as the barber’s wax dummy is to sculpture.
+ - The natural object is always the adequate symbol.
+ - In verse one can take any damn constant one likes, one can alliterate, or assone, or rhyme, or quant, or smack, only one MUST leave the other elements irregular.
+ - Any damn fool can be spontaneous.
+ - Use no word that under stress of emotion you could not actually say.
+ - No verse is libre for the man who wants to do a good job.
+ - In case I conk out, this is provisionally what I have to do: I must clarify obscurities; I must make clearer definite ideas or dissociations. I must find a verbal formula to combat the rise of brutality – the principle of order versus the split atom.
+ - Mass ought to be in Latin, unless you could do it in Greek or Chinese. In fact, any abracadabra that no bloody member of the public or half-educated ape of a clargimint could think he understood.
+ - The curse of me and my nation is that we always think things can be bettered by immediate action of some sort, any sort rather than no sort.
+ - Poetry is about as much a ‘criticism of life’ as red-hot iron is a criticism of fire.
+ - The act of bell ringing is symbolic of all proselytizing religions. It implies the pointless interference with the quiet of other people.
+ - People find ideas a bore because they do not distinguish between live ones and stuffed ones on a shelf.
+ - Haie! Haie! These were the swift to harry; These the keen-scented; These were the souls of blood. Slow on the leash, pallid the leash-men!
+ - I ask a wreathwhich will not crush my head. And there is no hurry about it; I shall have, doubtless, a boom after my funeral, Seeing that long standing increases all things regardless of quality.
+ - Somebody said that I am the last American living the tragedy of Europe.
+ - A classic is classic not because it conforms to certain structural rules, or fits certain definitions It is classic because of a certain eternal and irrepressible freshness.
+ - The eyes of this dead lady speak to me For here was love, was not to be drowned out. And here desire, not to be kissed away. The eyes of this dead lady speak to me.
+ - A man of genius has a right to any mode of expression.
+ - Usura slayeth the child in the womb It stayeth the young man’s courting It hath brought palsey to bed, lyeth between the young bride and her bridegroom.
+ - Discoveries are made by gluttons and addicts. The man who forgets to eat and sleep has an appetite for fact, for interrelations among causes.
+ - If I could believe the Quakers banned music because church music is so damn bad, I should view them with approval.
+ - Good art however ‘immoral’ is wholly a thing of virtue. Good art can NOT be immoral. By good art I mean art that bears true witness, I mean the art that is most precise.
+ - What thou lov’st well is thy true heritage.
+ - I think an alliance with Stalin’s Russia is rotten.
+ - A man’s hope measures his civilization. The attainability of the hope measures, or may measure, the civilization of his nation and time.
+ - I have never known anyone worth a damn who wasn’t irascible.
+ - A great age of literature is perhaps always a great age of translations.
+ - Why fight for a flag when you can buy one for a nickel.
+ - Consider the way of the scientists rather than the way of an advertising agent for a new soap.
+ - If the individual, or heretic, gets hold of some essential truth, or sees some error in the system being practiced, he commits so many marginal errors himself that he is worn out before he can establish his point.
+ - I could I trust starve like a gentleman. It’s listed as part of the poetic training, you know.
+ - There is no reason why the same man should like the same books at eighteen and at forty-eight.
+ - Our own consciousness is incapable of having produce the universe. God, therefore, exists. That is to say, there is no reason for not applying the term God, Theos, to the intimate essence.
+ - Utter originality is, of course, out of the question.
+ - The secret of popular writing is never to put more on a given page than the common reader can lap off it with no strain whatsoever on his habitually slack attention.
+ - Yet the companions of the Muses will keep their collective nose in my books And weary with historical data, they will turn to my dance tune.
+ - It ought to be illegal for an artist to marry. If the artist must marry let him find someone more interested in art, or his art, or the artist part of him, than in him. After which let them take tea together three times a week.
+ - And in the mean time my songs will travel, And the devirginated young ladies will enjoy them when they have got over the strangeness.
+ - I once saw a small child go to an electric light switch as say, Mamma, can I open the light? She was using the age-old language of exploration, the language of art.
+ - It would be about as easy for an American to become a Chinaman or a Hindoo as for him to acquire an Englishness or a Frenchness or a European-ness that is more than half skin deep.
+ - Almost any fool can paint an academy picture, and any imbecile can shoot off a Kodak.
+ - If a nation’s literature declines, the nation atrophies and decays.
+ - The worst mistake I made was that stupid, suburban prejudice of anti-Semitism.
+ - The history of an art is the history of masterwork, not of failures, or mediocrity.
+ - That text is known to them that have the patience to read it, possibly one one-hundredth of one percent of the denizens. They forget it, all save a few Western states. I think somebody in Dakota once read it. The Constitution.
+ - A general loathing of a gang or sect usually has some sound basis in instinct.
+ - The jargon of sculptors is beyond me. I do not know precisely why I admire a green granite female, apparently pregnant monster with one eye going around a square corner.
+ - I consider criticism merely a preliminary excitement, a statement of things a writer has to clear up in his own head sometime or other, probably antecedent to writing; of no value unless it come to fruit in the created work later.
+ - The artist is always beginning.
+ - There is no topicmore soporific and generally boring than the topic of Ireland as Ireland, as a nation.
+ - Anyone who is too lazy to master the comparatively small glossary necessary to understand Chaucer deserves to be shut out from the reading of good books forever.
+ - As a bathtub lined with white porcelain, When the hot water gives out or goes tepid, So is the slow cooling of our chivalrous passion, O my much praised but-not-altogether-satisfactory lady.
+ - Religion, oh, just another of those numerous failures resulting from an attempt to popularize art.
+ - It is more than likely that the brain itself is, in origin and development, only a sort of great clot of genital fluid held in suspense or reserved. This hypothesis would explain the enormous content of the brain as a maker or presenter of images.
+ - It is difficult to write a paradiso when all the superficial indications are that you ought to write an apocalypse.
+ - Properly, we should read for power.
+ - The what is so much more important than how.
+ - But the one thing you should. not do is to suppose that when something is wrong with the arts, it is wrong with the arts ONLY.
+ - What counts is the cultural level.
+ - Technique is the test of sincerity.
+
+166 quotes

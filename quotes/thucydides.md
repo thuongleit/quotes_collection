@@ -1,0 +1,100 @@
+ - The bravest are surely those who have the clearest vision of what is before them, glory and danger alike, and yet notwithstanding go out to meet it.
+ - The Nation that makes a great distinction between its scholars and its warriors will have its thinking done by cowards and its fighting done by fools.
+ - Right, as the world goes, is only in question between equals in power, while the strong do what they can and the weak suffer what they must.
+ - Self-control is the chief element in self-respect, and self-respect is the chief element in courage.
+ - We must remember that one man is much the same as another, and that he is best who is trained in the severest school.
+ - Knowledge without understanding is useless.
+ - History is Philosophy teaching by example.
+ - Happiness depends on being free, and freedom depends on being courageous.
+ - Peace is an armistice in a war that is continuously going on.
+ - Of all manifestations of power, restraint impresses men most.
+ - Hope is an expensive commodity. It makes better sense to be prepared.
+ - Love of power, operating through greed and through personal ambition, was the cause of all these evils.
+ - What made the war inevitable was the growth of Athenian power and the fear which this caused in Sparta.
+ - Most people, in fact, will not take the trouble in finding out the truth, but are much more inclined to accept the first story they hear.
+ - The nation that will insist on drawing a broad line of demarcation between the fighting man and the thinking man is liable to find its fighting done by fools and its thinking done by cowards.
+ - The strong do what they have to do and the weak accept what they have to accept.
+ - It is men who make a city, not walls or ships.
+ - A collision at sea can ruin your entire day.
+ - Human nature is the one constant through human history. It is always there.
+ - You shouldn’t feel sorry for the lifestyle you haven’t tasted, but for the one you are about to lose.
+ - The strength of an Army lies in strict discipline and undeviating obedience to its officers.
+ - The secret of happiness is freedom.
+ - Remember that this greatness was won by men with courage, with knowledge of their duty, and with a sense of honor in action.
+ - Wars spring from unseen and generally insignificant causes, the first outbreak being often but an explosion of anger.
+ - So little trouble do men take in the search after truth; so readily do they accept whatever comes first to hand.
+ - It is a general rule of human nature that people despise those who treat them well, and look up to those who make no concessions.
+ - One’s sense of honor is the only thing that does not grow old, and the last pleasure, when one is worn out with age, is not, as the poet said, making money, but having the respect of one’s fellow men.
+ - Those who really deserve praise are the people who, while human enough to enjoy power, nevertheless pay more attention to justice than they are compelled to do by their situation.
+ - It is from the greatest dangers that the greatest glory is to be won.
+ - We Greeks believe that a man who takes no part in public affairs is not merely lazy, but good for nothing.
+ - For they had learned that true safety was to be found in long previous training, and not in eloquent exhortations uttered when they were going into action.
+ - But the prize for courage will surely be awarded most justly to those who best know the difference between hardship and pleasure and yet are never tempted to shrink from danger.
+ - Indeed it is generally the case that men are readier to call rogues clever than simpletons honest, and are ashamed of being the second as they are proud of being the first.
+ - Ignorance is bold and knowledge reserved.
+ - The growth of the power of Athens, and the alarm which this inspired in Sparta, made war inevitable.
+ - Few things are brought to a successful issue by impetuous desire, but most by calm and prudent forethought.
+ - I have written my work, not as an essay which is to win the applause of the moment, but as a possession for all time.
+ - It is useless to attack men who could not be controlled even if conquered, while failure would leave us in an even worse position...
+ - It is frequently a misfortune to have very brilliant men in charge of affairs. They expect too much of ordinary men.
+ - We secure our friends not by accepting favors but by doing them.
+ - War is a matter not so much of arms as of money.
+ - Amassing of wealth is an opportunity for good deeds, not hubris.
+ - The whole earth is the sepulchre of famous men.
+ - When one is deprived of ones liberty, one is right in blaming not so much the man who puts the shackles on as the one who had the power to prevent him, but did not use it.
+ - If you give way, you will instantly have to meet some greater demand, as having been frightened into obedience in the first instance; while a firm refusal will make them clearly understand that they must treat you more as equals.
+ - It is the habit of mankind to entrust to careless hope what they long for, and to use sovereign reason to thrust aside what they do not desire.
+ - We Greeks are lovers of the beautiful, yet simple in our tastes, and we cultivate the mind without loss of manliness.
+ - The sufferings that fate inflicts on us should be borne with patience, what enemies inflict with manly courage.
+ - They are surely to be esteemed the bravest spirits who, having the clearest sense of both the pains and pleasures of life, do not on that account shrink from danger.
+ - He who graduates the harshest school, succeeds.
+ - People get into the habit of entrusting the things they desire to wishful thinking, and subjecting things they don’t desire to exhaustive thinking.
+ - Now the only sure basis of an alliance is for each party to be equally afraid of the other.
+ - When tremendous dangers are involved, no one can be blamed for looking to his own interest.
+ - When a man finds a conclusion agreeable, he accepts it without argument, but when he finds it disagreeable, he will bring against it all the forces of logic and reason.
+ - And it is certain that those who do not yield to their equals, who keep terms with their superiors, and are moderate towards their inferiors, on the whole succeed best.
+ - They whose minds are least sensitive to calamity, and whose hands are most quick to meet it, are the greatest men and the greatest communities.
+ - I dread our own mistakes more than the enemy’s intentions.
+ - And where the rewards for merit are greatest, there are found the best citizens.
+ - The peoples of the Mediterranean began to emerge from barbarism when they learned to cultivate the olive and the vine.
+ - In generosity we are equally singular, acquiring our friends by conferring, not by receiving, favours.
+ - Of the gods we believe, and of men we know, that by a necessary law of their nature they rule wherever they can.
+ - In peace and prosperity states and individuals have better sentiments, because they do not find themselves suddenly confronted with imperious necessities; but war takes away the easy supply of daily wants and so proves a rough master that brings most men’s characters to a level with their fortunes.
+ - Be convinced that to be happy means to be free and that to be free means to be brave. Therefore do not take lightly the perils of war.
+ - When will there be justice in Athens? There will be justice in Athens when those who are not injured are as outraged as those who are.
+ - He passes through life most securely who has least reason to reproach himself with complaisance toward his enemies.
+ - There is no need to suppose that human beings differ very much one from another; but it is true that the ones who come out on top are the ones who have been trained in the hardest school.
+ - Three of the greatest failings, want of sense, of courage, or of vigilance.
+ - For so remarkably perverse is the nature of man that he despises whoever courts him, and admires whoever will not bend before him.
+ - In a democracy, someone who fails to get elected to office can always console himself with the thought that there was something not quite fair about it.
+ - For men can endure to hear others praised only so long as they can severally persuade themselves of their own ability to equal the actions recounted: when this point is passed, envy comes in and with it incredulity.
+ - You should punish in the same manner those who commit crimes with those who accuse falsely.
+ - Those who have experienced good and bad luck many times have every reason to be skeptical of successes.
+ - Stories happen to those who tell them.
+ - Boasting and bravado may exist in the breast even of the coward, if he is successful through a mere lucky hit; but a just contempt of an enemy can alone arise in those who feel that they are superior to their opponent by the prudence of their measures.
+ - An avowal of poverty is no disgrace to any man; to make no effort to escape it is indeed disgraceful.
+ - I think the two things most opposed to good counsel are haste and passion; haste usaully goes hand in hand with folly, passion with coarseness and narrowness of mind.
+ - For the love of gain would reconcile the weaker to the dominion of the stronger, and the possession of capital enabled the more powerful to reduce the smaller cities to subjection.
+ - Men do not rest content with parrying the attacks of a superior, but often strike the first blow to prevent the attack being made.
+ - For we both alike know that into the discussion of human affairs the question of justice enters only where the pressure of necessity is equal, and that the powerful exact what they can, and the weak grant what they must.
+ - I have often before now been convinced that a democracy is incapable of empire...
+ - Hope, danger’s comforter.
+ - Abstinence from all injustice to other first-rate powers is a greater tower of strength than anything that can be gained by the sacrifice of permanent tranquillity for an apparent temporary advantage.
+ - Full of hopes beyond their power though not beyond their ambition.
+ - Contempt for an assailant is best shown by bravery in action.
+ - The superior gratification derived from the use and contemplation of costly and supposedly beautiful products is, commonly, in great measure a gratification of our sense of costliness masquerading under the name of beauty.
+ - In a word I claim that our city as a whole is an education to Greece.
+ - We must not disguise from ourselves that we go to found a city among strangers and enemies, and he who undertakes such an enterprise should be prepared to become master of the country the first day he lands, or failing in this find everything hostile to him.
+ - The cause of all these evils was the lust for power arising from greed and ambition; and from these passions proceeded the violence of parties once engaged in contention.
+ - It is a common mistake in going to war to begin at the wrong end, to act first, and wait for disasters to discuss the matter.
+ - Wealth to us is not mere material for vainglory but an opportunity for achievement; and poverty we think it no disgrace to acknowledge but a real degredation to make no effort to overcome.
+ - For men naturally despise those who court them, but respect those who do not give way to them.
+ - Indeed men too often take upon themselves in the prosecution of their revenge to set the example of doing away with those general laws to which all can look for salvation in adversity, instead of allowing them to subsist against the day of danger when their aid may be required.
+ - Mankind are tolerant of the praises of others as long as each hearer thinks that he can do as well or nearly as well himself, but, when the speaker rises above him, jealousy is aroused and he begins to be incredulous.
+ - I am not blaming those who are resolved to rule, only those who show an even greater readiness to submit.
+ - Men’s indignation, it seems, is more exited by legal wrong than by violent wrong; the first looks like being cheated by an equal, the second like being compelled by a superior.
+ - Mankind apparently find it easier to drive away adversity than to retain prosperity.
+ - Thucydides, an Athenian, wrote the history of the war between the Peloponnesians and the Athenians, he began at the moment that it broke out, believing that it would be a great war, and more memorable than any that had preceded it.
+ - As for democracy, the men of sense among us knew what it was, and I perhaps as well as any, as I have more cause to complain of it; but there is nothing new to be said of a patent absurdity-meanwhile we did not think it safe to alter it under the pressure of your hostility.
+
+98 quotes

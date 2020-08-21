@@ -1,0 +1,52 @@
+ - Discipline without freedom is tyranny; freedom without discipline is chaos.
+ - When performance exceeds ambition, the overlap is called success.
+ - Our freedom to discipline ourselves is a freedom we can lose if we don’t use it.
+ - The gratification of a thoughtless pleasure soon evaporates; the pleasure of a gratifying thought never ends.
+ - A stepping-stone can be a stumbling block if we can’t see it until after we have tripped over it.
+ - Failure can be bought on easy terms; success must be paid for in advance.
+ - The human body was designed to walk, run or stop; it wasn’t built for coasting.
+ - The true measure of your worth includes all the benefits others have gained from your success.
+ - We sometimes get all the information, but we refuse to get the message.
+ - Older generations are living proof that younger generations can survive their lunacy.
+ - One difference between savagery and civilization is a little courtesy. There’s no telling what a lot of courtesy would do.
+ - A good education prepares a child to be a good employee and a good citizen-in that order, with the importance of the former never exceeding the importance of the latter.
+ - Money can be fickle, having a lasting relationship with a few and a brief fling with others, while just flirting with the rest of us.
+ - When we put our best foot forward, the other one had better be good enough to stand on.
+ - Talk is cheap – except when Congress does it.
+ - Courtship brings out the best. Marriage brings out the rest.
+ - People seldom become famous for what they say until after they are famous for what they’ve done.
+ - Strangers are what friends are made of.
+ - Laughing at our mistakes can lengthen our own life. Laughing at someone else’s can shorten it.
+ - Only the poor can know all the disadvantages of poverty. Only the rich can know all the disadvantages of wealth.
+ - It’s hard to see a halo when you’re looking for horns.
+ - The only way some of us exercise our minds is by jumping to conclusions...
+ - We experience moments absolutely free from worry. These brief respites are called panic.
+ - Worry compounds the futility of being trapped on a dead-end street. Thinking opens new avenues.
+ - Faith is building on what you know is here so that you can reach what you know is there.
+ - Of all creatures on earth, we humans have the highest level of stupidity.
+ - Those who agree with us may not be right, but we admire their astuteness.
+ - There are people who can talk sensibly about a controversial issue; they’re called humorists.
+ - A mind becomes a detriment when it acquires more intelligence than its integrity can handle.
+ - If television encouraged us to work as much as it encourages us to do everything else, we could better afford to buy more of everything it advertises.
+ - Wisdom is what’s left after we’ve run out of personal opinions.
+ - Every adult should be an expert on teenagers, after spending life’s seven longest years being one.
+ - Sometimes we deny being worthy of praise, hoping to generate an argument we would be pleased to lose.
+ - Saying what we think gives us a wider conversational range than saying what we know.
+ - If we fixed a hangnail the way our government fixes the economy, we’d slam a car door on it.
+ - There’s always somebody who is paid too much, and taxed too little – and it’s always somebody else.
+ - The wheel was invented so we could move faster. Credit was invented so we would have to.
+ - The mistakes made by Congress wouldn’t be so bad if the next Congress didn’t keep trying to correct them.
+ - The American way is the way most law-abiding Americans live – in debt. Does this make a balanced budget un-American?
+ - A day’s pay for a day’s work is more than adequate when both the work and the pay are appreciated as much as they are expected.
+ - A figment of the imagination is just a harmless illusion – unless you are victim of it.
+ - We may not imagine how our lives could be more frustrating and complex – but Congress can.
+ - The prime of life is that fleeting time between green and over-ripe.
+ - Our laws can be friendly to those who obey them, and too often useful to those who don’t.
+ - Don’t expect other nations to have a democracy like ours – they don’t have enough lawyers.
+ - In our nation there are two classes of nobility: the law-abiding workers and the law-abiding employers who sustain each other.
+ - Getting even with somebody is no way to get ahead of anybody.
+ - The only new ideas that are not subject to our skepticism or suspicion are our own.
+ - Why is the press America’s showcase for freedom? Because just about everything else has been regulated.
+ - After our ages-long journey from savagery to civility, let’s hope we haven’t bought a round-trip ticket.
+
+50 quotes

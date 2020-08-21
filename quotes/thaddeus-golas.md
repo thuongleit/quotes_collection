@@ -1,0 +1,24 @@
+ - Whatever you are doing, love yourself for doing it. Whatever you are feeling, love yourself for feeling it.
+ - Go beyond reason to love: it is safe. It is the only safety.
+ - Giving others the freedom to be stupid is one of the most important and hardest steps to take in spiritual progress. Conveniently the opportunity to take that step is all around us every day.
+ - When you learn to love hell you will be in heaven.
+ - Whether I feel it or not, I am one with all the love in the universe.
+ - What you deny to others will be denied to you, for the plain reason that you are always legislating for yourself; all your words and actions define the world you want to live in.
+ - Love as much as you can from wherever you are.
+ - No matter what your spiritual condition is, no matter where you find yourself in the universe, your choice is always the same: to expand your awareness or contract it.
+ - Inside yourself or outside, you never have to change what you see, only the way you see it.
+ - As you open your awareness, life will improve of itself, you won’t even have to try. It’s a beautiful paradox: the more you open your consciousness, the fewer unpleasant events intrude themselves into your awareness.
+ - Enlightenment is any experience of expanding our consciousness beyond its present limits. We could also say that perfect enlightenment is realizing that we have no limits at all, and that the entire universe is alive.
+ - What am I doing on a level of consciousness where this is real? That is the first question to ask yourself when you become aware of something ugly or evil or stupid.
+ - There is no point in worry or wonder about worse or better spiritual conditions, although that game is available. You will not be able to rise above your present vibration level to stay until you love the way you are now.
+ - No matter how it looks to us, love never loses control; the laws of our relations are as honest and as exact as the laws of physics.
+ - We are equal beings and the universe is our relations with each other.
+ - Enlightenment is any experience of expanding our consciousness beyond its present limits.
+ - No matter what happens, I am conscious all the time.
+ - There is nothing you need to do first in order to be enlightened.
+ - The seduction of evil is precisely in that it involves us in trying to eliminate it. When your consciousness is open, any action you take in reference to evil has no more significance than digging a ditch to channel floodwaters away from a house.
+ - Physical reality is one of the biggest horror movies of all, and you know how we love horror movies.
+ - The universe is made of one kind of what-ever-it-is, which cannot be defined.
+ - Perhaps many of us do not like it where we are in the universe now, but we can all be certain that we got where we are -our own decisions to expand in love or withdraw from it.
+
+22 quotes

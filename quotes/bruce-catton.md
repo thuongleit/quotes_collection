@@ -1,0 +1,27 @@
+ - Sooner or later you must move down an unknown road that leads beyond the range of the imagination, and the only certainty is that the trip has to be made.
+ - In this respect early youth is exactly like old age; it is a time of waiting for a big trip to an unknown destination. The chief difference is that youth waits for the morning limited and age waits for the night train.
+ - The Civil War was fought in 10,000 places, from Valverde, New Mexico, and Tullahoma, Tennessee, to St. Albans, Vermont, and Fernandina on the Florida coast. More than 3 million Americans fought in it, and over 600,000 men, 2 percent of the population, died in it.
+ - History does not usually make real sense until long afterward.
+ - Here was the greatest and most moving chapter in American history, a blending of meanness and greatness, an ending and a beginning. It came out of what men were, but it did not go as men had planned.
+ - The 1860 election became a referendum on the southern way of life.
+ - Like most Rebel soldiers, Sam Watkins owned no slaves.
+ - There is a rowdy strain in American life, living close to the surface but running very deep. Like an ape behind a mask, it can display itself suddenly with terrifying effect.
+ - Shiloh had as many casualties as Waterloo, and yet there were another 20 Waterloos to come.
+ - Yet there is a dignity in the human spirit which can become most clearly visible in the moment of defeat and disaster.
+ - Progress is the sum of small victories won by individual human beings.
+ - And there is the headlight, shining far down the track, glinting off the steel rails that, like all parallel lines, will meet in infinity, which is after all where this train is going.
+ - The present moment is nice but it does not last. Living in it is like waiting in a junction town for the morning limited; the junction may be interesting but some day you will have to leave it and you do not know where the limited will take you.
+ - The enduring realization that when a great challenge comes, the most ordinary people can show that they value something more than they value their own lives. When the last of the veterans had gone, and the sorrows and bitterness which the war created had at last worn away, this memory remained.
+ - Abraham Lincoln was not all brooding and melancholy and patient understanding. There was a hard core in him, and plenty of toughness. He could recognize a revolutionary situation when he saw one, and he could act fast and ruthlessly to meet it.
+ - Between 1861 and 1865, Americans made war on each other and killed each other in great numbers – if only to become the kind of country that could no longer conceive of how that was possible.
+ - Even the most painstaking history is a bridge across an eternal mystery.
+ - Say this much for big league baseball – it is beyond question the greatest conversation piece ever invented in America.
+ - To learn to get along without, to realize that what the world is going to demand of us may be a good deal more important than what we are entitled to demand of it – this is a hard lesson.
+ - Early youth is a baffling time.
+ - Men see things late, and it may be that at times an evil fate drives them on.
+ - Our American heritage is greater than any one of us. It can express itself in very homely truths; in the end it can lift up our eyes beyond the glow in the sunset skies.
+ - The Confederate Constitution was almost identical to that of the United States.
+ - I think I was always subconsciously driven by an attempt to restate that faith and to show where it was properly grounded, how it grew out of what a great many young men on both sides felt and believed and were brave enough to do.
+ - A certain combination of incompetence and indifference can cause almost as much suffering as the most acute malevolence.
+
+25 quotes

@@ -1,0 +1,31 @@
+ - The way to right wrongs is to turn the light of truth upon them.
+ - Those who commit the murders write the reports.
+ - Lynching is color line murder.
+ - The appetite grows for what it feeds on.
+ - One had better die fighting against injustice than die like a dog or a rat in a trap.
+ - Somebody must show that the Afro-American race is more sinned against than sinning, and it seems to have fallen upon me to do so.
+ - I honestly believe I am the only woman in the United States who ever traveled throughout the country with a nursing baby to make political speeches.
+ - Virtue knows no color line...
+ - The white man’s victory soon became complete by fraud, violence, intimidation and murder.
+ - Brave men do not gather by thousands to torture and murder a single individual, so gagged and bound he cannot make even feeble resistance or defense.
+ - In fact, for all kinds of offenses – and, for no offenses – from murders to misdemeanors, men and women are put to death without judge or jury; so that, although the political excuse was no longer necessary, the wholesale murder of human beings went on just the same.
+ - There must always be a remedy for wrong and injustice if we only know how to find it.
+ - I felt that one had better die fighting against injustice than to die like a dog or rat in a trap. I had already determined to sell my life as dearly as possible if attacked. I felt if I could take one lyncher with me, this would even up the score a little bit.
+ - Our country’s national crime is lynching. It is not the creature of an hour, the sudden outburst of uncontrolled fury, or the unspeakable brutality of an insane mob.
+ - No nation, savage or civilized, save only the United States of America, has confessed its inability to protect its women save by hanging, shooting, and burning alleged offenders.
+ - It is extremely rough to follow through with my goals, but I felt a responsibility to show the world what the African Americans are facing through this rough patch.
+ - There is nothing we can do about the lynching now, as we are out-numbered and without arms.
+ - The nineteenth century lynching mob cuts off ears, toes, and fingers, strips off flesh, and distributes portions of the body as souvenirs among the crowd.
+ - The only times an Afro-American who was assaulted got away has been when he had a gun and used it in self-defense.
+ - Thus lynch law held sway in the far West until civilization spread into the Territories and the orderly processes of law took its place. The emergency no longer existing, lynching gradually disappeared from the West.
+ - The people must know before they can act, and there is no educator to compare with the press.
+ - The appeal to the white man’s pocket has ever been more effectual than all the appeals ever made to his conscience.
+ - The South resented giving the Afro-American his freedom, the ballot box and the Civil Rights Law.
+ - The Afro-American is not a bestial race.
+ - Although lynchings have steadily increased in number and barbarity during the last twenty years, there has been no single effort put forth by the many moral and philanthropic forces of the country to put a stop to this wholesale slaughter.
+ - The mob spirit has grown with the increasing intelligence of the Afro-American.
+ - I am only a mouthpiece through which to tell the story of lynching and I have told it so often that I know it by heart. I do not have to embellish; it makes its own way.
+ - I came home every Friday afternoon, riding the six miles on the back of a big mule. I spent Saturday and Sunday washing and ironing and cooking for the children and went back to my country school on Sunday afternoon.
+ - The South is brutalized to a degree not realized by its own inhabitants, and the very foundation of government, law and order, are imperilled.
+
+29 quotes

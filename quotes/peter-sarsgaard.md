@@ -1,0 +1,28 @@
+ - I always think change is important in a character. The most dynamic choices that you can make for a character are always the best ones.
+ - I just pick the best roles that are left over, and they usually aren’t the heterosexual, leading-man, non-drug-addict parts. And once you get into doing them, people know you do them.
+ - Usually the way I think someone is radicalized is through a personal experience. The thing about environmental activism is that we are all having a personal experience with our environment, whether we open our eyes or not.
+ - It is very possible that I could have ended up on 80 acres of land by myself, and fallen in love at a distance with a gorgeous woman I could never have been with.
+ - Im okay with being unimpressive. I sleep better.
+ - The oceans are pretty unexplored places and the final frontier on our planet; also because they’re the source of life. There are dramatic things happening to them at the moment, and they’re worth exploring.
+ - If no one on the movie has met me before or knows me, that’s the easiest. I don’t do a lot of things that don’t relate to being the person. I will try to keep it going for my other actors. I want them to do the least amount of pretending as possible.
+ - Who would I least want to hang out with? Probably John Lotter. I guess I have a place of understanding for everyone I’ve played.
+ - Even a good politician, someone who is very ambitious, chooses not to see trouble.
+ - I like anything that is like an obstruction, something that I have to act through is good.
+ - I like to work as an actor. Not just for money, but because I really enjoy acting.
+ - If you go in and audition for roles rather than just be offered them, then you kind of get a chance to kind of discover that you can do something that you didn’t think you could do.
+ - If all the circumstances of acting are made to easy, then there’s no grain of sand to make the pearl.
+ - I would like to sail across the Atlantic. I would like the experience of being that far away from land.
+ - I like working with a first time director. I’m more likely to work with a first time director than I am a second time director.
+ - I’ve always looked at the world as a place where people have done evil things. There are people in the world, for instance, that would describe Americans as evil.
+ - To me, one of the main things that a director does is create the tone of his movie.
+ - If I want to keep working as an actor, I’m going to become a comedian who does fart jokes.
+ - Words are words, but the way an actor says them, the way it’s framed, puts you either in the world that looks a lot like ours or one that doesn’t seem a lot like ours, one that can be farcical or one that can’t.
+ - I don’t spend a lot of time judging anyone I play. Even if their function in the script is to be the villain, I concentrate on what their perspective of the events is. Not even to justify them.
+ - I don’t really worry about being typecast much. I mean, everyone in Hollywood is typecast to a degree.
+ - I tend to lose my performance energy the longer things go on for, so I’m always best on the very first take.
+ - I see how people boss other actors around to try to get a scene favorable to them. I absolutely just never engage in doing that. If someone’s going to do it to me, I just let them have it.
+ - I frequently gravitate toward characters that have some urgency or soul.
+ - The only way to silence a room that’s laughing at you is to sort of take over.
+ - Depending on what stage I’m at in my career, I either work or don’t work because I’ve been offered one thing.
+
+26 quotes

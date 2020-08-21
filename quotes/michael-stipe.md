@@ -1,0 +1,53 @@
+ - Everybody hurts sometimes Everybody cries.
+ - Anybody that walks can sing...
+ - Sometimes I’m confused by what I think is really obvious. But what I think is really obvious obviously isn’t obvious...
+ - Love, love will be my strongest weapon.
+ - The only thing to fear is fearlessness.
+ - When you meet a stranger, look at his shoes. Keep your money in your shoes.
+ - Super casual music listeners. That’s most of the people in the world. And you have to understand, that’s why Top 40 radio exists. It’s not there for people who seek out music and who love music.
+ - I’ve always felt that sexuality is a really slippery thing. In this day and age, it tends to get categorized and labeled, and I think labels are for food. Canned food.
+ - I was vulnerable every day. Every night that I stepped on stage I was laying myself open.
+ - So, when you divide the world into music lovers, music fans and then those people who are just very casual about their music, it’s wallpaper to them, it’s elevator music, it’s just the thing that’s playing in the background that helps them through their day.
+ - By the time I was 18, I had absorbed punk rock from America, Britain, and the West Coast. All of it was so dark and weird and different and cool and hot and sexy and rebellious. It was a fist-in-the-air kind of rebellion that I wasn’t getting from the ’70s mainstream.
+ - We toured that record for a year, which turned out to be the culmination of ten years of being constantly on the road. We were sick to death of touring.
+ - Peter was sick of being a pop star, the guitar god, and so he decided to teach himself other instruments. Among the instruments that he picked up was the mandolin.
+ - When I hear music as a fan, I see fields. I see landscapes. I close my eyes and see an entire universe that that music and the voice, or the narrative, create. A music video-and any other kind of visual reference-is created by someone else.
+ - We made part of the record in Miami, and I would go down to the beach, and not 20 feet from the water I see a fish that is at least seven feet long swimming close to the shore. I did not go back in the ocean the entire month.
+ - The punk-rock ethos was “Do it yourself. Anyone can do this. We’re not sent from the heavens.”
+ - I’m just not that fascinating a person to have had all those lives that I’ve written about.
+ - Never eat broccoli when there are cameras around.
+ - Frankly I’m not great with heroin addicts. I tried heroin, but it was by accident. I’m not great with that level of substance abuse.
+ - I’m tired of being this solemn poet of the masses, the enigma shrouded in a mystery.
+ - We’re kind of an international phenomenon.
+ - On planes I always cry. Something about altitude, the lack of oxygen and the bad movies. I cried over a St. Bernard movie once on a plane. That was really embarrassing.
+ - And I don’t expect anyone can bring about a revolution in the way that Bob Dylan did – and really didn’t – in the 1960s.
+ - I started lip-synching with “Losing My Religion.” There were a few horrendous mistakes we made, but I own those mistakes. I’m embarrassed by them. I always say when I look back at anything I’ve ever done, it’s with equal dollops of humiliation and triumphant glory.
+ - I really wanted to be on Six Feet Under as a corpse. That would be hysterical.
+ - I’m afraid of everything. I’m not a naturally courageous person.
+ - So, we went from being an Athens band to being a Georgia band to being a Southern band to being an American band from the East Coast to being an American band and now we’re kind of an international phenomenon.
+ - If you disagree with me, fine! Because that’s the great thing about America, we can disagree!
+ - The world of WONDERLAND is authentic, vibrant, and genuine. Stacey D’Erasmo explores the delight and terror of second chances. A great read!
+ - Our generation was supposed to be about trying to deal with nuclear concerns and environmental disasters.
+ - Because the casual music listeners are the ones who turn on the radio and they don’t really care what’s playing, they just know that they kinda like it or it’s easy to drive to or it’s easy to sing along to or whatever.
+ - My iPod that was programmed by Peter Buck. It has 7,000 songs hand-picked for me by him.
+ - For me, as a music fan, visuals kind of steal away the purity of the song. My instinct is not to provide a visual to go with a piece of music. But here’s MTV. It’s really powerful.
+ - I went through a period where I was really tired of seeing and reading about myself.
+ - When I get really hammered I take my clothes off. That’s a sure sign. It’s been a long time since the last time I did that. Probably a year.
+ - There was never a golden era of American radio as far as I can tell.
+ - I was born in Georgia. That’s where my grandparents-and all my people-are from. But my family traveled a great deal because my dad was in the army as a helicopter pilot.
+ - But I think the one thing that I can say about us is that we’re very consistent about certain things and part of that is our desire to do the very best work that we can and not rest on our laurels, or not allow formula to come into what we do.
+ - I distinctly remember a conversation with my band in the van where I was having a complete meltdown. It was 1984, I think, and I was huddled in the back corner of our van and saying, “I can’t do this. I can’t do this. I can’t do this.” I didn’t want to play any more shows. I just wanted to stop.
+ - If I’m tired of me, I’m sure the public is as well.
+ - The whole point of the punk-rock thing was that “We’re not special. We just have a voice.”
+ - There is always something of the writer in the work but I don’t think Melville had to be swallowed by a whale to write a great novel. If I had lived the lives of all the characters of the songs I’ve written, that would truly be an extraordinary story.
+ - Links have become the suburbs of the real world.
+ - The whole punk ethic was do-it-yourself, and I’ve always been very literal, especially as a kid. When they said that anybody can do this, I was like, ‘OK, that’s me.’
+ - When I write, I tend toward melancholy, and the few times that I’ve tried pure joy in music, it doesn’t really work that well. The joy can be through catharsis. I think that’s what I do well, and observation.
+ - When we first started, we were a band from Athens and that was so off the map.
+ - I am not an autobiographical writer. I’ll take little elements here and there from things that I’ve actually experienced-counting eyelashes on a sleeping beauty, for example.
+ - It was ’86. We were a big enough name and we had enough cache that MTV wanted to play us, so, along with Michael Jackson and Madonna, they played our upside-down, black-and-white, backward, single unedited footage of a rock quarry with orange letters over the top of it and called it art.
+ - There was a point in the ’80s when I looked out at my audience and I saw people that – were I not on the stage – they’d sooner slug me as they walked by me on the sidewalk. And I realized that I was way beyond the choir.
+ - Sometimes before we make a record I go back and listen to a few. It’s equally humbling and uplifting.
+ - They always want me to play myself and that’s a big snooze.
+
+51 quotes

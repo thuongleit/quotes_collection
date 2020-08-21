@@ -1,0 +1,46 @@
+ - The basis of social relationships is reciprocity: if you cooperate with others, others will cooperate with you.
+ - A community is made up of intimate relationships among diversified types of individuals – a kinship group, a local group, a neighborhood, a village, a large family.
+ - I am now quite sure that Tragedy and Hope was suppressed although I do not know why or by whom.
+ - No scientist ever believes that he has the final answer or the ultimate truth on anything.
+ - The instrument of expansion of Classical civilization was a social organization, slavery.
+ - The problem of meaning today is the problem of how the diverse and superficially self-contradictory experiences of men can be put into a consistent picture that will provide contemporary man with a convincing basis from which to live and to act.
+ - It is clear that every civilization undergoes a process of historical change. We can see that a civilization comes into existence, passes through a long experience, and eventually goes out of existence.
+ - To this day the Arab influence is evident in southern Italy, northern Africa and, above all, in Spain.
+ - The traditional Christian attitude toward human personality was that human nature was essentially good and that it was formed and modified by social pressures and training.
+ - Instead, the two parties should be almost identical, so that the American people can ‘throw the rascals out’ at any election without leading to any profound or extensive shifts in policy.
+ - Islam, the third in historical sequence of the ethical monotheistic religions of the Near East, was very successful in establishing its monotheism, but had only very moderate success in spreading its version of Jewish and Christian ethics to the Arabs.
+ - In fact, violence as a symbol of our growing irrationality has had an increasing role in activity for its own sake, when no possible justification could be made that the activity was seeking to resolve a problem.
+ - It is also in theory, conceivable that some universal empire some day might cover the whole globe, leaving no external “barbarians” to serve as invaders.
+ - Each individual in a society is a nexus where innumerable relationships of this character intersect.
+ - One of the chief reasons for the widespread fear of the Huns rested on their ability to travel very long distances in relatively short periods. This ability may well have been based on their use of horseshoes.
+ - To know is not too demanding: it merely requires memory and time. But to understand is quite a different matter: it requires intellectual ability and training, a self conscious awareness of what one is doing, experience in techniques of analysis and synthesis, and above all, perspective.
+ - The argument that the two parties should represent opposed ideals and policies, one, perhaps, of the Right and the other of the Left, is a foolish idea acceptable only to doctrinaire and academic thinkers.
+ - Hitler’s economic revolution in Germany had reduced financial considerations to a point where they played no role in economic or political decisions.
+ - The social sciences are usually concerned with groups of persons rather than individual persons. The behavior of individuals, being free, is unpredictable.
+ - The backwardness of our religious and social developments is undoubtedly holding back the development of the intellectual and political levels.
+ - The history of the last century shows, as we shall see later, that the advice given to governments by bankers, like the advice they gave to industrialists, was consistently good for bankers, but was often disastrous for governments, businessmen, and the people generally.
+ - It is this power structure which the Radical Right in the United States has been attacking for years in the belief that they are attacking the Communists.
+ - When we approach history, we are dealing with a conglomeration of irrational continua. Those who deal with history by nonrational processes are the ones who make history, the actors in it.
+ - Each central banksought to dominate its government by its ability to control Treasury loans, to manipulate foreign exchanges, to influence the level of economic activity in the country, and to influence cooperative politicians by subsequent economic rewards in the business world.
+ - Capitalism might be defined, if we wish to be scientific, as a form of economic organization motivated by the pursuit of profit within a price structure.
+ - Thus, the use of fiat money is more justifiable in financing a depression than in financing a war.
+ - The process by which civilization, as an abstract entity distinct from the societies in which it is embodied, dies or is reborn is a very significant one.
+ - The West believes that man and the universe are both complex and that the apparently discordant parts of each can be put into a reasonably workable arrangement with a little good will, patience, and experimentation.
+ - There were people who said the Society of Cincinnati in the American revolution, of which George Washington was one of the shining lights, was a branch of the Illuminati.
+ - The difference between a stable society and an unstable one is that the restraints in an unstable one are external. In a stable society government ultimately becomes unnecessary; the restraints on people’s actions are internal, they’re self-disciplined...
+ - Western civilization presents one of the most difficult tasks for historical analysis, because it is not yet finished, because we are a part of it and lack perspective, and because it presents considerable variation from our pattern of historical change.
+ - It is not easy to tear any event out of the context of the universe in which it occurred without detaching from it some factor that influenced it.
+ - The growth of financial capitalism made possible a centralization of world economic control and use of this power for the direct benefit of financiers and the indirect injury of all other economic groups.
+ - On this basis, which was originally financial and goes back to George Peabody, there grew up in the twentieth century a power structure between London and New York which penetrated deeply into university life, the press, and the practice of foreign policy.
+ - A society is a group whose members have more relationships with one another then they do with outsiders.
+ - When goods are exchanged between countries, they must be paid for by commodities or gold. They cannot be paid for by the notes, certificates, and checks of the purchaser’s country, since these are of value only in the country of issue.
+ - Even today few scientists and perhaps even fewer nonscientists realize that science is a method and nothing else.
+ - In addition to their power over government based on government financing and personal influence, bankers could steer governments in ways they wished them to go by other pressures.
+ - Our political organization, based as it is on an eighteenth-century separation of powers and on a nineteenth-century nationalist state, is generally recognized to be semiobselete.
+ - The failure of Christianity in the areas west from Sicily was even greater, and was increased by the spread of Arab outlooks and influence to that area, and especially to Spain.
+ - This persistence as private firms continued because it ensured the maximum of anonymity and secrecy to persons of tremendous public power who dreaded public knowledge of their activities as an evil almost as great as inflation.
+ - A fully integrated culture would be like the dinosaurs, which had to perish because they were no longer able to adapt themselves to changes in the external environment.
+ - By the winter of 1945-1946, the Russian peoples were being warned of the dangers from the West.
+ - A civilization is complicated, in the first place, because it is dynamic; that is, it is constantly changing in the passage of time, until it has perished.
+
+44 quotes

@@ -1,0 +1,43 @@
+ - God is the color of water. Water doesn’t have a color.
+ - Family is the last and greatest discovery. It is our last miracle.
+ - Educate yourself or you’ll be a nobody!
+ - Put yourself in God’s hands and you can’t go wrong.
+ - God gived you the seed. But the watering and caring of that seed is up to you.
+ - I felt like a Tinker toy kid building my own self out of one of those toy building sets; for as she laid her life before me, I reassembled the tableau of her words like a picture puzzle, and as I did, so my own life was rebuilt.
+ - But at the end of the day, there are some questions that have no answers, and then one answer that has no question: love rules the game. Every time. All the time. That’s what counts.
+ - My parents were nonmaterialistic. They believed that money without knowledge was worthless, that education tempered with religion was the way to climb out of poverty in America, and over the years they were proven right.
+ - The man was the finest preacher. He could make a frog stand up straight and get happy with Jesus.
+ - Some things in this world just ain’t meant to be, not in the times we want ’em to, and the heart has to hold it in this world as a remembrance, a promise for the world that’s to come. There’s a prize at the end of all of it, but still, that’s a heavy load to bear.
+ - Sometimes it seemed like the truth was a bandy-legged soul who dashed from one side of the world to the other and I could never find him.
+ - As a journalist, the details always tell the story.
+ - I’m not interested in food. It’s just fuel.
+ - I’m proud of ‘Miracle at St. Anna’ and I loved it; there’s no question in my mind it’s as good as any movie that came out in 2007.
+ - My whole family was – we grew up in New York, but all my relatives and all my father and stepfather’s family, they were all from the South. So I like that old Black voice, and I love the sort of old Black man with a corncob pipe, sitting there telling a whopper.
+ - If you’re going to cheat and take people’s history and you’re not writing the Bible, you ain’t really so great. But if you try to do it in a way that doesn’t hurt too many people, then you probably can get out of bed in the morning and look at yourself in the mirror.
+ - So sweet and precious is family life.
+ - The thing that I do is that when I fail, I just keep quiet about it. I just let it go. It’s done. I just go to the next thing. I don’t complain, I don’t go to – I pick my battles very, very judiciously, and I just assume that there’s good in the heart of everybody.
+ - I come to the understanding that maybe what was on the inside was more important, and that your outer covering didn’t count so much as folks thought it did, colored or white, man or woman.
+ - My black friends never asked me how much money I made, or what school my children went to, or anything like that. They just said, “Come as you are.”
+ - Writing for me is cutting out the fat and getting to the meaning.
+ - People don’t realize you’re blowing over changes, time changes, harmony, different keys. I mark a point in my solo where it’s got to peak at point D I go to A, B, C D then I’m home.
+ - I grew up in the church, and so I feel that God gave me certain things to do, and I’m lucky enough to kind of have figured those things out. I just don’t want to die not having tried to help somebody else with what I know.
+ - Until you expose the cancer, you can’t fix it.
+ - It’s the same old story. Nothing in this world happens unless white folks says it happens. And therein lies the problem of being a professional black storyteller – writer, musician, filmmaker.
+ - I’m one of the few Black writers, or African American writers, who managed to work my way through the system so that it has allowed me to speak in a kind of free way. But most African American writers don’t have that. They don’t have that opportunity, they don’t have that.
+ - I put headlights in Ford vans. I still drive a Ford.
+ - It was always so hot, and everyone was so polite, and everything was all surface but underneath it was like a bomb waiting to go off. I always felt that way about the South, that beneath the smiles and southern hospitality and politeness were a lot of guns and liquor and secrets.
+ - I’d like to do something involving jazz. But books are how I earn my living, and I’d like to stay with the horse I rode in on.
+ - I just read history books. I read nothing but history books. They have so much to give; I wish I’d majored in history in college.
+ - The black church will accept anybody.
+ - I think a lot of the history we’ve read up to this point, some of it is just off. It’s written with the same prejudice that certain networks have when they report the news of the day.
+ - Be kind to the living.
+ - Newt Gingrich wrote a novel, and he’s a short story. Bill Clinton wrote a biography, and he’s a novel.
+ - If you have the material it will form itself as a kind of connective tissue.
+ - Slavery was a web of relationships, and if people knew how thick the whole business was, they would not make fun of people like Harriet Tubman. They would understand how intelligent she was and how sharp.
+ - My family is my career.
+ - When you’re interviewing someone, even your mother – you have to sort of deal with you have to get some objective space from yourself and the person but you also have to find what’s the best way to get the information from that person.
+ - First person narrative is a very effective tool but you have to know as a writer how to make it work.
+ - I wish all critics, no matter their color, were more sophisticated when it comes to the moral questions a film like ‘St. Anna’ is trying to raise.
+ - The question of religion in black America is something filmmakers don’t want to touch.
+
+41 quotes

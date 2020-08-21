@@ -1,0 +1,53 @@
+ - Before you say cut, wait 5 seconds.
+ - The more opinions you have, the less you see.
+ - Cinema is a worldwide phenomenon.
+ - Without dreams, there can be no courage. And without courage, there can be no action.
+ - The Yanks have colonized our subconscious.
+ - I think sometimes you have to just imagine something that looks pretty impossible. By imagining something that is impossible, automatically you wish you could make it possible.
+ - Loving photography and wanting to be a painter, it all ended up in the process of filmmaking. It’s strange professionally be to connected because it connects you to architecture, it connects you to painting, it connects you to writers, to actors. It connects you to really all of the arts.
+ - Photographs put time into such a perspective. They humble us and our selfish memories.
+ - Final cut is overrated. Only fools keep insisting on always having the final word. The wise swallow their pride in order to get to the best possible cut.
+ - On the contrary a film can promote the idea of change without any political message whatsoever but in its form and language can tell people that they can change their lives and contribute to progressive changes in the world.
+ - So I am getting a little bored with defining one type of film as American and the other European or from somewhere else because the division is no longer true.
+ - It’s a great lesson in modesty that you realize you’re illiterate in a field that you think you’re an expert in.
+ - Filmmaking is really connected to life and all of the expressions that different arts found to allow access to life. Filmmaking touches on all of it.
+ - Don’t worry about getting final cut, worry about making the best possible cut.
+ - Filmmakers tell actors to adjust their body language, and the famous presence of the actor is his or her body language. That is what makes them special and a movie star. An actor’s capital is his body.
+ - Maybe it’s the music that enables them to function like that, to always take everything as it comes and never complain about the misery, hardship or injustice.
+ - Pina Bausch’s motto was “Dance, otherwise we are lost.” She really meant it, that dance was her answer to life and to the troubles and to the problems that can arise. That was her way to deal with everything, to dance.
+ - Whoever came up first with that saying a picture is worth a thousand words didn’t understand the first thing about either one.
+ - If you travel a lot, if you like roaming about in order to lose yourself, you can end up in the strangest places. I think it must be a kind of built-in radar, which often takes me to places that are either peculiarly quiet or peculiar in a quiet sort of way.
+ - The last adventure left on this planet is creativity because we’ve been everywhere. There’s not much left to explore. But there’s a lot of exploration left in the human imagination.
+ - If anything, I see myself as a witness. I’d also be pleased, if you’d call me an interpreter. I try to hear and see the message of a place and pass it on, into that other language, the universal one of images.
+ - I’m getting a little bored by the juxtaposition of American and other cinema. I no longer think this division is as true as it might have been in the 1980s, or the early part of the 90s.
+ - In this age of consumerism film criticism all over the world – in America first but also in Europe – has become something that caters for the movie industry instead of being a counterbalance.
+ - An image that is unseen can’t sell anything. It is pure, therefore true, beautiful, in one word: innocent. As long as no eye contaminates it, it is in perfect unison with the world. If it is not seen, the image and the object it represents belong together.
+ - Butte was once a grand city. To me, that city is like one big stage for Edward Hopper. You could put your camera anywhere, and you felt you were looking at his paintings.
+ - Many of the critics today get airline tickets, hotel accommodation, bags, beautiful photographs, gifts and other expenses paid by the distributors, and then are supposed to write serious articles about the movie.
+ - It’s almost scary how stylish things can look if you take the color out – how much more you see the essence of things and how much more something can appear elegant.
+ - Everything is entertainment; criticism is now entertainment and it seems that the French directors have woken up one day and suddenly realised that they were not backed up any more.
+ - For us music is mainly part of the entertainment world and is often a luxury.
+ - I think seeing happens partly through the eyes, but not entirely.
+ - What is generally referred to as American-style films are, in fact, studio productions.
+ - Take opera for example – to go to the opera you have to dress up in a tuxedo and pay lots of money.
+ - In fact, it is amazing how much European films – Italian, French, German and English – have recovered a certain territory of the audience in their countries over the last few years.
+ - Movies are something people see all over the world because there is a certain need for it.
+ - Any film that supports the idea that things can be changed is a great film in my eyes.
+ - Of course the French are making very credible movies and it is still one of the greatest nations in terms of world cinema but the real problem is the decay in film criticism.
+ - Film is a very, very powerful medium. It can either confirm the idea that things are wonderful the way they are, or it can reinforce the conception that things can be changed.
+ - Ibrahim tells his story without a grain of complaint, and this was true for all of the band members. This is very much part of the Cuban spirit and soul.
+ - The culture of independent film criticism has totally gone down the drain and this seems to come with the territory of the consumer age that we are now living in.
+ - In the late 1980s the amount of German films was down to four or five percent of the market, and the remaining 95 percent were American. It is now 20 to 30 percent German productions.
+ - There are a lot of things that dancers can do that actors cannot and actors can do that dancers cannot.
+ - For years all I seemed to be doing was lobbying politicians and others to persuade them that European culture needed movies, and that we had to protect it.
+ - I remember that even my first impression of Italian cinema was pictures by paparazzi because my mom was reading all of these trash magazines with paparazzo pictures.
+ - Many French directors, having now realised there was no more real criticism, that the standards of the past have gone, are very offended about the quality of film criticism.
+ - The Cuban people have an amazingly strong and unbroken spirit.
+ - Filmmakers and critics wrote about each other and sometimes very harshly. This no longer exists.
+ - The world of fashion. I’m interested in the world, not in fashion! But, maybe I was too quick to put down fashion. Why not look at it without prejudice? Why not examine it like any other industry, like the movies for example?
+ - Entertainment today constantly emphasises the message that things are wonderful the way they are. But there is another kind of cinema, which says that change is possible and necessary and it’s up to you.
+ - The beautiful image today means nothing. It’s worthshit. In fact, it’s almost as if it has the opposite effect, becauseyou’re just like everything else out there.
+ - It’s very hard to find critics or a magazine today that will publish material that is genuinely independent and written without any concern about being cut off some distributor’s list or not be invited or flown into screenings.
+ - But I think that the spirit of protectionism would be the grave of European cinema. You cannot protect something by building a fence around it and thinking that this will help it survive.
+
+51 quotes

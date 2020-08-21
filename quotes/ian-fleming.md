@@ -1,0 +1,64 @@
+ - The World Is Not Enough.
+ - Never say ‘no’ to adventures. Always say ‘yes,’ otherwise you’ll lead a very dull life.
+ - Once is happenstance. Twice is coincidence. Three times is enemy action.
+ - Loneliness becomes a lover, solitude a darling sin.
+ - You only live twice. Once when you are born and once when you look death in the face.
+ - Worry is a dividend paid to disaster before it is due.
+ - Hope makes a good breakfast. Eat plenty of it.
+ - He could not just wear a watch. It had to be a Rolex.
+ - The gain to the winner is always less than the loss to the loser.
+ - A gentleman’s choice of timepiece says as much about him as does his Saville Row suit.
+ - Everything I write has a precedent in truth.
+ - History is moving pretty quickly these days, and the heroes and villains keep on changing parts.
+ - I am a poet in deeds – not often in words.
+ - I shall not waste my days in trying to prolong them.
+ - Before a man’s forty, girls cost nothing. After that you have to pay money, or tell a story. Of the two, it’s the story that hurts most. Anyway I’m not forty yet.
+ - Older women are best because they always think they may be doing it for the last time.
+ - I have always smoked and drunk and loved too much. In fact I have lived not too long but too much. One day the Iron Crab will get me. Then I shall have died of living too much.
+ - It was the same with the whole Russian machine. Fear was the impulse. For them it was always safer to advance than retreat. Advance against the enemy and the bullet might miss you. Retreat, evade, betray and the bullet would never miss.
+ - It reads better than it lives.
+ - At gambling, the deadly sin is to mistake bad play for bad luck.
+ - Bond always mistrusted short men. They grew up from childhood with an inferiority complex. All their lives they would strive to be big – bigger than the others who had teased them as a child. Napoleon had been short, and Hitler. It was the short men that caused all the trouble in the world.
+ - It was the short men that caused all the trouble in the world.
+ - Luck in all its moods had to be loved and not feared. Bond saw luck as a woman, to be softly wooed or brutally ravaged, never pandered to or pursued.
+ - There is only one recipe for a best seller and it is a very simple one. You have to get the reader to turn over the page.
+ - Surround yourself with human beings, my dear James. They are easier to fight for than principles.
+ - A woman can put up with almost anything; anything but indifference.
+ - Never say ‘no’ to adventures.
+ - Everyone has the revolver of resignation in his pocket.
+ - I always make it a rule never to look back. Otherwise, I’d ask myself how I could write such piffle and live with myself, day after day.
+ - Bond didn’t defend the practice. He simply maintained that the more effort and ingenuity you put into gambling, the more you took out.
+ - Like all harsh, cold men, he was easily tipped over into sentiment.
+ - It’s just that I’d rather die of drink than of thirst.
+ - He shrugged his shoulders to shift the pain of failure – the pain that is so much greater than the pleasure of success.
+ - As for sex, well, I mean sex is a perfectly respectable subject as far as Shakespeare is concerned. I mean, all history is love and violence.
+ - A woman should be an illusion.
+ - And people with obsessions, reflected Bond, were blind to danger.
+ - And then one day when you’re playing your little game you’ll suddenly find yourself pinned down like a butterfly.
+ - These blithering women who thought they could do a man’s work. Why the hell couldn’t they stay at home and mind their pots and pans and stick to their frocks and gossip and leave men’s work to the men.
+ - If I wait for the genius to come, it just doesn’t arrive.
+ - Men want a woman whom they can turn on and off like a light switch.
+ - Love of life is born of the awareness of death, of the dread of it.
+ - I don’t regard James Bond precisely as a hero, but at least he does get on and do his duty, in an extremely corny way.
+ - I’m not in the Shakespeare stakes. I have no ambition.
+ - Never job backwards. What might have been was a waste of time.
+ - The scent and smoke and sweat of a casino are nauseating at three in the morning.
+ - Mine’s Bond – James Bond.
+ - Diamonds are forever.
+ - He was a secret agent, and still alive thanks to his exact attention to the detail of his profession.
+ - A medium Vodka dry Martini – with a slice of lemon peel. Shaken and not stirred.
+ - Most marriages don’t add two people together. They subtract one from the other.
+ - I was just on the edge of getting married, and I was frenzied at the prospect of this great step in my life after having been a bachelor for so long. And I really wanted to take my mind off of the agony, and so I decided to sit down and write a book.
+ - Englishmen are so odd. They are like a nest of Chinese boxes. It takes a very long time to get to the centre of them. When one gets there the result is unrewarding, but the process is instructive and entertaining.
+ - Unfortunately most ways of making big money take a long time. By the time one has made the money one is too old to enjoy it.
+ - Bond reflected that good Americans were fine people and that most of them seemed to come from Texas.
+ - My mental hands were empty, and I felt I must do something as a counterirritant or antibody to my hysterical alarm at getting married at the age of 43.
+ - You can get far in North America with laconic grunts. “Huh,” “hun,” and “hi!” in their various modulations, together with “sure,” “guess so,” “that so?” and “nuts!” will meet almost any contingency.
+ - People do connect me with James Bond simply because I happen to like scrambled eggs and short-sleeved shirts and some of the things that James Bond does, but I certainly haven’t got his guts nor his very lively appetites.
+ - Writing about 2,000 words in three hours every morning, ‘Casino Royale’ dutifully produced itself. I wrote nothing and made no corrections until the book was finished. If I had looked back at what I had written the day before I might have despaired.
+ - Just as, at least in one religion, accidia is the first of the cardinal sins, so bordom, and particularly the incredible circumstance of waking up bored, was the only vice Bond utterly condemned.
+ - Shaken and not stirred.
+ - Against the background of this luminous and sparkling stage Bond stood in the sunshine and felt his mission to be incongruous and remote and his dark profession an affront to his fellow actors.
+ - He provides a vision. He often reminds countries of their responsibilities in a way that makes it seem not only like a legal obligation but a moral responsibility.
+
+62 quotes

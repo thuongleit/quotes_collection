@@ -1,0 +1,29 @@
+ - The Cross is the way to Paradise, but only when it is borne willingly.
+ - Meditation on Jesus Christ crucified is a precious balm which sweetens all pains.
+ - Listen to the sermon preached to you by the flowers, the trees, the shrubs, the sky, and the whole world. Notice how they preach to you a sermon full of love, of praise of God, and how they invite you to glorify the sublimity of that sovereign Artist who has given them being.
+ - The passion of Jesus is a sea of sorrows, but it is also an ocean of love. Ask the Lord to teach you to fish in this ocean. Dive into its depths. No matter how deep you go, you will never reach the bottom.
+ - In uniting yourself to God’s will, you take on new life and gather great courage, willingly embracing the cross and kissing His hand even when it chastises you, a hand that reaches out to you in love and has no other intention but your greater spiritual well-being.
+ - If you correspond to the designs of God, He will make a saint of you.
+ - Let us throw ourselves into the ocean of His goodness, where every failing will be canceled and anxiety turned into love.
+ - Entrust yourself entirely to God. He is a Father and a most loving Father at that, who would rather let heaven and earth collapse than abandon anyone who trusted in him.
+ - He who does not mortify his palate will neither know how to mortify his flesh.
+ - Celebrate the feast of Christmas every day, even every moment in the interior temple of your spirit, remaining like a baby in the bosom of the heavenly Father, where you will be reborn each moment in the Divine Word, Jesus Christ.
+ - I tell you that victory consists in conquering self. That is the greatest enemy.
+ - If any dust of imperfection cling to your heart, be not troubled, but consume it immediately in the fire of divine love, and, sorrowfully asking forgiveness, continue to live in peace.
+ - Place your hopes in the mercy of God and the merits of our Redeemer; say often, looking at the crucifix: There are centered all my hopes.
+ - You do wrong to complain of your crosses and sufferings. Believe me, you know not what it is to suffer. God preserve you from suffering even one day what has been endured by a certain soul, whose name I must not disclose!
+ - Avoid failing, not only against purity, but even against the least rules of an exact modesty.
+ - Make a little bouquet of the sufferings of Jesus and carry them in the bosom of the soul.
+ - Do you know why God subjects you to so many miseries? That He may bestow on you the riches of heaven.
+ - The Passion of Christ is the greatest and most stupendous work of Divine Love. The greatest and most overwhelming work of God’s love.
+ - Let weak and frail man come here suppliantly to adore the Sacrament of Christ, not to discuss high things, or wish to penetrate difficulties, but to bow down to secret things in humble veneration, and to abandon God’s mysteries to God, for Truth deceives no man-Almighty God can do all things. Amen.
+ - Be very careful to retain peace of heart, because Satan casts his lines in troubled waters.
+ - He that rises after his falls, with confidence in God and profound humility of heart, will become, in God’s hands, a proper instrument for the accomplishment of great things; but he who acts otherwise can never do any good.
+ - When you feel the assaults of passion and anger, then is the time to be silent as Jesus was silent in the midst of His ignominies and sufferings.
+ - Here learn the science of the Saints: All is to be found in the passion of Jesus. Make every effort to remain hidden in the wounds of Jesus, and you will be enriched with every good and every true light, enabling you to fly to that Perfection which is consonant with your way of life.
+ - I would believe myself damned if I robbed God of one atom of His glory. I would believe myself more wicked than Lucifer if I had anything else in view but God.
+ - Be as eager to break your own will as the thirsty stag is to drink of the refreshing waters.
+ - As for me, I cannot understand how it is possible not to be always thinking of God.
+ - Make great account of your precious trials, both interior and exterior; it is thus that the garden of Jesus is adorned with flowers, that is, with acts of virtue.
+
+27 quotes

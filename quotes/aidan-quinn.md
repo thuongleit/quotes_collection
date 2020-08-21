@@ -1,0 +1,26 @@
+ - Really, most of us just focus on what’s in front of us. We’re too busy putting out the fires of everyday life.
+ - Life is hard for everyone. That’s why there’s such a nice reward at the end of it.
+ - Make them laugh, and then make them listen.
+ - The family is where most of our joy comes from.
+ - Money is just something to be circulated.
+ - Celebrity, to me, is not a thing to seek.
+ - I had to bring myself back down to being a normal person again.
+ - I’m not particularly a career-oriented guy. I’m lucky. I can make really interesting films much of the time with interesting people yet be anonymous, have a private life. But, I’d like to have the choice of the better roles.
+ - I don’t care. I mean, I’ve been stupid in the past, and I’ve learned from that. Some actors actually think about what they’re going to talk about during the interview – they read up and meditate and plan quotes and get all inspired. It’s very smart, but it’s so planned. I never think to do that.
+ - I’m not a city kind of guy. I’m happiest when I’m tromping through the woods.
+ - I think there’s a down-to-earthness with Midwesterners and with people from the Midlands – which is where my family is from – in Ireland.
+ - I would love, more than anything, to do an out-and-out farce with huge physical energy. Just because you’re from the minimalist school, it doesn’t mean you can’t go big.
+ - Baseball should be the only thing on an eight year old boy’s mind.
+ - I can’t control how people are going to react. I try not to worry about what I can’t control.
+ - I mean, I’ve been stupid in the past, and I’ve learned from that.
+ - I’m not a city kind of guy. I’m happiest when I’m tromping through the woods. That’s why I don’t live in Los Angeles. Being physically away from Hollywood probably loses me a few jobs, but the best ones seek me out.
+ - There’s certainly more work for me in TV these days.
+ - I think my being such a nomad let me into acting. I was always having to create a new image whenever we moved.
+ - I loved working with Meryl Streep twice and I’ve gotten to work with my friend Liam Neeson on several occasions.
+ - I don’t get any parts I don’t get offered. There are lots of great things out there I would like to do that I don’t get offered.
+ - You should learn to be happy with what you have. Besides, the fact that I’m not a huge star has allowed me to pick and choose the roles I want to do, not the ones some person sitting in a studio office thinks I should do.
+ - I get to do interesting roles and make a living.
+ - I like the level of fame that I have. You get nice tables in restaurants sometimes, but fame isn’t something that I find comfortable.
+ - There will come a day when the phone doesn’t ring as much as it used to.
+
+24 quotes

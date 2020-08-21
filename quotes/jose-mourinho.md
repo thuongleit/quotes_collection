@@ -1,0 +1,112 @@
+ - It’s not important how we play. If you have a Ferrari and I have a small car, to beat you in a race I have to break your wheel or put sugar in your tank.
+ - Please don’t call me arrogant, but I’m European champion and I think I’m a special one.
+ - I won’t say we have to win. I won’t put that pressure. But we can’t lose.
+ - Dogs bark and the caravan goes by.
+ - You don’t have to love me. You don’t even have to like me, but you will respect me.
+ - Football is a game about feelings and intelligence.
+ - But the most important part of everything is to be happy.
+ - Pressure? What pressure? Pressure is poor people in the world trying to feed their families. There is no pressure in football.
+ - I am Jose Mourinho and I don’t change. I arrive with all my qualities and my defects.
+ - The moral of the story is not to listen to those who tell you not to play the violin but stick to the tambourine.
+ - You have to work hard AND well. There are a lot of people who work hard but not well.
+ - Money does not guarantee success.
+ - We all want to play great music all the time, but if that is not possible, you have to hit as many right notes as you can.
+ - I enjoy the work, I enjoy every minute of my professional life.
+ - Eleven against eleven they never beat us.
+ - Look at my haircut. I am ready for the war. The objective is to win the Premiershp. I don’t want to dominate, to finish without defeat, record points or goals or consecutive wins. The Premiership is so difficult you cannot be focused on that. I just think about winning.
+ - If Messi is the best on the planet, Ronaldo is the best in the universe.
+ - The world is so competitive, aggressive, consumive, selfish and during the time we spend here we must be all but that.
+ - He’s a specialist in failure.
+ - Unhappy is a nice word.
+ - Sometimes you see beautiful people with no brains. Sometimes you have ugly people who are intelligent, like scientists.
+ - In five years I have never had a match where my team has had less possession than the opponents.
+ - When I face the media, maybe I don’t feel it now, here with you, because it’s a different sort of interview, but when I face the media before or after the game, I feel it as part of the game.
+ - Fear is not a word in my football documentary.
+ - In the same way that I had to follow an Italian manager here, I can imagine that it was not easy for an Italian manager to follow me at Porto.
+ - To be the ultimate team, you must use your body and your mind. Draw up on the resources of your teammates. Choose your steps wisely and you will win. Remember, only teams succeed.
+ - As we say in Portugal, they brought the bus and they left the bus in front of the goal.
+ - Maybe next season we can race.
+ - Football is a more beautiful game in high definition.
+ - Football is a game based on emotion and intelligence. Anyone can be clever, the trick is not to think the other guy is stupid.
+ - I followed an Italian manager and it cannot be easy when you follow a manager who thinks very differently.
+ - Especially when you play at home, you need a good atmosphere behind you.
+ - I remember the first time I saw him play. It was for a Sporting CP youth team. I told my assistant, ‘There goes Van Basten’s son.’ Ronaldo had great technique. He stood out.
+ - I think boring is a team that plays at home and can not score a goal.
+ - If you want me to rule out ever being Manchester United manager, I can’t. Special clubs need special managers, so in theory it could work.
+ - With all the stones being thrown against me you could build a monument!
+ - Look, I’m a coach, I’m not Harry Potter. He is magical, but in reality there is no magic. Magic is fiction and football is real.
+ - For me pressure is bird flu. I’m serious. I’m feeling a lot of pressure with the problem in Scotland. It’s not fun and I’m more scared of it than football. Football is nothing compared with life. For me bird flu is the drama of the last few days. I’ll have to buy a mask.
+ - Without emotional control you cannot play, influence; you cannot react. You have to know what you have to do and not react. You have to be cool.
+ - It’s a pity we can’t play in two or three days as I like to play straight away after a bad game.
+ - I hate to speak about individuals. Players don’t win you trophies, teams win trophies, squads win trophies.
+ - If I wanted to have an easy job, working with the big protection of what I have already done before, I would have stayed at Porto – beautiful blue chair, the Uefa Champions League trophy, God, and after God, me.
+ - People don’t know about football. They think they know about it but they don’t know much.
+ - You see how Spanish, Italians, Portuguese play football. I don’t say they are perfect, I say English football has a few things to learn from them in the same way they have a lot of things to learn from English football.
+ - Yes, Manchester United are the best team in England, but you have to ask how good has the Premier League been since I left? If I was at a top club in England I think the title race might have been a lot closer this year.
+ - If I am hated at Barcelona, it is their problem but not mine. Fear is not a word in my football dictionary.
+ - Drogba is a fighter. He is the kind of player I would say ‘With you I could go to every war.’
+ - Everyone has a right to an opinion. I can arrive in England and express my opinion. If criticism were ferocious and without intellectual objectivity they should show me the way to their airport. It is important to have an opinion and not be afraid to express it, knowing there will be criticism.
+ - So when they have Mourinho and Benitez joining the Premiership they should say it’s good for us, maybe these guys have something new to give.
+ - At the very least we should be given a bit of credit and a little bit of space, and maybe the media should think we could help them discover why English teams do not win European competitions.
+ - If Roman Abramovich helped me out in training we would be bottom of the league and if I had to work in his world of big business, we would be bankrupt!
+ - The title race is between two horses and a little horse that needs milk and needs to learn how to jump.
+ - You win by effort, by commitment, by ambition, by quality, by expressing yourself individually but in the team context.
+ - I’m not a defender of old or new football managers. I believe in good ones and bad ones, those that achieve success and those that don’t.
+ - If you look at revenge we are still winning three one you know, so I don’t think it is a question of revenge, is a question of a personal thing.
+ - So if one day the result becomes 3-3, for me it doesn’t change my mind, because it’s football, it’s normal. What is not normal is that we haven’t been scoring enough goals playing such good football as we’ve been playing in the last few weeks.
+ - If I had wanted to be protected in a quiet job, I could have stayed at Porto. I would have been second, after God, in the eyes of the fans even if I had never won another thing.
+ - The dog is in Portugal and the city of London is safe.
+ - Do you have a brother or cousin in Ivory Coast, because I don’t have the money to bring you to Porto.
+ - It is like having a blanket that is too small for the bed, you pull the blanket up to keep your chest warm, and your feet stick out. I cannot buy a bigger blanket because the supermarket is closed. But the blanket I have is made of cashmere. So it’s good.
+ - The Porto players were with me for two and a half years, they believed in me, in my methods, in the way we do it. The next day I go and a manager arrives who works completely differently.
+ - I fell a bit in love with Celtic, because the atmosphere was amazing and the crowd was magnificent, the way they behaved with the Porto fans.
+ - For Chelsea, I would turn down every job in the world.
+ - You have to win and especially, as I have, you have to win a trophy for the first time.
+ - Would you phone the president of Ghana?
+ - The negative side of football. The negative side of our society. People sometimes go to football and bring to it the negative aspects of our society.
+ - My history as a manager cannot be compared with Frank Rijkaard’s history. He has zero trophies and I have a lot of them.
+ - The best way to stop Messi is when you play with 11 men and then you can double mark him, one player to stay on him and the other to help out. If it is 11 against 10 then you have almost no chance of stopping him.
+ - I was nine or 10 years old and my father was sacked on Christmas Day. He was a manager, the results had not been good, he lost a game on December 22 or 23. On Christmas Day, the telephone rang and he was sacked in the middle of our lunch.
+ - A player who dives and wins a penalty in Portugal, or Spain or Italy is considered clever, experienced, cunning, someone who understands the game. In England a player who wins a penalty like that is a cheat.
+ - I don’t say we are a defensive team. I say we are a strong team in defensive terms, but at the same time lacking sufficient fluidity in attack because that will take time to come.
+ - Look at the way teams play against Arsenal. They don’t believe they can win. They don’t believe.
+ - But I think it’s more normal for my team to have no success than it is to win two consecutive European cups.
+ - When I was at Porto my team also played in the UEFA Cup final against a Scottish side – but it was Celtic. I’ve never seen such emotional people. It was unbelievable!
+ - If at the end of the season I’m leaving the club, you have the right to come to me and say: ‘Jose, you are a liar’
+ - I don’t have to be jealous of Barcelona because they have 100 years of history and have won the European Cup once. I have only been managing for five years and I have the same amount of Champions League trophies to my name.
+ - We are on top at the moment but not because of the club’s financial power. We are in contention for a lot of trophies because of my hard work.
+ - Everybody can be smart.
+ - I feel I have a lot to learn from English football and I am completely open to good influences in my way of thinking football. But I also have things to give them.
+ - The only thing that we cannot control is our supporters.
+ - I think the best place to work in football is England.
+ - If you’re not a big club, you choose one competition and you fight in that competition and forget the others. Big clubs – we cannot do this.
+ - No club moves me from Chelsea until Chelsea wants me to move because I want to be where I am loved.
+ - It gave the title to Manchester City – it’s as simple as that.
+ - The team is completely close. Anything you say outside, there is no chance it will go inside. So the team is really strong and compact. We know what we want and how to achieve it on the pitch.
+ - If Ashley Cole is ready we have 15 players for the final. I’ll have to choose between Hilario, who’s not bad playing forward or I’ll bring in one of the kids.
+ - When I go to the press conference before the game, in my mind the game has already started.
+ - The problem with Chelsea is I lack a striker. I have Samuel Eto’o but he is 32 years old – maybe 35, who knows?
+ - The way I use to develop an aerobic condition is three against three, man to man, in a square 20 metres by 20.
+ - Let slip the dogs of champions.
+ - I know the questions will be around the money, the amount Chelsea had to spend to bring him here but that’s the reality of modern football. Big teams only want big players, big players are in big clubs, big clubs want to keep their big players.
+ - Brendan’s chihuahua doesn’t do that. During the week it sleeps, eats and trains a little bit. So I have to say his chihuahua is a privileged one.
+ - It is like when you go to war: we have to know how our enemies attack and defend.
+ - Facing the press is not easy, but because you have to go, you have to try to take a lot of positive things for yourself from these face-to-face meetings.
+ - Wenger has been Arsenal’s coach for 15 years but he hasn’t won even a Carling Cup for six years. Benitez hasn’t won a league title in six years but they continue to keep him as Liverpool’s coach. This is not the Italian mentality. To stay here I must continue winning and do well.
+ - I want to congratulate again Mike Dean. I think his performance was unbelievable and I think when referees have unbelievable performances, I think it’s fair that as managers we give them praise. So fantastic performance.
+ - If a player is not performing, there are two ways of looking at it. You wait for performance to come, or maybe the moment has arrived where you have to change. I could go either way.
+ - Arsenal have won that advantage, nobody gave it to them. By playing fantastic football and by winning matches and by winning trophies, they won that respect that the opponent has for them.
+ - Three years without a Premiership title? I don’t think I would still be in a job.
+ - When I saw Rijkaard entering the referee’s dressing room I couldn’t believe it. When Didier Drogba was sent off, I wasn’t surprised.
+ - So I know all about the ups and downs of football, I know that one day I will be sacked.
+ - In my teams, when we win, we all win, and when we lose, I lose.
+ - I think it’s clearly the result of something that looks like a campaign.
+ - I must try to hide my emotions. I have to live with both the victory and the defeat.
+ - If Messi is the best in the world, it’s only because Cristiano is from another planet.
+ - And I think because of the passion of every English player and every English supporter, and every English journalist for the game, most of the game is played with passion, love for football and instinct, but in football you also have to think.
+ - Everybody was waiting for Chelsea not to win every game and one day when we lose there will be a holiday in the country. But we are ready for that.
+ - I would rather play with 10 men than wait for a player who is late for the bus.
+ - There is no pressure at the top. The pressure is being second or third.
+ - My family love living in London. It is a fantastic city and a city such as this deserves to host the Olympic Games.
+
+110 quotes

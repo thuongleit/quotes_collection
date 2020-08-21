@@ -1,0 +1,380 @@
+ - A team is not a group of people that work together. A team is a group of people that trust each other.
+ - Working hard for something we don’t care about is called stress; working hard for somthing we love is called passion.
+ - Words may inspire but only action creates change.
+ - People don’t buy what you do; they buy why you do it. And what you do simply proves what you believe.
+ - Leadership is not about being in charge. Leadership is about taking care of those in your charge.
+ - Progress is more important than perfection.
+ - Dream big. Start small. But most of all, start.
+ - Leadership is a choice. It is not a rank.
+ - Be the leader you wish you had.
+ - A small team, committed to a cause bigger than themselves, can achieve absolutely anything.
+ - Listening is not understanding the words of the question asked, listening is understanding why the question was asked in the first place.
+ - Customers will never love a company until its employees love it first.
+ - Don’t give to get. Give to inspire others to give.
+ - You are authentic when everything you say and everything you do you ACTUALLY believe.
+ - Don’t show up to prove. Show up to improve.
+ - The true value of a leader is not measured by the work they do. A leader’s true value is measured by the work they inspire others to do.
+ - When we tell people to do their jobs, we get workers. When we trust people to get the job done, we get leaders.
+ - Fight against something and you focus on the thing you hate. Fight for something and you focus on the thing you love.
+ - Leadership is neither a rank nor a title. It is a choice. The choice to provide care and protection for those for whom we are responsible.
+ - When you compete against everyone else, no one wants to help you. But when you compete against yourself, everyone wants to help you.
+ - Great leaders don’t see themselves as great; they see themselves as human.
+ - Greatness starts with a clear vision of the future.
+ - Vision is a destination – a fixed point to which we focus all effort. Strategy is a route – an adaptable path to get us where we want to go.
+ - Leadership is not a license to do less. Leadership is a responsibility to do more.
+ - The goal is not to be perfect by the end. The goal is to be better today.
+ - The value of our lives is not determined by what we do for ourselves. The value of our lives is determined by what we do for others.
+ - Putting yourself first is not selfish. Quite the opposite. You must put your happiness and health first before you can be of help to anyone else.
+ - Great leaders are willing to sacrifice the numbers to save the people. Poor leaders sacrifice the people to save the numbers.
+ - There are only two ways to influence human behavior: you can manipulate it or you can inspire it.
+ - Hearing is listening to what is said. Listening is hearing what isn’t said.
+ - There is a difference between listening and waiting for your turn to speak.
+ - If you hire people just because they can do a job, they’ll work for your money. But if you hire people who believe what you believe, they’ll work for you with blood, sweat, and tears.
+ - Life is beautiful not because of the things we see or do. Life is beautiful because of the people we meet.
+ - The hardest part is starting. Once you get that out of the way, you’ll find the rest of the journey much easier.
+ - We’d achieve more if we chase the dream instead of the competition.
+ - Great leaders must have two things: a vision of the world that does not yet exist and the ability to communicate that vision clearly.
+ - The cost of leadership is self-interest.
+ - A boss who micromanages is like a coach who wants to get in the game. Leaders guide and support and then sit back to cheer from the sidelines.
+ - Martin Luther King gave the ‘I Have a Dream’ speech, not the ‘I Have a Plan’ speech.
+ - Happy employees ensure happy customers. And happy customers ensure happy shareholders – in that order.
+ - There are leaders and there are those who lead. Leaders hold a position of power or influence. Those who lead inspire us.
+ - A leader’s job is not to do the work for others; it’s to help others figure out how to do it themselves, to get things done and to succeed beyond what they thought possible.
+ - When people are financially invested, they want a return. When people are emotionally invested, they want to contribute.
+ - Bad leaders care about who is right. Good leaders care about what is right.
+ - If everything goes right, we get a good experience. If everything goes wrong, we get a good story.
+ - The courage of leadership is giving others the chance to succeed even though you bear the responsibility for getting things done.
+ - Stand for people. Not a product or service or metric or number. If we stand for real, living, breathing people, we will change the world.
+ - Success always takes help. Failure is done alone.
+ - Innovation is not born from the dream, innovation is born from the struggle.
+ - The next time someone starts listing all the reasons an idea won’t work or can’t happen, ask them to give 3 reasons it can.
+ - A leader without a title is better than a title without the ability to lead.
+ - It’s better to have a great team than a team of greats.
+ - The challenge of the unknown future is so much more exciting than the stories of the accomplished past.
+ - The responsibility of leadership is not to come up with all the ideas but to create an environment in which great ideas can thrive.
+ - The most important thing to do before you die is live.
+ - The leaders who get the most out of their people are the leaders who care most about their people.
+ - We should invest in people not ideas. A good idea is often destroyed by bad people and good people can always make a bad idea better.
+ - Safe is good for sidewalks and swimming pools, but life requires risk if we are to get anywhere.
+ - Don’t quit. Never give up trying to build the world you can see, even if others can’t see it. Listen to your drum and your drum only. It’s the one that makes the sweetest sound.
+ - If you don’t understand people, you don’t understand business.
+ - Being driven is not the same as being passionate. Passion is a love for the journey. Drive is a need to reach the destination.
+ - A star wants to see himself rise to the top. A leader wants to see those around him rise to the top.
+ - Leadership is not about the next election, it’s about the next generation.
+ - Always plan for the fact that no plan ever goes according to plan.
+ - Trust has two dimensions: competence and integrity. We will forgive mistakes of competence. Mistakes of integrity are harder to overcome.
+ - I find, when you’re an optimist, life has a funny way of looking after you.
+ - Trust doesn’t develop from always doing the right thing. Trust comes from taking responsibility when we do the wrong thing.
+ - True strength is the courage to admit our weaknesses.
+ - There’s nothing efficient about innovation.
+ - No one knows everything. But together, we know a whole lot.
+ - Self confidence is the ability to exercise restraint in the face of disrespect and still show respect in response.
+ - Success is when reality catches up to your imagination.
+ - Leadership is a way of thinking, a way of acting and, most importantly, a way of communicating.
+ - Profit isn’t a purpose, it’s a result. To have purpose means the things we do are of real value to others.
+ - I’m investing in myself, I’m investing in others and I’m investing in my cause. I know if I persist it will pay back in dividends and it always does.
+ - Give someone responsibility and they will do their best. Make them accountable and they will do even better.
+ - Pure pragmatism can’t imagine a bold future. Pure idealism can’t get anything done. It is the delicate blend of both that drives innovation.
+ - Value is a perception not a calculation. Value is something people feel, not something we tell them they get.
+ - Vision is the ability to talk about the future with such clarity it is as if we are talking about the past.
+ - The more you inspire, the more people will inspire you.
+ - Generosity is doing something for someone else expecting nothing in return.
+ - Our vision is only actionable if we share it. Without sharing, it’s just a figment of our imagination.
+ - Before we can build the world we want to live in, we have to imagine it.
+ - The true price of leadership is the willingness to place the needs of others above your own. Great leaders truly care about those they are privileged to lead and understand that the true cost of the leadership privilege comes at the expense of self-interest.
+ - Great leaders don’t blame the tools they are given. Great leaders work to sharpen them.
+ - Intelligence looks for what is known to solve problems. Creativity looks for what is unknown to discover possibilities.
+ - Progress and innovation happen when you set unrealistic goals.
+ - Remaining calm in times of desperation makes way for opportunity.
+ - Knowledge is understanding based on what has been studied and learned. Wisdom is understanding based on what has been felt and experienced.
+ - The best ideas are the honest ones. Ones born out of personal experience. Ones that originated to help a few but ended up helping many.
+ - We learn most not from all of the things that go right. We learn most when everything goes wrong.
+ - The mind can be convinced, but the heart must be won.
+ - If a movement is to have an impact it must belong to those who join it, not those who lead it.
+ - Bad leaders believe that they have to project control at all times.
+ - The creatives are rarely professional and the professionals are rarely creative.
+ - True love is when both people think they have the better half of the deal.
+ - Rule books tell people what to do. Frameworks guide people how to act. Rule books insist on discipline. Frameworks allow for creativity.
+ - The primary ingredient for progress is optimism. The unwavering belief that something can be better drives the human race forward.
+ - You have to be careful what you think you know.
+ - And it’s those who start with why, that have the ability to inspire those around them or find others who inspire them.
+ - Our courage comes from the courage of others.
+ - When we help ourselves, we find moments of happiness. When we help others, we find lasting fulfillment.
+ - Leadership is not communicating what we need. Leadership is communicating what we can contribute.
+ - Pushing yourself to be the best is unsustainable. Simply push yourself to be better than the day before.
+ - Givers advance the world. Takers advance themselves and hold the world back.
+ - Stress and anxiety at work have less to do with the work we do and more to do with weak management and leadership.
+ - The ability for a group of people to do remarkable things hinges on how well those people can pull together as a team.
+ - All organizations start with WHY, but only the great ones keep their WHY clear year after year.
+ - The goal is not to do business with everybody who needs what you have. The goal is to do business with people who believe what you believe.
+ - It is not the genius at the top giving directions that makes people great. It is great people that make the guy at the top look like a genius.
+ - No matter when or where, always bring your ‘A’ game, because you never know when it will open doors for you.
+ - A leader, first and foremost, is human. Only when we have the strength to show our vulnerability can we truly lead.
+ - Truly effective and inspiring leaders aren’t actually driven to lead people; they are driven to serve them.
+ - The future is only scary if we try to avoid it.
+ - A good leader takes care of those in their charge. A bad leader takes charge of those in their care.
+ - Corporate culture matters. How management chooses to treat its people impacts everything – for better or for worse.
+ - To be authentic is to be at peace with your imperfections.
+ - Simple ideas are easier to understand. Ideas that are easier to understand are repeated. Ideas that are repeated change the world.
+ - Good marketing speaks to human beings – the way human beings understand and take in information.
+ - Some in management positions operate as if they are in a tree of monkeys. They make sure that everyone at the top of the tree looking down sees only smiles. But all too often, those at the bottom looking up see only asses.
+ - Focus on long term success but be willing to make short term adjustments to get there.
+ - Leadership is absolutely about inspiring action, but it is also about guarding against mis-action.
+ - What we do for others has a direct impact on how we feel about ourselves.
+ - Achievement happens when we pursue and attain what we want. Success comes when we are in clear pursuit of Why we want it.
+ - There is no decision that we can make that doesn’t come with some sort of balance or sacrifice.
+ - What good is it to have a belly if there’s no fire in it? Wake up, drink your passion, light a match and get to work.
+ - Genius is in the idea. Impact, however, comes from action!
+ - I don’t care about convincing the people who think I’m naive or an idiot. I’m interested in how do I inspire the people who are open-minded that there’s a different way of seeing the world.
+ - It doesn’t matter how much we know, it matters how clearly others can understand what we know.
+ - Panic causes tunnel vision. Calm acceptance of danger allows us to more easily assess the situation and see the options.
+ - Greatness is not born from one success. Greatness is born from persevering through the countless failed attempts that preceded.
+ - Authenticity is more than speaking; Authenticity is also about doing. Every decision we make says something about who we are.
+ - Most people ignore opportunities because they see only danger. Entrepreneurs ignore danger because they see only opportunities.
+ - Focus on where you’re going and you’ll know what steps to take. Focus on the steps you’re taking and you won’t know where you’re going.
+ - Those who lead inspire us Whether they are individuals or organizations, we follow those who lead not because we have to but because we want to.
+ - The passion to change the world for the better is a more powerful force than defense to keep it the same.
+ - Leadership is like exercise. Do it everyday, the results take time but you will see them. It’s the little things.
+ - The goal is not simply to ‘work hard, play hard.’ The goal is to make our work and our play indistinguishab le.
+ - You have to have a patience for exercise. You have to have a patience for college. You have to have a patience for relationships. Once the momentum gets going it takes on a life all of its own.
+ - Stories are attempts to share our values and beliefs. Storytelling is worthwhile when it tells what we stand for.
+ - Unhealthy cultures create addiction. Healthy cultures create social bonds.
+ - If you’re not remarkable, you’re invisible.
+ - We don’t do business with companies. We do business with people.
+ - Employees represent an opportunity to inspire not a burden to carry.
+ - And when a leader embraces their responsibility to care for people instead of caring for numbers, then people will follow, solve problems and see to it that that leader’s vision comes to life the right way, a stable way and not the expedient way.
+ - Poor leaders push us towards the goal. Great leaders guide us through the journey.
+ - The strong bond of friendship is not always a balanced equation; friendship is not always about giving and taking in equal shares. Instead, friendship is grounded in a feeling that you know exactly who will be there for you when you need something, no matter what or when.
+ - When we have a clear sense of our destination, we can be flexible in the route we take to reach it.
+ - It’s better to go slowly in the right direction than go speeding off in the wrong direction.
+ - We should never let reality interfere with our dreams. Reality can’t see what we can see.
+ - Failure is not tied to money; it is a mindset. Failure is when we accept the lot we are given.
+ - Emails get reactions. Phone calls start conversations.
+ - Courage isn’t inside; it’s external. It comes from someone else telling you they believe in you.
+ - Life changes for the better when we realize that we don’t have to know everything and we don’t have to pretend we do.
+ - The goal of business should not be to do business with anyone who simply wants what you have. It should be to focus on the people who believe what you believe. When we are selective about doing business only with those who believe in our WHY, trust emerges.
+ - In this age of omniconnectedness, words like ‘network,’ ‘community’ and even ‘friends’ no longer mean what they used to. Networks don’t exist on LinkedIn. A community is not something that happens on a blog or on Twitter. And a friend is more than someone whose online status you check.
+ - Managers watch over our numbers, our time and our results. Leaders watch over us.
+ - We can’t all be good at everything. This is partly the logic behind having a team in the first place, so each role can be filled with the person best suited for that role and together, every job and every strength is covered.
+ - Selfish is easy. It’s sharing that takes courage.
+ - What you do is proof of what you believe.
+ - Good marketing offers us a view of the world. Bad marketing offers us a product to buy.
+ - The value of networking is not measured by the number of people we meet but by the number of people we introduce to others.
+ - Curiosity is essential for progress. Only when we look to worlds beyond our own can we really know if there’s room for improvement.
+ - Directions are instructions given to explain how. Direction is a vision offered to explain why.
+ - If you have the opportunity to do amazing things in your life, I strongly encourage you to invite someone to join you.
+ - Actions speak louder than words. All companies say they care, right? But few actually exercise that care.
+ - If you sell what you do, you’re a vendor. If you sell why you do it, you’re a brand.
+ - The trick to balance is to not make sacrificing important things become the norm.
+ - Inspire people to do the things that inspire them and, together, we can change our world.
+ - When we accept the fact that we can’t do everything, we are more willing to ask for and accept help when we do anything.
+ - It’s better to do it than to talk about how perfect it could be.
+ - Some see risk as a reason not to try. Some see it as an obstacle to overcome. The risk is the same; to try or not depends on your perspective.
+ - Most politicians are not authentic.
+ - When I present, I cheat. I only talk about things I care about.
+ - Your work is your own private megaphone to tell the world what you believe.
+ - When a leader makes the choice to put the safety and lives of the people inside the organization first, to sacrifice their comforts and sacrifice the tangible results, so that the people remain and feel safe and feel like they belong, remarkable things happen.
+ - A great leader will never sacrifice the people for the numbers.
+ - Words may inspire, but only ACTION creates change. Most of us live our lives by accident – we live life as it happens. Fulfillment comes when we live our lives on purpose.
+ - We crave explanations for most everything, but innovation and progress happen when we allow ourselves to embrace uncertainty.
+ - In the military, they give medals for people who are willing to sacrifice themselves so that others may survive. In business, we give bonuses to people who sacrifice others.
+ - Complaining begets more complaints. Anger begets more anger. And optimism begets more optimism.
+ - Systems and processes are essential to keep the crusade going, but they should not replace the crusade.
+ - What good is an idea if it remains an idea? Try. Experiment. Iterate. Fail. Try again. Change the world.
+ - Don’t wait for perfection before you start. Start somewhere so you can have something tangible you can work to perfect.
+ - Success comes when we wake up every day in that never-ending pursuit of why we do what we do.
+ - If we were good at everything we would have no need for each other.
+ - The quality of a leader cannot be judged by the answers he gives, but by the questions he asks.
+ - The leader’s job is to lead and protect. Not have all the answers, not know everything to do, not to micromanage and tell people what to do or how to do it. A leader’s job is to lead and protect. That’s their job, and it’s the people within the organization – their job is to get the work done.
+ - Great leaders don’t need to act tough. Their confidence and humility serve to underscore their toughness.
+ - Would anybody be offended if we gave a $150 million bonus to Gandhi? How about a $250 million bonus to Mother Teresa? Do we have an issue with that? None at all. Great leaders would never sacrifice the people to save the numbers. They would sooner sacrifice the numbers to save the people.
+ - A true friend is someone with whom protocol is no longer necessary.
+ - Leaders don’t convince people to follow them. Leaders walk forward alone and those who want to go down their path decide to follow.
+ - Leaders don’t complain about what’s not working. Leaders celebrate what is working and work to amplify it.
+ - The value of emotions comes from sharing them, not just having them.
+ - Humility, I have learned, must never be confused with meekness. Humility is being open to the ideas of others.
+ - We last longer if we compete against ourselves for the good of others instead of competing against others for the good of ourselves.
+ - The single best machine to measure trust is a human being. We haven’t figured out a metric that works better than our own sort of, like, ‘There’s something fishy about you.’
+ - Mergers are like marriages. They are the bringing together of two individuals. If you wouldn’t marry someone for the ‘operational efficiencies’ they offer in the running of a household, then why would you combine two companies with unique cultures and identities for that reason?
+ - The confident ask questions to learn what will connect. The insecure just keep talking with the hope something will stick.
+ - If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you.
+ - Focus on money and we will make money. Focus on impact and we will make an impact.
+ - Any great and inspiring leader or organization that ever existed set out to do something completely unrealistic.
+ - Good leadership is always human. It takes time and energy. It is hard work. Which is why good leadership is so special when we find it.
+ - We live in times of high stress. Messages that are simple, messages that are inspiring, messages that are life-affirming, are a welcome break from our real lives.
+ - Our struggles are the short term lessons we learn to achieve long term success.
+ - When we can communicate from the inside out, we’re talking directly to the part of the brain that controls behavior, and then we allow people to rationalize it with the tangible things we say and do. This is where gut decisions come from.
+ - If you want to be a great leader, remember to treat all people with respect at all times. For one, because you never know when you’ll need their help. And two, because it’s a sign you respect people, which all great leaders do.
+ - Don’t freak yourself out by what other people have. They don’t have what you’ve got.
+ - We become leaders when we accept the responsibility to protect those in our care.
+ - Great communicators don’t just hear the words. Great communicators hear the meaning behind the words.
+ - The world is a bell curve. Classroom test scores, employee performance in a company or how many people really, really like you. No matter the population you’re studying, they always fit neatly across the standard deviations of the famous bell curve.
+ - Believing that your competition is stronger and better than you pushes you to better yourselves.
+ - There is a difference between running with all your heart with your eyes closed and running with all your heart with your eyes wide open.
+ - Our survival depends on our ability to form trusting relationships.
+ - When we are in groups, when we are surrounded by people who believe what we believe, trust emerges and our very survival and progress goes up.
+ - Those who fear the new are the ones who have mastered the old.
+ - Authorities act with themselves in mind. Leaders act with others in mind. Authorities take. Leaders give. Authorities die. Leaders live on.
+ - During World War II, the pilot losses were staggering. In some bombing raids, as many as 80% of the planes that left did not return.
+ - When we are selective about doing business only with those who believe in our WHY, trust emerges.
+ - Nike doesn’t want to make products for everyone – they want to make products for champions.
+ - Communication is not about speaking what we think. Communication is about ensuring others hear what we mean.
+ - Make it about them, not about you.
+ - There are two kinds of experts: academic experts and practical experts. One is not better than the other, but they are very different, and each offers very different value.
+ - Offer your strengths to others and you’ll be amazed how many people offer their strengths to you.
+ - Changing the world takes more than everything any one person knows, but not more than we know together.
+ - There are leaders, and there are those who lead.
+ - Good listeners have a huge advantage. For one, when they engage in conversation, they make people ‘feel’ heard. They ‘feel’ that someone really understands their wants, needs and desires. And for good reason; a good listener does care to understand.
+ - Ideas are like dreams; they will disappear unless we record them. Write a book, a blog, build a company, anything that makes the ideas real.
+ - How can you help the human race progress?
+ - It is like when a player has a slump, we do not trade them, we coach them. It is the same with our employees. The best leaders come to the aid of their people, whose performance is down. Not come down harder on them.
+ - Though we may have desires or bold goals, for whatever reason, most of us don’t think we can achieve something beyond what we’re qualified to achieve. Why, I ask, do we let reality interfere with our dreams?
+ - TiVo and other digital recording devices have confounded advertisers. The ad industry sees the technology as a threat to their product.
+ - We can not lead an organization, we can run an organization. We can only lead people.
+ - All the great organizations in the world, all have a sense of why that organization does what it does.
+ - Republicans are completely befuddled by Obama’s ‘star power’ and don’t seem to have a clear or effective strategy to compete.
+ - Leaders, whatever the size of their organizations, are those willing to put the interests of other people before their own.
+ - A friend is an emotional bond, just like friendship is a human experience.
+ - It is better to disappoint people with the truth than to appease them with a lie.
+ - Returning from work feeling inspired, safe, fulfilled and grateful is a natural human right to which we are all entitled and not a modern luxury that only a few lucky ones are able to find.
+ - True love exists in business. It’s when Employee and Employer are amazingly grateful to have each other. We should all have true love at work.
+ - Great leaders see money as fuel, not a destination.
+ - We can make up for lost money, but we can’t make up for lost time.
+ - One of the best paradoxes of leadership is a leader’s need to be both stubborn and open-minded. A leader must insist on sticking to the vision and stay on course to the destination. But he must be open-minded during the process.
+ - More information is always better than less. When people know the reason things are happening, even if it’s bad news, they can adjust their expectations and react accordingly. Keeping people in the dark only serves to stir negative emotions.
+ - The most basic human desire is to feel like you belong. Fitting in is important.
+ - A good leader shares information, even if they don’t know the whole story. Without any information, people create their own, which causes fear and paranoia.
+ - Work hard to seem infallible and others will work to find our flaws. Admit our shortcomings and others will work to help us be infallible.
+ - Pursue the thing inside us and others will help us. Pursue the things outside us and others will compete with us.
+ - Follow those who follow something bigger than themselves – an idea, a belief, a vision, a cause. Run away from those who say we need to follow them.
+ - Any parent who tells their kids that they can’t attend a school play or go to a soccer match because they have to work is kidding themselves. It’s OK to miss a game or two or a performance here and there, but it’s not all right to miss the majority of them.
+ - Hire people inspired to achieve something big over people who demand something big before they feel inspired.
+ - We have no choice, we must all die. How we live, however, is entirely of our choosing.
+ - Notoriously outspoken, his sentences always punctuated with profanities, General George S. Patton was the epitome of what a leader should be like – or so he thought. Patton believed a leader should look and act tough, so he cultivated his image and his personality to match his philosophy.
+ - It’s important to slow down, every now and then, for no other reason than to call someone to say ‘Hi.’ It doesn’t have to be a long conversation. Just calling out of the blue does more to let someone know you still care about them than nearly anything else.
+ - The big picture doesn’t just come from distance; it also comes from time.
+ - When I was a kid, I was a bit of a space geek. I loved the space program and all things NASA. I would read books about our solar system; I had pictures of the Space Shuttle on my bedroom wall. And yes, I even went to Space Camp.
+ - Risk deters those who see what they could lose. Those focused on the gain see it as a necessary part of their journey, even if the possibility of loss exists.
+ - Anyone can sell product by dropping their prices, but it does not breed loyalty.
+ - My sister made certain choices about the life she wanted. Those choices include a steady job, a husband and children. But balance and stability come at a cost. It is harder for her to be spontaneous. It is harder to just up and leave.
+ - Reality will always prevail so why help it? Be an idealist and see what happens.
+ - Good leadership is hard to measure on a daily basis which is why so many default to doing what’s easy to measure instead.
+ - We think leadership is about rank and power, but better to think of leadership as the responsibility for other human beings. That leadership and rank may not go together. So it manifests in this remarkable way.
+ - Outside advice can only tell you how a decision looks. Only you can know how it feels. The best decisions look and feel right.
+ - Leadership isn’t answering the questions others ask. Leadership is asking others to answer their own questions.
+ - Money is a short-term result that incentivizes short-term decision making.
+ - I have been inspired by Martin Luther King and how he inspired a movement. I have learned that a cause must be organic; if it is to have an impact it must belong to those who join the movement and not those who lead it.
+ - The irony is that the best thing we can do is, well one option, is to quit job we don’t like. You don’t always have to quit, and quite frankly, option two is to try to help others solve the problem that you are struggling with.
+ - Great leaders state out loud what they intend to do and in doing so, they get things done.
+ - Time and energy. Those are the most valuable sacrifices leaders can make.
+ - Entrepreneurs must be practical experts. They needn’t set out to be subject matter experts in what they do; they must set out to solve a problem or pursue some cause or purpose greater than themselves.
+ - The bad leaders are the ones that push hard so they can gain, who brow beat us so that they can receive the benefit of our hard work, not so we can enjoy the success.
+ - The value we provide most to others is the same value we appreciate most from others.
+ - Leaders may inspire, but only when the people decide to act does the leader’s vision become a movement.
+ - It’s ok if others share our ideas as long as they build upon them. It’s called progress.
+ - My concern is that we live in an economy in which stabbing someone and waiting for them to complain before we remove the knife has become the normal way of doing business. When did we lose sight of the fact that it’s not nice to stab people in the first place?
+ - To operate based on conviction and belief requires an acceptance that your actions could get you fired. This is different from pig-headed bravado, and it is different from putting the company at risk.
+ - If we care about the average working American, then Wal-Mart matters. A lot.
+ - Optimists focus on the place they are going. Pessimists focus on the obstacles along the route. To become an optimist simply look ahead.
+ - The responsibility of leadership is not taken, it is given. Only when others choose to follow us can we truly lead.
+ - Optimism is the ability to focus on where we’re going, not where we’re coming from.
+ - The difference between those who do and those who don’t is that those who don’t believe it when they are told they can’t.
+ - You’ll never see the president carry his own luggage, and why? Because even though we know he has luggage, it would reduce his stature if he was too much like us. We need to think of our leaders as being above us, even though they must still relate to us.
+ - If you can clearly articulate the dream or the goal, start.
+ - I don’t consider myself an expert in the why. I don’t consider myself an expert in leadership. I consider myself a student of leadership and I consider myself a student of the why. I’m constantly learning and I’m constantly looking for opportunities where it it will fail.
+ - If you care, do something. If you don’t care, please stay out of the way of those who do.
+ - Anyone who achieves any kind of success, however you want to define it, sometimes can’t let go of it.
+ - To become an academic expert takes years of studying. Academic experts are experts in how and what others have done. They use case studies and observation to understand a subject.
+ - The irony is, the advertising industry knows everyone hates what they produce. This is why they keep looking for new ways to force people to stay tuned.
+ - Every one of us has the capacity to lead.
+ - Let us not attack those who disagree. Let us defend those who follow.
+ - I try to find, celebrate and teach leaders how to build platforms that will inspire others.
+ - New ideas need audiences like flowers need bees. No matter how bright and colorful, they will die unless others work to spread them.
+ - I think most people are inherently interested in how their brain works, in what makes them tick.
+ - There are two types of claims: those based on hard numbers and those based on slippery numbers.
+ - Taking a job for the cash is not as important as taking a job for the joy.
+ - When I was in college, my school newspaper accepted an ad from a Holocaust revisionist organization. This would have been offensive on most college campuses across the country, but I went to a school with a very large Jewish population, so the ad, as you might expect, stirred absolute outrage.
+ - Leadership is a choice to protect the person to the left of us, and protect the person to the right of us, and sometimes that may come at a cost. It may cost us our benefits, it may cost us our comfort, it may sometimes cost us our perks, whatever it is, credit.
+ - A poor leader will tell you how many people work for them. A great leader will tell you how many people they work for.
+ - Look down from as high as possible. Look ahead as far as you can see. Then decide what to do.
+ - It is a luxury to put our interests first. It is an honor to put the interests of others before our own.
+ - People who go to work to be a part of the cause don’t go home. They are home. Now – who wants to quit?
+ - Babe Ruth was not afraid to strike out. And it was this fearlessness that contributed to his remarkable career.
+ - No matter how many or how few people you have reporting to you, you must remember that as you climb higher in the ranks, your words will be taken as commands even if you’re just thinking out loud.
+ - Most years, if you were to ask me how much I make, the genuine answer is that I have no clue. I usually find out the answer to that question once a year, at tax time, when my accountant tells me.
+ - Remember to connect with people now and then. In fact, pick up the phone, right now, and call a friend for no other reason than to say hi.
+ - We should always choose to work with people we love. They are the ones who will watch our back and our future.
+ - We must be clear about where we’re going if we want anyone to help us get there.
+ - Value is not determined by those who set the price. Value is determined by those who choose to pay it.
+ - The goal of life is not to have our lives mean something to ourselves. The goal of life is to have our lives mean something to others.
+ - It’s always the organizations that are resource constrained that come up with the good ideas to win.
+ - Leave America and you’ll find that the consumers in many other countries enjoy watching advertising. Not because the products are better, but because the ads are produced to be entertaining. Sometimes they are funny. Sometimes they are dramatic. Sometimes they are just beautiful.
+ - A boss wants to pay for results, an employee wants recognition for effort. If a boss recognizes effort, they will get even better results.
+ - Though there are lessons that can be learned about becoming a great leader, most exist inherently in the bellies of those who lead.
+ - I’m very prescriptive about who I work with. I’m very clear about what I believe. If they believe what I believe I will work with them. If they say things like, “Convince me we should do this.” I walk away.
+ - Some people are born good-looking. Some have the gift of gab. And some are lucky enough to be born smarter than the rest of us. Whether we like it or not, Mother Nature does not dole these characteristics out evenly.
+ - Offer someone the opportunity to rebuild a company or reinvent an industry as the primary incentive, and it will attract those drawn to the challenge first and the money second.
+ - Academic experts may not be good at doing what they are experts in themselves, but they are good at explaining the subject matter to others. They write books, teach courses and offer lessons and give steps others can follow.
+ - Leaders volunteer to go first into danger. Their willingness to sacrifice for us is the reason we’re inspired to follow.
+ - The only way to ‘find out if it will work out’ is to do it.
+ - Never opt for change simply to leave something you don’t like. Change works best when you go toward something, even if it is the unknown.
+ - If we inspire people, they will give us more than we asked for. If we manipulate them, they will give us exactly what we paid for.
+ - I have friends who are majorly into the cosplay culture and have urged me to go to a convention for no other reason than to meet others like me.
+ - I never imagined working with CEOs, congressmen or the military, yet I make regular visits to the Pentagon, stop by the Capitol now and then and sit down with leaders of all kinds of companies.
+ - When we point to obstacles we inhibit progress. When we offer solutions we advance.
+ - When leaders care less about their people, their people will be careless.
+ - Like a good parent can’t also be his child’s best friend, a leader with authority requires some separation from subordinates.
+ - We should all have an opportunity to feel a part of something not just have a part in something.
+ - Trust emerges when we have a sense that another person or organization is driven by things other than their own self-gain.
+ - To spend more money, you have to have more money, but time is fixed and we all have the same amount to spare. How we choose to spend it can make a significant difference on the impact we have in our careers or in the world.
+ - I’d rather play in the major leagues and have some bad games than play consistently good ball in the minors.
+ - I don’t enjoy eating humble pie; it never tastes good. But I do appreciate it when it happens.
+ - Because a true sense of purpose is deeply emotional, it serves as a compass to guide us to act in a way completely consistent with our values and beliefs. Purpose does not need to involve calculations or numbers. Purpose is about the quality of life. Purpose is human, not economic.
+ - Work requires effort. Things we love to do feel effortless. Only do the things you love and you’ll never have to work again.
+ - Great leaders and great organizations are good at seeing what most of us can’t see. They are good at giving us things we would never think of asking for.
+ - Spending time with the military certainly lends itself to some remarkable experiences, and I’ve been privileged to have had my share.
+ - Halloween is one of my favorite days of the year. I have a strict rule: I don’t work on Halloween and I won’t travel on Halloween. Not for any reason.
+ - A leader must be inspired by the people before a leader can inspire the people.
+ - We should never change our minds about where we are going, but always be curious about different ways to get there.
+ - Entrepreneurs see the thing they want or need, then try to figure out a process of how to get it. People who shouldn’t be entrepreneurs see the standard process they need to go through to get the thing they want or need then decide if they want to go through that process.
+ - People will do as they are told by someone who outranks them, but they will only follow someone they believe in.
+ - Leaders are the ones who have the courage to go first, to put themselves at personal risk to open a path for others to follow.
+ - I look for the hotels that have figured out the comfortable balance – a modern room that is well designed, and really clean sheets.
+ - We are only in charge when we are willing to let others take charge.
+ - Those in pursuit of Why are inspired to do what is right. Those in pursuit of What are driven to do what is easy.
+ - The worst leaders are the once that think they have to know as much or more than the people who work with them. The best leaders are the once who know that their employees know hell of a lot more than what they know and willing to admit it whilst expressing the value of their employees.
+ - We can rationalize anything and easily quit on ourselves. Leadership is refusing to quit on others.
+ - Instead of showing up to let everyone know how great we are, show up to find out how great everyone else is.
+ - Pilots have their names painted just beneath the canopy of their aircraft. This gives the pilot a sense of ownership for his or her jet. What’s more, like cars, each aircraft has its own personality, so it’s important for a pilot to get to know and love his aircraft.
+ - All these companies that grew to any sizable proportions were all founded with a belief or a cause bigger than their products or services. It was their products or services that helped them bring that cause to life.
+ - Trust is built on telling the truth, not telling people what they want to hear.
+ - Average companies give their people something to work on. The most innovative organizations give their people something to work toward.
+ - Our reputations do not come from how we talk about ourselves. Our reputations come from how others talk about us.
+ - In the 1980s America reacted to the Soviet Union’s invasion of Afghanistan. We supported a war that left a nation torn to pieces. And as the last Soviet tank left the country, so did we.
+ - Leaders don’t look for recognition from others, leaders look for others to recognize.
+ - Followers want to be taken care of. Leaders want to take care of others. We can all be leaders.
+ - We are drawn to leaders and organizations that are good at communicating what they believe. Their ability to make us feel like we belong, to make us feel special, safe and not alone is part of what gives them the ability to inspire us.
+ - We must all try to empathize before we criticize. Ask someone what’s wrong before telling them they are wrong.
+ - Our goals should serve as markers, measurements of the progress we make in pursuit of something greater than ourselves.
+ - I couldn’t understand why my productivity went down when I had deliberately made more time available to write. Then I realized it was because I wasn’t flying as much.
+ - A leader’s job is not just to get the best out of their people-a leader’s job is to make more leaders.
+ - The rank of office is not what makes someone a leader. Leadership is the choice to serve others with or without any formal rank.
+ - A leader should not take credit when things go right if they are not willing to accept responsibility when things go wrong.
+ - If we don’t give things a try, nothing will get off the ground.
+ - If you talk about what you believe, you will attract those who believe what you believe.
+ - If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else.
+ - We don’t learn much when everything goes right. We learn the most when things go wrong.
+ - Leadership is about making people feel safe. When someone feels heard, they feel safe.
+ - When you explain to people what you’re trying to do, as opposed to just making demands or delegating tasks, you can build instant trust, even if it’s just for that short time you’re on the phone.
+ - To succeed takes more than the desire to win. It also takes the acceptance that we could fail.
+ - Great leaders don’t try to be perfect. They try to be themselves. And that’s what makes them great.
+ - There is a difference between offering a service and being willing to serve. They may both include giving but only one is generous.
+ - So much of starting a business or affecting change is the confidence and courage to simply try.
+ - Sometimes we give too much too soon. Sometimes we hold back for too long. This is our beautiful dance. Our imperfect dance. This is the dance that makes us human.
+ - Trust is maintained when values and beliefs are actively managed. If companies do not actively work to keep clarity, discipline and consistency in balance, then trust starts to break down.
+ - The value of experimentation is not the trying. It’s the trying again after the experiment fails.
+ - Sometimes spending time with someone who is perceived as ‘successful’ can make us feel less successful.
+ - Quality effective leaders have the confidence to trust others to try, succeed, and sometimes to fail. We very often confuse personality with leadership. In other words, leadership is not about being a nice person or not a nice person.
+ - We all have the luxury of looking out for ourselves. Leaders also have the honor of looking out for others.
+
+378 quotes

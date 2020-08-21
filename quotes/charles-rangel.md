@@ -1,0 +1,53 @@
+ - Immigrants have faced huge obstacles to achieving the American Dream, yet have persevered to overcome them.
+ - A quality education grants us the ability to fight the war on ignorance and poverty.
+ - Encouragement of higher education for our youth is critical to the success of our collective future.
+ - As a Korean War Veteran, I know too well the troubling nature of war. This is why I will always support a diplomatic answer before military intervention.
+ - I am a firm believer that upon release, ex-offenders should be afforded a second chance to become productive citizens by providing rehabilitation and education that will help them join the workforce.
+ - As a Korean War veteran, I know firsthand and understand the sacrifices made by our men and women in uniform.
+ - Thousands of people may have been killed by hurricane Katrina and many more could die in its aftermath because of the President’s refusal to heed the calls of governors for help in repairing the infrastructure in their states.
+ - The promise of the American Dream requires that we are all provided an equal opportunity to participate in and contribute to our nation.
+ - Regardless of the nature of their crime or any rehabilitation that may have occurred, these ex-felons cannot participate in the decision-making process of this great Nation.
+ - Honoring the sacrifices many have made for our country in the name of freedom and democracy is the very foundation of Veterans Day.
+ - If there’s no relationship with a father who’s absent, nobody talks about it.
+ - Respecting our veterans includes providing them the ways and means they so desperately need to reintegrate into our lives and serve us again as productive members of our civilian community.
+ - Im sick and tired of politicians beating up on the IRS. We have the best and fairest tax-collection system in the world.
+ - This country was founded upon the principle that we are all endowed with certain inalienable rights to Life, Liberty, and the Pursuit of Happiness – those rights are what make America great, and they belong to each and every one of us.
+ - I’ve been beat up pretty badly. Pretty badly. Yet at the end of the day, everyone says I’m doing a pretty good job.
+ - It’s impossible for us to forecast what’s going to happen ten years from now and make a decision today to say what we’re going to do.
+ - Well, I really think that shatters the myth of white supremacy once and for all.
+ - The challenges African-Americans are facing today are rooted in the system of slavery.
+ - If a young fella has an option of having a decent career or joining the army to fight in Iraq, you can bet your life that he would not be in Iraq.
+ - Full participation in government and society has been a basic right of the country symbolizing the full citizenship and equal protection of all.
+ - The Klan had used fear, intimidation and murder to brutally oppress over African-Americans who sought justice and equality and it sought to respond to the young workers of the civil rights movement in Mississippi in the same way.
+ - I, for one, would think both about how far we have come as a country and how much further we need to go to erase racism and discrimination from our society.
+ - The Voting Rights Act of 1965 was indeed a vital instrument of democracy, ensuring the integrity and reliability of a democratic process that we as a Country hold so dear.
+ - For a member to say, ‘I’m a lame duck’ violates political science 101.
+ - If you got problems like unemployment, Social Security, Medicaid, Medicare and there’s a guy that’s always been there for you and for your family, then you say ‘He’s a nice guy. I don’t know where he came from or how long he’s been here, but Charlie Rangel’s the man.’ That’s what I’m relying on.
+ - Today many Caribbean workers can be found in the hospital, construction, service and hotel industries, but there is also a growing professional sector.
+ - There were no weapons of mass destruction and Saddam Hussein was not involved in the September 11th attack.
+ - The United States is historically a nation of immigrants.
+ - We owe it to the flood victims of New Orleans to give them truthful answers as to why this event took place and to assure our citizens that tragedies like this will never happen again.
+ - My father was absolutely no good.
+ - The Iraq war took priority over domestic disaster prevention.
+ - I am running for re-election no matter who runs.
+ - Enough is enough. This is how we get started in Vietnam.
+ - The President is destroying the fabric of America with a combined policy of war, tax cuts for the wealthy, and reductions in spending for domestic needs.
+ - Of course things get stagnant; people get too used to their environment, but that’s why I’m in my district every week, at meetings with my constituents.
+ - Reapportionment is not friendly to a lot of communities and it hasn’t been too friendly to mine.
+ - Without question, conditions in the Haiti are worse since Aristide’s removal, and continue to deteriorate.
+ - The people who couldn’t get out of New Orleans to escape the storm were predominantly Black.
+ - I have a record that I’m so very, very proud of, and no campaign is going to take that away.
+ - As a nation we should commit ourselves not only to the fight against terrorism, but to economic justice, defeat of the AIDS epidemic and vestiges of discriminatory policies of all kinds.
+ - My president will boldly throw 1 million into poverty.
+ - The victor will be the one who gets the most voters out.
+ - I’m just glad that my community has faith and confidence in me.
+ - I don’t know whether the number of any particular Latino group has made or will make any particular difference in the issues that I am concerned with.
+ - Mississippi gets more than their fair share back in federal money, but who the hell wants to live in Mississippi?
+ - We love the ability of the people to influence the actions of decision-makers, of lawmakers and presidents to be removed from or elevated to office by the will of voters, and of the community to connect amongst diverse populations through the ballot box.
+ - I’m in the kitchen and I’m not walking out.
+ - If you are spending too much, you cut back on spending and you raise your revenues. And that’s it.
+ - I was motivated to join in large part because my family needed the money. I would like to say how patriotic we were, but really what motivated me was the excitement my mother would get in receiving a check for my older brother.
+ - Meanwhile, our young men and women whose economic circumstances make military service a viable career choice are dying bravely in a war with no end in sight.
+ - I really think that most people around the world know how well-intended Americans are.
+
+51 quotes

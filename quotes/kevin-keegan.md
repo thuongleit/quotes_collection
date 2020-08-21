@@ -1,0 +1,67 @@
+ - I’m not disappointed – just disappointed.
+ - Discipline is not only very important, it’s crucial.
+ - The Germans only have one player under 22, and he’s 23!
+ - I’d love to be a mole on the wall in the Liverpool dressing room at half-time.
+ - You can’t do better than go away from home and get a draw.
+ - It never rains in Manchester, but it pours.
+ - Manchester City are built on sand and I don’t mean that because their owners are from the Arab countries.
+ - Mark Hughes at his very best: he loves to feel people right behind him...
+ - Every picture paints a thousand words and that one said ‘goodbye’
+ - In some ways, cramp is worse than having a broken leg.
+ - I suppose if I had my time again I would refuse it and stay at Fulham because I thoroughly enjoyed my time there, and secondly I would have taken it on my own terms.
+ - Chile have three options – they could win or they could lose.
+ - They’re the second best team in the world, and there’s no higher praise than that.
+ - Shaun Wright-Phillips has got a big heart. It’s as big as him, which isn’t very big, but it’s bigger.
+ - I came to Nantes two-years-ago and it’s much the same today, except that it’s totally different.
+ - We don’t get any marks for effort like in ice-skating.
+ - I know what is around the corner – I just don’t know where the corner is.
+ - I don’t think there is anybody bigger or smaller than Maradona.
+ - I risked getting my tyres nicked by going to Robbie Fowler’s home in Liverpool!
+ - The great players have a set of golf clubs in their feet.
+ - England can end the millenium as it started – as the greatest football nation in the world.
+ - Goalkeepers aren’t born today until they’re in their late 20s or 30s and sometimes not even then. Or so it would appear. To me anyway. Don’t you think the same?
+ - Sol Campbell there, using his strength. And that is his strength. His strength.
+ - Picking the team isn’t difficult, it’s who to leave out.
+ - Sir John Hall was a multi-millionaire when I came back to Newcastle. With all the players I’ve bought, I’m trying to make him just an ordinary millionaire.
+ - It’s understandable that people are keeping one eye on the pot and another up the chimney.
+ - I’m not a person who goes into a deep depression after a defeat. I try to remain reasonably upbeat. I’m realistic enough to know that results of football matches are often unpredictable and, when all is said and done, things don’t always work out as one would wish!
+ - It’s my opinion that a manager must have the right to manage and that clubs should not impose upon any manager any player that he does not want. I have been left with no choice other than to leave.
+ - I had Micah Richards as a player at 16 and he was a man then. What is he now? A bigger man, probably.
+ - Batistuta is very good at pulling off defenders.
+ - Bobby Robson must be thinking of throwing some fresh legs on.
+ - The ref was vertically 15 yards away.
+ - My father was a miner and he worked down a mine.
+ - Goalkeepers aren’t born today until they’re in their late twenties or thirties.
+ - It goes without saying that when you’re the manager of a Premiership club, you go eight miles down the road and get beaten by a team two divisions below you, it’s disappointing.
+ - Argentina won’t be at Euro 2000 because they’re from South America.
+ - You get bunches of players like you do bananas, though that is a bad comparison.
+ - As a manager, you always have a gun to your head. It’s a question of whether there is a bullet in the barrel.
+ - Maine Road was a great football stadium but as time moved on it stayed where it is...
+ - They compare Steve McManaman to Steve Heighway and he’s nothing like him, but I can see why – it’s because he’s a bit different.
+ - What United have got that Chelsea haven’t is Paul Scholes. I think he is different to anything else in English football.
+ - Nicholas Anelka – 24 years of age but he’s been around a lot longer than that.
+ - I’ve had an interest in racing all my life, or longer really.
+ - Even though two and two might look like four, it could be three or five.
+ - Steve Nicol never gives more than 120 per cent.
+ - English football is in a bad way because the foreign players here are so good, so dominant.
+ - Everything I’ve done I’ve done with enthusiasm and passion.
+ - Luis Figo is totally different to David Beckham, and vice versa.
+ - Over the course of a season, you’ll get goals that are good disallowed and you’ll get disallowed goals that are good.
+ - I’m not the type of person to go into depression after defeat.
+ - Everything I turn up to, I think I’m going to enjoy. I never look back, so I don’t have regrets.
+ - Football’s always easier when you’ve got the ball.
+ - At the Argentina game, how would you have guessed that Darren Anderton would have gone off with cramp?
+ - Not many teams will come to Arsenal and get anything, home or away.
+ - The good news for Nigeria is that they’re two-nil down very early in the game.
+ - I want more from David Beckham. I want him to improve on perfection.
+ - The 33 or 34-year-olds will be 36 or 37 by the time the next World Cup comes around, if they’re not careful.
+ - Danny Tiatto is not going to make a mistake on purpose.
+ - It is a lot harder when you are 4-1 down than when you are 4-1 up.
+ - If people don’t want to believe in Robbie Fowler, it’s because they don’t want to.
+ - Hungary is very similar to Bulgaria. I know theyre different countries.
+ - I’ll never play at Wembley again, unless I play at Wembley again.
+ - England have the best fans in the world and Scotlands fans are second to none.
+ - A tremendous strike which hit the defender full on the arm – and it nearly came off.
+ - Jose Enrique’s strength is that he’s very strong.
+
+65 quotes

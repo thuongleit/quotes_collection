@@ -1,0 +1,59 @@
+ - I’m a Christian, a conservative and a Republican, in that order.
+ - Human cloning is coming.
+ - I believe in servant leadership, and the servant always asks, ‘Where am I needed most?’
+ - While that amendment failed, human cloning continues to advance and the breakthrough in this unethical and morally questionable science is around the corner.
+ - A republic – if you can keep it – is about limitation, and for good reason, because we are mortal and our actions are imperfect.
+ - And my Christianity, first and foremost, governed the way that I tried to deal with people.
+ - I never thought I’d live to see the day that an American administration would denounce the state of Israel for rebuilding Jerusalem.
+ - Anybody who is familiar with the historical data from the IRS knows that raising income tax rates will likely actually reduce federal revenues.
+ - Adult stem cell research has produced some 67 medical miracles.
+ - Well, I think the reality is that as you study – when President Kennedy cut marginal tax rates, when Ronald Reagan cut marginal tax rates, when President Bush imposed those tax cuts, they actually generated economic growth. They expanded the economy. They expand tax revenues.
+ - I think would send a very strong message to Putin and to Russia that NATO countries and the United States are going to respond by growing stronger economically and strategically.
+ - The true legacy of 9-11 cannot be found among political leaders of the day, but in the citizen soldiers and public safety personnel who answered that day with courage and selflessness.
+ - Budgets are moral documents. Federal funding should reflect the priorities and the values of the majority of the American people.
+ - To date, embryonic stem cell research has not produced a single medical treatment, where ethical, adult stem cell research has produced some 67 medical miracles.
+ - I opposed No Child Left Behind, I opposed the Medicare prescription drug bill, I opposed the Wall Street bailout. What the American people are starting to see is that Republican, Republicans on Capitol Hill get it and the Democrats, from the White House to Capitol Hill, just don’t get it.
+ - The Patriot Act is essential to our continued success in the war on terror here at home.
+ - Let’s allow Poland and the Czech Republic to have that missile shield that they were entitled to by joining NATO. I think that’s the right strategic response to Russian aggression.
+ - I mean, the reality is unemployment today – over 14 million Americans are unemployed. That’s exactly what it was a year ago. I mean, this – the American people know we can’t borrow and spend and bail our way back to a growing economy.
+ - We all lived through September 11. I was here at the Capitol that day. I saw the evil of our enemies written in the smoke rising above the Pentagon.
+ - Power is an instrument of fatal consequence. It is confined no more readily than quicksilver, and escapes good intentions as easily as air flows through mesh.
+ - I have strongly supported the right to keep and bear arms. I truly believe that firearms in the hands of law abiding citizens makes our families and our communities more safe, not less safe.
+ - The presidency is the most visible thread that runs through the tapestry of the American government. More often than not, for good or for ill, it sets the tone for the other branches and spurs the expectations of the people.
+ - For more than forty years, the United States Congress has shamelessly used payroll taxes intended for Social Security to fund big government spending.
+ - More than anything else, let me be clear – we need to be willing to fight for freedom, and free markets, and traditional moral values. That’s what the American people want to see this movement and this party return to.
+ - I think I’ve always believed in Ronald Reagan’s adage, “Peace through Strength.” Let’s grow stronger on a transatlantic basis in our economies.
+ - And conservatives know that if you reject these principles of limited government and urge others to reject them you can be my ally, you can be my friend but you cannot call yourself a conservative.
+ - Whether it’s called ‘compassionate conservatism’ or ‘big government Republicanism,’ after years of record increases in federal spending, more government is now the accepted Republican philosophy in Washington.
+ - The President reminded us that the war in Iraq is a central battlefield in the war on terror that began the morning of September the 11th.
+ - I have prayed with the families and wept at the funerals of Hoosiers who did not shrink from 9-11 but grew into heroes whose names will forever be engraved in the heart of a grateful nation.
+ - It’s time to stop the raid on the Social Security trust fund and start allowing Americans to invest their Social Security taxes in personal savings accounts.
+ - The government competes in the private sector the way an alligator competes with a duck.
+ - However long I serve in public life, I’ll stand on that basic liberty of the right to keep and bear arms.
+ - When people take greater ownership of their own health care and are encouraged to do that in a health plan, their health gets better. They pursue more wellness opportunities.
+ - Like every American, I will never forget where I was on the morning of September 11, 2001. As a member of Congress from Indiana, that day my duties took me to Capitol Hill and to sights and sounds I will never forget.
+ - We ought to affirm the fact that hundreds of thousands if not millions of Iranians are risking their liberty and even perhaps their lives to take a stand for the values upon which we have really founded this nation.
+ - Let’s win the peace and democracy the good people of Iraq so richly deserve after decades of tyranny.
+ - Conservative Republicans are back. We’re in the fight for fiscal discipline and limited government, and we are on the side of the American people.
+ - Well the truth is, Republicans didn’t just lose a few elections, we lost our way.
+ - By requiring that any surplus in Social Security taxes be returned to the American people in personal savings accounts, the plan ensures that Social Security taxes will be used for Social Security.
+ - I opposed the Medicare prescription drug entitlement. I opposed the Wall Street bailout. I opposed the stimulus bill.
+ - My votes against the education bill and my votes against the Medicare bill got huge play at home.
+ - Sadly, embryonic stem cell research is completely legal in this country and has been going on at universities and research facilities for years.
+ - I thought it was important to speak about what I believe would be the right response to Russian aggression in Ukraine. I’m pleased to hear there is more sanctions maybe coming tomorrow. But the truth of the matter is I think we need less talk and more deeds.
+ - In the last four years under the Patriot Act, we have seen a great increase in the ability of law enforcement officials to investigate and track terrorists.
+ - It is a rare piece of legislation indeed where there is so much agreement about the goals.
+ - I occasionally got called the Rush Limbaugh of Indiana, but most people knew that my style was different.
+ - The conservative movement today is like that tall ship with its proud captain: strong, accomplished but veering off course into the dangerous and uncharted waters of big government republicanism.
+ - All we’re getting from the Democratic majority in Congress and from this White House is more bailouts, more spending, more planned stimulus, more deficits and debt, and the American people have had it.
+ - We really think health savings accounts were kind of invented in Indiana.
+ - We are here simply to decide whether Congress should take the taxpayer dollars of millions of pro-life Americans and use them to fund the destruction of human embryos for research.
+ - You know, Hoosiers recognize pork when we see it. And they recognize what bailing out every failing business in America means – We’re burying generations under a mountain range of debt.
+ - In Indiana, the Affordable Care Act will raise the average cost of health insurance in the individual market by an unaffordable 72 percent.
+ - It’s time for conservative Americans to right the ship again.
+ - The reality is the cap-and-trade legislation offered by the Democrats amounts to an economic declaration of war on the Midwest by liberals on Capitol Hill.
+ - The anguish in London is a vivid reminder of why we cannot relent in taking the steps necessary to defend our homeland from the present terrorist threat.
+ - It is not for the State Department or even the Secretary of State to say when and how the resources of the American people will be spent.
+ - As a conservative who believes in limited government, I believe that the only check on government power in real time is a free and independent press.
+
+57 quotes

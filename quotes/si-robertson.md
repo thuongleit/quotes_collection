@@ -1,0 +1,45 @@
+ - All of my stories are 95 percent truthful.
+ - Sometimes, our greatest strengths can be found while trusting God through our greatest obstacles.
+ - I’m so dope I’m illegal in 55 states.
+ - When I sign people’s stuff, I put down John 3:16 and 17.
+ - There’s a lot of kids who look up to me, and that’s humbling. Because being human, I don’t want to fail them. But being human, I will. That’s why it’s so important to have your faith put in something that won’t fail you. And that means the Son of God’s kingdom.
+ - Nap time would become a national pastime. A man needs his beauty rest!
+ - You can’t fix stupid. You can’t fix a neutered dog you can’t fix a garage door and hey, you can’t fix stupid.
+ - First it’s pretty tires. Next it’s pretty guns. Then the next thing you know, you’re shaving your beard and wearing capri pants.
+ - I messed up on the Vietnam Special, because I gave it to civilians? Only military men can handle that.
+ - I was in my tighty-whities and I never woke up, and I ran over a mile.
+ - We killed our own hogs, we killed our own beef, we raised our own vegetables, which Mama canned. We did live off the land.
+ - When security comes, every man for himself.
+ - It ain’t gun control we need; it’s sin control.
+ - My wife asked me about that: “What happened to your beard?” I said, “What are you talking about?” She said, “Hey, the right side is shorter than the left.” I said, “You gotta be kidding me.” So I went in there and looked, and I combed it out and I said, “I don’t know, that’s just the way it grows.”
+ - My father, OK, when we first got old enough to hunt, this was his rule: If you shoot it, you come home and eat it. Otherwise you do not shoot it, OK? You don’t just kill something for the sake of killing it, OK? If you kill it, you gotta grill it, so to speak.
+ - You can’t spell squirrel without si, and that’s me.
+ - Hey, I’m like Aretha Franklin, I don’t get no R -S -P -E -C -T around here!
+ - I don’t know any redneck that’s not into fun. That’s their middle name: Red-Fun-Neck.
+ - A beaver is about like the ninjas the suckers only work at night and they’re hard to find.
+ - In the winter, things are dead and dull, but then there is an explosion of life. That’s what He promises people who believe in His Son. That’s what all the Robertsons are banking on.
+ - I don’t know what a person does that does not have a relationship with God. When he goes to the doctor and the doctors says, ‘Hey, you’ve got less than two months to live and there’s nothing we can do for you.’ Who do they turn to when you’re given something that earth shattering?
+ - I’m like a fine-tuned race car. You’ve got to make frequent pit stops when you drink as much tea as I do.
+ - Vets are close to my heart, okay, and it’s not only because I served, okay. It’s because of what they go through, okay. A lot of these people have gave their lives, a lot of them have gave their limbs, okay, you know, that’s a, that’s a, that’s a heap, you know.
+ - Ice will ruin the tea. Waters it down. You can always get ice, or carry your ice in an ice container. You don’t want to put it in your tea, it’ll water it down.
+ - Victoria’s got her secrets. Hey, so do I!
+ - Hey can mean anything. It can mean yes, it can mean maybe, it could mean no, it could mean next week. Hey, the bottom line is you have to understand me to understand hey.
+ - I sting like a butterfly and punch like a flea.
+ - I’ve worn it to church before. Camouflage and the other clothes.
+ - God has taken four guys that look like five miles of muddy road and made them famous in the TV world.
+ - Never insult a mans beard, you either get thunder or lightning.
+ - People don’t realize where unsweet tea came from. During the war they had to ration sugar, so then everybody just had to drink bitter tea, or unsweet.
+ - Christianity is why the ‘Duck Dynasty’ family is still together.
+ - Everybody thinks I’m the weirdo in the family.
+ - In the military it was camouflage for the desert or the winter. And now it’s the duck hunting colors – I think it’s “real tree.” It’s comfortable. It’s stuff that’s made out of comfortable material, OK, and I’m comfortable in it.
+ - The fans always ask me, ‘Is Si that crazy in real life?’ and I said, ‘No, hey, he tones it down for television.’
+ - They got some people that are saying, hey, elect me as president. Hey, Washington couldn’t handle Si Robertson. Trust me.
+ - When I go out or to an event, I’ll wear blue jeans and a shirt. And sometimes when I go to an event I’ll wear camouflage. It depends what kind of mood I’m in.
+ - Fred Astaire’s got nothing on me.
+ - Everything I say is 95% truthful.
+ - If you kill it, you gotta grill it, so to speak.
+ - That’s what got me through 65 years of life – my belief in God and what He’s done for us and what He will do for us.
+ - I go out into America, and I am literally navigating a minefield. Godliness has become abnormal.
+ - Daddy had a farm – cows, pigs, OK, a big garden, OK? We did live off the land, and then we would supplement all that with whatever we could kill or catch. Whether we’d kill squirrels, deer, duck, or caught catfish or brim, that was what went on the table.
+
+43 quotes

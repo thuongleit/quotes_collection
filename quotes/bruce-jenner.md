@@ -1,0 +1,47 @@
+ - You have to train your mind like you train your body.
+ - The ability to grow is directly related to the amount of insecurity you can take in your life.
+ - When you accept yourself you are free from the need for others to accept you.
+ - Start early and begin raising the bar throughout the day.
+ - If you are dyslexic, your eyes work fine, your brain works fine, but there is a little short circuit in the wire that goes between the eye and the brain. Reading is not a fluid process.
+ - If you’re going to dedicate every second to winning the decathlon, what are you doing wasting your time in bed?
+ - I’m so happy after such a long struggle to be living my true self.
+ - Remember, success is not measured by heights attained but by obstacles overcome. We’re going to pass through many obstacles in our lives: good days, bad days. But the successful person will overcome those obstacles and constantly move forward.
+ - I’m saying goodbye to people’s perception of me and who I am, I’m not saying goodbye to me, because this has always been me.
+ - If I was lying on my deathbed and I had kept this secret and never ever did anything about it, I would be lying there saying, ‘You just blew your entire life.’
+ - The most challenging aspect of the decathlon is not the events themselves, but how you train to become the best 100-meter runner you are on the same day that you’re the best 1,500-meter runner.
+ - If you’re asking your kids to exercise, then you better do it, too. Practice what you preach.
+ - The biggest problem with dyslexic kids is not the perceptual problem, it is their perception of themselves. That was my biggest problem.
+ - It hurts every day when you practice hard. Plus, when this decathlon is over, I got the rest of my life to recuperate. Who cares how bad it hurts?
+ - Trans people deserve something vital: They deserve your respect. If you want to call me names, make jokes, doubt my intentions, go ahead, because the reality is, I can take it. But for the thousands of kids out there, coming to terms with being true to who they are, they shouldn’t have to take it.
+ - People are either driven to action or complacency, mission or rust. You’re either participating in the Game of Life or you’re watching it from the grandstands.
+ - Nobody has milked one performance better than me – and I’m damned proud of it.
+ - When the time comes for your brain to process the information, the second word comes up faster than the first one. So when it’s in your head, all of a sudden, it comes out backwards and you think of the word backwards.
+ - If I die, I’d be so mad at myself that I didn’t explore that side of me.
+ - It’s not just about me. It’s about all of us accepting one another. We’re all different. It’s not a bad thing. It’s a good thing.
+ - The truth is everybody does it from time to time. People dial telephone numbers and they get a wrong number only to find that they’ve read the last two digits backwards. Everybody does it, but dyslexics have this tendency to a higher degree.
+ - Bruce lives a lie. She is not a lie. I can’t do it anymore.
+ - What I’m doing is going to do some good and we’re going to change the world.
+ - If you are a kid, reading is really important stuff.
+ - Waving the flag at the 1976 Olympics wasn’t my idea. It was too much apple pie and ice cream. Not that I don’t love my country, but I felt it was my victory up there, I put all the time into it.
+ - I just barely got through school. The problem was a learning disability, at a time when there was no where to get help.
+ - It caused more problems as a young kid, because the simple process of perceiving words on a piece of paper was hard for me. Many people think dyslexic people see things backwards. They don’t see things backwards.
+ - We put so much pressure on kids to excel in school at such a young age.
+ - First of all, I try to be a positive role model.
+ - I firmly believe that deep in their soul everyone has a champion that can overcome obstacles and do great things.
+ - To be honest with you, being Bruce isn’t easy.
+ - For all intents and purposes, I am a woman.
+ - I didn’t only have a perceptual problem, I was also so nervous and so upset. The process just didn’t work. I lost enthusiasm for school and I flunked second grade. The teachers said I was lazy.
+ - Our mission for younger people is to do our best to make exercise cool, hip – the thing to do.
+ - I don’t think I’ve ever been as scared in my life as I was to be extraordinarily honest with my kids.
+ - I’m kind of more on the conservative side.
+ - I’m not stuck in anybody’s body. I’m me.
+ - I’m the type of guy who fails and fails and fails, and then, as if failure has become sick of him, succeeds.
+ - The first one of the girls I ever told was Kimberly.
+ - Fear is part of the process. If you weren’t scared, you’d be in trouble.
+ - I still have nightmares about taking tests.
+ - I spent twelve years training for a career that was over in a week. Joe Namath spent one week training for a career that lasted twelve years.
+ - Have an open mind and an open heart. I’m not this bad person. I’m just doing what I have to do.
+ - I always felt that my greatest asset was not my physical ability, it was my mental ability.
+ - I learned that the only way you are going to get anywhere in life is to work hard at it. Whether you’re a musician, a writer, an athlete or a businessman, there is no getting around it. If you do, you’ll win – if you don’t, you won’t.
+
+45 quotes

@@ -1,0 +1,148 @@
+ - A puppet is free as long as he loves his strings.
+ - Consider it: every person you have ever met, every person will suffer the loss of his friends and family. All are going to lose everything they love in this world. Why would one want to be anything but kind to them in the meantime?
+ - You are not controlling the storm, and you are not lost in it. You are the storm.
+ - As an atheist, I am angry that we live in a society in which the plain truth cannot be spoken without offending 90% of the population.
+ - To not believe in God is to know that it falls to us to make the world a better place.
+ - Either God can do nothing to stop catastrophes like this, or he doesn’t care to, or he doesn’t exist. God is either impotent, evil, or imaginary. Take your pick, and choose wisely.
+ - It is important to realize that our inability to answer a question says nothing about whether the question itself has an answer.
+ - The habit of spending nearly every waking moment lost in thought leaves us at the mercy of whatever our thoughts happen to be. Meditation is a way of breaking this spell.
+ - You don’t get anything worth getting, by pretending to know things you don’t know.
+ - Atheism is just a way of clearing the space for better conversations.
+ - Atheism is not a philosophy; it is not even a view of the world; it is simply a refusal to deny the obvious. Unfortunately, we live in a world in which the obvious is overlooked as a matter of principle.
+ - The core of science is not a mathematical modeling – it is intellectual honesty. It is a willingness to have our certainties about the world constrained by good evidence and good argument.
+ - We are all prisoners of our thoughts.
+ - If someone doesn’t value evidence, what evidence are you going to provide that proves they should value evidence. If someone doesn’t value logic, what logical argument would you invoke to prove they should value logic?
+ - Theology is ignorance with wings.
+ - It is time we admitted that we are not at war with terrorism. We are at war with Islam.
+ - I know of no society in human history that ever suffered because its people became too desirous of evidence in support of their core beliefs.
+ - You are using your own moral intuitions to authenticate the wisdom of the Bible – and then, in the next moment, you assert that we human beings cannot possibly rely upon our own intuitions to rightly guide us in the world.
+ - The truth is that we simply do not know what happens after death.
+ - People who harbor strong convictions without evidence belong at the margins of our societies, not in our halls of power.
+ - The problem is that religion tends to give people bad reasons to be good.
+ - You can do what you decide to do – but you cannot decide what you will decide to do.
+ - We have a choice. We have two options as human beings. We have a choice between conversation and war. That’s it. Conversation and violence. And faith is a conversation stopper.
+ - Morality and values depend on the existence of conscious minds – and specifically on the fact that such minds can experience various forms of well-being and suffering in this universe.
+ - Our world is fast succumbing to the activities of men and women who would stake the future of our species on beliefs that should not survive an elementary school education.
+ - The difference between science and religion is the difference between a willingness to dispassionately consider new evidence and new arguments, and a passionate unwillingness to do so.
+ - This is the true horror of religion. It allows perfectly decent and sane people to believe by the billions, what only lunatics could believe on their own.
+ - Islam, at the moment, is the motherlode of bad ideas.
+ - The principal tenet of Jainism is non-harming. Observant Jains will literally not harm a fly. Fundamentalist Jainism and fundamentalist Islam do not have the same consequences, neither logically nor behaviorally.
+ - If premarital sex is a sin, who is the victim?
+ - Science is the most durable and nondivisive way of thinking about the human circumstance. It transcends cultural, national, and political boundaries. You don’t have American science versus Canadian science versus Japanese science.
+ - We must continually remind ourselves that there is a difference between what is natural and what is actually good for us.
+ - The atheist, by merely being in touch with reality, appears shamefully out of touch with the fantasy life of his neighbors.
+ - The position of the Muslim community in the face of all provocations seems to be: Islam is a religion of peace, and if you say that it isn’t, we will kill you.
+ - Everyone who has eyes to see can see that if the God of Abraham exists, He is an utter psychopath – and the God of Nature too. If you can’t see these things just by looking, you have simply closed your eyes to the realities of our world.
+ - Some beliefs are so dangerous that it may be ethical to kill people for believing them.
+ - Religious moderation is the product of secular knowledge and scriptural ignorance.
+ - Faith enables many of us to endure life’s difficulties with an equanimity that would be scarcely conceivable in a world lit only by reason.
+ - The freedom to think out loud on certain topics, without fear of being hounded into hiding or killed, has already been lost.
+ - Lying is, almost by definition, a refusal to cooperate with others. It condenses a lack of trust and trustworthiness into a single act. It is both a failure of understanding and an unwillingness to be understood. To lie is to recoil from relationship.
+ - Reason is nothing less than the guardian of love.
+ - The moral landscape is the framework I use for thinking about questions of morality and human values in universal terms.
+ - Jesus Christ – who, as it turns out, was born of a virgin, cheated death, and rose bodily into the heavens – can now be eaten in the form of a cracker.
+ - The president of the United States has claimed, on more than one occasion, to be in dialogue with God. If he said that he was talking to God through his hairdryer, this would precipitate a national emergency. I fail to see how the addition of a hairdryer makes the claim more ridiculous or offensive.
+ - All civilized nations must unite in condemnation of a theology that now threatens to destabilize much of the earth.
+ - You almost never get the pleasure of seeing that you won the argument in real time. People just don’t like to publicly change their minds. They change their minds in private.
+ - The second commandment is “Thou shall not construct any graven images.” Is this really the pinnacle of what we can achieve morally? The second most important moral principle for all the generations of humanity?
+ - It is merely an accident of history that it is considered normal in our society to believe that the Creator of the universe can hear your thoughts while it is demonstrative of mental illness to believe that he is communicating with you by having the rain tap in Morse code on your bedroom window.
+ - What would our world be like if we ceased to worry about ‘right’ and ‘wrong,’ or ‘good’ and ‘evil,’ and simply acted so as to maximize well-being, our own and that of others? Would we lose anything important?
+ - Science, in the broadest sense, includes all reasonable claims to knowledge about ourselves and the world.
+ - Just as there is no such thing as Christian physics or Muslim Algebra, we will see tht there is no such thing as Christian or Muslim morality.
+ - As a man believes, so he will act.
+ - Man is manifestly not the measure of all things. This universe is shot through with mystery. The very fact of its being, and of our own, is a mystery absolute, and the only miracle worthy of the name.
+ - Compatibilism amounts to nothing more than an assertion of the following creed: A puppet is free as long as he loves his strings.
+ - The science of morality is about maximizing psychological and social health. It’s really no more inflammatory than that.
+ - This is how you play tennis without the net.
+ - The truth that we must finally confront is that Islam contains specific notions of martyrdom and jihad that fully explain the character of Muslim violence.
+ - Let me assure you that my intent is not to offend or merely be provocative. I’m simply worried.
+ - Atheism is nothing more than the noises reasonable people make when in the presence of religious dogma.
+ - The point is that most of what we currently hold sacred is not sacred for any reason other than that it was thought sacred yesterday.
+ - What are the chances that we will one day discover that DNA has absolutely nothing to do with inheritance? They are effectively zero.
+ - Anyone familiar with my work knows that I am extremely critical of all religious faiths.
+ - It is as though a portal in time has opened, and the Christians of the 14th century are pouring into our world.
+ - If you are perpetually angry, depressed, confused, and unloving, or your attention is elsewhere, it won’t matter how successful you become or who is in your life – you won’t enjoy any of it.
+ - Martin Luther and John Calvin advocated the wholesale murder of heretics, apostates, Jews, and witches.
+ - It’s not so much religion per se, it’s false certainty that worries me, and religion just has more than its fair share of false certainty or dogmatism. I’m really concerned when I see people pretending to know things they clearly cannot know.
+ - The most transformative experiences people have – bliss, devotion, self transcendence – are currently anchored to the worst parts of culture and to ways of thinking that merely amplify superstition, self-deception, and conflict.
+ - My concern with religion is that it allows us by the millions to believe what only lunatics or idiots could believe on their own. That’s not to say that all religious people are lunatics or idiots. It’s anything but that.
+ - The only thing that permits human beings to collaborate with one another in a truly open-ended way is their willingness to have their beliefs modified by new facts. Only openness to evidence and argument will secure a common world for us.
+ - It is utterly astonishing how ordinary a book can be and still be thought the product of omniscience.
+ - Of course, the liar often imagines that he does no harm as long as his lies go undetected.
+ - Theology is now little more than a branch of human ignorance.
+ - It is time we recognized that belief is not a private matter; it has never been merely private. In fact, beliefs are scarcely more private than actions are, for every belief is a fount of action in potential.
+ - We will see that the greatest problem confronting civilization is not merely religious extremism: rather, it is the larger set of cultural and intellectual accommodations we have made to faith itself.
+ - A true spiritual practitioner is someone who has discovered that it is possible to be at ease in the world for no reason, if only for a few moments at a time, and that such ease is synonymous with transcending the apparent boundaries of the self.
+ - It is still fashionable to believe that how you organize yourself religiously in this life may matter for eternity. Unless we can erode the prestige of that kind of thinking, we’re not going to be able to undermine these divisions in our world.
+ - The fact that my continuous and public rejection of Christianity does not worry me in the least should suggest to you just how inadequate I think your reasons for being a Christian are.
+ - Christians have abused, oppressed, enslaved, insulted, tormented, tortured, and killed people in the name of God for centuries, on the basis of a thelogically defensible reading of the Bible.
+ - The problem that religious moderation poses for all of us is that it does not permit anything very critical to be said about religious literalism.
+ - Unreason is now ascendant in the United States – in our schools, in our courts, and in each branch of the federal government.
+ - You cannot take death for apostasy seriously and be working for peace.
+ - Strange bonds of trust and self-deception tend to grow between journalists and their subjects.
+ - False encouragement is a kind of theft: it steals time, energy, and motivation a person could put toward some other purpose.
+ - An average Christian, in an average church, listen to an average Sunday sermon has achieved a level of arrogance simply unimaginable in scientific discourse – and there have been some extraordinary arrogant scientists.
+ - From my point of view, compatibilism is a little like saying: a puppet is free so long as it loves its strings.
+ - I’m the Ted Bundy of string theory.
+ - The fact that one can lose one’s sense of self in an ocean of tranquility does not mean that one’s consciousness is immaterial or that it presided over the birth of the universe.
+ - Unfortunately, failure enjoys a natural advantage. Wrong answers to any problem outnumber right ones by a wide margin, and it seems that it will always be easier to break things than to fix them.
+ - When the stakes are this high- when calling God by the right name can make the difference between eternal happiness and eternal suffering, it is impossible to respect the beliefs of others who don’t believe as you do.
+ - Any conception of human well-being you could plausibly have, the Taliban patently fails to maximize it.
+ - It is also true that the less competent a person is in a given domain, the more he will tend to overestimate his abilities. This often produces an ugly marriage of confidence and ignorance that is very difficult to correct for.
+ - When considering the truth of a proposition, one is either engaged in an honest appraisal of the evidence and logical arguments, or one isn’t. Religion is one area of our lives where people imagine that some other standard of intellectual integrity applies.
+ - 120 million of us place the big bang 2,500 years after the Babylonians and Sumerians learned to brew beer.
+ - You can learn something about a person by the company she keeps.
+ - You know, when you get to the New World and you develop your three branches of government and you have a civil society, you can just jettison all the barbarism I recommended in the first books.
+ - Muslims must learn that if they make belligerent and fanatical claims upon the tolerance of free societies, they will meet the limits of that tolerance.
+ - There is no question but that nominally religious scientists like Francis Collins and Kenneth R. Miller are doing lasting harm to our discourse by the accommodations they have made to religious irrationality.
+ - We should profile Muslims, or anyone who looks like he or she could conceivably be Muslim, and we should be honest about it.
+ - There’s no way to reconcile Islam with Christianity. This difference of opinion admits of compromise as much as a coin toss does.
+ - In the year 2006, a person can have sufficient intellectual and material resources to build a nuclear bomb and still believe that he will get seventy-two virgins in Paradise.
+ - It is time that we admitted that faith is nothing more than the license religious people give one another to keep believing when reasons fail.
+ - It’s simply untrue that religion provides the only framework for a universal morality.
+ - While religious tolerance is surely better than religious war, tolerance is not without its liabilities. Our fear of provoking religious hatred has rendered us incapable of criticizing ideas that are now patently absurd and increasingly maladaptive.
+ - If Jesus does come down out of the clouds like a superhero, Christianity will stand revealed as a science. That will be the science of Christianity.
+ - How can we be “free” as conscious agents if everything that we consciously intend is caused by events in our brain that we do not intend and of which we are entirely unaware? We can’t.
+ - The faith of religion is belief on insufficient evidence.
+ - The problem of vindicating an omnipotent and omniscient God in the face of evil is insurmountable. Those who claim to have surmounted it, by recourse to notions of free will and other incoherencies, have merely heaped bad philosophy onto bad ethics.
+ - I am one of the few people I know of who has argued in print that torture may be an ethical necessity in our war on terror.
+ - We are now in the 21st century: all books, including the Koran, should be fair game for flushing down the toilet without fear of violent reprisal.
+ - Each increment of knowledge imparted in this way is so satisfying-and one’s ignorance at every stage so consequential-that the process of learning BJJ can become remarkably addictive. I have never experienced anything quite like it.
+ - The problem with religion, because it’s been sheltered from criticism, is that it allows people to believe en masse what only idiots or lunatics could believe in isolation.
+ - Fundamentalism is only a problem if the fundamentals are a problem.
+ - To say that I would have done otherwise had I wanted to is simply to say that I would have lived in a different universe had I been in a different universe.
+ - One could surely argue that the Buddhist tradition, taken as a whole, represents the richest source of contemplative wisdom that any civilization has produced.
+ - Faith does not offer a strong link between our beliefs and actual states of the world.
+ - The perpetrators of the Inquisition – the torturers, informers, and those who commanded their actions – were ecclesiastics of one rank or another. They were men of God – popes, bishops, friars, and priests.
+ - Our wills are simply not of our own making. Thoughts and intentions emerge from background causes of which we are unaware and over which we exert no conscious control. We do not have the freedom we think we have.
+ - We know enough at this moment to say that the God of Abraham is not only unworthy of the immensity of creation; he is unworthy even of man.
+ - The moral truth here is obvious: anyone who feels that the interests of a blastocyst just might supersede the interests of a child with a spinal cord injury has had his moral sense blinded by religious metaphysics.
+ - Either our wills are determined by prior causes and we are not responsible for them, or they are the product of chance and we are not responsible for them.
+ - Ignorance in this degree, concentrated in both the head and belly of a lumbering superpower, is now a problem for the entire world.
+ - Unlike statements of fact, which require no further work on our part, lies must be continually protected from collisions with reality.
+ - Words like ‘God’ and ‘Allah’ must go the way of ‘Apollo’ and ‘Baal’ or they will unmake our world.
+ - We will continue to spill blood in what is, at bottom, a war of ideas.
+ - We rely on faith only in the context of claims for which there is no sufficient sensory or logical evidence.
+ - To treat others ethically is to act out of concern for their happiness and suffering.
+ - Values reduce to facts about the well-being of conscious creatures.
+ - What I’m asking you to entertain is that there is nothing we need to believe on insufficient evidence in order to have deeply ethical and spiritual lives.
+ - Where we have reasons for what we believe, we have no need of faith; where we have no reasons, we have lost both our connection to the world and to one another.
+ - We are free to burn the Qur’an or any other book, and to criticize Muhammad or any other human being. Let no one forget it.
+ - Although many things can be said in criticism of religious faith, there is no discounting its power. Millions among us, even now, are quite willing to die for our unjustified beliefs, and millions more, it seems, are willing to kill for them.
+ - It is easy to see what many people, women especially, admire about Sarah Palin. Here is a mother of five who can see the bright side of having a child with Down syndrome and still find the time and energy to govern the state of Alaska.
+ - Religious moderation is the direct result of taking scripture less and less seriously. So why not take it less seriously still? Why not admit the the Bible is merely a collection of imperfect books written by highly fallible human beings.
+ - The wealthiest Americans often live as though they and their children had nothing to gain from investments in education, infrastructure, clean-energy, and scientific research.
+ - Needless to say, this would be an unthinkable crime – as it would kill tens of millions of innocent civilians in a single day – but it may be the only course of action available to us, given what Islamists believe.
+ - In my own case, the most inflammatory statements I have ever made are ones that I have written and remain willing to defend.
+ - Human experience depends on everything that can influence states of the human brain, ranging from changes in our genome to changes in the global economy.
+ - Religious faith is the one species of human ignorance that will not admit of even the possibility of correction.
+ - Could there be any doubt that the Jews would seek to harm the Son of God again, knowing that his body was now readily accessible in the form of defenseless crackers?
+ - Recently, crowds of thousands gathered throughout the Muslim world – burning European embassies, issuing threats, taking hostages, even killing people – in protest over twelve cartoons depicting the Prophet Muhammad that were first published in a Danish newspaper. When was the last atheist riot?
+ - There is no reason whatsoever to think that Buddhism can compete successfully with the relentless evangelizing of Christianity and Islam. Nor should it try to.
+ - Moderates want their faith respected. They don’t want faith itself criticized, and yet faith itself is what is bringing us all this – this lunacy.
+ - The deity who stalked the deserts of the Middle East millennia ago-and who seems to have abandoned them to bloodshed in his name ever since-is no one to consult on questions of ethics.
+ - It is time that scientists and other public intellectuals observed that the contest between faith and reason is zero-sum.
+ - That religion may have served some necessary function for us in the past does not preclude the possibility that it is now the greatest impediment to our building a global civilization.
+ - The only thing that guarantees an open-ended collaboration among human beings, the only thing that guarantees that this project is truly open-ended, is a willingness to have our beliefs and behaviors modified by the power of conversation.
+
+146 quotes

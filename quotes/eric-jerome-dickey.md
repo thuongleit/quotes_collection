@@ -1,0 +1,23 @@
+ - I wish I had met you first. Before we met them.
+ - Its impossible to explain creativity. It’s like asking a bird, ‘How do you fly?’ You just do.
+ - Physical attraction was about aesthetics, not sexual performance, not mental stimulation. Without a mental connection, a remarkable sexual performance yielded no lifelong guarantees. It was only lust. And lust was not love.
+ - She’s a smart woman. I love that. Intelligence is a wonderful and powerful aphrodisiac. To me, it enhances beauty, makes an ordinary woman look like a movie star.
+ - When you start a new job or a particular journey, you really don’t know what to expect. I mean, you hear about your name being on the bestsellers list, but it doesn’t really mean anything. Like, really, what does that translate to?
+ - We’re all living contradictions, trying to survive in a world filled with hypocrites.
+ - You want to put a band-aid on something that needs stitches.
+ - I deserved to find pleasure that surpassed my imagination, better than any I had experienced.
+ - Even the righteous man is just a sinner living in between sins.
+ - We see what we want to see. We idealize each other with our own fantasies.
+ - I’m just trying to write a good story, strictly from imagination. People just think it’s random, they don’t see the rewriting, phrasing of characters, choosing the words, bringing the world to light in which the characters live in. That creates an illusion that this is real.
+ - It’s scary telling someone you care about, someone you love who you really are.
+ - Some people are just so happy to get published to, they sign anything. Next thing you know, they’ve signed over the rights to their book.
+ - If you’re craving oatmeal cookies, apple sauce won’t do...
+ - I want those young whipper-snappers to know that in days past we actually used to kill trees and make those things called books.
+ - As a writer, I challenge myself not to tell the same story – to tackle different characters with different issues.
+ - Resentment makes anything possible.
+ - Once desire was turned on, combustion gave it a life of its own. Once it was turned on it became a raging wildfire, uncontrollable and uncontainable, the type of conflagration that had to be allowed to burn itself out.
+ - Most women got this thing called compassion. It doesn’t make them foolish, just more forgiving. More capable of trying and hoping things worked out.
+ - Every man kills the things that he loves. Some with a look, some with flattery, the coward with a kiss.
+ - But sometimes living in denial was the only way to keep a man from going on a killing spree.
+
+21 quotes

@@ -1,0 +1,57 @@
+ - I fear God and respect God and love God.
+ - When you’re fearless, you take more risks because you’re less conscious of failure or what can go wrong.
+ - At the end of the day, audiences just want to laugh and be entertained. They want to escape from their reality, and that’s why we make movies, to get people to escape from the realities.
+ - Michael Jackson doesn’t really belong on this planet. He’s the most important figure in the history of music. He’ll be remembered far longer than George Bush will. 200 years from now, people will be talking about Michael Jackson, and no one’s going to mention George Bush.
+ - Having love in your heart doesn’t count for much if what comes out of your mouth is ugly and bigoted.
+ - I hate the iPhone. I love the BlackBerry – BlackBerry wins in my opinion. The iPhone is a toy.
+ - I’m not invited to the Vanity Fair dinner where they watch the Oscars – or even the Oscars themselves – so I sit at home and watch it with a bunch of close friends.
+ - I personally can watch an eight-hour documentary on Woody Allen because I’m fascinated by him. But, an audience can’t really sit through more than two and a half hours on any movie. It doesn’t matter if Marlon Brando came back from the dead. It’s just impossible.
+ - They say your childhood influences your tastes and interests, or your approach if you’re an artist. So what you create, whatever you saw, whatever your childhood was like – it influences how you’re going to end up.
+ - I don’t have any regrets.
+ - Miami Beach – that’s where I grew up, in a middle-class Jewish family led by my maternal grandfather. Me, my great-grandmother – a Holocaust survivor, who was my roommate – my grandparents, my mom and her brother all shared a four-bedroom house.
+ - My mom had me when she was 16, and I was an only child, which is probably why I received a lot of love and didn’t miss that my father wasn’t around.
+ - I think taking the biggest star in India and the biggest star in America, and putting them together in a movie that starts in America and ends up in India, or starts in India and goes to America. I think it would be a buddy cop formula.
+ - I’ve watched ‘Being There’ over 50 times, and every time I watch it, I love every frame. I just wish I had directed it myself.
+ - I’d want to marry Cate Blanchett, date Kate Bosworth, and spend the weekend with Elisha Cuthbert.
+ - There’s no difference between a tacky Jew from Miami and a rap star. They both want the Cadillac and the Rolex with the diamonds.
+ - Would it be nice to win a film award one day? Yes. But the critics are going to have to wait till I’m ready. Right now, my gift is making big movies that audiences want to see.
+ - Everyone who knows me knows that I don’t have a prejudiced bone in my body.
+ - I’m definitely not a nerd.
+ - I want to print books by people in the film industry.
+ - I’m trying to be a little bit more mature about my choices and think about what I want to direct next, instead of just jumping into a movie ’cause I want to do it.
+ - When I was 13, Eddie Murphy was to me what Chris Tucker was to 13-year-olds when I made ‘Rush Hour.’ And ‘Rush Hour’ really came out of the fact that I grew up watching ‘Beverly Hills Cop’ and ‘48 Hrs.’
+ - I’m a hypochondriac. Before I go all the way, I send the girl to the doctor and check them for everything. My doctor has a test to tell if you’re going to catch something in the future even.
+ - Rehearsal? What’s that? Rehearsal’s for fags. Rehearsal. Not much.
+ - I never dreamed I would be producing the Oscars. That was a huge deal for me.
+ - People can criticise all day long, I think I’ve proven myself, I think I deliver. And I agree, box office does not mean a movie’s good, but I feel like I’m making good movies and I’m delivering in box office.
+ - In my public life, I’m just a guy who enjoys having fun.
+ - When you’re the director, you kinda do all the work.
+ - Before I did ‘Rush Hour,’ I was a big fan of Jackie Chan movies and I had seen all of them.
+ - Woody Allen is in his ’70s and he’s making movies, so I look forward to getting there.
+ - Do I have a small movie in me? Yeah, probably, when I’m 60. But I’m not Hal Ashby, I’m not Roman Polanski. I’m true to myself. Whether you like it or not.
+ - I did New York, I Love You which is a very personal film for me. My most personal film, but it’s not like a film I’ve ever made. I would never do that film as a feature, for instance, because it’s not very commercial of an idea.
+ - You’ve got to think about how to do things for the right price. You have to shoot in different places to be creative and get tax rebates.
+ - I learn from every movie I do because on every movie I have a different experience.
+ - Movies are the biggest export in the world, the biggest American export. It influences people all over the world.
+ - Producing is making films without having to work sometimes. It’s still making films, but it’s a different job. When you’re the director, you kinda do all the work. I’m actually going tonight to check the prints of my movie even though the premiere’s tomorrow night.
+ - I’ve been a book collector since I was young, since I was a kid.
+ - Producing is making films without having to work sometimes. It’s still making films, but it’s a different job.
+ - I’m a laugher and a lover of comedy.
+ - Less money sometimes allows you to be more creative.
+ - You can’t show a four-hour movie in a theater, really.
+ - I’m constantly being visually stimulated.
+ - I got a Super 8 camera when I was eight years old, and I just wanted to tell stories – I love telling stories.
+ - I learn more from the audience than I can from anybody else. Not from what they write on the scorecards, but how they respond to the movie while they’re watching it – where they laugh and where they react.
+ - I look for stuff that I’m passionate about.
+ - My movies are pretty tight and they’re pretty well-paced. I’m not one to make long movies. I don’t dwell on stuff.
+ - I would love a robot butler.
+ - In this day and age, you need a lot of patience if you are in the movie business.
+ - I love ‘Guitar Hero,’ and I think it’s a part of pop culture.
+ - When I do short films, I try to do something completely out of my comfort zone, out of my element.
+ - Listening is harder than just acting. Listening is the hardest part.
+ - I’m not going to turn down an Oscar, but I’m not strategizing for one.
+ - I love movie directors. I don’t care who it is.
+ - I’m not tied to budgets. I’m tied to the story that I want to tell, and how much it’s going to cost is up to whatever the economic situation of the studio is.
+ - I love that feeling of going into a packed theater.
+
+55 quotes

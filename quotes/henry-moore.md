@@ -1,0 +1,50 @@
+ - The secret of life is to have a task, something you devote your entire life to, something you bring everything to, every minute of the day for the rest of your life. And the most important thing is, it must be something you cannot possibly do.
+ - The important thing is somehow to begin.
+ - I think in terms of the day’s resolutions, not the years’.
+ - To be an artist is to believe in life.
+ - Art is the expression of imagination, not the reproduction of reality.
+ - The creative habit is like a drug.
+ - Painting and sculpture help other people to see what a wonderful world we live in.
+ - I think, what has this day brought me, and what have I given it?
+ - Clever people can copy the handwriting of an artist – it’s like forging a person’s signature.
+ - All good art has contained both abstract and surrealist elements, just as it has contained both classical and romantic elements – order and surprise, intellect and imagination, conscious and unconscious. BOTH SIDES of the artist’s personality must play their part.
+ - Abstraction means getting away from a visual interpretation but nearer to an emotional one.
+ - Art is a continuous activity with no separation between past and present.
+ - I have always liked drawing, when you draw you see things more intensely.
+ - The soul cannot thrive in the absence of art.
+ - To know one thing, you must know the opposite.
+ - I would like my work to be thought of as a celebration of life and nature...
+ - Between beauty of expression and power of expression there is a difference of function. The first aims at pleasing the senses, the second has a spiritual vitality which for me is more moving and goes deeper than the senses.
+ - Discipline in art is a fundamental struggle to understand oneself, as much as to understand what one is drawing.
+ - Art is not to do with the practical side of making a living. It’s to live a fuller human life.
+ - A work can have in it a pent-up energy, an intense life of its own, independent of the subject it may represent.
+ - The first hole made through a piece of stone is a revelation.
+ - The whole of nature is an endless demonstration of shape and form. It always surprises me when artists try to escape from this.
+ - I think about sculpture all the time. I work at it for ten to twelve hours a day. I even dream about it. If as a result I was only to produce something that everyone immediately understood I would’t have been thinking very profoundly.
+ - There is a right physical size for every idea.
+ - There is nothing greater than enthusiasm.
+ - I sometimes draw just for its own enjoyment.
+ - People think that they see, but they don’t.
+ - If I set out to sculpt a standing man and it becomes a lying woman, I know I am making art.
+ - You leave space for the body, imagining the other part even though it isn’t there.
+ - One never knows what each day is going to bring. The important thing is to be open and ready for it.
+ - The observation of nature is part of an artist’s life.
+ - If an artist tries consciously to do something to others, it is to stretch their eyes, their thoughts, to something they would not see or feel if the artist had not done it. To do this, he has to stretch his own first.
+ - The artist works with a concentration of his whole personality, and the conscious part of it resolves conflicts, organized memories, and prevents him from trying to walk in two directions at the same time.
+ - In my opinion, everything, every shape, every bit of natural form, animals, people, pebbles, shells, anything you like are all things that can help you to make a sculpture.
+ - Now I really make the little idea from clay, and I hold it in my hand. I can turn it, look at it from underneath, see it from one view, hold it against the sky, imagine it any size I like, and really be in control almost like God creating something.
+ - A sculptor is a person who is interested in the shape of things, a poet in words, a musician by sounds.
+ - All art is an abstraction to some degree.
+ - The construction of the human figure, its tremendous variety of balance, of size, of rhythm, all those things make the human form much more difficult to get right in a drawing than anything else.
+ - The creative habit is like a drug. The particular obsession changes, but the excitement, the thrill of your creation lasts.
+ - It is a mistake for a sculptor or a painter to speak or write very often about his job. It releases tension needed for his work.
+ - All the arts are based on the senses. What they do for the person who practices them, and also the persons interested in them, is make that particular sense more active and more acute.
+ - A piece of sculpture can have a hole through it and not be weakened if the hole is of a studied size, shape, and direction.
+ - You must always be open to your luck. You cannot force it, but you can recognize it.
+ - One mustn’t let technique be the consciously important thing. It should be at the service of expressing the form.
+ - I don’t know of any good work of art that doesn’t have a mystery.
+ - Art is to make our lives richer and fuller.
+ - Recently I have been working in the country, where, carving in the open air, I find sculpture more natural than in a London studio, but it needs bigger dimensions. A large piece of stone or wood placed almost anywhere at random in a field, orchard, or garden, immediately looks right and inspiring.
+ - Talking about one’s work releases the energy and tension to do and make.
+
+48 quotes

@@ -1,0 +1,80 @@
+ - Be who God meant you to be and you will set the world on fire.
+ - Out of darkness is born the light.
+ - Love transforms one into what one loves.
+ - God is closer to us than water is to a fish.
+ - We’ve had enough of exhortations to be silent! Cry out with a hundred thousand tongues. I see that the world is rotten because of silence.
+ - Preach the Truth as if you had a million voices. It is silence that kills the world.
+ - To a brave man, good and bad luck are like his left and right hand. He uses both.
+ - The human heart is always drawn by love.
+ - Proclaim the truth and do not be silent through fear.
+ - What is it you want to change? Your hair, your face, your body? Why? For God is in love with all those things and he might weep when they are gone.
+ - The devil fears hearts on fire with love of God.
+ - Lose yourself wholly; and the more you lose, the more you will find.
+ - He will provide the way and the means, such as you could never have imagined. Leave it all to Him, let go of yourself, lose yourself on the Cross, and you will find yourself entirely.
+ - It is a human thing to sin, but perseverance in sin is a thing of the devil.
+ - One who knows more, loves more.
+ - Obedient people never trust in themselves.
+ - Make yourself a “capacity” and I will make myself a “torrent.”
+ - Ponder the fact that God has made you a gardener, to root out vice and plant virtue.
+ - Enrich your soul in the great goodness of God: The Father is your table, the Son is your food, and the Holy Spirit waits on you and then makes His dwelling in you.
+ - You must believe in truth that whatever God gives or permits is for your salvation.
+ - Every step of the way to heaven is heaven.
+ - Everything comes from love, all is ordained for the salvation of man, God does nothing without this goal in mind.
+ - Hope comes from love, because people always trust in those they love.
+ - There is no sin nor wrong that gives man such a foretaste of Hell in this life as anger and impatience.
+ - You are rewarded not according to your work or your time but according to the measure of your love.
+ - Consider your possessions loaned to you by God.
+ - Obedience shows whether you are grateful.
+ - Do not be satisfied with little things, because God wants great things!
+ - God is more ready to pardon that we have been to sin.
+ - Let us enter into the house of knowledge of ourselves.
+ - There is nothing we can desire or want that we do not find in God.
+ - It is human to sin, but diabolic to persist in sin.
+ - A soul cannot live without loving. It must have something to love, for it was created to love.
+ - The soul is in God and God in the soul, just as the fish is in the sea and the sea in the fish.
+ - Lord, take me from myself and give me to yourself.
+ - Heaven is along the way.
+ - You are obliged to love your neighbor as yourself, and loving him, you ought to help him spiritually, with prayer, counseling him with words, and assisting him both spiritually and temporally, according to the need in which he may be, at least with your goodwill if you have nothing else.
+ - The path to heaven lies through heaven, and all the way to heaven is heaven.
+ - Do not presume to choose your own way of serving instead of the one I have made for you.
+ - What father ever gave up his son to death for the sake of his slave!
+ - The soul, as soon as she comes to know Me, reaches out to love her neighbors.
+ - O my soul, what are you doing? Are you not aware that God sees you always? You can never hide yourself from His sight. O Father, have pity on us because we are blind and in darkness. Drive out the darkness and give me light. Melt the ice of my self-love and kindle in me the fire of Your charity.
+ - It is only through shadows that one comes to know the light.
+ - O fire of love! Was it not enough for You to have created us to Your image and likeness, and to have recreated us in grace through the Blood of Your Son, without giving Yourself wholly to us as our Food, O God, Divine Essence? What impelled You to do this? Your charity alone.
+ - For there is no obedience without humility, nor humility without charity.
+ - To join two things together there must be nothing between them or there cannot be a perfect fusion. Now realize that this is how God wants our soul to be, without any selfish love of ourselves or of others in between, just as God loves us without anything in between.
+ - Merit consists in the virtue of love alone, flavored with the light of true discretion without which the soul is worth nothing.
+ - Since love for our Creator cannot be sustained unless we love others for God’s sake.
+ - From self-knowledge flows the stream of humility, which never seizes on mere report, nor takes offense at anything, but bears every insult, every loss of consolation, and every sorry, from whatever direction they may come, patiently, with joy.
+ - We’ve been deceived by the thought that we would be more pleasing to God in our own way than in the way God has given us.
+ - Of course you are unworthy. But when do you hope to be worthy? You will be no more worthy at the end than at the beginning. God alone is worthy of Himself, He alone can make us worthy of Him.
+ - Every evil, harm and suffering in this life comes from the love of riches.
+ - Charity is the sweet and holy bond which links the soul with its Creator: it binds God with man and man with God.
+ - Consider God’s charity. Where else have we ever seen someone who has been offended voluntarily paying out his life for those who have offended him?
+ - A full belly does not make for a chaste spirit.
+ - Love does not stay idle.
+ - How many are the pains of those who hunger for revenge! They gnaw away at themselves constantly, and they have killed themselves even before they kill their enemies...
+ - You, God, made yourself lowly and small to make us great!
+ - Christ Jesus left you this sweet key of obedience; for He left His Vicar, whom you are all obliged to obey until death. And whoever is outside his obedience is in a state of damnation.
+ - Whoever loves himself or the world inordinately becomes incompatible with himself.
+ - Perfection does not consist in macerating or killing the body, but in killing our perverse self-will.
+ - O You who are mad about Your creature! true God and true Man, You have left Yourself wholly to us, as food, so that we will not fall through weariness during our pilgrimage in this life, but will be fortified by You, celestial nourishment.
+ - Nails were not enough to hold God-and-man nailed and fastened on the Cross, had not love held Him there.
+ - Strange that so much suffering is caused because of the misunderstandings of God’s true nature. God’s heart is more gentle than the Virgin’s first kiss upon the Christ. And God’s forgiveness to all, to any thought or act, is more certain than our own being.
+ - In your nature, eternal Godhead, I shall come to know my nature. And what is my nature? It is fire, because you are nothing but a fire of love. And you have given humankind a share in this nature, for by the fire of love you created us.
+ - Father, I am hungry; for the love of God give this soul her food, her Lord in the Eucharist.
+ - It’s one of the properties of love to love what is loved by the person we love.
+ - God cannot leave us. It is just that our soul is so vast, we do not always feel His lips upon the veil.
+ - It is impossible to fulfill the law concerning love for Me, God eternal, apart from the law concerning love for your neighbors.
+ - You know Me in you, and from this knowledge you will derive all that is necessary.
+ - There is no perfect virtue-none that bears fruit- unless it is exercised by means of our neighbor.
+ - The Devil often places himself upon the tongues of creatures, causing them to chatter nonsensically.
+ - It is the nature of love to love as much as we feel we are loved and to love whatever the one we love loves.
+ - O unfathomable depth! O Deity eternal! O deep ocean! What more could You give me than to give me Yourself?
+ - We will be humble as we are obedient, and as obedient as we are humble.
+ - The strongest and purest love is not the one that starts from impressions, but the one that comes from admiration.
+ - Oh, let us lose our milk teeth and cut instead the strong teeth of hate and love.
+ - You will do very well to refuse offices; for a man seldom fails to give offense in them. It ought to weary you simply to hear them mentioned.
+
+78 quotes

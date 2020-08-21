@@ -1,0 +1,38 @@
+ - When you fall in love, it is a temporary madness. It erupts like an earthquake, and then it subsides. And when it subsides, you have to make a decision. You have to work out whether your roots are become so entwined together that it is inconceivable that you should ever part.
+ - Man is a bird without wings and a bird is a man without sorrow.
+ - Love is a temporary madness. It erupts like an earthquake and then subsides.
+ - Your lips are like sugar And your cheeks an apple Your breasts are paradise And your body a lily. O, to kiss the sugar To bite the apple To reveal paradise And open the lily.
+ - Love itself is what is left over when being “in love” has burned away, and this is both an art and a fortunate accident.
+ - No man is a man until he has been a soldier.
+ - Money has no religion except itself.
+ - Beauty is precious, you see, and the more beautiful something is, the more precious it is; and the more precious it is the more it hurts us that it will fade away; and the more we are hurt by beauty, the more we love the world.
+ - The real index of civilization is when people are kinder than they need to be.
+ - In reality the world is as full of bad mothers as it is of bad fathers, and it is not the motherless children who become delinquent but the fatherless ones.
+ - Women only nag when they feel unappreciated.
+ - History is the propaganda of the victors.
+ - How strange that the world should change because of words, and words change because of the world.
+ - The garden where you sit Has never a need of flowers, For you are the blossoms And only a fool or the blind Would fail to know it.
+ - God is an oppressor, He is incapable of human sympathy; behind a smiling face He hides an evil heart.
+ - What keeps me going is my children.
+ - Love delayed is lust augmented.
+ - The trouble with fulfilling your ambitions is you think you will be transformed into some sort of archangel and you’re not. You still have to wash your socks.
+ - Love is a kind of dementia with very precise and oft-repeated clinical symptoms.
+ - The human heart likes a little disorder in its geometry.
+ - When you have children it completely shifts your focus; they become the most passionate love of your life.
+ - An adversarial family law system raises the stakes unnecessarily high, exacerbates the antagonism of the couples concerned, and is directly responsible for making it impossible for couples who would otherwise have reconciled to do so.
+ - Compared to a novel, a film is like an economy pizza where there are no olives, no ham, no anchovies, no mushrooms, and all you’ve got is the dough.
+ - It’s stupid to claim that one human being is special, or picked out by God, when in fact there are hundreds of millions of human beings in the world, and God knows how many millions of people long dead who have been lost to history, all of whom were probably special to someone.
+ - Like many men, I am not ashamed to admit that my principal joys are domestic. I love cooking, and I love looking after my children. Indeed, the times that I have with them are the only ones when I feel unconditionally happy.
+ - People taking photographs of their meals are not critics; they are from the United States.
+ - We should care for each other more than we care for ideas, or else we will end up killing each other.
+ - So the news that divorced fathers are to be denied a legal right to a relationship with their children, in the long overdue review of family law published this week, fills me with horror and despair.
+ - Symmetry is for God, not for us.
+ - Family law is institutionally anti-male. I’ve been lobbying MPs, and I’m not going to give up campaigning for equality until I get equality.
+ - Remember that fear causes to happen the very things it fears. That’s why fear should be unknown to us.
+ - Did you know that childhood is the only time in our lives when insanity is not only permitted to us, but expected?
+ - He gets into the habit of thinking so passionately at night that he begins to be persecuted by insomnia.
+ - The De Bernieres were very military. I broke the military tradition but I was terribly proud of my father being a soldier.
+ - It seems that everyone has their own inexplicable fear to have nightmares about. We need nightmares to keep ourselves entertained, and fend off the contentment that we all fear and abhor so much.
+ - We have roots that grow towards each other underground. And when all the pretty blossom has fallen from our branches we find that we are one tree and not two.
+
+36 quotes

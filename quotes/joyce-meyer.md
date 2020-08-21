@@ -1,0 +1,502 @@
+ - You cannot have a positive life and a negative mind.
+ - Patience is not the ability to wait but the ability to keep a good attitude while waiting.
+ - You can suffer the pain of change or suffer remaining the way you are.
+ - Get up every day, love God, and do your best. He will do the rest!
+ - Keep walking the walk, one step at a time.
+ - Having a rough day? Place your hand over your heart. Feel that? It’s called purpose. You’re alive for a reason. Don’t give up.
+ - When you are tempted to give up, your breakthrough is probably just around the corner.
+ - Courage is fear that has said its prayers and decided to go forward anyway.
+ - Excellence is going the extra mile.
+ - A positive attitude gives you power over your circumstances instead of your circumstances having power over you.
+ - I may not be where I want to be, but thank God I am not where I used to be.
+ - If you don’t love yourself, it’s impossible for you to love others. You can’t give away what you don’t have.
+ - Commit to stop making excuses. When we make excuses, we lie to ourselves and continue bad habits.
+ - Life is not fair; God is.
+ - Just because you feel fear doesn’t mean you can’t do it. Do it afraid.
+ - The more you trust Jesus and keep your eyes focused on Him, the more life you’ll have. Trusting God brings life. Believing brings rest. So stop trying to figure everything out, and let God be God in your life.
+ - Character is doing what you don't want to do but know you should do.
+ - In the midst of your battles, never forget that God loves you and He has a plan for you.
+ - If you will stop feeding your feelings, then they will stop controlling you.
+ - Strive for excellence, not perfection, because we don’t live in a perfect world.
+ - If God changes your heart, be willing to change your plans.
+ - Don’t be afraid of change, because it is leading you to a new beginning.
+ - Compliment people. Magnify their strengths, not their weaknesses.
+ - Today is a brand new beginning for me!
+ - Embrace your life, count your blessings, and don’t complain about what you don’t have.
+ - Teachers can change lives with just the right mix of chalk and challenges.
+ - Watch out for the joy-stealers: gossip, criticism, complaining, faultfinding, and a negative, judgmental attitude.
+ - If we do our best, God will do the rest.
+ - Being negative only makes a difficult journey more difficult. You may be given a cactus, but you don’t have to sit on it.
+ - God hears and He sees, and you are not alone in your struggles. Remain firm and stable, for God has your deliverance planned.
+ - You’re not free, unless you come to the place where you have nothing to prove.
+ - God has equipped you to handle difficult things. In fact, He has already planted the seeds of discipline and self-control inside you. You just have to water those seeds with His Word to make them grow!
+ - God’s love for me is perfect because it’s based on Him not on me. So even when I failed He kept loving me.
+ - We don’t need self-confidence we need God-confidence.
+ - We must remember we are stewards of what God has provided for us, not owners.
+ - Spending time with God is the key to our strength and success in all areas of life. Be sure that you never try to work God into your schedule, but always work your schedule around Him.
+ - Harboring unforgiveness is like drinking poison and hoping your enemy will die.
+ - Worry is a down payment on a problem you may never have.
+ - Christianity is a lifestyle. And being a Christian is more than a label.
+ - God is working on your problem. Stay calm. Stay sweet. Stay out of fear and keep on keeping on.
+ - We will all fail in life, but nobody has to be a failure. Failing at a thing doesn’t make you a failure. You are only a failure when you quit trying.
+ - I believe that the greatest gift you can give your family and the world is a healthy you.
+ - I want to focus on God’s grace and give thanks for all the good things in my life. I don’t want to focus on what I don’t have.
+ - Keep your mind going in the right direction, and your life will catch up with it.
+ - Positive minds produce positive lives. Negative minds produce negative lives. Positive thoughts are always full of faith and hope. Negative thoughts are always full of fear and doubt.
+ - We worship God with our entire life – with every decision we make and everything we do.
+ - When you take time with God and listen to His voice, He renews your strength and enables you to handle life.
+ - Just because you go to church doesn’t mean you’re a Christian. I can go sit in the garage all day and it doesn’t make me a car.
+ - Every day is a gift from God. Learn to focus on the Giver and enjoy the gift!
+ - Grace is not the freedom to sin; it is the power to live a holy life.
+ - Faith is having a positive attitude about what you can do and not worrying at all about what you can’t do.
+ - New level, New devil.
+ - If you will make time with God your first priority, everything else in your life will fall into place.
+ - Obedience to God is the pathway to the life you really want to live.
+ - Don’t give up on the people you love. Your patient love and faithfulness may be exactly what they need to make a complete turnaround.
+ - Don’t depend on other people as the source of your happiness or for approval.
+ - Contentment with life is not a feeling, but it is a decision we must make.
+ - Worry and reasoning are two of Satan’s most successful tools. He’ll get us started with one negative thought and then sit back and watch us finish ourselves off.
+ - You have a great God who loves you and cares about you. Be full of hope that something good can happen to you. God is a master at new beginnings. He loves fresh beginnings, He makes all things new.
+ - An affirmation to say everyday: The healing power of God is working in me right now. Eveyr day I get better and better in every way.
+ - God wants to use you to make other people happy! And the happier you make others, the happier you will be because you reap what you sow.
+ - You have the power to make the world a better place by being kind to someone today.
+ - You never really know yourself until you see yourself under pressure.
+ - It is impossible to be both selfish and happy.
+ - You are not free until you have no need to impress anybody.
+ - You can be pitiful, or you can be powerful, but you can’t be both.
+ - Don’t mourn over your bad decisions. Just start overcoming them with good ones.
+ - You will never enjoy life if you do not enjoy yourself.
+ - God forgives us and remembers our sin no more; therefore, stop remembering what God has forgotten.
+ - Don’t waste your life waiting until everything is perfect before you start enjoying it.
+ - You don’t need to know what tomorrow holds; all you need to know is the One who holds tomorrow.
+ - Stop labeling people just because they’re not like you.
+ - Learn how to enjoy where you are on the way to where you’re going.
+ - Victory is not the absence of problems, it is the presence of power.
+ - Don’t let someone who has a bad attitude give it to you.
+ - God doesn’t tell you to do hard things so He can stand back and laugh and watch you struggle. He tells you to do things the things that He knows are gonna work out to your good in the end.
+ - God knows the mess we’re in when He calls us. His light shines greater through “cracked pots” than it does through those who have it all together.
+ - Whatever your situation, God wants to heal you, strengthen you, and lead you to a place where you can enjoy life again.
+ - Breaking old habits and forming new ones always takes time, but it is worth it in the end.
+ - Everyone knows how to smile. Its one of the greatest gifts God has given us. A smile makes people feel good, and people look so beautiful when they smile.
+ - The truth is, if we don’t learn to submit to authority, we won’t ever learn to submit to God.
+ - Grace equals ability. God gives us grace to match our call. When we do our own thing, we do it on our own. When we follow His leading, He always supplies the grace and the energy to do what He’s calling us to do.
+ - My purpose in life is to do right and to glorify God.
+ - Your worst day with God is still better than your best day without Him.
+ - Remember God is not surprised by your inabilities, your imperfections, or your faults. He has always known everything about you that you are just now finding out, and he chose you on purpose for himself.
+ - Better to have a big goal and reach half of it than to have no goal and reach all of it.
+ - Grace is God doing for us what we could never do and what we will never deserve.
+ - Do what’s right, first. Don’t sit around and wait for someone else to do the right thing first.
+ - Getting stress out of your life takes more than prayer alone. You must take action to make changes and stop doing whatever is causing the stress. You can learn to calm down in the way you handle things.
+ - Don’t try to change people. It won’t work, and they will end up resenting you. Only God can change people!
+ - Any day that we don’t give up puts us one day closer to success!
+ - Anything that God wants you to have, there’s no devil in hell and no person on earth that can keep you from having it if you just won’t quit and give up.
+ - You need to be moving if you want God to show you which way to go.
+ - Attitude is your thought life turned inside out.
+ - The Bible is no ordinary book. The words are like medicine to your soul, and it has the power to change your life!
+ - God is the Source of real love, joy, peace, wisdom and everything else we all need to be the people He has created us to be.
+ - God gives us hopes and dreams for certain things to happen in our lives, but He doesn’t always allow us to see the exact timing of His plan.
+ - If you can’t learn to enjoy your life when you have problems, you may never enjoy it because we’ll always have problems.
+ - Love can melt the hardest heart, heal the wounds of the broken heart and quiet the fears of the anxious heart.
+ - Perhaps we could enjoy ordinary, everyday life more if we learned to celebrate the ordinary.
+ - Worry is like rocking in a rocking chair all day, because it keeps you busy but gets you nowhere.
+ - Until we accept and approve of ourselves, no amount of approval from others will keep us permanently secure.
+ - Complaining is dangerous business. It can damage or even destroy your relationship with God, your relationships with other people, and even with your relationship with yourself.
+ - Courage means to keep making forward progress while you still feel afraid!
+ - Complain and remain. Praise and be raised.
+ - I am not promising that God will give you everything you want. There are times when we want things that God knows would not be good for us.
+ - Potential is a priceless treasure, like gold. All of us have gold hidden within, but we have to dig to get it out.
+ - When we face our fears, we can find our freedom.
+ - Pray about everything and worry about nothing. You will enjoy life much more.
+ - Be hopeful at all times and walk in faith, but above all seek love an walk in it. God is love, and when we walk in love we show Him to those we come in contact with.
+ - Don’t build walls and shut people out of your life. To act as if another does not exist is a mean and cruel weapon.
+ - Prayer is simply talking to God like a friend and should be the easiest thing we do each day.
+ - Spending time with God through prayer and His Word is a prerequisite for having a great life and fulfilling your purpose.
+ - As believers in Jesus Christ, our work is to believe while God works on our behalf.
+ - Grace is the power of the Holy Spirit coming to us free of charge to enable you to do with ease what you could never do on your own with any amount of struggle and effort.
+ - As you read or listen to God’s Word and spend time talking to Him in prayer, your spirit will eventually become stronger than your flesh.
+ - You never know how close you are to a breakthrough. It may be right around the corner. Don’t quit!
+ - I make mistakes every day. I’m not perfect in my behavior, but I want to be and that’s what God is after, a heart that wants to be.
+ - Love and Self-control are the bookends of the fruit of the Spirit. Remove one of them and the rest fall over.
+ - God’s mercy is fresh and new every morning.
+ - Wisdom is doing now what you are going to be happy with later on.
+ - Don’t waste your time being upset about something you can’t change. Begin again and do it better this time.
+ - Jesus paid a tremendous price for us so we could have abundant life. He willingly took all of our sin on Himself and gave His life on the cross so we could be forgiven and have new life in Him.
+ - Sometimes when you are the closest to your breakthrough the pressure is the greatest. You have come too far to give up now!
+ - Put your expectations on God, not on people.
+ - The best way to get along with people is not to expect them to be like you.
+ - If you want to get over a problem, stop talking about it. Your mind affects your mouth and your mouth affects your mind. It’s difficult to stop talking about a situation until you stop thinking about it.
+ - Stop comparing yourself to other people; you are an original. We are all different and it’s okay.
+ - Don’t complain. The Israelites wasted forty years murmuring and complaining in the wilderness, when they could have just obeyed God and entered into their Promised Land.
+ - Life is sometimes very complicated, but we can purposely learn to enjoy the simple yet powerful and beautiful things God has created!
+ - Happiness is not a feeling, it is a choice. To be happy, one must choose to be happy, not respond to a circumstance that now controls your happiness.
+ - We are not filled with the Spirit of God to do easy things. He fills us with His Spirit so we can do impossible things.
+ - It is our job to listen to God and let Him tell us what is going on and what we are to do about it – leaving the rest to Him to work out according to His knowledge and will, not ours.
+ - The eagle has no fear of adversity. We need to be like the eagle and have a fearless spirit of a conqueror!
+ - Go beyond what you feel like doing and do what’s right. Every time you do what’s right when you don’t feel like it, you are growing.
+ - We all face storms in life. Some are more difficult than others, but we all go through trials and tribulation. That’s why we have the gift of faith.
+ - When you feel down, go be a blessing to somebody else.
+ - The words you say could hurt or help you. “Change Your Words, Change Your Life”
+ - Turn you situation over to God because He can do more in a moment than you can do in a lifetime.
+ - The Bible says that Christians are the salt of the earth and the light of the world. On the job, in the grocery store, even among unsaved friends and family members, God’s people are there to bring seasoning to an unsavory situation.
+ - Five minutes of communication can save a year’s worth of turmoil and misunderstanding.
+ - There are two kinds of pain: the pain of change and the pain of never changing and remaining the same.
+ - Stop giving someone else the job of making you happy.
+ - Humble people ask for help.
+ - Start believing the Word of God over our feelings. The truth always overrides our feelings. Find the truth in the scriptures.
+ - Worry increases pressure; prayer releases peace.
+ - Are you living up to your potential? God made you with potential – potential for greatness! If you do what you can do, and trust Him to do what you can’t, you will grow into the person He gave you the potential to be!
+ - You’re worth something because God says you’re worth something-not because of what people think or say about you.
+ - Make happiness a habit. Be so happy you drive the devil stark-raving mad.
+ - God wants to speak to you on a one-to-one basis every day. He wants to lead you to the good things He has in store for you.
+ - You will never see the end, if you give up in the middle.
+ - Patience is a fruit of the spirit that grows only under trial. It is useless to pray for patience. Well, actually I encourage you to pray for patience, but I’ll tell you what you’ll get TRIALS!
+ - When you pray be sure that you listen as well as talk. You have things you want to say to God but He also has things He wants to say to you.
+ - Where the mind goes, the man follows.
+ - Instead of concentrating on your problems and getting discouraged, focus on God and meditate on His promises for you. You may have fallen down, but you don’t have to stay down. God is ready, willing and able to pick you up.
+ - Motives reveal why we do what we do, which is actually more important to God than what we’re doing.
+ - Love gives life purpose and meaning.
+ - We can approach God’s throne with boldness because we are confident in the power of what Jesus accomplished for us at the cross.
+ - Prayer doesn’t just change things – it changes us. If we are diligent in seeking God, slowly and surely we become better people.
+ - When we fill our thoughts with right things, the wrong ones have no room to enter.
+ - God cares about everything that concerns you, so feel free to talk to Him about anything.
+ - Addictions – Run to Jesus instead of running to your addiction.
+ - Serving God doesn’t mean we’ll no longer have difficulties. We’re still on the battlefield, but we don’t have to fight alone.
+ - There’s nothing more dangerous to the kingdom of darkness than a believer with the Word of God in their mouth.
+ - Discipline enables you to think first and act second.
+ - Integrity means that you are the same in public as you are in private.
+ - Don’t waste another day of your life grieving over something that you cannot do anything about. Let God give you a new beginning. Your mistakes are not enough to stop God if you don’t let them.
+ - Feeling sorry for ourselves is the most useless waste of energy on the planet. It does absolutely no good. We can’t let our circumstances or what others do or don’t do control us. We can decide to be happy regardless.
+ - What does God require of us? Our part is to believe. Our work is to trust the Lord. His requirement is that we let go and let God.
+ - Life will not always change, so we must be willing to change.
+ - Some people are hurting so bad you have to do more than preach a message to them. You have to BE a message to them.
+ - As long as we complain, we remain stuck in our problems. But a thankful attitude brings deliverance and makes God smile.
+ - There is no danger of developing eyestrain from looking at the bright side of things.
+ - God’s unconditional love is a very difficult concept for people to accept because, in the world, there’s always payment for everything we receive. It’s just how things work here. But God is not like people!
+ - Don’t do what’s right to get something. Do the right thing because it’s the right thing.
+ - Hope is favorable and confident expectation; it’s an expectant attitude that something good is going to happen and things will work out, no matter what situation we’re facing.
+ - If you can’t control what you think, you will not be able to control what you do.
+ - Try a thing you haven’t done three times. Once to get over the fear of doing it. Twice to learn how to do it. And a third time to figure out whether you like it or not.
+ - One of the best gifts we can give ourselves is time alone with God.
+ - If you will tend to God’s business, He will tend to yours.
+ - You can’t have real love without operating in forgiveness. Love keeps giving the other person another chance.
+ - We suffer much agony because we try to get from people what only God can give us, which is a sense of worth and value. Look to God for what you need, not to people.
+ - God is more concerned about your heart than your performance. If your heart is right, your performance will eventually catch up.
+ - God is the Champion at bringing people from a place of destruction to a place of total victory. As they reach that place of victory they become trophies of his grace. and they are set on the display as a fragrant reminder of God’s goodness.
+ - A BMW can’t take you as far as a diploma.
+ - God is bigger than every issue you will ever have to face, and you can do whatever you need to do through Christ who strengthens you.
+ - God plants dreams in people’s hearts. But many people do not continue all the way to the end in order to follow Him to the fulfillment of that dream.
+ - When we enter into a personal relationship with Jesus Christ, something wonderful happens: God begins to change our desires, and we want to be more like Him.
+ - Bad habits are our enemies because they hinder us from being the person we want to be.
+ - If you want to be free, just start doing what God wants you to do, one step at a time, and you’ll eventually walk out of your messes.
+ - There’s no happier person than a truly thankful, content person.
+ - The truth is God created us to have relationship with us. He wants to love us and take care of us, and He wants us to love Him. That’s where our walk with Christ has to start.
+ - Before you judge someone else, stop and think about all that God has forgiven you for.
+ - Our feelings are real and they are powerful, but they are not more powerful than God and truth.
+ - No matter what you’re going through there’s no pit so deep that God can’t reach in and get you out.
+ - Trusting God brings life.
+ - All god wants us to do is do what he asks us to do.
+ - Don’t just learn from God’s Word, but believe it will change your life.
+ - Don’t be too concerned about what others think of you. It’s what you think about yourself that matters!
+ - Seek His face and not His hand.
+ - The day we receive Jesus Christ as our Savior is one of the greatest days of our lives. Not only are our sins washed away, but God puts His Spirit inside of us and gives us new desires.
+ - People can’t see what’s in your heart – they can only see what you do.
+ - Through my obedience to God, He has been able to use my life to help others. It’s been a great journey and I’m looking forward to all the things God has in the future.
+ - One of the best ways to walk in love is to be a blessing to other people or simply to help them.
+ - I wonder how many times people give up just before a breakthrough – when they are on the very brink of success.
+ - The Bible says to ‘fear not,’ but this doesn’t mean you should never feel scared. It means when you do feel fear, keep going forward and do what you are supposed to do. Or as I like to say, do it afraid.
+ - When you need to make a decision, don’t let your emotions vote.
+ - We cannot control what others do to us, but through God we can control the way we respond to them.
+ - Instead of judging people, we need to pray.
+ - Don’t live like there’s no tomorrow because tomorrow always comes.
+ - Sometimes I just sit still and enjoy God’s presence.
+ - Is all anger sin? No, but some of it is. Even God Himself has righteous anger against sin, injustice, rebellion and pettiness.
+ - Where there is a rotten root, there will always be rotten fruit. We must be rooted in Jesus Christ.
+ - If you will do what you CAN do, God will do what you CANNOT do.
+ - You can get over a broken past if you decide to believe that there’s nothing in your past that can keep you from having a great future.
+ - The great quest of life has always been to discover truth.
+ - We almost always see only what’s wrong with other people and not what’s wrong with us.
+ - I’ve discovered that when we take time to renew our minds with God’s Word, we learn how to think like God thinks, say what God says, and act like He wants us to act.
+ - When we pray, we open the door for God to come into our problems and situations and work on them.
+ - God has uniquely gifted you to help someone. Be available as God opens doors for you to do so.
+ - When your soul is resting, your emotions are okay, your mind is okay, and your will is at peace with God, not resisting what He’s doing.
+ - Encourage everyone you meet with a smile or compliment. Make them feel better when you leave their presence and they will always be glad to see you coming.
+ - Faith is a decision we make about where we are going to put our trust.
+ - Your emotions are very unstable and should never be the foundation for direction in your life.
+ - Faithfulness is not doing something right once but doing something right over and over and over and over.
+ - Faith is not the price that buys God’s blessing, it is the hand that receives His blessing. The price was paid for us by Jesus Christ on the cross.
+ - Our past experiences may have made us the way we are, but we don’t have to stay that way.
+ - God not only sees where you are, He sees where you can be.
+ - Take a firm grasp on God’s sovereignty and trust His love even when you don’t understand His purpose.
+ - Don’t let your feelings be a God to you.
+ - There are no drive-thru breakthroughs. Breakthroughs take time.
+ - The only way to break the chains of fear and doubt is to know in your heart that God loves you-no matter what.
+ - Don’t wait around waiting for God to do something that He’s already given you the power to do.
+ - Negative minds full of fear and doubt produce negative lives, which can ultimately destroy your life.
+ - There’s nothing that you can’t overcome with God on your side.
+ - Loving people is the highest level of spiritual warfare that we could ever do.
+ - Our feelings are unreliable and cannot be trusted to convey truth.
+ - God is a great God! I want to encourage you to expect great things from Him.
+ - We need to put no confidence in the arm of flesh, but rather trust ourselves entirely to the arm of the Lord.
+ - To compromise simply means that you go a tiny bit below what you know is right.
+ - God is with you, and He’ll help you make spiritual progress-strengthening and encouraging you to keep on keeping on during rough times. It’s easy to quit, but it takes faith to press on to victory.
+ - If you are facing a new challenge or being asked to do something that you have never done before don’t be afraid to step out. You have more capability than you think you do but you will never see it unless you place a demand on yourself for more.
+ - When I read the Bible, I see that we should have victory in our life and be overcomers, and I can’t even control my temper. I’m impatient. I’m hard to get along with. I’m selfish and self-centered, and I don’t seem to have any control over it.
+ - God doesn’t want us to live timid, shy, weak, wimpy, fearful, boring lives. He wants us to be bold, con dent and courageous, unafraid to try new things. And it never ceases to amaze me what God will do through a person who simply steps out in faith.
+ - We live in an imperfect world, and imperfect people surround us every day.
+ - I want to encourage you to place yourself totally into God’s hands and allow Him to be the Manager of your life.
+ - The one thing everybody’s looking for is unconditional love. We all need somebody to love us just the way we are.
+ - If you can help a child, you don’t have to spend years repairing an adult.
+ - Satan will battle you with doubt and unbelief, but God has victory waiting for you if you’ll keep trusting and believing Him.
+ - You’re so caught up in grumbling, complaining, and seeing what’s wrong that you have no energy or time to appreciate what’s good.
+ - Forgiveness is a CHOICE, not a feeling.
+ - As we regularly spend time reading God’s Word and talking to Him in prayer, we put ourselves in position for Him to do things in our lives we could never do on our own.
+ - If you only do what is easy, you will always remain weak.
+ - I didn’t really understand the importance of little things. I didn’t really understand that it was the little foxes that spoil the vine. And if we’re not faithful in little things, that God will never be able to make us ruler over great things.
+ - Place your desires before God. Pray about them and trust God to give them to you if and when they’re right for you.
+ - God will help you be all you can be, but he will never let you be successful at becoming someone else.
+ - God is able to do anything. All things are possible with Him, but we must not quit praying.
+ - We must remember there are different seasons in our lives and let God do what He wants to do in each of those seasons.
+ - It’s important to have a relationship with God. He’s the only one that can get down inside of you and heal what needs to be healed inside.
+ - Don’t reason in the mind just obey in the spirit.
+ - The power of God is available to you today to help you do whatever you need to do and with a smile on your face!
+ - Unity increases power.
+ - Your word is your honor. If you say you’re going to do something, then you need to do it.
+ - Sometimes new opportunity means new opposition. Not everything God asks us to do will be comfortable.
+ - I can honestly tell you that without God I would not be who I am today. He has done such an amazing work in my life and I want everyone to have the same freedom.
+ - God doesn’t do good things for us because we are good and we deserve them. He does good things for us because He is good and loves us.
+ - As you pray for the Holy Spirit to make you aware of thoughts that come into your mind that don’t line up with God’s Word, you’ll begin to realize when those thoughts come and you can renew your mind with the Word.
+ - If you’re missing joy and peace, you’re not trusting God.
+ - Positive minds full of faith and hope produce positive lives.
+ - Everyday ask God for favor. He can open doors for you that no one else can open.
+ - Our problems are God’s opportunities.
+ - When you walk in love, you give up your right to be right.
+ - Decide that you don’t mind being inconvenienced or interrupted, and God will use you to make a difference.
+ - Our enemy, the devil, wants to control us, and his target is our will. The main way he tries to influence our will is through lying to us.
+ - My hope is that God will have changed people’s lives through me for the better.
+ - I would rather stay positive and get 50 percent good results, than stay negative and get 100 percent bad results!
+ - We’ve all got our own brand of problems. You can be pitiful or powerful. Take your pick.
+ - God’s perfect, unconditional love and faithfulness are what brought me through all of the healing, restoration and breakthroughs I desperately needed so I could become what He created me to be!
+ - Every time you look in the mirror remember that God created you and that everything He creates is beautiful and good!
+ - God’s grace will never be available to you to become another person. He created to be you – the best “you” you can be! Forget about trying to be someone else.
+ - Some people have a hard time getting rid of stuff. If that’s you, pray for God to give you the courage to get rid of things you don’t really need or things He wants you to give away. This will help keep your surroundings organized and clutter-free.
+ - We can improve our relationships with others by leaps and bounds if we become encouragers instead of critics.
+ - The Word of God is active, energizing, sharp and powerful like a two-edged sword.
+ - When we are made right with God, we begin to think right, we begin to talk right, and we begin to act right.
+ - Change is always tough. Even for those who see themselves as agents of change, the process of starting a new thing can cause times of disorientation, uncertainty and insecurity.
+ - You gotta learn how to think right before you can live right.
+ - If you want to live in the fullness of God’s anointing, fill your mouth with His Word.
+ - I’ve learned through my own relationship with God that He’s not expecting me to be perfect; He wants me to do my best to be in His will and take steps of faith as He leads me, through His Word and the promptings He speaks to my heart.
+ - Deadly emotions, buried alive, never die.
+ - Fear will try to keep you from taking that first step. Don’t give in to fear, do it afraid.
+ - Everything you do is a seed that you sow. Seed bad, harvest bad. Seed good, harvest good. And the list goes on and on.
+ - When we make progress quickly, it feeds our emotions. Then, when there’s a period of waiting or we hit a plateau, we find out how committed we really are and whether we’re going to see things through to the finish or quit.
+ - Do you feel disappointed because something you planned didn’t work out If so you can get re-appointed today. In God there are never any dead-ends only detours. Don’t ever give up. Just keep trying until you succeed.
+ - Peter was the only one who walked on water besides Jesus, but he was also the only one who got out of the boat. Until you make a decision to believe, and then act on it, nothing will happen.
+ - When we complain about our current situation, we remain in it; when we praise God in the midst of difficulty, He raises us out of it.
+ - Don’t run to the phone, run to the throne.
+ - When we trust God more than our feelings, it confuses the devil. I mean, when he throws you his best shot and he can’t budge you from believing God, he won’t know what to do with you anymore.
+ - Our words will either bring life and victory or death and destruction. If we want to be happy, we have to be serious about speaking words of life that line up with God’s Word.
+ - The biggest black eye that you can give the devil is to give God your pain and let Him turn it into gain.
+ - You don’t have to be like everybody else or do things like everybody else. God created you to be a unique individual, and He wants you to be free to be who He made you to be.
+ - Compromise means to go just a little bit below what you know is right. It’s just a little bit, but it’s the little foxes that spoil the vine.
+ - Everyone wants to be an overcomer, but nobody wants anything to overcome.
+ - Ask God to fill your mouth with the words you need to say today. No issue is so small that it doesn’t require God’s wisdom.
+ - We are not a failure just because we fail at something. Nobody is a failure unless they quit trying!
+ - It’s so important to realize that every time you get upset, it drains your emotional energy. Losing your cool makes you tired. Getting angry a lot messes with your health.
+ - The more thankful you are, the happier you will be!
+ - I don’t just pray for God to open doors, I also pray for God to close doors.
+ - Make sure you are doing what is important to God-not just what is important to everyone else you know.
+ - We need a backbone, not a wishbone.
+ - Patience is a fruit that only grows under trials.
+ - Forgiveness is not a one-time thing that happened the day you received Christ. It is an everyday thing, for the rest of your life.
+ - I want to dedicate the rest of my life to spreading the love of Christ. Because God has done so much for me and has given me this platform to speak into millions of lives, I feel it is my duty.
+ - The devil will give up when he sees that you are not going to give in.
+ - The best way to have the last word is to apologize.
+ - When you forgive, you’re not doing God a favor, you are giving yourself the gift of freedom.
+ - So what if you’re not perfect? nobody else is either.
+ - I’m only going to stand before God and give an account for my life, not for somebody else’s life. If I have a bad attitude, then I need to say there’s no point in me blaming you for what’s wrong in my life.
+ - Humility is not something that comes naturally. But it is a cardinal virtue that should be pursued more than any other.
+ - It is sad that today many times people give up in the hard times and never get to enjoy the fruit of all their labor.
+ - There is no power in your name or my name, but there is awesome power in the name of Jesus because of everything he represents.
+ - Choosing an attitude of faith will release peace out of your spirit and into your soul.
+ - You know, God will give favor to anyone who will believe Him. Every day you should confess that you have favor everywhere you go. God will begin to open doors that you wouldn’t believe.
+ - Everywhere you look you see people searching for love but they’re looking in the wrong places. God is love, and they will never find what they’re looking for until they find Him.
+ - Mercy is the stuff you give to people that don’t deserve it.
+ - You may think that if someone else doesn’t change, you can never be happy. But if you change, you can be happy no matter what.
+ - Jesus didn’t die for us so we could pretend to be something we’re not.
+ - If you’re in a workplace you don’t like right now, be encouraged because God will use it for your good. Think about it this way: He wants you to be a light in the darkness – and He’s putting His confidence in you!
+ - Treat everyone you meet as if they have infinite value because in God’s eyes they do.
+ - The thing about secrets is they keep you in a prison. Once you share, WHOOSH, there is a release.
+ - The right timing is not always our timing.
+ - You can’t be pitiful AND powerful.
+ - Words are so awesome. Words are containers for power. They carry either creative power or destructive power.
+ - God’s grace justifies sinners, but it never justifies sin!
+ - If you can manage to be thankful in every situation, really believing that God is working everything out for your good, you will end up with the victory every single time.
+ - Faith means that you have peace even when you dont have all the answers.
+ - Don’t be afraid to step out, have dreams, have visions, have hopes and always, always, always believe in miracles.
+ - Sometimes when you’ve had a long series of disappointing things happen, you can get into the very bad habit of just expecting more of what you’ve already had.
+ - Each time we cooperate with God, we take one more giant step forward. Because when God asks us to change, it means that He always has something better to give us – more freedom, greater joy, and greater blessings.
+ - Most of us have a “Do Not Disturb” sign around our necks.
+ - We’re not like robots. God promises to guide us through the Holy Spirit, but He gives us the freedom to make our own decisions.
+ - Teenagers are people too!
+ - The devil is no longer looking for an open door in your life. He will take any crack you give him.
+ - Words are containers for power.
+ - If selfishness is the key to being miserable, then selflessness must be the key to being happy!
+ - Small beginnings are the launching pad to great endings.
+ - Our desire for approval can only truly be met by receiving God’s acceptance and approval of us.
+ - Justified means just as if you’ve never sinned.
+ - Too many Christians live their lives like slaves – to the devil – because they believe his lies more than they trust God.
+ - We open the door for God to work by placing faith in His Word, and we open the door for Satan to work by placing faith in his word. He places thought in our minds that are not true, but can become true for us if they are believed.
+ - If you’re gonna be free, you gotta stop caring what everyone thinks.
+ - Depression begins with disappointment. When disappointment festers in our soul, it leads to discouragement.
+ - When you forgive, you must cancel the debt. Do not spend your life paying and collecting debts.
+ - Catering to bad feelings feeds and empowers them.
+ - Your value should not be determined by how somebody else has treated you.
+ - The best way to GET forgiveness is to GIVE forgiveness.
+ - We may feel fear but we do not have to give in to it. We can do whatever we need and want to do, even if we have to “do it afraid.” Courage is not the absence of fear; it is action in the presence of fear.
+ - I’ve learned that usually, the less I know about other people, the better off I am.
+ - Be truly present in the moment that you are in and don’t let life slip by unnoticed.
+ - We need to do what we can do and let God do what we cannot.
+ - If you are accused of being a Christian, there should be enough evidence to convict you.
+ - Have God make a message out of your mess.
+ - We don’t always help people by doing everything for them. That type of behavior can actually contribute to their problems because it helps then never take responsibility on their own.
+ - Learn to do your own thinking – don’t let other people do it for you!
+ - Be it unto you, even as you believe. In God’s economy, we believe first and then see.
+ - Don’t miss out on today by living in yesterday.
+ - If you can believe the God who is perfect loves you then you can believe that you are worth loving.
+ - I believe it’s easy to serve God if we learn to hear from Him before we struggle to do things for Him that He never asked us to do.
+ - No matter how much we know in any area there are always new things to learn and things we have previously learned that we need to be refreshed in.
+ - Love listens to the other person and searches for clues on ways to serve, bless and lift up that person.
+ - I pray while driving. I pray while working, and while relaxing.
+ - I tell people, and it’s the truth, I could sit in my garage for a week and it won’t make me a car. And you can sit in church till your bottom is flat and that won’t make you a servant of Christ.
+ - We will never enjoy life unless we make a quality decision to do so.
+ - Stay active. Read the Word. Worship with other believers. Continue to give. Keep learning and growing. Your faith will be unleashed!
+ - If you’re strong enough on the inside, you can handle anything that comes at you on the outside.
+ - Everything God tells us to do is for our good. Whether it’s direction you get in His Word or something He’s specifically put in your heart for your situation in life, the absolute best thing you can ever do is obey Him promptly and completely.
+ - There’s a deceptive sin that can keep us from walking in love: pride. It’s deceptive because when you have pride, you’re usually too proud to admit it. I know this because I used to have teachings on pride and they didn’t sell well.
+ - Were all important in god’s eyes.
+ - When you’re in a leadership role, you can never please all of the people all of the time. There’s also a lot of responsibility that goes along with it that others may not realize.
+ - It pleases our heavenly Father when we acknowledge and confess to Him our inability to run our own lives. That is what we are doing when we say, “Father, help me! I need You!”
+ - I don’t really have many hobbies but one of my favorite things to do is spend time with my family. We have fun together, and building those relationships is very important to me.
+ - There is no hope of anyone going to Heaven unless they believe this truth I am presenting. You cannot go to Heaven unless you believe with all your heart that Jesus took your place in Hell.
+ - I want to let you in on a little secret: I don’t always feel like I’m a success. That’s right. There are plenty of times when I feel like I’ve just totally messed up and failed to connect with the people I’m trying to communicate with.
+ - If you want to become fully mature in the Lord, you must learn to love truth. Otherwise, you will always leave open a door of deception for the enemy to take what is meant to be yours.
+ - My heart is to help hurting people. I teach people God’s Word so they can overcome their problems and avoid some of the tough lessons I had to learn.
+ - I got kicked out of my church and lost all of my friends, but I realized that I had to obey God and not man.
+ - God doesn’t always give us a blueprint for our lives, but he always gives us a next step.
+ - If you want to be unhappy, uncomfortable, and insecure, just spend your life trying to do something that is not right for you. It is just like trying to wear shoes that don’t fit.
+ - Some people have a difficult time facing truth and reality. They prefer to live in a make-believe world, pretending that certain things aren’t happening.
+ - Trust and faith bring joy to life and help relationships grow to their maximum potential.
+ - Don’t feel like you have to take every suggestion people give you. Not every good idea is a God idea.
+ - People who don’t know the true character of God – who don’t believe He is merciful, gracious and slow to anger – can never have a close, personal, intimate relationship with Him.
+ - It’s true my father abused me and didn’t love and protect me the way he should have, and at times it seemed no one would ever help me and it would never end. But God always had a plan for my life, and He has redeemed me.
+ - Helplessness is a place of power if you’re helpless before God. Ask God for help in everything you do.
+ - If I have to build a big company by mistreating other people then the Bible says WOE to me. I don’t know what that is, but I don’t want any of it.
+ - Don’t allow yourself to be upset and disturbed. Hold your peace because without it you have no power.
+ - I can’t do anything about my past, but I can do a lot to cooperate with my destiny. I am re-created in Christ Jesus, born anew, that I might do the good works that he laid out for me and live the good life.
+ - Loving others always costs us something and requires effort. And you have to decide to do it on purpose. You can’t wait for a feeling to motivate you.
+ - I’m sure most parents read to their children to explain what certain things mean. So books are a good way to convey a message to anybody. Everybody reads.
+ - We should be reminding ourselves that no matter how many problems may be facing us, the One Who is with us is greater than all those who oppose us.
+ - If someone you know makes a bad decision or uses bad judgment, it doesn’t mean you have to allow that to alter your attitude. Why should you allow anyone else’s bad decisions to send you into a tailspin of misery?
+ - Forgiveness is not a feeling – it’s a decision we make because we want to do what’s right before God. It’s a quality decision that won’t be easy and it may take time to get through the process, depending on the severity of the offense.
+ - I can tell you from experience that God’s help and presence in our lives is vital. He is the Author of all true success and everything that is good-without Him, we can do nothing of true value.
+ - There’s no such thing as trust unless you have unanswered questions in your life. If you know everything, theres nothing to trust God for.
+ - The three most harmful negative emotions are anger, guilt, and fear. And anger is number one. It is also the strongest and most dangerous of all passions.
+ - I used to let other people’s struggles affect my happiness. If they weren’t happy, there was no way I was going to be happy. The opposite was also true: If I wasn’t happy, I didn’t want anyone around me to be happy.
+ - One mistake does not have to rule a person’s entire life.
+ - If God can’t get you to obey Him concerning your money, he won’t get to anything else you got.
+ - God never promised us a trouble-free life.
+ - Enjoyment of life is not based on enjoyable circumstances. It is an attitude of the heart, a decision to enjoy everything because everything – even little, seemingly insignificant things – have a part in the overall “big picture” of life.
+ - Whatever is making you so angry, it’s time for you to give it to God and get over it.
+ - God can’t drive a parked car.
+ - God doesn’t love me any more or less because I had some work done on my face.
+ - If we are hungry enough for God, we will find a way into His presence. We should be so hungry for the presence of God that we absolutely will not go out of our house or tackle any kind of project until we have spent some time with Him.
+ - One of the best aids to freedom is asking God for a lot of help-and asking often.
+ - Instead of blaming everyone and everything else for your problems, pray for God to help you take an inventory of what’s been on your mind so you can think about what you’ve been thinking about.
+ - Many sophisticated, intelligent people lack wisdom and common sense.
+ - You don’t have to give way to careless speech or complaining. You don’t have to let your feelings get in the way of what God wants to do in your life.
+ - When we make a true commitment to walk in love, it usually causes a huge shift in our lifestyle. Many of our ways – our thoughts, our conversation, our habits – have to change.
+ - God can take better care of you than you could ever take of yourself. He could open doors for you that you could never open. He can close doors that will keep you out of trouble. God can give you favor everywhere that you go.
+ - Anger is the fruit of rotten roots.
+ - We all need God’s power in our lives, and prayer is the dynamic that releases His power, sometimes in dramatic ways.
+ - Even if you think the grass is greener on the other side, you’re going to have to mow that side too.
+ - Self Pity is the most miserable party to go to, because, in case you haven’t noticed, you’re the only one who is there...
+ - Home Run portrays the church in its beauty – true life transformation through real and honest relationships with one another and with Jesus.
+ - Education levels the playing field, allowing everyone to compete.
+ - Excellence – Take what you have and do the BEST with it.
+ - When it comes to our everyday habits, it’s important to ask: ‘Am I putting God first?’
+ - My father was a negative person. He actually taught me to be negative, if that makes any sense. I remember him saying: ‘You know there’s no point in expecting anything good to happen because it won’t.’ I grew up in such a negative atmosphere.
+ - God sometimes allows us to feel anger so we’ll recognize when we’re being mistreated. But even when we experience true injustices in our lives, we must not vent our anger in an improper way.
+ - Refuse to be a lazy Christian, and resist a passive, apathetic attitude.
+ - There is no man on Earth or devil in Hell who can keep you from the very best God put in you.
+ - If you refuse to be happy until you have no problems or challenges, you will probably never be happy!
+ - I don’t want to spend my whole life talking about the promised land without ever getting there. I want to live in it.
+ - The source of our stress isn’t really difficulties, circumstances and situations-it’s our attitude and approach toward them.
+ - The only answer to fear is faith in God, knowing He loves you unconditionally and individually.
+ - People often ask me how I keep my priorities straight in life and I tell them that it is done by constantly straightening them out!
+ - Don’t just let the devil use your mind as a garbage dump.
+ - Perfectionists demand perfection from themselves first and foremost.
+ - If you’re fighting moodiness and depression you don’t want to hang around a bunch of other moody and depressed people.
+ - Why wouldn’t we run to God. He’s sooo good. God’s not mad at anybody. He just wants to help us be the best that we can be.
+ - Don’t judge other people. For example, if you want God’s anointing to be on you for parenting, you need to be careful not to criticize other parents.
+ - If you want a testimony, you are going to have a test.
+ - I learned that what happened to me did not have to define who I was. My past could not control my future unless I allowed it to.
+ - When someone gives you offense, it doesn’t mean you have to take it.
+ - The Bible has the answers to our everyday life. Many times people don’t realize how practical it is.
+ - If you want to have sustained joy, you have to not only make sure that you think right, but you also have to make decisions now that are going to guarantee some joy in the future.
+ - Go home, and let all your relatives off the potter’s wheel. You are not the potter!
+ - Don’t ever be discouraged with yourself because you have not arrived at success, but instead be pleased that you are pressing toward it.
+ - The absence of pain means death, so when something no longer bothers you, you’ve died to that thing.
+ - I was tormented with guilt for years and years. In fact, it was so bad that if I didn’t feel wrong, I didn’t feel right!
+ - Each time we act to improve the life of another person, we send forth a ripple of hope in what appears to be a hopeless society.
+ - So many people live with anger and unforgiveness, and many of them are Christians.
+ - Never hesitate to take what you think are small things to God; after all, EVERYTHING is small to God.
+ - I have learned God doesn’t always change those people we want Him to change; instead, He often uses them to change us.
+ - If we know God is for us, then it shouldn’t matter how we feel, or what other people think of us.
+ - Grace keeps us from worrying because worry deals with the past, while grace deals with the present and future.
+ - Food is not the problem. It’s what we do with food that becomes the problem. That’s why we need to learn to keep everything in our lives – especially our eating – in proper balance.
+ - I need to keep pressing on until I am thoroughly thankful.
+ - I am radically, insanely, nutty in love with Jesus!
+ - Giving in to fear alters God’s best plan for your life.
+ - Trusting Him to work out your circumstances instead of using your own might and power will bring deep satisfying joy into your life.
+ - As believers, our joy and peace are not based in doing and achieving, but in believing. Joy and peace come as a result of building our relationship with the Lord.
+ - When Jesus comes to live in our hearts, the seed of holiness is planted.
+ - Faith is powerful spiritual dynamic, and it is something God responds to and blesses.
+ - Average is very acceptable in our society but I don’t think the angels are applauding. If you are determined to be excellent, to not back out of it, you will reap a harvest in your life.
+ - Satan can control you if you let outward things determine your security.
+ - Do you serve God or do you serve your feelings? Believe the Word of God over and above your feelings.
+ - I consider wisdom supernatural because it isn’t taught by men – it’s a gift from God.
+ - Wisdom always waits for the right time to act, while emotion always pushes for action right now!
+ - Genuine thanksgiving is a response to both who God is and what He has done, is doing, and will do.
+ - If we didn’t struggle through some things, we would never develop the strength and stamina we need to survive in this world.
+ - Your joy comes from how you think, the choices that we make in life.
+ - Stop looking to everyone else to make you happy and start finding ways that you can make other people happy.
+ - Nobody can ever say that being negative ever helped them at all – not in any way.
+ - Christianity is about the heart, and the Bible says that we cannot get to heaven on our own good works. No matter how good we are, we cannot be good enough, because God is perfect, and we’re always going to be less than perfect.
+ - It is God’s will to bless us, but not necessarily on our terms. Sometimes what we think would be a wonderful blessing would not bless us at all.
+ - Anytime we step out boldly to make changes, we take a chance that we might fail. But the only way to get better is to try.
+ - If someone has offended you, start sowing forgiveness. You may need some yourself someday.
+ - Resist the need to be ‘right’ all the time or to always have the last word.
+ - I encourage you to be a person who is not afraid of responsibility. In meeting resistance you will build your strength. If you only do what is easy, you will always remain weak.
+ - We should choose our thoughts carefully. We can think about what is wrong with our lives or about what is right with them.
+ - People are born to be free; it’s a gift from God.
+ - Sometimes if you got a problem deep rooted in your life, it takes a little bit of time to overcome it in that area.
+ - Character is expressed through our behavior patterns, or natural responses to things.
+ - Stop focusing on what’s wrong with everyone else and start focusing on how blessed you are.
+ - Many Christians suffer because they’re too busy seeking carnal knowledge instead of the Word of God.
+ - So now, I exhort you with this truth: Don’t spend all your life playing it safe! Safety is very comfortable, but it may be keeping you from God’s perfect plan for your life...
+ - Every day that goes by puts us closer to the day when Christ will return.
+ - Wisdom is exercised in the choices you make.
+ - I encourage you to deliberately look for something to smile or laugh about every day, and be sure to share a smile or a laugh with someone else and brighten their day too!
+ - I used to worry about every little thing, trying to figure out every problem. Well, I realize now how foolish that was. I was no more in control of my life than the man on the moon.
+ - Passion is a decision about how we will approach life, before it becomes a feeling!
+ - Focus on giving smiles away and you will always discover that your own smiles will always be in great supply!
+ - Our faith is released as we say, pray and do the Word.
+ - If God is in fact separated from the government, then we can never possibly have a godly government. There’s no way for America to be good if she’s not godly.
+ - If we are to receive the blessings God wants to bestow upon us, we must be willing to give Him the messes in our lives.
+ - The fruit of your life will be what you believe you are.
+ - Romans 6 – Our flesh is the instrument that Satan works through. When we say no to the flesh, we say no to the devil.
+ - It’s very inexpensive to give a compliment.
+ - Everytime you feed the flesh, you strenghten it. This is good if you are trying to build a good habit, but detrimental if you are trying to stop a bad habit. The way to “kill the flesh” is to starve it; to stop feeding it.
+
+500 quotes

@@ -1,0 +1,42 @@
+ - No brain, no gain. Stay in school. ~~Michael Jordan
+ - School is not the end but only the beginning of an education. ~~Calvin Coolidge
+ - Men are born ignorant, not stupid. They are made stupid by education. ~~Bertrand Russell
+ - The only time my education was interrupted was when I was in school. ~~George Bernard Shaw
+ - The things that have been most valuable to me I did not learn in school. ~~Will Smith
+ - When the student is ready the teacher will appear. ~~Laozi
+ - The only way you can invent tomorrow is if you break out of the enclosure that the school system has provided for you by the exams written by people who are trained in another generation. ~~Neil deGrasse Tyson
+ - Self-reflection is the school of wisdom. ~~Baltasar Gracián
+ - The most important thing we learn at school is the fact that the most important things can’t be learned at school. ~~Haruki Murakami
+ - Travel, in the younger sort, is a part of education; in the elder, a part of experience. ~~Francis Bacon
+ - Schools teach you how to work for money, but don’t teach how to make money work for you. ~~Robert T. Kiyosaki
+ - I was dyslexic, I had no understanding of schoolwork whatsoever. I certainly would have failed IQ tests. And it was one of the reasons I left school when I was 15 years old. And if I – if I’m not interested in something, I don’t grasp it. ~~Richard Branson
+ - Even though I only have a high-school degree, I’m a professional student. ~~Bill Gates
+ - There’s no use going to school unless your final destination is the library. ~~Ray Bradbury
+ - Experiments show that children in unsupervised groups are capable of answering questions many years ahead of the material they’re learning in school. In fact, they seem to enjoy the absence of adult supervision, and they are very confident of finding the right answer. ~~Sugata Mitra
+ - While I was trying to save money to go to the National Institute of Dramatic Art in Australia I ended up getting all of this experience which meant that by the time I had enough money in the bank to go to school I didn’t really need to go to school anymore. ~~Russell Crowe
+ - Don’t Let them fool you or even try to school you. ~~Bob Marley
+ - When people ask me if I went to film school I tell them, ‘no, I went to films.’ ~~Quentin Tarantino
+ - Writing is something you’ll never learn in any university or at any school. It’s something that is within you, and if it isn’t there, nothing can put it there. ~~Harper Lee
+ - If you’re planning on dropping out of high school, prepare yourself for the future by repeating aloud each day: ‘I’m looking forward to low-paying jobs for the rest of my life.’ ~~Sean Covey
+ - Learning is not attained by chance, it must be sought for with ardor and diligence. ~~Abigail Adams
+ - The education of even a small child, therefore, does not aim at preparing him for school, but for life. ~~Maria Montessori
+ - War is the only proper school of the surgeon. ~~Hippocrates
+ - Schools serve the same social functions as prisons and mental institutions- to define, classify, control, and regulate people. ~~Michel Foucault
+ - As a young boy, I was taught in high school that hacking was cool. ~~Kevin Mitnick
+ - I didnt go to film school, i went to films. ~~Quentin Tarantino
+ - We were not taught financial literacy in school. It takes a lot of work and time to change your thinking and to become financially literate. ~~Robert T. Kiyosaki
+ - If we do not pay for children in good schools, then we are going to pay for them in prisons and mental hospitals. ~~Eleanor Roosevelt
+ - Life is not a fairground, but a school. – Franz Bardon. ~~Franz Bardon
+ - I didn’t have any friends at school, didn’t want any. I felt better being alone. I sat on a bench and watched the others play and they looked foolish to me. ~~Charles Bukowski
+ - Business schools reward complex behavior but it’s the simple behavior that makes you successful in life. ~~John C. Maxwell
+ - Experience keeps a dear school, but fools will learn in no other. ~~Benjamin Franklin
+ - The more we try to improve our schools, the heavier the teaching task becomes; and the better our teaching methods the more difficult they are to apply. ~~Jean Piaget
+ - I’m all self-taught. I never had a teacher. Even for English, and French, and German, I hardly went to school. ~~Karl Lagerfeld
+ - I was in enough to get along with people. I was never socially inarticulate. Not a loner. And that saved my life, saved my sanity. That and the writing. But to this day I distrust anybody who thought school was a good time. Anybody. ~~Stephen King
+ - No knowledge, however thorough and extensive, no brilliance and perspicuity, no dialectic sophistication, will preserve us from the commmonness of thought and will. It is truly not the merit of the school if we do not come out selfish. ~~Max Stirner
+ - School, I never truly got the knack of. I could never focus on things I didn’t want to learn. ~~Leonardo DiCaprio
+ - We’ve got to do fewer things in school. The greatest enemy of understanding is coverage... You’ve got to take enough time to get kids deeply involved in something so they can think about it in lots of different ways and apply it. ~~Howard Gardner
+ - Thank goodness I was never sent to school; it would have rubbed off some of the originality. ~~Beatrix Potter
+ - Learn to be difficult when it counts. In school as in life, having a reputation for being assertive will help you receive preferential treatment without having to beg or fight for it every time. ~~Tim Ferriss
+
+40 quotes

@@ -1,0 +1,39 @@
+ - Anarchy is order, government is civil war.
+ - When deeds speak, words are nothing.
+ - Whoever lays his hand on me to govern me is a usurper and tyrant, and I declare him my enemy.
+ - Liberty is not the daughter but the mother of order.
+ - The great are only great because we are on our knees. Let us rise!
+ - I do not wish to be either governor nor governed!
+ - Laws: We know what they are, and what they are worth! They are spider webs for the rich and mighty, steel chains for the poor and weak, fishing nets in the hands of government.
+ - As man seeks justice in equality, so society seeks order in anarchy.
+ - Anarchy, the absence of a master, of a sovereign.
+ - Universal suffrage is counter-revolution.
+ - The possessions of the rich are stolen property.
+ - In any given society the authority of man over man runs in inverse proportion to the intellectual development of that society.
+ - The idea of God is the type and foundation of the principle of authority and absolutism, which it is our task to destroy or at least to subordinate wherever it manifests itself.
+ - We want property, but property restored to its proper limits, that is to say, free distribution of the products of labour, property minus usury!
+ - The newspapers are the cemeteries of ideas.
+ - Communism is inequality, but not as property is. Property is exploitation of the weak by the strong. Communism is exploitation of the strong by the weak.
+ - The proprietor, producing neither by his own labor nor by his implement, and receiving products in exchange for nothing, is either a parasite or a thief.
+ - Communism is a society where each one works according to his abilities and gets according to his needs.
+ - Property is impossible.
+ - Communism is exploitation of the strong by the weak.
+ - Justice is a faculty that may be developed. This development is what constitutes the education of the human race.
+ - As soon as I set foot in the parliamentary Sinai, I ceased to be in touch with the masses.
+ - ANARCHY, or the government of each man by himself or as the English say, self -government.
+ - I build no system. I ask an end to privilege, the abolition of slavery, equality of rights, and the reign of law. Justice, nothing else; that is the alpha and omega of my argument: to others I leave the business of governing the world.
+ - Communism – the first expression of the social nature – is the first term of social development – the thesis; property, the reverse of communism, is the second term – the antithesis. When we have discovered the third term, the synthesis, we shall have the required solution.
+ - All parties without exception, when they seek for power, are varieties of absolutism.
+ - All my economic ideas as developed over twenty-five years can be summed up in the words: agricultural-industrial federation. All my political ideas boil down to a similar formula: political federation or decentralization.
+ - To name a thing is easy: the difficulty is to discern it before its appearance.
+ - The elements of justice are identical with those of algebra.
+ - The law does not generate justice. The law is nothing but a declaration and application of what is just.
+ - The social revolution is seriously compromised if it comes through a political revolution.
+ - Producer and consumer are always one and the same person, merely considered from two different viewpoints.
+ - Democracy is nothing but the Tyranny of Majorities, the most abominable tyranny of all, for it is not based on the authority of a religion, not upon the nobility of a race, not on the merits of talents and of riches. It merely rests upon numbers and hides behind the name of the people.
+ - AXIOM. – Property is the Right of Increase claimed by the Proprietor over any thing which he has stamped as his own.
+ - It is a proof of philosophical mediocrity, today, to look for a philosophy.
+ - All men in their hearts, I say, bear witness to these truths; they need only to be made to understand it.
+ - A common danger tends to concord. Communism is the exploitation of the strong by the weak. In Communism, inequality comes from placing mediocrity on a level with excellence.
+
+37 quotes

@@ -1,0 +1,39 @@
+ - Run with your heart instead of your mind. When you think with your mind, you think of the things you can and can’t do. But when you run with your heart you forget about what you can’t do, and you just go out and do it.
+ - Everyone dies whether one is good in their lifetime or evil in their lifetime. So virtue has no payback. Life is meaningless. When you die, you die!
+ - The only thing that lives beyond the grave is the wake you have created by the way you have lived your life; the goals you have set; the distance away from the normal you dared to tread.
+ - Set a master goal for your running and for your life.
+ - Goals should be impossible! You should tread FEARLESSLY where the brave dare not go.
+ - If you look at your life and compare your life to that of an evil person, you will find that in most regards both lives are the same. You don’t live a longer life or live forever by being virtuous.
+ - I always enjoyed the training more than I did the racing. There was a high level of anxiety in racing that I did not enjoy. Training runs set me FREE. I could imagine the race in my mind and race as if it were the actual race.
+ - I just wanted to quit running. My coach, Tracy Walters, took me aside and told me that I had an opportunity few people ever get. He said that I could inspire the whole team because I was so small and unathletic.
+ - Set a new standard. Change reality. Break ground to something new and different. That achievement will live forever just because you WERE somebody special!
+ - The 3-minute mile goal is to teach runners that the impossible is where goals should be set.
+ - The FEAR of becoming dehydrated causes dehydration. As with so many things in our life, it is because we KNOW it is a problem that it is a problem.
+ - Speedwork is terribly overrated! I remember talking to runners after distance races and someone is sure to say they were able to run fast off base work with no speed work at all. The truth is speedwork doesn’t work. Lots of miles, and then fast miles gets you there much quicker than speed work.
+ - When you hit a certain spot you Sprint no matter how you feel inside or what your co-runner thinks. You just go! In training as a nickel, you sprint because you need to sprint! You just do it! In racing people see it and call it courage, but it is attitude; determination; duty.
+ - I thought perhaps people with injuries could be subject to a starters gun to cure them.
+ - After college I picked my races to be one race every two weeks. That gave me time to recover. I raced just as fast as my legs would carry me. At the end of every race there was nothing left. I walked off the track completely spent!
+ - I would instill in my team an attitude of role modeling. We run to teach other people the value of physical activity. In all things, be humble and appreciative; hurt no one; help anyone you can.
+ - News people were holding me up as a symbol of defiance to the boycott and I couldn’t even run.
+ - My key to victory was that I always went out way too fast. Too fast erases every other race strategy out there. Everyone is hanging on for dear life or they give up.
+ - Ideally I would start by racing my athletes once every two weeks. But, such a program has to be flexible because some runners improve better with weekly races or even bi-weekly races. A coach has to adjust to what is best for the runner.
+ - I never did cross training or lifted weights or put anything between myself and my passion for running.
+ - I got into running because I was too uncoordinated to play baseball, too small for basketball, and too tiny for football. I lived in a broken home and had looked to those sports as a way of staying away from my home.
+ - Wanting to win races is detrimental to courage. You tend to run too conservatively because you want to wait and sprint. If you are there to force the pace, to CREATE greatness rather than to have greatness, Courageous moves are a part of your race.
+ - Kids are afraid that if they race too fast they will get tired. Way too much fear and way too little COURAGE.
+ - Kids as young as twelve CAN run 90 minutes, and they can train hard to run fast, BUT they lose something in training hard at that early age.
+ - This life is made to change all reality. We are here for the benefit, happiness, and welfare of a new reality; a new direction.
+ - I should be doing that too. I should be out there running and racing. I should be taking care of my body.
+ - Based on my experience; I would develop fast speed before anything else. Get your young runners so they can run and teach them speed.
+ - If I performed poorly, I knew the eyes of the sports world would be turned away from me. In that situation I knew the NCAA would crush me for sure. But if I could run well, they would not dare to hit me with everyone looking in my direction. I HAD to have a good race.
+ - The best runners every year are those who race out way too fast.
+ - COURAGE is not a quality you teach. Courage is the by-product of self-discipline. It is an ATTITUDE.
+ - There is NOTHING you can do with your running time that is better for you than running. Any other activity only pulls you down and erases passion.
+ - If you KNOW dehydration is a problem in long runs it becomes a problem in long runs.
+ - I had on my team a girl who at age twelve just missed the world mile record for her age group. But at 20 she just couldn’t run.
+ - Setting goals that have already been achieved is a cop-out.
+ - Humans are a TOUGH animal! We can do anything.
+ - I started running in Junior High School. I was so slow and uncoordinated the coach set me up with a paper route so that instead of going to work out after school I went to the corner of Providence Ave at Crestline St. and picked up a bundle of 15 newspapers.
+ - We didn’t keep track of how many miles we ran back then. We just ran. If you LOVE to run with the kind of passion I have for running, you will understand this. Running was my mode of transportation.
+
+37 quotes

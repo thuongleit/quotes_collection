@@ -1,0 +1,105 @@
+ - Don’t be afraid to assert yourself, have confidence in your abilities and don’t let the bastards get you down.
+ - Being an entrepreneur isn’t really about starting a business. It’s a way of looking at the world: seeing opportunity where others see obstacles, taking risks when others take refuge.
+ - Progress is not inevitable. It’s up to us to create it.
+ - If you want to know how to solve society’s problems, you start out with better public education.
+ - Entrepreneurship is having an idea to do something great and not entirely have a plan on how to do it but the drive and will power to make it work.
+ - The next day after I got fired, literally the next day, I started a new company.
+ - One’s a dog-eat-dog world, and the other one’s just the opposite.
+ - If you don’t encounter setbacks in your career, if you don’t have doubts and disappointments, let me tell you, you’re not dreaming big enough.
+ - You must first be willing to fail – and you must have the courage to go for it anyway.
+ - You’re entitled to your own opinions, but not your own facts.
+ - Working collectively and collaboratively is the difference between mediocrity by yourself or success as a team. You have to share the pain and the responsibility and if you do then you will also share in the rewards.
+ - I’ve always respected those who tried to change the world for the better, rather than just complain about it.
+ - I don’t know why you should be proud of something. It doesn’t make you any better or worse. You are what you are.
+ - To a contrarian like me, constant advice not to do something almost always starts me quickly down the risky, unpopular path.
+ - Buy what’s deliverable, not what could be.
+ - We have an expression in New York City government – “In God we trust, but for everyone else, bring data.” It’s so easy to pick up a sound byte and say, “Oh, yeah, yeah, I believe that,” without really thinking.
+ - In New York City, a lot of people think ‘the great outdoors’ is the area between your front door and a taxi cab.
+ - In the game of life, when the final buzzer sounds, the only stat you carry with you is the number of assists you made.
+ - What you’ve got to do is be honest. Say what you believe. Give it to them straight. Just don’t wuss out.
+ - If you can’t prove it’s not true then a certain number of people will glom on and say it is true.
+ - Many of America’s and New York’s sons and daughters are around the world fighting for the freedoms that the Statue of Liberty stands for.
+ - Trees will improve property values, take pollutants out of the air, help with water runoff.
+ - The mistake that was made in the ’70s is we stopped policing the streets, we stopped cleaning the streets, we stopped cleaning the graffiti off buildings, we stopped supporting our cultural institutions and building parks and schools and all those kinds of things.
+ - America is built around this premise that you can do it, and there are an awful lot of people who are unlikely to have done it who did.
+ - I do think there are certain times we should infringe on your freedom.
+ - After hard work, the biggest determinant is being in the right place at the right time.
+ - I like the theater, dining and chasing women. Let me put it this way: I am a single, straight billionaire in Manhattan. It’s like a wet dream.
+ - Leading from the front: It’s what built America. But these days, the federal government isn’t at the front – it’s cowering in the back corner of the room, ducking responsibility and hoping no one notices.
+ - I never liked anyone who didn’t have a temper. If you don’t have a temper, you don’t have any passion.
+ - Five years have come, and five years have gone, and still we stand together as one. We come back to this place to remember the heartbreaking anniversary – and each person who died here – those known and unknown to us, whose absence is always with us.
+ - You bet I did and I enjoyed it.
+ - If you want to do something for your children and show how much you love them, the single best thing-by far-is to support organizations that will create a better world for them and their children.
+ - Like Israel, New York City’s history has been defined by immigrants who come in search of freedom and the opportunity to build a better life. And like Israel, New York City has remained a target for terrorists who seek to destroy that freedom.
+ - Central planning didn’t work for Stalin or Mao, and it won’t work for an entrepreneur either.
+ - Our climate is changing. And while the increase in extreme weather we have experienced in New York City and around the world may or may not be the result of it, the risk that it may be – given the devastation it is wreaking – should be enough to compel all elected leaders to take immediate action.
+ - No place epitomizes the American experience and the American spirit more than New York City.
+ - If someone tells me they skied all day and never fell down, I tell them to find another mountain.
+ - The fact is, the most painful and tragic lesson of the 20th century was that regimes based on racial superiority and religious hatred can’t be trusted to keep their word to the international community.
+ - I don’t know why people carry guns. Guns kill people.
+ - I have two daughters that are the loves of my life and I want to leave them a better world, a better country, a better state and a better city.
+ - If you are honest with yourself and if you want to like what you see in the mirror, is you have to say what you really believe.
+ - If a hurricane strikes, we can blame the president for not being there; we can blame Congress and FEMA; we can blame the state governments; but in the end, it’s the mayors and the local city governments that have to be prepared for emergencies and be prepared to act.
+ - Nobody wants a job where they don’t have authority to go along with the responsibility. Quite the contrary. The more authority you give people, the better people you can attract, and the harder they’re going to work, and the more loyal they are going to be.
+ - Neither party has God on its side, a monopoly on good ideas, or a lock on any single fiscal, social, or moral philosophy.
+ - I think if you look at people, whether in business or government, who haven’t had any moral compass, who’ve just changed to say whatever they thought the popular thing was, in the end they’re losers.
+ - Last I looked – and I’m not a candidate – but last time I checked reading about the Constitution, the Electoral College has nothing to do with parties, has absolutely nothing to do with parties. It’s most states are winners take all.
+ - I am heading straight in. I have earned my place in heaven. It’s not even close.
+ - My personal view is, why don’t you get out there and try to do something about the things that you don’t like, create the jobs that we are lacking, rather than just yell and scream. But if you want to yell and scream, we’ll make sure you can do it.
+ - When it comes to public school education, we have been unwilling to measure our results. We’ve been unwilling to pay based on performance. We have tenure where, even if you can’t teach, you can’t get fired. We’ve been unwilling to invest in new schools.
+ - I know how to make decisions and stand up to the criticism every day.
+ - Taxes are not good things, but if you want services, somebody’s got to pay for them so they’re a necessary evil.
+ - If Warren Buffett made his money from ordinary income rather than capital gains, his tax rate would be a lot higher than his secretary’s. In fact a very small percentage of people in this country pay a big chunk of the taxes.
+ - In business, when you fail at something, when something doesn’t work, you say okay, we’ve learned that that’s not a path to go down.
+ - Today, you’re a piranha if you are seen having coffee with somebody from the other party in many cases.
+ - I do not think that anybody should get paid for lousy performance. I’ve said that for a long time. If you work hard and you do good, you get paid well.
+ - Government by three men in a room has turned New York State into a national symbol of governmental dysfunction. Enough is enough!
+ - Is your company so small you have to do everything for yourself? Wait until you’re so big that you can’t. That’s worse.
+ - The estate taxes, on balance, are good. They get people to give money to charity, and they prevent these family dynasties which keep other people from having opportunities. It may be good for a family, but for society it’s probably not good. And I’ve always been in favor of having an estate tax.
+ - I think that all money can do is to get your message out. Unfortunately, we live in a world where you have to use mass media to communicate with the people, and it just costs an awful lot of money.
+ - You’re going to see a million people here who have the courage to come and not let terrorists win, and that’s exactly what we should all do.
+ - Government caters to those screaming the loudest, regardless of what they’re screaming about. In business, it’s exactly the opposite! You invest more in the most successful departments, and less in those that aren’t performing.
+ - I was the one of those students who made the top half of the class possible.
+ - I have my own army in the NYPD, which is the seventh biggest army in the world.
+ - We have an energy policy – we’re transferring our wealth to overseas to a bunch of countries that don’t have the same values as us. In some cases, they’re using our money to finance terrorism against us.
+ - We need our president to be successful because our futures are all tied to the success of America, which means America’s government, which means, in essence, the president.
+ - In 1975, Congress passed a law requiring fuel efficiency standards to double over 10 years, with incremental targets that auto manufacturers were required to meet. That was the responsible approach, and it worked. But since 1985, we’ve done nothing – even as technology has moved at light speed.
+ - The politics of partisanship and the resulting inaction and excuses have paralyzed decision-making, primarily at the federal level, and the big issues of the day are not being addressed, leaving our future in jeopardy.
+ - Government should not tell you what to do unless there’s a compelling public purpose.
+ - In science, a path that turns out to be a dead end is very useful because you don’t devote resources to focusing on that; you go elsewheres.
+ - Millions of Americans have contributed to building a stronger Israel; I’ve been proud to be one of them. Last year, I went to Jerusalem to help dedicate in my father’s name a new MDA medical facility which treats people of all faiths and all nationalities absolutely equally.
+ - The public is upset. If they haven’t lost their job, they know somebody that has. If they haven’t lost their house, they know somebody that has. What do you do? When something’s wrong, it’s government’s job to fix it, it must be government that’s responsible for causing it.
+ - You can’t sit there and worry about everything.
+ - I am what I am and, you know, I’m a very lucky guy.
+ - I never lie, so if somebody asked me a question, I told them.
+ - The one thing computers have done is let us make bigger mistakes. We have to be careful not to depend on our machines.
+ - In our democracy, near equality is no equality. Government either treats everyone the same, or it doesn’t. And right now it doesn’t.
+ - The public wants elected officials who have character. The public wants elected officials who are willing to stand up and say things, even if they don’t agree with them.
+ - If it wasn’t for O’Flanagan’s Pub on Manhattan’s Upper East Side, I don’t know where I would have spent my Friday nights as a young man.
+ - Nobody’s going to go home for a year and come back. Nobody could ever enforce that. Nobody in their right mind would ever try to do it.
+ - When you go to Washington now, you can feel a sense of fear in the air – the fear to do anything, or say anything, that might affect the polls, or give the other side an advantage, or offend a special interest.
+ - We need to inject some old-fashioned American values and common-sense, practical thinking into our energy policy.
+ - What has changed is that people have stopped working together.
+ - I’d be derelict in my duty if I didn’t go and continue to use every advantage that I can to promote New York’s cause.
+ - What we shouldn’t do is let people who want to come here make the decision themselves. America should be in control of its own borders.
+ - The truth of the matter is: you can create a great legacy, and inspire others, by giving it to philanthropic organizations.
+ - If you think of all the publicity about the terrible tragedy of Virginia Tech, we have a Virginia Tech in this country every day. It’s just spread across 50 states.
+ - Partisanship may be King in Washington – but the rest of us don’t have to pay tribute.
+ - Mayors are very different, because mayors can’t be on both sides of every issue. Mayors have to take an explicit stance. Just go with your gut and say what you believe, and you’ll be fine. If you’re not fine, at least you’ll like what you see in the mirror.
+ - Ironically, it is exactly because we are a city that embraces freedom, that welcomes everyone and encourages their dreams, that New York remains on the front lines in the war on terror.
+ - Well, we have to provide the world’s best schools. We certainly don’t have them, but that’s our objective.
+ - We’re America, and we have to stop worrying about what happens overseas, and to be optimistic, even though nobody should think we’re not going to have some difficult times.
+ - Any friend of fossil is a friend of mine. We’ve got to do everything we can to get people out of their automobiles and into mass transit.
+ - Organizing around a common interest is a fundamental part of democracy. We should no more try to take away the right of individuals to collectively bargain than we should try to take away the right to a secret ballot.
+ - Nobody’s going to elect me president of the United States.
+ - I’d be happy to provide advice if anybody asked me no matter who the President is.
+ - Even though New York is the safest big city in the nation, there are still far too many illegal guns on our streets. Nearly all of them arrive from out of state – and most are sold by a small group of rogue gun dealers who refuse to obey federal laws.
+ - What the Democrats have to understand is that while we do need to reform our regulation and we do need more restrictions, it is true that it is capitalism and free enterprise and companies that create jobs and wealth for every American.
+ - I was a Democrat before I was a Republican before I became an independent and I never changed my principles.
+ - We’re paying more for the privilege of getting sick and dying early. Once again, it makes no sense. And once again, no one in Washington is talking about how to fix it.
+ - New York has been, and will continue to be, a magnet for people from all over the world. This is where the arts, business, research and technology converge to create the world’s foremost urban economy.
+ - If people are not smoking, they’ll probably be drinking more.
+ - There are lots of threats to you in the world. There’s the threat of a heart attack for genetic reasons. You can’t sit there and worry about everything. Get a life.
+ - If you have one farm worker, typically they create three jobs with higher compensation and higher skills – the people that pack, the people that ship, the people that inspect, the people that sell, that sort of thing.
+
+103 quotes

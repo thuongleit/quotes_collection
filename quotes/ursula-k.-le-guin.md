@@ -1,0 +1,391 @@
+ - The creative adult is the child who has survived.
+ - You cannot buy the revolution. You cannot make the revolution. You can only be the revolution. It is in your spirit, or it is nowhere.
+ - The worst walls are never the ones you find in your way. The worst walls are the ones you put there .
+ - Love doesn’t just sit there, like a stone; it has to be made, like bread, remade all the time, made new.
+ - Only in silence the word, only in dark the light, only in dying life: bright the hawk’s flight on the empty sky.
+ - I think hard times are coming. We will need writers who can remember freedom. Poets, visionaries, the realists of a larger reality.
+ - The place they go towards is a place even less imaginable to us than the city of happiness. I cannot describe it at all. It is possible it does not exist. But they seem to know where they are going, the ones who walk away from Omelas.
+ - No darkness lasts forever. And even there, there are stars.
+ - To hear, one must be silent.
+ - We read books to find out who we are.
+ - When action grows unprofitable, gather information; when information grows unprofitable, sleep.
+ - What is an anarchist? One who, choosing, accepts the responsibility of choice.
+ - Light is the left hand of darkness and darkness the right hand of light. Two are one, life and death, lying together like lovers in kemmer, like hands joined together, like the end and the way.
+ - We decided that it was no good asking what is the meaning of life, because life isn’t an answer, life is the question, and you, yourself, are the answer.
+ - My imagination makes me human and makes me a fool; it gives me all the world and exiles me from it.
+ - The only thing that makes life possible is permanent, intolerable uncertainty: not knowing what comes next.
+ - We live in capitalism. Its power seems inescapable. So did the divine right of kings.
+ - We are volcanoes. When we women offer our experience as our truth, as human truth, all the maps change. There are new mountains.
+ - We live in capitalism, its power seems inescapable – but then, so did the divine right of kings. Any human power can be resisted and changed by human beings. Resistance and change often begin in art. Very often in our art, the art of words.
+ - People who deny the existence of dragons are often eaten by dragons. From within.
+ - There are no right answers to wrong questions.
+ - One must work with time and not against it.
+ - Fiction – and poetry and drama – cleanse the doors of perception.
+ - The Earth is beautiful, and bright, and kindly, but that is not all. The Earth is also terrible, and dark, and cruel. The rabbit shrieks dying in the green meadows. The mountains clench their great hands full of hidden fire. There are sharks in the sea, and there is cruelty in men’s eyes.
+ - Besides, when you say you’re a feminist it annoys the bigots and the old farts and the prissy ladies so much, it’s kind of irresistible.
+ - Maybe when you meet the people you are supposed to meet you know it, without knowing it.
+ - We like to think we live in daylight, but half the world is always dark, and fantasy, like poetry, speaks the language of the night.
+ - To be whole is to be part; true voyage is return.
+ - My world, my Earth is a ruin. A planet spoiled by the human species. We multiplied and fought and gobbled until there was nothing left, and then we died. We controlled neither appetite nor violence; we did not adapt. We destroyed ourselves. But we destroyed the world first.
+ - The trouble is that we have a bad habit, encouraged by pendants and sophisticates, of considering happiness as something rather stupid. Only pain is intellectual, only evil interesting. This is the treason of the artist: a refusal to admit the banality of evil and the terrible boredom of pain.
+ - All knowledge is local, all truth is partial. No truth can make another truth untrue. All knowledge is part of the whole knowledge. Once you have seen the larger pattern, you cannot go back to seeing the part as the whole.
+ - There have been great societies that did not use the wheel, but there have been no societies that did not tell stories.
+ - Writers have to get used to launching something beautiful and watching it crash and burn. They also have to learn when to let go control, when the work takes off on its own and flies, farther than they ever planned or imagined, to places they didn’t know they knew.
+ - I am living in a nightmare, from which from time to time I wake in sleep.
+ - No, I don’t mean love, when I say patriotism. I mean fear. The fear of the other. And its expressions are political, not poetical: hate, rivalry, aggression.
+ - Those who build walls are their own prisoners. I’m going to go fulfill my proper function in the social organism. I’m going to unbuild walls.
+ - Truth is a matter of the imagination.
+ - When you light a candle, you also cast a shadow.
+ - What good is power when you’re too wise to use it?
+ - Dragons are more dangerous, and a good deal commoner, than bears. Fantasy is nearer to poetry, to mysticism, and to insanity than naturalistic fiction is. It is a real wilderness, and those who go there should not feel too safe.
+ - Those who build walls are their own prisoners.
+ - I do not care what comes after; I have seen the dragons on the wind of morning.
+ - We’re each of us alone, to be sure. What can you do but hold your hand out in the dark?
+ - But it is one thing to read about dragons and another to meet them.
+ - There’s a point, around the age of twenty, when you have to choose whether to be like everybody else the rest of your life, or to make a virtue of your peculiarities.
+ - Well, the secret to writing is writing. It’s only a secret to people who don’t want to hear it. Writing is how you be a writer.
+ - Not even need and love can defeat fate...
+ - The story is not in the plot but in the telling.
+ - I had forgotten how much light there is in the world, till you gave it back to me.
+ - Distrust everything I say. I am telling the truth.
+ - It’s a rare gift, to know where you need to be, before you’ve been to all the places you don’t need to be.
+ - The end justifies the means. But what if there never is an end? All we have is means.
+ - Greed puts out the sun.
+ - I write with all my heart.
+ - If you evade suffering you also evade the chance of joy. Pleasure you may get, or pleasures, but you will not be fulfilled. You will not know what it is to come home.
+ - The word must be heard in silence; there must be darkness to see the stars.
+ - Skill in writing frees you to write what you want to write. It may also show you what you want to write. Craft enables art.
+ - What sane person could live in this world and not be crazy?
+ - All of us have to learn how to invent our lives, make them up, imagine them. We need to be taught these skills; we need guides to show us how. If we don’t, our lives get made up for us by other people .
+ - Sometimes you must go against the wheel’s turn.
+ - The unread story is not a story; it is little black marks on wood pulp. The reader, reading it, makes it live: a live thing, a story.
+ - Life goes on, even if two-headed and glowing faintly in the dark.
+ - Belief is the wound that knowledge heals.
+ - Nobody who says, ‘I told you so’ has ever been, or will ever be, a hero.
+ - Nothing is yours. It is to use. It is to share. If you will not share it, you cannot use it.
+ - A forest ecology is a delicate one. If the forest perishes, its fauna may go with it. The Athshean word for world is also the word for forest.
+ - Fantasy is probably the oldest literary device for talking about reality.
+ - See, the thing is, as a writer you are free. You are about the freest person that ever was. Your freedom is what you have bought with your solitude, your loneliness.
+ - The only questions that really matter are the ones you ask yourself.
+ - I came into science fiction at a very good time, when the doors were getting thrown open to all kinds of more experimental writing, more literary writing, riskier writing. It wasn’t all imitation Heinlein or Asimov. And of course, women were creeping in, infiltrating. Infesting the premises.
+ - You sit down and you do it, and you do it, and you do it, until you have learned to do it.
+ - Great self-destruction follows upon unfounded fear.
+ - If you’re a fiction writer, though, I can tell you how to let people talk through you. Listen. Just be quiet, and listen. Let the character talk. Don’t censor, don’t control. Listen, and write.
+ - It is only when science asks why, instead of simply describing how, that it becomes more than technology. When it asks why, it discovers Relativity. When it only shows how, it invents the atom bomb, and then puts its hands over its eye and says, My God what have I done?
+ - There’s a great fear of the imagination. It’s a dangerous thing. It’s out of control, it’s subversive.
+ - The children of the revolution are always ungrateful, and the revolution must be grateful that it is so.
+ - To make a thief, make an owner; to create crime, create laws.
+ - The hunger of a dragon is slow to wake, but hard to sate.
+ - One voice speaking truth is a greater force than fleets and armies...
+ - Men who fight wars in winter don’t live till spring.
+ - Resistance and change often begin in art, and very often in our art – the art of words.
+ - Without war there are no heroes. What harm would that be? Oh, Lavinia, what a woman’s question that is.
+ - The Earth is beautiful, and bright, and kindly, but that is not all. The Earth is also terrible, and dark, and cruel.
+ - Fake realism is the escapist literature of our time. And probably the ultimate escapist reading is that masterpiece of total unreality, the daily stock market report.
+ - I certainly wasn’t happy. Happiness has to do with reason, and only reason earns it. What I was given was the thing you can’t earn, and can’t keep, and often don’t even recognize at the time; I mean joy.
+ - The same old hypocrisy. Life is a fight, and the strongest wins. All civilization does is hide the blood and cover up the hate with pretty words!
+ - I always wondered why the makers leave housekeeping and cooking out of their tales. Isn’t it what all the great wars and battles are fought for – so that at day’s end a family may eat together in a peaceful house?
+ - They can send death at once, but life is slower...
+ - There are dance artists, painting artists and writing artists. Authors are writing artists. You can practice art in whatever medium you choose, and words are mine.
+ - Writing makes no noise, except groans, and it can be done everywhere, and it is done alone.
+ - This is the treason of the artist: a refusal to admit the banality of evil and the terrible boredom of pain.
+ - Revolution is our obligation: our hope of evolution.
+ - To see a candle’s light one must take it into a dark place.
+ - To oppose something is to maintain it.
+ - Success is somebody else’s failure.
+ - Success is somebody else’s failure. Success is the American Dream we can keep dreaming because most people in most places, including thirty million of ourselves, live wide awake in the terrible reality of poverty.
+ - Literacy is so you can read the operating instructions.
+ - I use a whole lot of half-assed semicolons; there was one of them just now; that was a semicolon after ‘semicolons,’ and another one after ’now.
+ - Great artists make the roads; good teachers and good companions can point them out. But there ain’t no free rides, baby.
+ - No society can change the nature of existence. We can’t prevent suffering. This pain and that pain, yes, but not Pain. A society can only relieve social suffering, unnecessary suffering. The rest remains. The root, the reality.
+ - Paradise is for those who make paradise.
+ - And day to day, life’s a hard job, you get tired, you lose the pattern. You need distance, interval. The way to see how beautiful the earth is, is to see it as the moon. The way to see how beautiful life is, is from the vantage point of death.
+ - Is it the gods who set this fire in our hearts, or do we each make our fierce desire into a god?
+ - The reason literacy is important is that literature is the operating instructions. The best manual we have. The most useful guide to the country we’re visiting, life.
+ - Belief in heaven and hell is a big deal in Judaism, Christianity, and Islam, and some forms of doctrinaire Buddhism. For the rest of us it’s simply meaningless. We don’t live in order to die, we live in order to live.
+ - We will not know our own injustice if we cannot imagine justice. We will not be free if we do not imagine freedom. We cannot demand that anyone try to attain justice and freedom who has not had a chance to imagine them as attainable.
+ - Having one king, one god, one belief, they can act single-mindedly.
+ - The greatest religious problem today is how to be both a mystic and a militant; in other words how to combine the search for an expansion of inner awareness with effective social action, and how to feel one’s true identity in both.
+ - Absolute freedom is absolute responsibility.
+ - Where does your soul go, when you die in Hell?
+ - Who knows a man’s name, holds that man’s life in his keeping. Thus to Ged, who had lost faith in himself, Vetch had given him that gift that only a friend can give, the proof of unshaken, unshakeable trust.
+ - When people say, Did you always want to be a writer?, I have to say no! I always WAS a writer.
+ - In so far as one denies what is, one is possessed by what is not, the compulsions, the fantasies, the terrors that flock to fill the void.
+ - This is. And thou art. There is no safety. There is no end. The word must be heard in silence. There must be darkness to see the stars. The dance is always danced above the hollow place, above the terrible abyss.
+ - A dangerous book will always be in danger from those it threatens with the demand that they question their assumptions. They’d rather hang on to the assumptions and ban the book.
+ - I hope you are never victims, but I hope you have no power over other people.
+ - My Real Children starts quietly, then suddenly takes you on two roller-coaster rides at once, swooping dizzily through a double panorama and ending in a sort of super Sophie’s Choice. A daring tour de force.
+ - If eternity had a season, it would be midsummer. Autumn, winter, spring are all change and passage, but at the height of summer the year stands poised. It’s only a passing moment, but even as it passes the heart knows it cannot change.
+ - I talk about the gods, I am an atheist. But I am an artist too, and therefore a liar. Distrust everything I say. I am telling the truth.
+ - Stories are what death thinks he puts an end to. He can’t understand that they end in him, but they don’t end with him.
+ - Gradually the healing took place, seeming as it always does that it wasn’t taking place.
+ - The future has become uninhabitable. Such hopelessness can arise, I think, only from an inability to face the present, to live in the present, to live as a responsible being among other beings in this sacred world here and now, which is all we have, and all we need, to found our hope upon.
+ - If you evade suffering, you also evade the chance of joy.
+ - The misogyny that shapes every aspect of our civilization is the institutionalized form of male fear and hatred of what they have denied and therefore cannot know, cannot share: that wild country, the being of women.
+ - What goes too long unchanged destroys itself.
+ - In our loss and fear we craved the acts of religion, the ceremonies that allow us to admit our helplessness, our dependence on the great forces we do not understand.
+ - Even in merely reading a fairytale, we must let go our daylight convictions and trust ourselves to be guided by dark figures, in silence; and when we come back, it may be very hard to describe where we have been.
+ - A man does not make his destiny: he accepts it or denies it.
+ - The danger in trying to do good is that the mind comes to confuse the intent of goodness with the act of doing things well.
+ - The explorer who will not come back or send back his ships to tell his tale is not an explorer, only an adventurer; and his sons are born in exile.
+ - Translation is entirely mysterious. Increasingly I have felt that the art of writing is itself translating, or more like translating than it is like anything else.
+ - George, it’s impossible to correct a defective reality-orientation overnight.
+ - I have no control over my writing. I have lots of good intentions, but no control. There’s a story that wants to be told.
+ - Take the tale in your teeth, then, and bite till the blood runs, hoping it’s not poison.
+ - The law of evolution is that the strongest survives.
+ - A machine is more blameless, more sinless even than any animal. It has no intentions whatsoever but our own.
+ - My soul is ten thousand miles wide and extremely invisibly deep. It is the same size as the sea, and you cannot, you cannot cram it into beer cans and fingernails and stake it out in lots and own it. It will drown you all and never even notice.
+ - I have decided that the trouble with print is, it never changes its mind.
+ - We need writers who know the difference between the production of a commodity and the practice of an art.
+ - What else can the young be? When you are on the bottom, you must organize from the bottom up.
+ - I don’t want to be a propagandist, no matter how good the cause. I want to tell stories. It’s just that the stories have to square with my consciousness as a woman and my conscience as a human being.
+ - Planets were very large places, on any scale but that of the spaces in between them.
+ - If civilization has an opposite, it is war. Of these two things, you have either one, or the other. Not both.
+ - I was in too much haste, and now have no time left. I traded all the sunlight and the cities and the distant lands for a handful of power, for a shadow, for the dark.
+ - A story rises from the springs of creation, from the pure will to be; it tells itself; I takes its own course, finds its own way, its own words; and the writer’s job is to be its medium.
+ - The question is always the same with a dragon: will he talk with you or will he eat you?
+ - The light is the left hand of darkness.
+ - The island of Gont, a single mountain that lifts its peak a mile above the storm-racked Northeast Sea, is a land famous for wizards.
+ - To learn a belief without the belief is to sing a song without the tune.
+ - All men were alien one to another, at times, not only aliens.
+ - All or nothing at all, the true lover says, and that’s the truth of it. My love will never die, he says. He claims eternity. And rightly. How can it die when it’s life itself? What do we know of eternity but the glimpse we get of it when we enter in that bond?
+ - All times are changing times, but ours is one of massive, rapid moral and mental transformation. Archetypes turn into millstones, large simplicities get complicated, chaos becomes elegant, and what everybody knows is true turns out to be what some people used to think.
+ - But need alone is not enough to set power free: there must be knowledge.
+ - The bond between true lovers is as close as we come to what endures forever.
+ - Children know perfectly well that unicorns aren’t real, but they also know that books about unicorns, if they are good books, are true books.
+ - Scientific truth will out, you can’t hide the sun under a stone.
+ - Go to bed; tired is stupid.
+ - Between thought and spoken word is a gap where intention can enter, the symbol be twisted aside, and the lie come to be.
+ - In innocence there is no strength against evil, said Sparrowhawk, a little wryly. But there is strength in it for good.
+ - Fire and fear, good servants, bad lords.
+ - Where there’s property, there’s theft.
+ - The king was pregnant.
+ - Ah, genre. A word only a Frenchman could love.
+ - You must not change one thing, one pebble, one grain of sand, until you know what good and evil will follow on that act.
+ - It is very hard for evil to take hold of the unconsenting soul.
+ - The backside of heroism is often rather sad; women and servants know that. They know also that the heroism may be no less real for that. But achievement is smaller than men think. What is large is the sky, the earth, the sea, the soul.
+ - You can’t crush ideas by suppressing them. You can only crush them by ignoring them. By refusing to think, refusing to change.
+ - A profound love between two people involves, after all, the power and chance of doing profound hurt.
+ - The important thing is not the finding, it is the seeking, it is the devotion with which one spins the wheel of prayer and scripture, discovering the truth little by little.
+ - But now his dry and silent grieving for his lost wife must end, for there she stood, the fierce, recalcitrant, and fragile stranger, forever to be won again.
+ - The individual cannot bargain with the State. The State recognizes no coinage but power: and it issues the coins itself.
+ - I am no more lonely than the loon on the pond that laughs so loud.
+ - In that moment Ged understood the singing of the bird, and the language of the water falling in the basin of the fountain, and the shape of the clouds, and the beginning and end of the wind that stirred the leaves; it seemed to him that he himself was a word spoken by the sunlight.
+ - Manhood is patience. Mastery is nine time patience.
+ - The desire for power feeds off itself, growing as it devours.
+ - I believe that maturity is not an outgrowing, but a growing up: that an adult is not a dead child, but a child who survived.
+ - If science fiction is the mythology of modern technology, then its myth is tragic.
+ - Progress means nothing to presence.
+ - When the enemy enthusiastically embraces you, and the fellow countrymen bitterly reject you, it is hard not to wonder if you are, in fact, a traitor.
+ - Morning comes whether you set the alarm or not.
+ - Love does not obey the mind, and turns to hate when forced.
+ - To break a promise is to deny the reality of the past. Therefore it is to deny the hope of a real future.
+ - Before the moon I am, what a woman is, a woman of power, a woman’s power, deeper than the roots of trees, deeper than the roots of islands, older than the Making, older than the moon.
+ - The wise needn’t ask, the fool asks in vain.
+ - To exhibit the perfect uselessness of knowing the answer to the wrong question.
+ - The borderline between prose and poetry is one of those fog-shrouded literary minefields where the wary explorer gets blown to bits before ever seeing anything clearly. It is full of barbed wire and the stumps of dead opinions.
+ - To see a candle’s light, one must take it into a dark place. This is the same as to see the good and be grateful, one must compare and contrast it with something worse – not better!
+ - Alone, no one wins freedom.
+ - And though I came to forget or regret all I have ever done, yet would I remember that once I saw the dragons aloft on the wind at sunset above the western isles; and I would be content.
+ - Belief in the lie is the life of the lie.
+ - It is hard to swear when sex is not dirty and blasphemy does not exist.
+ - If you want your writing to be taken seriously, don’t marry and have kids, and above all, don’t die. But if you have to die, commit suicide. They approve of that.
+ - Darkness is only in the mortal eye, that thinks it sees, but sees not.
+ - A man who doesn’t detest a bad government is a fool. And if there were such a thing as a good government on earth, it would be a great joy to serve it.
+ - The historic function of a Senator from Oregon is to drive all the other Senators mad.
+ - He knew now, and the knowledge was hard, that his task had never been to undo what he had done, but to finish what he had begun.
+ - All knowledge is partial, infinitesimally partial. Reason is a net thrown out into an ocean. What truth it brings in is a fragment, a glimpse, a scintillation of the whole truth.
+ - How can people be anything but ignorant when knowledge isn’t saved, isn’t taught?
+ - When I’m writing I don’t dream much; it’s like the dreaming gets used in the writing.
+ - Compare the torrent and the glacier. Both get where they are going.
+ - The fish in the creek said nothing. Fish never do. Few people know what fish think about injustice, or anything else.
+ - The more defensive a society, the more conformist.
+ - Her work, I really think her work is finding what her real work is and doing it, her work, her own work, her being human, her being in the world.
+ - It’s not a weapon or a woman can make a man, or magery either, or any power, anything but himself.
+ - And I needed a rock. Something to hold onto, to stand on. Something solid. Because everything was going soft, turning into mush, into marsh, into fog. Fog closing in on all sides. I didn’t know where I was at all.
+ - Science fiction is not prescriptive; it is descriptive.
+ - Claude Levi-Strauss has been a great source of fruitful irritation to my mind.
+ - Primitiveness and civilization are degrees of the same thing. If civilization has an opposite, it is war.
+ - What is love of one’s country; is it hate of one’s uncountry? Then it’s not a good thing.
+ - Those who dislike fantasy are very often equally bored or repelled by science. They don’t like either hobbits, or quasars; they don’t feel at home with them; they don’t want complexities, remoteness. If there is any such connection, I’ll bet that it is basically an aesthetic one.
+ - Freedom is a heavy load, a great and strange burden for the spirit to undertake. It is not easy. It is not a gift given, but a choice made, and the choice may be a hard one. The road goes upward towards the light; but the laden traveler may never reach the end of it.
+ - Any human power can be resisted and changed by human beings.
+ - The pornography of violence of course far exceeds, in volume and general acceptance, sexual pornography, in this Puritan land of ours.
+ - At the pit’s bottom is no anger.
+ - Oh, never and forever aren’t for mortals, love. But we won’t be parted till I know it’s right that we part.
+ - She had always known that all lives are in common, rejoicing in her kinship to the fish in the tanks of her laboratories, seeking the experience of existences outside the human boundary.
+ - All makers must leave room for the acts of the spirit. But they have to work hard and carefully, and wait patiently, to deserve them.
+ - A man would know the end he goes to, but he cannot know it if he does not turn, and return to his beginning, and hold that beginning in his being. If he would not be a stick whirled and whelmed in the stream, he must be the stream itself, all of it, from its spring to its sinking in the sea.
+ - When the genuine myth rises into consciousness, that is always its message. You must change your life.
+ - The use of imaginative fiction is to deepen your understanding of your world, and your fellow men, and your own feelings, and your destiny.
+ - Have you never thought how danger must surround power as shadow does light?
+ - Readers, after all, are making the world with you. You give them the materials, but it’s the readers who build that world in their own minds.
+ - Can true function arise from basic dysfunction?
+ - First sentences are doors to worlds.
+ - And I speak of spiritual suffering! Of people seeing their talent, their work, their lives wasted. Of good minds submitting to stupid ones. Of strength and courage strangled by envy, greed for power, fear of change. Change is freedom, change is life.
+ - If I had to pick a hero, it would be Charles Darwin – the size of his mind, which included all that scientific curiosity and knowledge seeking, and the ability to put it all together. There is a genuine spirituality about Darwin’s thinking.
+ - Genre fiction was looked at as a ghetto, but I wonder now if realist fiction, sealing itself off in the glum suburbs of a dysfunctional society, denying the use of imagination, was the ghetto.
+ - The thing about working with time, instead of against it, he thought, is that it is not wasted. Even pain counts.
+ - To think that realistic fiction is by definition superior to imaginative fiction is to think imitation is superior to invention.
+ - I can never get used to the fact, though I know it, that women are born cynics. Men have to learn cynicism. Infant girls could teach it to them.
+ - If a book told you something when you were fifteen, it will tell you it again when you’re fifty, though you may understand it so differently that it seems you’re reading a whole new book.
+ - Suffering is dysfunctional, except as a bodily warning against danger. Psychologically and socially it’s merely destructive.
+ - If your voice is heard by more people because you’ve earned some kind of name and fame, your silence on an issue of urgent moral importance is even more of a betrayal. Privilege is obligation.
+ - We sleep researchers like cats, you know; they sleep a lot!
+ - The literature of the emperor penguin is as forbidding, as inaccessible, as the frozen heart of Antarctica itself. Its beauties may be unearthly, but they are not for us.
+ - After a long time spent learning how to write as a woman instead of as an honorary man, I was able to come back to Earthsea and write the next three books in another and newer tradition: that of questioning, rather than accepting, the gendering of power as male.
+ - Happiness is based on a just discrimination of what is necessary, what is neither necessary nor destructive, and what is destructive. In the middle category, however – that of the unnecessary but undestructive, that of comfort, luxury, exuberance, etc.
+ - Now perhaps an excessive dread of overpopulation – overcrowding – reflects not an outward reality, but an inward state of mind. If you feel overcrowded when you’re not, what does that mean? Maybe that you’re afraid of human contact – of being close to people, of being touched.
+ - It is of the nature of idea to be communicated: written, spoken, done. The idea is like grass. It craves light, likes crowds, thrives on crossbreeding, grows better for being stepped on.
+ - It is useless work that darkens the heart.
+ - Injustice makes the rules, and courage breaks them.
+ - To learn which questions are unanswerable, and not to answer them: this skill is most needful in times of stress and darkness.
+ - Love’s just one of the ways through, and it can go wrong, and miss. Pain never misses. But therefore we don’t have much choice about enduring it! We will, whether we want to or not.
+ - Age and illness made one a dualist.
+ - What is more arrogant than honesty?
+ - Writers need to learn their trade, and how to negotiate the increasingly difficult marketplace. The trade can be taught and learned just as the craft can. But a workshop where the trade is the principal focus of interest is not a writing workshop. It is a business class.
+ - There’s no way to use power for good.
+ - If civilization has an opposite, it is war.
+ - What is a body that casts no shadow? Nothing, a formlessness, two-dimensional, a comic-strip character. If I deny my own profound relationship with evil I deny my own reality. I cannot do, or make; I can only undo, unmake.
+ - Time has two aspects. There is the arrow, the running river, without which there is no change, no progress, or direction, or creation. And there is the circle or the cycle, without which there is chaos, meaningless succession of instants, a world without clocks or seasons or promises.
+ - In the tale, in the telling, we are all one blood. Take the tale in your teeth, then, and bite till the blood runs, hoping it’s not poison; and we will all come to the end together, and even to the beginning: living, as we do, in the middle.
+ - Elegance is a small price to pay for enlightenment, and I was glad to pay it.
+ - By and large books are mankind’s best invention.
+ - He had grown up in a country run by politicians who sent the pilots to man the bombers to kill the babies to make the world safer for children to grow up in.
+ - Manipulated, one manipulates others.
+ - If they come prying they can leave curious.
+ - Almost everything is double like that for adolescents; their lies are true and their truths are lies, and their hearts are broken by the world. They gyre and fall; they see through everything, and are blind.
+ - Owning is owing, having is hoarding.
+ - The counsel of the dead is not profitable to the living.
+ - If you deny any affinity with another person or kind of person, if you declare it to be wholly different from yourself.
+ - No man, no power, can bind the action of wizardry or still the words of power. For they are the very words of Making, and one who could silence them could unmake the world.
+ - I know people, I know towns, farms, hills and rivers and rocks, I know how the sun at sunset in autumn falls on the side of a certain plowland in the hills; but what is the sense of giving a boundary to all that, of giving a name and ceasing to love where the name ceases to apply?
+ - You have to help another person. But it’s not right to play God with masses of people. To be God you have to know what you’re doing. And to do any good at all, just believing you’re right and your motives are good isn’t enough.
+ - Anyhow they’re always exceptions. But most women, their only relationship to a man is having. Either owning or being owned.
+ - Reason is a faculty far larger than mere objective force. When either the political or the scientific discourse announces itself as the voice of reason, it is playing God, and should be spanked and stood in the corner.
+ - You must come to terms with your wholeself. the wholeness which exceeds all our virtue and all our vice.
+ - Wrongs done could not be righted, but at least they were not still being done.
+ - It is a terrible thing, this kindess that human beings do not lose. Terrible, because when we are finally naked in the dark and cold, it is all we have. We who are so rich, so full of strength, we end up with that small change. We have nothing else to give.
+ - She obeys me, but only because she wants to. It’s the only justification for obedience, Ged observed.
+ - To claim power over what you do not understand is not wise, nor is the end of it likely to be good.
+ - Nothing said in words ever came out quite even. Things in words got twisted and ran together, instead of staying straight and fitting together.
+ - The living tongue that tells the word, the living ear that hears it, bind and bond us in the communion we long for in the silence of our inner solitude.
+ - It is hard, I found, to be called traitor. Strange how hard it is, for it’s an easy name to call another man.
+ - To be oneself is a rare thing, and a great one.
+ - Art, like sex, cannot be carried on indefinitely solo; after all, they have the same enemy, sterility.
+ - The old knowledge had been difficult but not distressing. It had been all paradox and myth, and it had made sense. The new knowledge was all fact and reason, and it made no sense.
+ - You know, I don’t think a lot about why one book connects with its readers and another doesn’t. Probably because I don’t want to start thinking, “Am I popular?” I spent way too much time thinking about that in high school.
+ - Crankish attacks on the freedom to read are common at present. When backed and coordinated by organized groups, they become sinister.
+ - No matter how intelligent a man is, he can’t see what he doesn’t know how to see.
+ - I do try to separate my personal activism – showing up at a demonstration or something – from what I write.
+ - It is a real wilderness, and those who go there should not feel too safe.
+ - Realism is a very sophisticated form of literature, a very grown-up one. And that may be its weakness. But fantasy seems to be eternal and omnipresent and always attractive to kids.
+ - It was easy to share when there was enough, even barely enough, to go round. But when there was not enough? Then force entered in; might making right; power, and its tool, violence, and its most devoted ally, the averted eye.
+ - Art and Entertainment are the same thing, in that the more deeply and genuinely entertaining a work is, the better art it is. To imply that Art is something heavy and solemn and dull, and Entertainment is modest but jolly and popular, is neo-Victorian idiocy at its worst.
+ - We broke the world to make it whole...
+ - It is not altogether a bad thing to have criminal ancestors. An arsonist grandfather may bequeath one a nose for smelling smoke.
+ - As great scientists have said and as all children know, it is above all by the imagination that we achieve perception, and compassion, and hope.
+ - In the airport, luggage-laden people rush hither and yon through endless corridors, like souls to each of whom the devil has furnished a different, inaccurate map of the escape route from hell.
+ - I’d rather get bad news from an honest man than lies from a flatterer.
+ - He was appalled by the examination system, when it was explained to him, he could not imagine a greater detterent to the natural wish to learn than this pattern of cramming in information and disgorging it on demand.
+ - Even in the obscure vast history of a planet the time it takes to make a forest counts. It takes a while. And not every planet can do it; it is no common effect, that tangling of the sun’s first cool light in the shadow and complexity of innumberable wind-stirred branches.
+ - Dreams take short cuts.
+ - There is no kingdom like the forests.
+ - Living, being in the world, was a much greater and stranger thing than she had ever dreamed.
+ - In war everybody is a prisoner.
+ - Love is the true condition of human life.
+ - We of Es Toch tell a little myth, which says that in the beginning the Creator told a great lie. For there was nothing at all, but the Creator spoke, saying, It exists. And behold, in order that the lie of God might be God’s truth, the universe at once began to exist.
+ - There are two kinds of knowledge, local and universal.
+ - Why can I never set my heart on a possible thing?
+ - Legends of prediction are common throughout the whole Household of Man. Gods speak, spirits speak, computers speak. Oracular ambiguity or statistical probability provides loopholes, and discrepancies are expunged by Faith.
+ - In art, ‘good enough’ is not good enough.
+ - The airport bookstore did not sell books, only bestsellers, which Sita Dulip cannot read without risking a severe systemic reaction.
+ - Little mirrors were attached to the front of their cars, at which they glanced to see where they had been; then they stared ahead again. I had thought that only beetles had this delusion of Progress.
+ - I’ll make my report as if I told a story, for I was taught as a child on my homeworld that Truth is a matter of the imagination.
+ - In the tale, in the telling, we are all one blood.
+ - You cannot blame everything on the enemy.
+ - It is not human to be without shame and without desire.
+ - What she needs, at least one thing she needs, is companionship. After all why should she eat? Who needs her to be alive? What we call psychosis is sometimes simply realism. But human beings can’t live on realism alone.
+ - It did not matter, after all. He was only one man. One man’s fate is not important. “If it is not, what is?” He could not endure those remembered words.
+ - Everything gives way before the recurring torment and festivity of passion.
+ - I’ve got some gift for languages. You follow your gift. But Latin’s not easy.
+ - Almost anything carried to a logical extreme becomes depressing.
+ - As a kitten does what all other kittens do, so a child wants to do what other children do, with a wanting that is as powerful as it is mindless. Since we human beings have to learn what we do, we have to start out that way, but human mindfulness begins where that wish to be the same leaves off.
+ - Music is another way of thinking, or maybe thinking is another kind of music.
+ - What is the use trying to describe the flowing of a river at any one moment, and then at the next moment, and then at the next, and the next, and the next? You wear out. You say: There is a great river, and it flows through this land, and we have named it History.
+ - Would you really like to live in a society where you have no responsibility and no freedom, no choice, only the false option of obedience to the law, or disobedience followed by punishment? Would you really want to go live in a prison?
+ - He is far too intelligent to become really cerebral.
+ - What the brain does by itself is infinitely more fascinating and complex than any response it can make to chemical stimulation.
+ - If one believes that words are acts, as I do, then one must hold writers responsible for what their words do.
+ - So the first step out of childhood is made all at once, without looking before or behind, without caution, and nothing held in reserve.
+ - As a writer, you are free.
+ - Prose writers are interested mostly in life and commas.
+ - When in the Land of Property think like a propertarian. Dress like one, eat like one, act like one, be one.
+ - I doubt that the imagination can be suppressed. If you truly eradicated it in a child, he would grow up to be an eggplant.
+ - A moral choice in its basic terms appears to be a choice that favors survival: a choice made in favor of life.
+ - Hate gets going, it goes round, it gets older and tighter and older and tighter, until it holds a person inside it like a fist holds a stick.
+ - The reader can’t take much for granted in a fiction where the scenery can eat the characters.
+ - At this point, realism is perhaps the least adequate means of understanding or portraying the incredible realities of our existence.
+ - To read and to write. Some writers have to be told to write. They think their job is to meet agents and have experiences and they can just be rich and famous. Their job is to write. Some really don’t realize that. And you can’t write unless you read.
+ - All makers must leave room for acts of the spirit.
+ - If success in selling is my primary interest, I am not primarily a writer, but a salesperson. If I teach success in selling as the writer’s primary objective, I am not teaching writing; I’m teaching, or pretending to teach, the production and marketing of a commodity.
+ - The notion that a story has a message assumes that it can be reduced to a few abstract words, neatly summarized in a school or college examination paper or a brisk critical review.
+ - I don’t write tracts, I write novels. I’m not a preacher, I’m a fiction writer.
+ - A wrong that cannot be repaired must be transcended.
+ - Secondhand experience breaks down a block from the car lot.
+ - Part of the particular interest and beauty of science fiction and fantasy: writer and reader collaborate in world-making.
+ - There are things that outweigh comfort, unless one is an old woman or a cat.
+ - Artists are people who are not at all interested in the facts – only in the truth.
+ - Truth, as ever, avoids the stranger.
+ - When we’re done with it, we may find – if it’s a good novel – that we’re a bit different from what we were before we read it, that we have been changed a little, as if by having meet a new face, crossed a street we’ve never crossed before.
+ - What’s needed in this case is conscious and serious practice in hearing, and using, and being used by, other people’s voices.
+ - A scientist can pretend that his work isn’t himself, it’s merely the impersonal truth. An artist can’t hide behind the truth. He can’t hide anywhere.
+ - Hope is a slow business.
+ - You are all in jail. Each alone, solitary, with a heap of what he owns. You live in prison, die in prison. It is all I can see in your eyes – the walls, the walls!
+ - Despair speaks evenly, in a quiet voice.
+ - For a fiction writer, a storyteller, the world is full of stories, and when a story is there, it’s there, and you just reach up and pick it.
+ - Other people’s stories may become part of your own, the foundation of it, the ground it goes on.
+ - To see that your life is a story while you’re in the middle of living it may be a help to living it well.
+ - That I was not dueling with the king, but trying to communicate with him, was itself an incommunicable fact.
+ - Even a poet cannot get everything right.
+ - Virginity is now a mere preamble or waiting room to be got out of as soon as possible; it is without significance.
+ - It was men’s ambitions, they said, that had perverted all the arts to ends of gain.
+ - There are souls, he thought, whose umbilicus has never been cut. They never got weaned from the universe. They do not understand death as an enemy; they look forward to rotting and turning into humus.
+ - Yet we were rescued by that fancy, and saved by a myth.
+ - To me the female principle is, or at least historically has been, basically anarchic. It values order without constraint, rule by custom not by force. It has been the male who enforces order, who constructs power structures, who makes, enforces, and breaks laws.
+ - Abstractions about right and wrong, whether they are as old as Thou Shalt Not Kill or as modern as Do Your Own Thing, often serve only to confuse and weaken genuine moral decision.
+ - There’s a good deal in common between the mind’s eye and the TV screen, and though the TV set has all too often been the boobtube, it could be, it can be, the box of dreams.
+ - I’m not a quester or a searcher for the truth. I don’t really think there is one answer, so I never went looking for it. My impulse is less questing and more playful. I like trying on ideas and ways of life and religious approaches. I’m just not a good candidate for conversion.
+ - We scarcely know how much of our pleasure and interest in life comes to us through our eyes until we have to do without them; and part of that pleasure is that the eyes can choose where to look. But the ears can’t choose where to listen.
+ - Very seldom do you come upon a space, a time like this, between act and act, when you may stop and simply be.
+ - Most civilisations, perhaps, look shinier in general terms and from several light-years away.
+ - To know there is a choice is to have to make the choice: change or stay: river or rock.
+ - Do nothing because it is righteous or praiseworthy or noble to do so; do nothing because it seems good to do so; do only that which you must do and which you cannot do in any other way.
+ - A writer either speaks to adults and bores kids, or speaks to kids and upsets adults.
+ - One man may as easily destroy, as govern: be King or Anti-King.
+ - A person who believes, as she did, that things fit: that there is a whole of which one is a part, and that in being a part one is whole: such a person has no desire whatever, at any time, to play God. Only those who have denied their being yearn to play at it.
+ - True understanding is the spur of genius.
+ - Genre is a useful concept only when used not evaluatively but descriptively.
+ - By such literalism, fundamentalism, religions betrayed the best intentions of their founders. Reducing thought to formula, replacing choice by obedience, these preachers turned the living word into dead law.
+ - Sometimes I not only stand there and take it, I even smile at them and say I’m sorry. When I feel that smile coming onto my face, I wish I could take my face off and stamp on it.
+ - Ignorant power is a bane!
+ - There is not much you can say about a baby unless you are talking with its father or another mother or nurse; infants are not part of the realm of ordinary language, talk is inadequate to them as they are inadequate to talk.
+ - Our model of the cosmos must be as inexhaustible as the cosmos. A complexity that includes not only duration but creation, not only being but becoming, not only geometry but ethics. It is not the answer we are after, but only how to ask the question.
+ - There’s seldom as much hurry as I used to think there was.
+ - The model of modern Western civilization is the virus: the pure bit of information, which turns its environment into endless reproductions of itself.
+ - It had never occurred to me before that music and thinking are so much alike. In fact you could say music is another way of thinking, or maybe thinking is another kind of music.
+ - The quality of the will to power is, precisely, growth. Achievement is its cancellation. To be, the will to power must increase with each fulfillment, making the fulfillment only a step to a further one. The vaster the power gained the vaster the appetite for more.
+ - What is life without incompatible realities?
+ - There is a limited number of plots. There is no limit to the number of stories.
+ - There is no information about corporations. There is only disinformation.
+ - Morality is an utterly meaningless term unless defined as the good one does to others, the fulfilling of one’s function in the sociopolitical whole.
+ - In general she had found that the main drawback in being a man was that conversations were less interesting.
+ - Sometimes one’s very angry and preaches, but I know that to clinch a point is to close it. To leave the reader free to decide what your work means, that’s the real art; it makes the work inexhaustible.
+ - The artist deals with what cannot be said in words.
+ - Art is action. The way I live my life to its highest degree is by writing, the practice of art.
+ - Every book purchase made from Amazon is a vote for a culture without content and without contentment.
+ - O foolish writer. Now moves. Even in storytime, dreamtime, once-upon-a-time, now isn’t then.
+ - Dead anarchists make martyrs, you know, and keep living for centuries. But absent ones can be forgotten.
+ - Statesmen remember things selectively.
+
+389 quotes

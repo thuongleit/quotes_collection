@@ -1,0 +1,56 @@
+ - Travel is the ultimate inspiration.
+ - I’ve always thought of accessories as the exclamation point of a woman’s outfit.
+ - I think the older I get, the more I realize that the ultimate luxury is time.
+ - Ultimately, clean lines have greater longevity, which women appreciate, and to which they can add their own personality.
+ - Fashion is like food! Some people like sushi, others think hamburgers are divine! People like different things!
+ - No human being should wear tight satin.
+ - The perfect accessory can make the difference between looking blah and totally to die for.
+ - I wasn’t Barbie-obsessed. I think my mother might have been my Barbie.
+ - Clothes are like a good meal, a good movie, great pieces of music.
+ - Put on a trench, you’re suddenly Audrey Hepburn walking along the Seine.
+ - You make sexiness strong by balancing it out: something familiar with something unfamiliar, something masculine with something feminine, something streamlined with something rococo. It’s a Yin and Yang. Women are made of layers, your mood shifts, no one is neither one extreme nor the other.
+ - I feel unbelievably fortunate. How many people get to do what they always wanted to do and do well with it and continue to be surprised and see amazing places and meet amazing people?
+ - A man in a well tailored suit will always shine brighter than a guy in an off-the-rack suit.
+ - If you want to have longevity, then I think that you have to have a point of view, but at the same time still be elastic. Things evolve, the world changes, but people have to know you for who you are so they know what you stand for.
+ - I hate the idea that you have to give up anything. I think you can be powerful and still be provocative, you can be smart and have a softness, you can have all of it.
+ - When I’m not working I’m a slug – a full slug. I am not good at the in-between. I’m either fever-pitched or want to just pass out on a beach with a really sleazy book and eat a cheeseburger.
+ - Women are much more comfortable making their own style rules now. They want pieces that will make their busy lives easier.
+ - Great style means having a point of view, but evolving your look is even more important. Rushing to embrace every trend will leave you fashionable, but not stylish.
+ - Learn to invest in the best quality you can afford and wear pieces in different ways.
+ - For me, true luxury can be caviar or a day with no meetings, no appointments and no schedule.
+ - Seventy per cent of the clothes you own should be meat and potatoes. Thirty per cent should be icing and fluff – that’s colour, pattern, shine, accessories. Too many women get the proportions the other way round, then can’t figure out why they can’t get dressed.
+ - The biggest lesson that I’ve learned is that fashion is this tightrope where you have to be consistent but inconsistent. You need the connective thread but at the same time you need a sense of surprise.
+ - It’s funny when I hear people complain – particularly about the most fabulous parts of being a designer, like when you’re getting ready to work on a show. I don’t even know that I’m tired. I could stay up for six days straight! No drugs, no coffee, no nothing. I’m just so excited.
+ - Every woman should own a shirtdress.
+ - I grew up surrounded by these tough, ballsy, strong women. They were also adoring women, but they were the kind of women who would argue over what kind of pants you were wearing or the color of your nail polish.
+ - It’s an unbelievably tight race for hideous today.
+ - I think quality will be increasingly important-we’re moving away from a time of fast fashion. But really, the only constant in fashion is that you must keep moving forward, otherwise you’ll be left behind.
+ - You need to be curious one way or another as a designer. Your eye has to stay curious. I look at people and think about how they live. I think about bodies.
+ - My legacy would be that you don’t have to give up anything. You can be chic but have a sense of humor, you can be sexy but comfortable, you can be timeless but fresh.
+ - People want to look taller and thinner. No one says, ‘Ooh! Let me buy that dress because it makes me feel matronly!’
+ - The craziest thing about fashion people in general, not just designers, is that it’s always, “Oh my God, you lost weight! I love your hair!” Or “Oh, you’re so tan!” Or, “You’re so skinny! I love your shoes!” These are fashion icebreakers. Everyone’s always looking at each other.
+ - Give me Caviar Kaspia and give me a hamburger. I love the two extremes.
+ - I think to be empathetic is the greatest gift you can have as a designer. Hopefully, people will look at me and say, ‘He really loved women.’
+ - Fashion is not like the movie business, where you can have two great projects in a row and then say, “You know what? I’m going to take off eight months.” What am I going to tell people? Wear last year’s clothes?
+ - Because of what’s going on with the economy, I think women are realizing that maybe they don’t need a closet full of clothes. They just need the right clothes.
+ - My personal style icon is Steve McQueen. My design style icon is a mix of everyone from Jackie O. to Lauren Hutton to my mother.
+ - I mean you might have wanted Carrie Bradshaw, but to me she’s like toddlers and tiaras gone berserk!
+ - The greenest thing you could do in fashion, is to buy something great that you’re going to use for years.
+ - People always think that designers hate each other. And we’re certainly a competitive lot, but we also enjoy each other’s company. No one else knows what you’re going through other than another designer.
+ - I think a lot of women have too many mini skirts in their closets.
+ - North Americans as a whole need to embrace having clothes altered to their body. I hear it all the time: why do the Europeans always look so good? They have a relationship with their tailor and spend the time and money to make their clothes look their best.
+ - The minute it gets to a runway, you’re tempted to do some high jinks. I don’t want to show something I won’t produce. I want people to wear the clothes I show.
+ - I can sketch up a storm, and I’m very involved in how clothes are constructed, but I have a short attention span.
+ - I not only enjoy it, I think, how do you design things that are applicable to life – unless you live it?
+ - My apartment looks like no one lives in it.
+ - I don’t even think of going to Europe as going to another country now.
+ - Let’s be honest – look what Hollywood at 18 is.
+ - Americans are always a little bit insecure.
+ - When you try on something, you have to ask yourself, ‘How many ways could I wear this? Could I wear it to work? To dinner or drinks? Will it span the seasons’ If you have to think too hard about those questions, then skip it.
+ - I know what women look good in. I don’t think the rules ever change.
+ - In early days, I showed everything I made. There was no such thing as editing a collection. In the ’80s, it got to the point where we’d have shows with a hundred looks. You’d want to order a pizza before it was over!
+ - I’m definitely curious. I love pop culture. I’m glued to it. I can watch garbage TV, but then I can also watch great theater.
+ - My mom was a model. She had me at 20, so she was a young mother.
+ - When I was a kid, I was trendier. I’d wear anything. I was in love beads and platforms.
+
+54 quotes

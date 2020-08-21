@@ -1,0 +1,41 @@
+ - Before I was nine I had learned the basic canon of Arab life. It was me against my brother; me and my brother against our father; my family against my cousins and the clan; the clan against the tribe; and the tribe against the world and all of us against the infidel.
+ - Pride is a fool’s fortress.
+ - After all, the only thing that is going to save mankind is if enough people live their lives for something or someone other than themselves.
+ - Research to me is as important or more important than the writing. It is the foundation upon which the book is built.
+ - You can lie to your wife or your boss, but you cannot lie to your typewriter. Sooner or later you must reveal your true self in your pages.
+ - Love can’t mature in one room. It has to come out of the full sharing of everything: joys, aspirations, downfalls, all of it. That’s the only real path to love.
+ - Often we have no time for our friends but all the time in the world for our enemies.
+ - I know writers have to be crazy. But more than that that, they have to get made and stay mad. If things don’t make a writer mad, he’ll end up writing Flopsy, Mopsy, and Cottantail.
+ - The ability of a person to atone has always been the most remarkable of human features.
+ - There’s a curse on me as there’s a curse on the Larkin name. The curse comes back, again and again, to taunt me! Ronan! Kilty! Tomas! And now me! What are the Irish among men? Are we lepers? Are we a blight? Will there ever be an end to our tears?
+ - Life hinges on many factors we cannot control. Two of the most important factors, we can control. We can manage our relationships-and what is life but a series of relationships?-and we can correct our mistakes, here on earth within our life span.
+ - To be homeward bound, no matter what tragic memories you have harbored, is unlike any voyage a man can ever make.
+ - Look at me, man, look at me and tell me I don’t know what I’m about. I’m Conor Larkin. I’m an Irishman and I’ve had enough.
+ - I enjoy writing, sometimes; I think that most writers will tell you about the agony of writing more than the joy of writing, but writing is what I was meant to do.
+ - My first book was rejected nine times. It turned out to be a best seller, Battle Cry? in 1953.
+ - It all begins and ends in the same place, doesn’t it? Conor and me in Ballyutogue. We all come home eventually.
+ - I have drawn inspiration from the Marine Corps, the Jewish struggle in Palestine and Israel, and the Irish.
+ - My greatest accomplishment is Exodus. It changed a lot of peoples lives, it changed the conception of the Jewish people in the international scene.
+ - I’ve not been right for any man or myself since I met you.
+ - I was a terrible English student.
+ - It is extremely important to know what you don’t want to find.
+ - In order to be a good writer, you’ve got to be a bad boss. Self-discipline and stamina are the two major arms in a writer’s arsenal.
+ - I was tough. I used everything to my advantage. I could be very ruthless.
+ - English of course is your major tool, but it is not nearly so important as other aspects of writing for example you have to have some natural ability you can’t buy it no one puts it there you’re born with it.
+ - You can try to reach an audience, but you just write what comes out of you and you just hope that it is accepted. You do not write specifically to a generation.
+ - Why must we fight for the right to live, over and over, each time the sun rises?
+ - I am very proud of this work because it is more about the meaning of the Easter Rising and its relationship to what this whole century has been about, people liberating themselves, freeing themselves.
+ - Writing, basically breaks down to relationships between people and that is what you write about.
+ - I was too heavy to be a jockey and too honest to be a producer, so I became a writer.
+ - I have been writing for 50 years and readers still read my first book from when I was in the Marine Corps.
+ - A soldier has one item that cannot be neglected. His feet. They are his wheels, his mechanised warfare.
+ - Anyone who goes into writing has to find out somewhere along the line, he’s either naive or insane.
+ - I essentially write for myself.
+ - Usually a good part of the people trying it end up not making it.
+ - To me, a writer is one of the most important soldiers in the fight for survival of the human race. He must stay at his post in the thick of fire to serve the cause of mankind.
+ - I do not write for an audience.
+ - All you have the right to ask of life is to choose a battle in this war, make the best you can, and leave the field with honor.
+ - The first thing you have to do is get immersed in the project, organizing yourself, knowing what you are going after and not going after.
+ - There is in us all that line that prevents us from fully understanding those who are different.
+
+39 quotes

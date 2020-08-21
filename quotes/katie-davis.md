@@ -1,0 +1,22 @@
+ - Courage isn’t about knowing the path, it’s about taking the first step.
+ - I will not change the world. Jesus will do that. I can, however, let Him use me to change the world for one person.
+ - I believe there is only one truly courageous thing we can do with our lives: to love unconditionally. Absolutely, with all of ourselves, so much that it hurts and then more.
+ - Jesus wrecked my life, shattered it to pieces, and put it back together more beautifully.
+ - Adoption is a beautiful picture of redemption. It is the Gospel in my living room.
+ - We are not called to be safe, we are simply promised that when we are in danger, God is right there with us. And there is no better place to be than in His hands.
+ - Love is the reason I just keep filling up my little eyedropper, keep filling it up and emptying my ocean one drop at a time. I’m not here to eliminate poverty, to eradicate disease, to put a stop to people abandoning babies. I’m just here to love.
+ - Adoption is a redemptive response to tragedy that happens in this broken world.
+ - God doesn’t tell us to care for the less fortunate, He demands it.
+ - I am more more terrified of living a comfortable life in a self-serving society and failing to follow Jesus than I am of any illness or tragedy.
+ - Do not forget in the darkness what you have been promised in the light.
+ - Being a Christ follower means being acquainted with sorrow. We must know sorrow to be able to fully appreciate joy. Joy costs pain, but the pain is worth it. After all, the murder had to take place before the resurrection.
+ - The fact that I loved Jesus was beginning to interfere with the plans I once had for my life and certainly with the plans others had for me. My heart had been apprehended by a great love, a love that compelled me to live differently.
+ - It may take place in a foreign land or it may take place in your backyard, but I believe that we were each created to change the world for someone. To serve someone. To love someone the way Christ first loved us, to spread His light. This is the dream, and it is possible.
+ - I don’t always know where this life is going. i can’t see the end of the road, but here is the great part: courage is not about knowing the path. It is about taking the first step.
+ - Adoption is wonderful and beautiful and the greatest blessing I have ever experienced. Adoption is also difficult and painful. Adoption is a beautiful picture of redemption.
+ - Thankfully, God’s plans also happen to be much better than my own.
+ - Poverty is not a sin; it is a condition, a circumstance that allows God’s work to be displayed.
+ - Jesus called His followers to be a lot of things, but I have yet to find where He warned us to be safe.
+ - When I imagine God creating each one of us and planting a purpose deep in our hearts, I never imagine that purpose being mediocrity.
+
+20 quotes

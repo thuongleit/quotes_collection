@@ -1,0 +1,22 @@
+ - Don’t try to be a hero. Try to be a winner.
+ - My problems are all behind me!
+ - I am not too serious about anything. I believe you have to enjoy yourself to get the most out of your ability. I can take the criticism with the accolades. Neither affects me.
+ - My father cared a lot about me, but he never gave me the satisfaction of really knowing it. Hitting .390 wasn’t enough for him. Nothing seemed to be. He was not trying to be mean. He was just seeing to it that I never got self-satisfied, that I worked hard to get the most out of what I had.
+ - There’s nothing like Opening Day. There’s nothing like the start of a new season. I started playing baseball when I was seven years old and quit playing when I was 40, so it’s kind of in my blood.
+ - Do I want someone to get more hits than me? No. Do I want someone to hit more home runs than me? No. Do I want someone to have more RBI than me? No. I get a kick out of seeing the all-time leaders and my name’s on top of every one, with the exception of strikeouts. I get a kick out of that.
+ - Old third basemen become first basemen, and old first basemen become designated hitters.
+ - I never lifted a weight in my life. Why am I going to do steroids? That’s not going to do me any good. We didn’t have any weights in our clubhouse. We had one exercise bike and that was for the guy who tweaked his hamstring. And that thing didn’t even work half the time.
+ - Even today, if the Royals win six games all year, if they’re going to go 6-156, I hope they beat the Yankees six times.
+ - I was scared everyday I put on the uniform.
+ - A woman will be elected President before Wade Boggs is called out on strikes. I guarantee that.
+ - Not many people get to the major leagues and succeed right away. There are some struggles. Everyone seems to struggle.
+ - I used to be a mad hitter. And then I learned the longer you wait out the ball, the better you see it. And the better you see it, the harder you hit it. And the harder you hit it, the higher your average is going to be. And the higher your average is, the more money you’re going to make.
+ - I’ve only read two books in my life: Baseball Sparkplug and Love Story.
+ - If I was going to make one rule change, I would bring the DH to the National League.
+ - I could have played another year, but I would have been playing for the money, and baseball deserves better than that.
+ - If I stay healthy, I have a chance to collect 3,000 hits and 1,000 errors.
+ - He looks like a greyhound, but he runs like a bus.
+ - I was three over. One over a house, one over a patio, and one over a swimming pool.
+ - American League teams don’t bunt very often. National League teams bunt a lot.
+
+20 quotes

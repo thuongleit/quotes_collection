@@ -1,0 +1,33 @@
+ - My father only hit me once, but he used a Volvo.
+ - Marriage is an investment which pays dividends if you pay interest.
+ - I’d like to die like my old dad, peacefully in his sleep, not screaming like his passengers.
+ - I’m rather relaxed about death. From quite an early age I’ve regarded it as part of the deal, the unwritten guarantee that comes with your birth certificate.
+ - I know I’m a sinner, but make me a winner!
+ - What do gardeners do when they retire?
+ - My mother tried to kill me when I was a baby. She denied it. She said she thought the plastic bag would keep me fresh.
+ - They all laughed when I said I wanted to be a comedian. Well, they’re not laughing now.
+ - I’ll never stop working. I want to die in the saddle. A day is wasted for me if I haven’t done something even mildly creative.
+ - Real happiness is when you marry a girl for love and find out later she has money.
+ - I came home and found that my son was taking drugs – my very best ones too!
+ - If blind people wear sunglasses, why don’t deaf people wear earmuffs?
+ - Silence is not only golden, it is seldom misquoted.
+ - I told them I wanted to be a comedian, and they laughed; I became a comedian, no one’s laughing now.
+ - I got a horse for my wife. I thought it was a fair swap.
+ - I’m not saying my wife’s a bad cook, but she uses a smoke alarm as a timer.
+ - I’d never be unfaithful to my wife for the reason that I love my house very much.
+ - My wife said, ‘Can my mother come down for the weekend?’ So I said, ‘Why?’ And she said, ‘Well, she’s been up on the roof two weeks already.’
+ - Dulwich College takes me back after seventy years: My Mum must have written one hell of a sick note!
+ - Where do the homeless have 90 per cent of their accidents?
+ - It got up to 94 degrees today – that’s pretty good at my age.
+ - My wife was fitted with a coil. For about 18 months I hated it! She used to pick up CB signals.
+ - I got my start in silent radio.
+ - The last time I was in Spain I got through six Jeffrey Archer novels. I must remember to take enough toilet paper next time.
+ - Personally, I don’t think there’s intelligent life on other planets. Why should other planets be any different from this one?
+ - Although I have always loved the noise of laughter, I really can’t fear the coming of quiet. As for funerals, I rather like them. Such nice things are always said about the deceased, I feel sad that they had to miss hearing it all by just a few days.
+ - My father was ruined by hard drink – he sat on an icicle.
+ - You can always spot the employee playing golf with his boss. He’s the fellow who makes a hole in one and says, “oops!”
+ - When the inventor of the drawing board messed things up, what did he go back to?
+ - A miniature village in Bournemouth caught fire and the flames could be seen nearly three feet away.
+ - I was a born club comic. Radio and TV and stage were fine, but I found my real home in cabaret.
+
+31 quotes

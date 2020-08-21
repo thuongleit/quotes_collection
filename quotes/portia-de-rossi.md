@@ -1,0 +1,55 @@
+ - True nobility isn’t about being better than anyone else; it’s about being better than you used to be.
+ - There’s a fine line between being private and being ashamed.
+ - When I watched Ellen come out in ’97, my jaw was on the floor. I thought, There are some people who break the doors down, hold them open, and some people who walk right through.
+ - When it’s quiet in my head like this, that’s when the voice doesn’t need to tell me how pathetic I am. I know it in the deepest part of me. When it’s quiet like this, that’s when I truly hate myself.
+ - It sounds so trite, but my private life is mine.
+ - Most important, in order to find real happiness, you must learn to love yourself for the totality of who you are and not just what you look like.
+ - Restriction generates yearning. You want what you cannot have.
+ - I never, ever, restrict food, and I will never go on a diet ever again.
+ - I was very sexual from a very young age.
+ - Life can take so many twists and turns. You can’t ever count yourself out. Even if you’re really afraid at some point, you can’t think that there’s no room for you to grow and do something good with your life.
+ - The diet industry is making a lot of money selling us fad diets, nonfat foods full of chemicals, gym memberships, and pills while we lose a piece of our self-esteem every time we fail another diet or neglect to use the gym membership we could barely afford.
+ - Average. It was the worst, most disgusting word in the English language. Nothing meaningful or worthwhile ever came from that word.
+ - I knew I wasn’t attractive, and I was very happy about that. I didn’t want to be attractive. I didn’t want to attract. As long as no one wanted to be let in, I didn’t have to shut anyone out.
+ - The theory of objectivism claims that there are certain things that most people in society can agree upon. A model is pretty. A lawyer is smart. Our society is based upon objectivism. It’s how we make rules and why we obey them.
+ - I highly recommend inviting the worst-case scenario into your life.
+ - My feelings for Ellen overrode all of my fear about being out as a lesbian. I had to be with her, and I just figured I’d deal with the other stuff later.
+ - I married him for a green card. We had a really great, caring relationship; it just obviously wasn’t right for me.
+ - I love body parts, especially hands.
+ - Shame weighs a lot more than flesh and bone.
+ - When you have the paparazzi hiding in the bushes outside your home, the only thing you can control is how you respond publicly.
+ - At my high school graduation, I graduated from home school, so it was pregnant teens and gang members. But, when I got on stage, there were kids in the background who all screamed, “Marry me!,” very loud.
+ - My sexuality is a part of me that I really like. But it’s not the totality of me.
+ - I didn’t understand that playing roles in any relationship is false and will inevitably lead to the relationship’s collapse. No one can be any one thing all the time.
+ - I love to work. I really enjoy getting up really early and driving downtown. I just really love the process of acting and being on a series.
+ - It’s always fun to play the innocent, no matter what you’re doing. If you feel like you’re doing the right thing, you can get away with a lot comedically. I had definitely missed not having a conscience.
+ - I was trying to find a reason for having had to escape from the place that was my home. To convince myself of my choices, I had to make it a place that everyone should want to escape from.
+ - I have to be asked, I guess, but I love the idea of marriage. I think it’s beautiful. I’m such a romantic, and I always have been.
+ - Women in the postfeminist era, while supposedly strong and commanding and equal to men in every sense, looked weaker and smaller than ever before.
+ - We must be able to inspire. That’s my goal in acting.
+ - I’m not quite as limber, but for my peers and my age group, I’m still top notch!
+ - I thought that if I accomplished enough, that somehow I would be let off the hook in the future. Like I didn’t have to keep striving and achieving because I had done that already, and it would add up to being enough.
+ - I try to be feminine, yet intellectual and smart at the same time. You don’t see enough of that.
+ - I love being able to wear dresses and clothes that make me feel feminine and beautiful, and I love the fact that I don’t have to all the time; I can wear a tank and jeans.
+ - Every animal has its own intelligence and sensitivities. They’re all lovely, worthwhile, and deserving of our respect.
+ - And I somehow always felt less lonely when I was completely alone.
+ - I’m really attracted to strong women. Let me rephrase that, I’m really attracted to strong female characters.
+ - People might find me attractive, but it’s also my job to prove that I can be intelligent.
+ - You don’t have to be emaciated or vomiting to be suffering. All people who live their lives on a diet are suffering.
+ - I had to find a relationship with someone who could simultaneously make me grow up and keep me forever young.
+ - Healing comes from love. And loving every living thing in turn helps you love yourself.
+ - Supermodels are over, and the new picture girl has become the television actress.
+ - I justified it in so many ways. I had a very, very long and difficult struggle with my sexuality.
+ - Even if I’m hormonal and I feel like I’ve got a couple pounds of water weight, I will never starve myself, I will never, ever go on a diet.
+ - Even when I took first prize, topped the class, won the race, I never really won anything. I was merely avoiding the embarrassment of losing.
+ - I have a very, very healthy relationship with food in that I eat whatever I want, whenever I want. I never restrict quantities or types of food.
+ - I want young people to see me and think you can be feminine and smart and successful, all at the same time.
+ - I stumbled into acting and just loved it. I deferred law school-and I’m still deferred.
+ - Everyone is their own kind of lesbian. To think there’s a certain way to dress or present yourself in the world is just one more stereotype we have to fit into.
+ - I did a lot of fast talking as a youth; I was pretty good at it. I was never talked into it – I was always the one doing the talking.
+ - When I was anorexic it just seemed like I literally wanted to disappear. And now I would like to reappear.
+ - Just look at all the awards shows now. It has turned into a catwalk. You have to be wearing a certain designer, a certain dress, and everyone’s critiquing.
+ - If you’ve looked at all the glamour magazines lately, all the covers are actresses. If they are on those covers, they are going to try to emulate models. That’s just the way it is.
+ - I would eat 300 calories a day – a lot of Jell-O and no-sugar everything, of course. I was doing Pilates, weight-training, circuit training; over lunch I would run on a treadmill in my dressing room with a fan on my face so I wouldn’t sweat my makeup off.
+
+53 quotes

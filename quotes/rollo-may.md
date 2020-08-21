@@ -1,0 +1,146 @@
+ - The purpose of psychotherapy is to set people free.
+ - Communication leads to community, that is, to understanding, intimacy and mutual valuing.
+ - Self-love is not only necessary and good, it is a prerequisite for loving others.
+ - Real freedom is the ability to pause between stimulus and response, and in that pause, choose.
+ - Hate is not the opposite of love; apathy is.
+ - In order to be open to creativity, one must have the capacity for constructive use of solitude. One must overcome the fear of being alone.
+ - Every human being must have a point at which he stands against the culture, where he says, this is me and the damned world can go to hell.
+ - To love means to open ourselves to the negative as well as the positive – to grief, sorrow, and disappointment as well as to joy, fulfillment, and an intensity of consciousness we did not know was possible before.
+ - The opposite of courage in our society is not cowardice, it is conformity.
+ - Freedom does not come automatically; it is achieved. And it is not gained in a single bound; it must be achieved each day.
+ - Depression is the inability to construct a future.
+ - A myth is a way of making sense in a senseless world. Myths are narrative patterns that give significance to our existence.
+ - Courage is not the absence of despair; it is, rather, the capacity to move ahead in spite of despair.
+ - If you do not express your own original ideas, if you do not listen to your own being, you will have betrayed yourself.
+ - What if imagination and art are not frosting at all, but the fountainhead of human experience?
+ - Vanity and narcissism – the compulsive need to be admired and praised – undermine one’s courage, for one then fights on someone else’s conviction rather than one’s own.
+ - Every act of genuine creativity means achieving a higher level of self-awareness and personal freedom.
+ - Violence arises not out of superfluity of power but out of powerlessness.
+ - Love is generally confused with dependence; but in point of fact, you can love only in proportion to your capacity for independence.
+ - Creativity is the process of bringing something new into being. Creativity requires passion and commitment. It brings to our awareness what was previously hidden and points to new life. The experience is one of heightened consciousness: ecstasy.
+ - Many people suffer from the fear of finding oneself alone, and so they don’t find themselves at all.
+ - Science, Nietzsche had warned, is becoming a factory, and the result will be ethical nihilism.
+ - People only change when it becomes too dangerous to stay the way they are.
+ - We must always base our commitment in the center of our own being, or else no commitment will be ultimately authentic.
+ - Forge in the smithy of your soul.
+ - One does not become fully human painlessly.
+ - Anxiety is essential to the human condition. The confrontation with anxiety can relieve us from boredom, sharpen the sensitivity and assure the presence of tension that is necessary to preserve human existence.
+ - The relationship between commitment and doubt is by no means an antagonistic one. Commitment is healthiest when it is not without doubt but in spite of doubt.
+ - Courage is necessary to make being and becoming possible.
+ - Life comes from physical survival; but the good life comes from what we care about.
+ - Creativity is the result of a struggle between vitality and form. As anyone who has tried to write a sonnet or scan poetry, is aware, the form ideally do not take away from the creativity but may add to it.
+ - Competitive individualism militates against the experience of community, and that lack of community is a centrally important factor in contemporaneous anxiety.
+ - We express our being by creating. Creativity is a necessary sequel to being.
+ - Beauty is the experience that gives us a sense of joy and a sense of peace simultaneously.
+ - Everyone has a need for significance; and if we can’t make that possible, or even probable, in our society, then it will be obtained in destructive ways.
+ - Artists love to immerse themselves in chaos in order to put it into form, just as God created form out of chaos in Genesis. Forever unsatisfied with the mundane, the apathetic, the conventional, they always push on to newer worlds.
+ - Humor is the healthy way of feeling “distance” between one’s self and the problem, a way of standing off and looking at one’s problem with perspective.
+ - Creativity is the encounter of the intensively conscious human being with his world.
+ - The creative act arises out of the struggle of human beings with and against that which limits them.
+ - Intimacy requires courage because risk is inescapable.
+ - One of the few blessings of living in an age of anxiety is that we are forced to become aware of ourselves.
+ - The first thing necessary for a constructive dealing with time is to learn to live in the reality of the present moment. For psychologically speaking, this present moment is all we have.
+ - It is an old and ironic habit of human beings to run faster when we have lost our way; and we grasp more fiercely at research, statistics, and technical aids in sex when we have lost the values and meaning of love.
+ - Understanding and love require a wisdom that comes only with age.
+ - I became a psychotherapist because that’s where people will unburden themselves, where they will show what is in their hearts.
+ - The essence of being human is that, in the brief moment we exist on this spinning planet, we can love some persons and some things, in spite of the fact that time and death will ultimately claim us all.
+ - The amazing thing about love is that it is the best way to get to know ourselves.
+ - Freedom is man’s capacity to take a hand in his own development. It is our capacity to mold ourselves.
+ - The most effective way to ensure the value of the future is to confront the present courageously and constructively.
+ - Anxiety is an even better teacher than reality, for one can temporarily evade reality by avoiding the distasteful situation; but anxiety is a source of education always present because one carries it within.
+ - Whereas moral courage is the righting of wrongs, creative courage, in contrast, is the discovering of new forms, new symbols, new patterns on which a new society can be built.
+ - Humans have a habit of running faster when they have lost their way.
+ - Courage is the capacity to meet the anxiety which arises as one achieves freedom. It is the willingness to differentiate, to move from the protecting realms of parental dependence to new levels of freedom and integration.
+ - Whatever sphere we may be in, there is a profound joy in the realization that we are helping to form the structure of the new world. This is creative courage, however minor or fortuitous our creations may be.
+ - We cannot will to have insights. We cannot will to have creativity, but we can will to give ourselves to the creative experience with intensity of dedication and commitment.
+ - Something is born, comes into being, something which did not exist before – which is as good a definition of creativity as we can get.
+ - There is nobody who totally lacks the courage to change.
+ - All people are struggling to be creative in some way, and the artist is the one who has succeeded in this task of life.
+ - By whatever name one calls it, genuine creativity is characterized by an intensity of awareness, a heightened consciousness.
+ - A person can meet anxiety to the extent that his values are stronger than the threat.
+ - One longs for the presence of a leader like Lincoln, who openly admitted his doubts and as openly preserved his commitment.
+ - The poet, like the lover, is a menace on the assembly line.
+ - There can be no stronger proof of the impoverishment of our contemporary culture than the popular – though profoundly mistaken – definition of myth as falsehood.
+ - Joy is the effect which comes when we use our powers.
+ - Lacking positive myths to guide him, many a sensitive contemporary man finds only the model of the machine beckoning him from every side to make himself over into its image.
+ - Memory is not just the imprint of the past time upon us; it is the keeper of what is meaningful for our deepest hopes and fears.
+ - It is well to remind ourselves that anxiety signifies a conflict, and so long as a conflict is going on, a constructive solution is possible.
+ - In religion, it is not the sycophants or those who cling most faithfully to the status quo who are ultimately praised. It is the insurgents.
+ - If the will remains in protest, it stays dependent on that which it is protesting against.
+ - The danger always exists that our technology will serve as a buffer between us and nature, a block between us and the deeper dimensions of our own experience.
+ - The schizoid man is the natural product of the technological man. It is one way to live and is increasingly utilized and it may explode into violence.
+ - The hallmark of courage in our age of conformity is the capacity to stand on one’s own convictions – not obstinately or defiantly.
+ - One must have at least a readiness to love the other person, broadly speaking, if one is to be able to understand him.
+ - No one can separate themselves from one’s social group and remain healthy, because the very structure of personality is dependent on the community.
+ - Now, I believe in life, and I believe in the joy of human existence, but these things cannot be experienced except as we also face the despair, also face the anxiety that every human being has to face if he lives with any creativity at all.
+ - People attain worth and dignity by the multitude of decisions they make from day to day.
+ - Creativity is a yearning for immortality.
+ - Poets may be delightful creatures in the meadow or the garret, but they are menaces on the assembly line.
+ - Neither Kierkegaard nor Nietzsche had the slightest interest in starting a movement – or a new system, a thought which would indeed have offended them. Both proclaimed, in Nietzsche’s phrase, Follow not me, but you!
+ - The daimonic is any natural function which has the power to take over the whole person. Sex and eros, anger and rage, and the craving for power are examples. The daimonic can be either creative or destructive and is normally both.
+ - Man is the “ethical animal” ethical in potentiality even if, unfortunately, not in actuality. His capacity for ethical judgment like freedom, reason and the other unique characteristics of the human being is based upon his consciousness of himself.
+ - When people feel their insignificance as individual persons, they also suffer an undermining of their sense of human responsibility.
+ - Purpose in the human being is a much more complex phenomenon than what used to be called will power.
+ - Creativity is the process of bringing something new into being.
+ - When inward life dries up, when feeling decreases and apathy increases, when one cannot affect or even genuinely touch another person, violence flares up as a daimonic necessity for contact, a mad drive forcing touch in the most direct way possible.
+ - Deeds of violence in our society are performed largely by those trying to establish their self-esteem, to defend their self-image, and to demonstrate that they, too, are significant.
+ - To believe fully and at the same moment to have doubts is not at all a contradiction: it presupposes a greater respect for truth, an awareness that truth always goes beyond anything that can be said or done at any given moment.
+ - When you are completely absorbed or caught up in something, you become oblivious to things around you, or to the passage of time. It is this absorption in what you are doing that frees your unconscious and releases your creative imagination.
+ - It requires greater courage to preserve inner freedom, to move on in one’s inward journey into new realms, than to stand defiantly for outer freedom. It is often easier to play the martyr, as it is to be rash in battle.
+ - In my clinical experience, the greatest block to a person’s development is his having to take on a way of life which is not rooted in his own powers.
+ - Evil, in this system of ethics, is that which tears apart, shuts out the other person, raises barriers, sets people against each other.
+ - Consciousness is the awareness that emerges out of the dialectical tension between possibilities and limitations.
+ - Creativity is not merely the innocent spontaneity of our youth and childhood; it must also be married to the passion of the adult human being, which is a passion to live beyond one’s death.
+ - Poets often have a conscious awareness that they are struggling with the daimonic, and that the issue is their working something through from the depths which push the self to a new plane.
+ - All our feelings, like the artist’s paints and brush, are ways of communicating and sharing something meaningful from us to the world.
+ - Our age is one of transition, in which the normal channels for utilizing the daimonic are denied; and such ages tend to be times when the daimonic is expressed in its most destructive form.
+ - Artists do not run away from non-being, but by encountering and wrestling with it, force it to produce being.
+ - By the creative act, we are able to reach beyond our own death.
+ - It is infinitely safer to know that the man at the top has his doubts, as you and I have ours, yet has the courage to move ahead in spite of these doubts.
+ - What Kierkegaard said about love is also true of creativity: every person must start at the beginning.
+ - Apathy adds up, in the long run, to cowardice.
+ - One of the easiest ways to be irresponsible about power is to forget you have it.
+ - The receptivity of the artist must never be confused with passivity. Receptivity is the artist’s holding him or herself alive and open to hear what being may speak.
+ - Human freedom involves our capacity to pause, to choose the one response toward which we wish to throw our weight.
+ - However it may be confounded or covered up or counterfeited, this elemental capacity to fight against injustice remains the distinguishing characteristic of human beings.
+ - The ancient Greeks, as Plato reports, believed that we discover truth through “reminiscence,” that is by “remembering,” by intuitively searching into our own experience.
+ - Does not the possibility or the power to do something about the situation at hand confer on one the responsibility to do it?
+ - There is no meaningful yes unless the individual could also have said no.
+ - Every authentic artist is engaged in this creating of the conscience of the race, even though he or she may be unaware of the fact.
+ - If we admit our depression openly and freely, those around us get from it an experience of freedom rather than the depression itself.
+ - To say a person is a coward has no more meaning than to say he is lazy: It simply tells us that some vital potentiality is unrealized or blocked.
+ - It is dangerous to know, but it is more dangerous not to know.
+ - They pursue meaninglessness until they force it to mean.
+ - It is interesting to note how many of the great scientific discoveries begin as myths.
+ - Courage is the basic virtue for everyone so long as he continues to grow, to move ahead.
+ - There is an energy field between humans. And, when we reach out in passion, it is met with an answering passion and changes the relationship forever.
+ - Inner sense of worth that comes with being in love does not seem to depend essentially on whether the love is returned or not.
+ - A dynamic struggle goes on within a person between what he or she consciously thinks on the one hand and, on the other, some insight, some perspective that is struggling to be born.
+ - Artistic symbols and myths speak out of the primordial, preconscious realm of the mind which is powerful and chaotic. Both symbol and myth are ways of bringing order and form into this chaos.
+ - Care is a state in which something does matter; it is the source of human tenderness.
+ - Ecstasy is the accurate term for the intensity of consciousness that occurs in the creative act.
+ - The turtle only makes progress when it’s neck is stuck out.
+ - It is amazing how many hints and guides and intuitions for living come to the sensitive person who has ears to hear what his body is saying.
+ - I learned that healing and cure are active processes in which I myself needed to participate.
+ - The insight is born with anxiety, guilt and the joy and gratification that is inseparable from the actualizing of a new idea or vision.
+ - Joy, rather than happiness, is the goal of life, for joy is the emotion which accompanies our fulfilling our natures as human beings. It is based on the experience of one’s identity as a being of worth and dignity.
+ - We receive love roughly in proportion to our capacity to love.
+ - Terrorism and the whole drug scene are vivid examples of the fact that what persons abhor most of all in life is the possibility that they will not matter.
+ - Insight comes at a moment of transition between work and relaxation.
+ - When we are dealing with human beings, no truth has reality by itself; it is always dependent upon the reality of the immediate relationship.
+ - Creativity is neither the product of neurosis nor simple talent, but an intense courageous encounter with the Gods.
+ - Receptivity requires a nimbleness, a fine-honed sensitivity in order to let one’s self be the vehicle of whatever vision may emerge.
+ - Reason works better when emotions are present; the person sees sharper and more accurately when his emotions are engaged.
+ - There is no authentic inner freedom that does not, sooner or later, also affect and change human history.
+ - Finding the center of strenghth within ourselves is in the long run best contribution we can do to our fellow man.
+ - The rebel is committed to giving a form and pattern to the world. It is a pattern born of the indomitable thrust of the human mind, the mind which makes out of the mass of meaningless data in the world an order and a form.
+ - There is a curiously sharp sense of joy – or perhaps better expressed, a sense of mild ecstasy – that comes when you find the particular form required by your creation.
+ - The individual human is still the creature who can wonder, who can be enchanted by a sonata, who can place symbols together to make poetry to gladden our heart, who can view a sunrise with a sense of majesty and awe.
+ - One central need in life is to fulfill its own potential.
+ - This is hard for parents to say genuinely.
+ - It may sound surprising when I say, on the basis of my own clinical practice as well as that of my psychological and psychiatric colleagues, that the chief problem of people in the middle decade of the twentieth century is emptiness.
+ - Those we call saints rebelled against an outmoded and inadequate form of God on the basis of their new insights into divinity.
+ - Creativity occurs as an act of encounter, and is to be understood with this encounter at the center.
+ - The ultimate error is the refusal to look evil in the face.
+
+144 quotes

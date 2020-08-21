@@ -1,0 +1,46 @@
+ - Take it easy, but take it.
+ - This machine kills fascists.
+ - Any fool can make something complicated. It takes a genius to make it simple.
+ - This land is your land, this land is my land.
+ - This land is made for you and me.
+ - I would like to see every single soldier on every single side, just take off your helmet, unbuckle your kit, lay down your rifle, and set down at the side of some shady lane, and say, nope, I aint a gonna kill nobody. Plenty of rich folks wants to fight. Give them the guns.
+ - I hate a song that makes you think that you are not any good. I hate a song that makes you think that you are just born to lose. Bound to lose. No good to nobody. No good for nothing. Because you are too old or too young or too fat or too slim too ugly or too this or too that.
+ - It’s a folk singer’s job to comfort disturbed people and to disturb comfortable people.
+ - Nobody living can ever stop me. As I go walking my freedom highway. Nobody living can make me turn back. This land was made for you and me.
+ - Love is the only medicine I believe in.
+ - If you want to learn something, just steal it.
+ - I love a good man outside the law, just as much as I hate a bad man inside the law.
+ - Now as through this world I ramble, I see lots of funny men, Some rob you with a six gun, And some with a fountain pen.
+ - I worked in your orchards of peaches and prunes. I slept on the ground in the light of the moon. On the edge of the city you’ll see us and then, we come with the dust and we go with the wind.
+ - Life has a habit of not staying hitched. You got to ride it like you find it.
+ - As I went walking That ribbon of highway I saw above me The endless skyway I saw below me The lonesome valley This land was made for you and me.
+ - Was a great high wall there that tried to stop me. Was a great big sign there said private Property but on the back side it didn’t say nothing. That side was made for you and me.
+ - I know the police cause you trouble They cause trouble everywhere But when you die and go to heaven You find no policeman there.
+ - There’s several ways of saying what’s on your mind. And in states and counties where it ain’t too healthy to talk too loud, speak your mind, or even vote like you want to, folks have found other ways of getting the word around. One of the mainest ways is by singing.
+ - I like to write about wherever I happen to be.
+ - The world is filled with people who are no longer needed – and who try to make slaves of all of us – and they have their music and we have ours.
+ - Anyone who used more than three chords is just showing off.
+ - You can’t write a good song about a whorehouse unless you’ve been in one.
+ - Some men rob you with a six-gun – others rob you with a fountain pen.
+ - One bright sunny morning in the shadow of the steeple, by the Relief Office, I saw my people -As they stood hungry, I stood there wondering if God blessed America for me.
+ - I ain’t a communist necessarily, but I been in the red all my life.
+ - All about a human being is, it’s a great big hoping machine.
+ - All of you cowboys, fight for your land.
+ - All you can write is what you see.
+ - A song ain’t nothing but a conversation fixed up to where you can talk it over and over without getting tired of it.
+ - I have decided long ago that my songs and ballads would not get the hugs and kisses of the capitalistic experts.
+ - One day we’ll all find out that all of our songs was just little notes in a great big song!
+ - The words are the important thing. Don’t worry about tunes. Take a tune, sing high when they sing low, sing fast when they sing slow, and you’ve got a new tune.
+ - I better quit my talking ’cause I told you all I know But please remember, pardner, wherever you may go The people are building a peaceful world, and when the job is done, That’ll be the biggest thing that man has ever done.
+ - The note of hope is the only note that can help us or save us from falling to the bottom of the heap of evolution, because, largely, about all a human being is, anyway, is just a hoping machine.
+ - Left wing, chicken wing, it don’t make no difference to me.
+ - If you walk across my camera I will flash the world your story.
+ - It’s round the world I’ve traveled; it’s round the world I’ve roamed; but I’ve yet to see an outlaw drive a family from its home.
+ - Let me be known as just the man that told you something you already knew.
+ - The best way to get to know any bunch of people is to go and listen to their music.
+ - Uncle Sam took up the challenge in the year of ‘33 For the farmer and the factory and all of you and me. He said, “Roll along Columbia. You can ramble to the sea, But river while you’re ramblin’ you can do some work for me.”
+ - If we fix it so’s you can’t make money on war, we’ll all forget what we’re killing folks for.
+ - My eyes has been my camera taking pictures of the world and my songs has been my messages that I tried to scatter across the back sides and along the steps of the fire escapes and on the window sills and through the dark halls...
+ - Life has got a habit of not standing hitched. You got to ride it like you find it. You got to change with it. If a day goes by that don’t change some of your old notions for new ones, that is just about like trying to milk a dead cow.
+
+44 quotes

@@ -1,0 +1,8 @@
+ - We all have something to offer. It’s so important to be able to step out of our comfort zone and share the benefit of our experience with others who are trying to find their way. You can make a real difference and have real impact. I haven’t experienced anything more satisfying than that.
+ - Elections are about choices. They’re about distinguishing one from the other. There is a political element to that, and of course it has to do with policy, as well.
+ - Let’s just be clear here. The vice president of the United States accidentally shoots a man, and he feels that it’s appropriate for a ranch owner who witnessed this to tell the local Corpus Christi newspaper and not the White House press corps at large, or notify the public in a national way.
+ - When the American people look at the political process play out, they hear all the spinning and all the doctrinaire language, and they still walk away with the belief that they’re not being represented in Congress, that there’s no trust in the executive branch.
+ - House Speaker Pelosi worried about the opposition, the tone of it, perhaps leading to violence as it did in the 70s. Theres more recent examples of anti-government violence – occurring even in the mid-90s. Do you worry about that?
+ - President Bush deliberately did not apologize for things and that’s because advisers around him, including those there, felt that the press corps would jump on that and down his throat in a way that he couldn’t recover from. So, especially on the war he was very careful on that line.
+
+6 quotes

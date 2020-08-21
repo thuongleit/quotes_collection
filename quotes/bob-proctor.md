@@ -1,0 +1,171 @@
+ - If you see it in your mind, you will hold it in your hand.
+ - Accountability is the glue that ties commitment to the result.
+ - Discipline is giving yourself a command and following it up with action.
+ - I am so happy and grateful now – that money comes to me in increasing quantities through multiple sources on a continuous basis.
+ - Cooperation is always more powerful than competition.
+ - What you think about you bring about.
+ - Change is inevitable but personal growth is a choice.
+ - Start with the end in mind. If you want to be a millionaire, talk like one, act like one, work like one.
+ - Don’t be a VICTIM of negative self talk – remember YOU are listening.
+ - By thinking about your goals every morning, many times during the day, and every night, you begin moving toward it, and bringing it toward you.
+ - Faith and fear both demand you believe in something you cannot see. You choose.
+ - A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you.
+ - Outward change comes after we change from within.
+ - What do you really want? Sit down and write it out on a piece of paper. Write it in the present tense.
+ - Anyone that ever accomplished anything, did not know how they were going to do it. They only knew they were going to do it.
+ - The Subconscious mind can not tell the difference between what’s real and what’s imagined.
+ - The law of attraction is always working whether you believe it or understand it or not.
+ - The only limits in our life are those we impose on ourselves.
+ - Hand writing causes thinking – the repetition of writing your goal everyday will increase your awareness. The true purpose of a goal is to help you grow.
+ - Management means the development of people, not the direction of things.
+ - Don’t expect a great day; create one.
+ - Set a goal to achieve something that is so big, so exhilarating that it excites you and scares you at the same time.
+ - Ask yourself – Where do I want to be one year from today? Personal growth is a choice.
+ - Life either happens by design or default, you choose.
+ - When you REACT you are giving away your power. When you RESPOND you are staying in control of yourself.
+ - Your outside world is a reflection of your inside world. What goes on in the inside, shows on the outside.
+ - There is no problem outside of you that is superior to the power within you.
+ - If your goal isn’t scary and exciting, then it’s not a big enough goal for you.
+ - People who are interested in doing something will do it when it’s convenient; people who are committed will do it no matter what.
+ - Enjoy life, because life is phenomenal! It’s a magnificent trip!
+ - Everything that’s coming into your life, you are attracting into your life. And it’s attracted to you by virtue of the images you’re holding in your mind. It’s what you’re thinking. Whatever is going on in your mind you are attracting to you!
+ - Are your thoughts empowering or limiting?
+ - Imagination is the greatest nation in the world!
+ - To believe in the things you can see and touch is no belief at all. But to believe in the unseen is both a triumph and a blessing.
+ - The fear of making a decision is the result of fearing to make a mistake – the truth is, the fear of mistakes has a greater impact on you than making the mistakes.
+ - Don’t be an extra in your own movie. Move out of your comfort zone. Don’t be afraid of feeling uncomfortable or awkward. Step-out and make it happen.
+ - You can have anything you want. You just have to decide what you want and do everything it takes to get it!
+ - You are God’s highest form of creation. You are a living breathing creative magnet. You have the ability to control what you attract into your life.
+ - Richness is not about what you have. It is about who you are.
+ - If you can envision it, you can have it!
+ - You’ve got to pay attention to what you’re attracted to because as you hold images of what you want, you’re gonna be attracted to things that are going to be attracted to you, but it literally moves into physical reality with and through you and it does that by law.
+ - Most people are extras in their own movie.
+ - Lack and limitation can only exist when we make room for them in our mind.
+ - Your results are an expression of your level of awareness.
+ - The only power our problems can have over us is the power we give to them.
+ - Paradigm is a part of the conditioning of the mind, our conditioning thought patterns.
+ - Whatever you accomplish in a lifetime will be in direct proportion to the intensity and persistence of your faith.
+ - When we change the way we think, we change our lives. What most people do not understand is how powerful our thinking is and how involved it is in our health.
+ - Being a winner is never an accident; winning comes about by design, determination and positive action.
+ - Your purpose explains what you are doing with your life. Your vision explains how you are living your purpose. Your goals enable you to realize your vision.
+ - Never want something without expecting it.
+ - People who make decisions go to the top. Those who fail to make decisions go nowhere.
+ - Everything has been created twice once on a mental plain and once on a physical plain.
+ - Do you want to know what you think about most of the time? Take a look at the results you’re getting. That will tell you exactly what’s going on inside.
+ - We can build anything in our imagination that’s where all creation begins in your life.
+ - The mind doesn’t know anything about age, your subconscious mind knows nothing about time or space. And so, I am hanging around young people all the time and I operate like they do. I don’t think of myself as being old.
+ - Let’s start with what we can be thankful for, and get our mind into that vibration, and then watch the good that starts to come, because one thought leads to another thought.
+ - The desire for success is inherent within all of us. It is a part of our nature to want to grow, to improve the quality of our lives. However, nothing improves by accident, it requires conscious attention. When you are being bombarded by negatives, improvement, growth and success are easy to forget.
+ - Fear and faith have a lot in common. Both of these emotions require that you believe in something that you can’t see.
+ - No amount of reading or memorizing will make you successful in life. It is the understanding and application of wise thought which counts.
+ - It’s the little things that you do that can make a big difference. What are you attempting to accomplish? What little thing can you do today that will make you more effective? You are probably only one step away from greatness.
+ - Just understand that the good that you want is already here. All you have to do is get in harmony with it. And you do that through your own thinking.
+ - Successful people are willing to do what makes them uncomfortable in the interest of growth.
+ - You’ve got to develop mental strength. And you develop mental strength with the will. The will is the mental faculty that gives you the ability to hold one idea under the screen of your mind to the exclusion of all outside distractions.
+ - You will be amazed at how much free time you have when you never have to think about money.
+ - Never under estimate the Power of the Mind. Persist in creating new thoughts to prevent falling back into negative patterns. It is an ongoing struggle and you have to commit to winning if you are to succeed.
+ - Van Gogh was asked how he created such beautiful paintings. He said I dream my paintings and then I paint my dreams.
+ - Clearly understand that the only limitations you will ever have are the limitations you impose upon yourself. You truly do have infinite potential.
+ - Remember – no limitation can be placed on you by any one but yourself. With your imagination you have a unique ability to draw on an infinite source of supply. There is power in thought.
+ - When you really want something, and you couple that with an understanding of your nature, of your spiritual being, and the laws that govern you, you will keep going, regardless of what’s happened. Nothing will stop you.
+ - We’ve got to be able to break through the barrier of logic.
+ - Success is buried on the other side of frustration; unfortunately some people don’t do what it takes to get to the other side.
+ - All the energy in the universe is evenly present in all places at the same time. We don’t get energy, we release energy. And the triggering mechanism to release energy is desire. When you have a strong desire to do something, you will always have the energy to do it.
+ - You must be able to see yourself, with your inner eye, already in possession of the good you desire.
+ - The weight of your body is controlled by the image in your mind.
+ - You have been gifted with mental faculties to improve any circumstance around you.
+ - You’re either living in the problem or you’re living in the solution.
+ - All the borders in the world are man-made There are no borders, we are all hooked together. Everything is connected. There is no line of demarcation. We are hooked together like the colors of a rainbow, our problem is ignorance, we don’t understand that.
+ - Our attitude is the environment we carry with us during the day. It proclaims to the world what we think of ourselves and indicates the sort of person we have made up our minds to be. It is the person we will become. How’s your attitude today?
+ - The Law Polarity decrease that everything has an opposite it’s the flip side of the coin, you’re right my left, the front the back, consider this next time you disagree with someone because their right from their point of view.
+ - Your first and foremost job as a LEADER is to take charge of your own energy.
+ - I treat winning and losing exactly the same. I see them both as necessary steps to get us where we are going. Big failures big lessons little failures little lessons.
+ - You’re going to find the people that make it work NEVER quit, quitting is NOT an option.
+ - You can’t escape from a prison until you recognize you are in one. People who have chosen to live within the limits of their old beliefs continue to have the same experiences. It takes effort and commitment to break old patterns.
+ - Successful people decide how they are going to live; they are not victims of circumstance. In good times or bad times, they know where they are going and they know that they are going to get there.
+ - We’re all working with one power, one law, it’s Attraction.
+ - Quite often very talented people FAIL because they believe they are too big to do the little things, while the most successful amongst us are quite willing to do the little things. They truly are BIG people.
+ - Life can be absolutely phenomenal, and it should be, and it will be, when you start using the secret.
+ - Everyone expects us to have a sense of urgency for life’s big things. Life measures us by how we engage ourselves in the little things.
+ - There is great stuff waiting for you on the other side of fear.
+ - The stream of plenty always flows towards the open expectant mind.
+ - There’s something so magnificent about you. And as you love yourself, you’ll love others.
+ - Your intuitive factor is what picks up other peoples vibration.
+ - We all work with one infinite power.
+ - An educated person is a person who has so developed the faculties of their mind that they can acquire anything they want.
+ - The success gene lives in every person regardless of the results they are presently getting – we are spiritual beings and spirit is always for expansion and fuller expression.
+ - All top salespeople have a highly evolved will all top leaders have a highly evolved will you see it’s the will that gives us the ability to focus.
+ - We are programmed; we are literally programmed genetically and then we are programmed environmentally and most people never break out of that programming.
+ - Will gives us the ability to take an idea hold that idea and zero right in on something.
+ - You should always love people and use money rather than the other way around.
+ - The only competition you will ever face is with your own ignorance.
+ - I am a spiritual person living in a human body, not a human body with a spirit.
+ - You are the mental architect of your own destiny.
+ - You must make your dream a priority in order for it to become your life.
+ - We come this way but once. We can either tiptoe through life and hope we get to death without being badly bruised or we can live a full, complete life achieving our goals and realizing our wildest dreams.
+ - Gratitude is an attitude that hooks us up to our source of supply. And the more grateful you are, the closer you become to your maker, to the architect of the universe, to the spiritual core of your being. It’s a phenomenal lesson.
+ - Your real purpose in life is to develop yourself. To successfully do this you must always be working toward a goal.
+ - There are six mental faculties that we have, and how we use them sets the course for our life.
+ - Take your mind off yourself. Focus on what you are doing and how you can do it better.
+ - When you’re feeling down, did you know that you can change it in an instant? Put on a beautiful piece of music or start singing – that’ll change your emotion.
+ - If you do not get chills when you set a goal, your not setting big enough goals.
+ - Persistence is a unique mental strength; a strength that is essential to combat the fierce power of the repeated rejections and numerous other obstacles that sit in waiting and are all part of winning in a fast-moving, ever-changing world.
+ - Start doing the thing to have energy to do the thing.
+ - Science and psychology have isolated the one prime cause for success or failure in life. It is the hidden self-image you have of yourself.
+ - I believe people should study a little bit every day. It should become habitual, like brushing your teeth, combing your hair, having a shower or getting dressed. Study the mind, the laws of the universe and paradigms. There’s enough information on those subjects to keep a person studying forever.
+ - The moment you get emotionally involved with your goal, it instantly and automatically begins to move into physical form.
+ - Never reject an idea, dream or goal because it will be hard work. Success rarely comes without it.
+ - That is the good stuff that comes into our life and it’s based on the good stuff that goes out of our life!
+ - The ability to Self-Motivate is a cornerstone of true wealth.
+ - We all work with one Infinite Power. We all guide ourselves by exactly the same laws.
+ - We need to make a game out of earning money. There is so much good we can do with money. Without it, we are bound and shackled and our choices become limited.
+ - The biggest gap in your life is between what you know and what you do.
+ - You don’t decide what your purpose is in life you discover it. Your purpose is your reason for living.
+ - What you sow, you reap. It’s a law of nature. Network Marketing is perfectly aligned with that. You get truly, EXACTLY what you’re worth! No nepotism, no favoritism. That’s rare today.
+ - Chances are, if you are following the crowd, you’re following the wrong path.
+ - Disease cannot live in a body that’s in a healthy emotional state.
+ - The opposite of Taking A Risk is of course Playing It Safe. You must admit though, Playing It Safe is a pretty dull way to live. On a score of one to ten as a Risk Taker where do you stand? Add a little spice to your life today and take a risk.
+ - If you’re thinking of debt, that’s what you’re going to attract.
+ - You never die from a snake bite, you can’t be unbitten it’s in the way, what continues to pour through you long after the bite has taken place.
+ - Learn to follow the quiet voice within that speaks in feelings rather than words; follow what you ‘hear’ inside, rather than what others may be telling you to do.
+ - Money will make you more of what you already are. If you’re not a nice person, money’s going to make you a despicable individual. If you’re a good person, money’s going to make you a better person.
+ - The thing that keeps me going is that I love what I am doing. And I stay young because I don’t hang around old people, if you hang around old people you are going to become old!
+ - What does your attitude proclaim to the world about you today? It is never to late to change your story, start by changing your thoughts and pay attention to your attitude.
+ - Whether you are someone who has been working for many years, or someone just starting down that path, or someone who is still studying, your journey to financial well-being is not far from where you are now.
+ - The person who has a highly evolved will they think, they build an image and they focus on that image.
+ - Reasoning is the mental tool that use to think with.
+ - Most people are not going after what they want. Even some of the most serious goal seekers and goal setters, they’re going after what they think they can get. Set your sights higher.
+ - Viktor Frankl said the Concentration camp survivalist said no matter how much mental or physical abuse had been given nobody could cause him to think about anything he didn’t want to think about.
+ - One difference between successful people and all the rest is that successful people take action.
+ - We have to understand there are two parts of our mind, there’s the conscious and the subconscious. It’s the subconscious that controls our behavior. It’s the conscious mind where the intellect is resident. So the conscious mind is understanding information, but it’s not internalizing it.
+ - Getting what you want doesn’t make you happy, growth makes you happy, raising your level of consciousness. The problem with most people, they don’t know what they want because they start at a very early age being programmed to think that they can’t have what they want.
+ - If there were no limitations or consequences, what would your perfect average day look like?
+ - I will meet the world’s demands and win!
+ - Your body is molecular structure your body is a massive energy at a very high speed of vibration.
+ - When you turn that fantasy into a fact, you are in a position to build even better fantasies. And that, my friend, is the Creative Process.
+ - If you can conceive it in your mind, then it can be brought to the physical world.
+ - You are the only problem you will ever have and you are the only solution.
+ - You do not become a real pro in your field by doing certain things – you become a pro in your field by doing things in a certain way.
+ - I think earning money is the simplest thing in the world once you learn how to do it. It’s like driving a car. It’s simple if you know how to do it.
+ - The secret gives you anything you want; happiness, health, and wealth.
+ - Where does she get all the energy? Where does he get all the energy? Nobody GET’s energy. Everybody releases energy.
+ - The image of your goal properly planted and constantly nourished with positive, expectant thought-energy will cause your goal to develop into a burning desire.
+ - Constantly look for the good in people and in situations. When you find it, tell the person.
+ - We’re taught to trade. We’re not taught to give.
+ - You can change your health, you can change your relationships, you can change your income, you can change anything.
+ - Money is only used for two things. One, it’s to make you comfortable, and the more comfortable you are the more creative you will become. And the other purpose is it enables you to extend the service you provide far beyond your own presence.
+ - You and I have the decision to decide what we are going to be with our life! Or we can let the paradigm control us and march along in lockstep type fashion.
+ - If you love something and stick with it, you will get phenomenal results.
+ - See yourself in abundance and you will attract it. It works every time, with every person.
+ - You want to make sure that your purpose is something people can benefit from long after you’re gone.
+ - Once you define exactly what your purpose is you won’t even have to try to figure out how to make money. The ideas will flow freely as if someone was whispering in your ear. Everything will come together beautifully.
+ - To change your life, you have to change your life.
+ - The forces you are struggling with, that you feel are holding you back – are illusions. They are not real – they never have been. See only the good that you desire in your mind.
+ - Your purpose is why you you’re living, your vision is how you’re going to execute it.
+ - You must strive to become much less susceptible to influences outside of yourself and much more inclined to trust the instincts and feelings that lie within you.
+ - Goal setting is the essence of life. Tenaciously pursue your goals not for external praise but for inner reward. It makes you a better person, parent, professional. It is important to be constantly growing.
+ - You shape your own life, and the shape of your life is determined to a great extent by your attitude. This is an area that you can control, and in learning how to control and direct it, you will have great power over what is going to happen.
+ - Train your mind to see in all people, what they do not see in themselves. Begin to treat every person you come in contact with as the most important person in the world. Look at them with new awareness.
+ - If it’s not broken, tinker with it till you find out how it works.
+
+169 quotes

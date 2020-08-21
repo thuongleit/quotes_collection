@@ -1,0 +1,502 @@
+ - Be the change you wish to see in the world.
+ - Live as if you were to die tomorrow. Learn as if you were to live forever.
+ - The future depends on what you do today.
+ - First they ignore you, then they ridicule you, then they fight you, and then you win.
+ - Happiness is when what you think, what you say, and what you do are in harmony.
+ - Nobody can hurt me without my permission.
+ - The weak can never forgive. Forgiveness is the attribute of the strong.
+ - You may never know what results come of your actions, but if you do nothing, there will be no results.
+ - Your beliefs become your thoughts, your thoughts become your words, your words become your actions, your actions become your habits, your habits become your values, your values become your destiny.
+ - The best way to find yourself is to lose yourself in the service of others.
+ - Where there is love there is life.
+ - Action expresses priorities.
+ - A man is but the product of his thoughts. What he thinks, he becomes.
+ - Strength does not come from physical capacity. It comes from an indomitable will.
+ - My life is my message.
+ - An eye for an eye will only make the whole world blind.
+ - Earth provides enough to satisfy every man’s needs, but not every man’s greed.
+ - In a gentle way, you can shake the world.
+ - Whatever you do will be insignificant, but it is very important that you do it.
+ - In doing something, do it with love or never do it at all.
+ - The day the power of love overrules the love of power, the world will know peace.
+ - Freedom is not worth having if it does not include the freedom to make mistakes.
+ - The simplest acts of kindness are by far more powerful than a thousand heads bowing in prayer.
+ - If you want to change the world, start with yourself.
+ - You can chain me, you can torture me, you can even destroy this body, but you will never imprison my mind.
+ - Hate the sin, love the sinner.
+ - Live simply so that others may simply live.
+ - There is more to life than simply increasing its speed.
+ - Seek not greater wealth, but simpler pleasure; not higher fortune, but deeper felicity.
+ - Truth never damages a cause that is just.
+ - Speak only if it improves upon the silence.
+ - You must not lose faith in humanity. Humanity is an ocean; if a few drops of the ocean are dirty, the ocean does not become dirty.
+ - To lose patience is to lose the battle.
+ - God has no religion.
+ - It is health that is real wealth and not pieces of gold and silver.
+ - I will not let anyone walk through my mind with their dirty feet.
+ - When I despair, I remember that all through history the way of truth and love have always won. There have been tyrants and murderers, and for a time, they can seem invincible, but in the end, they always fall. Think of it – always.
+ - The greatness of a nation and its moral progress can be judged by the way its animals are treated.
+ - Every worthwhile accomplishment, big or little, has its stages of drudgery and triumph: a beginning, a struggle and a victory.
+ - The difference between what we do and what we are capable of doing would suffice to solve most of the world’s problems.
+ - Man often becomes what he believes himself to be. If I keep on saying to myself that I cannot do a certain thing, it is possible that I may end by really becoming incapable of doing it. On the contrary, if I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.
+ - The path is the goal.
+ - If I have the belief that I can do it, I shall surely acquire the capacity to do it even if I may not have it at the beginning.
+ - Our ability to reach unity in diversity will be the beauty and the test of our civilization.
+ - When the ego dies, the soul awakes.
+ - Nonviolence is a weapon of the strong.
+ - To believe in something, and not to live it, is dishonest.
+ - Seven Deadly Sins Wealth without work Pleasure without conscience Science without humanity Knowledge without character Politics without principle Commerce without morality Worship without sacrifice.
+ - Whenever you are confronted with an opponent. Conquer him with love.
+ - They cannot take away our self respect if we do not give it to them.
+ - I offer you peace. I offer you love. I offer you friendship. I see your beauty. I hear your need. I feel your feelings.
+ - There is no school equal to a decent home and no teacher equal to a virtuous parent.
+ - Poverty is the worst form of violence.
+ - A thousand candles can be lighted from the flame of one candle, and the life of the candle will not be shortened. Happiness can be spread without diminishing that of yourself.
+ - You don’t know who is important to you until you actually lose them.
+ - I call him religious who understands the suffering of others.
+ - Truth is one, paths are many.
+ - A ‘No’ uttered from the deepest conviction is better than a ‘Yes’ merely uttered to please, or worse, to avoid trouble.
+ - Silence becomes cowardice when occasion demands speaking out the whole truth and acting accordingly.
+ - There are many causes I would die for. There is not a single cause I would kill for.
+ - Each one has to find his peace from within. And peace to be real must be unaffected by outside circumstances.
+ - A coward is incapable of exhibiting love; it is the prerogative of the brave.
+ - Prayer is the key of the morning and the bolt of the evening.
+ - I want freedom for the full expression of my personality.
+ - Power is of two kinds. One is obtained by the fear of punishment and the other by acts of love. Power based on love is a thousand times more effective and permanent than the one derived from fear of punishment.
+ - Fearlessness is the first requisite of spirituality. Cowards can never be moral.
+ - Nothing has saddened me so much in life as the hardness of heart of educated people.
+ - There is force in the universe, which, if we permit it, will flow through us and produce miraculous results.
+ - There are people in the world so hungry, that God cannot appear to them except in the form of bread.
+ - I like your Christ, I do not like your Christians. Your Christians are so unlike your Christ.
+ - Always aim at complete harmony of thought and word and deed. Always aim at purifying your thoughts and everything will be well.
+ - I cannot conceive of a greater loss than the loss of one’s self-respect.
+ - Prayer is not asking. It is a longing of the soul. It is daily admission of one’s weakness. It is better in prayer to have a heart without words than words without a heart.
+ - A customer is the most important visitor on our premises, he is not dependent on us. We are dependent on him.
+ - My imperfections and failures are as much a blessing from God as my successes and my talents and I lay them both at his feet.
+ - I object to violence because when it appears to do good, the good is only temporary; the evil it does is permanent.
+ - It is easier to build a boy than to mend a man.
+ - Nothing is so aggravating as calmness.
+ - In the midst of death life persists, in the midst of untruth, truth persists, in the midst of darkness light persists.
+ - There is no ‘way to peace,’ there is only ’peace.
+ - They may torture my body, break my bones, even kill me. Then they will have my dead body, but not my obedience.
+ - If I had no sense of humor, I would long ago have committed suicide.
+ - It is wrong and immoral to seek to escape the consequences of one’s acts.
+ - If we are to reach real peace in the world, we shall have to begin with the children.
+ - Honest differences are often a healthy sign of progress.
+ - What barrier is there that love cannot break?
+ - Love is the strongest force the world possesses and yet it is the humblest imaginable.
+ - The expert knows more and more about less and less until he knows everything about nothing.
+ - Manliness consists not in bluff, bravado or loneliness. It consists in daring to do the right thing and facing consequences whether it is in matters social, political or other. It consists in deeds not words.
+ - There is nothing that wastes the body like worry, and one who has any faith in God should be ashamed to worry about anything whatsoever.
+ - It is unwise to be too sure of one’s own wisdom. It is healthy to be reminded that the strongest might weaken and the wisest might err.
+ - To my mind, the life of a lamb is no less precious than that of a human being.
+ - The future of India lies in its villages.
+ - Liberty and democracy become unholy when their hands are dyed red with innocent blood.
+ - Faith is not something to grasp, it is a state to grow into.
+ - Yes I am, I am also a Muslim, a Christian, a Buddhist, and a Jew.
+ - It is easy enough to be friendly to one’s friends. But to befriend the one who regards himself as your enemy is the quintessence of true religion. The other is mere business.
+ - I cannot teach you violence, as I do not myself believe in it. I can only teach you not to bow your heads before any one even at the cost of your life.
+ - The seeker after truth should be humbler than the dust. The world crushes the dust under its feet, but the seeker after truth should so humble himself that even the dust could crush him. Only then, and not till then, will he have a glimpse of truth.
+ - The true measure of any society can be found in how it treats its most vulnerable members.
+ - I believe in the fundamental truth of all great religions of the world.
+ - Be truthful, gentle, and fearless.
+ - I believe in equality for everyone, except reporters and photographers.
+ - I do not regard flesh-food as necessary for us at any stage and under any clime in which it is possible for human beings ordinarily to live, I hold flesh-food to be unsuited to our species.
+ - Peace is not the absence of conflict, but the ability to cope with it.
+ - Education is the basic tool for the development of consciousness and the reconstitution of society.
+ - The enemy is fear. We think it is hate; but, it is fear.
+ - Patience means self-suffering.
+ - A small group of determined and like-minded people can change the course of history.
+ - There is no such thing as ‘too insane’ unless others turn up dead due to your actions.
+ - All good thoughts and ideas mean nothing without action.
+ - What difference does it make to the dead, the orphans and the homeless, whether the mad destruction is wrought under the name of totalitarianism or in the holy name of liberty or democracy?
+ - Wherever you are you will always be in my heart.
+ - Prayer is not an old woman’s idle amusement. Properly understood and applied, it is the most potent instrument of action.
+ - If you don’t ask, you don’t get it.
+ - There’s no God higher than truth.
+ - A society grows great when old men plant trees whose shade they know they shall never sit in. An ounce of practice is worth more than tons of preaching.
+ - Speed is irrelevant if you are going in the wrong direction.
+ - Find purpose. The means will follow.
+ - The day a woman can walk freely on the roads at night, that day we can say that India has achieved independence.
+ - Live every day like it is your last and learn everyday like you will live forever.
+ - Continue to grow and evolve.
+ - Tolerance is the only thing that will enable persons belonging to different religions to live as good neighbours and friends.
+ - Behaviour is the mirror in which we can display our image.
+ - A correct diagnosis is three-fourths the remedy.
+ - Without action, you aren’t going anywhere.
+ - Be congruent, be authentic, be your true self.
+ - The Bhagavad-Gita calls on humanity to dedicate body, mind and soul to pure duty and not to become mental voluptuaries at the mercy of random desires and undisciplined impulses.
+ - When the panchayat raj is established, public opinion will do what violence can never do.
+ - I have so much to accomplish today that I must meditate for two hours instead of one.
+ - Adversity is the mother of progress.
+ - A nation’s greatness is measured by how it treats its weakest members.
+ - I saw that bad handwriting should be regarded as a sign of an imperfect education.
+ - Mass illiteracy is India’s sin and shame and must be liquidated.
+ - By education, I mean an all-round drawing of the best in child and man in body, mind and spirit.
+ - Anger and intolerance are the enemies of correct understanding. The best way to find yourself is to lose yourself in the service of others. You must be the change you wish to see in the world.
+ - A burning passion coupled with absolute detachment is the key to all success.
+ - Sanitation is more important than Independence.
+ - Hesitating to act because the whole vision might not be achieved, or because others do not yet share it, is an attitude that only hinders progress.
+ - No culture can live if it attempts to be exclusive.
+ - Keep my word positive. Words become my behaviors. Keep my behaviors positive. Behaviors become my habits. Keep my habits positive. Habits become my values. Keep my values positive. Values become my destiny.
+ - A plea for the spinning wheel is a plea for recognizing the dignity of labour.
+ - The only tyrant I accept in this world is the ‘still small voice’ within me. And even though I have to face the prospect of being a minority of one, I humbly believe I have the courage to be in such a hopeless minority.
+ - To a pure heart all hearts are pure.
+ - Nothing is impossible for pure love.
+ - True beauty lies in purity of the heart.
+ - We may stumble and fall but shall rise again; it should be enough if we did not run away from the battle.
+ - A nation’s culture resides in the hearts and in the soul of its people.
+ - Truth is my religion and ahimsa is the only way of its realization.
+ - I am a Hindu because it is Hinduism which makes the world worth living. I am a Hindu hence I Love not only human beings, but all living beings.
+ - Hindu Dharma is like a boundless ocean teeming with priceless gems. The deeper you dive the more treasures you find.
+ - Meditation is waiting on God.
+ - The greatness of humanity is not in being human, but in being humane.
+ - Start changing yourself if you want to change the life around you.
+ - If you do what you enjoy doing you’ll never have to work hard.
+ - Ahimsa is the height of Kshatriya dharma as it represents the climax of fearlessness.
+ - I am a Christian and a Hindu and a Muslim and a Jew.
+ - Relationships are based on four principles: respect, understanding, acceptance and appreciation.
+ - God alone knows absolute Truth.
+ - Each night, when I go to sleep, I die. And the next morning, when I wake up, I am reborn.
+ - The sole aim of journalism should be service.
+ - The English language is so elastic that you can find another word to say the same thing.
+ - Morality is the basis of things and truth is the substance of all morality.
+ - Freedom and slavery are mental states.
+ - Freedom of the press is a precious privilege that no country can forego.
+ - Everyone who wills can hear the inner voice. It is within everyone.
+ - It’s not too late at all. You just don’t yet know what you are capable of.
+ - If you worry about yesterday’s failures, then today’s successes will be few. The future depends on what we do in the present.
+ - Literacy in itself is no education.
+ - The khadi spirit means also an infinite patience.
+ - No two leaves were alike, and yet there is no antagonism between them or between the branches on which they grow.
+ - There are Seven Deadly Social Sins: Politics without principle. Wealth without work. Commerce without morality. Pleasure without conscience. Education without character. Science without humility. Worship without sacrifice.
+ - Satisfaction lies in the effort, not in the attainment.
+ - There is enough for the need of everyone in this world, but not for the greed of everyone.
+ - The goal ever recedes from us. The greater the progress the greater the recognition of our unworthiness. Satisfaction lies in the effort, not in the attainment. Full effort is full victory.
+ - If untouchability lives, humanity must die.
+ - We often confuse spiritual knowledge with spiritual attainment. Spirituality is not a matter of knowing scriptures and engaging in philosophical discussions. It is a matter of heart culture, of unmeasurable strength.
+ - The khadi spirit means fellow-feeling with every human being on earth.
+ - The law of love knows no bounds of space or time.
+ - Man is the maker of his own destiny, and I therefore ask you to become makers of your own destiny.
+ - Corruption and hypocrisy ought not to be inevitable products of democracy, as they undoubtedly are today.
+ - Civil disobedience becomes a sacred duty when the state has become lawless or corrupt. And a citizen who barters with such a state shares in its corruption and lawlessness.
+ - I am a proud staunch Sanatani Hindu.
+ - There are two days in the year that we can not do anything, yesterday and tomorrow.
+ - Champions are made from something they have deep inside of them-a desire, a dream, a vison.
+ - Glory lies in the attempt to reach one’s goal and not in reaching it.
+ - The earth, the air, the land and the water are not an inheritance from our fore fathers but on loan from our children. So we have to handover to them at least as it was handed over to us.
+ - Compassion is a muscle that gets stronger with use.
+ - The greater the realization of truth and ahimsa, the greater the illumination.
+ - Solitude is a catalyst for innovation.
+ - An ounce of practice is worth more than tons of preaching.
+ - Peace is its own reward.
+ - My fight against untouchability is a fight against the impure in humanity.
+ - Simplicity is the essence of universality.
+ - In the midst of darkness, light persists.
+ - True education is that which proves useful in life and makes you industrious.
+ - Knowledge gained through experience is far superior and many times more useful than bookish knowledge.
+ - Self-respect knows no considerations.
+ - Swadeshi is the only doctrine consistent with the law of humanity and love.
+ - Our greatest ability as humans is not to change the world; but to change ourselves.
+ - My nationalism is as broad as my swadeshi, I want India’s rise so that the whole world may benefit.
+ - There is a higher court than courts of justice and that is the court of conscience. It supercedes all other courts.
+ - It took Britain half the resources of the planet to achieve its prosperity; how many planets will a country like India require?
+ - The world is big enough to satisfy everyones needs, but will always be too small to satisfy everyones greed.
+ - What we are doing to the forests of the world is but a mirror reflection of what we are doing to ourselves and to one another.
+ - The Charkha is the symbol of nonviolence on which all life, if it is to be real life, must be based.
+ - Truth and nonviolence are as old as the hills.
+ - Outward Peace is useless without inner Peace.
+ - Faith is like the Himalaya mountains which cannot possibly change.
+ - Full effort is full victory.
+ - I believe in absolute oneness of God and therefore also of humanity.
+ - Indian nationalism is not exclusive, nor aggressive, nor destructive.
+ - A life without vows is like a ship without an anchor or like an edifice that is built on sand instead of a solid rock.
+ - The only devils in the world are those running around in our own hearts – that is where the battle should be fought.
+ - It is the quality of our work which will please God and not the quantity.
+ - You assist an evil system most effectively by obeying its orders and decrees. An evil system never deserves such allegiance. Allegiance to it means partaking of the evil. A good person will resist an evil system with his or her whole soul.
+ - Untouchability is a hydra-headed monster.
+ - My religion teaches me to love all equally.
+ - The best politics is right action.
+ - Non-cooperation with evil is as much a duty as is cooperation with good.
+ - I suppose leadership at one time meant muscles; but today it means getting along with people.
+ - Anger is the enemy of non-violence and pride is a monster that swallows it up.
+ - Think for tomorrow but act for today.
+ - My idea of village SWARAJ is that is a complete republic, independent of its neighbors for its own vital wants, and yet interdependent for many others which dependence is a necessity.
+ - The human voice can never reach the distance that is covered by the still small voice of conscience.
+ - I do not want my house to be walled in on all sides and my windows to be stuffed. I want the culture of all lands to be blown about my house as freely as possible. But I refuse to be blown off my feet by any.
+ - The music of the spinning wheel will be as balm to your soul.
+ - Anger and intolerance are the enemies of correct understanding.
+ - Truth, purity, self-control, firmness, fearlessness, humility, unity, peace, and renunciation – these are the inherent qualities of a civil resister.
+ - Justice that love gives is a surrender, justice that law gives is a punishment.
+ - Fear is not a disease of the body; fear kills the soul.
+ - Selfless action is a source of strength.
+ - Violent nationalism, otherwise known as imperialism, is a curse.
+ - It is beneath human dignity to lose one’s individuality and become a mere cog in the machine.
+ - Even if the whole of India, ranged on one side, were to declare that Hindu-Muslim unity is impossible, I will declare that it is perfectly possible.
+ - May the work of your hands be a sign of gratitude and reverence to the human condition.
+ - There is no beauty in the finest cloth if it makes hunger and unhappiness.
+ - In true democracy every man and woman is taught to think for himself or herself.
+ - Love is the humblest yet the most powerful force that the human being has.
+ - Change yourself – you are in control.
+ - Where there is only a choice between cowardice and violence, I would advise violence.
+ - Generosity consists not the sum given, but the manner in which it is bestowed.
+ - Joy lies in the fight, in the attempt, in the suffering involved, not in the victory itself.
+ - India’s way is not Europe’s. India is not Calcutta and Bombay. India lives in her seven hundred thousand villages.
+ - Friendship that insists upon agreement on all matters is not worth the name. Friendship to be real must ever sustain the weight of honest differences, however sharp they be.
+ - The need of the moment is not one religion, but mutual respect and tolerance of the devotees of the different religions.
+ - Distinguish between real needs and artificial wants and control the latter.
+ - The test of friendship is assistance in adversity, and that, too, unconditional assistance.
+ - Journalism has become the art of “intelligent anticipation of events.”
+ - True knowledge gives a moral standing and moral strength.
+ - Live like Jesus did, and the world will listen.
+ - It is the law of love that rules mankind.
+ - One can measure the greatness and the moral progress of a nation by looking at how it treats its animals.
+ - Recall the face of the poorest and weakest man you have seen, and ask yourself if this step you contemplate is going to be any use to him.
+ - Khadi service, village service and Harijan service are one in reality, though three in name.
+ - Nonviolence is the first article of my faith. It is also the last article of my creed.
+ - Homeopathy cures a larger percentage of cases than any other form of treatment and is beyond doubt safer and more economical.
+ - A satyagrahi lays down his life, but never gives up. That is the meaning of the ‘do or die’ slogan.
+ - Truth and ahimsa will never be destroyed.
+ - Ravana was a rakshasa but this rakshasi of untouchability is even more terrible than Ravana.
+ - Peace is the most powerful weapon of mankind.
+ - Not to have control over the senses is like sailing in a rudderless ship, bound to break to pieces on coming in contact with the very first rock.
+ - Love never claims, it ever gives. Love ever suffers, never resents never revenges itself.
+ - Any young man, who makes dowry a condition to marriage, discredits his education and his country and dishonours womanhood.
+ - I learnt from Hussein how to achieve victory while being oppressed.
+ - Shraddha means self-confidence and self-confidence means faith in God.
+ - There are unjust laws as there are unjust men.
+ - Every moment of your life is infinitely creative and the universe is endlessly bountiful. Just put forth a clear enough request, and everything your heart desires must come to you.
+ - I understand democracy as something that gives the weak the same chance as the strong.
+ - Take care of this moment.
+ - Urbanization in India is a slow but sure death for her villages and villagers.
+ - Look at the sparrows; they do not know what they will do in the next moment. Let us literally live from moment to moment.
+ - Imperialism is a negation of God. It does ungodly acts in the name of God.
+ - What is life worth without trials and tribulations which are the salt of life.
+ - My nationalism, fierce though it is, is not exclusive, is not devised to harm any nation or individual.
+ - That economics is untrue which ignores or disregards moral values.
+ - Adaptability is not imitation. It means power of resistance and assimilation.
+ - Just as the body cannot exist without blood, so the soul needs the matchless and pure strength of faith.
+ - I do not want my house to be rounded by walls and my windows to be closed to other cultures. I wish to become familiar with the culture of lands as much as possible but I will not permit them to affect me or shake me from my own status.
+ - Terrorism and deception are weapons not of the strong, but of the weak.
+ - If I had to face only the Sermon on the Mount and my own interpretation of it, I should not hesitate to say, ‘O yes, I am a Christian.’
+ - Our children should not be so taught as to despise labour.
+ - The way of peace is the way of truth. Truthfulness is even more important than peacefulness.
+ - Sacrifice that causes pain is no sacrifice at all. True sacrifice is joy-giving and uplifting.
+ - To forget how to dig the earth and to tend the soil is to forget ourselves.
+ - The measure of a country’s greatness should be based on how well it cares for its most vulnerable populations.
+ - In nature there is a fundamental unity running through all the diversity we see about us. Religions are given to mankind so as to accelerate the process of realisation of fundamental unity.
+ - Literacy is not the end of education nor even the beginning.
+ - Even a single lamp dispels the deepest darkness.
+ - Every living faith must have within itself the power of rejuvenation if it is to live.
+ - In a true democracy of India, the unit is the village.
+ - You will eat not to satisfy your palate but your hunger. A self-indulgent man lives to eat; a self-restrained man eats to live.
+ - The secret of a happy life lies in renunciation. Renunciation is life.
+ - Real beauty is my aim.
+ - The truest test of civilization, culture and dignity is character and not clothing.
+ - Democracy disciplined and enlightened is the finest thing in the world. A democracy prejudiced, ignorant, superstitious, will land itself in chaos and may be self-destroyed.
+ - I do not want to foresee the future. I am concerned with taking care of the present. God has given me no control over the moment following.
+ - It is good to see ourselves as others see us. Try as we may, we are never able to know ourselves fully as we are, especially the evil side of us. This we can do only if we are not angry with our critics but will take in good heart whatever they might have to say.
+ - The moment there is suspicion about a person’s motives, everything he does becomes tainted.
+ - Ahimsa is an attribute of the brave. Cowardice and ahimsa don’t go together any more that water and fire.
+ - For us, patriotism is the same as the love of humanity.
+ - It is better to be violent, if there is violence in our hearts, than to put on the cloak of nonviolence to cover impotence.
+ - The history of the world is full of men who rose to leadership, by sheer force of self-confidence, bravery and tenacity.
+ - Everyone wants to be strong and self sufficient, but few are willing to put in the work necessary to achieve worthy goals.
+ - I believe in advaita, I believe in the essential unity of man and for that matter of all that lives.
+ - Public opinion alone can keep a society pure and healthy.
+ - God is conscience. He is even the atheism of the atheist.
+ - Think of the poorest person you know and see if your next act will be of any use to him.
+ - When faced with a choice between violence and cowardice, always choose violence.
+ - A congregational prayer is a means for establishing essential human unity though common worship.
+ - Ahimsa is the strongest force known.
+ - I look only to the good qualities of men. Not being faultless myself, I won’t presume to probe into the faults of others.
+ - You can’t shake hands with a closed fist.
+ - Nobody in this world possesses absolute truth. This is God’s attribute alone. Relative truth is all we know. Therefore, we can only follow the truth as we see it. Such pursuit of truth cannot lead anyone astray.
+ - Use truth as your anvil, nonviolence as your hammer and anything that does not stand the test when it is brought to the anvil of truth and hammered with nonviolence, reject it.
+ - Learn as if you will live forever.
+ - Individual liberty and interdependence are both essential for life in society.
+ - The press is called the Fourth Estate. It is definitely a power, but, to misuse that power is criminal.
+ - Fear has its use, but cowardice has none. I may not put my finger into the jaws of a snake, but the very sight of the snake need not strike terror into me.
+ - Persistent questioning and healthy inquisitiveness are the first requisite for acquiring learning of any kind.
+ - Hindu-Muslim unity, khaddar and removal of untouchability are to me the foundation of Swaraj.
+ - My commitment is to truth not consistency.
+ - Let us work together for unity and love.
+ - The Charkha is the symbol of sacrifice, and sacrifice is essential for the establishment of the image of the deity.
+ - The cottage industry of India had to perish in order that Lancashire might flourish.
+ - Man’s happiness really lies in contentment.
+ - When you make yourself into zero, your power becomes invincible.
+ - I am a man of peace. I believe in peace. But I do not want peace at any price.
+ - My greatest weapon is mute prayer.
+ - Passive resistance is a method of securing rights by personal suffering; it is the reverse of resistance by arms.
+ - Do not judge others. Be your own judge and you will be truly happy. If you will try to judge others, you are likely to burn your fingers.
+ - There is an indefinable mysterious Power that pervades everything.
+ - To a man with an empty stomach food is God.
+ - Freedom is never dear at any price. It is the breath of life. What would a man not pay for living?
+ - Blaming the wolf would not help the sheep much. The sheep must learn not to fall in the clutches of the wolf.
+ - Tulsidas’s Ramayana is a notable book because it is informed with the spirit of purity, pity and piety.
+ - Means are ends in the making.
+ - It does not require money, to live neat, clean and dignified...
+ - The object of basic education is the physical, intellectual and moral development of children through the medium of handicraft.
+ - It is difficult, but not impossible, to conduct strictly honest business.
+ - Life is an aspiration. Its mission is to strive after perfection, which is self-realization. The ideal must not be lowered because of our weaknesses or imperfections.
+ - What, however, left a deep impression on me was the reading of the Ramayana before my father. During part of his illness my father was in Porbandar. There every evening he used to listen to the Ramayana.
+ - Woman in the companion of man, gifted with equal mental capacities. She has the right to participate in the minutest details in the activities of man, and she has equal right to liberty of freedom and liberty with him.
+ - Everything we do is futile, but we must do it anyway.
+ - Let our first act each morning be the following resolve: I shall not fear anyone on Earth. I shall fear only God.
+ - If you give me rice, I’ll eat today; if you teach me how to grow rice, I’ll eat every day.
+ - The pure love of one soul can offset the hatred of millions.
+ - Truth without humility would be an arrogant caricature.
+ - The Truth is far more powerful than any weapon of mass destruction.
+ - The essence of all religions is one. Only their approaches are different.
+ - To a hungry man, a piece of bread is the face of God.
+ - Charkha is an instrument of service.
+ - An education which does not teach us to discriminate between good and bad, to assimilate the one and eschew the other, is a misnomer.
+ - When you surrender completely to God, as the only truth worth having, you find yourself in service of all that exists. It becomes your joy and recreation. You never tire of serving others.
+ - One man cannot do right in one department of life whilst he is occupied in doing wrong in any other department. Life is one indivisible whole.
+ - Cow-slaughter and man-slaughter are in my opinion two sides of the same coin.
+ - The Allah of Islam is the same as the God of Christians and the Ishwar of Hindus.
+ - Fight if you must on the path of righteousness and God will be with you.
+ - Jesus, to me, is a great world teacher among others.
+ - God resides in every human form, indeed in every particle of His creations, in everything that is on his earth.
+ - If light can come out of darkness, then alone can love emerge from hatred.
+ - Every home is a university and the parents are the teachers.
+ - True education must correspond to the surrounding circumstances or it is not a healthy growth.
+ - Hinduism dies if untouchability lives, and untouchability has to die if Hinduism is to live.
+ - Independence means voluntary restraints and discipline, voluntary acceptance of the rule of law.
+ - When I admire the wonders of a sunset or the beauty of the moon, my soul expands in the worship of the creator.
+ - A perfect Muslim is he from whose tongue and hands mankind is safe.
+ - Ahimsa and Truth are so intertwined that it is practically impossible to disentangle and separate them.
+ - It goes without saying that moderation and sobriety are of the very essence of vow-taking.
+ - The true source of rights is duty.
+ - Cow protection to me is infinitely more than mere protection of the cow.
+ - He who does not see God in the next person he meets need look no further.
+ - The notion of education through handicrafts rises from the contemplation of truth and love permeating life’s activities.
+ - I do not consider Hitler to be as bad as he is depicted. He is showing an ability which is amazing and he seems to be gaining his victories without much bloodshed.
+ - When I don’t understand something, I reach up and hold God’s hand. And we walk together in silence.
+ - Hatred can be overcome only by love.
+ - True ahimsa should wear a smile even on a deathbed brought about by an assailant. It is only with that ahimsa that we can befriend our opponents and win their love.
+ - Ahimsa and Truth are my two lungs. I cannot live without them.
+ - Service which is rendered without joy helps neither the servant nor the served.
+ - What do I think of Western civilization? I think it would be a very good idea.
+ - If the people resolve and carry out this programme of boycott and Swadeshi, they would not have to wait for Swaraj even for a year.
+ - You Christians look after a document containing enough dynamite to blow all civilisation to pieces, turn the world upside down and bring peace to a battle-torn planet. But you treat it as though it is nothing more than a piece of literature.
+ - Monotony is the law of nature. Look at the monotonous manner in which the sun rises. The monotony of necessary occupation is exhilarating and life giving.
+ - All crime is a kind of disease and should be treated as such.
+ - If every component part of the nation claims the right of self-determination for itself, there is no one nation and there is no independence.
+ - Truth is by nature self-evident. As soon as you remove the cobwebs of ignorance that surround it, it shines clear.
+ - My idea of society is that while we are born equal, meaning that we have a right to equal opportunity, all have not the same capacity.
+ - India’s freedom must revolutionize the world’s outlook upon Peace and War.
+ - If we have listening ears, God speaks to us in our own language, whatever that language be.
+ - Literary education is of no value, if it is not able to build up a sound character.
+ - Peace between countries must rest on the solid foundation of love between individuals.
+ - Untouchability, I hold, is a sin, if Bhagavadgita is one of our Divine Books.
+ - You can judge a society by the way it treats it’s animals.
+ - Swaraj for me means freedom for the meanest of countrymen.
+ - With every true friendship we build more firmly the foundations on which the peace of the whole world rests. Thought by thought and act by act, with every breath we build more firmly the kingdom of non-violence that is the true home of the spirit of humanity.
+ - The real ornament of woman is her character, her purity.
+ - Interdependence is and ought to be as much the ideal of man as self-sufficiency. Man is a social being.
+ - If we had the atom bomb, we would have used it against the British.
+ - Evolution of democracy is not possible if we are not prepared to hear the other side.
+ - I would like to bury myself in an Indian village, preferably in a Frontier village.
+ - The very first step in nonviolence is that we cultivate in our daily life, as between ourselves, truthfulness, humility, tolerance, loving kindness.
+ - Every fight is one between different angles of vision illuminating the same truth.
+ - Infinite striving to be the best is man’s duty; it is its own reward. Everything else is in God’s hands.
+ - It is poor faith that needs fair weather for standing firm. That alone is true faith that stands the foulest weather.
+ - The most violent weapon on earth is the table fork.
+ - Hatred is not essential for nationalism. Race hatred will kill the real national spirit.
+ - Religion is no test of nationality, but a personal matter between man and his God.
+ - Education without courage is like a wax statue – beautiful to look at but bound to melt at the first touch of a hot stuff.
+ - The external freedom won’t be given to us but in the exact measure as we’ve known at a given moment, to developing our internal freedom.
+ - A man of character will make himself worthy of any position he is given.
+ - Nonviolence is impossible without humility.
+ - Prayer can come in only when fasting has done its work. It can make fasting easy and bearable.
+ - You can’t lead a true life without suffering.
+ - What is faith if it is not translated into action?
+ - My life has been full of external tragedies and if they have not left any visible effect on me, I owe it to the teaching of the Bhagavadgita.
+ - If you would swim on the bosom of the ocean of Truth, you must reduce yourself to a zero.
+ - It is unwise to be too sure of one’s own wisdom.
+ - Let hundreds like me perish, but let truth triumph.
+ - Nonviolence requires great patience.
+ - Retaliation is counter-poison and poison breeds more poison. The nectar of Love alone can destroy the poison of hate.
+ - My heart rebels against any foreigner imposing on my country the peace which is here called Pax-Britannica.
+ - The concepts of truth may differ. But all admit and respect truth. That truth I call God. For sometime I was saying, “God is Truth,” but that did not satisfy me. So now I say, “Truth is God.”
+ - Purity of life is the highest and truest art.
+ - When restraint and courtesy are added to strength, the latter becomes irresistible.
+ - The bomb-throwers have discredited the cause of freedom, in whose name they threw the bombs.
+ - Individual liberty is allowed to man only to a certain extent. He cannot forget that he is a social being and his individual liberty has to be curtailed at every step.
+ - Freedom received though the efforts of others, however benevolent, cannot be retained when such effort is withdrawn.
+ - He who has a living faith in God will not do evil deeds with name of God on his lips.
+ - Through Khadi we teach the people the art of civil obedience to an institution which they have built up for themselves.
+ - A poet is one who can call forth the good latent in the human beast.
+ - Today, as it was 2,000 years ago, the Kingdom of God is within each of us. It is not within a church, a temple, a mosque or synagogue.
+ - The principle of ahimsa is hurt by every evil thought, by undue haste, by lying, by hatred, by wishing ill to anybody.
+ - The British Government in India constitutes a struggle between modern civilization, which is the Kingdom of Satan, and the ancient civilization, which is the Kingdom of God.
+ - Hinduism has absorbed the best of all the faiths of the world and in that sense Hinduism is not an exclusive religion.
+ - Seeing God face to face is to feel that He is enthroned in our hearts even as a child feels a mother’s affection without needing any demonstration.
+ - I trust men only because I trust God.
+ - The only tyrant I accept in this world is the still voice within.
+ - Truth is self-evident, nonviolence is its maturest fruit. It is contained in truth, but is not self-evident.
+ - Time is wealth, and the Gita says the Great Annihilator annihilates those who waste time.
+ - I should love to satisfy all, if I possibly can; but in trying to satisfy all, I may be able to satisfy none. I have, therefore, arrived at the conclusion that the best course is to satisfy one’s own conscience and leave the world to form its own judgment, favorable or otherwise.
+ - I believe that religious education must be the sole concern of religious associations.
+ - God sometimes does try to the uttermost those whom he wishes to bless.
+ - Strength of numbers is the delight of the timid. The Valiant in spirit glory in fighting alone.
+ - I do regard Islam to be a religion of peace in the same sense as Christianity, Buddhism and Hinduism are.
+ - It is the acid test of nonviolence that in a nonviolent conflict there is no rancor left behind, and in the end the enemies are converted into friends.
+ - The voice of the people may be said to be God’s voice, the voice of the Panchayat.
+ - God does not punish directly. His ways are inscrutable.
+ - Religion is one tree with many branches. As branches, you may say, religions are many, but as a tree, religion is only one.
+ - Service without humility is selfishness and egotism.
+ - The Swaraj of my dream is the poor man’s Swaraj.
+ - I came alone in this world, I have walked alone in the valley of the shadow of death, and I shall quit alone when the time comes.
+ - Even as a tree has a single trunk, but many branches and leaves, there is one religion but any number of faiths.
+ - The author of the Mahabharata has not established the necessity of physical warfare; on the contrary he has proved its futility.
+ - The wind of God’s grace is incessantly blowing. Lazy sailors on the sea of life do not take advantage of it. But the active and strong always keep the sails of their minds unfurled to catch the favorable winds and thus reach their destination very soon.
+ - Hypocrisy and distortion are passing currents under the name of religion.
+ - You assist an evil system most effectively by obeying its orders and decrees.
+ - The music of life is in danger of being lost in the music of the voice.
+ - Suffering cheerfully endured, ceases to be suffering and is transmuted into an ineffable joy.
+ - Man becomes great exactly in the degree in which he works for the welfare of his fellow-men.
+ - Civilization is that mode of conduct which points out to man the path of duty.
+ - Life will not be a pyramid with the apex sustained by the bottom, but an oceanic circle whose centre will be the individual.
+ - Of all the superstitions that affect India, none is so great as that a knowledge of the English language is necessary for imbibing ideas of liberty and developing accuracy to thought.
+ - Khadi mentality means decentralization of the production and distribution of the necessaries of life.
+ - The spinning wheel is as much a necessity of Indian life as air and water.
+ - I do regard spinning and weaving as a necessary part of any national system of education.
+ - Man is the center of a circle without a circumference, except the one he creates for himself.
+ - Violence begins with the fork.
+ - True happiness brings more richness than all the money in the world.
+ - I believe that there is no prayer without fasting and there is no real fast without prayer.
+ - Truth and untruth often co-exist; good and evil often are found together.
+ - That I want to destroy British imperialism is another matter, but I want to do so by converting those who are associated with it.
+ - If patience is worth anything, it must endure to the end of time. And a living faith will last in the midst of the blackest storm.
+ - Cow protection is the gift of Hinduism to the world.
+ - Without living Truth, God is nowhere.
+ - Fasting is futile unless it is accompanied by an incessant longing for self-restraint.
+ - Unity, to be real, must stand the severest strain without breaking.
+ - Honesty is incompatible with amassing a large fortune.
+ - Spiritual relationship is far more precious than physical. Physical relationship divorced from spiritual is body without soul.
+ - To forgive and accept injustice is cowardice.
+ - The untouchability of Hinduism is probably worse than that of the modern imperialists.
+ - Make injustice visible.
+ - Economic equality is the master-key to nonviolent independence.
+ - The dignity of man requires obedience to a higher law, to the strength of the spirit.
+ - The golden rule to apply in all such cases is resolutely to refuse to have what millions cannot.
+ - There is no road towards peace; peace is the road.
+ - Sympathy is what you have for someone after they die, pity you have for someone when they don’t have a date to the biggest dance of the year. Empathy is what I do to you when you judge me. Envy is having pity on yourself. Can you discern the rest for yourself?
+ - In times to come people will not judge us by the creed we profess or the label we wear or the slogans we shout, but, by our work, industry, sacrifice, honesty and purity of character.
+ - Democracy is an impossible thing until the power is shared by all, but let not democracy degenerate into mobocracy.
+ - A good person will resist an evil system with his whole soul. Disobedience of the laws of an evil state is therefore a duty.
+ - Truth is as hard as adamant and tender as a blossom.
+ - Mass civil disobedience is like an earthquake, a sort of general upheaval on the political plane.
+ - Kaffirs are as a rule uncivilized – the convicts even more so. They are troublesome, very dirty and live almost like animals.
+ - Unrestricted individualism is the law of the beast of the jungle.
+ - I believe that a man is the strongest soldier for daring to die unarmed.
+ - When a slave begins to take pride in his fetters and hugs them like precious ornaments, the triumph of the slave-owner is complete.
+ - Democracy is not a state in which people act like sheep.
+ - Responsibility will mellow and sober the youth and prepare them, for the burden they must discharge.
+ - The rich cannot accumulate wealth without the co-operation of the poor in society.
+ - The sacrifice which causes sorrow to the doer of the sacrifice is no sacrifice. Real sacrifice lightens the mind of the doer and gives him a sense of peace and joy. The Buddha gave up the pleasures of life because they had become painful to him.
+ - What is really needed to make democracy function is not knowledge of facts, but right education.
+
+500 quotes

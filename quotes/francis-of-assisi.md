@@ -1,0 +1,92 @@
+ - Start by doing what’s necessary; then do what’s possible; and suddenly you are doing the impossible.
+ - Preach the Gospel at all times and when necessary use words.
+ - For it is in giving that we receive.
+ - Lord, make me an instrument of thy peace. Where there is hatred, let me sow love.
+ - He who works with his hands is a laborer. He who works with his hands and his head is a craftsman. He who works with his hands and his head and his heart is an artist.
+ - Where there is darkness, let there be light.
+ - The only thing ever achieved in life without effort is failure.
+ - Ask the beasts and they will teach you the beauty of this earth.
+ - The one you are looking for is the one who is looking.
+ - Remember that when you leave this earth, you can take with you nothing that you have received – only what you have given: a full heart, enriched by honest service, love, sacrifice and courage.
+ - The deeds you do may be the only sermon some persons will hear today.
+ - Lord, help me to live this day, quietly, easily. To lean upon Thy great strength, trustfully, restfully. To wait for the unfolding of Thy will, patiently, serenely. To meet others, peacefully, joyously. To face tomorrow, confidently, courageously.
+ - I have been all things unholy. If God can work through me, he can work through anyone.
+ - Do few things but do them well, simple joys are holy.
+ - All the darkness in the world cannot extinguish the light of a single candle.
+ - Where there is discord may we bring harmony. Where there is error, may we bring truth. Where there is doubt, may we bring faith. Where there is despair, may we bring hope.
+ - Where there is charity and wisdom, there is neither fear nor ignorance.
+ - What do you have to fear? Nothing. Whom do you have to fear? No one. Why? Because whoever has joined forces with God obtains three great privileges: omnipotence without power, intoxication without wine, and life without death.
+ - Sanctify yourself and you will sanctify society.
+ - We should seek not so much to pray but to become prayer.
+ - Preach always. Use words if necessary.
+ - Water is the mirror of nature.
+ - The journey is essential to the dream.
+ - Spiritual joy arises from purity of the heart and perseverance in prayer.
+ - Above all the grace and the gifts that Christ gives to his beloved is that of overcoming self.
+ - A single sunbeam is enough to drive away many shadows.
+ - It is no use walking anywhere to preach unless our walking is our preaching.
+ - Go out and preach the gospel and if you must, use words.
+ - The world is a great stage on which God displays his many wonders.
+ - No one is to be called an enemy, all are your benefactors, and no one does you harm. You have no enemy except yourselves.
+ - Make me an instrument of thy peace.
+ - Lord, grant that I might not so much seek to be loved as to love.
+ - Pleased be you, my Lord, with all your creatures, especially Sir Brother Sun, who is the day and through whom you give us light. And he is beautiful and radiant with great splendours and bears likeness of you, Most High One.
+ - Be patient in trials, watchful in prayer, and never cease working.
+ - Dear God, please reveal to us your sublime beauty, that is everywhere, everywhere, everywhere, so that we will never again feel frightened.
+ - True progress quietly and persistently moves along without notice.
+ - It was easy to love God in all that was beautiful. The lessons of deeper knowledge, though, instructed me to embrace God in all things.
+ - Here is one of the best means to acquire humility; fix well in mind this maxim: One is as much as he is in the sight of God, and no more.
+ - We have been called to heal wounds, to unite what has fallen away, and to bring home those who have lost their way. Many who seem to us to be children of the Devil will still become Christ’s disciples.
+ - You should never praise anyone until you see how he turns out in the end!
+ - Don’t change the world, change worlds.
+ - God could not have chosen anyone less qualified, or more of a sinner, than myself. And so, for this wonderful work He intends to perform through us, He selected me- for God always chooses the weak and the absurd, and those who count for nothing.
+ - St. Francis of Assisi was hoeing his garden when someone asked what he would do if he were suddenly to learn that he would die before sunset that very day. “I would finish hoeing my garden,” he replied.
+ - What is it that stands higher than words? Action. What is it that stands higher than action? Silence.
+ - While you are proclaiming peace with your lips, be careful to have it even more fully in your heart.
+ - Blessed is the servant who esteems himself no more highly when he is praised and exalted by people than when he is considered worthless, foolish, and to be despised; since what a man is before God, that he is and nothing more.
+ - When we pray to God we must be seeking nothing – nothing.
+ - Nor did demons crucify Him; it is you who have crucified Him and crucify Him still, when you delight in your vices and sins.
+ - By the anxieties and worries of this life Satan tries to dull man’s heart and make a dwelling for himself there.
+ - Be patient, because the weaknesses of the body are given to us in this world by God for the salvation of the soul. So they are of great merit when they are borne patiently.
+ - You can show your love to others by not wishing that they should be better Christians.
+ - You cannot all abandon your possessions, but at least you can change your attitude about them. All getting separates you from others; all giving unites to others.
+ - Be praised, My Lord, through Sister Water; she is very useful, and humble, and precious, and pure.
+ - Where there is injury let me sow pardon.
+ - He who works with his hands and his head and his heart is an artist.
+ - All getting separates you from others; all giving unites to others.
+ - The tree of love its roots hath spread Deep in my heart, and rears its head; Rich are its fruits: they joy dispense; Transport the heart, and ravish sense. In love’s sweet swoon to thee I cleave, Bless’d source of love.
+ - Be praised, O my Lord by Brother Wind, By air and cloud and every clime To whom Thou givest sustenance unto their kind.
+ - What does the poor man do at the rich man’s door, the sick man in the presence of his physician, the thirsty man at a limpid stream? What they do, I do before the Eucharistic God. I pray. I adore. I love.
+ - It would be considered a theft on our part if we didn’t give to someone in greater need than we are.
+ - Not to hurt our humble brethren is our first duty to them, but to stop there is not enough. We have a higher mission – to be of service to them whenever they require it.
+ - If we endure all things patiently and with gladness, thinking on the sufferings of our Blessed Lord, and bearing all for the love of Him: herein is perfect joy.
+ - Be Thou praised, my Lord, of our Sister Mother Earth, which sustains and hath us in rule, and produces divers fruits with coloured flowers and herbs.
+ - A man has only so much knowledge as he puts to work.
+ - It is not fitting, when one is in God’s service, to have a gloomy face or a chilling look.
+ - Our actions are our own; their consequences belong to Heaven.
+ - When I think of the happiness that is in store for me, every sorrow, every pain becomes dear to me.
+ - Our hands imbibe like roots, so i place them on what is beautiful in this world. And I fold them in prayer, and they draw from the heavens light.
+ - If you have men who will exclude any of God’s creatures from the shelter of compassion and pity, you will have men who will deal likewise with their fellow men.
+ - Alms are an inheritance and a justice which is due to the poor and which Jesus has levied upon us.
+ - I have sinned against my brother the ass.
+ - May the power of your love, Lord Christ, fiery and sweet as honey, so absorb our hearts as to withdraw them from all that is under heaven. Grant that we may be ready to die for love of your love, as you died for love of our love.
+ - I beg you to show the greatest possible reverence and honor for the most holy Body and Blood of our Lord Jesus Christ, through whom all things, whether on earth or in heaven, have been brought to peace and reconciled with Almighty God.
+ - What could you do to a man who owns nothing? You can’t starve a fasting man, you can’t steal from someone who has no money, you can’t ruin someone who hates prestige.
+ - Study always to have Joy, for it befits not the servant of God to show before his brother or another sadness or a troubled face.
+ - You damned spirits! You can only do what the hand of God allows you to do.
+ - If a superior give any order to one who is under him which is against that man’s conscience, although he do not obey it yet he shall not be dismissed.
+ - Jesus is happy to come with us, as truth is happy to be spoken, as life to be lived, as light to be lit, as love is to be loved, as joy to be given, as peace to be spread.
+ - We adore Thee most holy Lord Jesus Christ, here in all Thy Churches, which are in the whole world, because by Thy holy cross, Thou hast redeemed the world.
+ - Man should tremble, the world should vibrate, all heaven should be deeply moved when the Son of God appears on the altar in the hands of the priest.
+ - Hold back nothing of yourselves for yourselves so that He who gives Himself totally to you may receive you totally.
+ - Grant me the treasure of sublime poverty: permit the distinctive sign of our order to be that it does not possess anything of its own beneath the sun, for the glory of your name, and that it have no other patrimony than begging.
+ - Don’t canonize me too soon. I’m perfectly capable of fathering a child.
+ - The brave unfortunate are our best acquaintance.
+ - We should have no more use or regard for money in any of its forms than we have for dust. Those who think it is worth more, or who are greedy for it, expose themselves to the danger of being deceived by the Devil.
+ - A promise is a child of the understanding and the will; the understanding begets it, the will brings it forth.
+ - There is absolutely no man in the whole world who can possess one among you unless he first die.
+ - Grant me the treasure of sublime poverty.
+ - Every day He humbles Himself just as He did when from from His heavenly throne into the Virgin’s womb; every day He comes to us and lets us see Him in lowliness, when He descends from the bosom of the Father into the hands of the priest at the altar.
+ - Be praised, my Lord, through those who forgive for love of you; through those who endure sickness and trial.
+
+90 quotes

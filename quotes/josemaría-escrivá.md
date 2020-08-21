@@ -1,0 +1,53 @@
+ - An hour of study, for the modern apostle, is an hour of prayer.
+ - You need a heart which is in love, not an easy life, to achieve happiness.
+ - To begin is for everyone. To persevere is for saints.
+ - If you don’t have a plan of life, you’ll never have order.
+ - Don’t say, “That person bothers me.” Think: “That person sanctifies me”.
+ - To begin is easy; to persevere is sanctity.- Let your perseverance not be a blind consequence of the first impulse, the work of inertia: let it be a reflective perseverance.
+ - Either we learn to find the Lord in the ordinary everyday life or else we shall never find him.
+ - Put your heart aside. Duty comes first. But when fulfilling your duty, put your heart into it. It helps.
+ - Understand this well: there is something holy, something divine hidden in the most ordinary situations, and it is up to each one of you to discover it.
+ - You’re bored? That’s because you keep your senses awake and your soul asleep.
+ - The holy Rosary is a powerful weapon. Use it with confidence and you’ll be amazed at the results.
+ - Compromise is a word found only in the vocabulary of those who have no will to fight.
+ - Before, by yourself, you couldn’t. Now, you’ve turned to our Lady, and with her, how easy!
+ - There is need for a crusade of manliness and purity to counteract and nullify the savage work of those who think man is a beast. And that crusade is your work.
+ - If I love, there will be no hell for me.
+ - You strayed from the way and did not return because you were ashamed. It would be more logical if you were ashamed not to return.
+ - Love our Lady. And she will obtain abundant grace to help you conquer in your daily struggle.
+ - You always leave the Rosary for later, and you end up not saying it at all because you are sleepy. If there is no other time, say it in the street without letting anybody notice it. It will, moreover, help you to have presence of God.
+ - Don’t neglect your spiritual reading. – Reading has made many saints.
+ - God is here. This truth should fill our lives, and every Christmas should be for us a new and special meeting with God, when we allow his light and grace to enter deep into our soul.
+ - It’s true he was a sinner. But don’t pass so final a judgement. Have pity in your heart and don’t forget that he may yet be an Augustine, while you remain just another mediocrity.
+ - When you decide firmly to lead a clean life, chastity will not be a burden on you: it will be a crown of triumph.
+ - He has much who needs least. Do not create necessities for yourself.
+ - Among us there is no place for the lukewarm. Humble yourself, and Christ will kindle in you again the fire of love.
+ - You go to pray; to become a bonfire, a living flame, giving light and heat.
+ - Say the Holy Rosary. Blessed be that monotony of Hail Mary’s which purifies the monotony of your sins!
+ - For everyone, whatever his state – single, married, widowed, or priest-chastity is a triumphant affirmation of love.
+ - Have confidence. Return. Invoke our Lady and you’ll be faithful.
+ - Don’t judge without having heard both sides. Even persons who think themselves virtuous very easily forget this elementary rule of prudence.
+ - The heroic minute.- It is the time fixed for getting up.- Without hesitation: a supernatural reflection and.-.-.- up! The heroic minute: here you have a mortification that strengthens your will and does no harm to your body.
+ - You can be sure you are a man of God if you suffer injustice gladly and in silence.
+ - When we were little, we kept close to our mother in a dark alley or if dogs barked at us. Now, when we feel temptations of the flesh, we should run to the side of our Mother in Heaven, by realizing how she is to us, and by means of aspirations. She will defend us and lead us to the light.
+ - All the things that are now worrying you can be put into a smile which shows your love of God.
+ - Holy Purity is granted by God when it is asked for with humility.
+ - St. Joseph was an ordinary sort of man on whom God relied to do great things. He did exactly what the Lord wanted him to do, in each and every event that went to make up his life.
+ - There is no danger of exaggerating. We an never hope to fathom this inexpressible mystery nor will we ever be able to give sufficient thanks to our Mother for bringing us into such intimacy with the Blessed Trinity.
+ - Faith, joy, optimism. But not the folly of closing your eyes to reality.
+ - When you approach the tabernacle remember that he has been waiting for you for twenty centuries.
+ - If you say the Holy Rosary every day, with a spirit of faith and love, our Lady will make sure she leads you very far along her Son’s path.
+ - Our Lady listens attentively to what God wants, ponders what she doesn’t fully understand and asks about what she doesn’t know. Then she gives herself completely to doing the divine will.
+ - Don’t you long to shout to those youths who are bustling around you: Fools! Leave those worldly things that shackle the heart – and very often degrade it – leave all that and come with us in search of Love!
+ - Is it not true that your gloominess and bad temper are due to your lack of determination in breaking the subtle snares laid by your own disordered desires? The daily examination of conscience is an indispensible help if we are to follow our Lord with sincerity of heart and integrity of life.
+ - If you have so many defects, why are you surprised to find defects in others?
+ - May I give you some advice for you to put into practice daily? When your heart makes you feel those low cravings, say slowly to the Immaculate Virgin: Look on me with compassion. Don’t abandon me. Don’t abandon me, my Mother! – And recommend this prayer to others.
+ - All the sins of your life seem to be rising up against you. Don’t give up hope! On the contrary, call your holy mother Mary, with the faith and abandonment of a child. She will bring peace to your soul.
+ - Turn to Mary, tota pulchra, all pure and wonderful, and tell her: Our Lady and Mother, the Lord wanted you yourself to look after God and tend him with your own hands. Teach me, teach us all, how to treat your Son!
+ - We all must have the faith of children, but the doctrine of theologians.
+ - As soon as you willfully allow a dialogue with temptation to begin, the soul is robbed of peace, just as consent to impurity destroys grace.
+ - For those who use their intelligence and their study as a weapon, the Rosary is most effective. Because that apparently monotonous way of beseeching Our Lady as children do their Mother, can destroy every seed of vainglory and pride.
+ - Temptation is necessary to make us realize that we are nothing in ourselves.
+ - When you see the storm coming, if you seek safety in that firm refuge which is Mary, there will be no danger of your wavering or going down.
+
+51 quotes

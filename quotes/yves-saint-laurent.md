@@ -1,0 +1,58 @@
+ - Fashions fade, style is eternal.
+ - Dressing is a way of life.
+ - Without elegance of the heart, there is no elegance.
+ - The most beautiful clothes that can dress a woman are the arms of the man she loves. But for those who haven’t had the fortune of finding this happiness, I am there.
+ - I was born with a nervous breakdown.
+ - To be beautiful, woman enough to have a black sweater, black skirt and walk arm in arm with the man she loves.
+ - Over the years I have learned that what is important in a dress is the woman who is wearing it.
+ - The most beautiful makeup of a woman is passion. But cosmetics are easier to buy.
+ - When you feel good in a clothing anything can happen. A good clothing is a passport for happiness.
+ - Elegance is no longer significant; clothes have to be fun.
+ - My name will be written in fiery letters on the Champs Elysees.
+ - Isn’t elegance forgetting what one is wearing?
+ - A woman’s wardrobe shouldn’t change every six months. You should be able to use the pieces you already own and add to them. Because they are like timeless classics.
+ - I love black because it affirms, designs and styles. A woman in a black dress is a pencil stroke.
+ - For a woman, le smoking is an indispensable garment with which she finds herself continually in fashion, because it is about style, not fashion. Fashions come and go, but style is forever.
+ - I don’t really like knees.
+ - A good model can advance fashion by ten years.
+ - Dressing is a way of life. It brings you joy. It can give you freedom and liberation, help you to find yourself and to move without restraint. Isn’t elegance forgetting what one is wearing?
+ - Finding your own style is not easy, but once found it brings complete happiness. It gives you self-confidence, always.
+ - Blue Jeans? They should be worn by farm girls milking cows!
+ - Fashion is defined by what later becomes out of fashion.
+ - Fashions pass quickly, and nothing is more pathetic than those puppets of fashion outrageously made up one day, pale the next, pleated or ironed stiff, libertine or ascetic. Playing with fashion is an art. The first rule is don’t burn your wings.
+ - I pass for a hypersensitive, reclusive neurotic, which I may well be, but I hope the year won’t come when my anxieties and fatigue will destroy my love of this life, of all the things that inspire me – a line of music, a face in a Vermeer portrait, a character in an opera, or a model born in Harlem.
+ - I wish I had invented blue jeans. They have expression, modesty, sex appeal, simplicity – all I hope for in my clothes.
+ - Chanel freed women, and I empowered them.
+ - I’m so secluded. Very alone.
+ - Haute couture consists of secrets whispered from generation to generation, If, in ready-to-wear, a garment is manufactured according to standard sizes, the haute couture garment adapts to any imperfection in order to eliminate it.
+ - It pains me physically to see a woman victimized, rendered pathetic by fashion.
+ - I want to thank all the women who have worn my clothes, the famous and the unknown, who have been so faithful to me and given me so much joy.
+ - I’d really like to be in closer contact with life. I’m a little too distant, I guess. I like to place myself outside.
+ - What is wonderful about my art is that dream and reality can become one. There is just one step between the two.
+ - No more rules, the freedom of dressing. The beauty of mixing vintage clothes with a pair of jeans that I love.
+ - I have always believed that fashion was not only to make women more beautiful, but also to reassure them, give them confidence.
+ - For me, perfume, must be adapted to fashion, not the other way around.
+ - We must never confuse elegance with snobbery.
+ - I always believed that style was more important than fashion. They are rare, those who imposed their style while fashion makers are so numerous.
+ - I participated in the transformation of my era. I did it with clothes, which is surely less important than music, architecture, painting but whatever it’s worth I did it.
+ - I am no longer concerned with sensation and innovation, but with the perfection of my style.
+ - I don’t at all search for an ideal woman, but several ideal women.
+ - Fashion is like a party. Getting dressed is preparing to play a role.
+ - Elegance and beauty have been banished.
+ - I couldn’t love a woman who inspired me to be totally disinterested. If I fell in love with a woman for an artistic reason, or from the point of view of my work, I think it would rob her of something.
+ - I love women. I love all the bright and attractive people and things of this world, the flame and also the moth, the dancer and the dance.
+ - Anyone who reaches for great expression has to be careful of the ridiculous.
+ - The street and me is a love story. 1971 is a great date because, finally, fashion took to the street.
+ - I find men’s clothing fascinating because sometime between, say, 1930 and 1936 a handful of basic shapes were created and still prevail as a sort of scale of expression, with which every man can project his own personality and his own dignity.
+ - A designer who is not also a couturier, who hasn’t learned the most refined mysteries of physically creating his models, is like a sculptor who gives his drawings to another man, an artisan, to accomplish.
+ - Seeing Cubism paintings at the Beaubourg makes me very happy and also old films.
+ - I adore America. It’s an extraordinary country. A new country.
+ - Decadence attracts me. It suggests a new world, and, for me, society’s struggle between life and death is absolutely beautiful.
+ - I cannot pretend to do sculpture and make a woman the ridiculous pedestal of my pretensions. To render clothing poetic, yes – but one must preserve its dignity as clothing.
+ - There are women who have completely transformed my view of fashion.
+ - Each model I have represents a type of ideal women to me.
+ - I like to watch the way a model moves in my clothes, the way she gives them life, or if they are wrong, stillborn, the way her life rejects them.
+ - There are women who have completely transformed my view of fashion and if I hadn’t shown them I would never have arrived at this point in fashion, you see.
+ - I tried to show that fashion is an art. For that, I followed the counsel of my master Christian Dior and the imperishable lesson of Mademoiselle Chanel. I created for my era and I tried to foresee what tomorrow would be.
+
+56 quotes

@@ -1,0 +1,39 @@
+ - Time may heal all wounds, but it does not erase the scars.
+ - Literature is a textually transmitted disease, normally contracted in childhood.
+ - Sometimes living takes more courage than dying.
+ - Childrens books change lives. Stories pour into the hearts of children and help make them what they become.
+ - A book is a wonderful present. Though it may grow worn, it will never grow old.
+ - It’s never perfect when I write it down the first time, or the second time, or the fifth time. But it always gets better as I go over it and over it.
+ - Folklore is the perfect second skin. From under its hide, we can see all the shimmering, shadowy uncertainties of the world.
+ - Touch magic. Pass it on.
+ - You write to be read. That is the bottom line.
+ - Take a step, breathe in the world, give it out again in story, poem, song, art.
+ - Get up from your desk and wander outside occasionally. To be a good writer one needs to be a good observer, and there isn’t a lot to be observed at desk level.
+ - If you love a waist, you waste a love.
+ - Language helps develp life as surely as it reflects life. It is a most important part of our human condition.
+ - You are a name, not a number. Never forget that name, whatever they tell you here. You will always be Chaya – life – to me.
+ - A shadowless man is a monster, a devil, a thing of evil. A man without a shadow is soulless. A shadow without a man is a pitiable shred. Yet together, light and dark, they make a whole.
+ - You can only chase a butterfly for so long.
+ - Exercise the writing muscle every day.
+ - Aren’t hidden doors the most alluring? The old stories point that out surely. Even the greatest heroes and heroines fall under the spell of a locked door.
+ - A child who can love the oddities of a fantasy book cannot possibly be xenophobic as an adult. What is a different color, a different culture, a different tongue for a child who has already mastered Elvish, respected Puddleglums, or fallen under the spell of dark-skinned Ged?
+ - Well,? the Goddess said, ’your heart didn’t heal straight the last time it broke. So we’ll break it again and reset it so it heals straight this time.
+ - The magical story is not a microscope but a mirror, not a drop of water but a well. It is not simply one thing or two, but a multitude. It is at once both lucid and opaque, it accepts both dark and light, speaks to youth and old age.
+ - What makes a good book? Scholars and critics have been debating that question for decades. I like books that touch my head and my heart at the same time.
+ - We all have such stories. It is a brutal arithmetic. But I – I am alive. You are alive. As long as we breathe, we can see and hear. As long as we can remember, all those gone before are alive inside us.
+ - Fish are not the best authority on water.
+ - How often is the passing of one storm only a prelude to another.
+ - Ideas are the cheapest part of the writing. They are free. The hard part is what you do with ideas you’ve gathered.
+ - Know, my son, that the enemy will always be with you. He will be in the shadow of your dreams and in your living flesh, for he is the other part of yourself.
+ - The tales of Elfland do not stand or fall on their actuality but on their truthfulness, their speaking to the human condition, the longings we all have for the Faerie Other.
+ - Write, write, and write some more. Think of writing as a muscle that needs lots of exercise.
+ - Readers re-create any story to suit their own needs. They re-clothe the story in their own shirts. Put simply: just as we write the story we need to write, they read the story they need to read.
+ - Exercise the writing muscle every day, even if it is only a letter, notes, a title list, a character sketch, a journal entry. Writers are like dancers, like athletes. Without that exercise, the muscles seize up.
+ - Storytelling is our oldest form of remembering the promises we have made to one another and to our various gods, and the promises given in return; it is a way of recording our human emotions and desires and taboos.
+ - Wood may remain twenty years in the water, but it is still not a fish.
+ - If you want to write, you write. Talent is simply not enough.
+ - You know how it is: as soon as you decide to forget something, your brain comes to the conclusion that it’s the most fascinating thing in the world.
+ - Growth in the ability to write comes in spurts.
+ - The main plot line is simple: Getting your character to the foot of the tree, getting him up the tree, and then figuring out how to get him down again.
+
+37 quotes

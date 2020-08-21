@@ -1,0 +1,91 @@
+ - Perhaps self-esteem is just the sum of self-love and self-confidence. People with high self-esteem know they deserve a good life and that they can get almost everything they focus on!
+ - Live your life until love is found Or love’s gonna get you down.
+ - The stage is my territory, my boxing ring. That’s where I’m free.
+ - Oh, I’m quite harmless in real life.
+ - I kinda flirt with everything and everyone, no matter if it’s a tree or a coffee cup. I can’t resist.
+ - I was born out of classical music.
+ - I can’t just listen to music walking down the street unless I have a reason to. I can’t just listen to music as a piece of junk in the background. It drives me insane.
+ - Clear skies will mean you are happy. Rain will mean you’re crying. Sunset means you are embarrassed. Night will mean you are gently holding me.
+ - I have opinions on everything. I’m a stubborn old mule. The biggest problem is keeping my mouth shut.
+ - In the stock market, when you are right, you make a little money; when you are wrong, you learn a lot of lessons, so you always win!
+ - I am terrible at relationships.
+ - I’m not a great dancer. I know I’m not. But I know that I can move. I can throw shapes, just not in the right order.
+ - Life without hope, the slavery of mankind-a bondage so hopeless that slaves will no longer know they are slaves. Wealth without happiness, abundance without the power to enjoy it. The death of the spirit.
+ - They say shyness is a form of egotism, and you are only shy because you care too much about what people think of you. And maybe its true, maybe I am just an egotist.
+ - Never trust a man in red trousers.
+ - My relationship with my mother is not cute.
+ - Life is a hot day, perhaps death is a cool night. Life is a shallow bay, perhaps death is a clear, deep sea.
+ - Grace Kelly was written after these musicians were trying to mold me into what I should be. I was really angry and so I wrote the song and mailed them the lyrics. They didn’t call me back, but two years later it’s come full circle.
+ - Strangely, I feel that I become increasingly reclusive in my normal life and more open and candid in my music.
+ - I wish I had more guts when I was younger because then I would’ve said things to people’s faces instead of just running away all the time.
+ - I’m not creating an enigma or leaving mystery, I’m just respecting myself enough as an artist to give myself room to grow and not to be devoured all in one go.
+ - Did you know, I’m still in love with this blue sky until forever and ever, eternally.
+ - I was always told that I was too strange or that I was too cheesy by different groups of people, like the record companies said I was way too weird and the indie people wouldn’t even let me in their band.
+ - A decision once taken brings peace to a man’s mind and eases his soul.
+ - I was brought up in many different cultures, moving around all the time, and I find my identity in my songs. I project the identity I want to have throughout the songs that I write.
+ - Zen is just a lifestyle, your everyday life. It is doing your best at your job, relationships, health, hobbies, and other daily activities!
+ - I was always told I was ugly. I still think I am ugly. I know I’ve got an odd face and you can’t tell me otherwise.
+ - I love collaborating with strong women.
+ - I write songs about fat girls and about men who run off to Mexico.
+ - The one thing about me is that I don’t even know where I’ll end up, and I don’t know what I’ll be doing but I know that I’ll never really stop.
+ - My real name is Mica, spelled with a C. My dad is called Michael. He wanted me to be called Michael but my mother said over her dead body. She wasn’t into the whole junior thing.
+ - So much is man the slave of his heart that he will shut his eyes to what does not please him and believe all that he hopes.
+ - During my life I have seen, known, and lost too much to be the prey of vain dread; and, as for the hope of immortality, I am as weary of that as I am of gods and kings. For my own sake only I write this; and herein I differ from all other writers, past and to come.
+ - I am very suspicious of people.
+ - I don’t know where my father is from. I just don’t. He’s lived in so many countries.
+ - I never talk about anything to do with my sexuality.
+ - I’ve always said in the press, I can fall in love with a man. I can fall in love with a woman. And I’ve always said that I have no shame in that.
+ - I think, ‘How could anybody mock a good pop song?’ It is timeless; it transcends barriers; it breaks down every single type of social barrier that you can possibly have. It can deal with the most difficult subjects, even if it abstracts the subject matter.
+ - I was quite the quiet teenager. I was a bit of a loner, a little bit of an outsider.
+ - In fact, no one has ever really wanted to go on a date with me.
+ - When you’re not part of a club, you have to find another way of surviving.
+ - Over the past few days I have been fighting off a virus that has affected the majority of my band and crew.
+ - I say I have a midlife crisis every time I start and finish a record.
+ - Lady Gaga has a very unjaded intelligence. It’s brilliant, ’cause it’s anti-snob.
+ - I’d never compare myself to Freddie Mercury because I look up to him far too much. As an artist, not necessarily as a person.
+ - I completely understand the responsibility I have in continuing the sonic style that I have created.
+ - Melody is disarming. It’s anarchic!
+ - Most of the people who write pop music were outsiders at some time in their life.
+ - No one knows what I am and really, I wonder if I do, at the end of the day.
+ - I think my music generally transcends a lot of genres.
+ - It’s very hard to find men’s clothes that do what you want, especially when you go through them as quickly as I do. I need them to be flashy, but I never like to be overdressed. I need to make a statement, but I hate wearing too many clothes.
+ - My life isn’t tabloid-friendly.
+ - I really want people to know me, to find out about me, and if they really like me, to stick with me.
+ - Never had any idols, ever. I never had any posters, nothing.
+ - My first record was about childhood. There were a lot of nursery rhyme and fairytale references; it was all about being naive.
+ - A stylist might say you look amazing in anything. Your family will always tell you if you look a complete idiot.
+ - I’m always calling my doctor because I’m constantly injuring myself while on the road, like tearing a ligament, blasting my ears or losing my voice. Plus, I’m a total hypochondriac.
+ - New York is a bit of a dangerous place to me because you often leave in a blur.
+ - Mixed reactions? Sure, I get them all the time. I’m a Marmite artist.
+ - I’m fascinated by religion, but I’m not particularly religious.
+ - I’m not interested in what they have to say. I’m only interested in people that are interested in me for the right reasons.
+ - You can’t deny your limitations.
+ - To me, being a classical snob in the highest possible way and being an indie snob is just as bad!
+ - We all have to be dishes on a plate eventually, with the way we are marketed, but I have no intention of being a cheap Chinese all-you-can-eat buffet.
+ - In my older songs, I used to hide behind fictional characters to deflect attention away from myself.
+ - I wanted to make an unashamed pop record. I became obsessed with Disney soundtracks from the ’50s, so I decided to make my own.
+ - I write songs to turn myself into something else. And then I become that, and I want to become something else.
+ - Sometimes I dress like what I want for lunch, because all I can think about is having a tuna sandwich.
+ - I’m obsessed with plastic. I like the syntheticness.
+ - I certainly don’t follow fashion. I think fashion, as far as the industry and the whole world that surrounds it, is quite vile, and I’m repelled by it.
+ - I’m a big illustration and comic book fan. In my eyes, comic books and illustration are the same kind of art forms.
+ - If I really like the smell of something – a piece of tar or my goddaughter’s plastic doll – I put a tiny piece in a bottle with a label. I keep them in a fridge in my bathroom.
+ - I want to make big-sounding pop records.
+ - The music industry doesn’t exist the way it used to. You’ll never have another star like the stars of the ’90s.
+ - Everything I do is very visual and very aural, so I don’t read music, and I draw as much as I write out lyrics.
+ - I was a show-off as a kid. I was wearing bow ties and matching coloured trousers.
+ - You never know which gig is going to be your last.
+ - Most people’s jobs are rooted in reality.
+ - Identity for me is something that has to be played with and explored, and not become complacent about or uninterested in.
+ - I am totally unapologetic about pop music.
+ - When you come from nowhere, I am fully aware of the fact that people have to compare you to other artists to kind of place you.
+ - Everything I write is about me.
+ - I found school pretty tough. I got the mickey taken out of me at school.
+ - Well, I have to say, most of my clothes are designed and made by my mother.
+ - Part of me sees myself as talented, and the other part sees me as strange. Ideas get stuck in your head and nothing changes them. Not even fame.
+ - I’m not necessarily that big of a clubbing junkie, but I really like dance music as a genre.
+ - I make mistakes. I say stupid things. I do idiotic things. And, quite frankly, I’m proud of them. Why not make mistakes?
+ - The best way to make the most serious point in the world is to be as unserious as possible.
+ - So foolish is the heart of man that he ever puts his hope in the future, learning nothing from his past errors and fancying that tomorrow must be better than today.
+
+89 quotes

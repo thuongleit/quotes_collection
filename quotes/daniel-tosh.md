@@ -1,0 +1,146 @@
+ - If no meant no then every man would die a virgin.
+ - No matter how flat you make your pancakes, it still has two sides.
+ - I’m a nobody, nobody is perfect, therefore I am perfect!
+ - It’s not a stereotype if it’s always true.
+ - Girls can fake orgasms, but boys can fake love.
+ - It’s all fun and games until someone gets a boner.
+ - Ben Roethlisberger is Tim Tebow minus Jesus.
+ - Sometimes my mind wanders; other times it leaves completely.
+ - If you like soccer, then welcome to America. See, our country already has entertainment so watching people chase a ball for four hours to end 0 – 0 is not enjoyable – unless, of course, the bleachers collapse and half of Europe dies.
+ - I have voices in my head, but they’re all speaking Spanish, and I have NO idea what they’re saying.
+ - Cheaters never prosper, unless they get away with it.
+ - Real patriotism is realizing America sucks, but everywhere else is a thousand times worse.
+ - Fifty Shades Of Grey proved you can write about a dude choking women and shoving stuff up their butts but heaven forbid if you tell a legitimate joke about it. Sure I doubled the number of feminists who hate me, but I also doubled the number of shows I have on TV. No regrets.
+ - Scattergories is second base for Christians.
+ - I’m not religious, but I’m spiritual.
+ - Sometimes, when I’m feeling down because nothing seems to be going right, I like to take a home pregnancy test. Then I can say, Hey, at least I’m not pregnant.
+ - I apologize if there’s a Parkinson’s painter in the audience. I assume you do your best work in the morning. Probably gets abstract by noon.
+ - How come New York gets all the cool plane crashes?
+ - I wanna get rich enough in life that I can afford to release a dozen doves every time I walk into a room. You know people would be like, ‘Did you see that guy come out of the bathroom? The one with doves, it was beautiful.’
+ - I’m not honest, but you’re interesting!
+ - Babies aren’t dishwasher-safe.
+ - I put a What Would Jesus Do bracelet on my Jewish friend’s wrist and it burned his skin. He threw it on the ground, it turned into a serpent, we both started laughing. We left it there, we hate snakes. We think they’re slimy, even though we know they’re not.
+ - Never trust anyone who buttons their top button.
+ - Big can be beautiful – just not to me. I find you disgusting; freshmen 15 is not a life sentence.
+ - I like my women like I like my coffee. I don’t like coffee.
+ - A gynecologist is the dentist for the downstairs mouth.
+ - The most important part of any CrossFit workout is posting about it endlessly on social media. How about you just brag about all the kettlebell burpees you did to the other whackos in your cult?
+ - You know who likes to get fisted? Sock puppets.
+ - Men who don’t understand women fall into two groups: Bachelors and Husbands.
+ - I don’t want to develop a personality, just cut my face! Stretch it and staple it. Now I’m happy, or at least I look like it.
+ - Describe your perfect man who looks like me...
+ - I fell asleep watching the country music channel and woke up racist.
+ - I don’t know, maybe I’m immature, but I still find it funny if I dump cold water on my girlfriend when she’s in the shower.
+ - Being an ugly woman is like being a man. You’re gonna have to work. Yep.
+ - I don’t believe space exists. You’re not gonna put a camera on a roomba, stick it in the desert, and tell me it’s Mars.
+ - Of course money buys happiness. You ever seen a homeless person skip? The answer to that riddle’s no. They’re not allowed.
+ - The flat-brimmed cap is the modern day dunce cap.
+ - If I offend anybody tonight, I apologize. That’s not my intention. I’m not going to guess what your personal line of decency is; I cross my own from time to time – it’s how I know I still have one.
+ - I hope we find a cure for every major disease, because I’m tired of walking 5K. I’m pretty sure I don’t have to sweat for cancer. I’ll write a check.
+ - If Canada were really that great, it would be a state.
+ - Somebody bought me a Snuggie as a joke gift. Haha, the joke’s on you, I enjoy it. I toss and turn at night, finally a blanket that’s like, ‘I’m going to keep you warm.’ It’s like having a small child with polio keep you in a full nelson – the perfect pressure.
+ - Every video from Russia is depressing, it’s like they have their cameras set to sad.
+ - I will shut down Instagram so girls can’t use filters into tricking us that they are that pretty; you’re eyes aren’t that blue, and you don’t glow.
+ - I started my own foundation. If you aren’t familiar with it, it’s called ‘Febreezing the homeless.’ Who would you rather give money to: a man that smells 4like liquiid garbage, or ocean breeze?
+ - If you look at the Bible and you look at Adam and Eve in the Garden of Eden, we all know who sinned first. Ladies, do you have to eat everything?
+ - Germany’s like Wisconsin, but with, like, a really bad past.
+ - Making a good music video isn’t easy. If it were, MTV would still be showing them instead of ‘16 and Pregnant,’ which I assume is shot exclusively in Utah.
+ - You are a sick freak who should be beaten.
+ - The national anthem blows. Are you kidding me? Do any of you have it on your iPod?
+ - I grew up in Florida and went to school there, and ended up going to University of Central Florida.
+ - You can accept that things are awful and still have a sense of humor about it.
+ - I’ll do anything usually if there’s money involved and little work.
+ - I graduated from college and went on one job interview and was laughing in my own head because I wouldn’t hire me.
+ - I do think we can be a little less PC when it comes to sports, though. Just once I want to hear an announcer go ‘God, black people are fast. Holy cow! All of them. They’re fast. Back to you Bob.’
+ - The only thing surfers have in common with the rest of America is they’re unemployed and they love crystal meth.
+ - Have you heard about the morning after pill, or what I like to call breakfast in bed. Well have you heard about how some of the girls who have taken have died a few days later? Talk about two birds, looks like I will be going to the game this weekend boys.
+ - I’m not a racist or misogynist person, but I find these jokes funny, so I say them.
+ - Maybe everyone doesn’t deserve a second chance. If I can be perfect why can’t you?
+ - Finding my dog’s g spot is taking way longer than I would care to admit.
+ - I don’t know why I get away with some things. But I’m not a misogynistic, racist person. Yet I do find those jokes funny, so I say them. And I try to say everything kind of in a good spirit.
+ - Never hit a woman unless you are a bigger woman.
+ - Slutiness is a very underrated quality in a girl.
+ - Stop saying you’re not racist because you have a friend that’s black. That’s like saying you’re not a pedophile because you have a friend that’s a kid.
+ - A white lady came running up to me after a show. She goes, What gives you the right to do jokes about black people like that. And I’m like, Listen lady, my best friend is Cuban. And that’s close enough.
+ - Here’s a shock: An adult who still hangs out in skate parks is a bad parent.
+ - Recently started flat ironing my ball hair. Come on ladies, you know how it is; if you have curly hair you just want straight hair.
+ - I don’t know what popping-and-locking is but I know to lock my car door whenever people are doing it.
+ - The day I notice a cyclist obey a stop sign is the day I’ll stop enjoying watching them bounce off my hood.
+ - Sure I may look adjusted, but I can’t function in normal society because most of you are too stupid.
+ - That Asian guy is really good at kicking. Shocking. Someone is pressing ‘A’ really fast somewhere.
+ - How about we get rid of separate bathrooms for boys and girls? Gays and straights share the bathroom with zero issues. We need to put an end to the sexist pooping policies of yesterday. The only way to achieve gender equality is to start crapping in front of each other.
+ - I don’t know what fire is made of – hell nobody does. All I know is that fire is awesome. I’m not a pyromaniac, but I am a pyroenthusiast.
+ - I have no idea why people want to watch puppets be the slightly meaner version of the weirdo holding them. It’s beyond my comprehension.
+ - I mean my goal is to get Michael Richards to do stand up at the Laugh Factory to an all black audience.
+ - I feel bad sometimes because I secretly hope New Orleans gets nailed again.
+ - I think if you’re gonna get a tattoo, just get one: the words, ‘I’m dumb.’ That’s it. That way in 10 years, when you go, ‘Why did I get this?,’ you can be like, ‘Oh, I’m dumb!’
+ - Something horrible happens and I try to make it funny. It’s really a tortured life. You go to a salsa bar, at your local burrito stand, and you know, you think “how can you make a joke about this?”
+ - Bill Hicks is a huge influence. I love him.
+ - You know why they say that, that models are too skinny? Because parents are horrible, they can’t tell their sixteen year old daughter she’s not really a princess, well guess what, I can.
+ - I’m not saying I’m smarter than Steve Jobs was, but I would have made the iPhone charger cord twice as long.
+ - I don’t know what’s more embarrassing in this country, that Michael Phelps fell from the graces for smoking marijuana or that you looked up to a swimmer in the first place?
+ - Models: I’m not voting for you for any stupid magazine list! If you were really that Hot you wouldn’t have to beg the world to stuff the ballot.
+ - Until I see proof of this reincarnation or cloning, I’m gonna live up this life. That was kinda the path I took. But I fulfilled my obligations.
+ - You never see anyone wearing a black turtleneck and leather jacket doing something nice.
+ - If security guards aren’t allowed to carry guns, I don’t have to obey their made up rules.
+ - Now remember kids if anyone ever offers you drugs say ‘Thank you’ cause drugs are very expensive.
+ - Even the klan revamped their image by losing the hoods and changing their name to the Tea Party.
+ - Being a white boxer is like being a republican. No matter how hard you work, you’ll always lose because of the Mexicans.
+ - You don’t gossip while your man is driving. You sit there quietly until you’re about 5 minutes from your destination then you say, would you like some road head?
+ - The only advice I have for youth is to date outside your race. I just think it’s so cute when I see little kids in interracial relationships; it makes me feel like I’m watching a commercial.
+ - I was drinking tea the other day, and I thought: they used to fight wars over this.
+ - It’s the ultimate pinnacle of stand-up to have an hour on HBO, but way more people see Comedy Central, and they’ve been good to me.
+ - I don’t think I could stab somebody, cause I’m really bad at a Capri Sun.
+ - My favorite thing to steal is a kiss. You can get arrested for it but they can’t force you to give it back.
+ - You know what really shuts up a bully? Learning how to build a pipe-bomb!
+ - Even people who don’t believe in science still have to believe in gravity.
+ - Spelling is difficult because there are too many rules. Silent letters only exist to make it harder for illegal immigrants to learn English.
+ - I don’t know what’s funny and what’s not so I test out all of my material in front of audiences.
+ - Of course the sexiest thing a girl can do is not complain about her body.
+ - There’s only two types of men left in this world. Lumberjacks and Liam Nesson.
+ - People write a lot of similar material. That’s why I try to come up with the most absurd jokes.
+ - I love people of all ethnicities, as long as they’re not ugly.
+ - If you snort enough blow, any lane is a passing lane.
+ - I’m sick of the media making female sports athletes into supermodels, when they’re clearly sixes at best.
+ - We owe it to our troops to let them sleep in their own beds, wake up in the morning, have a delicious breakfast, and drive to war.
+ - Kangoroos can’t hop backwards.
+ - Big, skinny, regular size it doesn’t matter as long as your young.
+ - If you offer me a starring role in a movie, I have no interest.
+ - Racing does to white guys what movies do to black guys.
+ - I have no real talents. If I could make a living at a normal job, I’m sure I would do that.
+ - I wasn’t a pain in the ass when I was a kid. So I think being a screw-up as an adult is way more acceptable.
+ - It’s not that hard to climb a pole. All you need are powerful thighs and an empty soul.
+ - High school is just like glee, a bunch of people dying of drug overdose.
+ - You ever hear girls say that? “I’m not religious, but I’m spiritual.” I like to reply with “I’m not honest, but you’re interesting!”
+ - Is it okay to roofie a girl just to shut her up?
+ - Instead of dumping all my money on an independent film that nobody would watch and most people would make fun of behind my back, I decided, ‘I’m just going to buy a house.’
+ - Let’s be honest: it’s not like I’m not making a good living that the whole family benefits from. No one talks about my foul mouth when we’re all in Aspen for Christmas.
+ - I assume the only reason we have them is so that white people feel relevant in sports. Because other than that the only thing the winter Olympics show me is which country has more rich white kids. What’s it cost to go skiing – $900 a day? I can’t believe that’s not more popular in the inner cities.
+ - I will not date a woman from China, because that is a big red flag.
+ - I’ll throw a globe at you! You ever been hit by the world?!
+ - I can say that. I have a television show.
+ - The only thing better than the world’s cutest cat is any dog.
+ - My excuse for everything is that I grew up in Florida.
+ - When you’re in young love your pulse pounds, your palms sweat, and there are butterflies in your stomach. It’s like diarrhea for your heart.
+ - I think it’s kinda funny that all these rappers that used to be gangsters and thugs are telling us not to download their music from the internet, because that’s stealing. Wow talk about ironic.
+ - I’ve always thought having a kid that played soccer would be the worst punishment. After watching 3 min of water polo I stand corrected.
+ - I really don’t work a whole lot as far as touring, but I do stand-up every night of my life, no matter where I am. It’s really made the touring a lot less grueling.
+ - You know your girlfriend is too young when she’ll do everything in bed but go upside down because it’s too scary.
+ - I’m aware that I should end a joke with the good part, I choose not too.
+ - You know, you can only cram your beliefs down a young kid’s throat for so long before he goes, “you know, the other side seems to be having a lot more fun.”
+ - One day, I want to get rich enough so that every time I walk into a room I can release a dozen doves.
+ - You know what really keeps your staff on their toes? A harpoon gun.
+ - The only reason Woodstock was necessary is because they didn’t have iTunes.
+ - If you had to eat another human to survive, do you think they’d taste like their ethnic background?
+ - Here’s what I tell people now when they come to my shows: ‘First of all, thank you for stimulating the economy, or at least my economic package.’
+ - If it weren’t for men, this planet would be overrun with giant spiders.
+ - By the way, nothing I ever say, ever, has any truth behind it.
+ - I hate the idea of owning a gun, but I love the idea of owning a cannon.
+ - The great thing about Los Angeles is that you can get so much money in this town by constantly failing. You can get a lot of television deals that don’t go anywhere, but you still get paid.
+ - Decorating the gym can’t mask the fact that it smells like a mix between corsage and balls.
+ - I never want to cannibalize my act, and I’m really excited that I am going to be able to perform new material. I’m not a huge fan of repeating jokes, and I don’t really do any of my old material from old stand-up acts.
+ - I worked in Toronto for two days. And by work I mean sit in a trailer for 15 hours, say two lines, and leave.
+ - It’s not Spring Break until somebody dies!
+ - Girls say it’s hard to find nice guys. It’s actually really easy. It’s just all nice guys are ugly.
+
+144 quotes

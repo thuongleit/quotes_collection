@@ -1,0 +1,269 @@
+ - Listen to many, speak to a few.
+ - Love all, trust a few, do wrong to none.
+ - There is nothing either good or bad, but thinking makes it so.
+ - It is not in the stars to hold our destiny but in ourselves.
+ - Expectation is the root of all heartache.
+ - Some are born great, others achieve greatness.
+ - Don’t waste your love on somebody, who doesn’t value it.
+ - The fool doth think he is wise, but the wise man knows himself to be a fool.
+ - I would challenge you to a battle of wits, but I see you are unarmed.
+ - The course of true love never did run smooth.
+ - Go wisely and slowly. Those who rush stumble and fall.
+ - All the world’s a stage.
+ - What’s done cannot be undone.
+ - Et tu, Brute?
+ - My tongue will tell the anger of my heart, or else my heart concealing it will break.
+ - Never play with the feelings of others. Because you may win the game but the risk is that you will surely lose the person for a life time.
+ - If music be the food of love, play on.
+ - These violent delights have violent ends.
+ - The fault, dear Brutus, is not in our stars, but in ourselves.
+ - Hell is empty and all the devils are here.
+ - Who is it that can tell me who I am?
+ - Be not afraid of greatness. Some are born great, some achieve greatness, and others have greatness thrust upon them.
+ - I defy you, stars.
+ - We know what we are, but not what we may be.
+ - Our doubts are traitors, and make us lose the good we oft might win, by fearing to attempt.
+ - Though she be but little, she is fierce!
+ - If you love and get hurt, love more. If you love more and hurt more, love even more. If you love even more and get hurt even more, love some more until it hurts no more...
+ - All’s well if all ends well.
+ - Better a witty fool, than a foolish wit.
+ - All the world’s a stage, And all the men and women merely players; They have their exits and their entrances; And one man in his time plays many parts, His acts being seven ages.
+ - The golden age is before us, not behind us.
+ - Words are easy, like the wind; Faithful friends are hard to find.
+ - When a father gives to his son, both laugh; when a son gives to his father, both cry.
+ - The rest, is silence.
+ - Good night, good night! Parting is such sweet sorrow, that I shall say good night till it be morrow.
+ - Love is a smoke made with the fume of sighs.
+ - Better three hours too soon than a minute too late.
+ - Presume not that I am the thing I was.
+ - Suspicion always haunts the guilty mind.
+ - Though this be madness, yet there is method in’t.
+ - This above all: to thine own self be true.
+ - With mirth and laughter let old wrinkles come.
+ - Doubt thou the stars are fire; Doubt that the sun doth move; Doubt truth to be a liar; But never doubt I love.
+ - How far that little candle throws his beams! So shines a good deed in a weary world.
+ - Stars, hide your fires; Let not light see my black and deep desires.
+ - Let me be that I am and seek not to alter me.
+ - Out, out, brief candle! Life’s but a walking shadow, a poor player that struts and frets his hour upon the stage and is heard no more. It is a tale told by an idiot, full of sound and fury, signifying nothing.
+ - When we are born, we cry that we are come to this great stage of fools.
+ - And this, our life, exempt from public haunt, finds tongues in trees, books in the running brooks, sermons in stones, and good in everything.
+ - What’s in a name? that which we call a rose By any other name would smell as sweet.
+ - The prince of darkness is a gentleman!
+ - Words, words, words.
+ - Love is not love that alters when it alteration finds.
+ - There are more things in Heaven and Earth, Horatio, than are dreamt of in your philosophy.
+ - To be or not to be that is the question.
+ - Love looks not with the eyes, but with the mind, And therefore is winged Cupid painted blind.
+ - Come what come may, time and the hour run through the roughest day.
+ - Like madness is the glory of life.
+ - God hath given you one face, and you make yourself another.
+ - As soon go kindle fire with snow, as seek to quench the fire of love with words.
+ - There is a tide in the affairs of men which, taken at the floud, leads on to fortune ommitted, all the voyage of their lives are bound in shallows and in miseries.
+ - It is a wise father who knows his own child.
+ - These violent delights have violent ends And in their triump die, like fire and powder Which, as they kiss, consume.
+ - Things without all remedy should be without regard: what’s done is done.
+ - All days are nights to see till I see thee, And nights bright days when dreams do show thee me.
+ - Me, poor man, my library was dukedom large enough.
+ - In time we hate that which we often fear.
+ - I must be cruel only to be kind; Thus bad begins, and worse remains behind.
+ - The first thing we do, let’s kill all the lawyers.
+ - The lunatic, the lover, and the poet, are of imagination all compact.
+ - O, when she’s angry, she is keen and shrewd! She was a vixen when she went to school; And though she be but little, she is fierce.
+ - I dare do all that may become a man; Who dares do more, is none.
+ - My words fly up, my thoughts remain below: Words without thoughts never to heaven go.
+ - I wasted time, and now doth time waste me. Act V, Scene V.
+ - Love comforteth like sunshine after rain.
+ - I do love nothing in the world so well as you. Is not that strange?
+ - There was a star danced, and under that was I born.
+ - O, wonder! How many goodly creatures are there here! How beauteous mankind is! O brave new world, That has such people in’t!
+ - If music be the food of love, play on, Give me excess of it; that surfeiting, The appetite may sicken, and so die.
+ - Do not swear by the moon, for she changes constantly. then your love would also change.
+ - Give sorrow words; the grief that does not speak knits up the o-er wrought heart and bids it break.
+ - For sweetest things turn sourest by their deeds; Lillies that fester smell far worse than weeds.
+ - Do you bite your thumb at us, sir?
+ - If we shadows have offended, Think but this, and all is mended, That you have but slumber’d here While these visions did appear.
+ - I despised my arrival on this earth and I despise my departure; it is a tragedy.
+ - I had rather hear my dog bark at a crow, than a man swear he loves me.
+ - But, soft! what light through yonder window breaks? It is the east, and Juliet is the sun.
+ - So full of artless jealousy is guilt, It spills itself in fearing to be spilt.
+ - I loved Ophelia. Forty thousand brothers could not, with all their quantity of love, make up my sum.
+ - Women may fall when there’s no strength in men. Act II.
+ - Sigh no more, ladies, sigh no more, Men were deceivers ever,- One foot in sea and one on shore, To one thing constant never.
+ - O, here Will I set up my everlasting rest, And shake the yoke of inauspicious stars From this world-wearied flesh. Eyes, look your last! Arms, take your last embrace! and, lips, O you The doors of breath, seal with a righteous kiss A dateless bargain to engrossing death!
+ - Lovers and madmen have such seething brains Such shaping fantasies, that apprehend More than cool reason ever comprehends.
+ - I know a bank where the wild thyme blows, Where oxlips and the nodding violet grows, Quite over-canopied with luscious woodbine, With sweet musk-roses and with eglantine.
+ - Absence from those we love is self from self – a deadly banishment.
+ - Sweets to the sweet.
+ - The robb’d that smiles, steals something from the thief; He robs himself that spends a bootless grief.
+ - Men have died from time to time, and worms have eaten them, but not for love.
+ - Tis an ill cook that cannot lick his own fingers.
+ - A glooming peace this morning with it brings; The sun, for sorrow, will not show his head: Go hence, to have more talk of these sad things; Some shall be pardon’d, and some punished: For never was a story of more woe Than this of Juliet and her Romeo.
+ - This above all: to thine own self be true, And it must follow, as the night the day, Thou canst not then be false to any man.
+ - No legacy is so rich as honesty.
+ - Cowards die many times before their deaths; the valiant never taste of death but once.
+ - Cry havoc and let slip the dogs of war!
+ - The breaking of so great a thing should make A greater crack: the round world Should have shook lions into civil streets, And citizens to their dens.
+ - Brevity is the soul of wit.
+ - What’s past is prologue.
+ - All things are ready, if our mind be so.
+ - Peace? I hate the word as I hate hell and all Montagues.
+ - To die, to sleep – To sleep, perchance to dream – ay, there’s the rub, For in this sleep of death what dreams may come...
+ - What a piece of work is a man! How noble in reason! how infinite in faculty! in form, in moving, how express and admirable! in action how like an angel! in apprehension how like a god! the beauty of the world! the paragon of animals! And yet, to me, what is this quintessence of dust?
+ - We are such stuff as dreams are made on, and our little life is rounded with a sleep.
+ - Lord, what fools these mortals be!
+ - Sweet are the uses of adversity which, like the toad, ugly and venomous, wears yet a precious jewel in his head.
+ - O God, I could be bound in a nutshell, and count myself a king of infinite space – were it not that I have bad dreams.
+ - Be great in act, as you have been in thought.
+ - Cowards die many times before their deaths; The valiant never taste of death but once. Of all the wonders that I yet have heard, It seems to me most strange that men should fear; Seeing that death, a necessary end, Will come when it will come.
+ - I love thee, I love thee with a love that shall not die. Till the sun grows cold and the stars grow old.
+ - Give every man thy ear, but few thy voice.
+ - Once more unto the breach, dear friends, once more; Or close the wall up with our English dead! In peace there’s nothing so becomes a man As modest stillness and humility: But when the blast of war blows in our ears, Then imitate the action of the tiger.
+ - When he shall die, Take him and cut him out in little stars, And he will make the face of heaven so fine That all the world will be in love with night And pay no worship to the garish sun.
+ - True love cannot be found where it truly does not exist, nor can it be hidden where it truly does.
+ - The devil can cite Scripture for his purpose. An evil soul producing holy witness Is like a villain with a smiling cheek, A goodly apple rotten at the heart. O, what a goodly outside falsehood hath!
+ - Bid me run, and I will strive with things impossible.
+ - Did my heart love till now? forswear it, sight! For I ne’er saw true beauty till this night.
+ - They do not love that do not show their love. The course of true love never did run smooth. Love is a familiar. Love is a devil. There is no evil angel but Love.
+ - The lady doth protest too much, methinks.
+ - And thus I clothe my naked villainy With odd old ends stol’n out of holy writ; And seem a saint, when most I play the devil.
+ - People’s good deeds we write in water. The evil deeds are etched in brass.
+ - Beware the ides of March.
+ - Some rise by sin, and some by virtues fall.
+ - The devil can cite Scripture for his purpose.
+ - Why, man, he doth bestride the narrow world Like a Colossus; and we petty men Walk under his huge legs, and peep about To find ourselves dishonourable graves.
+ - The evil that men do lives after them; The good is oft interred with their bones.
+ - As flies to wanton boys are we to the gods. They kill us for their sport.
+ - Discretion is the better part of valor.
+ - Self-love, my liege, is not so vile a sin, as self-neglecting.
+ - I am not bound to please thee with my answer.
+ - Oh, I am fortune’s fool!
+ - All that glisters is not gold; Often have you heard that told: Many a man his life hath sold But my outside to behold: Gilded tombs do worms enfold.
+ - He that hath a beard is more than a youth, and he that hath no beard is less than a man. He that is more than a youth is not for me, and he that is less than a man, I am not for him.
+ - I am in blood Stepp’d in so far, that, should I wade no more, Returning were as tedious as go o’er.
+ - Why then, O brawling love! O loving hate! O any thing, of nothing first create! O heavy lightness, serious vanity, Misshapen chaos of well-seeming forms, Feather of lead, bright smoke, cold fire, sick health, Still-waking sleep, that is not what it is! This love feel I, that feel no love in this.
+ - Journeys end in lovers meeting, Every wise man’s son doth know.
+ - God shall be my hope, my stay, my guide and lantern to my feet.
+ - The man that hath no music in himself, Nor is not moved with concord of sweet sounds, Is fit for treasons, stratagems, and spoils; The motions of his spirit are dull as night, And his affections dark as Erebus. Let no such man be trusted. Mark the music.
+ - But I will wear my heart upon my sleeve For daws to peck at: I am not what I am.
+ - Sit by my side, and let the world slip: we shall ne’er be younger.
+ - Now is the winter of our discontent Made glorious summer by this sun of York; And all the clouds that lour’d upon our house In the deep bosom of the ocean buried.
+ - My only love sprung from my only hate! Too early seen unknown, and known too late! Prodigious birth of love it is to me, That I must love a loathed enemy.
+ - Madness in great ones must not unwatched go.
+ - If we are true to ourselves, we can not be false to anyone.
+ - Things base and vile, holding no quantity, Love can transpose to form and dignity. Love looks not with the eyes, but with the mind, And therefore is winged Cupid painted blind. Nor hath Love’s mind of any judgment taste; Wings and no eyes figure unheedy haste.
+ - Many a true word hath been spoken in jest.
+ - Full fathom five thy father lies; Of his bones are coral made; Those are pearls that were his eyes: Nothing of him that doth fade, But doth suffer a sea-change Into something rich and strange. Sea-nymphs hourly ring his knell: Ding-dong Hark! now I hear them, – Ding-dong, bell.
+ - I have set my life upon a cast, And I will stand the hazard of the die.
+ - For I have sworn thee fair, and thought thee bright, Who art as black as hell, as dark as night.
+ - I say there is no darkness but ignorance.
+ - Romeo: I dreamt a dream tonight. Mercutio: And so did I. Romeo: Well, what was yours? Mercutio: That dreamers often lie. Romeo: In bed asleep while they do dream things true.
+ - I pray you, do not fall in love with me, for I am falser than vows made in wine.
+ - I am a man more sinned against than sinning.
+ - Confusion now hath made his masterpiece.
+ - Remember me.
+ - Love goes toward love as schoolboys from their books, But love from love, toward school with heavy looks.
+ - One may smile, and smile, and be a villain.
+ - For she had eyes and chose me.
+ - Lord Polonius: What do you read, my lord? Hamlet: Words, words, words. Lord Polonius: What is the matter, my lord? Hamlet: Between who? Lord Polonius: I mean, the matter that you read, my lord.
+ - Up and down, up and down I will lead them up and down I am feared in field in town Goblin, lead them up and down.
+ - Summer’s lease hath all too short a date.
+ - Men in rage strike those that wish them best.
+ - So long as men can breathe, or eyes can see, So long lives this, and this gives life to thee.
+ - I like this place and could willingly waste my time in it.
+ - Is love a tender thing? It is too rough, too rude, too boisterous, and it pricks like thorn.
+ - For man is a giddy thing, and this is my conclusion.
+ - When I bestride him, I soar, I am a hawk: he trots the air; the earth sings when he touches it; the basest horn of his hoof is more musical than the pipe of Hermes.
+ - O sleep, O gentle sleep, Nature’s soft nurse, how have I frightened thee, 1710. That thou no more will weigh my eyelids down, And steep my senses in forgetfulness?
+ - When beggars die, there are no comets seen; the heavens themselves blaze forth the death of princes.
+ - Give every man thine ear, but few thy voice; Take each man’s censure, but reserve thy judgment.
+ - No, no, I am but shadow of myself: You are deceived, my substance is not here;.
+ - My soul is in the sky.
+ - He jests at scars that never felt a wound.
+ - Dispute not with her: she is lunatic.
+ - You cannot, sir, take from me any thing that I will more willingly part withal: except my life, except my life, except my life.
+ - My only love sprung from my only hate.
+ - How poor are they that have not patience! What wound did ever heal but by degrees? Iago.
+ - Ill met by moonlight, proud Titania.
+ - Conscience doth make cowards of us all.
+ - And therefore, – since I cannot prove a lover, To entertain these fair well-spoken days, – I am determined to prove a villain, And hate the idle pleasures of these days.
+ - Tis in ourselves that we are thus or thus. Our bodies are our gardens to the which our wills are gardeners.
+ - Angels are bright still, though the brightest fell. Though all things foul would wear the brows of grace, Yet Grace must still look so.
+ - There’s small choice in rotten apples.
+ - False face must hide what the false heart doth know.
+ - Yet but three come one more. Two of both kinds make up four. Ere she comes curst and sad. Cupid is a knavish lad. Thus to make poor females mad.
+ - He that is thy friend indeed, He will help thee in thy need: If thou sorrow, he will weep; If thou wake, he cannot sleep: Thus of every grief in heart He with thee does bear a part. These are certain signs to know Faithful friend from flattering foe.
+ - Thus I die. Thus, thus, thus. Now I am dead, Now I am fled, My soul is in the sky. Tongue, lose thy light. Moon take thy flight. Now die, die, die, die.
+ - I’ll follow thee and make a heaven of hell, To die upon the hand I love so well.
+ - Silence is the perfectest herault of joy. I were but little happy if I could say how much.
+ - Virtue itself turns vice, being misapplied, And vice sometime by action dignified.
+ - Some Cupid kills with arrows, some with traps.
+ - There’s a divinity that shapes our ends, Rough-hew them how we will.
+ - My hands are of your color, but I shame to wear a heart so white.
+ - Thought is free.
+ - Misery acquaints a man with strange bedfellows.
+ - I count myself in nothing else so happy as in a soul remembering my good Friends.
+ - Your face, my thane, is as a book where men May read strange matters. To beguile the time, Look like the time; bear welcome in your eye, Your hand, your tongue: look like the innocent flower, But be the serpent under’t.
+ - I am but mad north-north-west. When the wind is southerly, I know a hawk from a handsaw.
+ - See how she leans her cheek upon her hand. O, that I were a glove upon that hand That I might touch that cheek!
+ - We burn daylight.
+ - And sleep, that sometime shuts up sorrow’s eye, Steal me awhile from mine own company.
+ - So wise so young, they say, do never live long.
+ - Death, that hath suck’d the honey of thy breath hath had no power yet upon thy beauty.
+ - Give me that man that is not passion’s slave, and I will wear him in my heart’s core, in my heart of heart, as I do thee.
+ - To be honest, as this world goes, is to be one man picked out of ten thousand.
+ - It is not, nor it cannot, come to good, But break, my heart, for I must hold my tongue.
+ - What, my dear Lady Disdain! are you yet living? Beatrice: Is it possible disdain should die while she hath such meet food to feed it as Signior Benedick?
+ - Now I will believe that there are unicorns...
+ - When I said I would die a bachelor, I did not think I should live till I were married.
+ - They do not love, that do not show their love.
+ - Do you not know I am a woman? when I think, I must speak.
+ - You are a lover. Borrow Cupid’s wings and soar with them above a common bound.
+ - But I am constant as the Northern Star, Of whose true fixed and resting quality There is no fellow in the firmament.
+ - O, beware, my lord, of jealousy; It is the green-ey’d monster, which doth mock The meat it feeds on.
+ - Tell me where is fancy bred, Or in the heart, or in the head?
+ - You speak an infinite deal of nothing.
+ - Benvolio: What sadness lengthens Romeo’s hours? Romeo: Not having that, which, having, makes them short.
+ - So we grew together like to a double cherry, seeming parted, but yet an union in partition, two lovely berries molded on one stem.
+ - I will live in thy heart, die in thy lap, and be buried in thy eyes – and moreover, I will go with thee to thy uncle’s.
+ - When you depart from me sorrow abides and happiness takes his leave.
+ - No sooner met but they looked; no sooner looked but they loved; no sooner loved but they sighed; no sooner sighed but they asked one another the reason; no sooner knew the reason but they sought the remedy; and in these degrees have they made a pair of stairs to marriage...
+ - I hold the world but as the world, Gratiano, A stage where every man must play a part, And mine a sad one.
+ - Out of my sight! Thou dost infect mine eyes.
+ - I am very proud, revengeful, ambitious, with more offences at my beck than I have thoughts to put them in, imagination to give them shape, or time to act them in.
+ - He who has injured thee was either stronger or weaker than thee. If weaker, spare him; if stronger, spare thyself.
+ - Under loves heavy burden do I sink. – Romeo.
+ - From women’s eyes this doctrine I derive: They sparkle still the right Promethean fire; They are the books, the arts, the academes, That show, contain and nourish all the world.
+ - If love be rough with you, be rough with love. Prick love for pricking and you beat love down.
+ - A wretched soul, bruised with adversity, We bid be quiet when we hear it cry; But were we burdened with light weight of pain, As much or more we should ourselves complain.
+ - You are thought here to the most senseless and fit man for the job.
+ - Is it not strange that sheep’s guts could hail souls out of men’s bodies?
+ - There are no tricks in plain and simple faith.
+ - Thou and I are too wise to woo peaceably.
+ - Death, a necessary end, will come when it will come.
+ - No matter where; of comfort no man speak: Let’s talk of graves, of worms, and epitaphs; Make dust our paper and with rainy eyes Write sorrow on the bosom of the earth.
+ - Out of her favour, where I am in love.
+ - Thou art a very ragged Wart.
+ - How art thou out of breath when thou hast breath To say to me that thou art out of breath?
+ - For it falls out That what we have we prize not to the worth Whiles we enjoy it, but being lacked and lost, Why, then we rack the value, then we find The virtue that possession would not show us While it was ours.
+ - Out, damned spot! out, I say!
+ - O me, you juggler, you canker-blossom, you thief of love!
+ - And to be merry best becomes you; for, out of question, you were born in a merry hour. BEATRICE No, sure, my lord, my mother cried; but then there was a star danced, and under that was I born.
+ - Ay me! for aught that ever I could read, could ever hear by tale or history, the course of true love never did run smooth.
+ - Therefore another prologue must tell he is not a lion.
+ - I wish my horse had the speed of your tongue.
+ - Tis within ourselves that we are thus or thus.
+ - The love that follows us sometime is our trouble, which still we thank as love.
+ - She lov’d me for the dangers I had pass’d, And I lov’d her that she did pity them.
+ - For which of my bad parts didst thou first fall in love with me?
+ - If I be waspish, best beware my sting.
+ - I am afeard there are few die well that die in battle, for how can they charitably dispose of anything when blood is their argument?
+ - The tempter or the tempted, who sins most?
+ - The small amount of foolery wise men have makes a great show.
+ - So fair and foul a day i had not seen.
+ - O, speak again, bright angel! for thou art As glorious to this night, being o’er my head As is a winged messenger of heaven.
+ - The world must be peopled!
+ - The weight of this sad time we must obey, Speak what we feel, not what we ought to say. The oldest hath borne most: we that are young Shall never see so much, nor live so long.
+ - Not that I loved Caesar less, but that I loved Rome more.
+ - Romeo, Romeo, wherefore art thou Romeo?
+
+267 quotes

@@ -1,0 +1,34 @@
+ - Come September, children return to school, grownups to work, and the brain to the head.
+ - The only reason I wanted ‘Making Toast’ as the title is that it is a simple gesture of moving on. Every morning there’s the bread and you make the toast and you start the day.
+ - Whatever you think matters – doesn’t. Follow this rule, and you will add decades to your life.
+ - Friends are lights in winter; the older the friend, the brighter the light.
+ - If a man spends enough time in a library, he may actually change his mind. I have seen it happen.
+ - A library should be like a pair of open arms.
+ - The best in art and life comes from a center – something urgent and powerful, an idea or emotion that insists on its being. From that insistence, a shape emerges and creates its structure out of passion. If you begin with a structure, you have to make up the passion, and that’s very hard to do.
+ - What is the difference between grief and mourning? Mourning has company.
+ - If the sad truth be known, writers, being the misfits we are, probably ought not to belong to families in the first place. We simply are too self-interested, though we may excuse the flaw by calling it ‘focused.’
+ - Uncle Scrooge preferred to let the poor die “and decrease the surplus population.” Scrooge may not have had God on his side, but his arithmetic was impeccable.
+ - Every writing teacher gives the subliminal message, every time they teach: ‘Your life counts for something.’ In no other subject that I know of is that message given.
+ - A five-year old is in a pretty good position to assess who is beautiful and who is not. Removed from the confusions of sexuality, he or she can judge a face as a face.
+ - Why, for example, do the great writers use anticipation instead of surprise? Because surprise is merely an instrument of the unusual, whereas anticipation of a consequence enlarges our understanding of what is happening.
+ - One of the very important things that have to be learned around the time dying becomes a real prospect is to recognize those occasions when we have been useful in the world.
+ - Slum kids die slowly, their lives eroded at so languid a pace that even they would have trouble tracing the disintegration. To the children of war death explodes like a car bomb.
+ - If you need three adjectives to describe something, then you’ve probably chosen the wrong something.
+ - Remote control. Ingenious contradiction of terms. Fits like a handshake. Aims like a gun.
+ - One senses, in all autobiography, a straining toward perfection, perfection of a kind that connects the individual with a cosmic pattern which, because it is perfect in itself, verifies that individuals own potential perfection.
+ - Children love to be alone because alone is where they know themselves, and where they dream.
+ - Just because the person who criticizes you is an idiot doesn’t make him wrong.
+ - Blame is especially useful in situations in which there is no apparent villain-those moments that prove, despite our advancement of learning, how susceptible we are to high winds and wet roads.
+ - Anytime you make a person into something other than himself, you make a monster.
+ - Live in the past, but don’t remember too much.
+ - Only by moving in the direction you least trust can you be saved.
+ - The belief in potential human virtue underlies the whole idea of the Bill of Rights; the document is a very tough guardian of that belief.
+ - There is nothing like a man for bringing out the animal in an animal.
+ - The God worth worshipping is the one who pays us the compliment of self – regulation, and we might return it by minding our own business.
+ - For those at home, as well as for those in battle, war is curiously disabling. The mere realization that one’s country is at war poisons the bloodstream, creates an incessant mood of worry that infiltrates even the most casual moments.
+ - The problem with death is absence.
+ - Time can be such a menace to a man. By this age do that; by that age do better.
+ - The Constitution is more than literature, but as literature, it is primarily a work of the imagination. It imagined a country: fantastic. More fantastic still, it imagined a country full of people imagining themselves.
+ - The trick in foraging for a tooth lost in coffee grounds is not to be misled by the clumps. The only way to be sure is to rub each clump between your thumb and index finger, which makes a mess of your hands.
+
+32 quotes

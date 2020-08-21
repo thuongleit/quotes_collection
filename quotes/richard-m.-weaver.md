@@ -1,0 +1,46 @@
+ - Ideas have consequences.
+ - The complete man, then, is the “lover” added to the scientist; the rhetorician to the dialectician.
+ - We approach a condition in which we shall be amoral without the capacity to perceive it and degraded without the means to measure our descent.
+ - The issue ultimately involved is whether there is a source of truth higher than, and independent of, man; and the answer to the question is decisive for one’s view of the nature and destiny of man.
+ - In the countries of Europe, one after another, the gentleman has been ousted by politicians and entrepreneurs, as materialism has given rewards to the sort of cunning incompatible with any kind of idealism.
+ - It is an ancient belief, going back to classical antiquity, that specialization of any kind is illiberal in a freeman. A man willing to bury himself in the details of some small endeavor has been considered lost to these larger considerations which must occupy the mind of the ruler.
+ - We cannot be too energetic in reminding our nihilists and positivists that this is a world of action and history.
+ - Man is an organism, not a mechanism; and the mechanical pacing of his life does harm to his human responses, which naturally follow a kind of free rhythm.
+ - The remark has been made that in the Civil War the North reaped the victory and the South the glory.
+ - Life without prejudice, were it ever to be tried, would soon reveal itself to be a life without principle. For prejudices, as we have seen earlier, are often built-in principles. They are the extract which the mind has made of experience.
+ - Before the age of adulteration it was held that behind each work there stood some conception of its perfect execution. It was this that gave zest to labor and served to measure the degree of success.
+ - The South is a region that history has happened to.
+ - In the last analysis, provincialism is your belief in yourself, in your neighborhood, in your reality. It is patriotism without belligerence. Convincing cases have been made to show that all great art is provincial in the sense of reflecting a place, a time, and a Zeitgeist.
+ - In proportion as man approaches the outer rim, he becomes lost in details, and the more he is preoccupied with details, the less he can understand them.
+ - Our planet is falling victim to a rigorism, so that what is done in any remote corner affects – nay, menaces – the whole. Resiliency and tolerance are lost.
+ - When you’re on the wrong road, sometimes the most progressive man is the one who goes backwards first. As long as there are such people, hope lies in our future.
+ - No society is healthy which tells its members to take no thought of the morrow because the state underwrites their future.
+ - The realization that just as no action is really indifferent, so no utterance is without its responsibility introduces, it is true, a certain strenuosity into life.
+ - The man of culture finds the whole past relevant; the bourgeois and the barbarian find relevant only what has some pressing connection with their appetite.
+ - Absorption in ease is one of the most reliable signs of present or impending decay.
+ - The typical modern has the look of the hunted.
+ - It is not that things give meaning to words; it is that meaning makes things “things.” It does not make things in their subsistence; but it does make things in their discreteness for the understanding.
+ - One of the most important revelations about a period comes in its theory of language, for that informs us whether language is viewed as a bridge to the noumenal or as a body of fictions convenient for grappling with transitory phenomena.
+ - The hero can never be a relativist.
+ - The case of the Baconians is not won until it has been proved that the substitution of covetousness for wantlessness, or an ascending spiral of desires for a stable requirement of necessities, leads to a happier condition.
+ - Neuter discourse is a false idol.
+ - Drill in exact translation is an excellent way of disposing the mind against that looseness and exaggeration with which the sensationalists have corrupted our world. If schools of journalism knew their business, they would graduate no one who could not render the Greek poets.
+ - The prevailing conception is that education must be such as will enable one to acquire enough wealth to live on the plane of the bourgeoisie. That kind of education does not develop the aristocratic virtues. It neither encourages reflection nor inspires reverence for the good.
+ - The conclusion, so vexatious to democracy, that wisdom and not popularity qualifies for rule may be forced upon us by the peril in atomic energy.
+ - When we affirm that philosophy begins with wonder, we are affirming in effect that sentiment is prior to reason .
+ - The modern position seems only another manifestation of egotism, which develops when man has reached a point at which he will no longer admit the rights to existence of things not of his own contriving.
+ - No one can take culture seriously if he believes that it is only the uppermost of several layers of epiphenomena resting on a primary reality of economic activity.
+ - Now, with the general decay of religious faith, it is the scientists who must speak ex cathedra, whether they wish to or not.
+ - Any utterance is a major assumption of responsibility, and the assumption that one can avoid that responsibility by doing something to language itself is one of the chief considerations of the Phaedrus.
+ - Somehow the notion has been loosed that nature is hostile to man or that her ways are offensive or slovenly, so that every step of progress is measured by how far we have altered these. Nothing short of a recovery of the ancient virtue of pietas can absolve man from this sin.
+ - Where character forbids self-indulgence, transcendence still hovers around.
+ - It may be true that only those minds which are habituated to think logically can safely trust their intuitive conclusions, on the theory that the subconscious level will do its kind of work as faithfully as the conscious does its kind.
+ - Poetry offers the fairest hope of restoring our lost unity of mind.
+ - The word is a sort of deliverance from the shifting world of appearances. The central teaching of the New Testament is that those who accept the word acquire wisdom and at the same time some identification with the eternal.
+ - Respecters of private property are really obligated to oppose much that is done today in the name of private enterprise, for corporate organization and monopoly are the very means whereby property is casting aside its privacy.
+ - Until the world perceives that “good” cannot be applied to a thing because it is our own, and “bad” because it is another’s, there is no prospect of realizing community.
+ - The modern state does not comprehend how anyone can be guided by something other than itself. In its eyes pluralism is treason.
+ - Piety is a discipline of the will through respect. It admits the right to exist of things larger than the ego, of things different from the ego.
+ - Since we want not emancipation from impulse but clarification of impulse, the duty of rhetoric is to bring together action and understanding into a whole that is greater than scientific perception.
+
+44 quotes

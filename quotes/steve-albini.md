@@ -1,0 +1,47 @@
+ - You can’t help noticing an amazing ass. Pretty naked ladies will always get my attention. Revealingly dressed good-looking women will always get my attention, at least for a moment.
+ - The woman I am currently crazy about was a vegetarian for a year until I started dating her. As is the case with most vegetarians, she had never eaten properly prepared meat, only commercially packaged or otherwise abused flesh.
+ - Find people who think like you and stick with them. Make only music you are passionate about. Work only with people you like and trust. Don’t sign anything.
+ - A lot of musicians are good cooks, and a lot of cooks are musicians, but I think that may just be a result of the creative impulse finding several means of expression. Probably an equivalent number are visual artists, woodworkers or compulsive liars.
+ - New York has magnificent eating available, both in restaurants and in the materials available to home cooks in the many specialty markets.
+ - For less than the cost of a Big Mac, fries and a Coke, you can buy a loaf of fresh bread and some good cheese or roast beef, which you will enjoy much more.
+ - My dad, Frank Addison Albini, was a terrific shot with a rifle and had generally excellent hunting skills. While my dad loved hunting and fishing, he didnt romanticize them. He was filling the freezer, not intellectualizing some caveman impulse or proving his worth as a real man.
+ - When people are absurdly tall, they command everyone’s attention when they walk into a room. Nobody’s ever dismissive of somebody for being too tall.
+ - In heaven, after antipasti, the first course will be pasta.
+ - There is a lot of use of ProTools in professional studios, but this is mostly for the special effects it allows, not for sound quality. These special effects soon fall out of fashion, and I don’t think this trend will define studios permanently.
+ - I think good-looking naked ladies turn on the majority of men.
+ - I’m not a particularly good cook. Part of it is that it is the kind of cooking anybody could do if they bothered. It’s improvisational. I cook with whatever I have laying around.
+ - Clip your year-end column and put it away for 10 years. See if you don’t feel like an idiot when you reread it.
+ - Im busy doing my job, and being a loudmouth doesnt appeal to me as much as when I was younger and had the youthful delusion that I was smarter than everybody else.
+ - I don’t feel like embarrassing Kurt by talking about what a psycho hosebeast his wife is, especially when he knows it already.
+ - When I’m in a restaurant, I don’t eat red meat. It doesn’t taste like anything. But if a friend of mine is grilling stuff at his house, its almost always great.
+ - Make no mistake about it: once a band has signed a letter of intent, they will either eventually sign a contract that suits the label or they will be destroyed.
+ - My father was an expert hunter, so we ate a lot of wild game when I was growing up in Montana. That helped broaden my palate generally, but I know it informed my distaste for factory farms and unspectacular commercial meat.
+ - Of the people who cook on television, I have admired people like Jacques Pepin, Julia Child, Mario Batali, Jamie Oliver and a few others because they are free of drama, display good taste and masterful technique, and use clear exposition to bring you up to speed.
+ - I want to be in cahoots with bands who want to make the record of their dreams.
+ - Almost any decent cook will make food by eye and taste. Virtually all of my family cooked that way.
+ - I learned to cook from my mom. Most of what I ate growing up was Italian cooking.
+ - Doubt the conventional wisdom unless you can verify it with reason and experiment.
+ - There won’t ever be a mass-market record industry again, and that’s fine with me because that industry didn’t operate for the benefit of the musicians or the audience, the only classes of people I care about.
+ - What’s the most outrageous thing I’ve ever done? Let’s just say I don’t think I’ve done it yet. The most outrageous thing is yet to come.
+ - I’m only interested in working on records that legitimately reflect the band’s own perception of their music and existence. If you commit yourselves to that as a tenet of the recording methodology, then I will bust my ass for you.
+ - I stopped drinking almost immediately after I had ready access to liquor, when I got to college. It almost immediately lost its appeal for me.
+ - By now all rock bands are wise enough to be suspicious of music industry scum.
+ - Many rock musicians are excellent cooks, I’ve found, and those that are prefer to eat their own cooking in the studio. I encourage this behavior as I also enjoy the benefits of fresh food.
+ - I moved to Chicago in 1980 to go to college.
+ - I don’t think anyone has exhausted the range of sound possible in a conventional rock band, but people do become slaves to their own easiest techniques.
+ - If the label presents them with a contract that the band don’t want to sign, all the label has to do is wait. There are a hundred other bands willing to sign the exact same contract, so the label is in a position of strength.
+ - If I were a gambling man I would put all my money on there not being anything other than this universe.
+ - Buy groceries and feed yourself, even on the road.
+ - We have no general conceptual thrust for the band, other than trying to make music that keeps our interest. When things are novel, they are probably things we have discovered by accident or investigation rather than by design.
+ - I wouldn’t mind being taller, because when I’m in the company of people who are absurdly tall, there’s something about them that I can’t help admiring.
+ - Suicide was such a formative band for me, so influential in the development of my taste. They’re one of those bands that operated in absolute isolation for so long that they developed a completely unique world view.
+ - Harmonics are vibrations a fraction of the length of the vibrating string, which add higher-pitched and more complex content to the notes. With a dull instrument, the harmonics die out, but with a sustaining instrument, the harmonics continue to sound along with the fundamental note.
+ - The only kind of restaurant I could imagine doing would be the extraordinarily snooty restaurant with three or four tables, and I would cook what I felt like cooking. And you could eat it or not.
+ - I’m not really interested in participating in mainstream culture. Participating in the mainstream music business is, to me, like getting involved in a racket. There’s no way you can get involved in a racket and not someway be filthied by it.
+ - It betrays hubris on the part of the artist to think his medium is limiting him, and I think we all recognize this.
+ - The bands that have been the most important to me, and the records that have been the most important to me as a fan, have been records that surprised me for one reason or another.
+ - The band cannot sign to another label or even put out its own material unless they are released from their agreement, which never happens.
+ - Cooking is about presenting flavors and other aspects of food in a way that makes best use of them and makes an engaging, satisfying meal. Taste necessarily comes into it along with technique. Some ingredients require cooking, cleaning or otherwise denaturing them, some are fine as they are.
+ - It always offended me when I was in the studio and the engineer or the assumed producer for the session would start bossing the band around. That always seemed like a horrible insult to me.
+
+45 quotes

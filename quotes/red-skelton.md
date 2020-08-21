@@ -1,0 +1,48 @@
+ - If by chance some day you’re not feeling well and you should remember some silly thing I’ve said or done and it brings back a smile to your face or a chuckle to your heart, then my purpose as your clown has been fulfilled.
+ - God’s children and their happiness are my reasons for being.
+ - Live by this credo: have a little laugh at life and look around you for happiness instead of sadness. Laughter has always brought me out of unhappy situations.
+ - I personally believe we were put here to build and not to destroy.
+ - I don’t hate my enemies. After all, I made ’em.
+ - Imitation isn’t the sincerest form of flattery – it’s plagiarism.
+ - Our principles are the springs of our actions. Our actions, the springs of our happiness or misery. Too much care, therefore, cannot be taken in forming our principles.
+ - No matter what your heartache may be, laughing helps you forget it for a few seconds.
+ - A fellow told me he was going to hang-glider school. He said, ‘I’ve been going for three months. ’ I said, ‘How many successful jumps do you need to make before you graduate?’ He said, ‘All of them. ’
+ - I only come to life when there are people watching.
+ - All men make mistakes, but married men find out about them sooner.
+ - People think I am dead because they haven’t seen me around for awhile. I’m not dead, I’m very much alive, as you can see. Although, there are two things I do before I get up every morning. I look around and if I don’t smell flowers or see candles flickering I go ahead and get up.
+ - I’m nuts and I know it. But so long as I make ’em laugh, they ain’t going to lock me up.
+ - Heard about the young deaf boy who used sign language-One day he told his mother a dirty joke and she washed his hands out with soap.
+ - Mom used to say I didn’t run away from home my destiny just caught up with me at an early age.
+ - I personally believe that each of us was put here for a purpose – to build not to destroy. If I can make people smile, then I have served my purpose for God.
+ - Remember: Marriage is the number one cause of divorce.
+ - I know my limit. I just keep passing out before I reach it.
+ - Exercise? I get it on the golf course. When I see my friends collapse, I run for the paramedics.
+ - My doctor said I look like a million dollars – green and wrinkled.
+ - If I can make people smile, then I have served my purpose for God.
+ - We also sleep in separate beds. Hers is in California and mine is in Texas.
+ - I don’t need glasses, but I’ve just reached the age where curiosity is greater than vanity.
+ - I was a sober as the next guy. The only problem is the next guy was Dean Martin.
+ - She has an electric blender, electric toaster and electric bread maker. She said “There are too many gadgets and no place to sit down!” So I bought her an electric chair.
+ - I get plenty of exercise carrying the coffins of my friends who exercise.
+ - I left home because I was hungry.
+ - Laughter has always brought me out of unhappy situations.
+ - You know, last night it was so cold that my pillow and my sheets fought to see who got under the blankets first.
+ - You know how to tell when you’re getting old? When your broad mind changes places with your narrow waist.
+ - Congress: Bingo with billions.
+ - I won’t mind dying if I can tell St. Peter a joke he hasn’t heard.
+ - Any kid will run any errand for you, if you ask at bedtime.
+ - Recipe for a happy marriage: My wife and I always hold hands. If I let go, she shops.
+ - Today’s comics use four-letter words as a shortcut to thinking. They’re shooting for that big laugh and it becomes a panic thing, using four-letter words to shock people.
+ - Television: The device that brings into your living room characters you would never allow in your living room.
+ - It proves what they say, give the public what they want to see and they’ll come out for it.
+ - Wouldn’t it be a pity if someone said that is a prayer and that would be eliminated from schools, too?
+ - She got a mud pack and looked great for two days. Then the mud fell off.
+ - I just want to be known as a clown, because to me that’s the height of my profession. It means you can do everything – sing, dance and above all, make people laugh.
+ - I married Miss Right. I just didn’t know her first name was Always.
+ - I asked my wife where she wanted to go for our anniversary. ‘Somewhere I haven’t been in a long time!’ she said. So I suggested the kitchen.
+ - I have a sixth sense, but not the other five. If I wasn’t making money, they’d put me away.
+ - I don’t pick on politicians. They ain’t done nothin’.
+ - I consider the television set as the American fireplace, around which the whole family will gather.
+ - Old age is when broadness of the mind and narrowness of the waist change places.
+
+46 quotes

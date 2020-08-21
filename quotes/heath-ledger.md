@@ -1,0 +1,75 @@
+ - Introduce a little anarchy, upset the established order, and everything becomes chaos, I’m an agent of chaos, and you know the thing about chaos? It’s fair.
+ - I believe whatever doesn’t kill you, simply makes you stranger.
+ - The only sensible way to live in this world is without rules!
+ - Do I really look like a guy with a plan?
+ - Let’s put a smile on that face!
+ - Never give up on what makes you smile.
+ - Don’t let anyone ever make you feel you don’t deserve what you want...
+ - See I’m not a monster, I’m just ahead of the curve.
+ - Nobody panics when things go “according to plan”. Even if the plan is horrifying!
+ - You see, in their last moments people show you who they really are.
+ - I like to do something I fear.
+ - I think the most common cause of insomnia is simple; its loneliness.
+ - If you are just safe about the choices you make, you don’t grow.
+ - I’m not good at future planning. I don’t plan at all. I don’t know what I’m doing tomorrow. I don’t have a day planner and I don’t have a diary. I completely live in the now, not in the past, not in the future.
+ - If you make decisions based upon people’s reactions or judgments then you make really boring choices.
+ - I feel like I’m wasting time if I repeat myself.
+ - A little fight in you. I like that.
+ - Does it depress you? To know just how alone you really are?
+ - Some people just wanna see the world burn.
+ - I’m sure drugs and alcohol perhaps would inspire new thoughts, but it’s certainly not something that I use as a tool or a mechanism to create.
+ - If you spend all day on horseback, and you hop off, you walk around like you still have a horse between your legs. And it affects your shoulders. They fall.
+ - I only do this because I’m having fun. The day I stop having fun, I’ll just walk away.
+ - I believe acting truly is harnessing the power of belief.
+ - May I ask your name, my lady? Or perhaps angels have no names, only beautiful faces.
+ - When I first started acting, I was just crap.
+ - My nervous energy is usually the easiest form of energy to tap into.
+ - There is no Yoda-there’s no one who points you in the right direction. You’ve got to figure that out by yourself.
+ - I like to see films that come out with lower budgets because you’re forced into using your imagination. You don’t have everything at your fingertips. You have to create it from scratch.
+ - People generally express more in between their sentences when they’re not speaking. Words are usually there to disguise who someone is or what they’re feeling.
+ - The Australian sense of humor is very dry, sarcastic, and very undercover. Like if I tell any jokes in America, people just think I’m serious! So I just quit telling any jokes whatsoever.
+ - I think your personal evolution runs hand in hand with your professional evolution. Performance and the person you are kind of grow simultaneously.
+ - I’m in control of my life, not anyone in Hollywood.
+ - I’m kind of addicted to moving.
+ - I’m born to be a father. And I’ve been looking forward to this all my life.
+ - I thought, I need to be more cautious about my choices – it reflects on who I am.
+ - Had I listened to my agent, I’d be running around in tights, climbing buildings and stuff.
+ - I feel like I’ve never been in a film that people have liked before.
+ - My life is together, both professionally and socially.
+ - I do keep pre-occupied.
+ - Growing up in Australia, you never feel like you’re going to live beyond that place. You wake up and you go to the beach, and you do your homework. You’re just a kid.
+ - It’s like anything in life, visualizing the old man you’re going to become: As long as you have a clear picture of that – the life you want to lead – eventually you’ll probably get there.
+ - The first memory I have, anyway, I guess – I think it was my second birthday and the cake came out with the candles and I was very excited and I was, like, “Oh! A cake!” and then my cousin blew out the candles. I was so disappointed. It just broke my heart. And so that’s stamped in my brain.
+ - Anyone that has a job that takes them away from home, I think, can understand the difficulties in maintaining consistency, not only with your family and those you love but with your friends.
+ - I like to set up obstacles and defeat them.
+ - It’s kind of a rule of thumb for me to self-doubt going into any kind of project. I always think that I shouldn’t be doing it and I don’t know how to do it and I’m going to fail and that I fooled them. I always try to find a way out.
+ - I generally don’t think most situations can be labeled as black or white.
+ - I apologize for my terrible interview skills.
+ - The reason that you dance and sing is to make the audience feel like they’re dancing and singing. As long as you’re having fun with it and giving it 100 percent, they’re gonna feel that.
+ - I’m very comfortable with horses. I love horses and I have grown up around farm-hands. There’s something very universal about anyone who’s on horseback night and day. When you get off that horse, you are still walking as if there’s still a horse between your legs.
+ - My mom and my dad never pushed me into performing. They never prohibited me from trying anything, or being anything. They never restricted me in any way. For which I’ll be forever grateful.
+ - If having true love and love that is expressive and free outside of work affects a project where you have to be restrained and in denial and fixed and closed off. This doesn’t mean you go out and just destroy your love outside of your life and kind of mirror your movie.
+ - It’s odd, that’s why I don’t like telling people I played field hockey. It’s real big in Australia for guys. But I say I played in America, and everybody goes, ‘Oh, you girl!’
+ - In the birthing process, you come out just realizing how stupid and weak men are! I mean, I might as well not have been in there, we’re useless!
+ - In order not to hold a frame with someone, you have to be intimidated by them.
+ - I’m not a big fan of western movies and I really don’t like cowboy-indian movies. I have never watched them.
+ - I never want to feel like I’ve achieved my goal. It’s like Chinese farmers. They never admit that it’s a good season. They feel like they’ll be punished.
+ - I do think that drugs and alcohol have been glorified and exoticized in such a way that it gets into the art world.
+ - I apologize for my terrible interview skills. I wasn’t prepared to expose stories about something so special and wonderfully private that is happening in my life. I guess a part of me wishes that I’d never have to and that maybe I could protect this special time. I was dreaming.
+ - You know, I’m not in a hurry, and everybody else in Hollywood – particularly agents and managers – they’re all in a hurry.
+ - I’ve never had high expectations of my work and I certainly am not going to let that plague my thoughts. I’m just going to continue to choose what feels right for me at the time and go with it.
+ - I never really cared much for Hollywood or movies. But the curiosity for filmmaking, and expanding myself as an actor and my curiosity for people and portraying them, just has grown. And that’s from simply being involved in the industry. But it was never a goal of mine as a kid.
+ - I’m still a kid. I’m like six years old. But it’s just a matter of wanting to get up, it’s just a big journey. I felt like when I left home that I was on a journey, and I still am.
+ - There’s nothing like working with your mates – it’s the way it should be, as far as I’m concerned.
+ - I’m just not one of those naturally funny, relaxed actors who enjoy the spotlight and are so good at it.
+ - The Oscars are a really strange concept to me, that films and acting can be competing against each other. We’re not running the same race. It’s like we’re all doing different sports in fact.
+ - It’s a little uncomfortable doing love scenes in armor, but, you know, when the heat’s on, the heat’s on.
+ - You learn more about yourself through your child, I guess.
+ - I am not a public speaker and never will be.
+ - In my opinion, New York City police officers are brave.
+ - I have a lot of great distractions outside of acting.
+ - I didn’t want to raise my child in Hollywood.
+ - It’s rare that there’s a role that requires an Australian accent.
+ - I wasn’t going to have fun doing a teen movie again.
+
+73 quotes

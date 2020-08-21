@@ -1,0 +1,31 @@
+ - Tailoring your clothes makes all the difference.
+ - I’m exhausted almost all the time.
+ - Women are hard on themselves. I’m trying to stop focusing on my flaws and appreciate what I love about my body.
+ - I’m a pretty open book.
+ - I’ve thought about going back to school.
+ - I’ve been dancing my entire life. Jazz, hip hop, ballet. And then there’s tap dancing. I love to tap.
+ - I promised myself I wouldn’t work again until I found something that excited me.
+ - I can be quite serious sometimes so laughing is key.
+ - At a party, I am the kind of girl who will wait until the end of the night before I really get going. I’m a little anti-social at first, but I’m not immune to dancing on tables either.
+ - I’ve given up looking for a boyfriend. That’s not to say I won’t be interested if the right guy comes along. But I’m not in a hurry.
+ - I don’t have sociopathic tendencies!
+ - I think people who lack humility are really annoying.
+ - You put the picture of the ideal person in your head and then someone comes along and they don’t fit that ideal at all. But somehow there is something about them that is so attractive. Everyone that I have fallen for has not fit that ideal at all.
+ - We live in a time where the media is a very difficult thing to navigate because it’s everywhere, and I tend to want to be a lot more private with my life.
+ - I don’t dig parties. I rather sit at home with my friends and a good movie.
+ - Women are hard on themselves.
+ - My idea of a perfect pet is a really, really big dog! Huge!
+ - I think women look for that quality in a man of being a good dad whether they’re immediately wanting to be a parent or not.
+ - It’s very important to be able to distinguish the actors from the characters they play.
+ - I’m a big zombie buff.
+ - With family dramas, it’s hard to keep those stories alive.
+ - I think it’s important to be with a guy who has a strong sense of integrity. That’s how I was raised, and that’s something I look for.
+ - I’d love to do some theater.
+ - I think people in general think more about their insecurities.
+ - Oddly enough, I think that everybody can relate to revenge, on some level. Everyone has wanted to exact it, at some point, and everybody has tampered with the idea, even if they didn’t actually go through with it.
+ - I’m excited by challenging myself physically and mentally every day.
+ - Pilates is my favorite core strengthener. I do it three or four times a week. With all the strengthening and lengthening, it’s like ballet. Plus, you get to do it lying down!
+ - It’s important to me that a man is good at taking care of people.
+ - I’ve had a couple of pinch-me moments.
+
+29 quotes

@@ -1,0 +1,61 @@
+ - I have no country to fight for; my country is the earth, and I am a citizen of the world.
+ - I am opposing a social order in which it is possible for one man who does absolutely nothing that is useful to amass a fortune of hundreds of millions of dollars, while millions of men and women who work all the days of their lives secure barely enough for a wretched existence.
+ - The most heroic word in all languages is revolution.
+ - If it had not been for the discontent of a few fellows who had not been satisfied with their conditions, you would still be living in caves. Intelligent discontent is the mainspring of civilization. Progress is born of agitation. It is agitation or stagnation.
+ - While there is a lower class, I am in it, while there is a criminal element, I am of it, and while there is a soul in prison, I am not free.
+ - The workers are the saviors of society, the redeemers of the race.
+ - You have got to unite in the same labor union and in the same political party and strike and vote together, and the hour you do that, the world is yours.
+ - Too long have the workers of the world waited for some Moses to lead them out of bondage. I would not lead you out if I could; for if you could be led out, you could be led back again. I would have you make up your minds there is nothing that you cannot do for yourselves.
+ - I’d rather vote for something I want and not get it than vote for something I don’t want, and get it.
+ - The master class has always declared the wars; the subject class has always fought the battles. The master class had all to gain and nothing to lose, while the subject class has had nothing to gain and all to lose – especially their lives.
+ - I would rather be arrested as a traitor than fight a war for Wall Street.
+ - Wherever capitalism appears, in pursuit of its mission of exploitation, there will Socialism, fertilized by misery, watered by tears, and vitalized by agitation be also found, unfurling its class-struggle banner and proclaiming its mission of emancipation.
+ - When I rise it will be with the ranks and not from the ranks.
+ - The protection the government owes you and fails to provide, you are morally bound to provide for yourselves...
+ - The issue is Socialism versus Capitalism. I am for Socialism because I am for humanity. We have been cursed with the reign of gold long enough. Money constitutes no proper basis of civilization. The time has come to regenerate society – we are on the eve of universal change.
+ - Labor is today the most vital and potential power this planet has ever known, and its historic mission is as certain of ultimate realization as is the setting of the sun.
+ - The rights of one are as sacred as the rights of a million.
+ - The American people can have anything they want; the trouble is, they don’t know what they want.
+ - Anybody can be nobody, but it takes a man to be somebody.
+ - We want a system in which the worker shall get what he produces and the capitalist shall produce what he gets.
+ - Progress is born of agitation. It is agitation or stagnation.
+ - Capitalism needs and must have the prison to protect itself from the criminals it has created.
+ - Be true to yourself and you cannot be a traitor to any good cause on earth.
+ - I am guilty of believing that the human race can be humanized and enriched in every spiritual inference through the saner and more beneficent processes of peaceful persuasion applied to material problems rather than through wars, riots and bloodshed.
+ - Those who produce should have, but we know that those who produce the most – that is, those who work hardest, and at the most difficult and most menial tasks, have the least.
+ - I would no more teach children military training than teach them arson, robbery, or assassination.
+ - The master class has always declared the wars; the subject class has always fought the battles.
+ - The prison, above all others, should be the most human of institutions.
+ - Chicago is the product of modern capitalism, and, like other great commercial centers, is unfit for human habitation.
+ - What can Labor do for itself? The answer is not difficult. Labor can organize, it can unify; it can consolidate its forces. This done, it can demand and command.
+ - The Republican and Democratic parties, or, to be more exact, the Republican-Democratic party, represent the capitalist class in the class struggle. They are the political wings of the capitalist system and such differences as arise between them relate to spoils and not to principles.
+ - The truth has always been dangerous to the rule of the rogue, the exploiter, the robber. So the truth must be ruthlessly supressed.
+ - Intelligent discontent is the mainspring of civilization.
+ - I would not be a Moses to lead you into the Promised Land, because if I could lead you into it, someone else could lead you out of it.
+ - I may not be able to say all I think, but I am not going to say anything I do not think.
+ - The class which has the power to rob upon a large scale has also the power to control the government and legalize their robbery.
+ - Some go to prison for stealing, and others for believing that a better system can be provided and maintained than one that makes it necessary for a man to steal in order to live.
+ - You need at this time especially to know that you are fit for something better than slavery and cannon fodder.
+ - If I were hungry and friendless today, I would rather take my chances with a saloon-keeper than with the average preacher.
+ - Do not worry over the charge of treason to your masters, but be concerned about the treason that involves yourselves. Be true to yourself and you cannot be a traitor to any good cause on Earth.
+ - I am for Socialism because I am for humanity.
+ - In the very progress of society, the prison has in the very nature of things undergone some improvement, but there are vast stretches yet to be covered before the prison becomes, if it ever does, an institution for the reclamation and rehabilitation of erring and unfortunate men and women.
+ - I do not oppose the insane asylum – but I abhor and condemn the cutthroat system that robs man of his reason, drives him to insanity and makes the lunatic asylum an indispensable adjunct to every civilized community.
+ - Nothing is more humiliating than to have to beg for work, and a system in which any man has to beg for work stands condemned. No man can defend it.
+ - Riches are the savings of many in the hands of one.
+ - I don’t want you to follow me or anyone else. If you are looking for a Moses to lead you out of the capitalist wilderness, you will stay right where you are. I would not lead you into this promised land if I could because if I could lead you in, someone else could lead you out.
+ - I would rather a thousand times be a free soul in jail than to be a sycophant and coward in the streets.
+ - The economic owning class is always the political ruling class.
+ - A man should take to himself no discomfort from an opinion expressed or implied by his adversary, but it is difficult, and oftentimes humiliating to attempt to justify the kindness of one’s friends.
+ - The guns on the walls that surround the prison accurately, though unwittingly, index the true character of the penitentiary in our day.
+ - From the crown of my head to the soles of my feet I am Bolshevik, and proud of it.
+ - When great changes occur in history, when great principles are involved, as a rule the majority are wrong.
+ - A prison is a cross section of society in which every human strain is clearly revealed.
+ - It is when you have done your work honestly, when you have contributed your share to the common fund that you begin to live.
+ - No war by any nation in any age has ever been declared by the people.
+ - If the people would but analyze the human equation of a prison they might better account for the crimes that are visited upon them in cities, towns, and hamlets, ofttimes by men who graduated with an education and equipment for just that sort of retributive service from some penal institution.
+ - As long as this great army of workers is scattered among so many craft unions, it will be impossible for them to unite and act in harmony together. Craft unionism is the negation of solidarity. The more unions you have, the less unity.
+ - In all the history of organized labor, from the earliest times to the present day, no body of union workingmen ever served in a more humiliating and debasing role than that in which the railway unions appear at this very hour before the American people and the world.
+ - The general public knows practically nothing about the prison and appears to be little concerned about how it is managed and how prisoners are treated.
+
+59 quotes

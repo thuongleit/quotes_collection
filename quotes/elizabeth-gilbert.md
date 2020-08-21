@@ -1,0 +1,334 @@
+ - Om Namah Shivaya, meaning, I honor the divinity that resides within me.
+ - Embrace the glorious mess that you are.
+ - Ruin is a gift. Ruin is the road to transformation.
+ - You need to learn how to select your thoughts just the same way you select your clothes every day. This is a power you can cultivate. If you want to control things in your life so bad, work on the mind. That’s the only thing you should be trying to control.
+ - This is a good sign, having a broken heart. It means we have tried for something.
+ - I am stronger than depression and I am braver than loneliness and nothing will ever exhaust me.
+ - What are you willing to give up, in order to become who you really need to be?
+ - There’s always another level up. There’s always another ascension. More grace, more light, more generosity, more compassion, more to shed, more to grow.
+ - Watch for the people whose eyes light up when you talk about your dream. Those are the people you keep.
+ - Let your conscience be your guide.
+ - To lose balance sometimes for love is part of living a balanced life.
+ - Your emotions are the slaves to your thoughts, and you are the slave to your emotions.
+ - Sometimes life is too hard to be alone, and sometimes life is too good to be alone.
+ - So miss him. Send him some love and light every time you think about him, then drop it.
+ - The inability to open up to hope is what blocks trust, and blocked trust is the reason for blighted dreams.
+ - You can measure the happiness of a marriage by the number of scars that each partner carries on their tongues, earned from years of biting back angry words.
+ - We don’t realize that, somewhere within us all, there does exist a supreme self who is eternally at peace.
+ - Your fear is the most boring thing about you.
+ - The Bhagavad Gita – that ancient Indian Yogic text – says that it is better to live your own destiny imperfectly than to live an imitation of somebody else’s life with perfection. So now I have started living my own life. Imperfect and clumsy as it may look, it is resembling me now, thoroughly.
+ - Marriage becomes hard work once you have poured the entirety of your life's expectations for happiness into the hands of one mere person. Keeping that going is hard work.
+ - To be fully seen by somebody, then, and be loved anyhow – this is a human offering that can border on miraculous.
+ - There is a level of grief so deep that it stops resembling grief at all. The pain becomes so severe that the body can no longer feel it. The grief cauterizes itself, scars over, prevents inflated feeling. Such numbness is a kind of mercy.
+ - Happiness is the consequence of personal effort. You fight for it, strive for it, insist upon it, and sometimes even travel around the world looking for it. You have to participate relentlessly in the manifestations of your own blessings.
+ - It’s what I call the haute couture, high-end version of fear perfectionism. It’s just fear in really good shoes. But it’s still fear.
+ - Someone has to write all those stories: why not me?
+ - True power comes from standing in your own truth and walking your own path.
+ - We all want things to stay the same. Settle for living in misery because we are afraid of change, of things crumbling to ruins. Ruin is a gift. Ruin is the road to transformation.
+ - Kalos Kai Agathos, the singular balance of the good and the beautiful.
+ - What worked yesterday doesn’t always work today.
+ - Zen masters say you cannot see your reflection in running water, only in still water.
+ - When the karma of a relationship is done, only love remains. It’s safe. Let go.
+ - At some point, you gotta let go, and sit still, and allow contentment to come to you.
+ - God dwells within you, as you.
+ - Someday you’re gonna look back on this moment of your life as such a sweet time of grieving. You’ll see that you were in mourning and your heart was broken, but your life was changing...
+ - A true soul mate is probably the most important person you’ll ever meet, because they tear down your walls and smack you awake.
+ - I think I deserve something beautiful.
+ - One must always be prepared for riotous and endless waves of transformation.
+ - Mistakes will be made. Failure will occur. You pick yourself up and carry on.
+ - The great Sufi poet and philosopher Rumi once advised his students to write down the three things they most wanted in life. If any item on the list clashes with any other item, Rumi warned, you are destined for unhappiness.
+ - Depression on my left, Loneliness on my right. They don’t need to show me thier badges. I know these guys very well.
+ - Faith is belief in what you cannot see or prove or touch. Faith is walking face-first and full-speed into the dark.
+ - When I get lonely these days, I think: So BE lonely, Liz. Learn your way around loneliness. Make a map of it. Sit with it, for once in your life. Welcome to the human experience. But never again use another person’s body or emotions as a scratching post for your own unfulfilled yearnings.
+ - Fear can have a voice, but it doesn’t get a vote.
+ - A fish and a bird may indeed fall in love, but where shall they live?
+ - Don’t be afraid. Don’t be daunted. Just do your job. Continue to show up for your piece of it, whatever that might be.
+ - A true soul mate is a mirror, the person who shows you everything that is holding you back, the person who brings you to your own attention so you can change your life.
+ - Every day when you wake up, ask yourself, ‘What do I really, really, really want? ’ You have to say really, really, really, otherwise you won’t believe it.
+ - I am a better person when I have less on my plate.
+ - Balance is not letting anyone love you less than you love yourself.
+ - Travel is similar to therapy. You can go to the best psychologist in the world for ten years. If you don’t feel like actively shifting anything in your life, there is nothing that person can do to change you.
+ - Stop wearing your wishbone where your backbone ought to be.
+ - If life gives you lemons, don’t settle for simply making lemonade – make a glorious scene at a lemonade stand.
+ - A glorious failure can sometimes be more life affirming than a cautious win.
+ - You take whatever works from wherever you can find it, and you keep moving toward the light.
+ - The world is like a dropped pie most of the time. Don’t kill yourself trying to put it back together. Just grab a fork and eat some of it off the floor. Then carry on.
+ - The resting place of the mind is the heart. The only thing the mind hears all day is clanging bells and noise and argument, and all it wants is quietude. The only place the mind will ever find peace is inside the silence of the heart. That’s where you need to go.
+ - Il bel far niente.
+ - A soul mates purpose is to shake you up, tear apart your ego a little bit, show you your obstacles and addictions, break your heart open so new light can get in, make you so desperate and out of control that you have to transform your life, then introduce you to your spiritual master...
+ - God never slams a door in your face without opening a box of Girl Scout cookies.
+ - I will not harbor unhealthy thoughts anymore.
+ - I thought about one of my favorite Sufi poems, which says that God long ago drew a circle in the sand exactly around the spot where you are standing right now. I was never not coming here. This was never not going to happen.
+ - It is completely acceptable to be tired because it means you’re working hard. But it’s not acceptable to be stressed because that means things are going wrong or your head is broken.
+ - I would like to spend the rest of my days in a place so silent–and working at a pace so slow–that I would be able to hear myself living.
+ - Your treasure – your perfection – is within you already. But to claim it, you must leave the busy commotion of the mind and abandon the desires of the ego and enter into the silence of the heart.
+ - From the most sacred ancient text of Yoga: Oh Krishna, the mind is restless, turbulent, strong, and unyielding. I consider it as difficult to subdue as the wind.
+ - Liz, you must be very polite with yourself when you are learning something new.
+ - Happiness is the consequence of personal effort. You must fight for it, strive for it, and insist upon it.
+ - The more exquisitely and delightfully you can do nothing, the higher your life’s achievement.
+ - Having a baby is like getting a tattoo on your face. You really need to be certain it’s what you want before you commit.
+ - Most of us, even if only for two minutes in our lives, have experienced at some time or another an inexplicable and random sense of complete bliss, unrelated to anything that was happening in the outside world.
+ - That’s the thing about a human life-there’s no control group, no way to ever know how any of us would have turned out if any variables had been changed.
+ - The only thing more unthinkable than leaving was staying; the only thing more impossible than staying was leaving.
+ - The only place the mind will ever find peace is inside the silence of the heart. That’s where you need to go.
+ - When the past has passed from you at last, let go. Then climb down and begin the rest of your life. With great joy.
+ - I crossed the street to walk in the sunshine.
+ - Your home is whatever in this world you love more than you love yourself.
+ - Look for God. Look for God like a man with his head on fire looks for water.
+ - As smoking is to the lungs, so is resentment to the soul; even one puff is bad for you.
+ - In the end, though, maybe we must all give up trying to pay back the people in this world who sustain our lives. In the end, maybe it’s wiser to surrender before the miraculous scope of human generosity and to just keep saying thank you, forever and sincerely, for as long as we have voices.
+ - Listen to the whispers or soon you will be listening to the screams.
+ - Take me someplace where we can be silent together.
+ - There’s no trouble in this world so serious that it can’t be cured with a hot bath, a glass of whiskey, and the Book of Common Prayer.
+ - Success isn’t about acquiring things, it’s about discovering your life purpose and following the call.
+ - I have a rigid self-accountability. You have to work hard.
+ - The best we can do then, in response to our incomprehensible and dangerous world, is to practice holding equilibrium internally – no matter what insanity is transpiring out there.
+ - Also, I could finally sleep. And this was the real gift, because when you cannot sleep, you cannot get yourself out of the ditch – there’s not a chance.
+ - God is an experience of supreme love.
+ - Never forget that once upon a time, in an unguarded moment, you recognized yourself as a friend.
+ - Dear Lord, please show me everything I need to understand about forgiveness and surrender.
+ - You have to participate relentlessly in the manifestation of your own blessings.
+ - You almost can’t wait too long to get married. The longer you wait, the better off you are going to be. And the happier your kids are going to be, and the happier a mom you are going to be.
+ - Some days are meant to be counted, others are meant to be weighed.
+ - The day is ending. It’s time for something that was beautiful to turn into something else that is beautiful. Now, Let go.
+ - I’m choosing happiness over suffering, I know I am. I’m making space for the unknown future to fill up my life with yet-to-come surprises.
+ - My heart was broken so badly last time that it still hurts. Isn’t that crazy? To still have a broken heart almost two years after a love story ends?
+ - Real, sane, mature love – the kind that pays the mortgage year after year and picks up the kids after school – is not based on infatuation but on affection and respect.
+ - Destiny, I feel, is also a relationship – a play between divine grace and willful self-effort.
+ - That’s just your ego, trying to make sure it stays in charge. This is what ego does. It keeps you feeling separate, keeps you with a sense of duality, tries to convince you that you’re flawed and broken and alone instead of whole.
+ - I believe in miracles, I believe in the Law of Attraction, but even I don’t think I’m big enough to manifest five Asian elephants cloaked in gold...
+ - The world needs women who stop asking for permission from the principal. Permission to live their lives as they deeply know they often should. I think we still look to authority figures for validation, recognition, permission.
+ - There is a reason they call God a presence – because God is right here, right now. In the present is the only place to find Him, and now is the only time.
+ - Guilt’s just your ego’s way of tricking you into thinking that you’re making moral progress. Don’t fall for it, my dear.
+ - Being content with what you have already is an art form that leads to a peace that can’t be replaced by anything else.
+ - Creativity asks you to enter realms with uncertain outcomes. People want to create a safe life for themselves so they try to live without fear and they end up killing their creativity in the process.
+ - Learning how to discipline your speech is a way of preventing your energies from spilling out of you through the rupture of your mouth, exhausting you and filling the world with words, words, words instead of serenity, peace and bliss.
+ - No experience in this world has ever been cathartic without the willing participation of the individual. Life does not automatically bestow wisdom or growth upon anyone just for showing up.
+ - Oh, I just want what we all want: a comfortable couch, a nice beverage, a weekend of no distractions and a book that will stop time, lift me out of my quotidian existence and alter my thinking forever.
+ - Do not apologize for crying. Without this emotion, we are only robots.
+ - Marriage is not simply a romantic union between two people; it’s also a political and economic contract of the highest order.
+ - It’s easy enough to pray when you’re in distress but continuing to pray even when your crisis has passed is like a sealing process, helping your soul hold tight to its good attainment.
+ - If you’re going to answer the call and you’re going to transform and you’re going to change, get ready. It is not a day at the beach.
+ - The problem, simply put, is that we cannot choose everything simultaneously. So we live in danger of becoming paralyzed by indecision, terrified that every choice might be the wrong choice.
+ - Devotion is diligence without assurance. If faith were rational, it wouldn’t be by definition faith. Faith is walking face-first and full speed into the dark.
+ - Who loves you most? Who loves you best? Who thinks of you when others rest?
+ - Learn your way around loneliness. Make a map of it. Sit with it, for once in your life. Welcome to the human experience.
+ - When a man who looks like Yoda hands you a prophecy, you have to respond.
+ - It has never been easy for me to understand why people work so hard to create something beautiful, but then refuse to share it with anyone, for fear of criticism.
+ - I was a writer before ‘Eat, Pray, Love,’ and I’ll be a writer after it’s over. It’s what I want to do for the rest of my life.
+ - The Augusteum warns me not to get attached to any obsolete ideas about who I am, what I represent, whom I belong to, or what function I may once have intended to serve.
+ - I love my pizza so much, in fact, that I have come to believe in my delirium that my pizza might actually love me, in return. I am having a relationship with this pizza, almost an affair.
+ - Man is a demon, man is a god. Both true.
+ - You must find another reason to work, other than the desire for success or recognition. It must come from another place.
+ - As for discipline – it’s important, but sort of overrated. The more important virtue for a writer, I believe, is self-forgiveness. Because your writing will always disappoint you. Your laziness will always disappoint you.
+ - If you’re alive, you’re a creative person.
+ - Change is all about motion, motion is all about uncertainty and we are deeply uncomfortable with uncertainty.
+ - God waited me out.
+ - I believe in a magnificent God.
+ - There’s nothing special about your fear.
+ - Parla Come Mangi’ – It is a common way to say ‘be simple’, ‘don’t try to be rhetorical’ literaly: ’speak the way you eat.
+ - When it comes to women, get your life together first. Put on your own oxygen mask first. Figure out who you are. Mature. And then go find somebody to share that life with.
+ - Do I really deserve this pleasure? This is American, too-the insecurity about whether we have earned our happiness.
+ - Infatuation is not quite the same thing as love; it’s more like love’s shady second cousin who’s always borrowing money and can’t hold down a job.
+ - If you want to get to the castle, Groceries, you’ve got to swim the moat.
+ - When you’re lost in those woods, it sometimes takes you a while to realize that you are lost.
+ - Let me ask you something, in all the years that you have undressed in front of a gentleman has he ever asked you to leave? Has he ever walked out and left? No? It’s because he doesn’t care! He’s in a room with a naked girl, he just won the lottery.
+ - It’s still two human beings trying to get along, so it’s going to be complicated. And love is always complicated. But humans must try to love each other, darling. We must get our hearts broken sometimes. This is a good sign, having a broken heart. It means we have tried for something.
+ - I do not need to love you to prove that I love myself!!
+ - This was my moment to look for the kind of healing and peace that can only come from solitude.
+ - Childlessness doesn’t make people selfish; selfishness makes people selfish.
+ - I want God to play in my bloodstream the way sunlight amuses itself on the water.
+ - Smile with face, smile with mind, and good energy will come to you and clean away dirty energy.
+ - But never again use another person’s body or emotions as a scratching post for your own unfulfilling yearnings.
+ - You have no idea how strong my love is!
+ - David was catnip and kryptonite to me.
+ - Most of humanity, he said, have eyes that are so caked shut with the dust of deception they will never see the truth, no matter who tries to help them.
+ - Our relationship now thoroughly ruined, with even civility destroyed between us, all I wanted anymore was the door.
+ - Desperate love is always the toughest way to do it.
+ - The resting place of the mind is the heart.
+ - I was perfectly happy in my boring life before you came along.
+ - The love that moves the sun and the other stars.
+ - In order for marriage to endure it has to change along with us, and it does that very graciously. And in the end I find there is something kind of moving about it: the fact that people continue to insist on choosing somebody to build a life with.
+ - True wisdom gives the only possible answer at any given moment, and that night, going back to bed was the only possible answer.
+ - By unnerving definition, anything that the heart has chosen for its own mysterious reasons it can always unchoose later – again, for its own mysterious reasons.
+ - There is hardly a more gracious gift that we can offer somebody than to accept them fully, to love them almost despite themselves.
+ - Creativity is a scavenger hunt. It’s your obligation to pay attention to clues, to the thing that gives you that little tweak.
+ - Only the young and stupid are confident about sex and romance.
+ - There are only two questions that human beings have ever fought over, all through history. ‘How much do you love me?’ And, ‘Who’s in charge?’ Everything else is somehow manageable. But these two questions of love and control undo us all, trip us up and cause war, grief, and suffering.
+ - I never promised the universe that I would write brilliantly; I only promised the universe that I would write.
+ - Absolute certainty is not something I strive for anymore. I’ve learned the hard way that destiny usually looks upon our most strident convictions with amusement, or perhaps even pity.
+ - So now I have started living my own life. Imperfect and clumsy as it may look, it is resembling me now, thoroughly.
+ - I had a great teacher in India who said to me, ‘If you think you’re spiritual and evolved and enlightened, go home for Christmas.’
+ - I wonder if I am capable of being somebody’s sun, somebody’s everything. Am I centered enough now to be the center of somebody else’s life?
+ - Marriage is not a game for the young.
+ - I actually have a great deal of respect for antidepressants; I think they can be enormously mighty tools toward recovery.
+ - Your tears are my prayers.
+ - I was not rescued by a prince; I was the administrator of my own rescue.
+ - Please go to this pizzeria. Order the margherita pizza with double mozzarella. If you do not eat this pizza when you are in Naples, please lie to me and tell me that you did.
+ - I am the planet’s most affectionate life-form, something like the cross between a golden retriever and a barnacle.
+ - Every word was a singing sparrow, a magic trick, a truffle for me. The words made me laugh in delight.
+ - The only boring people I know are bored people.
+ - Devotion is diligence without assurance.
+ - We’re already separated that’s official but there’s still a window of hope left open that perhaps someday we could give things another try.
+ - I used to say, ‘Man, I think I’d be a really good dad. I’ll be a great provider. I’m funny; I’ll go on trips with them – I’ll do all sorts of stuff.’ But the momming? I’m not made for that. I have a really good mom; I know what she put into it.
+ - He looks at you like you’re someone he’s never met before, much less someone he once loved with high passion. The irony is, you can hardly blame him. I mean, check yourself out. You’re a pathetic mess, unrecognizable even to your own eyes.
+ - Traveling-to-a-place energy and living-in-a-place energy are two fundamentally different energies.
+ - It used to be that god was revealed in the wonders of nature; now God was being challenged by those same wonders. Scholars were now required to choose one side or the other.
+ - Addiction is the hallmark of every infatuation-based love story.
+ - You have now reached infatuation’s final destination – the complete and merciless devaluation of self.
+ - My whole life I’ve been an over-giver. My general operating policy has always been, ‘If it belongs to me, don’t worry: You can have it!’
+ - There’s only one problem with the hero’s journey, it never included women.
+ - Clearing out all your misery gets you out of the way. You cease being an obstacle, not only to yourself but to anyone else. Only then are you free to serve and enjoy other people.
+ - The gods are fond of the cryptic and dislike the evident.
+ - I was a veritable Johnny Appleseed of grand expectations, and all I reaped for my trouble was a harvest of bitter fruit.
+ - When you want to do something creative and you want to do something new, you have to start with the thing that’s making you want to jump up out of bed in the morning.
+ - Nobody until very recently would have thought that their husband was supposed to be their best friend, confidante, intellectual soul mate, co-parent, inspiration.
+ - Marriage is a strange combination of dream and reality, and we spend our lives as couples trying to negotiate that divide.
+ - Maybe it’s just me but I would suspect that a man trying to impress a woman would be more likely to bring out the steak – “I killed this for you, now I’m grilling it for you.”
+ - Life’s metaphors are God’s instructions.
+ - I’m afraid many women do choose the wedding over the marriage. It seems a steep price to pay, but it comes from a place of deep, sad longing to be loved and to have it proven that you are of value.
+ - The Yogic path is about disentangling the built-in glitches of the human condition, which I’m going to over-simply define here as the heartbreaking inability to sustain contentment.
+ - When I diagnose my depression now, I think it was partially about saying goodbye to these kids that I always expected to have but already knew that I wouldn’t.
+ - Teach your heart that this is destiny.
+ - There is a theory that if you yearn sincerely enough for a Guru, you will find one. The universe will shift, destiny’s molecules will get themselves organized and your path will soon intersect with the path of the master you need.
+ - Desiring another person is perhaps the most risky endeavor of all. As soon as you want somebody – really want him – it is as though you have taken a surgical needle and sutured your happiness to the skin of that person, so that any separation will now cause a lacerating injury.
+ - Sanity and clarity are more important for me and I’m willing to give up a lot of shimmer for it. I’m willing to have more boring friends, who are sane.
+ - Nothing is less efficient than perfectionism.
+ - If I’d had any way of knowing that things were- as Lily Tomlin once said- going to get a whole lot worse before they got worse, I’m not sure how I would have slept that night.
+ - At the end of the day I am a writer, and if I don’t take care of this, no one else will.
+ - Every intimacy carries secreted somewhere below its initial lovely surfaces, the ever-coiled makings of complete catastrophe.
+ - That competition and the struggle for existence is the mechanism behind this state of perpetual change.
+ - You may return here once you have fully come to understand that you are always here.
+ - I equal parts loved him and could not stand him. I couldn’t wake him to share in my distress.
+ - Fear – who cares?
+ - When you have only two minutes to say good-bye to the person you love most in the world, and you don’t know when you’ll see each other again, you can become logjammed with the effort to say and do and settle everything at once.
+ - If I am to truly become an autonomous woman, then I must take over that role of being my own guardian.
+ - And we have a little herb garden, which survived the winter thanks to global warming. It makes me feel like a cool, old Italian housewife, that I kept my rosemary alive outside all winter.
+ - Mostly you meet friends when traveling by accident, like by sitting next to them on the train, or in a restaurant, or in a holding cell.
+ - The mosquitoes here are big enough to rape a chicken.
+ - I had long ago learned that when you are the giant, alien visitor to a remote and foreign culture it is sort of your job to become an object of ridicule. It’s the least you can do, really, as a polite guest.
+ - There are times when the only access I have to the truest person that I am is when I’m alone and trying to solve a sentence. It’s exciting, even when it’s frustrating, even when I can’t do it right.
+ - I’m still aspiring to be a better and better person, but I think that disappointments have made me gentler with other people and their disappointments, the stuff that they have to carry around and endure.
+ - How could two people who were so in love not end up happily ever after? It had to work. Didn’t it?
+ - A lovely evening of new idioms and fresh mozzarella.
+ - Beauty is not required. Beauty is accuracy’s distraction.
+ - You can butcher the sheep only once. But if you are careful, you can shear the sheep every year.
+ - I watched them, thinking that little girls who make their mothers live grow up to be such powerful women.
+ - I think my weakness as a writer is a limited imagination, and I think my strength is a talent for reflecting the world, or sort of curating things out of the world and putting them into books.
+ - Marriage is – among other things – a study in contradiction and disappointment, and inside that reality there is space for us to truly learn how to love.
+ - It’s so much easier and cheaper to keep the river uncontaminated in the first place than it is to clean it up again once it’s been polluted.
+ - I would say that if you really want to STOP knowing someone, you have to divorce him.
+ - I know this simple fact to be true, for I myself have abandoned people who did not want me to go, and I myself have been abandoned by those whom I begged to stay.
+ - I think the thing that I lost in myself when I stopped writing fiction and the thing that I rediscovered and started mining again is, for lack of a better word, magic. It’s the way you can brush up against the inexplicable and the mystical.
+ - What do I believe that I deserve in this life?
+ - I have these new policies toward my life, like ‘I will not accelerate when I see the yellow light.’
+ - We all seem to get this idea that, in order to be sacred, we have to make some massive, drastic change of character, that we have to renounce our individuality. To know God, you only need to renounce one thing – your sense of division from God.
+ - In a world of disorder and disaster and fraud, sometimes only beauty can be trusted.
+ - Who amongst us lives without sacrifice?
+ - But the very fact that this world is so challenging is exactly why you sometimes must reach out of its jurisdiction for help, appealing to a higher authority in order to find your comfort.
+ - Oh my God, baby, you are in so much trouble.
+ - We’re miserable because we think that we are mere individuals, alone with our fears and flaws and resentment and mortality.
+ - Keep showing up for your side of the job and give genius a chance to do its part.
+ - The culture of Rome just doesn’t match the culture of Yoga, not as far as I can see. In fact, I’ve decided that Rome and Yoga don’t have anything in common at all. Except for the way they both kind of remind you of the word toga.
+ - If I were going to have such a short visit on earth, I had to do everything possible to experience it now.
+ - But at some point you have to make peace with what you were given and if God wanted me to be a shy girl with think, dark hair, He would have made me that way, but He didn’t. Useful, then, might be to accept how I was made and embody myself fully therein.
+ - Venice is beautiful, but like a Bergman movie is beautiful; you can admire it, but you don’t really want to live in it.
+ - Well, just remember – all your misery will be waiting for you at the door upon your exit, should you care to pick it up again when you leave.
+ - Thich Nhat Hanh has the ability to bring forth the state of peace that we each inherently posses merely by his presence in a room-this is divine power.
+ - As far as we know, we are the only species on the planet who have been given the gift-or curse, perhaps-of awareness about our own mortality. Everything here eventually dies; we’re just the lucky ones who get to think about this fact every day.
+ - My life acccomplishments? Sanity, and you.
+ - Felipe and I, as we discover to our delight, are a perfectly matched, genetically engineered belly-to-belly success story.
+ - I like it when science and devotion find places of intersection.
+ - You have to work ceaselessly on your end to digest and imbibe your opportunities or, I have come to believe, they will gradually slip away and knock on someone else’s more receptive door.
+ - You might get nothing out of it at all except a beautiful, long life where all you did was follow your gorgeous curiosity. And that should be enough too.
+ - The appreciation of pleasure can be the anchor of humanity.
+ - Nothing in the last few years has dazzled me more than Hilary Mantel’s ‘Wolf Hall,’ which blew the top of my head straight off. I’ve read it three times, and I’m still trying to figure out how she put that magnificent thing together.
+ - Yoga is the effort to experience one’s divinity personally and then to hold on to that experience forever.
+ - Here in America, marriage still has a mystical, intangible power: It is a passport to adulthood and respectability and to a certain extent citizenship. Any relationship less than “married” is considered temporary and not worthy of honor.
+ - I myself have never been enchanted by the dream of the white wedding, and, heaven help us, the expectation that this exquisitely catered event should be ‘the happiest moment’ of one’s life.
+ - Whatever this feeling is – this is what I have been praying for. And this is also what I have been praying to.
+ - Do you think there’s any way humans can love each other without complication?
+ - What we’re all sort of trying to do in our lives is to make the simplest things work out the best.
+ - The act of quiet nighttime talking, illustrates for me more than anything else the curious alchemy of companionship.
+ - I don’t think you can come into your wisdom until you have made mistakes on your own skin and felt them in reality of your own life.
+ - If I could read while I was driving, showering, socializing or sleeping, I would do it.
+ - My face is a transparent transmitter of my every thought.
+ - For if there is one thing I have learned over the years about men, it is that feelings of powerlessness do not usually bring forth their finest qualities.
+ - He was powerful and I died of love in his shadow.
+ - I am burdened with what the Buddhists call the ‘monkey mind’ – the thoughts that swing from limb to limb, stopping only to scratch themselves, spit and howl.
+ - Power is a neutral energy source, like tofu. It’s what you do with it that gives it flavor.
+ - The mysterious magnet is either there, buried somewhere deep behind the sternum, or it is not.
+ - I’ve always been afraid of saying no to people because I don’t want them to be disappointed and dislike me.
+ - I will give you the sun and the rain, and if they are not available, I will give you a sun check and a rain check.
+ - Sometimes out hearts are broken so new light can get in.
+ - The fantasy of the wedding day is that it represents undeniable public and private truth that you have been chosen. For that one day, you are the most valuable creature in the world – a treasure, a princess, a prize.
+ - I believe that – if you are serious about a life of writing, or indeed about any creative form of expression – that you should take on this work like a holy calling.
+ - We set up one rule in our house, which is, ‘Guests of guests cannot bring guests.’ That rule was required because that happened one weekend, and we finally said, ‘Okay, you know what? That’s a little too much.’
+ - There are always two figures in a marriage, two votes, two conflicting sets of decisions, desires and limitations.
+ - Until I can feel as ecstatic about having a baby as I felt about going to New Zealand to search for giant squid, I cannot have a baby.
+ - Look – I understand that an unexamined life is not worth living, but do you think I could someday have an unexamined lunch?
+ - Maybe the difference between first marriage and second marriage is that the second time at least you know you are gambling.
+ - The beauty and variety of the natural world are merely the visible legacies of endless war.
+ - I don’t think you can say that feminism has made women critical of marriage because women have been critical of marriage for centuries.
+ - You make some big grandoise decision about what you need to do, or who you need to be, and then circumstances arise that immediately reveal to you how little you understood about yourself.
+ - In a world of disorder and disaster and fraud, sometimes only beauty can be trusted. Only artistic excellence is incorruptible. Pleasure cannot be bargained down. And sometimes the meal is the only currency that is real.
+ - For the entire decade of my 30s and the early part of my 40s, I didn’t write a word of fiction. I just left behind a dream of my life.
+ - I think of modern marriage as a car strangely fashioned out of an old abandoned horse carriage, built upon the framework of a mule cart. All the original engineering is still there, underneath it all.
+ - Reality has taught us that no woman can build an honest life without sacrificing something along the way. Deciding what will be sacrificed is not easy.
+ - I am not an expert at praying, as you know. But can you please help me? I am in desperate need of help. I don’t know what to do. I need an answer. Please tell me what to do...
+ - Most of all, I can choose my thoughts.
+ - The Yogic scriptures say that God responds to the sacred prayers and efforts of human beings in any way whatsoever that mortals choose to worship – just so long as those prayers are sincere.
+ - Yet what keeps me from dissolving right now into a complete fairy-tale shimmer is this solid truth, a truth which has veritably built my bones over the last few years – I was not rescued by a prince; I was the administrator of my own rescue.
+ - My work is incredibly important to me personally. It brings me joy and it brings me life and it brings me meaning. It doesn’t necessarily have to be important to the people who read it.
+ - What Richard is talking about is instead admitting to the existence of negative thoughts, understanding where they came from and why they arrived, and then – with great forgiveness and fortitude – dismissing them.
+ - I think that if you can roast a chicken, you can get whatever you want out of a woman.
+ - I guess what I want to learn is how to live in this world and enjoy its delights but also devote myself to God.
+ - What time has ever been a simple time for those who are living it?
+ - I have searched frantically for contentment for so many years in so many ways, and all the acquisitions and accomplishments- they run you down in the end.
+ - Oh, cold world – I have grown so weary of you and all your horrible bathrooms.
+ - You never know how a good quest is going to end.
+ - There’s a lot of disorder that comes along with wanting to know everything and wanting to try everything and wanting to experience everything, but there’s a lot of knowledge that comes out of it too.
+ - There is no choice more intensely personal, after all, than whom you choose to marry; that choice tells us, to a large extent, who you are.
+ - Given that life is so short, do I really want to spend one-ninetieth of my remaining days on earth reading Edward Gibbon?
+ - Despite having written five books, I worry that I have not written the right kinds of books, or that perhaps I have dedicated too much of my life to writing, and have therefore neglected other aspects of my being.
+ - What a large number of factors constitute a single human being! How very many layers we operate on, and how very many influences we receive from our minds, our bodies, our histories, our families, our cities, our souls and our lunches!
+ - I have more compassion than if I had led a life where everything worked out exactly as I had planned or if I had never been wounded or if I had never been betrayed or I had never been harmed. I don’t think I would be as good a person.
+ - But we are not what the other one needs, still he is certain that I will find great love in my life someday. He is sure of it. After all, he says, beauty attracts beauty.
+ - I think another way that you can really harm yourself as an artist is by buying into the mythology that it’s really important.
+ - If you want to know the world, sometimes you have to get out and roll around.
+ - I’m a pleaser. That’s my character.
+ - My career started young and I was really ambitious, and then I had success and I hung out with people who were much older. I think I might have been temporally misplaced, so I thought I was 40. It was a premature midlife crisis.
+ - I think a lot of people who feel as though they desperately want to be married oftentimes simply desperately want to have a wedding.
+ - Everything good I’ve ever gotten in life, I only got because I gave something else up.
+ - To show a longing for anything that one cannot have, for instance, is not a clever position.
+ - Love renders all of our plans and all of our hopes a gamble.
+ - Even in the worst tragedies and crisis, there’s no reason to add to everyone’s misery by looking miserable yourself.
+ - Maturity brings – among other things – the ability to sustain and survive enormous contradictions and disappointments.
+ - Nobody’s really paying that much attention to your massive personal dramas.
+ - We have hands; we can stand on them if we want to. That’s our privilege. That’s the joy of a mortal body. And that’s why God needs us. Because God loves to feel things through our hands.
+ - Equally disquieting are the times when we do make a choice, only to later feel as though we have murdered some other aspect of our being by settling on one single concrete decision.
+ - I never wanted to be the person that waited for a stranger to come to town – I wanted to be the stranger!
+ - To be prosperous and happy in life, Henry, it is simple. Pick one woman, pick it well, and surrender.
+ - If faith were rational, it wouldn’t be -by definition- faith.
+ - All the parts of us that we ever were are always going to be with us. You make space to carry them and you just try not to let them drive. But you can’t chuck them out either.
+ - Nobody’s life is interesting enough to warrant a third memoir.
+ - I consider a good dinner party at our house to be where people drink and eat more than they’re meant to.
+ - Dear me, how I love a library.
+ - It’s not enough for me to just hear about something or read about something, I wanna know it in my bones.
+ - A man that can cook you a proper meal that is like a weekday meal – which I think cannot be better than in the form of a roast chicken – that’s the greatest.
+ - I want to have a lasting experience of God.
+ - Sometimes beauty needs a bit of ignoring, to properly come into being.
+ - It is not we as individuals, then, who must bend uncomfortably around the institution of marriage; rather, it is the institution of marriage that has to bend uncomfortably around us.
+ - But when it comes to writing the thing that I’ve sort of been thinking about lately, is why? You know, is it rational? Is it logical that anybody should be expected to be afraid of the work that they feel they were put on this Earth to do.
+ - And what will I be able to do tomorrow that I cannot yet do today?
+ - I have had work or ideas come through me from a source that I honestly cannot identify. What is that thing? And how are we to relate to it in a way that will not make us lose our minds, but, in fact, might actually keep us sane?
+ - I am determined to make the most of this life that I have, damn it – it’s that kind of stubbornness I think we all need more of.
+ - Admittedly, I am not the one who looks fantastic in everything, but still I cannot help loving myself.
+ - It is merely this world that is chaotic, bringing changes to us all that nobody could have anticipated.
+ - One of these poems I wrote after having been here only a month. The other, I wrote this morning. In the space between the two poems, I have found acres of grace.
+ - Who will ever kiss this encyclopedia of a head?
+ - I cannot overstate the power of libraries in my life.
+ - If something is rubbing so hard against you, you can be sure it’s working on you.
+ - In desperate love, we always invent the characters of our partners, demanding they be what we need of them, and then feeling devastated when they refuse to perform the role we created in the first place.
+
+332 quotes

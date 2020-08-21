@@ -1,0 +1,96 @@
+ - Every experience, good or bad, is a priceless collector’s item.
+ - I’m watching her talk. Watching her jaw move and collecting her words one by one as they spill from her lips. I don’t deserve them. Her warm memories. I’d like to paint them over the bare plaster walls of my soul, but everything I paint seems to peel.
+ - We are where we are, however we got here. What matters is where we go next.
+ - I crush her against me. I want to be part of her. Not just inside her but all around her. I want our rib cages to crack open and our hearts to migrate and merge. I want our cells to braid together like living thread.
+ - Breathing is optional, but I need some air.
+ - I want to change my punctuation. I long for exclamation marks, but I’m drowning in ellipses.
+ - In my mind I am eloquent; I can climb intricate scaffolds of words to reach the highest cathedral ceilings and paint my thoughts. But when I open my mouth, everything collapses.
+ - You should always be taking pictures, if not with a camera then with your mind. Memories you capture on purpose are always more vivid than the ones you pick up by accident.
+ - What wonderful thing didn’t start out scary?
+ - I am Dead, but it’s not so bad. I’ve learned to live with it.
+ - I can no longer believe in any voodoo spell or laboratory virus. This is something deeper, darker. This comes from the cosmos, from the stars, or the unknown blackness behind them. The shadows in God’s boarded-up basement.
+ - I sigh inside, so exhausted by these ugly questions, but when did a monster ever deserve its privacy?
+ - It’s more eerie to be alone in a city that’s lit up and functioning than one that’s a tomb. If everything were silent, one could almost pretend to be in nature. A forest. A meadow. Crickets and birdsong. But the corpse of civilization is as restless as the creatures that now roam the graveyards.
+ - Here we are on the road. We must be going somewhere.
+ - We smile, because this is how we save the world.
+ - I feel the flatline of my existence disrupting, forming heartbeat hills and valleys.
+ - Nothing is permanent. Not even the end of the world.
+ - No praise, no blame. Just so.
+ - Writing isn’t letters on paper. It’s communication. It’s memory.
+ - Every time I go to sleep, I know I may never wake up. How could anyone expect to? You drop your tiny, helpless mind into a bottomless well, crossing your fingers and hoping when you pull it out on its flimsy fishing wire it hasn’t been gnawed to bones by nameless beasts below.
+ - Music? Music is life! It’s physical emotion – you can touch it! It’s neon ecto-energy sucked out of spirits and switched into sound waves for your ears to swallow. Are you telling me, what, that it’s boring? You don’t have time for it?
+ - Here it comes. My inevitable death, ignoring me all those years when I wished for it daily, arriving only after I’ve decided I want to live forever.
+ - Even in my bravest moment, I am a coward.
+ - God has made us study partner. We need to talk about our project.
+ - One mistake, one brief lapse of my new found judgement-that’s all it took to unravel everything. What a massive responsibility, being a moral creature.
+ - What’s the point of trying to fix a world we’re so briefly in?
+ - It was fun, but it’s over now. This is how things go.
+ - It’s sad to see them staring wistfully through the window when the door isn’t locked.
+ - I’m alone, stumbling through the city in the dark, trying not to let the night freeze my blood.
+ - We eat and sleep and shuffle through the fog, walking a marathon with no finish line, no medals, no cheering.
+ - A month ago there was nothing on Earth I missed, enjoyed, or longed for. I knew I could lose everything and not feel anything, and I rested easy in that knowledge. But I’m growing tired of easy things.
+ - There is no ideal world for you to wait around for. The world is always just what it is now, and it’s up to you how you respond to it.
+ - But we don’t remember those lives. We can’t read our diaries.’ ‘It doesn’t matter. We are where we are, however we got here. What matters is where we go next.’ ‘But can we choose that?’ ‘I don’t know.’ ‘We’re Dead. Can we really choose anything?’ ‘Maybe. If we want to bad enough.
+ - Peel off these dusty wool blankets of apathy and antipathy and cynical desiccation. I want life in all its stupid sticky rawness.
+ - We will cry and bleed and lust and love, and we will cure death. We will be the cure. Because we want it.
+ - I wonder how well she sleeps at night, and what kind of dreams she has. I wish I could step into them like she steps into mine.
+ - Once you’ve arrived at the end of the world, it hardly matters which route you took.
+ - You know things are moving. You’re changing, you fellow Dead are changing, the world is ready for something miraculous. What are we waiting for?
+ - Deep under our feet the Earth holds its molten breath, while the bones of countless generations watch us and wait.
+ - It’s a strange feeling, being so utterly surrounded by her. Her life scent is on everything. She’s on me and under me and next to me. It’s as if the entire room is made out of her.
+ - I don’t want to hear music, I don’t want the sunrise to be pink. The world is a liar. Its ugliness is overwhelming; the scraps of beauty make it worse.
+ - I wince at her use of the word “human.” I’ve never liked that differentiation. She is living and I’m dead, but we’re both human. Call me an idealist.
+ - Enough white lies can scorch the earth black.
+ - Once again the absurdity of my inner thoughts overwhelms me, and I want to crawl out of my skin, escape my ugly, awkward flesh and be a skeleton, naked and anonymous.
+ - Why is it beautiful that humanity keeps coming back? So does herpes.
+ - I want life and in all its stupid sticky rawness.
+ - Maybe this is why I sleep only a few hours a month. I don’t want to die again. This has become clearer and clearer to me recently, a desire so sharp and focused I can hardly believe it’s mine: I don’t want to die. I don’t want to disappear. I want to stay.
+ - We’re fumbling in the dark, but at least we’re in motion.
+ - The moment the light went out, everyone stopped pretending.
+ - Regret is pointless. I never do anything without first deciding to do it based on facts and feelings, and if it doesn’t work out how I hoped, oh well – there’s another notch on my experience belt.
+ - There is a chasm between me and the world outside of me. A gap so wide my feelings can’t cross it. By the time my screams reach the other side, they have dwindled into groans.
+ - Are my words ever actually audible, or do they just echo in my head while people stare at me, waiting?
+ - Everything you see, you might be seeing for the last time.
+ - Stop. Breathe those useless breaths. Drop this piece of life you’re holding to your lips. Where are you? How long have you been here? Stop now. You have to stop. Squeeze shut your stinging eyes, and take another bite.
+ - But it does make me sad that we’ve forgotten our names. Out of everything, this seems to me the most tragic. I miss my own and I mourn for everyone else’s, because I’d like to love them, but I don’t know who they are.
+ - You can order yourself to treasure a moment, to cling tight to a feeling and never let it fade, but it’s your brain, that three-pound lump of hamburger, that makes the final call.
+ - It’s hard to take your life so seriously when you can see it all at once.
+ - My friend “M” says the irony of being a zombie is that everything is funny, but you can’t smile, because your lips have rotted off.
+ - Sometimes I wonder if he has a philosophy. Maybe even a worldview. I’d like to sit down with him and pick his brain, just a tiny bit somewhere in the frontal lobe to get a taste of his thoughts. But he’s too much of a toughguy to ever be that vulnerable. – R on M.
+ - Sometimes it’s a struggle to live in the moment.
+ - I adapt to things quickly, including good things, which I wish I could shut off sometimes.
+ - You might say that death has relaxed me.
+ - I’ve always been interested in writing from the perspective of an outsider.
+ - I notice faint scars on her wrists and forearms, thin lines too symmetrical to be accidents.
+ - It’s not about keeping up the population, it’s about passing on who we are and what we’ve learned, so things keep going. So we don’t just end.
+ - My favorite songs change every year.
+ - That’s why we have memory. And the opposite of memory – hope. So things that are gone can still matter. So we can built off our pasts and make future.
+ - We have to remember everything. If we don’t, by the time we grow up it’ll be gone forever.
+ - What I’m saying is, when you have weight like that in your life, you have to start looking for the bigger picture or you are gonna sink.
+ - What a massive responsibility, being a moral creature.
+ - Soft flesh is eaten by hard teeth.
+ - I know I’m not going to say good-bye. And if these staggering refugees want to help, if they think they see something bigger here than a boy chasing a girl, then they can help, and we’ll see what happens when we say yes while the rigor mortis world screams no.
+ - I wish people were willing to dig a little deeper than the surface elements of a premise before tossing one story in with another.
+ - Of course, if I eat all of him, if I spare his brain, he’ll rise up and follow me back to the airport, and that might make feel better. I’ll introduce him to everyone, and maybe we’ll stand around and groan for a while. It’s hard to say what ‘friends’ are any more, but that might be close.
+ - But I’m not afraid of the skeletons in Julie’s closet. I look forward to meeting the rest of them, looking them hard in the eye, giving them firm, bone-crunching handshakes.
+ - The sports arena Julie calls home is unaccountably large, perhaps one of those dual-event ‘super venues’ built for an era when the greatest quandary facing the world was where to put all the parties.
+ - Are we all just Dark Age doctors, swearing by our leeches? We crave a greater science. We want to be proven wrong.
+ - I used to split my time between writing, music and painting. I would work on a book and then abandon it, start a band, do an album, quit music, then do a gallery show. Eventually I decided to give writing a serious shot.
+ - I can’t seem to make myself care about anything to the right or left of the present.
+ - How do I appear unthreatening when her lover’s blood is running down my chin?
+ - In my palm I can feel the echo of her pulse, standing in for the absense of mine.
+ - The kind of stuff I usually read is a bit more on the literary side, like books that I think are influential in the sense that they’re doing pulpy subject matter in a refined way. Like ‘The Road’ by Cormac McCarthy; I loved that book.
+ - What happened? How did I get here? How could I have known that my choices mattered?
+ - She is Living and I’m Dead, but I’d like to believe we’re both human. Call me an idealist.
+ - If there are rules, we’re the ones making them. We can change them whenever we want to.
+ - She is everything. And if she is everything, maybe that’s answer enough.
+ - Not so easy, Mr Lennon. Even if you try.
+ - All my life I have battled the alarm clock, pummeling the snooze button over and over with mounting self-loathing until the shame is finally strong enough to lever me upright.
+ - When the entire world is built on death and horror, when existence is a constant state of panic, it’s hard to get worked up about any one thing. Specific fears have become irrelevant. We’ve replace them with a smothering blanket far worse.
+ - I’m not a general or a colonel or a builder of cities. I’m just a corpse who wants not to be.
+ - I would like my life to be a movie so I could cut to a montage.
+ - Life only makes any sense if we can see time how God does. Past, present, and future all at once.
+ - It’s rare that I read more than two or three books by any one author; usually only one.
+ - The world that birthed that story is long gone, all its people are dead, but it continues to touch the present and future because someone cared enough about that world to keep it. To put it in words. To remember it.
+
+94 quotes

@@ -1,0 +1,90 @@
+ - There is only one success – to be able to spend your life in your own way.
+ - Big shots are only little shots who keep shooting.
+ - There is only one rule for being a good talker – learn to listen.
+ - A man who has never made a woman angry is a failure in life.
+ - In every man’s heart there is a secret nerve that answers to the vibrations of beauty.
+ - High heels were invented by a woman who had been kissed on the forehead.
+ - Read, every day, something no one else is reading. Think, every day, something no one else is thinking.
+ - There are three ingredients in the good life: learning, earning and yearning.
+ - When you sell a man a book, you don’t sell him 12 ounces of paper and ink and glue – you sell him a whole new life.
+ - April prepares her green traffic light and the world thinks Go.
+ - Animal crackers, and cocoa to drink That is the finest of suppers, I think When I’m grown up and can have what I please, I think I shall always insist upon these.
+ - Men talk of “finding God,” but no wonder it is difficult; He is hidden in that darkest hiding-place, your heart. You yourself are a part of Him.
+ - Life is a foreign language; all men mispronounce it.
+ - Humor is perhaps a sense of intellectual perspective: an awareness that some things are really important, others not; and that the two kinds are most oddly jumbled in everyday affairs.
+ - The real purpose of books is to trap the mind into doing its own thinking.
+ - I had a million questions to ask God: but when I met Him, they all fled my mind; and it didn’t seem to matter.
+ - There is no mistaking a real book when one meets it. It is like falling in love.
+ - Truth, like milk, arrives in the dark But even so, wise dogs don’t bark. Only mongrels make it hard For the milkman to come up the yard.
+ - The world has been printing books for 450 years, and yet gunpowder still has a wider circulation. Never mind! Printer’s ink is the greater explosive: it will win.
+ - It’s a good thing to turn your mind upside down now and then, like an hour-glass, to let the particles run the other way.
+ - The courage of the poet is to keep ajar the door that leads into madness.
+ - The bicycle, the bicycle surely, should always be the vehicle of novelists and poets.
+ - A human being: an ingenious assembly of portable plumbing.
+ - Only the sinner has the right to preach.
+ - Be prepared for truth at all hours and in the most fantastic disguises. This is the only safety.
+ - People like to imagine that because all our mechanical equipment moves so much faster, that we are thinking faster, too.
+ - The greatest poem ever known Is one all poets have outgrown: The poetry, innate, untold, Of being only four years old.
+ - If you have to keep reminding yourself of a thing, perhaps it isn’t so.
+ - A mind too proud to unbend over the small ridiculosa of life is as painful as a library with no trash in it.
+ - All cities are mad: but the madness is gallant. All cities are beautiful: but the beauty is grim.
+ - The enemies of the future are always the very nicest people.
+ - Heavy hearts, like heavy clouds in the sky, are best relieved by the letting of a little water.
+ - The plural of spouse is spice.
+ - A critic is a gong at a railroad crossing clanging loudly and vainly as the train goes by.
+ - Act like you expect to get into the end zone.
+ - No one appreciates the very special genius of your conversation as the dog does.
+ - From now until the end of time no one else will ever see life with my eyes, and I mean to make the best of my chance.
+ - There is an innate decorum in man, and it is not fair to thrust Truth upon people when they don’t expect it. Only the very generous are ready for Truth impromptu.
+ - Never write up your diary on the day itself, for it takes longer than that to know what happened.
+ - Happiness is surely the best teacher of good manners: only the unhappy are churlish in deportment.
+ - The unluckiest insolvent in the world is the man whose expenditure of speech is too great for his income of ideas.
+ - All students can learn.
+ - New York, the nation’s thyroid gland.
+ - No man is lonely eating spaghetti; it requires so much attention.
+ - The misfortunes hardest to bear are these which never came.
+ - The little Plumpuppets are fairies of beds; They have nothing to do but watch sleepyheads; They turn down the sheets and they tuck you in tight, And dance on your pillow to wish you good night!
+ - Lots of times you have to pretend to join a parade in which you’re not really interested in order to get where you’re going.
+ - Any man worth his salt has by the time he is forty-five accumulated a crown of thorns, and the problem is to learn to wear it over one ear.
+ - The man who never in his life Has washed the dishes with his wife Or polished up the silver plate – He still is largely celibate.
+ - Truth is the ricochet of a prejudice bouncing off a fact.
+ - If we discovered that we only had five minutes left to say all that we wanted to say, every telephone booth would be occupied by people calling other people to stammer that they loved them.
+ - Fifty percent of the world are women, yet they always seem a novelty.
+ - Poetry comes with anger, hunger and dismay; it does not often visit groups of citizens sitting down to be literary together, and would appal them if it did.
+ - Dancing is a wonderful training for girls, it’s the first way you learn to guess what a man is going to do before he does it.
+ - Religion is an attempt, a noble attempt, to suggest in human terms more-than-human realities.
+ - Mr. Gilbert had the earnest mania for self-improvement which has blighted the lives of so many young men.
+ - The most interesting persons are always those who have nothing special to do: children, nurses, policemen and actors at 11 o’clock in the morning.
+ - It is unfair to blame man too fiercely for being pugnacious; he learned the habit from Nature.
+ - Words are a commodity in which there is never any slump.
+ - We call a child’s mind ‘small’ simply by habit; perhaps it is larger than ours is, for it can take in almost anything without effort.
+ - When Abraham Lincoln was murdered The one thing that interested Matthew Arnold Was that the assassin shouted in Latin As he lept on the stage This convinced Matthew There was still hope for America.
+ - Blessed is the satirist; and blessed the ironist; blessed the witty scoffer, and blessed the sentimentalist; for each, having seen one spoke of the wheel, thinks to have seen all, and is content.
+ - The world, in its sheer exuberance of kindness, will try to bury the poet with warm and lovely human trivialities. It will even ask him to autograph books.
+ - America is still a government of the naive, for the naive, and by the naive. He who does not know this, nor relish it, has no inkling of the nature of his country.
+ - How womanly it is to ask the unanswerable at the moment impossible.
+ - There are a lot of people who must have the table laid in the usual fashion or they will not enjoy the dinner.
+ - We’ve had bad luck with our kids – they’ve all grown up.
+ - The evening papers print what they do and get away with it because by afternoon the human mind is ruined anyhow.
+ - My theology, briefly, is that the universe was dictated but not signed.
+ - We visit bookshops not so often to buy any one special book, but rather to rediscover, in the happier and more expressive words of others, our own encumbered soul.
+ - It will be a shock to men when they realize that thoughts that were fast enough for today are not fast enough for tomorrow. But thinking tomorrow’s thoughts today is one kind of future life.
+ - Living in a bookshop is like living in a warehouse of explosives. Those shelves are ranked with the most furious combustibles in the world – the brains of men.
+ - The censure of a dog is something no man can stand.
+ - What is the virtue and service of a book? Only to help me live less gingerly and shabbily.
+ - Blessed is he who has never been tempted; for he knows not the frailty of his rectitude.
+ - Perhaps this is an age when men think bravely of the human spirit; for surely they have a strange lust to lay it bare.
+ - Man makes a great fuss about this planet which is only a ballbearing in the hub of the universe.
+ - Why do they put the Gideon bibles only in the bedrooms, where it’s usually too late?
+ - There are certain people whom one feels almost inclined to urge to hurry up and die so that their letters can be published.
+ - That’s what this country needs – more books!
+ - Being in a hurry seems so fiercely important when you yourself are the hurrier and so comically ludicrous when it is someone else.
+ - The everlasting lure of round-the-corner, how fascinating it is.
+ - The trouble with wedlock is that there’s not enough wed and too much lock.
+ - One of the penalties of being a human being is other human beings.
+ - God made man merely to hear some praise of what he’d done on those Five Days.
+ - Beware of the conversationalist who adds “in other words.” He is merely starting afresh.
+ - There is indeed a heaven on this earth, a heaven which we inhabit when we read a good book.
+ - Between ourselves, there is no such thing, abstractly, as a ‘good’ book. A book is ‘good’ only when it meets some human hunger or refutes some human error.
+
+88 quotes

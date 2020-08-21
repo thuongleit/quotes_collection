@@ -1,0 +1,23 @@
+ - I’m a win-at-all-costs guy.
+ - Leadership is something you earn, something you’re chosen for. You can’t come in yelling, ‘I’m your leader!’ If it happens, it’s because the other guys respect you.
+ - I’m going to try to be better than I ever was.
+ - When there are doubters, it always fuels the fire a little bit. When people say you can’t do something, if you are a competitor, that drives you.
+ - In the playoffs, it is do or die. You win or you go home. As a competitor, you love it.
+ - I try to live my life like my father lives his. He always takes care of everyone else first. He won’t even start eating until he’s sure everyone else in the family has started eating. Another thing: My dad never judges me by whether I win or lose.
+ - Basketball was always my first love, but once I had a good year as a senior, I figured the next step was to play college football.
+ - You have to be able to step up when your name is called.
+ - My family and friends and teammates, just having their support has been unbelievable.
+ - I know I probably never will win the league MVP or passing title. That is not why I play the game. I try to win football games and championships.
+ - I have a great family. I can call them and they don’t want to talk just football They want to find out how my day went outside of football.
+ - Hines Ward, Plaxico Burress, Jerome Bettis-they are great leaders. I listen to everything they say.
+ - In my heart, I know I haven’t been the best person, the best quarterback for the Steelers. I’m not talking just on the field, I’m talking off the field.
+ - If I do get nervous for a game, they usually go away after the first play. For the Super Bowl, it never went away.
+ - I think I can get five, six, seven more years out of this arm and these legs.
+ - Big Ben just kept building up. It ended up coming off the field. It kept taking over. Superman kept taking over Clark Kent and you just never saw who Ben Roethlisberger was any more.
+ - Usually when we lose a game is because we turn the ball over or not play well enough and usually it is the turnover thing. We have to take care of the ball. It is starts with me and not turning it over.
+ - The biggest thing isn’t necessarily how I play, but that we win. That’s my number-one goal. I could be the worst quarterback out there, but if we come out with a victory that’s all that matters to me.
+ - People don’t realize that I’m mobile, athletic and strong-armed.
+ - It’s an honor to be compared with Terry Bradshaw. If I could do half of what he did, I’d be very happy.
+ - As your body deteriorates, your natural talents start to go a little bit. You have to bring in physical working out, building, taking protein and doing extra stuff.
+
+21 quotes

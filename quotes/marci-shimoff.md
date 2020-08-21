@@ -1,0 +1,39 @@
+ - Once you begin to understand and truly master your thoughts and feelings, that’s when you see how you create your own reality.
+ - When you forgive, you heal your own anger and hurt and are able to let love lead again. It’s like spring cleaning for your heart.
+ - Go for the sense of inner joy, of inner peace, of inner vision first and then all the other things from the outside appear.
+ - It is support that sustains us on the journey we’ve started.
+ - When you’re happy for no reason, you’re unconditionally happy. It’s not that your life always looks perfect – it’s just that however it looks, you’ll still be happy.
+ - HeartMath found that five minutes of feeling love and care can strengthen your immune system for up to six hours, whereas five minutes of feeling angry can weaken and suppress the immune system for six hours. Love releases very powerful, beneficial chemicals into the body.
+ - Gratitude is absolutely the way to bring more into your life.
+ - The challenges we’ve had personally and globally have been the catalysts needed to let go of old ways of being that aren’t the vibration of love.
+ - Love is your job description – no matter what you do for a living. If you ever feel unsure of what you’re supposed to do in a situation, here’s a good rule of thumb: always do what leads to greater love.
+ - Taking ownership of your happiness has two aspects: Accepting that being happy is up to you and that you have the ability and power to be happier by changing your habits. Taking “response-ability”: responding to all the events in your life in a way that supports your happiness.
+ - Bring happiness to your everyday experiences rather than try to extract happiness from them and however life looks, you’ll be happy.
+ - If you think about the times in life when you’ve been the most deeply fulfilled, they’re the times that you’ve felt love. Whether it’s watching a sunset, spending time with a pet or being with a partner with whom you feel an intensely deep connection.
+ - So, in life we have a one question final exam – and it’s not the kind of exam you can cram for at the very end. One of the main reasons we’re alive is to expand our capacity to love.
+ - Everything we think and feel is creating our future. If you’re worried or in fear, then you’re bringing more of that into your life throughout the day.
+ - So if you have over-indulged during the holidays, for example, please don’t beat yourself up, but rather have compassion and forgiveness and perhaps, even try the Ho’oponono technique.
+ - I’ve found the best thing to do is to really be loving, kind, forgiving and compassionate with yourself. There are some wonderful practices for that which I talk about in Love For No Reason.
+ - But i couldn’t. Was nowhere near ready for a committed relationship, and it wouldn’t be fair. I needed time – to become the right man for a woman like you.
+ - When people are deeply happy they bring a sense of purpose with them wherever they go, whatever circumstances they are in. So if they’re changing the oil in the car, they bring a sense of joyful purpose even to that.
+ - Put your attention on happiness by practicing the Happiness Habits each day.
+ - Like your weight set-point, which keeps the scale hovering around the same number, your happiness set-point will remain the same unless you make a concerted effort to change it.
+ - Researchers tell us that we have about sixty thousand thoughts a day.
+ - The second doorway has to do with vitality. It’s about feeling alive, vital, and feeling the life-force flow through us. This doorway is also known as the creativity center and it houses a great sense of aliveness in it.
+ - Easy to read, yet filled with wisdom that will penetrate your heart, this book puts the power back in your hands. It’s a must have.
+ - What would our lives be like if we could all be happy no matter what?
+ - When you’re Happy for No Reason, you bring happiness to your outer experiences rather than trying to extract happiness from them. You don’t need to manipulate the world around you to try to make yourself happy. You live from happiness, rather than for happiness.
+ - When we’re feeling fully alive, we’re able to fully feel love. This doorway also relates to feeling our feelings fully. Not suppressing our feelings of anger, sadness or grief but allowing them to be felt. What’s amazing is that when those feelings are felt, they actually dissolve into love.
+ - The best way to keep relationships happy, healthy, and supportive can be summed up in one word: appreciation. What you appreciate, appreciates. When we demonstrate our appreciation for the support we receive from others, it reinforces that behavior and deepens our connection to them.
+ - The study of love is an emerging field. Perhaps the leaders in the field are a group called The Institute of HeartMath who have found that we have many physiological, psychological, and social benefits when we’re living with greater love, care, and compassion.
+ - The sixth doorway is the Doorway of Vision. This relates to seeing with the eyes of love and corresponds to the energy center located in the third eye area of our forehead. When this doorway is open, we’re more able to see life through love instead of differences.
+ - I believe love is why we’re here on the planet and that ultimately it’s our purpose for life. They say people who’ve had near-death experiences often report back that at the end of our lives we have a life review and we’re asked one question, and that question is, how much did you love?
+ - The basis of all love is self-love and we certainly suffer a lot in our society from lack of self-love. When we don’t take care of ourselves, it’s really just a symptom of not loving ourselves. So the worst thing that we can do is to beat ourselves up for how we’ve already treated ourselves.
+ - I’ve come to see that I have two choices in how I approach change: I can either resist change or be open to what’s ahead and feel the peace that “all is well in the universe.” When I lean into the latter, I feel excited about the future.
+ - One of the things that happens when we’re feeling more love and care is that we go into what’s called “heart rhythm coherence,” which you can actually measure and monitor on a computer screen. It’s also possible to train yourself to go into heart rhythm coherence at will.
+ - So the difference between most books about love and Love For No Reason is that traditional love books focus on love as a stream of energy between two people, whereas this book focuses on love as a deep state of being that you can live in no matter what’s going on in your life.
+ - Practice experiencing your feelings directly and completely by observing them as they move through your mind and body and then letting them go.
+ - And finally, there’s the seventh doorway, the Doorway of Oneness, which corresponds to the crown center, located at the top of the head. This doorway has to do with feeling whole and connected to all of life, connected to spirit.
+ - I wanted to know if we could live in that state of love, not just every so often, but as an ongoing reality. The answer is YES. There are people who are doing just that, and I wanted to share with the world how they’re consistently living in a state of love.
+
+37 quotes

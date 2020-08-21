@@ -1,0 +1,22 @@
+ - Fear is an effective factor in altering behavior...
+ - The big difference between animal liberation activists and other so-called ‘terrorists’ is the targets; no innocent victims are ever targeted in animal lib campaigns. If you are not abusing and exploiting animals, there is no need to fear for one’s safety.
+ - The inconvenience and the suffering of any children or any family members pales in comparison to the suffering and oppression that goes on in these animal laboratories.
+ - I think for five lives, 10 lives, 15 human lives, we could save a million, two million, 10 million non-human lives.
+ - And I don’t think you’d have to kill – assassinate – too many vivisectors before you would see a marked decrease in the amount of vivisection going on. And I think for 5 lives, 10 lives, 15 human lives, we could save a million, 2 million, 10 million non-human animals.
+ - I think that violence and nonviolence are not moral principles, they’re tactics.
+ - If you had to hurt somebody or intimidate them or kill them, it would be morally justifiable.
+ - I don’t have any doubt in my mind that there will come a time when we will see violence against animal rights abusers.
+ - If animal abusers aren’t going to stop perpetrating these types of atrocities, they ought to be stopped using whatever means necessary. What we’re starting to see is the implementation of that type of strategy.
+ - The University of California has been selected as the poster child of animal abuse at laboratories. It’s been shown that the tactics are more effective if you just hit one person over and over and get them to quit what they’re doing.
+ - As far as the underground liberation movement, it won’t have any impact at all because they don’t really care about those laws. Their activities – sabotaging, liberating animals – are already illegal so just adding one more law won’t make much difference.
+ - You can justify, from a political standpoint, any type of violence you want to use.
+ - I am personally not advocating violence. I am simply saying that it is a morally acceptable tactic and it may be useful in the struggle for animal liberation. I don’t know.
+ - Lastly, anyone who believes in the possibility of total animal liberation while billions of humans continue to inhabit and decimate the planet is delusional. Only when most humans have died off will there be a chance to returning to a society that values all beings for who they are.
+ - Get arrested. Destroy the property of those who torture animals. Liberate those animals interned in the hellholes our society tolerates.
+ - Whatever it takes to stop someone from abusing animals is certainly morally acceptable.
+ - Nothing is more violent and radical than what’s being done to non-human animals in our society. If a researcher won’t stop abusing animals and is stopped physically, whether with the use of force, or is killed, I certainly wouldn’t lose sleep over that idea.
+ - If they won’t stop when you ask them nicely, they don’t stop when you demonstrate to them what they’re doing is wrong, then they should be stopped using whatever means are necessary.
+ - If someone is killing, on a regular basis, thousands of animals, and if that person can only be stopped in one way by the use of violence, then it is certainly a morally justifiable solution.
+ - There are two main goals behind ALF actions. The first is obviously to remove as many animals as possible from fur farms, vivisection labs, and other areas of abuse. The second is to cause as much economic damage to these industries and persons as possible.
+
+20 quotes

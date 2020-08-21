@@ -1,0 +1,31 @@
+ - If you stay alive for no other reason do it for spite.
+ - If you’re ever if you’re ever thinking, “Oh, but I’m a waste of space and I’m a burden,” remember: that also describes the Grand Canyon. Why don’t you have friends and family take pictures of you from a safe distance? Revel in your majestic profile?
+ - Schizophrenia is hearing voices, not doing voices.
+ - We’re all doing the best we can and sometimes it is not that good.
+ - Sometimes I worry I don’t want to get married as much as I’d like to be dipped in a vat of warm, rising bread dough.
+ - Time flies when you are anxious!
+ - Get out of your house and go see some live performance, for God’s sake. There are people creating things just outside your window.
+ - I’ve never really thought of myself as depressed so much as I am paralyzed by hope.
+ - People get really irritated by mental illness.
+ - Even if you’re disgusting, and everyone is creeped out by you and thinks you’re gross, you know, keep doing what you love!
+ - I can’t stand makeup commercials. ‘Do you need a lipstick that keeps your lips kissable?’ No, I need a lipstick that gets me equal pay for equal work. How about an eye shadow that makes me stop thinking I’m too fat?
+ - My therapist says I’m afraid of success. I guess I could understand that, because after all, fulfilling my potential would REALLY cut into my sitting-around time.
+ - I do some compassionate mindfulness every day. It’s like a Buddhist thing. I tell myself that I’m doing a good job, that kind of thing. It makes me feel better.
+ - I like all kinds of comedy. I like comedy that doesn’t talk about real beliefs or serious thoughts, but then I also like the stuff that does. I think it just depends. It’s a completely personal choice.
+ - I love support groups, people talking about their feelings.
+ - Thirty ways to shape up for summer. Number one: eat less. Number two: exercise more. Number three: what was I talking about again? I’m so hungry.
+ - Some of my friends and family have tried to challenge me to do jokes that aren’t as self-deprecating, where I genuinely express my own opinion in my own voice.
+ - I get sort of short with people and start grumbling and clearing my throat – in honor of my father – when I’m impatient. It’s very charming.
+ - Here’s the Middle East. Here’s the mosque, here’s the church, open the temple, everybody’s MAD!
+ - I find it creatively satisfying to write material and say it out loud in a public place, whether or not anyone’s listening.
+ - I express things through characters because I have a fear that my own voice is irritating because thats been said to me.
+ - I think the Internet has made it easier for people to connect with things that they really like, as well as provide a more personal experience, of ‘I found this!’ and then you can pass it to friends.
+ - My mom is very religious and she said, ‘Whatever you think about all the time, that’s what you worship.’ If that’s the case I’d like everyone to pop open their Diet Coke cans and turn to page 37 of their People Magazines. In this holy scripture, we read the parable of Ms. Valerie Bertinelli.
+ - When you’re a comedian, you’re just by yourself.
+ - I have received more fulfillment and adulation than I would ever know what to do with in terms of show business.
+ - I have trouble watching singers because they are so sincere.
+ - I just love that part of comedy, where you see somebody’s jokes develop. They try something new to see what works, and I just love that part.
+ - Younger and younger, our children are seeing the sippy-cup as half empty.
+ - The thing that keeps the thoughts coming back is the power that you put in the thought that you can’t think of it.
+
+29 quotes

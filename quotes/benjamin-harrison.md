@@ -1,0 +1,24 @@
+ - I pity the man who wants a coat so cheap that the man or woman who produces the cloth will starve in the process.
+ - We Americans have no commission from God to police the world.
+ - God forbid that the day should ever come when, in the American mind, the thought of man as a consumer shall submerge the old American thought of man as a creature of God, endowed with unalienable rights.
+ - Great lives never go out; they go on.
+ - The bud of victory is always in the truth.
+ - I shall have a great advantage over you, Mr. Gerry. When we are all hung for what we are now doing. From the size and weight of my body I shall die in a few minutes, but from the lightness of your body you will dance in the air an hour or two before you are dead.
+ - I’d rather have a bullet inside of me than to be living in constant dread of one.
+ - If you take out of your statutes, your constitution, your family life all that is taken from the Sacred Book, what would there be left to bind society together?
+ - Will it not be wise to allow the friendship between nations to rest upon deep and permanent things? Irritations of the cuticle must not be confounded with heart failure.
+ - Prayer steadies one when he is walking in slippery places – even if things asked for are not given.
+ - That one flag encircles us with its folds today, the unrivaled object of our loyal love.
+ - I knew that my staying up would not change the election result if I were defeated, while if elected I had a hard day ahead of me. So I thought a night’s rest was best in any event.
+ - No other people have a government more worthy of their respect and love or a land so magnificent in extent, so pleasant to look upon, and so full of generous suggestion to enterprise and labor.
+ - The disfranchisement of a single legal elector by fraud or intimidation is a crime too grave to be regarded lightly.
+ - I am thorough believer in the American test of character. He will not build high who does not build for himself.
+ - The evil works from a bad center both ways. It demoralizes those who practice it and destroys the faith of those who suffer by it in the efficiency of the law as a safe protector.
+ - There never has been a time in our history when work was so abundant or when wages were as high, whether measured by the currency in which they are paid or by their power to supply the necessaries and comforts of life.
+ - It is often easier to assemble armies than it is to assemble army revenues.
+ - Lincoln had faith in time, and time has justified his faith.
+ - Sir, I wish to understand the true principles of the Government. I wish them carried out. I ask nothing more.
+ - When and under what conditions is the black man to have a free ballot? When is he in fact to have those full civil rights which have so long been his in law?
+ - Have you not learned that not stocks or bonds or stately houses, or products of the mill or field are our country? It is a spiritual thought that is in our minds.
+
+22 quotes

@@ -1,0 +1,86 @@
+ - Tolerance is the only real test of civilization.
+ - Experience is the extract of suffering.
+ - Wise sayings often fall on barren ground, but a kind word is never thrown away.
+ - Most terrors are but spectral illusions. Only have the courage of the man who could walk up to his spectre seated in the chair before him, and sit down upon it; the horrid thing will not partake the chair with you.
+ - The man of the house can destroy the pleasure of the household, but he cannot make it. That rests with the woman, and it is her greatest privilege.
+ - Reading is sometimes an ingenious device for avoiding thought.
+ - Keep your feet on the ground, but let your heart soar as high as it will. Refuse to be average or to surrender to the chill of your spiritual environment.
+ - Always win fools first. They talk much, and what they have once uttered they will stick to; whereas there is always time, up to the last moment, to bring before a wise man arguments that may entirely change his opinion.
+ - Do not be deceived into thinking that how a man acts is the full picture.
+ - Every happiness is a hostage to fortune.
+ - In a balanced organization, working towards a common objective, there is success.
+ - No man, or woman, was ever cured of love by discovering the falseness of his or her lover. The living together for three long, rainy days in the country has done more to dispel love than all the perfidies in love that have ever been committed.
+ - A man’s action is only a picture book of his creed.
+ - Offended vanity is the great separator in social life.
+ - They tell us that “Pity is akin to Love;” if so, Pity must be a poor relation.
+ - There are no better cosmetics than a severe temperance and purity, modesty and humility, a gracious temper and calmness of spirit; and there is no true beauty without the signatures of these graces in the very countenance.
+ - It is better in some respects to be admired by those with whom you live than to be loved by them; and this not on account of any gratification of vanity, but because admiration is so much more tolerant than love.
+ - Any one who is much talked of be much maligned. This seems to be a harsh conclusion; but when you consider how much more given men are to depreciate than to appreciate, you will acknowledge that there is some truth in the saying.
+ - If you would understand your own age, read the works of fiction produced in it. People in disguise speak freely.
+ - It requires a strong mind to bear up against several languages. Some persons have learnt so many, that they have ceased to think in any one.
+ - It is quite impossible to understand the character of a person from one action, however striking that action may be.
+ - Routine is not organization, any more than paralysis is order.
+ - To hear always, to think always, to learn always, it is thus that we live truly. He who aspires to nothing, who learns nothing, is not worthy of living.
+ - Is boredom anything less than the sense of one’s faculties slowly dying?
+ - Men of much depth of mind can bear a great deal of counsel; for it does not easily deface their own character, nor render their purposes indistinct.
+ - The sense of danger is never, perhaps, so fully apprehended as when the danger has been overcome.
+ - Many a man has a kind of a kaleidoscope, where the bits of broken glass are his own merits and fortunes; and they fall into harmonious arrangements, and delight him, often most mischievously and to his ultimate detriment; but they are a present pleasure.
+ - The thing which makes one man greater than another, the quality by which we ought to measure greatness, is a man’s capacity for loving.
+ - Simple ignorance has in its time been complimented by the names of most of the vices, and of all the virtues.
+ - The reasons which any man offers to you for his own conduct betray his opinion of your character.
+ - If you are often deceived by those around you, you may be sure that you deserve to be deceived; and that instead of railing at the general falseness of mankind, you have first to pronounce judgment on your own jealous tyranny, or on your own weak credulity.
+ - Men rattle their chains-to manifest their freedom.
+ - He who is continually changing his point of view sees more, and more clearly, than one who, statue-like, forever stands upon the same pedestal; however lofty and well-placed that pedestal may be.
+ - The greatest luxury of riches is that they enable you to escape so much good advice.
+ - The measure of civilization in a people is to be found in its just appreciation of the wrongfulness of war.
+ - The most common-place people become highly imaginative when they are in a passion. Whole dramas of insult, injury, and wrong pass before their minds, – efforts of creative genius, for there is sometimes not a fact to go upon.
+ - Wisdom is seldom gained without suffering.
+ - Do not shun this maxim because it is common-place. On the contrary, take the closest heed of what observant men, who would probably like to show originality, are yet constrained to repeat. Therein lies the marrow of the wisdom of the world.
+ - It is in length of patience, endurance and forbearance that so much of what is good in mankind and womankind is shown.
+ - It has been said with some meaning that if men would but rest in silence, they might always hear the music of the spheres.
+ - We are not so easily guided by our most prominent weaknesses as by those of which we are least aware.
+ - You cannot ensure the gratitude of others for a favour conferred upon them in the way which is most agreeable to yourself.
+ - Those who never philosophized until they met with disappointments, have mostly become disappointed philosophers.
+ - There is hardly a more common error than that of taking the man who has one talent, for a genius.
+ - An official man is always an official man, and he has a wild belief in the value of reports.
+ - The world will find out that part of your character which concerns it: that which especially concerns yourself, it will leave for you to discover.
+ - War may be the game of kings, but, like the games at ancient Rome, it is generally exhibited to please and pacify the people.
+ - Infinite toil would not enable you to sweep away a mist; but by ascending a little, you may often look over it altogether. So it is with our moral improvement: we wrestle fiercely with a vicious habit, which could have no hold upon us if we ascended into a higher moral atmosphere.
+ - Many know how to please, but know not when they have ceased to give pleasure.
+ - The man who could withstand, with his fellow-men in single line, a charge of cavalry may lose all command of himself on the occurrence of a fire in his own house, because of some homely reminiscence unknown to the observing bystander.
+ - I do not know of any sure way of making others happy as being so one’s self.
+ - Almost all human affairs are tedious. Everything is too long. Visits, dinners, concerts, plays, speeches, pleadings, essays, sermons, are too long. Pleasure and business labor equally under this defect, or, as I should rather say, this fatal super-abundance.
+ - A great and frequent error in our judgment of human nature is to suppose that those sentiments and feelings have no existence, which may be only for a time concealed. The precious metals are not found at the surface of the earth, except in sandy places.
+ - There is one statesman of the present day, of whom I always say that he would have escaped making the blunders that he has made if he had only ridden more in buses.
+ - Alas! it is not the child but the boy that generally survives in the man.
+ - What a blessing this smoking is! Perhaps the greatest that we owe to the discovery of America.
+ - Entrust a secret to one whose importance will not be much increased by divulging it.
+ - A mixture of admiration and pity is one of the surest recipes for affection.
+ - Man ceased to be an ape, vanquished the ape, on the day the first book was written.
+ - People resemble still more the time in which they live, than they resemble their fathers.
+ - Extremely foolish advice is likely to be uttered by those who are looking at the laboring vessel from the land.
+ - We should lay up in our minds a store of goodly thoughts which will be a living treasure of knowledge always with us, and from which, at various times, and amidst all the shiftings of circumstances, we might be sure of drawing some comfort, guidance and sympathy.
+ - Few have wished for memory so much as they have longed for forgetfulness.
+ - The worst use that can be made of success is to boast of it.
+ - We are frequently understood the least by those who have known us the longest.
+ - The most enthusiastic man in a cause is rarely chosen as the leader.
+ - Always say a kind word if you can, if only that it may come in, perhaps, with singular opportuneness, entering some mournful man’s darkened room, like a beautiful firefly, whose happy circumvolutions he cannot but watch, forgetting his many troubles.
+ - No man who has not sat in the assemblies of men can know the light, odd and uncertain ways in which decisions are often arrived at.
+ - It has always appeared to me, that there is so much to be done in this world, that all self-inflicted suffering which cannot be turned to good account for others, is a loss – a loss, if you may so express it, to the spiritual world.
+ - We are pleased with one who instantly assents to our opinions, but we love a proselyte.
+ - A sceptical young man one day conversing with the celebrated Dr. Parr, observed that he would believe nothing which he could not understand. “Then, young man, your creed will be the shortest of any man’s I know.”
+ - No man has ever praised to persons equally-and pleased them both.
+ - It is a weak thing to tell half your story, and then ask your friend’s advice-a still weaker thing to take it.
+ - Thoughts there are, not to be translated into any language, and spirits alone can read them.
+ - Nature intended you to be the fountain-spring of cheerfulness and social life, and not the mountain of despair and melancholy.
+ - Remember that in giving any reason at all for refusing, you lay some foundation for a future request.
+ - The apparent foolishness of others is but too frequently our own ignorance.
+ - Pride, if not the origin, is the medium of all wickedness-the atmosphere without which it would instantly die away.
+ - Some persons, instead of making a religion for their God, are content to make a god of their religion.
+ - More than half the difficulties of the world would be allayed or removed by the exhibition of good temper.
+ - Selfishness, when it is punished by the world, is mostly punished because it is connected with egotism.
+ - The heroic example of other days is in great part the source of the courage of each generation; and men walk up composedly to the most perilous enterprises, beckoned onward by the shades of the brave that were.
+ - The world will tolerate many vices, but not their diminutives.
+ - Having once decided to achieve a certain task, achieve it at all costs of tedium and distaste. The gain in self confidence of having accomplished a tiresome labor is immense.
+
+84 quotes

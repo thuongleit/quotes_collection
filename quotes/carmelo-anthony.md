@@ -1,0 +1,74 @@
+ - Every Morning You Have Two Choices: Continue To Sleep With Your Dreams, Or Wake Up and Chase Them.
+ - Family time is the best time.
+ - Nobody should expect more of you than you expect of yourself.
+ - It bothers me to hear people talk about things they know nothing about.
+ - You make your own party.
+ - Always stay true to yourself. Some people will like it, some people won’t. Life goes on.
+ - I can’t palm a basketball.
+ - Any decision I make is the biggest decision of my life.
+ - I think everybody has their own unique style.
+ - People only know what they see on TV.
+ - I just want to get on the court.
+ - At this point in my career I’m not concerned about the money, it’s about winning. Nothing else even matters.
+ - It’s too late for me to get married before I’m famous. You never know people’s intentions.
+ - Allen Iverson is a ball hog. You will never win a championship with him on your team.
+ - I smile all the time, even when I’m in a bad mood. I always try to keep a smile on my face.
+ - I told my mom I would graduate. I owe that much to her and myself.
+ - I’m laid back, I take my time, get the job done. Lebron is high flying, dunking, passing the ball well. He’s getting the job done, too. But we’re different.
+ - I say ‘come with it.’ I’m not expecting anything easy. You have to earn your place. That’s fine with me.
+ - I think going to college for that one year was probable the best thing I have ever done.
+ - I think I’m the most underrated superstar that’s out there, but that doesn’t matter to me.
+ - The only person I ever wanted to meet was Muhammad Ali. And of all the people I’ve ever met, he’s the one who most impressed me. It’s tough to listen to him. You gotta have patience. But you see how strong his mind is. Even now, he’s one of the most intelligent people on the planet.
+ - I don’t put pressure on myself. When I put pressure on myself, then I just play bad. When I play bad, my team plays bad.
+ - At the end of the day, you want to be always the one that’s one step ahead of everybody, and when it comes to hip-hop, culture and art, you want to be that signature guy.
+ - To go out there and play and have fun and hopefully win a championship. That’s my goal.
+ - I got an owner that looks out for me. You can’t beat that.
+ - It will work out, somehow. That’s a hell of a duo right there, Marbury, Crawford and Houston.
+ - Everything on my body has a meaning. I don’t do art just because. It does look cool but it also has a meaning.
+ - When I step on that basketball court, I’m thinking about basketball, I’m thinking about winning – but there’s so much that goes into thought about how I’m going to open this game up to others. It’s so much more than just basketball.
+ - I know I’m not a selfish player. People around me know I’m not a selfish player. I do everything I can to make people around me understand I’m not a selfish player.
+ - I’m me. I’m just out there being myself. I like having fun. But at the same time, I bring everybody together. So I’m really – or I try to be – like the glue of the team.
+ - I’m a Baltimore Ravens fan and I’m a Baltimore Orioles fan. I have them tattooed on me.
+ - The new guys bring energy, intensity and emotion. The last couple games, they showed what they can bring to the team.
+ - This was on my vision board. To run out there and be hitting game winners, getting the fans riled up. When they’re stomping on the floor yelling ‘New York Knicks’ – that’s a great feeling.
+ - I just don’t want to get used to feeling this feeling, you know, losing basketball games.
+ - I think I am a smarter player now.
+ - Every year it’s been people saying I can’t do this or I can’t do that. Y’all will see something different, I can tell you that.
+ - As a kid I couldn’t afford any Jordans, so I didn’t get my first pair until my last year of high school. They were Air Jordan 9s.
+ - What I do will be straight up. Management knows that.
+ - You just got ta believe, i have never been a quitter in my life or in my career.
+ - I’ve been at the funerals of a lot of people in my neighborhood. Sometimes when I sit back and relax, I think about that and just blank out.
+ - Play hard, learn as much as I can and do what I do best. The rest will take care of itself I think.
+ - Without a doubt, any opportunity I have to build that up in New York, I’d do it. I told people all the time, always say, ‘If it takes me taking a pay cut, I’ll be the first one on Mr. Dolan’s steps saying take my money and let’s build something strong over here.’
+ - If you laugh, think, and cry; that’s a full day.
+ - You’ve got to have fun on the court. If you ain’t having fun, then basketball ain’t fun.
+ - I have my own identity as a player.
+ - I want to retire in New York, let’s be quite frank. I think a lot of people jumped the gun when I said I wanted to be a free agent. And yeah, I want people to come to play in New York. I want them to want to play in New York. I want New York to be that place where guys want to come play.
+ - People tend to grow fearful, when they taste failure, face a daunting challenge or fall ill. Yet, that is precisely the time to become even bolder. Those who are victors at heart are the greatest of all champions!!!!
+ - Man, I think the sky is the limit for this team.
+ - I know there’s a lot of pressure, but I’m just going to go out and play my game.
+ - I think I’ll always want to improve my defense. That’s something that can always be better. Not saying it’s bad now, just something you should always work on.
+ - Man, I’m not trying to be important; I just go out and play.
+ - We’re still getting better as a team. We’re still learning how to play basketball as a team and how to win tough games.
+ - These close games that we’re losing, the teams are not beating us. We’re kind of beating ourselves.
+ - As a good player in the inner city, you’re always hearing people saying that you’re better than you really are and that you don’t have to do things like everybody else.
+ - A lot of people I meet say, ‘You remind me so much of Magic Johnson.’
+ - Leadership is something I was born with.
+ - The fans are dying. We’re dying.
+ - I don’t think there could ever be more pressure to succeed than the pressure I place on myself.
+ - I wanted to make the lightest shoe possible, but still be able to perform at the same time.
+ - I think people fail to realize that teams and organizations have been stacking teams since way back in the day.
+ - Success is the result of psychologically preparing for it, prior to achieving it!
+ - Look, I won in high school, I won a national championship in college, I want to win one in the NBA. But winning a gold medal, I don’t think anything can top that.
+ - I understand the NBA and the role I play on my team. I know that I have to play a leadership role and do whatever I have to do to win.
+ - There weren’t any sports figures that I idolized because I didn’t really believe in myself back then or think that I could make it here. There were some regular people in my neighborhood that I looked up to growing up but that was it.
+ - Denver is home to me, and to be recognized for my achievements in the sports community here is a great honor.
+ - When I was young, I was sold on winning. I was always serious on the court. As I got older, I realized that it was just a basketball game. Just go out there and have fun.
+ - It’s easier for me to let the game just come to me.
+ - I kind of knew Cleveland was going to get the No. 1 pick. I think they rigged it. No, don’t quote me on that.
+ - When I really like something, I try to put my all into it. This is something thats different from when I was growing up on the basketball court, running up and down, scoring 30 points or something. This is totally something different.
+ - I’m really into fashion.
+ - I’m not at the point in my career where I want to rebuild.
+ - No one is perfect. I know there is stuff that I need to work on, and not just one thing, but my game overall. Everything can get better.
+
+72 quotes

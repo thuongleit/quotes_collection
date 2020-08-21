@@ -1,0 +1,40 @@
+ - The shortest verse in the Bible is ‘Jesus wept.’ The only thing wrong with it is the past tense.
+ - Sometimes old things need to go away. That way, we have room for the new things that come into our lives.
+ - Slow and steady wins the race, then wastes no time grinding salt-caked glass in your open wounds.
+ - Lies are like children. If you don’t nurture them, they’ll never be useful later.
+ - Sometimes the measure of friendship isn’t your ability to not harm but your capacity to forgive the things done to you and ask forgiveness for your own mistakes.
+ - The key is to commit crimes so confusing that police feel too stupid to even write a crime report about them.
+ - The only thing that lasts longer than a friend’s love is the stupidity that keeps us from knowing any better.
+ - In the end, you’ll know which people really love you. They’re the ones who see you for who you are and, no matter what, always find a way to be at your side.
+ - You make me understand how wonderful it is for little lizards when they find that one special rock that’s perfect for sunning themselves on. You make me lizard-happy.
+ - You can’t show love to someone at the expense of someone else who loves you.
+ - A birthday wish granted 23 years late is still a birthday wish granted.
+ - Ah, sweet alcohol. Like a true friend, you replace the anger with better, louder anger.
+ - That’s the thing about marriage. It’s a shell game we play with ourselves. We’re the suckers and we have to lose, but we play anyway because we lie to ourselves that we can win.
+ - Friendship is being there when someone’s feeling low and not being afraid to kick them.
+ - Sometimes people do things that hurt and it’s not because they mean to. They just do. It doesn’t necessarily have anything to do with you, but you end up hurt because of it.
+ - It’s not a matter of whether or not someone’s watching over you. It’s just a question of their intentions.
+ - The grass is always greener once you don’t have to mow a lawn anymore.
+ - Could you imagine how horrible things would be if we always told others how we felt? Life would be intolerably bearable.
+ - Success only hurts the first time.
+ - Nothing like a lot of exercise to make you realize you’d rather be lazy and dead sooner.
+ - The only way to be truly misogynistic is to be a woman.
+ - Death likes it when you play hard to get.
+ - Desperate is not a sexual preference.
+ - Being prepared for loss is never the same as being ready for it.
+ - Typos are very important to all written form. It gives the reader something to look for so they aren’t distracted by the total lack of content in your writing.
+ - Never confuse the faith with the supposedly faithful.
+ - I guess that’s how death works. It doesn’t matter if we’re ready or not. It just happens.
+ - In the end, we decide if we’re remembered for what happened to us or for what we did with it.
+ - Ed Wood served a great purpose – mainly making writers feel better about their work.
+ - Why do we have to wait for special moments to say nice things or tell people we care about them?
+ - We all have a few failures under our belt. It’s what makes us ready for the successes.
+ - That’s the thing with suicide pacts. Sometimes they only really work if they catch you by surprise.
+ - There are people I know who won’t hurt me. I call them corpses.
+ - Things aren’t magically better if that’s what you’re hoping for. It’s not that simple.
+ - People age even when you’re not looking.
+ - Forgiveness is one of the many horrible side effects of loving someone.
+ - The only time anyone’s admitted they were a Christian before was when they were busy telling me why they’re better than me.
+ - It hurts to find out that what you wanted doesn’t match what you dreamed it would be.
+
+38 quotes

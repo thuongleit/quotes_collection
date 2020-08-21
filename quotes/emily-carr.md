@@ -1,0 +1,52 @@
+ - It is wonderful to feel the grandness of Canada in the raw.
+ - Art is an aspect of God and there is only one God, but different people see Him in different ways. Though He is always the same He doesn’t always look the same...
+ - It is wonderful to feel the grandness of Canada in the raw, not because she is Canada but because she’s something sublime that you were born into, some great rugged power that you are a part of.
+ - I think that one’s art is a growth inside one. I do not think one can explain growth. It is silent and subtle. One does not keep digging up a plant to see how it grows.
+ - It’s all the unwordable things one wants to write about, just as it’s all the unformable things one wants to paint – essence.
+ - The outstanding event was the doing which I am still at. Don’t pickle me awayas done.
+ - Art being so much greater than ourselves, it will not give up once it has taken hold.
+ - Oh, Spring! I want to go out and feel you and get inspiration. My old things seem dead. I want fresh contacts, more vital searching.
+ - You always feel when you look it straight in the eye that you could have put more into it, could have let yourself go and dug harder.
+ - Do not try to do extraordinary things but do ordinary things with intensity.
+ - You come into the world alone and you go out of the world alone yet it seems to me you are more alone while living than even going and coming.
+ - There is something bigger than fact: the underlying spirit, all it stands for, the mood, the vastness, the wildness.
+ - Inspiration is intention obeyed.
+ - You must be absolutely honest and true in the depicting of a totem for meaning is attached to every line. You must be most particular about detail and proportion.
+ - There is no right and wrong way to paint except honestly or dishonestly. Honestly is trying for the bigger thing. Dishonestly is bluffing and getting through a smattering of surface representation with no meaning...
+ - Oh, the glory of growth, silent, mighty, persistent, inevitable! To awaken, to open up like a flower to the light of a fuller consciousness!
+ - The earth is soaked and soggy with rain. Everything is drinking its fill and the surplus gluts the drains. The sky is full of it and lies low over the earth, heavy and dense. Even the sea is wetter than usual!
+ - Writing is a strong easement for perplexity. My life is a map, spread out with all the rivers and hills showing.
+ - Go out there into the glory of the woods. See God in every particle of them expressing glory and strength and power, tenderness and protection. Know that they are God expressing God made manifest.
+ - The artist himself may not think he is religious, but if he is sincere his sincerity in itself is religion.
+ - So still were the big woods where I sat, sound might not yet have been born.
+ - I was not ready for abstraction. I clung to earth and her dear shapes, her density, her herbage, her juice. I wanted her volume, and I wanted to hear her throb.
+ - I can rise above the humility of my failure with an intense desire to search deeper and a blind faith that some day my sight may pierce through the veils that hide. I know God’s face is there if I keep my gaze steady enough.
+ - The liveness in me just loves to feel the liveness in growing things, in grass and rain and leaves and flowers and sun and feathers and furs and earth and sand and moss.
+ - Don’t take what someone else has made sure of and pretend it’s you yourself that have made sure of it till it’s yours absolutely by conviction. It’s stealing to take it and hypocrisy and you’ll fall into a hole.
+ - Be careful that you do not write or paint anything that is not your own, that you don’t know in your own soul.
+ - Last night I dreamed that I came face to face with a picture I had done and forgotten, a forest done in simple movement, just forms of trees moving in space. That is the third time I have seen pictures in my dreams, a glint of what I am striving to attain.
+ - My mountain is dead. As soon as she has dried, I’ll bury her under a decent layer of white paint. But I haven’t done with the old lady; far from it!
+ - The men resent a woman getting any honour in what they consider is essentially their field. Men painters mostly despise women painters. So I have decided to stop squirming, to throw any honour in with Canada and women.
+ - Cedars are terribly sensitive to change of time and light – sometimes they are bluish cold-green, then they turn yellow warm-green – sometimes their boughs flop heavy and sometimes float, then they are fairy as ferns and then they droop, heavy as heartaches.
+ - The foolish square calves pretend to be frightened of our train. Bluffers! Haven’t they seen it every day since they were born? It’s just an excuse to shake the joy out of their heels.
+ - I thought my mountain was coming this morning. It was near to speaking when suddenly it shifted, sulked, and returned to smallness. It has eluded me again and sits there, puny and dull. Why?
+ - There is a need to go deeper, to let myself go completely, to enter into the surroundings in the real fellowship of oneness, to lift above the outer shell, out into the depth and wideness where God is the recognized centre and everything is in time with everything, and the key-note is God.
+ - There was neither horizon, cloud, nor sound; of that pink, spread silence even I had become part, belonging as much to sky as to earth.
+ - Oh, I wonder if I will ever feel the burst of birth-joy, that knowing that the indescribable, joyous thing that has wooed and wond me has passed through my life and produced one atom of the great reality.
+ - Let me not fuss and fret at my incompetence but be still and know that Thou art God.
+ - If the air is jam-full of sounds which we tune in with, why should it not also be full of feels and smells and things seen through the spirit, drawing particles from us to them and them to us like magnets?
+ - Up came the sun, and drank the dew.
+ - Sometimes I could quit paint and take to charring. It must be fine to clean perfectly, to shine and polish and know that it could not be done better. In painting that never occurs.
+ - If you’re going to lick the icing off somebody else’s cake you won’t be nourished and it won’t do you any good, – or you might find the cake had caraway seeds and you hate them.
+ - I sat staring, staring, staring – half lost, learning a new language or rather the same language in a different dialect.
+ - Oh I do want that thing, that oneness of movement that will catch the thing up into one movement and sing – harmony of life.
+ - The memory of Cumshewa is of a great lonesomeness smothered in a blur of rain.
+ - Got a new pup. He is half griffon. The other half is mistake.
+ - Trying to find equivalents for things in words helps me find equivalents in painting.
+ - I made myself into an envelope into which I could thrust my work deep, lick the flap, seal it from everybody.
+ - The spirit must be felt so intensely that it has power to call others in passing, for it must pass, not stop in the pictures...
+ - The biggest part of painting perhaps is faith, and waiting receptively, content to go any way, not planning or forcing. The fear, though, is laziness. It is so easy to drift and finally be tossed up on the beach, derelict.
+ - When you really think about your hand you begin to realize its connection, to sense the hum of your own being passing through it. When we look at a piece of the universe we should feel the same.
+ - What a splendid time Woo must have had.
+
+50 quotes

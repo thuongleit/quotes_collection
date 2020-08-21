@@ -1,0 +1,33 @@
+ - Love is not a sentiment or feeling. Love is actively willing the good of the other.
+ - I don’t think we’ll understand Advent correctly until we see it as a preparation for a revolution.
+ - Beauty is the arrowhead of evangelization, the point with which the evangelist pierces the minds and hearts of those he evangelizes.
+ - We have laws against polluting our rivers but not against polluting our minds.
+ - When God went to the cross he made even death itself a place of hope.
+ - The long nights that Pier Giorgio Frassati spent on his knees in front of the Blessed Sacrament had something to do with the long days spent in service of the poor.
+ - Love without truth devolves into sentimentality. Truth without love becomes cold and calculated.
+ - Your faith will grow only in the measure that you give it away.
+ - Begin with the beautiful, which leads you to the good, which leads you to the truth.
+ - God is a placebo for your own mortality.
+ - The ego-drama is nothing compared with the theo-drama. The fun begins when we let God write our stories.
+ - In a way, fasting is like the “calming of the monkey mind” effected by the rosary prayer: both are means of stilling the effervescence of relatively superficial preoccupations.
+ - The slightest cooperation with God’s grace can provoke a massive spiritual change.
+ - Easter is an earthquake, an explosion. If you see it as less than that, you’re not getting it.
+ - Turn your car into a monastery.
+ - Christians have no business moping around.
+ - There’s no way up but down.
+ - The human race is one big dysfunctional family.
+ - The minute you walk outside of your church on Sunday you’re in mission territory.
+ - Hans Urs von Balthasar maintained that the best evangelistic strategy is to capture people with the beautiful, then enchant them with the good, and then lead them to the true.
+ - Bob Dylan said, “The executioner’s face is always well-hidden”. That’s the problem: The cross pulls that hood off.
+ - The cross is Jesus going into the very lair of death. He goes to meet head-on that which frightens us the most. And what does He do? He battles it. He engages it. And finally he conquers it.
+ - Beauty is the arrowhead of evangelization.
+ - We are exceptionally good at seeing the faults in others and exceptionally adept at ignoring the faults in ourselves.
+ - The surest sign that God is alive in you is joy.
+ - Catholicism is a matter of the body and the senses as much as it is a matter of the mind, precisely because the Word became flesh.
+ - A story can sing the truth and not just tell it.
+ - Christ’s invitation to the priesthood is an invitation to a way of life that is athletic in its intensity and heroic in its form.
+ - The only thing particularly new about the “new atheism” is its nastiness.
+ - Both total accommodation to the culture and total resistance to it are usually signs of intellectual sickness.
+ - We need to mock false gods publicly.
+
+31 quotes

@@ -1,0 +1,146 @@
+ - The sad truth is that most evil is done by people who never make up their minds to be good or evil.
+ - To think and to be fully alive are the same.
+ - The ideal subject of totalitarian rule is not the convinced Nazi or the dedicated communist, but people for whom the distinction between fact and fiction, true and false, no longer exists.
+ - Storytelling reveals meaning without committing the error of defining it.
+ - Politically, the weakness of the argument has always been that those who choose the lesser evil forget very quickly that they chose evil.
+ - One must think with the body and the soul or not think at all.
+ - Education is the point at which we decide whether we love the world enough to assume responsibility for it and by the same token save it from that ruin which, except for renewal, except for the coming of the new and young, would be inevitable.
+ - Philosophy is called upon to compensate for the frustrations of politics and, more generally, of life itself.
+ - To expect truth to come from thinking signifies that we mistake the need to think with the urge to know.
+ - Every thought is an afterthought.
+ - Forgiveness is the only way to reverse the irreversible flow of history.
+ - The greatest enemy of authority, therefore, is contempt, and the surest way to undermine it is laughter.
+ - For excellence, the presence of others is always required.
+ - Political questions are far too serious to be left to the politicians.
+ - Violence can always destroy power; out of the barrel of a gun grows the most effective command, resulting in the most instant and perfect obedience. What never can grow out of it is power.
+ - Generally speaking, violence always arises out of impotence. It is the hope of those who have no power...
+ - Violence is an expression of impotence.
+ - One of the greatest advantages of the totalitarian elites of the twenties and thirties was to turn any statement of fact into a question of motive.
+ - The emotions I feel are no more meant to be shown in their unadulterated state than the inner organs by which we live.
+ - The strength of even the strongest individual can always be overpowered by the many, who often will combine for no other purpose than to ruin strength precisely because of its peculiar independence.
+ - The aim of totalitarian education has never been to instill convictions but to destroy the capacity to form any.
+ - The saving grace of all really great gifts is that the persons who bear their burden remain superior to what they have done, at least as long as the source of creativity is alive.
+ - The end of rebellion is liberation, while the end of revolution is the foundation of freedom.
+ - Loving life is easy when you are abroad. Where no one knows you and you hold your life in your hands all alone, you are more master of yourself than at any other time.
+ - The extreme form of power is All against One, the extreme form of violence is One against All.
+ - Men who no longer can make sure of the reality which they feel and experience through talking about it and sharing it with their fellow-men, live in the same nightmare of loneliness and uncertainty which, in a normal world, is the terrible fate of insanity.
+ - Solitude is the human condition in which I keep myself company. Loneliness comes about when I am alone without being able to split up into the two-in-one, without being able to keep myself company.
+ - Kierkegaard, Marx, and Nietzsche are for us like guideposts to a past which has lost its significance.
+ - If men were ever to lose the appetite for meaning we call thinking, they would lose the capacity for asking all the unanswerable questions upon which every civilization is founded.
+ - If we don’t know our own history, we are deemed to live it.
+ - Conscience is the anticipation of the fellow who awaits you if and when you come home.
+ - Promises are the uniquely human way of ordering the future.
+ - When evil is allowed to compete with good, evil has an emotional populist appeal that wins out unless good men and women stand as a vanguard against abuse.
+ - The point, as Marx saw it, is that dreams never come true.
+ - Fear is an emotion indispensable for survival.
+ - The human condition is such that pain and effort are not just symptoms which can be removed without changing life itself; they are the modes in which life itself, together with the necessity to which it is bound, makes itself felt. For mortals, the easy life of the gods would be a lifeless life.
+ - Action, as distinguished from fabrication, is never possible in isolation; to be isolated is to be deprived of the capacity to act.
+ - The most radical revolutionary will become a conservative the day after the revolution.
+ - Since one cannot educate adults, the word “education” has an evil sound in politics; there is a pretense of education, when the real purpose is coercion without the use of force.
+ - Only the hypocrite is really rotten to the core.
+ - It is in the nature of a group and its power to turn against independence, the property of individual strength.
+ - The practice of violence, like all action, changes the world, but the most probable change is a more violent world.
+ - Courage is indispensible because in politics not life but the world is at stake.
+ - The need of reason is not inspired by the quest for truth but by the quest for meaning. And truth and meaning are not the same. The basic fallacy, taking precedence over all specific metaphysical fallacies, is to interpret meaning on the model of truth.
+ - The Third World is not a reality but an ideology.
+ - Thinking does not lead to truth; truth is the beginning of thought.
+ - The good things in history are usually of very short duration, but afterward have a decisive influence on what happens over long periods of time.
+ - The most striking difference between ancient and modern sophists is that the ancients were satisfied with a passing victory of argument at the expense of truth, whereas the moderns want a more lasting victory at the expense of reality.
+ - No punishment has ever possessed enough power of deterrence to prevent the commission of crimes.
+ - Under conditions of tyranny it is far easier to act than to think.
+ - The chief qualification of a mass leader has become unending infallibility; he can never admit an error.
+ - Nihilism is but the other side of conventionalism; its creed consists of negations of the current so-called positive values, to which it remains bound.
+ - It is quite gratifying to feel guilty if you haven’t done anything wrong: how noble! Whereas it is rather hard and certainly depressing to admit guilt and to repent.
+ - Man’s chief moral deficiency appears to be not his indiscretions but his reticence.
+ - Totalitarianism is never content to rule by external means, namely, through the state and a machinery of violence; thanks to its peculiar ideology and the role assigned to it in this apparatus of coercion, totalitarianism has discovered a means of dominating and terrorizing human beings from within.
+ - Ideological thinking becomes emancipated from the reality that we perceive with our five senses, and insists on a ‘truer’ reality concealed behind all perceptible things, dominating them from this place of concealment and requiring a sixth sense that enables us to become aware of it.
+ - Manipulations of opinion, insofar as they are inspired by well-defined interests, have limited goals; their effect, however, if they happen to touch upon an issue of authentic concern, is no longer subject to their control and may easily produce consequences they never foresaw or intended.
+ - To speak of the impotence of power is no longer a witty paradox.
+ - Love, by its very nature, is unworldly, and it is for this reason rather than its rarity that it is not only apolitical but antipolitical, perhaps the most powerful of all antipolitical forces.
+ - Thinking withdraws radically and for its own sake from this world and its evidential nature, whereas science profits from a possible withdrawal for the sake of specific results.
+ - Scientific and philosophic truth have parted company.
+ - Men always want to be terribly influential, but I see that as somewhat external. Do I imagine myself being influential? No. I want to understand. And if others understand – in the same sense that I have understood – that gives me a sense of satisfaction, like feeling at home.
+ - Love, in distinction from friendship, is killed, or rather extinguished, the moment it is displayed in public.
+ - Power is actualized only when word and deed have not parted company.
+ - Total loyalty is possible only when fidelity is emptied of all concrete content, from which changes of mind might naturally arise.
+ - The climax of terror is reached when the police state begins to devour its own children, when yesterday’s executioner becomes today’s victim.
+ - Bureaucracy, the rule of nobody.
+ - There is a strange interdependence between thoughtlessness and evil.
+ - While strength is the natural quality of an individual seen in isolation, power springs up between men when they act together and vanishes the moment they disperse.
+ - The cultural treasures of the past, believed to be dead, are being made to speak, in the course of which it turns out that they propose things altogether different than what had been thought.
+ - Action painting has to do with self-creation or self-definition or self-transcendence; but this dissociates it from self-expression, which assumes the acceptance of the ego as it is, with its wound and its magic.
+ - Of all human activities, only labor, and neither action nor work, is unending, progressing automatically in accordance with life itself and outside the range of willful decisions or humanly meaningful purposes.
+ - The way God has been thought of for thousands of years is no longer convincing; if anything is dead, it can only be the traditional thought of God.
+ - We are free to change the world and start something new in it.
+ - A theology which is not based on revelation as a given reality but treats God as an idea would be as mad as a zoology which is no longer sure of the physical, tangible existence of animals.
+ - If the ability to tell right from wrong should have anything to do with the ability to think, then we must be able to ‘demand’ its exercise in every sane person no matter how erudite or ignorant.
+ - Legitimacy, when challenged, bases itself on an appeal to the past, while justification relates to an end that lies in the future. Violence can be justifiable, but it never will be legitimate.
+ - The possible redemption from the predicament of irreversibility – of being unable to undo what one has done – is the faculty of forgiving.
+ - There always comes a point beyond which lying becomes counterproductive. This point is reached when the audience to which the lies are addressed is forced to disregard altogether the distinguishing line between truth and falsehood in order to be able to survive.
+ - Truthfulness has never been counted among the political virtues, and lies have always been regarded as justifiable tools in political dealings.
+ - The totalitarian attempt at global conquest and total domination has been the destructive way out of all impasses. Its victory may coincide with the destruction of humanity; wherever it has ruled, it has begun to destroy the essence of man.
+ - A life spent entirely in public, in the presence of others, becomes, as we would say, shallow. While it retains its visibility, it loses its quality of rising into sight from some darker ground which must remain hidden if it is not to lose its depth in a very real, non-subjective sense.
+ - Under conditions of terror, most people will comply but some people will not.
+ - Could the activity of thinking as such, the habit of examining whatever happens to come to pass or to attract attention, regardless of results and specific content, could this activity be among the conditions that make men abstain from evil-doing?
+ - Men, forever tempted to lift the veil of the future-with the aid of computers or horoscopes or the intestines of sacrificial animals-have a worse record to show in these sciences than in almost any scientific endeavor.
+ - In politics, love is a stranger, and when it intrudes upon it nothing is being achieved except hypocrisy.
+ - All political institutions are manifestations and materializations of power; they petrify and decay as soon as the living power of the people ceases to uphold them.
+ - The true dividing line between people is whether they are capable of being in love with their destiny.
+ - Opinions are formed in a process of open discussion and public debate, and where no opportunity for the forming of opinions exists, there may be moods -moods of the masses and moods of individuals, the latter no less fickle and unreliable than the former -but no opinion.
+ - It is obvious: if you do not accept something that assumes the form of ‘destiny,’ you not only change its ‘natural laws’ but also the laws of the enemy playing the role of fate.
+ - It is better to suffer wrong than to do wrong, because you can remain the friend of the sufferer; who would want to be the friend of and have to live together with a murderer? Not even another murderer.
+ - Power and violence are opposites; where the one rules absolutely, the other is absent. Violence appears where power is in jeopardy, but left to its own course it ends in power’s disappearance.
+ - The new always happens against the overwhelming odds of statistical laws and their probability, which for all practical, everyday purposes amounts to certainty; the new therefore always appears in the guise of a miracle.
+ - Even though we have lost yardsticks by which to measure, and rules under which to subsume the particular, a being whose essence is a beginning may have enough of origin within himself to understand without preconceived categories and to judge without the set of customary rules which is morality.
+ - No punishment has ever possessed enough power of deterrence to prevent the commission of crimes. On the contrary, whatever the punishment, once a specific crime has appeared for the first time, its reappearance is more likely than its initial emergence could ever have been.
+ - I know exactly what I want to write. I do not write until I do. Usually I write it all down only once. And that goes relatively quickly, since it really depends only on how fast I type.
+ - Death not merely ends life, it also bestows upon it a silent completeness, snatched from the hazardous flux to which all things human are subject.
+ - You think that you can judge what’s good or evil from whether you enjoy doing it or not. You think that evil is what always appears in the form of a temptation, while good is what you never spontaneously want to do. I think this is all total rubbish, if you don’t mind my saying so.
+ - Ideas, as distinguished from events, are never unprecedented.
+ - There are many great authors of the past who have survived centuries of oblivion and neglect, but it is still an open question whether they will be able to survive an entertaining version of what they have to say.
+ - It is in the very nature of things human that every act that has once made its appearance and has been recorded in the history of mankind stays with mankind as a potentiality long after its actuality has become a thing of the past.
+ - What I cannot live with may not bother another man’s conscience. The result is that conscience will stand against conscience.
+ - Thought and action must never part company.
+ - A functionary, when he really is nothing more than a functionary, is really a very dangerous gentleman.
+ - The individual who has been liberated by reason is always running head-on into a world, a society, whose past in the shape of ‘prejudices’ has a great deal of power; he is forced to learn that past reality is also a reality.
+ - Basically we are always educating for a world that is or is becoming out of joint, for this is the basic human situation, in which the world is created by mortal hands to serve mortals for a limited time as home.
+ - The presence of others who see what we see and hear what we hear assures us of the reality of the world and ourselves.
+ - Goodness that comes out of hiding and assumes a public role is no longer good, but corrupt in its own terms and will carry its own corruption wherever it goes.
+ - Imperialism was born when the ruling class in capitalist production came up against national limits to its economic expansion.
+ - Psychologically speaking, one may say that the hypocrite is too ambitious; not only does he want to appear virtuous before others, he wants to convince himself.
+ - If a given science accidentally reached its goal, this would by no means stop the workers in the field, who would be driven past their goal by the sheer momentum of the illusion of unlimited progress.
+ - With the rise of Christianity, faith replaced thought as the bringer of immortality.
+ - Every organization of men, be it social or political, ultimately relies on man’s capacity for making promises and keeping them.
+ - Without being forgiven, released from the consequences of what we have done, our capacity to act would, as it were, be confined to one single deed from which we could never recover; we would remain the victims of its consequences forever.
+ - Every activity performed in public can attain an excellence never matched in privacy; for excellence, by definition, the presence of others is always required.
+ - And the distinction between violent and non-violent action is that the former is exclusively bent upon the destruction of the old, and the latter is chiefly concerned with the establishment of something new.
+ - What is the subject of our thought? Experience! Nothing else!
+ - The monstrous sameness and pervasive ugliness so highly characteristic of the findings of modern psychology, and contrasting so obviously with the enormous variety and richness of overt human conduct, witness to the radical difference between the inside and the outside of the human body.
+ - Poetry, whose material is language, is perhaps the most human and least worldly of the arts, the one in which the end product remains closest to the thought that inspired it.
+ - Revolutions are the only political events which confront us directly and inevitably with the problem of beginning.
+ - Violence can destroy power; it is utterly incapable of creating it.
+ - Absence of thought is indeed a powerful factor in human affairs, statistically speaking the most powerful, not just in the conduct of the many but in the conduct of all.
+ - According to bourgeois standards, those who are completely unlucky and unsuccessful are automatically barred from competition, which is the life of society. Good fortune is identified with honor, and bad luck with shame.
+ - I’m more than ever of the opinion that a decent human existence is possible today only on the fringes of society, where one then runs the risk of starving or being stoned to death. In these circumstances, a sense of humor is a great help.
+ - It is in the nature of all party systems that the authentically political talents can assert themselves only in rare cases, and it is even rarer that the specifically political qualifications survive the petty maneuvers of party politics with its demands for plain salesmanship.
+ - For politics is not like the nursery; in politics obedience and support are the same.
+ - The ceaseless, senseless demand for original scholarship in a number of fields, where only erudition is now possible, has led either to sheer irrelevancy, the famous knowing of more and more about less and less, or to the development of a pseudo-scholarship which actually destroys its object.
+ - It is the nature of beginning that something new is started which cannot be expected from whatever may have happened before. This character of startling unexpectedness is inherent in all beginnings.
+ - What I propose, therefore, is very simple: it is nothing more than to think what we are doing.
+ - As citizens, we must prevent wrongdoing because the world in which we all live, wrong-doer, wrong sufferer and spectator, is at stake.
+ - It is a society of laborers which is about to be liberated from the ferrets of labor, and this society does no longer know of those other higher and more meaningful activities for the sake of which this freedom would deserve to be won.
+ - The conviction that everything that happens on earth must be comprehensible to man can lead to interpreting history by commonplaces.
+ - We all carry fault within.
+ - For no matter what learned scientists may say, race is, politically speaking, not the beginning of humanity but its end, not the origin of peoples but their decay, not the natural birth of man but his unnatural death.
+ - Exactly for the sake of what is new and revolutionary in every child, education must be conservative; it must preserve this newness and introduce it as a new thing into an old world.
+ - They must remember that they are constantly on the run, and that the world’s reality is actually expressed by their escape.
+ - Metaphysical fallacies contain the only clues we have to what thinking means to those who engage in it.
+ - It interrupts any doing, any ordinary activities, no matter what they happen to be. All thinking demands a stop-and-think.
+ - No argument can persuade me to like oysters if I do not like them. In other words, the disturbing thing about matters of taste is that they are not communicable.
+ - The blessing of life as a wholecan never be found in work.
+ - For the possibilities of being different from what one is are infinite. Once one has negated oneself, however, there are no longer any particular choices.
+ - The only grandeur of imperialism lies in the nation’s losing battle against it.
+ - When an old truth ceases to be applicable, it does not become any truer by being stood on its head.
+ - It belongs among the refinements of totalitarian government in our century that they don’t permit their opponents to die a great, dramatic martyr’s death for their convictions.
+
+144 quotes

@@ -1,0 +1,56 @@
+ - He is no fool who gives what he cannot keep to gain that which he cannot lose.
+ - Wherever you are – be all there.
+ - Wherever you are, be all there! Live to the hilt every situation you believe to be the will of God.
+ - God always gives His best to those who leave the choice with him.
+ - God, I pray Thee, light these idle sticks of my life and may I burn for Thee. Consume my life, my God, for it is Thine. I seek not a long life, but a full one, like you, Lord Jesus.
+ - Forgive me for being so ordinary while claiming to know so extraordinary a God.
+ - When it comes time to die, make sure that all you have to do is die.
+ - Father, make of me a crisis man. Bring those I contact to decision. Let me not be a milepost on a single road; make me a fork, that men must turn one way or another on facing Christ in me.
+ - Missionaries are very human folks, simply a bunch of nobodies trying to exalt somebody.
+ - Let not our longing slay the appetite of our living.
+ - I seek not a long life, but a full one, like you Lord Jesus.
+ - God is still on His throne, we’re still on His ‘footstool,’ and there’s only a knee’s distance between!
+ - It’s hard to steer a parked car.
+ - Oh, the fullness, pleasure, sheer excitement of knowing God on earth!
+ - The will of God is always a bigger thing than we bargain for.
+ - Unwillingness to accept God’s ‘way of escape’ from temptation frightens me – what a rebel yet resides within.
+ - The will of God is always a bigger thing than we bargain for, but we must believe that whatever it involves, it is good, acceptable and perfect.
+ - Lord, make my way prosperous not that I achieve high station, but that my life be an exhibit to the value of knowing God.
+ - That saint who advances on his knees never retreats...
+ - Why do you need a voice when you have a verse?
+ - Children are arrows in a quiver, and they are to be trained as missionaries and shot at the Devil.
+ - Be on guard, my soul, of complicating your environment so that you have neither time nor room for growth!
+ - Lord, give me firmness without hardness, steadfastness without dogmatism, love without weakness.
+ - Those whimpering Stateside young people will wake up on the Day of Judgment condemned to worse fates than these demon-fearing Indians, because, having a Bible, they were bored with it – while these never heard of such a thing as writing.
+ - Always seek peace between your heart and God, but in this world, always be careful to remain ever-restless, never satisfied, and always abounding in the work of the Lord.
+ - I many no longer depend on pleasant impulses to bring me before the Lord. I must rather response to principles I know to be right, whether I feel them to be enjoyable or not.
+ - So many missionaries, intent on doing something, forget that His main work is to make something of them...
+ - Surely those who know the great passionate heart of Jehovah must deny their own loves to share in the expression of His.
+ - As your life is in His hands, so are the days of your life. But don’t let the sands of time get into the eye of your vision to reach those who sit in darkness. They simply must hear.
+ - If we are the sheep of His pasture, remember that sheep are headed for the altar.
+ - What good are Greek, commentaries, insight, gift, and all the rest, if there is no heart for Christ?
+ - No one warns young people to follow Adam’s example. He waited till God saw his need. Then God made Adam sleep, prepared for his mate, and brought her to him.
+ - God, I pray light these idle sticks of my life and may I burn up for thee.
+ - I have had to make a cross of two logs, and lie down on it, to show the Indians what it means to crucify a man.
+ - Eternity shall be at once a great eye-opener and a great mouth-shutter.
+ - I have felt the impact of your prayer in these past weeks. I am certain now that nothing has had a more powerful infl uence on this life of mine than your prayers.
+ - For my generation I must have the oracles of God in fresh terms.
+ - God deliver me from the dread asbestos of “other things.” Saturate me with the oil of the Spirit that I may be aflame.
+ - Singleness, simplicity, is required of me. One treasure, a single eye, and a sole Master!
+ - Father, take my life, yea, my blood if Thou wilt, and consume it with Thine enveloping fire. I would not save it, for it is not mine to save. Have it Lord, have it all. Pour out my life as an oblation for the world. Blood is only of value as it flows before Thine altar.
+ - It is true that a fellow cannot ignore women – but he can think of them as he ought – as sisters, not as sparring partners.
+ - Most laws condemn the soul and pronounce sentence. The result of the law of my God is perfect. It condemns but forgives. It restores – more than abundantly – what it takes away.
+ - Live every day as if the Son of Man were at the door, and gear your thinking to the fleeting moment. Just how can it be redeemed? Walk as if the next step would carry you across the threshold of Heaven. Pray. That saint who advances on his knees never retreats.
+ - I couldn’t have asked for more than God in deliberate grace has surprised me with!
+ - Ps 119:89-91: The settled Word in Heaven makes for a solid foundation on earth and a safe path for today.
+ - Feast of Stephen, Deacon, First Martyr, the man who will not act until he knows all will never act at all.
+ - The shiny paint laid on by curiosity’s hand has worn off. What thing better can a man know than the love of Christ, which passes knowledge?
+ - The sound of ‘gentle stillness’ after all the thunder and wind have passed will the ultimate Word from God.
+ - Grieve not, then, if your sons seem to desert you, but rejoice, rather, seeing the will of God done gladly.
+ - Birds are extremely valued as indicators of overall environmental health. If there’s a problem in a wild bird population, it’s indicative that something went wrong.
+ - Dreams are tawdry when compared with the leading of God, and not worthy of the aura of wonder we usually surround them with. God only doeth wonders. He does nothing else. His hand can work nothing less.
+ - Ninety-five percent of our wool is going to China.
+ - I do not know how to make a man think seriously about sin and judgment, and must look to the work of the Holy Spirit for any hint of such a working.
+ - Eagles are very tolerant and very adaptable, but they have to get established first. When birds are setting up their breeding territory, they are the most susceptible to being discouraged.
+
+54 quotes

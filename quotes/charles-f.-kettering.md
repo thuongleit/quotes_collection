@@ -1,0 +1,92 @@
+ - Believe and act as if it were impossible to fail.
+ - High achievement always takes place in the framework of high expectation.
+ - A problem well stated is a problem half-solved.
+ - If I have had any success, it’s due to luck, but I notice the harder I work, the luckier I get.
+ - Every father should remember one day his son will follow his example, not his advice.
+ - It doesn’t matter if you try and try and try again, and fail. It does matter if you try and fail, and fail to try again.
+ - Every great improvement has come after repeated failures. Virtually nothing comes out right the first time. Failures, repeated failures, are finger posts on the road to achievement. One fails forward toward success.
+ - Keep on going and the chances are you will stumble on something, perhaps when you are least expecting it. I have never heard of anyone stumbling on something sitting down.
+ - Every time you tear a leaf off a calendar, you present a new place for new ideas and progress.
+ - The price of progress is trouble.
+ - The world hates change, yet it is the only thing that has brought progress.
+ - Action without intelligence is a form of insanity, but intelligence without action is the greatest form of stupidity in the world.
+ - There is a great difference between knowing and understanding: you can know a lot about something and not really understand it.
+ - People are very open-minded about new things – as long as they’re exactly like the old ones.
+ - Our imagination is the only limit to what we can hope to have in the future.
+ - It is the ‘follow through’ that makes the great difference between ultimate success and failure, because it is so easy to stop.
+ - Research means that you don’t know, but are willing to find out.
+ - Every honest researcher I know admits he’s just a professional amateur. He’s doing whatever he’s doing for the first time. That makes him an amateur. He has sense enough to know that he’s going to have a lot of trouble, so that makes him a professional.
+ - One fails forward toward success.
+ - If you’re doing something the same way you have been doing it for ten years, the chances are you are doing it wrong.
+ - No one would have crossed the ocean if he could have gotten off the ship in the storm.
+ - Problems are the price of progress. Don’t bring me anything but trouble. Good news weakens me.
+ - 99 percent of success is built on failure.
+ - The only time you mustn’t fail is the last time you try.
+ - There exist limitless opportunities in every industry. Where there is an open mind, there will always be a frontier.
+ - An inventor fails 999 times, and if he succeeds once, he’s in. He treats his failures simply as practice shots.
+ - We need to teach the highly educated man that it is not a disgrace to fail and that he must analyze every failure to find its cause. He must learn how to fail intelligently, for failing is one of the greatest arts in the world.
+ - Learn how to fail intelligently.
+ - The opportunities of man are limited only by his imagination. But so few have imagination that there are ten thousand fiddlers to one composer.
+ - All human development, no matter what form it takes, must be outside the rules; otherwise we would never have anything new.
+ - It is not a disgrace to fail. Failing is one of the greatest arts in the world.
+ - If you want to kill any idea in the world, get a committee working on it.
+ - This problem, too, will look simple after it is solved.
+ - Why is the human skull as dense as it is? Nowadays we can send a message around the world in one-seventh of a second, but it takes years to drive an idea through a quarter-inch of human skull.
+ - You will never stub your toe standing still. The faster you go, the more chance there is of stubbing your toe, but the more chance you have of getting somewhere.
+ - A research problem is not solved by apparatus; it is solved in a man’s head.
+ - It is man’s destiny to ponder on the riddle of existence and, as a byproduct of his wonderment, to create a new life on this earth.
+ - The key to economic prosperity is the organized creation of dissatisfaction.
+ - If we taught music the way we try to teach engineering, in an unbroken four year course, we could end up with all theory and no music. When we study music, we start to practice from the beginning, and we practice for the entire time...
+ - I am not interested in the past. I am interested in the future, for that is where I expect to spend the rest of my life.
+ - One of the things we have to be thankful for is that we don’t get as much government as we pay for.
+ - Do not bring me your successes; they weaken me. Bring me your problems; they strengthen me.
+ - I don’t want men of experience working for me. The experienced man is always telling me why something can’t be done. The fellow who has not had any experience is so dumb he doesn’t know a thing can’t be done – and he goes ahead and does it.
+ - A man must have a certain amount of intelligent ignorance to get anywhere.
+ - People see the wrongness in an idea much quicker that the rightness.
+ - You can send a message around the world in one-fifth of a second, yet it may take years for it to get from the outside of a man’s head to the inside.
+ - Whenever you look at a piece of work and you think the fellow was crazy, then you want to pay some attention to that. One of you is likely to be, and you had better find out which one it is. It makes an awful lot of difference.
+ - The difference between intelligence and an education is this-that intelligence will make you a good living.
+ - Logic is a system whereby one may go wrong with confidence.
+ - What I believe is that, by proper effort, we make the future almost anything we want to make it.
+ - Research is an organized method for keeping you reasonably dissatisfied with what you have.
+ - My definition of an educated man is the fellow who knows the right thing to do at the time it has to be done. You can be sincere and still be stupid.
+ - We are just in the kindergarten of uncovering things; there is no downcurve in science.
+ - Great steps in human progress are made by things that don’t work the way philosophy thought they should. If things always worked the way they should, you could write the history of the world from now on. But they don’t, and it is those deviations from the normal that make human progress.
+ - A problem thoroughly understood is always fairly simple. Found your opinions on facts, not prejudices. We know too many things that are not true.
+ - I expect to spend the rest of my life in the future, so I want to be reasonably sure of what kind of future it’s going to be. That is my reason for planning.
+ - We must look forward to the future as that is where most of us will be spending the rest of our lives.
+ - The person who doesn’t know something can’t be done will often find a way to go ahead and do it.
+ - I think that the greatest education in the world is the education which helps one to be able to do the right things at the time it has to be done.
+ - I often say that research is a way of finding out what you are going to do when you can’t keep on doing what you are doing now.
+ - Don’t bring anything to me but trouble.
+ - I could do nothing without my problems; they toughen my mind. In fact, I tell my assistants not to bring me their successes for they weaken me, but rather to bring me their problems, for they strengthen me.
+ - The whole fun of living is trying to make something better.
+ - In many ways ideas are more important than people – they are much more permanent.
+ - Industry prospers when it offers people articles which they want more than they want anything they now have. The fact is that people never buy what they need. They buy what they want.
+ - Thinking is one thing no one has ever been able to tax.
+ - The typical eye sees the ten per cent bad of an idea and overlooks the ninety per cent good.
+ - And there is the point exactly, we are all the time blaming difficulties on to something else. Our real trouble is that we are too soft to solve the problem.
+ - In America we can say what we think, and even if we can’t think, we can say it anyhow.
+ - I object to people running down the future. I am going to live all the rest of my life there.
+ - I’ve never heard of anyone stumbling on something sitting down.
+ - Obsolescence is a factor which says that the new thing I bring you is worth more than the unused value of the old thing.
+ - An inventor is simply a fellow who doesn’t take his education too seriously.
+ - The Wright brothers flew right through the smoke screen of impossibility.
+ - It is easy to build a philosophy – it doesn’t have to run.
+ - The future can be anything we want it to be, providing we have the faith and that we realize that peace, no less than war, required blood and sweat and tears.
+ - The sure ways to create new ventures of discovery are to keep an open mind.
+ - We have a lot of people revolutionizing the world because they’ve never had to present a working model.
+ - There has never been any 30-hour week for men who had anything to do.
+ - We have reason not to be afraid of the machine, for there is always constructive change, the enemy of machines, making them change to fit new conditions.
+ - Don’t be afraid to stumble. Any inventor will tell you that you don’t follow a plan far before you strike a snag. If, out of 100 ideas you get one that works, it’s enough.
+ - We have been measuring too much in terms of the dollar. What we should do is think in terms of useful materials-things that will be of value to us in our daily life.
+ - People think of the inventor as a screwball, but no one ever asks the inventor what he thinks of other people.
+ - The biggest job we have is to teach a newly hired employee how to fail intelligently. We have to train him to experiment over and over and to keep on trying and failing until he learns what will work.
+ - Bankers regard research as most dangerous a thing that makes banking hazardous due to the rapid changes it brings about in industry.
+ - The simplest way to assure sales is to keep changing the product the market for new things is indefinitely elastic. One of the fundamental purposes of advertising, styling, and research is to foster a healthy dissatisfaction.
+ - When I was research head of General Motors and wanted a problem solved, I’d place a table outside the meeting room with a sign: “Leave slide rules here.” If I didn’t do that, I’d find someone reaching for his slide rule. Then he’d be on his feet saying, “Boss, you can’t do it.”
+ - You are always too late with a development if you are so slow that people demand it before you yourself recognize it. The research department should have foreseen what was necessary and had it ready to a point where people never knew they wanted it until it was made available to them.
+ - If I want to stop a research program I can always do it by getting a few experts to sit in on the subject, because they know right away that it was a fool thing to try in the first place.
+ - If a fellow wants to be nobody in the business world, let him neglect sending the mailman to somebody on his behalf.
+
+90 quotes

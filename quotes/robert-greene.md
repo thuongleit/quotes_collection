@@ -1,0 +1,124 @@
+ - The time that leads to mastery is dependent on the intensity of our focus.
+ - The future belongs to those who learn more skills and combine them in creative ways.
+ - Mastery is not a function of genius or talent. It is a function of time and intense focus applied to a particular field of knowledge.
+ - Always say less than necessary.
+ - Be relentless in your pursuit for expansion.
+ - True genius, in strategy or anywhere, lies in self-control, self-mastery, presence of mind, fluidity of thought.
+ - Win through your actions, never through argument.
+ - Never whine, never complain, never try to justify yourself.
+ - Lord, protect me from my friends; I can take care of my enemies.
+ - When it comes to mastering a skill, time is the magic ingredient.
+ - If you’re just letting the time pass at your job, it’s just dead time and you’ll never get it back. If at that job you’re learning and you’re observing and you’re seeing about people and connections, it’s suddenly alive time.
+ - Be Royal in your Own Fashion: Act like a King to be treated.
+ - You must always be prepared to place a bet on yourself, on your future, by heading in a direction that others seem to fear.
+ - Boldness makes even the smallest animal dangerous.
+ - Mistakes and failures are precisely your means of education. They tell you about your own inadequacies.
+ - Grand strategy is the art of looking beyond the present battle and calculating ahead. Focus on your ultimate goal and plot to reach it.
+ - Mastery is not a question of genetics of luck, but of following your natural inclinations and the deep desires that stirs you from within.
+ - Only create associations with positive affinities. Make this a rule of life and you will benefit more than from all the therapy in the world.
+ - The moment people feel they know what to expect from you, your spell on them is broken.
+ - Be brutal with the past, especially your own, and have no respect for the philosophies that are foisted on you from outside.
+ - The human tongue is a beast that few can master.
+ - Never waste valuable time, or mental peace of mind, on the affairs of others – that is too high a price to pay.
+ - You cannot make anything worthwhile in this world unless you have first developed and transformed yourself.
+ - If you have no enemies, find a way to make them.
+ - Real action and true helpfulness are perhaps the ultimate charm.
+ - The world wants to assign you a role in life. And once you accept that role you are doomed.
+ - No moment is wasted if you pay attention and learn the lessons contained in every experience.
+ - Life goes by very fast. And the worst thing in life that you can have is a job that you hate, that you have no energy in, that you’re not creative with and you’re not thinking of the future. To me, might as well be dead.
+ - The conventional mind is passive – it consumes information and regurgitates it in familiar forms. The dimensional mind is active, transforming everything it digests into something new and original, creating instead of consuming.
+ - For the future, the motto is, “No days unalert.”
+ - Actually, your past successes are your biggest obstacle: every battle, every war, is different, and you cannot assume that what worked before will work today.
+ - Hasty climbers have sudden falls.
+ - Deception is a developed art of civilization and the most potent weapon in the game of power.
+ - Never take your position for granted and never let any favors you receive go to your head.
+ - There is nothing more intoxicating than victory, and nothing more dangerous.
+ - People around you, constantly under the pull of their emotions, change their ideas by the day or by the hour, depending on their mood. You must never assume that what people say or do in a particular moment is a statement of their permanent desires.
+ - Keep your friends for friendship, but work with the skilled and competent.
+ - Do not envy those who seem to be naturally gifted; it is often a curse, as such types rarely learn the value of diligence and focus, and they pay for this later in life.
+ - Defeat Them in Detail: The Divide and Conquer Strategy. Look at the parts and determine how to control the individual parts, create dissension and leverage it.
+ - When our emotions are engaged, we often have trouble seeing things as they are.
+ - Any titles, money, or privilege you inherit are actually hindrances. They delude you into believing you are owed respect.
+ - No one is really going to help you or give you direction. In fact, the odds are against you.
+ - Be as fluid as water, do not give your enemies anything solid to atack.
+ - If I could simplify the whole game of power and strategy in one equation, it would all hinge on the capacity to see events around you exactly as they are. The closer your mind is to reality, the better your strategies, your responses in life.
+ - The need for certainty is the greatest disease the Mind faces.
+ - Strike the shepherd and the sheep will scatter.
+ - It is the fool who always rushes to take sides. Do not commit to any side or cause by yourself. By maintaining your independence, you become the master of others – playing people against one another, making them pursue you.
+ - People are more complicated than the masks they wear in society.
+ - We must create our own world or we will die from inaction.
+ - If we experience any failures or setbacks, we do not forget them because they offend our self-esteem. Instead we reflect on them deeply, trying to figure out what went wrong and discern whether there are any patterns to our mistakes.
+ - Nothing is stable in the realm of power, and even closest of friends can be transformed into the worst of enemies.
+ - Remember: The best deceivers do everything they can to cloak their roguish qualities. They cultivate an air of honesty in one area to disguise their dishonesty in others. Honesty is merely another decoy in their arsenal of weapons.
+ - Do not leave your reputation to chance or gossip; it is your life’s artwork, and you must craft it, hone it, and display it with the care of an artist.
+ - What will seduce a person is the effort we expend on their behalf, showing how much we care, how much they are worth. Leaving things to chance is a recipe for disaster, and reveals that we do not take love and romance very seriously.
+ - When you understand the fear then you can begin to move past it. So when I hear the people say it’s innate, you can’t learn it, I just want to hit them in the head.
+ - Our natural tendency is to project onto other people our own belief and value systems, in ways in which we are not even aware.
+ - If you’re in your early twenties, don’t put so much importance on the money, on the raise. Getting an extra thousand dollars a year is okay, but the real thing is the responsibility and the power and the experience that you’re learning.
+ - The dreamers, those who misread the actual state of affairs and act upon their emotions, are often the source of the greatest mistakes in history-the wars that are not thought out, the disasters that are not foreseen.
+ - The passive ironic attitude is not cool or romantic, but pathetic and destructive.
+ - Most people are perpetually locked in the present. Their decisions are overly influenced by the most immediate event; they easily become emotional and ascribe greater significance to a problem than it should have in reality.
+ - The key to power, then, is the ability to judge who is best able to further your interests in all situations. Keep friends for friendship, but work with the skilled and competent.
+ - Everything changes. This is the key to feeling powerful, but also to being creative in the world.
+ - To succeed in the game of power, you have to master your emotions. But even if you succeed in gaining such self-control, you can never control the temperamental dispositions of those around you. And this presents a great danger.
+ - Many a serious thinker has been produced in prisons, where we have nothing to do but think.
+ - It is in fact the height of selfishness to merely consume what others create and to retreat into a shell of limited goals and immediate pleasures.
+ - The real poetry and beauty in life comes from an intense relationship with reality in all its aspects. Realism is in fact the ideal we must aspire to, the highest point of human rationality.
+ - Never be put off by your target’s anger; it is a sure sign of enslavement.
+ - Your work is the single greatest means at your disposal for expressing your social intelligence.
+ - An ecosystem that has the maximum amount of diversity is the richest.
+ - If you are worried about what others might think and about how your position in the group might be jeopardized, then you will never really create anything.
+ - The worst thing is to sit and whine and complain and obsess about money as if that were the only sign of your worth as a human.
+ - Fear creates its own self-fulfilling dynamic- as people give into it, they lose energy and momentum. Their lack of confidence translates into inaction that lowers confidence levels even further, on and on.
+ - Everybody in life is struggling for power, and some people use morality and righteousness as a weapon, while others use different means, even passive aggression. From a distance, we are all fighting, and I am looking at this from a distance.
+ - I know My God commands, whose power no power resists.
+ - Playing with appearances and mastering the arts of deception are among the aesthetic pleasures of life. They are also key components in the acquisition of power.
+ - I believe that everything happens for a reason, and what seems bad at first might in fact be something of a blessing.
+ - In the opening stage of most careers any attention is what you want, any attention is good attention, even if it’s bad attention.
+ - News makes things black and white. Documentary filmmaking should do the opposite.
+ - A noble mind disdains to hide his head, And let his foes triumph in his overthrow.
+ - When the snipe and the mussel struggle, the fisherman gets the benefit. Ancient Chinese saying.
+ - The problem is that we humans are deep conformists.
+ - All masters want to appear more brilliant than other people.
+ - Religion humanizes this universe, makes us feel important and loved. We are not animals governed by uncontrollable drives, animals that die for no apparent reason, but creatures made in the image of supreme being.
+ - When you raise your opinion of yourself and what you are capable of it has a decided influence on what you do.
+ - Become who you are by learning who you are.
+ - Waste brings woe, and sorrow hates despair.
+ - Understand: A person of power instills a kind of fear by deliberately unsettling those around him to keep the initative on his side.
+ - I’m a big believer in being an entrepreneur. It’s easy for me to say because I work for myself and I am someone who likes that process. You have control over your destiny.
+ - A mind content both crown and kingdom is.
+ - Ah! what is love! It is a pretty thing, As sweet unto a shepherd as a king, And sweeter too; For kings have cares that wait upon a crown, And cares can make the sweetest love to frown.
+ - Only your hearts be frolic, for the time Craves that we taste of naught but jouissance.
+ - If you have millions and millions of dollars, you’re living in a totally different world. You don’t feel it anymore and you’ve got to feel it.
+ - Ah Franion, treason is loved of many, but the Traitor hated of all: unjust offences may for a time escape without danger, but never without revenge.
+ - I often daydream about the future, thinking of the world in 100, 200 years, imagining what it looks like, feels like. I hope that my books are like ghosts that will inhabit this future.
+ - Hangs in the uncertain balance of proud time.
+ - 50 is a great person. I was a little intimidated when I met him for the first time in 2006. I didn’t know what to expect. It ended up we got along really well. That’s why we decided to do a book together, The 50th Law of Power.
+ - Stop shallow water from running, it will rage; tread on a worm and it will turn.
+ - People want to feel united, they want to have that religious sense they want to feel like at a rave 10,000 people at the rave are feeling the same emotions, a very primal need that’s not being fulfilled in the world today.
+ - Set a beggar on horse backe, they saie, and hee will neuer alight.
+ - I’ve always loved black culture; I don’t know any other way to put it. Since I was a kid I loved music and early jazz, Sly and the Family Stone.
+ - On woman Nature did bestow two eyes, Like Hemian’s bright lamps, in matchless beauty shining, Whose beams do soonest captivate the wise And wary heads, made rare by art’s refining.
+ - Love is a lock that linketh noble minds, Faith is the key that shuts the spring of love.
+ - We are a social animal, power only exists in a social sense, we have to work in groups.
+ - You must bear in mind that each law is circumstantial. It does depend on the circumstances.
+ - Hip-hop has a feeling element, it’s not just about knowing music. It’s not like classical music or jazz where you can go on raw energy.
+ - Our times might emphasize equality, which we then mistake for the need for everyone to be the same, but what we really mean by this is the equal chance for people to express their differences, to let a thousand flowers bloom.
+ - Thy breath is like the steame of apple-pyes.
+ - When it comes to power, outshining the master is perhaps the worst mistake of all.
+ - Animals behave in set patterns, which is why we are able to hunt and kill them. Only man has the capacity to consciously alter his behavior, to improvise and overcome the weight of routine and habit.
+ - You can’t disengage yourself from that game if you are completely unaware of what people out there might be doing, you’re just going to be tripped up, you’re going to find yourself continually at a disadvantage.
+ - No greater mischief could be wrought Than love united to a jealous thought.
+ - Compelling spectacles are not to reach a niche market, it could be for reaching a niche marketing but on a grand scale. This is for grand marketing.
+ - Sadness of any sort is also seductive, particularly if it seems deep-rooted, even spiritual, rather than needy or pathetic – it makes people come to you.
+ - Religion is the great balm of existence because it takes us outside ourselves, connects us to something larger.
+ - The key then to attaining this higher level of intelligence is to make our years of study qualitatively rich. We don’t simply absorb information – we internalize it and make it our own by finding some way to put this knowledge to practical use.
+ - For as one star another far exceeds, So souls in heaven are placed by their deeds.
+ - Creative Endeavors are by their nature uncertain.
+ - The truth is that creative activity is one that involves the entire self – our emotions, our levels of energy, our characters, and our minds.
+ - Your ability to work with people directly affects your ability to get work done in the world.
+ - Though men determine, the gods doo dispose: and oft times many things fall out betweene the cup and the lip.
+ - Hip-hop, you can’t really do that when you’re in your 50s.
+ - There is a tremendous problem in modern culture. We have become used to everything coming to us with tremendous speed and ease. It is a culture where discipline and patience is almost impossible to develop.
+
+122 quotes

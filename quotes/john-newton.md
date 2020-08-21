@@ -1,0 +1,61 @@
+ - Although my memory’s fading, I remember two things very clearly: I am a great sinner and Christ is a great Savior.
+ - I am not what I ought to be, I am not what I want to be, I am not what I hope to be in another world; but still I am not what I once used to be, and by the grace of God I am what I am.
+ - Amazing grace! how sweet the sound That saved a wretch like me! I once was lost but now am found, Was blind but now i see.
+ - I am a great Sinner and God is a great Savior.
+ - May we sit at the foot of the cross; and there learn what sin has done, what justice has done, what love has done.
+ - How sweet the name of Jesus sounds In a believer’s ear! It soothes his sorrows, heals his wounds, And drives away his fear.
+ - Thou art coming to a King, large petitions with thee bring, for His grace and power are such none can ever ask too much.
+ - When I was young, I was sure of many things; now there are only two things of which I am sure: one is, that I am a miserable sinner; and the other, that Christ is an all-sufficient Saviour. He is well-taught who learns these two lessons.
+ - Christ has taken our nature into Heaven to represent us; and has left us on earth, with His nature, to represent Him.
+ - We can easily manage if we will only take, each day, the burden appointed to it. But the load will be too heavy for us if we carry yesterday’s burden over again today, and then add the burden of the morrow before we are required to bear it.
+ - All shall work together for good; everything is needful that He sends; nothing can be needful that He withholds.
+ - Glorious things of thee are spoken, Zion, city of our God!
+ - I make it a rule of Christian duty never to go to a place where there is not room for my Master as well as myself.
+ - Zeal without knowledge is like expedition to a man in the dark.
+ - My grand point in preaching is to break the hard heart, and to heal the broken one.
+ - But by the grace of God I am what I am.
+ - If two angels were sent down from heaven, – one to conduct an empire, and the other to sweep a street, – they would feel no inclination to change employments.
+ - If the Lord be with us, we have no cause of fear. His eye is upon us, His arm over us, His ear open to our prayer – His grace sufficient, His promise unchangeable.
+ - There are many who stumble in the noon-day, not for want of light, but for want of eyes.
+ - If our zeal is embittered by expressions of anger, invective, or scorn – we may think we are doing service of the cause of truth, when in reality we shall only bring it into discredit!
+ - Though troubles assail And dangers affright, Though friends should all fail And foes all unite; Yet one thing secures us, Whatever betide, The scripture assures us, The Lord will provide.
+ - The best advice I can give you: Look unto Jesus, beholding his beauty in the written word.
+ - Whether men are pleased or not, we will, we must, worship the Lamb that was slain.
+ - I am persuaded that love and humility are the highest attainments in the school of Christ and the brightest evidences that He is indeed our Master.
+ - A soul disengaged from the world is a heavenly one; and then are we ready for heaven when our heart is there before us.
+ - Time, by moments, steals away, First the hour, and then the day; Small the daily loss appears, Yet it soon amounts to years.
+ - We serve a gracious Master who knows how to overrule even our mistakes to his glory and our own advantage.
+ - If it were possible for me to alter any part of his plan, I could only spoil it.
+ - God works powerfully, but for the most part gently and gradually.
+ - Not only the guilt, but the love of sin, and its dominion, are taken away, subdued by grace, and cordially renounced by the believing pardoned sinner.
+ - By affliction prayer is quickened, for our prayers are very apt to grow languid and formal in a time of ease.
+ - If you once love Him, you will study to please Him.
+ - A bowler can make or break a chap.
+ - How many times has He delivered me! Yet, alas! How distrustful and ungrateful is my heart even until the present!
+ - God sometimes does His work with gentle drizzle, not storms.
+ - What will it profit a man if he gains his cause and silences his adversary if at the same time he loses that humble, tender frame of spirit in which the Lord delights, and to which the promise of his presence is made?
+ - Our work is great; our time is short; the consequences of our labors are infinite.
+ - There is many a thing which the world calls disappointment; but there is no such thing in the dictionary of faith. What to others are disappointments are to believers intimations of the will of God.
+ - Every drop of rain hits its appointed target.
+ - As to myself, if I were not a Calvinist, I think I should have no more hope of success in preaching to men, than to horses or cows.
+ - The art of spreading rumors may be compared to the art of pin-making. There is usually some truth, which I call the wire; as this passes from hand to hand, one gives it a polish, another a point, others make and put on the head, and at last the pin is completed.
+ - A real friendship should not fade as time passes, and should not weaken because of space separation.
+ - When people are right with God, they are apt to be hard on themselves and easy on other people. But when they are not right with God, they are easy on themselves and hard on others.
+ - Many have puzzled themselves about the origin of evil. I am content to observe that there is evil, and that there is a way to escape from it, and with this I begin and end.
+ - Faith upholds a Christian under all trials, by assuring him that every painful dispensation is under the direction of his Lord.
+ - God often takes a course for accomplishing His purposes directly contrary to what our narrow views would prescribe. He brings a death upon our feelings, wishes, and prospects when He is about to give us the desire of our hearts.
+ - This is faith: a renouncing of everything we are apt to call our own and relying wholly upon the blood, righteousness and intercession of Jesus.
+ - By one hour’s intimate access to the throne of grace, where the Lord causes His glory to pass before the soul that seeks Him you may acquire more true spiritual knowledge and comfort than a day’s or a week’s converse with the best of men, or the most.
+ - So long as men are compassionate to such a degree that they cannot hear a fly struggling in a spider’s web without emotion it can never be reasonably maintained that it is their natural impulse to wound and kill the dumb animals, or to butcher one another in what is called the field of honour.
+ - To embrace what are called the Calvinistic doctrines was an infallible token of a humble mind.
+ - Experience is the Lord’s school, and they who are taught by Him usually learn by the mistakes they make that in themselves they have no wisdom; and by their slips and falls, that they have no strength.
+ - Though the island of Great Britain exhibits but a small spot upon the map of the globe, it makes a splendid appearance in the history of mankind, and for a long space has been signally under the protection of God and a seat of peace, liberty and truth.
+ - If we seem to get no good by attempting to draw near to Him, we may be sure we will get none by keeping away from Him.
+ - Let me endeavor to lead you out of yourself: let me invite you to look unto Jesus.
+ - Many are convinced, who are not truly enlightened; are afraid of the consequences of sin, though they never saw its evil; have a seeming desire of salvation, which is not founded upon a truly spiritual discovery of their own wretchedness, and the excellency of Jesus.
+ - The Christian must know that the season, measure, and continuance of his sufferings are appointed by Infinite Wisdom, and designed to work for his everlasting good; and that grace and strength shall be afforded him according to his need.
+ - So dress and conduct yourself so that people who have been in your company will not recall what you had on.
+ - I endeavored to renounce society, that I might avoid temptation. But it was a poor religion; so far as it prevailed, only tended to make me gloomy, stupid, unsociable, and useless.
+ - Of all people who engage in controversy, we, who are called Calvinists, are most expressly bound by our own principles to the exercise of gentleness and moderation.
+
+59 quotes

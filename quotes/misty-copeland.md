@@ -1,0 +1,66 @@
+ - I think that training is the key, definitely, and I devoted my life to it.
+ - The path to your success is not as fixed and inflexible as you think.
+ - The best piece of advice that I remember probably on a daily basis is to accept everything about me that is different. That is what makes me special.
+ - Maybe I’m seeing myself in a different way than the people in the audience see me, ’cause to me, I think I look like a ballerina and I feel like a ballerina. But maybe I’m not seeing what other people are seeing.
+ - The woman represents ballet. She is most important, powerful and vital to it. Therefore, she is not “less than” a man. If anything she is “more than” in this field.
+ - Without my mentors, there is no Misty.
+ - When I was younger, my feet would hurt a lot, but you build up calluses and strength and you don’t feel as much pain there.
+ - I feel like I represent every young dancer, and even non-dancer, who felt they were not accepted by the ballet world. I’d like to think that they can see themselves in me.
+ - Success is not easy and I think everyone should know that hard work and perseverance and being open to giving back are so much more powerful than stepping all over people to get to the top.
+ - My first ballet class was on a basketball court. I’m in my gym clothes and my socks trying to do this thing called ballet.
+ - When you see the body outside of a costume and see the strength that it takes, people would look at dance a different way and see how athletic it is. You’re not just born like that.
+ - I’m a pescatarian, so I don’t eat red meat or pork. So my dinners usually consist of seafood in some way. And maybe cookies after!
+ - It’s difficult to exist as a woman, especially I think as a powerful woman. You want to stand strong and you want to be considered and equal.
+ - The higher you go up in rank, usually the longer you can dance.
+ - My goal has always been to be a principal dancer with ABT.
+ - A lot of people think, “Oh I’m going to eat whatever I want and then go to the gym.” And I’ve definitely been one of those people and it just doesn’t give me the results that I need to have the physique of a ballerina.
+ - I’m definitely very careful about the things that I want to be a part of, but it’s also important for me to get dance out there to more people.
+ - I think I’m pretty laid back. I like cooking, being at home, and going to concerts. And I love to shop!
+ - Meeting Raven Wilkinson and having her as a mentor, it was that kind of support from the generations that came before me that helped to lift me up and give me the confidence to then be able to give back and bring other minorities with me on this journey.
+ - You can dream big and it doesn’t matter what you look like, where you come from.
+ - I just try to approach every opportunity on stage, as if it’s my first time and my last time.
+ - I learned how to communicate and articulate myself from ballet. It’s just insane to me, when they don’t think of that as a part of our education.
+ - You’re always working to improve, and you’re always being critiqued on your next performance. It’s not about what you’ve done. There’s always room to grow.
+ - I do think Under Armour is setting a new example for what a ballerina is, and that you can be feminine and an athlete and represent what a woman is at the same time.
+ - Ballet found me. I was discovered by a teacher in middle school. I always danced, my whole life. I never had any training, never was exposed to seeing dance, but I always had something inside of me.
+ - But I think the more you eat healthy clean foods the more you create them.
+ - Something happens when you feel that energy and excitement from the audience. And you do, I don’t know, four pirouettes. You jump higher than you ever have. And it’s just this really magical thing that happens in those moments.
+ - There are muscles that we have in our feet that most human beings don’t even know that we have. The strength that we have is so detailed.
+ - I had no idea what I was walking into, and the years and years of hard work it would take. I felt like an outsider and like it was never going to happen. But even if I would have known, I think I still would have done it. Dancers are perfectionists, and that’s what keeps us going and growing.
+ - I never experienced getting nervous on stage. I think I was most comfortable there.
+ - I never knew I wanted to become a ballerina. I was discovered at the age of 13. I had a love for movement even though I had no exposure to dance other than what I saw in music videos, like hip-hop music videos. But I knew that I loved moving.
+ - I don’t feel like my life is that of a superstar! Every day I wake up, I take the train, I go to my ballet class. My everyday life is pretty normal.
+ - It takes a lot of money to be a part of the ballet world. Both the training and the supplies are expensive, the shoes, the leotards and the tights.
+ - I shouldn’t even be wearing a tutu. I don’t have the right legs, my muscles are too big.
+ - Going on stage and transcending the audience and becoming this otherworldly thing makes you a dancer. It’s not so black and white.
+ - Going on stage and doing ballet, for the first time, was even more verification of, “This is what I’m meant to do. This is what I’m going to do. I’m going to make it somehow.”
+ - I don’t believe in dieting, I don’t believe in having certain moments in your life where you’re healthy and then moments when you’re like, “I’m going to eat whatever I want.” It’s just finding what works for your body and always eating healthy.
+ - What makes people and companies and artistic directors and choreographers interested in working with dancers is the ability to kind of let go of everything you think you know and be a blank canvas.
+ - I know that I’ll forever be involved in ballet. This is where my life was meant to be, and I don’t see myself straying completely away, ever.
+ - I was aware of my race from a very young age. Not in a negative way. Coming from an interracial background, I think it is important to understand who you are.
+ - I just want to leave a positive memory of setting an example and bringing our youth with us.
+ - I do think that it’s a responsibility when there are so few of us as African Americans to kind of get to that place of success in a positive light. We should take a stance and stand for something and use that platform for positivity.
+ - Just to get into a company like ABT is a dream come true, but to have all of these opportunities on top of it, I don’t think it will hit me until I’m 70. I’ll be like, “Oh, my god, remember that amazing life you had?” It’s an incredible honor to be a part of something like ABT.
+ - Ballet was exactly what I was searching for, but my environment definitely made me the dancer and the person that I am today. And the Hip-Hop culture was a big part of it.
+ - Hopefully, I’ll be a part of ABT, in some way, forever. I think I’ll always be a part of ballet and try to push diversity, for as long as I live.
+ - I’m a classical ballet dancer, and at the end of the day I want to be with American Ballet Theater, performing classical ballets.
+ - I want to share the ballet world with everyone.
+ - I think anything that affects me in my personal life is going to help me be a better artist on stage.
+ - That it’s possible to do positive things and I think that’s how we’re going to set an example to be respected as women in the world.
+ - Physical fears change and shift depending on the role and depending on the mindset I’m in.
+ - My career came together very quickly. I only trained for four years before I became a professional, so I didn’t have a lot of time to sit back and be inspired before I took my first ballet class.
+ - The word “prodigy” was thrown around a lot, but I didn’t understand what that meant, or the weight of it. It didn’t really mean anything to me, until I was older and could look back on it.
+ - In a ballet company, you’re trying to create unison and uniform when you’re in a cour de ballet.
+ - I don’t think a lot of people really understand the commitment it takes to being a character that an actor in Hollywood would take to approaching a role that they’re doing.
+ - I ended up training only for four years before I was accepted into American Ballet Theater in New York City.
+ - Even if I weren’t learning new roles and getting the opportunity to be coached by incredible people, I still think I would be so excited to have an opportunity to continue to push myself and grow, as an artist.
+ - I believe that I definitely developed into a refined and graceful woman due to ballet. It has shaped me in every way.
+ - I absolutely love what I do, and I want to dance for as long as I can and feel good about what I am putting out there on the stage.
+ - I think that I’m so fortunate to have found classical ballet. It completely changed my life and it shaped the person that I am today, on and off the stage.
+ - I’ve gotten nothing but warmth from the Black community and positive feedback.
+ - Once I became a professional, maybe 19 or 20, I really started to try to figure out who I was, as a woman and as an individual.
+ - It’s really amazing that I was discovered and that I’ve been given these great opportunities to travel the world and work with amazing artists. I’m very blessed.
+ - I definitely like to be natural and more relaxed and not wear a lot of makeup.
+ - My body is very different from most of the dancers I dance with. My hair is different than most I dance with. But I didn’t let that stop me. Black girls rock and can be ballerinas.
+
+64 quotes

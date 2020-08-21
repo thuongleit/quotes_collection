@@ -1,0 +1,35 @@
+ - If you want to be happy for a short time, get drunk happy for a long time, fall in love; happy forever, take up gardening.
+ - Obviously I am not bothered about men’s fashion – is anyone, apart from Jonathan Ross?
+ - The moon puts on an elegant show, different every time in shape, colour and nuance.
+ - I read ‘Crime and Punishment’ years ago and don’t recall the details of it, but I do retain a strong sense of the creeping paranoia and panic.
+ - Global warming, the ongoing destruction of the planet, Third World debt, the uselessness of the railways, the takeover by the corporations, the scary George Bush person: all these things are important and should be animating me into outrage. Yet somehow they do not.
+ - Comedy ages quicker than tragedy, to the extent that we can’t know if the 10 commandments may originally have been 10 hilarious one-liners.
+ - The history of the relationship between comedy and swimming is short indeed. Of course it is always funny when someone falls into water, but that’s about it.
+ - I couldn’t really see the point of having lunch unless it started at 1:00 and ended a week later in Monte Carlo.
+ - I abhor nothing more than bumping into someone I know on the Tube.
+ - Every generation of children has its private hero.
+ - I am 54 and age is slowly writing itself on my face.
+ - My sister-in-law believes that few narratives are so tightly constructed that you can’t skip boring bits and still keep abreast of what’s going on.
+ - Acting in a stage play is like working the evening shift in an office.
+ - I see my large nose, like half an avocado. I broke it falling downstairs when I was six, and it now resembles a large blob of play-dough.
+ - About every four years, someone says to me, ‘I’ve got a friend who looks exactly like you.’ What can you say to this?
+ - I’m an armchair kind of guy, especially when it’s raining, which it always is and always will be.
+ - Don Quixote’s ‘Delusions’ is an excellent read – far better than my own forthcoming travel book, ‘Walking Backwards Across Tuscany.’
+ - Acting is the most demanding, painful job in the world.
+ - I’ve always been interested in art.
+ - My eyebrows could do with a trim.
+ - The best way to prepare for a night out with a Shakespearean tragedy is to do a bit of reading up in the afternoon, eat a light supper – perhaps Welsh rarebit – and then arrive early to do some stretching exercises in the foyer before curtain-up.
+ - The real change that paintings undergo is in the perceptions of the viewer.
+ - If you want to write something of length, however modern and radical, you must live the life of an elderly gentleman of the 1950s.
+ - Listening to Chris Moyles on Radio 1 is the most miserable thing any human being can do, but attending awards ceremonies isn’t far behind.
+ - An uninspiring canvas becomes a glamorous masterpiece when it is reattributed to a better-known artist.
+ - I find it hilarious that there are academics who try to analyse chemical changes in the brains of students while exposing them to gags.
+ - It’s worth turning up to an awards gig if you know you’ve won one but, since you never do know, it’s not worth it.
+ - Reading the play at home, however fulfilling, can never be the vivacious experience that Shakespeare intended.
+ - The outfits come and go but there is a constant that I like about the catwalk model: the snotty expression.
+ - After you’ve read a novel, you only retain a vague memory of its contents. You remember the atmosphere, the odd image or phrase or vivid cameo.
+ - It was Julie Burchill who decreed that, beyond a certain age, a man should not be seen in a leather jacket.
+ - Ninety-eight per cent of laughter is nothing to do with jokes, which do not deserve to bear the weight of all the funny stuff in the world.
+ - It is more interesting to be compared to someone famous, because it lets you gauge what perceptions people have about your appearance.
+
+33 quotes

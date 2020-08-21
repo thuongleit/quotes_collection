@@ -1,0 +1,85 @@
+ - Everyone you will ever meet knows something you don’t.
+ - As you may know, I am a mechanical engineer.
+ - To leave the world better than you found it, sometimes you have to pick up other people’s trash.
+ - You and I are made of stardust. We are the stuff of exploded stars. We are therefore, at least 1 way that the Universe knows itself. That, to me, is astonishing.
+ - There really is no such thing as race. We all came from Africa. We are all of the same stardust. We are all going to live and die on the same planet, a Pale Blue Dot in the vastness of space. We have to work together.
+ - Science is the key to our future, and if you don’t believe in science, then you’re holding everybody back.
+ - SCIENCE is a part of EVERYONE’S everyday life.
+ - We are just a speck, on a speck, orbiting a speck, in the corner of a speck, in the middle of nowhere.
+ - There’s nothing I believe in more strongly than getting young people interested in science and engineering, for a better tomorrow, for all humankind.
+ - If the Earth gets hit by an asteroid, it’s game over. It’s control-alt-delete for civilization.
+ - People and stars are made of the same stuff.
+ - Science is the best idea humans have ever had. The more people who embrace that idea, the better.
+ - The Big Bang banged, and for some reason we’re here. And that’s astonishing. And that we can understand that, that’s the most astonishing.
+ - Climate change is a real deal. So, hey deniers – cut it out, and let’s get to work.
+ - Science is the best thing humans beings have ever come up with. And if it isn’t, science will fix it.
+ - Hard to find anything lovelier than a tree. They grow at right angles to a tangent of the nominal sphere of the Earth.
+ - The philosophy of science is inherent in the process. This is to say, you think critically, you draw a conclusion based on evidence, but we all pursue discovery based on our observations. That’s where science starts.
+ - If you want grown-ups to recycle, just tell their kids the importance of recycling, and they’ll be all over it.
+ - The natural world is a package deal; you don’t get to select which facts you like and which you don’t.
+ - The more you find out about the world, the more opportunities there are to laugh at it.
+ - Climate change is happening, humans are causing it, and I think this is perhaps the most serious environmental issue facing us.
+ - There really is no such thing as race...
+ - I used to play ultimate Frisbee, and I just got a reputation for making popcorn at parties. I don’t mean to brag on myself, but I make the popcorn in the pot, and it comes out fine every time.
+ - Humor is everywhere in that there’s irony in just about anything a human does.
+ - Bicycling is a big part of the future. It has to be. There’s something wrong with a society that drives a car to work out in a gym.
+ - I am so old, I entered engineering school with a slide rule. And I left engineering school with a calculator. I can still use a slide rule but it’s not a skill you especially need anymore.
+ - Teaching creationism in science class as an alternative to evolution is inappropriate.
+ - The thing about a theory in science is it allows you make predictions. Evolutionary theory allows us to predict what apples will taste good next harvest.
+ - Evolution is a theory, and it’s a theory that you can test. We’ve tested evolution in many ways. You can’t present good evidence that says evolution is not a fact.
+ - What happens to other species also happens to us.
+ - Unlike science, creationism cannot predict anything, and it cannot provide satisfactory answers about the past.
+ - If you look back on all the teachers that you liked, I am sure you will find they were very entertaining.
+ - When we explore the cosmos, we come to believe and prove that we can solve problems that have never been solved. It brings out the best in us. Space exploration imbues everyone with an optimistic view of the future.
+ - Without an end to the burning of fossil fuels, coal especially, most of us will live shorter lives. I’m hopeful, but very, very concerned.
+ - You stop planetary exploration, those people who do that extraordinary work are going to have to go do something else.
+ - Researchers have proven that scientifically, that all humans are one people.
+ - My father was a very good Boy Scout. He was very skilled with knots, and he showed me how to tie a bow tie.
+ - I say to the grown-ups, ‘If you want to deny evolution and live in your world that’s completely inconsistent with everything we’ve observed in the universe that’s fine. But don’t make your kids do it.’
+ - Our goal in science is to discover universal laws of nature. If one’s faith requires one to abandon or ignore natural laws, well, that person is going to have trouble reconciling religion and science. Otherwise, there is no any conflict.
+ - Science provides a much more satisfactory way to seek answers than does any religion.
+ - If you have this idea that the earth is only 6,000 years old, you are denying, if you will, everything that you can touch and see. Youre not paying attention to whats happening in the universe around you.
+ - No matter what you may believe spiritually or otherwise, the Earth is clearly not 6,000 or 10,000 years old.
+ - If NASA is to reach beyond the Moon and someday reach Mars, it must be relieved of the burden of launching people and cargo to low earth orbit. To do that, we must invest more in commercial spaceflight.
+ - But as the cerebellum degrades with age, so does the quality of memories. The memories are there, but they’re not as good.
+ - I’ve always loved airplanes and flight. The space program was really important to me as a kid. I still have a photo of Armstrong and Aldrin on the moon in my living room.
+ - Anybody who grew up with the space program is a fan of science fiction.
+ - NASA is an engine of innovation and inspiration as well as the world’s premier space exploration agency, and we are well served by politicians working to keep it that way, instead of turning it into a mere jobs program, or worse, cutting its budget.
+ - The information you get from social media is not a substitute for academic discipline at all.
+ - The US Navy has several people on every ship that can navigate by the stars. They don’t fool with that.
+ - Winter lingered so long in the lap of Spring that it occasioned a great deal of talk.
+ - When we see the shadow on our images, are we seeing the time 11 minutes ago on Mars? Or are we seeing the time on Mars as observed from Earth now? It’s like time travel problems in science fiction. When is now; when was then?
+ - But investment in space stimulates society, it stimulates it economically, it stimulates it intellectually, and it gives us all passion.
+ - By the way, most of the light that comes from the sun is green.
+ - If you meet somebody who says he or she has never dreamed of flying, I don’t believe you. I mean, they’re lying.
+ - When we sit down to draw or paint the sun’s rays, we generally use yellow because in the morning and the evening with the blue light scattered away so strongly you’re left with a little bit of red and it comes out yellowish.
+ - People that don’t want to get down to the business at hand. Instead of just doing less, we have to find ways of doing more with less. That’s the key to the future.
+ - I’ve got no problem with anybody’s religion. But if you go claiming the Earth is only 10,000 years old, that’s just wrong.
+ - Apparently there is redundancy in memory: You store the same memory in different parts of your brain for accessing at different speeds. That speed would depend on the frequency of use and the importance of the knowledge.
+ - The Earth is not 6,000 or 10,000 years old. It’s not. And if that conflicts with your beliefs, I strongly feel you should question your beliefs.
+ - Religion is a completely different thing from the claim that the Earth is six thousand years old. That’s just crazy.
+ - In another couple centuries I’m sure that worldview won’t even exist. There’s no evidence for it.
+ - Speaking of human computers, there is a guy named Art Benjamin, he’s a human calculator. He says it’s a skill he learned as a kid. Now he’s a math professor at Harvey Mudd. He can find the square root of a six digit number in a few seconds. Practice.
+ - I like to regard myself as someone who’s capable of critical thought, that is to say, who can evaluate claims.
+ - The strange thing about grinding that might surprise many people is that you can grind things and shape them using materials that are generally somewhat softer than the thing you’re grinding and shaping.
+ - The oncoming trouble I speak of is climate change. It’s going to affect all of you in the same way the Second World War consumed people of my parent’s generation.
+ - Evolution is not something you can believe in or not believe in like do you believe in gravity.
+ - From an evolutionary standpoint you can’t just wipe everything out and start over, and I don’t think you can do it in the school system either.
+ - There are just two people entitled to refer to themselves as “we”; one is the editor and the other is the fellow with a tapeworm.
+ - Recommending or insisting on abstinence has been completely ineffective.
+ - The future of commerce is going to be all electronic. The gold standard was a fine idea, but electronic changes of funds and credits will be the future.
+ - One of the drawbacks of English is you can’t spell things by hearing them.
+ - I always liked show biz and got to make a few training films at Boeing.
+ - The world’s going to change climatically. We just want to control the change. We want to have a high quality of life for billions of people as we pass through this era.
+ - America has had many other discoverers besides Columbus, but he seems to have made more satisfactory arrangements with the historians than any of the others.
+ - We need them. We need scientifically literate voters and taxpayers for the future.
+ - How did we let an ideological resistance to inquiry become such a prominent part of our society?
+ - I meet so many people who are intimidated by arithmetic.
+ - Everyone, red state, blue state, everyone supports space exploration.
+ - If you just take a single human and put him or her in the forest he or she might not do very well without some sort of education which he got or she got from some tribe.
+ - That’s what makes a human a human, if we store information outside our bodies.
+ - If you decide to become a dancer on Broadway, never say who your favorite dance partner is, because members of the media will presume you never want to dance with anybody else.
+ - I speak with dogs frequently. They don’t really talk, but I feel they’re communicating.
+ - A two-and-a-half-year-old is pretty experienced at making a mess, anyway.
+
+83 quotes

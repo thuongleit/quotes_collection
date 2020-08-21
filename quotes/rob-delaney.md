@@ -1,0 +1,34 @@
+ - I hate wearing suits and ties.
+ - In real life, I am alarmingly boring.
+ - Depression taught me the importance of compassion and hard work, and that you can overcome enormous obstacles.
+ - In the ambiguity and shifting playing field of adult life, I often wish I could just fill in a dot and have someone say “Yes” and hand me a chicken leg, or “No” and slap me with an old fish.
+ - I can’t ‘make’ you love me. But I can fill my pantry with your favourite snacks and offer you a weekly stipend of $75.
+ - It’s hard for me to get embarrassed, but the things that do embarrass me would be if anybody ever heard my wife and I talking in our robust, made-up language.
+ - With Twitter, you just want to make people laugh in their meeting; on stage, people have paid for their tickets with their hard-earned money, so I owe them the truth as I experience it.
+ - I’m crazy about Shakespeare, who was a notorious word inventor. And my wife is an English teacher, and she’s hilarious.
+ - Comedians who are 22 years old can certainly be funny and clever, and be capable of telling jokes – but are they talking about their favorite TV shows, or a particular brand of shampoo?
+ - On stage, I’m me. I’m a husband, I’m a dad, I’m a guy, I’m a mess – but I am a cohesive thing that you recognize as one human entity saying these things that he generally believes.
+ - Cats probably wouldn’t need 9 lives if they wore tiny little helmets and didn’t smoke cigarettes.
+ - Politicians, it’s in their job description to just lie, every day.
+ - Well, Mitt Romney is a very attractive comedic target. He’s irresistible to me. I mean, seriously, I want to pay less attention to him.
+ - I’m endlessly fascinated by parenting, marriage, my wife and the ins and outs of marriage.
+ - It’s probably not love if you don’t press your face to the toilet seat after they’ve used it to feel their warmth.
+ - Running is special. We’ve all done it: well, poorly, focused, in fear, being pursued, toward a goal. It’s just elemental. Running is like fire.
+ - I had always loved comedy, and acted out Steve Martin and Bill Cosby albums with my sister for my parents on road trips and stuff, and I loved to laugh and make people laugh.
+ - In high school, I definitely fancied myself an intense guy, which is so lame.
+ - People moved in across the street and are immediately cutting down a huge tree. Their toothbrushes will know my buttonhole.
+ - I no longer believe in freedom of speech.
+ - But I also know in standup, there’s nowhere to hide. You get on stage and you deliver, or you are eviscerated and you are thrown into a pile of bodies at the bottom of a mountain.
+ - I’m a comedian at the beginning and the end of the day. I’m not affiliated with any campaign, nor do I generally find politics interesting enough to plan to be involved.
+ - My stand-up is far more rooted in reality than my Twitter.
+ - I use Twitter as a tool to get involved with people, to sell tickets to gigs where I can stand in a room and smell the audience – and I love that!
+ - I was an extroverted kid and performed, like, acting and singing. Then, the older I got, I realized I enjoyed performing things that I came up with myself more and I enjoyed making people laugh more than making people cry or think.
+ - On Twitter, I just want to make you laugh at all costs.
+ - The danger for a comedian on Twitter is the same danger that any civilian faces: sometimes you gotta put that phone down and go live your life. When you’re on Twitter, you’re not living, and if you’re not living, you’re not taking in stimuli with which you can create new material.
+ - The best thing you can do when you’re not feeling funny is go out and get more stimuli from the world, get out and walk around, read a book, go talk to some birds or a dog and replenish the well, as it were.
+ - I want people to feel good about themselves.
+ - I think your ambition for something changes as you go.
+ - If you have an opinion on what other adults do consensually with other adults when they take their pants off, you’re a weirdo.
+ - We can and should complain about certain horrors of the modern world, but when it comes to the treatment of mental illness, the advances made in the last hundred years have been far more significant than the space program, nuclear fission, or even The Wire, for so many fortunate people.
+
+32 quotes

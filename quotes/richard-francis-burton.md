@@ -1,0 +1,21 @@
+ - Do what thy manhood bids thee do, from none but self expect applause. He noblest lives and noblest dies who makes and keeps his self-made laws.
+ - Home is where the books are.
+ - The more I study religions the more I am convinced that man never worshiped anything but himself.
+ - Of the gladdest moments in human life, methinks, is the departure upon a distant journey into unknown lands. Shaking off with one mighty effort the fetters of Habit, the leaden weight of Routine, the cloak of many Cares and the slavery of Civilization, man feels once more happy.
+ - All faith is false, all faith is true. Truth is the shattered mirror strown in myriad bits, while each believes his little bit the whole to own.
+ - If you can’t laugh together in bed, the chances are you are incompatible, anyway. I’d rather hear a girl laugh well than try to turn me on with long, silent, soulful, secret looks. If you can laugh with a woman, everything else falls into place.
+ - All so-called revealed religions consist mainly of three portions, a cosmogony more or less mythical, a history more or less falsified, and a moral code more or less pure.
+ - Reason is Life’s sole arbiter, themagic Laby’rinth’s single clue...
+ - Conquer thyself, till thou has done this, thou art but a slave; for it is almost as well to be subjected to another’s appetite as to thine own.
+ - The dearest ambition of a slave is not liberty, but to have a slave of his own.
+ - Broke is a temporary condition, poor is a state of mind.
+ - Travellers, like poets, are mostly an angry race: by falling into a daily fit of passion, I proved to the governor and his son, who were profuse in their attentions, that I was in earnest.
+ - When doctors differ who decides amid the milliard-headed throng?
+ - One cannot look at the sea without wishing for the wings of a swallow.
+ - The Now, that indivisible point which studs the length of infinite line Whose ends are nowhere, is thine all, the puny all thou callest thine.
+ - The men were wild as ourang-outans, and the women fit only to flog cattle.
+ - Do what thy manhood bids thee do.
+ - For each believes his glimm’ering lamp to be the gorgeous light of day.
+ - Indeed he knows not how to know who knows not also how to un-know.
+
+19 quotes

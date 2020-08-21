@@ -1,0 +1,21 @@
+ - Life on earth is more like a verb. It repairs, maintains, re-creates, and outdoes itself.
+ - All I ask is that we compare human consciousness with spirochete ecology.
+ - All scientists agree that evolution has occurred-that all life comes from a common ancestry, that there has been extinction, and that new taxa, new biological groups, have arisen. The question is, is natural selection enough to explain evolution? Is it the driver of evolution?
+ - People say I am against Darwin. That is ridiculous.
+ - All of us from fertile egg to embryo to corpse, are exactly that: warm, wet, furry animals compelled by the sexuality of our forefathers and foremothers to be, either directly or indirectly, our own exciting and excitable, provocative and provocable selves.
+ - All living beings, not just animals, but plants and microorganisms, perceive. To survive, an organic being must perceive – it must seek, or at least recognize, food and avoid environmental danger.
+ - Natural selection eliminates and maybe maintains, but it doesn’t create.
+ - Everybody knows what a caterpillar is, and it doesn’t look anything like a butterfly.
+ - Life learned early on to recognize itself.
+ - Evolution is no linear family tree, but change in the single multidimensional being that has grown to cover the entire surface of Earth.
+ - People think the earth is going to die and they have to save it. Thats ridiculous. If you rid the earth of flowering plants, people would die, period. But the earth was without flowering plants for almost all of its history.
+ - I was taught over and over again that the accumulation of random mutations led to evolutionary change – led to new species. I believed it until I looked for evidence.
+ - The fewer species there are and the fewer species we know about, the fewer questions we even know to ask.
+ - To romp along the connected rooftops and fire escapes of Chicagos second city of garages was my young lifes passion.
+ - Despite our very recent appearance on the planet, humanity combines arrogance with increasing material demands, even as we become more numerous. Our toughness is a delusion. Have we the intelligence and discipline to vigilantly guard against our tendency to grow without limit?
+ - Why does everybody agree that atmospheric oxygen comes from life, but no one speaks about the other gases coming from life?
+ - Although the detail of our sexual energies and their objects and objectives vastly vary, the existence of our sexuality itself is an undeniable truth.
+ - The urgency to mate persists in all people as in all other mammals because of the evolutionary drive to continue the species, the inborn imperative for genes to reproduce and hormonal differences that evolved over millions of years.
+ - Politicians need a better understanding of global ecology. We need to be freed from our species-specific arrogance. No evidence exists that we are chosen, the unique species for which all the others were made. Nor are we the most important one because we are so numerous, powerful and dangerous.
+
+19 quotes

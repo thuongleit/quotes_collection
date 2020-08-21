@@ -1,0 +1,68 @@
+ - The good we secure for ourselves is precarious and uncertain until it is secured for all of us and incorporated into our common life.
+ - True peace is not merely the absence of war, it is the presence of justice.
+ - Nothing could be worse than the fear that one had given up too soon, and left one unexpended effort that might have saved the world.
+ - The things that make us alike are stronger and finer than the things that make us different.
+ - What after all, has maintained the human race on this old globe despite all the calamities of nature and all the tragic failings of mankind, if not faith in new possibilities, and courage to advocate them?
+ - We forget that the accumulation of knowledge and the holding of convictions must finally result in the application of that knowledge and those convictions to life itself.
+ - Keep friends close but keep enemies closer.
+ - Much of the insensibility and hardness of the world is due to the lack of imagination which prevents a realization of the experiences of other people.
+ - I believe that peace is not merely an absence of war but the nurture of human life, and that in time this nurture would do away with war as a natural process.
+ - Perhaps nothing is so fraught with significance as the human hand.
+ - Social advance depends quite as much upon an increase in moral sensibility as it does upon a sense of duty.
+ - That person is most cultivated who is able to put himself in the place of the greatest number of other persons.
+ - National events determine our ideals, as much as our ideals determine national events.
+ - It is dreadful the way all the comfortable, happy people stay off to themselves.
+ - Young people need pleasure as truly as they need food and air.
+ - Hundreds of poor laboring men and women are being thrown into jails and police stations because of their political beliefs. In fact, an attempt is being made to deport an entire political party.
+ - That which may have sounded like righteous teaching when it was remote and wordy, will be challenged afresh when it is obliged to simulate life itself.
+ - Pliable human nature is relentlessly pressed upon by its physical environment.
+ - The blessing which we associate with a life of refinement and cultivation can be made universal and must be made universal if they are to be permanent.
+ - The rich landlord is he who collects with sternness, who accepts no excuse, and will have his own. There are moments of irritation and of real bitterness against him, but there is still admiration, because he is rich and successful.
+ - The cheap drama brings cause and effect, will power and action, once more into relation and gives a man the thrilling conviction that he may yet be master of his fate.
+ - This dream that men shall cease to waste strength in competition and shall come to pool their powers of production is coming to pass all over the earth.
+ - To attain individual morality in an age demanding social morality, to pride one’s self on the results of personal effort when the time demands social adjustment, is utterly to fail to apprehend the situation.
+ - In the unceasing ebb and flow of justice and oppression we must all dig channels as best we may, that at the propitious moment somewhat of the swelling tide may be conducted to the barren places of life.
+ - All those hints and glimpses of a larger and more satisfying democracy, which literature and our own hopes supply, have a tendency to slip away from us and to leave us sadly unguided and perplexed when we attempt to act upon them.
+ - It is easy to become the dupe of a deferred purpose, of the promise the future can never keep, and I had fallen into the meanest type of self-deception in making myself believe that all this was in preparation for great things to come.
+ - When the entire moral energy of an individual goes into the cultivation of personal integrity, we all know how unlovely the result may become; the character is upright, of course, but too coated over with the result of its own endeavor to be attractive.
+ - Private beneficence is totally inadequate to deal with the vast numbers of the city’s disinherited.
+ - A woman should have the ballot, because without this responsibility she cannot best develop her moral courage.
+ - We are learning that a standard of social ethics is not attained by travelling a sequestered byway, but by mixing on the thronged and common road where all must turn out for one another, and at least see the size of one another’s burdens.
+ - A long-established occupation may form the very foundations of the moral life, that the art with which a man has solaced his toil may be the salvation of his uncertain temperament.
+ - Intellectual life requires for its expansion and manifestation the influences and assimilation of the interests and affections of others.
+ - Perhaps nothing is so fraught with significance as the human hand, this oldest tool with which man has dug his way from savagery, and with which he is constantly groping forward.
+ - Social advance depends as much upon the process through which it is secured as upon the result itself.
+ - The common stock of intellectual enjoyment should not be difficult of access because of the economic position of him who would approach it.
+ - It is easy to become the dupe of a deferred purpose, of the promise the future can never keep...
+ - The lessons of great men and women are lost unless they reinforce upon our minds the highest demands which we make upon ourselves; they are lost unless they drive our sluggish wills forward in the direction of their highest ideas.
+ - I am not one of those who believe – broadly speaking – that women are better than men. We have not wrecked railroads, nor corrupted legislatures, nor done many unholy things that men have done; but then we must remember that we have not had the chance.
+ - A very little familiarity with the poor districts of any city is sufficient to show how primitive and genuine are the neighborly relations.
+ - We are thus brought to a conception of Democracy not merely as a sentiment which desires the well-being of all men, nor yet as a creed which believes in the essential dignity and equality of all men, but as that which affords a rule of living as well as a test of faith.
+ - The supreme religious test of our social order is the hideous commerce of prostitution.
+ - The impulse to share the lives of the poor, the desire to make social service, irrespective of propaganda, express the spirit of Christ, is as old as Christianity itself.
+ - The task of youth is not only its own salvation but the salvation of those against whom it rebels, but in that case there must be something vital to rebel against and if the elderly stiffly refuse to put up a vigorous front of their own, it leaves the entire situation in a mist.
+ - One’s faith is kept alive as one occasionally meets a realized ideal of better human relations.
+ - Even death itself sometimes fails to bring the dignity and serenity which one would fain associate with old age.
+ - I dreamed night after night that everyone in the world was dead excepting myself, and that upon me rested the responsibility of making a wagon wheel.
+ - If the Settlement seeks its expression through social activity, it must learn the difference between mere social unrest and spiritual impulse.
+ - The task of youth is not only its own salvation but the salvation of those against whom it rebels.
+ - Must be grounded in a philosophy whose foundation is on the solidarity of the human race, a philosophy which will not waver when the race happens to be represented by a drunken woman or an idiot boy.
+ - The new growth in the plant swelling against the sheath, which at the same time imprisons and protects it, must still be the truest type of progress.
+ - The worth of every conviction consists precisely in the steadfastness with which it is held.
+ - Life cannot be administered by definite rules and regulations; that wisdom to deal with a man’s difficulties comes only through some knowledge of his life and habits as a whole.
+ - If in a democratic country nothing can be permanently achieved save through the masses of the people, it will be impossible to establish a higher political life than the people themselves crave.
+ - A Settlement is above all a place for enthusiasms, a spot to which those who have a passion for the equalization of human joys and opportunities are early attracted.
+ - With all the efforts made by modern society to nurture and educate the young, how stupid it is to permit the mothers of young children to spend themselves in the coarser work of the world!
+ - Only in time of fear is government thrown back to its primitive and sole function of self-defense and the many interests of which it is the guardian become subordinate to that.
+ - It is as easy for most of us to keep from stealing our dinners as it is to digest them, and there is quite as much voluntary morality involved in one process as the other.
+ - You do not know what life means when all the difficulties are removed!
+ - No one so poignantly realizes the failures in the social structure as the man at the bottom, who has been most directly in contact with those failures and has suffered most.
+ - The mass of men seldom move together without an emotional incentive.
+ - As democracy modifies our conception of life, it constantly raises the value and function of each member of the community, however humble he may be.
+ - But the paradox is here: when cultivated people do stay away from a certain portion of the population, when all social advantages are persistently withheld, it may be for years, the result itself is pointed to as a reason and is used as an argument for the continued withholding.
+ - Hospitality still survives among foreigners, although it is buried under false pride among the poorest Americans.
+ - A wise man has told us that “men are once for all so made that they prefer a rational world to believe in and live in.”
+ - The classical city promoted play with careful solicitude, building the theater and stadium as it built the market place and the temple.
+ - Of all aspects of social misery nothing is so heartbreaking as unemployment.
+
+66 quotes

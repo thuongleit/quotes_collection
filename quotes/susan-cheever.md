@@ -1,0 +1,25 @@
+ - Addiction isnt about substance – you arent addicted to the substance, you are addicted to the alteration of mood that the substance brings.
+ - You mustn’t be so open-minded that your brains fall out.
+ - There is no such thing as expecting too much.
+ - Personal experience is the lightning of the soul; it transforms the heart in ways that leave the brain behind.
+ - Falling in love as we know it is an addictive experience.
+ - Love is a great wrecker of peace of mind.
+ - There is no other closeness in human life like the closeness between a mother and her baby – chronologically, physically, and spiritually they are just a few heartbeats away from being the same person.
+ - When Tolstoy wrote that all happy families are alike, what he meant was that there are no happy families.
+ - Pregnancy is difficult for women but it is even more difficult for men.
+ - There is some consensus: There’s obsession, there’s never satiety, and there’s always remorse. For me, the big thing is that you’re always breaking a promise – for example, you promise yourself you’re just going to have coffee with a man, then before you know it, you’re in bed together.
+ - Obsession is so extreme and so hard to imagine with the rational mind that it has a science-fiction-like quality to it-it’s almost as if the obsessed one has been taken over by a replica, a pod, a facsimile of the rational person.
+ - The actual American childhood is less Norman Rockwell and Walt Disney than Nathaniel Hawthorne and Edgar Allan Poe.
+ - A wedding isn’t for the bride and groom, it’s for the family and friends. The B. and G. are just props, silly stick figures with no more significance than the pink and white candy figures on the top of the cake.
+ - Womens currency is their looks. Like it or not, the most powerful woman is an 18-year-old woman.
+ - Death is terrifying because it is so ordinary. It happens all the time.
+ - I think 12-step programs really work, rehab really works, certain types of therapies and talking to other addicts really work. There are a lot of things that work – that isn’t the problem. The problem is getting the addicts to say they’re addicts. The problem is admitting it.
+ - Guilt is petty; I am above guilt.
+ - Writers often write their best when they are feeling their worst.
+ - Dogs are great teachers. They are at home in the world. They live in the moment, and they force us to stay there with them. Dogs love us unconditionally, not for our bodies or bank accounts.
+ - A fierce literary woman with a penchant for married men, Margaret Fuller was ultimately torn between motherhood and her final career as a political reporter.
+ - There were a number of books about Bill Wilson, and by him, but a lot of the basic biographical tasks had not been done.
+ - If a woman is surrounded by lovers or if a woman has a lot of guys asking her out, that’s considered wonderful. As a woman who’s slept with a lot of men, I’ve always been complimented on my ability to attract men.
+ - Whenever there was a crisis, I found a man to help me take the edge off the feelings of helplessness and pain.
+
+23 quotes

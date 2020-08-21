@@ -1,0 +1,42 @@
+ - Sobriety was the greatest gift I ever gave myself.
+ - So I came to the realization: Nothing in life is unfair. It’s just life.
+ - The ’80s were about trying to establish myself as an actor with a career. And being a teenager enjoying the fruits of being successful with lots of what I think is appropriate for that age.
+ - Sobriety was the greatest gift I ever gave myself. I don’t put it on a platform. I don’t campaign about it. It’s just something that works for me. It enabled me to really connect with another human being – my wife, Sheryl – which I was never able to do before.
+ - Sampling, statisticians have told us, is a much more effective way of getting a good census.
+ - I have been looking forward to this age of my life for a long time. In my twenties, I marked the days on the calendar – I was sick of playing high-school kids.
+ - I’m thinking of how unexpected and yet oddly preordained life can be. Events are upon you in an instant, unforseen and without warning, and often times marked with disappointment and tragedy, but equally often leading to a better understanding of the bittersweet truth of life.
+ - When I hear that I realize how quickly time passes and how everybody goes on their journeys and they’re always unbelievable and they never go where you think they’re going to take you and, quite frankly, it also makes me feel a little old.
+ - Can someone explain the vitriol whenever Ayn Rand comes up? ‘Atlas’ is the greatest motivator for the individual that I can imagine.
+ - Did you eat a lot of paint chips when you were a kid?
+ - I liked being a teenager, but I would not go back for all the tea in China.
+ - Every relationship has its complications.
+ - My looks have prevented people from seeing my work.
+ - Show me someone who doesn’t have some sort of experience that they would be uncomfortable for people to know about and I’ll show you a dullard.
+ - When I was young and crazy, I was young and crazy. It can be hard enough just to BE in your teens and 20s. Then add fame, money, access, and every single person telling you that you’re the greatest person who ever was, and it can be a recipe for disaster. Some people literally don’t survive it.
+ - I have, on the other hand, felt ill will from various people in the industry and the press.
+ - To achieve longevity you will have cycles. No one gets there in one straight shot.
+ - When I was a teen idol, I was so goddamn pretty I wouldn’t have taken myself seriously.
+ - I’ll be sober ten years and married nine soon.
+ - I wouldn’t go back on my old days, though; everybody needs to have their wild years. It’s just a question of when and I’d rather have had them early than be doing it as a mid-life crisis type thing.
+ - Any time an opportunity scares you that much, you should seriously consider saying yes.
+ - I have had a lot of blessed, interesting things happen to me and have bumped up against some amazing people.
+ - Of the many horrors of divorce, the most egregious is that it robs a kid of the best of both worlds. Dads can do many things that even the best moms can’t, and vice versa.
+ - Last night, we were all watching Harry Potter in bed, and I thought, ‘This isn’t something you have when you’re single, that’s for sure.’
+ - I have a lot of great memories, but I can’t imagine anything more exciting than the life I have now.
+ - Being pulled that long and that hard for a 12-hour day gave me migraines. It’s what they used to do before there were facelifts for actresses – you know, Joan Crawford’s whole career was this. Then the makeup is like Earl Scheib auto body paint sprayed on my face.
+ - Fake confidence on the outside often trumps truthful turmoil on the inside.
+ - I don’t look back with any bitterness, though there are a couple of judgment calls and some ’80s hairdos that I’d like to do over.
+ - I believe in ceremony. I think ceremony is important, pomp and circumstance, tradition. I’m into those things.
+ - If somebody else is achieving more than I am, that means I can do it, too. Everybody has the ability to raise themselves up, and my life has been marked by that.
+ - The best part is not the biggest, it’s the one that’s most memorable.
+ - I have never felt at any point in my life, good or bad, any ill will ever from the man or woman on the street.
+ - We always reminisce about how everyone tried to get Diane Lane’s attention, to very little success.
+ - I like the tradition of ordinary men in extraordinary circumstances and how they react to events which force them to be heroic in a way that is not in their natures.
+ - The umbrella that I live under is that you must be truthful with everyone except when to do so would injure them or others.
+ - I think part of maturity is knowing who you are.
+ - Be funny whenever possible, even if some people don’t get it.
+ - There is no recovery for anyone without lifting the lid on the pain of the past and letting in the light.
+ - Directors are not worried about casting beautiful women, but they are not sure that they want to cast great-looking men. My looks have prevented people from seeing my work.
+ - I am the guy dressing up in, you know, the caveman outfit for the kids birthday parties.
+
+40 quotes

@@ -1,0 +1,21 @@
+ - Walking is a skill that took millions of years for us to develop. If you wanted to design a robot that could walk as well as a person, this would be fantastically complicated software. It would have to be doing billions of calculations with every step.
+ - The Kindle is just the razor. The books are the blades – ka-ching!
+ - The Kindle is the most successful electronic book-reading tablet so far, but that’s not saying much; Silicon Valley is littered with the corpses of e-book reader projects.
+ - Scientists in California have discovered a chemical in the brain that causes use of Windows in otherwise normal human beings. It’s called alcohol.
+ - Everyones always asking me when Apple will come out with a cell phone. My answer is, Probably never.
+ - What is innovation if not our ticket to every business interest in the world? Its the ticket to solving the worlds problems – the energy problems, the pollution problems, the global warming problems. If it isnt for science and engineering, how will we compete in the new world?
+ - If you continue to improve a product enough, you’ll eventually ruin it.
+ - My little self-analysis is that consumer technology is the closest thing we have to magic. You push a button and something happens at your command. The things that get me fired up the most have always been the things that seem the most magical.
+ - One day robots may babysit our kids, a job that has always required a human touch.
+ - My interest was magic, believe it or not. I became an amateur magician and did something like 400 magic shows through my teen years.
+ - A running theme in my life is my inability to say no to anything.
+ - The rise of the citizen review site is a sobering development. No longer are you on top of the mountain, blasting your marketing message down to the masses through your megaphone. All of a sudden, the masses are conversing with one another. If your service or product isn’t any good, they’ll out you.
+ - I travel a ridiculous amount, so I’ve thought a lot about, and spent a lot of time refining, what I carry and how I carry it.
+ - For the last 15 years, Microsoft’s master business plan seems to have been, Wait until somebody else has a hit. Then copy it.
+ - An international team of psychiatrists has flown to Redmond, WA in an attempt to discover exactly what makes Bill Gates tick. And, more especially, what makes him go cuckoo every half hour.
+ - For an industry that’s built on science, the technology world sure has its share of myths.
+ - Why is Wi-Fi free at cheap hotels but $14 a night at expensive ones.
+ - People won’t start dumping Google en masse; Google is a habit.
+ - If Apple ever lowers the iPod’s price and develops Windows software for it, watch out: the invasion of the iPod people will surely begin in earnest.
+
+19 quotes

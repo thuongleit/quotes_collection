@@ -1,0 +1,100 @@
+ - A wounded tiger is a dangerous beast.
+ - The heart dies a slow death, shedding each hope like leaves until one day there are none. No hopes. Nothing remains.
+ - A mind troubled by doubt cannot focus on the course of victory.
+ - At the temple there is a poem called “Loss” carved into the stone. It has three words, but the poet has scratched them out. You cannot read loss, only feel it.
+ - We lead our lives like water flowing down a hill, going more or less in one direction until we splash into something that forces us to find a new course.
+ - Adversity is like a strong wind. I don’t mean just that it holds us back from places we might otherwise go. It also tears away from us all but the things that cannot be torn, so that afterward we see ourselves as we really are, and not merely as we might like to be.
+ - Water is powerful. It can wash away earth, put out fire, and even destroy iron.
+ - My mother once told me I was like water. Water can carve its way even through stone. And when trapped, water makes a new path.
+ - After all, when a stone is dropped into a pond, the water continues quivering even after the stone has sunk to the bottom.
+ - Can’t you see? Every step I have taken, since I was that child on the bridge, has been to bring myself closer to you.
+ - He was like a song I’d heard once in fragments but had been singing in my mind ever since.
+ - If you keep your destiny in mind, every moment in life becomes an opportunity for moving closer to it.
+ - I had to wonder if men were so blinded by beauty that they would feel privileged to live their lives with an actual demon, so long as it was a beautiful demon.
+ - Never give up; for even rivers someday wash dams away.
+ - If a few minutes of suffering could make me so angry, what would years of it do? Even a stone can be worn down with enough rain.
+ - We can never flee the misery that is within us.
+ - This is why dreams can be such dangerous things: they smolder on like a fire does, and sometimes they consume us completely.
+ - We don’t become geisha because we want our lives to be happy; we become geisha because we have no choice.
+ - Grief is a most peculiar thing; we’re so helpless in the face of it. It’s like a window that will simply open of its own accord. The room grows cold, and we can do nothing but shiver. But it opens a little less each time, and a little less; and one day we wonder what has become of it.
+ - We none of us find as much kindness in this world as we should.
+ - Sometimes we get through adversity only by imagining what the world might be like if our dreams should ever come true.
+ - She paints her face to hide her face. Her eyes are deep water. It is not for Geisha to want. It is not for geisha to feel. Geisha is an artist of the floating world. She dances, she sings. She entertains you, whatever you want. The rest is shadows, the rest is secret.
+ - I don’t know when we’ll see each other again or what the world will be like when we do. We may both have seen many horrible things. But I will think of you every time I need to be reminded that there is beauty and goodness in the world.
+ - Friendship is a precious thing, Sayuri. One mustn’t throw it away.
+ - At that moment, beauty itself struck me as a kind of painful melancholy.
+ - Neither you nor I can know your destiny. You may never know it! Destiny isn’t always like a party at the end of the evening. Sometimes it’s nothing more than struggling through life from day to day.
+ - Even stone can be worn down with enough rain.
+ - Was life nothing more than a storm that constantly washed away what had been there only a moment before, and left behind something barren and unrecognizable?
+ - I don’t think any of us can speak frankly about pain until we are no longer enduring it.
+ - We all know that a winter scene, though it may be covered over one day, with even the trees dressed in shawls of snow, will be unrecognizable the following spring. Yet I never imagined such a thing could occur within our very selves.
+ - Hopes are like hair ornaments. Girls want to wear too many of them. When they become old women they look silly wearing even one.
+ - Now I know that our world is no more permanent than a wave rising on the ocean. Whatever our struggles and triumphs, however we may suffer them, all too soon they bleed into a wash, just like watery ink on paper.
+ - By the time we arrived, as evening was approaching, I felt as sore as a rock must feel when the waterfall has pounded on it all day long.
+ - A tree may look as beautiful as ever; but when you notice the insects infesting it, and the tips of the branches that are brown from disease, even the trunk seems to lose some of its magnificence.
+ - It was what we Japanese called the onion life, peeling away a layer at a time and crying all the while.
+ - Anyone can have a good day. The question is what do you do on a bad day. That’s when you’re being tested. In a very tangible sense, a bad day shows your innermost essence more than a good day.
+ - Every man has his destiny. But who needs to go to a fortune-teller to find it? Do I go to a chef to find out if I’m hungry?
+ - Perhaps it seems odd that a casual meeting on the street could have brought about such change. But sometimes life is like that isn’t it.
+ - If you have experienced an evening more exciting than any in your life, you’re sad to see it end; and yet you still feel grateful that it happened.
+ - Here again, I saw life in all its noisy excitement passing me by.
+ - A geisha has studied a man’s moods and his seasons. She fusses and he blooms.
+ - Watch for the thing that will show itself to you. Because that thing, when you find it, will be your future.
+ - An en is a karmic bond lasting a lifetime. Nowadays many people seem to believe their lives are entirely a matter of choice; but in my day we viewed ourselves as pieces of clay that forever show the fingerprints of everyone who has touched them.
+ - I didn’t say to act dead. I said act helpless.
+ - I will think of you every time I need to be reminded that there is beauty and goodness in the world.
+ - I could no more have stopped myself from feeling that sadness than you could stop yourself from smelling an apple that has been cut open on the table before you.
+ - Sadness was a very heavy thing.
+ - Nothing is as bleak as the future, except the past.
+ - Occasionally in life we come upon things we can’t understand, because we have never seen anything similar.
+ - I stumbled out into the courtyard to try to flee my misery, but of course we can never flee the misery that is within us.
+ - A mouse who wishes to fool the cat doesn’t simply scamper out of its hole whenever it feels the slightest urge.
+ - The prettiest of them all is a girl who is pretty on the inside.
+ - Of course, a sign doesn’t mean anything unless you know how to interpret it.
+ - When we fight upstream against a rocky undercurrent, every foothold takes on a kind of urgency.
+ - Those of us with water in our personalities don’t pick where we’ll flow to. All we can do is flow where the landscape of our lives carries us.
+ - Passion can quickly slip to jealousy, or even hatred.
+ - A woman who acts like a fool is a fool.
+ - As an American man of the 1990s writing about a Japanese woman of the 1930s, I needed to cross three cultural divides – man to woman, American to Japanese, and present to past.
+ - My feelings of disgust had been so loud within me, they’d nearly drowned out everything else.
+ - Memoirs give the knowledge about the author and his environment. They are different from biography. Memoirs do not get ahead, and the man who writes a biography looks at his future like at a very simple thing.
+ - You seemed so desperate, like you might drown if someone didn’t save you.
+ - I began to feel that all the people I’d ever known who had died or left me had not in fact gone away, but continued to live on inside me just as this man’s wife lived on inside him.
+ - Well, a peach has a lovely taste and so does a mushroom, but you can’t put the two together...
+ - I don’t like things held up before me that I cannot have.
+ - How many times already had I encountered the painful lesson that although we may wish for the barb to be pulled from our flesh, it leaves a welt that doesn’t heal?
+ - A memoir provides a record not so much of the memoirist as of the memoirist’s world.
+ - Yet somehow the thing that startled me most, after a week or two had passed, was that I had in fact survived.
+ - His face was very heavily creased, and into each crease he had tucked some worry or other, so that it wasn’t really his face any longer, but more like a tree that had nests of birds in all of the branches. He had to struggle constantly to manage it and always looked worn out from the effort.
+ - Some people have difficulty telling the difference between something great and something they’ve simply heard of.
+ - Geisha is always called beautiful even if she is not.
+ - For a flicker of a moment I imagined a world completely different from the one I’d always known, a world in which I was treated with fairness, even kindness – a world in which fathers didn’t sell their daughters.
+ - I fell into a sound sleep and dreamed that I was at a banquet back in Gion, talking with an elderly man who was explaining to me that his wife, whom he’d cared for deeply, wasn’t really dead because the pleasure of their time together lived on inside him.
+ - We human beings have a remarkable way of growing accustomed to things.
+ - I’ve lived my life again just telling it to you.
+ - I went back to those graves not long afterward and found as I stood there that sadness was a very heavy thing. My body weighed twice what it had only a moment earlier, as if those graves were pulling me down toward them.
+ - Time your actions so you’re not fighting against the currents but moving with them.
+ - No one knows the author of memoir so well like himself.
+ - Nothing in life is ever as simple as we imagine.
+ - It’s less a matter of looking the other way than of closing our eyes to what we can’t stop from happening.
+ - What an unbearable sorrow it would be, to realized I’d never really tasted to things I’d eaten, or seen the places I’d been. What life would I have? I would be like the dancer who had practiced since childhood for a performance she would never give.
+ - Flowers that grow where old ones have withered serve to remind us that death will one day come to us all.
+ - Seeing him again after so long awakened something inside me. I was surprised to find myself feeling sad rather than joyful, as I would have imagined.
+ - I tried to continue, but somehow my throat made up its mind to swallow – though I can’t think what I was swallowing, unless it was a little knot of emotion I pushed back down because there was no room in my face for any more.
+ - When a man takes a mistress, he doesn’t turn around and divorce his wife.
+ - Finally the homeless eel marked its territory, I suppose, and the Doctor lay heavily upon me, moist with sweat.
+ - And when I raised myself to look at the man who’d spoken, I had a feeling of leaving my misery behind me there on the stone wall.
+ - If you aren’t the woman I think you are, then this isn’t the world I thought it was.
+ - And then I became aware of all the magnificent silk wrapped around my body, and had the feeling I might drown in beauty. At that moment, beauty itself struck me as a kind of painful melancholy.
+ - I studied Japanese language and culture in college and graduate school, and afterward went to work in Tokyo, where I met a young man whose father was a famous businessman and whose mother was a geisha. He and I never discussed his parentage, which was an open secret, but it fascinated me.
+ - My tears simply broke through the fragile wallthat had held them, and with a terrible feeling of shame, I laid my head upon the table and let them drain out of me.
+ - All at once I felt so vain, like a girl posturing for the crowds as she walks along, only to discover the street is empty.
+ - I worried she might spend an afternoon chatting with me about the sights and then wish me best of luck.
+ - The corridor couldn’t have smelled more strongly of fish guts if we had actually been inside a fish.
+ - If Mother and Mameha couldn’t come to an agreement, I would remain a maid all my life just as surely as a turtle remains a turtle.
+ - You know, the men go to tea houses with the expectation that they will have a nice quiet evening and not read about it the next morning in the newspaper.
+ - If those sorts of moments would be the only pleasure life offered me, I’d be better off shutting out that one brilliant source of light to let my eyes begin to adjust to the darkness.
+ - Geisha because when I was living in Japan, I met a fellow whose mother was a geisha, and I thought that was kind of fascinating and ended up reading about the subject just about the same time I was getting interested in writing fiction.
+ - But what I could see out of the corner of my eye made me think of two lovely bundles of silk floating along a stream. In a moment they were hovering on the walkway in front of me, where they sank down and smoothed their kimono across their knees.
+
+98 quotes

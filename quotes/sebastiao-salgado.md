@@ -1,0 +1,38 @@
+ - In GENESIS, my camera allowed nature to speak to me. And it was my privilege to listen.
+ - Let’s build Paradise again.
+ - I have tried to bring about better communication between people. I believe that humanitarian photography is like economics. Economy is a kind of sociology, as is documentary photography.
+ - I am a former economist. I never went to photography school to learn photography.
+ - Photography is full of symbolism, it’s a symbolic language. You have to be able to materialize all your thoughts in one single image.
+ - It’s more important for a photographer to have very good shoes, than to have a very good camera.
+ - I’m not a religious person. The language of photography is symbolic.
+ - We are animals, born from the land with the other species. Since we’ve been living in cities, we’ve become more and more stupid, not smarter. What made us survive all these hundreds of thousands of years is our spirituality; the link to our land.
+ - Most of the information we now get is through television and is mutilated. Photography offers the opportunity to spend much more time on a topic. It’s relatively cheaper medium, and can allow a photographer really to live in another place, show another reality, get closer to the truth.
+ - For me, art is such a wide concept – anything can be art.
+ - I’m not an artist. An artist makes an object. Me, it’s not an object, I work in history, I’m a storyteller.
+ - I have been photographing the portrait of an end of an era, as machines and computers replace human workers. What we have in these pictures is an archeology.
+ - It’s not the photographer who makes the picture, but the person being photographed.
+ - I don’t want anyone to appreciate the light or the palette of tones. I want my pictures to inform, to provoke discussion – and to raise money.
+ - I try with my pictures to raise a question, to provoke a debate, so that we can discuss problems together and come up with solutions.
+ - I discovered that close to half the planet is ‘pristine.’ We live in towns such as London, Paris or Sao Paulo and have the impression that all the pristine areas are gone, but they are not.
+ - I looked through a lens and ended up abandoning everything else.
+ - You photograph with all your ideology.
+ - The picture is not made by the photographer, the picture is more good or less good in function of the relationship that you have with the people you photograph.
+ - The light in Alaska in particular is so beautiful. So beautiful! Such incredible light.
+ - We live in a society where we never prepare people to be a community.
+ - As in any person’s life, there have been difficult moments: I have a son with Down’s syndrome; through my photography, I have witnessed all manner of human degradation. But there have also been very happy moments.
+ - There comes a moment when it is no longer you who takes the photograph, but receives the way to do it quite naturally and fully.
+ - I have two children. I have a Down syndrome child whom I love very much, and my wife that I love.
+ - There are moments that you suffer a lot, moments you won’t photograph. There are some people you like better than others. But you give, you receive, you cherish, you are there. When you are really there, you know when you see the picture later what you are seeing.
+ - I tell a little bit of my life to them, and they tell a little of theirs to me. The picture itself is just the tip of the iceberg.
+ - I believe that the average person can help a lot, not by giving material goods but by participating, by being part of the discussion, by being truly concerned about what is going on in the world.
+ - In the end, the only heritage we have is our planet, and I have decided to go to the most pristine places on the planet and photograph them in the most honest way I know, with my point of view, and of course it is in black and white, because it is the only thing I know how to do.
+ - Of course, I won’t be abandoning photography, because it is my life.
+ - I discovered photography completely by chance. My wife is an architect; when we were young and living in Paris, she bought a camera to take pictures of buildings. For the first time, I looked through a lens – and photography immediately started to invade my life.
+ - I don’t believe a person has a style. What people have is a way of photographing what is inside them. What is there comes out.
+ - I can be an artist a posteriori, not a priori. If my pictures tell the story, our story, human story, then in a hundred years, then they can be considered an art reference, but now they are not made as art. I’m a journalist. My life’s on the road, my studio is the planet.
+ - Of course I will continue photography. I love photography. But when you become old, it’s too much.
+ - The language that photography has is a formal language. Any photographer is doing something formal. If it’s formal, then it must be an aesthetic way to communicate.
+ - What I want is to create a discussion about what is happening around the world and to provoke some debate with these pictures. Nothing more than this.
+ - I work on stories rather than individual pictures.
+
+36 quotes

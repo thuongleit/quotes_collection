@@ -1,0 +1,28 @@
+ - Christmas is the time when kids tell Santa what they want and adults pay for it. Deficits are when adults tell government what they want and their kids pay for it.
+ - A Confucian or Jewish love of learning would gain minorities far more than any affirmative action laws we might pass.
+ - I feel very strongly that the Democratic Party has, in the past, been the party of the future. I think when you look at Social Security and Medicare, when you look at the civil rights movement, the women’s movement, I think the Democratic Party has always been in the forefront of change.
+ - Amnesty is a big billboard, a flashing billboard, to the rest of the world that we don’t really mean our immigration law.
+ - A nation can’t get strong on political pablum.
+ - All we know about the new economic world is that nations which train engineers will prevail over those which train lawyers. No nation has ever sued its way to greatness.
+ - Peace is neither the absence of war nor the presence of a disarmament agreement. Peace is a change of heart.
+ - American public policy is run on a myth.
+ - We have been maintaining a standard of living by putting things on the debt of the next generation.
+ - I have no permanent enemies – only people I have yet to persuade.
+ - I think we’re rapidly approaching the day where medical science can keep people alive in hospitals, hooked up to tubes and things, far beyond when any kind of quality of life is left at all.
+ - You know, 600,000 millionaires get a Social Security check every month. I think there’s enough waste and inefficiency.
+ - Employers love cheap labor, but a country should train its own people.
+ - Politics is a love-hate relationship. I sure know that.
+ - I think modern societies have to ask a very basic question: What strategies buy the most health for people? Doctors can do so many marvelous things now. They can keep a corpse alive, almost.
+ - A nation has its first obligation to its own workers and its own poor.
+ - America does not need another political campaign based on denial and avoidance of some of our real problems. It needs a crusade to reform and renew our country, its institutions and political system.
+ - I think that retiring the baby boomers is going to be one of the great challenges in America, that you cannot make fiscal sense out of the future of our children without taking on entitlements.
+ - America has to ask itself not what it wants, but what it can afford.
+ - Many seniors understand that Social Security is social insurance as opposed to a program where we put money aside for our own retirement. But most elderly individuals think they’re getting their money back. So it isn’t selfishness as much as a misunderstanding.
+ - Politics, like theater, is one of those things where you’ve got to be wise enough to know when to leave.
+ - To me, the failure of liberalism – the tradition I come from – was not recognizing there has to be justice across the generations.
+ - The Democratic Party is not the party of reform.
+ - I believe we all must face the fact of death. It is both gift and curse.
+ - I had a group of Hispanic Americans come into my office in 1976 who worked in a Denver packing plant. They had just been fired by their employer who turned around and hired illegal aliens for a lot less money. That had a big impact on me.
+ - Sprawl is the American ideal way to develop.
+
+26 quotes

@@ -1,0 +1,25 @@
+ - We are made to know and love God.
+ - I am not my own light unto myself.
+ - We see things in this material world, wherein our bodies dwell, only because our mind through its attention lives in another world, only because it contemplates the beauties of the archetypal and intelligible world which Reason contains.
+ - One should assiduously pursue perfection without ever claiming to attain it.
+ - I love good and pleasure, I hate evil and pain, I want to be happy and I am not mistaken in believing, that people, angels and even demons have those same inclinations.
+ - You find yourself in the world, without any power, immovable as a rock, stupid, so to speak, as a log of wood.
+ - God joins us together by means of the body, in consequence of the laws of the communication of movements. He affects us with the same feelings in consequence of the laws of the conjunction of body and soul.
+ - Imagination is the mad boarder.
+ - Prejudices are not easily got rid of as an old coat which is no longer thought of.
+ - You cannot of yourself move your arm or alter your position, situation, posture, do to other men good or evil, or effect the least change in the world.
+ - God transforms, so to speak, this air into words, into various sounds. He makes you understand these various sounds through the modifications by which you are affected.
+ - I beg of you always to dwell upon the necessity of a thorough understanding of principles, in order to stop the vivacity of his mind, and please do not forget to meditate upon the subject of our discussion.
+ - We are rational creatures: Our virtue and perfection is to love reason, or rather to love order.
+ - Our soul is not united to our body in the ordinary sense of these terms. It is immediately and directly united to God alone.
+ - I do not believe there is anything useful which men can know with exactitude that they cannot know by arithmetic and algebra.
+ - All creatures are united to God alone in an immediate union. They depend essentially and directly upon Him. Being all alike equally impotent, they cannot be in reciprocal dependence upon one another.
+ - When I touch a human hand, I touch heaven.
+ - We can always make ourselves liked provided we act likable, but we cannot always make ourselves esteemed, no matter what our merits are.
+ - You will not dishonor the divine perfections by judgments unworthy of them, provided you never judge of Him by yourself, provided you do not ascribe to the Creator the imperfections and limitations of created beings.
+ - Do not fear lest you should meditate too much upon Him and speak of Him in an unworthy way, providing you are led by faith. Do not fear lest you should entertain false opinions of Him so long as they are in conformity with the notion of the infinitely perfect Being.
+ - Just as our eyes need light in order to see, our minds need ideas in order to create.
+ - As our bodies live upon the earth and find sustenance in the fruits which it produces, so our minds feed on the same truths as the intelligible and immutable substance of the divine Word contains.
+ - He has willed – He wills incessantly – that the modifications of the mind and those of the body shall be reciprocal. This is the conjunction and the natural dependence of the two parts of which we are constituted.
+
+23 quotes

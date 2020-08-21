@@ -1,0 +1,200 @@
+ - Be like a duck. Calm on the surface, but always paddling like the dickens underneath.
+ - Some men just want to watch the world burn.
+ - Do you know that the harder thing to do and the right thing to do are usually the same thing? Nothing that has meaning is easy,“Easy” doesn’t enter into grown-up life.
+ - When you reach the top, that’s when the climb begins.
+ - You’re never too old to be crazy.
+ - Obsession is a young man’s game.
+ - Youre only supposed to blow the bloody doors off!
+ - There’s only two things I hate in this world. People who are intolerant of other people’s cultures and the Dutch.
+ - Maybe its time we stop trying to avoid the truth and let it have its day.
+ - You start pretending to have fun, you might have a little by accident.
+ - I’m not a betting man, and even if I was, I certainly wouldn’t bet on this! I would not bet on the Best Actor.
+ - Do I believe in God? Yes I do. When you’ve had a life like mine, you have to.
+ - A man should dress in a way that you don’t notice. He looks good and you don’t know why. But it’s the tailoring, the materials, and the clothes.
+ - I never regret anything. I always said that when I’m old, I want to be sitting there regretting the things that I did and not the things that I didn’t do; and now I’m old, and I don’t regret anything! I had fun. I had fun, and I’m still having it.
+ - Books were my window on the world. Growing up at the Elephant and Castle, which was very rough, my paradise was the library.
+ - I come from the slums; I come from a hard background; I come from a poor family; and I was a soldier.
+ - Hey, I always say: if you want a quiet life, become a monk.
+ - A lot of my best parts I’ve been the second choice for, so you never get too egotistical about anything.
+ - It’s a lesson in life – don’t look back, you’ll trip over.
+ - You can write shorthand and still look at the guy you’re talking to.
+ - A man’s body may grow old, but inside his spirit can still be as young and as restless as ever.
+ - The first actor I ever saw was The Lone Ranger. I thought, That’s what I want to do.
+ - I never bring a role home with me. The moment they say, ‘It’s a wrap,’ it’s gone completely. I’m a totally ruthless professional, and life is my family, not my work.
+ - My wife, my daughters, even my grandchildren are funny. You’ve got to keep a sense of humor because anger destroys you.
+ - I love the start of autumn when the trees in my garden change the colour of their leaves in one last dazzling display.
+ - I’ve never been competitive with other actors. I’ve been competitive with myself and I’m my own worst critic, a terrible critic I am, and unless I get something right, I feel very unhappy.
+ - A lot of people said, Who do you think you are? I told them I know exactly who I am and I’ll tell you exactly where I’m going.
+ - To be a movie star, you have to invent yourself.
+ - I usually control the environment I’m in, but my control is very quiet and subtle.
+ - Funny things happen to you in movies for silly reasons.
+ - I’m always slightly envious of people who become extremely rich without anyone knowing who the hell they are, like financiers.
+ - Save your money. You’re going to need twice as much money in your old age as you think.
+ - No matter what the reason, if you start to scream and shout, you look a fool, and you feel a fool, and you earn the disrespect of everyone.
+ - If I see any injustice done, I have a big enough mouth and the position to open up about it.
+ - I’m not tough anymore, I’m 82.
+ - To me, ‘Educating Rita’ is the most perfect performance I could give of a character who was as far away from me as you could possibly get and of all the films I have ever been in, I think it may be the one I am most proud of.
+ - I’m not in the Lifetime Achievement area yet-I’m still battling it out in the trenches.
+ - If you’re a movie actor, you’re on your own – you cannot control the stage. The director controls it.
+ - When I look in the mirror, I see someone who’s happy with how he looks, because I was never one of the handsome Hollywood people. And I’ve had success as I’ve gotten older, because I’m able to play characters. I no longer get the girl, but I get the part.
+ - Nobody did a campaign for me. I was nominated out of the blue and won out of the blue. So that was it.
+ - You’re your first best audience, long before anybody else hears you. So don’t be an easy audience. Keep asking for more.
+ - I was born Maurice Joseph Micklewhite. Imagine signing that autograph! You’d get a broken arm. So I changed my name to Michael Caine after Humphrey Bogart’s ‘The Caine Mutiny,’ which was playing in the theater across from the telephone booth where I learned that I’d gotten my first TV job.
+ - When it comes to politics, I believe you have to cut the cake so that everybody gets a piece, but at the same time, you have to keep in mind that somebody has to make the cake.
+ - I don’t want to sound like Disgusted of Tunbridge Wells, but I do think there should be some sort of national service for young men.
+ - I don’t do it often, but I do cry. I also laugh a lot; people tell me I’m funny and I do like to laugh.
+ - I had been in that part of the world as a soldier in Korea, so I had been interested in Vietnam.
+ - I don’t like getting up early in the morning and learning all that stuff. I work with offers that I can’t refuse.
+ - At age 11, I went to a Jewish school. I speak Yiddish. I’m Church of England Protestant. My father was Catholic, and my mother was Protestant. My wife is a Muslim.
+ - Sometimes, in a part, everything comes together.
+ - Growing up, there was only classical music on BBC Radio. We had to listen to the American Forces Network in Germany, which played pop songs, or the pirate radio boats off the coast.
+ - I need a challenge ’cause I don’t get the girl anymore.
+ - You don’t make any money when you’re my age. The stars get it all. That’s a lie, actually.
+ - I’m looking for me to disappear, and the acting to disappear, and all you see is a real person.
+ - If you’re a leading actor you don’t work with another actor. You work with a lady.
+ - I’ve always loved reprehensible people because they’re so much more interesting to play on screen.
+ - I’ve done my job and I’ve got the picture out there, and I’m very happy with it.
+ - You have to remember, I never became successful or wealthy till I was 30.
+ - You can see all sorts of things in film acting if you know where to look and what to look for. One thing I often notice is that the actor is looking for his mark, the place where he has to stand to be in the right place in the shot.
+ - A lot of movie stars are not great actors; they’re just very good-looking. And when they start to age and they don’t have the looks any more, then it’s over.
+ - I feel that I helped the working class by just saying there are no barriers, which I consider to be true.
+ - I don’t have to work. I suppose I should retire. But I enjoy working.
+ - Movie actors earn their living and learn their craft through listening and reacting.
+ - I’ve done a lot of radio in my life so I am absolutely used of working with the voice. I have a very distinctive voice so it’s always great for me because I open my mouth and everybody knows who it is.
+ - I don’t worry about the last shot or the next shot. I concentrate. Every shot gets a clean slate. And when a shot is over, I wipe it out absolutely. Tell a joke or something. If you worry about how you looked, how well you did, you’ll go insane.
+ - No English director would’ve cast me as an officer, I promise you. Not one.
+ - By the time the Oscars are on I’ll be seventy. How many more chances am I going to have to get nominated for an Oscar?
+ - There’s quite a lot of bad stuff written about me. My wife even says a lot of bad stuff about me. But she is wonderful.
+ - I learn the whole time. I think it would be dull if I thought I was going to work and wouldn’t find something new. We always learn.
+ - I’ve been on movies where I literally couldn’t hear what the other actor was saying. It’s very awkward.
+ - For me, the performance was always playing different people. And so when I got older, was no longer the romantic leading movie star, it became more and more interesting for me, the characters I played, you know?
+ - I see myself as 38, but you don’t notice it.
+ - I’d never been in one of those great big blockbusters.
+ - Nobody’s a criminal to himself. I never play a criminal like a bad person.
+ - I had been nine years in the theatre and hadn’t had massive success. My only thing was I wanted to be an actor and I didn’t care when, where, or how much for.
+ - When you’re a young actor you ring your agent every evening. It’s not like when you’re in Hollywood where you do one picture a year. You just hope you get a day on television.
+ - I don’t meet stockbrokers or carpenters or coal miners; I spend all day with actors, composers and photographers.
+ - The Quiet American is anti the people who took them into the Vietnam War.
+ - In my day, the drug was alcohol and the weapon was a fist, so it was very sort of innocent and primitive. Now you’ve got drugs, guns, and knives, which are so lethal.
+ - Presenting the Oscars was the most nerve-racking job I have ever done in show business. It’s very much a live show: they have comedy writers waiting in the wings, and as you come off between presentations, they hand you an appropriate gag to tell.
+ - My career is going better now than when I was younger. Now I get the part. Back then, I’d get the girl.
+ - I won an Academy Award for ‘The Cider House Rules,’ playing an American.
+ - We can only use British actors because everybody’s got to talk exactly the same.
+ - You don’t sacrifice your individuality; you sacrifice a lot of freedom.
+ - If you’re blond, as I am, and you have blond lashes, you have to wear mascara, otherwise you’re invisible on stage.
+ - I’m the happiest grandfather in the world, I promise you.
+ - I wear a baseball cap all the time, which I would never normally wear, and I walk very fast.
+ - Am I a car aficionado? No: for me, cars have always been just for transport. I didn’t even know anyone who had a car until I was 14 or 15.
+ - I don’t have any regrets because I’m very optimistic, and live each day as though it’s the last.
+ - The trouble with women? Elbows.
+ - Don’t sit as if you have nothing to say. You should be bursting with things to say. You just choose at this particular place and time, not to say them.
+ - And to Tom Cruise, for if you had won this, your asking price would have gone down so fast. Do you have any idea what supporting actors get paid? We get only one trailer, a small one, in the back.
+ - I think it would be great for the Academy to recognize old age.
+ - If I work with a bad actor, my reaction is to immediately become worse than they are.
+ - I’ve been in every disco in the world. I saw a picture of my wife Shakira and I dancing in Studio 54; I didn’t even know someone had taken that picture.
+ - People say to me, why did you do those films, and I say, for money. It wasn’t for diamond rings or kidney shaped swimming pools in Beverly Hills, it was in order to improve the lot of everyone around me.
+ - I’ve got a lot of back-up because my father was a Catholic, my mother was a Protestant, I was educated by Jews and I’m married to a Muslim. So I won’t lose out on a technicality.
+ - It’s much harder to act in a bad film than in a good one. A terrible script makes for very difficult acting. You can win an Academy Award for some of the easiest acting in your career, made possible by a brilliant script.
+ - They use those monitors now, and sometimes you’ll be doing a shot and then suddenly you see yourself on one of those monitors, and I always say turn the monitor round, I don’t want to see myself on the monitor. I never see myself ’til the movie’s finished.
+ - Someone said to me the other day: “Well, you’re eventually going to live until 110.” And I said: “Well, who’s going to keep me? What age do I retire? 100?” How are you going to live all those years and who is going to keep you doing it? I have a couple of grandchildren now so I’m banking on them.
+ - You can’t get blase about something you haven’t done yet.
+ - I am often asked which of my films has come closest to my own ideal of performance, and I always answer, ‘Educating Rita.’
+ - I always exposed the weakness rather than the nastiness.
+ - I did everything. I ran my life exactly as I wanted to, all the time. I never listened to anybody. I’m pig-headed.
+ - I have a knack of making villainous people a little bit sympathetic, a bit of fun on screen.
+ - I started with the firm conviction that when I came to the end, I wanted to be regretting the things that I had done, not the things I hadn’t.
+ - I’m a frustrated stand-up comic. If you hand me a microphone and I get one laugh, then I’ll go on for 20 minutes.
+ - But the whole point of the Sixties was that you had to take people as they were. If you came in with us you left your class, and colour, and religion behind, that was what the Sixties was all about.
+ - The old guys like me started in the theatre. I was in the theatre for nine years.
+ - I sit waiting for things that I can’t refuse.
+ - I can never be the hero now. You have to be young and all that stuff. I used to be the hero.
+ - Comedy is underrepresented in every actor’s life, because it’s so bloody difficult to write.
+ - I didn’t want to come in the movie every so often, every 20 minutes saying, ‘Dinner is served, would you like coffee?’
+ - This is your life, Larry. Learn to enjoy what you’ve got.
+ - If you’re a gardener you don’t need a gym. You’re always carrying large sacks of manure all over.
+ - You’ve got to be flexible. Directors do a massive amount of planning and homework, and if after all that your director decides to throw it all out of the window and shoot spontaneously, then you must follow his lead.
+ - One of the great things with comedy is that there’s no such thing as a mediocre comedy; it’s either uproarious or crap. That’s the problem.
+ - In England, I was a Cockney actor. In America, I was an actor.
+ - Wherever I live, if there isn’t a restaurant I want to go to of a certain type, then I open it. That’s all. For selfish reasons.
+ - I’ve always played very human sort of characters.
+ - Since I was 19, I’ve had the most fun possible every single day, even when I had a rough life. It was the army which taught me about life, and the theater which taught me how good it could be.
+ - 80 percent of any gang is not there to attack someone. They’re there so no one will attack them.
+ - If you’re a movie star, you get the girl, you lose the girl, and then you get her back. But if you’re a character like me, you lose the girl, then you get another one, then you get another one, then you lose them all, then you lose your life.
+ - I try to make everyone around me feel comfortable.
+ - I just try to play more and more difficult roles.
+ - I’ve had such a great time, I’d like to come back as me – and do it all over again.
+ - I never listened to the people who said I should give it up, which is the main advice I got.
+ - My mum never understood how much I earned. When I told her I earned a million pounds a film, she said, ‘How much is that?’
+ - I don’t want to be an English actor doing the greatest American accent you’ve ever heard. I want to be an American doing nothing.
+ - My closest friends are Roger Moore, who is an actor, Sean Connery, who is an actor, Terry O’Neill, who is a photographer, Johnny Gold, who was the boss of Tramp, and Leslie Bricusse, who is a composer.
+ - I learned about life before I went into the theater, which is why I’ve been so happy. I was a soldier.
+ - How can I change me to suit the script?
+ - My view of actors is that basically they’re all harmless lunatics who’d be on the psychiatrist’s couch.
+ - Ive read an awful lot of books, Ive read alot of awful books.
+ - The first thing I’ll do if I want to look really crappy is, I don’t wear any makeup at all.
+ - In my early days, I didn’t know what a good film or a bad film was, and I was trying to make some money. As it happens I was lucky. I made some good films.
+ - If you’re an actor and you don’t act for a long time you sort of think, I wonder if I can still do it.
+ - When you’re a movie star and you’re young, you are always playing someone who’s a better fighter, a better lover, a better everything than you.
+ - I’ve always got to have one impossible dream on the back burner.
+ - There was a certain moment. I was about 61 – two, three or four, and I got a script. And I sent it back to the producer saying – “I don’t wanna do it. The part’s too small.” And he sent it back to me, he said, “You shouldn’t read the lover. You should read the father.”
+ - You don’t retire from the movies. The movies retire you.
+ - You get paid the same for a bad film as you do for a good one.
+ - My circle of friends are not actors at all. None of them are actors, really, because they’re are not available. They’re always off somewhere.
+ - I’ve made the transition from star to character actor and I’m thoroughly enjoying it.
+ - I spent my life in the library reading books.
+ - To me, growing old is great. It’s the very best thing – considering the alternative.
+ - I’m doing the next Batman. I have to become obsessed about what is offered to me.
+ - I’m very, very family oriented. I’m a big cook and a good connoisseur and I only drink very good red wines now.
+ - The basic rule of human nature is that powerful people speak slowly and subservient people quickly – because if they don’t speak fast enough, nobody will listen to them.
+ - One of the main things about Cockney is, you speak at twice the speed as Americans. Americans speak very slow.
+ - My father was a fish market porter. So I grew up on fish, because he used to steal one a day, I grew up on the very best fish that money could buy, ’cause he only stole the good stuff.
+ - If you put someone on screen long enough, they become the hero.
+ - I was a repertory actor, which meant that I did a play every week. I was a different character every week; for a year, I was doing 40 or 50 characters.
+ - It’s vital to have your own space so you aren’t constantly in each other’s pockets.
+ - I spent 30 years of my life not being wanted at all for films.
+ - I never look back at all. All of my sentiment and emotion goes into my family. I’m an extremely family oriented person and I have a very, very happy family life. That doesn’t just include blood relations. I have friends who are close to me.
+ - What it is is that comedy is underrepresented in every actor’s life, because it’s so bloody difficult to write. Anyone can write; and then you leave it to special effects to make it look good. But comedy, you’ve got to do some writing.
+ - I regard the theater as a woman I loved dearly who treated me like dirt.
+ - If you held a pistol at my head, I couldn’t tell you who they’re going to vote for Best Actor.
+ - I’m trying to work only with established, respected directors. I took a lot of bad scripts and worked for a lot of lazy directors, and it was discouraging to go to the screenings and see that the director had added nothing, the editor had added nothing, there was nothing to see.
+ - I don’t see myself as anything. I just wander around getting on with my life.
+ - I just work in order to improve myself as an actor which is what I’ve always done.
+ - I spent my entire time reading books and going to the cinema, just to escape.
+ - My dialogue coach said to do a Texas accent, you lean on the next word, and that was the clue to me.
+ - I have enough money not to do pictures ever. I’m seventy years old. I don’t want to get up at 6:30 in the morning and learn ten pages of dialogue to do with a bunch of creeps I don’t like. It’s gotta be fun for me.
+ - Theater acting is an operation with a scalpel, movie acting is an operation with a laser.
+ - I just love to go home, no matter where I am, the most luxurious hotel suite in the world, I love to go home.
+ - I don’t think human beings are bad. They’re weak. And that’s what makes ’em bad.
+ - I think life has got to develop as you get older, and I don’t want to be wandering along doing the same old thing. I want more out of life.
+ - I’ve never been out with a married woman, never. I respect others properties.
+ - About Superman and Batman: the former is how America views itself, the latter, darker character is how the rest of the world views America.
+ - The greatest luxury is not driving. I didn’t own a car until I was 30, and that was a Rolls-Royce, so it was cheaper to insure a chauffeur. I never want to drive again. My mind is always on other things. I hate parking, and I’m very short-tempered and would get road rage, I’m sure.
+ - I wouldn’t make an anti-American film. I’m one of the most pro-American foreigners I know. I love America and Americans.
+ - In my opinion, everybody is getting older and older. We have a great deal of dementia because nobody grew old enough to get it.
+ - I don’t have to work, really, but I do enjoy working, and I do enjoy getting paid.
+ - I had an extraordinary belief in myself. For years people told me to give it up and even though I was poverty- stricken, I never thought I should give it up.
+ - For Cider House Rules, I was doing a New England accent.
+ - My understanding of women goes only as far as the pleasures.
+ - I enjoy making people laugh. The trick is to tell them jokes against yourself. If you praise yourself, your stories aren’t funny.
+ - Not only is acting more than a part-time job, it’s more than a full-time job. It’s a full-time obsession.
+ - I’m very much more choosy now. I do stuff that I really, really, really like.
+ - I have been rich and I have been poor. I know which one I prefer.
+ - Use the difficulties – if you can’t avoid them.
+ - Acting is not a competition; everything must be done for the good of the film or else everybody loses.
+ - It’s funny, people ask me, ‘What would you consider the most romantic track on your record Mr Caine?’ And I say ‘Swollen’ by Bent, and they say ‘I think he’s off his rocker!’
+ - English is clipped in speech. Texas is exactly the opposite.
+ - If you really want to become an actor, but only providing that acting doesn’t interfere with your golf game, political ambitions and your life, you don’t want to become an actor. Not only is acting more than a part time job, it’s more than a full time job. It’s a full time obsession.
+ - I want to stick around with the big boys. I don’t want to be in the old folks home.
+ - First of all, I choose the great roles, and if none of these come, I choose the mediocre ones, and if they don’t come, I choose the ones that pay the rent.
+ - I’ve never taken drugs – if you take a drug of your choice, you get some ecstatic feeling.
+ - If someone is very upper-class, you have a stereotype of him which is probably true. If someone has a working-class accent, you have no idea who you’re talking to.
+ - That to me is what my idea of film acting should be. There shouldn’t be any acting. You should just be watching a real person.
+ - We should vote for the welfare of the country, not for the welfare of the party.
+ - When I was 6 my father went to fight in the war, so he was my big hero. I thought he was the greatest thing.
+ - Just because I have made a point of never losing my accent it doesn’t mean I’m an eel-and-pie yob.
+ - To be a movie star, you have to carry a movie. And to carry a movie where you play the title role is the supreme example.
+ - I didn’t know what I knew. I wasn’t aware of what I knew.
+ - I’m hoping there’s an afterlife. As you get older, you hope even more fervently.
+ - My view is that you should always remake failures because then you’ve got nowhere to go but up.
+
+198 quotes

@@ -1,0 +1,114 @@
+ - The bridge between reality and a dream is work.
+ - Try and fail, but never fail to try!
+ - Follow your dreams, quit your job.
+ - Follow no path. Make your own.
+ - Be brave, fight for what you believe in and make your dreams your reality.
+ - Some people believe in God. I believe in music. Some people pray. I turn up the radio.
+ - Sometimes to find the light, you have to go through the deepest darkness.
+ - Put one foot in front of the other. Keep marching forward, even when doubt, fear, and failure all come knocking at your door.
+ - Dreams are the result of a million choices, a billion failures, and a few successes.
+ - Learn to laugh at your problems, cause everybody else does.
+ - Dream big while you sleep, and even bigger when you’re awake.
+ - Some people come into our lives, leave footprints in our hearts and minds and we are never the same again.
+ - I’m not insane, I’m voluntarily indifferent to conventional rationality.
+ - If you truly believe that your dreams will come a reality the possibilities are endless.
+ - I tried to be someone else, but nothing seemed to change. I know now, this is who I really am inside. I’ve finally found myself, fighting for a chance. I know now, this is who I really am.
+ - You have to do the work. You have to make the opportunity. It doesn’t find you, you find it.
+ - Be the person you want to be, not the person you have to be.
+ - I’m a vegan. I respect the environment, and I do my best to spread the importance of such an issue.
+ - Just jump in with both feet and live your life, no matter what.
+ - It’s okay to stand on your own two feet and to be different, to be yourself.
+ - Pray to your God, open your heart. Whatever you do, don’t be afraid of the dark.
+ - Don’t ask for anyone’s permission to follow your dreams.
+ - To find yourself, you must first lose yourself.
+ - Remember; the only way to fight negativity is with positivity. Stay focused on the dreams.
+ - Love isn’t who you can see yourself with. It’s who you can’t see yourself without.
+ - Impossible is possible if you put your mind into it and don’t give up.
+ - I don’t care if someone remembered me. Life is for living and memories for those who we leave behind.
+ - The challenges and how we deal with them: that’s what defines us. Problems don’t define us; it’s our ability to overcome and transform.
+ - Never think about something wrong you did in the past, always look forward with your head up high; have no regrets.
+ - Don’t ever be scared to dream because everything is possible, no matter how bizarre. I was and still am a dreamer and that’s what made me become the person I am today.
+ - It’s about getting to a point in your life where you’re ready to let go and move on and become the better version of yourself.
+ - Sometimes you have to fight in order to be free.
+ - I fail enough and I beat myself up enough. I don’t need anybody else to do it for me.
+ - Music should never be a job. It should be your hopes, your dreams and everything you believe in.
+ - Sometimes you fall in love with a song ’cause it’s new, it’s exciting and you just birthed it. Then you fall out of love sometimes. But the strongest songs always survive and you come back and you fall in love all over again.
+ - Let’s try and fail because through failure you learn.
+ - The purpose of life is to live your dreams, you should never smother your wishes.
+ - Happiness is like the weather. Sometimes it’s rainy, sometimes it’s sunny, and you gotta just go through and accept what’s there in front of you.
+ - It’s not only music. It’s not only art. It’s a community. It’s a sense of having a place to belong.
+ - The truth is, that I feel alone most of the time. I stopped believing in happiness, but I know that music makes me feel good.
+ - I think what a big part of 30 Seconds to Mars is, it’s not only music, it’s not only art, it’s a community. It’s a sense of having a place to belong. And not everybody will understand it, and that’s ok, it’s just for the people that do.
+ - I just think it’s really important to be yourself and not trying to be something you’re not.
+ - Labels are for cans, not for people.
+ - Don’t you just want to make something that lives forever? Something that’s phenomenal, something that’s great, something that’s undeniable? That touches the core of every person that hears it?
+ - I win and succeed only ’cause I fail so much. I fail all the time. I wrote 70 songs just to have 12 good ones. For the video I shot 60 hours of footage. 60 hours! To come up with an 8 minute video. So really I only win ’cause I fail.
+ - Live your life for anyone but yourself.
+ - In some ways you become who you really are, if you work hard enough on who you wish to be.
+ - I like to employ the power of no. We all want to say yes, because with yes comes so much opportunity, but with the power of no comes focus and engagement.
+ - My mother is very, very smart and commands respect because she has a lot of respect for herself.
+ - It’s nice to be able to communicate digitally with people around the world.
+ - I understand that coffee and cigarettes are cool, fashionable and all that. But agree the tea with cookies still taste better.
+ - Music is subjective to everyone’s unique experience.
+ - Your heart is like glass, if it breaks, it’s pretty hard to put it back together again.
+ - It was great growing up a nomad. To this day I still love hiking and back packing.
+ - It’s funny. I don’t like onions but I like onion rings. What’s up with that?
+ - If you are willing to walk the path of a dreamer, then anything is possibly.
+ - I’m pretty masochistic. I kill myself for my craft – Literally.
+ - This is a song called ‘The Kill.’ But don’t be scared, it’s a nice song. About losing your mind.
+ - I’d prefer 1,000 followers, friends, and fans that actually meant something, rather than 10 million that weren’t engaged.
+ - My proudest moment was when I was in high school, some jackass tried to give me a wedgy. I came prepared, I went commando. It tickled.
+ - I only did karaoke once in my life. It was with Courtney Love and it was a total disaster. She pulled me on stage in front of 500 people at a wedding. I’d never done karaoke before.
+ - I’m terminally dissatisfied. That’s probably part of being an artist.
+ - I get a terminal dissatisfaction on films. If I was bad in one scene, it’s impossible to let go. And it can make or break my day. If I drank, I would probably drink a lot.
+ - On the one hand, how many people do you need to love you before you feel OK about yourself?
+ - I’m constantly failing, but not upset about it. I think there’s a great deal to learn from that.
+ - I could be your worst enemy. But i would rather have friends then enemies, and i go to great length to make that the case. There’s much more reward in having friends.
+ - He’s an innocent in a lot of ways. He’s a very simple person who really doesn’t have the resources or the strength, ultimately, to handle the situation.
+ - I used to like to break into other people’s houses and sit in their rooms. I found it very comforting to be in someone’s empty house.
+ - When advertising is great, it’s transcendent. It’s art.
+ - It’s not like I’m hanging out at shopping malls or going to celebrity golf tournaments. I’m so in my own little world. I got my dog, my music, my brother, a couple of friends.
+ - I really enjoy learning about other people and I’m really curious about other people.
+ - Art is really predicated upon the experiences that you’ve had in your life. You only have to share what you’ve consumed.
+ - I think I remember from the offset I said, ‘I’ve visited this territory. This isn’t for me.’ And then I read the script and I said, ‘You know, this is completely something different. This is a whole new life.’
+ - I don’t want to be some actor talking about how he wants to be a musician. It’s something I’m really passionate about and I don’t want to be spouting off at the mouth about something before it’s out there and can speak for itself.
+ - Well, there was a time when we used to sacrifice goats, but then we all became vegans, so we’ve been sacrificing tofu before the shows!
+ - A very common thing these days is people show up and they ask us in the band to sign with a Sharpie right on their skin and they go get it tattooed the next day. Then they’ll show up at another show and they’ll have their tattoo.
+ - So I started to learn Russian and I was one of those probably way too eager, annoying young actor kids who was trying to change all my lines to Russian, much to the dismay of the director and Nic Cage.
+ - No, I don’t wear contacts, and contrary to what some people have said, I do not have a glass eye.
+ - I kinda have the opposite of ADD. I have a hyper-focused disorder, where if there’s a given task in front of me I really concentrate on that.
+ - I learned early on how to treat women by the examples that were set around me.
+ - Louisiana is a place that you escape, not a place that you leave.
+ - I never think people are cheeering for us. In fact, i don’t really hear them at all.
+ - I never sing under the shower, I keep it for the stage.
+ - As artists, it’s our job to delve into the uncomfortable, the difficult and the challenging.
+ - One memory I have is there were a lot of dogs at this one place and my brother got in a horrific fight with a dog and the dog bit his toe off. They became fast friends after that. He lost a toe and gained a friend.
+ - When I was a kid I was the king of mullets. If you’re wearing a rock T-shirt and you’re a fan of Rush – one of the greatest bands in the universe – you’ve got to have a mullet.
+ - High school is a dark place; I hung out with ‘freaks.’
+ - Thank God for the Italians, the most forgiving people of the world. And they sing so loud you can barely hear the music!
+ - If you’re looking for Jesus Then get on your knees.
+ - The idea that I would ever end up on David Letterman or Jay Leno is horrifying. I am such a freak in comparison to most other twenty-five-year-old guys. I have no idea what other people are thinking. I’m not really in touch.
+ - I was and I still am a dreamer, that made me the person I am today.
+ - There are some people who might look better if you smacked them in the head with a baseball bat.
+ - I like Fashion but Fashion doesn’t really like me, obviously.
+ - All of my roles have had their own unique set of challenges, and I enjoy that in some perverse, masochistic way. I’m always dying though! Maybe I have some kind of fetish.
+ - You know it’s a perverted crowd when a guy is screaming at you to take your shirt off.
+ - I was very much in my own world, never the popular kid. But I had a great family, a great brother and mother.
+ - I take computers practically apart and put them back together. I have a supercomputer I built over the years out of different computers.
+ - Professionally, I don’t necessarily have to adhere to a certain dress code. However, I think that comfort is crucial. Otherwise, you won’t be able to have fun and express yourself.
+ - You know you’re really famous when there’s rumors about you being gay.
+ - If I was ever a teen idol, I’d kill myself.
+ - I’ve always liked Saturn. But I also have some sympathy for Pluto because I heard it’s been downgraded from a planet, and I think it should remain a planet. Once you’ve given something planetary status it’s kind of mean to take it away.
+ - When you make music, you’re in really direct contact with your fans out there, so you hear all kinds of stories.
+ - I tend to just go for it, and not worry about what people think, and just really try to have fun with things.
+ - Teens are always shown as one dimensional. They’re stereotyped. When I was in high school, I cared about more than getting a date or making the team.
+ - It’s nice if people ask to use your song. You have to make a decision as an artist how you feel about that.
+ - I understand a lot of the female needs. I’m not saying I know all of them all the time though.
+ - My coolest job was when I was 12 and I was a dishwasher at the Three Pigs Bar-B-Que for $2.50 an hour. All the fleabags and stoners worked there, so that’s where I wanted to be.
+ - I think that to explore the uncomfortable and the politically incorrect is the job of the artist.
+ - No one has to give you permission to make music or make art.
+ - You’re weak. Be strong and it’s easy.
+ - All those reports that I sleep in my closet. I don’t know how people get that. People are so obsessed with what you do at home.
+ - When you are living your dreams it doesn’t feel like work, but it’s important to take some time away for yourself. It’s goot to make some time for your own company.
+
+112 quotes

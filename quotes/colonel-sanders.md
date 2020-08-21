@@ -1,0 +1,25 @@
+ - One has to remember that every failure can be a stepping stone to something better.
+ - I’m too drunk to taste this chicken.
+ - Hard work beats all the tonics and vitamins in the world.
+ - I just say the moral out of my life is don’t quit at age 65, maybe your boat hasn’t come in yet. Mine hadn’t.
+ - I’ve only had two rules. Do all you can and do it the best you can. It’s the only way you ever get that feeling of accomplishing something.
+ - I was sixty-six years old. I still had to make a living. I looked at my social security check of 105 dollars and decided to use that to try to franchise my chicken recipe. Folks had always liked my chicken.
+ - There’s no reason to be the richest man in the cemetery. You can’t do any business from there.
+ - I think a dream is just a suggestion to start something out, do something.
+ - My life isn’t over and I’m not going to sit in a rocking chair and take money from the government.
+ - I made a resolve then that I was going to amount to something if I could. And no hours, nor amount of labor, nor amount of money would deter me from giving the best that there was in me. And I have done that ever since, and I win by it. I know.
+ - The hard way builds solidly a foundation of confidence that cannot be swept away.
+ - To me, my recipes are priceless.
+ - Work is the basis of living. I’ll never retire. A man’ll rust out quicker than he’ll wear out.
+ - Don’t be against things so much as for things.
+ - You got to like your work. You have got to like what you are doing, you have got to be doing something worthwhile so you can like it – because it is worthwhile, that it makes a difference, don’t you see?
+ - A lot of learned men think people really are the food theyve eaten.
+ - Feed the poor and get rich or feed the rich and get poor.
+ - I am not too proud of having my name associated with some of my restaurants.
+ - I’ve read hundreds of cookbooks. For my money, they are the bird.
+ - There’s something inside of me that makes me want to help people, especially people who are having difficulty of some kind.
+ - Scientists are a bunch of romantics.
+ - I’ve read hundreds of cookbooks. Most of those cookbooks don’t even tell you how to get a steak ready, how to bake biscuits or an apple pie.
+ - The food I’ve liked in my time is American country cookin’.
+
+23 quotes

@@ -1,0 +1,21 @@
+ - Despite everything I’ve achieved in my life, the culinary awards, the military commendations, the honorary degrees, I have never, ever lost sight of what’s truly important. The thing that gives meaning to these triumphs. Someone to share them with. A companion. A help mate. A wife.
+ - Real meaningful endeavours, the biggies in human existence, often require the sacrifice of others.
+ - A person has three choices in life. You can swim against the tide and get exhausted, or you can tread water and let the tide sweep you away, or you can swim with the tide, and let it take you where it wants you to go.
+ - It’s just human. We all have the jungle inside of us. We all have wants and needs and desires, strange as they may seem. If you stop to think about it, we’re all pretty creative, cooking up all these fantasies. it’s like a kind of poetry.
+ - When we are conscious of our personal uniqueness and our universal nature we express ourselves creatively. In this way we fulfill our dreams and our life purpose.
+ - I just have this feeling if I take pi, well past all this static, take pi to 10 million, 20 million digits, that I’ll find something really incredible. Not just a pattern, not just an order, but a sign. A mathematical sign.
+ - Our weaknesses are divine gifts that when embraced will enable us to make our purposeful contribution to the whole, which is why we incarnated in the first place.
+ - There is nothing sadder in this world than the waste of human potential. The purpose of evolution is to raise us out of the mud, not have us grovelling in it.
+ - You’ve been listening to the adagio from Beethoven’s 7th Symphony. I think Ludwig pretty much summed up death in this one. You know, he had lost just about all his hearing when he wrote it, and I’ve often wondered if that didn’t help him tune into the final silence of the great beyond.
+ - If you’re going to be a healer, it’s not enough to read books and learn allegorical stories. you need to get your feet wet, get some clinical experience under your belt.
+ - Insight occurs when, and to the degree that, one knows oneself.
+ - I used to think of all the billions of people in the world, and of all those people, how was I going to meet the right ones The right ones to be my friends, the right one to be my husband. Now I just believe you meet the people you’re supposed to meet.
+ - By mid-November I always like to have an extra 15 pounds on me.
+ - I always admired atheists. I think it takes a lot of faith.
+ - As a doctor, as a man of science, I can tell you there is no such thing as curses Everything just happens as a question of probability. The statistical likelihood of a specific event.
+ - Sometimes the mind, for reasons we don’t necessarily understand, just decides to go to the store for a quart of milk.
+ - There is one thing that all true spirituality has in common, whether that spirituality is derived from faith, from science, from nature or from the arts – a sense of wonder.
+ - The purpose of relationships is not happiness, but transformation.
+ - There were always people like the pope. They serve a certain function, of course. They subsidize us. But, they don’t create anything and they must never be allowed to stop the artist from creating.
+
+19 quotes

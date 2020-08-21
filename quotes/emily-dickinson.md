@@ -1,0 +1,368 @@
+ - Hope is the thing with feathers that perches in the soul - and sings the tune without the words - and never stops at all.
+ - I dwell in possibility.
+ - Pardon my sanity in a world insane.
+ - That it will never come again is what makes life so sweet.
+ - Forever is composed of nows.
+ - We turn not older with years but newer every day.
+ - Truth is so rare, it is delightful to tell it.
+ - One step at a time is all it takes to get you there.
+ - I know nothing in the world that has as much power as a word. Sometimes I write one, and I look at it, until it begins to shine.
+ - Unable are the loved to die. For love is immortality.
+ - The Heart wants what it wants – or else it does not care.
+ - Those who have not found the heaven below, will fail of it above.
+ - If I read a book and it makes my whole body so cold no fire can warm me, I know that is poetry. If I feel physically as if the top of my head were taken off, I know that is poetry. These are the only ways I know it. Is there any other way?
+ - Saying nothing sometimes says the most.
+ - Life is a spell so exquisite that everything conspires to break it.
+ - Fortune befriends the bold.
+ - A wounded dear leaps the highest.
+ - Till I loved I never lived.
+ - Beauty is not caused. It is.
+ - If I can stop one heart from breaking, I shall not live in vain.
+ - The dearest ones of time, the strongest friends of the soul – BOOKS.
+ - If your Nerve, deny you – Go above your Nerve.
+ - Not knowing when the dawn will come I open every door.
+ - I am out with lanterns, looking for myself.
+ - To travel far, there is no better ship than a book.
+ - The brain is wider than the sky.
+ - Parting is all we know of Heaven, and all we need of Hell.
+ - Hold dear to your parents for it is a scary and confusing world without them.
+ - We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies.
+ - I tasted life.
+ - I’m nobody! Who are you? Are you nobody, too? Then there ’s a pair of us – don’t tell! They ’d banish us, you know. How dreary to be somebody! How public, like a frog To tell your name the livelong day To an admiring bog!
+ - Love is everything. And that’s all we know about it.
+ - This is my letter to the world That never wrote to me.
+ - There is no Frigate like a Book To take us Lands away, Nor any Coursers like a Page Of prancing Poetry – This Traverse may the poorest take Without oppress of Toll – How frugal is the Chariot That bears a Human soul.
+ - I have an appetite for silence.
+ - To live is so startling it leaves little time for anything else.
+ - Because I could not stop for death, He kindly stopped for me; The carriage held but just ourselves and immortality.
+ - I must go in, the fog is rising.
+ - Morning without you is a dwindled dawn.
+ - Behavior is what a man does, not what he thinks, feels, or believes.
+ - You can stay young as long as you learn.
+ - Bring me the sunset in a cup.
+ - I felt it shelter to speak to you.
+ - Write me of hope and love, and hearts that endured.
+ - I confess that I love him, I rejoice that I love him, I thank the maker of Heaven and Earth that gave him to me. The exultation floods me.
+ - They might not need me; but they might. I’ll let my head be just in sight; A smile as small as mine might be Precisely their necessity.
+ - I am nobody! Who are you? Are you a nobody, too?
+ - I never saw a moor, I never saw the sea; Yet know I how the heather looks, And what a wave must be. I never spoke with God, Nor visited in Heaven; Yet certain am I of the spot, As if a chart were given.
+ - A word is dead when it’s been said, some say. I say it just begins to live that day.
+ - My life closed twice before its close.
+ - But a Book is only the Heart’s Portrait- every Page a Pulse.
+ - November always seemed to me the Norway of the year.
+ - I had no time to hate, because The grave would hinder me, And life was not so ample I Could finish enmity Nor had I time to love: but since Some industry must be, The little toil of love, I thought, Was large enough for me.
+ - Where thou art, that is home.
+ - A great hope fell You heard no noise The ruin was within.
+ - Just a turn of the doorknob, and there lies freedom.
+ - In the name of the bee And of the butterfly And of the breeze, amen!
+ - After great pain, a formal feeling comes. The Nerves sit ceremonious, like tombs.
+ - I imagine therefore I belong and am free.
+ - I don’t profess to be profound; but I do lay claim to common sense.
+ - How happy is the little stone That rambles in the road alone, And doesn’t care about careers, And exigencies never fears; Whose coat of elemental brown A passing universe put on; And independent as the sun, Associates or glows alone, Fulfilling absolute decree In casual simplicity.
+ - Heart, we will forget him, You and I, tonight! You must forget the warmth he gave, I will forget the light.
+ - If you were coming in the fall, I’d brush the summer by, With half a smile and half a spurn, As housewives do a fly. If I could see you in a year, I’d wind the months in balls, And put them each in separate drawers, Until their time befalls.
+ - The lovely flowers embarrass me. They make me regret I am not a bee...
+ - Nature is a haunted house – but Art – is a house that tries to be haunted.
+ - Dogs are better than human beings because they know but do not tell.
+ - My friends are my estate. Forgive me then the avarice to hoard them!
+ - Love is anterior to life, posterior to death, initial of creation, and the exponent of breath.
+ - Unto a broken heart No other one may go Without the high prerogative Itself hath suffered too.
+ - I measure every grief I meet with narrow, probing eyes – I wonder if it weighs like mine – or has an easier size.
+ - Fame is a fickle food upon a shifting plate.
+ - The possible’s slow fuse is lit by the Imagination.
+ - Until you have loved, you cannot become yourself.
+ - One need not be a chamber to be haunted.
+ - Judge tenderly of me.
+ - Luck is not chance, it’s toil; fortune’s expensive smile is earned.
+ - The brain is wider than the sky, For, put them side by side, The one the other will include With ease, and you beside.
+ - If I read a book and it makes my whole body so cold no fire can ever warm me, I know that is poetry.
+ - That I shall love always, I argue thee that love is life, and life hath immortality.
+ - How do most people live without any thought? There are many people in the world, – you must have noticed them in the street, – how do they live? How do they get strength to put on their clothes in the morning?
+ - How much can come And much can go, And yet abide the world!
+ - The WILL is always near, dear, though the feet vary.
+ - It is better to be the hammer than the anvil.
+ - This is my letter to the world, that never wrote to me, the simple news that nature told, with tender majesty. Her message is committed, to hands I cannot see; for love of her, sweet countrymen, judge tenderly of me.
+ - An ear can break a human heart As quickly as a spear, We wish the ear had not a heart So dangerously near.
+ - I HIDE myself within my flower That wearing on your breast, You, unsuspecting, wear me too – And angels know the rest. I hide myself within my flower, That, fading from your vase, You, unsuspecting, feel for me Almost a loneliness...
+ - A little Madness in the Spring Is wholesome even for the King.
+ - Hope is a strange invention – A Patent of the Heart – In unremitting action Yet never wearing out.
+ - To lose what we have never owned might seem an eccentric bereavement, but Presumption has its own affliction as well as claim.
+ - I would paint a portrait which would bring the tears, had I canvas for it, and the scene should be – solitude, and the figures – solitude – and the lights and shades, each a solitude.
+ - The friend anguish reveals is the slowest forgot.
+ - The hearts that never lean must fall.
+ - How very sad it is to have a confiding nature, one’s hopes and feelings are quite at the mercy of all who come along; and how very desirable to be a stolid individual, whose hopes and aspirations are safe in one’s waistcoat pocket, and that a pocket indeed, and one not to be picked!
+ - The pedigree of honey does not concern the bee; A clover, any time, to him is aristocracy.
+ - The Truth never flaunted a sign.
+ - There is no Silence in the Earth – so silent As that endured Which uttered, would discourage Nature And haunt the World.
+ - People need hard times and oppression to develop psychic muscles.
+ - Nature is what we know – Yet have not art to say – So impotent our wisdom is To her simplicity.
+ - I felt a Cleaving in my Mind- As if my Brain had split- I tried to match it- Seam by Seam- But could not make it fit.
+ - I stepped from plank to plank So slow and cautiously; The stars about my head I felt, About my feet the sea. I knew not but the next Would be my final inch, – This gave me that precarious gait Some call experience.
+ - That love is all there is, Is all we know of love.
+ - My friends are my estate.
+ - Initial of Creation, and The Exponent of Earth.
+ - This World is not Conclusion. A Sequel stands beyond- Invisible, as Music- But positive, as Sound.
+ - To multiply the harbors does not reduce the sea.
+ - Wonder is not precisely knowing.
+ - Much Madness is Divinest Sense, to a Discerning Eye...
+ - I hope your rambles have been sweet, and your reveries spacious.
+ - The distance that the dead have gone Does not at first appear- Their coming back seems possible For many an ardent year.
+ - Whenever a thing is done for the first time, it releases a little demon.
+ - Unable are the Loved to die For Love is Immortality, Nay, it is Deity – Unable they that love – to die For Love reforms Vitality Into Divinity.
+ - Narcotics cannot still the tooth. That Nibbles at the soul.
+ - I cannot live with you, It would be life, And life is over there Behind the shelf.
+ - Some keep the Sabbath going to church, I keep it staying at home, with a bobolink for a chorister, and an orchard for a dome.
+ - I never saw a meme; I never saw the sea.
+ - This is the Hour of Lead- Remembered, if outlived, As freezing persons, recollect the Snow- First-Chill-then Stupor- then the letting go –.
+ - I am one of the lingering bad ones, and so do I slink away, and pause, and ponder, and ponder, and pause, and do work without knowing why – not surely for this brief world, and more sure it is not for heaven – and I ask what this message of Christ means.
+ - I had no monarch in my life, and cannot rule myself; and when I try to organize, my little force explodes and leaves me bare and charred.
+ - Take all away from me, but leave me Ecstasy, And I am richer then than all my Fellow Men-.
+ - Faith slips – and laughs, and rallies.
+ - I work to drive the awe away, yet awe impels the work.
+ - Nature, like us is sometimes caught without her diadem.
+ - Assent – and you are sane – Demur – and you’re straightaway dangerous – and handled with a chain.
+ - There is always one thing to be grateful for – that one is one’s self and not somebody else.
+ - To see her is a picture- To hear her is a tune- To know her an Intemperance As innocent as June- To know her not-Affliction- To own her for a Friend A warmth as near as if the the Sun Were shining in your Hand.
+ - The soul selects her own society, Then shuts the door; On her divine majority Obtrude no more.
+ - Drunkards of summer are quite as frequent as Drunkards of wine.
+ - Fame is a fickle food Upon a shifting plate, Whose table once a Guest, but not The second time, is set. Whose crumbs the crows inspect, And with ironic caw Flap past it to the Farmer’s corn; Men eat of it and die.
+ - I fear a Man of frugal speech – I fear a Silent Man – Haranguer – I can overtake – Or Babbler – entertain – But He who weigheth – While the Rest – Expend their furthest pound – Of this Man – I am wary – I fear that He is Grand -.
+ - Witchcraft was hung, in History, But History and I Find all the Witchcraft that we need Around us, every Day -.
+ - Exultation is the going Of an inland soul to sea Past the houses, past the headlands Into deep eternity! Bred as we, among the mountains Can the sailor understand The divine intoxication Of the first league out from land?
+ - Here is a little forest Whose leaf is ever green; Here is a brighter garden, Where not a frost has been; In its unfading flowers I hear the bright bee hum; Prithee, my brother, Into my garden come!
+ - Renunciation-is a piercing Virtue-The letting go A Presence-for an Expectation-.
+ - The bustle in a house The morning after death Is solemnest of industries Enacted upon earth, – The sweeping up the heart, And putting love away We shall not want to use again Until eternity.
+ - Old age comes on suddenly, and not gradually as is thought.
+ - The truth I do not dare to know I muffle with a jest.
+ - Pain – has an Element of Blank It cannot recollect When it begun – or if there were a time when it was not – It has no Future – but itself – Its Infinite contain Its Past – enlightened to perceive New Periods – of Pain.
+ - Within thy Grave! Oh no, but on some other flight – Thou only camest to mankind To rend it with Good night.
+ - My Life had stood – a Loaded Gun – In Corners – till a Day The Owner passed – identified – And carried Me away -.
+ - There is no frigate like a book.
+ - Suspense-is Hostiler than Death-Death- tho soever Broad, Is just Death, and cannot increase- Suspense-does not conclude-.
+ - She died – this was the way she died; And when her breath was done, Took up her simple wardrobe And started for the sun. Her little figure at the gate The angels must have spied, Since I could never find her Upon the mortal side.
+ - Prosperity Whose sources are interior. As soon Adversity A diamond overtake.
+ - A power of Butterfly must be – The Aptitude to fly Meadows of Majesty concedes And easy Sweeps of Sky -.
+ - Memory is a strange Bell – Jubilee, and Knell.
+ - The Things that never can come back, are several- Childhood-some forms of Hope-the Dead- Though Joys-like Men-may sometimes make a Journey- And still abide-.
+ - A color stands abroad on solitary hills that silence cannot overtake, but human nature feels.
+ - God is indeed a jealous God. He cannot bear to see, that we had rather not with him, but with each other play.
+ - The words the happy say Are paltry melody But those the silent feel Are beautiful-.
+ - Till the first friend dies, we think our ecstasy impersonal, but then discover that he was the cup from which we drank it, itself as yet unknown.
+ - There is a pain so utter, it swallows being up; The covers the abyss with a trance So memory can step around, across, upon it.
+ - The Supernatural is only the Natural disclosed.
+ - Portraits are to daily faces As an evening west To a fine, pedantic sunshine In a satin vest.
+ - To shut your eyes is to travel.
+ - A death-blow is a life-blow to some Who, till they died, did not alive become; Who, had they lived, had died, but when They died, vitality begun.
+ - My friends are my estate. Forgive me then the avarice to hoard them. They tell me those who were poor early have different views of gold. I don’t know how that is. God is not so wary as we, else He would give us no friends, lest we forget Him.
+ - It is true that the unknown is the largest need of the intellect, though for it, no one thinks to thank God.
+ - We both believe, and disbelieve a hundred times an hour, which keeps believing nimble.
+ - Death is a supple suitor, that wins at last. It is a stealthy wooing; conducted first by pallid innuendos and dim approach, but brave at last with bugles.
+ - I was almost persuaded to be a Christian. I thought I never again could be thoughtless and worldly. But I soon forgot my morning prayer or else it was irksome to me. One by one my old habits returned and I cared less for religion than ever.
+ - MY river runs to thee: Blue sea, wilt welcome me? My river waits reply. Oh sea, look graciously! I ’ll fetch thee brooks From spotted nooks, – Say, sea, Take me!
+ - The poet lights the light and fades away. But the light goes on and on.
+ - The older I grow the more do I love spring and spring flowers. Is it so with you?
+ - A Bayonet’s contrition is nothing to the dead.
+ - The appetite for silence is seldom an acquired taste.
+ - Does not Eternity appear dreadful to you. I often get to thinking of it and it seems so dark to me that I almost wish there was no Eternity. To think that we must forever live and never cease to be. It seems as if Death would be a relief to so endless a state of existence.
+ - We meet no Stranger, but Ourself.
+ - Action is redemption.
+ - What will the solemn Hemlock- What will the Oak tree say?
+ - The mountain at a given distance In amber lies; Approached, the amber flits a little, – And that’s the skies!
+ - A Letter is a Joy of Earth – It is denied the Gods.
+ - A letter always seemed to me like immortality because it is the mind alone without corporeal friend.
+ - Safe Despair it is that raves- Agony is frugal. Puts itself severe away For its own perusal.
+ - She rose to his requirement, dropped The playthings of her life To take the honorable work Of woman and of wife.
+ - Speech is one symptom of affection; and silence one; the perfect communication is heard of none.
+ - We must be careful what we say. No bird resumes its egg.
+ - Behold this little Bane- The Boon of all alive- As common as it is unknown The name of it is Love.
+ - Sunrise: day’s great progenitor.
+ - Such is the force of Happiness – The Least can lift a ton Assisted by its stimulus.
+ - No ladder needs the bird but skies To situate its wings, Nor any leaders grim baton Arraigns it as it sings.
+ - Existence has overpowered Books. Today I slew a Mushroom.
+ - The sweets of pillage can be known To no one but the thief, Compassion for integrity Is his divinest grief.
+ - LOOK back on time with kindly eyes, He doubtless did his best; How softly sinks his trembling sun In human nature’s west!
+ - Faith-is the pierless bridge supporting what We see unto the scene that we do not.
+ - We never know we go when we are going- We jest and shut the Door- Fate-following-behind us bolts it- And we accost no more-.
+ - Nothing is the force that renovates the World.
+ - I would like more sisters, that the taking out of one, might not leave such stillness.
+ - Eden is that old-fashioned house we dwell in every day Without suspecting our abode until we drive away.
+ - God, keep me from what they call ‘households,’
+ - What fortitude the Soul contains, That it can so endure The accent of a coming Foot- The opening of a Door.
+ - By Chivalries as tiny, A Blossom, or a Book, The seeds of smiles are planted- Which Blossom in the dark.
+ - I took one Draught of Life – I’ll tell you what I paid – Precisely an existence – The market price, they said.
+ - I like a look of Agony, because I know it’s true – men do not sham Convulsion, nor simulate, a Throe.
+ - Apparently with no surprise To any happy Flower The Frost beheads it at its play – In accidental power – The blonde Assassin passes on – The Sun proceeds unmoved To measure off another Day For an Approving God.
+ - Each that we lose takes a part of us; A crescent still abides, Which like the moon, some turbid night, Is summoned by the tides.
+ - They say that ‘home is where the heart is.’ I think it is where the house is, and the adjacent buildings.
+ - They address an Eclipse every morning, whom they call their “Father.”
+ - Will you tell me my fault, frankly as to yourself, for I had rather wince, than die. Men do not call the surgeon to commend the bone, but to set it, Sir.
+ - How lucious lies the pea within the pod.
+ - You cannot fold a flood and put it in a drawer, because the winds would find it out and tell your cedar floor.
+ - I miss the grasshoppers much, but suppose it is all for the best. I should become too much attached to a trotting world.
+ - The Pleading of the Summer – That other Prank – of Snow – That Cushions Mystery with Tulle, For fear the Squirrels – know.
+ - Is Bliss then, such Abyss, I must not put my foot amiss For fear I spoil my shoe? I’d rather suit my foot Than save my Boot – For yet to buy another Pair is possible, At any store – But Bliss, is sold just once. The Patent lost None buy it any more –.
+ - The Heart is the Capital of the Mind – The Mind is a single State – The Heart and the Mind together make A single Continent – One – is the Population – Numerous enough – This ecstatic Nation Seek – it is Yourself.
+ - Beauty crowds me till I die. Beauty, mercy have on me! Yet if I expire to-day Let it be in sight of thee!
+ - I do not like the man who squanders life for fame; give me the man who living makes a name.
+ - There’s a certain slant of light, On winter afternoons, That oppresses, like the weight Of cathedral tunes.
+ - I cling to nowhere until I fall – the crash of Nothing...
+ - Grant me, O Lord, a sunny mind-Thy windy will to bear!
+ - I started early, took my dog, And visited the sea; The mermaids in the basement Came out to look at me.
+ - A Murmur in the Trees – to note – Not loud enough – for Wind – A Star – not far enough to seek – Nor near enough – to find.
+ - I wonder if it hurts to live, And if they have to try, And whether, could they choose between, They would not rather die.
+ - Love can do all but raise the Dead.
+ - A Word that Breathes Distinctly Has not the Power to Die.
+ - To be alive is power; existence in itself; without a further function; omnipotence.
+ - The past is not a package one can lay away.
+ - I had a terror-since September -I could tell to none-and so I sing, as the Boy does by the Burying Ground-because I am afraid.
+ - THE soul should always stand ajar, That if the heaven inquire, He will not be obliged to wait, Or shy of troubling her. Depart, before the host has slid The bolt upon the door, To seek for the accomplished guest, – Her visitor no more.
+ - Sweet Skepticism of the Heart That knows and does not know And tosses like a Fleet of Balm Affronted by the snow.
+ - Home is the definition of God.
+ - If fame belonged to me, I could not escape her; if she did not, the longest day would pass me on the chase, and the approbation of my dog would forsake me.
+ - For each ecstatic instant We must an anguish pay In keen and quivering ratio To the ecstasy.
+ - The Morning after Woe- Tis frequently the Way- Surpasses all that rose before- For utter Jubilee-.
+ - Our journey had advanced; Our feet were almost come To that odd fork in Being’s road, Eternity by term.
+ - You remember my ideal cat has always a huge rat in its mouth, just going out of sight – though going out of sight in itself has a peculiar pleasure.
+ - It is finished, is never said of us.
+ - Opinion is a fitting thing but truth outlasts the sun – if then we cannot own them both, possess the oldest one.
+ - To lose ones faith-surpass The loss of an Estate- Because Estates can be Replenished- faith cannot-.
+ - My business is circumference.
+ - To possess is past the instant; we achieve the joy, immortality contented, were anomaly.
+ - To fight aloud is very brave, but gallanter, I know, who charge within the bosom, the Cavalry of Woe.
+ - Enough is so vast a sweetness I suppose it never occurs.
+ - Affection is like bread, unnoticed till we starve, and then we dream of it, and sing of it, and paint it, when every urchin in the street has more than he can eat.
+ - The Spirit lurks within the Flesh Like Tides within the Sea That make the Water live, estranged What would the Either be?
+ - The career of flowers differs from ours only inaudibleness.
+ - He deposes Doom Who hath suffered him.
+ - God gave a loaf to every bird, But just a crumb to me.
+ - Afraid? Of whom am I afraid? Not death. For who is he?
+ - To make a prairie it takes a clover and one bee, One clover, and a bee, And revery. The revery alone will do, If bees are few.
+ - Drab Habitation of Whom? Tabernacle or Tomb – or Dome of Worm – or Porch of Gnome – or some Elf’s Catacomb?
+ - Life is so rotatory that the wilderness falls to each, sometime.
+ - A charm invests a face Imperfectly beheld, – The lady dare not lift her veil For fear it be dispelled. But peers beyond her mesh, And wishes, and denies, – Lest interview annul a want That image satisfies.
+ - When I state myself, as the representative of the verse, it does not mean me, but a supposed person.
+ - Not one of all the purple host Who took the flag to-day Can tell the definition So clear of victory, As he, defeated, dying, On whose forbidden ear The distant strains of triumph Break agonized and clear.
+ - Love is done when Loves begun, Sages say, But have Sages known?
+ - My best Acquaintances are those With Whom I spoke no Word.
+ - My only sketch, profile, of Heaven is a large blue sky, and larger than the biggest I have seen in June – and in it are my friends – every one of them.
+ - I hope you love birds too. It is economical. It saves going to heaven.
+ - September’s Baccalaureate A combination is Of Crickets – Crows – and Retrospects And a dissembling Breeze That hints without assuming – An Innuendo sear That makes the Heart put up its Fun And turn Philosopher.
+ - That short, potential stir That each can make but once, That bustle so illustrious Tis almost consequence, Is the eclat of death.
+ - Remorse is memory awake.
+ - Some Arrows slay but whom they strike – But this slew all but him – Who so appareled his Escape – Too trackless for a Tomb.
+ - A shady friend for torrid days Is easier to find Than one of higher temperature For frigid hour of mind.
+ - Truth – is as old as God –...
+ - Love is its own rescue; for we, at our supremest, are but its trembling emblems.
+ - Common sense is almost as omniscient as God.
+ - The sun just touched the morning; The morning, happy thing, Supposed that he had come to dwell, And life would be all spring.
+ - Love can do all but raise the Dead I doubt if even that From such a giant were withheld Were flesh equivalent But love is tired and must sleep, And hungry and must graze And so abets the shining Fleet Till it is out of gaze.
+ - I could not stop for death and he did not stop for me.
+ - Why should we censure Othello when the Criterion Lover says, “Thou shalt have no other Gods before Me”?
+ - So proud she was to die It made us all ashamed That what we cherished, so unknown To her desire seemed. So satisfied to go Where none of us should be, Immediately, that anguish stooped Almost to jealousy.
+ - Pain has an element of blank.
+ - They say that “Time assuages” – Time never did assuage – An actual suffering strengthens As Sinews do, with age – Time is a Test of Trouble – But not a Remedy – If such it prove, it prove too There was no Malady.
+ - It is essential to the sanity of mankind that each one should think the other crazy – a condition with which the cynicism of human nature so cordially complies, one could wish it were a concurrence upon a subject more noble.
+ - He ate and drank the precious Words, his Spirit grew robust; He knew no more that he was poor, nor that his frame was Dust.
+ - A soft Sea washed around the House A Sea of Summer Air And rose and fell the magic Planks That sailed without a care – For Captain was the Butterfly For Helmsman was the Bee And an entire universe For the delighted crew.
+ - My love for those I love – not many – not very many, but don’t I love them so?
+ - How softly summer shuts, without the creaking of a door...
+ - I think Heaven will not be as good as earth, unless it bring with it that sweet power to remember, which is the staple of Heaven here.
+ - Inebriate of air am I, And debauchee of dew, Reeling, through endless summer days, From inns of molten blue.
+ - God’s little Blond Blessing we have long deemed you, and hope his so-called Will will not compel him to revoke you.
+ - Life is the finest secret. So long as that remains, we must all whisper.
+ - The vastest earthly Day Is shrunken small By one Defaulting Face Behind a Pall.
+ - Heavenly Father – take to thee The supreme iniquity Fashioned by thy candid Hand In a moment contraband – Though to trust us seem to us More respectful – We are Dust – We apologize to thee For thine own Duplicity.
+ - Spring’s first conviction is a wealth beyond its whole experience.
+ - I lost a world the other day. Has anybody found? You’ll know it by the rows of stars around it’s forehead bound. A rich man might not notice it; yet to my frugal eye of more esteem than ducats. Oh! Find it, sir, for me!
+ - The truth dazzles gradually, or else the world would be blind.
+ - Looking at Death, is Dying –...
+ - Good times are always mutual; that is what makes good times.
+ - Time is short and full, like an outgrown Frock – .
+ - To venerate the simple days Which lead the seasons by, Needs but to remember That from you or I They may take the trifle Termed mortality!
+ - Mirth is the Mail of Anguish –.
+ - At least to pray is left – is left Oh Jesus – in the Air – I know not which thy chamber is – I’m knocking everywhere.
+ - Love is like life-merely longer.
+ - You are nipping in the bud fancies which I let blossom. The shore is safer, but I love to buffet the sea – I can count the bitter wrecks here in these pleasant waters, and hear the murmuring winds, but oh, I love the danger!
+ - Of Consciousness, her awful Mate. The Soul cannot be rid – as easy the secreting her behind the Eyes of God.
+ - To die before one fears to die may be a boon.
+ - The Spider as an Artist Has never been employed- Though his surpassing Merit Is freely certified.
+ - I cannot help esteem The ‘Bird within the Hand’ Superior to the one The ‘Bush’ may yield me Or may not Too late to choose again.
+ - A Deed knocks first at Thought And then – it knocks at Will – That is the manufacturing spot.
+ - So few that live have life...
+ - Belshazzar had a letter, – He never had but one; Belshazzar’s correspondence Concluded and begun In that immortal copy The conscience of us all Can read without its glasses On revelation’s wall.
+ - You are out of the way of temptation and out of the way of the tempter – I didn’t mean to make you wicked – but I was – and am – and shall be – and I was with you so much that I couldn’t help contaminate.
+ - Celebrity is the chastisement of merit and the punishment of talent.
+ - Vinnie rocks her Garden and moans that God won’t help her. I suppose he is too busy getting angry with the Wicked every day.
+ - Find ecstasy in life; the mere sense of living is joy enough.
+ - Expectation is contentment – Gain satiety.
+ - Endow the Living – with the Tears – You squander on the Dead.
+ - Longing, it may be, is the gift no other gift supplies.
+ - Dying is a wild night and a new road.
+ - Not to discover weakness is The Artifice of strength.
+ - Dare you see a Soul at the White Heat?
+ - A dim capacity for wings demeans the dress I wear.
+ - The things of which we want the proof are those we know the best.
+ - Wild Nights – Wild Nights! Were I with thee Wild Nights should be Our luxury! Futile – the winds – To a heart in port – Done with the compass – Done with the chart! Rowing in Eden – Ah, the sea! Might I moor – Tonight – In thee!
+ - Beauty is not caused, it is; Chase it and it ceases, Chase it not and it abides...
+ - How strange that nature does not knock, and yet does not intrude!
+ - You left me boundaries of pain Capacious as the sea, Between eternity and time, Your consciousness and me.
+ - The steeples swam in amethyst, the news like squirrels swam.
+ - When he tells us about his Father, we distrust him. When he shows us his Home, we turn away, but when he confides to us that he is acquainted with grief, we listen, for that also is an acquaintance of our own.
+ - The only secret people keep is immortality.
+ - Tis not that dieing hurts us so- tis living- hurts us more.
+ - Portrait The world spreads out on either side no farther than the heart is wide.
+ - His mind of man, a secret makes I meet him with a start he carries a circumference in which I have no part.
+ - I do not know the man so bold He dare in lonely Place That awful stranger Consciousness Deliberately face-.
+ - Heaven is so far of the mind that were the mind dissolved – the site of it by architect could not again be proved.
+ - The power to console is not within corporeal reach – though its attempt is precious.
+ - You’ll find it-when you try to die- The Easier to let go- For recollecting such as went- You could not spare-you know.
+ - I hope you’re very careful working, eating and drinking when the heat is so great – there are temptations there which at home you are free from – beware the juicy fruits, and the cooling ades, and cordials, and do not eat ice-cream, it is so very dangerous.
+ - When everything that ticked has stopped, and space stares, all around, or grisly frosts, first autumn morns, repeal the beating ground.
+ - Had we less to say to those we love, perhaps we should say it oftener.
+ - A precious, mouldering pleasure ’t is, to meet an antique book, In just the dress his century wore; A privilege I think.
+ - Prayer is the little implement through which men reach; where presence is denied them.
+ - How frugal is the chariot that bears a human soul.
+ - One need not be a chamber to be haunted; One need not be a house; The brain has corridors surpassing Material place.
+ - Finite to fail, but infinite to venture.
+ - His Cheek is his Biographer- As long as he can blush.
+ - The Past is such a curious Creature To look her in the Face A Transport may receipt us Or a Disgrace-.
+ - I do not feel I could give up all for Christ, were I called to die.
+ - It is easy to work when the soul is at play.
+ - How odd that girl’s life looks Behind this soft eclipse! I think that earth seems so To those in heaven now. This being comfort, then That other kind was pain; But why compare? I’m wife! stop there!
+ - Hope is a thing with feathers.
+ - To see the Summer Sky Is Poetry, though never in a Book it lie – True Poems flee –.
+ - Success is counted sweetest by those who never succeed.
+ - God’s unique capacity is too surprising to surprise.
+ - Tell all the Truth but tell it slant – Success in Circuit lies Too bright for our infirm Delight The Truth’s superb surprise As Lightning to the Children eased With explanation kind The Truth must dazzle gradually Or every man be blind –.
+ - You ask of my companions. Hills, sir, and the sundown, and a dog as large as myself.
+ - Nothing more do I ask than to share with you the ecstasy and sacrament of my life.
+ - The soul should always stand ajar, ready to welcome the ecstatic experience.
+ - If I feel physically as if the top of my head were taken off, I know that is poetry.
+ - When a Lover is a Beggar Abject is his Knee. When a Lover is an Owner Different is he...
+ - Publication – is the auction of the mind...
+ - Experiment has a stimulus which withers its fear.
+ - To make a prairie it takes a clover and one bee, -.
+ - Beauty crowds me till I die.
+ - Those who lift their hats shall see Nature as devout do God.
+ - We outgrow love like other things and put it in a drawer, till it an antique fashion shows like costumes grandsires wore.
+ - When we think of his lone effort to live and its bleak reward, the mind turns to the myth “for His mercy endureth forever,” with confiding revulsion.
+ - Angels in the early morning may be seen the dews among. Stooping, plucking, smiling, flying. Do the buds to them belong?
+ - Fame is a bee It has a song – It has a sting – Ah, too, it has a wing.
+ - They say that God is everywhere, and yet we always think of Him as somewhat of a recluse.
+ - These are the days when birds come back, a very few, a Bird or two, to take a backward look.
+ - There is no Frigate like a book to take us lands away nor any coursers like a page of prancing Poetry.
+ - I dwell in Possibility A fairer house than Prose More numerous of Windows Superior – for Doors.
+ - So instead of getting to Heaven, at last – I’m going, all along.
+ - Earth is a merry damsel, and heaven a knight so true.
+ - I see thee better in the dark I do not need a light.
+ - Faith is a fine invention When gentlemen can see, But microscopes are prudent In an emergency.
+ - His Labor is a Chant – His Idleness -a Tune – Oh, for a Bee’s experience Of Clovers, and of Noon!
+ - If Aims impel these Astral Ones The ones allowed to know Know that which makes them as forgot As Dawn forgets them now.
+ - The minister today preached about death and judgment, and what would become of those who behaved improperly – and somehow it scared me. He preached such an awful sermon I didn’t think I should ever see you again until the Judgment Day. The subject of perdition seemed to please him somehow.
+ - You cannot put a fire out! A thing that can ignite can go itself- without a flame- E’en through the darkest night!
+ - A Toad, can die of Light – Death is the Common Right Of Toads and Men.
+ - This so much joy! This so much joy! If I should fail, what poverty! And yet, as poor as I Have ventured all upon a throw; Have gained! Yes! Hesitated so this side the victory!
+ - To ignore or use silence is a cruel tool. Hence this quote: Silence is all we dread; there’s ransom in a voice; but silence is infinity.
+ - I’ll tell you how the Sun rose.
+
+366 quotes

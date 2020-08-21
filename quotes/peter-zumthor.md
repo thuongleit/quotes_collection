@@ -1,0 +1,22 @@
+ - Architecture is not about form.
+ - I think space, architectural space, is my thing. It’s not about facade, elevation, making image, making money. My passion is creating space.
+ - Architecture is exposed to life. If its body is sensitive enough, it can assume a quality that bears witness to past life.
+ - When I start, my first idea for a building is with the material. I believe architecture is about that. It’s not about paper, it’s not about forms. It’s about space and material.
+ - Normally, architects render a service. They implement what other people want. This is not what I do. I like to develop the use of the building together with the client, in a process, so that as we go along we become more intelligent.
+ - When I concentrate on a specific site or place for which I am going to design a building, I try to plumb its depths, its form, its history and its sensuous qualities.
+ - If, early on, you know how things are put together, then you can build. The architect is in charge of making – he is not an artist.
+ - My relationship to plants becomes closer and closer. They make me quiet; I like to be in their company.
+ - In order to design buildings with a sensuous connection to life, one must think in a way that goes far beyond form and construction.
+ - If you’re lucky, and a building succeeds, the real product has many more dimensions than you can ever imagine. You have the sun, the light, the rain, the birds, the feel.
+ - I’ve said goodbye to the overworked notion that architecture has to save the world.
+ - In a society that celebrates the inessential, architecture can put up a resistance, counteract the waste of forms and meanings and speak its own language.
+ - The bottom line may be that my inventing buildings is, indeed, a very private kind of activity. But it’s done to be shared. It is comforting and consoling. From the reactions I get I can see I’m not doing something strange.
+ - Small museums are great. Big museums are a drag.
+ - My buildings should have an emotional core –a space which, in itself, has an emotional nice feeling.
+ - I need a close contact to the client, whoever it is, and a commitment of the client to go out and do a process together. I want to do the best for him. I need his respect and his patience. I want to work with a sophisticated person who’s interested in a good building and not in my name.
+ - What I try to do is the art of building, and the art of building is the art of construction; it is not only about forms and shapes and images.
+ - There is still a real need for good quality architecture, not paper architecture, but the real stuff.
+ - I think the chance of finding beauty is higher if you don’t work on it directly. Beauty in architecture is driven by practicality. This is what you learn from studying the old townscapes of the Swiss farmers.
+ - I grew up in a craftsman’s home, where things were done with our own hands. I did cabinetmaking for four years and I hated it.
+
+20 quotes

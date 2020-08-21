@@ -1,0 +1,28 @@
+ - I never really like to skate in an empty ice rink; I always need the attention of an audience.
+ - I know this is maybe naive, but one day I hope there will be peace in the world. Maybe one day the flowers will come back.
+ - It’s hard work to make a four-minute program look effortless and elegant.
+ - I can’t say, ‘It doesn’t matter if you win or lose.’ It’s not true. You go in to win.
+ - Figure skating is a mixture of art and sport.
+ - Almost nothing is presented to you on a silver platter. You have to really work for it.
+ - Sometimes, success almost haunts you. You want to be the best at everything you do and know you have to work hard.
+ - Every man prefers to look at a well-shaped woman instead of a rubber ball.
+ - I was the very first athlete in East Germany allowed to go professional.
+ - Skating taught me to set a goal and to block out other things and just focus on this one thing.
+ - Too many times women try to be competitive with each other. We should help support each other, rather than try to be better than each other.
+ - Money was never the motivation. It never should be in sports.
+ - As an athlete, you choose your sport and are drawn into it but your passion should never be driven by fame and fortune but a desire to create something special that people will always remember.
+ - When you reach a certain level, you live in a bubble when all you think, dream and breathe is becoming the best athlete in the world.
+ - The feeling of losing oneself in somebody’s arms, yet at the same time finding oneself there, is irreplaceable. Nothing compares to the intensity of that feeling.
+ - I learned not to depend on other people. I needed support, but it’s you who has to go out and deliver.
+ - I want to see sunrises in the mountains. You never get to see such things enough in a lifetime. I want to see more.
+ - I started the class late. The teacher said I would have to learn as much in half a year that the others learned in a year. I did it.
+ - It’s not like I didn’t do anything for 10 years and chose a new profession. I’ve been on the ice a lot. I’m not an outsider.
+ - I never had a serious injury that kept me out of a big competition. Now everyone has injuries – to their feet or their knees or their backs.
+ - I was an athlete. And I proved I didn’t win just because I was pretty. I was good, too.
+ - The desire to really compete again has been there for a long time.
+ - When I get up, I have a cup of coffee, surf the Internet, then do a half-hour run.
+ - I’m the sort of person who needs a big mountain in front of me to climb.
+ - I hope that I can maintain my skating as long as possible.
+ - When I go out on the ice, I just think about my skating. I forget it is a competition.
+
+26 quotes

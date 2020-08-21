@@ -1,0 +1,26 @@
+ - I was born to race and to win.
+ - If you don’t have the balls to brake late, that’s your problem.
+ - In racing there are always things you can learn, every single day. There is always space for improvement, and I think that applies to everything in life.
+ - I don’t aspire to be like other drivers – I aspire to be unique in my own way.
+ - Obviously I am not happy but they can throw what they want at me, I will come back stronger.
+ - You just need to be accepted for who you are and be proud of who you are and that is what I’m trying to do.
+ - I always want to be the best at what I do. As a kid, whatever I was doing, if I was playing football or whatever I was applying my energy to at the time, I always wanted to do it to the best of my abilities. And I was always interested in finding out how I could do it better.
+ - My saying is; We win and lose together. I think that really does apply to both my fans, family and the team.
+ - When I think about greatness I just know Ayrton Senna. He was great.
+ - I know my boundaries. I know the limits to the car.
+ - What people tend to forget is the journey that I had getting to Formula One. There were plenty of years where I had to learn about losing and having bad races.
+ - Formula One was a very dangerous sport. It still is dangerous. But the danger factor is also the exciting part.
+ - I always remind myself if I’m having a down day because of a bad race it’s not just me. That feeling I’m having is shared by my family, the team and my fans. When we win they feel the joy as well. That’s why I say we win and lose together, and I definitely couldn’t do it without them.
+ - Sure every driver has his value and you want to be respected but again money is not something that drives me.
+ - I don’t feel I need to come and drive the race of Lewis Hamilton’s life. I think I’ve driven pretty well this year and I plan to drive Lewis Hamilton’s best this weekend.
+ - My brother and I are always playing F1 on the PlayStation and now I am going to be in one of those cars on the games!
+ - TO be racing in Formula One with Mclaren has been the ultimate goal for me. It’s a dream come true.
+ - Nothing can really prepare you for when you get in the Formula One car. Knowing that you’re driving a multimillion-dollar car, and if you crash it it’s going to cost a lot of money, and they might not give you another chance, is scary.
+ - I can’t go to the cinema. I go to the bathroom in a petrol station and people come in there for autographs. It’s tough, but I knew that was going to be the case.
+ - I was trying to control myself because I wanted to just park the car and jump out and do cartwheels. The next dream is to win the world championship.
+ - Normally, racing drivers come from a long line of previous successful sports people.
+ - I enjoy trying to develop a car and Mercedes are one of the biggest car manufacturers in the world.
+ - That’s the great thing about today, having smartphones to stay in touch and share experiences. Knowing that whilst there may be thousands of miles between you, it’s almost like they’re there. That’s the coolest thing, and that’s how I stay in touch with the people that are important to me.
+ - My Bridgestone tire blows out on a day that Ferrari wins? Smells too convienent to me...
+
+24 quotes

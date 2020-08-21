@@ -1,0 +1,46 @@
+ - Learning a new thing is a shortcut to joy and informs your area of mastery.
+ - Scientists tracking mirror neurons noticed that a monkey will get excited not just when holding a banana, but also when seeing someone else holding a banana.
+ - Making strides in areas unencumbered by hard-won expectation feels effervescent. By switching into child-mode, shuffling the cortex, we remember our innocence, when we knew less. These are the essentials of continued aesthetic discovery.
+ - As a community of artists, we might just keep safe each other’s love affair.
+ - Play is your route to mastery.
+ - Make a searching and fearless inventory of your creative curiosity.
+ - Read in order to write, but paint in order to paint.
+ - Artists and their subjects are the star-crossed lovers of the world. They recognize each other on impact.
+ - Half of the pleasure of painting and feeling the joy of the creative act is sharing it with others and the feeling of connection. It could just be the colour. But it is something that someone other than you has seen and felt. It is momentous. It is magic.
+ - You need to paint with enough assurance and confidence to know you can do whatever you like.
+ - Art begins when an observer’s sensibilities engage with the understatements of a calculating craftsman.
+ - Refreshing failures roll off the travel easel like ants from a picnic blanket.
+ - Joy is my energy and energy is my powerhouse.
+ - Going beyond one’s backyard grants one perspective.
+ - The ‘wandering studio’ gathers and stores experiences, takes chances with the unfamiliar and requires a measure of self-trust. Mistakes are part of the change of scene.
+ - I value the momentum of making the list and the drive to tick. Sometimes I add stuff I’ve already accomplished so I can get going on my feelings of accomplishment.
+ - Ideas bubble differently when we’re forced to inquire about the obvious.
+ - Learn from the greats, and expose yourself to better work.
+ - A millionaire is a person who is free, who does what she loves, who has unlimited materials, her choice of tools, abundance, inspiration, freedom and an inflated sense of entitlement to have, create and get more.
+ - Things we do regularly become buried with habits, and we lose the ability to extract their powers to inspire.
+ - Having a favorite color is like having a favorite lung.
+ - Be artistic, choose taste, set an example.
+ - In the art game we do our own cooking.
+ - Rules are, like an ashtray-in-progress, meant to be thrown, poked and reshaped to suit yourself.
+ - I can hide as much as I want in my colours.
+ - The strategy of keeping the studio close, like an outbuilding five paces from the house, or in the loft next door, or with the studio on one end and the bed on the other – makes art always available.
+ - Vibrancy is only as effective as the mastering of restraint.
+ - These days, if you happen to be a poet you have to sing your words to get your ideas out.
+ - Artists live in an imperfect world where affairs of the heart must sometimes be compromised with business.
+ - Why all these years have I been agreeably turning down the stereo every time the phone rings?
+ - The Painter’s Keys is a timeless, universal guide to lifemanship masquerading as a painting blog.
+ - Art is a perfectly complete cause.
+ - New surroundings have a way of returning attention to areas that may have become rote.
+ - You are solely responsible for doing the work required to become better.
+ - You are responsible for understanding your limitations.
+ - Some artists approach their ‘why?’ intuitively, and work toward giving it a voice through their technical skill. Others begin as technicians, and develop, or discover, their ‘why?’ as they become stronger communicators.
+ - Every task is given equal importance – that way I can pick and choose my tasks based on the ebb and flow of my creative metabolism.
+ - Once you sophisticate the in-betweens, your blacks and whites can take their solos and shine.
+ - Tear-stained flops are necessary. They’re the gift you give yourself when you’re willing to fly.
+ - Pay no attention to the less courageous.
+ - To return to awareness is to notice this new world with baby-eyes, and to appreciate her strangeness.
+ - Does an artist truly need to understand her times in order to create? I’m not sure. We’re all sitting in a context. It’s a market.
+ - As artists, we bear the charge of signalling, guiding, communicating and inspiriting change.
+ - Could rivalry be a productive system?
+
+44 quotes

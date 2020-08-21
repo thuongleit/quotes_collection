@@ -1,0 +1,26 @@
+ - It’s not that I’m lazy, it’s that I just don’t care.
+ - Human beings were not meant to sit in little cubicles staring at computer screens all day, filling out useless forms and listening to eight different bosses drone on about about mission statements.
+ - It all comes down to probable cause: If you think something’s up, maybe you gotta take a look.
+ - Management don’t really have any problem at all with firing people. It’s a powerful idea that, If I’m not happy, I’ll quit. I’ll try something else!
+ - If you play your cards right things are going to happen in the long run. In the short run, it is anybody’s guess.
+ - For the really scary stuff to work at the end you have to fall in love a little bit with the family and want then to be ok. And once you get the audience to buy in on that then they care. They want them to be okay.
+ - My sister Jennifer is an Emmy winning journalist and mother of three amazing girls. She brings an exceptional dedication to her job, her family, and her community, and has been a role model of mine for many, many years. I’m extremely proud of her.
+ - It’s got to be weird to sit in an office all day and deal with these creative types without having any idea of what they do or how they do it.
+ - Life is not always like chess. Just because you have the king surrounded, don’t think he is not capable of hurting you.
+ - A lot of the stuff I have done had been not only the likable guy, but like the nice likable guy.
+ - Eric McCormack is directing talent waiting to happen.
+ - In corporate levels, it’s all about tailoring your shirt and which tennis club you belong to and which watch you are wearing and what did you shoot last week?
+ - It’s kinda cool seeing people having real fights with people they really know.
+ - I say the one thing about luck is you can’t really count on it.
+ - It can be liberating to get fired because you realize the world doesn’t end. There’s other ways to make money, better jobs.
+ - An actor’s career doesn’t feel like just one career to me. It feels like about five or six. Because every six or seven years, you look in the mirror and you have a completely different product.
+ - Really good director sometimes will kind of see what the actors are doing and then get in there. Because there’s the realization that you have to find it a little bit and then kind of clump around and sniff it out.
+ - Any time you do physical stuff, violence, it is controlled. It’s a little bit like you block the move.
+ - I don’t always get to do a lot of bad guys.
+ - I would worry if people always associated me with Larry Sokolov.
+ - If I’m in something funny, I like to try and find some kind of serious line in it that people can relate to.
+ - Everybody thinks that actors would be really good at bluffing, but I think it’s a little backward.
+ - I can’t pull off blond, but I got some blond tips. Which is as close as I’ll ever come to being in a ’90s boy band.
+ - Good actors, you always know what they’re thinking. That’s why they’re good actors.
+
+24 quotes

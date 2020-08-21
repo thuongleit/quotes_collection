@@ -1,0 +1,26 @@
+ - Follow your heart because it always knows.
+ - Over the months, I kept seeing more feathers, especially at moments when I was really down and distraught. You ask for signs in your life, but what you get is more like a confirmation: You are where you need to be. Just take a deep breath.
+ - There’s always going to be someone who is prettier than you, better than you in some way, but everyone has that something that makes them different.
+ - I am very, very diligent and extremely hard-working.
+ - I’m not one to take revenge. If someone does something wrong to me I leave it in the hands of the universe to take care of that person.
+ - I love horror, I love scary movies, I love thrillers. If things creep you out and spook you? I love it.
+ - To be vulnerable, to be raw, to virtually expose your guts, I like doing that.
+ - I have a lot of LGBT friends and family members and I’ve always supported the community, not only as a child but as an adult, and I think it’s important to voice that.
+ - Children do run from me. And so do some adults.
+ - I played lots of fantasy games. I would create these worlds, and I would believe in them.
+ - No real fairytale scared me, but Freddy Krueger did. ‘Nightmare on Elm Street’ scared the living hell out of me, but no fairytale. Maybe ‘Hansel and Gretel’ a little bit when they were walking through the forest and they met the witch. But I liked being scared, I really enjoy being scared.
+ - I do watch Revenge, American Horror Story and Game of Thrones. I am behind on all of them. But I do watch them. Those are my go-to shows.
+ - I like being scared, so I’ve always liked fairy tales because they’re kind of creepy.
+ - I’ve played Latin, I’ve played Italian. And I’ve played the all-around regular girl. I think the thing about the way I look, is that I can look like many different things. People sometimes ask me if I’m Russian. I don’t think I specifically look like a Puerto Rican or an Italian. Wouldn’t you agree?
+ - When I was just a kid, growing up in Brooklyn, I was constantly making home videos with my family – real silly high-concept productions like, ‘Attack of the Killer Handkerchief.’ I guess I knew even then that I wanted to be an actress.
+ - At 3 years old, I was imitating and doing fun little commercials for the family. Then at 5, I knew, ‘OK, this is something I really like.’ At 8, I was crying in front of the mirror and my mom was like, ‘Oh boy, here we go. We know what she’s going to do.’
+ - When the script for ‘Once’ came my way, I had the thought that maybe it will last only a season. But I was willing to take that risk.
+ - I actually study boxing – my dad was a Golden Gloves champion so I learned how to fight at a very young age. Growing up in Brooklyn you always had to watch your back, so I pretty much learned to protect myself.
+ - Children, a lot of times, can’t make their parents wrong because they have to live with them, because they have to love them. And when you’re young, you can’t get on your Big Wheel and go down to the Best Western. You’ve got to live there and you’ve got to figure it out.
+ - My boyfriend says I dress like a rock star but I would say my style is hip and comfortable.
+ - I loved ‘White Christmas’ for the music aspect. I was into musical theater.
+ - Israel was always on my bucket list, it was always one of those places that you check off and move onto the next place, but I’m never going to check Israel off my list. It’s a place I’m always going to want to come back to.
+ - When I look back on my career, I go, ‘This is really great, I’ve played so many different women.’
+ - On ‘Swingtown,’ I think that’s when I was able to blend the character-slash-leading lady roles, and that’s what I’m doing on ‘Once Upon a Time’ as well. She’s a leading lady, but she’s also this character.
+
+24 quotes

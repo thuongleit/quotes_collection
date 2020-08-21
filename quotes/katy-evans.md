@@ -1,0 +1,23 @@
+ - I’ll never have enough of you, never.
+ - Larger than life itself, and I can’t even believe this striking creature was once a little bit mine.
+ - I’m addicted to you. You’re my crack, and you also happen to be the only dealer.
+ - I promise. I promise, you have my heart, and you have me. You will always have me.
+ - Brooke Dumas. I’m Remington.
+ - He’s complicated and complex, a labyrinth I want to lose myself in. He’s my fighter, and I really want to fight to be with him.
+ - You can’t, Brooke, you can’t leave. You’re mine.
+ - God, I want to die in you.
+ - I just want to cuddle with my Lion and give him all the love nobody in the world has given him but me.
+ - At least if I keep my love a secret, he and I can still have this wonderful, odd, exciting relationship where I love him in silence and pretend he’s loving me in silence too.
+ - You’re everything I never knew I wanted.
+ - You are going to love me until I die. I’m going to make you love me even if it hurts, and when it hurts, I’m going to make it better, Brooke.
+ - My body melts into his hard one until his strong arm, coiled around my small waist, is all that hols me upright. I don’t know if I’m bad for him, or him for me. All I know is that this is as inevitable as an incoming tsunami, and I’m just bracing for the swim of my life.
+ - I’ve fallen in love a hundred times in my life! But never like you. So I wonder if I really fell or just tripped, you know?
+ - I feel claimed and bonded to him like animals do. I feel like I’ve already been caught and trapped and he’s merely priming me, leaving me to simmer in my juices, anxiously waiting for the moment when he takes his first bite of me.
+ - We taste and suckle each other, and I’m so thirsty he could feed me his kiss all night and I’d still be dying in the desert.
+ - Remington Tate, I swear to you – I swear – that when I’m able to get up from this stupid bed and run again, you’re always, always, going to be the one thing I’ll run straight to.
+ - I need her with me. She goes where I go.
+ - It feels like he’s marking me. Like he’s preparing me for something monumental. That could both change and ruin my life.
+ - I wanted a girl as perfect as Brooke, and instead, she gave me something I never knew I wanted: something perfect that looks like me.
+ - If you can come to my fight, you can come in my arms.
+
+21 quotes

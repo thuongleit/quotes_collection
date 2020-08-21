@@ -1,0 +1,28 @@
+ - Art is an international language, understood by all.
+ - Don’t share your secrets if you preface them with ’just don’t tell anybody.
+ - Art Education is as important for a realist artist as an Alphabet is to learn a language.
+ - One can compare art education to the solid foundation for a house – once it’s built properly, it will hold any shape or form you will place on it.
+ - The purpose of Art Education is to teach you how to draw.
+ - As the spiral of modern art history continues to wind down, we can see the increasing demand for tradition in the visual arts.
+ - Envy derives from insecurity.
+ - We’re all God’s children. We are all special people, and the Pope is no different.
+ - It is sinful for students to badmouth their teachers and sinful for teachers to mislead their students.
+ - Perhaps one of the most essential exercises in learning to paint is the copying of master works in the museums.
+ - In visual art it’s better once to see, than one hundred times to hear.
+ - Painting requires skill. Photography is created by the camera, and one cannot fully control what the camera sees. So people take many photographs because several must always be discarded.
+ - The ability to draw from life determines the artist’s skill. This is why live drawing classes have always been at the top of the curriculum for properly structured academic workshops.
+ - Painting is a mosaic of colors weaved into a seamless whole.
+ - It is far easier to debate about realistic painting than to paint one.
+ - Even when you paint, you never stop drawing.
+ - I choose to paint beauty.
+ - When we think of Leonardo da Vinci, the last thing that comes to mind is the nationality of the artist. The great masters belong to the world.
+ - Artists with the lack of proper education and experience of working from life will copy whatever is visible on the photograph, without knowing what’s underneath. As a result, instead of creating the in-depth and full of character portrait, they draw a mask with no soul.
+ - Whether it is drawing or painting, skilled Artists usually deliver a faster result without jeopardizing the quality, simply because they don’t have to waste their time on fixing mistakes.
+ - Painting should educate and enrich. Modern painting merely offers a split-second emotion: You see it, you have an instant reaction and move on. Instead, real painting can be looked at over and over again and each time it has something new.
+ - Insecurity prevents young artists from ‘flying’ and older artists from being ‘down to earth.’ Young artists should work on their confidence and the older ones on their humility.
+ - The more you paint the more fluent you are with your brush.
+ - It’s a luxury to have so much time, especially with someone so important and busy. You have to get a feel for the person.
+ - Even though these are different times, right now we are particularly thinking about what is leadership, and Washington’s qualities are as needed today as they were at the founding of this great nation.
+ - Artists with a capital ‘A’ are at ease working in all areas of art, whether it is a contemporary abstract painting or work requiring methods and techniques of the Renaissance Masters.
+
+26 quotes

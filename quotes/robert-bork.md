@@ -1,0 +1,26 @@
+ - The purpose that brought the fourteenth amendment into being was equality before the law, and equality, not separation, was written into the law.
+ - Our country is being radically altered, step by step, by Justices who are not following any law.
+ - An egalitarian educational system is necessarily opposed to meritocracy and reward for achievement. It is inevitably opposed to procedures that might reveal differing levels of achievement.
+ - One man’s larceny is another’s just distribution of goods.
+ - No activity that society thinks immoral is victimless. Knowledge that an activity is taking place is a harm to those who find it profoundly immoral.
+ - No church that panders to the zeitgeist deserves respect, and very shortly it will not get respect, except from those who find it politically useful, and that is less respect than disguised contempt.
+ - There is no single grand strategy. Just as the New Left abandoned an overarching program and became a series of like-minded groups advancing area by area, so it must counterattacked area by area.
+ - The American press is extraordinarily free and vigorous, as it should be. It should be, not because it is free of inaccuracy, oversimplification and bias, but because the alternative to that freedom is worse than those failings.
+ - In a constitutional democracy the moral content of law must be given by the morality of the framer or legislator, never by the morality of the judge.
+ - There can be no doubt that the systematic hostility of the courts to religion has lowered the prestige of religion in the public mind.
+ - The judge’s authority derives entirely from the fact that he is applying the law and not his personal values. That is why the American public accepts the decisions of its courts, accepts even decisions that nullify the laws a majority of the electorate or their representatives voted for.
+ - It is a ship with a great deal of sail but a very shallow keel.
+ - I was thinking of resigning since I did not want to be perceived as a man who did the president’s bidding to save my job. I have had some time to think about it since. I think I did the right thing.
+ - Being ‘at the mercy of legislative majorities’ is merely another way of describing the basic American plan: representative democracy.
+ - Reporters treat religion as beneath mention, as personally distasteful, or as a clear and present threat to the American way of life.
+ - Modernity, the child of the Enlightenment, failed when it became apparent that the good society cannot be achieved by unaided reason.
+ - The right to procreate is not guaranteed, explicitly or implicitly, by the Constitution.
+ - The First Amendment is about how we govern ourselves – not about how we titillate ourselves sexually.
+ - The Federalist Society has done more for the health of the law than any organization I have witnessed in my career.
+ - I don’t think the Constitution is studied almost anywhere, including law schools. In law schools, what they study is what the court said about the Constitution. They study the opinions. They don’t study the Constitution itself.
+ - Law is vulnerable to the winds of intellectual or moral fashion, which it then validates as the commands of our most basic concept.
+ - When a judge assumes the power to decide which distinctions made in a statute are legitimate and which are not, he assumes the power to disapprove of any and all legislation, because all legislation makes distinctions.
+ - Under the First Amendment’s prohibition of the establishment of religion, the Court has steadily made religion a matter for the private individual by driving it out of the public arena.
+ - As the courts keep pushing religion out of sight, the press either ignores it or treats it as some sort of emotional affliction. It is hardly any wonder that religion slowly loses its grip on the popular mind.
+
+24 quotes

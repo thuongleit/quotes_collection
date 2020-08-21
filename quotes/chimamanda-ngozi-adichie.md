@@ -1,0 +1,81 @@
+ - Culture does not make people. People make culture.
+ - Feminist: A person who believes in the social, political and economic equality of the sexes.
+ - Stories matter. Many stories matter.
+ - You deserve to take up space.
+ - The single story creates stereotypes, and the problem with stereotypes is not that they are untrue, but that they are incomplete. They make one story become the only story.
+ - Many stories matter. Stories have been used to dispossess and to malign. But stories can also be used to empower, and to humanize. Stories can break the dignity of a people. But stories can also repair that broken dignity.
+ - Never ever accept ‘Because You Are A Woman’ as a reason for doing or not doing anything.
+ - There are people who dislike you because you do not dislike yourself.
+ - Your life belongs to you and you alone.
+ - The problem with gender is that it prescribes how we should be rather than recognizing how we are. Imagine how much happier we would be, how much freer to be our true individual selves, if we didn’t have the weight of gender expectations.
+ - To choose to write is to reject silence.
+ - Privilege blinds, because it’s in its nature to blind. Don’t let it blind you too often. Sometimes you will need to push it aside in order to see clearly.
+ - I think you travel to search and you come back home to find yourself there.
+ - We teach girls shame; close your legs, cover yourself, we make them feel as though by being born female they’re already guilty of something.
+ - The higher you go, the fewer women there are.
+ - Of course I am not worried about intimidating men. The type of man who will be intimidated by me is exactly the type of man I have no interest in.
+ - Racism should never have happened and so you don’t get a cookie for reducing it.
+ - If you start thinking about being likable you are not going to tell your story honestly.
+ - I often make the mistake of thinking that something that is obvious to me is obvious to everyone else.
+ - Race doesn’t really exist for you because it has never been a barrier. Black folks don’t have that choice.
+ - I have many problems in my life, but I don’t think that identity is one of them.
+ - I am a strong believer in the ability of human beings to change for the better. I am a strong believer in trying to change what we are dissatisfied with.
+ - Because I am female, I’m expected to aspire to marriage. I am expected to make my life choices always keeping in mind that marriage is the most important.
+ - And it’s wrong of you to think that love leaves room for nothing else. It’s possible to love something and still condescend to it.
+ - Power is the ability not just to tell the story of another person, but to make it the definitive story of that person.
+ - There are some things that are so unforgivable that they make other things easily forgivable.
+ - Is love this misguided need to have you beside me most of the time? Is love this safety I feel in our silences? Is it this belonging, this completeness?
+ - We did that often, asking each other questions whose answers we already knew. Perhaps it was so that we would not ask the other questions, the ones whose answers we did not want to know.
+ - This is our world, although the people who drew this map decided to put their own land on top of ours. There is no top or bottom, you see.
+ - The only reason race matters is because of racism.
+ - We do not just risk repeating history if we sweep it under the carpet, we also risk being myopic about our present.
+ - I am interested in challenging the mainstream ideas of what is beautiful and what is acceptable.
+ - Show a people as one thing, only one thing, over and over again, and that is what they become.
+ - There are many different ways to be poor in the world but increasingly there seems to be one single way to be rich.
+ - How easy it was to lie to strangers, to create with strangers the versions of our lives we imagined.
+ - You can’t write a script in your mind and then force yourself to follow it. You have to let yourself be.
+ - I have chosen to no longer be apologetic for my femaleness and my femininity. And I want to be respected in all of my femaleness because I deserve to be.
+ - She wanted to ask him why they were all strangers who shared the same last name.
+ - The real tragedy of our postcolonial world is not that the majority of people had no say in whether or not they wanted this new world; rather, it is that the majority have not been given the tools to negotiate this new world.
+ - Relaxing your hair is like being in prison. You’re caged in. Your hair rules you. You didn’t go running with Curt today because you don’t want to sweat out this straightness. You’re always battling to make your hair do what it wasn’t meant to do.
+ - Perhaps it is time to debate culture. The common story is that in real African culture, before it was tainted by the West, gender roles were rigid and women were contentedly oppressed.
+ - I write from real life. I am an unrepentant eavesdropper and a collector of stories. I record bits of overheard dialogue.
+ - Dear Non-American Black, when you make the choice to come to America, you become black. Stop arguing. Stop saying I’m Jamaican or I’m Ghanaian. America doesn’t care.
+ - That her relationship with him was like being content in a house but always sitting by the window and looking out.
+ - I’m very feminist in the way I look at the world, and that worldview must somehow be part of my work.
+ - I didn’t know I was even supposed to HAVE issues until I came to America.
+ - I think human beings exist in a social world. I write realistic fiction, and so it isn’t that surprising that the social realities of their existence would be part of the story.
+ - They themselves mocked Africa, trading stories of absurdity, of stupidity, and they felt safe to mock, because it was a mockery born of longing, and of the heartbroken desire to see a place made whole again.
+ - Yes, there’s a problem with gender as it is today, and we must fix it, we must do better.
+ - The problem with gender is that it prescribes how we should be, rather than recognising how we are.
+ - This was love: a string of coincidences that gathered significance and became miracles.
+ - You can have ambition But not too much You should aim to be successful But not too successful Otherwise you will threaten the man.
+ - Our histories cling to us. We are shaped by where we come from.
+ - She could not complain about not having shoes when the person she was talking to had no legs.
+ - When we realize that there is never a single story about any place, we regain a kind of paradise.
+ - The educated ones leave, the ones with the potential to right the wrongs. They leave the weak behind. The tyrants continue to reign because the weak cannot resist. Do you not see that it is a cycle? Who will break that cycle?
+ - Our society teaches a woman at a certain age who is unmarried to see it as a deep personal failure. While a man at a certain age who is unmarried has not quite come around to making his pick.
+ - Greatness depends on where you are coming from.
+ - Red was the blood of the siblings massacred in the North, black was for mourning them, green was for the prosperity Biafra would have, and, finally, the half of a yellow sun stood for the glorious future.
+ - I was stained by failure.
+ - Why did people ask “What is it about?” as if a novel had to be about only one thing.
+ - Each time he suggested they get married, she said no. They were too happy, precariously so, and she wanted to guard that bond; she feared that marriage would flatten it into a prosaic partnership.
+ - I don’t believe that art and politics or social issues must be separated. In writing about marriage, for example, money can be a big factor, and money is linked to earning, and earning is influenced by politics.
+ - She rested her head against his and felt, for the first time, what she would often feel with him: a self-affection. He made her like herself.
+ - If you followed the media you’d think that everybody in Africa was starving to death, and that’s not the case; so it’s important to engage with the other Africa.
+ - Then she wished, more rationally, that she could love him without needing him. Need gave him power without his trying; need was the choicelessness she often felt around him.
+ - You Americans, always peering under people’s beds to look for communism.
+ - People have crushes on priests all the time, you know. It’s exciting to have to deal with God as a rival.
+ - Death would be a complete knowingness, but what frightened him was this: not knowing beforehand what it was he would know.
+ - Americans think African writers will write about the exotic, about wildlife, poverty, maybe AIDS. They come to Africa and African books with certain expectations.
+ - I can write with authority only about what I know well, which means that I end up using surface details of my own life in my fiction.
+ - The best novels are those that are important without being like medicine; they have something to say, are expansive and intelligent but never forget to be entertaining and to have character and emotion at their centre.
+ - I had consumed a lot of American culture, but I was not quite prepared for the reality of American poverty.
+ - At some point I was a HappyAfricanFeminist who does not hate men. And who likes lip gloss and who wears high heels for herself but not for men.
+ - There has always been a strange dissonance between the public and the private in Nigeria.
+ - Creative writing programmes are not very necessary. They just exist so that people like us can make a living.
+ - For centuries, the world divided human beings into two groups and then proceeded to exclude and oppress one group. It is only fair that the solution to the problem acknowledge that.
+ - I divide my time between Columbia, Maryland, and Lagos, Nigeria.
+ - All over the world, there are so many magazine articles and books telling women what to do, how to be and not to be, in order to attract or please men. There are far fewer guides for men about pleasing women.
+
+79 quotes

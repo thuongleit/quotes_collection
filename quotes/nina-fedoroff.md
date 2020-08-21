@@ -1,0 +1,24 @@
+ - We are sliding back into a dark era, and there seems little we can do about it. I am profoundly depressed at just how difficult it has become merely to get a realistic conversation started on issues such as climate change or genetically modified organisms.
+ - Civilization depends on our expanding ability to produce food efficiently, which has markedly accelerated thanks to science and technology.
+ - Weeds do become resistant to herbicides, and it needs to be managed with multiple herbicides.
+ - We have domesticated crops over a very long period of time, like tens of thousands of years. And crops get – seeds get carried. Sometimes, if they’re very small seeds, they get scattered off trucks. Pollen travels.
+ - There are probably already too many people on the planet.
+ - In many places in the developed world, we eat or waste probably twice as many food calories as we really need. We’re wasteful of food. We ship all over the world. We’re now realizing that generating the energy to ship the food around the world is also ruining our climate.
+ - If everybody switched to organic farming, we couldn’t support the earth’s current population – maybe half.
+ - The influence of a science adviser is only as good as ears open to that science advice.
+ - As people around the world become more affluent, they are demanding diets richer in animal protein, which will require ever more robust feed crop yields to sustain.
+ - India has the opportunity to be a leader in genetic engineering, It has institutions that no other country has.
+ - In agriculture, people have taken wild plants that can’t be eaten by people – and turned them into wonderful food sources. And that’s because genomes can change, and people working with plants have picked mutations. Mutations are nothing more than genetic changes.
+ - Jumping genes are fundamental because they’re agents of change. Everybody knows that organisms evolve. What makes them evolve is that their genes are dynamic and in motion. A familiar example is the stripe-y corn – called Indian corn – that you buy in the fall.
+ - If there are more and more environmental refugees, they are going to end up on your doorstep too.
+ - We need to continue to decrease the growth rate of the global population; the planet can’t support many more people.
+ - I don’t know how you overcome the dearth of scientists in the government positions.
+ - One of the really remarkably beneficial aspects of genetic engineering is that much of the previous methodology for controlling pests and so forth is through chemicals that affect a very broad spectrum of insects, for example, or fungicides that control fungi.
+ - New molecular methods that add or modify genes can protect plants from diseases and pests and improve crops in ways that are both more environmentally benign and beyond the capability of older methods.
+ - We’ve gotten so good at growing food that we’ve gone, in a few generations, from nearly half of Americans living on farms to 2 percent. We no longer think about how the wonderful things in the grocery store got there, and we’d like to go back to what we think is a more natural way.
+ - In the last century, as we learned more about genes, we were able to devise ways of accelerating evolution.
+ - We have six-and-a-half-billion people on the planet, going rapidly towards seven. We’re going to need a lot of inventiveness about how we use water and grow crops.
+ - For me science is not different from art, except in the one small, crucial detail that experiments speak their own truths, not ours.
+ - Even as the population doubled from three to six billion, we managed to race ahead with all kinds of technological and scientific events in agriculture – from using more fertilizers to mechanization to advanced plant breeding.
+
+22 quotes

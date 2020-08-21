@@ -1,0 +1,193 @@
+ - Procrastination is the thief of time: Year after year it steals, till all are fled.
+ - We are all born originals – why is it so many of us die copies?
+ - Souls made of fire, and children of the sun, With whom revenge is virtue.
+ - Mine is the night, with all her stars.
+ - However smothered under former negligence, or scattered through the dull, dark mass of common thoughts – let thy genius rise as the sun from chaos.
+ - The clouds may drop down titles and estates, and wealth may seek us, but wisdom must be sought.
+ - At thirty, man suspects himself a fool; Knows it at forty, and reforms his plan.
+ - Night, sable goddess! from her ebon throne, In rayless majesty, now stretches forth Her leaden sceptre o’er a slumbering world.
+ - Tomorrow is the day when idlers work, and fools reform and mortal men lay hold on heaven.
+ - How poor, how rich, how abject, how august, how complicate, how wonderful is man! Distinguished link in being’s endless chain! Midway from nothing to the Deity! Dim miniature of greatness absolute! An heir of glory! A frail child of dust! Helpless immortal! Insect infinite! A worm! A God!
+ - Friendship’s the wine of life.
+ - Live now; be damn’d hereafter.
+ - It calls Devotion! genuine growth of night! Devotion! Daughter of Astronomy! An undevout astronomer is mad!
+ - Where boasting ends, there dignity begins.
+ - Be wise to-day; ’t is madness to defer.
+ - Tired nature’s sweet restorer, balmy sleep! He, like the world, his ready visit pays Where fortune smiles; the wretched he forsakes.
+ - Too low they build who build below the skies.
+ - Affliction is a good man’s shining time.
+ - Death loves a shining mark, a signal blow.
+ - A man I knew who lived upon a smile, And well it fed him; he look’d plump and fair, While rankest venom foam’d through every vein.
+ - Insatiate archer! could not one suffice? Thy shaft flew thrice, and thrice my peace was slain; And thrice, ere thrice yon moon had filled her horn.
+ - Be wise with speed; a fool at forty is a fool indeed.
+ - On every thorn, delightful wisdom grows, In every rill a sweet instruction flows.
+ - Think naught a trifle, though it small appear; Small stands the mountain, moments make the year, and trifles life.
+ - Early, bright, transient, chaste as morning dew, She sparkled, was exhaled, and went to heaven.
+ - A tardy vengeance shares the tyrant’s guilt.
+ - Amid my list of blessings infinite, stands this the foremost, “that my heart has bled.”
+ - An undevout astronomer is mad.
+ - The melancholy ghosts of dead renown, Whispering faint echoes of the world’s applause.
+ - He that’s ungrateful has no guilt but one; All other crimes may pass for virtues in him.
+ - Like our shadows, our wishes lengthen as our sun declines.
+ - But fate ordains that dearest friends must part.
+ - A friend is worth all hazards we can run.
+ - How blessings brighten as they take their flight.
+ - Ocean into tempest wrought, To waft a feather, or to drown a fly.
+ - This is the bud of being, the dim dawn, The twilight of our day, the vestibule; Life’s theatre as yet is shut, and death, Strong death, alone can heave the massy bar, This gross impediment of clay remove, And make us embryos of existence free.
+ - A God all mercy is a God unjust.
+ - Be wise today; ’tis madness to defer. Next day the fatal precedent will plead; thus on, til wisdom is pushed our of life.
+ - When pain can’t bless, heaven quits us in despair.
+ - All men think that all men are mortal but themselves.
+ - Fond man! the vision of a moment made! Dream of a dream! and shadow of a shade!
+ - The spider’s most attenuated thread Is cord, is cable, to man’s tender tie On earthly bliss; it breaks at every breeze.
+ - There is something about poetry beyond prose logic, there is mystery in it, not to be explained but admired.
+ - The love of praise, howe’er conceal’d by art, Reigns more or less, and glows in ev’ry heart.
+ - The bell strikes one. We take no note of time But from its loss.
+ - To frown at pleasure, and to smile in pain.
+ - The bell strikes One. We take no note of time But from its loss. To give it then a tongue Is wise in man. As if an angel spoke, I feel the solemn sound. If heard aright, It is the knell of my departed hours.
+ - When men of infamy to grandeur soar, They light a torch to show their shame the more.
+ - Fame is the shade of immortality, And in itself a shadow. Soon as caught, Contemn’d; it shrinks to nothing in the grasp.
+ - What tender force, what dignity divine, what virtue consecrating every feature; around that neck what dross are gold and pearl!
+ - In chambers deep, Where waters sleep, What unknown treasures pave the floor.
+ - Some go to Church, proud humbly to repent, And come back much more guilty than they went: One way they look, another way they steer, Pray to the Gods; but would have Mortals hear; And when their sins they set sincerely down, They’ll find that their Religion has been one.
+ - Revere thyself, and yet thyself despise.
+ - Life is the desert, life the solitude, death joins us to the great majority.
+ - Where, where for shelter shall the guilty fly, When consternation turns the good man pale?
+ - Our birth is nothing but our death begun, As tapers waste the moment they take fire.
+ - None think the great unhappy, but the great.
+ - And can eternity belong to me, Poor pensioner on the bounties of an hour?
+ - We nothing know, but what is marvellous; Yet what is marvellous, we can’t believe.
+ - A Deity believed, is joy begun; A Deity adored, is joy advanced; A Deity beloved, is joy matured. Each branch of piety delight inspires.
+ - By all means use some time to be alone.
+ - If we did but know how little some enjoy of the great things that they possess, there would not be much envy in the world.
+ - Ne’er to meet, or ne’er to part, is peace.
+ - Death! great proprietor of all! ’tis thine To tread out empire, and to quench the stars.
+ - The maid that loves goes out to sea upon a shattered plank, and puts her trust in miracles for safety.
+ - Each moment has its sickle, emulous Of Time’s enormous scythe, whose ample sweep Strikes empires from the root.
+ - Britannia’s shame! There took her gloomy flight, On wing impetuous, a black sullen soul. Less base the fear of death than fear of life. O Britain! infamous for suicide.
+ - A soul without reflection, like a pile Without inhabitant, to ruin runs.
+ - The blood will follow where the knife is driven, The flesh will quiver where the pincers tear.
+ - Heaven wills our happiness, allows our doom.
+ - Thy purpose firm is equal to the deed: Who does the best his circumstance allows Does well, acts nobly; angels could no more.
+ - Pity swells the tide of love.
+ - Poor in abundance, famish’d at a feast.
+ - A God alone can comprehend a God.
+ - Take God from nature, nothing great is left.
+ - Thoughts shut up want air, And spoil, like bales unopen’d to the sun.
+ - Pygmies are pygmies still, though percht on Alps; And pyramids are pyramids in vales. Each man makes his own stature, builds himself. Virtue alone outbuilds the Pyramids; Her monuments shall last when Egypt’s fall.
+ - Men should press forward, in fame’s glorious chase; Nobles look backward, and so lose the race.
+ - A death-bed’s a detector of the heart.
+ - Man wants but little, nor that little long; How soon must he resign his very dust, Which frugal nature lent him for an hour!
+ - A prince indebted is a fortune made.
+ - Who lives to Nature, rarely can be poor ; who lives to fancy, never can be rich.
+ - The man that blushes is not quite a brute.
+ - Of man’s miraculous mistakes, this bears The palm, “That all men are about to live.”
+ - A man of pleasure is a man of pains.
+ - Where Nature’s end of language is declin’d, And men talk only to conceal the mind.
+ - A dedication is a wooden leg.
+ - The chamber where the good man meets his fate Is privileg’d beyond the common walk Of virtuous life, quite in the verge of heaven.
+ - Affliction is the good man’s shining scene; prosperity conceals his brightest ray; as night to stars, woe lustre gives to man.
+ - Praise, more divine than prayer; prayer points our ready path to heaven; praise is already there.
+ - The soul of man was made to walk the skies.
+ - What ardently we wish, we soon believe.
+ - We wish our names eternally to live; Wild dream! which ne’er had haunted human thought, Had not our natures been eternal too.
+ - Horace appears in good humor while he censures, and therefore his censure has the more weight, as supposed to proceed from judgment and not from passion.
+ - Titles are marks of honest men, and wise; The fool or knave that wears a title lies.
+ - Leisure is pain; take off our chariot wheels; how heavily we drag the load of life!
+ - Some wits, too, like oracles, deal in ambiguities, but not with equal success; for though ambiguities are the first excellence of an imposter, they are the last of a wit.
+ - We are not all great because we are inspired, but we feel great because we are.
+ - He sins against this life, who slights the next.
+ - The house of laughter makes a house of woe.
+ - They only babble who practise not reflection.
+ - As in smooth oil the razor best is whet, So wit is by politeness sharpest set; Their want of edge from their offence is seen, Both pain us least when exquisitely keen.
+ - Who can take Death’s portrait? The tyrant never sat.
+ - Let no man trust the first false step of guilt; it hangs upon a precipice, whose steep descent in last perdition ends.
+ - Wonder is involuntary praise.
+ - Accept a miracle, instead of wit See two dull lines, with Stanhope’s pencil writ.
+ - The man who builds, and wants wherewith to pay, Provides a home from which to run away.
+ - Inhumanity is caught from man, From smiling man.
+ - Nothing in Nature, much less conscious being, Was e’er created solely for itself.
+ - In youth, what disappointments of our own making: in age, what disappointments from the nature of things.
+ - Heaven’s Sovereign saves all beings but himselfThat hideous sight,-a naked human heart.
+ - Old men love novelties; the last arriv’d Still pleases best; the youngest steals their smiles.
+ - Tomorrow is a satire on today, And shows its weakness.
+ - Less base the fear of death than fear of life.
+ - Some for renown, on scraps of learning dote, And think they grow immortal as they quote.
+ - Who combats with a brother, wounds himself.
+ - The person of wisdom is the person of years.
+ - To know the world, not love her, is thy point; She gives but little, nor that little, long.
+ - There is nothing of which men are more liberal than their good advice, be their stock of it ever so small; because it seems to carry in it an intimation of their own influence, importance or worth.
+ - An angel’s arm can’t snatch me from the grave; legions of angels can’t confine me there.
+ - By night an atheist half-believes in God.
+ - Youth is not rich in time; it may be poor; Part with it as with money, sparing; pay No moment but in purchase of its worth, And what it’s worth, ask death-beds; they can tell.
+ - There buds the promise of celestial worth.
+ - Men are but men; we did not make ourselves.
+ - A dearth of words a woman need not fear; But ’tis a task indeed to learn to hear: In that the skill of conversation lies; That shows and makes you both polite and wise.
+ - The purpose firm is equal to the deed.
+ - Groan under gold, yet weep for want of bread.
+ - Ambition! powerful source of good and ill!
+ - Polite diseases make some idiots vain, Which, if unfortunately well, they feign.
+ - Born Originals, how comes it to pass that we die Copies?
+ - As soon as we have found the key of life, it opens the gates of death.
+ - The spirit walks of every day deceased.
+ - One eye on death, and one full fix’d on heaven.
+ - Day buries day; month, month; and year the year: Our life is but a chain of many deaths.
+ - They most the world enjoy who least admire.
+ - Virtue alone has majesty in death.
+ - A Christian is the highest style of man.
+ - Angels are men of a superior kind; Angels are men in lighter habit clad.
+ - Woes cluster. Rare are solitary woes; They love a train, they tread each other’s heel.
+ - We see time’s furrows on another’s brow, And death intrench’d, preparing his assault; How few themselves in that just mirror see!
+ - Who, for the poor renown of being smart, Would leave a sting within a brother’s heart?
+ - The booby father craves a booby son, And by Heaven’s blessing thinks himself undone.
+ - And all may do what has by man been done.
+ - With fame, in just proportion, envy grows.
+ - Whose yesterdays look backwards with a smile.
+ - Time elaborately thrown away.
+ - Who knows if Shakespeare might not have thought less if he had read more?
+ - Man makes a death which Nature never made. And feels a thousand deaths in fearing one.
+ - The first sure symptom of a mind in health Is rest of heart and pleasure felt at home.
+ - As night to stars, woe lustre gives to man.
+ - It is great and manly to disdain disguise; it shows our spirit and proves our strength.
+ - Nature delights in progress; in advance.
+ - Man wants little, nor that little long.
+ - Prayer ardent opens heaven.
+ - Who gives an empire, by the gift defeats All end of giving; and procures contempt Instead of gratitude.
+ - The qualities all in a bee that we meet, In an epigram never should fail; The body should always be little and sweet, And a sting should be felt in its tail.
+ - The soft whispers of the God in man.
+ - Final Ruin fiercely drives Her ploughshare o’er creation.
+ - The man that makes a character, makes foes.
+ - Of boasting more than of a bomb afraid, A soldier should be modest as a maid.
+ - Men may live fools, but fools they cannot die.
+ - We cry for mercy to the next amusement, The next amusement mortgages our fields.
+ - Age should fly concourse, cover in retreat defects of judgment, and the will subdue; walk thoughtful on the silent, solemn shore of that vast ocean it must sail so soon.
+ - Read nature; nature is a friend to truth.
+ - Wishing of all employments is the worst.
+ - And friend received with thumps upon the back.
+ - What most we wish, with ease we fancy near.
+ - Blest leisure is our curse; like that of Cain, It, makes us wander, wander earth around, To fly that tyrant Thought. As Atlas groan’d The world beneath, we groan beneath an hour.
+ - When men once reach their autumn, sickly joys fall off apace, as yellow leaves from trees.
+ - Joys season’d high, and tasting strong of guilt.
+ - O let me be undone the common way, And have the common comfort to be pity’d, And not be ruin’d in the mask of bliss, And so be envy’d, and be wretched too!
+ - Truth never was indebted to a lie.
+ - Body and soul, like peevish man and wife, United jar, and yet are loth to part.
+ - Sweet instinct leaps; slow reason feebly climbs.
+ - Ah, how unjust to Nature and himself Is thoughtless, thankless, inconsistent man!
+ - The man who consecrates his hours by vigorous effort, and an honest aim, at once he draws the sting of life and Death; he walks with nature; and her paths are peace.
+ - Time destroyed Is suicide, where more than blood is spilt.
+ - Give me, indulgent gods with mind serene, And guiltless heart, to range the sylvan scene, No splendid poverty, no smiling care, No well-bred hate, or servile grandeur, there.
+ - Midway from Nothing to the Deity!
+ - Nothing but what astonishes is true.
+ - Life’s cares are comforts; such by Heav’n design’d; He that hath none must make them, or be wretched.
+ - O! lost to virtue, lost to manly thought, Lost to the noble sallies of the soul! Who think it solitude to be alone.
+ - But love, like wine, gives a tumultuous bliss, Heighten’d indeed beyond all mortal pleasures; But mingles pangs and madness in the bowl.
+ - Satire recoils whenever charged too high; round your own fame the fatal splinters fly.
+ - A foe to God ne’er was true friend to man, Some sinister intent taints all he does.
+ - We bleed, we tremble; we forget, we smile – The mind turns fool, before the cheek is dry.
+ - Tis immortality, ’tis that alone, Amid life’s pains, abasements, emptiness, The soul can comfort, elevate, and fill. That only, and that amply this performs.
+ - Ah! what is human life? How, like the dial’s tardy-moving shade, Day after day slides from us unperceiv’d! The cunning fugitive is swift by stealth; Too subtle is the movement to be seen; Yet soon the hour is up – and we are gone.
+ - The weak have remedies, the wise have joys; superior wisdom is superior bliss.
+ - Oh, how portentous is prosperity! How comet-like, it threatens while it shines.
+ - Men before you have quit smoking – you can too!
+
+191 quotes

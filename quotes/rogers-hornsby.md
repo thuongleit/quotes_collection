@@ -1,0 +1,21 @@
+ - The big trouble is not really who isn’t in the Hall of Fame, but who is. It was established for a select few.
+ - A great hitter isn’t born, he’s made. He’s made out of practice, fault correction, and confidence.
+ - I’ve never been a yes man.
+ - People ask me what I do in winter when there’s no baseball. I’ll tell you what I do. I stare out the window and wait for spring.
+ - I’ve always played hard. If that’s rough and tough, I can’t help it. I don’t believe there’s any such thing as a good loser. I wouldn’t sit down and play a game of cards with you right now withing wanting to win. If I hadn’t felt that way I wouldn’t have got very far in baseball.
+ - Whoever wants to know the heart and mind of America had better learn baseball.
+ - I don’t want to play golf. When I hit a ball, I want someone else to go chase it.
+ - The first rule of baseball is to get a good ball to hit.
+ - When I was in the batter’s box, I felt sorry for the pitcher.
+ - To be a good hitter you’ve got to do one thing – get a good ball to hit.
+ - Players who stand flat footed and swing with their arms are golfers, not hitters.
+ - Baseball is my life, the only thing I know and can talk about. My only interest.
+ - I’ve cheated, or someone on my team has cheated, in almost every single game I’ve been in.
+ - Now the advantage is all with the hitters.
+ - I don’t like to sound egotistical, but every time I stepped up to the plate with a bat in my hands, I couldn’t help but feel sorry for the pitcher.
+ - The home run became glorified with Babe Ruth. Starting with him, batters have been thinking in terms of how far they could hit the ball, not how often.
+ - Any ballplayer that don’t sign autographs for little kids ain’t an American. He’s a communist.
+ - I always tried to hit the ball back through the box because that is the largest unprotected area.
+ - I never saw a pitcher I didn’t feel sorry for.
+
+19 quotes

@@ -1,0 +1,91 @@
+ - Discipline is knowing what to do. Knowing when to do it. Doing it to the best of your abilities. Doing it that way every single time.
+ - I don’t believe in luck, I believe in preparation.
+ - Most people have the will to win, few have the will to prepare to win.
+ - The will to succeed is important, but what’s more important is the will to prepare.
+ - Do what needs to be done, when it needs to be done the best way it can be done, and do it that way every time.
+ - Victory favors the team making the fewest mistakes.
+ - It is better to anticipate than to react.
+ - Good basketball always starts with good defense!
+ - Mental toughness is to physical as four is to one.
+ - Practice structure determines success.
+ - In order to achieve to achieve positive results, one must work for them, not hope for them.
+ - A coach should never be afraid to ask questions of anyone he could learn from.
+ - As coaches we talk about two things: offense and defense. There is a third phase we neglect, which is more important. It’s conversion from offense to defense and defense to offense.
+ - When my time on earth is gone, and my activities here are passed, I want they bury me upside down, and my critics can kiss my ass!
+ - Don’t fight the rabbits. If you fight the rabbits, the elephants are going to kill you.
+ - I’ve never felt my job was to win basketball games – rather, that the essence of my job as a coach was to do everything I could to give my players the background necessary to succeed in life.
+ - We should not have to push you to work hard, you should work hard because you want to be a great player.
+ - Your biggest opponent isn’t the other guy. It’s human nature.
+ - You don’t play against opponents, you play against the game of basketball.
+ - Players must be able to carry out simple instructions from the bench to the court. If they can’t, then they can’t play.
+ - I was worried about losing until I looked down the floor and saw Dale Brown. Then I knew we had a chance.
+ - People change over the years, and that changes situations for good and for bad.
+ - BS is just what it stands for, an MS is More of the Same, and a PhD is Piled Higher and Deeper.
+ - Defense is all about helping. No one can guard a good dribbler, You have to walk kids through how to help and then how to help the helper.
+ - Basketball may have been invented in Massachusetts, but it was made for Indiana.
+ - Son, my name isn’t Knight to you, it’s Coach Knight or it’s Mr. Knight. I don’t call people by their last name and neither should you.
+ - What is the best thing you can do in a close game? Drive to the basket and put pressure on the defense! Not jack up jump shots.
+ - To be as good as it can be, a team has to buy into what you as the coach are doing. They have to feel you’re a part of them and they’re a part of you.
+ - I sit and wonder why no one uses the shot fake. The shot fake, when used correctly, can eliminate a defender.
+ - I would rather be thought of as a teacher than a coach.
+ - The structure of your practice is the main reason for your success or lack of success as a coach.
+ - If the NBA were on channel 5 and a bunch of frogs making love were on channel 4, I’d watch the frogs, even if they were coming in fuzzy.
+ - All of us learn to write in the second grade. Most of us go on to greater things.
+ - A quick way for any player to make himself better is to think about what he himself doesn’t like to play against.
+ - Offense is not equal opportunity.
+ - I recognize that I have a problem with my temper. For those times it has ever caused me to do anything that gave anyone understandable and justifiable reason to be upset, I am sincerely sorry.
+ - Passing is your best weapon against man to man. Dribble penetration is your best weapon against zone.
+ - I think that to stop an offense, you must go to the heart of that offense. If it is a particular move, a screen, the break, an outstanding scorer, whatever it is that they like to do and rely on, you have to work in your plans on taking that completely or as much as possible away from them.
+ - I’m not sure that an athlete is prepared to be a role model. He has a lot of attention paid to him that he shouldn’t have, and then the athletes tend to think of themselves as better than they are.
+ - I hate casual shooting. Every shot is preceded by working to get open and catch and shoot under game like conditions.
+ - I’ve never predicted anything. All I have ever said is, that we will do the very best we can.
+ - To me, the most enjoyable part is the practice and preparation.
+ - You remember when you were a kid growing up, and believed in Santa Claus? There’s not much difference between Santa Claus and me today, you know. We’re two overweight lovable guys that kids really enjoy.
+ - There are times when my passion for basketball led me into confrontations that I could have handled a lot better. I’ve always been too confrontational, especially when I know I’m right.
+ - We’ve gotten into this situation where integrity is really lacking and that’s why I’m glad I’m not coaching. You see we’ve got a coach at Kentucky who put two schools on probation and he’s still coaching. I really don’t understand that.
+ - A great way to test the conditioning of your team is the two-mile run.
+ - You play ball against yourself; your opponent is your potential.
+ - I just love the game of basketball so much. The game! I don’t need the 18,000 people screaming and all the peripheral things. To me, the most enjoyable part is the practice and preparation.
+ - This is like the town council just hired a new marshal to clean up the town, I guarantee you, if I stay here long enough, they’ll get rid of me, too.
+ - Everybody wants to be on a championship team, but nobody wants to come to practice.
+ - I think that we as a people are always prone to think about, well, tomorrow will be a better day. Well, why will it be a better day? And I think the more that we believe in doing things better, doing the right thing rather than hoping that that’s going to happen, let’s make it happen.
+ - The biggest difficulty in getting to the top of the ladder is getting through the crowd at the bottom.
+ - Learn to do things right and then do them right every time.
+ - The red I wear is Indiana’s red, not Moscow’s red. Indiana was here long before communism.
+ - Pat has been instrumental in what we’ve done here so far and the most selfish thing for me is that I want to see what we’ve done placed in the hands of the most competent person, and that’s Pat. No one would come close to being able to continue to build on what we’ve done here so far like he will.
+ - You are never going to be driven anywhere worthwhile, but you sure as hell drive yourself to a lot of great places. It is up to you to drive yourself there.
+ - If I came in to recruit your son, I would tell you, your wife, and your son, that I will be the most demanding coach your son can play for.
+ - We just got our ass beat by a much better team. It happens once in a while. Does every team win every game?
+ - If you’re not careful, you can get a grossly over-inflated opinion about your popularity.
+ - Walking has been ridiculous in college basketball the past 15 years.
+ - My practices were not set up to be easy or enjoyed.
+ - Basketball is a full court game, so every drill must be done full court.
+ - People want national championship banners. People want to talk about Indiana being competitive. How do we get there? We don’t get there with milk and cookies.
+ - Everybody hears, but few listen.
+ - A primary goal of teaching anything is the advantage that learning gives to people over their competitors who haven’t been as well taught.
+ - I don’t think I have ever been out of control.
+ - I’ve always felt that, you know, the Almighty has a lot of things to do other than help my basketball team.
+ - For me to get an award from the press, I know there’s been no favoritism.
+ - I’m an unemployed teacher right now and I’m looking for a place to teach.
+ - I don’t have to wait until the next morning to regret something I did that was kinda dumb.
+ - The single most important aspect of coaching is running effective practices.
+ - If universities want to save a little money, they ought to make some cutbacks in administration and in faculty people who teach one class a week.
+ - Well, I think it’s pretty much established that I just didn’t have any interest in coaching in the pros.
+ - I’ve always had an a$$-to-the-brain theory. When a player’s a$$ gets put on the bench, a message goes straight to the brain saying, Get me off of here.
+ - When we’re playing a good scoring center, we tell our team that it is not our defensive man’s job to stop the center. It’s the responsibility of our perimeter people to stop the ball from going inside.
+ - I, fortunately, have never worried about irritating people.
+ - And I would be the first to admit that probably, in a lot of press conferences over the time that I have been in coaching, indulging my own sense of humor at press conferences has not been greatly to my benefit.
+ - I don’t intend to retire.
+ - Failure, to me, is not having the desire to try. Having the desire to try is in it own way success.
+ - Competitive drills enhance quickness.
+ - At one point, I said to the officials that you guys haven’t called walking for 20 years, now you don’t know what it is. When you call walking, you’re about half right.
+ - Why talk now when so many things have been said without ever giving me a chance to talk?
+ - During my 40-year coaching career at West Point, Indiana and Texas Tech, my teams reached the Final Four on five occasions, winning the national championship three times.
+ - As I’ve said, basketball has been, I think, a real cooperative venture. There have been a lot of people that have been involved in it: coaches, administrators – not recently – fans and nobody, nobody any more so than students over the years.
+ - I always designed my practice plans the night before and then made tweaks a few hours before practice began.
+ - Perform drills that force your players to think.
+ - As his team prepares, a coach’s entire being must be concentrated on winning games.
+ - My overall point is that ‘one and dones’ are not healthy for college basketball. I should not have made it personal to Kentucky and its players and I apologize.
+ - I have always maintained that in basketball the importance of the mental to the physical is about four to one.
+
+89 quotes

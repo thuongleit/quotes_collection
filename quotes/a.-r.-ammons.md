@@ -1,0 +1,24 @@
+ - One can’t have it both ways and both ways is the only way I want it.
+ - You have your identity when you find out, not what you can keep your mind ON, but what you can’t keep your mind OFF.
+ - In nature there are few sharp lines.
+ - Attend to mushrooms and all other things will answer up.
+ - I can’t tell you where a poem comes from, what it is, or what it is for: nor can any other man. The reason I can’t tell you is that the purpose of a poem is to go past telling, to be recognised by burning.
+ - If we ask a vague question, such as, ‘What is poetry?’ we expect a vague answer, such as, ‘Poetry is the music of words,’ or ‘Poetry is the linguistic correction of disorder.’
+ - Thats a wonderful change thats taken place, and so most poetry today is published, if not directly by the person, certainly by the enterprise of the poet himself, working with his friends.
+ - Things go away to return, brightened for the passage.
+ - Is it not careless to become too local when there are four hundred billion stars in our galaxy alone.
+ - For though we often need to be restored to the small, concrete, limited, and certain, we as often need to be reminded of the large, vague, unlimited, unknown.
+ - It’s not a love of poetry readings that attracts those who do come to them but theater.
+ - The white sun like a moth on a string circles the southpole.
+ - Definition, rationality, and structure are ways of seeing, but they become prisons when they blank out other ways of seeing.
+ - Everything is discursive opinion instead of direct experience.
+ - Probably all the attention to poetry results in some value, though the attention is more often directed to lesser than to greater values.
+ - If the greatest god is the stillness all the motions add up to, then we must ineluctably be included.
+ - If a poem is each time new, then it is necessarily an act of discovery, a chance taken, a chance that may lead to fulfillment or disaster.
+ - Once every five hundred years or so, a summary statement about poetry comes along that we can’t imagine ourselves living without.
+ - Besides the actual reading in class of many poems, I would suggest you do two things: first, while teaching everything you can and keeping free of it, teach that poetry is a mode of discourse that differs from logical exposition.
+ - Only silence perfects silence.
+ - To be saved is here, local and mortal.
+ - What destruction have I been blessed by?
+
+22 quotes

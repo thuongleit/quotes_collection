@@ -1,0 +1,46 @@
+ - They’re only truly great who are truly good.
+ - Let no man under value the price of a virtuous woman’s counsel.
+ - He that shuns trifles must shun the world.
+ - Young men think old men are fools, but old men know young men are fools.
+ - Ignorance is the mother of admiration.
+ - An ill weed grows apace.
+ - Fate’s such a shrewish thing.
+ - Tis immortality to die aspiring, As if a man were taken quick to heaven.
+ - Fortune, the great commandress of the world, Hath divers ways to advance her followers: To some she gives honor without deserving; To other some, deserving without honor; Some wit, some wealth, – and some, wit without wealth; Some wealth without wit; some nor wit nor wealth.
+ - Love is Natures second sun.
+ - Give me a spirit that on this life’s rough sea Loves t’have his sails filled with a lusty wind, Even till his sail-yards tremble, his masts crack, And his ship run on her side so low That she drinks water, and her keel plows air.
+ - Flatterers look like friends, as wolves like dogs.
+ - Let no man value at a little price A virtuous woman’s counsel; her winged spirit Is feathered often times with heavenly words, And, like her beauty, ravishing and pure.
+ - Let pride go afore, shame will follow after.
+ - Fair words never hurt the tongue.
+ - And let a scholar all earth’s volumes carry, he will be but a walking dictionary: a mere articulate clock.
+ - We inherit nothing truly, but what our actions make us worthy of.
+ - Black is a pearl in a woman’s eye.
+ - I will neither yield to the song of the siren nor the voice of the hyena, the tears of the crocodile nor the howling of the wolf.
+ - As night the life-inclining stars best shows, So lives obscure the starriest souls disclose.
+ - The best way to accomplish something is to just do it, and then find the courage afterward.
+ - I pray, what flowers are these? The pansy this, O, that’s for lover’s thoughts.
+ - Man is a torch borne in the wind; a dream But of a shadow, summed with all his substance.
+ - News as wholesome as the morning air.
+ - Blood, though it sleep a time, yet never dies. The gods on murtherers fix revengeful eyes.
+ - Each natural agent works but to this end,- To render that it works on like itself.
+ - An Englishman, being flattered, is a lamb; threatened, a lion.
+ - Who to himself is law no law doth need; offends none and is king indeed.
+ - Who hath no faith to man, to God hath none.
+ - Promise is most given when the least is said.
+ - Pure innovation is more gross than error.
+ - Be free all worthy spirits, and stretch yourselves, for greatness and for height.
+ - Enough ’s as good as a feast.
+ - So our lives In acts exemplary, not only win Ourselves good names, but doth to others give Matter for virtuous deeds, by which we live.
+ - The incompetent quickly throws himself into another impressive enterprise in order to escape his responsibility from previous disaster.
+ - There is a nick in Fortune’s restless wheel For each man’s good.
+ - Perfect happiness, by princes sought, Is not with birth born, nor exchequers bought.
+ - Extremes, though contrary, have the like effects. Extreme heat kills, and so extreme cold: extreme love breeds satiety, and so extreme hatred; and too violent rigor tempts chastity, as does too much license.
+ - Virtue is not malicious; wrong done her Is righted even when men grant they err.
+ - Danger, the spur of all great minds.
+ - Words writ in waters.
+ - For one heat, all know, doth drive out another, One passion doth expel another still.
+ - Make ducks and drakes with shillings.
+ - He is at no end of his actions blestWhose ends will make him greatest, and not best.
+
+44 quotes

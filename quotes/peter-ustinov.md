@@ -1,0 +1,90 @@
+ - Terrorism is the war of the poor, and war is the terrorism of the rich.
+ - I imagine hell like this: Italian punctuality, German humour and English wine.
+ - Life is unfair but remember sometimes it is unfair in your favour.
+ - Comedy is simply a funny way of being serious.
+ - Beliefs are what divide people. Doubt unites them.
+ - In America, through pressure of conformity, there is freedom of choice, but nothing to choose from.
+ - American democracy is the inalienable right to sit on your front porch, in your pyjamas, drinking a can of beer and shouting out ‘Where else is this possible?’ Which doesn’t seem to me to be freedom, really.
+ - Once we are destined to live out our lives in the prison of our mind, our duty is to furnish it well.
+ - Love is an act of endless forgiveness; a tender look which becomes a habit.
+ - Did you know that the worldwide food shortage that threatens up to five hundred million children could be alleviated at the cost of only one day, only one day, of modern warfare.
+ - It is our responsibilities, not ourselves, that we should take seriously.
+ - If you’re going to be a prisoner of your own mind, the least you can do is make sure it’s well furnished.
+ - Courage is often lack of insight, whereas cowardice in many cases is based on good information.
+ - This is a free country, madam. We have a right to share your privacy in a public place.
+ - The habit of religion is oppressive, an easy way out of thought.
+ - People who reach the top of the tree are only those who haven’t got the qualifications to detain them at the bottom.
+ - I am an optimist, unrepentant and militant. After all, in order not to be a fool an optimist must know how sad a place the world can be. It is only the pessimist who finds this out anew every day.
+ - To be gentle, tolerant, wise and reasonable requires a goodly portion of toughness.
+ - Toronto is a kind of New York operated by the Swiss.
+ - Unfortunately, a superabundance of dreams is paid for by a growing potential for nightmares.
+ - The only reason I made a commercial for American Express was to pay for my American Express bill.
+ - Love is an act of endless forgiveness. It means forget inconvenient duties, then forgive yourself for forgetting. By rigid practice and stern determination, it comes easy.
+ - I hate being moved. I hate that man who came in. So self-righteous, so cruel. He made fun of me, that’s why I cried. You never did that. You led me into temptation by your – politeness.
+ - Monica Seles: I’d hate to be next door to her on her wedding night.
+ - I have Russian, German, Spanish, Italian, French and Ethiopian blood in my veins.
+ - If history teaches us one thing, than that history teaches us nothing.
+ - Parents are the bones on which children cut their teeth.
+ - Irrespective of nationality, soldiers are always open to the same discomfort and to the same comradeship the world over. I’ll make things easy for you if you make things easy for me. That is, after all the unwritten law of the barracks.
+ - I am convinced that it is of primordial importance to learn more every year than the year before. After all, what is education but a process by which a person begins to learn how to learn.
+ - Intelligent or not, we all make mistakes and perhaps the intelligent mistakes are the worst, because so much careful thought has gone into them.
+ - The French and the British are such good enemies that they can’t resist being friends.
+ - Please keep off the grass.
+ - Marriage is like a three-speed gearbox – affection, friendship, love. It is not advisable to crash your gears and go right through to love straightaway. You need to ease your way through. The basis of love is respect, and that needs to be learned from affection and friendship.
+ - The stupidity of a stupid man is mercifully intimate and reticient, while the stupidity of an intellectual is cried from the rooftops.
+ - Contrary to general belief, I do not believe that friends are necessarily the people you like best, they are merely the people who got there first.
+ - Corruption is nature’s way of restoring our faith in democracy.
+ - If the world should blow itself up, the last audible voice would be that of an expert saying it can’t be done.
+ - I have three daughters and I find as a result I played King Lear almost without rehearsal.
+ - When I was small, I would refuse to drink when I ate fish because I thought the fish would reconstitute itself in my stomach.
+ - If Botticelli were alive today he’d be working for Vogue.
+ - That weakness in human nature which goes by the name of strength.
+ - Flogging. The only solution to every problem. I warrant even the culprit himself doesn’t know! It was just – his turn!
+ - A twinge of conscience is a glimpse of God.
+ - The great thing about history is that it is adaptable.
+ - Sometimes I wish I could just fall in love. Then, at least you know who your opponent is.
+ - British education is probably the best in the world, if you can survive it. If you can’t there is nothing left for you but the diplomatic corps.
+ - To live like a poor man is only fun when you are rich.
+ - Robert Vavra is one of these artists, part magician, part alchemist, who is able to create a series of photographs in unforgettable compositions. Only visible are the dunes, the blinding fields of flowers and the vast sky, the epic intimacy of Robert Vavra’s vision.
+ - People are annoyed with the Chinese for not respecting more human rights. But with a population that size it’s very difficult to have the same attitude to human rights.
+ - Children are the only form of immortality that we can be sure of.
+ - Books, I don’t know what you see in them. I can understand a person reading them, but I can’t for the life of me see why people have to write them.
+ - I was irrevocably betrothed to laughter, the sound of which has always seemed to me the most civilised music in the world.
+ - There are experts in little things but there are no experts in big things. There are experts in this fact and that fact but there are no moral experts.
+ - We used to have lots of questions to which there were no answers. Now, with the computer, there are lots of answers to which we haven’t thought up questions.
+ - It is youth that has discovered love as a weapon.
+ - Men think about women. Women think about what men think about them.
+ - What is education but a process by which a person begins to learn how to learn?
+ - I was irrevocably betrothed to laughter.
+ - I am an international citizen conceived in Russia, born in England, working in Hollywood, living in Switzerland, and touring the World.
+ - I have four children which is not bad considering I’m not a Catholic.
+ - I can never forgive God for having invented the French.
+ - Life was cheap in the Middle Ages. It has become cheaper since. It is only in specific battles for specific lives that our culture is put to the test, and with it our humanity.
+ - Because they have been in love they have survived everything that life could throw at them, even their own failures.
+ - I had started by imitating a parrot, which is unusual, in that a parrot is supposed to imitate you. By taking the initiative you allow the parrot no alternative but to be itself, which proves again that attack is often the best defence.
+ - Did you know that every two hours the nations of this world spend as much on armaments as they spend on the children of this world every year?
+ - Laughter would be bereaved if snobbery died.
+ - The social sciences were for all those who had not yet decided what to do with their lives, and for all those whose premature frustrations led them into the sterile alleys of confrontation.
+ - As I grow older I find that though I think I’m saying the same things as I always did, people listen to me more.
+ - At the age of four with paper hats and wooden swords we’re all Generals. Only some of us never grow out of it.
+ - Critics search for ages for the wrong word, which, to give them credit, they eventually find.
+ - By increasing the size of the keyhole, today’s playwrights are in danger of doing away with the door.
+ - Playwrights are like men who have been dining for a month in an Indian restaurant. After eating curry night after night, they deny the existence of asparagus.
+ - And here is the lesson I learned in the army. If you want to do a thing badly, you have to work at it as though you want to do it well.
+ - The truth is really an ambition which is beyond us.
+ - The stupidity of a stupid man is exercised in a restricted field; the stupidity of an intelligent man has a much wider diffusion, and a far greater effect, aided as it is by the element of surprise.
+ - I think that first nights should come near the end of a play’s run-as indeed, they often do.
+ - It’s wrong to flog a man. It’s against his being a man.
+ - Pavarotti is not vain, but conscious of being unique.
+ - In my day, there were things that were done, and things that were not done, and there was even a way of doing things that were not done.
+ - Generals are fascinating cases of arrested development – after all, at five all of us wanted to be generals.
+ - The older I get, the more people listen to me – even though I say the same as always...
+ - Her virtue was that she said what she thought, her vice that what she thought didn’t amount to much.
+ - At my age, I’m often asked if I’m frightened of death and my reply is always, I can’t remember being frightened of birth.
+ - A diplomat these days in nothing, but a head waiter who is allowed to sit down occasionally.
+ - Basically I’m a very serious person, but I think the form it takes with me is comedy. I see the amusing side of all potentially pompous situations.
+ - Acting on television is like being asked by the captain to entertain the passengers while the ship goes down.
+ - I don’t know why I have these dreams. I’ve never wanted to be Pope. In fact, I have a greater affinity to Martin Luther.
+ - Artificial glamor-false eyelashes, that sort of thing-usually is put on to hide a vacuum. The most beautiful face can only look vacuous if it masks an empty head.
+
+88 quotes

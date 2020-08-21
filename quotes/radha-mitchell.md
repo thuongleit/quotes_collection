@@ -1,0 +1,32 @@
+ - I don’t smoke and I don’t drink alcohol.
+ - Yeah I think Pitch Black was edgy, I think that’s what worked for our film.
+ - I want to be a blonde vampire. Catherine Deneuve was a blonde vampire, and she was my favourite vampire ever.
+ - I had a friend, and we always used to pretend to be twins. We had this fantasy about going to Hollywood together. We were about four.
+ - I’d definitely rather be rich than famous.
+ - So I was in America and I thought I’ll stick around while I’m here and just see what happens. The next film I did was High Art, so I guess it started with a sort of vague idea but really just a fantasy.
+ - But I’m also a vegetarian so there’s another factor I guess.
+ - After that, I was offered lots of lesbian roles, but I didn’t want them because I’d already played the best there was.
+ - But in this case, he had my cell phone and my phone was ringing and I had just come back from Australia on the plane and I thought it was my mum and it was Woody Allen just checking to see if I wanted to be in his movie.
+ - There’s something really nice about having a group of people that you’re committed to, that you work with and that there’s a future in it. Film is like a party, and then it’s over, whereas this hopefully feels like a family.
+ - I think in this, definitely, because you are feeling how it felt to live in a completely different time. The mannerisms and the way that people behaved was quite different.
+ - I mean normally you have your agent call the other agent and all the agents talk and then finally you get a phone call and you hear some misrepresentation of what someone else had to say.
+ - This city can be kind of brutal, so you see your dreams from every different angle, but ultimately it’s about acting and if you enjoy acting, you will always enjoy acting.
+ - So wearing a corset certainly changes your state of mind.
+ - For me, even just being English was a whole sort of experience in as much as I’m Australian.
+ - I do Yoga. I’d like to say I do it every morning, but I don’t, I just don’t have the time.
+ - I’m not working now, so I’m sort of facing the unknown.
+ - I guess when I first started speaking with an American accent, there’s a tendency to create a caricature of the accent because you just exaggerate the pieces that stand out to you.
+ - Life is neither comedy or tragedy, life is what you make of it.
+ - As much as most of the actors were kind of curious to know what their character meant in relation to the script and to the plot, they really were quite happy to be part of the adventure of not knowing.
+ - It was kind of scary because working with Woody Allen becomes sort of a big deal in your mind. He directs in that Woody Allen character some of the time – he has these idiosyncrasies that are really charming and funny.
+ - You do have habits and rhythms that you do sort of fall into when you’re acting, but if you’ve got text that doesn’t allow you to do that it puts you in a bit of an uncomfortable space and takes you out of your habits.
+ - I didn’t even understand the whole idea of Hollywood.
+ - New York in a way functions as another character within the story, as it does within most of Woody Allen’s stories.
+ - To be honest, it’s easier for me to speak with an American accent.
+ - I never wanted to be a movie star.
+ - Well, obviously I was excited by the idea that Woody Allen was going to direct it. But at the same time, the script itself and the character was really interesting.
+ - All that either of us has is right now and we should pay attention to that.
+ - Revenge is a way of life and definitely some thing that we identify with. We all feel cheated in some way about some thing and how nice it would be to do something about it. I mean ultimately it’s not the most Christian of sentiments.
+ - We’ve become much more casual and much more relaxed in social interactions, where there was a formality and maybe a kind of respect at that time that doesn’t exist now.
+
+30 quotes

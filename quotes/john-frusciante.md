@@ -1,0 +1,99 @@
+ - Make sure you stay in touch with beauty instead of letting the ugliness of the world corrupt your soul.
+ - That’s what I spend most of my time doing, breathing a lot. I like air.
+ - I find that the best way to do things is to constantly move forward and to never doubt anything and keep moving forward, if you make a mistake say you made a mistake.
+ - The Will to Death is what keeps me alive.
+ - When the intellectual part of guitar playing overrides the spiritual, you don’t get to extreme heights.
+ - Music is my friend, no matter where I go.
+ - I’m not interested in meeting people’s expectations, and I’m not interested in pleasing people.
+ - The point is, I’m weird, but I never felt weird.
+ - What’s gone will never come back, but it exists when you think of it.
+ - You are free. Close your eyes. Open your mind. Let this music in, and you will see that this is true.
+ - You should always think good things and always look for the good in the world. If you look for the bad in the world, you will always find something bad. But if you look for the good you will find it, it is there.
+ - You just never know when somebodys gonna die. It could happen at any moment so youve got to really treat everybody that way. Just really let everybody know how you feel about them.
+ - I’ve been in pain hope it doesn’t show I’ve been insane well the time is slow.
+ - I don’t pay attention to the world. I just have the art I like and the music I like and for me that’s the whole world.
+ - I am very happy to be alive. There is much fun to be had. Music, movies, books, paintings, drawingsI hope you have these things where you are. If you have them, what does the real world matter anyway?
+ - I still love with all my heart anything that I have ever loved in my life.
+ - Music has always carried me through times of loneliness. So when I make music, I like it to make people who listen to it feel like they have a friend who reveals something personal to them, rather than trying to be like a god up on a pedestal.
+ - It’s my dream to make music that can make people feel like they’re flying.
+ - Anybody who’s a guitar player that’s spent that time with another guitar player, there’s nothing better than that.
+ - I never feel like I’m running out of ideas, because it is clear to me – music is infinite.
+ - Dream that you died It takes you out of your mind The black walls of space Take me all the way.
+ - And for me the only way to live life is to grab the bull by the horns and call up recording studios and set dates to go in recording studios. To try and accomplish something.
+ - I write lyrics. I play the guitar. If the rest of the band had to do my schedule, they would be dead.
+ - My religious point of view is something I can’t talk about. It goes against my belief system to talk publicly about my own spiritual beliefs.
+ - Music is energy, and energy is the single most important form of it in the world. Without energy, there is no life. The only difference between a dead person and a live person is the energy, the electricity flowing inside their system, and that’s what makes music.
+ - I’m dreading the time that is not near As a man on a cross I have no fear I can’t believe these words I’m saying You’ve got to feel your lines.
+ - Everything is eternal Nothingness does not exist No thing has ever become nothing And nothing has never become something What is has always been and will always be.
+ - I need people to call me, I never remember to call anyone – otherwise I’ll just sit in my house and listen to music all day.
+ - When I smile at the audience, I’m not smiling because I was told that you’re supposed to smile to the audience. I smile because they’re all smiling at me, and it’s a great feeling to see all these happy people out there, and it makes me happy to see them happy...
+ - Well, I don’t need protection One life begins, another dies Bad timing I won’t last.
+ - So when I feel the spirit upon me it’s something I don’t take it for granted, and I don’t think I’m solely responsible for these things.
+ - For me it’s important to be in balance. To not let fear get in the way of things, to not worry so much about protecting yourself all the time.
+ - Maybe what I do isn’t going to be acknowledged by people, but that’s me. It’s my nature to do things that are weirder and less understood and that was a path I needed to take.
+ - Sometimes it takes just living your life a certain way to be able to open yourself to the rhythm of the cosmos.
+ - If anything unfolds, it’s supposed to.
+ - But for me if I’m gonna read about something I’d rather read a pamphlet or the instructions to a synthesizer than a book on Buddhism.
+ - I think an analogue synth is an extension of the natural world.
+ - As long as you’re excited about what you’re playing, and as long as it comes from your heart, it’s going to be great.
+ - It’s about the music, it’s not about just showing people what you can do with a piece of wood with strings on it.
+ - For me, living and making music, they’re one thing. It’s not like a job that I go to a studio to do, or a chore that I have to get myself in the mood to do, or something. It’s the thing that I need to do every day.
+ - Lose yourself in the far off worlds that are right under your feet. Switch below with above all the way up into infinity. We should be thankful who we are, whether we know ourselves or not.
+ - Something like trying to protect yourself all the time, things like trying to outwit fate. Those things can be the worst thing you can do for yourself.
+ - Pagers are my life – I try to get them in to our music as much as possible.
+ - I would say a lot of the emotion in what I do is a sort of a thankfulness for those energies being around, because there’s been points in my life when they weren’t around, and it’s a real sort of miserable existence.
+ - Even if my songs are a bit low-spirited, they make me happy. I become happy when I hear sad songs. When you sing about sad things in a beautiful way, the atmosphere turns upside down.
+ - Everything’s very perfectly balanced; for all the horrible things in the world there’s lots of good things.
+ - We are all very lucky to live in a world where there is this much music.
+ - I don’t want to be on the radio. I don’t want to be on Mtv.
+ - I think any music of any worth has been done by people who were very interested in the internal process of their soul and their mind that’s taking place while they’re writing music.
+ - I’m not interested in forcing my music on people, and that’s what the whole music industry nowadays is based on is forcing stations to play it, forcing people to listen to it.
+ - You know this moment in time Is all my life Every day is each day that’s passed Every person alive is everyone’s who’s died.
+ - Making art is about accepting what’s going on around you and turning it into.
+ - I just like to switch things up all the time. Like when it comes to singing, I try to find a different character for each song.
+ - The curtains were made for moving Cause you know sometimes you’re not always there.
+ - Because I’m pure inside, the music that comes out of me is a life-giving thing. Like water.
+ - The main thing experience has taught me is that one has to sort of hone their relationship to time, you know.
+ - For me my friendship with Omar Rodriguez from Mars Volta that friendship really means a lot to me because he’s another creative person who works as hard as I do.
+ - A slave in the fields one night He’s running along Gets far enough to be a free man And he’s feeling so strong.
+ - Any guitar solo should reflect the music that it’s soloing over and not just be existing in its own sort of little world.
+ - In music you have people exposing this very vulnerable part of themselves, and you also have the lifestyle is so fast that oftentimes people search for whatever the easiest way to feel relaxed in the midst of all of it, or the easiest way to have energy.
+ - I don’t have an extensive background in theory, but the amount of it that I’ve learned, I’ve applied, so I have a vocabulary of melodic and rhythmic relationships. And that’s all theory is – it’s symbols to help you identify those relationships.
+ - What I do on my solo stuff is just the most natural version of who I am, and I’m trying to represent the feelings that I’m feeling as purely as possible.
+ - I wanted all my solos to be something you could sing along with.
+ - The drive to create music that is pure is my highest priority. Sometimes I’ll get extremely technical, and other times I’ll just kind of go with the gods of music.
+ - So I use a tape recorder a lot to record ideas.
+ - I just feel like the songs that come out are the songs that come.
+ - Expression is when you are at one with nothingness.
+ - You don’t throw your life away Going Inside You get to know who’s watching you And besides you resides in your body.
+ - Well, I don’t even know how to drive in this life, so I’m pretty far from ever having the life of being a stuntdouble. I liked- I had an Evil Knievel doll when i was a kid, that’s about it!
+ - I write songs because I have to write them, and if I didn’t I’d be doing some other kind of music that didn’t require a song.
+ - I’m going through a phase where I’m really accomplishing a lot of things and in that is everything I’ve learned.
+ - What I have to say to an inhabitant of the Earth in one hundred years is similar to what I have to say to the present inhabitants of Earth. To be creative.
+ - Rock music is electronic music, dependent entirely on electronic circuitry and amplification.
+ - I think the feelings in my music were suggested to me before I even had the ability to play music.
+ - But I think I know just as many creative people who’ve never taken drugs in their life as I do who have taken a lot of drugs.
+ - As far as my solo record, I don’t want a gold record or anything, I’m happy to be small and to have the people appreciate the music who really like me for being me.
+ - I think a solo moves forward the way a song does, because it’s reflective of the chords that I’m considering as I’m soloing, and at the same time I’m going as much out on a limb as Frank Zappa used to, in terms of just going crazy on the instrument.
+ - I’m also very impressed with the best people in experimental electronic world, like Peta and Eckart Aillers and Finez and Jim O’Rourke and Oren Umbarci and Francesco Lopez. Most of them use the computer as their main instrument.
+ - All I know is that the six months when I recorded this music was the most productive time of my life, and I’ll always remember it as the first time in my life that I ever felt like I was one with my dreams.
+ - People fall into patterns at fast speeds, when really, to have a clear musical thought – the kind of musical thought that makes a melody work – our brains just can’t think that fast. At a certain point, you’re going on automatic.
+ - I consider my music to be Progressive Synth Pop, which says nothing about what it sounds like, but does describe my basic approach.
+ - And if a few other people come along who discover my music because they in some natural way come across my music, cool.
+ - It means basically I’m using the synthesizer more to change the sounds of other things rather than to use it as the source of the sound.
+ - Rock guitarists usually do not wish to think trains of thought about anything but their own guitar playing during a long solo, and I could not play this way if I were not able to divide my attention between my ever changing musical environment and my instrument itself.
+ - Yeah, I really like being alive. But I definitely don’t have any intentions as an artist.
+ - What really helps me is being able to record my albums at home – I have more fun experimenting that way, as opposed to working with an engineer, in which case I have to deal with the humiliation of doing take after take, and that can get frustrating.
+ - I combine aspects of many styles of music and create my own musical forms by way of electronic instruments.
+ - But I have been avoiding talking about what I’m doing now because it’s frustrating for people to hear about things that aren’t available yet.
+ - My music, my whole approach to the synthesizer has completely changed now.
+ - I think you get people taking things to excess in all fields, doctors, lawyers – -it happens to all kinds of people.
+ - For me, theory has always opened things up to where I can walk into a room and just by hearing something I know exactly where to go on the guitar. I have a better time playing because I have a variety of colors to bring to the table.
+ - And this whole period of time of gradually working at being a better guitar player and songwriter have gradually led me to the point where I feel I’m doing a clearer representation of the thing that I’ve been feeling inside me since I was four years old.
+ - I feel like I’d like to continue putting out records and start putting them out more rapidly than I have until now and for me if I can keep selling the records to the fans that already like me that’s fine.
+ - In the Chili Peppers I’m a part of that world in a pretty big world and that’s just the way it is.
+ - Right now my taste is going more for things that are organic where the people are using all the sonic possibilities in interesting ways.
+ - I try to put the same spirit into that that I put into any other music endeavor I’m involved in.
+ - Pot put me in a position where I could walk far away from my playing and hear it in the second person. It helped me step away from myself. I stopped seeing the guitar as a thing I’m holding in my hands and started seeing it as a thing that’s at one with outer space and nothingness.
+
+97 quotes

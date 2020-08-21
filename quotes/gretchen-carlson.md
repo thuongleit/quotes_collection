@@ -1,0 +1,39 @@
+ - I believe every child is born with a gift from God – big or small – and that we should all make the most of our talents.
+ - Self esteem is built from the inside out and that is my inspiring message to all people.
+ - Through the many struggles in my life, my faith is sometimes the only thing I have to hold onto. God was my only friend.
+ - I’m not superwoman. It’s impossible to do everything 100 percent all of the time. And suggesting that women should be able to do it only puts more pressure on them.
+ - I believe giving back is one of the greatest life lessons we can teach our children; that the world isn’t all about them, and that through our actions people will really discover what kind of a person we truly are.
+ - I’m a person who likes to give 100 percent to everything I do. I want to be the best at my job and as a mother.
+ - Here we go again. Pandering to the .3 percent of the American population that consider themselves transgender. Now I get to explain this to my 8-year-old, if I just wanted to watch a nice family show with some nice music.
+ - There are no guarantees in life, but I believe faith provides all of us with a foundation to live the best lives possible – knowing that there is a higher being who loves us and will never leave us.
+ - At my age I can handle people writing junk about me on social media, but I sometimes air “mean tweets” on my show to highlight how destructive this meanness and bullying is to young people. I know how devastating it is for a young person to be the victim of such ugliness.
+ - My hope is that when people read my story, it will inspire them to reach for their goals and not give up. The real story is this: if I can do it, you can too.
+ - Everyone is busy, but I believe it depends on what you prioritize. My husband and I teach Sunday School together at our church and are very involved.
+ - Thanks to my upbringing, I always believed in myself and worked as hard as I could to get where I wanted to be. Nothing was ever handed to me.
+ - Social media has allowed people to ramp up their personal attacks on people in the public eye – because there is a sense they can do it anonymously.
+ - The first time I was asked whether women can “have it all” was at the Miss America pageant. I said no. I didn’t mean that women shouldn’t fully pursue their dreams, only that we need to be honest with ourselves.
+ - I grew up a fat kid in a small town in Minnesota who was a tomboy and happened to play a mean violin. My goal was to be a famous concert artist some day.
+ - In the Miss America system talent is worth 50 percent of a contestant’s points so my mom encouraged me to give it a try. And once I decided to do it, like anything else, I gave it 110 percent.
+ - I’m the ultimate organizer! My major at Stanford was “Organizational Behavior” so I love to multi-task and stay extra busy.
+ - Trust is the most important aspect of being a journalist. If people don’t trust or find you relatable – you will not have success.
+ - I don’t read all the junk. I joke if I did, I wouldn’t get out of bed in the morning. But, Sometimes the comments over the top – really ugly. Many of them are critical of my looks, like the one that criticized my “thunder thighs.” I get that a lot. Some of the tweets are too vulgar to repeat.
+ - The discipline learned from putting in time and effort as a child is a skill and a talent you carry with you for the rest of your life in trying to achieve goals.
+ - One of my Miss America judges called me a “God-clutcher” way back when because I spoke about my faith being an important part of my life during my interview.
+ - We have rules in the house and a sticker chart for my kids to earn technology time. Maybe its because of the world I live in and work, that I don’t see much of anything beneficial that comes out of social media for kids. Even though its how they communicate now, so you have to find the fine balance.
+ - I’ve learned that sometimes when people don’t like what you have to say, and don’t want to debate you on ideas, it’s just easier to call you a dumb blonde from Fox News.
+ - I’m a big believer in always challenging yourself and learning new skills.
+ - Miss America gets a lot of flak, but the reality is that it is uplifting and aspirational – 50% percent of my points were based on talent.
+ - If you Google me, you’ll find plenty of “dumb blonde” references – even though I graduated with honors from Stanford and studied at Oxford University. I don’t let it bother me.
+ - Being REAL means showing people who you are underneath all the TV make up too.
+ - I’ve never understood why it’s a negative to showcase a talented, smart woman who also happens to be attractive.
+ - I joke that I reached the bimbo trifecta when I came to Fox News! In being a former Miss America, being blonde and then Fox.
+ - I might even pursue a career in politics. If I do, I will have had great practice dealing with the avalanche of daily criticism from working at Fox News and being a former Miss America. I’m ready for anything!
+ - I never had becoming Miss America on my radar screen. But when I was 17, I decided to quit the violin and my parents were devastated.
+ - Gratitude needs to come back in a big way and I hope to encourage people to get involved.
+ - Our daughter was the last in her class to get a cell phone and she had to earn it. She still doesn’t have Instagram although she asks me for it every day.
+ - I felt vindicated that I decided to speak up for not only myself but women all across the nation who’ve been put down.
+ - The challenging part of parenting is to stick to your ideals and not give in.
+ - There’s something about winning Miss America that brings out the snark.
+ - I learned that I had to work triply hard every time I started a new job in a newsroom to prove my value and worth.
+
+37 quotes

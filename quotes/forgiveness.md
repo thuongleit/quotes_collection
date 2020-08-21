@@ -1,0 +1,42 @@
+ - The weak can never forgive. Forgiveness is the attribute of the strong. ~~Mahatma Gandhi
+ - Forgive yourself for your faults and your mistakes and move on. ~~Les Brown
+ - Forgiveness is a sign that the person who has wronged you means more to you than the wrong they have delt. ~~Ben Greenhalgh
+ - If we really want to love we must learn how to forgive. ~~Mother Teresa
+ - For every minute you are angry you lose sixty seconds of happiness. ~~Ralph Waldo Emerson
+ - Forgiveness says you are given another chance to make a new beginning. ~~Desmond Tutu
+ - The practice of forgiveness is our most important contribution to the healing of the world. ~~Marianne Williamson
+ - Anger makes you smaller, while forgiveness forces you to grow beyond what you were. ~~Cherie Carter-Scott
+ - I free myself from hatred through forgiveness and love. ~~Paulo Coelho
+ - Forgiveness is the final form of love. ~~Reinhold Niebuhr
+ - You will know that forgiveness has begun when you recall those who hurt you and feel the power to wish them well. ~~Lewis B. Smedes
+ - Forgiveness is the key that unlocks the door of resentment and the handcuffs of hatred. It is a power that breaks the chains of bitterness and the shackles of selfishness. ~~Corrie ten Boom
+ - Always forgive your enemies; nothing annoys them so much. ~~Oscar Wilde
+ - To err is human; to forgive, divine. ~~Alexander Pope
+ - Forgiveness is not a feeling; it is a commitment. ~~Gary Chapman
+ - Forgiveness means it finally becomes unimportant that you hit back. ~~Anne Lamott
+ - Hanging onto resentment is letting someone you despise live rent-free in your head. ~~Ann Landers
+ - The only way out of the labyrinth of suffering is to forgive. ~~John Green
+ - I imagine one of the reasons people cling to their hates so stubbornly is because they sense, once hate is gone, they will be forced to deal with pain. ~~James Baldwin
+ - Anytime you try to be a loving person, you’re doing your part to save the world. ~~Marianne Williamson
+ - We think that forgiveness is weakness, but it’s absolutely not; it takes a very strong person to forgive. ~~T.D. Jakes
+ - When you forgive, you in no way change the past – but you sure do change the future. ~~Bernard Meltzer
+ - True forgiveness is when you can say, "Thank you for that experience." ~~Oprah Winfrey
+ - To forgive is to set a prisoner free and discover that the prisoner was you. ~~Lewis B. Smedes
+ - Forgiveness is not always easy. At times, it feels more painful than the wound we suffered, to forgive the one that inflicted it. And yet, there is no peace without forgiveness. ~~Marianne Williamson
+ - There is no revenge so complete as forgiveness. ~~Josh Billings
+ - Forgiveness is a gift you give yourself. ~~Suzanne Somers
+ - He who cannot forgive breaks the bridge over which he himself must pass. ~~George Herbert
+ - I can forgive but I cannot forget, is only another way of saying, I cannot forgive. ~~Henry Ward Beecher
+ - Forgiveness is not an occasional act, it is a constant attitude. ~~Martin Luther King Jr.
+ - Forgiveness is a virtue of the brave. ~~Indira Gandhi
+ - Finish each day and be done with it. You have done what you could. Some blunders and absurdities no doubt crept in; forget them as soon as you can. Tomorrow is a new day. You shall begin it serenely and with too high a spirit to be encumbered with your old nonsense. ~~Ralph Waldo Emerson
+ - He who is devoid of the power to forgive is devoid of the power to love. ~~Martin Luther King Jr.
+ - If you wish to travel far and fast, travel light. Take off all your envies, jealousies, unforgiveness, selfishness and fears. ~~Cesare Pavese
+ - Strength of character means the ability to overcome resentment against others, to hide hurt feelings, and to forgive quickly. ~~Lawrence G. Lovasik
+ - People can be more forgiving than you can imagine. But you have to forgive yourself. Let go of what's bitter and move on. ~~Bill Cosby
+ - Never does the human soul appear so strong as when it foregoes revenge and dares to forgive an injury. ~~Edwin Hubbel Chapin
+ - When you hold resentment toward another, you are bound to that person or condition by an emotional link that is stronger than steel. Forgiveness is the only way to dissolve that link and get free. ~~Catherine Ponder
+ - Forgiveness is a funny thing. It warms the heart and cools the sting. ~~William Arthur Ward
+ - The forgiving state of mind is a magnetic power for attracting good. ~~Catherine Ponder
+
+40 quotes

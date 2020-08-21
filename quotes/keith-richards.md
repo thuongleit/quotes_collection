@@ -1,0 +1,123 @@
+ - I’m not getting old I’m evolving.
+ - Music is a necessity. After food, air, water and warmth, music is the next necessity of life.
+ - If you’re going to kick authority in the teeth, you might as well use two feet.
+ - Music is a language that doesn’t speak in particular words. It speaks in emotions, and if it’s in the bones, it’s in the bones.
+ - Some things get better with age. Like me.
+ - Art is the last thing I’m worried about when I’m writing a song. As far as I’m concerned, art is just short for ‘Arthur.’
+ - To me, the main thing about living on this planet is to know who the hell you are and be real about it. That’s the reason I’m still alive.
+ - The public library is the great equaliser.
+ - I mean, give me a guitar, give me a piano, give me a broom and string, I wouldn’t get bored anywhere.
+ - When you are growing up there are two institutional places that affect you most powerfully: the church, which belongs to God, and the public library, which belongs to you.
+ - Everybody’s got a different way of telling a story – and has different stories to tell.
+ - It’s great to be here. It’s great to be anywhere.
+ - We age not by holding on to youth, but by letting ourselves grow and embracing whatever youthful parts remain.
+ - If you’re gonna get wasted, get wasted elegantly.
+ - My life is full of broken halos.
+ - Everyone talks about rock these days; the problem is they forget about the roll.
+ - I mean some doctor told me I had six months to live and I went to their funeral.
+ - About myself I have no great illusions. I know what I am. I know what I’m good at. I know what I ain’t. I’m always hoping to surprise myself. But I do have a love of music and I do love to communicate it, and that’s the best I can do, really. And I can raise a good family, too.
+ - I’ve never had a problem with drugs. I’ve had problems with the police.
+ - This is the rock ‘n’ roll life, and you had to invent it as you went along. There was no textbook to say how you operate this machinery.
+ - True friends. Hardest thing to find, but you never look for them – they found you ; you just grow into each other.
+ - What’s the big deal about still working? Retirement age is sixty-five, and that’s at a normal job – and I ain’t there yet.
+ - If you stay up, you get the songs that everyone else misses because they’re asleep.
+ - Nobody wants to get old, but nobody wants to die young either.
+ - If you’ve gotta think about being cool, you ain’t cool.
+ - A painter’s got a canvas. The writer’s got reams of empty paper. A musician has silence.
+ - Some people think I’m a mythical genius, others think I’m a junkie madman.
+ - What is life but playing with time?
+ - To me, life is a wild animal. You hope to deal with it when it leaps at you.
+ - If you’re cool, you don’t know nothing about it. It just is, or you ain’t.
+ - I don’t encourage anybody to do what I do, you know? Why should you? More for me!
+ - Anything you throw yourself into, you better get yourself out of.
+ - To me, my biggest fear is getting a big head, and that is when I get the hammer. Because it’s very easy in this game to believe you’re something special.
+ - There was a knock on our dressing-room door. Our manager shouted, ‘Keith! Ron! The Police are here!’ Oh, man, we panicked, flushed everything down the john. Then the door opened and it was Stewart Copeland and Sting.
+ - You’ve got the sun, you’ve got the moon, and you’ve got the Rolling Stones.
+ - Retire? I can’t spell the word. I’d play in a wheelchair.
+ - Everybody starts by imitating their heroes. For me it was Chuck Berry and Muddy Waters.
+ - Rock and roll ain’t nothing but jazz with a hard backbeat.
+ - If you say I’m great, thank you very much. But I know what I am. I could be better, man, you know?
+ - A gut-string classical Spanish guitar, a sweet, lovely little lady. The smell of it. Even now, to open a guitar case, when it’s an old wooden guitar, I could crawl in and close the lid.
+ - Let me be clear about this. I don’t have a drug problem. I have a police problem.
+ - I looked upon myself, in a sort of romantic and silly way, as like a laboratory.
+ - I’ve never had inner turmoil about all this. You find a lot of people these days who cannot stand to be alone. You could lock me up in solitary for weeks on end, and I’d keep myself amused.
+ - I’ve never had my hair cut by anybody, I do it all myself.
+ - I don’t regret nuthin...
+ - What Muddy Waters did for us is what we should do for others. It’s the old thing, what you want written on your tombstone as a musician; HE PASSED IT ON.
+ - Everybody thinks you reach a certain age and you’re a grownup, but it’s not true. Nobody grows up until the day they croak.
+ - It might appear that nothing is happening, but that’s actually when it really happens.
+ - To make a rock’n’roll record, technology is the least important thing.
+ - I never thought I was wasted, but I probably was.
+ - Poison’s not bad. It’s a matter of how much.
+ - I personally believe that most people that play an instrument would be able to write a few songs here and there. But they say, “I tried, I can’t do it” and give up and don’t try it again; they get too discouraged.
+ - I only get ill when I give up drugs.
+ - Hey, we just enjoy it. I think we think we’re getting the hang of this thing, you know?
+ - Songwriting’s a weird game.
+ - You don’t find a style. A style finds you.
+ - Rock and Roll: Music for the neck downwards.
+ - I’m all for a quiet life. I just didn’t get one.
+ - I never sleep alone. If there is no one to sleep next to, I’ll sleep next to a stuffed animal. It makes me feel secure and safe. It’s a little embarrassing to admit it; I’m an old man now. It’s important to me though.
+ - Before Elvis, everything was in black and white. Then came Elvis. Zoom, glorious Technicolor.
+ - One minute I’m standing at Ronnie Scott’s getting a standing ovation and the next minute, I’m on a marble slab.
+ - No broken hearts, no broken necks.
+ - Women are a beautiful complication, and I look forward to far more beauties and far more complications.
+ - Fame has killed more very talented guys than drugs. Jimi Hendrix didn’t die of an overdose, he died of fame.
+ - There’s a demon in me, and he’s still around. Without the dope, we have a bit more of a chat these days.
+ - The electric guitar meant that you could have a band with a drummer and a couple of guitars. And that put a lot of horn players out of work.
+ - The Stones in a club is still the ultimate rush.
+ - The only things Mick and I disagree about is the band, the music and what we do.
+ - It’s one thing to play a Muddy Waters song. It’s another thing to play with him.
+ - I don’t trust doctors. It’s not to say there ain’t some good ones, but on a general level, no, I wouldn’t trust ’em at all.
+ - Love has sold more songs than you’ve had hot dinners.
+ - You can’t accuse me of anything I haven’t already confessed to.
+ - Treat each guitar track-and each song-completely different. For example, if I’m using a certain amp and guitar on one track, I’ll deliberately use something else for the next tune or overdub.
+ - I look for ambiguity when I’m writing because life is ambiguous.
+ - I read the Bible sometimes, but it bores me to death. I just want to know what other people find so bloody fascinating.
+ - I can sustain the impetus over the long tours we do is by feeding off the energy that we get back from an audience. That’s my fuel. All i’ve got is this burning energy, especially when i’ve got a guitar in my hands.
+ - I’ve always been suspicious of TV, I’ve always found music and video to be an unhappy marriage.
+ - Good music comes out of people playing together, knowing what they want to do and going for it. You have to sweat over it and bug it to death. You can’t do it by pushing buttons and watching a TV screen.
+ - Rap-so many words, so little said.
+ - Preaching is tax free. Very little to do with God, a lot to do with money.
+ - The Beatles were basically a vocal band.
+ - I occasionally borrow pot from my kids. They do a little weed occasionally. ‘Here, Dad’ – or more likely, ‘Dad, have you got any?’
+ - I achieved everything I wanted to achieve by being in the Rolling Stones and making records.
+ - I’d play whenever I could get my hands on an electric guitar; I was trying to pick up rock’n’roll riffs and electric blues-the latest Muddy Waters. I’d spend hours and hours on the same track, back again, and back again.
+ - The electric guitar was vital in helping what I’ve achieved where would I be without it? Playing awfully quietly, for a start.
+ - There’s just certain styles of playing that you do play in your own way. Maybe it’s in the way your fingers bend, for all I know. And so whenever you pick up the guitar it’s not so much the sound of the instrument itself, it’s like the ting that you add onto it-the attitude.
+ - The rock’s easy, but the roll is another thing...
+ - George Jones is a national treasure and should be treated accordingly. A unique style so often emulated even inadvertently.
+ - The only new technology that interests me is when it sort of throws me back soundwise. And I can think, “Wow, that means I can go onstage and sound like Scotty Moore now and again!”
+ - I’m an unpure purist, something like that.
+ - I was in awe sometimes listening to Mick Taylor. Everything was there in his playing – the melodic touch, a beautiful sustain and a way of reading a song.
+ - You didn’t know whether Chuck Berry was black or white – it was not a concern.
+ - Music works in mysterious ways. Once it goes in you have no idea what it can do to you.
+ - Yes, I’ve been trepanned. That’s quite an interesting experience, especially for my brain surgeon, who saw my thoughts flying around in my brain.
+ - I like it here in Austin. Anybody got a room?
+ - I’ve got nothing against daylight. I don’t live totally nocturnally. Only when I feel like it. Which is most of the time.
+ - Some of my most outrageous nights- I can only believe actually happened because of corroborating evidence. No wonder I’m famous for partying! The ultimate party- if it’s any good- you can’t remember it.
+ - I have no idea what the audience makes of me.
+ - Everything they’d been brought up not to do, they could do at a rock-and-roll show.
+ - You don’t start to play your guitar thinking you’re going to be running an organisation that will maybe generate millions.
+ - When you’re supported by millions all over the world, you can either go nuts, or try to feed off the goodwill.
+ - The idea of retiring is like killing yourself. It’s almost like Hari Kari. I intend to live to a 100 and go down in history.
+ - When I listen to what I did under the influence – 10 years of work – I don’t think it either enhanced or impaired me. It didn’t have that much to do with it.
+ - You know, the BBC had not been particularly generous in its deliverance of blues and esoteric kinds of music.
+ - You get onstage and make other people feel happy. Make them feel good.
+ - Why would you want to be anything else if you’re Mick Jagger?
+ - To me, as long as we’ve known each other, I’ve always thought Mick’s most brilliant thing was that he could work in an area two foot square and give a very exciting performance.
+ - Another thing to do with the blues is how they were recorded. They were done on the quick, and some of that stuff was made on wire, not even tape, let alone digital.
+ - Its called a playground, but its nearer to a battlefield. It can be brutal.
+ - And it was a very, very fruitful and great relationship between the Stones and The Beatles. It was very, very friendly.
+ - One of the great things about songwrighting; it’s not an intellectual experience.
+ - There’s no substitute for live work to keep a band together.
+ - I never plan anything, which is probably the difference between Mick and myself. Mick needs to know what he’s gonna do tomorrow and I’m just happy to wake up to see who’s hanging around. Mick’s rock and I’m roll.
+ - My father. I snorted my father. He was cremated and I couldn’t resist grinding him up with a little bit of blow.
+ - You’re always learning about this thing everytime you pick it up.
+ - We all have our own personal laboratories. Life is an experiment, and it’s just a matter of getting the alchemical or chemical combination right.
+ - And then I think we realized, like any young guys, that blues are not learned in a monastery. You’ve got to go out there and get your heart broke and then come back and then you can sing the blues.
+ - When you’re 20, you can’t imagine being 30. When you’re 30, you can’t imagine being 40. When you’re 40, you can’t imagine being 100.
+ - It’s a privilege just to wake up to a new day.
+ - You see, to me, the art of music is listening to it, not playing it. The real art of it is hearing it.
+ - To a musician or songwriter, your canvas is silence.
+
+121 quotes

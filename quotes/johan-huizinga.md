@@ -1,0 +1,58 @@
+ - If we are to preserve culture we must continue to create it.
+ - Play is older than culture, for culture, however inadequately defined, always presupposes human society, and animals have not waited for man to teach them their playing.
+ - The modern city hardly knows a pure darkness or true silence anymore, nor does it know the effect of a single small light or that of a lonely distant shout.
+ - A new culture can only grow up in the soil of a purged humanity.
+ - You can deny, if you like, nearly all abstractions: justice, beauty, truth, goodness, mind, God. You can deny seriousness, but not play.
+ - History, as the study of the past, makes the coherence of what happened comprehensible by reducing events to a dramatic pattern and seeming them in a simple form.
+ - Play is a uniquely adaptive act, not subordinate to some other adaptive act, but with a special function of its own in human experience.
+ - Culture means control over nature.
+ - Whatever our creed or belief, we all know that there is no way back, that we must fight our way through.
+ - These are strange times. Reason, which once combatted faith and seemed to have conquered it, now has to look to faith to save it from dissolution.
+ - Culture requires in the first place a certain balance of material and spiritual values.
+ - The slogan offers a counterweight to the general dispersion of thought by holding it fast to a single, utterly succinct and unforgettable expression, one which usually inspires men to immediate action. It abolishes reflection: the slogan does not argue, it asserts and commands.
+ - William James once said: “Progress is a terrible thing.” It is more than that: it is also a highly ambiguous notion. For who knowsbut that a little further on the way a bridge may not have collapsed or a crevice split the earth?
+ - The title of hero is bestowed by the survivors upon the fallen, who themselves know nothing of heroism.
+ - History is the interpretation of the significance that the past has for us.
+ - It is an evil world. The fires of hatred and violence burn fiercely. Evil is powerful, the devil covers a darkened earth with hisblack wings. And soon the end of the world is expected. But mankind does not repent, the church struggles, and the preachers and poets warn and lament in vain.
+ - Nelson’s famous signal before the Battle of Trafalgar was not: “England expects that every man will be a hero.” It said: “Englandexpects that every man will do his duty.” In 1805 that was enough. It should still be.
+ - An aristocratic culture does not advertise its emotions. In its forms of expression it is sober and reserved. Its general attitude is stoic.
+ - All seemingly profound thinking which passes for realism, because it conveniently does away with all troublesome principles, has agreat attraction for the adolescent mind.
+ - One does not realize the historical sensation as a re-experiencing, but as an understanding that is closely related to the understanding of music, or rather of the world by means of music.
+ - The second fundamental feature of culture is that all culture has an element of striving.
+ - We are living in a demented world. And we know it. It would not come as a surprise to anyone if tomorrow the madness gave way to afrenzy which would leave our poor Europe in a state of distracted stupor, with engines still turning and flags streaming in the breeze, but with the spirit gone.
+ - Most thoughtful Americans of today seem to have forgotten how strongly their own and immediate predecessors, Emerson, Hawthorne and Whitman, were still preoccupied with the essence behind things.
+ - What the study of history and artistic creation have in common is a mode of forming images.
+ - Under weak government, in a wide, thinly populated country, in the struggle against the raw natural environment and with the freeplay of economic forces, unified social groups become the transmitters of culture.
+ - A crude mind could easily think: something is valid, therefore it is true.
+ - There are no instances known to me of cultures having forsaken Truth or renounced the understanding in its widest sense.
+ - The susceptibility of the average modern to pictorial suggestion enables advertising to exploit his lessened power of judgment.
+ - Physical nature lies at our feet shackled with a hundred chains. What of the control of human nature? Do not point to the triumphsof psychiatry, social services or the war against crime. Domination of human nature can only mean the domination of every man by himself.
+ - Whether the aim is in heaven or on earth, wisdom or wealth, the essential condition of its pursuit and attainment is always security and order.
+ - The eternal gulf between being and idea can only be bridged by the rainbow of imagination.
+ - People accept a representation in which the elements of wish and fantasy are purposely included but which nevertheless proclaims to represent “the past” and to serve as a guide-rule for life, thereby hopelessly confusing the spheres of knowledge and will.
+ - The awareness of the all-surpassing importance of social groups is now general property in America.
+ - History can predict nothing except that great changes in human relationships will never come about in the form in which they have been anticipated.
+ - Revolution as an ideal concept always preserves the essential content of the original thought: sudden and lasting betterment.
+ - Culture must have its ultimate aim in the metaphysical or it will cease to be culture.
+ - The new knowledge has not yet settled in culture. It has not yet been integrated in a new cosmic conception.
+ - Every age yearns for a more beautiful world. The deeper the desperation and the depression about the confusing present, the more intense that yearning.
+ - Life is made too easy. Mankind’s moral fibre is giving way under the softening influence of luxury.
+ - From whichever angle one looks at it, the application of racial theories remains a striking proof of the lowered demands of public opinion upon the purity of critical judgment.
+ - We have to transpose ourselves into this impressionability of mind, into this sensitivity to tears and spiritual repentance, intothis susceptibility, before we can judge how colorful and intensive life was then.
+ - In order to begin an analysis, there must already be a synthesis present in the mind.
+ - But one sound always rose above the clamor of busy life and, no matter how much of a tintinnabulation, was never confused and, fora moment lifted everything into an ordered sphere: that of the bells.
+ - Barbarisation may be defined as a cultural process whereby an attained condition of high value is gradually overrun and supersededby elements of lower quality.
+ - Do you know anything that in all its innocence is more humiliating than the funny pages of a Sunday newspaper in America?
+ - A superstition which pretends to be scientific creates a much greater confusion of thought than one which contents itself with simple popular practices.
+ - No other discipline has its portals so wide open to the general public as history.
+ - Quite apart from any conscious program, the great cultural historians have always been historical morphologists: seekers after theforms of life, thought, custom, knowledge, art.
+ - The art of watching has become mere skill at rapid apperception and understanding of continuously changing visual images. The younger generation has acquired this cinematic perception to an amazing degree.
+ - Systematic philosophical and practical anti-intellectualism such as we are witnessing appears to be something truly novel in the history of human culture.
+ - It is the goal of the American university to be the brains of the republic.
+ - In Europe art has to a large degree taken the place of religion. In America it seems rather to be science.
+ - Educators are aware that they can reach the youth only by making use of gang spirit and guiding it, not by working against it.
+ - If, then, this civilization is to be saved, if it is not to be submerged by centuries of barbarism, but to secure the treasures ofits inheritance on new and more stable foundations, there is indeed need for those now living fully to realize how far the decay has already progressed.
+ - The repudiation of the primacy of understanding means the repudiation of the norms of judgment as well, and hence the abandonment of all ethical standards.
+ - Every work of history constructs contexts and designs, forms in which past reality can be comprehended. History creates comprehensibility primarily by arranging facts meaningfully and only in a very limited sense by establishing strict causal connections.
+
+56 quotes

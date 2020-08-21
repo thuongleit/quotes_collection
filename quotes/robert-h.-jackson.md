@@ -1,0 +1,49 @@
+ - Microbes are doing things we didn’t even know they could do 10 years ago.
+ - One’s right to life, liberty, and property depends on the outcome of no election.
+ - We are not final because we are infallible, but infallible only because we are final.
+ - Education should be a lifelong process, the formal period serving as a foundation on which life’s structure may rest and rise.
+ - To believe that patriotism will not flourish if patriotic ceremonies are voluntary and spontaneous instead of a compulsory routine is to make an unflattering estimate of the appeal of our institutions to free minds.
+ - The Bill of Rights is not a suicide pact.
+ - The price of freedom of religion or of speech or of the press is that we must put up with, and even pay for, a good deal of rubbish.
+ - I see no reason why I should be consciously wrong today because I was unconsciously wrong yesterday.
+ - We set up government by consent of the governed, and the Bill of Rights denies those in power any legal opportunity to coerce that consent. Authority here is to be controlled by public opinion, not public opinion by authority.
+ - A person gets from a symbol the meaning he puts into it, and what is one man’s comfort and inspiration is another’s jest and scorn.
+ - Civil government cannot let any group ride roughshod over others simply because their consciences tell them to do so.
+ - The very purpose of a Bill of Rights was to withdraw certain subjects from the vicissitudes of political controversy. One’s right to life, liberty and property, to free speech, a free press, freedom of worship and assembly may not be submitted to vote; they depend on no elections.
+ - The common sense of mankind demands that law shall not stop with the punishment of petty crimes by little people. It must also reach men who possess themselves of great power.
+ - The most odious of all oppressions are those which mask as justice.
+ - If we can cultivate in the world the idea that aggressive war-making is the way to the prisoner’s dock rather than the way to honors, we will have accomplished something toward making the peace more secure.
+ - The duty to disclose knowledge of crime rests upon all citizens.
+ - Your job today tells me nothing of your future – your use of your leisure today tells me just what your tomorrow will be.
+ - In our country are evangelists and zealots of many different political, economic and religious persuasions whose fanatical conviction is that all thought is divinely classified into two kinds – that which is their own and that which is false and dangerous.
+ - Due process requires some definite link, some minimum connection, between a state and the person, property or transaction it seeks to tax.
+ - We can afford no liberties with liberty itself.
+ - It is hardly lack of due process for the Government to regulate that which it subsidizes.
+ - Freedom to differ is not limited to things that do not matter much. That would be a mere shadow of freedom. The test of its substance is the right to differ as to things that touch the heart of the existing order.
+ - Those who begin coercive elimination of dissent soon find themselves exterminating dissenters. Compulsory unification of opinion achieves only the unanimity of the graveyard.
+ - Our forefathers found the evils of free thinking more to be endured than the evils of inquest or suppression. This is because thoughtful, bold and independent minds are essential to the wise and considered self-government.
+ - But the validity of a doctrine does not depend on whose ox it gores.
+ - The petitioner’s problem is to avoid Scylla without being drawn into Charybdis.
+ - While the Nation has forbidden monopoly by one set of laws it has been creating them by another. Patent laws, valuable as they may be in some respects, often father monopoly.
+ - That four great nations, flushed with victory and stung with injury, stay the hand of vengeance and voluntarily submit their captive enemies to the judgment of the law is one of the most significant tributes that Power has ever paid to Reason.
+ - Men are more often bribed by their loyalties and ambitions than by money.
+ - Any court which undertakes by its legal processes to enforce civil liberties needs the support of an enlightened and vigorous public opinion which will be intelligent and discriminating as to what cases really are civil liberties cases and what questions really are involved in those cases.
+ - This Court is forever adding new stories to the temples of constitutional law, and the temples have a way of collapsing when one story too many is added.
+ - When the Supreme Court moved to Washington in 1800, it was provided with no books, which probably accounts for the high quality of early opinions.
+ - The places that are most likely to grow trees for carbon sequestration are places where trees aren’t growing now.
+ - In this court the parties changed positions as nimbly as if dancing a quadrille.
+ - If certain acts of violation of treaties are crimes, they are crimes whether the United States does them or whether Germany does them, and we are not prepared to lay down a rule of criminal conduct against others which we would not be willing to have invoked against us.
+ - Had the jury convicted on proper instructions it would be the end of the matter. But juries are not bound by what seems inescapable logic to judges.
+ - The priceless heritage of our society is the unrestricted constitutional right of each member to think as he will. Thought control is a copyright of totalitarianism, and we have no claim to it.
+ - Intellectual freedom means the right to re-examine much that has been long taken for granted. A free man must be a reasoning man, and he must dare doubt what a legislative or electoral majority may most passionately assert.
+ - The day that this country ceases to be free for irreligion it will cease to be free for religion – except for the sect that can win political power.
+ - Government of limited power need not be anemic government. Assurance that rights are secure tends to diminish fear and jealousy of strong government, and by making us feel safe to live under it makes for its better support.
+ - I cannot say that our country could have no secret police without becoming totalitarian, but I can say with great conviction that it cannot become totalitarian without a centralized national police.
+ - It is only the words of the bill that have presidential approval, where that approval is given. It is not to be supposed that in signing a bill the President endorses the whole Congressional Record.
+ - Not every defeat of authority is a gain for individual freedom, nor every judicial rescue of a convict a victory for liberty.
+ - It is not the function of government to keep the citizen from falling into error; it is the function of the citizen to keep the government from falling into error.
+ - There is no such thing as an achieved liberty: like electricity, there can be no substantial storage and it must be generated as it is enjoyed, or the lightsgto out.
+ - The mere state of being without funds is a neutral fact constitutionally an irrelevance, like race, creed, or color.
+ - It is possible to hold a faith with enough confidence to believe that what should be rendered to God does not need to be decided and collected by Caesar.
+
+47 quotes

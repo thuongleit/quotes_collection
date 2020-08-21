@@ -1,0 +1,42 @@
+ - There’s no such thing as being alone in the universe, and so there’s no such thing as creating alone. Everything – every impulse, every creative gift of beauty, everything is a co-creation. ~~Gary Zukav
+ - The future belongs to those who learn more skills and combine them in creative ways. ~~Robert Greene
+ - Turn up for work. Discipline allows creative freedom. No discipline equals no freedom. ~~Jeanette Winterson
+ - Creative thinking inspires ideas. Ideas inspire change. ~~Barbara Januszkiewicz
+ - A dream is your creative vision for your life in the future. ~~Denis Waitley
+ - The gap between vision and current reality is also a source of energy. If there were no gap, there would be no need for any action to move towards the vision. We call this gap creative tension. ~~Peter Senge
+ - Be spontaneous, be creative, go out and have fun, let things happen naturally. ~~Conor McGregor
+ - When we open our minds to the unlimited creative power, we will call forth abundance and see and experience a whole new world. ~~Rhonda Byrne
+ - An addiction to distraction is the end of your creative production. ~~Robin S. Sharma
+ - The important thing is to create. Nothing else matters; creation is all. ~~Pablo Picasso
+ - The most regretful people on earth are those who felt the call to creative work, who felt their own creative power restive and uprising, and gave to it neither power nor time. ~~Mary Oliver
+ - Our words have creative power. With our words, we can speak blessings over our future or we can speak negative things over our future. ~~Joel Osteen
+ - A teacher should have a creative mind. ~~Abdul Kalam
+ - Invention is the most important product of man’s creative brain. The ultimate purpose is the complete mastery of mind over the material world, the harnessing of human nature to human needs. ~~Nikola Tesla
+ - I call the age we are entering the creative age because the key factor propelling us forward is the rise of creativity as the primary mover of our economy. ~~Richard Florida
+ - It’s not creative unless it sells. ~~David Ogilvy
+ - Sex energy is the creative energy of all geniuses. There never has been, and never will be a great leader, builder or artist lacking in the driving force of sex. ~~Napoleon Hill
+ - When obstacles or difficulties arise, the positive thinker takes them as creative opportunities. ~~Norman Vincent Peale
+ - The psychic depths are nature, and nature is creative life. ~~C.G. Jung
+ - Life is a lot more fun if you treat its challenges in creative ways. ~~Bill Gates
+ - The normal person classifies an object, and then forgets about it. The creative person, by contrast, is always open to new possibilities. ~~Jordan Peterson
+ - When you show deep empathy toward others, their defensive energy goes down, and positive energy replaces it. That’s when you can get more creative in solving problems. ~~Stephen R. Covey
+ - Have patience with all things – but first with yourself. Never confuse your mistakes with your value as a human being. You are perfectly valuable, creative, worthwhile person simply because you exist. And no amount of triumphs or tribulations can ever change that. ~~Saint Francis de Sales
+ - I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in. ~~Virginia Woolf
+ - The mark of the creative mind is that it defies a part of what it has learned. ~~Ludwig von Mises
+ - What we love we shall grow to resemble. ~~Bernard of Clairvaux
+ - A dream is your creative vision for your life in the future. You must break out of your current comfort zone and become comfortable with the unfamiliar and the unknown. ~~Denis Waitley
+ - Embrace the unpredictable and unexpected. It is the path to the infinitely creative in you. ~~Deepak Chopra
+ - The Greeks understood that mind and body must develop in harmounious proportions to produce a creative intelligence. ~~John F. Kennedy
+ - Passion is one great force that unleashes creativity, because if you’re passionate about something, then you’re more willing to take risks. ~~Yo-Yo Ma
+ - You need courage to be creative. You need the courage to see things differently, courage to go against the crowd, courage to take a different approach, courage to stand alone, if you have to, courage to choose activity over inactivity. ~~Jim Rohn
+ - Stories are the creative conversion of life itself into a more powerful, clearer, more meaningful experience. They are the currency of human contact. ~~Robert McKee
+ - The ultimate creative thinking technique is to think like God. If you’re an atheist, pretend how God would do it. ~~Frank Lloyd Wright
+ - Woman is a ray of God. She is not that earthly beloved: she is creative, not created. ~~Rumi
+ - Creative work is often driven by pain. It may be that if you don’t have something in the back of your head driving you nuts, you may not do anything. It’s not a good arrangement. If I were God, I wouldn’t have done it that way. ~~Cormac McCarthy
+ - Fantasy is the impossible made probable. Science Fiction is the improbable made possible. ~~Rod Serling
+ - Creative minds are uneven, and the best of fabrics have their dull spots. ~~H.P. Lovecraft
+ - Dreams are a projection of the kind of life you want to lead. Dreams can drive you. Dreams can make you skip over obstacles. When you allow your dreams to pull you, they unleash a creative force that can overpower any obstacle in your path. ~~Jim Rohn
+ - Working on our own consciousness is the most important thing that we are doing at any moment, and being love is a supreme creative act. ~~Ram Dass
+ - I have a creative mind, so if I listen to the song, I have an idea, I thought of five or six months ago, I’ll bring it back into the playing field. I can tweak ideas or make them better. Just come up with something and then we go from there. ~~Chris Brown
+
+40 quotes

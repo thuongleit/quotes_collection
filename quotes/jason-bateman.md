@@ -1,0 +1,44 @@
+ - I love a massage. I’d go every day if I could.
+ - I remember my dad working with me on breaking down my script and writing out a back story for my character and all that stuff.
+ - I’m a guy who is a little bit complicated and is a little bit in his own head and is not the most free-spirited, fun-loving kind of guy.
+ - I love a massage. I’d go every day if I could. I don’t need to be wrapped in herbs like a salmon fillet, but I do love a massage.
+ - I don’t worry about people misinterpreting my kindness for weakness.
+ - My hobbies have varied over the years. There were a whole set of new ones before I got married. Now I spend as much time with my wife, who is my best friend.
+ - I only wanted to get married once, so when I felt I was ready to handle it, I looked at my relationships and noticed that boyfriends get tired of girlfriends, and vice versa, but you never get tired of your friends.
+ - I’ve always felt bad that I never had more information to give people when they asked me about it, but I guess people kind of got frustrated by that and they just started kind of making up their own sort of “well, we haven’t heard that much” or “news hasn’t changed so it must be going away”.
+ - I would rather do three or four small parts every year as opposed to some of the lower-hanging fruit that might get my name above the title.
+ - I never looked at fan mail, for some reason. My mother and grandmother handled my mail – although it’s not like I was ever in the stratosphere of Kirk Cameron or Scott Baio.
+ - My comedic instinct, is a little bit more rooted in – my mother’s British so I’ve always been more of the dry receiver of the crazy as opposed to the initiator of the crazy. I’m kind of predisposed to be the straight man.
+ - Improvisation, for me, is when the cameras start rolling, we don’t know where we’re going and let’s just waste people’s time and money.
+ - I can be on a telephone call, and be emailing or texting somebody else, as well. I would imagine everyone appreciates that efficiency of communication. I see it as a huge positive.
+ - Marathons are good training goals.
+ - If I’m enjoying something, I’d like to be able to just have it all. Frankly, that’s the way I’m approaching my career now. I’m a total workaholic.
+ - I don’t have anything to fix! I don’t smoke, I don’t drink, and I don’t eat carbs. My life is just great now. Normal. Vanilla.
+ - Not many get a chance to hit the career re-set button.
+ - I play around with my Japanese Garden. Since Im half way to 70 today I need to start pruning trees and sharpening plants like an old fart.
+ - I think the internet is a huge positive.
+ - I actually enjoyed changing diapers and I enjoyed swaddling. I don’t mind being swaddled either, on occasion.
+ - I was just a lot smarter about not getting caught. I mean, I never stuck anything in my arm, but I certainly enjoyed my youth.
+ - I don’t really find a problem with technology or television, or anything. I’m a product of it. I grew up watching TV, and I don’t think I’m too dumb or too crazy.
+ - As an actor, you only get to work 15 minutes an hour; as a director you’re fully immersed. It’s incredibly more complex and challenging and I love it. I’m sort of a glutton for work and to direct something that I’m acting in feeds the vein.
+ - Our job, as actors, is to just try to be as accurate and as mindful of what the audience is going through and receiving and processing. If it’s a situation where the character should look a little bit out of control or do something stupid, it’s your job to act into that, in a believable way.
+ - A straight factor is important in any comedy, because you need something to tee it up and also to ground it.
+ - I have to warn you: I bet horses like a girl.
+ - Directing a movie is the greatest job in the world. I could not be more envious of the guys who get to do it all the time.
+ - I like being hired to do more and more stuff. Carry more and more responsibility. It’s nice I’m getting that trust.
+ - The longer you stay in the job that you do the more you learn about what those around you do. As an actor I’ve always nosed around apologetically about: “oh wouldn’t it be interesting if I could do that?” I can’t imagine not wanting to do this everyday.
+ - As an actor, you get hired for what you last did. And I guess it just becomes your choice or obligation to do different things.
+ - I played a ton of team sports growing up, and team wins are just incredibly gratifying.
+ - What’s frustrating as an actor, when you want to work hard, you can only work once that phone rings and then you can only work until the production wraps. Then you have to find another job.
+ - I really enjoy playing that everyman part because that part is us, the audience. And you need somebody inside a comedy to tether the absurdity to reality.
+ - There are worse things than being constantly hired to do anything.
+ - Guys like Will Ferrell, Vince Vaughn, Sacha Baron Cohen, they do things you love to watch. I like to do the other half.
+ - Will Arnett is one of the funniest guys I know. He has seen it all and done it all and come out the other end pretty savvy and pretty strong.
+ - And I’ve always loved commercials. I like working out how to organically weave a brand’s message into the writing process. It’s like an improv show, where comics ask the audience to throw out a word and a skit is built around it.
+ - I think you get the parts that people are comfortable with seeing you play. I get that. And I don’t shy away from those parts.
+ - I think anybody who’s doing work in their teen years on TV or in the movies, you’re a teen idol by default.
+ - I’d worked so hard that by the time I was 20, I wanted to play hard. And I did that really well.
+ - I became an adult before I had a kid, which I highly recommend. I just like to throw her around. She’s a really good snuggler, and she likes to give kisses and hugs.
+ - When you’re actor, you have no idea how much work goes into pre-production. We’re just sitting in our trailers waiting for someone to knock on our door to go to the set.
+
+42 quotes

@@ -1,0 +1,29 @@
+ - I think what Calvinism may offer us is that God’s in charge of his world.
+ - When the fire of prayer goes out, the barrenness of busyness takes over.
+ - God loves us all, wants us all to share his kingdom, has a role for us all.
+ - Belief in the resurrection is not an appendage to the Christian faith. It is the Christian faith.
+ - From a Christian point of view of course we do want a peaceful world, and I think September 11 did actually make people aware not only of vulnerability and how transitory life is, but there are forces of good and honor and justice which speak to us of God and his love for us.
+ - An office boy in London was the lowest of the low. The office boy was the tea boy. He would be the dog’s body: It means someone who would do anything at all. I was quite prepared for that and enjoyed it.
+ - If someone talks about union, fidelity, a monogamous relationship, love, blessing; I would say it sounds like marriage to me. And blessing, you see, I think is undermining our sacrament of marriage.
+ - One I’ve been passionately committed to, of course, is women’s ministry; I believe solidly in it as a Gospel issue and we’ve found our way through that.
+ - If there are Muslims who believe that they’ve got to kill Christians to make a way for the Islamic faith in the West, not only would they be disappointed, but it will lead to conflict, there’s no doubt about that.
+ - And I hope America will realise, as the only superpower now, it really must use its power in a way that’s going to build up the world, and to support the United Nations.
+ - We’ve got to find ways of confronting the issues that divide – and at the heart of cultural issues, you often find religions.
+ - And here at our Anglican Consultative Council, we have many reports of growth and great encouragement.
+ - In my time as Archbishop of Canterbury I’ve seen a growing sense of unity and mission.
+ - At a time when many Muslims in this country are living in fear, I want to say loud and clear that as a Christian leader I deeply respect your faith and believe that our common duty is to extend the hand of friendship, and to build bridges not walls.
+ - I see no room in holy Scripture for any sexual activity outside of matrimony.
+ - I think in my own country, at the way we’ve seen through the ordination of women to the priesthood, which I’m delighted about, and that will move on to another level before very long.
+ - I believe with all my heart that the Church of Jesus Christ should be a Church of blurred edges.
+ - I think what has happened, actually, is that September 11 has given a spur, a renewed urgency, to dialogue between the great faiths.
+ - The Israelis have suffered a great deal, we must condemn suicide bombers, and we must never say that the plight of the Palestinians justifies this terrible thing.
+ - We have lobbed verses of Scripture, like hand grenades, into the camps of others, convinced we only have truth.
+ - The outer eyes see only by reflection. The vibrationsfrom the inner eye, optic, is conveyed along the opticnerves and produced, spectacular, on the ether.
+ - People have described me as a management bishop but I say to my critics, Jesus was a management expert too.
+ - And so in my warnings, I was pointing to a number of incidents around the communion that could undermine our growing sense of communion – of becoming a global communion. So that’s why I pointed to New Westminster in Canada, to incidents in the United States, and Sydney itself.
+ - But, as you have intimated, I am among those who would be very wary of any military action in the light of Saddam Hussein’s willingness to allow the weapons inspectors to go in.
+ - I’m on record as being understood to be a supporter of a reformed establishment, in which other Christian denominations, and other faiths, play a major part.
+ - What I think is that we in the church – and especially I as an Archbishop – I’m responsible for maintaining our rules, and making sure we hold to unity in the Body of Christ.
+ - Jesus was a management expert too.
+
+27 quotes

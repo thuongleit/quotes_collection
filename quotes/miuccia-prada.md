@@ -1,0 +1,87 @@
+ - Every day I’m thinking about change.
+ - Ugly is attractive. Ugly is exciting.
+ - The trouble is, most people are not so generous. Everybody wants love for themselves. I hear this all the time from the women I work with. I hear them say, “I want, I want.” I never hear them saying what they want to give.
+ - Women always try to tame themselves as they get older, but the ones who look best are often a bit wilder.
+ - What you wear is how you present yourself to the world, especially today, when human contacts are so quick. Fashion is instant language.
+ - The only way to do something in depth is to work hard. The moment you start being in love with what you’re doing, and thinking it’s beautiful or rich, then you’re in danger.
+ - Ugly is attractive, ugly is exciting. Maybe because it is newer. The investigation of ugliness is, to me, more interesting than the bourgeois idea of beauty. And why? Because ugly is human.
+ - You have to embrace the world if you want to live in it now.
+ - I love uniforms because they allow you to hide. No one knows what you are thinking, so it’s a very appropriate and correct way to be yourself.
+ - I respect my work. But also I think it’s very superficial.
+ - My family was too serious. They didn’t take care of me – it was a very serious and severe life. Not severe in a bad way; just boring – like totally neutral. I felt no emotion.
+ - It’s horrible when people are only interested in buying labels, because it doesn’t bring them the happiness they think it will.
+ - I don’t believe in people who think that clothes are not important.
+ - I just hate talking about myself.
+ - This is an example of hypocrisy.
+ - Nostalgia is a very complicated subject for me. I’m attracted by nostalgia but I refuse it intellectually.
+ - I love clothes. Maybe I can say I don’t love fashion, but I love clothes completely.
+ - I don’t believe that anyone is not bothered by critics. I think that everybody cares.
+ - The only way to do something in depth is to work hard.
+ - Now, I’m not saying I’m fashionable, but there are sociological interests that matter to me, things that are theoretical, political, intellectual and also concerned with vanity and beauty that we all think about but that I try to mix up and translate into fashion.
+ - It’s still feminine, but not in a romantic way. It’s all about masculine and feminine, and being strong.
+ - Women have the stress of being beautiful, of age and youth. Men don’t have all that. And with women, that stress causes a lot of mistakes and bad choices – a lot of not being their true self.
+ - You need to have dignity towards how you are, how you dress, how you behave. Very important.
+ - One’s life and passion may be elsewhere, but New York is where you prove if what you think in theory makes sense in life.
+ - When I design and wonder what the point is, I think of someone having a bad time in their life. Maybe they are sad and they wake up and put on something I have made and it makes them feel just a bit better. So, in that sense, fashion is a little help in the life of a person. But only a little.
+ - You want to be understood by the sophisticated few but you also have to be more loud somehow, otherwise your message doesn’t go through.
+ - I always loved aesthetics. Not particularly fashion, but an idea of beauty.
+ - Women often don’t want to admit that they like fashion. And yet fashion enthralls everyone, from the taxi driver to the mega-intellectual. I have often asked myself why this is. I don’t know the answer.
+ - I like to be useful to people.
+ - I like the irony in my work.
+ - What interests me most is when a work of art is no longer just an object, but also touches reality and life.
+ - Craziness in a shoe is great – you can have much more freedom, you can exaggerate and it doesn’t feel stupid. But to have too much craziness near your face, that would just feel weird.
+ - Men are always much more dignified than most women.
+ - Daring to wear something different takes effort.
+ - In America many things that are interesting are seen as odd.
+ - I always believe in doing new things and using new materials that I have never used or that I didn’t like for a long time.
+ - Before I had kids, I was out every night of the week.
+ - Clothes can be important. I am learning this. For instance, often when I design and I wonder what is the point, I think of someone having a bad time in their life.
+ - If you ask, do you like strong men or weak men, I’d say, I like who I like.
+ - I want to confront myself. I challenge and doubt myself. Basically, what I don’t like is to get bored.
+ - Seduction is a matter of feelings and people opening themselves. I don’t think it’s something tricky – it’s being human. And everybody is seduced by something different.
+ - I would say that clothes are an excuse for living in the world.
+ - To have to be sexy? That I hate. To be outrageously sexy? That I love.
+ - I’m not interested in how people dress. Of course, I recognize if somebody’s elegant. But fashion doesn’t interest me.
+ - You cannot do something just for the money. You have to do things you believe in and eventually you will make money.
+ - Fashion is instant language.
+ - Many of us grew up with a kind of puritanism against shopping. But shopping can be much more than how it is cast. If you are bored or you have problems, it can be a way of lifting your spirits, by doing something light and superficial. Why not?
+ - I hate the idea that you shouldn’t wear something just because you’re a certain age.
+ - Basically I’m trying to make men more sensitive and women stronger.
+ - We will always buy clothes because they let us live our dreams.
+ - With women, the more unhappy they are, the more undressed they are.
+ - I am interested in communicating with the world by selling to many people.
+ - For me, it’s important to anticipate where fashion is heading.
+ - I had no fun. My family was too serious.
+ - I suppose I felt guilty not to be doing something more important, more political. So in a way I am trying to use the company for these other activities.
+ - Fashion fosters cliches of beauty, but I want to tear them apart.
+ - Girls throw away so much energy in this search for beauty and sexiness.
+ - The fashion world is very active and generous, despite the fact that it is not very well respected – or at least not as much as it should be.
+ - For me, art is about learning and about living with people. It’s alive.
+ - I always wanted to be different. I always wanted to be first.
+ - I was a communist, but being left-wing was fashionable. I was no different from thousands of middle-class kids.
+ - I realized that so many clever people respect fashion so much.
+ - I was a feminist in the Sixties, and can you imagine? The worst thing I could have done was to be in fashion. It was the most uncomfortable position.
+ - I like getting older and being the person who people ask for help.
+ - I have to say that my husband and my children are so tough, there really is no space for pretension.
+ - I once tried to make lace – which has been a great obsession of women – unsexy. And I achieved it.
+ - We, as designers, have a job with so many possibilities and connections. We are connected to so many different portals, from art to movies to music to design. Fashion is always evolving. Actually, the field is huge. I don’t think there is another profession that is so open to so many possibilities.
+ - The process of a date, I think, is terrible. Horrible. Because everything is banal and predicted.
+ - Prada is something that should be so mundane, like clothes.
+ - What people sometimes interpret as quirky is my attempt to subvert the concept of luxury by introducing elements that are considered ordinary or commonplace.
+ - Fashion is a little help in the life of a person. But very little. After all, if you have a serious drama, who cares about the clothes?
+ - You have to always work against what you did before, and even against your taste.
+ - I think more and more, if you live in the current world – and live internationally – it’s all a mix of interests, and the same people who are interested in fashion are also interested in movies, art, and culture.
+ - The older I get, the more I prefer to talk to old people. Old people or kids.
+ - I do what I think is right.
+ - I want to make clothes that are beautiful of course, but also clothes that are interesting and considered and intelligent and not out of place.
+ - I would say there is no Prada woman. I’m interested in women in general. I don’t have any kind of preference.
+ - Because of the Prada name, I can do things that people normally would not care about in the culture. I can have an exhibit by some forgotten artist who I love, and because it’s Prada, people will come see it.
+ - Everybody knows that I don’t have a muse. I’m not interested in that.
+ - People ask me how can I be stylish, how can I be elegant and what can I wear? My only answer is study! You have to learn.
+ - I wanted to try to push some freedom into the men’s clothes.
+ - My idea is always to avoid nostalgia.
+ - My learning process is by eye alone it’s not at all scientific.
+ - I’m not interested in types. I’m interested in archetypes.
+ - I am in a key moment. I kind of understand that I have to use my work more completely without being ashamed.
+
+85 quotes

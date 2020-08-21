@@ -1,0 +1,118 @@
+ - I have a theory that as nice and sweet as you can be equates to how dangerous you can be.
+ - Everyone’s a nerd inside. I don’t care how cool you are.
+ - I’m thankful for weird people out there ’cause they’re some of the most creative people.
+ - I’m not a fighter. I’m not a tough guy at all. I walk away from fights.
+ - As much as you can love someone, is as much as you can hate someone. It goes in equal and opposite directions. Like if you love someone so much and they hurt you so bad, then that is as equal as to how much you can have rage for them.
+ - Life is too short to miss out on the beautiful things like a double cheeseburger.
+ - Someday you’ll miss her like she missed you. Someday you’ll need her like she needed you. Someday you’ll love her and she won’t love you.
+ - I think, even a lot of people that make movies forget is that, in my mind, a movie should work with the sound off. You should be able to watch a movie without the sound and understand what’s going on. That’s your job, to build a series of chronological images that tell the story.
+ - Everyone always talks about the speed of New York, and I still walk slow around New York, and everyone is walking faster than me all the time, and I notice it every time we go out.
+ - Whatever the fighting is – boxing, fighting, Judo, Thai boxing, it’s how much you know doing that. Some people just know how some people move.
+ - If you’re with someone you don’t exactly trust then you have to watch yourself and that’s the hardest thing for an actor not to do, and not listen to yourself as you’re talking.
+ - Sometimes a thong completely betrays you.
+ - No one’s calling me for lawyer roles. I still have a lot to do to prove myself.
+ - I don’t think there’s a date minimum or maximum. I don’t get the whole ‘All right, you’ve got to wait three days to call after the date.’ If I got a number from a girl, I’d call that night. There’s no science to it for me. You just do what it is that you feel like doing.
+ - I had a bad stutter when I was really young. I couldn’t get a sentence out. Like, ‘D-d-d-d-d-d-d-d-ad.’ And that turned into a mumble.
+ - Someone who doesn’t take herself too seriously and can be a goofball. Because everyone’s a nerd inside, I don’t care how cool you are.
+ - Getting hurt and narrowly escaping death is sort of a thing for me.
+ - I consider myself a decent athlete but when I started to train martial arts like Kung Fu, I realised it had nothing to do with how athletic you are. It’s all mental. It’s what you know, how you use it and your mental toughness and composure. It’s incredible.
+ - I had people in my life who were insane and negative, but they taught me how not to be, how I didn’t want to end up.
+ - I grew up watching ‘Braveheart’ and ‘Gladiator.’ Those are my ‘Star Wars.’ They have values and traits about them that I wish I had.
+ - I like vintage stuff. I go through a vintage store and find things that I feel like I fit right into them because of all the years that they’ve been used.
+ - I don’t ever get the great looking lawyer roles because I’ve got a thick neck from playing football.
+ - You have the dreams that you want, and then you have to do other jobs until you can get to that dream.
+ - I can sit underneath the shed with all my family, my cousins, and everything, and just be like, “Yeah, this is what it’s about – just sitting with people you love and hanging out.”
+ - I learned to appreciate repetition. That’s why I can dance. It’s how I learned to act. I have a high tolerance for repetition.
+ - I write, but I don’t write poetry. I don’t rhyme or anything like that.
+ - I worry about Bieber, man. That kid’s wildly talented. I hope he doesn’t fall down into the usual ways of young kids because it’s so hard for someone to be responsible when they’re not asked to be.
+ - Waxing was an interesting experience. Not quite as painful as I expected.
+ - Truthfully, this is how I approach my workout: I want to be the best athlete I can possibly be. If I can out-perform some of the better athletes then I’m happy. When I look at the NFL or the NBA, these guys look how I want to look – it’s useable, functional muscle.
+ - I see caring for somebody as a creative outlet. I like drawing little faces and writing little stories and hiding them in places. I don’t think it’s that hard to be thoughtful, especially when you do care about the person.
+ - Comedy doesn’t come easy for me. I’ve only done 2 movies that are really comedy-style films and I have to work at them. And they’re just as scary in a way. I hate labeling all these things; comedy, love stories, dark drama, whatever.
+ - If my Dad doesn’t like you, you will know. My Mom is just too innocent to ever lie. She doesn’t even cuss.
+ - The film is a direct mirror of the director. If your director doesn’t know how to dress, there will be an aesthetic of the film that won’t come through – whether it’s in the costumes if he doesn’t know exactly what he wants or the look of the film.
+ - I’ve cried a hundred times at The Notebook. My wife cries and that makes me cry, and she makes me promise we’re going to die in bed together. I’m like: “That’s weird, I don’t want to talk about that.”
+ - I’m not a political person. When I start to get into it, it just upsets me. I feel so powerless when it comes to politics. So I’ve just decided to be non-political and very, very pro-soldier.
+ - But I’m not a tough guy or a street fighter for real. I’m just an actor.
+ - Fighting for men back then, I think, was just more a way of life, especially if you were a soldier obviously.
+ - For a time, it would work well. then it worked less and my pain was more. I would go through wild bouts of depression, horrible comedowns. I understand why kids kill themselves. I absolutely do. You feel terrible. You feel soul-less. “I’ll never do it to my child”.
+ - You can’t fake wrestling. We can fake punch, but with wrestling you just have to go ahead and do it. You really need to see the hand hit the face, the head butting and everything.
+ - I’ve never been sent a lock of hair or anything like that, but I’ve gotten underwear with my face on it. That was weird.
+ - My parents couldn’t handle my energy so they enrolled me in every sport the school was offering. I didn’t resent it because I loved sports and picked them up easily.
+ - I don’t know if I’ve ever written anything that’s not a bill! I do write stories but I don’t put a stamp on them. I wrote a story for my wife over Christmas and gave it to her as a present because she asked me to, but I don’t put a stamp on things and send them to people.
+ - If you look at any of the greats, from people like Paul Newman and Robert Redford to, you know, Brad Pitt – to get any of the kinds of roles like the ones that they’ve gotten, or just to be a part of any of the kinds of movies they’ve made, would be the end-all for me.
+ - I did kung fu from when I was nine to 13. You have to be really careful but you want to be able to make it look eventually as though it’s just a part of you. So, you train over and over and over again.
+ - You don’t try any less hard on the ones that don’t. I’ve gotten lucky to work with some amazingly talented people that have helped the ones that have worked work. I think you just have to keep doing the stories you love and the characters that you love and are drawn to.
+ - I still want to write Clint Eastwood a letter saying, ‘I’m sorry, I’m sorry for all us wimp actors. You’re the truth.’ I guarantee he’s not the person you want to fight, even now! You look at him, and you don’t want to mess with him. He would still take you down.
+ - I have the flying dream a lot where I’m jumping off a building and just flying around.
+ - I’m not political. I just want America to do well, I want the world to do well. I want everyone to stop fighting.
+ - I love the supporting characters because you get to do more, to be totally honest. It’s been sort of a theme with me. In Son of No One, I think I might have seven lines in the entire movie because everything is happening to my character.
+ - I don’t know if I’m very complicated at all. I wish I was. I wish I was one of these deep, intricate people. But I just love having fun really.
+ - I think the best thing to try to do is allow your daughter or your son to know that they can come to you for anything. If you can break down that wall so they don’t feel embarrassed by telling you things, that’s half the battle.
+ - There are so many things I want to do. Like, I want to get an artist, a musician, a photographer, and a bunch of dancers that I know and just travel across Africa and just film it and just see what happens. Do and learn as much as I possibly can. Luckily, I have a lot more time.
+ - A well arranged scrapbook, filled with choice selections, is a most excellent companion for anyone who has the least literary taste.
+ - I was not good in school. I could never read very fast or very well. I got tested for learning disabilities, for dyslexia. Then I got put on Ritalin and Dexedrine. I took those starting in the eighth grade. As soon as they pumped that drug into me, it would focus me right in.
+ - Just relax and really say what you’re actually thinking, and not what you think people want to hear.
+ - I’ve always had way too much energy so I’m always looking for new things to do to channel that energy.
+ - I do get nervous to act, it kind of depends on what it is really.
+ - Playing a character that allows me to play around with some of the feelings I have inside of myself and explore them – and maybe put them to rest a little bit, or at least come to terms with them – feels successful to me. I think it’s about believing in what you do.
+ - Daniel Day-Lewis and Sean Penn to me are the two best actors of all time. I’m just glad to have the pleasure to be in an era that they’re acting while I’m acting. They’re probably the best actors in my mind.
+ - Any teen gets into a little trouble here and there. It’s not hard to find trouble when you’re looking for it as a kid.
+ - I think the action movies in the 80s and 90s were different. It was a testosterone age. Steven Seagal, Jean-Claude Van Damme and Sylvester Stallone – they fuelled my childhood. But now I don’t think I’d like to do just action, I don’t enjoy that.
+ - The abuse of prescription pills is a real thing. I understand that there are people that really need them and I understand that there are people that abuse them, and it’s just a gray line that unfortunately has to exist.
+ - I think some of the scariest people I’ve met in my life have been some of the sweetest.
+ - I would like magical palm tree that had a lot of shade with instead of coconuts there’s just peanut butter jelly sandwiches with cheetos underneath. And my wife that is always happy and possibly naked.
+ - Audiences and critics they don’t like seeing what happens in real life. Why do you think comedies make all the money at the box office? People want to go and laugh. I can understand that.
+ - I went hunting, I shot a deer, and it mortified me. I just couldn’t do it again.
+ - I want a career and the thing is you really have to love acting. I didn’t just fall into it and it wasn’t just something I was good at. I’ve had to really work at this. I’ve had to fall on my face time and time again. You get ‘no’ 99 per cent of the time and a ‘yes’ just once.
+ - American audiences love period pieces. America doesn’t have a lot of old things. It’s a new country so I think we’re a little bit fascinated by that.
+ - I know I will never wear sandals now anywhere. I got in a fight in the back of a grocery store when I was really young, like 14 or something. And I remember my feet were so torn up afterwards because I lost my sandals in the middle of the fight. My toenail was missing. It just sucked.
+ - I like to be lean. If I get too bulky I can’t move well and I like to move. When I’m not training, I get really round and soft.
+ - I don’t know what you’re going through life doing if you’re not really trying to collect some really great memories.
+ - There are so many dramatic actors where I would give all of my anything to have their careers, but I don’t think I can try to follow anyone.
+ - Girls were always my biggest distraction in school.
+ - I would love to sing. I would love to do a musical, but I wouldn’t say that that singing is my strong suit.
+ - But I stuttered as a kid. I went to classes to help it, and it just went away around fourth grade, when I became more aware of how others spoke, I think. But also, growing up in the South, a mumble is a way of speaking.
+ - I like smaller films better. I don’t know why. I think it’s the intimacy and there’s not this avalanche. It is an avalanche, but it’s really myopic. It’s really small.
+ - There’s a dance that happens with you and that’s why I really like doing it with stunt men, because they know how to dance generally better than actors do. It is choreography and if you aren’t used to doing it things can go wrong.
+ - I sort of became infatuated with soldiers. I got to know some of them and got a little perturbed with Hollywood making a spectacle out of them and making them look like they have screwed up somehow.
+ - I used to work at a puppy nursery.
+ - With dancing, you have to know spatial movement with somebody. It is steps. It’s literally steps and knowing how close to be or how far away. You have to have the beat in the right place with the camera.
+ - I’ve always said that movies are a direct mirror of the director.
+ - I’ve got great genetics from parents, and I’m not moaning that I have such a hard life. Trust me; it’s worked out so much more in the positive then the negative.
+ - Modeling was successful for me. I didn’t have to wait tables or anything like that, so that was nice. And I got to see the entire world.
+ - I think we all suffer from guilt at some point in our lives, but for the most part I never really regret, and I try to always remain positive. Yes, I think that those issues are very interesting to play in a character, and they’re prominent issues in life, and I think people can relate to them.
+ - In all the movies I’m in love with someone in my head. There’s always love in a film somewhere. It doesn’t matter even if it’s an action movie.
+ - When you adapt a book to a film, you take all the best parts and put them into an hour and 15 minutes and have to compromise on the characters.
+ - I was undervalued so I stopped stripping. I was 18 years old and I worked three jobs. This was just one of them, and I really enjoyed performing. It was probably my first performing job ever. I really like to dance, obviously, but then I didn’t really love taking the clothes off at the end.
+ - The director sets the tone, and if someone’s ruling it with an iron fist, people are quiet and the days go long in my experience, when there’s a very serious tone, the days just drag. When there’s someone who, in between takes, is joking or laughing the days go quick.
+ - All of my films I’ve made have had an element of physicality and action but I really enjoy the drama of it because it’s where I feel I’m really doing something.
+ - Channing does a very good impersonation of men at female strip joints.
+ - I think people when they think of comedic actors they forget that they are people with a point of view and experiences and depth.
+ - It comes down to the experience of it. The more you fight, the more you know, the more you can use in the ring.
+ - I went down to Miami, and somebody saw me on the streets, and that’s how I got into modeling.
+ - If I want to do action, you don’t really get to do it. They don’t let you, there’s too much on the line to let you jump out of a building.
+ - I grew up in Florida, where if you weren’t comfortable dancing, you weren’t going to get any girls.
+ - My bar for being successful is being able to do movies that really mean something to me and being able to make a living off of that.
+ - There’s only a few directors that can do what Emmerich does on an international scale and on an action scale.
+ - I really like doing action. It’s one of those things where I negotiate the world physically, I think, more than mentally. I enjoy running and jumping.
+ - I wanted to be able to tell my grandkids one day, “Hey, your grandpa ran into a burning building and survived.”
+ - I’ve aways been good at picking up certain things, like sports and dancing.
+ - There is a lot of underground type of fighting going on and some of it is not safe, it’s pretty brutal. But it’s absolutely fascinating.
+ - There are so many great stories and characters out there that you can just keep saying, “Yes,” but you’ve got to eventually make the decision that if it’s something you really want then do it for yourself.
+ - I’m not a comedian. I can play off of people, but I’m not that guy. I don’t want people being like, ‘Yeah, he should have stuck with drama.’ It would not be my choice to have critics mumbling that.
+ - I had an all right high school, even though I hated school. I wasn’t massively popular, but I was okay. But I wouldn’t want to do it again.
+ - In the beginning, I would find a character I understood. That was my focus. Not now – but you basically get offered the exact same thing you just did. Which I find hilarious. I did ‘The Vow,’ and then I had every love story you can imagine thrown at me. And now I’m getting offers for comedies.
+ - I do want to take some time and reinvent and get better and maybe get behind the camera a little more. I do want to direct at some point and start failing really early – start shooting videos and then commercials and then hopefully do some narrative.
+ - I think that the divorce rate’s over 50% for a reason. I don’t think people are taking enough time now to really see if they can make it work and live together.
+ - I lived crazy really young. So now I don’t need to go out and get nuts.
+ - Actually I have a tradition that I always steal my last costume on the last day of filming.
+ - For me, it’s always filmmaker and then character and then story. They’re all equally important but if you don’t have a great filmmaker, you will not have a great film unless you just get lucky.
+ - Well, the first and only time I went hunting, I shot a deer, and it mortified me. I just couldn’t do it again. But I know a lot about guns, so I go to the gun range and stuff like that with friends sometimes.
+ - You don’t need to like any of the characters, as long as you can understand why and where they’re from. Why do you need to like any of the characters in the movie? That’s not how life is. You don’t like everyone that you meet.
+ - I auditioned for a Pepsi commercial, and I got it, and that was incredibly fun. So I thought, Well, maybe I should try this acting thing .
+ - I’m frustrated when I see movies in which I feel like the plot is being told to me instead of shown to me.
+ - I’ve said that movies are the highest stakes make-believe game in the world, and this is truly the most highest stakes.
+ - My parents let me find my way and that’s how they supported me the entire way.
+
+116 quotes

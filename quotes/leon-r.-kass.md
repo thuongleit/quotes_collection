@@ -1,0 +1,44 @@
+ - Almost everybody is enthusiastic about the promise of biotechnology to cure disease and to relieve suffering.
+ - Biology, meaning the science of all life, is a late notion.
+ - In cloning, in contrast, reproduction is asexual – the cloned child is the product not of two but of one.
+ - Technological innovation is indeed important to economic growth and the enhancement of human possibilities.
+ - The technical is not just the machinery. The technical is a disposition to life.
+ - Genetics is crude, but neuroscience goes directly to work on the brain, and the mind follows.
+ - Cloning represents a very clear, powerful, and immediate example in which we are in danger of turning procreation into manufacture.
+ - Our only responsibility is to live our own life and take care of our own children.
+ - The benefits of biomedical progress are obvious, clear, and powerful. The hazards are much less well appreciated.
+ - If you have easy self-contentment, you might have a very, very cheap source of happiness.
+ - If one is seriously interested in preventing reproductive cloning, one must stop the process before it starts.
+ - Human life without death would be something other than human; consciousness of mortality gives rise to out deepest longings and greatest accomplishments.
+ - Once you put human life in human hands, you have started on a slippery slope that knows no boundaries.
+ - The neuroscience area – which is absolutely in its infancy – is much more important than genetics.
+ - Cloning looks like a degrading of parenthood and a perversion of the right relation between parents and children.
+ - The technological way of thinking has infected even ethics, which is supposed to be thinking about the good.
+ - Sexuality itself means mortality – equally for both man and woman.
+ - There is a lot of hype and fear about this much-talked-about prospect of designer babies.
+ - It’s very hard to make arguments about the effects of cloning on family relations if family relations are in tatters.
+ - There’s an ancient tension between wanting to savor the world as it is and wanting to improve on the world as given.
+ - I’ve been opposed to human cloning from the very beginning.
+ - We owe our existence to our parents, but we actually didn’t have a choice.
+ - It’s a short step from the belief that every child should be wanted to the belief that a child exists to satisfy our wants.
+ - Many other countries have already banned human cloning, and there are efforts at the UN to make such a ban universal.
+ - Even if certain rogue countries do things we wish nobody did, it doesn’t necessarily mean that their foolishness should justify our following suit.
+ - Is it possible to covet a much longer life for one’s self and be as devoted to the well-being of the next generation? It’s a long argument.
+ - Shallow are the souls that have forgotten how to shudder.
+ - I don’t believe that efforts to prohibit only so-called reproductive cloning can be successful.
+ - I don’t like being forced to reduce my thoughts to sound bites.
+ - As bad as it might be to destroy a creature made in God’s image, it might be very much worse to be creating them after images of one’s own.
+ - One could look over the past century and ask oneself, has the increased longevity been good, bad or indifferent?
+ - Many people recognize that technology often comes with unintended and undesirable side effects.
+ - We are somehow natured, not just to reproduce, but for sociality and even for culture.
+ - My job is to provide the president with the richest possible consideration, so that he knows what is at stake in whatever decision he makes.
+ - The human animal has evolved as a preeminently social animal.
+ - The so-called right to reproduce is not an unlimited right.
+ - I have nothing against respecting people who lived before, but we have no responsibility toward them.
+ - We know next to nothing of what we’re going to know in 20 or 50 years.
+ - An enormous amount of direct advertising from pharmaceutical companies are offering a kind of instantaneous solution to problems.
+ - We may simply not be wise enough to do some of the kinds of engineering things that people are talking about doing.
+ - Perhaps you could sympathize with those who seek to replace a dead child with a copy, or to copy a parent or a relative or even a celebrity.
+ - We are enmeshed in a lineage that came from somewhere and is going to make way for the next generation.
+
+42 quotes

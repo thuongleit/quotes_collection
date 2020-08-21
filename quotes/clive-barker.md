@@ -1,0 +1,114 @@
+ - Welcome to the worst nightmare of all, reality!
+ - You must be careful with kindness. It’s usually mistaken for weakness by stupid people.
+ - No tears, please. It’s a waste of good suffering.
+ - That which is imagined can never be lost.
+ - I remember when I watched ‘Hellraiser’ with my mother. She cried when she saw my name in the opening credits, and I had to tell her that that was the happiest she was going to be for the next two hours.
+ - Everybody is a book of blood; wherever we’re opened, we’re red.
+ - My life is in the art that I make, and I’m very happy with it.
+ - We’re too much ourselves. Afraid of letting go of what we are, in case we are nothing, and holding on so tight, we lose everything else.
+ - Your flesh is killing your spirit. You have forsaken yourself.
+ - Nothing else wounds so deeply and irreparably. Nothing else robs us of hope so much as being unloved by one we love.
+ - Those old hypocrites. They talk about killing witches but the Good Book’s full of magic. Turning the Nile to blood and parting the Red Sea. What’s that if it’s not good old-fashioned magic? Want a little water into wine? No trouble! How about raising the dead man Lazarus? Just say the word!
+ - Words are sexier than flesh.
+ - Journey to the end of day, Come the fire-fly, Come the moon; Say a prayer for God’s good grace And sleep with lore upon your face.
+ - Angels have very nasty tempers. Especially when they’re feeling righteous.
+ - A man kills the thing he loves, and he must die a little himself.
+ - To call you excrement would be an insult to the product of my bowels.
+ - Everything is in flux: everything changes; the body changes, the soul changes. We are capable of extraordinary self-transmutat ion and internal self-transforma tion.
+ - Fear is a place where you just tell the truth.
+ - I firmly believe that a story is only as good as the villain.
+ - Flesh could not keep its glamour, nor eyes their sheen. They would go to nothing soon. But monsters are forever.
+ - I’ve learned two things in my life. One that love is the beginning and end of all meaning. And two that it is the same thing whatever shape our souls have taken on this journey. Love is love. Is love.
+ - Wherever I go, I will speak of you with love.
+ - Witch, do this for me, Find me a moon made of longing. Then cut it sliver thin, and having cut it, hang it high above my beloved’s house, so that she may look up tonight and see it, and seeing it, sigh for me as I sigh for her, moon or no moon.
+ - Believe me, when I say; There are no two powers That command the soul. One is God The other is the tide. -Anon From the novel Abarat.
+ - One part of love is innocence One part of love is guilt One part the milk that in a sense Is soured as soon as spilt One part of love is sentiment One part of love is lust One part is the presentiment Of our return to dust.
+ - Mutilation is the badge that can never be taken off, and sets us apart from all others. Pain is important to the bonding-a physical horror that bonds us ever tighter to all those who have partaken. The intensity of the experience helps to widen the gulf between us and those who have not shared.
+ - All I ever wanted to do is darken the day and brighten the night.
+ - I dreamt a limitless book, A book unbound, Its leaves scattered in fantastic abundance On every line there was a new horizon drawn, New heavens supposed; New states, new souls.
+ - So we make stories of our own, in fevered and envious imitation of our Maker, hoping that we’ll tell, by chance, what God left untold. And finishing our tale, come to understand why we were born.
+ - With the inevitability of a tongue returning to probe a painful tooth, we come back and back and back again to our fears, sitting to talk them over with the eagerness of a hungry man before a full and steaming plate.
+ - Three is the number of those who do holy work; Two is the number of those who do lover’s work; One is the number of those who do perfect evil Or perfect good.
+ - I think that horror fiction is one of the ways to approach these problems of death.
+ - It’s only when you’ve lost someone that you realize the nonsense of that phrase “It’s a small world”. It isn’t. It’s a vast, devouring world, especially if you’re alone.
+ - O little one, My little one, Come with me, Your life is done. Forget the future, Forget the past. Life is over: Breathe your last.
+ - Superman is, after all, an alien life form. He is simply the acceptable face of invading realities.
+ - Study nothing except in the knowledge that you already knew it. Worship nothing except in adoration of your true self. And fear nothing except in the certainty that you are your enemy’s begetter and its only hope of healing.
+ - Memory, prophecy, and fantasy – The past, the future, and The dreaming moment between – Are all in one country, Living one immortal day. To know that is Wisdom. To use it is the Art.
+ - Anyway, it’s gone. And there’s nothing left in my pocket to charm you. So from now on it’s going to have to be tears or nothing I’m afraid. That’s all I’ve got left to tell you see: tears, tears, tears.
+ - We each die countless little deaths on our way to the last. We die out of shame as humiliation. We perish from despair. And, of course, we die for love.
+ - The great grey beast February had eaten Harvey Swick alive.
+ - I can see in your eyes that there’s no seam of untapped joy left in you. The best of life has come and gone. Those days when sudden epiphanies swept over you, and you had visions of the rightness of all things and of your place amongst them; they’re history. You’re in a darker place now.
+ - Here is a list of terrible things, The jaws of sharks, a vultures wings The rabid bite of the dogs of war, The voice of one who went before, But most of all the mirror’s gaze, Which counts us out our numbered days.
+ - Life is short And pleasures few And holed the ship And drowned the crew But o! But o! How very blue the sea is.
+ - We’re both thieves, Harvey Swick. I take time. You take lives. But in the end we’re the same: both Thieves of Always.
+ - Never believe your eyes.
+ - We burn so hard, but we shed so little light; it makes us crazy and sad.
+ - Darkness always had its part to play. Without it, how would we know when we walked in the light? It’s only when its ambitions become too grandiose that it must be opposed, disciplined, sometimes – if necessary – brought down for a time. Then it will rise again, as it must.
+ - Nothing happens carelessly. We’re not brought into the world without reason, even though we may never understand the reason. An infant that lives an hour, that dies before it can lay eyes on those who made it, even that soul did not live without purpose: this is my sudden certainty.
+ - True joy is a profound remembering; and true grief the same.
+ - Midian is where the monsters go.
+ - One man’s pornography is another man’s theology.
+ - The world had seen so many Ages: the Age of Enlightenment; of Reformation; of Reason. Now, at last, the Age of Desire. And after this, an end to Ages; an end, perhaps, to everything.
+ - You cut up a thing that’s alive and beautiful to find out how it’s alive and why it’s beautiful, and before you know it, it’s neither of those things, and you’re standing there with blood on your face and tears in your sight and only the terrible ache of guilt to show for it.
+ - Even winter – the hardest season, the most implacable – dreams, as February creeps on, of the flame that will presently melt it away. Everything tires with time, and starts to seek some opposition, to save it from itself.
+ - Perhaps a wiser eye than hers would be able to read tomorrow in tonight’s stars, but where was the fun in that? It was better not to know. Better to be alive in the Here and the Now – in this bright, laughing moment – and let the Hours to come take care of themselves.
+ - Writing about the unholy is one way of writing about what is sacred.
+ - The sun rose like a stripper, keeping its glory well covered by cloud till it seemed there’d be no show at all.
+ - I don’t like PG-13 horror movies. I think they’re a contradiction in terms.
+ - It was as though in these last minutes together – when they had so much to say – they could say nothing of the least significance, for fear it open the floodgates.
+ - I was a weird little kid. I was very irritable, bored, frustrated. I felt my imagination bubbling inside my head without having any way to express itself. Given a crayon and paper, I would not draw a train or a house. I would draw these monsters, beasts and demons.
+ - Sung to the tune of O Christmas Tree O woe is me, O woe is me, I used to have a hamster tree, But it was eaten by a newt, And now I have no cuddly fruit, O woe is me, O woe is me, I used to have a hamster tree!
+ - You’ll learn, honey. Love can be the best thing in life. And it can be the worst. The absolute worst.
+ - I love meeting people who’ve read my books. The prime reason to be on the planet is to make things I can show to other people: paintings, books, movies.
+ - My imagination is my polestar; I steer by that.
+ - Perhaps sunlight had always been luminous, and doorways signs of greater passage than that of one room to another. But she’d not noticed it until now.
+ - After all, where can the glorious, the goofy, and the god-like stand shoulder to shoulder?
+ - I’m a great dog fanatic. My own dog died a little while ago and I take it very personally when things die-it’s a major offence.
+ - Sooner or later even the most ambitious glutton must crawl away and seek the solace of the vomitorium.
+ - Behind their eyes the hope was sickening and in many, dead. They lived from event to event with a subtle terror of the gap between, filling up their lives with distractions to avoid the emptiness where curiosity should have been.
+ - Always, worlds within worlds.
+ - There is no delight the equal of dread.
+ - Well, it was most likely too late; there would not be time for me to flagellate myself for every dishonorable deed in that list, nor any chance to make good the harms I’d done. Minor harms, to be sure, in the scheme of things; but large enough to regret.
+ - To you who have never died, may I say: Welcome to the world!
+ - A soul of water a soul of stone. A soul by name a soul unknown. The hours unmake our flesh our bone. The Soul is all and all alone!
+ - What worth was a man who could not be haunted?
+ - I’ve dealt with a lot of producers who were pricks and I’m determined not to be that.
+ - Often people who are wonderful with animals aren’t always terribly good with human beings.
+ - Walk with care in dark places, and do not put your faith in anyone who promises you the forgiveness of the Lord or a certain place in Paradise.
+ - If you want to look like the people next door, you’re probably smothering yourself into your dreams.
+ - Leavening the flat bread of what we know, with the yeast of what we dream may come to pass.
+ - She was a sea: and I had to swim in her.
+ - There must still be room for the falling note, of course. Even in an undying world there are times when beauty passes from sight, or love passes from the heart, and we feel the sorrow of partition.
+ - I don’t like to make a distinction between the writer and the painter, finally, because I do both things anyway. Everybody’s dreaming and trying to put down their dreams in the way that their hand knows best. I feel as much a unity, as much comradeship, with painters as I do writers .
+ - I don’t take accusations of selling out lightly.
+ - I really believe that there is an enormous appetite amongst readers for an originality of vision. In other words, be true to your own dreams and there will always be people who want to hear them.
+ - Give me B movies or give me death!
+ - The monsters act out our rage. They act on their worst impulses, which is appealing to a certain part of us. They get punished for it, but we’ve enjoyed the spectacle of their liberation.
+ - I was cured in my new infamy of all the tired wisdom of age. I would never weary into that tired state again – I swore to myself, I would always be this raw, wet child hereafter...
+ - At best you can hold death at bay, you can pretend it isn’t there; but to deny it totally is a sickness. And I think that horror fiction is one of the ways to approach these problems, and, perversely perhaps, to enjoy a vicarious confrontation with them.
+ - To dream in isolation can be properly splendid to be sure; but to dream in company seems to me infinitely preferable.
+ - The paintings of Francis Bacon to my eye are very beautiful. The paintings of Bosch or Goya are to my eye very beautiful. I’ve also stood in front of those same paintings with people who’ve said, ‘let’s get on to the Botticellis as soon as possible.’ I have lingered, of course.
+ - Have patience; the lovers will suffer lovers always suffer.
+ - But I think humans are innately religious as a species, so you don’t need a specific excuse for examining the perversely unholy.
+ - Richard Christian Matheson is a master of compression. He knows how to catch a moment in words and convey it straight to the reader’s heart.
+ - As for theatre, there’s ups and downs to everything. Theatre is ephemeral. But that is part of its charm because you can always say the production was better than it was.
+ - I haven’t even had a life I could call my own, and you’re ready to slot me into the grand design. Well, I don’t think I want to go. I want to be my own design.
+ - Books should make somebody look at how they feel, be honest with themselves.
+ - We are the star and the darkness it peirces.
+ - Funny that. We live in islands of Hours and we never seem to have time enough for anything...
+ - The extraordinary’s the norm.
+ - She wanted nothing that he could offer her, except perhaps his absence.
+ - His body and his mind went about their different businesses. The former, freed from conscious instruction, breathed, rolled, sweated, and digested. The latter went dreaming.
+ - I never want to be the producer that I too often got.
+ - We are all our own graveyards, I believe; we squat amongst the tombs of the people we were. If we’re healthy, every day is a celebration, a Day of the Dead, in which we give thanks for the lives that we lived, and if we are neurotic we brood and mourn and wish that the past was still present.
+ - I’ve held a brain in my hands, which is an extraordinary experience.
+ - Maybe the man had taken the wrong turning, but at least he’d travelled some extraordinary roads.
+ - You have to taste the sour urine before you break the jug.
+ - There are lives lived for love, and lives lived for art. We, happy band, have chosen the later persuasion.
+ - For a writer, and particularly a writer of my genre, which is the fantastical, I think that it’s to my advantage to feel remote from and disconnected from the world of deal making.
+ - Whatever capacity she possesses to supernaturally beguile a human soul – and she possesses many – she liked his clear-sightedness too well, to blind him that way.
+ - What I tried to do is deliver movies that have worked for me more than once.
+ - There’s no conscious thing on the face of the world that doesn’t know dread more intimately than its own heartbeat.
+
+112 quotes

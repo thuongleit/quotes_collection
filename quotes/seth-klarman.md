@@ -1,0 +1,140 @@
+ - Be focused on process and not outcome.
+ - The single greatest edge an investor can have is a long-term orientation.
+ - Never stop reading. History doesn’t repeat, but it does rhyme.
+ - I don’t have a Bloomberg on my desk. I don’t care.
+ - Over the long run, the crowd is always wrong.
+ - Investing is the intersection of economics and psychology.
+ - Value investing requires a great deal of hard work, unusually strict discipline, and a long-term investment horizon. Few are willing and able to devote sufficient time and effort to become value investors, and only a fraction of those have the proper mind-set to succeed.
+ - Value investing is predicated on the efficient market hypothesis being wrong.
+ - Always look for forced urgent selling.
+ - Having great clients is the key to investment success.
+ - Sometimes buying early on the way down looks like being wrong, but it isn’t.
+ - Graham’s wonderful sentence as, an investor needs only two things: cash and courage. Having only one of them is not enough.
+ - Loss avoidance must be the cornerstone of your investment philosophy.
+ - People should be highly sceptical of anyone’s including their own, ability to predict the future, and instead pursue strategies that can survive whatever may occur.
+ - We don’t deal in absolutes. We deal in probabilities.
+ - Value investing is at its core the marriage of a contrarian streak and a calculator.
+ - While some might mistakenly consider value investing a mechanical tool for identifying bargains, it is actually a comprehensive investment philosophy that emphasizes the need to perform in-depth fundamental analysis, pursue long-term investment results, limit risk, and resist crowd psychology.
+ - I find value investing to be a stimulating, intellectually challenging, ever changing, and financially rewarding discipline.
+ - In reality, no one knows what the market will do; trying to predict it is a waste of time, and investing based upon that prediction is a speculative undertaking.
+ - The avoidance of loss is the surest way to ensure a profitable outcome.
+ - Value investing is the discipline of buying shares at a significant discount from their current underlying values and holding them until more of their value is realised. The element of a bargain is the key to the process.
+ - Investors should always keep in mind that the most important metric is not the returns achieved but the returns weighed against the risks incurred. Ultimately, nothing should be more important to investors than the ability to sleep soundly at night.
+ - We worry top-down, but we invest bottom-up.
+ - Limit risk with: Deep analysis Bargain purchase Sensitivity analysis.
+ - Hold cash when opportunities are not presenting themselves.
+ - While it might seem that anyone can be a value investor, the essential characteristics of this type of investor-patience, discipline, and risk aversion-may well be genetically determined.
+ - One must understand the importance of an endless drive to get information and seek value.
+ - I think markets will never be efficient because of human nature.
+ - The stock market is the story of cycles and of the human behavior that is responsible for overreactions in both directions.
+ - Value investing is risk aversion.
+ - Value investors have to be patient and disciplined, but what I really think is you need not to be greedy. If you’re greedy and you leverage, you blow up. Almost every financial blow up is because of leverage.
+ - When people give away stocks based on forced selling or fear that is usually a great opportunity.
+ - Do not trust financial market risk models. Despite the predilection of some analysts to model the financial markets using sophisticated mathematics, the markets are governed by behavioral science, not physical science.
+ - You need humility to say ‘I might be wrong.’
+ - When a Wall Street analyst or broker expresses optimism, investors must take it with a grain of salt.
+ - Generally, the greater the stigma or revulsion, the better the bargain.
+ - We work really hard never to get confused with what we know from what we think or hope or wish.
+ - A simple rule applies: if you don’t quickly comprehend what a company is doing, then management probably doesn’t either.
+ - There’s no such thing as a value company. Price is all that matters. At some price, an asset is a buy, at another it’s a hold, and at another it’s a sell.
+ - Avoiding where others go wrong is an important step in achieving investment success. In fact, it almost assures it.
+ - Investment success cannot be captured in a mathematical equation or a computer program.
+ - Once you adopt a value-investment strategy, any other investment behavior starts to seem like gambling.
+ - Complexity – limits competition.
+ - Courage is a function of process.
+ - My view is that an investor is better off knowing a lot about a few investments than knowing a little about each of a great many holdings. One’s very best idea’s are likely to generate higher returns for a given level of risk than one’s hundredth or thousandth best idea.
+ - The prevailing view has been that the market will earn a high rate of return if the holding period is long enough, but entry point is what really matters.
+ - Most investors are primarily oriented toward return, how much they can make and pay little attention to risk, how much they can lose.
+ - The real secret to investing is that there is no secret to investing.
+ - Having clients with a long-term orientation is crucial. Nothing else is as important to the success of an investment firm.
+ - Most institutional investors feel compelled to swing at almost every pitch and forgo batting selectivity for frequency.
+ - Risk is not inherent in an investment; it is always relative to the price paid. Uncertainty is not the same as risk. Indeed, when great uncertainty – such as in the fall of 2008 – drives securities prices to especially low levels, they often become less risky investments.
+ - A margin of safety is achieved when securities are purchased at prices sufficiently below underlying value to allow for human error, bad luck, or extreme volatility in a complex, unpredictable and rapidly changing world.
+ - We are big fans of fear, and in investing it is clearly better to be scared than sorry.
+ - As Graham, Dodd and Buffett have all said, you should always remember that you don’t have to swing at every pitch. You can wait for opportunities that fit your criteria and if you don’t find them, patiently wait. Deciding not to act is still a decision.
+ - Typically, we make money when we buy things. We count the profits later, but we know we have captured them when we buy the bargain.
+ - Benjamin Graham wrote, “Those with enterprise haven’t the money, and those with money haven’t the enterprise, to buy stocks when they are cheap.”
+ - Ultimately, nothing should be more important to investors than the ability to sleep soundly at night.
+ - All an investor can do is follow a consistently disciplined and rigorous approach; over time the returns will come.
+ - To a value investor, investments come in three varieties: undervalued at one price, fairly valued at another price, and overvalued at still some higher price. The goal is to buy the first, avoid the second, and sell the third.
+ - The government can indefinitely control both short-term and long-term interest rates.
+ - Costs and liabilities are rarely overstated.
+ - We buy expecting to hold a bond to maturity and a stock forever.
+ - Warren Buffett once wrote that value investing is like an inoculation – it either takes or it doesn’t – and when you explain to somebody what it is and how it works and why it works and show them the returns, either they get it or they don’t.
+ - The inability to hold cash and the pressure to be fully invested at all times meant that when the plug was pulled out of the tub, all boats dropped as the water rushed down the drain.
+ - Patience and discipline can make you look foolishly out of touch until they make you look prudent and even prescient.
+ - Short sellers age in dog years.
+ - Great investments don’t just knock on the door and say “buy me”.
+ - It is always easiest to run with the herd; at times, it can take a deep reservoir of courage and conviction to stand apart from it. Yet distancing yourself from the crowd is an essential component of long-term investment success.
+ - In a rising market, everyone makes money and a value philosophy is unnecessary. But because there is no certain way to predict what the market will do, one must follow a value philosophy at all times.
+ - Always remembering that we might be wrong, we must contemplate alternatives, concoct hedges, and search vigilantly for validation of our assessments. We always sell when a security’s price begins to reflect full value, because we are never sure that our thesis will be precisely correct.
+ - If an asset has cash flow or the likelihood of cash flow in the near term and is not purely dependment on what a future buyer might pay, then it’s an investment. If an asset’s value is totally dependent on the amount a future buyer might pay, then its purchase is speculation.
+ - I know of no long-time practitioner who regrets adhering to a value philosophy; few investors who embrace the fundamental principles ever abandon this investment approach for another.
+ - When all feels calm and prices surge, the markets may feel safe; but, in fact, they are dangerous because few investors are focusing on risk.
+ - At Baupost, we constantly ask: ‘What should we work on today?’ We keep calling and talking. We keep gathering information. You never have perfect information. So you work, work and work. Sometimes we thumb through ValuLine. How you fill your inbox is very important.
+ - While knowing how to value businesses is essential for investment success, the first and perhaps most important step in the investment process is knowing where to look for opportunities.
+ - There are no long-term lessons – ever.
+ - If you can remember that stocks aren’t pieces of paper that gyrate all the time – they are fractional interests in businesses – it all makes sense.
+ - The best protection against risk is knowing what you are doing.
+ - Ratings agencies are highly conflicted, unimaginative dupes. They are blissfully unaware of adverse selection and moral hazard. Investors should never trust them.
+ - Right at the core, the mainstream has it backwards. Warren Buffett often quips that the first rule of investing is to not lose money, and the second rule is to not forget the first rule. Yet few investors approach the world with such a strict standard of risk avoidance.
+ - As Buffett has often observed, value investing is not a concept that can be learned and gradually applied over time. It is either absorbed and adopted at once, or it is never truly learned.
+ - When managers are afraid of redemptions, they get liquid. We all saw how many managers went from leveraged long in 2007 to huge net cash in 2008, when the right thing to do in terms of value would have been to do the opposite.
+ - Macro worries are like sports talk radio. Everyone has a good opinion which probably means that none of them are good.
+ - There is an old saying, “How did you go bankrupt?” And the answer is, “Gradually, and then suddenly.” The impending fiscal crisis in the United States will make its appearance in the same way.
+ - In investing it is never wrong to change your mind. It is only wrong to change your mind and do nothing about it.
+ - A commodity doesn’t have the same characteristics as a security, characteristics that allow for analysis. Other than a recent sale or appreciation due to inflation, analyzing the current or future worth of a commodity is nearly impossible.
+ - At equal returns, public investments are generally superior to private investments not only because they are more liquid but also because amidst distress, public markets are more likely than private ones to offer attractive opportunities to average down.
+ - Things that have never happened before are bound to occur with some regularity. You must always be prepared for the unexpected, including sudden, sharp downward swings in markets and the economy. Whatever adverse scenario you can contemplate, reality can be far worse.
+ - At the worst possible moment, when your fund is down because cheap things have gotten cheaper, you need to have capital, to have clients who will actually love the phone call and-most of the time, if not all the time-add, rather than subtract, capital.
+ - Bad things happen, but really bad things do not. Do buy the dips, especially the lowest quality securities when they come under pressure, because declines will quickly be reversed.
+ - Do not suffer interim losses, relish and appreciate them.
+ - The way to maximize outcome is to focus on the process.
+ - It sounds kind of crazy, but in times of turmoil in the market, I’ve felt a sort of serenity in knowing that I’ve checked and re-checked my work, one plus one still equals two regardless of where a stock trades right after I buy it.
+ - It’s incredibly important to note that when you don’t allow failure, you get more failure.
+ - The trick of successful investors is to sell when they want to, not when they have to.
+ - Avoid organizing investment team into silos.
+ - You must buy on the way down. There is far more volume on the way down than on the way back up, and far less competition among buyers. It is almost always better to be too early than too late, but you must be prepared for price markdowns on what you buy.
+ - The cost of performing well in bad times can be relative underperformance in good times.
+ - Depressions aren’t good but the depression mentality is good.
+ - Investors need to pick their poison: Either make more money when times are good and have a really ugly year every so often, or protect on the downside and don’t be at the party so long when things are good.
+ - When you buy bargains and they become better bargains, it is easy to start to question yourself, which can impair your judgement. Real or imagined concerns about client redemptions, employee defections can greatly influence behavior away from rational.
+ - Markets need not be in sync with one another. Simultaneously, the bond market can be priced for sustained tough times, the equity market for a strong recovery, and gold for high inflation. Such an apparent disconnect is indefinitely sustainable.
+ - By investing at a discount, Benjamin Graham knew that he was unlikely to experience losses.
+ - Selling, in particular, can be a challenge; many investors are tempted to become more optimistic when a security is performing well. This temptation must be resisted; tax considerations aside, when a security reaches full valuation, there is no longer a reason to own it.
+ - My experience is that short sellers do far better analysis than long buyers because they have to. The market is biased upward over time-as the saying goes, stocks are for the long run.
+ - The strategy of buying what’s in favor is a fool’s errand, ensuring long-term underperformance. Only by standing against the prevailing winds – selectively, but resolutely – can an investor prosper over time. But for a while, a value investor typically underperforms.
+ - One of the biggest challenges in investing is that the opportunity set available today is not the complete opportunity set that should be considered. Limiting your opportunity set to the one immediately at hand would be like limiting your spouse to the students you met in high school.
+ - If another person were to enter the building, it would once again be empty.
+ - Be sure that you are well compensated for illiquidity – especially illiquidity without control – because it can create particularly high opportunity costs.
+ - Don’t short many stocks. Instead they hedge for tail risk with CDS and options. They are happy to incur illiquidity.
+ - In contrast to the speculators preoccupation with rapid gain, value investors demonstrate their risk aversion by striving to avoid loss.
+ - There is no amount of bad news that the markets cannot see past.
+ - The government can reasonably rely on debt ratings when it forms programs to lend money to buyers of otherwise unattractive debt instruments.
+ - Flexible approach – will look at ALL asset classes.
+ - Many LBOs are man-made disasters. When the price paid is excessive, the equity portion of an LBO is really an out-of-the-money call option. Many fiduciaries placed large amounts of the capital under their stewardship into such options in 2006 and 2007.
+ - Because investors are not usually penalized for adhering to conventional practices, doing so is the less professionally risky strategy, even though it virtually guarantees against superior performance.
+ - Successful investors must temper the arrogance of taking a stand with a large dose of humility, accepting that despite their efforts and care, they may in fact be wrong.
+ - If you’ve just stared into the abyss, quickly forget it: the lessons of history can only hold you back.
+ - We continue to adhere to a common-sense view of risk – how much we can lose and the probability of losing it. While this perspective may seem over simplisticor even hopelessly outdated, we believe it provides a vital clarity about the true risks in investing.
+ - You probably would not choose to dine at a restaurant whose chef always ate elsewhere. I do eat my own cooking, and I don’t “dine out” when it comes to investing.
+ - Like to have a catalyst – reduces dependence on the market: Distressed debt inherently has a catalyst – maturity.
+ - I think Buffett is a better investor than me because he has a better eye toward what makes a great business. And when I find a great business I’m happy to buy it and hold it. Most businesses don’t look so great to me.
+ - Literally draw a detailed map-like an organization chart-of interlocking ownership and affiliates, many of which were also publicly traded. So, identifying one stock led him to a dozen other potential investments. To tirelessly pull threads is the lesson that I learned from Mike Price.
+ - It turns out that value investing is something that is in your blood. There are people who just don’t have the patience and discipline to do it, and there are people who do. So it leads me to think it’s genetic.
+ - Excess capacity in people, machines, or property will be quickly absorbed.
+ - A tipping point is invisible, as we just saw in Greece. In most situations, everything appears fine until it’s not fine, until, for example, no one shows up at a Treasury auction.
+ - When a stock is selling at a discount to liquidation value per share, a near rock-bottom appraisal, it is frequently an attractive investment.
+ - When a government official says a problem has been “contained,” pay no attention.
+ - The near absence of bargains works as a reverse indicator for us. When we find there is little worth buying, there is probably much worth selling.
+ - We are not so brazen as to believe that we can perfectly calibrate valuation; determining risk and return for any investment remains an art not an exact science.
+ - Almost no one will accept responsibility for his or her role in precipitating a crisis: not leveraged speculators, not willfully blind leaders of financial institutions, and certainly not regulators, government officials, ratings agencies or politicians.
+ - All investors must come to terms with the relentless continuity of the investment process.
+ - Individual and institutional investors alike frequently demonstrate an inability to make long-term investment decisions based on business fundamentals.
+ - Value investors should completely exit a security by the time it reaches full value; owning overvalued securities is the realm of speculators.
+ - Analysts recommendations may not produce good results. In part this is due to the pressure placed on these analysts to recommend frequently rather than wisely.
+ - A value strategy is of little use to the impatient investor since it usually takes time to pay off.
+ - Be indifferent if you lose your short term clients, remember they are your own worst enemy.
+ - Why should the immediate opportunity set be the only one considered, when tomorrow’s may well be considerably more fertile than today’s?
+
+138 quotes

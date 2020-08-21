@@ -1,0 +1,34 @@
+ - Let the dog bark; the moon shall beam on.
+ - Shah is a kind of magic word with the Persian people.
+ - Was the collaboration of some slaves any different than the silence of some Iranians who stood by and did nothing as Savak thugs murdered and tortured opponents of the Shah? How could we judge other men until we had stood in their shoes?
+ - Thank God we in Iran have neither the desire nor the need to suffer from democracy.
+ - You approach the Mullahs as if they are normal people. They are not. You see them in your own image; you should not.
+ - Soviet propaganda is remarkably effective and the Americans are even more remarkably stupid.
+ - Today the name of America has a magic meaning for the most distant commmunities of the world.
+ - There is only one thing I can say about the Shah- he knows how to draw a crowd.
+ - What’s happened recently in Pakistan, India and Kuwait only goes to show that it’s futile to imitate Western democracy. They’ve ended up exactly where they started.
+ - It would serve the Americans right if we emptied the prisons and let the subversives take power. They’d soon show Washington just how much they appreciate good old American values.
+ - We may be delighted to see Israel putting the Arabs in their place, but we have repeatedly condemned their occupation of Arab territory.
+ - Let me tell you quite bluntly that this king business has given me personally nothing but headaches.
+ - My main mistake was to have made an ancient people advance by forced marches toward independence, health, culture, affluence, comfort.
+ - As far as we are concerned, we are not the toys of any country, including the United States.
+ - Nobody can influence me, nobody. Still less a woman. Women are important in a man’s life only if they’re beautiful and charming and keep their femininity.
+ - Muslim brothers be damned; they’re our greatest enemies. You know yourself that I’m a Muslim, even a fanatical Muslim. But that does nothing to alter my opinion of the Arabs.
+ - A crown, a throne could not be based on the not too very solid foundation of blood.
+ - I personally object to the veil on aesthetic as well as other grounds; but I must admit that, for instance in the suburbs of American cities, I have often seen women attired more sloppily than our Persian women normally are.
+ - They want liberalization! I’ll give them liberalization. I’ll loosen the screws until the Americans beg me to tighten them again.
+ - This criticism is ridiculous. The twenty-five hundreth anniversary celebration cost me less than the inauguration of each new president of the United States.
+ - How can you hope to build up a nation by fragmenting its politics into opposing camps? Whatever one group builds, the other will endeavour to destroy.
+ - As for King Hussein of Jordan, I cannot praise him enough. He is not only a friend, but a brother. His qualities as a man and his goodness of heart are enhanced by great courage and a true love of his country.
+ - I will frankly confess that I was convinced that God had ordained me to do certain things for the service of my nation, things that perhaps could not be done by anyone else. In whatever I have done and whatever I do in the future, I consider myself as an agent of the will of God.
+ - I have learned by experience that a tragic end awaits anyone who dares cross swords with me; Nasser is no more, John and Robert Kennedy died at the hands of assassins, their brother Edward has been disgraced, Krushchev was toppled, the list is endless.
+ - Nixon is a strong leader with a good grasp of the world’s problems. He knows that the only way to argue with the communists is from a position of strength.
+ - My advisers built a wall between myself and my people. I didn’t realize what was happening. When I woke up, I had lost my people.
+ - Who on earth do the Americans suppose their allies are amongst the Arab world? Even Saudi Arabia they seem to regard as nothing more than a resevoir of oil and money.
+ - Henry Kissinger is possessed of a truly superior intelligence, in addition to which he has two qualities which, unfortunately, many great men lack: he is able to listen and he has a very subtle sense of humour.
+ - To be first in the Middle East is not enough. We must raise ourselves to the level of a great world power.
+ - Nixon would like to consign us to to the level of the most backward countries in the whole Middle East. Why lower us to the standard of the Saudis rather than raising the Saudis to meet us?
+ - The great powers claim that whatever they possess is theirs by right, but whatever we, the smaller countries possess is negotiable.
+ - O Cyrus, great King, King of Kings, Achaemenian King, King of the land of Iran. I, the Shahanshah of Iran, offer thee salutations from myself and from my nation. Rest in peace, for we are awake, and we will always stay awake.
+
+32 quotes

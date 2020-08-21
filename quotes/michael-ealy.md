@@ -1,0 +1,24 @@
+ - Hey, I know it’s Monday, but it’s also a new day, a new week and in that lies a new opportunity for something special to happen.
+ - If you want something to work, if it means that much to you; KEEP IT TO YOURSELF.
+ - There are good and bad times in a relationship. You start to understand more about how a relationship can go awry when two people spend too much time together. They tend to overlook all of the red flags that pop up early because they want to make it work and they want to believe it’s right.
+ - You should always challenge yourself, as an actor, to find the connection between you and the character.
+ - What I’ve learned is that the most precious commodity you can have in a relationship is honesty, good or bad.
+ - The kind of issues that we face as detectives are similar to what the other married couples out there are facing, or the brother and sister, or the brother and brother are facing. Relationships are universal.
+ - I think women should have insight as to how men think. Just like men should have insight into how women think.
+ - I used to love the ‘Star Trek’ movies, ‘Wrath of Khan’ and stuff like that. Loved those movies when I was a kid. And ‘Star Wars’ obviously was hands-down probably – I mean I had the sheets. I was a big fan of that.
+ - Giving yourself over to the fine line of a human-like droid means that sometimes you make choices that don’t make you feel good, as an actor, and you have to learn to embrace that. No actor will tell you that that’s a good place to be.
+ - I have two dream roles: One would be a biopic of someone I admire and respect and the other one would be some sort of action drama film similar to a ‘Bourne Identity.’ I just really want to do an intelligent action drama film.
+ - I feel like I’ve finally made it as an actor. I’ve been doing this for years and you don’t always make a movie that everybody likes.
+ - I’ve always thought vampires were interesting because they live forever, they’re always well-financed, they dress well, you know what I mean? And they’re, like, cool. Usually vampire – you’ve never seen a broke vampire. Have you?
+ - If you look at a lot of people’s careers, the first couple of movies, usually, are the most embarrassing.
+ - Any time you audition and get it, you earned it.
+ - I know the commitment that TV requires but it’s nice to come to work and have fun.
+ - I wasn’t smart enough to read relationship books when I was coming up. I learned everything the hard way.
+ - I love going to see the theatre whether it’s a Broadway play or a Russian ballet company.
+ - I’m actually very good with Home Depot-handy type of paintwork.
+ - There’s something very beautiful and compelling about someone who has ambition and someone who knows what they want, but it can get a little frustrating at times, so I understand that. I have sympathy for that.
+ - If I feel like it’s a well-written script and if it speaks to me, it’s something I want to do. I usually rely on my instincts when it comes to a script.
+ - I honestly think I’m just an actor. It doesn’t matter the medium. I can go on stage and be happy, I can be on TV and be happy.
+ - You know, a lot of actors I think go into acting for therapy from whatever trauma has affected them as children. But for me, I think I sought out the drama. That’s why I like doing what I do.
+
+22 quotes

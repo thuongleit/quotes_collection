@@ -1,0 +1,25 @@
+ - Fancy algorithms are slow when N is small, and N is usually small.
+ - I look my best when I’m totally free, on holiday, walking on the beach.
+ - In the original computer game of Doom, you not only have to kill things. You have to pulverise them.
+ - Fancy optimizers have fancy bugs.
+ - Ive been doing Pride and Prejudice all summer, so suddenly the chance to be holed up with a bunch of marines is quite attractive, and probably a necessary dose of male energy.
+ - Acting is about communicating what it is like to be human: the pain, the laughs, the misery, the joy. I suppose I am searching to have it all.
+ - I always think that the people who have the hardest time in the spotlight are the people who have unearned fame, like the girlfriends of people who are famous or people who become figures of attention, not through their own merit.
+ - As a woman, you feel that you shouldnt want to better yourself against others. Ambition has become such an ugly word, hasnt it?
+ - Anger is not an accepted thing for women. And, you know, I do get angry. I feel its a very honest emotion.
+ - Nothing can teach you what it’s like to work on a film set, and the best education there can be for an actor is to walk up the street and observe human nature.
+ - Actresses generally arent allowed to have haircuts, because short hair isnt considered as versatile.
+ - I’m probably not going to play a junkie and that’s OK because there are other people who will do it better.
+ - The response to Pride has been so overwhelming. I mean, people have really loved it. And it’s so rewarding because we had such a fun time making that film, and it was made with so much heart, that it’s lovely that people seem to be responding in kind to that.
+ - I’d really love to live in New York for awhile. That’s what I’m hoping to do.
+ - I know I’ve got loads that has never been tapped.
+ - Especially in Britain, people want to limit you.
+ - I think, you know, as an actor we get these terribly sort of pretentious ideas in our heads. We try to take everything very seriously at first, you know, until we lighten up, we get onboard, and have a laugh.
+ - I’ve got friends who are pyrotechnics who do big fire shows, so I’m really fascinated by that.
+ - And I like the look on people’s faces when I say I’m doing this movie called Pride and Prejudice and they kind of smile, and then I say I’m in a movie called Doom and they kind of do a double take and try and put the two things together. And they never quite manage to.
+ - It’s something that I am going over in my head about the whole video game thing, and whether you support violence by being in a film like this. I mean, to me, it’s incredibly unreal and it’s all about the action, and just explosions.
+ - You can certainly keep a low public profile if you want to.
+ - The job of an actor is the same in all of them, really. I mean, you’re just creating a character that you hope people will believe, so it doesn’t make that much of a difference really.
+ - It was in New York, and I’ve always wanted to film in New York. And the writer was a teenage friend of mine. We did youth theatre together when we were 16 and always had a dream of making a film together. And ten years later, we’ve done it. So it’s great.
+
+23 quotes

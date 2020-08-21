@@ -1,0 +1,32 @@
+ - The longer we listen to one another – with real attention – the more commonality we will find in all our lives. That is, if we are careful to exchange with one another life stories and not simply opinions.
+ - Our own pulse beats in every stranger’s throat.
+ - Vengeance is not the point: change is.
+ - A liberation movement that is nonviolent sets the oppressor free as well as the oppressed.
+ - Gandhi once declared that it was his wife who unwittingly taught him the effectiveness of nonviolence. Who better than women should know that battles can be won without resort to physical strength? Who better than we should know all the power that resides in noncooperation?
+ - To resort to power one need not be violent, and to speak to conscience one need not be meek.
+ - We learn best to listen to our own voices if we are listening at the same time to other women-whose stories, for all our differences, turn out, if we listen well, to be our stories also.
+ - Our task, of course, is to transmute the anger that is affliction into the anger that is determination to bring about change. I think, in fact, that one could give that as a definition of revolution.
+ - Vengeance is not the point; change is. But the trouble is that in most people’s minds the thought of victory and the thought of punishing the enemy coincide.
+ - The injunction that we should love our neighbors as ourselves means to us equally that we should love ourselves as we love our neighbors.
+ - We cannot live without our lives.
+ - Punishment cannot heal spirits, can only break them.
+ - People who attack others need rationalizations for doing so. We undermine those rationalizations.
+ - People may find it more comfortable to listen to us if we equivocate, but in the long run only words that discomfort them are going to change our situation.
+ - The point is to change one’s life. The point is not to give some vent to the emotions that have been destroying one; the point is so to act that one can master them now.
+ - Think first of the action that is right to take, think later about coping with one’s fears.
+ - Surely all of us are nerved by one another, catch courage from one another.
+ - I learned always to trust my own deep sense of what I should do, and not just obediently trust the judgment of others – even others better than I am.
+ - This is the heart of my argument: We can put more pressure on the antagonist for whom we show human concern.
+ - There should be no censorship of mail.
+ - Let me be really here, here in this place and this time where I am.
+ - After the revolution, let us hope, prisons simply would not exist – if by prisons we mean places that could be experienced by the men and women in them at all as every place that goes by that name now is bound to be experienced.
+ - Of course it can be said of jails, too, that they try – by punishing the troublesome – to deter others. No doubt, in certain instances this deterrence actually works. But generally speaking it fails conspicuously.
+ - A great many of us must move from words to acts – from words of dissent to acts of disobedience.
+ - Nonviolent tactics can move into action on our behalf men not naturally inclined to act for us.
+ - Nonviolent action does not have to get others to be nice. It can in effect force them to consult their consciences.
+ - The free man must be born before freedom can be won, and the brotherly man must be born before full brotherhood can be won. It will come into being only if we build it out of our very muscle and bone – by trying to act it out.
+ - All prisons that have existed in our society to date put people away as no human being should ever be put away.
+ - It is one thing to be able to state the price the antagonist paid, another to be able to count you own real gains.
+ - After the revolution, it might very well remain necessary to place people where they could not do harm to others. But the one under restraint should be cut off from the rest of society as little as possible.
+
+30 quotes

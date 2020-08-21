@@ -1,0 +1,27 @@
+ - To serve God, to love God, to enjoy God, is the sweetest freedom in the world.
+ - Consider what God can do, and you will never despair of success.
+ - Truth provokes those whom it does not convert.
+ - First, never go against the best light you have; second, take care that your light be not darkness.
+ - If you going to live by a certain code – as Bob Dylan said, you gotta serve somebody.
+ - The fewer desires, the more peace.
+ - We all know that a sympathetic and intelligent listener not only flatters our vanity, but also frequently enables us to crystallize our own ideas to the best advantage. Why, then, do we so often refuse to perform this service?
+ - It costs more to revenge injuries than to bear them.
+ - A good judge should never boast of his power, because he can do nothing but what he can do justly: he is not the master, but the minister of the law. Authority without virtue is a very dangerous state.
+ - The commands of God are all designed to make us more happy than we can possibly be without them.
+ - I’ve decided to do what I want to do in life and follow my own path as an artist, so I’ve decided not to participate in any sort of nostalgia in which I’m marginalized as a pop icon of yesteryear.
+ - Friendship is to be purchased only by friendship. A man may have authority over others, but he can never have their hearts but by giving his own.
+ - A great man is made so for others.
+ - He, who loves praise, loves temptation.
+ - There is a danger in being persuaded before one understands.
+ - And by the same token, I appreciate math, because I can’t do math. If I have to read a map or figure out the tip on a restaurant bill, I might start to tear up a little bit.
+ - Intemperance in talk makes dreadful havoc in the heart.
+ - The greatest of all disorders is to think we are whole and need no help.
+ - The world would use us just as it did the martyrs, if we loved God as they did.
+ - I was an artistic dilettante for a while, in photography and collage and the visual arts.
+ - Our life must answer for our faith.
+ - How it shaped my perception is this: I have become so indelibly identified as a character in pop culture that it has forced me to go deeply within myself to get a very very rock solid sense, to myself, of who I am.
+ - Labor, therefore, is a duty from which no man living is exempt, without forfeiting his right to his daily bread.
+ - I was studying acting in New York, and wasn’t being hired by anyone to do anything other than to work in an Oriental rug warehouse.
+ - The Devil never tempts us with more success than when he tempts us with a sight of our own good actions.
+
+25 quotes

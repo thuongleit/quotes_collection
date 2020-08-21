@@ -1,0 +1,33 @@
+ - Make sure your worst enemy doesn’t live between your two ears.
+ - We’re all equal before a wave.
+ - Do not be afraid of death. Be afraid of the half-lived life!
+ - People don’t want to do new things if they think they’re going to be bad at them or people are going to laugh at them. You have to be willing to subject yourself to failure, to be bad, to fall on your head and do it again, and try stuff that you’ve never done in order to be the best you can be.
+ - I don’t want to not live because of my fear of what could happen.
+ - In all successful relationships, the man respects the woman – and it takes a special guy to handle a successful woman. You have to be confident in who you are and what you do.
+ - The biggest sin in the world would be if I lost my love for the ocean.
+ - I know that if I scare myself once a day, I’m a better person.
+ - When you don’t use sugar in your diet, all of the sudden fruits are really sweet. Honey is really sweet. Your taste buds change. I’m not psycho never have anything sweet, because that takes too much energy. The stress on your body just isn’t worth it.
+ - All training does is get us back what we lost when we stopped having to hunt down our food. Our bodies are built for it already.
+ - Wiping out is an underappreciated skill.
+ - There needs to be a reason to go, so you go deeper into whatever place you’re visiting to find those unforgettable experiences.
+ - People always ask me when they see me working out, “What are you training for?” The answer is I’m training for life.
+ - If you can look at one of these waves and you don’t believe that there’s something greater than we are, then you’ve got some serious analyzing to do and you should go sit under a tree for a very long time.
+ - California has more distractions, more activities for the kids, more driving.
+ - When I fly to Chile to surf or go snowboarding in Russia or some other adventure, I try to include the family when I can and go see friends along the way.
+ - Exercising underwater also creates tremendous benefits by challenging your body in ways you can’t on dry land.
+ - The amount of things you can do with a kettlebell is unsurpassed by any other training equipment – dumbbells, resistance machines, free weights.
+ - Fortunately, I was given an incredible foundation from my independent mother. She showed me what was possible from a strong, loving woman.
+ - In Hawaii, the environment is fabulous. In Malibu, the people are fabulous. Our family unity is tight, and we have the Pacific Ocean outside our door in both places, so there is consistency.
+ - I’m the dad, the cleanup guy. I deal with the bigger messes. But I also provide more adventures and excitement. It works out.
+ - We are our own worst inhibitors.
+ - Surfing’s one of the few sports that you look ahead to see what’s behind.
+ - Normally, people who are frustrated out in the water are frustrated on land. They brought their frustration with them. If you go to a beach where there are a hundred guys out, and you paddle out looking to ride waves alone, you’re setting yourself up.
+ - When you make a mistake, the ocean gives you an instant reminder. You get punished. If golf clubs could shock you every time you hit the ball wrong, we’d probably learn how to play golf pretty well.
+ - You have to decide what level you want to participate in your children’s lives. The more you do, the better your relationship is going to be. You have to listen to your instincts. You know when it’s time to lay down the law.
+ - Life with three daughters can be nerve-wracking, but it’s amazing to be loved by so many different women.
+ - The idea is to become an old wizard; to live a long and fruitful life and have family and be healthy and enjoy the ride. And speaking of the ride, why not let it rip, at least a little bit? Everyone I know who’s really stoked about getting out of bed in the morning does that to some extent.
+ - I do need to travel with a purpose, though. I can’t go somewhere to just hang out with friends.
+ - Travel’s the great educator, especially for the girls. You can’t put a value on it.
+ - Most men need their wives to need them, and I’ve seen that lead to their downfall.
+
+31 quotes

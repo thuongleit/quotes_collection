@@ -1,0 +1,24 @@
+ - My name is Giovanni Giorgio, but everybody calls me Giorgio.
+ - Disco is music for dancing, and people will always want to dance.
+ - Once you free your mind about the concept of harmony and of music being correct, you can do whatever you want. So nobody told me what to do, and there was no preconception of what to do.
+ - What Skrillex does with Ableton it’s like being a little god. It’s not just pushing loops – that’s easy – but to do the effects he’s a genius.
+ - I think it would be stupid for us to try and tell people who are dancing in a discotheque about the problems of the world. That is the very thing they have come away to avoid.
+ - I am not so complicated or intelligent a composer, nor am I very interested in becoming so. I am much more happy doing what I know I can do than what I am not sure I could do.
+ - The disco sound, you must see, is not art or anything so serious.
+ - In both pop and disco, the meaning of the lyrics is not too important. I have nothing I feel I particularly want to say.
+ - I knew a lot of my musicians used to take coke. I never saw them. They would hide it from me, so I wasn’t really aware of it. Creatively, I don’t think it was that great.
+ - I achieved something specially different with Love To Love You Baby and I Feel Love. These songs will endure.
+ - I am certainly not racist; I even like the British.
+ - I would not be happy to do what I do unless I felt that the large audience wanted it.
+ - I have to admit, I do not listen to much rock music.
+ - Too many of these writers in the music papers, they are misunderstanding everything. The disco sound is not art or anything so serious.
+ - I am reluctant to judge things without being informed.
+ - I don’t think there is too much art involved in what I do.
+ - My music was typically continental – nothing like, say, The Beatles.
+ - Nowadays you need so much money to be able to launch a new artist, notably in America; you would hardly believe the sums involved.
+ - In pop or rock you can make a fast song or a slow one, but in disco there is really just the one rhythm.
+ - It is at least 10 times more difficult to get a good synthesiser sound than on an acoustic instrument.
+ - Every business is there to make money, and making a record is business. This tends to be forgotten by many.
+ - Disco does work better with black artists or players. They just feel it more.
+
+22 quotes

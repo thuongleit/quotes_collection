@@ -1,0 +1,32 @@
+ - I need you more than I need freedom.
+ - You are a light that will always guide me, a whisper I’ll always strain to hear.
+ - Every good girl loved a bad boy. It was a fact of life, a quirk of nature. Opposites attract, and the badder the boy, the more attractive he was to that good girl who couldn’t help but be drawn to him.
+ - Enclose your heart in times of need with the steel of your determination and your strength. In doing this, all things will be bearable.
+ - Sweetheart, all men are animals. Feed us, pet us, and use a firm hand, and we’ll worship at your feet.
+ - I’ve never walked the same path other people found comfortable and I’m not going to start now.
+ - There are much better ways to handle the delicate male ego. With a two-by-four? Only as a last resort and never in public.
+ - I didn’t promise I wouldn’t break your tender heart, Mica. Protect it from me. Don’t let me touch that part of you. Don’t let me destroy both of us that way.
+ - And he believed because loving her meant believing. It meant trusting. And it meant life. It meant Kell Kreiger was no longer alone.
+ - Let the past not be forgotten. Let the lessons not be in vain.
+ - That night we danced, I marked you as mine and I made it stick. There wasn’t a boy or a man on that lake that didn’t know who you belonged to, and the minute there was even a whiff one of them was stepping over the line, they walked funny for a week.
+ - It’s a good thing I’m a reasonably patient woman. Otherwise, I might have to kill you.
+ - His lips covered hers as he laid the gauze on her leg. Fiery pain shot through her flesh as his lips swallowed her cry, then replaced it with such amazing sensation she wanted to whimper in return. He licked her lips. He didn’t steal her kiss. He didn’t take it. He cajoled it from her.
+ - It can happen like that. It can build slowly. It can come like a gentle rainfall, or it can slam into you like a tsunami. You are my tsunami, love.
+ - Her head throbbed as though gremlins were ripping holes in her brain.
+ - Do you know, every time I’ve seen you you’ve been like the Grim Reaper of goodwill and cheer. You should find another profession.
+ - Damned mating heat. Lawe is threatening to join a monastery and Rule’s threatening to quit. Why don’t you two try to show the younger guys it can be fun instead of taking a note out of everyone else’s books and letting it drive you insane? -Jonas.
+ - Let’s not get naughty. How about homicidal instead?
+ - What would I have done if my coya had been captured or killed? My mate, Sharone. The other half of everything I am. What would I have done?
+ - Yes, he would be gone, but she knew now what it meant to love. She might not know what it meant to be loved, but loving was almost as good.
+ - Because sometimes, a man could do nothing about where he came from, he could only control where he went.
+ - Some couples – most couples – waited years and years before they developed the ability to read or to feel each other so well. Then there were those very few who touched each other so deeply, so perfectly that first time that the bond was almost immediate.
+ - Maybe I want to be tied down and forced to admit it.
+ - I’m scared of you two in the same place. That’s like putting in an order for trouble, rather than just wishing for it.
+ - He couldn’t even find the will to yell at her now. A real man didn’t yell at those who weren’t exactly sane themselves, he told himself.
+ - I am not in the least forbidden. You may sample me all you choose.
+ - Getting a woman’s body and getting her heart are two different things. And gaining her trust is another problem entirely.
+ - What am I going to do with you? I have suggestions, but this might not be the place for them.
+ - You don’t change what you love or you never loved it to begin with.
+ - He does kiss like a pirate though, I was able to re-affirm that.
+
+30 quotes

@@ -1,0 +1,33 @@
+ - I feel the need to work with my wife, Lena Olin, again.
+ - I’m on this diet where you’re supposed to eat only fish and meat.
+ - I love mixing amateurs and professionals.
+ - My father was an amateur filmmaker who shot 8mm color documentaries.
+ - I am always more interested in performance and character depiction, and my direction says as much.
+ - To see my wife getting inspired from my notes and thoughts, going in the direction I wanted, and have her surprise me with wonderful choices was a real treat.
+ - It was important on The Shipping News to have my house far enough away from each location so I had this time in the morning to think about my shots and still remain open to surprises once I got to the set.
+ - I always need a couple of highlights to really spark the passion for a project.
+ - I think I avoid stepping into sentimentality by trying to be as truthful as possible with performances.
+ - I got to work with my wife, Lena Olin, for the first time, which was great. I thought it might be difficult in some way to talk to one’s wife in a different way but it was so not forced.
+ - I was always attracted by the European way of life, but I am deeply Swedish.
+ - If you’re striving for strong emotion and strong sentiment, and you’re authentic with it and honest with it, then you’re on the right side of the line. But if you step into sentimentality, there is a false move or a false tone to it.
+ - Many of the comedies I had made in Sweden were slightly based on semi-autobiographical experiences, so adapting novels was a very different experience.
+ - My father would tell anyone who would listen that this dentist thing he was doing was not his passion; cinematography was.
+ - My films do have characters who have trouble escaping the world around them.
+ - My key interest in choosing scripts is character-driven stories, because there are so many stories that sacrifice character for plot.
+ - I can’t go back and label myself as an outcast because I was a pretty well-adjusted kid, but I can certainly relate to the feeling of being an outsider.
+ - I love involving actors at all levels – and they have to know that I want to hear their contributions, with dialogue, with story suggestions, with script changes, whatever.
+ - A film that is bleached tends to have a more realistic quality.
+ - I always try to preserve my cinematographic style, even while I work in the US. I wish to always be European.
+ - Its just, for me, the natural standard: a woman should be able to decide over her own body.
+ - To make a movie charming, you have to be playful on all levels and open to ideas, and you have to have an idea for how to do that within the confines of the shooting schedule and editing and all that.
+ - ABBA: The Movie; I got a lot of grief for working on that.
+ - Kevin, as the whole cast is, just wonderful people and great people, and people who are attracted to this kind of material and accepting the idea of going to Newfoundland and knowing the kind of lack of amenities.
+ - I really want to have actors contribute their own ideas, with phrasings and ideas on all levels.
+ - I imagined that it might be awkward to talk to your wife about her performance, so going into it I was a little nervous. But doing it was actually a wonderfully inspiring experience.
+ - But I notice that there is a lack of darkness in my movies and I don’t know where that comes from.
+ - Cinema has become a global economy, totally international.
+ - I discovered the 7th art at home when I was kid, through Charlie Chaplin’s movies and those of my father who shot documentaries. He was my biggest influence. So I took his camera and started shooting.
+ - But now I wish I could back to Stockholm to make international films there.
+ - I made all their videos, apart from the last two, so if you ever see an Abba video on TV then it’s my stuff.
+
+31 quotes

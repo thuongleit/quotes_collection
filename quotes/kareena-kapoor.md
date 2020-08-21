@@ -1,0 +1,31 @@
+ - I don’t take success and failure seriously. The only thing I do seriously is march forward. If I fall, I get up and march again.
+ - Life is full of happiness and tears; be strong and have faith.
+ - I do my own thing. And I believe what I do is the right thing.
+ - I am proud to be a vegetarian and I am against those who eat meat. Go green to be fit, that’s the best way for me at least.
+ - You Gujarati people are so cute but why is your food so dangerous dhokla, fafda, handva, thepla it sounds like they are missiles.
+ - My professional life has nothing to do with my personal life and vice versa.
+ - I think a woman looks best in a sari.
+ - Yoga may look peaceful and calming, but even Arnold Schwarzenegger would have trouble breathing after twenty surya namaskars in a row.
+ - Why should I worry about the biological clock ticking? Saif is 10 years older. He should be worried.
+ - I am not a home breaker and I can never be. I haven’t been brought up to create havoc in other people’s homes.
+ - My co-stars call me selfish. They say you are only interested in yourself and what you are only interested is yourself and what you are doing in front of the camera. I reply, I can’t help it; it’s what got me where I am.
+ - Humor is most powerful thing that uses laughter as it base to chase your blues away.
+ - I want a man I can keep for myself. I wouldn’t ever share my man with anyone else.
+ - If I want to kiss, I shall kiss. If I am told that a lovemaking scene is integral to the script, I will consider it.
+ - It’s a political and manipulative industry. Actors vie for the same roles, movies are snatched away. Have I ever been manipulated? Yes. But I haven’t manipulated anyone because if you think from the heart, you cannot be calculative. I have spent nights crying.
+ - Be it a village or a city, education is very important, and it always comes into you.
+ - You are as old as you look. If you are fit and pretty at an X age, why won’t filmmakers want to cast you, whether you are married or not?
+ - I believe in the institution of marriage and it’s like a tag to cement the relationship for your friends, family and public.
+ - A lot of guys try to mingle with me because of who I am. If I encounter a guy with a clean heart, I will go by my instincts. I guess my man won’t be from the film industry.
+ - Being a Kapoor, acting is genetic. My sister paved the way for me when she became the first Kapoor girl to take up acting.
+ - It is important to be well read, at least a little bit.
+ - I’m a huge Aamir Khan fan. I love Aamir, so everything he does is brilliant. We expect something different from somebody like Aamir, whether it’s in promotion, or whether it’s in a film, and plus it has RajKumar Hirani.
+ - Actors are greedy. They can never be satisfied. I want praise as well as box office returns.
+ - I never really do much research before signing a film. It is just the script and character that I concentrate on.
+ - I have always been in a relationship. I don’t remember the time when I wasn’t in one.
+ - Frankly, we actresses are so much in a hurry. We feel we have very few years to shine in our career, so we neglect our personal life. But for me, both aspects are equally important. I don’t want to grow old and have regrets.
+ - Films don’t decide my whole life. They are just a part of who I am. What I do in my personal life should be of no concern to the filmmakers or the fans.
+ - It’s unarguable that the right shoes can really add elegance to an outfit and to the person who’s wearing them. Take a pair of high heels, for instance. Suddenly, you’re looking taller, shoulders back, body curved.
+ - Ek Main Aur Ek Tu was a very special film for me. Imran and we complement each other very well. He is sugar, and I am spice.
+
+29 quotes

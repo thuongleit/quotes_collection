@@ -1,0 +1,27 @@
+ - Sometimes the most brilliant and intelligent minds do not shine in standardized tests because they do not have standardized minds.
+ - Those who can’t teach, pass laws about how to evaluate teachers.
+ - An attack on Public Education is an attack on Democracy.
+ - Can teachers successfully educate children to think for themselves if teachers are not treated as professionals who think for themselves?
+ - Accountability makes no sense when it undermines the larger goals of education.
+ - American education has been littered with failed fads and foolish ideas for the past century.
+ - Without knowledge and understanding, one tends to become a passive spectator rather than an active participant in the great decisions of our time.
+ - American Education has a long history of infatuation with fads and ill-considered ideas. The current obsession with making our schools work like a business may be the worst of them, for it threatens to destroy public education. Who will Stand up to the tycoons and politicians and tell them so?
+ - You can’t lead your troops if your troops do not trust you.
+ - Testing is not a substitute for curriculum and instruction. Good education cannot be achieved by a strategy of testing children, shaming educators, and closing schools.
+ - We will continue to chase rainbows unless we recognize that they are rainbows and there is no pot of gold at the end of them.
+ - When you realize that your history books and your science books and your literature books are not the result of experts sitting down and making it a wise decision, but of political pressure groups coming to the state textbook hearings, this is wrong.
+ - The greatest obstacle to those who hope to reform American education is complacency.
+ - Research does not support any part of Race to the Top.
+ - What is happening to teachers now across this nation is a disgrace. The attacks on them are a blot on our nation. Teachers and students are not different interest groups. Anyone who demeans teachers demeans education and hurts children.
+ - The ladder was there, from the gutter to the university, and for those stalwart enough to ascend it, the schools were a boon and a path out of poverty.
+ - Testing children until they cry is a bad idea. It is an educational malpractice.
+ - The foundations demand that public schools and teachers be held accountable for performance, but they themselves are accountable to no one. If their plans fail, no sanctions are levied against them. They are bastions of unaccountability.
+ - Privatizing our public schools makes as much sense as privatizing the fire department or or the police department.
+ - Of course, all students should learn African history, as they should learn the history of other continents and major civilizations. But this history should be taught accurately and based on the best scholarship, not ideology or politics.
+ - Most people believe that schools were good enough when they were children and that they are good enough now. But the dynamic growth of our system of education has spawned serious problems of educational quality.
+ - Congress and state legislatures should not tell teachers how to teach, any more than they should tell surgeons how to perform operations.
+ - When you succeed at keeping almost everyone in school, you must figure out ways to educate everyone you keep in school.
+ - We should totally ban for-profit charters. For-profit’s first obligation is to its stockholders, not to its children.
+ - One of the persistent ironies of reform is the impossibility of predicting the full consequences of change...
+
+25 quotes

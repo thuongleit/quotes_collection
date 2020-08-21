@@ -1,0 +1,51 @@
+ - If I ever go bald, I’ll kill myself.
+ - I once asked Axl why he left the ‘E’ off his name. He started crying and said he thought he’d spelled it right.
+ - You can’t wait around for destiny to give you what you think you deserve, you have to earn it, even if you think you’ve paid your dues.
+ - Guitars are like women. You’ll never get them totally right.
+ - Being a rockstar is the intersection of who you are and who you want to be.
+ - It’s not so much about how good a player you are, its how cool you are.
+ - I’ve always had to do things my way; I play guitar my way; I’ve taken myself to the edges of life my way; I’ve gotten clean my way; And I’m still here. Whether or not I deserve to be is another story.
+ - I guess you could say there are two Slashes. There’s the crazy, rock-and-roll Slash, he’s wild. And then there’s the real Slash- he collects miniature soaps and treats his hookers real nice.
+ - I got the name Slash because I used to work in a grocery store and I was in charge of reducing prices for really big sales.
+ - Risk isn’t a word in my vocabulary. It’s my very existence.
+ - Whenever society gets too stifling and the rules too complex, there’s some sort of musical explosion.
+ - My mom did costumes for the Pointer Sisters.
+ - There are people who have an image of me as being rude and inconsiderate. But I’m completely the opposite, because I was raised not to be. I might have been tripping over myself drunk, but I was always courteous.
+ - Notes and chords have become my second language and, more often than not, that vocabulary expresses what I feel when language fails me.
+ - That’s a wonderful side effect of leather pants: when you pee yourself in them, they’re more forgiving than jeans.
+ - I never want to draw attention to myself, but that’s all I do.
+ - Guitar is the best form of self-expression I know. Everything else, and I’m just sort of tripping around, trying to figure my way through life.
+ - Restlessness is a fickle catalyst; it can drive you to achieve or it can coax your demise, and sometimes the choice isn’t yours.
+ - Experiencing yourself out of context, divorced from your usual point of view, skews your perspective – it’s like hearing your voice on an answering machine. It’s almost like meeting a stranger; or discovering a talent you never knew you had.
+ - The only time I think I’ve ever gotten sick of playing Guns and Roses songs really was during – after having played them in Guns and Roses, and then in Snakepit, and then playing ‘It’s So Easy’ and ‘Brownstone’ in Velvet Revolver.
+ - I got into rock-and-roll because I wanted the chicks. The Dixie Chicks.
+ - I am married and I have two kids now, and I love them all to death. So I am trying to put all that together and maintain the same pace I’ve been keeping. But really, I relish what we do. A year and a half sounds like a cakewalk to me.
+ - I love classical music. It has left a major mark on my playing.
+ - Directing is like guitar playing. That’s a unique mind-set and talent, unto itself. I like the idea of putting everything together to make a great movie.
+ - If it had been any different, if I had been born just one minute later, or been in the wrong pace at the right time or vice versa, the life that I’ve lived and come to love would not exist. And that is a situation that I would not want to consider in the slightest.
+ - One time we played a concert in Antwerp, Belgium. At least I thought it was Antwerp, Belgium. Turns out it was a Stop ’n Shop in Wisconsin somewhere, but it was fun man.
+ - I don’t think there’s anything better than hearing your favorite band live.
+ - Axl and I came from completely different backgrounds. Because of that we made an interesting pair trying to figure each other out.
+ - I’m not ridiculously wealthy, but I don’t squander money either.
+ - When we weren’t being transcendent we specialized in self-inflicted disaster.
+ - A day doesn’t go by where I don’t get surprised by something.
+ - The era itself has nothing to do with anything. We weren’t really attached to that at all. I just saw this thing where they had a Poison concert on VH1, and to me, that is being attached to an era.
+ - As soon as I could put together the, you know, three or four notes that made up, like, sort of a rock and roll lick, you know, like a Chuck Berry kind of thing, I was off and running. Just completely taken over.
+ - If I could hang out with Jimi Hendrix, it wouldn’t be over dinner.
+ - I’ve been on the road for so long that it’s a part of my being. Even after all these years, I love playing. I love recording. I love writing. I love rehearsing. I love touring. I love all that stuff.
+ - I had no aspirations to be a musician, but I picked up a guitar for two seconds and haven’t put it down since.
+ - If you were a kid and you wanted to come out and make a statement now, you’d have to really dig deep to find something that no one has exposed already.
+ - A lot of vices that I’ve had over the years were always to make up for some sort of character deficiency, one of them being shyness.
+ - I think when I was a kid, and I was in England and it was all about The Stones, The Who, The Kinks and The Beatles and that’s what my dad was into.
+ - I love playing music as much as if not more so than I did when I was 19; that compared to most of my peers is pretty surprising. I wake up every day and get really excited about doing stuff that I have been doing for the last 30 years. I just love it.
+ - I do all my interviews on the toilet.
+ - It seems like a lot of what was going on when I quit is still going on.
+ - I always loved rock guitar. I just never put it together that that’s what I’d end up doing.
+ - People want you to produce records. They don’t care what it took to make it. When a band is out doing concerts, the fans don’t want to know about equipment difficulties. They want their hour-and-a-half release, and that’s it.
+ - I just play, just you know, If i just sit down with the guitar and just do whatever for, you know, an half an hour or an hour whatever. That’s pretty much, that should do it for me.
+ - I was the one that allegedly “quit and joined my old band.” That wasn’t true. But it was said so matter-of-factly on the Internet that the guys weren’t really sure what I was up to.
+ - That’s always stuck with me, with music. I’ve never really gotten jaded about it. I’ve always loved music for the sake of doing it, and the longer I do it, the more I like it. Hopefully, I’ll be able to have that same point of view in this business, or at least with doing this.
+ - My dad is a huge rock and roll lead guitar fan. I didn’t even really know that until recently. Everything has to have a guitar solo in it.
+ - When it comes to actually writing, I like to write in a full room with the amps blasting, and a big drum set.
+
+49 quotes

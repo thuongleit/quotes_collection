@@ -1,0 +1,25 @@
+ - Never feel self-pity, the most destructive emotion there is. How awful to caught up in the terrible squirrel cage of self.
+ - Good behavior is everybody’s business, and good taste can be everyone’s goal.
+ - You may never reach a solution, but you’re never absolved from the responsibility of trying.
+ - A code of behavior is an inevitable part of life in any community, and if we hadn’t inherited ours, we should have had to invent one.
+ - The only people who would be in government are those who care more about people than they do about power.
+ - What we do stems directly from what we believe.
+ - Women are on the outside when the door to the smoke-filled room is closed.
+ - I have come to believe that one thing people cannot bear is a sense of injustice. Poverty, cold, even hunger are more bearable than injustice.
+ - One of the keys to our present definition of good taste is that it is better to be kind than to be ‘correct.’ There is no situation in which it is smart to be nasty.
+ - The essence of good taste is a sense of values, and a sense of values is the pivotal point of good living.
+ - If there is one thing the past years have taught us, it is the importance of a keen and high sense of honor in those who handle our governmental affairs.
+ - You give bureaucrats power over others, and when the others are poor and helpless, nothing matches government. More than any single exploitive tyrannical force, the possibility of what government can do is absolutely terrifying.
+ - We must have government, but we must watch them like a hawk.
+ - Wherever injustice occurs, we all need to be concerned.
+ - In our times, significantly, the three outstanding voices against violence have been silenced by murder – Mahatma Gandhi in India, Archbishop Romero in El Salvador, and Dr. Martin Luther King, here at home.
+ - Party organization matters. When the door of a smoke-filled room is closed, there’s hardly ever a woman inside.
+ - The business of government is justice.
+ - When you’re old, everything you do is sort of a miracle.
+ - Influence comes out of the work that you’ve done and the things you’ve stood for. Influence and power shouldn’t be given to just anybody who wants them.
+ - Everyone in America seems to be joining an organization of some kind, and in Congress one hears from them all.
+ - Economics is not a science, in the sense that a policy can be repeatedly applied under similar conditions and will repeatedly produce similar results.
+ - Like life and people, it is full of paradoxes. Etiquette is based on tradition, and yet it can change. Its ramifications are trivialities, but its roots are in great principles.
+ - There is hardly a facet of life that is now free of some sort of federal action.
+
+23 quotes

@@ -1,0 +1,502 @@
+ - Love is like the wind, you can't see it but you can feel it.
+ - Nothing that’s worthwhile is ever easy. Remember that.
+ - Always listen to your heart, because even though it’s on your left side, it’s always right.
+ - I love you more than there are stars in the sky and fish in the sea.
+ - The best love is the kind that awakens the soul and makes us reach for more, that plants a fire in our hearts and brings peace to our minds. 
+ - It’s never too late to do the right thing.
+ - You’re going to come across people in your life who will say all the right words at all the right times. But in the end, it’s always their actions you should judge them by. It’s actions, not words, that matter.
+ - When you're struggling with something, look at all the people around you and realize that every single person you see is struggling with something, and to them, it's just as hard as what you're going through.
+ - She wanted something else, something different, something more. Passion and romance, perhaps, or maybe quiet conversations in candlelit rooms, or perhaps something as simple as not being second.
+ - Sometimes you have to be apart from people you love, but that doesn’t make you love them any less. Sometimes you love them more.
+ - Just when you think it can’t get any worse, it can. And just when you think it can’t get any better, it can.
+ - I am nothing special, of this I am sure. I am a common man with common thoughts and I’ve led a common life. There are no monuments dedicated to me and my name will soon be forgotten, but I’ve loved another with all my heart and soul, and to me, this has always been enough.
+ - In the end you should always do the right thing even if it’s hard.
+ - The saddest people I've ever met in life are the ones who don't care deeply about anything at all.
+ - True love is rare, and it’s the only thing that gives life real meaning.
+ - The scariest thing about distance is that you don’t know whether they’ll miss you or forget you.
+ - True love means that you care for another person’s happiness more than your own, no matter how painful the choices you face might be.
+ - Thank you for trusting me.
+ - I love you. I am who I am because of you. You are every reason, every hope, and every dream I’ve ever had, and no matter what happens to us in the future, everyday we are together is the greatest day of my life. I will always be yours.
+ - Who am I? And how, I wonder, will this story end?
+ - The reason it hurts so much to separate is because our souls are connected.
+ - If you like her, if she makes you happy, and if you feel like you know her – then don’t let her go.
+ - You can’t live your life for other people. You’ve got to do what’s right for you, even if it hurts some people you love.
+ - Thank you for coming into my life and giving me joy, thank you for loving me and receiving my love in return. Thank you for the memories I will cherish forever. But most of all, thank you for showing me that there will come a time when I can eventually let you go.
+ - It was, I remembered thinking, the most difficult walk anyone ever had to make. In every way, a walk to remember.
+ - Everyone has a past, but that’s just it – it’s in the past. You can learn from it, but you can’t change it.
+ - In our time together, you claimed a special place in my heart, one I’ll carry with me forever and that no one can ever replace.
+ - I want all of you, forever, you and me, everyday.
+ - Silence is pure and holy. It draws people together because only those who are comfortable with each other can sit without speaking.
+ - Without suffering, there’d be no compassion.
+ - They didn’t agree on much. In fact, they didn’t agree on anything. They fought all the time and challenged each other ever day. But despite their differences, they had one important thing in common. They were crazy about each other.
+ - I am lost without you. I am soulless, a drifter without a home, a solitary bird in a flight to nowhere. I am all these things, and I am nothing at all. This, my darling, is my life without you. I long for you to show me how to live again.
+ - I want to wake up with you beside me in the mornings. I want to spend my evenings looking at you across the dinner table. I want to share every mundane detail of my day with you and hear every detail of yours. I want to laugh with you and fall asleep with you in my arms.
+ - It’s the possibility that keeps me going, not the guarantee.
+ - You can’t see the forest for the trees.
+ - She was struck by the simple truth that sometimes the most ordinary things could be made extraordinary, simply by doing them with the right people...
+ - When you chase a dream, you learn about yourself. You learn your capabilities and limitations, and the value of hard work and persistence.
+ - You are my best friend as well as my lover, and I do not know which side of you I enjoy the most. I treasure each side, just as I have treasured our life together.
+ - Everything around me makes me miss you.
+ - Where do I go from here?
+ - I may be irresponsible but I am a good irresponsible.
+ - The emotion that can break your heart is sometimes the very one that heals it...
+ - Every great love starts with a great story...
+ - I gave you the best of me, he’d told her once, and with every beat of her son’s heart, she knew he’d exactly done that.
+ - It happens to everyone as they grow up. You find out who you are and what you want, and then you realize that people you’ve known forever don’t see things the way you do. So you keep the wonderful memories, but find yourself moving on.
+ - Life, he realize, was much like a song. In the beginning there is mystery, in the end there is confirmation, but it’s in the middle where all the emotion resides to make the whole thing worthwhile.
+ - I have a crush on your mind, I fell for your personality and your looks are just a big bonus.
+ - I gave you the best of me.
+ - Miracles do happen.
+ - While I sleep, I dream of you, and when I wake, I long to hold you in my arms. If anything, our time apart has only made me more certain that I want to spend my nights by your side, and my days with your heart.
+ - If we’d never met, I think I would have known my life wasn’t complete. And I would have wandered the world in search of you, even if I didn’t know who I was looking for.
+ - Spending time with you showed me what I’ve been missing in my life.
+ - They inspire you, they entertain you, and you end up learning a ton even when you don’t know it.
+ - We are not perfect. We make mistakes. We screw up but then we forgive and move forward.
+ - You’re a hero and a gentleman, you’re kind and honest, but more than that, you’re the first man I ever truly loved. And no matter what the future brings, you always will be, and I know that my life is better for it.
+ - If some lives form a perfect circle, other take shape in ways we cannot predict or always understand. Loss has been part of my journey. But it has also shown me what is precious. So has love for which I can only be grateful.
+ - Romance is thinking about your significant other, when you are supposed to be thinking about something else.
+ - Don’t take my advice. Or anyone’s advice. Trust yourself. For good or for bad, happy or unhappy, it’s your life, and what you do with it has always been entirely up to you.
+ - But when the Holy Spirit controls our lives, he will produce this kind of fruit in us: love, joy, peace, patience, kindness, goodness, faithfulness, gentleness and self-control. Galatians 5:22.
+ - When I look in the mirror, I know I’m looking at someone who isn’t sure she deserves to be loved at all.
+ - I lost you once, I think I can do it again.
+ - Loving someone and having them love you back is the most precious thing in the world.
+ - I do not need a reason to be angry with God.
+ - Sometimes we need to be apart to understand just how much we truly love each other .
+ - I love you now for what we’ve already shared, and I love you now in anticipation of all that’s to come.
+ - There’s no love like the first.
+ - How far should a person go in the name of true love?
+ - When we first met, I didn’t want to get involved with anyone. I didn’t have the time or energy, and I wasn’t sure that I was ready for it. But you were so good to me, and I got swept up in that. And little by little, I found myself falling in love with you.
+ - Maybe I don’t want to be defined by what I do. Maybe I’d like to be defined by what I am.
+ - Does trust have to be earned. Or is it simply a matter of faith?
+ - It was funny that you know someone for years but still discover something you never noticed before.
+ - Do you ever wonder why things have to turn out the way they do?
+ - There are winds of destiny that blow when we least expect them. Sometimes they gust with the fury of a hurricane, sometimes they barely fan one’s cheek. But the winds cannot be denied, bringing as they often do a future that is impossible to ignore.
+ - We fell in love, despite our differences, and once we did, something rare and beautiful was created. For me, love like that has only happened once, and that’s why every minute we spent together has been seared in my memory. I’ll never forget a single moment of it.
+ - Summer romances end for all kinds of reasons. But when all is said and done, they have one thing in common: They are shooting stars-a spectacular moment of light in the heavens, a fleeting glimpse of eternity. And in a flash, they’re gone.
+ - Love doesn’t mean anything if you’re not willing to make a commitment, and you have to think not only about what you want, but about what he wants. Not just now, but in the future.
+ - Love doesn’t mean anything if you’re not willing to make a commitment.
+ - You should be kissed everyday, every hour, every minute.
+ - Sometimes, things don’t work out the way we want them to.
+ - I don’t pray because it doesn’t work. Prayer doesn’t fix anything. Bad things happen anyway.
+ - Most people don’t know how to appreciate the silence. They can’t help talking.
+ - A sad smile crossed her face, and I knew right then what she was trying to tell me. Her eyes never left mine as she finally said the words that numbed my soul. I’m dying, Landon.
+ - Love hurts. There is nothing as painful as heartbreak. But in order to learn to love again you must learn to trust again.
+ - I had no choice. Love does funny things to people.
+ - Writing the last page of the first draft is the most enjoyable moment in writing. It’s one of the most enjoyable moments in life, period.
+ - I know the Lord has a plan for us all, but sometimes, I just don’t understand what the message can be.
+ - I call it God Light, because it reminds me of heaven. Every time the light shines through the window we built or any window at all, you’ll know I’m right there with you, okay? That’s going to be me. I’ll be the light in the window.
+ - Without you in my arms, I feel an emptiness in my soul. I find myself searching the crowds for your face – I know it’s an impossibility, but I cannot help myself.
+ - Would you stop thinking about what everyone wants. Stop thinking about what I want, what he wants, what your parents want. What do you want?
+ - People hide the truth because they’re afraid.
+ - In the end, you should always do the right thing, even if it’s hard. I know that might not help you and that the right thing isn’t always so easy to figure out.
+ - But love, I’ve come to understand, is more than three words mumbled before bedtime. Love is sustained by action, a pattern of devotion in the things we do for each other every day.
+ - Every couple needs to argue now and then. Just to prove that the relationship is strong enough to survive. Long-term relationships, the ones that matter, are all about weathering the peaks and the valleys.
+ - In the blink of an eye, something happens by chance – when you least expect it – sets you on a course that you never planned, into a future you never imagined.
+ - Inspiration can come from anywhere – an image, a comment, something that’s happened to me or someone I know. It’s hard to know exactly.
+ - My daddy said, that the first time you fall in love, it changes you forever and no matter how hard you try, that feeling just never goes away.
+ - Knowing there’s one thing I still haven’t told you: I now believe, by the way, that miracles can happen.
+ - Love is fragile. And we’re not always its best caretakers. We just muddle through and do the best we can. And hope this fragile thing survives against all odds.
+ - Someday you’ll find someone special again. People who’ve been in love once usually do. It’s in their nature.
+ - You never answered my question, about what you want to do with your life. Maybe my dreams aren’t that complicated. Maybe I think that a job is just a job. What does that mean? Maybe I don’t want to be defined by what I do. Maybe I’d like to be defined by what I am.
+ - You are the answer to every prayer I’ve offered. You are a song, a dream, a whisper, and I don’t know how I could have lived without you for as long as I have.
+ - And for just a fleeting moment, a tiny wisp of time that hung in the air like fireflies in summer skies, she wondered if she was in love with him again.
+ - I don’t know that love changes. People change. Circumstances change.
+ - Life was messy. Always had been and always would be and that was just the way it was, so why bother complaining? You either did something about it or you didn’t, and then you lived with the choice you made.
+ - God is out there watching you, even when you’re away from home and that if you put your trust in God, you’ll be all right in the end.
+ - If Words are the Lyrics, and Laughter the Melody, then a Relationship becomes a Symphony.
+ - You and I were different. We came from different worlds, and yet you were the one how taught me the value of love. You showed me what it was like to care for another, and I am a better man because of it. I don’t want you to ever forget that.
+ - And when her lips met mine, I knew that I could live to be a hundred and visit every country in the world, but nothing would ever compare to that single moment when I first kissed the girl of my dreams and knew that my love would last forever.
+ - Dreams are always crushing when they don’t come true. But it’s the simple dreams that are often the most painful because they seem so personal, so reasonable, so attainable. You’re always close enough to touch, but never quite close enough to hold and it’s enough to break your heart.
+ - I’ll be anything you want, just tell me what you want and I’ll be that.
+ - Science only goes so far, then comes God. – Noah Calhoun-.
+ - Dear John, tell me everything. Write it all down, that way, we’ll be with each other all the time, even if we’re not with each other at all.
+ - People plan, God laughs.
+ - And maybe, just maybe, it will.
+ - The world is a better place when you smile.
+ - Marriage is about becoming a team. You’re going to spend the rest of your life learning about each other, and every now and then, things blow up. But the beauty of marriage is that if you picked the right person and you both love each other, you’ll always figure out a way to get through it.
+ - I’ve come to believe that in everyone’s life, there’s one undeniable moment of change, a set of circumstances that suddenly alters everything.
+ - Life, I’ve learned, is never fair. If they teach anything in schools, that should be it.
+ - It’s funny, but have you ever noticed that the more special something is, the more people seem to take it for granted? It’s like they think it won’t ever change. Just like this house here. All it ever needed was a little attention, and it would never have ended up like this in the first place.
+ - If conversation was the lyrics, laughter was the music, making time spent together a melody that could be replayed over and over without getting stale.
+ - One day you’re going to learn something that can’t be explained with science. And when that happens, your life’s going to change in ways you can’t imagine.
+ - In a lifetime of mistakes, you two are the greatest things that have ever happened to me.
+ - Everyone makes mistakes, even if some are worse than others. Accidents happen.
+ - Women are more attuned to feelings than men are, and if they’re not being truthful, more often than not it’s because they think truth might hurt your feelings. But it doesn’t mean they don’t love you.
+ - She was, in other words, the kind of girl who made the rest of us look bad, and whenever she glanced my way, I couldn’t help but feel guilty, even though I hadn’t done anything wrong.
+ - I watch with breaking heart as you slowly fade away.
+ - There are guys who grow up thinking they’ll settle down some distant time in the future, and there are guys who are ready for marriage as soon as they meet the right person. The former bore me, mainly because they’re pathetic; and the latter, frankly are hard to find.
+ - It’s impossible to protect your kids against disappointment in life.
+ - And when her eyes met mine, I felt something click, like a key turning in a lock.
+ - Little girls. They could melt the toughest hearts.
+ - Regrets about the journey, maybe, but not the destination.
+ - Strange, what being forced to slow down could do to a person.
+ - Change not only was inevitable, but usually brought its own rewards.
+ - He finally understood that God’s presence was everywhere, at all times, and was experienced by everyone at one time or another.
+ - Hardships drive some people apart. Others, like us, grow even closer.
+ - The key to happiness was achievable dreams.
+ - I don’t want to lose you.? His voice almost a whisper. Seeing his haggard expression, she took his hand and squeezed it, then reluctantly let it go. She could feel the tears again, and she fought them back. ‘But you don’t want to keep me, either, do you?’ To that, he had no response.
+ - Loving someone and having them love you back is the most precious thing in the world. It’s what made it possible for me to go on, but you don’t seem to realize that. Even when love is right there in front of you, you choose to turn away from it. You’re alone because you want to be.
+ - Every girl is beautiful. Sometimes it just takes the right guy to see it.
+ - Our story has three parts: a beginning, a middle, and an end. And although this is the way all stories unfold, I still can’t believe that ours didn’t go on forever.
+ - No drowning man can know which drop of water his last breath did stop;...
+ - After all, if there is a heaven, we will find each other again, for there is no heaven without you.
+ - In times of grief and sorrow I will hold you and rock you and take your grief and make it my own. When you cry I cry and when you hurt I hurt. And together we will try to hold back the floods to tears and despair and make it through the potholed street of life.
+ - People want pretty much the same things: They wanted to be happy. Most young people seemed to think that those things lay somewhere in the future, while most older people believed they lay in the past.
+ - It’s a full moon here tonight, which makes me think of you. Because, I know that no matter what I am doing or where I am, this moon will always be the same size as yours, half a world away.
+ - There are moments when i wish i could roll back the clock and take all the sadness away, but i have a feeling that if i did, the joy would be gone as well. So i take the memories as they come, accepting them all, letting them guide me whenever i can.
+ - Too far-fetched to believe, too obvious to ignore.
+ - Never forget that God is your friend. And like all friends, He longs to hear what’s been happening in your life. Good or bad, whether it’s been full of sorrow or anger, or even when you’re questioning why terrible things have to happen.
+ - I guess what I’m trying to say is that you two make me believe that true love really exists. And that even the darkest hours can’t take that away.
+ - The ocean has been singing to me, and the song is that of our life together...
+ - She liked to sit on the front porch in the afternoons and read books she’d checked out from the library. Aside from coffee, reading was her only indulgence.
+ - I am not commanding you, but I want to test the sincerity of your love by comparing it to the earnestness of others.
+ - She was my dream. She made me who I am, and holding her in my arms was more natural to me than my own heartbeat. I think about her all the time. Even now, when I’m sitting here, I think about her. There could never have been another.
+ - First you will smile, and then you will cry – don’t say you haven’t been warned.
+ - It is life, I think, to watch the water. A man can learn so many things.
+ - Love is a wonderful thing. It makes life worthwhile. I love being in love.
+ - Emotions come and go and can’t be controlled so there’s no reason to worry about them. That in the end, people should be judged by their actions since in the end it was actions that defined everyone.
+ - Relationships are the most important thing in life, and friends are a part of that.
+ - A person with autism lives in his own world, while a person with Asperger’s lives in our world, in a way of his own choosing.
+ - The saddest people I’ve ever met in life are the ones who don’t care deeply about anything at all. Passion and satisfaction go hand in hand, and without them, any happiness is only temporary, because there’s nothing to make it last.
+ - I know that somehow, every step I took since the moment I could walk was a step towards finding you.
+ - I’d learned that some things are best kept secret.
+ - Everyone is always going through tough things, the irony in it is that everyone thinks what they’re going through is just as hard as what you are. Life isn’t about surviving this, it’s about understanding this.
+ - I’m sure you think that I don’t understand what you’re going through, but I do. It’s just that sometimes, our future is dictated by what we are, opposed to what we want.
+ - I’m not saying it because I’m sweet. I’m saying it because I love you now and I always have. More than you can imagine.
+ - We fell in love despite our differences, and once we did, something rare and beautiful was created.
+ - And I learned what is obvious to a child. That life is simply a collection of little lives, each lived one day at a time. That each day should be spent finding beauty in flowers and poetry and talking to animals. That a day spent with dreaming and sunsets and refreshing breezes cannot be bettered.
+ - You know how gossip is. It’s the toxic waste of small town.
+ - Love can sometimes achieve the impossible.
+ - I cry to you, my Lord, my rock! Do not be deaf to me, for if you are silent, I shall go down to the pit like the rest. Hear my voice raised in petition as I cry to you for help, as I raise my hands, my Lord, toward your holy of holies.
+ - He stared at her, knowing with certainty that he was falling in love. He pulled her close and kissed her beneath a blanket of stars, wondering how on earth he’d been lucky enough to find her.
+ - People in pain don’t always see things as clearly as they should.
+ - That he would love her no matter what she told him, and that he was the kind of man who loved her already and would love her forever.
+ - The emotions attached to them were like sand castles in the tide, slowly washing out to sea.
+ - The truth is, the world isn’t easy for any of us. It never has been and it never will be.
+ - In the end, everything came down to money. It came down to what a person actually did, as opposed to who they thought they were.
+ - And when I came in with tears in my eyes, you always knew whether I needed you to hold me or just let me be. I don’t know how you knew, but you did, and you made it easier for me.
+ - Too many people seem to believe that silence was a void that needed to be filled, even if nothing important was said.
+ - I guess what I’m trying to say is that you are there, in everything I am, in everything I’ve ever done, and looking back, I know that I should have told you know much you’ve always meant to me.
+ - You should not complain, it’s not attractive.
+ - She was everything I wanted. She was beautiful and charming, with a quick sense of humor, and she supported me in everything I did.
+ - If you simply ignored the feeling, you would never know what might happen, and in many ways that was worse than finding out in the first place. Because if you were wrong, you could go forward in your life without ever looking back over your shoulder and wondering what might have been.
+ - I held her close to me with my eyes closed, wonering if anything in my life had ever been this perfect and knowing at the same time that it hadn’t. I was in love, and the feeling was even more wonderful than I ever imagined it could be.
+ - Over time, quality work will lead to an audience for your work.
+ - You need to learn patience, you grasshopper.
+ - I love you now as I write this, and I love you now as you read this.
+ - Constellations shine with light that was emitted aeons ago, and I wait for something to come to me, words that a poet might use to illuminate life’s mysteries. But there is nothing.
+ - She wasnt exactly sure when it happened. Or even when it started. All she knew for sure was that right here and now, she was falling hard and she could only pray that he was feeling the same way.
+ - You can’t be a writer if you don’t write, it’s just that simple.
+ - Love puts all logic to sleep. Otherwise, we wouldn’t risk it.
+ - It wasn’t that long, and it certainly wasn’t the kind of kiss you see in movies these days, but it was wonderful in its own way, and all I can remember about the moment is that when our lips touched, I knew the memory would last forever.
+ - Libraries are places that house our dreams, our fantasies, our thirst for adventure.
+ - I am here to love you, to hold you in my arms, to protect you.
+ - Part of me aches at the thought of her being so close yet so untouchable.
+ - My mom used to tell me that whatever you do, marry someone who loves you more than you love him.
+ - I love you, Gabby, more than you’ll ever know. You’re everything I’ve ever wanted in a wife. You’re every hope and every dream I’ve ever had, and you’ve made me happier than any man could possibly be. I don’t ever want to give that up. I can’t.
+ - I don’t care if your dad is the Sultan of Brunei. You happened to be born into a privileged family. What you do with that truth is completely up to you. I’m here because I want to be with you. But if I didn’t, all the money in the world wouldn’t have changed my feelings for you.
+ - When you know that someone close to you is going to die, there’s a natural tendency to want to spend as much time with them as you can.
+ - I’ll think about you everyday. Part of me is scared that there’ll come a time when you don’t feel the same way, that you’ll somehow forget about what we shared, so this is what I want to do forever.
+ - I’m not sure anyone’s life turns out exactly the way they imagine. All we can do is to try to make the best of it. Even when it seems impossible.
+ - It has to get ugly before it gets pretty!
+ - You always have a choice. It’s just that some people make the wrong one.
+ - What happens in the past, is in the past. But don’t be surprised if it comes back and haunts you.
+ - Poetry, she thought, wasn’t written to be analyzed; it was meant to inspire without reason, to touch without understanding.
+ - Things changed, people changed, and the world went rolling along right outside the window.
+ - I think our love can do anything we want it to.
+ - There are moments when mental overload can render words impossible.
+ - That a day spent with dreaming and sunsets and refreshing breezes cannot be bettered.
+ - I’m not perfect, either. In the end, it’s only God’s judgement that matters, and I’ve learned enough to know that no one can presume to know the will of God.
+ - Love should bring joy, it should grant a person peace, but here and not, it was bringing only pain.
+ - Rekindled love is generally short-term.
+ - Jamie: You know what I figured out today? Landon: What? Jamie: Maybe God has a bigger plan for me than I had for myself. Like this journey never ends. Like you were sent to me because I’m sick. To help me through all this. You’re my angel.
+ - Would you do something for me? Please? Would you just picture your life for me? Thirty years from now, forty years from now? What’s it look like? If it’s with that guy, go. Go! I lost you once, I think I could do it again, if I thought it’s what you really wanted.
+ - It all comes down to who’s by your side.
+ - I fell in love with her when we were together, then fell deeper in love with her in the years we were apart.
+ - I mean, if the relationship can’t survive the long term, why on earth would it be worth my time and energy for the short term?
+ - Youth offers the promise of happiness, but life offers the realities of grief.
+ - I love you John Tyree, and I’m going to hold you to the promise you once made me. If you come back, I’ll marry you. If you break your promise, you’ll break my heart.
+ - Before we met, I was as lost as a person could be and yet you saw something in me that somehow gave me direction again.
+ - Women want the fairytale. Not all women, of course, but most women grow up dreaming about the kind of man who would risk everything for them, even knowing they might get hurt.
+ - Commitment, I finally said. Both people have to be committed. I think if two people are committed to the marriage, if they really want to make it work, then they’ll find a way to do it. No matter what happens in life.
+ - I have come to realize that destiny can hurt a person as much as it can bless them, and I find myself wondering why – out of all the people in all the world I could ever have loved – I had to fall in love with someone who was taken away from me.
+ - Never forget that anticipation is an important part of life. Work’s important, family’s important, but without excitement, you have nothing. You’re cheating yourself if you refuse to enjoy what’s coming.
+ - The sky grew darker and the moon rose higher as the evening wore on. and without either or them being conscious of it, they began to regain the intimacy, the bond of familiarity, they had once shared.
+ - I know I can’t change the past, but I change the future. I can change, too. And I will.
+ - I know what it’s like to be day and night now; always together, forever apart.
+ - Do you ever sit back and wonder what it all means? Whether this is it or if there’s something greater out there? Or if you were meant for something better?
+ - She would tell him what she wanted in her life – her hopes and dreams for the future – and he would listen intently and then promise to make it all come true. And the way he said it made her believe him, and she knew how much he meant to her.
+ - What are we after all our dreams, after all our memories?
+ - I have come to realize that destiny can hurt a person as much as it can bless him.
+ - Being in love, I find myself smiling for no reason at all...
+ - Experience had taught me that even the most precious memories fade with the passage of time.
+ - There were moments when it honestly seemed as if the world were conspiring against her.
+ - She was a stranger now, but she’d been a friend once, and that was enough for him.
+ - I’m writing a new love story, set in eastern North Carolina. Surprise, surprise, huh?
+ - I have loved another with all my heart, and for me that has always been enough.
+ - God, he suddenly understood, was love in its purest form, and in these last months with his children, he had felt His touch as surely as he had heard the music spilling from Ronnie’s hands.
+ - A story about family, first loves, second chances, and the moments in life that leads you back home.
+ - That’s the difference between family and friends. Family is always there, no matter what, even when it’s not right next door. Which means that you’ll find a way to keep the connection alive. Especially since you realize how important it is.
+ - Love, after all, always said more about those who felt it than it did about the ones they loved.
+ - Relationship is about forgiveness and compromise. It is about balance where one person complements each other.
+ - In a nutshell, loving someone is about giving, not receiving.
+ - When a man is that special, you know it sooner than you think possible. You recognize it instinctively, and you’re certain that no matter what happens, there will never be another one like him.
+ - It is the possibility that keeps me going, and though you may call me a dreamer or a fool or any other thing, I believe that anything is possible.
+ - I finished your song, she said. Our last song. And I want to play it for you.
+ - You have to promise you won’t fall in love with me.
+ - Comfort and familiarity were wonderful but they also dulled passion and excitement. Predictability and habit made surprises almost impossible.
+ - But most of all, I learned that it’s possible for two people to fall in love all over again, even when there’s been a lifetime of disappointment between them.
+ - If hers are the stars in the nighttime sky, mine are the haunted empty spaces in between.
+ - The romantics would call this a love story, the cynics would call it a tragedy.
+ - Our souls were one, if you must know and never shall they be apart; with splendid dawn, your face aglow i reach for you and find my heart.
+ - I love you, Katie. You might not be ready to say those words now, and maybe you’ll never be able to say them, but that doesn’t change how I feel about you.
+ - She had been proud of his decision to serve his country, her heart bursting with love and admiration the first time she saw him outfitted in his dress blues.
+ - It’ll be hard, but life moves fast-we’ll see each other again. I know that. I can feel that. Just like I can feel how much you care for me and how much I love you.
+ - Change isn’t always for the best.
+ - She leaned into me, and when I closed my eyes, I knew I wanted nothing more than to hold her this way forever.
+ - Gossip is one thing, hurtful gossip is completely another, and even in high school we weren’t THAT mean.
+ - Outside the hospital, I squinted in the harsh morning sunlight. I could hear birds chirping in the tree, but even though I searched for them, they remained hidden from me.
+ - What happens if a car comes? We die.
+ - I knew even then how rare that kind of love is. Only the luckiest people get to experience it at all.
+ - Then you came along and helped me believe in myself again.
+ - It was their secret, a secret meant for just the two of them, and she’d never been able to imagine how it would sound coming from someone else. But, somehow, Logan made it sound just right.
+ - His voice, even now, follows me everywhere on this longest of rides, this thing called life.
+ - I think that setting a novel in a small town taps into a sense of nostalgia among readers. People tend to believe life is different in small towns, and frankly, it is different.
+ - Don’t let fear govern your decision.
+ - Until you came along, I never knew how much I’d been missing. I never knew that a touch could be so meaningful or an expression so eloquent; I never knew that a kiss could literally take my breath awa.
+ - What it’s like to be a parent: It’s one of the hardest things you’ll ever do but in exchange it teaches you the meaning of unconditional love.
+ - Love is Love no matter old you are, and I knew if I gave you enough time, you’d come back to me.
+ - Marriage is about compromise; it’s about doing something for the other person, even when you don’t want to.
+ - You’ve gotten so caught up in being alone that you’re afraid of what might happen if you actually find someone else that can take you away from it.
+ - Every couple has ups and downs, every couple argues, and that’s the thing – you’re a couple, and couples can’t function without trust.
+ - We’re not the same people we were then. We’ve changed, we’ve grown.
+ - It took me a long time to realize that distance can ruin even the best of intentions.
+ - Miles: Well, things are kind of complicated right now. When you’re a grown-up, you’ll understand. Jonah: I don’t want to be a grown-up. Miles: Why not? Jonah: Because grown-ups always say that things are complicated.
+ - But he had been in love once, that he knew. Once and only once, and a long time ago. And it had changed him forever. Perfect love did that to a person and this had been perfect.
+ - You feel fine, and then, when your body can’t keep fighting, you don’t.
+ - If he weren’t so damn cute, none of this would have happened.
+ - Gifts of the heart can’t be claimed by anyone except the giver.
+ - As I write, I am struggling with the ghost of someone I loved and lost. I now understand more fully the difficulties you were going through, and I realize how painful it must have been for you to move on.
+ - Believe me, I’m no romantic, and while I’ve heard all about love at first sight, I’ve never believed in it, and I still don’t. But even so, there was something there, something recognizably real, and I couldn’t look away.
+ - Love burns across the infinitude.
+ - I met my wife on Spring break when I was in college. I was at the University of Notre Dame. She was at the University of New Hampshire. I bumped into her in Florida and told her the next day that I was going to marry her and 20 or something years later here we are.
+ - Real people had real agendas, real demands, real expectations about how other people should behave.
+ - What mattered most was knowing that love was mine to give, without strings or expectations.
+ - A woman shaking in fear from demons in her mind, and the old man who loves her more deeply than life itself, crying softly in the corner, his face in his hands.
+ - The past can be escaped only by embracing something better.
+ - It all comes down to who is by your side and who is willing to stand up for love even when it seems impossible.
+ - Truth only means something when it’s hard to admit.
+ - Men are like that sometimes – if they meet someone and fall in love, it’s real, no matter how fast it happened. But if someone falls for a woman they happen to care about, all they do is question the man’s intentions.
+ - I will never forget the vision of Jamie walking towards me.
+ - Me. A bad boy. For eating boiled peanuts in the graveyard. Go figure.
+ - It’s okay to be sad. Everyone gets sad now and then. Even me.
+ - I realize the odds, and science, are against me. But science is not the total answer; this I know, this I have learned in my lifetime. And that leaves me with the belief that miracles, no matter how inexplicable or unbelievable, are real and can occur without regard to the natural order of things.
+ - Makes sense to me. Sometimes starting over is exactly what a person needs. And I think it’s admirable. A lot of people don’t have the courage it takes to do something like that.
+ - You are staring at me like you were going to eat me up.
+ - Or maybe watching you enjoy a carefree summer while you fell in love was what kept me out of the hospital in the first place.
+ - As far as I can tell, dumping soda on people is the equivalent of ‘Hi, it’s nice to meet you’ in this part of the world. Frankly, I think standard greetings work better, but what do I know?
+ - And suddenly she knew exactly why Catherine had fallen in love with him. It wasn’t that he was unusually attractive, or ambitious, or even charming. He was partly those things, but more important, he seemed to live life on his own terms.
+ - If you have no conflict, you have no story. That’s number one. That’s a rule of novels.
+ - Consider yourself lucky for having met him, for he’s the kind of man who’ll prove you right.
+ - Because being comfortable meant she might lower her guard, and she could not let that happen.
+ - Why did you come here? To find you.
+ - I write the things that I find most attractive in women. I like intelligence, I like passion – give me a little fire, be strong, don’t be wishy-washy, do the right thing.
+ - All I know is that I fell in love with you, and I’ve never been more frightened about anything in my entire life.
+ - I have no complaints about my path and the places it has taken me; enough complaints to fill a circus tent about other things, maybe, but the path I’ve chosen has always been the right one, and I wouldn’t have had it any other way.
+ - I have always been a firm believer in God and the power of prayer, though to be honest, my faith has made for alist of questions I definitely want answered after I’m gone.
+ - Stories are as unique as the people who tell them, and the best stories are in which the ending is a surprise.
+ - It was easy to idealize someone you barely knew.
+ - Wandering and confused, lost to myself, ill-assorted, contradictory, Pausing, gazing, bending, and stopping.
+ - It might seem as the hardest thing to do, but you have to forget the guy who forgot about you.
+ - I can’t live my life happily knowing you’re with someone else. That would kill a part of me. What we have is rare. it’s too beautiful to just throw it away.
+ - The general rule is that my life is focused on the present, and very little on the past. If anything, I’m a little bit more focused toward the future.
+ - The first thing I did when I sold my book was buy a new wedding ring for my wife and asked her to marry me all over again.
+ - I know you loved her, but it’s okay to let it go now. You know that, don’t you? You’ve got to be able to let it go.
+ - Some things were beyond understanding.
+ - The pieces all fit together. Yet everything was falling apart.
+ - Above all, a query letter is a sales pitch and it is the single most important page an unpublished writer will ever write. It’s the first impression and will either open the door or close it. It’s that important, so don’t mess it up. Mine took 17 drafts and two weeks to write.
+ - You were honest and hardworking and kind. You were polite and patient and more mature than any guy I’d dated before. And when we were together, you listened in a way that made me feel like I was the only woman in the world. You made me feel complete and spending time with you just seemed right.
+ - But most of all, what really attracted me to her was her manner. She laughed a lot, and it’s easy to fall for someone who can find humor in any situation. She was also intelligent, well read, and well spoken, willing to listen and confident in her beliefs. And most of all, she was warm.
+ - In all my life, I’d never been as sure of anything, and as much as I hoped to one day hear Savannah say these words to me, what mattered most was knowing that love was mine to give, without strings or expectations.
+ - They continued to watch each other from across the room, both frozen for a moment by the shadow of distant possibilities.
+ - I think that enduring, committed love between a married couple, along with raising children, is the most noble act anyone can aspire to. It is not written about very much.
+ - I’m sorry, I guess my company leaves a lot to be desired.
+ - Frequency of sex – Women sometimes wanted; men always needed.
+ - I would be rejected if I submitted any of my novels as romance novels.
+ - If it makes you feel better, I promise to forget.
+ - In another time and place, she might have felt differently, but thinking along those lines was pointless now.
+ - And for the briefest instant, it almost feels like we’re together again.
+ - When I was seventeen, I don’t think I even knew what love was. But when it’s right, it’s right, and you just know it.
+ - He smiled, thinking that for just an instant, it was easy to imagine they were still married, both of them on the same team, both of them still in love. Except, of course, that they weren’t.
+ - I know, but no matter what I choose I have to live with it. Forever. I have to be able to go forward and not look back anymore. Can you understand that?
+ - Katie smiled and turned away, knowing it wasn’t an illusion or a figment of her imagination. She knew what she saw. She knew what she believed.
+ - I have a great wife and it’s very easy to be romantic because it makes her happy and then my life is so much better when she’s happy.
+ - For desert, maybe we can split a couple of crumbs.
+ - More than anything, he wanted to return to the house with the same look of peace that he’d seen on Pastor Harris’s face, but he trudged through the sand, he couldn’t help feeling like an amateur, someone searching for God’s truths like a child searching for seashells.
+ - Marriage is a partnership, not a democracy.
+ - For them, it was nothing but an ordinary day on an ordinary day on an ordinary weekend, but for her, there was something revelatory about the notion that wonderful moments like these existed.
+ - You gotta know when to be lazy. Done correctly, it’s an art form that benefits everyone.
+ - We’d met at a carefree time, a moment full of promise, in its place now were the harsh lessons of the real world.
+ - He thought of her often, and he missed the companionship they’d once shared and the friendship that had been the bedrock of their marriage at its best.
+ - These days she simply did the best job she could, accepting the good with the bad.
+ - The greater the love, the greater the tragedy when it’s over.
+ - By the time she got back to work, the only thing Gabby knew for certain was that as forgiving as he’d been, she’d never live down what she’d done, and since there wasn’t a rock large enough to crawl under, it was in her best interest to find a way to avoid him.
+ - It doesn’t sound so far-fetched, right? When two people love each other? While a part of me still wants to believe it’s possible, I know it’s not going to happen.
+ - Denial is an ugly thing.
+ - It’s hard at times, but it makes a kid strong in ways that most people can’t understand. Teaches them that even though people are left behind, new ones will inevitable take their place; that every place has something good – and bad – to offer. It makes a kid grow up fast.
+ - I’ll be the light in the window.
+ - That’s the thing about life. A lot of the time, it isn’t easy at all. We just have to try to make the best of it.
+ - In the distance, he could see Molly lying in the tall grass off to the side of the house.
+ - America was in full swing now, all the papers said so, and people were rushing forward, leaving behind the horrors of war. She understood the reasons, but they were rushing, like Lon, toward long hours and profits, neglecting the things that brought beauty to the world.
+ - My first thoughts after waking are – and always have been – of you.
+ - Tough toenails, tiger. What you want and what you get are usually two entirely different things.
+ - I’ve been burdened by questions I’ve asked myself a thousand times since the last time we were together. Why did I do it? And would I do it again? It was I, you see, who ended it.
+ - Love is the essence of a full and wonderful life.
+ - How can I describe how much I love you? Is it even possible to describe a love like that? I don’t know, but as I sit here with pen in hand, I know that I have to try.
+ - I’ve learned that memories can have a physical, almost living presence.
+ - Focus in on the genre you want to write, and read books in that genre. A LOT of books by a variety of authors. And read with questions in your mind.
+ - Stick two different people with two different sets of expectations under one roof and it ain’t always going to be shrimp and grits on Easter.
+ - You are every reason, every hope and every dream I’ve ever had.
+ - I found that as I flipped the days on the calendar, the worries I had about our relationship had began to diminish.
+ - I steeled myself to focus only on the present yet remain alert to what might come next.
+ - I love you, not just for now, but for always, and I dream of the day that you’ll take me in your arms again.
+ - I read over a hundred books a year and have done so since I was fifteen years old, and every book I’ve read has taught me something.
+ - Early on, he’d learned to enjoy simple things, things that couldn’t be bought, and he had a hard time understanding people who felt otherwise.
+ - He was the kind of man everyone would fall in love with, even if they didn’t want to.
+ - All of sudden, this shooting star went by, and all I could think was that they were listening to us somehow.
+ - It would be like describing colors to someone blind from birth: The words might be understood, but the concept would remain mysterious and private.
+ - I don’t want to live the rest of my life thinking about you and dreaming of what might have been. Stay with me, Allie.
+ - Did you ever realize you have more opinions about my life than your own life?
+ - I don’t know if spirits do indeed roam the world, but even if they do, I will sense your presence everywhere. When I listen to the ocean, it will be your whispers; when I see a dazzling sunset, it will be your image in the sky.
+ - Even when we were standing in church and I was getting ready to take my vow I can remember wishing that you were standing there instead of him.
+ - I was in love, and the feeling was even more wonderful than I ever imagined it could be.
+ - She squeezed my hand, and I drew a shaky breath, marveling at the fact that while on an ordinary leave in an ordinary place, I’d somehow fallen in love with an extraordinary girl named Savannaah Lynn Curtis.
+ - While wounds can be inflicted easily upon those we love, it’s often much more difficult to heal them.
+ - Working on a novel is very solitary and I get to be the boss. I’m the dictator, so I win every battle. So, in that sense, novels are easier because you don’t have to answer to anyone. And then, you go into something like film and there are more cooks in the kitchen, so to speak.
+ - It’s possible to go on, no matter how impossible it seems.
+ - At night, when I am alone, I call for you, and whenever my ache seems to be the greatest, you still seem to find a way to return to me.
+ - It doesn’t matter to me whether I write in a man’s voice or a woman’s, or first or third person for that matter. Those choices come down to the story and I just go with it.
+ - The romantics would call this a love story, the cynics would call it a tragedy. In my mind it’s a little bit of both, and no matter how you choose to view it in the end, it does not change the fact that it involves a great deal of my life and the path I’ve chosen to follow.
+ - For nothing is more fulfilling than love itself.
+ - It was inevitable for people to try to create a sense of normalcy in a place where nothing was normal. It helped one get through the day, to add predictability to a life that was inherently unpredictable.
+ - It made perfect sense, and at the same time nothing seemed to.
+ - I came to the conclusion that unrealized hopes, even small ones, were always wrenching.
+ - There is a fine line I have to walk throughout the writing process in a novel. It is this line between drama and melodrama, and it is this line between evoking genuine emotional power and being manipulative.
+ - As the warm air blew in the car, simple snapshots of the life they’d lived together surfaced in his mind; but as always, those images led inexorably to their final day together.
+ - When you fall in love, love deeply. Be tough but also be open to the possibility of forgiveness.
+ - It takes a long time to grow an old friend. Trust is built one single moment at a time.
+ - I’m Catholic, and my wife is Catholic. We’re very religious. We go to church. We pray every night. We pray at dinner. To me, Catholics regard themselves as very Christian. Some Christians view Catholics as not necessarily Christian.
+ - But because they didn’t see each other very often, their relationship had more ups and downs than either of them had experienced before. Since everything felt right when they were together, everything felt wrong when they weren’t.
+ - Theresa, I know there’s a part of you that believes you can change someone, but the reality is that you can’t. You can change yourself, and Garrett can change himself, but you can’t do it for him.
+ - I think that men know how to romance a woman and most do it well, at least for a time, otherwise women wouldn’t marry them. The problem is that most of them begin to rest on their laurels.
+ - People are self-absorbed. I think that the mass ability of communication now probably allows individuals to meet more self-absorbed individuals. It has certainly changed the way that people meet.
+ - In all love stories the theme is love and tragedy, so by writing these types of stories, I have to include tragedy.
+ - I call it God Light, because it reminds me of heaven.
+ - Finally getting control of myself, I kissed her again, then brought my hand to her face, gently running my fingers over her cheek. I marveled at the softness of her skin, the gentleness I saw in her eyes. Even now she was perfect.
+ - As hard as it was, as terrible and unfair as the way things turned out, i wouldn’t have traded the few days i spent with him for anything.
+ - I’m a novelist at heart. My sole intention is to write the best novel possible. I don’t think about the film potential at all.
+ - I suppose more than anything, it’s the way of life in this part of the country that influences my writing. In Eastern North Carolina, with the exception of Wilmington, most people live in small towns.
+ - Is it possible, I wonder, for a man to truly change? Or do character and habit form the immovable boundaries of our lives?
+ - It’s the same thing. Passion is passion. It’s the excitement between the tedious spaces, and it doesn’t matter where it’s directed.
+ - The most ordinary things could be made extraordinary.
+ - One of the things I’ve learned in my life is that sometimes you’ve got to take a chance.
+ - He was the toast to her butter.
+ - Men like women who know how to be subtle.
+ - If pinpointing God’s presence were really that simple, then he supposed the beaches would be more crowded in the mornings. They would be filled with people on their own quests, instead of people jogging or walking their dogs or fishing in the surf.
+ - Man and wife were supposed to stay together because they’d made their vows in front of God and family.
+ - I suddenly understood that even love and caring weren’t always enough. They were the concrete bricks of our relationship, but unstable without the mortar of time spent together, time without the threat of imminent separation hanging over us.
+ - Say I’m a bird.
+ - If you’re going to sit on someone’s tombstone, you might as well know something about them, right?
+ - I wanted to write a story that was different than what I’ve done before – so I decided to write dual love stories that will keep the reader wondering how the stories will come together by the end.
+ - The search for God’s presence was much of a mystery as God himself, and what was God if not a mystery?
+ - I realized that there were times when we talked not because we needed to communicate anything important, but simply because we each drew comfort from the other’s voice.
+ - I personally think that most people, most of the time, do the right thing. I just believe this. Otherwise, the world would be chaos, and it’s not.
+ - But no matter what was going on in our lives, I could imagine lying beside her in bed at the end of the day, holding her while we talked and laughed, lost in each other’s arms.
+ - It’s hard for me to talk to her. All I can do when I look at her is think about the day when I won’t be able to. So I spend all my time at school thinking about her, wishing I could see her right then, but when I get to her house, I don’t know what to say.
+ - People were destined for one another; that’s the romantic idea that young girls have, and I guess part of me still believes it.
+ - It’s easy to write something average or even something good. But writing well is quite challenging.
+ - I suppose I’m most influenced by any good, commercial writer. I learn from everyone.
+ - That’s the thing about life, he knew. There was always a but.
+ - People didn’t change. they liked what they liked even if they didn’t understand why.
+ - As a girl, she had come to believe in the ideal man – the prince or knight of her childhood stories. In the real world, however, men like that simply didn’t exist.
+ - Dean: If there is a greater power, why is it he can’t get you a new sweater? Jamie: Because, he’s too busy looking for your brain.
+ - If I knew where creativity came from, I’d probably be a lot less stressed about coming up with new stories.
+ - I write 2,000 words a day when I write. It sometimes takes three hours, it sometimes takes five hours.
+ - Where does a story truly begin? In life, there are seldom clear-cut beginnings, those moments when we can, in looking back, say that everything started. Yet there are moments when fate intersects with our daily lives, setting in motion a sequence of events whose outcome we could never have foreseen.
+ - I’d like to be remembered not only for my body of work but also for specific novels. Ideally, I want to be remembered in the same way as Stephen King, who defined and exemplified excellence in the horror genre in the late 20th and early 21st century.
+ - The inspiration for my novels comes from the depths of a creative well, based on asking myself questions over and over. I try to write something different each time I sit down to write; I try to surprise the readers.
+ - If I tried to write long-hand, I suppose I’d never finish a novel. I edit too much as I write – the paper would be “white-out” and sharpie marks. Writing with a computer works for me, so I stick with it.
+ - Each recognized the fact that real commitment could be proven only through the passage of time.
+ - I have seldom been described as shy.
+ - Good and bad, strengths and faults, he was hers forever.
+ - People want to believe that every marriage is perfect balance but it isn’t. One person always loves more deeply than the other.
+ - It’s probably not going to lead to anything. But that doesn’t mean you shouldn’t try. If everyone who thought they might fail didn’t even try, where would we be today?
+ - On the drive we talked easily, but we did make a small detour. After pulling into a rest stop, we made out like teenagers.
+ - By making the place and the people and the feelings real, by the time someone closes the cover of one of my books, they have, hopefully, felt all of the emotions of life.
+ - I’ve learned that we’re all entitled to have our secrets.
+ - What the younger generation didn’t understand was that the grass was greenest where it’s watered...
+ - He liked her; it was as simple as that.
+ - Being around someone who accepts and supports you will remind you to accept and support yourself.
+ - If you discovered something that made you tighten inside, you had better try to learn more about it.
+ - There are always differences when you adapt a novel to a film. A novel is longer so you’re automatically cutting out elements and introspection but this is actually a film that stays very close to the novel.
+ - That’s my sweetheart in there. I’m not living her. This is my home now. Your mother is my home.
+ - That’s the thing about being the product of happily marries parents, You grow up thinking the fairy tale is real, and more than that, you think you’re entitled to live it. So far, though, it wasn’t working out as planned.
+ - I might kiss you. I might be bad at it. That’s not possible.
+ - Find out who you are, and do it on purpose.
+ - Books and movies inspire me, but I do my best to keep my stories as original as possible.
+ - I’m a novelist at heart. How’s that? And that’s how I make my living, is I write novels.
+ - When people cared about each other, they always found a way to make it work.
+ - None of my characters are rich or famous, and the situations they find themselves in could happen to anyone.
+ - Life, he decided, was for living, not for having, and he wanted to experience every moment that he could.
+ - When I am in the process of conceiving a story, I make sure it can be told with words and pictures. The story has to be creative, original and interesting in both areas. Many stories get rejected because they feel derivative.
+ - As Logan walked towards her, he smiled as if reading her mind and opened his arms.
+ - There’s nothing you can tell me that will change how I feel about you. Nothing. Because that isn’t you. It’s never been you. You’re the woman I’ve come to know. The woman I love.
+ - She’d preferred the uncertainty, if only because it allowed her to remember him the way he used to be. Sometimes, though, she wondered what he felt when he thought of that year they spent together, or if he ever marveled at what they’d shared, or even whether he thought of her at all.
+ - I just tell people what they already know, but are afraid to admit to themselves.
+ - In this world that we live in we have originality in literature, but we also have TV and movies. I write love stories. I could never write a love story based on the Titanic – that was never a novel. If I see an idea that’s been done in film, I try to avoid that.
+ - I’ll admit that it’s not easy to get an agent, but becoming successful in anything requires perseverance.
+ - I know we loved each other, but distance can do strange things to people and before I was willing to tell you about it, I wanted to be certain that it would last.
+ - Love is a gift. You give love and that’s where the joy is.
+ - Admittedly, there was a lot she still didn’t know about him, but she did know this: He completed her in a way that she’d never thought possible. Knowledge isn’t everything, she told herself, and she knew then that, in Nana’s words, he was the toast to her butter.
+ - A moment later, he plopped down on the sand beside her, and when they accidentally touched, Gabby had the briefest flash of them sitting together just like this on a hundred different weekends in the future.
+ - Yet I have come to believe that while the past is unchangeable, our perceptions of is are malleable...
+ - A good marriage, like any partnership, meant subordinating one’s own needs to that of the other’s, in the expectation that the other will do the same.
+ - Proximity bred familiarity, and familiarity bred comfort.
+ - But a risk-free life wasn’t much of a life, really, and if she was going to change, she might as well start now.
+ - I have some art, but I am a hobbyist. I would not consider myself an expert but in the course of writing this novel I became very familiar with the various movements in American Modern Art from 1900 onwards.
+ - There are things that happen that change the course of people’s lives, but it’s a function of everybody’s lives.
+ - In the end, you really want to make the best film that you can, and in the reality of the filmmaking world, you have things like budgets.
+ - Believe it or not, that was the first time I recognized that in some ways she was just like the rest of us.
+ - I don’t write romance novels.
+ - I don’t write fantasy, I write reality. Also, my novels have roots to Greek tragedies and as such, there has to be tragedy.
+ - It was one thing to divide the major assets, but how was it possible to divide the heart?
+ - Publishing is a business. Writing may be art, but publishing, when all is said and done, comes down to dollars.
+ - In the end, for me, the sole single goal is to write the best novel that I can. Whether or not it gets made or gets purchased.
+ - Frugality, I’ve learned, has its own cost, one that sometimes lasts forever.
+ - The movies are fun, but I’m a novelist. In many ways, screenwriting is much easier than writing novels. I find screenplays twenty times easier to write than a novel.
+ - There’s always pressure, a great deal of pressure, when writing, since my first books were so successful.
+ - I wouldn’t go that far. But I know my way around the kitchen. I make dinner every night.
+ - I know it can’t be the same between us, but that doesn’t change the way I felt about you then.
+ - Because in the end, and no matter how hard it is, acceptance helps people move on with the rest of their lives.
+ - If people don’t like you, or they think you’re strange, then that’s their problem.
+ - My wife, my family, my friends – they’ve all taught me things about love and what that emotion really means. In a nutshell, loving someone is about giving, not receiving.
+ - I’ve done a number of films. I’ve been around this. I think the biggest challenge is just getting the script right, the way that you want the script to be. It’s really about capturing the complexity of emotions and creating the kind of characters that people will want to watch every week.
+ - What I try to do with any of my stories, any of my novels, is make them feel very original.
+ - A joy as intense as pain.
+ - It was a lesson that I would learn in time though it wasn’t Hegbert who taught me.
+ - You were the best friend I ever had, Allie. I’d still like to be friends, even if you are engaged, and even if it is just for a couple of days.
+ - If Alex has chosen you, then I want you to believe that I have chosen you as well.
+ - There are lots of real men out there – men who could fall in love with you at the drop of a hat.
+ - While I’m not an expect in psychology, I’m of the opinion that anyone – even strangers – can sense the urgency of a request, and most people will usually do the right thing.
+ - Most characters are composed of snippets here and there of people I’ve known, and all rolled into the character I’ve created. They do become like their own people.
+ - I knew it wasn’t fair, I knew it was wrong, but I couldn’t help it. And after a while, the anger I felt just sort of became part of me, like it was the only way I knew how to handle the grief. I didn’t like who I’d become, but I was stuck in this horrible cycle of questions and blame.
+ - While I find inspiration in real life, the actual stories are, thankfully, works of fiction – which, given the considerable turmoil in my character’s lives, is probably a good thing!
+ - You’re probably the most boring teenager in the world.
+ - A surprise trigonometry quiz that everyone in class fails? Must be in the Lord’s plan to give us challenges.
+ - Single motherhood is a reality for a lot of women in my age group and the time difficulties in their lives are universal.
+ - Life doesn’t often turn out the way we think it will, does it?
+ - I think my dad was happy. I phrase it like this because he seldom showed much emotion. Hugs and kisses wwere a rarity for me growing up, and when they did happen, they often struck me as lifeless, something he did because he felt he was supposed to, not because he wanted to.
+ - How had I become middle-aged while the ravages of time ignored her? I didn’t know and didn’t care, and before I could stop them, the words were already out. “You’re beautiful,” I murmured.
+ - He’d lived long enough to know that everyone handled grief in different ways, and little by little, they all seemed to accept their new lives.
+
+500 quotes

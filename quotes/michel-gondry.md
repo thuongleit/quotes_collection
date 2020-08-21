@@ -1,0 +1,75 @@
+ - Every great idea is on the verge of being stupid.
+ - The problem when you edit a film together, when you shoot a film, you are drawn into the moment. You want each moment to be special and full of life.
+ - If you take a child from South Africa and you put them in Boston, they’re going to speak with a Boston accent. And so, that’s a way to see the world as everybody is equal, not as a result of politics, but as human beings.
+ - I like the days when all the filmmakers had was a film roll, a camera and a gangster. The Mack Sennett comedies were all like that. They’d create little teams to go out and shoot films.
+ - And I’m not a micromanagement guy. I prefer to spend my time doing other stuff than that.
+ - In my opinion, it’s more interesting to see magic happening in a world that feels grounded. If the world is already crazy, then anything can happen. So it’s better to start with something real.
+ - When people are very original, sometimes they are original as a way to resist the mainstream.
+ - Misinterpretation leads me to inspiration and creativity because I think my brain is trying to figure out some information that I’m confused about.
+ - I would define myself as being naive and perverse at the same time. And I think that if that is consistent it will make the tone consistent.
+ - All these gadgets, the phone and the computer, they expose the inside of your brain in a way that’s bad.
+ - I don’t mock things, which makes me more vulnerable to mockery myself. If you’re cynical, you’re protected from mockery. But I have to be nice. I don’t think I have irony. A sense of humour, yes, but not irony.
+ - I’ve dreamed a lot, but i’m not a very good sleeper.
+ - I want to explore new ideas and put myself in a place where I can finish a project that is more unusual or that doesn’t seem doable.
+ - I don’t want to compare myself to him – I don’t want people to see me as this great genius – but when I see Charlie Chaplin’s movies there is a combination of drama, naivety and social meaning that I can see in myself, at a different level.
+ - Perhaps my favourite story is ‘Le Passe-Muraille’ by Marcel Ayme. It’s about a guy who wakes up with a weird faculty that means he can walk through walls. He’s a very shy clerk, and he uses it to get revenge, or vent his frustration.
+ - I’m not against the technology at all, I just don’t like to use it if it’s just to mimic what you can do with traditional methods.
+ - My goal was to show that even if people work in a garage or a supermarket, they have very funny things to say. We never hear their voices.
+ - I had a lot of encouragement and tolerance from my parents, but I also have many friends who didn’t get that from their parents and in a way they have more strength from spending years where nobody believed in them.
+ - If you’re not grown up enough to understand that a trailer is not done by the director, then fine. Judge the movie from the trailer.
+ - The idea that competition is pointless is really something that speaks to me, especially in America where competition is really prominent and very overwhelming, and it doesn’t bring the best out in you because what’s going to push you is to bring others down.
+ - Orange is an underrated color, it’s the second most underrated color after yellow.
+ - People who get to express their voice are paid by the people who make profit from it. So they’re going to make you believe you have to spend your money buying these products otherwise you won’t be happy. This is really wrong. Especially the implication it carries.
+ - I don’t like vampire movies or zombie movies. I went to see ‘I Am Legend’ with an ex-girlfriend the other day, and I immediately realised it was a zombie movie! You know what I mean? There are certain rules, and those rules are things that you’ve seen many times.
+ - I don’t like to put people in a competition to defeat the other.
+ - I think some people feel that if you are going to have 3D, then you have to shoot in 3D, but they shoot 3D, so of course they’re going to say ‘my way of doing a film is better.’ I’m not telling anyone how they should do their film, so why should anyone tell me how I should do mine?
+ - I was sort of lazy at school, but I realize I still have something to bring to the subject which is comforting. I feel I am not as stupid as I thought I was.
+ - I shoot people in a way that makes the audience feel equal to them. And it’s hard to express and it’s hard to execute but I think it works on every level – the choice of the material the choice of the actor, my relationship with the actor, and so on.
+ - At school I was very shy. I wasn’t funny really.
+ - That’s what the internet is: it’s like bombarding your eyeballs with these myriad blinking colour lights. It’s like trying to watch a movie on your phone in the middle of Times Square.
+ - It’s part of my job to maintain the emotional reality and the naturalism even when the atmosphere is contrived.
+ - My father had a Super 8 camera when I was a kid and sometimes he would use it. I did some animation with it. I did a lot of flipbooks.
+ - I think my imagination dictates the technologies I use. But at the same time, my imagination can be technologic. Sometimes I see a tool and I know immediately how to use it, but most of the time I use the tool for an idea I already have.
+ - I like actors who just are who they are, with a little bit of qualification to adapt to their character. But mostly they just use their own personality to embody the character.
+ - I’ve always loved 3D. In fact, as a kid, I was exposed to 3D at an early age because my grandfather was a specialist of 3D in cinematheques. And then my cousin put it in ‘Science of Sleep’ with toilet paper tube cities. But he was a specialist and I always wanted to do something in 3D.
+ - I’m always excited to work with actors.
+ - When I saw The Matrix and other movies of this type, I wished I had been given the opportunity to express myself with all this technology and do something sort of big in scale, but the right material never really came my way.
+ - I want to see abstract art move. Especially in the ’30s, you had animators doing innovative work, and I was entranced by that. It’s basically what you see when you close your eyes, when you fall asleep.
+ - I think the purpose of test screenings is different for the studio and for the filmmaker. For the studio, I think they want to know whether the film works or not.
+ - Of course, from time to time, I want to do everything myself and be more involved on my own with the creative process. But I don’t mind the collaboration at all.
+ - If people don’t like the trailer, then blame it on the people who made the trailer.
+ - Michael Jackson will always be my favorite pop musician; he was for years and years until his death, which was horrible to me. So I like pop culture. But to me, even if it’s popular, there is a quality in the music you have to be able to appreciate.
+ - I learned to drive when I was 35. I’m driving like an old lady and very close to the wheel. I don’t take many risks, and when people yell at me I say ‘sorry, sorry, sorry!’ I don’t have road rage yet.
+ - The competition is not really friendly or peaceful. It leads to oppression in some ways.
+ - I don’t call cut between the takes – it’s my way to help the actor keep focused. As soon as you say ‘cut’ you have 10 people jumping on them and everybody’s trying to do a great job, and they do, but sometimes they forget that the more important thing is the performance, creating the performance.
+ - Pop music is created by repression – and then the system takes it and makes even more money with it!
+ - The problem is, with a lot of children’s films, they are very commercial.
+ - Sometimes, when people use too much blue screen in movies, the actors don’t look credible, because they have their own opinion of what the thing will look like, and each person has a different opinion.
+ - Every movie I do is challenging for me. There is some element of imaginative that you wouldn’t have in a typical movie.
+ - The first dolly track was somebody who had the idea to put the camera on a boat on a canal. So the boat would move very slowly but steadily. So they would see all that surrounds you and you’d see the landscape changing slowly. So that was the first time.
+ - In a way, putting actors deep into this sort of complicated universe frees them from thinking about who they should be. They just are somebody.
+ - I’m just saying to everyone. The director does not direct the trailer. It’s an edited version that takes so many moments of the movie, sometimes it’s not even in the movie. The director does the movie. So don’t judge the director based on the trailer. Please.
+ - I read about some movie where they did everything on blue screen, and the actors were not even connecting to each other.
+ - My grandfather lived across the garden from us, and in his attic he had a lot of radios, appliances and inventions that he had made over 50 years, such as a keyboard called a clavioline, which can be heard on some Beatles songs – it was popular in the 60s. So we had all that at home.
+ - Since I was a kid, I’ve liked to see how things are done. Sometimes when you see how things are done, it’s like watching a ‘making of’ within the story. You see the physical aspect, the construction of things.
+ - I don’t like those shows where people get eliminated every week, and then they have to get meaner to survive.
+ - Sometimes it’s interesting to see something that you’re not used to seeing, which is the main ingredient of life, and it’s removed from the usual entertainment. I think it’s important to give the opportunity to people to witness the life of somebody who was not public.
+ - You need philosophy. It sounds a little pompous but I think when you direct a film, the only way to find a response to the questions you keep asking yourself is to have a philosophy.
+ - I like actors who don’t have to think too hard about what they have to do to achieve their performance.
+ - You can’t feel sorry for a scene. If the movie works without the scene, then you don’t need the scene.
+ - In the ’90s movies were so serious, and so stylistic and slick that I could not identify with them.
+ - I don’t thrive on control. I’m not looking for control. I think I get better results when I don’t control things.
+ - I always wanted to create this community that would come and tell their own story, shoot it – and watch them. The idea is to not have one entity who creates the work, the project, and another entity who consumes it; the idea is people create their own work, like somebody cultivating his garden.
+ - I think it’s a problem when journalists have the title of their article before they do the interview, because it biases the way they conduct it.
+ - The problem is when you get forced to use ideas that aren’t good. When I can filter the ideas and use the best of them, I am happy to collaborate.
+ - When I shoot actors, I have that dilemma. I want the actor to be good, and sometimes I have to push them to a place that isn’t pleasant. I always think: ‘Is it worth doing for the sake of the movie?’ But I have to remember the bigger picture.
+ - I love 3D a lot, I have a great interest in 3D, so if I am given the tools to do a project with 3D, it’s a dream for me.
+ - I don’t like the idea of competition – maybe because I kept losing them when I was a kid. Maybe it’s better to be the one who loses?
+ - I don’t like movies that are too manipulative. A lot of movies thrive on really pushing your buttons and making you hate the villain.
+ - The MTV Video Awards were never about the video, but about the song. Most of the time it was just to glorify people for the wrong reason.
+ - It’s very hard to say I’m surrealist. It’s like saying I’m poetic. It’s not something you want necessarily to be aware of.
+ - I find, surprisingly, that actors are liberated in their work if there’s stuff going on around them, because they can’t think too much about who they’re supposed to be.
+ - I’m just thinking of 2001, which I think is the most expensive independent film ever made – which is great, someday I hope I will do one. But I know the parameters when I got onto this project – I have to take care of everyone, make sure that they are all on board, and this process interests me.
+ - There is an amount of abstraction in my movies, and sometimes they don’t really understand it until the film is finished.
+
+73 quotes

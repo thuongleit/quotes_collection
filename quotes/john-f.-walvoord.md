@@ -1,0 +1,8 @@
+ - The Bible is God’s declaratory revelation to man containing the great truths about God, about man, about history, about salvation, and about prophecy that God wanted us to know. The Bible could be trusted just as much as if God had taken the pen and written the words Himself.
+ - The work of redemption was accomplished by Christ in His death on the cross and has in view the payment of the price demanded by a holy God for the deliverance of the believer from the bondage and burden of sin. Inredemption the sinner is set free from his condemnation and slavery to sin.
+ - God speaks to man through the Scriptures, and He does not reveal normative truth except as it is already revealed in the Scriptures themselves. The test of truth must remain not what man experiences today but what the Scriptures have stated long ago.
+ - In prayer we can approach God with complete assurance of His ability to answer us. There is no limit to what we can ask, if it is according to His will.
+ - Prayer is not a means for us to persuade a reluctant God to do something which is against His better judgment. Prayer, rather is coming to God for the fulfillment of His will, coming to a God who delights to answer prayer.
+ - Wherever the Bible has been consistently applied, it has dramatically changed the civilization and culture of those who have accepted its teaching. No other book has ever so dramatically changed the individual lives and society in general.
+
+6 quotes

@@ -1,0 +1,32 @@
+ - Go Big, or Go Home.
+ - Go big or go home. Because it’s true. What do you have to lose?
+ - No matter how many times you forget it, you can turn around and help someone. Or you can deliver a positive message or share with someone or just listen to someone share their story with you, it’s just the best gift there is. And it’s free.
+ - There is definitely something sexy about a girl with an attitude and a pair of leather pants.
+ - When I worked with Jamie Lee Curtis in True Lies, she told me, You need a plan B, because when you have six months to a year off, you can go nuts. You need to have another focus.
+ - I’m self-confident and not afraid to speak my mind.
+ - I don’t let guys do hickeys. That’s like a dog marking his territory or something.
+ - When you get to your mid-20s, you start to feel responsibilities for the things that you do and the people around you. It’s a cool age.
+ - My mom is this liberal, feminist, Mormon powerhouse. I just love her to death.
+ - I’m a more mature actress now.
+ - I don’t care who you are, everyone has been through it – that feeling where you’d like to be someone else.
+ - It’s still a pretty sexist world out there and someone’s got to stand up and say something.
+ - My parents divorced when I was born, and my mother is a political science professor, like a feminist Mormon, which is sort of an oxymoron.
+ - Sometimes it feels like you’re losing, but even when you’re losing, you’re getting something.
+ - My mother would take groups of students to different countries and always brought us along, so by the time I was 10, I had been to Russia, China, Nicaragua and several other countries.
+ - I love leather and it’s great to be a bad girl at times. But there is a time and place for everything. When I’m with Grandma it’s flowers, and when I’m out on the town scoping guys, you know...
+ - In my first movie, That Night, with Juliette Lewis, I had a scene with two other girls where we applied a cream to our chests to make our breasts grow. I was 10.
+ - I wanted to be a political science professor and go to school in Boston. I never wanted to be a big, famous movie star and TV star. It kind of found me.
+ - It’s easy to play a bad girl: You just do everything you’ve been told not to do, and you don’t have to deal with the consequences, because it’s only acting.
+ - When I’m shooting, I just try to make sure I wouldn’t be embarrassed of it later, because in Watertown, you don’t get away with anything.
+ - Growing up I was as big a tomboy as you can get.
+ - We didn’t have a TV in the living room and all my friends thought we were kind of weird. When they’d come over, my mom wanted to talk to them about current events.
+ - Each year, I say I’m going to go to school next year. It’s inevitable that I’ll end up getting my education.
+ - My mom is like this hard-core, liberal feminist. She’s a professor in Boston, and she’s been teaching women’s studies for 30 years and international politics.
+ - You know, I really am probably one of the sweetest, most sensitive people you’ll ever meet.
+ - I remember hitting Sarah Michelle Gellar with a right hook during my first week on the job. It was awful. They usually pair actors with stunt doubles to avoid things like that.
+ - I was raised in Boston by three older brothers and a very strong and empowering single mom.
+ - The letters from jail are always disconcerting.
+ - TV can be a long commitment.
+ - Rhymes with push-koo; I always say it sounds like a breakfast cereal.
+
+30 quotes

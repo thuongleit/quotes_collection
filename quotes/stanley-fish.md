@@ -1,0 +1,26 @@
+ - Language is not a handmaiden to perception; it is perception; it gives shape to what would otherwise be inert and dead.
+ - No word floats without an anchoring connection within an overall structure.
+ - Just as you can practice three – word sentences or sentences that travel across time zones, so can you practice writing sentences that breathe unshakable conviction.
+ - In general, higher education does not know how to speak for its interests. It offers a stance that is defensive, cowardly and likely to be ineffective.
+ - Know what makes a sentence more than a random list, practice constructing sentences and explaining what you have done, and you will know how to make sentences forever and you will know too when what you are writing doesn’t make the grade because it has degenerated into a mere pile of discrete items.
+ - The purpose of a good education is to show you that there are three sides to a two-sided story.
+ - People write or speak sentences in order to produce an effect, and the success of a sentence is measured by the degree to which the desired effect has been achieved.
+ - I should have known better. Pro-life arguments are now based on scientific evidence and the pro-choice arguments are not. That is a cultural, historical fact.
+ - Opinion-sharing sessions are like junk food: they fill you up with starch and leave you feeling both sated and hungry. A sustained inquiry into the truth of a matter is an almost athletic experience; it may exhaust you, but it also improves you.
+ - This is what language does: organize the world into manageable, and in some sense artificial, units that can then be inhabited and manipulated.
+ - It is always incorrect to assume you can know what someone’s moral convictions are based on their philosophical theories.
+ - It may sound paradoxical, but verbal fluency is the product of many hours spent writing about nothing, just as musical fluency is the product of hours spent repeating scales.
+ - The first thing to ask when writing a sentence is ‘What am I trying to do?’
+ - What we know of the world comes to us through words, or, to look at it from the other direction, when we write a sentence, we create a world, which is not the world, but the world as is appears within a dimension of assessment.
+ - The category of first sentence makes sense only if it is looking forward to the development of thematic concerns it perhaps only dimly foreshadows.
+ - The word “essay” means to try out, test, probe. In the essay style, successive clauses and sentences are not produced by an overarching logic, but by association; the impression that prose gives is that it can go anywhere in a manner wholly unpredictable.
+ - We in universities are not in the democracy business. What we do, when we’re doing it, is teach and learn.
+ - Sentence writers are not copyists; they are selectors.
+ - Belief and knowledge are considered to be two different things. But they are not.
+ - It is of no help to us that there is an absolute truth of the matter of things because unfortunately, none of us are in a position to say definitively what that is – although we all think that we are.
+ - Any idea can be brought into the classroom if the point is to inquire into its structure, history, influence and so forth. But no idea belongs in the classroom if the point of introducing it is to recruit your students for the political agenda it may be thought to imply.
+ - The idea – the core idea of humanism – is that the act of reading about great deeds will lead you to imitate them,...
+ - Sentences can save us. Who could ask for anything more?
+ - Many people on the political left found my work psychologically liberating. They began to say: once you realize that standards emerge historically, then you can see through and discard all the norms to which we have been falsely enslaved.
+
+24 quotes

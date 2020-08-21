@@ -1,0 +1,21 @@
+ - Girls know when they’re attractive.
+ - I love people who are real.
+ - I would much rather watch a horror film or science fiction than a comedy. I don’t know why. I just like them. I find them relaxing.
+ - To me a great sci-fi movie has elements of horror and suspense.
+ - With global warming, I’m never going to time-travel. It’s probably going to cause some major emission problems.
+ - I think maybe one day I’ll go back to music. I don’t know. I don’t know if sometimes you lose a passion or you don’t lose it, it becomes more personal and less about sharing it with everyone.
+ - I have a very European feel about nudity.
+ - You can’t just do cheap CGI and think that’s going to work. It doesn’t.
+ - When I was 17, I was a Lakers Girl; I was the youngest girl on the squad.
+ - My theory is because I’m Asian and white I sort of look like the future. I’m the melting pot.
+ - I don’t know why I’ve always been uncomfortable being too feminine. If a dress has too many flowers on it, if I’m giggling too much, I’m like ugh, put some combat boots on. I love masculine women. I think it’s because I’m like a fake lesbian, I don’t know.
+ - I love science fiction.
+ - I try to be a good, diligent actor.
+ - I was so lucky that I didn’t have to audition. It’s just such a grueling process, in itself.
+ - I’ve always been into sports and being physical.
+ - I like change, like anybody. You don’t want to keep doing the same thing because then it gets harder to take chances, be creative, and feel inspired when you’re doing the same thing.
+ - I enjoy eating and have no issues with eating. I am not going to be one of those girls who have to watch her weight.
+ - Whenever you’re dealing with fantasy, and you’re doing vampires or anything that is not too based in reality, and you try to base it in reality, you have so much of a greater chance of sounding hokey.
+ - I never wanted to be an actor.
+
+19 quotes

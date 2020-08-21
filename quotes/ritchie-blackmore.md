@@ -1,0 +1,26 @@
+ - Simplicity is the key.
+ - Combing my hair doesn’t make me a better musician.
+ - Everything I do is usually totally spontaneous.
+ - When you’re around someone good, your own standards are raised.
+ - I’m not good enough, technically, to be a classic musician. I lack discipline.
+ - Pete Townshend used to crash chords and let the guitar feed back. He’s overrated.
+ - Stevie Ray Vaughan was very intense. Maybe that’s what caught everybody’s attention. As a player, he didn’t do anything amazing.
+ - I have never met one person who likes Grand Funk.
+ - When you’ve toured for about 10 years like me, you end up feeling like you’re always waiting for somebody or something. The whole day is a drag.
+ - I don’t put myself on Jeff Beck’s level, but I can relate to him when he says he’d rather be working on his car collection than playing the guitar.
+ - I however don’t go to clubs to show off and to be seen, and certainly not to make statements. I just want to be able to quietly watch a band.
+ - I can imagine that Rod Stewart likes giving autographs because he’s pure showbusiness.
+ - When something is not good, it’s bad. Period.
+ - I’ve always played every amp I’ve ever had full up, because rock and roll is supposed to be played loud. Also, that’s how you get your sustain.
+ - A lot of blues guitarists play with only three fingers, and they can’t figure out certain runs that require the use of their little fingers. Classical training is good for that.
+ - I criticize my own work pretty harshly.
+ - Session work makes you more strict. You can’t hit notes all over the place. You’ve got to make each one really count.
+ - I like leaping around on stage as long as it’s done with class. None of this jumping up in the air and doing the splits.
+ - I can never remember what I do even in the studio.
+ - When I was 20, I didn’t give a damn about song construction. I just wanted to make as much noise and play as fast and as loud as possible.
+ - I found the blues too limiting, and classical was too disciplined.
+ - I don’t use the twang bar anymore. It’s become too popular.
+ - If you can play well in the studio, you can play well on stage.
+ - When you’re recording, if you’re not really clean in your playing, it sounds like a mess.
+
+24 quotes

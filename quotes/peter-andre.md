@@ -1,0 +1,37 @@
+ - I hate feet, they’re disgusting! What are they even for?
+ - I was excellent at English and Drama. Maths and Science I was terrible at. I didn’t have any interest in them. I was happiest at lunchtime, playing with my friends. But I love science now, that’s the funny thing. And I’d be so good at geography, as I’ve been fortunate enough to travel the world.
+ - When I am tanned and in shape I feel confident about my appearance.
+ - Maybe I’m wrong because I’ve not met the person yet, I really don’t think I’d want to be with someone in the industry. I really don’t think so. Once bitten, twice shy.
+ - I cringe when I watch myself on TV.
+ - Divorce isn’t just the person, it’s everything that goes with it – your kids, the adjustment, everything.
+ - I think we should have a day off for Father’s Day. Dads work very hard. And to be fair, a day off for Mums too, as they work hard. And more bank holidays. They rock.
+ - I’ve written this song called ‘Insania’ – it’s a mix of Insane and Mania, and even though it’s a made up word you instantly know what it means!
+ - You get to live your life again through the eyes of your children. I conquered a fear the other day by going on a roller coaster, I haven’t been on one in 15 years – I felt like I was six years old.
+ - I have met Lionel Richie and Celine Dion. They were wonderful people. They proved no matter how much success you’ve got, you can be as normal as pie. I held it together. But when I met Halle Berry I went a bit wobbly, as I had a bit of a crush on her before I met Kate.
+ - Nobody is going to take my kids away from me and I will fight to the death for that.
+ - Yeah, we have a lot of cringey moments, but that’s what makes it authentic. I think for it not to be cringey, me and Kate would have to go into the edit suite, but then it would look over produced. We see it at the same time as everyone else.
+ - You can’t go through a divorce and then get back together.
+ - Showing your life so public is a mistake sometimes, but I blame myself as much as anyone else.
+ - I told Kate I didn’t love her in an argument. But I do! Those heated moments are the worst, because that’s when you can do the most damage. And they’re bad, because you always hit them in the spot where you know it hurts.
+ - My kids are my life and the thought of someone taking them away from me is my worst nightmare.
+ - All fanmail is a bit of fun. We do get some nice letters and some fanatical mail too. There’s one woman who thinks me and her are married and has asked when she can come home. That’s a bit spooky.
+ - What’s done is done. You’ve got to move on. I don’t want to say anything bad about the mother of my children.
+ - Streaking. That’s a very stupid young man thing to do. There is something ruder I can’t mention. Celebs On Sunday, you’re kinda clean, aren’t you? Hmm. Maybe we should stick to streaking.
+ - So many people know about the dangers of sunbeds but when you have a busy active lifestyle you need a product that you can use quickly and doesn’t streak or leave you with orange hands.
+ - Not saying I rate myself lots now, but I rate myself more because I’ve been exercising. I’d say a six now. Just above average. There are a lot of good-looking people out there, you see, so more than six is getting a bit cocky.
+ - Never say never. At least with working out I’m proving you don’t need to. If I have three chins at 75 I’m not saying I wouldn’t get rid of them, but who knows. Generally, I’d leave it alone.
+ - It’s amazing how stress keeps you trim.
+ - All you need to do to be a bit sexier is to smile once in a while!
+ - Stacking shelves in a supermarket. The reason I didn’t like it is because I’m very clumsy. We had a floor polisher you’d push up and down the aisles, and klutz me would always knock the bottles over in the drinks aisle. Unsurprisingly I got fired.
+ - I train for about an hour five days a week and feel I’m in the best shape I’ve ever been. I can eat what I want and that includes scoffing half a big bar of Cadbury’s a day.
+ - It’s so important to encourage the use of sun cream, tan in a bottle and the disuse of sun beds which are known world-wide as causes of skin cancer.
+ - I had a weird one a few years ago when I woke up one night, went to the window and saw a girl sitting on the kerb across the road just staring at me. Freaky. We get nice gifts for the kids too. And I’ve had naughty things. Let’s say objects.
+ - A model wears clothes and looks good, which is very passive. It’s not like a musician promoting a new album. You don’t have to read about it.
+ - There are certain things I just don’t talk about – there are certain things that are private.
+ - Obviously, the ultimate dream is to be married for life.
+ - When I do fall in love, I’ll go to the ends of the earth for that person. I’d lay down on a carpet of nails for the person I love.
+ - There might come a point where I don’t want to be in this industry at all.
+ - I really don’t like people that go on about getting followed around, I don’t like it – there are people in the industry that don’t want to take everything that comes with it. I take it all.
+ - Teach kids not to fight. Can they change taxes? I’d get rid of all the congestion charges, because they’ve not stopped traffic. They’re a waste of time, not that I’m getting all political.
+
+35 quotes

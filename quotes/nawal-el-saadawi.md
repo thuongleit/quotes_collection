@@ -1,0 +1,52 @@
+ - Women are half the society. You cannot have a revolution without women. You cannot have democracy without women. You cannot have equality without women. You can’t have anything without women.
+ - They said, “You are a savage and dangerous woman.” I am speaking the truth. And the truth is savage and dangerous.
+ - The slogan of the revolution was dignity, social justice, and freedom. You cannot have dignity or social justice or freedom without women.
+ - Everybody has to die, Firdaus. I will die, and you will die. The important thing is how to live until you die.
+ - My skin is soft, but my heart is cruel, and my bite is deadly.
+ - Home is where you are appreciated, safe and protected, creative, and where you are loved – not where you are put in prison.
+ - I have triumphed over both life and death because I no longer desire to live, nor do I any longer fear to die.
+ - When my second husband shouted, ‘Me or your writing!’ I replied, ‘My writing.’ We separated.
+ - Solidarity between women can be a powerful force of change, and can influence future development in ways favourable not only to women but also to men.
+ - Truth is relative, and there is always something missing in truth that prevents it from being perfect.
+ - The Salafists are trying to abort the revolution and make it religious, though the revolution started secular. There was not a single Islamic slogan. It was secular men and women, and in fact, they were unified. Now they want to divide the revolution, and religion is a very strong weapon.
+ - I am becoming more radical with age. I have noticed that writers, when they are old, become milder. But for me it is the opposite. Age makes me more angry.
+ - Life is very hard. The only people who really live are those who are harder than life itself.
+ - She is free to do what she wants, and free not to do it.
+ - Danger has been a part of my life ever since I picked up a pen and wrote. Nothing is more perilous than truth in a world that lies.
+ - The family code in Egypt is one of the worst family codes in the Arab world. Polygamy. The husband is having absolute power over the family.
+ - Love has made me a different person. It has made the world beautiful.
+ - If you are creative, you must be dissident.
+ - What makes revolutionary thought unique is its clarity and dignity, and its clear grasp of freedom and justice: simple, clear words that are understood without the need for any help from elite writers or thinkers.
+ - Words should not seek to please, to hide the wounds in our bodies, or the shameful moments in our lives. They may hurt, give us pain, but they can also provoke us to question what we have accepted for thousands of years.
+ - When you are intelligent and beautiful you face a lot of problems. If you are beautiful and stupid then it’s easy.
+ - If you do not love yourself, well, you cannot do anything well, that’s my philosophy.
+ - The feminists who are aware of the effects of patriarchy realize that we are all in the same boat from the dangers of patriarchy, and that the oppression of women is universal.
+ - Men impose deception on women and punish them for being deceived, force them down to the lowest level and punish them for falling so low, bind them in marriage and then chastise them with menial service for life, or insults, or blows.
+ - Plastic surgery is a postmodern veil.
+ - Unity is power; without unity women cannot fight for their rights anywhere.
+ - To be creative means to connect. It’s to abolish the gap between the body, the mind and the soul, between science and art, between fiction and nonfiction.
+ - When we live in a world that is very unjust, you have to be a dissident.
+ - We never know the reality of things: we see only what we are aware of. It is our consciousness that determines the shape of the world around us – its size, motion and meaning.
+ - Doubt is the first step towards knowledge, not faith.
+ - I am very much against makeup and high heels and all that we inherit as ‘beauty.’
+ - Who said to kill does not require gentleness?
+ - To have arrived at the truth means that one no longer fears death. For death and truth are similar in that they both require a great courage if one wishes to face them.
+ - All the men I did get to know, every single man of them, has filled me with but one desire: to lift my hand and bring it smashing down on his face.
+ - I now knew that all of us were prostitutes who sold themselves at varying prices, and that an expensive prostitute was better than a cheap one.
+ - I knew I hated him as only a woman can hate a man, as only a slave can hate his master.
+ - You know, I look to myself mainly as a creative writer all my life and a medical doctor.
+ - Fearing servility, people become servile.
+ - Women were everywhere in the revolution. Women participated in it, and many women were killed. Then we had the right to speak up and gain some more rights, but what happened was there was a backlash. Why? Because we have the Salafists, Muslim Brothers, religious groups.
+ - In history, the millions win; that is democracy.
+ - Many people come here and they think my apartment is a poor relative to my name. But you cannot be radical and have money, it’s impossible.
+ - Revolutionary men with principles were not really different from the rest. They used their cleverness to get, in return for principles, what other men buy with their money.
+ - All revolutions in history have obstacles. There is not a revolution that succes.
+ - We see our homeland more clearly when we are away from it than when we are in it.
+ - Home to me is the world because my books have been translated into more than 30 languages.
+ - The tracing of a child’s lineage and its name with reference to the father, though it has lasted for many thousands of years, has not become any the more natural or reasonable as a result.
+ - I’ve lived in Egypt among Christians and Muslims, and we never had a conflict. Now you have a conflict between Christians and Muslims and Baha’is and Sunni and Shia.
+ - Memory is never complete. There are always parts of it that time has amputated. Writing is a way of retrieving them, of bringing the missing parts back to it, of making it more holistic.
+ - My three husbands were afraid of me. I am a very powerful woman.
+ - To me, ‘beauty’ means to be natural, creative, honest – to say the truth.
+
+50 quotes

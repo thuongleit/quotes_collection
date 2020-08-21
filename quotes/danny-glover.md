@@ -1,0 +1,34 @@
+ - Every day of my life I walk with the idea I am black no matter how successful I am.
+ - Im a child of the Civil Rights Movement.
+ - Today, the media dictatorship is becoming a substitute to military dictatorship. The big economic groups are using the media and decide who can speak, who the good guy is and who the bad guy is...
+ - If we talk about the environment, for example, we have to talk about environmental racism – about the fact that kids in South Central Los Angeles have a third of the lung capacity of kids in Santa Monica.
+ - Freedom Summer, the massive voter education project in Mississippi, was 1964. I graduated from high school in 1965. So becoming active was almost a rite of passage.
+ - Kids made fun of me because I was dark skinned, had a wide nose, and was dyslexic. Even as an actor, it took me a long time to realize why words and letters got jumbled in my mind and came out differently.
+ - The Second Amendment comes from the right to protect themselves from slave revolts, and from uprisings by Native Americans. A revolt from people who were stolen from their land or revolt from people whose land was stolen from, that’s what the genesis of the Second Amendment is.
+ - I try to find hope in struggle and resistance in small places as much as I can.
+ - Mel Gibson is my friend. I love Mel. He’s not the person that I hear people are often trying to diminish. Whatever his challenges are in life, he still remains someone I’m very close to.
+ - Every day of my life I walk with the idea that I am black, no matter how successful I am. And our success is tempered by that; you’re successful in this way given the fact you are black, and most blacks don’t get to that point.
+ - I’ve been a Goodwill Ambassador for the UNICEF and the UNICEF family for more than twelve years.
+ - It’s important for people of color to link up with issues around globalization, food security, health, the environment.
+ - I’ve always been able to make choices that don’t embarrass me.
+ - We have to be that wedge that drives the question and asks the hard questions.
+ - I was able to do To Sleep with Anger, a very powerful film about African Americans, their spirituality, and the things that happened within a small community and a family.
+ - Since 1957, black people have experienced double-digit unemployment – in good times and bad times. Look at the population of African Americans in prison. They represent more than half the population of prisoners in the country, 55 percent of those on death row.
+ - It is the most painful thing to see how young children become collateral damage of wars, but when peace treaties are signed landmines do not respect any of these accords. And as long as these silent killers linger after wars, children will never know peace.
+ - The progressive movement against the war of occupation in Iraq is a reason for hope, as is resistance to free trade agreements in Latin America. Those are moments that we have to celebrate: that people still find the resolve and energy to resist.
+ - I’m not so vain as to believe that my involvement changes anything whatsoever.
+ - I never thought about being an actor.
+ - One of the main purveyors of violence in this world has been this country America.
+ - I have the capacity to express what I feel needs to be expressed. And I try to do what I believe in.
+ - What happened to Haiti is a threat that could happen anywhere in the Caribbean to these island nations, you know, because of global warming, because of climate change and all this.
+ - But I think it’s very key that there’s a plan for Haiti. And we have to begin to – as progressives and people who are concerned about Haiti and have been concerned about Haiti, we have to begin to build some sort of consensus, a movement around the Haiti that the Haitians envision.
+ - Some of these things I saw in foreign films – African films, Cuban films – long before I decided to really go on this course as an actor. I started to think about what values I saw in those films that I wanted to bring to my projects.
+ - When someone you know passes on, the only thing you can do is keep moving forward.
+ - It’s also important for those who promote those issues within the white community – the somewhat privileged community – to talk about issues affecting people of color.
+ - If we talk about literacy, we have to talk about how to enhance our children’s mastery over the tools needed to live intelligent, creative, and involved lives.
+ - But rarely have I made choices that made me feel I was really compromising what I believe.
+ - When you’ve moved past a point where you’re just scrambling for jobs, you think about the things that you want to do. And the things that you want to do are governed by what you’ve seen, what you choose to embrace.
+ - If we look at Houston, which is a very environmentally toxic place, we find that it has one of the highest levels of young men going to prison and also among the highest levels of illiteracy in the country.
+ - I was able to do The Saint of Fort Washington, on the relationship between two homeless men.
+
+32 quotes

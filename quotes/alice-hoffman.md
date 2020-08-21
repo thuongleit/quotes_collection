@@ -1,0 +1,177 @@
+ - Books may well be the only true magic.
+ - Once you know some things, you can’t unknow them. It’s a burden that can never be given away.
+ - Be careful what you wish for. I know that for a fact. Wishes are brutal, unforgiving things. They burn your tongue the moment they’re spoken and you can never take them back.
+ - I dream of a love that even time will lie down and be still for.
+ - Every problem has a solution, although it may not be the outcome that was originally hoped for or expected.
+ - Being an outsider is the one thing we all have in common.
+ - Among men and women, those in love do not always announce themselves with declarations and vows. But they are the ones who weep when you’re gone. Who miss you every single night, especially when the sky is so deep and beautiful, and the ground so very cold.
+ - You are only worthy of what you prove yourself to be.
+ - Young people believe that regret is something you will never feel if you simply do as you please, but sometimes it is a matter of degree.
+ - That is the joy of reading fiction: when all is said and done, the novel belongs to the reader and his or her imagination.
+ - When all is said and done, the weather and love are the two elements about which one can never be sure.
+ - Sometimes the right thing feels all wrong until it is over and done with.
+ - It doesn’t matter what people tell you. It doesn’t matter what they might say. Sometimes you have to leave home. Sometimes, running away means you’re headed in the exact right direction.
+ - No one knows you like a person with whom you’ve shared a childhood. No one will ever understand you in quite the same way.
+ - When I walk, I walk with you. Where I go, you’re with me always.
+ - How could I have been so stupid to ignore everything I’d had in my life? The color red alone was worth kingdoms.
+ - Unfinished business always comes back to haunt you, and a man who swears he’ll love you forever isn’t finished with you until he’s done.
+ - We stood and watched as God abandoned us, and then we did the best we could.
+ - Love ambushed you, it lay in wait, dormant for days or years. It was the red thread, the peach stone, the kiss, the forgiveness. It came after you, it escaped you, it was invisible, it was everything.
+ - Avoid men who call you Baby, and women who have no friends, and dogs that scratch at their bellies and refuse to lie down at your feet. Wear dark glasses; bathe with lavender oil and cool fresh water. Seek shelter from the sun at noon.
+ - You build your world around someone, and then what happens when he disappears? Where do you go-into pieces, into atoms, into the arms of another man? You go shopping, you cook dinner, you work odd hours, you make love to someone else on June nights. But you’re not really there.
+ - What you dream, you can grow. Someone told me that, but I didn’t believe it. I said I had nothing and that people with nothing are unable to dream. But I was wrong.
+ - The moon is always jealous of the heat of the day, just as the sun always longs for something dark and deep.
+ - Still, I couldn’t help but wonder if it was a mistake for people like us to be tied to a place. If we weren’t meant to be ready and willing to wander. If everything we needed was contained in who we were. And what we remember.
+ - My mother’s blood that would last forever after. The blood of my brother, my grandfather, my father.
+ - She liked to disappear, even when she was in the same room as other people. It was a talent, as it was a curse.
+ - I thought of the bowl of water my mother taught me to look into. It was true, everything a person ever needed to know was right there in a single bowl small enough to fit in the palm of one hand.
+ - Love was like that, like a dream you didn’t quite understand, one in which you didn’t necessarily know what you were looking at until it was right in front of you.
+ - The sky is already purple; the first few stars have appeared, suddenly, as if someone had thrown a handful of silver across the edge of the world.
+ - You have to choose the voice you are going to trust. You can’t listen to everyone.
+ - The frightened walk away when love is difficult. I know that now. You have to be willing to give everything away. You have to be willing to end up with nothing. Only then will your heart be whole.
+ - When you start writing the magic comes when the characters seem to take on a life of their own and write the words for themselves.
+ - Burn me. Drown me. Tell me lies. I will still be who I am.
+ - My theory is that everyone at one time or another has been at the fringe of society in some way: an outcast in high school, a stranger in a foreign country, the best at something, the worst at something, the one who’s different. Being an outsider is the one thing we all have in common.
+ - Are people drawn to each other because of the stories they carry inside?
+ - Hawthorne has given us a tradition that some people refer to as Yankee Magic Realism, and I do think there is a certain quality to the landscape that definitely leads into the dark woods.
+ - Sometimes, running away means you’re headed in the exact right direction.
+ - I wasn’t good company, that was true, and people avoided me, but that was all right. I was too busy dreaming.
+ - Always keep mint on your windowsill in August, to ensure that buzzing flies will stay outside, where they belong. Don’t think the summer is over, even when roses droop and turn brown and the stars shift position in the sky. Never presume August is a safe or reliable time of the year.
+ - I’m much faster now. When you only have a certain amount of time to write, after a while you learn to use your time well or you stop writing.
+ - Unrequited love is so boring. Weeping under a blue-black sky is for suckers or maniacs.
+ - Our rest is formed by our waking life and our waking life is formed by our sorrows.
+ - People hide their truest nature. I understood that; I even applauded it. What sort of world would it be if people bled all over the sidewalks, if they wept under trees, smacked whomever they despised, kissed strangers, revealed themselves?
+ - There are some things, after all, that Sally Owens knows for certain: Always throw spilled salt over your left shoulder. Keep rosemary by your garden gate. Add pepper to your mashed potatoes. Plant roses and lavender, for luck. Fall in love whenever you can.
+ - At midnight the wind in the tress can sound like the ocean. The moonlight can make a road appear as endless as the sea.
+ - I can hurt myself more than anyone else can, she told her sister. I can do it with my eyes closed.
+ - Every fairy tale had a bloody lining. Every one had teeth and claws.
+ - It was the sort of beauty you feel so deeply it becomes contagious and somehow makes you feel beautiful too.
+ - She didn’t like being twelve. It felt like someplace between who she’d been and who she was about to be. It felt like no place at all.
+ - The voice that arises out of the silence is something no one can imagine until it is heard. It roars when it speaks, it lies to you and convinces you, it steals from you and leaves you without a single word of comfort.
+ - Trouble is just like love, after all; it comes in unannounced and takes over before you’ve had a chance to reconsider, or even to think.
+ - I really feel like the gift is also the curse. It’s always half-and-half. Whatever brings you the most joy will also probably bring you the most pain. Always a price to pay.
+ - Some things, when they change, never do return to the way they once were. Butterflies for instance, and women who’ve been in love with the wrong man too often.
+ - In losing a friend, she is reminded of all she has lost and all she stands to lose again. There is nothing to be done to make it any easier. We all grieve alone.
+ - Feel lucky for what you have when you have it. Isn’t that the point? Happily ever after doesn’t mean happy forever. The ever after, what precisely was that? Your dreams, your life, your death, your everything. Was it the blank space that went on without us? The forever after we were gone?
+ - And then I understood that she had no idea what she’d done to my family. She thought love and hatred were equal.
+ - My mother, Abra, had taught me that all people are made from the same dust. When our days here are gone, all men and women enter the same garden.
+ - Do you ever just put your arms out and just spin and spin and spin? Well, that’s what love is like; everything inside of you tells you to stop before you fall, but for some reason you just keep going.
+ - I always felt and still feel that fairy tales have an emotional truth that is so deep that there are few things that really rival them.
+ - Here is the riddle of love: Everything it gives to you, it takes away.
+ - Jill and I have known each other our whole lives. One house separates our houses but we act as if it doesn’t exist. We met before we were born and we’ll probably still know each other after we die. At least, that’s the way we’re planning it.
+ - The nature of love had totally escaped her until now. She had thought that if you lost it, you could never get it back, like a stone thrown down a well. But it was like the water at the bottom of the well, there when you can’t even see it, shifting in the dark.
+ - Some fates are guaranteed, no matter who tries to intervene.
+ - The weak are cruel. The strong have no need to be.
+ - It’s not finding what’s lost, it’s understanding what you’ve found.
+ - You can be betrayed in your sleep. The whole world can tilt while you’re dreaming of butterflies.
+ - She was so busy forgetting, she couldn’t take a single step into the future.
+ - Even as a small child, I understood that woman had secrets, and that some of these were only to be told to daughters. In this way we were bound together for eternity.
+ - Certain things need not be said, and there’s nothing, not a whisper, prayer, not a sacrifice, not a payment of any price, that would change what’s about to happen.
+ - I wonder how a lioness will manage in a dovecote. Can you put away your teeth and claws?
+ - We are only an instant, that’s true. But we are eternal.
+ - Feel lucky for what you have when you have it. Isn’t that the point? Happily ever after doesn’t mean happy forever.
+ - Some things you cannot wish away or think away. They become part of you when you remember them.
+ - I think we are bound to, and by, nature. We may want to deny this connection and try to believe we control the external world, but every time there’s a snowstorm or drought, we know our fate is tied to the world around us.
+ - That’s the way love sounds, my mother told me. You think it should feel like honey, but instead it cuts like a knife.
+ - Good fortune can take forever to get to you, but as it turns out, sorrow is as quick as a shot.
+ - My grief was cold. It was nothing to share. It was nothing to speak about, nothing to feel.
+ - Remember what I’ve told you. Remember me.
+ - They weren’t true stories; they were better than that.
+ - Sometimes they would sit in the parlor together, both reading – in entirely separate worlds, to be sure, but joined somehow. When this happened, other people in the family couldn’t bring themselves to disturb them. All that could be heard in the parlor was the sound of pages, turning.
+ - Every time I finish a book, I forget everything I learned writing it – the information just disappears out of my head.
+ - You can’t dispute the ridiculous. You can’t argue reasonably with evil.
+ - Instead of going home, I drove to the library. To hell with human beings. I’d always felt safer with stories than with flesh and blood.
+ - He was in love, and people in that condition did stupid, unfathomable things. They were all flawed, every single one.
+ - Holding a tear back makes them drain upward, higher and higher, until one day your head just explodes and you’re left with a stub of a neck and nothing more.
+ - Mothers always find ways to fit in the work – but then when you’re working, you feel that you should be spending time with your children and then when you’re with your children, you’re thinking about working.
+ - I always quit at three when my kids come home from school so I feel pretty spoiled.
+ - We had to survive to remember. Otherwise everything we were would disappear. Those people we loved would fade as though we’d never loved them, as if they’d never walked and talked and burned, forgetting them was the real evil. That was the hole of darkness.
+ - But what we are given is taken as well, so that we know God’s glory comes to us from His will alone.
+ - You can try to take sorrow and make it into something enduring, meaningful and beautiful. I always feel guilty that this is my job, that I get to do this.
+ - She can feel his blood, just beneath his skin; when he breathes, the air fills with smoke. He’s like a dragon, ancient and fearless.
+ - I saw the end of his life right there in that single moment. His pride, his decency, his secrets, his death.
+ - Some stories stayed with you even when you wanted to forget them.
+ - Do what you want, do what you will, do what you have to, do what you think you cannot.
+ - Only her death could prove her innocence; a circle of impossible, deathly judgement.
+ - I never plot out my novels in terms of the tone of the book. Hopefully, once a story is begun it reveals itself.
+ - I must keep my head and not give in to desire, for desire is what causes women to drown.
+ - That is how you know you’ve left childhood behind-when you wish for time to go backward.
+ - He started to look at me in a manner I recognized: it was the way I looked at a new book, one I had never read before, one that surprised me with all it had to say.
+ - Outside, the September air was enticingly fragrant, yellow with pollen and rich, lemony sunlight.
+ - He believed in dreams, in endings that people told you could never happen, in disappointments reversed and luck that lasted.
+ - This was what it meant to be human, to know that time moved and all things changed.
+ - I’ve been a screenwriter for twenty-five years. Every one of my books have been optioned for movies and I have written a few of those screenplays.
+ - What people read revealed so much about them that she considered our card catalog a treasure house of privileged secrets; each card contained the map of an individual’s soul.
+ - The more you feel, the stronger you are.
+ - I knew what it was to yearn for a life so distant it seemed that it had never been anything more than a dream.
+ - That was the way love was, invisible, there whether or not you wanted to see it or admit to it.
+ - I heard a sigh, as though the books were breathing. I felt that this was where I belonged. This was where I lived.
+ - Any institution becomes a community – whether it’s a high school or a boarding school or a publishing company or a small town where everybody knows certain things about people.
+ - Another world must surely exist somewhere one where she would be known in some deep way that was far beyond words.
+ - He has the ability to catch someone by the way that he looks at her, and make her wish he would go on looking.
+ - That’s why there are ten gates to pass through before you reach the garden. If life were easy there would be one gate. There would be no gates at all.
+ - When I write for teens, I feel I can cut through everything and get to the bare bones. I can get straight into the emotional world of the character.
+ - Margaret thought of all she knew for certain, that day would always follow night that love was never wasted nor was it lost.
+ - Anyway, the sort of love that will not wait is probably best to pass by.
+ - What else is there to write about than love and loss?
+ - I also like the whole idea of fairy tales and folk tales being a woman’s domain, considered a lesser domain at the time they were told.
+ - Do people choose the art that inspires them – do they think it over, decide they might prefer the fabulous to the real? For me, it was those early readings of fairy tales that made me who I was as a reader and, later on, as a storyteller.
+ - Cleaning up after themselves was a low priority for Margo and my mother. They had both recovered from cancer scares, failed marriages, and lost hope; in their opinion, dirt could wait.
+ - I have crossed over to a place where I never thought I’d be. I am someone I would have never imagined. A secret. A dream. I am this, body and soul. Burn me. Drown me. Tell me lies. I will still be who I am.
+ - Maybe some love was guaranteed. Maybe it fit inside you and around you like skin and bones.
+ - Just because something is unspoken doesn’t mean that it disappears.
+ - In a world of sorrow, love was an act of will. All you needed were the right ingredients.
+ - If I hadn’t learned my lesson, I would have wished we could stay there forever. But I knew better now. We’d seen what we’d come to see. The way to trick death. Breathe in. Breathe out. Watch as it all rises upwards, black and blue into the even bluer sky.
+ - My grandmother was overwhelmed by what was happening to us. She ahd moved back into the past because the here and the now was too terrible.
+ - But most important of all, she explained that it was all right to say ‘No. I disagree.’ that was a gift. I understood it was power. The power to think my own thoughts. The power to believe in myself.
+ - After a while, the characters I’m writing begin to feel real to me. That’s when I know I’m heading in the right direction.
+ - Women know things that men will never know. We keep the best secrets. We tell the best stories.
+ - Still, she knows one thing for certain: never judge a relationship unless you are the one wrapped up in its arms.
+ - It was a great escape for me and it was a way to take a break from what was going on in my own world, to go into another world.
+ - The sisters were glad to be together. They had the easy sort of relationship where they didn’t have to speak to be understood.
+ - He’d thought he was lost, but now he recognized that eternity was around him, like salt from a shaker or stars in the sky.
+ - I think love is a huge factor in fiction and in real life. Is there a risk? Always. In fiction and in life.
+ - The best way to die is when your living.
+ - I never even believed in happiness. I didn’t think it existed. Now look at me. I’m ready to believe in just about anything.
+ - Others said May was best, that sweet green time when lilacs bloomed and gardens along Main Street were filled with sugary pink peonies and Dutch tulips.
+ - I wept to think that life went on even when so much had been lost, that rain still fell and myrtle grew between the rocks.
+ - It was as if hope had appeared out of nowhere to settle beside her and it wasn’t going anywhere, it wasn’t going to desert her now.
+ - Pride is a funny thing; it can make what is truly worthless appear to be a treasure.
+ - Crying wasn’t like riding a bike. Give it up, and you quickly forget how it’s done.
+ - Real love, after all, was worth the price you paid, however briefly it might last.
+ - It’s not the lie that’s the problem; it’s the distance the lie forges between you.
+ - Hearts were made for being broken. There’s really no way around it if you want to be a human being.
+ - I didn’t want to be prideful anymore. I wanted to be as hard as and brittle as the stones I carted into the woods. Stones that could not feel or cry or see. I wished not to feel anything at all. In no time, what I wished for, I became.
+ - All the characters in my books are imagined, but all have a bit of who I am in them – much like the characters in your dreams are all formed by who you are.
+ - That was the way illness appeared in a house, in the corners, in between floorboards, on the hooks in the closet, along with the sweaters and coats.
+ - People want to ignore what they can’t understand. They’re looking for logic at any cost.
+ - If we had paid attention, we would have understood there are some things in this world you cannot outrun.
+ - No barrier was strong enough to keep out the movement of time.
+ - What men yearn for they often destroy.
+ - They were written on cheap blue notebooks bought by poor women. I’m interested in folk tales in the way that medicine and magic in women’s stories are all kind of combined.
+ - Fairytales were maps formed of blood and hair and bones; they were the knots of the sub-conscious unwound. Every word in every tale was real and as true as apples and stones. They all led to the story inside the story.
+ - I’m at the point where going forward is easier than going back.
+ - Ironically, now that my children are older and gone quite a bit, I find it harder to work when they’re not around. Too much free time!
+ - He fell in love with the way she closed her eyes, long before he fell in love with her.
+ - Sometimes words drew blood, they cut your tongue, they made you know things you couldn’t unknow.
+ - Love is worth the sum of itself, and nothing more.
+ - Still anyone who trusts a serpent deserves its bite. The wise see a creature for what it is, not what it says it may be.
+ - Even in times when it’s difficult to figure out, how do you go forward, art – and books – always help.
+ - I can’t really work on more than one thing at a time.
+ - Sometimes movies really are the best medicine.
+ - The original fairy tale was about the youngest sister going into a room in the castle and finding all the bodies of the wives that came before her – she is confronted with truth, thinking about how often we think we know people and we really don’t.
+ - I don’t think I make much of a distinction between the ‘real’ and the ‘fantastic.’ They both seem to be threads in the same cloth as far as I’m concerned.
+ - The evening had turned sweet and blue.
+ - I wasn’t quite as certain that I knew her soul. When it came right down to it, I wasn’t sure she knew me either.
+ - No one knows how to write a novel until it’s been written.
+ - He wanted pain, I saw that in him, and what a man wants he will often manage to find.
+ - I don’t really read as much as I used to. A lot of what I was looking for as an escape I find in writing. And the other thing is that I don’t want to get into someone else’s language when I’m working.
+ - A boy who is trouble is something entirely different as a man.
+ - Weapons are kept from women, but such a naming suggests that perhaps men fear our talents in war as well as our desire for peace.
+ - Perhaps it is possible to discover more in silence than in speech. Or perhaps it is only that those who are silent among us learn to listen.
+ - I think growing up is difficult and it’s a process that I’m always interested in, with kids and adults, they are often on two different universes.
+ - This day is going to be awful. It’s the sort of day you wouldn’t mind losing completely, even if it meant your life would be twenty-four hours shorter.
+ - I never see a novel as a film while I’m writing it. Mostly because novels and films are so different, and I’m such an internal novelist.
+ - She was disappearing a little more each day, so thin, so frail, a wisp of smoke. One day she would surely vanish altogether, and there was no way to stop her.
+
+175 quotes

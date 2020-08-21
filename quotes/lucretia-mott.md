@@ -1,0 +1,26 @@
+ - Any great change must expect opposition, because it shakes the very foundation of privilege.
+ - In the true married relationship, the independence of husband and wife will be equal, their dependence mutual, and their obligations reciprocal.
+ - A child, like all other human beings, has inalienable rights.
+ - Truth for authority, not authority for truth.
+ - I have no idea of submitting tamely to injustice inflicted either on me or on the slave. I will oppose it with all the moral powers with which I am endowed. I am no advocate of passivity.
+ - Man is not by nature a tyrant, but becomes a tyrant by power conferred on him.
+ - The world has never yet seen a truly great and virtuous nation, because in the degradation of women, the very fountains of life are poisoned at their source.
+ - The legal theory is, that marriage makes the husband and wife one person, and that person is the husband.
+ - It is not Christianity, but priestcraft that has subjected woman as we find her.
+ - Christian soldiers armed with virtue- hearts afire with blind obsession, cannot see the difference ’twixt compassion and oppression.
+ - Liberty is not less a blessing, because oppression has so long darkened the mind that it can not appreciate it.
+ - I long for the day my sisters will rise, and occupy the sphere to which they are called by their high nature and destiny.
+ - Weep not for me. Rather let your tears flow for the sorrows of the multitude. My work is done. Like a ripe fruit I admit the gathering. Death has no terrors for it is a wise law of nature. I am ready whenever the summons may come.
+ - I grew up so thoroughly imbued with women’s rights that it was the most important question of my life from a very early day.
+ - If our principles are right, why should we be cowards?
+ - Those who go forth ministering to the wants and necessities of their fellow beings experience a rich return, their souls being as a watered garden, and a spring that faileth not.
+ - I want that there should be a belief, a faith in the possibility of removing mountains to the side of right. If we believe that war is wrong, as everyone must, then we ought to believe that by proper efforts on our part, it may be done away with.
+ - Woman has so long been subject to the disabilities and restrictions with which her progress has been embarrassed that she has become enervated, her mind to some extent paralyzed; and like those still more degraded by personal bondage she hugs her chains.
+ - We too often bind ourselves by authorities rather than by the truth.
+ - Let woman then go on-not asking favors, but claiming as a right the removal of all hindrances to her elevation in the scale of being-let her receive encouragement for the proper cultivation of all her powers, so that she may enter profitably into the active business of life.
+ - The likeness we bear to Jesus is more essential than our notions of him.
+ - Learning, while at school, that the charge for the education of girls was the same as that for boys, and that, when they became teachers, women received only half as much as men for their services, the injustice of this distinction was so apparent.
+ - Let our lives be in accordiance with our convictions of right, each striving to carry out our principles.
+ - Women’s property has been taxed, equally with that of men’s, to sustain colleges endowed by the states; but they have not been permitted to enter those high seminaries of learning.
+
+24 quotes

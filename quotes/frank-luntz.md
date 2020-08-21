@@ -1,0 +1,69 @@
+ - It’s not what you say, it’s what people hear.
+ - It’s all emotion. But there’s nothing wrong with emotion. When we are in love, we are not rational; we are emotional. When we are on vacation, we are not rational; we are emotional.
+ - A compelling story, even if factually inaccurate, can be more emotionally compelling than a dry recitation of the truth.
+ - Ideology and communication more often than not run into each other rather than complement each other. Principle and communication work together. Ideology and communication often work apart.
+ - Nobody wants to hear about process. They want to hear about results. They want to be inspired. They want to aspire to something. And so often in our communication, we will explain why – sorry, we will explain how but not why.
+ - Eighty percent of our life is emotion, and only 20 percent is intellect. I am much more interested in how you feel than how you think. I can change how you think, but how you feel is something deeper and stronger, and it’s something that’s inside you.
+ - My father was a dentist, and I always thought that he was one of the 10. It’s an interesting way to personalize and humanize, which is one of the most important aspects of communication.
+ - The most successful people in American life are those that have had horrific failures and have come back, done it again and again until they got it right, whether it’s Steve Jobs or Bill Gates or Warren Buffet.
+ - There are words that work, that are meant to explain and educate on policies that work, on products that work, on services that work. I’m not going to ever try to sell a lemon. I don’t do that.
+ - The best advertising and the best communication when it comes to business is that which makes you smile, that which makes you think, that which makes you ponder.
+ - I tell this joke about Barack Obama is the best communicator of our generation: The guy reads a teleprompter better than any Hollywood actor. John McCain, his opponent – Stevie Wonder reads a teleprompter better than John McCain.
+ - Most voters would rather have their purse or wallet stolen than be audited by the IRS.
+ - Politics is gut; commercials are gut.
+ - The public wants to know why or why not. They don’t want to know how you’re going to do it.
+ - There are certain aspects, and there are – there are 15 attributes of winners and winning slogans. “Which side are you on” sounds divisive, that you’re on one side or the other, at a time when we actually want universality. We want unanimity.
+ - Republicans use think tanks to come up with a lot of their messages. The think tanks are the single worst, most undisciplined example of communication I’ve ever seen.
+ - The way you communicate an idea is different than the way you communicate a product.
+ - If you’re a good numbers person, you’re a bad language person.
+ - By the way, for those who are listening, I absolutely define – I have a face for radio. Unfortunately, I’ve got a voice for print. So I apologize for the sandpaper you’re listening to.
+ - Believe in better is one of the most powerful words you can use in the business community.
+ - The perfect opening is the word imagine, because imagine allows you to communicate in the eyes and the vision of the listener rather than yours. And the best illustration of that is “1984.” Room 101 in “1984” – everyone’s read it, and we all have our own imagination of what that looks like.
+ - FedEx is another company that’s passionate. When it absolutely, positively has to get there is such a great, aspirational phrase. And FedEx used it for almost a decade to communicate the passion of delivering a package. The more passionate you are, the more successful you are.
+ - The eureka moment is two reasons why the output-based standard should be adopted: common sense and accountability. Input-based standards don’t encourage energy diversity; they don’t create any incentives; they don’t produce solar, hydro, nuclear.
+ - Nothing’s going to stop you or deter you or cause you to give up. Pursuit, because nobody actually expects it to happen. They want you to be continuous in your efforts. And perfection because there’s just nothing better.
+ - I don’t understand why people whose entire lives or their corporate success depends on communication, and yet they are led on occasion by CEOs who cannot talk their way out of a paper bag and don’t care to.
+ - With all due respect to UPS – it’s a fine company – nobody cares about logistics. They care about that package arriving at their home, at their office, when it is supposed to and in the condition it’s supposed to. FedEx is a much better communicator than UPS.
+ - Traditional market researchers are cold and calculating and scientific.
+ - What matters most in politics is personality. It’s not issues; it’s not image. It’s who you are and what you represent.
+ - When you say: The simple truth is this, and then you pause, and then you finish the sentence, people stop, and they think specifically about what you’re saying. And it’s, in essence, trying to boil it down to something that’s very understandable and meaningful.
+ - That’s the kind of visual that you’re trying to attract – something that in some way or another, connects you to what’s happening there in a realistic way.
+ - We are so divided, and we recognize that we’re divided, that we’re looking for ways to come together.
+ - Writing a book is the most difficult, anxiety-prone aspect of my life because the words that I put on paper are very serious to me.
+ - Preserving parks and open spaces is a winner because it doesn’t need to be explained to everyday Americans.
+ - Richard Nixon will always go down as a failure because of one stupid, moral – and that goes back to that last chapter, on principles.
+ - There are people still in the Republican Party that I believe practice the communication of anger, of disappointment, of regret, of pain, of sorrow, of suffering. That’s not what the American people want to hear.
+ - When you’re selling a product or service, you don’t have – it doesn’t have to be absolutely perfect, although I’ve provided language that is. When you’re a politician, one wrong word changes the entire – changes the meaning of something.
+ - I’ve done reasonably well over the last 10 years because I took the strategy of language and politics and applied it to the corporate world, which has never been done before.
+ - If you’re fighting against a minimum wage increase, you’re fighting an uphill battle, because most Americans, even most Republicans, are okay with raising the minimum wage.
+ - You need good principles and good language if you are to succeed.
+ - Richard Nixon’s career certainly ended in failure but someone who won an election with 60 percent of the vote, won 49 out of 50 states, that makes his -up to that point – incredibly successful. The idea of winning 49 states, incredible.
+ - Apple has a passion to deliver the most amazing, innovative – and, in fact, I got criticized because in “Win,” there are at least 10 references to what Steve Jobs has done, and Apple’s done, in that my editor said it’s too much. But Apple is a passionate company.
+ - It is acceptable to bring someone to tears if it explains to them in an emotional way why a product, a service, or a candidate is the right person, is the right thing to do.
+ - George W. Bush – who I’m sure that a lot of people, when I say this, will not be happy about it – but Bush had a determination, and had a very clearly defined set of principles. You knew exactly where he stood.
+ - If you just heard 90 percent of dentists recommend something, it’s too statistical. Nine out of 10 says: Well, it’s just virtually everyone. It leads you to think of that joke about the one dentist. But so much of communication.
+ - I would not have used the phrase “I’m selling you” because even though that’s exactly what you’re doing, when you tell people you’re doing it – or worse yet, when you tell people “I’m not here to sell you anything,” they automatically assume that that’s exactly what you are here to do.
+ - Bill Clinton was effective because he had that personal relationship, that this was a guy who had tremendous curiosity, which is another one of the key attributes. And he had the ability – his mind was – his mind and his heart were very well-connected. And so he genuinely empathized.
+ - The Old Spice ads – women love it. The guys find it annoying. It always causes a great conversation. And it makes it more fun. You know, we’ve been testing those visuals to see what attracts attention.
+ - It has to be simple, but then you deliver them a principle: The simple truth is, as a matter of principle, we cannot spend more than we take in. Something – that changes the tone of the debate.
+ - While it is important to trash the governor, it should be done in the context of regret, sadness and balance.
+ - We will be far more effective as communicators when we acknowledge our mistakes, and then we try to make them up.
+ - The second most important attribute of winners, after understanding the human dimension, is knowing what questions to ask, the rhetorical nature.
+ - Believe in better, which is a corporate phrase rather than a political phrase. We don’t want more. We’re not looking for quantity. We’re looking for quality. Believe in better suggests intergenerational change. It suggests product innovation. It suggests something better for the future.
+ - Rick Scott used let’s get to work to say: All these politicians talk; it’s time to do. Everybody else talks about the problem; it’s time to find the solution.
+ - Nothing guarantees more applause and more support than the call to abolish the IRS.
+ - It applies even more to politicians because they are living, breathing embodiments of the language that they use. And it’s why how you start the conversation, and how you end it, matters so much.
+ - The ability to connect and communicate is one of the most powerful, and you cannot find anyone who has been truly successful in life that doesn’t have that ability because you’ve got to motivate, and you’ve got to -frankly, you have to influence.
+ - What the people now respond – and the goal of those ads is to merely get the name of the medication into the minds of the consumers so that they will ask their doctor about it. That’s the whole goal.
+ - The visual is important. “Let’s get to work” says let’s get it done, and that’s what they want.
+ - The fundamental problem for Republicans when it comes to the environment is that whatever you say is viewed through the prism of suspicion.
+ - Anything that causes you to doubt, to raise either objections or just concerns about it – and they always put the information right at the bottom of the screen so you can’t really read it – every time you see a company do that, the ad becomes less effective. The communication becomes less effective.
+ - You cannot lie ever, because a lie destroys the credibility of the product, and credibility is more important than anything. Credibility’s even more important than clarity.
+ - When I wrote “Win,” it only took about eight months, but eight months of sheer pain and suffering because every phrase that’s in there – and there are about 130 specific linguistic recommendations – I had to test every one to make sure that it worked.
+ - The principles behind explaining and educating the product or the elected official is similar, even though the actual execution of it is very, very different.
+ - I have seen how effective language attached to policies that are mainstream and delivered by people who are passionate and effective can change the course of history.
+ - The most powerful visual in America today is actually the Statue of Liberty.
+ - Whether or not you liked George W. Bush, there was no doubt about what position he was going to take, and that’s what endeared him to a significant segment of American society.
+ - Some people call it global warming; some people call it climate change. What is the difference?
+
+67 quotes

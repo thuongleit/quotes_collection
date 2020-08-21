@@ -1,0 +1,50 @@
+ - You’re either on the bus or off the bus.
+ - I never forget. I never forgive. I can wait. I find it very easy to harbor a grudge. I have scores to settle.
+ - One belongs to New York instantly, one belongs to it as much in five minutes as in five years.
+ - A lie may fool someone else, but it tells you the truth: you’re weak.
+ - If a conservative is a liberal who’s been mugged, a liberal is a conservative who’s been arrested.
+ - Everybody, everybody everywhere, has his own movie going, his own scenario, and everybody is acting his movie out like mad, only most people don’t know that is what they’re trapped by, their little script.
+ - If you label it this, then it can’t be that.
+ - The whole conviction of my life now rests upon the belief that loneliness, far from being a rare and curious phenomenon, peculiar to myself and to a few other solitary men, is the central and inevitable fact of human existence.
+ - I think of evolution as a myth, like the Norse myths, the Greek myths – anybody’s myths. But it was created for a rational age.
+ - The problem with fiction, it has to be plausible. That’s not true with non-fiction.
+ - I’m a great believer in outlines.
+ - No machines will ever truly fully figure the brain out, because the brain’s performance is constantly altered or else constrained by this inanimate, rogue artifact you can’t control, namely, speech.
+ - It is very comforting to believe that leaders who do terrible things are, in fact, mad. That way, all we have to do is make sure we don’t put psychotics in high places and we’ve got the problem solved.
+ - You never realize how much of your background is sewn into the lining of your clothes.
+ - Love is the ultimate expression of the will to live.
+ - Miami is a melting pot in which none of the stones melt. They rattle around.
+ - Radical Chic, after all, is only radical in Style; in its heart it is part of Society and its traditions.
+ - God, newspapers have been making up stories forever. This kind of trifling and fooling around is not a function of the New Journalism.
+ - Put your good where it will do the most!
+ - I still believe nonfiction is the most important literature to come out of the second half of the 20th century.
+ - Sherman made the terrible discovery that men make about their fathers sooner or later...
+ - The notion that the public accepts or rejects anything in modern art is merely romantic fiction. The game is completed and the trophies distributed long before the public knows what has happened.
+ - The surest cure for vanity is loneliness.
+ - There are some people who have the quality of richness and joy in them and they communicate it to everything they touch. It is first of all a physical quality; then it is a quality of the spirit.
+ - Sometimes we don’t even realize what we really care about, because we get so distracted by the symbols.
+ - Vietnam was really an idealistic thing to stop the spread of communism, which, incidentally, it did. It was a pretty costly way to do it, but it achieved its goal.
+ - A cult is a religion with no political power.
+ - People complain about my exclamation points, but I honestly think that’s the way people think. I don’t think people think in essays; it’s one exclamation point to another.
+ - I’ve never met an American who wanted to build an empire.
+ - A glorious place, a glorious age, I tell you! A very Neon renaissance – And the myths that actually touched you at that time – not Hercules, Orpheus, Ulysses and Aeneas – but Superman, Captain Marvel, and Batman.
+ - I don’t think journalists should talk about whom they’re voting for.
+ - Frankly, these days, without a theory to go with it, I can’t see a painting.
+ - America is a wonderful country! I mean it! No honest writer would challenge that statement! The human comedy never runs out of material! it never lets you down!
+ - Nonfiction is never going to die.
+ - The first newspaper I worked on was the ‘Springfield Union’ in Springfield, Massachusetts. I wrote over a hundred letters to newspapers asking for work and got three responses, two no’s.
+ - The attitude is we live and let live. This is actually an amazing change in values in a rather short time and it’s an example of freedom from religion.
+ - My entire career, in fiction or nonfiction, I have reported and written about people who are not like me.
+ - And – of course! – the Non-people. The whole freaking world was full of people who were bound to tell you they weren’t qualified to do this or that but they were determined to go ahead and do just that thing anyway.
+ - Even hostile parodies admit from the start that the target has a distinct voice.
+ - By the time I received my doctorate in American studies in 1957, I was in the twisted grip of a disease of our times in which the sufferer experiences an overwhelming urge to join the ‘real world.’ So I started working for newspapers.
+ - You can be denounced from the heavens, and it only makes people interested.
+ - Everybody is going to be what they are, and whatever they are, there’s not going to be anything to apologize about.
+ - Most people don’t read editorial pages. I think I must have been 40 before I even looked at an editorial page.
+ - I do novels a bit backward. I look for a situation, a milieu first, and then I wait to see who walks into it.
+ - I wrote a number of pieces in the year 1966 that were so bad that, although I’m a great collector of my own pieces, I have never collected them.
+ - Not long after I published my first book, I quickly found I was terrible at being interviewed.
+ - It’s not just that reporting gives you a bigger slice of life, gives – lends verisimilitude to what you are doing – it’s that it feeds the imagination.
+ - Television reporters aren’t really called reporters. They are called researchers. And that’s really all they are.
+
+48 quotes

@@ -1,0 +1,41 @@
+ - Good farming, clear thinking, right living.
+ - If we put our trust in the common sense of common men and ‘with malice toward none and charity for all’ go forward on the great adventure of making political, economic and social democracy a practical reality, we shall not fail.
+ - We must not tolerate oppressive government or industrial oligarchy in the form of monopolies and cartels.
+ - If we define an American fascist as one who in case of conflict puts money and power ahead of human beings, then there are undoubtedly several million fascists in the United States.
+ - People in cities may forget the soil for as long as a hundred years, but Mother Nature’s memory is long and she will not let them forget indefinitely.
+ - It is no coincidence that the growth of modern tyrants has in every case been heralded by the growth of prejudice.
+ - A fascist is one whose lust for money or power is combined with such an intensity of intolerance toward those of other races, parties, classes, religions, cultures, regions or nations as to make him ruthless in his use of deceit or violence to attain his ends.
+ - The symptoms of fascist thinking are colored by environment and adapted to immediate circumstances. But always and everywhere they can be identified by their appeal to prejudice and by the desire to play upon the fears and vanities of different groups in order to gain power.
+ - Fascism is a worldwide disease. Its greatest threat to the United States will come after the war, either via Latin America or within the United States itself.
+ - This is a fight between a free world and a slave world.
+ - Scientific understanding is our joy. Economic and political understanding is our duty.
+ - Their final objective toward which all their deceit is directed is to capture political power so that, using the power of the state and the power of the market simultaneously, they may keep the common man in eternal subjection.
+ - A liberal knows that the only certainty in this life is change but believes that the change can be directed toward a constructive end.
+ - The moral and spiritual aspects of both personal and international relationships have a practical bearing which so-called practical men deny.
+ - The worldwide, agelong struggle between fascism and democracy will not stop when the fighting ends in Germany and Japan.
+ - In some ways, certain books are more powerful by far than any battle.
+ - It has been claimed at times that our modern age of technology facilitates dictatorship.
+ - The myth of fascist efficiency has deluded many people.
+ - It may be shocking to some people in this country to realize that, without meaning to do so, they hold views in common with Hitler when they preach discrimination against other religious, racial or economic groups.
+ - The American fascists are most easily recognized by their deliberate perversion of truth and fact. Their newspapers and propaganda carefully cultivate every fissure of disunity, every crack in the common front against fascism.
+ - Monopolists who fear competition and who distrust democracy because it stands for equal opportunity would like to secure their position against small and energetic enterprise.
+ - The wisdom of our actions in the first three years of peace will determine the course of world history for half a century.
+ - The American fascist would prefer not to use violence. His method is to poison the channels of public information.
+ - The century which we are entering can be and must be the century of the common man.
+ - In an effort to eliminate the possibility of any rival growing up, some monopolists would sacrifice democracy itself.
+ - Our chemical and other manufacturing concerns are all too often ready to let the Germans have Latin American markets, provided the American companies can work out an arrangement which will enable them to charge high prices to the consumer inside the United States.
+ - The fascists in most Latin American countries tell the people that the reason their wages will not buy as much in the way of goods is because of Yankee imperialism. The fascists in Latin America learn to speak and act like natives.
+ - There are probably several hundred thousand if we narrow the definition to include only those who in their search for money and power are ruthless and deceitful.
+ - Most American fascists are enthusiastically supporting the war effort. They are doing this even in those cases where they hope to have profitable connections with German chemical firms after the war ends.
+ - If this liberal potential is properly channeled, we may expect the area of freedom of the United States to increase. The problem is to spend up our rate of social invention in the service of the welfare of all the people.
+ - With a fascist the problem is never how best to present the truth to the public but how best to use the news to deceive the public into giving the fascist and his group more money or more power.
+ - This dullness of vision regarding the importance of the general welfare to the individual is the measure of the failure of our schools and churches to teach the spiritual significance of genuine democracy.
+ - The obvious types of American fascists are dealt with on the air and in the press. These demagogues and stooges are fronts for others. Dangerous as these people may be, they are not so significant as thousands of other people who have never been mentioned.
+ - Until democracy in effective enthusiastic action fills the vacuum created by the power of modern inventions, we may expect the fascists to increase in power after the war both in the United States and in the world.
+ - What we must understand is that the industries, processes, and inventions created by modern science can be used either to subjugate or liberate. The choice is up to us.
+ - To see rich land eaten away by erosion, to stand by as continual cultivation on sloping fields wears away the best soil, is enough to make a good farmer sick at heart.
+ - The European brand of fascism will probably present its most serious postwar threat to us via Latin America.
+ - They are patriotic in time of war because it is to their interest to be so, but in time of peace they follow power and the dollar wherever they may lead.
+ - The dangerous American fascist is the man who wants to do in the United States in an American way what Hitler did in Germany in a Prussian way.
+
+39 quotes

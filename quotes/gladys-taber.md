@@ -1,0 +1,45 @@
+ - Being a good neighbor is an art which makes life richer.
+ - April is a promise of what’s to come.
+ - Long cold nights mark November’s return, grey rains fall, wind walks in the bronze oak leaves.
+ - I suppose I am a sparrow, a stay-at-home bird.
+ - Some of the days in November carry the whole memory of summer as a fire opal carries the color of moonrise.
+ - The curious thing about fishing is you never want to go home. If you catch something, you can’t stop. If you don’t catch anything, you hate to leave in case something might bite.
+ - Christmas is a bridge. We need bridges as the river of time flows past. Today’s Christmas should mean creating happy hours for tomorrow and reliving those of yesterday.
+ - Old houses, I thought, do not belong to people ever, not really, people belong to them.
+ - We need time to dream, time to remember, and time to reach the infinite. Time to be.
+ - Pride may go before a fall, but jealousy goes before destruction.
+ - A house with no fireplace is a house without a heart.
+ - Most cats feel that bird-catching is their duty; the instinct goes back to prehistoric times. Amber keeps in practice by chasing moths.
+ - November wind has a sound different from any other. It is easy to imagine the cave of the winds in some mythical Northland where the winds are born and the gods send them out to conquer the quiet air.
+ - There must be hundreds of unsung heroes and heroines who first tasted strange things growing – and think of the man who first ate a lobster. This staggers the imagination. I salute him every time I take my nutcracker in hand and move the melted-butter pipkin closer.
+ - Almost all words do have colour and nothing is more pleasant than to utter a pink word and see someone’s eyes light up and know it is a pink word for him or her too.
+ - Well, any love makes us vulnerable. Whatever we love will give the gift of pain somewhere along the road. But who would live sealed in spiritual cellophane just to keep from ever being hurt? There are a few people like that. I’m sorry for them. I think they are as good as dead.
+ - As long as you have a window, life is exciting.
+ - There is a kind of immortality in every garden.
+ - When Father smiled, it was like the sun coming out, and spring and summer in your heart.
+ - Christmas is a bridge. We need bridges as the river of time flows past.
+ - Christmas is a kindling of new fires.
+ - Happiness is a thing of now.
+ - Cat lovers know that every cat is remarkable.
+ - June in New England is like a lover’s dream made tangible.
+ - I know of nothing to compare with the welcome a dog gives you when you come home.
+ - The real evidence of growing older is that things level off in importance.
+ - A cat is, by and large, sophisticated and complex, and capable of creating three-act plays around any single piece of action.
+ - Perhaps what makes friendship and love exciting is the continuing discovery of another personality.
+ - My own recipe for world peace is a bit of land for everyone.
+ - Dog lovers are a good breed themselves.
+ - Nothing makes a house cozier than cats.
+ - Traveling is all very well if you can get home at night. I would be willing to go around the world if I came back in time to light the candles and set the table for supper.
+ - Faith is a curious thing. It must be renewed; it has its own spring.
+ - I love both the way a dog looks up to me and a cat condescends to me.
+ - Americans tend to believe they can do anything with or without any training or experience.
+ - Life is a process of discovery, of new perceptions.
+ - The creative instincts, the love force must be nourished with every beat of our hearts until they overbalance the destructive instincts.
+ - A good recipe for a human reducing breakfast is a lot of good things to eat, and three spaniels and two cats to eat with.
+ - What would happen if all the populations on the planet simply refused to fight human beings they did not even know?
+ - Catching something is merely a byproduct of our fishing. It is the act of fishing that wipes away all grief, lightens all worry, dissolves all fear and anxiety.
+ - Father was the most unreconciled taxpayer I ever knew.
+ - I cannot imagine a cat in an Obedience ring, running around in the hot sun and doing things on command. For it would not make sense. Whereas a dog is tolerant of your not making sense and only wants to fix things so you are happy.
+ - Whoever decided that comic valentines were a good idea should have been sent away to think it over.
+
+43 quotes

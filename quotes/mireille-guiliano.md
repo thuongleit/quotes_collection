@@ -1,0 +1,41 @@
+ - Taking care of your mental and physical health is just as important as any career move or responsibility.
+ - French women don’t have too many clothes – a few good pieces that last for a while and are classic and timeless.
+ - Make treating yourself a priority and always remember your life is happening now. Don’t put off all your dreams and pleasures to another day. In any balanced personal definition of success there has to be a powerful element of living life in the present.
+ - Intelligence, knowledge or experience are important and might get you a job, but strong communication skills are what will get you promoted.
+ - The real reason French women don’t get fat is not genetic, but cultural, and if the French subjected themselves to the American extremes of eating and dieting, the obesity problem in France would be much worse than what has struck America.
+ - Just as established products and brands need updating to stay alive and vibrant, you periodically need to refresh or reinvent yourself.
+ - Learn to say no, with an eye to saying yes to something else.
+ - French women typically think about good things to eat. American women typically worry about bad things to eat.
+ - We only have one body, and you have to show respect for it.
+ - I’m not a great consumer. I always ask myself, ‘Do I really need that piece?’ I have friends who have 300 pairs of shoes; how would you leave the house in the morning?
+ - There is no lasting glory in rapid weight loss.
+ - If you believe you can shed pounds quickly by force of will and deprivation, you will in all likelihood not only regain the ones you lost, but add a few more besides.
+ - Expensive clothes with inappropriate or inexpensive shoes may send an unflattering message.
+ - Since the pleasure of most foods is in the first few bites, eat one thing on your plate at a time, at least at the start of the meal when you can concentrate and enjoy the full flavors.
+ - I would advocate that chocolate be covered by health insurance, but that is admittedly a very French public policy perspective.
+ - We women are so judged by the way we dress, and men are not. So style is part of developing your own brand.
+ - French women don’t eat Wonder Bread.
+ - The memory of some bottles can stay with your for life. While the wine doesn’t have to be old and rare, a great old bottle can be like a time capsule, capturing in its flavors and aromas the time and place of its creation.
+ - Being and working in America, it’s very important to work hard, work smart and work in a certain way. France and Europe has, with the tradition and culture, it’s slow-moving and it’s not always good.
+ - Wine is a living, breathing thing during its time in the bottle and in the glass. It is always changing, especially in the glass. A little oxygen can really open up and release the flavors in a complex wine, as well as mellow the rougher edge of immaturity.
+ - I love my kitchen. For Manhattan, I have a rather decent-size kitchen, and it has an opening that gives out to the dining room, which has a window with a view of the city and in the distance the Statue of Liberty.
+ - With technology, there is so much isolation with people now, that there are very few places where you can connect.
+ - I’ve never been ambitious.
+ - Once a day, take some ‘Beach Time.’
+ - French women love bread and would never consider a life without carbs.
+ - Of course there are fat French women. There are fat people everywhere.
+ - Nothing but beauty and douceur.
+ - Making choices that are meaningful to you is the essence of the French woman’s secret.
+ - I can never leave a bookstore without buying a book. I read four or five at a time.
+ - Once you have to start counting calories, it takes away from the joy of eating.
+ - French women eat and serve what’s in season, for maximum flavor and value, and know availability does not equal quality.
+ - I find it so unattractive when women wear sneakers with their business suits. I wear a nice pair of loafers or low-heeled pumps, and that’s that.
+ - One does not laugh because one is happy; one is happy because one laughs.
+ - When I grew up in France, I was a normal size. And then I came to the United States and I gained 20 pounds.
+ - People are unhappy when they are on diets, because it’s ’don’t do this, don’t do that, do this, do that.
+ - You and I don’t have the same genetics, we don’t live in the same places, but we can have the same basic attitude – being comfortable in our skin.
+ - In America, you look at food as bad and guilty. In France, we love food and we enjoy food; food is pleasure.
+ - I cannot live without flowers everywhere. I grew up having a big garden, the size of a city block, in Rombas.
+ - Give us being and feeling over having any day.
+
+39 quotes

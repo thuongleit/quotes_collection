@@ -1,0 +1,40 @@
+ - Light griefs are loquacious, but the great are dumb.
+ - All my life I thought that the story was over when the hero and heroine were safely engaged – after all, what’s good enough for Jane Austen ought to be good enough for anyone. But it’s a lie. The story is about to begin, and every day will be a new piece of the plot.
+ - Humour is the best way to make the unbearable bearable.
+ - Perhaps there is some secret sort of homing instinct in books that brings them to their perfect readers. How delightful if that were true.
+ - I hope, too, that my book will illuminate my belief that love of art – be it poetry, storytelling, painting, sculpture, or music – enables people to transcend any barrier man has yet devised.
+ - I don’t want to be married just to be married. I can’t think of anything lonelier than spending the rest of my life with someone I can’t talk to, or worse, someone I can’t be silent with.
+ - Reading good books ruins you for enjoying bad books.
+ - If there is Predestination, then God is the devil. by Remy, Ravensbruck concentration camp survivor.
+ - Think of it! We could have gone on longing for one another and pretending not to notice forever. This obsession with dignity can ruin your life if you let it.
+ - I think you learn more if you’re laughing at the same time.
+ - Men are more interesting in books than they are in real life.
+ - The first rule of snooping is to come at it sideways.
+ - When I got up this morning the sea was full of sun pennies – and now it all seems to be covered in lemon scrim. Writers ought to live far inland or next to the city dump, if they are ever to get any work one. Or perhaps they need to be stronger-minded than I am.
+ - I don’t know whether to feel flattered or hunted.
+ - This obsession with dignity can ruin your life if you let it.
+ - Naturally curly hair is a curse, and don’t ever let anyone tell you different.
+ - I never met a man half so true as a dog. Treat a dog right, and he’ll treat you right. He’ll keep you company, be your friend, and never ask you no questions. Cats is different, but I never held that against ’em.
+ - Women like poetry. A soft word in their ears and they melt – a grease spot on the grass.
+ - My worries travel around in my head on their well worn path.
+ - We read books, talked books, argued over books and became dearer and dearer to one another.
+ - Friends, show me a man who hates himself, and I’ll show you a man who hates his neighbors more! He’d have to – you’d not grant anyone else something you can’t have for yourself – no love, no kindness, no respect!
+ - His writings have made me his friend.
+ - I much prefer whining to counting my blessings.
+ - Reading keeps you from going ga-ga.
+ - Do you suppose the St. Swithin’s furnace-man was my one true love? Since I never spoke to him, it seems unlikely, but at least it was a passion unscathed by disappointment.
+ - In a good mood I call my hair Chestnut with Gold Glints. In a bad mood, I call it mousy brown.
+ - People don’t know how chickens can turn on you, but they can – just like mad dogs.
+ - I sometimes think I prefer suitors in books rather than right in front of me. How awful, backward, cowardly, and mentally warped that will be if it turns out to be true.
+ - Isola doesn’t approve of small talk and believes in breaking the ice by stomping on it.
+ - That’s what I love about reading: one tiny thing will interest you in a book, and that tiny thing will lead you to another book, and another bit there will lead you onto a third book. It’s geometrically progressive – all with no end in sight, and for no other reason than sheer enjoyment.
+ - I am to cover the philosophical side of the debate and so far my only thought is that reading keeps you from going gaga.
+ - Those times, I tried to think of something happy, something I’d liked – but not something I loved, for that made it worse.
+ - After all, what’s good enough for Austen ought to be good enough for anyone.
+ - Moses: God or crowd control?!?
+ - He had no imagination either-fatal for one engaged in child-rearing.
+ - Then i imagined a lifetime of having to cry to get him to be kind, and I went back to no again.
+ - Miss X has always been a ditherer – she was a ten month baby and has not improved in any material way since then.
+ - Isn’t that something-to know your own soul by hearsay, instead of its own tidings? Why should I let a preacher tell me if I had one or not? If I could believe I hada soul, all by myself, then I could listen to its tidings all by myself.
+
+38 quotes

@@ -1,0 +1,142 @@
+ - Success seems to be largely a matter of hanging on after others have let go.
+ - If at first you don’t succeed, try hard work.
+ - Plenty of people miss their share of happiness, not because they never found it, but because they didn't stop to enjoy it.
+ - The way to get ahead is to start now.
+ - One of the funny things about the stock market is that every time one person buys, another sells, and both think they are astute.
+ - The way to get ahead is to start now. If you start now, you will know a lot next year that you don’t know now and that you would not have known next year if you had waited.
+ - Books open your mind, broaden your mind, and strengthen you as nothing else can.
+ - If we do not discipline ourselves the world will do it for us.
+ - Getting along with others is the essence of getting ahead, success being linked with cooperation.
+ - Concentrate on your job and you will forget your other troubles.
+ - One way to get the most out of life is to look upon it as an adventure.
+ - Politeness is an inexpensive way to make friends.
+ - No man is a failure who is enjoying life.
+ - Conditions are never just right. People who delay action until all factors are favourable do nothing.
+ - The right man can make a good job out of any job.
+ - Finishing a good book is like leaving a good friend.
+ - Whether it’s marriage of business, patience is the first rule of success.
+ - Education is knowing where to go to find out what you need to know; and its knowing how to use the information you get.
+ - We all find time to do what we really want to do.
+ - Wealth flows from energy and ideas.
+ - Some people are making such thorough preparation for rainy days that they aren’t enjoying today’s sunshine.
+ - Early morning cheerfulness can be extremely obnoxious.
+ - Next to doing a good job yourself, the greatest joy is having someone else do a first class job under your direction.
+ - Most of us expect too much from others and not enough from ourselves.
+ - BUSINESS and LIFE are like a bank account-you can’t take out more than you put in.
+ - If you do the best you can, you will find, nine times out of ten, that you have done as well as or better than anyone else.
+ - The only thrill worthwhile is the one that comes from making something out of yourself.
+ - Every social injustice is not only cruel, but it is economic waste.
+ - Problems always appear big when incompetent men are working on them.
+ - Back of ninety-nine out of one-hundred assertions that a thing cannot be done is nothing, but the unwillingness to do it.
+ - Success is seldom achieved by people who contemplate the possibility of failure.
+ - Temporary success can be achieved in spite of lack of other fundamental qualities, but no advancements can be maintained without hard work.
+ - After saying our prayers, we ought to do something to make them come true.
+ - Command of English, spoken or written, ranks at the top in business. Our main product is words, so a knowledge of their meaning and spelling and pronunciation is imperative. If a man knows the language well, he can find out about all else.
+ - Know and believe in yourself and what others think won’t disturb you.
+ - Avoid letting temper block progress-keep cool.
+ - The primary asset of any business is its organization.
+ - Business demands faith, compels earnestness, requires courage, is honestly selfish, is penalized for mistakes, and is the essence of life.
+ - A hotel isn’t like a home, but it’s better than being a house guest.
+ - One right and honest definition of business is mutual helpfulness.
+ - It is better to rely on yourself than on your friends.
+ - Experience and enthusiasm are two fine business attributes seldom found in one individual.
+ - Successful salesmen, authors, executives and workmen of every sort need patience. The great liability of youth is not inexperience but impatience.
+ - Before it can be solved, a problem must be clearly defined.
+ - Beware of the person who can’t be bothered by details.
+ - No task is so humble that it does not offer an outlet for individuality.
+ - Everybody loves to find fault, it gives a feeling of superiority.
+ - If people really liked to work, we’d still be plowing the land with sticks and transporting goods on our backs.
+ - The hardest job of all is trying to look busy when you’re not.
+ - One of the indictments of civilizations is that happiness and intelligence are so rarely found in the same person.
+ - Control from without flourishes when discipline from within grows weak.
+ - Only the man who can impose discipline on himself is fit to discipline others or can impose discipline on others.
+ - The determination of life insurance salesmen to succeed has made life pretty soft for widows.
+ - Mistakes occur when a man is over-worked or over-confident.
+ - The sweaty players in the game of life always have more fun than the supercilious spectators.
+ - The philosophy behind much advertising is based on the old observation that every man is really two men – the man he is and the man he wants to be.
+ - The wise man seeks little joys, knowing that life is long and that his quota of great joys is distinctly limited.
+ - Women lie about their age; men lie about their income.
+ - The wisdom of the wise and the experience of the ages is preserved into perpetuity by a nation’s proverbs, fables, folk sayings and quotations.
+ - In many lines of wok, it isn’t how much you do that counts, but how much you do well and how often you decide right.
+ - Laziness is the one common deficiency in mankind that blocks the establishment of a perfect world in which everyone leads a happy life.
+ - When lying, be emphatic and indignant, thus behaving like your children.
+ - An invitation to a wedding invokes more trouble than a summons to a police court.
+ - If you don’t take it for granted that the other man will do his job, you’re not an executive.
+ - If you’re naturally kind, you attract a lot of people you don’t like.
+ - Work is the best method devised for killing time.
+ - Loneliness is something you can’t walk away from.
+ - A man must not deny his manifest abilities, for that is to evade his obligations.
+ - Don’t let ambition get so far ahead that it loses sight of the job at hand.
+ - Setting a good example for your children takes all the fun out of middle age.
+ - We all know that the nation can’t divide more than the people produce, but as individuals we try to get more than our share and that’s how we get ahead.
+ - It must be terrible to have to live among people and not like human nature.
+ - The tragedy is that so many have ambition and so few have ability.
+ - To make yourself understood you have to think plain and write plain.
+ - The happiest people are those who are too busy to notice whether they are or not.
+ - When ordering lunch, the big executives are just as indecisive as the rest of us.
+ - Improvement of one’s economic position is helped more by cool persistence than by hot enthusiasm.
+ - Brains aren’t everything, but they’re important.
+ - A man of fifty looks as old as Santa Claus to a girl of twenty.
+ - Success in business hinges mostly on the ability to get the important things done.
+ - The reward of energy, enterprise and thrift is taxes.
+ - Change, not habit, is what gets most of us down; habit is the stabilizer of human society, change accounts for its progress.
+ - Something that has always puzzled me all my life is why, when I am in special need of help, the good deed is usually done by somebody on whom I have no claim.
+ - We always admire the other person more after we’ve tried to do his job.
+ - Few women are dumb enough to listen to reason.
+ - Some of us might find happiness if we quit struggling so desperately for it.
+ - The best sermon is preached by the minister who has a sermon to preach and not by the man who has to preach a sermon.
+ - An uncontrolled sense of humor is often costly in business.
+ - All the vitamins needed seem to be found in plebian dishes.
+ - Any man who makes a speech more than six times a year is bound to repeat himself, not because he has little to say, but because he wants applause and the old stuff gets it.
+ - Next to a sincere compliment, I think I like a well-deserved and honest rebuke.
+ - Giving advice isn’t as risky as people say. Few ever take it anyway.
+ - Not a tenth of us who are in business are doing as well as we could if we merely followed the principles that were known to our grandfathers.
+ - Nothing happens to you that has not happened to someone else.
+ - Here is the secret of inspiration: Tell yourself that thousands and tens of thousands of people, not very intelligent and certainly no more intelligent than the rest of us, have mastered problems as difficult as those that now baffle you.
+ - Many of our prayers were not answered, and for this we are now grateful.
+ - Indifference and inaction must always pay a penalty.
+ - One compensation of old age is that it excuses you from picnics.
+ - If a man can make typewriters better than anyone else, let us, in the name of common sense, keep him on the job of making typewriters.
+ - Let us resolve to do the best we can with what we’ve got.
+ - Few of us get anything without working for it.
+ - The superiority of the American system is eloquently proved by the pressure of people who want to crash our borders.
+ - Once you have sold a customer, make sure he is satisfied with your goods. Stay with him until the goods are used up or worn out. Your product may be of such long life that you will never sell him again, but he will sell you and your product to his friends.
+ - In education it isn’t how much you have committed to memory or even how much you know. It’s being able to differentiate between what you do know and what you don’t. It’s knowing where to go to find out what you need to know and it’s knowing how to use the information you get.
+ - Nothing will ruin an interesting intelligent argument more quickly than the arrival of a pretty girl.
+ - Success makes us intolerant of failure and failure makes us intolerant of success.
+ - A determination to succeed is the only way to succeed that I know anything about.
+ - Management is the art of getting three men to do three men’s work.
+ - Almost any idea is good if a man has ability and is willing to work hard. The best idea is worthless if the creator is a loafer and ineffective.
+ - Business is always interfering with pleasure – but it makes other pleasures possible.
+ - Too many of us vote for our prejudices instead of our desires.
+ - Make a better friend of every man with whom you come in contact.
+ - Everybody knows how to utter a complaint, but few can express a graceful compliment.
+ - Experience seems to be the only thing of any value that’s widely distributed.
+ - Always remember that there is a law of compensation which operates just as infallibly as gravitation, and that victory goes at last where it ought to, and that this is just as true of individuals as of nations.
+ - The petty economies of the rich are just as amazing as the silly extravagances of the poor.
+ - He that succeeds makes an important thing of the immediate task.
+ - Most persons who indulge in second thought don’t do much thinking when the subject is presented for first thought.
+ - A woman seldom comes out of a sullen spell until she’s sure her husband has suffered as much as she thinks he should.
+ - The prizes go to those who meet emergencies successfully. And the way to meet emergencies is to do each daily task the best we can.
+ - A baseball game is twice as much fun if you’re seeing it on the company’s time.
+ - That they may have a little peace, even the best dogs are compelled to snarl occasionally.
+ - An idea isn’t worth much until a man is found who has the energy and ability to make it work.
+ - Men do their hardest work at the bottom of the ladder, not at the top.
+ - Unnecessary hustle is one of the American follies. We hustle at both work and play, and consequently enjoy neither to the utmost.
+ - I get quiet joy from the observation of anyone who does his job well.
+ - The rule for every worthwhile man is that no serious job ever shall receive less than his best thought and effort.
+ - None of us can buy goodwill; we must earn it.
+ - In business, as in baseball, the prizes go most often to the organizations that pursue their objective hard and relentlessly every day of the year.
+ - We don’t need men with new ideas as much as we need men who will put energy behind the old ideas.
+ - Do each daily task the best we can; act as though the eye of opportunity were always upon us.
+ - When a woman wears a low-cut gown, what does she expect you to do: look or not look?
+ - Achievement is by all accounts to a great extent a matter of clinging after others have given up.
+ - A peculiarity of capital is that it cannot be employed productively without benefiting the community in which it is used.
+ - Most of us regard good luck as our right, and bad luck as a betrayal of that right.
+ - Some men never master anything other than the details of a job. Others master the main idea back of the job.
+ - It’s not the increasing competition; it’s going back to real work that most of us complain about.
+ - If we conducted ourselves as sensibly in good times as we do in hard times, we could all acquire a competence.
+ - I have won every argument I ever had with myself.
+ - He isn’t a real boss until he has trained subordinates to shoulder most of his responsibilities.
+
+140 quotes

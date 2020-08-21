@@ -1,0 +1,42 @@
+ - The art of knowing is knowing what to ignore. ~~Rumi
+ - Art is a way of survival. ~~Yoko Ono
+ - It may seem difficult at first, but everything is difficult at first. ~~Miyamoto Musashi
+ - Every act of creation is first an act of destruction. ~~Pablo Picasso
+ - Principles for the Development of a Complete Mind: Study the science of art. Study the art of science. Develop your senses- especially learn how to see. Realize that everything connects to everything else. ~~Leonardo da Vinci
+ - Art is my life and my life is art. ~~Yoko Ono
+ - No Fear, No Hesitation, No Surprise, No Doubt. ~~Miyamoto Musashi
+ - Imagination will often carry us to worlds that never were. But without it we go nowhere. ~~Carl Sagan
+ - Deep into that darkness peering, long I stood there, wondering, fearing, doubting, dreaming dreams no mortal ever dared to dream before. ~~Edgar Allan Poe
+ - The world of reality has its limits; the world of imagination is boundless. ~~Jean-Jacques Rousseau
+ - Doubt is only removed by action. If you’re not working then that’s when doubt comes in. ~~Conor McGregor
+ - There is an art to science, and a science in art; the two are not enemies, but different aspects of the whole. ~~Isaac Asimov
+ - A man should hear a little music, read a little poetry, and see a fine picture every day of his life, in order that worldly cares may not obliterate the sense of the beautiful which God has implanted in the human soul. ~~Johann Wolfgang von Goethe
+ - Water can flow, or it can crash. Be water, my friend. ~~Bruce Lee
+ - The way is in training. ~~Miyamoto Musashi
+ - Feet, what do I need you for when I have wings to fly? ~~Frida Kahlo
+ - The art of living is more like wrestling than dancing. ~~Marcus Aurelius
+ - To me defeat in anything is merely temporary. Defeat simply tells me that something is wrong in my doing; it is a path leading to success and truth. ~~Bruce Lee
+ - I must create a system or be enslaved by another mans; I will not reason and compare: my business is to create. ~~William Blake
+ - Nursing is an art: and if it is to be made an art, it requires an exclusive devotion as hard a preparation as any painter’s or sculptor’s work. ~~Florence Nightingale
+ - The Art of Fulfillment is the ability to experience not only the thrill of the chase, but also the magic of the moment, the unbridled joy of feeling truly alive. ~~Tony Robbins
+ - There are always flowers for those who want to see them. ~~Henri Matisse
+ - The artist is the lover of nature; therefore he is her slave and her master. ~~Rabindranath Tagore
+ - Art never comes from happiness. ~~Chuck Palahniuk
+ - The supreme art of war is to subdue the enemy without fighting. ~~Sun Tzu
+ - Music produces a kind of pleasure which human nature cannot do without. ~~Confucius
+ - Nature is the art of God. ~~Dante Alighieri
+ - There’s people that focus on the game and forget about the art. There’s that specific special individual that can do both. ~~Conor McGregor
+ - Psychiatry is the art of teaching people how to stand on their own feet while reclining on couches. ~~Sigmund Freud
+ - When I sit down to write a book, I do not say to myself, ‘I am going to produce a work of art.’ I write it because there is some lie that I want to expose, some fact to which I want to draw attention, and my initial concern is to get a hearing. ~~George Orwell
+ - Truth exists; only lies are invented. ~~Georges Braque
+ - The truth is revealed by removing things that stand in its light, an art not unlike sculpture, in which the artist creates, not by building, but by hacking away. ~~Alan Watts
+ - Music is the mediator between the spiritual and the sensual life. Although the spirit be not master of that which it creates through music, yet it is blessed in this creation, which, like every creation of art, is mightier than the artist. ~~Ludwig van Beethoven
+ - I do not regard advertising as entertainment or an art form, but as a medium of information. When I write an advertisement, I don’t want you to tell me that you find it ‘creative.’ I want you to find it so interesting that you buy the product. ~~David Ogilvy
+ - Aristotle can be regarded as the father of logic. But his logic is too scholastic, full of subtleties, and fundamentally has not been of much value to the human understanding. It is a dialectic and an organon for the art of disputation. ~~Immanuel Kant
+ - I paint myself because I am so often alone and because I am the subject I know best. ~~Frida Kahlo
+ - Medicine is not only a science; it is also an art. It does not consist of compounding pills and plasters; it deals with the very processes of life, which must be understood before they may be guided. ~~Paracelsus
+ - Wherever the art of Medicine is loved, there is also a love of Humanity. ~~Hippocrates
+ - The art of medicine consists in amusing the patient while nature cures the disease. ~~Voltaire
+ - Each morning when I awake, I experience again a supreme pleasure: that of being Salvador Dali. ~~Salvador Dalí
+
+40 quotes

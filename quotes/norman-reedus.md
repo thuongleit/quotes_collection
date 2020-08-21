@@ -1,0 +1,51 @@
+ - I’m a quiet person. I spend time observing, not speaking.
+ - The dogs with the loudest bark are the ones that are most afraid.
+ - I like people who push the envelope.
+ - I’m more of a listener than a talker.
+ - Oh, I love horror movies, yeah.
+ - Getting old and dying alone is my worst fear.
+ - Damaged people gravitate towards damaged people.
+ - I’m certainly honest – and I can be socially awkward.
+ - It’s really easy to take something small and make it big in your head and fight against it.
+ - Slow down, totally. You have to slow down and pay attention to everything.
+ - I’m not a big fan of plastic surgery. Because it looks like you had plastic surgery.
+ - I’m a T-shirt-and-Levi’s type of a guy.
+ - I’ve been a huge Psychedelic Furs fan for a long time. I love Butler’s paintings, too. I like all their songs. I’ll even crank ‘Pretty in Pink,’ I don’t care.
+ - I like playing these awkward moments in between that build relationships. I don’t ever want to play that character that grabs the girl and has my way with her. That’s just not who that character is. If Daryl falls in love with you, he’s going to love you for the rest of his life.
+ - I’m not afraid to take chances or go off on my own.
+ - You feel good inside, you look good outside. I feel like I look like somebody who’s having a good life, who’s enjoying it a little better than I did before.
+ - Do not have regrets. Guilt is a wasted emotion.
+ - I’m in a happy place. I’m very at peace with who I am and what I’m doing and the people around me, so I think I’m probably most ambitious at where I am.
+ - I’ve always said it’s interesting to watch devils cry when angels want to stab you in the back. I like that mixture.
+ - I’m constantly running away from everything. I’m running away from things on a daily basis. I run away from relationships. I run away from responsibilities.
+ - I hate that word, ‘quirky.’ It’s like the worst f – king word in the world.
+ - I don’t think anyone wants to cuddle a zombie.
+ - I’m so fortunate, it’s ridiculous.
+ - My mom, she’s like Why can’t you just do a nice romantic comedy like Jennifer Love Hewitt? And I’m like: Mom, look at me. They just don’t put me in those movies.
+ - Peanut Butter Wolf is my relaxing music, my lunch music, my chilling music.
+ - Oh I love horror movies, yeah. I think my favorite movie growing up was ‘The Omen.’ I actually wanted to be that little kid.
+ - I’m not saying that I don’t like the success of the job, but I really like going to work every day and I really like coming home and feeling satisfied with what I did today.
+ - I went from a very pessimistic person to a very optimistic person sort of overnight, which is very weird. It’s not even the success of my shows. I think it’s the lifestyle change, I really do.
+ - My twenties were carefree in the worst ways. There’s a nice balance now of work ethic and healthy lifestyle and carefree attitude, which is pretty nice. You get to a point where you don’t care so much what people think of you and you care more about yourself.
+ - I’m not afraid of retirement. Retirement sounds like a blast.
+ - I love the crossbow. I mean it’s just fun. Guns are fun, I can’t deny that shooting guns in movies isn’t fun. But a crossbow is pretty rad.
+ - In my trailer, I work out with free weights and do situps and push-ups. I’m just trying to stay lean and active looking.
+ - If a woman is dishonest, that kills it for me. I can’t even talk to her anymore.
+ - When you add up the minutes you spend actually making a movie – the amount of time you spend actually doing your thing in front of a camera – it just isn’t that much. But it’s everything.
+ - People are pretty strange.
+ - I love smashing stuff.
+ - I basically eat a lot of proteins, and I’ve been eating smaller portions of food. I try to eat all locally raised and organic produce.
+ - Yelling Irish, you can sound like an angry Leprechaun.
+ - I think violence has always been popular, way before movies started being made.
+ - I think it’s interesting to have a cool character not look so cool, you know?
+ - I used to hang out with a bunch of old punk rockers when I was a little kid.
+ - I’m one of those people who can watch a stupid movie and end up crying.
+ - When you do television, you have this opportunity to drop these subtle hints everywhere. The way you say things, for example, sometimes those seeds turn into trees.
+ - You do a film and you know where you’re going, you have this material to stretch and play with as much as possible because you know how it ends.
+ - I saw ‘True Blood’ once, and I like the jazzy feel of it and stuff.
+ - I’m still insecure, but when I first started acting, I was really insecure. I glared at a lot of people. I assumed everyone hated me. Somehow that scowl has turned into an acting career.
+ - I’ve shot films in locations that have seemed haunted. I shot a film in a maximum-security prison in Russia. Part of it was on a psychiatric ward – there were definitely some creepy vibes there.
+ - I’ve been camping and stuff, but if you left me in the woods I’d probably just curl up and cry until someone found me.
+ - You can’t not look cool with a crossbow.
+
+49 quotes

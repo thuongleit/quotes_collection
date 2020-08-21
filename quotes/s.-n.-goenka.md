@@ -1,0 +1,22 @@
+ - Work diligently. Diligently. Work patiently and persistently. Patiently and persistently. And you’re bound to be successful. Bound to be successful.
+ - Vipassana is the art of living. Not the art of escaping.
+ - If there is no peace in the minds of individuals, how can there be peace in the world? Make peace in your own mind first.
+ - Observe the reality as it is. As it is, not as you wish it to be. Perhaps your breath is deep. Perhaps your breath is shallow. Perhaps you breathed in through the left nostril. Perhaps you breathed in through the right nostril. It makes no difference.
+ - Discover real peace and harmony within yourself, and naturally this will overflow to benefit others.
+ - For real happiness, for real lasting stable happiness, one has to make a journey deep within oneself and see that one gets rid of all the unhappiness and misery stored in the deeper levels of the mind.
+ - Peace and negativity cannot coexist just as light and darkness cannot coexist.
+ - One learns the art of dying by learning the art of living: how to become master of the present moment.
+ - The consequences of today are determined by the actions of the past. To change your future, alter your decisions today.
+ - When one experiences truth, the madness of finding fault with others disappears.
+ - The only conversion involved in Vipassana is from misery to happiness, from bondage to liberation.
+ - Love with attachment consists of waves of emotion, usually creating invisible iron chains.
+ - We cannot live in the past; it is gone. Nor can we live in the future; it is forever beyond our grasp. We can live only in the present. If we are unaware of our present actions, we are condemned to repeating the mistakes of the past and can never succeed in attaining our dreams for the future.
+ - Rather than converting people from one organised religion to another organised religion, we should try to convert people from misery to happiness, from bondage to liberation and from cruelty to compassion.
+ - Removing old conditionings from the mind and training the mind to be more equaimous with every experience is the first step toward enabling one to experience true happiness.
+ - The mind spends most of the time lost in fantasies and illusions, reliving pleasant or unpleasant experiences and anticipating the future with eagerness or fear. While lost in such cravings or aversions, we are unaware of what is happening now, what we are doing now.
+ - Grasping at things can only yield one of two results: Either the thing you are grasping at disappears, or you yourself disappear. It is only a matter of which occurs first.
+ - The Buddha never taught a sectarian religion; he taught Dhamma – the way to liberation – which is universal.
+ - If we can develop the ability to be aware of the present moment, we can use the past as a guide for ordering our actions in the future, so that we may attain our goal.
+ - One has to live in the present. Whatever is past is gone beyond recall; whatever is future remains beyond one’s reach, until it becomes present. Remembering the past and giving thought to the future are important, but only to the extent that they help one deal with the present.
+
+20 quotes

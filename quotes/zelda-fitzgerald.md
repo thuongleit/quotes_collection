@@ -1,0 +1,56 @@
+ - She quietly expected great things to happen to her, and no doubt that’s one of the reasons why they did.
+ - Nobody has ever measured, not even poets, how much the heart can hold.
+ - I don’t want to live. I want to love first, and live incidentally.
+ - Look closer and you’ll see something extraordinary, mystifying, something real and true. We have never been what we seemed.
+ - All I want to be is very young always and very irresponsible and to feel that my life is my own-to live and be happy and die in my own way to please myself.
+ - Don’t you think I was made for you? I feel like you had me ordered – and I was delivered to you – to be worn. I want you to wear me, like a watch-charm or a buttonhole bouquet.
+ - Something in me vibrates to a dusky, dreamy smell of dying moons and shadows.
+ - It is the loose ends with which men hang themselves.
+ - Life has puffed and blown itself into a summer day, and clouds and spring billow over the heavens as if calendars were a listing of mathematical errors.
+ - She refused to be bored chiefly because she wasn’t boring.
+ - Why is there happiness and comfort and excitement where you are and no where else in the world.
+ - I love you, even if there isn’t any me, or any love, or even any life. I love you.
+ - I take a sun bath and listen to the hours, formulating, and disintegrating under the pines, and smell the resiny hardihood of the high noon hours. The world is lost in a blue haze of distances, and the immediate sleeps in a thin and finite sun.
+ - I am really only myself when I’m somebody else whom I have endowed with these wonderful qualities from my imagination.
+ - I wish I could write a beautiful book to break those hearts that are soon to cease to exist: a book of faith and small neat worlds and of people who live by the philosophies of popular songs.
+ - Death is the only real elegance.
+ - Most people hew the battlements of life from compromise, erecting their impregnable keeps from judicious submissions, fabricating their philosophical drawbridges from emotional retractions and scalding marauders in the boiling oil of sour grapes.
+ - Nothing could have survived our life.
+ - Being in love, she concluded, is simply a presentation of our pasts to another individual, mostly packages so unwieldy that we can no longer manage the loosened strings alone.
+ - The purpose of life on earth is that the soul should grow – So Growl By doing what is right.
+ - I remember every single spot of light that ever gouged a shadow beside your bones.
+ - Women sometimes seem to share a quiet, unalterable dogma of persecution that endows even the most sophisticated of them with the inarticulate poignancy of the peasant.
+ - Women, despite the fact that nine out of ten of them go through life with a death-bed air either of snatching-the-last-moment or with martyr-resignation, do not die tomorrow – or the next day. They have to live on to any one of many bitter ends.
+ - There seemed to be some heavenly support beneath his shoulder blades that lifted his feet from the ground in ecstatic suspension, as if he secretly enjoyed the ability to fly but was walking as a compromise to convention.
+ - Youth doesn’t need friends – it only needs crowds.
+ - Love is bitter and all there is, and that the rest is for the emotional beggars of the earth.
+ - Oh, the secret life of man and woman – dreaming how much better we would be than we are if we were somebody else or even ourselves, and feeling that our estate has been unexploited to its fullest.
+ - A vacuum can only exist, I imagine, by the things which enclose it.
+ - Why should all life be work, when we all can borrow. Let’s think only of today, and not worry about tomorrow.
+ - Mr. Fitzgerald-I believe that is how he spells his name-seems to believe that plagiarism begins at home.
+ - I can’t read or sleep. Without hope or youth or money I sit constantly wishing I were dead.
+ - A southern moon is a sodden moon, and sultry. When it swamps the fields and the rustling sandy roads and the sticky honeysuckle hedges in its sweet stagnation, your fight to hold on to reality is like a protestation against a first waft of ether.
+ - Other people’s ideas of us are dependent largely on what they’ve hoped for.
+ - I believed I was a salamander, and it seems I am nothing but an impediment.
+ - We grew up founding our dreams on the infinite promise of American advertising.
+ - Father said conflict develops the character.
+ - It’s terrible to allow conventional habits to gain a hold on a whole household; to eat, sleep and live by clock ticks.
+ - By the time a person has achieved years adequate for choosing a direction, the die is cast and the moment has long since passed which determined the future.
+ - There’s nothing on earth to do here but look at the view and eat. You can imagine the result since I do not like to look at views.
+ - Spinach and champagne. Going back to the kitchens at the old Waldorf. Dancing on the kitchen tables, wearing the chef’s headgear. Finally, a crash and being escorted out by the house detectives.
+ - I suppose all we can really share with people is a taste for the same kinds of weather.
+ - Why do we spend years using up our bodies to nurture our minds with experience and find our minds turning then to our exhausted bodies for solace?
+ - Anything incomprehensible has a sexual significance to many people under thirty-five.
+ - Millie Beggs, by the time she was forty-five, had become an emotional anarchist.
+ - Nobody has ever been able to experience what they have thoroughly understood – or understand what they have experienced until they have achieved a detachment that renders them incapable of repeating the experience.
+ - They hadn’t much faith in travel, nor a great belief in a change of scene as a panacea for spiritual ills; they were simply glad to be going.
+ - Nothing annoys me more than having the most trivial action analyzed and explained.
+ - Oh, we are going to be so happy away from all the things that almost got us but couldn’t quite because we were too smart for them!
+ - One illusion is as good as another.
+ - We grew up founding our dreams on the infinite promise of American advertising. I still believe that one can learn to play the piano by mail and that mud will give you a perfect complexion.
+ - Emptying the ashtrays was very expressive of myself. i just lump everything in a great heap which i have labeled ‘the past,’ and having thus emptied this deep reservoir that was once myself, i am ready to continue.
+ - We get something to do and as soon as we’ve got it, it gets us.
+ - People are like almanacs, Bonnie – you never can find the information you’re looking for, but the casual reading is well worth the trouble.
+ - Experience teaches you how to do things you never want to do again.
+
+54 quotes

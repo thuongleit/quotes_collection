@@ -1,0 +1,67 @@
+ - The living are just the dead on holiday.
+ - At every crossroads on the path that leads to the future, tradition has placed 10,000 men to guard the past.
+ - No living creature, not even man, has achieved, in the centre of his sphere, what the bee has achieved in her own: and were some one from another world to descend and ask of the earth the most perfect creation of the logic of life, we should needs have to offer the humble comb of honey.
+ - If the bee disappeared off the face of the earth, man would only have four years left to live.
+ - When we lose one we love, our bitterest tears are called forth by the memory of hours when we loved not enough.
+ - An obstacle is not a discouragement. It may become one, but only with our own consent. So long as we refuse to be discouraged, we cannot be discouraged.
+ - How strangely do we diminish a thing as soon as we try to express it in words.
+ - Wisdom requires no form; her beauty must vary, as varies the beauty of flame. She is no motionless goddess, for ever couched on her throne.
+ - Remember that happiness is as contagious as gloom. It should be the first duty of those who are happy to let others know of their gladness.
+ - Can we conceive what humanity would be if it did not know the flowers?
+ - The thoughts you think will irradiate you as though you are a transparent vase.
+ - All our knowledge merely helps us to die a more painful death than animals that know nothing.
+ - I count only the hours that are serene.
+ - The future is a world limited by ourselves; in it we discover only what concerns us and, sometimes, by chance, what interests those whom we love the most.
+ - An act of goodness is of itself an act of happiness. No reward coming after the event can compare with the sweet reward that went with it.
+ - The hour of justice does not strike On the dials of this world.
+ - An act of goodness is of itself an act of happiness.
+ - I have done what I could do in life, and if I could not do better, I did not deserve it. In vain I have tried to step beyond what bound me.
+ - All mothers are rich when they love their children. There are no poor mothers, no ugly ones, no old ones. Their love is always the most beautiful of joys.
+ - No great inner event befalls those who summon it not.
+ - It is death that is the guide of our life, and our life has no goal but death.
+ - To be good we must needs have suffered; but perhaps it is necessary to have caused suffering before we can become better.
+ - Men’s weaknesses are often necessary to the purposes of life.
+ - What man is there that does not laboriously, though all unconsciously, himself fashion the sorrow that is to be the pivot of his life.
+ - It is only in the space that our thoughts and our feelings enclose that our happiness can breathe in freedom.
+ - Nothing in the whole world is so athirst for beauty as the soul, nor is there anything to which beauty clings so readily.
+ - I am moved by the light.
+ - If you love yourself meanly, childishly, timidly, even so shall you love your neighbor.
+ - Above all, let us never forget that an act of goodness is in itself an act of happiness. It is the flower of a long inner life of joy and contentment; it tells of peaceful hours and days on the sunniest heights of our soul.
+ - To have known how to change the past into a few saddened smiles-is this not to master the future?
+ - It is far more important that one’s life should be perceived than that it should be transformed; for no sooner has it been perceived, than it transforms itself of its own accord.
+ - To be happy is only to have freed one’s soul from the unrest of unhappiness.
+ - The true sage is not he who sees, but he who, seeing the furthest, has the deepest love for mankind.
+ - We are never the same with others as when we are alone. We are different, even when we are in the dark with them.
+ - The truth that seems discouraging does in reality only transform the courage of those strong enough to accept it; and, in any event, a truth that disheartens, because it is true, is still of far more value than the most stimulating of falsehoods.
+ - Sacrifice may be a flower that virtue will pluck on its road, but it was not to gather this flower that virtue set forth on its travels.
+ - Our reason may prove what it will: our reason is only a feeble ray that has issued from Nature.
+ - The dog who meets with a good master is the happier of the two.
+ - Happiness is rarely absent; it is we that know not of its presence.
+ - We can never judge a soul above the high water mark of our own.
+ - The dog is the only living being that has found and recognizes an indubitable, tangible and definite god. He knows to whom above him to give himself. He has not to seek for a superior and infinite power.
+ - I knew that if I was captured by the Germans I would be shot at once, since I have always been counted as an enemy of Germany because of my play, Le Bourgmestre de Stillemonde, which dealt with the conditions in Belgium during the German Occupation of 1918.
+ - It’s good to slowly come to the realization that you understand nothing.
+ - The value of ourselves is but the value of our melancholy and our disquiet.
+ - Many a happiness in life, as many a disaster, can be due to chance, but the peace within us can never be governed by chance.
+ - He who sees without loving is only straining his eyes in the darkness.
+ - Most creatures have a vague belief that a very precarious hazard, a kind of transparent membrane, divides death from love; and that the profound idea of nature demands that the giver of life should die at the moment of giving.
+ - In the world which we know, among the different and primitive geniuses that preside over the evolution of the several species, there exists not one, excepting that of the dog, that ever gave a thought to the presence of man.
+ - You do well to have visions of a better life than of every day, but it is the life of every day from which the elements of a better life must come.
+ - It is the evil that lies in ourselves that is ever least tolerant of the evil that dwells within others.
+ - To disdain today is to prove that yesterday has been misunderstood.
+ - Is not every action of Hamlet induced by a fanatical impulse, which tells him that duty consists in revenge alone? And dose it need superhuman efforts to recognize that revenge never can be duty? I say again that Hamlet thinks much, but that he is by no means wise.
+ - A truth that disheartens because it is true is of more value than the most stimulating of falsehoods.
+ - I have never for one instant seen clearly within myself. How then would you have me judge the deeds of others?
+ - It is not from reason that justice springs, but goodness is born of wisdom.
+ - Happiness will never be any greater than the idea we have of it.
+ - Physical suffering apart, not a single sorrow exists that can touch us except through our thoughts.
+ - There comes no adventure but wears to our soul the shape of our everyday thoughts.
+ - Once at a potent leader’s voice I stayed; Once I went back when a good monarch prayed; Mortals, howe’er we grieve, howe’er deplore, The flying shadow will return no more.
+ - There is no soul that does not respond to love, for the soul of man is a guest that has gone hungry these centuries back.
+ - Justice is the very last thing of all wherewith the universe concerns itself. It is equilibrium that absorbs its attention.
+ - The souls of all our brethren are ever hovering about us, craving for a caress, and only waiting for the signal.
+ - They believe that nothing will happen because they have closed their doors.
+ - And on this earth of ours there are but few souls that can withstand the dominion of the soul that has suffered itself to become beautiful.
+ - We possess only the happiness we able to understand.
+
+65 quotes

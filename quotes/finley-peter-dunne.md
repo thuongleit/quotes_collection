@@ -1,0 +1,45 @@
+ - Trust everybody, but cut the cards.
+ - A game you play with your own worst enemy-yourself.
+ - One of the strangest things about life is that the poor, who need the money the most, are the ones that never have it.
+ - Opportunity knocks at every man’s door once. On some men’s door it hammers till it breaks down the door and then it goes in and wakes him up if he’s asleep, and ever afterward it works for him as a night watchman.
+ - Swearing was invented as a compromise between running away and fighting.
+ - Meditation is a gift confined to unknown philosophers and cows. Others don’t begin to think till they begin to talk or write.
+ - What is instinct? It is the natural tendency in one when filled with dismay to turn to his wife.
+ - No matter whether the Constitution follows the flag or not, the Supreme Court follows the election returns.
+ - There are no friends at cards or world politics.
+ - Stories are meant to comfort the afflicted, and afflict the comfortable.
+ - Freedom is like drink. If you take any at all, you might as well take enough to make you happy for a while.
+ - A man never becomes an orator if he has anything to say.
+ - An appeal is when you ask one court to show its contempt for another court.
+ - I wonder why you can always read a doctor’s bill and you can never read his prescription.
+ - High finance isn’t burglary or obtaining money by false pretenses, but rather a judicious selection from the best features of those fine arts.
+ - If Christian scientists had more science and doctors more Christianity, it wouldn’t make any difference which you called in – if you had a good nurse.
+ - Histhry is a post-mortem examination. It tellsye what a counthry died iv. But I’d like to know what it lived iv.
+ - A lie with a purpose is one of the worst kind, and the most profitable.
+ - Alcohol is necessary for a man so that he can have a good opinion of himself, undisturbed by the facts.
+ - To most people a savage nation is wan that doesn’t wear oncomf’rtable clothes.
+ - The world is not growing worse and it is not growing better – it is just turning around as usual.
+ - A Mormon is a man that has the bad taste and the religion to do what a good many other people are restrained from doing by conscientious scruples and the police.
+ - Vice goes along way towards making life bearable. A little vice now and then is relished by the best of men.
+ - The wise people are in New York because the foolish went there first, that’s the way the wise men make a living.
+ - Work is work if you’re paid to do it, and it’s a pleasure if you pay to be allowed to do it.
+ - Drink never made a man better, but it has made many a man think he was better.
+ - What’s wan man’s news is another man’s throubles.
+ - A man’s idee in a card game is war.
+ - A fanatic is a man that does what he thinks the Lord would do if He knew the facts of the case.
+ - A man’s idea in a game of cards is war, cruel, devastating, and pitiless. A lady’s idea of it is a combination of larceny, embezzlement and burglary.
+ - A rayformer thinks he was ilicted because he was a rayformer, whin th thruth iv th matther is he was ilicted because no wan knew him.
+ - When the American people get through with the English language, it will look as if it had been run over by a musical comedy.
+ - The only good husbands stay bachelors: They’re too considerate to get married.
+ - There aint any news in being good. You might write the doings of all the convents of the world on the back of a postage stamp, and have room to spare.
+ - Many a man that could rule a hundherd millyon sthrangers with an ir’n hand is careful to take off his shoes in the front hallway whin he comes home late at night.
+ - The last man that makes a joke owns it.
+ - A man can be right and president, but he can’t be both at the same time.
+ - Most vegetarians I ever see looked enough like their food to be classed as cannibals.
+ - The American nation in the sixth ward is a fine people; they love the eagle – on the back of a dollar.
+ - If ye live enough befure thirty ye won’t care to live at all afther fifty.
+ - It don’t make much difference what you study, so long as you don’t like it.
+ - Don’t jump on a man unless he is down.
+ - I niver knew a pollytician to go wrong ontil he’s been contaminated by contact with a business man.
+
+43 quotes

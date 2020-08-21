@@ -1,0 +1,72 @@
+ - Throughout history, it has been the inaction of those who could have acted; the indifference of those who should have known better; the silence of the voice of justice when it mattered most; that has made it possible for evil to triumph.
+ - There is no power or authority without responsibility, and he who accepts the one cannot escape or evade the other.
+ - You must always remember that to lead, one must first learn to follow...
+ - It is important that spiritual advancement must keep pace with material advancement...
+ - A house built on granite and strong foundations, not even the onslaught of pouring rain, gushing torrents and strong winds will be able to pull down.
+ - We should accept diversity in culture and tradition and coexist peacefully...
+ - Knowledge is power. If it is not applied properly to create, let there be no doubts, it will destroy.
+ - Imagination, devotion, perseverance, together with divine grace, will assure your success.
+ - Do not worship me, I am not God. I’m only a man. I worship Jesus Christ.
+ - A well organized education should not be one which prepares students for a good remuneration alone. It should be one that can help and guide them towards acquiring clear thinking, a fruitful mind, and an elevated spirit.
+ - Man cannot live by bread alone. Man after all is composed of intellect and soul.
+ - If you are open-minded and ready to learn, there are many things which you can learn not only from books and instructores but form the very life experience itself.
+ - Leadership does not mean domination. The world is always well supplied with people who wish to rule and dominate others.
+ - Place principle above all else.
+ - The fruits of one’s sweat and mental labour are always rewarding.
+ - Knowledge paves the way to Love, and Love in its turn fosters understanding, and leads one along the path of great common achievements.
+ - There is always something moving, brewing. There are ambitious people everywhere. Wicked people. The only thing to do is to deal with them with courage and decision. One must beware of uncertainty, weakness or conflicting emotions – they lead to defeat.
+ - Feel the needs of others more than your own.
+ - Leadership does not mean domination.
+ - There is no safer anchorage for our learning, our lives, and our public actions than that provided by Divine teachings...
+ - Many discouraging hours will arise before the rainbow of accomplished goals will appear on the horizon.
+ - Democracy, Republic: What do these words signify? What have they changed in the world? Have men become better, more loyal, kinder? Are the people happier? All goes on as before, as always. Illusions, illusions.
+ - It is both the duty and responsibility of the world’s fortunate few to help fulfil the legitimate aspirations of the unfortunate many.
+ - We all wish to live. We all seek a world in which men are freed of the burdens of ignorance, poverty, hunger and disease. And we shall all be hard-pressed to escape the deadly rain of nuclear fall-out should catastrophe overtake us.
+ - We must make progress slowly so as to preserve the progress we have already made.
+ - We must act to shape and mold the future, and leave our imprint on events as they slip past into history.
+ - The true leader is a different sort; he seeks effective activity which has a truly beneficient purpose. He inspires others to follow in his wake, and holding aloft the torch of wisdom, leads the way for society to realize its genuinely great aspirations.
+ - A man who says “I have learned enough and will learn no further” should be considered as knowing nothing at all.
+ - It is much easier to show compassion to animals. They are never wicked.
+ - History teaches us that unity is strength, and cautions us to submerge and overcome our differences in the quest for common goals, to strive, with all our combined strength, for the path to true African brotherhood and unity.
+ - No one should question the faith of others, for no human being can judge the ways of God.
+ - Every labourer is a father, his labour is his child. Choose your project carefully and achieve it worthily.
+ - Education develops the intellect; and the intellect distinguishes man from other creatures. It is education that enables man to harness nature and utilize her resources for the well-being and improvement of his life.
+ - Let us set our goals too high; let us demand more of ourselves than we believe we possess.
+ - Any who may wish to profit himself alone from the knowledge given him, rather than serve others through the knowledge he has gained from learning, is betraying knowledge and rendering it worthless.
+ - We have finished the job, what shall we do with the tools?
+ - An awareness of our past is essential to the establishment of our personality and our identity as Africans.
+ - If a strong government finds that it can, with impunity, destroy a weak people, then the hour has struck for that weak people to appeal to the League of Nations to give its judgment in all freedom. God and history will remember your judgment.
+ - Outside the kingdom of the Lord there is no nation which is greater than any other. God and history will remember your judgment.
+ - Peace demands the united efforts of us all. Who can foresee what spark might ignite the fuse?
+ - We must become bigger than we have been: more courageous, greater in spirit, larger in outlook. We must become members of a new race, overcoming petty prejudice, owing our ultimate allegiance not to nations but to our fellow men within the human community.
+ - Everyone, in all walks of life, regardless of his professional occupation should feel concerned and play an active role to solve such problems which affect mankind...
+ - Spiritual power is the eternal guide, in this life and the life after, for man ranks supreme among all creatures. Led forward by spiritual power, man can reach the summit destined for him by the Great Creator.
+ - There is nothing as precious to man as a sound mind in a sound body and it is essential that the physical well being of our people merits as much attention as its spiritual welfare.
+ - Peace is a day-to-day problem, the product of a multitude of events and judgments. Peace is not an ‘is,’ it is a ‘becoming.’
+ - It is not only war that can stop war but men of goodwill, conscious of their mission can deal with such deadly enemy...
+ - Mahatma Gandhi will always be remembered as long as free men and those who love freedom and justice live.
+ - Thousands of years ago, civilizations flourished in Africa which suffer not at all by comparison with those of other continents. In those centuries, Africans were politically free and economically independent. Their social patterns were their own and their cultures truly indigenous.
+ - One cannot deny that in former times man’s life had been one of toil and hardship. It is correct to say, therefore, that modern civilization and the progress of science have greatly improved man’s life and have brought comfort and ease in their trail.
+ - As man’s faculty attains higher level of development and sophistication, so do his wants in life.
+ - In the history of the human race, those periods which later appeared as great have been the periods when the men and the women belonging to them had transcended the differences that divided them and had recognized in their membership in the human race a common bond.
+ - The Charter of the United Nations expresses the noblest aspirations of man.
+ - Unity should be the cornerstone of relations.
+ - Until all Africans stand and speak as free human beings, equal in the eyes of the Almighty; until that day, the African continent shall not know peace.
+ - I have lived too long to cherish many illusions about the essential high-mindedness of men when brought into stark confrontation with the issue of control over their security, and their property interests.
+ - A well informed public opinion is essential to the growth of political and social awareness. Only he who is informed can comment intelligently on his nation’s development and only by such comments can errors be corrected and progress stimulated.
+ - A purely materialistic art would be like a tree which is expected to bear fruit without flowering and to sacrifice grace and beauty for mere utility.
+ - I have heard of that idea. I also met certain Rastafarians. I told them clearly that I am a man, that I am mortal and that they should never make a mistake in assuming or pretending that a human being is emanated from a deity.
+ - Observe that anyone who dies for his country is a fortunate man, but death takes what it wants, indiscriminately, in peace-time as well as in war. It is better to die with freedom than without it.
+ - This world was not created piecemeal. Africa was born no later and no earlier than any other geographical area on this globe. Africans, no more and no less than other men, possess all human attributes, talents and deficiencies, virtues and faults.
+ - A purely materialistic art would be...
+ - If each and everyone endeavours to cooperate and work in as much as his capacity permits, our faith rests upon the Almighty God that he would bless the results for us.
+ - Conflicts between nations will continue to arise. The real issue is whether they are to be resolved by force, or by resort to peaceful methods and procedures, administered by impartial institutions.
+ - The United Nations continues to sense as the forum where nations whose interests clash may lay their cases before world opinion.
+ - As is commonly said, ‘to start anything is simple; to develop it and bring it to a successful culmination takes great effort.’
+ - Misguided people sometimes create misguided ideas. Some of my ancestors were Oromo. How can I colonize myself?
+ - Democracy, republics: What do these words signify?
+ - We have decided to bring to an end the most unequal, most unjust, most barbarous war of our age, and have chosen the road to exile in order that our people will not be exterminated and in order to consecrate ourselves wholly and in peace to the preservation of our empire’s independence.
+ - Here is our opportunity and our challenge. If the nuclear powers are prepared to declare a truce, let us seize the moment to strengthen the institutions and procedures which will serve as the means for the pacific settlement of disputes among men.
+ - Today I stand before the world organization which has succeeded to the mantle discarded by its discredited predecessor.
+
+70 quotes

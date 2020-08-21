@@ -1,0 +1,61 @@
+ - Music will save the world.
+ - To the whole world you might be just one person, but to one person you might just be the whole world.
+ - The situation is hopeless, we must take the next step.
+ - Music is the divine way to tell beautiful, poetic things to the heart...
+ - Each second we live is a new and unique moment of the universe; a moment that never was before and never will be again.
+ - I don’t have hobbies. I have passions.
+ - I feel the capacity to care is the thing which gives life its deepest significance.
+ - The greatest respect an artist can pay to music is to give it life.
+ - Don’t be vain because you happen to have talent. You are not responsible for that; it was not of your doing. What you do with your talent is what matters.
+ - The love of one’s country is a splendid thing. But why should love stop at the border? There is a brotherhood among all men. This must be recognized if life is to remain. We must learn the love of man.
+ - To live is not enough; we must take part.
+ - I used to think that eighty was a very old age. Now I am ninety. I do not think this any more. As long as you are able to admire and to love, you are young.
+ - The child must know that he is a miracle, that since the beginning of the world there hasn’t been, and until the end of the world there will not be, another child like him.
+ - To retire is to begin to die.
+ - It takes courage for people to listen to their own goodness and act on it.
+ - The cello is like a beautiful woman who has not grown older, but younger with time, more slender, more supple, more graceful.
+ - We ought to think that we are one of the leaves of a tree, and the tree is all humanity. We cannot live without the others, without the tree.
+ - If you play Bach every day, you are not so alone.
+ - The earth becomes heaven when you release your fear. The main thing in life is not to be afraid of being human.
+ - When you play Bach like Chopin, and Chopin like Bach, something good happens.
+ - The heart of the melody can never be put down on paper.
+ - The first thing to do in life is to do with purpose what one purposes to do.
+ - The person who works and is never bored is never old. Work and interest in worthwhile things are the best remedy for age.
+ - Parents shouldn’t lie to their children-not even when they think it’s for their own good. Even a little lie is dangerous...
+ - The child must know that he is a miracle, that since the beginning of the...
+ - The truly important things in life – love, beauty, and one’s own uniqueness – are constantly being overlooked.
+ - Thank God, I’ll never have to play the cello again.
+ - I see in the melody of Nature, God. It is a wonderful work of art. The spirit of the art is wonderful. And I feel that I am myself because I have never taken music lightly. Music is the manifestation of God, like everything else.
+ - Don’t play the notes. Play the meaning of the notes.
+ - You do not lose your value or preciousness when you grow to be a adult. You are still that miraculous creation. You must work, we must all work, to make the world worthy of its children.
+ - What do we teach our children? We teach them that two and two make four, and that Paris is the capital of France. When will we also teach them what they are?
+ - Resist doing things that have no meaning for life.
+ - Each person has inside a basic decency and goodness. If he listens to it and acts on it, he is giving a great deal of what it is the world needs most. It is not complicated but it takes courage. It takes courage for a person to listen to his own goodness and act on it.
+ - The most important thing in music is what is not in the notes.
+ - Of course, I continue to play and to practice. I think I would do so if I lived for another hundred years.
+ - Throughout my career, nervousness and stage-fright have never left me before playing. And each of the thousands of concerts I have played at, I feel as bad as I did the very first time.
+ - Man has made many machines, complex and cunning, but which of them indeed rivals the workings of his heart?
+ - Music must serve a purpose; it must be a part of something larger than itself, a part of humanity...
+ - Say things to the world that are true.
+ - Do we dare be ourselves? That is the question that counts.
+ - The only weapons I ever had were my cello and my baton.
+ - For twelve years I studied and worked at them every day, and I was nearly 25 before I had the courage to play one of them in public. Before I did, no violinist or cellist had ever played a Suite in its entirety.
+ - I have always regarded manual labour as creative and looked with respect-and, yes, wonder-at people who work with their hands. It seems to me that their creativity is no less than that of a violinist or painter.
+ - I am a very simple man. I am a man first, an artist second. My first obligation is to the welfare of my fellow man. I will endeavour to meet this obligation through music, since it transcends language, politics and national boundaries.
+ - Every wrong seems possible today, and is accepted. I don’t accept it.
+ - When we play an unaccompanied Bach suite we may compare ourselves to an actor in Shakespeare’s day, creating scenery which did not exist at all, through the power of declamation and suggestion. So in Bach. There is but one voice – and many voices have to be suggested.
+ - We are not free to walk on our neighbor’s toes.
+ - The simplest things in music are the ones that count. The simplest thing are, of course, also the most difficult to achieve and take years of work.
+ - As long as one can admire and love, then one is young forever.
+ - You must work, we must all work, to make the world worthy of its children.
+ - Kenneth Hari’s art work shall influence mankind.
+ - The art of not playing in tempo – one has to learn it. And the art of not playing what is written on the printed paper.
+ - The art of interpretation is not to play what is written.
+ - I am an old man, but in many senses a very young man. And this is what I want you to be, young, young all your life.
+ - Let us not forget that the greatest composers were also the greatest thieves. They stole from everyone and everywhere.
+ - I do not think a day passes in my life in which I fail to look with fresh amazement at the miracle of nature.
+ - For me, Bach is like Shakespeare. He has known all and felt all. He is everything.
+ - The most perfect technique is that which is not noticed at all.
+ - Real understanding does not come from what we learn in books; it comes from what we learn from love of nature, of music, of man. For only what is learned in that way is truly understood.
+
+59 quotes

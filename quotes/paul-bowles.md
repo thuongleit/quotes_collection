@@ -1,0 +1,29 @@
+ - How fragile we are under the sheltering sky. Behind the sheltering sky is a vast dark universe, and we’re just so small.
+ - Security is a false God. Begin to make sacrifices to it and you are lost.
+ - Life is lived only once. And the less seriously the better.
+ - The only effort worth making is the one it takes to learn the geography of one’s own nature.
+ - How many more times will you watch the full moon rise? Perhaps twenty. And yet it all seems limitless.
+ - There is a way to master silence Control its curves, inhabit its dark corners And listen to the hiss of time outside.
+ - Because neither she nor Port had ever lived a life of any kind of regularity, they had both made the fatal error of coming hazily to regard time as non-existent. One year was like another year. Eventually everything would happen.
+ - The soul is the weariest part of the body.
+ - A black star appears, a point of darkness in the night sky’s clarity. Point of darkness and gateway to repose. Reach out, pierce the fine fabric of the sheltering sky, take repose.
+ - The sky hides the night behind it and shelters the people beneath from the horror that lies above.
+ - We’ve never managed, either one of us, to get all the way into life. We’re hanging on to the outside for all we’re worth, convinced we’re going to fall off at the next bump.
+ - Since the world began has any man ever been able to know what would happen tomorrow? The world of men is today. I’m asking you to open your heart today. Tomorrow belongs to Allah...
+ - If people and their manner of living were alike everywhere, there would not be much point in moving from one place to another.
+ - One never took the time to savour the details; one said: another day, but always with the hidden knowledge that each day was unique and fatal, that there never would be a return, another time.
+ - Not all the ravages caused by our merciless age are tangible ones. The subtler forms of destruction, those involving only the human spirit, are the most to be dreaded.
+ - If you don’t know why you like a thing, it is usually worth your while to attempt to find out.
+ - That was what he wanted, to be baked dry and hard, to feel the vaporous worries evaporating one by one, to know finally that all the damp little doubts and hesitations that covered the floor of his being were curling up and expiring in the great furnace-blast of the sun.
+ - She was saved from prettiness by the intensity of her gaze.
+ - Illness reduces man to his basic state: a cloaca in which the chemical processes continue. The meaningless hegemony of the involuntary.
+ - No one can ever heap enough insults upon me to suit my taste. I think we all really thrive on hostility, because it’s the most intense kind of massage the ego can undergo. Other people’s indifference is the only horror.
+ - Everyone is isolated from everyone else. The concept of society is like a cushion to protect us from the knowledge of that isolation. A fiction that serves as an anesthetic.
+ - Every second, ten stars set behind the black water in the west.
+ - The act of living had been enjoyable; at some point when I was not paying attention, it had turned into a different sort of experience, to whose grimness I had grown so accustomed that I now took it for granted.
+ - It’s very hard to write about that which is always beautiful and pleasant and good. You don’t get anywhere with it. There’s no friction in it. There’s no trouble. You have to have trouble. Somebody’s got to get in trouble, or no one wants to read it.
+ - Publishers are thieves, they are on the other side of the barricade.
+ - It was one of the charms of the International Zone that you could get anything you wanted if you paid for it. Do anything, too, for that matter; – there were no incorruptibles. It was only a question of price.
+ - Fiction should always steer clear of political considerations.
+
+27 quotes

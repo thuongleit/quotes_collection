@@ -1,0 +1,54 @@
+ - All beginnings are hard.
+ - Honest differences of opinion should never be permitted to destroy a friendship.
+ - I’ve begun to realize that you can listen to silence and learn from it. It has a quality and a dimension all its own.
+ - A word is worth one coin, silence is worth two.
+ - Two people who are true friends are like two bodies with one soul.
+ - In other words, Judaism is not Calvinism.
+ - A span of life is nothing. But the man who lives that span, he is something. He can fill that tiny span with meaning, so its quality is immeasurable though its quantity may be insignificant.
+ - I have faith in the Torah. I am not afraid of truth.
+ - It is when you are angry that you must watch how you talk.
+ - Come, let us have some tea and continue to talk about happy things.
+ - No one knows he is fortunate until he becomes unfortunate, that’s the way the world is.
+ - He taught them that the purpose of a man is to make his life holy – every aspect of his life: eating, drinking praying, sleeping. God is everywhere, he told them, and if it seems at times that He is hidden from us, it is only because we have not yet learned to seek Him correctly.
+ - Art is a person’s private vision expressed in aesthetic forms.
+ - I do not have many things that are meaningful to me. Except my doubts and my fears. And my art.
+ - I do not know what evil is when it comes to art. I only know what is good art and what is bad art.
+ - I won’t talk to you about my family and you won’t talk to me about yours. Family talk is either boring or self-pitying. Or it’s Gothic, like a Faulkner novel. Who needs to talk about it? It’s enough to live it.
+ - Something that is yours forever is never precious.
+ - If a person has a contribution to make, he must make it in public. If learning is not made public, it is a waste.
+ - As you grow older you will discover that the most important things that will happen to you will often come as a result of silly things, as you call them – “ordinary things” is a better expression. That is the way the world is.
+ - Truth has to be given in riddles. People can’t take truth if it comes charging at them like a bull. The bull is always killed. You have to give people the truth in a riddle, hide it so they go looking for it and find it piece by piece; that way they learn to live with it.
+ - The span of a man’s life – that is nothing. But what a man makes of that span – that is something. A man must make his own meaning for life. Meaning is not automatically given to life.
+ - I think the hardest part of writing is revising. And by that I mean the following: A novelist has to create the piece of marble and then chip away to find the figure in it.
+ - Each generation thinks it fights new battles. But the battles are the same. Only the people are different.
+ - As a species we are always hungry for new knowledge.
+ - A man must fill his life with meaning, meaning is not automatically given to life.
+ - Seeds must be sown everywhere. Only some will bear fruit. But there would not be the fruit from the few had the many not been sown.
+ - Art is whether or not there is a scream in him wanting to get out in a special way.
+ - A book is sent out into the world, and there is no way of fully anticipating the responses it will elicit. Consider the responses called forth by the Bible, Homer, Shakespeare – let alone contemporary poetry or a modern novel.
+ - We need to listen to one another.
+ - You have to want to listen to it, and then you can hear it. It has a strange, beautiful texture. It doesn’t always talk. Sometimes-sometimes it cries, and you can hear the pain of the world in it. It hurts to listen to it then. But you have to.
+ - Two hundred or more years ago most people on the planet were never aware of any reality other than the one into which they were brought up.
+ - I don’t work on my Sabbath. I write five-and-a-half or six days a week.
+ - Yes, there is some thought about making a film of My Name Is Asher Lev.
+ - All of us grow up in particular realities – a home, family, a clan, a small town, a neighborhood. Depending upon how we’re brought up, we are either deeply aware of the particular reading of reality into which we are born, or we are peripherally aware of it.
+ - To the extent that I come from a deeply religious tradition and have been contending with those beginnings all of my life – that constitutes the subject of much of my early fiction.
+ - There is in my work a very strong religious foreground and background. In the later work some of that tends to diminish, but it’s certainly present in the early work.
+ - But today we become aware of other readings of the human experience very quickly because of the media and the speed with which people travel the planet.
+ - A writer is a strange instrument of our species, a harp of sorts, fine-tuned to the dark contradictions of life.
+ - If I had a plot that was all set in advance, why would I want go through the agony of writing the novel? A novel is a kind of exploration and discovery, for me at any rate.
+ - It is impossible to fuse totally with a culture for which you feel a measure of antagonism.
+ - I’m constantly revising. Once the book is written and typed, I go through the entire draft again.
+ - I get up around 6:30. I work from about 8:00 to 1:00, take a break for lunch, work again until about 5:00, and then go for a long walk and have dinner. Then, if my wife and I have no previous plans, we decide what to do for the evening.
+ - I’m not altogether certain that a fundamentalism of necessity has to argue that it is the only reading of the human experience in order to stay alive.
+ - Oh, it makes a difference, I thought. And if it doesn’t make a difference you will make it make a difference.
+ - A life is measured by how it is lived for the sake of heaven.
+ - In Russia I went to a great yeshiva, and in America I work in a carnival.
+ - It is inconceivable to me that a million or three million or half a million human beings will think and feel precisely the same way on any single subject.
+ - I think most serious writers, certainly in the modern period, use their own lives or the lives of people close to them or lives they have heard about as the raw material for their creativity.
+ - Each work seems to give me the most trouble at the time I’m working on it.
+ - A non-fiction writer pretty much has the shape of the figure in front of him or her and goes about refining it. A work of non-fiction is not as difficult to write as a work of fiction, but it’s not as satisfying in the end.
+ - I think that to a very great extent we are partners with the divine in this enterprise called history. That is an ongoing relationship, and there is absolutely no guarantee that things will automatically work out to our best advantage.
+ - Every man who has shown the world the way to beauty, to true culture, has been a rebel, a ‘universal’ without patriotism, without home, who has found his people everywhere.
+
+52 quotes

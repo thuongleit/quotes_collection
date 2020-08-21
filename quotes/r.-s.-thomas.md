@@ -1,0 +1,27 @@
+ - The darkness is the deepening shadow of your presence; the silence a process in the metabolism of the being of love .
+ - The silence holds with its gloved hand the wild hawk of the mind.
+ - Art is recuperation from time. I lie back convalescing upon the prospect of a harvest already at hand.
+ - Ah, what balance is needed at the edges of such an abyss. I am left alone on the surface of a turning planet. What to do but, like Michelangelo ’s Adam, put my hand out into unknown space, hoping for the reciprocating touch?
+ - We live in our own world, A world that is too small For you to stoop and enter Even on hands and knees, The adult subterfuge.
+ - I am alone on the surface of a turning planet.
+ - It is too late to start For destinations not of the heart. I must stay here with my hurt.
+ - Deliver me from the long drought of the mind. Let leaves from the deciduous Cross fall on us, washing us clean, turning our autumn to gold by the affluence of their fountain.
+ - Verse should be as natural As the small tuber that feeds on muck And grows slowly from obtuse soil To the white flower of immortal beauty.
+ - I am a man now. Pass your hand over my brow. You can feel the place where the brains grow.
+ - The old men ask for more time; the young waste it. And the philosopher simply smiles, knowing there is none there.
+ - To live in Wales is to be conscious at dusk of the spilled blood that went into the making of the wild sky.
+ - The deep spaces between stars, Fathomless as the cold shadow His mind cast.
+ - Natural, hell! What was it Chaucer Said once about the long toil that goes like blood to the poems making? Leave it to nature and the verse sprawls, Limp as bindweed, if it break at all Life’s iron crust Man, you must sweat And rhyme your guts taut, if you’d build Your verse a ladder.
+ - I have nowhere to go. The swift satellites show The clock of my whole being is slow.
+ - I have known exile and a wild passion Of longing changing to a cold ache. King, beggar and fool, I have been all by turns, Knowing the body’s sweetness, the mind ’s treason ; Taliesin still, I show you a new world, risen, Stubborn with beauty, out of the heart ’s need .
+ - I have been all men known to history, Wondering at the world and at time passing; I have seen evil, and the light blessing Innocent love under a spring sky .
+ - Even God had a Welsh name : He spoke to him in the old language; He was to have a peculiar care For the Welsh people. History showed us He was too big to be nailed to the wall Of a stone chapel, yet still we crammed him Between the boards of a black book .
+ - I have been Merlin wandering in the woods Of a far country, where the winds waken Unnatural voices, my mind broken By a sudden acquaintance with man’s rage.
+ - Man is a dream about a shadow. But when some splendour falls upon him from God, a glory comes to him and his life is sweet.
+ - You cannot find the centre Where we dance, where we play, Where life is still asleep Under the closed flower, Under the smooth shell Of eggs in the cupped nest That mock the faded blue Of your remoter heaven .
+ - They left no books, Memorial to their lonely thought In grey parishes: rather they wrote On men’s hearts and in the minds Of young children sublime words Too soon forgotten. God in his time Or out of time will correct this.
+ - I’m obviously not orthodox, I don’t know how many real poets have ever been orthodox.
+ - I turn now not to the Bible but to Wallace Stevens.
+ - A recurring ideal, I find, is that of simplicity. At times there comes the desire to write with great precision and clarity, words so simple and moving that they bring tears to the eyes.
+
+25 quotes

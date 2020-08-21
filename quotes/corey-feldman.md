@@ -1,0 +1,55 @@
+ - We’re all made to make mistakes; nobody’s perfect.
+ - I’m a bit of a hippie.
+ - You have to stay updated on trends, social things and pop culture, you need to stay with the times and keep evolving.
+ - I believe that things happen for a reason. I think there are no coincidences in life.
+ - I do believe that belief is the most powerful thing we have in this world. So, if we believe in something enough. And we have faith, we can make it a reality. That is basically the basis of my entire career and my entire life.
+ - Self-realization is great.
+ - I have led a pretty colorful life.
+ - I had a very rough and tumultuous childhood. I often wish that I had the opportunity to make my own choices in life and choose my own path. But at the same time, I realize that things happen the way they’re supposed to.
+ - I’d say that animal rights and environmental issues have always been at the forefront of my mind.
+ - My acting career began at age three and my parents got me into it. I was in a McDonald’s commercial.
+ - If anything needs to get fixed in society, it’s people’s consumption of other people’s problems.
+ - I’m a guy who’s all about peace, love, and happiness. I’m a bit of a hippie.
+ - I’ve been to the top and I’ve been to the bottom more times than most people ride in an elevator.
+ - I was never taught how to raise a child, because I wasn’t raised properly.
+ - People do not realize this, but my drug addiction was actually a short span of time. It was only for two years.
+ - Oh, I see people everywhere. Some are celebs, but most of my friends are just regular people. The thing is, even celebs are normal people too. Just people.
+ - Whereas I used to get depressed or neurotic or dwell on things, I see my son’s bright eyes and smile in the morning, and suddenly, I don’t feel like I’m depressed anymore. There’s nothing to be depressed about when you’ve got that.
+ - I am an avid supporter of PETA and all animals as well as animal rights programs.
+ - It did not feel like something that was going to take over my life and destroy it. It felt like a subtle flower instead of a manipulative demon. That’s the mystery of heroin.
+ - I never used needles, but I was into heroin, cocaine – those are the things I’ll never touch again.
+ - I had a very rough and tumultuous childhood.
+ - The thing you have to understand is that there are only so many things you can do in a year. There are only so many days in a year. There is only so much time you can set aside for certain projects.
+ - It’s funny; I actually made poorer decisions when I sobered up then when I was screwed up.
+ - People always want to pin yesterday’s news on you, as opposed to asking you what you’re going to do for the future, what you’re doing today.
+ - It was a great experience for a kid, because it was a bunch of kids playing on pirate ships and water slides, so looking back on it, it was the fondest experience of my childhood.
+ - On the musical side, I always wanted to kind of carry on Pink Floyd’s sound. You know, Pink Floyd always had such an original, creative and masterful sound, but there are no new albums. My thought was that there’s a way to keep their sound alive.
+ - I look for the safety of my child. I don’t really care about me.
+ - My discrepancy with children in the industry is that they are made famous before they know who they are as human beings.
+ - The people that become the biggest jokes are people who do not change. They stay the way they were in the past. Look at Michael Jackson, he never evolved.
+ - When I had my child, I planned on being with the woman I had him with for the rest of my life. If that doesn’t work out, you have to see things from a different perspective.
+ - Child stars have nothing. They have no choice.
+ - As a kid, I liked the ‘Halloween’ movies and ‘Nightmare On Elm Street’ and all that kind of stuff. But as an adult, I really don’t watch much horror, to be honest.
+ - I feel very fortunate to have been a part of many successful contemporary horror franchises.
+ - I started working when I was three years old and was basically known before I knew who my own name was. My parents needed money, so at that time it became my responsibility to pay the bills.
+ - When I am working, I am working. When I am promoting, I am promoting. The rest of the time, I try to stay under the radar a bit.
+ - As an actor, you’re pretty much a hired gun. You are reading other people’s words off of a page and doing what they want you to do.
+ - There are many ways of giving thanks. Eating turkeys doesn’t have to be one of them.
+ - I’ve been labeled all my life.
+ - I knew how to read a contract by 10 years old, but I didn’t know what it meant for somebody to come in and tell me they loved me and kiss me goodnight. That’s a problem.
+ - I don’t want to be lumped into any categories.
+ - With my son, I work very hard to keep him away from the press and media and I want an opportunity for him to lead as normal a life as possible.
+ - I’ve never cheated on a woman.
+ - Fatherhood is the most amazing thing that could ever have happened in my life.
+ - As an entertainer, a comedy guy, whatever, you’re never gonna be truly 100-percent happy with anything.
+ - Thrillers are my favorite. I like stuff that keeps you on the edge of your seat or maybe makes you jump.
+ - I want to do rock operas.
+ - The more romance novelists that are out there, making romanticized ideas of vampirism for the kids, the more people want to see a real action movie, putting the bad guys where they belong, as the bad guys, and looking for a hero to come along and defend our very souls.
+ - I’ve always kind of lived my life to be as much as possible a positive role model for children.
+ - I met my wife by breaking two of my rules: never date a girl seriously that you meet at a nightclub and never date a fan.
+ - I’m more than an actor. I’m an icon, an industry.
+ - My addiction has always been beautiful women, being surrounded by them.
+ - Fans have always said that I would make a great Indiana Jones, a great Young Indiana Jones.
+ - I would like, in the long term, to be recognized as a writer-director-actor.
+
+53 quotes

@@ -1,0 +1,43 @@
+ - It’s a long hard road ahead for you, little warrior. Enjoy a happy day while you can. – Boldred.
+ - Don’t be ashamed to weep; ’tis right to grieve. Tears are only water, and flowers, trees, and fruit cannot grow without water. But there must be sunlight also. A wounded heart will heal in time, and when it does, the memory and love of our lost ones is sealed inside to comfort us.
+ - I am that is, my sword shall wield for me.
+ - The more ’otter it is, the more ’otter otters likes it.
+ - There is no greater evil than killing. I don’t care whether they call it war or justice. Life is precious.
+ - My values are not based on violence. My values are based on courage, which you see time and time again in my books. A warrior isn’t somebody like Bruce Willis or Arnold Schwarzenegger. A warrior can be any age. A warrior is a person people look up to.
+ - A wounded heart will heal in time, and when it does, the memory and love of our lost ones is sealed inside to comfort us.
+ - Weapons may be carried by creatures who are evil, dishonest, violent or lazy. The true warrior is good, gentle and honest. His bravery comes from within himself; he learns to conquer his own fears and misdeeds. – Matthias.
+ - Death comes to us all sooner or later. We cannot escape it.
+ - Courage is the moment when an ordinary being becomes an extraordinary being.
+ - In our imaginations we can go anywhere. Travel with me to Redwall in Mossflower country.
+ - Who knows, my friend? Maybe the sword does have some magic. Personally, I think it’s the warrior who wields it.
+ - Shake paws, count your claws, You steal mine, I’ll borrow yours. Watch my whiskers, check both ears. Robber foxes have no fears.
+ - Sometimes the gift of an inquisitive nature to the young can be greater than that of the wisdom which comes of age.
+ - Knowledge is a thing that one cannot have enough of. It is the fruit of wisdom, to be eaten carefully and digested fully, unlike that lunch you are bolting down, little friend.
+ - Any weapon is a good weapon as long as ye can use it with honor and skill.
+ - Sighing restlessly, the boundless sea broke huge rollers into white cream which hissed hungrily up to the tideline.
+ - Every Betrayal begins with trust-Phish Dream as if you’ll live forever, live as if you’ll die today-James Dean Laugh as much as you breathe and love as long as you live-Anonymous.
+ - Fate is fickle, and the company of unwilling friends short lived.
+ - A mouse is small and can go unnoticed: but there is no limit to what a brave heart and a fearless spirit can achieve.
+ - He came with death held in his paw Which no rat born could face Oh woe to those who break the law Of Sunflash and his mace!
+ - Friend is a very small word, A little sound we make, For one who is true, one who will do, Great deeds for friendship’s sake.
+ - Food to eat and games to play. Tell me why, tell me why. Serve it out and eat it up. Have a try, have a try.
+ - Pick-a-lock, Pick-a-lock, you’ll regret the day, When you took a mouse thief and locked him away, Silly cat, look at that, it’s two for one, A thief and a warrior, by dawn will be gone.
+ - But the warriors true, the brave of heart Who valiently upheld the right They are raised on high to the velvet sky Bringing light to the darkness of night.
+ - I am a people watcher and I have a very good memory.
+ - So here is my story, may it bring Some smiles and a tear or so, It happened once upon a time, Far away, and long ago, Outside the night wind keens and wails, Come listen to me, the Teller of Tales!
+ - Sometimes friends do go from us-it will happen more and more as you grow up, Chugg. But if you really love your friends, they’re never really gone. Somewhere they’re watching over you and they’re always there inside your heart. -Martin.
+ - Aha! Today I shall become an author! And I will auth and auth and auth and make a squillion dollars, whoopee!
+ - I fell, you see. Trod on my abbot, Father Habit. Oh, dear! I mean...
+ - Imagination is a gift given to us from God and each one of us use it differently.
+ - I love book signings: kids waiting in line for you to scribble on their new books, haha!
+ - We could have chopped down the sycamore with this...
+ - Where’s the point in fighting and slaying if you can make a friend out of anybeast instead of a foe?
+ - Wot Wot.
+ - I wanted to write something visual that I could read to the children. This was when I created the idea of Redwall Abbey in my imagination. As I wrote, the idea grew, and the manuscript along with it.
+ - Sometimes, I get ideas from dreams. Often, my stories are based on adventures that I, or my friends, have actually lived.
+ - Kids are more drawn to animal characters than human.
+ - Eulaliiiaaaaaaaa!!!!!!!!!!!!!!
+ - I enjoy walking my dog and completing crossword puzzles.
+ - There are enough cowards in the world without killing a brave creature for so little reason.
+
+41 quotes

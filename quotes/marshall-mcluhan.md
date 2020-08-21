@@ -1,0 +1,307 @@
+ - World War III is a guerrilla information war with no division between military and civilian participation.
+ - We become what we behold. We shape our tools and then our tools shape us.
+ - We look at the present through a rear view mirror. We march backwards into the future.
+ - There are no passengers on spaceship earth. We are all crew.
+ - Only the small secrets need to be protected. The large ones are kept secret by public incredulity.
+ - The medium is the message.
+ - I don’t necessarily agree with everything that I say.
+ - I wouldn’t have seen it if I hadn’t believed it.
+ - Every society honors its live conformists and its dead troublemakers.
+ - First we build the tools, then they build us.
+ - Money is a poor man’s credit card.
+ - The global village is a place of very arduous interfaces and very abrasive situations.
+ - Our Age of Anxiety is, in great part, the result of trying to do today’s job with yesterday’s tools and yesterday’s concepts.
+ - On Spaceship Earth there are no passengers; everybody is a member of the crew. We have moved into an age in which everybody’s activities affect everybody else.
+ - We drive into the future using only our rearview mirror.
+ - I may be wrong, but I’m never in doubt.
+ - If it works, it’s obsolete.
+ - Moral indignation is a technique used to endow the idiot with dignity.
+ - The future of work consists of learning a living.
+ - Faced with information overload, we have no alternative but pattern-recognition.
+ - Gutenberg made everybody a reader. Xerox makes everybody a publisher.
+ - The name of a man is a numbing blow from which he never recovers.
+ - Any loss of identity prompts people to seek reassurance and rediscovery of themselves by testing, and even by violence. Today, the electric revolution, the wired planet, and the information environment involve everybody in everybody to the point of individual extinction.
+ - The criminal, like the artist, is a social explorer.
+ - The answers are always inside the problem, not outside.
+ - In large measure, writing is the spatialization of thought.
+ - There ain’t no grammatical errors in a non-literate society.
+ - I do not explain, I explore.
+ - All media exist to invest our lives with artificial perceptions and arbitrary values.
+ - The specialist is one who never makes small mistakes while moving toward the grand fallacy.
+ - Once you see the boundaries of your environment, they are no longer the boundaries of your environment.
+ - All advertising advertises advertising.
+ - The age of automation is going to be the age of “do it yourself”.
+ - The computer is the most extraordinary of man’s technological clothing; it’s an extension of our central nervous system. Beside it, the wheel is a mere hula-hoop.
+ - One of the effects of living with electric information is that we live habitually in a state of information overload. There’s always more than you can cope with.
+ - The story begins only when the book closes.
+ - The modern Little Red Riding Hood, reared on singing commercials, has no objection to being eaten by the wolf.
+ - Canada is the only country in the world that knows how to live without an identity.
+ - In television, images are projected at you. You are the screen. The images wrap around you. You are the vanishing point.
+ - Historians and archaeologists will one day discover that the ads of our time are the richest and most faithful reflections that any society ever made of its entire range of activities.
+ - The medium is the message. This is merely to say that the personal and social consequences of any medium – that is, of any extension of ourselves – result from the new scale that is introduced into our affairs by each extension of ourselves, or by any new technology.
+ - A point of view can be a dangerous luxury when substituted for insight and understanding.
+ - Technology is that which separates us from our environment.
+ - The more the data banks record about each one of us, the less we exist.
+ - There is absolutely no inevitability as long as there is a willingness to contemplate what is happening.
+ - Obsolescence never meant the end of anything, it’s just the beginning.
+ - Since with electricity we extend our central nervous system globally, instantly interrelating every human experience.
+ - Only puny secrets need protection. Big discoveries are protected by public incredulity.
+ - The mark of our time is its revulsion against imposed patterns.
+ - The artist is the man in any field, scientific or humanistic, who grasps the implications of his actions and of new knowledge in his own time. He is the man of integral awareness.
+ - Food for the mind is like food for the body: the inputs are never the same as the outputs.
+ - As a rule, I always look for what others ignore.
+ - Like primitive, we now live in a global village of our own making, a simultaneous happening. It doesn’t necessarily mean harmony and peace and quiet but it does mean huge involvement in everybody else’s affairs.
+ - Any understanding of social and cultural change is impossible without a knowledge of the way media work as environments.
+ - When information overload occurs, pattern recognition is how to determine truth.
+ - Only the vanquished remember history.
+ - Any breakdown is a breakthrough.
+ - The medium, or process, of our time – electric technology is reshaping and restructuring patterns of social interdependence and every aspect of our personal life. It is forcing us to reconsider and re-evaluate practically every thought, every action.
+ - The price of eternal vigilance is indifference.
+ - The mother tongue is propaganda.
+ - The new electronic independence re-creates the world in the image of a global village.
+ - The spoken word was the first technology by which man was able to let go of his environment in order to grasp it in a new way.
+ - The greatest propaganda in the world is our mother tongue, that is what we learn as children, and which we learn unconsciously. That shapes our perceptions for life. That is propaganda at its most extreme form.
+ - Education is civil defence against media fallout.
+ - Anyone who tries to make a distinction between education and entertainment doesn’t know the first thing about either.
+ - The huge advantage of Canada is its backwardness.
+ - Even mud gives the illusion of depth.
+ - The alphabet and print technology fostered and encouraged a fragmenting process, a process of specialism and detachment. Electric technology fosters and encourages unification and involvement.
+ - The new media are not bridges between man and nature; they are nature.
+ - The poet, the artist, the sleuth, whoever sharpens our perception tends to antisocial; rarely ‘well adjusted,’ he cannot go along with currents and trends.
+ - Scribal culture and Gothic architecture were both concerned with light through, not light on.
+ - The laws of the media, in tetrad form, bring logos and formal cause up to date to reveal analytically the structure of all human artefacts.
+ - Mysticism is just tomorrow’s science dreamed today.
+ - As technology advances, it reverses the characteristics of every situation again and again. The age of automation is going to be the age of ‘do it yourself.’
+ - Everybody experiences far more than he understands. Yet it is experience, rather than understanding, that influences behavior.
+ - Education in a technological world of replaceable and expendable parts is neuter.
+ - Ads are the cave art of the twentieth century.
+ - The car has become an article of dress without which we feel uncertain, unclad, and incomplete in the urban compound.
+ - Obsolescence is the moment of superabundance.
+ - Typography tended to alter language from a means of perception and exploration to a portable commodity.
+ - All words, in every language, are metaphors.
+ - The artist is a person who is expert in the training of perception.
+ - The printing press was at first mistaken for an engine of immortality by everybody except Shakespeare.
+ - Language is a form of organized stutter.
+ - Information and images bump against each other every day in massive quantities, and the resonance of this interfacing is like the babble of a village or tavern gossip session.
+ - Literacy, the visual technology, dissolved the tribal magic by means of its stress on fragmentation and specialization and created the individual.
+ - Good taste is the first refuge of the non creative. It is the last ditch stand of the artist.
+ - It is the weak and confused who worship the pseudosimplicities of brutal directness.
+ - Schizophrenia may be a necessary consequence of literacy.
+ - We are all robots when uncritically involved with our technologies.
+ - Anything that’s popular is a rear-view image.
+ - A commercial society whose members are essentially ascetic and indifferent in social ritual has to be provided with blueprints and specifications for evoking the right tone for every occasion.
+ - Madison Avenue is a very powerful aggression against private consciousness. A demand that you yield your private consciousness to public manipulation.
+ - People don’t actually read newspapers – they get into them every morning like a hot bath.
+ - Violence is the quest for identity. When identity disappears with technological innovation, violence is the natural recourse.
+ - The content or message of any particular medium has about as much importance as the stenciling on the casing of an atomic bomb.
+ - Today the tyrant rules not by club or fist, but disguised as a market researcher, he shepherds his flocks in the ways of utility and comfort.
+ - Our technology forces us to live mythically.
+ - Today’s child is bewildered when he enters the 19th century environment that still characterizes the educational establishment where information is scarce but ordered and structured by fragmented, classified patterns subjects, and schedules.
+ - One thing about which fish know exactly nothing is water, since they have no anti-environment which would enable them to perceive the element they live in.
+ - A new medium is never an addition to an old one, nor does it leave the old one in peace. It never ceases to oppress the older media until it finds new shapes and positions for them.
+ - We impose the form of the old on the content of the new.
+ - Until writing was invented, man lived in acoustic space: boundless, directionless, horizonless, in the dark of the mind, in the world of emotion...
+ - The future masters of technology will have to be light-hearted and intelligent. The machine easily masters the grim and the dumb.
+ - Television is teaching all the time. Does more educating than the schools and all the institutions of higher learning.
+ - All the new media are art forms which have the power of imposing, like poetry, their own assumptions.
+ - In the Phaedrus, Plato argued that the new arrival of writing would revolutionize culture for the worst. He suggested that it would substitute reminiscence for thought and mechanical learning for the true dialect of the living quest for truth by discourse and conversation.
+ - Medieval and ancient sensibility now dominates our time as acoustic and multisensory awareness displaces the merely visual.
+ - American youth attributes much more importance to arriving at driver’s license age than at voting age.
+ - Language does for intelligence what the wheel does for the feet and the body. It enables them to move from thing to thing with greater ease and speed and ever less involvement.
+ - The real news is bad news.
+ - All media are extensions of some human faculty- psychic or physical.
+ - The car has become the carapace, the protective and aggressive shell, of urban and suburban man.
+ - When two seemingly disparate elements are imaginatively poised put in apposition in new and unique ways, startling discoveries often result.
+ - Advertising is an environmental striptease for a world of abundance.
+ - The electric light is pure information. It is a medium without a message.
+ - In this electronic age we see ourselves being translated more and more into the form of information, moving toward the technological extension of consciousness.
+ - Sentimentality, like pornography, is fragmented emotion; a natural consequence of a high visual gradient in any culture.
+ - Most of our assumptions have outlived their uselessness.
+ - A light bulb creates an environment by its mere presence.
+ - My main theme is the extension of the nervous system in the electric age, and thus, the complete break with five thousand years of mechanical technology. This I state over and over again. I do not say whether it is a good or bad thing. To do so would be meaningless and arrogant.
+ - All meaning alters with acceleration, because all patterns of personal and political interdependence change with any acceleration of information.
+ - Everybody at the speed of light tends to become a nobody.
+ - Typographic man can express but is helpless to read the configurations of print technology.
+ - Language as the technology of human extension, whose powers of division and separation we know so well, may have been the “Tower of Babel” by which men sought to scale the highest heavens. Today computers hold out the promise of a means of instant tr.
+ - Youth instinctively understand the present environment – the electric drama. It lives mythically and in depth.
+ - The artist is the person who invents the means to bridge between biological inheritance and the environments created by technological innovation.
+ - People hope that if they scream loudly enough about “values” then others will mistake them for serious, sensitive souls who have higher and nobler perceptions than ordinary people. Otherwise, why would they be screaming? Moral bitterness is a basic technique for endowing the idiot with dignity.
+ - To say that “the camera cannot lie” is merely to underline the multiple deceits that are now practised in its name.
+ - Throughout Finnegans Wake Joyce specifies the Tower of Babel as the tower of Sleep, that is, the tower of the witless assumption, or what Bacon calls the reign of the Idols.
+ - A moral point of view too often serves as a substitute for understanding in technological matters.
+ - The genteel is a mighty catafalque of service-with-a-smile and flattering solicitude smothering every spontaneous movement of thought or feeling.
+ - Ads represent the main channel of intellectual and artistic effort in the modern world.
+ - I am curious to know what would happen if art were suddenly seen for what it is, namely, exact information of how to rearrange one’s psyche in order to anticipate the next blow from our own extended faculties...
+ - The wheel is an extension of the foot, the book is an extension of the eye, clothing an extension of the skin, electric circuitry an extension of the central nervous system.
+ - Canadians are the people who learned to live without the bold accents of the natural ego-trippers of other lands.
+ - Human perception is literally incarnation.
+ - By phonemic trans-formation into visual terms, the alphabet became a universal, abstract, static container of meaningless sounds.
+ - We have be-come irrevocably involved with, and responsible for, each other.
+ - The ignorance of how to use knowledge stockpiles exponentially.
+ - Those conspiracies that are too incredible to be believed, are by the same right, those which most often succeed.
+ - The young today cannot follow narrative but they are alert to drama. They cannot bear description but they love landscape and action.
+ - Nobody can commit photography alone.
+ - Most people are alive in an earlier time, but you must be alive in our own time.
+ - Of the many unforeseen consequences of typography, the emergence of nationalism is, perhaps, the most familiar.
+ - Fish did not discover water.
+ - The past went that-a-way. When faced with a totally new situation, we tend always to attach ourselves to the objects, to the flavor of the most recent past. We look at the present through a rear view mirror. We march backwards into the future.
+ - People who write obscurely are either unskilled in writing or up to mischief.
+ - Computers can do better than ever what needn’t be done at all. Making sense is still a human monopoly.
+ - The products of modern science are not in themselves good or bad; it is the way they are used that determines their value.
+ - When new technologies impose themselves on societies long habituated to older technologies, anxieties of all kinds result.
+ - A nomadic society cannot experience enclosed space.
+ - If the nineteenth century was the age of the editorial chair, ours is the century of the psychiatrist’s couch.
+ - Innovation for holders of conventional wisdom is not novelty but annihilation.
+ - A typewriter is a means of transcribing thought, not expressing it.
+ - The new media and technologies by which we amplify and extend ourselves constitute huge collective surgery carried out on the social body with complete disregard for antiseptics.
+ - Don’t ask whether it is right or wrong. Instead try to find out what is going on.
+ - The news automatically becomes the real world for the TV user and is not a substitute for reality, but is itself an immediate reality.
+ - Our motor car is our supreme form of privacy when we are away from home.
+ - Life. Consider the alternative.
+ - The successor to politics will be propaganda. Propaganda, not in the sense of a message or ideology, but as the impact of the whole technology of the times.
+ - Where the whole man is involved there is no work. Work begins with the division of labor.
+ - Innumerable confusions and a feeling of despair invariably emerge in periods of great technological and cultural transition.
+ - I’ve always been careful never to predict anything that had not already happened.
+ - What is very little understood about the electronic age is that it angelizes man, disembodies him. Turns him into software.
+ - Photography turns people into things and their image into a mass consumer product.
+ - As the unity of the modern world becomes increasingly a technological rather than a social affair, the techniques of the arts provide the most valuable means of insight into the real direction of our own collective purposes.
+ - Politics offers yesterday’s answers to today’s problems.
+ - In Tetrad form, the artifact is seen to be not neutral or passive, bur an active logos or utterance of the human mind or body that transforms the user and his ground.
+ - Current illusion is that science has abolished all natural laws.
+ - Our technology forces us to live mythically, but we continue to think fragmentarily, and on single, separate planes.
+ - There is no individualism in Eastern or oral cultures.
+ - The movie stars and matinee idols are put into the public domain by photography. They become dreams that money can buy. They can be bought and thumbed more easily than public prostitutes.
+ - Metaphor has traditionally been regarded as the matrix and pattern of the figures of speech.
+ - Transmitted at the speed of light, all events on this planet are simultaneous. In the electric environment of information all events are simultaneous, there is no time or space separating events.
+ - New media are new archetypes, at first disguised as degradations of older media.
+ - The TV generation is postliterate and retribalized. It seeks by violence to scrub the old private image and to merge in a new tribal identity, like any corporate executive.
+ - One matter Englishmen don’t think in the least funny is their happy consciousness of possessing a deep sense of humor.
+ - Great art speaks a language which every intelligent person can understand. The people who call themselves modernists today speak a different language.
+ - The ‘expert’ is the man who stays put.
+ - Clear prose indicates the absence of thought.
+ - Art at its most significant is a Distant Early Warning System that can always be relied on to tell the old culture what is beginning to happen to it.
+ - It is always the psychic and social grounds, brought into play by each medium or technology, that readjust the balance of the hemispheres and of human sensibilities into equilibrium with those grounds.
+ - Antipathy, dissimilarity of views, hate, contempt, can accompany true love.
+ - Ads are carefully designed by the Madison Avenue frog-men of-the-mind for semiconscious exposure.
+ - Character no longer is shaped by only two earnest, fumbling experts. Now all the world’s a sage.
+ - What goes on inside the school is an interruption of education.
+ - All media work us over completely.
+ - Today it is not the classroom nor the classics which are the repositories of models of eloquence, but the ad agencies.
+ - The alphabet was one thing when applied to clay or stone, and quite another when set down on light papyrus.
+ - The present is always invisible because its environmental. No environment is perceptible, simply because it saturates the whole field of attention.
+ - Except for light, all other media come in pairs, with one acting as the “content” of the other, obscuring the operation of both.
+ - Politics will eventually be replaced by imagery. The politician will be only too happy to abdicate in favor of his image, because the image will be much more powerful than he could ever be.
+ - The bible belt is oral territory and therefore despised by the literati.
+ - To see a man slip on a banana skin is to see a rationally structured system suddenly translated into a whirling machine.
+ - In big industry new ideas are invited to rear their heads so they can be clobbered at once. The idea department of a big firm is a sort of lab for isolating dangerous viruses.
+ - Affluence creates poverty.
+ - The new is always made up of the old, or rather, what people see in the new is always the old thing. The rear-view mirror. The future of the future is the present, and this is something that people are terrified of.
+ - The rythms of typing favour short, concise sentences, sentences with oral form.
+ - Today we are beginning to notice that the new media are not just mechanical gimmicks for creating worlds of illusion, but new languages with new and unique powers of expression.
+ - Jokes are grievances.
+ - Mass transportation is doomed to failure in North America because a person’s car is the only place where he can be alone and think.
+ - As the age of information demands the simultaneous use of all our faculties, we discover that we are most at leisure when we are most intensely involved.
+ - In an age of multiple and massive innovations, obsolescence becomes the major obsession.
+ - Attention spans get very weak at the speed of light, and that goes along with a very week identity.
+ - Why is it so easy to acquire the solutions of past problems and so difficult to solve current ones.
+ - The family circle has widened. The worldpool of information fathered by the electric media – movies, Telstar, flight – far surpassesany possible influence mom and dad can now bring to bear. Character no longer is shaped by only two earnest, fumbling experts. Now all the world’s a sage.
+ - North Americans have a peculiar bias. They go outside to be alone and they go home to be social.
+ - The victory over Euclidean space was not achieved by isolated individuals, but by a field of young rebels opposed to all absolutes.
+ - If we understand the revolutionary transformations caused by new media, we can anticipate and control them; but if we continue in our self-induced subliminal trance, we will be their slaves.
+ - Television brought the brutality of war into the comfort of the living room. Vietnam was lost in the living rooms of America – not on the battlefields of Vietnam.
+ - Every innovation scraps its immediate predecessor and retrieves still older figures – it causes floods of antiques or nostalgic art forms and stimulates the search for museum pieces.
+ - Logos is the formal cause of the kosmos and all things, responsible for their nature and configuration.
+ - The content or time-clothing of any medium or culture is the preceding medium or culture.
+ - There is an enormous redundancy in every well-written book. With a well-written book I only read the right-hand page and allow my mind to work on the left-hand page. With a poorly written book I read every word.
+ - Violence, whether spiritual or physical, is a quest for identity and the meaningful. The less identity, the more violence.
+ - The media have substituted themselves for the older world.
+ - The public has yet to see TV as TV. Broadcasters have no awareness of its potential. The movie people are just beginning to get a grasp on film.
+ - It is critical vision alone which can mitigate the unimpeded operation of the automatic.
+ - It is perhaps typical of very creative minds that they hit very large nails not quite on the head.
+ - If the work of the city is the remaking or translating of man into a more suitable form than his nomadic ancestors achieved, then might not our current translation of our entire lives into the spiritual form of information seem to make of the entire.
+ - In antiquity and the Middle Ages reading was necessarily reading aloud.
+ - The fall or scrapping of a cultural world puts us all into the same archetypal cesspool, engendering nostalgia for earlier conditions.
+ - Positively, the effect of speeding up temporal sequence is to abolish time, much as the telegraph and cable abolished space. Of course, the photograph does both.
+ - Our permanent address is tommorrow.
+ - Nowadays there is no conversation at all. Teachers distrust talk as much as business men.
+ - Once introduced discontinuity, once challenge any of the properties of visual space, and as they flow from each other, the whole conceptual framework collapses.
+ - The task confronting contemporary man is to live with the hidden ground of his activities as familiarly as our literate predecessors lived with the figure minus ground.
+ - America is the only country ever founded on the printed word.
+ - The photograph reverses the purpose of travel, which until now had been to encounter the strange and unfamiliar.
+ - The method of our time is to use not a single but multiple models for exploration...
+ - When information rubs against information the results are startling and effective. The perrenial quest for involvement, fill-in, takes many forms.
+ - The student of media soon comes to expect the New Media of any period whatever to be classed as ‘pseudo’ by those who acquired the patterns of earlier media, whatever they may happen to be.
+ - There is a real, living unity in our time, as in any other, but it lies submerged under a superficial hubbub of sensation.
+ - When things come at you very fast, naturally you lose touch with yourself.
+ - Persons grouped around a fire or candle for warmth or light are less able to pursue independent thoughts, or even tasks, than people supplied with electric light. In the same way, the social and educational patterns latent in automation are those of self-employment and artistic autonomy.
+ - Radio affects most intimately, person-to-perso n, offering a world of unspoken communication between writer-speaker and the listener.
+ - The percept takes priority of the concept.
+ - Mass man is a phenomenon of electric speed, not of physical quantity.
+ - You can be a French Canadian or an English Canadian, but not a Canadian. We know how to live without an identity, and this is one of our marvellous resources.
+ - Explore the situation. Statements are expendable. Don’t keep on looking in the rearview mirror and defending the status quo which is outmoded the moment it happened.
+ - We don’t know who discovered water, but we know it wasn’t the fish.
+ - The artist must ever play and experiment with new means of arranging experience, even though the majority of his audience may prefer to remain fixed in their old perceptual attitudes.
+ - In Jesus Christ, there is no distance or separation between the medium and the message: it is the one case where we can say that the medium and the message are fully one and the same.
+ - Relativity theory forced the abandonment, in principle, of absolute space and absolute time.
+ - Publication is a self-invasion of privacy.
+ - Electricity does not centralize, but decentralizes.
+ - All forms of violence are quests for identity. When you live on the frontier, you have no identity. You’re a nobody.
+ - When producers want to know what the public wants, they graph it as curves. When they want to tell the public what to get, they say it in curves.
+ - It is the framework which changes with each new technology and not just the picture within the frame.
+ - I do not say whether it is a good or bad thing. To do so would be meaningless and arrogant.
+ - Phenomenology is dialectic in ear-mode – a massive and decentralized quest for roots, for ground.
+ - The winner is one who knows when to drop out in order to get in touch.
+ - At electric speed, all forms are pushed to the limits of their potential.
+ - The business of the advertiser is to see that we go about our business with some magic spell or tune or slogan throbbing quietly in the background of our minds.
+ - What we call art would seem to be specialist artifacts for enhancing human perception.
+ - Ideally, advertising aims at the goal of a programmed harmony among all human impulses and aspirations and endeavors. Using handicraft methods, it stretches out toward the ultimate electronic goal of a collective consciousness.
+ - Today’s child is growing up absurd, because he lives in two worlds, and neither of them inclines him to grow up. Growing up – thatis our new work, and it is total. Mere instruction will not suffice.
+ - If a work of art is to explore new environments, it is not to be regarded as a blueprint but rather as a form of action-painting.
+ - Some of my fellow academics are very hostile, but I sympathize with them. They’ve been asleep for 500 years and they don’t like anybody who comes along and stirs them up.
+ - Control over change would seem to consist in moving not with it but ahead of it. Anticipation gives the power to deflect and control force.
+ - Most clear writing is a sign that there is no exploration going on. Clear prose indicates the absence of thought.
+ - Electronic man has no physical body.
+ - The user of the electric light – or a hammer, or a language, or a book – is the content. As such, there is a total metamorphosis of the user by the interface. It is the metamorphosis that I consider the message.
+ - The TV camera has no shutter. It does not deal with aspects or facets of objects in high resolution. It is a means of direct pick-up by the electrical groping over surfaces.
+ - I don’t want them to believe me, I just want them to think.
+ - The movie, by sheer speeding up of the mechanical, carried us from the world of sequence and connections into the world of creative configurations and structure.
+ - Ads push the principle of noise all the way to the plateau of persuasion. They are quite in accord with the procedures of brainwashing.
+ - To say that a body or its gravitational field ‘bends in space’ in its vicinity is the discuss visual space in acoustic terms.
+ - There is no more great men; there is only great committees.
+ - It is possible to deal with the entire environment as a work of art.
+ - Media are means of extending and enlarging our organic sense lives into our environment.
+ - If people were able to be convinced that art is precise advance knowledge of how to cope with the psychic and social consequences of the next technology, would they all become artists?
+ - The modern nose, like the modern eye, has developed a sort of microscopic, intercellular intensity which makes our human contactspainful and revolting.
+ - We have to find the environments in which it will be possible to live with our new inventions.
+ - Arists in various fields are always the first to discover how to enable one medium or to release the power of another.
+ - The scientist rigorously defends his right to be ignorant of almost everything except his specialty.
+ - Man works when he is partially involved. When he is totally involved he is at play or leisure.
+ - It is one of the peculiar characteristics of the photograph that it isolates single moments in time.
+ - It has always been the artist who realizes that the future is the present and uses his work to prepare the grounds for it.
+ - As information becomes our environment, it becomes mandatory to program the environment itself as a work of art.
+ - Environments are not just containers, but are processes that change the content totally.
+ - Diaper backward spells repaid. Think about it.
+ - The ‘content’ of any medium is always another medium.
+ - Technologies themselves, regardless of content, produce a hemispheric bias in the users.
+ - I am not a “culture critic” because I am not in any way interested in classifying cultural forms. I am a metaphysician, interested in the life of the forms and their surprising modalities. That is why I have no interest in the academic world.
+ - Any ad consciously attended to is comical. Ads are not meant for conscious consumption. They are intended as subliminal pills for the subconsious in order to exercise an hypnotic spell, especially on sociologists.
+ - An administrator in a bureaucratic world is a man who can feel big by merging his non-entity in an abstraction. A real person in touch with real things inspires terror in him.
+ - The reader is the content of any poem or of the language he employs, and in order to use any of these forms, he must put them on.
+ - The most human thing about us is our technology.
+ - The space of early Greek cosmology was structured by logos – resonant utterance or word.
+ - The new media are not ways of relating to us the ‘real’ world; they are the real world and they reshape what remains of the old world at will.
+ - All discoveries in art and science result from an accumulation of errors.
+ - The circuited city of the future will not be the huge hunk of concentrated real estate created by the railway. It will take on a totally new meaning under conditions of very rapid movement. It will be an information megalopolis.
+ - The meaning of experience is typically one generation behind the experience. The content of new situations, both private and corporate, is typically the preceding situation.
+ - Radical changes of identity, happening suddenly and in very brief intervals of time, have proved more deadly and destructive of human values than wars fought with hardware weapons.
+ - Invention is the mother of necessities.
+ - Far more thought and care go into the composition of any prominent ad in a newspaper or magazine than go into the writing of their features and editorials.
+ - A successful book cannot afford to be more than ten percent new.
+ - Only a fraction of the history of literacy has been typographic.
+ - Einstein pronounced the doom of continuous or ‘rational’ space, and the way was made clear for Picasso and the Marx Brothers and Mad magazine.
+ - Everybody tends to merge his identity with other people at the speed of light. It’s called being mass man.
+ - Education, which should be helping youth to understand and adapt to their revolutionary new environments, is instead being used merely as an instrument of cultural aggression.
+ - The only way to recover the old world is to induce the media into vomiting it back up.
+ - The suddenness of the leap from hardware to software cannot but produce a period of anarchy and collapse, especially in the developed countries.
+
+305 quotes

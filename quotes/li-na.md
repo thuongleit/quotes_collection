@@ -1,0 +1,35 @@
+ - I just keep fighting and try to be the last one standing.
+ - I just follow my heart.
+ - I need some time to recover. I’m not a machine.
+ - I love New York City.
+ - In badminton, they use a lot from the wrist. But I use a lot from the shoulder.
+ - China tennis – we’re getting bigger and bigger.
+ - I’m still happy, I like this life.
+ - I’m married. Who cares about me?
+ - People know what I’m doing.
+ - The weather for me is nothing special. The weather couldn’t kill me.
+ - I really do not think about ‘Oh, right now I have to defend those points and this title.’ I just really want to enjoy playing on the court, in front of the fans.
+ - If I have children, after school they’ll always feel happy energy in the home.
+ - If I didn’t do well at Wimbledon maybe Chinese people will forget about me.
+ - I feel like my whole life only tennis.
+ - Tennis is best of three sets, so even if I lose the first set, I still have a chance.
+ - Nobody says if you hit No. 2 in the world you have to win all your matches.
+ - What I’ve accomplished for myself is beyond my wildest dreams. What I accomplished for my country is one of my most proud achievements.
+ - I would prefer to have no money but to have a nice family and good friends around.
+ - I don’t need to worry about being idolised.
+ - I never thought I could win the French Open.
+ - I just feel exciting.
+ - I think because I was the first Chinese player to win a grand slam, people were thinking: ‘She’s not like normal people.’
+ - I don’t know how many years I can still play. I have to listen to my body and see how it feels.
+ - Age is nothing, can still win the Grand Slam, pretty happy about my age, more experience.
+ - I look forward to competing.
+ - I’ve played in a lot of big matches and you learn from them.
+ - The first time I showed the tattoo it was big news in the newspaper. ‘She has a tattoo with a snake.’ It’s not a snake!
+ - When I got into the sport I was so fat that my manager said he should send me to boot camp to lose the weight!
+ - I always had a powerful serve. It’s one of the best in women’s tennis. It’s very good to have a weapon like that.
+ - Of course you’re nervous going into a final.
+ - After four knee surgeries and hundreds of shots injected into my knee weekly to alleviate swelling and pain, my body is begging me to stop the pounding.
+ - Of course, after I retire I want to be the housewife, really.
+ - I think players changing coaches is normal.
+
+33 quotes

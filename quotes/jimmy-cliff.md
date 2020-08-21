@@ -1,0 +1,34 @@
+ - Rome was not built in a day Opposition will come your way But the harder the battle you see It’s the sweeter the victory.
+ - And I keep on fighting for the things I want. Though I know that when you’re dead you can’t. But I’d rather be a free man in my grave, than living as a puppet or a slave.
+ - Everyone needs to realize why am I here? It comes in everyone’s life; you ask why am I here? What am I doing? Once you are able to answer that question for yourself honestly, you have smooth sailing.
+ - I’ve got a hard road to travel and a rough, rough way to go. Said, it’s a hard road to travel and a rough, rough way to go. But I can’t turn back, my heart is fixed, my mind’s made up, I’ll never stop, my faith will see me through.
+ - Beyond everything else, that’s one of the things that kept us going, that keeps me going, you know, the eternal love, knowing that I am in the love of the all and all love is in me.
+ - I’d rather be a free man in my grave than living as a puppet or a slave.
+ - I think we all have a role to play in life.
+ - I love to create and that’s what gives my soul the satisfaction.
+ - I am not one of those artists who is cemented in one way. I am able to, you know, make the happy, jovial, lighthearted music too. We need that in life too. So it’s like that to me.
+ - I don’t know where life will lead me, but I know where I’ve been. I can’t say what life will show me, but I know what I’ve seen. Tried my hand at love and friendship, but all that is passed and gone. This little boy is moving on.
+ - Rastafari means to live in nature, to see the Creator in the wind, sea and storm. Other religions pointed to the sky, and while we were looking in the sky, they dug up all the gold and diamonds and went away with them.
+ - In hindsight, I see the great value of family and how it moulded my life and kept me together. So now family means everything to me.
+ - My role is the shepherd’s role. The shepherd is the one who opens the gate and allows the flock to go through and whoever opens the gate has to close it, and the gate is not yet closed.
+ - My pigment is of the earth, and collecting my sacred fire from my solar plexus with the central sun of the earth.
+ - We need that expression. Whether we want to call it protest or not, we need to express and echo the echoes of the people. Artists need to do that.
+ - I write songs on a universal basis. I was born out of the earth of Jamaica which I consider to be a part of Atlantis, the sunk continent, but that’s my thing. But I write songs on a universal basis, not like Jamaican songs.
+ - The love is the part of us that can never go. It’s the essence that was always there, so that can never go.
+ - I had the global outlook that I really wanted to capture the world. I would like the attention of the world at least and I wanted that.
+ - It’s important for me to go back into the ghetto, where I’m from. I still get my oxygen from there. I don’t live in the ghetto but every time I go back, I’m seeing the same things that I lived. That’s one of the things I mean when I say, “My feet back onto the ground.”
+ - Got your mind set on a dream, you can get it though how hard it may seem.
+ - I’ve abused myself a lot over the years. But my voice is still intact – really, it’s better.
+ - I don’t think a songwriter should lose their mojo. In my situation, I’m one of those artists that lasts over a long period rather than have your moment and your moment is gone.
+ - I would love to see no more ghettos but the things is, there’s no diplomacy in the ghetto. They want to tell you something, they tell you straight!
+ - I visit studios. Just to get the feel, the smell, and see what other people are doing. Not only listening to the radio, but going to studios, greeting musicians and artists, just getting a vibe.
+ - I grew up in a condition where I could have chosen to go either way, negatively or positively. So I kind of chose to go positive and that stayed with me through my life, always have to have a positive outlook on whatever situation there is.
+ - If you go out to Hollywood you’ll find a lot of fantastic plastic people there in the business and a lot of people in life generally. They find it so hard to be themselves that they have to be plastic.
+ - I have not become the artist I believe I am. I want to become a stadium act. I’m not done at all.
+ - I was a songwriter and I’ve written some good songs, but there are lots of greater songs that I know I have inside yet to come out.
+ - I’m an artist. And I’m happy that I was there at the commencement of this music, this Jamaican music, to put my contribution and help to establish it.
+ - I’ve done a lot of things to become what I’ve become, out to create and establish a musical form and I call it movie.
+ - Certain artists have a role to echo the echoes of the people and that’s what I’ll be doing on my next album.
+ - People in the Hall of Fame tend to clap their hands and say, ‘OK, I’ve done it all,’ but for me, it was a new beginning.
+
+32 quotes

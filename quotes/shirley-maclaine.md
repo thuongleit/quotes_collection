@@ -1,0 +1,144 @@
+ - I think in the end we all know that our best friend is ourselves. We are born alone and we die alone. That’s the journey.
+ - In order to get to the fruit of the tree, you have to go out on a limb.
+ - Prayer is speaking to God. Meditation is listening to God. Trust tranquility.
+ - Crystals amplify the consciousness.
+ - Fear makes strangers of people who would be friends.
+ - Perhaps the longest journey is the journey within.
+ - He’s a real gentleman. I bet he takes the dishes out of the sink before he pees in it.
+ - To dance at all is to confront oneself. It is the art of honesty.
+ - Celebrate what is possible. Your beliefs will create your reality.
+ - Dwelling on the negative simply contributes to its power.
+ - When you walk 10 hours, 11 hours a day by yourself, you are doing a walking meditation.
+ - I think of life itself now as a wonderful play that I’ve written for myself, and so my purpose is to have the utmost fun playing my part.
+ - Don’t be afraid to go out on a limb. It’s where all the fruit is.
+ - You know when you eat too many sweets and get diabetes? Paparazzi are the diabetes of materialistic culture.
+ - All you really need in life is some fresh water, a good hat, and a really good pair of shoes.
+ - The pain of leaving those you grow to love is only the prelude to understanding yourself and others.
+ - Anything is possible if you believe you deserve it.
+ - Nothing should be permanent except struggle with the dark side within ourselves.
+ - There’s no journey worth taking except the journey through one’s self. That’s the most important journey you take. I found that out as I went around the world many times: I was learning about me.
+ - If anything interferes with my inner peace, I will walk away. Arguments with family members. All that stuff. None of it matters.
+ - If we can genuinely honor our mother and father we are not only at peace with ourselves but we can then give birth to our future.
+ - It’s real important to enjoy your turn.
+ - The loss of magic is the denial of unlimited possibility.
+ - Technology has outstripped our knowledge of self.
+ - What we live with is ourselves. And when you have your own identity you are much easier to live with.
+ - The spirit is something to be enjoyed. It is not a harsh discipline. And I think people should take some time everyday for some kind of moving meditation, like Qigong or Tai Chi.
+ - I don’t need anyone to rectify my existence. The most profound relationship we will ever have is the one with ourselves.
+ - All life is a boomerang. We receive what we give.
+ - Crystals are amplifying minerals. You have a crystal in a radio – it amplifies the sound waves. You have a crystal in a television set – it amplifies the light waves. When you hold crystals, they amplify thought waves.
+ - Sometimes I feel an impingement of something I went through in another lifetime. But I like to concentrate on the absolute present. That’s why I love my animals. They live in the present.
+ - Some people think I look like a sweet potato, I consider myself a spud with a heart of gold.
+ - You are the architect of your personal experience.
+ - Why do people have to love people anyway?
+ - My gift is that I’m not beautiful. My career was never about looks. It’s about health and being in good shape.
+ - Maybe the tragedy of the human race was that we had forgotten that we are each divine.
+ - Once you get your own family clear in your head, whatever your problems are with it, you’re better prepared for being an adult in the world.
+ - Until mankind realizes that there is, in truth, no good, and there is, in truth, no evil-there will be no peace.
+ - You can’t lie when you dance. It’s so direct. You do what is in you. It is impossible to dance out of the side of your mouth.
+ - I’m not unaware of how I’m perceived, I just don’t care about it. Unless I really hurt someone’s feelings. I care about that.
+ - We’ve had so many lifetimes of different cultures and different religions and different points of view and different wars and different loves and different children.
+ - I have never seen myself as leading for others. What’s important is that I know who I am. Not completely. But I’m coming around third base.
+ - A person who knows how to laugh at himself will never ceased to be amused.
+ - I hoped that the trip would be the best of all journeys: a journey into ourselves.
+ - You have to surrender to the energy above and below.
+ - I think people will become more and more aware that we are all more than we seem.
+ - I think it’s much more important to know the truth than it is to make money on it.
+ - To release others from the expectations we have of them is to really love them.
+ - You think you have a handle on God, the Universe, and the Great White Light until you go home for Thanksgiving. In an hour, you realize how far you’ve got to go and who is the real turkey.
+ - I realized that if what we call human nature can be changed, then absolutely anything is possible. From that moment my life changed.
+ - I think we have to do something about the environment and how we are polluting the planet.
+ - For if the talent or individuality is there, it should be expressed. If it doesn’t find its way out into the air, it can be turned inward and gnaw like the fox at the Spartan boy’s belly.
+ - Being old is such a treat!
+ - If you’re comfortable with yourself-which everyone can get to, to some extent-that’s when you start getting into who is your real self.
+ - If I could know me, I could know the universe.
+ - Well, when you’re relaxed, your mind takes you to the whole reality. There’s no such thing as time when you’re really relaxed. That’s why meditation works.
+ - You know, I think I had my first past life recall when I was 7.
+ - I don’t think you go out of style when you’re living in the present most of the time. And I think that is what I do.
+ - One can become as intellectually arrogant about spirituality as about empirical science.
+ - We humans should never forget our capacity to connect with the collective spirit of animals. Their energy is essential to our future growth.
+ - Dance is an art that imprints on the soul. It is with you every moment, it expresses itself in everything you do.
+ - Melt their weapons, melt their hearts, melt their anger with love.
+ - The uninvestigated life is not worth living. I don’t want to live that way.
+ - On the stage you try to act real. On the screen you try to be real.
+ - New York is the perfect town for getting over a disappointment, a loss, or a broken heart.
+ - You know, I have never had a casting couch proposition in my life. I thought there was something wrong with me.
+ - I look like a real bag lady when I go to Starbucks with my dog and get my chai.
+ - I’ve been through so much of my own self-search that I’m not as consumed with who I am as I used to be.
+ - Listen to sounds beyond silence.
+ - Then come the lights shining on you from above. You are a performer. You forget all you learned, the process of technique, the fear, the pain, you even forget who you are you become one with the music, the lights, indeed one with the dance.
+ - Someday change will be accepted as life itself.
+ - I’d like to go to another planet, which I might live long enough to accomplish. Just get on a spaceship and go. But not the moon. I don’t see any flowers there. The moon is too close. I want to go further.
+ - It’s useless to hold a person to anything he says while he’s in love, drunk, or running for office.
+ - You can’t take a crash course in serenity.
+ - People think I’m nuts.
+ - I mean, I’m just speaking of my own experiences and my own desires, and it’s a kind of a childlike wonder that could really possibly speculate on other dimensions.
+ - Audrey was the kind of person who when she saw someone else suffering tried to take their pain on herself. She was a healer. She knew how to love. You didn’t have to be in constant contact with her to feel you had a friend. We always picked up right where we left off.
+ - I loved the idea of doing a love story with people over the age of 60 and a film that will hopefully give so many of the audience a chance to see themselves on the screen.
+ - I’m a peaceful person once work ethic is established.
+ - And I think we’ll be able to prove scientifically that other talents such as intuitive, psychic, clairvoyant and audiovoyant are very real.
+ - I want women to be liberated and still be able to have a nice ass and shake it.
+ - I can’t give up my own identity.
+ - I’ve always thought I was looking for myself whenever I traveled. Like a journey anywhere was really a journey through myself.
+ - You have to be talentedly insecure in order to be a good actress. And then it’s the director’s job to make you more miserable and get a good take.
+ - In some ways, America has grown up to be a masterpiece of self-concern.
+ - The mob taught me how to play gin rummy.
+ - I think the hill one has to trudge in order to understand a man’s baggage is more of a trek than I’d like to take right now.
+ - I’d like to introduce someone who has just come into my life. I’ve admired him for 35 years. He’s someone who represents integrity, honesty, art, and on top of that stuff I’m actually sleeping with him.
+ - Of course, we’re all a mass of contradictions.
+ - I could be whatever I wanted to be if I trusted that music, that song, that vibration of God that was inside of me.
+ - I can’t advise any of the young ones, because I don’t know what their background was, but I would suggest that anyone who wants to be famous more than anything – there’s a real problem.
+ - Women love working together. That’s my experience anyway.
+ - I simply channeled a character, this time I allowed the character to inhabit me.
+ - I was afraid I would get the Oscar for ‘Irma La Douce’ because it was popular. But I didn’t want to because I didn’t really think it was that good.
+ - I’ve gotten crankier in my old age.
+ - Remember, I come from such an excessively overdone, red-carpet place called Hollywood. So I’m used to people blowing up their success in ways that are far above and beyond the truth.
+ - On things she had to pack before leaving her home in advance of a forest fire, 1996. Childhood pictures and pictures of my life. Do you know how many pictures that is? Not just this life; I have pictures from 13,000 lives.
+ - Fear is concealed in smiles and flashing teeth. ‘Please say you still love me,’ the kings and queens are really saying. And, when they fare badly, they return to their palaces and sleep fitfully.
+ - Someday perhaps change will occur when times are ready for it instead of always when it is too late. Someday change will be accepted as life itself.
+ - The comedy of class, played so straight, is a wonderful thing for an actor to sink their teeth into.
+ - The best way to get husbands to do something is to suggest that perhaps they are too old to do it.
+ - I love the idea that I’m the oldest one in the room because I can get away with anything!
+ - I don’t do like diva trips and stuff.
+ - I’m an artist, therefore I think I am sensitive to human pain.
+ - You let the energy go wherever it wants. I have such a rich spiritual life. Most people take drugs to experience that.
+ - Sometimes people who have their lives played out in public don’t feel they have the privacy to continually journey within. I did, and that’s why I have longevity.
+ - Friendship is not linear. It moves in all directions, teaching us about ourselves and about each other.
+ - I had a video made of my recent knee operation. The doctor said it was the best movie I ever starred in.
+ - Things are done according to money these days.
+ - When times are bad, people like to lose themselves in the sheer glamour of another period: beautiful wardrobes, magnificent meals served in elegant settings.
+ - Art is about energy positive and negative. All art has the power to heal because it helps us see who we are, and what we resist.
+ - I’m an expert in hookers. I’m an expert in doormats. I’m an expert in victims. They were the best parts. And when I woke up – sociologically, politically, and creatively – I could no longer take those parts and look in the mirror.
+ - Movie makers now choose profit over vision.
+ - I have a lot of friends who are around. I’m having a wonderful time in my life now with my platonic relationships with men and women, because when that sexual tension is off the requirement of the interplay, then you get to who the people really are, and to yourself.
+ - I have to do two things at once or I get tired.
+ - If they would teach us from the time we’re little to meditate and get in touch with all that our souls know, we wouldn’t fight so much.
+ - We are not victims of the world we see, we are victims of the way we see the world.
+ - For me, the safest place is out on a limb.
+ - God bless that potential that we all have for making anything possible if we think we deserve it. I deserve this.
+ - An actor has many lives and many people within him. I know there are lots of people inside me. No one ever said I’m dull.
+ - I wasn’t afraid of getting old, because I was never a great beauty.
+ - There are stars who are proficiently paranoid enough to hide what they really think. I can’t.
+ - The pickings are pretty slim when you have to play the part of a housewife who doesn’t go out of her apartment because she’s afraid she’s going to get mugged, or a woman who turns into her brother, who is a murderer.
+ - I’ve made so many movies playing a hooker that they don’t pay me in the regular way anymore. They leave it on the dresser.
+ - I don’t feel competitive.
+ - I make my mistakes in public.
+ - If I had a party to attend and didn’t want to be there, I would play the part of someone who was having a lovely time.
+ - I think male actors get confused by their own vanity.
+ - My first few weeks in New York were an initiation into the kingdom of guts.
+ - Of course I’m schooled in the old school method: taking what I think the director wants, then reworking it through my own brain and heart.
+ - I’m not one for wardrobe.
+ - I don’t know why anybody would be in awe of me.
+ - Being a dancer meant you nearly always thought about food.
+ - The secret is to let the audience feel through the actress, rather than having the actress feel for the audience. When you can do that, you involved the audience almost without their knowledge or awareness.
+ - I live in too many cities.
+ - I think when I was in my early twenties and middle twenties I didn’t even know I wasn’t living up to my potential. A couple of friends told me I wasn’t and told me to get my act together, and it made a huge impact on me.
+ - Remember what people used to say about meditation? Now everyone is doing it.
+ - I don’t have an assistant. I make a lot of people around me my slaves, but no assistant.
+ - We cannot divorce what we are producing from what we are. We create technology out of the vision we have of ourselves. If we are blind in our conception of ourselves we will create a blind technology.
+ - I watched my head rolling on the floor. It landed face up and a big tear came out of one eye.
+ - My mother was Canadian, so you never knew what she was thinking.
+ - I think the world is in the mess it’s in because we are spiritually ignorant.
+ - It’s a big deal for me to say I’m over politics.
+
+142 quotes

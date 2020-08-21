@@ -1,0 +1,147 @@
+ - You don’t have to be rich to be generous. You have to be generous to be generous.
+ - Influence is about being genuine.
+ - Don’t ever forget where God found you.
+ - God uses us to impact others.
+ - Jesus Christ was the ultimate influencer. My life has been influenced by Jesus more than anyone else.
+ - Unconfessed sin is a terrible, heavy burden to carry. God loves us too much to have unconfessed sin.
+ - If you listen to your people they’ll tell you what’s important.
+ - If you choose to be obedient to God, God meets you with divine enablement.
+ - Move with the movers.
+ - Any sin you cover, God uncovers. Any sin you uncover, God covers.
+ - When you get honest with God, you can exchange the fig leaves you used to cover your sin with the righteousness of Jesus Christ.
+ - Influence is the platform God gives you to help others succeed.
+ - You can minimize your sin. Rationalize your sin. Justify your sin.
+ - A woman never wrote, “Thou shalt not commit adultery.” God wrote that. You sin first and foremost against God.
+ - Uriah proved to be a better man drunk than David was sober.
+ - Satan will try to use our troubles to worry and weaken us. But God uses them to strengthen us.
+ - Who influenced you? When did they influence you? How have they influenced you? What have you done with their influence?
+ - God’s kiss of forgiveness sucks the poison out of the wound.
+ - We can influence people for bad or good.
+ - Before people deal with their own sin, they are always dealing with other people’s sin.
+ - I want to live in light of eternity. I want to do now what I’ll be glad I did then.
+ - Most people don’t believe in themselves.
+ - In order to receive a pardon you must plead guilty.
+ - Until you start thinking right, you will never start behaving right. Repentance always deals with the changing of the mind.
+ - It’s not the truth that you know, but the truth that you obey that matters.
+ - Influence requires humility. The essence of influence is others. The key word is relationships.
+ - If God gives you a platform where you’re influencing others, you need to steward it well.
+ - What blame did Jesus have when He took the full blame for your sin?
+ - God received from me something He didn’t have on His own. My sin. I received something from God I didn’t have on my own. His righteousness.
+ - The blessing of influence is helping others succeed. It is lifting up Christ with your established platform.
+ - You can’t forgive your sin. Only God can.
+ - Some say you forgive and forget. Not true. You can’t forget but you walk forward in forgiveness.
+ - You can’t compartmentalize unforgiveness. You can’t control sin. You can’t manage sin. Sin is never satisfied with the amount of you it possesses.
+ - You’re never more like Jesus than when you’re giving.
+ - Everyone has influence. Use it wisely.
+ - God has been preparing me for what God had prepared for me.
+ - People want to be part of something bigger than they are.
+ - God gives enabling grace to go on.
+ - Everyone needs someone to believe in.
+ - If God can save Paul, He can save anybody. If God could use me, God could use anybody.
+ - When you believe in someone, they will do anything and everything to live up to those who believe in.
+ - There’s a special place in hell for what some people have done but there’s also a special place in God’s heart for their forgiveness.
+ - Influencers are dreamers. They are leaders with a vision.
+ - Show more interest in their story than your own.
+ - Pastors spend a good bit of time helping people with their sin. Who helps them with their sin?
+ - The beginning of knowledge is to know thyself a sinner.
+ - I think one of the reasons our court system wants to remove The 10 Commandments is because The 10 Commandments reminds us we are sinners.
+ - The word “conviction” means to expose.
+ - Apart from Jesus Christ you are spiritually bankrupt.
+ - What a blessing to live to be missed.
+ - Every man is a hero or oracle to someone. And that person has enhanced value.
+ - If you have an offense against me, do you know you can’t repent of my sin? You can only plead your own personal pardon at the throne of God.
+ - Authority leads through position. Influence builds others out of relationship.
+ - Anytime you commit sin and God deals with you, you have the opportunity to confess it. If you don’t confess it, you only have one option but to cover it up.
+ - The Christian life is anything but boring.
+ - If you be faithful as an influencer, God will allow those you mentored you to become your mentees.
+ - Integrity gives. It is not a taker.
+ - People who excel at something can rarely tell you how to do something.
+ - You cannot control sin. Sin will control you. Do not try to manage sin.
+ - If we don’t own our manhood someone else will.
+ - You can know you’re a Christian if, not are you dealing with your sin before God but is God dealing with you about your sin.
+ - To influence others must keep growing themselves.
+ - Never stop forgiving.
+ - You must emulate the truth you exhort.
+ - All our good works and good intentions can’t solve our sin problem.
+ - What seems over your head is always under His feet.
+ - When you go before God, you can only confess one person’s sins.
+ - There is no record in the Bible of a weak man falling.
+ - 80% of the people who come into a Christ-following relationship is because a friend, co-worker, family member or neighbor invited them to church.
+ - Identify with failures in others by listing yours.
+ - God wants an opportunity to prove who He is.
+ - Any moment you’re willing to give up your fig leaves, which you think are covering you, God will give you His righteousness, which will really cover you.
+ - I want to model generosity and touch poverty.
+ - If you know what you got and like it, be reluctant to leave it.
+ - It’s very different to live with a mask.
+ - This is one beggar who has found bread telling others where to find it.
+ - Men die the way they lived.
+ - If God did not care for you, there would never be a sense of a need to respond.
+ - There is no such thing as great work without longevity.
+ - When people get drunk they do things they shouldn’t do.
+ - The greatest joy of my is when Jesus moves on my heart and tells me to give to someone.
+ - We ought to love the sinner and hate OUR sin.
+ - I’ve never missed anything I’ve given away.
+ - It’s not just a song I sing with my hand raised but also with a billfold I’ve laid.
+ - If I don’t let God deal with my bentness, I will go the way of my bentness. But Jesus can straighten me out.
+ - The enemy can steal your song.
+ - Influencers refuse to leave the world they way they found it. They leave a legacy.
+ - Vision sees what could be.
+ - Apart from Jesus I am a greedy man.
+ - If a preacher tells you how God says you are, I don’t see how you can say that’s bad preaching.
+ - The stewardship of influence. What have you done with influence?
+ - God may not allow you to touch thousands but He may allow you to touch one who will touch thousands.
+ - You can be genuinely forgiven by God and other people but still suffer the consequences from a particular sin in your life.
+ - Some people you speak to you speak into their heads. It’s logical.
+ - Sin will do a number on you.
+ - Influencers influence people and the people who they influence.
+ - More lives are influenced by emulation than exhortation.
+ - When Jesus Christ forgives you of sin, He never brings it back up.
+ - Influence is not the same as authority. Authority can be abused by influence gives.
+ - If your lives connect with other people you have influence.
+ - If you are godly it has been because you have been made godly.
+ - Everyone wants to connect with someone who people think is someone.
+ - Will you ask God to bring you to the place where you’re willing to be willing?
+ - When God brings deep conviction and I agree with Him about my condition, God restores my confidence in Him.
+ - It is estimated over 80% of all illnesses today are spiritual in nature.
+ - You do not have to protect people’s pocket books. They’ll do a better job of that than you will.
+ - David did not pay for his forgiveness. He did pay for his unforgiveness.
+ - Human speculation is no match for divine revelation.
+ - The godly are not exempt from trouble but are preserved in it.
+ - Platforms are established because of the way the Lord used someone.
+ - Forgiveness is just such a big deal.
+ - Some people are into position, not the mission.
+ - I don’t know of a way to have a generous church without a generous pastor.
+ - You can’t receive forgiveness unless you let God deal with your deceit.
+ - You should use your influence to help other platforms succeed.
+ - You have to experience grace to be one who knows how to give it.
+ - The most miserable man in this room tonight is the Christian who is not right with Him.
+ - Everyone of you got to where you are because someone influenced you.
+ - Where do you think you would be now if Jesus would not have saved you when He did.
+ - Granddaddy can pick up a phone and call anyone in the world and they will take his call. But he doesn’t know it.
+ - My own heart has to be under constant check by Jesus.
+ - All the good you’ve ever done does not make it permissible to sin now.
+ - There will be people the old flesh will rise up and wonder why God blessed them. But no one will ever be envious on God’s blessings on their children.
+ - Sin is too big to be handled alone.
+ - That’s what wrong. We’ve got people whose wallets have not been baptized.
+ - Forgiven sin is better than accumulated wrath.
+ - The platform God has given me is the platform of exhortation.
+ - You have to believe in them now. Christ believed in you when there was nothing to believe in.
+ - We just planted our 21st church.
+ - Lord, give us a ministry where the sun will never set.
+ - Before I met Jesus I wanted to be a professional pool player.
+ - Would you like me to teach you how to trust God? Start with your money.
+ - You can cross the line but you can also be forgiven.
+ - Everyone loves winners. You look for things to praise with those you believe in.
+ - The question is not what was different about Bathsheba. The difference was what had become different about David.
+ - We take in more a week now than we did in two years when I first came to the church.
+ - The only way I see an out is for you to take full responsibility.
+ - Feel the force of forgiveness.
+ - The enemy will hit you in your area of strength to discourage himself.
+ - Is your transgression forgiven?
+ - Sin regardless of how you get there is a vulnerable and a dangerous place to be. Living in unforgiveness is living in an unsafe place.
+ - The best thing there is to do when there is temptation is run.
+ - We are dealing in a day and time when the courts are defining sin different than the church.
+ - As a pastor our main ministry is exhortation.
+ - Forgiveness is not cheap even though it’s free.
+
+145 quotes

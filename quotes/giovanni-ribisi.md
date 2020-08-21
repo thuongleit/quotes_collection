@@ -1,0 +1,26 @@
+ - I love talking about Scientology.
+ - I’m old fashioned with my cell phone. I like that human contact and I think it’s important.
+ - I could almost say it is my religion. I guess that sounds pretentious, but I want to live and breathe cinema.
+ - I’m really happy with where I am, the movies in my life. Not satisfied, necessarily. But I won’t put it on somebody else, blame anybody else for my position in the business. It’s the choices I have made.
+ - For me, acting is all about the aesthetic. I just want to keep honing my craft. Not that I’m taking myself too seriously, but every artist should consider himself Picasso. Otherwise, you’re doing yourself an injustice.
+ - My mother told me I was begging her to be an actor when I was four. My father and my grandfather saw at least one or two movies a week; they were film buffs, so I guess it just rubbed off on me.
+ - Do what you’re doing while you’re doing it.
+ - Acting is ephemeral. It’s not like making a painting that lasts forever. You’re doing something, and the very action which comes and goes, is being demonstrated in front of you. Within that process, you’re trying to go against the grain.
+ - It was extremely useful to grow up in front of the camera. It gives the camera no significance. I think it helped me have perspective on things. The attraction that Hollywood can have, I feel like I’m over that. Instead I just concentrate on acting.
+ - I just consider myself a committed actor. If a movie is a success, that’s great; I’m happy for that. But I’ve learned just to concentrate on my job and do the best that I can.
+ - Without Scientology, I would be in an alley somewhere looking for dope.
+ - What’s sad is that there is an addictive quality to that, to believing your own hype; to allowing yourself to become validated by others and no longer by yourself. That’s the danger of celebrity.
+ - I grew up with Scientology – my parents at one point were clerical. It’s a pragmatic philosophy, not merely a belief system. Yeah, it’s had media exposure because certain luminaries do Scientology, but millions of people do it who are not celebrities. It’s not a threat or some cult.
+ - I used to shy away from publicity so as not to let it get in the way of the work. But it’s part of the job. The tabloids are a whole other arena. If fame happens, it happens. I just want to maintain focus.
+ - What an actor says is much, much less important than a life, so that’s the great use for improvisation; you go, you find the life and then you add the words.
+ - I’ve been allowed to grow over the past twenty years. I’ve managed to avoid being trapped in one moment of my career and for that, I’m very thankful.
+ - There’s the concept that if I do this big budget project, then that will help me do the things I really want to do and bring more money to those films.
+ - We went to – I guess it was a legitimate boiler room, and I sat in front of this guy who literally was on the phone with two people at once. They call it double fisting.
+ - Dostoevski was on to something. You are the path you choose. You are what your vocation is.
+ - A lot of writers, because they don’t understand actors, feel like, in order to be better at their performance, they have to change the words around a lot.
+ - If I had to choose criteria, for me, it’s about first the director. I want to be a part of something that’s good and intellectually challenging. After the director it’s the character and the story. That’s the deal for me.
+ - If you do improvising, it can sometimes end up being a waste of time. And if you do that, it’s more or less based on a writing process.
+ - I don’t think that many people today, understand the nature of what an improv does for an actor in a specific setting. What an improv does for an actor is help him find the life; it’s the life that an actor’s after.
+ - I want to be a part of something that’s good and intellectually challenging.
+
+24 quotes

@@ -1,0 +1,25 @@
+ - I can’t imagine ever not making music, making albums, writing songs, doing shows. That’s all I really know, and that’s all I really do.
+ - The biggest turn-off for me is people who think the world of themselves. Arrogance is not a sexy quality, and it really gets on my nerves.
+ - I don’t believe in open relationships. If you want to be with someone else, you shouldn’t be in a relationship in the first place.
+ - I’m a really bad liar. My mom finds out every time, especially now that she’s got Facebook.
+ - I don’t want to be one of those people who falls out of cabs drunk. But I don’t want to be known as some boring girl who just sits at home and doesn’t do anything.
+ - I just like boys who are good-looking, really! I like people who are tall with a good sense of style. My faves are the indie look, the smart look or the surfer look.
+ - The worst thing about me is my toes. I’ve thick joints from wearing pointe ballet shoes – I went to a dance school from the age of 11 and danced every day.
+ - Fashion is a reflection of your personality, so have fun and experiment.
+ - I long for the old days of Marilyn Monroe and Audrey Hepburn, stars who had real glamour and mystique. We only knew so much about their lives; the rest was a mystery.
+ - My two style icons are Edie Sedgwick and Brigitte Bardot.
+ - I always feel like I want to write a song when I’m really upset. And when I’m in an argument with my family, I go straight to the piano and just kind of take it out on the piano and get all emotional.
+ - I always prefer to write songs about emotional situations and heartbreak because I like getting into the character.
+ - The paparazzi stuff is a little weird. I used to leave the house in my pajamas. I can’t do that anymore, but I’m not complaining!
+ - I always feel like I have got so much to write about, when it comes to writing for the album. I still think that even though my songs are written from my perspective, I think that all age-ranges can relate to the songs.
+ - I think it’s really important for real artists to make sure they’re honest.
+ - I don’t try to pretend to be what I’m not. I don’t feel I need to do anything outrageous.
+ - I think honesty is a big part. Because when you sing live, you want the audience to believe you.
+ - I would really love to go to Thailand as so many people have told me how wonderful it is.
+ - Selena recorded a song I had written and she left my parts in on the middle eight so it ended up being Selena Gomez featuring Pixie Lott.
+ - I love dressing for the winter – especially in baggy chunky cardigans.
+ - Every time I get up and sing for people, I get such a high. I just want to do it again and again.
+ - I’m not afraid to use my personal experiences and put them into a song. I think that’s when you get the best stuff anyway, when it’s real emotion.
+ - I just always wanted to be a singer. My mom said I was even singing in my cot!
+
+23 quotes

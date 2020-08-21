@@ -1,0 +1,94 @@
+ - If you don’t believe in yourself nobody else will believe in you.
+ - It’s healthy to admit you’re not ok. ‘It’s ok not to be ok’ it’s brave. But don’t let it win. Be sad. Have your moment, your day or week. Then do something about it and be happy. For yourself.
+ - Don’t lose who you are in the blur of the stars Seeing is deceiving, dreaming is believing.
+ - It’s ok not to be ok. Just be true to who you are.
+ - Tears don’t mean you’re losing, everybody’s bruising, Just be true to who you are.
+ - Never expect, never presume, always work hard and always be true to who you are.
+ - Life isn’t about winning it’s about what you learn and how much you can grow.
+ - Look after yourself; remember that you only consist of your being, so make the best of what you have and look after it. Put good things into your body; eat well.
+ - The journey is more important than where you end up.
+ - Why is everybody so obsessed? Money can’t buy us happiness.
+ - Do good. Inspire. Set an example to yourself and others. Have faith. Make your actions loud. Have fun. Be nice. Love strong.
+ - Being perfect is boring. It’s the imperfections that make us perfect.
+ - Do what makes you feel good. Remind yourself of what you’re good at and make sure you do that.
+ - Trust Me. Life is not worth living feeling sad and down and lonely. Always be true to who you are.
+ - But I love singing live. Nothing beats the feeling of going out on stage and going, ‘I can really sing.’
+ - I know how hard it is to live your life with your wounds exposed to heal other people.
+ - I am a dork in disguise; I love doing stupid stuff.
+ - I’d hate it if everyone in the world liked me, my music and what I wore. It’d make it boring, and I wouldn’t have anything to work towards. It’s not to everyone’s taste, but I can only be me.
+ - And I definitely do that very British thing of, take things with a pinch of salt, stiff upper lip, you know what I mean?
+ - When I look back, I can see why people thought I was aggressive. My first single, ‘Do It Like A Dude,’ resulted in a lot of misconceptions about me. I’m confident – but I’m not arrogant.
+ - It’s really important to me that my niece and nephews can come and see my show, as can my grandad and nan. I love spending time with my family, and music has always bonded us.
+ - The message I want to give my fans is, always have a way to pull yourself out of the dark place. Don’t sit and cry about it. Have your moment, and then get over it.
+ - I want it to be less about sexuality and more about being comfortable in who you fall in love with. If I meet someone and I like them, I don’t care if they’re a boy or a girl. You should never, ever apologize for anything that makes you happy.
+ - I think confidence is the sexiest thing to have.
+ - I love cleaning, weird but true. It really relaxes me.
+ - I had knockback after knockback before I got anywhere. After I got my first record deal I thought that was it, then Gut Records went into liquidation. I was 20. I had no idea what that meant. I had a few days to get myself out of that contract or my work would be owned by someone else.
+ - We’re flying free like birds in the sky, because we’re ALIVE.
+ - Being bullied means you’re special and that’s what I want all kids to know.
+ - I have always been the first on the dance floor. Before fame, people thought it made me a good laugh; now, people point and call me an attention seeker! I’m very aware of the way people can view me, but I’m very aware that I have to just enjoy my life.
+ - I want young people to know that they can belong – whatever your culture, your religion, your sexuality – that you can live life how you want to live it and feel comfortable how you are.
+ - The people who really love and care about you will always surface in time and stay in your life. Always.
+ - When I turned 25, something changed in me. I see children in my future 100%. Soon. I started thinking I want my kids to look back and say, ‘Wasn’t Mummy amazing?’ I’ve really started thinking about what I’m leaving for them.
+ - Sometimes you have to be a diva. All the artists I admire from Madonna to Whitney to Mariah have all been called divas. If you are strong, if you have vision, if you are an artist, you have to do what you believe in. And if you get called a diva for it, then so what.
+ - I want everybody to think I’m a hard worker as an aunt, a sister, a friend, a daughter, a niece, everything. I want to be great at every role, because every role in my life is as important as being Jessie J.
+ - We all make mistakes. It’s human. Just learn from them. Repeating them and being aware of it is the dangerous bit.
+ - I’m the most un-diva-ish person you’ll meet. I’m never rude to people and I am always on time.
+ - I think the best way to have confidence is not to allow everyone else’s insecurities to be your own.
+ - My attitude goes back to my childhood. I used to audition for theatrical roles, and you can’t stand out in a room full of ambitious eight-year-old girls by acting the wallflower. I realised then that I couldn’t do things half-heartedly.
+ - I like stripper shoes. I like being tall because I’m claustrophobic.
+ - I’m not really the party person. I don’t ‘become myself’ once I’m drunk. I don’t use alcohol to be happy.
+ - The only thing I want to be defined by is my music and personality.
+ - Some of the stage outfits I’ve got are ridiculous. I’ll lay out clothes to pack, and it’ll look like Polly Pocket clothing – because it’s all stretchy, it’s tiny. I don’t need a case when I tour; I can fit it all in my handbag.
+ - I guess karma comes back around ’cause now I’m the one that’s hurting.
+ - I’ve grown up a lot, and I’ve realized that what I need to make myself happy is the people around you.
+ - The rollercoaster has its ups and downs, loops and twists but enjoy the ride. We are all on it together.
+ - I just wanna make the world dance, forget about the price tags.
+ - He didn’t flinch, but in his soul he did.
+ - I’m glad I was faced with different cultures when I was growing up because I wasn’t fazed by it. It has been a huge benefit to me; I feel comfortable wherever I go.
+ - Sexuality shouldn’t define anyone. It doesn’t define me. Love should be at the core of what you do.
+ - I used to live in a gap jumper, tracksuit bottoms and a fake flower in my hair. Shocking.
+ - I’m not afraid to have no make-up on and no hair. I just want to be stripped back.
+ - You should never, ever apologize for anything that makes you happy.
+ - I love getting dressed up, but I want to be remembered for my singing.
+ - I’d love to have a fashion range; I’ve been dressed by the amazing Vivienne Westwood, and fashion is something I’m a huge fan of.
+ - I’m not afraid to say I’m very comfortable with who I am and I love who I love.
+ - I might put a nicer pair of heels on and a cooler outfit, but I’m still that naughty girl who likes a slice of cheesecake on my day off.
+ - When I was 10 or 11 people started saying there was something special about my voice. But when I was 15 or 16 is when I really thought my hobby could become my career.
+ - I was obsessed with the Spice Girls! I always wanted to be Sporty. Or Posh, but I wasn’t pretty enough.
+ - I never stop working when I’m on stage, and that’s my fitness.
+ - I’m so hard on myself that when I’m in the studio, I’ll write 10 songs and only use one. So those nine songs that are left over, I always think, ‘Where could these go? Who could they be for?’
+ - The way I look at it, a footballer wouldn’t play in flip-flops or dip their feet in acid and then expect to get to David Beckham’s level. My voice is my living, so I’ll be looking after it.
+ - I always imagine the world and myself above it and how minute one negative person’s voice is in comparison to the amount of people that are in the world.
+ - My style is constantly evolving. Style has been something that I think has been the hardest thing for me to come to terms with.
+ - Whoopie doo guys, yes, I’ve dated girls and I’ve dated boys – get over it.
+ - And that’s the kind of thing people think, you know, that if you sign up to be a singer-songwriter you know how to deal with people setting up hate websites, or people being obsessed with you and crying when you touch them, but you don’t, and you just have to deal with.
+ - Songs lay a foundation of who I am going to be forever.
+ - I love looking completely different and that my fans won’t always know what I’m going to do.
+ - I have become a bit obsessed with eyebrows. I used to never have any, and then I realised big eyebrows are good, and now I’m an eyebrow fiend. Everyone comes to me to get their eyebrows done.
+ - The best gift a fan could give me is undeniable support.
+ - I’m an artist, but I’m also a businesswoman, and sometimes you have to play hard.
+ - It’s weird because when you initially write a song, you write it with no understanding that the world is maybe going to hear it one day. So when you go into the studio, you don’t see the hundreds of people at a gig or the viewers on TV, you just write a song without any inhibitions or boundaries.
+ - I can play the air guitar really, really well.
+ - I’m so happy people are seeing the eclectic side of me. I’m really honored to be able to push my voice into different sounds. Otherwise it all gets a bit samey same.
+ - I do my own make-up a lot of the time, and I’m very involved in what I wear.
+ - You know, as a woman, it is tough to get to the top – like to get to that respected level in this industry – in any industry, I think.
+ - I also surround myself with people who make me laugh. If I’m not laughing, it upsets my day.
+ - I’m not a natural runner. I’m friends with Ellie Goulding, and she’ll be like, ‘I’ve just done a 10K run’ and I’m like: ‘Why would you do that? How do you just do that?’ But I will do that. I will do it.
+ - If I’m on a bus and someone makes my blood boil, I’ll pocket those emotions and put them in a song.
+ - I think if I wasn’t a singer I’d probably do make-up and beauty and hair and something creative like styling; I really enjoy it.
+ - I wasn’t always someone who was talented. It was more that I was loud and loved a challenge.
+ - I’m glad I’ve had to struggle. It’s made me the artist I am now.
+ - When I was nine, I was diagnosed with an irregular heartbeat and was prescribed beta blockers, which had the side effect of turning my skin green. Looking like Shrek’s little sister at school wasn’t the easiest thing.
+ - I’ve been in dance schools since I was four. I went to the Brit school. I did adverts and plays.
+ - I see my music as Emotional Therapeutic Pop music that bleeds into loads of different genres.
+ - During my stage shows, I am so energetic. It’s constant! I just don’t stand still. I actually got given a mic stand from my team to say ‘Just calm down. Stand still for at least two songs.’ But now I just pick it up and walk around with it.
+ - As an artist, I try and be controversial, and I have been a bit offensive at times. I have a view on the burka, and I’m sure a few of the Muslim girls and their families would have a view of me on stage in next to nothing!
+ - I feel like a lot of the industry and media portray this image of what beautiful is, or how you should dress, or how you should look, and I don’t think it’s healthy.
+ - There are a lot of people holding on to the old Jessie J – whatever that means – but I think there’s a lot more people realizing what I’m about. I think people like it.
+ - I always wanted to be an artist; being a songwriter for myself was always a must but being a songwriter for others has been a bonus.
+ - I won’t lie – when you’re first bringing out music and you want people to notice, you probably overdo it, especially as a girl.
+ - I’m someone who’d never base how happy I am on how much money I have, or how good a restaurant is because of how posh it is.
+ - If I did meet somebody, I would only ever make room for someone that loved me how I deserved to be loved. Until then I’ve got my shoes, I’ve got my album, my dog.
+
+92 quotes

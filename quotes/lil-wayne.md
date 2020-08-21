@@ -1,0 +1,184 @@
+ - I have no stress, because I am the best.
+ - Real gs move in silence like lasagna.
+ - Make jokes. No stress. Love. Live Life. Proceed. Progress.
+ - I don’t think nothing. I just do my work.
+ - I want you to know, that you deserve the best. You’re beautiful.
+ - Never back down from a real challenge. They give the best lessons in life.
+ - Life goes on but the scars remain.
+ - Repetition is the father of learning.
+ - When i started flirting with the hustle, failure became my ex, now I’m engaged to the game and married to success.
+ - The only thing on the mind of a shark is to eat.
+ - My future will be better than my past.
+ - I’m blessed and I thank God for every day for everything that happens for me.
+ - I don’t care what you say, so don’t even speak.
+ - I’m an addict, I’m addicted to success. Thankfully, there’s no rehab for success.
+ - Never apologize for what you feel. It’s like being sorry for being real.
+ - I smoke till I got chest pains.
+ - Ok you want me up in a cage, then I’ll come out in beast mode.
+ - I like people that enjoy life, ’cause I do the same.
+ - My life is like a movie and I do my own stunts.
+ - A million feelings. A thousand thoughts. A hundred memories. All for one person.
+ - If I die today, it’d be a holiday.
+ - I don’t need it to be easy. I just want it to be worth it.
+ - I am probably in the sky, flying with the fish, or maybe in the ocean, swimming with the pigeons. See, my world is different...
+ - Earning your Masters in Library and Information Science is beautiful.
+ - My first priority is my family. I am human. But my whole family knows what my priority is. Family is always first. But my work is under nothing else, except God.
+ - I believe in God and his son, Jesus.
+ - Confidence is the stain they can’t wipe off.
+ - Keep your mouth closed, and let your eyes listen.
+ - I ’aint a killer but don’t push me.
+ - Safe sex is great sex, better wear a latex, cause you don’t want that late text, that ‘I think I’m late’ text.
+ - I think about more than I forget, but I don’t go around fire expecting not to sweat.
+ - What goes around comes around like a hool-a-hoop.
+ - Every girl deserves a guy who’ll prove to her that not all guys are the same, a guy who’ll love her just the way she is.
+ - A blessing in disguise, is right before our eyes. But since it is in disguise, we don’t know that it’s there.
+ - I don’t take breaks, I just break records.
+ - We are not the same, I am a martian.
+ - I know my role and I play it well.
+ - I can change your life, make it so new. Make you never want to go back to the old you.
+ - Been to hell and back, I can show you vouchers.
+ - I’m a very creative person, and the best part about creation is creating. So I always love to come up with new things, new ideas, new thoughts. I cherish things like that.
+ - I don’t think life is about a pace, living slow or fast. I think you just live, y’know what I mean?
+ - They say I couldn’t play football, I was too small. They say I couldn’t play basketball, I wasn’t tall. They say I couldn’t play baseball at all and now everyday of my life, I ball.
+ - They paint me as a villain, I just autograph the artwork.
+ - Everything gets better with time, and time is forever.
+ - Love me or hate me, i swear it won’t make or break me.
+ - Too much money ain’t enough money.
+ - I am the beast, Feed me rappers or feed me beats.
+ - You can sit right on my middle finger for the night.
+ - I gotta die with money cuz i wasn’t born with it.
+ - I love a challenge. It’s fun as hell to fall and to not get something and then to finally land it. That’s like pursuing a girl that said no a hundred times and she finally say yeah. That’s what it feels like every single time.
+ - My word is my pride, the wisdom is weak, and that’s word from the wise.
+ - I always believe that to be the best, you have to smell like the best, dress like the best, act like the best. When you throw your trash in the garbage can, it has to be better than anybody else who ever threw trash in the garbage can.
+ - I am from the jungle where the lion eats the cobra.
+ - I’m so official, all I need is a whistle.
+ - Woman of my dreams, I don’t sleep so I can’t find her.
+ - People call it Valentines Day, I call it Tuesday.
+ - Sometimes I wanna drop a tear but no emotion from a king.
+ - Hate is only a form love that hasn’t found a way to express itself logically.
+ - And I know this world is so cold and deceiving but I keep my head up like my nose is bleeding.
+ - I stick to the script, I memorize the lines, cause life is movie that I’ve seen too many times.
+ - If a girl understands your BS, sticks with you through your mistakes, smiles even when you’ve done nothing for her, it’s obvious she’s a keeper. But it’s also obvious you don’t deserve her.
+ - You have to self-reflect. If you forget who you actually are, then what’s the use of even looking in the mirror.
+ - Trying to tear down the past prohibits you from building up your future.
+ - Abracadabra, I’m up like Viagra.
+ - I go wherever my creativity takes me.
+ - I just always expect the best because I’m a competitor and if I’m competing, then obviously I’m trying to be better in everything.
+ - Throw dirt on my name, and I still come out clean.
+ - Take the first chance that you get, because you may never get another one.
+ - I tried to pay attention, but attention paid me.
+ - I don’t make sense yadda yadaaaaa.
+ - I think positively, you can’t harm me mentally, not physically, not spiritually, you’ll never get rid of me.
+ - Remember all those times I swore I needed you? Well consider them lies because baby here I am without you and I survived.
+ - I search but never find, hurt but never cry.
+ - I like being misunderstood.
+ - God can judge me, I don’t need a jury. Nothing standing in my way, like nothing’s my security.
+ - As long as people remember me forever, that will be enough for me.
+ - I know it’s an experience that I need to have if God’s putting me through it.
+ - I’m a gangster, and gangsters don’t ask questions.
+ - I’m not hot. I’m great.
+ - I’m the only fire that can live in the rain.
+ - My family and my friends-they keep me grounded. Especially my mom, because she would kick my ass if I was to change.
+ - Things I say have value and I would love for you to value them, however you get it.
+ - I don’t want to be understood because if people understand me, they get tired of me.
+ - I don’t dream a lot. But whenever I dream, I just dream about the day I just had or something like that. Mostly that’s what I dream about. I dream about that current day. Other than that, I don’t dream a lot.
+ - Yes I do it big, call me little astronomical. Weezy F. Baby and the F is for phenomenal.
+ - I am a gangsta, Ms. Katie. I don’t take nothing from no one. I do what I wanna do.
+ - I speak the truth but I guess that’s a foreign language to ya’ll!
+ - With everything happening today, You dont know whether you’re coming or going, But you think that you’re on your way, Life lined up on the mirror dont blow it...
+ - I hate failure and I am in love with achievement.
+ - Nothing scares me but God.
+ - I’m so greedy, I’m hungry, I’m young.
+ - I’m not the same as other people. I don’t think the same. I don’t do the same things. I just feel out of this world sometimes.
+ - Always talk to God, never listen to the cops.
+ - When it waynes, it pours.
+ - I want to be a skater.
+ - Get my kush in California, Get my dro from Arizona.
+ - Don’t judge me. You wanna judge me, put on a black gown and get a gavel. Get in line with the rest of them that’s about to judge me. I got court dates every other month. It’s me against the world – that’s how I feel.
+ - Jail didn’t make me find God, He’s always been there. They can lock me up, but my spirit and my love can never be confined to prison walls.
+ - I always do my rap from the outside looking in. Like I do my rap as if I’m looking at me rap.
+ - My main thing is to chill with my kids. My daughter loves to work, as well-she loves to record and stuff-so I like to work with her.
+ - I am very humble, and I am very gracious and very grateful for everything that happens to me and about me and around me.
+ - No one gives you a chance. You have to take chances.
+ - I’m not an example for how people should live their lives. Never in my life would I ever set out to be an example for people on how to live their lives. If you need an example for how to live, then you just shouldn’t have been born. Straight up.
+ - I believe music should reflect yourself in some way and not just yourself at the given time. I feel that when you die or when you’re going, someone’s supposed to listen to that music and know everything about you. And I just try to get that across.
+ - I always knew I couldn’t sing, but I also knew I had a voice that isn’t heard by many, and that I could learn how to stretch it and make songs sound good.
+ - My aim is just to make good music every single time.
+ - Life is a lot like skateboarding.
+ - Life is a movie, let love play its role.
+ - All about a dollar like four quarters.
+ - Here’s my most funniest joke, I’m broke.
+ - Her life is deep, but I still dig her.
+ - Somewhere along the way in your life, the world and its people will have a problem with you. That’s their problem. Not yours.
+ - Victory Consistently, train all year to be the enemy’s misery!
+ - I come straight from hell, Cell 23.
+ - Music is a reflection of who you are.
+ - Rain on my head; call it brain storming.
+ - I watch ESPN all day long.
+ - I ain’t thinking of tomorrow, tomorrow thinks of me like a garcia, bulk of money on tha counter, I told her, baby I see you as my cashier.
+ - Once you pick up a skateboard, you’ll find out that it’s not a hobby, it’s not a sport, it’s a lifestyle.
+ - Ma sex game is stupid, my head is the dumbest, I promise, I should be hooked on phonics.
+ - This is brain surgery. Ski masks on my bullets, let ’em commit brain burglary. Emergency, it’s an emergency. Someone in all black left the whole scene burgundy.
+ - A lot of women don’t know how to love because there’s deep reasons for them not knowing how to love. And what I mean by deep reasons is deep and dark reasons.
+ - Take dem shoes off your teeth and stop running your mouth.
+ - Surround yourself with love, not friends.
+ - They say I’m the Hottest MC in the Game. If you label me that, I will live up to it. Trust me.
+ - The future is born, put the past in a casket.
+ - I don’t look for signs. But when things happen, I say, ‘OK, something must be right.’ Or ‘OK, something must be wrong.’
+ - I want to make sure my family’s straight.
+ - Shoot you on the front porch and knock you to the back yard.
+ - Blind eyes could look at me and see the truth.
+ - Flyer than the rest but I don’t rest I keep goin.
+ - Got my tank top top down, it probably ain’t summer but I ride like that cause I’m hotter than the others.
+ - Oops, I said on my d-ck. I aint really mean to say on my d-ck. But since we talking about my d-ck, all of you haters say hi to it.
+ - I just feel out of this world sometimes.
+ - Haters can’t see me, but them b-tches still looking for me.
+ - I know how important voting and elections are. But everybody know that life is going to be life regardless of who is president.
+ - I dont want a broken heart because Ill lose the pieces.
+ - Life is a beach, and these hoes try’na lay out.
+ - Hip-Hop aint dead, it just had a heart attack.
+ - That’s one thing about me, and I think that’s what most of my fans enjoy about me, that I don’t hold nothing back. I do exactly what I want to do, and say exactly what I want to say.
+ - Fresh off campus is the Birdman JR.
+ - I lay down so hard, I got bed rash.
+ - It’s all good when we making love, all I ask is don’t take our love for granted, it’s granted.
+ - I am my city. Nobody from my city wants to hear about my city.
+ - Gotta get it, even if it’s in the worse way. Got cake like everyday my birthday.
+ - Nobody in the world could have told me I wasn’t gonna be a rapper. So, yeah, I always knew I was gonna be one.
+ - I’ma call my guns jumpers, cause my bullets just leapin to ’em.
+ - And I don’t think your beautiful, i think your beyond it.
+ - I do not consider myself a literal genius.
+ - I’m the bomb like – tickk. tick.
+ - From a cell to a jet call it Con-Air.
+ - One thing about a skater: they never quit. So a skater, to sum it up, is awesome.
+ - I look at things as ‘Everything is meant to be.’
+ - Where I come from, the block become your daddy.
+ - I don’t have to prove anything.
+ - I’m the lyrical vendor, hip-hop is my shop.
+ - I believe that music is another form of news. Music is another form of journalism to me so I have to cover all the areas with my album.
+ - If you leave you leaving the best, so you would have to settle for less.
+ - I’ve been criticized for the things I chose and things I’ve chosen to do.
+ - I do what I do and u do Wat u can do about it.
+ - I never give a f-ck about a hater; got money on my radar.
+ - I only listen to my music. I’m just analyzing it. Critical. Seeing what I like what I don’t like. Say what I should have said. What I could say next time, what I should have said, things like that.
+ - If I have a rap album I’m dropping, then I want it to be the best rap album.
+ - I don’t like to stop. I believe when you stop, you die.
+ - You’re either living or you’re dead.
+ - I have accomplished all that I have set out to accomplish and more.
+ - You supposed to be able to do anything in this world. That’s what Martin Luther King told me.
+ - That’s stupid. If anyone sees themselves in ten years they’re lying to themselves first.
+ - That’s the thing about mistakes – you don’t dwell on them.
+ - I’m on top of my green like a lawn chair.
+ - Everybody know, I don’t do no promoting. I don’t ever have to promote nothing, that’s the beauty of Lil Wayne.
+ - I don’t think I’ve ever googled myself.
+ - The most bizarre thing I’ve ever read about myself is that I was dead. That was kind of weird to read that I’m dead – mostly because I was reading it.
+ - Music is a reflection of who you are, and if those things that you mentioned are what your music is all about, then I guess that’s who you are.
+ - I feel like everything I do is successful and productive. It’s gonna be hard to tell me I’m slipping.
+ - I believe that business shouldn’t be done in the public’s eye anyway. And I believe that business shouldn’t be handled in the magazines anyway. Business should be handled in the room amongst the people you’re doing business with.
+ - There’s this thing that publishes pictures of people out and about. So when I go out, I do see pictures of myself. I don’t know where those pictures come from – I mean, I don’t see the cameras. But I guess I’m just not looking for them.
+ - I was still in school after I dropped my first solo album.
+ - I’m kinda mad that I had to wait 28 years to jump on a skateboard.
+ - Miami has embraced me and I love them for that.
+ - Murder shoots, I give your ass good seats.
+ - I can honestly say my music is always going to be greater than my business side. Because I’m naturally a musician. And I don’t have to get paid, I don’t even have to have businesses. Business is business. And music is life.
+
+182 quotes

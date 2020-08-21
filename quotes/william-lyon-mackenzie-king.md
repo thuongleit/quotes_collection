@@ -1,0 +1,31 @@
+ - Self-denial and self-discipline, however, will be recognized as the outstanding qualities of a good soldier.
+ - The people of Canada do not wish as a result of mass immigration to make a fundamental alteration in the character of our population. Large scale immigration from the Orient would change the fundamental composition of the Canadian population.
+ - Every hour of useful work is precious.
+ - A true man does not only stand up for himself, he stands up for those that do not have the ability to.
+ - I really believe my greatest service is in the many unwise steps I prevent.
+ - When gasoline and rubber are rationed, electric power and transport facilities are becoming increasingly scarce, and manpower shortages are developing, it is difficult for people to understand their increased use for other than the most vital needs of war.
+ - Usury once in control will wreck the nation.
+ - Conscription if necessary, but not necessarily conscription.
+ - Regardless of what one’s attitude towards prohibition may be, temperance is something against which, at a time of war, no reasonable protest can be made.
+ - Far more has been accomplished for the welfare and progress of mankind by preventing bad actions than by doing good ones.
+ - Once a nation parts with the control of its credit, it matters not who makes the laws.
+ - It is what we prevent, rather than what we do that counts most in Government.
+ - As to the advantages of temperance in the training of the armed forces and of its benefits to the members of the forces themselves, there can be no doubt in the world.
+ - Workers in industry are the partners in war of the fighting forces.
+ - Each year, therefore, a dollar spent on alcoholic beverages has purchased a smaller quantity.
+ - Until the control of the issue of currency and credit is restored to government and recognized as its most conspicuous and sacred responsibility, all talks of the sovereignty of Parliament and of democracy is idle and futile.
+ - From the outset of the war, the Canadian people have clearly shown that it is their desire to help in every way to make Canadas war effort as effective as possible.
+ - The politician’s promises of yesterday are the taxes of today.
+ - When it comes to politics, one has to do as one at sea with a sailing ship, reach one’s course having regard to prevailing winds.
+ - Nor do we begin to have a clear appreciation of what the increase in consumption of alcoholic beverages in wartime means in increased risk, and in loss of efficiency to the fighting and working forces of the country.
+ - For one cause or another, it has become necessary to impose restrictions upon the use of many commodities, including not a few of the necessities of life.
+ - I’ve always found that you can control people better if you don’t see too much of them.
+ - Government, in the last analysis, is organized opinion. Where there is little or no public opinion, there is likely to be bad government.
+ - Fortunately, the Canadian people in all their habits, are essentially a temperate people.
+ - The anxiety of most parents in seeing their sons and daughters enlist does not lie only in the fear of the physical dangers they may encounter.
+ - Just when we most need to be clearheaded, in order to face the hard facts before us, there is all too frequently a very real inclination to give way to dangerous tendencies merely as an escape from realities.
+ - I would not wish to imply that most industrial accidents are due to intemperance. But, certainly, temperance has never failed to reduce their number.
+ - Only the man who disciplines himself strictly can stand for long the terrific pace of modern war.
+ - Let it be remembered, too, that at a time of war, nearly every one is under great strain.
+
+29 quotes

@@ -1,0 +1,43 @@
+ - You weren’t made to fit in. You were born to stand out!
+ - We all have a cross to carry. I have to carry my own cross. If we don’t carry our crosses, we are going to be crushed under the weight of it.
+ - Conversion is a daily thing.
+ - Faith to me it’s believe without seeing, it’s how you live your life, how you are authentic.
+ - Anything that I undergo, I look at as redemptive suffering.
+ - When you live in holiness, when you really try to stop sinning, you become braver. You become more courageous, you become a man of your word. You become a man of conviction that you’re not willing to sell out and you’re really a true knight in shining armour.
+ - I felt unworthy to play Jesus. I just accepted the responsibility and said, ‘What actor wouldn’t want to play this role?’
+ - The point I’m trying to make is that you go to church on Sunday. But the real Christ is out there in your life every day, whether it be the guy you help on the street, how you live your life, and your countenance that makes people want to be you.
+ - Every day I’m trying to be more humble and how do you do that? I guess, every day, we have mass. Every day, I pray the rosary. That’s what I do.
+ - I try to be the best man I can for the day.
+ - Christ died for the truth.
+ - Usually people who are evil don’t see themselves as evil.
+ - I don’t want people to see me – I want them to see Jesus.
+ - In my 33rd year, I was called to play Jesus.
+ - I meditate on God’s life and I read the scriptures. I read something about Him, go through it and spend a lot of time by myself.
+ - I’m a film rat. I love being in front of a camera. I love being behind a camera. I love talking to the director. I love talking film.
+ - No, the people standing before Christ and Pilate during the judgment scene do not condemn an entire race for the death of Christ anymore than the actions of Mussolini condemn all Italians, or the heinous crimes of Stalin condemn all Russians.
+ - In the world we make good as evil and evil as good.
+ - Mel Gibson doesn’t need your judgment, he needs your prayers.
+ - I know I’m not an anti-Semitic person.
+ - You know, my point in being an actor is to get people to believe that this is not about me, but something else.
+ - I do what I do, and I do it well, and focus and take it one moment at a time.
+ - Working with Mel Gibson is a little like waltzing with a hurricane. It’s always exciting, and you’re never quite sure where it’s going to take you.
+ - I married a woman who is much better than me, I’m very fortunate to be with her and I know I’ll be happy with her the rest of my life.
+ - It’s very hard to accept that stoning still exists in the world today.
+ - I didn’t want to be an actor.
+ - I was a basketball player. I’m a gym rat. I’m always in the gym playing.
+ - I also hope that I am occasionally involved in projects that touch other people in ways that make their lives a little better, more interesting for the moment, that makes them think.
+ - A woman in Mexico wanted me to heal her. But I can’t heal anybody. I just put my hand on her and said, ‘Thank you for seeing the film.’
+ - Often times the best military leaders were soldiers.
+ - I always believed in God, I would go to mass most of the time, but I had no idea of the calling to holiness.
+ - I came from a town of maybe 30,000 people.
+ - We are all culpable in the death of Christ. My sins, your sins put Him on that cross.
+ - I’m a craftsman. I’m an actor.
+ - I still put my pants on the same way. I still walk on my pool twice a day.
+ - My faith doesn’t go over real well in Hollywood.
+ - I know we didn’t make an anti-Semitic film. This is what the Gospels are. And it’s none of my business what other people think of me.
+ - What actor wouldn’t want to work with Mel Gibson?
+ - I don’t really prepare for each role the same way.
+ - I really enjoy talking to actors or filmmakers that enjoy that process of creating and how they go about doing it.
+ - I always look for reality. I look for plain truthful roles.
+
+41 quotes

@@ -1,0 +1,21 @@
+ - I not only think that we will tamper with Mother Nature, I think Mother wants us to.
+ - Feeling good and feeling bad are not necessarily opposites. Both at least involve feelings. Any feeling is a reminder of life. The worst ‘feeling’ evidently is non-feeling.
+ - Life is to be enjoyed, not simply endured. Pleasure and goodness and joy support the pursuit of survival.
+ - Shame and guilt are noble emotions essential in the maintenance of civilized society, and vital for the development of some of the most refined and elegant qualities of human potential.
+ - Our imagination and reasoning powers facilitate anxiety; the anxious feeling is precipitated not by an absolute impending threat-such as the worry about an examination, a speech, travel-but rather by the symbolic and often unconscious representations.
+ - Jealousy, which serves the struggle for survival, can deteriorate into the envy which draws defeat even from victory.
+ - We occupy a space of our own creation-a collage compounded by bits and pieces of actuality arranged into a design determined by our internal perceptions, our hopes, our fears, our memories, and our anticipations.
+ - We are what we seem to be.
+ - Feelings are the fine instruments which shape decision-making in an animal cursed and blessed with intelligence, and the freedom which is its corollary. They are signals directing us toward goodness, safety, pleasure, and group survival.
+ - Man, the most complicated of the animals, has a relatively short gestation period. Beyond that, he will be born, unlike most mammals, in a ridiculously helpless state.
+ - Because we are intelligent creatures-meaning that we are freed from instinctive and patterned behavior to a degree unparalleled in the animal kingdom-we are capable of, and dependent on, using rational choice to decide our futures.
+ - We must live in groups; other people are like nutrients for us, and are absolutely essential for our survival.
+ - All of us inevitably spend our lives evolving from an initial to a final stage of dependence. If we are fortunate enough to achieve power and relative independence along the way, it is a transient and passing glory.
+ - A man may not always be what he appears to be, but what he appears to be is always a significant part of what he is.
+ - To probe for unconscious determinants of behavior and then define a man in their terms exclusively, ignoring his overt behavior altogether, is a greater distortion than ignoring the unconscious completely.
+ - The larger office, the corner space, the extra window are the teddy bears and tricycles of adult office life.
+ - In a world where survival is always seen as a struggle, and in which some pitfalls always exist, if something brings into question our confidence in our own coping ability, it will threaten our safety.
+ - English is such a deliciously complex and undisciplined language, we can bend, fuse, distort words to all our purposes. We give old words new meanings, and we borrow new words from any language that intrudes into our intellectual environment.
+ - A street thug and a paid killer are professionals – beasts of prey, if you will, who have dissociated themselves from the rest of humanity and can now see human beings in the same way that trout fishermen see trout.
+
+19 quotes

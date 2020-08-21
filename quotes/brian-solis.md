@@ -1,0 +1,41 @@
+ - Social media is about sociology and psychology more then technology.
+ - Each business is a victim of Digital Darwinism, the evolution of consumer behavior when society and technology evolve faster than the ability to exploit it. Digital Darwinism does not discriminate. Every business is threatened.
+ - The distance between who i am and who i want to be is separated only by my actions and words.
+ - Welcome to a new era of marketing and service in which your brand is defined by those who experience it.
+ - In the digital space, attention is a currency. We earn it. We spend it.
+ - Social media spark a revelation that we, the people, have a voice, and through the democratization of content and ideas we can once again unite around common passions, inspire movements, and ignite change.
+ - The new social landscape is rich with emotion.
+ - Actions speak louder than words. Businesses must act. Once the door to social consciousness is opened, bring the spirit of your company through it to affect change.
+ - Information overload is a symptom of our desire to not focus on what’s important. It is a choice.
+ - It is only by walking in the digital footsteps of your customer that you can uncover a new landscape of opportunities for engagement as well as a new reality for your business.
+ - Attention is a precious commodity.
+ - Social media is the democratization of information, transforming people from content readers into publishers. It is the shift from a broadcast mechanism, one-to-many, to a many-to-many model, rooted in conversations between authors, people and peers.
+ - The landscape for business isn’t changing because of social media, it’s changing because consumer expectations are evolving.
+ - Don’t compete for the moment, compete for the future.
+ - Social Media is much bigger than we give it credit for. It’s not just about PR or just about marketing.
+ - Social media is less about technology and more about anthropology, sociology, and ethnography.
+ - Experiences shape experiences.
+ - Please repeat: Influence is Not popularity.
+ - Engagement is shaped by the interpretation of its intentions. In order for social media to mutually benefit you and your customers, you must engage them in meaningful and advantageous conversations, empowering them as true participants in your marketing and service efforts.
+ - The future of marketing is not about technology.
+ - It’s not business to consumer, it’s not business to business, it’s people to people.
+ - Twitter is a human seismograph.
+ - Twitter is your window to relevance, but Facebook is your home page for the Social Web.
+ - The more we remember that we are part of the networks as human beings, the more we can act as human beings and not as corporate functions.
+ - We live in a time where brands are people and people are brands.
+ - To understand the mindset of the connected consumer, one must realize that everything begins with search and intent.
+ - While creating a social brand is a necessary endeavor, building a social business is an investment.
+ - Perspective is a gift nowadays.
+ - Brands are no longer created; they are co-created.
+ - Effective engagement is inspired by the empathy that develops simply by being human.
+ - The bottom line is that people are seeking answers and direction, not messages or sales pitches.
+ - Digital Darinism is already changing the landscape of business.
+ - People align with movements they can believe in, and it is the human, intellectual, and financial investment in genuine content that defines experiences.
+ - We cannot measure, what it is we do not know to value.
+ - To succeed in the business of the future we have to become the very people we are trying to reach.
+ - Experiences are everything. And businesses must create experiences that mean something. If necessity is the mother of invention, then vision is the father of innovation.
+ - Twitter represents a collective collaboration that manifests our ability to unconsciously connect kindred voices through the experiences that move us. As such, Twitter is a human seismograph.
+ - Social media is not owned by marketing.
+ - The next 10 years are either going to happen to us, or because of us.
+
+39 quotes

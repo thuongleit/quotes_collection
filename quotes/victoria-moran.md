@@ -1,0 +1,54 @@
+ - Enjoy your food, enjoy your life.
+ - In this moment, there is plenty of time. In this moment, you are precisely as you should be. In this moment, there is infinite possibility.
+ - The idea that everything is purposeful really changes the way you live. To think that everything that you do has a ripple effect, that every word that you speak, every action that you make affects other people and the planet.
+ - Self-doubt is the greatest enemy of any new good habit.
+ - Tell the world you are a one-of-a-kind creation who came here to experience wonder and spread joy. Expect to be accommodated.
+ - Follow the tugs in your heart. I think that everybody gets these gentle urges and should listen to them. Even if they sound absolutely insane, they may be worth going for.
+ - Sometimes we get so busy pursuing our dream that we forget to notice the degree to which we’re living it already.
+ - I have to strive to go two steps forward and realize that, sometimes, there will be one step back.
+ - Look for your brushes with the divine. Be receptive to them. When heaven knocks, open the door. Value these visits. Remember them. Expect more of them.
+ - Cruelty to animals is an enormous injustice; so is expecting those on the lowest rung of the economic ladder to do the dangerous, soul-numbing work of slaughtering sentient beings on our behalf.
+ - That old saying about opportunity only knocking once is as archaic as the flat-earth theory and as patently untrue. Opportunity knocks all the time – and it rings your doorbell, calls you up, and sends you e-mails.
+ - To the people who love you, you are beautiful already. This is not because they’re blind to your shortcomings but because they so clearly see your soul. Your shortcomings then dim by comparison. The people who care about you are willing to let you be imperfect and beautiful, too.
+ - It’s probably unfair to expect the world at large, or even most people, to see us for all we are. It is essential, however, that we see ourselves for all we are.
+ - Every person you see has stories, and every person you see has a few that would break your heart. We deserve each other’s respect simply because we’ve survived all we have and kept going anyway.
+ - Because love encompasses everything, nothing is unimportant, including tonight’s dinner menu. Think about it for a minute. If you were pure love, the loving parent of all life, how would you want people to eat?
+ - If you celebrate your differentness, the world will, too. It believes exactly what you tell it.
+ - Every year when I put away my winter clothes and get out my summer clothes, they fit. And I haven’t been on a diet since the Reagan administration.
+ - There are some things that money can’t buy: peace of mind, for starters, and lean muscle mass. Neither the Queen of England nor the founder of Microsoft can put in an order for either one.
+ - I need a spiritual connection – I can make changes, but I can’t make miracles – and I need people around me who’ll support me and believe in me and tell me the truth and not let me deceive myself into avoiding the what’s scary and hard and necessary.
+ - Evolution happens in nature and in individuals. I want to participate actively in its happening within me.
+ - Life would be very dreary if there were no magic. If the real world were only that veil of tears, I just don’t think could get up in the morning.
+ - Choose your exercise using the same criteria you’d apply to choosing a date – that is, attractive to you and able to hold your interest for an hour.
+ - Your mission isn’t a project to check off your list. It’s a commitment to which to dedicate your life.
+ - Our culture has long mistrusted the body. It’s been seen as a confusing blend of God’s handiwork and the devil’s playground. It is, rather, a vortex of intelligence.
+ - Recreational shopping is the shortest distance between two points: you and broke.
+ - As a society, we need to get lots more flexible about what constitutes beauty. It isn’t a particular hair color or a particular body type; it’s the woman who grew the hair and lives in the body. Keeping this in mind can only make things better.
+ - I’m over the hill, maybe even the whole mountain range, but I don’t see it that way even one little bit.
+ - I realize that I’m a mature woman and one of these days, incredible diet or not, I’ll be a little old lady.
+ - Just remember that those things that get attention flourish.
+ - If you don’t accept yourself, you won’t live fully, and if you don’t live fully you’ll need to get full some other way.
+ - It simply feels right to me to blend the glittery delights of New York City with a largely raw vegan diet – with the soul-deep conviction that animals are not ours to eat, wear, exploit or experiment on.
+ - The idea that somebody else is going to swoop down and play the fairy godmother role is pretty unlikely, so why not take care of yourself?
+ - Being vegan is a glorious adventure. It touches every aspect of my life – my relationships, how I relate to the world.
+ - Yoga will always be transformationa l, even when it stops being cool.
+ - Moderation is actually the flip side of dieting, that is, imposed deprivation.
+ - My calling, as one imperfect human, is to celebrate and uphold life every time I get the chance.
+ - I’m a big believer in living life as an extended working vacation.
+ - Taking B12 is the price of getting to be vegan, the way wearing a helmet is the price of getting to ride a motorcycle and giving up alcohol for nine months is the price of getting to have a baby.
+ - You want to live a life in which the things you have traded your hard-earned money for are quality items that really do uplift your life.
+ - I could be a vegan in sackcloth and flip-flops, but I find fabulous boots with periwinkle cuffs a far preferable option.
+ - If you only knew who you really are, you’d be starstruck.
+ - Self-esteem is the result of recognizing our personal power; awe and wonder come from recognizing our lack of it. Both are true, and in an exceptional life there is no conflict between them.
+ - Beauty at 70 years old isn’t the same as beauty at 20 years old, but it is stunning nonetheless.
+ - The idea that somebody is going to come in and make your debt go away and all be well for the future is really a fantasy.
+ - What is so priceless about being the selves we were created to grow into is that it’s impossible to do it wrong.
+ - As I see it, a green salad is an open invitation to carrots, onions, mushrooms, tomatoes, and the sprouts that grow in jars on my kitchen counter.
+ - When it comes to literal nourishment, the food we eat, life begets life.
+ - I’m not perfect, but what’s wonderful about eating a plant-based diet is, I don’t have to be.
+ - I firmly believe that everyone deserves to live within walking distance of either beauty or convenience, if not both.
+ - Life has its rhythm and we have ours. They’re designed to coexist in harmony, so that when we do what is ours to do and otherwise let life be, we garner acceptance and serenity.
+ - Home is the place where you are most thoroughly yourself, with no pretenses.
+ - Let other people do it their way. What other people do is irrelevant.
+
+52 quotes

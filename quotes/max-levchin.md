@@ -1,0 +1,24 @@
+ - The very first company I started failed with a great bang. The second one failed a little bit less, but still failed. The third one, you know, proper failed, but it was kind of okay. I recovered quickly. Number four almost didn’t fail. It still didn’t really feel great, but it did okay. Number five was PayPal.
+ - Being an entrepreneur is not about being in love with an idea, it’s about being in love with running a company.
+ - The world is now awash in data and we can see consumers in a lot clearer ways.
+ - Think of Slide as a giant media network for people to transmit information. The content that’s in there now has been provided by users – it’s whatever they want it to be.
+ - I’ve been developing mobile for years before anybody else really thought it was that important.
+ - PayPal once rejected a candidate who aced all the engineering tests because for fun, the guy said that he liked to play hoops. That single sentence lost him the job.
+ - Mobile is the perfect example of what is enabling economic growth in the technology sector.
+ - We’re all put on Earth for a limited amount of time. Am I using in a way that is great, or good enough, or wasteful?
+ - We’re becoming slaves to our social networks – and that’s not a bad thing. You like your favorite networks, so do you friends, and pretty soon you have market winners.
+ - Media is very different from financial services. People are very fickle and very vocal. They believe that things should be one way and not the other. It’s still very rewarding to build products for huge audiences. It feels like you’re making an impact.
+ - A classic engineering mistake and one I’ve made is confusing what is hard and what is valuable.
+ - Technology has come a long way since PayPal.
+ - The single most important top-level trend is the shift to mobile.
+ - Ignore your mistakes. The number one thing to worry about is -Am I doing what I’m good at?
+ - If I see what you’re up to on Facebook but I don’t see your updates on Flickr, I’ll still care about Facebook.
+ - Right now, nearly all the apps on Facebook take a week to build. No more.
+ - If the game designer produces more content than he can consume per month, some fraction of the people will say more quests, more tests, more challenges, more whatever, and they will be compelled by it.
+ - If you’re building a social product, you’re still living in the last century if your product doesn’t work on Facebook.
+ - Facebook is so ubiquitous now that it’s like another manifestation of the web itself.
+ - If we compare the two, Facebook is currently a superior place to market a product like Slide. Twitter is more like a general distribution agent. It’s like broadcast radio.
+ - You can’t get married to any one particular plan. That is the biggest lesson I learned at PayPal.
+ - You’re going to pull out your phone and try to use whatever is the most appropriate app on your iPhone or your Android device. Yelp saw that very early on. And when we launched the mobile product, we saw immediate growth, and we were stunned.
+
+22 quotes

@@ -1,0 +1,53 @@
+ - Life is too short to work so hard.
+ - Dear Lord, I’m so grateful I’m still loved.
+ - Most of us have compromised with life. Those who fight for what they want will always thrill us.
+ - I will not be ignored.
+ - Things are simple when you’re going to die.
+ - I’m a Scorpio, and Scorpios eat themselves out and burn themselves up like me.
+ - I shall play Scarlett O’Hara.
+ - I cannot let well enough alone. I get restless. I have to be doing different things. I am a very impatient person and headstrong. If I’ve made up my mind to do something, I can’t be persuaded out of it.
+ - I don’t know what that Method is. Acting is life, to me, and should be.
+ - I’m not a film star, I am an actress. Being a film star is such a false life, lived for fake values and for publicity.
+ - I loved fencing and dancing and elocution.
+ - I’ve always been mad about cats.
+ - I think Edith Evans is the most marvelous actress in the world and she can look beautiful. People who aren’t beautiful can look beautiful. She can look as beautiful as Diana Cooper, who was the most beautiful woman in the world.
+ - You know the passage where Scarlett voices her happiness that her mother is dead, so that she can’t see what a bad girl Scarlett has become? Well, that’s me.
+ - I know I am right for Scarlett. I can convince Mr. Selznick.
+ - My parents were absolutely delighted that I knew what I wanted to do.
+ - On the road, they join the bedraggled remnants of a column of exhausted Confederate soldiers evacuating burning Atlanta. Rhett makes her take note of the scene: “Take a good look, my dear. It’s a historic moment. You can tell your grandchildren how you watched the Old South disappear one night.”
+ - Every single night I’m nervous. You never know how the audience is going to react.
+ - My birth sign is Scorpio and they eat themselves up and burn themselves out. I swing between happiness and misery. I am part prude and part nonconformist. I say what I think and I don’t pretend and I am prepared to accept the consequences of my actions.
+ - Sometimes I dread the truth of the lines I say. But the dread must never show.
+ - My husband, who’s the greatest actor in the world, can do anything. Look at what he did in The Critic and Oedipus. In every role he gets-he did this in Richard the Third-there’s nothing he can’t do, nothing. Just nothing.
+ - Scarlett tells Mammy: “I’m too young to be a widow.” She weeps to her mother: “My life is over. Nothing will ever happen to me anymore.” Her mother comforts her: “It’s only natural to want to look young and be young when you are young.”
+ - Every single night I’m nervous.
+ - A lucky thing Eva Peron was. She died at 32. I’m already 45.
+ - I’m not young. What’s wrong with that?
+ - It’s much easier to make people cry than to laugh.
+ - People think that if you look fairly reasonable, you can’t possibly act, and as I only care about acting, I think beauty can be a great handicap.
+ - I never found accents difficult, after learning languages.
+ - I need something truly beautiful to look at in hotel rooms.
+ - My parents were French and Irish and our family even has Spanish blood-and I do so love the United States and consider myself part American.
+ - When I was at school at Paris, I had special lessons from Mademoiselle Antoine, an actress at the Comedie Francaise, and I was taken to every sort of play. I felt very grand.
+ - I am going to be a great actress.
+ - Comedy is much more difficult than tragedy-and a much better training, I think. It’s much easier to make people cry than to make them laugh.
+ - I never sleep for more than five hours, hardly ever.
+ - When I come into the theatre I get a sense of security. I love an audience. I love people, and I act because I like trying to give pleasure to people.
+ - I was sent successively to schools in France, Italy and Bavaria, and this erratic education was a great help afterwards.
+ - People who are very beautiful make their own laws.
+ - I’ve been a godmother loads of times, but being a grandmother is better than anything.
+ - I think acting is an important profession, because acting can give you pleasure and can teach you at the same time, and that is a good thing.
+ - I cannot let well enough alone. I get restless. I have to be doing different things.
+ - I think any classical training in the theatre is of enormous value.
+ - Some critics saw fit to say that I was a great actress. I thought that was a foolish, wicket thing to say because it put such an onus and such a responsibility onto me, which I simply wasn’t able to carry.
+ - Streetcar is the most wonderful, wonderful play.
+ - English people don’t have very good diction. In France you have to pronounce very particularly and clearly, and learning French at an early age helped me enormously.
+ - My first husband and I are still good friends and there is no earthly reason why I should not see him. Larry and I are very much in love.
+ - I have just made out my will and given all the things I have and many that I haven’t.
+ - Shaw is like a train. One just speaks the words and sits in one’s place. But Shakespeare is like bathing in the sea – one swims where one wants.
+ - One is just an interpreter of what the playwright thinks, and therefore the greater the playwright, the more satisfying it is to act in the plays.
+ - You can’t act on an empty stomach, because you’re breathing’s all wrong.
+ - Classical plays require more imagination and more general training to be able to do. That’s why I like playing Shakespeare better than anything else.
+ - I always know my lines.
+
+51 quotes

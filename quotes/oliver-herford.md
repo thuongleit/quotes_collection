@@ -1,0 +1,30 @@
+ - A rolling stone gathers no moss, but it gains a certain polish.
+ - Bigamy is one way of avoiding the painful publicity of divorce and the expense of alimony.
+ - A woman’s mind is cleaner than a man’s: She changes it more often.
+ - A man is known by the silence he keeps.
+ - Many are called but few get up.
+ - When I go abroad I always sail from Boston because it is such a pleasant place to get away from.
+ - To babble is to make a feminine noise somewhat resembling the sound of a brook, but with less meaning.
+ - The Irish gave the bagpipes to the Scotts as a joke, but the Scotts haven’t seen the joke yet.
+ - Modesty: the gentle art of enhancing your charm by pretending not to be aware of it.
+ - A kiss is a course of procedure cunningly devised, for the mutual stopage of speech at a moment when words are superfluous.
+ - Only the young die good.
+ - There is always room at the top – after the investigation.
+ - My wife has a whim of iron.
+ - What is my loftiest ambition? I’ve always wanted to throw an egg at an electric fan.
+ - Some take their gold in minted mold, and some in harps thereafter, but give me mine in bubbles fine and keep the change in laughter.
+ - Tact is to lie about others as you would have them lie about you.
+ - Song is the licensed medium for bawling in public things too silly or sacred to be uttered in ordinary speech.
+ - An epicure is one who gets nothing better than the cream of everything but cheerfully makes the best of it.
+ - Cat: a pygmy lion who loves mice, hates dogs, and patronizes human beings.
+ - I would like to throw an egg into an electric fan.
+ - A pest is a person who can talk like an encyclopedia, and does.
+ - Actresses will happen in the best regulated families.
+ - Diplomacy: lying in state.
+ - Age, like distance lends a double charm.
+ - There are more fish taken out of a stream than ever were in it.
+ - If some people got their rights they would complain of being deprived of their wrongs.
+ - Manuscript: something submitted in haste and returned at leisure.
+ - Gather kittens while you may, Time brings only sorrow; And the kittens of today; Will be old cats tomorrow.
+
+28 quotes

@@ -1,0 +1,28 @@
+ - Time is my greatest enemy.
+ - Answer violence with violence. If one of us falls today, five of them must fall tomorrow.
+ - I have one thing that counts, and that is my heart; it burns in my soul, it aches in my flesh, and it ignites my nerves: that is my love for the people and Peron.
+ - I am only a sparrow amongst a great flock of sparrows.
+ - My biggest fear in life is to be forgotten.
+ - Where there is a worker, there lies a nation.
+ - Put down me for a lifetime of success: give me credit, I’ll find ways of paying.
+ - If I fall, look out for the crash. There won’t be anyone left standing.
+ - To convince oneself that one has the right to live decently takes time.
+ - Shadows cannot see themselves in the mirror of the sun.
+ - You must want! You have the right to ask! You must desire.
+ - When the rich think about the poor, they have poor ideas.
+ - Charity separates the rich from the poor; aid raises the needy and sets him on the same level with the rich.
+ - Almsgiving leaves a man just where he was before. Aid restores him to society as an individual worthy of all respect and not as a man with a grievance.
+ - I am only a simple woman who lives to serve Peron and my people.
+ - Keeping books on social aid is capitalistic nonsense. I just use the money for the poor. I can’t stop to count it.
+ - Without fanaticism we cannot accomplish anything.
+ - Almsgiving tends to perpetuate poverty; aid does away with it once and for all.
+ - If I have to apply five turns to the screw each day for the happiness of Argentina, I will do it.
+ - I demanded more rights for women because I know what women had to put up with.
+ - Our President has declared that the only privileged person in our country are the children.
+ - In government, one actress is enough.
+ - The nation’s government has just handed me the bill that grants us our civil rights. I am receiving it before you, certain that I am accepting this on behalf of all Argentinean women, and I can feel my hands tremble with joy as they grasp the laurel proclaiming victory.
+ - Sometimes I have wished my insults were slaps or lashes; I’ve wanted to hit people in the face and make them see, if only for a day, what I see each day I help people.
+ - I had watched for many years and seen how a few rich families held much of Argentina’s wealth and power in their hands. So Peron and the government brought in an eight hour working day, sickness pay and fair wages to give poor workers a fair go .
+ - I was very sad for many days when I discovered that in the world there were poor people and rich people; and the strange thing is that the existence of the poor did not cause me as much pain as the knowledge that at the same time there were people who were rich.
+
+26 quotes

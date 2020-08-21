@@ -1,0 +1,26 @@
+ - Be yourself. If you try to be someone else, it won’t work. Whatever you do, you are not going to make everyone happy.
+ - I’m not interested in what people think about me. I’m not Michael Schumacher.
+ - For sure, sometimes I don’t know what I am doing.
+ - Driving is the only thing I love about F1.
+ - You don’t drive races on paper.
+ - I’m happy, but there’s nothing to jump around about.
+ - Formula 1 would be a paradise without the media.
+ - The helmet has a special meaning for many drivers. How important is it to you? – It protects my head.
+ - Ha, some days ago the same people were one hundred per cent sure that I’d signed for Red Bull! So much for that.
+ - There’s always a lot of talk about motivation to race, but nobody really knows what I do or what I think apart from myself, so I don’t really care what people think.
+ - In F1 too many things overshadow the racing. There is too much politics.
+ - Im winning races, Im still challenging for the world championships, the team is fantastic and I have a great relationship with everybody here – so why would I want to even consider changing?
+ - Ive just got to do a good job and stay on in Formula One for as long as I can.
+ - Do you have any ambitions outside racing? My main ambition at the moment, whether inside or outside racing, is to become Formula 1 World Champion.
+ - It was an easy choice to return with Lotus Renault GP as I have been impressed by the scope of the team’s ambition.
+ - You always want to have a winning car, but there is no guarantee that it will be.
+ - Where I went off, you can get back on the track by going through the support race pitlane, but you have to go through a gate. I know this as I did the same thing in 2001 and the gate was open that year. Somebody closed it this time. Next year, I’ll make sure it’s open again.
+ - I’m delighted to be coming back to Formula 1 after a two-year break, and I’m grateful to Lotus Renault GP for offering me this opportunity.
+ - When I did some Nascar races this year I noticed that I was increasingly missing the racing side, to race against each other, because in rallying you really race against the clock.
+ - My time in the World Rally Championship has been a useful stage in my career, but I can’t deny the fact that my hunger for F1 has recently become overwhelming.
+ - In rallying every curve, every hill may be different than you thought. That makes it interesting.
+ - When I was a kid, I would watch the grands prix. Everyone dreamt of becoming a race driver, while I only started thinking about it when I was 18 or 19. Only at that age did I seriously start thinking about this job. Before then, I would change ideas from one second to the next.
+ - Since I started in motor racing I’ve worked with people from all over the world. We are all here to go racing and prejudice will never play any part in that.
+ - I just love the American spirit of racing. It feels just great to get involved with that.
+
+24 quotes

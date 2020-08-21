@@ -1,0 +1,108 @@
+ - All things are difficult before they are easy.
+ - It is said that the darkest hour of the night comes just before the dawn.
+ - Health is not valued till sickness comes.
+ - We never know the worth of water till the well is dry. 
+ - An invincible determination can accomplish almost anything and in this lies the great distinction between great men and little men.
+ - A fool’s paradise is a wise man’s hell.
+ - The noblest revenge is to forgive.
+ - Great hopes make great men.
+ - Zeal without knowledge is fire without light.
+ - A stumble may prevent a fall.
+ - Get the facts, or the facts will get you.
+ - He that cannot forgive others breaks the bridge over which he must pass himself; for every man has need to be forgiven.
+ - Good clothes open all doors.
+ - He that will not sail till all dangers are over must never put to sea.
+ - Travel makes a wise man better, and a fool worse.
+ - Two things a man should never be angry at: what he can help, and what he cannot help.
+ - It is the property of fools to be always judging.
+ - Friendships multiply joys and divide griefs.
+ - Charity begins at home, but should not end there.
+ - Some have been thought brave because they were afraid to run away.
+ - Serving one’s own passions is the greatest slavery.
+ - Be a friend to thyself, and others will be so too.
+ - If it were not for hopes, the heart would break.
+ - Vows made in storms are forgotten in calm.
+ - He that plants trees loves others besides himself.
+ - It is madness for sheep to talk peace with a wolf.
+ - One that would have the fruit must climb the tree.
+ - Better a tooth out than always aching.
+ - All doors open to courtesy.
+ - Music is nothing else but wild sounds civilized into time and tune.
+ - A few books well chosen, and well made use of will be more profitable than a great confused Alexandrian library.
+ - A book that is shut is but a block.
+ - Wine hath drowned more men than the sea.
+ - If you command wisely, you’ll be obeyed cheerfully.
+ - Admiration is the daughter of ignorance.
+ - In fair weather prepare for foul.
+ - Memory is the treasure house of the mind wherein the monuments thereof are kept and preserved.
+ - Choose a wife rather by your ear than your eye.
+ - Memory depends very much on the perspicuity, regularity, and order of our thoughts. Many complain of the want of memory, when the defect is in the judgment; and others, by grasping at all, retain nothing.
+ - A conservative believes nothing should be done for the first time.
+ - With foxes we must play the fox.
+ - There is more pleasure in loving than in being beloved.
+ - He that falls into sin is a man; that grieves at it, is a saint; that boasteth of it, is a devil.
+ - Despair gives courage to a coward.
+ - Bad excuses are worse than none.
+ - Every horse thinks its own pack heaviest.
+ - Scalded cats fear even cold water.
+ - A drinker has a hole under his nose that all his money runs into.
+ - He that travels much knows much.
+ - The worse the passage the more welcome the port.
+ - One may miss the mark by aiming too high as too low.
+ - Better break your word than do worse in keeping it.
+ - Be the business never so painful, you may have it done for money.
+ - A good garden may have some weeds.
+ - Abused patience turns to fury.
+ - With devotion’s visage and pious action we do sugar o’er the devil himself.
+ - If an ass goes travelling he will not come home a horse.
+ - If you would have a good wife, marry one who has been a good daughter.
+ - A lie has no leg, but a scandal has wings.
+ - If you have one true friend you have more than your share.
+ - He who cures a disease may be the skillfullest, but he that prevents it is the safest physician.
+ - Change of weather is the discourse of fools.
+ - A man in passion rides a horse that runs away with him.
+ - Govern thy life and thy thoughts as if the whole world were to see the one, and read the other.
+ - Compliments cost nothing, yet many pay dear for them.
+ - You gazed at the moon and fell in the gutter.
+ - No man can be happy without a friend, nor be sure of his friend till he is unhappy.
+ - Learning hath gained most by those books by which the printers have lost.
+ - A good horse should be seldom spurred.
+ - Contentment consist not in adding more fuel, but in taking away some fire.
+ - The more wit the less courage.
+ - He that has a great nose, thinks everybody is speaking of it.
+ - Eaten bread is forgotten.
+ - Thou ought to be nice, even to superstition, in keeping thy promises, and therefore equally cautious in making them.
+ - Many come to bring their clothes to church rather than themselves.
+ - A gift, with a kind countenance, is a double present.
+ - He that has one eye is a prince among those that have none.
+ - He’s my friend that speaks well of me behind my back.
+ - A good friend is my nearest relation.
+ - An ounce of cheerfulness is worth a pound of sadness to serve God with.
+ - Men are more prone to revenge injuries than to requite kindness.
+ - Unseasonable kindness gets no thanks.
+ - The devil lies brooding in the miser’s chest.
+ - Pride perceiving humility honorable, often borrows her cloak.
+ - Prayer: the key of the day and the lock of the night.
+ - A wise man turns chance into good fortune.
+ - Let him who expects one class of society to prosper in the highest degree, while the other is in distress, try whether one side; of the face can smile while the other is pinched.
+ - He that hopes no good fears no ill.
+ - First get an absolute conquest over thyself, and then thou wilt easily govern thy wife.
+ - There is nothing that so much gratifies an ill tongue as when it finds an angry heart.
+ - A little skill in antiquity inclines a man to Popery.
+ - Cruelty is a tyrant that’s always attended with fear.
+ - We have all forgot more than we remember.
+ - Light, God’s eldest daughter, is a principal beauty in a building.
+ - A fox should not be on the jury at a goose’s trial.
+ - Many would be cowards if they had courage enough.
+ - Few are fit to be entrusted with themselves.
+ - We ought to see far enough into a hypocrite to see even his sincerity.
+ - The patient is not likely to recover who makes the doctor his heir.
+ - Fame is the echo of actions, resounding them to the world, save that the echo repeats only the last art, but fame relates all, and often more than all.
+ - We are born crying, live complaining, and die disappointed.
+ - Leftovers in their less visible form are called memories. Stored in the refrigerator of the mind and the cupboard of the heart.
+ - Though bachelors be the strongest stakes, married men are the best binders, in the hedge of the commonwealth.
+ - All commend patience, but none can endure to suffer.
+ - Slight small injuries, and they will become none at all.
+ - Great is the difference betwixt a man’s being frightened at, and humbled for his sins.
+
+106 quotes

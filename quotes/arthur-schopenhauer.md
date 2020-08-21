@@ -1,0 +1,409 @@
+ - Talent hits a target no one else can hit; Genius hits a target no one else can see.
+ - All truth passes through three stages. First, it is ridiculed. Second, it is violently opposed. Third, it is accepted as being self-evident.
+ - To live alone is the fate of all great souls.
+ - The two enemies of human happiness are pain and boredom.
+ - Life swings like a pendulum backward and forward between pain and boredom.
+ - It is difficult to find happiness within oneself, but it is impossible to find it anywhere else.
+ - Life without pain has no meaning.
+ - Money is human happiness in the abstract; he, then, who is no longer capable of enjoying human happiness in the concrete devotes himself utterly to money.
+ - What people commonly call fate is mostly their own stupidity.
+ - Great men are like eagles, and build their nest on some lofty solitude.
+ - A man can be himself only so long as he is alone; and if he does not love solitude, he will not love freedom; for it is only when he is alone that he is really free.
+ - The assumption that animals are without rights, and the illusion that our treatment of them has no moral significance, is a positively outrageous example of Western crudity and barbarity. Universal compassion is the only guarantee of morality.
+ - A pessimist is an optimist in full possession of the facts.
+ - Just remember, once you’re over the hill you begin to pick up speed.
+ - Each day is a little life: every waking and rising a little birth, every fresh morning a little youth, every going to rest and sleep a little death.
+ - Ordinary people merely think how they shall ‘spend’ their time; a man of talent tries to ‘use’ it.
+ - Music is the answer to the mystery of life. The most profound of all the arts, It expresses the deepest thoughts of life.
+ - Mostly it is loss which teaches us about the worth of things.
+ - Thus, the task is not so much to see what no one yet has seen, but to think what nobody yet has thought about that which everybody sees.
+ - Every man takes the limits of his own field of vision for the limits of the world.
+ - Compassion is the basis of morality.
+ - Life is a constant process of dying.
+ - The truth can wait, for it lives a long life.
+ - The more unintelligent a man is, the less mysterious existence seems to him.
+ - In the whole world there is no study so beneficial and so elevating as that of the Upanishads. It has been the solace of my life, it will be the solace of my death.
+ - A man can do what he wants, but not want what he wants.
+ - Intellect is a magnitude of intensity, not a magnitude of extensity.
+ - The world is my representation.
+ - Patriotism is the passion of fools and the most foolish of passions.
+ - After your death you will be what you were before your birth.
+ - One should use common words to say uncommon things.
+ - A sense of humour is the only divine quality of man.
+ - Genius and madness have something in common: both live in a world that is different from that which exists for everyone else.
+ - In their hearts women think that it is men’s business to earn money and theirs to spend it.
+ - Each day is a little life.
+ - Human life must be some form of mistake.
+ - A high degree of intellect tends to make a man unsocial.
+ - Money is human happiness in the abstract.
+ - Materialism is the philosophy of the subject who forgets to take account of himself.
+ - To be alone is the fate of all great minds – a fate deplored at times, but still always chosen as the less grievous of two evils.
+ - To overcome difficulties is to experience the full delight of existence.
+ - It is difficult to keep quiet if you have nothing to do.
+ - Change alone is eternal, perpetual, immortal.
+ - The greatest of follies is to sacrifice health for any other kind of happiness.
+ - Every miserable fool who has nothing at all of which he can be proud, adopts as a last resource pride in the nation to which he belongs; he is ready and happy to defend all its faults and follies tooth and nail, thus reimbursing himself for his own inferiority.
+ - The present is the only reality and the only certainty.
+ - The Universe is a dream dreamed by a single dreamer where all the dream characters dream too.
+ - There is only one inborn error. and that is the notion that we exist in order to be happy.
+ - To use many words to communicate few thoughts is everywhere the unmistakable sign of mediocrity. To gather much thought into few words stamps the man of genius.
+ - A man becomes a philosopher by reason of a certain perplexity, from which he seeks to free himself.
+ - Vedas are the most rewarding and the most elevating book which can be possible in the world.
+ - A hedge between keeps friendship green.
+ - It would be better if there were nothing. Since there is more pain than pleasure on earth, every satisfaction is only transitory, creating new desires and new distresses, and the agony of the devoured animal is always far greater than the pleasure of the devourer.
+ - In reading, the mind is, in fact, only the playground of another’s thoughts.
+ - We seldom think of what we have but always of what we lack. Therefore, rather than grateful, we are bitter.
+ - Our life is a loan received from death with sleep as the daily interest on this loan.
+ - Every man takes the limits of his own field of vision for the limits of the world. This is an error of the intellect as inevitable as that error of the eye which lets you fancy that on the horizon heaven and earth meet.
+ - No one can transcend their own individuality.
+ - Truth is most beautiful undraped.
+ - There is something in us that is wiser than our head.
+ - Pleasure is never as pleasant as we expected it to be and pain is always more painful. The pain in the world always outweighs the pleasure. If you don’t believe it, compare the respective feelings of two animals, one of which is eating the other.
+ - Every child is in a way a genius; and every genius is in a way a child.
+ - Without books the development of civilization would have been impossible. They are the engines of change, windows on the world, “Lighthouses” as the poet said “erected in the sea of time.” They are companions, teachers, magicians, bankers of the treasures of the mind, Books are humanity in print.
+ - The discovery of truth is prevented more effectively, not by the false appearance things present and which mislead into error, not directly by weakness of the reasoning powers, but by preconceived opinion, by prejudice.
+ - The life of every individual is really always a tragedy, but gone through in detail, it has the character of a comedy.
+ - If God made this world, then i would not want to be the God. It is full of misery and distress that it breaks my heart.
+ - Genius is an intellect that has become unfaithful to its destiny.
+ - Talent works for money and fame; the motive which moves genius to productivity is, on the other hand, less easy to determine.
+ - Reading is merely a surrogate for thinking for yourself; it means letting someone else direct your thoughts.
+ - Faith is like love: it does not let itself be forced.
+ - We seldom speak of what we have but often of what we lack.
+ - The alchemists in their search for gold discovered many other things of greater value.
+ - To buy books would be a good thing if we also could buy the time to read them.
+ - The man who goes up in a balloon does not feel as if he were ascending; he only sees the earth sinking deeper below him.
+ - Because people have no thoughts to deal in, they deal cards, and try and win one another’s money. Idiots!
+ - Women remain children all their lives, for they always see only what is near at hand, cling to the present, take the appearance of a thing for reality, and prefer trifling matters to the most important.
+ - It is only in the microscope that our life looks so big. It is an indivisible point, drawn out and magnified by the powerful lenses of Time and Space.
+ - The common man is not concerned about the passage of time, the man of talent is driven by it.
+ - No rose without a thorn but many a thorn without a rose.
+ - Men are the devils of the earth, and the animals are its tormented souls.
+ - Scoundrels are always sociable.
+ - It is a wise thing to be polite; consequently, it is a stupid thing to be rude. To make enemies by unnecessary and willful incivility, is just as insane a proceeding as to set your house on fire. For politeness is like a counter – an avowedly false coin, with which it is foolish to be stingy.
+ - Time is that in which all things pass away.
+ - You must treat a work of art like a great man: stand before it and wait patiently till it deigns to speak.
+ - I believe that when death closes our eyes we shall awaken to a light, of which our sunlight is but the shadow.
+ - He who does not enjoy solitude will not love freedom.
+ - Whatever folly men commit, be their shortcomings or their vices what they may, let us exercise forbearance; remember that when these faults appear in others it is our follies and vices that we behold.
+ - Life is full of troubles and vexations, that one must either rise above it by means of corrected thoughts, or leave it.
+ - No greater mistake can be made than to imagine that what has been written latest is always the more correct; that what is written later on is an improvement on what was written previously; and that every change means progress.
+ - The tallest oak tree once was an acorn that any pig could have swallowed.
+ - Men are by nature merely indifferent to one another; but women are by nature enemies.
+ - Night gives a black look to everything, whatever it may be.
+ - Religion is the masterpiece of the art of animal training, for it trains people as to how they shall think.
+ - Every nation ridicules other nations, and all are right.
+ - The cause of laughter is simply the sudden perception of the incongruity between a concept and the real project.
+ - No doubt, when modesty was made a virtue, it was a very advantageous thing for the fools, for everybody is expected to speak of himself as if he were one.
+ - If life – the craving for which is the very essence of our being – were possessed of any positive intrinsic value, there would be no such thing as boredom at all: mere existence would satisfy us in itself, and we should want for nothing.
+ - Every generation, no matter how paltry its character, thinks itself much wiser than the one immediately preceding it, let alone those that are more remote.
+ - To feel envy is human, to savour schadenfreude is devilish.
+ - Astrology furnishes a splendid proof of the contemptible subjectivity of men. It refers the course of celestial bodies to the miserable ego: it establishes a connection between the comets in heaven and squabbles and rascalities on earth.
+ - Pantheism is only a polite form of atheism.
+ - Sleep is the interest we have to pay on the capital which is called in at death; and the higher the rate of interest and the more regularly it is paid, the further the date of redemption is postponed.
+ - We can regard our life as a uselessly disturbing episode in the blissful repose of nothingness.
+ - It is not what things are objectively and in themselves, but what they are for us, in our way of looking at them, that makes us happy or the reverse.
+ - As the biggest library if it is in disorder is not as useful as a small but well-arranged one, so you may accumulate a vast amount of knowledge but it will be of far less value than a much smaller amount if you have not thought it over for yourself.
+ - Will power is to the mind like a strong blind man who carries on his shoulders a lame man who can see.
+ - Everybody’s friend is nobody’s.
+ - Music is the melody whose text is the world.
+ - Every parting gives a foretaste of death, every reunion a hint of the resurrection.
+ - The nobler and more perfect a thing is, the later and slower it is in arriving at maturity. A man reaches the maturity of his reasoning powers and mental faculties hardly before the age of twenty-eight; a woman at eighteen.
+ - Intellect is invisible to the man who has none.
+ - Ignorance is degrading only when found in company with great riches.
+ - Wealth is like sea-water; the more we drink, the thirstier we become; and the same is true of fame.
+ - Every satisfaction he attains lays the seeds of some new desire, so that there is no end to the wishes of each individual will.
+ - Honor has not to be won; it must only not be lost.
+ - Nature shows that with the growth of intelligence comes increased capacity for pain, and it is only with the highest degree of intelligence that suffering reaches its supreme point.
+ - This world could not have been the work of an all-loving being, but that of a devil, who had brought creatures into existence in order to delight in the sight of their sufferings.
+ - Noise is the most impertinent of all forms of interruption. It is not only an interruption, but also a disruption of thought.
+ - What a man is: that is to say, personality, in the widest sense of the word; under which are included health, strength, beauty, temperament, moral character, intelligence, and education.
+ - The world is not a factory and animals are not products for our use.
+ - Religions are like fireflies. They require darkness in order to shine.
+ - It is a clear gain to sacrifice pleasure in order to avoid pain.
+ - Every original idea is first ridiculed, then vigorously attacked, and finally taken for granted.
+ - Reading is equivalent to thinking with someone else’s head instead of with one’s own.
+ - Consciousness is the mere surface of our minds, of which, as of the earth, we do not know the inside, but only the crust.
+ - The young should early be trained to bear being left alone; for it is a source of happiness and peace of mind.
+ - Solitude will be welcomed or endured or avoided, according as a man’s personal value is large or small.
+ - I have long held the opinion that the amount of noise that anyone can bear undisturbed stands in inverse proportion to his mental capacity and therefore be regarded as a pretty fair measure of it.
+ - It is only when a man is alone that he is really free.
+ - Console yourself by remembering that the world doesn’t deserve your affection.
+ - If we were not all so interested in ourselves, life would be so uninteresting that none of us would be able to endure it.
+ - The first forty years of life give us the text; the next thirty supply the commentary on it.
+ - It is only the man whose intellect is clouded by his sexual impulse that could give the name of the fair sex to that undersized, narrow-shouldered, broad-hipped, and short-legged race.
+ - Genuine contempt, on the other hand, is the unsullied conviction of the worthlessness of another.
+ - When you look back on your life, it looks as though it were a plot, but when you are into it, it’s a mess: just one surprise after another. Then, later, you see it was perfect.
+ - Compassion for animals is intimately associated with goodness of character, and it may be confidently asserted that he who is cruel to animals cannot be a good man.
+ - I know of no more beautiful prayer than that which the Hindus of old used in closing: May all that have life be delivered from suffering.
+ - Suffering by nature or chance never seems so painful as suffering inflicted on us by the arbitrary will of another.
+ - Do not shorten the morning by getting up late; look upon it as the quintessence of life, as to a certain extent sacred.
+ - The beard, being a half-mask, should be forbidden by the police – It is, moreover, as a sexual symbol in the middle of the face, obscene: that is why it pleases women.
+ - The effect of music is so very much more powerful and penetrating than is that of the other arts, for these others speak only of the shadow, but music of the essence.
+ - A good supply of resignation is of the first importance in providing for the journey of life.
+ - The shortness of life, so often lamented, may be the best thing about it.
+ - How entirely does the Upanishad breathe throughout the holy spirit of the Vedas! How is every one who by a diligent study of its Persian Latin has become familiar with that incomparable book stirred by that spirit to the very depth of his Soul !
+ - I’ve never known any trouble than an hour’s reading didn’t assuage.
+ - I have not yet spoken my last word about women. I believe that if a woman succeeds in withdrawing from the mass, or rather raising herself from above the mass, she grows ceaselessly and more than a man.
+ - Life is short and truth works far and lives long: let us speak the truth.
+ - The doctor sees all the weakness of mankind; the lawyer all the wickedness, the theologian all the stupidity.
+ - There are three stages in the revelation of truth. The first is to be ridiculed, the second is to be resisted and the third is to be considered self-evident.
+ - Boredom is just the reverse side of fascination: both depend on being outside rather than inside a situation, and one leads to the other.
+ - Will without intellect is the most vulgar and common thing in the world, possessed by every blockhead, who, in the gratification of his passions, shows the stuff of which he is made.
+ - The ultimate foundation of honor is the conviction that moral character is unalterable: a single bad action implies that future actions of the same kind will, under similar circumstances, also be bad.
+ - Any foolish boy can stamp on a beetle, but all the professors in the world cannot make a beetle.
+ - Life is a business that does not cover the costs.
+ - Satisfaction consists in freedom from pain, which is the positive element of life.
+ - The progress of life shows a man the stuff of which he is made.
+ - Man is never happy, but spends his whole life in striving after something which he thinks will make him so.
+ - In early youth, as we contemplate our coming life, we are like children in a theatre before the curtain is raised, sitting there in high spirits and eagerly waiting for the play to begin.
+ - Politeness is to human nature what warmth is to wax.
+ - Every human perfection is linked to an error which it threatens to turn into.
+ - The safest way of not being very miserable is not to expect to be very happy.
+ - That which knows all things and is known by none is the subject.
+ - The person who writes for fools is always sure of a large audience.
+ - The fundament upon which all our knowledge and learning rests is the inexplicable.
+ - Nothing shocks our moral feelings so deeply as cruelty does. We can forgive every other crime, but not cruelty. The reason for this is that it is the very opposite of compassion.
+ - If we suspect that a man is lying, we should pretend to believe him; for then he becomes bold and assured, lies more vigorously, and is unmasked.
+ - Vengeance taken will often tear the heart and torment the conscience.
+ - Life to the great majority is only a constant struggle for mere existence, with the certainty of losing it at last.
+ - A man can be himself only so long as he is alone.
+ - True brevity of expression consists in a man only saying what is worth saying, while avoiding all diffuse explanations of things which every one can think out for himself.
+ - To repeat abstractly, universally, and distinctly in concepts the whole inner nature of the world, and thus to deposit it as a reflected image in permanent concepts always ready for the faculty of reason, this and nothing else is philosophy.
+ - Rudeness is better than any argument; it totally eclipses intellect.
+ - A major difficulty in translation is that a word in one language seldom has a precise equivalent in another one.
+ - Man is the only animal who causes pain to others with no other object than wanting to do so.
+ - Education perverts the mind since we are directly opposing the natural development of our mind by obtaining ideas first and observations last. This is why so few men of learning have such sound common sense as is quite common among the illiterate.
+ - Life is a language in which certain truths are conveyed to us; if we could learn them in some other way, we should not live.
+ - A man of talent will strive for money and reputation; but the spring that moves genius to the production of its works is not as easy to name.
+ - The difficulty is to try and teach the multitude that something can be true and untrue at the same time.
+ - Genius is to other gifts what the carbuncle is to the precious stones. It sends forth its own light, whereas other stones only reflect borrowed light.
+ - Reading is a mere makeshift for original thinking.
+ - Truth is no harlot who throws her arms round the neck of him who does not desire her; on the contrary, she is so coy a beauty that even the man who sacrifices everything to her can still not be certain of her favors.
+ - For it is a matter of daily observation that people take the greatest pleasure in that which satisfies their vanity; and vanity cannot be satisfied without comparison with others.
+ - Thus also every keen pleasure is an error and an illusion, for no attained wish can give lasting satisfaction.
+ - It is only in the microscope that our life looks so big.
+ - Pride is generally censured and decried, but mainly by those who have nothing to be proud of.
+ - Das Ganze der Erfahrung gleicht einer Geheimschrift und die Philosophie der Entzifferung derselben. The whole of experience is like a cryptograph, and philosophy is like the deciphering of it.
+ - Patriotism, when it wants to make itself felt in the domain of learning, is a dirty fellow who should be thrown out of doors.
+ - History is the long, difficult and confused dream of Mankind.
+ - It is with trifles, and when he is off guard, that a man best reveals his character.
+ - A word too much always defeats its purpose.
+ - No one writes anything worth writing, unless he writes entirely for the sake of his subject.
+ - Honour is external conscience, and conscience is inward honour.
+ - Hatred is an affair of the heart; contempt that of the head.
+ - If a relationship is perfectly natural there will be a complete fusion of the happiness of both of you-owing to fellow-feeling and various other laws which govern our natures, this is, quite simply, the greatest happiness that can exist.
+ - In action a great heart is the chief qualification. In work, a great head.
+ - To expect a man to retain everything that he has ever read is like expecting him to carry about in his body everything that he has ever eaten.
+ - National character is only another name for the particular form which the littleness, perversity and baseness of mankind take in every country. Every nation mocks at other nations, and all are right.
+ - Money alone is absolutely good, because it is not only a concrete satisfaction of one need in particular; it is an abstract satisfaction of all.
+ - He who writes carelessly confesses thereby at the very outset that he does not attach much importance to his own thoughts.
+ - To gain anything we have longed for is only to discover how vain and empty it is; and even though we are always living in expectation of better things, at the same time we often repent and long to have the past back again.
+ - Truth that is naked is the most beautiful, and the simpler its expression the deeper is the impression it makes.
+ - Exaggeration of every kind is as essential to journalism as it is to dramatic art, for the object of journalism is to make events go as far as possible.
+ - The longer a man’s fame is likely to last, the longer it will be in coming.
+ - If at any moment Time stays his hand, it is only when we are delivered over to the miseries of boredom.
+ - In our monogamous part of the world, to marry means to halve one’s rights and double one’s duties.
+ - It takes place, by and large, with the same sort of necessity as a tree brings forth fruit, and demands of the world no more than a soil on which the individual can flourish.
+ - Knowledge is to certain extent a second existence.
+ - The reason domestic pets are so lovable and so helpful to us is because they enjoy, quietly and placidly, the present moment.
+ - There is no doubt that life is given us, not to be enjoyed, but to be overcome; to be got over.
+ - Hope is the confusion of the desire for a thing with its probability.
+ - Martyrdom is the only way a man can become famous without ability.
+ - For the world is Hell, and men are on the one hand the tormented souls and on the other the devils in it.
+ - Vulgar people take huge delight in the faults and follies of great men.
+ - The first forty years of our life give the text, the next thirty furnish the commentary upon it, which enables us rightly to understand the true meaning and connection of the text with its moral and its beauties.
+ - What now on the other hand makes people sociable is their incapacity to endure solitude and thus themselves.
+ - Every possession and every happiness is but lent by chance for an uncertain time, and may therefore be demanded back the next hour.
+ - Journalists are like dogs, when ever anything moves they begin to bark.
+ - Want and boredom are indeed the twin poles of human life.
+ - The heavy armor becomes the light dress of childhood; the pain is brief, the joy unending.
+ - Indeed, intolerance is essential only to monotheism; an only God is by nature a jealous God who will not allow another to live. On the other hand, polytheistic gods are naturally tolerant, they live and let live.
+ - To forgive and forget means to throw away dearly bought experience.
+ - Sleep is to a man what winding up is to a clock.
+ - If you feel irritated by the absurd remarks of two people whose conversation you happen to overhear, you should imagine that you are listening to a dialogue of two fools in a comedy.
+ - Marrying means, to grasp blindfolded into a sack hoping to find out an eel out of an assembly of snakes.
+ - That I could clamber to the frozen moon. And draw the ladder after me.
+ - The scenes of our life are like pictures done in rough mosaic. Looked at close, they produce no effect. There is nothing beautiful to be found in them, unless you stand some distance off.
+ - You can do what you will, but in any given moment of your life you can will only one definite thing and absolutely nothing other than that one thing.
+ - To be shocked at how deeply rejection hurts is to ignore what acceptance involves. We must never allow our suffering to be compounded by suggestions that there is something odd in suffering so deeply. There would be something amiss if we didn’t.
+ - Every parting gives a foretaste of death; every remeeting a foretaste of the resurrection. That is why even people who are indifferent to each other rejoice so much if they meet again after twenty or thirty years of separation.
+ - Wicked thoughts and worthless efforts gradually set their mark on the face, especially the eyes.
+ - Where there is no love, a person’s faithfulness to the marriage bond is probably against nature.
+ - The animal lacks both anxiety and hope because its consciousness is restricted to what is clearly evident and thus to the present moment: the animal is the present incarnate.
+ - All our wanting comes from needs, thus we continiously suffer. The intellect teaches free will, free from suffering.
+ - The fruits of Christianity were religious wars, butcheries, crusades, inquisitions, extermination of the natives of America, and the introduction of African slaves in their place.
+ - Happiness consists in frequent repetition of pleasure.
+ - The greatest achievements of the human mind are generally received with distrust.
+ - It is the courage to make a clean breast of it in the face of every question that makes the philosopher.
+ - How is it possible that suffering that is neither my own nor of my concern should immediately affect me as though it were my own, and with such force that is moves me to action?
+ - Happiness belongs to those who are sufficient unto themselves. For all external sources of happiness and pleasure are, by their very nature, highly uncertain, precarious, ephemeral and subject to chance.
+ - Almost all of our sorrows spring out of our relations with other people.
+ - Will minus intellect constitutes vulgarity.
+ - If a man wants to read good books, he must make a point of avoiding bad ones; for life is short, and time and energy limited.
+ - Every genius is a great child; he gazes out at the world as something strange, a spectacle, and therefore with purely objective interest.
+ - Freedom of the press is to the machinery of the state what the safety valve is to the steam engine.
+ - A man shows his character just in the way in which he deals with trifles, for then he is off his guard.
+ - It’s the niceties that make the difference fate gives us the hand, and we play the cards.
+ - To read a book is to hold an entire world in the palm of your hand. That world is unique to you; no two readers can ever inhabit the same world.
+ - Something of great importance now past is inferior to something of little importance now present, in that the latter is a reality, and related to the former as something to nothing.
+ - JedeTrennung gibt einenVorgeschmack desTodesund jedes Wiedersehen einenVorgeschmack der Auferstehung. Every parting is a foretaste of death, and every reunion a foretaste of resurrection.
+ - I am often surprised by the cleverness, and now and again by the stupidity, of my dog; and I have similar experiences with mankind.
+ - Whatever torch we kindle, and whatever space it may illuminate, our horizon will always remain encircled by the depth of night.
+ - It is, indeed, only in old age that intellectual men attain their sublime expression, whilst portraits of them in their youth show only the first traces of it.
+ - There is not a grain of dust, not an atom that can become nothing, yet man believes that death is the annhilation of his being.
+ - Animals hear about death for the first time when they die.
+ - Opinion is like a pendulum and obeys the same law. If it goes past the centre of gravity on one side, it must go a like distance on the other; and it is only after a certain time that it finds the true point at which it can remain at rest.
+ - Boredom is an evil that is not to be estimated lightly. It can come in the end to real despair. The public authority takes precautions against it everywhere, as against other universal calamities.
+ - For where did Dante take the material of his hell but from our actual world? And yet he made a very proper hell of it.
+ - Treat a work of art like a prince. Let it speak to you first.
+ - The fly ought to be used as the symbol of impertinence and audacity; for whilst all other animals shun man more than anything else, and run away even before he comes near them, the fly lights upon his very nose.
+ - Most men are so thoroughly subjective that nothing really interests them but themselves.
+ - When a man has reached a condition in which he believes that a thing must happen because he does not wish it, and that what he wishes to happen never will be, this is really the state called desperation.
+ - Every time a man is begotten and born, the clock of human life is wound up anew to repeat once more its same old tune that has already been played innumerable times, movement by movement and measure by measure, with insignificant variations.
+ - To truth only a brief celebration of victory is allowed between the two long periods during which it is condemned as paradoxical, or disparaged as trivial.
+ - Friends and acquaintances are the surest passport to fortune.
+ - For, as you know, religions are like glow-worms; they shine only when it is dark.
+ - If you want to know your true opinion of someone, watch the effect produced in you by the first sight of a letter from him.
+ - If a person is stupid, we excuse him by saying that he cannot help it; but if we attempted to excuse in precisely the same way the person who is bad, we should be laughed at.
+ - The first rule for a good style is to have something to say; in fact, this in itself is almost enough.
+ - Unrest is the mark of existence.
+ - Dissimulation is innate in woman, and almost as much a quality of the stupid as of the clever.
+ - All the cruelty and torment of which the world is full is in fact merely the necessary result of the totality of the forms under which the will to live is objectified.
+ - What a person is for himself, what abides with him in his loneliness and isolation, and what no one can give or take away from him, this is obviously more essential for him than everything that he possesses or what he may be in the eyes of others...
+ - Memory works like the collection glass in the Camera obscura: it gathers everything together and therewith produces a far more beautiful picture than was present originally.
+ - Authors may be divided into falling stars, planets, and fixed stars: the first have a momentary effect; the second have a much longer duration; but the third are unchangeable, possess their own light, and work for all time.
+ - Every hero is a Samson. The strong man succumbs to the intrigues of the weak and the many; and if in the end he loses all patience he crushes both them and himself.
+ - He who can see truly in the midst of general infatuation is like a man whose watch keeps good time, when all clocks in the town in which he lives are wrong. He alone knows the right time; what use is that to him?
+ - It is a curious fact that in bad days we can very vividly recall the good time that is now no more; but that in good days, we have only a very cold and imperfect memory of the bad.
+ - In our early youth we sit before the life that lies ahead of us like children sitting before the curtain in a theatre, in happy and tense anticipation of whatever is going to appear. Luckily we do not know what really will appear.
+ - Happiness of any given life is to be measured, not by its joys and pleasures, but by the extent to which it has been free from suffering-from positive evil.
+ - There are 80,000 prostitutes in London alone and what are they, if not bloody sacrifices on the altar of monogamy?
+ - Everything that happens, happens of necessity.
+ - In every page of David Hume, there is more to be learned than from Hegel’s, Herbart’s and Schleiermacher’s complete philosophical works.
+ - If a man sets out to hate all the miserable creatures he meets, he will not have much energy left for anything else; whereas he can despise them, one and all, with the greatest ease.
+ - Buying books would be a good thing if one could also buy the time to read them in: but as a rule the purchase of books is mistaken for the appropriation of their contents.
+ - Mankind cannot get on without a certain amount of absurdity.
+ - One man is more concerned with the impression he makes on the rest of mankind, another with the impression the rest of mankind makes on him.
+ - The brain may be regarded as a kind of parasite of the organism, a pensioner, as it were, who dwells with the body.
+ - In the sphere of thought, absurdity and perversity remain the masters of the world, and their dominion is suspended only for brief periods.
+ - When a new truth enters the world, the first stage of reaction to it is ridicule, the second stage is violent opposition, and in the third stage, that truth comes to be regarded as self-evident.
+ - Style is what gives value and currency to thoughts.
+ - Personal courage is really a very subordinate virtue-a virtue, indeed, in which we are surpassed by the lower animals; or else you would not hear people say, as brave as a lion.
+ - Human life, like all inferior goods, is covered on the outside with a false glitter; what suffers always conceals itself.
+ - The mother of useful arts is necessity; that of the fine arts is luxury. For father the former has intellect; the latter genius, which itself is a kind of luxury.
+ - We deceive and flatter no one by such delicate artificies as we do our own selves.
+ - Newspapers are the second hand of history.
+ - In truth the most striking figure for the relation of the two is that of the strong blind man carrying the sighted lame man on his shoulders.
+ - With people of limited ability modesty is merely honesty. But with those who possess great talent it is hypocrisy.
+ - Whoever wants his judgment to be believed, should express it coolly and dispassionately; for all vehemence springs from the will. And so the judgment might be attributed to the will and not to knowledge, which by its nature is cold.
+ - It is in the treatment of trifles that a person shows what they are.
+ - A man of genius can hardly be sociable, for what dialogues could indeed be so intelligent and entertaining as his own monologues?
+ - Poverty and slavery are thus only two forms ofthe same thing, the essence of which is that a man’s energies are expended for the most part not on his own behalf but on that of others.
+ - Many undoubtedly owe their good fortune to the circumstance that they possess a pleasing smile with which they win hearts. Yet these hearts would do better to beware and to learn from Hamlet’s tables that one may smile, and smile, and be a villain.
+ - Men are a thousand times more intent on becoming rich than on acquiring culture, though it is quite certain that what a man IS contributes more to his happiness than what he HAS.
+ - First the truth is ridiculed. Then it meets outrage. Then it is said to have been obvious all along.
+ - Whether we are in a pleasant or a painful state depends, finally, upon the kind of matter that pervades and engrosses our consciousness and what we compare it to – better and we envious and sad, worse and we feel grateful and happy.
+ - Boredom is just the reverse side of fascination.
+ - Reason deserves to be called a prophet; for in showing us the consequence and effect of our actions in the present, does it not tell us what the future will be?
+ - A reproach can only hurt if it hits the mark. Whoever knows that he does not deserve a reproach can treat it with contempt.
+ - A man finds himself, to his great astonishment, suddenly existing, after thousands and thousands of years of non-existence: he lives for a little while; and then, again, comes an equally long period when he must exist no more. The heart rebels against this, and feels that it cannot be true.
+ - Opinion is like a pendulum and obeys the same law.
+ - Men best show their character in trifles, where they are not on their guard. It is in the simplest habits, that we often see the boundless egotism which pays no regard to the feelings of others and denies nothing to itself.
+ - There is no opinion, however absurd, which men will not readily embrace as soon as they can be brought to the conviction that it is generally adopted.
+ - To call the world God is not to explain it; it is only to enrich our language with a superfluous synonym.
+ - Necessity is the constant scourge of the lower classes, ennui of the higher ones.
+ - I constantly saw the false and the bad, and finally the absurd and the senseless, standing in universal admiration and honour.
+ - I love looking at famous people. Because of the way they look. Because of the way photography makes them look famous.
+ - Honor means that a man is not exceptional; fame, that he is. Fame is something which must be won; honor, only something which must not be lost.
+ - The man never feels the want of what it never occurs to him to ask for.
+ - Our moral virtues benefit mainly other people; intellectual virtues, on the other hand, benefit primarily ourselves; therefore the former make us universally popular, the latter unpopular.
+ - Scholars are those who have read in books, but thinkers, men of genius, world-enlighteners, and reformers of the human race are those who have read directly in the book of the world.
+ - Life is a task to be done. It is a fine thing to say defunctus est; it means that the man has done his task.
+ - Shame on such a morality that is worthy of pariahs, and that fails to recognize the eternal essence that exists in every living thing, and shines forth with inscrutable significance from all eyes that see the sun!
+ - The wise have always said the same things, and fools, who are the majority have always done just the opposite.
+ - For the purpose of acquiring gain, everything else is pushed aside or thrown overboard, for example, as is philosophy by the professors of philosophy.
+ - A man of business will often deceive you without the slightest scruple, but he will absolutely refuse to commit a theft.
+ - Honor means that a man is not exceptional; fame, that he is.
+ - Newspapers are the second hand of history. This hand, however, is usually not only of inferior metal to the other hands, it also seldom works properly.
+ - Obstinacy is the result of the will forcing itself into the place of the intellect.
+ - We may divide thinkers into those who think for themselves and those who think through others. The latter are the rule and the former the exception. The first are original thinkers in a double sense, and egotists in the noblest meaning of the word.
+ - Not to go to the theater is like making one’s toilet without a mirror.
+ - Writers may be classified as meteors, planets, and fixed stars.
+ - The little honesty that exists among authors is discernible in the unconscionable way they misquote from the writings of others.
+ - Our first ideas of life are generally taken from fiction rather than fact.
+ - It is only at the first encounter that a face makes its full impression on us.
+ - To become reconciled to a friend with whom you have broken, is a form of weakness; and you pay the penalty of it when he takes the first opportunity of doing precisely the very thing which brought about the breach.
+ - There is no absurdity so palpable but that it may be firmly planted in the human head if you only begin to inculcate it before the age of five, by constantly repeating it with an air of great solemnity.
+ - It is a clumsy experiment to make; for it involves the destruction of the very consciousness which puts the question and awaits the answer.
+ - Apart from man, no being wonders at its own experience.
+ - The business of the novelist is not to relate great events, but to make small ones interesting.
+ - We forfeit three-quarters of ourselves in order to be like other people.
+ - All religions promise a reward beyond this life in eternity for excellences of the will or heart, but none for excellences of the head, of the understanding.
+ - A man who has not enough originality to think out a new title for his book will be much less capable of giving it new contents.
+ - A man’s face as a rule says more, and more interesting things, than his mouth, for it is a compendium of everything his mouth will ever say, in that it is the monogram of all this man’s thoughts and aspirations.
+ - Motives are causes experienced from within.
+ - I have described religion as the metaphysics of the people.
+ - This is the case with many learned persons; they have read themselves stupid.
+ - To free a person from error is to give, and not to take away.
+ - Men need some kind of external activity, because they are inactive within.
+ - It often happens that we blurt out things that may in some kind of way be harmful to us, but we are silent about things that may make us look ridiculous; because in this case effect follows very quickly on cause.
+ - Great minds are related to the brief span of time during which they live as great buildings are to a little square in which they stand: you cannot see them in all their magnitude because you are standing too close to them.
+ - I owe what is best in my own development to the impression made by Kant’s works, the sacred writings of the Hindus, and Plato.
+ - Reason is feminine in nature; it can only give after it has received.
+ - The problem with Germans is that they look in the clouds for what lies at their feet.
+ - Physics is unable to stand on its own feet, but needs a metaphysics on which to support itself, whatever fine airs it may assume towards the latter.
+ - Man shows his character best in trifles.
+ - Many books serve merely to show how many ways there are of being wrong, and how far astray you yourself would go if you followed their guidance. You should read only when your own thoughts dry up...
+ - To desire immortality for the individual is really the same as wanting to perpetuate an error forever.
+ - The less one, as a result of objective or subjective conditions, has to come into contact with people, the better off one is for it.
+ - One can forget everything, everything, only not oneself, one’s own being.
+ - The faculty for remembering is not diminished in proportion to what one has learnt, just as little as the number of moulds in which you cast sand lessens its capacity for being cast in new moulds.
+ - There is a wide difference between the original thinker and the merely learned man.
+ - This actual world of what is knowable, in which we are and which is in us, remains both the material and the limit of our consideration.
+ - Still, instead of trusting what their own minds tell them, men have as a rule a weakness for trusting others who pretend to supernatural sources of knowledge.
+ - The principle of contradiction establishes merely the agreement of concepts, but does not itself produce concepts.
+ - Just as the witticism brings two very different real objects under one concept, the pun brings two different concepts, by the assistance of accident, under one word.
+ - If there is anything in the world that can really be called a mans property, it is surely that which is the result of his mental activity.
+ - The man who sees two or three generations is like one who sits in the conjuror’s booth at a fair, and sees the same tricks two or three times. They are meant to be seen only once.
+ - The bad thing about all religions is that, instead of being able to confess their allegorical nature, they have to conceal it.
+ - A man must have grown old and lived long in order to see how short life is.
+ - In many cases hate a person is rooted in the involuntary estimate of its virtues.
+ - My body and my will are one.
+ - The word of man is the most durable of all material.
+ - What a man is contributes much more to his happiness than what he has or how he is regarded by others.
+ - For our improvement we need a mirror.
+ - For an author to write as he speaks is just as reprehensible as the opposite fault, to speak as he writes; for this gives a pedantic effect to what he says, and at the same time makes him hardly intelligible.
+ - The conviction that the world and man is something that had better not have been, is of a kind to fill us with indulgence towards one another.
+ - Any book, which is at all important, should be reread immediately.
+ - Before you take anything away, you must have something better to put in its place.
+ - To free a man from error is to give, not to take away. Knowledge that a thing is false is a truth. Error always does harm; sooner or later it will bring mischief to the man who harbors it.
+ - We should be surprised that a matter that generally plays such an important part in the life of man has hitherto been almost entirely disregarded by philosophers, and lies before us as raw and untreated material.
+ - A man may call to mind the face of his friend, but not his own. Here, then, is an initial difficulty in the way of applying the maxim, Know Thyself.
+ - A man of correct insight among those who are duped and deluded resembles one whose watch is right while all the clocks in the town give the wrong time.
+ - We should comfort ourselves with the masterpieces of art as with exalted personages-stand quietly before them and wait till they speak to us.
+ - Empirical sciences prosecuted purely for their own sake, and without philosophic tendency are like a face without eyes.
+ - At bottom, every state regards another as a gang of robbers who will fall upon it as soon as there is an opportunity.
+ - It is difficult, if not impossible, to define the limit of our reasonable desires in respect of possessions.
+ - Authority and example lead the world.
+ - There is no more mistaken path to happiness than worldliness, revelry, high life.
+ - People of Wealth and the so called upper class suffer the most from boredom.
+ - It is only a man’s own fundamental thoughts that have truth and life in them.
+ - We can come to look upon the deaths of our enemies with as much regret as we feel for those of our friends, namely, when we miss their existence as witnesses to our success.
+ - A man who has no mental needs, because his intellect is of the narrow and normal amount, is, in the strict sense of the word, what is called a philistine.
+ - Marrying means doing whatever possible to become repulsed of each other.
+ - Life is neither to be wept over nor to be laughed at but to be understood.
+ - A great affliction of all Philistines is that idealities afford them no entertainment, but to escape from boredom they are always in need of realities.
+ - I believe a person of any fine feeling scarcely ever sees a new face without a sensation akin to a shock, for the reason that it presents a new and surprising combination of unedifying elements.
+ - That arithmetic is the basest of all mental activities is proved by the fact that it is the only one that can be accomplished by a machine.
+ - Reasonable and vicious are quite consistent with each other, in fact, only through their union are great and far-reaching crimes possible.
+ - There are, first of all, two kinds of authors: those who write for the subject’s sake, and those who write for writing’s sake.
+ - The intellectual attainments of a man who thinks for himself resemble a fine painting, where the light and shade are correct, the tone sustained, the colour perfectly hamonized; it is true to life.
+ - A writer should never be brief at the expense of being clear.
+ - Always to see the general in the particular is the very foundation of genius.
+ - Gaiety alone, as it were, is the hard cash of happiness; everything else is just a promissory note.
+ - The greatest intellectual capacities are only found in connection with a vehement and passionate will.
+ - What makes people hard-hearted is this, that each man has, or fancies he has, as much as he can bear in his own troubles.
+ - The highest, most varied and lasting pleasures are those of the mind.
+ - To desire immortality is to desire the eternal perpetuation of a great mistake.
+
+407 quotes

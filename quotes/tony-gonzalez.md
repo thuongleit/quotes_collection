@@ -1,0 +1,24 @@
+ - I don’t care if it’s politics, religion or football. I believe you have to keep opening your mind. And shut your mouth sometimes!
+ - I’d rather just stay quiet and play the game. Winning is hard enough as it is.
+ - Adversity in life teaches you.
+ - It’s important to me to be a complete player.
+ - Football is my love. Football is what I’m going to do. I’m a football player first.
+ - Tight end is one of the hardest positions to play in football. It’s right up there with quarterback and cornerback. You have to have the skills of a wide receiver and the strength of an offensive lineman, and it’s not easy to balance those two.
+ - I’m my own biggest critic. I’m the one who has to go home and look at myself in the mirror.
+ - If I can drop two touchdowns a game and win, I’ll take it every time.
+ - Leadership doesn’t come from age.
+ - The older I get, the more things change as to what is important.
+ - I love football. The games are a pure rush. By the time I’m done playing, I want to be among the best tight ends ever to play the game.
+ - I’ve come to realize that the thing in life that’s important, the reason we’re all here, is to love and do well for each other.
+ - Given a full summer to practice basketball, and especially my jump shot, I know that I could play in the NBA and do well.
+ - Life is short. You better get out there and do what you want to do while you can.
+ - I was awful at football when I was a little kid. I didn’t have the aggressiveness. I was just a nice kid. I didn’t want to hurt anyone.
+ - I don’t like second place; I’m out there trying to win everything.
+ - I’m hungry. I want the ball. That’s the feeling you want. When you get that feeling, you can’t be stopped.
+ - I’m looking forward to making a Super Bowl run in Atlanta every year.
+ - It doesn’t matter that I play football. Anybody can make a difference in life.
+ - I love what I’m doing for a living.
+ - I want to be a Chief. I want to be a Chief for life.
+ - Football comes naturally to me, but basketball is a challenge, that’s why I like it so much.
+
+22 quotes

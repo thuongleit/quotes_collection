@@ -1,0 +1,58 @@
+ - It’s not about finding your voice, it’s about giving yourself permission to use your voice.
+ - If you don’t think your anxiety, depression, sadness and stress impact your physical health, think again. All of these emotions trigger chemical reactions in your body, which can lead to inflammation and a weakened immune system. Learn how to cope, sweet friend. There will always be dark days.
+ - Quite literally, your gut is the epicenter of your mental and physical health. If you want better immunity, efficient digestion, improved clarity and balance, focus on rebuilding your gut health.
+ - Don’t shrink to meet the expectations of others, grow to become the person you want to be.
+ - Find your bliss and your joy, know that you are a white light disco ball with no ceilings and no limitations.
+ - I love to breathe. Oxygen is sexy!
+ - What if your purpose is to take impeccable care of yourself so that you have the energy and joy to serve others?
+ - Gut health is the key to overall health.
+ - No matter how you feel, you made progress today.
+ - You are amazing. A true light warrior and this world certainly needs you.
+ - Learn how to cope, sweet friend. There will always be dark days ahead.
+ - It’s all mental management. Whether you can do something or not is in your head.
+ - Trust is a core currency of any relationship. Sometimes our need to control and micromanage everything erodes our confidence in ourselves and others. The truth: People are much more capable than we think. A hearty dose of trust is often what’s needed to unlock the magic. Go ahead, have faith.
+ - Make space in your life, space for health and happiness.
+ - I am safe and secure. I exhale any anxiety and inhale calm. As my world expands so do my heart and mind. I am willing to stay open and accept all the miracles and abundance the universe has to offer me.
+ - Life has a much bigger plan for you. Happiness is part of that plan. Health is part of that plan. Stability is part of that plan. Constant struggle is not.
+ - Change your plate. Change your fate.
+ - The only time you can change someone is when they are in diapers.
+ - Dinner is where the magic happens in the kitchen.
+ - Adversity is a call to action, and your freedom lies in taking the first step. Don’t worry about the entire staircase, just take one step, and then tomorrow take another.
+ - Cancer has changed, and so have I. Life goes on, even becomes normal again. I refused to let cancer wreck my party. There are just too many cool things to do and plan and live for.
+ - Your self-worth has nothing to do with your craft or calling, and everything to do with how you treat yourself.
+ - When we accept ourselves exactly as we are, in exactly this moment, we shift from living for tomorrow to appreciating today.
+ - Processed foods cause inflammation, a source of most chronic illnesses as well as stress.
+ - If you really want to turn your health around, start juicing today.
+ - I knew when I was diagnosed with cancer the only thing I could control was what I ate, what I drank and what I would think.
+ - Make peace with guilt. Guilt is a poisonous illusion. Many languages don’t even have a word for guilt.
+ - My mom always said I liked to stir the pot with a glittering spoon.
+ - Folks are like plants; we all lean towards the light.
+ - Are the people in your life inspiring you or tiring you?
+ - Sleep is the best time to repair, but it’s hard to get a good night’s rest when we don’t dial the inner chatter down.
+ - I am capable, confident, intelligent, resilient and in charge. Health and happiness are my birthrights and I accept with gratitude.
+ - If I let a blue mood run rampant, before I know it I’m obsessing about the color of the satin lining in my coffin – will it match my dress? That’s when I feel like Alice in Cancerland falling down the rabbit hole and just have to stop.
+ - Yes, I have cancer and it might not go away, but I can still have a future because life goes on.
+ - Direct your mind where you want it to travel instead of always going for the ride.
+ - How can you begin to uncover whether gluten sensitivity is causing some of your health issues? Symptoms occur shortly after eating gluten and improve or disappear within hours or days after gluten is withdrawn. Symptoms return again if gluten is reintroduced.
+ - Every time I see a cardinal, I know my grandmother is with me. This regal, red bird was Grandma’s favorite.
+ - When we truly embrace acceptance, that’s when our body exhales and can begin healing.
+ - Above all, cancer is a spiritual practice that teaches me about faith and resilience.
+ - Resolutions are exhausting. Embrace ease.
+ - If it is made in a lab then it takes a lab to digest.
+ - Honestly, self-care is not fluffy – it’s something we should take seriously.
+ - I was asleep at the wheel before cancer shook me awake.
+ - Cancer is very chaotic.
+ - When you’re the conscious captain in your kitchen, you’ll feel better mentally and physically.
+ - Eventually cancer becomes just another annoying thing that you deal with, you know, like cellulite.
+ - I’m a leftover junkie.
+ - While I may never be in remission from cancer, I am currently in remission from an unhealthy relationship to food.
+ - If it has a shelf life longer than you, don’t eat it.
+ - My refrigerator is powerful. In fact, it has a direct link to my overall well-being.
+ - Life is just to sweet to be bitter.
+ - If I had my dream, we’d all be eating more plants and less garbage.
+ - I cherish my work and all of my readers.
+ - If your meals consistently revolve around corpse multiple times daily, you might become one sooner than you planned.
+ - I was not going to kick back and wait for the unknown. I was going to dive in and become a full-time healing junkie.
+ - Whether you’re reaching for one of your favorite cookbooks or just winging it, do your best to keep a well-stocked arsenal of healthy ingredients at your disposal. At the very least, you’ll always be ready to whip up a green juice or smoothie.
+
+56 quotes

@@ -1,0 +1,40 @@
+ - Congratulations on passing your test! Your HIV positive.
+ - Not only will America go to your country and kill all your people. But they’ll come back 20 years later and make a movie about how killing your people made their soldiers feel sad.
+ - Stephen Hawking: Brainier than Kurt Cobain’s garage wall.
+ - Welcome to Glasgow – the city where we punch people who are on fire.
+ - As the plane lands in Glasgow airport, passengers are reminded to set their watch back, 25 years.
+ - It seems amazing that the Navy SEALs managed to get inside the compound and shoot Osama so efficiently. I can only imagine they were told that the mission was to rescue a bearded British hostage and he must be brought out alive.
+ - I want to trace my father, could you suggest a good marker pen?
+ - Barack Obama will appeal to both black and white voters in America. White voters who’ll think he’s Tiger Woods.
+ - Nobody thought Mel Gibson could play a Scot, but look at him now! Alcoholic and a racist!
+ - Two negatives make a positive but only in Scotland do two positives make a negative: aye right.
+ - I like storms. I like thunder and lightning. What I do during a storm is shag my girlfriend and pretend that we’re taking part in the conception of the Antichrist.
+ - I think that should be the anti – speeding advert it should be footage of Richard Hammond trying to remember his own wedding day.
+ - Don’t you think its quite weird for Prince Harry, getting really stoned and seeing your grans face appearing on your money.
+ - It turns out your not dyslexic, your just really really stupid.
+ - I guess we were kinda poor when we were kids, but we didn’t know it. That’s because my dad always refused to let us look at the family’s financial records.
+ - In the event of a cabin failure, oxygen masks will drop from the ceiling, and untangling them will annoy you before you die.
+ - Scientists have just built the world’s biggest supercollider, and they’re doing experiments to see what makes up protons. I hope that if the experiment’s successful, the whole of our reality will dissolve, and a big sign will up come that says: Level Two.
+ - A 66-YEAR-OLD woman has become the oldest new mum in Britain after giving birth to a baby boy. I’m amazed she needed to have a caesarean section though, you’d think at 66 she would have needed some masking tape down there just to stop it falling out.
+ - They’ve bought out a condom now for people with premature ejaculation and they’ve put an anesthetic in the lining that makes you numb and you can last for longer. Or, you can wear it inside out and you don’t have to wake anybody up!
+ - When I heard Cristiano Ronaldo was pictured holding a manbag, I was surprised it was a gucci bag and not another guy’s sack.
+ - If Harry Potter’s so magical, why cant he cure his own eyesight and get laid. A teenage lad shouldnt need a broomstick to cling onto.
+ - Victoria Beckham looks like she has a dump once every four years. That’s probably how David knows that there’s a World Cup coming up.
+ - The English are worried about the Euro being brought in because of loss of national identity and rising prices. In Scotland, people are just worried in case they have to close Poundstretcher.
+ - I always wondered about that woman who had that face transplant. If you went to bed with her, would that technically count as a threesome?
+ - I live in a flat with 3 women, I call it surround sound. I keep the ugly one behind the sofa as a woofer.
+ - It’s good they’re holding the Olympics in the East End of London. Means the athletes will have to use extra skill to work out which gunshot is the starting pistol.
+ - Recent surveys show 3 out of 10 men have a problem with premature ejaculation. The rest just didn’t really think it was a problem!
+ - They’re always going, don’t deal with terrorists. Let’s deal with them. What’s Allah offering you boys, 100 virgins? We’ll give you 50 slags.
+ - I did Scottish footballer of the year this year, attempted to do some comedy at that. Not the brightest people in the world. There were seven O-Levels in that room, and they were all mine.
+ - Why is it that it’s okay to call a white person “mate” yet it’s not okay to call a black guy “primate”?
+ - Do you think George Bush actually knows who Gordon Brown is? He probably just thinks Tony Blair’s put on weight and had a mild stroke.
+ - The average life expectancy rate in some parts of Glasgow is 54. If you’ve ever been there, you’ll realize that that’s maybe a bit long.
+ - Apparently they’re going to bring in Super Asbos. But Asbos already sound too cool. Teenagers see them as a badge of honour. They should call them Gaybos or Bender Badges.
+ - I don’t know how long i could be a vet before i got bored and started shagging stuff.
+ - Does anyone actually think that Beckham knows he’s in America? I think he just follows a football and all he notices is that it occasionally gets warmer.
+ - I can’t help thinking the failed New York bomber would’ve done far more damage if he’d simply driven throught Times Square in a Toyota.
+ - Jordan ran the London marathon to help raise money for the blind. After jogging that far with her body, I’m surprised she hasn’t joined them!
+ - The East End of Glasgow is like the Olympics. Lots of foriegners in tracksuits struggling to speak English.
+
+38 quotes

@@ -1,0 +1,41 @@
+ - Drawing teaches habits of close observation that will always be useful.
+ - A piece of writing is like a piece of magic. You create something out of nothing.
+ - She wore a gown the color of storms, shadows, and rain and a necklace of broken promises and regrets.
+ - Time and I have quarrelled. All hours are midnight now. I had a clock and a watch, but I destroyed them both. I could not bear the way they mocked me.
+ - You’ve got to sing like you don’t need the money. You’ve got to love like you’ll never get hurt. You’ve got to dance like there’s nobody watching. You’ve got to come from the heart, if you want it to work.
+ - He understood for the first time that the world is not dumb at all, but merely waiting for someone to speak to it in a language it understands.
+ - An explorer cannot stay at home reading maps other men have made.
+ - Well, I suppose one ought not to employ a magician and then complain that he does not behave like other people.
+ - For, though the room was silent, the silence of half a hundred cats is a peculiar thing, like fifty individual silences all piled one on top of another.
+ - All books are doors; and some of them are wardrobes.
+ - Lovers are rarely the most rational beings in creation...
+ - The governess was not much liked in the village. She was too tall, too fond of books, too grave, and, a curious thing, never smiled unless there was something to smile at.
+ - But, though French, she was also very brave...
+ - To be more precise it was the color of heartache.
+ - I know magicians and I know magic and I say this: all magicians lie and this one more than most.
+ - It would need someone very remarkable to recover your name, Stephen, someone of rare perspicacity, with extraordinary talents and incomparable nobility of character. Me, in fact.
+ - He gave her his heart. She took it and placed it quietly in the pocket of her gown. No one observed what she did.
+ - There is nothing in the world so easy to explain as failure – it is, after all, what everybody does all the time.
+ - There must come a time when the bullets will run out.
+ - Magic, madam, is like wine and, if you are not used to it, it will make you drunk.
+ - I have a scholar’s love of silence and solitude. To sit and pass hour after hour in idle chatter with a roomful of strangers is to me the worst sort of torment.
+ - The land is all too shallow It is painted on the sky And trembles like the wind-shook rain When the Raven King passed by.
+ - What nobility of feeling! To sacrifice your own pleasure to preserve the comfort of others! It is a thing, I confess, that would never occur to me.
+ - Oh! And they read English novels! David! Did you ever look into an English novel? Well, do not trouble yourself. It is nothing but a lot of nonsense about girls with fanciful names getting married.
+ - It is curious and we magicians collect curiosities, you know.
+ - How is a magician to exist without books? Let someone explain that to me. It is like asking a politician to achieve high office without the benefit of bribes or patronage.
+ - Unfortunately, Childermass’s French was so strongly accented by his native Yorkshire that Minervois did not understand and asked Strange if Childermass was Dutch.
+ - I was told once by some country people that a magician should never tell his dreams because the telling will make them come true. But I say that is great nonsense.
+ - It was an old fashioned house – the sort of house in fact, as Strange expressed it, which a lady in a novel might like to be persecuted in.
+ - It is also true that his hair had a reddish tinge and, as everybody knows, no one with red hair can ever truly be said to be handsome.
+ - Mr. Robinson was a polished sort of person. He was so clean and healthy and pleased about everything that he positively shone – which is only to be expected in a fairy or an angel, but is somewhat disconcerting in an attorney.
+ - I mean that two of any thing is a most uncomfortable number. One may do as he pleases. Six may get along well enough. But two must always struggle for mastery. Two must always watch each other. The eyes of all the world will be on two, uncertain which of them to follow.
+ - Bryon tilted his head to a very odd angle, half-closed his eyes and composed his features to suggest that he was about to expire from chronic indigestion.
+ - He hardly ever spoke of magic, and when he did it was like a history lesson and no one could bear to listen to him.
+ - Some years ago there was in the city of York a society of magicians. They met upon the third Wednesday of every month and read each other long, dull papers upon the history of English magic.
+ - He smiles but rarely and watches other men to see when they laugh and then does the same.
+ - She even learnt the language of a strange country which Senior Cosetti had been told some people believed still existed, although no-one in the world could say where it was. The name of this country was Wales.
+ - After two hours it stopped raining and in the same moment the spell broke, which Peroquet and the Admiral and Captain Jumeau knew by a curious twist of their senses, as if they had tasted a string quartet, or been, for a moment, deafened by the sight of colour blue.
+ - Well, Henry, you can cease frowning at me. If I am a magician, I am a very indifferent one. Other adepts summon up fairy-spirits and long-dead kings. I appear to have conjured the spirit of a banker.
+
+39 quotes

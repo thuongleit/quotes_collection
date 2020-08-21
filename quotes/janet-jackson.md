@@ -1,0 +1,102 @@
+ - The pain is necessary. Sometimes pain is the teacher we require, a hidden gift of healing and hope.
+ - I love you – but don’t touch me.
+ - I’m fine the way I am. There’s nothing wrong with me.
+ - I’m scared to fall in love, afraid to love so fast, cuz everytime I fall in love, it seems to never last.
+ - To a world sick with racism, get well soon.
+ - Believe in yourself. Have faith in yourself because no one else is going to...
+ - My first name ain’t baby, it’s Janet, Miss Jackson if you’re nasty.
+ - I feel everyone is put here for a reason. Everyone has a calling. I always thought my real calling was to help other people.
+ - The greatest achievement to any human being is to love God, yourself, and others.
+ - Tie me up, tie me down, make me moan real loud.
+ - People do see me as sweet and innocent. Not to say that I am not those things. But I have other sides to me.
+ - Theres nothing more depressing than having everything and still feeling sad. We must learn to water our spiritual garden.
+ - You’ve made love to my mind, now you gotta take me from behind.
+ - There are two sides of the Velvet Rope. Those who want to be on the other side and those who are on the other side.
+ - You can never be happy until you understand why you’re doing what you’re doing.
+ - I have no clue why, but maybe sometimes when there’s someone you don’t hear from, it’s the person you want to hear from the most.
+ - In complete darkness we are all the same, it is only our knowledge and wisdom that separates us, don’t let your eyes deceive you.
+ - I can feel your body pressed against my body. When you start to poundin’, love to feel you throbbin’.
+ - Too many lives go up in smoke – It’s nice to laugh but don’t be the joke.
+ - I am not a religious person, but I am spiritual. But I don’t believe in things like guilt.
+ - When I’m feeling down on myself or not feeling good about who I am, or maybe something happened and I’m feeling depressed, I eat to fill that void. Afterwards I’ll beat myself up about it. I regret doing it, but I’ll turn around and do it again.
+ - I’m convinced that we Black women possess a special indestructible strength that allows us to not only get down, but to get up, to get through, and to get over.
+ - Every body type is different – that’s what makes you unique. What makes you special is you, and you are different from the next person.
+ - Marvin Gaye is our John Lennon. The longer he’s gone, the more young people appreciate his art. ‘What’s Going On’ was a work of genius far ahead of it’s time.
+ - Dreams can become a reality when we possess a vision that is characterized by the willingness to work hard, a desire for excellence, and a belief in our right and our responsiblity to be equal members of society.
+ - I have a pretty bad temper. But you have to really push me to see it. But everybody has their things.
+ - I had a pretty sexual imagination for a kid.
+ - You don’t know how many people come up to me and say, ‘This child was conceived listening to you.’
+ - Ever since I was little, I loved to eat. I started eating when I wasn’t hungry. My weight has always been up and down.
+ - It is my belief that we all have the need to feel special. It is this need that can bring out the best in us, yet the worst in us.
+ - No word is absolutely wrong or dirty or insulting. It all depends upon context and intention.
+ - My first crush was Barry Manilow. He performed on TV and I taped it. When no was around I’d kiss the screen.
+ - Remember one rule, no rule.
+ - I would hope my legacy would be bringing smiles to faces. Happiness with my music.
+ - Self-expression is my goal, I want to be real with my feelings. Singing and dancing and all the joy that goes with performing come from my heart. If I can’t feel it, I won’t do it.
+ - By age seven, I used to comb my hair for performances, just pull my hair up into a bun. Granted, it wasn’t a very intricate hairstyle. Still, to be that responsible and disciplined at age seven is unusual.
+ - To cut off the confusion and accept an answer just because it’s too scary not to have an answer is a good way to get the wrong answer.
+ - Add to the world’s confusion, we teach our kids rules that we don’t adhere to ourselves.
+ - I just want you inside, baby, we don’t need to talk about promises.
+ - In 1977, at age ten, I was cast on the TV sitcom ‘Good Times.’ My character was Penny, an abused child in desperate need of love. I really didn’t want to do the show. I didn’t want to be away from my family.
+ - I was two when we left Indiana, and I don’t really remember it that well.
+ - A lot of people who start work at a very young age never grow up because they never got that opportunity to be a child, so they hold on to that and still do a lot of childish, silly things.
+ - I can’t believe people got so upset at the sight of a single breast! America is so parochial, I may just have to move to Europe where people are more mature about things like that!
+ - You can’t hold the record forever, and I know that. I’m not stupid.
+ - When I finally make up my mind that I want to do something, it’s never been hard for me to do.
+ - I can be happy with who I am, not what I should be, or what I might have been, or what someone tells me I must be.
+ - I feel most people’s sexuality is enormously complicated. That’s what it means to be human. Wouldn’t it be great if we honored that complexity rather than turn it into gossip or ridicule? Wouldn’t it be great if we accepted sexual diversity, in ourselves and others, without condemning it?
+ - What I love about Gaga is her story, where she came from. Before she made it, before anyone knew who she was, I knew who she was and, to see her finally make it, I was so happy. If we were to work together that would be cool.
+ - To have someone to relate to and hopefully enjoy the music and get a positive message out of it, to make the best music that we possibly could, those were the goals.
+ - Fear is the one emotion that unleashed can destroy anything and anyone.
+ - I kinda see everyone as competition.
+ - Another side to me is this very sexual being. When I look back on my life, it’s always been there. It’s been there since I was 10 years old, having the imagination that I had.
+ - My dad taught us that there’s no greater distance than that between first and second place.
+ - I do not have a child and all allegations saying so are false.
+ - If I wasn’t singing, I’d probably be, probably an accountant.
+ - My brothers were gone on tour a lot, and I would miss them so much.
+ - I’m just trying to get used to living on a fixed income. Now, it’s going to get unfixed.
+ - As a child, I had to get up early for school or work. I’d get ready by myself. I’d set my alarm to wake me up very early in the morning, and be off to work, the family driver driving me every morning. I did it alone, my parents never coming in to wake me up.
+ - Does what you think of you determine your worth?
+ - All those songs reflect all the people that live within me.
+ - It has taken me most of my adult life to come to terms with who I am. To do that, I had to break free of attitudes that brought me down.
+ - People can have rhinoceros skin, but there’s a point when something’s going to hurt you.
+ - I’m a true believer in prayer, a big believer in prayer.
+ - I like myself a lot more than I used to. I had a very difficult time in my twenties especially. It was hard for me to look in the mirror and find something that I liked about myself.
+ - To be given permission to be confused – and remain confused – for as long as it takes would have been a huge gift.
+ - That’s always – that’s been another dream of mine, to do a Broadway play. An award winning Broadway play.
+ - I was raised with a ton of brothers and sisters where, obviously, the music running in and out of the house was very eclectic. So, I had a lot under my belt by the time I grew up. It all depends upon the mood that I’m in, the space that I’m in and what I’m feeling at that moment. But definitely!
+ - That’s a part of me going back to what I used to do.
+ - You get used to working with one choreographer. You kind of get stuck in that vein and you work your way out of it, picking up someone else’s style, their flavor. It takes a bit of time.
+ - There are people that regardless of what it is, if it’s something that’s stressful, whatever it may be, they don’t eat, they lose a lot of weight, a divorce, they get real thin. I’m the opposite.
+ - You can tell someone who doesn’t have love in their life, then someone who is in love.
+ - I have a very strong family.
+ - I’ve always been a tomboy. I’ve always liked to wear red, black, and white, and mostly pants.
+ - I am the baby in the family, and I always will be. I am actually very happy to have that position. But I still get teased. I don’t mind that.
+ - I’ve never been into what am I going to do next, trying to reinvent myself.
+ - Bound together by our beliefs, we are like minded individuals, sharing a common vision, pushing toward a world rid of color lines.
+ - There’s other things I’d like to do. I probably won’t tour for a very, very long time. It’s something that you feel inside and that’s the way I’ve been looking at everything.
+ - I was a very quiet kid. A really sweet kid, I might add.
+ - I truly felt that was going to be my last tour. So here we are again and I’m saying this will probably be my last tour. That’s truly the way I’m looking at it.
+ - I don’t have a lot of friends.
+ - I was very independent growing up, but there were things that were bothering me that I never told anybody. I would talk to our animals at home.
+ - I’m happy with the people that I have around me. And they’ve been friends of mine since I was young, for a very long time.
+ - I need you like the blues needs the pain.
+ - Recording is more autobiographical than acting. It’s me – either how I’m feeling then or once felt at some point in my life. It’s all me.
+ - It was the Control album that was really about what I wanted to do.
+ - I’m no expert. I have no psychic powers, and I sure don’t possess any secret wisdom. I’m just Janet. I have strengths, weaknesses, fears, happiness, sadness. I experience joy and I experience pain. I’m highly emotional. I’m very vulnerable.
+ - It’s two people that are in love with one another. What’s the issue?
+ - I wanted to be on my own and get out of the house. We were the kind of kids that – we – obeyed our parents. If they said no, you don’t ask why.
+ - Food has always brought me comfort and the bingeing is triggered when I’m in a space that is not positive.
+ - Damita Jo. Jo. That’s my middle name. It’s let in about the different characters that live within me. They say we have 200 characters that we portray with different people.
+ - I’ve never been one for keeping a journal, so my songs were my journals. They allowed me to express my feelings and let people know what was going on with me. I knew that somebody would relate.
+ - We’re all driven to premieres or nightclubs and seen the rope separating those who can enter and those who can’t. Well, there’s also velvet rope we have inside of us, keeping others from knowing our feelings.
+ - Touring is very grueling. It’s very taxing on the body and living out of your suitcase, going from city to city, night after night. It’s a tough job.
+ - I wanted to talk about my life. There is so much. I was 18 when I made the record, and I had a lot to say.
+ - I can be an emotional eater.
+ - I always get bored with my hair. That’s why I would always change it throughout my career.
+ - Competition is great. And as long as it’s friendly and not a malicious thing, then I think it’s cool.
+ - There are artists, true performers that have come before me who have been a big inspiration to me. I hope I do the same for others.
+ - I think it’s great if a guy has a good sized package.
+ - I would love to. A dream of mine is to produce films, as well as to produce content for television.
+
+100 quotes

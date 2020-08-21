@@ -1,0 +1,21 @@
+ - Leave as little to chance as possible. Preparation is the key to success.
+ - The key to winning is poise under stress.
+ - A winner never whines.
+ - You just never know what’s around the next corner in life or business or anything.
+ - Feathered with hoarfrost, skeletal trees loom closer; fog shrouded arches.
+ - You can learn a line from a win and a book from a defeat.
+ - I enjoy winning and very much dislike losing- but I did not allow either of them to obsess me. I was a silent loser, believing that if you won you said little, and if you lost you said even less.
+ - What we have currently available is what we have available.
+ - By nature, an auction is kind of a wholesale beast anyway. You’re buying second hand goods, even with the historical, antique or aesthetic value. You look to get the wholesale price and you hope for retail spikes periodically when you get two or three people in the audience that want the same thing.
+ - I’m not a big TV watcher, but I know that Discovery is a teaching network. And they’ve been so awesome to me, I love those people.
+ - Football is a game of errors. The team that makes the fewest errors in a game usually wins.
+ - If you think you have a good idea, get into the marketplace as quickly as you can, using as little money as possible, and see what happens.
+ - The only thing that counts is your dedication to the game. You run on your own fuel; it comes from within you.
+ - I like Modernism. I grew up around these sort of eclectic, heavily carved, baroque, rococo, highly ornamented styles that were in my life from the time that I was a child until now in my business life. So I like clean, straight, minimalist lines.
+ - My theory with the auctions has been to try to make them like a party, like a social event. If people are having a good time, talking with their friends, they’re much more likely to bid.
+ - Coaches who scrimmage all the time don’t know what to practice.
+ - The test of a quarterback is where his team finishes.
+ - I can’t stand it when a player whines to me or his teammates or his wife or the writers or anyone else. A whiner is almost always wrong. A winner never whines.
+ - We don’t have mad cow disease. We probably never will have mad cow disease, and therefore, it’s a non-problem in the United States.
+
+19 quotes

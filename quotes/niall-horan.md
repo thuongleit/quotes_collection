@@ -1,0 +1,93 @@
+ - If it were legal, I'd marry food. 
+ - Being single doesn't mean you're weak. It means your strong enough to wait for what you deserve.
+ - I'd rather be called a boy and play with paper airplanes than be called a man and play with a girl's heart.
+ - I’m waiting for my princess to come I just have to be patient.
+ - I love with the heart not the eyes.
+ - Frankly, I don’t care what others say.
+ - Sleep ’til you’re hungry, eat ’til you’re sleepy.
+ - Words will be just words till you bring them to life.
+ - I’m the most carefree, happy person you’ll meet.
+ - I hate it when girls act stupid ’cause they think it’s cute. Intelligence is sexy.
+ - I love being in bed almost as much as I love food.
+ - I’ll always defend the people I love even though I’m as terrifying as a baby penguin.
+ - I wonder if anyone thinks of me when they can’t fall asleep at night.
+ - Every now and then you have like a realization moment where you get goosebumps and think: I am literally the luckiest person in the world.
+ - I’m the kind of boy that can fall in love with any girl because I love with the heart, not the eyes.
+ - I don’t want to live up to how people expect me to be.
+ - I think there’s nothing wrong with eating all the time. At least i’m not doing anything illegal.
+ - Everyone deserves to feel good about themselves, and if you don’t then start because everyone is beautiful.
+ - I like anything that’s edible...
+ - I want a girlfriend who can eat like me.
+ - I just like sitting at home, chilling and watching a movie.
+ - Age is just a number. Who cares how old the girl is that I date?
+ - I think there’s so much feeling among young girls where they feel like they have to be this perfect thing – and they don’t. Perfect people don’t exist. Sometimes people need to be told it.
+ - If i’m louder would you see me?
+ - We’re never going to escape the idea of being young. Which I don’t mind myself. I mean, who wants to grow up anyway?
+ - The boys that lose our directioners are so stupid, they will never find such beautiful girls in the whole entire world.
+ - When I have time off, all I want to do is do nothing.
+ - Changing is for weirdos.
+ - I’ll always defend the people I Love.
+ - If a man whistles at you, don’t turn around. You are a lady not a dog.
+ - I won’t date a model, because models are perfect and perfect is boring.
+ - Dreams do come true, believe always. I dreamt every night of becoming a singer.
+ - I’d rather be a boy playing with a paper plane, than to be a grown man playing with a woman’s heart.
+ - If I was in a horrorfilm I’d die first, because I would have no idea what’s going on.
+ - I can’t help but look for my future wife in the crowd.
+ - You’ll never love yourself half as much as I love you and you’ll never treat yourself right darling but I want ya too if I let you knoooowww Im here for you then maybe you’ll love yourself like I love you ohhhhh.
+ - Red Bull doesn’t give you wings, it just makes ya sick.
+ - Let’s go to Nando’s!
+ - The fans always tell me im beautiful but I always tell them that no one will ever be as beautiful as them.
+ - I’ve got an IQ of 40 million.
+ - Don’t mess with our fans or we’ll come and find you.
+ - I’d always walk my girlfriend home, i’m too protective!
+ - I’ve tried to ask myself Should I see someone else? I wish I knew the answer.
+ - Someone told me the smile on my face gets bigger when I play the guitar.
+ - I hate to see a guy who insults a girl or is bad with her. Immediately I think she would be better if she was with me.
+ - I’m not really a flirt; I just try to be myself.
+ - I don’t know, it’s odd that girls ask if they can hug me. Don’t ask, do it. I’m just a regular guy.
+ - I want a girlfriend who eats as much as I do, which is a lot.
+ - I’d rather go to sleep than find a girl.
+ - I had a friend, who was abused by her dad. I made a vow to myself that I’d never hurt my daughter.
+ - I get really nervous if pigeons are flying around before shows. I can’t stand them after one once flew in through my bathroom window and went for me while I was having a wee. That was enough. I think pigeons target me.
+ - Our band will never change, we will always be 5 singing idiots .
+ - Queuing tips for fans: wrap up and bring food!
+ - The light’s hot, everything’s hot, I’m hot.
+ - When i was 12 all of my friends had girlfriends and i didn’t, i felt lonely so i asked my mom to date me.
+ - If I got a girlfriend, I’d feed her playfully all of the time.
+ - Anyone who is funny and doesn’t take herself to seriously is attractive to me.
+ - My accent always works with girls. They like it, I have no idea why.
+ - I’d date a fan as long as she didn’t scream in my face.
+ - Cause I’m Irish, and everyone remembers me.
+ - Sometimes, the girls hug all boys except me, and I just smile, but it hurts.
+ - A squirrel attacked me. I got attacked by a squirrel in Battersea Park. They’re dangerous. It’s rare. I’ve torn most of the ligaments in my knee. So no football for me. It’s early retirement now. I’ve got a floating knee-cap!
+ - I want to live forever! I want to learn how to fly high!
+ - I’m an emotional guy, so I don’t have to worry about a girl trying to get me to open up.
+ - The type of girls that would sleep with you in a heartbeat aren’t the type of girls I’d want to take home anyway.
+ - I used to have an imaginary friend named Michael.
+ - If I looked like Zayn, I would date myself.
+ - I think our fans are a bit like us – they’re very fun, like to have a laugh, like to party. I think that’s what comes across on our album as well. It’s very fun. It’s music that you could play at a party, but it also deals with teenage relationships.
+ - Do you think anybody knows that I’m Irish?
+ - I had my first kiss when I was 11, but I think I’ve blocked it out of my mind because it was so bad. I’m not even sure it counts as a kiss.
+ - I feel I am a little bit older. Reckon I will start growing a beard next week.
+ - I want to sell out arenas and make an album and work with some of the best artists in the world.
+ - Fans always ask me to marry them so I’ll have a lot of wives.
+ - Liam, shut up. I’m trying to do an interview.
+ - I’ve not actually been on too many dates.
+ - I don’t see how you could get used to people screaming in your face, and anyone who says different is lying.
+ - I’ve got my old favorites like The Eagles and Bon Jovi.
+ - Katy Perry still gets me every time. She’s very funny in person! We met at the Teen Choice Awards and she pulled my cheeks apart and told me how cute I was. My life was literally flashing before my eyes!
+ - The worst thing a girl could do on a date is fart louder than me.
+ - We cut up lemons on a chop board because they are good for our voices.
+ - Would you like to depress anyone else?
+ - The bigger the crowd the better really! The noise calms your nerves.
+ - Well, personally, I wouldn’t like to be a food, because I wouldn’t want to be eaten.
+ - Give it up for Harry Pottery.
+ - There’s always pressure on the second album – this one has to be the big one.
+ - Katy Perry is the sexiest woman I’ve ever kissed. It was amazing and very purple – she had purple lipstick on. I don’t think there will ever be anything cooler than kissing her until I marry her maybe!
+ - I was starstruck by Michelle Obama. She’s an amazing-looking lady, and I’m a massive Barack Obama fan anyway.
+ - Simon Cowell is tight. That’s why he’s so successful – he’s able to keep his money to himself.
+ - Everyone gets that second album syndrome.
+ - I actually haven’t been on many dates, but I like just chilling around at home and watching a movie with a girl.
+ - I’m quite claustrophobic, and I don’t like everyone crowding around and shouting the same questions.
+
+91 quotes

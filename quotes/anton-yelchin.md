@@ -1,0 +1,40 @@
+ - The ability to have a choice in what you do is a privilege.
+ - The music that really moves me is music that’s written by people where there isn’t a lot of money and they’re really singing with just their voice and a guitar about their feelings and about their life. Their poetry is relatively simple, in the sense that it’s about their soul in jeopardy.
+ - When you don’t understand the fashion world you’re just grateful you get to wear good clothes.
+ - I’ve been lucky to be able to work with great people and on interesting material.
+ - I’ve always been drawn to a certain kind of dark aesthetic in cinema and in film, to what’s abjected or considered abject. I’ve been tremendously influenced by noirish cinema whether that’s Von Sternberg or Scorsese in the 70s or Lynch, etc.
+ - I’m not passive aggressive. If something bothers me, I think about it, then I act on it. I express it.
+ - One of my favorite vampire movies is ‘Nosferatu,’ which has a palpable sense of dread that’s a pre-war dread.
+ - There’s only a handful of people I trust completely, and I know who they are. Other than that, I pretty much don’t trust people.
+ - I’m trying to figure out what I can do creatively. It’s about trying to find new things and trying to figure out voices and borrowing from things and learning as much as possible so that I have an archive of things to borrow from.
+ - Teenagers are like atoms when they’re moving at hundreds of miles an hour and bouncing off each other. Everybody’s got such a crazy hormonal drive and reacting to each other differently and getting upset over little things. High school puts all these potential explosions in one place.
+ - It would be nice to live off the land and fix cars.
+ - Most of the girls I know are from my school. I’ve gone to school with the same people since fourth grade, so I can’t wait to go to a place where I don’t know anybody.
+ - I tried ice-skating and wasn’t very good at it.
+ - I think any time you’re in a new relationship, there’s so much to look forward to.
+ - I’m actually embarrassed to tell people I’m Russian these days, because it’s become such an awful place.
+ - I don’t feel any connection to Russia.
+ - And also, that’s the kind of wonderful thing about film culture, is the interaction between films and who works on what, where they were before, and now what they’re doing now, and that inevitably informs how people view a film.
+ - I think its important for movies to recognize that they are part of a history of movies. I also think that most movies are about movies anyway, even if they’re about something else.
+ - Russia itself is an extremely complex country, and sometimes I feel like all of that comes back to haunt me. I can see why so many Russian writers were so tortured.
+ - I usually bring a point and shoot with me so I can go out on the weekends and shoot a bit. I used to bring more cameras, but I’m also an Ebay nut so sometimes I’ll order something if I’m really pining for it when I’m on location.
+ - I was drawn to photography as an extension of film, and the beauty of film is that it’s a sensuous, fetishistic medium.
+ - I don’t hang out at trendy Hollywood bars.
+ - I need what I’m thinking to come out into the world, even if it’s a two-word approval, like, “Yeah, I agree,” I need that approval so that in the morning I can get up and use that when I go to work. It’s a weird version of focusing.
+ - Maybe silence is something we’re uncomfortable with as a culture, I don’t know.
+ - I prefer when movies target my heart instead of my mind.
+ - I don’t really like watching my work. I don’t mind watching it when I was a little kid because I forgive myself a lot, since I was a little kid.
+ - I love academics, theory and all that. I love and admire that and try to do as much reading as I can.
+ - I think you can always find interesting, complex and fascinating characters to play in different kinds of movies. It’s in your hands.
+ - Every relationship I’ve been in becomes long-distance because of work. It’s never worked out. It puts an intense strain on the relationship, and at a certain point, it becomes too difficult.
+ - I’ve always loved punk music, since I was in my early teens, since middle school.
+ - I want things to be characters and not me. Why would I want to play me?
+ - My parents were of the opinion, because they had started skating very young, that you should have something that you do that you care about, because it structures your life as you’re growing up.
+ - There are two parts of me. There’s the really critical, film-nerd part of me that loves that, and then there’s the part of me where I’m like, “I really didn’t like that movie, but I want to work with that director because he loves actors.”
+ - I feel lucky to be in whatever I’m in. I feel lucky to be working.
+ - If you want to make movies you need to think on a micro-micro level and figure out how to make them for nothing with people who really care about your movie and really want to make it.
+ - I’m sure there are directors who don’t like to work with actors and don’t know how to be sensitive to actors.
+ - I’ve been lucky to play characters that are really broad.
+ - I’m fascinated by how ethnic communities have assimilated into massive capitalist environments.
+
+38 quotes

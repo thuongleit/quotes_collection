@@ -1,0 +1,21 @@
+ - I think about legacy a lot, hopefully at the end of the day they say I was a good bluesman. That’s all I want.
+ - T-Bone Walker was a big influence on just about every guitar player around.
+ - There were a whole lot, I bought every blues record I could find, it wasn’t just one or two people. My vocal influences were Ray Charles and Bobby Blue Bland.
+ - Yeah, we went to England to do a show and I got off the plane and I couldn’t write my name or hold my hand up.
+ - The Rock’n’Blues Fest is my kind of festival series! It’s always great playing shows with my brother and, add to that, all the other great artists and their bands and this should make for one historic round of concerts.
+ - I started playing ukulele first for 2 years from age 9 to 11 and got my first guitar and got inspired by blues I heard on the radio that turned me on and I started learning myself.
+ - I just hope I’m remembered as a good blues musician.
+ - My mother played piano so we always had music around the house.
+ - I just like the blues better than rock ‘n’ roll.
+ - I always wanted to play music and have it be my career and knew this by the age of 12.
+ - Little Walter I would’ve liked to have played with.
+ - The best artists are gone now.
+ - I think the blues will always be around. People need it.
+ - I really appreciate when someone can blow me away with live acoustic blues.
+ - When I got old enough to go to night clubs to hear that music at the age of 15.
+ - Derek Trucks is a real good new artist. He’s a young guy.
+ - I think it will always be around it just takes one person to make people aware of the blues.
+ - Oh, I love to play on the road. I really love it.
+ - When I was about 12, I knew I wanted to be a musician. The blues had so much emotion and so much feeling; if you don’t have that, you’re not going to be good at it.
+
+19 quotes

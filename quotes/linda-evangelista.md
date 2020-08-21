@@ -1,0 +1,50 @@
+ - I won’t get out of bed for less than $10,000 a day...
+ - We have this saying, Christy and I. We don’t wake up for less than $10,000 a day.
+ - When I work, it can be a 16-hour day.
+ - I admired those girls who did Playboy, Sports Illustrated, and Victoria’s Secret. I love looking at them too, but I never went in that direction. I just stayed in fashion.
+ - I know that sometimes the chemistry just isn’t there between the model, photographer, hair and make-up. It’s nobody’s fault and you just have to do better next time.
+ - Half-caf, double-tall, non fat, whole-milk foam, bone-dry, half-pump mocha, half sugar in the raw, double cup, no lid, capp – to go.
+ - No-one is born with perfect eyebrow.
+ - I was a hoarder, and I got rid of everything. Now nothing comes in my home unless it has a purpose. And decor is not a purpose. Home is New York apartment with a table, a bed and sofas. That’s it. Everything else is gone.
+ - People think modeling’s mindless, that you just stand there and pose, but it doesn’t have to be that way. I like to have a lot of input, I know how to wear a dress, whether it should be shot with me standing up or sitting down. And I’m not scared to say what I think.
+ - I was having panic attacks. I didn’t want to live that way anymore. I was in love and I wanted it to work. I was tired of travelling, tired of the whole scene, just tired. I sat around. I was lazy. I wanted a routine, and I wanted to wake up in the same bed every day, and I got my wish.
+ - Hair is just one way of expressing ourselves. We express ourselves through how we dress or through tattoos or body art or piercings or cosmetic surgery...
+ - It was God who made me so beautiful. If I weren’t, then I’d be a teacher.
+ - I don’t think age is an ugly process. I think age is a beautiful thing. I love wrinkles. I don’t like falling down. If I just wrinkle, I may not touch. If I fall down, I’ll lift up.
+ - I accept that keeping in shape doesn’t come naturally, so I work hard. I hit the gym every day: Pilates, yoga, weights. I used to love wine but I’ve stopped drinking. I quit smoking and I’ll never start again.
+ - I like glamour. Not afraid of it.
+ - In photos, I don’t know who the real me is – it’s all pretend, just pretend. There’s not much of myself in my work. If I’m looking in the mirror and I’m working, I’m looking at my make-up and my hair. It’s not the same as looking at myself.
+ - There was a time when everyone remembered that stupid thing about me not getting out of bed for less than $10,000 a day. These days, it’s far more important to me that I’m part of a team which raises over $1 million a month for Aids. I’m much more proud of that, than that other old quote.
+ - I got so sick of my face and the flaws.
+ - If they had Nautilus on the Concorde, I would work out all the time.
+ - God help anyone who disobeys my recycling system. I have all the separated bins. I’m very adamant about it because I try to be a good citizen of the world, I really do. I even use eco-friendly cleaning products, but sometimes you just have to break open the disinfectant. Some jobs require it.
+ - Sure, I like my short hair. It also quadrupled my rate. I did get sick of seeing it on everybody, though – every stewardess, every salesclerk, and in every restaurant.
+ - I don’t get cast for every job and I understand that.
+ - Cooking is one of my favourite things – from going to the market, bringing the stuff home and preparing it, to cleaning the kitchen afterwards. I’ve lost my figure a few times. There have been moments when I’ve overeaten, for comfort. But with discipline and hard work, you can get your figure back.
+ - I have to hit the gym. I have beauty appointments. I have to work toward my next job and maintaining my image, just like an athlete.
+ - I eat super healthy and I’m super fit. I dabble in every type of fitness. I have a trainer and I go to the gym. I do yoga as well.
+ - Fashion faux pas should be celebrated. I enjoy them because it means we’re not all clones.
+ - I have turned down so many major advertising bids because I think either the time isn’t right or I’m not.
+ - Being a rock star was out of the question. I can’t sing.
+ - I did that Dior Couture 60th anniversary show in July. It took so long to get ready, I think I would have rather been watching.
+ - I love everything about fashion. I even love the fittings and watching it evolve from a pattern to a muslin to the final product.
+ - I never, ever used my son for publicity. He’ll have his say one day if he wants it. He’ll have the last word. He has time to defend himself.
+ - On days when I do not work, I am working on my image.
+ - Why would I be embarrassed about being Canadian? I’m very proud. We’re just the nicest people. Everyone likes us.
+ - I think I will always have a place. I don’t think I have to rule or reign but there’s a place for me.
+ - I have to get off the Internet. It’s so unhealthy for me. I do see what they post about me, and it’s not always positive. They’re mean – though there are some lovely ones. I’m so tempted to post something, but I haven’t done it yet.
+ - I’m part of a team that raises millions of dollars and raises awareness of HIV and AIDS all over the world.
+ - One of my first jobs was in Italy and that’s where I saw cocaine for the first time. There was a murder in our group that weekend. I decided then and there that I would never do drugs. I have anxiety attacks, so there’s no way I could do them.
+ - When people ask how have I kept on top, I have to say with the help of every photographer, make-up artist and hairdresser I’ve ever worked with.
+ - When I started in the business, I was told I had three good years in me.
+ - I love, love, love fashion so much. That’s why I became a model in the first place.
+ - I don’t happen to think magazines should be full of thin people. What I do say is that we can all work a little harder with what we have. It is possible to achieve a better body shape and heart rate with nutrition and exercise.
+ - I had no illusions that my career would be any longer than three years tops.
+ - Designers and photographers still want to work with me and I’m grateful for that. I don’t know how long I’ll carry on – as long as they’ll have me.
+ - I was one of the first print models to go on the runway because I wanted to do runway. When I started doing the shows, I was the only print girl there.
+ - I have this great fear of people – not when I’m on the runway, but backstage. In a room full of people, I really suffer. I sort of go into a tunnel and I feel very removed. I get so tense, I can’t swallow, and my heartbeat goes way up. It still happens now, although I’m better at controlling it.
+ - As long as designers want to dress me, photographers want to take my picture and companies think my face will help their products, then I won’t go anywhere until they’re done with me.
+ - Hair is the greatest thing to experiment with because it’s not permanent. If I didn’t like my colour, I’d just change it.
+ - I don’t diet. I just don’t eat as much as I’d like to.
+
+48 quotes

@@ -1,0 +1,34 @@
+ - To listen well is as powerful a means of communication and influence as to talk well.
+ - The power to tax is the power to destroy.
+ - What are the maxims of Democracy? A strict observance of justice and public faith, and a steady adherence to virtue.
+ - Our Constitution is color-blind, and neither knows nor tolerates classes among citizens. In respect of civil rights, all citizens are equal before the law. The humblest is the peer of the most powerful.
+ - The Constitution is colorblind, and neither knows nor tolerates classes among citizens.
+ - The people made the Constitution, and the people can unmake it. It is the creature of their own will, and lives only by their will.
+ - It is emphatically the province and duty of the Judicial Department to say what the law is.
+ - Let the end be legitimate, let it be within the scope of the constitution, and all means which are appropriate, which are plainly adapted to that end, which are not prohibited, but consist with the letter and spirit of the constitution, are constitutional.
+ - Certainly all those who have framed written constitutions contemplate them as forming the fundamental and paramount law of the nation, and consequently the theory of every such government must be, that an act of the legislature, repugnant to the constitution, is void.
+ - The peculiar circumstances of the moment may render a measure more or less wise, but cannot render it more or less constitutional.
+ - A constitution is framed for ages to come, and is designed to approach immortality as nearly as human institutions can approach it.
+ - The acme of judicial distinction means the ability to look a lawyer straight in the eyes for two hours and not hear a damned word he says.
+ - Between a balanced republic and a democracy, the difference is like that between order and chaos.
+ - What is it that makes us trust our judges? Their independence in office and manner of appointment.
+ - The institution of Masonry ought to be abandoned as one capable of much evil, and incapable of producing any good which might not be affected by safe and open means.
+ - The most lively fancy aided by the strongest description cannot equal the reality of the opera.
+ - A corporation is an artificial being, invisible, intangible, and existing only in contemplation of law.
+ - This government is acknowledged by all, to be one of enumerated powers.
+ - In a free government almost all other rights would become worthless if the government possessed power over the private fortune of every citizen.
+ - No political dreamer was ever wild enough to think of breaking down the lines which separate the States and compounding the American people into one common mass.
+ - An unlimited power to tax involves, necessarily, a power to destroy; because there is a limit beyond which no institution and no property can bear taxation.
+ - When a law is in its nature a contract, when absolute rights have vested under that contract, a repeal of the law cannot divest those rights.
+ - The government of the United States has been emphatically termed a government of laws, and not of men. It will certainly cease to deserve this high appellation, if the laws furnish no remedy for the violation of a vested legal right.
+ - The French Revolution will be found to have had great influence on the strength of parties, and on the subsequent political transactions of the United States.
+ - A legislative act contrary to the Constitution is not law.
+ - The particular phraseology of the Constitution of the United States confirms and strengthens the principle, supposed to be essential to all written constitutions, that a law repugnant to the Constitution is void; and that courts, as well as other departments, are bound by that instrument.
+ - Have no power, by taxation or otherwise, to retard, impede, burden or in any manner control the operations of the constitutional laws enacted by Congress.
+ - I fear we may live to see another revolution.
+ - My gift of John Marshall to the people of the United States was the proudest act of my life. There is no act of my life on which I reflect with more pleasure. I have given to my country a judge equal to a Hole, Holt, or a Mansfield.
+ - It is the peculiar province of the legislature to prescribe general rules for the government of society; the application of those rules to individuals in society would seem to be the duty of other departments.
+ - No one imagines that a law professing to tax will be permitted to destroy.
+ - The law does not expect a man to be prepared to defend every act of his life which may be suddenly and without notice alleged against him.
+
+32 quotes

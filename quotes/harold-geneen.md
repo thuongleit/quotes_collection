@@ -1,0 +1,34 @@
+ - In the business world, everyone is paid in two coins: cash and experience. Take the experience first; the cash will come later.
+ - I think it is an immutable law in business that words are words, explanations are explanations, promises are promises, but only performance is reality.
+ - Better a good decision quickly than the best decision too late.
+ - Leadership cannot really be taught. It can only be learned.
+ - A true leader has to have a genuine open-door policy so that his people are not afraid to approach him for any reason.
+ - You can know a person by the kind of desk he keeps. If the president of a company has a clean desk then it must be the executive vice president who is doing all the work.
+ - Management must manage!
+ - If your desk isn’t cluttered, you probably aren’t doing your job.
+ - It is much more difficult to measure non-performance than performance. Performance stands out like a ton of diamonds. Non-performance can almost always be explained away.
+ - In the business world, everyone is always working at legitimate cross purposes, governed by self interest.
+ - You can’t run a business or anything else on a theory.
+ - We must not be hampered by yesterday’s myths in concentrating on today’s needs.
+ - You read a book from beginning to end. You run a business the opposite way. You start with the end, and then you do everything you must to reach it.
+ - The best way to inspire people to superior performance is to convince them by everything you do and by your everyday attitude that you are wholeheartedly supporting them.
+ - What you manage in business is people.
+ - Do you want my one-word secret of happiness? It’s growth – – mental, financial you name it.
+ - I don’t believe in just ordering people to do things. You have to sort of grab an oar and row with them.
+ - In a good meeting there is a momentum that comes from the spontaneous exchange of fresh ideas and produces extraordinary results. That momentum depends on the freedom permitted the participants.
+ - The professional’s grasp of the numbers is a measure of the control he has over the events that the figures represent.
+ - Business is many things, the least of which is the balance sheet. It is a fluid, ever changing, living thing, sometimes building to great peaks, sometimes falling to crumbled lumps.
+ - It’s better to take over and build upon an existing business than to start a new one.
+ - Every company has two organizational structures: The formal one is written on the charts; the other is the everyday relationship of the men and women in the organization.
+ - Ninety-nine percent of all surprises in business are negative.
+ - Uncertainty will always be part of the taking charge process.
+ - If you keep working you’ll last longer. I’d hate to spend the rest of my life trying to outwit an 18-inch fish.
+ - Management must have a purpose, a dedication and that dedication must have an emotional commitment. It must be built in as a vital part of the personality of anyone who truly is a manager.
+ - It is much more difficult to measure nonperformance than performance.
+ - When I come upon a man who has a gleaming, empty, clear desktop, I am dealing with a fellow who is so far removed from the realities of his business that someone else is running it for him.
+ - Management manages by making decisions and by seeing that those decisions are implemented.
+ - Managers in all too many American companies do not achieve the desired results because nobody makes them do it.
+ - The highest art of professional management requires the literal ability to ‘smell’ a ‘real fact’ from all others.
+ - Facts from paper are not the same as facts from people. The reliability of the people giving you the facts is as important as the facts themselves.
+
+32 quotes

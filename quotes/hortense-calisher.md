@@ -1,0 +1,28 @@
+ - Sociology, the guilty science, functions best by alarm.
+ - Women can’t travel light. We’re in charge of the basic facts.
+ - The novel is rescued life.
+ - What I have written-and how I came to write it-is most powerfully what I am.
+ - Speech isn’t for agony.
+ - The words! I collected them in all shapes and sizes and hung them like bangles in my mind.
+ - This is my answer to the gap between ideas and action – I will write it out.
+ - The young show the genetic process, the old merely die of it.
+ - In a family, the same spoken lines come in over and over. Intimacy exhausts.
+ - Agony without genius was gaucherie.
+ - I don’t suppose there’s really any critic except posterity.
+ - First publication is a pure, carnal leap into that dark which one dreams is life.
+ - When anything gets freed, a zest goes round the world.
+ - But the trek that starts with the feet always rises in time to the head. There had never been any of mankind’s that didn’t.
+ - How clerks love refusing. It salves them for being clerks.
+ - But memory, after a time, dispenses its own emphasis, making a feuilleton of what we once thought most ponderable, laying its wreath on what we never thought to recall.
+ - A happy childhood can’t be cured. Mine’ll hang around my neck like a rainbow, that’s all, instead of a noose.
+ - I always say that one’s poetry is a solace to oneself and a nuisance to one’s friends.
+ - It has always seemed to me that if you could talk about your work in fully-formed phrases, you wouldn’t write it. The writing is the statement, you see, and it seems to me that the poem or the story or the novel you write is the kind of metaphor you cast on life.
+ - The standard dreaming of a society has to be listened to.
+ - Diplomacy is what is practiced after-the-fact. Never be too right too soon – as any smart Uncle will tell you. The man who guesses what will happen will be blamed for it. No one will believe he has merely guessed.
+ - I get up and I have coffee and I speak to no man and I go to my desk.
+ - It took most people a lifetime to join the human race.
+ - Decades go faster toward the end of a century.
+ - Balance is compromise. Of the muscles.
+ - Every art is a church without communicants, presided over by a parish of the respectable. An artist is born kneeling; he fights to stand. A critic, by nature of the judgment seat, is born sitting.
+
+26 quotes

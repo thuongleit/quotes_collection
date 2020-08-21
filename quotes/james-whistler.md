@@ -1,0 +1,37 @@
+ - An artist is not paid for his labor but for his vision.
+ - An artist’s career always begins tomorrow.
+ - If silicon had been a gas I should have been a major-general.
+ - Industry in art is a necessity – not a virtue – and any evidence of the same, in the production, is a blemish, not a quality; a proof, not of achievement, but of absolutely insufficient work, for work alone will efface the footsteps of work.
+ - As music is the poetry of sound, so is painting the poetry of sight and the subject-matter has nothing to do with harmony of sound or of color.
+ - Mauve is just pink trying to be purple.
+ - I am not arguing with you – I am telling you.
+ - Art happens-no hovel is safe from it, no prince may depend upon it, the vastest intelligence cannot bring it about.
+ - People will forgive anything but beauty and talent. So I am doubly unpardonable.
+ - I always ask at once, ‘Do you drink?’ and if she says ‘No,’ I bow politely and say I am sorry but I fear she will not suit. All good cooks drink.
+ - To say to the painter that Nature is to be taken as she is, is to say to the player that he may sit on the piano.
+ - Nature is usually wrong.
+ - For art and joy go together, with bold openness, and high head, and ready hand – fearing naught and dreading no exposure.
+ - Nature is very rarely right, to such an extent even, that it might almost be said that nature is usually wrong...
+ - Art is a goddess of dainty thought, reticent of habit, abjuring all obtrusiveness, purposing in no way to better others. She is, withal selfishly occupied with her own perfection only – having no desire to teach.
+ - It takes a long time for a man to look like his portrait.
+ - Listen! There was never an artistic period. There was never an art-loving nation.
+ - Work alone will efface the footsteps of work.
+ - The explanation is quite simple. I wished to be near my mother.
+ - If other people are going to talk, conversation becomes impossible.
+ - The rare few, who, early in life have rid themselves of the friendship of the many.
+ - I can’t tell you if genius is hereditary, because heaven has granted me no offspring.
+ - If the man who paints only the tree, or flower, or other surface he sees before him were an artist, the king of artists would be the photographer. It is for the artist to do something beyond this.
+ - The world is divided into two classes – invalids and nurses.
+ - The work of a master reeks not of the sweat of the brow – suggests no effort – and is finished from its beginning.
+ - I remember that at one time I always made a drawing before going to bed!! – Of myself I mean – though I finally destroyed most of them.
+ - We look at a painting to know the painter; it’s his company we are after, not his skill.
+ - The vast majority of English folk cannot and will not consider a picture as a picture, apart from any story which it may be supposed to tell.
+ - I maintain that two and two would continue to make four, in spite of the whine of the amateur for three, or the cry of the critic for five.
+ - To say of a picture, as is often said in its praise, that it shows great and earnest labour, is to say that it is incomplete and unfit for view.
+ - Can’t a person be born where they want to be born?
+ - Paint should not be applied thick. It should be like a breath on the surface of a pane of glass.
+ - A picture is finished when all trace of the means used to bring about the end has disappeared.
+ - Art is limited to the infinite, and beginning there cannot progress.
+ - You shouldn’t say it is not good. You should say, you do not like it; and then, you know, you’re perfectly safe.
+
+35 quotes

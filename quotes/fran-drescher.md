@@ -1,0 +1,41 @@
+ - Sometimes people come into your life for a season and other times for a lifetime.
+ - Without music the world will still turn, but it won’t rock.
+ - If we don’t empower ourselves with knowledge, then we’re gonna be led down a garden path.
+ - Once you wake up and smell the coffee, it’s hard to go back to sleep.
+ - Often, the truly great and valuable lessons we learn in life are learned through pain. That’s why they call it “growing pains.” It’s all about yin and yang. And that’s not something you order off column A at your local Chinese restaurant.
+ - Well, my favorite color I guess I would say yellow.
+ - Illness is the great equalizer. It doesn’t matter who you are, rich or poor, young or old, fat or thin, sick is sick.
+ - I’ve lived, laughed, lost, and loved again the whole Shakespearian thing.
+ - Anyone who turns love between two consenting adults into a negative, doesn’t understand the meaning of the word.
+ - I’ve gone very far, far away, but my character keeps me close to home.
+ - My whole life has been about changing negatives into positives.
+ - I told her I wanted a plastic surgeon to sew me up, and I wanted her to freeze my ovaries, so I could harvest the eggs and have a biological child through a surrogate.
+ - You know I think that going into therapy is a very positive thing, and talking about it is really helpful, because the more you talk the more your fears fade, because you get it out.
+ - Every time you go to the doctor and get a good report, the odds keep staking more in your favour.
+ - I had uterine cancer, which is the most under-funded and under-researched of all the female cancers.
+ - People lived in the same apartments for years. You’d meet a group of kids in kindergarten, and you’d still be with them in high school. No one ever left the neighborhood.
+ - My whole life has been about changing negatives into positives. I got famous, then I got cancer, and now I live to talk about it. Sometimes the best gifts come in the ugliest packages.
+ - It was a small provincial place with great people and I had a happy childhood growing up in Queens.
+ - I have been dairy free for several years, and I started because I felt it was going to reduce my allergies, which it did, and help me lose weight, which it did.
+ - If I go to a concert or sporting event I usually go in a VIP entrance. And leave the same way.
+ - Since my illness, I’ve felt the presence of my angels.
+ - I like to cook, walk on the beach, go to concerts and look at fine art.
+ - I had my moments when I got very frightened that I would not recover.
+ - Though I’m not religious in the classical sense I did partake in Passover.
+ - I like writing better. Because I don’t have to wear makeup, I don’t have to be thin, and I don’t have to remember lines.
+ - I started as a teenager going up on commercials.
+ - The Super Bowl is really exciting. The parties are always fun. The whole thing is a big party.
+ - I did a terrible television pilot that was so badly written and dumb that it became a turning point for me and I decided that I would never accept a job just because I needed the money.
+ - I have very eclectic taste in music, but when it comes to going to concerts, I like going to rock concerts.
+ - I went into the world, threw myself into the world, and great things came out of it.
+ - I don’t go to places where I’m going to get mobbed.
+ - Being famous gets me good concert tickets, good tables in restaurants, good seats at sporting events and that’s really about it.
+ - Well, every time I get ready to do a job I want to lose weight.
+ - I choose the places I go to carefully and wisely. I’ll rarely go to a shopping mall anymore.
+ - I’ve lived three lifetimes in my short time.
+ - My clothes are predominately black and my home is predominantly white.
+ - I’m very involved in the writing on every level.
+ - Life is precious and there’s not a lot of room for anger.
+ - Well I could have been just a writer. I had been a hair dresser. I could have stuck with that.
+
+39 quotes

@@ -1,0 +1,40 @@
+ - If our lives and our faith are centered on Jesus Christ and his restored gospel, nothing can ever go permanently wrong. On the other hand, if our lives are not centered on the Savior and his teachings, no other success can ever be permanently right.
+ - Why do we serve? When we understand why, we won’t be concerned about where we serve.
+ - Whatever Jesus lays His hands upon, lives. If He lays is hands upon a marriage, it lives. If He is allowed to lay His hands on the family, it lives.
+ - You are chosen to be faithful women of God in our day, to stand above pettiness, gossip, selfishness, lewdness, and all other forms of ungodliness. Recognize your divine birthright as daughters of our Heavenly Father.
+ - The atonement of Jesus Christ is the supreme act of love, the supreme example of selfless concern for others.
+ - You should express regularly to your wife and children your reverence and respect for her. Indeed, one of the greatest things a father can do for his children is to love their mother.
+ - At the end of your lives you will not be judged by academic successes, the degrees or diplomas earned, the positions held, the material wealth acquired, or power and prestige, but rather on the basis of what you have become as persons and what you are in conduct and character.
+ - Tenderness and respect-never selfishness-must be the guiding principles in the intimate relationship between husband and wife.
+ - Faith is the element that builds the bridge in the absence of concrete evidence.
+ - To discipline ourselves through fasting brings us in tune with God, and fast day provides an occasion to set aside the temporal so that we might enjoy the higher qualities of the spiritual. As we fast on that day we learn and better understand the needs of those who are less fortunate.
+ - God’s chief way of acting is by persuasion and patience and long-suffering, not by coercion and stark confrontation. He acts by gentle solicitation and by sweet enticement. He always acts with unfailing respect for the freedom and independence that we possess.
+ - Tender expressions of love and affection toward children are as much the responsibility of the father as the mother. Tell your children you love them.
+ - I have learned that those who engage in family history research and then perform the temple ordinance work for those whose names they have found will know the additional joy of receiving both halves of the blessing.
+ - Motherhood is near to divinity. It is the highest, holiest service to be assumed by mankind.
+ - The family is the most important unit in time and in eternity and, as such, transcends every other interest in life.
+ - The real Christmas comes to him who has taken Christ into his life as a moving, dynamic, vitalizing force. The real spirit of Christmas lies in the life and mission of the Master.
+ - We need a more peaceful world, growing out of more peaceful families and neighborhoods and communities. To secure and cultivate such peace, “we must love others, even our enemies as well as our friends”
+ - Perhaps no promise in life is more reassuring than that promise of divine assistance and spiritual guidance in times of need. It is a gift freely given from heaven, a gift that we need from our earliest youth through the very latest days of our lives.
+ - The girl who chooses to be modest, chooses to be respected.
+ - It is the deepest desire of my heart to have every member of the Church worthy to enter the temple.
+ - Swallow what’s bitter in the cup and move on.
+ - A righteous father protects his children with his time and presence.
+ - The path of repentance, though hard at times, lifts one ever upward and leads to a perfect forgiveness.
+ - Surely the Lord loves, more than anything else, an unwavering determination to obey his counsel.
+ - That which is worth while is seldom easy.
+ - Courage is acting in spite of fear.
+ - The real spirit of Christmas lies in the life and mission of the Master.
+ - Being happily and successfully married is generally not so much a matter of marrying the right person as it is being the right person.
+ - While waiting for promised blessings, one should not mark time, for to fail to move forward is to some degree a retrogression. Be anxiously engaged in good causes, including your own development.
+ - Those who are filled with the love of Christ do not seek to force others to do better, they inspire others to do better.
+ - The gospel of Jesus Christ is not limited to a system of beliefs; it is a plan of action.
+ - In the service of the Lord, it is not where you serve but how. In the Church of Jesus Christ of Latter-day Saints, one takes the place to which one is duly called, which place one neither seeks nor declines.
+ - What a glorious thing it is for us to have the privilege of going to the temple for our own blessings. Then after going to the temple for our own blessings, what a glorious privilege to do the work for those who have gone on before us.
+ - We need to remember that though we make our friends, God has made our neighbors – everywhere. Love should have no boundary; we should have no narrow loyalties.
+ - Look to the temple of the Lord as the great symbol of your membership.
+ - What a glorious thing is life, surrounded by the beauties of the world in which we live.
+ - Earn the respect and confidence of your children through your loving relationship with them. A righteous father protects his children with his time and presence in their social, educational, and spiritual activities and responsibilities.
+ - There is a great need to rally the women of the Church to stand with and for the Brethren in stemming the tide of evil that surrounds us.
+
+38 quotes

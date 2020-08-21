@@ -1,0 +1,107 @@
+ - Giving up is the only sure way to fail.
+ - Sometimes what we want isn’t what we need.
+ - You are the woman of my heart. The one I have been awaiting the whole of my life, though I didn’t know it until I spied you. there isn’t one thing that makes you special to me, but all things...
+ - He was royalty. So what? Everyone had a flaw.
+ - Words without action mean nothing. I’ll show you.
+ - What makes big boobs and perkiness so attractive to boys? I mean, really. Two round, mounds of fat and a fake smile. Yeah, winning attributes.
+ - How does fear become so powerful? We can’t see it. We can’t touch it, yet it gets its claws in us and begins to control us. Sigh. I hate feeling afraid, and I hate, hate, HATE feeling out of control.
+ - Is it sad that my first thought happened to be: Thank God I’m off the treadmill.
+ - Hope is a demon worse than your Pain.
+ - Truly living required risk.
+ - Har, har. You’re a borderline fucktard, you know that? Torin to Strider.
+ - Cole, who had kissed me. Cole, who had refused to discuss it afterwards. Okay, fine. I had refused. Cole, who was driving me flipping crazy.
+ - We must fight for what we want or it will be taken from us.
+ - You are mine, woman, and I am yours. Until you, my life was desolate. I existed, but I didn’t truly live. Now I live, even in my death.
+ - I am cruel and I am selfish, but this need I have inside me, this need for you and no other, is stronger than anything else I’ve ever encountered. I doubt two years of lockup would dull it in the slightest.
+ - I love this quote when Valerian the King of the Nymphs says to his mate Shaye; “I am Valerian, leader of the nymphs. You may call me Oh God, that is what the other surface dwellers have preferred to call me”.
+ - I’m Not a Gynecologist, but I’ll take a Look.
+ - There are times I wish I were invisible. Which is silly, since I do everything I can to stand out.
+ - Life’s too short to pretend and play games like that. I want to spend my time hanging out with people who make me feel good about myself. People who make me happy.
+ - Humans had a saying. Mess with the bull and get the horns. Well, Harpies had a saying, too. Mess with a Harpy and die.
+ - The word of the day is legs. Let’s go back to my place and spread the word.
+ - I cannot kill him, she muttered to herself. I cannot kill him. I promised Bianka I’d stop at ten bodies a day, and I’ve already surpassed my quota for the fifth day in a row. I cannot kill him.
+ - Apparently, dancing for him and throwing herself at him weren’t enough. Apparently, she had to nearly commit murder to arouse him enough to attack her.
+ - Anya, the minor goddess of Anarchy? A woman who had more balls than most men – because she’d cut them off the guys stupid enough to get in her way and kept them as souvenirs.
+ - I’m highly aware that some impulses are harder to ignore than others. I’m aware that fear of consequences causes us to guard our secrets. But it’s our actions when faced with temptation that define who we are. It’s our courage in admitting what we’ve done wrong that makes us forgivable.
+ - No one could ever truly be free as long as they loved, and life wasn’t worth living without love. So freedom? Overrated.
+ - Yes, men are pigs. Except your brother, of course. He’s actually a decent human being. Almost a woman. -Jillian’s mother.
+ - Leap out the window, my inner Tigress cried. You aren’t ready to face such a powerful Tiger. I frowned. I thought a true Tigress never backed down from a fight. Don’t you know anything? When she’s in heat, she avoids everything male. Now run!
+ - I’ll carry you over my shoulder if I must, just as I did last night. If I’m forced to do it, however, I cannot guarantee you’ll make it out of this cell with your clothes on. Understand? – – It appears I am the one who will not make it out of here with my clothes on.
+ - Yep, that’s me. I know. I know. You’re humbled I’m here, feel like throwing rose petals at my feet, blah, blah, blah. No need, though. Just try and think of me as a normal guy -William.
+ - People are the most difficult thing in the world to change.
+ - You keep running and one day when you stop running your going to fall, and I’m going to be there to catch you.
+ - That means life itself is a fairy tale. Like the characters, we all live and love and search for a happily-ever-after.
+ - Even the smallest light can grow until there’s no darkness left.
+ - He planned to stick to her like pasties on a stripper.
+ - Nicolai, the Dark Seducer as his people called him, had been in bed, but not alone. He was never alone. He was a man known for the violence of his temper as well as the deliciousness of his touch.
+ - Besties before testes...
+ - The golden rays of the moon paid him absolute tribute. He was a buffet of muscles and corded strength.
+ - CPR dummy looked like him and had clearly been stabbed. Repeatedly. In the groin. He thought she might have used the dummy for target practice, and tried not to be offended. Key word: tried.
+ - I’m not crazy and we’re not alone. I told them, but the only two people who ever believed me were the schizophrenic abducted by aliens and his invisible friend. I told them!
+ - He gave her what no one else had ever been able to give. A past to cherish. A present to enjoy. A future to anticipate.
+ - I love who you are, yesterday, now, tomorrow, always.
+ - Galen cupped her cheek with his uninjured hand, his thumb caressing the rise of satin-covered bone. She trembled, but didn’t pull away.
+ - Sienna, meet Zacharel. He’s a warrior angel for the One, True Deity. Zacharel, meet Sienna. She’s mine.
+ - Everyone at school seems to go by a nickname. Kat, Frosty, Bronx, Boo Bear, Jelly Bean, Freckles.
+ - I cast a glance in my new admirer’s direction. “You may call me Your Highness,” I said. “Or Empress Beauty.” He chuckled. I wasn’t kidding.
+ - My ex – may he soon discover tiny worms have invaded his body and are slowly eating him alive – once told me God made men so perfect because He’d wanted to make up for the inadequacies of women.
+ - Do you think it takes true pain to experience true pleasure?
+ - I am so glad we met at an undisclosed location over the summer.
+ - To answer your question, you want me because I’m made of awesome.
+ - Not fat, just not anorexic. She’s soft in all the right places.
+ - Evelyn: There’s nothing wrong with embracing one’s emotions. Brittany: Mom, You don’t just embrace your emotions, you make love to them hard-core.
+ - Who is she, why is she still here and when can I see her naked? Paris asked with an eyebrow wiggle.
+ - Strider: Red hots dude. He’d ruin anything for a mouthful of those. Now pull over. William: Gummy Bears. You should have said so.
+ - He’s body slammed enough people to start a new country. And there could be a neighbouring city for the people he’s punched in the throat.
+ - Fried twinkies? Paris nodded. Only once, I’ve never forgotten the experience. It’s like heaven in your mouth, man.
+ - When I find my consort, I plan to stab him in the heart before he can cause me a moment’s unease. -Taliyah.
+ - Once I learned, I went online and ordered every romance novel I could find. They’re fairy tales for grown-ups.
+ - There was a pause, static, a muttered “Give me that,” by an indignant female. Then the normally quiet reserved Ashlyn was demanding, “Did you just drunk dial my husband?” “Yes, ma’am,” Strider said, and the other two finally burst into laughter.
+ - I like to be admired from afar, and then complimented up close.
+ - Sometimes, the loneliness probably got to be too much and anyone seemed better than no one.
+ - Let me tell you what I just heard. Talk, talk, talk, I. Talk, talk, talk, I. Well, what about me?
+ - Um i’m happy to sit close to you and everything, but i had no idea you would like it so much,? Paris muttered.
+ - The best way to spell victory? K-I-L-L.
+ - First rule of Teach Kane a Lesson: you don’t talk about Teach Kane a Lesson. Second rule of Teach Kane a Lesson: you don’t talk about Teach Kane a Lesson. Third rule of Teach Kane a Lesson: if someone taps out, you just keep fighting. Fourth rule of Teach Kane a Lesson: there are no rules. Got it?
+ - Every night death came, slowly, painfully, and every morning Maddox awoke in bed, knowing he’d have to die again later. That was his greatest curse and his eternal punishment.
+ - My demon’s a girl? Gideon said, astonished.
+ - Hate is too mild of a word. But it’s nothing personal, I don’t think.
+ - They were connected, one being, fused together. She belonged to him, and he to her.
+ - Please, I’d love to meet the guy you couldn’t handle, and give him and award.
+ - The lamp tipped over, nailing Kane in the head. Sabin shook his head. The man was a walking disaster Literally. Whenever Kane stepped into a room, things went to hell pretty quickly. Sabin expected the ceiling to cave in any moment. And yea, it had happened before.
+ - Being with a man incapable of telling a lie – a whole lot of awesome. Being with a man who could taste when you lied – sucked the big one.
+ - William: What do you think of the fact that your home has been invaded by women? Maddox: I couldn’t be more pleased, as long as none of them does something to hurt Ashlyn. And I take full credit for starting the trend.
+ - Sienna shrugged, apparently unconcerned by what the warrior had said. “You’ll have to forgive me for now noticing you back then. Next to him, you’re kind of homely.” William chocked on his own tongue.
+ - And please, don’t take offense. It’s not an insult if it’s true. – Devyn.
+ - She has the heart of a child, you know. Yeah, it’s in a box beside her bed. – Kaia Skyhawk.
+ - What was worse, he couldn’t tell her how much he thought he maybe might kinda sorta love her.
+ - I’m William, but you can call me Sexy. Everyone does.
+ - People stared. Maybe because they were giants compared to everyone else, both in height and muscle mass. Maybe because of the telltale bulge of weapons at their waist. Or maybe because William opened a bag of Doritos and ate while he shopped. Hard to tell.
+ - Because you aren’t who you think you are. You aren’t what everyone else believes. You might have delivered countless deaths but you love more fiercely than anyone I’ve ever known.
+ - He was in my nose, my mouth, on my skin, inside my cells, deep in the marrow of my bones. Just then, he was everything to me.
+ - We are so not breaking out the violins and pity partying.
+ - Wildness had never been a part of her life. Home, work, home, work. That’s all her life had consisted of, really. She’d told Maddox that she’d been glad for her solitude, bu the truth was, there were times she’d been starved for touch. Any touch.
+ - Paris, the FedEx deliveryman of Pleasure and Fatality.
+ - But we all must be true to our own nature. Acting as anyone other than yourself merely brings you pain and makes you appear ashamed of who and what you are. Others will feed off that shame, and soon it will be all that you are.
+ - She stopped at the desk and held up a can for his view. “This looks like an ordinary hairspray can, right?” “Of course.” he said though he had no idea what hairspray was.
+ - I’d stood my ground against him. I wasn’t going to jump when he said jump. I was more likely to give him the finger.
+ - He bit the inside of his cheek, Death purring wildy. The pleasure of her touch, even one so innocent, rocked him to the core.
+ - On way. He OK? Aeron Coming. Something wrong? Lucian Take me out of your address book. William.
+ - And okay, fine. If you have to kiss her, you have to kiss her. And believe me, I do not envy you. That’s taking one for the team a little far. I mean, I think I’d rather endure the stabbing myself instead of having to kiss her.
+ - The on and off thing is kind of annoying, isn’t it? First with Cole, now with Gavin. “Maybe you need a tune up.” I rolled my eyes. “I’ll just pop into the supernatural ability repair shop sometime tomorrow.” He grinned, his fingers tracing the line of my jaw.
+ - She’d already decided to be with him. If only to wipe him from her mind, get him out of her system and stop the fantasies plaguing her. If only to prove to herself that being with him would not be pleasurable for her.
+ - I had faith, and if I had faith I couldn’t worry.
+ - Blood spurted from his nose. Okay, I couldn’t help myself. I burst out laughing.
+ - If I had bodily functions, I think I would have peed my pants.
+ - So what. He was made of awesome. Anyone who couldn’t see that wasn’t smart enough to be with him, anyway.
+ - This is illegal. If you don’t let me out, you’ll be arrested. I swear you will. You’ll go to prison and be forced to have intimate relations with a man named Butch. Let. Me. Out.
+ - William untucked the covers and stood, making a mental list of everything he’d need for the coming trip. A few blades, serrated and non serrated. A vial of acid. A bone saw. A spiked paddle. A cat-o’-nine-tails. And a bag of Gummy Bears.
+ - You speak what you believe, and you believe you’re doomed. If there’s one thing I’ve learned throughout the years, it’s that what you believe is the impetus for your entire life.
+ - I looked around, counting the competition. Sixteen. To win, all I had to do was incapacitate each one, place my hand over their hearts and turn my palm into a flame. Easy. Yeah right.
+ - There was something so best-musical-ever when people screamed and begged for mercy, and she could listen to a good musical all day.
+ - He willed his body to remain unaffected. Sabin would fuss if Strider sported a hard-on around his precious. And, of course, “fuss” meant Strider would find his intestines wrapped around his neck, breathing a thing of the past.
+ - But if anyone so much as threatened them because of what Kaia had once done, she would turn the Slumber Party Massacre into Blood, Bath and Beyond, a documentary by Kaia Skyhawk.
+ - He would have been handsome – in a serial-killer kind of way – if not for those tattoos.
+ - Sometimes there are good reasons to do bad things.
+
+105 quotes

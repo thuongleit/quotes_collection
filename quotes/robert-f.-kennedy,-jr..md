@@ -1,0 +1,39 @@
+ - The most patriotic thing you can do is to take care of the environment and try to live sustainably.
+ - You show me pollution and I will show you people who are not paying their own way, people who are stealing from the public, people who are getting the public to pay their costs of production. All environmental pollution is a subsidy.
+ - We need election reform because our elections are being stolen. And these huge powerful voting machine vending companies have privatized the election process in our country.
+ - We protect nature not for nature’s sake but for our own sake because it’s the infrastructure of our communities...
+ - In a true free market economy, you can’t make yourself rich without enriching your community.
+ - I don’t even consider myself an environmentalist anymore. I’m a free-marketer. I go out into the marketplace and I catch the polluters who are cheating the free market...
+ - It is more important to be of service than successful.
+ - We do not have free market capitalism in America; we have crony capitalism. There is a huge difference between free market capitalism that democratizes a country and makes us more efficient and prosperous and corporate crony capitalism.
+ - The first sign of tyranny is government’s complicity in privatizing the commons for private gain.
+ - We’re not protecting the environment for the sake of the fishes and the birds. We’re protecting it for our own sake...
+ - We are living in a science-fiction nightmare where children are gasping for breath on bad-air days because somebody gave money to a politician. And my children and the kids of millions of other Americans can no longer go fishing and eat their catch because somebody gave money to a politician.
+ - Investigative journalism has been relegated to a very, very tiny space in America. We don’t really have much investigative journalism left. And the last refuge for it is documentary filmmaking.
+ - You show me a polluter, I’ll show you a subsidy. I’ll show you a fat cat using political clout to escape the discipline of the free market and force the public to pay his production costs.
+ - Corporate polluters, their phony think tanks and political toadies like to marginalize environmentalists as tree huggers, or radicals. But there is nothing radical about clean air or water.
+ - Everyone knows that we’re doing a science experiment with Earth. And the No. 1, No. 2, No. 3, No. 4 contributors to it are the mining and burning of coal.
+ - Wind has the potential to produce many, many more jobs per kilowatt hour than coal. But the coal industry has tremendous political clout on Capitol Hill because of its alliance with the railroads and coal-burning utilities.
+ - Sometimes it’s more important to change politicians than light bulbs.
+ - There are really only two stories the coal industry tells: “Coal keeps the lights on, and by implication, you’ll live in medieval, soul-shattering darkness if you don’t let us do whatever the hell we want with the landscape and drinking water you public health, because there’s no alternative.”
+ - Most Americans don’t know about environmental problems, because we have in our country a negligent and indolent press. The biggest lie that the right wing holds in our country is that there is such a thing as a liberal media. Americans are getting their news from the right-wing media.
+ - Of the seven million Americans living abroad, one million are military, and not all of them are Republicans. The other six million are overwhelmingly Democrat because people who live in foreign countries have a much different perspective as to what is happening in our country.
+ - The best measure of how a democracy is functioning is how it allocates the goods of the land, the public trust assets.
+ - The law in the United States, in every jurisdiction until about 1876, was that if a factory put smoke into the air, even one day a year, and it got onto a neighbor’s property, the neighbor had the right to enjoin to close down the factory, and the courts had no choice but to do that.
+ - These are facts that would make every American upset. Our birthright is being stolen, the legacy of our country is at stake, and the values of our nation are in peril. The future whispers, and the present shouts.
+ - If we don’t cut carbon’s money pipeline, we will pay for their gasoline with floods, droughts, fires, super storms, drowned cities, mass extinctions, wars, and collapsing civilizations.
+ - I was interested in the environment from when I was a little kid. I spent most of my time hunting and fishing and kayaking.
+ - The journalists in America are no longer covering critical stories. Investigative journalism is gone. Foreign-news coverage is gone. The press is owned by five giant corporations.
+ - One out of every six American women has so much mercury in her womb that her children are at risk for a grim inventory of diseases, including autism, blindness, mental retardation and heart, liver and kidney disease.
+ - American democracy is supposed to be the paradigm for the rest of the world.
+ - I think we as Americans know there’s a much better alternative than the 17th century practice of burning rocks to power our economy.
+ - Resurrecting American democracy is vital to averting climate catastrophe. We must first repeal the Supreme Court’s Citizens United ruling, which has flooded elections with billions of oily petrodollars from carbon tycoons.
+ - There is nothing wrong with corporations. Corporations are a good thing. But corporations should not be running our government. Corporations are good because they drive our economy, they encourage people to assemble wealth and to risk it and then create jobs.
+ - What polluters do is raise the standards of living for themselves, while lowering the quality of living for everybody else, and they do that by escaping the disciplines of the free market.
+ - American democracy is supposed to be the paradigm for the rest of the world, and it no longer is. Citizens cannot be guaranteed that they can walk into a voting booth with any assurance that their vote will be counted.
+ - Those guys are doing the Koch Brothers bidding and are against all the evidence of the rational mind, saying global warming does not exit. They are contemptible human beings. I wish there were a law you could punish them with. I don’t think there is a law that you can punish those politicians under.
+ - The Republicans are 90% corrupt, and the Democrats are 50% corrupt.
+ - The way you get democracy to function is by informing the public.
+ - Like other Americans, I’ve reconciled myself to the idea that an animal’s life has been sacrificed to bring me a meal of pork or chicken. However, industrial meat production – which subjects animals to a life of torture – has escalated the karmic costs beyond reconciliation.
+
+37 quotes

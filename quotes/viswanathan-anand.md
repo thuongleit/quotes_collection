@@ -1,0 +1,54 @@
+ - You need to motivate yourself, no matter what-definitely when things are bad, but also when things are good. Or else, you risk becoming complacent.
+ - Chess as a sport requires a lot of mental stamina, and this is what that makes it different from a physical sport. Chess players have a unique ability of taking in a lot of information and remembering relevant bits. So, memory and mental stamina are the key attributes.
+ - When I started out playing chess as a kid I thought I should be world champion. As a kid you have no idea what that means and you only sort of picture it. It is hard to imagine that I waited all those years and it happened in a late stage of my career.
+ - In any match, there are few critical moments where there’s no second best decision. The rest of the moves are intuitive.
+ - I love travelling and going on wildlife safaris. I have an interest in astronomy. I like reading on current affairs, business and science. I love doing nothing if I can help it.
+ - If revenge motivates you, go for it! But the main thing is to set your game in order.
+ - My job is to play chess, the game that I love. I achieve what I can in chess. That is what I focus on. Basically, I am always focused on playing the game, and this is important to me.
+ - There is always the risk of being over-confident when you are preparing to face a weaker player.
+ - Just before a game, I try to keep a clear mind so that I can focus better. I’m the kind of person who plays fast and relies a lot on intuition, so being at peace with myself is vital. Saying my daily prayers helps me achieve this heightened state of mind.
+ - I would never suggest to anyone that they drop school for chess. First of all even if you can make it in chess, your social skills need to be developed there.
+ - A win is a win, which is about that particular moment.
+ - I attend to my fitness. I go the gym every day and try to maintain my physical fitness; without that, it is tough to take challenges on the chess board.
+ - When you play with the best in the world, it is important that you not lose focus. You must be fully focused. Even a minor error could result in a massive defeat.
+ - I keep forcing, I keep learning new things in the game, and so far I have been taking challenges as they come.
+ - Nowadays, when you’re not a grandmaster at 14, you can forget about it.
+ - Confidence is very important – even pretending to be Confident. If you make a Mistake but do not let your Opponent see what you are thinking then he may overlook the Mistake.
+ - I think an important lesson from the game is that once you have made a move, you cannot take it back. You really have to measure your decisions. You think a lot. You evaluate your choices very carefully. There’s never any guarantee about what’s going to follow once you have made a decision.
+ - Chess is like a language, the top players are very fluent at it. Talent can be developed scientifically but you have to find first what you are good at.
+ - Chess has given me a lot more than I could ask for. I have been able to feel special, travel the world and do what I truly enjoy. Moreover, chess players love being their own boss and hate having to wake up early!
+ - For every door the computers have closed they have opened a new one.
+ - It is very difficult to play a single blitz game! You want to play for a long time. So I tend not to do that anymore.
+ - There are two aspects to being competitive; one is to do with sports, and the other is about technical skills. Being able to recollect the moves and apply them when necessary is a critical aspect.
+ - When I was about six, I saw my elder siblings play chess and pestered my mother into teaching me. Very soon, I was beating everyone at home, and they thought it would be good to join a club. So my sister would take me to the Tal chess club on Thursdays and weekends.
+ - I’ll take my five positions per second any day, thank you.
+ - My parents were very supportive of my chess. When I got home after a game of chess, having missed school or something, they always made me feel very welcome; I didn’t feel guilty at all about pursuing chess with such fervour. They never, for instance, perceived sports as a rival to academics.
+ - I like to keep myself physically and mentally fit before any important match. I usually take a short nap just before the game and do not practice immediately before the tournament.
+ - Being the undisputed world champion is a relief. We instituted a unified chess title, I am the absolute world champion.
+ - I have a love for astronomy; Aruna, my wife, and I love travelling, so whenever we get an opportunity, we set off to explore places that have tickled our interest. We are also wildlife enthusiasts.
+ - Psychology plays a big part but I always say psychology will only be a differentiator when the players are of equal technical strength.
+ - For me, chess is not a profession, it is a way of life, a passion. People may feel that I have conquered the peak and will not have to struggle. Financially, perhaps that is true; but as far as chess goes, I’m still learning a lot!
+ - I think the draw quotient has always been high in world championship matches because the amount of effort people put into neutralizing each other’s openings. It’s just now with computers that it has reached a new level.
+ - India has lot of talent. What I am happy with is that the talent keeps on coming. Certainly it could be nice, though I am not terribly keen on seeing my successor yet.
+ - For me, each game is a new challenge, which has to be dealt with rationally and systematically. At that time, every other thought fades into oblivion.
+ - In chess, knowledge is a very transient thing. It changes so fast that even a single mouse-slip sometimes changes the evaluation.
+ - You bring to chess facets of your personality and what you are. I have interests other than chess, like music and world and current affairs. I also have many friends around the world with whom I like to keep in touch.
+ - I don’t know how many calories an average chess player burns per game, but it often exceeds that of a player in ball games. It is not only the chess as such: You need to be fit and undergo complicated preparation.
+ - My practice schedule is not constant and changes a lot and depends on my moods also.
+ - I would prefer chess to become part of the Olympic Games. This would also lead to chess become more accepted as a sport in general.
+ - If you have a strong opponent, a competition is stimulating. I am generally most open to ideas when I have had a bad result. In chess, too, players specialise. This specialty then becomes an entry barrier.
+ - Each match I approach like a new one. The work is so immense that you don’t have time to sit and ponder.
+ - Before a match, I do not follow any chess news except the games.
+ - Intuition in chess can be defined as the first move that comes to mind when you see a position.
+ - It is important that you don’t let your opponent impose his style of play on you. A part of that begins mentally. At the chessboard if you start blinking every time he challenges you then in a certain sense you are withdrawing. That is very important to avoid.
+ - I appreciate the support and anyone who takes up a position on my behalf. Especially in matches, this feeling that there are people behind you, gives me a lot of strength.
+ - Each match I play is the most important one yet.
+ - I feel that schools and corporates should help the government in popularising sports in the country. Blaming the government for every sporting debacle will not be fair.
+ - In the knockout tournaments, it’s futile to prepare for a grand finale. You may have worked out many strategies for the final. But you may lose in the first round itself.
+ - We want more women players to take up chess. There are few participants at the national level and hope it will grow.
+ - Preparedness for a game that usually lasts four-five hours requires good physical condition and also steady nerves.
+ - When there’s an important tournament going on, I try and stay in a bubble. It’s easy that way because then you don’t have to worry about anything else.
+ - I was very lucky that while I was a chess player in a country where chess was not a big deal, I happened to be in the one city where there was a sprouting chess team: Chennai.
+ - In a way players at the top should try to promote the game in their own countries as that is the legacy that makes you feel proud. If you have not done that you have failed as a sportsperson.
+
+52 quotes

@@ -1,0 +1,213 @@
+ - The thing that is really hard, and really amazing, is giving up on being perfect and beginning the work of becoming yourself.
+ - Books are the plane, and the train, and the road. They are the destination, and the journey. They are home.
+ - If your success is not on your own terms, if it looks good to the world but does not feel good in your heart, it is not success at all.
+ - If an opportunity scares you, that’s God’s way of saying you should jump at it.
+ - Figuring out who you are is the whole point of the human experience.
+ - In books I have traveled, not only to other worlds, but into my own.
+ - In books I have traveled, not only to other worlds but into my own. I learned who I was and who I wanted to be, what I might aspire to, and what I might dare to dream about my world and myself.
+ - Life is made up of moments, small pieces of glittering mica in a long stretch of gray cement.
+ - Ideas are like pizza dough, made to be tossed around.
+ - After all those years as a woman hearing ‘not thin enough, not pretty enough, not smart enough, not this enough, not that enough,’ almost overnight I woke up one morning and thought, ‘I’m enough.’
+ - I learned to love the journey, not the destination. I learned that this is not a dress rehersal, and that today is the only guarantee you get.
+ - I read and walked for miles at night along the beach, writing bad blank verse and searching endlessly for someone wonderful who would step out of the darkness and change my life. It never crossed my mind that that person could be me.
+ - The voices of conformity speak so loudly. Don’t listen to them. No one does the right thing out of fear. If you ever utter the words, ‘We’ve always done it that way,’ I urge you to wash out your mouth with soap.
+ - Life is not so much about beginnings and endings as it is about going on and on and on. It is about muddling through the middle.
+ - Grief remains one of the few things that has the power to silence us.
+ - Stereotypes fall in the face of humanity. We human beings are best understood one at a time.
+ - When you really want to say no, say no. You can’t do everything – or at least not well.
+ - When men do the dishes, it’s called helping. When women do the dishes, it is called life.
+ - I’ve been a feminist since I was a teenager, but originally it was because I wanted to make the world a better place for me.
+ - The victim mentality may be the last uncomplicated thing about life in America.
+ - Life is so messy that the temptation to straighten it up is very strong. And the results always illusory.
+ - Here is one of the worst things about having someone you love die: It happens again every single morning.
+ - There’s no greater happiness than doing something every day that you love, that you feel you do in a satisfactory fashion, and which both supports and gives you time to support your family. I felt so lucky to have all that.
+ - The life you have led doesn’t need to be the only life you have.
+ - I am an affirmative action hire.
+ - We read in bed because reading is halfway between life and dreaming, our own consciousness in someone else’s mind.
+ - If you raise an intelligent girl she will become a feminist because of the facts of her own life. Raising feminist boys is more difficult. Raising egalitarian boys. One of the reasons you have to raise them that way is because it’s better for them.
+ - The clearest explanation for the failure of any marriage is that the two people are incompatible; that is, that one is male and the other female.
+ - I was doing the family grocery shopping accompanied by two children, an event I hope to see included in the Olympics in the near future.
+ - Ignorant free speech often works against the speaker. That is one of several reasons why it must be given rein instead of suppressed.
+ - Get a life. A real life. Not a manic pursuit of the next promotion, the bigger paycheck, the larger house.
+ - In life, the classroom is everywhere. The exam comes at the very end.
+ - In a democratic society, the only treason is silence.
+ - Today is the only guarantee you get.
+ - Socialized medicine, some still cry, but it’s long been socialized, with those covered paying for those who are underinsured. American medicine is simply socialized badly, penny wise and pound foolish.
+ - Fashions in bigotry come and go. The right thing lasts.
+ - You write to suit some sense in yourself and trust that that will resonate with a certain wider readership.
+ - Ignorance is death. A closed mind is a catafalque.
+ - Keeping kids safe is sometimes a delusion. The world is a perilous place. Sometimes the kitchen is a perilous place.
+ - A life of unremitting caution, without the carefree – or even, occasionally, the careless – may turn out to be half a life.
+ - A man who builds his own pedestal had better use strong cement.
+ - It would take a helluva man to replace no man at all.
+ - All the things we don’t say, all the words we swallow, and it makes nothing but trouble.
+ - Adolescence is a tough time for parent and child alike. It is a time between: between childhood and maturity, between parental protection and personal responsibility, between life stage- managed by grown-ups and life privately held.
+ - Here is the real domino theory – gay man to gay man, bisexual man to straight woman, addict mother to newborn baby, they all fall down and someday it will come to you.
+ - I will never understand people who think that the way to show their righteous opposition to sexual freedom is to write letters full of filthy words.
+ - There is only room in the lifeboat of your life for one, and you always choose yourself, and turn your parents into whatever it takes to keep you afloat.
+ - People always blame the girl; she should have said no. A monosyllable, but conventional wisdom has always been that boys can’t manage it.
+ - Loss as muse. Loss as character. Loss as life.
+ - Look at the view and you’ll never be disappointed.
+ - The pursuit of otherness, the sense that we are somehow different than our brothers and sisters, no matter where we find them, allows for all the other great evils: racism, sexism, homophobia, violence against gay people and against women.
+ - The world is full of women blindsided by the unceasing demands of motherhood, still flabbergasted by how a job can be terrific and tortuous.
+ - The purse is the mirror of the soul.
+ - My home was in a pleasant place outside of Philadelphia. But I really lived, truly lived, somewhere else. I lived within the covers of books.
+ - Children should have enough freedom to be themselves – once they’ve learned the rules.
+ - Women are the glue that holds our day-to-day world together.
+ - Speech is the voice of the heart.
+ - Every reader, I suspect, has a book like this somewhere in his or her past, a book that seemed to hold within it, at that moment, all the mysteries of the universe.
+ - Look around at the azaleas making fuchsia star bursts in spring; look at a full moon hanging silver in a black sky on a cold night. And realize that life is glorious, and that you have no business taking it for granted.
+ - America is a country that seems forever to be toddler or teenager, at those two stages of human development characterized by conflict between autonomy and security.
+ - Amid attempts to protect elephants from ivory poachers and dolphins from tuna nets, the rights of children go remarkably unremarked.
+ - What had I expected of the first child? Everything. Rocket scientist. Neurosurgeon. Designated hitter. We talked wisely at cocktail parties about the sad mistake our mothers had made in pinning all their hopes and dreams on us. We were full of it.
+ - You just can’t tell or calibrate motive or intelligence or sense. So I don’t read anything unless someone tells me that it’s really smart or illuminating. I don’t read any reviews anymore and it’s been really liberating.
+ - When I’m falling, my girlfriends are my soft landing.
+ - It is hard to find someone who will give your children a feeling of security while it lasts and not wound them too much when it isfinished, who will treat those children as if they were her own, but knows – and never forgets – that they are yours.
+ - We are awash in the revealed world.
+ - Familiarity breeds content.
+ - I’m going to live long enough to live in an America that will assume universal health care is a basic right. That will be amusing and terrific.
+ - I only really understand myself, what I’m really thinking and feelings, when I’ve talked it over with my circle of female friends. When days go by without that connection, I feel like a radio playing in an empty room.
+ - People who wish to salute the free and independent side of their evolutionary character acquire cats. People who wish to pay homage to their servile and salivating roots own dogs.
+ - I got a fortune cookie that said, “To remember is to understand.” I have never forgotten it. A good judge remembers what it was like to be a lawyer. A good editor remembers being a writer. A good parent remembers what it was like to be a child.
+ - I hadn’t written a love story before and I hadn’t written a novel with a happy ending before.
+ - Maybe someday it will seem quaint that, during a time of plague, some of the parents of the 1990s wanted to deny their children protection so that they could safeguard their own self- image. Or maybe we’ll just seem like a bunch of lunatics.
+ - I believe that in a contest between the living and the almost living, the latter must, if necessary, give way to the will of the former.
+ - There is a lot of talk now about metal detectors and gun control. Both are good things. But they are no more a solution than forks and spoons are a solution to world hunger.
+ - I can’t think of anything to write about except families. They are a metaphor for every other part of society.
+ - The truth about your own life is not always easy to accept, and sometimes hasn’t even occurred to you.
+ - I stopped going to mass, and boy, it was painful for me, and it was certainly painful for my family, but I just couldn’t ratify their behavior and their decisions anymore by showing up on Sundays.
+ - I think the very best thing about the internet is that I can read all the London papers every day if I want to.
+ - That’s what makes life so hard for women, that instead of thinking that this is the way things are, we always think it’s the way we are.
+ - The greatest public health threat for many American women is the men they live with.
+ - I conveniently forgot to remember that people only have two hands, or, as another parent once said of having a third child, it’s time for a zone defense instead of man-to-man.
+ - Decorating consists mostly of building enough bookshelves.
+ - It is difficult for me to imagine the same dedication to women’s rights on the part of the kind of man who lives in partnership with someone he likes and respects, and the kind of man who considers breast-augmentation surgery self-improvement.
+ - Somewhere between a third and a quarter of all people living in America today were born between 1946 and 1965 and if you think you’re tired of hearing about us, you should try being one of us.
+ - Athletes are American princes and the locker room is their castle. Some of them behave in princely fashion, become legitimate heroes to us all. And some are jerks.
+ - By the time you kill and mount what you catch, it has lost that very thing that made it worth having. I knew this only as a vague sense of disappointment at age 10; not until later did I recognize it as a metaphor for much of life.
+ - I have a cat, the pet that ranks just above a throw pillow in terms of required responsibility.
+ - All of us want to do well. But if we do not do good, too, then doing well will never be enough.
+ - But it’s important, while we are supporting lessons in respecting others, to remember that many of our youngest kids need to learn to respect themselves. You learn your worth from the way you are treated.
+ - When children are small, parents should run their lives and not the other way around.
+ - Poor kids are much more likely to become sick than their richer counterparts, but much less likely to have health insurance. Talk about a double whammy.
+ - Women writers of all people should know better than to pigeonhole women, put them in little groups, the smart one, the sweet one.
+ - If you want something, it will elude you. If you do not want something, you will get ten of it in the mail.
+ - I think the last couple of years of life for many, many people are the same as they were 50, 60, 70 years ago. They could be really tough because of infirmity.
+ - We take our vitamins, we go to exercise class, we put on our seat belts. And then something blindsides us and gives the lie to our carefully constructed facade of safety.
+ - You can get rid of the column. It’s a little like staying at a hotel; you get used to the shape of the room, and then you’re gone. With a novel you move into town and stay for a long time. That’s both comforting and terrifying.
+ - You cannot be really first-rate at your work if your work is all you are.
+ - New York is a city where it’s particularly hard to be poor, not only because everything costs twice as much as it does elsewhere but because over-the-top affluence is part of its identity.
+ - And I don’t have to listen to a sermon to know what to think or feel about them. It’s almost as if I absorbed completely what mattered most to me, and the rest could go.
+ - A writer is always working with whatever she’s managed to store in the brainpan or puzzle out about the world.
+ - Guilt is what separates humans from animals.
+ - I am a good friend to my husband. I have tried to make my marriage vows mean what they say. I show up. I listen. I try to laugh.
+ - It’s an odd kind of feeling because it sort of reminds me of being five again. When you’re a five-year-old, you don’t pay any attention to what anyone thinks of you. You just sort of are in your skin.
+ - Over the last twenty years, we’ve changed the world just enough to make it radically different, but not enough to make it work.
+ - Don’t ever confuse the two, your life and your work. The second is only part of the first.
+ - Your children make it impossible to regret your past. They’re its finest fruits. Sometimes the only ones.
+ - It is so easy to exist instead of live.
+ - But while ignorance can make you insensitive, familiarity can also numb. Entering the second half-century of an information age, our cumulative knowledge has changed the level of what appalls, what stuns, what shocks.
+ - Ideas are only lethal if you suppress and don’t discuss them. Ignorance is not bliss, it’s stupid. Banning books shows you don’t trust your kids to think and you don’t trust yourself to be able to talk to them.
+ - Sometimes I remind myself that I almost skipped the party, that I almost went to a different college, that the whim of a minute could have changed everything and everyone. Our lives, so settled, so specific, are built on happenstance.
+ - There’s some muscle group around your shoulders that seizes up during the perfection dance and doesn’t let go until you are asleep, or alone. Or maybe it never really lets go at all.
+ - Catastrophe is numerical. Loss is singular, one beloved at a time.
+ - I think there was a long period of time when we got real invested in a youth culture, and not coincidentally it was when the baby boomers, who let’s face it, take up a lot of space on the planet, were young.
+ - Reading is not simply an intellectual pursuit but an emotional and spiritual one. It lights the candle in the hurricane lamp of self; that’s why it survives.
+ - We are writers. We danced with words, as children, in what became familiar patterns. The words became our friends and our companions, and without even saying it aloud, a thought danced with them: I can do this. This is who I am.
+ - All parents should be aware that when they mock or curse gay people, they may be mocking or cursing their own child.
+ - Raising a child is a little like Picasso’s work; in the beginning he did very conventional representational things. Cubism came after he had the rules down pat.
+ - I don’t do research for my novels. Obviously, in my other line of work as a reporter and a columnist, I’ve had the opportunity to get to know both social workers and TV talk-show hosts.
+ - A safety net of small white lies can be the bedrock of a successful marriage. You wouldn’t believe how cheaply I can do a kitchen renovation.
+ - And sometimes you do everything right and something bad just happens. It’s as simple, and as scary, as that.
+ - Real friends offer both hard truths and soft landings and realize that it’s sometimes more important to be nice than to be honest.
+ - Choose the kids. There will be plenty of time later to choose work.
+ - Your hair isn’t quite right and maybe you’re a size bigger than you should be and on and on and on. I think there comes a moment when you’ve matured to the point where you suddenly think, nonsense. I am fine just the way I am.
+ - Maybe crazy is just the word we use for feelings that will not be contained.
+ - And a great misunderstanding is that children think their parents are grown-up, and parents feel obliged to act as if they were.
+ - So you’re getting squeezed at both sides. You’re taking care of your mom and dad and you’re still doing caregiving with your kids, which is not easy. But I think overall, there’s a level of satisfaction that might be unparalleled.
+ - Some of the most important lessons I’ve learned have been from stumbling, and I am deeply grateful that my parents allowed me to fight my own battles.
+ - It’s so much easier to write a resume than to craft a spirit.
+ - It often seems, looking back, that the unexpected comes to define us, the paths we didn’t see coming and may have wandered down by mistake. The older we get the more willing we are to follow those, to surprise ourselves.
+ - Let me say first that reading is my favorite pastime, bar none. If I couldn’t read, I don’t know what I’d do. But as a writer, it’s both a blessing and a curse. You absorb technique as you go along.
+ - If men got pregnant, there would be safe, reliable methods of birth control. They’d be inexpensive, too.
+ - I learned that if I ever claim sexual harassment, I will be confronted with every bozo I once dated, every women I once impressedas snotty and superior, and together they will provide a convenient excuse to disbelieve me.
+ - The Statue of Liberty is meant to be shorthand for a country so unlike its parts that a trip from California to Indiana should require a passport.
+ - We don’t do ambivalence well in America. We do courage of our convictions. We do might makes right. Ambivalence is French. Certainty is American.
+ - Kids and violent TV, violent TV and violence, violence and kids. The only people missing from this discussion are the parents. Where are we? Gone. Abdicated.
+ - I’m sure not afraid of success and I’ve learned not to be afraid of failure. The only thing I’m afraid of now is of being someone I don’t like much.
+ - Being a reporter is as much a diagnosis as a job description.
+ - There’s something undeniable about the posture of a person trying not to acknowledge your existance.
+ - I don’t really read what people write about me. Someone gives my novel one star; are they a troll? Are they someone who hates my politics and so has decided to do that?
+ - I realized that, while I would never be my mother nor have her life, the lesson she had left me was that it was possible to love and care for a man and still have at your core a strength so great that you never even needed to put it on display.
+ - I never think about issues when I’m working on a novel. Issues are things that happen to people in sufficient numbers to elicit widespread attention; in other words, they’re just life happening. That’s what I think about: life, and telling a story.
+ - When an actress takes off her clothes onscreen but a nursing mother is told to leave, what message do we send about the roles of women?
+ - The future is built on brains, not prom court, as most people can tell you after attending their high school reunion. But you’d never know it by talking to kids or listening to the messages they get from the culture and even from their schools.
+ - The age of technology has both revived the use of writing and provided ever more reasons for its spiritual solace. Emails are letters, after all, more lasting than phone calls, even if many of them r 2 cursory 4 u.
+ - A finished person is a boring person.
+ - You want to have fun with your kids, and no one has fun with someone who runs roughshod.
+ - Testosterone does not have to be toxic.
+ - So much of what you take for granted is the bedrock of happiness.
+ - This is why I had children: to offer them a perfect dream of childhood that can fill their souls as they grow older.
+ - Ask any woman how she makes it through the day, and she may mention her calendar, her to-do lists, her babysitter. But if you push her on how she really makes it through her day, she will mention her girlfriends.
+ - My most pronounced writing habit is trying not to write.
+ - There is little premium in poetry in a world that thinks of Pound and Whitman as a weight and a sampler, not an Ezra, a Walt, a thing of beauty, a joy forever.
+ - I remember adolescence, the years of having the impulse control of a mousetrap, of being as private as a safe-deposit box.
+ - Fifty years ago, teachers said their top discipline problems were talking, chewing gum, making noise, and running in the halls. The current list, by contrast, sounds like a cross between a rap sheet and the seven deadly sins.
+ - One of the useful things about age is realizing conventional wisdom is often simply inertia with a candy coating of conformity.
+ - It’s only before realities set in that we can treasure our delusions.
+ - The misdeeds of ordinary men can be buried with them, and their lives described in half-truths that are really half-lies. But not a public man. Particularly not this one.
+ - Writing seems to be the only profession people imagine you can do by thinking about doing it.
+ - Well, we tell our kids things like ‘don’t gossip’ and then an hour later they hear us on the phone. Stuff like that.
+ - I sometimes think that courage is the thing that you need more than any other thing. It’s fear that cripples us. It’s fear that accounts for racism, it’s fear that accounts for sexism, for xenophobia.
+ - I go online all the time, I just don’t read about myself. I read a fashion website called Go Fug Yourself. I actually correspond with the Fug Girls and that’s great.
+ - I always have music on unless I’m reading aloud, which I always do before I hand anything in. It’s the only way to know if a sentence really works, without clunks or cul-de-sac clauses.
+ - Look back, to slavery, to suffrage, to integration and one thing is clear. Fashions in bigotry come and go. The right thing lasts.
+ - I know the difference now between dedication and infatuation. That doesn’t mean I don’t still get an enormous kick out of infatuation;: the exciting ephemera, the punch in the stomach, the adrenaline to the heart.
+ - Frankly, I’m mainly telling the story to myself. Thinking about audience is too daunting, and worst case, invites you to homogenize, to soften the hard edges of things.
+ - If there is anyone who’s living the work of the New Testament, it’s the nuns of the Catholic church and not the Catholic hierarchy.
+ - I feel about exercise the same way that I feel about a few other things: that there is nothing wrong with it if it is done in private by consenting adults.
+ - Each instance of sexual harassment has to be judged on its merits. Facts, timing, motives, credibility: all must be considered before we make up our own minds what to believe.
+ - There is something so settled and stodgy about turning a great romance into next of kin on an emergency room form, and something so soothing and special, too.
+ - Hospitals are a little like the beach. The next wave comes in, and the footprints of your pain and suffering, your delivery and recovery, are obliterated...
+ - When I write a novel, I have what I think of as an icon that helps get me into the world of the book.
+ - I can’t think of a single downside to motherhood now.
+ - Like cellulite creams or hair-loss tonics, capital punishment is one of those panaceas that isn’t. Only it costs a whole lot more.
+ - I think anyone who comes upon a Nautilus machine suddenly will agree with me that its prototype was clearly invented at some time in history when torture was considered a reasonable alternative to diplomacy.
+ - Women who marry early are often overly enamored of the kind of man who looks great in wedding pictures and passes the maid of honor his telephone number.
+ - I would even go to Washington, which is saying something for me, just to glimpse Jane Q. Public, being sworn in as the first female president of the United States, while her husband holds the Bible and wears a silly pill box hat and matching coat.
+ - You’re like a cake when you’re young. You can’t rush it or it will fall, or just turn out wrong. Rising takes patience, and heat.
+ - I’m writing this memoir from the perspective of somebody who’s prosperous and has means. Having said that, one of the things that I think I discovered about those additional years is that I don’t think they really are added to the end of life.
+ - I did not read from a sense of superiority, or advancement, or even learning. I read because I loved it more than any other activity on earth.
+ - Jane Austen may not be the best writer, but she certainly writes about the best people. And by that I mean people just like me.
+ - The unemployment rate among the young in the United States is still very disconcerting, although we all know it’s nowhere near as bad as it is in some of the European countries, where in some places it approaches 50 percent.
+ - Reading is another thing that has made me more human by exposing me to worlds I might never have entered and people I might never meet.
+ - New York City has finally hired women to pick up the garbage, which makes sense to me, since, as I’ve discovered, a good bit of being a woman consists of picking up garbage.
+ - I would be the most content if my children grew up to be the kind of people who think decorating consists mostly of building enough bookshelves.
+ - Not writing at all leads to nothing.
+ - This is how I learn most of what I know about my children and their friends: by sitting in the driver’s seat and keeping quiet.
+ - All of the qualities that you need to be a good opinion columnist tend to be qualities that aren’t valued in women.
+ - But never fear, gentlemen; castration was really not the point of feminism, and we women are too busy eviscerating one another to take you on.
+ - When hot dogs like Mr. D’Amato or the Republican apologist Roger Ailes say that Whitewater is worse than Watergate, it’s because they’re suffering from a disease. It’s called bull-imia, and it’s the regurgitation of patent hyperbole.
+ - These are my words; this is their world, a world in which we can wear our gender on our sleeves, unabashedly, as we go about the business of thinking out loud.
+ - All reading is good reading. And all reading of Jane Austen and Charles Dickens is sublime reading.
+ - In the family sandwich, the older people and the younger ones can recognize one another as the bread. Those in the middle are, for a time, the meat.
+ - I hope readers will do what I do when I read a novel I like: talk in ways that will illuminate their own lives.
+ - For most of my life the only ceremonies I’ve been to at which women were the stars were weddings. So I like weddings.
+ - If I get the forty additional years statisticians say are likely coming to me, I could fit in at least one, maybe two new lifetimes. Sad that only one of those lifetimes can include being the mother of young children.
+ - The gender gap looks at this point like it’s going to favor the president, particularly among white suburban women. I certainly think it’s going to be an issue. But I think the single most important thing in this election will be turnout.
+ - The difference between government and leadership is that leadership has a soul.
+ - My sister is a public school teacher. She makes far far less money than I do, and gets almost no public attention for her work. Yet I believe what she does is infinitely more important and more difficult than what I do.
+ - I once wanted to be a personage. Now I am comfortable being a person.
+ - I sort of feel like it comes around again. That when you get to a certain age, when you’ve lived enough and you’ve got your friends to support you and your family to support you, you wake up one morning and think, yeah, I’m okay.
+ - All of life like a series of tableaux, and in the living we missed so much, hid so much, left so much undone and unsaid.
+ - People have writer’s block not because they can’t write, but because they despair of writing eloquently.
+ - Maybe I had three children in the first place so I wouldn’t ever have to play board games. In my religion, martyrs die.
+ - If we really feel like we’re comfortable in our own skins now, we have a longer period of time to live out that kind of third or fourth act of our life.
+ - Young men kill someone for a handful of coins, then are remorseless, even casual: Hey, man, things happen. And their parents nab the culprit: it was the city, the cops, the system, the crowd, the music. Anyone but him. Anyone but me.
+ - If God had meant Harvard professors to appear in People magazine, She wouldn’t have invented The New York Review of Books.
+ - Now, a lot of people are challenged by the fact that a record number of people in their sixties have living parents, and a record number of people in their sixties have kids who may still depend upon them.
+ - We’ve made hyper motherhood a measure of female success.
+ - The issue is privacy. Why is the decision by a woman to sleep with a man she has just met in a bar a private one, and the decision to sleep with the same man for $100 subject to criminal penalties?
+ - Since the age of five I had been one of those people who was an indefatigable reader, more inclined to go off by myself with a book than do any of the dozens of things that children usually do to amuse themselves. I never aged out of it.
+
+211 quotes

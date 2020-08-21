@@ -1,0 +1,55 @@
+ - You can’t fix stupid.
+ - If life gives you lemons, you should make lemonade...
+ - When life hands you lemons make lemonade. Then find someone who’s life gave them Tequila and have a party.
+ - You can’t fix stupid. There’s not a pill you can take, or a class you can go to.
+ - They call me Tater Salad.
+ - People are saying that I’m an alcoholic, and that’s not true, because I only drink when I work, and I’m a workaholic.
+ - My only goal is to make you laugh, not tell you the truth.
+ - I do live like a rock star, but it’s not as great as it sounds. It’s a lot of traveling.
+ - If you kill someone in Texas, we’ll kill ya back.
+ - There were years when I was a beer and tequila guy, then I got real fat. And then I found that you could actually go on a diet and drink scotch. Then I got hooked on scotch, and if you get hooked on scotch, then everything else just tastes wrong.
+ - I didn’t get where I am today by worryin about how I’d feel tomorrow.
+ - You can’t ride home on a bowl of goat.
+ - I did not climb to the top of the food chain to eat carrots.
+ - In Texas, we have the death penalty, and we use it. That’s right. If you come to Texas and kill somebody, we will kill you back.
+ - I’ve never been one to look up the ladder. I’ve always looked down the ladder. As long as there’s one guy down there, I’m fine.
+ - I believe that a bad Super Bowl halftime show is still better than a soccer game.
+ - There are two kinds of comics; there are the ones who build bridges, and then there are the people who walk across the bridges as though they built them. The bridge builders are few and far between.
+ - I quit smoking cigarettes and with the $70 a month I am saving not smoking cigarettes I’m smoking $700 worth of cigars.
+ - The way my brain processes information is quite odd. I mean, I have Attention Deficit Disorder and another learning disability I can’t even spell. I don’t even have a high school diploma. I’m smart, but you can’t prove it on paper.
+ - I have had a front row seat to observe Darren’s success over the last few years and never fully knew the keys to his achievement. He has unselfishly revealed his secrets with The Compound Effect so that others can learn from his success. In my eyes, it is more valuable than gold!
+ - I smoke really good cigars, I don’t smoke Cuban cigars. I would never do anything as Un-American as smoke a decent cigar.
+ - I’ve got a great cigar collection – it’s actually not a collection, because that would imply I wasn’t going to smoke every last one of ’em.
+ - Barbara was actually Jeff Foxworthy’s interior designer when we first met. So, not only was Jeff responsible for my success in my career, he also introduced me to the woman who I’m going to spend the rest of my life with, which, I think, makes us even.
+ - It’s something that’s really fun to do. It’s a family business.
+ - I was so in love with the idea of making people laugh for a living that I didn’t care what I had to do to get there. Or how much money I was going to make when I did get there.
+ - The bulk of my fans are my age, and I’m aging at the same rate they are. That makes me relevant. They like hearing what I have to say. I work hard at it, but it’s addicting, really.
+ - I’m a comedian, and I like to work on my live show, and if I’m doing television, I don’t have time to work on my live show, and I can become a lame comic, and that sucks.
+ - From the very beginning I started with a beer and a cigarette because I couldn’t figure out what to do with my hands. So usually I have a beer and cigarette and that’s what I was doing with my hands because that looked natural and felt good.
+ - I’m definitely guilty of thinking something is funny but thinking the audience won’t. Then three years later I will finally try it and it’ll kill them. I got to give them more credit.
+ - Anybody could say anything they want about me, and it literally never penetrates my skin.
+ - But I work harder now because I have so much more exposure. And actually the harder you work as a writer, the better you get at it. It’s like anything else. It’s a muscle you have to exercise. I write more now than ever.
+ - There have been times in my life that I’ve had a ton of vices, and my demons have run amok for years and years and years.
+ - When I was about 12 years old back in Houston, my Dad used to take us to the driving range.
+ - I was considered by my peers to be a good comedian. So that’s all I ever strived to do was get some recognition from my peers.
+ - Apparently I ain’t the only cat on the block digs cheetos.
+ - I’d rather do a really good small part than a really bad big part.
+ - I don’t even plan things until later, so no I got no plans.
+ - I was a huge fan of comedy when I was a child.
+ - Everybody I know is a joke writer.
+ - I really understood a lot more about comedy after listening to Bill Hicks, who died at 32 years old. He’s probably the best comedian who ever lived. Although you can’t say that because of Carlin, Cosby and Pryor.
+ - I believe everything creative is somewhat collaborative.
+ - You know, my first album, some of those jokes I’d done for twelve years because I couldn’t throw ’em out.
+ - You wanna get the truth out of me, get me hammered.
+ - I don’t have a specific plan except for as long as people want to listen to me talk, I’m going to keep talking. I can’t imagine a life without doing standup.
+ - I don’t do any corporate work.
+ - In my Comedy Club sets, I just work on what is fresh and try to build that show as long as I can. I don’t like to do burnt material on stage. Even though my crowd loves to hear me do old stuff, I don’t like to do old stuff.
+ - I believe everything creative is somewhat collaborative. If you’re a painter and someone stretches your canvas, it was collaborative on some level.
+ - You can only do two things with your life: give it away or throw it away.
+ - The hardest that I’ve laughed at a movie was probably Team America. I laughed ’til I thought I was just gonna throw up. I almost had to turn it off.
+ - Why does a pair of sunglasses cost more than a 25 inch color television?
+ - My goal is just to become a better comedian.
+ - There are a million really good cigars, you gotta really float around cigars. It’s not like being locked into a brand of cigarettes; at least to me it’s not.
+ - I started selling out comedy clubs before I got to town with no advertising. I was selling out theaters just on the rumor that I was going to be there.
+
+53 quotes

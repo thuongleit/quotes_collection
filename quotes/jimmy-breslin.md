@@ -1,0 +1,37 @@
+ - Don’t trust a brilliant idea unless it survives the hangover.
+ - Speaks cheerful English and in the past has written this language with a paintbrush that talks.
+ - Don’t call me a journalist; I hate the word. It’s pretentious!
+ - Baseball isn’t statistics, it’s Joe DiMaggio rounding second base.
+ - When you leave New York you ain’t going anywhere.
+ - Anything that isn’t writing is easy.
+ - Media, the plural of mediocrity.
+ - Politics: where fat, bald, disagreeable men, unable to be candidates themselves, teach a president how to act on a public stage.
+ - The first funeral for Andrew Goodman was at night and it was a lot of work. To begin with they had to kill him.
+ - True New Yorkers do not really seek information about the outside world. They feel that if anything is not in New York it is not likely to be interesting.
+ - I’m on my high school football team and MUST show how much I know.
+ - The number one rule of thieves is that nothing is too small to steal.
+ - Newspapers are so boring. How can you read a newspaper that starts with a 51-word lead sentence?
+ - If you gather a lot of stuff, then you write it, write in scenes with dialogue. Somewhere in the middle, rising from all this research like strong metal towers, is your opinions.
+ - Football is a game designed to keep coal miners off the streets.
+ - Marvelous Marv was holding down first base. This is like saying Willie Sutton works at your bank.
+ - When you stop drinking, you have to deal with this marvelous personality that started you drinking in the first place.
+ - The test of a good idea is its ability to last through a hangover.
+ - That’s the horrible thing starting out, you get distracted a lot because anything is easier than writing. It’s just the same enemy – blank paper.
+ - The office of president is a bastardized thing, half royalty and half democracy that nobody knows whether to genuflect or spit.
+ - Out in the ocean, a rope is put around the man’s neck. The other end of the rope is attached to an old jukebox and it is thrown overboard. The man invariably follows.
+ - The auditorium, named after a dead Queens politician is windowless in honor of the secrecy in which he lived and, probably, the bank vaults he frequented.
+ - What you want to do is not go to work. You’re not missing a thing. The worst thing I did was start work young.
+ - Why something in the public interest such as television news can be fought over, like a chain of hamburger stands, eludes me.
+ - Men in the uniform of Wall Street retirement: black Chesterfield coat, rimless glasses and the Times folded to the obituary page...
+ - The professional arsonist builds vacant lots for money.
+ - The other feature is a gymnasium named after another dead politician who was gifted with fast and extremely sure hands.
+ - I busted out of the place in a hurry and went to a saloon and drank beer and said that for the rest of my life I’d never take a job in a place where you couldn’t throw cigarette butts on the floor. I was hooked on this writing for newspapers and magazines.
+ - Complainant received immediate lacerations of the credibility.
+ - People born in Queens, raised to say that each morning they get on the subway and “go to the city,” have a resentment of Manhattan, of the swiftness of its life and success of the people who live there.
+ - Precious was one of a large number of people on the street, many of whom appeared to be women; some, like Precious, actually were.
+ - Designed by architects with honorable intentions but hands of palsy.
+ - I became a copy boy. Not for long. I started writing stories.
+ - A job on a newspaper is a special thing. Every day you take something that you found out about, and you put it down and in a matter of hours it becomes a product. Not just a product like a can or something. It is a personal product that people, a lot of people, take the time to sit down and read.
+ - Those of Manhattan are the brokers on Wall Street and they talk of people who went to the same colleges; those from Queens are margin clerks in the back offices and they speak of friends who live in the same neighborhood.
+
+35 quotes

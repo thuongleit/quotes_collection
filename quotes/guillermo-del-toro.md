@@ -1,0 +1,111 @@
+ - You have to believe the magic to see it.
+ - The butterfly does not look back upon its caterpillar self, either fondly or wistfully; it simply flies on.
+ - When the monster has a dimension that allows you to humanize it, that’s the route I usually want to go.
+ - Genius is the true mystery, and at its edge – the abyss.
+ - If you get bored with nothing to do, you are not a writer.
+ - Screenplay is the toughest form of writing for me, because you need to be in present tense. You need to be describing things as they occur.
+ - I feel that your ambitions should always exceed the budget. That no matter what budget you’re doing, you should be dreaming bigger than the budget you have, and then it’s a matter of reigning it in to the reality. You try to make things count.
+ - You think if you work hard enough, you can fix the precious things you’ve broken – rather than being careful with them in the first place.
+ - The underground of the city is like what’s underground in people. Beneath the surface, it’s boiling with monsters.
+ - When you have the intuition that there is something which is there, but out of the reach of your physical world, art and religion are the only means to get to it.
+ - What happens to me is that I am first and foremost a film geek.
+ - For horror to work, you have to be afraid. You have to keep the monster in a black and white light.
+ - Survival often feels like an indignity.
+ - I’m the freaky version of that superhero who says, wherever there is injustice, I shall be there. Whenever there is a difficult project, I’d like to be there.
+ - I believe in man. I believe in mankind, as the worst and the best that has happened to this world.
+ - Studios look backward. Filmmakers look forward.
+ - I think there is a very quiet power in things that are not on screen.
+ - You only find yourself when you disobey. Disobedience is the beginning of responsibility, I think.
+ - Ghosts are a metaphor that can be interpreted so many different ways. There’s no ending to what you can do. You can make it a fun ghost story. You can make it a deeply disturbing, psychological ghost story.
+ - In a world where we are so pragmatic and materialistic, fear is the only emotion that allows even a sophisticated person to believe in something beyond.
+ - My life is a suitcase. I am the traveling Mexican.
+ - My favorite novel in the world is Frankenstein. I’m going to misquote it horribly, but the monster says, “I have such love in me, more than you can imagine. But, if I cannot provoke it, I will provoke fear.”
+ - I think video games are going to completely take over storytelling in our society. Video games are not a fad...
+ - But I think we are seeing a resurgence of the graphic ghost story like The Others, Devil’s Backbone and The Sixth Sense. It is a return to more gothic atmospheric ghost storytelling.
+ - What we read and why we do so defines us in a profound way. You are what you read, I suppose. Browsing through someone’s library is like peeking into their DNA.
+ - There is beautiful in the grotesque.
+ - The point of being over 40 is to fulfill the desires you’ve been harboring since you were 7.
+ - You can’t explain success in retrospect. The moment you leap into the void, that moment is impossible to negate, after success.
+ - The reality is that I feel that fear is a very spiritual emotion.
+ - If film making is magic, there’s a difference between close up magic and David Copperfield. If you’re doing close up magic, which independent filmmakers do, it is a very delicate craft, interpersonal relationship, and being able to enrapture a very small audience.
+ - It’s as hard to explain as a sexual proclivity. Some guys like high-heeled shoes. I like horror.
+ - Well, the first thing is that I love monsters, I identify with monsters.
+ - Power revealed is power sacrificed. The truly powerful exert their influence in ways unseen, unfelt. Some would say that a thing visible is a thing vulnerable.
+ - What makes a man a man? A friend of mine once wondered. Is it his origins? The way he comes to life? I don’t think so. It’s the choices he makes. Not how he starts things, but how he decides to end them.
+ - As a child that was disenfranchised from everything, and that was in a world that was the wrong size, run by the wrong people, the wrong morale and the wrong rules, I felt completely outside of that, and I wanted some measure of control, and the measure of control I found was through fear.
+ - There’s something worse than not making a movie. It’s doing it for the wrong reasons. Then you end up putting three, four, five years of your life into it and you come out with a thing that you’re not proud of.
+ - I like actors that are good with pantomime and that can transmit a lot by their presence and attitude more than through their dialogue.
+ - Awareness of insanity does not make one any less insane. Awareness of drowning does not make one any less of a drowning person – it only adds the burden of panic.
+ - There’s nothing that defines who you are more than boundaries, whether you cross them or not, in every aspect of your life, and horror is a really great boundary.
+ - Hellboy is the first movie where both ends of the spectrum are combined.
+ - People think you’re like The Godfather, waiting for scripts to come in. But, you’re hustling, you’re desperate, you’re panicked and you’re horrified. The movie you think you’re going to do next, you don’t do. The movie you think you’re never going to do, you make.
+ - Films are fantastic – they are one of the peaks of human narrative. But I’m sorry to break the news to the movie industry: So is a video game.
+ - We are such skeptics that we find it difficult to believe in God and angels and a spiritual afterlife, but a moment of fear makes our spirit so vulnerable that it allows us to believe in something beyond that.
+ - With supernatural things, I have heard ghosts, but I’ve never seen ghosts. I do seek ghosts and I would love to see one, but I would crap my pants.
+ - I think damage to the eye or damage to the teeth is one of the most universally cringing things you can do in a movie and these are very fragile sounds.
+ - I have a sort of a fetish for insects, clockwork, monsters, dark places, and unborn things.
+ - You give yourself to the world for people to either praise or destroy.
+ - The other thing that I started doing for myself was, I went through my diary of ideas that I keep and made sure that the translation of the comic to the movie was good.
+ - I don’t want to move over to Beverly Hills. My goal is to make the movies I want to make and support the people I want to support. That’s it.
+ - If you don’t take it personally, the partnership between producers and directors is very intimate.
+ - When I was a teenager there was no video in my country. Betamax came to Mexico very slowly.
+ - They’re getting more and more experience on what to expect, and the Hellboy audience is such a faithful and fanatic audience as I am, and you have to really be very open about what you do.
+ - The only thing you can do as an artist is to come to the world, see what no one is doing, and leave behind one or two things that wouldn’t have happened without you.
+ - I have my library separate from the family home, and every room is a different genre. The only room that I can guarantee I’ve read everything is the horror room.
+ - I think there are movies that are so gigantic that you need a second unit.
+ - There are a lot of period movies where they say, ‘This is a portrait of Lady Whatever.’ And it’s done in like a 1950s or 60s style.
+ - I am the nice adversary, the guy that’s going to ask the tough questions and is not going to be happy with the quick answer.
+ - America is old tobacco: gold and green. It’s lush and literally feels like wealth, like optimism, turn of the century America where everything was blooming.
+ - There are two levels of vampirism: one is the regular vampire, which is just like it has always been; and then there’s the super vampires, which are a new breed we’ve created.
+ - I only produce directors and movies that I have a lot in common with.
+ - You may occasionally be hurt by the sort of cavalier cruelty of commentary if you go into online forums, so there’s definitely a maturity about not seeking validation from everyone, every single time.
+ - As a first-time director, you cannot have final cut. But as a producer, you can have final cut.
+ - There are two types of producing deals, and I’ve had both. I’ve produced over 20 movies now. You are either watching in horror, as the cars take the curve in the grand prix, or you’re enjoying it.
+ - Its a bit cloudy in London but people are already drinking out on the streets- God Bless the pubs.
+ - I love the creation of these things – I love the sculpting, I love the coloring. Half the joy is fabricating the world, the creatures.
+ - You need to adjust your compass to an obtainable goal.
+ - And yet one carries the sins of his forebears as one carries their features in his face. One bears their blood, and their honor or their blight.
+ - I think part of making movies is dealing with restrictions of freedom and budget. I’d rather deal with restrictions of budget. It’s better to feel free within any budget.
+ - For Devil’s Backbone I loved it but I felt very pressured but so I was neurotic on the shoot.
+ - I think Hollywood has a habit of developing 100 times more than they actually shoot.
+ - When you shoot in America, you have huge beams of sunlight in the windows, very vivid sunlight – it’s faster in a way.
+ - I love REAL set construction and think that sets are very important part of the storytelling and scope of a film...
+ - Your heart is uncomplicated. It knows what it knows and acts accordingly. Greater wisdom is hard to find.
+ - I only produce movies that have something stylistically different, so that I can learn from the experience of producing.
+ - I believe that the physical effect, the physical set, whenever you can, is ten times better than the digital effect.
+ - I think that The Eye is a particularly Americanized take on horror.
+ - I think when you get all the money and all the freedom, rarely do you get a good movie out of it or a movie that you’re proud of.
+ - If you’re doing a big spectacle film, you’ve got to be mindful of large masses. Even then, you’ve got to be responsible only to your storytelling.
+ - I would much rather see somebody bring something new to a genre than produce something that seems safe.
+ - I really wanted the house to be a character. And I knew, I said, I’ll produce that one, but if I direct it, I need to build a house.
+ - I’m a movement Nazi. It used to be my way before. Now, in the last three projects. I found a way to let the actors find their comfort and still find the precision in the show. It’s a change in me.
+ - Never fly commercial. That’s the moral of this story.
+ - With every movie I produce, I learn something. I watch the directors. It’s like the relationship you have with your children. I’m there to learn from my daughters. They are the perfect spirits.
+ - I had gotten to the point where I just didn’t want to perform anymore – I didn’t want to be on the chopping block anymore. I started to want to withdraw and retreat from it.
+ - Well I think effects are tools.
+ - In real life, what scares me is politicians, corporations and people that think they know what the world should be.
+ - I only produce things that have so much in common with what I like. I wanna understand what I’m doing. I wanna understand the instincts that are going to inform the story.
+ - You can only be a good father in relationship to your childhood.
+ - I love the idea of creating a sort of nuanced portrait of kids that they’re not all perfect. They’re kind of misfits but not in a picturesque, hip way, they’re really, really kids that are not entirely great.
+ - I was part of a group that had a cinema club so every week we would project two or three movies on 16 or 35mm.
+ - I think making small movies reminds you of the effort. When you make big movies, the effort is to fight for freedom. When you make small movies, the effort is making the day, making the budget, and it’s great, too.
+ - When you work with a great director, you can have a great partnership.
+ - I started when I was eight, doing super 8 films.
+ - Without context, things are not scary. Without context, like humor, horror doesn’t work.
+ - I think when the joke comes from the situation in a horror film, it’s really great. I don’t like jokey horror films like where people are cracking a joke or being post-modern about it.
+ - Producing is great because you learn.
+ - I like John Carpenter. I like some of his films more than others.
+ - Even if one understands that what one is doing is mad, it is indeed still madness -.
+ - Normally a period movie has a lot of problems with the graphics. They look modern made.
+ - When I see a short schedule, my question to the director is, are you really comfortable with this, or are you doing it to be a good boy? At the end, you only win the medal if the film is good, you don’t win a medal if the movie is on time.
+ - I think that during the shoot, you should never be there, unless something goes really wrong and as producer, you’re responsible. The sign you did your job right is if you are not there.
+ - I see horror as part of legitimate film. I don’t see it as an independent genre that has nothing to do with cinema.
+ - Frankfurt, discussing a stuntman: He missed being killed in that shot be literally half an inch.
+ - For me, lost causes are the only ones that are worth fighting for. The other stuff is not worth fighting for.
+ - The way I see film is I think film is like going out to dinner. I feel it’s a banquet. You don’t want to have the same food you have at home. You want to go and eat a fantastic Chinese meal or Italian or Greek.
+ - At some point, in order to gain his identity, the kid goes “I’m not my dad” or “I’m not my mom.”
+ - For eight years I did effects for other movies until I got my movie made.
+ - Movies that look safe are less interesting.
+ - You’ll meet her. She’s very pretty, even though sometimes she’s sad for many days at a time. You’ll see, when she smiles, you’ll love her.
+
+109 quotes

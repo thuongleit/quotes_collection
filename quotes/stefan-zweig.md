@@ -1,0 +1,87 @@
+ - Happy people are poor psychologists.
+ - Time to leave now, get out of this room, go somewhere, anywhere; sharpen this feeling of happiness and freedom, stretch your limbs, fill your eyes, be awake, wider awake, vividly awake in every sense and every pore.
+ - One can run away from anything but oneself.
+ - The works of the great artists are silent books of eternal truths.
+ - The instinct for self-deception in human beings makes them try to banish from their minds dangers of which at bottom they are perfectly aware by declaring them non-existent.
+ - Through suffering we have endured the assaults of time; reverses have ever been our beginning; and out of the depths God has gathered us to his heart.
+ - Freedom is not possible without authority – otherwise it would turn into chaos and authority is not possible without freedom – otherwise it would turn into tyranny.
+ - The strength of a love is always misjudged if we evaluate it by its immediate cause and not the stress that went before it, the dark and hollow space full of disappointment and loneliness that precedes all the great events in the heart’s history.
+ - No guilt is forgotten so long as the conscience still knows of it.
+ - Often the presence of mind and energy of a person remote from the spotlight decide the course of history for centuries to come.
+ - Only the person who has experienced light and darkness, war and peace, rise and fall, only that person has truly experienced life.
+ - In this instant, shaken to her very depths, this ecstatic human being has a first inkling that the soul is made of stuff so mysteriously elastic that a single event can make it big enough to contain the infinite.
+ - There is nothing more vindictive, nothing more underhanded, than a little world that would like to be a big one.
+ - Names have a mysterious transforming power. Like a ring on a finger, a name may at first seem merely accidental, committing you to nothing; but before you realize its magical power, it’s gotten under your skin, become part of you and your destiny.
+ - To grow old means to be rid of anxieties about the past.
+ - As we grow old, we become aware that death is drawing near; his shadow falls across our path; the realities of life seem less crude than of yore, they touch our senses less intimately, and they lose much of their poignancy.
+ - All office workers are afraid of being late for work.
+ - Truth to tell, we are all criminals if we remain silent...
+ - Memory is so corrupt that you remember only what you want to; if you want to forget about something, slowly but surely you do.
+ - It is the way of youth that each fresh piece of knowledge of life should go to its head, and that once uplifted by an emotion it can never have enough of it.
+ - He who studies without passion will never become anything more than a pedant.
+ - Formerly man had only a body and a soul. Now he needs a passport as well for without it he will not be treated like a human being.
+ - Every wave, regardless of how high and forceful it crests, must eventually collapse within itself.
+ - And fate? No one alive has ever escaped it, neither brave man nor coward, I tell you – it’s born with us the day that we are born.
+ - Against my will, I became a witness to the most terrible defeat of reason and to the most savage triumph of brutality ever chroniclednever before did a generation suffer such a moral setback after it had attained such intellectual heights.
+ - Once shame touches your being at any point, even the most distant nerve is implicated, whether you know it or not; any fleeting encounter or random thought will rake up the anguish and add to it.
+ - It is a law of life that human beings, even the geniuses among them, do not pride themselves on their actual achievements but thatthey want to impress others, want to be admired and respected because of things of much lower import and value.
+ - How terrible this darkness was, how bewildering, and yet mysteriously beautiful!
+ - Long-protracted suffering is apt to exhaust not only the invalid, but the compassion of others; violent emotions cannot be prolonged endlessly.
+ - Besides, isn’t it confoundedly easy to think you’re a great man if you aren’t burdened with the slightest idea that Rembrandt, Beethoven, Dante or Napoleon ever lived?
+ - Something indefinite is always worse than something definite, a strong fear that doesn’t last very long is easier than one that’s nebulous but doesn’t go away.
+ - Never can the innate power of a work be hidden or locked away. A work of art can be forgotten by time; it can be forbidden and rejected but the elemental will always prevail over the ephemeral.
+ - All I know is that I shall be alone again. There is nothing more terrible than to be alone among human beings.
+ - One must be convinced to convince, to have enthusiasm to stimulate the others.
+ - Nothing whets the intelligence more than a passionate suspicion, nothing develops all the faculties of an immature mind more than a trail running away into the dark.
+ - Pain is a coward. He flees when faced by the irresistible power of the will-to-live, which is more strongly rooted in the flesh than the intensest passion is rooted in the spirit.
+ - In history as in human life, regret does not bring back a lost moment and a thousand years will not recover something lost in a single hour.
+ - If you are going to sell yourself, you should at least get a good price.
+ - Dostoevsky was the first to reveal to us this teeming multiplicity of emotions, this complexity of our spiritual universe.
+ - When they are preparing for war, those who rule by force speak most copiously about peace until they have completed the mobilization process.
+ - There is no sense to a sacrifice after you come to feel that it is a sacrifice.
+ - The free, independent spirit who commits himself to no dogma and will not decide in favor of any party has no homestead on earth.
+ - Only a numskull is pleased at being a so-called “success” with women, only a dunderhead is puffed up by it. A real man is much more likely to be dismayed at realizing that a woman has lost her heart to him when he can’t reciprocate her feelings.
+ - It is better to be the servant of God than the ruler of men.
+ - Immanuel Kant lived with knowledge as with his lawfully wedded wife, slept with it in the same intellectual bed for forty years and begot an entire German race of philosophical systems.
+ - Being sent to bed is a terrible command to all children, because it means the most public possible humiliation in front of adults, the confession that they bear the stigma of childhood, of being small and having a child’s need for sleep.
+ - Nothing that has ever been thought and said with a clear mind and pure ethical strength is totally in vain; even if it comes froma weak hand and is imperfectly formed, it inspires the ethical spirit to constantly renewed creation.
+ - Health alone does not suffice. To be happy, to become creative, man must always be strengthened by faith in the meaning of his own existence.
+ - Today, for a Jew who writes in the German language, it is totally impossible to make a living. In no group do I see as much misery, disappointment, desperation and hopelessness as in Jewish writers who write in German.
+ - A word is nothing unless it has values and an atmosphere, unless you grasp its historical significance.
+ - The idea of Jewish unity, of a plan, an organization, unfortunately exists only in the brains of Hitler and Streicher.
+ - Ah, how fatefully swift is the move from one feeling to another.
+ - But, in history, practical usefulness never determines the moral value of an achievement. Only the person who increases the knowledge humanity has about itself and enhances its creative consciousness permanently enriches humanity.
+ - For the more a man limits himself, the nearer he is on the other hand to what is limitless.
+ - Only the misfortune of exile can provide the in-depth understanding and the overview into the realities of the world.
+ - Unless our souls had root in soil divine We could not bear earth’s overwhelming strife. The fiercest pain that racks this heart of mine, Convinces me of everlasting life.
+ - The union of opposites, in so far as they are really complementary, always results in the most perfect harmony; and the seemingly incongruous is often the most natural.
+ - It is better to pay tribute of gold to the enemy than tribute of blood in war.
+ - It remains an irrefragable law of history that contemporaries are denied a recognition of the early beginnings of the great movements which determine their times.
+ - Life is futile unless it be directed towards a definite goal.
+ - Now I am discovering the world once more. England has widened my horizon.
+ - Whatever a woman’s reason may say, her feelings tell her the truth.
+ - The sight of a wedding always has a disturbing effect on young girls; at such moments a mysterious sense of solidarity with their own sex takes possession of them.
+ - States of profound happiness, like all other forms of intoxication, are apt to befuddle the wits; intense enjoyment of the present always makes one forget the past.
+ - A human being will accept the strictest disciplinary measures with a better grace if he knows that they will fall with equal severity on his neighbor.
+ - Hairdressers are professional gossips; when only the hands are busy, the tongue is seldom still.
+ - Fate is never too generous even to its favorites. Rarely do the gods grant a mortal more than one immortal deed.
+ - In history, the moments during which reason and reconciliation prevail are short and fleeting.
+ - The dressmaker doesn’t have problems unless the dress has to hide rather than reveal.
+ - A first premonition of the rich variety of life had come to him; for the first time he thought he had understood the nature of human beings – they needed each other even when they appeared hostile, and it was very sweet to be loved by them.
+ - Why is it that the stupidest people are always the most good-natured?
+ - One only makes books in order to keep in touch with one’s fellows after one has ceased to breath, and thus to defend oneself against the inexorable fate of all that lives – transitoriness and oblivion.
+ - The subject of a rumor is always the last to hear it.
+ - Confidences are always risky: a secret entrusted to a stranger make him less of one. You’ve given away something of yourself, given him the advantage.
+ - It is a blessing not yet to have acquired that over-keen, diagnostic, misanthropic eye, and to be able to look at people and things trustfully when one first sees them.
+ - Only ambition is fired by the coincidences of success and easy accomplishment.
+ - Heroic ages are not and never were sentimental and those daring conquistadores who conquered entire worlds for their Spain or Portugal received lamentably little thanks from their kings.
+ - It would be foolhardy to count on the conscience of the world.
+ - On the whole, more men had perhaps escaped into the war than from it.
+ - Everything in life that deviates from the straight and, so to speak, normal line, makes people first curious and then indignant.
+ - It is never until one realizes that one means something to others that one feels there is any point or purpose in one’s own existence.
+ - We can’t forever be spending our lives paying for political follies that never gave us anything but always took from us, and I amcontent with the narrowest metes and bounds provided I have peace and quiet for work.
+ - Those whom fate has dealt hard knocks remain vulnerable for ever afterwards.
+ - For one who is having no personal experience, the passionate disquiet of others is at any rate a titillation of the nerves, like seeing a play or listening to music.
+ - Whilst all the land was ringed with bristling arms And flames laid waste our world, All that was left me was a little garden And thou within it, my beloved, my comrade.
+
+85 quotes

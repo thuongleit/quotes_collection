@@ -1,0 +1,39 @@
+ - The courage to try something new makes me proud.
+ - You cannot look at a sleeping cat and feel tense.
+ - I spent an awful lot of my life underestimating myself and, as a result, not exceeding my own expectations.
+ - The most likely moment for something incredible to happen to me was the moment I was most certain nothing ever would.
+ - Kids learn more from example than from anything you say; I’m convinced they learn very early not to hear anything you say, but to watch what you do.
+ - A diagnosis is burden enough without being burdened by secrecy and shame.
+ - Twins are a high-risk pregnancy, by definition. The quieter I am, the longer I can keep them growing.
+ - Your 40s are a major trough. About the age of 50, feelings of satisfaction begin to rebound and keep rising into your 50s, 60s and 70s, with health being a major factor.
+ - My goal is to see that mental illness is treated like cancer.
+ - I’m not driven by killer ambition. I’m not a workaholic. I’m a good team player. I don’t have to be captain, but I do want to play on a winning team.
+ - My parents were terrific – mother was a church organist and my father was probably the most respected person in our church outside of the minister and sometimes maybe that much. The neighbors all called him – a gentleman.
+ - This may sound funny, but as much as the ‘Today’ show matured me, it also was something of a cocoon. I’d been happy there. I never went into the boss’s office and pounded my fist on the desk, saying, ‘Give me more money! Give me a prime-time show!’
+ - I define success as when I say “yes” when I am given an opportunity.
+ - I came back to work when my children were two months old. At that early age, they seem to have little awareness of anybody but their Raggedy Ann dolls, so it wasn’t a matter of them missing me. I was missing them.
+ - A mood disorder is dangerous. You’ve got to get those dramatic waves of highs and lows stabilized. It’s dangerous if you don’t.
+ - My son has been known to throw a book at the television set when he called for me to come play and I was obviously busy in the box. But I’m told that children of television performers grow up thinking that all mommies or daddies work on TV and that it’s no big deal.
+ - My guess is that people look at me and project their own values – importance of family, ego is healthy but not the biggest thing. I don’t know. I can’t explain my popularity.
+ - It’s like if people don’t see you on TV every day, they think you’re in cryogenics somewhere.
+ - My parents had an experience of life that is as opposite to mine as you can imagine.
+ - Sometimes it takes the better part of a lifetime to find out what your passion is, but in my observation, if you do, it might be the best part of your life.
+ - I would not take for granted that my personal life – because I knew better than anybody – that it was just a life. It was surprisingly an ordinary life.
+ - Nobody calls me silly. That is not a word that applies to me.
+ - I had had some months of depression. Not serious enough to keep me from work. So, I guess you’d call that a mild depression.
+ - The years after 50 can be a time of great productivity, meaningful work, pleasure, creativity, and innovation. It’s a huge opportunity.
+ - Well, every now and then I would hear the preposterous notion that that Jane Pauley sounds like Barbara Walters. Like I could if I tried?
+ - My father was so good-natured and had such a happy disposition. I’ve always confused him with Jimmy Stewart. So, think Jimmy Stewart. That’s my dad.
+ - Many people come to reinvention when life changes around them, but people come in all different stripes. I’m oriented to change.
+ - I was an unusually private person – in a way, kind of insufferably so. I think I thought the celebrity thing when it happened was a temporary phenomenon, and I was above it.
+ - I’ve always had a lot of ambivalence about fame and celebrity.
+ - New Yorkers, by reputation, are fast-talking, assertive and easily annoyed; I fit right in.
+ - I probably am more shy than people realize. But I’m shy when I leave a studio and I am just myself.
+ - I’ve always been profoundly ambivalent about fame. I think it just eats the reality out of you and it can be intoxicating because I like some of it.
+ - It may feel like the more you know about depression and the many forms it can take, the more questions you have. That’s how I feel.
+ - About the time I turned 50, I experienced the profound biological change that often accompanies women at that age. Also, I put two kids in college and lost both of my parents, so I’m no longer somebody’s daughter.
+ - I am not one of the great journalists of my time.
+ - I love working with an audience. I love working with actual people who, you know, if they’re moved, you see it. If you say something they’re stunned by, you see their jaws drop. If they’re amused, they laugh – that kind of reinforcement, I totally adore.
+ - I have been fiercely private, in part because I could never understand how a journalist could be otherwise. I was also the mother of small children, and security concerns were paramount.
+
+37 quotes

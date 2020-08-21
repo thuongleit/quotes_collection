@@ -1,0 +1,23 @@
+ - Photography is my only language.
+ - The photographer’s art is a continuous discovery which requires patience and time.
+ - Technique isn’t important. Technique is in the blood. Events and mood are more important than good light and the happening is what is important.
+ - The moment always dictates in my work. What I feel, I do. This is the most important thing for me. Everybody can look, but they don’t necessarily see. I never calculate or consider; I see a situation and I know that it’s right, even if I have to go back to get the proper lighting.
+ - Two seconds are a thousand years.
+ - You do not have to imagine things; reality gives you all you need.
+ - I still regard myself as an amateur today and I hope that’s what I’ll stay until the end of my life. Because I’m forever a beginner who discovers the world again and again.
+ - Seeing is not enough; you have to feel what you photograph.
+ - Have confidence in the inventions and transformations of chance.
+ - I am an amateur and I intend to stay that way for the rest of my life.
+ - I am not a surrealist. I am only a realist. All this group – surrealists – use my name. No, no, I am realist.
+ - The most valuable things in a life are a man’s memories. And they are priceless.
+ - I can’t talk about my style. It us kind of difficult for me. I don’t like styles. I only like taking photos and expressing myself through them.
+ - The camera is my tool. Through it I give a reason to everything around me.
+ - I just walk around, observing the subject from various angles until the picture elements arrange themselves into a composition that pleases my eye.
+ - Of course a picture can lie, but only if you are not honest with yourself...
+ - I can do something with almost anything I see. Everything is still interesting to me.
+ - I do not document anything, I give an interpretation.
+ - My talent lies in the fact that I cannot touch a camera without expressing myself.
+ - Everything is a subject. Every subject has a rhythm. To feel it is the raison detre. The photograph is a fixed moment of such a raison detre, which lives on in itself.
+ - I do what I feel, that’s all. I am an ordinary photographer working for his own pleasure. That’s all I’ve ever done.
+
+21 quotes

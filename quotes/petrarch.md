@@ -1,0 +1,68 @@
+ - A good death does honour to a whole life.
+ - Ruthless striving, overcomes everything.
+ - Rarely do great beauty and great virtue dwell together.
+ - A short cut to riches is to subtract from our desires.
+ - It is more honorable to be raised to a throne than to be born to one. Fortune bestows the one, merit obtains the other.
+ - For though I am a body of this earth, my firm desire is born from the stars.
+ - Death is a sleep that ends our dreaming. Oh, that we may be allowed to wake before death wakes us.
+ - Books have led some to learning and others to madness.
+ - Books can warm the heart with friendly words and counsel, entering into a close relationship with us which is articulate and alive.
+ - Man has no greater enemy than himself. I have acted contrary to my sentiments and inclination; throughout our whole lives we do what we never intended, and what we proposed to do, we leave undone.
+ - I looked back at the summit of the mountain, which seemed but a cubit high in comparison with the height of human contemplation, were in not too often merged in the corruptions of the earth.
+ - Five enemies of peace inhabit with us – avarice, ambition, envy, anger, and pride; if these were to be banished, we should infallibly enjoy perpetual peace.
+ - Where you are is of no moment, but only what you are doing there. It is not the place that ennobles you, but you the place, and this only by doing that which is great and noble.
+ - I would have preferred to have been born in any other time than our own.
+ - Perhaps out there, somewhere, someone is sighing for your absence; and with this thought, my soul begins to breathe.
+ - From thought to thought, from mountain peak to mountain. Love leads me on; for I can never still My trouble on the world’s well beaten ways.
+ - Love is the crowning grace of humanity, the holiest right of the soul, the golden link which binds us to duty and truth, the redeeming principle that chiefly reconciles the heart to life, and is prophetic of eternal good.
+ - I saw the tracks of angels in the earth: the beauty of heaven walking by itself on the world.
+ - I freeze and burn, love is bitter and sweet, my sighs are tempests and my tears are floods, I am in ecstasy and agony, I am possessed by memories of her and I am in exile from myself.
+ - Alack our life, so beautiful to see, With how much ease life losest, in a day, What many years with pain and toil amassed!
+ - To be able to say how much love, is love but little.
+ - While life is in your body, you have the rein of all thoughts in your hands.
+ - Suspicion is the cancer of friendship.
+ - Events appear sad, pleasant, or painful, not because they are so in reality, but because we believe them to be so and the light in which we look at them depends upon our own judgment.
+ - Continued work and application form my soul’s nourishment. So soon as I commenced to rest and relax I should cease to live.
+ - And tears are heard within the harp I touch.
+ - Virtue is health, vice is sickness.
+ - You keep to your own ways and leave mine to me.
+ - Love is the crowning grace of humanity.
+ - Man has not a greater enemy than himself.
+ - Often have I wondered with much curiosity as to our coming into this world and what will follow our departure.
+ - Life in itself is short enough, but the physicians with their art, know to their amusement, how to make it still shorter.
+ - Hitherto your eyes have been darkened and you have looked too much, yes, far too much, upon the things of earth. If these so much delight you what shall be your rapture when you lift your gaze to things eternal!
+ - Nothing mortal is enduring, and there is nothing sweet which does not presently end in bitterness.
+ - I desire that death find me ready and writing, or if it please Christ, praying and intears.
+ - How difficult it is to save the bark of reputation from the rocks of ignorance.
+ - Mere elegance of language can produce at best but an empty renown.
+ - All pleasure in the world is a passing dream.
+ - And men go about to wonder at the heights of the mountains, and the mighty waves of the sea, and the wide sweep of rivers, and the circuit of the ocean, and the revolution of the stars, but themselves they consider not.
+ - It may be only glory that we seek here, but I persuade myself that, as long as we remain here, that is right. Another glory awaits us in heaven and he who reaches there will not wish even to think of earthly fame.
+ - An equal doom clipp’d Time’s blest wings of peace.
+ - Often on earth the gentlest heart is fain To feed and banquet on another’s woe.
+ - For death betimes is comfort, not dismay, and who can rightly die needs no delay.
+ - Where are the numerous constructions erected by Agrippa, of which only the Pantheon remains? Where are the splendorous palaces of the emperors?
+ - I have taken pride in others, never in myself.
+ - When the poet died his cat was put to death and mummified.
+ - For style beyond the genius never dares.
+ - Hope is incredible to the slave of grief.
+ - I have friends whose society is delightful to me; they are persons of all countries and of all ages; distinguished in war, in council, and in letters; easy to live with, always at my command.
+ - Great errors seldom originate but with men of great minds.
+ - How fortune brings to earth the over-sure!
+ - What name to call thee by, O virgin fair, I know not, for thy looks are not of earth And more than mortal seems thy countenances.
+ - I know and love the good, yet ah! the worst pursue.
+ - To begin with myself, then, the utterances of men concerning me will differ widely, since in passing judgment almost every one is influenced not so much by truth as by preference, and good and evil report alike know no bounds.
+ - Reality is always the foe of famous names.
+ - The end of doubt is the beginning of repose.
+ - Who naught suspects is easily deceived.
+ - He loves but lightly who his love can tell.
+ - How quick the old woe follows a little bliss!
+ - For virtue only finds eternal Fame.
+ - I rejoiced in my progress, mourned my weaknesses, and commiserated the universal instability of human conduct.
+ - Wanting is not enough, long and you attain it.
+ - Do you suppose there is any living man so unreasonable that if he found himself stricken with a dangerous ailment he would not anxiously desire to regain the blessing of health?
+ - Who over-refines his argument brings himself to grief.
+ - The greater I am, the greater shall be my efforts.
+ - There is no lighter burden, nor more agreeable, than a pen.
+
+66 quotes

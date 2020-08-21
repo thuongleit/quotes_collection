@@ -1,0 +1,22 @@
+ - The darkness is my birthright.
+ - Your voice is your identity. If you don’t use it- you’re halfway to Asphodel already.
+ - No matter how good a driver you are, you have to have the right car and the right team behind you in order to succeed.
+ - When you do ‘Mad Fat Diary’ or ‘The Village,’ you always learn about the particular time period, and that’s always nice for an actor.
+ - I’m definitely a morning person. I wake up dead happy, looking forward to having my cereal!
+ - I remember my father’s last race very clearly when he drove at Hockenheim in front of 100,000 people and I was sitting next to him on the roof of his car and waving to the fans. That was the moment when I thought: ‘One day I want to do the same.’
+ - I am a demanding person to interview.
+ - It is a burden because I get asked about my father all the time. I just need to accept that he was a champion before me.
+ - I don’t have a sense of time. Time is timeless to me, and I’m not in a hurry to get older. I mean, if I were worried about time, all the time, it would be terrible.
+ - I’ve really enjoyed my three years at ‘Hollyoaks.’ I worked with the most amazing people.
+ - It’s very, very special for me. This is where I’ve grown up, it’s my home, and winning the Monaco Grand Prix is the highlight of any racing driver’s career and for me a childhood dream. It being my home makes it all the more special, unbelievable.
+ - People in Finland have also adopted me because of my dad, and that’s great, but it’s the one language I can’t speak.
+ - My dad lives in Sicily, so I’m half Italian and half Irish – it’s a fiery combination.
+ - I have a habit of leaving places at the wrong time, just when something big may have happened for me.
+ - Image has an influence on what sort of car I will get to drive or deals that I’m offered by teams.
+ - I love film, and I think it’s so important for kids to be educated about films and real life subjects that films cover.
+ - When I was six, I entered a talent contest. I dyed my hair blond, had a chainsaw and pretended I was Eminem. The old folk weren’t expecting that.
+ - For me it was a normality having a father who was a world champion. I grew up with that, so it was never extra pressure. And I’ve never felt the need to emerge from his shadow.
+ - My dad is a great manager. He’s not just competent – he’s very clever.
+ - Pressure is always a part of a racing driver’s life, but my father helped me a lot on my way to becoming a F1 driver.
+
+20 quotes

@@ -1,0 +1,59 @@
+ - God can be trusted. He keeps His promises. He doesn’t make any mistakes.
+ - True brokenness is a lifestyle – a moment-by-moment lifestyle of agreeing with God about the true condition of my heart and life – not as everyone else thinks it is but as He knows it to be.
+ - When God calls you to do something, He provides everything it takes to get it done.
+ - Brokenness is the shattering of my self-will – the absolute surrender of my will to the will of God. It is saying “Yes, Lord!” – no resistance, no chafing, no stubbornness – simply submitting myself to His direction and will in my life.
+ - We want gain without pain; we want the resurrection without going through the grave; we want life without experiencing death; we want a crown without going by way of the Cross. But in God’s economy, the way up is down.
+ - We are never more like Jesus than when we are serving Him or others. There is no higher calling than to be a servant.
+ - Though my natural instinct is to wish for a life free from pain, trouble, and adversity, I am learning to welcome anything that makes me conscious of my need for Him. If prayer is birthed out of desperation, then anything that makes me desperate for God is a blessing.
+ - True Joy is not the absence of pain but the sanctifying, sustaining presence of the Lord Jesus in the midst of the pain.
+ - Obedience is the pathway to blessing. It’s the means of protection. It’s the means of joy. It’s the means to finding God’s best in our lives.
+ - Jesus has revealed Himself in the Scripture. If we want to know Him, if we want to know the Truth, we must devote ourselves to the reading, study, and meditation of His Word.
+ - Every time you and I bow our heads in surrender to the will of God, we embrace the cross and we manifest to the world the heart of Christ who bowed His head to the will of His Father.
+ - I am convinced that the influence of an army of godly women will be incalculable – in our homes, our churches, and our culture. Will you be one of those women?
+ - Thinking of what Jesus did NOT say from the cross: not a bitter, angry, unkind, whining, profane, unnecessary word. There is none like Him!
+ - Worship is a believer’s response to God’s revelation of Himself. It is expressing wonder, awe, and gratitude for the worthiness, the greatness, and the goodness of our Lord. It is the appropriate response to God’s person, His provision, His power, His promises, and His plan.
+ - The word hospitality in the New Testament comes from two Greek words. The first word means love and the second word means strangers. Its a word that means love of strangers.
+ - There may be some issue where God is calling you to surrender. I don’t know what you may be struggling with, but whatever it is, let me just encourage you: Don’t delay obedience.
+ - Sound theology should always lead us to doxology and transformation.
+ - Gratitude has a big job to do in us and our hearts. It is one of the chief ways that God infuses joy and resilience into the daily struggle of life.
+ - Men like to flirt with, and sometimes even date a wild child, but those women aren’t usually first on their lists for marriage or motherhood.
+ - Don’t assume you have to be extraordinary to be used by God. You don’t have to have exceptional gifts, talents, abilities, or connections. God specializes in using ordinary people whose limitations and weaknesses make them ideal showcases for His greatness and glory.
+ - God is good whether or not His choices seem right to us, whether or not we feel it, whether or not it seems true, and whether or not He gives us everything that we want.
+ - Contentment is just the realization that God has already provided for me today all that I need for my present peace and happiness.
+ - There is no man on the face of the earth who can satisfy the deepest longings of a woman’s heart – God made us in such a way that we can never be truly satisfied with anything or anyone less than Himself.
+ - Brokenness is the shattering of my self-will – the absolute surrender of my will to the will of God.
+ - We will never meet God in revival until we have first met Him in brokenness.
+ - The more we hold on to our hurts, anger and bitterness, the more we become slaves to unforgiveness.
+ - Gratitude is a lifestyle. A hard-fought, grace-infused, biblical lifestyle.
+ - An evidence that our will has been broken is that we begin to thank God for that which once seemed so bitter, knowing that his will is good and that, in His time and in His way, He is able to make the most bitter waters sweet.
+ - The ultimate purpose of marriage is not to make us happy but to glorify God.
+ - Christmas is all about surrender. It’s all about the surrender of the Son to obey the perfect will of the Father and enter human history.
+ - Proud people keep others at arm’s length. Broken people are willing to take the risks of getting close to others and loving intimately.
+ - Jesus was not conquered by death. By His death, He conquered death.
+ - Don’t wait for God to break you. You can choose to be broken or you can wait for God to crush your pride.
+ - Revival is not just an emotional touch; it’s a complete takeover!
+ - The Christian life is not about all the things we do for God – it’s about being loved by Him, loving Him in return, and walking in intimate union and communion with Him.
+ - Bitterness grows in us when we fail to see the trouble and pain in our lives from God’s point of view, and when our expectations of what life should be diverge from the reality of what life really is.
+ - Mark it down – your progress in holiness will never exceed your relationship with the holy Word of God.
+ - Each of us is accountable to God for our personal holiness. Humbling yourself by letting others into your life and allowing them to help you and hold you accountable will release the sanctifying, transforming grace of God in your life.
+ - Instead of fixing all your problems, God may be wanting to use your problems to teach you to trust and obey Him.
+ - God’s Will is what we would choose if we knew what God knows.
+ - Men are not inspired to protect women who are naked, but instead to conquer and violate them; they want to protect those who are clothed.
+ - Jesus died as He had lived-praying, forgiving, loving, sacrificing, trusting, quoting Scripture. If I die as I have lived, how will I die?
+ - It’s bad enough for me to make choices that hurt my own relationship with God. How much more serious is it to be the cause of someone else deciding to sin? Not only must I choose the pathway of holiness for God’s sake and for my own sake; I must also do it for the sake of others.
+ - Wearing a low-cut, cleavage-revealing top is called suggestive. What does it suggest? That there is more than what you now see, and I may let you look closer since I’m already willing to give you this much of a peek.
+ - Again and again, God’s Word reveals that He is not as concerned about the depth or extent of the sin we commit as He is about our attitude and response when we are confronted with our sin.
+ - God lives in the place of praise. If we want to be where He is, we need to go to His address.
+ - O God, make us desperate, and grant us faith and boldness to approach Your throne and make our petitions known, knowing that in doing we link arms with Omnipotence and become instruments of Your eternal purposes being fulfilled on this earth.
+ - Your enemy wants to strip you, make sport of you, and merchandise your body, but your heavenly Father wants to clothe you with beauty, strength, dignity and honor that will endure.
+ - Those who say in simple surrender ‘Yes, Lord,’ emerge from the experience spiritually rich, and become a source of grace and encouragement to others who are hurting.
+ - I want to live in such a way that, if it is only twenty-nine more days or twenty-nine more weeks, or if it is twenty-nine more years or more, I want to faithful with each one of those-that I could go and meet the Lord without regrets, without unfinished business.
+ - No matter what I have done, no matter how I have failed, no matter how week I have been, no matter how inadequate I am, God has not changed. He has not failed.
+ - Every selfish, sinful, or indulgent choice I make today is sowing a seed that will reap a multiplied harvest. And every act of obedience is a seed that will produce a multiplied harvest of blessing in my life and in the lives of those I love.
+ - Have you been tormented with fears and doubts? Bombarded with temptation to sin? Try praising the Lord, and watch Satan flee.
+ - Am you building up your house, or are you tearing it down? Your ‘house’ is the sphere of relationships that God has placed you in.
+ - Regardless of what crisis or complexity may be threatening to engulf your life, God is at work. You may not see it, but you need to know it’s true. And He’s not just doing one or two or a few things in that situation. He is doing a thousand or more things.
+ - To do any less than to make Him known is to fail to really love our neighbors.
+ - You will never be more secure, you will never be more safe, and you will never be happier, more satisfied, than when you are trusting and obeying: resting in sovereignty and surrendering to sovereignty.
+
+57 quotes

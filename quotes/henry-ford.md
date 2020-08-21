@@ -1,0 +1,370 @@
+ - Whether you think you can or you can’t, you’re right.
+ - Failure is simply an opportunity to begin again, this time more intelligently.
+ - Nothing is particularly hard if you divide it into small jobs.
+ - Quality means doing it right when no one is looking.
+ - Coming together is the beginning. Keeping together is progress. Working together is success.
+ - Thinking is the hardest thing a man can do, probably the reason so few of them do it.
+ - The only real mistake is the one from which we learn nothing.
+ - Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young. The greatest thing in life is to keep your mind young.
+ - If I had asked people what they wanted, they would have said faster horses.
+ - Obstacles are those frightful things you see when you take your eyes off your goals.
+ - Chop your own wood and it will warm you twice.
+ - It has been my observation that most people get ahead during the time that others waste.
+ - You can’t build a reputation on what you are going to do.
+ - If everyone is moving forward together, then success takes care of itself.
+ - There is no man living who isn't capable of doing more than he thinks he can do.
+ - Most people spend more time and energy going around problems than in trying to solve them.
+ - Believe in the best. Have a goal for the best, never be satisfied with less than your best, try your best, and in the long run things will turn out for the best.
+ - One of the greatest discoveries a person makes, one of their great surprises, is to find they can do what they were afraid they couldn’t do.
+ - If money is your hope for independence, you will never have it. The only real security that a man can have in this world is a reserve of knowledge, experience and ability.
+ - Genius is seldom recognized for what it is: a great capacity for hard work.
+ - When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.
+ - The man who thinks he can and the man who thinks he can’t are both right. Which one are you?
+ - My best friend is the one who brings out the best in me.
+ - Life is a series of experiences, each of which makes us bigger, even though it is hard to realize this. For the world was built to develop character, and we must learn that the setbacks and griefs which we endure help us in our marching onward.
+ - Thinking is the hardest work there is, which is probably the reason so few engage in it.
+ - Vision without execution is just hallucination.
+ - Everything comes to him who hustles while he waits.
+ - To see a thing clearly in the mind makes it begin to take form.
+ - Don’t find fault, find a remedy.
+ - You say I started out with practically nothing, but that isn't correct. We all start with all there is, it's how we use it that makes things possible.
+ - A business absolutely devoted to service will have only one worry about profits. They will be embarrassingly large.
+ - Any customer can have a car painted any colour that he wants so long as it is black.
+ - With God in charge, I believe everything will work out for the best in the end.
+ - It is not the employer who pays the wages. Employers only handle the money. It is the customer who pays the wages.
+ - Those who never make mistakes work for those of us who do.
+ - You can do anything if you have enthusiasm. Enthusiasm is the yeast that makes your hopes rise to the stars.
+ - Those who walk with God, always reach their destination.
+ - Luck and destiny are the excuses of the world’s failures.
+ - A poor man is not the one without a cent. A poor man is the one without a dream.
+ - There are no dead ends. There is always a way out. What you learn in one failure you utilize in your next success.
+ - Before everything else, getting ready is the secret of success.
+ - Working together is success.
+ - The object of education is not to fill a man’s mind with facts; it is to teach him how to use his mind in thinking.
+ - One who fears failure limits his activities.
+ - There are no big problems, there are just a lot of little problems.
+ - Mediocrity is the worst enemy of prosperity.
+ - You can take my factories, burn up my buildings, but give me my people and I’ll build the business right back again.
+ - If it doesn’t add value, it’s waste.
+ - Be ready to revise any system, scrap any method, abandon any theory, if the success of the job requires it.
+ - Two percent of the people think; three percent think they think, and 95 percent would rather die than think.
+ - The competitor to be feared is one who never bothers about you at all, but goes on making his own business better all the time.
+ - I’ll sleep well tonight.
+ - Old men are always advising young men to save money. That is bad advice. Don’t save every nickel. Invest in yourself. I never saved a dollar until I was forty years old.
+ - Show me who makes a profit from war, and I’ll show you how to stop the war.
+ - Whatever your goal in life, the beginning is knowledge and experience.
+ - Businesses that grow by development and improvement do not die.
+ - Those who stop marketing to save money are like those who stop a clock to save time.
+ - An educated man is not one whose memory is trained to carry a few dates in history – he is one who can accomplish things.
+ - Anybody can do anything that he imagines.
+ - You are the Master of your Fate, the Captain of your Soul.
+ - Time waste differs from material waste in that there can be no salvage. The easiest of all wastes and the hardest to correct is the waste of time, because wasted time does not litter the floor like wasted material.
+ - The whole secret of a successful life is to find out what is one’s destiny to do, and then do it.
+ - The object of living is work, experience, happiness.
+ - Enthusiasm is the yeast that makes your hopes shine to the stars. Enthusiasm is the sparkle in your eyes, the swing in your gait. The grip of your hand, the irresistible surge of will and energy to execute your ideas.
+ - Improved productivity means less human sweat, not more.
+ - A man who cannot think is not an educated man however many college degrees he may have acquired.
+ - Patience and foresight are the two most important qualities in business.
+ - I invented nothing new, I simply assembled the discoveries of other men behind whom there was centuries of work.
+ - Life is a series of experiences, each one of which makes us bigger, even though sometimes it is hard to realize this.
+ - Wealth is nothing more or less than a tool to do things with. It is like the fuel that runs the furnace or the belt that runs the wheel – only a means to an end.
+ - Businesses that grow by development and improvement do not die. But when a business ceases to be creative, when it believes it has reached perfection and needs to do nothing but produce no improvement, no development, it is done.
+ - To be good is not enough; a man must be good for something.
+ - Gold is the most useless thing in the world. I am not interested in money but in the things of which money is merely a symbol.
+ - I am looking for a lot of men who have an infinite capacity to not know what can’t be done.
+ - When I see an Alfa Romeo go by, I tip my hat.
+ - Any man who thinks he can be happy and prosperous by letting the government take care of him better take a closer look at the American Indian.
+ - Time waste differs from material waste in that there can be no salvage.
+ - There are two extremes to be avoided: one is the attitude of contempt toward education, the other is the tragic snobbery of assuming that marching through an educational system is a sure cure for ignorance and mediocrity.
+ - The human mind is a channel through which things-to-be are coming into the realm of things-that-are .
+ - The one aim of these financiers is world control by the creation of inextinguishable debts.
+ - Paying good wages is not charity at all-it is the best kind of business.
+ - Man minus the Machine is a slave; Man plus the Machine is a freeman.
+ - The short successes that can be gained in a brief time and without difficulty, are not worth much.
+ - One needs to be successful in the conventional way to learn just how far away from success it may be.
+ - Enthusiasm is the sparkle in your eyes, the swing in your gait.
+ - Individualism is what makes cooperation worth living.
+ - If someone betrays you once, it is his fault. If he betrays you twice, it is your fault. Blessed are those who can laugh at themselves, they will never cease to be amused. Obstacles are those frightful things you see when you take your eyes off your goals.
+ - Every success is the mother of countless others.
+ - The Government is a servant and never should be anything but a servant. The moment the people become adjuncts to government, then the law of retribution begins to work, for such a relation is unnatural, immoral, and inhuman.
+ - Any colour – so long as it’s black.
+ - I was happier when I was doing a mechanic’s job.
+ - A business which exists to make one man or one family rich, and whose existence is of no moment when this is achieved, is not solidly founded.
+ - Labor unions are the worst thing that ever struck the earth because they take away a man’s independence.
+ - Under pressure, the mouth speaks when the brain is disengaged, and, sometimes unwittingly, the gearshift is in reverse when it should be in neutral.
+ - What’s right about America is that although we have a mess of problems, we have great capacity – intellect and resources – to do some thing about them.
+ - If there is unemployment in America, it is because the unemployed do not want to work.
+ - I will build a car for the great multitude.
+ - Labour is the human element which makes the fruitful seasons of the earth useful to men.
+ - To me this is the most beautiful, the most satisfactory from a scientific standpoint, the most logical theory of life. For thirty years I have leaned toward the theory of Reincarnation. It seems a most reasonable philosophy and explains many things.
+ - A bore is a person who opens his mouth and puts his feats in it.
+ - There should be no unemployment. There is large percentage of labor now which cannot make a living because wages are not high enough. That is industry’s 2nd job. 1st job is to make good product. 2nd pay a good wage.
+ - Our country is still young and its potential is still enormous. We should remember, as we look toward the future, that the more fully we believe in and achieve freedom and equal opportunity – not simply for ourselves but for others – the greater our accomplishments as a nation will be.
+ - A business that makes nothing but money is a poor business.
+ - Every piece of work in the shops moves. Save 10 steps a day for each of the 12,000 employees, and you will have saved 50 miles of wasted motion and misspent energy.
+ - To do more for the world than the world does for you – that is success.
+ - One who fears failure limits his activities. Failure is only the opportunity to more intelligently begin again.
+ - Anyone who keeps learning stays young.
+ - Impossible means that you haven’t found a solution yet .
+ - Every object tells a story if you know how to read it.
+ - We do not make changes for the sake of making them, but we never fail to make a change when once it is demonstrated that the new way is better than the old way.
+ - If you think of standardization as the best that you know today, but which is to be improved tomorrow; you get somewhere.
+ - It is well enough that people of the nation do not understand our banking and monetary system, for if they did, I believe there would be a revolution before tomorrow morning.
+ - We don’t want tradition. We want to live in the present and the only history that is worth a tinker’s dam is the history we make today.
+ - There is one rule for the industrialist and that is: Make the best quality of goods possible at the lowest cost possible, paying the highest wages possible.
+ - If there is any one secret of success, it lies in the ability to get the other person’s point of view and see things from that person’s angle as well as from your own.
+ - Money doesn’t change men, it merely unmasks them. If a man is naturally selfish or arrogant or greedy, the money brings that out, that’s all.
+ - There is no disgrace in honest failure; there is disgrace in fearing to fail.
+ - Greatest thing in life is experience. Even mistakes have value.
+ - The two most important things in any company do not appear in its balance sheet: its reputation and its people.
+ - Anyone who stops learning is old, whether at twenty or eighty.
+ - Paying attention to simple little things that most men neglect makes a few men rich.
+ - You don’t have to hold a position to be a leader.
+ - It is always possible to do a thing better the second time.
+ - Every time you try to quit smoking you are actually getting closer to staying smoke free.
+ - Too many men are afraid of being fools.
+ - You can’t learn in school what the world is going to do next year.
+ - The greatest thing in life is to keep your mind young.
+ - There is joy in work. There is no happiness except in the realization that we have accomplished something.
+ - You can do anything if you have enthusiasm.
+ - The only statement I care to make about the Protocols is that they fit in with what is going on.
+ - Failure is the chance to do it better next time.
+ - Education is preeminently a matter of quality, not amount.
+ - The true measure of a successful leader is their ability to discover the hidden talent in those they lead and challenge them to achieve greatness. If you think you can do a thing or think you can’t do a thing, you are right.
+ - The farther you look back, the farther you can look ahead.
+ - Those who believe they can do something and those who believe they can’t are both right.
+ - Wealth, like happiness, is never attained when sought after directly. It comes as a by-product of providing a useful service.
+ - Profit is a by-product of work; happiness is its chief product.
+ - The gifted man bears his gifts into the world, not for his own benefit, but for the people among whom he is placed; for the gifts are not his, he himself is a gift to the community.
+ - A customer votes everyday with his dollar. Our job is make sure he votes for us.
+ - There are three things that grow more precious with age; old wood to burn, old books to read, and old friends to enjoy.
+ - People are as happy as they choose to be.
+ - The highest use of capital is not to make more money, but to make money do more for the betterment of life.
+ - No unemployment insurance can be compared to an alliance between a man and a plot of land.
+ - Business men go down with their businesses because they like the old way so well they cannot bring themselves to change. One sees them all about – men who do not know that yesterday is past, and who woke up this morning with their last year’s ideas.
+ - If I’d listened to customers, I’d have given them a faster horse.
+ - Business must be run at a profit, else it will die. But when anyone tries to run a business solely for profit, then also the business must die, for it no longer has a reason for existence.
+ - If people understood how the economic system works, there’d be a revolution in a minute.
+ - I believe we are reincarnated. You, I, we reincarnate over and over. We live many lives, and store up much experience. Some are older souls than others and so they know more. It seems to be an intuitive “gift.” It is really hard-won experience.
+ - Many people are busy trying to find better ways of doing things that should not have to be done at all. There is no progress in merely finding a better way to do a useless thing.
+ - The way to learn to do things is to do things. The way to learn a trade is to work at it. Success teaches how to succeed. Begin with the determination to succeed, and the work is half done already.
+ - Why use up the forests which were centuries in the making and the mines which required ages to lay down, if we can get the equivalent of forest and mineral products in the annual growth of the hemp fields?
+ - The best way is always the simplest. The attics of the world are cluttered up with complicated failures.
+ - The more you think, the more time you have.
+ - It is failure that is easy. Success is always hard.
+ - Nobody can think straight who does not work. Idleness warps the mind.
+ - America is not a land of money but of wealth-not a land of rich people, but of successful workers.
+ - Do you want to know the cause of war? It is capitalism, greed, the dirty hunger for dollars. Take away the capitalist and you will sweep war from the earth.
+ - Almost all enduring success comes to people after they are forty. For seldom does mature judgment arrive before then.
+ - For most purposes, a man with a machine is better than a man without a machine.
+ - Whatever you have, you must either use or lose.
+ - A market is never saturated with a good product, but it is very quickly saturated with a bad one.
+ - Ideas are of themselves extraordinarily valuable, but an idea is just an idea. Almost anyone can think up an idea. The thing that counts is developing it into a practical product.
+ - The man who will use his skill and constructive imagination to see how much he can give for a dollar, instead of how little he can give for a dollar, is bound to succeed.
+ - An educated person, I think, is one who not only knows a lot, but knows how to do a lot of things.
+ - Hard knocks have a place and value, but hard thinking goes farther in less time.
+ - To lift farm drudgery off flesh and blood and lay it on steel and motors has been my most constant ambition.
+ - The only motive that can keep politics pure is the motive of doing good for one’s country and its people.
+ - The more detailed the plan, the easier the trip.
+ - Power and machinery, money and goods, are useful only as they set us free to live.
+ - Women do not win formula one races, because they simply are not strong enough to resist the G-forces. In the boardroom, it is different. I believe women are better able to marshal their thoughts than men and because they are less egotistical they make fewer assumptions.
+ - Sometimes you just don’t like somebody.
+ - Anyone who does anything useful will not go unpaid.
+ - The human race cannot forever exist half-exploiters and half-exploited.
+ - The man who is too set to change is dead already. The funeral is a mere detail.
+ - The most important history is the history we make today.
+ - The only thing you can give a man without hurting him is an opportunity.
+ - Disappointment is just the chance to start once more, this time all the more insightfully.
+ - Time and money spent in helping men to do more for themselves is far better than mere giving.
+ - There is no failure except failure to serve one’s purpose.
+ - A big business never becomes big by being a narrow society looking after only the interests of its organization and stockholders.
+ - The most difficult job is the one that you never get started on.
+ - Every man starts with all there is. Everything is here-the essence and substance of all there is.
+ - I do not believe a man can ever leave his business. He ought to think of it by day and dream of it by night.
+ - There is joy in work.
+ - You must know all there is to know in your particular field and keep on the alert for new knowledge. The least difference in knowledge between you and another man may spell his success and your failure.
+ - A man ought to be able to live on a scale commensurate with the service that he renders.
+ - It is the customer that pays the wages.
+ - The longer an article is in the process of manufacture and the more it is moved about, the greater its ultimate cost.
+ - Thinking is the hardest work we do.
+ - History is more or less bunk.
+ - Mark my word: A combination airplane and motor car is coming...
+ - The air is full of ideas. They are knocking you in the head all the time. You only have to know what you want, then forget it, and go about your business. Suddenly, the idea will come through. It was there all the time.
+ - What we call evil, it seems to me, is simply ignorance bumping its head in the dark.
+ - Exercise is bunk. If you are healthy, you don’t need it: if you are sick you should not take it.
+ - Integrity is crucial for business success – once you can fake that, you’ve got it made.
+ - I adopted the theory of reincarnation when I was 26. Genius is experience. Some think to seem that it is a gift or talent, but it is the fruit of long experience in many lives.
+ - The Jews caused the war, the Jews caused the outbreak of thieving and robbery all over the country, the Jews caused the inefficiency of the navy.
+ - Many people miss opportunity because it came disguised in overalls.
+ - I can visualize the time when almost every family will have a small plane in their back yard.
+ - I believe God is managing affairs and that He doesn’t need any advice from me. With God in charge, I believe everything will work out for the best in the end. So what is there to worry about.
+ - You can’t tell me you can make any system or country work with low wages and high prices, and high wages with high prices don’t mean anything when the prices eat up the wages and don’t leave anything over.
+ - Why should I clutter my mind with general information when I have men around me who can supply any knowledge I need?
+ - The secret of success is to understand the viewpoint of others.
+ - Capital punishment is as fundamentally wrong as a cure for crime as charity is wrong as a cure for poverty.
+ - You will find men who want to be carried on the shoulders of others, who think that the world owes them a living. They don’t seem to see that we must all lift together and pull together.
+ - That the Devil finds work for idle hands to do is probably true. But there is a profound difference between leisure and idleness.
+ - Of course, it is not the employer who pays wages. He only handles the money. It is the product that pays wages and it is the management that arranges the production so that the product may pay the wages.
+ - The depression was just a state of mind. It is over for everyone who has changed his state of mind.
+ - Burdening people with debt is an old deal not a new deal.
+ - Economy has frequently nothing whatever to do with the amount of money being spent, but with the wisdom used in spending it.
+ - One of the most difficult things to do in life is thinking; that’s why so few people engage in it.
+ - Every one knows that insufficient rest and gorging are not good for anyone, either physically or mentally.
+ - No two men are just alike. Every new life is a new thing under the sun; there has never been anything like it before, and never will be again.
+ - Competition is the keen cutting edge of business, always shaving away at costs.
+ - Every business is a monarchy with, not a man, but an idea as king.
+ - No government can guarantee security. It can only tax production, distribution and service and gradually crush the power to pay taxes. That settles nothing. It only uses up the gains of the past and postpones the developments of the future.
+ - Thinking without constructive action becomes a disease.
+ - Life, as I see it, is not a location, but a journey. Life flows.
+ - The average man won’t really do a day’s work unless he is caught and cannot get out of it. There is plenty of work to do if people would do it.
+ - Machines were devised not to do a man out of a job, but to take the heavy labor from man’s back and place it on the broad back of the machine.
+ - A man’s real education begins after he has left school. True education is gained through the discipline of life.
+ - I see no advantage in these new clocks. They run no faster than the ones made 100 years ago.
+ - Merely gathering knowledge may become the most useless work a man can do. What can you do to help and heal the world? That is the educational test.
+ - There is no such thing as no chance.
+ - There is fuel in every bit of vegetable matter that can be fermented. There’s enough alcohol in one year’s yield of an acre of potatoes to drive the machinery necessary to cultivate the fields for a hundred years.
+ - A man given to pride is usually proud of the wrong thing.
+ - Any decision you make isn’t worth a tinkers damn until you have formed the habit of making and keeping it.
+ - Business is never so healthy as when, like a chicken, it must do a certain amount of scratching around for what it gets.
+ - There is safety in small beginnings and there is unlimited capital in the experience gained by growing.
+ - There are two ways of making yourself stand out from the crowd. One is by having a job so big you can go home before the bell rings if you want to. The other is by finding so much to do that you must stay after the others have gone. The one who enjoys the former once took advantage of the latter.
+ - The only prosperity the people can afford to be satisfied with is the kind that lasts.
+ - Our policy is to reduce the price, extend the operations, and improve the article.
+ - Success is a matter of adjusting one’s efforts to obstacles and one’s abilities to a service needed by others.
+ - The cure for materialism is to have enough for everybody and to share. When people are sure of having what they need they cease to think about it.
+ - Every experience is worth having.
+ - Do your best every time because by doing a thing well you build something valuable into yourself.
+ - Two classes of people lose money; those who are too weak to guard what they have; those who win money by trick. They both lose in the end.
+ - When the leaves of the strongest tree fall, spring is here.
+ - Money doesn’t make us anyway it just unmasks us.
+ - I didn’t get much peace, but I heard in Norway that Russia might well become a huge market for tractors soon.
+ - A low wage business is always insecure.
+ - Businessmen go down with their businesses because they like the old way so well they cannot change.
+ - All life is experience, and one level is exchanged for another only when its lesson is learned.
+ - The only true test of values, either of men or of things, is that of their ability to make the world a better place in which to live.
+ - I could use a hundred people who don’t know there is such a word as impossible.
+ - An imitation may be quite successful in its own way, but imitation can never be Success. Success is a first-hand creation.
+ - Education is not something to prepare you for life; it is a continuous part of life.
+ - A man’s college and university degrees mean nothing to me until I see what he is able to do with them.
+ - Greed is merely a species of nearsightedness.
+ - If I lose a billion dollars, I will have it back in less than five years.
+ - An idealist is a person who helps other people to be prosperous.
+ - The question who ought to be boss is like who ought to be the tenor in the quartet? Obviously, the man who can sing tunor.
+ - Political parties are like poets, born, not made.
+ - I found that competition was supposed to be a menace and that a good manager circumvented his competitors by getting a monopoly by artificial means.
+ - The way out of the depression is to start spending and doing things.
+ - People see successes that men have made and somehow they appear to be easy. But that is a world away from the facts. It is failure that is easy. Success is always hard. A man can fail easily; he can succeed only by paying out all that he has and is.
+ - Mr Edison gave America just what was needed at that moment in history. They say that when people think of me, they think of my assembly line. Mr. Edison, you built an assembly line which brought together the genius of invention, science and industry.
+ - A manufacturer is not through with his customer when a sale is completed. He has then only started with his customer.
+ - Opportunities will not overlook you because you are wearing overalls.
+ - Life is work, and everything you do is so much more experience. Sometimes you work for wages, sometimes not, but what does anybody make but a living? And whatever you have you must either use or lose.
+ - It’s your thinking that decides whether you’re going to succeed or fail.
+ - Come ye thankful people, come, Raise the song of Harvest-home!
+ - The farther we get away from the land, the greater our insecurity.
+ - In my mind nothing is more abhorrent than a life of ease. None of us has any right to ease. There is no place in civilization for the idler.
+ - Always demanding the best of oneself, living with honor, devoting one’s talents and gifts to the benefits of others – these are the measures of success that endure when material things have passed away.
+ - If governments would only understand that if people are left alone they’ll work out their own salvation.
+ - I wouldn’t give five cents for all the art in the world.
+ - Money is like an arm or leg – use it or lose it.
+ - Most people think that faith means believing something; oftener it means trying something, giving it a chance to prove itself.
+ - If two people agree, one of them is unnecessary.
+ - When I can’t handle events, I let them handle themselves.
+ - Three rules: I do not eat too much; I do not worry too much; and, if I do my best, I believe that what happens, happens for the best.
+ - The man who has the largest capacity for work and thought is the man who is bound to succeed.
+ - The greatest day of my life was the day I married Mrs. Ford.
+ - My grandfather killed my father in my mind. I know he died of cancer-but it was because of what my grandfather did to him.
+ - When bankers get into business they usually destroy it.
+ - No one will ever get anywhere in this world unless he becomes a teacher, one who can show others how to do things.
+ - I cannot discover that anyone knows enough to say definitely what is and what is not possible.
+ - The boss is not paying you. They just keep the money for you only. New customers who actually paid.
+ - Writing is the only profession where nobody considers you ridiculous if you earn no money. Money is like an arm or a leg; use it or lose it.
+ - We have never considered any costs as fixed. Therefore we first reduce the price to a point where we believe more sales will result. Then we go ahead and try to make the price. We do not bother about the costs. The new price forces the cost down.
+ - I invented nothing new. I simply combined the inventions of others into a car. Had I worked fifty or ten or even five years before, I would have failed.
+ - Wars do not end wars any more than an extraordinarily large conflagration does away with the fire hazard.
+ - You can’t build a reputation on what you’re going to do. It’s simple, fantasize, rehearse, then go out into the world and DO IT!
+ - As we serve our jobs we serve the world.
+ - I don’t like to read books. They muss up my mind.
+ - The public should always be wondering how it is possible to give so much for the money.
+ - History doesn’t mean dates and wars and textbooks to me; it means the unconquerable pioneer spirit of man.
+ - Since we do not take a man on his past history, we do not refuse him because of his past history. I never met a man who was thoroughly bad. There is always some good in him if he gets a chance.
+ - He who would really benefit mankind must reach them through their work.
+ - Money the root of all evil, unless used for good purpose.
+ - We now know that anything which is economically right is also morally right. There can be no conflict between good economics and good morals.
+ - I don’t expect to retire. Every man must work, that’s his natural destiny.
+ - Speculation is only a word covering the making of money out of the manipulation of prices, instead of supplying goods and services.
+ - The unhappiest man on earth is the one who has nothing to do.
+ - We are here for experience, and experience is a preparation to know the Truth when we meet it.
+ - Then why flounder around waiting for good business? Get the costs down by better management. Get the prices down to the buying power.
+ - The function of the machine is to liberate man from brute burdens, and release his energies to the building of his intellectual and spiritual powers for conquests in the fields of thought and higher action.
+ - To teach that a comparatively few men are responsible for the greatest forward steps of mankind is the worst sort of nonsense.
+ - Our clothing, our food, our household furnishings – all could be much simpler than they now are and at the same time be better looking.
+ - Money is worth what it will help you to produce or buy and no more.
+ - A dollar put into a book and a book mastered might change the whole course of a boy’s life. It might easily be the beginning of the development of leadership that would carry the boy far in service to his fellow men.
+ - It is regrettable that people think about our monetary system, and of our economic structure, only in times of depression.
+ - Irrespective of whether you suspect you are able to do a factor or not, that you are right.
+ - As long as we look to legislation to cure poverty or to abolish special privilege we are going to see poverty and special privilege grow.
+ - A scatterbrain is one who never has an unspoken thought.
+ - Thinking first of money instead of work brings fear.
+ - The truth frequently seems unreasonable; the truth frequently is depressing; the truth sometimes seems to be evil, but it has the eternal advantage, it is the truth and what is built thereon neither brings nor yields to confusion.
+ - These men of many nations must be taught American ways, the English language, and the right way to live.
+ - The time will come when man will know even what is going on in the other planets and perhaps be able to visit them.
+ - In the Ford Motor Company, we emphasize service equally with sales.
+ - Minicars produce miniprofits.
+ - When you get a whole country – as did ours – thinking that Washington is a sort of heaven and behind its clouds dwell omniscience and omnipotence, you are educating that country into a dependent state of mind which augers ill for the future.
+ - People are never so likely to be wrong as when they are organized. And they never have so little freedom. Perhaps that is why the people at large keep their freedom. People can be manipulated only when they are organized.
+ - Our help does not come from Washington, but from ourselves.
+ - The time is coming when man will be able to determine the length of his lifespan by controlling his diet.
+ - There are two fools in this world. One is the millionaire who thinks that by hoarding money he can somehow accumulate real power, and the other is the penniless reformer who thinks that if only he can take the money from one class and give it to another, all the world’s ills will be cured.
+ - You take all the experience and judgment of men over 50 out of the world and there wouldn’t be enough left to run it.
+ - It is not usual to speak of an employee as a partner, and yet what else is he?
+ - Without doubt, Thomas Edison is my greatest contemporary.
+ - The great need of the world has always been for leaders. With more leaders we could have more industry. More industry, more employment and comfort for all.
+ - Understand the difference between being at work and working.
+ - The basically simple things are best, whether it’s automobiles or diets or philosophy.
+ - We want to get full value out of labour so that we may be able to pay it full value. It is use – not conservation – that interests us.
+ - Every man is better for a period of work under the open sky.
+ - There is a subtle danger in a man thinking that he is “fixed” for life. It indicates that the next jolt of the wheel of progress is going to fling him off.
+ - If there is one thing I would banish from earth, it is fear. And the only way to do that is to see that there is nothing to fear – nothing in all of life to be afraid of.
+ - Thinking always ahead, thinking always of trying to do more, brings a state of mind in which nothing is impossible. The moment one gets into the ‘expert’ state of mind a great number of things become impossible.
+ - Most people think of success in terms of getting; success, however, begins in terms of giving.
+ - This company doesn’t pay anybody. Only customers can do that. The company merely handles the money.
+ - Don’t expect people to respect you for what you are “planning” to do.
+ - Work mixed with management becomes not only easier but more profitable. The time is past when anyone can boast about ‘hard work’ without having a corresponding result to show for it.
+ - If you don’t think of the future, you won’t have one.
+ - If you think you can or cannot accomplish a task, you will be correct in either case.
+ - The whole key of the profitable everyday living will be to discover out what’s one’s future to try and do, and after that do it.
+ - Who stops learning may be old.
+ - Look beyond the individual to the cause of his misery.
+ - The people must be helped to think naturally about money. They must be told what it is, and what makes it money, and what are the possible tricks of the present system which put nations and peoples under control of the few.
+ - Reading musses up my mind.
+ - The best way to make money in business is not to think too much about making it.
+ - New York is a different country. Maybe it ought to have a separate government. Everybody thinks differently, they just don’t know what the hell the rest of the United States is.
+ - If money is your hope for independence you will never have it.
+ - Greatest thing we can produce is character. Everything else can be taken from us, but not our character.
+ - Any man can learn anything he will, but no man can teach except to those who want to learn.
+ - All that money can do is buy us some one else’s work in exchange for our own.
+ - If the people really set their minds on anything it is impossible to prevent their getting what they want.
+ - When you once get an idea in which you believe with all your heart, work it out.
+ - Borrowing for expansion is one thing; borrowing to make up for mismanagement and waste is quite another.
+ - A business which can bring itself to the point where it attracts the attention of money should be able to continue on its own feet without being financed.
+ - Competition whose motive is merely to compete, to drive some other fellow out, never carries very far.
+ - Every depression is a challenge to every manufacturer to put more brains into his business.
+ - At that point the child is eligible for adoption and can be placed with a family that can love the child and can raise the child.
+ - Records can be destroyed if they do not suit the prejudices of ruling cliques, lost if they become incomprehensible, distorted if a copyist wishes to impose a new meaning upon them, misunderstood if we lack the information to interpret them. The past is like a huge library, mostly fiction.
+ - We are always seeking for those things which are in the clouds, not for those that lie at our feet.
+ - Progress is not made by pulling off a series of stunts. Each step has to be regulated. A man cannot expect to progress without thinking.
+ - Even a mistake may turn out to be the one thing necessary to a worthwhile achievement.
+ - The thing to do with money is to put it back into yourself, into your work, into the thing that is important, into whatever you are so much interested in that it is more important than money.
+ - The hardest thing in the world to do is to think, and that is why people do so little of it.
+ - A nation that knows how to work will never suffer.
+ - The high wage begins down in the shop. If it is not created there it cannot get into pay envelopes. There will never be a system invented which will do away with the necessity for work.
+ - We try to pay a man what he is worth and we are not inclined to keep a man who is not worth more than the minimum wage.
+ - I regarded our progress merely as an invitation to do more – as an indication that we had reached a place where we might begin to perform a real service.
+ - The workingmen have been exploited all the way up and down the line by employers, landlords, everybody.
+ - If there is one thing which I would banish from the earth it is fear.
+ - We have always found that, if the principles were right, the area over which they were affected did not matter. Size is only a matter of the multiplication table.
+ - Nothing can be made except by makers, nothing can be managed except by managers. Money cannot make anything and money cannot manage anything.
+ - There are people who say they can, others they can not. In general, they are all right .
+ - It is a striving to attain the best. To throttle it would mean to stop all progress. Certain men do not need to compete. They are pioneers.
+
+368 quotes

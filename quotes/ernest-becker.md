@@ -1,0 +1,40 @@
+ - What man really fears is not so much extinction, but extinction with insignificance.
+ - Modern man is drinking and drugging himself out of awareness, or he spends his time shopping, which is the same thing.
+ - The irony of man’s condition is that the deepest need is to be free of the anxiety of death and annihilation; but it is life itself which awakens it, and so we must shrink from being fully alive.
+ - If everyone lives roughly the same lies about the same thing, there is no one to call them liars. They jointly establish their own sanity and themselves normal.
+ - The idea of death, the fear of it, haunts the human animal like nothing else; it is a mainspring of human activity – designed largely to avoid the fatality of death, to overcome it by denying in some way that it is the final destiny of man.
+ - War is a sociological safety valve that cleverly diverts popular hatred for the ruling classes into a happy occasion to mutilate or kill foreign enemies.
+ - Man cannot endure his own littleness unless he can translate it into meaningfulness on the largest possible level.
+ - It is fateful and ironic how the lie we need in order to live dooms us to a life that is never really ours.
+ - Horror alone brings peace of mind.
+ - All power is in essence power to deny mortality.
+ - Man is literally split in two: he has an awareness of his own splendid uniqueness in that he sticks out of nature with a towering majesty, and yet he goes back into the ground a few feet in order blindly and dumbly to rot and disappear forever.
+ - Guilt results from unused life, from the unlived in us.
+ - Each society is a hero system which promises victory over evil and death.
+ - We are gods with anuses.
+ - Better guilt than the terrible burden of freedom and responsibility.
+ - Man’s natural and inevitable urge to deny mortality and achieve a heroic self-image are the root causes of human evil.
+ - Obviously, all religions fall far short of their own ideals.
+ - What is the ideal for mental health, then? A lived, compelling illusion that does not lie about life, death, and reality; one honest enough to follow its own commandments: I mean, not to kill, not to take the lives of others to justify itself.
+ - The road to creativity passes so close to the madhouse and often detours or ends there.
+ - The key to the creative type is that he is separated out of the common pool of shared meanings. There is something in his life experience that makes him take in the world as a problem; as a result he has to make personal sense out of it.
+ - The artist takes in the world, but instead of being oppressed by it, he reworks it in his own personality and recreates it in the work of art.
+ - For man, maximum excitement is the confrontation of death and the skillful defiance of it by watching others fed to it as he survives transfixed with rapture.
+ - Once you base your whole life striving on a desperate lie, and try to implement that lie, you instrument your own undoing.
+ - Genuine heroism for man is still the power to support contradictions, no matter how glaring or hopeless they may seem.
+ - People create the reality they need in order to discover themselves.
+ - The greatest cause of evil included all human motives in one giant paradox. Good and bad were so inextricably mixed that we couldn’t make them out; bad seemed to lead to good, and good motives led to bad. The paradox is that evil comes from man’s urge to heroic victory over evil.
+ - To live fully is to live with an awareness of the rumble of terror that underlies everything.
+ - One of the main reasons that it is so easy to march men off to war is that each of them feels sorry for the man next to him who will die.
+ - The man of knowledge in our time is bowed down under a burden he never imagined he would ever have: the overproduction of truth that cannot be consumed.
+ - What does it mean to be a self-conscious animal? The idea is ludicrous, if it is not monstrous. It means to know that one is food for worms.
+ - Relationship is thus always slavery of a kind, which leaves a residue of guilt.
+ - Ecological devastation is the excrement, so to speak, of man’s power worship.
+ - When we understand that man is the only animal who must create meaning, who must open a wedge into neutral nature, we already understand the essence of love. Love is the problem of an animal who must find life, create a dialogue with nature in order to experience his own being.
+ - In seeking to avoid evil, humanity is responsible for bringing more evil into the world than organisms could ever do merely by exercising their digestive tracts. It is our ingenuity, rather than our animal nature, that has given our fellow creatures such a bitter earthly fate.
+ - Love is the problem of an animal...
+ - Men use one another to assure their personal victory over death.
+ - We might say that psychoanalysis revealed to us the complex penalties of denying the truth of man’s condition, what we might call the costs of pretending not to be mad.
+ - The road to creativity passes...
+
+38 quotes

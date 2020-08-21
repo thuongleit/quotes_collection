@@ -1,0 +1,35 @@
+ - I have gone to the forest.
+ - A word can be transformed into a coulour, light, a smell; it is the writer’s task to use it in such a way that it serves, never fails, can never be ignored.
+ - There is nothing like being left alone again, to walk peacefully with oneself in the woods. To boil one’s coffee and fill one’s pipe, and to think idly and slowly as one does it.
+ - Love is every bit as violent and dangerous as murder.
+ - And love became the world’s origin and the world’s ruler, yet littered its path is with flowers and blood, flowers and blood.
+ - Earth and sea merged, the sea tossed itself in the air in a fantastic dance, into the shapes of men and horses and tattered banners. I stood in the lee of an overhanging rock and thought of many things.
+ - But now it was spring again, and spring was almost unbearable for sensitive hearts. It drove creation to its utmost limits, it wafted its spice-laden breath even into the nostrils of the innocent.
+ - The whisper of the blood and the pleading of the bone marrow.
+ - Truth is neither ojectivity nor the balanced view; truth is a selfless subjectivity.
+ - The long, long road over the moors and up into the forest – who trod it into being first of all? Man, a human being, the first that came here. There was no path before he came.
+ - But things worked out. Everything works out. Though sometimes they work out sideways.
+ - In old age we are like a batch of letters that someone has sent. We are no longer in the past, we have arrived.
+ - The heavy red roses smoldering in the foggy morning, blood-colored and uninhibited, made me greedy, and tempted me powerfully to steal one – I asked the prices merely so I could come as near them as possible.
+ - I can’t even make up a rhyme about an umbrella, let alone death and life and eternal peace.
+ - No, I don’t admire the genius. But I admire and love the result of the genius’s activity in the world, of which the great man is only the poor necessary tool, only, so to speak, the paltry awl to bore with.
+ - In my solitude, many miles from men and houses, I am in a childishly happy and carefree state of mind, which you are incapable of understanding unless someone explains it to you.
+ - Small jerks began to appear in my legs, my walk became unsteady precisely because I wanted it to be smooth.
+ - Today riches and honours have been lavished on me, but one gift has been lacking, the most important one of all, the only one that matters, the gift of youth.
+ - Heaven knows that there are plenty of opportunities in later life, too, for being carried away. What of it? We remain what we are and, no doubt, it is all very good for us!
+ - Do not forget, some give little, and it is much for them, others give all, and it costs them no effort; who then has given most?
+ - I have had much to learn from Sweden’s poetry and, more especially, from her lyrics of the last generation.
+ - One must know and recognize not merely the direct but the secret power of the word.
+ - Language must resound with all the harmonies of music. The writer must always, at all times, find the tremulous word which captures the thing and is able to draw a sob from my soul by its very rightness.
+ - I stood in the lee of an overhanging rock and thought of many things.
+ - No worse fate can befall a young man or woman than becoming prematurely entrenched in prudence and negation.
+ - No, what I should really like to do right now, in the full blaze of lights, before this illustrious assembly, is to shower every one of you with gifts, with flowers, with offerings of poetry – to be young once more, to ride on the crest of the wave.
+ - The writer must be able to revel and roll in the abundance of words; he must know not only the direct but also the secret power of a word. There are overtones and undertones to a word, and lateral echoes, too.
+ - There was a rock in front of my hut, a tall, gray rock. By its looks it seemed to be well-disposed toward me...
+ - When good befalls a man he calls it Providence, when evil fate.
+ - A few days back someone sent me two feathers. Two bird’s feathers in a sheet of note-paper with a coronet, and fastened with a seal. Sent from a place a long way off; from one who need not have sent them back at all. That amused me too, those devilish green feathers.
+ - Rather than admire the mediocre great men over whom passersby nudge each other in awe, I venerate the young, unknown geniuses who die in their teens, their souls shattered – delicate, phosphorescent glowworms that one must see to know they really did exist.
+ - Were I more conversant with literature and its great names, I could go on quoting them ad infinitum and acknowledge my debt for the merit you have been generous enough to find in my work.
+ - You are welcome to your intellectual pastimes and books and art and newspapers; welcome, too, to your bars and your whisky that only makes me ill. Here am I in the forest, quite content.
+
+33 quotes

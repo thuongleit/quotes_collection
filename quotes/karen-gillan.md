@@ -1,0 +1,30 @@
+ - I would like to think I’m a good secret-keeper, when it comes to friends. I’m quite loyal like that.
+ - Space excites me. My dream is to go to space.
+ - All I look for is good quality stuff. Whatever I read, if I like it, then I want to do it. It’s as simple as that. I don’t have a master plan of, “I should do this genre, and then this.”
+ - It’s good to go with your gut instincts in life. You just should. Even if it doesn’t work out, something good will come out of it.
+ - Being in ‘Doctor Who’ has been so amazing. I don’t think I will ever have a job quite so fun ever again. I feel sad because I am going to leave, but with any story, it has to come to an end.
+ - I feel like men don’t hold the door open as much.
+ - Acting is all about finding the truth within whatever world you’re in.
+ - I would say probably not being able to do what I want to do and not being completely fulfilled and happy. I don’t know how that would manifest itself in a mirror. It’s just that feeling of not being satisfied with my life would be the worst thing that could ever happen to me.
+ - I actually don’t have a problem with shooting and then just walking away and forgetting about it. I’m not really like a Method actor or an old soul. It doesn’t stay with me.
+ - Basically, I always go to vintage shops rather than going shopping for new clothes.
+ - I dyed my hair pink when I was fifteen.
+ - How do you create chemistry? If only I knew that! Some people say it’s a natural thing that you have with someone, and maybe it is to do with that, but I think you can work on it.
+ - I am legitimately Scottish. I can officially say – yes. Yeah, I am from Inverness in the Highlands of Scotland.
+ - I want to be like Robin Williams, really. It’s all the different characters he does, all the different voices.
+ - I went to Floridita on Wardour Street when I was 18. All I could afford was pumpkin soup and a glass of champagne, but it was worth it.
+ - I had a lot of alone time with no brothers or sisters running around, or anything. I would just sit and imagine things, all the time.
+ - I like being involved in interesting and creative things. I’d just rather be involved in creating it, rather than being in it.
+ - I wanted to be as authentic as possible because, first of all, Jean Shrimpton is still alive. And, she’s interesting enough to be played accurately. I didn’t need to add things.
+ - I suppose I am one of life’s naturally clumsy people; I don’t drop stuff all the time, or break things, but I’m just generally a bit flustered.
+ - I have no sense of being famous – you’re just working. And then you’ll have a random day in London when you’ll do some press and it creeps into your awareness that this goes out – that what you do every day goes out to televisions right across the country.
+ - I know what it’s like to be a model and go to castings where some people like what they see and others look at you with distaste.
+ - I really love Alexa Chung’s style. I really think she gets it right all the time. I’ve never seen a picture of her where I didn’t love the outfit.
+ - I never cared about modeling. As a model, you’re powerless.
+ - I don’t like modeling, but in terms of the places I got to visit, it was great.
+ - I don’t actually do any exercise, which is really bad. But I wear heels a lot. My theory is that it’s painful, so it’s gotta do something.
+ - I’ve got a coin with my face on it. It is really bizarre.
+ - I’d like to make over Marilyn Manson and just dress him really normally to see what he looks like. That’d be really weird!
+ - My own fashion sense has been influenced by ‘We’ll Take Manhattan.’ It’s gotten a little better.
+
+28 quotes

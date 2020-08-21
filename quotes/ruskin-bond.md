@@ -1,0 +1,30 @@
+ - Happiness is a mysterious thing, to be found somewhere between too little and too much.
+ - To be able to laugh and to be merciful are the only things that make man better than the beast.
+ - It’s courage, not luck, that takes us through to the end of the road.
+ - It is always the same with mountains. Once you have lived with them for any length of time, you belong to them. There is no escape.
+ - There is money to be made in the market place, but under the cherry tree there is rest.
+ - The India I Love, does not make the headlines, but I find it wherever I go – in field or forest, town or village, mountain or desert – and in the hearts and minds of people who have given me love and affection for the better part of my lifetime.
+ - Live long, my friend, be wise and strong. But do not from any man his song.
+ - Yesterday, I was sad, tomorrow i may be sad again, but today i know that i am happy. I want to live on and on, delighting like a pagan in all that is physical; and i know that this one lifetime, however long, cannot satisfy my heart.
+ - Hapiness is as exclusive as a butterfly, and you must never pursue it. If you stay very still, it may come and settle on your hand. But only briefly. Savour those moments, for they will not come in your way very often.
+ - But the trees seemed to know me. They whispered among themselves and beckoned me nearer...
+ - The more you write, the better you will write! So – keep at it!
+ - I write a story in my head. I see the story like a movie.
+ - The past is always with us, for it feeds the present.
+ - Yes, I’d love to have a garden of my own – spacious, and full of everything that is fragrant and flowering. But if I don’t succeed, never mind – I’ve still got the dream.
+ - I have come to believe that the best kind of walk, or journey, is the one in which you have no particular destination when you set out.
+ - To return to my own trees, I went among them often, acknowledging their presence with a touch of my hand against their trunks.
+ - When I write I just keep a waste paper basket handy in case I am experiencing a block.
+ - I am a storyteller from a personal viewpoint. When I run out of people I invent ghosts. I don’t believe in ghosts. Never saw one.
+ - I don’t travel so much now, I get tired.
+ - Readers want more of the same from you. So stick to one genre.
+ - Red roses for young lovers. French beans for longstanding relationships.
+ - I never break my journey at Deoli but i pass through as often as I can.
+ - Hinduism comes closest to being a nature religion. Rivers, rocks, trees, plants, animals, and birds all play their part, both in mythology and everyday worship. This harmony is most evident in remote places like this, and I hope it does not loose its unique character in the ruthless urban advance.
+ - There are two kinds of authors – subjective and objective. Introverts are more inward looking.
+ - I mostly write short stories. They are best written in a continuous creative process. You have a feel of immediacy.
+ - I was nostalgic even as a young man. Preferred listening to Opera not Bing Crossby.
+ - When you write a novel you have to live with the characters for a long time. So I prefer short stories. I never wrote anything more than 250 pages.
+ - I watched a lot of movies. I was deeply influenced by movies.
+
+28 quotes

@@ -1,0 +1,26 @@
+ - September: it was the most beautiful of words, he’d always felt, evoking orange-flowers, swallows, and regret.
+ - Hypocrisy is the essence of snobbery, but all snobbery is about the problem of belonging.
+ - There is no loneliness like that of a failed marriage.
+ - One’s style holds one, thankfully, at bay from the enemies of it but not from the stupid crucifixions by those who must willfully misunderstand it.
+ - A lover is never a completely self-reliant person viewing the world through his own eyes, but a hostage to a certain delusion.
+ - I hate injustice, I despise inequity, I condemn hypocrisy, I abhor the lack of reason.
+ - Yellow is vagueness and luminousness, both.
+ - Why should a blacksmith put his hands in the fire if he has tongs?
+ - The urge for Chinese food is always unpredictable: famous for no occasion, standard fare for no holiday, and the constant as to demand is either whim, the needy plebiscite of instantly famished drunks, or pregnancy.
+ - If on a friend’s bookshelf You cannot find Joyce or Sterne Cervantes, Rabelais, or Burton, You are in danger, face the fact, So kick him first or punch him hard And from him hide behind a curtain.
+ - I kneel to my Lord because I am such a failure. I pray, I hope, I look to the Gospels.
+ - Faculty Meetings are held whenever the need to show off is combined with the imperative of accomplishing nothing.
+ - Being natural is one of the most irritating poses I know in people.
+ - There is a terrible blindness in the love that wants only to accommodate. It’s not only to do with omissions and half-truths. It implants a lack of being in the speaker and robs the self of an identity without which it is impossible for one to grow close to another.
+ - The man who has faith in logic is always cuckolded by reality.
+ - Reviewing books is all about coziness. It is all of it a kind of caucus race. Women review women, Jewish writers review and praise Jewish writers, blacks review blacks, etc.
+ - Nothing is quite as bad as being without privacy and lonely at the same time.
+ - It’s true, you can never eat a pet you name. And anyway, it would be like a ventriloquist eating his dummy.
+ - Book-publishing is all about politics. Agents, editors, which books will be puffed, which ignored, etc.
+ - The ears, which master the face of a dunce, are that part of the head which most publishes stupidity.
+ - I read passionately with a need to know and see the act of reading as an act of cognition and not simply a means of passing time.
+ - Where there is no style, there is in effect no point of view. There is, essentially, no anger, no conviction, no self. Style is opinion, hung washing, the caliber of a bullet, teething beads.
+ - Ordinary persons, he said, smiling, found no differences between men. The artist found them all.
+ - Artists are never complete people. But if it’s art that completes them, then what is taken away?
+
+24 quotes

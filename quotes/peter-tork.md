@@ -1,0 +1,36 @@
+ - Yes, I am a good singer.
+ - The universe is permeated with the odor of turpentine!
+ - Pop music is aspirin and the blues are vitamins.
+ - The blues brings you back into the fold. The blues isn’t about the blues, it’s about we have all had the blues and we are all in this together.
+ - You should be a hero to yourself. And if you’re not check it out.
+ - Where there is clarity, there is no choice. And where there is choice, there is misery. But then, why should I speak, since I know nothing?
+ - Nobody ever lends money to a man with a sense of humor.
+ - One thing I can’t stand is late kidnappers.
+ - My most favourite gigs that ever happened were solo, before The Monkees ever happened.
+ - Hitting a baseball well, as in cricket, is a very rare skill. One of most difficult things to do in the world to do, hitting a ball coming at you at ninety miles an hour with a round bat. Wonderful to watch.
+ - The most significant thing about the Monkees as a pop phenomenon is that we were the only TV show about young adults that did not feature a wiser, older person.
+ - Vampires!!! What a time to be caught without a turtleneck!
+ - Pop music, disco music, and heavy metal music is about shutting out the tensions of life, putting it away.
+ - Elvis deserves a lot of credit for bringing the blues to middle America, not the Vegas stuff. The early stuff, The Sun records, and the first few RCA records. He was wonderful, he had the power, the drive, and he was so dedicated to his music.
+ - The Monkees was a straight sitcom, we used the same plots that were on the other situation comedies at the time. So the music wasn’t threatening, we weren’t threatening.
+ - I am a still friend with Dave Crosby, he’s a weird duck but I like him a lot.
+ - Shoe Suede Blues is ten years old this year. The Band consists of four members.
+ - I don’t know about friends, but what time I spent with The Beatles they were very courteous to me.
+ - I get to play a scorching lead guitar, and there’s not much that’s more fun than that.
+ - Ringo is one of the world’s true humans. The only one out those four guys, who did not have an agenda. Ringo was just into the music.
+ - Put you energy into music. If it fails you, you can become an accountant or a dentist. And then if you become a dentist or an accountant, it’s too late to become a musician afterwards.
+ - Shoe Suede Blues opened for the Monkees in the 1997 reunion tour for two shows. I went out in disguise when I played with Shoe Suede Blues.
+ - No, in 1968 I still wanted to be a Pop Star, and be about the music. Now, I want to be just about the music.
+ - I am more of an old black and white movies fan.
+ - I like to listen the blues and some classical.
+ - The four of us couldn’t have made a record with the time left over when we were shooting the show. We were on stage from 7.30 in the morning ’til 7 at night. Later on, when there was a break from filming, and we were sick of doing it the old way.
+ - I never listen to music in the house, I listen to music in the car.
+ - Every country has it trade offs.
+ - Michael Sunday and I are the original members of the band. We first did it just for charities and benefit concerts. It was very ad-hoc, and before we knew it, we were really a band. We went through several drummers and guitarists before we were happy with the line up.
+ - There hasn’t been one show that we did, that I didn’t enjoy to some extent.
+ - Only one of us would usually sing lead. Which most of the time was, Mickey or Dave. They thought it was perfectly a natural routine, because Mickey and Dave saw themselves as TV actors.
+ - Getting to play the blues has been transcendant for me. I can’t say if my finest hour is yet to come, you want to make a dent in this world, well I do anyway.
+ - It was so much fun to do, play the blues and then play a Monkees set on the same night.
+ - Oh, the most fun thing I’ve ever been asked to autograph was breasts.
+
+34 quotes

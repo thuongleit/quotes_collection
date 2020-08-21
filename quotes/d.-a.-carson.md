@@ -1,0 +1,50 @@
+ - The aim is never to become a master of the Word, but to be mastered by it.
+ - A text without a context is a pretext for a proof text.
+ - You cannot find excellent corporate worship until you stop trying to find excellent corporate worship and pursue God himself.
+ - Either worrying drives out prayer, or prayer drives out worrying.
+ - The kingdom of heaven is worth infinitely more than the cost of discipleship, and those who know where the treasure lies joyfully abandon everything else to secure it.
+ - Effective prayer is the fruit of a relationship with God, not a technique for acquiring blessings.
+ - Do you wish to see God’s love? Look at the cross. Do you wish to see God’s wrath? Look at the cross.
+ - Effectiveness in teaching the Bible is purchased at the price of much study, some of it lonely, all of it tiring.
+ - The place where God has supremely destroyed all human arrogance and pretension is the cross.
+ - Our prayers may be an index of how small and self-centered our world is.
+ - The way you lose the gospel is not by denying it, but by assuming it.
+ - Both God’s love and God’s wrath are ratcheted up in the move from the old covenant to the new, from the Old Testament to the New. These themes barrel along through redemptive history, unresolved, until they come to a resounding climax – in the cross.
+ - Much praying is not done because we do not plan to pray. We do not drift into spiritual life; we do not drift into disciplined prayer. We will not grow in prayer unless we plan to pray. That means we must self-consciousl y set aside time to do nothing but pray.
+ - The Bible is endlessly interesting because it is God’s story, and God by nature is himself endlessly interesting. The Bible is an ever-flowing fountain. The more you read it, the more you find its truth and beauty to be inexhaustible.
+ - Worship is the proper response of all moral, sentient beings to God, ascribing all honor and worth to their Creator-God precisely because he is worthy, delightfully so.
+ - Sin corrupts even our good deeds. We injure our shoulder trying to pat ourselves on the back.
+ - It was not nails that held Jesus to that wretched cross; it was his unqualified resolution, out of love for his Father, to do his Father’s will-and it was his love for sinners like me.
+ - If the text is God’s Word, it is appropriate that we respond with reverence, a certain fear, a holy joy, a questing obedience.
+ - Damn all false antitheses to hell, for they generate false gods, they perpetuate idols, they twist and distort our souls, they launch the church into violent pendulum swings who oscillations succeed only in dividing brothers and sisters in Christ.
+ - True freedom is not the liberty to do anything we please, but the liberty to do what we ought; and it is genuine liberty because doing what we ought now pleases us.
+ - All of us would be wiser if we would resolve never to put people down, except on our prayer lists.
+ - To know God is to be transformed, and thus to be introduced to a life that could not otherwise be experienced.
+ - Sin defies God, utterly corrupts each individual, corrodes all social relationships, and issues in death.
+ - We are lost when human opinion means more to us than God’s.
+ - We do not drift into spiritual life or disciplined prayer. We will not grow in prayer unless we plan to pray.
+ - The more clearly we see sins horror, the more we shall treasure the cross.
+ - We are dealing with God’s thoughts: we are obligated to take the greatest pains to understand them truly and to explain them clearly.
+ - It is a cheap zeal that reserves its passions to combat only the sins and temptations of others.
+ - A billion years or so into eternity, how many toys we accumulated during this life will not seem too terribly important.
+ - Despite the protestations, one sometimes wonders if we are beginning to worship, worship rather than worship God.
+ - Imagination is a God-given gift; but if it is fed dirt by the eye, it will be dirty. All sin, not least sexual sin, begins with the imagination. Therefore what feeds the imagination is of maximum importance in the pursuit of kingdom righteousness.
+ - A prayerless person is a disaster waiting to happen.
+ - The Bible does not tell us that life in this world will be fair. Evil and sin are not Victorian gentlemen; they do not play fair.
+ - The truth of the matter is that all we have to do is live long enough and we will suffer.
+ - There is a certain kind of maturity that can be attained only through the discipline of suffering.
+ - Hell is not filled with people who are deeply sorry for their sins. It is filled with people who for all eternity still shake their puny fist in the face of God Almighty.
+ - The person who prays more in public than in private reveals that he is less interested in God’s approval than in human praise. Not piety but a reputation for piety is his concern.
+ - There is no long-range effective teaching of the Bible that is not accompanied by long hours of ongoing study of the Bible.
+ - If it is hard to accept a rebuke, even a private one, it is harder still to administer one in loving humility.
+ - Christians have learned that when there seems to be no other evidence of God’s love, they cannot escape the cross.
+ - How much would our churches be transformed if each of us made it a practice to thank God for others and then to tell those others what it is about them that we thank God for?
+ - Some forms of absolutism are not bad; they may even be heroic.
+ - One cannot fail to observe a crushing irony: the gospel of relativistic tolerance is perhaps the most “evangelistic” movement in Western culture at the moment, demanding assent and brooking no rivals.
+ - Most good evangelical Study Bibles have more in common than people sometimes realize. All of them are committed to explaining the Bible to lay readers.
+ - The Christian’s whole desire, at its best and highest, is that Jesus Christ be praised. It is always a wretched bastardization of our goals when we want to win glory for ourselves instead of for him.
+ - That God normally operates the universe consistently makes science possible; that he does not always do so ought to keep science humble.
+ - Ordinary Bibles often include cross-references and brief concordances; Study Bibles include much more, all bound up in one fat volume, so that readers can find a lot of useful explanation on each page without having to hunt through Bible dictionaries and commentaries and the like.
+ - Many of us in our praying are like nasty little boys who ring front door bells and run away before anyone answers.
+
+48 quotes

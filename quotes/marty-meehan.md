@@ -1,0 +1,25 @@
+ - Black History Month must be more than just a month of remembrance; it should be a tribute to our history and reminder of the work that lies in the months and years ahead.
+ - As we celebrate Black History Month we should be grateful for the achievements they made and inspired by their legacies to continue their work.
+ - The worst excesses of the Congress of the 1980s pale in comparison with what is going on in Washington today.
+ - I don’t want to remember 2005 as a year that the government heaped unnecessary burdens upon American families. Stealing from the poor and middle class and giving to the rich, while increasing the deficit, is hardly responsible.
+ - Parts of the Voting Rights Act are due to expire next year if Congress doesn’t extend them, including the section that guarantees that voting rights will be protected by the federal government.
+ - Over the past few years special interests have had a larger and larger say over who gets what in America, and the voices of average citizens are being shut out.
+ - First of all, I’m in favor of making price gouging a crime, and in fact, one the reasons I didn’t vote for the Republican House version was because there were too many breaks for the oil companies.
+ - Real lobbying reform must end the practice of corporate lobbyists writing our laws.
+ - Regrettably, it has become clear that torture of detainees in United States custody is not limited to Abu Ghraib or even Iraq. Since Abu Ghraib, there have been increasing reports of torture.
+ - Our own State Department polls say that 80 percent of Iraqis view the United States as an unpopular occupier.
+ - The fact is I’ve been in Massachusetts for the last two weeks, and it seems over the last few days that the price is increasing by the hour at the pump, so there needs to be an aggressive investigation.
+ - The reality is that we have missed a lot of opportunities in Iraq because of a failed policy.
+ - It is never too late to regain our credibility around the world.
+ - Recently, lobbyists for the pharmaceutical industry wrote a prescription drug bill that increased their profits and did nothing to help seniors. The result: seniors are stuck with a confusing prescription drug plan that does little to help them with their costs.
+ - For three years now, our brave men and women in uniform have done everything their country has asked of them, yet President Bush still does not have a plan to win the peace in Iraq and bring our troops home.
+ - We need a tougher enforcement program and, most importantly, we need to fix the badly broken ethics system.
+ - At the same time, Republicans are pushing a $70 billion tax package that will overwhelmingly benefit the most wealthy Americans and actually increases the deficit by $16 billion.
+ - Under the leadership of President Bush and Vice President Cheney, the United States has given up the moral high ground that we used to occupy as an international leader.
+ - The 55% of American households that make less than $40,000 will get a tax break of only $7 while the households that make more than $1 million will receive an average tax break of $32,000.
+ - I support responsible spending, and balancing the budget, but this tax cut and the budget cuts of last month accomplish neither of these goals.
+ - What’s interesting is there are $12 billion of breaks in the energy bill that passed, yet we see that the sixth major oil companies in America last year made $1.1 trillion.
+ - The poorest residents of the gulf coast were most affected by the devastating hurricanes, and the poorest Americans have shouldered a disproportionate share of the burden in Iraq.
+ - Forty-five percent of Iraqi citizens think it is morally okay to attack American troops.
+
+23 quotes

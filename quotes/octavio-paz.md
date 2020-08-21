@@ -1,0 +1,79 @@
+ - Deserve your dream.
+ - The purpose of poetry is to restore to mankind the possibility to wonder.
+ - Beyond myself, somewhere, I wait for my arrival.
+ - When we learn to speak, we learn to translate.
+ - To love is to battle, to open doors. The world changes if two can look at each other and see.
+ - Every moment is nothing without end.
+ - Watching I watch myself, what I see is my creation as though entering through my eyes perception is conception into an eye more crystal clear water of thoughts, what I watch watches me, I am the creation of what I see.
+ - Love is an attempt to penetrate another being, but it can only be realized if the surrender is mutual.
+ - A flower without a stem, is beauty waiting to die. A heart without love, is a tear waiting to cry.
+ - Love is not a desire for beauty; it is a yearning for completion.
+ - No one behind, no one ahead. The path the ancients cleared has closed. And the other path, everyone’s path, easy and wide, goes nowhere. I am alone and find my way.
+ - Solitude is the profoundest fact of the human condition. Man is the only being who knows he is alone.
+ - We are condemned to kill time, thus we die bit by bit.
+ - What characterizes a poem is its necessary dependence on words as much as its struggle to transcend them.
+ - To read a poem is to hear it with our eyes; to hear it is to see it with our ears.
+ - Beyond happiness or unhappiness, though it is both things, love is intensity; it does not give us eternity but life, that second in which the doors of time and space open just a crack: here is there and now is always.
+ - The world is born when two people kiss.
+ - Love is the revelation of the other person’s freedom.
+ - Poetry is not truth, it is the resurrection of presences.
+ - What sets worlds in motion is the interplay of differences, their attractions and repulsions; life is plurality, death is uniformity.
+ - A glass pitcher, a wicker basket, a tunic of coarse cloth. Their beauty is inseparable from their function. Handicrafts belong to a world existing before the separation of the useful and the beautiful.
+ - To fight evil is to fight ourselves.
+ - The value of e-commerce is not in the e, but in the commerce.
+ - Erotic acts are instinctive; they fulfill a role in nature. The idea is familiar, but it is one that contains a paradox: there is nothing more natural than sexual desire; there is nothing less natural than the forms in which it is made manifest and satisfied.
+ - By diminishing the value of silence, publicity has also diminished that of language. The two are inseparable: knowing how to speak has always meant knowing how to keep silent, knowing that there are times when one should say nothing.
+ - I don’t believe that there are dangerous writers: the danger of certain books is not in the books themselves but in the passions of their readers.
+ - What distinguishes modern art from the art of other ages is criticism.
+ - Solitude is the profoundest fact.
+ - A civilization that denies death ends by denying life.
+ - There is nothing sacred or untouchable except the freedom to think. Without criticism, that is to say, without rigor and experimentation, there is no science, without criticism there is no art or literature. I would also say that without criticism there is no healthy society.
+ - For every language that becomes extinct, an image of man disappears.
+ - Love is born at first sight; the friendship of a frequent and lengthy exchange.
+ - Without democracy freedom is a chimera.
+ - Light is time thinking about itself.
+ - Death is the mother of forms.
+ - By suppressing differences and peculiarities, by eliminating different civilizations and cultures, progress weakens life and favors death.
+ - There can be no society without poetry, but society can never be realized as poetry, it is never poetic. Sometimes the two terms seek to break apart. They cannot.
+ - The ideal of a single civilization for everyone, implicit in the cult of progress and technique, impoverishes and mutilates us.
+ - Whatever is not stone is light.
+ - If we are a metaphor of the universe, the human couple is the metaphor par excellence, the point of intersection of all forces and the seed of all forms. The couple is time recaptured, the return to the time before time.
+ - It is the Revolution, the magical word, the word that is going to change everything, that is going to bring us immense delight and a quick death.
+ - Self-discovery is above all the realization that we are alone: it is the opening of an impalpable, transparent wall-that of our consciousness-between the world and ourselves.
+ - Literature is the expression of a feeling of deprivation, a recourse against a sense of something missing. But the contrary is also true: language is what makes us human. It is a recourse against the meaningless noise and silence of nature and history.
+ - Every view of the world that becomes extinct, every culture that disappears, diminishes a possibility of life.
+ - To love is to undress our names.
+ - Art is what remains of religion: the dance above the yawning abyss.
+ - If each of my words were a drop of water, you would see through them and glimpse what I feel: gratitude, acknowledgement.
+ - Social criticism begins with grammar and the re-establishing of meanings.
+ - Poets have the gift to speak for others, Vasko Popa had the very rare quality of hearing the others.
+ - Reality is a staircase going neither up nor down, we don’t move; today is today, always is today.
+ - Self-discovery is above all the realization that we are alone.
+ - Mineral cactai, quicksilver lizards in the adobe walls, the bird that punctures space, thirst, tedium, clouds of dust, impalpable epiphanies of wind. The pines taught me to talk to myself. In that garden I learnedto send myself off. Later there were no gardens.
+ - Believing ourselves to be possessors of absolute truth degrades us: we regard every person whose way of thinking is different from ours as a monster and a threat and by so doing turn our own selves into monsters and threats to our fellows.
+ - Man does not speak because he thinks; he thinks because he speaks. Or rather, speaking is no different than thinking: to speak is to think.
+ - Contemporary man has rationalized the myths, but he has not been able to destroy them.
+ - Tradition is no longer a continuity but a series of sharp breaks. The modern tradition is the tradition of revolt.
+ - Language lies outside of society because it is its foundation; but it also lies within society because that is the only place where it exists and the only place where it develops.
+ - My body, plowed by your body, will turn into a field where one is sown and a hundred reaped.
+ - Poet: gardener of epitaphs.
+ - Grace is gratuitous; it is a gift.
+ - Changes are inseparable from democracy. To defend democracy is to defend the possibility of change; in turn, changes alone can strengthen democracy.
+ - Revolt is the violence of an entire people; rebellion the unruliness of an individual or an uprising by a minority; both are spontaneous and blind. Revolution is both planned and spontaneous, a science and an art.
+ - The universe unfolds in the body, which is its mirror and its creature.
+ - Loving means getting rid of names.
+ - Wisdom lies neither in fixity nor in change, but in the dialectic between the two.
+ - Poetry, in the past, was the center of our society, but with modernity it has retreated to the outskirts. I think the exile of poetry is also the exile of the best of humankind.
+ - The whole motley confusion of acts, omissions, regrets and hopes which is the life of each one of us finds in death, not meaning or explanation, but an end.
+ - Enormous and solid but swaying, beaten by the wind but chained, murmur of a million leaves against my window. Riot of trees, surge of dark green sounds. The grove, suddenly still, is a web of fronds and branches.
+ - Writers, you know, are the beggars of Western society.
+ - Cubism had been an analysis of the object and an attempt to put it before us in its totality; both as analysis and as synthesis, it was a criticism of appearance. Surrealism transmuted the object, and suddenly a canvas became an apparition: a new figuration, a real transfiguration.
+ - The American: a titan enamored of progress, a fanatical giant who worships “getting things done” but never asks himself what he is doing nor why he is doing it.
+ - If society abolishes poetry it commits spiritual suicide.
+ - Each time we try to express ourselves we have to break with ourselves.
+ - Drugs are nihilistic: they undermine all values and radically overturn all our ideas about good and evil, what is just and what is unjust, what is permitted and what is forbidden.
+ - It is always difficult to give oneself up; few persons anywhere ever succeed in doing so, and even fewer transcend the possessive stage to know love for what it actually is: a perpetual discovery, and immersion in the waters of reality, an unending re-creation.
+ - Modern man likes to pretend that his thinking is wide-awake. But this wide-awake thinking has led us into the mazes of a nightmare in which the torture chambers are endlessly repeated in the mirrors of reason.
+ - Power immobilizes; it freezes with a single gesture-grandiose, terrible, theatrical, or finally, simply monotonous-the variety which is life.
+
+77 quotes

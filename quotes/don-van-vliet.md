@@ -1,0 +1,43 @@
+ - Be kind, man – don’t be mankind.
+ - If you want to be a different fish, you’ve got to jump out of the school.
+ - You can tell by the kindness of a dog how a human should be.
+ - We see the moon, don’t we? So it’s our eye. Animals see us, don’t they? So we’re their animals.
+ - I don’t do lullabyes.
+ - I don’t like getting out when I could be painting. And when I’m painting, I don’t want anybody else around.
+ - There are only forty people in the world and five of them are hamburgers.
+ - I don’t even know what sound is, much less what it’s for. It isn’t to make money that’s for sure. I’ve never made any.
+ - I don’t want to sell my music. I’d like to give it away because where I got it, you didn’t have to pay for it.
+ - The stars are matter, We’re matter, But it doesn’t matter.
+ - When I see a dolphin, I know it’s just as smart as I am.
+ - I would say that it’s an awfully overrated aspirin and very similar to the old people’s Disneyland.
+ - You can almost judge how screwed up somebody is by the kind of toilet paper they use. Go in any rich house and it’s some weird coloured embossed stuff.
+ - I don’t look like a desert person because I stay indoors most of the day and fool around at night. That’s what the desert animals do – they don’t have a tan either.
+ - James Brown is important because he decorates the clock correctly and he’s good with lower mathematics. Don’t get me wrong – he’s good.
+ - I have no neighbours other than animals and Joshua Trees.
+ - I think people have had too much to think and ought to flex their magic muscles. It takes awhile to get oriented to what I do, but people seem to be able to hear it if they give it a chance. I’d never just want to do what everybody else did. I’d be contributing to the sameness of everything.
+ - I’m interested in playing, not working.
+ - I would never kill a living thing, although I probably have inadvertently while driving automobiles.
+ - I think most people try to get others to see through their eyes.
+ - An audience can really lift you right up off the stage.
+ - Most of modern rock and roll is a product of guilt.
+ - I’d never just want to do what everybody else did. I’d be contributing to the sameness of everything.
+ - If you got ears, you gotta listen.
+ - A carrot is as close as a rabbit gets to a diamond.
+ - Art is rearranging and grouping mistakes.
+ - It makes me itch to think of myself as Captain Beefheart. I don’t even have a boat.
+ - I’d rather play a tune on a horn, but I’ve always felt that I didn’t want to train myself. Because when you get a train, you’ve got to have an engine and a caboose. I think it’s better to train the caboose. You train yourself, you strain yourself.
+ - That Sid Vicious was obviously a schizophrenic, kind of a mean one too.
+ - The largest living land mammal is the absent mind.
+ - The wind is a very difficult sound to get. It’s always changing.
+ - Johnny Rotten. He’s a big fan of mine. I used to see him out in the audience in England and he’d stand up and holler. He’s funny. Smart too, and a nice guy. Don’t think he’s a jerk because he isn’t.
+ - I live in a Mobile Home – I’ve never had a house, except once; I rented a log cabin.
+ - I don’t think artists are made, I think they’re born.
+ - With my voice and my band, I can do anything.
+ - I think that men has the most highly developed intelligence. I think men get so intelligent that they’re stupid.
+ - But I have been in some very beautiful churches, then I’ve looked outside and seen people starving to death.
+ - I think Shakespeare is really the one. Words as music and music as words. Everything he wrote was good, which is really frightening.
+ - Man has done a lot to make himself dangerous and animals get the worst of all of it. But then, man too is an animal.
+ - I needed to purge myself of all the attention my parents had given me – I wasn’t neglected enough as a child.
+ - We’re all colored, or you wouldn’t be able to see anyone.
+
+41 quotes

@@ -1,0 +1,24 @@
+ - My purpose is far greater than my pain.
+ - I’m cut from a different cloth. I would never moon someone. I was raised in a good family.
+ - All my friends were in the park smoking weed and getting pregnant. I didn’t want to be the young black girl having a baby, a baby’s father, being on welfare. That wasn’t going to be my story.
+ - Twist my Body like the Exorcist...
+ - 32 grams raw, chop it in half, get 16. Double it times three, we got 48. Which mean a whole lot of cream. Divide the profit by four. Subtract it by eight. We back to 16.
+ - To find a prince, you gotta kiss some toads.
+ - My family never missed a visit in eight months, ever. I cried coming out. I didn’t cry coming in. There’s a big difference. I believe that God put me there for a reason, Incarceration is serious.
+ - The Foxy character and Inga Marchand are two different people. My fiance calls me Inga. No one around me calls me Foxy. I go to church every Sunday. I go to Bible study every Friday night. I’m saved.
+ - I’d go down in history for being the most revealing nun ever!
+ - I’m not at every party; I’m not seen everywhere. That’s why people still care about my brand.
+ - I’m a child of the Women’s Movement. I always believed that I could do anything. That women didn’t have to be limited in any way.
+ - I am racing to the studio the moment that God affords me the opportunity to hear again.
+ - I was falsely arrested twice, slandered and defamed.
+ - I love Harlem, it’s like a second home to me.
+ - Being in jail, it’s humbled me in a way I never imagined.
+ - I’m willing to do whatever I need to do to change.
+ - The only crime I’m guilty of is being a young black woman.
+ - Put out great music, and that’s that.
+ - It feels so good to tell the truth.
+ - I came out even with all the struggles I endured on Rikers Island.
+ - I did almost a year in prison, a year in prison, just because my name is Foxy Brown.
+ - I devoted my career to building an affinity with my fans who have supported me unflinchingly and no barbed wire fence or prison wall will stop that.
+
+22 quotes

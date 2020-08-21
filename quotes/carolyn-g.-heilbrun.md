@@ -1,0 +1,44 @@
+ - In former days, everyone found the assumption of innocence so easy; today we find fatally easy the assumption of guilt.
+ - Power consists to a large extent in deciding what stories will be told.
+ - Thinking about profound social change, conservatives always expect disaster, while revolutionaries confidently anticipate utopia. Both are wrong.
+ - Power is the ability to take one’s place in whatever discourse is essential to action and the right to have one’s part matter.
+ - Androgyny suggests a spirit of reconciliation between the sexes...
+ - You can flush my ashes down the toilet, for all I care.
+ - That is the point of quotations. One can use another’s words to be insulting.
+ - The married are those who have taken the terrible risk of intimacy and, having taken it, know life without intimacy to be impossible.
+ - A dog is the only exercise machine you cannot decide to skip when you don’t feel like it.
+ - Male friends do not always face each other; they stand side by side, facing the world.
+ - Quoting, like smoking, is a dirty habit to which I am devoted.
+ - Ideas move fast when their time comes.
+ - Shifting problems is the first rule for a long and pleasant life.
+ - One cannot make up stories; one can only retell in new ways the stories one has already heard.
+ - Nostalgia is a dangerous emotion, both because it is powerless to act in the real world, and because it glides so easily into hatred and resentment against those who have taken our Eden from us.
+ - To recommend that women become identical to men, would be simple reversal, and would defeat the whole point of androgyny, and for that matter, feminism: in both, the whole point is choice.
+ - We in middle age require adventure.
+ - Everyone likes to talk shop, which is the most interesting talk in the world, in the beginning.
+ - Ardent, intelligent, sweet, sensitive, cultivated, erudite. These are the adjectives of praise in an androgynous world. Those who consider them epithets of shame or folly ought not to be trusted with leadership, for they will be men hot for power and revenge, certain of right and wrong.
+ - It’s hard to be happy, and safe, and applauded in a miserable world.
+ - The compulsion to find a lover and husband in a single person has doomed more women to misery than any other illusion.
+ - Only a marriage with partners strong enough to risk divorce is strong enough to avoid it.
+ - Why do long marriages occasionally endow their inhabitants with a rare kind of equilibrium otherwise almost unknown in human relations? My guess is that the value of the moment has at last overshadowed the long history of resentments, betrayals, and boredom.
+ - Today’s youth seem finally to have understood that only by freeing woman from her exclusively sexual role can man free himself from his ordained role in the rat-race: that of the rat.
+ - Normal is absolutely my least favorite word.
+ - The sign of a good marriage is that everything is debatable and challenged; nothing is turned into law or policy. The rules, if any, are known only to the two players, who seek no public trophies.
+ - Whether deliberately, unconsciously or accidentally, she seems to have composed her own life so that its fitful, rudderless, and self-doubting first half was alchemized into gold when the austere bluestocking became the fallen woman.
+ - People who are genuinely involved in life, not just living a routine they’ve contrived to protect them from disaster, always seem to have more demanded of them than they can easily take on.
+ - Is there any vanity greater than the vanity of those who believe themselves without it?
+ - Life has this in common with prizefighting: if you’ve received a belly blow, it’s likely to be followed by a right to the jaw.
+ - I don’t know why togetherness was ever held up as an ideal of marriage. Away from home for both, then together, that’s much better.
+ - Upon becoming fifty the one thing you can’t afford is habit.
+ - A literary academic can no more pass a bookstore than an alcoholic can pass a bar.
+ - Odd, the years it took to learn one simple fact: that the prize just ahead, the next job, publication, love affair, marriage always seemed to hold the key to satisfaction but never, in the longer run, sufficed.
+ - The journey is over. Love to all.
+ - Ironically, women who acquire power are more likely to be criticized for it than are the men who have always had it.
+ - New York is not like London, a now-and-then place to many people. You can either not live in New York or not live anyplace else. One is either a lover or hater.
+ - Professors of literature collect books the way a ship collects barnacles, without seeming effort.
+ - Most full lives are filled with empty gestures.
+ - One hires lawyers as on hires plumbers, because one wants to keep one’s hands off the beastly drains.
+ - Today’s shocks are tomorrow’s conventions.
+ - What marks a writer is this: until she – or he, of course – writes down whatever happened, turns it into a story, it hasn’t really happened, it hasn’t shape, form, reality.
+
+42 quotes

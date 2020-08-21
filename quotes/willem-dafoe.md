@@ -1,0 +1,85 @@
+ - You have to lose yourself to find yourself.
+ - Great theatre is about challenging how we think and encouraging us to fantasize about a world we aspire to.
+ - Action breeds inspiration more than inspiration breeds action.
+ - One of the pleasures of being an actor is quite simply taking a walk in someone else’s shoes. And when I look at the roles I’ve played, I’m kind of amazed at all the wonderful adventures I’ve had and the different things I’ve learned.
+ - I never act. I simply bring out the real animal that’s in me.
+ - There’s a real wisdom to not saying a thing.
+ - Turn off the sound in a movie, and if you can tell what’s going on, the movie should work.
+ - I’ve never had any close male friends. The most important relationships in my life have always been with women.
+ - The worst thing is to get involved with people who aren’t passionate about what they’re doing.
+ - I am confident only when I am constantly in motion. Between projects, the doubt creeps in.
+ - I guess they often cast me as the bad guy, because I’m not, er, conventional looking. I look sort of violent. I’m the odd one out, the outsider.
+ - I’m no different to anyone else; I want people to like me. I just don’t particularly want them to understand me.
+ - The truth is, if you’re around long enough, you have a story about everyone. But it’s best to keep your mouth shut sometimes.
+ - I’m an optimist. I hope if a movie’s good that it will be a success, but as we know, that’s not always true, just because of popular taste, advertising, distribution patterns – there’s lots of reasons.
+ - I’m one of those people who when I go over a bridge, I want to jump. It’s just this intense tickle in the back of my throat. It’s like I’m on the verge the whole time I’m walking over that bridge, and I’m not going to get a release until I jump.
+ - I think on some level, you do your best things when you’re a little off-balance, a little scared. You’ve got to work from mystery, from wonder, from not knowing.
+ - I wish to Christ I could make up a really great lie. Sometimes, after an interview, I say to myself, ‘Man, you were so honest – can’t you have some fun? Can’t you do some really down and dirty lying?’ But the puritan in me thinks that if I tell a lie, I’ll be punished.
+ - The truth is I like the crazy ones better than the well-behaved ones normally because they tend to be the passionate ones. They never come after you if you’re holding up your end. The only thing that’s bad about an abusive director is that they bully the people they can.
+ - I set myself challenges every time I work. Ideally, I approach everything as though it’s the first time – with a beginner’s mind and an amateur’s love.
+ - I don’t have a preference between theatre and film; I like to do both. But I will say that there’s something about theatre that is more nourishing and sustaining than film ever can be.
+ - With theatre, you have to be ready for anything.
+ - Basically, when I hear the words ‘family drama,’ I run in the opposite direction.
+ - In my experience, sometimes a movie just hits at the wrong time, gets the wrong press, or gets the wrong representation, and it gets misunderstood.
+ - It’s no fun for an actor to keep repeating what you did before. It’s always changing. I’m changing. The target keeps moving. That’s the beauty of it.
+ - As you get older, you suffer fools less easily. That’s why there’s all those cranky character actors. I’m an exception. I’m a sweetheart.
+ - Weirdness is not my game. I’m just a square boy from Wisconsin.
+ - My dad was a surgeon, my mom a nurse, and they were always out working. I had five sisters and a brother. They didn’t care what I got up to.
+ - I think, as I’ve gotten older, I’ve been able to be more reckless with my choices, because practically speaking, you get less careful. Your choices become more instinctive, and you feel like if you make a mistake, it won’t destroy you.
+ - The bad things about theatre get balanced by the good things in film and vice versa. So to tell you the truth, I love it when I can go back and forth – it feeds different parts of you and exercises different muscles.
+ - Each of the actors is quite different, but they’re all living in the same world.
+ - I feel like it’s important to be flexible, particularly when I’m coming in late in the game and I’m connective tissue in the story. I’m not at the very center. It’s important for me to have a certain kind of flexibility and try to help people do what they need to do.
+ - Film is an editor’s medium. You can create very good raw material and they can make it horrible, or you can do not so well and they can make it beautiful. You don’t really know.
+ - Let’s hope I never end up on a deserted island, because I could never make a decision on which three CDs to take with me.
+ - Celebrity is okay as long as you know it’s not about you.
+ - Performing is about developing empathy, which leads us to a broader view of the world and encourages us to develop compassion; so we can comfort each other and not be so brutal with each other.
+ - Emotionally men and women are different, but only as a result of the physical differences. It all comes back to our bodies.
+ - I don’t think people want to see me as a regular guy; besides, I’m a regular guy in real life. I guess I just want to be reckless in my work.
+ - I pride myself on being fairly polite on a set so it’s kind of a guilty pleasure to poke others on the set.
+ - I love theaters. I love the event of going there and seeing a movie with a lot of people. I like the community coming around the story.
+ - I try to attach myself to people who really inspire me, and directors who are really passionate. That way, I can give myself more fully and trust the impulse behind why the film is being made, and I can be a little more irresponsible in finding out what the character is.
+ - I’m learning in my old age that the only thing you can do to keep your sanity is to stay in the moment.
+ - I aspire to be an instrument of the director. I’m happiest like that. The stronger the director, the more I’m willing to give them.
+ - When you work on anything, you want to find the range of impulses – which ones get portrayed is another question, but you want to have that complexity and that fullness, even if you’re playing a cartoon character.
+ - I love doing action and stuff; the problem is usually action movies are not that interesting. Also as I get older I feel like there’s less opportunities for me.
+ - Any actor who tells you that he makes choices, absolutely, is wrong. You find work and work finds you.
+ - Usually when you meet with a director, just meeting them after you’ve seen something you’re interested in, they say, “Oh I’d love to work together,” and sometimes you never hear from them again.
+ - I love Sam Neill. The thing that I always say about him, and I think it’s true, is he’s so dry. When he’s serious, I think he’s joking; when he’s joking, I think he’s serious.
+ - I was born William. My father was William. I came from a big family, I hated being called Billy. Willem’s a nickname; it’s a Dutch name, very common in the Netherlands.
+ - Truth is, generally I like film festivals; somewhere at some level there’s an exchange of ideas.
+ - The Midwest isn’t somewhere you mix with those from the performing arts. But my mum and dad would go off to Chicago every so often to see shows. They would bring back the albums and the movies, those little eight metres, and we would all watch. I think that was when I fell in love with acting.
+ - It makes me laugh when I hear a guy talking about being in touch with his feminine side. But I gravitate towards women; I identify with them. And I do cry very easily, more and more as I get older.
+ - That’s a frustration sometimes, that certain directors that I’d like to work with, they just aren’t doing stories that I’m sort of castable in. Not always, but sometimes I have that frustration.
+ - If you get stuck and it feels a little stiff, then you do have to mess it up to find it. But other times it’s really written and you just stick to your guns and do it as elegantly and as concentrated and as committed as you can.
+ - I try to do as many of my own stunts as possible. If you keep on taking yourself out of the role you play, you lose the thread of the character.
+ - I was doing community theater, and I was always interested in acting, but I was also interested in sports. I was interested in a lot of things. I was a pretty normal guy. I wasn’t like a guy who grew up in a dark theater watching movies.
+ - It’s too easy to trivialize people. The Internet does it all the time.
+ - I don’t think people are interested in my personal life. I’ve never had a Hollywood life. I’ve always been a worker.
+ - I’m a task-oriented actor. A pretender. And I try to invent my process anew each time I make a new project. So I frown on any method.
+ - Central to being an actor is pretending, and the adventure of it all. That’s why you become a junkie for different kinds of situations.
+ - You can be intuitive when you’ve got a more expansive role. You can get into the poetry of telling the story rather than just pushing buttons.
+ - I do want to be in mainstream movies that are going to be seen. I suppose it satisfies the showbiz side of me.
+ - I want to work with people who are good at what they do, and people who are passionate.
+ - Trust is always a factor. You’ve just got to look at the big picture, and you’ve got to look at the small picture – the small picture in the sense that you’ve got to make every scene work and you’ve got to deal with what people are presenting you with, too.
+ - Sometimes I think women are lucky because they can develop in ways men can’t. The old-boy network may be oppressive to women, but it actually stunts men in terms of personal growth.
+ - I don’t want people to know anything about me, because that’s not important. I’m more interested in the me that takes shape through the characters.
+ - Sometimes you make very interesting movies that aren’t meant for everybody. But this is a capitalist society, so everything conspires to put value on whether it sells or not.
+ - I’ll never be able to really see a film that I’m in.
+ - I have some sort of affinity for compulsive behavior. The most interesting stories come up from the people on the outside.
+ - I don’t worry so much about the audience. I want them very much to be involved and enjoy the movie, but I try to just inhabit the character in a full way, where I can create a personal stake.
+ - In films you do a scene, you play around with it and unless you’re doing a lot of reshooting, which no one has the luxury to do, you deal with the problem for a day and then you move on. On some level, it never allows you to go very deep into what performing is about.
+ - The real difficulty for smaller films, when they’re made independently and it’s time to go for a distributor, sometimes if it’s a tough film and the people who financed it need their money back right away, it’s much easier and lucrative to take a DVD deal.
+ - When I was a kid I was very interested in the idea of the will, finding out what you’re capable of. I liked those kind of challenges.
+ - I was watching ‘Wild at Heart,’ and I can honestly say I did nothing for that apart from show up!
+ - The director’s very important to me, particularly when the director has a recognizable style.
+ - When I give over to somebody’s vision rather than have an idea of what I need to do, it takes me to places I wouldn’t have got to by myself. I’m always attracted to a strong director.
+ - I’ve been in very few flat-out comedies. But I feel like I’ve always made comedies.
+ - Plenty of bad movies are very successful, and plenty of good movies are not. And distribution is so crazy, some films won’t even get their day in court.
+ - Socially, I like the idea of sitting in a theater with a bunch of people.
+ - All the time, as an actor, you want to be asking what’s next and where things are going. If you’re not asking those questions, you’re not growing.
+ - The best thing an actor can be is ready. Be flexible, be ready.
+ - It’s fair to say that if you have a lot of experience, your power is greater. You have more of an opportunity to roll up your sleeves with younger directors.
+ - Film is fragmented and gets into lots of other people’s hands. There are a lot of pleasures that theatre gives me. You get to perform uninterrupted.
+ - A lot of critics are lazy. They don’t want to look closely and analyze something for what it is. They take a quick first impression and then rush to compare it to something they’ve seen before.
+
+83 quotes

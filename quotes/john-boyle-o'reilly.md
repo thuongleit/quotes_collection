@@ -1,0 +1,30 @@
+ - Be silent and safe – silence never betrays you; Be true to your word and your work and your friend; Put least trust in him who is foremost to praise you, Nor judge of a road till it draw to the end.
+ - Be silent and safe-silence never betrays you.
+ - The right word fitly spoken is a precious rarity.
+ - How shall I a habit break? As you did that habit make, As you gathered, you must lose; As you yielded, now refuse, Thread by thread the strands we twist Till they bind us neck and wrist, Thread by thread the patient hand Must untwine ere free we stan.
+ - The wealth of mankind is the wisdom they leave.
+ - A dreamer lives forever, And a toiler dies in a day.
+ - Well blest is he who has a dear one dead; A friend he has whose face will never change- A dear communion that will not grow strange; The anchor of a love is death.
+ - They who see the Flying Dutchman never, never reach the shore.
+ - Ireland is a fruitful mother of genius, but a barren nurse.
+ - The organized charity, scrimped and iced, In the name of a cautious, statistical Christ.
+ - Doubt is brother-devil to Despair.
+ - Anonymity is the fame of the future.
+ - Woman suffrage is an unjust, unreasonable, unspiritual abnormality. It is a hard, undigested, tasteless, devitalized proposition. It is a half-fledged, unmusical, Promethean abomination. It is a quack bolus to reduce masculinity even by the obliteration of femininity.
+ - The world is large when its weary leagues two loving hearts divide; But the world is small when your enemy is loose on the other side.
+ - All that is worth seeing in good boxing can best be witnessed in a contest with soft gloves. Every value is called out: quickness, force, precision, foresight, readiness, pluck, and endurance. With these, the rowdy and ‘rough’ are not satisfied.
+ - I’d rather live in Bohemia than in any other land.
+ - The adoption of gloves for all contests will do more to preserve the practice of boxing than any other conceivable means. It will give pugilism new life, not only as a professional boxer’s art, but as a general exercise.
+ - Putting prize-fighting altogether aside as one of the unavoidable evils attending on this manly exercise, the inestimable value of boxing as a training, discipline, and development of boys and young men remains.
+ - And we who have toiled for freedom’s law, have we sought for freedom’s soul? Have we learned at last that human right is not a part but the whole?
+ - Take gifts with a sigh: most men give to be paid.
+ - Prize-Fighting is not the aim of boxing. This noble exercise ought not to be judged by the dishonesty or the low lives of too many of its professional followers. Let it stand alone, an athletic practice, on the same footing as boating or football.
+ - For peace do not hope; to be just you must break it. Still work for the minute and not for the year.
+ - The Greeks were the first boxers. Pugilism appears to have been one of the earliest distinctions in play and exercise that appeared between the Hellenes and their Asiatic fathers. The unarmed personal encounter was indicative of a sturdier manhood.
+ - Our life a harp is, with unnumbered strings, And tones and symphonies; but our poor skill Some shallow notes from its great music brings.
+ - Loyalty is the greatest quality of the human heart.
+ - When honor comes to you, be ready to take it; But reach not to seize it before it is near.
+ - For all time to come, the freedom and purity of the press are the test of national virtue and independence. No writer for the press, however humble, is free from the burden of keeping his purpose high and his integrity white.
+ - Who heeds not experience, trust him not.
+
+28 quotes

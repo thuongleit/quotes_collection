@@ -1,0 +1,94 @@
+ - Start a painting with fresh ideas, and then let the painting replace your ideas with its ideas.
+ - Truth is not always hard to find; it is often staring you in the face. The problem with truth is that it is hard to believe. It is even harder to get other people to believe.
+ - Good art looks new because the artist has recombined something old to make something better.
+ - Postmodernism is Modernism with Alzheimer’s.
+ - When anything goes, everything goes.
+ - Too much freedom inhibits choice. Constructive narrowness clarifies choice.
+ - Big minds have big ideas. Small minds use big ideas to justify bad ideas.
+ - In ART as in Life the Best Way to REMEDY mistakes is to take advantage of them.
+ - Making art is like swimming underwater in a blindfold.
+ - Most ‘profound truths’ are just timely ideas.
+ - Assumptions are usually presumptuous but often correct.
+ - Of course I will look at anything, but I have not got the time or the patience to keep on looking at art that I know could be better. I don’t want art that needs fixing, I want art that sends me back to the studio to fix my own.
+ - When making a painting, only one thing counts: what you do next.
+ - Art that wants to be felt does not have the need to be admired.
+ - When you make the obvious mysterious, then the mysterious becomes unavailable.
+ - Always let intuitive perception precede analysis.
+ - No high-minded painter of the last fifty years has been able to come to terms with his art without coming to terms with the problem of cubism.
+ - If we see an object as a bowl, it may inhibit seeing it as craft, just as seeing it as craft might inhibit seeing it as art. See first; name later.
+ - Most people find facts irritating. Facts interfere with their systems of denial.
+ - An ivory tower is a fine place as long as the door is open.
+ - Don’t burden art with words and ideas. Art comes from a deeper place.
+ - Originality is way overrated. To make, you need to take. All great artists do.
+ - Talent is like a seed which needs fertile soil. There is no less talent now, there is less fertile soil to nourish it.
+ - When you ‘break all the barriers’ you get a pile of rubble.
+ - Very few people ever understand art. If you are lucky, they will buy it for the wrong reasons.
+ - Art is making something better without knowing what better is until you make it.
+ - Asking art to express ideas is like asking a Sumo wrestler to play charades.
+ - There are too many artists, too many dealers and too much art.
+ - We learn to lie by believing words rather than experience.
+ - The art consensus is not criteria, it is convenience.
+ - You don’t have to be a cave man to appreciate Lascaux.
+ - The power of art is not in communication but effect; what it does, not what it relates.
+ - Postmodernism does not help us understand good art. It encourages art that can be easily understood and throws in something catchy to cover the loss of mystery.
+ - When you write something new about science, other scientists may not like it but they pay attention because it is subject to proof. When you write something new about art, it is subject only to the reader’s discomfort, and will probably be rejected.
+ - Good art, no matter how simple or casual-seeming, always carries a high density of choice.
+ - Without the eye, the head is blind. Without the head, the eye is adrift.
+ - In art there is no absolute good or bad, but it is absolute that there is good and bad.
+ - If you learn something too well, it will get in the way of your perception of reality.
+ - Science is a matter of adjusting language to explain material reality. Art is a matter of adjusting material reality to create a sense of life.
+ - Art is not ‘about.’ Art is.
+ - Art rides in on pleasure.
+ - Trying to be original is futile. If you have no place to go, stay home and cook.
+ - Limitation of means is a precondition of excellence. Creative freedom chooses its limitations. Destructive freedom rejects them heedlessly.
+ - When you are painting a landscape, assume the painting is real and the landscape is an illusion.
+ - The first duty of intelligence is to recognize the obvious.
+ - To an art historian a Giotto is a 14th Century painting. To an artist it was painted yesterday. We free ourselves from the past when we see it freshly.
+ - Postmodernism lives in the academy, where words abandon reality to serve ambition, and reputations rise on hot air.
+ - Anything is OK in art if the art turns out OK.
+ - Power is like money. Some know how to get it; few know how to use it.
+ - When inspiration dies, imitation thrives.
+ - There is no regional art. The only region left is the art magazine.
+ - There is no best way to make art, but there are a lot of better ways.
+ - Art is not truth. Truth conforms to reality. Art invents reality.
+ - Writing about art is only useful when it leads to the experience of art.
+ - If art depended on content, then one painting of an apple would be as good as the next one.
+ - Postmodernism is silly and joyless at the same time.
+ - Live to paint, don’t paint to live.
+ - Art is like a butterfly fluttering in a meadow. Analysis of art is like a butterfly on a pin. Each has its value, but we must always be aware of the difference, and what is gained or lost.
+ - One needs to be right before getting righteous.
+ - Complete freedom debilitates art but reveals much about character.
+ - Art is too popular. If plumbing was as popular as art is we would have amateur plumbers running around brandishing wrenches and Roto-Rooters, climbing in and out of sewers and writing gibberish about pipe systems. And none of our our toilets would work.
+ - When realistic images or patterns are seen in an abstract painting, they are often parallels brought about by processes in painting which echo processes in nature.
+ - Dogmatism spreads its roots in the fertile soil of uncertainty.
+ - When good ideas get put to bad use, it is the fault of the user, not the idea.
+ - A critic without a good eye is a eunuch in a harem.
+ - Art makes you reinvent the wheel with regularity. If you don’t, art gets bored and slips away.
+ - The more freedom artists have to do what they want to do, the more they do what other artists are doing.
+ - Art may be for the privileged few but they have earned the privilege and deny it to no one.
+ - Don’t apologize, justify or rationalize bad art or bad writing. If you do, you are part of it.
+ - There’s a big difference between grabbing attention and rewarding attention.
+ - When anything can be art, art is not much of anything.
+ - Experience is real. Painting, which comes out of experience, is real. The world is an illusion.
+ - We must turn away from work that replaces experience and pleasure with explanation.
+ - Great art does not break with the past. It breaks with the present by emulating the best of the past.
+ - Don’t explain, enjoy.
+ - It matters little if something is ‘craft’ or ‘art.’ The question is only this: does it give me pleasure?
+ - Art flows more easily when you are not thinking about what ‘should’ be in it or how it ‘should’ be done. The Impressionists taught us to look and see, not assume.
+ - The struggle to be original hates conformity, but the struggle to be better disregards it, or takes advantage of it to build workable conventions.
+ - When you have made a good painting, don’t do another like it, but remember the process, what you did, what you were thinking and feeling.
+ - Convention and restriction release inhibition and provoke the imagination.
+ - Art is there for nourishment, not explication.
+ - Part of history is facts. The other part is what we find easier to believe.
+ - Postmodernism does not facilitate better art. It rationalizes inferior art by wrapping it in words – a suit of armor with nobody inside.
+ - Good new art may not look like art. Inspiration doesn’t follow style, it creates it.
+ - A clear idea about the nature of quality in art will always result in inferior art tailored to it.
+ - When anyone can produce dreck or publish gibberish, and not only get away with it but be celebrated for it, the discipline is no longer a discipline, and it will get no respect.
+ - Good art has everything you need to know about it in the work, not on a wall label. Art is here to take us beyond language.
+ - Nothing is as hopeless as trying to justify art in words.
+ - Whether something is called art is beside the point. What counts is what happens when you ask it to actually be art.
+ - When art writing seems incomprehensible, chances are it is.
+ - Most art is just surface noise.
+ - When imitation goes over big, it isn’t imitation, it is a trend.
+
+92 quotes
